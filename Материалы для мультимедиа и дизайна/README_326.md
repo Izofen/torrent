@@ -1,3 +1,133 @@
+###  Публикация: 1016306   (771346) от 13.05.2016
+
+Экшены - GraphicRiver - Rise Photoshop Action - 10695658 [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39C0068B45E0ACC3694A4B49348A6B99CF0D453D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016081   (771347) от 13.05.2016
+
+Экшены - GraphicRiver - Glam - 40 Glow Generator Actions - 5346669 [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8C6E7863343DF78000091871A52E3F81C4AA11B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016065   (771352) от 13.05.2016
+
+Экшены - GraphicRiver - Fury 2 Photoshop Action - 10364770 [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:393F22297441D2F95983A569BD0427E4A0C9E853
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278544   (771430) от 25.01.2019
+
+Фоны и наложения - Creative Market - 5K Fantasy Sky Overlays - 2007470 [JPEG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Замените безмятежные небеса на ваших фотографиях захватывающими видами неба! Ваше фото на улице очаровывает великолепными пейзажами, но небо - это чистая скука, не так ли? Просто добавьте фантастический оттенок в вашим композициям! Этот пакет предлагаем вам 26 JPEG наложений с незабываемыми выразительными изображениями неба. Вы получите концентрированную атмосферу (   Читать дальше...   )Формат: JPEGРазрешение файлов: 5472x3648
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF826C95A022377A322CC1152AF6AE0A33BF5670
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278542   (771432) от 25.01.2019
+
+Фоны и наложения - Creative Market - Dramatic Sky Overlays - 2823892 [JPEG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Замените безмятежные небеса на ваших фотографиях захватывающими видами неба! Ваше фото на улице очаровывает великолепными пейзажами, но небо - это чистая скука, не так ли? Просто добавьте драматический оттенок к вашим композициям! Этот пакет предлагаем вам 60 JPEG наложений с незабываемыми выразительными изображениями неба. Вы получите концентрированную атмосферу (   Читать дальше...   )Формат: JPEGРазрешение файлов: 5000x3333
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B26ACA3E0E4D174436507C7B0000108C4405E8BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278543   (771435) от 25.01.2019
 
 Фоны и наложения - Creative Market - 45 Rain Photo Overlays - 3279115 [JPEG, ATN]
@@ -18,6 +148,8 @@
 ```bash
 magnet:?xt=urn:btih:5BE29D5D0C073CBBAC00D81B1D88F58E90A0038A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +178,8 @@ magnet:?xt=urn:btih:5BE29D5D0C073CBBAC00D81B1D88F58E90A0038A
 magnet:?xt=urn:btih:A68CBF1EF4412C489C4150EC9911E5228D492499
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +203,8 @@ magnet:?xt=urn:btih:A68CBF1EF4412C489C4150EC9911E5228D492499
 ```bash
 magnet:?xt=urn:btih:1BFA32AF5C90D73042892D3C679EA440FC29E711
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +230,8 @@ magnet:?xt=urn:btih:1BFA32AF5C90D73042892D3C679EA440FC29E711
 magnet:?xt=urn:btih:105EC8636B4AD77AA4EF12A401B370A0CB5D5C29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +256,8 @@ magnet:?xt=urn:btih:105EC8636B4AD77AA4EF12A401B370A0CB5D5C29
 magnet:?xt=urn:btih:F4581A963C45146B3C4C5F277D3130E6C40CDA84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +281,8 @@ magnet:?xt=urn:btih:F4581A963C45146B3C4C5F277D3130E6C40CDA84
 ```bash
 magnet:?xt=urn:btih:D8BE8E7EB8031D86501D7B4EED42F7D71E4F6928
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +310,8 @@ magnet:?xt=urn:btih:D8BE8E7EB8031D86501D7B4EED42F7D71E4F6928
 magnet:?xt=urn:btih:3D0A4556346CD11F8E1BA4813EC50F42C0565DDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +337,8 @@ magnet:?xt=urn:btih:3D0A4556346CD11F8E1BA4813EC50F42C0565DDC
 ```bash
 magnet:?xt=urn:btih:9D0B928782C12BF6D3E7B6277FB52366C60FE5AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +366,8 @@ magnet:?xt=urn:btih:9D0B928782C12BF6D3E7B6277FB52366C60FE5AC
 magnet:?xt=urn:btih:87F2EE31DAB4CB7CA3AE72AFD3DD8C39A83F10E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +391,8 @@ magnet:?xt=urn:btih:87F2EE31DAB4CB7CA3AE72AFD3DD8C39A83F10E7
 ```bash
 magnet:?xt=urn:btih:C5556ED40E663D9A1BA241EA577479F5C8ADAAA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +418,8 @@ Energy Photoshop Action - Добавьте энергии к вашим рабо
 magnet:?xt=urn:btih:209BFE0D7FD600BC280DA87AF24112C56CDEC7FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +443,8 @@ magnet:?xt=urn:btih:209BFE0D7FD600BC280DA87AF24112C56CDEC7FB
 ```bash
 magnet:?xt=urn:btih:26C8A5B8F374ECB4BEE52DCC5E237CBE5C1F4242
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +470,8 @@ Vintage Photoshop Action - этот набор действий позволяе
 magnet:?xt=urn:btih:3A9EFB6E45A98AB795FA868D34E78691974EFA58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +495,8 @@ Rough Pencil Sketch Photoshop Action - примените к вашим фото
 ```bash
 magnet:?xt=urn:btih:FC67E5603F3DB454E3F77BF3A6BC260C5A6BD446
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +522,8 @@ magnet:?xt=urn:btih:FC67E5603F3DB454E3F77BF3A6BC260C5A6BD446
 magnet:?xt=urn:btih:99D63C92E4581704D915180767123C4D754C31CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +547,8 @@ magnet:?xt=urn:btih:99D63C92E4581704D915180767123C4D754C31CF
 ```bash
 magnet:?xt=urn:btih:2FF1A3F9F568B10E1DC2409FDC0C017003C305CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +574,8 @@ magnet:?xt=urn:btih:2FF1A3F9F568B10E1DC2409FDC0C017003C305CB
 magnet:?xt=urn:btih:2599EE829846CBFF3961D3308E695DE6D7046560
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +599,8 @@ magnet:?xt=urn:btih:2599EE829846CBFF3961D3308E695DE6D7046560
 ```bash
 magnet:?xt=urn:btih:88E484834C3BEF0214F1E387C322EA48B70E10CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +626,8 @@ magnet:?xt=urn:btih:88E484834C3BEF0214F1E387C322EA48B70E10CB
 magnet:?xt=urn:btih:77B1143123F460C00890411E8A17492DD6B2FCB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +651,8 @@ magnet:?xt=urn:btih:77B1143123F460C00890411E8A17492DD6B2FCB9
 ```bash
 magnet:?xt=urn:btih:BDF3D9545E3D76E08D99B9910844F3D4B7CF89EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,125 +678,7 @@ magnet:?xt=urn:btih:BDF3D9545E3D76E08D99B9910844F3D4B7CF89EC
 magnet:?xt=urn:btih:8A3B9A8CC79B2E186758A6B607E2778D75391D97
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391544   (772493) от 21.06.2020
-
-3D модели - Unreal Engine - Post-Apocalyptic Industrial Scene [UASSET]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Последний бастион, последнее место, где человечество может найти пристанище после того, как мир рухнул после вирусной вспышки.Формат: UASSET
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAAD04C68E5E83754A7A35CB4AF2E126F0AC0ADB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015819   (772557) от 12.05.2016
-
-Экшены - GraphicRiver - Double Exposure - 15908352 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Double Exposure - станьте профессионалом в двойной экспозиции. Создайте свой экшн!Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91ABDBCE37BF57D8753A799C93D05B077F4B5E79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015909   (772558) от 12.05.2016
-
-Экшены - GraphicRiver - Fearless 2 Photoshop Action - 13070350 [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ED224EBBA01C7262CE30BA63402A52DCEA0D13F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015838   (772560) от 12.05.2016
-
-Экшены - GraphicRiver - Cell Shader 2 Photoshop Action - 10624176 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3502663CA21CBA23A2793265A7776F4FDF608DDC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015844   (772562) от 12.05.2016
-
-Экшены - GraphicRiver - Cosmic Photoshop Action - 10434544 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0136D0EB1B521FD19433B8AE7F6A71D2ED1E23C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

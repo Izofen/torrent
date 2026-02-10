@@ -22,6 +22,8 @@ Crystayler - Never Seen Again (2022) [FLAC|Lossless|image + .cue] <Black Metal>
 magnet:?xt=urn:btih:9EB4537305C39E6A28F2936419DCF4CF1DCD9AD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:9EB4537305C39E6A28F2936419DCF4CF1DCD9AD1
 magnet:?xt=urn:btih:38F23307E6E0340F19947BF36F807517E4FB6214
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:38F23307E6E0340F19947BF36F807517E4FB6214
 ```bash
 magnet:?xt=urn:btih:33CC508E3FE9A60F59D9CC3E77D503BE8C6E963D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Digital Emotion - The Maxi-Singles Collection (2023) Compilation [FLAC|Lossless|
 magnet:?xt=urn:btih:71EB81FB3F07376313407780D76E30CFE521B942
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:71EB81FB3F07376313407780D76E30CFE521B942
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Spoq - Solace (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Breaks, DubStep,
 ```bash
 magnet:?xt=urn:btih:5D8C3B6B437F27C9365DDABF76F9C106C88FB548
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ VA - Dance Party Night (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 magnet:?xt=urn:btih:FA21FABD878453E33A012FCB7833E6B120C04EF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:FA21FABD878453E33A012FCB7833E6B120C04EF3
 magnet:?xt=urn:btih:91ED4FEE76E057A44C7742168A21330F6EABA7C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ Joe Satriani & Steve Vai - Satch/Vai: The Sea of Emotion, Pt. 1 (2024) [FLAC 24/
 ```bash
 magnet:?xt=urn:btih:A76FA97E3B9F68F46C9E612BE616BEF26C1109AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ Q-Dir позволяет получать быстрый доступ к час�
 ```bash
 magnet:?xt=urn:btih:BB29C0EAD0ACEE7D8413100F6F0B4CBD755E98CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ Bonfire - Fireworks: MMXXIII Version (2023) [FLAC|Lossless|image + .cue] <Hard R
 magnet:?xt=urn:btih:2614AB0C8ED9790DB1589F8F9B1263AF45C41488
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ Enrique Iglesias - Final (Vol.2) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <L
 magnet:?xt=urn:btih:BB8371AC974FFA0DA2DC20662A1164402A64BAE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ AudFree Audio Capture for Mac 3.1.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:96A9F7FDD5C0BE2CA22A5EB290B880EA11B9938B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ First Jem album from long time NJ rocker's The Cynz featuring the dynamic lead s
 magnet:?xt=urn:btih:22BF37D1C094CD5F625BCED932CF413F97F72A7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ EmEditor Professional - профессиональная версия мощно
 ```bash
 magnet:?xt=urn:btih:33298EC7A2E94DBFB3EB70CFA5E92CEB6FF98184
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ magnet:?xt=urn:btih:33298EC7A2E94DBFB3EB70CFA5E92CEB6FF98184
 magnet:?xt=urn:btih:16DBC1A56233E592A9E4185C79E656E96BA3D974
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ Tenchi Muyou! GXP: Paradise Shidou Hen | Тэнти - лишний! GXP Заро
 ```bash
 magnet:?xt=urn:btih:A1A4617D57EE36BC6E8FD02D495BB72046E1319C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ magnet:?xt=urn:btih:A1A4617D57EE36BC6E8FD02D495BB72046E1319C
 magnet:?xt=urn:btih:681876336EDEAC1226DB26521A23B71424C20AB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ magnet:?xt=urn:btih:681876336EDEAC1226DB26521A23B71424C20AB4
 ```bash
 magnet:?xt=urn:btih:153B1153FB6622B820BF2C7970086883DD3A5CF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +538,8 @@ magnet:?xt=urn:btih:153B1153FB6622B820BF2C7970086883DD3A5CF3
 ```bash
 magnet:?xt=urn:btih:BAE2802D2BD924CAD140A974A211ADAF60EBAA7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +568,8 @@ MishRooms - Пьяные драконы (2024) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:DA5D843387BC137587E52F408750887370BC7A7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +595,8 @@ magnet:?xt=urn:btih:DA5D843387BC137587E52F408750887370BC7A7E
 ```bash
 magnet:?xt=urn:btih:425B8C1A937A6BA62048AD75B92557B1B0B16D21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +624,8 @@ magnet:?xt=urn:btih:425B8C1A937A6BA62048AD75B92557B1B0B16D21
 magnet:?xt=urn:btih:FCB313D11279CA4454B5F20EF89B993B57688872
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +649,8 @@ magnet:?xt=urn:btih:FCB313D11279CA4454B5F20EF89B993B57688872
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +679,8 @@ Lane 8 - Spring 2024 Mixtape (2024-03-19) [MP3|320 Kbps] <Progressive House, Mel
 magnet:?xt=urn:btih:831C1975E267D87C48986DE76715F209705187BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +704,8 @@ magnet:?xt=urn:btih:831C1975E267D87C48986DE76715F209705187BE
 ```bash
 magnet:?xt=urn:btih:0FE7B6DF05553FB1493FCF926CE427141E8A4C0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

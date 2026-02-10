@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:5B2511B4D4B07170CCEDF0FD4B241699CF42B6BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Vayper - Dancing Music fo NY 2026 at Vayper@SWH (2025) [MP3|~190 Kbps (V2)] <Cha
 ```bash
 magnet:?xt=urn:btih:7F93F4FBD3E9D465EA704174B0A24092835B9127
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Vayper - Песни на стихи Некрасова Н.А. (2026) [MP3|~190 K
 magnet:?xt=urn:btih:1C0A6A7BD1A299F7F0A20C92C731E544FD21475C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:1C0A6A7BD1A299F7F0A20C92C731E544FD21475C
 ```bash
 magnet:?xt=urn:btih:F4A2EA9DE02C108B424079AE00628C088DA50D3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Шансон премьера 2026 январь (Новые песни. Н�
 magnet:?xt=urn:btih:59021A791FC62DB093051732F46549999AE792C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Самые новые песни о любви 12 (2026) [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:51FD0CE4A05CCD2EE8047D4664B4FE0298AD9617
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Русский Шансон_ Сборник крутых песен otKOSTE
 magnet:?xt=urn:btih:C47C700DE72F1A107D37CCA8F2398696C0A2A82E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Новые хитовые песни 2026, Часть 1 (2026) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:CB9B2FFA72697C7876A40CB1EE105E4F39D451D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ magnet:?xt=urn:btih:CB9B2FFA72697C7876A40CB1EE105E4F39D451D3
 magnet:?xt=urn:btih:9FEC5182E28E3D5C521D50F35BF0885772565EE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Красивый шансон (2025) [MP3|320 Kbps] <Chanson>
 ```bash
 magnet:?xt=urn:btih:AD6B45299E52E961F595911E6A70AC65405F0B24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 925487   (539203) от 07.08.2015
+
+Сражение за Петербург (1788-1790 годы) (2011) DVDRip
+
+>>Документалистика и Телепередачи
+>>Отечественная история
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539203.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1788-1790 годах на просторах Финского залива на Балтике происходили грандиозные морские сражения - одни из самых больших в истории мирового парусного флота.
+В видеофильме методом компьютерной анимации впервые воссозданы самые важные и драматические эпизоды сражений за Петербург.Производство: РоссияЖанр: ДокументальныйРежиссер: Л. ФишельПродолжительность: 00:25:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C60FD19C4109C0E55E531C1E21F038C2524EC51E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 925655   (539204) от 07.08.2015
 
 Запечатленное время.  Выпуск 37. Меню 1945 года (2012) WEBRip
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:340EE4C041887BCE40CF3619071B326F636D2E56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +73,8 @@ magnet:?xt=urn:btih:340EE4C041887BCE40CF3619071B326F636D2E56
 magnet:?xt=urn:btih:1D7F8C5D21246FFFF9935D3BA980514E85A75FC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +98,8 @@ magnet:?xt=urn:btih:1D7F8C5D21246FFFF9935D3BA980514E85A75FC3
 ```bash
 magnet:?xt=urn:btih:8AF21163694870E639308AE9BE8E14759540D639
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +125,8 @@ magnet:?xt=urn:btih:8AF21163694870E639308AE9BE8E14759540D639
 magnet:?xt=urn:btih:2BC3CC7A080AE7EF23B6A314051ECCD005D28C52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +151,8 @@ magnet:?xt=urn:btih:2BC3CC7A080AE7EF23B6A314051ECCD005D28C52
 magnet:?xt=urn:btih:33225A1D8223D604EDB90E3B6DF0BBFDC481C85B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +176,8 @@ magnet:?xt=urn:btih:33225A1D8223D604EDB90E3B6DF0BBFDC481C85B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +204,8 @@ magnet:?xt=urn:btih:33225A1D8223D604EDB90E3B6DF0BBFDC481C85B
 ```bash
 magnet:?xt=urn:btih:F96D3D8754BBE51DF7666C46F6066222C773305C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +237,8 @@ Lehman Brothers стал самым большим из когда-либо су
 magnet:?xt=urn:btih:851B22CD00BA5DB0CC86AB5386186CCCEF81FEA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +262,8 @@ magnet:?xt=urn:btih:851B22CD00BA5DB0CC86AB5386186CCCEF81FEA1
 ```bash
 magnet:?xt=urn:btih:10C6E9D0F24012F13F6C98D04C72A28BA0C02526
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +289,8 @@ magnet:?xt=urn:btih:10C6E9D0F24012F13F6C98D04C72A28BA0C02526
 magnet:?xt=urn:btih:608C54BD51AFC15C5E078B23DDB3CCA53EC43F0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +314,8 @@ magnet:?xt=urn:btih:608C54BD51AFC15C5E078B23DDB3CCA53EC43F0F
 ```bash
 magnet:?xt=urn:btih:D2D5A619DC32C259DC5F11FA0A9580858E54A1C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +341,8 @@ magnet:?xt=urn:btih:D2D5A619DC32C259DC5F11FA0A9580858E54A1C1
 magnet:?xt=urn:btih:189F0FE84D54C08EAD85E71F5088F90880549885
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +367,8 @@ magnet:?xt=urn:btih:189F0FE84D54C08EAD85E71F5088F90880549885
 magnet:?xt=urn:btih:C9FF800066057F5DE76BE85DF9764048C42EE6D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +392,8 @@ magnet:?xt=urn:btih:C9FF800066057F5DE76BE85DF9764048C42EE6D4
 ```bash
 magnet:?xt=urn:btih:6783D36D203AD70D74245CDDD401FB2CF4CD9332
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +420,8 @@ magnet:?xt=urn:btih:6783D36D203AD70D74245CDDD401FB2CF4CD9332
 magnet:?xt=urn:btih:10933B46958752BE3EB3BE21FD5D479F3FBB79F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +445,8 @@ magnet:?xt=urn:btih:10933B46958752BE3EB3BE21FD5D479F3FBB79F9
 ```bash
 magnet:?xt=urn:btih:0F31B1E0FB86D09AAB5BACE14C7D3363570E8BDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +473,8 @@ magnet:?xt=urn:btih:0F31B1E0FB86D09AAB5BACE14C7D3363570E8BDA
 magnet:?xt=urn:btih:1F22106BECE6D8CBC0B9413CFE61F7C14F56A9A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +498,8 @@ magnet:?xt=urn:btih:1F22106BECE6D8CBC0B9413CFE61F7C14F56A9A4
 ```bash
 magnet:?xt=urn:btih:E904C9D1860B9202F6CAC1A28510F4723159C3F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +525,8 @@ magnet:?xt=urn:btih:E904C9D1860B9202F6CAC1A28510F4723159C3F4
 magnet:?xt=urn:btih:A11B8E7C354E8EEC65D74E03B12592A04D462568
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +550,8 @@ magnet:?xt=urn:btih:A11B8E7C354E8EEC65D74E03B12592A04D462568
 ```bash
 magnet:?xt=urn:btih:5649725B28CFC2FF7277D2ABEDCE7E8FB915F3F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +577,8 @@ magnet:?xt=urn:btih:5649725B28CFC2FF7277D2ABEDCE7E8FB915F3F5
 magnet:?xt=urn:btih:19C71C7853F757EC840522278AB4D21A0E0FCE6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +602,8 @@ magnet:?xt=urn:btih:19C71C7853F757EC840522278AB4D21A0E0FCE6A
 ```bash
 magnet:?xt=urn:btih:E85E336B0B6C2CF44F389F951B446119D2716C41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +629,8 @@ magnet:?xt=urn:btih:E85E336B0B6C2CF44F389F951B446119D2716C41
 magnet:?xt=urn:btih:8164A1CA317A7DF40D61B322BE3F7E9519901A17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +655,8 @@ magnet:?xt=urn:btih:8164A1CA317A7DF40D61B322BE3F7E9519901A17
 ```bash
 magnet:?xt=urn:btih:8DEC3AF4BE314A4A2E2E0F63C40D26070AD112DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,31 +684,7 @@ magnet:?xt=urn:btih:8DEC3AF4BE314A4A2E2E0F63C40D26070AD112DA
 нет
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925287   (541314) от 06.08.2015
-
-Битва на поле Куликовом (2005) DVDRip
-
->>Документалистика и Телепередачи
->>Отечественная история
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541314.jpg" />
-</div>
-
-
-###  Подробнее
-
-"…Безбожный нечестивый ордынский князь Мамай… выступил с огромным войском, желая пленить землю Русскую. Узнал об этом великий князь Дмитрий Иванович, собрал множество воинов и пошел… защитить свои вотчины, за святые церкви и за правую веру христианскую и за всю землю Русскую…"
-(из летописной повести "О побоище на Дону")
-"Я слушаю рокоты сечи (   Читать дальше...   )Производство: РоссияЖанр: ДокументальныйРежиссер: А. МалиновскийПродолжительность: 00:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5240BDA472C6566C9562041FF9E73C277B1CF73
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

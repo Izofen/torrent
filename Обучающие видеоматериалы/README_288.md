@@ -22,6 +22,8 @@ Moscow Business School | MBA Start. Модуль 2. Навыки личной э
 magnet:?xt=urn:btih:8630FDEBFB1A23E2CE0618B68ABA816754E3D253
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Moscow Business School | MBA Start. Модуль 9. Бухгалтерский, 
 ```bash
 magnet:?xt=urn:btih:F395D9D5B0B6B2B421E85D98E8B171F912A9586A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Moscow Business School | MBA Start. Модуль 8. Управление чел�
 magnet:?xt=urn:btih:D0FBC7D083C9ACC32EB3123D3F39FD9F26CC86F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Moscow Business School | MBA Start. Модуль 12. Операционный м
 ```bash
 magnet:?xt=urn:btih:65B52988C6EA71215CED051D0549790CC01723E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Moscow Business School | MBA Start. Модуль 11. Стратегически�
 magnet:?xt=urn:btih:F75386C58CDFD90B2F3FF36F3406725E9B317755
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Moscow Business School | MBA Start. Модуль 14. Информационны�
 ```bash
 magnet:?xt=urn:btih:E0F26B280BA1B5091B41B5EE78904347527EE8A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Moscow Business School | MBA Start. Модуль 10. Стратегически�
 magnet:?xt=urn:btih:77D153140489495251B71208C60002CB2D514B58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Moscow Business School | MBA Start. Модуль 7. Общий маркетин�
 ```bash
 magnet:?xt=urn:btih:B105FFAE5C93FB8956BE28932E5373C9A5F8FBC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Moscow Business School | MBA Start. Модуль 13. Управление изм
 magnet:?xt=urn:btih:9B457FED56D3E1F7F6852F2E0525B70E2258C57F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Moscow Business School | MBA Start. Модуль 5. Финансы в орган
 ```bash
 magnet:?xt=urn:btih:C97769AA03B9F7C8ECBD710659E921D020CE3081
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Moscow Business School | MBA Start. Модуль 3. Общий менеджме�
 magnet:?xt=urn:btih:36A444203A4BC150A821435193FB2F6780A6C706
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Moscow Business School | MBA Start. Модуль 6. Методы исследо�
 ```bash
 magnet:?xt=urn:btih:AD4761365CAE0AD7D0490B8AF4FA955F2AF6FED5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Moscow Business School | MBA Start. Модуль 4. Организационно
 magnet:?xt=urn:btih:9BF05D09182C28A736D8FE1C3DFD26BC1E41C330
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +395,8 @@ PowerShell для тестеров на проникновение (PFPT) - эт
 ```bash
 magnet:?xt=urn:btih:B06F0232AF4E10CAC0A6F4FF1561860A197B859A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +424,8 @@ magnet:?xt=urn:btih:B06F0232AF4E10CAC0A6F4FF1561860A197B859A
 magnet:?xt=urn:btih:DB138B95CE5DD78D10DAE45826833D89582D71B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +449,8 @@ Raf Grassetti | Female Anatomy Tutorial (2019) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:7848A821B42A58BCF54F8837876D8C5995D1FD34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +479,8 @@ Ironskills, Иван Гордынец | Онлайн-курс "Работа с �
 magnet:?xt=urn:btih:75863BA76BD6A56725C6A6818A8C387E77EFB455
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +508,8 @@ The StationX Cyber Security School, Udemy, Nathan House | The Complete Cyber Sec
 magnet:?xt=urn:btih:A014F48B82AF569C6C38A9B94EE2102E1376C239
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +533,8 @@ Udemy, Валерий Жданов | Google Офис (2021) PCRec
 ```bash
 magnet:?xt=urn:btih:8F1A7135ECA93BAA32641F5FBEA515FF1F8634F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +560,8 @@ magnet:?xt=urn:btih:8F1A7135ECA93BAA32641F5FBEA515FF1F8634F8
 ```bash
 magnet:?xt=urn:btih:CCDF74DEBEC42B295C9478480068F9506EE68800
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +589,8 @@ Anastasia Opara | Houdini Procedural Lake Houses Volume 1 (2016) PCRec [En, Ru]
 magnet:?xt=urn:btih:4AA5B90660CB8BB500C1CBD73EC2FF6D6081A90A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +615,8 @@ Udemy, Denis Panjuta | Complete Android 11 Jetpack Masterclass (2021) PCRec [En 
 ```bash
 magnet:?xt=urn:btih:6381F2E5B7ABC29286CB38E7AB69AA7E89A5BE64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +643,8 @@ Udemy, We Secure © Training & Consultancy | The Information Security Masterclas
 ```bash
 magnet:?xt=urn:btih:07553E4F6DDE41F6FAC08A5A4087EC4B7271733A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +673,8 @@ Lu Dongjun | Fish & Portrait Study (2016) PCRec
 magnet:?xt=urn:btih:B90B0E2D651263B5FC5558C6D778D132EF15D7D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +700,8 @@ Lu Dongjun | Stone Study (2016) PCRec
 ```bash
 magnet:?xt=urn:btih:88CADF23CC46954A91D19CE56B44C2CDC406492F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -679,6 +729,8 @@ Lu Dongjun | Glass Study (2016) PCRec
 ```bash
 magnet:?xt=urn:btih:B2AC0825DAC33F6315D7921C4108FFB70DEC1DB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

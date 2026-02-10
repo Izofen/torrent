@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:3B976B7E46EEBE7AD83ACE0810ADD9EA867661EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:3B976B7E46EEBE7AD83ACE0810ADD9EA867661EA
 ```bash
 magnet:?xt=urn:btih:B19F567F2C72CBBE19776321D1FA524FD175EF88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:B19F567F2C72CBBE19776321D1FA524FD175EF88
 magnet:?xt=urn:btih:5B2BE254164B3F668C2B798A66A782643DF5CDC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:5B2BE254164B3F668C2B798A66A782643DF5CDC1
 ```bash
 magnet:?xt=urn:btih:2F103FE3A59CE73D3A99B0F34C8C6E80BF243C03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:2F103FE3A59CE73D3A99B0F34C8C6E80BF243C03
 magnet:?xt=urn:btih:20F16A0306FAF93684C620347CFB42ED7F27BAB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:20F16A0306FAF93684C620347CFB42ED7F27BAB6
 ```bash
 magnet:?xt=urn:btih:7BB74F76E41D40F0FAF4FBFED0D9EB05BD4A93B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:7BB74F76E41D40F0FAF4FBFED0D9EB05BD4A93B7
 magnet:?xt=urn:btih:5B8814BC775E01B5B54B55AC0EE8A9F0DDE78E6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:5B8814BC775E01B5B54B55AC0EE8A9F0DDE78E6F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ magnet:?xt=urn:btih:5B8814BC775E01B5B54B55AC0EE8A9F0DDE78E6F
 magnet:?xt=urn:btih:31FFF398B862D3F7E2EB6A585CA66EF18452D005
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ magnet:?xt=urn:btih:31FFF398B862D3F7E2EB6A585CA66EF18452D005
 ```bash
 magnet:?xt=urn:btih:85CF6F204011C39D9FA6758DFC46F0B46E656C00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ magnet:?xt=urn:btih:85CF6F204011C39D9FA6758DFC46F0B46E656C00
 magnet:?xt=urn:btih:E61067E10BD4B38E7B2CA8DF8CAE8AB4F936DD97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ magnet:?xt=urn:btih:E61067E10BD4B38E7B2CA8DF8CAE8AB4F936DD97
 ```bash
 magnet:?xt=urn:btih:92E9A230B089C4C0A53C53B9A393CB6D70CE4842
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ magnet:?xt=urn:btih:92E9A230B089C4C0A53C53B9A393CB6D70CE4842
 magnet:?xt=urn:btih:39735ADDB1A9C04EE7E2D0C89AA4000B476094C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ magnet:?xt=urn:btih:39735ADDB1A9C04EE7E2D0C89AA4000B476094C0
 ```bash
 magnet:?xt=urn:btih:AC9BF41CDC90B06DFB17D0DE5679C6FF58AC7DB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Сборная блатная команда шансона (2001) [FLAC|Lo
 magnet:?xt=urn:btih:B86602E3D463BF621282DB18CF2C5A20E45C46B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ magnet:?xt=urn:btih:B86602E3D463BF621282DB18CF2C5A20E45C46B9
 ```bash
 magnet:?xt=urn:btih:6424C89E8052C49E56FC2814E1E30BEC8C6EC919
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ magnet:?xt=urn:btih:6424C89E8052C49E56FC2814E1E30BEC8C6EC919
 magnet:?xt=urn:btih:2FC77F57797ED82EA81E016F4E54F66961AFD4A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ VA - Не печалься, любимая... (2006) [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:A01EF5ABC9396EB2FF53B3C5EA1F71D9BC82138B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ magnet:?xt=urn:btih:A01EF5ABC9396EB2FF53B3C5EA1F71D9BC82138B
 magnet:?xt=urn:btih:9F00418E972262BFD6F0682924CC3B43733ABCB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ magnet:?xt=urn:btih:9F00418E972262BFD6F0682924CC3B43733ABCB4
 ```bash
 magnet:?xt=urn:btih:4BD156EFE8D139A003C64A59E3C0705DFF7258DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ magnet:?xt=urn:btih:4BD156EFE8D139A003C64A59E3C0705DFF7258DF
 magnet:?xt=urn:btih:53B8ED3D9FF08D3CA2F21943F3B0143B4E4569AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ magnet:?xt=urn:btih:53B8ED3D9FF08D3CA2F21943F3B0143B4E4569AA
 ```bash
 magnet:?xt=urn:btih:49A4BA2AA4849AD114824716E498E7712334F87D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ magnet:?xt=urn:btih:49A4BA2AA4849AD114824716E498E7712334F87D
 magnet:?xt=urn:btih:698F9680955C78CD8D50AFA647BA5C395ED95C8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ magnet:?xt=urn:btih:698F9680955C78CD8D50AFA647BA5C395ED95C8E
 ```bash
 magnet:?xt=urn:btih:B1C994382D4C471253ACE9B4F94927413B75CBF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ VA - Шансон года: часть 1 - 2 (2003) [FLAC|Lossless|tracks + .cue
 magnet:?xt=urn:btih:76B014BF5700216ADE26A5B308D57D4C4CB1A635
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ magnet:?xt=urn:btih:76B014BF5700216ADE26A5B308D57D4C4CB1A635
 ```bash
 magnet:?xt=urn:btih:3FB470A53D0160A03EBD74337D32C7900C4BB021
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

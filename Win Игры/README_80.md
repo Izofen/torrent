@@ -19,6 +19,8 @@ Lizards Must Die 2 / Русы против ящеров 2 (2025) [Ru/Multi] (bui
 magnet:?xt=urn:btih:D76B7A19ED32294CB1CA64769794C31251DA1347
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NINJA GAIDEN 2 Black (2025) [Multi] (1.0.7.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:907F2AA78F84959EF7FE4430F83EB16DBC319F32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Enchanted Stories: Mystic Woods / Зачарованные Истории: Та�
 magnet:?xt=urn:btih:99351FD8A958F2BBB4321303A5B9A85A73B5EA37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Harmony Chronicles 3: Cat Out of the Bag / Хроники Гармонии 3: К
 ```bash
 magnet:?xt=urn:btih:89F4C88CA67C0A60A111A2F80CC28B6E233D58C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Ai Limit (2025) [Ru/Multi] (build 17884331/dlc) Repack seleZen [Deluxe Edition]
 magnet:?xt=urn:btih:33C5B24B42B0A46F04BE01A1AF7E951202AD464F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Pillars of Eternity (2015) [Ru/Multi] (3.8.0.87535/dlc) Repack Let'sРlay [Defin
 ```bash
 magnet:?xt=urn:btih:7F0BDD588A5976E9DBD6EBBF74FAFF36BE3B6236
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Grit and Valor - 1949 (2025) [Ru/Multi] (1.0.120/dlc) Repack FitGirl [Resistance
 magnet:?xt=urn:btih:31558EC268AD493A6CC754AC00A57AD1FA98BDD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Gal Guardians: Servants of the Dark (2025) [Multi] (1.1.2/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:E66285476E2CFE9715A4C5B7D15A2F7FF097B328
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ I Am Future: Cozy Apocalypse Survival (2024) [Ru/Multi] (1.2.0.009r) Repack Let'
 magnet:?xt=urn:btih:C393CFFCDBF70BD9D8781D048F953EC8AC27DDBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Nordhold - это захватывающая Tower Defense игра, идеал�
 ```bash
 magnet:?xt=urn:btih:59613E8A9C1236DC072DB1EF3BBB291FE0BCD921
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Ryse: Son of Rome рассказывает историю Мариуса Тит�
 magnet:?xt=urn:btih:7EF1262D39343D23F9F31747ECD084EA2B064924
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ MOOD - это мрачная визуальная новелла, с элеме�
 ```bash
 magnet:?xt=urn:btih:9C30F8A480F891CB8BF5CF40A45C4083D149948F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ KARMA: The Dark World (2025) [Ru/Multi] (build 17844576) Repack seleZen
 magnet:?xt=urn:btih:B76CB151148D23A369561A8BE74DC8A5B6BF9A1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (1.40.14/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:E734B0654F09CD45A087E7000BE1D2144C3E366F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Spirit City: Lofi Sessions - это не совсем обычная адвен�
 magnet:?xt=urn:btih:18ED44995B18F68B67752C52C594CCBA9DDCD3FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Them and Us - классический хоррор на выживание с �
 ```bash
 magnet:?xt=urn:btih:AF802C775E8E466F30F9D45E562571AA17069179
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Total Conflict: Resistance (2023) [Ru/Multi] (0.95.0) Repack seleZen [Early Acce
 magnet:?xt=urn:btih:A0C0EAB9DDF7AC1354A5376A5AE1397A3B752C41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Among Us (2018) [Ru/Multi] (16.0.0i) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:4A8881C6C421140F7821C923C2DEA956E90AC3B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ Device Doctor Simulator 2024 предлагает интерактивный и 
 magnet:?xt=urn:btih:E4AE9FBC106EDF5D85E659A738C781D58E8A6A54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Cities: Skylines предлагает по-новому взглянуть на 
 ```bash
 magnet:?xt=urn:btih:CE6747C5903D307086D8CF967186D6D8AE015D98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Empires of the Undergrowth – это уникальная по своей ме�
 magnet:?xt=urn:btih:ABDC5117B26BC9C8888A9DEE9EC8A7B2999AACFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Far Cry 3: Blood Dragon (2013) [Ru] (1.02) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:CC420CA51DDDDFB0736ACF7A25342AA3214CDD26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Dragon Ball Z: Kakarot – долгожданное продолжение се�
 magnet:?xt=urn:btih:5F39C157B7483CB25C72341B9DE57FBC7463BAA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Device Doctor Simulator 2024 предлагает интерактивный и 
 ```bash
 magnet:?xt=urn:btih:24334CFE125EC1C5A3DAEEB0054F76227F8CD18A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ ENDER MAGNOLIA: Bloom in the Mist (2025) [Ru/Multi] (1.1.1.22380) Repack Let'sР
 magnet:?xt=urn:btih:0640F93B00B41B2E0DA610828CDDAF7D491BF5D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Icebound Secrets: The Frostwood Bane (2025) [Multi] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:74FC73ED536E79D81AEE2AA28AC1A870CA33EB46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

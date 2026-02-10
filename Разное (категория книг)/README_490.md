@@ -1,3 +1,29 @@
+###  Публикация: 1283109   (740195) от 16.02.2019
+
+Krause Publications | 2017 Standard Catalog of World Paper Money. General Issues. 1368-1960 16th Edition (2016) [PDF] [En]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стандартный каталог банкнот мира регулярного выпуска Krause с 1368 по 1961 годы, 16-е издание. Это копия официального электронного каталога Krause. Информация удобно упорядочена по странам и выпускам банкнот, что обеспечивает быстрый поиск. Текущее версия каталога содержит более 12000 изображений банкнот, размещённых на 1328 страницах. Каталог также содержит дополнительную (   Читать дальше...   )Жанр: БонистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AED39BF5F9567436E7EB1E1E188AEC79494E885
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283112   (740196) от 16.02.2019
 
 Krause Publications | 2018 Standard Catalog of World Paper Money. Modern Issues. 1961-Present 24th Edition (2017) [PDF] [En]
@@ -18,6 +44,8 @@ Krause Publications | 2018 Standard Catalog of World Paper Money. Modern Issues.
 ```bash
 magnet:?xt=urn:btih:27318ACF24809EB44305338169DAECA98124990D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:27318ACF24809EB44305338169DAECA98124990D
 ```bash
 magnet:?xt=urn:btih:3B17BA9083C066465CAFD2CC4C665584CB839E5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:3B17BA9083C066465CAFD2CC4C665584CB839E5C
 magnet:?xt=urn:btih:2632780D27BE0A5C8454F42975BCBB586D6E5C2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:2632780D27BE0A5C8454F42975BCBB586D6E5C2E
 ```bash
 magnet:?xt=urn:btih:5EC4867B86853ADA746C70A57A4B49932D633B9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:5EC4867B86853ADA746C70A57A4B49932D633B9E
 magnet:?xt=urn:btih:F6A732153A3E04F0B7898CB1D11B2D9938792863
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:F6A732153A3E04F0B7898CB1D11B2D9938792863
 ```bash
 magnet:?xt=urn:btih:F37CD886376C0054E44F88445B9FE48ED8BF50FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:F37CD886376C0054E44F88445B9FE48ED8BF50FB
 magnet:?xt=urn:btih:60602B2EB86E4623FCF31797ED53C2EFC2DAD571
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:60602B2EB86E4623FCF31797ED53C2EFC2DAD571
 ```bash
 magnet:?xt=urn:btih:3A5767D0F8399C0607E4FE507DFDA1086ED78B09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:3A5767D0F8399C0607E4FE507DFDA1086ED78B09
 magnet:?xt=urn:btih:193E85EB56043EA9805F790065FC5EEC958D5F06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:193E85EB56043EA9805F790065FC5EEC958D5F06
 ```bash
 magnet:?xt=urn:btih:CD1CF9EB350D69AD9D77A8F1A876CADAA8E20AE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:CD1CF9EB350D69AD9D77A8F1A876CADAA8E20AE8
 magnet:?xt=urn:btih:D67F0A8F39E6C1C304BBE62E536C286676095C29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:D67F0A8F39E6C1C304BBE62E536C286676095C29
 magnet:?xt=urn:btih:3D161EA8C0043FB45D21DC336DC2BACAEF321AAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:3D161EA8C0043FB45D21DC336DC2BACAEF321AAB
 ```bash
 magnet:?xt=urn:btih:86B20ECDBD7FE562DF2B6CE115F69030C60C667E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:86B20ECDBD7FE562DF2B6CE115F69030C60C667E
 magnet:?xt=urn:btih:EF09BD608373F0A7C41792BA16578015F6320EB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:EF09BD608373F0A7C41792BA16578015F6320EB6
 ```bash
 magnet:?xt=urn:btih:24625B6BCFD61C860711E1CCB8C4841664EFC6CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:24625B6BCFD61C860711E1CCB8C4841664EFC6CA
 magnet:?xt=urn:btih:CDF86B45AD0CC41280A1E517084D9551F9EEAB7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:CDF86B45AD0CC41280A1E517084D9551F9EEAB7D
 ```bash
 magnet:?xt=urn:btih:E1FE80C2E218E4D59E1952099A999329ED313854
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:E1FE80C2E218E4D59E1952099A999329ED313854
 magnet:?xt=urn:btih:DCFE8B1C905D6BFFF888F4F9DA2E3A6416924DC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:DCFE8B1C905D6BFFF888F4F9DA2E3A6416924DC5
 magnet:?xt=urn:btih:080414C3851DD0269D42E2DBBDE969BCE538573A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:080414C3851DD0269D42E2DBBDE969BCE538573A
 ```bash
 magnet:?xt=urn:btih:0B6A08C463DDB865F929D1D38F1A0F8A9F3B5370
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:0B6A08C463DDB865F929D1D38F1A0F8A9F3B5370
 magnet:?xt=urn:btih:0B000DE91443DF8FA515AF257A1A777349620B5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +598,8 @@ magnet:?xt=urn:btih:0B000DE91443DF8FA515AF257A1A777349620B5E
 ```bash
 magnet:?xt=urn:btih:E79C1C668BE12D44DA102FB0A9E2BE830646CCB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:E79C1C668BE12D44DA102FB0A9E2BE830646CCB3
 magnet:?xt=urn:btih:D9E8CA6912927C844541D7BFE7DE0A39B3262799
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +651,8 @@ magnet:?xt=urn:btih:D9E8CA6912927C844541D7BFE7DE0A39B3262799
 ```bash
 magnet:?xt=urn:btih:67C99CC4BF382C9312FFAB7427E3DEA43709DC1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,29 +679,7 @@ magnet:?xt=urn:btih:67C99CC4BF382C9312FFAB7427E3DEA43709DC1E
 magnet:?xt=urn:btih:04A317B287BEBEE5ECAE6FD1F0CC261D6691AC57
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217199   (741934) от 05.04.2018
-
-Виктор Мазуркевич | Психология водительского мастерства (2018) [FB2]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741934.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге подробно описана методика психологической подготовки и самоподготовки учащихся автошкол к уверенному, безопасному, спокойному и культурному вождению автомобиля. Книга включает в себя лекционный материал, тесты и упражнения, мнемотехники, рекомендации по развитию необходимых водителю психофизиологических качеств, а также приемы психологической саморегуляции. (   Читать дальше...   )Жанр: СаморазвитиеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7089061981F5F3EFD4BB4119E6BAA3D5CF353F3
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

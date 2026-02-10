@@ -22,6 +22,8 @@ Joe Bonamassa - Live At The Sydney Opera House (2019) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:986D487E7D86E25EE344F4FE80D540359585C6C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ VA - ЕвроХит Топ 40 Europa Plus 25.10.2019 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:DE56C7F64AE1B5ECFCECA48CE906315332D80C7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Uta Kata | Ута-Ката [2004, TV, 12 эп. + 1 OVA] DVDRip 576p 10bit raw
 ```bash
 magnet:?xt=urn:btih:3EBF663C01513CDC0489CC0B5FD8EF2A90A6444B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ People's Choice - We Got The Rhythm (1976) LP [MP3|320 Kbps] <Disco, Funk>
 magnet:?xt=urn:btih:1C14EBCB8AF0E800C29DE73EF3203707780E5CE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ magnet:?xt=urn:btih:1C14EBCB8AF0E800C29DE73EF3203707780E5CE0
 magnet:?xt=urn:btih:5B6BC7B8A37F789A62B939C80819353429E579A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ AudioFinder — программа для управления вашей фон
 ```bash
 magnet:?xt=urn:btih:C3EA410E85234950981FDBCD3C3477E412FCA29F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -179,6 +191,8 @@ magnet:?xt=urn:btih:C3EA410E85234950981FDBCD3C3477E412FCA29F
 magnet:?xt=urn:btih:3B00494F84ECAF669A80164CA9B348BF505C33E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ VA - Disco Heaven (2018) [MP3|320 Kbps] <Disco, Nu Disco>
 ```bash
 magnet:?xt=urn:btih:31401E6E10B4B83CEF4F2445E3E93024CB9573DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -233,6 +249,8 @@ PhotoMill X (aka Reformator) помогает Вам преобразовать 
 magnet:?xt=urn:btih:5501E237D10FE212BABDB652FBBB8993F825FC95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -257,6 +275,8 @@ Vivaldi 2.1.1337.47 Portable by Cento8 [Ru/En]
 magnet:?xt=urn:btih:C713E70C3DCA850E6BC6FA1591050CFD2CE38B46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ magnet:?xt=urn:btih:C713E70C3DCA850E6BC6FA1591050CFD2CE38B46
 ```bash
 magnet:?xt=urn:btih:2B35119E415A48CD0360DDCEEE6C4185ADE38644
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +330,8 @@ Pia Mora - ... Perchè no?... (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Jazz>
 magnet:?xt=urn:btih:90B08D938AC93360EB60C51CF4270BE193C5E4F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +359,8 @@ Eelke Kleijn - Maschine (2018) DAYS like NIGHTS [FLAC|Lossless|WEB-DL|tracks] <P
 magnet:?xt=urn:btih:955E0ACEF4F07BAC6F7973C2219DE66D4DED48A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +384,8 @@ magnet:?xt=urn:btih:955E0ACEF4F07BAC6F7973C2219DE66D4DED48A4
 ```bash
 magnet:?xt=urn:btih:3EE46C07B280AED8FF622C5991284F2811A4217D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +414,8 @@ VA - 1​+​1​=​X (2018) Erased Tapes Records [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:0E87DDAE03CDE15878C53E1B74BEC7888E6C8142
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +443,8 @@ magnet:?xt=urn:btih:0E87DDAE03CDE15878C53E1B74BEC7888E6C8142
 magnet:?xt=urn:btih:086A55464B1D6221F98CF3FEE54FD3A1E41C5D5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +468,8 @@ Orion PDF Author - новый и простой способ создания и
 ```bash
 magnet:?xt=urn:btih:A87B1BD27BADB78A9155B58E28CAF775C75495D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +498,8 @@ Melodium - Flumen (2018) Audio Dregs Recordings [FLAC|Lossless|WEB-DL|tracks] <I
 magnet:?xt=urn:btih:AD8E0CB443A227C43D9C97705E1E810DDA1CAC95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +523,8 @@ VoodooPad 5 v5.2.3 [Multi]
 ```bash
 magnet:?xt=urn:btih:BE6F05117B65B33AB7472128B17DAAEFE59C46D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +553,8 @@ VA - Ambient Kandi (2018) [MP3|320 Kbps] <Ambient, Downtempo, Chillout>
 magnet:?xt=urn:btih:845B36E26926D9776B2DB91511A999CF5A5E359F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +581,8 @@ VA - Ori Uplift - Uplifting Only 300 (2018) [MP3|320 Kbps] <Trance,Uplifting Tra
 ```bash
 magnet:?xt=urn:btih:DEB4DAEFB0FBCD2BCF9A45EE36C0B4349925FC85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +611,8 @@ VA - There Is Soul In My House - Purple Music All Stars Vol.17 (2018) [MP3|320 K
 magnet:?xt=urn:btih:8058825873754650E49FD596BDBDD50B0F898E99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +639,8 @@ iShowU Studio предоставляет эффективные инструме
 magnet:?xt=urn:btih:2B1C93FA7F740616EF9CA18A1F4703786204FCFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +666,8 @@ magnet:?xt=urn:btih:2B1C93FA7F740616EF9CA18A1F4703786204FCFD
 magnet:?xt=urn:btih:7A2B17AC74D56509E7E5EF51D1DC21581FA2C8C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +692,8 @@ magnet:?xt=urn:btih:7A2B17AC74D56509E7E5EF51D1DC21581FA2C8C3
 magnet:?xt=urn:btih:2FD2CED7D618AB0802AA5DF079EDF32ECC9DE53C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +717,8 @@ PicPick - приложение, объединяющее в себе возмо�
 ```bash
 magnet:?xt=urn:btih:275096C986EBC8787342C47E7F5CD09F804D7E0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

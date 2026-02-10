@@ -1,27 +1,3 @@
-###  Публикация: 1442418   (1030078) от 20.02.2021
-
-Душа / Soul (2020) WEB-DL [H.265/2160p] [4K, HDR, 10-bit] [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Школьный учитель музыки Джо Гарднер умер. Но поскольку незадолго до смерти он отыграл концерт своей мечты и получил предложение играть в крутейшем джаз-бэнде на постоянной основе, Джо с таким положением дел категорически не согласен. Чудом и настырностью он сбегает с травелатора, ведущего прямиком в Великое После, в Великое Перед – дивное местечко, где взращиваются (   Читать дальше...   )Производство: США, Walt Disney Pictures, Pixar Animation StudiosЖанр: Мультфильм, фэнтези, комедия, семейный, музыка, полнометражныйРежиссер: Пит Доктер, Кемп ПауэрсАктеры: Джейми Фокс, Тина Фей, Филисия Рашад, Давид Диггс, Анджела Бассетт, Грэм Нортон, Рэйчел Хаус, Алиси Брага, Ричард Айоади, Доннел Роулингс, Амир-Халиб Томпсон, Марго Холл, Сакина Джэффри, Фортун ФеймстерПеревод: Многоголосый закадровый (HDRezka Studio)Язык озвучки: Русский, украинский, английскийСубтитры: русские (Forced, Full), украинские (Forced, Full), английские (Full, SDH)Продолжительность: 01:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A62AA070CE24C02AFE419E03A565E06DEDF5EF88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390275   (1030798) от 17.02.2021
 
 Легенда о Хэй / Легенда о Ло Сяохэе / Luo Xiao Hei zhan ji / The Legend of Hei / The Legend of Luo Xiaohei (2019) WEB-DL [H.264/1080p-LQ] [VO]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:A62AA070CE24C02AFE419E03A565E06DEDF5EF88
 ```bash
 magnet:?xt=urn:btih:17561B7F104252ACA030C5C9A43930EFDBBC8BAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:17561B7F104252ACA030C5C9A43930EFDBBC8BAD
 magnet:?xt=urn:btih:4C7851838953AAEBB4ABB71E95D8E2AEE2FC1FC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:4C7851838953AAEBB4ABB71E95D8E2AEE2FC1FC1
 ```bash
 magnet:?xt=urn:btih:E9133C3ED78104AEC49F4F7335EA6A357795B9F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:E9133C3ED78104AEC49F4F7335EA6A357795B9F7
 magnet:?xt=urn:btih:A5C88A9C914566B37CC064C94AADFA4E748006E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:A5C88A9C914566B37CC064C94AADFA4E748006E0
 ```bash
 magnet:?xt=urn:btih:03E95C56CE841F753CAA59680AA7689D52E8196F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:03E95C56CE841F753CAA59680AA7689D52E8196F
 magnet:?xt=urn:btih:24230B035FFF0A9110D672E83237CCB34DDE5FEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:24230B035FFF0A9110D672E83237CCB34DDE5FEC
 ```bash
 magnet:?xt=urn:btih:C3FF3615628BE4AB66A253F0A8705B020F36E531
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:C3FF3615628BE4AB66A253F0A8705B020F36E531
 magnet:?xt=urn:btih:499FB6B55038382B28B03BEB181F5B27AC23C67E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ magnet:?xt=urn:btih:499FB6B55038382B28B03BEB181F5B27AC23C67E
 ```bash
 magnet:?xt=urn:btih:3822CC771BB18F80A5734D66DB3340A654798AE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:3822CC771BB18F80A5734D66DB3340A654798AE4
 magnet:?xt=urn:btih:3FE1395887245770B454A35978C1F27B3773C772
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ magnet:?xt=urn:btih:3FE1395887245770B454A35978C1F27B3773C772
 ```bash
 magnet:?xt=urn:btih:E53923CE781B295F6EEA56E9C91E215FDAADB621
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:E53923CE781B295F6EEA56E9C91E215FDAADB621
 magnet:?xt=urn:btih:895DB6E78430761B69AF4986D055B1C7874A7554
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ magnet:?xt=urn:btih:895DB6E78430761B69AF4986D055B1C7874A7554
 ```bash
 magnet:?xt=urn:btih:150198FB6F93B674C90FF1824D57CB5CFADFA0E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ magnet:?xt=urn:btih:150198FB6F93B674C90FF1824D57CB5CFADFA0E5
 magnet:?xt=urn:btih:F3F241D227AB33FD8E09E975F4DE3DE1C37C6FAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ magnet:?xt=urn:btih:F3F241D227AB33FD8E09E975F4DE3DE1C37C6FAE
 ```bash
 magnet:?xt=urn:btih:3343333D103799273D8A147D4741DBF51F7377DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ magnet:?xt=urn:btih:3343333D103799273D8A147D4741DBF51F7377DC
 magnet:?xt=urn:btih:FB6A4BC61CFD88E40346F567A9A14185EA353E23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ magnet:?xt=urn:btih:FB6A4BC61CFD88E40346F567A9A14185EA353E23
 ```bash
 magnet:?xt=urn:btih:9FB68B4AFF06B4BC5DA73BE34EF0EA436355D2A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ magnet:?xt=urn:btih:9FB68B4AFF06B4BC5DA73BE34EF0EA436355D2A8
 magnet:?xt=urn:btih:840718CA50106F42E52DB8614BBDF7416A017EFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ magnet:?xt=urn:btih:840718CA50106F42E52DB8614BBDF7416A017EFA
 ```bash
 magnet:?xt=urn:btih:33E75664193C35AD6A589834A261E48EC1BD8254
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ magnet:?xt=urn:btih:33E75664193C35AD6A589834A261E48EC1BD8254
 magnet:?xt=urn:btih:09C9D981C1FE239ED8034E9F8263BE38A5DF0327
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ magnet:?xt=urn:btih:09C9D981C1FE239ED8034E9F8263BE38A5DF0327
 ```bash
 magnet:?xt=urn:btih:6D87E410AE27D93DDA7DA23892849720D4F42C85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ magnet:?xt=urn:btih:6D87E410AE27D93DDA7DA23892849720D4F42C85
 magnet:?xt=urn:btih:03AAB34E22FE4C609E9AD233E9571C8043F9388D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ magnet:?xt=urn:btih:03AAB34E22FE4C609E9AD233E9571C8043F9388D
 ```bash
 magnet:?xt=urn:btih:F83B6AB77856F9D2150AC05216A0CD3D9DFAEE31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +617,8 @@ magnet:?xt=urn:btih:F83B6AB77856F9D2150AC05216A0CD3D9DFAEE31
 magnet:?xt=urn:btih:878BC80E4C612088DCEADA6F2A56097472E774DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +642,34 @@ magnet:?xt=urn:btih:878BC80E4C612088DCEADA6F2A56097472E774DE
 ```bash
 magnet:?xt=urn:btih:638FAC0C95DD0BAC6A926F30459E45F651AECD8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613654   (1039221) от 19.02.2023
+
+Кот в сапогах 2: Последнее желание / Puss in Boots: The Last Wish (2022) BDRemux [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Промотав восемь жизней из девяти и до смерти испугавшись пришедшего за ним волка-охотника за головами, Кот в сапогах внимает совету врача и заселяется в дом местной кошатницы. Там он смиряется с установленными порядками, отращивает бороду и теряет тягу к подвигам и приключениям, но только до тех пор, пока не узнаёт о волшебной карте, которая указывает путь к где-то (   Читать дальше...   )Производство: США, Япония / Dentsu, DreamWorks Animation, Pacific Data Images (PDI)Жанр: мультфильм, комедия, приключения, фэнтезиРежиссер: Джоэль Кроуфорд, Хануэль МеркадоАктеры: Антонио Бандерас, Сальма Хайек, Харви Гильен, Флоренс Пью, Джон Малэйни, Вагнер Моура, Рэй Уинстон, Самсон Каё, Оливия Колман, Давайн Джой РэндольфПеревод: Дублированный (Red Head Sound)Язык озвучки: русский, английский, испанский, французскийСубтитры: Английские (PGS), испанские (PGS), французские (PGS)Продолжительность: 01:42:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F69CC7150E51371D7DB9109A08617DDBBA606F6
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:150393F794C39F808ACACDA6BDE3D0D5D55C12E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Vir Varius Projects - Околесица: Русский шансон #2 (2025) 
 ```bash
 magnet:?xt=urn:btih:EFED020230EADB802923DD3345CCD0F6ABAA104F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Vir Varius Projects - Небо в решку: Русский шансон #1 (20
 magnet:?xt=urn:btih:62E1B6B3EB27ABDCB4F1EF63FB5BD72E158E4B79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Шансон премьера 2025 декабрь (Новые песни. �
 ```bash
 magnet:?xt=urn:btih:97DF09C0FA9AAB24BDD5A1F301F80E99ADD6B8BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Сентиментальный шансон, Часть 3 (2025) [FLAC|Loss
 magnet:?xt=urn:btih:F70CC09E2D98C6DD6356BF9DAB307C3E3D2FB712
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Русская 30-ка хитов 18 (Новые русские песни)
 ```bash
 magnet:?xt=urn:btih:3E413C574666523B0199D151E117865C98FBE22C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Новые хитовые песни 2025, Часть 12 (2025) [FLAC|Lossl
 magnet:?xt=urn:btih:015F1CE00C16D7842C5CB00A5F2207763B0D8BBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:015F1CE00C16D7842C5CB00A5F2207763B0D8BBF
 ```bash
 magnet:?xt=urn:btih:11FA01BEA973583C26270C68D60034E15705DE51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ magnet:?xt=urn:btih:11FA01BEA973583C26270C68D60034E15705DE51
 magnet:?xt=urn:btih:72504FD1D2F7F2A39E351F6CEFBE00DB8644C031
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ magnet:?xt=urn:btih:72504FD1D2F7F2A39E351F6CEFBE00DB8644C031
 ```bash
 magnet:?xt=urn:btih:E05826E7E247FA374695020203284ABE57E8C1E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ magnet:?xt=urn:btih:E05826E7E247FA374695020203284ABE57E8C1E1
 magnet:?xt=urn:btih:CE569480341FFAF30BB8F35E7EEF41A96469522F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - 50 песен радио шансон, Часть 9 (2025) [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:C96046D459E59B196408773EB906451424AFA57F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Шансон премьера 2025 (Лучшие песни) (2025) [FLAC|L
 magnet:?xt=urn:btih:41BC055AEFDD3F6423931D9687EB93F5B0E7D496
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Шансон новое 2026 (2026) [FLAC|Lossless|WEB-DL|tracks] <Шанс
 ```bash
 magnet:?xt=urn:btih:6F782957A0262D6BE21FFCE5FD14B790E74907D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Дискотека радио шансон (2025) [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:D43641184C3935A08A6F35E2644EE1AF66F9E514
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ magnet:?xt=urn:btih:D43641184C3935A08A6F35E2644EE1AF66F9E514
 ```bash
 magnet:?xt=urn:btih:5B2511B4D4B07170CCEDF0FD4B241699CF42B6BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ magnet:?xt=urn:btih:5B2511B4D4B07170CCEDF0FD4B241699CF42B6BD
 magnet:?xt=urn:btih:F4A2EA9DE02C108B424079AE00628C088DA50D3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ VA - Шансон премьера 2026 январь (Новые песни. Н�
 ```bash
 magnet:?xt=urn:btih:59021A791FC62DB093051732F46549999AE792C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ VA - Самые новые песни о любви 12 (2026) [FLAC|Lossless|WEB
 magnet:?xt=urn:btih:51FD0CE4A05CCD2EE8047D4664B4FE0298AD9617
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +573,8 @@ VA - Русский Шансон_ Сборник крутых песен otKOSTE
 magnet:?xt=urn:btih:C47C700DE72F1A107D37CCA8F2398696C0A2A82E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +601,8 @@ VA - Новые хитовые песни 2026, Часть 1 (2026) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:CB9B2FFA72697C7876A40CB1EE105E4F39D451D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

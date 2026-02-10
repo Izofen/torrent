@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:A44B76F2986582ADE32B19ABE0DC0C38FD021C0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Tanzlokal-Musik - Premium Playlist (int) [a007] (2012-2025) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:05506F0781BE4E29576D9E534C4479BD20C1A77C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ In Mourning - The Immortal (2025) [FLAC|Lossless|image + .cue] <Melodic Death Me
 magnet:?xt=urn:btih:6DF9477E23CF7055163C0941CA5875B246D3D6CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Matadora (mixed by Dj V) (2025) [MP3|320 Kbps] <Club House, Afro House, Ind
 ```bash
 magnet:?xt=urn:btih:5FC2EA1F8B57BFF87D20D6AFD029E49206F7A1F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Tanzlokal-Musik - Premium Playlist (int) [b002] (2012-2025) [MP3|320 Kbps] 
 magnet:?xt=urn:btih:A8CCE8D03052BC4513ED3BF952A0FACEDA34DC68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ magnet:?xt=urn:btih:A8CCE8D03052BC4513ED3BF952A0FACEDA34DC68
 ```bash
 magnet:?xt=urn:btih:D9A9784C7D638D3CA507F2CDD83FBA6E3E740C13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -180,6 +192,8 @@ magnet:?xt=urn:btih:D9A9784C7D638D3CA507F2CDD83FBA6E3E740C13
 magnet:?xt=urn:btih:30500C4D93C624CB8D964F341784D541D2930B23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ iFastZip - Extract RAR & ZIP & 7Z 8.8 [En]
 ```bash
 magnet:?xt=urn:btih:EB259449C17308835DBC74F32BAFE39C361DAD69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -230,6 +246,8 @@ Keratus — современный шрифт без засечек, сочет�
 magnet:?xt=urn:btih:3A72E527FA956349B3A84E323C697D6D1A2D0B08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +274,8 @@ magnet:?xt=urn:btih:3A72E527FA956349B3A84E323C697D6D1A2D0B08
 magnet:?xt=urn:btih:64C7370455132803F3DE2ACC22040BF10D3BC24D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +299,8 @@ Hoshi o Ou Kodomo | Children Who Chase Lost Voices from Deep Below | Ловцы 
 ```bash
 magnet:?xt=urn:btih:AD529F488B8FF530203746DD8B8508AE4EC29C51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +329,8 @@ VA - A Whirlpool Of Melodies (2025) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:676690D8A6020A601C99C174EADF4793DFFDF42B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +355,8 @@ magnet:?xt=urn:btih:676690D8A6020A601C99C174EADF4793DFFDF42B
 magnet:?xt=urn:btih:44F8F41C3824FA4C313948B52100C02A3E9D546E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ magnet:?xt=urn:btih:44F8F41C3824FA4C313948B52100C02A3E9D546E
 ```bash
 magnet:?xt=urn:btih:34090F5E205DB2D08CE9FE26FCF75AC8CA241DBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +408,8 @@ magnet:?xt=urn:btih:34090F5E205DB2D08CE9FE26FCF75AC8CA241DBF
 magnet:?xt=urn:btih:EB82F7C3CF7A99F5915E5C755442D621FFE555ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +434,8 @@ Alvera – Цифровой пульс типографики. Шагните в
 magnet:?xt=urn:btih:A7B2AF698BCA3E5F0557647BF087FFAC6579E2DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ magnet:?xt=urn:btih:A7B2AF698BCA3E5F0557647BF087FFAC6579E2DC
 ```bash
 magnet:?xt=urn:btih:93A1D4564765F1D102B69DA322951F4C9F619CDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +488,8 @@ magnet:?xt=urn:btih:93A1D4564765F1D102B69DA322951F4C9F619CDC
 magnet:?xt=urn:btih:51780FD28BCE41A756FABD45DC2E9CD2CC0D4FB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +516,8 @@ magnet:?xt=urn:btih:51780FD28BCE41A756FABD45DC2E9CD2CC0D4FB5
 magnet:?xt=urn:btih:09BBF025D4EEEAF38FDFC02E0364F8A1AC5C488C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +542,8 @@ magnet:?xt=urn:btih:09BBF025D4EEEAF38FDFC02E0364F8A1AC5C488C
 magnet:?xt=urn:btih:79C8EC81EBA838CDA9E7859C376991F5A53C63B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +567,8 @@ magnet:?xt=urn:btih:79C8EC81EBA838CDA9E7859C376991F5A53C63B7
 ```bash
 magnet:?xt=urn:btih:3E0667EF9F5724412BE5105EB20145022EF418C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +596,8 @@ Sagewold - это современный геометрический шрифт
 magnet:?xt=urn:btih:1EA8D600414484A111281203802DBAED12AEB885
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +621,8 @@ magnet:?xt=urn:btih:1EA8D600414484A111281203802DBAED12AEB885
 ```bash
 magnet:?xt=urn:btih:FB3ABDF0C278F2BCC7F74AC163F1E2E2CACF3241
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +648,8 @@ Audex - это смелый геометрический шрифт с плав�
 ```bash
 magnet:?xt=urn:btih:06721C4358950114EE1AF2E5471C9C4E65AE234C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +678,8 @@ magnet:?xt=urn:btih:06721C4358950114EE1AF2E5471C9C4E65AE234C
 magnet:?xt=urn:btih:2BA6A10421077C7712A7C6B0045FE287DB2E61A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ CD1-3 Nightingale 7:27(   Читать дальше...   )Жанр: Progressive 
 ```bash
 magnet:?xt=urn:btih:AE3AD8439E875A5E3FB8E5E2776FB782F2C66131
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -28,6 +28,8 @@ Driver - Countdown (2012) [MP3|320 кб/с]<Heavy Metal>
 magnet:?xt=urn:btih:DAB7091A60A08ED95309E7E7FED13A985676A3E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -61,6 +63,8 @@ DJ Nike Twist - TranceWave 035 @ GTI Radio (31.05.2012) [MP3|320 кб/с]<Trance
 magnet:?xt=urn:btih:A0BF0EB5EDFBA65D44603A6213195310A896DF90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -84,6 +88,8 @@ magnet:?xt=urn:btih:A0BF0EB5EDFBA65D44603A6213195310A896DF90
 ```bash
 magnet:?xt=urn:btih:88576D9617097363829F4DB91537392C5107BCA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +124,8 @@ DJ Kocmoc - Electro Sensation vol.29 (28.05.2012) [MP3|320 кб/с]<Electro Hous
 magnet:?xt=urn:btih:8916364B38C40CB31355EFC307E517829E2F996B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +149,8 @@ magnet:?xt=urn:btih:8916364B38C40CB31355EFC307E517829E2F996B
 ```bash
 magnet:?xt=urn:btih:E188E0A306D5BDB0BA8609AFCFABE5378A24039D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +183,8 @@ VA - Dash Berlin Top 20 June 2012 (2012)
 magnet:?xt=urn:btih:BF911107156D562EA1FEF91CA4409FEC021FAB35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +213,8 @@ magnet:?xt=urn:btih:BF911107156D562EA1FEF91CA4409FEC021FAB35
 magnet:?xt=urn:btih:DBDD61D18B453514824834EAECF81EC380F4AA24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +239,8 @@ magnet:?xt=urn:btih:DBDD61D18B453514824834EAECF81EC380F4AA24
 magnet:?xt=urn:btih:EE03F526CA4659B54C832308245CA77B2140AEA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +264,8 @@ magnet:?xt=urn:btih:EE03F526CA4659B54C832308245CA77B2140AEA5
 ```bash
 magnet:?xt=urn:btih:091D2CA66BEE96CAE83362B6C3B85A33D652908B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -282,6 +300,8 @@ magnet:?xt=urn:btih:091D2CA66BEE96CAE83362B6C3B85A33D652908B
 magnet:?xt=urn:btih:C6D32CD5B1F73C36999AEDDF2E0630A61D9229FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +325,8 @@ magnet:?xt=urn:btih:C6D32CD5B1F73C36999AEDDF2E0630A61D9229FA
 ```bash
 magnet:?xt=urn:btih:F9A507A5DE41722C858D4FA97B9052E42349AB7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -330,6 +352,8 @@ Manula Dead | S.T.A.L.K.E.R. О дружеской хохме замолвите
 magnet:?xt=urn:btih:9A191DB1FDE1A9CCA54EC017492F76CF7814590C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +378,8 @@ magnet:?xt=urn:btih:9A191DB1FDE1A9CCA54EC017492F76CF7814590C
 ```bash
 magnet:?xt=urn:btih:272A9F3AAC31E7CDC19FB57334AB01A3F408F1B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +409,8 @@ magnet:?xt=urn:btih:272A9F3AAC31E7CDC19FB57334AB01A3F408F1B9
 ```bash
 magnet:?xt=urn:btih:1F530C17EB67AB36C6DDC27689A789AC5C5E2FC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +445,8 @@ Jon Schmidt - Walk in the Woods (1993) [FLAC|Lossless]<New Age, Instrumental>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +472,8 @@ Jon Schmidt - Walk in the Woods (1993) [FLAC|Lossless]<New Age, Instrumental>
 magnet:?xt=urn:btih:05E8EF979301ABFA45BF3617F74E15E881D88C2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +497,8 @@ magnet:?xt=urn:btih:05E8EF979301ABFA45BF3617F74E15E881D88C2B
 ```bash
 magnet:?xt=urn:btih:6995638DF4474DB43421343B721CE1A5BDCEBFB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +532,8 @@ Susana - Brave (2012)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +557,8 @@ Susana - Brave (2012)
 ```bash
 magnet:?xt=urn:btih:C70826DD2D272E53CBFFA77B01AB7851A04A5D4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +584,8 @@ magnet:?xt=urn:btih:C70826DD2D272E53CBFFA77B01AB7851A04A5D4A
 magnet:?xt=urn:btih:17180867EB02DF67D4FAAC72B826A000925B1FC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +610,8 @@ magnet:?xt=urn:btih:17180867EB02DF67D4FAAC72B826A000925B1FC4
 magnet:?xt=urn:btih:4685EF28A6609B3A2B6640B58C976E9FFD50B66B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +635,8 @@ magnet:?xt=urn:btih:4685EF28A6609B3A2B6640B58C976E9FFD50B66B
 ```bash
 magnet:?xt=urn:btih:FBA2FBFBC3BCEFEAD371B8496DC774C1CE8C4907
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +671,8 @@ Lady Gaga - The Monster Ball Tour (Live from N.Y) (2010) [MP3|320 kbps]<Pop, Ele
 magnet:?xt=urn:btih:CA3268F0D6E2D551C5F974B2C80C1E2F0C7C8019
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +696,8 @@ magnet:?xt=urn:btih:CA3268F0D6E2D551C5F974B2C80C1E2F0C7C8019
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -676,6 +724,8 @@ magnet:?xt=urn:btih:CA3268F0D6E2D551C5F974B2C80C1E2F0C7C8019
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -701,6 +751,8 @@ magnet:?xt=urn:btih:CA3268F0D6E2D551C5F974B2C80C1E2F0C7C8019
 ```bash
 magnet:?xt=urn:btih:FAFF3F698B4C4E77424192CFF90CD98D33583718
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

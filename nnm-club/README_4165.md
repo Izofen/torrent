@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:43F17B0A61219675BE0BB630109C651ED7400014
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Dave McKenna - Christmas Ivory (1997) Concord Jazz [FLAC|Lossless|tracks + .cue]
 magnet:?xt=urn:btih:D45C06C13DA1B8885456027C3AEFBF927B9F3676
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:D45C06C13DA1B8885456027C3AEFBF927B9F3676
 ```bash
 magnet:?xt=urn:btih:887622B4BF2C515B006DB2855ECDA74B875A989D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Thelemite - Thelemism (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:10C8F10AC8B5092E624482D33E5AEF082E8A5683
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ Egyptian Blue - A Living Commodity (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <R
 ```bash
 magnet:?xt=urn:btih:67509D5AB1ED30539F6538A815828609F3897311
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ Runemagick - Last Skull Of Humanity (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Dea
 magnet:?xt=urn:btih:FF13B55C74C1FF341F04414FEEA7223F6574235F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +189,8 @@ Lew Tabackin - Tenority (1996) Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard 
 ```bash
 magnet:?xt=urn:btih:F0556FED1B25AD8708B456F19DD1C04143469D85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -205,6 +219,8 @@ Phil Woods & Lew Tabackin - Phil Woods / Lew Tabackin (1980) 1998, Evidence [FLA
 magnet:?xt=urn:btih:643DEF84FE4295813D7D21E1379741EC06C6FF37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ magnet:?xt=urn:btih:643DEF84FE4295813D7D21E1379741EC06C6FF37
 ```bash
 magnet:?xt=urn:btih:BA581FA6DBF75C29F77732C3395D810EF090A421
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +274,8 @@ magnet:?xt=urn:btih:BA581FA6DBF75C29F77732C3395D810EF090A421
 magnet:?xt=urn:btih:2ECF5268904B92C9087EF211788FFF9BC050E8D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ Photo Lab - лаборатория фотоприколов у тебя в ка�
 ```bash
 magnet:?xt=urn:btih:69C57654F7E3B05C158E5563CF14334447BB37EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -306,6 +328,8 @@ magnet:?xt=urn:btih:69C57654F7E3B05C158E5563CF14334447BB37EE
 ```bash
 magnet:?xt=urn:btih:E646AA2B02098637211313D5B23D5E265A0F8FD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +358,8 @@ VA - New Rock Pulse (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:9D121B50D5AE995225116B65808DE20703B27061
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +387,8 @@ magnet:?xt=urn:btih:9D121B50D5AE995225116B65808DE20703B27061
 magnet:?xt=urn:btih:412DB937CD2F36A3E50DED67F26623BF89389B81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +414,8 @@ Photo Lab - лаборатория фотоприколов у тебя в ка�
 magnet:?xt=urn:btih:634B87736E51918CFD6F53D5ABE47711BEE9071D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +440,8 @@ magnet:?xt=urn:btih:634B87736E51918CFD6F53D5ABE47711BEE9071D
 ```bash
 magnet:?xt=urn:btih:9357ECE0CA0791A51172197314B9D4EBC8451C12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +470,8 @@ The Rah Band - Touchdown (Live at The Jazz Café, London, 2022) (2023) [FLAC 24/
 magnet:?xt=urn:btih:2CFE16A7A442C411C8ABE2A6325AAD4D437ECE3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +495,8 @@ magnet:?xt=urn:btih:2CFE16A7A442C411C8ABE2A6325AAD4D437ECE3A
 ```bash
 magnet:?xt=urn:btih:44A1C21EE766218C675B416B754112096E632BF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +525,8 @@ A4 Boom!(   Читать дальше...   )Жанр: Alternative Metal, Nu Meta
 magnet:?xt=urn:btih:6B885BCE2311F1E892EEE8D4BF17C19A95011F47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +553,8 @@ VA - Abora Recordings: Best of 2022 (Mixed by Ori Uplift) (incl. Extended Mixes)
 ```bash
 magnet:?xt=urn:btih:CEB7148ED42A6D344FE3ABF76C295C252700F9EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +583,8 @@ VA - Chilly Ambient Smooth Jazz Lounge Playlist (2023) [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:EBBA409E92D44493C8BC40255E5223FEFC25F49B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +609,8 @@ magnet:?xt=urn:btih:EBBA409E92D44493C8BC40255E5223FEFC25F49B
 ```bash
 magnet:?xt=urn:btih:360F39E4E031FC0B05CFF984F098504B8E044903
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +639,8 @@ Siobhan Donaghy - Revolution In Me (2003) 20th Anniversary Edition, 2023, London
 magnet:?xt=urn:btih:A926792776A8469571A27D3CD45981407F96E796
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +666,8 @@ magnet:?xt=urn:btih:A926792776A8469571A27D3CD45981407F96E796
 magnet:?xt=urn:btih:1102D866AF5C384AA524B6B6C0321AB7F748BD52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +692,8 @@ magnet:?xt=urn:btih:1102D866AF5C384AA524B6B6C0321AB7F748BD52
 magnet:?xt=urn:btih:903B92144C311703EDAE0D237BD959FB02CD205A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +717,8 @@ magnet:?xt=urn:btih:903B92144C311703EDAE0D237BD959FB02CD205A
 ```bash
 magnet:?xt=urn:btih:E9899C08BCCD4B08BA66042F55874E6E0FB45EEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

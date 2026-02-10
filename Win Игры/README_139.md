@@ -19,6 +19,8 @@ Police Simulator: Patrol Officers - симулятор полицейского,
 magnet:?xt=urn:btih:DD13CCA995801610BFDB48B69D773E2DE4CC76B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ RoboCop: Rogue City (2023) [Ru/Multi] (1.6.0.0/dlc) Repack Other s [Alex Murphy 
 ```bash
 magnet:?xt=urn:btih:BE59C3CD95A655EC8A39E8A1757A5524045623F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Combat Mission Shock Force 2 – заключительная часть в пр
 magnet:?xt=urn:btih:9FA950EFAB205E3B875FFE80CF92CB067BA104DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ HellO — это крупнейшая компания по поставкам �
 ```bash
 magnet:?xt=urn:btih:D609F99572FA30B48F5E8E1CA433CA1FC7F1AD30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Drova - Forsaken Kin - это пиксельное экшен-RPG, вдохно�
 magnet:?xt=urn:btih:AB16FC2E37F0CA1500C758F3F7AAF8D65CF95F1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Starfield открывает новую главу в игровой вселе�
 ```bash
 magnet:?xt=urn:btih:A512ADF4E8AD69C9FA489373924C114A1E542445
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Elasto Mania II (2017) [En] (1.02) License GOG
 magnet:?xt=urn:btih:C68754FBFC98053E8D2C96BC963D3A8645665397
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Internet Cafe & Supermarket Simulator 2024 (2024) [Ru/Multi] (1.0.15) Repack Fit
 ```bash
 magnet:?xt=urn:btih:CB96FE0E0EE8953BCACBD3B369FB61CC4E46E896
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Portal 2 (2011) [Ru/Multi] (Build 14822445) Repack Other s
 magnet:?xt=urn:btih:C3A27C45950FA4EC1301EA74F211630C32402991
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Edge of Sanity - психологический хоррор на выживан
 ```bash
 magnet:?xt=urn:btih:523D78B7871A42A5467117C16073E7F0FD311B6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Kitten Burst - это сюрреалистичная гоночная игра, 
 magnet:?xt=urn:btih:B6FFC8C38B295A55461A3BE2DB7E0C82FB9E9BA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Pirates Journey (2024) [Ru/Multi] (0.1.0.6) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7F7590FA88EEDB58472CF4E2F3DDEDF87DA92843
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Game Builder Tycoon (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:FF6CEA449EBC5BD9EBEE3CDFDE03C8EE10C638A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ SteamWorld Build является спин-оффом франшизы Стим�
 ```bash
 magnet:?xt=urn:btih:275EF07E7FC8F33F9B754B7ACD5150DB9FB58CE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Evil West (2022) [Ru/Multi] (1.0.5/dlc) Repack Other s
 magnet:?xt=urn:btih:82CA320879F963DA2E3F4C55170C35C2598F40BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ SteamWorld Heist II (2) (2024) [Ru/Multi] (96730) License GOG
 ```bash
 magnet:?xt=urn:btih:D4AD7B755960CEA481ECA626EEAF5EEF540BAF0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Soulbind: Tales Of The Underworld - экшн-платформер, которы�
 magnet:?xt=urn:btih:E4C1EC5590AF9742238E846042EDD1DD49073320
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Portal - игра от Valve для одного игрока, действие 
 ```bash
 magnet:?xt=urn:btih:AF023E1CB907EE3E54C8B7CE78749E37D53AA80B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Super Mario Party Jamboree (2024) [Ru/Multi] (1.1.0) Repack FitGirl
 magnet:?xt=urn:btih:0DA3D748E353F2DECCF3D2537137F3655E8673BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Shogun Showdown предлагает испытать свои навыки в �
 ```bash
 magnet:?xt=urn:btih:4E6D929925CCB566B2E54C73D538277F5987C67C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Retail Company Simulator помещает вас в гущу розничног�
 magnet:?xt=urn:btih:9BF4303BC8F8A5DFA1587359C80D18D8D7C8BA1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Wooden Sen'SeY (2013) [Multi] (4.2.2.12621) Scene PROPHET
 ```bash
 magnet:?xt=urn:btih:EBA97EAE0C99E14C041D1A3376D4089948F3BBB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ eckbreak - динамичный шутер, где стиль и безумие 
 magnet:?xt=urn:btih:8024D6E580661D941BC4E1EA44C941E737A38C98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Pool Cleaning Simulator предлагает в увлекательной и н
 ```bash
 magnet:?xt=urn:btih:BB94C0C70DF80BD1C2AF27FBBB1F2B517036323F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Duck Paradox (2022) [Ru/Multi] (1.0.6) License GOG
 magnet:?xt=urn:btih:D21D621E6521FBE774E1CD7516282C16E722C317
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Garage Flipper (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4CD979196918FB9044FBCA84DA9F68AA1CE9F1EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

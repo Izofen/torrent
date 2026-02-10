@@ -19,6 +19,8 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRip
 magnet:?xt=urn:btih:C68745D999C4B4E2FB9819810B25F6B3CF00B10D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Sam Most - From The Attic Of My Mind (1978) 2015, Xanadu[FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:E89DDC26F2DBB1B50C14254037509FF7B6E4EB1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - German Top 100 Single Jahrescharts 2018 (2018) [MP3|320 Kbps] <Pop, Rap>
 magnet:?xt=urn:btih:9F891C1BF4C4F8CFE82BE5388FACE2A8D98B9621
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:9F891C1BF4C4F8CFE82BE5388FACE2A8D98B9621
 ```bash
 magnet:?xt=urn:btih:5EBA764678398D74F3067A532DCB612436DDF7B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:5EBA764678398D74F3067A532DCB612436DDF7B9
 ```bash
 magnet:?xt=urn:btih:9A06B3C3EEEE7E1A113DBB8F79C0477A60C19C3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ VA - Пацаны - Ваще Ребята! vol.23 (2015) [MP3|128-320 кб/с] <
 magnet:?xt=urn:btih:845505FE07AE987D98AAE3793C0457B2F4B118FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:845505FE07AE987D98AAE3793C0457B2F4B118FB
 ```bash
 magnet:?xt=urn:btih:FD9D3CEA5F32532C9D5F3DE86F3F27B2443BE632
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:FD9D3CEA5F32532C9D5F3DE86F3F27B2443BE632
 magnet:?xt=urn:btih:F61BD8C190E52977ADD3D306B4DB7DC6C20F57E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:F61BD8C190E52977ADD3D306B4DB7DC6C20F57E4
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:F61BD8C190E52977ADD3D306B4DB7DC6C20F57E4
 ```bash
 magnet:?xt=urn:btih:D2295BA60DD1A154EEC60EFA8F9D12D8F322D53D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ Digest - Digest (1994) Qvalitet[FLAC|Lossless|image + .cue] <Vocal Jazz>
 magnet:?xt=urn:btih:1659B140BF775EC40A36503B58431DB9A4A1BEA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:1659B140BF775EC40A36503B58431DB9A4A1BEA8
 ```bash
 magnet:?xt=urn:btih:609B1B2D4E21E79FEBDD0EC3F605441F6841F144
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:609B1B2D4E21E79FEBDD0EC3F605441F6841F144
 magnet:?xt=urn:btih:0F8EC3BDEC028C55283ED3EEBFC1AB8DCBC5D9DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:0F8EC3BDEC028C55283ED3EEBFC1AB8DCBC5D9DA
 ```bash
 magnet:?xt=urn:btih:4B63599851858A99270E55D225D3474DA0AA9329
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:4B63599851858A99270E55D225D3474DA0AA9329
 magnet:?xt=urn:btih:FFF7C64DA631027B32A5E3CCE9EC27B716527FDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:FFF7C64DA631027B32A5E3CCE9EC27B716527FDE
 ```bash
 magnet:?xt=urn:btih:FA32FC15CD5263CB8A74F7B240D7271343E43C1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +454,8 @@ Eero Koivistoinen - Altered Things (1991) Remaster, 2015, Solid Records[FLAC|Los
 magnet:?xt=urn:btih:9A0BA2342D07415BBAAEBBA8FBCEAC72ACAF0706
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:9A0BA2342D07415BBAAEBBA8FBCEAC72ACAF0706
 magnet:?xt=urn:btih:53315E88E4DB49D923901C37143123184CB30CE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ VueScan - программа для работы со сканерами HP, Min
 ```bash
 magnet:?xt=urn:btih:0CAF5F869A0B3BE66B906A705CC6E2E753B225CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:0CAF5F869A0B3BE66B906A705CC6E2E753B225CD
 magnet:?xt=urn:btih:0F52545BC693AE61EE14A4B3651F8F50D63F8A1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ Cat Quest - замуррчательная РПГ, чье действие пр�
 ```bash
 magnet:?xt=urn:btih:726FF8BBBCDD463C613E002F1498249F407EA1FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:726FF8BBBCDD463C613E002F1498249F407EA1FE
 magnet:?xt=urn:btih:62261F4232A8A722AE91B0988C86A79B6DDD0F4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ magnet:?xt=urn:btih:62261F4232A8A722AE91B0988C86A79B6DDD0F4E
 ```bash
 magnet:?xt=urn:btih:665C635A84BCB8062E489FEAC6BF2AE7B8764045
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +638,8 @@ magnet:?xt=urn:btih:665C635A84BCB8062E489FEAC6BF2AE7B8764045
 magnet:?xt=urn:btih:94D31F6FCC55DB90C9EFA4289D9A730FD6AF7EB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:94D31F6FCC55DB90C9EFA4289D9A730FD6AF7EB6
 magnet:?xt=urn:btih:9BC596299512A5B855E4C272B2B3D1C4262A9A87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ magnet:?xt=urn:btih:9BC596299512A5B855E4C272B2B3D1C4262A9A87
 ```bash
 magnet:?xt=urn:btih:04C5E2F28C345D8BE8F5F302039AE2A99C758E9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:413A1474C26385785D8CE54E9A3520ACF2ABE4EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -53,6 +55,8 @@ VA - Отборный хит 8 "Зарубежный" (2012) [MP3|256 кб/с]<P
 ```bash
 magnet:?xt=urn:btih:D8671196E58ECC2ABAEC87CCA0B1D5DB0B465610
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -87,6 +91,8 @@ Belogenis Malaby Dunn Sawyer - Twice Told Tales (2003) [FLAC|Lossless]<Post-Bop,
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +120,8 @@ Belogenis Malaby Dunn Sawyer - Twice Told Tales (2003) [FLAC|Lossless]<Post-Bop,
 magnet:?xt=urn:btih:3A210F8D8F0443B37C125D5191A96D5D115A1ED0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -137,6 +145,8 @@ magnet:?xt=urn:btih:3A210F8D8F0443B37C125D5191A96D5D115A1ED0
 ```bash
 magnet:?xt=urn:btih:99A3A7B65B1F1C7FF28EAD7C45E4AAD51584397D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +181,8 @@ VA - Радужный молодежный хит (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:D7EEC504B1C5D0EEDD9C449561265535E497A974
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +215,8 @@ Battista Lena Trio - Plays (2000) [FLAC|Lossless]<Contemporary Jazz, Modern Jazz
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +251,8 @@ Andru Donalds - Let's talk about it (2001) [FLAC|Lossless]<Pop, New Age>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +285,8 @@ Kraanium - Post Mortal Coital Fixation (2012) [FLAC|Lossless]<Brutal Death Metal
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +321,8 @@ Unmixed:
 magnet:?xt=urn:btih:41CFFAD518E7D5777E9A77885BA28E3F53738131
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +346,8 @@ magnet:?xt=urn:btih:41CFFAD518E7D5777E9A77885BA28E3F53738131
 ```bash
 magnet:?xt=urn:btih:3AF828BB4171D4C52547750FBE15301543ECA9F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +382,8 @@ Charlie Haden - Nocturne (2001) [WavPack|Lossless]<Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +408,8 @@ Charlie Haden - Nocturne (2001) [WavPack|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:8EA541F76B52A2DFDCC9039229589B340FF1E6F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +444,8 @@ Fauxliage - Fauxliage (2007) [FLAC|Lossless] <Downtempo, Dream Pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +474,8 @@ Fauxliage - Fauxliage (2007) [FLAC|Lossless] <Downtempo, Dream Pop>
 magnet:?xt=urn:btih:A4F37672688DA5F81B13ABF6336341367811E107
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +502,8 @@ magnet:?xt=urn:btih:A4F37672688DA5F81B13ABF6336341367811E107
 magnet:?xt=urn:btih:729DAFF4F4CC976D16BD528D7AF673B3D45CB8AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +527,8 @@ magnet:?xt=urn:btih:729DAFF4F4CC976D16BD528D7AF673B3D45CB8AD
 ```bash
 magnet:?xt=urn:btih:1D7A10DB3B61736763C65B40C69C792A658B93C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +554,8 @@ VA - The Official UK Top 40 Singles Chart (13-05-2012) [MP3|320 кб/с]<Pop, Ro
 magnet:?xt=urn:btih:34465FAA5D1A4F6815E074D0465FED39EFFB6C63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +579,8 @@ magnet:?xt=urn:btih:34465FAA5D1A4F6815E074D0465FED39EFFB6C63
 ```bash
 magnet:?xt=urn:btih:8FB01DB7863456A70E751680C973747E8E798B34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +606,8 @@ magnet:?xt=urn:btih:8FB01DB7863456A70E751680C973747E8E798B34
 magnet:?xt=urn:btih:AC2856C2DB0C4E6494526BCDDA2B577AA0E80A48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +631,8 @@ magnet:?xt=urn:btih:AC2856C2DB0C4E6494526BCDDA2B577AA0E80A48
 ```bash
 magnet:?xt=urn:btih:24996AE37A0156F598D2A4431792711F9C04C70C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +658,8 @@ CJ Stone ft. Anna Turska & Sherlock - Believe Me (2012) [H.264/1080р] WEBRip
 magnet:?xt=urn:btih:6EC01D371FEE6C97947DB584DD2A0EF4207F57E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +683,8 @@ magnet:?xt=urn:btih:6EC01D371FEE6C97947DB584DD2A0EF4207F57E1
 ```bash
 magnet:?xt=urn:btih:797F0867B3E9BAFC83A1D24CF37CA8415A91FCF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -664,6 +710,8 @@ Realms (RePack) [En] 1991 | Pilotus
 magnet:?xt=urn:btih:30BFD71F7FDAE169CABBC4D6C71D4A13CDBEEDA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -687,6 +735,8 @@ magnet:?xt=urn:btih:30BFD71F7FDAE169CABBC4D6C71D4A13CDBEEDA1
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -713,6 +763,8 @@ MD5 Checksum Tool - приложение от компании NoVirusThanks, г
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

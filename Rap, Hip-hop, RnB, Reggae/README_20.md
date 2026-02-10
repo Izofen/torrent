@@ -1,3 +1,32 @@
+###  Публикация: 1225270   (661781) от 14.05.2018
+
+Смоки Мо - День Первый (2018) [MP3|320 Kbps] <Rap, Hip-hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сила вибраций (вступление)
+02. Из 8-1-2
+03. Вечно
+04. Макиавелли(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 00:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1CCC945A117BFB371CD9D6437AD12BE7771B92E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225268   (661818) от 14.05.2018
 
 SLIMUS - Место под солнцем (2018) [MP3|320 Kbps] <Rap, Hip-hop>
@@ -21,6 +50,8 @@ SLIMUS - Место под солнцем (2018) [MP3|320 Kbps] <Rap, Hip-hop>
 ```bash
 magnet:?xt=urn:btih:8014A4A48A25DA3EE9CD01F3A3A03C6B2F1957A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ SLIMUS - Место под луной (2018) [MP3|320 Kbps] <Rap, Hip-hop>
 magnet:?xt=urn:btih:F6482CBD03797AA9FC9DC1BBE955D0259ED468C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ Onyx & Dope D.O.D. - Shotgunz In Hell (2017) [MP3|320 kbps] <Hip-Hop, Hardcore H
 ```bash
 magnet:?xt=urn:btih:6AC7DFEB81BCE30D6E98B384EF444BE7A1D8DEE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ magnet:?xt=urn:btih:6AC7DFEB81BCE30D6E98B384EF444BE7A1D8DEE6
 magnet:?xt=urn:btih:CB29124C940B44015C8F019A8B213B7E882793A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ magnet:?xt=urn:btih:CB29124C940B44015C8F019A8B213B7E882793A9
 ```bash
 magnet:?xt=urn:btih:632E4B9BBC9B29FA685032F972C6FEB99C991FB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ Fike & Jambazi - Где-то (2013) [MP3|320 Kbps] <Rap, Hip-hop>
 magnet:?xt=urn:btih:8147E1A39057E2BDA1B62B29111BE01289755F31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ magnet:?xt=urn:btih:8147E1A39057E2BDA1B62B29111BE01289755F31
 ```bash
 magnet:?xt=urn:btih:47C7979F396164829FC0750A603A8A59813E4FB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ Cypress Hill - Back in Black (2022) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Hard
 magnet:?xt=urn:btih:BFF9F8E14653D0487667190E19274985A1A7B844
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ Cypress Hill - Back in Black (2022) [FLAC 2.0|44.1, 48/24|WEB-DL|tracks] <Hip-Ho
 ```bash
 magnet:?xt=urn:btih:D46AE67CFF8785A67C36FD8C2F4BB6E066A015ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ magnet:?xt=urn:btih:D46AE67CFF8785A67C36FD8C2F4BB6E066A015ED
 magnet:?xt=urn:btih:92999C4AE3F987520893FAC5A205147E408D6D74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ Kevin Gates - Islah (2016) [MP3|320 Kbps] <Hip-Hop, Trap>
 ```bash
 magnet:?xt=urn:btih:AD325B255D09F1737BC52694EF0DFFD48146804C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ Snoop Dogg - Neva Left (2017) [MP3|320 kbps] <Hip-Hop>
 magnet:?xt=urn:btih:071218B731360372EBD2F62DB606AFF880C06EB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ magnet:?xt=urn:btih:071218B731360372EBD2F62DB606AFF880C06EB5
 ```bash
 magnet:?xt=urn:btih:76E9B228F11813C25AAF166BE977DE12EDB7E5C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ VA - 100 Hits The Best R&B Album (2018) 5CD, Box Set [FLAC|Lossless|tracks + .cu
 magnet:?xt=urn:btih:C5BB10EAC1C60F2E2EE0347F01C7E188606BB956
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +456,8 @@ VA - Chillhop Essentials - Spring (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop,
 ```bash
 magnet:?xt=urn:btih:AC7682B4708B829FC1B914B923AE1DB363AADB9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +486,8 @@ L'One - Пангея (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:4D5A34F9B0DE212DEEA0E118D9B2B5B812C97C82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +514,8 @@ Tammy Rivera - Fate (2018) [MP3|320 Kbps] <RnB, Soul>
 ```bash
 magnet:?xt=urn:btih:2EFB03EDF80B7B17A490521E46916AE7BA2327DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +544,8 @@ Rap Прорыв - Выпуски 1-8 (2000-2006) [MP3|320 kbps]<Рэп, Хип-
 magnet:?xt=urn:btih:D2CD99D8BE8CE060D639CB647D37659B5EFA1A72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +572,8 @@ magnet:?xt=urn:btih:D2CD99D8BE8CE060D639CB647D37659B5EFA1A72
 ```bash
 magnet:?xt=urn:btih:254EB8A27E01F81DB9680C0360D0FC1805D5C5FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +602,8 @@ magnet:?xt=urn:btih:254EB8A27E01F81DB9680C0360D0FC1805D5C5FA
 magnet:?xt=urn:btih:B836E521CEB487778FC2E42D9BE14BCDB486A866
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +630,8 @@ Nyctophiliac - Ill Side Of Town (2017) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, D
 ```bash
 magnet:?xt=urn:btih:322D48D9267DD13DF5D8FE8EB3139C5F3FE2099E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +660,8 @@ Jah Khalib - Баха и Дмитрий Карантино (2020) [MP3|320 Kbps]
 magnet:?xt=urn:btih:A30F879DF7A6EEE4D81505C7DF64C9214AC2AEBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +688,8 @@ magnet:?xt=urn:btih:A30F879DF7A6EEE4D81505C7DF64C9214AC2AEBC
 ```bash
 magnet:?xt=urn:btih:1AB514FFC333062CDAC2FE23F050E07AE43E2BF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +718,8 @@ magnet:?xt=urn:btih:1AB514FFC333062CDAC2FE23F050E07AE43E2BF9
 magnet:?xt=urn:btih:EB97CE5B4AA073C8091503497897D3BD2BD7712C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,32 +747,7 @@ Sting & Shaggy - 44/876 (2018) Delux [FLAC|Lossless|WEB-DL|tracks] <Reggae, Pop-
 magnet:?xt=urn:btih:60E3B4FB57935F67F88CF572C20C44B09C109981
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029025   (686114) от 24.06.2016
-
-VA - Vintage Reggae Cafe Vol 5 (2016) [MP3|320 кб/с] <Reggae>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sublime Reggae Kings - Thinking out Loud (4:00)
-02. General Soundbwoy - The Scientist (3:52)
-03. Shelly Sony - Man Down (4:30)
-04. Urban Love & Rolla - Firestone (3:51)(   Читать дальше...   )Производство: Music BrokersЖанр: ReggaeПродолжительность: 00:47:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D8C730E7D4A482002BB0D7EE938192C109D2304
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

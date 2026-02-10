@@ -1,3 +1,30 @@
+###  Публикация: 1006672   (826634) от 12.04.2016
+
+Андрей Буровский | Необъяснимые явления. Это было на самом деле (2015) [FB2]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826634.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новой книге известного писателя, кандидата исторических и доктора философских наук, Андрея Буровского собраны реальные истории о необычных, странных, необъяснимых явлениях. Примечательно, что все эти истории рассказывают ученые, историки, археологи.
+Эти заметки автор так и разделил на четыре части: рассказы археолога, рассказы ученого, рассказы «экспедишника». (   Читать дальше...   )Жанр: Ужасы и Мистика, ЭзотерикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51ABD4E24ADF4EB0A014283B797AAEC0D9A203F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502516   (826718) от 15.10.2021
 
 Издание Оптиной Пустыни | Как научиться Иисусовой молитве (1994) [PDF, DJVU]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:CC1380845A6B43BAA65B0A347ACD8F172488B429
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +74,8 @@ magnet:?xt=urn:btih:CC1380845A6B43BAA65B0A347ACD8F172488B429
 magnet:?xt=urn:btih:754ABECA3E7C16ADA544C2C1E69FA1208CB1F6C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +100,8 @@ magnet:?xt=urn:btih:754ABECA3E7C16ADA544C2C1E69FA1208CB1F6C2
 ```bash
 magnet:?xt=urn:btih:D91185133FC1F80A6119E9EB5188D52B73B6EF93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +128,8 @@ magnet:?xt=urn:btih:D91185133FC1F80A6119E9EB5188D52B73B6EF93
 magnet:?xt=urn:btih:4396D54BAD792AD1746834B8EB74803012562289
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +153,8 @@ magnet:?xt=urn:btih:4396D54BAD792AD1746834B8EB74803012562289
 ```bash
 magnet:?xt=urn:btih:2AC09136173DED5CF7A72A046F7CE2DA5C001283
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +180,8 @@ magnet:?xt=urn:btih:2AC09136173DED5CF7A72A046F7CE2DA5C001283
 magnet:?xt=urn:btih:1B50C11BA58B4E29B87033C8383851CA914228DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +205,8 @@ magnet:?xt=urn:btih:1B50C11BA58B4E29B87033C8383851CA914228DE
 ```bash
 magnet:?xt=urn:btih:060FD1FAEFD0B357D34E06D747671A4B10071AED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +232,8 @@ magnet:?xt=urn:btih:060FD1FAEFD0B357D34E06D747671A4B10071AED
 magnet:?xt=urn:btih:DDCFD837CE77ADCE31A45F152929B3A981F47AE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +257,8 @@ magnet:?xt=urn:btih:DDCFD837CE77ADCE31A45F152929B3A981F47AE0
 ```bash
 magnet:?xt=urn:btih:FCE153B3347B39F7B5E8E6ED703648DFD30C5584
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +286,8 @@ magnet:?xt=urn:btih:FCE153B3347B39F7B5E8E6ED703648DFD30C5584
 magnet:?xt=urn:btih:33A65732A5B37D336208637EA1C1CDB20A2E5CA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +311,8 @@ magnet:?xt=urn:btih:33A65732A5B37D336208637EA1C1CDB20A2E5CA7
 ```bash
 magnet:?xt=urn:btih:5C14085E48C246E943598A19F0E61D81B3F88C9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +338,8 @@ magnet:?xt=urn:btih:5C14085E48C246E943598A19F0E61D81B3F88C9A
 magnet:?xt=urn:btih:B1CC7C9A4CC82E54C6C9EFA5D51CEE6505F80F54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +363,8 @@ magnet:?xt=urn:btih:B1CC7C9A4CC82E54C6C9EFA5D51CEE6505F80F54
 ```bash
 magnet:?xt=urn:btih:9EC20AE067B702B4F91AC5E2FEFCBFB692F3729E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +391,8 @@ magnet:?xt=urn:btih:9EC20AE067B702B4F91AC5E2FEFCBFB692F3729E
 magnet:?xt=urn:btih:A3E30F3F35E7DB6EC4BD6825663D9A792D7032B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +416,8 @@ magnet:?xt=urn:btih:A3E30F3F35E7DB6EC4BD6825663D9A792D7032B7
 ```bash
 magnet:?xt=urn:btih:E528ED21F756C953DC163543F3A8BC12C97CB777
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +443,8 @@ magnet:?xt=urn:btih:E528ED21F756C953DC163543F3A8BC12C97CB777
 magnet:?xt=urn:btih:84291B4D41EE9B15B76018608D84E01989D35500
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +469,8 @@ magnet:?xt=urn:btih:84291B4D41EE9B15B76018608D84E01989D35500
 magnet:?xt=urn:btih:3D4F2524707FEC6992E6FE28C07CDB6B54A634D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +494,8 @@ magnet:?xt=urn:btih:3D4F2524707FEC6992E6FE28C07CDB6B54A634D4
 ```bash
 magnet:?xt=urn:btih:37409774EA7D82DF9EDB22166D4E8FE97599EC30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +523,8 @@ magnet:?xt=urn:btih:37409774EA7D82DF9EDB22166D4E8FE97599EC30
 magnet:?xt=urn:btih:0BC5710061C645042B320B4D3844695DD938CC7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +548,8 @@ magnet:?xt=urn:btih:0BC5710061C645042B320B4D3844695DD938CC7F
 ```bash
 magnet:?xt=urn:btih:68B160C9A8A788145761F4FB00835B5EDD8A5034
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +577,8 @@ magnet:?xt=urn:btih:68B160C9A8A788145761F4FB00835B5EDD8A5034
 magnet:?xt=urn:btih:E2586A3C37D26A67A5242DACAD7A30D497580BCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +602,8 @@ magnet:?xt=urn:btih:E2586A3C37D26A67A5242DACAD7A30D497580BCF
 ```bash
 magnet:?xt=urn:btih:186598A7285741855C7EBCFEC1835960416859CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +629,8 @@ magnet:?xt=urn:btih:186598A7285741855C7EBCFEC1835960416859CB
 magnet:?xt=urn:btih:8860180BAC5C3E6AAC07336186AD39C11094AF71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +654,8 @@ magnet:?xt=urn:btih:8860180BAC5C3E6AAC07336186AD39C11094AF71
 ```bash
 magnet:?xt=urn:btih:BEE0970FE4A950441010FA04B6E3F9B034436D23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,29 +681,7 @@ magnet:?xt=urn:btih:BEE0970FE4A950441010FA04B6E3F9B034436D23
 magnet:?xt=urn:btih:E414544E60D120D4347F19AEB7BFF7A01950C767
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006338   (828393) от 11.04.2016
-
-Юрий Никитин | Мне – 75 (2014) [FB2]
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джим Фикс, создатель движения бега трусцой, умер в 52 года от сердечного приступа во время пробежки. Марк Хьюз основал Гербалайф, обещая всем жизнь до ста лет в ясном уме и бодрости, но умер в 44 года от остановки дыхания во сне. Мишель Монтиньяк, автор нашумевших книг о борьбе с лишним весом, изданных в сорока странах тиражом в 16 миллионов экземпляров, умер в 66 (   Читать дальше...   )Жанр: Здоровье, фитнес, диетыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28F1FEDE17791B91F9D6238671CF9E35E5944314
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

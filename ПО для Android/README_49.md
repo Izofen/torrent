@@ -19,6 +19,8 @@ Mi Home - это приложение для управления умным д�
 magnet:?xt=urn:btih:C571EEF12C12E6CD76572798EE221768967BABEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Lighting calculations / Расчеты освещения v6.1.9 Mod by Balatan 
 ```bash
 magnet:?xt=urn:btih:0D2AAAA41B175A39EBEB94F2944095D7E5E90D68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Smart AudioBook Player Pro v11.5.4 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:CBD020C2B40CBC561A75F681CFE2D3464B97DB84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Smart AudioBook Player Pro v11.5.4 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:B4E73096502C2E4C0F07919636FE047CAC20C681
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ SD Maid v5.6.3 Extra Mod + Dark-Venom Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D0586431DA60943B451061CC1A124F32519A7B91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Sense V2 Flip Clock & Weather v6.50.0 Mod by Timozhai [Ru/Multi]
 magnet:?xt=urn:btih:15CB265074AEC5F07A404087B0849A5AC3A3CBBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Grab Photos From Videos / Фото из видео v11.1.0 Mod by derrin [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:6D3FA815BD7285B1B7B5F762FBE33D0D386C9E53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Fraction Calculator Plus v5.7.1 Mod by srajawwal09 [Ru/Multi]
 magnet:?xt=urn:btih:0A282590C9D14990A9021B745F45EFE93F4BBE20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ FBReader Premium v3.5.5 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3AD43BFD2A627E544563F390B86445469C47189D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Colorfy - это раскраска, призванная помочь вам у
 magnet:?xt=urn:btih:3112D4F30BBB3958AE28CC7B21EA6D86B1A4190C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ VivaVideo - это простой в использовании видеоред
 magnet:?xt=urn:btih:79C68D3C1A0BBCD415787864F4656712E2CAE3AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ MD.emu 1.5.76 Mod by DAG-05 [Ru]
 ```bash
 magnet:?xt=urn:btih:8078475E9A39A374741F7C474A70877030CC4AC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Piano Melody vDua Lipa fix (268) Mod by TryRoom [En]
 magnet:?xt=urn:btih:72F5BF4FD4696EEABC539C539720A1CB53F7098D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ TinyScan превращает ваш смартфоне в портативны�
 magnet:?xt=urn:btih:8C569353583F8FFB284D1D7601D11649DB140008
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ Fishing Knots Pro / Рыбацкие узлы Pro v8.1.17 Paid [Ru/Multi]
 magnet:?xt=urn:btih:5F409771CA30BEC8969361440EC8D1F61003A2C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ Photomath v8.46.0 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:68727B9CF21AE3CB8B3EEA67749101D13EAF8719
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ PicWish — фоторедактор с искусственным (   Чита
 magnet:?xt=urn:btih:61B493DD8119A0F1739121EF2DB4BB395AB6ABE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ PhotoDirector v20.6.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E42037D6D2AC685169DDC351EB41BC8E9F65D3F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ Genius Art: Image AI Generator v1.5.2 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:A9991B0B14C67C5BD0C7D63674734190D2CDB56A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:A9991B0B14C67C5BD0C7D63674734190D2CDB56A
 ```bash
 magnet:?xt=urn:btih:29206918A67DCC119CD14C5A301D05A2BA8D2725
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ Ventusky: Прогноз погоды v48.0 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:5E0F1D95F8A2BD14329A4AED5B806FC905EA095D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ Fraction Calculator by Mathlab / Калькулятор Дробей v2025.09.55
 ```bash
 magnet:?xt=urn:btih:D7D2A15E11ADEC8A7CE94EA50C375C2E53D8DDAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:D7D2A15E11ADEC8A7CE94EA50C375C2E53D8DDAC
 magnet:?xt=urn:btih:FA3CDC5621B82F05557959C9D2DF726249E56661
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ OTT Онлайн прямое телевидение, в котором вы н�
 ```bash
 magnet:?xt=urn:btih:3117819AE4F2F911C5B6F1376599817E69BEF9E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ Mirror Lab стремится быть самым веселым, простым
 magnet:?xt=urn:btih:479DFAC65158D2302C9BC93F808E2E161569F5C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:479DFAC65158D2302C9BC93F808E2E161569F5C2
 ```bash
 magnet:?xt=urn:btih:6F4C1D8094B43381CD396966E53275290A36CFE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

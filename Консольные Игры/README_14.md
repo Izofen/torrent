@@ -19,6 +19,8 @@ Tony Hawk’s Pro Skater 5 - это очередная игра серии си�
 magnet:?xt=urn:btih:B8E24EF374EA5C3495B72F726ECB3AAD6E22029B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Eat Lead: The Return of Matt Hazard (2009) [PS3] [EUR] 2.60 [Cobra ODE / E3 ODE 
 magnet:?xt=urn:btih:20343EB0CCA380DD338E2BC6636231631ACEC287
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Rise of the Argonauts (2008) [PS3] [EUR] 2.52 [Cobra ODE / E3 ODE PRO ISO] [Unof
 ```bash
 magnet:?xt=urn:btih:0AEE13221CDB0F589DDDCDFF3736FE77D184F789
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Battle Fantasia (2009) [PS3] [EUR] 2.52 [Cobra ODE / E3 ODE PRO ISO] [License] [
 magnet:?xt=urn:btih:F2955E4C44D3FA14BBC93258B28D3D7A6BCDBD66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Legendary (2008) [Xbox360] [RegionFree] FreeBoot [License] [Ru]
 ```bash
 magnet:?xt=urn:btih:0EEFDFF25E890638A930A0FC54BD0A4785C62D81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Iconoclasts (2018) [PSVita] [USA] 3.65 [NoNpDrm] [Unofficial / 1.15] [Ru/En]
 magnet:?xt=urn:btih:D9EF030F706D6EE4C6D0312C2D4B5A15338BDEAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Iconoclasts (2018) [Switch] [USA] 8.1.0 [NSP] [Unofficial / 1.15] [Ru/En]
 ```bash
 magnet:?xt=urn:btih:D93EC91B0C48E31AE0315C195D3A4CE1AC68AC47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ abgx360 1.0.6 + Offline Files (2012) [Xbox360] [En]
 magnet:?xt=urn:btih:48D95623E4F4363FFD0FA5A63D6561D7EA2C1C68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Stormrise (2009) [PS3] [EUR] 2.60 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
 ```bash
 magnet:?xt=urn:btih:1765813BC75446617CFAC6BB4E118773C95B56B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Prison Break: The Conspiracy / Побег. Теория заговора (2010) 
 magnet:?xt=urn:btih:F7E9BF7A1F2DBCAA54265982ED12A5D5DDB5832C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Mario + Rabbids - Sparks of Hope (2022) [Switch] [EUR] 14.1.2 [eShop] [Ru/Multi]
 magnet:?xt=urn:btih:7A4093D6100A33CE484EE314C6FD179F39C58B79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ L.A. Noire (2017) [Switch] [EUR] 8.1.0 [NSZ] [License / 1.2] [Ru/En]
 ```bash
 magnet:?xt=urn:btih:9FF2D0336AC56B4A75EA4B67B099C70DEB66E302
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Super Mario 3D All-Stars (2020) [Switch] [USA] 10.2.0 [NSP] [License / 1.1.0] [E
 magnet:?xt=urn:btih:53E4A17FD27DCC126ED73B05F24EC0FDF28F6F2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Serious Sam Collection (2020) [Switch] [USA] 10.2.0 [NSP] [License / 1.0.1] [Ru/
 magnet:?xt=urn:btih:E2DCA11B98ECB2401982271A45469EF4E33AD95E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ TV Supertars / Звёзды телешоу [PS3] [MOVE] [EUR] [Ru] [4.21] (2010)
 ```bash
 magnet:?xt=urn:btih:F71334C9BDFA0C3F3431949B9B36313102E26F25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Ori and the Will of the Wisps (2020) [Switch] [USA] 10.2.0 [NSZ] [License / 1.2.
 magnet:?xt=urn:btih:F0A1A6FA34E90C407DCB0261E85EE83C7592F102
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Tornado Outbreak (2009) [PS3] [EUR] 2.76 [Cobra ODE / E3 ODE PRO ISO] [License] 
 ```bash
 magnet:?xt=urn:btih:8DFCF164FC09EA048EDBC469E2C2561AC953B3CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Worms: The Revolution Collection [PS3] [En] [4.50] (2013)
 magnet:?xt=urn:btih:8CBC9E42770FDA3871D5A504D5EE2DCC6888B2DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ SAW: The Video Game / Пила (2009) [PS3] [EUR] 3.01 [Cobra ODE / E3 ODE PRO I
 ```bash
 magnet:?xt=urn:btih:BBAA264BF849EA6DB5502F5EA2FEAC19F63F2926
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ The Walking Dead: Season Two продолжает историю Клемент�
 magnet:?xt=urn:btih:527FC6B21014249A9F95F17B8DB49D2EC43A6F53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ X-Men: Destiny (2011) [Xbox360] [RegionFree] FreeBoot [Unofficial] [Ru]
 ```bash
 magnet:?xt=urn:btih:AAA7F31F8F196BBEB76778A812D4A56E6E77F905
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ Conan (2007) [Xbox360] [RegionFree] FreeBoot [License] [Ru]
 magnet:?xt=urn:btih:552D5BFF802BB8951824920F768602A31F09CB62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Hot Wheels: World's Best Driver продолжает серию аркадных
 ```bash
 magnet:?xt=urn:btih:9B0FC82A022E628D451AB63C33B12B9011B10E77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ NBA 2K14 [USA] [ENG] [4.46] [Cobra ODE / E3 ODE PRO ISO] (2013)
 magnet:?xt=urn:btih:2FDFA01965EB882F881956E8082C808D5C7009E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ Car Mechanic Simulator 2021 – новая игра с качественной 
 magnet:?xt=urn:btih:1C5DCBF66B0C8F1D9715E6C3DC59490FE7EA4046
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Monster Energy Supercross - The Official Videogame 5 (2022) [PS4] [USA] 5.05 [HE
 ```bash
 magnet:?xt=urn:btih:6DDE1BB334A57E0447F83FA7D621DBF8AD9E1D98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

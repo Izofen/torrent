@@ -19,6 +19,8 @@ NGW: Первая тройка самых опасных животных. Ма�
 magnet:?xt=urn:btih:A4FFEF02DD1884858FA788A60D045F74056B1E81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NG: Истории о Боге с Морганом Фриманом / The Story 
 ```bash
 magnet:?xt=urn:btih:38DE2DB4D3DC6FF7400D0498A52E7119CC4724D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NG: Истории о Боге с Морганом Фриманом / The Story 
 magnet:?xt=urn:btih:45085B942C2D29B6B5EC976489B17C05687E4276
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ BBC: Horizon. Закат Солнечной системы / The End of The Sola
 ```bash
 magnet:?xt=urn:btih:C2B85C5788219AD956EF7C9C7F81F0233F1560FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ NGW: Смертоносная Африка. Калахари / Africa's Deadly K
 magnet:?xt=urn:btih:4800F20AA04EF3A2BEDAFEBA3985FBA278A98CBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ BBC. Horizon. Почему мы говорим? / Horizon. Why Do We Talk? (2009
 ```bash
 magnet:?xt=urn:btih:DAD6B748BEB5A04A593123DB3BABEA63CA09B162
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Animal Planet. Чернобыль - Жизнь в смертельной зон�
 magnet:?xt=urn:btih:B5D9E6FE867ED50763F9A5C2F26A86DE8ACE42A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Discovery: Разрушители легенд / MythBusters (2016) SATRip (Се
 ```bash
 magnet:?xt=urn:btih:650A137F8F5A70E1C9D80B6C7E6297FAE0EB96A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ NGW: Самые странные в мире питомцы / World's weirdest p
 magnet:?xt=urn:btih:08CE4FE84C28381829F7843DE0BF89461E090697
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ NG: Возрождение морского шелкового пути / Mariti
 ```bash
 magnet:?xt=urn:btih:0F288CCD38F59F2A91AF029F7336321DAEF21D62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ NGW: Смертоносная Африка. Степи / Africa's Deadly Kingdom
 magnet:?xt=urn:btih:8386F0E699341050650BFA999C3CF211B4636C33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ NG: Разобрать до основания. Суперджеты (Больш
 ```bash
 magnet:?xt=urn:btih:C3B9D061557726E84BE68740BCF1981D57870AC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:C3B9D061557726E84BE68740BCF1981D57870AC8
 magnet:?xt=urn:btih:AC20FE24A4E24BA3458604F33284E8F3172CB8B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ NGW: Дикая река Конго / Wild Congo (2017) HDTV [H.264/1080i-LQ]
 ```bash
 magnet:?xt=urn:btih:08E59FCD78BB18D63BA9F172773ED3ABB88D1B90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ NGW: Глубоководные убийцы / Deep sea killers (2017) HDTV [H.2
 magnet:?xt=urn:btih:AD77640987259D91A76597F1BEC3458C03A24B09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ NGW: Самые опасные убийцы. Опасная зона / World's d
 ```bash
 magnet:?xt=urn:btih:670365C433563B783CE3A6ADF9BE4816B37B19E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ NGW: Дикий рай Индии / India's Wild Edens (2016) HDTV [H.264/1080i-
 magnet:?xt=urn:btih:383E58915CB6A71642EEA80C4194C9B45A498E25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ magnet:?xt=urn:btih:383E58915CB6A71642EEA80C4194C9B45A498E25
 ```bash
 magnet:?xt=urn:btih:85F2194DF6EAAFC8E1286BF7B7F3991E762170F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:85F2194DF6EAAFC8E1286BF7B7F3991E762170F8
 magnet:?xt=urn:btih:4FCBB18C6FCD2FF68F54DE54BC4D9577AC32D9E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ BBC. Замки: История укреплений Британии / Castles:
 ```bash
 magnet:?xt=urn:btih:9B73E1874582EF9507D6CF583AA4F8A0DDF980C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:9B73E1874582EF9507D6CF583AA4F8A0DDF980C0
 magnet:?xt=urn:btih:3A001CF1A1EAD5C903F3F4B0529260F865216ED3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ History Channel. Реальный Запад: Ковбои и бандиты / T
 ```bash
 magnet:?xt=urn:btih:8B3C2958DBF281248F72D9792A7E406A90CF32D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ History Channel. Реальный Запад: Ковбои и бандиты / T
 magnet:?xt=urn:btih:3BC82888CDD67760987DC3891742737498F3DBB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ BBC. Как вырастить планету / How to Grow a Planet (2012) BDRe
 ```bash
 magnet:?xt=urn:btih:BA5570B242929DE02250D93BEFAD6ACAEFE08082
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ NG. Суперсооружения Третьего рейха / Nazi Megastruct
 magnet:?xt=urn:btih:9F2E8AB89507241BD8D70C289E90D808244EE76D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ BBC. Horizon. Миссия на Марс / Horizon. Mission To Mars (2012) HDTVR
 ```bash
 magnet:?xt=urn:btih:6C6A853FF5A312C5545EE0CD96D52C7F451BDFA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

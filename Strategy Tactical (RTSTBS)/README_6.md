@@ -19,6 +19,8 @@ Frozen Synapse - пошаговая стратегия, основанная н�
 magnet:?xt=urn:btih:FB2C626FCC3B8AC71C60BBDDB956694D877D295A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Frozen Synapse 2 предлагает классический для страт
 ```bash
 magnet:?xt=urn:btih:269687001B92C5CD0B97298E2AE652F537185AAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Supreme Ruler 2030 - это политический симулятор, в ко
 magnet:?xt=urn:btih:E33C66553847A1817A324E09EE81353BD01E4C7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Undeadly - это пошаговая стратегическая игра на 
 ```bash
 magnet:?xt=urn:btih:55B170B3007331C7539A99582847CB61A4AEB942
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ The Troop (2023) [Ru/Multi] (20250930 build 20182560/dlc) Repack seleZen
 magnet:?xt=urn:btih:E3732C95E8B3918512B22AB031C6B655CCD11987
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Grand Tactician: The Civil War (1861-1865) (2021) [En] (1.15.1/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:3B42FEB64EB3FDB062DF8B5A04754CB5A5286D97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Starship Troopers: Terran Command - это захватывающая страт
 magnet:?xt=urn:btih:831239667D477B8BB100A9C1434F7081A01121CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ A Game's Tale (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:DFB6DE562C3166DFA56344779BDBC9CCF46B5F84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Lysfanga: The Time Shift Warrior бросает вас в битву, котор
 magnet:?xt=urn:btih:90AF71BEA709E09392ADFAB57399AD0BB102AA8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Field of Glory: Kingdoms - это необычная стратегия, поз�
 ```bash
 magnet:?xt=urn:btih:2D827850BA4705F9D7DC3268E988641537F79B72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Field of Glory: Kingdoms - это необычная стратегия, поз�
 magnet:?xt=urn:btih:422AFD139DA244A4F048FAFEDEDD44C84D03B7DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Capes (2024) [Ru/Multi] (1.0.0.0/dlc) Repack FitGirl [King City Edition]
 ```bash
 magnet:?xt=urn:btih:9367A0AA280030460A5BAABEB0E01E99C43724A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:9367A0AA280030460A5BAABEB0E01E99C43724A2
 magnet:?xt=urn:btih:0C90291D345BC51B13642E8D44F2C0486698DF56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ This War of Mine - первая игра, которая позволяет ув
 ```bash
 magnet:?xt=urn:btih:2E35FDC5EA0A19B4E20EF30E121BC8F61D173096
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Land Beneath Us - рогалик с пошаговой системой бо
 magnet:?xt=urn:btih:3EA3A602054911DE1C44A3F5CB24FF197C26FB66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Last Train Home - это интригующий тайтл, погружающи
 ```bash
 magnet:?xt=urn:btih:744AEF6879A5E5FFC795DC6D5012102811D14DD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Front Mission 2: Remake - обновленная версия классичес
 magnet:?xt=urn:btih:C3481519C3F9D22EEF1146900434377E125F3099
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Front Mission 2: Remake - обновленная версия классичес
 ```bash
 magnet:?xt=urn:btih:B7A7FB2EE76FD8424A5BC48C9C21645F4B4C3848
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Solium Infernum - увлекательная пошаговая стратеги
 magnet:?xt=urn:btih:8DCB71C990020DDF23585D6918C0077D07DCEDB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ War Hospital (2024) [Multi] (1.10/dlc) License GOG [Supporter Edition]
 ```bash
 magnet:?xt=urn:btih:3838224D6EE570B6B79CD0106B7A6467CDCEE523
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ John Wick Hex – нео-нуарное приключение с элемент
 magnet:?xt=urn:btih:3214CC0D8F8F34C0B9FFFE3E8B007775EDD5A752
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Headquarters: World War 2, увлекательная пошаговая стр�
 ```bash
 magnet:?xt=urn:btih:79B8F72092651554F6EE153EC457C41400F918B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Outpost: Infinity Siege - это увлекательный научно-фан�
 magnet:?xt=urn:btih:CF4EF9287F6EEEF61815589F08B1DAFF8B957F71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ No Plan B – это тактическая стратегия и по совм�
 ```bash
 magnet:?xt=urn:btih:F2AD09E22D7E6171DFC3D98F5F80DF563F710D0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Outpost: Infinity Siege - это увлекательный научно-фан�
 magnet:?xt=urn:btih:698F49DE06F6980EA1FA148B3207B3429441046D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Starship Troopers: Terran Command - это захватывающая страт
 ```bash
 magnet:?xt=urn:btih:D369E6E61F1B9F85504DB1650B45CBC992839A7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

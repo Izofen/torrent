@@ -28,6 +28,8 @@ Jesper Kyd - Assassin's Creed: Brotherhood OST (2010) [MP3|320 kbps]<Game OST>
 magnet:?xt=urn:btih:FCBAB9E34F06EE2A14B1705EB36D0F5278598037
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ Chrystalia Ensemble - Angels Of Healing (2000) [FLAC|Lossless]<New age, Relax>
 ```bash
 magnet:?xt=urn:btih:ABD1A07D205DE916AF33A7F3EA3B8368937231C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -80,6 +84,8 @@ Adventure Cargo (Diane & David Arkenstone) - African Skies (2003) [FLAC|Lossless
 magnet:?xt=urn:btih:5387DCA4317EF47606BF59B24E47DB36C0CB7546
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -106,6 +112,8 @@ VA - 50 Healing Music. Deep Relaxation Therapy: Sleep Easy, Soothing Massage, Mu
 ```bash
 magnet:?xt=urn:btih:E129F3E5F920A662C1DEB08CEEFF1AB8BB54AF3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -134,6 +142,8 @@ Harry Manfredini - House & House II: The Second Story / Дом & Дом 2: Пр�
 magnet:?xt=urn:btih:21494EB112A12044F4AB9D535272D18BC5DCC949
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ Bridget McMahon - Celtic Woman - Black Is the Colour (2016) Single [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:46C40C317F2219E9A2CBF795163D90DCB2A89B18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -185,6 +197,8 @@ Diane Arkenstone - Jewel in the Sun (2002) [FLAC|Lossless]<New Age>
 magnet:?xt=urn:btih:D94D5014C66120360BAB2BE692F0AB76967DCC90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ Alan Howarth - The Dentist 1-2 / Дантист 1-2 (1996, 1998) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:E9DFBEB7FA3A3683C73688372F5374E656BA16D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +255,8 @@ Nicholas Gunn - Pacific Blue (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 magnet:?xt=urn:btih:401077FD743A38CC3E58D74BBBC9AAFC761C1899
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +283,8 @@ Armik - Romantic Spanish Guitar Vol. 1,2,3 (2014-2016) [MP3|320 кб/с] <Instru
 ```bash
 magnet:?xt=urn:btih:DE4173075C4B5DB9F64AC278ACECCA5630A31723
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +313,8 @@ Hans Zimmer and Junkie XL - Batman v Superman: Dawn Of Justice (2016) 2CD, Delux
 magnet:?xt=urn:btih:36C2576C07FC415500A9321ED2DBB238092BE74E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +338,8 @@ Alice Gomez - Sleep Cycles of the Native American Flute (Over an Hour of Soothin
 ```bash
 magnet:?xt=urn:btih:19587600545F4B69745A91C0A3AC124D005119F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +368,8 @@ Sacred Earth - Breathing Space (2014) [FLAC|Lossless|tracks] <New Age, Relax, Me
 magnet:?xt=urn:btih:AAD34DB1ABE4D0B35AB9EBF89332220F680015F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +397,8 @@ VA - Simply Anti Stress /4CD/ (2010) [FLAC|Lossless]<New age, Chillout, Nature s
 magnet:?xt=urn:btih:9CCC2C8F08AE717AB31829302D8FE3BE80E67D07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +422,8 @@ magnet:?xt=urn:btih:9CCC2C8F08AE717AB31829302D8FE3BE80E67D07
 ```bash
 magnet:?xt=urn:btih:013FBE6FE7A6618C1AF0F26C11B1F2D1921A86D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +452,8 @@ Dan Gibson's & Donald Quan - Asian Spa (2004) [FLAC|Lossless|tracks + .cue] <New
 magnet:?xt=urn:btih:E5A37D755F917F4A4F8FE6599C5D3BB65F373A8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +480,8 @@ VA - Yoga Balance: Asian Traditional Music for Meditation, Yoga Pilates, Relaxed
 ```bash
 magnet:?xt=urn:btih:92D12D4464A1BACF30241ABAB2E63081EED9E5D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +510,8 @@ VA - No Stress Music Playlist 3: Pure New Age & Chillout Relax (2017) [MP3|320 K
 magnet:?xt=urn:btih:59C6F7F2404CCC9EC390C7AE1FF1DC80C216D1A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +538,8 @@ Raphael - Music for Love (2008) [FLAC|Lossless|tracks + .cue] <New Age>
 ```bash
 magnet:?xt=urn:btih:C0684A855AF078D4BABA8A757C0FE600311CFE76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +568,8 @@ magnet:?xt=urn:btih:C0684A855AF078D4BABA8A757C0FE600311CFE76
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +596,8 @@ Ernesto Cortazar - 3 альбома (2011 - 2012) [FLAC|Lossless|tracks] <New Ag
 ```bash
 magnet:?xt=urn:btih:454CFB525DDACBA9F813DE70F712474570DAA1A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +626,8 @@ A:
 magnet:?xt=urn:btih:091EBDB52BDEA52F0CF27F05F54412149BFD4D19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +654,8 @@ VA - 50 Sleep Better: Relaxing Beach Ocean Waves (2017) [MP3|320 Kbps] <Downtemp
 ```bash
 magnet:?xt=urn:btih:0CD807B06B231082BA7824FB8DB8D5A408AB2BAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +684,8 @@ Robert Rodriguez & VA - Once Upon A Time In Mexico (2003) [MP3|320 кб/с] <Sco
 magnet:?xt=urn:btih:709649576D1AD87A3917614E0E79EA3E9438D221
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +713,8 @@ VA - Los clasicos argentinos Tango - Vol.08  - Roberto Goyenche: El cantor de Bu
 magnet:?xt=urn:btih:E3B9B7F01A586483ADD2077259563311927A23A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -691,6 +741,8 @@ Bruce Becvar - Floating Home (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ```bash
 magnet:?xt=urn:btih:A7D6DDEDA18C01900885184C9B0CB1EDDB240A3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

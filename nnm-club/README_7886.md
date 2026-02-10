@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C57A25F62D173BAA192FC559A0D3C21F2493FF9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Total - 4 Albums + 7 Singles (2001-2021) [FLAC, WV|Lossless|image + .cue, tracks
 ```bash
 magnet:?xt=urn:btih:D3091AEDB34D8A70EA566B730661D63948E3F80A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - Lounge Remixes (2021) [AAC|~308 Kbps] <Lounge, Chill Out, Deep House>
 magnet:?xt=urn:btih:1E4E4DD397CAA6E542B71DF53FF0895CE2C0BEF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ MotorTrinken - 2 Albums (2017-2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:903E7E40775125BA08A082D8B995FEE0B3956EF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:903E7E40775125BA08A082D8B995FEE0B3956EF2
 magnet:?xt=urn:btih:242B904A1029D5C6BB5A7DD99D33FB10697A782F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ Majuu Sensen | The Demonic Beast Front | Битва с демонами [1990, O
 magnet:?xt=urn:btih:D8B944A62ACF6CE9D97E7164369DADAD2BDEE61F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ Mists of Aiden — это сюжетный хоррор от первого ли
 ```bash
 magnet:?xt=urn:btih:B6135A93756DA8CE8547F041C5BEE886FDEE2A01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +215,8 @@ VA - Blues BBQ - No Better Cure for Sadness Than Blues And Barbecue (2023) [FLAC
 magnet:?xt=urn:btih:DB4704B9F11E6D5BAE4D919E49EBAE1AA88E916B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:DB4704B9F11E6D5BAE4D919E49EBAE1AA88E916B
 ```bash
 magnet:?xt=urn:btih:8783645C4370D70142F9CBE602B7548E554D9767
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ Steve Keenan - In My Hands (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:48F734516132AEAD6BBE08F19A24F4EB9518990F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ VA - The Lounge Chill Out Chapter, Vol. 2 (2021) [AAC|~329 Kbps] <Chill Out, Lou
 ```bash
 magnet:?xt=urn:btih:CECC42A52CDAB6C7239363CE53D04107D71707E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +330,8 @@ Fifth Angel - When Angels Kill (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 magnet:?xt=urn:btih:80AA801F372E9B1CC4617036A65A7E4A54F9C72F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +358,8 @@ magnet:?xt=urn:btih:80AA801F372E9B1CC4617036A65A7E4A54F9C72F
 magnet:?xt=urn:btih:E6C9A7CDC3DCFD4D38467FB916380B394A9A834D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +383,8 @@ magnet:?xt=urn:btih:E6C9A7CDC3DCFD4D38467FB916380B394A9A834D
 ```bash
 magnet:?xt=urn:btih:D518C81B36E2DDE4B5903E40CA5BF154B2923332
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +410,8 @@ magnet:?xt=urn:btih:D518C81B36E2DDE4B5903E40CA5BF154B2923332
 magnet:?xt=urn:btih:49EC82C8B1DB3069617AE21FB9785C254865C223
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +435,8 @@ magnet:?xt=urn:btih:49EC82C8B1DB3069617AE21FB9785C254865C223
 ```bash
 magnet:?xt=urn:btih:247FF6F7736A82F3E9C9597875C3A429157DB195
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +465,8 @@ Robert Heft - The Days That Used to Be (2021) [FLAC|Lossless|WEB-DL|tracks] <Blu
 magnet:?xt=urn:btih:360ED43429C2554246113250F94FB6EF33E84602
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +494,8 @@ False Memories - Hybrid Ego System (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic 
 magnet:?xt=urn:btih:1835FA07B8C218CD25493336424FDCFDA8DFF123
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +519,8 @@ Meitantei Conan: Hannin no Hanzawa-san | Detective Conan: The Culprit Hanzawa | 
 ```bash
 magnet:?xt=urn:btih:D7A6C8CA618A85FCF06F98CB8E69999CFF12DB99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +549,8 @@ Saturnus - The Storm Within (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, 
 magnet:?xt=urn:btih:0AFAD6200B89FEC26B65AF55D62FB9417ACB3136
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +574,8 @@ TextBar позволяет вам использовать скрипты, чт�
 ```bash
 magnet:?xt=urn:btih:426C02F07CD9609FD7F8269E633693A5C66A98DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +604,8 @@ Lattermath - Winter's Painting (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 magnet:?xt=urn:btih:561A407EF6F47507BFFA99158B05535D076094FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +630,8 @@ Marmoset Toolbag 4.04 (4042) [En]
 magnet:?xt=urn:btih:AB00E05541B040661242F11A1FA213A45D518AE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +655,8 @@ magnet:?xt=urn:btih:AB00E05541B040661242F11A1FA213A45D518AE6
 ```bash
 magnet:?xt=urn:btih:D71F8FEDF61BFFD347CE363FAED951273F3DEB6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +683,8 @@ magnet:?xt=urn:btih:D71F8FEDF61BFFD347CE363FAED951273F3DEB6B
 magnet:?xt=urn:btih:89B472783B02807B84D1138CE44EFC864C978A75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +709,8 @@ Perfectly Clear – мощный плагин для Adobe Lightroom и Adobe Ph
 ```bash
 magnet:?xt=urn:btih:B4706E054D027C95D5330B14BAE6A381751DD822
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

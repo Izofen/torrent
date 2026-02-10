@@ -1,3 +1,29 @@
+###  Публикация: 1229519   (626162) от 06.06.2018
+
+Михаил Веллер | Огонь и агония (2018) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая книга Михаила Веллера – ироничная по форме и скандальная по существу – о том, почему классика уродует сознание интеллигенции, как пили шампанское герои золотого периода советской культуры, где найти правду о войне и кто такой великий русский поэт Владимир Высоцкий.Жанр: Публицистика, Современная русская литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E877447EE4D62656D2F554B84664C05D0DFB2AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035775   (626237) от 17.07.2016
 
 Брюс Перри, Майя Салавиц | Мальчик, которого растили как собаку (2015) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:CB97B4272EA9DCD30E9A30DC2B93DBD9ACEBC04B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:CB97B4272EA9DCD30E9A30DC2B93DBD9ACEBC04B
 magnet:?xt=urn:btih:6A822B9FCF1ECE732658CDC1BA5ED2D9D36802DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:6A822B9FCF1ECE732658CDC1BA5ED2D9D36802DB
 magnet:?xt=urn:btih:382E7FB817EA41EBFA66F8192B2C15D758055B99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:382E7FB817EA41EBFA66F8192B2C15D758055B99
 ```bash
 magnet:?xt=urn:btih:229BF36CA73AB0D6B01295A735BD559DAA2536E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:229BF36CA73AB0D6B01295A735BD559DAA2536E4
 magnet:?xt=urn:btih:A97C6AB8137B02B6CF4E937BEFB08C7E39AE5362
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:A97C6AB8137B02B6CF4E937BEFB08C7E39AE5362
 ```bash
 magnet:?xt=urn:btih:B89558F8B152FC83360AFE647AF298257B2148DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:B89558F8B152FC83360AFE647AF298257B2148DF
 magnet:?xt=urn:btih:415C2007B0C46875FEB293810B621856C1A3FB48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:415C2007B0C46875FEB293810B621856C1A3FB48
 ```bash
 magnet:?xt=urn:btih:6DEF72A2EBE86006A30CAB7DAFC93D28E2A5944C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:6DEF72A2EBE86006A30CAB7DAFC93D28E2A5944C
 magnet:?xt=urn:btih:FDC6AA1AFDBBBFA352FBC9483E0015775468D232
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:FDC6AA1AFDBBBFA352FBC9483E0015775468D232
 ```bash
 magnet:?xt=urn:btih:CDCBD6EC7F63B4139B6BFDE497E701C400113806
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:CDCBD6EC7F63B4139B6BFDE497E701C400113806
 magnet:?xt=urn:btih:360792E437211F846CEF5377A58C60D69257D843
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:360792E437211F846CEF5377A58C60D69257D843
 ```bash
 magnet:?xt=urn:btih:CB73AAE94D6BAFACF67A9255D57AF6DFD091E163
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:CB73AAE94D6BAFACF67A9255D57AF6DFD091E163
 magnet:?xt=urn:btih:29E5B777AF7D35A29601AA88329F30B076D33E92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:29E5B777AF7D35A29601AA88329F30B076D33E92
 ```bash
 magnet:?xt=urn:btih:1772863CF1C809E473E3BF49F811118CAFDB61C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:1772863CF1C809E473E3BF49F811118CAFDB61C8
 magnet:?xt=urn:btih:532A072C909522FC3E4552F442376A7E846F1A4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:532A072C909522FC3E4552F442376A7E846F1A4C
 ```bash
 magnet:?xt=urn:btih:BCB4F737B1A7B2707CC0E789E85238330D6C627E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:BCB4F737B1A7B2707CC0E789E85238330D6C627E
 magnet:?xt=urn:btih:C5AFFF59B5DFAB634CFFDB479090640FFDCCBCD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:C5AFFF59B5DFAB634CFFDB479090640FFDCCBCD1
 ```bash
 magnet:?xt=urn:btih:7C1EB2C4501700DEA5BB24616581A1B0AE898F47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:7C1EB2C4501700DEA5BB24616581A1B0AE898F47
 ```bash
 magnet:?xt=urn:btih:FC2C6D20AAC0B44F6D3FBAE3D7F1C690E4AAFE27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +549,8 @@ magnet:?xt=urn:btih:FC2C6D20AAC0B44F6D3FBAE3D7F1C690E4AAFE27
 magnet:?xt=urn:btih:1620D22310FA1331DF06AD7C2B99E6D6CADA1378
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +576,8 @@ magnet:?xt=urn:btih:1620D22310FA1331DF06AD7C2B99E6D6CADA1378
 magnet:?xt=urn:btih:A53C3B1A00CFB83078B653F81F922EC92CD55973
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:A53C3B1A00CFB83078B653F81F922EC92CD55973
 ```bash
 magnet:?xt=urn:btih:9596117109B9019B54547083DE7E85589D7FB34A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:9596117109B9019B54547083DE7E85589D7FB34A
 magnet:?xt=urn:btih:209D97C626D42FC96FFE38934661912D23A04966
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:209D97C626D42FC96FFE38934661912D23A04966
 ```bash
 magnet:?xt=urn:btih:096F5A4E96CC11A181B784FEEBC77A9FDC7D11A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,29 +681,7 @@ magnet:?xt=urn:btih:096F5A4E96CC11A181B784FEEBC77A9FDC7D11A5
 magnet:?xt=urn:btih:1B110C4E87C63390D6CDF5F4812D64BC5E91B0C1
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909442   (627391) от 17.06.2015
-
-Игорь Прокопенко | Тайны Космоса (2015) [FB2, EPUB, PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627391.jpg" />
-</div>
-
-
-###  Подробнее
-
-С чем сталкивались космонавты на орбите и почему об этом принято молчать? Правда ли, что все известные на Земле вирусы, включая ВИЧ, попали на нашу планету из космоса? Какая судьба ждет человечество после того, как изменятся магнитные полюсы планеты? Есть ли связь между падением метеоритов и эпидемиями, которые уносят миллионы жизней? Конец света, который предрекали (   Читать дальше...   )Жанр: История, ГеографияФормат: FB2, EPUB, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE6450B9B62256FC8025FDC0FE14295FEF787E9F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

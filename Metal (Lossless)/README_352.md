@@ -1,3 +1,69 @@
+###  Публикация: 188640   (867824) от 02.04.2010
+
+Avantasia - The Wicked Symphony & Angel Of Babylon - Boxset(2CD) (2010) [FLAC|Lossless]<Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Stargazers (9:31)
+02. Angel Of Babylon (5:28)
+03. Your Love Is Evil (3:54)
+04. Death Is Just A Feeling (5:24)
+05. Rat Race (4:07)
+06. Down In The Dark (4:25)
+07. Blowing Out The Flame (4:50)
+08. Symphony Of Life (4:31)
+09. Alone I Remember (4:46)
+10. Promised Land (4:50)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:58:58
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 767068   (868010) от 16.03.2014
+
+Encrimson'd - Agrarian Menace (2004) [FLAC|Lossless]<Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Red Boar Inn Revolt [07:39]
+02. Piper's Tale [09:09]
+03. Old Man [07:41]
+04. My Feast [07:47]
+05. Amber Shades [06:57]
+06. As Echo Down Fall [07:44]Жанр: Black MetalПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1793D4208C5FB4193C78E07D3FAE89D22C686029
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497041   (868026) от 20.09.2021
 
 Spiritbox - Eternal Blue (2021) [FLAC|Lossless|tracks + .cue] <Metalcore, Progressive Metal>
@@ -21,6 +87,8 @@ Spiritbox - Eternal Blue (2021) [FLAC|Lossless|tracks + .cue] <Metalcore, Progre
 ```bash
 magnet:?xt=urn:btih:1A87CEBAB47AC99A77B6F19C522553C4C6400D5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -50,6 +118,8 @@ Leah - Kings & Queens (2015) [FLAC|Lossless]<Symphonic Metal>
 magnet:?xt=urn:btih:B408E111C42C70D018C8B6A64115B1A3C1B262F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +146,8 @@ Abyssic - A Winter's Tale (2016) Limited Edition [FLAC|Lossless|image + .cue] <S
 ```bash
 magnet:?xt=urn:btih:78582F34610AA779DC4EFF47E8BBB154CD001C96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -105,6 +177,8 @@ Ambush - Firestorm (2014) [FLAC|Lossless]<Heavy Metal>
 magnet:?xt=urn:btih:5C1DDE2AE96BE80AAE6748446CFA2BFC7336EF81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -131,6 +205,8 @@ Apocalyptica - Cell-0 (2020) [FLAC|Lossless|image + .cue] <Cello Metal, Symphoni
 ```bash
 magnet:?xt=urn:btih:0C3E36ACC8FFCF1041DA0A6E6606A3875E058DAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -159,6 +235,8 @@ Angry - Future Chaos (2014) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:46DA9771924E04ABE9E73B489A7F6444350FFA4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +270,8 @@ Mercenary - Metamorphosis (2011) [FLAC|Lossless]<Melodic Death Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +298,8 @@ Killing - Face the Madness (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:9B2F06ACB8B397AE9E56ADB92E6E3F533C2B8D17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +328,8 @@ Captain Booze - Runaway (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:573B173F30BA349FE658B3769ACD51C42B7E07AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +357,8 @@ Inhuman Condition - Rat°God (2021) [FLAC|Lossless|image + .cue] <Thrash, Death 
 magnet:?xt=urn:btih:68ABA89A24DF26381FE28082D83931CC37E00C53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +385,8 @@ Angel House - The Gun, The Love & The Cross (2009) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:35EA7368CC8828C166126EBA9E5DACDEB015730C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +421,8 @@ Chaosbreed - Brutal (2004) [APE|Lossless]<Old School Death Metal / Thrash Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +450,8 @@ Bloodtruth - Obedience (2014) [FLAC|Lossless]<Brutal Death Metal>
 ```bash
 magnet:?xt=urn:btih:2A8B0E174B7E893E888653EC1151E41EA0AB4BD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +481,8 @@ Devilish Impressions - Simulacra (2012) [FLAC|Lossless]<Avantgarde Black/Death M
 magnet:?xt=urn:btih:81B51AAC5311A4AE1C65AD55E77BB02D75689DE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +509,8 @@ Doro - Force Majeure (1989) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:637C509AFEF9CB56F108617D1BC781782596F5AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +539,8 @@ Bring Me The Horizon - 6 Альбомов (2005-2013) Дискография [FL
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +567,8 @@ Zakk Wylde - Book Of Shadows (1996) [FLAC|Lossless|image + .cue] <Southern Metal
 ```bash
 magnet:?xt=urn:btih:0950171BFB5F3593FF8BCE3B48626429963E6B56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +597,8 @@ Ruadh - Eternal (2021) [FLAC|Lossless|image + .cue] <Atmospheric Folk Metal, Atm
 magnet:?xt=urn:btih:22F1E0633ABB7E9FA0D5E804F5023266CD9B22F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +625,8 @@ Oversense - Egomania (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:4C0EFF666E4D63D25C604E98948851A353787ACD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +655,8 @@ Intercore - Dreams For Sale (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy 
 magnet:?xt=urn:btih:9EA98A2D6687AC5FA7986AA05FBDA55C6EA9E753
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +683,8 @@ Holycide - Toxic Mutation (2015) EP [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:C1591A9D99BA7DEA56748753FC8ED458827E5E31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +719,8 @@ Air Raid - Night Of The Axe (2012) [WavPack|Lossless]<Heavy Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +747,8 @@ Almanac - Tsar (2016) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:BC1A5C31E0A2EA0C30AFF0F9458DA12199670F5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -665,65 +777,7 @@ Dark Forest - Oak, Ash & Thorn (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 magnet:?xt=urn:btih:DD543B7AE3E316A15547403CC5EC6E5DADB38F7D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 643427   (872756) от 14.04.2013
-
-Motorhead - 11 альбомов (1979 - 2004) Japan Edition [FLAC|Lossless]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.Terminal Show [03:45]
-02.Killers [04:14]
-03.In The Name Of Tragedy [03:03]
-04.Suicide [05:07]
-05.Life's A Bitch [04:13]
-06.Down On Me [04:12]
-07.In The Black [04:31]
-08.Fight [03:42]
-09.In The Year Of The Wolf [04:17]
-10.Keys To The Kingdom [04:46](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:55
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496395   (872857) от 17.09.2021
-
-Eternal Flight - SurVive (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Will We Rise Again
-02. Hear The Call
-03. Legions
-04. The Promise(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BCEDA4FF28BA02FA3B3F02948823B4BB30D92AF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

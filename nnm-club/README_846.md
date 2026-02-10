@@ -22,6 +22,8 @@ VA - Billboard Hot 100 Singles Chart 05.04.2025 (2025) [MP3|320 Kbps] <Pop, Danc
 magnet:?xt=urn:btih:5E2454D68A011EF83CA41013F03A70F170B1BFEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:5E2454D68A011EF83CA41013F03A70F170B1BFEB
 ```bash
 magnet:?xt=urn:btih:2AAFC5C536A950C0E7FF9EEA3C12699B22C59CEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:2AAFC5C536A950C0E7FF9EEA3C12699B22C59CEF
 magnet:?xt=urn:btih:DF99D6E85B5C0015D9C0D94F9B8A14BD1771960E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:DF99D6E85B5C0015D9C0D94F9B8A14BD1771960E
 ```bash
 magnet:?xt=urn:btih:43DE2F1402676E6115B80978A8CE5DE72758099E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ P821 MDN Tape основан на личном магнитофоне Stephens 8
 magnet:?xt=urn:btih:65E4D5FF5B058E62BF70B7E1EB650F47298759B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:65E4D5FF5B058E62BF70B7E1EB650F47298759B3
 ```bash
 magnet:?xt=urn:btih:FFF3AEF2E1F03C60C527EC2252702EC316B3FFD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:FFF3AEF2E1F03C60C527EC2252702EC316B3FFD1
 magnet:?xt=urn:btih:1BDCF7505C5623592A9C3BD1B065FE5E934B883B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:1BDCF7505C5623592A9C3BD1B065FE5E934B883B
 ```bash
 magnet:?xt=urn:btih:FED2B34B0D42C2FD8D5331CEAED3466A1DC4F946
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:FED2B34B0D42C2FD8D5331CEAED3466A1DC4F946
 magnet:?xt=urn:btih:3295A680C4CCBE0552D0E5A5FA6259CCA4DAC59B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:3295A680C4CCBE0552D0E5A5FA6259CCA4DAC59B
 ```bash
 magnet:?xt=urn:btih:318FD209EAA0B0809C145FB5C22D7357DEC9A6CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Moon+reader относится к категории универсальных 
 magnet:?xt=urn:btih:5A0E389DC3EDF5AF83E76A5862CA9C3DD0FF25CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ BikeComputer Pro - возможно, одно из лучших приложен
 ```bash
 magnet:?xt=urn:btih:56570718CB7EC506C21DA1EBFDC8FDC536D1FAC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ VRadio - Online Radio App v2.8.0 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:840FAB6E8336FC12AA6B3D32CCCB5740E99369CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ MediaHuman YouTube to MP3 Converter 3.9.9.99 (0404) RePack (& Portable) by elchu
 ```bash
 magnet:?xt=urn:btih:299131EAD07465FA5C06C1A64D7C087E0FF23BF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ Balabolka 2.15.0.892 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:109409DD3CE40C3AE7852A9F951DBFDF90E0CBF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:109409DD3CE40C3AE7852A9F951DBFDF90E0CBF3
 ```bash
 magnet:?xt=urn:btih:E503E7C70EA16AE43B39886125F4CDD4118EBF28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:E503E7C70EA16AE43B39886125F4CDD4118EBF28
 magnet:?xt=urn:btih:6D8374D26EDC949D1BFCFAF6651741FC231BA6DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:6D8374D26EDC949D1BFCFAF6651741FC231BA6DE
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:6D8374D26EDC949D1BFCFAF6651741FC231BA6DE
 magnet:?xt=urn:btih:F01D380F4478205CB45A20BBB5C67D8FBB44BD0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ MediaHuman YouTube Downloader 3.9.9.99 (0404) RePack (& Portable) by elchupacabr
 ```bash
 magnet:?xt=urn:btih:40A08BD92761B72D490CB2FEB41BCAF0AAA7F088
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:40A08BD92761B72D490CB2FEB41BCAF0AAA7F088
 magnet:?xt=urn:btih:4F5314C89D8A57EF2D5B0AFFC29785ADEAF34F16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ Youtube Downloader HD - бесплатная и предельно проста�
 ```bash
 magnet:?xt=urn:btih:8B28212D81AF52F128F92D3D16A1C0602FC57B10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ W10Privacy - программа для изменения настроек си�
 magnet:?xt=urn:btih:8EA75C9077FE1BC681F335E9ECFAC30052AE6383
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:8EA75C9077FE1BC681F335E9ECFAC30052AE6383
 ```bash
 magnet:?xt=urn:btih:E8575D64F26CB6948FC96BE8C4048FD489643AC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Kun'tewiktuk: A Mi'kmaw Adventure - приключенческая игра в �
 magnet:?xt=urn:btih:7EDE6FDD12C226A673BC6DBACB5805015CB41544
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:7EDE6FDD12C226A673BC6DBACB5805015CB41544
 ```bash
 magnet:?xt=urn:btih:007AE78A67222FB97D5E9E173867DA3B417D1C5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

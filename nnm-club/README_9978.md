@@ -1,57 +1,3 @@
-###  Публикация: 1074617   (323718) от 21.11.2016
-
-Paul Shapiro - It's in the Twilight (2006) [FLAC|Lossless|image + .cue] <Klezmer Jazz, Classic Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light Rolls Away the Darkness
-02. Children of Abraham
-03. The Sun Keeps Coming Up
-04. Lecha Dodi Twilight(   Читать дальше...   )Жанр: Klezmer Jazz, Classic JazzПродолжительность: 00:45:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2FFB2455D1A2F149236DB2B19F5A235E74FD5DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074628   (323719) от 21.11.2016
-
-Paul Smith - Cool And Sparkling (1991) [APE|Lossless|image + .cue] <Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Remember You
-02. Kempy The Painter
-03. Young Man's Fancy
-04. Dandy Randy(   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 00:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46365A945A5B36C6AA453C6046037A84485AC03A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1075073   (323720) от 21.11.2016
 
 VA - Illusion Chill Out Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -75,6 +21,8 @@ VA - Illusion Chill Out Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 ```bash
 magnet:?xt=urn:btih:B56355BA1FC788FD3F0725EB1073A5C36446C511
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +51,8 @@ VA - Fabulous Trance Session (2016) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:F8C3D680BC5369056EB0B5C2770A3E1FD92B41F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +77,8 @@ magnet:?xt=urn:btih:F8C3D680BC5369056EB0B5C2770A3E1FD92B41F8
 ```bash
 magnet:?xt=urn:btih:12034026CF235E75075BA9C32A74F089DAFD2124
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -155,6 +107,8 @@ CD1:
 magnet:?xt=urn:btih:DBDD03761D5298F8E6231B6B4A26833E865B86FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -182,6 +136,8 @@ PeakHour идеально подходит для мониторинга ваш�
 magnet:?xt=urn:btih:30928F06404D702713E9F5642121DFFE5ED95807
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -206,6 +162,8 @@ magnet:?xt=urn:btih:30928F06404D702713E9F5642121DFFE5ED95807
 ```bash
 magnet:?xt=urn:btih:CE8E4704B90193ABFFFD66CEC84547FFD677DCED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -234,6 +192,8 @@ magnet:?xt=urn:btih:CE8E4704B90193ABFFFD66CEC84547FFD677DCED
 magnet:?xt=urn:btih:4717A10A4F14161E7E3962F0B6B7921211BFD427
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +220,8 @@ Enslaved - E (2017) [FLAC|Lossless|image + .cue] <Progressive Viking Metal>
 ```bash
 magnet:?xt=urn:btih:FBF2D6E3032459DBB20F8670AE6A3A533B8242F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +250,8 @@ M-Tracking - Огромный мир (2017) [MP3|320 Kbps] <Eurodance, Eurodisco
 magnet:?xt=urn:btih:DBD30928209160FDFFE62C6943B166E9E6942FBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +276,8 @@ magnet:?xt=urn:btih:DBD30928209160FDFFE62C6943B166E9E6942FBD
 magnet:?xt=urn:btih:DE0B48F649D0C0DC0D903454C7292C822BE4C84A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +301,8 @@ magnet:?xt=urn:btih:DE0B48F649D0C0DC0D903454C7292C822BE4C84A
 ```bash
 magnet:?xt=urn:btih:059AF300304235156E420F731C6E7C3462FDB804
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +331,8 @@ Carl Neal - Step into Paradise (2017) [MP3|320 Kbps] <Smooth Jazz>
 magnet:?xt=urn:btih:229179CB6709A51C207B8C9FD9B5830D500F4790
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +359,8 @@ VA - All Stars: Singles Chart Hot 150 (2017) [MP3|320 Kbps] <Pop, Dance, RnB>
 ```bash
 magnet:?xt=urn:btih:96A7D88F32837F27445DCE1F127D49E0AE169DC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +389,8 @@ VA - Ori Uplift & Dj Ruby - Uplifting Only 247 (2017) [MP3|320 Kbps] <Trance, Up
 magnet:?xt=urn:btih:A28E395E093C8FF6123493FA9E1FDD88B65FA38B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +418,8 @@ Raydar - Evil Squad (2015) EP [MP3|320 Kbps] <Electro, Synthwave>
 magnet:?xt=urn:btih:7E91D711D2E0F179E48CA74244F8C255F10E1940
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +443,8 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:08E96C0A950F29D350E1A0B2C41EDC21EFCBFBCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +473,8 @@ Fidel Wicked - Emotions (2016) [FLAC|Lossless|WEB-DL|tracks] <House>
 magnet:?xt=urn:btih:897C7E5CF59C7CFA4418756564C3FBC1FC237BE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +498,8 @@ Soft4Boost Document Converter 5.1.1.661 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:58DD444AAA14DFBC0B594E9D927F55872DA6E288
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +525,8 @@ magnet:?xt=urn:btih:58DD444AAA14DFBC0B594E9D927F55872DA6E288
 magnet:?xt=urn:btih:401C5B18330CBCA0ECE4D40A84EB82550E76B8C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +550,8 @@ magnet:?xt=urn:btih:401C5B18330CBCA0ECE4D40A84EB82550E76B8C5
 ```bash
 magnet:?xt=urn:btih:63399F497EAC52420B11963EF905EED300A834D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +580,8 @@ Savage Messiah - Hands of Fate (2017) Japanese Edition [FLAC|Lossless|image + .c
 magnet:?xt=urn:btih:BDBC8E190EB247C6E3A89C5FC2F965C1A7684114
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +605,8 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:19469DA2797FD9AF42F73951F83EB182459F67D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +632,8 @@ magnet:?xt=urn:btih:19469DA2797FD9AF42F73951F83EB182459F67D1
 magnet:?xt=urn:btih:5C40D3CEF18F54032C5DBF56DC9CCEE1A2B47EED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +658,60 @@ magnet:?xt=urn:btih:5C40D3CEF18F54032C5DBF56DC9CCEE1A2B47EED
 ```bash
 magnet:?xt=urn:btih:D9B776BA722BC8DCC62E4D91CD6CA43064599E9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958598   (323762) от 21.11.2015
+
+Третий Рим | Toyota RAV4. Пошаговый ремонт в фотографиях (2007) [PDF]
+
+>>Автомобили
+>>Автомобильная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323762.jpg" />
+</div>
+
+
+###  Подробнее
+
+В руководстве дается пошаговое описание процедур по эксплуатации, техническому обслуживанию и ремонту автомобилей Toyota RAV4.Жанр: Пособие по ремонту автомобилейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4FBCC1E57230EAE21171453953DBEB81FD1A70F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958378   (323763) от 21.11.2015
+
+Преступная деятельность / Criminal Activities  (2015) WEBRip [H.264/720p-LQ] [EN / EN Sub]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четверо молодых людей инвестировали деньги в рискованное дело, которое приводит их к конфликту с мафией.Производство: США, Phoenix Rising Motion Pictures, Capacity Pictures, Producer Capital Fund, NeeNee Productions and May Day Movies.Жанр: триллер, драма, криминалРежиссер: Джеки Эрл ХейлиАктеры: Дэн Стивенс, Джон Траволта, Джеки Эрл Хейли, Майкл Питт, Эди Гатеги, Кристофер Эбботт, Роб Браун, Лиза Катара, Трэвис Аарон, Морган Волк, Крис Хан, Ник ЛоренПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:33:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6DF5CDC25B2758E024B66E306BF22475179B893
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

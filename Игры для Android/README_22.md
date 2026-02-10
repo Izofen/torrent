@@ -19,6 +19,8 @@ Levelhead - вы несете ответственность за подгото
 magnet:?xt=urn:btih:F5A253D0DB0A993D837D85C3420A6B3ED6D7E7A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Don't Push The Wrong Button 2 - Самый реалистичный и слож�
 ```bash
 magnet:?xt=urn:btih:37E3174F56934C1FAA4A1E98F84DD3DD84A9C7ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:37E3174F56934C1FAA4A1E98F84DD3DD84A9C7ED
 magnet:?xt=urn:btih:28EF3EA1A8D8F341C023B1D71519A99C850C5243
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ CHUCHEL – комедийная игра в жанре приключения �
 ```bash
 magnet:?xt=urn:btih:7C43489CF79F294804BD1271775B1DA48EF8D263
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Grand War: European Conqueror - новая стратегия от извест�
 magnet:?xt=urn:btih:FC129C88AFDC2400DBC9CE0092654FA8DADE537C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Best Fiends Stars - Вас ожидает совершенно новое при
 ```bash
 magnet:?xt=urn:btih:F664DA1BD46BB0E67DBF8CCE065A11619379A5B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ FINAL FANTASY III - Поклонники игры Final Fantasy могут ра�
 magnet:?xt=urn:btih:D5C973DC0FC9AD77E6FB82ED2FA1AD8D5DFE9817
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Stickman Dragon Fight - Super Stick Warriors - экшн-файтинг с эле
 ```bash
 magnet:?xt=urn:btih:98A671D4BB88187688C4FBADE7ECA57773BD82C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Eternium - ролевая игра для устройств на платфор
 magnet:?xt=urn:btih:A014FB97E9D7D44B404B4C20818CDD95641A4544
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ StrikeBox: Sandbox & Shooter - шутер с симпатичной трехме
 ```bash
 magnet:?xt=urn:btih:591E6DE4E85F6E6900AC96738CAC2C562D10C295
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:591E6DE4E85F6E6900AC96738CAC2C562D10C295
 magnet:?xt=urn:btih:36E0CC66E9A7F09939F7E472C8B64578D32D775C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ FarmVille 2 Cельское уединение на андроид позвол�
 ```bash
 magnet:?xt=urn:btih:320CB2D8747750D44E4C4BB8752D8619794C940D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ War of Kings: Эпическая Стратегия PvP - многопользо
 magnet:?xt=urn:btih:D33448E2348880EB5F23FA57527ADD794955D098
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Bob The Robber 4 - очередная глава приключений вори
 ```bash
 magnet:?xt=urn:btih:49DB3F9BE0537EC1DE9478FAA91E519CE20655EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Words of Wonders: Игра в слова v5.3.8 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:FB06B3F51A90F3A6841129BA2D18B713781EDE9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Word Surf ‒ это новая оригинальная игра-головол
 ```bash
 magnet:?xt=urn:btih:1B06F51554B970086E007EEC6C99836546215791
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:1B06F51554B970086E007EEC6C99836546215791
 magnet:?xt=urn:btih:2E0812720B971C71C2F443B1EF324B173253F25A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Pro Pool 2026 v1.62 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:164E8EC1FAD43317BFEBF01A894ECAC3FFFB6AFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:164E8EC1FAD43317BFEBF01A894ECAC3FFFB6AFF
 magnet:?xt=urn:btih:31484251941FE2C1AE2A28FA314DEEC01734E5E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:31484251941FE2C1AE2A28FA314DEEC01734E5E1
 magnet:?xt=urn:btih:93C8BDA299E8EDB1501088C170263F8E33421919
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ Words of Wonders: Игра в слова v5.3.10 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3A63127538411B6CB4642AF421809B2458D919CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Bubble Shooter Viking Pop v7.12.2.38462 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:7F337023FC26A38278DBED5138900C45D8523192
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:7F337023FC26A38278DBED5138900C45D8523192
 ```bash
 magnet:?xt=urn:btih:6AC3C1D0BDD61B5EB1EF9465EDA74FE7B80533C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ BlockSudoku / Кудоку-Вуди Блок v2.6.4 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:EFF926D7AD8D0822EC2C2EBA7541499B27413AA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ Jigsawscapes® - Пазлы v5.0.0 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D0B3C27CB7C7A5C08A64F62B1E83C440F4BF454A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +677,8 @@ Resident Evil Survival Unit v1.3.1 [En]
 ```bash
 magnet:?xt=urn:btih:0513A37E8EFF57FBF6D00A43A2BA34780BC068D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

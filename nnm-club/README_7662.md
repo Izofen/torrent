@@ -22,6 +22,8 @@ Evile - The Unknown (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 magnet:?xt=urn:btih:DF175FB912FC464449EB31DA96FFFB405B931BC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:DF175FB912FC464449EB31DA96FFFB405B931BC3
 ```bash
 magnet:?xt=urn:btih:324B1DC5741FA7951ED3C375410FCC8CBB3EE6E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ FontLab - профессиональный редактор шрифтов. Пр
 magnet:?xt=urn:btih:1E086E43DD87AE1F6A216234FE90E801F481C469
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Icecream Video Converter Pro 1.31 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D63EDDADF448CEE92454A065F661286AC42C43D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Noturnall - Cosmic Redemption (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 magnet:?xt=urn:btih:D2360776193CF11AA9C2AD29B88ECD06E8C15875
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:D2360776193CF11AA9C2AD29B88ECD06E8C15875
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:D2360776193CF11AA9C2AD29B88ECD06E8C15875
 magnet:?xt=urn:btih:7A45AA4FAAC69A895CCE8FC4DF0A08196178A77E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:7A45AA4FAAC69A895CCE8FC4DF0A08196178A77E
 ```bash
 magnet:?xt=urn:btih:76254A90C17BA47EAB01D1EBC7C87E9958CB0F2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ Art Blakey And The Jazz Messengers - Drum Suite (1957) 2005, Columbia [FLAC|Loss
 magnet:?xt=urn:btih:981569DDFE0A197EBDE5BF1F88774C13A8EE55C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:981569DDFE0A197EBDE5BF1F88774C13A8EE55C1
 ```bash
 magnet:?xt=urn:btih:37D3B979F91191B8D30CB0C9A39AC79191934991
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ Bards of Antiquity - The Paladin (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Progress
 magnet:?xt=urn:btih:71507CCF5CC880DFEF557D613F6C9B5A9F2C4C39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ Glary Disk Cleaner - бесплатный инструмент от компан
 magnet:?xt=urn:btih:F09FA001458BD4EDF8EAD0A96DDC1D1A898179FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:F09FA001458BD4EDF8EAD0A96DDC1D1A898179FC
 ```bash
 magnet:?xt=urn:btih:5C5566D5BDE1EA5C208BFB46A0F771AF371F9F1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:5C5566D5BDE1EA5C208BFB46A0F771AF371F9F1A
 ```bash
 magnet:?xt=urn:btih:8FA3227DB1E911B76CAB06BA6156798E1EC93D25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ Within Temptation - Wireless (2023)  [FLAC 2.0|24/96|WEB-DL|tracks] <Symphonic M
 magnet:?xt=urn:btih:EDD2FAAC538FB001A64EA2CAD74CC83F498DB21E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ Quidam - Sny Aniołów (Sny Aniolow) (1998) Remaster, 2023, GAD Records [MP3|320
 magnet:?xt=urn:btih:4A7EC8DFD651BD39A9BA753ACEC3FEFD9F19ED39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ magnet:?xt=urn:btih:4A7EC8DFD651BD39A9BA753ACEC3FEFD9F19ED39
 ```bash
 magnet:?xt=urn:btih:2AAD56CB4D8BFAFE2D8282615EA50F24BE6D81E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +482,8 @@ RegCool 1.340 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:85E74101944311C3D8397C9E7F6EB05AAB7773E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ FxSound (ранее DFX Audio Enhancer) - отличное приложение,
 ```bash
 magnet:?xt=urn:btih:703D0F9C37EAD589D811872B8595E5F291BA0234
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +535,8 @@ magnet:?xt=urn:btih:703D0F9C37EAD589D811872B8595E5F291BA0234
 magnet:?xt=urn:btih:E69591A07BE5714DE485668997EFABC36EE9BF58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ magnet:?xt=urn:btih:E69591A07BE5714DE485668997EFABC36EE9BF58
 ```bash
 magnet:?xt=urn:btih:49CF2CE6BC9A45E623CF0BB7D2D810F5F3985222
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ EssentialPIM - это отмеченное различными наградам
 magnet:?xt=urn:btih:F614529E9746316D293D93A3DED0278FA0D1814B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:949C494CFCF477A363254457E215055A73B4A843
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +640,8 @@ magnet:?xt=urn:btih:949C494CFCF477A363254457E215055A73B4A843
 ```bash
 magnet:?xt=urn:btih:80EBE390795D112FE98E63AF3825292980EB7119
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +670,8 @@ ZZ TOP - Double Down Live 1980 * 2008 (2009) DVD9+DVD5
 magnet:?xt=urn:btih:47A978A0C429B4590E1724EC5326843AB854FDB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ magnet:?xt=urn:btih:47A978A0C429B4590E1724EC5326843AB854FDB3
 ```bash
 magnet:?xt=urn:btih:B69F391C7C46D0FCE4D68E54849EFBB0F6042A98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

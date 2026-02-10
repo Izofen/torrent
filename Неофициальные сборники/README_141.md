@@ -19,6 +19,8 @@ VA - Инструментальная музыка (2012) vol. № 30 [MP3|320 �
 magnet:?xt=urn:btih:75A128908F120725C080B87B710DDF2D90F8A1B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ VA - Инструментальная музыка (2012) vol. № 29 [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:DD63D75D6F617B87ECAFBEBDF7FA9CD14BBAB40F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Жажда танца. Будет жарко! (2012) [MP3|256 кб/с]<Pop,
 magnet:?xt=urn:btih:1A1DA2C088C5129000138ACD368422F8B438839A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ VA - Лучшая clubная музыка сезона (2012) [MP3|256 кб/с]<
 ```bash
 magnet:?xt=urn:btih:4606A6E03125EF06A874BF335079CB2B7724B299
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +150,8 @@ VA - Грезы любви (2012) [MP3|320 кб/с]<Шансон>
 magnet:?xt=urn:btih:08A98601A035F977066CA7AC4946CEA6E3056C01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +175,8 @@ VA - Инструментальная музыка (2012) vol. № 31 [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:88E02190EE37B7DB31B53F33A316218FD5720103
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +211,8 @@ magnet:?xt=urn:btih:88E02190EE37B7DB31B53F33A316218FD5720103
 magnet:?xt=urn:btih:494D487599C1A256AC3C77CE622808B842752E67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +239,8 @@ VA - 10 000... Italo-Euro-Space-Synth-Pop-Hi-NRG-Disco From Ovvod7 & tiv44 (201-
 ```bash
 magnet:?xt=urn:btih:5C3D4564B3CA1F7BCD154D2FC74EE9C2C35E4939
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +269,8 @@ VA - Зарубежная Дискотека ХХ Века (Студия «Spedi
 magnet:?xt=urn:btih:30BA169A823DCA56443CEBDD6DADA51406DCCAFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +297,8 @@ VA - Music News vol.252 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:AB98D2CAEA1C4086FF5351FDCEA057C387F6683D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +327,8 @@ VA - В машине с музыкой Vol.328 (2023) [MP3|320 Kbps] <Pop, Dance
 magnet:?xt=urn:btih:EFD559D8F215CA5A48AF2943D256645BE96FC334
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +355,8 @@ Bryan Adams - Collection (2022) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:AEF6EA0B48CE4674477554C6E2E734AD468B8595
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +385,8 @@ VA - Dance Covers 2022 - The Best Party Hits Only! (2022) [MP3|320 Kbps] <Club, 
 magnet:?xt=urn:btih:668DDA1F2553B03E795FD69932C4A09C25F32101
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +413,8 @@ VA - 60 minutes. Old School Dance Music vol.16 (mixed by Dj V) (2023) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:B778A8C1870DB8D1E5B8AC6DB1CC3359AF8131D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +443,8 @@ VA - Music News vol.251 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:ECE43A6D5CFD82715A57E85F2CDAEE97C18E9643
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +471,8 @@ VA - Про белые розы (2022) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:E3E94B2EF47DC025F839A4F7416FA9F39FE52E15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +501,8 @@ VA - Billboard Hot 100 Singles Chart. 11 March 2023 (2023) [MP3|320 Kbps] <Pop, 
 magnet:?xt=urn:btih:804E8853D4CC0078B6FCAE2A4575FDC2EC143DD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +529,8 @@ zero-project - Compilation (2023) [MP3|320 Kbps] <Electronic, New Age, Ambient>
 ```bash
 magnet:?xt=urn:btih:D4445BA5F2537ABDFB48E4EA6F35D07D744B9516
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +559,8 @@ VA - Русские Хиты 3 2022 [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:0C4C1B61B1EC0C94FDF52B476E1FCA99C0D13E43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +587,8 @@ VA - Motivation Mix 2 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:02EBCD2444BFB5BF76549D6716648D03303E6ED2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +617,8 @@ VA - Music News vol.250 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:D71A458FC5E86F6CBA30D19210B73158CA69BFD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +645,8 @@ VA - Music News vol.202 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:C0649D2271C3A452B5E006FCEDF93D1796A7A424
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +675,8 @@ Marie Laforêt - Compilation (2022) [MP3|320 Kbps] <Pop, Chanson>
 magnet:?xt=urn:btih:479D91A61F97CA559FD684F2D1635B29DA3E3F9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +703,8 @@ VA - Retro remix Апрель (2022) [MP3|320 Kbps] <Club House, Russian Pop>
 ```bash
 magnet:?xt=urn:btih:4ECD2658856EA3F58683E4B818BDDAFF2D65AC9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -685,6 +733,8 @@ VA - Наш Тик Ток 3 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:10D2894BB2E4892BD79A86CB21DBFC28B9585408
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -711,6 +761,8 @@ VA - Шансон 2 (2022) [MP3|320 Kbps] <Шансон>
 ```bash
 magnet:?xt=urn:btih:56BC121688D6AA3F9C47493E43CE9FB55CDD01F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

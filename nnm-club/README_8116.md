@@ -21,6 +21,8 @@ Yate был разработан для людей, которые серьез�
 magnet:?xt=urn:btih:CD5DCEBC26DC6C2CE1E246605A3375AA0660283E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Display Maid позволяет сохранять и восстанавлива
 magnet:?xt=urn:btih:7C1EED509F6BAA174DD91EF4E2F4BFB1190551EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ YouTube ReVanced - это реинкарнация проекта YouTube Vanced
 ```bash
 magnet:?xt=urn:btih:3447654D8075AE8F7093F966887A334B58C3EB62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ A4 Wild Kinda Love 3:33(   Читать дальше...   )Жанр: Synth-PopП
 magnet:?xt=urn:btih:E773B3FBA6941AA63F5E49F9A4743251D2143C17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:E773B3FBA6941AA63F5E49F9A4743251D2143C17
 magnet:?xt=urn:btih:BAC4EDBDB1B77E3618B10A54181484742E1792AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:BAC4EDBDB1B77E3618B10A54181484742E1792AC
 ```bash
 magnet:?xt=urn:btih:CA8D3B2FCC3C6C4BBF1F7AC9C29DCC3DEB5E7D4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ VA - Ibiza Vibes 2023 - Tech House & Techno Only (2023) [MP3|320 Kbps] <Dark Tec
 magnet:?xt=urn:btih:C68537FB57DFFBD0AE15CD8CE5EDC38797D94BD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:C68537FB57DFFBD0AE15CD8CE5EDC38797D94BD2
 magnet:?xt=urn:btih:2234A2986869813192597BC0E532B118A853E269
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:2234A2986869813192597BC0E532B118A853E269
 ```bash
 magnet:?xt=urn:btih:A14733A4E945676D30046DB80A288A6AB076F0FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ Somniae Status - Echoes (2007) [FLAC|Lossless|image + .cue] <Progressive Metal, 
 magnet:?xt=urn:btih:E30AADA1C2B9F55F582E4864482BFBEB2891810D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:E30AADA1C2B9F55F582E4864482BFBEB2891810D
 ```bash
 magnet:?xt=urn:btih:9004B5635025169D42A0ACE77C18EEC19460AF24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ Fedora — дистрибутив Linux, спонсируемый фирмой R
 ```bash
 magnet:?xt=urn:btih:44F7595E87EF0D1C5EAE4A82D3F571BCCD4958F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:44F7595E87EF0D1C5EAE4A82D3F571BCCD4958F9
 magnet:?xt=urn:btih:88A988B2DAD2C08DF8D8AD92FEB3B126B77698A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ VA - This Is My Church Vol.2: The Lounge Edition (2016) [MP3|320 Kbps] <Downtemp
 ```bash
 magnet:?xt=urn:btih:990D4489C6BBCD8D919A125E6A48AA9C7E5F5285
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ VA - You and Me - Special Lounge (2022) [AAC|~302 Kbps] <Lounge, Chill Out, Down
 magnet:?xt=urn:btih:7D97B095D2CC7B7183B42733CC44D6546426948A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ Skype - бесплатная программа для текстового, г�
 magnet:?xt=urn:btih:AFFFD28FD2592020E1D648E64DA7D13F26703E34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ Arkane Studios | Артбук по играм студии Arkane / The Art of A
 ```bash
 magnet:?xt=urn:btih:D45420F2C67C1797319706CACD6197DEBE9A7CAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ Somniae Status - Cassandra (2003) [FLAC|Lossless|image + .cue] <Progressive Meta
 magnet:?xt=urn:btih:61E5F6577CB78E581140555906C1B31EEDBEF5BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ Crysis 2 Remastered (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.01] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:AE9A04FEAFBD6F61C36508BB4958D35E404047C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +537,8 @@ magnet:?xt=urn:btih:AE9A04FEAFBD6F61C36508BB4958D35E404047C6
 magnet:?xt=urn:btih:09410370CD47262C67F58FA2864730DD4664AE85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ Flyingbee Reader делает работу с pdf на Mac проще, чем к
 ```bash
 magnet:?xt=urn:btih:6B15B8D728F9E06CD9170DDFC80DC1C389AC9C27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ Age Of Ruin - 2 Albums (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death 
 magnet:?xt=urn:btih:E752DAE7AB6E08EF6E3A8470097A5318E1C1DF15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +621,8 @@ The Manic Blues - Out of Nowhere (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Blues Ro
 magnet:?xt=urn:btih:9D799289FEA24974574BFA671340C275518E6E6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +647,8 @@ magnet:?xt=urn:btih:9D799289FEA24974574BFA671340C275518E6E6B
 magnet:?xt=urn:btih:54FCBBE79DD74338706141CCE1CDFA51BBDDA187
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +672,8 @@ magnet:?xt=urn:btih:54FCBBE79DD74338706141CCE1CDFA51BBDDA187
 ```bash
 magnet:?xt=urn:btih:08C39410F08D40A62A75D34A20F44DB9C6E2B701
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -651,6 +701,8 @@ VA - Armada Deep House Selection Vol.15 (The Finest Deep House Tunes) (2016) [MP
 ```bash
 magnet:?xt=urn:btih:132E069B67700532DA4B87709C235682BD63C988
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

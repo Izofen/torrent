@@ -20,6 +20,8 @@ MahJong Suite 2012 {v9.0} [En] (P) 2012 | THETA
 magnet:?xt=urn:btih:8452FE0337B2775FB8A5852E4363407E8E1DAE2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Shortline [En] (RePack) 1992 | Pilotus
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Ravenswatch - хардкорное приключение, в котором п�
 magnet:?xt=urn:btih:305E319EEC04CDC9064AC971E56978A9DD549C2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Fireburst – зажигательная гоночная игра, в кото�
 ```bash
 magnet:?xt=urn:btih:F89105270EBE329959CB1FE01C6708B64D7EB013
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Humans Коллекция [En] (RePack) 1993-1994 | Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Jungle Strike – это доведенный до ума Desert Strike, пус�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Insanely Twisted Shadow Planet (RePack) [Ru/En] 2012 | R.G. Origami
 magnet:?xt=urn:btih:8C45FAA0930A684A9C1FC7A340E02E3A9C6571AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Ember Knights (2023) [Ru/Multi] (2.0.0.b4510/dlc) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:E7DFA29EA8B7A0B087E23C3B54173B33F484C575
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:E7DFA29EA8B7A0B087E23C3B54173B33F484C575
 magnet:?xt=urn:btih:00BC863288DD5F7F08181008909E4D143B031447
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Human: Fall Flat – приключенческая головоломка с п
 ```bash
 magnet:?xt=urn:btih:9D61BAE030026D4169C86A7B76F99C5184BCCFBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Asterix & Obelix: Slap them All! представляет знаковых пе�
 magnet:?xt=urn:btih:22D07D1353DEA3DB367B3B28455D5BE397B8C6A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Pizza Possum - это забавная аркада с поддержкой ко
 ```bash
 magnet:?xt=urn:btih:B4FAF24044532275713B98CA6CFA5001BE3B6E8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Cavern of Dreams (2023) [En] (7.5) License GOG
 magnet:?xt=urn:btih:0A5CC1599D1633F51B0A4FD9FBE387CB48807C4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Penny's Big Breakaway - это яркий 3D-платформер с иннов�
 ```bash
 magnet:?xt=urn:btih:0B6698D5D5C3DD307DF8FB12F63E2454CBB47864
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Song of Nunu: A League of Legends Story (2023) [Ru/Multi] (20231130) Scene Tenok
 magnet:?xt=urn:btih:6EE70EB001242D907E72476F4AFAF1D6D207F22C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Besiege - это основанная на физике игра, в котор�
 ```bash
 magnet:?xt=urn:btih:AD857C408F1CE143DEE409F27341E35ACC2BCEF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Heretic's Fork представляет собой не вполне станд�
 magnet:?xt=urn:btih:49267F0FE52E7BE39B8BE24A6395B193C772488E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Killer Instinct возвращается, и готова привлечь ка�
 ```bash
 magnet:?xt=urn:btih:C0DFCF504C2C00387CA9F55E4840DE9E40435343
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ Neon Tail (2024) [Multi] (1.0.0.100) Repack FitGirl
 magnet:?xt=urn:btih:479C7971C1C53415E6BCC7983240463039CA9FFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Touhou Danmaku Kagura Phantasia Lost - это ритм-игра, построе�
 ```bash
 magnet:?xt=urn:btih:EBE3BA793507DB32648E26C5F144A381887D12D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ DRAGON QUEST BUILDERS (2024) [Multi] (1.0/dlc) Repack FitGirl
 magnet:?xt=urn:btih:B66903FCEA751379E13D656802D7B026B2E0564D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Try to Survive Today / Попробуй выжить сегодня (2023) [Ru] 
 ```bash
 magnet:?xt=urn:btih:29AF84021325FEBADE22F70D328B1C6067ADECB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Chambers of Devious Design (2022) [Ru/Multi] (1.3.0b) License GOG
 magnet:?xt=urn:btih:949A49D7E1BED6980EAA46251C2DB9831557E29A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Bomb Rush Cyberfunk (2023) [Ru/Multi] (1.0.20385) License GOG
 ```bash
 magnet:?xt=urn:btih:441EED8154CB032C0F75EFBECEACB50B5F4B3D9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Inspector Gadget - Mad Time Party / Инспектор Гаджет – Безу
 magnet:?xt=urn:btih:52E70ACB81B57D09511B2BE83BFADA0C0F0A1FAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Tekken 8 - продолжение культового файтинга, нап�
 ```bash
 magnet:?xt=urn:btih:39C7E17EBC2D1EA4972E5C4845CA3A676C163328
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

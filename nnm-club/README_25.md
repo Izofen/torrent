@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5D809DE0CAE0358BC42153E6D7FC20DB807DB899
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:5D809DE0CAE0358BC42153E6D7FC20DB807DB899
 magnet:?xt=urn:btih:0ABE56FAE4413FF263B6AB515AAF16D273195C99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:0ABE56FAE4413FF263B6AB515AAF16D273195C99
 ```bash
 magnet:?xt=urn:btih:D6534BA19B4370B0E1D7614CBF6EC008C1EAA91F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Google сделала самый прозрачный намёк на то, чт
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Google сделала самый прозрачный намёк на то, чт
 ```bash
 magnet:?xt=urn:btih:2E96EA3B34244C6E5A53C6692AAC0682C16F382A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:2E96EA3B34244C6E5A53C6692AAC0682C16F382A
 magnet:?xt=urn:btih:803D07829DFF03629221DE072A7AA2835CFD883F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:803D07829DFF03629221DE072A7AA2835CFD883F
 ```bash
 magnet:?xt=urn:btih:B7E249B0F550A73D64BC75AFAB58C48AD7D63CB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:B7E249B0F550A73D64BC75AFAB58C48AD7D63CB5
 magnet:?xt=urn:btih:95EA1E41B9DB8D03FE39443211C5487D377331C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Tougen Anki | Legend of the Cursed Blood | Тёмный демон [2025, TV, 12
 ```bash
 magnet:?xt=urn:btih:38FFD722EBFA37EB715EDA0F7474B113457366A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Anne Shirley | Энн Ширли [2025, TV, 24 эп.] WEBRip 720p raw
 magnet:?xt=urn:btih:98AA9F87BC8C8DF4C8E70974E11ED961CA65CB29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Silent Witch: Chinmoku no Majo no Kakushigoto / Secrets of the Silent Witch / М
 magnet:?xt=urn:btih:515285BFDF9F9ACE61B8A51F980CB13D5AC07A48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ TurretGirls предлагает управлять оперативником �
 ```bash
 magnet:?xt=urn:btih:D6A695949AD5451BA954D07B36CCCF494DCA85A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:D6A695949AD5451BA954D07B36CCCF494DCA85A4
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:D6A695949AD5451BA954D07B36CCCF494DCA85A4
 ```bash
 magnet:?xt=urn:btih:366A50029B1653282CB0486130EFF3910CFC4CFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:366A50029B1653282CB0486130EFF3910CFC4CFF
 magnet:?xt=urn:btih:75ADE72F7556298D20C567C8D5607CCA312DD44A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Victoria 3 - прямой сиквел одноименной игры, где �
 ```bash
 magnet:?xt=urn:btih:341DA446622173A4A082294B8DC206360D1B5A31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:341DA446622173A4A082294B8DC206360D1B5A31
 magnet:?xt=urn:btih:8028D8FFA284E6051F48210637F97474C2208417
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:8028D8FFA284E6051F48210637F97474C2208417
 ```bash
 magnet:?xt=urn:btih:F9019DAB4326EB4D7FF98408B6FEE15A05D41030
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:F9019DAB4326EB4D7FF98408B6FEE15A05D41030
 magnet:?xt=urn:btih:5FC28059E2242B9D692321DB862E54B6F36F936B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:5FC28059E2242B9D692321DB862E54B6F36F936B
 ```bash
 magnet:?xt=urn:btih:E995B025BADE2FF73D047806497D5602D3DC1A50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:E995B025BADE2FF73D047806497D5602D3DC1A50
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Undead West - это «пулевой ад» с элементами «рога�
 ```bash
 magnet:?xt=urn:btih:297702138D89F6881D51F04C965A28835639E329
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:297702138D89F6881D51F04C965A28835639E329
 magnet:?xt=urn:btih:2B4042CB7AA2817E5FB8F7143618EB4B70FC9C64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:2B4042CB7AA2817E5FB8F7143618EB4B70FC9C64
 ```bash
 magnet:?xt=urn:btih:5AB63EFEB9C54A6C37737C5336C9611455929FD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:5AB63EFEB9C54A6C37737C5336C9611455929FD1
 magnet:?xt=urn:btih:BE105780DA347D533973667D52AB5D0FEA1E1CE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:BE105780DA347D533973667D52AB5D0FEA1E1CE9
 ```bash
 magnet:?xt=urn:btih:36AECC0B4391A2502D3327BDEA6D4247C8A614BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

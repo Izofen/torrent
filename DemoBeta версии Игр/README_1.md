@@ -19,6 +19,8 @@ Timberborn (2021) [Ru/Multi] (0.7.10.2-5762fd5-gw) License GOG [Early Access]
 magnet:?xt=urn:btih:1C82AE562162C6110DBEB56C61424CDFCDFA5263
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Banquet for Fools (2024) [En] (3.02) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:1F35D13489E2AA52AAB8BE03FEA695026400CBD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Xenonauts 2 (2023) [Ru/Multi] (5.38.1) License GOG [Early Access]
 magnet:?xt=urn:btih:4B111CF376D8BF7A18B190505583712CC78EA6AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Lightyear Frontier (2024) [Ru/Multi] (0.5.1593) Repack Pioneer [Early Access]
 ```bash
 magnet:?xt=urn:btih:B7F36E52194CD161A4319BF44E0D8F4E23624FA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ STONKS-9800: Stock Market Simulator (2023) [Multi] (0.6.2.19) License GOG [Early
 magnet:?xt=urn:btih:D6DDD369302BE97FAF91CC9285E131B018D293C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ An Amazing Wizard - это 2D-рогалик с быстрым темпом иг
 ```bash
 magnet:?xt=urn:btih:1ACAB41628DF07BEC7BA181D1A87897785FB5ADF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Astro Colony – симулятор с элементами песочницы, 
 magnet:?xt=urn:btih:30994CB11EC03898651143C34B28BE0922583285
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Tormented Souls 2 (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay [Demo]
 ```bash
 magnet:?xt=urn:btih:07304F6AB9B6566CC64417E6E611D4CD783DF8B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Morbid Metal - это экшн-rogue-lite, в котором игроки мог
 magnet:?xt=urn:btih:BFEF44E1B16752EA28D7BB3AC0F0860DAF721D6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Hellish Quart – реалистичный файтинг с использов�
 ```bash
 magnet:?xt=urn:btih:0BBD1E6D4155DE46F573C50E294425072AA6652F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ QBoard (2025) [En] (0.9.9.3) License
 magnet:?xt=urn:btih:EC72CA4DC92CF493745E61D37C7CD47E0231929D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Synchro - пошаговая RPG о борьбе со зловещей корп�
 ```bash
 magnet:?xt=urn:btih:10C19844E1BE0304A20F5646B4F2F24445939DBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Lethal Company - захватывающая кооперативный хорр�
 magnet:?xt=urn:btih:EC1783BEF1FFE4DE7C94DAC23DEBEDFB74CAFEC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ inZOI - игра в жанре симулятора жизни, в которо�
 ```bash
 magnet:?xt=urn:btih:A023C264D66EF87C63DB1F07BA35FE040B34B7BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Space Haven (2020) [Ru/Multi] (0.20.0.29) License GOG [Early Access]
 magnet:?xt=urn:btih:2B6F65F0C1AAE7407FD65C43E4579BFFB9AF6E25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Terra Invicta (2022) [Multi] (0.4.90) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:D1B04B8039621926F1BBF39003ADA24B555C8D5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Occupy Mars: The Game (2023) [Ru/Multi] (0.199.7) License GOG [Early Access]
 magnet:?xt=urn:btih:B5F5CA75BD2BB2ECF1F8F9E73A76ED4B6BB9CB39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ The Killing Antidote - шутер от третьего лица с элемен
 ```bash
 magnet:?xt=urn:btih:50378C03E3E89ECF28A2A41F2169BF71F63E8A04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ SpaceEngine - научно достоверный и фотореалистич�
 magnet:?xt=urn:btih:08161DA522BFD72B6423407AA92D018952951188
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Phasmophobia – психологический хоррор с наличием
 ```bash
 magnet:?xt=urn:btih:0592B22F3DFAFC50C89DFB50835C7383016815DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Volcanoids – игра в стиле стимпанка, где все дейс
 magnet:?xt=urn:btih:A2F87D1831A70A3D253695A2BFBD06E5C50D7BFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Scarlet Hollow – приключенческая хоррор-игра, что 
 ```bash
 magnet:?xt=urn:btih:4F432AA10CF2F636F824268A0831232B6727E255
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ inZOI - игра в жанре симулятора жизни, в которо�
 magnet:?xt=urn:btih:F6EC9F419A2225DE662016E2D328D3E2523FD64C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Drive Beyond Horizons (2025) [Ru/Multi] (911) Repack Other s [Early Access]
 ```bash
 magnet:?xt=urn:btih:92974D7713C8AEDEC2C5DE0640AD7A0559A52541
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Necesse - это приключенческая игра-песочница с �
 magnet:?xt=urn:btih:9D781E493C4722D3D295E0186C24A4F2BA27EA58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Total Conflict: Resistance (2023) [Ru/Multi] (0.96.0/dlc) Repack Let'sРlay [Ear
 ```bash
 magnet:?xt=urn:btih:29C77A969F3AE133617A2EAB86A267A44134C562
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:666DB9830C6206D3F734BD4480BA98C7B3936275
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Fliper — это дружелюбный шрифт без засечек, ко�
 ```bash
 magnet:?xt=urn:btih:F3970591C09B0B4E41F984B4E97EBD7176FDA956
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ PODIUM Sharp — это расширенная версия шрифта DUDU, �
 magnet:?xt=urn:btih:3A3003B601789B9A3236BA11352E2565389843D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Fondamento и Fondamento Italic — это каллиграфические ст
 magnet:?xt=urn:btih:396A2EC6CA6DDBE18DFD5227FFDB364DC193678A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:396A2EC6CA6DDBE18DFD5227FFDB364DC193678A
 magnet:?xt=urn:btih:35BF8FA8692BB81D7265D3E3CA5C5147E6CA1401
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:35BF8FA8692BB81D7265D3E3CA5C5147E6CA1401
 ```bash
 magnet:?xt=urn:btih:0D9732889B199D849DEA0C08CBB83BAA4284F52C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ Bugleboy начинался как оцифровка киношного шри�
 magnet:?xt=urn:btih:6E747D20903401A14C64FFE15C71DCA0FAB2BF42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:6E747D20903401A14C64FFE15C71DCA0FAB2BF42
 ```bash
 magnet:?xt=urn:btih:D02C479AC558185E0232D5B753AC0A65396374BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:D02C479AC558185E0232D5B753AC0A65396374BA
 magnet:?xt=urn:btih:2B7AD925FB3AD7CBD36B2C3455F7B7162684C76C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ magnet:?xt=urn:btih:2B7AD925FB3AD7CBD36B2C3455F7B7162684C76C
 magnet:?xt=urn:btih:B1403DB962FC484E694CE958B863B6FD522B43EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:B1403DB962FC484E694CE958B863B6FD522B43EB
 ```bash
 magnet:?xt=urn:btih:2679E2AD10951D59D7F21B6C37AFD3C11FCB1E2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ Hefton Typeface — это тщательно созданный лигатур�
 magnet:?xt=urn:btih:DD4F0CC9D98AE22CC489C6D677E5D67BE399211C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ Mediena — элегантный и смелый шрифт с засечкам�
 magnet:?xt=urn:btih:33EE8BE7195A28D55BA5D9D66BC5569B08B7C142
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ magnet:?xt=urn:btih:33EE8BE7195A28D55BA5D9D66BC5569B08B7C142
 ```bash
 magnet:?xt=urn:btih:D0433E38DE21FE955555461B64BCF69994E2EEEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +406,8 @@ magnet:?xt=urn:btih:D0433E38DE21FE955555461B64BCF69994E2EEEC
 magnet:?xt=urn:btih:362AD9F270516678431FE3B7816D48DD2A2A706C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ Type Ultimate — изысканный шрифт с засечками, соч�
 ```bash
 magnet:?xt=urn:btih:6C0D73DFA2DA4A23D6B5A3F031765B51749901B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +462,8 @@ magnet:?xt=urn:btih:6C0D73DFA2DA4A23D6B5A3F031765B51749901B2
 magnet:?xt=urn:btih:642DCE5206A7C18A60AFA2B4A35F13A49363A2EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ magnet:?xt=urn:btih:642DCE5206A7C18A60AFA2B4A35F13A49363A2EB
 ```bash
 magnet:?xt=urn:btih:01D9F6D3905A95CC934879906E54EE87FE052947
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +516,8 @@ Cowboy Pixel — уникальный пиксельный шрифт в сти�
 magnet:?xt=urn:btih:F47F1DFB0995CF606E8F2B71895C7F1324F99198
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ magnet:?xt=urn:btih:F47F1DFB0995CF606E8F2B71895C7F1324F99198
 magnet:?xt=urn:btih:0B0529579BAB80468FD67BB3AFE1EDE98B7CECC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +569,8 @@ magnet:?xt=urn:btih:0B0529579BAB80468FD67BB3AFE1EDE98B7CECC0
 ```bash
 magnet:?xt=urn:btih:17CAEE3AA935DB5216D9C21E07F9855DF6CCDB9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +599,8 @@ magnet:?xt=urn:btih:17CAEE3AA935DB5216D9C21E07F9855DF6CCDB9E
 magnet:?xt=urn:btih:190DEE83394B65F16C9F0E2AAEF1EB0617546C56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +624,8 @@ magnet:?xt=urn:btih:190DEE83394B65F16C9F0E2AAEF1EB0617546C56
 ```bash
 magnet:?xt=urn:btih:5DBFFAA2887C4C44A11118836DDC340C66122F9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +653,8 @@ STH Tyranes - органический готический шрифт, вдох
 magnet:?xt=urn:btih:A0DA1A98DE37381C9123D55C25C3471B8E39BBB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +681,8 @@ Awesome Script — современный и динамичный шрифт, к
 magnet:?xt=urn:btih:AF7E099D2EEB411CDD619F13DE61C5547BC7CF99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +708,8 @@ magnet:?xt=urn:btih:AF7E099D2EEB411CDD619F13DE61C5547BC7CF99
 ```bash
 magnet:?xt=urn:btih:4B81491F379D3105A697DAA53B4172FFBEC5BBED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

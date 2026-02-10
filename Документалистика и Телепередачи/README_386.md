@@ -1,3 +1,30 @@
+###  Публикация: 534152   (521348) от 12.08.2012
+
+Воины мира. Самураи (2011) SATRip
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Воины духа (Самураи — воины восходящего солнца)
+Самурай всегда должен быть готов к внезапному и трагическому концу, вся его жизнь - постоянное напоминанием об этом. Какой бы мирной ни была эпоха, в которую живет самурай, смерть — его главная движущая сила. Если самурай боится или избегает смерти, он перестает быть самураем. Таков кодекс чести самурая - Бусидо. Бусидо предписывало самураю действовать по приказу не раздумывая - думал «за него» господин. Чтобы воин преодолел страх смерти, его учили пониманию того, что его жизнь не принадлежит ему самому. Жизнь самурая принадлежит тому, кому он служит – его императору и его господину. Воин должен служить своему господину в мирной жизни, защищать на войне. Собственная жизнь не имела значения. Если умирал господин, самурай должен был отправиться вслед за ним.Жанр: ДокументальныйПеревод: РусскийПродолжительность: 00:37:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6845EF415EB6C874F8F534E025BDF61A495C0BAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 534207   (521433) от 12.08.2012
 
 Воины мира. Русская борьба  (2011) SATRip
@@ -19,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:5D1BA3F953E762C13514FD14F4DD972FC7C463B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +74,8 @@ magnet:?xt=urn:btih:5D1BA3F953E762C13514FD14F4DD972FC7C463B7
 magnet:?xt=urn:btih:0DA84E108B7BAA99080C97D73A98C0A8369C99AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +101,8 @@ magnet:?xt=urn:btih:0DA84E108B7BAA99080C97D73A98C0A8369C99AC
 magnet:?xt=urn:btih:832ABE1A0434B5F9CCC4B9F9017CCFB8A37B3170
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +126,8 @@ magnet:?xt=urn:btih:832ABE1A0434B5F9CCC4B9F9017CCFB8A37B3170
 ```bash
 magnet:?xt=urn:btih:09F93C64F86B436C8D838C4D436D63A779BEA4C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +153,8 @@ magnet:?xt=urn:btih:09F93C64F86B436C8D838C4D436D63A779BEA4C9
 magnet:?xt=urn:btih:3E9A589FB55A97C628092245FDEC5D8C15817290
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +178,8 @@ magnet:?xt=urn:btih:3E9A589FB55A97C628092245FDEC5D8C15817290
 ```bash
 magnet:?xt=urn:btih:BBC9FD0CDBA9CDB2726904FC44588EB1C4FAB9C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +205,8 @@ magnet:?xt=urn:btih:BBC9FD0CDBA9CDB2726904FC44588EB1C4FAB9C4
 magnet:?xt=urn:btih:F4991B77936B9D60CC7BABCB8263CBBC10F8F4DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +230,8 @@ magnet:?xt=urn:btih:F4991B77936B9D60CC7BABCB8263CBBC10F8F4DE
 ```bash
 magnet:?xt=urn:btih:C52C2F6B5C5CBC9D7084C8AF4810888AC7D985B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +257,8 @@ magnet:?xt=urn:btih:C52C2F6B5C5CBC9D7084C8AF4810888AC7D985B7
 magnet:?xt=urn:btih:7F6B3C37A48B1FE7B67E12F7C0CE041EA75F3628
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ magnet:?xt=urn:btih:7F6B3C37A48B1FE7B67E12F7C0CE041EA75F3628
 ```bash
 magnet:?xt=urn:btih:8DE9249F5AA4FBCD722E2FCFB43A9EECEEE0AA3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +309,8 @@ magnet:?xt=urn:btih:8DE9249F5AA4FBCD722E2FCFB43A9EECEEE0AA3D
 magnet:?xt=urn:btih:FC708135FBE235FFF818D34A5D5CD60E2C3F2463
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +334,8 @@ magnet:?xt=urn:btih:FC708135FBE235FFF818D34A5D5CD60E2C3F2463
 ```bash
 magnet:?xt=urn:btih:B0E3D6030C6B4BDD29EADBB3DF85F603CAA87CF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +361,8 @@ magnet:?xt=urn:btih:B0E3D6030C6B4BDD29EADBB3DF85F603CAA87CF1
 magnet:?xt=urn:btih:9CBF2AE20296F6060F99C930906DE72D7EB456C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +386,8 @@ magnet:?xt=urn:btih:9CBF2AE20296F6060F99C930906DE72D7EB456C1
 ```bash
 magnet:?xt=urn:btih:A0614EF1D6A33F39D4C8C5858DCDE38CFFF31EA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +413,8 @@ magnet:?xt=urn:btih:A0614EF1D6A33F39D4C8C5858DCDE38CFFF31EA5
 magnet:?xt=urn:btih:AB2522ED982C4471F673FA98D376E22E94F24C8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +438,8 @@ magnet:?xt=urn:btih:AB2522ED982C4471F673FA98D376E22E94F24C8C
 ```bash
 magnet:?xt=urn:btih:3B93E4618EA1B0C9F385C8DB8076726F75D06EAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +465,8 @@ magnet:?xt=urn:btih:3B93E4618EA1B0C9F385C8DB8076726F75D06EAA
 magnet:?xt=urn:btih:43CAA9823C2A4175FDF1396B93AD629D120242BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +490,8 @@ magnet:?xt=urn:btih:43CAA9823C2A4175FDF1396B93AD629D120242BA
 ```bash
 magnet:?xt=urn:btih:DE112A6C91529D3F0D25FA1901076ACAEFC3720E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +517,8 @@ magnet:?xt=urn:btih:DE112A6C91529D3F0D25FA1901076ACAEFC3720E
 magnet:?xt=urn:btih:C750537BAFED4AAD75F7457C3EF0FE78585C8D24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +542,8 @@ magnet:?xt=urn:btih:C750537BAFED4AAD75F7457C3EF0FE78585C8D24
 ```bash
 magnet:?xt=urn:btih:B295D9A7B1982393CCE913AFE3EB9722E39FEC79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +569,8 @@ magnet:?xt=urn:btih:B295D9A7B1982393CCE913AFE3EB9722E39FEC79
 magnet:?xt=urn:btih:1F5B610E7D4E4AAF56ECEC499EE41E3F9AB88893
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +595,8 @@ magnet:?xt=urn:btih:1F5B610E7D4E4AAF56ECEC499EE41E3F9AB88893
 magnet:?xt=urn:btih:1C228E9F97852C8C9F6893D3465265347979896B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +620,8 @@ magnet:?xt=urn:btih:1C228E9F97852C8C9F6893D3465265347979896B
 ```bash
 magnet:?xt=urn:btih:8013CA4D3EC76201D3ED09838FE163CB17A65194
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +648,8 @@ magnet:?xt=urn:btih:8013CA4D3EC76201D3ED09838FE163CB17A65194
 magnet:?xt=urn:btih:B77301FC8D8CACBF2A2EC3CF7662F6036EF756D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,29 +674,7 @@ magnet:?xt=urn:btih:B77301FC8D8CACBF2A2EC3CF7662F6036EF756D7
 magnet:?xt=urn:btih:61FCAABE82DDA1E9B5AFD900F7041A02B6367FD4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240725   (523530) от 13.08.2018
-
-Пирамида (2018) DVB [H.264/1080i-LQ]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523530.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Деньги за час", "Экспресс- займ", "Альянс-деньги", а еще "Криптобанк", "Криптопомощь" – и еще сотня-другая фирм и фирмочек по всей стране. Как только пирамидостроители не называли свой 101-й "относительно честный способ отъема денег у населения": кредитно-потребительский кооператив, микрофинансовая организация, (   Читать дальше...   )Телекомпания: Россия / ВГТРКЖанр: Документальный, ИсторияСубтитры: отсутствуютПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05C7BC12B03B01EDA4E1E5794AB0A56EDD1262BA
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5AD2A148493622D8E0B9CE328DBB26C64E826597
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:5AD2A148493622D8E0B9CE328DBB26C64E826597
 ```bash
 magnet:?xt=urn:btih:426852E1FF56506F4418CF6C70430A1B7AC22069
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:426852E1FF56506F4418CF6C70430A1B7AC22069
 magnet:?xt=urn:btih:378B417C0B49930DE2AD4E41B5BB58C90755E940
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ BBC. Самые умные животные / Super Smart Animals (2012) SATRip 
 ```bash
 magnet:?xt=urn:btih:1606E00E58B3AA764C4127A9369B9D7DB146601A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ BBC: Всё, что мы знаем о Вселенной, неверно? / BBC
 magnet:?xt=urn:btih:06E9B3B5EDC28F4FD1813D2D7F3BB3EF603CE3F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ BBC: Как устроена Земля [2 из 2] / Earth Machine (2011) SATRip
 ```bash
 magnet:?xt=urn:btih:1F0CCB1B92EFB48C1A1213E4E1FA86F14796BEFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ BBC: Корень всех зол? [2 серии] / The Root of All Evil? (2006)
 magnet:?xt=urn:btih:BF2C8CD32045C4FB6F87B72E6E2BFC1561F3C931
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ BBC. Мир природы. Лобо. Волк, который изменил А
 ```bash
 magnet:?xt=urn:btih:1F6C8E0B8C644F8E7B89252478D06233052FCD84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ BBC: Погружение на Галапагосах (Подводный мир
 magnet:?xt=urn:btih:C3100037458606EFCC2456E48354ED3581BAC375
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:C3100037458606EFCC2456E48354ED3581BAC375
 ```bash
 magnet:?xt=urn:btih:097D8D33C21ACD551FE8931E8F102BB8F4BE6A10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ BBC. Тигр: Шпион джунглей / Tiger: Spy in the Jungle (2008) WEB
 magnet:?xt=urn:btih:414DCB42E0709E9291F27374D0EA764AAAD03E0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ BBC. Как устроены шикарные отели. Hacienda Hotel Vira Vi
 magnet:?xt=urn:btih:3342106AFF103A30D51BB38C7BC57206E29C129D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ BBC: Грязные города. Средневековый Лондон [ча�
 ```bash
 magnet:?xt=urn:btih:7B0CCB5297466AEE361FE889951125855E611131
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ BBC: Белый медведь - Шпион во льдах / BBC: Polar Bear - 
 magnet:?xt=urn:btih:37FCE2FB50CF148DB05E35999AF8327F6CA83F4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ BBC. Horizon: Путешествия во времени (2003) SATRip
 ```bash
 magnet:?xt=urn:btih:38E410810CBA5ABB7C90A50E127FE7FF9039242E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ BBC: Скрытые убийцы в домах послевоенного вре
 magnet:?xt=urn:btih:B7B1201A46017985AC17999B8D1D382B003DE50E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ BBC. Всё о мире обезьян / Monkeys Revealed (2014) HDTVRip (сер
 magnet:?xt=urn:btih:F09C9A39DCE1CA6A8F3FB8C20DFEF568ECCAEB8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ BBC Earth. 8 дней до Луны и обратно / 8 days to the Moon and b
 ```bash
 magnet:?xt=urn:btih:2DDDA67005DBEE323DCD45D5A750C5DEF8D2959D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ BBC: Происхождение человека [3 серии] / Origins of Us 
 magnet:?xt=urn:btih:F3A1797D2BF8A2F6A2B66F9F31356BD833B479DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ BBC. Horizon: Не верь глазам своим / Is Seeing Believing? (2010
 ```bash
 magnet:?xt=urn:btih:7EFD5E930783025385A96A2B75243E8ECA0D6AB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ BBC. Тайны мозга. Патология / The Brain: A Secret History. Br
 magnet:?xt=urn:btih:37B8AA6398811316A457C614E06B0466D2F34B3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ BBC: Амазонка - Великая река мира / BBC: Amazon: super ri
 ```bash
 magnet:?xt=urn:btih:9656CC3494785917FCC3B00D07CCDA09922C9FD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ BBC: История хирургии. Запасные части [3 из 5] / B
 magnet:?xt=urn:btih:4D6D245575586ED151CA3335A883DB912A029181
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ BBC: Египет. Тайны, скрытые под землей. Часть 2 
 ```bash
 magnet:?xt=urn:btih:271B848044BA1BAC83230A1652F14C5D794C4FE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:271B848044BA1BAC83230A1652F14C5D794C4FE5
 magnet:?xt=urn:btih:F4DE944238D9A89200ED3852F01032F7D5BD387E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ BBC. США: Великая история и большое надувател�
 ```bash
 magnet:?xt=urn:btih:80B9C31CBC979033EFD82E427DFC73762F8DB9F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

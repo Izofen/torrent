@@ -19,6 +19,8 @@ NGW: 700 Акул / 700 Sharks (2018) WEBRip [H.264/1080p]
 magnet:?xt=urn:btih:A1F1D94051C32657623FA6FDB6E97F6B4B8F506C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ GPU Caps Viewer - информационная утилита, позволяю�
 ```bash
 magnet:?xt=urn:btih:18BC62B5A326A60CD81E0CDB62E2A9EA120E6D2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:18BC62B5A326A60CD81E0CDB62E2A9EA120E6D2B
 magnet:?xt=urn:btih:069591B2310F51A848C2814E687C53258F0ED1C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Christmas - праздничная открытка для Рождествен�
 ```bash
 magnet:?xt=urn:btih:FFC613E6B600758EAAC7B7880753F742F489BA95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:FFC613E6B600758EAAC7B7880753F742F489BA95
 magnet:?xt=urn:btih:70A04702F9BE237333A913D2B9505E2F5321FB3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:70A04702F9BE237333A913D2B9505E2F5321FB3B
 ```bash
 magnet:?xt=urn:btih:03E8307AFC50A509D50EEBC6126A0A7FD9FA9331
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:03E8307AFC50A509D50EEBC6126A0A7FD9FA9331
 magnet:?xt=urn:btih:E625E3857E324D54F83A7271FAB20731127FB26E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ VA - Tangled Audio Best Of 2015 (Mixed by Luigi Palagano) (2015) [MP3|320 кб/�
 magnet:?xt=urn:btih:70E9A292D4CBCD635FB5B5A60B8A87289C145AEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:70E9A292D4CBCD635FB5B5A60B8A87289C145AEE
 ```bash
 magnet:?xt=urn:btih:54A86C74AE7449AC1820AE6C6419D0C0C2F7AA47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:54A86C74AE7449AC1820AE6C6419D0C0C2F7AA47
 magnet:?xt=urn:btih:7E3952FCDF9EBEF27899FEA9A800D5B5BD81A202
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:7E3952FCDF9EBEF27899FEA9A800D5B5BD81A202
 ```bash
 magnet:?xt=urn:btih:0E762AAB7366E14A9C2D2EDE782436C8DE85C169
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ VA - Ambient Soundscapes (2023) [MP3|320 Kbps] <Ambient, Downtempo, Relax>
 magnet:?xt=urn:btih:EAD0062B42FC4F0798EFCAAC5C38A4F90E2BB8B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:EAD0062B42FC4F0798EFCAAC5C38A4F90E2BB8B6
 ```bash
 magnet:?xt=urn:btih:552C6C7C79B7915C2E9025A99420D29E52EEAD06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ A3. Suzie Q (8:39)(   Читать дальше...   )Производство: 
 magnet:?xt=urn:btih:7CFCC2E0C2D272E01C5CF01265553FCC60E3C261
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:7CFCC2E0C2D272E01C5CF01265553FCC60E3C261
 magnet:?xt=urn:btih:94A40E137769FD32CA94FECAE33049C8A2BB1AC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:94A40E137769FD32CA94FECAE33049C8A2BB1AC2
 ```bash
 magnet:?xt=urn:btih:59E3D1DDDF1C33338CD1E3832E514E14934A3436
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +454,8 @@ Papers, Please 1.1.65 (2013) [Multi/Ru] [macOS Native game]
 magnet:?xt=urn:btih:0DE55D0491F593FC1FB796AF44A02F482F50B0F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:0DE55D0491F593FC1FB796AF44A02F482F50B0F8
 magnet:?xt=urn:btih:3491C6D60C43E34784FFD6DCC104F2DB0B39DA84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:3491C6D60C43E34784FFD6DCC104F2DB0B39DA84
 ```bash
 magnet:?xt=urn:btih:E011BAB6135D1FD9154AEEBEAF913D82984A4444
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +535,8 @@ VA - Music News vol.305 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:182FCDDECC2A6993E2FC6F3BA5C8F7F0D4717930
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ magnet:?xt=urn:btih:182FCDDECC2A6993E2FC6F3BA5C8F7F0D4717930
 ```bash
 magnet:?xt=urn:btih:D4BD77C2C468FF877CDDD5481DBDAA6DE47A055B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +590,8 @@ magnet:?xt=urn:btih:D4BD77C2C468FF877CDDD5481DBDAA6DE47A055B
 magnet:?xt=urn:btih:D2363E642219BD39D766ADA113F4918931021F3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ magnet:?xt=urn:btih:D2363E642219BD39D766ADA113F4918931021F3B
 ```bash
 magnet:?xt=urn:btih:9F0062ED9A82D705F72113A4C20B6965B4400EFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +642,8 @@ magnet:?xt=urn:btih:9F0062ED9A82D705F72113A4C20B6965B4400EFD
 magnet:?xt=urn:btih:18E8A56305BAC62903EC6910ECE2DE3307A7EE2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +668,8 @@ magnet:?xt=urn:btih:18E8A56305BAC62903EC6910ECE2DE3307A7EE2E
 magnet:?xt=urn:btih:A447C5F81B57660B1DA65EC5EE1C30D32F0FA8A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ Text Editor Pro 27.7.1 + Portable + Bonus [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0BA6EB23E71EC7FEFEF38663380DDA39EF0D06E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

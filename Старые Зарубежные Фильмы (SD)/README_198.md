@@ -1,27 +1,3 @@
-###  Публикация: 1106302   (871387) от 20.02.2017
-
-Держись подальше от Диабло / Ride Clear of Diablo (1954) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой фильма Клэй ОМара, служит на железной дороге, когда получает письмо из родного городка со страшной вестью — его отец и младший брат погибли от рук неизвестных бандитов. Клэй немедленно отправляется домой, чтобы узнать правду о смерти своей семьи. Однако скоро он понимает, что сделать это будет непросто. Клэю придётся взять правосудие в свои руки, стать (   Читать дальше...   )Производство: США / Universal International Pictures (UI or U-I)Жанр: ВестернРежиссер: Джесси ХиббсАктеры: Оди Мерфи, Сюзан Кэбот, Дэн Дюрьи, Эббе Лэйн, Расселл Джонсон, Пол Бирч, Уильям Пуллен, Джек Элам, Денвер Пайл, Ли АакерПеревод: Одноголосый закадровый (funny77)Язык субтитров: Русский, английскийПродолжительность: 01:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB3521E6A078DEBB46FA671B551BD9B59F6CC37C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 643819   (871521) от 15.04.2013
 
 Отмеченный смертью / Marked for Death (1990) HDTVRip [H.264]
@@ -43,6 +19,8 @@ magnet:?xt=urn:btih:DB3521E6A078DEBB46FA671B551BD9B59F6CC37C
 ```bash
 magnet:?xt=urn:btih:EAF2B8652C1E671C391E75B7F01FF6F3A6C61CAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +46,8 @@ magnet:?xt=urn:btih:EAF2B8652C1E671C391E75B7F01FF6F3A6C61CAC
 magnet:?xt=urn:btih:8D3A5C2A69623B77ED31C17839514F6BD5DA0537
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +71,8 @@ magnet:?xt=urn:btih:8D3A5C2A69623B77ED31C17839514F6BD5DA0537
 ```bash
 magnet:?xt=urn:btih:BE68656C01A9B0A6E5896EDEC471699DDB11BF2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +99,8 @@ magnet:?xt=urn:btih:BE68656C01A9B0A6E5896EDEC471699DDB11BF2F
 magnet:?xt=urn:btih:26D8217DED8E435E3D169B96FF9EDD8DAB33E31A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +124,8 @@ magnet:?xt=urn:btih:26D8217DED8E435E3D169B96FF9EDD8DAB33E31A
 ```bash
 magnet:?xt=urn:btih:25E50207A3A40DC98B58568B8FB322B240B19ECE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +151,8 @@ magnet:?xt=urn:btih:25E50207A3A40DC98B58568B8FB322B240B19ECE
 magnet:?xt=urn:btih:932AA56A9EF5816CD4B3C424B6674D7C1D02D952
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +177,8 @@ magnet:?xt=urn:btih:932AA56A9EF5816CD4B3C424B6674D7C1D02D952
 magnet:?xt=urn:btih:FEBE4B54E6A1FD90023EB70AAE29332AD0940459
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +202,8 @@ magnet:?xt=urn:btih:FEBE4B54E6A1FD90023EB70AAE29332AD0940459
 ```bash
 magnet:?xt=urn:btih:081C695CCC8289D4B3DC233690E184B5EC27CDDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +230,8 @@ magnet:?xt=urn:btih:081C695CCC8289D4B3DC233690E184B5EC27CDDE
 magnet:?xt=urn:btih:113F9A4804785D0EAB924EF9CA8B0D20A32AC063
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +255,8 @@ magnet:?xt=urn:btih:113F9A4804785D0EAB924EF9CA8B0D20A32AC063
 ```bash
 magnet:?xt=urn:btih:7E96BF2EDC0BA604E7792E3A948D0CCF1CF755C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +282,8 @@ magnet:?xt=urn:btih:7E96BF2EDC0BA604E7792E3A948D0CCF1CF755C7
 magnet:?xt=urn:btih:4EFBA55A753497BBAB835CC1B5CBC9D0A5996569
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +307,8 @@ magnet:?xt=urn:btih:4EFBA55A753497BBAB835CC1B5CBC9D0A5996569
 ```bash
 magnet:?xt=urn:btih:3F56E69A624C98926826264B143EAA4B7F60CA63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +334,8 @@ magnet:?xt=urn:btih:3F56E69A624C98926826264B143EAA4B7F60CA63
 magnet:?xt=urn:btih:E2E072384F6694F250F7C0F2C9E323F67DB17C16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +360,8 @@ magnet:?xt=urn:btih:E2E072384F6694F250F7C0F2C9E323F67DB17C16
 magnet:?xt=urn:btih:7BBDC0E99FA72D9299F62FE234E0D6315A82EBD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +385,8 @@ magnet:?xt=urn:btih:7BBDC0E99FA72D9299F62FE234E0D6315A82EBD5
 ```bash
 magnet:?xt=urn:btih:19D89DB22595D52D0B86A45A6A91D7D3BF1BE0A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +413,8 @@ magnet:?xt=urn:btih:19D89DB22595D52D0B86A45A6A91D7D3BF1BE0A5
 magnet:?xt=urn:btih:4366D1FA3628740D1DEF3CE8D212312A8BF4BB37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +440,8 @@ magnet:?xt=urn:btih:4366D1FA3628740D1DEF3CE8D212312A8BF4BB37
 magnet:?xt=urn:btih:3E5C1D8A580E5FD87EED4316B1D30C47D4EC4A38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +465,8 @@ magnet:?xt=urn:btih:3E5C1D8A580E5FD87EED4316B1D30C47D4EC4A38
 ```bash
 magnet:?xt=urn:btih:59A50339186C87BCE93BD892F11779CC2BB599F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +492,8 @@ magnet:?xt=urn:btih:59A50339186C87BCE93BD892F11779CC2BB599F8
 ```bash
 magnet:?xt=urn:btih:85492DC453D1BFFA29FAAB5DFBDF90E8A0AD6EC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +521,8 @@ magnet:?xt=urn:btih:85492DC453D1BFFA29FAAB5DFBDF90E8A0AD6EC2
 magnet:?xt=urn:btih:E999DA2B62AC3DE31960A50F6D9933016ED533C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +548,8 @@ magnet:?xt=urn:btih:E999DA2B62AC3DE31960A50F6D9933016ED533C0
 magnet:?xt=urn:btih:5AC2E8DD500241A37415DFA3BEE4BDC8221910C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +574,8 @@ magnet:?xt=urn:btih:5AC2E8DD500241A37415DFA3BEE4BDC8221910C8
 magnet:?xt=urn:btih:D768A1CF6B612546B738D106A217FC4598CDC864
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +599,8 @@ magnet:?xt=urn:btih:D768A1CF6B612546B738D106A217FC4598CDC864
 ```bash
 magnet:?xt=urn:btih:84F6DB5DD05845EA11A55B13CE538C399E7FC2C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +627,8 @@ magnet:?xt=urn:btih:84F6DB5DD05845EA11A55B13CE538C399E7FC2C2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +652,34 @@ magnet:?xt=urn:btih:84F6DB5DD05845EA11A55B13CE538C399E7FC2C2
 ```bash
 magnet:?xt=urn:btih:9C53DBD7241290CFBF63888E4B7D64AF1A81481A
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997087   (876755) от 15.03.2016
+
+Побег из женской тюрьмы / Le evase - Storie di sesso e di violenze / Escape from Women's Prison (1978) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четверо заключенных-женщин, в том числе левацкая активистка Моника Хадлер, совершают побег из тюрьмы. По пути они захватывают автобус с командой юных теннисисток, направлявшихся на соревнования. Вместе с заложницами они останавливаются на ночь в доме местного судьи, который, по иронии, оказался тем самым, кто когда-то вынес им приговор. Сможет ли полиция напасть (   Читать дальше...   )Производство: Италия / Cinema 13 CooperativaЖанр: Боевик, Драма, Криминал, ЭротикаРежиссер: Джованни Брусадори / Giovanni BrusadoriАктеры: Лилли Карати, Зора Керова, Инес Пеллегрини, Марина Дауниа, Дирче Фунари, Филиппо Де Гара, Ада Пометти, Франко Феррер, Анджела Дория...Перевод: Любительский одноголосый (ССК+)Продолжительность: 01:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E2004CD9ED38A2D489DBC3415C8CFE28BD2BA7D
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

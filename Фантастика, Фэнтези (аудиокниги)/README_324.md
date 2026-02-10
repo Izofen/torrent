@@ -1,3 +1,30 @@
+###  Публикация: 1575189   (379342) от 08.09.2022
+
+Ольга Коротаева | Докопаться до темного, или Архиомагия в действии (2022) [MP3, Ольга Богданова, Алексей Данков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_379342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Найти волшебную лампу? Откопать ковёр-самолёт? Добраться до рога изобилия? Я изучаю историю развития магии с лопатой в руке и неуёмной жаждой к полевой архиомагии! Но куратор попаданок считает мою работу бессмысленной и подаёт прошение о моём возврате. А ведь я только-только нашла своё место в мире чудес и не хочу обратно. Кабинетный червь!
+Мне нужно убедить суд, (   Читать дальше...   )Жанр: Фэнтези, ПопаданцыПродолжительность: 08:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6BADF734628D255F934B6FAB0B296A14D898182
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575165   (379355) от 08.09.2022
 
 Анна Минаева | Тайны академии Грискор (Книга 1). Первая тайна академии Грискор (2022) [MP3, Ульяна Галич]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:F594AA45837454DC5EDC493B4CAF6DC6B9061965
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:F594AA45837454DC5EDC493B4CAF6DC6B9061965
 magnet:?xt=urn:btih:DD86D48D0133132BB19FE57E784FE90E17267A21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +97,8 @@ magnet:?xt=urn:btih:DD86D48D0133132BB19FE57E784FE90E17267A21
 ```bash
 magnet:?xt=urn:btih:DCA6B125A0C3488B1764BFC56868394B802350CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +125,8 @@ magnet:?xt=urn:btih:DCA6B125A0C3488B1764BFC56868394B802350CF
 magnet:?xt=urn:btih:CCA28F854C76189B07B925082790D87EB9D1A70D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +150,8 @@ magnet:?xt=urn:btih:CCA28F854C76189B07B925082790D87EB9D1A70D
 ```bash
 magnet:?xt=urn:btih:2E0A7367A50175815E8381CD7E2C8561216A31BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +177,8 @@ magnet:?xt=urn:btih:2E0A7367A50175815E8381CD7E2C8561216A31BB
 magnet:?xt=urn:btih:B06502C5AD37685ACAE287EFE85B02228A852FBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +202,8 @@ magnet:?xt=urn:btih:B06502C5AD37685ACAE287EFE85B02228A852FBA
 ```bash
 magnet:?xt=urn:btih:1580DFC8F18FAE7F50FAC54E3736FAE409D37DD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +230,8 @@ magnet:?xt=urn:btih:1580DFC8F18FAE7F50FAC54E3736FAE409D37DD2
 magnet:?xt=urn:btih:D6E335B3E298DD6EFB877C2A7CBCE7A18150E664
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +257,8 @@ magnet:?xt=urn:btih:D6E335B3E298DD6EFB877C2A7CBCE7A18150E664
 magnet:?xt=urn:btih:0BC2F4566A64B521B86165737EB73AED8B4C4399
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ magnet:?xt=urn:btih:0BC2F4566A64B521B86165737EB73AED8B4C4399
 ```bash
 magnet:?xt=urn:btih:30CC5287F7ED99134CE6B95C0C4AD36E959182DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +309,8 @@ magnet:?xt=urn:btih:30CC5287F7ED99134CE6B95C0C4AD36E959182DB
 magnet:?xt=urn:btih:F74C7E90398389E4B4A5CC968CF96E53F5E0E2FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +334,8 @@ magnet:?xt=urn:btih:F74C7E90398389E4B4A5CC968CF96E53F5E0E2FB
 ```bash
 magnet:?xt=urn:btih:D2BFA81173D112FFDD1BA97398D5AEC45070BF68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +363,8 @@ magnet:?xt=urn:btih:D2BFA81173D112FFDD1BA97398D5AEC45070BF68
 magnet:?xt=urn:btih:CA5232E005ED269BE020288DCC44C8804F04905B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +388,8 @@ magnet:?xt=urn:btih:CA5232E005ED269BE020288DCC44C8804F04905B
 ```bash
 magnet:?xt=urn:btih:249C7CD45A98A29770F234D46BB749531AD31225
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +415,8 @@ magnet:?xt=urn:btih:249C7CD45A98A29770F234D46BB749531AD31225
 magnet:?xt=urn:btih:F6489FE233CD9B923809158A5D707482F9CE5217
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +440,8 @@ magnet:?xt=urn:btih:F6489FE233CD9B923809158A5D707482F9CE5217
 ```bash
 magnet:?xt=urn:btih:DB45D0C342FB292BDAB97028BEFAD105F74B2314
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +468,8 @@ magnet:?xt=urn:btih:DB45D0C342FB292BDAB97028BEFAD105F74B2314
 ```bash
 magnet:?xt=urn:btih:4C5D3BCA5E009B354DE1A5275920FCF456ACE315
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +498,8 @@ magnet:?xt=urn:btih:4C5D3BCA5E009B354DE1A5275920FCF456ACE315
 magnet:?xt=urn:btih:704C6657804D7292779C5889767AC93208A9EF6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +523,8 @@ magnet:?xt=urn:btih:704C6657804D7292779C5889767AC93208A9EF6F
 ```bash
 magnet:?xt=urn:btih:2A596DB279E3C19248B07395B3FC67C3772355D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +550,8 @@ magnet:?xt=urn:btih:2A596DB279E3C19248B07395B3FC67C3772355D2
 magnet:?xt=urn:btih:66F04D436E73D4609E8DA10F845FFAD6DB484945
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +575,8 @@ magnet:?xt=urn:btih:66F04D436E73D4609E8DA10F845FFAD6DB484945
 ```bash
 magnet:?xt=urn:btih:150ADB85B56AA0527C1509CAA99880D4A9F83CAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +602,8 @@ magnet:?xt=urn:btih:150ADB85B56AA0527C1509CAA99880D4A9F83CAC
 magnet:?xt=urn:btih:53AB01676CF78C58CA94E762F1FC4DE580818921
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +628,8 @@ magnet:?xt=urn:btih:53AB01676CF78C58CA94E762F1FC4DE580818921
 magnet:?xt=urn:btih:41448791145170CC830E7D5DC72E7BA690F1E00B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +653,8 @@ magnet:?xt=urn:btih:41448791145170CC830E7D5DC72E7BA690F1E00B
 ```bash
 magnet:?xt=urn:btih:23083DB05C241609D65279985EBA1A7DDDFD02F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,29 +681,7 @@ magnet:?xt=urn:btih:23083DB05C241609D65279985EBA1A7DDDFD02F6
 magnet:?xt=urn:btih:2D7A71EFB0E04593AECB8E6055F38760F9F8306C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574851   (381432) от 07.09.2022
-
-Сергей Плотников | Паутина света (Книга 3) (2022) [MP3, Олег Воля]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юто Амакава исполнилось двенадцать лет. Под его руководством буквально чудом вернувшийся из небытия шестой клан экзорцистов вынужден прилагать всё больше усилий, чтобы адекватно отвечать на всё новые и новые вызовы и при этом продолжать развиваться. И если с экономической стороной вопроса вроде пока удалось разобраться, то дебют в межклановой политике и вмешательство (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 20:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E35127098F46DCE77761F134EEA5DC45372A68A2
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

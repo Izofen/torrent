@@ -1,3 +1,148 @@
+###  Публикация: 1549676   (593346) от 07.05.2022
+
+VA - Italo Disco Tracks Vol. 1 (2005) [FLAC|Lossless|WEB-DL|tracks] <Disco, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Bedford - More Than a Kiss (3:50)
+02. Joy Peters - Don't Lose Your Heart (3:07)
+03. Cliff Turner - Moonlight Affair (3:24)
+04. Chickeria - Le Freak (3:30)(   Читать дальше...   )Жанр: Disco, Italo-DiscoПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C124D168E82C2F4B0556246C17C01BBF61E7075
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549679   (593386) от 07.05.2022
+
+VA - Alexis Le-Tan & Jess Present Space Oddities (2008) [FLAC|Lossless|WEB-DL|tracks] <Disco, Space-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roland Bocquet - Exotique (2:32)
+02. Jean-Pierre Decerf & Gerard Zajd - Reaching the Infinite (3:23)
+03. Alan Shearer - Sons of the Snake (5:24)
+04. Phil Davies & Ch. Ried - Muscle and Heat (4:01)(   Читать дальше...   )Жанр: Disco, Space-DiscoПродолжительность: 01:12:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3DD80C1C9EEAEA45A83F5BDE15BC549E348B8E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549330   (593748) от 06.05.2022
+
+Pavel Panchenko - To the Stars (2017) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To the Stars (3:31)
+02. Respite (3:40)
+03. The Sign (3:53)
+04. Project X (3:13)(   Читать дальше...   )Жанр: Disco, Nu-Disco, SynthpopПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92F64BA264E01B9CA1C0FA7DB60BAE3FA59404DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300228   (593780) от 05.05.2019
+
+VA - 538 Hitzone 89 (2019) [FLAC|Lossless|tracks + .cue] <Pop, Dance-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ava Max – Sweet But Psycho (03:05)
+02. Calvin Harris & Rag'n'Bone Man – Giant (03:49)
+03. P!NK – Walk Me Home (02:53)
+04. Duncan Laurence – Arcade (03:03)(   Читать дальше...   )Жанр: Pop, Dance-popПродолжительность: 01:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8D8595B48B3671695DCD8AA336AA7E95E429EF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233099   (593837) от 28.06.2018
+
+VA - Двигай Попой!2 (1997) [FLAC|Lossless|image + .cue]<Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Руки Вверх! - Доброе утро (Гимнастика)
+02. Президент и Амазонка - Жу-жу
+03. Чугунный Скороход - Рэйвер № 2 (DJ давай!)
+04. Триплекс - Катапульта(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:01:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19C7607B5702D198555BCC051E723D38B6E337AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1300235   (593880) от 05.05.2019
 
 Vicky Brown - The Collection (1993) [FLAC|Lossless|image + .cue] <Pop, Classical Crossover>
@@ -21,6 +166,8 @@ Vicky Brown - The Collection (1993) [FLAC|Lossless|image + .cue] <Pop, Classical
 ```bash
 magnet:?xt=urn:btih:ED50949303E9470EFC5D442096A1B89396FB8F3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +196,8 @@ VA - ZYX Club 2020/1 (2020) 2CD, Compilation [MP3|320 Kbps] <Dance, House, Techn
 magnet:?xt=urn:btih:4B179FC38C0319D83DF567C719E8624A73951598
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +224,8 @@ Johnny Wakelin - Reggae, Soul And Rock'N'Roll (1976) LP [MP3|320 Kbps] <Funk, So
 ```bash
 magnet:?xt=urn:btih:A905BDBB78180FB53579273F3F13F5FDC63B6075
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +254,8 @@ O.C.A - Ночной дожор (2019) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:65AE871AF500CED2047B0D0DF93BB15ED437D44F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +282,8 @@ VA - Mastermix Jet Boot Jack Remixes 2: Extended (2022) [MP3|320 Kbps] <Dance, N
 ```bash
 magnet:?xt=urn:btih:B90F2E288F5A078803F492B45C63A5DC5B9DBC7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +312,8 @@ The Hurricanes - Tropical Nights (1988) [MP3|320 Kbps] <Italo-Disco>
 magnet:?xt=urn:btih:4E7050F2B8345123ECAFD154A9A6935D934F8552
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +340,8 @@ VA - Mastermix Jet Boot Jack Remixes 2: Edits (2022) [MP3|320 Kbps] <Dance, New 
 ```bash
 magnet:?xt=urn:btih:6D606AD87ECD77D452569ABE1086560775D36D31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +370,8 @@ VA - Acoustic Summer (2018) [MP3|320 Kbps] <Pop, Folk, Acoustic>
 magnet:?xt=urn:btih:174A4BABA2F2802646559658CC1C57DEF2450DBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +398,8 @@ VA - Mastermix presents MX: Balearic (2022) [MP3|320 Kbps] <Chillhop, Lo-Fi, Bro
 ```bash
 magnet:?xt=urn:btih:778FEABCC0D73E8351EAA600FF9840CF59813949
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +434,8 @@ Dschinghis Khan - The History of Dschinghis Khan & Millenium Mega Mixes (1999) [
 magnet:?xt=urn:btih:5631A9FEC5060E0A2DA5C0F101B0EFB044D057C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +468,8 @@ VA - The Hit Men Vol.2 - Produced By Dieter Bohlen (2009) [FLAC|Lossless]<Disco>
 ```bash
 magnet:?xt=urn:btih:7A4E2B1C06F5CF8327E40335EC6D95BC59823F87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +504,8 @@ VA - The Hit Men Vol.1 - Produced By Frank Farian (2009) [FLAC|Lossless]<Disco>
 magnet:?xt=urn:btih:232D7B8E6E71D10F7C0154EDE3275768EFB03E77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +532,8 @@ VA - Lazy Sunday (2004) [FLAC|Lossless|tracks + .cue] <Pop, Jazz, Rock, Soft Roc
 ```bash
 magnet:?xt=urn:btih:BCEA53C57BECED2BB8F22C5F485F7ED9A338A999
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +562,8 @@ CD 01:
 magnet:?xt=urn:btih:AE2000C344FAA031EBF5F1F87C8DD21A2F5BE1E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +590,8 @@ VA - Disco Music (2021) [FLAC|Lossless|WEB-DL|tracks] <Dance, Disco>
 ```bash
 magnet:?xt=urn:btih:6855E91651D9210D19845A5D7BDAE7F8E6708143
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +620,8 @@ CD 01:
 magnet:?xt=urn:btih:81E8CA5FA17B3038ABE10DEF86FE3C88489B8A99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +649,8 @@ n.Lannon - Falling Inside (2015) [OGG|444-549 кб/с]<Indie Pop Folktronica, Ch
 magnet:?xt=urn:btih:90803976D2464EF7E4782A6CCE9D5EE825F3731F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +677,8 @@ Peter Cornelius - Liederbuch (1998) [APE|Lossless|image + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:163D36185473C2322FFA2B125DC386C97230F76D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +715,8 @@ VA - Les Annees Cultes 80 (6 CD) (2011) [MP3|320 кб/с]<Disco, Pop, Soundtrack
 magnet:?xt=urn:btih:8AD77BCFADD22202A7C8FCFDE83E75B6501BB033
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +750,8 @@ Fancy - Полная коллекция хитов (2012) [MP3|320 кб/с]<Pop,
 magnet:?xt=urn:btih:955FC184652DC95D9260E8126D72021E738416FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,140 +776,7 @@ Schnuffel - 3 альбома + 5 синглов (2008-2009) [MP3|320 kbps]<Pop>
 нет
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039603   (595917) от 01.08.2016
-
-Catherine Clarnette - Bold (2016) [MP3|320 Kbps] <Alternative Pop, Dark Pop, Jazz Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Couldn't Let You Win
-02. Tango
-03. It Won't Be Me
-04. Never Live the Same Way(   Читать дальше...   )Жанр: Alternative Pop, Dark Pop, Jazz PopПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01A7C99703A8D06A28F2ED4A8A7AF83BE05639CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299907   (595980) от 03.05.2019
-
-VA - 90s Dance Hits, Vol. 3 (2019) [MP3|320 Kbps] <Dance, Electronic,  Eurodance,  Eurobeat>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C+C Music Factory - Gonna Make You Sweat (Everybody Dance Now) 4:06
-02. Salt-N-Pepa - Push It 4:29
-03. Robin S. - Luv 4 Luv (Stone's Radio Edit) 4:13
-04. La Bouche - Sweet Dreams (Radio Edit) 3:26(   Читать дальше...   )Жанр: Dance, Electronic,  Eurodance,  EurobeatПродолжительность: 02:32:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2664F42F7788FC9A10319A62CA4750FCBEC2F4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914567   (595984) от 03.07.2015
-
-VA - Знакомые все песни (2013) [FLAC|image + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Кай Метов - Position 2 (Orcestra Radio edit) [4:23]
-02.Алексин - Страшная [3:27]
-03.Нэнси - Дым сигарет с ментолом [6:16]
-04.Игорёк - Подождём [3:36](   Читать дальше...   )Жанр: PopПродолжительность: 01:15:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:988346A14D3AEF5843E285212170A44F886A6323
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299913   (596057) от 03.05.2019
-
-VA - NRJ Hit List 2019 (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596057.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Maître Gims - Miami Vice
-02. Angèle - Balance ton quoi
-03. Pedro Capó - Calma (Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B482409D2404FC8C58082EE1F772D4AB58E86230
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299662   (596070) от 03.05.2019
-
-VA - The Acoustic Album (2006) 2CD [FLAC|Lossless|image + .cue] <Acoustic Pop-Rock, Folk, Singer-Songwriter>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596070.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-1. Jack Johnson – Breakdown (03:34)
-2. Corinne Bailey Rae – Put Your Records On (03:34)
-3. KT Tunstall – The Other Side of the World (03:32)(   Читать дальше...   )Жанр: Acoustic Pop-Rock, Folk, Singer-SongwriterПродолжительность: 02:37:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1903D8423F703AEA8A6E6EBA15AC69E003BB8918
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ VideoHive - Travel Trends Slideshow - 24671384 [AEP]
 magnet:?xt=urn:btih:D5612A12CEB3E060E16E6439D8F5C5FD1AEEE2FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ VideoHive - Sports Broadcast - 3D Opener - 20193792 [AEP]
 ```bash
 magnet:?xt=urn:btih:E8C08924D9B95A1D73125106909B7F96BB1ECCF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ VideoHive - Transitions Mosiac Pack - Toolkit - 24485707 [AEP]
 magnet:?xt=urn:btih:CD96730B5E21D1829A5E0F51AA0759222795E823
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Vegas Pro - Wedding Title 05 [VEG]
 ```bash
 magnet:?xt=urn:btih:55FE89011186F0099FFB22DB69D0D80C72628FD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ VideoHive - Garage - Broadcast Pack - 23472141 [AEP]
 magnet:?xt=urn:btih:AAE00307BD2486669686E6B29921883C342E9D70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:AAE00307BD2486669686E6B29921883C342E9D70
 ```bash
 magnet:?xt=urn:btih:5A0FF9DE39E59E0B39421E46586366A8C2E54ECA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:5A0FF9DE39E59E0B39421E46586366A8C2E54ECA
 magnet:?xt=urn:btih:BEEB9479BA07F082A0AB147FB2D9B589AC02A150
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:BEEB9479BA07F082A0AB147FB2D9B589AC02A150
 ```bash
 magnet:?xt=urn:btih:1721DF249D5F524127EC171230D0034D6B1DB213
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:1721DF249D5F524127EC171230D0034D6B1DB213
 magnet:?xt=urn:btih:9E7459F3067083E89AFB4B0DDADF516F2DC68664
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:9E7459F3067083E89AFB4B0DDADF516F2DC68664
 magnet:?xt=urn:btih:9BA21D469D218CAA249BAA7BF7DE7E3655C08319
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Heart of Butterflies - красивый и романтический проек
 ```bash
 magnet:?xt=urn:btih:DAE60F5D49498557F2B842BA96837A2FF8D3BEB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:DAE60F5D49498557F2B842BA96837A2FF8D3BEB3
 magnet:?xt=urn:btih:E2DCCF5102B7960EDF7DEBA387F4B9C758F536B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:E2DCCF5102B7960EDF7DEBA387F4B9C758F536B7
 magnet:?xt=urn:btih:92B10DA54D03990804A9A49AB41F487B1CC5639E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Opener - Проект для быстрого создания стильной 
 ```bash
 magnet:?xt=urn:btih:2376B072B25578764EB08701AB1889A9737CD05B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:2376B072B25578764EB08701AB1889A9737CD05B
 ```bash
 magnet:?xt=urn:btih:A4208DA5855A78D67A430BF965E04433C4C72D36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ VideoHive - Dual Reality - 180162 [AEP]
 magnet:?xt=urn:btih:BB60E0862BAF2A5961C57802D7AAB030811C597B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ Corporate Lower Thirds - Этот потрясающий шаблон After Effe
 ```bash
 magnet:?xt=urn:btih:BB99753531C4574D29F39E1F0B0BF9993004CE3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ VideoHive - I am Number Three - Cinematic Opener - 251769 [AEP]
 magnet:?xt=urn:btih:B944EF893BC36D3AB97C68D900F659700CAAE53E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ Travel Slide - является идеальным After Effects шаблон д
 ```bash
 magnet:?xt=urn:btih:38069F431C0B7EF8F5F8AB806E5EEC20B8A0090F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ Neon Logo - потрясающий и креативный дизайн, кот�
 magnet:?xt=urn:btih:16256EE897286C8C59BE7605AD2AD5A7E9B0D5C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ Photo Parallax Slideshow - уникальный дизайн шаблона эф
 ```bash
 magnet:?xt=urn:btih:C142527C3F7DC337479D8C6D93DA00118F7ABA97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ BLADE Titles - комплект текстовых эффектов для ви�
 magnet:?xt=urn:btih:176E4A258F9AC2044A6478C23A2EA1B91B246925
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ Paper Torn Slideshow - Это отличный After Effects проект иде
 ```bash
 magnet:?xt=urn:btih:25536A8941A1872C2CB48CA5D2A9581DE6FB24D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ Glitch Sequences v2 - Это сильный и агрессивный After Effe
 magnet:?xt=urn:btih:0CB6B73ACC38DD7A9ECF21D7D2D66B76EF3541FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ Autumn Photos - является профессиональным After Effects 
 magnet:?xt=urn:btih:A0F73EB605F8EC2046C014FCA6BB3940ABA23481
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Summer Slide - Это удивительный After Effects шаблон для
 ```bash
 magnet:?xt=urn:btih:31BF6B4D7C73CA4179AA24A6405A595D9641E6B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

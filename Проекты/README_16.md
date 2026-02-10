@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:752A3F5145FBC7BC2FCABBB0472CFC930C5A3CA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Inspired Broadcast Package - профессиональный пакет для 
 ```bash
 magnet:?xt=urn:btih:E80641FB084BF2A99F5A346F3B725A151E7EB8B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Christmas Love Bomb - это анимационный, рождественск�
 magnet:?xt=urn:btih:59D477F1E123B442E33D453E3FABA2E8A213C89D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Elegant Squares Slideshow - стильное слайд-шоу, использу
 ```bash
 magnet:?xt=urn:btih:C1EB737534BCD781D1FB02801DA37C4516F5F7D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:C1EB737534BCD781D1FB02801DA37C4516F5F7D7
 magnet:?xt=urn:btih:A197B8FD6FA63C937FDA772F8F2DEC0B2FBEFF91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Corporate Titles Pack - набор из 20-ти текстовых анимац�
 ```bash
 magnet:?xt=urn:btih:EDEEF5AE3BF5948DC6BF3A772E38A61FB19A2A53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Modern Promo - проект для создания модного промор�
 magnet:?xt=urn:btih:3E2329C7B6FCFC934AB64AB9C49A082E7FD4F0C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:3E2329C7B6FCFC934AB64AB9C49A082E7FD4F0C9
 ```bash
 magnet:?xt=urn:btih:0EE09F227EA97D46A5401117F2FD910BD7532AFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Epic Neon In The Night Street - это потрясающий и уникаль�
 magnet:?xt=urn:btih:45C30FB06CBC8B00F86537D30B35FD0BAA6EB89F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Bright Circles Opener - проект для создания модного пр
 ```bash
 magnet:?xt=urn:btih:3EF9307127243D23DE3D4F3E5D2D971BAA41DE46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Elegant Titles - набор из 20-ти уникальных и элегант�
 magnet:?xt=urn:btih:520FFC754E763F4705E419D0553BC03E21AC0E8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Digital Earth Motion Graphics  - проект для создания текст
 ```bash
 magnet:?xt=urn:btih:72868A7A21E1CC27BE4B1F0D6261BCE441751C85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Epic History - это красивый эпический шаблон в рет
 magnet:?xt=urn:btih:CA77ECAC5CF1E0485B563E9027C67F038B2A4274
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:CA77ECAC5CF1E0485B563E9027C67F038B2A4274
 magnet:?xt=urn:btih:E8147930D91A084FEB10772072C75DDE5F4C3F56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ Christmas Wishes - проект для создания Рождественск
 ```bash
 magnet:?xt=urn:btih:3349E8C2B1B761B500D5B8B6B9E91F36E3583C06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:3349E8C2B1B761B500D5B8B6B9E91F36E3583C06
 magnet:?xt=urn:btih:A55A0A262C465E6AFECFB476E14B6C8F9B44B4CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ Editable Santa — Christmas Opener - Санта приходит! Что еще
 ```bash
 magnet:?xt=urn:btih:E9C58D7DF713808D1DDD27BCE1C1946BB21BBDF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:E9C58D7DF713808D1DDD27BCE1C1946BB21BBDF0
 magnet:?xt=urn:btih:47A7734E30E31B41BFFA735F65EC4865022553BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:47A7734E30E31B41BFFA735F65EC4865022553BB
 magnet:?xt=urn:btih:B57E5EF61FC5E94054568A07D060A09CEE18CA47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Christmas — Slideshow - современный проект для созда�
 ```bash
 magnet:?xt=urn:btih:0928272AF3504C5A3A53A090FA65622C3CCE37C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:0928272AF3504C5A3A53A090FA65622C3CCE37C0
 magnet:?xt=urn:btih:15503ACC60B568DA80F889873FD09D8A23AA96C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Heavenly Christmas Titles - это проект элегантных назва�
 magnet:?xt=urn:btih:E8F74449D694EF60B02EBDE4F94B784C571D24C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ VideoHive - Cinematic Sequence II - 5230046 [AEP]
 ```bash
 magnet:?xt=urn:btih:967F75529477598FCF1F8FC40C42447C7D380822
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:967F75529477598FCF1F8FC40C42447C7D380822
 magnet:?xt=urn:btih:A44694106907B199BE47153E695FCF747D8A7FBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:A44694106907B199BE47153E695FCF747D8A7FBE
 magnet:?xt=urn:btih:A0C68FCBA6F2D48505D50EF7AAB6EF9FCA092132
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Ink Slideshow - интересный вариант слайд-шоу, испо�
 ```bash
 magnet:?xt=urn:btih:C57DB867E79E255DF1B83896EC27E6D639A19AD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1298741   (601722) от 28.04.2019
+
+BBC: Япония / Japan (2006) HDTV [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Качественный и красивый ролик показывающий Японию во всей своей красе, замечателен ролик еще и тем, что охватывает практически все виды деятельности людей и животных, населяющих эту страну.Производство: BBCЖанр: Документальный, видовой, природа, флора, фаунаПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:04:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EFB4150615B57244F9F4D36DDE7922EA83141FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298738   (601732) от 28.04.2019
 
 BBC: Жизнь океана / Life in the blue in HD (2007) HDTV [H.264/1080p-LQ]
@@ -18,6 +44,8 @@ BBC: Жизнь океана / Life in the blue in HD (2007) HDTV [H.264/1080p-L
 ```bash
 magnet:?xt=urn:btih:F103394AC9FD36619BFDB8455730425B8116C031
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:F103394AC9FD36619BFDB8455730425B8116C031
 magnet:?xt=urn:btih:F7A955814411FA9A963E4FC55CB17B1D48E6C702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:F7A955814411FA9A963E4FC55CB17B1D48E6C702
 ```bash
 magnet:?xt=urn:btih:52A419C15433D91CAE3C0A92A750815DEEAF3396
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:52A419C15433D91CAE3C0A92A750815DEEAF3396
 magnet:?xt=urn:btih:9E2F4EAF025428A7012C6A37491CEC44A8FECD10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ BBC: Когда альбомы правили миром / When Albums Ruled the
 ```bash
 magnet:?xt=urn:btih:FCE2FDA25F2B87071FF75B7EC5A7C84A6AFE285C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ BBC: Когда альбомы правили миром / When Albums Ruled the
 magnet:?xt=urn:btih:8A4A330348F0487695839BD5972B95AEFC6C3DE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:8A4A330348F0487695839BD5972B95AEFC6C3DE8
 ```bash
 magnet:?xt=urn:btih:4FE513055719B52F2FA43435A81614AF8EEC8AF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:4FE513055719B52F2FA43435A81614AF8EEC8AF4
 magnet:?xt=urn:btih:5726FD725B7AF61D11FD8D8C4AA41B223491C535
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:5726FD725B7AF61D11FD8D8C4AA41B223491C535
 ```bash
 magnet:?xt=urn:btih:AE7916CD6382B7B50BC1A6FDBA2D41A397E61653
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:AE7916CD6382B7B50BC1A6FDBA2D41A397E61653
 magnet:?xt=urn:btih:20396A5B3E5F8127F2FECF713EADD17437A07707
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:20396A5B3E5F8127F2FECF713EADD17437A07707
 ```bash
 magnet:?xt=urn:btih:63D8BF0FE44344B76B34451A629BDA59EAC23124
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:63D8BF0FE44344B76B34451A629BDA59EAC23124
 magnet:?xt=urn:btih:510D18D3FA88D1EB90087CAE39AA0268DB55E029
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +357,8 @@ magnet:?xt=urn:btih:510D18D3FA88D1EB90087CAE39AA0268DB55E029
 ```bash
 magnet:?xt=urn:btih:65999E82BEDFCFA22E6F2203326744BD8EE04709
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:65999E82BEDFCFA22E6F2203326744BD8EE04709
 magnet:?xt=urn:btih:7E35AC4A4199D3DFD5198F65367557886CC7BDFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +409,8 @@ magnet:?xt=urn:btih:7E35AC4A4199D3DFD5198F65367557886CC7BDFF
 ```bash
 magnet:?xt=urn:btih:0AD36035802B34971FC7C8F0E843DF7B9D3907F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:0AD36035802B34971FC7C8F0E843DF7B9D3907F9
 magnet:?xt=urn:btih:11CCC8DC5A3F5E1EBF6D03A5FB39A4E9F961DBEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +461,8 @@ magnet:?xt=urn:btih:11CCC8DC5A3F5E1EBF6D03A5FB39A4E9F961DBEC
 ```bash
 magnet:?xt=urn:btih:501334568DBDC7704D4D615E3863F61C7448542C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:501334568DBDC7704D4D615E3863F61C7448542C
 magnet:?xt=urn:btih:6D3B67B736A14C5897C1F78026BB588FB2A32610
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:6D3B67B736A14C5897C1F78026BB588FB2A32610
 ```bash
 magnet:?xt=urn:btih:014EBBCA25B0A289905FEE4FCBB4649888F50E95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:014EBBCA25B0A289905FEE4FCBB4649888F50E95
 magnet:?xt=urn:btih:3D34BC53B8779238161F041C6D91CD04C1F7382B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +567,8 @@ magnet:?xt=urn:btih:3D34BC53B8779238161F041C6D91CD04C1F7382B
 ```bash
 magnet:?xt=urn:btih:40B774BA89297894A1C496D74B9D42FDBF4EFD71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:40B774BA89297894A1C496D74B9D42FDBF4EFD71
 magnet:?xt=urn:btih:DC7FB09DA120775A899A98B0AAF369AAC036470C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +619,8 @@ magnet:?xt=urn:btih:DC7FB09DA120775A899A98B0AAF369AAC036470C
 ```bash
 magnet:?xt=urn:btih:DF096C4C697E336B1C12BE2140BF7DAB7E9D33AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +646,8 @@ magnet:?xt=urn:btih:DF096C4C697E336B1C12BE2140BF7DAB7E9D33AB
 magnet:?xt=urn:btih:815F335E3D7C1E3D7E0B6365C69D12FF7DE7B77E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,29 +672,7 @@ magnet:?xt=urn:btih:815F335E3D7C1E3D7E0B6365C69D12FF7DE7B77E
 magnet:?xt=urn:btih:EBA21CB0D686EDFAF6A44A1FE3BFD9043EBE9FDA
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232310   (602259) от 23.06.2018
-
-Я жив и жажду крови. Che (2005) DVB [H.264/1080i-LQ]
-
->>Документалистика и Телепередачи
->>Личности в истории
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602259.jpg" />
-</div>
-
-
-###  Подробнее
-
-История жизни легендарного латиноамериканского революционера и команданте Кубинской революции, рассказанная его соратниками и его убийцами. Гевара де ла Серна Эрнесто (Че) легендарный латиноамериканский революционер, один из руководителей Кубинской революции 1959 года, служил в чине майора кубинской армии. Родился Че в Аргентине в семье архитектора, выучился на врача. (   Читать дальше...   )Телекомпания: Россия / Первый канал, Компания "Телеформат"Жанр: Документальный, БиографияСубтитры: Русские, телетекстПродолжительность: 01:16:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21F1EE46B8C99D5D98CDB52CA154A72C55BFB953
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

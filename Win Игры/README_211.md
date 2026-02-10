@@ -19,6 +19,8 @@ Azkend 2: The World Beneath (P) [En] 2012
 magnet:?xt=urn:btih:F3AAF855BAE57FA35D3C873AB3850C142CD86D79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Happy Chef / Веселый повар (L) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:A94CE61120DA497FFCE5A5BD5F8D581778F09E0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Necronomicon / Книга Мертвых: Потерянные души (P) [Ru]
 magnet:?xt=urn:btih:3213A52A4C3DE17D8823B32B5352CBC6CC973B74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Treasures of the Deep / Сокровища глубин (P) [Ru] 2009 | Fyrrion
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Deadly 30 (P) [En] 2012
 magnet:?xt=urn:btih:B4F68DB5E9FCF771188391B9D31E5AEF50181350
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Brick of Consciousness: Dorian Gray Syndrome. Collector's Edition / Край с�
 ```bash
 magnet:?xt=urn:btih:630E07C49C4569FF51ABFF9B6E4F035BF3E70DF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Aaron Crane: Paintings Come Alive / Аарон Крэйн. Картины ожи
 magnet:?xt=urn:btih:1A2DBB3E630D18D0722530C705BCABEA5325D933
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Stray Souls: Dollhouse Story. Collector Edition / Заблудшие души. �
 ```bash
 magnet:?xt=urn:btih:1EDBF442AE2EEF4E11A9CA3D5594BFE4ADCFF80D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Bomber-Mario (P) [En] 2010
 magnet:?xt=urn:btih:7BC4218B3E84DFD5E7CD3A3D71525BCB60E80C3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Dark Strokes: Sins of the Fathers. Collector's Edition / Сердце тьмы. 
 ```bash
 magnet:?xt=urn:btih:D0DECA7E4760CA7FB6CE2060E3B27B39D988AC62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Men of War: Condemned Heroes / Штрафбат [Ru] (RePack) 2012 | Fenixx
 ```bash
 magnet:?xt=urn:btih:E8E8F98F5239CB2D1AFFAF887E5D90F30FA5EC66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Cannon Fodder 3 – тактический экшен, унаследовавш�
 magnet:?xt=urn:btih:5817D0D686273AA7316FFEAF088FC4560378FF3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Tumble Jumble - отличный физический пазл от создат
 magnet:?xt=urn:btih:F9341741E03CC377DFAC545878CD1FFA66BA667C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Haunted Hotel II: Believe the Lies / Проклятый отель 2. Паути
 ```bash
 magnet:?xt=urn:btih:6BAE181F95D1853A397B17132BD74433EA36A2F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:6BAE181F95D1853A397B17132BD74433EA36A2F9
 magnet:?xt=urn:btih:1DD7D3EDFBB0B4CD7D1CCD53745C26ADD1240AC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:1DD7D3EDFBB0B4CD7D1CCD53745C26ADD1240AC2
 ```bash
 magnet:?xt=urn:btih:9DB5F1C34024129F62B359196C318261988E902B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:9DB5F1C34024129F62B359196C318261988E902B
 magnet:?xt=urn:btih:0547F9925D45FD1762A003D82E1446FF422DBF9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:0547F9925D45FD1762A003D82E1446FF422DBF9F
 ```bash
 magnet:?xt=urn:btih:D9C0F84C2AE34A10C1CE93150287D37097791A7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ JoJo's Fashion Show 3: World Tour Express / Модный показ 3. Миро�
 magnet:?xt=urn:btih:2ACBBD8C1BAC7E8DB68AB4EA9D56686609EED77D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Rise and Fall: Civilizations at War / Rise & Fall: Война цивилизац
 ```bash
 magnet:?xt=urn:btih:B9558B2F457F680233A835D683E75CD66C9EEC73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ Secrets of the Titanic - 1912 - 2012 (P) [En] 2012
 magnet:?xt=urn:btih:AAA0A7983A649548C2BCE59FB2C53DF3CAB80406
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ Big Kahuna Reef 3 (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:BDE42ACA39F001794C6516ABF94E5DBBA44E277A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ Officers / Офицеры Специальное издание [Ru] (RePack/1.1
 magnet:?xt=urn:btih:C035919888B51CB986E38FDFE17A025B9B99DEB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ Avernum: Escape from the Pit - первая часть новой трилоги
 ```bash
 magnet:?xt=urn:btih:93A08585E9282BB8AE4D03ACB6C263D542952C50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ Spirits of Mystery 2: Song of the Phoenix Collector's Edition / Тайны ду�
 magnet:?xt=urn:btih:9A08EAEE4B58F42175DF6B7D0D145B2F110E3732
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Police Force предоставляет вам возможность испыт
 ```bash
 magnet:?xt=urn:btih:A708CC603235647943C594E8E8D84EB997F4C1F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

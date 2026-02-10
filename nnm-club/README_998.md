@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:7F503A15FEE17EBD02CA84C48AFDCA3C81719C14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:7F503A15FEE17EBD02CA84C48AFDCA3C81719C14
 magnet:?xt=urn:btih:1CDAC96CA3153898EE68140B587F62727DDFCD80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:1CDAC96CA3153898EE68140B587F62727DDFCD80
 ```bash
 magnet:?xt=urn:btih:5969C351D405D8A5D93B4B6FA282C2AAB5E0A31A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:5969C351D405D8A5D93B4B6FA282C2AAB5E0A31A
 magnet:?xt=urn:btih:0DACC29B65A81FD8C2BD8E19C8633423296D797D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:0DACC29B65A81FD8C2BD8E19C8633423296D797D
 ```bash
 magnet:?xt=urn:btih:7432D25957C7C34CE01E26A512778CEEBB924DFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:7432D25957C7C34CE01E26A512778CEEBB924DFA
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:7432D25957C7C34CE01E26A512778CEEBB924DFA
 ```bash
 magnet:?xt=urn:btih:0E967B36DFC84320532ADBF1E952355FD406D621
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ The First Berserker: Khazan — хардкорный ролевой экшен. 
 magnet:?xt=urn:btih:6A8C84FABDD580168ABBFFE9F199854B4E8B6A42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:6A8C84FABDD580168ABBFFE9F199854B4E8B6A42
 ```bash
 magnet:?xt=urn:btih:3CD6856B107F94FA8841C5CFE85E83114AFA3730
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:3CD6856B107F94FA8841C5CFE85E83114AFA3730
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:3CD6856B107F94FA8841C5CFE85E83114AFA3730
 ```bash
 magnet:?xt=urn:btih:C17276E11DB75161C77A9F17E2B8774312082A6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:C17276E11DB75161C77A9F17E2B8774312082A6E
 magnet:?xt=urn:btih:41D74F4BEE31561049E585E71364F2C125FE3BCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:41D74F4BEE31561049E585E71364F2C125FE3BCA
 ```bash
 magnet:?xt=urn:btih:988C235DE1AED1B67EFDF10AE245EA0CE39ADBFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:988C235DE1AED1B67EFDF10AE245EA0CE39ADBFD
 magnet:?xt=urn:btih:F5043DA466FFC5B6316D9897663E86B9CF8D2D31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:F5043DA466FFC5B6316D9897663E86B9CF8D2D31
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ StartAllBack - привычная для нас программа, котора
 magnet:?xt=urn:btih:197156AD5E24E982FD538D756620677E2F3023C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:197156AD5E24E982FD538D756620677E2F3023C8
 ```bash
 magnet:?xt=urn:btih:2C04EBD3939037C139BDB26811AB3C1CF2F7F87E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:2C04EBD3939037C139BDB26811AB3C1CF2F7F87E
 magnet:?xt=urn:btih:F444857DECB0F20447B25B4603FED5B8ADD3A33D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ Taxi Life: A City Driving Simulator (2024) [Ru/Multi] (1.14.29.106/dlc) Repack W
 ```bash
 magnet:?xt=urn:btih:C0F90569FE0AD2DD472DCFEBD06F3D42BD56F63B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ Small Saga (2023) [Ru/En] (Build 12840998) Repack Let'sРlay
 magnet:?xt=urn:btih:E19147BC75F8D5F4F24458A664E81FBBF44FEC70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:E19147BC75F8D5F4F24458A664E81FBBF44FEC70
 ```bash
 magnet:?xt=urn:btih:02E7673886389F7571AF5856EA4A1F4F1E6B4C86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:02E7673886389F7571AF5856EA4A1F4F1E6B4C86
 magnet:?xt=urn:btih:A3F7145BF640B3125D3F5071CDCA2616466AE88F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:A3F7145BF640B3125D3F5071CDCA2616466AE88F
 magnet:?xt=urn:btih:375553BE8C2FCAD61E577256E5ABCCBE763B00FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:375553BE8C2FCAD61E577256E5ABCCBE763B00FF
 ```bash
 magnet:?xt=urn:btih:6EDE5FECCA2DE3AA13B591AE85985C2F979D370D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:6EDE5FECCA2DE3AA13B591AE85985C2F979D370D
 magnet:?xt=urn:btih:2319E02956C994C31313218CB640CC063B44CD70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Zettlr – достаточно продвинутый текстовый ред
 ```bash
 magnet:?xt=urn:btih:3385E4AD0DD47DA86749A9F9DCD9EC4508D0EE7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

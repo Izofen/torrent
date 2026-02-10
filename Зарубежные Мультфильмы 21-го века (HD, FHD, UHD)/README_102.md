@@ -1,27 +1,3 @@
-###  Публикация: 1521814   (763328) от 04.01.2022
-
-Зверопой / Sing (2016) UHD BDRip [H.265/2160p] [4K, HDR, 10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763328.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире, который населяют звери, коала по имени Бастер Мун изо всех сил пытается предотвратить закрытие своего театра. В итоге Бастер и его друг баран Эдди устраивают конкурс певцов, предлагая принять участие каждому жителю города.Производство: Франция, Япония, США / Dentsu, Fuji Television Network, Illumination Entertainment, Universal PicturesЖанр: мультфильм, мюзикл, комедия, семейныйРежиссер: Гарт Дженнингс, Кристоф ЛурделеАктеры: Мэттью МакКонахи, Риз Уизерспун, Сет МакФарлейн, Скарлетт Йоханссон, Джон Си Райли, Тэрон Эджертон, Тори Келли, Дженнифер Сондерс, Дженнифер Хадсон, Гарт ДженнингсПеревод: Дублированный, Одноголосый любительскийСубтитры: русские, английскиеПродолжительность: 01:47:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E279D8E7508DA98E355ACB5B47CDAC53B0BC1E63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279943   (764127) от 31.01.2019
 
 Эллиот / Elliot the Littlest Reindeer (2018) WEB-DL [H.264/1080p-LQ]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:E279D8E7508DA98E355ACB5B47CDAC53B0BC1E63
 ```bash
 magnet:?xt=urn:btih:655639094C216B5BB53091D1C8A34B6E25B84FC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -66,6 +44,8 @@ magnet:?xt=urn:btih:655639094C216B5BB53091D1C8A34B6E25B84FC2
 ```bash
 magnet:?xt=urn:btih:7D54B96FAB098EEEE1B59C736ABFB6CBA1DAC052
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +72,8 @@ magnet:?xt=urn:btih:7D54B96FAB098EEEE1B59C736ABFB6CBA1DAC052
 magnet:?xt=urn:btih:C876C75D6618BA4E47EFD06A6D185A4DA4C7BE46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:C876C75D6618BA4E47EFD06A6D185A4DA4C7BE46
 ```bash
 magnet:?xt=urn:btih:CBEF9077C67932D1490CA590568E5110D2378D20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +124,8 @@ magnet:?xt=urn:btih:CBEF9077C67932D1490CA590568E5110D2378D20
 magnet:?xt=urn:btih:2320788E372E5BCCC45FD8FA7B151941B846366F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:2320788E372E5BCCC45FD8FA7B151941B846366F
 ```bash
 magnet:?xt=urn:btih:8438BC2D1595F480B58330AD8C365CCF52ACD568
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +176,8 @@ magnet:?xt=urn:btih:8438BC2D1595F480B58330AD8C365CCF52ACD568
 magnet:?xt=urn:btih:A7597A293CFA77F8A45794D7B5793A2A008BEB6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:A7597A293CFA77F8A45794D7B5793A2A008BEB6A
 ```bash
 magnet:?xt=urn:btih:86C6D01268ABF2284F3BF40935867359D334A194
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +228,8 @@ magnet:?xt=urn:btih:86C6D01268ABF2284F3BF40935867359D334A194
 magnet:?xt=urn:btih:E8EE86E9DB2F2A8F86E3D3F643F5C6116B0B8F76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:E8EE86E9DB2F2A8F86E3D3F643F5C6116B0B8F76
 ```bash
 magnet:?xt=urn:btih:77EFD00F599571330480E3858183FD1372B70DF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +280,8 @@ magnet:?xt=urn:btih:77EFD00F599571330480E3858183FD1372B70DF1
 magnet:?xt=urn:btih:2F51ED684146D4F9FEB8045C4FDB17B1D5CF333A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:2F51ED684146D4F9FEB8045C4FDB17B1D5CF333A
 ```bash
 magnet:?xt=urn:btih:5DD5CBBFACC462AE8DCCEA6C82D91FB75B2C482C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +332,8 @@ magnet:?xt=urn:btih:5DD5CBBFACC462AE8DCCEA6C82D91FB75B2C482C
 magnet:?xt=urn:btih:F0BD5A51BC38B93F39D6D31B310016D0575D4834
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +357,8 @@ magnet:?xt=urn:btih:F0BD5A51BC38B93F39D6D31B310016D0575D4834
 ```bash
 magnet:?xt=urn:btih:C3693843A0CB8E79FFC80E1FD096642CB5F62932
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +384,8 @@ magnet:?xt=urn:btih:C3693843A0CB8E79FFC80E1FD096642CB5F62932
 magnet:?xt=urn:btih:2AA264C374EF8C7298658F2902D27E5833090DDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +409,8 @@ magnet:?xt=urn:btih:2AA264C374EF8C7298658F2902D27E5833090DDD
 ```bash
 magnet:?xt=urn:btih:2D6BBD2C7FEECFFECFE5A0C92228313DDCBB76E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +436,8 @@ magnet:?xt=urn:btih:2D6BBD2C7FEECFFECFE5A0C92228313DDCBB76E0
 magnet:?xt=urn:btih:6D6C6066B2006AAE455FC481748A105A7B54CCF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +461,8 @@ magnet:?xt=urn:btih:6D6C6066B2006AAE455FC481748A105A7B54CCF2
 ```bash
 magnet:?xt=urn:btih:2447A3226C530D223605981689B5A788DC7BCAEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +489,8 @@ magnet:?xt=urn:btih:2447A3226C530D223605981689B5A788DC7BCAEF
 magnet:?xt=urn:btih:AD1DBCB8237ADB3B23EA7C17DB49124DED8709D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +514,8 @@ magnet:?xt=urn:btih:AD1DBCB8237ADB3B23EA7C17DB49124DED8709D2
 ```bash
 magnet:?xt=urn:btih:6131B4E60DC901344B0AC0777608EC1AD64B8A9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +541,8 @@ magnet:?xt=urn:btih:6131B4E60DC901344B0AC0777608EC1AD64B8A9E
 magnet:?xt=urn:btih:C5361C5B96AA5F983E0413F458FB83C1A06E3D6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +567,8 @@ magnet:?xt=urn:btih:C5361C5B96AA5F983E0413F458FB83C1A06E3D6A
 magnet:?xt=urn:btih:128006EC29A51CF458A4F6F4C83DE8EE6DE22E00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +592,8 @@ magnet:?xt=urn:btih:128006EC29A51CF458A4F6F4C83DE8EE6DE22E00
 ```bash
 magnet:?xt=urn:btih:2E3095E7503C1E6746760A3EFBD74A7C7F00093E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +620,8 @@ magnet:?xt=urn:btih:2E3095E7503C1E6746760A3EFBD74A7C7F00093E
 magnet:?xt=urn:btih:CF594A2A090F6BE6C9C776DE1F1A358ECCD7B87B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +645,34 @@ magnet:?xt=urn:btih:CF594A2A090F6BE6C9C776DE1F1A358ECCD7B87B
 ```bash
 magnet:?xt=urn:btih:DBD1594995988CF4BF60CA7BEB6495388ABA006E
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 779823   (770979) от 22.04.2014
+
+Тарзан / Tarzan (2013) BDRip [1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_770979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время крушения американского воздушного лайнера в джунглях погибли все пассажиры, выжил лишь один младенец. Он стал приемышем в стае диких обезьян, которые выкормили, вырастили его, научили выживать в этом жестком мире естественного отбора… Пришло время, и теперь мощный и ловкий, он должен защитить свой мир от врагов. Но главное — он должен снова стать человеком.Производство: ГерманияЖанр: Мультфильм, семейный, приключенияРежиссер: Райнхард КлооссАктеры: Келлан Латс, Спенсер Лок, Тревор Ст. Джон, Лес Бабб, Брайан Блум, Брайан Хаски, Роберт Капрон, Джейми Рэй Ньюман, Марк Деклин, Джо ОсмондПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:34:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EDCD7C04019ED37623F3DC2B1578D170C96E93C
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

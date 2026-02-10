@@ -22,6 +22,8 @@ Symphony no. 68 in B-flat major
 magnet:?xt=urn:btih:E2A3240A9B5BD35ECC0657554ECF21D3B991568B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Chopin, Beatrice Rana - Etudes Op.25 - 4 Scherzi (2021) [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:76869695577F0E0CD97C1B79CAC9C05780CE160E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Concerto For Violin In D Major
 magnet:?xt=urn:btih:BA1EF33BA767027297787F12E661453A1480E5D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Camille Saint-Saens - Samson et Dalila (1990) [APE|Lossless|image + .cue] <Opera
 ```bash
 magnet:?xt=urn:btih:605EE83C5793C5B88FEEC67AFFCFDA4840CCE821
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Royal Philharmonic Orchestra & James Morgan - Sleep Baby Sleep (2019) [FLAC|Loss
 magnet:?xt=urn:btih:F88EBA319B6BFC6E223A9B89CA2810E4935F46F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Celtic Swoon (2017) [MP3|320 Kbps] <Classical>
 ```bash
 magnet:?xt=urn:btih:79DD6A15A1917832B43AE12E1D6D12BB6C7F9800
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Piano Cloud Series - Volume One (2016) [FLAC|Lossless|WEB-DL|tracks] <Moder
 magnet:?xt=urn:btih:19E3A3C179D49770FED65763E1197108778C64DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:19E3A3C179D49770FED65763E1197108778C64DC
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Maxence Cyrin - Aurora (2020) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, P
 magnet:?xt=urn:btih:FF0349AA8A5C891478974977AD697451BA0E0974
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Vangelis - El Greco (1998) [FLAC|Lossless|image + .cue] <Modern Classical>
 ```bash
 magnet:?xt=urn:btih:048749AA29970C89FBF4B63C9D5C1A696C5D731C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Wataru Sato - midnight solitude (2017) [FLAC|Lossless|WEB-DL|tracks] <Piano, Amb
 magnet:?xt=urn:btih:79ED2E7545E8EF6708A7A8A06548A0FD8333114E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Jef Martens - Evenings on Instagram, Pt. I-III (2019) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:285C8A2D38A326E205DE06E850A23A811558DEEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Simply Piano Moods (2011) 2CD, Boxset[FLAC|Lossless|tracks + .cue] <Piano, 
 magnet:?xt=urn:btih:BB486EA7B821DAF8AF8EDA6335D2A88FE41AEE12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +399,8 @@ CD1:
 magnet:?xt=urn:btih:661A597A8DC5140B0AB04A96EC591573E06BAECD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +424,8 @@ V.A. - Most Relaxing Classics - Inspiration (2009) [FLAC|Lossless]<Classical>
 ```bash
 magnet:?xt=urn:btih:B1ED77444AE1E7EC888D19467D36A689E605BB3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +454,8 @@ VA - 100 лучших произведений классики (2010) [MP3|256 
 magnet:?xt=urn:btih:31A5F1DD236FF1EB238996959704F273DD201FEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +479,8 @@ London Symphony Orchestra and London Pop Choir - Plays The Best Of The Beatles (
 ```bash
 magnet:?xt=urn:btih:0AA6413A5F713FE607C7C360AA6F36D92E11018F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +509,8 @@ Olga Scheps - Satie (2016) [MP3|320 кб/с] <Classical, Piano>
 magnet:?xt=urn:btih:74079800DA791D80EC4B73BD533A8212EDA2603D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +537,8 @@ VA - Bespoke Classics: New Classics For Cool Dads (2018) [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:F2A6A8E81CB1CC93DB82CAC18CD18E92112B4156
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +567,8 @@ Katherine Jenkins - Celebration (2016) [FLAC|Lossless|WEB-DL|tracks] <Classical,
 magnet:?xt=urn:btih:D606041C9D4B6E92AB05F01E23FC43E2DB44C2A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +595,8 @@ Andre Gagnon - Les Chemins Ombrages (2010) [FLAC|Lossless|tracks] <Classical, Mo
 ```bash
 magnet:?xt=urn:btih:1240A0143A6C81E79D3AE749961C16E3AD43C8AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +625,8 @@ Concerto in G major, RV443
 magnet:?xt=urn:btih:926DCC74E66A75519E3D321F93B411FD1DC4B0FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +653,8 @@ Annie Moses Band - American Rhapsody (2015) [MP3|320 кб/с] <Classical Crossov
 ```bash
 magnet:?xt=urn:btih:4FDA57615C145C2A04CF21AF75486F5ED86630C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +683,8 @@ Cameos, Op. 56
 magnet:?xt=urn:btih:24B245D95CA6B5F9CE3CF3AC56E9C1B240333038
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +712,8 @@ Sonata for Piano and Violin in F, K.377
 magnet:?xt=urn:btih:A72EF12A7507236CDF95FAF476B90F4437FE30DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -690,6 +740,8 @@ Sonata for Piano and Violin in F, K.377
 ```bash
 magnet:?xt=urn:btih:6D1A42F347D05C04F68865216ADF33C9D976CE60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

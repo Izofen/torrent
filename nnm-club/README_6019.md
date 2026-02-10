@@ -19,6 +19,8 @@ XYplorer – удобный мультивкладочный файловый м
 magnet:?xt=urn:btih:1F0A1A4B3A4991987DF10424D97021D01FF5B5DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:1F0A1A4B3A4991987DF10424D97021D01FF5B5DB
 ```bash
 magnet:?xt=urn:btih:4542FF0DA3AE0F21315F6A20F5C34A585019738F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:4542FF0DA3AE0F21315F6A20F5C34A585019738F
 magnet:?xt=urn:btih:C67F7199EA42910BCE0C0A7042C338AEDA2B4B7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:C67F7199EA42910BCE0C0A7042C338AEDA2B4B7C
 ```bash
 magnet:?xt=urn:btih:D12349D65668EA18714CEA7063BAF94009F0ACC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:D12349D65668EA18714CEA7063BAF94009F0ACC1
 magnet:?xt=urn:btih:C794FCA9D48422ED1BE9ED69D0773440C041C2F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Tallah - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal, Hardcore,
 ```bash
 magnet:?xt=urn:btih:31796E4F983604C2099C4165450A5F29B567EFC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ The Common Linnets - The Hits (2020) [FLAC|Lossless|image + .cue] <Pop>
 magnet:?xt=urn:btih:A14201D9E5761278F563E0E7C01215214FB685CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Skype - бесплатная программа для текстового, г�
 ```bash
 magnet:?xt=urn:btih:8B151F58C2EF85B1B7B29F515628E4D126D93A95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:8B151F58C2EF85B1B7B29F515628E4D126D93A95
 magnet:?xt=urn:btih:3E7328826206F1359DB5F86A8022E1B9314E92DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ MacDroid поможет вам преодолеть барьер передач�
 ```bash
 magnet:?xt=urn:btih:A8B231B9A4C3A41443E1E444C9C171BF852BC0C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ VA - Relax Winter Soul Music (2020) [FLAC|Lossless|WEB-DL|tracks] <Soul>
 magnet:?xt=urn:btih:658623277862D267A1B549B1382A6425426BF593
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ MediaHuman YouTube Downloader 3.9.9.86 (2209) RePack (& Portable) by elchupacabr
 ```bash
 magnet:?xt=urn:btih:7A0E25102C916E914807E35B1B0D220EFB36B0F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:7A0E25102C916E914807E35B1B0D220EFB36B0F3
 magnet:?xt=urn:btih:1861C3507340A6042BEF582634DEAB502F7ED121
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:1861C3507340A6042BEF582634DEAB502F7ED121
 ```bash
 magnet:?xt=urn:btih:1D99ED2A3E87A8FCCA5902014505C5C4708EB2FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ Soft Organizer - утилита для полного удаления нену�
 magnet:?xt=urn:btih:A32DD263482C51242E0CC9742A4894A804063532
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:A32DD263482C51242E0CC9742A4894A804063532
 ```bash
 magnet:?xt=urn:btih:27B17ABC94F30A0BFA442BA2A5F34074F1C92F29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ Blocs - простой способ создания красивых сайто
 magnet:?xt=urn:btih:59AA92C5C8B789121A993C6409EBDCD07A9E871E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ Black Metal Keys — это виртуальный инструмент, кот�
 ```bash
 magnet:?xt=urn:btih:99AEDD6375BDB57A4EF155991C3F3BDB3B51AF14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:0AF658C7F3E6BC76B975858A50AD4D5020C9DD0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ Wallace Wang | Pro iPhone Development with SwiftUI, 4th Edition (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:9E1E779C04A58882E258166EFF56EA6A0F66EDB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +555,8 @@ Vinnie Moore - Double Exposure (2022) [MP3|320 Kbps] <Neoclassical, Classic Rock
 magnet:?xt=urn:btih:9197B062C11FBD59A64899BF71CB3E98DE517549
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ CD - 1:
 magnet:?xt=urn:btih:1CCF1114A63510ADC177CDC73C1539D9D533800D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:1CCF1114A63510ADC177CDC73C1539D9D533800D
 ```bash
 magnet:?xt=urn:btih:BC9FF94BAAE8CE147F8BACC9ED07E0ACF4B621E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +639,8 @@ Rectangle - это приложение для управления окнами
 magnet:?xt=urn:btih:0EE081AF5CE22F54DA294D512ACD0AF22F7F3B7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +665,8 @@ Zoc terminal - является довольно известным telnet/SSH/S
 magnet:?xt=urn:btih:1B9BF389299CA18F9146CE7255FCD3C9059DF162
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ magnet:?xt=urn:btih:1B9BF389299CA18F9146CE7255FCD3C9059DF162
 ```bash
 magnet:?xt=urn:btih:5FB66D9D97A3BDD1BA5F19865CB7C5FF20A71A4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

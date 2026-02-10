@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C1338A87E005CD96805FA3D60E49830997CEB20B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ VSDC Video Editor Pro 8.2.3.477 [Multi/Ru] (акция Comss)
 magnet:?xt=urn:btih:8614AB8F28AECC9DA8C762B779F5D90ABF43116A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:8614AB8F28AECC9DA8C762B779F5D90ABF43116A
 ```bash
 magnet:?xt=urn:btih:A114264C8FAB217078A7CE9AA1784C9814227F44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ VSDC Pro создан для тех, кто хочет освоить нелин
 magnet:?xt=urn:btih:50C0FE653EE03D8597740E21B118779582E75778
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:50C0FE653EE03D8597740E21B118779582E75778
 ```bash
 magnet:?xt=urn:btih:80DC5E5FD7B1B5DDB5BC52267E4A7DC991C1BE29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:80DC5E5FD7B1B5DDB5BC52267E4A7DC991C1BE29
 magnet:?xt=urn:btih:F0DA7D27AED6B733243F242B61BF9BEB9D203890
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Toontrack - EZbass 1.0.7 (build 26474) Update 64-bit STANDALONE, VSTi, VSTi3 ReP
 magnet:?xt=urn:btih:C6DBFA7562FDD3B108B071254913BD7B550B40A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:C6DBFA7562FDD3B108B071254913BD7B550B40A0
 ```bash
 magnet:?xt=urn:btih:60BD4AD0DEEB8B7C3CDBFEB2E080CA1A5634DED3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Udemy, Mike X Cohen | Master Math by Coding in Python (2020) WEB-DL [En / En Sub
 magnet:?xt=urn:btih:C5E1CE03E66447B2060CF2BBFA2C04629E8FCDD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:C5E1CE03E66447B2060CF2BBFA2C04629E8FCDD7
 ```bash
 magnet:?xt=urn:btih:AF10EA757B4E2E017632B8D8E605B204BBD16907
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ MediaHuman YouTube Downloader 3.9.9.86 (2809) RePack (& Portable) by TryRooM [Mu
 magnet:?xt=urn:btih:7767DE11647D0FE5EBD8F50048198079142D9611
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:7767DE11647D0FE5EBD8F50048198079142D9611
 ```bash
 magnet:?xt=urn:btih:61DD0FE7E5BCEE8A19D1DD61625B392E90DBFE3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ Artificial Brain - Artificial Brain (2022) [FLAC|Lossless|tracks + .cue] <Death 
 magnet:?xt=urn:btih:268718CC105FBF2CD18E3831D621116D286712F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Maleficarum - The Nine Circles (2019) [FLAC|Lossless|WEB-DL|tracks] <Death, Thra
 ```bash
 magnet:?xt=urn:btih:9CF3E6C97CEFD1FBFE70C7B37DC3BDEB9E010241
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ Maelstrom - Slaughter of the Dead (2013) Compilation [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:3B161991E039A917AEF5DC723E63D7638C395339
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:3B161991E039A917AEF5DC723E63D7638C395339
 ```bash
 magnet:?xt=urn:btih:D3CDC4E69F671BB28F392CAB46C4967035ABD810
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ Maligno - Maligno (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 magnet:?xt=urn:btih:BBED01C96C8FBA2275BA60E1C865A298F609D894
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:BBED01C96C8FBA2275BA60E1C865A298F609D894
 magnet:?xt=urn:btih:4DE9DC639F476199A048A9028B58C2D036DA32FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ magnet:?xt=urn:btih:4DE9DC639F476199A048A9028B58C2D036DA32FE
 ```bash
 magnet:?xt=urn:btih:053D78D6D52066AB4EB3E607D9AB8D17B036717E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:053D78D6D52066AB4EB3E607D9AB8D17B036717E
 magnet:?xt=urn:btih:BD94EB6A0EE7EE7C73332FAC8FF0FB2EB5F3F459
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ magnet:?xt=urn:btih:BD94EB6A0EE7EE7C73332FAC8FF0FB2EB5F3F459
 ```bash
 magnet:?xt=urn:btih:A780259A42CE30D84803FA28656CC2F9A172C336
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +584,8 @@ Dream&Draw, Анастасия Козлова | Клуб "Мечтай и рис
 magnet:?xt=urn:btih:54C7539E7FDFEC5D8060308939728C558C4AD69B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:54C7539E7FDFEC5D8060308939728C558C4AD69B
 ```bash
 magnet:?xt=urn:btih:BE9446E0875BD2231F4E6CA12654E30363D0C3B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +637,8 @@ magnet:?xt=urn:btih:BE9446E0875BD2231F4E6CA12654E30363D0C3B1
 magnet:?xt=urn:btih:F761A1822FCD715AB42D85EBF1A4264D99995264
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +663,8 @@ DxO PhotoLab Elite 7.0.1 build 76 RePack by KpoJIuK [Multi]
 magnet:?xt=urn:btih:C4FD1E4E6B2E9D31F9C152241E162CC3331A84B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ Evil West (2022) [Ru/Multi] (1.0.3/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:DCB82900072356BC7435009BB36611F860DF33FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

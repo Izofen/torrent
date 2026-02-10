@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:D34B0C3714E63BFB1A723EEF80555BAB0FDA73A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:D34B0C3714E63BFB1A723EEF80555BAB0FDA73A1
 magnet:?xt=urn:btih:A1CB715646DF32BBC0BFF3B335AC2B2D26008ABF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:A1CB715646DF32BBC0BFF3B335AC2B2D26008ABF
 ```bash
 magnet:?xt=urn:btih:6BC3ADD077039423795E4D0213DB2A71CCA7FED1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ X-Plane Flight Simulator v11.4.6 [En]
 magnet:?xt=urn:btih:0B5BD9D864A1CE68F9CA9F18FB00CB922A75DD97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Awesome Tanks – захватывающий экшен на андроид, г�
 ```bash
 magnet:?xt=urn:btih:362C4557EF6630BDDD16B257CC71F22F0B169223
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Sonic Dash – раннер от SEGA про знаменитого ежа на 
 magnet:?xt=urn:btih:26D4E1F25D7DD8F686153667CE9A167264171C51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Tag Team Карате Борьба Игры: PRO Kung Fu Master - качеств
 ```bash
 magnet:?xt=urn:btih:5FFA3868C50FBB7DA1C1EC226A22FEE47A469E34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Slaughter 2: Prison Assault 1.42 [Ru/Multi]
 magnet:?xt=urn:btih:29631FBA52D39EF7903D9C549B97753D8FF16C86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Slaughter 1.9 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:AC74E8CAE74459B8511AF45DB49ABDFB4387332C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Half-Life 2: Эпизод первый  дополняет самый попул
 magnet:?xt=urn:btih:3BA23EF870627AD18621EF9E64CDCEDC14900347
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Hollow Knight 1.2.2-Final (Unofficial port) Mod by Skaizek & Dan Cooper [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:40FE3050B1DF5D8BD6FBF1F667A7C26761328E52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Leo's Fortune – интересный платформер, в котором �
 magnet:?xt=urn:btih:02033140BEF27AECD69FFFED11E9771E2DB8ACC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Portal – всеми узнаваемая игра на ПК теперь уж�
 ```bash
 magnet:?xt=urn:btih:BF875D507348B7B4C78920AEDCAD1C6ADA2B6E2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Head Soccer LaLiga 2021 - Best Soccer Games - крутой спортивный 
 magnet:?xt=urn:btih:250FAFEA7E4862F192D9EB5094C2111713095A17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Ghosts of War: WW2 Shooting games v0.2.5 [Ru]
 ```bash
 magnet:?xt=urn:btih:F58C3C22B6F6E2C1E09F352FF7D0223919C19008
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Space Marshals – веселая и интересная  игра в жанр�
 magnet:?xt=urn:btih:E2C7DA726978B01F73B7EFCFA9D565CDCD4D6B6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:E2C7DA726978B01F73B7EFCFA9D565CDCD4D6B6B
 ```bash
 magnet:?xt=urn:btih:26C600D3591F78BCABB1E6021E15572334D76BDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:26C600D3591F78BCABB1E6021E15572334D76BDC
 magnet:?xt=urn:btih:36761B858F4539E6194CB74FD8E9DDF86E5E5832
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ The Wolf v2.0.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:ECF2929CB0F922BC509D25643F667C6CEF50216F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:ECF2929CB0F922BC509D25643F667C6CEF50216F
 magnet:?xt=urn:btih:B2162EBB3EF1894E30BDE6D5621A0DA0E1CC5A51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ Word: Поиск Слова Кроссворд v7.2 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5901EA2C1C7F967D8B60DA40D7DDC322A25C2700
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:5901EA2C1C7F967D8B60DA40D7DDC322A25C2700
 magnet:?xt=urn:btih:A527024C745C63C2E5B4AC0F2A3AD9C54F1D7078
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:A527024C745C63C2E5B4AC0F2A3AD9C54F1D7078
 ```bash
 magnet:?xt=urn:btih:9098281D23E929A01CE44B49B9D4A7E190F00570
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ Minecraft: Pocket Edition - культовый проект не нуждающ�
 magnet:?xt=urn:btih:19F0BB2F3CA7CEFBD848043E1D9EA549E519FD0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ Terraria 1.4.4.9.2 Mod by Dav124 [Ru/Multi]
 magnet:?xt=urn:btih:8BE3B55E6B86ECEA8FAF408AD8630602E146CCE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ magnet:?xt=urn:btih:8BE3B55E6B86ECEA8FAF408AD8630602E146CCE3
 ```bash
 magnet:?xt=urn:btih:1CDBD01A535EE3087E6E950453B802AE12B71724
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

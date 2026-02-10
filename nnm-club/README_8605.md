@@ -22,6 +22,8 @@ VA - 20s Collection (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:4A13531AE8BF4775F8A0517D20672B981E0E090F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:4A13531AE8BF4775F8A0517D20672B981E0E090F
 ```bash
 magnet:?xt=urn:btih:76899B2A1FB0B918B56172E0C411249263A286D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:76899B2A1FB0B918B56172E0C411249263A286D0
 magnet:?xt=urn:btih:B510D0771345E8104666253803D15F381659A423
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:B510D0771345E8104666253803D15F381659A423
 magnet:?xt=urn:btih:F3A5663391BD782123A533A8CD31DB2B7BB7CE79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:F3A5663391BD782123A533A8CD31DB2B7BB7CE79
 ```bash
 magnet:?xt=urn:btih:23C9AE1F3EF2EF38FD83B6E6C9AF45C659C395CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:23C9AE1F3EF2EF38FD83B6E6C9AF45C659C395CB
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:23C9AE1F3EF2EF38FD83B6E6C9AF45C659C395CB
 ```bash
 magnet:?xt=urn:btih:90DA640D9E277AC972FEB58CA8C37B038CBD9990
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:90DA640D9E277AC972FEB58CA8C37B038CBD9990
 magnet:?xt=urn:btih:5DE52D250807CECC871FCD569957B7935DC667AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:5DE52D250807CECC871FCD569957B7935DC667AE
 ```bash
 magnet:?xt=urn:btih:16A4327F4DCB8F473CAA7FBA6710DF79CB8181E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ Pro Evolution Soccer 2012 (Patch/Mod/3.4) 2012 | PESEdit
 magnet:?xt=urn:btih:86162AA9CF6444C4F4D61A5C7CFEC4E170A97CDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ Sterbhaus - Next Akin to Chaos (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Dea
 magnet:?xt=urn:btih:9EB485055D35A7F581933E38918425890F892690
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:9EB485055D35A7F581933E38918425890F892690
 ```bash
 magnet:?xt=urn:btih:D61FBE7454BD02614E29E28115883D16546E7D44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:D61FBE7454BD02614E29E28115883D16546E7D44
 magnet:?xt=urn:btih:2459B001FED42BD239009E6D546E2EB078C2D622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:2459B001FED42BD239009E6D546E2EB078C2D622
 ```bash
 magnet:?xt=urn:btih:63566F1579E6CE7E6EF4605DCC7C839B0182CD4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:63566F1579E6CE7E6EF4605DCC7C839B0182CD4A
 magnet:?xt=urn:btih:7A77A6FEEE4E52D2B24793E065B9B1182E2D0433
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:7A77A6FEEE4E52D2B24793E065B9B1182E2D0433
 ```bash
 magnet:?xt=urn:btih:673B4889F794708C010C84C0102A6A7F37D37E20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:673B4889F794708C010C84C0102A6A7F37D37E20
 ```bash
 magnet:?xt=urn:btih:1F05F4A1BA435DE4A0C8C858CD9215383C81DA44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +488,8 @@ VA - Diablo 3 (2012) [MP3|320 кб/с]<OST>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ VA - Diablo 3 (2012) [MP3|320 кб/с]<OST>
 ```bash
 magnet:?xt=urn:btih:357A830976C4BC33A66A34D72AC54E61E8B1470F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +542,8 @@ Bass Communion - 13 albums (2001-2009) [FLAC|Lossless] <Abstract, Ambient, Drone
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +568,8 @@ Bass Communion - 13 albums (2001-2009) [FLAC|Lossless] <Abstract, Ambient, Drone
 magnet:?xt=urn:btih:BCF74B836683BBC278D80E19D456AD02DA4121A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +593,8 @@ magnet:?xt=urn:btih:BCF74B836683BBC278D80E19D456AD02DA4121A2
 ```bash
 magnet:?xt=urn:btih:1DE68626B1F90D95D71C8749BCAADCD1CCEF7A82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +621,8 @@ magnet:?xt=urn:btih:1DE68626B1F90D95D71C8749BCAADCD1CCEF7A82
 magnet:?xt=urn:btih:FD7180EAE0A573D407E3975D9A2C1940D18373FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +646,8 @@ magnet:?xt=urn:btih:FD7180EAE0A573D407E3975D9A2C1940D18373FB
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +673,8 @@ magnet:?xt=urn:btih:FD7180EAE0A573D407E3975D9A2C1940D18373FB
 magnet:?xt=urn:btih:44DB86636C6CABA937A0539620C7138880BB8549
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +698,8 @@ magnet:?xt=urn:btih:44DB86636C6CABA937A0539620C7138880BB8549
 ```bash
 magnet:?xt=urn:btih:3E46B2FC5FAE8897054F0A768349384B2EDF28EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Assassin’s Creed Chronicles: India / Assassin's Creed Chronicles: Индия (
 magnet:?xt=urn:btih:D236EDCD5E3ECCB14ACA8B5A1988B6E57A2FC293
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Generation Streets (2020) [Ru/En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:20022564E827AA256765BB53AEDB06A200896D8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Binding of Isaac: Rebirth (2014) [En] (1.06.0109) SteamRip Let'sРlay
 magnet:?xt=urn:btih:2C5BEE2EF823FD49D1AC916A35CFA45EEE6B2E11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Darkout - новая великолепная экшен-песочница с �
 ```bash
 magnet:?xt=urn:btih:7C7E1BB4F7328575FE9B6E2225ABD3DBC458C7E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Guns n Zombies (2014) [Ru/Multi] (1.7/dlc) SteamRip Let'sРlay
 magnet:?xt=urn:btih:A5945DA06257C5FCAC78108D7D47753B8AC66BDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Macrotis: A Mother's Journey (2019) [Ru/Multi] (1.3.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:997A13A39BBBF559F1CCBEACF83E1D9397AB0350
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ The Wild Age — это стратегия в стиле Tower Defense. Разр
 magnet:?xt=urn:btih:01EC6C2E27ED9F2E313414C6A8211058794D0580
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Indivisible — это RPG-платформер с невероятной соз
 ```bash
 magnet:?xt=urn:btih:59C14E4375C28EA0F87D30D786167B1B4C48AA46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Escapists: The Walking Dead (2015) [Ru/Multi] (Build 263) Repack R.G. Мех
 magnet:?xt=urn:btih:0B8C6F7B78545050C4521F74350A711C9EAAB8CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Goat Simulator (2014) [Ru/Multi] (1.4.52198/dlc) License HI2U
 ```bash
 magnet:?xt=urn:btih:D6FE772C6F68FDDC5EB7639894AF479ED19441BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Sonic Lost World (2015) [En] (2.0.0/upd1/dlc) Repack R.G. Механики
 magnet:?xt=urn:btih:6BC6D913678FBE5FB6987CB99263C27369454DB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Assassin's Creed Chronicles: India— вторая глава трилогии A
 ```bash
 magnet:?xt=urn:btih:5ADE460A8FCF1A8B371F02C6493E12DCCBB0AC0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Assassin's Creed Chronicles: India / Assassin's Creed Chronicles: Индия (20
 magnet:?xt=urn:btih:A33CD26083A2D00BE4EF1EA6E251153BD3E903D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Black Future '88 (2019) [Ru/Multi] (0.45.2) License PLAZA [Collector's Edition]
 magnet:?xt=urn:btih:56FEC985E18DB377FFAA75780970EC37E220E172
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +382,8 @@ Black Future ’88 — это 2D-шутер c элементами roguelike и 
 ```bash
 magnet:?xt=urn:btih:49D23573DA0A3CBCD904D1D57CA9CFE5D70C7B22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Deadlight [Ru/En/Multi6] (Repack/1.0.9249.u.1) 2012 | R.G. Origami
 magnet:?xt=urn:btih:2EE10931CDE8EDB635E8C54C1D60E5E2FF6DCD48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Mortal Kombat: Komplete Edition (2013) [Ru/En] (1.07) Repack R.G. Механик
 ```bash
 magnet:?xt=urn:btih:6C1C4551B679D1CAAA2291B6E68447F1C6827867
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ Deadlight [Ru/En/Multi7] (L) 2012 | PROPHET
 magnet:?xt=urn:btih:84FCFB25E0937E955383D2798F3FDDD76303C8E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ Psychonauts (2005) [Ru/Multi] (1.1.603.0/dlc) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:4A2EB169D8570522D39A8E305C24D474584D0AD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ Evil Defenders – это забавная и невероятно увлека�
 magnet:?xt=urn:btih:D212289404C1B8CCAF125A44EDB0E37B936523CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ Kung Fu Panda: Showdown of Legendary Legends (2016) [En/Multi] (1.0) License COD
 ```bash
 magnet:?xt=urn:btih:4889100C7F6074129CBD37EEE25C57F7084F80C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Poker Night at The Inventory [En] (P/1.0.0.1) 2010
 ```bash
 magnet:?xt=urn:btih:009720EC866FDE4520679AD78B99A5D6E25BC8FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ Cargo! The Quest For Gravity / Эврика! [Ru/En/Multi9] (L) 2011 | PROPHET
 magnet:?xt=urn:btih:11F0194F83B37B43860D23264EEF6B70B392184A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ Retrovirus - шутер, имеющий шесть степеней свобод
 magnet:?xt=urn:btih:7B84AD6711A10195DE438570F3C199792E2EA767
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ We Need to Go Deeper - это приключенческий рогалик, в 
 magnet:?xt=urn:btih:5B47E7764FE223C48A73B5B9BB232622681BB4F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ Meet the Robinsons / В гости к Робинсонам (2007) [Ru] (1.0) Lic
 ```bash
 magnet:?xt=urn:btih:1B4F4EB461A4267EFACB6DFD9AD4181913B1B849
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Fief - I-IV (2019) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, D
 magnet:?xt=urn:btih:ED90AE3F05101A6D6DC17559A860B22B040AFA38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Motionfield - Discography 16 Releases (2006-2021) Autoload [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:60C98AC245838DB77740300114209AAD7BD9EEF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Profondita - Eternal (2021) Altar Records [FLAC|Lossless|WEB-DL|tracks] <Progres
 magnet:?xt=urn:btih:E41C2DB039536751F663B181FC20AEEA2F35806B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Tomoroh Hidari - The Reinterpretation of Dreams (小さな夢達 remixed) (2021)
 ```bash
 magnet:?xt=urn:btih:E84455C322D1B8D9F029D71DF5BEBC98FD7D9778
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Inhmost - Discography 7 Releases (2015-2021) La Luna, Huinali, re:st [FLAC|Lossl
 magnet:?xt=urn:btih:B0F0BE297C963AB1DF87AFB1DCAA0B6A828E2890
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:7210B9DA7E0224AC07BCBBBAD75E2DB5B7627352
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Dr. Atmo - Discography 18 Releases (1992-2021) Fax +49-69/450464, Logic Records,
 magnet:?xt=urn:btih:148082A90A22375666B322E9E1507C83F5743C9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Jon Hassell - Seeing Through Sound (Pentimento Volume Two) (2020) Ndeya [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:92EF7CBC1116D599ECAAD48314E1519770B65B75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Blutengel - Erlosung - The Victory of Light (2021) 2CD, Deluxe Edition [MP3|320 
 magnet:?xt=urn:btih:BEA94DF39FBFAE959FC948E486B13AFAF7F357EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Inhmost - The Meaning Of...... (2021) re:st [FLAC 2.0|44.1/24|tracks|WEB-DL] <Am
 ```bash
 magnet:?xt=urn:btih:2D4246E3B77BB0DFF033F620981A3A9C7D3DC056
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Emancipator - Discography 37 Releases (2006-2021) Loci Records [FLAC|Lossless|tr
 magnet:?xt=urn:btih:E5B70A5FED9FEA892E377396227EBF6D8F478873
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Stillhead - Iceberg (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
 ```bash
 magnet:?xt=urn:btih:40A23E86803727ED4E47A415C43157B5B4B14914
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ laaps - Label-Pack 13 Releases (2020-2021) [FLAC|Lossless|tracks+.cue, tracks] <
 magnet:?xt=urn:btih:130F6CC3ED2A558D1C31AB2AF827CAFEF1CAE3B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +396,8 @@ The Chikara Project - Label-Pack 19 Releases (2017-2021) [FLAC|Lossless|tracks] 
 ```bash
 magnet:?xt=urn:btih:252B88352004264ACDE15391406AF4266E1692B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +426,8 @@ Future Synth - Exoplanet (2021) [MP3|320 Kbps] <Synthpop, Spacesynth, Space-Disc
 magnet:?xt=urn:btih:9AFD59CAE7224A5CF82B27E03E80BD13813733F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +454,8 @@ VA - Coffee & Love: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Bal
 ```bash
 magnet:?xt=urn:btih:F4C1100EDF62051095FF45E3E9081F3E818C0443
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +484,8 @@ Faserklang - Focus On Distraction (2021) Drift Deeper Recordings [FLAC|Lossless|
 magnet:?xt=urn:btih:2A23C1B0DF903E135CD1B27CFEBF138E113239EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +512,8 @@ Wet Basement - Electromagnetic (2021) Drift Deeper Recordings [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:D142EDE32F574B5559CBAF694AE98FCBC50DF2A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +542,8 @@ Merv - Cordial EP (2021) Release Sustain [FLAC|Lossless|WEB-DL|tracks] <Tech Hou
 magnet:?xt=urn:btih:DA8683F4224AA89402F964FB45B0EE5880C396F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +571,8 @@ Conforce - Wavetable (2021) Sungate [FLAC|Lossless|WEB-DL|tracks] <Techno, Deep 
 magnet:?xt=urn:btih:79D6FA052638630F775A483255290F88482D5569
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +596,8 @@ Glacial Movements Records - Label-Pack 49 Releases (2006-2021) [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:A8D841A64E5959D59FB43C5A9AAACFBCE010B41C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +626,8 @@ B12 | Redcell (Michael Golding & Steven Rutter) - Discography 45 Releases (1992-
 magnet:?xt=urn:btih:0062970CE8C131718EC5E99D3CF3D69699E1EA44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +654,8 @@ Cignol | Dr Nol - Discography 32 Releases (2010-2021) Alphabet Set, Furthur Elec
 ```bash
 magnet:?xt=urn:btih:19B8432E8DBA2A034A5466FAABC1F2422577B7D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +684,8 @@ Freeform | Simon Pyke - Discography 40 Releases (1995-2021) Warp Records, Freefa
 magnet:?xt=urn:btih:4C6FA57A44DF48D5E0F9B3A2E1736295DA40EA5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +713,8 @@ Blochemy - Discography 7 Releases (2013-2021) CleanError, SunSeaSky [FLAC|Lossle
 magnet:?xt=urn:btih:72652E79D1B632305AB08220C611E295DD8B1607
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -691,6 +741,8 @@ BLNDR - Callopsis (2021) Kizen Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, T
 ```bash
 magnet:?xt=urn:btih:86141BD6EDC4445C58EF46D23C97F0A36FD266EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ AIMP – проигрыватель, включающий в себя множе
 magnet:?xt=urn:btih:DE1129F4FB284E3D0A2B5BCCC4BEFA6B5E8A6436
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:DE1129F4FB284E3D0A2B5BCCC4BEFA6B5E8A6436
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Spotify имеет громадный каталог музыки, поддер�
 magnet:?xt=urn:btih:05A70F46EFCF691172D155FD61625FF74A333DB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Outlast (2013) [Ru/En] (1.0.12046.0/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:9573D73D671BFA0B439A7BEC9EC5CCB19903B42C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ W.A.S.P. - The Sting: Live At The Key Club, L.A. (2001) DVD5
 magnet:?xt=urn:btih:2EDF6ECD6859C590046DA22974097DEECD1C4031
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:2EDF6ECD6859C590046DA22974097DEECD1C4031
 ```bash
 magnet:?xt=urn:btih:514C04B618F0EE0778B55C55B5791974948DA91E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Paris in 2000 Years - это градостроительная игра, пос
 magnet:?xt=urn:btih:FE6656091236B9F4794368BED369797B4594C105
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:FE6656091236B9F4794368BED369797B4594C105
 ```bash
 magnet:?xt=urn:btih:E7C8A815F02420B5ED5D880BB734B729D14F6237
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Mozilla Thunderbird –  легкая и безопасная бесплатна
 magnet:?xt=urn:btih:EF58519BD674000F52D419AAFD17E01D044E36C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:EF58519BD674000F52D419AAFD17E01D044E36C2
 ```bash
 magnet:?xt=urn:btih:97376B4CFA328606BC42B9707D79264D31F9F916
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:97376B4CFA328606BC42B9707D79264D31F9F916
 magnet:?xt=urn:btih:F8E672F76B5D6046B574F51813D67E8D723D9C07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:F8E672F76B5D6046B574F51813D67E8D723D9C07
 ```bash
 magnet:?xt=urn:btih:17826638CD3445902579476D66171E501776D28C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ IPTV# (ex. LazyIPTVDeluxe) v3.10 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:EB8E2307C3876E35EAB824D183282CD3F2B433BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:EB8E2307C3876E35EAB824D183282CD3F2B433BB
 ```bash
 magnet:?xt=urn:btih:B87FF7F9121A39833CFCEEE7275BE2DFAEE42DB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:B87FF7F9121A39833CFCEEE7275BE2DFAEE42DB0
 magnet:?xt=urn:btih:2085DFC7EAC27D60305978B372068A0431A706AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Plants vs. Zombies / Растения против Зомби (2009) [Ru] (1.2.0
 ```bash
 magnet:?xt=urn:btih:F6E0522DA9CB3D1EEEE804C98E1D558DF5C6F28E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:F6E0522DA9CB3D1EEEE804C98E1D558DF5C6F28E
 magnet:?xt=urn:btih:941D19B371D79D066F97A5317DA82CBD9588E9D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:941D19B371D79D066F97A5317DA82CBD9588E9D5
 ```bash
 magnet:?xt=urn:btih:E5699B469BAB4B1BF80DC29A3CF276BFD6BAC1C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:E5699B469BAB4B1BF80DC29A3CF276BFD6BAC1C5
 magnet:?xt=urn:btih:613CC65779D2B1DF5B319B5A8A725659D55CD49D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:613CC65779D2B1DF5B319B5A8A725659D55CD49D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:613CC65779D2B1DF5B319B5A8A725659D55CD49D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ Elden Ring – фэнтезийное экшен-РПГ приключение, 
 ```bash
 magnet:?xt=urn:btih:DB98EF0BCD14DBDCBB26EFE3AE663C20D2C2BC90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:DB98EF0BCD14DBDCBB26EFE3AE663C20D2C2BC90
 magnet:?xt=urn:btih:BBCCA059AE503C29A5516AC693A57B4C307F620E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ Chromosome Evil 2 переносит в леденящий душу мир, гд
 magnet:?xt=urn:btih:45C2B2499FE187D1A440A245C7D615DD37C4EC73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ magnet:?xt=urn:btih:45C2B2499FE187D1A440A245C7D615DD37C4EC73
 ```bash
 magnet:?xt=urn:btih:6EDD5660F6E183B0357E55B98D97186E30B85A22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +678,8 @@ Cliff Williams - bass, backing vocals(   Читать дальше...   )01. Sti
 ```bash
 magnet:?xt=urn:btih:505B846DFE00C86935F344D0BB4B7E36A2CD66B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

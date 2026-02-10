@@ -19,6 +19,8 @@ Free 2.4 [En]
 magnet:?xt=urn:btih:AD4AE530E737B088E9A0A2898EDA462A058395C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Magoshare Data Recovery - одно из самых мощных приложен
 magnet:?xt=urn:btih:1F2505A3C6358B323925447D66C3C97D7E8EADAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ PhoneRescue - полезное приложение для восстановл�
 ```bash
 magnet:?xt=urn:btih:D49AB563E45D066C3F10105E6CC3B3A63F7E6499
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ ScreenFloat — приложение для создания висящих на
 magnet:?xt=urn:btih:D88F2CF08B4FAA27B1899B5F0CDA96FDD88424B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ AnyMP4 Android Data Recovery – это отличное приложение д
 ```bash
 magnet:?xt=urn:btih:A5063EBF0BE40BD8CBCD15BEBA746DCC900A684D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ GraphicConverter 11 — полнофункциональный графичес�
 magnet:?xt=urn:btih:73ADE24A3A9A9B9C3F26458D833E36367C02F1C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ AnyMP4 iOS Toolkit for Mac 9.1.6 [Multi]
 ```bash
 magnet:?xt=urn:btih:79E910E7A5F6244BA091971D8982D08033358023
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ JixiPix Premium Pack — пакет из всех последних выпущ�
 magnet:?xt=urn:btih:89731DC8AF842635AD90421F833ECBE05E5B0F42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Task Calendar - надежное приложение-календарь для 
 ```bash
 magnet:?xt=urn:btih:2134718AA21274F10EB933A2D25ECD9B16B4337B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Firetask позволяет занятым людям выполнять зад�
 magnet:?xt=urn:btih:0B032B2036F95AC3516BA0189455FB2DA5AEA95D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ UltraCompare — это текстовый редактор, оптимизир�
 ```bash
 magnet:?xt=urn:btih:1EBC912481136C51BFE67889A0BD732B76B8BBA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ NCH DreamPlan Plus 8.61 [En]
 magnet:?xt=urn:btih:C665B5B8553E126C926DFE043FD104AEC158863A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Typing 2.4 [En]
 magnet:?xt=urn:btih:59F65F352BC9B302F792EF153433D2EA6970665C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Zee Timer 7.5 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1297CEC3E0337DFD38D1B7CD1D12C70D130DEB0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ Net Worth Pro - отслеживайте свою чистую стоимост�
 magnet:?xt=urn:btih:B3772E8843D1C41844EFBDC02EF38DA9E0D629DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Perfect Diet Tracker - Данная программа предназначен�
 ```bash
 magnet:?xt=urn:btih:1F4FDF6F4362C3630183B5C9AD078B194096A00B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ PhotoLinker обеспечивает беспрецедентный уровен
 magnet:?xt=urn:btih:8DDACBD9D1A51F97D67CDDF671A0A79CBCA44634
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ ON1 Photo RAW включает в себя ключевые обновления
 ```bash
 magnet:?xt=urn:btih:C5295154C8FE37FAF0360AA54883F79556A7C7F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ Polarr - единственный редактор фотографий, кот�
 magnet:?xt=urn:btih:6B79A8B5D4AE8D8C8E69939AC80BE6CCC772D19D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ Paragon Hard Disk Manager for Mac® - это идеальное решение �
 magnet:?xt=urn:btih:9C5708DBB8325AD7B7FB1971192705759E1FC886
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Diagrams - это редактор диаграмм для Mac, который �
 ```bash
 magnet:?xt=urn:btih:156426C2BE5480AF8D9F6FFCA846AE4D5F77EECC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Default Folder X - Расширяет функциональные возмож�
 magnet:?xt=urn:btih:BB132D19B2136CAA39093F8CFF05EA4071E1164B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Movavi Video Converter Premium 8.3.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5D878F89BE7C854807DF3D55E8E4CA1CA312F4BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ XnViewMP (или XnView) — неплохой кроссплатформенны
 magnet:?xt=urn:btih:939E586ED0F5755E94D775B1DCB09A6D61F1D51C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ Explaindio Platinum 4 v4.011 [Multi/Ru]
 magnet:?xt=urn:btih:1049D90BB84333D84EDD868B0AF22DA0FEB84FFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Redream - это эмулятор Dreamcast, позволяющий играть
 ```bash
 magnet:?xt=urn:btih:4B65C941E8F8E4CB3B5A3791BCAD18067B589E30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

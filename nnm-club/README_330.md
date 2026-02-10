@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:DE9277063C45EBBD3DFE68CFFD5B68E0B53AE1A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Cat Scanner / Сканер породы кошек v22.1.4-G Mod by PieMods [Ru/
 ```bash
 magnet:?xt=urn:btih:AF19C0146ED59F87FDE3479FF35AACCA96601106
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:AF19C0146ED59F87FDE3479FF35AACCA96601106
 magnet:?xt=urn:btih:7666DF90D42CE4AE982F3CF56282A86785899FF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:7666DF90D42CE4AE982F3CF56282A86785899FF8
 ```bash
 magnet:?xt=urn:btih:E6AD3852C86FF5449905D82C9BF301B824B409BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Emergency 3 - Mission: Life / Emergency 3. Служба спасения 911 (20
 magnet:?xt=urn:btih:079327D0E923949246A18D3DE6232706FF358D59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ AirBrush: ИИ Фоторедактор v7.13.0 Mod by PieMods [Ru/Multi]
 magnet:?xt=urn:btih:7866477672E7F28813BD7BDE77721E9A8D379846
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:7866477672E7F28813BD7BDE77721E9A8D379846
 ```bash
 magnet:?xt=urn:btih:9F3C6B5899536D45E6500836F48CE8A078EFB57D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ VA - Music News For Forum vol.124 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:03FBACBC5050546310F44881C15E6A699CFA67BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:03FBACBC5050546310F44881C15E6A699CFA67BE
 ```bash
 magnet:?xt=urn:btih:5FF0B7E036B0288E88476372EA568BD4A584E5A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:5FF0B7E036B0288E88476372EA568BD4A584E5A7
 magnet:?xt=urn:btih:A1CD434FFFBE0977DF7C98D5D5F3A42BE00A2E2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:A1CD434FFFBE0977DF7C98D5D5F3A42BE00A2E2A
 ```bash
 magnet:?xt=urn:btih:F3EA37CD49C956C9EAD2E4AC97214DF2C16FD737
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.08.06.18.12/dlc) Repack Fit
 magnet:?xt=urn:btih:2A237CF51BB72F1BCCED8B0DDACF2E1C6F8932F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:2A237CF51BB72F1BCCED8B0DDACF2E1C6F8932F1
 magnet:?xt=urn:btih:AD22304E63E90356789C5B10E6A6C39240F80687
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Hetman Partition Recovery - программа восстанавливает д
 ```bash
 magnet:?xt=urn:btih:3BC926F179D5F54153FD993C47B48485912E3D9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:3BC926F179D5F54153FD993C47B48485912E3D9E
 magnet:?xt=urn:btih:27E69B7AA0371418DA34C7541F3616454B4839FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:27E69B7AA0371418DA34C7541F3616454B4839FF
 ```bash
 magnet:?xt=urn:btih:11E652C991CC79A4EB34FC729BC3A62F9DE8F670
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:11E652C991CC79A4EB34FC729BC3A62F9DE8F670
 magnet:?xt=urn:btih:C42A4D58373E45D04AA1E6B9D0A80055F7DEEFEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:C42A4D58373E45D04AA1E6B9D0A80055F7DEEFEA
 ```bash
 magnet:?xt=urn:btih:07FA2C5298F4C0131166AE31492E515FC58DDAD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ Motograter — американская метал-группа, образов�
 magnet:?xt=urn:btih:7E8FAE7F357EBC168F1DF10B2D5702C6196A815F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ iTubeGo YouTube Downloader 10.7.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:4098C53CD51A5C78C75B56D12B7D35EE44D27D5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:4098C53CD51A5C78C75B56D12B7D35EE44D27D5A
 ```bash
 magnet:?xt=urn:btih:70720C218FB9ADB70F4821EBCD9F8595CD8405F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ Zettlr – достаточно продвинутый текстовый ред
 magnet:?xt=urn:btih:65A4D101FA2099C26EA0DCD2826B167406AD71B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:65A4D101FA2099C26EA0DCD2826B167406AD71B9
 ```bash
 magnet:?xt=urn:btih:6B1082BDC3119AF186F3E5F628FFB68BD109DE96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ magnet:?xt=urn:btih:6B1082BDC3119AF186F3E5F628FFB68BD109DE96
 magnet:?xt=urn:btih:6554AEE6D7E6FFA28E79878BC6EF54AA8E3B2E24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ Atlantis Word Processor 4.4.6.3 Repack (& Portable) by elchupacabra [Ru/En]
 magnet:?xt=urn:btih:33D408A981D98C89E0251B3658547C98F4817FC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:33D408A981D98C89E0251B3658547C98F4817FC4
 ```bash
 magnet:?xt=urn:btih:FFC0B90A8483F1963B399D8D5B310AE1EC8E6AEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

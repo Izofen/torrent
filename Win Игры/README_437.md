@@ -1,27 +1,3 @@
-###  Публикация: 1136121   (676484) от 21.05.2017
-
-Old Man's Journey (2017) [Ru/Multi] (1.0.0) License
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Old Man’s Journey - это приключенческая игра с головоломками и внутренним поиском, рассказывающая историю о жизни, потере, примирении и надежде. Войдите в прекрасный и солнечный рукотворный мир, а затем отправляйтесь в настоящее путешествие, наполненное веселыми и ненавязчивыми головоломками. Графический рассказ о самых важных моментах жизни, разбитых мечтах и меняющихся (   Читать дальше...   )Тип издания: LicenseРазработчик: Broken RulesЖанр: Adventure, Indie, 3rd PersonЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9340B850B23568A541C4D398183C5E5C9201BBAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 509209   (676645) от 11.06.2012
 
 Blacked out / Жуть (L) [Ru] 2012
@@ -42,6 +18,8 @@ Blacked out / Жуть (L) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:219EF794B58D70DF45F87791D853C7AED197D5B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Fear for Sale 4: Phantom Tide / Страх на продажу. Призрак �
 magnet:?xt=urn:btih:88B9ED97B7346189CA6858D1DFC2B5F8F9FF549E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Fever Frenzy (P) [En] 2007
 ```bash
 magnet:?xt=urn:btih:40B8E32FABD33B5BBDA9FAE804F75F80D396E227
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Antihero (2017) [Multi] (1.0.24/dlc) License GOG [Deluxe Edition]
 magnet:?xt=urn:btih:4F8AE611E1BE1CCAEFBE5F7D3CECC951B8894C74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Pizza Connection 3 (2018) [Ru/Multi] (10100111001) License PLAZA
 ```bash
 magnet:?xt=urn:btih:3D1288DD321D0A0EEE46E072D48EF047CCAF7FDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Fate/Extella Link является продолжением игры Fate/Extell
 magnet:?xt=urn:btih:63F833D585E1506E39BAD6EF9870D1BB9D4A683A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Party Hard 2 (2018) [Ru/Multi] (1.1.002r) License CODEX
 ```bash
 magnet:?xt=urn:btih:14EEC747D52784AC3358020E9D65E1FC88109671
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Goliath (2016) [Ru/En] (1.04/dlc) Repack R.G. Механики
 magnet:?xt=urn:btih:08BC97AA7DCD7C55B9E991F496FB01DA3B8DD5EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ Tales of Monkey Island - это пятая часть знаменитой са�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ Spirit Of Revenge 4: Florry's Well (2016) [En] (1.0) Unofficial [Collector's Edi
 magnet:?xt=urn:btih:AFF22D15CF09E041164C685CD3806F0307158C14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ The Walking Dead: A New Frontier (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst [E
 ```bash
 magnet:?xt=urn:btih:9CEF745FF292D0BA880D458368D5914E0D1169CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ Ghost Files: The Face of Guilt / Дело Призрака: Лики вины (2
 magnet:?xt=urn:btih:31CAE2FC39ED522C31C49144153F777D3BB7C39E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ SEGA представляет революционный боевик от Plati
 ```bash
 magnet:?xt=urn:btih:D6D04B8A77D305DE627B284B7C05085EB67C7CF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ Haunted Hotel 4: Charles Dexter Ward Collector's Edition (P) [En] 2012
 magnet:?xt=urn:btih:55E1C2C0AC27A660B88AA9EA0552817A3B4645E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ Fierce Tales 3: Feline Sight / Жестокие истории 3. Кошачий
 ```bash
 magnet:?xt=urn:btih:EAFB05283AB13BF52D3267D8201B4D918A4A33AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ Sable Maze 4: Twelve Fears (2015) [En] Unofficial [Collector's Edition / Кол�
 magnet:?xt=urn:btih:8C886DD7EE42E0421A056356E028A4BFF13E940E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ Oriental Empires (2017) [Ru/Multi] (1.0/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:F68BC63E59B2921219F282B921FB5BCD1A6880BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ Objects in Space — двухмерный космический симулят�
 magnet:?xt=urn:btih:0F3B4E00BE68E914CC91E8A25CEB61D61512E968
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ My Time At Portia (2019) [Ru/Multi] (2.0/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:63E2F2A2F82E53D6A966A24ABB8B2AF9F0623EA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ Quern - Undying Thoughts (2016) [Ru/Multi] (1.2.0 HotFix2) License GOG
 magnet:?xt=urn:btih:1EEB82B2C2892A5DB260B555DDF9117065CCF560
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ GRIS (2018) [Ru/Multi] (1.03) License GOG [Soundtrack Edition]
 ```bash
 magnet:?xt=urn:btih:A6966663F204E0FAF7A8480EADD99726E22EE816
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ Distrust (2017) [Ru/Multi] (1.1.5.2) License GOG
 magnet:?xt=urn:btih:26809364CE1431E06A5EB4D8CDE8759BA544350F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ Dragon Ball FighterZ – эпичный, яркий, динамичный и н�
 ```bash
 magnet:?xt=urn:btih:A85A0856121BEFBA0100C1F04DB5AE5A5F1AA669
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +617,8 @@ The Forgotten Fairytales 2: Canvases of Time (2018) [En] (1.0) Unofficial [Colle
 magnet:?xt=urn:btih:5B8BB80A375B54AA2C45704D58EF61539E361003
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +642,34 @@ Enchanted Kingdom 3: Fog of Rivershire (2018) [En] (1.0) Unofficial [Collector's
 ```bash
 magnet:?xt=urn:btih:697294D7DAC112588E813BBFE576B1BB5C64F7E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290162   (680428) от 19.03.2019
+
+Hidden Expedition 16: The Golden Secret (2017) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_680428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Штаб-квартира H.E.L.P. прерывает ваш горнолыжный отпуск с важным заданием: отправиться в Женеву, чтобы приобрести древний артефакт, который возможно содержит информацию о происхождении H.E.L.P. Но это будет нелегко. Вы должны стать победителем торгов на аукционе с высокими ставками. У H.E.L.P. конечно есть деньги! К сожалению, Вы не единственные, кто заинтересовался (   Читать дальше...   )Тип издания: UnofficialРазработчик: Eipix EntertainmentЖанр: Квест, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF734107565F11A3B0E945FCCEFEC578A73AC760
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

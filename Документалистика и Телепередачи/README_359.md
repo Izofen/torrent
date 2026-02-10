@@ -1,3 +1,29 @@
+###  Публикация: 938904   (479885) от 19.09.2015
+
+Новые русские сенсации. В постели с Саакашвили (2015.09.19) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа "Русские сенсации" - это еженедельное документальное приложение к "Программе Максимум". Созданная в лучших традициях расследовательской журналистики, программа развивает и углубляет этот жанр, затрагивая темы, о которых раньше никогда не рассказывало отечественное ТВ. Большинство фильмов - уникальные разработки, слишком громкие и масштабные (   Читать дальше...   )Телекомпания: НТВЖанр: ДокументальныйРежиссер: Глеб Ясиницкий, Андрей Куренков, Дмитрий ЦураПродолжительность: ~ 00:43:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:751EF8F50E638977E388F6EB60E12909805DED65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1244583   (479919) от 02.09.2018
 
 Военная приемка. Академия Генштаба ВС РФ. (02.09.2018) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:EDAAC726406D3273D2835FA5C7A6A69FB5EB2D6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:EDAAC726406D3273D2835FA5C7A6A69FB5EB2D6D
 magnet:?xt=urn:btih:3DD3824354366B680D99905D15689A6AC8BA72C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:3DD3824354366B680D99905D15689A6AC8BA72C8
 ```bash
 magnet:?xt=urn:btih:2D58D9926A11B519E3FF538B28F639E88521BA10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:2D58D9926A11B519E3FF538B28F639E88521BA10
 magnet:?xt=urn:btih:5D0C64A9DBFB0BF3B05CB2407D8F96EC32E6524F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:5D0C64A9DBFB0BF3B05CB2407D8F96EC32E6524F
 ```bash
 magnet:?xt=urn:btih:4BD00C4C75BFA52301CE2D9D73EAAE8703B1F589
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:4BD00C4C75BFA52301CE2D9D73EAAE8703B1F589
 magnet:?xt=urn:btih:6E62B6C700F4B0167F216D31FE5A53C7AF49DAA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:6E62B6C700F4B0167F216D31FE5A53C7AF49DAA9
 ```bash
 magnet:?xt=urn:btih:BC154D82722529BCB66446AED421CDFD5A414CAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:BC154D82722529BCB66446AED421CDFD5A414CAE
 magnet:?xt=urn:btih:95D15F52D168F99B0D0088FD816A6C0FC79B9CA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:95D15F52D168F99B0D0088FD816A6C0FC79B9CA7
 ```bash
 magnet:?xt=urn:btih:8FB6B224379A99025FD2C0AB71CC5A74DA8B29A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:8FB6B224379A99025FD2C0AB71CC5A74DA8B29A7
 magnet:?xt=urn:btih:B02F29C2BAB4BBB8FBC789E9D30EF80EEA77A8F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:B02F29C2BAB4BBB8FBC789E9D30EF80EEA77A8F3
 ```bash
 magnet:?xt=urn:btih:3742F503F02D986E7B074A5DA740386EF8AAC31D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:3742F503F02D986E7B074A5DA740386EF8AAC31D
 magnet:?xt=urn:btih:7B67E17DBED37EB0E862BBD4A5180B2D7D5100C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:7B67E17DBED37EB0E862BBD4A5180B2D7D5100C9
 ```bash
 magnet:?xt=urn:btih:54891C2419C0B2B5933CADC470E57D2C9F180E7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:54891C2419C0B2B5933CADC470E57D2C9F180E7A
 magnet:?xt=urn:btih:4275445DBC4F2E1F83F957A4F7EFFB21B38175D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:4275445DBC4F2E1F83F957A4F7EFFB21B38175D2
 magnet:?xt=urn:btih:99FADDEA123E7CE0122789D9E4A4C0441F6C32CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:99FADDEA123E7CE0122789D9E4A4C0441F6C32CA
 ```bash
 magnet:?xt=urn:btih:0E9E8CCD1D35E7AD7CF8FC495061BB8830BC846B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:0E9E8CCD1D35E7AD7CF8FC495061BB8830BC846B
 magnet:?xt=urn:btih:4C4B3FA23A7C6A2C2ECEC1D9046409B511685AC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:4C4B3FA23A7C6A2C2ECEC1D9046409B511685AC2
 ```bash
 magnet:?xt=urn:btih:0B98780E6F3448DF07C1E33132427D0630257505
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:0B98780E6F3448DF07C1E33132427D0630257505
 magnet:?xt=urn:btih:B1017756A606B9FBAC317F1D3ED87BC38DD42C2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:B1017756A606B9FBAC317F1D3ED87BC38DD42C2E
 ```bash
 magnet:?xt=urn:btih:4CB3C6572F5740F10AC968EB5230024ACEBC84D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:4CB3C6572F5740F10AC968EB5230024ACEBC84D9
 magnet:?xt=urn:btih:2CDF345B23FB30E942FBC1CE39F763FACC809AB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:2CDF345B23FB30E942FBC1CE39F763FACC809AB2
 ```bash
 magnet:?xt=urn:btih:0CBA970E11B0284C52282CA800179686F1CD674C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:0CBA970E11B0284C52282CA800179686F1CD674C
 magnet:?xt=urn:btih:BCEDD8ABC8BF1E519B797604501D88AA8F26A781
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:BCEDD8ABC8BF1E519B797604501D88AA8F26A781
 ```bash
 magnet:?xt=urn:btih:4C6567401A1A1C4712BE11A5822DB4D90DB8721E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,29 +674,7 @@ magnet:?xt=urn:btih:4C6567401A1A1C4712BE11A5822DB4D90DB8721E
 magnet:?xt=urn:btih:689DB13D098CEE38D0DE8B6E6C5F1146F2C60D82
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056285   (481759) от 25.09.2016
-
-Голос (2016.09.24) HDTV [H.264/1080i] (сезон 5, специальный выпуск 4)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наставники продолжают набирать свои команды, преуспели в этом нелегком деле Дима Билан и Леонид Агутин, отобравшие себе по семь вокалистов. У Григория Лепса и Полины Гагариной пока по пять конкурсантов. Кому удастся занять вакантные места в четвертом выпуске Слепых прослушиваний?Телекомпания: Первый канал HDЖанр: ТВ-шоу, музыкальный, развлекательныйПродолжительность: 02:16:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63E2F7C158699C1AE563EC193118B1727DE7B75C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

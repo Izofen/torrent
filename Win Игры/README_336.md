@@ -19,6 +19,8 @@ WolfensteinII: The New Colossus — долгожданное продолжен�
 magnet:?xt=urn:btih:D9F3FDDB13DAD78C49F9EBEB37FE205806BCFD27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Attentat 1942 - это мрачная визуальная новелла, в к
 ```bash
 magnet:?xt=urn:btih:059AD7A23448ADAA3267C2912EC8F4E37F98FD73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Perception – это сюжетный приключенческий хорро
 magnet:?xt=urn:btih:6734CCEEA6383D9A4093D0B5F2EA449064D120F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Expeditions: Viking (2017) [Ru/Multi] (1.0.7.1/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:C474D8CF4471494B74259155354A9364917FAC32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Hob (2017) [Ru/Multi] (1.16.3.0) Repack R.G. Catalyst
 magnet:?xt=urn:btih:BB31226F49AD0F8470DC757CA59E4EB76DB9A166
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Motorsport Manager (2016) [Ru/Multi] (1.5.1/dlc) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:E7DBD90152B25D5B1BC496588A9EC268FE364B6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Yesterday Origins (2016) [Ru/Multi] (1.0/u4) License SKIDROW
 magnet:?xt=urn:btih:44D2941DD3E030FF9F6D477D3FC2AE92EE1BB4B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Neptune Flux (2016) [En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:708E4BA1AA248B9B490DB957EA69D78D927C9C31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Lantern (2016) [Ru/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:B0F637F5F4559B71C3FD9C2C801998D6247E9F20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Tales (2016) [Ru/Multi] (1.0.1) License HI2U
 ```bash
 magnet:?xt=urn:btih:FD6F214A69E4B0B0D9A020306C7826CEF6EF13C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ F1 2013 предлагает вниманию поклонников вирту�
 magnet:?xt=urn:btih:0733E8E84C0E81166EDBA97605A5B06C2D015436
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ Assault Squad 2: Men of War Origins, современное переиздани
 ```bash
 magnet:?xt=urn:btih:3AF41EEBC264ED6F4901C474471F28FC1547F5F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ Tony Hawk's Pro Skater HD [Ru/En/Multi5] (Lossless Repack/1.0.8788.0) 2012 | R.G
 magnet:?xt=urn:btih:D59A72E5FBBE1C1355269D9B1F5D895768A15B25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ Pid – платформер, где вы выступаете в роли ма�
 magnet:?xt=urn:btih:0E46F63D21EA4E87FCF4255206EA87FFD171099E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ Lantern (2016) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:D2C7DD3AF19B51EB484512E4C74821665BF24C46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ TheNightfall (2018) [Ru/Multi] (1.5) License PLAZA [Halloween Edition]
 magnet:?xt=urn:btih:F0F75E736C0AECE3E0910935B333CDC97BA73F15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ Ashen – экшен-РПГ с открытым миром, что расска�
 ```bash
 magnet:?xt=urn:btih:A8C830516FC4EE5283285A04385FD76562D62550
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ Pilgrims / Пилигримы (2019) [Ru/Multi] (1.0.6.267) License GOG
 magnet:?xt=urn:btih:36E9770067630548FEA55D28FE9E7B1679795DB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ Sniper Elite V2 Remastered (2019) [Ru] (1.0.2797) Repack Other s
 ```bash
 magnet:?xt=urn:btih:FFD4723F7731E0DC637C6F3EFD61EC9641EA422E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ The Wild Eight (2019) [Ru/Multi] (1.0.4) License CODEX
 magnet:?xt=urn:btih:737DDAABBFCC90B968AF753F57B6DC03738F23BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ City Legends 2: Trapped in Mirror / Городские легенды 2: Узн�
 ```bash
 magnet:?xt=urn:btih:BF2E5D3D3CEB912B84F850B0DFC682CDE77EE6A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ Mortal Shell — это беспощадный и глубоко прорабо�
 magnet:?xt=urn:btih:4698ACB452F18EE9E521EC17A6E28CBB115526D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ Cognition - это "эпизодический криминальный трил
 ```bash
 magnet:?xt=urn:btih:07D62E855BD4891509DF23831BEAF00F79AFE3FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ Mystery Tales 8: Dangerous Desires / Загадочные истории 8: Оп
 magnet:?xt=urn:btih:C6B250E685129FA8DA15B0E4167F6A71AAC66C6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ Myths of the World 5: Black Rose / Мифы народов мира 5: Черн�
 magnet:?xt=urn:btih:4AD5F3E45A183F012C69F455478C27776044C80D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ God Eater: Resurrection (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:7F84D4EFD9954CAC12BC06A6E9B6E28602F84144
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

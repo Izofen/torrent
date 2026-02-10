@@ -19,6 +19,8 @@ Berserk: Ougon Jidai Hen | Берсерк | Berserk Golden Age Arc | Берсе�
 magnet:?xt=urn:btih:166DB4F59C02F7F49F26733CC461BF62EED407DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Shikanoko Nokonoko Koshitantan | My Deer Friend Nokotan | Моя подруга-
 ```bash
 magnet:?xt=urn:btih:3F050658796B4BE19FE3FAF512D02DD184C22362
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Josee to Tora to Sakana-tachi | Josee, the Tiger and the Fish | Её завет�
 magnet:?xt=urn:btih:976958F226A65462308E2C80DFBDEB357D998601
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Ookami Kodomo no Ame to Yuki | Wolf Children | Волчьи дети Амэ и �
 ```bash
 magnet:?xt=urn:btih:3B3033E42C17C069D2CBFD5BE2D66E7C7A9E6E65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Nihon e Youkoso Elf-san. | Welcome to Japan, Ms. Elf! | Добро пожало�
 magnet:?xt=urn:btih:A83D83C1C648C51503C7CB9EC9DF98A52249FC47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Megami no Cafe Terrace II | The Cafe Terrace and Its Goddesses II | Богини
 ```bash
 magnet:?xt=urn:btih:BB31FA13539407F4DAD351159B8878CB04150812
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Honkai: Star Rail это очередная онлайн игра от наш�
 magnet:?xt=urn:btih:048E7C33B5950F061C38B24C7CAC1E513FC71CBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Berserk: Ougon Jidai Hen III - Kourin | Берсерк: Сошествие | Ber
 ```bash
 magnet:?xt=urn:btih:E98CA3EE8589C33573AA7661032697C999309FAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower
 magnet:?xt=urn:btih:015C213B37F9F74A5A138BFF5A7DE913BC21F197
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Violet Evergarden Gaiden: Eien to Jidou Shuki Ningyou | Violet Evergarden: Etern
 ```bash
 magnet:?xt=urn:btih:49036718C3B3FA76EFF30150C1ABAE2DC741C70F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Josee to Tora to Sakana-tachi | Josee, the Tiger and the Fish | Её завет�
 magnet:?xt=urn:btih:D83F5AE48A7C829D8F07439CEBC17049A54B5594
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Coquelicot-zaka Kara | Kokuriko-zaka Kara | From Up on Poppy Hill | Со скл�
 magnet:?xt=urn:btih:CA93F12840C50EE75F0300EA8CBB4E740FE75925
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +330,8 @@ Promare | Промар [2019, Movie] Blu-ray 1080p raw+rus
 ```bash
 magnet:?xt=urn:btih:8D67A5611294A1172645F498B8BD60A8A1778796
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Berserk: Ougon Jidai Hen II - Doldrey Kouryaku | Berserk Golden Age Arc II: The 
 magnet:?xt=urn:btih:9AA07A1318D58144B153CDAE0A38B1BE03CA9829
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Berserk: Ougon Jidai Hen | Berserk: The Golden Age Arc | Берсерк: Зол�
 ```bash
 magnet:?xt=urn:btih:D77C188E3F274C27A2BE4DE2C5215972F8759FC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Berserk: Ougon Jidai Hen I - Haou no Tamago | Берсерк: Бехерит В�
 magnet:?xt=urn:btih:7027A6918F6D790DDCC4B022C66665CE5205780E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Berserk: Ougon Jidai Hen III - Kourin | Берсерк: Сошествие | Ber
 ```bash
 magnet:?xt=urn:btih:DC3A6885DBD21392B1EE4ADD228AA33247C73F19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Kotonoha no Niwa | Сад слов | The Garden of Words | Сад изящных
 magnet:?xt=urn:btih:215128C59EBC5D0F744B957817615CA6BCB3008C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Kaijuu no Kodomo | Children of the Sea | The Sea Monster's Children | Дети �
 ```bash
 magnet:?xt=urn:btih:95CE02EB0DBB59AE92F864824717C6340FE67253
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ Majo no Takkyuubin | Kiki's Delivery Service | Ведьмина Cлужба До
 magnet:?xt=urn:btih:31B38E6FE9F52E92C3FFF8C777297D8E87E977E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Yofukashi no Uta | Call of the Night | Песнь Ночных Сов [2022, TV,
 ```bash
 magnet:?xt=urn:btih:AB7F46A8FC88DEF8369E33B71411F1FE5AC890BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ Mononoke Hime | Принцесса Мононокэ | Princess Mononoke | При
 magnet:?xt=urn:btih:5441BF6CAC12AB7D9B501364CED2F91AF7E9F8A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Tenkuu no Shiro Laputa | Laputa: Castle in the Sky | Небесный замок
 ```bash
 magnet:?xt=urn:btih:9BB8AA00006B216697859FB78741D3C62D472D1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ Mushoku Tensei II: Isekai Ittara Honki Dasu | Реинкарнация Безр�
 magnet:?xt=urn:btih:608213EF440C1FE4C6AB35E0067C2ED7C87A7CA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ Mushoku Tensei II: Isekai Ittara Honki Dasu | Реинкарнация Безр�
 magnet:?xt=urn:btih:F0E8130BC2DF799FA8D38B83F2FDDC2BE9BD245A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Kaze Tachinu | The Wind Rises | Ветер Крепчает [2013, Movie] BDRemu
 ```bash
 magnet:?xt=urn:btih:F9FA9A272CE5E2A4005AC8B392F3DDC422638F50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

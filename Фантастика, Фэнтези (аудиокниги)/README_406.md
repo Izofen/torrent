@@ -1,3 +1,30 @@
+###  Публикация: 1143341   (637076) от 17.06.2017
+
+Александр Беляев | Остров погибших кораблей (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637076.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Беляев – один из основоположников советской фантастической литературы, выдающийся писатель, оставившей наследие из более, чем 20 замечательных повестей и романов.
+Потерпев бедствие, трансатлантическое пассажирское судно относится течением в таинственные закоулки Саргассова моря, откуда до сих пор никому не удавалось выбраться. Все корабли, попадающие туда, (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 05:11:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1E40351A6B4D5A00C5F0F03AAADEEE4BD9C2605
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1542628   (637123) от 07.04.2022
 
 Катерина Цвик | Под маской, или Страшилка в академии магии (2021) [MP3, Олег Ковальчук]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:CAF53FBEA7BF6E5B0F6C3E0DCD07E25F1CC60A4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:CAF53FBEA7BF6E5B0F6C3E0DCD07E25F1CC60A4F
 magnet:?xt=urn:btih:183B2CF0C05EB2BAB2D6CF80B2D44BB864BDB5CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +98,8 @@ magnet:?xt=urn:btih:183B2CF0C05EB2BAB2D6CF80B2D44BB864BDB5CB
 magnet:?xt=urn:btih:DF51D0A582C50E0432DEDE5AB49DC3B5D2088E55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +123,8 @@ magnet:?xt=urn:btih:DF51D0A582C50E0432DEDE5AB49DC3B5D2088E55
 ```bash
 magnet:?xt=urn:btih:45C8B092A8A3FA1F8EBEAA7692935BAD7C75C14F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +151,8 @@ magnet:?xt=urn:btih:45C8B092A8A3FA1F8EBEAA7692935BAD7C75C14F
 magnet:?xt=urn:btih:5FCAB009985203149EEC9915F7D2E6457F1B51AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +176,8 @@ magnet:?xt=urn:btih:5FCAB009985203149EEC9915F7D2E6457F1B51AA
 ```bash
 magnet:?xt=urn:btih:F4EE6CB671522EBEB97741EDAC37EE988C6F05B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +203,8 @@ magnet:?xt=urn:btih:F4EE6CB671522EBEB97741EDAC37EE988C6F05B4
 magnet:?xt=urn:btih:05EB9B943FE9EC6710241DB8E6A97AD48A4204DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +228,8 @@ magnet:?xt=urn:btih:05EB9B943FE9EC6710241DB8E6A97AD48A4204DD
 ```bash
 magnet:?xt=urn:btih:02DEDF0880BAC0D9664E21F85B1390C8A24C4DD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +257,8 @@ magnet:?xt=urn:btih:02DEDF0880BAC0D9664E21F85B1390C8A24C4DD3
 magnet:?xt=urn:btih:49B22CB29FA8F5C8902AED062119985D4A25DDAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +283,8 @@ magnet:?xt=urn:btih:49B22CB29FA8F5C8902AED062119985D4A25DDAC
 magnet:?xt=urn:btih:8AA4EEC7B5B25AB7F5CD4250B66D5B57B66A6DB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +308,8 @@ magnet:?xt=urn:btih:8AA4EEC7B5B25AB7F5CD4250B66D5B57B66A6DB9
 ```bash
 magnet:?xt=urn:btih:B2F06994A6F08E2EB27A0F127A871F0BD4C79A38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +336,8 @@ magnet:?xt=urn:btih:B2F06994A6F08E2EB27A0F127A871F0BD4C79A38
 magnet:?xt=urn:btih:6480A5C6A153A4C4C0867521885D4E4E9532C639
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +361,8 @@ magnet:?xt=urn:btih:6480A5C6A153A4C4C0867521885D4E4E9532C639
 ```bash
 magnet:?xt=urn:btih:6887A8C2BBB447F5E6B18892EDA85B75FDC31320
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +389,8 @@ magnet:?xt=urn:btih:6887A8C2BBB447F5E6B18892EDA85B75FDC31320
 magnet:?xt=urn:btih:DB56F991D5C1FEA1952D7958595D1825C7F7165D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +414,8 @@ magnet:?xt=urn:btih:DB56F991D5C1FEA1952D7958595D1825C7F7165D
 ```bash
 magnet:?xt=urn:btih:A305FB9C0ABFC76144A1C82B8F2A5914C18D19D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +444,8 @@ magnet:?xt=urn:btih:A305FB9C0ABFC76144A1C82B8F2A5914C18D19D5
 magnet:?xt=urn:btih:8D863970EF687FA504BFDC3F98E45DD10A9FFE54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +470,8 @@ magnet:?xt=urn:btih:8D863970EF687FA504BFDC3F98E45DD10A9FFE54
 magnet:?xt=urn:btih:74986A2BAC33257F4590E35497D3D239EB39B000
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +495,8 @@ magnet:?xt=urn:btih:74986A2BAC33257F4590E35497D3D239EB39B000
 ```bash
 magnet:?xt=urn:btih:89138AEEB74E2F0948043F711546C6A7E1946B11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +523,8 @@ magnet:?xt=urn:btih:89138AEEB74E2F0948043F711546C6A7E1946B11
 magnet:?xt=urn:btih:FEEDCF0B0BCB2CB1CC67B6060EFC77C730E2B415
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +548,8 @@ magnet:?xt=urn:btih:FEEDCF0B0BCB2CB1CC67B6060EFC77C730E2B415
 ```bash
 magnet:?xt=urn:btih:CAF5276FC899DC79AEB1A5C55A883E334DE835D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +575,8 @@ magnet:?xt=urn:btih:CAF5276FC899DC79AEB1A5C55A883E334DE835D0
 magnet:?xt=urn:btih:976D9F2CD6AE8700B437C48CDC50BF8238FC9A1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +600,8 @@ magnet:?xt=urn:btih:976D9F2CD6AE8700B437C48CDC50BF8238FC9A1F
 ```bash
 magnet:?xt=urn:btih:771555FDB0705488D58478ED682FE7127600E673
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +627,8 @@ magnet:?xt=urn:btih:771555FDB0705488D58478ED682FE7127600E673
 magnet:?xt=urn:btih:EAC21D04253B952A03FECADF7870F96D55A74C55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +652,8 @@ magnet:?xt=urn:btih:EAC21D04253B952A03FECADF7870F96D55A74C55
 ```bash
 magnet:?xt=urn:btih:4F6ECDA5B65303C6928807811273CAFB6F84F5B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,30 +679,7 @@ magnet:?xt=urn:btih:4F6ECDA5B65303C6928807811273CAFB6F84F5B1
 magnet:?xt=urn:btih:A2A127D757526EF02152365D8AA96FA7AAF99EBA
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542375   (639103) от 06.04.2022
-
-Наталья Мазуркевич | Ведьмы живут на крыше (2022) [MP3, Анна Басс]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639103.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое любовь? Для кого-то это настоящее испытание, требующее недюжинной силы воли, а для меня — сделка.
-Сделка между моей жабой, логикой и здравым смыслом, отступившими перед обаянием Мартина Клейна, человека прекрасного во всех отношениях, кроме личных, и кровожадностью его юриста, готового пустить меня по миру в случае нарушения нашего контракта. Увы, брачного, (   Читать дальше...   )Жанр: Любовное фэнтези, Юмористическое фэнтезиПродолжительность: 08:28:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:007A1FAAFDC7319CE2112D4903E32D6E3097DF3F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

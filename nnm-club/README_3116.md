@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:E473B1E2014D3AE88715037C284838637ED0CCC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ Mickey Hart Band - Mysterium Tremendum (2012) [MP3|320 кб/с]<Psychedelic Prog
 magnet:?xt=urn:btih:5D085FF29DB166C14ACCD02C60A57D07FF985F6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:5D085FF29DB166C14ACCD02C60A57D07FF985F6A
 ```bash
 magnet:?xt=urn:btih:243CADAE641B58B16A4BC49519DDF5FE222C3D70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +115,8 @@ VA - A Psychedelic Journey Vol.1 (2012) [MP3|320 кб/с]<psychedelic, full on>
 magnet:?xt=urn:btih:E837AFE5451BC85980D01FDDDD3BD0BF443328FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +150,8 @@ Ben Azar - Organized Memories (2011) [FLAC|Lossless]<Jazz-Rock, Contemporary Jaz
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +175,8 @@ Ben Azar - Organized Memories (2011) [FLAC|Lossless]<Jazz-Rock, Contemporary Jaz
 ```bash
 magnet:?xt=urn:btih:192B7D5D904D38EC91740B082E1D9E3EFBBD3788
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +211,8 @@ VA - Dance Explosion  (2011) [MP3|320 кб/с]<Dance>
 magnet:?xt=urn:btih:5FC000CEE496862CC244767639D477165240FCCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -232,6 +246,8 @@ DJ Kocmoc - Electro Sensation vol.24 (6.04.2012) [MP3|320 кб/с]<Electro House
 magnet:?xt=urn:btih:2A583B4D6F87A6B5BE944F42EE910495E880E098
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +271,8 @@ magnet:?xt=urn:btih:2A583B4D6F87A6B5BE944F42EE910495E880E098
 ```bash
 magnet:?xt=urn:btih:58BDFAC662AC5F05512ABCBFBAD15B126C1C12E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -280,6 +298,8 @@ magnet:?xt=urn:btih:58BDFAC662AC5F05512ABCBFBAD15B126C1C12E9
 magnet:?xt=urn:btih:EFBC1A3B28EBD3D8D166E05E3EED3059C4AE21A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +323,8 @@ magnet:?xt=urn:btih:EFBC1A3B28EBD3D8D166E05E3EED3059C4AE21A6
 ```bash
 magnet:?xt=urn:btih:C17B03457888970BB9A2229FC41B7D9E606640B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +359,8 @@ VA - Союз еврохитов (2012) [MP3|256 kbps]<Pop | Dance>
 magnet:?xt=urn:btih:1497BD6E48E88A3E74D05B62366709DA63DC243E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +391,8 @@ Baby D - Deliverance (1996)
 ```bash
 magnet:?xt=urn:btih:449DEE9AF896A1337096102D9543B43D04D3E820
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +427,8 @@ VA - Kiss FM - Top-40 (10.04.2012) [MP3|320 кб/с]<Dance>
 magnet:?xt=urn:btih:3AA02FE3E1DCE4E0854740FB120BD3AC29234C1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +458,8 @@ Chano Dominguez - Flamenco Sketches (2012) [FLAC|Lossless]<Latin Jazz, Piano Jaz
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +494,8 @@ Minay - Покажи, пока жив (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
 magnet:?xt=urn:btih:787963FE20C1912B4536BFBA1634A3E5C3168564
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +529,8 @@ Maria Muldaur - Steady Love (2011) [FLAC|Lossless]<Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +556,8 @@ Maria Muldaur - Steady Love (2011) [FLAC|Lossless]<Blues>
 ```bash
 magnet:?xt=urn:btih:CF10298DCE1B0BC8D03101CC0E7F2AAEB278DF5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +585,8 @@ magnet:?xt=urn:btih:CF10298DCE1B0BC8D03101CC0E7F2AAEB278DF5F
 magnet:?xt=urn:btih:97039D0D5F5661F45A8DCE8D2F7382581BFF4562
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +611,8 @@ magnet:?xt=urn:btih:97039D0D5F5661F45A8DCE8D2F7382581BFF4562
 magnet:?xt=urn:btih:65E0511CE430CDBA74D5D9D16F7D9898CDA6AFD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +636,8 @@ magnet:?xt=urn:btih:65E0511CE430CDBA74D5D9D16F7D9898CDA6AFD7
 ```bash
 magnet:?xt=urn:btih:469D9278B3ACEB5609820EE24D48228EFA6588AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +672,8 @@ Simon Pauls - Promise (2012) [MP3|320 кб/с]<Tech House, Minimal Techno>
 magnet:?xt=urn:btih:595EAD31A9CF43A9469E364DBF47BCD0E427D91D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +703,8 @@ magnet:?xt=urn:btih:595EAD31A9CF43A9469E364DBF47BCD0E427D91D
 magnet:?xt=urn:btih:C327D9C2F0D99551B7613176EEFABECC0475624E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -682,6 +728,8 @@ magnet:?xt=urn:btih:C327D9C2F0D99551B7613176EEFABECC0475624E
 ```bash
 magnet:?xt=urn:btih:BC85DAFCDF9AFB7FCFE0324EB0CE8E82FA447879
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -716,6 +764,8 @@ VA - Клубные новинки Vol.59 from AGR (2012) [MP3|320 кб/с]<Club
 magnet:?xt=urn:btih:CF6F9579C7FACA432A5EE1D0CF1D5160BCEFB426
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -748,6 +798,8 @@ VA - Клубные Новинки Vol.60 from AGR (2012) [MP3|320 кб/с]<Club
 ```bash
 magnet:?xt=urn:btih:0CD6F6001968539F0769D689A0A525274C8F90B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

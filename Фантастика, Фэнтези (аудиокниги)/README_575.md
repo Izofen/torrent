@@ -1,3 +1,31 @@
+###  Публикация: 1849445   (1053786) от 23.01.2026
+
+Джон Демидов | Система компиляции (Книга 2). Становление (2025) [MP3, Алексей Семёнов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053786.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Становление" – роман Джона Демидова, вторая книга цикла «Система компиляции», жанр реалРПГ, литРПГ, героическая фантастика.
+
+Приключения Максима и его друзей продолжаются. Обещание Максима завело его в загребущие ручки той, от кого он старался оказаться как можно дальше. Наш герой благородно пожертвовал собой, чтобы спасти доверившихся ему людей, и сейчас, (   Читать дальше...   )Жанр: фантастика, приключения, РеалРПГИздательство: ИДДКПродолжительность: 07:24:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D90C8D9E8AA4890869040ABC0684B42D75E01BB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849446   (1053787) от 23.01.2026
 
 Джон Демидов | Система компиляции (Книга 3). Противостояние (2025) [MP3, Алексей Семёнов]
@@ -20,6 +48,8 @@
 ```bash
 magnet:?xt=urn:btih:8731B8E858123ED49404225F5DEFF9B34B4F740E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -47,6 +77,8 @@ magnet:?xt=urn:btih:8731B8E858123ED49404225F5DEFF9B34B4F740E
 magnet:?xt=urn:btih:DA98E520E6100F2EBB8D33B4CFE52187E7CEF260
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +103,8 @@ magnet:?xt=urn:btih:DA98E520E6100F2EBB8D33B4CFE52187E7CEF260
 magnet:?xt=urn:btih:3FD6BAC4A32BFBCEB153EEDB316DB2A55C597E24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +128,8 @@ magnet:?xt=urn:btih:3FD6BAC4A32BFBCEB153EEDB316DB2A55C597E24
 ```bash
 magnet:?xt=urn:btih:8A0CEF6E840DC7A7B04D140B5EB89B45BC8BE5E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +156,8 @@ magnet:?xt=urn:btih:8A0CEF6E840DC7A7B04D140B5EB89B45BC8BE5E7
 magnet:?xt=urn:btih:B849785504E42A69BF7C9A4BD8EAE4EBD43D69CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +181,8 @@ magnet:?xt=urn:btih:B849785504E42A69BF7C9A4BD8EAE4EBD43D69CF
 ```bash
 magnet:?xt=urn:btih:16BB713F1156055A068A8F5B7884208C141D6E36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +208,8 @@ magnet:?xt=urn:btih:16BB713F1156055A068A8F5B7884208C141D6E36
 magnet:?xt=urn:btih:773A3CD85906436472DB2E2CB5A57E39F215A2FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +234,8 @@ magnet:?xt=urn:btih:773A3CD85906436472DB2E2CB5A57E39F215A2FB
 magnet:?xt=urn:btih:854B2E1A5169BB8D7F361D857AF39551F5F3882B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +259,8 @@ magnet:?xt=urn:btih:854B2E1A5169BB8D7F361D857AF39551F5F3882B
 ```bash
 magnet:?xt=urn:btih:42BE9568DE04966C29CD30868760EDAD862ECBD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +287,8 @@ magnet:?xt=urn:btih:42BE9568DE04966C29CD30868760EDAD862ECBD6
 magnet:?xt=urn:btih:AAFB42A8EC47D18662FC8D971C7FB2DAAC65ED19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +312,8 @@ magnet:?xt=urn:btih:AAFB42A8EC47D18662FC8D971C7FB2DAAC65ED19
 ```bash
 magnet:?xt=urn:btih:C23B8A1551BB85E44976662C61FF060447972107
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +339,8 @@ magnet:?xt=urn:btih:C23B8A1551BB85E44976662C61FF060447972107
 magnet:?xt=urn:btih:56957D0D4FF023AF8246D38619993459DD903663
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +364,8 @@ magnet:?xt=urn:btih:56957D0D4FF023AF8246D38619993459DD903663
 ```bash
 magnet:?xt=urn:btih:E74E932A9F20A786AB50B99F5B578E49845D55E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +391,8 @@ magnet:?xt=urn:btih:E74E932A9F20A786AB50B99F5B578E49845D55E0
 magnet:?xt=urn:btih:37289E18F6912106F1322E0939092221538D0D1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +416,8 @@ magnet:?xt=urn:btih:37289E18F6912106F1322E0939092221538D0D1C
 ```bash
 magnet:?xt=urn:btih:CAB362FD0F5C3E6A1AB9F2C5B74145A2F92D0CD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +446,8 @@ magnet:?xt=urn:btih:CAB362FD0F5C3E6A1AB9F2C5B74145A2F92D0CD8
 magnet:?xt=urn:btih:9BFC87ACF16D6A8D7640004C2CE6209715AFB1E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +474,8 @@ magnet:?xt=urn:btih:9BFC87ACF16D6A8D7640004C2CE6209715AFB1E6
 magnet:?xt=urn:btih:BDA16020ABB647F516C93823FCCB08FAD0CE2D7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +499,8 @@ magnet:?xt=urn:btih:BDA16020ABB647F516C93823FCCB08FAD0CE2D7F
 ```bash
 magnet:?xt=urn:btih:C6B3EEB63597BA5B4BB857DE2387513C83106D15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +526,8 @@ magnet:?xt=urn:btih:C6B3EEB63597BA5B4BB857DE2387513C83106D15
 magnet:?xt=urn:btih:4D28CCF665F68173CCAC8DD2C1351E3FD89DA1CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +551,8 @@ magnet:?xt=urn:btih:4D28CCF665F68173CCAC8DD2C1351E3FD89DA1CA
 ```bash
 magnet:?xt=urn:btih:3C9E3BD5C92DAC7BCE9C1C3D5DE1AA57D78BCC15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +578,8 @@ magnet:?xt=urn:btih:3C9E3BD5C92DAC7BCE9C1C3D5DE1AA57D78BCC15
 magnet:?xt=urn:btih:273E69409FFED4A141291E7894BF71A65DD18224
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +603,8 @@ magnet:?xt=urn:btih:273E69409FFED4A141291E7894BF71A65DD18224
 ```bash
 magnet:?xt=urn:btih:D5E2A5B757984244CE70FCA2AA674DF75293C741
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +630,8 @@ magnet:?xt=urn:btih:D5E2A5B757984244CE70FCA2AA674DF75293C741
 magnet:?xt=urn:btih:437E476D2109ACBD176A029DC357E70531EF705C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +655,8 @@ magnet:?xt=urn:btih:437E476D2109ACBD176A029DC357E70531EF705C
 ```bash
 magnet:?xt=urn:btih:AB1C90A397CA56FA306316F1B2BE39C8A5910779
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,29 +682,7 @@ magnet:?xt=urn:btih:AB1C90A397CA56FA306316F1B2BE39C8A5910779
 magnet:?xt=urn:btih:2F3E258B74E8CA299F3D434F184264AF5F0B00CC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849852   (1054097) от 
-
-Freezing Spell | Яд василиска (2025) [MP3, Никита Зуров]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Министерство Магии расследует причины участившихся случаев нападения неизвестных монстров на людей. Но… так ли всё просто, как кажется на первый взгляд? Расследование с каждым днём становится всё опаснее, а несчастные случаи оборачиваются чьим-то дьявольским замыслом…Жанр: Детектив, ФэнтезиИздательство: Аудиокнига своими рукамиПродолжительность: 01:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E44E0348FFBC5F1D2D15187897DEC5708C51BE3B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

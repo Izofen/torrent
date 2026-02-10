@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:5BF72601A8A6B48F1459EE4475A6BE86E5D28093
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:5BF72601A8A6B48F1459EE4475A6BE86E5D28093
 ```bash
 magnet:?xt=urn:btih:214B760950B49E848F4CD4BF39EDA4DB9B2FA3A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ AC/DC (Эй-си/ди-си; сокращённо от англ. alternating curr
 magnet:?xt=urn:btih:3004D586E4A095D5D3F74FAE8B4C3EC08C3FD42A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Rammstein - Legacy of Kain: Soul reaver (sonne remix) (2011)
 ```bash
 magnet:?xt=urn:btih:D2B6D4E637483C45DD10D80C6AF12948874B0B0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ magnet:?xt=urn:btih:D2B6D4E637483C45DD10D80C6AF12948874B0B0A
 magnet:?xt=urn:btih:A473324C9F434B14503A5C434786EFA7CB20ABF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +165,8 @@ Europa Plus TOP 40 декабрь (2017) WEB-DL
 magnet:?xt=urn:btih:9E92943ACBA55A6AF7F1E1CE043FDB8CA6F0A0E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +193,8 @@ Gioma - Dj Remix (2016) WEBRip [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:D7CBBEB57F0EF02221D9A751BDECC1CE66EC8381
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -210,6 +224,8 @@ Ellie Goulding ft. Juice WRLD – Hate Me(   Читать дальше...   )Ж�
 magnet:?xt=urn:btih:C2F18FB8E31B7B5E76099D9689E74783FC9CBAB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -233,6 +249,8 @@ magnet:?xt=urn:btih:C2F18FB8E31B7B5E76099D9689E74783FC9CBAB5
 ```bash
 magnet:?xt=urn:btih:72B81E6D990A2D1D8B2D179596F5EE0426758B58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -258,6 +276,8 @@ magnet:?xt=urn:btih:72B81E6D990A2D1D8B2D179596F5EE0426758B58
 magnet:?xt=urn:btih:8CF1E08E42946D2A9E989A94F9717B8E1585CCB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +302,8 @@ magnet:?xt=urn:btih:8CF1E08E42946D2A9E989A94F9717B8E1585CCB6
 magnet:?xt=urn:btih:25829208A0819348D484CB770065FF0655CC7516
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +327,8 @@ magnet:?xt=urn:btih:25829208A0819348D484CB770065FF0655CC7516
 ```bash
 magnet:?xt=urn:btih:BADF1F9151F3A33FEEE891678BE06D5BE3756115
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +358,8 @@ P/S: Добавлены новинки с Новогодними клипами.
 magnet:?xt=urn:btih:9455AA7B2FA953AE2460FACD02467C8A0527438A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +383,8 @@ magnet:?xt=urn:btih:9455AA7B2FA953AE2460FACD02467C8A0527438A
 ```bash
 magnet:?xt=urn:btih:FEBE23773FCE54F96C00E1DA8A2706F43A32450C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +414,8 @@ Mark Knopfler: Концерт в Берлине 2007 / Live In Berlin 2007 (2014
 magnet:?xt=urn:btih:609AC8A1620B4A67B6699F85457F277B293D8DD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +439,8 @@ magnet:?xt=urn:btih:609AC8A1620B4A67B6699F85457F277B293D8DD3
 ```bash
 magnet:?xt=urn:btih:F63578BDBE4BA01CF8598474FC3358DCEE3D98D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +466,8 @@ magnet:?xt=urn:btih:F63578BDBE4BA01CF8598474FC3358DCEE3D98D5
 ```bash
 magnet:?xt=urn:btih:5ED4E7F349C85B71B76021BBCE939AE3709C9AFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +498,8 @@ magnet:?xt=urn:btih:5ED4E7F349C85B71B76021BBCE939AE3709C9AFE
 magnet:?xt=urn:btih:21E5EC045BE442BAE3D605E5535D632312051C9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +525,8 @@ magnet:?xt=urn:btih:21E5EC045BE442BAE3D605E5535D632312051C9E
 ```bash
 magnet:?xt=urn:btih:1E80830E88165F44D12D1F64401D51A4E9C441A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +556,8 @@ David Guetta ft. Anne-Marie – Don’t Leave Me Alone(   Читать даль�
 magnet:?xt=urn:btih:141D4D6BA891CB60EF72AC6D31BC0874E574CEAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +581,8 @@ magnet:?xt=urn:btih:141D4D6BA891CB60EF72AC6D31BC0874E574CEAE
 ```bash
 magnet:?xt=urn:btih:EC8A70448AC0183C8334DF53C115856EB3250460
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +612,8 @@ magnet:?xt=urn:btih:EC8A70448AC0183C8334DF53C115856EB3250460
 magnet:?xt=urn:btih:4D23DE4D340C95C8392FEF0AEF307EEE18F7E444
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +637,8 @@ Lindsey Stirling - What Child is This (2012) [H.264/1080p] WEBRip
 ```bash
 magnet:?xt=urn:btih:0C363A637F201FFB30F86F6B72FAEF853E022803
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +667,8 @@ Unanswered(   Читать дальше...   )Жанр: Death CoreПродолж
 magnet:?xt=urn:btih:0CFC1CF888458F440C168EB2577F8C90C317E122
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +696,8 @@ magnet:?xt=urn:btih:0CFC1CF888458F440C168EB2577F8C90C317E122
 magnet:?xt=urn:btih:2ED822B61D1F5A5ACB54A34D9358F368AD23BA65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -671,6 +721,8 @@ magnet:?xt=urn:btih:2ED822B61D1F5A5ACB54A34D9358F368AD23BA65
 ```bash
 magnet:?xt=urn:btih:4D939DD83DC11B96FB360D9FC3E3E268E2F36F79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

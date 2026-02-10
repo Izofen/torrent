@@ -22,6 +22,8 @@ Little Violet - Code Red (2021) [AAC|~299 Kbps] <Jazz, Swing>
 magnet:?xt=urn:btih:2636A6A5DE6B51227F98AE908A69E811979697A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:2636A6A5DE6B51227F98AE908A69E811979697A2
 ```bash
 magnet:?xt=urn:btih:B59C8DA55F1C35ED47406B3764B0DC78C10BDDC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Feeder - это полнофункциональное приложение дл
 magnet:?xt=urn:btih:0A83AB95230894F1E5A76F583572FB65D9B8E9FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:31D4C6F314F95D5570CF1E88BA886068A2B0A00D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:31D4C6F314F95D5570CF1E88BA886068A2B0A00D
 magnet:?xt=urn:btih:C5768FFFB9DE22D4CA26F74B2BC23B6FE0046FA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ VA - Vanlife Moods, Vol. 2 (2021) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:BFC92A22AC4A383C61AF978FE19626B349194481
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ Chab - Dub, Edits & Whisky-Coke (2005) [FLAC|Lossless]<House>
 magnet:?xt=urn:btih:0099EF880584075F752DACEE1E5547203391DB1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ Gorilla Pulp - Mask Off! (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:61028A51A2B7A651C3966983A093D0529CAA4B15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:61028A51A2B7A651C3966983A093D0529CAA4B15
 ```bash
 magnet:?xt=urn:btih:2627BE2BDF427EB916D9504F5F5EADA83319B6ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ The Raven Age - Blood Omen (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic-Groove-
 magnet:?xt=urn:btih:B27F1C3C9EFB4FF87D0FBD3152CCB128579FF580
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ GameMaker - комплексное средство для разработки 
 ```bash
 magnet:?xt=urn:btih:ECC73975363BD296CC1093FF12ABE6AF2D4D94A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ EssentialPIM - это отмеченное различными наградам
 ```bash
 magnet:?xt=urn:btih:CB7FBB92E74BB1F8ADC1E0CCB69618B57E673F40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -330,6 +354,8 @@ Def Leppard - Diamond Star Halos (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <Hard Roc
 magnet:?xt=urn:btih:881AF14A20DAA7A3935DAE097D8EA611D7F04F7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +382,8 @@ magnet:?xt=urn:btih:881AF14A20DAA7A3935DAE097D8EA611D7F04F7D
 ```bash
 magnet:?xt=urn:btih:B423C5F4DE69C387BBD94F9B7EEBAAC17E9B51CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +412,8 @@ Kevin Morby - More Photographs (A Continuum) (2023) [FLAC 24/96|Lossless|WEB-DL|
 magnet:?xt=urn:btih:060CADE3A3AD2CBAA418BD06788DEF4FAC02C2B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +441,8 @@ VA - Sparadise Lounge, Vol.1 (Boutique Spa Chillout Vibes) (2022) [AAC|~306 Kbps
 magnet:?xt=urn:btih:76A7DA8250F99F7D5F8D80DA088138B20E2B15A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +466,8 @@ magnet:?xt=urn:btih:76A7DA8250F99F7D5F8D80DA088138B20E2B15A7
 ```bash
 magnet:?xt=urn:btih:A8F5F147CA5894B731E4CB955E67E3FF46F89B4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +493,8 @@ FireAlpaca - это достаточно простой, но удобный г�
 magnet:?xt=urn:btih:D70783EE71F00996E75D79F30994776C8844A8DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +519,8 @@ OCCT 12.0.4 Portable [En]
 magnet:?xt=urn:btih:BCC1E9637F8F2A1D640CCF9461D30B82858AA488
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ PeStudio - компактная (портативная) утилита позв
 ```bash
 magnet:?xt=urn:btih:90485BFA87CFAB4CAC01A3D976D35E2E0A154A32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +574,8 @@ VA - Across the Ocean (Lounge Collection), Vol. 3 (2020) [AAC|~320 Kbps] <Lounge
 magnet:?xt=urn:btih:10F4B23E9B89FA8A0A343316E20051CA176EF315
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +599,8 @@ The Complete Cybersecurity Bootcamp, 2nd Edition - это ваше полное 
 ```bash
 magnet:?xt=urn:btih:47F7B3C87B0D6C45AF4B7F0D0C9E60BD2CED097C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +629,8 @@ Richard Koechli - Transcendental Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Blu
 magnet:?xt=urn:btih:5239E1041E7F033C96542E0D4A3FE5F1FE6D7C12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +654,8 @@ NetLimiter - программа, решающая проблему контро�
 ```bash
 magnet:?xt=urn:btih:B163BB08D185A456A480FB5216DE51714B970F8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +683,8 @@ magnet:?xt=urn:btih:B163BB08D185A456A480FB5216DE51714B970F8D
 magnet:?xt=urn:btih:FBD7129E80AF82FF9C3FB9894575352B07304609
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +711,8 @@ VA - Музыка для машины Vol.18 (2023) [MP3|320 Kbps] <Pop, Dance, 
 ```bash
 magnet:?xt=urn:btih:1063A493BBE402A2FA63D36EB7CEB28A365B7339
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:540F210CFA258B4A2C8E538D0978A567EE2744A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:540F210CFA258B4A2C8E538D0978A567EE2744A8
 ```bash
 magnet:?xt=urn:btih:30AC474A5F9FAD3B98063668EF1FE8E437B8E471
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ VA - Groove Paradise (The Deep-House Collection), Vol. 1 (2025) [MP3|320 Kbps] <
 magnet:?xt=urn:btih:812EE67C54A0B278D3F40590C10C8DF33DB2CB09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ VA - Calm Horizons 3: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 magnet:?xt=urn:btih:A9998EC066E5AC0E0AFFFDFAE6EA88BD49C74BFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:A9998EC066E5AC0E0AFFFDFAE6EA88BD49C74BFC
 ```bash
 magnet:?xt=urn:btih:454541453711DC3949DACDA6F7F3F3D9976FC694
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:454541453711DC3949DACDA6F7F3F3D9976FC694
 magnet:?xt=urn:btih:C7641DADE0085F0C078BDFBBFE5E96CA25E7BFB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:C7641DADE0085F0C078BDFBBFE5E96CA25E7BFB2
 magnet:?xt=urn:btih:90C5B873616614F77468B937CA712E5A16948B55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:90C5B873616614F77468B937CA712E5A16948B55
 ```bash
 magnet:?xt=urn:btih:FBC5A37A47B648EF265CC0B4F626DA24BEF8774D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ Dead Sara — хард-рок-группа из Лос-Анджелеса2009 - 
 magnet:?xt=urn:btih:F401F421CC359B8F0C4944D8078D8F05320D4337
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:F401F421CC359B8F0C4944D8078D8F05320D4337
 ```bash
 magnet:?xt=urn:btih:36FF234439B5570BEF59C55667D07C59335DD14C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ Starset — американская рок-группа из Колумбуса
 magnet:?xt=urn:btih:18BB3154237C7AA7BEBD0C9DA875F75E08D12021
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ VA - Trance Fusion Vol. 08 (2025) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:93445873C5E317C3E43D7803F89FCB7BE662DB2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +352,8 @@ magnet:?xt=urn:btih:93445873C5E317C3E43D7803F89FCB7BE662DB2A
 magnet:?xt=urn:btih:4BB69A087117B915C1073D96DF6709FEEBFD8FC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +381,8 @@ VA - Compilation  part 144 Electronic (2025) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:0AA405841BB3D67E1AE72EFBBA0466CDBA8375D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ magnet:?xt=urn:btih:0AA405841BB3D67E1AE72EFBBA0466CDBA8375D3
 ```bash
 magnet:?xt=urn:btih:7F4F8B3A4DB8EB28E9146248D47485AA791C1734
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +436,8 @@ VA - Rock Metaphysical Melodies (2025) [MP3|320 Kbps] <Metal, Hard-Rock, Progres
 magnet:?xt=urn:btih:B9BA31E434763E276023E9999D3322D24F79CC19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +465,8 @@ magnet:?xt=urn:btih:B9BA31E434763E276023E9999D3322D24F79CC19
 magnet:?xt=urn:btih:F4756D8693CABB698912634A6E812437ED5CD0E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +490,8 @@ Codec Pro — новейшее воплощение семейства Codec, р
 ```bash
 magnet:?xt=urn:btih:3BF8350EBB7F4E21ED271BC3DD229582D52A2004
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +520,8 @@ VA - Musical kaleidoscope part 30 Easy listening (2025) [MP3|320 Kbps] <Electron
 magnet:?xt=urn:btih:8638D135649F1D4D1C072E0CC03F33AC22BC01DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +546,8 @@ magnet:?xt=urn:btih:8638D135649F1D4D1C072E0CC03F33AC22BC01DE
 magnet:?xt=urn:btih:F1AFF597132AB962F32958B1671D48EACFDAFC95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +571,8 @@ Rozen Maiden: Tales | Девы Розена 2 (2008) [11 томов, 66 глав
 ```bash
 magnet:?xt=urn:btih:E15C75A3867ECA5E4F13DB56C446BA68127C839A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +599,8 @@ magnet:?xt=urn:btih:E15C75A3867ECA5E4F13DB56C446BA68127C839A
 magnet:?xt=urn:btih:2B4D8BC723FC5CC8C00D9AC3F7916F40F5DA3250
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +624,8 @@ magnet:?xt=urn:btih:2B4D8BC723FC5CC8C00D9AC3F7916F40F5DA3250
 ```bash
 magnet:?xt=urn:btih:21B1504DB77F4B43E3D4A7CC188DE4ABDA26AC36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +651,8 @@ magnet:?xt=urn:btih:21B1504DB77F4B43E3D4A7CC188DE4ABDA26AC36
 magnet:?xt=urn:btih:FD0E8F8454910442B29756376F5B3A62CA3E682E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +676,8 @@ Jigokuraku | Hell's Paradise: Jigokuraku | Адский рай (2018) [13 том
 ```bash
 magnet:?xt=urn:btih:B6C6F57F427F8AAFAE76F0B31222C0D3418AB9F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -655,6 +705,8 @@ VA - Love Is...Chill Out (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out
 ```bash
 magnet:?xt=urn:btih:450706E1D9FE080EA97A1E1CA54FD9972875DEBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

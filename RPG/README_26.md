@@ -19,6 +19,8 @@ The Land of the Magnates (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:BEC76AB1D919BD214AA6232DC3EAB43F55103270
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Roadwarden (2022) [En] (1.2.0) License GOG
 ```bash
 magnet:?xt=urn:btih:C5AE533D07C8AB31526FE41A058C067A42437689
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Vampire: The Masquerade - Reckoning of New York приглашает гейме�
 magnet:?xt=urn:btih:C71FDB8FB3EBAAF248F7A10797311D78683E2F04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Vampire: The Masquerade - Reckoning of New York приглашает гейме�
 ```bash
 magnet:?xt=urn:btih:72E0C2B3234FD812946ABDE45B6C1E6056C14D1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ EVOTINCTION - это футуристическая хакерская и сте
 magnet:?xt=urn:btih:1FEF9E49CC1E2E14E10EAA6D3FEACE3AF7A8BE95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Decision: Red Daze - уникальная вариация изометриче�
 ```bash
 magnet:?xt=urn:btih:9D6BD63887A2015449CB2DBE5E461A89995DEC60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Mount & Blade: Warband – самостоятельное дополнение, 
 magnet:?xt=urn:btih:B8191DC1D0ACDCA144FFF8A3C77641F552BEB9BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Yarimono, ролевая игра, что познакомит геймеров 
 ```bash
 magnet:?xt=urn:btih:CC077D9FA93DDD1CB30304FD5CF8F126F4CE05F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Selfloss (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:4CF4261A0948197FC8CA0C5C2374C2C0C12BDD8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ USC: Counterforce (2023) [Multi] (1.01.0a1/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:5E3FC96C77E4A82C9E0955AE42F0E18673A80958
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Cat Quest III - продолжение популярной ролевой се�
 magnet:?xt=urn:btih:B28233B4D59E340088441A52D8007E72DFDEDDE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Vampire: The Masquerade - Reckoning of New York приглашает гейме�
 ```bash
 magnet:?xt=urn:btih:7089EF150267C51A089589CE7262F1C3E749B6C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Marenian Tavern Story: Patty and the Hungry God - необычная японс�
 magnet:?xt=urn:btih:B44C61DFD07E5663967A0FB1E21461DF778908B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Wartales - ролевое приключение в открытом мире, �
 ```bash
 magnet:?xt=urn:btih:613528D476E04AF9C5C0E8E54F74DA99A3057ACC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Fallout: London - это глобальный мод для оригинальн
 magnet:?xt=urn:btih:2F15724DD929B1D028B45DF425D1EF0677FB339A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ CODE VEIN (2019) [Ru/Multi] (1.53.61787/dlc) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:94EC4ECFF6E0246B0041A8A92297586891C081D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Dungeons of Sundaria – ролевая кооперативная видеои�
 magnet:?xt=urn:btih:FFE3ED0513AC6F6ABF3599380F5721E3B8EA3427
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Selfloss (2024) [Ru/Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:FA6864D68D50DE768278708B70A5716D4F78D5F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (Build 15521170/dlc) Repack D
 magnet:?xt=urn:btih:C2CC3E0B7C3A0245337C755F3AEE525BF56E1845
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (Build 15521170/dlc) Repack F
 ```bash
 magnet:?xt=urn:btih:0D4164CB5C4345190DFF732BCA8664E7F9723868
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Wizardry: Proving Grounds of the Mad Overlord - это полный 3D-риме�
 magnet:?xt=urn:btih:45F7CD02ED2E86713DB3277A58CF7DF0D8CC052E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ CODE VEIN (2019) [Ru/Multi] (1.53.61787/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:EE3FFC4F4F148323F8A28DB1FD7C2C6428A36528
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ The Land of the Magnates (2024) [Ru/Multi] (1.0) Scene Rune
 magnet:?xt=urn:btih:67E57F1D2E7FD6C4CB1B6C1D36BF2E24303E461C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Raiders! Forsaken Earth - ролевая игра с элементами стр
 ```bash
 magnet:?xt=urn:btih:EA831D869BD52EE9FE6C449C3F41951B6391EA71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Elden Ring – фэнтезийное экшен-РПГ приключение, 
 magnet:?xt=urn:btih:DB98EF0BCD14DBDCBB26EFE3AE663C20D2C2BC90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Chromosome Evil 2 переносит в леденящий душу мир, гд
 ```bash
 magnet:?xt=urn:btih:45C2B2499FE187D1A440A245C7D615DD37C4EC73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:DC75CD56875058FC2531E0A0BCD9B99F9A29FF5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,29 +45,7 @@ magnet:?xt=urn:btih:DC75CD56875058FC2531E0A0BCD9B99F9A29FF5E
 magnet:?xt=urn:btih:002B80FA669A1D5F138A745006F87C5AAAED3A84
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 765331   (876269) от 11.03.2014
-
-Журнал | Information Security / Информационная безопасность №1 (март 2014) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876269.jpg" />
-</div>
-
-
-###  Подробнее
-
-В журнале «Information Security/Информационная безопасность» рассматривается информационная безопасность и все, что с ней связано. По мере развития IT технологий, проблема их безопасного использования становится год от года все актуальнее. Вот почему главной задачей журнала является ориентирование потребителя в море новых решений в этой области.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AECB4281BD682160E89ED7D1CC9A36E2FD6D7657
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +71,8 @@ magnet:?xt=urn:btih:AECB4281BD682160E89ED7D1CC9A36E2FD6D7657
 magnet:?xt=urn:btih:1211DE1809A724202B881903618AD4761539FCFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +96,8 @@ magnet:?xt=urn:btih:1211DE1809A724202B881903618AD4761539FCFE
 ```bash
 magnet:?xt=urn:btih:39D29D3DA2A8232B9F778D41B5D690A79AC34126
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +123,8 @@ magnet:?xt=urn:btih:39D29D3DA2A8232B9F778D41B5D690A79AC34126
 magnet:?xt=urn:btih:65098D56805083D2C2DBCB164DD17413C85AE4F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +148,8 @@ magnet:?xt=urn:btih:65098D56805083D2C2DBCB164DD17413C85AE4F6
 ```bash
 magnet:?xt=urn:btih:443AA33C13A7748F069C343E71F8D4B6F5226248
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +175,8 @@ magnet:?xt=urn:btih:443AA33C13A7748F069C343E71F8D4B6F5226248
 magnet:?xt=urn:btih:C22743314320B2CD86FD301068D84791C9B3DB56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +200,8 @@ magnet:?xt=urn:btih:C22743314320B2CD86FD301068D84791C9B3DB56
 ```bash
 magnet:?xt=urn:btih:5F61483160D226E626D0851D0988874DA9358B2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +227,8 @@ magnet:?xt=urn:btih:5F61483160D226E626D0851D0988874DA9358B2E
 magnet:?xt=urn:btih:C4306ACE7800EC4AA9806FE102074AAC78FC1DB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +252,8 @@ magnet:?xt=urn:btih:C4306ACE7800EC4AA9806FE102074AAC78FC1DB6
 ```bash
 magnet:?xt=urn:btih:C6728C24310406BC401FC4FD82B609CE0D747596
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +279,8 @@ magnet:?xt=urn:btih:C6728C24310406BC401FC4FD82B609CE0D747596
 magnet:?xt=urn:btih:ADF5345F169C625CC1F803131BAF7E57D90B426F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +304,8 @@ magnet:?xt=urn:btih:ADF5345F169C625CC1F803131BAF7E57D90B426F
 ```bash
 magnet:?xt=urn:btih:24A07EC44157C3F2FD33858DD790D764996C87CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +331,8 @@ magnet:?xt=urn:btih:24A07EC44157C3F2FD33858DD790D764996C87CE
 magnet:?xt=urn:btih:1CF8C2BF5F5A72BF0A96A5AA8CF04E7EE94AC43F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +356,8 @@ magnet:?xt=urn:btih:1CF8C2BF5F5A72BF0A96A5AA8CF04E7EE94AC43F
 ```bash
 magnet:?xt=urn:btih:DFA2F4A66B7F401DA2957ADA1D0661EC3EE97B36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +383,8 @@ magnet:?xt=urn:btih:DFA2F4A66B7F401DA2957ADA1D0661EC3EE97B36
 magnet:?xt=urn:btih:1B534007053B6997BB85D0E3531957BE1AF75B2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +408,8 @@ magnet:?xt=urn:btih:1B534007053B6997BB85D0E3531957BE1AF75B2F
 ```bash
 magnet:?xt=urn:btih:53BF4465FAF62FDA070FB319FD3357E8056E822A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +435,8 @@ magnet:?xt=urn:btih:53BF4465FAF62FDA070FB319FD3357E8056E822A
 magnet:?xt=urn:btih:9D22653AA7431EA7D7A4DD67781493EFCEB88787
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +461,8 @@ magnet:?xt=urn:btih:9D22653AA7431EA7D7A4DD67781493EFCEB88787
 magnet:?xt=urn:btih:5D359616FD8C410E0FCBE5B125C6FFDD97C40065
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ magnet:?xt=urn:btih:5D359616FD8C410E0FCBE5B125C6FFDD97C40065
 ```bash
 magnet:?xt=urn:btih:7257FB0CFB92B3C8BB14AEE77BD32033985E222F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +514,8 @@ magnet:?xt=urn:btih:7257FB0CFB92B3C8BB14AEE77BD32033985E222F
 magnet:?xt=urn:btih:1E6C1D39B63FA61E0D958B722FC6BD492E05FDCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +539,8 @@ magnet:?xt=urn:btih:1E6C1D39B63FA61E0D958B722FC6BD492E05FDCB
 ```bash
 magnet:?xt=urn:btih:825D55677BFE6DE44FEE35443E32F44160FE7740
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +566,8 @@ magnet:?xt=urn:btih:825D55677BFE6DE44FEE35443E32F44160FE7740
 magnet:?xt=urn:btih:92AC35625F3FAAE449C4C411E85F8BD42D4B698E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +591,8 @@ magnet:?xt=urn:btih:92AC35625F3FAAE449C4C411E85F8BD42D4B698E
 ```bash
 magnet:?xt=urn:btih:A7DFEE1D0D26C7C895D2BCCBD1CC8CA3D1453B28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +618,8 @@ magnet:?xt=urn:btih:A7DFEE1D0D26C7C895D2BCCBD1CC8CA3D1453B28
 magnet:?xt=urn:btih:3F990DA6FE0B6F083623B0499542D62A2426CE56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +643,34 @@ magnet:?xt=urn:btih:3F990DA6FE0B6F083623B0499542D62A2426CE56
 ```bash
 magnet:?xt=urn:btih:AE5E0E13069DB8B9B43FFD101EEDA0E7E7ACCF15
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494626   (887741) от 08.09.2021
+
+Журнал | Information security / Информационная безопасность №2 (май 2021) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тематика журнала – информационная безопасность и все, что с ней связано. По мере развития IT технологий, проблема их безопасного использования становится год от года все актуальнее. Вот почему главной задачей журнала является ориентирование потребителя в море новых решений в этой области.Жанр: Безопасность серверов, сетей и информацииФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC27E80AE89CCF1A0D520A5E5768587D37F47D6D
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

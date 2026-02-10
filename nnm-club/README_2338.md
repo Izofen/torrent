@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:77F79B217ADDF994B37203200019715CF260E4E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Mashle: Kami Shinkakusha Kouho Senbatsu Shiken Hen | Mashle: Magic and Muscles -
 ```bash
 magnet:?xt=urn:btih:75E64D316117C24BC1DDC6E961003014F94C8C0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ march_2024_x64_dvd_2ff6c8a4.iso
 magnet:?xt=urn:btih:127C868FDE03B1D76FE2595EB6ACB354504F6534
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:127C868FDE03B1D76FE2595EB6ACB354504F6534
 ```bash
 magnet:?xt=urn:btih:BDF36B0C20AE60EC0AE4D457F761ABEBA6E2EF98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:BDF36B0C20AE60EC0AE4D457F761ABEBA6E2EF98
 magnet:?xt=urn:btih:7FD0320FE05B89ACE93237AA0C96D44EC41D3B6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Outcast - A New Beginning – это продолжение знаменитог
 ```bash
 magnet:?xt=urn:btih:D5283CB9A1910A227BE17F05AF47B7AA3D2ADB78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:D5283CB9A1910A227BE17F05AF47B7AA3D2ADB78
 magnet:?xt=urn:btih:1F50030261DA0417029072AEBF9EDDD76A2F69ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:1F50030261DA0417029072AEBF9EDDD76A2F69ED
 ```bash
 magnet:?xt=urn:btih:EB46B72025053C085FEFBF5E822C49CACF148E93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ BOUDOIR Inspiration — это платформа и журнал, посвящ�
 magnet:?xt=urn:btih:1DC11624DB4360F46FE92D255D52B96733BEF27E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Open Roads (2024) [Ru/Multi] (1.0) Scene SKIDROW
 ```bash
 magnet:?xt=urn:btih:3DE910330D67C883EDF9A3C846E815C8989317A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:3DE910330D67C883EDF9A3C846E815C8989317A6
 magnet:?xt=urn:btih:1C39D6CD1EF1E23C97D65D8C1A81E85423A0B7A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:1C39D6CD1EF1E23C97D65D8C1A81E85423A0B7A4
 ```bash
 magnet:?xt=urn:btih:E1D5AAF5A719BF39FA2B46E1676E1D8698ABB4B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ The Immortal Mayor относится к симуляторам бога и ст
 magnet:?xt=urn:btih:BD9B095035965D6D259102710E68D275F8CE3227
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:BD9B095035965D6D259102710E68D275F8CE3227
 magnet:?xt=urn:btih:D23B729D781C2B3C86BFE64D07479C37C36D4478
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ SiteSucker Pro - это расширенная версия SiteSucker, кото
 ```bash
 magnet:?xt=urn:btih:BD6BFB9B89A2D9C5133E70AA00967529D8EA7FE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:BD6BFB9B89A2D9C5133E70AA00967529D8EA7FE6
 magnet:?xt=urn:btih:E110D2A506B4DF39ABB6E0FC586DF48F1E23A198
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:E110D2A506B4DF39ABB6E0FC586DF48F1E23A198
 ```bash
 magnet:?xt=urn:btih:4CB6B89BA7AA673963999236DB6C95A4709DB4FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:4CB6B89BA7AA673963999236DB6C95A4709DB4FE
 magnet:?xt=urn:btih:26AFA563644704F087F6B377AC0B009C8AF61193
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:26AFA563644704F087F6B377AC0B009C8AF61193
 magnet:?xt=urn:btih:6B310D0697F922C5D5DE153C843C468BBBDD3629
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ Goodbye Volcano High (2023) [Ru/Multi] (1.06) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:97D45D3F5EBD933CDCE581742D5E8CD85E17574F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ Ragna Crimson | Рагна Багровый [2023, TV, 24 эп.] WEBRip 1080p ra
 magnet:?xt=urn:btih:E221977C5B4EE6879F30D9D98C0C6165CD5E0BD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:E221977C5B4EE6879F30D9D98C0C6165CD5E0BD5
 ```bash
 magnet:?xt=urn:btih:CFE98E847C40302047FFAA280A8FAE1B0C4082CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ Synology DiskStation Manager (DSM), программный пакет на ос�
 magnet:?xt=urn:btih:B9A998CAB54EC913F901FBB0D09466CEB6A06A05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ magnet:?xt=urn:btih:B9A998CAB54EC913F901FBB0D09466CEB6A06A05
 ```bash
 magnet:?xt=urn:btih:0FB98297445409615ACC73286B0211DA2FC27A92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ magnet:?xt=urn:btih:0FB98297445409615ACC73286B0211DA2FC27A92
 magnet:?xt=urn:btih:D8DBED0B3A12D63E476C45B83B62EC646E80D142
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ magnet:?xt=urn:btih:D8DBED0B3A12D63E476C45B83B62EC646E80D142
 ```bash
 magnet:?xt=urn:btih:A2BF702CD0A69815B6FBD73D4DDE1A9569ED4322
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

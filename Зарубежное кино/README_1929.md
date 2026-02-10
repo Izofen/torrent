@@ -1,27 +1,3 @@
-###  Публикация: 1489707   (923647) от 17.08.2021
-
-Заклятие 3: По воле дьявола / The Conjuring: The Devil Made Me Do It (2021) BDRip [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Леденящая кровь история ужасающего убийства, которая поразила даже опытных исследователей паранормальных явлений Эда и Лоррейн Уорренов. Одно из их самых сенсационных дел началось с борьбы за душу юноши, а привело к тому, чего они ни разу не видели за свою практику — впервые в истории США подозреваемый в убийстве в свою защиту заявил, что был одержим демоном.Производство: США, Великобритания / Atomic Monster, New Line Cinema, Safran CompanyЖанр: Ужасы, детективРежиссер: Майкл ЧавесАктеры: Патрик Уилсон, Вера Фармига, Руаири О’Коннор, Сара Кэтрин Хук, Джулиан Хиллиард, Джон Ноубл, Эжени Бондюран, Шэннон Кук-Чун, Ронни Джин Блевинс, Кит А. БолденПеревод: Дублированный (Пифагор)Субтитры: Русские (forced, full), английскиеПродолжительность: 01:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8667C6650106A82E2237C20D2127DEA2905777A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366307   (923659) от 11.03.2020
 
 Сиротский Бруклин / Motherless Brooklyn (2019) BDRemux [H.264/1080p]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:8667C6650106A82E2237C20D2127DEA2905777A0
 ```bash
 magnet:?xt=urn:btih:98291D28BD2503F2EB50DB5DE77BD58A46EAB5B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:98291D28BD2503F2EB50DB5DE77BD58A46EAB5B7
 magnet:?xt=urn:btih:0425C7624A16BC0B47CEE1B94805AB5FC4C7A8C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:0425C7624A16BC0B47CEE1B94805AB5FC4C7A8C5
 ```bash
 magnet:?xt=urn:btih:B1D45FF9F2F3A03C093FC848C4ABA2B48AAB513D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:B1D45FF9F2F3A03C093FC848C4ABA2B48AAB513D
 magnet:?xt=urn:btih:CEE8A2A6287D4B4042F4C9DA632FF1972564159D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:CEE8A2A6287D4B4042F4C9DA632FF1972564159D
 ```bash
 magnet:?xt=urn:btih:CE2D319B976FCD368FDD0D70D4FB64F32C370EF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:CE2D319B976FCD368FDD0D70D4FB64F32C370EF1
 magnet:?xt=urn:btih:414A4575E6203FD0563B3C8061243F844FABA676
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:414A4575E6203FD0563B3C8061243F844FABA676
 ```bash
 magnet:?xt=urn:btih:0247976B6D8115BE5DB50443C039B02A231D1DC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:0247976B6D8115BE5DB50443C039B02A231D1DC7
 magnet:?xt=urn:btih:68CCAFD1A3DA8C7E8CC948FAEA7B1511D8D4DFEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ magnet:?xt=urn:btih:68CCAFD1A3DA8C7E8CC948FAEA7B1511D8D4DFEF
 ```bash
 magnet:?xt=urn:btih:936B0FB51CFBA87296836DFAA0BD5D64C4542EDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:936B0FB51CFBA87296836DFAA0BD5D64C4542EDA
 magnet:?xt=urn:btih:5E3F3AFA34A64C6F87C0FFF74135294C875CF933
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ magnet:?xt=urn:btih:5E3F3AFA34A64C6F87C0FFF74135294C875CF933
 ```bash
 magnet:?xt=urn:btih:B99D0113150313096029555D39FBCB5B9760D1F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:B99D0113150313096029555D39FBCB5B9760D1F7
 magnet:?xt=urn:btih:79E4664E2539742684C45EEB541CDAE67C750FEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ magnet:?xt=urn:btih:79E4664E2539742684C45EEB541CDAE67C750FEF
 ```bash
 magnet:?xt=urn:btih:9A492BDE83B724F429626D5E62FEE9AFDCF036BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ magnet:?xt=urn:btih:9A492BDE83B724F429626D5E62FEE9AFDCF036BF
 magnet:?xt=urn:btih:3DAF1C36382A7C3B43F33524EBC103A42C580588
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ magnet:?xt=urn:btih:3DAF1C36382A7C3B43F33524EBC103A42C580588
 ```bash
 magnet:?xt=urn:btih:5C3B68BF1D3205FEC189D89862A3687E0E060F3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ magnet:?xt=urn:btih:5C3B68BF1D3205FEC189D89862A3687E0E060F3B
 magnet:?xt=urn:btih:41D37CC19FF85A3D67670E7ED94DE0DF963A2C6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ magnet:?xt=urn:btih:41D37CC19FF85A3D67670E7ED94DE0DF963A2C6E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ magnet:?xt=urn:btih:41D37CC19FF85A3D67670E7ED94DE0DF963A2C6E
 magnet:?xt=urn:btih:2CB382118C84A31AEC7BD464E49CAD57B96A9AE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ magnet:?xt=urn:btih:2CB382118C84A31AEC7BD464E49CAD57B96A9AE8
 ```bash
 magnet:?xt=urn:btih:52DEDB927CCCA5A787A923CABA05F5BBA18FF78D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ magnet:?xt=urn:btih:52DEDB927CCCA5A787A923CABA05F5BBA18FF78D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ magnet:?xt=urn:btih:52DEDB927CCCA5A787A923CABA05F5BBA18FF78D
 ```bash
 magnet:?xt=urn:btih:CAB4E8621B0E2A251EFDE591351A7793CE170D4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ magnet:?xt=urn:btih:CAB4E8621B0E2A251EFDE591351A7793CE170D4C
 magnet:?xt=urn:btih:648F3EECBC42E6081575ED7553872CA65752206F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ magnet:?xt=urn:btih:648F3EECBC42E6081575ED7553872CA65752206F
 ```bash
 magnet:?xt=urn:btih:1D70B3C70F4869E3AFF175C21AD3D1B39B3CF6BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +618,8 @@ magnet:?xt=urn:btih:1D70B3C70F4869E3AFF175C21AD3D1B39B3CF6BE
 magnet:?xt=urn:btih:DF870881B3FE8F3A04CF4CA6DACEB56CEBFD3004
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +643,34 @@ magnet:?xt=urn:btih:DF870881B3FE8F3A04CF4CA6DACEB56CEBFD3004
 ```bash
 magnet:?xt=urn:btih:8CADEE73903E1475851DF67E414958EA3D650ACC
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987788   (923961) от 18.02.2016
+
+Допинг / The Program (2015) BDRip [H.264 / 720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_923961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ирландский спортивный журналист убежден в том, что Лэнс Армстронг во время своих победных выступлений на Тур де Франс использовал запрещенные вещества. С этими убеждениями, он начинает искать доказательства, которые разоблачат Армстронга.Производство: Великобритания, Франция / Anton Capital Entertainment (ACE), Studio Canal, Working Title FilmsЖанр: Драма, биография, спортРежиссер: Стивен ФрирзАктеры: Бен Фостер, Крис О Дауд, Джесси Племонс, Ли Пейс, Дастин Хоффман, Лаура Доннелли, Брайан Гринберг, Элейн Кэссиди, Гийом Кане, Дени МеношеПеревод: Многоголосый закадровый, профессиональный (iTunes)Язык субтитров: АнглийскийПродолжительность: 01:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0843762B01525C5DF49D2AF7BACAC7EEE132C1C5
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

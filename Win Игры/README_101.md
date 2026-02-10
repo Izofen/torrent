@@ -19,6 +19,8 @@ River City Girls 2 (2022) [Ru/Multi] (1.1.3/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:6D678441EF4E29CCF79AEA4BD174E2787C00B86D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Big Helmet Heroes (2025) [Ru/Multi] (1.0.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:69F485B81835F350D9F0492C6B921D2288C9B0AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Alone in the Dark (2024) [Ru/Multi] (1.0.5/dlc) Repack Let'sРlay [Digital Delux
 magnet:?xt=urn:btih:F034D43A761D22734FD3E8A43C8ED182A2992B47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Dead Season (2024) [Ru/Multi] (1.0.0.9) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:93FD74F699FD19FCBDB54C1315BF530BAD5B413E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ ReSetna (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 magnet:?xt=urn:btih:FFD000817A10DFE1DCC8206DC636BB9E2DBEBE89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Virtua Fighter 5 R.E.V.O. (2025) [Multi] (1.00/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:49D3C5F2C781E7B67E4E1BEAA4A251D68975B641
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258 834/dlc) Repack Wanterlude
 magnet:?xt=urn:btih:AB50C4BA525C3C8B9A6F7E2B4DE4E094635F6BAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Asterigos Curse of the Stars (2022) [Ru/Multi] (01.09.0000/dlc) Repack Let'sРla
 ```bash
 magnet:?xt=urn:btih:EDE98BCA9A86891E6A8DFB6BEFD6C8F5DB93DE9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Dead Season (2024) [Ru/Multi] (1.0.0.9) Repack Let'sРlay
 magnet:?xt=urn:btih:B1948723527487A73F861F7871204EE8A7EBD0C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Wreckfest (2018) [Ru/Multi] (1.0o/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:2F5A052EE9DDDEB408CC1E145561FEC8B57B2243
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Retro City Rampage DX (2014) [Multi] (2.10) License GOG
 magnet:?xt=urn:btih:3CB6F6261BB3BE0FB688CC2C4BB3F3E32F097CDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ From The Past (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:DCC192ACE82E78F5C5782071CB4F2F2B6D32E538
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Virtua Fighter 5 R.E.V.O. (2025) [Multi] (Build 17103742/dlc) Scene Rune
 magnet:?xt=urn:btih:F0D125FAFCFCCE4C56F6BD16953FA61A20FFF487
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Poppy Playtime (2021) [Ru/Multi] (Build 17162178/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:F00D3A654662909C965DE6F4A1BDDCE8F7884FA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Marvel's Spider-Man 2 (2025) [Ru/Multi] (1.130.1.0/dlc) Repack DjDI [Digital Del
 magnet:?xt=urn:btih:A202DED153F515DA75F75C92019F78607F598276
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Metal Savior Black (2025) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5A270E11654DD23DF265873F8E287F758057E81C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Code Alkonost: Awakening of Evil (2025) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:8DEA07D9D1674FCCAADFAD23664BF92845F2FD14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Foundation: Новая эра в средневековых строительн
 ```bash
 magnet:?xt=urn:btih:D3B7C3C2B6FB7B0AB037CAECF3ED6D1B42BD7454
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Deliver Us Mars - продолжение получившей множество
 magnet:?xt=urn:btih:1D56A7FA97B864628256D8DDB9790585C8E8F455
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Mika and The Witch's Mountain (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:BC6559F1362B0279273DB33DFC4AA43E7AB01B76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ NINJA GAIDEN 2 Black (2025) [Multi] (1.0.5.0) Repack DjDI
 magnet:?xt=urn:btih:5031AE921A074E82BE7D025EC57E6D1302CB0022
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Battle Realms: Zen Edition (2001) [Ru/Multi] (1.59.1 HF5) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:EA2A1D133CD570C55145E5585281DFB3BC1C164F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Eternal Strands - это дебютный фэнтезийный приключ�
 magnet:?xt=urn:btih:936939962AD840E861976393A3810CAFEF27A13A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ NINJA GAIDEN 2 Black (2025) [Multi] (1.0.5.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:531E08D46327CD936A5D2CCDDA817410EB0BFE4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Cryptical Path (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:409A45D4CA2D301FACC09E6223A8965BC5C7E7FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Poppy Playtime (2021) [Ru/Multi] (build 17177248/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:62A44C21FF9B07308DDE8F0BEA224E4B7D1F7BC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:BBFA7225CCB47F4C678D37CEB65F8EE88BFF9EA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:BBFA7225CCB47F4C678D37CEB65F8EE88BFF9EA1
 ```bash
 magnet:?xt=urn:btih:87384FFBD5EA894EA29EE43A0220DF5A1BA1CDCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Epica — нидерландская группа, образована в 2003 
 magnet:?xt=urn:btih:CEE55D1D117A0951BA575A8AB0A4F50CAD457BF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ AnyDesk 9.5.1 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9638FBEE5B35BF2B27619B6BF18FEA62B8113621
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:9638FBEE5B35BF2B27619B6BF18FEA62B8113621
 magnet:?xt=urn:btih:98EDDFEF68B28B7C6F081F1CA9F11914A195AB02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ The Alpha Wolf (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F4260AA39FFE47646EB651248E82DF578424B8CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:F4260AA39FFE47646EB651248E82DF578424B8CE
 magnet:?xt=urn:btih:DDBD6D7929172E8F39DA141788A5C4D6E1B5232B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:DDBD6D7929172E8F39DA141788A5C4D6E1B5232B
 ```bash
 magnet:?xt=urn:btih:4FD24D0C3D3F07E06914D1F18380994FCC9AC936
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ D.O.A.: Живым или мертвым / DOA: Dead or Alive (2006) BDRip [H.26
 magnet:?xt=urn:btih:0D4470247853D143DA287657C8F0EB2BEA7C8B91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:0D4470247853D143DA287657C8F0EB2BEA7C8B91
 ```bash
 magnet:?xt=urn:btih:E2504A321D4C2DFFB62AA7C5335E5EA4F497C9FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:E2504A321D4C2DFFB62AA7C5335E5EA4F497C9FA
 magnet:?xt=urn:btih:77D2F490FC6ACC5C2E3434F3707F054C6D421A5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:77D2F490FC6ACC5C2E3434F3707F054C6D421A5F
 ```bash
 magnet:?xt=urn:btih:B713EADC9EBB9AD731DD949D70A88E99780C7BAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ Va - Hits that stay forever (2025) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:345131F71FEE1D74AC899A89799D2A1AE4E506EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ CentOS Stream - новая версия бесплатной операцион�
 magnet:?xt=urn:btih:9C2959549CA9A85F51013598F5CF23FAE0F6FCC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:9C2959549CA9A85F51013598F5CF23FAE0F6FCC1
 ```bash
 magnet:?xt=urn:btih:A860A29D818EBED9660AE0F7FE9D7AD1F734C906
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:A860A29D818EBED9660AE0F7FE9D7AD1F734C906
 magnet:?xt=urn:btih:B8940B963F0989C9086C46DD106F88006A8CB348
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:B8940B963F0989C9086C46DD106F88006A8CB348
 ```bash
 magnet:?xt=urn:btih:75E4CD2ED718B7DAE9C42B3546CBCA3B3B2BD92F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:75E4CD2ED718B7DAE9C42B3546CBCA3B3B2BD92F
 magnet:?xt=urn:btih:D33ABEEE3F6FBD753C7F4A4296F2C164F80EFCD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:D33ABEEE3F6FBD753C7F4A4296F2C164F80EFCD0
 ```bash
 magnet:?xt=urn:btih:3D730E8208CC5CA455F0C6DFA962E8AAC338875E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ MInstAll v.07.04.2025 By Andreyonohov (Unpacked) [Ru]
 magnet:?xt=urn:btih:9FCA0430C1423632103074CF78A6C8FB2E0604B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:9FCA0430C1423632103074CF78A6C8FB2E0604B4
 ```bash
 magnet:?xt=urn:btih:B9F637A7B90BAAA8BF2A65018058D37484DA7BD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:B9F637A7B90BAAA8BF2A65018058D37484DA7BD0
 magnet:?xt=urn:btih:7115E974DD9B6DC0F4BF86FE4EAD26AB14C0B3A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:7115E974DD9B6DC0F4BF86FE4EAD26AB14C0B3A4
 magnet:?xt=urn:btih:E64F9CF0E64DD19EC3B1F79837A72F8E8F1E5AE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:E64F9CF0E64DD19EC3B1F79837A72F8E8F1E5AE0
 ```bash
 magnet:?xt=urn:btih:CBF933C5FA98096DEC98C1C3A542012F9022106A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ Manic Street Preachers - 20 альбомов (1992 - 2025) 39 CD [FLAC|Lossless|
 magnet:?xt=urn:btih:F47F3561ACFED312B430E36084B1ED41698E7380
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ L.A. Guns - американская хард-рок/глэм-метал гру�
 ```bash
 magnet:?xt=urn:btih:008857F0DD233E73124B64EF51E23B25F46A927D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

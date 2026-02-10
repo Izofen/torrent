@@ -22,6 +22,8 @@ Haissem - Philosofiend (2021) [MP3|320 Kbps] <Melodic Black, Dark Metal>
 magnet:?xt=urn:btih:D1AB4CAD0D5EF8418E758ED928BE878BDD742E01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:D1AB4CAD0D5EF8418E758ED928BE878BDD742E01
 ```bash
 magnet:?xt=urn:btih:C452DD2723C3F14DFBF85FDFF7B3A63CDA045576
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:9C481EFD82C1FE183A2ADCA1FCD6CFCBFC6796C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:9C481EFD82C1FE183A2ADCA1FCD6CFCBFC6796C5
 magnet:?xt=urn:btih:904D3ABD346613783B19EA9368B35AEBB6F3341E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:904D3ABD346613783B19EA9368B35AEBB6F3341E
 ```bash
 magnet:?xt=urn:btih:88D0F58BF6F5752A0F4EF0F4E263DF2EADCC1067
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Solis для Mac - это Live Design Output, который легко инте
 magnet:?xt=urn:btih:5DC09A8CF7AD449AC3F35F80210031A46CABAFA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:5DC09A8CF7AD449AC3F35F80210031A46CABAFA4
 magnet:?xt=urn:btih:65274FC034CC8007FB8A004FEE9AB6FC432D2E83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:65274FC034CC8007FB8A004FEE9AB6FC432D2E83
 ```bash
 magnet:?xt=urn:btih:896FC0D201E75700E41DF8D5C30345C27E0244BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ Numeron - Road to Valhalla (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Bla
 magnet:?xt=urn:btih:E94D67DCA5F93C12DD1B22CA73344F9B2E7D658D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ Hillward - Alternate Timelines (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 magnet:?xt=urn:btih:D0045B51D8A9C968B7F1DDDE5BFE429ACAB9F848
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:D0045B51D8A9C968B7F1DDDE5BFE429ACAB9F848
 ```bash
 magnet:?xt=urn:btih:0DDB2D0D60C1D92010779803DECB186D90DB910F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:0DDB2D0D60C1D92010779803DECB186D90DB910F
 magnet:?xt=urn:btih:44D4D3D5C638F02C3B581EF1079435B5B481EC7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:44D4D3D5C638F02C3B581EF1079435B5B481EC7F
 ```bash
 magnet:?xt=urn:btih:34F025D6507CD9D05F9AA1C83D44EA5720D6DE6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:34F025D6507CD9D05F9AA1C83D44EA5720D6DE6A
 magnet:?xt=urn:btih:72D354D39419FF50EB53DE319616E237961E2395
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:72D354D39419FF50EB53DE319616E237961E2395
 ```bash
 magnet:?xt=urn:btih:57DC9F7E4893A61C2ECC582B12AF707CDBA54A5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ One Switch - это крошечное приложение, разработа�
 magnet:?xt=urn:btih:71F9B04753422AA197443DFC3EAB5D3B6DE55F0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ LilyView — это лёгкий, поддерживающий мульти-т�
 ```bash
 magnet:?xt=urn:btih:F0683C863E644EE98C007401BB8679EC5B9E5551
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ Kansas City Band - Barrelhouse ☆ Hey! Hey! (2001) Audio Park [FLAC|Lossless|tr
 magnet:?xt=urn:btih:3FF3C771210FB9D42720087F5CF1586051AD051C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ Stian Carstensen - Musical Sanatorium (2021) [FLAC|Lossless|tracks + .cue] <Mode
 ```bash
 magnet:?xt=urn:btih:3068FFFC61EA11A5FBD3AB7E2E7618D4CD368A5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ Marshmello - Mellokillaz (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronique, Dan
 magnet:?xt=urn:btih:4624B0F97C3516B56E877674C4FFD6CC28ABC2EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ Vitaly Kis (Виталий Кись) - Chromatic Dreams (2007) [MP3|320 Kbps] <I
 magnet:?xt=urn:btih:182F6BCE005573BA0EFBDCB62355F7532AACB697
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ magnet:?xt=urn:btih:182F6BCE005573BA0EFBDCB62355F7532AACB697
 ```bash
 magnet:?xt=urn:btih:659A1A2F244367877F243B0FFC3B079CBB70FDE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +615,8 @@ magnet:?xt=urn:btih:659A1A2F244367877F243B0FFC3B079CBB70FDE6
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +641,8 @@ Cookie - (   Читать дальше...   )Тип издания: macOS Softw
 ```bash
 magnet:?xt=urn:btih:3DA829A8FE779D43C6DB1BE5CAE5DFEE0DFB3A82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +671,8 @@ Woe Unto Me - Spiral-Shaped Hopewreck (2021) [MP3|320 Kbps] <Melodic Metal, Doom
 magnet:?xt=urn:btih:6FDA601B30A95A1F9E7A931CE9B039CF2FF3123A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ The Fake Cousins - The Set-Up (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:6F87A8E87B98487E67690F0361FDBBFACFC98816
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

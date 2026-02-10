@@ -1,3 +1,31 @@
+###  Публикация: 1499473   (847680) от 02.10.2021
+
+Патрик Несс | «Поступь хаоса» Книга 3. Война Хаоса (2021) [MP3, Станислав Воронецкий]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847680.jpg" />
+</div>
+
+
+###  Подробнее
+
+На город Новый Прентисстаун, который возглавляет безжалостный мэр Прентисс, надвигаются две армии. Войско «Ответа» и войско спаклов, коренных жителей, готовых отомстить за свой народ. В это же время приближаются и космические корабли колонистов. Исход битвы решит, кто будет править на планете Новый свет.
+
+В самый разгар конфликта Тодд и Виола вынуждены вести не только (   Читать дальше...   )Жанр: Зарубежная фантастика, Научная фантастика, Социальная фантастикаПродолжительность: 16:56:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E85E478AA57B462C34E9EE7554BC4A8CF2387FD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378245   (847800) от 24.04.2020
 
 Владимир Поселягин | Время сурка (2020) [MP3]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:C68BB8D2882BB89D18EECF4FF88E070855222C24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +75,8 @@ magnet:?xt=urn:btih:C68BB8D2882BB89D18EECF4FF88E070855222C24
 magnet:?xt=urn:btih:B554426A7D7608AD005C52CF3DFC761D088A9378
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +100,8 @@ magnet:?xt=urn:btih:B554426A7D7608AD005C52CF3DFC761D088A9378
 ```bash
 magnet:?xt=urn:btih:C506D03FBADAE852FF62B8F183CAA178B1329D80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +127,8 @@ magnet:?xt=urn:btih:C506D03FBADAE852FF62B8F183CAA178B1329D80
 magnet:?xt=urn:btih:638BE19C742489176B4E8F667A1B3DE7F9C98E76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +152,8 @@ magnet:?xt=urn:btih:638BE19C742489176B4E8F667A1B3DE7F9C98E76
 ```bash
 magnet:?xt=urn:btih:03BC024A061C65F41ECBD7A4A429B407F790EE2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +179,8 @@ magnet:?xt=urn:btih:03BC024A061C65F41ECBD7A4A429B407F790EE2C
 magnet:?xt=urn:btih:A26DF1F6BA286D860E54225617B8564D747FA5C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +204,8 @@ magnet:?xt=urn:btih:A26DF1F6BA286D860E54225617B8564D747FA5C1
 ```bash
 magnet:?xt=urn:btih:E42F17A06F61CF374788B687AC7504F314D3CEB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +232,8 @@ magnet:?xt=urn:btih:E42F17A06F61CF374788B687AC7504F314D3CEB0
 magnet:?xt=urn:btih:E279E4A8A3C6F647E945D55903754A6A27CFFB5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +259,8 @@ magnet:?xt=urn:btih:E279E4A8A3C6F647E945D55903754A6A27CFFB5A
 magnet:?xt=urn:btih:D3DEE98F3264109D197A78A35FBF44A4F2EF06FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +284,8 @@ magnet:?xt=urn:btih:D3DEE98F3264109D197A78A35FBF44A4F2EF06FE
 ```bash
 magnet:?xt=urn:btih:8C394881E413B28B58331C1C3D7ED905B53C9E6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +311,8 @@ magnet:?xt=urn:btih:8C394881E413B28B58331C1C3D7ED905B53C9E6E
 magnet:?xt=urn:btih:8F7BB26E85CB720C2026CAD4100A088A14913719
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +336,8 @@ magnet:?xt=urn:btih:8F7BB26E85CB720C2026CAD4100A088A14913719
 ```bash
 magnet:?xt=urn:btih:9AEE292021897460D5E93944E52363F7CE5DA078
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +363,8 @@ magnet:?xt=urn:btih:9AEE292021897460D5E93944E52363F7CE5DA078
 magnet:?xt=urn:btih:60E693C9AAD09D0D532C36F983C40FC4B0892116
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +388,8 @@ magnet:?xt=urn:btih:60E693C9AAD09D0D532C36F983C40FC4B0892116
 ```bash
 magnet:?xt=urn:btih:194D46E2B6AB457E8432FAA0402A316C36A2DE04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +415,8 @@ magnet:?xt=urn:btih:194D46E2B6AB457E8432FAA0402A316C36A2DE04
 magnet:?xt=urn:btih:B870ADFBEADB49E00FEF1E84A03CB032C344CF45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +440,8 @@ magnet:?xt=urn:btih:B870ADFBEADB49E00FEF1E84A03CB032C344CF45
 ```bash
 magnet:?xt=urn:btih:9725600CE9AA04544B1E50947BFA6D5C6A8F2874
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +468,8 @@ magnet:?xt=urn:btih:9725600CE9AA04544B1E50947BFA6D5C6A8F2874
 magnet:?xt=urn:btih:5B73AD91B6FF143E59E9FAB78E059B554A945EE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +493,8 @@ magnet:?xt=urn:btih:5B73AD91B6FF143E59E9FAB78E059B554A945EE5
 ```bash
 magnet:?xt=urn:btih:F568A472A83E7B0023F6834CB292745B2DA6D744
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +521,8 @@ magnet:?xt=urn:btih:F568A472A83E7B0023F6834CB292745B2DA6D744
 magnet:?xt=urn:btih:6AB8254DD3B8CB69F6D6666D46DA0621901404C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +546,8 @@ magnet:?xt=urn:btih:6AB8254DD3B8CB69F6D6666D46DA0621901404C7
 ```bash
 magnet:?xt=urn:btih:1C4E32C7995ED4575F2A25BB11FBAAD51D515D30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +573,8 @@ magnet:?xt=urn:btih:1C4E32C7995ED4575F2A25BB11FBAAD51D515D30
 magnet:?xt=urn:btih:004745ECE831A046B92CDF8ABC93C06B981F1105
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +598,8 @@ magnet:?xt=urn:btih:004745ECE831A046B92CDF8ABC93C06B981F1105
 ```bash
 magnet:?xt=urn:btih:F0305E8C6647B8C341D1D509577081DAD54EFA98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +625,8 @@ magnet:?xt=urn:btih:F0305E8C6647B8C341D1D509577081DAD54EFA98
 magnet:?xt=urn:btih:1A9E2764DB14054F4AE86F34E27DA9CBF1754BC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +650,8 @@ magnet:?xt=urn:btih:1A9E2764DB14054F4AE86F34E27DA9CBF1754BC6
 ```bash
 magnet:?xt=urn:btih:F7DBD5896251515764B0FD44405C5C27AD200D8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,29 +677,7 @@ magnet:?xt=urn:btih:F7DBD5896251515764B0FD44405C5C27AD200D8C
 magnet:?xt=urn:btih:EA59B1B811EB015BC6976D3F6E0A29D48DFDBD5A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 306821   (850831) от 10.03.2011
-
-Дэниел Киз | Цветы для Элджернона [2011] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чарли Гордон — идиот. В прямом смысле этого слова — с самого детства он болен фенилкетонурией, при которой умственная отсталость практически неизбежна. Сейчас ему около тридцати, он работает уборщиком в пекарне и ходит на занятия для умственно отсталых. И именно он стал первым в мире человеком, подвергшемся экспериментальной операции по устранению этого заболевания (   Читать дальше...   )Жанр: Фантастика, роман
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF325AE26C74F93D924AE11FB1E5237BE0DF3AED
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

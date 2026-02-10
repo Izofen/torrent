@@ -22,6 +22,8 @@ Ramin Djawadi - Gears 5 (Original Soundtrack) (2019) [MP3|320 кб/с]<Soundtrac
 magnet:?xt=urn:btih:8A087964F5B9963BF193923267D40A955961349C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ James Newton Howard - Фантастические твари: Преступл�
 ```bash
 magnet:?xt=urn:btih:CA096BD4D8C8225312775C8F4CBA906B4E18BD9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ James Newton Howard - Фантастические твари: Преступл�
 magnet:?xt=urn:btih:C01EA540646AD4B42F56FE2C78BB0A9A84263477
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Jim Brickman - Soothe, Vol. 3: Meditation - Music for Peaceful Relaxation (2017)
 ```bash
 magnet:?xt=urn:btih:3BC548BE74876FBA697DC1F1DE0B157BAB3BEA3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Jim Brickman - 8: Just Breathe (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 magnet:?xt=urn:btih:B58A0635478FE113D5D74FA4FC3DB7F0C8404326
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Piano Tribute Players - Piano Tribute to Sia (2016) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:383FA79670E70DB152E359336F99D37ED159E0B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Fitness Latino Party 2018,  3CD (2017)   [MP3|320 Kbps] <Reggaeton, Latin P
 magnet:?xt=urn:btih:60BE14CFC73EDD6248C4556BBD8368B4DBE4189F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Steven Price - The Aeronauts / Аэронавты (Original Motion Picture Sound
 ```bash
 magnet:?xt=urn:btih:3729055B62B4545545B728C907A99F019C8A82B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Trent Reznor & Atticus Ross - Watchmen / Хранители: Volume 1 (Music fro
 magnet:?xt=urn:btih:3695523D041A087498B1F8BB93F29F2411C67D2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Gregorian - Holy Chants (2017) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:D8CB72C9786BEC614DEE8F696213A646CF582F62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Maryada Ram - Eternal Tibet (2017) [MP3|320 Kbps] <New age, Relax>
 magnet:?xt=urn:btih:5B4636FF080523E5117B6BF11C01E2CED769CC59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +341,8 @@ Trent Reznor & Atticus Ross - Watchmen / Хранители: Volume 1 (Music fro
 magnet:?xt=urn:btih:8BA9D19C1A49CB5523FCE180766BF186B944953E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +366,8 @@ Tyler Bates, VA - Форсаж: Хоббс и Шоу / Fast & Furious Presents: 
 ```bash
 magnet:?xt=urn:btih:59D3EE24F746A570E01C82B280D430B8AB5CF436
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +396,8 @@ VA - Форсаж: Хоббс и Шоу / Fast & Furious Presents: Hobbs & Shaw 
 magnet:?xt=urn:btih:8A1AD5024070C344223326D1F344F4E00EF49FDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +424,8 @@ Tyler Bates, VA - Форсаж: Хоббс и Шоу / Fast & Furious Presents: 
 ```bash
 magnet:?xt=urn:btih:2A37A8E6316B679033448105FCF3F4170A702461
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +454,8 @@ Steven Price - The Aeronauts / Аэронавты (Original Motion Picture Sound
 magnet:?xt=urn:btih:690C85E6A005A8C35C7C343691BC5CA937B2561B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +482,8 @@ VA - Christmas Shooting Stars: The Finest Chillout and Lounge Music (2016) [MP3|
 ```bash
 magnet:?xt=urn:btih:80F06827F2FA6D96605597A69225109127A5FFC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +512,8 @@ Dr. Mary Anderson - Meditations for the Journey Within (2016) [MP3|320 Kbps] <Ne
 magnet:?xt=urn:btih:F70A4539F951CBF451C87A1C14D3E2FEDEFD7D4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +540,8 @@ magnet:?xt=urn:btih:F70A4539F951CBF451C87A1C14D3E2FEDEFD7D4F
 ```bash
 magnet:?xt=urn:btih:94BD22F2D13287B3240B446EB7D1793F754E4128
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +570,8 @@ Paul Mauriat - The Russian Album (1993) [FLAC|Lossless]<Instrumental>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +598,8 @@ Labrinth - Euphoria / Эйфория (Original Score from the HBO Series) (2019)
 ```bash
 magnet:?xt=urn:btih:5FA99D0B94EC18FD04C602DBAE10D28BACD2BA69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +628,8 @@ David Thomas - Samsara, Vol. 13 (Ethnic Opera) (2015) [MP3|320 кб/с]<New age,
 magnet:?xt=urn:btih:22ACEBDD0D5A4C35BF855402DC0D0143EEE837BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +656,8 @@ Two Steps From Hell - Vanquish (2016) [FLAC|Lossless|WEB-DL|tracks]<Neo Classica
 ```bash
 magnet:?xt=urn:btih:EDA7B2E41E2C78A726DAD4DBB64B37B0F7505B70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +686,8 @@ Labrinth - Euphoria / Эйфория (Original Score from the HBO Series) (2019)
 magnet:?xt=urn:btih:92299BBE581A2751D6F1B9C03CC78BD606CE797C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +715,8 @@ Niall & Juliana - Angelic Reiki (2012) [MP3|320 кб/с]<New Age, Meditative>
 magnet:?xt=urn:btih:DFC0570D94DA5F6CA6ECC0664606A8261C8121CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ Jake Butineau - Dune Sea (Original Game Soundtrack) (2019) [MP3|320 кб/с]<Sou
 ```bash
 magnet:?xt=urn:btih:6EA3AFD35EA77F5B7BAFA62CDC466A957A5000F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

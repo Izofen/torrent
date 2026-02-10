@@ -1,3 +1,29 @@
+###  Публикация: 1104556   (880190) от 15.02.2017
+
+Вечерний Ургант (2017.02.14) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:29:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:221964AD6E86CD46994E661BFD051AB6AA7795F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 854273   (880362) от 13.03.2016
 
 Война в Корее (2012) HDTVRip [H.264/720p] [1-4 серия из 4]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:94D0E7B5AB45CBF56D50C71906985CC624DE12B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ magnet:?xt=urn:btih:94D0E7B5AB45CBF56D50C71906985CC624DE12B9
 magnet:?xt=urn:btih:C4660ECEBAC1ECC0989BCDEC54EA8F1FA71A1FDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:C4660ECEBAC1ECC0989BCDEC54EA8F1FA71A1FDF
 ```bash
 magnet:?xt=urn:btih:AC47E8244E30BD1067C16F51D079126FDAB12381
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:AC47E8244E30BD1067C16F51D079126FDAB12381
 magnet:?xt=urn:btih:224AE6404B32D82AC5A1B030F60F9DDA0B757361
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:224AE6404B32D82AC5A1B030F60F9DDA0B757361
 ```bash
 magnet:?xt=urn:btih:C7E2AFF729F64509FB2C18C2058AAF1B181F6153
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:C7E2AFF729F64509FB2C18C2058AAF1B181F6153
 magnet:?xt=urn:btih:9F36C3037AEEA27801DBBD107098EF14FE2F9A09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:9F36C3037AEEA27801DBBD107098EF14FE2F9A09
 ```bash
 magnet:?xt=urn:btih:24634B7C2BA306DD347A7312B77BE09E0B4CF944
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:24634B7C2BA306DD347A7312B77BE09E0B4CF944
 magnet:?xt=urn:btih:8DA7879B21CE0F79A4303661E4384CDB9DDC3A4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ BBC. Дикая Аравия / Wild Arabia (2013) BDRip [H.264/1080p] [1-3 се�
 ```bash
 magnet:?xt=urn:btih:C510D300C4261A66E0829E90C465751B757C98D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:C510D300C4261A66E0829E90C465751B757C98D3
 magnet:?xt=urn:btih:A91DB82D5B65D0FD067278C71009CF5321EB5A36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:A91DB82D5B65D0FD067278C71009CF5321EB5A36
 ```bash
 magnet:?xt=urn:btih:D76F5FE261C7C84DD9B871C01296C26CAF663293
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:D76F5FE261C7C84DD9B871C01296C26CAF663293
 magnet:?xt=urn:btih:4E5570D9A0C2868B7A8AB112090283C076A4330F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +367,8 @@ magnet:?xt=urn:btih:4E5570D9A0C2868B7A8AB112090283C076A4330F
 magnet:?xt=urn:btih:39180F4660FEA4871060E0CF4EEBE1E7ABFF3168
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +392,8 @@ magnet:?xt=urn:btih:39180F4660FEA4871060E0CF4EEBE1E7ABFF3168
 ```bash
 magnet:?xt=urn:btih:F369EB4391B46CE6D58CBDCC4F586FDB05ED3E6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +422,8 @@ magnet:?xt=urn:btih:F369EB4391B46CE6D58CBDCC4F586FDB05ED3E6B
 magnet:?xt=urn:btih:3FC235C45FDCFFA046CB62D4B7FFAA91ED6AD910
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +447,8 @@ magnet:?xt=urn:btih:3FC235C45FDCFFA046CB62D4B7FFAA91ED6AD910
 ```bash
 magnet:?xt=urn:btih:1020331706141870BBAE13C38DDF4B750AB542DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +474,8 @@ magnet:?xt=urn:btih:1020331706141870BBAE13C38DDF4B750AB542DE
 magnet:?xt=urn:btih:C0F4B3DF16A9198C26CAF57482F95E29EFDE1407
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +499,8 @@ magnet:?xt=urn:btih:C0F4B3DF16A9198C26CAF57482F95E29EFDE1407
 ```bash
 magnet:?xt=urn:btih:FAAADDD59BB5CB68B1A7FD1D2AC55B42F7771E63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +526,8 @@ magnet:?xt=urn:btih:FAAADDD59BB5CB68B1A7FD1D2AC55B42F7771E63
 magnet:?xt=urn:btih:05641277F94345E9A1B9454A6B6B818192DFD186
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +551,8 @@ magnet:?xt=urn:btih:05641277F94345E9A1B9454A6B6B818192DFD186
 ```bash
 magnet:?xt=urn:btih:84A194EF986CEC6287EE32AACF345D6340110235
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +579,8 @@ magnet:?xt=urn:btih:84A194EF986CEC6287EE32AACF345D6340110235
 magnet:?xt=urn:btih:65C747927390E676F30B40791C117FF4D72FA4FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:65C747927390E676F30B40791C117FF4D72FA4FF
 ```bash
 magnet:?xt=urn:btih:14B2A2E6ACDB0D9BC914BE4BE6BDB8528EAAAC7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +632,8 @@ NGW: Дунай. Европейская Амазонка / Danube. Europe's Amaz
 magnet:?xt=urn:btih:86A0F8EC7D8774F9FF6BB33F0269B0B6CEB1F283
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:86A0F8EC7D8774F9FF6BB33F0269B0B6CEB1F283
 ```bash
 magnet:?xt=urn:btih:C083265F4681E456FFD61804706AED939B8FA7F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,29 +684,7 @@ magnet:?xt=urn:btih:C083265F4681E456FFD61804706AED939B8FA7F9
 magnet:?xt=urn:btih:21E1DA0CEB6B75F4C75204C464CAE2BDD1792BE0
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373077   (881441) от 05.04.2020
-
-Аквариум  4K / The Best 4K Aquarium for Relaxation (2018) WEB-DL [VP9/2160p] [4K]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучший расслабляющий аквариум в 4K UHD.Музыка для отдыха, сна, медитации, йоги, учебы. Расслабьтесь, расслабьтесь и наслаждайтесь.Великолепно использовать в качестве телевизионной заставки для офиса, гостиной, зала ожидания, спа-салона, ресторана и т.д.Жанр: ВидовойПеревод: Не требуется (нет диалогов и озвученных комментариев) (музыкальное сопровождение)Продолжительность: 02:03:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9AFAA46393726E684EBE6AD6DF4F3FE5AF3D35A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

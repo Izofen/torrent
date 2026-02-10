@@ -19,6 +19,8 @@ Wingspan / Крылья (2020) [Ru/Multi] (1.6.1065/dlc) Repack seleZen
 magnet:?xt=urn:btih:D41AE8A4A135AB02DD9391D323B0316063E72208
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Status One (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5050D3254EAA50BAE7A56C95743E28C83A3F2947
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ While We Wait Here - это игра о работе на кухне, позво
 magnet:?xt=urn:btih:7156A63CB7797A79351F70D0AE50A54B43F567F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Wonder Boy: Asha in Monster World (2021) [Ru/Multi] (Build 8291740) Repack Let's
 ```bash
 magnet:?xt=urn:btih:2024C00943D87D883EA87EFCDB7A2473420FB81D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Fort Solis (2023) [Ru/Multi] (Build 16940110) Repack Let'sРlay [Terra Edition]
 magnet:?xt=urn:btih:C680A152997D93819CF561AE6041EDA0CB14D1CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ JUMP! The Floor Is... (2025) [Ru/Multi] (build 16957809) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:8B447165721B8594FA9202F97C2BF87D4EEE092C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Future Fragments - это современный платформер тольк
 magnet:?xt=urn:btih:BC47A5C040C6510EFEC4C944E722D5B57B8C9CA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Momodora: Moonlit Farewell - новая игра из серии Momodora. От�
 ```bash
 magnet:?xt=urn:btih:106F550C50ED7638601B559157D79075ED4AC96D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Carnival Of Souls (2024) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:794D74826AAF770E1755682116BA513DD5D8CFD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Book of Demons это гибрид Hack & slash и карточной игры, 
 ```bash
 magnet:?xt=urn:btih:771B3D14B64F8B6819F2E61DBF29703513E7A55E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Megaloot (2024) [Ru/Multi] (1.14) Repack Pioneer
 magnet:?xt=urn:btih:0C8B55C61489B3824719F4B8677584E222692451
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Bloodstained: Ritual of the Night - это игровой опыт ориент�
 ```bash
 magnet:?xt=urn:btih:FDB5E0CA3EB70259EAB7AEE97DCA8170F8753E08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Status One (2025) [Ru/Multi] (1.0.0) Repack seleZen
 magnet:?xt=urn:btih:BEDE4964A1CDB7209403177C4A528D808E27D6F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ The Redundant (2025) [Ru/Multi] (build 16931999) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:ABEA12E3CB8242504239189ADAE83E86CE9BEA92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Chocolate Factory Simulator (2025) [Ru/Multi] (1.0.4) Repack FitGirl
 magnet:?xt=urn:btih:49C2978FE9C34D2E329649ACB295EA854D6B55FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Construction Simulator 2 US (2018) [Ru/Multi] (0.9) License GOG [Pocket Edition]
 ```bash
 magnet:?xt=urn:btih:5A7D9FBA66C52AA2451B07D3DFD853730D032B27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Raccoon Roller – настало время для увлекательных �
 magnet:?xt=urn:btih:635E1C6EAC9C23DE2C39F1591881B32E2613D78C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Dropsy (2015) [Ru/Multi] (1.5) License GOG [Warm Damp Hug Edition]
 ```bash
 magnet:?xt=urn:btih:4BC188DB5AE063B3AB45035D410C9EDA3C800474
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ My Friendly Neighborhood (2023) [Ru/Multi] (1.1.1) Repack Let'sРlay
 magnet:?xt=urn:btih:7AD8374214052A5B98B1B2B6EE5C5CA0D24E5402
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The Inn-Sanity (2024) [Ru/Multi] (build 16843098) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:41875B29D3CA83B82CC06C6BFD60F057D5180CFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Valhalla Path: Survival (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:4E79AB563C4CCF83F1EF5BE842BC3CED2E74E490
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Discolored 2 (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4F8C3D4E2770F79B2BACBCA620D11F52A500F1B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Marko: Beyond Brave (2024) [Ru/Multi] (1.09) Repack Let'sРlay
 magnet:?xt=urn:btih:03052594723E7659CBA4D30A12D5EBC17C465E29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Beyond Hanwell (2024) [Ru/En] (1.1) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:F0DCAEA7E3E1C5BB9F7C63ADD4D14200B52E0E52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Exsys (2020) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:8733CCB02A541A89AB578557BE4BCA53D93697DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ FREEDOM WARS Remastered (2025) [Multi] (1.0/dlc) Repack FitGirl [Contribution Ed
 ```bash
 magnet:?xt=urn:btih:95C7BB61E4AA43C27D56FE6F25257A40462E2B46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

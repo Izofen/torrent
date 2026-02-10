@@ -22,6 +22,8 @@ Kamanchaka Iquique - Esmeralda (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 magnet:?xt=urn:btih:5109D066E3AD31F7DB7E1457FEA1D6436E058719
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Noirad - Aegean Legacy (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:48E952BC690D995C2D8660485DD8194745661A8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:48E952BC690D995C2D8660485DD8194745661A8E
 ```bash
 magnet:?xt=urn:btih:91EA47AAF8816195119EC00C9B63224E7D6CC0FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:91EA47AAF8816195119EC00C9B63224E7D6CC0FF
 magnet:?xt=urn:btih:F3920843EF8E56FAD6A249A9FC0E078AC6AFE8FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:F3920843EF8E56FAD6A249A9FC0E078AC6AFE8FE
 ```bash
 magnet:?xt=urn:btih:BDC96AEDF00E682E49E5154032A77FC8397CC417
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:BDC96AEDF00E682E49E5154032A77FC8397CC417
 magnet:?xt=urn:btih:85C61E9F64804284668E8EA8DAD8EC604DA54945
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:85C61E9F64804284668E8EA8DAD8EC604DA54945
 magnet:?xt=urn:btih:93956EF3D8769F6555CFA83327F00B6F9E1EE310
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:93956EF3D8769F6555CFA83327F00B6F9E1EE310
 ```bash
 magnet:?xt=urn:btih:573E1E2360304EABEE2863CAAA8D3AE090584BC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ VA - SpaceSynth.Ru presents: Special New Year's Voyage 2025 (2025) [MP3|320 Kbps
 magnet:?xt=urn:btih:DB8398D1FD5E70B415A62CC4179B8CC8A833825F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ Wolf Rahm - Фольклорище (2014) [FLAC|Lossless|image + .cue] <Folk Met
 magnet:?xt=urn:btih:6470407E1F0C9D42A53F4240EED9DDA65E4CA36D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ magnet:?xt=urn:btih:6470407E1F0C9D42A53F4240EED9DDA65E4CA36D
 magnet:?xt=urn:btih:FC83EBD8891D7F7AC23FEFF954F5831675EA09A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:FC83EBD8891D7F7AC23FEFF954F5831675EA09A8
 magnet:?xt=urn:btih:4DBDF30DC10C3D83DAEB0EB638F0D4D351EDDFDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:4DBDF30DC10C3D83DAEB0EB638F0D4D351EDDFDD
 ```bash
 magnet:?xt=urn:btih:3C61917089F1F7560A786A11D60D3A09A2CE08EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ Post Meridiem - Академистика (2015) [MP3|256 Kbps] <Hard Rock, Heavy
 magnet:?xt=urn:btih:ABAF7EF13CCD3118070E070015F71C4C97F50403
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ magnet:?xt=urn:btih:ABAF7EF13CCD3118070E070015F71C4C97F50403
 magnet:?xt=urn:btih:D7ADAB915FB57336A7FE74642E5520D03767ABFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ magnet:?xt=urn:btih:D7ADAB915FB57336A7FE74642E5520D03767ABFC
 magnet:?xt=urn:btih:E5F435506308080BA027E12B3EDF73EEAEC09C42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +457,8 @@ magnet:?xt=urn:btih:E5F435506308080BA027E12B3EDF73EEAEC09C42
 ```bash
 magnet:?xt=urn:btih:D9D8B21B6C529BAA7DFB7E188907FEF2432BCDB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +487,8 @@ Nazty Gunz - Hot Mess (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:7A1A0B34087A936D4717359B20522BABB6778175
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +512,8 @@ magnet:?xt=urn:btih:7A1A0B34087A936D4717359B20522BABB6778175
 ```bash
 magnet:?xt=urn:btih:55F191218D2BCA4A396FB3FEFD63BA8145838B34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:55F191218D2BCA4A396FB3FEFD63BA8145838B34
 magnet:?xt=urn:btih:8DE1700C0FC51295A0324826DFD1A9FBFEDA8E8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ magnet:?xt=urn:btih:8DE1700C0FC51295A0324826DFD1A9FBFEDA8E8A
 ```bash
 magnet:?xt=urn:btih:988F8FFD362A4B09252988750860AA79C8BF0259
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +591,8 @@ magnet:?xt=urn:btih:988F8FFD362A4B09252988750860AA79C8BF0259
 magnet:?xt=urn:btih:670CF6F7EE3721FD0269E853758FACC5FFA32402
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ magnet:?xt=urn:btih:670CF6F7EE3721FD0269E853758FACC5FFA32402
 ```bash
 magnet:?xt=urn:btih:C5BAC139B8B4D1701E963712C957788AC883C08A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +643,8 @@ magnet:?xt=urn:btih:C5BAC139B8B4D1701E963712C957788AC883C08A
 magnet:?xt=urn:btih:75EE8E553AAC6816F70127204798DB3D97F3D6BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +668,8 @@ magnet:?xt=urn:btih:75EE8E553AAC6816F70127204798DB3D97F3D6BD
 ```bash
 magnet:?xt=urn:btih:776B6403F9146FEF68E82B4B2DD74BAF4767CF48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -647,6 +697,8 @@ Big One - Pink floyd Show (2006) [MP3|320 Kbps] <Rock, Alt Rock>
 ```bash
 magnet:?xt=urn:btih:396A8FB48DA1B7F7BB03AD8AF3E6A71BC9EC380A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

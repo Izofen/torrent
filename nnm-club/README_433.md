@@ -22,6 +22,8 @@ Helix - No Rest For The Wicked (1983) Reissue, Remastered, 2005, RockCandy Recor
 magnet:?xt=urn:btih:D6E40477FA45B3770C0DA0B18AFDB689F8B4F6E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Binary Paradigm - Road 666 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:5AACA87D1B25DDB7F0F79DBF23ECBC7DE6BE398E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:5AACA87D1B25DDB7F0F79DBF23ECBC7DE6BE398E
 magnet:?xt=urn:btih:B5BFADE9AA871326960CF78887E7D5367885EE62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Recovery Fujitsu-Siemens Computers Windows Vista Home Basic (x86) [Ru/En]
 magnet:?xt=urn:btih:7D049E8EE28D1D590827C4D69A9EADC619266DD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:7D049E8EE28D1D590827C4D69A9EADC619266DD5
 magnet:?xt=urn:btih:79190D34B6775D5933DAF898DD33271F2955F083
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:79190D34B6775D5933DAF898DD33271F2955F083
 ```bash
 magnet:?xt=urn:btih:4863FB494F76BCBC229DC015C71447E018D6CD62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:4863FB494F76BCBC229DC015C71447E018D6CD62
 magnet:?xt=urn:btih:49BDA56112F1CE32D3B0CB3E248FD660045FFFAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:49BDA56112F1CE32D3B0CB3E248FD660045FFFAD
 ```bash
 magnet:?xt=urn:btih:4EE7E656FFBA991C463623E0AB511829CE42219C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:4EE7E656FFBA991C463623E0AB511829CE42219C
 magnet:?xt=urn:btih:C651A2570E71EA120CFB6935EBBB2888AF6E35BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ Shadow of the Night (2023) [En] (2.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:488BCA6BD1424D30AEDAE7A5BF8F91DF1014F335
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ Metallica - Master Of Puppets (1986) Expanded Edition, Reissue, Remaster, 2017, 
 magnet:?xt=urn:btih:71CEA1C8545AE200B79D96169431ABF1563E0A5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ FireAlpaca — это достаточно простой, но удобный �
 ```bash
 magnet:?xt=urn:btih:255998723C3B1DC885FF675C505B61430862F9F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:255998723C3B1DC885FF675C505B61430862F9F1
 magnet:?xt=urn:btih:EBEA6E606F0C151CEF60699CF1D14592E3E3591C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:EBEA6E606F0C151CEF60699CF1D14592E3E3591C
 ```bash
 magnet:?xt=urn:btih:BFC0E8EB5B2B60703791E61C8470B7DAFB313B52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:BFC0E8EB5B2B60703791E61C8470B7DAFB313B52
 magnet:?xt=urn:btih:C6615171CE35A564C8637FE31483DF11ED6D1078
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:C6615171CE35A564C8637FE31483DF11ED6D1078
 magnet:?xt=urn:btih:4CC6FCD53B88B2FA4A44C15A8FB548C704997DAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ magnet:?xt=urn:btih:4CC6FCD53B88B2FA4A44C15A8FB548C704997DAB
 ```bash
 magnet:?xt=urn:btih:284C570D631F8C446CF56EEFF7AEBBA68508110F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ VA - Music News For Forum vol.113 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:3A427E839EAAE9C84492433262843058BF9FD6BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ CD One - Live From The Genting Arena, Birmingham, 2017:
 magnet:?xt=urn:btih:C7B005C31CE030397B95E820DCE18DD4B8BB9807
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:C7B005C31CE030397B95E820DCE18DD4B8BB9807
 ```bash
 magnet:?xt=urn:btih:0C505255B1BB4C6D3A505A716146BA4EB5A09417
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ magnet:?xt=urn:btih:0C505255B1BB4C6D3A505A716146BA4EB5A09417
 magnet:?xt=urn:btih:03C9491177E2326DF728C5AF8B7D45D69A5DA56D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ magnet:?xt=urn:btih:03C9491177E2326DF728C5AF8B7D45D69A5DA56D
 ```bash
 magnet:?xt=urn:btih:45E38D3D137892F19E76B24F8B06A1791595C2F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +612,8 @@ magnet:?xt=urn:btih:45E38D3D137892F19E76B24F8B06A1791595C2F6
 magnet:?xt=urn:btih:3E9E555BD1BD83569B671F71EE2FFDE14F61E5AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ magnet:?xt=urn:btih:3E9E555BD1BD83569B671F71EE2FFDE14F61E5AE
 ```bash
 magnet:?xt=urn:btih:537CDB85DD93F89E94B7E257030C740C8FD6BE23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:537CDB85DD93F89E94B7E257030C740C8FD6BE23
 magnet:?xt=urn:btih:5DC5E7871D3EB463C2BF2F50E476D5DF5F86EC70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ magnet:?xt=urn:btih:5DC5E7871D3EB463C2BF2F50E476D5DF5F86EC70
 ```bash
 magnet:?xt=urn:btih:39ECC21071D948F85586D1470FBE06E4EC5EAB18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

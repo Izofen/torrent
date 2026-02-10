@@ -22,6 +22,8 @@ Firewind - Stand United (2024) [FLAC|Lossless|image + .cue] <Heavy Metal, Power 
 magnet:?xt=urn:btih:941C3C9AA6DE2BF54F305C3807BE4143EB7E85A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Looper - Up A Tree (1999) 25th Anniversary Edition, 2024, Mute [FLAC|Lossless|WE
 magnet:?xt=urn:btih:E26C42BB10F3FF2B44FCD40263BA5763158D5A60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ iNet показывает устройства, подключенные к ва
 ```bash
 magnet:?xt=urn:btih:817DBE6B78975D491A2310719CE61284BDA19B64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +107,8 @@ magnet:?xt=urn:btih:817DBE6B78975D491A2310719CE61284BDA19B64
 magnet:?xt=urn:btih:49EE63A0E69B011A375606A900D9AC6EB733A310
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ Vlad in Tears - Relapse (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Post-Gr
 ```bash
 magnet:?xt=urn:btih:CD3981D244487F247600A0C7663E367E855D9289
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -155,6 +165,8 @@ Synthsoul - Cosmic Funk Chronicles (Original Mix) (2024) [FLAC 24/48|Lossless|WE
 magnet:?xt=urn:btih:BFBFED42256F22725946E3B0BB47354118E8AFCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ magnet:?xt=urn:btih:BFBFED42256F22725946E3B0BB47354118E8AFCA
 ```bash
 magnet:?xt=urn:btih:2CACE35DF3DFA97A25037AE55A59E42070DD46AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -206,6 +220,8 @@ Voodoo - The Purge (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal
 magnet:?xt=urn:btih:78C887739D89894F99584A030FE7CC407CDF416E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -232,6 +248,8 @@ Algebra - Polymorph & Procreation (2012) Reissue, 2013, Stormspell Records [FLAC
 ```bash
 magnet:?xt=urn:btih:42A392190C61C1FC7FBFCAD6BF49CFA25AF82632
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +278,8 @@ Francis Lockwood, Johan Renard - New Surya (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:F54759560641A3CF79E3484FD7C15BD20A546201
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +304,8 @@ pdfFactory Pro - удобное приложение, представляюще
 magnet:?xt=urn:btih:66540423BB5C28D114902F8AC91C70D287D9FA85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +329,8 @@ magnet:?xt=urn:btih:66540423BB5C28D114902F8AC91C70D287D9FA85
 ```bash
 magnet:?xt=urn:btih:D50215A0F629064429CE1B128DC3BE2DFB9829AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +359,8 @@ magnet:?xt=urn:btih:D50215A0F629064429CE1B128DC3BE2DFB9829AE
 magnet:?xt=urn:btih:E09B9FB7C282745EFCC9CD14E62802A193D64C1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +388,8 @@ magnet:?xt=urn:btih:E09B9FB7C282745EFCC9CD14E62802A193D64C1F
 magnet:?xt=urn:btih:6CCF1624EA8BB9BA35DCB6EAC6950D59796992E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +413,8 @@ magnet:?xt=urn:btih:6CCF1624EA8BB9BA35DCB6EAC6950D59796992E1
 ```bash
 magnet:?xt=urn:btih:CA58A3276313D116B6B4E38535B1A2842AA66A01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +443,8 @@ Neverlove - Next Level (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, E
 magnet:?xt=urn:btih:08C9166349EEEB8D63B58C5C0963CBFCFE1E03E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +472,8 @@ magnet:?xt=urn:btih:08C9166349EEEB8D63B58C5C0963CBFCFE1E03E2
 magnet:?xt=urn:btih:2D2068BAD8EED64335143063C3E4E4A4470ED99A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +497,8 @@ magnet:?xt=urn:btih:2D2068BAD8EED64335143063C3E4E4A4470ED99A
 ```bash
 magnet:?xt=urn:btih:D0BC28ED1D71EC9CEF00624169EF2DC93504C357
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +525,8 @@ DropDMG 3.6.7 [Multi]
 magnet:?xt=urn:btih:BD762843A8539D0916414770ADF6186442F94144
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +550,8 @@ MotoGP. Этап 01 из 22. Гран-при Катара. Квалификац�
 ```bash
 magnet:?xt=urn:btih:B82C4BD0BF05ABA8F0B9D7312C26626E360E8E3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +580,8 @@ Sting - The Soul Cages (1991) 1992 [FLAC 24/192|Lossless|tracks] <Rock>
 magnet:?xt=urn:btih:D9CB59120B45A7FEC8952B954198180475562397
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +606,8 @@ RightFont - менеджер шрифтов с красивым интерфей
 ```bash
 magnet:?xt=urn:btih:821A96CA23205C116283AF062C348418B6B0DB39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +636,8 @@ magnet:?xt=urn:btih:821A96CA23205C116283AF062C348418B6B0DB39
 magnet:?xt=urn:btih:4CDB6627E71C0047453DB05724B8079F6B6A276C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +661,8 @@ GeoGebra — мультиплатформенная программное об�
 ```bash
 magnet:?xt=urn:btih:17DA5F4E2DBB5C30E6812EF296E560D4E68BAB74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +691,8 @@ AC/DC - Stiff Upper Lip (2000) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 magnet:?xt=urn:btih:6DAA135FCAB30E63D786256E6A293CDABB56DBB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +719,8 @@ magnet:?xt=urn:btih:6DAA135FCAB30E63D786256E6A293CDABB56DBB3
 ```bash
 magnet:?xt=urn:btih:6CE82C83894508C59D03A45FBF5A832D550561F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

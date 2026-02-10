@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:79E157739FD1228D91488B45C18419B65197D779
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Titan Quest (2016) [Ru/Multi] (2.10.6/dlc) License GOG [Anniversary Edition]
 magnet:?xt=urn:btih:2E0952AA9F466A3E4A8547BF04AEC94537234B02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:2E0952AA9F466A3E4A8547BF04AEC94537234B02
 ```bash
 magnet:?xt=urn:btih:B62211E09284FD18E6A217A1F20595657AA07739
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ John Workman | Артбук с обложками журнала Heavy Metal з�
 magnet:?xt=urn:btih:BF45126AD6D95954C2DFE735A5BE7C9BE4B38CBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Ikenie no Yoru (англ. Night of Sacrifice) – приключенческий
 ```bash
 magnet:?xt=urn:btih:45D2C4081CA65CFBEC6D2F8AEEFE8390752C5E34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ VA - The Techno Lobby (2015) [MP3|320 кб/с] <Techno, Minimal, Tech House>
 magnet:?xt=urn:btih:A9666668863B833CE9369DD6D8C32618267B7BCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Tangledeep – это RPG выполненная в стиле 16-битной �
 ```bash
 magnet:?xt=urn:btih:BA790ECDA5D7BD344364BECA4C17ED8279DABBF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:BA790ECDA5D7BD344364BECA4C17ED8279DABBF0
 magnet:?xt=urn:btih:9B65E5E94473B0AC503639B8BF6F4A8E615AA97F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Transcend Elite – компания-разработчик устройств �
 ```bash
 magnet:?xt=urn:btih:7F34B0D99806A14CC7755B552A66D362D2037315
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ Orphaned Land — израильская рок-группа, объединяю
 magnet:?xt=urn:btih:3EFCC2A565AE0D72AEAF067B350E52991FB88680
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:3EFCC2A565AE0D72AEAF067B350E52991FB88680
 ```bash
 magnet:?xt=urn:btih:9C18595CC518F02BBFA3B442FBE38367DBCB188A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ Mass Effect [PS3] [ENG] [PAL] [3.55 / 4.30] (2012)
 magnet:?xt=urn:btih:D66110ABACF840AC02F724E714285D96EC648DDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:D66110ABACF840AC02F724E714285D96EC648DDA
 ```bash
 magnet:?xt=urn:btih:858C1F27A65ABE6B80AEACB7B495A7D56E2AA475
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ Cockos Reaper является одной из самых продвинутых
 magnet:?xt=urn:btih:67952870F5D77B1F50DE4A61C6ABFE567360D4F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:67952870F5D77B1F50DE4A61C6ABFE567360D4F0
 ```bash
 magnet:?xt=urn:btih:2DDACC5610152004F5C8E7A36334E90DDFA222D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:2DDACC5610152004F5C8E7A36334E90DDFA222D6
 magnet:?xt=urn:btih:D146662E629178196B3960D75926032C2B441E63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ RJ TextEd - мощный текстовый редактор с большим �
 ```bash
 magnet:?xt=urn:btih:7C1FDB9059A4C66D74E4EEC35AA72654A3F1FAFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ Motley Crue - американская глэм-метал группа, осн�
 magnet:?xt=urn:btih:6A3229E417378A4FA7124A2541D40E1A05DD7E9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ Double Exposure - отличный инструмент для фотограф�
 ```bash
 magnet:?xt=urn:btih:90241069B598BA38F2EAA7E332C58B660702D93A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:90241069B598BA38F2EAA7E332C58B660702D93A
 magnet:?xt=urn:btih:1FB9D70F2563C9808DF73251C890201171755F72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:1FB9D70F2563C9808DF73251C890201171755F72
 ```bash
 magnet:?xt=urn:btih:298E97916226E51A2B8E82917B040E3FEF4560FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +585,8 @@ magnet:?xt=urn:btih:298E97916226E51A2B8E82917B040E3FEF4560FA
 ```bash
 magnet:?xt=urn:btih:FB6CEB70F65C4E3735EA853B275E0BA33DF028B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +615,8 @@ Bestblendercourse, Mad Rabbit | Самый лучший курс по Blender (2
 magnet:?xt=urn:btih:E435FD10D8EF6F21D16E2B7BB5D52124E004E506
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ VA - Reggae Christmas from Studio One (1992) [MP3|320 кб/с] <Reggae>
 ```bash
 magnet:?xt=urn:btih:89A21A62EFB1B07236D66E3E696EFCFEE375ACE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +673,8 @@ VA - German Top 100 Single Charts 17.12.2018 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:66BC05AC66B2F2DA49EE69CDA97367097EE5EE60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +698,8 @@ magnet:?xt=urn:btih:66BC05AC66B2F2DA49EE69CDA97367097EE5EE60
 ```bash
 magnet:?xt=urn:btih:DE367C87978C5022FD57C3439D6839243BECD49C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

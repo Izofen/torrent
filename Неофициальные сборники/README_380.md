@@ -1,3 +1,32 @@
+###  Публикация: 1229281   (628214) от 05.06.2018
+
+VA - Lounge Flow: Modern Chillout Selection (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deadly Ride - Should You (Whell Version)
+02. Momylove - Technical Love (Sea Original)
+03. Hiroky Samoto - Counterclockwise (Sine Swap)
+04. Ephemeral - Frogs Rain (Retro Day)(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, ElectronicПродолжительность: 01:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72B22F6D02FE7895160AF5D210F9E5ED3F26FC5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294463   (628235) от 08.04.2019
 
 VA - Techno Skyline Sessions (2019) [MP3|320 Kbps] <Techno, Minimal, Electro>
@@ -21,6 +50,8 @@ VA - Techno Skyline Sessions (2019) [MP3|320 Kbps] <Techno, Minimal, Electro>
 ```bash
 magnet:?xt=urn:btih:792BE85510C8FFE9BCBFE1C28EBA73E145440236
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Beyond Time: Vocal Trance Mix (2019) [MP3|320 Kbps] <Vocal, Uplifting Tranc
 magnet:?xt=urn:btih:7FF9E888F21788176B5C49AF420AE0BC863F3B0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Key To My Heart (2019) [MP3|320 Kbps] <R&B, Soul>
 ```bash
 magnet:?xt=urn:btih:BEABE1C2620673720B489248C481115C3173408D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Bassnectar - Красивейший дабстеп (Sound Clinic - Bass Edi
 magnet:?xt=urn:btih:F80595460C79BFD095D5B1DFA6E31A1F1C6D0834
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Cryptic House XXI (2019) Compiled by ZeByte [MP3|320 Kbps] <House, Deep Hou
 ```bash
 magnet:?xt=urn:btih:3FE3C5BC41D0B4DD4F71B7997AD4ADA485B359AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - April City Party (2019) [MP3|320 Kbps] <Club, Dance, Electro House>
 magnet:?xt=urn:btih:B059408BFE65F2CE012973B319AC5153D6D59939
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Tomorrowland  - The Elixir Of Life (2016) [MP3|320 Kbps] <Trance, House, Pr
 ```bash
 magnet:?xt=urn:btih:8B91C6FB92BB0198E949554323E9F43EA57772CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Cool Story: Summer Eurodance (2016) [MP3|320 Kbps] <Eurodance, Electro Hous
 magnet:?xt=urn:btih:2DC19CB5381F6C304D13CB3C86B5D65561BA64A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +283,8 @@ VA - Endless Motion - Only Trance (episode3) (2016) [MP3|320 Kbps] <Trance, Upli
 magnet:?xt=urn:btih:973686ADB2A89E58646AA8C6A0EE27F378F0E205
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +311,8 @@ VA - Naxwell - Hands Up Masterpieces: All His Singles & Remixes (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:BD8607D115123D2677E2DB20EAADD2E0181EDA63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +347,8 @@ VA - Убойный сборник от Авторадио 50/50 (2012) [MP3|256
 magnet:?xt=urn:btih:522141FEE82AB0630657D2608B0D86058C7625B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +381,8 @@ VA - Летний Хит-Парад Муз-ТВ (2012) [MP3|256 кб/с]<Рор>
 ```bash
 magnet:?xt=urn:btih:0B40429CCA795E2D69E29FB04D637CE392C7249C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +417,8 @@ VA - Музыка для хорошей компании Vol.6 (2012) [MP3|256 �
 magnet:?xt=urn:btih:3F78048035848174702CB26CCD0470390BBD83D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +452,8 @@ VA - На вершинах хит-парадов 2 50/50 (2012) [MP3|256 кб/с
 magnet:?xt=urn:btih:D0AAC0C2F24401F599FD52451F6A41E4D5A7DB9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +480,8 @@ VA - Moving Dance: Summer Longplay (2017) [MP3|320 Kbps] <Pop, House, Dance>
 ```bash
 magnet:?xt=urn:btih:DBA07DCCE6F1CA8ADC7E12BE4CBEC873294A910C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +516,8 @@ VA - In Da Club: Inspiration Volume 1 (Summer 2012) (2012) [MP3|320 кб/с]<Tra
 magnet:?xt=urn:btih:072D563A42CC496B424108AEF5CE4CF0FF22D485
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +550,8 @@ VA - Незабываемая дискотека 2 (2012) [MP3|320 кб/с]<Pop,
 ```bash
 magnet:?xt=urn:btih:D14BDCC29DA5E8CFBC2F9529413B46F9A585B3C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +586,8 @@ VA - Пляжная Вечеринка (2012) [MP3|256 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:3577BC17AEF032458C09A0467F712DB98481EBE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +621,8 @@ VA - Trance In Motion Vol.120 (Mixed By E.S.) (2012) [MP3|320 кб/с]<Trance, V
 magnet:?xt=urn:btih:1A77167D0AD4C6FC75318B10E497BBF635A4BEE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +649,8 @@ VA - Громкие новинки Апреля Vol.1 (2019) [MP3|320 Kbps] <Pop
 ```bash
 magnet:?xt=urn:btih:EE0AA9C0CC801042F7856D4F4E818DC5956635AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +685,8 @@ VA - Trance Desire Volume 22 (Mixed by Oxya^) (2012) [MP3|320 кб/с]<Vocal Tra
 magnet:?xt=urn:btih:C27C0D6255C7C6D41BD66276ED170D616109AA4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +719,8 @@ VA - Последние новинки в мире музыки от Vanovlad 50
 ```bash
 magnet:?xt=urn:btih:BBCB235A98E842061953A4FA1C112871FB89F6C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -682,6 +755,8 @@ VA - Voices in my Head Volume 37 (2012) [MP3|320 кб/с]<Vocal Trance>
 magnet:?xt=urn:btih:0F7D019F1B2DB7CF99154B08CBB41D8473271EFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -708,6 +783,8 @@ VA - SEXofon (Relaxing and romantic saxophone music) (2019) [MP3|320 Kbps] <Drea
 ```bash
 magnet:?xt=urn:btih:9ECB3D85754B70D54329549E955CA5CF37D66226
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -736,32 +813,7 @@ VA - Hot Dance Summer 2018 [MP3|256-320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:24739F82384A635B67EDDBF95A9999DD24352631
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229115   (629558) от 04.06.2018
-
-VA - Club Dance Ambience Vol.150 (2018) [MP3|320 Kbps] <Dance, Club House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629558.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adam K & Soha feat. Matthew Steeper & HALIENE - Twilight vs Breathe  (Club Edit)
-002. al l bo & Pavel Gerasimoff - Where Is Your Prince (Pavel Gerasimoff Remix)
-003. al l bo - Falling (Artful Fox Remix)
-004. al l bo - The Fuel Of My Life (Alexdi & The Soap Opera Remix)(   Читать дальше...   )Жанр: Dance, Club House, Electro HouseПродолжительность: 08:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:751B2807111B022A3300DA76C58BF344B97398C9
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

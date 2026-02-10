@@ -19,6 +19,8 @@ Sudocats (2022) [Ru/Multi] (1.0) License GOG
 magnet:?xt=urn:btih:278B6C7A5FAF70511A9FDC20F21BA32F5EF781CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Foretales (2022) [Multi] (1.1.4127) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:DA75E33208F53BC67B139A81F3260E0C357D58D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Zachtronics Solitaire Collection (2022) [En] (1.0) License GOG
 magnet:?xt=urn:btih:D40C620296DFB860D44C4CF9F28BE2EB6B5B625F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Save Room - Organization Puzzle – игра-головоломка с 40+ по�
 ```bash
 magnet:?xt=urn:btih:43266B17ACFCB655ED56D473E85EEF69B54CDAF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ SolSuite Solitaire 2022 – высококачественная игра, ко�
 magnet:?xt=urn:btih:FC4441803E7426C888F97EB4EB02BC1200A1F99E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Fantasy Mosaics 53: Mysterious Cosmos (2022) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:D72E42AA5F9B64D4C4CB96D595FF0D3CF954F01D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Talisman: Digital Edition - это электронная адаптация н�
 magnet:?xt=urn:btih:F0B7696C3FF4DC3AFBBE85E2D6097D3BD8947708
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Incredible Machine Mega Pack (1993-2001) [En] (2.1.0.24/2.1.0.22/2.1.0.21/2.
 ```bash
 magnet:?xt=urn:btih:AC15E6C6D612A4BE03F77D1A8F7139335A6A0A6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Rebuild the History (P) [En] 2012
 magnet:?xt=urn:btih:9658BDFE3CB17AD07EC8446D72D8127026BE854F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Bubblenauts: The Hunt for Jolly Rogers Treasure (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:71DCCEE8EE7B49F9151A053682C45F24E875FF52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Citadel Arcanes (P) [En] 2012
 magnet:?xt=urn:btih:356A0999C19761C6DAE97C942544BB02BD5275DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:356A0999C19761C6DAE97C942544BB02BD5275DB
 ```bash
 magnet:?xt=urn:btih:97C2CE89D6D1E4B91D2198FE1C76BEE09D00BCD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Once Twice Thrice - это головоломка в реальном време
 magnet:?xt=urn:btih:3D88102B3F23C5F7B07BCBD4CB7FC434D8E9AD79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Disharmony Blocks (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:F2188285DF7D6F165064DDC30C1FA49B212E4D3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Chess Tutor это программа для Windows для изучения ш�
 magnet:?xt=urn:btih:BFEA8FD0494904C96DC48F6A04B5F714C9C95114
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ DGT Chess Trainer (2013) [Ru/Multi] (1.1.1.7/dlc) License
 ```bash
 magnet:?xt=urn:btih:1E7132CB0CF453FDC103651B498388752E8C4C50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Lucas Chess - лучшая из обучающих шахматных прогр
 magnet:?xt=urn:btih:4CA802ABD4C5E8C000E3685E1CC75D20332247F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Little Inferno (2012) [Ru/Multi] (1.0) License GOG
 magnet:?xt=urn:btih:627270C80A2D47E6CAB962B04C1FAFF1424CA665
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +486,8 @@ SHENZHEN I/O – это достаточно сложный симулятор, 
 ```bash
 magnet:?xt=urn:btih:2FD2DC702664BD76FBD5351B022E0297F3C05AD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ Crazy Machines 3 (2016) [Ru/Multi] (1.1.0) Repack Other s
 magnet:?xt=urn:btih:390B761298E8A1D3398E693E927234BE4A4DC3B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ Mushroom 11 - экспериментальная постапокалиптич�
 ```bash
 magnet:?xt=urn:btih:B604EBF6467AC1B58FF31720CF5769A11C2FDD08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ Link me / Собери меня (2015) [Ru] Repack Armeniac
 magnet:?xt=urn:btih:7687D02C1224072FAE29A5AB33F2E6EEC62A17AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ Carto - это милое рукотворное приключение в ми�
 ```bash
 magnet:?xt=urn:btih:D5A45F1A76617016B1F62B1D2FD80BF24B2B8F21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ MouseCraft (2014) [Ru/Multi] (1.20) License GOG
 magnet:?xt=urn:btih:BACAE38FC7FF88537502331E03DB4E31F9D1D6AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ Armello – красочная пошаговая стратегия с элем
 magnet:?xt=urn:btih:391A98370F2FAEBF29992B155ACBAC519A44F549
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ World of Goo [Ru/En] (RePack/1.30) 2009 | R.G. Механики
 ```bash
 magnet:?xt=urn:btih:941B41B4E1DB1CE5AACB1799F077EFFF9065D12F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

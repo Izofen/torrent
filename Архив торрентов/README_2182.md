@@ -1,30 +1,3 @@
-###  Публикация: 1260280   (312032) от 07.11.2018
-
-VA - Fifth Dimension vol. 1-7 (2012-2016) [MP3|320 Kbps] <Electronic, Synthpop, New Wave>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ol'ga Zemljanika I Andrej Klimkovskij - Ethno-Fantasy (6:01)
-02. Aleksej Tihomirov - Pain (3:11)
-03. Viktor Argonov - Opera 2032 - Noch' (1:20)
-04. Arut Katadzhjan - Theme One (3:46)(   Читать дальше...   )Жанр: Electronic, Synthpop, New WaveПродолжительность: 11:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD690D42489FD4F93E8DF89599305055D94FC02F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260487   (312038) от 07.11.2018
 
 Londonbeat - Londonbeat (1994) [FLAC|Lossless|tracks + .cue] <Euro House, Synth-pop>
@@ -48,6 +21,8 @@ Londonbeat - Londonbeat (1994) [FLAC|Lossless|tracks + .cue] <Euro House, Synth-
 ```bash
 magnet:?xt=urn:btih:2100546297CA3E09AD95A20EF533D89E41C86D99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +48,8 @@ Comodo IceDragon 62.0.2.18 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:6397CEB65A8EA876308CF6D913EB99DEDF8E926A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +73,8 @@ Wise Program Uninstaller 2.2.8.128 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2DD2E46FE130482F4949FD3F71D1724A63B2914D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +103,8 @@ A4 Become The One(   Читать дальше...   )Жанр: PopПродолж
 magnet:?xt=urn:btih:7485692899BB9A2DAB7069B0A0A8AD265C35537C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +129,8 @@ Sublime Text не является свободным или открытым п
 ```bash
 magnet:?xt=urn:btih:6303A4CDF338BAAF9B85A126BD32058EADB8094F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +158,8 @@ magnet:?xt=urn:btih:6303A4CDF338BAAF9B85A126BD32058EADB8094F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +183,8 @@ Freemake Video Converter - это бесплатное универсально�
 ```bash
 magnet:?xt=urn:btih:2C92263461BD38DE23C457C2D0DD332AE589B9D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +210,8 @@ Telegram — это приложение для обмена сообщения�
 magnet:?xt=urn:btih:76BF896EE09448D8B9FA2BBB649A0D301226D7BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +235,8 @@ magnet:?xt=urn:btih:76BF896EE09448D8B9FA2BBB649A0D301226D7BA
 ```bash
 magnet:?xt=urn:btih:190B7B3216E214FE32400DB3AE6DAAF822FFA60C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +265,8 @@ magnet:?xt=urn:btih:190B7B3216E214FE32400DB3AE6DAAF822FFA60C
 magnet:?xt=urn:btih:C78FE7035AB2413A45B487C2B322D22965125B65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +291,8 @@ DropDMG 3.5.5 [Multi]
 ```bash
 magnet:?xt=urn:btih:66266F5D0AF6AC9D39D4E7FC31530EBA4BA9E594
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +321,8 @@ magnet:?xt=urn:btih:66266F5D0AF6AC9D39D4E7FC31530EBA4BA9E594
 magnet:?xt=urn:btih:8BBB21D17227F88D882639C68E38A24554799F54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +349,8 @@ Anonymous Various Artists - Covert II (2017) Touched Music [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:08F2026A42672F4BB7D6323C8EEA69CF6A75E159
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +379,8 @@ magnet:?xt=urn:btih:08F2026A42672F4BB7D6323C8EEA69CF6A75E159
 magnet:?xt=urn:btih:91E23D489C17E23F08D332C23F494297C1649225
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +407,8 @@ magnet:?xt=urn:btih:91E23D489C17E23F08D332C23F494297C1649225
 ```bash
 magnet:?xt=urn:btih:325232F78CC8C500DBF33091FDB9E5D416ECA3E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +437,8 @@ magnet:?xt=urn:btih:325232F78CC8C500DBF33091FDB9E5D416ECA3E0
 magnet:?xt=urn:btih:661EE5BD2D3E06096D5A7BFDD1B337B5BAEADC45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +465,8 @@ magnet:?xt=urn:btih:661EE5BD2D3E06096D5A7BFDD1B337B5BAEADC45
 ```bash
 magnet:?xt=urn:btih:502F83ADBFA49C806A2B78FC1C4E8CA96B9DDD1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +495,8 @@ magnet:?xt=urn:btih:502F83ADBFA49C806A2B78FC1C4E8CA96B9DDD1A
 magnet:?xt=urn:btih:A88A6E7927EE20AA7C154014E511EA54256F772C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +523,8 @@ VA - Man Ray (2001) Mixed, Compilation [FLAC|Lossless|tracks + .cue] <Downtempo>
 ```bash
 magnet:?xt=urn:btih:3ACC4D0B0A1287EA9214B5E51B34604DD4F6ADE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +553,8 @@ Disk Diet - Очистите жесткий диск
 magnet:?xt=urn:btih:332397AE82F88DE4329B6A262F62FCD1A02AE48D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +578,8 @@ magnet:?xt=urn:btih:332397AE82F88DE4329B6A262F62FCD1A02AE48D
 ```bash
 magnet:?xt=urn:btih:2BBB9F462E0A06A774B3E72215F11FACB702823A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +614,8 @@ Behind Blue Eyes & Krusseldorf - Kisses From The Clouds (2009) [MP3|192-320 kbps
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +640,8 @@ Disk Drill - программа, предназначенная для восс�
 ```bash
 magnet:?xt=urn:btih:CFB3091A0C0759BB952088E31E5ADEE6E452E89B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -651,6 +670,8 @@ Brian Bart - Hip-Hop Tribute To Pink Floyd (2007) [MP3|~245 кб/с (V0)]<Hip-ho
 magnet:?xt=urn:btih:3EEC5535056D49CF5EC77BDA5240BF6E2C66F696
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -674,6 +695,37 @@ MacX Video Converter Pro — видео конвертер все в одном,
 ```bash
 magnet:?xt=urn:btih:5B6FB5730E7E574EA50E73A85AB035154B6C07FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959818   (312266) от 26.11.2015
+
+Сергей Софрин | Проект «Асгард» (2012) [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_312266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая книга цикла «Легенды Фонарщика Лун».
+
+Между подводной лодкой Третьего Рейха, найденной у бере­гов Южной Америки, дневником Чарльза Виндхаузера, британ­ского масона, жившего в XIX веке, и ритуальным самоубий­ством на вершине пирамиды в Городе богов есть связь. А узнать об этом — равносильно смерти.
+Марат — мастер боевых искусств, и ему есть за что сражаться. (   Читать дальше...   )Жанр: Фантастика, МистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07F0113EA0E8252A56A9C049AFB8A471BD2B7716
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Planescape: Torment - одна из величайших игр в истори�
 magnet:?xt=urn:btih:E41B9B68CECD054DBA9A11DC0F26CCDD3E8BA480
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Out There: Omega Edition (2015) [Ru/Multi] (2.3) Repack R.G. Origami
 ```bash
 magnet:?xt=urn:btih:78EA7D57589FC3492409806D9B45CA4BB6C968BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ This Land Is My Land (2021) [Ru/Multi] (0.0.9.18436) License CODEX
 magnet:?xt=urn:btih:43F50B04C1A15976356034A7E6153C73ABE39F33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Fallen Legion — это напряженная ролевая игра, в ко
 ```bash
 magnet:?xt=urn:btih:0D38749BCB6C6157841EAD12D6742B3640E7BC2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ The Elder Scrolls V: Skyrim Special Edition — это улучшенное и �
 magnet:?xt=urn:btih:14770860E28199C1EF96E6C313876EEDBB59C670
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Masquerada: Songs and Shadows (2016) [Ru/Multi] (1.22) License GOG
 ```bash
 magnet:?xt=urn:btih:7718185DB1E71D08AC0E50F4C46A83027081A6A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Dungeon Defenders (2011) [Multi] (8.3/dlc) License PLAZA [Collection Edition]
 magnet:?xt=urn:btih:6337B80B82459736F9E9A681D6AAF2C148288257
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Nanotale - Typing Chronicles (2021) [Ru/Multi] (1.95) License GOG
 ```bash
 magnet:?xt=urn:btih:0D1B0EEDE5F6CBBCCB10597D758B5EBAEA1A2B3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ NieR Replicant ver.1.22474487139... (2021) [Multi] (7396468) License CODEX
 magnet:?xt=urn:btih:16F58A0DB0DEA001BB772EB66D92A91413C6CDE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Legends of Dawn – ролевая инди-игра, действие кото�
 ```bash
 magnet:?xt=urn:btih:263C3E912A0CEDE7F256760C0A690C34947D5615
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Dragon's Dogma: Dark Arisen (2016) [Ru/En] (1.0.0.18) Repack xatab (обновл
 magnet:?xt=urn:btih:184AEF1679B4E9D1FE168DFAF453841BA6CFF640
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Cyber Manhunt - это сюжетная игра-головоломка, в ко
 ```bash
 magnet:?xt=urn:btih:D8BF30D2009FC32BB21816157747E25446F93D2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Tyranny (2016) [Ru/Multi] (1.0.4.0048/dlc) SteamRip Let'sPlay [Overlord Edition]
 magnet:?xt=urn:btih:0F8D2A7576CB7EE858FF070EF7CF277DBC9CA016
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Megadimension Neptunia VIIR (2018) [Multi] (1.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:3B9CFF5F56C6ED1A2FBF13E14EB72A2A4BF177E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Dragon’s Dogma: Dark Arisen (2016) [Ru/En] (1.0/upd7/dlc) Repack =nemos=
 magnet:?xt=urn:btih:9C511B3FD09D00E3C47BE54D5A72C68876BCCAAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Dex - это двухмерный киберпанковский экшен с �
 ```bash
 magnet:?xt=urn:btih:E23F17C67DA54A6F339B51A2DAA79E3DE8D6E62C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Wintermoor Tactics Club (2020) [En] (2020-05-04/dlc) License GOG [Wintermost Edi
 magnet:?xt=urn:btih:3207359C2DE7C6F2A13049F2BFC1487860FC1B25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ DeathSpank Trilogy (2010-2011) [Ru/En] (1.0/dlc) Lossless Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:DDACA3D14B5B5CA16E2083B5F847615E591DC129
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ The Tenth Line - RPG консольного стиля с красочными �
 magnet:?xt=urn:btih:E8BF0D577A43BFC2E661A62AB68B9EEB459CEDEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Dungeon Encounters (2021) [Multi] (7222979) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:60D6DF891A1C5555ED40F1313FCF4C54AD810CBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Fallout [Ru] (P) 1997
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Dragon Ball Z: Kakarot – долгожданное продолжение се�
 ```bash
 magnet:?xt=urn:btih:94A62FCC72F31CDFB03D66EF932036375C7BDDA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Convoy - постапокалиптический тактический рпг-
 magnet:?xt=urn:btih:796E8567F9572DE247AB2FE7E6917B4409CED968
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Children of Zodiarcs - это сюжетное-ориентированная т
 ```bash
 magnet:?xt=urn:btih:726B975A9D64827EE1DAA6DC042441633CF11B96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Shadowrun: Dragonfall (2014) [Ru/En] (2.1.1.8) License GOG [Director's Cut]
 magnet:?xt=urn:btih:004DB6A928B98A34D216D80A9960A3A197EA93FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Blood Omen: Legacy of Kain (1996) [En] (1.0hf) License GOG
 ```bash
 magnet:?xt=urn:btih:5A833AB2AA4103E096C900ADD438DC6A4D31AEAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

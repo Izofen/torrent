@@ -1,3 +1,29 @@
+###  Публикация: 1061800   (443548) от 12.10.2016
+
+Александр Мазин | Кровь Севера (2016) [MP3,  Ironclad]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ульф Черноголовый, в прошлом – Николай Переляк, встает под знамя Ворона, знамя легендарного датского конунга Рагнара Лотброка. Великий поход свирепых норманов, разоривших Западную Европу, будут помнить и через тысячу лет. Но каково это – быть одним из героев-викингов, самых лучших и самых страшных воинов того времени? И что будет, когда на истерзанную междоусобными (   Читать дальше...   )Жанр: ФэнтезиИздательство: Аудиокнига своими рукамиПродолжительность: 11:01:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4F03378D2790508458F52495952F5B5738E0B98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1163981   (443766) от 08.09.2017
 
 Snowfallsdown | Мастер подземелий (2017) [MP3]
@@ -18,6 +44,8 @@ Snowfallsdown | Мастер подземелий (2017) [MP3]
 ```bash
 magnet:?xt=urn:btih:CBF63F67548675EA5772C3CF99409DFEB6989D6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:CBF63F67548675EA5772C3CF99409DFEB6989D6E
 magnet:?xt=urn:btih:D269DD34EEEDE02E74E3CA8E7AF4D189861B4B79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:D269DD34EEEDE02E74E3CA8E7AF4D189861B4B79
 ```bash
 magnet:?xt=urn:btih:151441F0E034598B446B25D9DDD639637583EC14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:151441F0E034598B446B25D9DDD639637583EC14
 magnet:?xt=urn:btih:634042A368955CF8F8CD14D41AE6732DEF6BCB92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:634042A368955CF8F8CD14D41AE6732DEF6BCB92
 ```bash
 magnet:?xt=urn:btih:800DA181DBD8D6DC98EE807E9D15FF1E38D83874
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:800DA181DBD8D6DC98EE807E9D15FF1E38D83874
 magnet:?xt=urn:btih:7E8EFDAF90DF5345CB796565A19AC52D5C65A0EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:7E8EFDAF90DF5345CB796565A19AC52D5C65A0EE
 ```bash
 magnet:?xt=urn:btih:7898CCC6275F37DC2B44A94C005602CD505C0C10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:7898CCC6275F37DC2B44A94C005602CD505C0C10
 magnet:?xt=urn:btih:81FFF1CDEF1DABF15531580F6D2B7A2F3C943CDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:81FFF1CDEF1DABF15531580F6D2B7A2F3C943CDE
 ```bash
 magnet:?xt=urn:btih:07C5103A791372D84B9E3201E42259D1FB136752
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:07C5103A791372D84B9E3201E42259D1FB136752
 magnet:?xt=urn:btih:A9FFF50B4F9C5FD47F7C49F74C7B1D858F74B9E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:A9FFF50B4F9C5FD47F7C49F74C7B1D858F74B9E7
 ```bash
 magnet:?xt=urn:btih:1A8E90BFCF23BD2CA90275AFC13B91E66C62BBFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:1A8E90BFCF23BD2CA90275AFC13B91E66C62BBFC
 magnet:?xt=urn:btih:E6C3E8037F551D4C1F67E4AD45B4F4AE84FE7DD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:E6C3E8037F551D4C1F67E4AD45B4F4AE84FE7DD7
 ```bash
 magnet:?xt=urn:btih:C4160BAE42AC715C2B648C060042109E958029A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:C4160BAE42AC715C2B648C060042109E958029A7
 magnet:?xt=urn:btih:9E592520D3339B2DF0270FD3FF863E56277B6BA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:9E592520D3339B2DF0270FD3FF863E56277B6BA8
 ```bash
 magnet:?xt=urn:btih:8F1CA0CA8FB41FC7E28846382793945F142EE482
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:8F1CA0CA8FB41FC7E28846382793945F142EE482
 magnet:?xt=urn:btih:ADC62F4EAB13EC4DF5A0539CCCD5CCD4396A512F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:ADC62F4EAB13EC4DF5A0539CCCD5CCD4396A512F
 ```bash
 magnet:?xt=urn:btih:EEE6D5F48EAF0554C06F6672208E9D6361F0A959
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:EEE6D5F48EAF0554C06F6672208E9D6361F0A959
 magnet:?xt=urn:btih:E87C0BFB7C84CB695DE27593C81D3B393DA2B382
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:E87C0BFB7C84CB695DE27593C81D3B393DA2B382
 ```bash
 magnet:?xt=urn:btih:2C2D9AC61B13611F142E3C786B4F0F3DBE93E69C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:2C2D9AC61B13611F142E3C786B4F0F3DBE93E69C
 magnet:?xt=urn:btih:3B509407322E06250AA5851A1DB8A6392068FB8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:3B509407322E06250AA5851A1DB8A6392068FB8E
 magnet:?xt=urn:btih:443EA0E76883E1A750DD92C515EF018A2FCC5DBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:443EA0E76883E1A750DD92C515EF018A2FCC5DBB
 ```bash
 magnet:?xt=urn:btih:02B03F172074BBCCF768345571643877DB531FEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:02B03F172074BBCCF768345571643877DB531FEA
 magnet:?xt=urn:btih:5285FD81D92348F764F7913D9C4202D196727794
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:5285FD81D92348F764F7913D9C4202D196727794
 ```bash
 magnet:?xt=urn:btih:426C7B37338849A6BA6D91F2ECEC9FBB957FFA46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,29 +676,7 @@ magnet:?xt=urn:btih:426C7B37338849A6BA6D91F2ECEC9FBB957FFA46
 magnet:?xt=urn:btih:2F2CAF0897C1491B915B60533BF60EA7441B3C91
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943057   (447224) от 04.10.2015
-
-Пол Бэттейджер | Ледяной ад (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это просто рассказ. Из антологии "Пиратское фэнтези". Когда-то, несколько лет назад планировалась коллективная работа, сборник. Он вроде так и не вышел, и я подумал, чего добру пылиться, рассказ хороший... В общем, те же пираты, но на льду. На Земле оледенение.Жанр: ФентезиПродолжительность: 00: 55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:423F001F47E8553B9469615AA57E21A52FB33518
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

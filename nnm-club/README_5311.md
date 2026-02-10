@@ -22,6 +22,8 @@ Crest Of Darkness - Project Regeneration (2000) [APE|Lossless|image + .cue] <Bla
 magnet:?xt=urn:btih:E4C430BD6A2437F4B87E8E861028D864BD0D92EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:E4C430BD6A2437F4B87E8E861028D864BD0D92EA
 ```bash
 magnet:?xt=urn:btih:B553BF58989090C5ACF05036A22B04A24A6CAEF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:B553BF58989090C5ACF05036A22B04A24A6CAEF4
 magnet:?xt=urn:btih:1FF2D293FA2E45B55513B9CBF09869659FB284D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:1FF2D293FA2E45B55513B9CBF09869659FB284D4
 magnet:?xt=urn:btih:29EBF640786ED2D5668B05E72A57273C0D89319A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:29EBF640786ED2D5668B05E72A57273C0D89319A
 ```bash
 magnet:?xt=urn:btih:72096042D93E1AA9473DF717D549175A8A1AD3AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Heimdalls Wacht - Ut De Graute Olle Tied-Deel Twee (Land Der Nebel) (2015) [FLAC
 magnet:?xt=urn:btih:95180B976BE3A0056C5AE25A60015CCFAEC76C7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ VA - This is Ablazing 2021 (Mixed & Selected by Rene Ablaze) (2021) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:A01A5330474CFDC8B1DA500C2A7CAE5B4F5988EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ The Yardbirds («Новобранцы») — группа образовалас
 magnet:?xt=urn:btih:3B86A87D8077AC17B3EBE079A646DDB7FE09D7FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ Balrog - Miserable Frame (2013) [FLAC|Lossless|image + .cue] <Power Metal, Thras
 ```bash
 magnet:?xt=urn:btih:FF86BBFB9FC0D3C5723F84CA739895BDDA389D82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ Roger Taylor - Outsider (2021) Japanese Edition [FLAC|Lossless|tracks + .cue] <R
 magnet:?xt=urn:btih:6028A8FB53599BB3CD66A4BD9692F0C3BE81721A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:6028A8FB53599BB3CD66A4BD9692F0C3BE81721A
 ```bash
 magnet:?xt=urn:btih:07A3713F7879118F9D23D9DFF2E3E5D95780F9EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +325,8 @@ ACDSee Photo Studio 6 v6.1.1536 [En]
 magnet:?xt=urn:btih:FAAA9DA34A031B11421272F7AF663A85102703C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:FAAA9DA34A031B11421272F7AF663A85102703C6
 ```bash
 magnet:?xt=urn:btih:207DCC257DF01A28F161A7AAB97EA00DF8A3753B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -354,6 +380,8 @@ Temple Of Baal - Mysterium (2015) [FLAC|Lossless|image + .cue] <Black Metal, Dea
 magnet:?xt=urn:btih:C9F98D183A93DBA74BCEE2E4B347FD2F92411CBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ magnet:?xt=urn:btih:C9F98D183A93DBA74BCEE2E4B347FD2F92411CBC
 ```bash
 magnet:?xt=urn:btih:7EE794039BECC43A7C4E401F337975B2A2C917F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +435,8 @@ magnet:?xt=urn:btih:7EE794039BECC43A7C4E401F337975B2A2C917F0
 magnet:?xt=urn:btih:7FC81150C233345A89DD0E1BD13BCD47EACD5FFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +464,8 @@ Project Creation - Floating World (2005) [FLAC|Lossless|image + .cue] <Progressi
 magnet:?xt=urn:btih:694E7AFE8D2DCF323865B7274D91E3574B61B08A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +490,8 @@ magnet:?xt=urn:btih:694E7AFE8D2DCF323865B7274D91E3574B61B08A
 magnet:?xt=urn:btih:3FB868A34987362110A0A700FD6205666A1BDE49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +515,8 @@ Topaz Mask AI 1.0.7 RePack (& Portable) by TryRooM [En]
 ```bash
 magnet:?xt=urn:btih:A339388EF3E40A6D49E657ACB8CF98B7AD375F3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +545,8 @@ magnet:?xt=urn:btih:A339388EF3E40A6D49E657ACB8CF98B7AD375F3B
 magnet:?xt=urn:btih:2A42E3B0B3A94924365D1C5BFBF8C7CB23B727ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +570,8 @@ Caramba Switcher - это новый, понятный автоматическ�
 ```bash
 magnet:?xt=urn:btih:216901968EB80DEA5353732B7BAD14B7C1D510B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +600,8 @@ Siouxsie And The Banshees - Once Upon A Time/The Singles (1981) Remaster, 1992, 
 magnet:?xt=urn:btih:3694C4FA0F112320775D160952279714EF07B1C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +629,8 @@ B1 - Post-Truth(   Читать дальше...   )Жанр: Progressive Rock, M
 magnet:?xt=urn:btih:246AEE83850E959DFF7A93C94D0DC7BF6B17688D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +655,8 @@ magnet:?xt=urn:btih:246AEE83850E959DFF7A93C94D0DC7BF6B17688D
 magnet:?xt=urn:btih:B26C52F3B258FE6162BD190E9B12377304BB5082
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +680,8 @@ magnet:?xt=urn:btih:B26C52F3B258FE6162BD190E9B12377304BB5082
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -659,6 +709,8 @@ Black Label Society - Doom Crew Inc. (2021) Japanese Edition [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:F046B508DEADC418B102627F427590EB95760955
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

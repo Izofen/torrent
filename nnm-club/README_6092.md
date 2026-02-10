@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:4D7F43278DFB4B2A32DDF224186D2F80129E8A25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Machikado Mazoku 2-Choume | The Demon Girl Next Door 2 | Городская дь
 ```bash
 magnet:?xt=urn:btih:FFC9ADAB9B8DB11EB6BC9B092E5E25B52E6F1D22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:FFC9ADAB9B8DB11EB6BC9B092E5E25B52E6F1D22
 magnet:?xt=urn:btih:30A1FB7E8D251233582F7B9030C2A71084688E0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:30A1FB7E8D251233582F7B9030C2A71084688E0C
 ```bash
 magnet:?xt=urn:btih:09CE47B955876EA5656AA91F2D835BF66666AF6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Hernan Cattaneo & Soundexile - Future Memories (2022) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:F83B46704EE07E2C9B6E1E4DCB0AAF22EA1FB81F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:F83B46704EE07E2C9B6E1E4DCB0AAF22EA1FB81F
 magnet:?xt=urn:btih:F2CCA92C8AC2564D4EE2F43A1E492961FA0FE126
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:F2CCA92C8AC2564D4EE2F43A1E492961FA0FE126
 ```bash
 magnet:?xt=urn:btih:D3A1B9CFD54C93BFE6C51389DD12D1B14AD97CBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ The Ides Of June - Rising Tide (2023) [MP3|320 Kbps] <Rock, Blues>
 magnet:?xt=urn:btih:BBB60B7C0432FB2317F1A825E78BE4E1D0148A70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ VA - A Tribute To Eric Clapton (2022) [FLAC|Lossless|image + .cue] <Blues Rock>
 magnet:?xt=urn:btih:CC9CA9171D4DCF7665DBCF97957FFC2DC96ED3B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:CC9CA9171D4DCF7665DBCF97957FFC2DC96ED3B0
 ```bash
 magnet:?xt=urn:btih:183DE9A09A0572E776DFA77EC3853DC9A9C99F88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ Kill Devil Hill - Seas Of Oblivion (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 magnet:?xt=urn:btih:72CBD509FCCB5B74278033BED33C07601CE39379
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:72CBD509FCCB5B74278033BED33C07601CE39379
 ```bash
 magnet:?xt=urn:btih:6E443BB9FBA4D1CAE30CD28E71238B58E5C04891
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:6E443BB9FBA4D1CAE30CD28E71238B58E5C04891
 magnet:?xt=urn:btih:55AB8868719A2A34FE621FB33A19968CFAFE74E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:55AB8868719A2A34FE621FB33A19968CFAFE74E2
 ```bash
 magnet:?xt=urn:btih:3AF8DDF9A22700CB2DD82CAC2A100F933D44A7B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 magnet:?xt=urn:btih:FA7504D61DC146E45BCB453FD7D8BA9615998E02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:FA7504D61DC146E45BCB453FD7D8BA9615998E02
 ```bash
 magnet:?xt=urn:btih:8FDF0DC737CE2DE34A1A6DE08E18330F732FB1BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ Sinheresy - Event Horizon (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Melod
 magnet:?xt=urn:btih:ECB9DBF1AD20BDFA26D41CD99832A782083FAAA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ Tesseract - War of Being (2023) [FLAC|Lossless|tracks + .cue] <Progressive Metal
 magnet:?xt=urn:btih:3D90168F3C0693E4CB38DBB287BB8B4B255DEEA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:3D90168F3C0693E4CB38DBB287BB8B4B255DEEA3
 ```bash
 magnet:?xt=urn:btih:6E072B6424BEE98DC5C1B6CD84F87DF8E868D467
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +538,8 @@ Kill City Kills - Escape Into The Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Ha
 magnet:?xt=urn:btih:CFCED5FF81F5A1E2B3B3CB5DEFD1E08982E84264
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +567,8 @@ VA - Хочу замуж (к\ф «Хочу замуж» официальный �
 magnet:?xt=urn:btih:7211B53D3667D85CCB7901567C997BC6BE28C99E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +592,8 @@ magnet:?xt=urn:btih:7211B53D3667D85CCB7901567C997BC6BE28C99E
 ```bash
 magnet:?xt=urn:btih:2CA7BB639030D387F23917D837DF97BE5A262DCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +622,8 @@ magnet:?xt=urn:btih:2CA7BB639030D387F23917D837DF97BE5A262DCA
 magnet:?xt=urn:btih:3E7A769F4770127590739DED30ABE44A2D29D8CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +647,8 @@ magnet:?xt=urn:btih:3E7A769F4770127590739DED30ABE44A2D29D8CA
 ```bash
 magnet:?xt=urn:btih:3907F1EEE096DFE3F52F89B9C637126E127B9B02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +674,8 @@ magnet:?xt=urn:btih:3907F1EEE096DFE3F52F89B9C637126E127B9B02
 magnet:?xt=urn:btih:EDE57DE7858FBC869963AE726494D9FA8A44A00C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ magnet:?xt=urn:btih:EDE57DE7858FBC869963AE726494D9FA8A44A00C
 ```bash
 magnet:?xt=urn:btih:8E0708CC5FB0D3281454305FC85EEF73196D8040
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

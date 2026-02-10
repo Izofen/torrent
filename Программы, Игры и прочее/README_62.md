@@ -19,6 +19,8 @@ Flud - это оптимальный torrent-клиент для Andoid-устр
 magnet:?xt=urn:btih:63D0E6881D8077862F9442891B00C4EBFFB1C6B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ City Navigator Thailand NT 2017.40 (Dual) [En/Th]
 ```bash
 magnet:?xt=urn:btih:5ECECF8F4AC54BD51EE855AEDC7BFE1B02A53DF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ PixelLab - отличный фоторедактор, в котором все �
 magnet:?xt=urn:btih:15010CFB307F61373378704A15FB1A4930CA711D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:15010CFB307F61373378704A15FB1A4930CA711D
 ```bash
 magnet:?xt=urn:btih:06BA16F5407398D3C602D04DD6992C9ED213746C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ WiFi Mouse Pro - Превратите ваше устройство в саму�
 magnet:?xt=urn:btih:998FE81C50F0335836DE44CB627D960510129344
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Coach Guitar — ПОТРЯСАЮЩИЙ новый способ научитьс
 ```bash
 magnet:?xt=urn:btih:5AAA0206611CDE9B502EE3DB5289ED48E94BC049
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:5AAA0206611CDE9B502EE3DB5289ED48E94BC049
 magnet:?xt=urn:btih:0119F0523B7800ADC58C1C4F89B80023ED36F728
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:0119F0523B7800ADC58C1C4F89B80023ED36F728
 ```bash
 magnet:?xt=urn:btih:1BA1F8FE4C609E62A1F18791EEA30FC4F6136C5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:1BA1F8FE4C609E62A1F18791EEA30FC4F6136C5E
 magnet:?xt=urn:btih:2C7DB026982223EA81B287B64E7E7438965B67AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Caustic 3 – редактор электронной электронной м�
 ```bash
 magnet:?xt=urn:btih:D09F5AB22E529E7D4E351770EA3CFF890836453F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:D09F5AB22E529E7D4E351770EA3CFF890836453F
 magnet:?xt=urn:btih:785C69CDF1B99E04B4E6185EE6A18228D8815F3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ Fabulous v3.65 Premium [En] - Motivate Me! Relax, Meditate, Sleep
 ```bash
 magnet:?xt=urn:btih:B9096711EB1627032C3F361FAE4B036E87056A08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ Genius Scan+ - PDF сканер v6.1.5 [Ru]
 magnet:?xt=urn:btih:F444C495A4B34A515DAA8182A641B14012A48275
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:F444C495A4B34A515DAA8182A641B14012A48275
 magnet:?xt=urn:btih:A97AF91933F8BECB097691E77253948EFC3B564F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ aCalendar+ Calendar & Tasks - Простой, но очень качествен
 ```bash
 magnet:?xt=urn:btih:610093FD82741C1927FFAA6DCDE88B32EFE6C40C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:610093FD82741C1927FFAA6DCDE88B32EFE6C40C
 magnet:?xt=urn:btih:7C6138694578716AF3EDC081543A04BFD03598A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ Garmin: AnaDigit Map 6.41 (Greek Anavasi TopoNavigator) [En]
 ```bash
 magnet:?xt=urn:btih:072BC30E4E3DDAE80AA836A35587B0C2BB88F67F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ Garmin: City Navigator Taiwan 2015.40 [Ch]
 magnet:?xt=urn:btih:BC6178640E1BD2B3BA8191CB989748C1AB7CC630
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:BC6178640E1BD2B3BA8191CB989748C1AB7CC630
 ```bash
 magnet:?xt=urn:btih:4E5CE135DE419595BDBB937793BC61D9B7A8FECF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ Lingvist: эффективное изучение языков v2.75.9 [Ru/Multi
 magnet:?xt=urn:btih:27E9B9C5E691D5B6DDC35F0DE0DFC2FE730F1C82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ My Alarm Clock Pro / Мой Будильник Про v2.8 [Ru/Multi] - Мног
 magnet:?xt=urn:btih:B61F54A56AB052E340961FB7506E6D031BC536BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ FilmoraGo - Free Video Editor 13.1.52(13152) Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2F32A0EB9FA106AB3E27A1503EF59BDC585603E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ Santa 3D Live Wallpaper 1.4.1 Premium [En]
 magnet:?xt=urn:btih:F018F9B638E3ED73BE6062D79A6E85670354229F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ Superlingo, ведущее в мире приложение для изучен�
 magnet:?xt=urn:btih:C533F255DAB4264D9AE5A99FF76C1366FE0EEDA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ GoneMAD Music Player v3.2.9 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:82E1461F96F52AB87E1BF89FBE7514E36ABE6075
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +689,8 @@ magnet:?xt=urn:btih:82E1461F96F52AB87E1BF89FBE7514E36ABE6075
 ```bash
 magnet:?xt=urn:btih:DD825644766EFA149EB0C017985FB9CC54E8735D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

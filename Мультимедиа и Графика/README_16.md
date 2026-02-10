@@ -20,6 +20,8 @@ Monkey's Audio — данная утилита предназначена для
 magnet:?xt=urn:btih:7C516A52730A02912289707244FC88F59DF57089
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Aiseesoft Filmai – приложение, использующее технол
 ```bash
 magnet:?xt=urn:btih:579E5A11F517A7DBDE2F285ED9D79671FA085B86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ JixiPix Premium Pack — сборник графических программ,
 magnet:?xt=urn:btih:EF9E24A1059B477BB1A353E599383F310E9DF2A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Focus Projects 6 Professional - это мощная и удобная в исп�
 ```bash
 magnet:?xt=urn:btih:C719CF4EE15DC13205432C5825C5B38B42B04DBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Franzis SHARPEN #5 Professional  — это программа для редак
 magnet:?xt=urn:btih:D2CD695F222019278D7A15E9460AAEB0AF2DF0C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Franzis ANALOG Professional — это высококачественное пр
 ```bash
 magnet:?xt=urn:btih:D52BDE0AF82A7E71CD4A1A319542ACD2380D603C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Chasys Draw IES — бесплатная программа, представл�
 magnet:?xt=urn:btih:BA154CD0E3C73234354516B4A627B8DF9C589A52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Franzis Emotion #2 Pro — это мощная программа для ред�
 ```bash
 magnet:?xt=urn:btih:E606898187B84686A5FE86F8B0CA8D7985B9251C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ OpenShot Video Editor - видеоредактор, позволяющий ле�
 magnet:?xt=urn:btih:7A5106A2B070F5D663E9C7E3EF01BAD742D8A3CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Madrona Labs - Studio Bundle 12.2024 VST, VSTi 3 (x64) [En]
 ```bash
 magnet:?xt=urn:btih:A946F35D2AAD414CFEC97A452709E4299145ED7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ VirtualDJ предоставляет больше возможностей, че
 magnet:?xt=urn:btih:E95150F87BFDD1079864D55334D4E451B6B459EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ BioTek 3 представляет собой настоящую эволюцию
 ```bash
 magnet:?xt=urn:btih:97914B7143D52F927223BB31608C312588CA1AB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Franzis COLOR Pro – это мощное программное обеспеч�
 magnet:?xt=urn:btih:BCB0282D66E224AE582CF686BB5E0A93C772097C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Opsix Native - это программный синтезатор, не похо
 ```bash
 magnet:?xt=urn:btih:EAAF29068C73B6CB787A963FA2B2171F29D256BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ S Doubler Pro — гибкий и простой в использовании �
 magnet:?xt=urn:btih:12B929095B1E45E569ADD131623A56BC74EEFCF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Yum Audio - Spread 1.7.1 VST 3, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:10BDD7C226D57C926C2B59975950960EF2B47CB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Franzis BLACK & WHITE Pro 8.25.04078 Portable by Spirit Summer [Multi]
 magnet:?xt=urn:btih:3BF00A2C02BA61E179191090D6808A106950CDB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Total Bundle - это набор всех плагинов FabFilter. С эти�
 ```bash
 magnet:?xt=urn:btih:2053863CC375023DD2F0E6A47C1ED27F6410BF01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ FliFlik KleanOut for Photo — мощный программный инстру�
 magnet:?xt=urn:btih:7A2438A19BCE3754080A19A576936A4FE6ADEC55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ AVS Video Software представляет собой комплект из т�
 ```bash
 magnet:?xt=urn:btih:2140A86DB77592678D87E47BA2777918C1F7DB51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ Movavi Photo Editor может всего в несколько кликов у�
 magnet:?xt=urn:btih:CE66B6908AA4C5CFF69362C2870EC3E942D29090
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ CUBE — это отмеченный наградами творческий в�
 ```bash
 magnet:?xt=urn:btih:8F4871F0A9037EABA2B5A44B73E6CB863BD0BCA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ Plugin Alliance - MEGA Bundle Effects 12.2024 VST, VST 3, AAX [En]
 magnet:?xt=urn:btih:EEF7286054F95BE7325B1E386AF32591A413ECF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Celemony - Melodyne Studio 5.4.2.006 STANDALONE, VST 3, AAX (x64) Repack by R2R 
 ```bash
 magnet:?xt=urn:btih:0E3595352197976BCBC9CBB268F5F08214F8BCEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Enscape 3D - достаточно мощное ПО для 3Д-рендерин�
 magnet:?xt=urn:btih:EDAC29338958F779986B5A93C5026547151E45F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Repro-1 погружается в прошлое для аналогового �
 ```bash
 magnet:?xt=urn:btih:2B17FAEBCEA1289B87DA6884AA9C3B4A2246D4D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

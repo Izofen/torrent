@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:DAE56D218B37A8EBC9B2627BFC5D85AF82FC2F42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:DAE56D218B37A8EBC9B2627BFC5D85AF82FC2F42
 magnet:?xt=urn:btih:806B24D76B951869A144CE7011D29C9741536161
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:806B24D76B951869A144CE7011D29C9741536161
 ```bash
 magnet:?xt=urn:btih:4784580522AE5DDEDAEA0A47F63DE2E88608DD52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ Stepik, Сергей Бубович | Менталист: искусство у�
 magnet:?xt=urn:btih:5E328A9F67BF183093D728653E155534984507EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Stepik, Сергей Бубович | Искусство чтения челов
 magnet:?xt=urn:btih:961339652A55D4E4B0249E685A6823A327B7333C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Mental Room, Сергей Бубович | Face Hunter. Чтение эмоци�
 ```bash
 magnet:?xt=urn:btih:82B93FB187DF422F75B164C1033E3E5DE3051378
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ Mental Room, Сергей Бубович | Стрессовая коммуник
 magnet:?xt=urn:btih:A51CC05BA4B1F8836783263BF776EC322C7BF6B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ Maude Hirst | "Путь к Любви к Себе": Медитационный �
 ```bash
 magnet:?xt=urn:btih:35E8E1B3D561A63538D77254B70C5A01767AA77D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ Susan Rubin | Библиотека для начинающих: Цветные �
 magnet:?xt=urn:btih:42636BD7777FD698792EA5C68531CD7A2C63A83A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Kerry Brooks | Яркие портреты цветными карандашам
 ```bash
 magnet:?xt=urn:btih:F4387BD4125DB62F2E7148B391D81C15471E8CF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ ZJ Humbach | Организация идеальной студии для ши�
 magnet:?xt=urn:btih:04DFE883E8499B1C23E03B65B1689F1A793BB9D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ Susan Rubin | Основы работы с цветными карандашам
 ```bash
 magnet:?xt=urn:btih:E94361A847446A425CAA79AE1A98FF73DDADBF99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ Katie Workman & Robin Miller | Готовим в будние вечера (2024
 magnet:?xt=urn:btih:9E3BAEB0976B7E5504C1EBBD53A6D7BBFC2AD2F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:9E3BAEB0976B7E5504C1EBBD53A6D7BBFC2AD2F3
 ```bash
 magnet:?xt=urn:btih:9C46098A4F271DF037C041561A148978B675BF25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ Robin Miller | Давай устроим поздний завтрак (2024) WE
 magnet:?xt=urn:btih:9D51C1CE972E47CEB2FBB77EC153DB5A8A932699
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ Craig Olson | Стрижка овец (2020) WEBRip [EN, RU]
 ```bash
 magnet:?xt=urn:btih:ACE172F5ACC3606ED39CA634A8135290F8110E73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ Sara Bendrick | Выходные в саду (2021) WEBRip [EN, RU]
 magnet:?xt=urn:btih:0F3EFDB693E87C6FC89483B72DC62AB2697E8E2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ Nicki LaFoille | Трикотажное ноу-хау + толстовка с к
 ```bash
 magnet:?xt=urn:btih:71459EA0E1E42211376FF88EA0F5E22B46AB419A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ Illene Sofranko | Консервирование 101 (2025) WEBRip [EN, RU]
 magnet:?xt=urn:btih:002DF1CD9B7FFEDD7760EFB3C220662CB4FB1B83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ Cynthia Nims | Французская домашняя кухня: Основн�
 ```bash
 magnet:?xt=urn:btih:471C1D2427B5C5B2F7C0B80E3EC438FBED7CF363
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ Gerardo Escamilla | Быстрый набросок (2025) WEBRip [EN, RU]
 magnet:?xt=urn:btih:586FAC75ADFA0B32FB92C422F57852F014A7DBDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ Udemy, Rick Crisci | Beginner Introduction to Containers, Docker, and Kubernetes
 ```bash
 magnet:?xt=urn:btih:118503B8C1E087BC744883036CDF104521F31355
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ Nicki LaFoille | Сумка с разделителем (2025) WEBRip [EN, RU]
 magnet:?xt=urn:btih:59DA4B0AF01AF665B6147055C7407AD32984A622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ Stuart Loughridge | Портретный эскиз (2023) WEBRip [EN, RU]
 ```bash
 magnet:?xt=urn:btih:8C57DE5F35DF2D1A14ACBDEC688E8A14E5DD755C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ George Vondriska | Создать невозможный стол (2024) WEBRip
 magnet:?xt=urn:btih:334B2F1939CECC59D2A371859DD3A3E92E4DE10B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Brenda K.B. Anderson | Вязаные носки (2023) WEBRip [EN, RU]
 ```bash
 magnet:?xt=urn:btih:316C5CDAC489D8B24A01C57A4F1E5ED71069B574
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

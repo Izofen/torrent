@@ -1,3 +1,30 @@
+###  Публикация: 1323515   (435645) от 04.09.2019
+
+Дмитрий Калинский | Женщина глазами мужчины: что мы от вас скрываем (2018) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435645.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данной книге мы с вами сосредоточимся на очень узкой – и столь важной для каждого мужчины и каждой женщины – сфере: как построить гармоничные отношения, как создать счастливый мир для двоих.
+В общем-то, в этой книге я не сделаю особых открытий – лишь объясню вам честно, чего мужчина хочет от женщины. Стоп! Открытия все-таки будут! Потому что я не просто выдам вам (   Читать дальше...   )Жанр: Психология, Социология, ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E77FE6E35F44DE01D6ADD80F599DB1145F4E7B21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1323516   (435652) от 04.09.2019
 
 Анна  Кирьянова | Маленькое счастье. Как жить, чтобы все было хорошо (2018) [FB2]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:072086360DE12E761F9080A0EC45FE3785C35ABE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:072086360DE12E761F9080A0EC45FE3785C35ABE
 magnet:?xt=urn:btih:6012A365E33093ED03B1D4DC93BC6BF0319BD253
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +97,8 @@ magnet:?xt=urn:btih:6012A365E33093ED03B1D4DC93BC6BF0319BD253
 ```bash
 magnet:?xt=urn:btih:D3289E33143BE5059B84B53107AF6D0AF2B26A28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +124,8 @@ magnet:?xt=urn:btih:D3289E33143BE5059B84B53107AF6D0AF2B26A28
 magnet:?xt=urn:btih:7499033CA93A29680F56EF25BAC2A654B9580D69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +150,8 @@ magnet:?xt=urn:btih:7499033CA93A29680F56EF25BAC2A654B9580D69
 magnet:?xt=urn:btih:AA23CB6566D5025A0137B81B355B49E8598E5112
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +175,8 @@ magnet:?xt=urn:btih:AA23CB6566D5025A0137B81B355B49E8598E5112
 ```bash
 magnet:?xt=urn:btih:427E1E7E2538843A04A0657F8239086EA70FFD38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +205,8 @@ magnet:?xt=urn:btih:427E1E7E2538843A04A0657F8239086EA70FFD38
 magnet:?xt=urn:btih:CBE195849D55AA738C624BD394AFD0188B43717D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +232,8 @@ magnet:?xt=urn:btih:CBE195849D55AA738C624BD394AFD0188B43717D
 magnet:?xt=urn:btih:46A0D801FDA8C58F4ADCAC2189500FC70CD53ABA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +257,8 @@ magnet:?xt=urn:btih:46A0D801FDA8C58F4ADCAC2189500FC70CD53ABA
 ```bash
 magnet:?xt=urn:btih:664229D3FFD342079C1C39474E82B4A27B359C32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +284,8 @@ magnet:?xt=urn:btih:664229D3FFD342079C1C39474E82B4A27B359C32
 magnet:?xt=urn:btih:EE5FBFFAEDB439B460B3219AD95CB5DE10F4DC09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +309,8 @@ magnet:?xt=urn:btih:EE5FBFFAEDB439B460B3219AD95CB5DE10F4DC09
 ```bash
 magnet:?xt=urn:btih:303950AF7F5084230976F651FFC08AA9C0FEB43A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +336,8 @@ magnet:?xt=urn:btih:303950AF7F5084230976F651FFC08AA9C0FEB43A
 magnet:?xt=urn:btih:EE6446FF5C9189DA9E5CD9AE1C8F8707E4CBDAAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +362,8 @@ magnet:?xt=urn:btih:EE6446FF5C9189DA9E5CD9AE1C8F8707E4CBDAAD
 ```bash
 magnet:?xt=urn:btih:8F558CA31D69B1964B4030BADE1768288A21498B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +391,8 @@ magnet:?xt=urn:btih:8F558CA31D69B1964B4030BADE1768288A21498B
 magnet:?xt=urn:btih:921DE889FE4098711E1001EA21223BE829720BC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +416,8 @@ magnet:?xt=urn:btih:921DE889FE4098711E1001EA21223BE829720BC4
 ```bash
 magnet:?xt=urn:btih:B8F14507F51A76767811E2713183F0C2E7C3DD95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +443,8 @@ magnet:?xt=urn:btih:B8F14507F51A76767811E2713183F0C2E7C3DD95
 magnet:?xt=urn:btih:C3E5202233CA949650D694FD844B86241CA2641D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +468,8 @@ magnet:?xt=urn:btih:C3E5202233CA949650D694FD844B86241CA2641D
 ```bash
 magnet:?xt=urn:btih:10DFDAA1DA262BC77129EF8044BEA3467768FA38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +495,8 @@ magnet:?xt=urn:btih:10DFDAA1DA262BC77129EF8044BEA3467768FA38
 magnet:?xt=urn:btih:FA1F0AB0460FC23B6465D218FE2D09C4C720CD57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +520,8 @@ magnet:?xt=urn:btih:FA1F0AB0460FC23B6465D218FE2D09C4C720CD57
 ```bash
 magnet:?xt=urn:btih:493FED92EF159DE34C36DD4ED9BA92FF1E6490E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +547,8 @@ magnet:?xt=urn:btih:493FED92EF159DE34C36DD4ED9BA92FF1E6490E5
 magnet:?xt=urn:btih:38CB6B74D4ACFD787CBF3D269FA36723E965C5FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +572,8 @@ magnet:?xt=urn:btih:38CB6B74D4ACFD787CBF3D269FA36723E965C5FB
 ```bash
 magnet:?xt=urn:btih:047BD247A6A112138E51BCB06D51E21B9F0C7E01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +599,8 @@ magnet:?xt=urn:btih:047BD247A6A112138E51BCB06D51E21B9F0C7E01
 magnet:?xt=urn:btih:45BE3B1DE1B6E93167E194F131D8932455EAA2DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +624,8 @@ magnet:?xt=urn:btih:45BE3B1DE1B6E93167E194F131D8932455EAA2DE
 ```bash
 magnet:?xt=urn:btih:1B4D9E7FE1935149B70EB720790DD9168142BEAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +653,8 @@ magnet:?xt=urn:btih:1B4D9E7FE1935149B70EB720790DD9168142BEAD
 magnet:?xt=urn:btih:4CF482C5F58638057E8E93128FD0C0B419AECC50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,29 +681,7 @@ magnet:?xt=urn:btih:4CF482C5F58638057E8E93128FD0C0B419AECC50
 magnet:?xt=urn:btih:CB4284A38383DF57A2A17799A6BACC1AEB54B4B1
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944976   (437713) от 08.10.2015
-
-Е. Левашева (ред.) | Как грамотно приготовить мясо (2015) [FB2, RTF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для вашего удобства книга начинается с главных правил приготовления мяса, которые помогут в работе. Далее вас ждут вкусные и вполне доступные рецепты по типам мясных блюд. Четкие инструкции, точный перечень ингредиентов, указание времени приготовления - обо всем этом позаботились мы, а вам остается только соблюдать рекомендации и наслаждаться процессом.Жанр: КулинарияФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:448FA55AE2EC6469FE132318146333086AEDA7D5
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

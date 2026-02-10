@@ -1,27 +1,3 @@
-###  Публикация: 521377   (626743) от 11.07.2012
-
-Киборг / Cyborg (1989) HDTVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мрачное будущее... Соединенные Штаты Америки лежат в руинах. Анархия, голод, геноцид... Следом пришла тихая смерть - неведомая чума стирает население всей планеты. Выжившие ученые в Атланте подобрались вплотную к открытию противоядия. Но им катастрофически не хватает данных. То, что им необходимо есть в Нью-Йорке, но туда нет пути. Весь мир между крохотными клочками цивилизации превратился в отравленную пустыню, населенную лютыми сворами отморозков. Выжить в ней может только существо с рефлексами хищника, молниеносной реакцией и отточенными как меч самурая навыками боя!Жанр: Фантастика, БоевикРежиссер: Альберт ПьюнАктеры: Жан-Клод Ван Дамм, Дебора Рихтер, Винсент Клин, Алекс Дэниелс, Дэйл Хэддон, Блэйз Лунг, Ральф Мёллер, Хейли Петерсон, Джексон «Скала» Пинкни, Джэнис ГрейсерПродолжительность: 01:26:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E296A0E256BC8ABE1F9C9A3EF631769FA9A5740A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909081   (627044) от 17.06.2015
 
 На альпийских лугах тишь да благодать / Auf der Alm da gibt's koa Sund (1974) DVDRip [H.264] [АVO]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:E296A0E256BC8ABE1F9C9A3EF631769FA9A5740A
 ```bash
 magnet:?xt=urn:btih:27C97CCCF16CF77A8A63F2F19E495E25DDDE7036
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:27C97CCCF16CF77A8A63F2F19E495E25DDDE7036
 magnet:?xt=urn:btih:C385A59C224CDDB3030FBC15AC89E6B9FD40DD69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:C385A59C224CDDB3030FBC15AC89E6B9FD40DD69
 ```bash
 magnet:?xt=urn:btih:805731CD5CCFBCB9F336531823BCBC0D013661CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:805731CD5CCFBCB9F336531823BCBC0D013661CA
 magnet:?xt=urn:btih:F1166C235AEBED40AC60D1880E1E99A30EB643C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:F1166C235AEBED40AC60D1880E1E99A30EB643C9
 ```bash
 magnet:?xt=urn:btih:41C7F027441513C022C882A441D725AB31B7407F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:41C7F027441513C022C882A441D725AB31B7407F
 magnet:?xt=urn:btih:9C99F99DC1E90072CE9909F5A9F0092311D05702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +176,8 @@ magnet:?xt=urn:btih:9C99F99DC1E90072CE9909F5A9F0092311D05702
 magnet:?xt=urn:btih:28EE10B23DB3DD25C88386BCD6A510C3A005C121
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:28EE10B23DB3DD25C88386BCD6A510C3A005C121
 ```bash
 magnet:?xt=urn:btih:E0845EFD69284943C526C3FE9929F673D15F9331
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +230,8 @@ magnet:?xt=urn:btih:E0845EFD69284943C526C3FE9929F673D15F9331
 magnet:?xt=urn:btih:6614B126E29F4B1872BA7A5443D67E45D1A9607F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +255,8 @@ magnet:?xt=urn:btih:6614B126E29F4B1872BA7A5443D67E45D1A9607F
 ```bash
 magnet:?xt=urn:btih:67E8A24ACFAFCD3267D30621A01413AD7B07AF41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +284,8 @@ magnet:?xt=urn:btih:67E8A24ACFAFCD3267D30621A01413AD7B07AF41
 magnet:?xt=urn:btih:3FA787918830A028793C30B88999B1B232110CC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +310,8 @@ magnet:?xt=urn:btih:3FA787918830A028793C30B88999B1B232110CC0
 magnet:?xt=urn:btih:BD567CFB5778116143D66EE2A046A43B728435F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +335,8 @@ magnet:?xt=urn:btih:BD567CFB5778116143D66EE2A046A43B728435F5
 ```bash
 magnet:?xt=urn:btih:41B0C735B8944D42ACF192258A2273989E708060
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +363,8 @@ magnet:?xt=urn:btih:41B0C735B8944D42ACF192258A2273989E708060
 magnet:?xt=urn:btih:CA72DACC34BF03EC375EF9F55260A84CDCC27D6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +388,8 @@ magnet:?xt=urn:btih:CA72DACC34BF03EC375EF9F55260A84CDCC27D6B
 ```bash
 magnet:?xt=urn:btih:5F3664921B934F746A3CC273DDE14490322838E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +415,8 @@ magnet:?xt=urn:btih:5F3664921B934F746A3CC273DDE14490322838E9
 magnet:?xt=urn:btih:569D5A5B4AF4E8538CEEA8A3492EA058F74B9F4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +440,8 @@ magnet:?xt=urn:btih:569D5A5B4AF4E8538CEEA8A3492EA058F74B9F4E
 ```bash
 magnet:?xt=urn:btih:7A56276F71290802A975E7A5E89914637827571B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +467,8 @@ magnet:?xt=urn:btih:7A56276F71290802A975E7A5E89914637827571B
 magnet:?xt=urn:btih:5DC1EA3AD6A0289E8A8803420C7BE093804B32D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +492,8 @@ magnet:?xt=urn:btih:5DC1EA3AD6A0289E8A8803420C7BE093804B32D4
 ```bash
 magnet:?xt=urn:btih:6260EFB18D4B2BE6E01714DE9AFF356EF26D53FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +520,8 @@ magnet:?xt=urn:btih:6260EFB18D4B2BE6E01714DE9AFF356EF26D53FC
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +545,8 @@ magnet:?xt=urn:btih:6260EFB18D4B2BE6E01714DE9AFF356EF26D53FC
 ```bash
 magnet:?xt=urn:btih:4B1715C5397CCB6F344EB7502A5F4DA77026D2A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +572,8 @@ magnet:?xt=urn:btih:4B1715C5397CCB6F344EB7502A5F4DA77026D2A6
 magnet:?xt=urn:btih:BC085E1F6D7479ED45735E4B5380768417263349
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +597,8 @@ magnet:?xt=urn:btih:BC085E1F6D7479ED45735E4B5380768417263349
 ```bash
 magnet:?xt=urn:btih:347D16FD1D6D26A069DB0CA1E4736FEAAFA7778E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +625,8 @@ magnet:?xt=urn:btih:347D16FD1D6D26A069DB0CA1E4736FEAAFA7778E
 magnet:?xt=urn:btih:CAB9D02500FB6A141CEC5BDBAC0CF73E76593D25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +650,34 @@ magnet:?xt=urn:btih:CAB9D02500FB6A141CEC5BDBAC0CF73E76593D25
 ```bash
 magnet:?xt=urn:btih:67147A7B3075A15C1D0DB8D791E79E9D74FB864D
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228816   (631821) от 03.06.2018
+
+Без четверти два до нашей эры / Deux heures moins le quart avant Jesus-Christ (1982) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цезарь помпезно готовится принять Клеопатру, в то время как жители его страны находятся на грани полной нищеты.Производство: Франция/ Carthago Films S.a.r.l., Renn ProductionsЖанр: КомедияРежиссер: Жан ЯннАктеры: Колюш, Мишель Серро, Жан Янн, Франсуаза Фабиан, Мишель Оклер, Мими Кутелье, Дарри Коул, Поль Пребуа, Даниэль Эмильфорк, Андре ПуссПеревод: Профессиональный (многоголосый закадровый)Субтитры: Русские (на сцены без перевода)Продолжительность: 01:33:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A69A6CB53BF3F0632BE8D06923FA28ECAAC936D2
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 957549   (326705) от 18.11.2015
-
-Kylie Minogue - Kylie Christmas (2015) Deluxe Edition [FLAC|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's the Most Wonderful Time of the Year
-02. Santa Claus Is Coming to Town (feat. Frank Sinatra)
-03. Winter Wonderland
-04. Christmas Wrapping (with Iggy Pop)(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36C52C9DA35302738C4CB82EF7261650DB3EA68E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957635   (326706) от 18.11.2015
-
-iPulse 3.0.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326706.jpg" />
-</div>
-
-
-###  Подробнее
-
-iPulse - Утилита для мониторинга работы Mac OS.
-Благодаря настраиваемым датчикам iPulse пользователь сможет следить за нагрузкой на ЦП, использованием оперативной памяти, свободным местом на жестких дисках, сетевой активностью и другими показателями системы. Однако, в отличие от других аналогичных приложений iPulse занимает совсем немного места на рабочем столе, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 ноября 2015Разработчик: The IconfactoryПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D841C1D7370F3CD35742EDA3AF78062B1038074
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957338   (326707) от 18.11.2015
 
 Kory Caudill - Tree of Life (2015) [OGG|452-545 кб/с]<New Age, Neoclassical, Solo Piano>
@@ -73,6 +21,8 @@ Kory Caudill - Tree of Life (2015) [OGG|452-545 кб/с]<New Age, Neoclassical, 
 ```bash
 magnet:?xt=urn:btih:683237595ADDAD846838D5BD20D4D2CB701BF236
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +51,8 @@ The Warrior Kings - The Warrior Kings (2012) [MP3|320 кб/с]<Blues rock, Hard 
 magnet:?xt=urn:btih:3CCDAD96E5E92319C2ED84F79F97E83F76CA51E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +80,8 @@ VA - Shogun Audio Presents: 2015 (2015) [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:9566C5AF2A91CC56B2FE019B12993CFD43394C98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +105,8 @@ magnet:?xt=urn:btih:9566C5AF2A91CC56B2FE019B12993CFD43394C98
 ```bash
 magnet:?xt=urn:btih:4DED1ADE8EA1361D3292B83C91B0A27091C82394
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -179,6 +135,8 @@ Dirty Sound Magnet - What Lies Behind (2012) [MP3|320 кб/с]<Blues rock, Hard 
 magnet:?xt=urn:btih:F5B84F58E208097C984541658042D261C2B8C32B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -206,6 +164,8 @@ VA - A Smile and a Tear Best Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillo
 magnet:?xt=urn:btih:B64DE6E9B0AF061F1AAEE24BEE28B484B0D97541
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +189,8 @@ magnet:?xt=urn:btih:B64DE6E9B0AF061F1AAEE24BEE28B484B0D97541
 ```bash
 magnet:?xt=urn:btih:FA8C8111F0A538F7AA2888A17F5A3A98243BBDD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +216,8 @@ Skype - бесплатная программа для текстового, г�
 magnet:?xt=urn:btih:CFEEA3696281F7952FCF3BAF27E0E14234C4E18B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +241,8 @@ magnet:?xt=urn:btih:CFEEA3696281F7952FCF3BAF27E0E14234C4E18B
 ```bash
 magnet:?xt=urn:btih:B1F885F0C4DB1A3BBB73E87C70E72E8A960EE08D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +270,8 @@ magnet:?xt=urn:btih:B1F885F0C4DB1A3BBB73E87C70E72E8A960EE08D
 magnet:?xt=urn:btih:673984112787F42E6DEA401B9B99B7B69343EAC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +295,8 @@ magnet:?xt=urn:btih:673984112787F42E6DEA401B9B99B7B69343EAC8
 ```bash
 magnet:?xt=urn:btih:461A89EFAB1A1954B27485E8D168CA6891FF73F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +325,8 @@ Ferry Tayle - The Wizard (Extended & Remixed) (2015) [FLAC|Lossless|WEB-DL]<Tran
 magnet:?xt=urn:btih:D62A0B4D3E8BB5BACCAB89B39848E2D0F5253858
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +353,8 @@ DJ JIM - Halloween (2014-2015) (Обновляемая) [MP3|320 kbps]<Electro H
 ```bash
 magnet:?xt=urn:btih:03AFF3D3D4ECCEBA1C9DFCDA613CFB30A8EC9699
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +383,8 @@ VA - The Dark Side of Trance - Day Of The Dead Vol. 2 (2015) [FLAC|Lossless|WEB-
 magnet:?xt=urn:btih:B9E4A1E6F124140479AB14F42460DB778266D483
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +412,8 @@ Crimeanization - Without Someone - (2011) [MP3|320 кб/с]<New Age, Ambient>
 magnet:?xt=urn:btih:ED0E01B19C303D586C07F50124E01980C747063A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +438,8 @@ Hoyaa - Losing Precious Moments (2015) Single [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:3F78A75A8E620757CADE563754E0DD912521B2A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +463,8 @@ magnet:?xt=urn:btih:3F78A75A8E620757CADE563754E0DD912521B2A9
 ```bash
 magnet:?xt=urn:btih:82389211F0778305D0A1461108FF61D29A36C4A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +492,8 @@ Megadeth - Fatal Illusion (2015) Single [MP3|320 кб/с]<Heavy Metal, Thrash Me
 magnet:?xt=urn:btih:73FE7FD15F1E20E6174FC986636B7294143CEB46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +520,8 @@ magnet:?xt=urn:btih:73FE7FD15F1E20E6174FC986636B7294143CEB46
 magnet:?xt=urn:btih:209B2E5AADBF5104333A1075D60A78CA572A7014
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +545,8 @@ magnet:?xt=urn:btih:209B2E5AADBF5104333A1075D60A78CA572A7014
 ```bash
 magnet:?xt=urn:btih:DBED3529A8B8368CCEF66574FB5A433F5B1CD554
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +573,8 @@ Andrea Ribeca feat. Lokka Vox - Cyberfly (2015) Single [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:B7C17670DD4C30B3D6796C92445DB6153F411A3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +603,8 @@ Black Ferns - Black Ferns (2015) [OGG|448-488 кб/с]<Alternative Rock, Psyched
 magnet:?xt=urn:btih:E86FE00BB8DD7A034D247D86A6FB4E56B0E47132
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +632,8 @@ magnet:?xt=urn:btih:E86FE00BB8DD7A034D247D86A6FB4E56B0E47132
 magnet:?xt=urn:btih:01F8EE701893E0732A62D666D70B4F8D3CD2AE9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +658,66 @@ Madwave - Yukatan (2015) Single [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:9FCFC836CE59BAD3F775378C016152EC47F56356
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957621   (326769) от 18.11.2015
+
+VA - Bursting Out Volume 4 (2015) EP [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space Raven - Cosmologia (Original Mix) (06:04)
+02. Sylvermay - Redlight (Original Mix) (06:02)
+03. JTR - Ziggurat (Original Mix) (08:15)
+04. Brian Kuhn - Deal With It (Original Mix) (05:50)Жанр: TranceПродолжительность: 00:26:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B383DA106B4E6C0F576C9E9177FA77278B7CBAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957159   (326770) от 18.11.2015
+
+VA - White Chill Out Vol 2 (2015) [MP3|320 кб/с]<Lounge, Chill Out, New Age>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jason Cabrera - Red Apple (03:10)
+02. Formentera Bros - Sleep (The Beach Mix) (05:20)
+03. Danny Hay - Tendency (Cosmic Light Mix) (05:53)
+04. Nuvolaris - Disconnect Your Mind (Ars Domina Mix) (05:27)(   Читать дальше...   )Производство: Feel The VibeЖанр: Lounge, Chill Out, New AgeПродолжительность: 02:05:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25AF5014AD5C91132A21FD4D4EA4F201551981F2
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

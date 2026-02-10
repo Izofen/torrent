@@ -19,6 +19,8 @@ Seal 1.10.0-beta.4 [Ru/Multi]
 magnet:?xt=urn:btih:FF1823B50D36960D75BC7882450EDE893D2B1E21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ LuLu - это бесплатный брандмауэр с открытым ис
 ```bash
 magnet:?xt=urn:btih:08F4924780521F5BD73FBB2C2E352355F897F6BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ HDCleaner – многофункциональный программный пр
 magnet:?xt=urn:btih:3BDC2B68802E2D63A9D0D9FF2BC7CEF5C769A007
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Duolingo: изучай языки 5.115.4 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:ADC895E084C66AEC517C217C896198745CFE7C1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ OneCommander V3 — это современный файловый менедж�
 ```bash
 magnet:?xt=urn:btih:B1555DF6B2BBA19F42698D2F1BFE7CD2554365A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Macrium Reflect обладает интуитивно понятным поль�
 magnet:?xt=urn:btih:2AFCB1E7F938F553FB74024FAC010B979DC7E115
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Mozilla Thunderbird –  легкая и безопасная бесплатна
 ```bash
 magnet:?xt=urn:btih:0C611DF2461894131B30EAAC8BF87B6B2BF3F050
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:0C611DF2461894131B30EAAC8BF87B6B2BF3F050
 magnet:?xt=urn:btih:9213B227C81B89622C171D83A980623ACDF4885A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ TheAeroClock - это уникальные настольные часы с пр
 ```bash
 magnet:?xt=urn:btih:C8F0263C76E648BF8B08ECBF1ACC7EC1D401E055
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:C8F0263C76E648BF8B08ECBF1ACC7EC1D401E055
 magnet:?xt=urn:btih:473FB2869F5A825751B52EF9786380D10A19B5C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Topaz A.I. Gigapixel — это первое и единственное при�
 ```bash
 magnet:?xt=urn:btih:67E6D2396390D9EE1E75660DB0842EF57AEEF55E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Movavi Slideshow Maker – это простая и удобная програ�
 magnet:?xt=urn:btih:F0D06EE36D40E6C357D909003D2551AD385420C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Wise Disk Cleaner 10.1.4.760 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7CC308FC02291772F28C3750939A24BFDAF772C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:7CC308FC02291772F28C3750939A24BFDAF772C8
 magnet:?xt=urn:btih:6BAD6F89E9DC08B1FC061FD4C263D076BBFDC68C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Attribute Changer - простенькая утилита для удобног�
 ```bash
 magnet:?xt=urn:btih:894EBCA0CED0179BD82FC6D0B5BBC75B172E1BE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Total Commander Extended - это x86 и x64 версии Total Commander в о�
 magnet:?xt=urn:btih:F50B1CDE8B187236BB5FB3CDECEBCC6634490BE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Cabela's Big Game Hunter: Trophy Bucks отправит вас поохотит�
 ```bash
 magnet:?xt=urn:btih:9E768E6C924F3E19B0E32BD94FDEC021913E9BBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Kengan Ashura | Кэнган Асура 2 [2019, Web, 12 эп.] WEBRip 1080p raw
 magnet:?xt=urn:btih:8E2E09ED6C393D0F8BF3F0B6FA60FF5845BB87C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:8E2E09ED6C393D0F8BF3F0B6FA60FF5845BB87C8
 ```bash
 magnet:?xt=urn:btih:7416E95FC6BA48CD9A90837D2A429DC23EDB34F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ Aiseesoft iPhone Unlocker for Mac 2.0.18 [En]
 magnet:?xt=urn:btih:9BEAF1023E0B6FCB09374BC341FF813CF8DBE7E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Q-Dir - бесплатный, отличный файловый менеджер
 ```bash
 magnet:?xt=urn:btih:8FAA512EFFB4E3DB411F8688549E59107367F283
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ MusicBrainz Picard - простая в использовании програм
 magnet:?xt=urn:btih:8C53EEAF87D361C11365FF529BABFDAC8866E458
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ System Ninja - бесплатная утилита для быстрого и а
 ```bash
 magnet:?xt=urn:btih:A639C9D9F6C772CE9FFB604F2F5AAF2A6524AF90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ Frolomuse - бесплатный музыкальный плеер, с мощн�
 magnet:?xt=urn:btih:FA95900799867662F2AA976C68DBD6FF9EFFAE64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ VN - это видеоредактор предназначенный специ
 ```bash
 magnet:?xt=urn:btih:E408C43C544466203E75949DCBFFAF3A5621EB4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +674,8 @@ Macrium Reflect Free обладает интуитивно понятным по
 ```bash
 magnet:?xt=urn:btih:709A53E427620C9EBB92949DBBE3138C3BD97654
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

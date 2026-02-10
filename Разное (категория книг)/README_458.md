@@ -1,3 +1,29 @@
+###  Публикация: 1030218   (675886) от 29.06.2016
+
+Дэниел Пинк | Новый мозг (2014) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_675886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга для всех, кто хочет добиться успеха и уверенно себя чувствовать в век интуиции и творческого мышления; для предпринимателей и лидеров делового мира, которые хотят сохранить и увеличить свой карьерный успех; для родителей, которые хотят подготовить своих детей к будущему, и для всех тех, чьи способности не были полностью востребованы в век аналитического (   Читать дальше...   )Жанр: Самосовершенствование, личностный рост, практическая психологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E6CA74D10277D1B8CC37E58A8F6B007A3322D88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030025   (675888) от 29.06.2016
 
 Ауд Далсегг, Ингер Вессе | На крючке. Как разорвать круг нездоровых отношений (2016) [EPUB]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:73C0ED420E7207D56886157934D50A2D6A79943D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:73C0ED420E7207D56886157934D50A2D6A79943D
 ```bash
 magnet:?xt=urn:btih:2E0300E2010660D22B3F1DCB9662BF6120707496
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +101,8 @@ magnet:?xt=urn:btih:2E0300E2010660D22B3F1DCB9662BF6120707496
 magnet:?xt=urn:btih:98EE99109142B19930C481415C02E26CEA4C1C0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:98EE99109142B19930C481415C02E26CEA4C1C0F
 ```bash
 magnet:?xt=urn:btih:39903E87BAA21103E9D073014930D811CD6CA48B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +154,8 @@ magnet:?xt=urn:btih:39903E87BAA21103E9D073014930D811CD6CA48B
 magnet:?xt=urn:btih:AAE478F6070EA0F5F26490C1E6C9E97ACC408BFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:AAE478F6070EA0F5F26490C1E6C9E97ACC408BFB
 magnet:?xt=urn:btih:0627DA5516348A091506A4546A00C066BB26AB18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ Ryan George | Freeweight Training Anatomy (2016) [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:8D7A9E7F0EB5B75198F29A4747E1B6E0EE7B5BE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +233,8 @@ magnet:?xt=urn:btih:8D7A9E7F0EB5B75198F29A4747E1B6E0EE7B5BE0
 magnet:?xt=urn:btih:0E211449AFD5058FDD9E520ADE847B93331CD458
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +259,8 @@ magnet:?xt=urn:btih:0E211449AFD5058FDD9E520ADE847B93331CD458
 ```bash
 magnet:?xt=urn:btih:938D70ECB83D3517F9B97568BDC73EF97131674C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +288,8 @@ magnet:?xt=urn:btih:938D70ECB83D3517F9B97568BDC73EF97131674C
 magnet:?xt=urn:btih:CB899C7789F3823FCD7466295A1FEB22591F60B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +313,8 @@ magnet:?xt=urn:btih:CB899C7789F3823FCD7466295A1FEB22591F60B1
 ```bash
 magnet:?xt=urn:btih:08ADF6159F15794181BB11EA018745D33EABCC0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +341,8 @@ magnet:?xt=urn:btih:08ADF6159F15794181BB11EA018745D33EABCC0C
 magnet:?xt=urn:btih:310A0B9E1509E16DB343AACDF5613196A780593F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +367,8 @@ magnet:?xt=urn:btih:310A0B9E1509E16DB343AACDF5613196A780593F
 ```bash
 magnet:?xt=urn:btih:62A26BD1691812786922EE0A8D747C18BB6423D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +395,8 @@ magnet:?xt=urn:btih:62A26BD1691812786922EE0A8D747C18BB6423D8
 magnet:?xt=urn:btih:7C72F77EDB04212D1E0BC251CCA05D639104652A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +420,8 @@ magnet:?xt=urn:btih:7C72F77EDB04212D1E0BC251CCA05D639104652A
 ```bash
 magnet:?xt=urn:btih:4F61D006F59DF7E31DCB4BCFBDBA43BF2F266723
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +447,8 @@ magnet:?xt=urn:btih:4F61D006F59DF7E31DCB4BCFBDBA43BF2F266723
 magnet:?xt=urn:btih:1D8A3D1DBBDEDF56CFBF3E5AD150592E0C3E78AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +473,8 @@ magnet:?xt=urn:btih:1D8A3D1DBBDEDF56CFBF3E5AD150592E0C3E78AE
 magnet:?xt=urn:btih:2FDAA66BC8200BA7A25EC258CD94990301D3FDC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +498,8 @@ magnet:?xt=urn:btih:2FDAA66BC8200BA7A25EC258CD94990301D3FDC7
 ```bash
 magnet:?xt=urn:btih:D7CF956F2EB482D599B1AC1A3E74B3225B20652B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +526,8 @@ magnet:?xt=urn:btih:D7CF956F2EB482D599B1AC1A3E74B3225B20652B
 magnet:?xt=urn:btih:ADFF5EB07DEC803AB79D888317BFA057B6C6A41A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +552,8 @@ magnet:?xt=urn:btih:ADFF5EB07DEC803AB79D888317BFA057B6C6A41A
 magnet:?xt=urn:btih:ED37595CE2943A6E75AC487AB498719A5C256BDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +577,8 @@ magnet:?xt=urn:btih:ED37595CE2943A6E75AC487AB498719A5C256BDC
 ```bash
 magnet:?xt=urn:btih:5BE93DD0F3388FA40C91651A8FC8CE30F5AE0F7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +605,8 @@ magnet:?xt=urn:btih:5BE93DD0F3388FA40C91651A8FC8CE30F5AE0F7C
 magnet:?xt=urn:btih:4246C277845A7EB5BEA2AAB77E53454EA752A281
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:4246C277845A7EB5BEA2AAB77E53454EA752A281
 magnet:?xt=urn:btih:12320E5743D6E269C49EEE8926054A50953B6ECF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +656,8 @@ magnet:?xt=urn:btih:12320E5743D6E269C49EEE8926054A50953B6ECF
 ```bash
 magnet:?xt=urn:btih:2BB78BD08E8A1FF58C59AD321B7921B6CF8A3EC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,29 +684,7 @@ magnet:?xt=urn:btih:2BB78BD08E8A1FF58C59AD321B7921B6CF8A3EC8
 magnet:?xt=urn:btih:64E2A3A171863EF9A29A6DCEFEA29C78492C0DFC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290524   (678142) от 20.03.2019
-
-Нико Бауман | Сила фокуса внимания. Метафизический закон успеха (2017) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга попала к вам в руки для того, чтобы вы наконец-то смогли что-то исправить в своей жизни и улучшить ее! Вы сможете получить то, о чем раньше только мечтали. Эта книга - о "психической кнопке", которая многократно повысит вашу эффективность! И кнопка эта называется - внимание. Именно внимание таит в себе необыкновенную Силу, которая творит Чудеса! (   Читать дальше...   )Жанр: Психология, СаморазвитиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD6D46604D66CCEED6E10607A867870FFF2D5E83
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

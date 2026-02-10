@@ -19,6 +19,8 @@ R-Studio Network 9.2 Build 191115 (x64) RePack (& Portable) by TryRooM [Multi/Ru
 magnet:?xt=urn:btih:4E7A173EFFEF6965B614B5832B62A83BB1B85A2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:BEDBB9801FF0BE0F1FDED8C3724B605094280A69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ StaxRip - инструмент для кодирования видео "все-
 magnet:?xt=urn:btih:34DA48452929033618ED145C3A70F151D39686FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Waterfox — это браузер, основанный на исходном �
 ```bash
 magnet:?xt=urn:btih:7F4BE905D05D946843C0BC0F086FA8068F76D4A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Room Arranger - программа специально предназначен
 magnet:?xt=urn:btih:1000409CAD1EDEC11BCABD62084AFD3D6CCBD5AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ OCCT 11.0.19 Final Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:AA43F8B6ED7D1C3B64F6E2087A3FC5760C78D62B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Google Earth Pro 7.3.6.9345 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:11F537874DDEEDC2969475FACEBB49C12AC84DC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Corel VideoStudio Ultimate 25.3.0.584 [Multi]
 ```bash
 magnet:?xt=urn:btih:41A8049A604BFB3C687D937F53FD80F32DBFBA76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Textra SMS v4.66 Pro Mod by Balatan  [Ru/Multi]
 magnet:?xt=urn:btih:065C346EC82617192FC5A4638C8B69D11FB6D419
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ RAR компании RARLAB способен создавать RAR и ZIP и р
 magnet:?xt=urn:btih:D786FE2F9AA2E5EF1EB5BE52687A7DB725A068E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 ```bash
 magnet:?xt=urn:btih:019F81155FD9CE81FF55A8BE79E88F02F04055B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ VPN-проект, предлагающий как серверное, так и 
 magnet:?xt=urn:btih:86146E2F176C8AD0294581E2CBA66F1DC1092A60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ CherryTree - функциональная программа, которая п�
 magnet:?xt=urn:btih:0E9C6A59C445EC5E5A1E1DB0E8C6FE90F14D98DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:E3CBBB3DEA68F072FF7C10525EAEE693708BC7D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ VSDC Pro создан для тех, кто хочет освоить нелин
 magnet:?xt=urn:btih:86495E73E168A538A3DF754CE27148C8C066E61F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:86495E73E168A538A3DF754CE27148C8C066E61F
 ```bash
 magnet:?xt=urn:btih:2BFEF623C06580F1FAB4DE34269957131D2646CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Ventoy - это инструмент с открытым исходным код
 ```bash
 magnet:?xt=urn:btih:E5E19024061FC31B481189FBA27018A2A8262602
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ Folder Tidy 2.9.1 [En]
 magnet:?xt=urn:btih:4A891DDE49F1317F754E5B59E13AD4F1CABF9C64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ NVIDIA GeForce Driver — драйвера для видеокарт произ�
 ```bash
 magnet:?xt=urn:btih:7A6653AC0966E1A7F0D28FE947B4E9E396B3A5E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ NetWorker - это приложение, которое удобно отобр�
 magnet:?xt=urn:btih:70CB830009B562155C2B1623478AFB8148D11343
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ PhotoRoom - приложение, что будет одинаково поле�
 magnet:?xt=urn:btih:676611214D4C0F0D091A5904304E6D446786B507
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ Data Guardian 7 v.7.6 [En]
 ```bash
 magnet:?xt=urn:btih:D78C51BE239BE7D4621ED8E553D92DEDB5706706
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ Dropzone - удобная утилита для автоматизация ру�
 magnet:?xt=urn:btih:AD056103353EE510030E7768530E3FF3549D463A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ WPS Office - лучший офисный пакет для Word, PDF, Excel - э
 ```bash
 magnet:?xt=urn:btih:6FE41EE8E2029265F0CC375A2A2E9C56CF571F46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ Sandboxie - yтилита для контроля за работой разли
 magnet:?xt=urn:btih:5D9F82633B5D479D366925C2EBB9E82F9DA180A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Master of Typing создан для тех, кто хочет научитьс�
 ```bash
 magnet:?xt=urn:btih:E4C482320ECE8695DA98670D562A8B73F6B78081
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

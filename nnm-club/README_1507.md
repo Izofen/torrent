@@ -22,6 +22,8 @@ Ital - Rukapillan (2024) [FLAC|Lossless|WEB-DL|tracks] <PsyTrance>
 magnet:?xt=urn:btih:78AAF93D85ACDC2813A7509B487A96BAEDD5EFA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:78AAF93D85ACDC2813A7509B487A96BAEDD5EFA2
 magnet:?xt=urn:btih:4142576BABB7F1092327BA0D4EA11971AD20A218
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:4142576BABB7F1092327BA0D4EA11971AD20A218
 ```bash
 magnet:?xt=urn:btih:B5D38CD601E5A38DF3772B2CE45DD7D395AEB8DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ Kyau & Albert - All in Good Time (2024) [MP3|320 Kbps] <Trance, Progressive, Ele
 magnet:?xt=urn:btih:0C6006842C0F5B6F8BDCA0656C13CBB06DF9F70B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:0C6006842C0F5B6F8BDCA0656C13CBB06DF9F70B
 magnet:?xt=urn:btih:D6AA15CFAB497F3BB2B1996D3D30087219CD1366
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:D6AA15CFAB497F3BB2B1996D3D30087219CD1366
 ```bash
 magnet:?xt=urn:btih:1BFD539D056DDD522B2F2FABEDEE4C07D97AC61E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:1BFD539D056DDD522B2F2FABEDEE4C07D97AC61E
 magnet:?xt=urn:btih:C3E2C329F7EA081A816CFAB46F553463FCDBC79E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:C3E2C329F7EA081A816CFAB46F553463FCDBC79E
 ```bash
 magnet:?xt=urn:btih:548A4524B02B538D3EC2FDB2EFAD49F537E6A808
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ VA - Nightfall Dreams: Chillout Your Mind) (2024) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:544E86248FDB9D43CDC5739DCD8C48CD463AFD39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ VA - Balearic Chill out Winter 2025 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge
 magnet:?xt=urn:btih:E24E032DB34DF09806CDAFFD5218EE4AF5216DDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ magnet:?xt=urn:btih:E24E032DB34DF09806CDAFFD5218EE4AF5216DDC
 magnet:?xt=urn:btih:0F063FE4FEB2A85BF5BA4CEA019026829D012D92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ magnet:?xt=urn:btih:0F063FE4FEB2A85BF5BA4CEA019026829D012D92
 ```bash
 magnet:?xt=urn:btih:281AB71F4671C384BCD91EFE635C37EC257C7E6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:281AB71F4671C384BCD91EFE635C37EC257C7E6B
 magnet:?xt=urn:btih:597F9474F8D95537A8834EE130E076A84A768A5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ GPS АнтиРадар v46.1 Mod by 0x7d [Ru]
 ```bash
 magnet:?xt=urn:btih:4A30B5D87D2505CC4A9C7A48D283AB6CBCF0DEED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:4A30B5D87D2505CC4A9C7A48D283AB6CBCF0DEED
 magnet:?xt=urn:btih:C10AB2E3C4770A9128B9E5250CE462F8CEDB1B9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:C10AB2E3C4770A9128B9E5250CE462F8CEDB1B9C
 ```bash
 magnet:?xt=urn:btih:9A72F40BCDA2B74B21122D42AC513F27C218F14C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +455,8 @@ Shinmai Ossan Boukensha, Saikyou Party ni Shinu Hodo Kitaerarete Muteki ni Naru 
 magnet:?xt=urn:btih:9B0E4F43D4F9306F6D288B13F1FDD61337E250BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:9B0E4F43D4F9306F6D288B13F1FDD61337E250BB
 ```bash
 magnet:?xt=urn:btih:FFD068F7F14314DCD3F9BDF8029312486C3DA9D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:FFD068F7F14314DCD3F9BDF8029312486C3DA9D7
 magnet:?xt=urn:btih:AE1254323B8601BAE008E095FBB50A5DDCB1AE29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ TikTok - социальное приложение для тех кто пред
 ```bash
 magnet:?xt=urn:btih:540724C909DCD7F04B6ADE2F068A19FF76EF863C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ NIUBI Partition Editor – программа для простого и над�
 magnet:?xt=urn:btih:735E53AF1A58EB2A7E9282D9EB7ACC4F14B84405
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ magnet:?xt=urn:btih:735E53AF1A58EB2A7E9282D9EB7ACC4F14B84405
 ```bash
 magnet:?xt=urn:btih:213561EE2567AB81596203A4C80E64BCA6078CBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +615,8 @@ VA - Turn To Rock (2024) [MP3|320 Kbps] <Alternative, Rock>
 magnet:?xt=urn:btih:68968E843C3C163E1BD5001E04D572A455452FA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +640,8 @@ PSIM - программа для проектирования и моделир�
 ```bash
 magnet:?xt=urn:btih:758CEC03391F4B453A5EAB79C464DE1A44431659
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +667,8 @@ magnet:?xt=urn:btih:758CEC03391F4B453A5EAB79C464DE1A44431659
 magnet:?xt=urn:btih:866A6E69732C784EDFF131F52BB29AAD522C0436
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ magnet:?xt=urn:btih:866A6E69732C784EDFF131F52BB29AAD522C0436
 ```bash
 magnet:?xt=urn:btih:812CC9BFE67B195589C42AEA6C67ABB5DBE4779E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

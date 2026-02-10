@@ -1,3 +1,146 @@
+###  Публикация: 1063433   (434680) от 16.10.2016
+
+Madonna - Like A Virgin (1984) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_434680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Material Girl
+02. Angel
+03. Like A Virgin
+04. Over And Over(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88AC38F7D04357B100DBF6995B941A6135C5ECFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 145119   (434701) от 09.10.2009
+
+Inna - Hot (2009) [MP3|320 kbps]<Рop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_434701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РopПродолжительность: 00:44:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 707929   (434794) от 06.10.2013
+
+VA - Pure... Fitness (2013) Box Set, 4 CD [FLAC|Lossless]<Pop, Dance, Rock, Other>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_434794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всем одноклубникам, коллегам по фитнесу посвящается!
+Старушка Sony Music тряхнула закромами родины и собрала забойные вещи аж с 1974 по 2011 годы. Получилась подборка под которую действительно тянет заниматься и заниматься (кому уж и чем придется). Мои коллеги по фитнесу восприняли её на ура и вот теперь спешу поделиться со всеми.01. A Tribe Called Quest - Can I Kick It ? (4:14)
+02. NINA SIMONE vs GROOVEFINDER - Ain't Got No, I Got Life  (3:21)
+03. ELVIS vs JXL - A Little Less Conversation  (3:33)
+04.  Apollo 440 - Stop The Rock (3:34)(   Читать дальше...   )Жанр: Pop, Dance, Rock, OtherПродолжительность: 04:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2623BD0F2444FC36B5D7DDD9840D85AF74B35A26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063366   (434833) от 16.10.2016
+
+Milkways - Milkways (1978) Reissue LP (2012) [MP3|320 Kbps] <Electronic, Space-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_434833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Galactic Reaction (3:54)
+02. Dance In The Milkway (3:50)
+03. Interstellar Melody (3:04)
+04. Unknown Flight (5:19)(   Читать дальше...   )Жанр: Electronic, Space-DiscoПродолжительность: 00:31:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7D3C21A467B20F69F83DDA0D3DEC021B06CBE51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165254   (435030) от 12.09.2017
+
+Actarus - Atlas Ufo Robot (1978) Reissue CD, Warner Strategic Marketing Italy, 2005 [MP3|320 Kbps] <Electronic, Disco, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ufo Robot (2:56)
+02. Rigel (3:22)
+03. Venusia (3:58)
+04. Alcor (3:02)(   Читать дальше...   )Жанр: Electronic, Disco, EuropopПродолжительность: 00:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BBA94D2B4D2FD0212E52AD124DBDD9E870C7D95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945150   (435260) от 09.10.2015
 
 Selena Gomez - Revival (Deluxe Edition) (2015) /Scene/ [FLAC|Lossless]<Pop>
@@ -21,6 +164,8 @@ Selena Gomez - Revival (Deluxe Edition) (2015) /Scene/ [FLAC|Lossless]<Pop>
 ```bash
 magnet:?xt=urn:btih:39BED64C2B451501E2113E5FD4A054BC6353E00B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +194,8 @@ D.J. BoBo - The Hits (1999) Reissue [MP3|320 Kbps] <Eurodance, Euro-House>
 magnet:?xt=urn:btih:D27384FD88561811D476F190F395A1601075811E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +222,8 @@ Technotronic - The Best Remixes (1991) Compilation [MP3|320 Kbps] <House, Euro-H
 ```bash
 magnet:?xt=urn:btih:66591E7404BA8B8337A5807C102FD5EF79DCEBFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +252,8 @@ John Davis & The Monster Orchestra - 4 Albums (1976-1979) LP [MP3|320 Kbps] <Ele
 magnet:?xt=urn:btih:885ADB887978BD8B6777B75988001FE51C04B8FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +280,8 @@ CD 01:
 ```bash
 magnet:?xt=urn:btih:A9D45C08CC811844826E2E317870B80C85CFEFE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +310,8 @@ Black Light Orchestra - 2 Albums (1977, 1979) LP [MP3|320 Kbps] <Electronic, Fun
 magnet:?xt=urn:btih:315F718C954CEEADAFE889CBA35E3D24EEF6CA70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +338,8 @@ Londonbeat - Legends (2004) 3CD Box Set [FLAC|Lossless]<Europop, Synthpop>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +368,8 @@ CD 01:
 magnet:?xt=urn:btih:622BDA112F5BBE3E44824C70BF5B10C56B71CA1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +396,8 @@ Steps - Step One (1998) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:F81A3F5ED04CC12BF8F3DCB9B036E51D209C2E73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +426,8 @@ Greyson Chance - Hold on 'til the Night (2011) [FLAC|Lossless|tracks + .cue] <Po
 magnet:?xt=urn:btih:5D97AB62FCAD59D0F17A48E1A2A7AA9096233690
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +454,8 @@ DJ BoBo - 25 Years Greatest Hits (2017) [OGG|485 Kbps] <Electronic>
 ```bash
 magnet:?xt=urn:btih:B27609DD45E7095E02FEC0CFD14C3645115B8786
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +484,8 @@ magnet:?xt=urn:btih:B27609DD45E7095E02FEC0CFD14C3645115B8786
 magnet:?xt=urn:btih:1584B008E813C70CCCFAAC48E539AEFC2AFCF578
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +512,8 @@ London Boys - The Twelve Commandments Of Dance (1988) [OGG|485 Kbps] <Disco>
 ```bash
 magnet:?xt=urn:btih:A5C1A881C50AADF5F9379F5B2542B6A85AC0A2D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +542,8 @@ Linda Jo Rizzo - Greatest Hits & Remixes (2019) [OGG|485 Kbps] <Italo-Disco>
 magnet:?xt=urn:btih:D5CB3F2A2B1B68DB0E89FCDB9986DF7086476AD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +571,8 @@ Celine Dion - A New Day Has Come (2002) [OGG Vorbis|485 Kbps] <Pop>
 magnet:?xt=urn:btih:62B488FB886018DC8CDC64BDF060BFD4B1D66284
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +596,8 @@ magnet:?xt=urn:btih:62B488FB886018DC8CDC64BDF060BFD4B1D66284
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +626,8 @@ VA - Love Dancing (2018) [MP3|320 Kbps] <Euro Dance, Pop Dance>
 magnet:?xt=urn:btih:C4E0EEEAC9C032919A61B42338CBF6153B815552
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +654,8 @@ ABBA - Дискография (1970-2007) 65CD [MP3|320] <PoP, Rock>
 ```bash
 magnet:?xt=urn:btih:57AA7421DC40855AA070D63DC20FD3DA5087F7EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +684,8 @@ Flora Cash - Press [EP] (2019) [FLAC|Lossless|tracks] <Alternative pop, Indie fo
 magnet:?xt=urn:btih:8472A2EAD51D02BA55150391BDCE1FDF95CF7D62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +712,8 @@ Luca Rovini & Companeros - Cuori Fuorilegge (2018) [MP3|320 Kbps] <Italy Pop>
 ```bash
 magnet:?xt=urn:btih:25E55A273056C77C56B95AF6569E3452E1BA6853
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,140 +742,7 @@ Rocky M - The Best Of (1989) LP [MP3|320 Kbps] <Electronic, Europop, Disco>
 magnet:?xt=urn:btih:E3D378BE82ED2A71D9F819420794DA401EDA980F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945008   (437897) от 08.10.2015
-
-Selena Gomez - Revival (2015) Japanese Edition [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revival
-02. Kill Em With Kindness
-03. Hands to Myself
-04. Same Old Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC2DACEF2F7D4700FB2B2FC402B8F0B25A3200BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570421   (438055) от 19.08.2022
-
-Dr. Alban - One Love (The Album) (1992) Vinyl-rip [OGG|485 Kbps] <Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction	1:45
-02. It's My Life	4:00
-03. Sing Hallelujah!
-04. Groove Machine 4	3:41(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FF81ACE4F521DA3116102AE8A23BFEB4D1A5D33
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944957   (438058) от 08.10.2015
-
-Celine Dion - Loved Me Back To Life (2013) Deluxe Edition [FLAC|tracks + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loved Me Back to Life [3:51]
-02. Somebody Loves Somebody [3:42]
-03. Incredible (duet with Ne-Yo) [3:56]
-04. Water and a Flame [3:42](   Читать дальше...   )Жанр: PopПродолжительность: 01:00:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B909EC02CAC0384E9DC58EEEB24906C6F1AF1AD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944803   (438078) от 08.10.2015
-
-Шура Кузнецова - Молчи И Обнимай Меня Крепче (2015) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вспоминай и вдыхай
- 02. Льёт
- 03. Не тонуть, а плыть
- 04. Весь промок(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E17C883A73EBCAB30A0B8DC6FB1E419356EBA6EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570834   (438180) от 19.08.2022
-
-Radiorama - Desires And Vampires (1986) [OGG|485 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desire	3:50
-02. Flight To Fantasy	3:55
-03. Hey Hey	4:30
-04. Wacha Gonna Do	5:25(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7D394720EC8482B22F6BE6B54251D628E0F972E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1283728   (731700) от 18.02.2019
+
+Марк Темников, Вадим Пустовой | Дача мини-люкс (2019) [PDF, RTF]
+
+>>Разное (категория книг)
+>>Строительство и ремонт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга о том, как модернизировать вагон-бытовку. Простые советы для простых людей. Всё можно сделать своими руками, с минимумом затратЖанр: Строительство, ремонтФормат: PDF, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6400FA9AB14888FA302480E10EE13EB6EC8DF5D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283805   (731705) от 18.02.2019
 
 Рейчел Холлис | Очнись, детка! (2019) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:291DB476C071C49F6BAD13DAD83A47B96AD91436
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:291DB476C071C49F6BAD13DAD83A47B96AD91436
 magnet:?xt=urn:btih:0B94C9EE5A533551EF107817E223FA4F1E89AF7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:0B94C9EE5A533551EF107817E223FA4F1E89AF7F
 magnet:?xt=urn:btih:503F28C486714A07334AB29FE28D110105D85251
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:503F28C486714A07334AB29FE28D110105D85251
 ```bash
 magnet:?xt=urn:btih:C36E91AC138C4DC11575BC005A0AF3F568DC39B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:C36E91AC138C4DC11575BC005A0AF3F568DC39B4
 magnet:?xt=urn:btih:28BE1023F30B6EB2F026A2BE2E6DB246B5A15C83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:28BE1023F30B6EB2F026A2BE2E6DB246B5A15C83
 ```bash
 magnet:?xt=urn:btih:128C325E3BC5AC8509ECA213646BFE5F1700E531
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +207,8 @@ magnet:?xt=urn:btih:128C325E3BC5AC8509ECA213646BFE5F1700E531
 magnet:?xt=urn:btih:36EB5F5DFC76E22805B7256C499025538D4B893E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:36EB5F5DFC76E22805B7256C499025538D4B893E
 ```bash
 magnet:?xt=urn:btih:5524EBA3197686E113527A73A138F61BDB354502
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +261,8 @@ magnet:?xt=urn:btih:5524EBA3197686E113527A73A138F61BDB354502
 magnet:?xt=urn:btih:5C92FFF699264DC059B5AF96874B4372504B1D91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +287,8 @@ magnet:?xt=urn:btih:5C92FFF699264DC059B5AF96874B4372504B1D91
 magnet:?xt=urn:btih:E5BC1ACA0D229558A27C20EE1A4FFC30DE8A3D3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:E5BC1ACA0D229558A27C20EE1A4FFC30DE8A3D3B
 ```bash
 magnet:?xt=urn:btih:6B9C6C93A691381B94BEC998A4A87E9B8482EE98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +340,8 @@ magnet:?xt=urn:btih:6B9C6C93A691381B94BEC998A4A87E9B8482EE98
 magnet:?xt=urn:btih:61FD2547EEF73C4EE4F04D69F7279CAEB68B145F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:61FD2547EEF73C4EE4F04D69F7279CAEB68B145F
 ```bash
 magnet:?xt=urn:btih:5D285ECF2803E4C0008F1D839E236DBB3E11191E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +394,8 @@ magnet:?xt=urn:btih:5D285ECF2803E4C0008F1D839E236DBB3E11191E
 magnet:?xt=urn:btih:40C13332B493C76E16E2D83858677E4EFA16EA0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +419,8 @@ magnet:?xt=urn:btih:40C13332B493C76E16E2D83858677E4EFA16EA0D
 ```bash
 magnet:?xt=urn:btih:CB28054166D4CEB0AD2A9FD7571CDB02B7FA2C6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +448,8 @@ magnet:?xt=urn:btih:CB28054166D4CEB0AD2A9FD7571CDB02B7FA2C6E
 magnet:?xt=urn:btih:1F850EA513DA54B1231A63720BC9DADB4BA5EB4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +474,8 @@ magnet:?xt=urn:btih:1F850EA513DA54B1231A63720BC9DADB4BA5EB4A
 magnet:?xt=urn:btih:E7216DC6A4D77D6215B98EE7AF38C220A0EA7DAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +499,8 @@ magnet:?xt=urn:btih:E7216DC6A4D77D6215B98EE7AF38C220A0EA7DAD
 ```bash
 magnet:?xt=urn:btih:B36D1D3D4EC6513982033ADFA3FC8926C8793B4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +528,8 @@ magnet:?xt=urn:btih:B36D1D3D4EC6513982033ADFA3FC8926C8793B4F
 magnet:?xt=urn:btih:ECE932E2C52133AAB2500789BB552EAE6B8F3E56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +553,8 @@ magnet:?xt=urn:btih:ECE932E2C52133AAB2500789BB552EAE6B8F3E56
 ```bash
 magnet:?xt=urn:btih:BB063096EC803DD834E2BCC43864852707CD465E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +580,8 @@ magnet:?xt=urn:btih:BB063096EC803DD834E2BCC43864852707CD465E
 magnet:?xt=urn:btih:4190A525F1387FC4DF32987E1A482611358044F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +605,8 @@ magnet:?xt=urn:btih:4190A525F1387FC4DF32987E1A482611358044F8
 ```bash
 magnet:?xt=urn:btih:08FF65AA272F8065EB4BA8E9DAE8E2650F35015F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +634,8 @@ magnet:?xt=urn:btih:08FF65AA272F8065EB4BA8E9DAE8E2650F35015F
 magnet:?xt=urn:btih:817D849015D4EAAA70C592643B4A20A5399AF903
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +659,8 @@ magnet:?xt=urn:btih:817D849015D4EAAA70C592643B4A20A5399AF903
 ```bash
 magnet:?xt=urn:btih:693733C93E630C3963A4B49861A23E3C9E1809DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,31 +687,7 @@ magnet:?xt=urn:btih:693733C93E630C3963A4B49861A23E3C9E1809DE
 magnet:?xt=urn:btih:556A7396BCE72CDABC9D82C71416FD8562939208
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528054   (735352) от 31.01.2022
-
-Тереза Фой ДиДжеронимо, Скотт Хальтсман | Секреты счастливых жен (2019) [EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эту книгу следовало бы назвать «Искусство приручения мужей». Оказывается, даже столь странное и непредсказуемое существо, как мужчина, поддается дрессировке и способно стать совсем ручным. Не верите? Читайте «Секреты счастливых жен» – новый бестселлер доктора Хальтсмана.
-
-Не нужно тратить годы на попытки понять, что творится в голове вашего мужа. К черту разочарования (   Читать дальше...   )Жанр: ПсихологияПеревод: Н. БолховецкаяФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:600CCDC3E3A90FB149EB6374AA281228BC2DB904
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

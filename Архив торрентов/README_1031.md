@@ -19,6 +19,8 @@ Sumatra PDF - легкий просмотрщик  PDF, DjVu, CHM, ePub, MOBI, X
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Freemake Video Downloader - бесплатный загрузчик видео, 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ CoolNovo - бесплатный браузер на основе проекта 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ CoolNovo - бесплатный браузер на основе проекта 
 ```bash
 magnet:?xt=urn:btih:D44A75E99733F686251F52AE7BAF4582F7EF0E0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:D44A75E99733F686251F52AE7BAF4582F7EF0E0F
 magnet:?xt=urn:btih:15EBAD81540258798033BC8707D64C1FC6798775
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:15EBAD81540258798033BC8707D64C1FC6798775
 ```bash
 magnet:?xt=urn:btih:8FA6AACAAF2B3EB388E4BA9CACE1CE40B2432DF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:8FA6AACAAF2B3EB388E4BA9CACE1CE40B2432DF4
 magnet:?xt=urn:btih:14D581DE37FA0A6131A2CD443BB58E4985AC2154
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:14D581DE37FA0A6131A2CD443BB58E4985AC2154
 ```bash
 magnet:?xt=urn:btih:D03A45F1203174A9091BB025595E29128B3828DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:D03A45F1203174A9091BB025595E29128B3828DA
 ```bash
 magnet:?xt=urn:btih:82BBCE8F30E18271F9AB90940A6461A1CA02B717
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:82BBCE8F30E18271F9AB90940A6461A1CA02B717
 magnet:?xt=urn:btih:E250E6BAE5F821B8CC8BFC28A6C0290226E80C17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ Angizia - 9 albums (1996-2011) Discography [MP3|192-320 kbps]<Neoclassical, Avan
 magnet:?xt=urn:btih:BFD0C3E76471F73C7BD81C229A02E546BCEFD09B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:BFD0C3E76471F73C7BD81C229A02E546BCEFD09B
 ```bash
 magnet:?xt=urn:btih:CDEE3A29E2B8594C1780450AC371D78F14243655
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +355,8 @@ magnet:?xt=urn:btih:CDEE3A29E2B8594C1780450AC371D78F14243655
 magnet:?xt=urn:btih:6046152D3F399084C67CFF73D50FCF8C62D47F5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +381,8 @@ magnet:?xt=urn:btih:6046152D3F399084C67CFF73D50FCF8C62D47F5B
 magnet:?xt=urn:btih:68CD981DD03B50C40812EE90436A2E72F7812E9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ magnet:?xt=urn:btih:68CD981DD03B50C40812EE90436A2E72F7812E9C
 ```bash
 magnet:?xt=urn:btih:00885642423259B0C3BD267F25CF93ADE697256E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +442,8 @@ VA - 3 Years Of Amazing Records Part 1 (2012) [MP3|320 кб/с]<Techno, Minimal>
 magnet:?xt=urn:btih:4877B9714F525637D56E4F43FB52993D222185EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +467,8 @@ magnet:?xt=urn:btih:4877B9714F525637D56E4F43FB52993D222185EB
 ```bash
 magnet:?xt=urn:btih:6B2A9AB34354D14EBFCE2DE871BE3A88EB2DDAEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +498,8 @@ Shokran - Sixth Sense (EP) (2012) [MP3|320 кб/с]<Instrumental Progressive Mat
 magnet:?xt=urn:btih:255C218EB5D4DC247828214E9C5DB6712D21B770
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +523,8 @@ magnet:?xt=urn:btih:255C218EB5D4DC247828214E9C5DB6712D21B770
 ```bash
 magnet:?xt=urn:btih:161066B6A3648A589A89BC233989DA7F2587993A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +550,8 @@ magnet:?xt=urn:btih:161066B6A3648A589A89BC233989DA7F2587993A
 magnet:?xt=urn:btih:A5A2901DD190E939166FA718947AFB752F9365AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +576,8 @@ magnet:?xt=urn:btih:A5A2901DD190E939166FA718947AFB752F9365AF
 magnet:?xt=urn:btih:B88F97F5DEF56A8C9DB252C53EE494777000B201
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +601,8 @@ magnet:?xt=urn:btih:B88F97F5DEF56A8C9DB252C53EE494777000B201
 ```bash
 magnet:?xt=urn:btih:18E393BF118837017DAE20EFB09868DA21F89104
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +637,8 @@ Tacere - At World's End (2012) [FLAC|Lossless]<Progressive, Power Metal, Female 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +671,8 @@ Sonja Perenda - Time Has Come (2012) [MP3|320 кб/с]<Symphonic Metal, Rock-Ope
 ```bash
 magnet:?xt=urn:btih:1D60D61327D70E1AB5A36298AC92D3983E46390D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -659,6 +707,8 @@ Mistabishi - Skum (2012) [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:7D7F2BE2BD54197490F0030247B202FB2B031C91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -691,6 +741,8 @@ Allegro From My Requiem - Chapter I (2012) [MP3|320 кб/с]<Symphonic Power / P
 ```bash
 magnet:?xt=urn:btih:A591F2E8530D19D53FE641775F3BDDE5417F3EB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

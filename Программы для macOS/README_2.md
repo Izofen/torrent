@@ -20,6 +20,8 @@ Affinity Publisher 2 v.2.4.1  [Multi]
 magnet:?xt=urn:btih:9195ED1F5A06E84B025729D8D5F7644091A4C6F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Screen Studio for Mac ARM/iNTEL 2.22.3 [En]
 magnet:?xt=urn:btih:50C61BCE6DBBEA9EE16E2F93D717BB354C4873DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Magic Disk Cleaner находит и удаляет временные файл�
 ```bash
 magnet:?xt=urn:btih:1C642BA9861F168E6617AF85C23E0627BA3AE3DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ ActiveDock — это полная замена Apple Dock с настраива
 magnet:?xt=urn:btih:F5D1CAC93CEECC0CB522859A83171A3CAACE6C4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Money Pro сократит расходы и покажет полную кар�
 ```bash
 magnet:?xt=urn:btih:E416B6F9F8F0DD2AD52DFAD9085DD432566C17CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Swinsian — простой аудио плеер с функцией управ
 magnet:?xt=urn:btih:ECB53A2437DDAA58008F6ED4797CE381C46F1413
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Rectangle - это приложение для управления окнами
 magnet:?xt=urn:btih:D3833C39CF2DCB18A0A5B7450DCF998DD2013974
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ AI Transcription 2.5 [Multi]
 ```bash
 magnet:?xt=urn:btih:480023A018AE91A7953C2C77C5320BC5034F2320
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Affinity Designer — самое быстрое, удобное и точное 
 magnet:?xt=urn:btih:1C6D6411DEF3847E872EB6CFE1BE8636D4C2CE00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Termius — мощный, простой в использовании и кра
 ```bash
 magnet:?xt=urn:btih:70CC30D7617393F5BFD6290C79A28800FCBC963D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ PDFelement Pro - профессиональный инструмент, кото
 magnet:?xt=urn:btih:17DF6E7BB2923F5C3E144FFF1234A1BA8FAA1316
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ Affinity Photo переопределяет границы профессион�
 ```bash
 magnet:?xt=urn:btih:E5805D8DBC8C67C3D544E7A8FCC44B6BEE646E4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ XMind – это лучшее программное обеспечение дл
 magnet:?xt=urn:btih:96B223622C769E8D8910070860144B0AC6CE508F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:96B223622C769E8D8910070860144B0AC6CE508F
 ```bash
 magnet:?xt=urn:btih:BECE18E91621CACDC723EBC193B27E7A3FF76C74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ Fork 2.41.1 [En]
 magnet:?xt=urn:btih:E8736911678D02C4ACD1965F82A43382CE38341D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:E8736911678D02C4ACD1965F82A43382CE38341D
 ```bash
 magnet:?xt=urn:btih:ADCA2A97250678786B1ECBA3F1F61C48047282CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ Luminar Neo 1.18.3 U2B  [Multi]
 magnet:?xt=urn:btih:DCFC6B9E0FFD28A2A087980C096B363C0761F43D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Steinberg Cubase Pro for Mac 13 v.13.0.30 U2B [Multi/Ru]
 magnet:?xt=urn:btih:C6ED9D7FD4039B9E22515334CAAADF8D8B759F3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ All to MP3 Audio Converter 5.2.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:69B259FC51C3201437371C9FDCE2820FB15E98ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ Moho™ Pro 13 это все, что вам нужно, чтобы сделат�
 magnet:?xt=urn:btih:D46F0D4C2DAAE663531CD755606D93CF26CCC016
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ Wondershare Repairit 5.5.5 [En]
 magnet:?xt=urn:btih:CB06FDD42E6CE4FE5D79EF7CF4135B5967B4DEC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ GoLand - это IDE от JetBrains, нацеленная на создание �
 magnet:?xt=urn:btih:08648195A5F814A9550BB4A58545673BF9B02952
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ RubyMine — умная и удобная интегрированная сре�
 ```bash
 magnet:?xt=urn:btih:A75874A73C27F831715EA717F4B8EA87C75F6DF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ DRmare Audio Capture - это профессиональный и универс
 magnet:?xt=urn:btih:F3C805FE24810E08D0384285B5C65588082990E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ Notebooks является единственным блокнотом, кото
 magnet:?xt=urn:btih:6DDC09CE010241A21ED2CFE8EAAF59E200F6F5A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ GoLand - это IDE от JetBrains, нацеленная на создание �
 ```bash
 magnet:?xt=urn:btih:095A1B0AA256ACE65607C08251701D8DD4F6F14A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

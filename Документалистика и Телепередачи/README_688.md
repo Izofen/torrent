@@ -1,3 +1,29 @@
+###  Публикация: 1365470   (930544) от 07.03.2020
+
+Джоанна Ламли на Шёлковом пути / Joanna Lumley's Silk Road Adventure (2018) WEB-DL [H.264/1080p] (серии 4 из 4)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это самое авантюрное и экзотичное путешествие Джоанны Ламли. Когда-то веницианские купцы обратили свой взгляд на Восток и наладили торговый путь, протянувшийся на 11 тысяч километров - от Италии до Китая. Это легендарный Шёлковый путь, путь торговцев, изменивших этот мир. Влияние Шёлкового пути было огромным: некоторые становились богатыми до безобразия, а кто-то (   Читать дальше...   )Производство: Великобритания, Burning Bright ProductionsЖанр: Документальный, познавательный, путешествия, историяРежиссер: Ивен Томсон, Марк Бейтс, Клайв ТаллоПеревод: Двуголосый закадровый, профессиональныйСубтитры: Английские, hardsub на отличную от англоязычной речьПродолжительность: серии x ~00:45:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:930198E64C292B0E6DE422E6DD4802ABD013151D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365401   (930561) от 07.03.2020
 
 Терапия (2017) WEBRip [VP9/2160p]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:7EDFBEF9C2356DB888EE10D10E16157046F9FCE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:7EDFBEF9C2356DB888EE10D10E16157046F9FCE3
 magnet:?xt=urn:btih:AD4F4A8C2E7EF7F29142F02E3B59E227D9631780
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:AD4F4A8C2E7EF7F29142F02E3B59E227D9631780
 ```bash
 magnet:?xt=urn:btih:60D4582D782D05427C177C5C74C2E4F3976F2C1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:60D4582D782D05427C177C5C74C2E4F3976F2C1F
 magnet:?xt=urn:btih:12160CE7D5E98123540641B15CF01EF3B4A61E38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:12160CE7D5E98123540641B15CF01EF3B4A61E38
 ```bash
 magnet:?xt=urn:btih:0E710EDDCD61D29B02B9DF98C16ACBB2907C0DE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:0E710EDDCD61D29B02B9DF98C16ACBB2907C0DE3
 magnet:?xt=urn:btih:DD393CA062AE32FC704B6612C9238F5FF77654A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:DD393CA062AE32FC704B6612C9238F5FF77654A9
 magnet:?xt=urn:btih:DA10D6E2129F9486CA14E6FED238A152A5208C42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:DA10D6E2129F9486CA14E6FED238A152A5208C42
 magnet:?xt=urn:btih:48F36DC33586BBBC8E6B1C535D1EA47186C381A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:48F36DC33586BBBC8E6B1C535D1EA47186C381A8
 ```bash
 magnet:?xt=urn:btih:C507045EB8DBC0B70D56F0B4D64223D2F7C00BED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:C507045EB8DBC0B70D56F0B4D64223D2F7C00BED
 magnet:?xt=urn:btih:B1E6D9C69D645D0176AD7D261D658B3A69A7B78E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:B1E6D9C69D645D0176AD7D261D658B3A69A7B78E
 ```bash
 magnet:?xt=urn:btih:C49459395E90B908564CA42C4A7B7E203C99E8CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:C49459395E90B908564CA42C4A7B7E203C99E8CC
 magnet:?xt=urn:btih:2DA746EDBDCEA0ECCA5C5212351AFB9477235C0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:2DA746EDBDCEA0ECCA5C5212351AFB9477235C0A
 ```bash
 magnet:?xt=urn:btih:7B1FE7C330E86D9D47B3702FF11ECCDE50B70CF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:7B1FE7C330E86D9D47B3702FF11ECCDE50B70CF1
 magnet:?xt=urn:btih:C3539192270F9553CDB3F613D071CA7E03CB6115
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:C3539192270F9553CDB3F613D071CA7E03CB6115
 ```bash
 magnet:?xt=urn:btih:A2FF2AAD97FC97171430E4F6E50DCF8732085B0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:A2FF2AAD97FC97171430E4F6E50DCF8732085B0D
 magnet:?xt=urn:btih:8C7E568DCEEBBD4FC0F7041A8BA972FC9BD96B2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:8C7E568DCEEBBD4FC0F7041A8BA972FC9BD96B2E
 ```bash
 magnet:?xt=urn:btih:4F29DFFF7296A6EFF392F0D472D5009D157A2E60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:4F29DFFF7296A6EFF392F0D472D5009D157A2E60
 magnet:?xt=urn:btih:5704FFAE67F47DDDCEC26ED6DA7C40A7F71A7651
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:5704FFAE67F47DDDCEC26ED6DA7C40A7F71A7651
 ```bash
 magnet:?xt=urn:btih:347220C82AE888ED8328600279A5095C02F8074B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:347220C82AE888ED8328600279A5095C02F8074B
 magnet:?xt=urn:btih:E49A555700839E3BF8D5DAF59B710039839C0EFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:E49A555700839E3BF8D5DAF59B710039839C0EFA
 ```bash
 magnet:?xt=urn:btih:F144BA763722F4A78FECAD7A8413588227262820
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:F144BA763722F4A78FECAD7A8413588227262820
 magnet:?xt=urn:btih:03B0309F575D6CE2CEEB3F82729016F9889D97EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +627,8 @@ magnet:?xt=urn:btih:03B0309F575D6CE2CEEB3F82729016F9889D97EA
 ```bash
 magnet:?xt=urn:btih:DEF2ED024CFBD2DD6EB0C3BFA90CBE561BC39BF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +654,8 @@ magnet:?xt=urn:btih:DEF2ED024CFBD2DD6EB0C3BFA90CBE561BC39BF3
 magnet:?xt=urn:btih:720C32A15383D26DE5ACFBFD1479CC2CE34C1EEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,30 +680,7 @@ magnet:?xt=urn:btih:720C32A15383D26DE5ACFBFD1479CC2CE34C1EEA
 magnet:?xt=urn:btih:E1C56E7D9C1B9EEA312E34A37A54CD1188271E1B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986525   (931081) от 14.02.2016
-
-Акценты (14.02.2016) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931081.jpg" />
-</div>
-
-
-###  Подробнее
-
-Воскресная информационная программа «Акценты». Расскажет о том, как развивались самые яркие события в стране и мире в течение прошедшей недели, и представит оперативные новости текущего дня.
-Расставить акценты над самыми обсуждаемыми новостями недели зрителям поможет информация из первых уст – прямые включения свидетелей и непосредственных участников событий, а также (   Читать дальше...   )В этом выпуске: Разбить палатку: кто зарабатывал миллионы на шаурме и пончиках? Что вырастет на обломках самостроя? Никто не застрахован: каждый десятый полис в стране фальшивый. Но летом нас всех перестрахуют! А ваш полис настоящий?Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F777B41E71109E52B87702ACFE266ED614C1B2D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

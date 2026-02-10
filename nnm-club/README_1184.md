@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:14ABFE0F59B3F73AC54BC8C61605FE70FBF2613C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ O&O DiskImage Professional позволяет создавать резервн�
 ```bash
 magnet:?xt=urn:btih:FBB02034DBB2EC346F92FAEA72D7CFF9C8B87DD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - Record Super Chart 11.01.2025 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:7E4A52552CFD8B33F73BC8B385C51402CCC31B74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:7E4A52552CFD8B33F73BC8B385C51402CCC31B74
 ```bash
 magnet:?xt=urn:btih:E5CBD04055DA5CC2823C3E8941C338A3F2EAEC85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Calibre - простая и удобная программа для управ�
 magnet:?xt=urn:btih:CBCAACC4D61862293313631C4E32E7B350CA68F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:76D2A9D6146C800B411EE0650B4E3F8C0DDFF001
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ Plexus 3d Logo Reveal — это проект After Effects на основе Pl
 magnet:?xt=urn:btih:610FC155645754F9FE108A11AB6E33C41D7AA353
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ My Friendly Neighborhood (2023) [Ru/Multi] (1.1.1) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:7AD8374214052A5B98B1B2B6EE5C5CA0D24E5402
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:7AD8374214052A5B98B1B2B6EE5C5CA0D24E5402
 magnet:?xt=urn:btih:0CDAB08C3E0A535065B0C15EF1D7B3633FA69805
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:0CDAB08C3E0A535065B0C15EF1D7B3633FA69805
 ```bash
 magnet:?xt=urn:btih:F2BAAB638FE70241C83AB335540C6C7252CD1C21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:F2BAAB638FE70241C83AB335540C6C7252CD1C21
 magnet:?xt=urn:btih:E69DEB41EF4F5A3B68C1E10A920402CE6215386A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ Epic Smoke Logo 2 — это эпический шаблон AE 4K с потря
 magnet:?xt=urn:btih:1B9C725EE1C412B6BFDE19BF1DD6FA00630B146C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ AR Plan 3D – инновационное приложение, использу
 ```bash
 magnet:?xt=urn:btih:231D8D2050B51A7BF9E4D7C8A947D81DC2F43C9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ DJ Polkovnik - compilation 2 (2025) [MP3|320 Kbps] <Electronic, Instrumental, Tr
 magnet:?xt=urn:btih:F6068C8E38EB4E65B94B0C9B7CC685228C2884C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:F6068C8E38EB4E65B94B0C9B7CC685228C2884C9
 magnet:?xt=urn:btih:AD7D51CE5AC980F67AF4BD7116A104D0290501F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:AD7D51CE5AC980F67AF4BD7116A104D0290501F4
 ```bash
 magnet:?xt=urn:btih:09A809FBC0A2C4916EA6A7922C7CE9FA813F5D41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ magnet:?xt=urn:btih:09A809FBC0A2C4916EA6A7922C7CE9FA813F5D41
 magnet:?xt=urn:btih:225AB1C239CD5FDD0B2E4B1BA1A230A8C32ABB01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ The Inn-Sanity (2024) [Ru/Multi] (build 16843098) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:41875B29D3CA83B82CC06C6BFD60F057D5180CFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:41875B29D3CA83B82CC06C6BFD60F057D5180CFC
 magnet:?xt=urn:btih:83DED43529592D6FE2A51A2528A95CFAA90482D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ Valhalla Path: Survival (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4E79AB563C4CCF83F1EF5BE842BC3CED2E74E490
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ magnet:?xt=urn:btih:4E79AB563C4CCF83F1EF5BE842BC3CED2E74E490
 magnet:?xt=urn:btih:520DF9F1AC8E6AF9A2517F6D8512F8C367DAF3BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:520DF9F1AC8E6AF9A2517F6D8512F8C367DAF3BC
 ```bash
 magnet:?xt=urn:btih:A65C77C4A8B22AD7DCB342A99A4EFF4ECEE60E8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:B27B3042F3523FCB2880B757F2A604ECAD42C657
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ magnet:?xt=urn:btih:B27B3042F3523FCB2880B757F2A604ECAD42C657
 ```bash
 magnet:?xt=urn:btih:1C1F685A830501ECCF48212737A6B7D46999D95E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ magnet:?xt=urn:btih:1C1F685A830501ECCF48212737A6B7D46999D95E
 magnet:?xt=urn:btih:FACB9BE70B6DEABC5BA34A510ED849C25FC68C60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Discolored 2 (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4F8C3D4E2770F79B2BACBCA620D11F52A500F1B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ WiFi Analyzer v5.5 (b91) Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:B4EC90594326ADE18C5D71F377B72E0C9F5E4141
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ IPTV Pro v8.1.2 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:32AFE84DFA84CEFA524EB64DAB81EA8A85497CF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Stellio - продвинутый плеер, с мощным звуком, по�
 ```bash
 magnet:?xt=urn:btih:CAA4A7F666A7F658BAD46B643A3D1E01AEB6F850
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:CAA4A7F666A7F658BAD46B643A3D1E01AEB6F850
 magnet:?xt=urn:btih:E3D45C7CA26E844F52C983C86E46AC3CF79B5CAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ Picture Mushroom — распознавайте грибы мгновенно. �
 magnet:?xt=urn:btih:CDE6B5D4587A3583975CB2C71058B155704C259D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:CDE6B5D4587A3583975CB2C71058B155704C259D
 ```bash
 magnet:?xt=urn:btih:50A6B53C28A03A0828B8F7ED1F6A70205E70264A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ ViewBox - приложение для Android устройств (в том чи
 magnet:?xt=urn:btih:9061FDF038479540E64EC6B2B4E9349454A19B51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Reface: Face Swap AI Generator v4.19.3 Mod by Mixroot [Multi]
 ```bash
 magnet:?xt=urn:btih:E9AE34B74BFA10B4F27F861EE80A144EB90CADA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Picture Insect: Bug Identifier v2.8.30 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:5048E4E75C9D30CFBEF80DF83AB322FCB65E5CE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ VRadio - Online Radio App v2.7.1 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7B7694F6C279B0C57EE90E1C2BB626BE73A9CC23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Browsec — это бесплатный VPN-прокси, который защ�
 magnet:?xt=urn:btih:9C3570309AE9925834F2A8C46C0601383B3CC11A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:9C3570309AE9925834F2A8C46C0601383B3CC11A
 ```bash
 magnet:?xt=urn:btih:E6EAA2AB792FAB299A4A4513FEA6B237AEB7FB1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:E6EAA2AB792FAB299A4A4513FEA6B237AEB7FB1A
 magnet:?xt=urn:btih:82F1CD6741BBCC09506280BF93992261658A6120
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ TV+ HD v1.2.5 Mod by ajrys [Ru]
 ```bash
 magnet:?xt=urn:btih:000C6A15688655C552C30D666FF251065B34A02A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ Bria Mobile: VoIP Softphone v6.16.4 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:9C2D9BA0775187ED651E533ACF016C845F857EFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ ARuler - лучшее и бесплатное приложение на Android 
 ```bash
 magnet:?xt=urn:btih:98E61AA2D4E7B089920FE0D23E36122E16C3C64D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ PictureThis - Plant Identification v4.3.0 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:E03C69F205DB98E54CE964597BF1F24E43261BB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ ADV Screen Recorder v4.13.1 Mod by Balatan [Multi]
 ```bash
 magnet:?xt=urn:btih:03837A864DD5F2F17FC306C8CCE6E67588E3C460
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ PDF Extra PDF Editor & Scanner v10.16.2608 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:ECF72150C3D45B7B5AA8514F04AEE017619A8096
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ ToonApp карикатура фоторедактор лучшее прилож�
 ```bash
 magnet:?xt=urn:btih:EB241EF5B893F2149BC4B58FB7B928C0EF49CC74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ Unified Remote v3.24.0 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:07CF6B78D3937315D9E24E16761F770C7B509AAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:07CF6B78D3937315D9E24E16761F770C7B509AAA
 ```bash
 magnet:?xt=urn:btih:FF5E531A6394B649703035F0A17DB2DCC1FB8DC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ PhotoRoom v5.2.4 Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:C5AC032E467F1B50D9D9E0628770B4275C9DBCBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Horary Chart / Астрология: Хорарная Карта v4.0 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D55F385AFF5AAA6161431B7C88F2A7CECD970F28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ HeadUp Display (HUD) – это возможность использовать 
 magnet:?xt=urn:btih:7DFB5BFD61D8042582436A9EF0314E791935FFCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ jetAudio это музыкальный проигрыватель с 10/20 по�
 ```bash
 magnet:?xt=urn:btih:682D1AFF4437A3BBDE9A902FE85F98879F26AB08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

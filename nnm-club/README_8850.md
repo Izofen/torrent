@@ -19,6 +19,8 @@ Hermes 2: War of the Gods / Гермес 2: Война богов (2019) [Ru] (1
 magnet:?xt=urn:btih:0300855151109CD3A97FFB5988F43F44E430EF26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Lenka - Attune (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Indie Pop>
 magnet:?xt=urn:btih:2E5DA50A478468DBF048F68293B95B563B0A1552
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:2E5DA50A478468DBF048F68293B95B563B0A1552
 ```bash
 magnet:?xt=urn:btih:FA7ABE34ECE20D66971BAE97AA50E1313FD00CAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ VA - German TOP100 Single Charts 08.12.2017 (2017) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:C0AC217DAF0384D077B463EC12BFD21E8BC38641
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ VideoHive - Frosen | 12 Smart Transitions - 21076139 [AEP]
 ```bash
 magnet:?xt=urn:btih:721355A56FB43A72072C7205EE7C4CEF09BEC4D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ VA - По волне моей памяти 2: Том34 (Compiled by Виктор
 magnet:?xt=urn:btih:613EA4A0EC19C1D17290FBCC44E5D759814BB9DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:613EA4A0EC19C1D17290FBCC44E5D759814BB9DF
 ```bash
 magnet:?xt=urn:btih:1ADB2A90695ADF65F89FBE2AFC69E689E6DED92A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ Total Audio Converter - мощный конвертор всех музыкал�
 magnet:?xt=urn:btih:B752168D58D30E1827862AC0D0798E820AD9EA94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:B752168D58D30E1827862AC0D0798E820AD9EA94
 magnet:?xt=urn:btih:6FC123293146D4DB4E5E9F3CD3442394D0838729
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:6FC123293146D4DB4E5E9F3CD3442394D0838729
 ```bash
 magnet:?xt=urn:btih:574C26DA94554BAAA2E6CFCB885827638C341A03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:574C26DA94554BAAA2E6CFCB885827638C341A03
 magnet:?xt=urn:btih:818E482EF881BE67A983336D23117353ACF45607
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:818E482EF881BE67A983336D23117353ACF45607
 magnet:?xt=urn:btih:1B7042FA79982B0D1E38A0791FE38986FFB51D04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:1B7042FA79982B0D1E38A0791FE38986FFB51D04
 ```bash
 magnet:?xt=urn:btih:BFF84320BF2E25DEC90348E3D60E1C0824BA8D66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:BFF84320BF2E25DEC90348E3D60E1C0824BA8D66
 magnet:?xt=urn:btih:D1EE8E2A49206BAC43F3187F00FB3FEC9176156A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:D1EE8E2A49206BAC43F3187F00FB3FEC9176156A
 ```bash
 magnet:?xt=urn:btih:9D3432E42612BD96012898B266601DEBAC617E2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:9D3432E42612BD96012898B266601DEBAC617E2E
 magnet:?xt=urn:btih:AA8975708E3702A4978CB55DAAA02A189DD5BF85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ VideoHive - Confetti - 19545162 [MOV]
 magnet:?xt=urn:btih:27E2BB8C56AA5D348985E08911DE2DCB8DD49EC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ Elcomsoft Phone Breaker – универсальный инструмент дл
 ```bash
 magnet:?xt=urn:btih:2FF0DFB2E2FEF2A9589D11F69A725A9794E5A520
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +504,8 @@ Michael Logozar - Starlight (2017) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:1EA28A37F698FBECCAC2096772B7920AD0A458B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ Jeff Pearce - From the Darker Seasons (2017) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:A223761770FB7F6BA8280E62E01AB5CF3A8D2960
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ magnet:?xt=urn:btih:A223761770FB7F6BA8280E62E01AB5CF3A8D2960
 ```bash
 magnet:?xt=urn:btih:AA4FDB885DBBCE7F146616524278CFC7F33277C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ magnet:?xt=urn:btih:AA4FDB885DBBCE7F146616524278CFC7F33277C8
 magnet:?xt=urn:btih:20A5AD15D4696DD9D01E6E660C143EC59767143A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ magnet:?xt=urn:btih:20A5AD15D4696DD9D01E6E660C143EC59767143A
 magnet:?xt=urn:btih:27EC3588EE7189FB4EFEC164152C571CF569630A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +642,8 @@ magnet:?xt=urn:btih:27EC3588EE7189FB4EFEC164152C571CF569630A
 ```bash
 magnet:?xt=urn:btih:085A059D269516C84117DAF117C659656955A50A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +672,8 @@ magnet:?xt=urn:btih:085A059D269516C84117DAF117C659656955A50A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +698,8 @@ magnet:?xt=urn:btih:085A059D269516C84117DAF117C659656955A50A
 ```bash
 magnet:?xt=urn:btih:8B96ECF16A40A2044DB848F1776C5F0E7AE7BB08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

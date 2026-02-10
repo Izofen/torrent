@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:4D0A1A41D41A04B3BB6C54BB62064C8F949DD209
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:4D0A1A41D41A04B3BB6C54BB62064C8F949DD209
 ```bash
 magnet:?xt=urn:btih:D9447314D6AF93529458B18B703742221E2ED4FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:D9447314D6AF93529458B18B703742221E2ED4FD
 magnet:?xt=urn:btih:08FF43290627A8F2B4B512036801000B1B1CACF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:08FF43290627A8F2B4B512036801000B1B1CACF8
 magnet:?xt=urn:btih:9B9F2B7D71C480C0AD1ECC397D5714D87717BF96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ The Cure - 40 Live (Curaetion 25: From There To Here + Anniversary) (2018) BDRip
 ```bash
 magnet:?xt=urn:btih:A15EDB5496984DCBFD47B529DE4E89236734BC5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:A15EDB5496984DCBFD47B529DE4E89236734BC5F
 ```bash
 magnet:?xt=urn:btih:4B1409A8EE8DE863CC51733E135B149910035432
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -180,6 +192,8 @@ magnet:?xt=urn:btih:4B1409A8EE8DE863CC51733E135B149910035432
 magnet:?xt=urn:btih:32A0E68383E8B0615A8F7444C1A66F9B396611A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -206,6 +220,8 @@ magnet:?xt=urn:btih:32A0E68383E8B0615A8F7444C1A66F9B396611A0
 ```bash
 magnet:?xt=urn:btih:77C9A092074248AAF6C175EC83FC77594BE479CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -234,6 +250,8 @@ magnet:?xt=urn:btih:77C9A092074248AAF6C175EC83FC77594BE479CC
 magnet:?xt=urn:btih:A18177E04BEABC037A79E31BFCEAC7B3C7890CF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +277,8 @@ NO/НЕТ – «Не со мной» (ЧАЙФ Cover) 2022 [H.264/1080p]
 magnet:?xt=urn:btih:2FB47D8F27AD1E0A923FB5E77D046581C1123CF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +303,8 @@ SHAMAN – «До самого неба» (2022) WEBRip [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:98614D9C7355DDEA19B123CFBEF14D3EDF0702CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +334,8 @@ magnet:?xt=urn:btih:98614D9C7355DDEA19B123CFBEF14D3EDF0702CC
 magnet:?xt=urn:btih:E7B77AB72516018BB425FCDCB9C070E1D0031B5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +361,8 @@ Korn: Live at Montreux 2004 (2008) BDRip [H.264/1080p]
 magnet:?xt=urn:btih:10DAE8D4B338B33D599EA2374BBD93BA944B7083
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +386,8 @@ Metallica: Fan Can Six - Live in Copenhagen (2009) BDRip [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:1F4A2C5DB75A5BE65B29BCA49B3FDCAECF6BF893
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +416,8 @@ magnet:?xt=urn:btih:1F4A2C5DB75A5BE65B29BCA49B3FDCAECF6BF893
 magnet:?xt=urn:btih:AE36D67A435D354168FF70386B28ACAF510E0323
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +445,8 @@ magnet:?xt=urn:btih:AE36D67A435D354168FF70386B28ACAF510E0323
 magnet:?xt=urn:btih:7F4BE3788FD87C41E56FE8B80CA9805CF1026813
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +470,8 @@ magnet:?xt=urn:btih:7F4BE3788FD87C41E56FE8B80CA9805CF1026813
 ```bash
 magnet:?xt=urn:btih:9D8EAB983EF9F476B04D077470E95DBA3D600C29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +498,8 @@ magnet:?xt=urn:btih:9D8EAB983EF9F476B04D077470E95DBA3D600C29
 magnet:?xt=urn:btih:A86DC9415E8E806D3A6E88692015E42DBE6F2029
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +525,8 @@ magnet:?xt=urn:btih:A86DC9415E8E806D3A6E88692015E42DBE6F2029
 magnet:?xt=urn:btih:9D599C638ECC639CFDD0E2574F694FD644832057
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +550,8 @@ magnet:?xt=urn:btih:9D599C638ECC639CFDD0E2574F694FD644832057
 ```bash
 magnet:?xt=urn:btih:6B03A983FD1190E4B030E1683F45D3540CD7EE5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +581,8 @@ magnet:?xt=urn:btih:6B03A983FD1190E4B030E1683F45D3540CD7EE5F
 magnet:?xt=urn:btih:6A4BE504FB4C9D778EB349E2D5891E77D1EAC2FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +610,8 @@ IV Музыкальный образовательный форум Леонид
 magnet:?xt=urn:btih:79D3E4A2A896DDBAB1A1C6E934B9F89E247FC106
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +636,8 @@ magnet:?xt=urn:btih:79D3E4A2A896DDBAB1A1C6E934B9F89E247FC106
 ```bash
 magnet:?xt=urn:btih:0588372AD06182D7D0DC7FB68C98288F8D4CCD24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +666,8 @@ magnet:?xt=urn:btih:0588372AD06182D7D0DC7FB68C98288F8D4CCD24
 magnet:?xt=urn:btih:3D17D78748492A0FDD22ACA2ECB032D93F28973D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +694,8 @@ magnet:?xt=urn:btih:3D17D78748492A0FDD22ACA2ECB032D93F28973D
 ```bash
 magnet:?xt=urn:btih:D933749FAC315EBF4C8570084494F5F2F1E5E44C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -675,6 +725,8 @@ Two Steps From Hell - Europe Tour 2022 (2023) CamRip [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:AA9CCADF1848D099EB8CDDA3B8E26681160FB07D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

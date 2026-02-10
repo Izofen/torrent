@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@
 magnet:?xt=urn:btih:85DA227297BE5189075C79DBD0FCD70DF8E656B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Smart AudioBook Player Pro v10.6.4 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9C98A2BE51D9200EB971A499DAAD1954D2A2A50D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ GoodbyeDPI 0.2.2 Launcher 6.7 [Ru]
 magnet:?xt=urn:btih:8F638F22427251387B99729169A077487E78BB9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:8F638F22427251387B99729169A077487E78BB9E
 ```bash
 magnet:?xt=urn:btih:66B9367698ABDE7573B076FD2CC713B79414F0D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ Universe Sandbox ² — основанный на реальной физике 
 magnet:?xt=urn:btih:7554D74E51A80A4821B6318C38E796D1BCADF248
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:7554D74E51A80A4821B6318C38E796D1BCADF248
 ```bash
 magnet:?xt=urn:btih:08309B52817CFC654EAE5A800038F0E2C0EAE630
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:08309B52817CFC654EAE5A800038F0E2C0EAE630
 magnet:?xt=urn:btih:C572B1F4EFFBF158379A76F90413B9C057FD66C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:C572B1F4EFFBF158379A76F90413B9C057FD66C8
 ```bash
 magnet:?xt=urn:btih:5A827669C89A436CCDD1D1AE014512322F0CE5B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:5A827669C89A436CCDD1D1AE014512322F0CE5B3
 magnet:?xt=urn:btih:1110D4ED5AF8432DED0D2DED60F432F28BBDF736
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Cult of the Lamb v.1.3.5.214 (2022) [Multi/Ru] [macOS Native game]
 magnet:?xt=urn:btih:ADD13DC5EA1D199321E0E258B6445E4E22E4F936
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:ADD13DC5EA1D199321E0E258B6445E4E22E4F936
 ```bash
 magnet:?xt=urn:btih:ACA7EFD4C6A51096E86F54788AD8AD4C7BF52A09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:ACA7EFD4C6A51096E86F54788AD8AD4C7BF52A09
 magnet:?xt=urn:btih:ED506F70371759FD088B1E407BEDAC467484012F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:ED506F70371759FD088B1E407BEDAC467484012F
 ```bash
 magnet:?xt=urn:btih:D41DB3F5F4A3FBB16ABE02A78BCC19AC0CB6A49B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ Nickelback — канадская рок-группа, основанная в 1
 magnet:?xt=urn:btih:63AA1ACD4209DAC660AACEA2DA8438DD13010882
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:63AA1ACD4209DAC660AACEA2DA8438DD13010882
 ```bash
 magnet:?xt=urn:btih:A0A096F056146C8B37C9350AAFD7305A37F8BA7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:A0A096F056146C8B37C9350AAFD7305A37F8BA7B
 magnet:?xt=urn:btih:8D25B18B31684E120B91BDBB0D2D3EA33F0E3322
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ Succubus With Guns соответствует своему названию. И�
 magnet:?xt=urn:btih:9EDC4F76EE2A77FC00428CFAC8D14FF4FA46AFDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:9EDC4F76EE2A77FC00428CFAC8D14FF4FA46AFDE
 ```bash
 magnet:?xt=urn:btih:75077AAE72E6E5C81DA0F587AC52A08EF64D2BA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ John Coltrane Quartet With Red Garland - Complete Recordings (1957, 1958) 3CD, 2
 magnet:?xt=urn:btih:6424A4C56828AF99EF63D052DAFE5A35BDD6EDF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:6424A4C56828AF99EF63D052DAFE5A35BDD6EDF3
 ```bash
 magnet:?xt=urn:btih:D57CA209A437591C16269E120923A46A6A134D06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +580,8 @@ Pat Martino & Joyous Lake - Stone Blue (1998) Blue Note [FLAC|Lossless|tracks + 
 magnet:?xt=urn:btih:6F118D4732536DCA72FDE37BD1D7FE30667440C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +608,8 @@ Stranger Vision - Wasteland (2022) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:3A005E87D41CBB7BBC45BEB15C38BEF0405C4C9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +638,8 @@ Minuit 10 - Sans Bruit (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive R
 magnet:?xt=urn:btih:6EA4ABC0E76DCCAC78D5D2C640A5C7E06F2C7E3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +667,8 @@ magnet:?xt=urn:btih:6EA4ABC0E76DCCAC78D5D2C640A5C7E06F2C7E3C
 magnet:?xt=urn:btih:C06AD85DE935B5CB40FCFC43EA9D46BE6B657697
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ Al Grey & Bjarne Nerem - Al Meets Bjarne (1989) Gemini [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:21E3F1CD409494E193F558F6B71B1C836F04190E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

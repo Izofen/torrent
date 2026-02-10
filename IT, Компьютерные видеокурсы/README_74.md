@@ -19,6 +19,8 @@ Udemy, Dzianis Matveyenka | SQL (2022) WEB-DL [RU]
 magnet:?xt=urn:btih:68B526D3DCB0076DB6E26BF7CF4A994C3583C1C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:68B526D3DCB0076DB6E26BF7CF4A994C3583C1C4
 ```bash
 magnet:?xt=urn:btih:ED3A37CF83FDCC982A025AE3863FEEF18CD663C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:ED3A37CF83FDCC982A025AE3863FEEF18CD663C0
 magnet:?xt=urn:btih:3849DAA6418D87104CFB1D18DF46F40D283902A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ James Q Quick | React и Serverless - Fullstack разработка / React and
 ```bash
 magnet:?xt=urn:btih:F70AFAF5EE732E6C870BE5D1914ECA351659DE15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Coursera | IBM AI Engineering Professional Certificate (2021) PCRec [EN]
 magnet:?xt=urn:btih:3298910D448D2DF2C23EC4118EAF9106F4BB9AAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ OTUS | CI/CD на AWS, Azure и Gitlab (2020) PCRec
 magnet:?xt=urn:btih:7DCB75E6055A3A75860B19A60262FBA3054D05B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ Udemy | The Ultimate C# and Unity course for beginners (2021) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:C82060AE2B75E3DA11822C04A19A7F52E1B3E4AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ Pluralsight, Joe Abraham | Cisco Certified CyberOps Associate (CBROPS 200-201) (
 magnet:?xt=urn:btih:2D6CB4E3233A2EE7A40B2A1480E7744800C74710
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ Python-разработчик создаёт бэкенд сайтов: мозг
 ```bash
 magnet:?xt=urn:btih:33C59DE48FF704662B7FDD03CD45D249C9E676FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ OTUS | Fullstack разработчик JavaScript (2019) PCRec
 magnet:?xt=urn:btih:2131590282B75514350D1AC7EF50FE91A58B1D80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ Foxford | Курс программирования на Python для начи�
 ```bash
 magnet:?xt=urn:btih:73599CE30E6FADBC8DB282FABFC7FBE5100D0C1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:73599CE30E6FADBC8DB282FABFC7FBE5100D0C1B
 magnet:?xt=urn:btih:A4D93CF08272E58764E4131E1D29F635F39A5285
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ OTUS | PHP-разработчик. Часть 1 из 5 (2020) PCRec
 ```bash
 magnet:?xt=urn:btih:85761A17958F5D6B0E725D744F672B96DC262960
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ OTUS | PHP-разработчик. Часть 2 из 5 (2020) PCRec
 magnet:?xt=urn:btih:E46FBB652CA9ACD865567EFCA87F52ED6128CA4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:E46FBB652CA9ACD865567EFCA87F52ED6128CA4E
 ```bash
 magnet:?xt=urn:btih:E20BFDE5AFFED3A9AFE7CE8E0A05933E051DE3AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ BaseCode сводит написание читабельного кода к 10
 magnet:?xt=urn:btih:8AC984A0FD2E33E52A3F403D0FB8ED107186D99A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:8AC984A0FD2E33E52A3F403D0FB8ED107186D99A
 ```bash
 magnet:?xt=urn:btih:10201B21407771C50E0C1B8F2925EA3F2F92ADEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ Flutter стремительно захватывает рынок кроссп�
 magnet:?xt=urn:btih:1B5186DB074CB33B1C4755CF936905A600713826
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ FreePBX - это самое популярное и широко распрос�
 ```bash
 magnet:?xt=urn:btih:475A7AB7AF445537CB91F1445119631196D86B9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ Udemy, René Fürst | OpenVPN verstehen und einrichten – Sicher im Netzwerk (2
 magnet:?xt=urn:btih:E7713208A011D021C0A3936C0A832E1A649E6B5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:E7713208A011D021C0A3936C0A832E1A649E6B5E
 magnet:?xt=urn:btih:F199341D7CE557956AB3275CB59CD51A59A80E64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:F199341D7CE557956AB3275CB59CD51A59A80E64
 ```bash
 magnet:?xt=urn:btih:F2F99BA6125DA4E89463DB27E43E7093D6A5A2D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +613,8 @@ Geekbrains | FreeBSD. Администрирование серверов (2014)
 magnet:?xt=urn:btih:BF6AB41257D5DBBA9B34FE19A8863D2432EB4DFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ ITVDN | Видео курс Выполнение домашнего задани
 ```bash
 magnet:?xt=urn:btih:D4D3C9374C4A5CAA418050FEAA8189F42CB136EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +668,8 @@ HTML Academy | React. Разработка сложных клиентских �
 magnet:?xt=urn:btih:75F9058E473098266B9B7C2C8D5D44B33BAE0574
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +696,8 @@ TeamLead | Confluence. Базовый тренинг для администра
 ```bash
 magnet:?xt=urn:btih:64BA52845C673BD549BF97ED361866CC178D4F74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Shotcut - мощное кроссплатформенное приложение
 magnet:?xt=urn:btih:038B74B8AF094A4EDC20CA293B18366DF44AED3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:41028C8541088B7B1C8538536793F407FC3CF969
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Lightroom объединяет фотографии в «коллекции» �
 ```bash
 magnet:?xt=urn:btih:DEF6AC79B444A91C41D34445CA3A0821AFB2019A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Live синхронизирует все и работает в режиме р�
 magnet:?xt=urn:btih:4BF5BDE42FE9FA738A5574CA753EB79B52BEAD2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Wondershare Filmora - удобный видеоредактор, содержа�
 ```bash
 magnet:?xt=urn:btih:6297941F7D5102E703687E6F09858E3E65EF8DAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ DaVinci Resolve — единственное в мире решение для �
 magnet:?xt=urn:btih:6C6D88938794E00C8991F994821D5822FDF6944C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:A76355F26EC25A34D556FF4B227332D02DF28301
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Photo Pos Pro - популярный фоторедактор. В версии 3
 magnet:?xt=urn:btih:5B89D1C147611AA905F117078E408403BD45124A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Music Collection - неплохая программа для создания �
 ```bash
 magnet:?xt=urn:btih:12F497572AB84C9AA6370D0FE9E8715A821AB66B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Cover Commander позволяет создавать профессиональ
 magnet:?xt=urn:btih:DC250A600825EABEA77E5D95FDCC5BEC29B5C146
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:DC250A600825EABEA77E5D95FDCC5BEC29B5C146
 ```bash
 magnet:?xt=urn:btih:10DAFE25209EC9B44004E0D12BFB9BD81284F390
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Pulsar Modular Complete Effects Bundle 2025.8.22 VST 3, AAX (x64) RePack by TCD 
 magnet:?xt=urn:btih:D95B09937D757F7B9E7D954AC98755288FCFC04F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ kiloHearts Subscription дает вам мгновенный доступ ко �
 ```bash
 magnet:?xt=urn:btih:D0AB7240E68C870157FE80062D5DEE904A8E12CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Waves Complete V16 2025.08.20 VST 3, AAX, STANDALONE (x64) [En] (Online Installa
 magnet:?xt=urn:btih:A5D5659BC0A2145B2CB3B6490CD82FA1B04EAF08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Adobe Photoshop 2025 - новая версия программы для обр�
 ```bash
 magnet:?xt=urn:btih:A123283D90273EB9DE38EDF7B2A05956E1BD7ADA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ MuseScore — это бесплатный нотный редактор с от�
 magnet:?xt=urn:btih:5AD37F070D41FC450EF4ED967F85414E9FB87E1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Light Image Resizer - программа для изменения размер�
 ```bash
 magnet:?xt=urn:btih:F4C841697C8EF5E5129ABE869F674A4F61B3959E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ Polarr Photo Editor Pro 5.11.11 [Multi/Ru]
 magnet:?xt=urn:btih:7A1B9DA23D5F55B084CBB56C41E2ACAFC92CE671
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Adobe Photoshop 2025 - новая версия программы для обр�
 magnet:?xt=urn:btih:A9531BB29515B2D807FED4A386B437E8DE4B6756
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Mp3tag предоставляет пользователям мощный и п�
 ```bash
 magnet:?xt=urn:btih:46E6B843BDFD5D726390FB2D8145AF00B14F5B68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ MiniMeters представляет собой полезный инструме
 magnet:?xt=urn:btih:E863F720330FBE0C9099111A204E926810380481
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ XRecode 3 - популярный и мощный аудиоконвертер, �
 ```bash
 magnet:?xt=urn:btih:49F6A496FBB2EF6173EFAF969ED04A1E73185BC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:C4E57CFE1A5E5CAAF1C28EB2BFE47EE681FF35ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ ID Photos Pro — профессиональный инструмент для �
 ```bash
 magnet:?xt=urn:btih:B6C6F167B43AC310E91BADD1472DEAF737CA01D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ FastStone Photo Resizer - программа для различных мани�
 magnet:?xt=urn:btih:A37FE8CE314AF7F65EF663A5297EB28774D4D4F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Adobe Photoshop Lightroom Classic 2025 14.5.0.4 Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5FDA69BBEC258D1730B4ADD59F9C40D469BC86AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

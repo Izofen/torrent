@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:D0983FAEC565D70C18D4208AD09E60D3993F1370
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:D0983FAEC565D70C18D4208AD09E60D3993F1370
 ```bash
 magnet:?xt=urn:btih:90DA1F830DD1C552656DCA05074EAF32F3647D5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:90DA1F830DD1C552656DCA05074EAF32F3647D5C
 magnet:?xt=urn:btih:C20300CB01D34B0A9A2BA93B8AC78968C11F44ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:C20300CB01D34B0A9A2BA93B8AC78968C11F44ED
 ```bash
 magnet:?xt=urn:btih:F84A847A280B1100AF508426D00E1228BD01FAB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:F84A847A280B1100AF508426D00E1228BD01FAB1
 magnet:?xt=urn:btih:DBC208A5DFA86DC819B00E42FE338400E7AF7AA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:DBC208A5DFA86DC819B00E42FE338400E7AF7AA6
 ```bash
 magnet:?xt=urn:btih:E1E6D630DEF853E55A87162C39FDAA271B66A769
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:E1E6D630DEF853E55A87162C39FDAA271B66A769
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:E1E6D630DEF853E55A87162C39FDAA271B66A769
 ```bash
 magnet:?xt=urn:btih:C541C4C33EE5049338BE91B39DEFF7F45AF6B59B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:C541C4C33EE5049338BE91B39DEFF7F45AF6B59B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Nikolietta calligraphy, Варвара Пантелеева | Курс по ка
 magnet:?xt=urn:btih:07A575C892927883C9E757670B8C5DA14BE40ED2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:07A575C892927883C9E757670B8C5DA14BE40ED2
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:07A575C892927883C9E757670B8C5DA14BE40ED2
 magnet:?xt=urn:btih:8345051B2EE441D2E7752DFB2D01A3695F7ED237
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ Vinyl Sounds - Dream Lounge (2025) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Loun
 magnet:?xt=urn:btih:B955F9B8654E698EEB80D2A5725DB0A6C6B8AE31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:B955F9B8654E698EEB80D2A5725DB0A6C6B8AE31
 ```bash
 magnet:?xt=urn:btih:8F20E7998133A898D3696BBA351E5A782705050D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ The Salt Collective - 3 Albums (2023-2025) [MP3|320 Kbps] <Power-Pop, New-Wave, 
 magnet:?xt=urn:btih:91F07D5A9A1345B655C5E8445C4C0649F4899BA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ Sardø - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 ```bash
 magnet:?xt=urn:btih:CF89F61EF7EC00A5F79C58E35E904C319BBB0318
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ magnet:?xt=urn:btih:CF89F61EF7EC00A5F79C58E35E904C319BBB0318
 magnet:?xt=urn:btih:F7532DA64CFC2B87C026E47615BD35792E3BED76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ VA - No name compilation part 14 Instrumental, Other (2025) [MP3|320 Kbps] <Inst
 ```bash
 magnet:?xt=urn:btih:A15783D5C11D9F4519EADA9EF6286303765CD238
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +516,8 @@ AI - No name compilation part 12 Soulful Blues Ballad (2025) [MP3|320 Kbps] <Sou
 magnet:?xt=urn:btih:C486CCCD96F61A40EC5D8434E0485E5889CFA8B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +542,8 @@ ________________________________________________________________________________
 ```bash
 magnet:?xt=urn:btih:52231E32DE482DCCB6229D5EC1230AA41900974B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +572,8 @@ VA - No name compilation Deep Chill Vocal House part 13 (2025) [MP3|320 Kbps] <D
 magnet:?xt=urn:btih:5A7C965570D248BAAD7A8AB60065B6FA05F9BED4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +601,8 @@ VA - Purified Chronicles 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic 
 magnet:?xt=urn:btih:A7ACAC2BE99051328B5E455A73764A90E85157B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +627,8 @@ magnet:?xt=urn:btih:A7ACAC2BE99051328B5E455A73764A90E85157B3
 ```bash
 magnet:?xt=urn:btih:38745DF2C36530CC18926AAE98B0DC1B3810AE88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +656,8 @@ magnet:?xt=urn:btih:38745DF2C36530CC18926AAE98B0DC1B3810AE88
 magnet:?xt=urn:btih:42987A497C89E072C45285B932BA59C77123DF48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +683,8 @@ magnet:?xt=urn:btih:42987A497C89E072C45285B932BA59C77123DF48
 magnet:?xt=urn:btih:B249BB15D70EE77518D01C60E2A922A44F27FB9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +708,8 @@ magnet:?xt=urn:btih:B249BB15D70EE77518D01C60E2A922A44F27FB9C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

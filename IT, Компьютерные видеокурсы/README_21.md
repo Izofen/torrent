@@ -28,6 +28,8 @@ Yandex.ru | Курсы информационных технологий, Тре
 magnet:?xt=urn:btih:A08B19CD2523FE00FB4EC63F22E4943B7304FF33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ BigData Team, Алексей Драль, Артём Выборнов, Павел
 ```bash
 magnet:?xt=urn:btih:DBFEF4409E0AA782D650A01577AC8D121BEA34EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ Slurm (Слёрм), Виталий Филиппов и др. | Ceph (2022) WEB-D
 magnet:?xt=urn:btih:0B63B9A14AB7CDEE0CB2AB72741B373602E843FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ Voitixler, Екатерина Векслер | Практический онла
 ```bash
 magnet:?xt=urn:btih:33ED0F88E24568963FDB4DC26BA000D788E084F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +144,8 @@ WPCourses, Алейников Сергей | Как быстро и правил
 magnet:?xt=urn:btih:0416793041E8E8917CAEAB5922F411B899277492
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +172,8 @@ Slurm (Слёрм), Александр Лукьянченко, Георг Гаа
 magnet:?xt=urn:btih:12C43AF9AB0DC69BB235A1CB4C92ED5CB02FF2CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +199,8 @@ JS‑разработку здесь рассматривают в разных 
 magnet:?xt=urn:btih:7D82911A6A72AE2EA3E4AC92F2CF292C78216F99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Udemy, Christ Raharja | The Future of App Development: Text to App AI Generation
 ```bash
 magnet:?xt=urn:btih:0A791D5E4FCC781D09A59265679E2A7D5263756E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +252,8 @@ Lynda.com | Foundations of Programming: Code Efficiency (2013) PCRec [H.264/720p
 ```bash
 magnet:?xt=urn:btih:12BF49E0FE02204428099AEE438D88F51C2F8F91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +282,8 @@ ProfIT | PHP7 - что нужно знать уже сейчас (2015) PCRec [H
 magnet:?xt=urn:btih:4C8BB6B11EB739858BE9AB8C1C09ECE6A38166BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +309,8 @@ DevOps-инженер умеет программировать (   Читат�
 ```bash
 magnet:?xt=urn:btih:5E710372D5E9CB1FF6315627410BEC87B8BAAEB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +339,8 @@ Slurm (Слёрм), Роман Панин | Основы информацион�
 magnet:?xt=urn:btih:B7167AE28D9078E6DC6F111348C9C01F238EF942
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +367,8 @@ magnet:?xt=urn:btih:B7167AE28D9078E6DC6F111348C9C01F238EF942
 ```bash
 magnet:?xt=urn:btih:57361CC38016351E9E4C43D1CCDD211E7D2D0253
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +397,8 @@ Why you need this course(   Читать дальше...   )Производст
 magnet:?xt=urn:btih:A26B45FCF235760ABA9D171A84903B197EC47F4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +425,8 @@ Slurm (Слёрм), Иван Чувашов | DWH на основе GreenPlum (2
 ```bash
 magnet:?xt=urn:btih:0AEA5E14F8801660056CE65EC56D9426DD5A4022
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +455,8 @@ Thinknetica Pro, Алексей Матюшкин | Разработка на Eli
 magnet:?xt=urn:btih:EE2C81A2F0642E814F66CCDF962301B5BB537928
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +483,8 @@ JUG Ru Group | FrontendConf 2022 - Профессиональная конфер
 magnet:?xt=urn:btih:5BA9F6CA5B9A1F4DA733BAC9D386CB3D0819E7BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +508,8 @@ Udemy, Francis Gorman | AI Security Essentials (2023) WEB-DL [AD] [RU, EN / EN S
 ```bash
 magnet:?xt=urn:btih:C2B9D9678C26D2E626A2F0FC51A9BA4FFBAA8A64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +536,8 @@ OTUS, Владимир Кунаев | DevOps 1С. Автоматизация п�
 ```bash
 magnet:?xt=urn:btih:A859DF913F71B80896A81FB3E2A902859A23B8F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +566,8 @@ Skillshare, Paulo Dichone | Unlock AI: Master Prompt Engineering with ChatGPT (2
 magnet:?xt=urn:btih:19476825EE4DBEA51E0533FD63DB9D2D0897E424
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +595,8 @@ magnet:?xt=urn:btih:19476825EE4DBEA51E0533FD63DB9D2D0897E424
 magnet:?xt=urn:btih:F49E18CBD7094CE081B59951364A9D8183ED9358
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +623,8 @@ Software-testing.ru, Ольга Назина | Регулярные выраже
 magnet:?xt=urn:btih:D11CE9F7114F5D566DB93DE68F3B222CD8829B1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +648,8 @@ Udemy, Akhil Vydyula | The Complete 2023 SQL Bootcamp : Go from Zero to Hero (20
 ```bash
 magnet:?xt=urn:btih:10130F8AE7A65EB29A0FD6AE752DCDC2021CEAFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +678,8 @@ magnet:?xt=urn:btih:10130F8AE7A65EB29A0FD6AE752DCDC2021CEAFB
 magnet:?xt=urn:btih:30CDD4833C6DAA9CD44199EAAED8BEBA83F04B60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +707,8 @@ Merion Academy, Олег Филиппов | Основы реляционных 
 magnet:?xt=urn:btih:421DDC37151B089546B0EEDF08A91B44E6A9DE9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -684,6 +734,8 @@ Merion Academy, Олег Филиппов | Курс по NoSQL (2022) WEB-DL [R
 ```bash
 magnet:?xt=urn:btih:B0EC6FDACC414962B6726F647730DE7ABC9EF158
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

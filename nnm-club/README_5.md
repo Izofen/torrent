@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:F52F29C8C055420E0BB8D064797CEA463F8317EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Wartales - ролевое приключение в открытом мире, �
 ```bash
 magnet:?xt=urn:btih:47550133360A506BBCCE21F64E55D292CC9FAA27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:47550133360A506BBCCE21F64E55D292CC9FAA27
 magnet:?xt=urn:btih:3D752E9C7A333B23E04A62E58C120916BD81EF44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:3D752E9C7A333B23E04A62E58C120916BD81EF44
 ```bash
 magnet:?xt=urn:btih:CD7FFCBAA727F10B2B4940EB16E5DEA77C93ECDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Coromon – ролевое инди-приключение про прируче
 magnet:?xt=urn:btih:7F8FEE0BFDD99B37929494B5FDD931FFA37F49C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:7F8FEE0BFDD99B37929494B5FDD931FFA37F49C2
 ```bash
 magnet:?xt=urn:btih:0D57338F559145E38EECB28FD5DDFC1A923FAA4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Placid Plastic Duck Simulator (2022) [Ru/Multi] (2.2.0/dlc) Repack FitGirl [More
 magnet:?xt=urn:btih:A9FC4EE6BF7EC01BE78B3F17AA9BCE659E564C51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:A9FC4EE6BF7EC01BE78B3F17AA9BCE659E564C51
 ```bash
 magnet:?xt=urn:btih:167070826777E65DB06970010277B71C28A424A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:167070826777E65DB06970010277B71C28A424A4
 magnet:?xt=urn:btih:04F64D71FF44C52BB65085D86495C54224A9713B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Mage & Monsters 2 - это захватывающий активный авто-
 ```bash
 magnet:?xt=urn:btih:3B033FB938A95C03E32F8856F2C46DC09511AD4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:3B033FB938A95C03E32F8856F2C46DC09511AD4E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:3B033FB938A95C03E32F8856F2C46DC09511AD4E
 ```bash
 magnet:?xt=urn:btih:78C714952D5030C590036342F9C7B9BE468BFB24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28714) License GOG
 magnet:?xt=urn:btih:5AD2CB76441F307298CE356373D3DD5A7200689C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Tomb Raider: Лара Крофт / Tomb Raider (2018) BDRip [H.264/1080p] [3D]  
 ```bash
 magnet:?xt=urn:btih:DE02D70900982EA5267797C4237550FC16A64609
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ PixARK - это огромный мир дикой природы, злобны�
 magnet:?xt=urn:btih:25AB2E08A8205059057520C45BC96BEB92A67B6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ magnet:?xt=urn:btih:25AB2E08A8205059057520C45BC96BEB92A67B6F
 ```bash
 magnet:?xt=urn:btih:B16C9E031C16BFF031722CC4EBF8C8C5BE9D4DF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:B16C9E031C16BFF031722CC4EBF8C8C5BE9D4DF2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Wandering Sword - это уникальная РПГ с элементами к�
 ```bash
 magnet:?xt=urn:btih:8E1F6932897615EEC669D1B1372670FC5E44E9D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Rift of the NecroDancer (2025) [Ru/Multi] (1.8.0/dlc) Repack Let'sРlay [Ultimat
 magnet:?xt=urn:btih:0865150A6BDC50C52D67A637456659CF50649BE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ magnet:?xt=urn:btih:0865150A6BDC50C52D67A637456659CF50649BE5
 ```bash
 magnet:?xt=urn:btih:0CB8DE2E2BE745A77CE7CB62F677D09523B847A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ magnet:?xt=urn:btih:0CB8DE2E2BE745A77CE7CB62F677D09523B847A4
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Arctic Awakening - приключенческая игра от первого �
 ```bash
 magnet:?xt=urn:btih:E5DE0FDCCD9B4DF6F6186E45EBC97B300A815473
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ magnet:?xt=urn:btih:E5DE0FDCCD9B4DF6F6186E45EBC97B300A815473
 magnet:?xt=urn:btih:A82AB00D963A0AC67737919D0919CE327189A590
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ magnet:?xt=urn:btih:A82AB00D963A0AC67737919D0919CE327189A590
 ```bash
 magnet:?xt=urn:btih:3C1ADCECA68F8F111B42E03662DD37BE63775042
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ magnet:?xt=urn:btih:3C1ADCECA68F8F111B42E03662DD37BE63775042
 magnet:?xt=urn:btih:6BCF3F34AF1C3AC27C456512C4EC33F4700DC56D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ magnet:?xt=urn:btih:6BCF3F34AF1C3AC27C456512C4EC33F4700DC56D
 ```bash
 magnet:?xt=urn:btih:A12FE680244F4350DEB68BD0FBFBFD02B1E20C28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

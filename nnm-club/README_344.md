@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ House Flipper 2 (2023) [Ru/Multi] (1.9.1.1) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:B6C0BB7340ECECE86DD2D39ABAE6DC4CD1AADE8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Blood West (2023) [Ru/Multi] (4.5.0/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:06DC9010E07C46C92C0F8CDD74F927203A3FCE50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ RIPOUT — это хоррор-шутер с режимом совместной
 ```bash
 magnet:?xt=urn:btih:42B82CC86A5C1A75B46A3FE5966A98A33560486C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:42B82CC86A5C1A75B46A3FE5966A98A33560486C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:42B82CC86A5C1A75B46A3FE5966A98A33560486C
 ```bash
 magnet:?xt=urn:btih:1047F607896D4E5EA2E53C00BD136410E367C26D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Necrophosis - это хоррор-приключение от первого л�
 magnet:?xt=urn:btih:C1539A23A3C5D5422056DE7993F3495674F0C65C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:C1539A23A3C5D5422056DE7993F3495674F0C65C
 ```bash
 magnet:?xt=urn:btih:040110EAC9257D0539A2FF2A1E6E206B570A5BF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:040110EAC9257D0539A2FF2A1E6E206B570A5BF1
 magnet:?xt=urn:btih:40A73CEA1E45E8C4D02011BB26845456B096945F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Headquarters: World War II - это динамическая пошаговая 
 ```bash
 magnet:?xt=urn:btih:74C11DEF80EA9438CAD6439827E0318AB3B05918
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:74C11DEF80EA9438CAD6439827E0318AB3B05918
 magnet:?xt=urn:btih:080495BFDCB096894194D89D9EB2155E8430A097
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:080495BFDCB096894194D89D9EB2155E8430A097
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +330,8 @@ magnet:?xt=urn:btih:080495BFDCB096894194D89D9EB2155E8430A097
 ```bash
 magnet:?xt=urn:btih:D7E89FBF11053F86A05E8D47724B5C1E259A1FF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:D7E89FBF11053F86A05E8D47724B5C1E259A1FF0
 magnet:?xt=urn:btih:F492EEA1035177434AA59915614E65C9387B7C58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:F492EEA1035177434AA59915614E65C9387B7C58
 magnet:?xt=urn:btih:4EDC28F33AB889CD4E9F0E136327F1B0817A1733
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:62303B9B55054B13220174E888F92112602181A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:62303B9B55054B13220174E888F92112602181A6
 ```bash
 magnet:?xt=urn:btih:46D25CEC217B66E39DD4C6C991D8E6EFE15DFB86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ CD1:
 magnet:?xt=urn:btih:B69109374AC872D0035387CF514111EF1F2061A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:B69109374AC872D0035387CF514111EF1F2061A0
 ```bash
 magnet:?xt=urn:btih:19732219FF25BC4D9B43C79A375F5B5505C95962
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:19732219FF25BC4D9B43C79A375F5B5505C95962
 magnet:?xt=urn:btih:22AD3DDC0EFFCCEACA8EC237EE887DF28AB87FF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:22AD3DDC0EFFCCEACA8EC237EE887DF28AB87FF5
 ```bash
 magnet:?xt=urn:btih:B269B08A0BFAA9C802FF52E1ECC0B6A4AF5CA105
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ Synapz — это современный UI-комплект с темным р�
 magnet:?xt=urn:btih:CD227DED033226859C4AFE3FCD37638D42EC62DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:CD227DED033226859C4AFE3FCD37638D42EC62DF
 magnet:?xt=urn:btih:86FFB50AD8435C575BCF1719216A6FF98ED53E73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:014A714F9F0642EF28185032065646E1C7E5A64B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:014A714F9F0642EF28185032065646E1C7E5A64B
 magnet:?xt=urn:btih:CCC9115F14EC46C97C53114C994F54637C6DBA5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Motion Picture: Atmospheres  — ваш незаменимый помощник 
 ```bash
 magnet:?xt=urn:btih:607F13D6291A13FB4AA88CC8A18CFEC87C2632E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

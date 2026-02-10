@@ -19,6 +19,8 @@ Doom 3: BFG Edition (2012) [Ru/En] (22.07.2017/dlc) Repack R.G. Механики
 magnet:?xt=urn:btih:FEBC8728BD0B59D979167B965702D3DD22D8440E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:FEBC8728BD0B59D979167B965702D3DD22D8440E
 magnet:?xt=urn:btih:54D00336F6BA26B3318D7BC410D07875E1E2D2F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:54D00336F6BA26B3318D7BC410D07875E1E2D2F9
 ```bash
 magnet:?xt=urn:btih:07C9F7F4D6274397642C7516E5D6DD9A6BC0C776
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:07C9F7F4D6274397642C7516E5D6DD9A6BC0C776
 magnet:?xt=urn:btih:AF5E5C4D045CE7391E1BE16AB17E2DE27D0FC57B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:AF5E5C4D045CE7391E1BE16AB17E2DE27D0FC57B
 ```bash
 magnet:?xt=urn:btih:7B914F714EF1DFC71C3BB1A77EA660F37DCA5ED4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:7B914F714EF1DFC71C3BB1A77EA660F37DCA5ED4
 ```bash
 magnet:?xt=urn:btih:44E338B489939FAD34883E4B956856716FA8BBCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:44E338B489939FAD34883E4B956856716FA8BBCA
 magnet:?xt=urn:btih:1E17E307A613BB6D5521E8A16D5E16786BDA9B73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:1E17E307A613BB6D5521E8A16D5E16786BDA9B73
 magnet:?xt=urn:btih:A6037A7832E07CA61FA8EA03FCF0F04AE2BFE680
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:A6037A7832E07CA61FA8EA03FCF0F04AE2BFE680
 ```bash
 magnet:?xt=urn:btih:313E09CDF923F9A9A8EA944C7151609351057BF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:313E09CDF923F9A9A8EA944C7151609351057BF0
 magnet:?xt=urn:btih:C1F6816B148355F1B348EB2401220E7833F27D5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:C1F6816B148355F1B348EB2401220E7833F27D5E
 ```bash
 magnet:?xt=urn:btih:32FDF299E9CC777AB355E94BBA81514BDFE0BF3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:32FDF299E9CC777AB355E94BBA81514BDFE0BF3D
 magnet:?xt=urn:btih:45506B3EC708D0E53E1A5A18359E92903F2C5B42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:45506B3EC708D0E53E1A5A18359E92903F2C5B42
 ```bash
 magnet:?xt=urn:btih:97D3EB368DD5122D372FA2885A8247823684E7F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ Def Leppard — британская рок-группа из Шеффилда, 
 magnet:?xt=urn:btih:17A3E6C05BD35FAF7A8CA43B77BFF2687D59E61D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ Mass Effect: Andromeda (2017) [Ru/Multi] (1.10) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:D4DA08291001B9F654A7F3701A0C76BEE205C28C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:D4DA08291001B9F654A7F3701A0C76BEE205C28C
 magnet:?xt=urn:btih:0105B222511BBD4A615181669F5A5687A61ECE41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:0105B222511BBD4A615181669F5A5687A61ECE41
 ```bash
 magnet:?xt=urn:btih:3BC852BCB6CBF4BACBE6734940E676A87BB3423A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:3BC852BCB6CBF4BACBE6734940E676A87BB3423A
 magnet:?xt=urn:btih:7844E015366A5ADC9EB88CE04C6F76EAB5331E1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ magnet:?xt=urn:btih:7844E015366A5ADC9EB88CE04C6F76EAB5331E1D
 ```bash
 magnet:?xt=urn:btih:3BAE3CF64B57D604AB3B90F90293A4A5B72B3610
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:3BAE3CF64B57D604AB3B90F90293A4A5B72B3610
 magnet:?xt=urn:btih:2039893303835575991F1881AD39EBB54E1705E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ Atlantis Word Processor 4.3.9.5 Repack (& Portable) by elchupacabra [Ru/En]
 ```bash
 magnet:?xt=urn:btih:563A2C9772DE94C25E02A099D0041AB912425338
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:563A2C9772DE94C25E02A099D0041AB912425338
 magnet:?xt=urn:btih:5CBA7AB9B108DC8AE7630202AACD47C8FB0A0FDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ Spotify - клиент для прослушивания музыки на од�
 magnet:?xt=urn:btih:32012D4ED265CC815A98DF520FC4CE3DB4A13FF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:32012D4ED265CC815A98DF520FC4CE3DB4A13FF1
 ```bash
 magnet:?xt=urn:btih:B53878444EF48C941FFDEBD83F17708B632B4584
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ magnet:?xt=urn:btih:B53878444EF48C941FFDEBD83F17708B632B4584
 magnet:?xt=urn:btih:0D86D04623DFB9827C7DE52A713293E2F45CD7B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ VA - Music News vol.377 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:B1766E83D7CB8515AF923558D9C9E3743D1ACBBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

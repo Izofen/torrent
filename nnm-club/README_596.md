@@ -22,6 +22,8 @@ Il Divo - Siempre (2006) CD, Album [FLAC|Lossless|tracks + .cue] <Classical Cros
 magnet:?xt=urn:btih:DB371E7EECD5027599A5103902D57A6B4C476AB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Papik & Frankie Lovecchio - Memories (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:466CF28C8F6D44F0BBD820EA89104A6AA3606CBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:466CF28C8F6D44F0BBD820EA89104A6AA3606CBD
 magnet:?xt=urn:btih:CC86C7276D2C861B29E03060B1E448F12A761334
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Susannah McCorkle - From Broken Hearts To Blue Skies (1999) Concord Jazz [FLAC|L
 magnet:?xt=urn:btih:E82BE448D39A967365AEF094FE0E3BE16750652A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:E82BE448D39A967365AEF094FE0E3BE16750652A
 ```bash
 magnet:?xt=urn:btih:D9B4F19B1420B4436D519EDFC662ECBA6FFCBE03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ VA - Chillhop Timezones Nigeria (2025) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 magnet:?xt=urn:btih:ED4943E0A6371F9572358613DABDE52F685E3147
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +193,8 @@ The Haunted — шведская метал-группа, образованна
 magnet:?xt=urn:btih:0E6A41A02A90592DB453FBFC9A7DC3223DD67D3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ magnet:?xt=urn:btih:0E6A41A02A90592DB453FBFC9A7DC3223DD67D3E
 magnet:?xt=urn:btih:F46A62DB6CD3BB2008733D7A6A5DE1297872C630
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ magnet:?xt=urn:btih:F46A62DB6CD3BB2008733D7A6A5DE1297872C630
 ```bash
 magnet:?xt=urn:btih:43DF63335D7179A9D0FCB49AA29FCB8345D302E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +274,8 @@ Ennio Morricone - Morricone Conducts Morricone (2025) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:B37C11D6560017E91CEE4A53BF6380CAA148381C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +299,8 @@ magnet:?xt=urn:btih:B37C11D6560017E91CEE4A53BF6380CAA148381C
 ```bash
 magnet:?xt=urn:btih:68A794F42D615C934BC33886004361D342BC301A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +326,8 @@ aCalendar+ Calendar & Tasks v2.9.1 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:A547ECEF46FF6BCF75B648A20F51962DA9011DCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:A547ECEF46FF6BCF75B648A20F51962DA9011DCD
 ```bash
 magnet:?xt=urn:btih:5683FC958B7503A79E2FBFDE6626C2B513262891
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ magnet:?xt=urn:btih:5683FC958B7503A79E2FBFDE6626C2B513262891
 ```bash
 magnet:?xt=urn:btih:3681172F8AC3C97CA8B4A576445E329897D94E48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +409,8 @@ VA - Music News For Forum vol.097 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:278AD291E6409F9ED0C7FCE44AE39DB9F00B4997
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +435,8 @@ magnet:?xt=urn:btih:278AD291E6409F9ED0C7FCE44AE39DB9F00B4997
 magnet:?xt=urn:btih:03AA24000C5621703A24FB1E3F98815459E78B5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +460,8 @@ magnet:?xt=urn:btih:03AA24000C5621703A24FB1E3F98815459E78B5A
 ```bash
 magnet:?xt=urn:btih:C6317BE8F9CC575D2C550C3E2F3FA5D47AF73744
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +490,8 @@ VA - Compilation Part 166 Electronic (2025) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:095F3D7C5452F30AADDB8ED49BBBB34A98893F37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +516,8 @@ magnet:?xt=urn:btih:095F3D7C5452F30AADDB8ED49BBBB34A98893F37
 magnet:?xt=urn:btih:A020D4CE1A972AD9E921D10733EF8B1D191C86A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ magnet:?xt=urn:btih:A020D4CE1A972AD9E921D10733EF8B1D191C86A5
 ```bash
 magnet:?xt=urn:btih:19CCBB40968E5ED11D7146DE8B8E1D442AA89036
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +571,8 @@ VA - Intimacy 2 (2025) [MP3|320 Kbps] <Easy Listening, Chillout>
 magnet:?xt=urn:btih:89737F3F80E8B1C474C96AC195A5638DBE0B927C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +596,8 @@ magnet:?xt=urn:btih:89737F3F80E8B1C474C96AC195A5638DBE0B927C
 ```bash
 magnet:?xt=urn:btih:F276ACF5319B0B88F236F10FCC8582BD4F11CC8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +624,8 @@ magnet:?xt=urn:btih:F276ACF5319B0B88F236F10FCC8582BD4F11CC8D
 magnet:?xt=urn:btih:612B8620D1D6B9BD10B6F7EF349D6997E0BCEC7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ magnet:?xt=urn:btih:612B8620D1D6B9BD10B6F7EF349D6997E0BCEC7A
 ```bash
 magnet:?xt=urn:btih:6EDDD4D89BBB94559BB9A1DC9BC6BFD1657A38DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +680,8 @@ Paul McCartney - McCartney II (1980) Japanese Edition, SHM-CD, Reissue, Remaster
 magnet:?xt=urn:btih:A67F5DD758A5BEC6115AE77540A248AFF52F8274
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +708,8 @@ VA - Musical kaleidoscope part 41 Assorted (2025) [MP3|320 Kbps] <Electronic, In
 ```bash
 magnet:?xt=urn:btih:4822B42BE5DF5D79F805E356B3D2A19377216236
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

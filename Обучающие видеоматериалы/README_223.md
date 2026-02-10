@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:06F7E01A4756AEF92B4EF013CA430926CBDAADE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ magnet:?xt=urn:btih:06F7E01A4756AEF92B4EF013CA430926CBDAADE5
 magnet:?xt=urn:btih:5D827F1510EA6904B11ADCE08143C0A50030350E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:5D827F1510EA6904B11ADCE08143C0A50030350E
 ```bash
 magnet:?xt=urn:btih:74F76CFBE5A290011A66F28EA696EA6D14A664BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:74F76CFBE5A290011A66F28EA696EA6D14A664BC
 magnet:?xt=urn:btih:DF5230FEC866F1C1568A44152195392439A477FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:DF5230FEC866F1C1568A44152195392439A477FC
 ```bash
 magnet:?xt=urn:btih:F5432C9A559EE9DEB6F8080B720B6F9F8B1CD92F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:F5432C9A559EE9DEB6F8080B720B6F9F8B1CD92F
 magnet:?xt=urn:btih:65E8514BE6C21C31308F4846513F353CF75BF794
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:65E8514BE6C21C31308F4846513F353CF75BF794
 ```bash
 magnet:?xt=urn:btih:02BF8BBD9DA51D25B73CCDB65FADB1C1E6B27A4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:02BF8BBD9DA51D25B73CCDB65FADB1C1E6B27A4E
 magnet:?xt=urn:btih:6AAD14C46B1700E5C367B38B27385720D3E5B42C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ GeekBrains | Тестировщик ПО (2019) PCRec [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:0E9AF0D5D1D331A3BD35C21379B506304CE802F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:0E9AF0D5D1D331A3BD35C21379B506304CE802F8
 magnet:?xt=urn:btih:A09F30B0D56DBA8266B132769A5B12ADA4741071
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:A09F30B0D56DBA8266B132769A5B12ADA4741071
 magnet:?xt=urn:btih:AEDD07D2993A8AD6A2D8FA9810B9F03251A462A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ CG Masters | Полное создание автомобиля в Blender / Com
 magnet:?xt=urn:btih:9E6503F1E597F9DA79650A64497F005CA9E4771B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ DVD приложения (6 DVD) к серии книг «Хирургическ
 ```bash
 magnet:?xt=urn:btih:6568C2B84A5D2C98972747D9080C6221EE001900
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:6568C2B84A5D2C98972747D9080C6221EE001900
 magnet:?xt=urn:btih:199080B0DF3C1CAE9B5D5A45A81DAFA29965058A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:199080B0DF3C1CAE9B5D5A45A81DAFA29965058A
 ```bash
 magnet:?xt=urn:btih:E8AC95AAABF62B89FFA0B433A95704BFCBC102AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ Frontend-разработчик создаёт интерфейсы, с кото
 ```bash
 magnet:?xt=urn:btih:44A6A16E8DC0D6E4212E00C5743F68EC8AACBE95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ GeekUniversity | Факультет информационной безопас�
 magnet:?xt=urn:btih:14ED3B91E961E68CAAF2ACB6F6AF4391CE90331D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ GeekUniversity | Факультет информационной безопас�
 ```bash
 magnet:?xt=urn:btih:1936108CFA3C4DEA32C3EF4BF52528702FD0C9F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +516,8 @@ GeekUniversity | Факультет информационной безопас�
 magnet:?xt=urn:btih:48062D69320835C55AE4E7F457F3B6F0EBB87782
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ GeekUniversity | Факультет информационной безопас�
 ```bash
 magnet:?xt=urn:btih:1D61D882D173F70339DF11104E9A4785B91650B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +569,8 @@ Udemy, Daniel Orchard | Vehicles in Unreal Engine 4 (2020) PCRec [EN / EN Sub]
 magnet:?xt=urn:btih:09B08F1039E32D77BAF4674C47881CF2B22AA19D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +596,8 @@ Udemy, Santiago Pereira Carrasco | Vector Displacement in Blender (2021) PCRec [
 magnet:?xt=urn:btih:29A64D1287753B5CB0B5F467A3DC409341582654
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +621,8 @@ PhLearn | Photo Editing 101-301 (2017) TS [H.264/720p] [EN]
 ```bash
 magnet:?xt=urn:btih:5E07E2D874D5A695665DA6EFA9B05F3FFDE51A19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +649,8 @@ magnet:?xt=urn:btih:5E07E2D874D5A695665DA6EFA9B05F3FFDE51A19
 magnet:?xt=urn:btih:DF5ACFB080FC804639448E83C616A742740BDCBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +674,8 @@ CG Masters | Моделирование и Текстурирование Авт
 ```bash
 magnet:?xt=urn:btih:A20926DC2DD89C96D48DD9145F659BC8EDDB7332
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -652,6 +702,8 @@ Blender Foundations | Blenderella, Моделирование Персонажа
 ```bash
 magnet:?xt=urn:btih:211671ABF9B5E1AE33C515E263F3B659367DD54B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

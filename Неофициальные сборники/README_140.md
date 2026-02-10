@@ -28,6 +28,8 @@ VA - Soul of Ibiza Volume 29 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Tr
 magnet:?xt=urn:btih:8A3052498A1627E3BB3164A03008FD67A68DA80E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -61,6 +63,8 @@ VA - Клубные Новинки Vol.71 from AGR (2012) [MP3|320 кб/с]<Club
 magnet:?xt=urn:btih:0AC0250107A961789D95C12D0054CA5E21F343E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -86,6 +90,8 @@ VA - Клубный Танцпол Лето Vol.1 (2012) [MP3|320 кб/с]<Club,
 ```bash
 magnet:?xt=urn:btih:E2AC36B3F9C54D8B31B0D296D4C259570EA9CD4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +126,8 @@ VA - Seashore Desire #26 (2012) [MP3|320 кб/с]<Uplifting Trance, Dream Trance
 magnet:?xt=urn:btih:C06AFEE905140CD8E92B68B22762222DA1E88DDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +160,8 @@ VA - Seashore Desire #25 (2012) [MP3|320 кб/с]<Uplifting Trance, Dream Trance
 ```bash
 magnet:?xt=urn:btih:F65BFD04E4A5ABEDBCCF25995CAB9FA79F998BE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -186,6 +196,8 @@ VA - Top Club Hits Vol.5 (2012) [MP3|320 кб/с]<Dance, Club>
 magnet:?xt=urn:btih:F1BFAAB0815F38EAD8D3BFAA7D39A8BC8F5909D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +230,8 @@ VA - Двигай Попой 50\50 (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:7C7C90C820D5210FD1AF1D24AE4052A4B4120D2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +266,8 @@ CD 1 Время звучания: 01:15:37
 magnet:?xt=urn:btih:A944B80FBC6B7C80189D26916351ADC2FBF12302
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +300,8 @@ VA - Готовься к Лету: СуперМегаДискотека (2012) [
 ```bash
 magnet:?xt=urn:btih:738EAFB0918CE6E8B693BD84033037C80DFF033B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +336,8 @@ VA - Новинки Радио Шансон Часть 12 (2012) [MP3|256 кб/�
 magnet:?xt=urn:btih:32256FA8CF6E77A2787524DF3D65C9B9F0FDFF27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +370,8 @@ VA - Шоферской Хит - Лучшие Из Лучших (2012) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:BB1E01A0036EDFAA92CD065B60C86A4B452991DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +406,8 @@ VA - Пиратская Станция Часть 13 (2012) [MP3|256 кб/с]<Po
 magnet:?xt=urn:btih:1EBB5F70A58861F035D9DAB0020B1D66294225B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +440,8 @@ VA - Новые Хиты Дискотек (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:ED2E7097939499DB7B764CF08EB7CE0CE040C1E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +476,8 @@ VA - Клубный Танцпол Vol.1 (2012) [MP3|320 кб/с]<Dance, Club>
 magnet:?xt=urn:btih:8C1864BCEB07F891135C33B7310024BB01E6DD36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +510,8 @@ VA - Return To Space (2009) [MP3|224 кб/с]<Spacesynth>
 ```bash
 magnet:?xt=urn:btih:31309DEF129252BF822DD17E1E3E91E69B1437B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +546,8 @@ VA - Клубный Хит в Машину! Vol.1 (2012) [MP3|320 кб/с]<Dance
 magnet:?xt=urn:btih:23587A09C11746AB2404814DD123E34810AD4AD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +581,8 @@ VA - Лучшие Хиты Радио Дача Часть 8 (2012) [MP3|256 кб
 magnet:?xt=urn:btih:11FEAAE8A02F87A7C0C4B856A499AF7A60FC068F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +609,8 @@ Sons of Ashes - Favorites Collection (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:EE5B16607C18EDA9E588954BFD000997EB0FFA33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +639,8 @@ Enlly Blue - Favorites Collection (2025) [MP3|320 Kbps] <Blues, Blues Rock, AI>
 magnet:?xt=urn:btih:58CD7661271FE351EBE60EA89741D832C2509C71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +667,8 @@ Ilaria Argento - Favorites Collection (2025) [MP3|320 Kbps] <Blues, Blues Rock, 
 ```bash
 magnet:?xt=urn:btih:977A7918720C70217673582F9F13C11743347E50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -657,6 +697,8 @@ Ilaria Argento - Assorted (2025) [MP3|320 Kbps] <Pop, Dance,  rock, Other, AI>
 magnet:?xt=urn:btih:D107DEA50122377FE4C1368B5DDE166753864003
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -680,6 +722,8 @@ VA - Песни Великой Победы (10CD) (2012) [MP3|320 кб/с]<Ре
 ```bash
 magnet:?xt=urn:btih:68139F67A9D024CF579DF4D6CC9D56DE43CE5304
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -714,6 +758,8 @@ VA - Клубные Новинки Vol.74 from AGR (2012) [MP3|320 кб/с]<Club
 magnet:?xt=urn:btih:495E045C8CE4253C8BE7132FF757B665CCBC343F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -746,6 +792,8 @@ VA - Русские Новинки Vol.51 from AGR (2012) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:25832DF06FACA3E5489EC2DBCAC4369D37CA527A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -780,6 +828,8 @@ VA - Maxi. Танцевальный расколбас Europa Plus (2012) [MP3|3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -812,6 +862,8 @@ VA - Новинки Авто Дискотек 50\50 (2012) [MP3|256 кб/с]<Pop
 ```bash
 magnet:?xt=urn:btih:4AD9056138B1371726F5F954FAFE254278ABE897
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

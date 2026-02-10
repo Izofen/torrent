@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:98C8FA7F9D85B4CAF96819E0238E042ADBE5A113
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Duplicate Cleaner - мощный и профессиональный инстр�
 ```bash
 magnet:?xt=urn:btih:E041705387FFFEEA700B124A82D486C283DBE8E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ AIDA64 - является мощным средством для идентиф�
 magnet:?xt=urn:btih:5CEE8083E71DCABCD1E4CEB9B6B50CF6EB810EFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:638152969E7FC90C91061B8C83C9FA4D21A522AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ PortableApps.com Platform - это функциональная платформ
 magnet:?xt=urn:btih:CC7608392E9DEE5F543E218D7970078E62823CA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Fort Firewall - простой и бесплатный брандмауэр дл
 magnet:?xt=urn:btih:924C19FE2E415051D56DD09AD82FA5794983E5C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ HandBrake - бесплатный видео конвертер с открыты
 ```bash
 magnet:?xt=urn:btih:15FA05418D2DDC430E4D263FBDD8CDB08379ADBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Ashampoo Photo Optimizer 10.0.0.19 RePack (& Portable) by elchupacabra [Multi/Ru
 magnet:?xt=urn:btih:63FA3FDCF3B3EA21D76D330691B358E89BED034D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ SoundSwitch — легко переключаемся между звуковы�
 magnet:?xt=urn:btih:55896E8310441DA75A2F4E0DC322C9F91A47C3F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Freeplane – создание ментальных карт в настояще
 ```bash
 magnet:?xt=urn:btih:54608CDD0E6B39A0B3964E4A905BA85902B7EE98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 magnet:?xt=urn:btih:2F4684E6371A384CE27C43C0DD5E4345C84AA7D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Total Uninstall - утилита, предназначенная для корр
 magnet:?xt=urn:btih:7BE5DF0B203C9791FA9EB492D027F9FCF4C26ACB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ MediaHuman YouTube Downloader 3.9.9.87 (1221) RePack (& Portable) by elchupacabr
 ```bash
 magnet:?xt=urn:btih:9E5C18F233CFDAFF9131EE6C0C08F521ECE92947
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Media Player Classic - BE – универсальный проигрывате�
 magnet:?xt=urn:btih:98566E725012D3F6D87C56898AF57A315F1BA4A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ CUETools - это программа, которая служит для пре�
 magnet:?xt=urn:btih:2C4F6B5E910421F7842C99416DA7E5646424E559
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Avidemux - небольшой, простой редактор для работ
 ```bash
 magnet:?xt=urn:btih:727A45362FE13C3D07BE43771F92F9BA73403DAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ Total Commander 11.02 native by Ziabrev [Ru/En]
 magnet:?xt=urn:btih:7365A2D55B25E6668423C8B2DBAC8C6E4D84EA37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ FastStone Capture - мощная и многофункциональная пр
 ```bash
 magnet:?xt=urn:btih:FD8D3783BAC2DD605F6CADB8EFFBEDC7578E73B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ Zoom Player - мощный, гибкий и настраиваемый DVD/Blu-r
 magnet:?xt=urn:btih:F88EFD544C942D34BD1272166A60341E6C3EA79D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ JetBrains CLion — интеллектуальная среда разработ
 ```bash
 magnet:?xt=urn:btih:E37CFD505293E016F5788BED9B2B777E0130CD1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ VRadio - Online Radio App v2.5.10 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:CAE1E15EAE3820C6FD801B4C23331BA3970FAE65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ Adobe Photoshop 2024 - новая версия программы для обр�
 ```bash
 magnet:?xt=urn:btih:5EB6ADFE4CB3785C468F7D04BE863C1FFE8EAC09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ Tearmoon Teikoku Monogatari | Tearmoon Empire | Хроники империи Т
 magnet:?xt=urn:btih:8C366C2ED186591FAF2E36A19038D7D4C334D008
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:8A8FB927BB3DB1BB1D7E6B637907DDA1386B1EE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ FastStone Capture представляет собой довольно мощн�
 magnet:?xt=urn:btih:63497E1599D0202A165BD70A69A7D4395A1A3D22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Ocenaudio — аудиоредактор, распространяемый ав�
 ```bash
 magnet:?xt=urn:btih:A0BFB5F8AFB45D5E6D55DA6EE7A3E9FDBA8E4D67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

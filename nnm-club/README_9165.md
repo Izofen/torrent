@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:F146EE959313E54068D7A7BED2BD3DDAA97E0884
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:F146EE959313E54068D7A7BED2BD3DDAA97E0884
 ```bash
 magnet:?xt=urn:btih:081798D159A388C0BEC964D05692E9DA5A140829
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -77,6 +81,8 @@ Duke Ellington - The Legendary Duke Ellington (18 Legendary Performances) (1981)
 magnet:?xt=urn:btih:C7B10C0EAEA63C600B4E8C8B68B53D0E2210F340
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ The Beatles - The Beatles Box Set [2010 г., Rock] (2010) [AAC|192-320 kbps] <Ro
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ Far Cry 5 (2018) [Ru/Multi] (1.011/dlc) License CODEX [Gold Edition]
 magnet:?xt=urn:btih:3D60FD514D2AC91A6ED214A8CE8530244B7B4BA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ WolfensteinII: The New Colossus — долгожданное продолжен�
 ```bash
 magnet:?xt=urn:btih:6CA4D95F0A4FB41583493D66C6B03C35CB216A05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ Wolfenstein II: The New Colossus / Wolfenstein 2: The New Colossus (2017) [Ru/Mu
 magnet:?xt=urn:btih:CC2886075803869FDFF0C83926A5742A3F3393C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ Final Fantasy XV / Final Fantasy 15 (2018) [Ru/Multi] (1.0.1213041/dlc) Repack x
 ```bash
 magnet:?xt=urn:btih:8281BC12FAE193BBB770AE6470BB7A33D0144E1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:8281BC12FAE193BBB770AE6470BB7A33D0144E1A
 magnet:?xt=urn:btih:B5828F8AB151803BD834CFC731EF6F8EA55BA28C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:B5828F8AB151803BD834CFC731EF6F8EA55BA28C
 ```bash
 magnet:?xt=urn:btih:3B385AC0E826360FED8502167DEC26E02FB12BAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ Ingress: The Animation | Ингресс [2018, ONA, 11 эпизодов] WEBRip 
 magnet:?xt=urn:btih:E396EABDB35870299C85178723C510EF8B03751D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ Call of Misery лучшая графическая модификация, ко�
 ```bash
 magnet:?xt=urn:btih:E8C5B86A96C2FE44B3BAAAF6AFEDB22E09807865
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:E8C5B86A96C2FE44B3BAAAF6AFEDB22E09807865
 magnet:?xt=urn:btih:86C78DCC8727CEBE377AFCCE721FF27EE3621C4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ Nexus 2 – популярный ромплер, разработанный ко
 ```bash
 magnet:?xt=urn:btih:BEB2BB2AF43027433D67567949F3E767EE061A0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:BEB2BB2AF43027433D67567949F3E767EE061A0F
 magnet:?xt=urn:btih:E7CB271818CDFE8CEDFFF2AA87EE58B3BE5E88B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:E7CB271818CDFE8CEDFFF2AA87EE58B3BE5E88B0
 ```bash
 magnet:?xt=urn:btih:D6A1C9536BDBE134BF917EF255F50B0FBBE3E66F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:D6A1C9536BDBE134BF917EF255F50B0FBBE3E66F
 magnet:?xt=urn:btih:99C687820C38276AB65E69AC6DEA39061B351D92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:99C687820C38276AB65E69AC6DEA39061B351D92
 ```bash
 magnet:?xt=urn:btih:48A04D84B5E278E5754A8E67CEBBCDD2731370A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:48A04D84B5E278E5754A8E67CEBBCDD2731370A9
 magnet:?xt=urn:btih:F7FC56DD09F2654EB5A50DDE000535523A1DC8C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ Acronis True Image — это интегрированный пакет прог
 ```bash
 magnet:?xt=urn:btih:CE1BE7AE9B2D4F7780F7D530B084C27499FF1AC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:CE1BE7AE9B2D4F7780F7D530B084C27499FF1AC3
 magnet:?xt=urn:btih:E308B33B48032DA3E6F34DB89634ED4C8C2AB458
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:E308B33B48032DA3E6F34DB89634ED4C8C2AB458
 ```bash
 magnet:?xt=urn:btih:B7D70A7A5E072332ABA0B553EC41BC421089FD2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:B7D70A7A5E072332ABA0B553EC41BC421089FD2D
 magnet:?xt=urn:btih:84790E0111B2E3F59FF12EA2D22919930388CC08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:84790E0111B2E3F59FF12EA2D22919930388CC08
 ```bash
 magnet:?xt=urn:btih:B00B270CA806DFA3DE7DBD57DB4B7DD946064E1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:B00B270CA806DFA3DE7DBD57DB4B7DD946064E1E
 magnet:?xt=urn:btih:B73AE4331D2EDC5D680217195FFF70866316EF50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Wedding - это проект, который идеально подходит 
 ```bash
 magnet:?xt=urn:btih:EF0C3F9102FF31E77C51D2B794CCACF80C4E2809
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

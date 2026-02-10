@@ -21,6 +21,8 @@ Udemy, Михаил Непомнящий | Тестирование JavaScript �
 magnet:?xt=urn:btih:313C6A9438DE711D7981A9C5C61AA4AA100CA063
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Galactic Simulator - это игра-кликер, основанная на п�
 ```bash
 magnet:?xt=urn:btih:DA54D0D83D9C3318D2EC1F2CCC2613D562C0C59A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:184FE620D27785537D161527B2C564CA65687C96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:184FE620D27785537D161527B2C564CA65687C96
 ```bash
 magnet:?xt=urn:btih:30A0A17116C687E6B0FCCCBE76DC8F8AE30DC43B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:30A0A17116C687E6B0FCCCBE76DC8F8AE30DC43B
 magnet:?xt=urn:btih:2AAF2B583F48AF1494CC534E86D3180DD221FDC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:2AAF2B583F48AF1494CC534E86D3180DD221FDC8
 ```bash
 magnet:?xt=urn:btih:949F2691624A78C4130073EBE85A5DF422E412C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:949F2691624A78C4130073EBE85A5DF422E412C1
 magnet:?xt=urn:btih:215206A3895EDD471BA38E9F68758961F9DA5B90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:215206A3895EDD471BA38E9F68758961F9DA5B90
 ```bash
 magnet:?xt=urn:btih:CADB5A6B805D102AD58BC27D54BCE0ECC86995EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:CADB5A6B805D102AD58BC27D54BCE0ECC86995EF
 magnet:?xt=urn:btih:63AF63D4737F6DFBA86860925740EEC2BD732DBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Windows 11 - это серия операционных систем, разра
 ```bash
 magnet:?xt=urn:btih:B04439313BE6E670B8D28F629AAC11EF8AC0828B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:B04439313BE6E670B8D28F629AAC11EF8AC0828B
 magnet:?xt=urn:btih:DCD70324811CA8208CC8CCD85AEC2DA5117D2A3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:DCD70324811CA8208CC8CCD85AEC2DA5117D2A3C
 ```bash
 magnet:?xt=urn:btih:DC5EA95DC5B9C97432B3CED90FFBEBBB06309E45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:DC5EA95DC5B9C97432B3CED90FFBEBBB06309E45
 magnet:?xt=urn:btih:FC451E04A18A42C95DB64ED8B2842A9489649233
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:FC451E04A18A42C95DB64ED8B2842A9489649233
 ```bash
 magnet:?xt=urn:btih:9E62E4ECCCBBC473016B659678CA607C4EF9ABDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:9E62E4ECCCBBC473016B659678CA607C4EF9ABDB
 magnet:?xt=urn:btih:6CCD1108F563D856B699FC586BE8041216D3F3D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:6CCD1108F563D856B699FC586BE8041216D3F3D6
 ```bash
 magnet:?xt=urn:btih:49A8FD23A7B0D3A04FA5D9D4AA71234033272FA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ Silent Hunter 5: Battle of the Atlantic (2010) [Ru] (1.2.0) Repack xatab
 magnet:?xt=urn:btih:F617D7ABDF4D447AFBE94DAC8D63BF314FF3C973
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:F617D7ABDF4D447AFBE94DAC8D63BF314FF3C973
 ```bash
 magnet:?xt=urn:btih:A575818D48496BDAE806A7A07661543DAF64A744
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:A575818D48496BDAE806A7A07661543DAF64A744
 magnet:?xt=urn:btih:478D13B1A8C10BB2BE4D884D898A3F6C533A6DF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:478D13B1A8C10BB2BE4D884D898A3F6C533A6DF8
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:478D13B1A8C10BB2BE4D884D898A3F6C533A6DF8
 ```bash
 magnet:?xt=urn:btih:DA6E6E31969DEE110C163F852755E48939B7AFF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ GetAnalyst | Проектирование БД - подходы к решени�
 magnet:?xt=urn:btih:66B12B886AF327A61238D1B964AD1EBBC505E367
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:BB6C52540FCD1F4802601E11C9C36A71E7E2B446
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:BB6C52540FCD1F4802601E11C9C36A71E7E2B446
 magnet:?xt=urn:btih:B818CEFA6FBE2EC9CB123F1E42AE8F865832335C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:B818CEFA6FBE2EC9CB123F1E42AE8F865832335C
 magnet:?xt=urn:btih:D463760AA32CAE4955BE74467664FA7C42B6D008
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ magnet:?xt=urn:btih:D463760AA32CAE4955BE74467664FA7C42B6D008
 ```bash
 magnet:?xt=urn:btih:C66F155C7ABC7C0482E76A8421DDE25DB5106BC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

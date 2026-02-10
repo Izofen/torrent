@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:F16998A11F94E812A27B67173CA362D9CB171EB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ VA - Words Matter LP (2012) [MP3|320 kbps]<Drum and Bass>
 magnet:?xt=urn:btih:11B8DCEADEC99BC0CD0A52F44D8083A7CEA093B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:11B8DCEADEC99BC0CD0A52F44D8083A7CEA093B9
 magnet:?xt=urn:btih:1C91DD7A3F51196CED1D53A9536ABD9C5A2F02A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Sumatra PDF - легкий просмотрщик PDF, DjVu, XPS, CBR, CBZ -фа
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ Sumatra PDF - легкий просмотрщик PDF, DjVu, XPS, CBR, CBZ -фа
 magnet:?xt=urn:btih:23F8D0E8B1EF5BB9F99D9E4618EDAD16EBD9FF6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:23F8D0E8B1EF5BB9F99D9E4618EDAD16EBD9FF6C
 ```bash
 magnet:?xt=urn:btih:FE36B36E109BBA9176D7EA44DE3CF1788900A9F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:FE36B36E109BBA9176D7EA44DE3CF1788900A9F3
 magnet:?xt=urn:btih:4B71AE4568C66FD3B4CDC2AB91867EC25A496F77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:4B71AE4568C66FD3B4CDC2AB91867EC25A496F77
 ```bash
 magnet:?xt=urn:btih:DD932A234E1C4BEC51BAE56E1A0D66D3FE77BD96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -233,6 +249,8 @@ magnet:?xt=urn:btih:DD932A234E1C4BEC51BAE56E1A0D66D3FE77BD96
 magnet:?xt=urn:btih:CA74A5B3A3C8C2F54148809ACB5FB31BCDD5019E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +274,8 @@ magnet:?xt=urn:btih:CA74A5B3A3C8C2F54148809ACB5FB31BCDD5019E
 ```bash
 magnet:?xt=urn:btih:95514AAB7315F95E9A620873BFAE2974A1418B85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -281,6 +301,8 @@ magnet:?xt=urn:btih:95514AAB7315F95E9A620873BFAE2974A1418B85
 magnet:?xt=urn:btih:ACF39E5D1B9517D06BAEE3C10749D4C1B64A564A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ magnet:?xt=urn:btih:ACF39E5D1B9517D06BAEE3C10749D4C1B64A564A
 ```bash
 magnet:?xt=urn:btih:11708C33410DAD227BD9297ECE8272EB92FF376A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -329,6 +353,8 @@ VA - 100 Удачных Новинок Русский (2012) [MP3|256 kbps]<Pop>
 magnet:?xt=urn:btih:BA59C43F682E233D8204098B9755FFCFC732491B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +379,8 @@ magnet:?xt=urn:btih:BA59C43F682E233D8204098B9755FFCFC732491B
 magnet:?xt=urn:btih:99FC44C2545D3F40923F715EF6EB699F5AA4906E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ magnet:?xt=urn:btih:99FC44C2545D3F40923F715EF6EB699F5AA4906E
 ```bash
 magnet:?xt=urn:btih:7BB0E1BAA779975179DE7C1837D86755B75D62D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +440,8 @@ Technicolour - FabricLive Bukem In Session (2012) [MP3|320 кб/с]<Drum and Bas
 magnet:?xt=urn:btih:5A0B8C3F67E76CE9C5C9C28E1D1DE39CF0FC5CCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +465,8 @@ magnet:?xt=urn:btih:5A0B8C3F67E76CE9C5C9C28E1D1DE39CF0FC5CCD
 ```bash
 magnet:?xt=urn:btih:9DA1054313CD93CB6417FCE1AD23A6DD6A5C6F53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +492,8 @@ magnet:?xt=urn:btih:9DA1054313CD93CB6417FCE1AD23A6DD6A5C6F53
 magnet:?xt=urn:btih:FD959A6AF70DE2372867979E63094EB4AAF7B191
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +518,8 @@ magnet:?xt=urn:btih:FD959A6AF70DE2372867979E63094EB4AAF7B191
 magnet:?xt=urn:btih:AC50B1A549783C8AE4A8F4B6AAE2C02577CB9138
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +543,8 @@ magnet:?xt=urn:btih:AC50B1A549783C8AE4A8F4B6AAE2C02577CB9138
 ```bash
 magnet:?xt=urn:btih:9E9D3C50300BC7045A06F0F0C0BE06431EEDDFC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +579,8 @@ VA - Wine Lovers Vintage (2010) [MP3|-V0 ~245 кб/с]<Lounge, Jazz, Soul>
 magnet:?xt=urn:btih:5FFA317FE5F68BFF2A189601E73B52958F521026
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +614,8 @@ VA - Лучшие зимние Хиты Года русский (2012) [MP3|256 
 magnet:?xt=urn:btih:26D219225C80D33AE111F0081E8CA71DCF322F3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +639,8 @@ Jennifer Lopez - Papi (2012) [H.264/720р] WEBRip
 ```bash
 magnet:?xt=urn:btih:9DFEC854F1E52385ABC4C109A18061EB38AD34BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +666,8 @@ magnet:?xt=urn:btih:9DFEC854F1E52385ABC4C109A18061EB38AD34BC
 magnet:?xt=urn:btih:F8E27671A3671A0FBFA2836D3371166BA455D369
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +691,8 @@ magnet:?xt=urn:btih:F8E27671A3671A0FBFA2836D3371166BA455D369
 ```bash
 magnet:?xt=urn:btih:F6A05287BE74E18E8614FFB002E26C26E28772B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -668,6 +718,8 @@ magnet:?xt=urn:btih:F6A05287BE74E18E8614FFB002E26C26E28772B1
 ```bash
 magnet:?xt=urn:btih:6324B6FF2FAFC82165E63E3EDDE5D3C5C9FEA8CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

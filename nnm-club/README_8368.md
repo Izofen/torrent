@@ -23,6 +23,8 @@
 magnet:?xt=urn:btih:F1CF9D2833EA7106DA8B7C2CED4FF963E4470BB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:F1CF9D2833EA7106DA8B7C2CED4FF963E4470BB5
 ```bash
 magnet:?xt=urn:btih:32FCDE5EC1D8D1531604C329F5B817D5716B6521
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:32FCDE5EC1D8D1531604C329F5B817D5716B6521
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:32FCDE5EC1D8D1531604C329F5B817D5716B6521
 ```bash
 magnet:?xt=urn:btih:4406F07883BA0CCCF11738AA5C182359774E7ACB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:4406F07883BA0CCCF11738AA5C182359774E7ACB
 ```bash
 magnet:?xt=urn:btih:7E125A62D8BCDCBCB7D19E1F78A2F1F1C813C643
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ VA - Armin van Buuren - A State Of Trance 1250 (2025) [MP3|320 Kbps] <Trance, Pr
 magnet:?xt=urn:btih:EC36ECB5EFDA2ACDD19EE8274DD78CE6A0CBE7CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:EC36ECB5EFDA2ACDD19EE8274DD78CE6A0CBE7CE
 magnet:?xt=urn:btih:EEB0E7C84781B988C946E2D3286C8CD9F99FEB08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:EEB0E7C84781B988C946E2D3286C8CD9F99FEB08
 ```bash
 magnet:?xt=urn:btih:3820291749F7F99BF4BE6F92D83E5A17B238E6B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ VA - Ori Uplift - Uplifting Only Episode 665 (2025) [MP3|320 Kbps] <Trance, Upli
 magnet:?xt=urn:btih:7685A29BFDA1EE0DB83C98049824EA93EBD24F81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:7685A29BFDA1EE0DB83C98049824EA93EBD24F81
 magnet:?xt=urn:btih:196616460FC590AFC8D2328DD02541D06382098D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:196616460FC590AFC8D2328DD02541D06382098D
 ```bash
 magnet:?xt=urn:btih:2EDC00BC06B14EC6EEFDC0F63F5EE75FCAB8E276
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ VA - No name compilation part 2 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 magnet:?xt=urn:btih:457BFDFBA2CF764FF91BB432A0AAFC4C4C55D532
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ VA - No name compilation part 3 (2025) [MP3|320 Kbps] <Electronic, Vocal, Easy l
 ```bash
 magnet:?xt=urn:btih:52B42DCE26B88B9606AB05A45A94A3CD733ABB6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +381,8 @@ VA - Live @ Amsterdam Music Festival, Johan Cruijff ArenA, ADE, Netherlands (202
 magnet:?xt=urn:btih:A2FE5B03451CDE68BA8FB31138E119388A607FAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ magnet:?xt=urn:btih:A2FE5B03451CDE68BA8FB31138E119388A607FAA
 ```bash
 magnet:?xt=urn:btih:FD7A27419A00D4AE92AE7DE7B915893DF67BCC34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +437,8 @@ Juno Skye - Favorites Collection (2025) [MP3|320 Kbps] <Vocal,  Easy listening, 
 magnet:?xt=urn:btih:67D5C7F09BED31587AF0717033AEF4BEB81E7C34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ magnet:?xt=urn:btih:67D5C7F09BED31587AF0717033AEF4BEB81E7C34
 ```bash
 magnet:?xt=urn:btih:8E151D42D49D5DE3BB6533472334FF965D85CD71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +492,8 @@ VA - L’Amour Fané Compilation (2025) [MP3|320 Kbps] <Vocal, Easy listening, 
 magnet:?xt=urn:btih:3508D047E0CCD0971FFCD5DA72356935F08C9107
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +517,8 @@ magnet:?xt=urn:btih:3508D047E0CCD0971FFCD5DA72356935F08C9107
 ```bash
 magnet:?xt=urn:btih:AA5F05FFF55834B15E369482E1AF5F04DABE4D12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +546,8 @@ magnet:?xt=urn:btih:AA5F05FFF55834B15E369482E1AF5F04DABE4D12
 magnet:?xt=urn:btih:F30646092FD259DC788DBDA968A11967E740D8FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +571,8 @@ magnet:?xt=urn:btih:F30646092FD259DC788DBDA968A11967E740D8FB
 ```bash
 magnet:?xt=urn:btih:BBF638A37D630074DE932C37A2C2FD76D44CAA03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +599,8 @@ magnet:?xt=urn:btih:BBF638A37D630074DE932C37A2C2FD76D44CAA03
 magnet:?xt=urn:btih:85383621ED0F404384C61F9FD38E9AEC9797C8B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ magnet:?xt=urn:btih:85383621ED0F404384C61F9FD38E9AEC9797C8B9
 magnet:?xt=urn:btih:F70899BDC22147CF8E2B1D920C561FBF2F15313A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ magnet:?xt=urn:btih:F70899BDC22147CF8E2B1D920C561FBF2F15313A
 ```bash
 magnet:?xt=urn:btih:BA91F87C72E891E70447040CF6F7156D9708C5BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +678,8 @@ magnet:?xt=urn:btih:BA91F87C72E891E70447040CF6F7156D9708C5BC
 magnet:?xt=urn:btih:F99BFE4DEF15A30E33CDA9027BFB4068D604EB68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ B3DSERK с гордостью представляет скульптуру Га
 ```bash
 magnet:?xt=urn:btih:9B5C4F8CF02AD0B0F2E84D5BA7C76154E5EB52CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

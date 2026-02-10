@@ -19,6 +19,8 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip [H.2
 magnet:?xt=urn:btih:514B3F84F57E1D3E2D9EBF8C2506E4490DC6F158
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:514B3F84F57E1D3E2D9EBF8C2506E4490DC6F158
 ```bash
 magnet:?xt=urn:btih:31B390445E34CD739390D7818D75657518ADBA9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NG: Разгадка тайн Мачу-Пикчу / Machu Picchu Decoded (Ghosts
 magnet:?xt=urn:btih:C8A459BA040C5F7BB761AE567903369575CDF731
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Discovery. Как работают машины / Machines: How They Work (2016)
 ```bash
 magnet:?xt=urn:btih:6D95F70C6FACBA16CDC69D747FD2195949DA9F94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ BBC. Земля: Один потрясающий день / Earth: One Amazing D
 magnet:?xt=urn:btih:70F93D6C85837A83B2ACE7953ADF7EC328BAB867
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Discovery: Техногеника. Луноходы и марсоходы (2017)
 ```bash
 magnet:?xt=urn:btih:6D63D87212E05DA4F0C40EFFD5AEFDA89469E4DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Discovery: Техногеника. Рекордные локомотивы (2017
 magnet:?xt=urn:btih:A6701768ADD7D6E376F847D876A1800EC100B74D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Discovery: Техногеника. БТА. Телескоп-гигант (2017) 
 ```bash
 magnet:?xt=urn:btih:ED009D33872C5EB73EA709A2551D2546CAC4341A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ BBC. Кошачьи тайны / Cat Watch 2014: The New Horizon Experiment (Cat
 magnet:?xt=urn:btih:2BB0E0B0CCC8C974323DDD51FBFAF10864DD154D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ NGW: Хищники Африки / Africa's Deadliest (2011-2016) HDTV [H.264/10
 ```bash
 magnet:?xt=urn:btih:6014E446AE6818F2CEC0FB1796D192D3DADDB244
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ NGW: Животные без правил / Animals Gone Wild (2015) HDTVRip [H.
 magnet:?xt=urn:btih:7B9F24A4138BFEB21DED591670B67BD1A994D33D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ NGW: Орлы / The Eagles (2014) HDTV [H.264/1080i-LQ]
 ```bash
 magnet:?xt=urn:btih:CE0396D461571D38A3A5E518BBA226190F111189
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ NGW: Амазонская электрическая рыба / Amazon's electri
 magnet:?xt=urn:btih:F28A51DF6AAA7951691881BACDE3FFECF84521C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ NGW: Морские котики-убийцы / Killer seals (2017) HDTV [H.264/
 ```bash
 magnet:?xt=urn:btih:9D714707F425BFBBC482F82C0FBD0588E5C78C83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ NGW: Короли убийства / Kings of the Kill (2017) HDTV [H.264/1080i-
 magnet:?xt=urn:btih:94D8D6C083115AC6596E317BCEFCCFFA6683A9FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ NGW: Животные 24 часа / Animal 24 (2017) HDTV [H.264/1080i-LQ]
 ```bash
 magnet:?xt=urn:btih:C433AA2404169C7C418878C3283AEE2000722AE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ NG: Живая Земля / X-Ray Earth (Faszination Erde) (2011) BDRip [H.264/7
 magnet:?xt=urn:btih:886421B781325D7C1E2005DB1C58E5ABB35D565D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ NG. Осушить океан: глубокое погружение. Сокро
 magnet:?xt=urn:btih:BF90AD84791B9F3AA58B686D8B332A714000B6C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +486,8 @@ Discovery. Тело человека: Грани возможного / Human Bo
 ```bash
 magnet:?xt=urn:btih:B0D6D79DF894C2D6776D06ADDE8166998EE1743F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ NGW: Дикая природа Филиппин / Untamed Philippines (2018) DVB
 magnet:?xt=urn:btih:63C475ABCC2580D8C3FBC51DB13C46EB0616FD0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ BBC: Ядовитые укусы - смерть или спасение / Venom 
 ```bash
 magnet:?xt=urn:btih:DAC3C5A9DECFC1D25218953C59FED0A1211BEC25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ NGW: Удивительные пауки / Incredible spiders (2015) HDTV [H.264
 magnet:?xt=urn:btih:718EF449375D45C7C439EEB66DB95CEFFDCA94FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ magnet:?xt=urn:btih:718EF449375D45C7C439EEB66DB95CEFFDCA94FA
 ```bash
 magnet:?xt=urn:btih:480000F5BB6FF9FCEDF640AF7F0874BF202E2E57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ Discovery: Встреча с инопланетянами / Alien Encounters (20
 magnet:?xt=urn:btih:E1A4838071C9B469BA9DC2E14B6376A27130F2F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ Discovery. World's TOP 5. Super Planes / Пятёрка лучших. Супер
 magnet:?xt=urn:btih:49A3239A159269430AEB68479626E5BDB184EE73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ BBC: Невидимые города Италии / Italy's Invisible Cities (20
 ```bash
 magnet:?xt=urn:btih:596F2B3A6393F7623A42FEFDE0928E0EFDC6CA4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

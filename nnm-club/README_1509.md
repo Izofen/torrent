@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:AD5BD18A04A898AC854C96049248AD598D285133
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Rufus - небольшая утилита помогает отформатир�
 ```bash
 magnet:?xt=urn:btih:940E6EE06796FB4EE632A8C943DC7F7ED4004351
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:940E6EE06796FB4EE632A8C943DC7F7ED4004351
 magnet:?xt=urn:btih:A020211407D0A1BDB1602661DF1F715C2593C618
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:A020211407D0A1BDB1602661DF1F715C2593C618
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Road 96: Mile 0 - приключение с сильным упором на п�
 magnet:?xt=urn:btih:854ACB775F328A15D1AD4AB333CF5CCEB31A324D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:854ACB775F328A15D1AD4AB333CF5CCEB31A324D
 ```bash
 magnet:?xt=urn:btih:80533A9A16A801928D74600961906AB712717EED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:80533A9A16A801928D74600961906AB712717EED
 magnet:?xt=urn:btih:5089AA8BA81AF0C9170F23DEBDCE0531894EA3ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ AIDA64 - является мощным средством для идентиф�
 ```bash
 magnet:?xt=urn:btih:93A98720C67FBEF66FE158829B4CE16CEE562B17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:93A98720C67FBEF66FE158829B4CE16CEE562B17
 magnet:?xt=urn:btih:06106A7B03C661B2E37657102066756C682526CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:8C471DDE05340F40180FCA30BD36B9863E93D316
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ magnet:?xt=urn:btih:8C471DDE05340F40180FCA30BD36B9863E93D316
 ```bash
 magnet:?xt=urn:btih:CC22501C4A33518B8490BD6E7682512B91A8B509
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:CC22501C4A33518B8490BD6E7682512B91A8B509
 magnet:?xt=urn:btih:973F2CB38546BAEE641DE5161FB0CE951A2135E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:973F2CB38546BAEE641DE5161FB0CE951A2135E7
 ```bash
 magnet:?xt=urn:btih:12F5FE5622539BFFC64A0B1439B2569D855F64E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ AIMP – проигрыватель, включающий в себя множе
 magnet:?xt=urn:btih:97B0793CEBD6F35C2C13B97C9E7A73E994F2F7F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:97B0793CEBD6F35C2C13B97C9E7A73E994F2F7F1
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:97B0793CEBD6F35C2C13B97C9E7A73E994F2F7F1
 magnet:?xt=urn:btih:719042EB2CC35197CC00C3340FF9B5E6D062FEED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ AIDA64 - утилита является мощным средством для 
 ```bash
 magnet:?xt=urn:btih:111AB406489984E44489DA4C3421C69A3E97303A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:111AB406489984E44489DA4C3421C69A3E97303A
 magnet:?xt=urn:btih:F462676D8224FFC9375CB3507B6A9E9FE8A09AF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:F462676D8224FFC9375CB3507B6A9E9FE8A09AF1
 ```bash
 magnet:?xt=urn:btih:CD62D30B5A6952EF7011604F8E2EA188A3A6411A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ magnet:?xt=urn:btih:CD62D30B5A6952EF7011604F8E2EA188A3A6411A
 magnet:?xt=urn:btih:A7B1364F4EC60F1BC3A6D67AC4495E4706478BB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ magnet:?xt=urn:btih:A7B1364F4EC60F1BC3A6D67AC4495E4706478BB1
 ```bash
 magnet:?xt=urn:btih:5D36B0923D377B18FEB201B6B6414978D79A058F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ Deejay Laura - Euphoria (2013) [FLAC|Lossless|tracks] <Pop Trance, Scouse House>
 ```bash
 magnet:?xt=urn:btih:55ED3C11C8D647087C07319530D15EDDB3E99C79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Bobbie Dazzle - Fandabidozi (2024) [FLAC|Lossless|image + .cue] <Progressive, Ps
 magnet:?xt=urn:btih:15C5603B472152DA9EFF06008ACC10813B3BAB7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Showaddywaddy - 20 Greatest Hits (1992) [FLAC|Lossless|image + .cue] <Rock, Pop,
 ```bash
 magnet:?xt=urn:btih:ADA4EB17F53DB2F706E8DA09856F179A31452FCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ Europica - Part Two (2024) [FLAC|Lossless|image + .cue] <Heavy Metal, Folk Rock>
 magnet:?xt=urn:btih:4B7E22296F5982A59DF894D85FD08161739ECF06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ Nasty Savage - Jeopardy Room (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:812FD3A6D3F669DC6DAD0DE6D613DFCEB74888DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

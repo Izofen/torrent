@@ -19,6 +19,8 @@ Stray Souls (2023) [Ru/Multi] (1.0) Scene Rune
 magnet:?xt=urn:btih:58DC7C9D5250429461FCBFC9580323FD14B0E547
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Realpolitiks II (2021) [Ru/Multi] (1.09) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:2C528AF7E3854E7F9DC90644C1E8322ABDB2B679
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Chorus (2021) [Ru/Multi] (Build 7785124) Repack Other s
 magnet:?xt=urn:btih:C041C9A8E2338E635930091440D82A0E70384BBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Christmas Spirit 4: Journey Before Christmas (2020) [En] (1.0) Unofficial [C
 ```bash
 magnet:?xt=urn:btih:1B84F17DFAB5C0345978263DEC91BB16D78E86FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Counter Terrorist Agency (2019) [Ru/Multi] (1.0.1) Repack R.G. Механики
 magnet:?xt=urn:btih:AECBF766D8593A96ADC1F6C2E7B0560B434C07DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Happy's Humble Burger Farm (2021) [Ru/Multi] (1.16.0) License GOG
 ```bash
 magnet:?xt=urn:btih:3F9354533CE2E09BFF3B987B367F08266D44BD7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ The Dungeon Of Naheulbeuk: The Amulet Of Chaos (2020) [Ru/Multi] (1.4.51.41549/d
 magnet:?xt=urn:btih:C4F5D8447F1E659A926FD744F74B424B5A161358
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Skeletal Avenger (2021) [Ru/Multi] (1.0.6.4) License GOG
 ```bash
 magnet:?xt=urn:btih:BD7124D41866C26CBBC09B89947D7BCC5F79E411
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ City of Stories: Stephan's Journey (2023) [En] (1.0) Unofficial [Collector's Edi
 magnet:?xt=urn:btih:D4497C5EC70C198569DAA25C28861FBB411A07E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ En Garde! (2023) [Multi] (1.0.5) Scene Rune
 ```bash
 magnet:?xt=urn:btih:1F8FC12B9459BE422C7E22D0EFEBA85C68E5D8C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ WWE 2K23 – это симулятор профессионального рес
 magnet:?xt=urn:btih:FB2305CDF0FBDB5CD2A2197A96AFD848AD6FAB5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Under the Waves – это повествовательная приключен
 ```bash
 magnet:?xt=urn:btih:2CE204A751DA055C23D3F04E6EDA5FEB406F95F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Shadow Gambit: The Cursed Crew (2023) [Ru/Multi] (1.1.28r39001f) Scene Rune
 magnet:?xt=urn:btih:A06B21A22304534D30742148B6792C285AB188AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Gloomy Tales 2: One-Way Ticket / Мрачные истории 2: Билет в 
 ```bash
 magnet:?xt=urn:btih:BDBE331BE3D00ECA07B45589FA3AC9B822F9BF11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Fears to Fathom: Ironbark Lookout (2023) [Ru/Multi] (1.3) Scene Tenoke
 magnet:?xt=urn:btih:5111E608BF2F7DB1CE637FCF8292209008E06124
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Hero Survival - это игра, в которой вы будете истре�
 ```bash
 magnet:?xt=urn:btih:00EBEFAECA8D9E0F424340E67192CC2F58A1F2A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ The Gap - это душещипательная история человека,
 magnet:?xt=urn:btih:AF758B34602795A1DC38FFEA933FD21DE70C0CAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Freaky Trip (2023) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:F402C355A6079005CF5482D760F8FDEA01B4153F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2013) [Ru/Multi] (
 magnet:?xt=urn:btih:0652785604DEB443E76922299CFC8BA207F419F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Vlad Circus: Descend into Madness (2023) [Ru/Multi] (2.34) License GOG
 ```bash
 magnet:?xt=urn:btih:B128678B347D6705D094AF55EBC5FD9475459721
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Lair of Torment - это короткий инди-хоррор с голово�
 magnet:?xt=urn:btih:A5E3631DC60BF832C656EF7DE793336ACC48C919
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Crowns and Pawns: Kingdom of Deceit (2022) [Ru/Multi] (1.1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:B2A461ED71A179AA2E228575C0C641A585A5F7B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Wargroove 2 (2023) [Ru/Multi] (1.2.3) Scene Tenoke
 magnet:?xt=urn:btih:F8E720FC29579EAE4E56F6B0EC42299B39969DAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Space Wreck - пошаговое приключение, события кото
 ```bash
 magnet:?xt=urn:btih:ABE6974DB7FBDAEBA57A2E7EB8B64AB6373F4F67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Hexarchy - стратегическая игра в быстром темпе. �
 magnet:?xt=urn:btih:ABDA78301A9AAFF04FB218D6FD3F68F391AD2870
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Savant - Ascent REMIX предлагает отправиться в захва�
 ```bash
 magnet:?xt=urn:btih:AF1161BCE9B11D52417A0E73F0C6600E6A9AA96D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

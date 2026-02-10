@@ -1,3 +1,29 @@
+###  Публикация: 1282145   (746547) от 11.02.2019
+
+Свято-Смоленская Зосимова мужская пустынь (изд.) | Православный календарь на 2019 год. Икона на каждый день (2018) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иллюстрированный иконами на каждый день православный календарь на 2019 год с указанием (и пояснением) двунадесятых и великих праздников, cплошных седмиц, дней особого поминовения усопших, многодневных и однодневных постов.Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB89BBB4EE391935AAB54199436E8C6890F4CEEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282028   (746557) от 11.02.2019
 
 Боб Дилан | Хроники (2017) [PDF, FB2, EPUB]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:63E06F7ECBE056129926ED7AF22D0B7D25A097C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:63E06F7ECBE056129926ED7AF22D0B7D25A097C9
 magnet:?xt=urn:btih:AF3223178433235E546CC97E8EC68860593B303C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:AF3223178433235E546CC97E8EC68860593B303C
 ```bash
 magnet:?xt=urn:btih:953AD3E53950E5153389A18BF329EF8AFC1A6046
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:953AD3E53950E5153389A18BF329EF8AFC1A6046
 magnet:?xt=urn:btih:B9CFBC5D2A39CFE2351AE7FA9D1148DF37F582E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:B9CFBC5D2A39CFE2351AE7FA9D1148DF37F582E0
 ```bash
 magnet:?xt=urn:btih:3D0F791D22BF8A6B7E56DF95F138AF868D944D3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:3D0F791D22BF8A6B7E56DF95F138AF868D944D3A
 magnet:?xt=urn:btih:7E6DF62F1DC1D4017081F57E2E5725A590451CD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:7E6DF62F1DC1D4017081F57E2E5725A590451CD2
 magnet:?xt=urn:btih:CDCEE19DFF34A01D0EEAD4162A62A7CC89B22456
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:CDCEE19DFF34A01D0EEAD4162A62A7CC89B22456
 ```bash
 magnet:?xt=urn:btih:5FE615E8173B994E13E5063617D9177C6481BFB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:5FE615E8173B994E13E5063617D9177C6481BFB8
 magnet:?xt=urn:btih:5A1C5FCB391ADAFB80F5ACC1ED1A2AC43116E180
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:5A1C5FCB391ADAFB80F5ACC1ED1A2AC43116E180
 ```bash
 magnet:?xt=urn:btih:D172DC82812045068FFCD0B78F45A06356BA2952
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:D172DC82812045068FFCD0B78F45A06356BA2952
 magnet:?xt=urn:btih:BEDCA332A35A5DECF3A4179BD691572B971EB491
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:BEDCA332A35A5DECF3A4179BD691572B971EB491
 ```bash
 magnet:?xt=urn:btih:0E3D5CD8E9ABBD32E99DCB231BC5ACF0670548A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:0E3D5CD8E9ABBD32E99DCB231BC5ACF0670548A2
 magnet:?xt=urn:btih:12A0CE17D5A23DD9CEA9872CE957317FF90CD28B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:12A0CE17D5A23DD9CEA9872CE957317FF90CD28B
 ```bash
 magnet:?xt=urn:btih:7CBCCB78B06DA9CF9C273FCA0C1B4B1CA6540842
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:7CBCCB78B06DA9CF9C273FCA0C1B4B1CA6540842
 magnet:?xt=urn:btih:51DFB18D61D10E1A689201E65B089B2C70122229
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:51DFB18D61D10E1A689201E65B089B2C70122229
 ```bash
 magnet:?xt=urn:btih:1DC5FE213723B2475B0E51170F346B35956C6EE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:1DC5FE213723B2475B0E51170F346B35956C6EE8
 magnet:?xt=urn:btih:DE016377299498442CE82929A627462C2C98B8B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:DE016377299498442CE82929A627462C2C98B8B5
 ```bash
 magnet:?xt=urn:btih:301F89C697DC4B10998DEC839AC55D84A19359D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:301F89C697DC4B10998DEC839AC55D84A19359D7
 magnet:?xt=urn:btih:CC9592B471B7EA438FB79DB6047386D5B16F8675
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:CC9592B471B7EA438FB79DB6047386D5B16F8675
 ```bash
 magnet:?xt=urn:btih:E8B8B986D0C08C32ED22561F961AA051AB0C5CD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:E8B8B986D0C08C32ED22561F961AA051AB0C5CD2
 ```bash
 magnet:?xt=urn:btih:72D22BB65CC5C0F1ECE0AEB253988C0A857E5A42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:72D22BB65CC5C0F1ECE0AEB253988C0A857E5A42
 magnet:?xt=urn:btih:F5DFC052EECFA9B8F6143329F5CD6537F5C5A9A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:F5DFC052EECFA9B8F6143329F5CD6537F5C5A9A5
 ```bash
 magnet:?xt=urn:btih:BBEE822C1477E7FFE482DB374A1F5555FF9232A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:BBEE822C1477E7FFE482DB374A1F5555FF9232A1
 magnet:?xt=urn:btih:E67037040E818360C6A610952DD954DCCAD291CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,29 +683,7 @@ magnet:?xt=urn:btih:E67037040E818360C6A610952DD954DCCAD291CD
 magnet:?xt=urn:btih:C779CA76BAD693B3C3CDDD0478B52833C21BA143
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 889602   (748001) от 18.04.2015
-
-Андрей Макаров | Величайшие актеры России и СССР (2013) [EPUB, RTF]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга не претендует на статус некоего объективного официального рейтинга киноактеров страны. Создавая ее, мы опирались, прежде всего, не на количество наград, не на суммы актерских гонораров и заработков от проката фильмов. И даже не на известность актеров в мировых масштабах. Здесь собраны те звезды кино, которые приобрели наибольшую известность и популярность именно у нашего зрителя. Если вы любите и часто смотрите кино, то практически не встретите на страницах незнакомых лиц. Напротив: каждый из этих (   Читать дальше...   )Жанр: Биография, мемуарыФормат: EPUB, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B22C1A2083B09EEF549A27C3CF807566E83FCEF4
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

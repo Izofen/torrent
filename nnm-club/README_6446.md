@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:BE846591BA393A223D923A40E70C44A23397FCA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Tales of Vogar - Lost Descendants - это созданная на базе RPG 
 ```bash
 magnet:?xt=urn:btih:1BC1B15D837DE8EBFA698C2E4B26EA600B80F069
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Windows 10 November 2021 Update (под кодовым названием "21H2"
 magnet:?xt=urn:btih:6E3137C6E8E999D98FEBED646CB3DBCD8B863428
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ DiskDigger - маленькая утилита, с которой можно в�
 magnet:?xt=urn:btih:4F6A2E251BF97D1D01E6A2E51E7C1D5C78028AB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:4F6A2E251BF97D1D01E6A2E51E7C1D5C78028AB8
 ```bash
 magnet:?xt=urn:btih:C0F4834BDECD0B40C83072CA9AF50966C42871EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:C0F4834BDECD0B40C83072CA9AF50966C42871EB
 magnet:?xt=urn:btih:D4BC60F534C7D2F644802D3D42046410833E13AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:D4BC60F534C7D2F644802D3D42046410833E13AB
 magnet:?xt=urn:btih:D1DFC9ECFF484027869A7354320050C9629FF798
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:D1DFC9ECFF484027869A7354320050C9629FF798
 ```bash
 magnet:?xt=urn:btih:DA65C240AAAE217407446354994646ABB0EBB74D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Pink Floyd - The Dark Side Of The Moon - Live At Wembley 1974 (2023) Japanese Ed
 magnet:?xt=urn:btih:E134B8EC06A30D368ABBB1735A822E8B5BA8B3DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:E134B8EC06A30D368ABBB1735A822E8B5BA8B3DF
 ```bash
 magnet:?xt=urn:btih:DFF98E35A00E85D98436235A9AF8C7633114C638
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:DFF98E35A00E85D98436235A9AF8C7633114C638
 magnet:?xt=urn:btih:0E3E8D19BFBA1838C00828029B70922EE43947D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:0E3E8D19BFBA1838C00828029B70922EE43947D0
 ```bash
 magnet:?xt=urn:btih:FC92F35C4DD27F5552F61A9E4DFEC25C6BD18534
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:FC92F35C4DD27F5552F61A9E4DFEC25C6BD18534
 magnet:?xt=urn:btih:E369F3158A697E63FB03A46ECA66D692D8172C2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:E369F3158A697E63FB03A46ECA66D692D8172C2D
 ```bash
 magnet:?xt=urn:btih:DC1D92CCAD8F0F919F2380D62D1526B9F29CD7A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:DC1D92CCAD8F0F919F2380D62D1526B9F29CD7A7
 magnet:?xt=urn:btih:F7E4B9C77929FCB9ED9F86631A6B10E62C015A24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:F7E4B9C77929FCB9ED9F86631A6B10E62C015A24
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:F7E4B9C77929FCB9ED9F86631A6B10E62C015A24
 magnet:?xt=urn:btih:30CF9ECC8636410C1BC384D6C6E485267FD79DC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Park Beyond (2023) [Ru/Multi] (1.0) Scene Fairlight
 ```bash
 magnet:?xt=urn:btih:A73FCDD390B535FF2BBB12D1CFEC4109C9547DF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ SpongeBob SquarePants: Battle for Bikini Bottom - Rehydrated (2020) [Ru/Multi] (
 magnet:?xt=urn:btih:AD2D4A5126D3014A3E5A67CAADA62AF4A5E5E3E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:AD2D4A5126D3014A3E5A67CAADA62AF4A5E5E3E9
 ```bash
 magnet:?xt=urn:btih:956A71EDCFC7D632BC9E1B61F5EAF84DF7FAA8EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ Planet VPN 2.0.45.0 [Multi/Ru]
 magnet:?xt=urn:btih:D3EB080D198725758F1AA82E2E397F42368CE138
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ Microsoft .Net Framework 13.06.23 RePack by xetrin [Multi/Ru]
 magnet:?xt=urn:btih:8C1272DFEDD142D3D6E176E4E35A51882EF82829
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ SpongeBob SquarePants: The Cosmic Shake (2023) [Ru/Multi] (1.0.3.0) Repack dixen
 ```bash
 magnet:?xt=urn:btih:F4C0D0278BC1B630B714CD39685EA12D9F246229
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:F4C0D0278BC1B630B714CD39685EA12D9F246229
 magnet:?xt=urn:btih:94F51867AFA7785250D0DB530FE353FDCF597670
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:94F51867AFA7785250D0DB530FE353FDCF597670
 magnet:?xt=urn:btih:625F3F2FCBC270CA59F4F74A3E92EA9432CFB7AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Impaler является динамичной стрелялкой, где по�
 ```bash
 magnet:?xt=urn:btih:EB4CEF4A0145528997E1B83FCA60198CA23A119B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

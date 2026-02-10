@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:6CBCCF10512813675083F66A4C984E0EA84B3AC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:6CBCCF10512813675083F66A4C984E0EA84B3AC9
 ```bash
 magnet:?xt=urn:btih:894D4E3EE397DBC2C7DCE8BF92654E9A769D6983
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Starfield - долгожданная ролевая игра в жанре на�
 magnet:?xt=urn:btih:F42736CF9E0FE41552814739E56C22C626A648B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Survive the Fall (2025) [Ru/Multi] (1.1.4.2506/dlc) License GOG [Ultimate Editio
 ```bash
 magnet:?xt=urn:btih:A3A31F8D3DA34083E829FEC15750CC0CC61AD213
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:A3A31F8D3DA34083E829FEC15750CC0CC61AD213
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:A3A31F8D3DA34083E829FEC15750CC0CC61AD213
 ```bash
 magnet:?xt=urn:btih:CC50BB7B4C2DA4CE5BA0488018536A9224A0B996
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:CC50BB7B4C2DA4CE5BA0488018536A9224A0B996
 magnet:?xt=urn:btih:A9B9BFDE32CD3CA7DD409817746EA237F72EB9F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:A9B9BFDE32CD3CA7DD409817746EA237F72EB9F1
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:A9B9BFDE32CD3CA7DD409817746EA237F72EB9F1
 magnet:?xt=urn:btih:63DCC5BBD8B87A784A29CFF93C9797FEAADABAFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:63DCC5BBD8B87A784A29CFF93C9797FEAADABAFF
 ```bash
 magnet:?xt=urn:btih:229DBA8BEBE5F8E4F489B70222454F9C4C12460F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ World War Z VR – это иммерсивный однопользовател�
 magnet:?xt=urn:btih:CFC7B653449E80DFD79984C3C2079D331EAE13BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:CFC7B653449E80DFD79984C3C2079D331EAE13BC
 ```bash
 magnet:?xt=urn:btih:3AFDBCB808CBFE181E97F010BB07652F480C1E38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:3AFDBCB808CBFE181E97F010BB07652F480C1E38
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:3AFDBCB808CBFE181E97F010BB07652F480C1E38
 ```bash
 magnet:?xt=urn:btih:C52DC202EBF8C53FC8B70F0FDF0595D258D60668
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Scott Fulton - Closet Blues - Scott Fulton - Closet Blues (2025) [FLAC|Lossless|
 magnet:?xt=urn:btih:FB37DBAD28D8A480554380FB63EE0179A4815FFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:FB37DBAD28D8A480554380FB63EE0179A4815FFB
 magnet:?xt=urn:btih:45D1054F0D1DC39BD8184AB6BEC2496A544FE56E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:45D1054F0D1DC39BD8184AB6BEC2496A544FE56E
 ```bash
 magnet:?xt=urn:btih:98EA9ED7D8957FDB4CCECB375C8C76205D5BB66D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Bakertrain - European Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:B674F30B3AD63F798EAA9C32B5BB2FC2AA890161
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ Carlos Camilo - Allure (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Africa
 magnet:?xt=urn:btih:A01B9BB18BBF4E87A48F1208E1BD94F9BA8B7D13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:A01B9BB18BBF4E87A48F1208E1BD94F9BA8B7D13
 ```bash
 magnet:?xt=urn:btih:95FF45D6659F15B0C52860374BF1D8F32C029E8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:95FF45D6659F15B0C52860374BF1D8F32C029E8C
 magnet:?xt=urn:btih:A736C66E0F4822C58FEF41052D98079F75F0AFA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:A736C66E0F4822C58FEF41052D98079F75F0AFA4
 ```bash
 magnet:?xt=urn:btih:32AC570A5BC293A23B30F744F4FA1AAB1F013056
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:32AC570A5BC293A23B30F744F4FA1AAB1F013056
 magnet:?xt=urn:btih:B252A0DCDEB73E5B47BED381CC89E021BFBE2B70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ MotoGP. Этап 13 из 22. Гран-при Австрии. Спринт (16.08
 ```bash
 magnet:?xt=urn:btih:D337CDF2CC81F45CB58FA8BAE87F3761D27082D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:D337CDF2CC81F45CB58FA8BAE87F3761D27082D5
 magnet:?xt=urn:btih:3587E0DB81963A71D36A7AE16FE893916050635C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:3587E0DB81963A71D36A7AE16FE893916050635C
 ```bash
 magnet:?xt=urn:btih:5BC90DA9ED71A2284BB3DCD80D6C2CC48A3A694A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

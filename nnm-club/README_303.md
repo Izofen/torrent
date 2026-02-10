@@ -22,6 +22,8 @@ Brice Harwin - Melancholy Meeting (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:99271C1271230A9001EBBBE322CF871F00873578
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:99271C1271230A9001EBBBE322CF871F00873578
 magnet:?xt=urn:btih:0740E1A07D30E06131E87255B3452F8A8B95139F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:0740E1A07D30E06131E87255B3452F8A8B95139F
 ```bash
 magnet:?xt=urn:btih:B84F76AB9239B3701193ED0E1F94A4FCCA66503F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:B84F76AB9239B3701193ED0E1F94A4FCCA66503F
 magnet:?xt=urn:btih:C7203BCA652C8D19D235C2299BCE2FE36EB95C4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:C7203BCA652C8D19D235C2299BCE2FE36EB95C4A
 ```bash
 magnet:?xt=urn:btih:3117386E5480ED9CC747BBFC59336B4244FDA1CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ Greg James Ortbach - Somewhere Slow (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:CF407F5CC1B726F7F6E86ED8D81EB3F10359064A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:CF407F5CC1B726F7F6E86ED8D81EB3F10359064A
 ```bash
 magnet:?xt=urn:btih:1CA02071D84F4979343BC78B3D13046CE327D96D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ Ember Tavistock - Grindin' Hustle (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:79C4347823185395ACA44EFD44D8EE2BBEB40A0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:79C4347823185395ACA44EFD44D8EE2BBEB40A0E
 ```bash
 magnet:?xt=urn:btih:C2A92C2B13A59FB035D799FFD4A17943ED8ABD3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ Bob Forte - Nureci Blues (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:0354E9F46DC9DA4462A436DD7824B0FEBE077673
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:0354E9F46DC9DA4462A436DD7824B0FEBE077673
 ```bash
 magnet:?xt=urn:btih:07DE9B401E77FCCFFCBD9C0FF0BEF5E6CF8FD4A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -305,6 +327,8 @@ Daylight Ghostfist - Fleeing Fast (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:62935AFF4E03813E96B3C30CEE3F94D448EDDCF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +355,8 @@ Chapel Blues - Searchin' for the Sound (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:B12D285B9D8A0B1867AA70AFFDA41D81A733E9B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +385,8 @@ magnet:?xt=urn:btih:B12D285B9D8A0B1867AA70AFFDA41D81A733E9B3
 magnet:?xt=urn:btih:9332DF63F78053FDB998FD84CF9943C0D9827A49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +411,8 @@ magnet:?xt=urn:btih:9332DF63F78053FDB998FD84CF9943C0D9827A49
 ```bash
 magnet:?xt=urn:btih:6A48AA69D4F9DE30CA2638B23C0854D58FCD40DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +440,8 @@ magnet:?xt=urn:btih:6A48AA69D4F9DE30CA2638B23C0854D58FCD40DB
 magnet:?xt=urn:btih:A3935C5A4B081C23C211704F1DEFC84A2D40D554
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +465,8 @@ magnet:?xt=urn:btih:A3935C5A4B081C23C211704F1DEFC84A2D40D554
 ```bash
 magnet:?xt=urn:btih:020EDE7CE542ECFF3D9BB8E7C8DA50E57513372C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +495,8 @@ Bobby Messano - Still~Life (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Roc
 magnet:?xt=urn:btih:DF56A177CD43D3287444069722A08FEDC05418DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +524,8 @@ Colin Hay - Man @ Work Volume 2 (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock
 magnet:?xt=urn:btih:18C3F90F4AA193007B73576EEEF1E73F807D972D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +549,8 @@ magnet:?xt=urn:btih:18C3F90F4AA193007B73576EEEF1E73F807D972D
 ```bash
 magnet:?xt=urn:btih:9364CC25F3DC3A6D66E65970E5534C42C70C7B72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +577,8 @@ magnet:?xt=urn:btih:9364CC25F3DC3A6D66E65970E5534C42C70C7B72
 magnet:?xt=urn:btih:2199994B6F9D1CA83EDE1AD6BB39CA7A8B17852E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +603,8 @@ A-Z - проект Рэя Алдера и Марка Зондера, участ�
 ```bash
 magnet:?xt=urn:btih:0D35C4026A560D39D6FAB5A289F0452106F74B6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +631,8 @@ magnet:?xt=urn:btih:0D35C4026A560D39D6FAB5A289F0452106F74B6C
 ```bash
 magnet:?xt=urn:btih:A387B1F062E080E33A0B4FD490D5570278F4AD8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +661,8 @@ Forestry Road - Forestry Road (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 magnet:?xt=urn:btih:7885A4865B71EEAE4D5B4A8CA62EFD7B8FBBE5C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +690,8 @@ Frost Drift - Let's Begin Something (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:921078F5ED332E9F6F52D709D008F1EE7BC1B99E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +715,8 @@ magnet:?xt=urn:btih:921078F5ED332E9F6F52D709D008F1EE7BC1B99E
 ```bash
 magnet:?xt=urn:btih:B4D1D5A9B8551B87DBA80F1CC2002C2E5AAFD20D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

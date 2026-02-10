@@ -1,3 +1,29 @@
+###  Публикация: 1031124   (668432) от 03.07.2016
+
+Антикиллер Xохлов. Исповедь предателя (2005) TVRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Личности в истории
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой фильма Николай Xохлов – один из самых загадочных советских разведчиков – невозвращенцев, единственный, кто в 1954 году дал открытую пресс-конференцию, где заявил о своем переходе на сторону ЦРУ. Дальнейшая его судьба долгие годы оставалась засекреченной. Спустя 50 лет Николай Xохлов согласился рассказать свою историю для российских телезрителей. В центре (   Читать дальше...   )Телекомпания: РоссияЖанр: ДокументальныйРежиссер: Ольга БорщПродолжительность: 00:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:108107FD44751B3D6CAE92ED1F7E6C4840EF8158
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031328   (668512) от 03.07.2016
 
 Вести недели (03.07.2016) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:08EB30FFA7385E00598228BF9427E51D04ACA5E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:08EB30FFA7385E00598228BF9427E51D04ACA5E0
 ```bash
 magnet:?xt=urn:btih:C100CDA8C89FAFD46280DB0E9B775B7DFFED3EB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:C100CDA8C89FAFD46280DB0E9B775B7DFFED3EB4
 magnet:?xt=urn:btih:1536D5673D3D79B2ADE4AF045E672DAFA426C2A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:1536D5673D3D79B2ADE4AF045E672DAFA426C2A6
 ```bash
 magnet:?xt=urn:btih:49DC987DD52BDC33801BA6BE9197F44D7B23EA77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:49DC987DD52BDC33801BA6BE9197F44D7B23EA77
 magnet:?xt=urn:btih:94CAA6EB7C49F84A3A938EA22AF543B06826DCA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:94CAA6EB7C49F84A3A938EA22AF543B06826DCA4
 ```bash
 magnet:?xt=urn:btih:521C8115F30E1B6FB3F45C8648BF0D7096F7A319
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:521C8115F30E1B6FB3F45C8648BF0D7096F7A319
 magnet:?xt=urn:btih:26CD4115BBD5E3C9C0C4FE41B2FBBF3DAB784BBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:26CD4115BBD5E3C9C0C4FE41B2FBBF3DAB784BBE
 ```bash
 magnet:?xt=urn:btih:863C9469C5165AEFB192D54208567349BCB808A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:863C9469C5165AEFB192D54208567349BCB808A1
 magnet:?xt=urn:btih:B7F45D6D8BC904DD9DB5825605CAA103876DCC09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:B7F45D6D8BC904DD9DB5825605CAA103876DCC09
 ```bash
 magnet:?xt=urn:btih:13D527CC1BF4E28D945702384BCEF705B94192B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:13D527CC1BF4E28D945702384BCEF705B94192B6
 magnet:?xt=urn:btih:E3BA9F8B8D224D57405D316681C4A9D1EBF51F9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:E3BA9F8B8D224D57405D316681C4A9D1EBF51F9F
 ```bash
 magnet:?xt=urn:btih:F4B17DC3B7FF20E5146EA0ED910FB97A83E917B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:F4B17DC3B7FF20E5146EA0ED910FB97A83E917B2
 magnet:?xt=urn:btih:7074956155EEA5B63E5F2B4AC0603D7C866F7010
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:7074956155EEA5B63E5F2B4AC0603D7C866F7010
 ```bash
 magnet:?xt=urn:btih:0B4D617E0E161B9E413B799FEAAEC8C4A911E20F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:0B4D617E0E161B9E413B799FEAAEC8C4A911E20F
 magnet:?xt=urn:btih:65D9CD5E278F86024CB63A2EB0268BB9ECE98B85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:65D9CD5E278F86024CB63A2EB0268BB9ECE98B85
 magnet:?xt=urn:btih:5805CE7C1B07C429665D53A4E202A496E26CB6BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:5805CE7C1B07C429665D53A4E202A496E26CB6BC
 ```bash
 magnet:?xt=urn:btih:DF1BB843D95F291A748681A733A587CCF6E4B9E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:DF1BB843D95F291A748681A733A587CCF6E4B9E6
 ```bash
 magnet:?xt=urn:btih:2DAC3DE1C19D318ADD8804F5C3541982FFF6676B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +526,8 @@ magnet:?xt=urn:btih:2DAC3DE1C19D318ADD8804F5C3541982FFF6676B
 magnet:?xt=urn:btih:B78944466271C3D7E5101BB3084E4D1C5F107D37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +551,8 @@ magnet:?xt=urn:btih:B78944466271C3D7E5101BB3084E4D1C5F107D37
 ```bash
 magnet:?xt=urn:btih:01A0FC3E718991FAF959CEC597D92AB20A7674B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +578,8 @@ magnet:?xt=urn:btih:01A0FC3E718991FAF959CEC597D92AB20A7674B4
 magnet:?xt=urn:btih:B88D5C451957E8061F80CA8F4F475F742537D3F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:B88D5C451957E8061F80CA8F4F475F742537D3F2
 ```bash
 magnet:?xt=urn:btih:3BF197DD6700FD806AF7376AD66979EC0AFCD8D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +630,8 @@ magnet:?xt=urn:btih:3BF197DD6700FD806AF7376AD66979EC0AFCD8D0
 magnet:?xt=urn:btih:E931D956BDA6ACAA50D0025C8FD41572D9392FE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +655,8 @@ magnet:?xt=urn:btih:E931D956BDA6ACAA50D0025C8FD41572D9392FE1
 ```bash
 magnet:?xt=urn:btih:8E3E04DA78D0D89B0DCEB499611EB9889B1558C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,29 +682,7 @@ magnet:?xt=urn:btih:8E3E04DA78D0D89B0DCEB499611EB9889B1558C7
 magnet:?xt=urn:btih:CC224A1A51E11912854366C3094DF5EDC1082DF5
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291491   (670356) от 24.03.2019
-
-Вулкан Анак-Кракатау / Anak Krakatau Volcano (2019) WEBRip [VP9/2160p] [4K, HDR]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анак-Кракатау — остров в Индонезии, на котором располагается одноименный вулкан, начал формировался в 1927 году. До этого на его месте существовал остров Кракатау: последний был по большей части разрушен в результате страшного извержения в 1883 году, в результате которого погибли более 36 000 человек...Производство: ИндонезияЖанр: Документальный, видовойРежиссер: Earth UncutПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:04:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:908CB594D2BCE796D957830F65C611CD766958F0
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

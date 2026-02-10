@@ -19,6 +19,8 @@ Crime O'Clock - это игра, в которой вы выступаете в 
 magnet:?xt=urn:btih:4AAEDD26964F189BBEC042602FD51FBA6ADEC7FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Watchmaker (2018) [Ru/Multi] (1.1) License CODEX
 ```bash
 magnet:?xt=urn:btih:94F490D60D3F2A7F5958CB9363BD577167A15A68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The House of Da Vinci 3 (2022) [Multi] (Build 10193115) Repack Other s
 magnet:?xt=urn:btih:582C126011F1094C971162CEAAADE0F07E08E718
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Dragon Lore: The Legend Begins (1994) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:3CCCDB66126AECE6A958AA9EE8E42566389640A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Road 96 (2021) [Ru/Multi] (1.04/dlc) License GOG
 magnet:?xt=urn:btih:D0BF07E1A49AFF27D07D5CD7BA11E4A4E917E96D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Svoboda 1945: Liberation (2021) [Multi] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:4777A99B2D949650C38713ED244C1341C1013D8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Attentat 1942 – исторически точная приключенческ
 magnet:?xt=urn:btih:A897CB321059F22E56310C638FB2DB465EFD6E97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Alexey's Winter: Night Adventure (2021) [Ru/Multi] (Build 10121369) Repack Other
 ```bash
 magnet:?xt=urn:btih:B4B69FF5CD474DDA6B30D26042C5150CB687444D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ One eleven — это мрачный детектив о двенадцати о
 magnet:?xt=urn:btih:87770F086BFA4E48084FC872E526CEE5E6FD9FAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Beast Inside (2019) [Ru/Multi] (1.05) License GOG
 ```bash
 magnet:?xt=urn:btih:755EC97D09D62E6D3978C750E058E1E5A6F2F91B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Expanse: A Telltale Series (2023) [Multi] (1.0.902523.2310241203) Scene Rune
 magnet:?xt=urn:btih:82490826DDD17BCD5176CF40E319DD03179202F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Enypnion Redreamed представляет собой удивительное 
 ```bash
 magnet:?xt=urn:btih:7D8D0AE71D6B40D9A47BAD41A3942FC2C82D3057
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ The Talos Principle 2 предлагает увлекательный и зас�
 magnet:?xt=urn:btih:14F0D648136B823BAE23535CB3EAA8CB4631F008
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Song of Nunu: A League of Legends Story (2023) [Ru/Multi] (0.0.31/dlc) Scene FAi
 ```bash
 magnet:?xt=urn:btih:A59C8E33DCB8F37F674EC45F5AA58E661CFD2BF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Skabma - Snowfall погружает нас в мир преданий и кул
 magnet:?xt=urn:btih:84BC7D106F7E7CC565362A5B84F200F2EF656BA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Alan Wake 2 (2023) [Ru/Multi] (1.0.6/dlc) Repack DjDI [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:D2D67373CB30626D3170EF7D53A8DC13BDF947B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Tell Me Why (2020) [Ru/Multi] (5510896) Repack xatab [18+]
 magnet:?xt=urn:btih:2088A1F859B2FD89135C806CBDBD57AAF6840935
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Scrapland — приключенческий экшен от третьего л
 ```bash
 magnet:?xt=urn:btih:A970C7A78C8F0C3F4F2F843B027EBA0F42EA44FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ El Hijo - A Wild West Tale (2020) [Ru/Multi] (1.02(210331).1) License GOG
 magnet:?xt=urn:btih:642BB970FD33FAD3A2D010AEA8B1C3A23F3151D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ One Eleven (2023) [Ru/En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:B6E400F25CF0EB95E2D3E50D90883641EB31D71E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Filthy Us (2023) [Multi] (1.0) License GOG [Complete Edition]
 magnet:?xt=urn:btih:657D964A06E57B00BE4BC92CD8D76169688AFD6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ A Short Hike (2019) [Multi] (1.9_v3) License GOG
 ```bash
 magnet:?xt=urn:btih:7B86798A1B51EA259F1A50E300EAB468975B5386
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ The Coma 2: Vicious Sisters (2020) [Ru/Multi] (1.0.6 fix/dlc) License GOG [Delux
 magnet:?xt=urn:btih:10A6DA9D384906EC4A167297F8F88D3C3A6B5D0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Vambrace: Cold Soul (2019) [Ru/Multi] (1.11-fix) License GOG
 ```bash
 magnet:?xt=urn:btih:C500A90790B59BD363C04C87678F1E687B10A526
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Saint Kotar: The Yellow Mask (2020) [Ru/Multi] (1.4) Repack Other s
 magnet:?xt=urn:btih:B986F9F1A8C6E7D939376CAE5823541CD3AB3AFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ VenusBlood HOLLOW International (2021) [En] (1.0.2/dlc) License GOG [16+]
 ```bash
 magnet:?xt=urn:btih:89606B75B1DD2028446A3989B283EAD498B8C08E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:16587D85C0FDBEDBD2963801B0422A23A8BFD0E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ VLC Media Player - универсальный проигрыватель, спо
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ VLC Media Player - универсальный проигрыватель, спо
 magnet:?xt=urn:btih:B392DE70928E7A49E78DEC0D9C9A888612C3EDC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:B392DE70928E7A49E78DEC0D9C9A888612C3EDC2
 ```bash
 magnet:?xt=urn:btih:CD03893372DB7D82C4C211CD00CE22630F4E7203
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:CD03893372DB7D82C4C211CD00CE22630F4E7203
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ SystemRescueCD — дистрибутив Linux, основанный на Gento
 ```bash
 magnet:?xt=urn:btih:ABC07AABC049238DCAB1C7A079857CC78DF09E29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ Krama - After the Rain (2009) [FLAC|Lossless]<Psychedelic / Progressive>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ Krama - After the Rain (2009) [FLAC|Lossless]<Psychedelic / Progressive>
 ```bash
 magnet:?xt=urn:btih:49DD70D9D15298F0D648E13F2DFB69D6AA2F0E3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:49DD70D9D15298F0D648E13F2DFB69D6AA2F0E3C
 magnet:?xt=urn:btih:37A702BAF9235730BF902091F4E1FF8B0EBFD47D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:37A702BAF9235730BF902091F4E1FF8B0EBFD47D
 ```bash
 magnet:?xt=urn:btih:3A16318D86869EC2E0F3EB2BBE5A1E09DD4A7C21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:3A16318D86869EC2E0F3EB2BBE5A1E09DD4A7C21
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:3A16318D86869EC2E0F3EB2BBE5A1E09DD4A7C21
 ```bash
 magnet:?xt=urn:btih:30442E7A1F1223B81847C6044EEE5429DFDB76D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:30442E7A1F1223B81847C6044EEE5429DFDB76D4
 magnet:?xt=urn:btih:BE8843072E30216907D1B3A1E5AEFF3C9F8AFD93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ Ninja Gaiden 3 - Рю Хаябуса опять на наших экранах, 
 ```bash
 magnet:?xt=urn:btih:75F0817BEC5A1AF47A44426494AE510B1FE6993A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:75F0817BEC5A1AF47A44426494AE510B1FE6993A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:75F0817BEC5A1AF47A44426494AE510B1FE6993A
 ```bash
 magnet:?xt=urn:btih:5ED491346910AB5F59F727DB5870265C3D331A8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:5ED491346910AB5F59F727DB5870265C3D331A8E
 magnet:?xt=urn:btih:7F1D5B3A3085495A34C2080365A1F43383AD110A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:7F1D5B3A3085495A34C2080365A1F43383AD110A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ magnet:?xt=urn:btih:7F1D5B3A3085495A34C2080365A1F43383AD110A
 magnet:?xt=urn:btih:C3C5992F749E7EC195DB2A206F4B22A1D4CC7328
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:C3C5992F749E7EC195DB2A206F4B22A1D4CC7328
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:C3C5992F749E7EC195DB2A206F4B22A1D4CC7328
 magnet:?xt=urn:btih:0D0DA48BE86E50771B552CB1983B82B2103F04A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ Total Uninstall — утилита, предназначенная для кор
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ Total Uninstall — утилита, предназначенная для кор
 ```bash
 magnet:?xt=urn:btih:195D6C8D01FA8FA97D03B4E53EE1F940462109C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:195D6C8D01FA8FA97D03B4E53EE1F940462109C8
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ Content Pack - набор шаблонов для веб страниц, при�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ Content Pack - набор шаблонов для веб страниц, при�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 559462   (407776) от 13.10.2012
+
+Стивен Кинг | Кэрри [2012] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кэрри — обычная 17-летняя девушка в маленьком провинциальном городке Чемберлене, над которой все издеваются, «белая ворона». Она старомодно одевается, не гуляет со сверстниками. Её мать строгая и религиозная женщина, которая досаждает ей не меньше одноклассников. Долгое время она накапливала в себе обиду и злость, сдерживала гнев... Пока не открыла в себе способности к телекинезу. И вот тогда все её обидчики узнают кто она есть и поплатятся, весь городок получит полный расчёт за все унижения, что пережила Кэрри...Жанр: Мистика, хоррорПеревод: А. Корженевский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79C02A1BC28935CF8A31E9FF41DF098C123DEA4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413517   (407851) от 04.10.2020
 
 Станислав Сергеев | Дорога в пустоте (2020) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:23E2993A38C409FDA0F3EBD85260B40657B7E269
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:23E2993A38C409FDA0F3EBD85260B40657B7E269
 magnet:?xt=urn:btih:679A407B95C96EBAD2EF40DB9829B0675AFAD84A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:679A407B95C96EBAD2EF40DB9829B0675AFAD84A
 ```bash
 magnet:?xt=urn:btih:1665653B76459AE6EE290639AA0037A82B4CAE5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:1665653B76459AE6EE290639AA0037A82B4CAE5B
 magnet:?xt=urn:btih:4A1075E21BFAE3227467545A87AEBFBC03467ED3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:4A1075E21BFAE3227467545A87AEBFBC03467ED3
 ```bash
 magnet:?xt=urn:btih:900ECF42F161E3FED40058D2B2A68F34CB6F8B2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:900ECF42F161E3FED40058D2B2A68F34CB6F8B2E
 magnet:?xt=urn:btih:37798E49A1378F1145E69FBDF4EBBDEDEC4CCF6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:37798E49A1378F1145E69FBDF4EBBDEDEC4CCF6F
 magnet:?xt=urn:btih:C195845C06AB16561636FE90D79524A6FC6CA4B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:C195845C06AB16561636FE90D79524A6FC6CA4B1
 magnet:?xt=urn:btih:CEEC48FCEC3AB2B0EE2378E611E89729B1ACFCA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:CEEC48FCEC3AB2B0EE2378E611E89729B1ACFCA1
 ```bash
 magnet:?xt=urn:btih:13F70D262A43B75D71568401D2CE7E35DD366F8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:13F70D262A43B75D71568401D2CE7E35DD366F8F
 magnet:?xt=urn:btih:4A8C8AD9E59CBAF48F7B68B7EE76466C277EB9BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:4A8C8AD9E59CBAF48F7B68B7EE76466C277EB9BE
 magnet:?xt=urn:btih:51C81E69CF824563A023A4196F9B0BC7D51D2F9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:51C81E69CF824563A023A4196F9B0BC7D51D2F9B
 ```bash
 magnet:?xt=urn:btih:E583A5F759DEED4D8A399DD138FEA6CC1888E5DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +367,8 @@ magnet:?xt=urn:btih:E583A5F759DEED4D8A399DD138FEA6CC1888E5DB
 magnet:?xt=urn:btih:6563409855AC2F18CE4DB98FA6DF416E3455E950
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +392,8 @@ magnet:?xt=urn:btih:6563409855AC2F18CE4DB98FA6DF416E3455E950
 ```bash
 magnet:?xt=urn:btih:E237EE69DF46E0A116347DE8D02EAD043EBB93E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +419,8 @@ magnet:?xt=urn:btih:E237EE69DF46E0A116347DE8D02EAD043EBB93E7
 magnet:?xt=urn:btih:660F3DBC907887D9B4EE3E9662598FCC65DB8D22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:660F3DBC907887D9B4EE3E9662598FCC65DB8D22
 ```bash
 magnet:?xt=urn:btih:065F23159B33E81582C03DD2DE61DAEC0B9D93CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:065F23159B33E81582C03DD2DE61DAEC0B9D93CC
 magnet:?xt=urn:btih:2BD1B013C034AE63C47F839735ECE7CBE14C1FF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:2BD1B013C034AE63C47F839735ECE7CBE14C1FF4
 ```bash
 magnet:?xt=urn:btih:71B3154E671BFFEDA617F58DE16A7AD6EE458269
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:71B3154E671BFFEDA617F58DE16A7AD6EE458269
 magnet:?xt=urn:btih:D5086ECAF98EBD63710A13A07359EC1E5B30FB08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:D5086ECAF98EBD63710A13A07359EC1E5B30FB08
 ```bash
 magnet:?xt=urn:btih:E3A89C47D82BDD33C835A53307C46CB3187BEDDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:E3A89C47D82BDD33C835A53307C46CB3187BEDDA
 magnet:?xt=urn:btih:D6556F8D612CEAA9AD6B663F65743D7ED40A5B41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +600,8 @@ magnet:?xt=urn:btih:D6556F8D612CEAA9AD6B663F65743D7ED40A5B41
 ```bash
 magnet:?xt=urn:btih:548548C8AC090A2006AC8D71EB023945FBD3B3B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +627,8 @@ magnet:?xt=urn:btih:548548C8AC090A2006AC8D71EB023945FBD3B3B1
 magnet:?xt=urn:btih:B29C40B35E7910AE44B7C08417936E1D0FD8337B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:B29C40B35E7910AE44B7C08417936E1D0FD8337B
 ```bash
 magnet:?xt=urn:btih:37E85890AAA773E06FF76A6B978D91958D54C546
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,29 +679,7 @@ magnet:?xt=urn:btih:37E85890AAA773E06FF76A6B978D91958D54C546
 magnet:?xt=urn:btih:018B83DB2BFCCB49A5D8E58B115F0F2F6E0C206C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573561   (410322) от 01.09.2022
-
-Сергей Щепетов | Каменный век (Книга 5). Народ Моржа (2022) [MP3, Тамара]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Машину времени еще не создали, а потому далёкое прошлое хранит много тайн. Например, отчего наши предки начали заниматься земледелием? Конечно же, чтобы обеспечить себя продуктами питания! Увы, этот привычный ответ уже давно не выдерживает критики. С неменьшим успехом можно утверждать, что людей заставили инопланетяне. Да-да, существует и такая гипотеза - её придумал (   Читать дальше...   )Жанр: Историческая фантастика, ПопаданцыПродолжительность: 11:36:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A6D85D97551651F6DA690EEED6AE0406AD93B56
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

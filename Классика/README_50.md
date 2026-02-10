@@ -22,6 +22,8 @@ GREGORIAN CHANT
 magnet:?xt=urn:btih:3A155AC2395914787DC46900066835CD30DC0D55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Josquin Desprez: Missa "Gaudeamus"(   Читать дальше...   )Жанр: 
 ```bash
 magnet:?xt=urn:btih:1AC8EB28DFD88CCBAFF04D9FAF8CCDF001651221
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Grieg - Piano Concerto in A minor, op. 16
 magnet:?xt=urn:btih:E869D5ACFCD0208E1C23312607CA15BE65EBEE01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Concerto in F, for piano & orchestra
 magnet:?xt=urn:btih:97CF6754ED022172EB0AD721F2EF1A1DBE1D8FE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ Izar Melting Pot Ensemble - The Melting Pot (2015) [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:10D32E33741F743415EA73E8F8B28E88251297E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -158,6 +168,8 @@ VA - Klassiska Favoriter Opera (1996) 3CD [FLAC|Lossless]<Classical>
 magnet:?xt=urn:btih:6E74FAF62182E3124557A4C124F6F4BBC9F8665D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +196,8 @@ CD 4: THE GLORY OF THE FRENCH BAROQUE(   Читать дальше...   )Жан�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +226,8 @@ VA - Новогодняя ночь (2008) Ридерз Дайджест 4CD [MP3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +255,8 @@ CD3: Mighty choruses(   Читать дальше...   )Жанр: ClassicПро�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +283,8 @@ Piano Trio in C minor, op. 1 no. 3
 ```bash
 magnet:?xt=urn:btih:0F3AD6E670BE05B840C22E54EC106E18E6BDE562
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +315,8 @@ Symphony No.1(   Читать дальше...   )Жанр: ClassicalПродол
 magnet:?xt=urn:btih:887DA99D08E78894AE62BBA0A67E28B0FCC5E9FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +343,8 @@ magnet:?xt=urn:btih:887DA99D08E78894AE62BBA0A67E28B0FCC5E9FB
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +379,8 @@ Stabat Mater per soprano, contralto, archi e continuo
 magnet:?xt=urn:btih:146988C0F98EC56045A1EA9486B0E7FF81CC43AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +404,8 @@ magnet:?xt=urn:btih:146988C0F98EC56045A1EA9486B0E7FF81CC43AE
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +434,8 @@ Glenn Gould - Bach - The Goldberg Variations (1955) 2015, Sony [FLAC 2.0|44/24|W
 magnet:?xt=urn:btih:44E05249F9E17BF005CEE9B8CC9F3F7C31769E70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +462,8 @@ VA - Gluck: Orfeo ed Euridice - Orpheo - Highlights Of The Versions For Vienna (
 ```bash
 magnet:?xt=urn:btih:EAB867F2E4C2D3272555BA090150D30A4EB19AF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +492,8 @@ Swan Lake Suite.
 magnet:?xt=urn:btih:D6B69E23BAACFB9C997518E3FA977AFEB0E5C0BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +517,8 @@ Mozart - Piano Concertos nos. 9, 17-27 (Barenboim - ECO) [6 CDs] (2010) [MP3|V0]
 ```bash
 magnet:?xt=urn:btih:68C252D8924DCE5B1567B943E9206CAC510E14A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +547,8 @@ VA - Calm Modern Classical Music: 14 Relaxing and Chilled Classical Pieces (2020
 magnet:?xt=urn:btih:633D8ABA6C004F4C0B4CB8A4D0B34F293EB293B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +575,8 @@ II. Kyrie
 ```bash
 magnet:?xt=urn:btih:15BE610318F04345920688C0DE30549DFCFC2EE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +611,8 @@ Concerto Op.9/7 D-major for Violin and Strings(   Читать дальше...  
 magnet:?xt=urn:btih:90445C2CB1727EC176628A582D31EB2B08E6C4F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +640,8 @@ VA - 100 Best Adagio Voices (6CD Box-set) (серия "Best 100") (2008) [FLAC|L
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +665,8 @@ Bach - Violin Sonatas BWV 1014, 1018 & 1019; Bach C.P.E. - 2 Violin Sonatas: Ros
 ```bash
 magnet:?xt=urn:btih:3DA23C7146E6F3071B4EE2FB6C7C09CC32572521
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -651,6 +697,8 @@ Bach - The Organ Works (5 Toccatas & Fugues): Lionel Rogg (1993) [MP3|320]<Class
 ```bash
 magnet:?xt=urn:btih:BF427B7E9639BB5969EE0411639DBD613D641CDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -685,6 +733,8 @@ London Philharmonic Orchestra - The 50 Greatest Pieces Of Classical Music (2011)
 magnet:?xt=urn:btih:E894D5A4204340682570BA4DA7787A552F6ED6EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -717,6 +767,8 @@ Requiem for soloists, chorus, and orchestra, K. 626
 ```bash
 magnet:?xt=urn:btih:DF3B6A5D721C98B459C99976767D953C37C01ECF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

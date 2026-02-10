@@ -19,6 +19,8 @@ Website-Watcher — мощное приложение для отслежива�
 magnet:?xt=urn:btih:ACF032B60DFC8559E7EC6A079757A9853223AB93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ GoodbyeDPI 0.2.3rc3 Launcher 10.1 [Ru/En]
 magnet:?xt=urn:btih:52F3005782FC6FB8E7D639BE947472F99246B65C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ MetaProducts Offline Explorer Enterprise — мощнейшая программ
 ```bash
 magnet:?xt=urn:btih:BEA0601E499EB905F7B86F4C90CC828BBF64E25B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Any Video Downloader Pro - это приложение для Windows, кото�
 magnet:?xt=urn:btih:41A8CBBEFC40A48B24E8940FD99FFF8661163EE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ MyLanViewer — программа для сканирования и монит
 ```bash
 magnet:?xt=urn:btih:37D238519AA8B879B26610660C908AA68B1BCD86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Google Earth Pro 7.3.6.10441 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:1C1C5E445640537D89D255A1D737567EBB332287
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Tor Browser Bundle 14.5.7 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1472065F921F8C8A5EE1DFDD53ED5F6F89C65A37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ MassTube Ultra — очень простая в использовании пр�
 magnet:?xt=urn:btih:2A479FD160513AFF2E76405F8D144D0F13E1C2D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Google Earth Pro 7.3.6.10441 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6C14A4FF25754CA7BE1A4D81D764A43ADBF0E5AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ ByClick Downloader (бывший YouTube By Click) - отличный и удо�
 magnet:?xt=urn:btih:B1D66479132DFE3E67F5868D85A5006958585AE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:A1F69EC0332169F022D6A87F4F3529FE45C1E081
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ ByClick Downloader (бывший YouTube By Click) - отличный и удо�
 magnet:?xt=urn:btih:35AEADD04DF6347E8C023EA24C1301DD1E25F2BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:A8A797C96798DC19190D1DABAF534B1569F85BA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ FreeTube использует собственный HTTP-API YouTube с наб�
 magnet:?xt=urn:btih:772440760B7170BBDA19BABD4C8EA60F714CC6DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ iDownerGo – это приложение для загрузки мультим
 ```bash
 magnet:?xt=urn:btih:3304A5C4A6CD6AA28BBEBB9A7F0F739DB4841981
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Download Master эффективно решает 3 главных пробле�
 magnet:?xt=urn:btih:AA15AE93EF5F30D217FCAC796F26AAA7720FCF87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ MyLanViewer — программа для сканирования и монит
 ```bash
 magnet:?xt=urn:btih:601BE7C2AFAC06871816EEECB5807F981239E8BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ iTubeGo YouTube Downloader 10.8.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:E751FB6C8F84AB0755FD45160B37CE5C2FD08A1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ AnyDesk 9.6.1 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:AE84F23458042158D081B9AEA2D042AB098D1103
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:6AF1270795E9B6AE6D4AD9E89701E5595F3220E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ RustDesk Remote Desktop – программное обеспечение для
 magnet:?xt=urn:btih:80548A26B94E76AFA14E92C1C41E98AA6FA39D01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ Apowersoft Video Download Capture 6.6.0.0 RePack by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:2C917D8BCA46D3225E0B57AA389FABB218C32A80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:2C917D8BCA46D3225E0B57AA389FABB218C32A80
 ```bash
 magnet:?xt=urn:btih:11E6434E24CA1770745CCC342A52626F1827CCEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ Azureus — свободный BitTorrent-клиент, созданный в 20
 magnet:?xt=urn:btih:B0F2559B3490E25E3558325C5BA96A36F1933A3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ Ceno — первый браузер, разработанный для инте
 magnet:?xt=urn:btih:1ED9E46348B4EE690452DF7A4952322D094BE623
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Lacey -  простой инструмент для поиска и скачив
 ```bash
 magnet:?xt=urn:btih:309ED354F1D6E200F4AE8B431AB671A94C17275F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

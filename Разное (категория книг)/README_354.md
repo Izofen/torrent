@@ -1,3 +1,31 @@
+###  Публикация: 1053102   (524927) от 17.09.2016
+
+Гуру Мадхаван | Думай как инженер. Как превращать проблемы в возможности (2016) [EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Путешествие внутрь умов, проектирующих и создающих наш мир.
+Небоскреб Бурдж-Халифа в Дубае - самое высокое здание в мире - совсем не похоже на программу Microsoft’s Office Suite, а цифровой объемный звук работает не так, как городская телевизионная сеть. Но с точки зрения инженера эти подвиги и достижения человеческого ума имеют много общего.
+Это книга о тех инструментах (   Читать дальше...   )Жанр: Бизнес, МенеджементФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFABD8097672BF44978A372CB03EAB6AB2F8FDE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1157640   (525087) от 12.08.2017
 
 Игорь Ковтун | Прокачай себя: занятия с собственным весом (2017) [PDF]
@@ -20,6 +48,8 @@
 ```bash
 magnet:?xt=urn:btih:D36D03000933D4E79293E21AE048EECC33FAFAD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +78,8 @@ magnet:?xt=urn:btih:D36D03000933D4E79293E21AE048EECC33FAFAD0
 magnet:?xt=urn:btih:8A61B9E0F81BAFF106BDA816D206610544C70D2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +104,8 @@ magnet:?xt=urn:btih:8A61B9E0F81BAFF106BDA816D206610544C70D2B
 magnet:?xt=urn:btih:C754456577A8BBB72B97010FC89E2877E58D39A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +129,8 @@ magnet:?xt=urn:btih:C754456577A8BBB72B97010FC89E2877E58D39A7
 ```bash
 magnet:?xt=urn:btih:3D5A0326CC073FAEB2C7ED18CA50DDE3FB710378
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +158,8 @@ magnet:?xt=urn:btih:3D5A0326CC073FAEB2C7ED18CA50DDE3FB710378
 magnet:?xt=urn:btih:C764F5EEA158C22DDCF7614E164F13083B3395EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +186,8 @@ magnet:?xt=urn:btih:C764F5EEA158C22DDCF7614E164F13083B3395EC
 magnet:?xt=urn:btih:1398DF3849C1F106EBE2B147EBF4D46AD21B8AE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +211,8 @@ magnet:?xt=urn:btih:1398DF3849C1F106EBE2B147EBF4D46AD21B8AE4
 ```bash
 magnet:?xt=urn:btih:FAD29C6B08255AF2894D0865598E936A67D4096E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +239,8 @@ magnet:?xt=urn:btih:FAD29C6B08255AF2894D0865598E936A67D4096E
 magnet:?xt=urn:btih:EAEC4BE1A23225BC38B159A8977BFDC5E7782EEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +265,8 @@ magnet:?xt=urn:btih:EAEC4BE1A23225BC38B159A8977BFDC5E7782EEA
 magnet:?xt=urn:btih:E7594B619CC95DE9F1171ADB4C3AC9F1CA3EFA4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +290,8 @@ magnet:?xt=urn:btih:E7594B619CC95DE9F1171ADB4C3AC9F1CA3EFA4F
 ```bash
 magnet:?xt=urn:btih:865A36F035D6FA50A7609878CB7F7E1F752F703A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +319,8 @@ magnet:?xt=urn:btih:865A36F035D6FA50A7609878CB7F7E1F752F703A
 magnet:?xt=urn:btih:5A9CC718C385726D3E7D2185166D7305CF0D3897
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +344,8 @@ magnet:?xt=urn:btih:5A9CC718C385726D3E7D2185166D7305CF0D3897
 ```bash
 magnet:?xt=urn:btih:34EB762C5B825D3637AB40DE5849CB0E8AFCB727
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +371,8 @@ magnet:?xt=urn:btih:34EB762C5B825D3637AB40DE5849CB0E8AFCB727
 magnet:?xt=urn:btih:B6E4F12B6C22FC96069A6A535F4D6DFAFF757D8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +397,8 @@ magnet:?xt=urn:btih:B6E4F12B6C22FC96069A6A535F4D6DFAFF757D8D
 magnet:?xt=urn:btih:080A601053B41BC22B107F14B6922639C4A0ED0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +422,8 @@ magnet:?xt=urn:btih:080A601053B41BC22B107F14B6922639C4A0ED0C
 ```bash
 magnet:?xt=urn:btih:27010CC2C914C78CFAF592AA27E9ABB261892A8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +450,8 @@ magnet:?xt=urn:btih:27010CC2C914C78CFAF592AA27E9ABB261892A8F
 magnet:?xt=urn:btih:630C97B20A27440B30058A666C7DA9D4405DA44C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +477,8 @@ magnet:?xt=urn:btih:630C97B20A27440B30058A666C7DA9D4405DA44C
 magnet:?xt=urn:btih:ADEF422AB2E9404A8906A39FC18485852B260E25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +503,8 @@ magnet:?xt=urn:btih:ADEF422AB2E9404A8906A39FC18485852B260E25
 magnet:?xt=urn:btih:8A65402F3966B804A97EDEC466476AE92FF293C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +528,8 @@ magnet:?xt=urn:btih:8A65402F3966B804A97EDEC466476AE92FF293C9
 ```bash
 magnet:?xt=urn:btih:550620EC52BD96B6842894B61EE38F3A10DC61ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +556,8 @@ magnet:?xt=urn:btih:550620EC52BD96B6842894B61EE38F3A10DC61ED
 magnet:?xt=urn:btih:41A265C6057E447B48D62245F6F6B1CE5CD8F622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +581,8 @@ magnet:?xt=urn:btih:41A265C6057E447B48D62245F6F6B1CE5CD8F622
 ```bash
 magnet:?xt=urn:btih:9935627811A8BA6BD4ACF8784A96C13274CD170C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +609,8 @@ magnet:?xt=urn:btih:9935627811A8BA6BD4ACF8784A96C13274CD170C
 magnet:?xt=urn:btih:5F7D9170A74BD13C4C52F958D62B43393819F239
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +634,8 @@ magnet:?xt=urn:btih:5F7D9170A74BD13C4C52F958D62B43393819F239
 ```bash
 magnet:?xt=urn:btih:C7AB874B531E18FCF8B07417F13AD7C7AB19B36E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +663,8 @@ magnet:?xt=urn:btih:C7AB874B531E18FCF8B07417F13AD7C7AB19B36E
 magnet:?xt=urn:btih:FDBF112AE738578937153EE2CE0AB10C7E412A06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,29 +689,7 @@ magnet:?xt=urn:btih:FDBF112AE738578937153EE2CE0AB10C7E412A06
 magnet:?xt=urn:btih:3E28C2AF6C22384B9CF20FC4E171B8CB1898A27D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053194   (526654) от 16.09.2016
-
-Е. М. Ярославский | Задачи и методы антирелигиозной пропаганды (1925) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доклад на курсах переподготовки сельского учительства Московской губернии, 25 июля 1924 года.Жанр: История, религиоведение, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C1A86DA3F18CC160B0BF6D1A0BD44DA74C5CBCD
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

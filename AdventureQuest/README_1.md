@@ -19,6 +19,8 @@ Veil of the Skies (2025) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:94AB697EA219DE10DC09ACA526DD9A4F73FBF9ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NODE: The Last Favor of the Antarii / NODE: последняя услуга Ан
 ```bash
 magnet:?xt=urn:btih:86A68CD4392BBD4E40B213164FBACB0E803EBCDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ SkullX: Aibohphobia (2025) [En] (1.0.4) Repack FitGirl
 magnet:?xt=urn:btih:3F2C4A62D3FC4C63EC09E17BE82644C2C889C068
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Caput Mortum (2025) [Ru/Multi] (1.1.0.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:67BFB0F3E950E6C721BCD742079D9C98CB2C3D6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.3) Repack Wanterlude
 magnet:?xt=urn:btih:933246ED7A6408B08FC5B0387A5ADE4E5B4C5F86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Ithya: Magic Studies / Итийя: Волшебные занятия (2025) [Ru/
 ```bash
 magnet:?xt=urn:btih:AF5F0450072C742D070BE801099FA693B4F02E89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Ithya: Magic Studies / Итийя: Волшебные занятия (2025) [Ru/
 magnet:?xt=urn:btih:B3FD555508CC65259DBAA081AD52B84505913312
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ BROK the InvestiGator - The Brawl Bar (2025) [Ru/Multi] (1.5.3.7) License GOG
 ```bash
 magnet:?xt=urn:btih:CF2A6C2A9019CA4834854B87ADC95D4853D62B4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Herdling - это новое приключение от Okomotive, создав
 magnet:?xt=urn:btih:D9B63E6F3293C98D96BE3A1F6E81B1345814F150
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Aurelia (2024) [Ru/Multi] (1.0.1) Repack Let'sРlay [18+]
 ```bash
 magnet:?xt=urn:btih:AC92A84224079114DF118A7DD9E24B99EE72E253
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ BROK The InvestiGator (2022) [Ru/Multi] (1.5.3.7/dlc) License GOG [Deluxe Editio
 magnet:?xt=urn:btih:86A1657B53A0FB31E7FF41F72E55338D0278ABC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ The Drifter (2025) [Ru/Multi] (1.0.7) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:088B7099A9F13B4BF4721A48838B33B48FDAAB48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Vlad Circus: Curse of Asmodeus (2025) [Ru/Multi] (1.6.1) License GOG
 magnet:?xt=urn:btih:5B099136617A556E1A305A29E8DF106534E0ED95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Spirit of the North 2 (2025) [Ru/Multi] (12765-13132) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:C3CBC428F06E009717C0295EC2F24591996EFE65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Herdling - это новое приключение от Okomotive, создав
 magnet:?xt=urn:btih:76B4E433B48429B4C35BECDBDB3EECEAF37CA8E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Garden Path (2024) [Multi] (1.0) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:D2C6E6E5BEC9CC703CAB4CF714441C39DD66B9BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Skully наделён силой волшебной глины и должен �
 magnet:?xt=urn:btih:E82B1E26B1688ABDA2CC51CB113C64910C9FBE79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Dave the Diver - это казуальная приключенческая RPG 
 ```bash
 magnet:?xt=urn:btih:EA2AF3B4D2DAE4F4DCDE7E53763D5B5451E96D65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Bendy: Lone Wolf (2025) [Ru/Multi] (2.0.0) License GOG
 magnet:?xt=urn:btih:7A10F6BFED2ED166A9C997EB3B4B727C522DBDC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Bendy: Lone Wolf (2025) [Ru/Multi] (2.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4AE8506652DC97424FA830FED8F9D18DEE7DD33D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ The Blackwell Legacy – приключенческий квест о молод
 magnet:?xt=urn:btih:DE2B1B1FCBBBA0DEB4BACECF619B3115745A07F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ The Blackwell Deception (2011) [En] (3.5) License GOG
 ```bash
 magnet:?xt=urn:btih:9879DF79EE44E130A257B2BE5010A64BDE2FAB7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Primordia (2012) [Multi] (5.3) License GOG
 magnet:?xt=urn:btih:0CE3881A60A4DC5512B6417547BC64D304B601F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Herdling - это новое приключение от Okomotive, создав
 ```bash
 magnet:?xt=urn:btih:2CBCF11DE8FE4CB3E8879E83ED8E2F888D7CB861
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Monospaced Lovers сочетает в себе несколько жанров. 
 magnet:?xt=urn:btih:AF09464914CF98667F5E04F3A4B1AF859C84D10C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ The Beast Inside – психологический хоррор с соврем
 ```bash
 magnet:?xt=urn:btih:7A493A1C3A2C90D0B4174300DDB0251DEBED7776
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

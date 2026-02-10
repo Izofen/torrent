@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:D1B76EA68C7A2CDA2D0B526457FD9594177D1A51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Room Arranger - программа специально предназначен
 ```bash
 magnet:?xt=urn:btih:B1E955B65EBDA20D1A7462F45E096385780A73B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:B1E955B65EBDA20D1A7462F45E096385780A73B7
 magnet:?xt=urn:btih:B8A929435B7147D5BE74398096C7BAE371C8682A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ The Expanse: A Telltale Series (2023) [Ru/Multi] (1.0.902523.2310241203) Repack 
 ```bash
 magnet:?xt=urn:btih:11DCE015CCB7DC76B9E6EF93F4DDD14C5513B83D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ BurnAware - простая и в тоже время мощная програм
 magnet:?xt=urn:btih:6BC55E2FAEFA55CBEA066978795FA920C865311C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:6BC55E2FAEFA55CBEA066978795FA920C865311C
 ```bash
 magnet:?xt=urn:btih:17773375B19345F784870727CA70AC9A522EB4A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:17773375B19345F784870727CA70AC9A522EB4A2
 magnet:?xt=urn:btih:B752464A4EBDC88DF007E0109308DDE2E2A72026
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:B752464A4EBDC88DF007E0109308DDE2E2A72026
 ```bash
 magnet:?xt=urn:btih:6DF3173E9E7A703C969E7EBC64DEAD7E2881DC05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ VA - Pop Rock Chart Music (2018) [MP3|320 Kbps] <Pop, Rock>
 magnet:?xt=urn:btih:15096C954963AEC46AA90AAB43E964D36624477A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:15096C954963AEC46AA90AAB43E964D36624477A
 ```bash
 magnet:?xt=urn:btih:8F499E18BA21E0E10D6B1872014F60A442E242F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:8F499E18BA21E0E10D6B1872014F60A442E242F6
 magnet:?xt=urn:btih:751DD46CBD050AB5D9A60313C60D1D24A259A703
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ Twinkstar - китайский браузер на базе Chromium. В Twinkst
 magnet:?xt=urn:btih:34E8E9C8A2B1E29CE2A66E14DDBCDCF3BAFBEE93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:34E8E9C8A2B1E29CE2A66E14DDBCDCF3BAFBEE93
 ```bash
 magnet:?xt=urn:btih:5F9BDE0C31BCFFDEBB421E5142C1DD1C69240AF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ Reflect Studio - новый фото редактор от создателей 
 ```bash
 magnet:?xt=urn:btih:0E59D296FC4146198C552E2D271B615951841F42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ Stormzy - Gang Signs & Prayer (2017) [FLAC|Lossless|tracks + .cue] <Grime>
 magnet:?xt=urn:btih:7EB73A97158668F7C968013D93F328F70A82404E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:7EB73A97158668F7C968013D93F328F70A82404E
 ```bash
 magnet:?xt=urn:btih:7E5476FF37CE7B497FE245C4E54F51B054E7195E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ Windows 10 2022 Update (под кодовым названием "22H2") это 
 magnet:?xt=urn:btih:2F729A6C53B46FD726E89B6DFE46939EC4FE46E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ Soilwork - Verkligheten (2019) [MP3|320 Kbps] <Modern Melodic Death Metal>
 magnet:?xt=urn:btih:C58A2D573AC168B75889EE0A44E451414AE61C64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ magnet:?xt=urn:btih:C58A2D573AC168B75889EE0A44E451414AE61C64
 ```bash
 magnet:?xt=urn:btih:A9C83B42EEBEC1A16CCAAA8F8CD1B306341DED23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:A9C83B42EEBEC1A16CCAAA8F8CD1B306341DED23
 magnet:?xt=urn:btih:8711FB2904FA49E70A48DF6102F3CAAA09BBC89D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ magnet:?xt=urn:btih:8711FB2904FA49E70A48DF6102F3CAAA09BBC89D
 ```bash
 magnet:?xt=urn:btih:7E70C5E7C05F50C95E67D05A2989D489CBC72754
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +583,8 @@ magnet:?xt=urn:btih:7E70C5E7C05F50C95E67D05A2989D489CBC72754
 magnet:?xt=urn:btih:235F4BDB784141214607DDD4CD4FC695770B0261
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +608,8 @@ magnet:?xt=urn:btih:235F4BDB784141214607DDD4CD4FC695770B0261
 ```bash
 magnet:?xt=urn:btih:AB40BF7D5B339D86546795C3EC3EAA85A7D0C24C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +638,8 @@ magnet:?xt=urn:btih:AB40BF7D5B339D86546795C3EC3EAA85A7D0C24C
 magnet:?xt=urn:btih:8114A41DA549480B781CB940E3E00BF8E3DE8F2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ MInstAll by Andreyonohov & Leha342 Lite v.27.12.2020 [Ru]
 magnet:?xt=urn:btih:EDFDE6EC7785B5B102681D090444E9626B6C5B9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ Q-Dir - бесплатный, отличный файловый менеджер
 ```bash
 magnet:?xt=urn:btih:B5DCB4DE8C266682B9D27F12AB84D88A7C74C5A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

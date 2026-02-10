@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:8FEA952EB3121D3AB1710C56F7EE666421F7285F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:8FEA952EB3121D3AB1710C56F7EE666421F7285F
 ```bash
 magnet:?xt=urn:btih:B47065C41ABFE2122B8E99C6F1C30CABC961D111
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:B47065C41ABFE2122B8E99C6F1C30CABC961D111
 magnet:?xt=urn:btih:F0B5E6FA747DBE07BDC64C61F9AE37DF95134483
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ BBC. Легендарные тигры Индии / Легендарні тиг�
 ```bash
 magnet:?xt=urn:btih:E8650D07EBEA78A24D5BFFEAD2D7A1A57BFEBA36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:E8650D07EBEA78A24D5BFFEAD2D7A1A57BFEBA36
 magnet:?xt=urn:btih:43AC19545D9591BC2576B7E6827EEC7E96EDAEB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:43AC19545D9591BC2576B7E6827EEC7E96EDAEB0
 ```bash
 magnet:?xt=urn:btih:70D409372C5AA4CE58BBBF6941D22396D7183AAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:70D409372C5AA4CE58BBBF6941D22396D7183AAB
 magnet:?xt=urn:btih:2ED3C958067AA0EBA02F6628D0503F932CF2611C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Discovery: Экоград / Ecopolis (2008) SATRip (серии 1-6 из 6)
 ```bash
 magnet:?xt=urn:btih:085851B6BEC80A698AEAD0D904A3DFEDD5FA31DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Discovery: Шахты на Луне / Mining the Moon (Роб Бимер) HDTVRi
 magnet:?xt=urn:btih:550CE60ABC2274346811CB6A12E573C29479FD8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:550CE60ABC2274346811CB6A12E573C29479FD8C
 ```bash
 magnet:?xt=urn:btih:C8C3165C3B82EB4368A9B21F4FF5D955BA7666AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ BBC: Млекопитающие / Mammals (2024) WEBRip [H.264/1080p] (сезо�
 magnet:?xt=urn:btih:212D12E1F7A24872CDCA5FCC2992899A1A7B54C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:212D12E1F7A24872CDCA5FCC2992899A1A7B54C9
 ```bash
 magnet:?xt=urn:btih:6D4830FA863C1FA5EED47DCC427851839B4B6B71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:6D4830FA863C1FA5EED47DCC427851839B4B6B71
 magnet:?xt=urn:btih:8AF731368ABBE1EC0D432F190019121C72C55B2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ NG: Первозданная природа. Эдем жизни / The Living Ed
 ```bash
 magnet:?xt=urn:btih:541311272EBB0DBABD2357A19CC16934207D9297
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ NG: Известная Вселенная. Есть там Кто-Нибудь? 
 magnet:?xt=urn:btih:EFBC3C0B83E3D0EB6BE4FECB14D01840B6AD4290
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:EFBC3C0B83E3D0EB6BE4FECB14D01840B6AD4290
 ```bash
 magnet:?xt=urn:btih:A23F45080DFABF4336D8DB48086EF2EC78A96C73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ BBC: Я и гравитация. Сила, формирующая нашу жи�
 magnet:?xt=urn:btih:55ED6ED8E918C440213235B2521D45050A129884
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:55ED6ED8E918C440213235B2521D45050A129884
 ```bash
 magnet:?xt=urn:btih:29167A4F3A4EB79E4D973E61AEC7C2927991F417
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ BBC. Чудо Песни Дэвида Аттенборо / Attenborough's Wonder
 magnet:?xt=urn:btih:B7AD7CA7CB6ED8088D3FC40F645B0F0C8F1A01E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.265/2160p]
 ```bash
 magnet:?xt=urn:btih:A0BCF9C0FA77147DD238BDD3E522AE8EA2B98558
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ BBC. Вселенная / Universe / Das Universum - Faszination Weltall (2022) 
 magnet:?xt=urn:btih:2B0AF73E5C89BC5D1C08ABBE7BF971A9EAAF86C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ magnet:?xt=urn:btih:2B0AF73E5C89BC5D1C08ABBE7BF971A9EAAF86C9
 ```bash
 magnet:?xt=urn:btih:BF3595C4BEC0B9980CB617E58C462B78D81C6290
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ NG: Неизвестный Китай / Lost In China (2009) HDTVRip [H.264/720p
 magnet:?xt=urn:btih:335E4285F3218D22ECD7A74041706A177FD255F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ BBC: Космическая одиссея. Путешествие по гала
 ```bash
 magnet:?xt=urn:btih:75DDB693A2765C46092E2008E8594975B48A9AA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ magnet:?xt=urn:btih:75DDB693A2765C46092E2008E8594975B48A9AA7
 magnet:?xt=urn:btih:44283EFF8F9E32DFA43DF3155A4AD9F798AEA16F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ magnet:?xt=urn:btih:44283EFF8F9E32DFA43DF3155A4AD9F798AEA16F
 ```bash
 magnet:?xt=urn:btih:C586ECEDC752515868A3F0B116CBE147DA5C6FCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

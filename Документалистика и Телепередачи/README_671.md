@@ -1,3 +1,29 @@
+###  Публикация: 991693   (904426) от 29.02.2016
+
+Письма из провинции. Среди звёзд. Пермский край (2016) IPTVRip
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_904426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мало кому известно о том, что закрытая в советское время Пермь была важнейшей частью космической программы СССР. Вначале на пермских заводах выпускали ракеты для обороны страны, а потом и для полетов в космос. Мотовилиха, крупнейший завод Перми, стал частью судьбы Светланы Мишлановой, которая организовала акцию  в память о простых рабочих, трудившихся во время войны. (   Читать дальше...   )Телекомпания: ГТРК, Санкт-ПетербургЖанр: ДокументальныйПродолжительность: 00:25:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFAC5527A410E00686940D2045042E67DF34670C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991968   (904429) от 29.02.2016
 
 С миру по нитке. Самобытный Улан-Удэ (2016) HDTVRip [720p-LQ]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:55EDC8DEFE2316A8877827F1516FB1ED153EADFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:55EDC8DEFE2316A8877827F1516FB1ED153EADFD
 magnet:?xt=urn:btih:C7A9150E26F1ECBADAF69817706C1E5FE1F05AA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:C7A9150E26F1ECBADAF69817706C1E5FE1F05AA6
 ```bash
 magnet:?xt=urn:btih:25D389B4690F31627A0A75DFEAA7B77D9385968F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ Aнисса Науэй ведёт аналитическую программу 
 magnet:?xt=urn:btih:A4C81A8FD8C20C3F2E14A8333E7867892565206D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:A4C81A8FD8C20C3F2E14A8333E7867892565206D
 ```bash
 magnet:?xt=urn:btih:B6A21A25996C8BF1A6CBC8679402A525993630B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:B6A21A25996C8BF1A6CBC8679402A525993630B0
 magnet:?xt=urn:btih:67101F355FA0D1401812749A1F5C42197B259822
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:67101F355FA0D1401812749A1F5C42197B259822
 ```bash
 magnet:?xt=urn:btih:C21E37619F4E29946B4EBA740BCE049B95A9DCAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:C21E37619F4E29946B4EBA740BCE049B95A9DCAF
 magnet:?xt=urn:btih:2A2BEF01C86AC031027056FA295938114BF9EBF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:2A2BEF01C86AC031027056FA295938114BF9EBF4
 ```bash
 magnet:?xt=urn:btih:6C76DF52A8B945F39347284C614C294A9281DF65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:6C76DF52A8B945F39347284C614C294A9281DF65
 magnet:?xt=urn:btih:208BABD1557A3CA6270B86D1A94BC83C77D1C412
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:208BABD1557A3CA6270B86D1A94BC83C77D1C412
 ```bash
 magnet:?xt=urn:btih:D958270F2B6591E560C99DF44EE72EF0B55ADFE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:D958270F2B6591E560C99DF44EE72EF0B55ADFE7
 magnet:?xt=urn:btih:AE77B17F8F54A9D588CB9DEFF67C3B23BBFB9CBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:AE77B17F8F54A9D588CB9DEFF67C3B23BBFB9CBA
 ```bash
 magnet:?xt=urn:btih:E5922C51499CD20313108E12A9C244A4D6043EF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:E5922C51499CD20313108E12A9C244A4D6043EF2
 magnet:?xt=urn:btih:7AFC8598C6B302BBE9FBEFDBF45576170DD4FE9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:7AFC8598C6B302BBE9FBEFDBF45576170DD4FE9F
 ```bash
 magnet:?xt=urn:btih:BEE06EB04A340657078AB5AAF0E4967817A17E6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:BEE06EB04A340657078AB5AAF0E4967817A17E6B
 magnet:?xt=urn:btih:C61C1278663E96FB5C0D0D20A7260C070CD416DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:C61C1278663E96FB5C0D0D20A7260C070CD416DA
 ```bash
 magnet:?xt=urn:btih:83BB0E5306194A91ADF874F339A38568914FC7CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:83BB0E5306194A91ADF874F339A38568914FC7CC
 magnet:?xt=urn:btih:EF522B395B9F13AE0CA0A0E331154B48829300B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +515,8 @@ magnet:?xt=urn:btih:EF522B395B9F13AE0CA0A0E331154B48829300B2
 ```bash
 magnet:?xt=urn:btih:8E2694DB52308BB74E498357167F56B3F30150C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:8E2694DB52308BB74E498357167F56B3F30150C6
 magnet:?xt=urn:btih:C9A3AE1AD87A808D6ADAA2C9115707D25AAE8674
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +567,8 @@ magnet:?xt=urn:btih:C9A3AE1AD87A808D6ADAA2C9115707D25AAE8674
 ```bash
 magnet:?xt=urn:btih:BCE90A3ED96FF2DD0F7819500A0D3CD7BB81D6B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:BCE90A3ED96FF2DD0F7819500A0D3CD7BB81D6B2
 magnet:?xt=urn:btih:8E96D49BD70779BCE16661F6F86060872E8790E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +619,8 @@ magnet:?xt=urn:btih:8E96D49BD70779BCE16661F6F86060872E8790E8
 ```bash
 magnet:?xt=urn:btih:68DD5F438319AAA7238E8465B8D0E06597BA9196
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +646,8 @@ magnet:?xt=urn:btih:68DD5F438319AAA7238E8465B8D0E06597BA9196
 magnet:?xt=urn:btih:F7B1E05A86CD177B7EA2695D07C95D114EC42D89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,29 +672,7 @@ magnet:?xt=urn:btih:F7B1E05A86CD177B7EA2695D07C95D114EC42D89
 magnet:?xt=urn:btih:66FDF0631977AA04BE6839CAAA2ABB49E2190A05
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989301   (905792) от 28.02.2016
-
-Ревизорро-шоу (2016.02.10) SATRip (выпуск 1)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три сезона Лена Летучая проверяла отели и рестораны по всей стране. Не ради себя, а во имя высоких стандартов сервиса. Многие не прошли проверку. Есть те, кто не согласен с приговором "Ревизорро". Те, кто считает, что их наказали несправедливо. Теперь у владельцев заведений есть шанс защитить свою честь и бизнес! Прийти в студию и высказать свои претензии (   Читать дальше...   )Телекомпания: ПятницаЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 01:13:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBAD43EB0DA46E3C65E69D548F622DFCF7177653
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ Ashampoo Photo Optimizer 9.4.7.36 RePack (& Portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:7139B78FB518454C275CDE6D8F4BDF90237B6A2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:73BB171F78F62F9582A45E0DD562816DC77E9CFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ AVZ - Бесплатная быстро работающая антивирус�
 magnet:?xt=urn:btih:69878FF8D30F8088C0FCDF8AD0F8EB141DD30B4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Print.Test.Page.OK - это альтернативная портативная 
 magnet:?xt=urn:btih:FF0258706CAB99BE4071AC541AE67AE8B76325F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Visual Studio Enterprise 2022 - Интегрированное комплекс�
 ```bash
 magnet:?xt=urn:btih:663A345C6DC43F8E6EAB7EC7655DC6BDCB8BD33F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Beyond Compare – мощная и одна из лучших программ �
 magnet:?xt=urn:btih:2B46F5E1F4871C0C8E38EE0A5B44FBFA0D9D7C66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Linux Kodachi — дистрибутив Linux, основанный на Xubunt
 ```bash
 magnet:?xt=urn:btih:15F665DCDF6964018F5293EBD6EF698F3FC2F7DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Visual Studio Enterprise 2022 - Интегрированное комплекс�
 magnet:?xt=urn:btih:36B888F8914C7E1E178846EDAF039F039AE96D18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ CPU-Z способен показать различную информацию 
 ```bash
 magnet:?xt=urn:btih:23F21722B39D8B36BD81B173D0F8BEFDEE69A127
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ KeePassXC — программа для управления паролями. �
 magnet:?xt=urn:btih:1D82FEF80712FDEACA4A26E9400ABD7BA2CC7D45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ ExperienceIndexOK - небольшая утилита от разработчи�
 magnet:?xt=urn:btih:1C37E5DE6EF5546B16C95FDFCBE4F40202298958
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Wondershare Filmora for Mac  12.4.2  [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1A26EC0F9782F46911689A3F896E37159EC7FDC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ Hosts File Editor - небольшая бесплатная утилита, ко
 magnet:?xt=urn:btih:B676C6DE19F81D881B11C255FAE608F1A8F24DCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Microsoft Office 2013 SP1 – лучший пакет прикладных пр�
 ```bash
 magnet:?xt=urn:btih:EE0EB9F494DA0EB231FAE8E0DA649045B8CD8239
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Display Driver Uninstaller это утилита удаления драйвер
 magnet:?xt=urn:btih:32BE6E5C9CF16C2B5B3B19CC18E301C98AF37B36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:32BE6E5C9CF16C2B5B3B19CC18E301C98AF37B36
 ```bash
 magnet:?xt=urn:btih:1251F366BCAC80A6C79264B4EDFEB0F198867402
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Xara Photo & Graphic Designer+ 23.3.0.67471 [Multi]
 magnet:?xt=urn:btih:F8113D65EEE8D78B86504E661A37DDD80924EC24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ OfficeSuite Pro + PDF - это полнофункциональный офисн
 magnet:?xt=urn:btih:08D20E644130C1271645E62990BDEE285E8D62EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:33B2127078E6192B4F48BAAC352C574311EDC921
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ DNS Changer - это интуитивно понятное и удобное п�
 magnet:?xt=urn:btih:19B8E46B8376C4FDBDFEF2F8EEC1271F791CAFEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Opera One 101.0.4843.58 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6E4F8FB02FB440BA552C138A26FDE7E497A574D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:6E4F8FB02FB440BA552C138A26FDE7E497A574D8
 magnet:?xt=urn:btih:A54C721EC5FC3194A451C5385D94EDA3C8678646
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ RedNotebook - это простое GTK+ / Gnome приложение напис
 magnet:?xt=urn:btih:501908A4D77F939B23064CEF77A9CEB7880A517A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:785DDB2E82BB251D143369C8F06D68F18C855488
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Windows and Office Genuine ISO Verifier - компактная утилита д
 magnet:?xt=urn:btih:6DE3C5C3B9CE69520F4079A95021FD60E08F5718
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:C288AA4931F7486F4FC8E063BADD6911EB7171BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

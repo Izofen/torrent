@@ -22,6 +22,8 @@ CD1-3 1755(   Читать дальше...   )Жанр: Gothic MetalПродол
 magnet:?xt=urn:btih:D3AA6D9BB2E4D9671CB4D8B3BF14CF488FE85276
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:D3AA6D9BB2E4D9671CB4D8B3BF14CF488FE85276
 ```bash
 magnet:?xt=urn:btih:69229D6220984CA2359367666F25B0FA8A3DFE2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:69229D6220984CA2359367666F25B0FA8A3DFE2D
 magnet:?xt=urn:btih:F02B38C63A41CD9A8B0C810A727DEE2C1EDE924A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:F02B38C63A41CD9A8B0C810A727DEE2C1EDE924A
 ```bash
 magnet:?xt=urn:btih:FBCE072809C36A418046696B7F317A494325678B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:FBCE072809C36A418046696B7F317A494325678B
 ```bash
 magnet:?xt=urn:btih:C3B84BF284E5F868F6BBB0209C75FE499A343076
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ VA - Autumn Trance 2025 (2025) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:94580E90911452CB341E54825DBC6EAC478CB6C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:94580E90911452CB341E54825DBC6EAC478CB6C3
 magnet:?xt=urn:btih:EB877AB6185BFDEF3236EF4412EE41FD95FE5615
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:EB877AB6185BFDEF3236EF4412EE41FD95FE5615
 ```bash
 magnet:?xt=urn:btih:5860CC348ECE3C418976E0EEDEA0A0EDD052BAF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ VA - The Best Of Suanda Progressive 2025 (2025) [MP3|320 Kbps] <Trance, Progress
 magnet:?xt=urn:btih:3BED2523EF9468FB88B70F7CF3501EB80723DF10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ VA - Ibiza Winter Island 2026 (The Melodic Techno Edition) (2025) [FLAC|Lossless
 magnet:?xt=urn:btih:0712D104F3E63C6058CC8C8813294A62563DF1E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:0712D104F3E63C6058CC8C8813294A62563DF1E0
 ```bash
 magnet:?xt=urn:btih:E9959FBECCFB763277365674D5A79131D5CA6601
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ VA - New Year Trance Rave 2026 (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 magnet:?xt=urn:btih:10C3B848D0304450ACF52D83271A227D4FA4C26F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ VA - New Year Trance Rave 2026 (2025) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:D541E9B1C94CEC29162DBAC093F039AE337E30EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -354,6 +380,8 @@ VA - Always And Forever (1987) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, So
 magnet:?xt=urn:btih:0B0216A683427E86E62F5BC6F5D3ACF6BB475CE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ Escape from Duckov (2025) [Ru/Multi] (1.2.5) Repack Necros
 ```bash
 magnet:?xt=urn:btih:1CEA6AEB0580EA7A0FAF038D9DE3E6A548AAB182
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ magnet:?xt=urn:btih:1CEA6AEB0580EA7A0FAF038D9DE3E6A548AAB182
 magnet:?xt=urn:btih:FCB3A6A4597CEE99B6FB78217B2CE5B9F85AF963
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ The Planet Crafter (2024) [Ru/Multi] (1.609/dlc) Repack Necros [Deluxe Bundle]
 magnet:?xt=urn:btih:4EFF5717F3A2F09BA72C717C15FA93A176CB5AFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ Wall World 2 (2025) [Ru/Multi] (1.0.8.351) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:C9C208A2A1D993A1593C9C52255909E3A75D9773
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +513,8 @@ Memoriam - британская дэт-метал группа из Бирмин
 magnet:?xt=urn:btih:03B02044490AFA86614B16BDBD7FC5C60FA03A82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ Merry Christmas Intro — это очаровательный и праздни�
 magnet:?xt=urn:btih:A41953542C74D13C2DA4BE18D3B83E3A89060F45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ Intravenous 2 - это уникальное сочетание тактичес�
 ```bash
 magnet:?xt=urn:btih:3FF3502A601EBE0EA4719C2CD972239F7C41093C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +594,8 @@ VA - Music News For Forum vol.148 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:1D7C29622F45AE766BC59F508884E6CD4DA767E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +622,8 @@ Christmas App Promo — это стильный и современный шаб
 magnet:?xt=urn:btih:3FA364804DA8347AB328EA89D07AF722FEC814B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +647,8 @@ magnet:?xt=urn:btih:3FA364804DA8347AB328EA89D07AF722FEC814B5
 ```bash
 magnet:?xt=urn:btih:F1CD8DA9CFD61E5C0559542BFB023C21520F959F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +677,8 @@ Bloodbound - Field of Swords (2025) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 magnet:?xt=urn:btih:8603571304BE7D6C32E281E64EBBE542199FCE46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ magnet:?xt=urn:btih:8603571304BE7D6C32E281E64EBBE542199FCE46
 ```bash
 magnet:?xt=urn:btih:50DA82B03C4CC3F9719BE7192EE32681021C6918
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3112310FA8332D43F2DF022B2AC8718858A1158E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Places Around The Sun - Places Around the Sun (2020) [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:7F24395128452F8702C93ABCE7BDC815CF963715
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:7F24395128452F8702C93ABCE7BDC815CF963715
 ```bash
 magnet:?xt=urn:btih:5ACB2CCC1EBB91021D7262D1F292F0EC891B62B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:5ACB2CCC1EBB91021D7262D1F292F0EC891B62B0
 magnet:?xt=urn:btih:9F0FCFDDEF5482353324E3D30C37135714209E2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:9F0FCFDDEF5482353324E3D30C37135714209E2B
 ```bash
 magnet:?xt=urn:btih:F0F7AA319998FE81848AC85890A569C348C528A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Marcus Santoro - Axtone House Party 2020-10-05 [MP3|320 Kbps] <Future House>
 magnet:?xt=urn:btih:9669763789DC05417ADF4E871EEF01FF337E28DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ RazorSQL – программа для управления основными �
 ```bash
 magnet:?xt=urn:btih:A7F722FC8362562185918FF3B487F77F8D4C7C18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Ubuntu*Pack 22.04 DDE (март 2023) [amd64] 1xDVD
 magnet:?xt=urn:btih:FC70D122184CE6B6B2A36D77997581737B769BFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:FC70D122184CE6B6B2A36D77997581737B769BFA
 ```bash
 magnet:?xt=urn:btih:AE361F1090B9F15CFFB627341CA70E313FD54A35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ Tinariwen - Amatssou (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <World>
 magnet:?xt=urn:btih:39F2982A383922D4525D9FFE15AD086DBBA199A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ VA - Пипл про | To Purple. Российско-Белорусское по
 magnet:?xt=urn:btih:82BDB4C9221E2A896D9BC9FA18D451681F71E489
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:82BDB4C9221E2A896D9BC9FA18D451681F71E489
 magnet:?xt=urn:btih:3BB1E22472F0C5CE367C36282F3E819020BE17E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:3BB1E22472F0C5CE367C36282F3E819020BE17E0
 ```bash
 magnet:?xt=urn:btih:644C08CE3B64374535E252A80108D6F1D7DFA02F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ Giant - Born Again Dead Again (2020) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal
 magnet:?xt=urn:btih:5C4CE1CDA09E201A7EC57E5FD8F93CEB6A9A5CA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ Serpentine - Living аnd Dуing In Нigh Dеfinitiоn (2011) Japanese Edition [F
 magnet:?xt=urn:btih:11F6366E4F875177D773D20E0F0D5CA4028269CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:11F6366E4F875177D773D20E0F0D5CA4028269CC
 ```bash
 magnet:?xt=urn:btih:57EEEF8484158C3A2D8AC3C57B08EA0EAEE26B75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +456,8 @@ magnet:?xt=urn:btih:57EEEF8484158C3A2D8AC3C57B08EA0EAEE26B75
 ```bash
 magnet:?xt=urn:btih:0DF784367FD10CBDA7781F41444C6283C4A8DBD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +486,8 @@ Baby Face Willette - Behind The 8 Ball (1964) 1998, Universal [FLAC|Lossless|tra
 magnet:?xt=urn:btih:F7B933CEEA300A6A15AC4847763722FFD1CFE2EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ Distant Desktop - портативная утилита, которая позв
 magnet:?xt=urn:btih:0F2EEA25A544134F761B3304DF7AE2436B9B153A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +538,8 @@ magnet:?xt=urn:btih:0F2EEA25A544134F761B3304DF7AE2436B9B153A
 ```bash
 magnet:?xt=urn:btih:52897D7AC9A8A89D307937FAF49E032E0ACCCFBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +568,8 @@ E&B Haircut - Blues Camp (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:E6D2B7A7D499340894582D5C23E7A811D1D33538
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +593,8 @@ magnet:?xt=urn:btih:E6D2B7A7D499340894582D5C23E7A811D1D33538
 ```bash
 magnet:?xt=urn:btih:43057C95B414E7BC067D4252CB2D57A5A9262F10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ TinkerTool System - утилита для управления скрытыми 
 magnet:?xt=urn:btih:4C11A0DE8A1E2AD36B2B86803D5162C9720DBC34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:63FC280A8477655BB7B7ABA78E8579E10FEC704B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +675,8 @@ Midnight Fury - Metamorph (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retro
 magnet:?xt=urn:btih:1308D6A24F215BE318894ABF196882245A06D01C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ magnet:?xt=urn:btih:1308D6A24F215BE318894ABF196882245A06D01C
 ```bash
 magnet:?xt=urn:btih:07CA9B838FE753411755B93A6A3D3EF24D7E1E84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

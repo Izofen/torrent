@@ -21,6 +21,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ ZombiU (2012) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:6807BC5A96211D7AB58BD050AFD712417C655D5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Angry Birds Star Wars (2013) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Multi
 magnet:?xt=urn:btih:FA27AE002A2A9EB979270702CC336BF95585CD0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ Remember Me [PS3] [EUR] [Ru] [4.30] [Cobra ODE / E3 ODE PRO ISO] (2013)
 magnet:?xt=urn:btih:E4B2A63A599C680DFBC3470F8E013B856B2ADF64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Bloodrayne: Betrayal [PS3] [PSN] [USA] [En] [3.40] [Cobra ODE / E3 ODE PRO ISO] 
 ```bash
 magnet:?xt=urn:btih:444E323D9D0F49FCAD8AF908A6E62ECA21B2FEDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ SaGa Frontier 2 (2000) [PS3] [USA] 4.85 [HEN / CFW] [Repack] [Ru/En]
 magnet:?xt=urn:btih:E1865981571696C42FB25580BD4D40365F5EE72E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ The Godfather: Blackhand Edition [Wii] [PAL] [ENG] (2007)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Def Jam: Icon – третья игра в серии файтингов Def Jam
 magnet:?xt=urn:btih:FB3443992AB2915213E13534A7EEB3E210C78145
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Ratatouille [Wii] [PAL] [ENG] (2007)
 ```bash
 magnet:?xt=urn:btih:29B15D7235C90FC27E57B959BDBDD103134653FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Ocean Commander [Wii] [NTSC-U] [English] (2009)
 magnet:?xt=urn:btih:4AA26D1A9158591618C3C2528E5308116587B0D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Far Cry 3: Blood Dragon (2013) [Xbox360] [RegionFree] 16537 [LT+1.9] [License] [
 ```bash
 magnet:?xt=urn:btih:1929D0B46D35B5690AC5619883A502AEF0B7C2FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Contrast - 2D/3D паззл-платформер, в котором вам не�
 magnet:?xt=urn:btih:29DBC87E11938FBB2F5915DA66A429C00FDE0C70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Teenage Mutant Ninja Turtles: Danger of the Ooze – путешествие на
 ```bash
 magnet:?xt=urn:btih:D7789825313E59FF976EB1F5D3249DA440CD6E92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ Game of Thrones: A Telltale Games Series - Episodes 1 & 2 (2015) [PS3] [EUR] (3.
 magnet:?xt=urn:btih:A86E6A6A76A006C045D025F5ECB90ACC4D4C8006
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ AquaPazza является очаровательной игрой, котора
 magnet:?xt=urn:btih:D59081CA7E9194CC0B7D2764F004AF5DB9DE9B35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ Final Fantasy VII: Dirge of Cerberus (2006) [PS2] [NTSC] [Unofficial] [Ru]
 ```bash
 magnet:?xt=urn:btih:9DA760DCE9609805C47412145E0ECB3E8FC5A6ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ Spyro the Dragon — первая игра от Insomniac Games о дракон�
 magnet:?xt=urn:btih:2C6A0098B1CE678C7391EF3918C77F546FDEE503
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ Ultimate Marvel vs. Capcom 3 – все тот же файтинг, что и Ma
 ```bash
 magnet:?xt=urn:btih:010A245639A49D3EB29804FB747214E699606678
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ Kick-Ass 2: The Game является продолжением зубодроб�
 magnet:?xt=urn:btih:1F4F761E7AFFFA26A94FE92F4FD2018F89060F79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ Grand Slam Tennis 2 – вторая игра в серии теннисных �
 magnet:?xt=urn:btih:28C815BB61CDF20178D0523878F920A689B45D9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ Dengeki Bunko Fighting Climax (2014) [PS3] [JAP] [3.55] [Cobra ODE / E3 ODE PRO]
 ```bash
 magnet:?xt=urn:btih:7C6F509EDEB87BB157BFF5D5AC2DE7081A62B5AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ Need for Speed: Rivals [PS3] [Ru/En] [Repack / 1.03 / 6 DLC] (2013) | R.G. Infer
 magnet:?xt=urn:btih:23FBE0267C27FB48F315A19650B4DFCB7281A359
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ Killzone - это реалистичный и жестокий шутер, по�
 ```bash
 magnet:?xt=urn:btih:2E8F3BF16FF0F9CA0788BD2F991605EB721F34A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +633,8 @@ Future Pinball - симулятор реально существующих ар
 magnet:?xt=urn:btih:5D8BE0161EDB77D0C454915E3570B4440F941821
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ Future Pinball Tables (2016) [Multi] [Unofficial] [Recreated]
 magnet:?xt=urn:btih:BA0F0D06A285692FE62910D8FEB82C9525840A1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ Future Pinball Tables (2016) [Multi] [Unofficial] [Original]
 ```bash
 magnet:?xt=urn:btih:2E6A854CC120EF520BB2EC851F20EDD7F64618CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

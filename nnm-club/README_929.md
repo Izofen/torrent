@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:E5FB33094060C383C2A347953F013F96CD47B7F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:E5FB33094060C383C2A347953F013F96CD47B7F6
 ```bash
 magnet:?xt=urn:btih:4FD674E73A874986EBA04CF0DDFBBA231096C7FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Rise of the Ronin - динамичная ролевая игра, в котор�
 magnet:?xt=urn:btih:DBA0BA14834753CF2A0949FC1058FCDFF538B2FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Montezuma's Revenge (2025) [Multi] (1.15.0) License GOG [Director's Cut]
 ```bash
 magnet:?xt=urn:btih:666AB2D303CB518FCC145C727C028BA1585906AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ SketchUP Pro - является профессиональной версией 
 magnet:?xt=urn:btih:E554F6D09491E45E21C435F17B90058812F11698
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:E554F6D09491E45E21C435F17B90058812F11698
 ```bash
 magnet:?xt=urn:btih:21B154FE1D7D50A705558209973BB2FC56594E69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:21B154FE1D7D50A705558209973BB2FC56594E69
 magnet:?xt=urn:btih:12B41426D7B21FAD7D34BF5E1D85A8DF82910ECC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:12B41426D7B21FAD7D34BF5E1D85A8DF82910ECC
 ```bash
 magnet:?xt=urn:btih:298B9EB88CCC4A9C7DEA03A056EFF96308518D4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:298B9EB88CCC4A9C7DEA03A056EFF96308518D4E
 magnet:?xt=urn:btih:7E58207C76698C926AFA10678D44C06599ECA4CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Adguard – интернет-фильтр для защиты пользоват
 ```bash
 magnet:?xt=urn:btih:F34C081EBCF61DD9C6A08D3032F6AE19F24AE448
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:F34C081EBCF61DD9C6A08D3032F6AE19F24AE448
 magnet:?xt=urn:btih:76A2CE6A8E68DD8A8E5B2636E0FF61B095D82EBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ TON-разработчик
 magnet:?xt=urn:btih:4F42220FB4D45B6F1780888AA875C7E497AFE15B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:4F42220FB4D45B6F1780888AA875C7E497AFE15B
 ```bash
 magnet:?xt=urn:btih:18662F4A650BF0861D52A4ADCF3CA0EB54B5BB4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ Frontline: Assault Corps WW2 (2025) [Ru/Multi] (1.0.20) Repack FitGirl
 magnet:?xt=urn:btih:732644725CAC1A946053F78083681AD339AAD56B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:732644725CAC1A946053F78083681AD339AAD56B
 ```bash
 magnet:?xt=urn:btih:6A7EC64B15CBBCA51DCE65B3850B0BD195EEE2B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ Moorhuhn Kart 4 (2025) [Ru/Multi] (1.0.12) Repack seleZen
 magnet:?xt=urn:btih:5EA9B6C7DBC2E32180EC41E326A0CE7695D9CE69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ Assassin's Creed IV: Black Flag (2013) [Ru/Multi] (1.08/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:513F69A1AB1838A06286B976A66F3D982CF9953E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:513F69A1AB1838A06286B976A66F3D982CF9953E
 magnet:?xt=urn:btih:74EE5139338CB1650D2E8DCC0B51C823246C6F88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:74EE5139338CB1650D2E8DCC0B51C823246C6F88
 ```bash
 magnet:?xt=urn:btih:A9D2A12E257560F65E78FD2FA66EA190786C8A71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:A9D2A12E257560F65E78FD2FA66EA190786C8A71
 magnet:?xt=urn:btih:C4EE9A16E793088208D0C4E119949A2BC4D33F3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:C4EE9A16E793088208D0C4E119949A2BC4D33F3A
 ```bash
 magnet:?xt=urn:btih:B894133359D83FB2459D71461D8FCB6D94F96A06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:B894133359D83FB2459D71461D8FCB6D94F96A06
 magnet:?xt=urn:btih:7843A1416A9F8C234E6E2DC7F3296BF8A283820B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:7843A1416A9F8C234E6E2DC7F3296BF8A283820B
 ```bash
 magnet:?xt=urn:btih:C39F1D81E186EACA6A5B6ACC36B9D869B776EE9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ magnet:?xt=urn:btih:C39F1D81E186EACA6A5B6ACC36B9D869B776EE9E
 magnet:?xt=urn:btih:F6AEBF16C675F9327856811FB84BA04515898DFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ magnet:?xt=urn:btih:F6AEBF16C675F9327856811FB84BA04515898DFF
 magnet:?xt=urn:btih:9B6F25FA399733C4EB7E7F777658DDDD25C87107
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ magnet:?xt=urn:btih:9B6F25FA399733C4EB7E7F777658DDDD25C87107
 ```bash
 magnet:?xt=urn:btih:071F78ADE8ADBEA2C89D3F314E57959427FB4F38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

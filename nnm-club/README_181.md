@@ -22,6 +22,8 @@ Ghosts of Sunset - California Girl (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:7BED565EB117376FD77CB0BBC10883B3E2A52A70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Makiisma - The Heart Remains (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:4E2251E9F86F3FE98170AC13BFC76576B4CCE48A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Evocatus - метал-группа из Австралии, основана в 
 magnet:?xt=urn:btih:0B59F17ED7164D2B3C0603BAA29A619103314621
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:0B59F17ED7164D2B3C0603BAA29A619103314621
 ```bash
 magnet:?xt=urn:btih:669611CCC60BF5235B11FD29EBF9B8B64CB70FC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Linkin Park - From Zero (Deluxe Edition) (2024) U.S., 093624834908, 2025, 2xCD [
 magnet:?xt=urn:btih:D5F182A36F89F53F7FD89E303F4E164551A666A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:D5F182A36F89F53F7FD89E303F4E164551A666A4
 ```bash
 magnet:?xt=urn:btih:10AE29558840BF6449729F69FF990C3D70ECDD05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ magnet:?xt=urn:btih:10AE29558840BF6449729F69FF990C3D70ECDD05
 magnet:?xt=urn:btih:1E0A8EA2D84820EC77D473D95981F95DF58C504B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ Quickpen — непринуждённый и лёгкий шрифт, созда
 ```bash
 magnet:?xt=urn:btih:FC72D3F6329802C29F785C55BD4A943F6577FA0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +245,8 @@ No Bull - Rock N Roll Remains Forever (2025) [FLAC 24/44.1|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:0F4ECE4C34D914EEF7E66E3B477E8553DFCE425A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -254,6 +272,8 @@ magnet:?xt=urn:btih:0F4ECE4C34D914EEF7E66E3B477E8553DFCE425A
 magnet:?xt=urn:btih:44AD48ADAEDEC7E3C872D8CE48D52937E5172C2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ Byker — геометрический гротеск, сочетающий в �
 ```bash
 magnet:?xt=urn:btih:C098016457ABB659F4FF85E2EB81FB794D7A1BB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -305,6 +327,8 @@ magnet:?xt=urn:btih:C098016457ABB659F4FF85E2EB81FB794D7A1BB8
 magnet:?xt=urn:btih:86F50226C2612BEAE16B1E0C3F648C60C65A1590
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +355,8 @@ Maria Oswen - Nu Woman (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative
 ```bash
 magnet:?xt=urn:btih:BEF4D38999E02385AA33DBF456649BA2B448CB51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +385,8 @@ Chimpan A - M.I.A. Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock
 magnet:?xt=urn:btih:43EA6324DBB77D49341C314DA53499E7FA21084F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +410,8 @@ Jouter Sans — семейство шрифтов без засечек, пре�
 ```bash
 magnet:?xt=urn:btih:341D0356BB747B8A296C28B21204B7FF4A29CE03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +438,8 @@ magnet:?xt=urn:btih:341D0356BB747B8A296C28B21204B7FF4A29CE03
 ```bash
 magnet:?xt=urn:btih:E3EC9F00820E1AD283CBEEFA8CE77060E9807875
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +468,8 @@ Steve Fair - Play Fair (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:9D7F137FDBE9DBF74C0566F6FE97C4E6009ED18D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +493,8 @@ magnet:?xt=urn:btih:9D7F137FDBE9DBF74C0566F6FE97C4E6009ED18D
 ```bash
 magnet:?xt=urn:btih:A551AA29383080DD652EFFE5D6E976B0324DE7BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +523,8 @@ Slant KX - Endless Love (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock
 magnet:?xt=urn:btih:49C4805DEF4C0E06EF928D5814418D33F94B796E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +551,8 @@ Huntress - американская хэви-метал группа из Хай
 ```bash
 magnet:?xt=urn:btih:6504B50137E67CCD3A7C1A2688B8532F592CB7E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +581,8 @@ Mr. Creatovsky - Braincity Blues EP (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:B5D801C0941A8FC242DCB389B9074611804AC70D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +609,8 @@ Nelson Bragg - Melodie de Nelson: A Pop Anthology (2025) [FLAC 24/48|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:4E8DA1893A45DC07B3D626298C738EE3AEF3C754
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +639,8 @@ Nick Manzer - Through The Veil (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:677164087D6AC0990DF20684ABF335E8F26DDCF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +668,8 @@ VA - Trance In Motion Vol.390 (2025) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 magnet:?xt=urn:btih:1407264BFF3CC2A732146C53BF98104D9995A4A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +694,8 @@ Obrazec 2.0 - это модернизированная версия шрифт�
 ```bash
 magnet:?xt=urn:btih:875D86169E3E259E5B62776A19588ACEE5513829
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -673,6 +723,8 @@ magnet:?xt=urn:btih:875D86169E3E259E5B62776A19588ACEE5513829
 ```bash
 magnet:?xt=urn:btih:0ACFEB9794E9EFB08D143B03562BF323EEDBA55A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

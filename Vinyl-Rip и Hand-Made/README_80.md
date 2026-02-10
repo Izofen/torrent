@@ -22,6 +22,8 @@ VA - XXXL Европейский 3 (2000) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <
 magnet:?xt=urn:btih:86B0C49B3A92AD36814265E7525C38ED20D46478
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Jeff Lynne - Armchair Theatre (1990) [FLAC 2.0|192/24|image|Vinyl-Rip]<Album Roc
 ```bash
 magnet:?xt=urn:btih:D9B40376CB55FF08130DE88DC89A60AF3D1DFBA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Pat Boone · Пэт Бун - April Love · Любовь В Апреле (1986) [
 magnet:?xt=urn:btih:422090CFC33B88B77F7BAE68016AA78C0083C5F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ magnet:?xt=urn:btih:422090CFC33B88B77F7BAE68016AA78C0083C5F0
 magnet:?xt=urn:btih:58444272C6F14D7C056D84BCD585DA3887E4694F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +136,8 @@ Triosphere — норвежская Power/Progressive Metal группа из Т
 ```bash
 magnet:?xt=urn:btih:E6D71D32F46155D77744B0DB554E85F5A157A2AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -156,6 +166,8 @@ A4 Недоразумение · Malinteso(   Читать дальше...   )Ж
 magnet:?xt=urn:btih:75CB0D755309422EF95806E839EEE2273AAECDB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -182,6 +194,8 @@ VA - Марк Минков - Парад Планет (1983) [FLAC 2.0|96/24|imag
 ```bash
 magnet:?xt=urn:btih:AEF68BEEF591E17BF984C46C9DC63AE19769CAB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -210,6 +224,8 @@ A4 Hajtóvadászat (Chase)(   Читать дальше...   )Жанр: Electron
 magnet:?xt=urn:btih:80BC4B0B34970F0A4D3008032A6FE1F4BCA0A196
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +252,8 @@ magnet:?xt=urn:btih:80BC4B0B34970F0A4D3008032A6FE1F4BCA0A196
 ```bash
 magnet:?xt=urn:btih:6C72EBB761AEF6F73201CE9988F99C5CCB97E8FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +282,8 @@ A4 Der Boxer(   Читать дальше...   )Жанр: Pop RockПродолж
 magnet:?xt=urn:btih:6C498842D7398C7EAA03C7A1CCE58F37006DACF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +310,8 @@ A4 That's My Desire(   Читать дальше...   )Жанр: PopПродол
 ```bash
 magnet:?xt=urn:btih:2FF9E1DB1D9DCE6078A9FD746E47BC0C13154C04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +340,8 @@ magnet:?xt=urn:btih:2FF9E1DB1D9DCE6078A9FD746E47BC0C13154C04
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +368,8 @@ Melody Gardot - 3 Альбома (2008-2012)[FLAC 2.0 24/96|image (Vinyl-Rip)]<J
 ```bash
 magnet:?xt=urn:btih:842F7247551AACCB6C88176ABB74324705A3A885
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +398,8 @@ Side A:
 magnet:?xt=urn:btih:DB03C6BC398D09687432ECC0BED1F22DC13E89E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +426,8 @@ A4 Tell Me When The Whistle Blows(   Читать дальше...   )Жанр: C
 ```bash
 magnet:?xt=urn:btih:F52221C668449D2F6388AB942984951CCC20E3AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +456,8 @@ VA - RETROспектива, часть XVII. Зарубежные исполни
 magnet:?xt=urn:btih:18FD43E55A64EF0B77E42C5304BA11003F404DF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +484,8 @@ VA - Мелодии экрана, 9 серия (1962) [FLAC 1.0|96/24|tracks|Vin
 ```bash
 magnet:?xt=urn:btih:3C871B9FA6E8EE259BECE614FB616DC4419B1FDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +514,8 @@ VA - RETROспектива часть XX. Зарубежные исполнит�
 magnet:?xt=urn:btih:BE66C27B17D5DF7B2609ED8FC6E6497062986E66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +542,8 @@ VA - RETROспектива, часть XIX. Зарубежные исполни�
 ```bash
 magnet:?xt=urn:btih:081C4F9BBCD987819C2DA407F4F31920DDF4EBEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +572,8 @@ VA - RETROспектива, часть XVIII. Зарубежные исполн�
 magnet:?xt=urn:btih:64E0A7817962C1675FCE0D75B0081BAF5343C3F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +600,8 @@ magnet:?xt=urn:btih:64E0A7817962C1675FCE0D75B0081BAF5343C3F9
 ```bash
 magnet:?xt=urn:btih:03BADACA99BB5CB1DF36ABC97B831A628AE4F280
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +630,8 @@ magnet:?xt=urn:btih:03BADACA99BB5CB1DF36ABC97B831A628AE4F280
 magnet:?xt=urn:btih:6727DDBAB1C47846FA52E37E23D51591DA2BD391
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +658,8 @@ A2 Серые Глаза
 ```bash
 magnet:?xt=urn:btih:7CCDA5F64130E86C81410FDC4D0186C4D0B7964D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +688,8 @@ Side A:
 magnet:?xt=urn:btih:4A2EE2D772F394935C13F2D352C86BC1C0D8BB95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +717,8 @@ Side A:
 magnet:?xt=urn:btih:63C363EDBC6FB7F794D9E001C20555E7E031C2BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +745,8 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:055C536E63D35F4664ADD40727E1030D19E3D026
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

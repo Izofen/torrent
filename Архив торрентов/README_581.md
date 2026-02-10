@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:98CC428E15173E88DAADD05F5BE590E45720ABF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:98CC428E15173E88DAADD05F5BE590E45720ABF1
 ```bash
 magnet:?xt=urn:btih:015B172F7EBBEEA831303F0EBA9AFFA64A31FD62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:015B172F7EBBEEA831303F0EBA9AFFA64A31FD62
 magnet:?xt=urn:btih:A619CE636DF4F27EF363420C67791E828588277A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ FastStone Capture - утилита для снятия скриншотов ра
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Opera — веб-браузер и программный пакет для ра
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ The Tainted [Ru] (RePack) 1999 | Pilotus
 ```bash
 magnet:?xt=urn:btih:A90ED0C180C4E474F442D647AF959808392C4710
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:A90ED0C180C4E474F442D647AF959808392C4710
 magnet:?xt=urn:btih:D8C94E77B313E635B9A2F9F51BC1DF478150A2CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:D8C94E77B313E635B9A2F9F51BC1DF478150A2CB
 ```bash
 magnet:?xt=urn:btih:83A8CB2E138115453C59A41F4FAAC93A332CACD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ C помощью этого пакета можно легко конверти�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ C помощью этого пакета можно легко конверти�
 ```bash
 magnet:?xt=urn:btih:D94A04FA7BF16D52A0131DEB4B8D747254C1F2EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ USB Safely Remove - это менеджер USB устройств, он эко�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ TuneUp Utilities — пакет утилит для полного обслуж�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ Rusko - Songs (2012) [FLAC|Lossless|tracks] <Dubstep>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ Rusko - Songs (2012) [FLAC|Lossless|tracks] <Dubstep>
 ```bash
 magnet:?xt=urn:btih:EA8571073905F0D6D6A06BF60A1A525074AC884F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:EA8571073905F0D6D6A06BF60A1A525074AC884F
 magnet:?xt=urn:btih:FF34E3B71D0B6F632C6FBC3AAEA7623E25C93780
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ Mozilla Firefox - очень быстро работающий браузер, �
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +454,8 @@ Recuva - небольшая бесплатная утилита, которая 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ Nat Geo Wild: Тайны дикой природы Индии: В царстве
 ```bash
 magnet:?xt=urn:btih:E90229F8CE576E56323B409913BFB1304CC555E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ Defraggler - программа для дефрагментации жестки
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ Defraggler - программа для дефрагментации жестки
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +567,8 @@ X-libris от издательства Азбука-классика - сери�
 magnet:?xt=urn:btih:FDA1A2712BB06D3DBAE795BE49B188DD27F93E36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +592,8 @@ magnet:?xt=urn:btih:FDA1A2712BB06D3DBAE795BE49B188DD27F93E36
 ```bash
 magnet:?xt=urn:btih:B7236B901042B598C864E1FFB9D9FA02DF89D0E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +619,8 @@ magnet:?xt=urn:btih:B7236B901042B598C864E1FFB9D9FA02DF89D0E7
 magnet:?xt=urn:btih:EC5CC9E78E02B5CC013E8FFA992C4AFA3F2BB938
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ Kubuntu — производный от Ubuntu дистрибутив Linux. Kub
 magnet:?xt=urn:btih:6E731E974EEAA10C2B813EC5E9DF0CCA970E3677
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:6E731E974EEAA10C2B813EC5E9DF0CCA970E3677
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -655,6 +705,8 @@ magnet:?xt=urn:btih:6E731E974EEAA10C2B813EC5E9DF0CCA970E3677
 ```bash
 magnet:?xt=urn:btih:697A5D91B3F1174038C92FAB9B2C53D06D3A66C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Two Point Hospital v.1.6.22002 (2018) [Multi/Ru] [macOS Native game]
 magnet:?xt=urn:btih:E99F0486751BA508486169CC6079A2B87D00CA44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Ken Boothe - Inna de Yard (2017) [MP3|320 Kbps] <Roots Reggae>
 magnet:?xt=urn:btih:B0FFED5E2DDED0466ACB7142A820952DC77CB0A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:B0FFED5E2DDED0466ACB7142A820952DC77CB0A8
 magnet:?xt=urn:btih:ED33161118AC1A86C9BB21EAE3258379A970013F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:ED33161118AC1A86C9BB21EAE3258379A970013F
 ```bash
 magnet:?xt=urn:btih:7A4392C21339069EA57D4D536F7D0006A1099B7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ oneBYone - Terranova LP (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 magnet:?xt=urn:btih:E263430B6633186E1A0338BB1CF8A9B98205D708
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ HDCleaner – многофункциональный программный пр
 magnet:?xt=urn:btih:936AAEBECF21E3DDCA00907A51355DE69F1487BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:936AAEBECF21E3DDCA00907A51355DE69F1487BD
 ```bash
 magnet:?xt=urn:btih:E49A6161C73852BA56DE93735989D50A9EC68ADF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ Tray Radio - небольшая программа, совмещающая 'пр
 magnet:?xt=urn:btih:7B8B4F24D9204368C25006FE67B387ACE825B820
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ Adobe InCopy CC - программа для профессионального �
 ```bash
 magnet:?xt=urn:btih:ED7E9D7DE0DE9426A1472F39BCAFE0CEF470E35E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:ED7E9D7DE0DE9426A1472F39BCAFE0CEF470E35E
 magnet:?xt=urn:btih:4B4C0D10080DB2CD33FA67704FC05F3EE4976147
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:4B4C0D10080DB2CD33FA67704FC05F3EE4976147
 ```bash
 magnet:?xt=urn:btih:DD86BA73FF9EF4764DE68EC96D44B085D02BFFF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ KAKTAM? v1.4.2 [Ru]
 magnet:?xt=urn:btih:BBAF2A88AB80A5A6DF00B3B48A63107C1450E27C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ Adobe Prelude - программа для профессиональной оц�
 ```bash
 magnet:?xt=urn:btih:8ED6CF19F24648EA29C84D6204A5EBB5E27035CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ Dead Effect 2 – научно-фантастический шутер от пе
 magnet:?xt=urn:btih:CEDEE4B5C76580C565DD1891FBAC1D5846F13442
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ XYplorer - удобный мультивкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:9E40AE8DCBB88DADB57C971291F4EE6B8727475D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ Camtasia for Mac — эффективное приложение для созд
 magnet:?xt=urn:btih:B9B0848531BC54A2F75215A88BF4A8600C0F4D83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ RubyMine — умная и удобная интегрированная сре�
 ```bash
 magnet:?xt=urn:btih:BBC099FC1637D4001D5CA5B8C2EF2F3381FA15CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ Macrium Reflect Free обладает интуитивно понятным по
 ```bash
 magnet:?xt=urn:btih:4A85675EAF16ECD26C0E7D9F8B620F71F571A209
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +504,8 @@ Macrium Reflect обладает интуитивно понятным поль�
 magnet:?xt=urn:btih:AD193AF3F3D8AD07D64D347ABD367CFAE3A55401
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ GoodSync - программа из серии высоконадежного, у
 magnet:?xt=urn:btih:E059C9C1671AA25322995F52177E85FD1A14D402
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ NASCAR-2019. 34-й Этап. Техас. Гонка / Monster Energy NASCAR Cup 
 ```bash
 magnet:?xt=urn:btih:CB5650E263129E3055D3CB2740E7947BD45D26B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +583,8 @@ MotoGP. Этап 18/19. Гран-При Малайзии. Гонка. (03.11.201
 ```bash
 magnet:?xt=urn:btih:1CD290500C1F677CF6E2D1A9115D7B509B4F4B2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +613,8 @@ V.A. - Buddha-Bar By Sahale And Ravin (2019) 2CD [FLAC|Lossless|tracks + .cue] <
 magnet:?xt=urn:btih:2D337AD055F427D91CD725E8A3F71A7DDB41C7FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +641,8 @@ Dynamic Illusion - Life (2019) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psybient
 ```bash
 magnet:?xt=urn:btih:A75595265582FC6E17E6355B924D24D042C99194
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +671,8 @@ Null+Void - Cryosleep (2017) [FLAC|Lossless|tracks + .cue] <Synth-pop, Techno>
 magnet:?xt=urn:btih:B7E7BC26743E95416682D9086D995E06F100395D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +696,8 @@ Comedy Woman (2016.12.09) SATRip
 ```bash
 magnet:?xt=urn:btih:030AC6139CA244CDF17063ECCF186EAD55FD2F42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

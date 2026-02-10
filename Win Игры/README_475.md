@@ -1,27 +1,3 @@
-###  Публикация: 1188511   (782366) от 13.02.2018
-
-Redeemer (2017) [Ru/Multi] (1.5) Repack R.G. Catalyst
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Играйте в качестве элитного оперативника, Василия, который когда-то работал для одного из крупнейших производителей кибернетического оружия в мире. Во время работы в сфере безопасности, вам давали задания, такие как проникновение, убийство, вымогательство и пытки. Но когда в конце концов корпорация решила превратить вас в одного из своих солдат-киборгов, вам удалось (   Читать дальше...   )Тип издания: RepackРазработчик: Sobaka StudioЖанр: Arcade (Fighting), Action, IndieЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D4C991ED8A09D6E6764513AD92BBF887F0E53F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390534   (782585) от 16.06.2020
 
 Barn Finders (2020) [Ru/Multi] (16128) License CODEX
@@ -42,6 +18,8 @@ Barn Finders (2020) [Ru/Multi] (16128) License CODEX
 ```bash
 magnet:?xt=urn:btih:0C192FDD6523ECC60C25F5650CDA8B865A43468F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Rock of Ages 2: Bigger & Boulder продолжает сокрушительны
 magnet:?xt=urn:btih:1425E9C2A71EB9C802302944B002F3B0A359DA32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Sid Meiers: Civilization VI /  Sid Meiers: Civilization 6 (2016) [Ru/Multi] (1.0
 ```bash
 magnet:?xt=urn:btih:D7C7DD29B6DBBF1EA96DB78AD2554CDBD5DFD609
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Aegis Defenders - очень красивая смесь пиксельного 
 magnet:?xt=urn:btih:08B53A49EF134B2BACA1E030D6D557B07A528CE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Rock of Ages (2011) [Ru/Multi] (1.11) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:ED8FFD59B7DB4BAC245C2BB952B8EBFE80B76DF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Sable Maze 7: Nightmare Shadows / Темный лабиринт 7: Тени ко
 magnet:?xt=urn:btih:F2E77D6C33EF45DD56DEA24A7A14E98AD31B834C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Star Ocean: The Last Hope 4K & Full HD Remaster (2017) [Multi] (1.0.0.0) Repack 
 ```bash
 magnet:?xt=urn:btih:1FCDB365B05F7DD9629239741C383998C2542787
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ SKYHILL: Black Mist (2020) [Ru/Multi] (1.0.002) License CODEX
 magnet:?xt=urn:btih:B939FE6236EBBCCB2CB7E88BCC8DC55F05AEED7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ Pro Cycling Manager 2020 (2020) [Multi] (1.0.0.2) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:B6D5F9F213AF7D507D40B10B10CB825DD140C3A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:B6D5F9F213AF7D507D40B10B10CB825DD140C3A7
 magnet:?xt=urn:btih:C8471842850EFFFF0816217C9670CE9231AEA76A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ World of Diving (2014) [En] (0.16.2) Repack CoD - MW2
 ```bash
 magnet:?xt=urn:btih:3F4DB6E0029D0BCC0D8335BFEF60B7C380F25F10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ Pid (2012) [Multi] (18421) License GOG
 magnet:?xt=urn:btih:4518C36C335BC1C2FED6193944DA34CAB71112B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ PuppetShow 13: The Curse of Ophelia / Шоу марионеток 13: Прокл
 ```bash
 magnet:?xt=urn:btih:236DDA04063D59BF24D15A856ACC338360E3ED21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ Planetoid Pioneers - это двухмерная приключенческая 
 magnet:?xt=urn:btih:A322766D99132513949C3ED68CA81E6389C0B187
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ Castlevania: Lords of Shadow (2013) [Ru/Multi] (1.0.2.9/dlc) Repack R.G. Catalys
 ```bash
 magnet:?xt=urn:btih:F40A09AFFA1F1704298E0F4ECD5CEB1AB211087E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ Castlevania: Lords of Shadow 2 (2014) [Ru/Multi] (1.0.0.1/dlc) Repack R.G. Catal
 magnet:?xt=urn:btih:9A0A34DE3FE5387AA34D7362995E01888FF8E246
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ Attack of the Earthlings (2018) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:CE59CE5B08FB1FC1124A1EF5BEEDC230A636D935
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ Castlevania: Lords of Shadow - Mirror of Fate HD (2014) [Ru/Multi] (1.0.684579) 
 magnet:?xt=urn:btih:3C8A4CA2BB5DB80EAD669688AD490DF897C4AD2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ Condemned Criminal Origins (2006) [Ru] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:65FEAEF5C3E7C63EBF5F50CDDDB28093546EDD31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ Sudden Strike 4 (2017) [En] (1.06/dlc) License RELOADED
 magnet:?xt=urn:btih:8AFFC2104572AA6C3361BD87A8DA55F969DAAC37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ Kona / Kôna (2017) [Multi] (07-08-2017) License GOG
 ```bash
 magnet:?xt=urn:btih:02D17115195D76C7B14679A34D8983D5B33825C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ Ling (2018) [En/Ch] (1.0) License PLAZA
 magnet:?xt=urn:btih:52D9D2734ADC986CECD03E9EDF49E780C0AAF0D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ Treasure Adventure World (2018) [En] (1.02) License PLAZA
 ```bash
 magnet:?xt=urn:btih:9AE9C47034A1FC1C9872F1510483B6C7551B8005
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +617,8 @@ Lost God (2018) [En] (1.0) License PLAZA
 magnet:?xt=urn:btih:9E68FFD09A66627058512CDA21B1DCE590A98EF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +642,34 @@ Beyond Blue (2020) [Ru/Multi] (1.3.15659) License HOODLUM
 ```bash
 magnet:?xt=urn:btih:A16BB7A519C9581CAF06031E9783CE0B8A30AC98
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389731   (783826) от 12.06.2020
+
+Deck of Ashes (2020) [Ru/Multi] (1.4.55057) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deck of Ashes — это приключенческая игра с тактическими карточными боями. Одного за другим, ведите банду антигероев по пути искупления. Исследуйте мрачный фантастический мир и собирайте карты в уникальную боевую колоду. Проверьте свое умение выживать и управлять ресурсами, улучшая лагерь союзников. От любого выбора — куда идти, какие ресурсы собирать, на какой риск (   Читать дальше...   )Тип издания: LicenseРазработчик: AYGamesЖанр: Adventure, StrategyЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92112CC64DE469A7EB091E307015AE94B2986F4D
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

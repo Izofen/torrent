@@ -19,6 +19,8 @@ Cop Craft | Мастерство копа | Детективные будни: �
 magnet:?xt=urn:btih:D9C1A999CBA8FD81F59A6181DF4A6CC0D32795A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Hanamonogatari / История цветов [2014, Special, 5 из 5] BDRip 108
 magnet:?xt=urn:btih:1D2083FB1C11E2FF9FEDB2E942965A56B9938B00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Machikado Mazoku | Demon Girl Next Door | Городская демонесса 
 ```bash
 magnet:?xt=urn:btih:E39486F5B883C3C6E3DE8ABC76BF697726A6C25E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Shinseiki Evangelion / Neon Genesis Evangelion / Евангелион новог
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Cowboy Bebop / Ковбой Бибоп [1998-1999, TV, 26] DVDrip raw rus
 magnet:?xt=urn:btih:DB5BEADAC4EF2840CB3154A7B813593CDB363FD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ Gochuumon wa Usagi Desu ka? | Is the Order a Rabbit? | Кролика заказ
 ```bash
 magnet:?xt=urn:btih:9193095F24B73D327F851A92DB3A74096CE07F8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ Crusher Joe: Saishuu Heiki Ash | Крушила Джо OVA-2 [1989, OVA, 1 эп.
 magnet:?xt=urn:btih:614048CAEC7869EF4899A8599AAA284E3079A4C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ Crusher Joe: Hyouketsu Kangoku no Wana | Крушила Джо OVA-1 [1989, OVA,
 magnet:?xt=urn:btih:E9E2BB5FA308D5F274EB686B2B5AA357C3552453
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:E9E2BB5FA308D5F274EB686B2B5AA357C3552453
 ```bash
 magnet:?xt=urn:btih:7670B39E8BEE4D447A478CBC0FFE1611792E4C8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ Gekijouban Fate/Stay Night: Unlimited Blade Works / Fate/Stay Night: Unlimited B
 magnet:?xt=urn:btih:CD3A9F611BC351DFEF33126CB156275BC3474595
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ Kawaikereba Hentai demo Suki ni Natte Kuremasu ka? / Hensuki / Влюбишьс�
 ```bash
 magnet:?xt=urn:btih:D2731125B55F67296972F6A727997C61817E64F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ Shokugeki no Souma: Ni no Sara / Кулинарные Поединки Сомы:
 magnet:?xt=urn:btih:97B7DBD3132726C6EC224077D5E111E4A3281078
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ Durarara!!x2 Ten / Дюрарара!! 2 (сезон второй) [2015, TV, 12 
 ```bash
 magnet:?xt=urn:btih:F4256A4563EAAF5A30BAB86BA71BF792345E9FFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:F4256A4563EAAF5A30BAB86BA71BF792345E9FFF
 magnet:?xt=urn:btih:1583BA98678F6B84E7AB2E2C1341AD3A4EE1C999
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ Kumo no Mukou, Yakusoku no Basho / The Place Promised in Our Early Days / За �
 ```bash
 magnet:?xt=urn:btih:51928F445EFA77630392DD463EA9C7974A29DC50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ Koi Koi Seven / Koikoi 7 / Дружная семерка (2005, TV, 13 эп.) DV
 magnet:?xt=urn:btih:618DDA63EF04B2947991A75E5E754C662E9A4CF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ Hyakuren no Haou to Seiyaku no Valkyria | The Master of Ragnarok & Blesser of Ei
 magnet:?xt=urn:btih:8DAEE4B52BDB41B0D6F732B4EE4E5A30FB06C5CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ Joker Game / Игра Джокера [2016, TV, 12 ep + 2 sp] WEB-DL 720p Raw+Ru
 ```bash
 magnet:?xt=urn:btih:E79E510499F90F9F52012F1A4F4131685C3A97E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +503,8 @@ Fruits Basket 2019 | Корзинка фруктов 2019 [2019, TV, 25 из 25]
 magnet:?xt=urn:btih:462AD2950CAED31EAAD153F50BCCC785EAF03BE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ magnet:?xt=urn:btih:462AD2950CAED31EAAD153F50BCCC785EAF03BE6
 ```bash
 magnet:?xt=urn:btih:6E8DE82A613C6C254DCCA01E1273F0BDA331C7C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:6E8DE82A613C6C254DCCA01E1273F0BDA331C7C6
 magnet:?xt=urn:btih:A6557BD337C4B10322B8C46973A9746B1CC166C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e / Добро пожаловат�
 ```bash
 magnet:?xt=urn:btih:2C1F313674DC8918F895F36D6A10074C8634AACC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +609,8 @@ Shingeki no Bahamut: Virgin Soul / Rage of Bahamut: Virgin Soul / Ярость �
 magnet:?xt=urn:btih:F71F8D2B268825B0B8456651C32325D5AACC4F00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ Starship Troopers / Звездный десант [1988, OVA, 6 из 6] DVDRip r
 ```bash
 magnet:?xt=urn:btih:1B7C05A9D738E36F04E57FF12D7F9B94EF19E8C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +663,8 @@ Motto To Love-Ru: Trouble / Любовные неприятности (ТВ-2) [
 magnet:?xt=urn:btih:751380FEAA2DC3836B2DD111E9B9D35FEB908097
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ Isekai wa Smartphone to Tomo ni / In Another World With My Smartphone / В ин�
 ```bash
 magnet:?xt=urn:btih:C9D15EF6A351E82FECF1CC9C6D8B4A0A3EA64AF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

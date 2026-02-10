@@ -19,6 +19,8 @@ Spy Kyoushitsu | Spy Classroom | Шпионский класс [ТВ-1] [2023, T
 magnet:?xt=urn:btih:8FF48C8CBBE063838474B6DF9374D55AB350A255
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Yasuke | Ясукэ [2021, Web, 6 из 6] WEB-DL 1080р raw+rus
 magnet:?xt=urn:btih:D43125E72DA4AC17844924FE626DD59EBDA83618
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Ousama Ranking | Ranking of Kings | Рейтинг короля [2021, TV, 23 и
 ```bash
 magnet:?xt=urn:btih:E9D3BE72A80F685A05CB366A7F800A36C6A2B16F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:E9D3BE72A80F685A05CB366A7F800A36C6A2B16F
 magnet:?xt=urn:btih:A705E3711E23AE25EB0F8D548EF7C9050F921E89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Eiyuu Ou, Bu o Kiwameru Tame Tenseisu: Soshite, Sekai Saikyou no Minarai Kishi |
 ```bash
 magnet:?xt=urn:btih:5A949FFDD6C0D6889ADF2FBD9E5FB902850F2FD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:5A949FFDD6C0D6889ADF2FBD9E5FB902850F2FD2
 magnet:?xt=urn:btih:72CF811A3951F848E42ACA6A2E482BE6F9179B88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Otaku ni Koi wa Muzukashii | Wotakoi: Love is Hard for Otaku | Любовь - п
 ```bash
 magnet:?xt=urn:btih:DFB67AB99A8858AA202380E76900CC9AFAF6774D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Saihate no Paladin | The Faraway Paladin | Паладин издалека [ТВ
 magnet:?xt=urn:btih:FBC342E3980B61CCBAAF4464FFB22135FF2BE120
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Saikin Yatotta Maid ga Ayashii | The Maid I Hired Recently Is Mysterious | Мо�
 magnet:?xt=urn:btih:3F3E9D730C1E65FC0F3BE7B3D7E502174B2E20D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:3F3E9D730C1E65FC0F3BE7B3D7E502174B2E20D7
 ```bash
 magnet:?xt=urn:btih:904D3ABD346613783B19EA9368B35AEBB6F3341E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Neko no Ongaeshi | The Cat Returns | Возвращение кота (2002) BDRi
 magnet:?xt=urn:btih:F04AA09593307B073BF6F8C3DAA38F7FBD88650F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ Hula Fulla Dance | Танец хула-хула [2021, Movie] WEBRip 1080p rus
 ```bash
 magnet:?xt=urn:btih:BCD3F98F8A5B9284360E0A0D9EB081F3E502C2A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Majuu Sensen | The Demonic Beast Front | Битва с демонами [1990, O
 magnet:?xt=urn:btih:D8B944A62ACF6CE9D97E7164369DADAD2BDEE61F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Soratobu Yuureisen | The Flying Ghost Ship | Летающий корабль-п�
 magnet:?xt=urn:btih:FBEFF000EF210A80720EC4A23099AAC6288307C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Tsuki to Laika to Nosferatu | Irina: The Vampire Cosmonaut | Луна, Лайк�
 ```bash
 magnet:?xt=urn:btih:5E57ECAF16D866FC1666AF353B93D99AA9C401A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ Fuufu Ijou, Koibito Miman | More Than a Married Couple, But Not Lovers | Бол�
 magnet:?xt=urn:btih:DCC7893867D79E4E674535B7219F97117958F22B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:DCC7893867D79E4E674535B7219F97117958F22B
 ```bash
 magnet:?xt=urn:btih:4FCE70B75239F78FD1EA044D02A3939B6D9645C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ Shikizakura | Вечноцветущая сакура [2021, TV, 12] WEBRip 1080
 magnet:?xt=urn:btih:31CB48548DA5AD43F2940ECC9B146F7E2B2A3D4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ Masamune-kun no Revenge | Masamune-kun's Revenge | Месть Масамунэ [
 ```bash
 magnet:?xt=urn:btih:3DE452F8202AFB958DFEC7AD3462C13725AB54B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ Masamune-kun no Revenge (2018) | Месть Масамунэ OVA [2018, OVA] BDR
 magnet:?xt=urn:btih:E77A3EB9BBFD6CEFE27649A66398D57C3F6A54CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:E77A3EB9BBFD6CEFE27649A66398D57C3F6A54CE
 ```bash
 magnet:?xt=urn:btih:17368E2C66E5EF372AFCA1028100BEEB0C331AAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:17368E2C66E5EF372AFCA1028100BEEB0C331AAE
 magnet:?xt=urn:btih:D54AEF8F55134A5C13D7285B7759398A5061DF31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ Yakitori | Yakitori: Soldiers of Misfortune | Якитори [2023, Web, 6] WEBR
 ```bash
 magnet:?xt=urn:btih:EACE7D80630F45786847CD0B37E8453D281BB6F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:EACE7D80630F45786847CD0B37E8453D281BB6F0
 magnet:?xt=urn:btih:6FB170CC1040917F5EAB71008B0EFC444B8799F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:6FB170CC1040917F5EAB71008B0EFC444B8799F6
 magnet:?xt=urn:btih:D7847D6C447C92C2BF8DD0561E0AE970119EA4B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Nurarihyon no Mago: Sennen Makyou | Nura: Rise Of The Yokai Clan Demon Capital |
 ```bash
 magnet:?xt=urn:btih:E7E5EAE901F18C3E6911D9D015D6B88E7D08BD1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

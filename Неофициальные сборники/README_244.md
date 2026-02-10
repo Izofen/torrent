@@ -1,3 +1,32 @@
+###  Публикация: 948686   (409639) от 21.10.2015
+
+VA - Halloween Witch Party Best of Chill Deep and House (2015) [MP3|320 кб/с]<Deep House, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klankman - Requiem - Jason Philips Remix
+02. Las Chicas Professionales - Colour Your Sins
+03. Mono & Lisa - Passenger - G. Mojo Remix
+04. Self Explanatory - Circles in Circles(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 02:47:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3C91558D57E3C215F2BCEDA0901F721F8E4EE79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948777   (409642) от 21.10.2015
 
 VA - Halloween Private Chillout Party (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -21,6 +50,8 @@ VA - Halloween Private Chillout Party (2015) [MP3|320 кб/с]<Downtempo, Chillo
 ```bash
 magnet:?xt=urn:btih:60006CB1CD8D33E4DF877AD65A72B6FE29F793FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - German Top 100 Single Charts 02.10.2020 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:05EFBC528CE69FCBA3D4E70FBBE39D2EDF34216B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Попсовый мегахит от Русского радио (2016) [MP
 ```bash
 magnet:?xt=urn:btih:404CEC59E4A5FB57A59F37B80B8252B9C081E364
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Samba Do Brasil (50 Shaky of Pure Latino) (2016) [MP3|320 Kbps] <Cumbia, Ma
 magnet:?xt=urn:btih:C1F6C046910BE92204B8D0F1A7921E090F5C7496
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Dance Hits Collection 90s Vol.1 (2019) [MP3|320 Kbps] <Eurodance, Euro-Hous
 ```bash
 magnet:?xt=urn:btih:3DEB3626F379618A3985D6BBAC8B50BD9E16EAAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Dance Hits Collection 90s Vol.2 (2019) [MP3|320 Kbps] <Eurodance, Euro-Hous
 magnet:?xt=urn:btih:50FB2AE506DCECE96C2197BF67903746BF84A95B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Halloween Lounge Collection (2015) [MP3|320 кб/с]<Downtempo, Chillout, L
 ```bash
 magnet:?xt=urn:btih:ADE460BCA048A2BEFE837304F0861831E4D323D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Hottest Autumn Hits (2020) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:500D8CC6D03C3B93A7FFB3E6A0C038331C15B98A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Beatport Club House: Electro Sound Pack #175 (2020) [MP3|320 Kbps] <Club Ho
 ```bash
 magnet:?xt=urn:btih:B3EE5A98F1CE9EBA98D6CB4D8A5B91C42AE0BF66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - PromoDJ TOP 100 Club Tracks October (2016) [MP3|320 Kbps] <Remixes, Dance, 
 magnet:?xt=urn:btih:07867136DB415D497A4358510D2BDC6DA2D63F20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - Deep House Collection Vol.94 (2016) [MP3|320 Kbps] <Deep House, Club House,
 ```bash
 magnet:?xt=urn:btih:9E8FB027BD93C510BF585CF196314E0D14363AFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ CD 01:
 magnet:?xt=urn:btih:EE2DC172FEADE0F6CDE261EAB2143476E1D68146
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +399,8 @@ VA - Record Super Chart 656 (2020) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:04C892A61E15ACA626F78D80C22872430B75D246
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +427,8 @@ VA - The Official UK Top 40 Singles Chart 02.10.2020 [MP3|320 Kbps] <Pop, Dance,
 ```bash
 magnet:?xt=urn:btih:07295C2328C1444016CAC29EB7E41179C6A94110
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +463,8 @@ VA - Русский Размер (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:8D271C420EECFA6B2F9E539DDD19A3559DE46E99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +491,8 @@ VA - 50 Dance Free Your Mind (2016) [MP3|320 Kbps] <House, Nu Disco, Euro, Vocal
 ```bash
 magnet:?xt=urn:btih:D60D1243AFA60CEA7CAD95684A7C8DDF248E2E95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +521,8 @@ VA - Высшая лига хитов шансона. Выпуск 2 (2016) [MP3
 magnet:?xt=urn:btih:9998239E8FD0FC121123B7983E3E41C76F0784B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +549,8 @@ VA - Попсовая соточка Хит fm. Версия 2 (2016) [MP3|256 K
 ```bash
 magnet:?xt=urn:btih:B39AB65D0DC083768177B3299ADD4BCC5C1A8BBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +579,8 @@ VA - Мега хитовая Осень 6 (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:878C91606EC916E01C618E8528EA3FBCB44FB2D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +607,8 @@ VA - Sound Free Kicks Drops (2016) [MP3|320 Kbps] <House, Electro House, Future 
 ```bash
 magnet:?xt=urn:btih:FC0B658CC889C738D62716FA6E5A93F8875A0F5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +637,8 @@ VA - Заключительная осенняя дискотека. Часть 
 magnet:?xt=urn:btih:1089B3B7B53F1CBC62E39A41837D23487B282338
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +665,8 @@ VA - Vocal Selection Files Skyline (2016) [MP3|320 Kbps] <Trance, Vocal Trance, 
 ```bash
 magnet:?xt=urn:btih:6CA8D9087E7044D42218DAF1757073B6203CD1E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +695,8 @@ VA - ConfiG Q-B! Sound Top 145 (2016) [MP3|320 Kbps] <House>
 magnet:?xt=urn:btih:B3E1AAF90B419F7135739E9EBF9CD53E965485DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +723,8 @@ VA - Ultimate House Reflected Smash (2016) [MP3|198~320 Kbps] <House, Electro Ho
 ```bash
 magnet:?xt=urn:btih:9CF895BA41397FF1EB2CE3AE76B4485367E35F1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -676,32 +753,7 @@ VA - Hip-Hop Mega Hits (2022) CD, Compilation [MP3|320 Kbps] <Hip Hop, Gangsta, 
 magnet:?xt=urn:btih:735CE4F4C548F2E0C6BAFAB5C63365893900B4C3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168188   (410249) от 23.09.2017
-
-VA - 1000 Разных Групп & ВИА ХХ Века (от Ovvod7) Vol.05 (2017) [MP3|320 Kbps] <Pop, Rock, Electronic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410249.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Суровый Февраль - Милая Мадам  4:23
-002.  Акварели - Горький Мёд  3:45
-003.  Радиотранс - Космонавт  5:32
-004.  Play - Ты Не Один, Я Не Одна  4:06(   Читать дальше...   )Жанр: Pop, Rock, ElectronicПродолжительность: 11:14:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:865D72C9CEC968AD552DDA87D63AD9F50817A632
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

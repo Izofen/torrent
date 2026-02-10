@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:2B16021E43FB43B056C3084FA0B5220B3BFA3206
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:2B16021E43FB43B056C3084FA0B5220B3BFA3206
 ```bash
 magnet:?xt=urn:btih:84B2F3FF65596599565C3563E4E73CEA9F98085A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:84B2F3FF65596599565C3563E4E73CEA9F98085A
 magnet:?xt=urn:btih:4518C6DCD9A1119593A822B8E008DC47728F1FDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Rene Cacheaux, Josh Berlin | Advanced iOS App Architecture, 4th Edition (2022) [
 ```bash
 magnet:?xt=urn:btih:7CB7CB315927B4C8281DB193BA6991CF203D44AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:7CB7CB315927B4C8281DB193BA6991CF203D44AA
 magnet:?xt=urn:btih:B730FE3353E90C26AE70F81261BC2FF13DF14B7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Marin Todorov | Modern Concurrency in Swift, 2nd Edition (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:6670D26AC74D52A3D2EB97401A2D860834F24077
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Dart – объектно-ориентированный язык програм
 magnet:?xt=urn:btih:F4DBC5E4973C88C9C3E3F15E9589E503DD2A398A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:F4DBC5E4973C88C9C3E3F15E9589E503DD2A398A
 magnet:?xt=urn:btih:A46D3A6AA67EBAB8BF5C6F9A1C20C027083D5BF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:A46D3A6AA67EBAB8BF5C6F9A1C20C027083D5BF5
 ```bash
 magnet:?xt=urn:btih:C916F99B2C90AF2E329A6EB486CA3169B38F39B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Kotlin - один из самых быстроразвивающихся язы�
 magnet:?xt=urn:btih:2521118D939AEDC64BF59DF4C6BF57AA40C95413
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:2521118D939AEDC64BF59DF4C6BF57AA40C95413
 magnet:?xt=urn:btih:9B6A2F5C3821798618E6F3953C9C611BA74B82BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:9B6A2F5C3821798618E6F3953C9C611BA74B82BB
 ```bash
 magnet:?xt=urn:btih:B9D9A3C050FB1F27386B250A5EB3F92BA142369E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ MongoDB - это документо-ориентированная база да
 magnet:?xt=urn:btih:1DC72BC4814ECE182304AA66628FF6F06058DA1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Bartlomiej Plotka | Efficient Go (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:2BC37C28795EFE2111660AE09A54AFF0E5C4C18B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Julien Pivotto, Brian Brazil | Prometheus: Up and Running (2023) [PDF][EN]
 magnet:?xt=urn:btih:6ADA67C3DA624757C78E518FCE7BA9D94EEAB6CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:6ADA67C3DA624757C78E518FCE7BA9D94EEAB6CF
 ```bash
 magnet:?xt=urn:btih:FE288BF8964F5AB35B7F4EF3CBC3D56E11251278
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:FE288BF8964F5AB35B7F4EF3CBC3D56E11251278
 magnet:?xt=urn:btih:06DECCB2ABA7E2BA2D68FA161FF94788B5C15D98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Beginning 3D Game Development with Unity идеально подходит дл�
 ```bash
 magnet:?xt=urn:btih:E12FB10EBF8B6420DC0DE67396E1E6BDB941A40F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:E12FB10EBF8B6420DC0DE67396E1E6BDB941A40F
 magnet:?xt=urn:btih:364ED7AE36AFAE52717D9134FB50C987006D4700
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:364ED7AE36AFAE52717D9134FB50C987006D4700
 ```bash
 magnet:?xt=urn:btih:92F8157093146CB6513956BD5D78DBEFE8926DA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:92F8157093146CB6513956BD5D78DBEFE8926DA6
 magnet:?xt=urn:btih:DAB583B8C8F2CA697BE2F07D8D6A078351CC0AB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ magnet:?xt=urn:btih:DAB583B8C8F2CA697BE2F07D8D6A078351CC0AB8
 ```bash
 magnet:?xt=urn:btih:C088342D50007CAA42E76524A5BB7F7CDC467FAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ Steven F. Lott | Python Real-World Projects (2023) [PDF][EN]
 magnet:?xt=urn:btih:39B2677B4F54FDC0AE4AF846E18709844695AF4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ magnet:?xt=urn:btih:39B2677B4F54FDC0AE4AF846E18709844695AF4E
 ```bash
 magnet:?xt=urn:btih:7D8E3B3B90A26F94821DA9A873ACF3A706763747
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ The KiCad Team | Мануал для ПО "KiCad" [10 книг] (10.2021) [PDF, 
 magnet:?xt=urn:btih:0BE9C2FFB229879129DF19543F3EA66F98B1D5CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Thomas Valentine | Database-Driven Web Development, 2nd Edition (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:147946F1A48C3F2E73C0A957006E7B4FBF52A1F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

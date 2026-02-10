@@ -22,6 +22,8 @@ EverLevel - Future (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
 magnet:?xt=urn:btih:EDB818D274CDF4073D92387FAFD080B4430B54CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ George Hills - Dancing With A Stranger (1991) Reissue, Remastered, 2023, Melodic
 magnet:?xt=urn:btih:5FE2DB4BE230DBB25B146FA5AF1101DBAA79D7EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:5FE2DB4BE230DBB25B146FA5AF1101DBAA79D7EE
 magnet:?xt=urn:btih:842899B736586261F25C9F2BA450C6F87B500337
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:842899B736586261F25C9F2BA450C6F87B500337
 ```bash
 magnet:?xt=urn:btih:38D6CE001E287E9305FE3E758366FBFB3B46B44E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Felo Sepulveda - Long Distance (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz
 magnet:?xt=urn:btih:0B4F89D63FEC476C4AE96028221BB4C0593D650F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ Mick Clarke - Gnarly (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:F6186183EDAE48E5C071EAC544033CE2004EF2AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ Mitch Malloy - Making Noise (2017) Japanese Edition [FLAC|Lossless|image + .cue]
 magnet:?xt=urn:btih:18CFAB2281698A540E1939117C287990C5A23F9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ magnet:?xt=urn:btih:18CFAB2281698A540E1939117C287990C5A23F9F
 ```bash
 magnet:?xt=urn:btih:CDBD63E45610C2F1CAABFFD53F44FFAD439A0CD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +245,8 @@ Keith Scott Blues - One Nation Under the Blues (2023) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:32DCBD29ECF6B50BB99CE19ABC4C67FF02A26958
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +273,8 @@ magnet:?xt=urn:btih:32DCBD29ECF6B50BB99CE19ABC4C67FF02A26958
 magnet:?xt=urn:btih:E032757A94FDB31F408DC7A3F60A92B3FD8862B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +299,8 @@ magnet:?xt=urn:btih:E032757A94FDB31F408DC7A3F60A92B3FD8862B1
 magnet:?xt=urn:btih:B1042DEE84FBB62CD10DD9A5CD45B7F54D91A682
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:B1042DEE84FBB62CD10DD9A5CD45B7F54D91A682
 ```bash
 magnet:?xt=urn:btih:36CAF2AAC4C9415EA760156FC5B7EB1F2730F48E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -330,6 +354,8 @@ Payson Lyon - Long Day's Journey into Light (2023) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:27EBB8FB3A242BB19C68D3D4D7FBB4829EA5832C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +381,8 @@ magnet:?xt=urn:btih:27EBB8FB3A242BB19C68D3D4D7FBB4829EA5832C
 magnet:?xt=urn:btih:2500B582C519B10E404DB69D71766E27DA2B39CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ magnet:?xt=urn:btih:2500B582C519B10E404DB69D71766E27DA2B39CD
 magnet:?xt=urn:btih:88A76181C9DDD8C480D792008C5F33B520DDD6FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ magnet:?xt=urn:btih:88A76181C9DDD8C480D792008C5F33B520DDD6FF
 ```bash
 magnet:?xt=urn:btih:8546003C93D80AFE9FF26F85DA8B7B7DE5912337
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +462,8 @@ magnet:?xt=urn:btih:8546003C93D80AFE9FF26F85DA8B7B7DE5912337
 magnet:?xt=urn:btih:EC4141D5E99DFAE8CE550B69165C5B7F135712DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +490,8 @@ magnet:?xt=urn:btih:EC4141D5E99DFAE8CE550B69165C5B7F135712DB
 magnet:?xt=urn:btih:7079ACF011EDD6AD74A5FBD98C0515FD16E73D8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +516,8 @@ magnet:?xt=urn:btih:7079ACF011EDD6AD74A5FBD98C0515FD16E73D8A
 ```bash
 magnet:?xt=urn:btih:8FE7442211EDFB008535190F29658EF39E040793
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +546,8 @@ VA - Bravo Hits 19 (1997) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Rock>
 magnet:?xt=urn:btih:2471FF8C502508B1851A0B90689570B276EB92C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +575,8 @@ Lurrie Bell (род. Lurrie Bell, 13 декабря 1958 г., Чикаго, Ил
 magnet:?xt=urn:btih:ACE7DD0A5843CD3FFA22E0740DA3AD518E10BCD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +600,8 @@ magnet:?xt=urn:btih:ACE7DD0A5843CD3FFA22E0740DA3AD518E10BCD6
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +630,8 @@ Ramsey Lewis - Ramsey Lewis And His Gentle-Men of Jazz (1957, 1958) 2008, Fresh 
 magnet:?xt=urn:btih:371A1500B197C74795E3A21DE18DEF2616B70F49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +656,8 @@ magnet:?xt=urn:btih:371A1500B197C74795E3A21DE18DEF2616B70F49
 ```bash
 magnet:?xt=urn:btih:4DBC84250E853EE03E06AE2AD9585831C52E5CFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +686,8 @@ VA - Forest Retreat: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Ba
 magnet:?xt=urn:btih:EB05C869F5934314A90B0899566DC7D7A093A892
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +713,8 @@ magnet:?xt=urn:btih:EB05C869F5934314A90B0899566DC7D7A093A892
 ```bash
 magnet:?xt=urn:btih:35F93F64C1D0C4090587950714DE708DA8E14D1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:2D9C05BC0714C7336D6E582BAEB285D79C39FD8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Reeder 5 v5.0.4 [En]
 magnet:?xt=urn:btih:089996F7279877B186C22F601472B3FD00B43A2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ iA Writer 5.6.4 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:771AC2F8178CA0772F4B892409809B0EA1D5D89F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ DCommander для Mac - двухпанельный файловый менедж
 magnet:?xt=urn:btih:9C373DD79B89B49AB6C3420C75AC2C304B112D88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ DxO PhotoLab 4 ELITE Edition 4.0.2.45 [Multi]
 ```bash
 magnet:?xt=urn:btih:C9179539EE695D84B0B40B5A6F0F2D873850A57C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:C9179539EE695D84B0B40B5A6F0F2D873850A57C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:C9179539EE695D84B0B40B5A6F0F2D873850A57C
 ```bash
 magnet:?xt=urn:btih:DFD71AB111A087E49278294D41F95D76900F6547
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ MediaInfo позволяет получать техническую инфор�
 magnet:?xt=urn:btih:7186C26AAC017C6D4CD7A4EFA7E2282202CE5D62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:7186C26AAC017C6D4CD7A4EFA7E2282202CE5D62
 ```bash
 magnet:?xt=urn:btih:EC6527267096EC348504D5B7D2369C9E2B9A6E39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:EC6527267096EC348504D5B7D2369C9E2B9A6E39
 magnet:?xt=urn:btih:6B9B61A664D84D370EDEF7A61665BBBC7ED2151D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:6B9B61A664D84D370EDEF7A61665BBBC7ED2151D
 ```bash
 magnet:?xt=urn:btih:8F189F02D3776931527A1B9A55DF34955D032243
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:8F189F02D3776931527A1B9A55DF34955D032243
 magnet:?xt=urn:btih:ACC3442E9A822B7179ADB9A377723AF6B9E6A748
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:ACC3442E9A822B7179ADB9A377723AF6B9E6A748
 ```bash
 magnet:?xt=urn:btih:B45142CFD5F98F3D0F4354C782E9CCC2E118E0B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ CCleaner - утилита для чистки мусора в операцион
 magnet:?xt=urn:btih:0EC0921E0C4B99547DF577CD1004D56B8648903C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ Coloring / Раскраска v2.0.63 Unlocked [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:55BA7E4D1EC9A807F80675D2ED4555296E43BF1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ Microsoft .NET Framework — программная платформа, выпу
 magnet:?xt=urn:btih:45220F4FB2D045189A995E7180423F4684CEC0ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ Rewun Icon Pack 3.0.0 [En]
 ```bash
 magnet:?xt=urn:btih:60235EB019D920B9C75D03A81DE3986BC059B55B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:60235EB019D920B9C75D03A81DE3986BC059B55B
 magnet:?xt=urn:btih:F8EEE0A5F1046DA8EEA176216EF596558B036654
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ SamDrivers 19.10 - Сборник драйверов для Windows [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BBA8FF7F7391AAC3437370D684FBDFF4FD654811
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ Start Menu специально спроектировано для Windows 8, 8
 magnet:?xt=urn:btih:592F82F37CF7F1076F90F4C9E14D9BA7C39582A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ PhotoZoom Professional - программа является лучшей из �
 ```bash
 magnet:?xt=urn:btih:71942A9CBFD56010479086EFD3EA10CD25FCF627
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +583,8 @@ Loopback 2.1.9 [En]
 magnet:?xt=urn:btih:D377A7C35FF4053584425835C5483473FDFC0EF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +608,8 @@ xScope — cоздан специально для дизайнеров и ра�
 ```bash
 magnet:?xt=urn:btih:3106A985B0A37D9992AD8A9DA5720E88E9A1BE64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +637,8 @@ RapidWeaver отлично подойдет тем, кто ищет ПО для 
 magnet:?xt=urn:btih:C9602722F8041628256379E4B400B2C029BB8C91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ Find Any File не содержит никаких подменю с настр�
 magnet:?xt=urn:btih:52BDAED7058AC48F6A58DCEBE2752DB18473BAEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ Batteries 2.0.2 [En]
 ```bash
 magnet:?xt=urn:btih:852BE6B84A9DC8A964128C635F4577CC202796C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

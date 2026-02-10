@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:04BC40B8CDC1D91D39C72B98CD620FB27C8A1BB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:04BC40B8CDC1D91D39C72B98CD620FB27C8A1BB1
 ```bash
 magnet:?xt=urn:btih:E2707BFB0BDBC0097BA0DBB243AB226E972E31CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:E2707BFB0BDBC0097BA0DBB243AB226E972E31CB
 magnet:?xt=urn:btih:02614830F84DDCAB296EDB8562BD7777776C5467
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:02614830F84DDCAB296EDB8562BD7777776C5467
 ```bash
 magnet:?xt=urn:btih:F2503315CD3471FC2AEC37343FC0BF4483B167DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ John Mellencamp - Other People's Stuff (2018) [MP3|320 Kbps] <Rock, Blues>
 magnet:?xt=urn:btih:7A888954FC4BE8348BE1C2C5787324AEF33C7C88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ LO-FI-AF отправляет вас в путешествие по вашим �
 magnet:?xt=urn:btih:008F031DDD1F5DEA3140A3274593FE6AE875F915
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:008F031DDD1F5DEA3140A3274593FE6AE875F915
 ```bash
 magnet:?xt=urn:btih:8F87327C9D7CA59DECFDC76B86D6DA2F6C141D3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:8F87327C9D7CA59DECFDC76B86D6DA2F6C141D3C
 magnet:?xt=urn:btih:C0FB0084EEAF0F110C34536BE0644F5A09A4289A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:C0FB0084EEAF0F110C34536BE0644F5A09A4289A
 magnet:?xt=urn:btih:BE451AE328F3E3072B66EC85F80C1E555AC0E99C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:BE451AE328F3E3072B66EC85F80C1E555AC0E99C
 ```bash
 magnet:?xt=urn:btih:531B8C9325B428F48ADA33A54A53D7C6B2DA6B7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:531B8C9325B428F48ADA33A54A53D7C6B2DA6B7C
 magnet:?xt=urn:btih:0691543AF58CE8209755CC0C7F575A882B2B3588
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ Adobe Media Encoder 2020 - это программа кодирования, к�
 ```bash
 magnet:?xt=urn:btih:CCA20DB7C8A29CA7E98BC9497E1BDB9B9DFE14D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ Nightbreed - Nightbreed (2015) [MP3|320 кб/с] <Thrash Metal>
 magnet:?xt=urn:btih:FC5287AC06D3F058EE38DAC0864079EACBBCA859
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ Permute - очень простой видео конвертер с миним�
 ```bash
 magnet:?xt=urn:btih:BF605E224EC39EEC7847FF8C34719BACB6335657
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:BF605E224EC39EEC7847FF8C34719BACB6335657
 magnet:?xt=urn:btih:B0527FD06BC93CD3CD3BC8620CC73AE95E7260F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ R-Studio Technician 8.17 Build 180955 RePack (& portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2D238543967AAF5F7AA578173B3B421067241D69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ House of Cards - это политическая драма о безнравс�
 magnet:?xt=urn:btih:134C312630E4360EE756CE59CEF42471083B3EE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:134C312630E4360EE756CE59CEF42471083B3EE7
 ```bash
 magnet:?xt=urn:btih:6291FA0D8D5810A0000B9B91E13F9D291F2AD4B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ John Butler Trio - Home (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 magnet:?xt=urn:btih:85897DA719A7335FD5EE0B4F7CF56B02B343173D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ Cadaver Mutilator - Murder Death Kill (2013) [FLAC|Lossless|image + .cue] <Bruta
 ```bash
 magnet:?xt=urn:btih:A123078655760737EEF76D95A11E7941CA3DD1BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +558,8 @@ Windows 10 (v20h2) x64 HSL/PRO by KulHunter v1.3 (esd) [Ru]
 magnet:?xt=urn:btih:3BF7F66DD5EEEE891B37ED55C3B690DE63E9DA86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ magnet:?xt=urn:btih:3BF7F66DD5EEEE891B37ED55C3B690DE63E9DA86
 magnet:?xt=urn:btih:D93981F392F213C6A83B1FFBA57B3F4A4D869D2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +610,8 @@ magnet:?xt=urn:btih:D93981F392F213C6A83B1FFBA57B3F4A4D869D2F
 ```bash
 magnet:?xt=urn:btih:84B74DB2FB630784DCBA02C9F08C3F37B8D8F1BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +640,8 @@ Underdark - In The Name Of Chaos (2010) [FLAC|Lossless|image + .cue] <Death Meta
 magnet:?xt=urn:btih:183308685FD863A39C0D75FE391D0F72B3AEA819
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +669,8 @@ VA - Kay Rush Presents Unlimited XX (2018) [MP3|320 Kbps] <House, Club, Dance>
 magnet:?xt=urn:btih:954349625B9BD52CC8925C25C04E74E04EC14E8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +696,8 @@ Advanced Installer - это мощное и простое в использов
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

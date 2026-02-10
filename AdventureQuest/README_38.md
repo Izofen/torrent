@@ -19,6 +19,8 @@ Hauntii - приключенческая игра, предлагающая ва
 magnet:?xt=urn:btih:BFC877D0EBD588005170B7FA629EF5C226CF3A2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Senua's Saga: Hellblade 2 - продолжение ролевого экшена
 ```bash
 magnet:?xt=urn:btih:F674766F7FBA353A89B729F37719CEC4885A350B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Senua's Saga: Hellblade 2 - продолжение ролевого экшена
 magnet:?xt=urn:btih:44D2EB6B42C01F258807F36A9E1C020D0EB7693A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Journey of AutUmn – перед вами традиционное прик�
 ```bash
 magnet:?xt=urn:btih:AD49EA612065E7D5FEE10E41091A23330468746E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ The Vanishing of Ethan Carter - бродилка от первого лица, �
 magnet:?xt=urn:btih:69926BF04D358515CE484334904629B28A77888C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The Vanishing of Ethan Carter Redux – это улучшенная версия
 ```bash
 magnet:?xt=urn:btih:E7721CED9042CC21F930E417BC40244980E618BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Senua's Saga: Hellblade 2 - продолжение ролевого экшена
 magnet:?xt=urn:btih:72A8A2FF38C3DB8A2812E35B340884B0664CBCD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Scene Investigators (2023) [Ru/Multi] (20250503/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:C5AA342F69690B6D9600B0F2ACB37C7CDA4C2A2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ AMANATSU ~Perfect Edition~ (2024) [Multi] (1.0.2/dlc) License GOG
 magnet:?xt=urn:btih:0A4A40326F4DD5A8978DD94CE0391DCD24F4C6C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Lorelei and the Laser Eyes – посетите невероятное стар�
 ```bash
 magnet:?xt=urn:btih:68884573ACBED3DE959C2A30C14F0B19B5B0592B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Crow Country (2024) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:0146B3CC8E97E76EBF3051238DB1AC7C6FB86FA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ The Cursed Tape - инди-хоррор от первого лица с эффе
 ```bash
 magnet:?xt=urn:btih:D9590DC1EFE05B45C54C8C87A9A4072D9BAF5082
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ The Desolate Hope - это приключенческий квест, котор
 magnet:?xt=urn:btih:8E0016C00C4A77217B074A577702F462F5906B97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ The Cursed Tape - инди-хоррор от первого лица с эффе
 ```bash
 magnet:?xt=urn:btih:66863D9E8BF8C355DEAAD256F599CDC25801D378
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ A Highland Song - это приключенческая игра, разрабо
 magnet:?xt=urn:btih:ACF5C11C1331C72509F7768A0EF4584D4FFD21C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Hollow Cocoon - это приключенческая хоррор игра от
 ```bash
 magnet:?xt=urn:btih:E31956215E9B8BAA6CA2CDDE72C315B6CAA48D81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Hollow Cocoon - это приключенческая хоррор игра от
 magnet:?xt=urn:btih:C3EBC84893EDE60D1FA48480E0F29FF12F4EC1DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Poltergeist Watcher вдохновленная классическими фил
 ```bash
 magnet:?xt=urn:btih:14F924F9782A773682F6C7274B341A740182B5C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ INDIKA - игра от третьего лица с историей о стра
 magnet:?xt=urn:btih:5FBD419F8957BBCF71D5F479AFBBC04E082DB499
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The Bridge Curse 2: The Extrication - продолжение одноименн�
 ```bash
 magnet:?xt=urn:btih:05DA5E27C7E54993DB77116C1AFDF9F1724EEC6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Alba: A Wildlife Adventure (2020) [Ru/Multi] (0.90) License GOG
 magnet:?xt=urn:btih:011C415B8F7D0CD64479FFA3A4AD3E973E7D859B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ The Bridge Curse 2: The Extrication - продолжение одноименн�
 ```bash
 magnet:?xt=urn:btih:9935FD2DE7F428BC6C2F033DB993B8F6D506208B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Gone Home (2013) [Ru/Multi] (2020-01-28) License GOG
 magnet:?xt=urn:btih:7A72EE7523EB3D247E903AF4001F28C85ADDB86E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ magnet:?xt=urn:btih:7A72EE7523EB3D247E903AF4001F28C85ADDB86E
 ```bash
 magnet:?xt=urn:btih:72C7741972E54271E36010659BAC627F134E9012
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ INDIKA - игра от третьего лица с историей о стра
 magnet:?xt=urn:btih:3EC445B029337320BA10031161CDDCD7D7845A21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Pools (Бассейны) – игра, разработанная в жанре 
 ```bash
 magnet:?xt=urn:btih:80690B702138A76F1B8AB74FA098E83ADF3B05C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

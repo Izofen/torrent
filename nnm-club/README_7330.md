@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:B4CF1CA4E8AF2B4AC4DF99B01D5216BE00269867
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:B4CF1CA4E8AF2B4AC4DF99B01D5216BE00269867
 ```bash
 magnet:?xt=urn:btih:29EDB7F36AC417166F51721030B3E20E90765CD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ VA - Chillhop Essentials - Winter (2021) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop,
 magnet:?xt=urn:btih:AF444DE03AD8B68FE34AE420657200A3523DF061
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:AF444DE03AD8B68FE34AE420657200A3523DF061
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:AF444DE03AD8B68FE34AE420657200A3523DF061
 magnet:?xt=urn:btih:8F8C25F02017567A9323E134D6586B15D4F68E22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:8F8C25F02017567A9323E134D6586B15D4F68E22
 ```bash
 magnet:?xt=urn:btih:AB52F2719A411F7A4E822E9DAEBF1F4340518E0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:AB52F2719A411F7A4E822E9DAEBF1F4340518E0E
 magnet:?xt=urn:btih:238161A03B8EA3F37C30FF29E4C8D5DA43FF6C27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:238161A03B8EA3F37C30FF29E4C8D5DA43FF6C27
 ```bash
 magnet:?xt=urn:btih:8BAB2C3F5974D6F520E9535AC6A3AEC9BA368B0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ mewithoutYou - Pale Horses (2015) [MP3|320 кб/с] <Indie Rock, Alternative>
 magnet:?xt=urn:btih:B56AA3257E9C26829456347020524502002C693C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:B56AA3257E9C26829456347020524502002C693C
 magnet:?xt=urn:btih:09CC354EE9612F2436CCDD6DE340078FCC302E56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:09CC354EE9612F2436CCDD6DE340078FCC302E56
 ```bash
 magnet:?xt=urn:btih:5273DADE13FE1F8DE23E3A0BF94382CC59DAA7D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:5273DADE13FE1F8DE23E3A0BF94382CC59DAA7D8
 magnet:?xt=urn:btih:A9960B186153F2DE8167091297CEFF4322F5F808
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:A9960B186153F2DE8167091297CEFF4322F5F808
 ```bash
 magnet:?xt=urn:btih:6D3560EEFF34AB6DF2F0EF0A17A82846912F9C70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ MacCleaner 3 PRO 3.2 [En]
 magnet:?xt=urn:btih:3A030EEECFF3D024AB5F6AE93BEFE52C878768D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:3A030EEECFF3D024AB5F6AE93BEFE52C878768D8
 magnet:?xt=urn:btih:4C91223765FE50792983C18285BDFAA6E4771D9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ Rufus - небольшая утилита помогает отформатир�
 ```bash
 magnet:?xt=urn:btih:92928899EAEA0AF024A834345E7EADD374453136
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ Cain's Dinasty - The Hollow Earth (2015) [MP3|320 кб/с] <Power Metal>
 magnet:?xt=urn:btih:38F6B68154BE49740C0BCEAF6EFCCBE9D4399854
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:38F6B68154BE49740C0BCEAF6EFCCBE9D4399854
 ```bash
 magnet:?xt=urn:btih:3C043402C7466F10EFBF2D5150C4F7FD592ACCDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ Mr Blues - Ain't No Saint (2019) [MP3|320 Kbps] <Blues, Chicago Blues>
 magnet:?xt=urn:btih:22BE2893450ED313395FCED43346ACE689590716
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ VA - Soft Pop (2021) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:AE9C09FFC75A40B5FAB4365E5327B6C57424FC16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:AE9C09FFC75A40B5FAB4365E5327B6C57424FC16
 magnet:?xt=urn:btih:146C0B48B6627796133DD755B3840118E72412B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ magnet:?xt=urn:btih:146C0B48B6627796133DD755B3840118E72412B8
 ```bash
 magnet:?xt=urn:btih:A1AC1EC7C88B3917ECD52A2D43C3CDD5BC7A678B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +611,8 @@ magnet:?xt=urn:btih:A1AC1EC7C88B3917ECD52A2D43C3CDD5BC7A678B
 magnet:?xt=urn:btih:9595AFA9EC419A58C21ABD38CECED2FEDC44831E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ magnet:?xt=urn:btih:9595AFA9EC419A58C21ABD38CECED2FEDC44831E
 ```bash
 magnet:?xt=urn:btih:FF25B324C8276C06E447CBF915A2E4E673E1367B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ Drezden - Эдельвейс (2019) [MP3|320 Kbps] <Pop, Electronic>
 magnet:?xt=urn:btih:734EA067E7536DCAD292E3885913FBE07DBC454B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ magnet:?xt=urn:btih:734EA067E7536DCAD292E3885913FBE07DBC454B
 ```bash
 magnet:?xt=urn:btih:E2713D26BBD1FBFA9795203F97E29955DBA59828
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

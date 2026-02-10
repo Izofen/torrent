@@ -21,6 +21,8 @@ Beatless / Мёртвый ритм [2018, TV, 20 ep + 4 sp] WEB-DL 720p Raw+Rus
 magnet:?xt=urn:btih:97E7D8530A16AA38459DC3EFE988C91F1C3C997A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ ID-0 / Идентификатор - ноль [2017, TV, 12] WEBRip 720p rus
 ```bash
 magnet:?xt=urn:btih:6E8FD1DC07DF42446DECCE290F8E0E483FFF9D69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Kakegurui XX | Безумный азарт XX [2019, TV, 12] HDTV 720p raw + rus
 magnet:?xt=urn:btih:E35501CEB6515899550BB274624FD5C14922C23F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Renai Boukun / Love Tyrant / Любовь тирана [2017, TV, 12 ep] WEB-DL 
 ```bash
 magnet:?xt=urn:btih:3F38E3DC0A5764D970583060EAA8082998542F1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Kagami no Kojou | Lonely Castle in the Mirror | Одинокий замок в �
 magnet:?xt=urn:btih:F32049428A2CFB596EDE18124BA953C8195DDA3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Eromanga Sensei / Эроманга-сенсей [2017, TV, 12 ep] HDTV 720p Raw+
 ```bash
 magnet:?xt=urn:btih:025616A83C0D94BB8A195E40AD0613FAA2908084
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Kimi no Suizou wo Tabetai | Kimi no Suizou o Tabetai | I Want to Eat Your Pancre
 magnet:?xt=urn:btih:16E7E3BBCAC5822161053069DFA5046CB12E6B89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Yakusoku no Neverland / The Promised Neverland / Обещанный Неверл
 ```bash
 magnet:?xt=urn:btih:B35C90B5699E248FE00CCE5A8495864D8DCA596C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Shikioriori / Flavors of Youth / Вкусы Молодости [2018, MV] WEB-DL
 magnet:?xt=urn:btih:FB0C5427695DDD100787005E57B097392BD0B92B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Roku de Nashi Majutsu Koushi to Akashic Records / Акашийские хрон�
 magnet:?xt=urn:btih:2021A145BA40C959932815EF9C873039CE2D48B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Busou Shoujo Machiavellianism / Armed Girl's Machiavellism / Тирания во
 ```bash
 magnet:?xt=urn:btih:DBB189480FA289979E7697BBBDF7D07B3AAD7672
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ Shinsekai Yori / From the New World / Из Нового Мира [2012, TV, 25 e
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ Lupin Sansei: Cagliostro no Shiro / Lupin III: The Castle of Cagliostro / Люп
 magnet:?xt=urn:btih:733AB505144672783ED8CFCD279685DCDA66F11D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ Ayakashi / Аякаси [2007, TV, 12] DVDRip 480p raw+rus
 ```bash
 magnet:?xt=urn:btih:C987EDA780F396099102099493DA75FB23ED9E1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ TV-1 (Anilibria) - внутри контейнераЯзык субтитров:
 magnet:?xt=urn:btih:931FBB7EB564F1B409E8D7A70EE67ED7B9014374
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ Kurogane no Linebarrels / Linebarrels of Iron / Стальные Лайнбар�
 ```bash
 magnet:?xt=urn:btih:5BCF11E75E23856A4E6C062D7614F74E6E17B13C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ Escha & Logy no Atelier: Tasogare no Sora no Renkinjutsushi / Мастерска
 magnet:?xt=urn:btih:68CC3722E6E0301CE3176242BE56D5DE3CB33034
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ High School DxD Hero | Демоны старшей школы 4 [2018, TV, 13] H
 ```bash
 magnet:?xt=urn:btih:2465C4E6BB00231068095475BA0C2CEC0E1C123F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ Toaru Majutsu no Index III | A Certain Magical Index III | Индекс волш
 magnet:?xt=urn:btih:1C89577D855F62B97BEFAF25E7BC23AE40FB16AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ Dominion Tank Police / Доминион: Танковая полиция [1988, 
 ```bash
 magnet:?xt=urn:btih:E598596A9E82A61BA2AC59EBBEB06D7CF5AD2940
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:E598596A9E82A61BA2AC59EBBEB06D7CF5AD2940
 magnet:?xt=urn:btih:7CCF0943CA4BC26433DB4842500691C94510036E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ Tensei Shitara Slime Datta Ken | That Time I Got Reincarnated as a Slime | О м
 ```bash
 magnet:?xt=urn:btih:5001CFC7C1D96AA2458197F1E093C4B6F849CE34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ Elf o Karu Mono-tachi II / Those Who Hunt Elves II / Те, кто охотятс
 magnet:?xt=urn:btih:E8357F0DC740D6649629C0CFA5CCE98F6BB27B6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ VIPER'S CREED / Змеиное кредо [2009, TV, 12] HDTV 720p raw+rus
 ```bash
 magnet:?xt=urn:btih:86D1353908BF2B4C4DA3EE083CD14779540FA5BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +662,8 @@ Elf o Karu Mono-tachi / Those Who Hunt Elves / Те, кто охотятся н�
 magnet:?xt=urn:btih:0119FF1AE3052D4E794125CA7A5153E9501D2873
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ Golden Boy / Золотой парень [1995, OVA, 6] DVDrip upconvert raw + r
 ```bash
 magnet:?xt=urn:btih:99C3FAB5C46FFB3A3F61FD6921772133D78F3E18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

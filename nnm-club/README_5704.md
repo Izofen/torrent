@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:43316ADDAFA80D27D4964E2F39DE074CF4EBD8D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ VA - Rock Christmas 2022 - The Very Best Of (2022) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:914741E9D01B8501B4E31E36FE701CC4F0F027C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:914741E9D01B8501B4E31E36FE701CC4F0F027C0
 ```bash
 magnet:?xt=urn:btih:0025CA53D5551958C49AB052E53FAEDDB51BA811
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ Eye 2 Eye - The Wish (2011) [FLAC|Lossless|image + .cue] <Neo-Progressive Rock>
 magnet:?xt=urn:btih:AA63315D845C378A6E416F1AE9239E851C9B07E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:AA63315D845C378A6E416F1AE9239E851C9B07E4
 ```bash
 magnet:?xt=urn:btih:C2E3F580383299B12EB653EA2C7256F62CB3B192
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ Reveal - Overlord (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy, P
 magnet:?xt=urn:btih:8F042D356D174569FC1AD3B95D2506C58DCBF063
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:8F042D356D174569FC1AD3B95D2506C58DCBF063
 ```bash
 magnet:?xt=urn:btih:035AE662F582AC777BE0FF1901F519AC1751B1AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:035AE662F582AC777BE0FF1901F519AC1751B1AD
 magnet:?xt=urn:btih:80D12F94A42A9B1C162A93A291A40D8DDF82504C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:80D12F94A42A9B1C162A93A291A40D8DDF82504C
 magnet:?xt=urn:btih:DF8B375DF1700107FE30FE93ED6A424A4E582E9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:DF8B375DF1700107FE30FE93ED6A424A4E582E9A
 ```bash
 magnet:?xt=urn:btih:81F3E419CB2EBDFAFEFE59B7F5CF9DC65339CF0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:81F3E419CB2EBDFAFEFE59B7F5CF9DC65339CF0E
 magnet:?xt=urn:btih:E130EF9E9A3E8936C98B3F1A6F84AB837E346018
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 magnet:?xt=urn:btih:2510FCDE276DCD1027AD186640D84E6D348442F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:2510FCDE276DCD1027AD186640D84E6D348442F9
 ```bash
 magnet:?xt=urn:btih:155D2E50D5F648826415567B33592F7E64885AFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ VA - The Forest Chill Lounge, Vol. 6 (2015) [AAC|~305 Kbps] <Chillout, Lounge, D
 magnet:?xt=urn:btih:5EAB91A559A4639EB96B2EEA5D210A64C16B0C29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ magnet:?xt=urn:btih:5EAB91A559A4639EB96B2EEA5D210A64C16B0C29
 ```bash
 magnet:?xt=urn:btih:1101E58831466E3DD5DE727C86744C39E9C5C95A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:1101E58831466E3DD5DE727C86744C39E9C5C95A
 magnet:?xt=urn:btih:5D5A851EEFB51360EAC04BD28E62544269899333
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ Urahara | Урахара | Вопреки [2017, TV, 12 эп.] WEB-DL 720p raw
 ```bash
 magnet:?xt=urn:btih:74E5E9A70DD28FBCD9F2CFD17F2FE511BB3643FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ VA - Ретро Шлягер Новогодний (2006) [MP3|320 Kbps] <Рет�
 magnet:?xt=urn:btih:0A7609B79C6C8FDE5BB033992315BC057869A592
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:29601E2CBD7201F24F22C09AF87224212BC5367D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ VA - The Forest Chill Lounge, Vol. 14 (2019) [AAC|~309 Kbps] <Chillout, Lounge, 
 magnet:?xt=urn:btih:8675E166579C6948E4968780B295132359D74025
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ A3 Белая Ночь(   Читать дальше...   )Жанр: Rock, Heavy 
 magnet:?xt=urn:btih:E42C9CABBE7ABF5E978735361F8B64F80FACE9D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:E42C9CABBE7ABF5E978735361F8B64F80FACE9D6
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:E42C9CABBE7ABF5E978735361F8B64F80FACE9D6
 ```bash
 magnet:?xt=urn:btih:B224A1727E5C5E6C553E639129472841FC295F07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +644,8 @@ magnet:?xt=urn:btih:B224A1727E5C5E6C553E639129472841FC295F07
 magnet:?xt=urn:btih:40F0F5D119F75403D0C08EFBB02654F6B2FBC17F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +669,8 @@ magnet:?xt=urn:btih:40F0F5D119F75403D0C08EFBB02654F6B2FBC17F
 ```bash
 magnet:?xt=urn:btih:E27C242BB559C9B5B40B9290B3952BEE9FCDC440
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -648,6 +698,8 @@ VA - Music For Everyone - Club House Vol.4 (2015) [MP3|320 кб/с] <House, Voca
 ```bash
 magnet:?xt=urn:btih:77F080E2DBA375648C198EC73989D9868FC9ABBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

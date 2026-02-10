@@ -1,3 +1,29 @@
+###  Публикация: 1053194   (526654) от 16.09.2016
+
+Е. М. Ярославский | Задачи и методы антирелигиозной пропаганды (1925) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доклад на курсах переподготовки сельского учительства Московской губернии, 25 июля 1924 года.Жанр: История, религиоведение, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C1A86DA3F18CC160B0BF6D1A0BD44DA74C5CBCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1052996   (526693) от 16.09.2016
 
 В. В. Паламарчук (зав. ред.) | Научный атеизм (1984) [PDF]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:8DFEF21C477FB60347DA845140A14E188058763E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:8DFEF21C477FB60347DA845140A14E188058763E
 magnet:?xt=urn:btih:E71A6371BA0AF11742864020A8A15D077EDA73FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:E71A6371BA0AF11742864020A8A15D077EDA73FB
 ```bash
 magnet:?xt=urn:btih:4CE822046A5ACC4E39D4B1EAE03C336C08953C22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:4CE822046A5ACC4E39D4B1EAE03C336C08953C22
 magnet:?xt=urn:btih:793905A2DB878C65516C6F7FDE51EA4F4FB4BDEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:793905A2DB878C65516C6F7FDE51EA4F4FB4BDEA
 ```bash
 magnet:?xt=urn:btih:33ED3156E3F1D271F86E073E810CC1EC2D5F3DD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:33ED3156E3F1D271F86E073E810CC1EC2D5F3DD0
 magnet:?xt=urn:btih:DF6FC0FDC6C712736F00DF2E911EE993FEF4C1FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:DF6FC0FDC6C712736F00DF2E911EE993FEF4C1FA
 ```bash
 magnet:?xt=urn:btih:9EEC9DFEA093146B5DFC2C74B8CAA184E492BB74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:9EEC9DFEA093146B5DFC2C74B8CAA184E492BB74
 magnet:?xt=urn:btih:A8FEC0CECAAE6B123BE7064B8DB899494746A44F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:A8FEC0CECAAE6B123BE7064B8DB899494746A44F
 ```bash
 magnet:?xt=urn:btih:6E4742F4492794259A7CEEF45A8CD6AAAE52D1D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:6E4742F4492794259A7CEEF45A8CD6AAAE52D1D4
 magnet:?xt=urn:btih:C36D304F29989AA67A4068F459C5E252EC92BD61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:C36D304F29989AA67A4068F459C5E252EC92BD61
 ```bash
 magnet:?xt=urn:btih:F6936389D284D22EADC1458E13D90702F374C49D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:F6936389D284D22EADC1458E13D90702F374C49D
 magnet:?xt=urn:btih:A71559BCA00FA30D952C4FBC33F0F0598934111E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:A71559BCA00FA30D952C4FBC33F0F0598934111E
 magnet:?xt=urn:btih:AED28668C87062200D7AD9171AD7C99302233D08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +385,8 @@ Mark Griffiths | Woodworking in a Weekend: 20 Simple Projects for the Home (2013
 ```bash
 magnet:?xt=urn:btih:1F5EFC64FD17D6A5E63EBAE6AA4D75DAAEA01F13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:1F5EFC64FD17D6A5E63EBAE6AA4D75DAAEA01F13
 magnet:?xt=urn:btih:343664E5AF7573738AF1F315FA956E973716AF43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:343664E5AF7573738AF1F315FA956E973716AF43
 ```bash
 magnet:?xt=urn:btih:37E76FC045C7B22EEBEE57FD6B82A88FC66F6825
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +472,8 @@ magnet:?xt=urn:btih:37E76FC045C7B22EEBEE57FD6B82A88FC66F6825
 magnet:?xt=urn:btih:DB412BFDD33741601F77106BA3BFA2B283F5C9D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:DB412BFDD33741601F77106BA3BFA2B283F5C9D0
 ```bash
 magnet:?xt=urn:btih:F5C7EBFAA7943CD214C5F9602DD4294F06EE0DC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +525,8 @@ magnet:?xt=urn:btih:F5C7EBFAA7943CD214C5F9602DD4294F06EE0DC8
 magnet:?xt=urn:btih:B79376D06942E1ECDB677BDA915438AFE5526F4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +551,8 @@ magnet:?xt=urn:btih:B79376D06942E1ECDB677BDA915438AFE5526F4A
 magnet:?xt=urn:btih:16C831393428D94BE522E6631523CB829A4254D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +576,8 @@ magnet:?xt=urn:btih:16C831393428D94BE522E6631523CB829A4254D8
 ```bash
 magnet:?xt=urn:btih:130E7E0F55A0D4C5D6A81F4D488E372D44B11042
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +605,8 @@ magnet:?xt=urn:btih:130E7E0F55A0D4C5D6A81F4D488E372D44B11042
 magnet:?xt=urn:btih:12976F36CA031B1D9CBA71314E5CE118479814DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +633,8 @@ magnet:?xt=urn:btih:12976F36CA031B1D9CBA71314E5CE118479814DE
 magnet:?xt=urn:btih:AB96057995D3B63AD7E93C808D92A0AF877164EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +658,8 @@ magnet:?xt=urn:btih:AB96057995D3B63AD7E93C808D92A0AF877164EB
 ```bash
 magnet:?xt=urn:btih:C386FB865751E537BFC80098D575991663FC549B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,29 +687,7 @@ magnet:?xt=urn:btih:C386FB865751E537BFC80098D575991663FC549B
 magnet:?xt=urn:btih:1A72CE5B41D34AA8E865FD112B5DBDD259EA338F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927468   (528627) от 13.08.2015
-
-Наталья Данилова | Самое важное о болезнях щитовидной железы (2013) [FB2, RTF]
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проблемы со щитовидной железой возникают в наше время у многих. В этой книге подробно описываются причины, симптомы и виды заболеваний щитовидки. Отдельно рассказывается о ранней самодиагностике и профилактике в домашних условиях. Прочитав нашу книгу, вы узнаете о современных медикаментозных, хирургических и аппаратных методах лечения. Большое внимание уделено особенностям (   Читать дальше...   )Жанр: Популярная и нетрадиционная медицинаФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACF828477146C0EBF66D07ECEC80FC3314EEF895
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

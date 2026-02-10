@@ -26,6 +26,8 @@ Trinodia - Astral Clouds (2013) [MP3|320 кб/с]<Goa Trance>
 magnet:?xt=urn:btih:96DE3037F1301F72229F09AD36277C3516CAAD45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -50,6 +52,8 @@ magnet:?xt=urn:btih:96DE3037F1301F72229F09AD36277C3516CAAD45
 ```bash
 magnet:?xt=urn:btih:25F4C83D34A449E2763BA3A1880108F911C70E4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -84,6 +88,8 @@ Mordacious - Kingdom Of Fire (2013) [FLAC|Lossless]<Dark Electro, Industrial, EB
 magnet:?xt=urn:btih:F4135B3EDC560FFC87CB1262FE7540308E33ACB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -111,6 +117,8 @@ Postico - рациональный (   Читать дальше...   )Тип �
 magnet:?xt=urn:btih:E76816A55289C3C5E73D8F2B3C960458DDC87FE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -134,6 +142,8 @@ Librera PRO: Читалка для книг - это Удобное и легк�
 ```bash
 magnet:?xt=urn:btih:6D8CF4DCCF87808339D3557ACBC343CE5811A388
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +170,8 @@ B. You (Excess) Are :: 05:20Жанр: Italo-DiscoФормат: Vinyl, 12", Maxi-
 magnet:?xt=urn:btih:0BA74AE90EFBC145883611F15B20454C2C1490C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +196,8 @@ LeaderTask - это Планировщик + ПИМ + Календарь + Ад�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ MInstAll v.25.12.2020 By Andreyonohov & Leha342 (ISO) [Ru]
 ```bash
 magnet:?xt=urn:btih:FE7C40E71A749818DBEA2BEA5BF6E2591E00E4F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ The Yashin - Miles Away But Getting Closer (2008) EP [FLAC|Lossless|tracks + .cu
 magnet:?xt=urn:btih:30EC346085EE0050812DA59492DD08224CE1BB67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +276,8 @@ R-Studio Network 9.3 Build 191259 RePack (& portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1C0E8E4EF636891EBA96B5E9F7AA48324C89F6C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +303,8 @@ Daum PotPlayer - бесплатный мультимедийный проигр�
 magnet:?xt=urn:btih:C4E757FCA3E46998FCF4E1989D6B72FB22FF8F85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +328,8 @@ magnet:?xt=urn:btih:C4E757FCA3E46998FCF4E1989D6B72FB22FF8F85
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +355,8 @@ SpeedyFox - небольшая утилита, предназначенная д
 magnet:?xt=urn:btih:5D6AB48D26F616D76CBC2C11E5FD0F2E21701DF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +381,8 @@ PDF-XChange Pro — универсальное решение для работ�
 magnet:?xt=urn:btih:DAA95DB99DC815EA9881709B838216EBFFFD0126
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ magnet:?xt=urn:btih:DAA95DB99DC815EA9881709B838216EBFFFD0126
 ```bash
 magnet:?xt=urn:btih:730FA25A10425309539D54DE2EA484D5188A0432
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +442,8 @@ VA - Lights of Ison (Compiled by DJ Rem) (2013) [MP3|320 кб/с]<Progressive Ps
 magnet:?xt=urn:btih:95A392B6246ACC448D09B6DBC79C8D55090DF76E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +471,8 @@ The Roots - Undun (2011) [FLAC|Lossless|tracks + .cue] <Hip Hop, Conscious>
 magnet:?xt=urn:btih:0D8682AE5C4E8067B30310E2DE8A848C254714D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +497,8 @@ Adguard — это лучший способ избавиться от разд�
 magnet:?xt=urn:btih:4E4FD6B1FF91F305E7087EC4408F5F192CCC8364
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +522,8 @@ Seishun Buta Yarou wa Bunny Girl Senpai no Yume o Minai | Негодник, ко
 ```bash
 magnet:?xt=urn:btih:89673B0FDA9B4AB1F6E6526A2886E05F29626ABC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +554,8 @@ magnet:?xt=urn:btih:89673B0FDA9B4AB1F6E6526A2886E05F29626ABC
 magnet:?xt=urn:btih:7A1EC7F7598450DEC3FF8A96753058EAB54ED0E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +583,8 @@ magnet:?xt=urn:btih:7A1EC7F7598450DEC3FF8A96753058EAB54ED0E6
 magnet:?xt=urn:btih:291B09664C0578EF14149E8B9DAA99F4B13D2B21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +609,8 @@ CopyClip - очень простой и эффективный менеджер 
 ```bash
 magnet:?xt=urn:btih:E00F6E1320F93C2C43A1EFF15774D37323A2CB9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +640,8 @@ magnet:?xt=urn:btih:E00F6E1320F93C2C43A1EFF15774D37323A2CB9C
 magnet:?xt=urn:btih:1AF44CC299C93A5ED05180F45D3D3EBBE473ECD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +668,8 @@ magnet:?xt=urn:btih:1AF44CC299C93A5ED05180F45D3D3EBBE473ECD2
 magnet:?xt=urn:btih:7205A8A8D7FDE618524418AB0234CCB7D1A6B3BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +693,8 @@ BELOFF 2020.12 Medium
 ```bash
 magnet:?xt=urn:btih:1FDBE66A5D34C82DC210A508EFF0DD54D454D571
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -672,6 +722,8 @@ VA - Orbita Solaris - Sacred Sequence (2013) [FLAC|Lossless|WEB-DL]<Psybient, Do
 ```bash
 magnet:?xt=urn:btih:FA90B464E5D96F5A41B37BC6537D45BE2C1DC6A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

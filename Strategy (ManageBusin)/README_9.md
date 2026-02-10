@@ -19,6 +19,8 @@ Corpse Keeper – это сложная боевая стратегия, в ко
 magnet:?xt=urn:btih:6C29AA8162EEE5F5EB5A8FE1E5B9B886DBD56523
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Sheltered 2 расширяет и углубляет идеи оригиналь
 ```bash
 magnet:?xt=urn:btih:A5B462682674D38DC8FB1D7D4B6D29BC33D4B6C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Highrise City совмещает в себе элементы как строи�
 magnet:?xt=urn:btih:78A2B07C90028D2069F83B8C14EE60A3EDF0A4A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Zet Zillions – перед вами классический одно-поль�
 ```bash
 magnet:?xt=urn:btih:C3F65E6C2504722839ED01F18A0821E40BA9EE96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Thriving City: Song предлагает перенестись в прошло�
 magnet:?xt=urn:btih:F27BC690C7743B5B1D10571D39C8D17F51E18221
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Creeper World 4 (2020) [En] (2.5.1) License GOG
 ```bash
 magnet:?xt=urn:btih:32238F47206211C9DA974BD69601B15387FDE7F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Reus 2 выделяется своей уникальностью и увлек�
 magnet:?xt=urn:btih:60D395B5E2706B6BEC8038B86F76FC70FC4255B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ RAILGRADE (2023) [Ru/Multi] (6.1.56.1) License GOG
 ```bash
 magnet:?xt=urn:btih:86C58BB3FCFF0A9A2D482DCCB76F8434755E27CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Galacticare - это ваш шанс спасти галактику, заним
 magnet:?xt=urn:btih:7C0E81D2464DD3F60A1CC2D68ED8DEAE9C6B8FE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Echoes of the Plum Grove - иммерсивный симулятор с упор
 ```bash
 magnet:?xt=urn:btih:F89F1E08C9346D3AD2862C02241C08EA69447C24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Undead Inc. бросает вас в жестокий мир медицинск�
 magnet:?xt=urn:btih:09DCD09364C8C1283869362BC769E699FB899CDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Divinity Chronicles: Journey to the West - это захватывающий к�
 ```bash
 magnet:?xt=urn:btih:C80AA8FBA71A62710B6FD0225F87E5DA74DC8C03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Naheulbeuk's Dungeon Master (2023) [Ru/Multi] (1.8) Scene Tenoke
 magnet:?xt=urn:btih:A74583D018B14A3D63FBEDA2A4BAD67194491A74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Naheulbeuk's Dungeon Master - это уникальная и увлекател�
 ```bash
 magnet:?xt=urn:btih:3E1A512C1A3D70375F00E302769A0E32BF17A043
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Bootleg Steamer – перед вами традиционный рогалай�
 magnet:?xt=urn:btih:933B17FC61FC077CE3CE2694E7BB533CA0CC6DC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Ready, Steady, Ship! - кооперативная игра для дивана, 
 ```bash
 magnet:?xt=urn:btih:CF0A496D58E9D901A3E194DD515C7CA2545B14EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Diluvian Winds - это оригинальный симулятор с элем�
 magnet:?xt=urn:btih:89ECFFD04C5FD3CD7F626495233AB0649BF78572
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Yes, Your Grace (2020) [Ru/Multi] (1.0.20) License GOG
 ```bash
 magnet:?xt=urn:btih:BB25D3969CA5B76F56D521E8459C2C78BD31538B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Sweet Transit – это градостроение, где все во мног
 magnet:?xt=urn:btih:7015EA57C33DB5E6EAD65164543F2A757FC939B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Lakeburg Legacies - это крайне необычный симулятор у
 ```bash
 magnet:?xt=urn:btih:B9E4580670C065508EBF6D48096328BDAB90B02A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Sweet Transit – это градостроение, где все во мног
 magnet:?xt=urn:btih:07440E101CE9B114DBC0136813D36E72A2E78518
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Galactic Ruler Enlightenment – окунитесь с головой в нев�
 ```bash
 magnet:?xt=urn:btih:1B537750E493DDB701671013CC81A542CA467F16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ World Turtles - это увлекательная средневековая г�
 magnet:?xt=urn:btih:8F8CCA07EFFF045C8900D54B89AB6210B2ED022F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Jonesville – это симулятор реальной жизни с обра
 ```bash
 magnet:?xt=urn:btih:F8CB3731FED50F8EF92E3CD60BD6F0471FDDC25F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Farmer's Dynasty – высококачественный гибрид реал�
 magnet:?xt=urn:btih:1BD64BA68E5F4CF9872E2E31703EDDA143C08B1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Open Transport Tycoon Deluxe – это экономический симуля�
 ```bash
 magnet:?xt=urn:btih:433F5A333CBCBAE89E32F79F07736BF7BD51FEB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

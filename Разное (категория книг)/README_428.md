@@ -1,3 +1,29 @@
+###  Публикация: 758483   (629136) от 16.06.2015
+
+Подборка книг | Книги и лекции по вырождению, дегенерации [320 книг] (1486-2014) [DOC, EPUB, FB2, PDF]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629136.jpg" />
+</div>
+
+
+###  Подробнее
+
+В раздаче представлены книги по исследованию естественного биологического процесса вырождения в нашем мире. В частности, социальных групп и отдельных личностей. Проведён детальный анализ в формате АФД (аргументы-факты-доказательства) по теологии (наука о Боге и Дьяволе), антропологии (наука о происхождении и эволюции человека и его рас), судебной психиатрии (изучение (   Читать дальше...   )Формат: DOC, EPUB, FB2, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87F740EAD2693140286AA468486C86338B24F5F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144279   (629365) от 21.06.2017
 
 И. М. Концевич | Оптина Пустынь и ее время (1995) [PDF, DJVU]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:7C93982E931DBA98DAC871389EF9592DC53390A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:7C93982E931DBA98DAC871389EF9592DC53390A8
 magnet:?xt=urn:btih:F2BDAD3F1E32FF9B727430234D86FC87693B0165
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:F2BDAD3F1E32FF9B727430234D86FC87693B0165
 ```bash
 magnet:?xt=urn:btih:8D7566BFAC77DE760DD1D44BB3677E67B6AE5596
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:8D7566BFAC77DE760DD1D44BB3677E67B6AE5596
 magnet:?xt=urn:btih:07F976CDFE87D03E2B4DC65C6D8EBCDCDC70084A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:07F976CDFE87D03E2B4DC65C6D8EBCDCDC70084A
 ```bash
 magnet:?xt=urn:btih:14204266662EAE075DF691FB407A28E56186628B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:14204266662EAE075DF691FB407A28E56186628B
 magnet:?xt=urn:btih:33024BB7FF01D6038FC1B92CF92493A4D528252E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:33024BB7FF01D6038FC1B92CF92493A4D528252E
 ```bash
 magnet:?xt=urn:btih:249E94B2BEFA8067089E7E57ECFF340DF5A83A5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:249E94B2BEFA8067089E7E57ECFF340DF5A83A5E
 magnet:?xt=urn:btih:44783191E849D6EE4072EF9C61DC0C0DEAA829B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ Cамый простой и эффективный способ изменить
 ```bash
 magnet:?xt=urn:btih:E4346F9D4A7FE722C3393343D68996521830DED8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:E4346F9D4A7FE722C3393343D68996521830DED8
 ```bash
 magnet:?xt=urn:btih:4D6AFEE745CCCEC680FD706AA8E35BCBE9AD4C2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:4D6AFEE745CCCEC680FD706AA8E35BCBE9AD4C2D
 magnet:?xt=urn:btih:A1B152188E0D149E0C3C190CB001411D85315483
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:A1B152188E0D149E0C3C190CB001411D85315483
 magnet:?xt=urn:btih:9387794837CA0CFC9A9BAF1B6E9DD8027CBEA653
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:9387794837CA0CFC9A9BAF1B6E9DD8027CBEA653
 ```bash
 magnet:?xt=urn:btih:FAE21C29E7D0103740535E7D6E3AE0FF8C6E03F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:FAE21C29E7D0103740535E7D6E3AE0FF8C6E03F1
 magnet:?xt=urn:btih:0C4E8ABC9611F5AD186A09496387A2936A17F45B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +418,8 @@ magnet:?xt=urn:btih:0C4E8ABC9611F5AD186A09496387A2936A17F45B
 magnet:?xt=urn:btih:4215E0B272F0670FA050BC3D97C7D62F9FBE9C08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:4215E0B272F0670FA050BC3D97C7D62F9FBE9C08
 ```bash
 magnet:?xt=urn:btih:C2D4DAED76F82D09CEF5A608D8A5895E378A616F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:C2D4DAED76F82D09CEF5A608D8A5895E378A616F
 magnet:?xt=urn:btih:D46F0AB5EB01AAAD6013211886AD4517CDC019F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:D46F0AB5EB01AAAD6013211886AD4517CDC019F7
 magnet:?xt=urn:btih:6AA343740F5E1E2B18E641BD62C44E39E9614E9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:6AA343740F5E1E2B18E641BD62C44E39E9614E9A
 ```bash
 magnet:?xt=urn:btih:B93DBC4B96C9BBBD83432106D0BC6E9EFE40D028
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +549,8 @@ magnet:?xt=urn:btih:B93DBC4B96C9BBBD83432106D0BC6E9EFE40D028
 magnet:?xt=urn:btih:D5F5DF5A9675BB69651603AF607094ECA52AACFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:D5F5DF5A9675BB69651603AF607094ECA52AACFE
 magnet:?xt=urn:btih:F0E884247E7ED20C87A090FA26046DB91F817D59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +600,8 @@ magnet:?xt=urn:btih:F0E884247E7ED20C87A090FA26046DB91F817D59
 ```bash
 magnet:?xt=urn:btih:1D46C289F8845809A2EA263B9E32ACA9E858B09D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:1D46C289F8845809A2EA263B9E32ACA9E858B09D
 magnet:?xt=urn:btih:DF1F093B99EE163A30410DEC6517F646D74E3F3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:DF1F093B99EE163A30410DEC6517F646D74E3F3E
 ```bash
 magnet:?xt=urn:btih:527A6E49DDEE68086EE6AD47FD8BBBFBB5729E48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,29 +680,7 @@ magnet:?xt=urn:btih:527A6E49DDEE68086EE6AD47FD8BBBFBB5729E48
 magnet:?xt=urn:btih:787008C51A4F6786B55A9B60ECA8706EE5CBEAE7
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520839   (630750) от 09.07.2012
-
-Борис Родионов | История русской водки от полугара до наших дней [2011] [PDF]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630750.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мифологизированном мире легенда о водке занимает отнюдь не главное, но и далеко не последнее место. Водка - наше проклятье и наше достояние. История водки в народном сознании - в какой-то степени наша история. И мало кому известно, что водка по историческим меркам - напиток не просто молодой - юный.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D662407FAEBEE3198C3CB23CCBF14B225663063
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

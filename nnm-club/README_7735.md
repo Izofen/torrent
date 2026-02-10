@@ -19,6 +19,8 @@ City Legends 3: Ghost of Misty Hill (2023) [En] (1.0) Unofficial [Collector's Ed
 magnet:?xt=urn:btih:F5A4C540DD92187CB57664A88B9E18C248614C75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:F5A4C540DD92187CB57664A88B9E18C248614C75
 ```bash
 magnet:?xt=urn:btih:F0EB081602CC5D5B1D552D06601D4E23565D91C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ EdgeView 3 - это новейший просмотрщик изображени
 magnet:?xt=urn:btih:4574204689381B1E9B4FDA02FC2E6BDACC112ACD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:4574204689381B1E9B4FDA02FC2E6BDACC112ACD
 magnet:?xt=urn:btih:D08FB5E78E2F57D4AD0435A3BF8B130B5CECDB3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:D08FB5E78E2F57D4AD0435A3BF8B130B5CECDB3B
 ```bash
 magnet:?xt=urn:btih:459C380077CDEC75509B2B89CF6B4F40D4857F16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ CD1 - Funky Nothingness - The Album:
 magnet:?xt=urn:btih:C4D355A0A0E647E2B22A55090486453FAEBF69A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:C4D355A0A0E647E2B22A55090486453FAEBF69A9
 ```bash
 magnet:?xt=urn:btih:23C1517518B06A0C76B4DF68FEB4CEE20FBB6FFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Watermedia, Татьяна Ширбидова | Акварельные прак�
 magnet:?xt=urn:btih:0ED0009D9062DF3F32D607FB44FCF556F6445E22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ Cry of the Nile - Invocation (2023) [MP3|320 Kbps] <Death Metal, Blackened>
 magnet:?xt=urn:btih:9B1916A10C124CBE51EA1BDDD074B76A80F63015
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ Vivaldi для Android — это новый приватный веб-брау�
 ```bash
 magnet:?xt=urn:btih:1B1C187D753936A40C536A8E48D5AB464E654496
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ iTubeGo YouTube Downloader Pro for Mac 7.0.1 [Multi]
 magnet:?xt=urn:btih:9C9333EBA7F2DF9EFC5299DE3F3C47835F77869F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ GraphicConverter 11 — полнофункциональный графичес�
 ```bash
 magnet:?xt=urn:btih:633D5E4607FAD4576B46DA83F5A6FD08B8F23247
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:633D5E4607FAD4576B46DA83F5A6FD08B8F23247
 magnet:?xt=urn:btih:461103AC7BB0BC6CEDD05CE702F22DA9AD9F39D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:461103AC7BB0BC6CEDD05CE702F22DA9AD9F39D7
 ```bash
 magnet:?xt=urn:btih:A569055B1B9A137343B97D981B7E06D9E87A221C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ Barbara Dennerlein - Christmas Soul (2015) MPS Records [FLAC|Lossless|tracks + .
 magnet:?xt=urn:btih:07FA47BFFEB873C5D5E5205A34DAF9D4DAEC006C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:07FA47BFFEB873C5D5E5205A34DAF9D4DAEC006C
 ```bash
 magnet:?xt=urn:btih:75B3B657D09C403C69D1E480B9CA1106A6D26062
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ Jessica Williams - Ain't Misbehavin' (1996) 1999, Candid [FLAC|Lossless|tracks +
 magnet:?xt=urn:btih:563C583FA76266AE4B1F73E2DDBB0481748DAA6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ Aathma - Dust from a Dark Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, 
 magnet:?xt=urn:btih:6F9559F00E991DCBEB17BBE133BB6E419FE226EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ Things — приятный и простой ежедневник. Это ид�
 magnet:?xt=urn:btih:1DB031FDDBF876F10A542D564DE33DB2A468B10B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ Uplink: Hacker Elite (2001) [En] (1.6) License GOG
 ```bash
 magnet:?xt=urn:btih:1C1EE8A343B3172B9D3E7F45C1FF7E88992A001A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +564,8 @@ The Black Harvest - Mortuary Dogma (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, D
 magnet:?xt=urn:btih:2BCB34CA401157987F60E893D271F69D124EF608
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +593,8 @@ Tadd Dameron And His Orchestra - The Magic Touch (1962) 1992, Original Jazz Clas
 magnet:?xt=urn:btih:B3D5A7AC281712D0EF9F5F731F132F22E151BE60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ magnet:?xt=urn:btih:B3D5A7AC281712D0EF9F5F731F132F22E151BE60
 ```bash
 magnet:?xt=urn:btih:11F1B155E405BD734F0DF61C38E327DA6A8D978F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +645,8 @@ Vivaldi 6.0.2979.22 include standalone [Multi/Ru]
 magnet:?xt=urn:btih:B322B418FB38125FCB7A86A7CAEDBDBDAB3D579F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +671,8 @@ A Better Finder Rename является лучшим решением для а�
 ```bash
 magnet:?xt=urn:btih:E94681B6A5FA928B08D257D4BA9BAD132D784542
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +700,8 @@ Oh, Sleeper - Bloodied / Unbowed (2019) [FLAC|Lossless|WEB-DL|tracks] <Metalcore
 ```bash
 magnet:?xt=urn:btih:89B6C0CD7AB443AAABA2A0CAE48BE2C87C994BD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

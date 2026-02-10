@@ -21,6 +21,8 @@ Mотоциклы самых популярных мировых произво�
 magnet:?xt=urn:btih:FB27BAF74F09E7478FDC0887B31C6C9AEF4521C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Prototype (2009) [PS3] [EUR] 2.60 [Cobra ODE / E3 ODE PRO ISO] [License] [En/Mul
 ```bash
 magnet:?xt=urn:btih:88793AB3E3B83B9E32854AE2945F51344E40E993
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Earth Defense Force 2025 – долгожданное продолжение с�
 magnet:?xt=urn:btih:76477776E6FF2039F4B6BF0B72EBFA52848549BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Ben 10: Omniverse 2 – новая глава одной из самых поп�
 ```bash
 magnet:?xt=urn:btih:F7523E8E122B2E0F451F1CF0D9F40E949FEFC847
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:F7523E8E122B2E0F451F1CF0D9F40E949FEFC847
 magnet:?xt=urn:btih:E9165D32653C65704AF85DD7585DCF1BBD2E5E78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ Just Dance уже доступна для Xbox 360 Kinect. Продвинуты�
 magnet:?xt=urn:btih:7A7C609F1398120F29A7DF9ED1004088F98FC620
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ Brave [Wii] [PAL] [Multi 5] (2012)
 ```bash
 magnet:?xt=urn:btih:0020224E9CBB6CBE84F74704C9A648385FE931C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:0020224E9CBB6CBE84F74704C9A648385FE931C7
 magnet:?xt=urn:btih:46C70F3369DDD097DBB7E47302668B9F94C12984
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -233,6 +249,8 @@ Beowulf: The Game (2007) [PS3] [EUR] 1.94 [Cobra ODE / E3 ODE PRO ISO] [Unoffici
 ```bash
 magnet:?xt=urn:btih:9B127B5C75A0F75AF70447BE8EA408E5CB26CB69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +278,8 @@ Arcana Heart 3: LOVE MAX!!!!! — это аркада с примесью фай
 magnet:?xt=urn:btih:C315BEB7F36F86A68AF87862FC6ED79F8158CB4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +303,8 @@ Organ Trail – это игра в ретро-стиле на выживание
 ```bash
 magnet:?xt=urn:btih:70B6077B8E8B8F6CA85FD3FF87A32487DB2F011B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +330,8 @@ Skylanders Spyro's Adventure вновь перезагружает серию «
 magnet:?xt=urn:btih:E2BAD97742F4EB35FF09B75F0F0803A3F2621634
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +355,8 @@ Cars 3: Driven to Win (2017) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unof
 ```bash
 magnet:?xt=urn:btih:C1FD3DBF1C42C4D1C728AD46C2EF036929B903FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +382,8 @@ Tekken Tag Tournament — четвёртая игра в серии файтин
 magnet:?xt=urn:btih:534D259604665C63D3EE68E3F7E7801889E98811
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ Blood Drive - гоночный экшен от компании Sidhe Interactiv
 ```bash
 magnet:?xt=urn:btih:C7ADCEEA1913AAB375DA679FEE068ED1E0524E43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +434,8 @@ Turbo: Super Stunt Squad (2013) [PS3] [USA] 4.40 [Cobra ODE / E3 ODE PRO ISO] [U
 magnet:?xt=urn:btih:C8CBF1160AC78A9BBB7FE608CAD4CD774D8FA8DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ Nintendo 3DS ROMPack (2011-2017) [3DS] [ALL] [Decrypted] [Unofficial] [Multi] (0
 ```bash
 magnet:?xt=urn:btih:49BD5A84F87F60C8A1FF119FAB2D1A4D20EFD9B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +487,8 @@ magnet:?xt=urn:btih:49BD5A84F87F60C8A1FF119FAB2D1A4D20EFD9B8
 ```bash
 magnet:?xt=urn:btih:78E72E6E52F79B2B5FB2E604B7AE4BD0569467B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +522,8 @@ magnet:?xt=urn:btih:78E72E6E52F79B2B5FB2E604B7AE4BD0569467B8
 magnet:?xt=urn:btih:8476A38E12D11B5D9B0DDC59B9A97FF0216BAE8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +547,8 @@ Ni no Kuni: Гнев Белой Ведьмы рассказывает о при�
 ```bash
 magnet:?xt=urn:btih:EDF61B9A63806141C37862EB9C191741EFF76DFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +583,8 @@ magnet:?xt=urn:btih:EDF61B9A63806141C37862EB9C191741EFF76DFD
 magnet:?xt=urn:btih:837981D7AAE72F1758EFCC3DF34FFB02944B92E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +608,8 @@ History Legends of War: Patton – игра, посвященная второй
 ```bash
 magnet:?xt=urn:btih:449F9F394DD97B8F126D6EB06C5B9508F7774B66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +635,8 @@ Bionic Commando (2009) [PS3] [EUR] 2.60 [Cobra ODE / E3 ODE PRO ISO] [Unofficial
 magnet:?xt=urn:btih:E399E5361703521E6555D9F42872B1CBFD2334BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +660,8 @@ J-Stars Victory VS+ - это файтинг-кроссовер, приуроче
 ```bash
 magnet:?xt=urn:btih:13862C73237C673222F3A99176615BE1860076B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +687,8 @@ The Amazing Spider-Man 2 / Новый Человек-Паук 2 (2014) [PS3][EUR
 magnet:?xt=urn:btih:DB1FE078BE8B44F93CE2F77F79B114F4A6CF772B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -662,6 +712,8 @@ Warriors: Legends of Troy (2011) [PS3] [EUR] 3.56 [Cobra ODE / E3 ODE PRO ISO] [
 ```bash
 magnet:?xt=urn:btih:EE9F1CA71F46FF09272158953813797138157D84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

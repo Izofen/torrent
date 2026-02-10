@@ -23,6 +23,8 @@ Hell Yeah! Wrath of the Dead Rabbit [En] (RePack/1.0u1/2 DLC) 2012 | R.G. Shift
 magnet:?xt=urn:btih:D7C779AC7280799C07AE040BF0EE38C2ECF62CCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Destroy All Humans! 2 - Reprobed (2022) [Ru/Multi] (1.0.362/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:CF6AEE2A74132C5FCC88AA10B1CA931E78A6067D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Mortal Kombat Trilogy (Kommunity Patch) - файтинг, не являющий�
 magnet:?xt=urn:btih:EB5925F58E47B8E8BD236910240E9DE72348C2D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Shu (2016) [Multi] (1.1.0/u1) License HI2U
 ```bash
 magnet:?xt=urn:btih:FDCA66771B8DDDF4B19A643D5ADF5B6390AF59CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Zombie Driver: Summer of Slaughter / Смертельная гонка: Троп
 magnet:?xt=urn:btih:A47C0C8B7CE6369847FFB495825D3A7158AC4BF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Jim Power in "Mutant Planet" [En] (RePack) 1993
 magnet:?xt=urn:btih:6AD43DC920FC5E6AD4EBA970BEB0018565593FF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Neverending Story 2 [En] (RePack) 1991 | RG games/Pilotus
 ```bash
 magnet:?xt=urn:btih:1B71F2CAB682471C201AE4DA316B41147664CE84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Dream Of The Blood Moon [En] (L) 2012
 magnet:?xt=urn:btih:CD0B4EB023368D4D0DC176BA892B7F35BC1255E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Viktor — насыщенное событиями приключение с г�
 ```bash
 magnet:?xt=urn:btih:16C20D48FFCC7030AB70ACF14FF92C68305BA5BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ Hell Yeah! Wrath of the Dead Rabbit [En] (Repack/1.0.0.0.u.1/2 DLC) 2012 | R.G. 
 magnet:?xt=urn:btih:83173E96362DA0CCBAB2D20C628FD0F9CF53E7A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ Audiosurf [Ru/En] (RePack/1.0u31) 2009 | NSIS
 magnet:?xt=urn:btih:3556BD2A6CBE177B61C0680BA4051108ED4EFDA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ SpongeBob SquarePants: Battle for Bikini Bottom - Rehydrated (2020) [Ru/Multi] (
 ```bash
 magnet:?xt=urn:btih:6FA73857A9367A7F7B406E38990AB37346D5B67E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ Dead Cells — это экшн-платформер в жанре Rogue-lite и 
 magnet:?xt=urn:btih:5AAC739EAA10A3EA0283B27B627C74F5288EB340
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ Konami Collector's Series: Castlevania & Contra (2002) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:592978909D7CE473B97A71A0EEC153999F8CA242
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ Galak-Z: The Dimensional - это приключенческая аркадна�
 magnet:?xt=urn:btih:D01FB9BE6D9E501581B5EE2B205C9CA4493FD531
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ The Purring Quest (2015) [Ru/Multi] (1.8) License DOGE
 ```bash
 magnet:?xt=urn:btih:4D3FDDBC89201152D5A97C6E1A020927B4928D7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ Human: Fall Flat, забавная головоломка, основанная 
 magnet:?xt=urn:btih:5519EA44225A6C0E2D1A47A2A2F89F682CD4A3EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ Starless — это стелс-экшен, где вы в роли одной и
 ```bash
 magnet:?xt=urn:btih:C78B0B55F5A1F6D883F06E0BBD9FEF5190447033
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ Unravel Two (2018) [En] (1.0) Repack R.G. Catalyst
 magnet:?xt=urn:btih:E03AE73CAA53245E51C447EA3E0048BC89437FDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ Rayman Origins (2012) [Ru/Multi] (1.0.32504.1.02) License GOG
 ```bash
 magnet:?xt=urn:btih:AB9DCF17137C736CEBA1F6EEB6D4C6A76068F753
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ WWE 2K Battlegrounds — новая ошеломительная аркада, �
 magnet:?xt=urn:btih:D016403F90F20A8C096EA72ADF85D1C7E4C2042F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ Marvel и Capcom объединились, чтобы организовать �
 magnet:?xt=urn:btih:7946709F60988E0B69F549962E83CBCB21872E93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ NARUTO SHIPPUDEN: Ultimate Ninja STORM 3 Full Burst HD (2017) [Ru/Multi] (1.0.0.
 ```bash
 magnet:?xt=urn:btih:D85F805938641616C416AAAA568758E85FF1FF6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ Rochard [Ru/Multi12] (RePack/1.31) 2011 l Fenixx
 magnet:?xt=urn:btih:71676FF740AAACF4526E4146F23C7D4522D0511D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ Flood of Light (2017) [En/Ch] (1.1.3) Repack Other s
 magnet:?xt=urn:btih:B4437D7314AD9EA862D344DA5D7B5AA2959CD623
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Goggles: World of Vaporia - игра в жанре adventure, в которой 
 ```bash
 magnet:?xt=urn:btih:9808635C5A024E1A02C657B8E1B585BD8E2C690F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

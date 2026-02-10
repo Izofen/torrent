@@ -1,3 +1,29 @@
+###  Публикация: 1375392   (865491) от 14.04.2020
+
+VA - Spring Pop: Eurodance Ultra Mix (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_865491.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ashley O - On A RollЖанр: Pop, DanceПродолжительность: 07:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36FDDCBEDB3DB7731617B81EF18C4B5DA54F8BEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375375   (865500) от 14.04.2020
 
 VA - Beatport Trance: Electro Sound Pack #55 (2020) [MP3|320 Kbps] <Trance>
@@ -21,6 +47,8 @@ VA - Beatport Trance: Electro Sound Pack #55 (2020) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:B4457668E8A0E5FB08E82FD2A8775D6FCA3EAD30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +77,8 @@ VA - Beatport Techno: Electro Sound Pack #56 (2020) [MP3|320 Kbps] <Techno>
 magnet:?xt=urn:btih:019C1D838BE21BF5F5F5F8F07897BD2C2B8A69F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +105,8 @@ VA - Rock Concept (2020) [MP3|320 Kbps] <Rock, Hard Rock, Alternative>
 ```bash
 magnet:?xt=urn:btih:13005982A3F51CDD11B4895A21DA68FAF3002DD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +135,8 @@ VA - Easy Listening: Soul Heaven (2020) [MP3|320 Kbps] <Easy Listening, Jazz>
 magnet:?xt=urn:btih:BECBC3B504AFC2628F0BC3FF587A679651ADB5BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +163,8 @@ VA - Go Your Way: City R&B Lyric (2020) [MP3|320 Kbps] <R&B, Soul>
 ```bash
 magnet:?xt=urn:btih:A7AFA899A5934A39EFBEC3F3D9E1BB8BF43D99E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +193,8 @@ VA - Евро Хиты Топ 40 (Февраль 2017)[MP3|261-320 Kbps] <Club, 
 magnet:?xt=urn:btih:E4570F62FFF946D2626C011890EA3A15BA0117A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +221,8 @@ VA - Полный отрыв. Сборник зажигательных хито
 ```bash
 magnet:?xt=urn:btih:C367CD6F822A73B0920426B158E9BA2075B22ADE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +251,8 @@ VA - Relax to House Vol. 6 (House Edition) (2017) [MP3|320 Kbps] <House, Bass Ho
 magnet:?xt=urn:btih:0D99171F50CF5979AF0695A455461AF9A3BF5413
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +279,8 @@ VA - Зайцев.нет Лучшие новинки Сентября (2021) [MP
 ```bash
 magnet:?xt=urn:btih:F04FB37167C0459C13C847BCB5DDB88372798EA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +309,8 @@ VA - Chilltrap Vol.9 [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Chilltrap>
 magnet:?xt=urn:btih:2DC8643B367E562D12E5D4D7636FDF854D473CA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +337,8 @@ VA - Козырная песня (2017) [MP3|256 Kbps] <Шансон>
 ```bash
 magnet:?xt=urn:btih:F5A98A76A40DC58E2BA183E12DE3180785748CA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +367,8 @@ VA - Танцевальная зима. Выпуск № 10 (2017) [MP3|256 Kbps
 magnet:?xt=urn:btih:4155DD51E7095037542E41F392BE6DAFB0BC68A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +395,8 @@ VA - New Music N2 (2016) [MP3|320 кб/с] <Pop>
 ```bash
 magnet:?xt=urn:btih:97A34302E19D5D3A03F5E14B4C20E9FA0A9A1478
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +425,8 @@ VA - My Favourite Hits of 1972 (8CD) (2015) [MP3|320 кб/с]<Easy Listening, Ch
 magnet:?xt=urn:btih:B80CA126F606EFFD018E9448D10FFAC25A8F375E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +453,8 @@ VA - Ресторан Кураж на радио Шансон выпуск № 5
 ```bash
 magnet:?xt=urn:btih:185C05402098A53AD1D6C174A04A6907116E63EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +483,8 @@ VA - I Love Music! - Experimental Edition Vol. 10 (2017) [MP3|320 Kbps] <Electro
 magnet:?xt=urn:btih:384A5BE220B3C5FDF7CE213F5DEC81C38E107B9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +511,8 @@ VA - Лучший русский шансон. Выпуск № 2 (2017) [MP3|25
 ```bash
 magnet:?xt=urn:btih:C69CE20822C7EDFEEAB4DFD20C73D6DB05459876
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +541,8 @@ VA - Cryptic House 4 [Compiled by Zebyte] (2017) [MP3|256-320 Kbps] <Deep House,
 magnet:?xt=urn:btih:BC0F1D0011AFDA248FE727AB178EF132628F9B57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +569,8 @@ VA - European Gallery EDM (2016) [MP3|320 кб/с] <Club, Dance, Electro>
 ```bash
 magnet:?xt=urn:btih:5B21E6B8B8C68C7EE9CA5384D4DAD01BD73504B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +605,8 @@ VA - Хит-Парад Рок Звезд (2011) [MP3|256 kbps]<Русский р
 magnet:?xt=urn:btih:2AA552372D3678A8538397C88B706F884B35924F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +633,8 @@ VA - Great Artists of My Heart Vol. 01 (2020) [MP3|320 кб/с]<Symphonic Gothic
 ```bash
 magnet:?xt=urn:btih:64D39C77977B6AC9BB4843F2FBEAE0FE0CFC4F5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +663,8 @@ VA - Best Metal Of All Time (2020) [MP3|320 Kbps] <Rock, Metal, Thrash-Metal, In
 magnet:?xt=urn:btih:9344C86F27BF002C3A33881DCAC72EC3691A7F9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +691,8 @@ VA - Popular Hits Of The 60s (2020) [MP3|320 Kbps] <Pop, Retro>
 ```bash
 magnet:?xt=urn:btih:21000C9052251E8C189F5773963D198FC9831907
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +721,8 @@ VA - Inspiration: Vocal House Party (2020) [MP3|320 Kbps] <Vocal House>
 magnet:?xt=urn:btih:908132E107C89A183D870A5EF43EA98E9C32C0BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -676,32 +750,7 @@ VA - Metal Supreme (2020) [MP3|320 Kbps] <Rock, Metal, Thrash-Metal>
 magnet:?xt=urn:btih:6D01D3C51B2E27652CC593D44CF5F83A8754D033
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375117   (867116) от 13.04.2020
-
-VA - Beatport Deep House: Electro Sound Pack #58 (2020) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867116.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Godfathers - Roper St
-002. Modular Bros. - Jailtime
-003. Anton Ishutin - Release The Energy
-004. Djscifi - Trap Inside Your Love(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 11:24:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:058785C28F316AF76AA52D0A5DAE1B86249C0253
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

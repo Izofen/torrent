@@ -22,6 +22,8 @@ Sean Shibe - Profesión (2023) [FLAC 24/192|Lossless|WEB-DL|tracks] <Classical>
 magnet:?xt=urn:btih:760A55226E3327F17C12A90ADB016A0E2639B710
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Giant Lungs - Giant Lungs (2023) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Stoner R
 ```bash
 magnet:?xt=urn:btih:D083E2BBEBB33D760B9888D4F7D05E60038B75AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:D083E2BBEBB33D760B9888D4F7D05E60038B75AF
 magnet:?xt=urn:btih:A07BF373F8AA23730936920D702296EEAA7A4585
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Daft Punk - Random Access Memories (2023) Drumless Edition [FLAC 24/88.2|Lossles
 ```bash
 magnet:?xt=urn:btih:F32FCBD787DF9C4FF8E9791AE40D0B4A49984FD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Santana - Caravanserai (1972) Reissue, Remastered, 2022, Sony Records Int'l  [DS
 magnet:?xt=urn:btih:EE482B77F772BC27AAFAA5443EE5E9B59AB7C53B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ B1. The Road To Babylon (6:53)(   Читать дальше...   )Произво
 ```bash
 magnet:?xt=urn:btih:1849946DB1CEAD15E746C8041CD140C24A4F6181
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:1849946DB1CEAD15E746C8041CD140C24A4F6181
 magnet:?xt=urn:btih:E1A8F531EF97CB518707B3E7245E308CBFD3F4EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Carach Angren — нидерландская симфо-блэк-метал-гр
 ```bash
 magnet:?xt=urn:btih:58B350C19B51CD0A1C56FB5BD10DB67E2684986D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ A4. Veins (3:57)(   Читать дальше...   )Жанр: Hard RockПрод�
 magnet:?xt=urn:btih:6F3CE59B9AFAE8E5F77E1AC279E587E1EC22CE97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Apocalyptica - Live In Helsinki St. John's Church (2023) [FLAC 24/48|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:96ADF0786A33D6E2D6FE3CD1351C368438587D9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Foreigner - Inside Information (1987) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
 magnet:?xt=urn:btih:822ECB3340E14E6102E47DF3AA1A5400E5F4E39C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Boney-M - Christmas Album (1981) [FLAC 2.0|24/192|tracks|Vinyl-Rip] <Disco> [upc
 ```bash
 magnet:?xt=urn:btih:42CBEF722B966FB86EDD8764BA3E04922802AD39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ DGM - Life (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
 magnet:?xt=urn:btih:562F19517C0415579EE462BFC053507DA4044E94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ B2. Forest of October (13:03)(   Читать дальше...   )Жанр: Progr
 ```bash
 magnet:?xt=urn:btih:A45B9C244FF72A4FA6B123411546ABA46B313364
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Pink Floyd - Live at the Rainbow Theatre, London 1972-02-19 (1972) [FLAC 2.0|44/
 magnet:?xt=urn:btih:2E1D069B0801E0090E629DF13E63E6FA20910F25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Lord Of The Lost - Blood & Glitter (2022)  [FLAC 2.0|44/24|tracks|WEB-DL] <Dark 
 ```bash
 magnet:?xt=urn:btih:4C3A8ED360FD18A91A59713BE22E18F5370E0D51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Feuerschwanz - Todsunden (2022) [FLAC 2.0|44/24|tracks|WEB-DL]  <Folk-metal, Med
 magnet:?xt=urn:btih:DBF1F2E165861465B8872AC4B79FE5E3E47F589E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Mylene Farmer - Interstellaires (2015) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Synth
 ```bash
 magnet:?xt=urn:btih:CF2C047B00BD522C8EEB1D6CC7EE29E93D48E48F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +550,8 @@ Stars On 45' - Звёзды дискотек (2LP) (1983, 1984) [FLAC 2.0 24/96|
 magnet:?xt=urn:btih:728CC25AEF93BBB5964D3C2875ACBAA18C051813
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +585,8 @@ Modern Talking - Поговорим о любви, Ready For Romance (1986, 1987
 magnet:?xt=urn:btih:0159D5A7AE17443E0DAE7B4D42D238F2A89D1A7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +614,8 @@ A4. Sole Survivor (4:07)(   Читать дальше...   )Жанр: Hard Rock�
 magnet:?xt=urn:btih:D2E6C99E010067B0C8009E48F499565050784F83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +640,8 @@ VA - Архив Популярной Музыки 1-12 (1988-1990) Unofficial Re
 ```bash
 magnet:?xt=urn:btih:EF351CAD6C7E36CF394AD7107BFF46C27D755A3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +670,8 @@ VA - The Absolute Sound 2011 (2011) [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Jazz, Po
 magnet:?xt=urn:btih:2C51D2DCE6E0A597AB442715B6212E3866E3661A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +698,8 @@ A.4 Bite My Head Off(   Читать дальше...   )Жанр: Classic RockП
 ```bash
 magnet:?xt=urn:btih:A0C9408988DFD6ADA33080DD4AF83A832037E878
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -680,6 +728,8 @@ A4 - Я все еще люблю. I Love Her Still. (Пи Ви Крэйтон)( 
 magnet:?xt=urn:btih:667B6BE0C921CB732F2219A6EBE948D81DA623B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -706,6 +756,8 @@ Psycho Attack Over Europe! (3CD set) (1991-1994) hand made [restored, declipped]
 ```bash
 magnet:?xt=urn:btih:4CFE00208ECB83C0A81BD6E48D9A7608A1DE8267
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

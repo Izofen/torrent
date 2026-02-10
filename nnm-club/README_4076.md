@@ -22,6 +22,8 @@ Misuria - Saint Thomas Stories (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:5AA736FC3242A9CC8C994C0E63F31D390AC51D22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:5AA736FC3242A9CC8C994C0E63F31D390AC51D22
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:5AA736FC3242A9CC8C994C0E63F31D390AC51D22
 magnet:?xt=urn:btih:6A1AF8E65C35267F8F2F5E6CF1E584F66B3B42E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Asya-Design, Александра Бавыкина | Курс по 3D визуа
 ```bash
 magnet:?xt=urn:btih:8201A08CEBCF49AE9DEC0F98E1FFF8BC072CB406
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:8201A08CEBCF49AE9DEC0F98E1FFF8BC072CB406
 magnet:?xt=urn:btih:C65120F685C9D92CAEAC57CE9FE992D06A5B08EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Mötley Crüe - From The Beginning (2025) [FLAC|Lossless|WEB-DL|tracks] <Glam Me
 magnet:?xt=urn:btih:E9FA4BC69D0FF667C454F3872EF2E327AEA58948
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:E9FA4BC69D0FF667C454F3872EF2E327AEA58948
 ```bash
 magnet:?xt=urn:btih:933B82BBD80309111B8B6D484DCBEB79897ACCCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:933B82BBD80309111B8B6D484DCBEB79897ACCCF
 magnet:?xt=urn:btih:628F402BEF69E69628E5B585B4DBE0368E035156
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ Photomath v8.46.0 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:68727B9CF21AE3CB8B3EEA67749101D13EAF8719
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ PicWish — фоторедактор с искусственным (   Чита
 magnet:?xt=urn:btih:61B493DD8119A0F1739121EF2DB4BB395AB6ABE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:61B493DD8119A0F1739121EF2DB4BB395AB6ABE4
 ```bash
 magnet:?xt=urn:btih:2C5DA2E2117F08DCA6783B5B9A9A957B97819DFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:2C5DA2E2117F08DCA6783B5B9A9A957B97819DFF
 magnet:?xt=urn:btih:87436A39EA3600F0A8B84934A34DF32F53C9A2D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ NG. Магия сокровищ Диснея / Magic of the Disney Treasure (202
 ```bash
 magnet:?xt=urn:btih:92DB704ECA349379626A3CE547905688A0521A09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:92DB704ECA349379626A3CE547905688A0521A09
 magnet:?xt=urn:btih:F8CA686BC7110C173D412BB73B0EF189EA8922B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:F8CA686BC7110C173D412BB73B0EF189EA8922B4
 ```bash
 magnet:?xt=urn:btih:3BD8A0CC565B63AAAA0DB965B401D40B040B1493
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:3BD8A0CC565B63AAAA0DB965B401D40B040B1493
 magnet:?xt=urn:btih:B96255E083B7D3C01B0709BF86E4DDC9326CE34C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:B96255E083B7D3C01B0709BF86E4DDC9326CE34C
 ```bash
 magnet:?xt=urn:btih:8E5111E6D7AB0CF7EAFE7E6ED683774F3F9C4D7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:8E5111E6D7AB0CF7EAFE7E6ED683774F3F9C4D7F
 magnet:?xt=urn:btih:4D9D88497985F09EA9359019EA7C2DD246F3F060
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:4D9D88497985F09EA9359019EA7C2DD246F3F060
 ```bash
 magnet:?xt=urn:btih:2905B68A604733D5057F25269576E5A8D0F5AFA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:2905B68A604733D5057F25269576E5A8D0F5AFA3
 magnet:?xt=urn:btih:2A115C0CB4CC3C958D17263943E2E8251D705B7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:2A115C0CB4CC3C958D17263943E2E8251D705B7A
 ```bash
 magnet:?xt=urn:btih:E79FB079D849DEC23B08BC5C1B4CDBFC276FBCCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:E79FB079D849DEC23B08BC5C1B4CDBFC276FBCCE
 magnet:?xt=urn:btih:8C46FC720D9E64DA6ABFA358CEA20966A6CEA197
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:8C46FC720D9E64DA6ABFA358CEA20966A6CEA197
 magnet:?xt=urn:btih:D9660B867817CF8EE2ED169A2D142FBB35B9E1EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:D9660B867817CF8EE2ED169A2D142FBB35B9E1EF
 ```bash
 magnet:?xt=urn:btih:58089AB478EEAAF1A99F0124CF8E4533D49A4B76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ Testament - Para Bellum (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Metal
 magnet:?xt=urn:btih:5BFC01A77F466448133FBB75D68278815E002262
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:5BFC01A77F466448133FBB75D68278815E002262
 ```bash
 magnet:?xt=urn:btih:2799BA8DABEF8EA76A4E803E39804ECE46400BF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

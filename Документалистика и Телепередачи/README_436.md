@@ -1,3 +1,30 @@
+###  Публикация: 1039406   (595804) от 01.08.2016
+
+Цари океанов (2016) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Флот
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595804.jpg" />
+</div>
+
+
+###  Подробнее
+
+К дню Военно-морского флота. Этот фильм о грандиозном военном проекте России - о строительстве подводных лодок четвертого поколения проекта 955 «Борей» и 885 «Ясень». Впервые конструкторы и строители самого грозного оружия России приоткроют военные тайны и расскажут о том, как создаются подводные лодки в конструкторских бюро и на заводе «Севмаш».
+Сконструировать (   Читать дальше...   )Телекомпания: РоссияЖанр: Документальный, флот, историяРежиссер: Олег КравченкоПродолжительность: 00:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CA7E55D1600034D43FF9D50197EE67067B9B87B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 526970   (595832) от 25.07.2012
 
 Адаптация. Покорение Планеты Земля / Adaptation. Colonising Planet Earth (1999) SATRip
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:4CFD95FCC9D32F8CCB959D082BA97EA1C5347C44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:4CFD95FCC9D32F8CCB959D082BA97EA1C5347C44
 magnet:?xt=urn:btih:0DFF173779502E9BA3A5236BFC69D7468B518E01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +97,8 @@ magnet:?xt=urn:btih:0DFF173779502E9BA3A5236BFC69D7468B518E01
 ```bash
 magnet:?xt=urn:btih:23C5D6EEF1A1B31683C6AAC6E08AA5F9D24F4556
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +124,8 @@ magnet:?xt=urn:btih:23C5D6EEF1A1B31683C6AAC6E08AA5F9D24F4556
 magnet:?xt=urn:btih:94AC83A06611B3DFFA93F4005830613D0B842657
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +150,8 @@ magnet:?xt=urn:btih:94AC83A06611B3DFFA93F4005830613D0B842657
 magnet:?xt=urn:btih:D2974F7AD3022AE6DEDE4BD10EE31D3C915E88F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +175,8 @@ magnet:?xt=urn:btih:D2974F7AD3022AE6DEDE4BD10EE31D3C915E88F4
 ```bash
 magnet:?xt=urn:btih:CC9C675CA882DD7480F9C286CD7DB4353A4A5518
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +203,8 @@ magnet:?xt=urn:btih:CC9C675CA882DD7480F9C286CD7DB4353A4A5518
 magnet:?xt=urn:btih:5D76D5494596F1795A228D512B7BDB9C2AFBE532
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +230,8 @@ magnet:?xt=urn:btih:5D76D5494596F1795A228D512B7BDB9C2AFBE532
 magnet:?xt=urn:btih:D750B517139856EEE1CBE14B0AA147DF74FD5DF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +255,8 @@ magnet:?xt=urn:btih:D750B517139856EEE1CBE14B0AA147DF74FD5DF4
 ```bash
 magnet:?xt=urn:btih:C266FBE325D30F4BB0B3AC563DD268DB0B29F068
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +282,8 @@ magnet:?xt=urn:btih:C266FBE325D30F4BB0B3AC563DD268DB0B29F068
 magnet:?xt=urn:btih:2A327780FFE9233A4B1B9730B02BF3B63C06B8C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +307,8 @@ magnet:?xt=urn:btih:2A327780FFE9233A4B1B9730B02BF3B63C06B8C8
 ```bash
 magnet:?xt=urn:btih:67FCF14525628B5206908CCD37F3ABA6201C968E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +334,8 @@ magnet:?xt=urn:btih:67FCF14525628B5206908CCD37F3ABA6201C968E
 magnet:?xt=urn:btih:4BB485DF36F088478E8658465F113EDF5607B4D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +359,8 @@ magnet:?xt=urn:btih:4BB485DF36F088478E8658465F113EDF5607B4D0
 ```bash
 magnet:?xt=urn:btih:CAC0DB5A668DD4FC13A34BE0DEAD879EF57A467F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +387,8 @@ magnet:?xt=urn:btih:CAC0DB5A668DD4FC13A34BE0DEAD879EF57A467F
 magnet:?xt=urn:btih:003A76F1CC9F6BC7D9C96516B649B76DC660CCE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +414,8 @@ magnet:?xt=urn:btih:003A76F1CC9F6BC7D9C96516B649B76DC660CCE5
 magnet:?xt=urn:btih:A885F742EE26FE1BF4F6861A2B3AFFBE8D4A71D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +440,8 @@ Playboy. Красотки в постели / Playmates In Bed (2002) SATRip
 magnet:?xt=urn:btih:6B7E479E24494D44FAFAF57B1A31163059CA2776
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +465,8 @@ magnet:?xt=urn:btih:6B7E479E24494D44FAFAF57B1A31163059CA2776
 ```bash
 magnet:?xt=urn:btih:58A67E20C584EA238041B5559E75878352BB490A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +494,8 @@ magnet:?xt=urn:btih:58A67E20C584EA238041B5559E75878352BB490A
 magnet:?xt=urn:btih:784F80D989F03A22511DB6B1F4F98442A8528CC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +519,8 @@ magnet:?xt=urn:btih:784F80D989F03A22511DB6B1F4F98442A8528CC9
 ```bash
 magnet:?xt=urn:btih:F0D4E9A1916E2D4E937710EAF91D92EA78829E2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +546,8 @@ magnet:?xt=urn:btih:F0D4E9A1916E2D4E937710EAF91D92EA78829E2A
 magnet:?xt=urn:btih:15064B145CDFCB6BB74975C27D7ED3D2DB7C8BC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +572,8 @@ magnet:?xt=urn:btih:15064B145CDFCB6BB74975C27D7ED3D2DB7C8BC5
 magnet:?xt=urn:btih:E831EEFD73A950AC7806732DE836F3E90E6AE358
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +597,8 @@ magnet:?xt=urn:btih:E831EEFD73A950AC7806732DE836F3E90E6AE358
 ```bash
 magnet:?xt=urn:btih:F2474A6130E1E7F6FD196D87CFF5E63B606E2392
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +627,8 @@ magnet:?xt=urn:btih:F2474A6130E1E7F6FD196D87CFF5E63B606E2392
 magnet:?xt=urn:btih:53E3843FC1FEF65A516626AE520B7C1640485FBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +654,8 @@ magnet:?xt=urn:btih:53E3843FC1FEF65A516626AE520B7C1640485FBD
 magnet:?xt=urn:btih:5A929E0F478D5DEB509FA95E9C5F07394A1E6F33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,33 +680,7 @@ magnet:?xt=urn:btih:5A929E0F478D5DEB509FA95E9C5F07394A1E6F33
 magnet:?xt=urn:btih:EC64D38E60D66F8083F1C333154773DBB14F18D8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526738   (597146) от 24.07.2012
-
-ВИА от рассвета до заката (2 серии) SATRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597146.jpg" />
-</div>
-
-
-###  Подробнее
-
-В фильме бывшие участники ВИА вспомнают всю историю становления Вокально Инструментальнх Ансаблей бывшего СССР.
-Так же в фильме есть фрагменты выступлений ВИА Авангард 66, Сокол,
-Аракс, Скифы, Песняры, Поющие гитары,
-Дружба, Голубые гитары, Цветы, Веселые ребята,
-Самоцветы и многих других групп.Жанр: ДокументальныйПродолжительность: 01:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C503D07995D2C3791F366A5F2D0478E89E748960
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

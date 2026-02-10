@@ -19,6 +19,8 @@ Sylvio: Black Waters представляет собой необычный ми
 magnet:?xt=urn:btih:39AB623545994D0EE9382C0349E1221723A2DABA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ LunarLux - это захватывающая научно-фантастичес
 ```bash
 magnet:?xt=urn:btih:AAD93B1FA9E1ECC009C42CDC1326B0F3FD00DE6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Age of Empires IV (4) (2021) [Ru/Multi] (11.0.782/dlc) Scene Rune [Anniversary E
 magnet:?xt=urn:btih:5784E01B2720E11106CE86C205029C77165CA541
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Abathor бросает геймеров в самое сердце павшей 
 ```bash
 magnet:?xt=urn:btih:07DB6AD27C981796FA07B2C3130C72AF7E9FA4B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Night of the Dead - выживастик от третьего лица в от�
 magnet:?xt=urn:btih:C4E7128A31A909293793F824BF84B55B99F18051
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Truck & Logistics Simulator (2023) [Ru/Multi] (1.02) Scene Rune
 ```bash
 magnet:?xt=urn:btih:A50371742BAAB8EC54B4112BEED8743C1BFE2DE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ PATHOGEN X - это не совсем обычная видеоигра. Заб�
 magnet:?xt=urn:btih:FB2459A8C60A8A41AD10F241E8315EF7E38117F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Age of Empires IV (4) (2021) [Ru/Multi] (11.0.0782.0/dlc) Repack Decepticon [Ann
 ```bash
 magnet:?xt=urn:btih:DC2EC1F5A0AB746F1D05BA125B83D555A4095890
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Chernobylite (2019) [Ru/Multi] (49522.s04_black_smoke/dlc) Repack Decepticon [En
 magnet:?xt=urn:btih:B44A5DFE49AC5A9EBA1AC1655947047F97B84BF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:B44A5DFE49AC5A9EBA1AC1655947047F97B84BF4
 ```bash
 magnet:?xt=urn:btih:B3CD78909A67A6E106EC849F36A256EEADCE1D26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Get To The Top (2024) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:E4659C83CB3C72BBD5934E563D66A775E4883806
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Thalassa: Edge of the Abyss погружает игроков в напряже�
 ```bash
 magnet:?xt=urn:btih:8CCA9034F8785D00EE6AD380EC67C3376BF24F85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Apartment No 129 (2024) [Ru/Multi] (Build 15267401) Repack Other s
 magnet:?xt=urn:btih:896CFED4C1D1780B5AA7235BB5B235D2850C54D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ House Flipper 2 (2023) [Ru/Multi] (20240719/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:ACCF0A685E7112761C2C2EB18D1A5A123259B69F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Setteeh родом из ледяного сердца Якутии. Адвенч
 magnet:?xt=urn:btih:53FA6A2C1936BAEFF200C44BC44508FB4B2200A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Blockbuster Inc. погружает вас в самое сердце Голли
 ```bash
 magnet:?xt=urn:btih:6912FD557CCCB7BECC352D1AAF976831165C8BF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Subnautica: Below Zero (2019) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:80E28A85B04BA712C65B72AC5B66820AB829D75F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ USC: Counterforce (2023) [Multi] (1.00.0a) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A202665C4A7C01CADF65024EBB29161229313C7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Citizen Sleeper – это яркое по внешнему виду и мрач
 magnet:?xt=urn:btih:483C85779B27414904BD25197D9FE953FAD5E6D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Minds Beneath Us - приключенческая игра в стиле киб�
 ```bash
 magnet:?xt=urn:btih:EDF384A03055A7BDACF0BF02762B440E75372097
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Neon White - приключенческий платформер от перво
 magnet:?xt=urn:btih:14506118BD3EE4C3D45F1F82EABD17249C7C5DC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Kingdom Shell - двухмерный экшен, выполненный в ду�
 ```bash
 magnet:?xt=urn:btih:C006E2E9C7D0413D1637815C7E8BB78639BC85C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Deadlink – научно-фантастический шутер с видом 
 magnet:?xt=urn:btih:CE0C9510244C3368F4A3E8724F645CE2825713A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Closer the Distance (2024) [Multi] (1.0) Scene SKIDROW
 ```bash
 magnet:?xt=urn:btih:BC76B1B4E508A3E096F3CE50EDE64558873D0B9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ PIGROMANCE (2022) [Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:17371BFF8DA93699668249429B91ADDF77D299AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ My Lovely Wife - приключенческая игра, события кот�
 ```bash
 magnet:?xt=urn:btih:538645422DB2FD0814608707FB6B04D46244DF20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

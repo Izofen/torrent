@@ -1,3 +1,30 @@
+###  Публикация: 1383784   (807849) от 17.05.2020
+
+Ирина Михайлова (сост.) | Блюда из мультиварки. Большая энциклопедия рецептов (2013) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Согласитесь, что любая хозяйка хоть раз, да жалела о потере времени на приготовление пищи для себя и своей семьи. Разве ежедневные кухонные хлопоты делают нас более счастливыми и успешными? Мечта о том, чтобы готовить вкусно, не простаивая часами у плиты, казалась неосуществимой…
+Грезы стали явью, когда появилась мультиварка – многофункциональное устройство нового (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3674A2F256D6585128DF15AB9D66680645B38730
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198391   (807869) от 11.01.2018
 
 Эрик Вейнер | Как я стал знаменитым, худым, богатым, счастливым собой (2018) [FB2]
@@ -20,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:481D0251C060143EBDED297ED0DA0CA9060888A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +74,8 @@ magnet:?xt=urn:btih:481D0251C060143EBDED297ED0DA0CA9060888A8
 magnet:?xt=urn:btih:FEDB6747AFF6998E8FB1B6DA9FB261D1D6E5C5F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +99,8 @@ magnet:?xt=urn:btih:FEDB6747AFF6998E8FB1B6DA9FB261D1D6E5C5F9
 ```bash
 magnet:?xt=urn:btih:98A84470FCEC68A985B626082EC7EE3F29018133
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +126,8 @@ magnet:?xt=urn:btih:98A84470FCEC68A985B626082EC7EE3F29018133
 magnet:?xt=urn:btih:326563B5DD2D43FC089EF731983A5AEE5DBD394F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +151,8 @@ magnet:?xt=urn:btih:326563B5DD2D43FC089EF731983A5AEE5DBD394F
 ```bash
 magnet:?xt=urn:btih:3CDC61AD9E30FD97FB4D4C5C636850774BA86E09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +178,8 @@ magnet:?xt=urn:btih:3CDC61AD9E30FD97FB4D4C5C636850774BA86E09
 magnet:?xt=urn:btih:7DFF5F33BA02ADE66B09C55AD993E19025FF9B91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +203,8 @@ magnet:?xt=urn:btih:7DFF5F33BA02ADE66B09C55AD993E19025FF9B91
 ```bash
 magnet:?xt=urn:btih:638F6605D4154D366B997649487491C6E8972AA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +230,8 @@ magnet:?xt=urn:btih:638F6605D4154D366B997649487491C6E8972AA8
 magnet:?xt=urn:btih:CF4DF4000C838089E9F14E4EBC8972D3CC9F8697
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +256,8 @@ magnet:?xt=urn:btih:CF4DF4000C838089E9F14E4EBC8972D3CC9F8697
 magnet:?xt=urn:btih:7AFB7FFFA0EB4126B02E0944158129919DC2B3E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +281,8 @@ magnet:?xt=urn:btih:7AFB7FFFA0EB4126B02E0944158129919DC2B3E2
 ```bash
 magnet:?xt=urn:btih:5D63B77FFA9581224FE015C4724F83FC40B87BD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +309,8 @@ magnet:?xt=urn:btih:5D63B77FFA9581224FE015C4724F83FC40B87BD7
 magnet:?xt=urn:btih:0EB0EC84989F4B4F7C31C1E84120C5E8CDABEE08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +334,8 @@ magnet:?xt=urn:btih:0EB0EC84989F4B4F7C31C1E84120C5E8CDABEE08
 ```bash
 magnet:?xt=urn:btih:56EFACC4C2671097C081464B886EC167D5BD3628
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +361,8 @@ magnet:?xt=urn:btih:56EFACC4C2671097C081464B886EC167D5BD3628
 magnet:?xt=urn:btih:4E8FE10156D52A5C12353B86846E8FE7F867C092
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +386,8 @@ magnet:?xt=urn:btih:4E8FE10156D52A5C12353B86846E8FE7F867C092
 ```bash
 magnet:?xt=urn:btih:CC26E9D1FE53C22D20551FE35C0E8CD4D1B3F210
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +413,8 @@ magnet:?xt=urn:btih:CC26E9D1FE53C22D20551FE35C0E8CD4D1B3F210
 magnet:?xt=urn:btih:9E734DC9E07B34E556AD8EAE35E469A7C46DA06D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +439,8 @@ magnet:?xt=urn:btih:9E734DC9E07B34E556AD8EAE35E469A7C46DA06D
 magnet:?xt=urn:btih:B40D0E392D445E5A8E49C3D4F3A7FBA970674A7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +464,8 @@ molitvoslov (изд.) | Полный православный молитвосл
 ```bash
 magnet:?xt=urn:btih:8D93CB04571418DCC7DF3258A2C7C04743E932C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +493,8 @@ magnet:?xt=urn:btih:8D93CB04571418DCC7DF3258A2C7C04743E932C3
 magnet:?xt=urn:btih:477221C959659F28E9263BD503AD29B90D0BB2E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +518,8 @@ magnet:?xt=urn:btih:477221C959659F28E9263BD503AD29B90D0BB2E2
 ```bash
 magnet:?xt=urn:btih:7F33DFC73B2FEF4205E1370038180060312A1B1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +545,8 @@ magnet:?xt=urn:btih:7F33DFC73B2FEF4205E1370038180060312A1B1A
 magnet:?xt=urn:btih:4875CAFEB776BF47CA82A6FE3677E8766EC14D72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +570,8 @@ magnet:?xt=urn:btih:4875CAFEB776BF47CA82A6FE3677E8766EC14D72
 ```bash
 magnet:?xt=urn:btih:91745A4C258DDEF2770F52CF93AA2A9DA1598746
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +599,8 @@ magnet:?xt=urn:btih:91745A4C258DDEF2770F52CF93AA2A9DA1598746
 magnet:?xt=urn:btih:9715A251462CDE6196A7423D5C9ADB1DC26BBA92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +626,8 @@ magnet:?xt=urn:btih:9715A251462CDE6196A7423D5C9ADB1DC26BBA92
 ```bash
 magnet:?xt=urn:btih:65EF55EF66A3091EA298F5860C6F0F6DDD42C686
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +656,8 @@ magnet:?xt=urn:btih:65EF55EF66A3091EA298F5860C6F0F6DDD42C686
 magnet:?xt=urn:btih:19310798A034AADAD4F2B715B4DAA0A67A3A4444
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,30 +685,7 @@ magnet:?xt=urn:btih:19310798A034AADAD4F2B715B4DAA0A67A3A4444
 magnet:?xt=urn:btih:58DC259125A1942F8E5789E8B5DED0D1C0BE130C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383680   (809818) от 16.05.2020
-
-Виктория Кокоренко | Арт-терапия: своим голосом (2020) [EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809818.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге представлены арт-технологии для работы с личностью и группой, большинство из которых оригинальные авторские – результат собственной многолетней арт-терапевтической деятельности.
-Для психологов, психотерапевтов и других специалистов, чья деятельность связана с оказанием помощи человеку в целях сохранения психического здоровья и личностного благополучия. Автор (   Читать дальше...   )Жанр: Психология, Саморазвитие, Личностный ростФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:638F852204C1B83383C571A85B06D5297739721C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

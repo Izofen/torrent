@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:2160B441AD0027854B038A375BE2B65B9DE28906
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ ArtStation, Emiel Sleegers | Ultimate Environmental Texture Creation Course (202
 ```bash
 magnet:?xt=urn:btih:6BDFF9D066149B6384238F584D37CF0DCBDD71C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:6BDFF9D066149B6384238F584D37CF0DCBDD71C2
 magnet:?xt=urn:btih:AD67639BEAD929A47B0891FF270D80F96AECBD19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ TeachVideo.ru | Adobe Premiere Pro CS4 [2009, RUS] Видеокурс
 magnet:?xt=urn:btih:B11DDCD4DF2A4361639177ABC2EA67DC60B8C226
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:B11DDCD4DF2A4361639177ABC2EA67DC60B8C226
 ```bash
 magnet:?xt=urn:btih:69A0B4994FAF2BBDD6673849FE5542FE4B0B1FAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ Hubert Sicard | Видеоролики от Хьюберта Сикарда [201
 magnet:?xt=urn:btih:EF32B83D49A13EFBD8EA61C36B24691C1B849E72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Udemy, Nikolay Naydenov | Absolute Beginners 3D Character in Blender Course (202
 ```bash
 magnet:?xt=urn:btih:1B073E576006922B1D27D0B1B172F8BAC92F1A7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ ProfIT | Исключения - "серебряная пуля" для прог�
 magnet:?xt=urn:btih:D1751114F8D615DB52BE0E54314B1677E121FF83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:D1751114F8D615DB52BE0E54314B1677E121FF83
 magnet:?xt=urn:btih:65D488334B236DC8F4619F40E37795205B6F92D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:65D488334B236DC8F4619F40E37795205B6F92D5
 ```bash
 magnet:?xt=urn:btih:D816104044D1B797907AC117B31691ACBFEDCAD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ Yiihuu, Hooman Raad | The Dwarf Warrior: 3D Character Creation For Game (2019) P
 magnet:?xt=urn:btih:F433BEB6302C837D42375C6F4F866F4C5BEFFCFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ CGMA, Michael Pavlovich | ZBrush for Concept & Iteration (2021) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:A6D81539BC8950EC408790009D3286C82333DA2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ Udemy, Rob Tuytel, Erik Selin | Creating 3D environments in Blender (2020) PCRec
 magnet:?xt=urn:btih:686B4E8FB7524C6618AB23EB218741C30B0D1E52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ CGMA, Hannah Kang | Stylized Characters in 3D (2020) PCRec [EN, RU]
 magnet:?xt=urn:btih:215923C188C1E9B9EE9859A6A4ECDE47B47A02C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ CGMA, Peyton Varney | Environment Art for Games in UE4 (2020) PCRec [RU]
 ```bash
 magnet:?xt=urn:btih:33B196E9413DC3E0B13F8122952CC4BCCF686597
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ Substance Designer – одно из самых быстро развивающ�
 magnet:?xt=urn:btih:15E5BFD00A787DA9778C4C0B288F84D429061056
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ Flippednormals, Christian Bull | Fundamental Anatomy for Sculptors (2021) PCRec 
 magnet:?xt=urn:btih:1ED29C5AF7AD1C351C97EAC918D72DF27F912BC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ CGMA, Gael Kerchenbaum | Sculpting Anatomy from Animal to Creature (2019) PCRec 
 ```bash
 magnet:?xt=urn:btih:A11678F1790D62A05318E73CA64E0CAA46E47E0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ magnet:?xt=urn:btih:A11678F1790D62A05318E73CA64E0CAA46E47E0F
 magnet:?xt=urn:btih:427A37970A6A6274C83DBCC09FD6E624C83C9BA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ Gumroad, Michael Pavlovich | ZBrush 2021 & 2021.6 What's New (2020) PCRec [EN, R
 magnet:?xt=urn:btih:8749D7A046DB3CB045A0429F9025464263EC4263
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ Entagma, Мануэль и Мориц | Patreon Advanced CG Tutorials Part 1-5 (
 ```bash
 magnet:?xt=urn:btih:261265039FFC4FCADAFEDD1D242B5B8E00B8F6B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ Unreal Engine всегда был известен своей (   Читать 
 magnet:?xt=urn:btih:62414637550286910AFDA62BA82BB8AB625B0E9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +608,8 @@ Uartsy, Mike Defeo | Stylized Character Development (2014) PCRec [EN, RU]
 magnet:?xt=urn:btih:B1ED6B79B7BD6D2231EEDE073CA1BC6D2C9DD4D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +633,8 @@ CGMA, Ben Keeling | Intro to Substance for Environment Art (2016) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:33437A9D8D050F9F3576E747ACD4058891647935
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +660,8 @@ Levelup.Digital, Phil Liu | Creating a Fantasy Trim Texture (2020) PCRec [EN, RU
 ```bash
 magnet:?xt=urn:btih:0E469064B5693E87C0FAE77FECE74B5ECC384F7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +689,8 @@ magnet:?xt=urn:btih:0E469064B5693E87C0FAE77FECE74B5ECC384F7D
 ```bash
 magnet:?xt=urn:btih:397081AF0146A4444ED87511D389BB8F26B5F274
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:6E6AF44BDFF83007EC93566EDFF715E702A5205F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Udemy, Krista King | Станьте Мастером Теории Вероятн
 magnet:?xt=urn:btih:318527E2FE0061E7916397BD39018D0DDE7BECD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:318527E2FE0061E7916397BD39018D0DDE7BECD1
 ```bash
 magnet:?xt=urn:btih:FDFE91099E0ED8EBF007058A36A474703B0C29CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:FDFE91099E0ED8EBF007058A36A474703B0C29CC
 magnet:?xt=urn:btih:ADD57C54F55594C7E4404929B4F2B56B2ACF5E77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ VLC Media Player - представляет собой мощный медиац
 ```bash
 magnet:?xt=urn:btih:19A5E28023498D6447F6C1ED1DA395E8574BAC9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ ArtStation, Rico Cilliers | Введение в скульптинг в Blender 
 magnet:?xt=urn:btih:F7A5756887D238D5FA194E8D8030635CEDE904ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:F7A5756887D238D5FA194E8D8030635CEDE904ED
 ```bash
 magnet:?xt=urn:btih:7E50F5E1D97C78F531EBC574191156EEB2F77471
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:7E50F5E1D97C78F531EBC574191156EEB2F77471
 magnet:?xt=urn:btih:C9449ED87A6DF70613DD690DE28E95DA777511A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:C9449ED87A6DF70613DD690DE28E95DA777511A2
 ```bash
 magnet:?xt=urn:btih:562161F5F29DA53342AE0ACBCB9E78D34AD0770E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:562161F5F29DA53342AE0ACBCB9E78D34AD0770E
 magnet:?xt=urn:btih:BBBB19200026DBE11D824535190A409B89634ADF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:BBBB19200026DBE11D824535190A409B89634ADF
 ```bash
 magnet:?xt=urn:btih:F57915F9A2AB7D0A7F3499DA5542E5667607C41C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:F57915F9A2AB7D0A7F3499DA5542E5667607C41C
 magnet:?xt=urn:btih:9F5B0834C964D3109A71713EEA22C029521CF927
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:9F5B0834C964D3109A71713EEA22C029521CF927
 ```bash
 magnet:?xt=urn:btih:DCA925EDB4D5D4159203BE3A33FB32E52AE4158A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:DCA925EDB4D5D4159203BE3A33FB32E52AE4158A
 magnet:?xt=urn:btih:A063F10B589EBD76DC5A1621BF157661FB83DDFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:A063F10B589EBD76DC5A1621BF157661FB83DDFD
 ```bash
 magnet:?xt=urn:btih:A71E2BB4041F2161EDB066244ABDAF02ACEDC4E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:A71E2BB4041F2161EDB066244ABDAF02ACEDC4E3
 magnet:?xt=urn:btih:9D9DBFC6F9C1577C02972B0DD836FAE87C63F688
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ Udemy, Vinoth Selvaraj | Selenium WebDriver и Паттерны Проектир
 ```bash
 magnet:?xt=urn:btih:04FF7C8AD0A40471256436CCA8F43075B6DDC9ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:04FF7C8AD0A40471256436CCA8F43075B6DDC9ED
 magnet:?xt=urn:btih:EBA19599B3721D5AB8D0963FAAF3179074689FA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:A92BCD20682E58C741B1EC15239BD71DCEB59B6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ NOFX - Double Album (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
 magnet:?xt=urn:btih:D15D621125081770A457DA589DC34698B96D076A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +556,8 @@ magnet:?xt=urn:btih:D15D621125081770A457DA589DC34698B96D076A
 ```bash
 magnet:?xt=urn:btih:9B7B6FF457A2461C347484D3718030BDCE7CD692
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +583,8 @@ Udemy, Zoran Horvat | Рефакторинг под паттерны проек�
 ```bash
 magnet:?xt=urn:btih:732F23DBE2D6D2F02B6EF690A0E974FEF2850AA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +612,8 @@ magnet:?xt=urn:btih:732F23DBE2D6D2F02B6EF690A0E974FEF2850AA3
 magnet:?xt=urn:btih:FF13963553A7A342B32B0A7E04F93F8D656D62AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ magnet:?xt=urn:btih:FF13963553A7A342B32B0A7E04F93F8D656D62AA
 ```bash
 magnet:?xt=urn:btih:9C1B1C899FA591EDDDEA09BC19FF4F6DC780AEA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +665,8 @@ magnet:?xt=urn:btih:9C1B1C899FA591EDDDEA09BC19FF4F6DC780AEA7
 magnet:?xt=urn:btih:4CD12140B030F116E0D4C5B556138F8C32AB9CBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ magnet:?xt=urn:btih:4CD12140B030F116E0D4C5B556138F8C32AB9CBE
 ```bash
 magnet:?xt=urn:btih:7673C88C0DC1D3805DBBC6D027C818B4A23E29E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

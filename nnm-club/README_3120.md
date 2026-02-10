@@ -22,6 +22,8 @@ Disc One:
 magnet:?xt=urn:btih:97CF0AC6006FC0F7A3B576A12B14ADD8ACA84DAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ VA - The LTD Chronicles mixed by 6th Borough Project (2012) [MP3|~245 кб/с (V
 ```bash
 magnet:?xt=urn:btih:230AF305B037A26D382FDEC0158F67BE6CBF2C1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -88,6 +92,8 @@ Spectral - Gateway To Death (2012) [MP3|320 кб/с]<Black/Viking/Power Metal>
 magnet:?xt=urn:btih:4CAA3A447726A40C83DF82F0C1134C3140C179E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +127,8 @@ Dotma - Sleep Paralyses (2011) [MP3|320 кб/с]<Power Metal, Gothic Metal>
 magnet:?xt=urn:btih:73A977D28EC2933D51BB5FCCF2E9F7FE5C977960
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +157,8 @@ magnet:?xt=urn:btih:73A977D28EC2933D51BB5FCCF2E9F7FE5C977960
 magnet:?xt=urn:btih:6C4CD3B5507D3798A7CA14350F109793ED0EE90B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +182,8 @@ MERCEDES положил начало автомобильной эпохи. С 1
 ```bash
 magnet:?xt=urn:btih:EF033FA400A44FA5BBB8B2C393448C69429D8921
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -206,6 +218,8 @@ VA - Psytrance Proclear (2012) [MP3|320 кб/с]<Trance, Psy Trance, Full On>
 magnet:?xt=urn:btih:BE361BCCD6915C3C03290024DDDEBF137FADDC9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +243,8 @@ magnet:?xt=urn:btih:BE361BCCD6915C3C03290024DDDEBF137FADDC9D
 ```bash
 magnet:?xt=urn:btih:041862CC662F6048FE1F51675F106E26C0121A11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +270,8 @@ Pigs - You Ruin Everything (2012) [MP3|320 кб/с]<Stoner Noise Rock>
 ```bash
 magnet:?xt=urn:btih:EDDC9B3E59E0EF1DF5E3F537D1D7E8C224A39387
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +301,8 @@ magnet:?xt=urn:btih:EDDC9B3E59E0EF1DF5E3F537D1D7E8C224A39387
 magnet:?xt=urn:btih:6B38CB723E9DA8DAB9A8CC81844C12738E59E4F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +326,8 @@ Weapons Wallpapers
 ```bash
 magnet:?xt=urn:btih:229E857A9F8954966B2CE1AEC0E377DD1CC53B3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +356,8 @@ magnet:?xt=urn:btih:229E857A9F8954966B2CE1AEC0E377DD1CC53B3C
 ```bash
 magnet:?xt=urn:btih:BD8843BFB0F6B9EAFB0CDC301A26B1F0E1F7FBE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +392,8 @@ VA - NRJ: Мы Эксперты По Молодому Поколению 50/50 (
 magnet:?xt=urn:btih:42CFBD313B95FB35269F3E11B6C39359B0901203
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +422,8 @@ VA - Pandora (2012) [MP3|320 кб/с]<Psychedelic / Night Full On>
 ```bash
 magnet:?xt=urn:btih:2C2A66762E8117911E1FE0AD33E098F37366E86A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +458,8 @@ magnet:?xt=urn:btih:2C2A66762E8117911E1FE0AD33E098F37366E86A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +483,8 @@ magnet:?xt=urn:btih:2C2A66762E8117911E1FE0AD33E098F37366E86A
 ```bash
 magnet:?xt=urn:btih:487985A4B87DA398A3F370175E55271BC8EC07C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +510,8 @@ Kenny Garrett Quartet feat. Kenny Kirkland Live At Jazz Baltica (1997) DVD5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +535,8 @@ Wise Registry Cleaner v7.15 build 453 Final + Portable [Multi(Rus)]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +562,8 @@ Wallpaper Sexy Girls 0.9
 magnet:?xt=urn:btih:DCFDD5759A5E90C9F486EC625AFA07E82A1B523F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +588,8 @@ Thunderbird - простая и удобная бесплатная програ
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +613,8 @@ Thunderbird - простая и удобная бесплатная програ
 ```bash
 magnet:?xt=urn:btih:E19AD3895ADF3E9A9A36A64CEF62F71069CC262B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +642,8 @@ Mendozza - Mendozza (2012) [MP3|192 кб/с]<Sludge Stoner Doom>
 magnet:?xt=urn:btih:9DD6F0F9E46987ECF1C14A6836FD946DF5040562
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +668,8 @@ magnet:?xt=urn:btih:9DD6F0F9E46987ECF1C14A6836FD946DF5040562
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +699,8 @@ magnet:?xt=urn:btih:9DD6F0F9E46987ECF1C14A6836FD946DF5040562
 magnet:?xt=urn:btih:A9DDD5770FBF356E11803097FA8B5639F45C9C1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -676,6 +724,8 @@ magnet:?xt=urn:btih:A9DDD5770FBF356E11803097FA8B5639F45C9C1D
 ```bash
 magnet:?xt=urn:btih:6B66C42EFA8EF56B95EDEAD15D56553229FA8F4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -702,6 +752,8 @@ Occultation - Three And Seven (2012) [MP3|258-279 kbps]<Psychedelic Progressive 
 ```bash
 magnet:?xt=urn:btih:86BEC2AA9DD0C3D75216F8F2462367C6BF11A9B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

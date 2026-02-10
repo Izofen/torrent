@@ -19,6 +19,8 @@ Mechabellum - это увлекательная тактическая воен�
 magnet:?xt=urn:btih:C81846511D61020F98096C844B3FD8FD4D64C0F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Lords of Magic (1998) [En] (1.0) License Sierra
 ```bash
 magnet:?xt=urn:btih:D55B868D257112F38C67F8A175606B068786D7E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Terminator: Dark Fate – Defiance позволяет окунуться в су
 magnet:?xt=urn:btih:083D63BDF98875B054183AD89664DF8DF8CD32F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Diplomacy is Not an Option (2022) [Ru/Multi] (1.0.73r) License GOG
 ```bash
 magnet:?xt=urn:btih:7F2C296007F7918A0BD45DE67FEE766FE6777F09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ ZEPHON (2024) [Ru/Multi] (1.1.15/dlc) Repack Let'sРlay [Supporter Edition]
 magnet:?xt=urn:btih:ED9A001BCC34F628632D0AF71BAC318550908660
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Frozenheim – скандинавский градостроительный с�
 ```bash
 magnet:?xt=urn:btih:3CA81190B8D797595177713214830F8A9C560C77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Witch Way ставит игрока во главе поселения, стол
 magnet:?xt=urn:btih:38A664301844A5781689C2F6AE395503C855C6D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Age of Mythology: Retold - игра от создателей культовой
 ```bash
 magnet:?xt=urn:btih:5D9537C7BC9B2E606B577F72B67E45318E893D3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Terminator: Dark Fate – Defiance - стратегическая игра в р
 magnet:?xt=urn:btih:F849012C238BB8DDE1EDAD2A9858958EA0A7BC68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Songs of Silence погружает игроков в фантастически
 ```bash
 magnet:?xt=urn:btih:5F51CE364E79D1F69F36B62C8138DDCB939ACD47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Warhammer 40,000: Dawn of War (2025) [Ru/Multi] (2.0.889.0) Repack FitGirl [Defi
 magnet:?xt=urn:btih:F372C4A629979DADDBAF090C13E9CB047316B313
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Warhammer 40,000: Dawn of War (2025) [Ru/Multi] (build 19595286) Repack seleZen 
 ```bash
 magnet:?xt=urn:btih:C4B354785912E69FE417F3E71F2FA5D3536721CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Age of Mythology: Retold - игра от создателей культовой
 magnet:?xt=urn:btih:F4A6072E1B14013BF7475F776E68B46D37F476B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Stellar Monarch 2 - это глобальная стратегия в научн
 ```bash
 magnet:?xt=urn:btih:BADEA987AAC59189172E2E904309AA9E774E752F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.05.297/dlc) License GOG
 magnet:?xt=urn:btih:A81AB6E01E3169DBB6CA87068B992C6DA5BF63CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Rise Of The White Sun (2023) [Multi] (1.86) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:7DA5434BE55857C5368CAF82756559739D622DA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Future War Tactics: SOF vs Alien Invasion – Turn-Based Strategy (2025) [Ru/Mul
 magnet:?xt=urn:btih:388E6CB9CEFF31557DF4BB74B70D4C9A8194DD76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Headquarters: World War II - это динамическая пошаговая 
 ```bash
 magnet:?xt=urn:btih:74C11DEF80EA9438CAD6439827E0318AB3B05918
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Terminator: Dark Fate – Defiance позволяет окунуться в су
 magnet:?xt=urn:btih:6084F698C6C351D5EC1F9E22CA09061D6E18EBFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Wingspan / Крылья (2020) [Ru/Multi] (1.7.1104.0611.1642/dlc) Repack FitGir
 ```bash
 magnet:?xt=urn:btih:C925500F5921DD3813B67A34EFC0A25BAFDB37DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Terminator: Dark Fate – Defiance позволяет окунуться в су
 magnet:?xt=urn:btih:60C3E19A4EE060B3FD2AC23C90D20763B48BC90F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Call to Arms - Gates of Hell: Ostfront – стратегия в реально�
 ```bash
 magnet:?xt=urn:btih:C7046A01CE1EF9877EC2CC7D8F8380BE76A631A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Plague Inc: Evolved (2016) [Ru/Multi] (1.21.0.3/dlc) Repack Pioneer
 magnet:?xt=urn:btih:B858423F6ECAE47818DBA2A8A4CF2FBD960A7CFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Empire of the Ants (2024) [Ru/Multi] (1.04.20550/dlc) Repack LetsPlay [Digital D
 ```bash
 magnet:?xt=urn:btih:D8204B54D9224CD1D0F0126C3BB79046B7DAA676
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Broken Arrow (2025) [Ru/Multi] (1.0.6.p/dlc) Scene Rune [Vanguard Edition]
 magnet:?xt=urn:btih:5230CB87509BA191A8AA483415A164D31BA2987F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Stronghold Crusader (2025) [Ru/Multi] (1.00) Repack FitGirl [Definitive Edition]
 ```bash
 magnet:?xt=urn:btih:A133EC46E14CEBABB911D048101071A6E6DEF2BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

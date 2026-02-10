@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:02C2B67E03DAC1CDEB301EAB1874596A763C995F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ V.I.P. / Beuiaipi / V.I.P. (2017) BDRip [H.265/1080p-LQ] [10-bit]
 ```bash
 magnet:?xt=urn:btih:9C062738236301D90B0657535BE186C2148F31A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:9C062738236301D90B0657535BE186C2148F31A5
 magnet:?xt=urn:btih:36A42EA44953B87E72BD2E75E32D81B175B7EF08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:36A42EA44953B87E72BD2E75E32D81B175B7EF08
 ```bash
 magnet:?xt=urn:btih:4791E4C184C56EC122668452073A5DBA1873BACB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ WinCatalog - это простая в использовании програм�
 magnet:?xt=urn:btih:259A68472B33D1F2EFF03B73C319D23F24701D72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:259A68472B33D1F2EFF03B73C319D23F24701D72
 ```bash
 magnet:?xt=urn:btih:7637E6A9126B7D7874F893B32B1FEDC262F52696
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:7637E6A9126B7D7874F893B32B1FEDC262F52696
 magnet:?xt=urn:btih:4442C64BACF3AF3360C24852C2CD8B1F980DC265
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:4442C64BACF3AF3360C24852C2CD8B1F980DC265
 magnet:?xt=urn:btih:24F27AFCF7EF0A718197BE728902155F2E4FBA03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ magnet:?xt=urn:btih:24F27AFCF7EF0A718197BE728902155F2E4FBA03
 ```bash
 magnet:?xt=urn:btih:6E675839D54313AF1615077468DFDD094E1B87FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ VA - Союз 19 Альбомов-Полные версии (1995-2003) 38CD [MP
 magnet:?xt=urn:btih:D4DC31DA21EE281D24B4EC157D3DEA2B67C12E61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Starcom: Unknown Space - это увлекательное сочетание к
 ```bash
 magnet:?xt=urn:btih:EFA049055C007B2B65564E828BE16EF346CFF48C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ VA - Лучшие песни Радио DFM за 2024 год (2025) [MP3|320 Kbp
 magnet:?xt=urn:btih:4E4F81DA63CF88F14A2E85058EE360A0A889A6F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Snufkin: Melody of Moominvalley - это приключенческая игра
 ```bash
 magnet:?xt=urn:btih:6FAB344E2AD011ABF4477A13D4E646D8982603CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Goalgetter / Torschutzenkonig (2023) [Multi] (2.1.1) License GOG
 magnet:?xt=urn:btih:E6ADDBB47FEC0732BE7E53033B6B9C2E68C94F1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Slave Zero X (2024) [Ru/Multi] (1.06/dlc) Repack Let'sРlay [Digital Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:8A64F9F4CFBBD6BE7AB78291BE6BCF834706A633
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:8A64F9F4CFBBD6BE7AB78291BE6BCF834706A633
 magnet:?xt=urn:btih:F89F38A71DF29967762C89E48DB5878EFE57B131
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.0.1.1) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:CDF0B283A939B34183567265D5814616000E08FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Niffelheim v1.6.15 [Ru]
 magnet:?xt=urn:btih:A5E9B61512B06EF36DE54C5907EC03DD058CB6DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:A5E9B61512B06EF36DE54C5907EC03DD058CB6DF
 ```bash
 magnet:?xt=urn:btih:99D3FED0CA1F68AB2D89A0F4373BDDD7BA3B420C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:99D3FED0CA1F68AB2D89A0F4373BDDD7BA3B420C
 magnet:?xt=urn:btih:CBCDAD4144083F8AA65265B552D9F3E37C592643
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:CBCDAD4144083F8AA65265B552D9F3E37C592643
 ```bash
 magnet:?xt=urn:btih:7792C56E03DE4C2B80EB95FB0082BA05CC1FF537
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:7792C56E03DE4C2B80EB95FB0082BA05CC1FF537
 magnet:?xt=urn:btih:E23FCC5DDDFF4B49FFE894A16B9C32B5C363F0EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:E23FCC5DDDFF4B49FFE894A16B9C32B5C363F0EC
 ```bash
 magnet:?xt=urn:btih:2F0E7594E21D5E46861BF3AD7214763DFB8318D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ magnet:?xt=urn:btih:2F0E7594E21D5E46861BF3AD7214763DFB8318D5
 magnet:?xt=urn:btih:4E8142809AF8D5E3486C174298FCA759F61A7A40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ Slaughter: The Lost Outpost v1.42 [Ru]
 ```bash
 magnet:?xt=urn:btih:D5D2D899F018C1DA8C32DB790E23565D007D9511
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:D5D2D899F018C1DA8C32DB790E23565D007D9511
 ```bash
 magnet:?xt=urn:btih:66C9ECE18C2ED360FCA1F3AF0CE1B4D23DB6E022
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

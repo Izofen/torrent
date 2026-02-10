@@ -1,3 +1,30 @@
+###  Публикация: 1204631   (781199) от 16.02.2018
+
+Заговор генералов (2018) SATRip (серий 4 из 4)
+
+>>Документалистика и Телепередачи
+>>Отечественная история
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781199.jpg" />
+</div>
+
+
+###  Подробнее
+
+На основе недовольства правящей властью начали завязываться отношения лидеров буржуазной элиты и верхушки императорской армии. И в том и в другом случае движущими силами были личные амбиции участников событий.
+Целью цикла является наиболее полно и впервые в отечественной документалистике рассказать о роли императорской армии в событиях, связанных со свержением последнего (   Читать дальше...   )Производство: Россия, ООО «Студия-А»Жанр: Документальный, история, революция, войнаРежиссер: Татьяна АрхипцоваПродолжительность: 4 х ~00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:624BF100B374DB610AEEE437A894D3DDD6D160BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207059   (781290) от 16.02.2018
 
 Из льда и пламени (2018) WEBRip [H.264/1080p-LQ]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:5EFCA8B53D378795C334F1FA0F1A8A2BAC9AC95A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:5EFCA8B53D378795C334F1FA0F1A8A2BAC9AC95A
 magnet:?xt=urn:btih:8C2B4749BB306CA3FBEFB2503F1359E92E973AD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +97,8 @@ magnet:?xt=urn:btih:8C2B4749BB306CA3FBEFB2503F1359E92E973AD6
 ```bash
 magnet:?xt=urn:btih:BB47744674A76A794DCE397E5E285F2C394B710C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +124,8 @@ magnet:?xt=urn:btih:BB47744674A76A794DCE397E5E285F2C394B710C
 magnet:?xt=urn:btih:BFCC7E02C06D4000D5B1CD9210BA4C6E6726214B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +149,8 @@ magnet:?xt=urn:btih:BFCC7E02C06D4000D5B1CD9210BA4C6E6726214B
 ```bash
 magnet:?xt=urn:btih:74FBFE0FD85868D94BF66B2EE248304EE1E0D917
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +176,8 @@ Back to Black — второй и последний студийный альб
 magnet:?xt=urn:btih:AC814B2E9BEEC44747DD1846A241EB9BFF392C25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +201,8 @@ magnet:?xt=urn:btih:AC814B2E9BEEC44747DD1846A241EB9BFF392C25
 ```bash
 magnet:?xt=urn:btih:24B589E8690F861647EF12D15FD069523716A99E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +228,8 @@ magnet:?xt=urn:btih:24B589E8690F861647EF12D15FD069523716A99E
 magnet:?xt=urn:btih:416FC72C767FF0C725B4E05BCA95B0D63F02FAC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +253,8 @@ magnet:?xt=urn:btih:416FC72C767FF0C725B4E05BCA95B0D63F02FAC5
 ```bash
 magnet:?xt=urn:btih:FABDAB01CAA3A9F78E921FF34FF189601DC3E518
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +280,8 @@ magnet:?xt=urn:btih:FABDAB01CAA3A9F78E921FF34FF189601DC3E518
 magnet:?xt=urn:btih:F5F3A8A0B6B5F5CC721FD8E6B264B0A290E1D7BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +305,8 @@ magnet:?xt=urn:btih:F5F3A8A0B6B5F5CC721FD8E6B264B0A290E1D7BE
 ```bash
 magnet:?xt=urn:btih:522150BA278723F57263563C3EC7B4F6DB68FF0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +332,8 @@ magnet:?xt=urn:btih:522150BA278723F57263563C3EC7B4F6DB68FF0A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +357,8 @@ magnet:?xt=urn:btih:522150BA278723F57263563C3EC7B4F6DB68FF0A
 ```bash
 magnet:?xt=urn:btih:9995AB31FF9E071E812A0C09B0A5563B3DB5CBBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +384,8 @@ magnet:?xt=urn:btih:9995AB31FF9E071E812A0C09B0A5563B3DB5CBBF
 magnet:?xt=urn:btih:FCD558DBF634037355805501D58B90EB6FDEBA1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +410,8 @@ magnet:?xt=urn:btih:FCD558DBF634037355805501D58B90EB6FDEBA1C
 magnet:?xt=urn:btih:946BB081B16847C58785D52DF4C07634011DD853
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +435,8 @@ magnet:?xt=urn:btih:946BB081B16847C58785D52DF4C07634011DD853
 ```bash
 magnet:?xt=urn:btih:CDE7CD8D1B3246A84EEA5C83C397CAA6D5DBBF4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +463,8 @@ U2 at the BBC (U2: Live in London) (2017) HDTV [H.264/1080i]
 magnet:?xt=urn:btih:BB0585635C82A69969ABFE8CB397625D85716381
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +488,8 @@ magnet:?xt=urn:btih:BB0585635C82A69969ABFE8CB397625D85716381
 ```bash
 magnet:?xt=urn:btih:333E4F2CEB058AD334020DD87D8E4607B393CA25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +516,8 @@ magnet:?xt=urn:btih:333E4F2CEB058AD334020DD87D8E4607B393CA25
 magnet:?xt=urn:btih:1F7BDB802A1D6085241C135499C128A4B200F2F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +541,8 @@ magnet:?xt=urn:btih:1F7BDB802A1D6085241C135499C128A4B200F2F1
 ```bash
 magnet:?xt=urn:btih:40300D20BBB69FE82477104255FF5E280AB80256
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +570,8 @@ magnet:?xt=urn:btih:40300D20BBB69FE82477104255FF5E280AB80256
 magnet:?xt=urn:btih:0A6C5C1B7523DBE126236314728B524C27D179A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +595,8 @@ magnet:?xt=urn:btih:0A6C5C1B7523DBE126236314728B524C27D179A0
 ```bash
 magnet:?xt=urn:btih:97F02C150D9EF5242327294A653296700E58975A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +622,8 @@ magnet:?xt=urn:btih:97F02C150D9EF5242327294A653296700E58975A
 magnet:?xt=urn:btih:3639823F136B69CA4DC0403F71EA2F0B1DFDEA1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +647,8 @@ magnet:?xt=urn:btih:3639823F136B69CA4DC0403F71EA2F0B1DFDEA1F
 ```bash
 magnet:?xt=urn:btih:B211C9FA5BA3FB781FCBC5B950EF3D77798934C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,29 +674,7 @@ magnet:?xt=urn:btih:B211C9FA5BA3FB781FCBC5B950EF3D77798934C0
 magnet:?xt=urn:btih:825758410BBAE6A4814549826F570C7DC991AC16
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205795   (782939) от 12.02.2018
-
-О чем молчал Вячеслав Тихонов (2018) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждая роль — знак качества. Для кого-то он - тракторист Матвей из фильма «Дело было в Пенькове». Для кого-то - благородный князь Болконский. Для кого-то - сдержанный Штирлиц. В жизни Тихонов был абсолютно закрытый. Молчаливый. Скромный. Сдержанный. Фильм — это попытка разобраться, каким же человеком Вячеслав Тихонов был на самом деле. Что его волновало, чем он дорожил, (   Читать дальше...   )Производство: Россия, Первый каналЖанр: Документальный, биографияРежиссер: Георгий АнановЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:48:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7E639D1F1ABC1BE9CFC647055A9FF4E429680AA
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

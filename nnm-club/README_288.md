@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C70B052334AEA80FFDB5C36B1F591B027D4C82FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:C70B052334AEA80FFDB5C36B1F591B027D4C82FA
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (1.43.11/dlc) Repack Wanterlude
 magnet:?xt=urn:btih:EEB98B2FD50DF2A703EA69F9BBFEFE0E2519C555
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ False Skies - это классическая ролевая игра с инт�
 ```bash
 magnet:?xt=urn:btih:6A4366990992FB0805153ECEA606355FB780A0AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Signal — это безопасное приложение для обмена 
 magnet:?xt=urn:btih:88282F7B5514B8047CE7468C76978F7614AEC0B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Guards II – это тактическая пошаговая стратеги�
 ```bash
 magnet:?xt=urn:btih:453446BAA4153712D7EE4E11CD9BDA48D50B62C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Dragon Ruins II (2) (2025) [En] (250701) License GOG
 magnet:?xt=urn:btih:74379C3E31E9386BD5762DCC21F7C6086B1E34E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ GearCity – хардкорный экономический симулятор 
 ```bash
 magnet:?xt=urn:btih:6AA4B7EC245AE5A950CEA988E71210089EC111D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:6AA4B7EC245AE5A950CEA988E71210089EC111D0
 magnet:?xt=urn:btih:74EF53C389AF8C199371AE3DDCA39C35E2F913E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Edge of Allegoria - это пошаговая ролевая адвенчу�
 ```bash
 magnet:?xt=urn:btih:67BE1CAE0631FF572A97E455B4B3C4D7F38067DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Northgard (2018) [Ru/Multi] (3.7.30.42250/dlc) License GOG [The Viking Age Editi
 magnet:?xt=urn:btih:808A16BC4460BD41C7A0343D49AD8AB1D7D0E099
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Going Medieval (2021) [Ru/Multi] (0.26.42-rel) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:9F758DC0610298FBD22C09592FB46E1C3F50410B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Songs of Conquest - пошаговая стратегия, вдохновлен�
 magnet:?xt=urn:btih:EFD6001C88B2FB703C70D036DA1FDFD452C46481
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Stoneshard – это сложная пошаговая RPG в открытом 
 magnet:?xt=urn:btih:DC4F65512D2EFF71B4C0A2396F64FE8291E0B1B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +382,8 @@ Quasimorph, захватывающая мрачная пошаговая рол�
 ```bash
 magnet:?xt=urn:btih:F4270B9304CD956003641C9D2CA517778F97A9F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:F4270B9304CD956003641C9D2CA517778F97A9F9
 magnet:?xt=urn:btih:A4E3E703A8EC8A761770BD5ABB4253BB13A78086
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:A4E3E703A8EC8A761770BD5ABB4253BB13A78086
 ```bash
 magnet:?xt=urn:btih:FE9921EB0F1FFD42F4AEFC9964A7BD174A075CFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:FE9921EB0F1FFD42F4AEFC9964A7BD174A075CFD
 magnet:?xt=urn:btih:8FFEAE6407573C4582B3C6D6E2947443B6846C8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ Incubation: Time Is Running Out / Incubation: Космодесант [Ru] (L) 19
 ```bash
 magnet:?xt=urn:btih:0C88A7D41D7DC787A4C1722359120BB4D1E17D20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ Monster Prom 2: Monster Camp - многопользовательский сим
 magnet:?xt=urn:btih:5EC2C079DF7BD3DF8EB18F66FA83A877E4BDA09A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ Microsoft® Windows® 11 x64 Ru 24H2 4in1 Upd 08.2025 by OVGorskiy [Ru]
 ```bash
 magnet:?xt=urn:btih:55CD501BE979B19ECA05524A490FFC4389B8BB69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ magnet:?xt=urn:btih:55CD501BE979B19ECA05524A490FFC4389B8BB69
 magnet:?xt=urn:btih:F1FD618AC39F2933E30408DCCDC327B23D6F08BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ Barony повествует об обретшем вечное существо�
 ```bash
 magnet:?xt=urn:btih:9F6D81344E4B13F3EE61A09F2EB79A640E53AC7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ Incubation: The Wilderness Missions / Incubation: Второй десант [Ru]
 magnet:?xt=urn:btih:8EB13136D750AD190B1F54953F3C66448B20151A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ Figment 2: Creed Valley - насыщенное приключение, дейс�
 magnet:?xt=urn:btih:B9F4C981B6FA4D34FC426B167882088A35DB4137
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Wizordum - это ретро-шутер от первого лица, дейст
 ```bash
 magnet:?xt=urn:btih:740A347639D948478A3DBF563CE147D5A99D15B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

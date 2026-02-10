@@ -22,6 +22,8 @@ updated_april_2024_x64_dvd_d986680b.iso.
 magnet:?xt=urn:btih:5DA649FD5285559314F2761319417678F9FC5E8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ SolidWorks является ядром интегрированного комп
 magnet:?xt=urn:btih:F7A8472B27C749929ECAE69B26155F470F07F1BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ IObit Uninstaller Pro представляет собой удобный инс�
 ```bash
 magnet:?xt=urn:btih:415C0943E5296F4B5C821485F92EE447E13D05D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:0E0C83ACB5C4286876712417B7F0AC678AEDDBB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Red Button – это мощная утилита для оптимизации 
 ```bash
 magnet:?xt=urn:btih:949CAFEF5B8B8E552829567AA0204928EC101B96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:F77A92F934610E5E354E312C275101CCEFED4806
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Daum PotPlayer - бесплатный мультимедийный проигр�
 ```bash
 magnet:?xt=urn:btih:4B44D23C56B410A8DD5E658F5BAB50B4C8D3AD21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ NVIDIA GeForce Driver — драйвера для видеокарт произ�
 magnet:?xt=urn:btih:0236385E5FE217C7F76463766B8F7D5522B95A3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ LibreOffice - офисный пакет с открытым исходным к�
 ```bash
 magnet:?xt=urn:btih:5F8FD08D43A8D135B6049A76E76D2B492D26751F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ EasyUEFI - удобная утилита для редактирования з�
 magnet:?xt=urn:btih:1854957EADEF59BFB7472ED1A4425FF4977F4DF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ OCCT 13.0.0 Final Portable [En]
 ```bash
 magnet:?xt=urn:btih:07F70323E2A6C1D2CC24A323281D4619408AB1D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ EmEditor Professional - профессиональная версия мощно
 magnet:?xt=urn:btih:D5109B0CDB8DD6A5DE7DBE000521E8BDC0DFF888
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ PDF-XChange Pro — универсальное решение для работ�
 ```bash
 magnet:?xt=urn:btih:26E746BB99B8CFAD9D464E56F61BE15EFA367A38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ simplewall 3.8.2 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:B799CF60209F9223FF6949DDEE83741A472CA702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:272D59F2BD49EE33AB62CA4F05937A4D11F4F19F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Advanced SystemCare PRO - это мощный пакет для оптимиза
 magnet:?xt=urn:btih:D3BF660DFF443E87B8CE8BD3F24E2FBF713AF7C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ PDF-XChange Editor — программа для просмотра, редак�
 magnet:?xt=urn:btih:B8501B1F68D0BD3166FBC00F3BE139C18AAD93E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ AOMEI Partition Assistant – мощная программа для работ�
 ```bash
 magnet:?xt=urn:btih:35E0D30CD44468BC6D887B8D2A3274D2E27A52A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ XviD4PSP - универсальный пакетный аудио/видео к�
 magnet:?xt=urn:btih:28EB4836DFA1C4302F08E5A5F778F9643304F4A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ Wise Force Deleter 1.5.6.58 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A4D4F43B6205280D224DB158472077A8B1A1D348
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ Wondershare UniConverter - простой в использовании виде
 magnet:?xt=urn:btih:3B39F68FACF92BC421ACA54A73B162BA03377BE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ AntiPlagiarism.NET - инструмент, позволяющий исследо
 ```bash
 magnet:?xt=urn:btih:3F6EE07C46586E1C852B512E9E563B7895DE0595
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ Extreme Picture Finder 3.66.2.0 RePack (& Portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:AB404379429AA1DE05926C356B5EBD28AB41908B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Fusion 19 — это самое современное в мире програ�
 ```bash
 magnet:?xt=urn:btih:4C2C699FC77F1DEDA22DF373B40318CED3F4186E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Qalculate! - это многоцелевой кросс-платформенны
 magnet:?xt=urn:btih:AF632025FC0114441BBBE96B271A6B492B71A103
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Macrorit Data Wiper Unlimited Edition – мощная утилита, кото�
 ```bash
 magnet:?xt=urn:btih:4E79E39172F511C86A98638290F46B4AE6639F52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

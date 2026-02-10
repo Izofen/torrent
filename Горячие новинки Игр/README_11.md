@@ -19,6 +19,8 @@ Majogami (2025) [Multi] (20659537) Scene Tenoke
 magnet:?xt=urn:btih:AEC4AF2063B228157E850ED7246FA7FA7E7D5E87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Voidtrain (2023) [Ru/Multi] (1.0/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:FE20A90E2547028091D1DEBA5E74AE5C705BCD4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ CRABS MUST DIE! - шутер в открытом мире с RPG-замашка�
 magnet:?xt=urn:btih:23068A06476DA094323ED745A26E4639DC667B81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Wartorn - это однопользовательская рогалита с о
 ```bash
 magnet:?xt=urn:btih:479BE1FA582BD55CE848469BD11FF4999CD1BF56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Wartorn — это однопользовательская рогалита с 
 magnet:?xt=urn:btih:A4A8CDCC21444989B6C7F3F06EDC403BECF70BAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Salt 2 - пиратская игра с открытым миром про ис�
 ```bash
 magnet:?xt=urn:btih:B8ABA2857FBEC995C13C111633DEF0AB6EF427B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Sacred 2 Remaster (2025) [Multi] (1.0c) License GOG
 magnet:?xt=urn:btih:B0E109853A4A4192E78A10CD24C3CD7E4FD9EC00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Rue Valley (2025) [Ru/Multi] (1.0.0v2/dlc) Repack Let'sРlay [Digital Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:F39028EAA16C65E87730DAAF2DDBB5BD3F5EB47D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Angry Video Game Nerd 8 bit - сатирическое приключение, �
 magnet:?xt=urn:btih:A5C9FEC78DA1E9AB4E30F16FC0FFD928D191EBCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Surviving Mars Relaunched (2025) [Ru/Multi] (1.0.0.382125/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:BBA3F5F560F932769646C4D4DD682302B7218F6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Ambrosia Sky - это захватывающий симулятор от пер�
 magnet:?xt=urn:btih:8D1F61109C04137F93B9D0BA2F1ADE150AD085AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Verho Curse of Faces - мрачный мир, скованный смертел�
 ```bash
 magnet:?xt=urn:btih:D290B1CFF2BCC9BA3598DC553462B745D2B83A92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Angry Video Game Nerd 8 bit - сатирическое приключение, �
 magnet:?xt=urn:btih:DCCCE6D82A8412D8F27E9A70B309B489461B1672
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Wartorn - это однопользовательская рогалита с о
 ```bash
 magnet:?xt=urn:btih:ECEE28AAEAEAFA4AE96ADD27411B193AB7DC7E7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Tales of Xillia Remastered (2025) [Ru/Multi] (1.0.2/dlc) Repack FitGirl [Deluxe 
 magnet:?xt=urn:btih:4283415E5B0E7B01B66198D47C9ABDC03B1F6A66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Tales of Xillia Remastered (2025) [Ru/Multi] (1.0.2/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:1537DC3E0532CBA43BF9E018447E090E47F18199
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ CRABS MUST DIE! - шутер в открытом мире с RPG-замашка�
 magnet:?xt=urn:btih:9D872ADF206C402B7FBB1B087E9053824D58C2CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Full Metal Schoolgirl (2025) [Multi] (1.01/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:8CF4BACC64F68D378485D7A88C31330532B89518
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46561/dlc) Repack Dece
 magnet:?xt=urn:btih:78EEF020742F967F36A4B61558115FD699A6CA9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ magnet:?xt=urn:btih:78EEF020742F967F36A4B61558115FD699A6CA9A
 ```bash
 magnet:?xt=urn:btih:7AC215D9214952B0F6F6B80A06B244EC115066BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Dark Moon – стратегическая игра о выживании, гд�
 magnet:?xt=urn:btih:C15238EB34D4B047582433BFB5CED3D5EE9B1B91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Escape Simulator 2 - это продолжение самого продавае
 ```bash
 magnet:?xt=urn:btih:7B1BAE11E0E6D82C8AFDD416853B9B20AC599AFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ The Creator (2025) [Ru/Multi] (0.1.05.1028.88888888/dlc) Repack FitGirl [Support
 magnet:?xt=urn:btih:643C82F32FE389C6B6A55CE9B9196BF689AFDA74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Europa Universalis V (5) (2025) [Ru/Multi] (1.0.4/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:C8CCE265F7F475CE391139E14CC6B7759DCC9AA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Syberia - Remastered (2025) [Ru/Multi] (Build 20708995) Repack Wanterlude
 magnet:?xt=urn:btih:00A16EBE8AE47D24F32265419B89A56E29563915
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ SpongeBob SquarePants: Titans of the Tide (2025) [Ru/Multi] (1.2.0.0/dlc) Repack
 ```bash
 magnet:?xt=urn:btih:4839525F710C6F373AF8560D1CB7FCFCDFE2E889
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

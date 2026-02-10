@@ -19,6 +19,8 @@ NGW: Прекрасная Америка: На границе с дикой пр
 magnet:?xt=urn:btih:8AD574FFC6DEEAE4B657D16AFBCFCF0E83F28859
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ NG. Удивительная планета / Amazing Planet (2006) BDRip [H.264
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ NG. Следствие по делам хищников / Predator CSI (2007) HD
 ```bash
 magnet:?xt=urn:btih:BBB507B5BAE976DD07F51D3C15E9DB011ECEB248
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ NG: Испытайте свой мозг / Test Your Brain (2011) DVDRip
 magnet:?xt=urn:btih:182008BF939A49D32B32D948E57974B065FCBCAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ NGW: Дикая природа Аргентины. Водное царство /
 ```bash
 magnet:?xt=urn:btih:13E3F1E6F14FF3661B83A7C9F2660C6D676FBDA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ NG. Великая Китайская стена / China's Great Wall (2007) HDT
 magnet:?xt=urn:btih:BCB98AF82FC575061D374EBD1BC7183C189F6239
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ NG. Убийственная скорость / Speed Kills (2012) HDTVRip [3 с
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ NG. Монстр млечного пути / Cosmic Monsters (2007) HDTVRip [H.2
 magnet:?xt=urn:btih:021FF2D5B264F0601ED82FF5865BE49A1ABA6B72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ NGW: Дикая природа Чили / Wild Chile (2017) DVB [H.264/1080i-LQ]
 ```bash
 magnet:?xt=urn:btih:007F3F8A1C0E339B8BA07DE68F14296E66186746
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ NG: Дикая природа Калифорнии / Дикая Нижняя К�
 magnet:?xt=urn:btih:273E4F8C4B8E93111CF68FE7B051880F5DDAF7F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ NG. Криминальная Британия / Britain's underworld (2010) HDTV
 ```bash
 magnet:?xt=urn:btih:E7EC1ED8C22517671B47FBBBC9483F411894E0CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ NG. Известная Вселенная / Known Universe (2009) BDRemux [H.264
 magnet:?xt=urn:btih:2FCF5641B0F5918A6AC61B69DF4538A068246251
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ NG: Происхождение: Путешествие человечества 
 ```bash
 magnet:?xt=urn:btih:2A3E90B35BB4B1F7F6674311B9A0AD88112A5B52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ NG: Скрытый мир Амазонки / Amazon Underworld (2016) HDTVRip [H
 magnet:?xt=urn:btih:38EE740122FAF91FB50D5F121C86A0488AFC908A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ NGW: Планета птиц / Planet of the Birds (2018) HDTV [H.264/1080i-LQ]
 ```bash
 magnet:?xt=urn:btih:FA369E42C42777B2D169E25C0B7349CD35DE23F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ NGW: Неудачи хищников / Predator Fails (2015) HDTV [H.264/1080i-L
 magnet:?xt=urn:btih:F292722A96FC6D4F45341D913A1F2F5AF2DD6328
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ NG: Начало (Происхождение: Путешествие челов�
 ```bash
 magnet:?xt=urn:btih:25788A065F6B895A6D3DC34CE3D9D2EC3DFB2E40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:25788A065F6B895A6D3DC34CE3D9D2EC3DFB2E40
 magnet:?xt=urn:btih:9C23C638C62722ECC24C7E7B1C0B0619C6360F97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ NG: Секс в каменном веке / Sex in the Stone Age (2011) HDTV [H.
 ```bash
 magnet:?xt=urn:btih:9F136ECC5E5A382BAB90722F91331A34C6DBD542
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ NG: Землетрясение на Эвересте / Earthquake on Everest (20
 magnet:?xt=urn:btih:DEE5B65345D72E3240462CF9D9851BCE534DFC83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ NG: Расследования авиакатастроф / Air Crash Investigat
 ```bash
 magnet:?xt=urn:btih:5733AD1676267FD59CF0477C48D189C70F8CDF03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ NG: Известная Вселенная. От атома до космоса /
 magnet:?xt=urn:btih:2E3798807D6D50F2C5265F0544651531E4845781
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ NG: Пустынное море / The Desert Sea (2016) HDTVRip [H.264/720p-LQ] 
 ```bash
 magnet:?xt=urn:btih:5A28D79D8DB2E370CFA4D5C839F48FAE453960D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ NG: Жизнь в эпоху самолётов / Living in the Age of Airplanes
 magnet:?xt=urn:btih:7D8FA26AEAF8C904EFA783D0AB4B0FEFC17945B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ NGW: Маленький гигант / Little giant (2015) HDTV [H.264/1080i-LQ]
 magnet:?xt=urn:btih:2CC43F35BB91890219D342975DEF5F26C2059A8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ NGW: Невероятные клыки / Incredible Fangs (2016) HDTVRip [H.264/
 ```bash
 magnet:?xt=urn:btih:ED80F1661698FE7B4E502FB33170C66D20F2FD5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

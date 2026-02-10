@@ -1,3 +1,29 @@
+###  Публикация: 1378787   (844648) от 26.04.2020
+
+Е. Левашева (отв. ред.) | Моментальные салаты (2012) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_844648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию предлагается книга кулинарных рецептов, по которой легко готовить быстрые и вкусные блюда. Салат (итал. salato — солёный) — холодное блюдо из кусочков овощей, зелени, различных других растений, грибов, с добавлением приправы. Первоначально салатом называлось блюдо Древнего Рима, которое состояло из петрушки и лука...Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C610FD59E0DAAC662C8FC384EEF73949FB81E6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378778   (844650) от 26.04.2020
 
 Е. Звонарева (ред.) | Соусы (2011) [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:7F4B2412B9CF1B9889876A76F78803C0921D4D04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:7F4B2412B9CF1B9889876A76F78803C0921D4D04
 magnet:?xt=urn:btih:DDD0750F844F5EBF2A4BA73EA70C247187FF0EFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:DDD0750F844F5EBF2A4BA73EA70C247187FF0EFE
 ```bash
 magnet:?xt=urn:btih:AB81ECAA5700942F7C9F3FCB790BBC94162762EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:AB81ECAA5700942F7C9F3FCB790BBC94162762EA
 magnet:?xt=urn:btih:844032ACA9F75678BC339A073AFAA0C2CBD92DF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:844032ACA9F75678BC339A073AFAA0C2CBD92DF2
 ```bash
 magnet:?xt=urn:btih:3E646C667A1304EC7167C6DF6E3DC2C69A4E986F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:3E646C667A1304EC7167C6DF6E3DC2C69A4E986F
 magnet:?xt=urn:btih:A0BB2E8D50608ED2B074C405F1CA3B5FFB1C8505
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:A0BB2E8D50608ED2B074C405F1CA3B5FFB1C8505
 ```bash
 magnet:?xt=urn:btih:9335C482C9D1A52D15D0011EA77EB7F459FF8DC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:9335C482C9D1A52D15D0011EA77EB7F459FF8DC1
 magnet:?xt=urn:btih:C080AD6CAB089A44C7607F2A3E3AA57FADFDCCAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:C080AD6CAB089A44C7607F2A3E3AA57FADFDCCAA
 magnet:?xt=urn:btih:CF9FBAFA55B2CECBF32512F51CF180BF99065D10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:CF9FBAFA55B2CECBF32512F51CF180BF99065D10
 ```bash
 magnet:?xt=urn:btih:11268E9BEDC283D13A64C974CB227DEE67DAFE8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:11268E9BEDC283D13A64C974CB227DEE67DAFE8F
 magnet:?xt=urn:btih:A1EEEBC372E1F483A0DA9EA1C7CE50269D0B00A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +338,8 @@ Cборник из 48 проанализированных фрагментов 
 magnet:?xt=urn:btih:9834BA8A779130D0A1D659A31251B7EC2D1BF2EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:9834BA8A779130D0A1D659A31251B7EC2D1BF2EC
 magnet:?xt=urn:btih:DA78830FE5443B8C58644CA9223B41D8A326E423
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:DA78830FE5443B8C58644CA9223B41D8A326E423
 ```bash
 magnet:?xt=urn:btih:BB68016DDDD1429E5D182D7CD05078700C96BA6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +418,8 @@ magnet:?xt=urn:btih:BB68016DDDD1429E5D182D7CD05078700C96BA6A
 magnet:?xt=urn:btih:02F44ACDEA65E92B7B68BB123E3DB9297F09B132
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:02F44ACDEA65E92B7B68BB123E3DB9297F09B132
 ```bash
 magnet:?xt=urn:btih:ACE15CEEDB1F6CE65FE8B14824526ECAA13D275D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:ACE15CEEDB1F6CE65FE8B14824526ECAA13D275D
 magnet:?xt=urn:btih:BB4068AFCCA80498554563F7F29DDC29509E6095
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:BB4068AFCCA80498554563F7F29DDC29509E6095
 magnet:?xt=urn:btih:A1F9E4F31B01A3DD8EA48BBA46E763B2091AC051
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:A1F9E4F31B01A3DD8EA48BBA46E763B2091AC051
 ```bash
 magnet:?xt=urn:btih:51334FD5D6124B0360683D236599A4BA508E55EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +551,8 @@ magnet:?xt=urn:btih:51334FD5D6124B0360683D236599A4BA508E55EC
 magnet:?xt=urn:btih:BAD690B06D14CB7E1E1021ACB77437068905DADC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +576,8 @@ magnet:?xt=urn:btih:BAD690B06D14CB7E1E1021ACB77437068905DADC
 ```bash
 magnet:?xt=urn:btih:7649B4CAC1E37A165C3A01E04A3C585E53421184
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:7649B4CAC1E37A165C3A01E04A3C585E53421184
 magnet:?xt=urn:btih:377BCF5A07F97D2F56F5585A2CCE60C5AC287259
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:377BCF5A07F97D2F56F5585A2CCE60C5AC287259
 ```bash
 magnet:?xt=urn:btih:7233ADB5611A56876D243858D4DFF689237480BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +655,8 @@ magnet:?xt=urn:btih:7233ADB5611A56876D243858D4DFF689237480BC
 magnet:?xt=urn:btih:4BEED829F22C08E7351CDD691B6341CF43DB7E4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,30 +681,7 @@ magnet:?xt=urn:btih:4BEED829F22C08E7351CDD691B6341CF43DB7E4A
 magnet:?xt=urn:btih:00D91C04B3D210AD03A6505A6A6A1C6005B96C1C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378586   (846523) от 25.04.2020
-
-Грегуар Шамаю | Теория дрона (2020) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Применение военных дронов во время боевых действий запустило общественную дискуссию о правовых и этических вопросах. Американская военная стратегия не обсуждалась так широко со времен дебатов о ядерной войне.
-Можно ли по-прежнему говорить о войне, когда риск не является взаимным и целые группы людей рассматриваются как потенциальные мишени, перед тем как стать мишенями (   Читать дальше...   )Жанр: Военное дело, Спецслужбы, ПублицистикаПеревод: Евгений БлиновФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F27F96020AF99D5FA28E92DB440FD5F08B3DA774
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

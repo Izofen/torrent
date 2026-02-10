@@ -22,6 +22,8 @@ A4 Big Saarinen - We're An American Band(   Читать дальше...   )Жа
 magnet:?xt=urn:btih:CCF17B19978E02F061A45469741DBC0D06EC37C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ B1a	2. Grave(   Читать дальше...   )Жанр: ClassicalПродол�
 ```bash
 magnet:?xt=urn:btih:5469122371C79B871FC2A86F23F1879DF8ED662B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Югославская Эстрадная Музыка (1976) [FLAC 2.0|96/
 magnet:?xt=urn:btih:85A02A41D513E96BF4A8D2E4BC34F831F4224D94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ A4 Hobo's Mediation(   Читать дальше...   )Жанр: Folk Rock, Coun
 ```bash
 magnet:?xt=urn:btih:3FBEFD497C47F9C6A5EB5304107AA3DBD4A89E56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ A4. Gypsy (5:10)(   Читать дальше...   )Жанр: Hard RockПрод�
 magnet:?xt=urn:btih:E4BEA7B15F939916D64438753372157FB9114BC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Lana Del Rey - Norman Fucking Rockwell! (2019) [FLAC 2.0|24/192|tracks|Vinyl-Rip
 ```bash
 magnet:?xt=urn:btih:A8159766C9373F2150ACA16540A87A0C748EE511
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ A4 Gotta Rock(   Читать дальше...   )Жанр: Hard RockПродол
 magnet:?xt=urn:btih:E18421F42ED375F675BE66EDD46BB02C87E3B9F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Добрые колыбельные для сладких снов (3) в �
 ```bash
 magnet:?xt=urn:btih:91BFB381C53A6131C9A0A4AFD1D2BCBAA6174DC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ A4. Run To The Stars (4:39)(   Читать дальше...   )Производ�
 magnet:?xt=urn:btih:96B5822D464C356CDA712AF27CD41606469F8578
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ magnet:?xt=urn:btih:96B5822D464C356CDA712AF27CD41606469F8578
 ```bash
 magnet:?xt=urn:btih:308B7FD7C0169F91B5DA4FF5384A9B47ECA989B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ Pink Floyd - Delicate Sound Of Thunder (2 LP) (1988) [WavPack|192/32|tracks|Viny
 magnet:?xt=urn:btih:AE6718A21081EAFCC78388CE02D30DC97CABBBF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,34 @@ A4 Все Мы Верим(   Читать дальше...   )Жанр: Heavy Met
 ```bash
 magnet:?xt=urn:btih:3A8C96644EC00ECE51D19B47E1268D09DAF7D075
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 257891   (341116) от 14.11.2010
+
+Richard Friedman - Directions: Center [DTS 5.1 CD-Audio from Audio-DVD] (2000) <New Age>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_341116.jpg" />
+</div>
+
+
+###  Подробнее
+
+1  Journey To The CenterЖанр: New Age, RelaxПродолжительность: 00:50:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +393,8 @@ A4. Demolition Man (3:46)(   Читать дальше...   )Производс�
 magnet:?xt=urn:btih:6CDFA27E225714123D416437C9B764AC46FC405C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +421,8 @@ A4 Sweet Dreams(   Читать дальше...   )Жанр: Prog Rock, Symphoni
 ```bash
 magnet:?xt=urn:btih:70858773752C1E07300167E7C371F1DC5A3ADCF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +451,8 @@ A4. One Fine Day (3:29)(   Читать дальше...   )Производст�
 magnet:?xt=urn:btih:E4A1EB9397DDC99578E447B43FAA1ACC517D74F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +479,8 @@ Robert Plant and The Sensational Space Shifters - Carry Fire (2017) [DSD 2.0|282
 ```bash
 magnet:?xt=urn:btih:47D9E113ADA24AA8B25EFC0C10B3BBBA6F3EBA2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +509,8 @@ D1 Gdansk (Tina)(   Читать дальше...   )Жанр: Electronic, Berlin
 magnet:?xt=urn:btih:5FF1C9A94ADE865987476D01A3875C882A18B7D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +537,8 @@ Pink Floyd - Atom Heart Mother (1970) [DTS 4.0|44.1/16|image +.cue|DVD-AudioV] <
 ```bash
 magnet:?xt=urn:btih:BC21A018C73A63C217114DC4D2016D08B37141B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +567,8 @@ magnet:?xt=urn:btih:BC21A018C73A63C217114DC4D2016D08B37141B2
 magnet:?xt=urn:btih:558FB2CA57D2652980F2A6F6E83DFD47B253470F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +594,8 @@ B. Вариации 16 — 30. Ария 26:30Жанр: Electronic, Classical, Ne
 ```bash
 magnet:?xt=urn:btih:6EC2E6412BEE348F10DD94AE8C445F25A6BC3A48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +624,8 @@ A4 Девушка В Белом • A. Girl In White(   Читать дальш�
 magnet:?xt=urn:btih:0C4207DEC35430C0DBC66FD70EF84F7EE3AE3FD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +652,8 @@ magnet:?xt=urn:btih:0C4207DEC35430C0DBC66FD70EF84F7EE3AE3FD1
 ```bash
 magnet:?xt=urn:btih:B1C758650B081714C4622529257FDD86C21112C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +682,8 @@ magnet:?xt=urn:btih:B1C758650B081714C4622529257FDD86C21112C5
 magnet:?xt=urn:btih:9ED1FDFD474F25BFA47CD2E25CD826E6618FA078
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +710,8 @@ magnet:?xt=urn:btih:9ED1FDFD474F25BFA47CD2E25CD826E6618FA078
 ```bash
 magnet:?xt=urn:btih:1F63D89CDCD569479C8D0A620B3130E10F1477FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -666,29 +740,7 @@ A4 Surface To Air(   Читать дальше...   )Жанр: Hard Rock, Classi
 magnet:?xt=urn:btih:1936BD7C51CAFD46AD48AD09E69728AF3DE41A5D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072526   (351827) от 13.11.2016
-
-Andrew Lloyd Webber & Tim Rice - Jesus Christ Superstar (1970)/Иисус Христос  суперзвезда 2LP (1991) [WavPack|192/32|tracks|Vinyl-Rip] <Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classic RockПродолжительность: 01:27:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B78AC4AD8380CDF662BC646B3C722BAF9A22AB7D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

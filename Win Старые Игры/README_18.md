@@ -19,6 +19,8 @@ Sarah 2 - Das Geheimnis der Einhornfohlen / Девочка и единорог (
 magnet:?xt=urn:btih:BA49F64552FDB45635177499A90FEA6A331892E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Space Dude [En] (RePack) 1994 | RG Games (Pilotus)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Rally Championship 2000 [Ru] (L) 1999
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Conquests of Camelot: The Search for the Grail, Conquests of the Longbow: The Le
 ```bash
 magnet:?xt=urn:btih:46BC53B859BFCB85B73FFEBD6BEE12202BAA3A4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Defcon 5 [En] (RePack) 1995 | Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Quarantine Антология [En] (RePack) 1994-1996 | RG Games (Pilotus)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Dead Space (2008) [Ru/Multi] (1.0.0.222) Repack Necros
 magnet:?xt=urn:btih:AAF6282BAAF39FC2771C168EEEA5794E907E8B1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Mortal Kombat Trilogy - это файтинг-сборник 1996 года, ко
 ```bash
 magnet:?xt=urn:btih:48B4C8E0B3D05F6398FB6DCCBC454625BA63075C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Tomb Raider: Legend / Tomb Raider: Легенда [Multi6/+] (RePack/1.2) 2006 |
 magnet:?xt=urn:btih:345CA22902142232C92E4067E1B576857CBAE507
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Battle Isle 2220: Shadow of the Emperor (RePack) [En] 1995 | RG Games (Pilotus)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Steg the Slug [En] (RePack) 1993 | RG Games (Pilotus)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Yendor 2 (сокращенно от Yendorian Tales part 2) - одна из мн
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Fire and Ice [En] (RePack) 1994 | RG Games (Pilotus)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Rampart [En] (RePack) 1992 | RG Games (Pilotus)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ TimeQuest [En] (RePack) 1991 | RG Games (Pilotus)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Delta V [En] (RePack) 1994 | RG Games (Pilotus)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ A-Train (RePack) [En] 1992 | RG Games (Pilotus)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Strike Squad [En] (RePack) 1993 | RG Games (Pilotus)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Trolls [En] (Repack) 1992 | RG Games (Pilotus)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ StarLord [En] (RePack) 1993 | RG games (Pilotus)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ Tomb Raider является игрой, которая не нуждается 
 magnet:?xt=urn:btih:3186114B036AAC1A4D4C23BFB8A159B47544687D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ Adventures of Maddog Williams in the Dungeons of Duridian [En] (RePack) 1992 | P
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ Star Wars: Starfighter (2002) [En/Sp/It] (1.0) License GOG
 magnet:?xt=urn:btih:D8B9240510D0C550288AAD0E6CDCF7641E68AE2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ Earth 2160 / Земля 2160 (2005) [Ru/En] (1.3.8) License GOG
 ```bash
 magnet:?xt=urn:btih:CF510175DE3C65F8A54B0505AC734FD5CEFF493F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ Alien Shooter + Expansions / Alien Shooter: Начало вторжения (200
 magnet:?xt=urn:btih:0374B143083DC115C6F2A1F6E4136902EBE7ECF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Stranglehold - высокотехнологичный компьютерный �
 ```bash
 magnet:?xt=urn:btih:FAA52758F9FF11D5A426DC950215AC7BA67D51C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

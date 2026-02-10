@@ -22,6 +22,8 @@ Middle Of The Road - Chirpy Chirpy Cheep Cheep, Tweedle Dee, Tweedle Dum and oth
 magnet:?xt=urn:btih:AA03A5BABA5D53E8FA538C3D0221E4EDAFD55035
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Moby – Reprise (Box Set, Special Edition) (2021) [DTS-ES Discrete 6.1 CD-Audio
 ```bash
 magnet:?xt=urn:btih:437005EDDED4F3FDA4BDC26B43F0FAA9335653E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Olivia Dean - Messy (2023) [FLAC 24/96|WEB-DL|tracks] <R&B>
 magnet:?xt=urn:btih:3B6B9C7140176FD5DB5B52ECD943588690BF58B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ B2 3. Finale. Alla breve(   Читать дальше...   )Жанр: Classical,
 ```bash
 magnet:?xt=urn:btih:C5F76111173180AF70D7042F6EC9C570DDDD5996
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:C5F76111173180AF70D7042F6EC9C570DDDD5996
 magnet:?xt=urn:btih:C5768FFFB9DE22D4CA26F74B2BC23B6FE0046FA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Emperor — норвежская блэк-метал-группа, основа�
 ```bash
 magnet:?xt=urn:btih:6CC8EDBE9CC8A2E1A81A8C3BDD8F5C6ADA895EFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Moonspell — португальская метал-группа, основан
 magnet:?xt=urn:btih:AD4FD653BE858657F16EAF3CEBBB7C16D282A735
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Mnemic — датская метал-группа, образованная в �
 ```bash
 magnet:?xt=urn:btih:C09456FDADFAF80160FCB36C5A51FCEC1A07BAD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Side A:
 magnet:?xt=urn:btih:71F207E6629AC8C46C0C88C5F6B30D40BCA9CBD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Vangelis - Blade Runner (1994) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Electronic, Ne
 ```bash
 magnet:?xt=urn:btih:EA3824C5253A25DA16BF5F765E988682004A1948
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ A4		Lover For Life	4:45(   Читать дальше...   )Жанр: Electronic,
 magnet:?xt=urn:btih:8DFCAC09B0B95719E08F455F57E20928094D910D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Wuthering Heights — основанная в 1989 году датская хе�
 ```bash
 magnet:?xt=urn:btih:C2790C2EB12578DDB8E8939DB4CD50EF1643E1ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ A4 Вечная Весна(   Читать дальше...   )Жанр: Classic 
 magnet:?xt=urn:btih:6CAD26BF0A0C9FA18BA2436F744B4FB8201ABA93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +399,8 @@ magnet:?xt=urn:btih:6CAD26BF0A0C9FA18BA2436F744B4FB8201ABA93
 magnet:?xt=urn:btih:24E70CEC8684CFB9578E8EFB4986205D36C7DA8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +426,8 @@ The Sins of Thy Beloved — музыкальный коллектив из Но�
 ```bash
 magnet:?xt=urn:btih:2850E838857667DD3914CFAE98763A28F7998B54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +456,8 @@ A4 Ринго Вилли Кэт – Ты Слишком Красива(   Чит
 magnet:?xt=urn:btih:7ACB39F6A822F85F74B3091BAC2ED8668239BAAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +484,8 @@ magnet:?xt=urn:btih:7ACB39F6A822F85F74B3091BAC2ED8668239BAAC
 ```bash
 magnet:?xt=urn:btih:559084019D1B11B1F3B6B9DE1AF515BF7D240B68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +514,8 @@ A4 This Alone Is Love 5:13(   Читать дальше...   )Жанр: Electron
 magnet:?xt=urn:btih:8D6868FBE367A08BB0303738B18AB784F6863B85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +542,8 @@ Entombed — шведская дэт-метал-группа, сформиров
 ```bash
 magnet:?xt=urn:btih:202CA229E76592ACD22373D03DC113A984759380
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +572,8 @@ Civil War — хеви-пауэр-метал-группа из Швеции, о�
 magnet:?xt=urn:btih:3014CBC3A138A5D2C9798A678555C9E42C30EA9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +600,8 @@ A4 В. Стойкович – В Долгих Ночах(   Читать дал�
 ```bash
 magnet:?xt=urn:btih:E18B17D203C39F9283540A540F383D0577F52098
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +630,8 @@ Danzig — американская метал-группа, смешивающ�
 magnet:?xt=urn:btih:9DECC7B09715B5ECA90511A43FA253427D4391FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +658,8 @@ Darkseed — немецкая готик-метал-группа, образов
 ```bash
 magnet:?xt=urn:btih:40F1C6AC053FEA983DB4813116F75EE2F2ABA434
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +688,8 @@ A4 Original Song(   Читать дальше...   )Жанр: Electronic, PopП�
 magnet:?xt=urn:btih:B2623DCC96EA8789D4F7D9C132CC461ED1AFC7B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +717,8 @@ B1. The Sinner In Me (4:56)(   Читать дальше...   )Жанр: Electro
 magnet:?xt=urn:btih:AE6A86AAFF7E3EB1C8F7E43049BAAEE7137C8110
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +745,8 @@ John Di Martino's Romantic Jazz Trio - So In Love (2015) [DSD64 2.0|1bit/2822,4k
 ```bash
 magnet:?xt=urn:btih:F1CE7CEED1D139182288E974135F470CBA93685D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

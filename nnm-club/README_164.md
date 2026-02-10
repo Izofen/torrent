@@ -22,6 +22,8 @@ Violator — бразильская трэш-метал-группа. Являе
 magnet:?xt=urn:btih:0B5DEE40132A4069B4CB4787058DD0857BA2FCDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:0B5DEE40132A4069B4CB4787058DD0857BA2FCDE
 ```bash
 magnet:?xt=urn:btih:EB484D1E814C709CAC56EEA74B5C8A82EE66D3E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:EB484D1E814C709CAC56EEA74B5C8A82EE66D3E2
 magnet:?xt=urn:btih:94BDEFE1D009EAEC4B1E010F81E90F400D13A4F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:44E55ECA70FEB0A1A23090A5A9CC248FDCA5810C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Auslogics SSD Optimizer - специальный инструмент, разр�
 magnet:?xt=urn:btih:AF61EA05427078CF6E1F0A5286F13B36E5756C22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Enshrouded - увлекательная игра, действие которо�
 ```bash
 magnet:?xt=urn:btih:446B2F73C26D7360DCC35325F8D51B2F0A4EB3B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:446B2F73C26D7360DCC35325F8D51B2F0A4EB3B1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:446B2F73C26D7360DCC35325F8D51B2F0A4EB3B1
 ```bash
 magnet:?xt=urn:btih:5CA3E68EB9EF06EE1EB40A37AF13221424045599
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ Purvpn 9.1 [En/Farsi]
 magnet:?xt=urn:btih:468AA7F96050C21F0BD2CFF9C6662D3086CE25B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:468AA7F96050C21F0BD2CFF9C6662D3086CE25B2
 ```bash
 magnet:?xt=urn:btih:19BDAB06CDF064181684689B229431DE8AC83D1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ updated_aug_2025_x64_dvd_65bb5415.iso
 magnet:?xt=urn:btih:217B33F1DC6A9EE9C83A15BAA3B4239A6A73FD99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ Tusk — могущественный персонаж, призванный Д�
 ```bash
 magnet:?xt=urn:btih:C6CF2138C01B1224F38BA21C6482B12BAF945FDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:C6CF2138C01B1224F38BA21C6482B12BAF945FDA
 magnet:?xt=urn:btih:CD20C5616CB1795A8E89BCD750C9274524E9B8EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ Form Pilot Office — программа для заполнения элект�
 ```bash
 magnet:?xt=urn:btih:8A0CC81B8C4EC53B03C24C13D5BD3D53FD1CF7DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ Duplicate File Finder Pro поможет найти дубликаты файл�
 magnet:?xt=urn:btih:E139E30C6E3D511EF09A9E01F0C5C9ACBE54575F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ MechWarrior 5: Mercenaries (2019) [Ru/Multi] (1.10.370/dlc) Repack FitGirl [Inne
 ```bash
 magnet:?xt=urn:btih:6BC4FBCF83899E92367FEB0EFF4E11A5A60029A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ magnet:?xt=urn:btih:6BC4FBCF83899E92367FEB0EFF4E11A5A60029A7
 magnet:?xt=urn:btih:C97D822A47C07A80FCEEA54B55403AF4DE6194E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:C97D822A47C07A80FCEEA54B55403AF4DE6194E4
 ```bash
 magnet:?xt=urn:btih:B9250E602134C708D8871784443D28F9091A4BFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ Any Video Downloader Pro - это приложение для Windows, кото�
 magnet:?xt=urn:btih:AE332492CA50DA96B4EB77257B9C70F81026D2DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ PowerSlave (1996) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:7E179E003E0FAB7050A9B8E82D44C30C08ED2252
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ Calibre - простая и удобная программа для управ�
 magnet:?xt=urn:btih:B8803B4E7F6AC409EFB8E2521CFDAF4718A2D7CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ MAX Desktop 25.10.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:E1CEFA39FFAC078642406BFB4B77AED55FD58C22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ magnet:?xt=urn:btih:E1CEFA39FFAC078642406BFB4B77AED55FD58C22
 magnet:?xt=urn:btih:A6AA248F95F496C2CB1CA86C279988D57EDB893A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:772CDD20AFF84EB6A7ED4126DDEB6105BEA3E1E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:772CDD20AFF84EB6A7ED4126DDEB6105BEA3E1E0
 magnet:?xt=urn:btih:B69379FAA1835E81CC7C82060330058A02C4ADE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ Cronos: The New Dawn - это новое слово в жанре survival horro
 ```bash
 magnet:?xt=urn:btih:3960265E392AF5B998204C74DB2873E75138F340
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

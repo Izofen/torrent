@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3EF31D4C5EE3C295E46741B2B50D3814DEBCB4A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Udemy, Alexander Batashov | Ruby on Rails - 2020. Создание Интерн�
 ```bash
 magnet:?xt=urn:btih:2F9B30B09B800E87376723CDCE1E9C21B87C899B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:2F9B30B09B800E87376723CDCE1E9C21B87C899B
 magnet:?xt=urn:btih:26AE505592C4051578E1814839E04ADD2514E206
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Bazanova Art, Ольга Базанова | Роскошь лета. Пакет 
 ```bash
 magnet:?xt=urn:btih:797947A89A1E3B0FC8750D5E2DC49A9FF0A7AAC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Optionally, you'll be able to run the final system in a real cloud environment (
 magnet:?xt=urn:btih:8B72605F7BAC552065BD57A8B2322F77E518E751
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Liveclasses, Алексей Шадрин | 12 неизвестных шедев�
 ```bash
 magnet:?xt=urn:btih:8FAF1EF305D80D724110C23480F9D45B8734374E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ Garden Group, Ксения Мезенцева | Ландшафтный диза�
 magnet:?xt=urn:btih:C14BAB2069A0357B2C498B417ABEC91282D8F936
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ Level One, Олег Грознов | Как устроены лучшие гол
 ```bash
 magnet:?xt=urn:btih:5942625277F5659FBE2CC8AEC2A3A69518408719
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ Enterclass, Анастасия Беседина | Акварельная фау�
 magnet:?xt=urn:btih:3AE54C69651B74046F576C8FC939B641508252F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ Hudozhnik Online, Дарья Куцаева | Скетчинг цветными 
 magnet:?xt=urn:btih:A7A7096FDC9CF1381DACEB3A314E4F4F770759DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ ArtStation, Mathew O'Halloran | Hard-Surface Masters Vol.1 (2021) PCRec [EN]
 magnet:?xt=urn:btih:CE2920CEE79A609E9436AF8BD044A0C3D3977559
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ Skillshare, 3D Tudor, Neil Bettison | Blender VFX Liquid Fire & Smoke (2021) PCR
 ```bash
 magnet:?xt=urn:btih:D8FE60B032277FEBD50EC3B205EA83C2B6740167
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ Udemy, Michael Gerard | Unreal Engine 4: Learn How to Create a Natural Scene Par
 magnet:?xt=urn:btih:9BD70AB861CBD75FF45AD3188CDFAD3DE17E69F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ JPoint 2022 — международная Java-конференция. Спик
 magnet:?xt=urn:btih:33D086436B4F2086D410CAE2242D616CFBA81411
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ Photoplay, Мария Климова | Цвет в фотографии (2020) W
 ```bash
 magnet:?xt=urn:btih:98928404C789437C6D33A25C9470D114B4C769E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +434,8 @@ magnet:?xt=urn:btih:98928404C789437C6D33A25C9470D114B4C769E3
 magnet:?xt=urn:btih:2FCF17686C62A9DD985868AAD5E95007B50FF12C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ The Gnomon Workshop, David Silberbauer | Create A Procedural Waterwheel Simulati
 magnet:?xt=urn:btih:7FB1789EB8A67C0706CA56A3018BBE84EAFE811F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ magnet:?xt=urn:btih:7FB1789EB8A67C0706CA56A3018BBE84EAFE811F
 ```bash
 magnet:?xt=urn:btih:88CE249DAC97AEFB8A08859D692F58403ED568F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +517,8 @@ magnet:?xt=urn:btih:88CE249DAC97AEFB8A08859D692F58403ED568F7
 magnet:?xt=urn:btih:04EDDB1A52E47FDB36FE4C281B549535E02AC221
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ Muddy Colors, David Finch | Fantasy Anatomy (2021) WEB-DL [EN, RU]
 magnet:?xt=urn:btih:DFE7C056F1F2B8FE70837A01002C0FA97E04A508
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +570,8 @@ Pyro I разработан, чтобы помочь вам начать соз�
 ```bash
 magnet:?xt=urn:btih:ED17464AB0E68FE48A1CCD73384F3ACB869C44A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +599,8 @@ Profileschool, Алексей Шадрин | Художественный обр
 magnet:?xt=urn:btih:E6C8A7A6B97C092ACAFAC60480C186970171C1A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ Digital Art Club, Алёна Клементьева | Цифровая Живо�
 ```bash
 magnet:?xt=urn:btih:B7A90E4381AC2B7FEEF9CAB8C8FCF1ECB7EE8FCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +653,8 @@ magnet:?xt=urn:btih:B7A90E4381AC2B7FEEF9CAB8C8FCF1ECB7EE8FCF
 magnet:?xt=urn:btih:8EB8172BCFB57133282EF793E37722B02A18CA71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +678,8 @@ Gumroad, Overdraw.xyz | Advanced Visual Effects in Unreal: Materia (2020) PCRec 
 ```bash
 magnet:?xt=urn:btih:4F9EA444D3AB8D64D809744E17ECA950AD65B08B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -656,6 +706,8 @@ magnet:?xt=urn:btih:4F9EA444D3AB8D64D809744E17ECA950AD65B08B
 ```bash
 magnet:?xt=urn:btih:185EAC0E9036E2B1A261F888F523911C49EDEE8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

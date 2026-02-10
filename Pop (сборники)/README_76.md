@@ -1,3 +1,32 @@
+###  Публикация: 904215   (655174) от 02.06.2015
+
+VA - Дискотека Nonstop Party №1 (2015) [MP3|320 кб/с]<Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655174.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Iowa - Улыбайся
+002. Bass Ace, Albina Mango - This Is Deep (Colin Rouge Remix)
+003. Aronchupa - I'm An Albatraoz
+004. Awolnation - Sail (No Hopes, Misha Klein Remix)(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 14:16:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08C261C9AECDA27201C42DA838DA9D108BDC4D39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904169   (655232) от 02.06.2015
 
 Балаган Лимитед - Лучшие Песни (2015) [MP3|320 кб/с]<Pop>
@@ -21,6 +50,8 @@
 ```bash
 magnet:?xt=urn:btih:888E73EEA9B3BAB970BDC9C197088184AF6D4C84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -55,6 +86,8 @@ VA - Звезды Дорожного Радио 1 (2012) [MP3|256 kbps]<Pop>
 magnet:?xt=urn:btih:8EC0902540EE351901EB03266C49632D3627E200
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -87,6 +120,8 @@ VA - Жаркие Хиты Лета 50/50 (2012) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:11A6F6820EAB959B3B995F2C420E2027DF321CEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +156,8 @@ VA - Самые Горячие Русские Хиты Муз-ТВ Хит 4 (201
 magnet:?xt=urn:btih:0C3BC74F844FFE9BC63282035C777D13EF4A4D72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +184,8 @@ VA - Русский Хит В Машину Выпуск 2 (2018) [MP3|256-320 Kb
 ```bash
 magnet:?xt=urn:btih:C41CD3D7AD867A88BAA6C592E5B941C6FD7CB86F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +214,8 @@ VA - Retro Radio Party (2017) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:5263FAD6C019F091380560D97AFBFD3C2AF65C84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +242,8 @@ VA - Unique Disco (2018) vol 2 [MP3|320 Kbps] <Electronic, Funk-Soul, PopRock, D
 ```bash
 magnet:?xt=urn:btih:203323022E2F8335B6D726E214C3E1F175E49E36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +278,8 @@ VA - Жаркая летняя дискотека (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:65727871A4A451AAEB026FC332BE75192B49CEEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +307,8 @@ Jan Jensen - Коллекция (2022) [MP3|320 Kbps] <Italo-Disco, Pop, Synthpo
 magnet:?xt=urn:btih:92FDE707D5A5B6BD6F1DB99E1F321160D2BA2129
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +335,8 @@ VA - Только русский свежак. Топ новинок поп му
 ```bash
 magnet:?xt=urn:btih:8A2F9520E46B7842C722168FE8C03644CA4DB41D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +371,8 @@ VA - Самый Лучший Хит-Парад DFM (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:A1441F604D7AF43BCFB1F6289B4D878E3A260A19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +406,8 @@ CD-1
 magnet:?xt=urn:btih:3B81933FC9610DF87FF9221A9C5FA18772E9ECA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +434,8 @@ VA - German Top 100 Single Charts 18.05.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:048FA8B89610A142A0693676619C06489DDAB877
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +470,8 @@ VA - Летний Хитовый Музыкайф (2012) [MP3|256 kbps]<Pop>
 magnet:?xt=urn:btih:B7A8A7455AD46A70A0623AC7EDD2934E0E400EBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +498,8 @@ VA - Дискотека Популярных Хитов (2018) [MP3|320 Kbps] <�
 ```bash
 magnet:?xt=urn:btih:B2AF484A26F40D7F11CB59445BA5552AECAECECF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +528,8 @@ CD1
 magnet:?xt=urn:btih:1637C2DF62454C7BA03D67FFBC925702D98A6771
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +556,8 @@ VA - 150 Sport Dance Music (2018) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:96E317303FF51EBC793E9BDAD71B153CE67A2AE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +592,8 @@ VA - Пляжная Дискотека Хит FM 50+50 (2012) [MP3|256 кб/с]<
 magnet:?xt=urn:btih:68C66B8F93D347F8A08B2DABEEDC3D10AA07D6AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +627,8 @@ CD-1
 magnet:?xt=urn:btih:8396A4DFCCBF92480EA8907E5A4AB3867DBD0F1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +655,8 @@ VA - Популярная хитовая сотка (2015) [MP3|256 кб/с]<Pop
 ```bash
 magnet:?xt=urn:btih:1C9C711BC2D630A18C23964CC889F6F9A1E6DFEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +685,8 @@ VA - USA Hot Top 40 Singles Chart 6 June (2015) [MP3|~245 кб/с (V0)]<Dancehal
 magnet:?xt=urn:btih:AE0A70F8C3D204DB5E9311E9379AB0C441061254
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +713,8 @@ The Bee Gees - The Platinum Collection (2017) 2CD [MP3|320 Kbps] <Pop-Rock, Folk
 ```bash
 magnet:?xt=urn:btih:2EE60C2CC8DDDCD2EBEFCD567CA4A98F42779759
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +743,8 @@ VA - Summer Nostalgia: Cherry Disco 80s (2017) [MP3|320 Kbps] <Pop, Disco>
 magnet:?xt=urn:btih:C6B578504363B4A31544C72AF1B84461F42BB0D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +771,8 @@ VA - German Top 50 Official Dance Charts 11.05.2018 (2018) [MP3|320 Kbps] <Dance
 ```bash
 magnet:?xt=urn:btih:922C0695006AAF1E97B80A39B57FFA96FAAC7F9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -724,32 +801,7 @@ VA - Hit Music от Мяу - Лето (2017) [MP3|256-320 Kbps] <Pop>
 magnet:?xt=urn:btih:E220195D1F1A71ECEF86F234BA5B77182701BC8A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138274   (664147) от 29.05.2017
-
-VA - Русский отрыв Русского радио выпуск № 9 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664147.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Юлия Адамчук - Я Остаюсь 3:36
-002. Егор Диких - Дикие Племена 4:11
-003. Вика Курзова - Ты 4:11
-004. Юлия Holod - Просто Целуй 3:09(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8841A22464CDE731EB150A75D5416AFEFA0DFCF4
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 919745   (582684) от 19.07.2015
+
+Алексей Сухарев | Справочная книга мастера-любителя. Химия. Электротехника и электроника. Ремонтно-строительные работы (1997) [PDF]
+
+>>Разное (категория книг)
+>>Строительство и ремонт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга, написанная в форме энциклопедии для домашнего мастера, может быть полезна каждому, кто стремится самостоятельно решить многочисленные бытовые проблемы.  В ней приведены рекомендации и советы по реализации всевозможных химических технологий в домашних условиях, подробно рассмотрены области и способы применения различных средств бытовой химии.  Значительное внимание (   Читать дальше...   )Жанр: Строительство, ремонтФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A1C5DCBD3FE883D347F9DD784D33ED4F709E101
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 359478   (582719) от 05.07.2011
 
 Л.П. Паршукова, З.А. Шакурова. | Физиогномика: читай по лицу [2004] [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:90C4509E5E5B5D6E3748B143AA4A7C1A543A6806
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:90C4509E5E5B5D6E3748B143AA4A7C1A543A6806
 magnet:?xt=urn:btih:A04F63C401399FCACADA9C7862FD4A1E8CFBCA3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:A04F63C401399FCACADA9C7862FD4A1E8CFBCA3E
 ```bash
 magnet:?xt=urn:btih:2B37F6C10532D2493680AADE5ACD7C4483261A4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:2B37F6C10532D2493680AADE5ACD7C4483261A4E
 magnet:?xt=urn:btih:418C40E97B4449EBA5537CDDA9C0AD5FC2E52827
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:418C40E97B4449EBA5537CDDA9C0AD5FC2E52827
 ```bash
 magnet:?xt=urn:btih:D0C6A3CF1879205EA4B2BB975B04E5300FFBB6BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:D0C6A3CF1879205EA4B2BB975B04E5300FFBB6BF
 magnet:?xt=urn:btih:AFC7448598DAB8414B24214D06A92D0D3C78392B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:AFC7448598DAB8414B24214D06A92D0D3C78392B
 ```bash
 magnet:?xt=urn:btih:4696850CD639ADF8AFC83FC391F16B7482155BD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:4696850CD639ADF8AFC83FC391F16B7482155BD2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:4696850CD639ADF8AFC83FC391F16B7482155BD2
 ```bash
 magnet:?xt=urn:btih:5752D96509F21A880F60DDF53E5A271751A83D5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:5752D96509F21A880F60DDF53E5A271751A83D5E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:5752D96509F21A880F60DDF53E5A271751A83D5E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ Tom Ang | How to Photograph Absolutely Everything: Successful pictures from your
 magnet:?xt=urn:btih:1AA8D6129440F86374A0F23B9B9DA72202A8A6F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ Black Dog Media Ltd. | The Complete Landscape Photography Manual (2019, 2nd Edit
 ```bash
 magnet:?xt=urn:btih:E0662B8B52EF6B56CA05140EF5AA282A50F7D63D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ Kaisa Breeden, Stanley Breeden | Focus Stacking in the Wild: All you need to kno
 magnet:?xt=urn:btih:BCAD9410C10754679BFFD49684D666A47CCE0C95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +412,8 @@ The Beginner's Photography Guide является бестселлером DK д
 ```bash
 magnet:?xt=urn:btih:6D2A4BB60CF14EEBEC8F68BA7D677E3E387AD3CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:6D2A4BB60CF14EEBEC8F68BA7D677E3E387AD3CD
 magnet:?xt=urn:btih:B42DB0D8F0982D1E2BB78B8A8BE464BFAC0C3B79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:B42DB0D8F0982D1E2BB78B8A8BE464BFAC0C3B79
 ```bash
 magnet:?xt=urn:btih:78720CF3664B8F5232E337932F84D1CAFFFAF2B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:78720CF3664B8F5232E337932F84D1CAFFFAF2B7
 magnet:?xt=urn:btih:53197FCB5201958EDEE37BE303C9109830C15D84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:53197FCB5201958EDEE37BE303C9109830C15D84
 ```bash
 magnet:?xt=urn:btih:E84D74863B7AE8C31EC90BA7696BC92A959A2FC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:E84D74863B7AE8C31EC90BA7696BC92A959A2FC5
 magnet:?xt=urn:btih:5743650C74BDB7D2599117579DCDE433FA98995C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:5743650C74BDB7D2599117579DCDE433FA98995C
 ```bash
 magnet:?xt=urn:btih:25E4924A43EE8E8A497B76432294D1CA90180105
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:25E4924A43EE8E8A497B76432294D1CA90180105
 magnet:?xt=urn:btih:7D40C34F7E2584672EBAA7E105EF538E063A1D0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:7D40C34F7E2584672EBAA7E105EF538E063A1D0B
 ```bash
 magnet:?xt=urn:btih:30CD9394B6AC1D26810BFAB562C6621486E15666
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +651,8 @@ magnet:?xt=urn:btih:30CD9394B6AC1D26810BFAB562C6621486E15666
 magnet:?xt=urn:btih:89AFB8D2DDA483E008EA36753E3E4B0BEB378944
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,30 +678,7 @@ magnet:?xt=urn:btih:89AFB8D2DDA483E008EA36753E3E4B0BEB378944
 magnet:?xt=urn:btih:D520FE06B77E9AF04021128878724E356EEEA42B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919260   (583804) от 18.07.2015
-
-Октябрина Ганичкина, Александр Ганичкин | Новая энциклопедия садовода и огородника (2015) [FB2]
-
->>Разное (категория книг)
->>Сад, огород, животноводство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта энциклопедия – самое полное и подробное руководство для садоводов и огородников, мечтающих получать высокий урожай и рационально использовать свой загородный участок. Она содержит исчерпывающую информацию по выращиванию и защите овощных, плодовых и декоративных растений:
-   Рекомендации по посадке, подкормке, защите от болезней и вредителей, сбору и хранению урожая (   Читать дальше...   )Жанр: Сад, огородФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D59455600564222DCC8A46FD17815A7762812970
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:8747ABD0EE0EE6CDF5D03AD9E86BC3896F404A9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:8747ABD0EE0EE6CDF5D03AD9E86BC3896F404A9D
 magnet:?xt=urn:btih:85434100DE4D234734A7675ECD0639F71062A246
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ KStars - бесплатное, с открытым исходным кодом, 
 ```bash
 magnet:?xt=urn:btih:E83F20129D4C7E4224874FD544FE9F41ECAEF098
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ VA - Sonatas For The Soul (2024) [MP3|320 Kbps] <Neoclassic, Classic, New Age>
 magnet:?xt=urn:btih:5ACC941B654B3C30AB5D1D5EFAE93D010C888CDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:5ACC941B654B3C30AB5D1D5EFAE93D010C888CDD
 magnet:?xt=urn:btih:C8ECD1FE89E59E704134CAAB7328B7238DA681EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:C8ECD1FE89E59E704134CAAB7328B7238DA681EC
 ```bash
 magnet:?xt=urn:btih:07278F960FE58193A76447A524983EA327108427
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ NIUBI Partition Editor – программа для простого и над�
 magnet:?xt=urn:btih:2ED44CC8E62936600711D979EBE2EB42A83FCFDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ Icecream PDF Editor PRO - программа для поистине прост�
 ```bash
 magnet:?xt=urn:btih:8784A0075E0703B1A310F870FC49AC87C37A4F96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:8784A0075E0703B1A310F870FC49AC87C37A4F96
 magnet:?xt=urn:btih:A636D62A5A85BB4124680B0B38560EBD456D38A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ Icecream Screen Recorder – простая программа для запис
 ```bash
 magnet:?xt=urn:btih:7DC2437D4367DA6D9530EEAD64E46758C4E59AA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:7DC2437D4367DA6D9530EEAD64E46758C4E59AA3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:7DC2437D4367DA6D9530EEAD64E46758C4E59AA3
 ```bash
 magnet:?xt=urn:btih:DC987323406C6614FB1199953F46CA2C23EE32F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 magnet:?xt=urn:btih:FE28A7A44C874A06A6969CEC4F410AD68BCEFF3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:FE28A7A44C874A06A6969CEC4F410AD68BCEFF3F
 ```bash
 magnet:?xt=urn:btih:09E2AB95B2B1B44D6EECC7B470DCE9A76BE979D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:09E2AB95B2B1B44D6EECC7B470DCE9A76BE979D2
 magnet:?xt=urn:btih:969C7F8490162A6295FE498FD449905C2CC5E657
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ Kingston SSD Manager — это приложение, предоставляющ
 ```bash
 magnet:?xt=urn:btih:8C15595AA59EA2CD671A31D38E0A0663A0C87364
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ magnet:?xt=urn:btih:8C15595AA59EA2CD671A31D38E0A0663A0C87364
 magnet:?xt=urn:btih:6E9D2AA8B7D00AE61E27FBCFF9305C8687C4CA70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ DefenderKiller - удаление Windows Defender (Защитник Windows)
 magnet:?xt=urn:btih:28B1D986883D8CD3907E6AE84BE4342E60E21B14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ magnet:?xt=urn:btih:28B1D986883D8CD3907E6AE84BE4342E60E21B14
 ```bash
 magnet:?xt=urn:btih:E297C0D2B65E9A6CE57AECF66F8E1535BEDABA96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ SamDrivers 24.00 LAN [Multi/Ru]
 magnet:?xt=urn:btih:5F04442BCEC14305FD62F3C22CDC5E46B3038318
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ Adobe Acrobat Reader — приложение Reader для самых важн�
 ```bash
 magnet:?xt=urn:btih:8FD6B387791419BE9A1269B64D3C647563AF580F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +580,8 @@ magnet:?xt=urn:btih:8FD6B387791419BE9A1269B64D3C647563AF580F
 magnet:?xt=urn:btih:B98B4BC92883532DC066FBA2E9ACE2DBA6B64069
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ magnet:?xt=urn:btih:B98B4BC92883532DC066FBA2E9ACE2DBA6B64069
 ```bash
 magnet:?xt=urn:btih:1DD036CF962330A87160DCD0D5F62B80BC2D758B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +632,8 @@ Shining Song Starnova повествует о попытках девушек-а
 magnet:?xt=urn:btih:0FC529F2E68A1D1F02BCDB4FFCDC10323E74A3FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ magnet:?xt=urn:btih:0FC529F2E68A1D1F02BCDB4FFCDC10323E74A3FA
 magnet:?xt=urn:btih:73F73C6FFD256EAFDA965AFB6ED7A8D7BF277F55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ magnet:?xt=urn:btih:73F73C6FFD256EAFDA965AFB6ED7A8D7BF277F55
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

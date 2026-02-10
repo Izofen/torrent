@@ -19,6 +19,8 @@ Icecream Image Resizer Pro 2.08 RePack (& Portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:D2A39E88B153DBB94CF2F7DB42AFCACA035F0FED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ YUMI (Your Universal Multiboot Installer) - бесплатная програм�
 ```bash
 magnet:?xt=urn:btih:A1C8E0626609B91A1913A8BF378D240D0F883C0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:A1C8E0626609B91A1913A8BF378D240D0F883C0D
 magnet:?xt=urn:btih:AC7EBED63365FF2658C8801F5D7883C7091C6CD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Fluffy Horde – двухмерная сайдскроллинговая арк�
 ```bash
 magnet:?xt=urn:btih:AD1C2207F55272AE8925E0F2585975BCA039D866
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ All That Remains - Victim of the New Disease (2018) [MP3|320 Kbps] <Melodic Meta
 magnet:?xt=urn:btih:BA86C49BBAE5BF8D2ECD581702741944DA854D77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Basilisk - веб-браузер с открытым исходным кодом
 ```bash
 magnet:?xt=urn:btih:43C3A24318EB0E9F5EED9028B0588CAD2CB521B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Auslogics Anti-Malware предлагает дополнительную защ�
 magnet:?xt=urn:btih:DA7C6311851B413429E386799D29F73647892ABB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Air Explorer Pro — один из лучших файловых менедже�
 ```bash
 magnet:?xt=urn:btih:D5A843AB5E920F38D4F2EFD34A150B1FAAA74119
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:D5A843AB5E920F38D4F2EFD34A150B1FAAA74119
 magnet:?xt=urn:btih:9491C917F5D115533058CA18A6DEEF92D80F61A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:9491C917F5D115533058CA18A6DEEF92D80F61A5
 ```bash
 magnet:?xt=urn:btih:3095A72EB220DACDDCCB5ACE7629B70ED28AB5A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:3095A72EB220DACDDCCB5ACE7629B70ED28AB5A7
 ```bash
 magnet:?xt=urn:btih:60E4BF940EE403BD231C7FD8340A2D086B93AF05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:60E4BF940EE403BD231C7FD8340A2D086B93AF05
 magnet:?xt=urn:btih:9B66EDD2AD4330A9F3E52AD719B3204214E63EA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ VA - White Elegant Electro Party (2019) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:43E4393EAB52CAE2535CD33CCDB0D540D910C5B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ Waterparks - FANDOM (2019) Limited Edition [FLAC|Lossless|tracks + .cue] <Pop Pu
 magnet:?xt=urn:btih:0EFFC8BFF7CBAD52C3341F7910AFDAA561DEA3C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ iA Writer 5.3 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2A901F0B5144673642A9A35705BAB5C5D4C7E21A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ Swinsian — простой аудио плеер с функцией управ
 magnet:?xt=urn:btih:8606B3512637CE0D25F9F4FFE9C101771086DBBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ Danny Fervent - Beautiful Life (2019) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:CB3DE3E548E3AD17599AB3210484C4FDA33BE20D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ VA - Prime Basslife Electronic (2019) [MP3|320 Kbps] <D&B, Jungle, Bass Line>
 magnet:?xt=urn:btih:A88063873D69FC2378006BC3C2769232B72C2A14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ FigrCollage - программа для создания удивительны�
 magnet:?xt=urn:btih:693AAA35C94B3A2EF44125C5B7FADF238B5B3A1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ Paste 2.5.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:50975577CB31DA1C405BFA8187137C4569BDDFC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +564,8 @@ Alan Broadbent - Live at Maybeck Recital Hall, Vol.14 (1991) Concord Jazz [FLAC|
 magnet:?xt=urn:btih:0842D072B6B9B3F44688E0EB1EAE8D3297B1721D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +593,8 @@ Alan Broadbent & Gary Foster - Recorded Live At Maybeck Recital Hall (1993) Conc
 magnet:?xt=urn:btih:8355B7E22D1F4820A9EA33A7E76778CB09BEDEEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ Amadeus Pro - многотрековый музыкальный редактор
 ```bash
 magnet:?xt=urn:btih:0DD1E452A7AEB146120F24DCC9A2E515798FC1EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:0DD1E452A7AEB146120F24DCC9A2E515798FC1EB
 ```bash
 magnet:?xt=urn:btih:585E4E39ADEDEEE626852DC8B2C4DFFFB880B70E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +674,8 @@ Lynda.com | Access 2010: Forms and Reports in Depth - Access 2010: Формы и
 magnet:?xt=urn:btih:095C32304831D4CFD90B1782C610A4AA2C251FA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ magnet:?xt=urn:btih:095C32304831D4CFD90B1782C610A4AA2C251FA2
 ```bash
 magnet:?xt=urn:btih:3B9C4DCC814D44ABE8B3E561C5006762EBAC5689
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

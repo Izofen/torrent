@@ -19,6 +19,8 @@ Python. Самое полное руководство по разработке
 magnet:?xt=urn:btih:AC84E72DE4EB969FFFCF12A571C9E58AACA632CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:AC84E72DE4EB969FFFCF12A571C9E58AACA632CF
 ```bash
 magnet:?xt=urn:btih:753142A488FE2A36A96D97CEEDE12943D3E197E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Kameron Hussain, Frahaan Hussain | Linux Unveiled: From Novice to Guru (2024) [E
 magnet:?xt=urn:btih:3DB69709452553B98D6648726E695E937D0A242A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:3DB69709452553B98D6648726E695E937D0A242A
 ```bash
 magnet:?xt=urn:btih:EAF71D3AC1991D8A683D87E926E1F50AC41151CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:EAF71D3AC1991D8A683D87E926E1F50AC41151CF
 magnet:?xt=urn:btih:43122161B789A3C366D3C8F9D651049C32013DAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:43122161B789A3C366D3C8F9D651049C32013DAA
 ```bash
 magnet:?xt=urn:btih:BC56C0D144C0E88D65F5C7E08BF6C7C70CAA11EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:BC56C0D144C0E88D65F5C7E08BF6C7C70CAA11EB
 magnet:?xt=urn:btih:43A058361161701824460EB45C20A3C1C5FEC46E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:43A058361161701824460EB45C20A3C1C5FEC46E
 ```bash
 magnet:?xt=urn:btih:E5DE344E26E43E13160FEB5D656215254476A76E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:E5DE344E26E43E13160FEB5D656215254476A76E
 magnet:?xt=urn:btih:CD9E4F17612EA27F470A79238E9AC8DBDC16A54B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:CD9E4F17612EA27F470A79238E9AC8DBDC16A54B
 ```bash
 magnet:?xt=urn:btih:CE6161928BF428E8C298243B8C95604C62124F80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:CE6161928BF428E8C298243B8C95604C62124F80
 magnet:?xt=urn:btih:62B796840DFE18CCE88C605022089FB9E6CAC8D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:62B796840DFE18CCE88C605022089FB9E6CAC8D7
 ```bash
 magnet:?xt=urn:btih:7AA3AE8E9AF4D60237A0503ED2229F06FEC4070D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:7AA3AE8E9AF4D60237A0503ED2229F06FEC4070D
 magnet:?xt=urn:btih:38F68279440F5CF667D5236534BAB26902C4E638
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Michael W. Lucas | Absolute FreeBSD, 3rd Edition: The Complete Guide to FreeBSD 
 ```bash
 magnet:?xt=urn:btih:AC8E8167422743704E95487D12783F22723EA288
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:AC8E8167422743704E95487D12783F22723EA288
 magnet:?xt=urn:btih:85DA227297BE5189075C79DBD0FCD70DF8E656B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:85DA227297BE5189075C79DBD0FCD70DF8E656B3
 ```bash
 magnet:?xt=urn:btih:51C0CA4CF740651571FA5B67CEC92CA5D74B13CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Nanik Tolaram | Software Development with Go (2022) [PDF][EN]
 magnet:?xt=urn:btih:514D18A4E815FBB761CCFBB27926929EFAC17C99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ August Lilleaas | Pro Kotlin Web Apps from Scratch (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:6579BD7AE089F0B1B72FF28B27C1D6CA645E5468
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ The Little Schemer – не просто введение в функциона�
 magnet:?xt=urn:btih:B01D22D357B8C7A9BE9E62EFDE6EEF9175D1C8BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Kneusel, Ronald T. | How AI Works: From Sorcery to Science (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:BBCA4485C886C40A9A722E20173E63B8F585BAF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ Qian Han, Nick Aleks,Ben McCarty, Daniel Graham etc. | Some cybersecurity books 
 magnet:?xt=urn:btih:B40B37204A1728CBD101E3E73B31F8CCFC3870C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:B40B37204A1728CBD101E3E73B31F8CCFC3870C8
 magnet:?xt=urn:btih:1BF366739D829498789F367486F94F84F2E97296
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:1BF366739D829498789F367486F94F84F2E97296
 ```bash
 magnet:?xt=urn:btih:9942C3F74791FE204E500A5F42B8CF7D371174E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:9942C3F74791FE204E500A5F42B8CF7D371174E9
 magnet:?xt=urn:btih:B1CB37F25ED534A66B0A517E7F995C128BAA9C85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:B1CB37F25ED534A66B0A517E7F995C128BAA9C85
 magnet:?xt=urn:btih:FBBDD8C5E5DC410CCB168FBD5FE7A74B13E6DADC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:FBBDD8C5E5DC410CCB168FBD5FE7A74B13E6DADC
 ```bash
 magnet:?xt=urn:btih:787C68E56F3B4E8644886033EC490A14D2B3A1B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

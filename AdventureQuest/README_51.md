@@ -19,6 +19,8 @@ Observer: System Redux (2020) [Ru/Multi] (1.3.0rc3) Repack xatab
 magnet:?xt=urn:btih:278CAD3BDBCC01208957A69CAB5E418C117D24F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ DEATH STRANDING (2020) [Ru/Multi] (1.05) License CODEX
 ```bash
 magnet:?xt=urn:btih:CE14E1C837B74FE4A4DAF30F0AB77743FD08042E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Saint Kotar - это психологический хоррор-квест в �
 magnet:?xt=urn:btih:0FCD5773C5F9733E88B33AB0528F704782FE78AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Jusant (2023) [Ru/Multi] (1.02.1431188) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B284EE092B52193C5543365AD9F194371EF7DA39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Timelie (2020) [Ru/Multi] (1.2.4/dlc) License GOG
 magnet:?xt=urn:btih:4F5ACF8DBE88C6CEDEC397B3EC2610C9CCB9AE0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The Beast Inside (2019) [Ru/Multi] (1.03) Repack xatab
 ```bash
 magnet:?xt=urn:btih:8B69BB2A1F2347C3306D61B25CA6807C234DA31A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Martha Is Dead — это мрачный психологический трил
 magnet:?xt=urn:btih:1D690BBEA10CD0DAF9E0D29DC5B7BAE9782501AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Yesterday Origins (2016) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:A2CC0913CCE3E9C425F189AF3CE2D602616DCDC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Stray Souls (2023) [Ru/Multi] (1.0.0) License GOG
 magnet:?xt=urn:btih:4E3B27F6DEF50D40E1AF744DD1B6B65EAA542467
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Trine 4: The Nightmare Prince – очередная часть в серии л
 ```bash
 magnet:?xt=urn:btih:358B545EC98D6AE52FBA8C7ED2594C8078755EC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Titan Station — это однопользовательская мистери
 magnet:?xt=urn:btih:66817403CC2AE8BF89B2D9986A39C57ECFFB51A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Slay the Princess (2023) [En] (20231024) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:EE8309275CE3905D501055C9CCFA21B0A8C0843D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Unto The End – зрелищный рисованный платформер о
 magnet:?xt=urn:btih:07C3F64436A16E0B2A3D6BCC251F971BEBE3C006
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Agatha Christie - Murder on the Orient Express (2023) [Ru/Multi] (20231023) Scen
 ```bash
 magnet:?xt=urn:btih:D7778504A9FEC33691B3651CD9717A29C41F1C17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Divine Invasion (2021) [Ru/Multi] (1.0.0) License PLAZA
 magnet:?xt=urn:btih:4678A084FAE8568A6FEE43347A13220C2466732D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Stray Souls (2023) [Ru/Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:58DC7C9D5250429461FCBFC9580323FD14B0E547
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Machinarium / Машинариум (2009) [Ru/Multi] (4041) License GOG [Collect
 magnet:?xt=urn:btih:4F2C00629436E8F1F1EBA750CD85473F79A9D06A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Chorus (2021) [Ru/Multi] (Build 7785124) Repack Other s
 ```bash
 magnet:?xt=urn:btih:C041C9A8E2338E635930091440D82A0E70384BBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Happy's Humble Burger Farm (2021) [Ru/Multi] (1.16.0) License GOG
 magnet:?xt=urn:btih:3F9354533CE2E09BFF3B987B367F08266D44BD7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Warcraft Adventures: Lord of the Clans — отменённая компьюте
 ```bash
 magnet:?xt=urn:btih:6191B91FD343355D5F64493AD9700AC244DA8F90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Under the Waves – это повествовательная приключен
 magnet:?xt=urn:btih:2CE204A751DA055C23D3F04E6EDA5FEB406F95F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Fears to Fathom: Ironbark Lookout (2023) [Ru/Multi] (1.3) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:5111E608BF2F7DB1CE637FCF8292209008E06124
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ The Gap - это душещипательная история человека,
 magnet:?xt=urn:btih:AF758B34602795A1DC38FFEA933FD21DE70C0CAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Vlad Circus: Descend into Madness (2023) [Ru/Multi] (2.34) License GOG
 ```bash
 magnet:?xt=urn:btih:B128678B347D6705D094AF55EBC5FD9475459721
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Lair of Torment - это короткий инди-хоррор с голово�
 magnet:?xt=urn:btih:A5E3631DC60BF832C656EF7DE793336ACC48C919
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Crowns and Pawns: Kingdom of Deceit (2022) [Ru/Multi] (1.1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:B2A461ED71A179AA2E228575C0C641A585A5F7B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

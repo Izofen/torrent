@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:4E23F87CA90C9586BDA5160E013B84872E9CC210
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:4E23F87CA90C9586BDA5160E013B84872E9CC210
 ```bash
 magnet:?xt=urn:btih:F44C50AB4EA8023C4D4C037319AB648258D12FEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:F44C50AB4EA8023C4D4C037319AB648258D12FEB
 magnet:?xt=urn:btih:CC620E5A6DB83AC464136C41B9A3AEC2416684B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:CC620E5A6DB83AC464136C41B9A3AEC2416684B1
 ```bash
 magnet:?xt=urn:btih:5E4511B05DA7CAE52F1247AB212A5A3803B04D86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:5E4511B05DA7CAE52F1247AB212A5A3803B04D86
 magnet:?xt=urn:btih:6F29E28899BD1A3344404DC6BBD6801226717C79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Draw.io 26.0.9 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6AD6500961977022EF263E13924F0C54E5B854E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:6AD6500961977022EF263E13924F0C54E5B854E8
 magnet:?xt=urn:btih:431D2C149BA3FFDB3283D4521A6DA0C20B54E50A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:431D2C149BA3FFDB3283D4521A6DA0C20B54E50A
 ```bash
 magnet:?xt=urn:btih:4952B5AF2F2BA3E610013DA4A517465750C25616
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:4952B5AF2F2BA3E610013DA4A517465750C25616
 magnet:?xt=urn:btih:1349B59ACD38860200D92973122E7940123C7FFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Subtitle Edit - редактор субтитров. При помощи это�
 ```bash
 magnet:?xt=urn:btih:FC20D4518ED5B891BC9EDB23658C70E3E2DA21F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ Slabdense — это уникальная смесь шрифтов с засе�
 magnet:?xt=urn:btih:C81C19F4F310449B538786290CE8D1260F9C8081
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ Rocket Boots Mania (2018) [Ru/Multi] (1.0.3012) Repack FitGirl
 magnet:?xt=urn:btih:00269F73BC62167C8218C20D88BC987309BEAAFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 ```bash
 magnet:?xt=urn:btih:A830158BA3240A4AE76D05267CAB90D42213D8F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ VA - National Pop Dance Music Vol.97 (2025) [MP3|320 Kbps] <Pop, Dance, Folk>
 magnet:?xt=urn:btih:C7BC7446E97F6C139E15C06F4A35E9F8B2B6C8E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:C7BC7446E97F6C139E15C06F4A35E9F8B2B6C8E5
 ```bash
 magnet:?xt=urn:btih:E218AD6B3992E4DC6F79BCB3415535EC49F38070
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:E218AD6B3992E4DC6F79BCB3415535EC49F38070
 magnet:?xt=urn:btih:330D8822F3455555EF33B2F0710D1BA5AB911223
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ PDF-XChange Editor — программа для просмотра, редак�
 ```bash
 magnet:?xt=urn:btih:A96B617677FB28347330AA4149FE849B99D4577C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:A96B617677FB28347330AA4149FE849B99D4577C
 magnet:?xt=urn:btih:23C13D87EA9598259F81754488BF51D62C9E149C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ Opera One 116.0.5366.71 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CFEAFFF2EDCABC7044DE9DE0C27795245269168A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ Fast Video Cutter Joiner - программа 2-в-1 для быстрой ре�
 magnet:?xt=urn:btih:D9795EE6A49EA0AC360364477701E61F5D19D0E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ NoMachine – это средство доступа к удаленным ра�
 magnet:?xt=urn:btih:B984A1A0B83CC5D89D79BB93E85976E739B757A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ Notepad++ - бесплатный редактор текстовых файло�
 ```bash
 magnet:?xt=urn:btih:B06C7A590B4CF85F172D6C5A2015625312EC195A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +607,8 @@ VA - Fitness Motivation 50 Hits to Get You Started 2025 [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:64863AD94FF34041CBA16969C4B7CD96536D162A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ VideoShow - AI Видео Редактор v10.2.5.2 Mod by AppZombie [Ru/Multi]
 magnet:?xt=urn:btih:2609DACD8E6798B35DDCAC2773486F5CC641D9DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ WonderLang Spanish (2025) [En] (0.9) Repack FitGirl
 magnet:?xt=urn:btih:45524D711C14283BE8304545A87BAE203C9C6215
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ magnet:?xt=urn:btih:45524D711C14283BE8304545A87BAE203C9C6215
 ```bash
 magnet:?xt=urn:btih:E8F5E7060F348BEEE4333DAB4542957B59C3DA75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

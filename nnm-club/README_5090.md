@@ -22,6 +22,8 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 magnet:?xt=urn:btih:B8122EA3454894C63F9EF97024DC199AD34EAA05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Path Finder - один из лучших файловых менеджеров, 
 ```bash
 magnet:?xt=urn:btih:B13F703F84E50E5A27263AB15049EF9F58E2D16E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Aliens vs. Predator (2010) [Ru] (2.27.0/dlc/tr) Repack =nemos=
 magnet:?xt=urn:btih:FACD8A3F0FEBF5C392A427F6301966A427059323
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Cinemagraph Pro от студии Fixel – приложение, при пом�
 ```bash
 magnet:?xt=urn:btih:453C116FF95638FE3F5BB279880D4AD6C32D5387
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Winter Slideshow 3 - еще один шаблон зимнего слайд-шо
 magnet:?xt=urn:btih:0A0E594E3E10B64F240271A8E3464E08D64589C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:0A0E594E3E10B64F240271A8E3464E08D64589C8
 magnet:?xt=urn:btih:E336B7C7944D384440A23376624A48A5F5A213D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Selbst ist der Mann — популярный немецкий журнал дл�
 ```bash
 magnet:?xt=urn:btih:7FF7D72ED93EB99FCC1F2A5164087EC79564A1B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Acoustic Chill Out, Tantric Sexuality Masters - Sensual Night Chillout (2019) [M
 magnet:?xt=urn:btih:524E87226FB60161E638CA2D8BEE3A31758B7089
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:524E87226FB60161E638CA2D8BEE3A31758B7089
 ```bash
 magnet:?xt=urn:btih:E9361175BE64C58535BA9BDB97D49CC6BDA0ED26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:E9361175BE64C58535BA9BDB97D49CC6BDA0ED26
 magnet:?xt=urn:btih:240238A5E6C4B775EC324ABC127C084803A61B92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:240238A5E6C4B775EC324ABC127C084803A61B92
 ```bash
 magnet:?xt=urn:btih:15575935F40A230806D0FD871911D5C7C60980D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:15575935F40A230806D0FD871911D5C7C60980D9
 magnet:?xt=urn:btih:CC1338631B4B3C3A9BAF5F3BA1B69708FC270CD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:CC1338631B4B3C3A9BAF5F3BA1B69708FC270CD1
 ```bash
 magnet:?xt=urn:btih:ECAD7637742FD3C9B23E6ABDF6BDF9E3192D88EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ Unheilig - Moderne Zeiten (2006) [FLAC|Lossless|image + .cue] <Industrial Gothic
 magnet:?xt=urn:btih:968BE11B7A34D8FD911AD876689E6361C1C67B19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 magnet:?xt=urn:btih:573F5474CE6D1A089070421FC1D641D3A95DCD43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:573F5474CE6D1A089070421FC1D641D3A95DCD43
 ```bash
 magnet:?xt=urn:btih:90852C91DA18733FE519D266DE7921AF53315168
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:90852C91DA18733FE519D266DE7921AF53315168
 magnet:?xt=urn:btih:F64BE4908F78B2B54013FA708C11EB8873B84AAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:F64BE4908F78B2B54013FA708C11EB8873B84AAA
 magnet:?xt=urn:btih:398EC53DD6F5DF92A147CE2DBA8BE50456F1ECBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:398EC53DD6F5DF92A147CE2DBA8BE50456F1ECBA
 ```bash
 magnet:?xt=urn:btih:B1549AF83C6E7003EAAAE41A459CA5A6D430B63A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ VA - Love Languages: R&B Selections (2019) [MP3|320 Kbps] <R&B, Soul>
 magnet:?xt=urn:btih:203AFE88C7B25B1FDFD09838009872D0BD52AD5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ Ignescent - Fight In Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Female 
 magnet:?xt=urn:btih:C3BEB8069E59B2EA40686BDBA842F4FD0C66491E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +583,8 @@ Discovery: Разрушители легенд / MythBusters (2015) SATRip  (с�
 magnet:?xt=urn:btih:87C1F622705AC80ED804BB6D61B5C632398F1260
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +608,8 @@ magnet:?xt=urn:btih:87C1F622705AC80ED804BB6D61B5C632398F1260
 ```bash
 magnet:?xt=urn:btih:481CB8BE3E1B8CC68ED3E192C234347F91FD78B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +638,8 @@ Mick Clarke - Relentless Boogie - The Album (2021) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:21C30BC0C3744AEDD4148D14D15D5DB2DDFBC2AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +663,8 @@ magnet:?xt=urn:btih:21C30BC0C3744AEDD4148D14D15D5DB2DDFBC2AC
 ```bash
 magnet:?xt=urn:btih:F8C1C56C1E3DB68F8429C093C3CE7AB339B0F386
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +690,8 @@ magnet:?xt=urn:btih:F8C1C56C1E3DB68F8429C093C3CE7AB339B0F386
 ```bash
 magnet:?xt=urn:btih:AAF4F7255D1AAFD5B13EC81DBAA97DD14ADD74F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

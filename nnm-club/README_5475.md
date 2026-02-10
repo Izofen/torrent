@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5B8C94AD8BBB238602C18783B9EE9497120C7937
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:5B8C94AD8BBB238602C18783B9EE9497120C7937
 magnet:?xt=urn:btih:FF4F183FAEDFFACA85C4BC2056BC8882B73422E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Choo-Choo Charles – это хоррор экшн, в котором польз
 ```bash
 magnet:?xt=urn:btih:C91DE56C4B11CB4F75FE83326E77E41442599E1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ VA - Beatport Tech House: Sound Pack #381 (2021) [MP3|320 Kbps] <Tech House, Ele
 magnet:?xt=urn:btih:5DE0214AC1906C3B2D859A7E765D9DD5602F4F66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:5DE0214AC1906C3B2D859A7E765D9DD5602F4F66
 ```bash
 magnet:?xt=urn:btih:39D22731EB25572A71FAC56B72A1B0B6AED7DE05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ VA - My Lyric Soul: Romantic Music Compilation (2019) [MP3|320 Kbps] <Pop, Lyric
 magnet:?xt=urn:btih:447DA3FAABA57174D51C28B96E84F95496152CBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:447DA3FAABA57174D51C28B96E84F95496152CBE
 ```bash
 magnet:?xt=urn:btih:7F0B61629BB48646C3E2B5356AF59F0618A8D874
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ The Gil Evans Orchestra - Plays The Music Of Jimi Hendrix (1988) [FLAC|Lossless|
 magnet:?xt=urn:btih:8785ADB954081A5759E2F8B2AE69121AF6243803
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:8785ADB954081A5759E2F8B2AE69121AF6243803
 ```bash
 magnet:?xt=urn:btih:3310979FC173B8C707C26EA172E820ACA1771D52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ Deep Purple - In Rock (1970) Remaster, 2018, Parlophone UK [FLAC 24/96|Lossless|
 magnet:?xt=urn:btih:479D1CEDC6633D138878ED1A1577BE57F4FA56E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:479D1CEDC6633D138878ED1A1577BE57F4FA56E3
 magnet:?xt=urn:btih:CEDA3B6B948805741BA94CE77C6DB3AC8C4881CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ CamScanner - Мощное приложение для сканирования. 
 ```bash
 magnet:?xt=urn:btih:6909BDA0516395FF746CD78D94B69A52039D08C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ VA - Alternative Rebel Rock (CD.03) (2021) [MP3|320 Kbps] <Rock, Alternative>
 magnet:?xt=urn:btih:8EDB33641CF5F29B32A016582F76BD66DC5E7DFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:8EDB33641CF5F29B32A016582F76BD66DC5E7DFC
 ```bash
 magnet:?xt=urn:btih:E7899CB8718AE4C3EE4A1E532A0DDAB8C925FD05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:E7899CB8718AE4C3EE4A1E532A0DDAB8C925FD05
 magnet:?xt=urn:btih:229A5D0C9F39D86FFE6F82056F4031EDF27F9B68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ Kaspersky Free – бесплатный Антивирус Касперског�
 magnet:?xt=urn:btih:C7BF6FCE0375363A7F967CE0031C64C07CA3599C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:C7BF6FCE0375363A7F967CE0031C64C07CA3599C
 ```bash
 magnet:?xt=urn:btih:CABD0DF110BF8435FA00804AC0A57CF5C066A1C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:CABD0DF110BF8435FA00804AC0A57CF5C066A1C3
 magnet:?xt=urn:btih:614DFB7B4243748FBB23C6E11D38F2C681C6F9A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ Deep Purple - In Rock (1970) Remaster, 2018, Parlophone UK [FLAC|Lossless|WEB-DL
 magnet:?xt=urn:btih:04B381F0ABDD279C78E774A6F685C9F09CEBCF46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ magnet:?xt=urn:btih:04B381F0ABDD279C78E774A6F685C9F09CEBCF46
 ```bash
 magnet:?xt=urn:btih:3B7252B9CCA556E9D354CE7C42847EF20D405C28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ magnet:?xt=urn:btih:3B7252B9CCA556E9D354CE7C42847EF20D405C28
 magnet:?xt=urn:btih:C55B197AB5F92F642078DA75CE92102B1F0A1555
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:C55B197AB5F92F642078DA75CE92102B1F0A1555
 magnet:?xt=urn:btih:06DC72E63F89E58488088A802D91964D37CD535A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:06DC72E63F89E58488088A802D91964D37CD535A
 ```bash
 magnet:?xt=urn:btih:F4C088CBBCA273D07402284041F0945A6E64FCCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +644,8 @@ VA - Buste And Flow: Feery Compilation (2021) [MP3|320 Kbps] <Metal, Hard Rock, 
 magnet:?xt=urn:btih:0D9F62B133582FF40EF41320A07E53AACEA78454
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:0D9F62B133582FF40EF41320A07E53AACEA78454
 magnet:?xt=urn:btih:38FE5168B0762620EF5B95743E25DA33C518854C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ magnet:?xt=urn:btih:38FE5168B0762620EF5B95743E25DA33C518854C
 ```bash
 magnet:?xt=urn:btih:A78CBFD71B8F052937675707618D15E95C59D24A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

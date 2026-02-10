@@ -20,6 +20,8 @@ SaGa Emerald Beyond v1.0.1 [En]
 magnet:?xt=urn:btih:2FF6929CDB5A8CC83B76FE06A2CB1D519CC360B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:2FF6929CDB5A8CC83B76FE06A2CB1D519CC360B2
 ```bash
 magnet:?xt=urn:btih:2D91C8521538E10135119DE3BE1B8A221283D6E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:2D91C8521538E10135119DE3BE1B8A221283D6E0
 magnet:?xt=urn:btih:0176C644338A22CF7BDD7D5ED7D450C3E7DAC666
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:0176C644338A22CF7BDD7D5ED7D450C3E7DAC666
 ```bash
 magnet:?xt=urn:btih:71795E807583BE06644065622144C7E52E3DF2BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:71795E807583BE06644065622144C7E52E3DF2BB
 magnet:?xt=urn:btih:6B210F88E2A30C1631BE50F14023B20FE340EAE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:6B210F88E2A30C1631BE50F14023B20FE340EAE3
 magnet:?xt=urn:btih:06FEFC6FDBDA6365E7E8D1FC770455AD819CF235
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:06FEFC6FDBDA6365E7E8D1FC770455AD819CF235
 ```bash
 magnet:?xt=urn:btih:F567E307A6B09F4523919ED60C05331510023620
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Savage Lands - Army of the Trees (2025) [FLAC|Lossless|WEB-DL|tracks] <Prog, Thr
 magnet:?xt=urn:btih:290863156A121187998C46E88690B6104CDE0A10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Nick Brignola - Things Ain't What They Used to Be: Last Set At Sweet Basil (1992
 ```bash
 magnet:?xt=urn:btih:CCAC475D78DAEBF18DC7B0BA3D17BE6D79B249F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ Woody Herman - The Jazz Collector Edition (1991) Laserlight [FLAC|Lossless|track
 magnet:?xt=urn:btih:54271223338FF103D7F76F9C49CA9426B356DA5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ Richard Davis, Sir Roland Hanna, Frederick Waits - Persia My Dear (1987) DIW Rec
 ```bash
 magnet:?xt=urn:btih:C719AED81CE9FF20079EE46BC2422EB6D6C5AB65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ J.J. Johnson - Vivian (1992) Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Ha
 magnet:?xt=urn:btih:8E57606B5BEDB2B22764D4D18532A7532C8011B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ VA - Date Night Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ```bash
 magnet:?xt=urn:btih:75E3F0EAB266C203FFC366C17F7714AD19B24855
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ Atlas Ashes - New World (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic De
 magnet:?xt=urn:btih:BF07509C3D760B59BC8C16FDEAE860E2A1424FE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +408,8 @@ VA - Candlelight Rendezvous Romantic Smooth Jazz Instrumentals (2025) [FLAC|Loss
 magnet:?xt=urn:btih:501263598294CE8FE9E512299E30AE2C1AFE8778
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +434,8 @@ magnet:?xt=urn:btih:501263598294CE8FE9E512299E30AE2C1AFE8778
 magnet:?xt=urn:btih:D64F91F76A067DA6B5A402DBBC8183C9804ADEA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ magnet:?xt=urn:btih:D64F91F76A067DA6B5A402DBBC8183C9804ADEA7
 ```bash
 magnet:?xt=urn:btih:9D5DDB855A609A51C5D8A857A7A4B74ABDC137EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ VA - Jazz Collection Tracks For Stress Relief (Volume 2) (2025) [FLAC|Lossless|W
 magnet:?xt=urn:btih:CB5A0637D0B2CE18F8DC36B036DF1AA4794D0408
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +517,8 @@ magnet:?xt=urn:btih:CB5A0637D0B2CE18F8DC36B036DF1AA4794D0408
 ```bash
 magnet:?xt=urn:btih:EC6874A1E03AA47FFBF319F498E5702608208F9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +547,8 @@ High Moonlight - Lycans (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:1B24654CBC9CE85F106D7F276BA6EC57B603B6A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +575,8 @@ magnet:?xt=urn:btih:1B24654CBC9CE85F106D7F276BA6EC57B603B6A2
 ```bash
 magnet:?xt=urn:btih:FE3F4D5D8B9AC81FE8A1CC3FF0AD68E23D851979
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +605,8 @@ Stan Getz - Stan Getz: City Nights (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 magnet:?xt=urn:btih:C236630860D623588EEDAD907DC4B677B8964E4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +634,8 @@ magnet:?xt=urn:btih:C236630860D623588EEDAD907DC4B677B8964E4E
 magnet:?xt=urn:btih:FAD57793E5285BC56E996577CFE231CE920E1DEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +660,8 @@ magnet:?xt=urn:btih:FAD57793E5285BC56E996577CFE231CE920E1DEB
 ```bash
 magnet:?xt=urn:btih:2210D12E90EC6A41ADA7926949041F34A43C3C8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +689,8 @@ magnet:?xt=urn:btih:2210D12E90EC6A41ADA7926949041F34A43C3C8A
 magnet:?xt=urn:btih:83843C9A09BDAD66F550CF3D73FED3F6141E2FC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +714,8 @@ Porsche Sprint Challenge Southern Europe. Кубок Порше. Эшторил 
 ```bash
 magnet:?xt=urn:btih:5527A0A204EA86F80AFA997958F2025CCFF7BAA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

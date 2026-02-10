@@ -19,6 +19,8 @@ NoMachine – это средство доступа к удаленным ра�
 magnet:?xt=urn:btih:5ADE8E40B339063C9231066386843996CCB650E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:F93F1463D881D8BBB124D5F742B3877C1CFC73E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 ```bash
 magnet:?xt=urn:btih:F36C60078E2D62235744FD1DAF7DDF7B5710877B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Feeder - это полнофункциональное приложение дл
 magnet:?xt=urn:btih:B002AC5FBDFF48A745DFF8A2A78C6FA326C1E95D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ DesktopSnowOK 6.22 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7AA398CEB7F4E981972FAD0166D665CD14B78F96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Commander One PRO - FTP/SFTP клиент, RAR, 7zip и Tar архиватор. 
 magnet:?xt=urn:btih:5B352342564DDAEFBB31EE58647C1331CCB9ECB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ EZ CD Audio Converter - утилита для преобразования ау�
 ```bash
 magnet:?xt=urn:btih:C61FB5ACC4BA128DA7D6A6B453AC8A49CA8BE94C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ OCCT 12.0.14 Final Portable [En]
 magnet:?xt=urn:btih:08E24A925877A86550EFCF2D8E7EF60D5727280A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:6C86715B262189B41756571D60552A137308B133
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Mozilla Thunderbird –  легкая и безопасная бесплатна
 magnet:?xt=urn:btih:007E43E6532C02BF75C283525D2637BB139029AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Opera One 102.0.4880.29 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FD1BFDB2E34D06D9D61583193AA23CE96A732B59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Pixelmator Pro — это невероятно мощный, красивый и
 magnet:?xt=urn:btih:7F39B55CDEF7145FFCBEB329F0024DAC83A80852
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ RogueKiller Anti-Malware можно использовать бесплатно 
 ```bash
 magnet:?xt=urn:btih:52F9C08504491B10F9C5CAE9F00CBF220A13A122
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Find.Same.Images.OK — это программа для поиска одина
 magnet:?xt=urn:btih:0B853FB9029CB556A878DBFB7FFB28FD64DBED50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Opera One 102.0.4880.29 Portable by Cento8 [Ru/En]
 magnet:?xt=urn:btih:489A0F757946662783363EFE4437984EF06345E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ OpenVPN – мощная программа для работы с частны�
 ```bash
 magnet:?xt=urn:btih:835BF261F864CB6470E6E78371036DBFE6C63BA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Reader — это быстрая и минималистичная програ�
 magnet:?xt=urn:btih:4A867EFFEF3285509A883D5221D26D70612F186E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:FA0C10552CCDD2AC3B1B50A190BD7ADB0F287544
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ QuickMemoryTestOK 4.24 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:63F6E7D12E3FF05FD7E1D83EF087FD05B75846FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ AIMP 5.30 Build 2510 Beta + Portable [Multi/Ru]
 magnet:?xt=urn:btih:B6C0CAAEFBD131B76C65CBB69DECC64DFEBB0E94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ Master PDF Editor — простая, но эффективная програм
 ```bash
 magnet:?xt=urn:btih:8A23CEAACF5540AEC0DFFD444E6AAA85DBF4E3A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:49A3186CEF11A012EB6E29817C17F5BA5B2677E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:4B22845C5E7EC668EFB6B4DA0AC1202B73760F50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ Optimizer рекомендуется использовать после све�
 magnet:?xt=urn:btih:67CDE4B5D1F0AF0C147014578DD56EB1AAB3FC58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:FAFCEC1AA20B2200E8D2A527E494298001B747E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:971B1A7F984EB5ACA87062A441F9DA5D4E78B267
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

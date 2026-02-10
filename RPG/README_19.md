@@ -19,6 +19,8 @@ Sacred 3 это экшен-аркада для четырех игроков, к
 magnet:?xt=urn:btih:828218B21C11E6301F3C325B46C400D7A092194F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Final Fantasy VII Rebirth (2025) [Ru/Multi] (build 17035252) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:765D683D98F603D26B40F025958221369814B706
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ WonderLang Spanish (2025) [En] (0.9) Repack FitGirl
 magnet:?xt=urn:btih:45524D711C14283BE8304545A87BAE203C9C6215
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.007) Scene Rune
 ```bash
 magnet:?xt=urn:btih:4ACF22400544052BD16CF3743EEFF25948050653
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ VED — это сюжетное RPG, сочетающее вручную нар�
 magnet:?xt=urn:btih:C9B69F037546983707DB8D39549EF0038F01F909
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Noita - магический боевик с элементами «roguelike» 
 ```bash
 magnet:?xt=urn:btih:4A8618AC33675DAEED009173CF565FCDD808A0FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Adore (2023) [Ru/Multi] (1.0.0.3) Repack Let'sРlay
 magnet:?xt=urn:btih:65211AD9E817534F29EC639CED25B3F76C9FF240
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Cyberpunk 2077 приключенческая ролевая игра, дейс�
 ```bash
 magnet:?xt=urn:btih:3221A48CD806F313801672F0890DD55AF823CB9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Thaumaturge - изометрическая ролевая игра с глу
 magnet:?xt=urn:btih:7FFE6836C3D96681D7FC2FEA946FA08EE8B416DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Persona 4 Golden - ролевая игра, рассказывающая про 
 ```bash
 magnet:?xt=urn:btih:B4C9F41D9012FD18483F6B5193170DCA414C2048
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Outer Worlds: издание «Просто космос» дарит игр
 magnet:?xt=urn:btih:13DDD19E56538E646E6AA2E99ECA989461DE8698
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Nienix: Cosmic Warfare (2023) [Ru/Multi] (1.099) License GOG
 ```bash
 magnet:?xt=urn:btih:E8912B218298A6532EC5354301147477EF0D2F4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Deepest Chamber: Resurrection (2021) [Multi] (1.088) License GOG
 magnet:?xt=urn:btih:BDA25BCA37FFA566FD9C5672B4213F4334B9A00E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (1417829 Patch 5/dlc) Repack Let'sР
 ```bash
 magnet:?xt=urn:btih:AE93A0E7226B4CC0702EE9A4791EE2D431F15EF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Perennial Order черпает вдохновение в таких играх, 
 magnet:?xt=urn:btih:99D2C2BB32EE7894BB2A34D7B47E98278CADD588
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Redundant (2025) [Ru/Multi] (Build 17094745) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:4402D7B2FF39E8E9075F50795973D23D4FABC9F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Tales of Graces f возвращается в красивой версии, в 
 magnet:?xt=urn:btih:6B99913C125B3765C1F0862D686B7208CE1F934A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Final Fantasy VII Remake Intergrade (2021) [Ru/Multi] (1.005/dlc) Repack Wanterl
 ```bash
 magnet:?xt=urn:btih:CDE2EFFE873B1B96102259E597C01330E38F444E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ DYSMANTLE (2021) [Ru/Multi] (1.4.0.41/dlc) Repack FitGirl [Complete Bundle]
 magnet:?xt=urn:btih:4410FE85B6D4D13ABA97965CE87B4ACFAE9D9202
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Umbra: The Last Summoner (2024) [Ru/Multi] (build 16881986) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:80C35A20E4472FC503327257FC5F1226128DC381
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Umbra: The Last Summoner (2024) [Ru/Multi] (1.0a) Repack FitGirl
 magnet:?xt=urn:btih:E77514984306ED95D4E35B60BD850F4DD1E3961B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Umbra: The Last Summoner (2024) [Ru/Multi] (build 16881986) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:762725C08018C1AF6DF02ED2E3C02E39A2859E74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Umbra: The Last Summoner (2025) [Ru/Multi] (1.0а) Repack Let'sРlay
 magnet:?xt=urn:btih:846211998F7F9949C10831DC46425C5B9811C01A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Status One (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5050D3254EAA50BAE7A56C95743E28C83A3F2947
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Book of Demons это гибрид Hack & slash и карточной игры, 
 magnet:?xt=urn:btih:771B3D14B64F8B6819F2E61DBF29703513E7A55E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Megaloot (2024) [Ru/Multi] (1.14) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:0C8B55C61489B3824719F4B8677584E222692451
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

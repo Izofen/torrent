@@ -1,3 +1,29 @@
+###  Публикация: 953439   (346616) от 05.11.2015
+
+Урок жизни (1955) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_346616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наташа бросает учебу в пединституте и едет с Сергеем на стройку. Успехи мужа делают его все более самоуверенным и грубым. Она же чувствует себя одинокой и чужой в собственной семье. Наступает момент, когда Наташа уже не может примириться ни с бесполезностью своей жизни, ни с его вероломством. Она уезжает, завершает учебу в институте и становится учительницей. Но (   Читать дальше...   )Производство: СССР, МосфильмЖанр: ДрамаРежиссер: Юлий РайзманАктеры: Валентина Калинина, Иван Переверзев, Ольга Аросева, Георгий Куликов, Маргарита Юрьева, Виктор Авдюшко, Ирина Акташева, Федор Шиманский, Евгений Весник, Андрюша МихайловПродолжительность: 01:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4C5A7D3F68643CD2F749F8D59A2D88A6D510AD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953643   (346702) от 05.11.2015
 
 Багряные берега (1979) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:54BC9E5E303D5D00AE5D965CA49189038A3ADC94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:54BC9E5E303D5D00AE5D965CA49189038A3ADC94
 magnet:?xt=urn:btih:E0C07112FF51DB2C9E9C809EEA28E73D4568FCD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:E0C07112FF51DB2C9E9C809EEA28E73D4568FCD1
 ```bash
 magnet:?xt=urn:btih:B7A37477783C2BD16AD4D9DAC9F68481F6B0D42D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:B7A37477783C2BD16AD4D9DAC9F68481F6B0D42D
 magnet:?xt=urn:btih:04E1A9FB446E79516DDF57712BB591E29A0FD1AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:04E1A9FB446E79516DDF57712BB591E29A0FD1AB
 ```bash
 magnet:?xt=urn:btih:4AA03804EEF2982CA62C7B96516F4FC537A45BA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:4AA03804EEF2982CA62C7B96516F4FC537A45BA4
 magnet:?xt=urn:btih:77B520ABF1C52A46634E4E5BE9444F5377F02D8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:77B520ABF1C52A46634E4E5BE9444F5377F02D8F
 ```bash
 magnet:?xt=urn:btih:5AA9420D06D11FB76F3A57911331D60B876218E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:5AA9420D06D11FB76F3A57911331D60B876218E6
 magnet:?xt=urn:btih:793235B74C41E74E1A2F1BBD4B85B9C0D0A07167
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +259,8 @@ magnet:?xt=urn:btih:793235B74C41E74E1A2F1BBD4B85B9C0D0A07167
 magnet:?xt=urn:btih:F26D974200FF9EFB3CF17BC235BFC36FE40F4A05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:F26D974200FF9EFB3CF17BC235BFC36FE40F4A05
 ```bash
 magnet:?xt=urn:btih:521BDD9712DBC62887BD22BEA2E82335316D7F6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:521BDD9712DBC62887BD22BEA2E82335316D7F6D
 magnet:?xt=urn:btih:70551CD94D2BAEB9A541E434EE75ED4E0DE516BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:70551CD94D2BAEB9A541E434EE75ED4E0DE516BF
 ```bash
 magnet:?xt=urn:btih:7C85EF16FD48B41C03922449B25228DC53DF82D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:7C85EF16FD48B41C03922449B25228DC53DF82D6
 magnet:?xt=urn:btih:0EFC0AE181CC7EFD5E8A352E14D7E87044F592F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:0EFC0AE181CC7EFD5E8A352E14D7E87044F592F9
 ```bash
 magnet:?xt=urn:btih:A8774F5BE5FC9C17AF5E8E5487B4124BC28380D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:A8774F5BE5FC9C17AF5E8E5487B4124BC28380D7
 magnet:?xt=urn:btih:18F3AC749700040CD2DEB5DE173F27A11F6461D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:18F3AC749700040CD2DEB5DE173F27A11F6461D4
 ```bash
 magnet:?xt=urn:btih:FEFF64E86BB2B37E87205CA40EA28FE062CC2891
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:FEFF64E86BB2B37E87205CA40EA28FE062CC2891
 magnet:?xt=urn:btih:01F696762F94BA4BBF356409BC0C8A32F3DE050E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:01F696762F94BA4BBF356409BC0C8A32F3DE050E
 ```bash
 magnet:?xt=urn:btih:F53BE0D45DC91E14C9DC033033DF1CF0684C3A85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:F53BE0D45DC91E14C9DC033033DF1CF0684C3A85
 magnet:?xt=urn:btih:28187B6AC4553C3E6B2BA87CAB3EC62DE36CE32A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:28187B6AC4553C3E6B2BA87CAB3EC62DE36CE32A
 ```bash
 magnet:?xt=urn:btih:B441102FA31FE28343112507253663B5A34A2ED0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:B441102FA31FE28343112507253663B5A34A2ED0
 magnet:?xt=urn:btih:BD2A8901BAE1001C4509C065D881C873C3968B7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +600,8 @@ magnet:?xt=urn:btih:BD2A8901BAE1001C4509C065D881C873C3968B7A
 magnet:?xt=urn:btih:8AE7EC67D6A4BE2AAA0DDFE7ECB8F42242D15D88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:8AE7EC67D6A4BE2AAA0DDFE7ECB8F42242D15D88
 ```bash
 magnet:?xt=urn:btih:20C22163AAAF5E34159B7A9FA6574CDCC9950AC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:20C22163AAAF5E34159B7A9FA6574CDCC9950AC4
 magnet:?xt=urn:btih:399EB88649938AD098A47A1952229B3695C5E466
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,29 +678,7 @@ magnet:?xt=urn:btih:399EB88649938AD098A47A1952229B3695C5E466
 magnet:?xt=urn:btih:F2D8C289E6BCE1833AEBBCBADECC19B3E247C149
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 722957   (355321) от 18.11.2013
-
-Клад (1988) DVDRip [H.264] [Hi10P]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время полевых работ шоферы находят клад из золотых монет. Они хотят сдать клад государству, но все должностные лица, к которым обращаются герои фильма, не желают брать на себя ответственность за его сохранность…Производство: СССРЖанр: Боевик, ДрамаРежиссер: Виктор СергеевАктеры: Лев Дуров, Сергей Паршин, Дмитрий Харатьян, Михаил Глузский, Лидия Федосеева-Шукшина, Михаил Васьков, Георгий Шахет, Борис КлюевПеревод: Не требуетсяСубтитры: ОтсуствуютПродолжительность: 01:15:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDED29986D19D3A39C689665EF2613EFF92FEBA9
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

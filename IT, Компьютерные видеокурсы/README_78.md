@@ -19,6 +19,8 @@ OTUS | Разработчик full-stack на Python (2017) PCRec [H.264]
 magnet:?xt=urn:btih:1E75CA4919EDE24366B2F7A67C59AC3BEFC445FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Udemy | Изучаем Социальную Инженерию с Нуля (2017
 ```bash
 magnet:?xt=urn:btih:CE4E1F09D3AEE89F8065146073A23DAF97DDAE27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Udemy | HTML + CSS с Нуля до Результата (2020) PCRec [H.264/720
 magnet:?xt=urn:btih:8C91F60A3D687DA5F3AB9DA6FEC430E61241376B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:8C91F60A3D687DA5F3AB9DA6FEC430E61241376B
 ```bash
 magnet:?xt=urn:btih:EB194DA27484814A9619122E3B8E1756CE295CB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Nztcoder | ZennoPoster-Master #1: Становление - с нуля до ко
 magnet:?xt=urn:btih:BD5B23313642040D6B51E1A58A5C581FA1AB1940
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ Foxminded | Инструментарий Java для новичка (2020) PCRec
 magnet:?xt=urn:btih:BE801B3A4D9C98B09DF41D8D37DDFF03B541EE38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ Telegram — это мессенджер, позволяющий обменив�
 magnet:?xt=urn:btih:47B558BE4D496207382825A383A952A3CA267FB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ Udemy | Азбука JavaScript (курс для начинающих) (2020) PC
 ```bash
 magnet:?xt=urn:btih:B22F89C1AA14AB18B1F69DBE8D2B97F37309F974
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ Selenium WebDriver — это инструмент для автоматизац
 ```bash
 magnet:?xt=urn:btih:49D1E22C13053D13377A377D5A8787A1BC7C3517
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ Udemy | Продвинутые навыки Python: станьте лучшим 
 magnet:?xt=urn:btih:3224FD5199A65B12406D727B773CF6F6D7ED09A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ Udemy | Базовый Python (2020) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:F8CB4124763E49A89727388A88DC42DBE4A76AF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ Jose Salvatierra | The Complete Python Course - Learn Python by Doing (2020) [H.
 ```bash
 magnet:?xt=urn:btih:675E64841D6031C0EFFBDF8D899C5BDA97954A7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +351,8 @@ Udemy | git. Контроль версий для разработчиков (20
 magnet:?xt=urn:btih:C4AC46729319353290C959BF6C66ADF3A5014BEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:C4AC46729319353290C959BF6C66ADF3A5014BEB
 ```bash
 magnet:?xt=urn:btih:A186C0202745753FA54B88062CC8B45D83A80FB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ magnet:?xt=urn:btih:A186C0202745753FA54B88062CC8B45D83A80FB0
 magnet:?xt=urn:btih:2CA2714A683B84E37A0073C5B32BFA40BF3073A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ MonsterLessons, Александр Кочергин | Docker и Docker Compose -
 magnet:?xt=urn:btih:A28491778524C371EC3F94EE49624825CCB44989
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ Bootstrap 4 – это HTML, CSS, JS фреймворк для разработ�
 ```bash
 magnet:?xt=urn:btih:38CD98ACC3AC1B877E4C9316D2233FFECE087A1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ SEO Игра - совершенно новый тренинг. Результа�
 magnet:?xt=urn:btih:3262CEAD404E58ED8D8CB7679C1CD152BA4C2D25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ magnet:?xt=urn:btih:3262CEAD404E58ED8D8CB7679C1CD152BA4C2D25
 ```bash
 magnet:?xt=urn:btih:6CCA58B5228764AA1DBCB9FCF2AE902AA3AF13F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +537,8 @@ Udemy | Bootstrap 4 From Scratch With 5 Projects (2018/06) PCRec [H.264] [En]
 magnet:?xt=urn:btih:D55291944F38799408A7B2E93A94D32B9C3A40D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ ITVDN | Ruby Essential (2018) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:C5F27A9D1ACEEE4C4795B6DF24E03F715B3204C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ ITVDN | Создание адаптивного сайта с  Bootstrap 3 (2016
 ```bash
 magnet:?xt=urn:btih:44E799EA0AC4B484700095FDDEC767CF8CFCADDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +617,8 @@ magnet:?xt=urn:btih:44E799EA0AC4B484700095FDDEC767CF8CFCADDE
 magnet:?xt=urn:btih:2AFC589D42AE7A65539D77511FEA620CD0844CBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ Udemy, Виталий Черненко | Формы списков в 1С (2021)
 magnet:?xt=urn:btih:5F414E16C5D424504E51E33A1BA8A683E653316A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +671,8 @@ LoftSchool | Основы вёрстки (2017) PCRec [H.264]
 magnet:?xt=urn:btih:B27E9849A939763C98FD6E048CE6AE8731784DF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +696,8 @@ TypeScript увеличивает эффективность и надёжнос
 ```bash
 magnet:?xt=urn:btih:6B7E06550E677F30C435EBE06227232DE3A29ABA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

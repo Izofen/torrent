@@ -22,6 +22,8 @@ VA - Night City Ambient (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 magnet:?xt=urn:btih:EB6B89F69C26F7705ECCFC85177F6961DAB0D9D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:EB6B89F69C26F7705ECCFC85177F6961DAB0D9D0
 ```bash
 magnet:?xt=urn:btih:FD254B1C43DF9A17E346233BC470C981D62FF935
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Screw - Angel Seed XXIII (1997) [APE|Lossless|image + .cue] <Industrial Metal>
 magnet:?xt=urn:btih:5582C1076677543D07B7EF934A697CEEDFFC754C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Slimjet 38.0.7.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6538FC641EC14D67AFEDF5789F43E4F60A924B8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ CD DVD Label Maker 2.6.0 [Multi/Ru]
 magnet:?xt=urn:btih:C66DA369CDDAD2B09471C98CE564A5A3FF1835C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:C66DA369CDDAD2B09471C98CE564A5A3FF1835C7
 ```bash
 magnet:?xt=urn:btih:1664BAA919373CD4D71ED1CEB57B98FCCFDEF0C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Time Sink - приложение для ценителей своего врем
 ```bash
 magnet:?xt=urn:btih:671B8F0430DC6A003EA3FB6A10D39113E8C07455
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ VA - Ballermann Opening Party Hits 2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
 magnet:?xt=urn:btih:E7935912BCF37C594EAF0E325E72E95E243B2A4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:E7935912BCF37C594EAF0E325E72E95E243B2A4E
 magnet:?xt=urn:btih:7DC85D9B160AF89913194E48FA00E239D814AB94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:7DC85D9B160AF89913194E48FA00E239D814AB94
 ```bash
 magnet:?xt=urn:btih:95387B7324F0C0659DD4236C6F57AAF0F57E4918
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ Djevel - Naa Skrider Natten Sort (2022) [MP3|320 Kbps] <Black Metal>
 magnet:?xt=urn:btih:E849CE12D346BABEA1591A10E451A921CB90F736
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:E849CE12D346BABEA1591A10E451A921CB90F736
 ```bash
 magnet:?xt=urn:btih:09D6926FA2DB5921FE43E7EF6DBC5FD65AD5EAA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ Gear.Club Stradale — это мечта наяву: вы проведете д�
 magnet:?xt=urn:btih:10EBED60C4C555CC8EB374CD6F797357A57D6AE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:10EBED60C4C555CC8EB374CD6F797357A57D6AE2
 magnet:?xt=urn:btih:2E15850788346CA67E5362FB95161A8E1E03B23B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:2E15850788346CA67E5362FB95161A8E1E03B23B
 ```bash
 magnet:?xt=urn:btih:30DA005AA29007F1BC8E0911D8F4FC3BE8D86ABE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ Hanging On  05:05(   Читать дальше...   )Жанр: Rock, Indie Rock�
 magnet:?xt=urn:btih:1DB9B8DD6BEFF18EAD03F5F244CA547D3B0F5470
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ VA - Tech & House Vocals Outstanding (2016) [MP3|209-320 Kbps] <Dance, Club, Hou
 magnet:?xt=urn:btih:7BA17972E18E051C228405AE4EE10F510336702A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ magnet:?xt=urn:btih:7BA17972E18E051C228405AE4EE10F510336702A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +514,8 @@ Logicly 1.12.1 [En]
 magnet:?xt=urn:btih:79C53177FAAE6D5C8089AE6FBDBF3DA40053846F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:79C53177FAAE6D5C8089AE6FBDBF3DA40053846F
 ```bash
 magnet:?xt=urn:btih:2D6E184765C3219236F2E897E3693F25D24D156C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +566,8 @@ Privacy Eraser Free - комплексный инструмент для защ�
 ```bash
 magnet:?xt=urn:btih:62AE89B0006C23A1F21B80294D6C21F8E0E1FC81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +595,8 @@ Bootstrap Studio обладает (   Читать дальше...   )Тип и
 magnet:?xt=urn:btih:8A91288AB6ABD48751C1B37B29940A9348F03D0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +621,8 @@ iTubeGo YouTube Downloader Pro for Mac 6.9.6 [Multi]
 ```bash
 magnet:?xt=urn:btih:482955885F9755260A11B0DD3D8E7AC88C431C84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +651,8 @@ magnet:?xt=urn:btih:482955885F9755260A11B0DD3D8E7AC88C431C84
 magnet:?xt=urn:btih:7CA0F70459ABE3927F5DAE581F1E17E308E1FACB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +680,8 @@ Necronomicon - Unleashed Bastards (2018) [FLAC|Lossless|image + .cue] <Thrash Me
 magnet:?xt=urn:btih:F2D795768D18C61A6BF95BFE34A5432CB51BB4AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +708,8 @@ Diaspora - Pendulum (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:2C52C4D05D9CAFF34C47E3E49F3B6A74EA54DD04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Spiritfarer® — это уютная игра о смерти. Вам пред�
 magnet:?xt=urn:btih:C764FBA8D8ADF1CA49EFE0E690AA0ECB43A0D1A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Jimmy Raney - Wisteria (1985) 1991, Criss Cross Jazz [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:596809C5B3AF02BFB98A5AD5A783AB50FAB67059
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Roxanne - Radio Silence (2018) [FLAC|Lossless|image + .cue] <Hard Rock>
 magnet:?xt=urn:btih:C5CDC70D6D64398C338CA25412B5DCC5061EF5B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:C5CDC70D6D64398C338CA25412B5DCC5061EF5B2
 ```bash
 magnet:?xt=urn:btih:1CF57FCC7DC102D1D97705699D2B8DAFB34318F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Carnivored - Revival (2012) [FLAC|Lossless|image + .cue] <Technical Death Metal>
 magnet:?xt=urn:btih:472B5EFCE038141BA1841ABE88059A8CC657DFA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:472B5EFCE038141BA1841ABE88059A8CC657DFA6
 ```bash
 magnet:?xt=urn:btih:A50B4376086FD2399BB525A306322FFD5BC8B4F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ Rhinoceros 7 v7.4 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4FF2D6EB1F9E53D1EC7CC4153898C351A9DF925F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +217,8 @@ magnet:?xt=urn:btih:4FF2D6EB1F9E53D1EC7CC4153898C351A9DF925F
 magnet:?xt=urn:btih:4D766C6571962FE33108CFAB4C3D559C84FEF2D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ Windows 11 - это серия операционных систем, разра
 ```bash
 magnet:?xt=urn:btih:42D7ADE0B2ED1CCB7473923A341F0BAA0D22423E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ Movist является простым в использовании и мощн
 magnet:?xt=urn:btih:E8132840AA3706FE8655050FF6458B360D01FF7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ WinSnap - отличный многофункциональный инструм
 magnet:?xt=urn:btih:0CB38169B261797F082A6EE8AA7EB7ECC32469D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ magnet:?xt=urn:btih:0CB38169B261797F082A6EE8AA7EB7ECC32469D1
 ```bash
 magnet:?xt=urn:btih:96536FF82789C7EA4F10A87239DD272B23B05E42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:96536FF82789C7EA4F10A87239DD272B23B05E42
 magnet:?xt=urn:btih:9679CCAC49B062988AB65BEAA319B86ECB52608A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:9679CCAC49B062988AB65BEAA319B86ECB52608A
 ```bash
 magnet:?xt=urn:btih:0C3356CE794395961A99F0B7A6D16A86E883A77D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:0C3356CE794395961A99F0B7A6D16A86E883A77D
 ```bash
 magnet:?xt=urn:btih:8F37039753083F081B190874E9FD741E1C49DFFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ A4 Ийви • Evie(   Читать дальше...   )Жанр: Soft Rock, Pop
 magnet:?xt=urn:btih:DAE96EE67321586B880F149F2CEE24276EF85A3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ Invisible является простым в использовании и оч�
 magnet:?xt=urn:btih:BBCCBF11FB61845ED431D410DC54424279012607
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ Icecream PDF Editor PRO - программа для поистине прост�
 ```bash
 magnet:?xt=urn:btih:A7B4BE6BB2DCD765FA18BC48623AAEF68EC5FCD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +516,8 @@ VA - Trance Compilation Vol. 1 (2023) [MP3|320 Kbps] <Trance, Progressive, Elect
 magnet:?xt=urn:btih:861AC5CC08301F0DC4F264572A61F00665272092
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ magnet:?xt=urn:btih:861AC5CC08301F0DC4F264572A61F00665272092
 ```bash
 magnet:?xt=urn:btih:348BE0371C1A8A86452E451CE2689BCA3BFB381B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +568,8 @@ PDF Expert - редактор  PDF. Быстрый, мощный и незаме
 ```bash
 magnet:?xt=urn:btih:E19A336EB29925817A635DDADC95C62AB99E3413
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +598,8 @@ magnet:?xt=urn:btih:E19A336EB29925817A635DDADC95C62AB99E3413
 magnet:?xt=urn:btih:F958D54B1D3502C9D90EBDA459922C59B8C4C8A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +624,8 @@ HDCleaner – многофункциональный программный пр
 magnet:?xt=urn:btih:B38EDE26C4EE84019D925025F1FCEC8AD4371EBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +649,8 @@ magnet:?xt=urn:btih:B38EDE26C4EE84019D925025F1FCEC8AD4371EBE
 ```bash
 magnet:?xt=urn:btih:AD34600321404334D4BBEA87A84ACD9B8ED41C07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +679,8 @@ Diablation - Par Le Feu (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black Me
 magnet:?xt=urn:btih:DEE8166810D8EE8E39A63359C3FBF5B4DBD2D4C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +704,8 @@ Raúl Ferrer García | iOS Architecture Patterns: MVP, MVVM, VIPER, and VIP in S
 ```bash
 magnet:?xt=urn:btih:256B61230E8F455B0E8687F4D35A959700650290
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

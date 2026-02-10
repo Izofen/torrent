@@ -19,6 +19,8 @@ Total War: Shogun 2 является продолжением первой ча�
 magnet:?xt=urn:btih:13F52623C5FA204EC38688CBF34B5DFDD2F898A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Total War: Attila (2015) [Ru/En] (1.6.0/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:5D01571A18DE2548A562FDE96F871D3A0F2C7792
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Warhammer 40,000: Dawn of War Soulstorm (2008) [Ru] (1.2) Repack Necros
 magnet:?xt=urn:btih:6691770967F7F3AE5A03B7AD6B2C4426CC0C9BDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Total War: Three Kingdoms - эта игра из популярнейшей ст
 ```bash
 magnet:?xt=urn:btih:7B00FE73C832730C5BC719F94361A79EB7E24B00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Drone Swarm (2020) [Ru/Multi] (7377621) Scene SKIDROW
 magnet:?xt=urn:btih:EA38951B3B9DB4355E15DDA8BE08EF1292B39202
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Age of Wonders: Shadow Magic – это продолжение знаменит�
 ```bash
 magnet:?xt=urn:btih:4380A29856AB52B66B1BE8C6E11391214757ABA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Age of Wonders 2: The Wizard's Throne – вторая часть прослав
 magnet:?xt=urn:btih:38126DE20B5FA4A61620E3D9CEAE4BAA5866D3F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Age of Wonders (1999) [En] (1.36.0053) License GOG
 ```bash
 magnet:?xt=urn:btih:F8C7DF3DB5EF73A2AEB842495A9F7919669F215C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Warhammer 40,000: Dawn of War Dark Crusade (2006) [Ru] (1.2) Repack Necros
 magnet:?xt=urn:btih:4571ADF03CAD213F2862F56654EFEED915D718DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Sins of a Solar Empire: Rebellion (2012) [Ru/En] (1.98/dlc) License GOG [Ultimat
 ```bash
 magnet:?xt=urn:btih:3AB5BB61E96A75405AABA6A774E61CDCAD6BD2BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Stronghold Crusader (2025) [Ru/Multi] (2.01/dlc) Scene Rune [Definitive Edition]
 magnet:?xt=urn:btih:9B7CCCB58E97F0F9970A34E9BBDE6A477A2D2018
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Total War: Three Kingdoms - эта игра из популярнейшей ст
 ```bash
 magnet:?xt=urn:btih:1D718FF4E6FF762DFDCE46FB175AB80F98A135E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Victoria 2 – масштабная компьютерная игра в жан�
 magnet:?xt=urn:btih:9DD4390CABAFF1E25727B824F3BED26D4369C0C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Solstice - это пошаговая военная игра с меню, дей
 ```bash
 magnet:?xt=urn:btih:D6C787907FEFC7F142A789FFA90E146C27C2F5CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Stellaris (2016) [Ru/Multi] (3.5.1/dlc) License FAiRLIGHT [Digital Anniversary E
 magnet:?xt=urn:btih:759973AFFF3BA83A4546E1F7C0E80E42E446AAFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Sins of a Solar Empire: Trinity (2010) [En] (1.38) License GOG
 ```bash
 magnet:?xt=urn:btih:1D31E8F7EF5A9163E0DA9A18AFAD4E83F01B53FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Planetary Annihilation: TITANS  это улучшенная версия стр�
 magnet:?xt=urn:btih:5137BE0C46F2A8C37CF976332724CBBA154AFF56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Heroes Chronicles: All Chapters (2000) [En] (1.0 v2) License GOG
 ```bash
 magnet:?xt=urn:btih:F33387F1819AD1A5B3982710C68DF2F8E514B83B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ King's Bounty: The Legend / King's Bounty: Легенда о рыцаре (2008)
 magnet:?xt=urn:btih:5F619E18D4B63B6831D02FE4714293500FD486E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Dark Reign + Expansion – это мини-сборник, куда вошла �
 ```bash
 magnet:?xt=urn:btih:08CC7F0E5EF927D9741B00B0485047E03B9CFCC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Machiavelli the Prince (1995) [En] (1.0.3) License GOG
 magnet:?xt=urn:btih:CA3FFCFDEF46C046FE374ED818B471DFF8F3971E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Gord (2023) [Ru/Multi] (1.2.0.38299/dlc) Repack DjDI [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:B4BB9562566D3020E919994795E9C8DAD91BA62D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Europa Universalis 4 - стратегия, разрабатываемая сту
 magnet:?xt=urn:btih:BCDD4F2350A122B7761E8D61063F3B7253BECAD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Stronghold: Warlords (2021) [Ru/Multi] (1.9.23494.D/dlc) License PLAZA [Complete
 ```bash
 magnet:?xt=urn:btih:87DE27717A6EF39AFCC3ED6101B7A3EEF48E4377
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Imperium Galactica (1997) [En] (1.0) License GOG
 magnet:?xt=urn:btih:884B8988BF1424A723B622AE0C4762A190553D28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Total War: ROME II / Total War: Rome 2 (2013) [Ru/En] (2.4.0.19728/dlc) Repack x
 ```bash
 magnet:?xt=urn:btih:E3C6F286A856E760EC66CE700050C6D0EA496D2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

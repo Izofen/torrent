@@ -24,6 +24,8 @@ Move Fitness [PS3] [MOVE] [EUR] [Ru/En] [4.30] [Cobra ODE / E3 ODE PRO ISO] (201
 magnet:?xt=urn:btih:84FEF7E65B971942ADE48657DE67C4BD7D51EC4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -50,6 +52,8 @@ Get Fit with Mel B - это комплексная фитнес-программ
 magnet:?xt=urn:btih:DF05272B2163E0C15FAAB9BDC6D0554AD1CFC19E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ Killzone 3 [PS3] [EUR] [RUSSOUND] [3.55] (2011)
 magnet:?xt=urn:btih:8D4B9BD681C24090C5C2AFCF7DB6F61F8D692144
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ Soul Calibur IV [XBOX360] [En] [FreeBoot] (2008) | R.G. X360Club
 ```bash
 magnet:?xt=urn:btih:7C609C4C1125301EC3F606186FF7F2D8D859D6FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ Despicable Me: The Game позволит игроку любого возрас�
 magnet:?xt=urn:btih:0BEAA3CD8356B9D5BFDFB8A1E2017718919AEF5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Saints Row - Gat out of Hell (2015) [PS3] EUR (4.65) [License] [En/Ru]
 magnet:?xt=urn:btih:3F61B70FB6952F0C1F4D88072A0D43342BB803A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Formula One Championship Edition - новое слово в мире гоноч�
 ```bash
 magnet:?xt=urn:btih:A8FF4013DC4F6B32D303F1E8E6C4485353382335
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ Zumba Fitness — это единственная в своем роде игр�
 magnet:?xt=urn:btih:0FE50C75841AC155EF185013B0C7EDBAFCCB23AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ Shining Tears это история из мира Shining Force. Будущий 
 magnet:?xt=urn:btih:20DBA0ABC68466CF96EB0E24E3315C6FA3C36ED8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ Omerta - City of Gangsters – симулятор гангстера, дейст
 ```bash
 magnet:?xt=urn:btih:CF519BF6FFF9557B4B9628F1109E599C68D1C685
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ Dino Crisis 2 - Действие игры происходит в 2010 году.
 magnet:?xt=urn:btih:E7720646C4F7575FBB3B021E6602DFC3DC971817
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ Tennis in the Face – юмористическая физическая экш�
 magnet:?xt=urn:btih:9D6724B9098FC172104F9392252D4EA1B6AA0314
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ Prince of Persia: Rival Swords [Wii] [PAL] [Multi 5] (2007)
 ```bash
 magnet:?xt=urn:btih:836AD26F4CBC994DAEF0F37CE7370819BFAB9A53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:836AD26F4CBC994DAEF0F37CE7370819BFAB9A53
 magnet:?xt=urn:btih:50D7545E77C10BFD2C4FA0312A69E5994082F77D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ Rally Racer (Nintendo Wii) – эксклюзивный авто симулят�
 magnet:?xt=urn:btih:1E60CA1DDEF5607C244A0D74A622DE997222D8B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ Metro Redux (2020) [Switch] [USA] 9.1.0 [NSZ] [License] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3C84288D9CC5E96565B6041485168C7763850633
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +457,8 @@ Way of the Samurai 3 [PS3] [EUR] [En/Jp] [3.01] [Cobra ODE / E3 ODE PRO ISO] (20
 magnet:?xt=urn:btih:03F81D6DF5BE215F1CBD1AC696815D7783AD58D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ Of Orcs and Men [PS3] [EUR] [En/Ru] [4.21] [Cobra ODE / E3 ODE PRO ISO] (2012)
 magnet:?xt=urn:btih:4B374E4D81A15FB72D7AFA087F714C208C76C3CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +512,8 @@ Condemned 2 продолжает события (   Читать дальше..
 ```bash
 magnet:?xt=urn:btih:BF51F9E29F94C997BB54BC0E6584A484A1E9B391
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +542,8 @@ Majin and the Forsaken Kingdom / Мадзин. Забытое королевст
 magnet:?xt=urn:btih:44A3FF8BD02C2B40FFC17932A0A349F6378B7A65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +567,8 @@ Resident Evil 3: Nemesis - третья часть популярной сери
 ```bash
 magnet:?xt=urn:btih:0E2C29E68CB48B96C821912FF9952FF3655913B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +594,8 @@ The Raven: Legacy of a Master Thief (2014) [PS3] [EUR] 3.41 [Repack] [Ru] | Kash
 magnet:?xt=urn:btih:9A307B2EEA0F95AA02316273A2291CC2BE9106C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +619,8 @@ Family Party: Fitness Fun - отличный способ собрать всю 
 ```bash
 magnet:?xt=urn:btih:4B6DA4DD8EA71F525330EB5D24B1D410D7152281
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +648,8 @@ Rayman Raving Rabbids: TV Party [Wii] [PAL] [Multi 6] (2008)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +673,8 @@ Phantom Breaker Extra является обновленной версией и�
 ```bash
 magnet:?xt=urn:btih:DC1C081B7378D52D3F5474689860363A72CF150C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -651,6 +701,8 @@ Sniper: Ghost Warrior 2 [PS3] [EUR] [RUSSOUND] [4.30] (2013)
 ```bash
 magnet:?xt=urn:btih:1CAEFB5BA62D6670B8F208FB73B9080C02755E7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

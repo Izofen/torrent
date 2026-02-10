@@ -19,6 +19,8 @@ Avowed (2025) [Ru/Multi] (1.4/dlc) Scene Rune [Premium Edition]
 magnet:?xt=urn:btih:A6A680BDA33221CC82B53420E294A284235EBAC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Omega Crafter (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 magnet:?xt=urn:btih:6AF6FFECADC4A9C2F013188918C81C8AADA2FF2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Kingdom Come: Deliverance II - захватывающий сюжетный ро�
 ```bash
 magnet:?xt=urn:btih:56ED86C02C0E4E5392603D4FBDFBC2082CD3762A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Avowed - фэнтезийная ролевая игра с видом от пе�
 magnet:?xt=urn:btih:9426D6680D12AB7A00C59E846DA35DB6BE1CD49D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Kingdom Come: Deliverance II - захватывающий сюжетный ро�
 ```bash
 magnet:?xt=urn:btih:D63A6DBA21FF78D5D8FB1009E356C2404C304F39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Wildermyth - ролевая игра с процедурно генерируе�
 magnet:?xt=urn:btih:3E5848C37554EAA838BE65CCF71BF0E65F24944C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ SpellForce: Conquest of Eo (2023) [Ru/Multi] (01.10.31934/dlc) Repack FitGirl [B
 ```bash
 magnet:?xt=urn:btih:8BB154A77F67F88F9397930FE1AA8B53713266B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (2.7.0x/dlc) Repack Let'sР
 magnet:?xt=urn:btih:EC2DADBCC6B89E674B6A2A44849B6445D8E79FEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Cryptical Path (2025) [Ru/Multi] (1.0.2) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:9CDECE5B7ABFB22A8069CF098D002F63A818DD52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Magicraft (2024) [Ru/Multi] (1.1.16) Repack Let'sРlay
 magnet:?xt=urn:btih:B4F56CE299BF32BFE2656AAF4B468A0A28190CA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Crystal Project - фэнтезийный приключенческий прое
 ```bash
 magnet:?xt=urn:btih:094F92CA1D07BA60A46E18E1A7E1F1E64938B0B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Wildermyth - ролевая игра с процедурно генерируе�
 magnet:?xt=urn:btih:1F0CA0F31CBFFA91DE1D5CDD9A3E5BF9DDE97753
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (56442/dlc) Repack Decepticon [Del
 ```bash
 magnet:?xt=urn:btih:973692383D17DC1E117F551F4197D0716991693F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Karma: The Dark World - это кинематографичный психоло
 magnet:?xt=urn:btih:32966A7614AB5F57216C72D6D8428C8D5E92494C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Empyreal - сложная и динамичная ролевая игра. Од�
 ```bash
 magnet:?xt=urn:btih:B8FBE00D9BCE60D048223CA3CC59D3F54764B9D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (2.7.0w/dlc) Scene Rune [En
 magnet:?xt=urn:btih:0F31B085F2035A148F1D724165D2A96AB7881473
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ Mirror of Heaven (2023) [Ru/Multi] (1.41/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:80379E7ED1EC9819BCF3D86E3E2ED87A27927CA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ Dark Envoy объединяет классическую механику RPG с
 magnet:?xt=urn:btih:4ED654D0B3444A3DE6EEACF1148BE970440C299A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ Breath of Fire IV (4) (2000) [Multi] (1.0 HotFix 4) License GOG
 ```bash
 magnet:?xt=urn:btih:8BD1AADB65F518BC430A3CC36EDBF42993968BCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ Baldur's Gate (2013) [Ru/Multi] (2.6.6.0-p/dlc) License GOG [Enhanced Edition]
 magnet:?xt=urn:btih:43CD83E7B0FE1C019B819A26080E172584FA3D9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ Baldur's Gate II: Enhanced Edition (2013) [Ru/Multi] (2.6.6.0-p/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:8B78180B4C0AF0D2AAF4947FC4FC57E76B5C54AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ Homeland - The Stone of Night (2000) [En] (1.0.3z) License
 magnet:?xt=urn:btih:E4953FCDD4E1BF274E37525F0E63B7A9B08E3950
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ Rise of the Ronin - динамичная ролевая игра, в котор�
 ```bash
 magnet:?xt=urn:btih:3A8CCEEB67F4D675092BEF531D4702F36F586B6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ Colony Ship: A Post-Earth Role Playing Game - пошаговая ролевая 
 magnet:?xt=urn:btih:6ED9DAC14856BEA0EC75BC034A534534ADFA8FE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ Reignbreaker - динамичный roguelike, действие которого
 magnet:?xt=urn:btih:2088372B7459DA54532CE45DEC0ABE3B51E5243D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Redemption Reapers (2023) [Ru/Multi] (1.4.1) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:904106423C197133E9E8217AF345AB24BB3A2727
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

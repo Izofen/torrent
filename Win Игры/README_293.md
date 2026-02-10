@@ -19,6 +19,8 @@ Don't Starve Together - это кооперативная игра на выжи
 magnet:?xt=urn:btih:817B5946F883DF83C42458136EC42FF9626CE350
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Silly Polly Beast (2025) [Ru/Multi] (0.97) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:6C09EC74DF0DE34FD8C6F47DFD9EB8048AE48E95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Prince of Persia: The Forgotten Sands / Принц Персии: Забытые 
 magnet:?xt=urn:btih:5A316DA037EE9870984E7009AE8A607776725629
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Cities: Skylines II - это живая экономическая систем�
 ```bash
 magnet:?xt=urn:btih:F9215CF23515BF87CCD514C83A4F7418AD0F18C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Wreckreation (2025) [Ru/Multi] (1.0.144924) Repack FitGirl
 magnet:?xt=urn:btih:96333B80F966B2903A742A2D54BAC85D0BA669BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Beneath - это шутер на выживание от первого лиц
 ```bash
 magnet:?xt=urn:btih:8446DFA157A9528361C5EB8178357A4FFC229532
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Dark Moon – стратегическая игра о выживании, гд�
 magnet:?xt=urn:btih:42892582BA40D6B2D0F25CC86EC0789D4D6CBA8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Darkest Dungeon II - путешествие обречённых в жанре R
 ```bash
 magnet:?xt=urn:btih:B0FCF17E30C80A4C38262E1AB3844F2750090215
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Alekon – необычное веселое приключение с видо�
 magnet:?xt=urn:btih:C1180C166CCD5EE62A44AC1BD4E174209BD117CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Bridge to Another World 11: A Trail of Breadcrumbs (2023) [En] (1.0) Unofficial 
 ```bash
 magnet:?xt=urn:btih:661E58B5CC4933C1C6F9858F27F0F5CAAF5440E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Grim Tales 23: Dual Disposition / Страшные сказки 23: Двойст
 magnet:?xt=urn:btih:9CC04DE017D1F59A114A8717212F699D65556AE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Sherlock Holmes Chapter One (2021) [Ru/Multi] (7839_1.4/dlc) Repack Decepticon [
 ```bash
 magnet:?xt=urn:btih:7EEDF71A6D2834F9A9F115B71127F7AE582C4761
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ JANITOR BLEEDS - это вдохновлённая ретро хоррор иг�
 magnet:?xt=urn:btih:1614FA91E2DF3DC6B1F68555B44E5D5619ECB0A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Kung Fu Grand King (2022) [Multi] (2/dlc) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:71DDB901E22FEFEC448F5A9A04B12789F3AD781E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Grim Tales 22: Horizon of Wishes / Страшные сказки 22: Преде�
 magnet:?xt=urn:btih:F6B4CF0B1ADEE331AF89966F15BEBCDC407D585D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Astalon: Tears of the Earth (2021) [Ru/Multi] (1.1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:F8438097A2FC4130223F09B339B1791BB8D5F4F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ It Happened Here: Streaming Lives / Это случилось здесь: Пря
 magnet:?xt=urn:btih:DF44C3649F5CE4F7E043B2D045B15E7BB45BA161
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Goetia 2 (2022) [Multi] (1.0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:9496558D1FE1F92F55AEA8A03AD1845208280BC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Criminal Archives 2: Alphabetic Murders (2023) [En] (1.0) Unofficial [Collector'
 magnet:?xt=urn:btih:3D7AF93AAA52E4214CE6FA0C59CE58881D0D2A13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ City Legends 3: Ghost of Misty Hill (2023) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:F5A4C540DD92187CB57664A88B9E18C248614C75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Connected Hearts 3: The Musketeers Saga / Связанные любовью 3: �
 magnet:?xt=urn:btih:758807C819A1126A58074C93E7F1734342770D8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Recursive Ruin (2022) [Ru/Multi] (22.05.17) License GOG
 ```bash
 magnet:?xt=urn:btih:39CB569FDEA285632684E10397F231B84097CE6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Detectives United 6: Beyond Time (2023) [En] (1.0) Unofficial [Collector's Editi
 magnet:?xt=urn:btih:58D802FCADD15055D5494011B772AE72E52E6A45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ RICE Repetitive Indie Combat Experience (2023) [En] (24) License GOG [Early Acce
 ```bash
 magnet:?xt=urn:btih:CE599B0DE02FB8B8C72FA4396BBAB5A7B372F988
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Whateverland (2022) [Ru/Multi] (0.9.21) License GOG
 magnet:?xt=urn:btih:37EDFC7C8DD5E537532BB19329DE9C18456BF6C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Legend of Grimrock – подземная бродилка с классичес
 ```bash
 magnet:?xt=urn:btih:02EAC962D6A2CA3B895FA197F7A424DB7FFD14FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

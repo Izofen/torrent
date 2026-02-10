@@ -21,6 +21,8 @@ PDF Vault содержит более 60 PDF-файлов и тестов со �
 magnet:?xt=urn:btih:7736CFE085FF566D339176F984D85C0D21A19F48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:7736CFE085FF566D339176F984D85C0D21A19F48
 ```bash
 magnet:?xt=urn:btih:8F1AF1C486A2D4D9A0A1255F2652A0616822BBCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:8F1AF1C486A2D4D9A0A1255F2652A0616822BBCE
 magnet:?xt=urn:btih:65B2D24ABA5DB4AF868070C5EEC2ABED17404CB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen | В�
 ```bash
 magnet:?xt=urn:btih:E675E805B9268A6BB53B09D97756B8127A05EF61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:E675E805B9268A6BB53B09D97756B8127A05EF61
 magnet:?xt=urn:btih:2F723F62E91F0C758F25DF5212D6BD280551F191
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:2F723F62E91F0C758F25DF5212D6BD280551F191
 ```bash
 magnet:?xt=urn:btih:E3CCF3F6971C9E2DB033AE26E415475AC9882F88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ Podlodka | Podlodka Techlead Crew #1-5 (2021-2023) WEB-DL [RU] [Обновляе
 magnet:?xt=urn:btih:6F0AF3AFFB071DB137C8A3E6709DAFFD895D6B6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:6F0AF3AFFB071DB137C8A3E6709DAFFD895D6B6B
 ```bash
 magnet:?xt=urn:btih:C435646A2A3627CE9F9041B98028B3E3CD7147DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:C435646A2A3627CE9F9041B98028B3E3CD7147DA
 magnet:?xt=urn:btih:8F17FA7CC09128943C1E5EF205CB3830EFCC2285
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:8F17FA7CC09128943C1E5EF205CB3830EFCC2285
 ```bash
 magnet:?xt=urn:btih:CF0F013194FCE603AB572331F8EFC95C44CE1DEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:CF0F013194FCE603AB572331F8EFC95C44CE1DEF
 magnet:?xt=urn:btih:9C3DDEA2E9D10B200A0F6C7ED31ACD61BA74CFE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:9C3DDEA2E9D10B200A0F6C7ED31ACD61BA74CFE0
 ```bash
 magnet:?xt=urn:btih:6749A554C3F24D5046A4F7981FD1B5BB3C2F65F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:6749A554C3F24D5046A4F7981FD1B5BB3C2F65F4
 magnet:?xt=urn:btih:0BAD2B74D4D82E3D43B2B7B289E01C4735025576
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Windows начнет автоматически устанавливать др�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ Genymotion - быстрый эмулятор Android, который включ�
 magnet:?xt=urn:btih:A23ECDC9049D0AB97DE133637BC6AC4C81CD5278
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ Kalaban (2016) [En] (1.0.2) Repack Other s
 ```bash
 magnet:?xt=urn:btih:21843CBC618612D0A96A0F837AF9591024DED6EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:21843CBC618612D0A96A0F837AF9591024DED6EB
 magnet:?xt=urn:btih:35B3E900FC04EE10E05942B75C8CB79983FA9D04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:35B3E900FC04EE10E05942B75C8CB79983FA9D04
 ```bash
 magnet:?xt=urn:btih:821B39E64CD2F6A85523B2406260822F8D797EED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ Ken Follett’s The Pillars of the Earth (2017) [Ru/Multi] (1.1.636) License GOG
 magnet:?xt=urn:btih:F304493D964088622032223DFD057161C01D38DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:F304493D964088622032223DFD057161C01D38DB
 ```bash
 magnet:?xt=urn:btih:CFD5A624681DEB15C9497A4DFF55D07597CBCBC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ Titan Quest: Immortal Throne (2007) [Ru] (1.1) License [Expansion Pack]
 magnet:?xt=urn:btih:EB35DAB4CE4CCFF5CBCB07200E44ADE08A439C74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:EB35DAB4CE4CCFF5CBCB07200E44ADE08A439C74
 ```bash
 magnet:?xt=urn:btih:662347934455E50B1323907333F202C7CD7E82FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ Discovery. Восходы / Sunrise Earth (2004-2008) [1080p/i] 17*Blu-ray
 magnet:?xt=urn:btih:B58AA421C31A600D4E65B18981ABA366B2518966
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ magnet:?xt=urn:btih:B58AA421C31A600D4E65B18981ABA366B2518966
 ```bash
 magnet:?xt=urn:btih:A7A8EB26B32E00B6229C0F67D3FE453294F35BBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:A7A8EB26B32E00B6229C0F67D3FE453294F35BBB
 magnet:?xt=urn:btih:643636E9639A6F89C47019404B23F51547B3DB76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:643636E9639A6F89C47019404B23F51547B3DB76
 ```bash
 magnet:?xt=urn:btih:9F41682AB064E452969A349331824B37F185BD2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

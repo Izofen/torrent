@@ -22,6 +22,8 @@ DOS - 80s Forever (DJ Friendly Edition) (2013) [MP3|320 Kbps] <Italodance, Euro-
 magnet:?xt=urn:btih:85F914DB9AF7222613DEEF4A5F155B14417E6A63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:85F914DB9AF7222613DEEF4A5F155B14417E6A63
 ```bash
 magnet:?xt=urn:btih:8024B17577AAED67FAA85B75B8D5442AC74D2807
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:8024B17577AAED67FAA85B75B8D5442AC74D2807
 magnet:?xt=urn:btih:AB7F3C5C45E2FC8DC3785067589AF0AE9CDFEC44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:AB7F3C5C45E2FC8DC3785067589AF0AE9CDFEC44
 magnet:?xt=urn:btih:4CF519AB873276CCB1F78FB64268EEFA84850BF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:4CF519AB873276CCB1F78FB64268EEFA84850BF6
 ```bash
 magnet:?xt=urn:btih:4A5CEEB1C2D4769BFB132E43EDBDD52E1DD7F42C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Submerged — это библиотека бутиковых звуковых э
 magnet:?xt=urn:btih:B6FF4BC0D8FA0818DF7C27E35A616B62072D9E0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:B6FF4BC0D8FA0818DF7C27E35A616B62072D9E0C
 ```bash
 magnet:?xt=urn:btih:161CD853BB54FB2B17FFCC427E32D874F92DCB72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:161CD853BB54FB2B17FFCC427E32D874F92DCB72
 magnet:?xt=urn:btih:6DCC5A70A6D1C3B6AE73607D2307D973F60C1B19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Sandboxie - yтилита для контроля за работой разли
 ```bash
 magnet:?xt=urn:btih:78665F21AE883F27F869B1D0C2B8B332A0AACE2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:78665F21AE883F27F869B1D0C2B8B332A0AACE2C
 magnet:?xt=urn:btih:CB2772EF5989353AE34A7134F4E2885680F4F3E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:CB2772EF5989353AE34A7134F4E2885680F4F3E2
 ```bash
 magnet:?xt=urn:btih:3C70306987308657BBD918BE3449FF6DCAA7EB46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:3C70306987308657BBD918BE3449FF6DCAA7EB46
 ```bash
 magnet:?xt=urn:btih:C0CC781DFAD752407DFCE9F970C4CC3C064ADD1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ Bury Your Dead - американская группа из Бостона, шт
 magnet:?xt=urn:btih:A1927BCD5C264DD0F320F733431C923E1FC6E168
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ Les Paul Trio - The Jazz Collector Edition (1991) LaserLight Digital [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:44DA734CCC648AFB64AE20AB76007ACA8A4781BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ Retromorphosis - Psalmus Mortis (2025) [FLAC|Lossless|WEB-DL|tracks] <Technical 
 magnet:?xt=urn:btih:B94CCB3C923D20F0944588D5A2639BBCBCA711FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:B94CCB3C923D20F0944588D5A2639BBCBCA711FC
 ```bash
 magnet:?xt=urn:btih:5F5291C4DBD474AE83EDCBF7339E36543F1D7351
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ Robert Hurst - One For Namesake (1994) Columbia [FLAC|Lossless|tracks + .cue] <P
 magnet:?xt=urn:btih:8656744A3F532F7EC62EC7F11C542D5A86AD0FF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ Kenny Garrett - Pursuance: The Music Of John Coltrane (1996) Warner [FLAC|Lossle
 magnet:?xt=urn:btih:49F7FC66B5F06059931CA6468773F9D3931E3087
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ magnet:?xt=urn:btih:49F7FC66B5F06059931CA6468773F9D3931E3087
 magnet:?xt=urn:btih:FE9E3B65F9CA5D4E3BCD46D7466BE2520A463ABD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 ```bash
 magnet:?xt=urn:btih:CC75BE51F657CD48628701C9F5704DBC4C16BD1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +569,8 @@ Ernestronix (Ernesto) - Synths Earth Orbit (Mission Alpha) (2025) [FLAC|Lossless
 magnet:?xt=urn:btih:53812FB0A97DBC853FD9771908E159CEE3AFEC8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +594,8 @@ TT Fellows — гуманистический гротеск с механиче
 ```bash
 magnet:?xt=urn:btih:0AD50D498AC2C559E242E37932541EE20B5808ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +621,8 @@ magnet:?xt=urn:btih:0AD50D498AC2C559E242E37932541EE20B5808ED
 magnet:?xt=urn:btih:63B12F827E447E5998D3D0DACFCAAF28D70799A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +646,8 @@ magnet:?xt=urn:btih:63B12F827E447E5998D3D0DACFCAAF28D70799A2
 ```bash
 magnet:?xt=urn:btih:F7764E02FF75F4D7C8B5E04AC2284E385E934647
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +673,8 @@ magnet:?xt=urn:btih:F7764E02FF75F4D7C8B5E04AC2284E385E934647
 magnet:?xt=urn:btih:739B52E9E3AFB65E07CC276A691A64921B368511
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +698,8 @@ magnet:?xt=urn:btih:739B52E9E3AFB65E07CC276A691A64921B368511
 ```bash
 magnet:?xt=urn:btih:F0F1F57CC34931D206378B82C91029EA2CE05E73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

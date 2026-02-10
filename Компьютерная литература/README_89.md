@@ -19,6 +19,8 @@ C++ широко используется для разработки прогр
 magnet:?xt=urn:btih:9965641198F99554A3E5CE0711A0ACA0F309FE8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:9965641198F99554A3E5CE0711A0ACA0F309FE8F
 ```bash
 magnet:?xt=urn:btih:0F3E902A0FF8FD40AD4570F52D582F8B6A252C00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:0F3E902A0FF8FD40AD4570F52D582F8B6A252C00
 magnet:?xt=urn:btih:325CAAA1E615BBB648F0EAB80E61FC95AA25BA18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:325CAAA1E615BBB648F0EAB80E61FC95AA25BA18
 magnet:?xt=urn:btih:451DF59499881E726C520A0E8DB735500C2F3485
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Spark — высокопроизводительная универсальна�
 ```bash
 magnet:?xt=urn:btih:37164ED2B97ED9C417DD8A4DAA21E1C22F832AD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Microsoft Azure — это постоянно расширяющийся наб�
 magnet:?xt=urn:btih:2063A4F04E69137E45F518172F314B34F476FE93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:2063A4F04E69137E45F518172F314B34F476FE93
 ```bash
 magnet:?xt=urn:btih:ACFFF4166B3024BB3C76DBF6211C858C0EEE2A46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:ACFFF4166B3024BB3C76DBF6211C858C0EEE2A46
 magnet:?xt=urn:btih:6BB57C91C5492B69FC03FE88286C439135B32FDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:6BB57C91C5492B69FC03FE88286C439135B32FDA
 ```bash
 magnet:?xt=urn:btih:DFFF966A91752AB75C0B171AD1828A02D968FF1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:DFFF966A91752AB75C0B171AD1828A02D968FF1D
 magnet:?xt=urn:btih:EE34570383C2CFE821B0B38EB9513B192A4A2C89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:EE34570383C2CFE821B0B38EB9513B192A4A2C89
 ```bash
 magnet:?xt=urn:btih:E0B614D8E03CC7378A77F166AB5EDFF551F5F43D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:E0B614D8E03CC7378A77F166AB5EDFF551F5F43D
 magnet:?xt=urn:btih:CDF70B4F485E1570CCB3A954BF85B4360C97F7CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:CDF70B4F485E1570CCB3A954BF85B4360C97F7CD
 ```bash
 magnet:?xt=urn:btih:A80881FF4C6904FA4AF43FB363535C8660D1F160
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Adobe Press | Adobe Illustrator CS6. Официальный учебный ку�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ Adobe Press | Adobe Illustrator CS6. Официальный учебный ку�
 ```bash
 magnet:?xt=urn:btih:B0492D337604363C58A78168BEEF4B5AFE2C28D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:B0492D337604363C58A78168BEEF4B5AFE2C28D4
 magnet:?xt=urn:btih:9625CD42B17EC04D414ACC5A6E83136863ADABFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:9625CD42B17EC04D414ACC5A6E83136863ADABFE
 ```bash
 magnet:?xt=urn:btih:37CD368DDD5585C3E2CB58F1F0C5E26F3E257D00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:37CD368DDD5585C3E2CB58F1F0C5E26F3E257D00
 magnet:?xt=urn:btih:55CC12DCABE54667C04CB7124ABEEEFCB9B7C578
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:55CC12DCABE54667C04CB7124ABEEEFCB9B7C578
 ```bash
 magnet:?xt=urn:btih:3CC42BBBAA47872F8A707733DD6E35C1AD7A42AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ magnet:?xt=urn:btih:3CC42BBBAA47872F8A707733DD6E35C1AD7A42AE
 magnet:?xt=urn:btih:83424D7E5AA3B9028157826422ED14F5065F5362
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ magnet:?xt=urn:btih:83424D7E5AA3B9028157826422ED14F5065F5362
 ```bash
 magnet:?xt=urn:btih:8DA63ADE3F53F91D15FB28F9A9B762881EDB0155
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ magnet:?xt=urn:btih:8DA63ADE3F53F91D15FB28F9A9B762881EDB0155
 magnet:?xt=urn:btih:4100A29D0B3D751D742BFD7EE98AE76E049423E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ magnet:?xt=urn:btih:4100A29D0B3D751D742BFD7EE98AE76E049423E6
 ```bash
 magnet:?xt=urn:btih:93176AF37DFE5A98B41C0DBC1AF192A515418DE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ Python - невероятный язык, популярный во многих
 magnet:?xt=urn:btih:E4C03EF31FACED147AFF8DD8C6A69F49BB52F2D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Dassault Systemes | Новые возможности SolidWorks 2019 (2019) [PD
 magnet:?xt=urn:btih:A3F532448F2AFA09A9EFB3288F3ED8AC79CB72B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ WebAssembly – это быстрая компактная межплатфор�
 ```bash
 magnet:?xt=urn:btih:E2F85C282A54899974866745F954D8EE35BBEEEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

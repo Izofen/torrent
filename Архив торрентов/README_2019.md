@@ -19,6 +19,8 @@ O&O Defrag - одна из самых известных и лучших про�
 magnet:?xt=urn:btih:4F77172AC00378572C7F91DBAAA6E662AF828496
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Simple Sticky Notes — простая в понимании программа 
 ```bash
 magnet:?xt=urn:btih:ED4A64C995713120F4C035B9F9F1DB1BDF479A50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ ProPresenter — это удобный многоцелевой инструме
 magnet:?xt=urn:btih:551E6B145BD6792040815FE1E9BBE9C1E109ADA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Macrium Reflect обладает интуитивно понятным поль�
 magnet:?xt=urn:btih:4753CE87EAA4310E7157FB56FA56BABE30348E0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:4753CE87EAA4310E7157FB56FA56BABE30348E0C
 magnet:?xt=urn:btih:CAC44C4384B5A837528DE67E6A05448D4B0BFCA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:CAC44C4384B5A837528DE67E6A05448D4B0BFCA3
 ```bash
 magnet:?xt=urn:btih:07A40278CB4BE82202F0438B58462FEDA0B42EC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:07A40278CB4BE82202F0438B58462FEDA0B42EC1
 magnet:?xt=urn:btih:CC5734A0339EEC6F81E5747076A8D702E03298B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 ```bash
 magnet:?xt=urn:btih:EFEB7B32DBB073D41C6DA623FFB2CC8506583092
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:EFEB7B32DBB073D41C6DA623FFB2CC8506583092
 magnet:?xt=urn:btih:010F60573838CED623DB51A81E80444CCA6527A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ MacPilot 10 v10.15 [En]
 ```bash
 magnet:?xt=urn:btih:DFDED9716B11A2737A66FB5438BE1F4E48BC8406
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ Calendar 366 II v2.4.0 [Multi]
 magnet:?xt=urn:btih:DE6BB720D7619A1B4935FD4E6CC527983A8E4CC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ Alarm Clock Pro представляет собой многофункциона
 ```bash
 magnet:?xt=urn:btih:FBED1520C8ED66A4A44FED978FDDFA25928425E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ Things — приятный и простой ежедневник. Это ид�
 magnet:?xt=urn:btih:86B9FCA8A407186FD911FF0A307628F617139C1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ FSNotes - это менеджер текстовых заметок для macOS
 ```bash
 magnet:?xt=urn:btih:F5F79F22A1E664363EC780DD845FBE6106A63678
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ VA - Vocal Trance Top 100 (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Trance>
 magnet:?xt=urn:btih:08C1D5C1F5E804792EFBEB0F8D436B909E37D265
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ MiniNote Pro — очень простое и удобное приложени�
 magnet:?xt=urn:btih:3EA249749B01C92D5C2B221077788895180E6298
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ Runtastic Heart Rate PRO 2.4 [Ru/Multi] - Пульсомер
 magnet:?xt=urn:btih:15B345A7347DAE25EF35230C63D306EBA0236D1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ PDF-XChange Pro - универсальная программа для рабо�
 ```bash
 magnet:?xt=urn:btih:7D6CF14D1C7AB926F4E098264929ED5D436CD85D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ magnet:?xt=urn:btih:7D6CF14D1C7AB926F4E098264929ED5D436CD85D
 magnet:?xt=urn:btih:68A7079F13775B30AE5AE2B39F28F8BD1A8EEB06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ Max Payne 3 (2012) [Ru] [macOS WineSkin]
 ```bash
 magnet:?xt=urn:btih:B1A13119A1ABC5103534D767E695AC915D3B1ABD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +561,8 @@ Tрек: Олимпийский санно-бобслейный центр Ин�
 magnet:?xt=urn:btih:EF64FCAF6ABD543386960980B64E6617F4E3446C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ Microsoft Office 2010 — один из лучших наборов офисны
 ```bash
 magnet:?xt=urn:btih:3D3E35D82D1D18A6B80DFA2176DEB0B1514AFAAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +613,8 @@ magnet:?xt=urn:btih:3D3E35D82D1D18A6B80DFA2176DEB0B1514AFAAB
 magnet:?xt=urn:btih:77C6EFD069358C43E881B5258717FD5E28475632
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:5CF3CB6B466AC6BAC653694F6D3D67417A7B83D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +665,8 @@ Adobe Animate CC — На смену Flash Professional пришло прило�
 magnet:?xt=urn:btih:C62C30928A30953C2F27A955C19B92D5C66C8533
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ DU Meter - программа для подсчета реального вхо�
 ```bash
 magnet:?xt=urn:btih:17A6A2B876A819800D077D26DB491A60DDEBA7EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:762C2AD7B9EE0C8E27299F5E228A411A196465AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:762C2AD7B9EE0C8E27299F5E228A411A196465AB
 magnet:?xt=urn:btih:95001E17347523590C5EE9B48FEAA47402E6DCEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:95001E17347523590C5EE9B48FEAA47402E6DCEF
 ```bash
 magnet:?xt=urn:btih:8AE03E36522385AF9E92FFB08FA08121373704D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ The Book of R is a comprehensive, beginner-friendly guide to R, the world’s mo
 magnet:?xt=urn:btih:6D8E3E129B07C58F0C9159988C83041679511E99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:6D8E3E129B07C58F0C9159988C83041679511E99
 ```bash
 magnet:?xt=urn:btih:888DFE278C08AFC78918EAD01D6C826ABB189471
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:888DFE278C08AFC78918EAD01D6C826ABB189471
 magnet:?xt=urn:btih:95695580B0D503AC9DB52C30203637A5A42E06C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:95695580B0D503AC9DB52C30203637A5A42E06C6
 magnet:?xt=urn:btih:2E4B4B044818939970CE7D7CF63C309C03758317
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:2E4B4B044818939970CE7D7CF63C309C03758317
 ```bash
 magnet:?xt=urn:btih:79A8EC4856FD554547F812C076C297D9E18A4A7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Stack Overflow | CSS для профессионалов. Руководство
 magnet:?xt=urn:btih:7357D913639D93528C77FBDFF2F5B73CEABE3521
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:7357D913639D93528C77FBDFF2F5B73CEABE3521
 ```bash
 magnet:?xt=urn:btih:C765CF2B796291B1062500256D9662E17EB2E3D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:C765CF2B796291B1062500256D9662E17EB2E3D7
 magnet:?xt=urn:btih:69E26CC30E6055AB7723F00BEC0986998AC6836F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:69E26CC30E6055AB7723F00BEC0986998AC6836F
 ```bash
 magnet:?xt=urn:btih:44A5D497E80C7C9B1CE71BFA46A4679E932FEBEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:44A5D497E80C7C9B1CE71BFA46A4679E932FEBEF
 magnet:?xt=urn:btih:4976615980E53A1DD0DF3ADF8C87378DF2D7A14D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:4976615980E53A1DD0DF3ADF8C87378DF2D7A14D
 ```bash
 magnet:?xt=urn:btih:82CF5C4A42096A461E4E29A258E0F5E95803B08F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Jaime Buelta | Python Automation Cookbook, 2nd Edition (2020) [PDF][EN]
 magnet:?xt=urn:btih:13BB9C4FA3A5D385A66DCECE26C7686DF2846A9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Alberto Gonzalez | Linux Server Cookbook (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:CCF99447DCBD1A29E795DDCD0918DB262CBDC438
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Robert Benefield | Lean DevOps: A Practical Guide to On Demand Service Delivery 
 magnet:?xt=urn:btih:414D4F59262A0A6EAA7D4AFC995CE061C02B7DEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Marian Montagnino | Building Modern CLI Applications in Go (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:F3AF1879ACAE661EFBB14B9B04167EC244A99F71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ Eric Sarrion | JavaScript from Frontend to Backend (2022) [PDF][EN]
 magnet:?xt=urn:btih:A3832D5F98CA3545837DE8A4B22E59775A8E996B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:A3832D5F98CA3545837DE8A4B22E59775A8E996B
 ```bash
 magnet:?xt=urn:btih:A48D4652E954044ED7DB53AF250C44108E9F452C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ Dylan Meeus | Functional Programming in Golang (2023) [PDF][EN]
 magnet:?xt=urn:btih:FE35DD6EA93314AC9BB9332E48F73119520A34FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ API представляют собой контракты, которые оп�
 ```bash
 magnet:?xt=urn:btih:92D676C501D301075E688CE87B6ACF6869F3BFC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Maxime Labonne | Hands-On Graph Neural Networks Using Python (2023) [PDF][EN]
 magnet:?xt=urn:btih:AF89E92EF792EDBF0FA9F309258DA116C649E9E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:AF89E92EF792EDBF0FA9F309258DA116C649E9E0
 ```bash
 magnet:?xt=urn:btih:DBAD85C578A5B26E0AA32582525F4696EBB1EF7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:DBAD85C578A5B26E0AA32582525F4696EBB1EF7F
 magnet:?xt=urn:btih:3C26FEBAEC96D9C525F270FD8D99B8D881F272CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Stephen DeStefano | Animating SwiftUI Applications (2023) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:B6D5CA99800EEB22B48A346FE6BAEA6F822D7779
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

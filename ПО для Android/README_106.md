@@ -19,6 +19,8 @@ USSDDualWidgetPro v1.0.31 [Ru]
 magnet:?xt=urn:btih:37611EA8423C2EC51116EF45B85A5E434C5590CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Easy Poser – это приложение, которое сумеет реал
 ```bash
 magnet:?xt=urn:btih:37A7AEB6E784759EB09E83104BF32237FCD53802
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ KidsControl / Cемейный GPS трекер v5.2.14 [Ru/Multi] (обновл�
 magnet:?xt=urn:btih:8E0063BA2B6E5B122A26D06240403D5B31774871
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NumoTrend (NUM + KinoTrend) v2.1.5 [Ru]
 ```bash
 magnet:?xt=urn:btih:361146A250208707029785A265A96F6019773795
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ RepliGo Reader – удобная и быстрая PDF читалка для а
 magnet:?xt=urn:btih:7B6A5E4EFA2A34C252382BDACED206A7B186CDF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Track24.ru 1.95 (Lite Mod) [Ru/Eng]
 ```bash
 magnet:?xt=urn:btih:A2B1EC4A2D2CE1563622FEFC78562D9C2BECEC18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Video Converter Android 2 v3.2.5 Premium [En/Rus] - видео и аудио к�
 magnet:?xt=urn:btih:A584F3116F16CE9C010F3F3084B81B9701523EF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ eReader Prestigio Premium 6.4.0 [Ru/Multi]
 magnet:?xt=urn:btih:1578ACAA77EF6419CDA5A3E5F14DFE6F84912CF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ magnet:?xt=urn:btih:1578ACAA77EF6419CDA5A3E5F14DFE6F84912CF0
 ```bash
 magnet:?xt=urn:btih:D420D06149AE4C0EE7FABBB748456A60D2DAEEE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:D420D06149AE4C0EE7FABBB748456A60D2DAEEE7
 magnet:?xt=urn:btih:745CD86670F1CC815AE913F2A8D04151A6A6EEBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:745CD86670F1CC815AE913F2A8D04151A6A6EEBB
 ```bash
 magnet:?xt=urn:btih:188837523EF3E3BCBAA7B1668D1B7D4BC8E84C8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Weawow — это погодное приложение, дополненное 
 magnet:?xt=urn:btih:9E661D505CA8E9E1E374A62868B2DED9675858BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Greenify v4.7.5 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:ACAD30D999DEE501E0DD7DE930AE490A8F6C644C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:ACAD30D999DEE501E0DD7DE930AE490A8F6C644C
 magnet:?xt=urn:btih:EF1E53DF5AA96F79E1DF41578710310F8E80343C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ VirusTotal Mobile дает возможность проверить все ус
 ```bash
 magnet:?xt=urn:btih:3F43CB7786AF18D72E64BF21F557FFF453B06BE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ VPN Россия: Русский IP proxy v1.84 [Ru/Multi]
 magnet:?xt=urn:btih:3245197AC46EEA9C569BC98C30EDE6E45E3C6430
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:3245197AC46EEA9C569BC98C30EDE6E45E3C6430
 ```bash
 magnet:?xt=urn:btih:6DBA433623B140C2225252351B28ED2D47E23F2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ aTorrent - торрент (битторрент)клиент. Качайте т�
 magnet:?xt=urn:btih:67AB606996C187B41ABAD2C99F0612983F393816
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ MeMeteo - ваш метео эксперт и повседневный помо�
 magnet:?xt=urn:btih:93C09F841F297E2835DE7777AB37B762EA541DFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ Corel Painter Mobile v2.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:C893D98359129BE5AFF6695F653903DBB4D00CB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:C893D98359129BE5AFF6695F653903DBB4D00CB9
 magnet:?xt=urn:btih:1C977D389C4CE9A86A2C87AF05B815C5C3E9119A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ YoWindow - это абсолютно новая погодная програм�
 magnet:?xt=urn:btih:5DEC88FF7983248BED1881B455BF58DFA0F777B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ Weather Underground v6.11.0 [Ru]
 magnet:?xt=urn:btih:4B48CF229C6E380820D799485F3729C50D78D2FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Unit Converter Plus v1.4.5.19.2 [Ru/Multi] - многофункциональн
 ```bash
 magnet:?xt=urn:btih:2C781A9EC12EE12150DD153CCA0E0842790DFF7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ AccuWeather - прогноз погоды v7.17.1-2 [Ru]
 magnet:?xt=urn:btih:C91AF382CE365E1D1D0BF8445965652AF735742B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Tomorrow.io: Прогноз погоды v2.10.0 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:58BD00DE72524D05F4A8DFCC5F9C7F78E36F84A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

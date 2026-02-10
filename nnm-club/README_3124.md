@@ -28,6 +28,8 @@ VA - Pop Dance Coctail (2011) [MP3|128-256 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:05EAFF4AD5091B626A0E041563ABE861DCA8C055
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ Hatebeak - Дискография из 3х альбомов (2004-2007) [MP3|224
 ```bash
 magnet:?xt=urn:btih:2FD81ABDF278DC02C457509EBA42BCBAFBD9A716
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -80,6 +84,8 @@ magnet:?xt=urn:btih:2FD81ABDF278DC02C457509EBA42BCBAFBD9A716
 magnet:?xt=urn:btih:09F5EA940645BF5640474BD1549A48DBFA23995B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ magnet:?xt=urn:btih:09F5EA940645BF5640474BD1549A48DBFA23995B
 ```bash
 magnet:?xt=urn:btih:B33FCDB8D99FB5C530EFD764B11280157F258762
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ magnet:?xt=urn:btih:B33FCDB8D99FB5C530EFD764B11280157F258762
 magnet:?xt=urn:btih:64ED958A11144F72C23038EEA755667B8735EE6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:64ED958A11144F72C23038EEA755667B8735EE6E
 ```bash
 magnet:?xt=urn:btih:11CF357CE60FB423C20D328A24A27D5127EF727C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -185,6 +197,8 @@ Nelson Rangell - Look Again (2003) [FLAC|Lossless]<Smooth Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ Nelson Rangell - Look Again (2003) [FLAC|Lossless]<Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:21552960F9CC1773087653DCF8C46ACFD6D69678
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +257,8 @@ AguaFlames - Ti Qua? (2008) [MP3|320 кб/с]<Chillout/Lounge>
 magnet:?xt=urn:btih:66EC147031054990E34BE8EA09FD5F5451D8FFA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +283,8 @@ Ilkan Gunuc ft. JJ - Rain (Vdj Rossonero) (2011) [H.264/720р] WEBRip
 magnet:?xt=urn:btih:EE3E08ADFAB1E5EBC6AB1FB3C63127AC0D3376B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +308,8 @@ magnet:?xt=urn:btih:EE3E08ADFAB1E5EBC6AB1FB3C63127AC0D3376B1
 ```bash
 magnet:?xt=urn:btih:7E9FFE8BFE701708ADD0AB833F0D61899128B761
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +339,8 @@ magnet:?xt=urn:btih:7E9FFE8BFE701708ADD0AB833F0D61899128B761
 magnet:?xt=urn:btih:8EC0E11E6CF55069C4EE4D8220AAAEFDACBEF12B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +364,8 @@ Bob Berg - 4 альбома (1990-2000) [FLAC|Lossless]<Jazz>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +391,8 @@ Sexy Anime Girls
 magnet:?xt=urn:btih:4F0ED9F2930E65E596BB9FBDD26C2717C311967A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +416,8 @@ magnet:?xt=urn:btih:4F0ED9F2930E65E596BB9FBDD26C2717C311967A
 ```bash
 magnet:?xt=urn:btih:28AA03857561B0C359DF014449160B0F138E7ADE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +446,8 @@ magnet:?xt=urn:btih:28AA03857561B0C359DF014449160B0F138E7ADE
 magnet:?xt=urn:btih:80B01C1AC2F1CF42E82C1ED8E4210DF82133273F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +472,8 @@ Computerworld - Ведущий международный еженедельни
 magnet:?xt=urn:btih:AE7975E6CB4B91CB43D8940D5CF5DEA323CBB130
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +497,8 @@ magnet:?xt=urn:btih:AE7975E6CB4B91CB43D8940D5CF5DEA323CBB130
 ```bash
 magnet:?xt=urn:btih:20B61C89DCFD21BEF4F119DE76AD118B7C3C0E1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +533,8 @@ Cattle Decapitation - The Harvest Floor (2009) [FLAC|Lossless]<Brutal Technical 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +559,8 @@ Cattle Decapitation - The Harvest Floor (2009) [FLAC|Lossless]<Brutal Technical 
 magnet:?xt=urn:btih:C994F6C67BEFAC3B6D42749F0A2CDB66A52A08FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +584,8 @@ magnet:?xt=urn:btih:C994F6C67BEFAC3B6D42749F0A2CDB66A52A08FD
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +620,8 @@ magnet:?xt=urn:btih:C994F6C67BEFAC3B6D42749F0A2CDB66A52A08FD
 magnet:?xt=urn:btih:40817D6BC54C79B2A96598E7B6B49A7752FB7CE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +649,8 @@ magnet:?xt=urn:btih:40817D6BC54C79B2A96598E7B6B49A7752FB7CE1
 ```bash
 magnet:?xt=urn:btih:97D3A03450511D62CFCFC5F2F7C38B545248FD70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +680,8 @@ magnet:?xt=urn:btih:97D3A03450511D62CFCFC5F2F7C38B545248FD70
 magnet:?xt=urn:btih:F99ADA6D1EC04000253166705794F0DAB452DFF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +706,8 @@ magnet:?xt=urn:btih:F99ADA6D1EC04000253166705794F0DAB452DFF4
 magnet:?xt=urn:btih:69F9E9928EB7B9560A2E0121E117311D9E747147
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -681,6 +731,8 @@ magnet:?xt=urn:btih:69F9E9928EB7B9560A2E0121E117311D9E747147
 ```bash
 magnet:?xt=urn:btih:8800818E4E0144A71F35D0ABEA9C5F17C3293E5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

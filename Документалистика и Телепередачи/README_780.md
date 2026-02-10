@@ -1,3 +1,30 @@
+###  Публикация: 1843755   (1049503) от 21.12.2025
+
+Сердце Азии / Афганистан (1929) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049503.jpg" />
+</div>
+
+
+###  Подробнее
+
+В фильме запечатлена экспедиция Совкино от советской границы к Кабулу — столице Афганистана, где находится резиденция падишаха Амануллы-хана. Герои передвигались через горы, реки, хребты, ущелья и тропические заросли на плотах, автомобилях и лошадях.
+Ерофеев вспоминал: «Задачей нашей кино-экспедиции было дать общий киноочерк страны. Я думаю, мы с этой задачей в общем (   Читать дальше...   )Производство: СССР, Совкино (Ленинград)Жанр: документальный, история, географияРежиссер: Владимир ЕрофеевПеревод: немой с интертитрамиСубтитры: немецкие (интертитры), русскиеПродолжительность: 01:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F96C00FCA07817E574E5A23047560AA2C7FA8D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1843734   (1049519) от 27.12.2025
 
 Своя игра (22.11-21.12.2025) WEBRip [H.264/1080p]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:C5EEE6A5DC725526F69C5071891B52CED3FD954D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +75,8 @@ magnet:?xt=urn:btih:C5EEE6A5DC725526F69C5071891B52CED3FD954D
 magnet:?xt=urn:btih:C4CACD3DD3FA54249C86195CAA9944B77B48A846
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +103,8 @@ magnet:?xt=urn:btih:C4CACD3DD3FA54249C86195CAA9944B77B48A846
 magnet:?xt=urn:btih:49A9858A8D0E07D6C7E40AABDA3CD9361955582D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +128,8 @@ magnet:?xt=urn:btih:49A9858A8D0E07D6C7E40AABDA3CD9361955582D
 ```bash
 magnet:?xt=urn:btih:429594EE0FB4F67F8B3C9DEE9E4D38ED902D8A18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +155,8 @@ magnet:?xt=urn:btih:429594EE0FB4F67F8B3C9DEE9E4D38ED902D8A18
 magnet:?xt=urn:btih:C14841F4246B09444AA42A44945D5EEC2EE6C7E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +180,8 @@ magnet:?xt=urn:btih:C14841F4246B09444AA42A44945D5EEC2EE6C7E7
 ```bash
 magnet:?xt=urn:btih:AAF25A245F45DC3FB028FC72464E3DE59E66DDC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +207,8 @@ magnet:?xt=urn:btih:AAF25A245F45DC3FB028FC72464E3DE59E66DDC3
 magnet:?xt=urn:btih:EC10B809ABEAE2FCF85F3CF1009F50EE99442CE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +232,8 @@ magnet:?xt=urn:btih:EC10B809ABEAE2FCF85F3CF1009F50EE99442CE3
 ```bash
 magnet:?xt=urn:btih:C83BB5B7D24F8CC4CA5A9789E51FA813DCCA4858
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +259,8 @@ magnet:?xt=urn:btih:C83BB5B7D24F8CC4CA5A9789E51FA813DCCA4858
 magnet:?xt=urn:btih:33D0BE43F746E220AA290C7B409A813256696046
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +284,8 @@ magnet:?xt=urn:btih:33D0BE43F746E220AA290C7B409A813256696046
 ```bash
 magnet:?xt=urn:btih:97D62BB7C94AA48E0C11C1BE0A546CBCE0E43379
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +311,8 @@ magnet:?xt=urn:btih:97D62BB7C94AA48E0C11C1BE0A546CBCE0E43379
 magnet:?xt=urn:btih:A68A02B43F8B97B5E29B2BE4F1C4DD72DA9BCA5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +337,8 @@ magnet:?xt=urn:btih:A68A02B43F8B97B5E29B2BE4F1C4DD72DA9BCA5E
 ```bash
 magnet:?xt=urn:btih:6316520BF5966963BD385E99995476C4533570DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +366,8 @@ magnet:?xt=urn:btih:6316520BF5966963BD385E99995476C4533570DB
 magnet:?xt=urn:btih:C72711F17AE35E97F63E2575E803487C83AAD306
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +392,8 @@ magnet:?xt=urn:btih:C72711F17AE35E97F63E2575E803487C83AAD306
 ```bash
 magnet:?xt=urn:btih:D430E308386DC8B16564E0AFF81CF63A58E29709
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +420,8 @@ magnet:?xt=urn:btih:D430E308386DC8B16564E0AFF81CF63A58E29709
 magnet:?xt=urn:btih:D00E90AF6CEF3643EC7116A816CF89F76BFCC06C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +445,8 @@ magnet:?xt=urn:btih:D00E90AF6CEF3643EC7116A816CF89F76BFCC06C
 ```bash
 magnet:?xt=urn:btih:6B34C1135E7EACE21D685AD9BFCAF7B1EB086083
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +472,8 @@ magnet:?xt=urn:btih:6B34C1135E7EACE21D685AD9BFCAF7B1EB086083
 magnet:?xt=urn:btih:A308456A1BD646196E2624B12F5651DAAEDE9D03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +497,8 @@ magnet:?xt=urn:btih:A308456A1BD646196E2624B12F5651DAAEDE9D03
 ```bash
 magnet:?xt=urn:btih:02CB6C3D20B8F11A43044BDBD45411BDB99C054E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +524,8 @@ magnet:?xt=urn:btih:02CB6C3D20B8F11A43044BDBD45411BDB99C054E
 magnet:?xt=urn:btih:55066DB76C654E6063469459EB1E7E2A086AE1C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +549,8 @@ magnet:?xt=urn:btih:55066DB76C654E6063469459EB1E7E2A086AE1C6
 ```bash
 magnet:?xt=urn:btih:A711D1FB3C54CBDD0EBD5A1ABC0565F0261E7E09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +576,8 @@ NG. Боби Вайн: народный президент / Bobi Wine. The Peop
 magnet:?xt=urn:btih:C10DA833CF42D70422B8FE0AB1F1972532077219
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +601,8 @@ magnet:?xt=urn:btih:C10DA833CF42D70422B8FE0AB1F1972532077219
 ```bash
 magnet:?xt=urn:btih:82B9419AACE5CFCCFF3E60F3EE66C02F4F1108DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +628,8 @@ magnet:?xt=urn:btih:82B9419AACE5CFCCFF3E60F3EE66C02F4F1108DB
 magnet:?xt=urn:btih:0C97E062D4DABAF789680F3B5A6230166CFD06E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +653,8 @@ BBC. Космическая гонка 21-го века / The 21st Century Race 
 ```bash
 magnet:?xt=urn:btih:DE67CF3B404B207B6E72AC9EECFEBD816EB631A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,29 +680,7 @@ magnet:?xt=urn:btih:DE67CF3B404B207B6E72AC9EECFEBD816EB631A6
 magnet:?xt=urn:btih:0325AF5E9B82BFBCE5BF1FA869077D2A0BD03763
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846229   (1051254) от 06.01.2026
-
-Байки из склепа: Путь от комикса к телесериалу / Tales from the Crypt: From Comic Books to Television (2004) DVDRip [H.264] [DVO]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051254.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом документальном фильме рассказывается история этих знаменитых, противоречивых и влиятельных комиксов. Кроме того, несколько авторов и режиссеров, в том числе Джон Карпентер, Джордж А. Ромеро, Джоэл Сильвер и Р. Л. Стийн, обсуждают, как европейское общество вдохновляли их на создание комиксов «ужасов».Производство: СШАЖанр: документальный, фэнтези, ужасы, драмаРежиссер: Чип ШелбиУчастники: Джон Карпентер, Расс Кохрэн, Джек Дэвис, Дигби Дил, Марк Эваньер, Эл Фельдштейн, Уильям М. Гейнс, Грант Гайссман, Джонатан ХемингуэйПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, английскийПродолжительность: 00:55:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42F74784453DF8E38737866345075AD1FFED08AE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

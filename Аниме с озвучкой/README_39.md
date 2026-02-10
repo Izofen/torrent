@@ -19,6 +19,8 @@ Megazone 23 | Мегазона 23 [1985-1989, OVA, 4 эп.] DVDrip 480p raw+rus
 magnet:?xt=urn:btih:BBB8D8258CB437641AF857F503C0A9E54E5220B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Kidou Senshi Gundam 0080: Pocket no Naka no Sensou | Mobile Suit Gundam 0080: Wa
 magnet:?xt=urn:btih:3AC297CD6CA8EEDAD3CFB5F3D6C053FB4CC25A3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Shin Kimagure Orange Road: Soshite, Ano Natsu no Hajimari | Новые капр�
 ```bash
 magnet:?xt=urn:btih:D3C2D76D0F04389B2154DCA43DA8FA2D8E2D9328
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Tetsuwan Birdy Decode:02 | Birdy the Mighty: Decode | Могучая Берди 
 magnet:?xt=urn:btih:6609090F72E66ED728402C41C46F82ED3F845C87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Tetsuwan Birdy Decode: The Cipher | Birdy the Mighty Decode: The Cipher | Мог
 ```bash
 magnet:?xt=urn:btih:2A02B9FA977F373BC37233379CB0797229CD5703
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Tonari no Totoro / My Neighbor Totoro / Мой сосед Тоторо [1988] BD
 magnet:?xt=urn:btih:3488C00CB2703BBD950FB0D719BD15D798853118
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Yume de Aetara | If I See You in My Dreams | Увидеть тебя в моих
 ```bash
 magnet:?xt=urn:btih:BBA96AA69BDA6510F2672EB1CD624C233EFD4C23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Chirin no Suzu | Ringing Bell | Колокольчик Чирина [1978, Movie
 magnet:?xt=urn:btih:DC929EB93846C7A8DE8B171C90ADA770238BDF95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Soul Link | Связь душ [2006, TV, 12 эп.] DVDrip 480p raw+rus
 magnet:?xt=urn:btih:E6AB249E8A805EC7D072838969DD89A3973EC593
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Kimi no Na wa | Your Name | Твоё имя [2016, Movie] BDRip 400p raw+rus
 ```bash
 magnet:?xt=urn:btih:E75CB68BEFF81201A1320EC8310BB7BF8A1D0C1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Magi: The Kingdom of Magic / Маги (ТВ-2): Королевство Маги�
 magnet:?xt=urn:btih:B46A9901293FA4CD3630F5779BAC86B27B782DC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Trinity Seven / Святая семёрка [2014, TV, 12 ep] BDRip Hi10p 720p R
 magnet:?xt=urn:btih:420D0B6BEB1202CB48D783918021830859B0B4B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Nobunagun / Пушка Нобунаги [2014, TV, 13] BDRip Hi10p 720p Raw+Rus
 ```bash
 magnet:?xt=urn:btih:66E12DB9FC72C36D6D92DDAAD7437AA1D50E2B53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Sasameki Koto / Whispered Words / Я тихо прошепчу [2009, TV, 13 ep]
 magnet:?xt=urn:btih:F28B44EDC1EDDEBEC2B0216F2AF1411A445B832E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Isshuukan Friends / One Week Friends / Друзья на неделю [2014, TV,
 ```bash
 magnet:?xt=urn:btih:D2E00B2FCB9EC450D03458F9021B164FDE1B29C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Gekijouban Hunter x Hunter: Phantom Rouge / Охотник х Охотник (ф
 magnet:?xt=urn:btih:EE9EE900CC636EC4231492D9AA08550BAAC4E404
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Masamune-kun no Revenge | Masamune-kun's Revenge | Месть Масамунэ [
 ```bash
 magnet:?xt=urn:btih:6FC44AEE5EF4273082AD6A8E709ED74AC1810242
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ Shinpi no Sekai El Hazard | El Hazard - The Magnificent World | Удивител
 magnet:?xt=urn:btih:302C33E061B532D7108F2B9413E0A1364236A405
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ Rean no Tsubasa | The Wings of Rean | Крылья Рин [2005, ONA, 6 эп.] D
 ```bash
 magnet:?xt=urn:btih:6B4AEEE902165116C62C8B78E51C495D2B164559
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ Arete Hime | The Adventure of Princess Arete | Принцесса Аритэ [20
 magnet:?xt=urn:btih:8B4CF3CB5303F88C32C4FD5B859063557C5FD6AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Aoki Hagane no Arpeggio: Ars Nova / Arpeggio of Blue Steel / Арпеджио г
 ```bash
 magnet:?xt=urn:btih:4E26A51DC974D6B693382A20FB920453F01D4579
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ Pandora Hearts / Сердца Пандоры [2009, TV, 25] DVDrip raw+rus
 magnet:?xt=urn:btih:DB04CF404A2315224350E756D0FF61EB96503180
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ Psycho-pass | Психопаспорт (два сезона) [2012-2014, TV, 22 
 magnet:?xt=urn:btih:AF86581417E580C44E2BDF893504CA1BF6CDB91B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ Sword Art Online | Мастера меча онлайн [2012, TV, 25] BDRip 400
 ```bash
 magnet:?xt=urn:btih:A744CC7D61D95A0560DC3ACF543F2C0B16D24873
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ No Game No Life: Zero | Нет игры - нет жизни: Начало [2018,
 magnet:?xt=urn:btih:361DBDA13E69161252A0AA2043D484DDA85672A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Pokemon: Advanced (6 Season) / Покемон: Новое поколение (6 
 ```bash
 magnet:?xt=urn:btih:677C0ABC6FDC1DD700726807407F210BF5B8CAFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

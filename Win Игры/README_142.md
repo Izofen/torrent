@@ -19,6 +19,8 @@ Dwarven Realms - это ориентированная на действия 3D 
 magnet:?xt=urn:btih:A3CB85BE288CEF69B273DDF18801C5FEEE84529E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.236.114/dlc) Repack FitGirl [Digital
 ```bash
 magnet:?xt=urn:btih:FB88F26BD640E0C43A7503419568E12BE21A9098
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Dark Sky (2024) [Ru/Multi] (1.0.1/dlc) Repack FitGirl [Supporter Edition]
 magnet:?xt=urn:btih:A0A2B5BB912F0D5542EA567E3038DE87BFE63B0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.236.114/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:D7CC44969B745F3A32CB880C67D9FD433452A08C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Gungrave G.O.R.E (2022) [Ru/Multi] (Build 15224246/dlc) Scene Rune
 magnet:?xt=urn:btih:7665346EA6148AFDB224728564840E2C78610BA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ BioShock Remastered Dilogy (2016) [Ru/Multi] (1.0/1.0.122864) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:313157938F19B5A6D90906C35BC7998269FC7B04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Gungrave G.O.R.E (2022) [Ru/Multi] (Build 15224246/dlc) Repack FitGirl [Complete
 magnet:?xt=urn:btih:6FBBBE8D4F8A23393BB94A8D0E16457F4BA7B66F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (Build 1589651
 ```bash
 magnet:?xt=urn:btih:BC5955F3B88D38A19E97F726405BEA5D09BA8F62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Times and Galaxy предлагает стать робо-репортером �
 magnet:?xt=urn:btih:28857B930382A1518897330FD4668902CA83C7A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ HellO — это крупнейшая компания по поставкам �
 ```bash
 magnet:?xt=urn:btih:1CD62C52E7A9705C4CEADBF8E11AA38247BF6686
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Machinika: Atlas (2024) [Ru/Multi] (1.1.2.1) Repack FitGirl
 magnet:?xt=urn:btih:A806BA0BE2E2DDE3FAE0234981122B483A8E7553
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (Build 1589651
 ```bash
 magnet:?xt=urn:btih:538B4ED47182BE487658982DAF8BB243B5BCCAE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Steamworld Heist (2016) [Ru/Multi]  (2.1/dlc) License GOG
 magnet:?xt=urn:btih:334A160723EDD6DC01EC8E6E52F6B17D90D4B03B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Starfield открывает новую главу в игровой вселе�
 ```bash
 magnet:?xt=urn:btih:783E04DB9496F4AD81DC74FB1E374B43321BEA21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Space Prison бросает вас в холодную реальность га
 magnet:?xt=urn:btih:82E6B48DB36B3B250EC6F32343B0E87E6F18890E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Yars Rising (2024) [Multi] (1.1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4300340189E2C6177977DDB0FBFCBBAE81569864
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Satellite odyssey: Рrologue - открывающая часть серии иг
 magnet:?xt=urn:btih:99322182EAAD2451E89EE4AFBFBEE84EFFC4D2FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Psycho Fear - это захватывающая головоломка-квес�
 ```bash
 magnet:?xt=urn:btih:E5C7E45219DBDE0011BE46FC37D46C73C3449ADE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Flintlock: The Siege of Dawn с головой окунает вас в огро
 magnet:?xt=urn:btih:0A7DB438074D09C50A59978DEBB8C689364E8381
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Dread Dawn (2024) [Ru/Multi] (2024.10.1.1000) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9528AE775CA35C50AC98D192B2A81EBA9B3036C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Crysis - первая игра в популярной трилогии, дух�
 magnet:?xt=urn:btih:DDAA0B94125E0A7C1B3CDCDE6BDEC764ABDB6E3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Beyond Hanwell - это насыщенная, детальная и атмосф
 ```bash
 magnet:?xt=urn:btih:C8E37F4321015A64A584470579F369D4126601F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Surreal Farm - это адвенчура, которая приглашает г
 magnet:?xt=urn:btih:F1BAE0B2588665736226CBD7D2920FAC0A7A5D06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ AMEDAMA - это приключенческая адвенчура в жанре
 ```bash
 magnet:?xt=urn:btih:2BA2DA0BD4CFD98896765B5CE781F9FE046996DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ REYNATIS - это ролевая адвенчура в жанре городск
 magnet:?xt=urn:btih:A31A35676D3A71B89646D0C863A54A39600052B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Steredenn: отмеченная наградами, представляющая
 ```bash
 magnet:?xt=urn:btih:EB40DD94B1E5C07C119416FBB850236BBB59ACC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

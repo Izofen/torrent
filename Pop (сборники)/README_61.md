@@ -1,3 +1,29 @@
+###  Публикация: 361992   (575089) от 11.07.2011
+
+VA - Хит-парад 200 50/50 (2011) [MP3|128 kbps]<Поп>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ПопПродолжительность: 12:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10CA76E83C598B5C8F5C0BC8E668C8E45BA7858E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 361988   (575124) от 11.07.2011
 
 VA - Популярная летняя соточка (2011) [MP3|256 kbps]<Pop>
@@ -18,6 +44,8 @@ VA - Популярная летняя соточка (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:B43C233F6C266048710315343ACF40CE422A8D91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ VA - Shazam Хит-парад Russia Top 200 Май (2019) [MP3|320 Kbps] <Pop, 
 magnet:?xt=urn:btih:06715D10546FCB93CDEA02439C029BBC176BD35D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +102,8 @@ VA - Europa Plus №5 50х50 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:9983F6CFE17FA63ABD7859A8568227DC3131554A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +132,8 @@ VA - German Top 100 Single Charts 24.05.2019 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:9EC1F0E3EA2DD878DF9FC6AA4694C70BD2D640EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +157,8 @@ VA - Авто Дискотека 2 (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:FC07B1B45933833AFF9F67DA9809BDAD0964AA5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +193,8 @@ VA - Хиты пляжного сезона (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:FD60A2AE47FB589839B6D0D21F880C4A0BE3CC2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +221,8 @@ VA - Попсовая Сотка MTV. Русский выпуск (2015) [MP3|32
 ```bash
 magnet:?xt=urn:btih:75909324D6345A0D08E8337600E8030E9EDD2670
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +251,8 @@ VA - Музыкальный кайф лета (2015) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:304841DA3A5824977F2A8404CF4E0AC105F408BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +276,8 @@ VA - 100ня взрывных хитов Русский (2011) [MP3|256 kbps]<Po
 ```bash
 magnet:?xt=urn:btih:268B64DEF391925B294A5217222BCE5C3B759627
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +303,8 @@ VA - Музыкальные Новости Русского Радио (2011) [M
 magnet:?xt=urn:btih:02506F71FDE87579AB1A766A7B3AD3882FF83045
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +328,8 @@ VA - Летний попсовый рай (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:3BBF7554CC82D7E7494734FB870A60BE4310465F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +358,8 @@ Claudia Mori - Compilation (2022) [MP3|320 Kbps] <Pop, Italo Pop>
 magnet:?xt=urn:btih:FEF199904D6EE6ED5FBEE25FCAA1B5CEE8F32F0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +386,8 @@ VA - German Top 50 Official Dance Charts 29.06.2018 (2018) [MP3|320 Kbps] <Dance
 ```bash
 magnet:?xt=urn:btih:0640727ED6617148BD7FA8CDC1E5C3E1627372E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +416,8 @@ VA - Русское радио. Бархатный сезон (2016) [MP3|256 Kb
 magnet:?xt=urn:btih:D0D043DAAB03EF2D3D4B17C94B46B196B3FBA89E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +444,8 @@ VA - German Top 100 Single Charts (22.08.) (2016) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:671B218A096DD74D3FD8588F143B59C0DBA62882
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +474,8 @@ VA - Русское радио. Убойное лето №3 (2016) [MP3|~192-32
 magnet:?xt=urn:btih:451F1577DB1DA0409C0A0A85C705FD59DB91A4B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +503,8 @@ VA - Europa Plus. Бархатный сезон (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:6C1497B613AE61F015531B6C19A10B1FEE29B495
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +528,8 @@ VA - Лучшие хиты 80х Русский (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:0B5BF3DE3C72BE607BE7F86329A8867557EA3C1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +558,8 @@ VA - Top 300 Russian Hits (2015) [MP3|320 кб/с]<Pop , Dance>
 magnet:?xt=urn:btih:CC047CBCADABDC14B002383AE4FB1E80930C1F3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +583,8 @@ VA - Дискотека ВКонтакте №1 (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:74E89963447F1F9FB7320A2BF8984A538F17C90B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +610,8 @@ VA - Superchart Радио Record Часть 4 (2011) [MP3|256 kbps]<Pop, Dance,
 magnet:?xt=urn:btih:4B8864891FF5FF757CA6FA76C64CCF7B8F644C75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +635,8 @@ VA - Летний бум хитов (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:6E3C2E45376933A10021C25CA4FF436FC55EF7EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +665,8 @@ VA - Гламурная летняя дискотека (2015) [MP3|256 кб/с]
 magnet:?xt=urn:btih:E8BEFDF696C83723DCFE955191E1DEB6D9C178B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +693,8 @@ Laura Pausini - Compilation (2022) [MP3|320 Kbps] <Pop, Italo pop>
 ```bash
 magnet:?xt=urn:btih:6F7FB4528016F5B553ECA13934EB54BDC6828B5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,29 +723,7 @@ VA - German Top 100 Single Charts 27.05.2022 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:FBFCCB099158C740EF3949D647384125BCDA06B4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361111   (578964) от 09.07.2011
-
-VA - Забавная Штучка (2011) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 6:11:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C2DB855BC89CD3EBA74531D17CA00201B130ADA
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

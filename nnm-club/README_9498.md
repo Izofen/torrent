@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C621BCCF050C22FC4E693C47213B263D1C23288B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:C621BCCF050C22FC4E693C47213B263D1C23288B
 ```bash
 magnet:?xt=urn:btih:DCBA896F9C3336D0F7ABA0E04A4E0E39B8ABF3FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:DCBA896F9C3336D0F7ABA0E04A4E0E39B8ABF3FA
 magnet:?xt=urn:btih:6159566E5229B3C6B54B457C68B44E7263A66BA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:6159566E5229B3C6B54B457C68B44E7263A66BA8
 ```bash
 magnet:?xt=urn:btih:838509B9B22195A7495D6568C2DCFB65CBCCB582
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:838509B9B22195A7495D6568C2DCFB65CBCCB582
 magnet:?xt=urn:btih:8F189F02D3776931527A1B9A55DF34955D032243
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ My Summer Сar  - это увлекательная игра-симулятор 
 magnet:?xt=urn:btih:84A39D9E9D648ADC11795E00DF4C507E7521DCFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ magnet:?xt=urn:btih:84A39D9E9D648ADC11795E00DF4C507E7521DCFF
 ```bash
 magnet:?xt=urn:btih:C635385341464D682FD885C70EBCDDBA9ACA68D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:C635385341464D682FD885C70EBCDDBA9ACA68D8
 magnet:?xt=urn:btih:ACC3442E9A822B7179ADB9A377723AF6B9E6A748
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Flow - Ру.трекер клиент v1.2.3 Premium [Ru/En]
 ```bash
 magnet:?xt=urn:btih:197568CD095C5A576296EFCDEC9E770E9EE538B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ TNOD User & Password Finder – крайне полезная утилита д�
 magnet:?xt=urn:btih:85E19E6B7B497ED16F1333A1F0C214A7EB97B5E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Assassin's Creed Odyssey / Assassin’s Creed: Одиссея (2018) [Ru] (1.0.6
 magnet:?xt=urn:btih:0590FB315BBBC731840075511FE239F38340FA80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:0590FB315BBBC731840075511FE239F38340FA80
 ```bash
 magnet:?xt=urn:btih:30F9C0FB436D5CA5568F95951699B2D2D01DB4CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:30F9C0FB436D5CA5568F95951699B2D2D01DB4CE
 magnet:?xt=urn:btih:54DD53D4B6692B8957A753DF4336A77435DDC6C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ The Evil Within 2 (2017) [Ru/Multi] (1.05/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:BBDBD6063D0E79339D8F15F94E71299E71CFA7ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:BBDBD6063D0E79339D8F15F94E71299E71CFA7ED
 magnet:?xt=urn:btih:D3D80DD057B55E404DDAF524A18A29D321EDDC94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Galaxy of Pen and Paper (2017) [En/Br] (1.1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:48F39BC2EF5630FD8E1FDB07441174A07CF011DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:48F39BC2EF5630FD8E1FDB07441174A07CF011DB
 magnet:?xt=urn:btih:353970EAADDA2DB729CA82B784ACC646E2E77988
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Laserdance - Trans Space Express (2018) [MP3|320 Kbps] <Spacesynth>
 ```bash
 magnet:?xt=urn:btih:E4850BCDA7869390565D10C8E8EB78D007826AAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ Synthesis - 3 Albums (2005-2017) [MP3|320 Kbps] <Electronic, Synth-pop, Spacesyn
 magnet:?xt=urn:btih:E89FEAEA994D5248DD107D8D93CAD776D52B9533
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ Steel Rats (2018) [Ru/Multi] (1.01/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:821BBD9B3D0CC11E1CF8B1ABB1721EC03575FCA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:821BBD9B3D0CC11E1CF8B1ABB1721EC03575FCA2
 magnet:?xt=urn:btih:A6F6022E4477B2E552449526DEBBFC948AEE8490
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:A6F6022E4477B2E552449526DEBBFC948AEE8490
 ```bash
 magnet:?xt=urn:btih:B45142CFD5F98F3D0F4354C782E9CCC2E118E0B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:B45142CFD5F98F3D0F4354C782E9CCC2E118E0B5
 ```bash
 magnet:?xt=urn:btih:C0425CDA32AE2E9AC0F6EBD85385C0727574B83A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +632,8 @@ Media Encoder CC. Универсальное приложение для обр�
 magnet:?xt=urn:btih:F1BD539250BDC1933BEFCA983B96DA9AC2E46060
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ magnet:?xt=urn:btih:F1BD539250BDC1933BEFCA983B96DA9AC2E46060
 magnet:?xt=urn:btih:A16CA2A3D1D6A92A42AA3FDBFF3BF56643B9B3C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ magnet:?xt=urn:btih:A16CA2A3D1D6A92A42AA3FDBFF3BF56643B9B3C8
 ```bash
 magnet:?xt=urn:btih:A043422BA2DA52ADA8D861D1ACA65B0C699A3BCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

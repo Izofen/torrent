@@ -22,6 +22,8 @@ Emsisoft Emergency Kit 2023.3.0.11851 Portable [Multi/Ru]
 magnet:?xt=urn:btih:A52A4B8E73EB632E521525EDB0801F98E117E194
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:A52A4B8E73EB632E521525EDB0801F98E117E194
 ```bash
 magnet:?xt=urn:btih:E2B3CDF884171E16C192BA56D8E224A12DFE9A6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Amplifier - Hologram (2023) [MP3|320 Kbps] <Psychedelic, Space Rock>
 magnet:?xt=urn:btih:06829121C5BBAC62DE6B5F0C2AF10424DF9BE818
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Pink Floyd - The Dark Side Of The Moon (Live at Wembley 1974) (2023) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:045C3C18876D038C2B113980BAE31550334CA0D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ VA - Time For Chillout Vol.2 (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 magnet:?xt=urn:btih:6D309D8ABBF7C5EFBF1F4FC93A448F19A43E01AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ In The Space - Escape Room (2022) [Ru/Multi] (1.0) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:6AFFE75CDBF14597BC8502879555B484D25F9297
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +189,8 @@ magnet:?xt=urn:btih:6AFFE75CDBF14597BC8502879555B484D25F9297
 magnet:?xt=urn:btih:E63CAF5DE5D0CBE19CA2E524711D591A9CBE274D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:E63CAF5DE5D0CBE19CA2E524711D591A9CBE274D
 ```bash
 magnet:?xt=urn:btih:2E29A9293A216FB19271CA1490F650B280604D25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ Movavi Video Suite - пакет программ на русском языке,
 magnet:?xt=urn:btih:EFE99B1323CA9C7DC79458BEEB71B1D4CE9D4448
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ Photo Supreme — вспомогательная программа для вл�
 ```bash
 magnet:?xt=urn:btih:4C34BBCB81A916BAF491E62B73FB7EDC84144615
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:4C34BBCB81A916BAF491E62B73FB7EDC84144615
 magnet:?xt=urn:btih:4E93376CCF5FBE8EAA22F1049E82ED82F82B83B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ UnHackMe – самый эффективный убийца любых вред�
 ```bash
 magnet:?xt=urn:btih:8B475F844DEE0C6D15E5F1AA93AB32112DC3B355
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ VA - Finding Around Happiness (Energy Tech Trance) 010 (2016) [MP3|320 Kbps] <Tr
 magnet:?xt=urn:btih:DCD3D2FBABBFBF0258F5F39C24E8147CBC047F8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ Princess Connect! Re:Dive 2 / PriConne 2 / Связь принцесс! Ново
 ```bash
 magnet:?xt=urn:btih:6DF909D22C5E08E351274886D48E5CCC158443E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +407,8 @@ Psycho Hill - Psycho Hill (2023) [MP3|320 Kbps] <Melodic Metalcore>
 magnet:?xt=urn:btih:DC243057660A8475C926F73C5A8C98827961FEB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ MediaHuman YouTube Downloader 3.9.9.81 (2503) RePack (& Portable) by TryRooM [Mu
 ```bash
 magnet:?xt=urn:btih:9A8776F6D9A40DD8AEB4E8470651C4612C687A9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +460,8 @@ Kenny Loggins - Playing with the Boys (1986) US 12" Single [MP3|320 Kbps] <Pop R
 magnet:?xt=urn:btih:06AD15E9D7ED8EA8F63C164E7734E252F8C8003A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ magnet:?xt=urn:btih:06AD15E9D7ED8EA8F63C164E7734E252F8C8003A
 ```bash
 magnet:?xt=urn:btih:2EEB326C5A9887736F5947ACBFDBE00AC94C2C28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +512,8 @@ magnet:?xt=urn:btih:2EEB326C5A9887736F5947ACBFDBE00AC94C2C28
 magnet:?xt=urn:btih:F21B5074D7E5849F7F1210C764BDA39356960FC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +537,8 @@ magnet:?xt=urn:btih:F21B5074D7E5849F7F1210C764BDA39356960FC0
 ```bash
 magnet:?xt=urn:btih:90C40A4AE304C6F55F8FAD4251F3684F03445B2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +567,8 @@ magnet:?xt=urn:btih:90C40A4AE304C6F55F8FAD4251F3684F03445B2E
 magnet:?xt=urn:btih:10138FB1B106F4C8A91480EC9494F0CFE4FBF436
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +595,8 @@ Ally Venable - Real Gone (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:E49ACAC0B97DAEF7ECED5749ACE09A13FC05CE8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +625,8 @@ _updated_july_2022_x64_dvd_760f0749.iso
 magnet:?xt=urn:btih:C209AA286523F84B752E37E928F5EF0FD00A8A69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +653,8 @@ magnet:?xt=urn:btih:C209AA286523F84B752E37E928F5EF0FD00A8A69
 ```bash
 magnet:?xt=urn:btih:7173ED69EC1E23842578CC4B961CF03C894F73E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +683,8 @@ VA - Lounge Future: Sunrise (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 magnet:?xt=urn:btih:0308EC845DE6B056DA94C59DAA14E9790EE80CF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +708,8 @@ magnet:?xt=urn:btih:0308EC845DE6B056DA94C59DAA14E9790EE80CF5
 ```bash
 magnet:?xt=urn:btih:9FAB82AF7DC53F7B1A793B1EC354DC879912FF10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

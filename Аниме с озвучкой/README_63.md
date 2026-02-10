@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:BD1CEB994D6B3DA2D0E0D2E733356FEFCB9A8B45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Aoki Ryuusei SPT Layzner | Blue Comet SPT Layzner | Голубой метеор 
 magnet:?xt=urn:btih:E0B7A837174023837B3A076A4A1969519885CDEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Vampire Hunter D: Bloodlust | D: Жажда крови | Ди - охотник �
 ```bash
 magnet:?xt=urn:btih:2F87B99B6DCE7E8BD8C477597C24BB034AA3C259
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:2F87B99B6DCE7E8BD8C477597C24BB034AA3C259
 magnet:?xt=urn:btih:4480A157605ACBF9C40E4E0E5268975B58238381
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:4480A157605ACBF9C40E4E0E5268975B58238381
 magnet:?xt=urn:btih:967144C98F1EBA1EE8C1EB4D65C184A06E8D53CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:967144C98F1EBA1EE8C1EB4D65C184A06E8D53CE
 magnet:?xt=urn:btih:AC9D9F39EC6E192F89596030AAD4A2494A2829DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Mangaka-san to Assistant-san to The Animation | The Comic Artist and His Assista
 ```bash
 magnet:?xt=urn:btih:CB5E5AEF8781251F3A7B46C3FACF99360B82AC26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Tenchi Muyou! Ryououki | Tenchi Muyo! Ryo-Ohki | Тэнти - лишний! Рё
 magnet:?xt=urn:btih:602494DE16EBF153B032D5020CB553D100ABE937
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ Tenchi Muyou! The Night Before The Carnival | Omatsuri Zenjitsu no Yoru! | Тэ�
 magnet:?xt=urn:btih:5E339B35A60DACBB37C7595AE63A64DC3ADC1F72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:5E339B35A60DACBB37C7595AE63A64DC3ADC1F72
 ```bash
 magnet:?xt=urn:btih:EBA34577BE7F2E305AD38FC1B91D9116C4663C9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:EBA34577BE7F2E305AD38FC1B91D9116C4663C9F
 magnet:?xt=urn:btih:8F302BE6CA3ED83AB925CA3C90D27DB5D649757B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ Fuuka / Фуука [2017, TV, 12 ep] BDRip 1080p Rus
 magnet:?xt=urn:btih:ADE316596CB576A382A95BAE6B5AF84662DC8C03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ Blade and Soul / Клинок и душа [2014, TV, 12 ep] BDRip 1080p Rus
 ```bash
 magnet:?xt=urn:btih:053CAA73EFF622854C49C31C6C66CF615F959EA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ Tenchi Muyou! Bangaihen: Galaxy Police Mihoshi Space Adventure | Тэнти - л
 magnet:?xt=urn:btih:CA232EAFEC44C409AD498C3A04511E64E8D56761
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:CA232EAFEC44C409AD498C3A04511E64E8D56761
 ```bash
 magnet:?xt=urn:btih:D1823C2A9C402C0400F2695B03F10C8B0AB57639
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:D1823C2A9C402C0400F2695B03F10C8B0AB57639
 magnet:?xt=urn:btih:AA2891F11B5ED866AFC4B9267167913A4F9BC515
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ Amagi Brilliant Park | Великолепный парк Амаги [2014, TV, 1
 magnet:?xt=urn:btih:CD2801D3171082DDDDE978A8F268044878190685
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen (2022
 ```bash
 magnet:?xt=urn:btih:3447068392FEB2299F7B6F2D2AE01ABEF5EFC012
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:3447068392FEB2299F7B6F2D2AE01ABEF5EFC012
 magnet:?xt=urn:btih:B44BF788861C646E9A256CCF25B3DB4ED232B8BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ Date a Live IV | Рандеву с жизнью [ТВ-4] [2022, TV, 12 из 12] 
 magnet:?xt=urn:btih:8A15EE95A9E5FD59EE530E4AF500A4225D7A4BDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ Date a Bullet | Рандеву с пулей [2020, Movie, 2 из 2] BDRip 1080p
 ```bash
 magnet:?xt=urn:btih:A0A1587E1F2A2FB846783354D58E0FE9735EDBAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ magnet:?xt=urn:btih:A0A1587E1F2A2FB846783354D58E0FE9735EDBAA
 magnet:?xt=urn:btih:D58E2037D6ED3D6F6DA7165ECF5F62F1ED66E17E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:D58E2037D6ED3D6F6DA7165ECF5F62F1ED66E17E
 ```bash
 magnet:?xt=urn:btih:4C1D7F9D5139FA9EB161578A5F42FBB221CC3642
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +642,8 @@ Koi wa Sekai Seifuku no Ato de | Love After World Domination | Любовь по
 magnet:?xt=urn:btih:C823C8A6CE369AA23429A2CCB829C4B80D6A6235
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +669,8 @@ Peter Grill to Kenja no Jikan: Super Extra | Пётр Гриль и время �
 magnet:?xt=urn:btih:87124619CA743F7280058126C2B0A3476D72CDBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ Do It Yourself!! | Сделай сама! [2022, TV, 12 из 12] WEBRip 1080p ru
 ```bash
 magnet:?xt=urn:btih:207A700C47E051108975E0724D08D649FB61A39B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

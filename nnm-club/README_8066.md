@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:B8206D6B30480F83C940810CE56E847F18C75278
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Various Artists - Чёрная кошка 1-2  (1999) [FLAC|Lossless|tracks + .c
 magnet:?xt=urn:btih:B752AAD1F428FA81746E2FD676736E908872C37A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:B752AAD1F428FA81746E2FD676736E908872C37A
 magnet:?xt=urn:btih:23534023B83CEC687E3111C8D6397AA123EB2A55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:48CE2970ECCB6512A6E7AEC2E31E8154EC0E4B0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ VA - Women Secrets (A Lounge & Chill Out Deluxe Collection), Vol. 2 (2017) [MP3|
 magnet:?xt=urn:btih:F2506FED14D5D7C6DE576E09D6EB9360A30EA486
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ Mordacious + Malicious (EDM Project) - Discography 22 Releases (2005-2022) [MP3|
 magnet:?xt=urn:btih:205C945EF3386D9A71D7B71D7FC927BF65A98651
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:205C945EF3386D9A71D7B71D7FC927BF65A98651
 magnet:?xt=urn:btih:17332C3292890C99B98F305C91686466968CB40D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:17332C3292890C99B98F305C91686466968CB40D
 ```bash
 magnet:?xt=urn:btih:B1C9988DED8B1C602096CCFABB6A06D9E578087A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:B1C9988DED8B1C602096CCFABB6A06D9E578087A
 ```bash
 magnet:?xt=urn:btih:9CEB86F54C295F721C057C288F20078B2CB985BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ VA - Finish Line - Just Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:A228E6579EF7DC330F2107EC8C9FF64731C5656F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:A228E6579EF7DC330F2107EC8C9FF64731C5656F
 magnet:?xt=urn:btih:034F1F3E8C9BD4945A8783A18126921AAFEAE0F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ PDF Shaper Professional 13.2 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C3BE1AA771CF6AFEB6275C9FDEF35255800FD998
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:C3BE1AA771CF6AFEB6275C9FDEF35255800FD998
 magnet:?xt=urn:btih:D9E81917F1A2FC3E9986B4CFD77B4BA3BD667F90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:D9E81917F1A2FC3E9986B4CFD77B4BA3BD667F90
 ```bash
 magnet:?xt=urn:btih:19D2E4BC02A3EE02E72669B23A1BA0178E62C86A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +405,8 @@ Recuva - небольшая, но весьма эффективная утили
 magnet:?xt=urn:btih:C99CD7ADDB6979E8C2291887436E453C954C6226
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ magnet:?xt=urn:btih:C99CD7ADDB6979E8C2291887436E453C954C6226
 magnet:?xt=urn:btih:2A8CC0878383EB93B3488F526C01B0C2564CDC01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ SQLPro for SQLit‪e - профессиональный менеджер баз 
 ```bash
 magnet:?xt=urn:btih:D0F24804ABFFCAE3151E7D12B6E7D895F8C0DD8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +486,8 @@ Gomorra - Dealer Of Souls (2022) [FLAC|Lossless|image + .cue] <Heavy, Power Meta
 magnet:?xt=urn:btih:C031CD9854D6BEE5D7F69AAF4B2524EEBFFB96D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +512,8 @@ magnet:?xt=urn:btih:C031CD9854D6BEE5D7F69AAF4B2524EEBFFB96D7
 ```bash
 magnet:?xt=urn:btih:3B3E70FF5748E70D63C76AD10A57620230864327
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +542,8 @@ Bong Corleone - Bong Corleone (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic 
 magnet:?xt=urn:btih:C019ABF0A0775DF15C5CF6BE0F75E39DA1E48F65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +571,8 @@ VA - Blue Lounge Chillout Your Mind (2017) [MP3|320 Kbps] <Downtempo, Chillout, 
 magnet:?xt=urn:btih:2C9928AE0872C0BBF1B1D2F6CB28AB98609CBDF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +596,8 @@ Kaitou Queen wa Circus ga Osuki | Mirage QUEEN Prefers Circus | Королева
 ```bash
 magnet:?xt=urn:btih:AD954549A211ED266EE036F65FA488E988843979
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +623,8 @@ magnet:?xt=urn:btih:AD954549A211ED266EE036F65FA488E988843979
 magnet:?xt=urn:btih:6278DDEBC76CAB9FB99B3B048FF72DE2D7408C5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +649,8 @@ Comedy Баттл (26.03.2021) WEB-DL [H.264/1080p-LQ] (сезон 11, выпу�
 magnet:?xt=urn:btih:2D59FE1CCC01D88B99DD29EEEC8C4AA5D260D43B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +674,8 @@ magnet:?xt=urn:btih:2D59FE1CCC01D88B99DD29EEEC8C4AA5D260D43B
 ```bash
 magnet:?xt=urn:btih:23220F4426F5246E76D206890EC706EBD95A5173
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +703,8 @@ Lost Rachels - Bittersweet Taste of Life (2023) [FLAC|Lossless|WEB-DL|tracks] <H
 ```bash
 magnet:?xt=urn:btih:E60990C7284949E529E4F944BA155866D94D807D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

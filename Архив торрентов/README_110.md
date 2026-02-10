@@ -19,6 +19,8 @@ FastFlix - это простой и дружественный графичес�
 magnet:?xt=urn:btih:77AED9AE204C58568B42EA836786079AAE5E6CB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Balabolka 2.15.0.889 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:6E4FBB387E4BCCA72FC52644C6638D5D5DA42C2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Truecaller: AI Call Blocker / Oпределитель номера v14.43.8 Gold
 ```bash
 magnet:?xt=urn:btih:F57480C72379592F77935A0A12BA0C07F7EA5733
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ VueScan - программа предназначена для замены ст
 magnet:?xt=urn:btih:56629FBAE3671955A29EC8F628D48F8F01CF9BD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:2E9542CD14BFFEEDC12F124012680077BA401F0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Driver Store Explorer — это легкий инструмент, которы
 magnet:?xt=urn:btih:7BF221D0F52E36CCF42EEC05901A01EAA67C405F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ WinRAR - один из самых известных архиваторов. Т�
 magnet:?xt=urn:btih:B3D2C62CFC2F7C94B8E05856E40ED0F99E6FB195
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:B3D2C62CFC2F7C94B8E05856E40ED0F99E6FB195
 ```bash
 magnet:?xt=urn:btih:5DFDF313ADCC95D639F0EF9C1F00E5921F08B336
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Avalon VT-747SP, которому доверяют лучшие инженеры
 magnet:?xt=urn:btih:13FB0E1B3DC9884F23E99EC783EDA39926DE2952
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ GPU Shark 2 является преемником GPU Shark 1. GPU Shark 2 - э�
 ```bash
 magnet:?xt=urn:btih:76C11024BB06176AD5E93D79E3E277B2CBB4D781
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ GPU-Z - бесплатная программа от TechPowerUp для отоб
 magnet:?xt=urn:btih:321BE1D74D8CE82FE38A891437920A8902381701
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:321BE1D74D8CE82FE38A891437920A8902381701
 ```bash
 magnet:?xt=urn:btih:8AE48A052E039249E98F46DBF5CEEAFD8EB44014
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Patephone / Патефон v14.6.3 Mod by OsitKP [Ru/Multi]
 magnet:?xt=urn:btih:A774452B2CCD68C31DED819F011EB99E21A26424
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ TV+: Бесплатное Онлайн Телевидение
 ```bash
 magnet:?xt=urn:btih:5BB904888EE6709C020CDE10E0EC6338B8CB5DDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Q-Dir - это отличный альтернативный файловый м
 magnet:?xt=urn:btih:7A78A51CF89D1AF79B5E9D56628AD81B3AFD4FA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Capture One - один из лучших профессиональных кон
 ```bash
 magnet:?xt=urn:btih:4C5C2694602CF356A26EC5BB315C62314E01A554
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Vanced — это модифицированная версия YT, котора
 magnet:?xt=urn:btih:425DDEE1E3D422B0FF66EA14E03E6FA1E220E60A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ AVS4YOU Software AIO Installation Package — мощный мультимеди�
 magnet:?xt=urn:btih:CAC1DAEC6134BC6BC37E74585B5D98FB418CDBFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ NirLauncher Package - универсальный пакет из более че
 ```bash
 magnet:?xt=urn:btih:1431F5E9F62281332CBD65EEFA8A90FEF1A4C080
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ Ventoy - это инструмент с открытым исходным код
 magnet:?xt=urn:btih:9833DEC7D0306FC0C12315E7129B81098166684C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 magnet:?xt=urn:btih:293F258764B61B655D0CE5252FCD968AB75C608C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ AIDA64 - является мощным средством для идентиф�
 ```bash
 magnet:?xt=urn:btih:B75162C3DBEBCEED3963106B89981632275C99DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ Adobe Illustrator — это принятое в качестве отрасле
 magnet:?xt=urn:btih:A3666C3E96F00AA864CE8D47C8BAF592CDC629EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:A3666C3E96F00AA864CE8D47C8BAF592CDC629EA
 ```bash
 magnet:?xt=urn:btih:9FDA4EF1BEB31EC5A73D5CE7517894D885AEC587
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ Activation Program 1.05 Portable by Ratiborus [En]
 magnet:?xt=urn:btih:D4EBCC77AC916EBDBE1715FE5637DAFBC4183460
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Activation Program 1.06 Portable by Ratiborus [En]
 ```bash
 magnet:?xt=urn:btih:4D1C722CFD7FE4BF91F8CE6C8EB180C3B57CDAA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

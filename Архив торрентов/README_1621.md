@@ -19,6 +19,8 @@ Topaz A.I. Gigapixel — это первое и единственное при�
 magnet:?xt=urn:btih:8506BC678738A9470F2F8567EA34B64659B00937
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:8506BC678738A9470F2F8567EA34B64659B00937
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:8506BC678738A9470F2F8567EA34B64659B00937
 magnet:?xt=urn:btih:132DD1FCB6E33F5F7A3E82969EC50A45766D453C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:132DD1FCB6E33F5F7A3E82969EC50A45766D453C
 ```bash
 magnet:?xt=urn:btih:F257586E1F6EC3D351A4619FD9617F225B78B0B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Q-Dir позволяет получать быстрый доступ к час�
 magnet:?xt=urn:btih:D5A4AF93F7ED0988AAE3BAF15CCC3BD25B28F1E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Mate Translate обладает невероятно полной базой д�
 ```bash
 magnet:?xt=urn:btih:8D261F1F1588F0427B426DF9859507A09251A83C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ PMMP - Veden Varaan (2009) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:11EA35C38FC2B49EEF0EE573113CFA6E8076099D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ FileMenu Tools настраивает пункты контекстного ме
 ```bash
 magnet:?xt=urn:btih:C9DF1C346E1FF2EA0C5D9B6576BE34A15A2376B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:C9DF1C346E1FF2EA0C5D9B6576BE34A15A2376B0
 magnet:?xt=urn:btih:BE12F92FFD2F3018491CFD444AAC46A10A78F0B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ Path Finder - один из лучших файловых менеджеров, 
 ```bash
 magnet:?xt=urn:btih:9A6BF18FE9B4DCC092409A3EB18EFCB0B414D020
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ DirPrintOK 6.88 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:5300134321434C79C94653491C3D14F14B209459
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:5300134321434C79C94653491C3D14F14B209459
 ```bash
 magnet:?xt=urn:btih:237013A867ECCE9873B949B613625EA9DE2905D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ Nitro Pro - мощный набор инструментов, с помощью 
 magnet:?xt=urn:btih:42812ED9990AD04159578164D04FEB4322B1718B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ OnyX 4.1.3 for macOS Monterey 12 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0504FFCE2ACA7A74F3F7D173DD6876394AF9EC4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ VA - The French Touch Connection - Mysterious Lane - Face B (2013) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:F66A6A15CD995F7DF15A44D8C72FECC089F4F875
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +434,8 @@ VA - Smorgasbord (2014) [FLAC|Lossless|WEB-DL] <Deep Trance, Downtempo, Psy Dub,
 magnet:?xt=urn:btih:A2BF17A020025D9AF16F30948423170EA1A972EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ magnet:?xt=urn:btih:A2BF17A020025D9AF16F30948423170EA1A972EF
 ```bash
 magnet:?xt=urn:btih:43A64E1A4498AF1A0B6308E279AFC761543D094A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ VA - The French Touch Connection - Mysterious Lane - Face A (2013) [FLAC|Lossles
 magnet:?xt=urn:btih:DA0DAAE0ED928B12974C6AC04965A36ED004BE71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ SiteSucker Pro - это расширенная версия SiteSucker, кото
 ```bash
 magnet:?xt=urn:btih:3F6FED5C14691245440BF7E2FE3A4E44A900A974
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +542,8 @@ magnet:?xt=urn:btih:3F6FED5C14691245440BF7E2FE3A4E44A900A974
 magnet:?xt=urn:btih:79EB4744A8AA3645453E405578A3FC06650AE7CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +567,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:F233DFC984C1B5893766CED09835CD6D9C36BA45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +594,8 @@ magnet:?xt=urn:btih:F233DFC984C1B5893766CED09835CD6D9C36BA45
 magnet:?xt=urn:btih:7A484E3CDD9692FA6026C24EDBCCC5DE4C249E2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +619,8 @@ AAF DCH Optimus Sound Realtek Mod, аудио драйвер "всё в одно
 ```bash
 magnet:?xt=urn:btih:A5AF8CA60AEC6719B0A68075BC2CCC28A51A390D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +646,8 @@ magnet:?xt=urn:btih:A5AF8CA60AEC6719B0A68075BC2CCC28A51A390D
 magnet:?xt=urn:btih:B99535BE949BA20AA7FAD4E90ACBB77EE76AA279
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +672,8 @@ WhatsApp Messenger - это кроссплатформенное приложе�
 magnet:?xt=urn:btih:4A1EA1FC752FB4882D974CA8A345D0A67D211429
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:AB78DF8E48D1255FCCE82B9C4E31F33CD331FB15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

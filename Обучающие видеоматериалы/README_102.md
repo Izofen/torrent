@@ -20,6 +20,8 @@ Maven Analytics, John Pauler | MySQL Specialist (2021) PCRec [En]
 magnet:?xt=urn:btih:C7BB24AC1CF902A7112BBA9024CE11D4813BE5B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Udemy, Khiari Arbia | ChatGPT and Your First Online Income: A Practical Course (
 magnet:?xt=urn:btih:9AB9CDD1579ABB753C7A3E51445FFCB6A458C3B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:9AB9CDD1579ABB753C7A3E51445FFCB6A458C3B2
 ```bash
 magnet:?xt=urn:btih:08B4B4F5E61299418A9D5099C19EEDEE652AB1A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Udemy, Stefano Cotardo | Houdini FX - How to add Visual Effects in Real Videos (
 magnet:?xt=urn:btih:17C64853183B5507C732988494ED608232C04DD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Udemy, Serge Lansiquot | Learn C++ Programming By Making Games Volume 2 (2022) W
 ```bash
 magnet:?xt=urn:btih:74BB2771CB9B41B0F18CEB9541FAA74C5E0D8F9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:74BB2771CB9B41B0F18CEB9541FAA74C5E0D8F9E
 magnet:?xt=urn:btih:B33E8CC5E02CFBA179F076969259DC313E90B3C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Udemy, Uisco Dev | How To Make A Doom Clone In Unreal Engine 5 (2023) WEB-DL [EN
 magnet:?xt=urn:btih:68DFF8843B6E51D471535D0DB6F7F26ABF7C286D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:68DFF8843B6E51D471535D0DB6F7F26ABF7C286D
 magnet:?xt=urn:btih:467981E8172EA359BE7176DB516A8A8488AF5D40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ class101, tfvkne | From Visualization to Illustration: Understanding Basic Anato
 ```bash
 magnet:?xt=urn:btih:123A51D75E65CBDBCAD2186A9255BDC3E428657C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ Forms&Stones, Г. Сафиулина, Е. Салтыков | Учебный ку
 ```bash
 magnet:?xt=urn:btih:06DBAC08DFEA6D2FB8D2E925B35AB19DADBC8ED2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ Geometrium studio, Павел Герасимов | Техническое зад
 magnet:?xt=urn:btih:AC5332A5DDDFC6138A5CF6199C3FDB12D38B36C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ The course uses (   Читать дальше...   )Производство: A
 magnet:?xt=urn:btih:8C81B2E2B741E9DF753F3985AEC718AD6425AF8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ CGcircuit, David Anastácio Ferreira | Houdini Elements - Particles FX (2022) WE
 ```bash
 magnet:?xt=urn:btih:AD6922681B043D1A210B6992D93D1BA066316478
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:AD6922681B043D1A210B6992D93D1BA066316478
 ```bash
 magnet:?xt=urn:btih:80BCCFF27D6B95A9A6F7B6D74FB62DC705A1AD0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ Udemy, Jose Portilla | OpenAI Python API Bootcamp: Learn to use AI, GPT3, and mo
 magnet:?xt=urn:btih:BD720A68D316C7FF804565A376EAA7E055992E73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ SEO-руководство по быстрому развитию вашего �
 ```bash
 magnet:?xt=urn:btih:08F9FCF04A46AAF1F498E77F44916850D85C250D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +460,8 @@ Maria Sw, Мария Приходько | Рисую как Maria Sw 2.0. Тар
 magnet:?xt=urn:btih:B6817236FABF97F07B74195EDE1DB8F84B7A921D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +489,8 @@ Thinknetica Pro, Артем Нистратов | Метапрограммиро�
 magnet:?xt=urn:btih:4C24992B886C910504A7FB9A9560B9F2F5C43858
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +515,8 @@ Pikuma, Gustavo Pezzi | Raycasting Game Development with JavaScript SDL & C (202
 magnet:?xt=urn:btih:7FBC39D0F260ECC89F50DB0D4DB999CEE2C21326
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ magnet:?xt=urn:btih:7FBC39D0F260ECC89F50DB0D4DB999CEE2C21326
 ```bash
 magnet:?xt=urn:btih:51A7F7EA41411B24DF7DA43453D7B67C6D20A0B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +568,8 @@ Kalacheva School, Аксинья La Paloma | Подозрительные лиц
 ```bash
 magnet:?xt=urn:btih:C7B1F69D99B81FF4467385B203A07F1C773F6E00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +598,8 @@ magnet:?xt=urn:btih:C7B1F69D99B81FF4467385B203A07F1C773F6E00
 magnet:?xt=urn:btih:E44F9FADB4EE30150EE117A0483F528F126E6527
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ Korean Demi School | Курс корейского языка (2022) WEB-DL [AD]
 ```bash
 magnet:?xt=urn:btih:506A885B6CC22250B7AE1F4240BBFCB40AFDBC3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +655,8 @@ Englishmaria, Мария Батхан | Разборки с училкой (2020
 magnet:?xt=urn:btih:9BFEF9176F8A7A53F95D4DAFA63FCB381164538E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +684,8 @@ Udemy, Muhamed Khalid | Modern OpenGL 3.3 with C++ GLSL for beginners (2021) WEB
 magnet:?xt=urn:btih:7101BF629C6E7F91D48352840E8487D89DF2F680
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +711,8 @@ Pikuma, Gustavo Pezzi | Fundamentals of 2D Game Engines with C++ SDL and Lua (20
 ```bash
 magnet:?xt=urn:btih:D6221DB0247BA0E301FA0C603B25054ED8B8E1BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

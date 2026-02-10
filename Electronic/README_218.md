@@ -22,6 +22,8 @@ VA - Ibiza Trance (2019) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:D588A580992E3AD4A7E300878CE980005036C5E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - FSOE Ibiza Closing Party (2019) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:8FF4CEB5B04A63AC9C184A4752686F6D7638D1C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Ahmed Romel - RUYA (2019) [FLAC|Lossless|WEB|tracks] <Trance>
 magnet:?xt=urn:btih:1D168592DD1831A2209D749F535F3236BD12AC39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:1D168592DD1831A2209D749F535F3236BD12AC39
 ```bash
 magnet:?xt=urn:btih:B2917B22CFBF8D1CF427243A5BC82B70A08F21DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Jean-Michel Jarre - Oxygene Trilogy (2016) [FLAC|Lossless|tracks + .cue] <Ambien
 magnet:?xt=urn:btih:4ED82D977808C14EEFF838829C9F828CFF41F62A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Dance Hits Euro Style (2015) [MP3|320 кб/с]<House, Deep House>
 ```bash
 magnet:?xt=urn:btih:DA77280F0E1BABD65B44C23B97513BD2C68F0989
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ DRYVE - 80s Kids (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Retr
 magnet:?xt=urn:btih:D310EF03704BC48876051D9BD2F6DAA04610B0D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Galaxy Racer - Across The Universe (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthwa
 ```bash
 magnet:?xt=urn:btih:B94B4217891FE54C228CCB9FD9FC07ECA47C4DF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Mellomania Step 16 (Mixed by Pedro del Mar) (2009) 2CD, Compilation, Mixed 
 magnet:?xt=urn:btih:4B72C4F32434337F610213335C9DCBD6EDEA5FDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Figments Of Duality (2018) Limited Edition [FLAC|Lossless|tracks + .cue] <D
 ```bash
 magnet:?xt=urn:btih:5EAE71D49AF8EA9956145E780DA6BBD2828E77BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Toyah - Anthem (1981) 2CD, Deluxe Edition, Remaster, 2022, Safari Records [FLAC|
 magnet:?xt=urn:btih:4E3643D43454666861A6BA9284BD597F13D3F6C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Binary Finary - Live @ Spin San Diego, United States Of Trance Classics, (2018-1
 ```bash
 magnet:?xt=urn:btih:AB5015CCFBF8CB8BDC1CDA7D26D2343526242ED2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Pedro Del Mar: Mellomania Step 16 (2009) 2CD, Compilation, Mixed [MP3|~245-
 magnet:?xt=urn:btih:BB5299A166C9821F7025DAD5D2D66D4104B2EF47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +395,8 @@ Isophlux - Label-Pack 43 Releases (1995-2020) [FLAC|Lossless|tracks+.cue, tracks
 ```bash
 magnet:?xt=urn:btih:F55FF2E548C570F4E1781B169A23FBE45ECC16AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +425,8 @@ Paul Van Dyk - From Then On (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:15A202BEB05AD361F7D7B648F33EDAC3CFF39F33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +450,8 @@ Younger Brother - Discography 10 Releases (2002-2019) Twisted Records [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:0758302A14EBCFB4856167BDB003477F11EF314E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +480,8 @@ VA - Best Autumn Chillout Hits (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 magnet:?xt=urn:btih:EF3016A286A5B72107A5703E552F358CBD7D245C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +508,8 @@ Fatih Tuter - Beehive (2020) Shimmering Moods Records [FLAC 2.0|44.1/24|tracks|W
 ```bash
 magnet:?xt=urn:btih:F9DA6AF69B18A454561CCCEB18BFB80BDB5CBDDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +538,8 @@ Asa Tone - Temporary Music (2020) Japan Edition [FLAC|Lossless|tracks + .cue] <E
 magnet:?xt=urn:btih:14A001C8C53058FDB70ED88558010909CC22902F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +563,8 @@ Zake - Geneva (2020) Past Inside the Present [FLAC|Lossless|WEB-DL|tracks] <Ambi
 ```bash
 magnet:?xt=urn:btih:1AEC25303AB7C3BB2AE1B392E23DE4783E101741
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +593,8 @@ Dawn Chorus and the Infallible Sea - Liberamente (2020) Azure Vista Records [FLA
 magnet:?xt=urn:btih:D9CC8E971E4E1560B657BEC31C57AA22B36016A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +621,8 @@ VA - Ibiza Summer Calling – The Closing 2017 [MP3|320 Kbps] <Funky, Club House
 ```bash
 magnet:?xt=urn:btih:7A0A8D7F74E44C314BF295F0B2B01A11B5496401
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +651,8 @@ ATB - neXt (2017) 2CD [FLAC|Lossless|tracks + .cue] <Progressive House, Trance, 
 magnet:?xt=urn:btih:E84F2CE05A4CEF5C220E2182F12DD6524C68619E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +676,8 @@ Brothomstates - Discography 7 Releases (2000-2017) Warp Records [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:AF67A1A860DCA889155FCD072F69F313EBC16C5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -658,6 +706,8 @@ VA - Paul Oakenfold - DJ Box October (2017) [MP3|320 Kbps] <Trance,Progressive H
 magnet:?xt=urn:btih:6B0856AE7270A54F7FC0C174036D7A142B71D417
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -684,6 +734,8 @@ VA - Black Hole House Music 10-17 (2017) [MP3|320 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:0DD28A8DB996976EC6B4E1726941ED784CB3C877
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

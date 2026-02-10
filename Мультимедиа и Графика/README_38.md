@@ -19,6 +19,8 @@ FM TiNES - это библиотека сэмплов и синтезаторо�
 magnet:?xt=urn:btih:28D29219295C325134853B93CA4EB87FE9CA1F5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ UVI - Key Suite Digital v1.1.1 (UVI Falcon) [En]
 ```bash
 magnet:?xt=urn:btih:F1B35299BF1252CE0391016BF6B608B1287A8B67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ UVI - Synth Anthology 3 v1.0.1 (UVI Falcon) [En]
 magnet:?xt=urn:btih:0D8A7FECA796E37F20108E6886DCC517DFF6D215
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Falcon - это продвинутый и поистине неограниче�
 ```bash
 magnet:?xt=urn:btih:14AE7B4E5F032FDEDAF49B39FB32B3243A602140
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ RF SCreater 2.3.3 [Ru]
 magnet:?xt=urn:btih:1B6BDB6929F3E1FB25033217328173E023A5EF8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Recolored - простая по своему интерфейсу програм
 ```bash
 magnet:?xt=urn:btih:BE0D20C3768E8E77E5BFF3B986880F27F95A5223
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Franzis AI Filter #1 professional — это уникальная програм
 magnet:?xt=urn:btih:68525B900D806D0587F8F5F2DD5A2CAB1A19F20C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Acoustica Premium Edition - профессиональная программа,
 ```bash
 magnet:?xt=urn:btih:20A0294D16066F9A59FEA462AF4AFC471E987371
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ RayBlaster 2 - воплощает новый метод синтеза под н
 magnet:?xt=urn:btih:04B5E4F367EE54D4B895F280E57AA8B5BCF85FF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:04B5E4F367EE54D4B895F280E57AA8B5BCF85FF8
 magnet:?xt=urn:btih:89885EE20890DDF67D57AE973372E82B5378E732
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:89885EE20890DDF67D57AE973372E82B5378E732
 ```bash
 magnet:?xt=urn:btih:C4BD810AB3F114D2200F93418F3CB2E583BA0626
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Synth Collection, содержащий 15 программных инструм�
 magnet:?xt=urn:btih:9BB3487883224FF2CD0EDC63F35FA64294854627
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Acoustica Premium Edition - профессиональная программа,
 ```bash
 magnet:?xt=urn:btih:0F8BC07071B7EBE2DEBEB320925A23191A0062DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:0F8BC07071B7EBE2DEBEB320925A23191A0062DC
 magnet:?xt=urn:btih:5074EE9A93A0E8D7CC74BA86AD2A981B5E4D56B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ ArchvizTools - uPVC Window Generator 1.1 [En]
 ```bash
 magnet:?xt=urn:btih:990378B9294E599A573C59C2B69AE00763565860
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Streaming Audio Recorder - программа для записи всех зв�
 magnet:?xt=urn:btih:28A8739E08154FBB28D949351CAAF20E3A22E299
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ Room Arranger - программа специально предназначен
 ```bash
 magnet:?xt=urn:btih:3BEF7AF40782F9C3F56D71C6E66F8C2184C35645
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ WinX VideoProc Converter - усовершенствованная версия, 
 magnet:?xt=urn:btih:FFDB2D91A0E03A384D379EBB1E77C53CB0B7E65E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ PSP NobleQ объединяет возможности пассивных экв
 ```bash
 magnet:?xt=urn:btih:7283006A50D1C1EED54ACB5B012228B876981D6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ Video Enhancer - лучший редактор видео в линейке пр
 magnet:?xt=urn:btih:876967CA33F8EB3DB1A813ADB8B3704800A81A01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ Tipard Blu-ray Converter - удобный и простой в работе ко
 magnet:?xt=urn:btih:E3F4C1EE1387B01A5A1EBB27FC976F54F912C0F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ Electronik Sound Lab - 808 Bass Module III 3.3.1 VSTi, VSTi3 (x86/x64) Retail + 
 ```bash
 magnet:?xt=urn:btih:0A4F149758F6A039D5AB864398686EBD6A8C859D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ SmallFoto - программа предназначена для уменьше�
 magnet:?xt=urn:btih:226E02CDAEF51ECD7D3751676580299F258C591F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ Inpaint - позволяет умно удалять нежелательные 
 ```bash
 magnet:?xt=urn:btih:338AD96D90B68847A0BAA521F9D78D1B02A9988D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ SILKYPIX Developer Studio Pro 11 — японская программа, поз
 magnet:?xt=urn:btih:ED249AFE7A8CA28BFE21B27E53E99022244B8438
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ MAAT Digital Bundle 12.2021 VST, VST3, AAX RePack by R2R [En]
 ```bash
 magnet:?xt=urn:btih:91D269598E22CF01BE10E0727B056406D1E91B1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

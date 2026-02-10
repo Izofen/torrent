@@ -1,3 +1,32 @@
+###  Публикация: 935234   (499468) от 08.09.2015
+
+VA - Chilled Ballads (The Most Beautiful Sentimental Songs Ever) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_499468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Fred Buccini - Unforgettable (3:48)
+02 Sarah Jane Morris - Remember Me (4:39)
+03 D'Andy - Quizas, Quizas, Quizas (feat. Melania) (2:55)
+04 Ely Bruna - Feel Like Making Love (feat. Frankie Lovecchio) (4:05)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:14:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6A6EA3775D916E97B11151DAF41EDDEA739289B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 542339   (499498) от 02.09.2012
 
 VA - Kiss FM - Top-40 (02.09.2012) [MP3|320 кб/с]<Dance>
@@ -27,6 +56,8 @@ VA - Kiss FM - Top-40 (02.09.2012) [MP3|320 кб/с]<Dance>
 ```bash
 magnet:?xt=urn:btih:9BBAAA871920418A6E77B22C5D6667BA1E11CC09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -61,6 +92,8 @@ VA - US Top 40 Single Charts (01-09-2012) [MP3|96-320 кб/с]<Pop>
 magnet:?xt=urn:btih:9367E8344CBD2FE934DC5A53164AC7E9A241193E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -88,6 +121,8 @@ VA - Hybrid ElectriX Extremely (2015) [MP3|211-320 кб/с]<Breaks, Electro, Hou
 magnet:?xt=urn:btih:257F9967DD7B09D059B77902C28FE2DB47B9B808
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +149,8 @@ Roger Waters - It's A Miracle (2022) Compilation [MP3|320 Kbps] <Progresive Rock
 ```bash
 magnet:?xt=urn:btih:4FA94A66000849170D669847EF0CF999D07415A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +185,8 @@ VA - 538 Dance Smash Vol.4 (2012) [MP3|320 кб/с]<Dance, House, Trance>
 magnet:?xt=urn:btih:5401D9B8981F43B98B4DAE67140D700E0E0203F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +219,8 @@ VA - Soul of Ibiza Volume 43 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Tr
 ```bash
 magnet:?xt=urn:btih:2F496A95CE35EA9F3A5FA597650489ED4212B010
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +255,8 @@ VA - Территория Русских Новинок (2012) [MP3|256 кб/с]
 magnet:?xt=urn:btih:C2326AEE87B8C79FA0391A919BC007F79D603035
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +290,8 @@ VA - Музыка для потрясающего вечера (2012) [MP3|80-32
 magnet:?xt=urn:btih:ED9F89E09EDA2645FDAA459ED1C5E14FB5AC62FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +318,8 @@ Rus:
 ```bash
 magnet:?xt=urn:btih:7BCE06DA8283BF7CF5810925DEBAC038C22E0560
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +348,8 @@ VA - Good Morning Motivational Summerset (2019) [MP3|320 Kbps] <Downtempo, Chill
 magnet:?xt=urn:btih:3CB3A5F82EF8EECCC0DB0BA7095968B300E4DF6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +376,8 @@ VA - Всё сразу 200 хитов Выпуск 7 50/50 (from Valik) (2015) [
 ```bash
 magnet:?xt=urn:btih:8CBFF868C313F8A09D77772902C145C5E0C7CFE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +412,8 @@ VA - 100 Canzonissime Italiane (2000) BoxSet 7CD [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:85DC5468A706E6FB272107F7BBC84CE88A96F547
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +440,8 @@ VA - 100 Songs Part 2 (2019) [MP3|320 Kbps] <Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:C80944B1198DA4799AB17CF2B5533AAB916AB944
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +476,8 @@ VA - Радио Energy - NRJ HOT30 (31.08.2012) [MP3|320 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:7E4D39EFC0EA0930C0196B699332F76B82EC1C17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +511,8 @@ VA - Дрожь Танцпола. Клубные хиты (2012) [MP3|320 кб/�
 magnet:?xt=urn:btih:141DCBBB92733318A2894B08A22F069DDB719360
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +539,8 @@ Jennifer Paige - Compilation (2022) [MP3|320 Kbps] <Pop, R&B>
 ```bash
 magnet:?xt=urn:btih:FCB386579D5AD0CFB0D3B52FB46F9DB90AC8EB9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +569,8 @@ VA - Beatport Top 100 Tech House August (2015) [MP3|320 кб/с]<Tech House>
 magnet:?xt=urn:btih:1CD080EC4C6C9515676B7C307B86AC907EB75BDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +597,8 @@ VA - Deep House - Hotel Lounge Dance Music (2015) [MP3|320 кб/с]<Deep House, 
 ```bash
 magnet:?xt=urn:btih:98AE28177CCF1E89A819240C240D99AFF072446D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +627,8 @@ VA - Trance Desire Volume 54 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 magnet:?xt=urn:btih:29D6FA8902D6C37401E96EF7CD85B5B3D1E564BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +656,8 @@ VA - Music News vol.203 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:A0174382862B0421B48C6850EBD0EB9ECBEC1665
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +684,8 @@ Lily Allen - Compilation (2022) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:9EDEE7FB784DCB05496181FAA49E951C50932752
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +720,8 @@ VA - Радио Record представляет. Русская версия (20
 magnet:?xt=urn:btih:4EAEADF2372EE638C68309B7E2710BA1BA9B20B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -681,6 +754,8 @@ magnet:?xt=urn:btih:4EAEADF2372EE638C68309B7E2710BA1BA9B20B6
 ```bash
 magnet:?xt=urn:btih:CFEB75530CE812DD578573D24BA0F3332F1A2B6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -715,6 +790,8 @@ VA - Maximum Танцевального Удовольствия. Зарубеж
 magnet:?xt=urn:btih:7AD5B028C87E6EDB558EFFE98CAE508EF5645FA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -742,32 +819,7 @@ VA - 100 Techno Minimal Tracks (2015) [MP3|320 кб/с]<Techno, Minimal, Tech Ho
 magnet:?xt=urn:btih:02DE7737052151282D686148FB85BE11DBF50F9C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934726   (501261) от 06.09.2015
-
-VA - Music For Everyone - Atmospheric & Progressive Breaks Vol.4 (2015) [MP3|320 кб/с]<Atmospheric Breaks, Progressive Breaks>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501261.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Stardesign – Fluffy Clouds (Broken Dub Edit)
-2. B.O.N.G. – Small Things (Aeron Aether Breaks Remix)
-3. Max Gueli - Interstellar Dreams (Original Mix)
-4. Arthur Deep - Phoenix (Original Mix)(   Читать дальше...   )Жанр: Atmospheric Breaks, Progressive BreaksПродолжительность: 01:46:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ADF1E786ADF2AA481BB1D27EFF6C9A747855E40
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

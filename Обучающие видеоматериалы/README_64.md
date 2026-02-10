@@ -21,6 +21,8 @@ Merion Academy, Олег Филиппов | Курс по NoSQL (2022) WEB-DL [R
 magnet:?xt=urn:btih:B0EC6FDACC414962B6726F647730DE7ABC9EF158
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ We guarantee you that this is the most comprehensive and up-to-date online resou
 ```bash
 magnet:?xt=urn:btih:1223569686FA7E826D2C1F7212B685AAB31F238E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ UX/UI(   Читать дальше...   )Производство: Yudaev School
 magnet:?xt=urn:btih:AEBE5C01512622E6D2A154258C7898B8420EFCBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:AEBE5C01512622E6D2A154258C7898B8420EFCBA
 ```bash
 magnet:?xt=urn:btih:7462303003BD2ADF469FCE501B6B0873775226A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ magnet:?xt=urn:btih:7462303003BD2ADF469FCE501B6B0873775226A4
 magnet:?xt=urn:btih:39B1A8A79687BE93F545EB817396ADD7F0D3265B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ magnet:?xt=urn:btih:39B1A8A79687BE93F545EB817396ADD7F0D3265B
 ```bash
 magnet:?xt=urn:btih:43D7C5F4479A4FCAB098E461B7DA6F20F39101BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -180,6 +192,8 @@ Astravisual, Оля Астра | Go_Foto. Тариф Profi (2023) WEB-DL [AD] [R
 magnet:?xt=urn:btih:9A47EBDEF029EB05C3DAE90D7CB29CE71D569CC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -206,6 +220,8 @@ Soshnikova School, Сошникова Елена | Пейзаж. Основы (2
 ```bash
 magnet:?xt=urn:btih:4924B40D8AF3C322233ED800D9810E1345C2704B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -234,6 +250,8 @@ Medvedev Photo, Александр Медведев | Бестселлер. От
 magnet:?xt=urn:btih:72472E7FD266FC0135D11A347B8EB2BE6CA7B3BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ Tilda school, Антон Командин | Резиновая верстка в
 magnet:?xt=urn:btih:D180FF7FC22D6EFB68ECDB7A8DD296AE8980F087
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +306,8 @@ magnet:?xt=urn:btih:D180FF7FC22D6EFB68ECDB7A8DD296AE8980F087
 ```bash
 magnet:?xt=urn:btih:1DE75D2065625CADB2075BD49FD0A79A16410947
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +336,8 @@ magnet:?xt=urn:btih:1DE75D2065625CADB2075BD49FD0A79A16410947
 magnet:?xt=urn:btih:24F0C9581D07D6D0CBFA1E8BF4D2ACDA54EF873F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +361,8 @@ magnet:?xt=urn:btih:24F0C9581D07D6D0CBFA1E8BF4D2ACDA54EF873F
 ```bash
 magnet:?xt=urn:btih:CCE422325774843F89541715BEBE2E473484A24D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +389,8 @@ Adobe Illustrator король векторной графики. Лого, по
 ```bash
 magnet:?xt=urn:btih:B20A09D3DEB944AEB10C89D8E411C342F63B854B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +419,8 @@ Cinema 4D: Animation - разбор приемов по улучшению "ба
 magnet:?xt=urn:btih:F30BC17481356020180B10A72905D86DA7AF4073
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +447,8 @@ podlodka.io | Podlodka Python. Асинхронность (2023) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:33569EBA452638D5BB8645EC9F9F0D3CC557AB1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +477,8 @@ Proglib.Academy, Наталья Кайда, Александр Пупышев | 
 magnet:?xt=urn:btih:CA20CE33CD25BD65A63E3B30A5E63C25B25E38E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +505,8 @@ Render.Camp, Daniel Nagaets, Irena Poliakova and etc. | Professional Visualizati
 ```bash
 magnet:?xt=urn:btih:59375CDC1970FA3A94901EF4400EC6421BFD5462
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +535,8 @@ Level One, Анна Петрова | Грамотность без зубреж�
 magnet:?xt=urn:btih:8839F860CAF65606FD3FE040A02F7A95FBB16A2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +560,8 @@ magnet:?xt=urn:btih:8839F860CAF65606FD3FE040A02F7A95FBB16A2A
 ```bash
 magnet:?xt=urn:btih:CD8B1CFA233C2E2EEF943EDCEFE854A7B5250C3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +590,8 @@ Enterclass, Александра Чу | Линия и цвет (2023) WEB-DL [AD
 magnet:?xt=urn:btih:318D98F24F88A4214757B89BDFD0AB9A165970B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +618,8 @@ Self-Learning, Виталий Трунин | Курс по SQL для начин
 magnet:?xt=urn:btih:D44729687F68B8C8CC6BFF49DC17B09572B868C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +643,8 @@ New Maters Academy, Joe Weatherly | Introduction to Animal Anatomy (2014) PCRec 
 ```bash
 magnet:?xt=urn:btih:4E56A5D4C422D0E874BFB7A96ED650D7C93114F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +673,8 @@ Udemy, Happy Rawat | JavaScript Interview Masterclass: Top 200 Questions & Answe
 magnet:?xt=urn:btih:77500B6BBE8C3658334E6F45E90E36BD89E56A01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +701,8 @@ magnet:?xt=urn:btih:77500B6BBE8C3658334E6F45E90E36BD89E56A01
 magnet:?xt=urn:btih:3015D17CAFFC5AE88F95D685F9640B8A8985FB22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -676,6 +726,8 @@ Joker - конференция для Java-программистов, прох�
 ```bash
 magnet:?xt=urn:btih:D1D502362BA957F75D8F9F4A6C29E1EC9B5B4E97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

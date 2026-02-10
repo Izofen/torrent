@@ -21,6 +21,8 @@ BBC: Апокалипсис древних цивилизаций - 1 - Смер
 magnet:?xt=urn:btih:F507406934717BEC4465008033446906B329B981
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ BBC: Апокалипсис древних цивилизаций - 2 - Зага
 magnet:?xt=urn:btih:902DA9D69FBF4E4A6E5611149224A25453C8E80C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ BBC. Виртуальная революция / The Virtual Revolution (2010) H
 ```bash
 magnet:?xt=urn:btih:20BB905151064CD6CAFA9946F9AF0B335443920C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:20BB905151064CD6CAFA9946F9AF0B335443920C
 magnet:?xt=urn:btih:0CF82FCA5AD48A27D0395FC1955A694CEA897B16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ BBC: Дикая Патагония / Wild Patagonia (2015) HDTVRip [H.264/1080i]
 ```bash
 magnet:?xt=urn:btih:65679FC2BF7EB06DA86B846EBF919C9F273EF874
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:65679FC2BF7EB06DA86B846EBF919C9F273EF874
 magnet:?xt=urn:btih:C2370C081CBB4222F0ECCD369D5E4F8691E91622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ BBC. В поисках бессмертия / The Immortalist (2016) HDTV [H.264
 ```bash
 magnet:?xt=urn:btih:197502664A8668220818FCED46368DA0E6EFD443
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ BBC: Чудеса Солнечной системы / Wonders of the Solar Syste
 magnet:?xt=urn:btih:F74D70D8D49AB5701D4C8045B5AE1E9C48515C33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ BBC: Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 6
 ```bash
 magnet:?xt=urn:btih:3244B667CCCE94F0A003DB70D66831F2DF17E9AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:3244B667CCCE94F0A003DB70D66831F2DF17E9AC
 magnet:?xt=urn:btih:608CD9440D05854CF24D4D1633D7081484EDA5D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:608CD9440D05854CF24D4D1633D7081484EDA5D2
 ```bash
 magnet:?xt=urn:btih:92F77C7E39C305603FAE8A465B08F3628D7F2A3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ BBC. Horizon: Сколько людей может жить на Земле? / H
 magnet:?xt=urn:btih:D157ACE33BABC268C1BF0CEE382DA0E13836DB2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:D157ACE33BABC268C1BF0CEE382DA0E13836DB2B
 ```bash
 magnet:?xt=urn:btih:3AC91EAF450F0AD342127887C5CCCD20ADD12707
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ BBC: Horizon. Тайная жизнь кошек / The Secret Life of the Cat (2
 magnet:?xt=urn:btih:EAFDBC9A19F22068A45292CB8436114302CF60BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ BBC. Планеты: Атмосфера / BBC. The Planets: Atmosphere (2004) DV
 ```bash
 magnet:?xt=urn:btih:EA8482FCF22FCDBFCE16F7D7DEE466B7A51C472F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ BBC: Планеты. Ледяные миры / Nova: The Planets: Ice Worlds (20
 magnet:?xt=urn:btih:90E9BACD23DE0CDE11BF6022F372C55BD9E8A791
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ BBC: Бессмертный Египет с Джоанн Флетчер / Immort
 ```bash
 magnet:?xt=urn:btih:4880387A8AEF51F35A6E26E43AB06CD989FA70EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:4880387A8AEF51F35A6E26E43AB06CD989FA70EC
 magnet:?xt=urn:btih:A436CA1E3CAD6529CBD552970F01D476B4712AC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 5
 ```bash
 magnet:?xt=urn:btih:332CD5D68D90FBDAFFCBCBBFE070F2BF9323C904
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:332CD5D68D90FBDAFFCBCBBFE070F2BF9323C904
 magnet:?xt=urn:btih:3BF07F1E773B8B1D0318CDB81354CDC5FF0058A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ BBC: Саймон Шама о Рембрандте: Шедевры послед�
 ```bash
 magnet:?xt=urn:btih:8750EE553BF3295C86EA0210837F0C681D2FBACD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ BBC: Планеты. Сатурн / Nova: The Planets: Saturn (2019) IPTVRip [H.
 magnet:?xt=urn:btih:E88E4BA3B3E8B7C345DAE6872BFD46BD0C29637A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 1
 ```bash
 magnet:?xt=urn:btih:4A2541775BD5EAAB158BA8DA751350CA28822ED7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 4
 magnet:?xt=urn:btih:75DE97C2BBA6096819DB68E86BF7A8AC1EE61A0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 2
 magnet:?xt=urn:btih:9A8D709E0D987F228FB096B32F5D8A28F77CF144
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 3
 ```bash
 magnet:?xt=urn:btih:EACC021F2BEDDE8CAB8E3EB068C05AB749D668C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:189A65C72A119C4FBD8D5028ABB0803C837F3EAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ VA - Золотая песня года 2024 (2024) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:007AC128A2340371388FE0A297383A8B4CD4F3E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:007AC128A2340371388FE0A297383A8B4CD4F3E7
 ```bash
 magnet:?xt=urn:btih:D82026F97474F6AD98E315834C68E8D401C9D307
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Blackthorn Arena: Reforged (2024) [Ru/Multi] (build 16275683) Repack seleZen
 magnet:?xt=urn:btih:045562CC6D7878D54A59F696A5CF26CA04365F49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:045562CC6D7878D54A59F696A5CF26CA04365F49
 ```bash
 magnet:?xt=urn:btih:2CCE318DADECE27C554D678F8FDC7C9150B2066A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:2CCE318DADECE27C554D678F8FDC7C9150B2066A
 magnet:?xt=urn:btih:83BB35C74CDC412CD9D7881D48C001222625BCBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:83BB35C74CDC412CD9D7881D48C001222625BCBC
 ```bash
 magnet:?xt=urn:btih:E0D2D4B4CC02C9B4072D0D0541EF3EFCDE0C271C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:E0D2D4B4CC02C9B4072D0D0541EF3EFCDE0C271C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:E0D2D4B4CC02C9B4072D0D0541EF3EFCDE0C271C
 ```bash
 magnet:?xt=urn:btih:4D1BAB08E1EF199B2399B72AEB7AACB0578D1C16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:4D1BAB08E1EF199B2399B72AEB7AACB0578D1C16
 magnet:?xt=urn:btih:1A02FFA597DF57705D4E18F60F5498A77AE05EA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Call to Arms - Gates of Hell: Ostfront – стратегия в реально�
 magnet:?xt=urn:btih:4E1AB26E5ACDA27ADF9D28A8C620D67E1238216E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:4E1AB26E5ACDA27ADF9D28A8C620D67E1238216E
 ```bash
 magnet:?xt=urn:btih:56660962955F0C7214511AD24E87CF29E3DFE1C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:56660962955F0C7214511AD24E87CF29E3DFE1C3
 magnet:?xt=urn:btih:0E90DE3CDB7609A469B005423CF422A48B783B27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:0E90DE3CDB7609A469B005423CF422A48B783B27
 ```bash
 magnet:?xt=urn:btih:35A9BBB6FB0F94853FA39E8E6072E5DC3BB9A688
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Voidwrought (2024) [Ru/Multi] (0.27.56) Scene Tenoke [Deluxe Edition]
 magnet:?xt=urn:btih:E867D091DD076CBCE9D355531ADD7A4535B7CF15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:E867D091DD076CBCE9D355531ADD7A4535B7CF15
 magnet:?xt=urn:btih:D1D0C879553B2A7B37D1C5ACF975FF5DFAC3CB27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:D1D0C879553B2A7B37D1C5ACF975FF5DFAC3CB27
 ```bash
 magnet:?xt=urn:btih:F7C4970376F6B335FCA6A125F125ACA531D8C696
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:F7C4970376F6B335FCA6A125F125ACA531D8C696
 magnet:?xt=urn:btih:1DE00CD21BE3FA4FEB53CE183D71BA29975113F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Scary Shadow Spot: Last Farewell (2024) [Multi] (1.2.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:C13FFDDE0DA7201F98F6F59171EF2AA76088527D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:C13FFDDE0DA7201F98F6F59171EF2AA76088527D
 magnet:?xt=urn:btih:95268F661CD685C059B9838FAA5D5407366AA4AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:95268F661CD685C059B9838FAA5D5407366AA4AC
 ```bash
 magnet:?xt=urn:btih:663E8AF40ECFBDE5CC2C7E5E8784362F0C102492
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ Notepad++ - бесплатный редактор текстовых файло�
 magnet:?xt=urn:btih:8558625C46A138D9FB12AC9B6C22F3AFFC356C76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Cyberpunk 2077 — приключенческая ролевая игра, де�
 ```bash
 magnet:?xt=urn:btih:59F76BEDF4AA91FCB7B6003442DBA8362E5F4B2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:59F76BEDF4AA91FCB7B6003442DBA8362E5F4B2A
 magnet:?xt=urn:btih:7C1D1D0E102E921088CA262F2F9D02BF14CA833D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:7C1D1D0E102E921088CA262F2F9D02BF14CA833D
 magnet:?xt=urn:btih:89B91D9E3A6F182CBC3F86542F25BCFC8DD09662
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ magnet:?xt=urn:btih:89B91D9E3A6F182CBC3F86542F25BCFC8DD09662
 ```bash
 magnet:?xt=urn:btih:60AAD85F0D3EF6511861577900A26860B83BB7BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

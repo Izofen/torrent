@@ -20,6 +20,8 @@ Justin Rubin | True Beginner (2017) HDTVRip [H.264] [EN]
 magnet:?xt=urn:btih:54FDA6190DB1BDAD6C383E6D69F61954E4E4DC1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Softwaretesting | Docker: инструменты тестировщика (2020)
 ```bash
 magnet:?xt=urn:btih:97AF9A05F6885E9BD9171E6DDA262D31A34BC468
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:97AF9A05F6885E9BD9171E6DDA262D31A34BC468
 magnet:?xt=urn:btih:09284738D6E5D6C91EBB8F121565F7BFE75E4680
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:09284738D6E5D6C91EBB8F121565F7BFE75E4680
 ```bash
 magnet:?xt=urn:btih:A78A0579329DEF0EBEBDF0CD42EB357ABB87DAC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Cypress - это фреймворк End-to-End тестирования JavaScri
 magnet:?xt=urn:btih:F4E83C5EE7B02154A3CA117362FD9CED20746FED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Profileschool | Разбор полетов. Портфолио-ревю (2015) 
 magnet:?xt=urn:btih:35A26C02E2274A1EC4E15D7E98635DAB878AF9B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ CG Cookie | Создание облаков в Blender 2.8 и Eevee/ Creating Cl
 ```bash
 magnet:?xt=urn:btih:FB8C6E76A3713DF0550F52BD44DBD3E9013C9C98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ Laravel — универсальный инструмент для создан�
 magnet:?xt=urn:btih:35D14C1D56E9C42AA75AE60E6E376FA65BFBB3E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Udemy | Unity для начинающих (2018) PCRec [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:23C6DC4EE64A4FCB1EBA80925645384CFC2D2B88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ ITVDN | HTML5 & CSS3 ADVANCED (2018) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:40069803B23F41F18A10F1BF63A8D57414961CAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:40069803B23F41F18A10F1BF63A8D57414961CAC
 ```bash
 magnet:?xt=urn:btih:074A2F08B9A2E31CC3C2D2E82DA85A35A1623B4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ CG Sphere | Create Super Detailed Shield In Blender Tutorial (Modeling, Texturin
 magnet:?xt=urn:btih:265065149D32A8B5D0D84D18224136DECB360EA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:265065149D32A8B5D0D84D18224136DECB360EA1
 ```bash
 magnet:?xt=urn:btih:411437D9EA6E24932B94AF6B456E3DC9CB390CFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:411437D9EA6E24932B94AF6B456E3DC9CB390CFC
 magnet:?xt=urn:btih:323B309BC18E124D64B310973D18DD6CCB5CDA49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:323B309BC18E124D64B310973D18DD6CCB5CDA49
 ```bash
 magnet:?xt=urn:btih:FBF985F95D217395D377D94E615E71BDB19BEA71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ ultimatecourses.com | Мастер-класс по JavaScript / JavaScript Maste
 magnet:?xt=urn:btih:CB9472E32DA9BA74DE4652CBAE448F1CFE2CD2DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ React 2025 перенесет вас с нуля в рабочую среду р
 magnet:?xt=urn:btih:5588F73101969DBB70A08EFF57BECEF56A877B84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ Blender Cloud | Создание примитивных животных в Blen
 ```bash
 magnet:?xt=urn:btih:CC0B84BC1EE691004D26FE6A2C6C815B2A5C4646
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +503,8 @@ English For IT, Анна Гандрабура | English For Tech Level 2. Speaki
 magnet:?xt=urn:btih:BFB10AA2633CBCC7309E2BC384468B28219EA88E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ SF Education | Финансовая академия (2020) PCRec
 magnet:?xt=urn:btih:A4C764D0EE7651A8CA3AF471C7AA254662F098D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ Oбучение в нашей школе построено по авторск�
 ```bash
 magnet:?xt=urn:btih:7DC9BCCE5F503D840A8226A1A8092163BB5C2AD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:7DC9BCCE5F503D840A8226A1A8092163BB5C2AD7
 magnet:?xt=urn:btih:70732618494A8066584BF79570E58D698C230D51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ Udemy, Josh Gambrell, Ponte Ryuurui | Создание Sci-Fi оружия в Bl
 magnet:?xt=urn:btih:F59240859CD1A2725AE2E1414C7987E2CBB91924
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ magnet:?xt=urn:btih:F59240859CD1A2725AE2E1414C7987E2CBB91924
 ```bash
 magnet:?xt=urn:btih:EE2D18BE2DA3E3B32A19F19A08842159E8D7CF0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +665,8 @@ Creative Shrimp | Риггинг механизмов в Blender 2.83 / Hard Sur
 magnet:?xt=urn:btih:D62CB095FDB596209AA8637C0EFB1A7F0734AD08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ magnet:?xt=urn:btih:D62CB095FDB596209AA8637C0EFB1A7F0734AD08
 ```bash
 magnet:?xt=urn:btih:B39055F4F499582117EF88B9673CE8D3BF9D07CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

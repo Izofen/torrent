@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:CCF4628067044CDB82CC74816E9D6DB1CE06BB4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:CCF4628067044CDB82CC74816E9D6DB1CE06BB4E
 ```bash
 magnet:?xt=urn:btih:C949850BB68614F199E82CEB58214D689DE3CCE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ John P. Doran | Unity 2022 Mobile Game Development, 3rd Edition (2023) [PDF][EN]
 magnet:?xt=urn:btih:233A9C63AD440FBDDB21B3E76C655B43231F9F03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:233A9C63AD440FBDDB21B3E76C655B43231F9F03
 ```bash
 magnet:?xt=urn:btih:EA72CB34345D9AA965B85DAB3FE14C45B4A59900
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Asjad Athick | Getting Started with Elastic Stack 8.0 (2022) [PDF][EN]
 magnet:?xt=urn:btih:55DE1C00D7FC77B59F5A463B818F9555B58FB4F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Brian Okken | Python Testing with pytest, 2nd Edition (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:EE42FCC4F3E1BC21C25EB37AD553180D8F20F300
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ Michael Kaufmann, Andreas Meier | SQL and NoSQL Databases, 2nd Edition (2023) [P
 magnet:?xt=urn:btih:F63FA77DEF646F0F9B9C29377F5B41D9E33C9FFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:F63FA77DEF646F0F9B9C29377F5B41D9E33C9FFE
 magnet:?xt=urn:btih:883E2CA5F18A29F038D631DC7CDF1DC4DB7222AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:883E2CA5F18A29F038D631DC7CDF1DC4DB7222AC
 ```bash
 magnet:?xt=urn:btih:17CF09AF591E5AE7474F343AAAD7D887D38B65ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ Addy Osmani | Learning JavaScript Design Patterns (2023) [PDF][EN]
 magnet:?xt=urn:btih:B8E3D4FB964C86C36618BB8B575E2F63631F0818
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:B8E3D4FB964C86C36618BB8B575E2F63631F0818
 ```bash
 magnet:?xt=urn:btih:D61C4FD72CCA0BD23822F65C04F604726CFF09C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ Django - мощный фреймворк, но выбор правильных �
 magnet:?xt=urn:btih:E4ABB528FAEA0BD4E2F1502FC6C74B128DBC5B8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:E4ABB528FAEA0BD4E2F1502FC6C74B128DBC5B8B
 magnet:?xt=urn:btih:7856D93A5CA67C57920341432EBAD9666B98D2DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ Eric Smith | Game Development with Rust and WebAssembly (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:EE53DE32B714CCF93191AA03A57A90D2CB7F4D96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:EE53DE32B714CCF93191AA03A57A90D2CB7F4D96
 magnet:?xt=urn:btih:A2EA7E1EF81E05541E69B21538418FF9BFA048ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:A2EA7E1EF81E05541E69B21538418FF9BFA048ED
 ```bash
 magnet:?xt=urn:btih:700768D1D6FBC48EE2DFEE71B874D2D19A0ED0E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:700768D1D6FBC48EE2DFEE71B874D2D19A0ED0E5
 magnet:?xt=urn:btih:1CAE99E7DC41011321B3C11328EAF6834D0D014B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:1CAE99E7DC41011321B3C11328EAF6834D0D014B
 ```bash
 magnet:?xt=urn:btih:B487053A6BEB616659B48288BBDF0FF117EA3347
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +503,8 @@ Ben Weidig | A Functional Approach to Java (2023) [PDF][EN]
 magnet:?xt=urn:btih:86301F5D61F265A829056E48A32FDD40BD8255B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ magnet:?xt=urn:btih:86301F5D61F265A829056E48A32FDD40BD8255B9
 ```bash
 magnet:?xt=urn:btih:7BA0C7E5262ADD87FAD7E7D14D80BF66C0D581B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +555,8 @@ Daniel Sipos | Drupal 10 Module Development (2023) [PDF][EN]
 magnet:?xt=urn:btih:A6A35FF19051C30F37FAE6EAC93467169734925C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +580,8 @@ magnet:?xt=urn:btih:A6A35FF19051C30F37FAE6EAC93467169734925C
 ```bash
 magnet:?xt=urn:btih:CB4C9EBF05032936006D753483E265056A1D2932
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +607,8 @@ magnet:?xt=urn:btih:CB4C9EBF05032936006D753483E265056A1D2932
 magnet:?xt=urn:btih:A2AAF9C8910AF7C8EE6EBFEBFAD57DB10CF0BAB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:A2AAF9C8910AF7C8EE6EBFEBFAD57DB10CF0BAB0
 ```bash
 magnet:?xt=urn:btih:883C5AC6C4DBF933D87BAF186748A4C9633E2D1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +659,8 @@ Ben Shaw, Saurabh Badhwar, Chris Guest и др. | Web Development with Django (2
 magnet:?xt=urn:btih:172F7EADD5E429F4446EEB4547BDC8AF1C391C8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ magnet:?xt=urn:btih:172F7EADD5E429F4446EEB4547BDC8AF1C391C8F
 ```bash
 magnet:?xt=urn:btih:9F37D4C4CFBCAA272CA3F2AF8CE88967B7C2B595
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

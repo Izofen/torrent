@@ -19,6 +19,8 @@ Happy Color — самая популярная и излюбленная бес
 magnet:?xt=urn:btih:F7605D49243A974EB5A304818C3CD81535A127EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ SD Card Test Pro v2.5 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:D4C6D9F173A5A7921A5DEC3E08281A353E3DD0A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ InShot - Мощный видеоредактор и фоторедактор н�
 ```bash
 magnet:?xt=urn:btih:9FD2EAFB192251F1D264461D444B29AF1CED2E3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Sleep as Android: отличный сон v20250620 Mod by Alex.Strannik [Ru/Mul
 magnet:?xt=urn:btih:FF9E4AC1311C67880F1DCBBD0E7A25036A6FC61C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ One Read / Все Документы Читатель - Офис v1.2.4.48 Mod b
 ```bash
 magnet:?xt=urn:btih:49DBAAB2010FA8E23EFE65EF419A83B499CD3372
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ FixPlus — Редактор лица и тела v1.47.118 Mod by PieMods [Ru/M
 magnet:?xt=urn:btih:43CC1B64EB3FE4510B160C0B6B7C8C68B91B1E7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:43CC1B64EB3FE4510B160C0B6B7C8C68B91B1E7C
 magnet:?xt=urn:btih:702EDF77B9441B463D7BB7F04698353F6D972B0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:702EDF77B9441B463D7BB7F04698353F6D972B0F
 ```bash
 magnet:?xt=urn:btih:0E12A20E7148FC3C140DC3B2B3194D041CF95A91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ HDRezka TV — это неофициальный клиент для просм�
 magnet:?xt=urn:btih:9756DCB742079C4FD8CD75BBF926EC50A609BB43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Photo Studio — не просто приложение для редактир�
 ```bash
 magnet:?xt=urn:btih:330E4AA62E964B280D4C9011782471626BBE9AA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:330E4AA62E964B280D4C9011782471626BBE9AA4
 magnet:?xt=urn:btih:0757454D5940B4FE23B52BE0D4DBB8FC1D1DD938
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:0757454D5940B4FE23B52BE0D4DBB8FC1D1DD938
 ```bash
 magnet:?xt=urn:btih:8A99F871704FE50E40E57CF248144090967DE1AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Tone Generator PRO v3.84 Mod by NURIK [Ru]
 magnet:?xt=urn:btih:CA6BAF92196C6E8A6E725042C1977EC88A7358FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ EOBD Facile - автосканер обд2 последнего поколени
 ```bash
 magnet:?xt=urn:btih:DBF23D5E88F3EDD70934876ABDE726047D7607CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ Offline Translator - это автономный переводчик
 magnet:?xt=urn:btih:C390466945D06EC505A9EA4AD1CEACF51C281F3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:C390466945D06EC505A9EA4AD1CEACF51C281F3C
 magnet:?xt=urn:btih:4D7F637611BE3E0FFB00A816E27B719E2230B142
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ CCleaner - один из самых известных и популярных �
 ```bash
 magnet:?xt=urn:btih:404B44879E526446602DBD2C68D2665018B215AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ Sipnetic – это бесплатный программный IP-телефо�
 magnet:?xt=urn:btih:A4B04528654C994447DD9206EDD69FA33F7E96EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Human Anatomy Atlas v2026.00.019 [En]
 ```bash
 magnet:?xt=urn:btih:AA2ED7CE790C4CAF12CAE8186BF390214A0D840C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ Relive: Бег, Заезд, Поход v5.65.0 Mod by victorovich31 [Ru/Multi]
 magnet:?xt=urn:btih:DC7F6CD682A272B617EF512857ED8C35097582AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Ebook Converter / Конвертер электронных книг v1.16.4 Mod
 ```bash
 magnet:?xt=urn:btih:6F88237713CB88504CC5F44FE46DCFB7D684EDC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ HeadUp Display (HUD) – это возможность использовать 
 magnet:?xt=urn:btih:E2C33933841332A76F5242D7450F84C1B7EA6AAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ GPS АнтиРадар v49.0 Mod by СМАРТОС [Ru]
 magnet:?xt=urn:btih:D9F6872F98F30F5FF91E9A43CFA1672CDDA1CFE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ MX Player Pro v1.93.3 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:FA4B32E74F9EC807F59CB278360B03BA6B83461A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ Solid Explorer - это приложение для управления фай�
 magnet:?xt=urn:btih:88CE175946253C5633AF1E6B7686FA184BC28C15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ VaporCam (90s) / 90-е - Глюк VHS Видеоэффекты v1.7.7 Mod by Ale
 ```bash
 magnet:?xt=urn:btih:58C54BCD8DDB661FC44EF82EC4FC8AF3FA0F2238
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

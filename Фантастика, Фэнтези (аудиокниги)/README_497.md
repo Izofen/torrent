@@ -1,3 +1,29 @@
+###  Публикация: 292305   (906600) от 07.02.2011
+
+Роман Афанасьев | Астрал (2008) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_906600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это история о молодом человеке Игоре, который внезапно открыл для себя новый и удивительный мир – Астрал. Оказалось, что в нашем мире существует некая магическая виртуальная реальность, в которую можно «входить» как в интернет. Поскольку астрал не влияет на реальность, его используют для различных забав. И как в любом обществе в нем есть и лидеры, и аутсайдеры…Жанр: ФэнтезиПродолжительность: 03:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52047A21646BC8C43574A3788BF298026871917E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1492036   (906858) от 27.08.2021
 
 Виктор Алдышев | Корпорация «Здоровье» (Книга 1).  Корпорация «Здоровье» (2021) [MP3, Григорий Метелица]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:9FFB48ED0D30B0A926302A1424BB4BDF0868560C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:9FFB48ED0D30B0A926302A1424BB4BDF0868560C
 magnet:?xt=urn:btih:F6642332C3A45F7613C0D598A7A261865158DF6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:F6642332C3A45F7613C0D598A7A261865158DF6C
 magnet:?xt=urn:btih:1A955A7D733FD15A3A3F8CD761167BD93700903B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:1A955A7D733FD15A3A3F8CD761167BD93700903B
 ```bash
 magnet:?xt=urn:btih:8EA098478B60A81F504C53D0F45102086882ABD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:8EA098478B60A81F504C53D0F45102086882ABD0
 magnet:?xt=urn:btih:EF9EA0340C4F0AAB1322F7C944BA50650DFE439B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:EF9EA0340C4F0AAB1322F7C944BA50650DFE439B
 ```bash
 magnet:?xt=urn:btih:7281FA54C16D280C0D80BCD003E4C00BDDA2745E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:7281FA54C16D280C0D80BCD003E4C00BDDA2745E
 magnet:?xt=urn:btih:B8167C307873E8DB093A4C90A623B9948BB401D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:B8167C307873E8DB093A4C90A623B9948BB401D2
 ```bash
 magnet:?xt=urn:btih:47A63C5AF1A2E2333084AF7D0D8F1201D35EEE94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:47A63C5AF1A2E2333084AF7D0D8F1201D35EEE94
 magnet:?xt=urn:btih:D1EDAA8761F85EAD54EADB1056B12BC215F9A11E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:D1EDAA8761F85EAD54EADB1056B12BC215F9A11E
 magnet:?xt=urn:btih:D1679E6E9765131B71437C6AB04E932AD7C80DAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:D1679E6E9765131B71437C6AB04E932AD7C80DAE
 ```bash
 magnet:?xt=urn:btih:E554D4D87DFFAFB6796A3D6E885A317EE5225369
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:E554D4D87DFFAFB6796A3D6E885A317EE5225369
 magnet:?xt=urn:btih:3E0F1567A529CA528F4F3F2F85B9D8248AEA10BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:3E0F1567A529CA528F4F3F2F85B9D8248AEA10BD
 ```bash
 magnet:?xt=urn:btih:A62185A5B8DCB2797BC5242EE8C1EBD759F271C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:A62185A5B8DCB2797BC5242EE8C1EBD759F271C4
 magnet:?xt=urn:btih:F9E846AEB6F6831E7018C2564C490C1FDBA5E697
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:F9E846AEB6F6831E7018C2564C490C1FDBA5E697
 ```bash
 magnet:?xt=urn:btih:1D56A93E3697D84DCE3A473BC731D13AFAABE052
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:1D56A93E3697D84DCE3A473BC731D13AFAABE052
 magnet:?xt=urn:btih:16720BEEB0C171D08CBB17E48460690A2BEC8858
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:16720BEEB0C171D08CBB17E48460690A2BEC8858
 ```bash
 magnet:?xt=urn:btih:5CBABEE21B27F5766D6A553A9289B1ED74B5E916
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:5CBABEE21B27F5766D6A553A9289B1ED74B5E916
 magnet:?xt=urn:btih:11BA7DF81B4F3558D853F0B4971458B4D0762749
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:11BA7DF81B4F3558D853F0B4971458B4D0762749
 ```bash
 magnet:?xt=urn:btih:BE33F4BF6117B0601F30A714BCFB7E1E0C4CE5EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:BE33F4BF6117B0601F30A714BCFB7E1E0C4CE5EF
 magnet:?xt=urn:btih:6C661742A0572BD8A9E913AE43A7D57775EA38BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:6C661742A0572BD8A9E913AE43A7D57775EA38BB
 ```bash
 magnet:?xt=urn:btih:A8B7A028B0F3B503AD85DDCC444ECBFAE51E5F64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:A8B7A028B0F3B503AD85DDCC444ECBFAE51E5F64
 magnet:?xt=urn:btih:C94793DB39DF8809C9FBE7296ECC6C869A9A06DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:C94793DB39DF8809C9FBE7296ECC6C869A9A06DB
 magnet:?xt=urn:btih:EA66BDD710B0C1671A7A11C73D23D2E6DD8528E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:EA66BDD710B0C1671A7A11C73D23D2E6DD8528E4
 ```bash
 magnet:?xt=urn:btih:588125A7C4212F1C6E309C8B850716A72DC48986
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,30 +680,7 @@ magnet:?xt=urn:btih:588125A7C4212F1C6E309C8B850716A72DC48986
 magnet:?xt=urn:btih:54783A557D286202B6153F0633678937F95D636B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491596   (910467) от 25.08.2021
-
-Урсула Ле Гуин | Земноморье (Книга 1). Волшебник Земноморья (2021) [MP3, Павел Конышев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910467.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сегодня Гед – величайший маг Земноморья, а в молодости он безрассудно рвался к могуществу и знаниям. Ступив на путь, казавшийся самым коротким и легким, юноша прикоснулся к древней тайне, и по его вине в мир проникло великое зло.
-Чтобы исправить содеянное, надо пройти иной путь – длиною в жизнь. Рискуя на каждом шагу, преодолеть немыслимые препятствия, измениться (   Читать дальше...   )Жанр: Героическое фэнтези, Зарубежное фэнтези, Классика фэнтезиИздательство: Азбука-АттикусПродолжительность: 09:12:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2334B0F073ABA95A873C17D38FCC13CFEA6A4525
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

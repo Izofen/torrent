@@ -19,6 +19,8 @@ Slove. Прямо в сердце (2011) BDRip [AV1/1080p] [10-bit]
 magnet:?xt=urn:btih:9CFFB1FE317A8AF680FFDE5F21FC4F4861263D70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:9CFFB1FE317A8AF680FFDE5F21FC4F4861263D70
 magnet:?xt=urn:btih:7CEA67A379C86EEF0B8F17F1976EEDB528459B32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:7CEA67A379C86EEF0B8F17F1976EEDB528459B32
 ```bash
 magnet:?xt=urn:btih:79DE7F73CBD5F9D218D2BC2BA0ACB039013536D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +107,8 @@ VA - Trance We Love vol.3 (May) (2012) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:AA60BDE3028D1656295A980E0757D69E0D038BB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:AA60BDE3028D1656295A980E0757D69E0D038BB6
 ```bash
 magnet:?xt=urn:btih:430FE50319CB092861FCB2E2E245C849357DCC78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -152,6 +162,8 @@ CD1 - Tempo Of The Damned:
 magnet:?xt=urn:btih:3B9C6DBEE74A2472F07EDF567683639D106AC03D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:3B9C6DBEE74A2472F07EDF567683639D106AC03D
 ```bash
 magnet:?xt=urn:btih:D71CB0C60FBC3229890B952BF661ED1DDCF40B75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +215,8 @@ magnet:?xt=urn:btih:D71CB0C60FBC3229890B952BF661ED1DDCF40B75
 magnet:?xt=urn:btih:850DD0E3CC9D081A4266CB488BEC197AD4693F89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:850DD0E3CC9D081A4266CB488BEC197AD4693F89
 ```bash
 magnet:?xt=urn:btih:20A1809F35D4AD6B929575128EC6A89DF1AF5470
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ Killbug (2023) [En] (1.5) License GOG
 magnet:?xt=urn:btih:8B577F470F55B21695F7E23D3B7B37990CFF6377
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:8B577F470F55B21695F7E23D3B7B37990CFF6377
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ Critter Cove (2024) [Ru/Multi] (0.6 build 269) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:00E4E5D6DF4FFAD047C84CE00F38E6FCF21B35E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -330,6 +354,8 @@ Bill Connors - Return (2005) [FLAC|Lossless]<Post-Bop, Fusion, Guitar Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ Syberia / Сибирь (2002) [Ru/Multi] (1.0.0hf4) License GOG
 magnet:?xt=urn:btih:B1AFB0D269712CF77AFC9018177D357BE09C574E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ NG: В поисках Да Винчи / Finding the Lost Da Vinci (2012) SATRip
 ```bash
 magnet:?xt=urn:btih:898D15ED59051392348D7616CDDDD0AED76ED82D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +434,8 @@ magnet:?xt=urn:btih:898D15ED59051392348D7616CDDDD0AED76ED82D
 magnet:?xt=urn:btih:5C7D99C1D97C9B19AAABEDAF4355144A753F56CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ magnet:?xt=urn:btih:5C7D99C1D97C9B19AAABEDAF4355144A753F56CB
 ```bash
 magnet:?xt=urn:btih:1DB85F382EDFDEF24E684D8D840A734BBCC705B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +486,8 @@ magnet:?xt=urn:btih:1DB85F382EDFDEF24E684D8D840A734BBCC705B1
 magnet:?xt=urn:btih:CB27C6EB60BACE1BA39919E55F3E58B05A3D836E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ Windows 11 Pro х64 Version 25H2 Build 26200.7171 by Igors_VL [RU]
 ```bash
 magnet:?xt=urn:btih:577F4842CAFABAF12AC7757E2205D024115A3A1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:577F4842CAFABAF12AC7757E2205D024115A3A1F
 ```bash
 magnet:?xt=urn:btih:E4F9F5C6A36D4C80765D36DB511C48AE0D444935
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +569,8 @@ Hell in the Club - Joker In the Pack (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:178B9A905FCA2140A565B11CEDFCCCC06A7DFCA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +598,8 @@ Cristiano Filippini's Flames Of Heaven - Symphony Of The Universe (2025) [FLAC 2
 magnet:?xt=urn:btih:51C6B535E1EED70B8423C6C1180F42FE6A109B73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +624,8 @@ magnet:?xt=urn:btih:51C6B535E1EED70B8423C6C1180F42FE6A109B73
 ```bash
 magnet:?xt=urn:btih:20474FAC41DEDE83B8EB1F6CFB7EE73A5F6B8BB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +656,8 @@ DeCoDeR Pack содержит только декодеры и фильтры д
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +681,8 @@ DeCoDeR Pack содержит только декодеры и фильтры д
 ```bash
 magnet:?xt=urn:btih:48D83F7A6BC06EDBDC0F1D732CAC3F6C28EBE05F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -660,6 +710,8 @@ The Pretty Wild - zero.point.genesis (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:63BE37E98A4830DC09F3FBFD2593030839CC54DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

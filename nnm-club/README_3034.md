@@ -28,6 +28,8 @@ DJ LEV - Night Style (2012) [MP3|320 кб/с]<Electro House, Dutch House>
 magnet:?xt=urn:btih:B5A88DCED50FB29A13E50B90F6FB286886D8FF0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ Dana Dragomir - PanDana (1996) [APE|Lossless]<New Age, Panflute>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ Igor Pumphonia - Euphonia (2012) [MP3|320 кб/с]<Chill Out, Lounge>
 magnet:?xt=urn:btih:C1AC312BBBB5DB53862D4F4A8C85CCECF246DDD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +132,8 @@ magnet:?xt=urn:btih:C1AC312BBBB5DB53862D4F4A8C85CCECF246DDD4
 ```bash
 magnet:?xt=urn:btih:44769098DAB2DECC99FB782A8AF7CA469785D106
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +168,8 @@ Dutch - A Bright Cold Day (2010) [MP3|320 кб/с]<Folk, Trip-Hop, Downtempo, In
 magnet:?xt=urn:btih:69A6074DCA171D1C57DC2DC18127986DF524B3A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +193,8 @@ magnet:?xt=urn:btih:69A6074DCA171D1C57DC2DC18127986DF524B3A2
 ```bash
 magnet:?xt=urn:btih:1AFA7E05C1F426A6B898863105748273748995FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +220,8 @@ magnet:?xt=urn:btih:1AFA7E05C1F426A6B898863105748273748995FA
 magnet:?xt=urn:btih:23185D5D43C689B13D7463FB656D3C6C62DA911B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -232,6 +246,8 @@ magnet:?xt=urn:btih:23185D5D43C689B13D7463FB656D3C6C62DA911B
 magnet:?xt=urn:btih:1D88DE71CE90476B8C40BE4DEB8056AFA794F668
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +271,8 @@ National Geographic: Профессия - разрушитель / National Geog
 ```bash
 magnet:?xt=urn:btih:BEE62E2D9EDB85FF649AF855CC600E22076966FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +307,8 @@ magnet:?xt=urn:btih:BEE62E2D9EDB85FF649AF855CC600E22076966FB
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +332,8 @@ magnet:?xt=urn:btih:BEE62E2D9EDB85FF649AF855CC600E22076966FB
 ```bash
 magnet:?xt=urn:btih:C1BBE7D0FB9245538E7856411ED8A94721501A08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +360,8 @@ magnet:?xt=urn:btih:C1BBE7D0FB9245538E7856411ED8A94721501A08
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +385,8 @@ magnet:?xt=urn:btih:C1BBE7D0FB9245538E7856411ED8A94721501A08
 ```bash
 magnet:?xt=urn:btih:D7328B93261628BD5878215C8037056597368484
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +413,8 @@ magnet:?xt=urn:btih:D7328B93261628BD5878215C8037056597368484
 ```bash
 magnet:?xt=urn:btih:035BC6870E44A13EF894B4844F7B75F467861B84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +449,8 @@ Max Schultz - Plays Coltrane (2007) [FLAC|Lossless]<Contemporary Jazz, Guitar>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +482,8 @@ VA - Shaltu (2012) [MP3|320 кб/с]<Goa Trance>
 ```bash
 magnet:?xt=urn:btih:47008F86BCD8D98350CD97DE82A3BD1B8E91A084
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +518,8 @@ Peter Tosh - The Best Of (1996) [FLAC|Lossless]<Reggae>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +553,8 @@ VA - Straight Up Drum & Bass! (2012) [MP3|320 кб/с]<Drum'n'Bass>
 magnet:?xt=urn:btih:77B3DC4F05857763893738242B14E4419B60B029
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +579,8 @@ Glary Utilities - функциональный набор системных т�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +604,8 @@ MegaTroll Media - All Music (2011-2012) [MP3|320 кб/с]<Troll Music>
 ```bash
 magnet:?xt=urn:btih:815A75EAC5EA3D33455876EF64DC4DF481D6F2F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +640,8 @@ Miles Davis - Aura (1989) [FLAC|Lossless]<Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +675,8 @@ Crane - Refuge (2011) [FLAC|Lossless]<Hard Rock/Classic Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +709,8 @@ Antonio Carlos Jobim - Miucha e Tom Jobim (1979) [FLAC|Lossless]<Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -689,6 +735,8 @@ Antonio Carlos Jobim - Miucha e Tom Jobim (1979) [FLAC|Lossless]<Jazz>
 magnet:?xt=urn:btih:E160BF7B2DF663DC418BE6FC109DC4D6DFD44AB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -712,6 +760,8 @@ magnet:?xt=urn:btih:E160BF7B2DF663DC418BE6FC109DC4D6DFD44AB7
 ```bash
 magnet:?xt=urn:btih:2DF41AD75F56890B81D9D247F55BF07B4D206CC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -745,6 +795,8 @@ magnet:?xt=urn:btih:2DF41AD75F56890B81D9D247F55BF07B4D206CC3
 ```bash
 magnet:?xt=urn:btih:52FC1E705FA2C5C815648612C54A40BD57733C4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

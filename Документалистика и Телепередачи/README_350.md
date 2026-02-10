@@ -1,3 +1,29 @@
+###  Публикация: 940728   (467029) от 25.09.2015
+
+Секретные территории: Куда исчезают цивилизации (2013) DVBRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_467029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый фильм рассказывает о необычном явлении, которому трудно найти объяснение. Еженедельно зрители узнают об аномальных зонах, вещих снах, сверхъестественных способностях человека и НЛО. Авторы программы рассматривают все точки зрения – от самых фантастических до вполне реалистичных. Очевидцы и участники событий расскажут о том, что им довелось пережить, или с (   Читать дальше...   )Телекомпания: РЕН ТВЖанр: ДокументальныйПродолжительность: 00:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EECA7B598B341D04A02EFB820FFA73CC5330865C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1161413   (467048) от 28.08.2017
 
 Диана: история ее словами (2017.08.28) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:0E44B9D39CC5521A1095BCAFE118A48A9388BCCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +77,8 @@ magnet:?xt=urn:btih:0E44B9D39CC5521A1095BCAFE118A48A9388BCCC
 magnet:?xt=urn:btih:CA0FBAF2339A5D026740A99CB3FBBE5A43503DAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +102,8 @@ magnet:?xt=urn:btih:CA0FBAF2339A5D026740A99CB3FBBE5A43503DAD
 ```bash
 magnet:?xt=urn:btih:2467E911C90299BA9F2FB820EBCF29AD2CD63003
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +129,8 @@ BBC. Истоки жизни (Первая жизнь с Дэвидом Атте
 magnet:?xt=urn:btih:C3685DE065E85CB93DAE48356C1CB0395841EE0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +155,8 @@ magnet:?xt=urn:btih:C3685DE065E85CB93DAE48356C1CB0395841EE0C
 magnet:?xt=urn:btih:54540230BEAF14408AD1B8ACD66C04142B52876B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:54540230BEAF14408AD1B8ACD66C04142B52876B
 ```bash
 magnet:?xt=urn:btih:57FEE259FFDD71ED08006979987CBFA63552F2F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +209,8 @@ magnet:?xt=urn:btih:57FEE259FFDD71ED08006979987CBFA63552F2F3
 magnet:?xt=urn:btih:5BA60C07A5C0FBAFCCB90256DF9704BF2A4247B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +234,8 @@ magnet:?xt=urn:btih:5BA60C07A5C0FBAFCCB90256DF9704BF2A4247B5
 ```bash
 magnet:?xt=urn:btih:123190A65A7DCA3583E37AA49A40EFFE0BE83B40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +261,8 @@ magnet:?xt=urn:btih:123190A65A7DCA3583E37AA49A40EFFE0BE83B40
 magnet:?xt=urn:btih:75E4CB2F93CE3E72DFEA1A30307C8F0709C9156E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +287,8 @@ magnet:?xt=urn:btih:75E4CB2F93CE3E72DFEA1A30307C8F0709C9156E
 magnet:?xt=urn:btih:C47A5C0C4334B115DDB2D664D635B41E60F33543
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:C47A5C0C4334B115DDB2D664D635B41E60F33543
 ```bash
 magnet:?xt=urn:btih:73B9DA9307F0FC2DC8734E8366BD146A33BDDA30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +341,8 @@ magnet:?xt=urn:btih:73B9DA9307F0FC2DC8734E8366BD146A33BDDA30
 magnet:?xt=urn:btih:0541B0D7D70CE036777D5F5D12D8BEAD507E075B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:0541B0D7D70CE036777D5F5D12D8BEAD507E075B
 ```bash
 magnet:?xt=urn:btih:BD5B71452B2E36BB8FBF64B428C2A365385E0EE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +394,8 @@ magnet:?xt=urn:btih:BD5B71452B2E36BB8FBF64B428C2A365385E0EE5
 magnet:?xt=urn:btih:5E1ECE16CC0CCFB20BE342701C3B8748D3B8AE98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +420,8 @@ magnet:?xt=urn:btih:5E1ECE16CC0CCFB20BE342701C3B8748D3B8AE98
 ```bash
 magnet:?xt=urn:btih:7632FD37DA02C928D84277209A6BE8EA583F5997
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +448,8 @@ magnet:?xt=urn:btih:7632FD37DA02C928D84277209A6BE8EA583F5997
 magnet:?xt=urn:btih:69D8F51BE298CB5AABB69785E45C7DE054B01A0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +473,8 @@ magnet:?xt=urn:btih:69D8F51BE298CB5AABB69785E45C7DE054B01A0A
 ```bash
 magnet:?xt=urn:btih:E227C3FC8AB13FF7578124DFA0C7E9077BAB1894
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +500,8 @@ magnet:?xt=urn:btih:E227C3FC8AB13FF7578124DFA0C7E9077BAB1894
 magnet:?xt=urn:btih:5E7A7FFADEA186BF78F48EDE05CFF9B28208961D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +526,8 @@ magnet:?xt=urn:btih:5E7A7FFADEA186BF78F48EDE05CFF9B28208961D
 magnet:?xt=urn:btih:AF81D274E35E3940354FD3583CA7528DBE62F113
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +551,8 @@ magnet:?xt=urn:btih:AF81D274E35E3940354FD3583CA7528DBE62F113
 ```bash
 magnet:?xt=urn:btih:E207D9B938D4A230614248DE59964D4A57E07E26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +581,8 @@ magnet:?xt=urn:btih:E207D9B938D4A230614248DE59964D4A57E07E26
 magnet:?xt=urn:btih:116A003F0BBBDA8D009A32A2318C0638A219C863
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +606,8 @@ magnet:?xt=urn:btih:116A003F0BBBDA8D009A32A2318C0638A219C863
 ```bash
 magnet:?xt=urn:btih:D1AD73A2368ED02E3698BD7B9CBD140EFD0715EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +633,8 @@ magnet:?xt=urn:btih:D1AD73A2368ED02E3698BD7B9CBD140EFD0715EC
 magnet:?xt=urn:btih:342D3045EC90C9B18A24EB172D269402D50B2DF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +658,8 @@ magnet:?xt=urn:btih:342D3045EC90C9B18A24EB172D269402D50B2DF8
 ```bash
 magnet:?xt=urn:btih:4943826A0FA0007257D813F510C3BBAC47D31D29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,29 +685,7 @@ magnet:?xt=urn:btih:4943826A0FA0007257D813F510C3BBAC47D31D29
 magnet:?xt=urn:btih:DF0BF80126B752F2097B922DC332D370CEDBB507
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058460   (468556) от 01.10.2016
-
-Голос. Специальный выпуск (2016.10.01) SATRip (сезон 5, выпуск 5)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468556.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Первый канал" объявляет о премьере нового сезона музыкального проекта "Голос". Из тысяч претендентов, приславших минувшим летом свои заявки на участие, отобраны полторы сотни тех, кто поднимется на ставшую уже знаменитой на всю страну сцену во время "слепых прослушиваний" в надежде покорить слух требовательных наставников. Зрителей (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТВ-Шоу, развлекательныйСубтитры: ОтсутствуютПродолжительность: ~ 02:13:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43C7C432EE402D8B2124C31BD9C19431E42B5E76
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

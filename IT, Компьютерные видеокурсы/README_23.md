@@ -22,6 +22,8 @@ Udemy, Stephen Ulibarri | Unreal Engine C++ The Ultimate Game Developer Course (
 magnet:?xt=urn:btih:FEBC86C7A9B3BBEB95B862839F002D75006F6A42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:FEBC86C7A9B3BBEB95B862839F002D75006F6A42
 ```bash
 magnet:?xt=urn:btih:6C7C2FFF71431D2CBE4C4CF83C09AFD0CBA420DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ IAmTimCorey, Tim Corey | Изучение C#: Blazor WebAssembly / Exploring C#:
 ```bash
 magnet:?xt=urn:btih:4987D6207E846A464A51FDDB90A379659CADDAA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ Allow each of your engineering teams to work independently
 magnet:?xt=urn:btih:26112D9F351C81FC0C31C14D926B114C4E31AB61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ AppSettings - это мощь (и сложность одновременно!) 
 magnet:?xt=urn:btih:3B407DF3D4199C8C06F8629CF39E217CCA9DA412
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ kobezzza.channel, Андрей Кобец | Интенсив "ИНТЕНСИВ �
 ```bash
 magnet:?xt=urn:btih:4E27EDAF4D55E2323A45CF83F237F15F3D55ED1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ kobezzza.channel, Андрей Кобец | Интенсив "TYPESCRIPT" (2022)
 ```bash
 magnet:?xt=urn:btih:93471B3B277B5F00B8849408E387AECE4E096064
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:93471B3B277B5F00B8849408E387AECE4E096064
 magnet:?xt=urn:btih:E908C8F0BB4D6A280E7D8C085203D38E66997F16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌«‌ООП В J
 ```bash
 magnet:?xt=urn:btih:ECDB62874DE8AB318C9DF9C525B0321B12FC8201
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌‌‌«РЕГУ
 magnet:?xt=urn:btih:0083635EE674FEFF5BB073B99168356EBE8D6D6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌«‌PROMISE API
 ```bash
 magnet:?xt=urn:btih:B1AAF346EDA5C889A26C60B51E8E702310403F5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ kobezzza.channel, Андрей Кобец | Интенсив «ITERABLE API» (2
 magnet:?xt=urn:btih:84FF9158855D7F297F551B27F19A67E2A2B3C582
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌‌«РАБОТ�
 ```bash
 magnet:?xt=urn:btih:5845C0D241B470907A95DAD7C593A58F5A215AF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌‌«РЕФЛЕ�
 magnet:?xt=urn:btih:DDEC7F402940168089CEE29A31642E03DF3B81F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ TCM Security, Heath Adams | Open-Source Intelligence (OSINT) Fundamentals (2020)
 ```bash
 magnet:?xt=urn:btih:78513B3DE914768C8DF2A10BAD15419F4B3A825F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ XYZ School, Александр Балакшин | Gamecode (2020) WEB-DL [RU]
 magnet:?xt=urn:btih:CB0F6AD5F0A9C0FBD5E2A8991A5DE2446217D303
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ kobezzza.channel, Андрей Кобец | Интенсив по архитек
 magnet:?xt=urn:btih:824ED719BEF99DE75E9BC2CD82A5611A6DAB8431
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ Lynda.com | JavaScript: Прототипы / JavaScript: Prototypes (2018) PCRec
 ```bash
 magnet:?xt=urn:btih:F9CCAC1E6F0F9361E3D27F2E5F30937C245BC424
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ HTML/CSS - технология, которую легко освоить "по 
 ```bash
 magnet:?xt=urn:btih:58290A7C4F683CDC3435D2AFBCBBCB33E5A7DB1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ Epic React - это серия интерактивных семинаров п�
 magnet:?xt=urn:btih:1C26403D8AA1E2E096DD6A6A5948219BC94AA09C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ magnet:?xt=urn:btih:1C26403D8AA1E2E096DD6A6A5948219BC94AA09C
 magnet:?xt=urn:btih:E26B090A23916C74E807910CED81609CC1AFC1F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +587,8 @@ magnet:?xt=urn:btih:E26B090A23916C74E807910CED81609CC1AFC1F9
 magnet:?xt=urn:btih:180829E35C71F3AA7CAC67F42EC14DA0E2C63418
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ JS Mastery | Ultimate Next.js 13 Course + eBook (2023) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:1914DA01406840F8BE37A253295CBD8E98AECDCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +640,8 @@ Kent C. Dodds | Epic Web. Ship Modern Full-Stack Web Applications (2023) WEB-DL 
 magnet:?xt=urn:btih:2C46114E6F09AF7D22F4CF37293E31D35D4F173E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +666,8 @@ Podlodka Crew | PHP Crew #2 (2023) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:6BAC90207D452B2E7E464E72364BB3A824CCA187
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +694,8 @@ My goal is to create engaging courses where you will learn programming and under
 ```bash
 magnet:?xt=urn:btih:62399CCBAA3BC341050F4D8FEE45332A4FC729F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

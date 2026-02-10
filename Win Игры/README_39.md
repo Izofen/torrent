@@ -19,6 +19,8 @@ American Truck Simulator (2016) [Ru/Multi] (1.55.2.1/dlc) Repack seleZen
 magnet:?xt=urn:btih:0894E408FD69F37B10B4B83CAC50AF9B3A95A60B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Union of Gnomes погружает вас в причудливую револю
 ```bash
 magnet:?xt=urn:btih:1185E36E390604E2D4E21095F0079B6945284F18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Everdeep Aurora (2025) [Ru/Multi] (1.1.1) License GOG
 magnet:?xt=urn:btih:143935606AC8FAF6D8CD85A62EDDADBFECDA0F28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Blacksmith Master (2025) [Ru/Multi] (0.8.147) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:E92800A221450F2D27C202E6E966B610F3BD5873
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Palworld предлагает находить и использовать пр�
 magnet:?xt=urn:btih:EB3B695244599054BB70D6D0126BA4C66B7C18AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The Vault: Logic Puzzle Box (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E6AB118F0FE21F1B99FE3DDB32C82E8298DA5042
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (Build 18713680/dlc) Repack FitG
 magnet:?xt=urn:btih:CC6851145E06897E19515396881513205D4491C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Hollywood Animal (2025) [Ru/Multi] (0.8.37ea) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:F919C82F97504642EF78496094746CEE67F974BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Dying Light 2: Stay Human (2022) [Ru/En] (1.23.2/dlc) Repack seleZen [Reloaded E
 magnet:?xt=urn:btih:2ABD72862F8E8437577BADC5E94547283E3649BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Sofia in Exchange for Lies (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D602A22548C4050F26AE6F67E35DD0A8FB36D5CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Rise of Rebellion (2025) [Multi] (build 18176641) Repack FitGirl
 magnet:?xt=urn:btih:A1A3285F738943C14C12E88A250B84B5BF4ACE7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Rise of Rebellion (2025) [Multi] (build 18176641) Scene Rune
 ```bash
 magnet:?xt=urn:btih:33F59356309CF80A3B8F0A2757A56F07853170A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ The Plucky Squire рассказывает о волшебных приключ�
 magnet:?xt=urn:btih:7240577BF30595343280B862EBA45CFA589830C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ The Last of Us Part I – игра для ПК от 3-го лица, предс�
 ```bash
 magnet:?xt=urn:btih:98B1C37B8C3C84EC22570F042502DAA8AEBB8CCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Grandma, No! (2025) [Ru/Multi] (20250522R) Repack FitGirl [Deluxe Edition]
 magnet:?xt=urn:btih:2BC48FF639692584999F8E4940BF617A31BBC117
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Eternal Strands — это дебютный фэнтезийный приклю�
 ```bash
 magnet:?xt=urn:btih:A10410C08CAB3BA2D29315BD7D4E67FFC8C6B12E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ MechWarrior 5: Clans (2024) [Ru/Multi] (1.0.114/dlc) Repack Let'sРlay [Digital 
 magnet:?xt=urn:btih:4402C3BE517B3A930AAC9F35B4882B76E66FB9B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Caribbean Legend (2024) [Ru/Multi] (1.5.0/dlc) Repack Let'sРlay [Complete Editi
 ```bash
 magnet:?xt=urn:btih:5D5872BE891FA513961CAB401F19E744D8C868CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Bloodshed - это захватывающий сплав элементов уп
 magnet:?xt=urn:btih:5751D2C0444B26B3C6DA238F4AF5E2AD63777095
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Motor Town Behind The Wheel – отличное сочетание аркадн
 ```bash
 magnet:?xt=urn:btih:DE69D248B8970BEE245D04A2FF7D1B4A10A2444D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Spiritfall - экшн-платформер с элементами рогали�
 magnet:?xt=urn:btih:7959DDBC64733E9D74066613D99A1C6E94A267E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Hidden Legacy: Dark Heirloom / Скрытое наследие: Темная р�
 ```bash
 magnet:?xt=urn:btih:0AE4B2AB80D831ADF51E63209308C8DEB223EA36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Railway Empire 2 (2023) [Ru/Multi] (64144 114/dlc) License GOG [Digital Deluxe E
 magnet:?xt=urn:btih:F25D5BA8C1879BB0218FBB9EDBACF212FE0BC25A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Still Wakes the Deep - возвращение к жанру ужаса от пе
 ```bash
 magnet:?xt=urn:btih:31E7BF327DBFD1C5577933835DF6F8DC26CDDF06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Eternal Strands - это дебютный фэнтезийный приключ�
 magnet:?xt=urn:btih:6BA2C261D364645F27F4CEA1F5BE06372C39D768
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Grimstar – это стратегия в реальном времени с с�
 ```bash
 magnet:?xt=urn:btih:62251A5F32DC8A8C9F19264BFA61CB1162C086E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

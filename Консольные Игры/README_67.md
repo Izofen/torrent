@@ -21,6 +21,8 @@ Medal of Honor Warfighter продолжает традиции вышедшей
 magnet:?xt=urn:btih:7D0B082EB6AD217D5CFC4984078613971BFB4796
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Echochrome II, как и первая часть, переносит игрок�
 ```bash
 magnet:?xt=urn:btih:1028D7F6E6CF57D23AB6519F5F638DD41D949CEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -78,6 +82,8 @@ Battlefield: Bad Company 2 [PS3] [EUR/RUS] [3.55] [Cobra ODE / E3 ODE PRO ISO] (
 magnet:?xt=urn:btih:3A0ABC758AC05E854060B5D57F8AE92343875895
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Fable стала самой продаваемой ролевой игрой д�
 magnet:?xt=urn:btih:8988EC648333CE658C03951CE6EEB36911E0E9CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ Tales of Monkey Island — квест от компании Telltale Games, ра
 ```bash
 magnet:?xt=urn:btih:3B51464FAC5B1ECB96453344F4F0E647FE323448
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ Gears of War: Judgment предоставляет возможность сов�
 magnet:?xt=urn:btih:431C8186F42DAB50484708C608B4F527D363A5F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ WWE Legends of WrestleMania (2009) [Xbox360] [PAL] Freeboot [En]
 magnet:?xt=urn:btih:A7CE8D68F91998703B3B243234EDC75E2C758006
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ Prinny 2: Dawn of Operation Panties, Dood! является продолжени
 magnet:?xt=urn:btih:62418F4753698E5CBF1A488AB38F5612209C40A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ magnet:?xt=urn:btih:62418F4753698E5CBF1A488AB38F5612209C40A4
 ```bash
 magnet:?xt=urn:btih:FC8292274CDA14C801095B2221335758B6D280D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ Blood Drive – игра, в которой главный герой являе
 magnet:?xt=urn:btih:34E371C17EBDE02AC94624F7A8AB14BDA1629091
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ Teenage Mutant Ninja Turtles: Turtles in Time Re-shelled [PS3] [PSN] [USA] [En] 
 ```bash
 magnet:?xt=urn:btih:AE3485C4537F3E580FCF1597ADCA9CEC0D846680
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +325,8 @@ Sly Cooper: Thieves in Time [PS3] EUR] [RUSOUND] [4.31] [Cobra ODE / E3 ODE PRO 
 magnet:?xt=urn:btih:614F47A3E992C4BC0286050E7CE048B9CBECD21D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ Ghost Hunter [PS2] [Full RUS PAL] (2004)
 ```bash
 magnet:?xt=urn:btih:EE21F4BA1EF94E924222C5436D7E75A9F7F2B667
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ Ghost Rider [PS2] [Full RUS PAL] (2007)
 magnet:?xt=urn:btih:DA8BB86B52FF168E98F277C7F8B445A39A132769
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ Darkwatch [PS2] [Full RUS NTSC] (2005)
 magnet:?xt=urn:btih:32ED9064008746E3F76E3D73D717EFC591B05996
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ Jurassic: The Hunted – это шутер, в котором игроку вы�
 ```bash
 magnet:?xt=urn:btih:71235203983200C01C3AA1EAA746B105373546B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ Red Star [PS2] [RUS, PAL] (2007)
 magnet:?xt=urn:btih:CBC362B23FCE16C7A4A74DE2804B2E486FB6EE2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ WSC Real 11 - Официальная игра Всемирной ассоциа�
 ```bash
 magnet:?xt=urn:btih:228D2A5ED6A8A6B24E58FC4C84CA9F2899F98E9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +510,8 @@ Goat Simulator - симулятор козла, который с недавне
 magnet:?xt=urn:btih:CC7825C188FC700A2FD21DCD2F0E97C196A0D5F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ Let’s Tap разработана эксклюзивно для развлек�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +562,8 @@ Alone in the Dark – продолжение игры, положившей в �
 magnet:?xt=urn:btih:69CF12B7DD21063DCD3BD7EC3DCF338A0A0AA439
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ Family Party - отличный способ собрать всю семью в
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ The Raven: Legacy of a Master Thief (2014) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE 
 ```bash
 magnet:?xt=urn:btih:163D174238D383FF4A6FE90EBC3C5B2D12E481B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +641,8 @@ Spider-Man: Web of Shadows (2008) [Xbox360] [RegionFree] 6717 [FreeBoot] [Unoffi
 magnet:?xt=urn:btih:2AC6D31909F377E5DD19B44C9F4A270668E2A862
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +666,8 @@ Red Faction: Armageddon (2011) [Xbox360] [RegionFree] 12625 [FreeBoot] [License 
 ```bash
 magnet:?xt=urn:btih:609D3A429DDFDCCEE6CA6C549E333CCBB8F4B282
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +694,8 @@ Batman: Arkham City GOTY [PS3] [3D] [USA] [Ru] [4.11] [Cobra ODE / E3 ODE PRO IS
 ```bash
 magnet:?xt=urn:btih:ADF68F71266DC824D68BD60DCA132FDB8DFBDD06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

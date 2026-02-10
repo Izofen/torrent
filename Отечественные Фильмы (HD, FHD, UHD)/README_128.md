@@ -1,3 +1,29 @@
+###  Публикация: 1479974   (1008768) от 29.06.2021
+
+Девятаев (2021) WEBRip [H.264/1080p]
+
+>>След.
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лето 1944 года. Советские войска ведут наступление, но враг еще очень силен. В бою с немецкими истребителями советский летчик сбит над вражеской территорией и попадает в плен. Теперь ему предстоит сделать выбор: умереть в концлагере или снова подняться в небо — но на стороне немцев. Летчик выбирает третий вариант — побег. Но как угнать самолёт с особо охраняемой (   Читать дальше...   )Производство: Россия / Военфильм, Базелевс ПродакшнЖанр: Военный, биография, драма, историяРежиссер: Тимур Бекмамбетов, Сергей ТрофимовАктеры: Павел Прилучный, Павел Чинарёв, Тимофей Трибунцев, Алексей Филимонов, Дмитрий Лысенков, Евгений Серзин, Олег Чугунов, Никита Кологривый, Антон Ксенев, Владимир ЛысенкоПеревод: Не требуется (Русский)Субтитры: русские (форсированные)Продолжительность: 01:45:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD9765858CE73835B1583DF1E4F29F86816494E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479981   (1008790) от 29.06.2021
 
 Прабабушка легкого поведения. Начало (2021) WEBRip [H.264/1080p-LQ]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:2E9CF9A2FAD105D41A66819DD06104D78699B38F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:2E9CF9A2FAD105D41A66819DD06104D78699B38F
 magnet:?xt=urn:btih:6437D71B04BD33887EA3C377F93EB0EEE64F41EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:6437D71B04BD33887EA3C377F93EB0EEE64F41EC
 ```bash
 magnet:?xt=urn:btih:847CC12EDBC7366EC7703E984C2C634FEA5DB425
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:847CC12EDBC7366EC7703E984C2C634FEA5DB425
 magnet:?xt=urn:btih:B1308FB3609E523FEF156345B0CA2C0056AF6038
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:B1308FB3609E523FEF156345B0CA2C0056AF6038
 ```bash
 magnet:?xt=urn:btih:12329BF391A09CF908957E9A70A1338B15D35B3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:12329BF391A09CF908957E9A70A1338B15D35B3E
 magnet:?xt=urn:btih:C7791851DA9AA51D8E8784FEA50489DB4A23DEC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:C7791851DA9AA51D8E8784FEA50489DB4A23DEC4
 ```bash
 magnet:?xt=urn:btih:A083564E082CFBCE98DAABD92710E771C4B4C1A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:A083564E082CFBCE98DAABD92710E771C4B4C1A8
 magnet:?xt=urn:btih:D7B23EF4B97484B8B0426B3E9FC7E6F463ADB76E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:D7B23EF4B97484B8B0426B3E9FC7E6F463ADB76E
 ```bash
 magnet:?xt=urn:btih:DECCC1F2FF68C7AAA4372E2F3A87D627610C4726
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:DECCC1F2FF68C7AAA4372E2F3A87D627610C4726
 magnet:?xt=urn:btih:6341BCB879A456858448C62C3C7C66463963E5A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:6341BCB879A456858448C62C3C7C66463963E5A6
 ```bash
 magnet:?xt=urn:btih:17F3F12DCCE3371C948DE024597B7610EAF5F456
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:17F3F12DCCE3371C948DE024597B7610EAF5F456
 magnet:?xt=urn:btih:26E6997604CCD2E6E407352EAEEFFC0CAA9B59AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +356,8 @@ magnet:?xt=urn:btih:26E6997604CCD2E6E407352EAEEFFC0CAA9B59AF
 ```bash
 magnet:?xt=urn:btih:3A8174A0C20C4AD45CE6F8E5E4AE3AD510ED6598
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:3A8174A0C20C4AD45CE6F8E5E4AE3AD510ED6598
 ```bash
 magnet:?xt=urn:btih:BA10F4AFB24DEEF4E710B856E1EDB0215C38FA01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:BA10F4AFB24DEEF4E710B856E1EDB0215C38FA01
 magnet:?xt=urn:btih:33622A2E55D2ABE33CE8B8F664779148E951DF32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:33622A2E55D2ABE33CE8B8F664779148E951DF32
 ```bash
 magnet:?xt=urn:btih:1BC50C95E723602303701618502253147ECFF159
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:1BC50C95E723602303701618502253147ECFF159
 magnet:?xt=urn:btih:FA544254EBECCBFECDA3A8956C395C5199306A50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:FA544254EBECCBFECDA3A8956C395C5199306A50
 ```bash
 magnet:?xt=urn:btih:717CA277306164615B807C184FD8EA2FC2CFCFA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:717CA277306164615B807C184FD8EA2FC2CFCFA0
 magnet:?xt=urn:btih:509EB96493C3874CEE3A28AA1DCF355D7A3A8432
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:509EB96493C3874CEE3A28AA1DCF355D7A3A8432
 ```bash
 magnet:?xt=urn:btih:0CCF9536D4A98A590D12F89E8B7817CF76587A09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:0CCF9536D4A98A590D12F89E8B7817CF76587A09
 magnet:?xt=urn:btih:4A826C1D5FFE41CFFE8D462AD49BA862391616A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:4A826C1D5FFE41CFFE8D462AD49BA862391616A8
 magnet:?xt=urn:btih:E9D5C3F23A0CFA29173EE922FCC4F3139D8BAC56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +619,8 @@ magnet:?xt=urn:btih:E9D5C3F23A0CFA29173EE922FCC4F3139D8BAC56
 ```bash
 magnet:?xt=urn:btih:F7F2D88EF08C8DE94F95DBCFA59C23B5CF6421B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:F7F2D88EF08C8DE94F95DBCFA59C23B5CF6421B2
 magnet:?xt=urn:btih:9EE981392A9838C2EBF955174555F14F3F9FFE54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,29 +673,7 @@ magnet:?xt=urn:btih:9EE981392A9838C2EBF955174555F14F3F9FFE54
 magnet:?xt=urn:btih:848C63CA9895ED5575AABCDCF8ED68CC109C3E4C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474685   (1012891) от 03.06.2021
-
-Петербург. Только по любви (2016) WEBRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012891.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Петербурге легко почувствовать себя влюбленным. Здесь запросто решаются на авантюры, вмиг меняют рабочий комбинезон на вечернее платье и готовы доверить свою судьбу шаману. В этом городе иногда кажется, что если прыгнуть с крыши, то можно взлететь, что бронзовые скульптуры вот-вот оживут, а Иосифа Бродского еще можно спасти, если снять про него кино.Производство: Россия, Кинокомпания СТВ, Глобус, ЛенфильмЖанр: Комедия, мелодрамаРежиссер: Аксинья Гог, Наталья Назарова, Оксана БычковаАктеры: Рената Литвинова, Анна Михалкова, Надежда Маркина, Анна Уколова, Полина Кутепова, Светлана Камынина, Александр Паль, Михаил Боярский, Максим Виторган, Ульяна ДобровскаяПеревод: Не требуется (русский) iTunesСубтитры: Русские (Forced, Full, SDH), английскиеПродолжительность: 01:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EC4F57A95255032969B4DFDA38E938BDF7799DD
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

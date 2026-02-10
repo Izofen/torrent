@@ -19,6 +19,8 @@ DumboFab Blu-ray Ripper 7.3.1 [Multi]
 magnet:?xt=urn:btih:0E86D8EEE469DF2B2F7EEDFADE699DA091A748EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ CyberLink AudioDirector Ultra – мощный инструментарий дл
 ```bash
 magnet:?xt=urn:btih:55353670A043255DD69858A8E7CB48DCCE99161E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:32432F0C3FA4D746A2330AADF5DF30105CF3B692
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ DxO PhotoLab 9.0.2 build 68 RePack by KpoJIuK [Multi]
 ```bash
 magnet:?xt=urn:btih:58A927A786A9CFE676A23251A58A095FEE5DED95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ ACDSee Photo Studio Ultimate сочетает в себе поддержку с�
 magnet:?xt=urn:btih:669339B3EB523FF5259FD2F16A82F7F859C1E7E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ ACDSee Photo Studio Ultimate сочетает в себе поддержку с�
 magnet:?xt=urn:btih:9C24B6C692115BB748FF004D113855F965C5453C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ XMedia Recode - отличная утилита, цель которой - по�
 ```bash
 magnet:?xt=urn:btih:85C53AF3128328658CC312539F25B7DFC689434F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Perfectly Clear — приложение, которое позволяет вс
 magnet:?xt=urn:btih:DC04991FD2A5398DD8A1A4314EFA9B7AE57FFEBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Ashampoo Photo Optimizer  представляет собой программн
 ```bash
 magnet:?xt=urn:btih:835A0C9892CE2CF8AFF50697551058E8A0109691
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 magnet:?xt=urn:btih:BE47860ECD1B91CA8A22B45DB4FF80A19F4D62BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 ```bash
 magnet:?xt=urn:btih:BC60B91B93142875AD3FD3BDCB404F850BF64C92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Freemake Video Converter - это бесплатное универсально�
 magnet:?xt=urn:btih:14A8ED15CC50D48A7215359D39E8BC31F183355E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Ashampoo Music Studio – это зарекомендовавшая себя п�
 ```bash
 magnet:?xt=urn:btih:97096CD87C5BAB3C26BE8CA4A9D2832221B95E14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:DAA0074751CE442CF04C12958795F6BC201F3534
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ The KMPlayer – это мощный мультимедиа проигрыват
 ```bash
 magnet:?xt=urn:btih:E40300060944C15FEBC496E866B62068CF1F94B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 magnet:?xt=urn:btih:0E0E5332659FAD40D407407F162950EF1CED716B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:0E0E5332659FAD40D407407F162950EF1CED716B
 ```bash
 magnet:?xt=urn:btih:2B96FC34051F77649618F6255FB9313975DC4D06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ MKVToolnix - функциональный набор инструментов д
 magnet:?xt=urn:btih:5CA769FEB9500B6CEE9F95ACD4993F935D675EAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ Adobe Bridge предоставит вам централизованный до
 ```bash
 magnet:?xt=urn:btih:4EFE3E6E2E8C053B32DEF33F017A0C89937CDB46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ Luminar Neo – это отдельный редактор, который вк�
 magnet:?xt=urn:btih:53C3085F64B1CC888108623308E2054A6147C14B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ CINEMA 4D – простая в использовании профессион�
 magnet:?xt=urn:btih:368E4A96D614C2D9E05C60D11F922977CA4AA07A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ FireAlpaca — это достаточно простой, но удобный �
 ```bash
 magnet:?xt=urn:btih:5566D07CE3F2BDF3C3D09E1BF6EFF959A3572250
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ AMS Ландшафтный Дизайн 3D 10.0 [Ru]
 magnet:?xt=urn:btih:44A2AE0F9576C6E079587395A0F2B1E0F3A870A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ ZBrush — программа для 3D моделирования, создан
 ```bash
 magnet:?xt=urn:btih:778BD685FFAF15CFBA7A13C1AAD7B28A8BF5A0AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ AMS Дизайн Интерьера 3D 12.0 [Ru]
 magnet:?xt=urn:btih:6B10068A8B9BF20A9142CF793BF7A5C5F34F2E90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ magnet:?xt=urn:btih:6B10068A8B9BF20A9142CF793BF7A5C5F34F2E90
 ```bash
 magnet:?xt=urn:btih:69FFCD3CBD12B4546DBAA2E701CDFDD1FFE76BEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

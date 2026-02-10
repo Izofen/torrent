@@ -1,3 +1,29 @@
+###  Публикация: 1460290   (1022506) от 05.04.2021
+
+Светлячок (2021) WEBRip [H.264/1080p-LQ] [PR]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Света Василькова — мамин «Светлячок» — переезжает из крошечной деревни в город, чтобы учиться в элитной школе. Появление странной новенькой в красной шапке, которая кажется чересчур улыбчивой и наивной, сразу меняет привычную жизнь класса. Будущая элита общества вынуждена взглянуть на себя со стороны и обнаружить не самые лучшие черты. К этому готовы не все, и в (   Читать дальше...   )Производство: Россия / Киностудия им. М. ГорькогоЖанр: ДрамаРежиссер: Мария КравченкоАктеры: Арина Фёдорова, Андрей Грызлов, Анна Глаубэ, Татьяна Казючиц, Марк Попов, Сергей Стёпин, Виталия Корниенко, Алина Воскресенская, Сергей Беляев, Анна ЯкунинаПеревод: Не требуется (Русский) "START"Субтитры: ОтсутствуютПродолжительность: 01:28:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:933259F6C8CB80155732A6AF1AED44B8640CBF34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460151   (1022780) от 04.04.2021
 
 Зеркало Гезелла (2019) WEBRip [H.264/1080p-LQ]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:5AA9FF09CB1E23CBE12FD273F58DE7365AC946B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:5AA9FF09CB1E23CBE12FD273F58DE7365AC946B1
 magnet:?xt=urn:btih:2F970B6B6FDBDD47472D97597396E66A916D966A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:2F970B6B6FDBDD47472D97597396E66A916D966A
 ```bash
 magnet:?xt=urn:btih:19B3DD83CB0BBD9A5BC876874BDDA8D6A2BC3A4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:19B3DD83CB0BBD9A5BC876874BDDA8D6A2BC3A4A
 magnet:?xt=urn:btih:A7C26228F4238D3F864E212553ED5A2917764182
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:A7C26228F4238D3F864E212553ED5A2917764182
 ```bash
 magnet:?xt=urn:btih:43467514DB0115CBBBF983C289FF10F817C020AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:43467514DB0115CBBBF983C289FF10F817C020AF
 magnet:?xt=urn:btih:DBC6200BB9607913C270FB7C69E4290D76810789
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:DBC6200BB9607913C270FB7C69E4290D76810789
 ```bash
 magnet:?xt=urn:btih:BC0C25169EC64DE5CB94CA45509077B993D69723
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:BC0C25169EC64DE5CB94CA45509077B993D69723
 magnet:?xt=urn:btih:0D0F1FF39CE8DEEA6A40BCC02525BBA9F37DCBEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:0D0F1FF39CE8DEEA6A40BCC02525BBA9F37DCBEF
 ```bash
 magnet:?xt=urn:btih:EEE550ED377A5DA6FA31BD39CC0CAE8D92168E5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:EEE550ED377A5DA6FA31BD39CC0CAE8D92168E5C
 magnet:?xt=urn:btih:D7BFA3CD38E763C751C03DD18AFE3B4C5092F716
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:D7BFA3CD38E763C751C03DD18AFE3B4C5092F716
 ```bash
 magnet:?xt=urn:btih:55FBE6EFF22F328A6B6BA723B4AB6BFC19BFAFAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:55FBE6EFF22F328A6B6BA723B4AB6BFC19BFAFAA
 magnet:?xt=urn:btih:76F134F0A07C8FF82B4EB2FA44132E98FFE026E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:76F134F0A07C8FF82B4EB2FA44132E98FFE026E0
 ```bash
 magnet:?xt=urn:btih:6D13AD975BA850F3B90D776B8DCA5DC9DEF47BC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:6D13AD975BA850F3B90D776B8DCA5DC9DEF47BC5
 magnet:?xt=urn:btih:F9F3F4E906AABEA197D8C87D1C12A1AD34AB244D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:F9F3F4E906AABEA197D8C87D1C12A1AD34AB244D
 magnet:?xt=urn:btih:B9C61092EB563D76E1AFB4C2C729838086B0A71D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:B9C61092EB563D76E1AFB4C2C729838086B0A71D
 ```bash
 magnet:?xt=urn:btih:15BF6CD1CF6865E7178885D89BC07C6B8AB57865
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:15BF6CD1CF6865E7178885D89BC07C6B8AB57865
 magnet:?xt=urn:btih:45FDCDF85101BC67838B944A72950303349FC3C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:45FDCDF85101BC67838B944A72950303349FC3C3
 ```bash
 magnet:?xt=urn:btih:E0F4D08E6AEE6E68DDE6BEABE01151D12DDC782D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:E0F4D08E6AEE6E68DDE6BEABE01151D12DDC782D
 magnet:?xt=urn:btih:7E2E07364F236620A108AC4E71C2DB78643D8A70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:7E2E07364F236620A108AC4E71C2DB78643D8A70
 magnet:?xt=urn:btih:3C85A7D7E61414E9AA3320FF1EACFAC9806B2A05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:3C85A7D7E61414E9AA3320FF1EACFAC9806B2A05
 ```bash
 magnet:?xt=urn:btih:12C2CC802B7A1B2D5F11364278F4CB146763C9E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:12C2CC802B7A1B2D5F11364278F4CB146763C9E5
 magnet:?xt=urn:btih:E0473FC99FC980109728ADE3EDFF09BA4B381A78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:E0473FC99FC980109728ADE3EDFF09BA4B381A78
 ```bash
 magnet:?xt=urn:btih:629A30DDABE67B9FE92E9AB2D02DD8BB693B57F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +651,8 @@ magnet:?xt=urn:btih:629A30DDABE67B9FE92E9AB2D02DD8BB693B57F5
 magnet:?xt=urn:btih:E4369AFFB705ED024AA25F1D4FAE2A8015F52BA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,30 +677,7 @@ magnet:?xt=urn:btih:E4369AFFB705ED024AA25F1D4FAE2A8015F52BA4
 magnet:?xt=urn:btih:27DA3EA94100C31D42EF0A940F888686D88F602B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457550   (1024191) от 27.03.2021
-
-Хрусталёв, машину! (1998) BDRemux [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024191.jpg" />
-</div>
-
-
-###  Подробнее
-
-В последнюю зимнюю ночь 1953 года московский истопник Федя Арамышев по дороге на работу соблазняется блестящей фигуркой на радиаторе пустого, засыпанного снегом «Опеля», стоящего на обочине.
-Откуда было знать бедному Феде, что из-за легкомысленного поступка он попадет в историю, связанную с «делом врачей», оперативными планами МГБ и высокой политики. Эта история (   Читать дальше...   )Производство: Россия, Франция / Госкино,  Canal+, Centre National du Cinéma et de l'Image AniméeЖанр: драмаРежиссер: Алексей ГерманАктеры: Юрий Цурило, Нина Русланова, Михаил Дементьев, Юри Ярвет, Генриетта Яновская, Александр Баширов, Дмитрий Пригов, Ольга Самошина, Александр Лыков, Виктор СтепановСубтитры: АнглийскиеПродолжительность: 02:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55A174094492F124EDB037E7721DB2B0419E97E2
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

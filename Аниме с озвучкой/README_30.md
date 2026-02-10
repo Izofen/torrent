@@ -19,6 +19,8 @@ Kusuriya no Hitorigoto 2nd Season | The Apothecary Diaries Season 2 | Монол
 magnet:?xt=urn:btih:7D86FE1D372D6E3DB4FC6674B80557FEBAF3C293
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Ballroom e Youkoso / Welcome to the Ballroom / Добро пожаловать �
 ```bash
 magnet:?xt=urn:btih:3AC4D8A031E465A58EEC0D52D109ECD422525D27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Enmusubi no Youko-chan / Сводники Духов: Лисьи Свахи [201
 magnet:?xt=urn:btih:29F1E08B18093A587B5D6DCB48453FFBC2A9B233
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Bishoujo Senshi Sailor Moon S: Kaguya Hime no Koibito / Sailor Moon S Movie: Hea
 magnet:?xt=urn:btih:05E1CEE002C77BA5D550BCDF06EAA7BD0CEF8B98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Boku no Kanojo ga Majime Sugiru Shobitch na Ken / My Girlfriend is Shobitch / М
 ```bash
 magnet:?xt=urn:btih:B23B6B4D43B27FDBF50158F9C2CBAF80734AB57E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ TV-1 (AniDub), (Anilibria), (Animedia), (DeadLine Studio), (SHIZA-Project) - в�
 magnet:?xt=urn:btih:0B917DF3D75BEB9E8850F0CFB2296E77A69BA54F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Robomasters / Робомастера [2017, TV, 6 ep] HDTV 720p Raw+Rus
 ```bash
 magnet:?xt=urn:btih:E1C43646D8A97FBBACAE22F6B9C940CD4FA30CF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:E1C43646D8A97FBBACAE22F6B9C940CD4FA30CF3
 magnet:?xt=urn:btih:82288FDE3D85A9091E3DB24B8A058F8043BD5209
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Gekijouban Sword Art Online: Ordinal Scale / Мастера Меча Онлай�
 ```bash
 magnet:?xt=urn:btih:8D98E7B76C706D796D16796FBC5C33CD8582B137
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Gyakusatsu Kikan / Genocidal Organ / Орган Геноцида [2017, MV] BDRi
 magnet:?xt=urn:btih:A419C8BEB60EAFDD7BE3F9C1646432583722291D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Gyakusatsu Kikan | Орган геноцида | Genocidal Organ [2017, Movie + 
 magnet:?xt=urn:btih:7CB230C161EFFBD16B0264D4600334141EB76187
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Steins;Gate 0 | Врата Штейна 0 [TV, 2018, 23] HDTV 720p rus
 ```bash
 magnet:?xt=urn:btih:9DE1D544E2B60352DFF5CFCEE1DF95089B4EDF55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Jack to Mame no Ki / Jack and the Beanstalk / Джек в Стране Чуде�
 magnet:?xt=urn:btih:94C5AF054DAADE5A570D758D15705D3009E25256
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Haikyuu!! Karasuno Koukou vs Shiratorizawa Gakuen Koukou / Волейбол!! С
 ```bash
 magnet:?xt=urn:btih:FCC0B453E12BE0136C195F2E8ECE3555691160FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Bounen no Xamdou | Xam'd: Lost Memories | КсамД: Позабывший не�
 magnet:?xt=urn:btih:3D5B7EAFA45B92F969E5AA264DE4870827BA9501
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Inou Battle wa Nichijou-kei no Naka de / Inou Battle / Супербои в по�
 magnet:?xt=urn:btih:9D648ED39A3230ECCF13CA74A786519EA78F7008
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Ingress: The Animation | Ингресс [2018, ONA, 11 эпизодов] WEBRip 
 ```bash
 magnet:?xt=urn:btih:E396EABDB35870299C85178723C510EF8B03751D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Crusher Joe | Крушила Джо [1983, Movie] BDRip 720p raw+rus
 magnet:?xt=urn:btih:61D2C9DD07935F5BB89345C01B17642ACFFF2A05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Sewayaki Kitsune no Senko-san | The Helpful Fox Senko-san | Заботливая
 ```bash
 magnet:?xt=urn:btih:63A4FA2AAC91DC850CECF5158910323E5E95AF53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ Crusher Joe | Крушила Джо [1983, Movie] BDRip 1080p raw+rus
 magnet:?xt=urn:btih:B41CB545F9DB06511F2178B43A1A9C18B7141227
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Seitokai Yakuindomo* / Члены Школьного совета (ТВ-2) [2014
 magnet:?xt=urn:btih:E08411BCEA78F9373FC082DC70854486AF67AC78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Xenosaga: The Animation | Ксеносага [2005, TV, 12 эп.] DVDRip 480p ra
 ```bash
 magnet:?xt=urn:btih:4B2565B38A784BEF902C0DB422CEC341B8D93C10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ Sunohara-sou no Kanrinin-san / Госпожа заведующая общежи�
 magnet:?xt=urn:btih:C2477EACE03847FDD4929346F7C3177483D8F3A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ Mahou Shoujo Site | Magical Girl Site | Сайт девочек-волшебни
 ```bash
 magnet:?xt=urn:btih:4C7C24501E540F773A9BF6E93BAE952A96574CE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ Ninja Senshi Tobikage / Ninja Warrior Tobikage / Ниндзя-воин Тоби�
 magnet:?xt=urn:btih:62D156F5EB2C0951EF1641FFB5A4FE2380F91552
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Ranma 1/2: Chuugoku Nekonron Daikessen! Okite Yaburi no Gekitou Hen!! | Ranma 1/
 ```bash
 magnet:?xt=urn:btih:C12123E2AB60E9A4EA2F2E15EF0DFD0C808109BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

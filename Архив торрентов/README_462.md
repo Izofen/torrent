@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:C7C397FD1CCD49FD5B3536DD688ECB1218A8CDEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:C7C397FD1CCD49FD5B3536DD688ECB1218A8CDEA
 ```bash
 magnet:?xt=urn:btih:ACB368FAF912925887C135E4630C6CF94FE988D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Calculate Linux 11.15 [х86_64] (5xDVD)
 magnet:?xt=urn:btih:2B08D68627FF29762E60D68BA5F30DC96382F33F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:2B08D68627FF29762E60D68BA5F30DC96382F33F
 ```bash
 magnet:?xt=urn:btih:A062BE15A6C5801632276E51844B5984F953746D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Atma - Music Revolution (2011) [FLAC|Lossless]<Psychedelic / Full On>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ NG: Суперсооружения: Мегазаводы. Уильямс Ф-1 / 
 ```bash
 magnet:?xt=urn:btih:2DE8CDDDBF5A3C336BD680E77C3915BC481146F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -182,6 +194,8 @@ magnet:?xt=urn:btih:2DE8CDDDBF5A3C336BD680E77C3915BC481146F5
 magnet:?xt=urn:btih:C0AFD65C97CEBEACEC6ECFD29EE6E94DCB3DE907
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ magnet:?xt=urn:btih:C0AFD65C97CEBEACEC6ECFD29EE6E94DCB3DE907
 ```bash
 magnet:?xt=urn:btih:8861F2265BF66E62DFCE091243BCFC624B58F1C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -230,6 +246,8 @@ magnet:?xt=urn:btih:8861F2265BF66E62DFCE091243BCFC624B58F1C9
 magnet:?xt=urn:btih:D7F35ED6624424528C6F8534AF56801D39B93C07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ magnet:?xt=urn:btih:D7F35ED6624424528C6F8534AF56801D39B93C07
 ```bash
 magnet:?xt=urn:btih:0745FF1D8037A1FFDDEDA7CFA11718C438D8A773
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -280,6 +300,8 @@ Spy - это профессиональное, мощное програмное
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ Spy - это профессиональное, мощное програмное
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +352,8 @@ Mozilla Firefox - бесплатный, функциональный и попу
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ Kaspersky World – это комплексное решение для рабо
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ Kaspersky World – это комплексное решение для рабо
 magnet:?xt=urn:btih:7C38CB7BDD76318FCECC5CA5BAE1882BF8665126
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ BBC: Загадки истории. Век полетов: Легенды мир
 ```bash
 magnet:?xt=urn:btih:6D884753E3BFBB9329D63B1D5EE0ED964277646D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +457,8 @@ magnet:?xt=urn:btih:6D884753E3BFBB9329D63B1D5EE0ED964277646D
 magnet:?xt=urn:btih:6FD6BC11D13C1279BF384D26B7EAE4D08ECA057A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ magnet:?xt=urn:btih:6FD6BC11D13C1279BF384D26B7EAE4D08ECA057A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ magnet:?xt=urn:btih:6FD6BC11D13C1279BF384D26B7EAE4D08ECA057A
 ```bash
 magnet:?xt=urn:btih:5AF9F6E80616E40F1C1662AC37E61C47CB3359AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +537,8 @@ magnet:?xt=urn:btih:5AF9F6E80616E40F1C1662AC37E61C47CB3359AD
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +567,8 @@ SUPER © - универсальный медиаконвертер, поддер
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +592,8 @@ Face Off Max - программа поможет Вам сделать фото,
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +619,8 @@ NHL GameCenter ™ 2011-2012: результаты, статистика, игр
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +644,8 @@ NHL GameCenter ™ 2011-2012: результаты, статистика, игр
 ```bash
 magnet:?xt=urn:btih:D00938DE9355A7DED53B69E0938D55C7947475BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +671,8 @@ magnet:?xt=urn:btih:D00938DE9355A7DED53B69E0938D55C7947475BB
 magnet:?xt=urn:btih:2E49E31E84FA293659AF23DA86AD04F812F199F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ magnet:?xt=urn:btih:2E49E31E84FA293659AF23DA86AD04F812F199F2
 ```bash
 magnet:?xt=urn:btih:13E257CF870B3E829D23691A6B3DD8EF8516943F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

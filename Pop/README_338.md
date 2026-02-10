@@ -1,3 +1,160 @@
+###  Публикация: 611944   (982407) от 04.02.2013
+
+Haddaway - 2 Albums (1993,1995)  /BMG Victor,Inc. Japan/ [FLAC|Lossless]<Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_982407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fly Away (4:06)
+02. I Know (4:31)
+03. Breakaway (4:41)
+04. Lover Be Thy Name (3:50)
+05. Waiting For A Better World (4:24)
+06. Give It Up (4:17)
+07. Catch A Fire (4:13)
+08. Desert Prayer (5:53)
+09. The First Cut Is The Deepest (4:25)
+10. Baby Don't Go (3:55)(   Читать дальше...   )Жанр: Eurodance,Europop,Euro-House,BalladПродолжительность: 00:58:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 165242   (982657) от 10.01.2010
+
+Балаган Лимитед - Танцуют все (2009) [MP3|320 kbps]<Pop/Folk>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_982657.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мальчик из Нальчика
+2. Яблонька (feat dj Neomaster)
+3. Че ты хошь (feat dj Kirill Clash)
+4. Снег-снежок (feat dj Kirill Clash)
+5. Брошу-полюблю. Дуэт с Алисой Мон
+6. Чтоб тебя (feat dj Kirill Clash)
+7. Елочка (feat dj Kirill Clash)
+8. Канарейка (feat dj Kirill Clash)
+9. Три часа (feat dj NeoMaster)
+10. Сон мой. Дуэт с Органической леди(   Читать дальше...   )Жанр: Pop/FolkПродолжительность: 00:55:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971964   (983341) от 05.01.2016
+
+Anastacia - Two Albums: Not That Kind, Freak Of Nature (2000,2001) [APE|Lossless|image+.cue] <Rhythm & Blues, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not That Kind
+02. I'm Outta Love
+03. Cowboys & Kisses
+04. Who's Gonna Stop The Rain(   Читать дальше...   )Жанр: Rhythm & Blues, Pop RockПродолжительность: 01:37:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:502381B0590F7AE52E9DEACDF5DE522463DFD50D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972042   (983353) от 05.01.2016
+
+Fitzgerald - Full Circle (2015) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, R&B, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Gon Say
+02. Making Love
+03. Love Me Again
+04. Missing You(   Читать дальше...   )Жанр: Pop, Soul, R&B, ElectronicПродолжительность: 00:47:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6BE46DF0A6DCF69BA71E2C982DFCE16AF8AAD29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355513   (983444) от 26.01.2020
+
+VA - 100 Greatest 21st Century Number 1s (2020) [MP3|320 Kbps] <Pop, RnB, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983444.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Beyoncé - Crazy In Love (3:56)
+2. Mark Ronson - Uptown Funk (Feat. Bruno Mars) (4:30)
+3. Rihanna - Umbrella (4:36)
+4. Lady Gaga - Poker Face (3:57)(   Читать дальше...   )Жанр: Pop, RnB, DanceПродолжительность: 06:12:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B37E8D6C24B34EF0107D31F70F094F0BB993491
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355502   (983522) от 26.01.2020
 
 Tindersticks - See My Girls (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
@@ -21,6 +178,8 @@ Tindersticks - See My Girls (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:08FF6C7DB9A492234D7C36530CEBBF78079E5247
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +208,8 @@ Lola Marsh - Someday Tomorrow Maybe (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie 
 magnet:?xt=urn:btih:4F2A09EA77B9EF482DA07470471665D5A3475618
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +236,8 @@ Crystal Grass featuring Steve Leach - Dance Up A Storm (1976) LP [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:310FCB726140309327CE80BFB05719696F74B7A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +266,8 @@ Oonagh - Oonagh (2014) Attea Ranta • Second Edition [FLAC|Lossless|image + .cu
 magnet:?xt=urn:btih:A907249CB894256324FEC4718CDEDBBF674EF555
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +294,8 @@ Klusters - Olbers' Paradox (2015) [OGG|406-488 кб/с] <Alternative Pop, Psyche
 ```bash
 magnet:?xt=urn:btih:2FA337532E2E73384F2840892437E07456EF1D51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +324,8 @@ Stockholm Underground  - Gimme Gimme Gimme & Summer Night City (1992) [FLAC|Loss
 magnet:?xt=urn:btih:681DDD15FBF6FDB5B44276313D4CA310E5492618
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +352,8 @@ Alec R. Costandinos - 6 Albums (1978-1981) LP Collection [MP3|320 Kbps] <Electro
 ```bash
 magnet:?xt=urn:btih:FE5C685FC2DCAE93C9AD09CD62B118AF500762C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +382,8 @@ Lera Lera - Дай мне знак (2010) [FLAC|Lossless|tracks + .cue]<Pop>
 magnet:?xt=urn:btih:7B7F42AFB522CDC38D423D2F532982744473AC4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +410,8 @@ Joutro Mundo - Lost in Rio (2015) [MP3|320 кб/с] <Nu Disco, Funk, Electronic>
 ```bash
 magnet:?xt=urn:btih:B7A35E91638E6A8E8AD8FFC2C2E87BF48F0EDD2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +440,8 @@ Joutro Mundo - A Boogie Affair (2015) [MP3|320 кб/с] <Nu Disco, Funk, Electro
 magnet:?xt=urn:btih:621417BB5A4F8013A8F4959F2B6295674B11C78A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +468,8 @@ Elvira T - На кухне (2020) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:1ADF9630CD0A4B931EDA4667877FFDC6898C436B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +504,8 @@ magnet:?xt=urn:btih:1ADF9630CD0A4B931EDA4667877FFDC6898C436B
 magnet:?xt=urn:btih:12D7D052AE1ECE169D262D5BEA607947E251084D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +539,8 @@ Alizee - The Best Songs (2013) [MP3|320 кб/с]<pop>
 magnet:?xt=urn:btih:511F5984966CC50F56B89418E843B956E5E439ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +567,8 @@ Vanessa Mai - Fur immer (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:27F926C4BA3FEFC9E98024E9B62770FC69C32778
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +603,8 @@ magnet:?xt=urn:btih:27F926C4BA3FEFC9E98024E9B62770FC69C32778
 magnet:?xt=urn:btih:686550F270CCE2C0A48D9E4DF3B7089A81F04FFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +631,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:95471D2CFAD0D7B6A5EFD73F2B6432FDDF46EF01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +661,8 @@ VA - Rock'N'Roll HitMix  Superhits Non-Stop (1999) [FLAC|Lossless|image + .cue] 
 magnet:?xt=urn:btih:2E4CA9822A917C169FA3BAA5DA524D331F58DE16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +689,8 @@ magnet:?xt=urn:btih:2E4CA9822A917C169FA3BAA5DA524D331F58DE16
 ```bash
 magnet:?xt=urn:btih:EBF8DC933D3D10D56C7079CDE876D98A3AC10E61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +719,8 @@ VA - 50 EDM Legends vol. 2 (2015) [MP3|320 кб/с] <Dance, Electronic>
 magnet:?xt=urn:btih:C86DBB511F570FB19EE2E87FB4C72AD1E72A4C02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +747,8 @@ Systems In Blue - Mega Bluebox (2013) 4CD Box Set [FLAC|Lossless]<Euro-Disco>
 ```bash
 magnet:?xt=urn:btih:D06F3CE854FE0A1EB7D837E1488E490385155FE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,143 +777,7 @@ magnet:?xt=urn:btih:D06F3CE854FE0A1EB7D837E1488E490385155FE3
 magnet:?xt=urn:btih:E6BC0C4F0CB83572577C340223A7F5BFA2A21B5B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586222   (987770) от 22.01.2020
-
-Dan Balan - Freedom. Part 1 (2012) [FLAC|Lossless]<Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chica Bomb [3:29]
-02. Freedom [3:33]
-03. 24th Letter [4:23]
-04. Lonely [3:11](   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:01:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:038EC327FB266AC745B4ABF5DE4ACC88135C027E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 711807   (987825) от 22.01.2020
-
-VA - I Love Tocata 80's (2012) 2CD [FLAC|Lossless]<Italo-Disco, Hi-NRG, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atlanta - Romantic Break [5:06]
-02. Modern Talking - You're My Heart, You're My Soul [5:33]
-03. Spagna - Easy Lady [6:53]
-04. Baltimora - Woody Boogie [5:51](   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Synthpop •Продолжительность: 02:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19C923D32420E45E7BD910368EAC9EC449F7A13B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 719577   (987829) от 22.01.2020
-
-ABBA - Ring Ring (1973) 2013 Remastered Deluxe Edition [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ring Ring [3:05]
-02. Another Town, Another Train [3:12]
-03. Disillusion [3:06]
-04. People Need Love [2:46](   Читать дальше...   )Жанр: PopПродолжительность: 01:15:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41DF78F1068EDD80E42F1D59718E3A0293EC736F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 689430   (987893) от 22.01.2020
-
-Demis Roussos - Forever And Ever (1973) /2000 Philips/ [APE|Lossless]<Pop, Pop Folk, Prog Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Pop Folk, Prog RockПродолжительность: 00:38:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E641D1A8BAC50B3A6721692F528725276B7745C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611651   (987903) от 31.01.2013
-
-Ricchi E Poveri - Perdutamente Amore (2012) [FLAC|Lossless]<Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amore E Odio
-02. Mamma Maria
-03. Cosa Sei
-04. Dimmi Che Mi Ami
-05. Voulez Vous Dancer
-06. Made in Italy
-07. Musica Vita Mia
-08. Piccolo Amore
-09. Acapulco
-10. Sara Perche Ti Amo(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:36
-
-## Скачать торент
-```bash
-нет
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 984260   (940154) от 08.02.2016
+
+На пороге вечности (2014) IPTVRip (4 серии из 4)
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переступив порог XX века, вместо обещанного просветителями благоденствия, человечество шагнуло в адскую бездну. Впервые в истории началась война всех против всех. Мало кто знает, что в Первой мировой войне участвовали даже Либерия, Никарагуа и Гаити. Когда Россия с энтузиазмом ввязывалась в мировую драку, далеко не все понимали, что могучая империя к войне не готова. (   Читать дальше...   )Телекомпания: Россия, Студия-52Жанр: Документальный, война, историяПродолжительность: 4 x ~ 00:25:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F135D0AB84377B4D09274376452AE727B0224F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984231   (940158) от 08.02.2016
 
 Тайны нашего кино. Тени исчезают в полдень (2016) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:54AC8C091CDFDF0599CD2F3C63992181EAD7A59F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:54AC8C091CDFDF0599CD2F3C63992181EAD7A59F
 magnet:?xt=urn:btih:F21C1BA828BFD5830C0F0E3363EF0879C542A070
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:F21C1BA828BFD5830C0F0E3363EF0879C542A070
 ```bash
 magnet:?xt=urn:btih:3A0D3C6B13C600CD2DE7ED80E9000D39A714471C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:3A0D3C6B13C600CD2DE7ED80E9000D39A714471C
 magnet:?xt=urn:btih:FB14DC87DA0CC2E6D2A8DDB1BED380CED52D486D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:FB14DC87DA0CC2E6D2A8DDB1BED380CED52D486D
 ```bash
 magnet:?xt=urn:btih:27DA9C4181E397C4BBCB36F6348991328403D6B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:27DA9C4181E397C4BBCB36F6348991328403D6B6
 magnet:?xt=urn:btih:C7E7F833CD530F63B3A654827D414F7485BA0B95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:C7E7F833CD530F63B3A654827D414F7485BA0B95
 magnet:?xt=urn:btih:A6A88188EA43030F1D06B6CA070790A3B1015D6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +226,8 @@ magnet:?xt=urn:btih:A6A88188EA43030F1D06B6CA070790A3B1015D6F
 ```bash
 magnet:?xt=urn:btih:6F287259E61267F533DC23E94DAE7FB9D8FD5696
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:6F287259E61267F533DC23E94DAE7FB9D8FD5696
 magnet:?xt=urn:btih:6EDC3868187F1FA1D7FC9A8C88FBED4C762A0E14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:6EDC3868187F1FA1D7FC9A8C88FBED4C762A0E14
 ```bash
 magnet:?xt=urn:btih:D37313BAE634308692DC81F7EE3A419F4D861556
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:D37313BAE634308692DC81F7EE3A419F4D861556
 magnet:?xt=urn:btih:E6802F1CC1089F47B8D3EAE18844633F8F396FE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:E6802F1CC1089F47B8D3EAE18844633F8F396FE9
 ```bash
 magnet:?xt=urn:btih:7FDCBC1A73044DEB54DE83DC695734DD266F2767
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:7FDCBC1A73044DEB54DE83DC695734DD266F2767
 magnet:?xt=urn:btih:2A1CFD255B07B8487155A2A23786B91CB5AE4945
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:2A1CFD255B07B8487155A2A23786B91CB5AE4945
 ```bash
 magnet:?xt=urn:btih:F809CD270A4D58CA75487C44594820E859BEC032
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:F809CD270A4D58CA75487C44594820E859BEC032
 magnet:?xt=urn:btih:175F503FFF5DE88A198978097CADF37A2C526362
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:175F503FFF5DE88A198978097CADF37A2C526362
 magnet:?xt=urn:btih:AF790A23B26CB3CA16B75FAEBAB1A38955453FD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +461,8 @@ magnet:?xt=urn:btih:AF790A23B26CB3CA16B75FAEBAB1A38955453FD1
 ```bash
 magnet:?xt=urn:btih:5CF8E3A4497A93998671A38B98E237AD8EEBF9C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:5CF8E3A4497A93998671A38B98E237AD8EEBF9C3
 magnet:?xt=urn:btih:F3131FA9A818F80527B86A1FC4954996F7FE13E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:F3131FA9A818F80527B86A1FC4954996F7FE13E4
 ```bash
 magnet:?xt=urn:btih:9971F13649690F7F3A75C9DB8C2811C6BC866C06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:9971F13649690F7F3A75C9DB8C2811C6BC866C06
 magnet:?xt=urn:btih:2439C75A97112241A2A33574082D1B9AA418C37E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:2439C75A97112241A2A33574082D1B9AA418C37E
 ```bash
 magnet:?xt=urn:btih:5E9C062DE2EFE2DA0C61FF6922957A6E2371492D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:5E9C062DE2EFE2DA0C61FF6922957A6E2371492D
 magnet:?xt=urn:btih:C3BB5BCA0E5B1BEB4F073246939408EFD78C7C52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +618,8 @@ magnet:?xt=urn:btih:C3BB5BCA0E5B1BEB4F073246939408EFD78C7C52
 ```bash
 magnet:?xt=urn:btih:924C85600FF1A12AB49CEEBECD343E7D18DB8E3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +645,8 @@ magnet:?xt=urn:btih:924C85600FF1A12AB49CEEBECD343E7D18DB8E3B
 magnet:?xt=urn:btih:5671CEFB02E55409525CDD0D540099F7A6EBBF10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,29 +671,7 @@ magnet:?xt=urn:btih:5671CEFB02E55409525CDD0D540099F7A6EBBF10
 magnet:?xt=urn:btih:00C0F2A3BA5BC328A1CBE90E71AFEE54DE50A0FC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091782   (941312) от 10.01.2017
-
-В поисках Дон Кихота (09.01.2017) HDTVRip [H.264/720p-LQ] (выпуск 5)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941312.jpg" />
-</div>
-
-
-###  Подробнее
-
-«В поисках Дон Кихота» — новый документальный авторский цикл Владимира Познера и Ивана Урганта. На этот раз они отправились в Испанию.Ведущие вспоминают один из самых тяжелых периодов испанской истории — период Гражданской войны, которая закончилась победой франкистов и установлением диктатуры Франко. Франко пробыл у власти 40 лет и умер 20 ноября 1975 года. Его похороны напоминали похороны Сталина. Вдоль всего пути траурного кортежа от центра Мадрида до Долины павших стояли тысячи людей. Для одних (   Читать дальше...   )Телекомпания: 1 каналЖанр: Документальный, биография, история, путешествияПродолжительность: 00:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4343472D88F15DDF186F976F24087BD13609B05E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

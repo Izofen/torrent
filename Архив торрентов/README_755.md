@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:9C05BDB41C8B14D993448BF0CCDD670BAACEE8FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ Firebrand Super Rock - Firebrand Super Rock (2012) [MP3|320 кб/с]<Heavy Metal
 magnet:?xt=urn:btih:47F1730DFC8A0674E6677AD6CB192D28416E8E83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -80,6 +84,8 @@ magnet:?xt=urn:btih:47F1730DFC8A0674E6677AD6CB192D28416E8E83
 ```bash
 magnet:?xt=urn:btih:8EDFA3FEF4227F49FC0E28CF10D8C0F384D58E5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -114,6 +120,8 @@ DJ Kocmoc - Electro Sensation vol.22 (12.03.2012) [MP3|320 кб/с]<Electro Hous
 magnet:?xt=urn:btih:156C1CCEEAEF8A5C6CE81A84854BD493A968FBFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -137,6 +145,8 @@ magnet:?xt=urn:btih:156C1CCEEAEF8A5C6CE81A84854BD493A968FBFB
 ```bash
 magnet:?xt=urn:btih:F4B161308A18FEA8941E86EFDBAA0B88A31FCFB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +181,8 @@ VA - Клубная 100-ка (2012) [MP3|160-320 kbps]<Club>
 magnet:?xt=urn:btih:BBBB217C8C599001F9C6F49DDD1C6AF767064EE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +210,8 @@ magnet:?xt=urn:btih:BBBB217C8C599001F9C6F49DDD1C6AF767064EE5
 ```bash
 magnet:?xt=urn:btih:5E23F25A925691A0D58CB2B61716382C69B80E10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -232,6 +246,8 @@ VA - Зажигательная Дискотека Non-Stop №15 (2012) [MP3|25
 magnet:?xt=urn:btih:FA6E91B896C42385395BB7AB5351DAEE3C213ACF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +281,8 @@ Brother - Hidden Depths (2009) [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:00F6784512280C414BB8C02365BE598A83A6CAFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +306,8 @@ magnet:?xt=urn:btih:00F6784512280C414BB8C02365BE598A83A6CAFF
 ```bash
 magnet:?xt=urn:btih:A815480EC3DFDE6BDE107FA77121D46448308EC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +342,8 @@ magnet:?xt=urn:btih:A815480EC3DFDE6BDE107FA77121D46448308EC1
 magnet:?xt=urn:btih:B41D6059B7B2537B27627D67909D601CF5E9049F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +367,8 @@ magnet:?xt=urn:btih:B41D6059B7B2537B27627D67909D601CF5E9049F
 ```bash
 magnet:?xt=urn:btih:255CEE428E40E19C12071B37AB4C282034E1CB3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +396,8 @@ magnet:?xt=urn:btih:255CEE428E40E19C12071B37AB4C282034E1CB3E
 magnet:?xt=urn:btih:6B1C8E7293F639DBB7FC390BEE59EA00D5365521
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +421,8 @@ magnet:?xt=urn:btih:6B1C8E7293F639DBB7FC390BEE59EA00D5365521
 ```bash
 magnet:?xt=urn:btih:545C96F06B3CDDF8FF5224D70ED4290FD844BB56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +449,8 @@ Ako - одна из четырех короткометражек входящи
 ```bash
 magnet:?xt=urn:btih:A9A6DAF581A24F82EC6625A45C442FB850040B3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +485,8 @@ Lojaz - Полный бак (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
 magnet:?xt=urn:btih:AF73A25B7159D1BF409B7347864D715C0F83E22E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +514,8 @@ magnet:?xt=urn:btih:AF73A25B7159D1BF409B7347864D715C0F83E22E
 ```bash
 magnet:?xt=urn:btih:739ECB56010723974B87E8B303597317802C5AB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +550,8 @@ CD 1 "Heart": [01:12:56]
 magnet:?xt=urn:btih:41CC1D11B40775E669F425178314B3009A189D49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +579,8 @@ magnet:?xt=urn:btih:41CC1D11B40775E669F425178314B3009A189D49
 ```bash
 magnet:?xt=urn:btih:A0343078155069B8BD16A86E5A985FDE281CE715
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +610,8 @@ magnet:?xt=urn:btih:A0343078155069B8BD16A86E5A985FDE281CE715
 magnet:?xt=urn:btih:E54F127EFCA45BE75629D7F811E21030C239605C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +635,8 @@ magnet:?xt=urn:btih:E54F127EFCA45BE75629D7F811E21030C239605C
 ```bash
 magnet:?xt=urn:btih:12C5FA13F5CDF727D6DBB855D49F11769FE0A70F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +666,8 @@ magnet:?xt=urn:btih:12C5FA13F5CDF727D6DBB855D49F11769FE0A70F
 magnet:?xt=urn:btih:B7B762C0A218D298FFF428BFD31B1F0862F2A2B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +691,8 @@ Sumatra PDF - легкий просмотрщик PDF, DjVu, XPS, CBR, CBZ -фа
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -681,6 +727,8 @@ DJ Kocmoc - Dutch compilation vol.1 (14.03.2012) [MP3|320 кб/с]<Dutch House, 
 magnet:?xt=urn:btih:3FF8447AFFA99A83CE8E6497B9BF0E0905DAC3B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -708,6 +756,8 @@ magnet:?xt=urn:btih:3FF8447AFFA99A83CE8E6497B9BF0E0905DAC3B5
 ```bash
 magnet:?xt=urn:btih:176EB163DBDA308733BBC759C1E788715A0A9FBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -739,6 +789,8 @@ VA - Armada Top 15 April 2012 (2012)
 ```bash
 magnet:?xt=urn:btih:541B279AC10C07EBF8A93ED821495109622C4378
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

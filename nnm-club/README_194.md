@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:50C4A59D3361B15D6FFF6895FFF496446E966563
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Eric Gales - A Tribute To LJK (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 ```bash
 magnet:?xt=urn:btih:FFB01D46797EE232041B678F08F7EECA91DA6E9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ David Rose - Be a Gentleman (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, 
 magnet:?xt=urn:btih:E13F11288876D9A0C9DFE8BDFACCE935746980A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:E13F11288876D9A0C9DFE8BDFACCE935746980A0
 ```bash
 magnet:?xt=urn:btih:D92ED6FB099F30992B2E6E3E871462896E739B3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:D92ED6FB099F30992B2E6E3E871462896E739B3A
 magnet:?xt=urn:btih:D88C44A010169F7F73A15060A30498EDCBD17DDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:D88C44A010169F7F73A15060A30498EDCBD17DDE
 ```bash
 magnet:?xt=urn:btih:5220B90CB0FA93522CD045D831E244B4E4178FE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:5220B90CB0FA93522CD045D831E244B4E4178FE1
 magnet:?xt=urn:btih:C4C4FA7C85EF29EC03B46889617D803BC993C7C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:C4C4FA7C85EF29EC03B46889617D803BC993C7C6
 ```bash
 magnet:?xt=urn:btih:7154D26ED09235EF4F644F93F324F9DD40FE12B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ Knox Vortex - Darling I Don’t Mind (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:787709C125B5D96489876950435615A4022BCE7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:787709C125B5D96489876950435615A4022BCE7E
 ```bash
 magnet:?xt=urn:btih:A2259C696CC57B2C169CDE559E3D60228297C219
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:A2259C696CC57B2C169CDE559E3D60228297C219
 magnet:?xt=urn:btih:36EE9F15DA02ED8D5AB613C18BC918F723727ECF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:36EE9F15DA02ED8D5AB613C18BC918F723727ECF
 ```bash
 magnet:?xt=urn:btih:EEE3C1EB7F89903378071E499BC8F19E05F3997B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:EEE3C1EB7F89903378071E499BC8F19E05F3997B
 magnet:?xt=urn:btih:FBE97FD833A27BBBE2AA90C740050F7E6935F289
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:FBE97FD833A27BBBE2AA90C740050F7E6935F289
 ```bash
 magnet:?xt=urn:btih:F69FEFED92695D29A7723DAED93F148E14563A41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:F69FEFED92695D29A7723DAED93F148E14563A41
 magnet:?xt=urn:btih:CCB0B9868AE1D65BC7C2AFCB6F17F06222C6BB11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:CCB0B9868AE1D65BC7C2AFCB6F17F06222C6BB11
 magnet:?xt=urn:btih:A9EABF8885F508E078777E680EA403DE84F60C6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:A9EABF8885F508E078777E680EA403DE84F60C6C
 ```bash
 magnet:?xt=urn:btih:9B710FA027E546C8ADE702E1ECE67268A1020F71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +482,8 @@ magnet:?xt=urn:btih:9B710FA027E546C8ADE702E1ECE67268A1020F71
 magnet:?xt=urn:btih:3D4E5DE0CD55F68ED83D6F070ED2ED6D54116B06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ magnet:?xt=urn:btih:3D4E5DE0CD55F68ED83D6F070ED2ED6D54116B06
 ```bash
 magnet:?xt=urn:btih:A578A0D838E01E6C02DAF39EEF1BA2303B573D43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +540,8 @@ Carolyn Jones - All in divine timing (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:DCCCFCBDB61B3FEEC5EAB9A866230184D348EBA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ magnet:?xt=urn:btih:DCCCFCBDB61B3FEEC5EAB9A866230184D348EBA4
 magnet:?xt=urn:btih:03F7792F3CF17ED66182E0C9AD931AAB4E258456
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ magnet:?xt=urn:btih:03F7792F3CF17ED66182E0C9AD931AAB4E258456
 ```bash
 magnet:?xt=urn:btih:1ADD16EBCF9DC6BA306DDF5AEE84E838A76EC01B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +619,8 @@ magnet:?xt=urn:btih:1ADD16EBCF9DC6BA306DDF5AEE84E838A76EC01B
 magnet:?xt=urn:btih:8931E2EE5E46C351929FA02CFD01EB4C56B522C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +644,8 @@ magnet:?xt=urn:btih:8931E2EE5E46C351929FA02CFD01EB4C56B522C6
 ```bash
 magnet:?xt=urn:btih:B7A1B8156212E056F6D40D7DBE46B57E954699EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +671,8 @@ magnet:?xt=urn:btih:B7A1B8156212E056F6D40D7DBE46B57E954699EA
 magnet:?xt=urn:btih:46232720A749E1C410D9528F2AF87876E4EC4FD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +696,8 @@ magnet:?xt=urn:btih:46232720A749E1C410D9528F2AF87876E4EC4FD5
 ```bash
 magnet:?xt=urn:btih:E23AF142BBD5A3880F1F4829FBC4E0A8D2D07CDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

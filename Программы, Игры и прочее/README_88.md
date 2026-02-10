@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:0A5F29D5A39EF7CC11EDB38F17D4DF5D83503BDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Don't Starve: Shipwrecked - В новой части вы будете игра�
 ```bash
 magnet:?xt=urn:btih:54F3272354F9487397DC938489726A55F4D76FD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Swamp Attack 2 v1.0.0.125 [Ru]
 magnet:?xt=urn:btih:B6C25C5DE43F8EC2E9D9C5BD8B85880554301E84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Sygic GPS Navigation & Maps - это самое продвинутое прил�
 ```bash
 magnet:?xt=urn:btih:B1AC23E774DB83137AA4690A5BB06FA2D2CC4DA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:B1AC23E774DB83137AA4690A5BB06FA2D2CC4DA2
 magnet:?xt=urn:btih:30E70270C78F7528D9D6ECDB1682B1363185909B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:30E70270C78F7528D9D6ECDB1682B1363185909B
 ```bash
 magnet:?xt=urn:btih:E4F71D814338296FFA9916B15F1DB47DD0E26B9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Fitness Point - это простое приложение, чтобы след�
 magnet:?xt=urn:btih:AF22620AE28951396ABDC796D62A6654F24E3719
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Mi Fit 2.2.9 [Ru] - Фитнес трекер и не только
 magnet:?xt=urn:btih:F945DBFA76BE050CED9BB624BC0A125BFC4DC14D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Rally Fury - Extreme Racing – отличный симулятор ралли, 
 ```bash
 magnet:?xt=urn:btih:5E8941F6C4C052AEDEA9D72D7504B8A8E6257833
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Terraria 1.3.0.7.7 [Ru/Multi]
 magnet:?xt=urn:btih:F24615A1B1822D463C84C71243C407C25AFEAFCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Smart Tools® 2 - это расширенный набор инструмент�
 ```bash
 magnet:?xt=urn:btih:D480289A267AF9E7DEDDD95322EF975793A8BD50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:D480289A267AF9E7DEDDD95322EF975793A8BD50
 magnet:?xt=urn:btih:77545327D26F68F84B979429075A33A621CA198C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Smart AudioBook Player Pro v11.5.9 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D59003797683D6724312F2FA38FF73868E597965
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:D59003797683D6724312F2FA38FF73868E597965
 magnet:?xt=urn:btih:5273DADE13FE1F8DE23E3A0BF94382CC59DAA7D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Smart AudioBook Player Pro v11.5.9 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3505FDC56E778556ADD4A7138936DA801704C9E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ ArtRage Vitae — это Премиум версия раннего прилож
 magnet:?xt=urn:btih:58B10FC498E2BA7B5EE4FF6440126E7710B27681
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Garmin: Bulgaria OFRM Geotrade 2021 Q3 [Bg]
 ```bash
 magnet:?xt=urn:btih:40FB128DA789E1212EC88E74B913051203E4E8FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Smart AudioBook Player Pro v11.5.9 Mod by Kirlif' [Ru/Multi]
 magnet:?xt=urn:btih:09A68FAB114C055D1C66F296E346CA1587A92AA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Garmin: City Navigator Australia & New Zealand NT 2023.20 [En]
 ```bash
 magnet:?xt=urn:btih:5F04933C3760479884205EDDB62ABD114B16C0DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Garmin: TOPO Denmark v4 PRO [Dk]
 magnet:?xt=urn:btih:3787BFEF7173C43AC426679C7607EC9C9324CED5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Glory of Generals 3 v1.0.0 [En] - Стратегическая игра о Вт�
 ```bash
 magnet:?xt=urn:btih:7FDB9A844773E35093905B5325864F299F6C1977
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Medativo является одним из лучших приложений по
 magnet:?xt=urn:btih:65867352034D884BAD499BDBC9899210AD09B362
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Lunafaqt v1.25 [Ru/Multi]- Лунный календарь
 ```bash
 magnet:?xt=urn:btih:93DF178F4B2678F798AACA52A3A0B8B56E492AC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ VPN Proxy Master - супер безопасный и неограниченны
 magnet:?xt=urn:btih:33B7D420BE2DB98F87DAE561FA0141099251C4A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Photo Tools - приложение для Android с простым интерф
 magnet:?xt=urn:btih:E5DD142952FFD69A2134E1EB5EA06FB95921E409
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:E5DD142952FFD69A2134E1EB5EA06FB95921E409
 ```bash
 magnet:?xt=urn:btih:D388862757EFE3187AC8BA248742803506A338B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

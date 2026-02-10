@@ -19,6 +19,8 @@ DataSpell — IDE для Data Science. DataSpell создан специальн
 magnet:?xt=urn:btih:EC6E1601DDCB597800EE2759AEEBEEB6D6DA5C48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Visual Studio — это мощное средство разработчика,
 ```bash
 magnet:?xt=urn:btih:D6CD83F639A95129EAE015BACA809048AD2E2874
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ RustRover - это мощная и удобная среда разработк�
 magnet:?xt=urn:btih:AC457E1CC7EED2F52A788E0E4158BB976316BE23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ JetBrains CLion — интеллектуальная среда разработ
 ```bash
 magnet:?xt=urn:btih:A259356711AF37B29E87EA9F65BC9197554DF947
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ DataSpell — IDE для Data Science. DataSpell создан специальн
 magnet:?xt=urn:btih:9527A6888672B4BEC1FE852B2300BF243DC82D00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ JetBrains WebStorm — это мощная интегрированная сре
 ```bash
 magnet:?xt=urn:btih:5050B97B93767FFAE02EC0CD8B009E344D52C4EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ RubyMine — умная и удобная интегрированная сре�
 magnet:?xt=urn:btih:EB2504EAF4A74CC9DD6F1ECE060D36EFD4E1A49E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ JetBrains PyCharm Professional – это мощная и многофункци
 ```bash
 magnet:?xt=urn:btih:711A2B4A1EB5486FEB01BD5EDA7403D339A2A832
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ PhpStorm – это интегрированная среда разработк
 ```bash
 magnet:?xt=urn:btih:6017B2C9AD8C93F56777BD7BA9281C43E3C9E79C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ IDE GoLand предлагает широкий спектр инструмент
 magnet:?xt=urn:btih:56FC4381A564A4DFA318C29F93394FAA04A78DBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ JetBrains IntelliJ IDEA Ultimate - это профессиональный ин�
 ```bash
 magnet:?xt=urn:btih:85C6F0817DA1DC587EDC64628462CDFF286B7287
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ WYSIWYG Web Builder – инструмент создания сайтов дл�
 magnet:?xt=urn:btih:DC7C7BC5F1AB8A87634DE0F45B7AEACA2A001058
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Rider — это кросс-платформенная интегрирован�
 magnet:?xt=urn:btih:E471497C4631C0D3229CE472F2CE869FF145DB5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Intel Parallel Studio XE 2017 - набор инструментов, упрощ�
 ```bash
 magnet:?xt=urn:btih:C90596DE3CC08A78AAD765E777D6B34BFCA31E4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ Developer Express VCL — это программный пакет, в сост�
 magnet:?xt=urn:btih:5929F398F244E6D99E529E86B0CDE63B300659D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ IBM Rational Software Architect — это комплексное решение
 ```bash
 magnet:?xt=urn:btih:76E272E0C7D10B6D7DBEC606638887493D8D0007
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ Resource Tuner - это программа для просмотра, редак
 magnet:?xt=urn:btih:5615C6425433DBD3B2694E6E762C9A958045A636
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ Code Composer Studio 12.2.0.00009 [En]
 magnet:?xt=urn:btih:19D27C9E2455EBFEF0AD92CE392FB9B4737F9A74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ Lahey/Fujitsu Fortran 7.9 [En]
 magnet:?xt=urn:btih:62B3581687212DFF767242FB9512BB532ECC4302
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ PowerShell Studio - это среда редактирования и инстр
 ```bash
 magnet:?xt=urn:btih:41E72A8DC9F244E072E690FD1EB357F2BD884B18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ Java SE Development Kit - программное обеспечение необ
 magnet:?xt=urn:btih:AB1349C16A905256F613015B6D45F8324A0E74AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ PyCharm – это самая интеллектуальная Python IDE с п�
 magnet:?xt=urn:btih:C1A016232AAF6B8626BF70ED319CE2B88E2D22DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ IntelliJ IDEA — самая умная среда разработки для J
 ```bash
 magnet:?xt=urn:btih:E2609143C6973FB218BE46267D41F6D36CDCFD71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ PhpStorm – это интегрированная среда разработк
 magnet:?xt=urn:btih:FCE77101FA0ED69371DFD8D6832F81AB19A035A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ WebStorm - Легкий, но мощный IDE, прекрасно оборуд�
 ```bash
 magnet:?xt=urn:btih:06AE3F1D146DBBEBB173B8F420E24C8C1B4AC8E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +681,8 @@ Rider (   Читать дальше...   )Язык интерфейса: Анг
 ```bash
 magnet:?xt=urn:btih:8142F31203D63CE07583AA9CC329DAE07ED29532
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

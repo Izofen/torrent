@@ -1,3 +1,29 @@
+###  Публикация: 1115737   (826352) от 18.03.2017
+
+Научное расследование Сергея Малозёмова. Еда живая и мертвая (2017.03.18) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826352.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Еда живая и мертвая» – новый научно-популярный цикл Сергея Малозёмова, репортера с медицинским образованием, автора и ведущего программы «Чудо техники» и научных расследований о климате, технологиях, бессмертии и экологии.Производство: НТВЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B96C17E91B645FBCEBA510689AF2BC92F8921E55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006521   (826425) от 12.04.2016
 
 Без обмана. Масло масляное (2016.04.11) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:A36F9DEB91BA667B4738FA80D54C9748A3AF575B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:A36F9DEB91BA667B4738FA80D54C9748A3AF575B
 magnet:?xt=urn:btih:BA9142E8962520AAC52E7DE5AA962045F9705B69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:BA9142E8962520AAC52E7DE5AA962045F9705B69
 ```bash
 magnet:?xt=urn:btih:6D41CAAA50D1CD381BEB0FF82A398EE71984696B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:6D41CAAA50D1CD381BEB0FF82A398EE71984696B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ Animal Planet. Чудеса голубой планеты. Семь контин
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ Animal Planet. Чудеса голубой планеты. Семь контин
 magnet:?xt=urn:btih:DF0E97562887A5B31F252C45C83DECB99BA8C9D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:DF0E97562887A5B31F252C45C83DECB99BA8C9D7
 magnet:?xt=urn:btih:F3B4E83C1C5F1A6E8E00B70A0ECC22B1C58A0A2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +226,8 @@ magnet:?xt=urn:btih:F3B4E83C1C5F1A6E8E00B70A0ECC22B1C58A0A2A
 ```bash
 magnet:?xt=urn:btih:36A5B4085050FCBE921D16F51A2007EDC6DEBA28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:36A5B4085050FCBE921D16F51A2007EDC6DEBA28
 magnet:?xt=urn:btih:A6DB827DE905DA86C1F1E048903E053B26E0D2E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:A6DB827DE905DA86C1F1E048903E053B26E0D2E5
 ```bash
 magnet:?xt=urn:btih:D29226C00FF7683BEE3AA6979567B39B53A147E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:D29226C00FF7683BEE3AA6979567B39B53A147E2
 magnet:?xt=urn:btih:2B666292E9517298CC85E90A8C69F3196DBF0081
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:2B666292E9517298CC85E90A8C69F3196DBF0081
 ```bash
 magnet:?xt=urn:btih:EBEB004B5C6E533914D44076FAEC6622D6BC9586
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:EBEB004B5C6E533914D44076FAEC6622D6BC9586
 magnet:?xt=urn:btih:192231683AD77F4DBE7713B8A07CC9927DE73E75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:192231683AD77F4DBE7713B8A07CC9927DE73E75
 magnet:?xt=urn:btih:1623954C5828FEB0432677EF0EB1618967368BA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:1623954C5828FEB0432677EF0EB1618967368BA6
 ```bash
 magnet:?xt=urn:btih:A00B2AAF7D9CBAC150A8944786CFF2359A6A087E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +443,8 @@ Bonus DVD из комплекта "Deep Purple - Now What ?! ( CD + DVD )".
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +468,8 @@ Bonus DVD из комплекта "Deep Purple - Now What ?! ( CD + DVD )".
 ```bash
 magnet:?xt=urn:btih:2175B5DE2F0F5A0A6BC97AC6C168C47A540A58FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:2175B5DE2F0F5A0A6BC97AC6C168C47A540A58FF
 magnet:?xt=urn:btih:98ABF41B3B5757BDBA70FFC90C84D4884F59D3FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:98ABF41B3B5757BDBA70FFC90C84D4884F59D3FE
 ```bash
 magnet:?xt=urn:btih:51D4976F261E2EE64E5FF8AA2DE74CC0093A6F05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:51D4976F261E2EE64E5FF8AA2DE74CC0093A6F05
 magnet:?xt=urn:btih:B6098B5D7C5885B0E74CD8E2EF80780DC73494D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:B6098B5D7C5885B0E74CD8E2EF80780DC73494D6
 ```bash
 magnet:?xt=urn:btih:613C4F9301858DE8A2069DEB168786C505BECB21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:613C4F9301858DE8A2069DEB168786C505BECB21
 magnet:?xt=urn:btih:E507ADC15AE70C0C73DADD6B28A06D97A7B0D275
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:E507ADC15AE70C0C73DADD6B28A06D97A7B0D275
 ```bash
 magnet:?xt=urn:btih:D705CCD27B657755194115FCBF51ADE12E09627C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +651,8 @@ magnet:?xt=urn:btih:D705CCD27B657755194115FCBF51ADE12E09627C
 magnet:?xt=urn:btih:FBA25827A9C54F5776FBB6579DE60FA25EEFF2FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,29 +677,7 @@ magnet:?xt=urn:btih:FBA25827A9C54F5776FBB6579DE60FA25EEFF2FC
 magnet:?xt=urn:btih:EC9883365416F9A241DA0049F0550B5F470E408B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501595   (827952) от 14.10.2021
-
-Битва экстрасенсов (2021) WEBRip [H.264/1080p] (сезон 22, выпуск 2)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827952.jpg" />
-</div>
-
-
-###  Подробнее
-
-В проекте «Битва экстрасенсов» участвуют люди, обладающими необычными способностями. Ведьмы и колдуны, эзотерики, маги, целители, гадатели и многие другие соревнуются за победу и звание лучшего экстрасенса сезона. «Битва экстрасенсов» – культовый проект и знаковое шоу в истории ТНТ. Каждый год люди, которые называют себя экстрасенсами, доказывают свои способности (   Читать дальше...   )Телекомпания: ТНТЖанр: Телепередача, Реальное ТВПродолжительность: 01:09:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E46EE2E4C14C75D813AECFB78D75DBF1D9462561
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

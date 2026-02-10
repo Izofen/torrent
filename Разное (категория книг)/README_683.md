@@ -1,3 +1,32 @@
+###  Публикация: 984663   (938032) от 09.02.2016
+
+Игорь Манн и др. | Согласовано! Как повысить доходы компании, подружив продажи и маркетинг (2016) [FB2, EPUB, DOCX]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая книга о способах разрешения конфликтов между продажами и маркетингом. От авторов суперхитов "45 татуировок менеджера" и "Номер 1".
+
+По мнению Игоря Манна, в 90% российских компаний есть конфликт между маркетингом и продажами. От такого конфликта страдают и маркетинг, и продажи, и компания в целом.
+(   Читать дальше...   )Жанр: БизнесФормат: FB2, EPUB, DOCX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73349E9A357B8634F1856E7F06F5125C076010F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984687   (938102) от 09.02.2016
 
 Брюс Тулган | Быть начальником — это нормально. Пошаговый план, который поможет вам стать тем менеджером, в котором нуждается ваша команда (2016) [EPUB]
@@ -21,6 +50,8 @@
 ```bash
 magnet:?xt=urn:btih:7C3FFFE21E04943E3685E666D9E19329DD0B8EF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -47,6 +78,8 @@ magnet:?xt=urn:btih:7C3FFFE21E04943E3685E666D9E19329DD0B8EF9
 ```bash
 magnet:?xt=urn:btih:F4FC772D1DB03C6BBA0A1DA615859ED1B6A1F0AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +108,8 @@ magnet:?xt=urn:btih:F4FC772D1DB03C6BBA0A1DA615859ED1B6A1F0AE
 magnet:?xt=urn:btih:5D862DAA99F8BAC04700B7530FE423267E4EDDCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +133,8 @@ magnet:?xt=urn:btih:5D862DAA99F8BAC04700B7530FE423267E4EDDCE
 ```bash
 magnet:?xt=urn:btih:EF7F763E7D79FAE16BBABF0BA82EF2EBD8F4E192
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +161,8 @@ magnet:?xt=urn:btih:EF7F763E7D79FAE16BBABF0BA82EF2EBD8F4E192
 magnet:?xt=urn:btih:3C256BBB245A78DFF6617259999BBD30B9CF3C76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +186,8 @@ magnet:?xt=urn:btih:3C256BBB245A78DFF6617259999BBD30B9CF3C76
 ```bash
 magnet:?xt=urn:btih:9DEDA96F3B85E876AF30F66568C2C6A7DCC57D9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +213,8 @@ magnet:?xt=urn:btih:9DEDA96F3B85E876AF30F66568C2C6A7DCC57D9D
 magnet:?xt=urn:btih:87E51B48E3808033B03BD066FF298DB673386931
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +238,8 @@ magnet:?xt=urn:btih:87E51B48E3808033B03BD066FF298DB673386931
 ```bash
 magnet:?xt=urn:btih:21BE309A1406D53B06FA8953D96B31952DA6C431
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +265,8 @@ magnet:?xt=urn:btih:21BE309A1406D53B06FA8953D96B31952DA6C431
 magnet:?xt=urn:btih:F7670AC9493BCE33F69B969114EA7E9E35B0BAF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +290,8 @@ magnet:?xt=urn:btih:F7670AC9493BCE33F69B969114EA7E9E35B0BAF3
 ```bash
 magnet:?xt=urn:btih:38336CF4221305AD4D2EE8ABDAFA7E7068570CDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +318,8 @@ magnet:?xt=urn:btih:38336CF4221305AD4D2EE8ABDAFA7E7068570CDF
 magnet:?xt=urn:btih:BFAAB0B046ACF3FDB8EB65433CC4DA6DC1FCC1B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +343,8 @@ magnet:?xt=urn:btih:BFAAB0B046ACF3FDB8EB65433CC4DA6DC1FCC1B5
 ```bash
 magnet:?xt=urn:btih:3264C37D1F24FEB7B872FBF219CFCC2B62BDB847
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +371,8 @@ magnet:?xt=urn:btih:3264C37D1F24FEB7B872FBF219CFCC2B62BDB847
 magnet:?xt=urn:btih:2A42F3E00ACAD2C63CE43667EA1C0D95154DF154
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +396,8 @@ magnet:?xt=urn:btih:2A42F3E00ACAD2C63CE43667EA1C0D95154DF154
 ```bash
 magnet:?xt=urn:btih:C9A41364BC1F52A1BA40AE98A90612D99E6BE874
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +423,8 @@ magnet:?xt=urn:btih:C9A41364BC1F52A1BA40AE98A90612D99E6BE874
 magnet:?xt=urn:btih:B1F057F823C5863D9A14195AEC9553FCB60F0A8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +448,8 @@ magnet:?xt=urn:btih:B1F057F823C5863D9A14195AEC9553FCB60F0A8F
 ```bash
 magnet:?xt=urn:btih:0A4033B1805B6A51EAA993102DE90325F06BAC48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +475,8 @@ magnet:?xt=urn:btih:0A4033B1805B6A51EAA993102DE90325F06BAC48
 magnet:?xt=urn:btih:0774BEFC9D2DA82313C6903E835C35773DCC0249
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +500,8 @@ magnet:?xt=urn:btih:0774BEFC9D2DA82313C6903E835C35773DCC0249
 ```bash
 magnet:?xt=urn:btih:467341586F8ACA5532B9EB9B4B3650A8756708C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +527,8 @@ magnet:?xt=urn:btih:467341586F8ACA5532B9EB9B4B3650A8756708C8
 magnet:?xt=urn:btih:00D770F239E7E6433B739E28231EB93057C8397B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +552,8 @@ magnet:?xt=urn:btih:00D770F239E7E6433B739E28231EB93057C8397B
 ```bash
 magnet:?xt=urn:btih:E90637EC1C6E696788A2F73676DB4493195ABF5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +580,8 @@ magnet:?xt=urn:btih:E90637EC1C6E696788A2F73676DB4493195ABF5A
 magnet:?xt=urn:btih:23ED220A8AAEE6D3265ED44D55AFC61E7572EDE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +605,8 @@ magnet:?xt=urn:btih:23ED220A8AAEE6D3265ED44D55AFC61E7572EDE3
 ```bash
 magnet:?xt=urn:btih:996FB811C49632B8A3679A5F30C2B893BE4FDA5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +640,8 @@ magnet:?xt=urn:btih:996FB811C49632B8A3679A5F30C2B893BE4FDA5B
 magnet:?xt=urn:btih:8D00168FD0DC73AA4AA2E417A96F2BDBCC1E0D13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +667,8 @@ magnet:?xt=urn:btih:8D00168FD0DC73AA4AA2E417A96F2BDBCC1E0D13
 magnet:?xt=urn:btih:B488BFF157D4BA9EAD342A6205032C038B05F3EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,29 +693,7 @@ magnet:?xt=urn:btih:B488BFF157D4BA9EAD342A6205032C038B05F3EC
 magnet:?xt=urn:btih:276D654A8B18CB8A34DB2DE8C6985C5AFCB1FC92
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984703   (938587) от 09.02.2016
-
-Сергей Кашин | Украшаем сад своими руками (2015) [FB2]
-
->>Разное (категория книг)
->>Сад, огород, животноводство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зачем тратить огромные деньги на услуги ландшафтных дизайнеров, когда можно украсить свой участок самостоятельно? Если вы не обладаете знаниями, которые бы помогли вам это сделать, не расстраивайтесь! Ведь вы держите в руках книгу, которая поможет вам прослыть среди друзей и соседей талантливым садоводом!Жанр: Сад и ОгородФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF37AF6B5C10B1668156BC23CF5676FC3871D83A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

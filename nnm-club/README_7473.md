@@ -19,6 +19,8 @@ AirRadar - приложение для сканирования WiFi сетей 
 magnet:?xt=urn:btih:0A20D424CFB218AE1074D60392276DA2F0E66EA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ VisualDiffer сравнивает бок-о-бок папки и файлы с �
 magnet:?xt=urn:btih:3DD1C329A3F68DE26C7B27931E26705086D0E3B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:3DD1C329A3F68DE26C7B27931E26705086D0E3B2
 ```bash
 magnet:?xt=urn:btih:1F0BA4332A8F4A1B939D9FEFCE622B0E3DF9EC55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:1F0BA4332A8F4A1B939D9FEFCE622B0E3DF9EC55
 magnet:?xt=urn:btih:BC72091D130CB6AE103759C2843BE3FED7AE3CA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:BC72091D130CB6AE103759C2843BE3FED7AE3CA1
 ```bash
 magnet:?xt=urn:btih:4280C084BB368ACB20F61FCE74F68B9C12F6D94B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:4280C084BB368ACB20F61FCE74F68B9C12F6D94B
 magnet:?xt=urn:btih:3B441E05039D5BDA962D5596517C28D4FCCDB381
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Tipard Mac Video Converter Ultimate 10.2.6 [Multi]
 ```bash
 magnet:?xt=urn:btih:0E4717F40A5AA704587F0843B4E6CA09868DD481
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:0E4717F40A5AA704587F0843B4E6CA09868DD481
 magnet:?xt=urn:btih:BF709D72EA8147F7A7202988C539A73B72427D34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ GeoGebra — мультиплатформенная программное об�
 ```bash
 magnet:?xt=urn:btih:D696EA3EBF536F752B29928D156991DDD03BF2B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:D696EA3EBF536F752B29928D156991DDD03BF2B7
 magnet:?xt=urn:btih:7DC7633131E3D0C02A9F18ED74F52797FDBD9AED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:7DC7633131E3D0C02A9F18ED74F52797FDBD9AED
 magnet:?xt=urn:btih:24646F9D2A7EA22A13B7B14BF43D01E451970DCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:24646F9D2A7EA22A13B7B14BF43D01E451970DCA
 ```bash
 magnet:?xt=urn:btih:06F5F998B839FFDD2A642508620353F17734887C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Astral Doors - New Revelation (2007) [FLAC|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:0BDD455BE4D0D11C49FBFE9EAB4F374F12939E4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:0BDD455BE4D0D11C49FBFE9EAB4F374F12939E4F
 ```bash
 magnet:?xt=urn:btih:BF95C202F86BED3F27BEB2173B44D88332958358
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ Dissolved - Temporal Breathing (2014) [FLAC|Lossless|WEB-DL|24/41.1]<IDM, Ambien
 magnet:?xt=urn:btih:C17713FAA7FA2714BBDDF73267E599F8C937DB10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:C17713FAA7FA2714BBDDF73267E599F8C937DB10
 magnet:?xt=urn:btih:04AE5BBEB1253714475B9D6E7FB8BF634C32213D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:04AE5BBEB1253714475B9D6E7FB8BF634C32213D
 magnet:?xt=urn:btih:C27B512ED2B850F8E568ACD6CDE2620394050EB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ Windows 11 22H2 (22621.674) x64 (6in1) by Brux [Ru]
 ```bash
 magnet:?xt=urn:btih:83E935CF3D6F7BC094268436719BDDE5ECDFE183
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ BetterSnapTool 1.9.5 [En]
 magnet:?xt=urn:btih:E259FCFD53057781B17B715CD8A7BF143ED18FED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:E259FCFD53057781B17B715CD8A7BF143ED18FED
 ```bash
 magnet:?xt=urn:btih:048CFF5EC5FF570E81D9FD52C1001C7D9CC56E1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ Chaotica - это приложение фрактального искусств
 magnet:?xt=urn:btih:1207C589B96BB666D212227BD74F7EDEE75E1217
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:1207C589B96BB666D212227BD74F7EDEE75E1217
 magnet:?xt=urn:btih:61934ED77BF7225FF369A58CA78E88573A2D267B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:61934ED77BF7225FF369A58CA78E88573A2D267B
 ```bash
 magnet:?xt=urn:btih:668125912D8AD9AECE703BFE797DCA02D2F2969E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +632,8 @@ VA - Retrowave (2014) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
 magnet:?xt=urn:btih:B6B8CDF98CDDE6B4E3E9C7926BF4F35D40AE86C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ Aerolith - Megalorama Part II (2023) [MP3|320 Kbps] <Progressive Rock, Space Roc
 magnet:?xt=urn:btih:5D074B788D6BD5F4287742227A32F25757E1B4A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ magnet:?xt=urn:btih:5D074B788D6BD5F4287742227A32F25757E1B4A8
 ```bash
 magnet:?xt=urn:btih:0167C5F530F308652FC0A6627DBDA3CAF1BF7197
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

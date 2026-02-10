@@ -21,6 +21,8 @@ S.M.A.R.T. Vision 4.1.0.1796 [Ru/En]
 magnet:?xt=urn:btih:E68B7B261B8AB8F4F421B3409ACF0A092FD0C73A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ XYZ School, Егор Гришин | Скетчинг (2020-2021) PCRec
 ```bash
 magnet:?xt=urn:btih:F46A389FE87530E4FC2EADBEA70C1E06DE86D521
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Yiihuu, Hooman Raad | The Dwarf Warrior: 3D Character Creation For Game (2019) P
 magnet:?xt=urn:btih:4F5D46A9A799DBB175560C2B2FA24112869D02F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Assetto Corsa Competizione — продолжение реалистичного
 ```bash
 magnet:?xt=urn:btih:E943A06130B1F27C86511E7B3936B59DDEC8E58D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:E943A06130B1F27C86511E7B3936B59DDEC8E58D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ ELEX II – продолжение ELEX, винтажной ролевой иг�
 ```bash
 magnet:?xt=urn:btih:34ECE267D838003F0B8A176ED7F7C0FDF6990D87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:34ECE267D838003F0B8A176ED7F7C0FDF6990D87
 magnet:?xt=urn:btih:7D27A0035368CF506EDFCCE56A01A2BA2028ED1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:7D27A0035368CF506EDFCCE56A01A2BA2028ED1B
 magnet:?xt=urn:btih:FC53032B2E906ADBDBCD0F2BFD0AB005344255B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:FC53032B2E906ADBDBCD0F2BFD0AB005344255B6
 ```bash
 magnet:?xt=urn:btih:5E0F34BFEFF7DB9CB5D76F123FA8403D337557DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Delphi 7 - всеми известная программа от компани�
 magnet:?xt=urn:btih:A5FF447F6AC1DBEAFCAA5D8AF41010AC4AF1591B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:A5FF447F6AC1DBEAFCAA5D8AF41010AC4AF1591B
 ```bash
 magnet:?xt=urn:btih:6FD49C01799280618CB2C7DEC97361552F8F6EB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:6FD49C01799280618CB2C7DEC97361552F8F6EB7
 magnet:?xt=urn:btih:38A42C51937E846B1088C2C25624FA1186FE532A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:38A42C51937E846B1088C2C25624FA1186FE532A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Microsoft встроила в Windows 10 частичку Windows 11, превр
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Microsoft встроила в Windows 10 частичку Windows 11, превр
 ```bash
 magnet:?xt=urn:btih:1DEF71CAFF70A388E59860DAC95B843847E3807A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Galactic Civilizations III (2015) [Ru] (4.01.1/dlc) Repack xatab
 magnet:?xt=urn:btih:8630A9FCB217FA617AB36177AFF925D13AB70DBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Devil May Cry 5 (2019) [Ru/Multi] (1.0.5962864/dlc) Repack Other s [Deluxe Editi
 ```bash
 magnet:?xt=urn:btih:EA15E06F789056CB7E6FA79F196CBC828CC26397
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:EA15E06F789056CB7E6FA79F196CBC828CC26397
 magnet:?xt=urn:btih:B70A79A03A9A1F2A960E7677179583E14748D5A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Warface - это многопользовательский онлайн-шут�
 magnet:?xt=urn:btih:60230A3453007A28410046129EA32D1DEADDB87B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Halo Infinite — последний луч надежды угас, челов�
 ```bash
 magnet:?xt=urn:btih:63AE6852EA4B8600A8053D76514338E6EC298AB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:63AE6852EA4B8600A8053D76514338E6EC298AB1
 magnet:?xt=urn:btih:C0B57E569AD1F87AFB213A0C8BA4EC6B4A18DC3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Terminator™: Resistance – шутер от первого лица во вр�
 magnet:?xt=urn:btih:C254DA2DFCF3B96747C2467365F86F8DD96CDF23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ KMS Tools — сборник программ от Ratiborus в одной об�
 ```bash
 magnet:?xt=urn:btih:8DE1D14CFF89EEDA5411AB4D43FC44978B7A49E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ Udemy, Dzianis Matveyenka | Java для начинающих. Level 2 (2021) WEB
 magnet:?xt=urn:btih:6BD72A78DAC7F9AC730863982FE3BC1ABADA2F9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Windows 10 1909 24in1 (x86/x64) +/- Office 2019 by Eagle123 (12.2019) [Ru/En]
 magnet:?xt=urn:btih:CE90C19F21033E438021643BA1CF34BD8F8B86DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ magnet:?xt=urn:btih:CE90C19F21033E438021643BA1CF34BD8F8B86DD
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

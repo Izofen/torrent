@@ -19,6 +19,8 @@ This Is the President – это управленческая игра с увл
 magnet:?xt=urn:btih:7C478D11785B5EDD53AD76B8EC1CDAED47C315B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Shadow Tactics: Blades of the Shogun - Aiko's Choice (2021) [Ru/Multi] (3.2.25.F
 ```bash
 magnet:?xt=urn:btih:B97DE0C9207BF7EC5AF5FCD694DDA8EEC3158846
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Christmas Stories 11: Taxi of Miracles / Рождественские истор
 magnet:?xt=urn:btih:E0424A120EF69FF8D36CE741FBFCB0E1D71DB7BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Strange Investigations 3: Secrets Can Be Deadly / Удивительные ра�
 ```bash
 magnet:?xt=urn:btih:8D9B26EAEB30545DA37E7FC2FEEC00ACD4FF597C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ The Christmas Spirit 3: Grimm Tales (2019) [En] (1.0) Unofficial [Collector's Ed
 magnet:?xt=urn:btih:E9DB0D214B8FFD24E4426A0B80120E0531491CE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ This Is the President (2021) [Ru/En] (1.0.0.7816929) License CODEX
 ```bash
 magnet:?xt=urn:btih:A26382BF49225A8D6C8809F8E05A443F81B275C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Unto The End – зрелищный рисованный платформер о
 magnet:?xt=urn:btih:07C3F64436A16E0B2A3D6BCC251F971BEBE3C006
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Trailmakers The Centrifuge (2019) [Ru/Multi] (1.0.4.30476) License CODEX
 ```bash
 magnet:?xt=urn:btih:E8A4DC84D34D2FE44EB1E0454F1B860F6300C624
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ IXION (2022) [Ru/Multi] (1.0.0.3) Repack DjDI [Deluxe Edition]
 magnet:?xt=urn:btih:CED4A6C5E0278275E3796EDDD410FAB1CDD5F4A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Togges (2022) [Ru/Multi] (1.03) License GOG
 ```bash
 magnet:?xt=urn:btih:396E6B86924A53DC524B3DCA6E20657752CC9581
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ NecroBouncer (2022) [Multi] (1.0.1) License GOG
 magnet:?xt=urn:btih:0E1113D74068382CDF6E25A649D112A331A25182
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Agatha Christie - Murder on the Orient Express (2023) [Ru/Multi] (20231023) Scen
 ```bash
 magnet:?xt=urn:btih:D7778504A9FEC33691B3651CD9717A29C41F1C17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ X-Force Under Attack возвращает все очарование стрел
 magnet:?xt=urn:btih:48DBB3A051F3BCC96BAA4BB08E7850741EBF3FFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Airport CEO - это экономический симулятор, разраб
 ```bash
 magnet:?xt=urn:btih:7817CD18391C94B2909EFF6D8BAAE9ACF5EB553C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Grand Theft Auto III (2021) [Ru/Multi] (1.14718) Repack Other s [The Definitive 
 magnet:?xt=urn:btih:CA7F3552AD7515BE2377BC588AE01513A9010E18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Divine Invasion (2021) [Ru/Multi] (1.0.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:4678A084FAE8568A6FEE43347A13220C2466732D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Street Outlaws 2: Winner Takes All (2021) [En] (7729942) License CODEX
 magnet:?xt=urn:btih:303AEAB5B39249E16DA612FB54E88B361C82C252
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ The Legend of Heroes: Trails in the Sky: Second Chapter (2015) [En] (2019.12.08)
 ```bash
 magnet:?xt=urn:btih:6EC0AB0655B929EB23D6B67789BC48B6994AE619
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Oddworld: Soulstorm (2021) [En] (1.162/dlc) License CODEX [Enhanced Edition]
 magnet:?xt=urn:btih:8BD4383D44554D5F56698E6671F61ACDE79F3CE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Castle on the Coast — сногсшибательный платформер-к
 ```bash
 magnet:?xt=urn:btih:48E2A8CE3296DC63E86D0CD613B10DD8F251AFAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Ashen – это кооперативный экшн-RPG c открытым ми
 magnet:?xt=urn:btih:5A51AE3C3D48BB17A95430F036B6350DF525ED70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Detective Olivia: The Cult of Whisperers / Детектив Оливия: Кул
 ```bash
 magnet:?xt=urn:btih:9EA08ABD3089E3C8A8600F628545F389568F17A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Fury Unleashed создан в сочетании вдохновения от с
 magnet:?xt=urn:btih:8D7BEF560326D9D8440245BBB55A481A8679AF5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ In Nightmare (2022) [Ru/Multi] (9999022) License FLT
 ```bash
 magnet:?xt=urn:btih:56D4F4028695B815049417656D828B2E52477F1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Agarest: Generations of War 2 (2015) [En] (1.0) License GOG
 magnet:?xt=urn:btih:5A083327A50D3EE4A124E83D9D8977C57965DFFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Elephant Games представляет новейшее увлекательн�
 ```bash
 magnet:?xt=urn:btih:B2AE82277416DC6D4FF77AAE62298830371BCFD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Sugar Apple Fairy Tale | Сказка о сахарном яблоке [2023, TV
 magnet:?xt=urn:btih:41FBC5A2F71F3F9003E20E51A5E3932D204934FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Onii-chan wa Oshimai! | Onimai: I'm Now Your Sister! | Я стал сестро�
 ```bash
 magnet:?xt=urn:btih:5F9F56A854A421E396EB10C570B848DDB3F5714C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Tensei shitara Slime Datta Ken Movie: Guren no Kizuna-hen | That Time I Got Rein
 magnet:?xt=urn:btih:8363E952EC78BB35DEAA7331F1EB6F75097A7FBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Koori Zokusei Danshi to Cool na Douryou Joshi | Ледяной парень и �
 ```bash
 magnet:?xt=urn:btih:62561A830AAF0EA2628AFCB3C1E393E70476D757
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Revenger | Мститель [2023, TV, 12 эп.] WEBRip 720p raw
 magnet:?xt=urn:btih:136EC7684DE8B6827605DD1B97B8B63EAB4899AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Idolish Seven: Third Beat! | Idolish 7: Third Beat! | Семёрка идоло�
 ```bash
 magnet:?xt=urn:btih:754CC93314204F5CCC522F08C278FCE8CC04067C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Toutotsu ni Egypt Shin 2 | Oh, Suddenly Egyptian God 2 | Ух ты, египет
 magnet:?xt=urn:btih:B867F14B2C3CD2644A86B0D625D2EF7965B0AA2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Fumetsu no Anata e Season 2 | To Your Eternity Season 2 | Для тебя, Бе�
 ```bash
 magnet:?xt=urn:btih:CA8C5A0CBAE5D8A9BE7AD5B08411D3B75B3BE4D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Mairimashita! Iruma-kun (2022) | Добро пожаловать в ад, Иру
 magnet:?xt=urn:btih:01CEA8DEA69828598F40B06F4A97C4EA64235EF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Arknights: Reimei Zensou / Arknights: Prelude to Dawn / Рыцари ковче�
 ```bash
 magnet:?xt=urn:btih:C2DD57130F71CB9CEEC3BE1C9F433C920356EA88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Gunslinger Girl / Школа убийц (ТВ-1) [2003, TV, 13] BDrip 1080p raw
 magnet:?xt=urn:btih:73F032E0679DBC62BD17F86EF18134E1823F1D8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Gunslinger Girl: Il Teatrino / Школа убийц: Театр марионе�
 ```bash
 magnet:?xt=urn:btih:DA4DA716DEFB111062EA18CFEEF0840528ACF8A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Engage Kiss | Клятвенный поцелуй [2022, TV, 13 эп.] BDRip 108
 magnet:?xt=urn:btih:6C375CDA25C160C29545376A81259A5B7E03059D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Seiken Densetsu: Legend of Mana - The Teardrop Crystal | Легенда свят
 ```bash
 magnet:?xt=urn:btih:BDD43210DBCE73133AFF19F928732B395FC1D96A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Waga Seishun no Arcadia | Arcadia of My Youth | Harlock Movie 2 | Капитан
 magnet:?xt=urn:btih:3ADC59AE7565B8133E4553AD05104E1B36A64E54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Maetel Legend / Легенда Мэйтел [2000, OVA, 2 из 2] DVDrip 480p ra
 ```bash
 magnet:?xt=urn:btih:32439FF0A842F12E0C7ADC2C18126A49DE4BA2CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Summer Time Render | Summer Time Rendering | Летнее время [2022, TV, 
 magnet:?xt=urn:btih:9A231D5378D09C4F0B98ACFC61B16F71D2F420B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Soukyuu no Fafner: Dead Aggressor - The Beyond | Небесный Фафнир: 
 ```bash
 magnet:?xt=urn:btih:101E520682F76DAD2904E004884F2831DB0864A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Aru Machikado no Monogatari | Tales of a Street Corner | История одно
 ```bash
 magnet:?xt=urn:btih:624C99E98A95B6F8A8BE49C9175B46693C53378B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ Gensou Mangekyou: The Memories of Phantasm | Тохо - Калейдоскоп �
 magnet:?xt=urn:btih:6A5D9566455F36575FBB8031585AE052987130F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Arifureta Shokugyou de Sekai Saikyou 2nd Season | Arifureta: From Commonplace to
 ```bash
 magnet:?xt=urn:btih:C264D7F7F844F62181BFF0E2BD25709CA907DD45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ Isekai Meikyuu de Harem o | Harem in the Labyrinth of Another World | Гарем
 magnet:?xt=urn:btih:7647961C6E0F3FEE8D0BB2D1F657EA64A07CC8CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ AS (Ad Stella) 122. Эпоха, когда корпорации начали о�
 ```bash
 magnet:?xt=urn:btih:FB228AA975B36A62213126E27CCEF450652DC79B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ Mahou Tsukai Sally | Sally the Witch | Ведьма Салли [ТВ-1] [1966, T
 magnet:?xt=urn:btih:6599B0E05F0F696840D8CCD60985975689E07F69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Bokusatsu Tenshi Dokuro-chan | Bludgeoning Angel Dokuro-chan | Убойный а
 magnet:?xt=urn:btih:238522EAF759DCBEC5035113C529D36A431C0C14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Peter Grill to Kenja no Jikan: Super Extra | Peter Grill and the Philosopher's T
 ```bash
 magnet:?xt=urn:btih:3955B53E81187F93950B02FBC0FF84E5A4E2DCC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

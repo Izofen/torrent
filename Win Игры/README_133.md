@@ -19,6 +19,8 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (1.0.0.0/dlc) Repack Other s [Deluxe
 magnet:?xt=urn:btih:8D1C5865BD2AB3BD5B3354A00B45299C6DBEF9BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Voidwrought (2024) [Ru/Multi] (0.27.56) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:2073C0E5ED61170903AAF71D74F37CCE432C6952
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Alchemist: The Potion Monger – это смесь причудливой гол
 magnet:?xt=urn:btih:77CE9A3ED05C76311D2FB6F3E6CA718A9FA06DA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Blasphemous II (2) (2023) [Ru/Multi] (2.0.0-cs56908/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:8514A3255D0DF1552C1E0D09A00EE81C17FDE4E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ CRUELTY – что может быть лучше ужаса от японски
 magnet:?xt=urn:btih:3563A188765744BC41414B50F6D46B45FD9340FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Totally Spies! - Cyber Mission (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:8466F177F35B2134CC0A9D9F8EFD66D1B1C45230
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Monster High Skulltimate Secrets (2024) [Multi] (1.12) Scene Tenoke
 magnet:?xt=urn:btih:C96E3FD1F140892316C3ACD0756499CFA9139379
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Blasphemous II (2) (2023) [Ru/Multi] (2.0.0-cs56908/dlc) Repack FitGirl [Complet
 ```bash
 magnet:?xt=urn:btih:19524C549F28BDF22EEE7189698D11EF0AC544C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Barbie Project Friendship (2024) [Multi] (1.16) Scene Tenoke
 magnet:?xt=urn:btih:578E1F97B9E3CFFB0FE640F0D6C2F0C0AB4E30AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Blackthorn Arena: Reforged (2024) [Ru/Multi] (build 16275683) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:045562CC6D7878D54A59F696A5CF26CA04365F49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Call to Arms - Gates of Hell: Ostfront – стратегия в реально�
 magnet:?xt=urn:btih:4E1AB26E5ACDA27ADF9D28A8C620D67E1238216E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Voidwrought (2024) [Ru/Multi] (0.27.56) Scene Tenoke [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:E867D091DD076CBCE9D355531ADD7A4535B7CF15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Scary Shadow Spot: Last Farewell (2024) [Multi] (1.2.0) Scene Tenoke
 magnet:?xt=urn:btih:C13FFDDE0DA7201F98F6F59171EF2AA76088527D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ House Builder (2021) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:8551A0A10DA9AA601DCFF77452A657F8849E1383
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Red Dead Redemption - компьютерная игра в жанре action-adv
 magnet:?xt=urn:btih:FF4BA228BF124C48A9E1C65D3A21BE942B9BF36F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Repella Fella (2023) [En] (1.0.2c) License GOG
 ```bash
 magnet:?xt=urn:btih:6289FBFCD22ABDAD230BDF4F9EBE1CFB41624425
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ The Night is Grey наполнена мрачной атмосферой тем�
 magnet:?xt=urn:btih:CEA6BD2B66F7440CBDE240CDF553D6D5178F1B1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Dreamless (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:6DE5A35A3A7FDC786C04C757EBC7ABEC9D4F1CB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ No Man's Sky (2016) [Ru/Multi] (5.12/dlc) Repack seleZen [VR]
 magnet:?xt=urn:btih:C1E205F64283CE859DA454C1E531C2C18A2C7F43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Farm Manager 2021 – игровой проект, который вновь г�
 ```bash
 magnet:?xt=urn:btih:A1B089D87EC835C2446AC91448680A2CD44BC78D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ L.A. Noire – мрачный и жестокий триллер. В игре и
 magnet:?xt=urn:btih:764974257938719A2D95CA2F3A6C03ED66793F91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ The Political Machine 2024 - это не обычные политические
 ```bash
 magnet:?xt=urn:btih:68ECBC43E338173BD33D65DEC106D18564B2737F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ The Sims 4 (2014) [Ru/Multi] (1.110.294.1020/dlc) Repack FitGirl [Deluxe Edition
 magnet:?xt=urn:btih:B066595A792D5FA1A2C67A344FEE55CC2DBAAC16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ The Lost Village - это оригинальная смесь из иммерс�
 ```bash
 magnet:?xt=urn:btih:3415819639F7C660BE37BBE818C5F89CA9C120A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Song Of The Prairie (2023) [Ru/Multi] (1.1.88) Scene Skidrow
 magnet:?xt=urn:btih:86F0A35B0CB1F3554A8CC54538FD8F899FDB5841
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.0.38.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:47DAF1BE14FE37F278DE6268FED0D4DEA0B965AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

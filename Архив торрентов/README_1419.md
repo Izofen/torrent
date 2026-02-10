@@ -19,6 +19,8 @@ Fusion 18 — это самое современное в мире програ�
 magnet:?xt=urn:btih:505405C5D8055CB9E310B928599EC7CB91A9BCDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Screaming Frog SEO Spider Tool - программа для проведения 
 ```bash
 magnet:?xt=urn:btih:D106708A3D5990B9A64286508AB759D301D35036
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Brave - защищенный браузер на базе Chromium, постро
 magnet:?xt=urn:btih:2C120BAF7139798C47BB469DF2EF68E81F650ADE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:2C120BAF7139798C47BB469DF2EF68E81F650ADE
 ```bash
 magnet:?xt=urn:btih:A3D8F0578AC690ABF99570C202FA5E184580FD28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Ventoy - это инструмент с открытым исходным код
 magnet:?xt=urn:btih:050F97792655860688A104923E7DEE6CF8A1B39E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ ZBrush — программа для 3D моделирования, создан
 ```bash
 magnet:?xt=urn:btih:8E8280FB104F26174714A2CE88F17F502193933F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ DAEMON Tools Lite - программа для работы с образами �
 magnet:?xt=urn:btih:84BA57B0A507051452633B6643F9DCC48E81AD82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ LibreOffice - офисный пакет с открытым исходным к�
 ```bash
 magnet:?xt=urn:btih:E07B726CA54762193BC4FB74BABA1FDB0CCC17DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Foxit PDF Reader - профессиональное приложение для 
 magnet:?xt=urn:btih:13AD8A127E328F78E3910FB42D88EBBF4D1D6D9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ MiniTool Power Data Recovery - это инструмент предназнач�
 magnet:?xt=urn:btih:4F5D6647988ADA0433285EC3D78405974CEFEC95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:CBCCADE351A2DDBE6DF6720F334F972ED5CEB63E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Malwarebytes Free (ранее Malwarebytes Anti-Malware) – полноценн�
 magnet:?xt=urn:btih:1FD6C03EE8ACFB0C689727E77CC603E82FBAE92A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:9AD39649BF18EE00C6CD589437BC2CF172DCAB71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ AOMEI Backupper – программа для создания резервно�
 ```bash
 magnet:?xt=urn:btih:68E99F52319C93CA54EA38D0E9C1111C980981B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ uTorrent Pack 1.2.3.72 Repack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:CC4DC4BB5AD6F9FF5A360F797EC84ECAA3CFB885
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:E6DBE1767C681EEAE731CB3A492934433B2AC840
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ Office 2013-2021 C2R Install + Lite 7.6.2 ++ Portable by Ratiborus [Multi/Ru]
 magnet:?xt=urn:btih:CDF232692F59B74BC5CDB239218B510F3D4544E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:0D5E32AD2B89D43C36FD4ED8743BAAE0D4BFE155
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ AIDA64 - является мощным средством для идентиф�
 magnet:?xt=urn:btih:3DEA6A0C73D2837FBE10E4C593384F4C0EE20677
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ Oracle VM VirtualBox является многофункциональным и�
 ```bash
 magnet:?xt=urn:btih:FC39659357941738EFDF1D018B20763FC4E5C2F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ MSMG ToolKit позволяет создавать облегченную вер
 magnet:?xt=urn:btih:C986D9C6BD3C49153DC0EF5203C5E6F89A089F05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:33E0765E59FEAB545E3E6EAF900385532F819E6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ uTorrent Pro 3.6.0 Build 46830 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 magnet:?xt=urn:btih:C56456FE83516952B3691D154AA38E0C2FCB0CA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:3AF40F63BFF4A80612B7733C7A5F0F22FBC7BEC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Bandicam позволяет записать определенную облас
 magnet:?xt=urn:btih:2B5CB43D4AFF89C9F928B5BB1E7D9DF17E977655
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:0C3C57E59464F3C0D062D9EA481D4A32A22D44FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -21,6 +21,8 @@ Balabolka 2.15.0.760 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:2F300B4A902FCCAD86387517747A4F04DE04346A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ MusicBrainz Picard - простая в использовании програм
 magnet:?xt=urn:btih:A8F053222BF29714C2C293134DCC40A000E63125
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ LEX LIVE 10 2022 - портативная операционная систем�
 ```bash
 magnet:?xt=urn:btih:3CA7D3EE4A3D9A5C68734047517EDE7305E3E886
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Tor Browser Bundle 11.5.8 [Ru/En]
 magnet:?xt=urn:btih:54D00E73338921A90FED415A2FA56F9E3B2ED8E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ AIDA64 - является мощным средством для идентиф�
 ```bash
 magnet:?xt=urn:btih:CB73483657651DEE008CCA8BDB4C19CD997F3C08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ R-Studio Technician 9.1 Build 191061 RePack (& portable) by Dodakaedr [Multi/Ru]
 magnet:?xt=urn:btih:0AECDE00ABE48B82B733013615CD11115BAAC0AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Niagara Launcher - это прекрасный кастомный рабочий
 ```bash
 magnet:?xt=urn:btih:15658B027F1DBCE0B5ED992A90A0F264186165CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Sound Blaster Command - программное обеспечение для н�
 magnet:?xt=urn:btih:35F4221F2D47C450579A42D09C74C38C454A64C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ LibreOffice - офисный пакет с открытым исходным к�
 ```bash
 magnet:?xt=urn:btih:73D929C0F8B74F7F10A080A8C7DEB9A1782CEBE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ W10Privacy - программа для изменения настроек си�
 magnet:?xt=urn:btih:8C9EE07DD0CFF855FD5927934FF2DAFF766F4FF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Ashampoo Driver Updater обеспечивает обновления для ш�
 ```bash
 magnet:?xt=urn:btih:AB5E131310A5B64F113FEB6DA0D6D3A70FE228EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ MiniTool Power Data Recovery - это инструмент предназнач�
 magnet:?xt=urn:btih:E7EE9E0E2B3CCA062B1993DF6C7401B2542AB51F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ X Lossless Decoder (XLD) - это инструмент для macOS, котор�
 magnet:?xt=urn:btih:B41F95276516EE162BBE170B4A3963264275E7E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ CPU-Z способен показать различную информацию 
 ```bash
 magnet:?xt=urn:btih:1A22CF492DC37C14E6809C96F8E7CEF3457098CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ WinScan2PDF - позволяет сканировать документы и с
 magnet:?xt=urn:btih:BCF02B9AFC8E00851147541DE95019EA477B468E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ IsMyLcdOK - небольшая бесплатная программа для о
 ```bash
 magnet:?xt=urn:btih:50B8BA7890832DCC0493212F4FB048ECB9C2FCF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:8A176C4055713ABE53E4E47804C074F109636EC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Ocenaudio — аудиоредактор, распространяемый ав�
 ```bash
 magnet:?xt=urn:btih:023BE838B984C04BC2FE58FA008390B81CB00351
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ Hasleo Backup Suite — это бесплатное программное об�
 ```bash
 magnet:?xt=urn:btih:C0FD5F59F9D4843893D89FB0AB6E4846FF7A6FE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ Opera GX - это специальная версия браузера Opera, с
 magnet:?xt=urn:btih:F37D1C3D24AEE2C45F44AE48D00F82DE8AB2C507
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ GOM Player Plus - мультимедийный плеер со множеств�
 ```bash
 magnet:?xt=urn:btih:FB9444917678394B3D9C84349B67ABF3C37A450E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ NirLauncher Package - универсальный пакет из более че
 magnet:?xt=urn:btih:595375DA006DCD3D9697C8B26F1466D94F581A49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 ```bash
 magnet:?xt=urn:btih:7BB831F93BD13ABCDE6A02859CA74AF6980C74B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ XYplorer - удобный мультивкладочный файловый ме
 magnet:?xt=urn:btih:8CC4C9AD6E5041E838CE07CCFDE2BD968D5FE534
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ Keka 1.2.58 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:060B719908933E498216FC6102647BB476383BA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +678,8 @@ InnoExtractor - это мощное приложение, которое пом�
 ```bash
 magnet:?xt=urn:btih:91D9ED33B30C43884A1389365885138A15B7989A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

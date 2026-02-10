@@ -19,6 +19,8 @@ Northern Sans — современный шрифт без засечек с ч�
 magnet:?xt=urn:btih:BAFB88A7FE4DAFD3B8995B9F511B026A1E99D56E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Baru Sans — геометрический шрифт, сочетающий в �
 magnet:?xt=urn:btih:FAC2CBA94FBA570BD4E3CC1C04C586C9220A2D46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:FAC2CBA94FBA570BD4E3CC1C04C586C9220A2D46
 magnet:?xt=urn:btih:3F010774004CABACA35F85DF3E9A415F53769B4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Killer Elephant — невероятно тяжёлый шрифт, состоя
 ```bash
 magnet:?xt=urn:btih:EEE37E5C7DC1A22A8AC607AAC4338DED862EFDE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:EEE37E5C7DC1A22A8AC607AAC4338DED862EFDE5
 magnet:?xt=urn:btih:15734162C91767C9B662A3559F0B139B20CFE2BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Fyntra — современный акцидентный шрифт с засе�
 ```bash
 magnet:?xt=urn:btih:C0663B06409D616775097C99F02DAEAFE3E8D767
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Scusso — это не просто шрифт с индивидуальност
 magnet:?xt=urn:btih:77C6228DD69125E43F4C760567E2FA24A5664A4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Quirlone — высококонтрастный шрифт с переходны
 ```bash
 magnet:?xt=urn:btih:F3B308CCA8CA6A499D4AB8195606FDBCA5C2B899
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ DelaGothic - это плоский, очень толстый готически
 magnet:?xt=urn:btih:51FB6039E98B33119919F087671278FF6BEC26B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Impacto — шрифт для заголовков, вдохновлённый �
 ```bash
 magnet:?xt=urn:btih:E49E9CC0DBCF12CAF47AC1E8F0DCFFAD78CF70E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ ZT Otez — изысканный шрифт с засечками, создан�
 magnet:?xt=urn:btih:C08B9251638B24EA1A6AE1B4D9778472EF63BE83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ Banzai Bros — невероятно эффективный многофункц
 magnet:?xt=urn:btih:EBBB9D4A307C1BA69851003268970AE622E277A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ Native стремится найти баланс между индивидуа�
 ```bash
 magnet:?xt=urn:btih:9F64DD104749CE984690D9F9892CF3486548470D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:9F64DD104749CE984690D9F9892CF3486548470D
 magnet:?xt=urn:btih:FE0807F0E9760B608381DDE72AB139E5C81E5A5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ Quickpen — непринуждённый и лёгкий шрифт, созда
 ```bash
 magnet:?xt=urn:btih:FC72D3F6329802C29F785C55BD4A943F6577FA0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ Byker — геометрический гротеск, сочетающий в �
 magnet:?xt=urn:btih:C098016457ABB659F4FF85E2EB81FB794D7A1BB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ Jouter Sans — семейство шрифтов без засечек, пре�
 ```bash
 magnet:?xt=urn:btih:341D0356BB747B8A296C28B21204B7FF4A29CE03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ Obrazec 2.0 - это модернизированная версия шрифт�
 ```bash
 magnet:?xt=urn:btih:875D86169E3E259E5B62776A19588ACEE5513829
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ magnet:?xt=urn:btih:875D86169E3E259E5B62776A19588ACEE5513829
 magnet:?xt=urn:btih:F539F301AFBAF126201A009A9BA2DA4F335D5361
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ magnet:?xt=urn:btih:F539F301AFBAF126201A009A9BA2DA4F335D5361
 ```bash
 magnet:?xt=urn:btih:BA1A32C8208CABC955FA8BBBB88071BAA9A81AF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +554,8 @@ Tondu — это простой акцидентный шрифт, вдохно�
 magnet:?xt=urn:btih:2A3291978FCE470385FB9A4AD50C2A2EBD2BCD15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ magnet:?xt=urn:btih:2A3291978FCE470385FB9A4AD50C2A2EBD2BCD15
 ```bash
 magnet:?xt=urn:btih:E4473681F4EC10C6350AA5E5A840C51C799C9D92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ magnet:?xt=urn:btih:E4473681F4EC10C6350AA5E5A840C51C799C9D92
 magnet:?xt=urn:btih:5E0112C6488EFEE4885D6BE8FFF7A674FDF2F150
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:5E0112C6488EFEE4885D6BE8FFF7A674FDF2F150
 ```bash
 magnet:?xt=urn:btih:05FB50A6C55F6779DA747E1EA84581FCA40201E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +659,8 @@ magnet:?xt=urn:btih:05FB50A6C55F6779DA747E1EA84581FCA40201E5
 magnet:?xt=urn:btih:BC3FE382A70FBA9AA7B79F0B9225E17C07E39CE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ Driftune — изысканный шрифт без засечек, сочета
 ```bash
 magnet:?xt=urn:btih:5567728850F97BA6FFFB9EAADD4AEADDD1EFF247
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

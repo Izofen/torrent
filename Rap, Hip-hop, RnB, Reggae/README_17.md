@@ -1,3 +1,32 @@
+###  Публикация: 929075   (519349) от 19.08.2015
+
+Shahmen - All In The Circle (2015) [MP3|320 кб/с]<Abstract Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_519349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dirt (Remastered) (03:07)
+02. No Slippin' (02:41)
+03. Many Miracles (01:42)
+04. Mice (04:40)(   Читать дальше...   )Жанр: Abstract Hip-HopПродолжительность: 00:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D140BDAED2208272F9BCC22266313B643634C8B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1559467   (524204) от 25.06.2022
 
 Bob Marley & The Wailers - Exodus (1977) 2CD, 45th Anniversary, Deluxe Edition, 2022, Tuff Gong [FLAC 2.0|96/24|WEB-DL|tracks] <Reggae>
@@ -21,6 +50,8 @@ Bob Marley & The Wailers - Exodus (1977) 2CD, 45th Anniversary, Deluxe Edition, 
 ```bash
 magnet:?xt=urn:btih:F4F2A7CF77C28C0FC6D2E615354BE3DEE4ED7909
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ Machine Gun Kelly - Mainstream Sellout (2022) life in pink deluxe, Explicit [FLA
 magnet:?xt=urn:btih:10AE4161343CE960AA35080C3B1FD4EA4DD010A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ Die Antwoord - Mount Ninji and Da Nice Time Kid (2016) [MP3|320 Kbps] <Hip-Hop, 
 ```bash
 magnet:?xt=urn:btih:38402119C456D47C0AA112AE9AF9988B20E4D44A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ Nicki Minaj - Queen (2018) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-hop>
 magnet:?xt=urn:btih:7557DE776FDA9C298F86174162B94C3C300B6342
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ magnet:?xt=urn:btih:7557DE776FDA9C298F86174162B94C3C300B6342
 ```bash
 magnet:?xt=urn:btih:7FC73243C57BB2F9F730AA301EC653D87325E919
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ Da Gudda Jazz - Легенда (2016) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:F25E46336CB7CE976DDCCBD4AFE456130CA2FA1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ magnet:?xt=urn:btih:F25E46336CB7CE976DDCCBD4AFE456130CA2FA1A
 ```bash
 magnet:?xt=urn:btih:A1702476B78D36C77A8EC4FF57813652762F3DFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ Rickey F - FLASHFORWARD (2018) EP [MP3|320 Kbps] <Rap, Hip-hop>
 magnet:?xt=urn:btih:D1F28629E50644495D2474CA765DBC1FBBD642F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ Miyagi - Buster Keaton (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:85AF097DB1CC0334641B79C889821B579EF3340D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ magnet:?xt=urn:btih:85AF097DB1CC0334641B79C889821B579EF3340D
 magnet:?xt=urn:btih:ADE00C95F8E2CEC24FDDAC984345F2285C43CFC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ Krec - Комиксы (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:9F6CB9A57C74B431B41B5FE42B65B0FFEBB513AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ magnet:?xt=urn:btih:9F6CB9A57C74B431B41B5FE42B65B0FFEBB513AF
 magnet:?xt=urn:btih:ACD518478BA358E1B781B189AAC243ACA6057558
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ MiyaGi & Эндшпиль - Hajime, Pt. 3 (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:17022D7481DB49661AEB70F19156AB1640F785B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ VA - Chillhop Essentials - Summer (2019) [FLAC|Lossless|Web-DL|tracks] <ChillHop
 magnet:?xt=urn:btih:B01A7C62A66D21D9591FC84920149F68280B4EC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +456,8 @@ magnet:?xt=urn:btih:B01A7C62A66D21D9591FC84920149F68280B4EC0
 ```bash
 magnet:?xt=urn:btih:6A6B42BC5D5FCDA325F0F077677EF334A89C931D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +486,8 @@ Krec - Head (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:7CF0991169D9C901D0FA89620A31644AAF2CA3AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +514,8 @@ magnet:?xt=urn:btih:7CF0991169D9C901D0FA89620A31644AAF2CA3AE
 ```bash
 magnet:?xt=urn:btih:D96BAED95E71990E3ECB00D8FF23A924FE8B46E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +544,8 @@ Johnyboy - Вне времени (2018) [MP3|320 Kbps] <Rap, Hip-hop>
 magnet:?xt=urn:btih:87655193EF3B9D1FD38C1978BD83184CE60510AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +572,8 @@ magnet:?xt=urn:btih:87655193EF3B9D1FD38C1978BD83184CE60510AA
 ```bash
 magnet:?xt=urn:btih:BC2E19EA7634B383E5DC21706FD25BB2688E51A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +602,8 @@ Laid Back - Healing Feeling (2019) [MP3|320 Kbps] <Electronic, Synth-pop, Reggae
 magnet:?xt=urn:btih:457C7E1579C47DAED000E6FA5CEC6FCD5AE63207
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +630,8 @@ Damian "Jr. Gong" Marley - Stony Hill (2017) [MP3|320 Kbps] <Reggae, Ska, Dub>
 ```bash
 magnet:?xt=urn:btih:3BC849D38B3C3AF4D6A71CB81149A6C94EFC37F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +660,8 @@ magnet:?xt=urn:btih:3BC849D38B3C3AF4D6A71CB81149A6C94EFC37F7
 magnet:?xt=urn:btih:D859D7FEAF7C62A9EA99ECDD8CC7D5EF255BEB04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +688,8 @@ Rigos - Водитель Катафалка (2018) [MP3|320 Kbps] <Rap, Hip-hop>
 ```bash
 magnet:?xt=urn:btih:50BDA123CDBEDBBD772FE5C1A9F5C2CEB6E39042
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +718,8 @@ magnet:?xt=urn:btih:50BDA123CDBEDBBD772FE5C1A9F5C2CEB6E39042
 magnet:?xt=urn:btih:1BE74F1BCD27E5658C6A3683A502CA9B034924A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,32 +747,7 @@ Jelly Roll - Crosses and Crossroads (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Rap
 magnet:?xt=urn:btih:B744835057C21A23872877E676BCD4D71A37D029
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301519   (585262) от 11.05.2019
-
-Jelly Roll - Addiction Kills (2017) Bad Apple, Inc. [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip Hop, Hardcore, Blues Rock>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hate Goes On (2:43)
- 02. Wheels Fall Off (3:27)
- 03. Only (3:18)
- 04. Addiction Kills (4:04)(   Читать дальше...   )Жанр: Rap, Hip Hop, Hardcore, Blues RockПродолжительность: 00:38:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCC65F08EF883E1C612597318531D2115634F584
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

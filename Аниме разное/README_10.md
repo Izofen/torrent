@@ -19,6 +19,8 @@ Chang Jian Feng Yun | Zhang Jian Feng Yun | Chang Jian Fengyun | Длинный 
 magnet:?xt=urn:btih:A279473A6C5C62B2B0D685745738A1A9C522B3E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Wu Shang Shen Di | Supreme God Emperor | Непревзойдённый царь
 ```bash
 magnet:?xt=urn:btih:B06BDFD61E13725C747AFB8CADE62854457A7B9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Wan Jie Xian Zong | Страна десяти тысяч чудес [2020, TV, 4
 magnet:?xt=urn:btih:E298A246E5936B432B53FC6F5EA35A3990E0AC6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Arknights: Reimei Zensou / Arknights: Prelude to Dawn / Рыцари ковче�
 ```bash
 magnet:?xt=urn:btih:FB85C611A1997EEC7E8E9E751C6BF4EA4E25F09B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Futoku no Guild / Immoral Guild / Развращённая гильдия [2022,
 magnet:?xt=urn:btih:CDB715BF0AAA89366912C84C1FC741E49A251185
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Isekai Meikyuu de Harem o | Harem in the Labyrinth of Another World | Гарем
 ```bash
 magnet:?xt=urn:btih:268748F7F6514C4B7C8416EE50DB387A1D2FDD44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Yao Jing Zhong Zhi Shou Ce | Planting Manual | Руководство по се�
 magnet:?xt=urn:btih:80C7B1BE1190066A1F97B306E499313C04A35B08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Yichang Shengwu Jianwenlu | Journal of the Mysterious Creatures | Дневник
 ```bash
 magnet:?xt=urn:btih:E986985EF9CB592DBBB0B08D93AF2C6BFE278EFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Tenkuu no Shiro Laputa | Laputa: Castle in the Sky | Небесный замок
 magnet:?xt=urn:btih:BC75B0E478239AE361A569FCAC33C6D817CFD5AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Apocalypse Hotel | Апокалипсис: Отель [2025, TV, 12 из 12 эп
 ```bash
 magnet:?xt=urn:btih:9D4F7E584EFEA7B4B84011398EDE8AF86E229C24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Haite Kudasai, Takamine-san | Please Put Them On, Takamine-san | Пожалуй�
 magnet:?xt=urn:btih:D8199C7C8AC3E98A6F185AF5B49A9349B5D89EBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Isekai wa Smartphone to Tomo ni. 2 | In Another World with My Smartphone 2 | В 
 ```bash
 magnet:?xt=urn:btih:7ECB0FFF67E7D9EF5A18A011157F898D5A415F1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:7ECB0FFF67E7D9EF5A18A011157F898D5A415F1C
 magnet:?xt=urn:btih:10D596AC10E7572854B65164C8CAC3C0E32B7560
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Given: Uragawa no Sonzai | Given: On the Other Hand | Дарованный OVA [
 ```bash
 magnet:?xt=urn:btih:DE058DD42D76D1B893585D1213E1380FBA1598C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Eiga Given | Дарованный. Фильм | Given the Movie [2020, Movie] BD
 magnet:?xt=urn:btih:3EB37B0CFD12689DED9CFEA79925B2C0D3BCFBBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Given Movie 3: Umi e | Given Movie 3: To the Sea | Дарованный: К ок
 ```bash
 magnet:?xt=urn:btih:12AE397A01E961F8E0DBA28B68F3DAC3C562F956
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Eiga Given (2024) | Given Movie 2: Hiiragi Mix | Дарованный: Микс 
 magnet:?xt=urn:btih:3090BF36F750A87A0CB48546DDD15C45E4DBEC91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Eiga Sasaki to Miyano: Sotsugyou Hen | Sasaki and Miyano: Graduation | Саса�
 ```bash
 magnet:?xt=urn:btih:B017D69A39877452D560DE09641A48B81AA567D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ Sasaki to Miyano | Sasaki and Miyano | Сасаки и Мияно [2022, TV, 12 
 magnet:?xt=urn:btih:BD9D7431547EF14807308E7B66CA47ECA125B601
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Umibe no Etranger | The Stranger by the Shore | Незнакомец на бер
 magnet:?xt=urn:btih:83EEB6DDD199949FA300B3ECF1F57065F9AE5E30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Evangelion Shin Gekijouban: Jo | Evangelion: 1.0 You Are (Not) Alone | Evangelio
 ```bash
 magnet:?xt=urn:btih:A90AA296ED779436C747B9C5BC4C6702BFDA8903
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

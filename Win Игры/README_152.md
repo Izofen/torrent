@@ -19,6 +19,8 @@ Akimbot (2024)[Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:FB70C8C4BC132C96BAF76D9847D4C3357F214580
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Sunset Hills - это нарисованная от руки игра-голов
 ```bash
 magnet:?xt=urn:btih:06CA37C83119A9FBB094106846A395EAA4048A91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Blocky Farm (2024) [Ru/Multi] (20240830-5) License GOG
 magnet:?xt=urn:btih:98B54DAE495A0F4680E1B8526C24CABEE8DAB65B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Sumerian Six - это не типичная военная история. Ко�
 ```bash
 magnet:?xt=urn:btih:88057B7A241F2EEBE59ABC094E35FA4366CFA2B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Akimbot (2024)[Ru/Multi] (1.0) Scene Rune
 magnet:?xt=urn:btih:473A994914DDED786D2F1AFBBBA54B35FD54D1CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Monster Jam Showdown - гоночная игра, которая покажет 
 ```bash
 magnet:?xt=urn:btih:89191AB7917D740C8BFBF57ED8F4F61C8B05DBC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Age of Mythology: Retold - игра от создателей культовой
 magnet:?xt=urn:btih:B69018E7C2E231BB320C7AE93164528DB67FF5B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15473676/dlc) Scene FairLigh
 ```bash
 magnet:?xt=urn:btih:993FBC8963FD4ABCD0F6A93E1813BB22745B2788
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Wizardry: Proving Grounds of the Mad Overlord - это полный 3D-риме�
 magnet:?xt=urn:btih:45F7CD02ED2E86713DB3277A58CF7DF0D8CC052E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Date Z - это визуальный роман, который сочетает
 ```bash
 magnet:?xt=urn:btih:A91CC3480D5F93A7DFFF1DDAB51988AA545D4227
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ I Wani Hug that Gator! погружает вас в жизнь Инко, ста�
 magnet:?xt=urn:btih:3B744720A9BA2A4FFC48119DE6ED728D41515090
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:3B744720A9BA2A4FFC48119DE6ED728D41515090
 ```bash
 magnet:?xt=urn:btih:B4C4D2DBB49279389D19E31397C9F0FB7281F7D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Dimensions - это захватывающее межпространствен�
 magnet:?xt=urn:btih:E58F62AF4C38D9C9CA245645F50B16E96384E920
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Endless Days Z - напряжённая игра в жанре выживани�
 ```bash
 magnet:?xt=urn:btih:328162FCC8E3E54535B8301AF42C3DF2C76C68CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Wild West Dynasty (2023) [Ru/Multi] (1.0.9064) Repack FitGirl [Settler Edition]
 magnet:?xt=urn:btih:F791E7B2FE33F523C07D4235F9E88F7CB8C206D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ CYGNI: All Guns Blazing (2024) [Ru/Multi] (1.01) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E0055F269A801C1C755EFF50193BBE41BC10D241
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Squirrel with a Gun (2024) [Multi] (1.0.2.14) Scene Doge
 magnet:?xt=urn:btih:E81AAD17770DA45E616DC39C3AB3EF1CF80FD9E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Bewitching Sinners бросает вас в хаотичный фантасти�
 ```bash
 magnet:?xt=urn:btih:F83BD9FF67AD54BB37702BEE4E5EB07DC6041B5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ No Return (2024) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:651630BE8AAFB5667C1E9BD2EB01DA544EF8C1B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ LightRay - это логическая игра-головоломка с вид
 ```bash
 magnet:?xt=urn:btih:055C8A0ABABCCC3985C2051159BE3E62C68CB7A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Cult of the Lamb (2022) [Ru/Multi] (1.4.4/dlc) Repack Wagner
 magnet:?xt=urn:btih:888CCDCF7874EC6F60325E111E447229CE40A7B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ NARIBIKIMURA (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D6757824FA21496FDB24F7A79A23E47442AC1387
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Sumerian Six - это не типичная военная история. Ко�
 magnet:?xt=urn:btih:1EA2BE7439A9EA96E5258269BC91E8EE61739EF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ CODE VEIN (2019) [Ru/Multi] (1.53.61787/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:EE3FFC4F4F148323F8A28DB1FD7C2C6428A36528
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Call of Sentinels (2024) [Ru/Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:11BC0D0E3B96713F2CBED69FFA92C94AAA744173
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Warhammer 40,000: Boltgun (2023) [Ru/Multi] (1.22.68871.33/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:53D5FE7778E2CF2C8B83EB8C018328B2A2AE27A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

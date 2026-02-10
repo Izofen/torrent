@@ -19,6 +19,8 @@ AMS ФотоМОНТАЖ 4.5 [Ru]
 magnet:?xt=urn:btih:EC87B71411AA02693D147F851020AE3CDB18103B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ FOTO projects 3D professional 1.12.04285 [Multi]
 ```bash
 magnet:?xt=urn:btih:DBC9D3868CD75880E31AD6609AB56923EF618F92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ FOTO projects 3D professional 1.12.04285 Portable by FC Portables [Multi]
 magnet:?xt=urn:btih:B62678BB0109AC5FF32F9104EA8699DAFA447C90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:B62678BB0109AC5FF32F9104EA8699DAFA447C90
 ```bash
 magnet:?xt=urn:btih:ED5C3AA2461B37D482D255A4A63CB94249E540CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Sahara даёт мгновенный результат и не мешает в�
 magnet:?xt=urn:btih:63F0DA0D9D25385BCDCA452A906413F790B33F84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Diamond Cut Forensics Audio Laboratory 11.08 [En]
 ```bash
 magnet:?xt=urn:btih:50B2702B69B14607A7261B1EB107FD3A4617936E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Ozone — это универсальный набор из 20 професси�
 magnet:?xt=urn:btih:A6C45FFEF894752B9A5442B88D11BA42AF3ACF49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Fast Video Cutter Joiner - программа 2-в-1 для быстрой ре�
 ```bash
 magnet:?xt=urn:btih:1E6606887B8ABADEB91ACD6C4987754B5CB66C46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Fast Video Cutter Joiner - программа 2-в-1 для быстрой ре�
 magnet:?xt=urn:btih:D5684DFED78F677D2D5A7EED50D933C9E34925AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ PhotoDiva - программа для ретуши портретных фото
 ```bash
 magnet:?xt=urn:btih:BD4BC0BF5FA1200D9EDAF79E65ECC6B74D31B377
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ FL Studio Producer Edition - это одна из лучших программ(
 magnet:?xt=urn:btih:47F3BE2C9EFCF59475D6ADF1662898616D7D3BE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Wondershare UniConverter - простой в использовании виде
 ```bash
 magnet:?xt=urn:btih:CC32594C4EADB740C877C76A0CCF9215E1063687
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Hallmark Card Studio - пакет для создания открыток. Он
 magnet:?xt=urn:btih:38EE26BA21523DAE9523171D0719DD11C15422C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Radiant Photo - это программа для редактирования ф
 ```bash
 magnet:?xt=urn:btih:857D81993A3F4171F21543B592BF2BF247FFE858
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ PhotoFiltre Studio - программа для лёгкого и быстрог�
 magnet:?xt=urn:btih:4FEA5A4DB8BCE465CBE0B78320792ADA29E9970E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ AMS ФотоМАСТЕР 21.0 Portable by 7997 [Ru]
 ```bash
 magnet:?xt=urn:btih:BD3F86979BCB4DA493CC2B3DA4D863C719A4640B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Wise ImageX 1.5.1.17 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D23CE116D08735F42111218256380C4A8951C5BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ AMS Мой Дом 3D 4.0 [Ru]
 magnet:?xt=urn:btih:C101FD5B27A789427F624548130DF81F5DFAF809
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ CorelDRAW® Technical Suite — это универсальные инструм
 ```bash
 magnet:?xt=urn:btih:4CA85B9DBCF900BBAD6F4FC70670E54F9C2D3356
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Room Arranger - программа специально предназначен
 magnet:?xt=urn:btih:1B2D7255EEFD0671BCDE0059B7EA3FD3A4FE1C7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ AMS ФотоМАСТЕР 21.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:71D3A28B4AC0EE28147BA0E9D355218DCFE0DA33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ CorelDRAW Graphics Suite 2025 26.2.0.170 RePack by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:20C8B34BFF4E79AFAA97701E5C7141BDCBCED745
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Light Image Resizer - программа для изменения размер�
 ```bash
 magnet:?xt=urn:btih:7F8A30E4C56F238F0526D40906C0EF772905F82A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ Perfectly Clear — приложение, которое позволяет вс
 magnet:?xt=urn:btih:D1CAC7E8E8BBE2CF5043D146FD1CC8F52D69B962
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ digiKam — фото-менеджер для Windows — программа дл
 magnet:?xt=urn:btih:3B639525B7C95479F1DE6E34E869776D2CC18DE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ XnView - утилита, предназначенная для просмотр�
 ```bash
 magnet:?xt=urn:btih:26546F7C1595A3AF429B45FF69A5966B25F783EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

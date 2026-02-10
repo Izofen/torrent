@@ -20,6 +20,8 @@ BBC: Век эгоизма. Часть 4 – Вся власть Хомячка�
 magnet:?xt=urn:btih:356092D8AF308F04D3F31E970C78BA97E4E1EFF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Nat Geo Wild: Созданные убивать: Лев / Built for the Kill: Li
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Nat Geo Wild: Созданные убивать: Лев / Built for the Kill: Li
 magnet:?xt=urn:btih:643C02B3F603A8F79A019F4DC2426C4FEEA2B664
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:643C02B3F603A8F79A019F4DC2426C4FEEA2B664
 ```bash
 magnet:?xt=urn:btih:FC4FADD3DE77720717E1B6F6FABF9134984120E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:FC4FADD3DE77720717E1B6F6FABF9134984120E0
 magnet:?xt=urn:btih:C3B9BA9DBB2A38FD7A6758B682861B57F8E25813
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ History Channel: Секреты языка тела / Secrets of Body Language (
 magnet:?xt=urn:btih:6828070C3FDCB9B2E168CF7064DFA4D1A35675A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:6828070C3FDCB9B2E168CF7064DFA4D1A35675A1
 magnet:?xt=urn:btih:A87301B88FFEECA0B18EFAEC7CF29B744669C307
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ BBC: Планета Земля / Planet Earth (2006) BDRip [720p]
 ```bash
 magnet:?xt=urn:btih:15A7B6999F1A75AA521FB076D5E36CF79DFF27F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:15A7B6999F1A75AA521FB076D5E36CF79DFF27F3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ NG. Затерянные в джунглях / Lost in the Jungle (2025) WEB-DL 
 ```bash
 magnet:?xt=urn:btih:7E0396BC980C8891E946D0825E09E1563F9B9426
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:7E0396BC980C8891E946D0825E09E1563F9B9426
 magnet:?xt=urn:btih:6C7270FB18ACCB7C0DED42E706ADE24CBCDE1638
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ NG. Затерянные в джунглях / Lost in the Jungle (2025) WEB-DL 
 ```bash
 magnet:?xt=urn:btih:55A299F4F78D4CF0094F4A67797022DA7FA078E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ NG. В мире дельфинов с Берти Грегори / Dolphins Up Cl
 magnet:?xt=urn:btih:6C58CBFF27032DE16251DA2BAFF75DF4EF3408C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ NG. В мире дельфинов с Берти Грегори / Dolphins Up Cl
 ```bash
 magnet:?xt=urn:btih:82682029315FF12B7EB7F05FDAF281DFF902F33F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ BBC: Горизонт. Каковы размеры Вселенной? / Horizon
 magnet:?xt=urn:btih:281FEEEB97DD35072F6AADFE379F0AEE1F450B10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ History Channel. Как создавались империи / Engineering an E
 ```bash
 magnet:?xt=urn:btih:BCBAFF38F7F8864428726DCC0F0FA97113988136
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:BCBAFF38F7F8864428726DCC0F0FA97113988136
 magnet:?xt=urn:btih:2E917190BAE2FA435031B490011A903183100C2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:2E917190BAE2FA435031B490011A903183100C2B
 ```bash
 magnet:?xt=urn:btih:E4C56D15DEEAFA869AA64E45F06BD4A6D64A90C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ NG. Поднимается буря / Storm Rising (2021) HDTV [H.264/1080i] (с
 magnet:?xt=urn:btih:0F886A6EB259FD6B4F80C760E554C66DE89F940D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ BBC: Семь периодов жизни звезды / Seven Ages of Starlight
 ```bash
 magnet:?xt=urn:btih:C2D3B0D42889F17CB1609A3A7649063AA4E42661
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ Discovery: Войны нашего столетия / The Century of Warfare (19
 magnet:?xt=urn:btih:8F1A629A46BD84DD666A36EBD8DD5903E93293E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:8F1A629A46BD84DD666A36EBD8DD5903E93293E2
 ```bash
 magnet:?xt=urn:btih:7963A73F72B34C9FD3B43EAD3FC5E6B189637D5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ magnet:?xt=urn:btih:7963A73F72B34C9FD3B43EAD3FC5E6B189637D5B
 magnet:?xt=urn:btih:CD7D59371A54996E601B406452B0CEA64EEBFE95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:CD7D59371A54996E601B406452B0CEA64EEBFE95
 ```bash
 magnet:?xt=urn:btih:DA11400155C69517836BDAFEA9C3DA2A30CA42EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +659,8 @@ magnet:?xt=urn:btih:DA11400155C69517836BDAFEA9C3DA2A30CA42EA
 magnet:?xt=urn:btih:75494E7E31F1D618A64A8ED3616D08426C4AFE52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ Discovery: Паранормальная Ирландия / Spooked: Ireland (202
 ```bash
 magnet:?xt=urn:btih:4CA1CD62C564F715FE2F81E63E9A1620D1FF4C4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

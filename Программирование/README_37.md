@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:04F82D90B7C6D5B08638B45C6AA65D3699232183
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:04F82D90B7C6D5B08638B45C6AA65D3699232183
 ```bash
 magnet:?xt=urn:btih:64EC7361742E06B40A588E3B8ACC0AB51AE5BFE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ No matter how much experience you have with JavaScript, odds are you don’t ful
 magnet:?xt=urn:btih:3E5883CFAD70E5D8E39FD75835CF1C151A4826D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ TypeScript — это язык программирования, разрабо�
 ```bash
 magnet:?xt=urn:btih:B6D4CC5BD3F79FE79F3AE675CAF59B2E6339EE1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:B6D4CC5BD3F79FE79F3AE675CAF59B2E6339EE1F
 magnet:?xt=urn:btih:C97B0ABD787488A0977B3CBB6978CBAB68F6C310
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:C97B0ABD787488A0977B3CBB6978CBAB68F6C310
 ```bash
 magnet:?xt=urn:btih:D1B9526CB8EB122922D9994AF911BD959E08B619
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:D1B9526CB8EB122922D9994AF911BD959E08B619
 magnet:?xt=urn:btih:4ED77D82EFED8AC7A5B43853CC463D5F2B4A0E48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:4ED77D82EFED8AC7A5B43853CC463D5F2B4A0E48
 magnet:?xt=urn:btih:7965052A898FB0C5431A7868B66AC0A69D5122B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:7965052A898FB0C5431A7868B66AC0A69D5122B0
 magnet:?xt=urn:btih:C8FF7BDC12144C89D6FC8D7D0D585A5A43CE0025
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:C8FF7BDC12144C89D6FC8D7D0D585A5A43CE0025
 ```bash
 magnet:?xt=urn:btih:4B4AF324FE8D47686777EF5222BEA0E4EFF9B9E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:4B4AF324FE8D47686777EF5222BEA0E4EFF9B9E3
 magnet:?xt=urn:btih:83E6C23803EC62A2EC858B7D4789A2131958E596
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Carmine Noviello | Mastering STM32 (2017) [PDF]
 ```bash
 magnet:?xt=urn:btih:DDBB49855E5E0ECB5C024661EC26C37016FD7575
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:DDBB49855E5E0ECB5C024661EC26C37016FD7575
 magnet:?xt=urn:btih:B71A578B7C7F48D4EAA0089AAB4E0662875D45BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:B71A578B7C7F48D4EAA0089AAB4E0662875D45BB
 ```bash
 magnet:?xt=urn:btih:00364F73359307D80E7EDC692D81786CD1FBCD08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:00364F73359307D80E7EDC692D81786CD1FBCD08
 magnet:?xt=urn:btih:95D19DA37B0DD87887F9B421E0A1EF3E3C7C60DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:95D19DA37B0DD87887F9B421E0A1EF3E3C7C60DC
 ```bash
 magnet:?xt=urn:btih:60D54B0C1993BE9E75825DD60D36A449A1AF70B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:60D54B0C1993BE9E75825DD60D36A449A1AF70B9
 magnet:?xt=urn:btih:D8515B30D923741CADE91D29CEB5D89F57062B63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:D8515B30D923741CADE91D29CEB5D89F57062B63
 magnet:?xt=urn:btih:C66ECEBD4772B5ECD41D90DE861D2F3F876B2B32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Carmine Noviello | Mastering STM32 (release 0.26) (2018) [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:1A0C52E81EEA071E8BAC69E15B6D15E5F0293F0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:1A0C52E81EEA071E8BAC69E15B6D15E5F0293F0D
 magnet:?xt=urn:btih:52DD51CAFA103F93847CB8E36C5F86BB4F67061E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:52DD51CAFA103F93847CB8E36C5F86BB4F67061E
 ```bash
 magnet:?xt=urn:btih:B6E6D31FF42652A28362EB54A619C6513EAD8778
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:B6E6D31FF42652A28362EB54A619C6513EAD8778
 magnet:?xt=urn:btih:76496E8802C373601A4B631D569E86DC9DABCD33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Anywhere Software | B4A Users Guide (2016) [PDF] [En]
 magnet:?xt=urn:btih:281D8C49EB288B516939A186493B973E631D72F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:281D8C49EB288B516939A186493B973E631D72F9
 ```bash
 magnet:?xt=urn:btih:83740D7355F8273EB81D3899817151B166B94571
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:83740D7355F8273EB81D3899817151B166B94571
 magnet:?xt=urn:btih:08D18C6D6EF6AAB38C6CF36D251EA1E878E2FB6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:08D18C6D6EF6AAB38C6CF36D251EA1E878E2FB6E
 ```bash
 magnet:?xt=urn:btih:B9F1154E190AA0E16F6FF62B708B80563293AC76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

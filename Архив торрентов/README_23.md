@@ -20,6 +20,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ BBC. Становление континентов / Rise of the Continents (201
 ```bash
 magnet:?xt=urn:btih:2DEBA26653C1EB5F72754D346995970B3047AAAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ XMedia Recode - отличная утилита, цель которой - по�
 magnet:?xt=urn:btih:34D4880A1BD93B1372ABBBA5234C24D8B4F5D5D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 magnet:?xt=urn:btih:A707D6EC83936C55CEB19A4AF59982A949E1A9F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ PictureThis - Plant Identification v5.9.0 Mod by youarefinished [Ru/Multi]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Camtasia захватывает действия и звуки в любой ч�
 magnet:?xt=urn:btih:7C601FC34EE94BB5AEC858AE0C5B6C6BF27A8010
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 ```bash
 magnet:?xt=urn:btih:F21854552D9F46FED68E08BB081A53463AA596C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Wondershare UniConverter - простой в использовании виде
 magnet:?xt=urn:btih:E409963C99E1EA9400536B829F4B35508C460CE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ EZ CD Audio Converter - утилита для преобразования ау�
 ```bash
 magnet:?xt=urn:btih:A3C33B817582D90B7B9098FB84B55359FAF75ADA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:A3C33B817582D90B7B9098FB84B55359FAF75ADA
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:A3C33B817582D90B7B9098FB84B55359FAF75ADA
 magnet:?xt=urn:btih:09FB268C0BCB23C93B5C35229E0819E531A7AD6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ Adobe Photoshop — это приложение для редактирован�
 ```bash
 magnet:?xt=urn:btih:4D94CB060EA25EBDEDA4F470C52938CE680713BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ XRecode 3 - популярный и мощный аудиоконвертер, �
 magnet:?xt=urn:btih:C665B47009FBC8F5E8C724614AAD0EA7C2470767
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:A0C9F747BC0EAE0EDE4DC6C2E6B3540D5B3B3BCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ Shotcut - мощное кроссплатформенное приложение
 magnet:?xt=urn:btih:C0D18A3CBDF5BA8EA57E8E8DE29073B59465C9A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:C0D18A3CBDF5BA8EA57E8E8DE29073B59465C9A7
 ```bash
 magnet:?xt=urn:btih:DBAFAD4D7FE8417CA5777A98CF48BBB519621CB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ Virginya Keehne
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +480,8 @@ Flyoobe (Ранее назывался Flyby11) — это простой пат
 magnet:?xt=urn:btih:E7D5F76F5465B290D0A873A681F4DC2EBFB6BB70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:E7D5F76F5465B290D0A873A681F4DC2EBFB6BB70
 ```bash
 magnet:?xt=urn:btih:7820F231970B21267C18C8EC2827D3C27B2254D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:11A4608A230062F85A05F9A0F6343E1B9DF44E5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ MediaHuman YouTube Downloader 3.9.15 (2607) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:BC145ADC3512C945DD46442B25FE648C3934F868
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +584,8 @@ StartAllBack - привычная для нас программа, котора
 magnet:?xt=urn:btih:7E940820DF8A4777F3AF38142CD0FE4242C9FE22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +610,8 @@ OOBE расшифровывается как «Out-Of-Box Experience» — (   
 ```bash
 magnet:?xt=urn:btih:7A13C94008E1BE6E773DCC3525B426C9A262E37E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +641,8 @@ magnet:?xt=urn:btih:7A13C94008E1BE6E773DCC3525B426C9A262E37E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +669,8 @@ magnet:?xt=urn:btih:7A13C94008E1BE6E773DCC3525B426C9A262E37E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ magnet:?xt=urn:btih:7A13C94008E1BE6E773DCC3525B426C9A262E37E
 ```bash
 magnet:?xt=urn:btih:0EC0F85E8F989D7DB3E71A0AB10BCA4761DC43A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

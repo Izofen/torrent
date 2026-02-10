@@ -20,6 +20,8 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (20
 magnet:?xt=urn:btih:A750BFDF1C4BCF3971B81AA75967892F13124886
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:A750BFDF1C4BCF3971B81AA75967892F13124886
 ```bash
 magnet:?xt=urn:btih:1F879BD87C8681680A3CC176604682E4527CB4E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:1F879BD87C8681680A3CC176604682E4527CB4E1
 magnet:?xt=urn:btih:C2B94A4DB6B83D6BA6F724F725549F1A2371E2A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:C2B94A4DB6B83D6BA6F724F725549F1A2371E2A8
 ```bash
 magnet:?xt=urn:btih:11806A44A6C3BB3817DD286C2A99377F23D0D74B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:11806A44A6C3BB3817DD286C2A99377F23D0D74B
 magnet:?xt=urn:btih:F4C13AB0783F200A6900F5F039E777A28815BA18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:F4C13AB0783F200A6900F5F039E777A28815BA18
 ```bash
 magnet:?xt=urn:btih:71152BC8EF3010163090B0CA9128F9E4C1E62E33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Driver Talent Pro - программа для поиска и установки
 magnet:?xt=urn:btih:7FBBDD91F71ED5C0D5E9FB79399A0B134C1AE815
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:7FBBDD91F71ED5C0D5E9FB79399A0B134C1AE815
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:7FBBDD91F71ED5C0D5E9FB79399A0B134C1AE815
 magnet:?xt=urn:btih:EBE9BF4EEA1D3216147EE12832B8F61AEB4A463C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:EBE9BF4EEA1D3216147EE12832B8F61AEB4A463C
 magnet:?xt=urn:btih:4DCD3E40D96039A0A446CB66812DE9911A68DA1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:4DCD3E40D96039A0A446CB66812DE9911A68DA1A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ magnet:?xt=urn:btih:4DCD3E40D96039A0A446CB66812DE9911A68DA1A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ magnet:?xt=urn:btih:4DCD3E40D96039A0A446CB66812DE9911A68DA1A
 magnet:?xt=urn:btih:2372A9692F44C0DCE54E7CC8EF39C01DF5CD482A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ Burda — издание с мировым именем, хорошо извес
 ```bash
 magnet:?xt=urn:btih:18AA5562DE5EAC7DAA04C69905BCFA93ED6CBBFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +411,8 @@ Tanmayo - Dust At Your Feet (2009) [MP3|320 kbps]<New Age>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +440,8 @@ Serj Tankian - Imperfect Harmonies (2010) [FLAC|Lossless]<Avantgarde, Alternativ
 magnet:?xt=urn:btih:9F087F1EFAEBCAD319296695686D699FC59BE58D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +465,8 @@ MAGIX Movie Edit Pro - представитель нового поколени�
 ```bash
 magnet:?xt=urn:btih:3D3DED98AB311182D9EE640CA5D88D013B4CB09C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +493,8 @@ magnet:?xt=urn:btih:3D3DED98AB311182D9EE640CA5D88D013B4CB09C
 magnet:?xt=urn:btih:A0400CD970AE7BFD018DD4441279FE6414413E04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +518,8 @@ magnet:?xt=urn:btih:A0400CD970AE7BFD018DD4441279FE6414413E04
 ```bash
 magnet:?xt=urn:btih:D846A81E1FE2A5397D3FF8DA9528E2BCE80BA03D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +545,8 @@ magnet:?xt=urn:btih:D846A81E1FE2A5397D3FF8DA9528E2BCE80BA03D
 magnet:?xt=urn:btih:F7D8F6C4046D4BB807B67A8968C19261F3B7A894
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +570,8 @@ Auslogics Driver Updater – программа представляющая с�
 ```bash
 magnet:?xt=urn:btih:0D775E07AAB038BE4B0CE1DF86985DDBDAA54526
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +597,8 @@ magnet:?xt=urn:btih:0D775E07AAB038BE4B0CE1DF86985DDBDAA54526
 magnet:?xt=urn:btih:EF76E6FEF1473FDA471F50B3EB668A6B28A2803A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +622,8 @@ magnet:?xt=urn:btih:EF76E6FEF1473FDA471F50B3EB668A6B28A2803A
 ```bash
 magnet:?xt=urn:btih:ABBAD106CBEF80E0D2F1396C1D8BEE3995C48F89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +649,8 @@ Wakaokami wa Shougakusei! | Хозяйка гостиницы из младше�
 magnet:?xt=urn:btih:F041A15663886507ED55DE875D8EF9246E41F3FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ magnet:?xt=urn:btih:F041A15663886507ED55DE875D8EF9246E41F3FA
 magnet:?xt=urn:btih:F7835D439750D5B94CFC1F3314F02BDDF1C6BDDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ magnet:?xt=urn:btih:F7835D439750D5B94CFC1F3314F02BDDF1C6BDDB
 ```bash
 magnet:?xt=urn:btih:82D77E9B205ED236CE6325B87899FD18ED095F32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

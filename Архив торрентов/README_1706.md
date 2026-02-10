@@ -20,6 +20,8 @@ Maxthon Browser — многофункциональный браузер со �
 magnet:?xt=urn:btih:562E24303C111FA95B5B1D3B69B52B7B2BECA2EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Bulk Image Downloader (BID) - это программа для загрузки 
 ```bash
 magnet:?xt=urn:btih:2B40257195E4DB5733BC37F193B0D0696BFAF959
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Pro Microphone: Audio Recorder 1.4.13 [Multi]
 magnet:?xt=urn:btih:F39B3B689616A881B724169DDF29364CB0E8151A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ PDFCreator –  бесплатная программа для конверти�
 ```bash
 magnet:?xt=urn:btih:F44DD4218A13B5A68D579D6D6CC2093CF92CC08E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ FX Player Pro - универсальный медиаплеер который �
 magnet:?xt=urn:btih:593E3632B6D9CBD91FE3530CEB9E55ED225232E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Revo Uninstaller Pro 5.1.4 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:12AF0C1503993BFC11C5867DE8123F7087629263
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Aiseesoft Mac (   Читать дальше...   )Тип издания: macOS 
 ```bash
 magnet:?xt=urn:btih:48AB5E8427EFD19E7832F56E70CF768A39B8EDDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Folders Factory — сделай уникальными свои папочки 
 magnet:?xt=urn:btih:13940A0F70A5EEDD59A484F6DDF3D6E99E47EBAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Cisdem Video Converter является решением все в одном д
 ```bash
 magnet:?xt=urn:btih:F064207ABC4B238036A263BDDC1B05152113AC9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ doPDF — программа для преобразования докумен�
 magnet:?xt=urn:btih:FA193FBE9C1E617035101DDBED59626451FE38B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ Pale Moon - веб-браузер, созданный на базе популя
 magnet:?xt=urn:btih:681CEDA8F00A1B8ED777E6B4369FDC978B812942
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ AnyMP4 Data Recovery - профессиональное и безопасное 
 ```bash
 magnet:?xt=urn:btih:772BC9FA7E0367718B5935CDB158A3735693551F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ Opera GX - это специальная версия браузера Opera, с
 magnet:?xt=urn:btih:1B258DB4EC84F78425897CE08600EE027E1694A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ WinTools.net – набор инструментов для оптимизаци
 ```bash
 magnet:?xt=urn:btih:811C36DA863C9A7A49F56DEDD4B58C93B0D7EC67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ Typora дает вам безупречный опыт как читателя, 
 magnet:?xt=urn:btih:E660C69CB6AA9E85251A2E1F454C878C33347CF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:FC969586F94575E4F6D05D4C762316C95795EF17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ Windows Update Viewer 0.5.14.0 + Portable [En]
 magnet:?xt=urn:btih:4DBF9603C9565263976A1E46E9D6FE1243D3B1F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ Opera One 100.0.4815.30 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:8E2621E31705AFF4C892472F4BCF612132F7C0F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ AOMEI Backupper Pro (Professional) – комплексная, простая и
 magnet:?xt=urn:btih:F5DC8C64DA1B2881432ED2D318D9FCE0C718ED75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ Wise Care 365 – программный пакет, предназначенн�
 magnet:?xt=urn:btih:E0265F3EE57B8286852D13EC55E2963F8BC2FBE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:5E3798744B7781FD48715AD8D2732D8BDEB3B718
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ A Better Finder Rename является лучшим решением для а�
 magnet:?xt=urn:btih:F3D2CAF25C0AAB8A3D6F7E2F2B9968C9891232F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ File List Export (бывший File list to Excel) - простое в испо�
 ```bash
 magnet:?xt=urn:btih:F2D47F7AC59C4AC10E3598E65102D0EE5A43A667
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ GeoGebra — мультиплатформенная программное об�
 magnet:?xt=urn:btih:566C08273D1DE73D0E5C25E8B3F82FA41934DA76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ FinalShot 2.1 [En]
 ```bash
 magnet:?xt=urn:btih:741096F1CFE425E2C596B67AD0DE25BAA6606017
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +679,8 @@ Integrity - приложение в помощь Web-мастерам и пре�
 ```bash
 magnet:?xt=urn:btih:088B8E342941B12DCCF085AEAC902F0C16FBD81F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

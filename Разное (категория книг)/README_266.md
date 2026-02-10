@@ -1,3 +1,29 @@
+###  Публикация: 1254555   (372414) от 14.10.2018
+
+Сергей Малозёмов | Еда живая и мертвая. Продукты для стройности, здоровья и долголетия. Коллекция из трех бестселлеров (2018) [FB2]
+
+>>Разное (категория книг)
+>>Нетрадиционная медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372414.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник книг Сергея Малозёмова – это настоящая энциклопедия по питанию для всей семьи. Вы узнаете всё о принципах здорового питания, получите полезную информацию о продуктах, которые составляют наш ежедневный рацион. Автор расскажет о продуктах, помогающих продлить молодость организма и не прибавить в весе.Жанр: Здоровое и правильное питание, Научно-популярная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:825AE7D52C84E7FD9DA5761116EC6B8D8B038863
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176187   (372443) от 21.10.2017
 
 А. А. Беляев | Вся чернильная рать... Что и как пишут о нашей стране советологи США и Англии (1983) [DJVU]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:BB645B561907D307A2DA99E5F678331A2944356F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:BB645B561907D307A2DA99E5F678331A2944356F
 ```bash
 magnet:?xt=urn:btih:9B5524C44F7DAA964A392331D7CF436A72DA4295
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +103,8 @@ magnet:?xt=urn:btih:9B5524C44F7DAA964A392331D7CF436A72DA4295
 magnet:?xt=urn:btih:897D907FC3A65A6721143CFAA1E73C7D0E3895C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +128,8 @@ magnet:?xt=urn:btih:897D907FC3A65A6721143CFAA1E73C7D0E3895C6
 ```bash
 magnet:?xt=urn:btih:BDC7E85BBF61087E693CC9CD084E8C693E8D754D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +155,8 @@ magnet:?xt=urn:btih:BDC7E85BBF61087E693CC9CD084E8C693E8D754D
 magnet:?xt=urn:btih:B3DB17C1279B8296D2F0AA3BF92DA72527C5D1F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:B3DB17C1279B8296D2F0AA3BF92DA72527C5D1F9
 ```bash
 magnet:?xt=urn:btih:F2642FC8C6AEB54C8992B511E5DA7DA84F2807D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +209,8 @@ magnet:?xt=urn:btih:F2642FC8C6AEB54C8992B511E5DA7DA84F2807D8
 magnet:?xt=urn:btih:3AAC6AB98A029EFA76047CA53C55C376203D35F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +235,8 @@ magnet:?xt=urn:btih:3AAC6AB98A029EFA76047CA53C55C376203D35F3
 ```bash
 magnet:?xt=urn:btih:1A50A87384955CF2DE226B2982D8E818A25F6FD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +264,8 @@ magnet:?xt=urn:btih:1A50A87384955CF2DE226B2982D8E818A25F6FD4
 magnet:?xt=urn:btih:3BD44316C048FDA6FF5AEADEE9B5EADA7A429749
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +289,8 @@ magnet:?xt=urn:btih:3BD44316C048FDA6FF5AEADEE9B5EADA7A429749
 ```bash
 magnet:?xt=urn:btih:25FB27BC409EAA3EB9E92BA77CD510CB8D5930FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +316,8 @@ magnet:?xt=urn:btih:25FB27BC409EAA3EB9E92BA77CD510CB8D5930FC
 magnet:?xt=urn:btih:8FA1C23775BC312CD6148421BB2DCAB448429B50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +342,8 @@ magnet:?xt=urn:btih:8FA1C23775BC312CD6148421BB2DCAB448429B50
 magnet:?xt=urn:btih:1D62A190EDF620CF516779969DBCC16D8FBE78AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +367,8 @@ magnet:?xt=urn:btih:1D62A190EDF620CF516779969DBCC16D8FBE78AA
 ```bash
 magnet:?xt=urn:btih:863DBF4C6E6508DD239D60760A52D09DE4AB3DAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +395,8 @@ magnet:?xt=urn:btih:863DBF4C6E6508DD239D60760A52D09DE4AB3DAE
 magnet:?xt=urn:btih:48093CEEB9F5C398E16AF93E4A5F43C58C9A9F61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +421,8 @@ magnet:?xt=urn:btih:48093CEEB9F5C398E16AF93E4A5F43C58C9A9F61
 magnet:?xt=urn:btih:F532CDA6E98109F5792F42CCA9BC54A0F9B2CA62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +446,8 @@ magnet:?xt=urn:btih:F532CDA6E98109F5792F42CCA9BC54A0F9B2CA62
 ```bash
 magnet:?xt=urn:btih:5A832B44F144F8F71B9161F918A8F0928E8C4D74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +475,8 @@ magnet:?xt=urn:btih:5A832B44F144F8F71B9161F918A8F0928E8C4D74
 magnet:?xt=urn:btih:8407AAFF4E364A514C8707A5A88D89C8B698B039
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +500,8 @@ magnet:?xt=urn:btih:8407AAFF4E364A514C8707A5A88D89C8B698B039
 ```bash
 magnet:?xt=urn:btih:75EAC87FF38FE040018465BDB984A2C42A864979
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +531,8 @@ magnet:?xt=urn:btih:75EAC87FF38FE040018465BDB984A2C42A864979
 magnet:?xt=urn:btih:B0C0F18B0BEE03130FD391B9C28BB351CE8B8104
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +556,8 @@ magnet:?xt=urn:btih:B0C0F18B0BEE03130FD391B9C28BB351CE8B8104
 ```bash
 magnet:?xt=urn:btih:529EC3FFF5841D79DF25BB9DCC9DCBFC2D5D0C10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +583,8 @@ magnet:?xt=urn:btih:529EC3FFF5841D79DF25BB9DCC9DCBFC2D5D0C10
 magnet:?xt=urn:btih:D2993E48DDE84C4B923DED1D2F8ED78CC8FB9721
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +609,8 @@ magnet:?xt=urn:btih:D2993E48DDE84C4B923DED1D2F8ED78CC8FB9721
 magnet:?xt=urn:btih:FD3A8445062DF5DB8C51F0D59CF607306C8528EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +634,8 @@ magnet:?xt=urn:btih:FD3A8445062DF5DB8C51F0D59CF607306C8528EC
 ```bash
 magnet:?xt=urn:btih:5C6B454D74F9078786B2503E950DFE5B241F2C32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +663,8 @@ magnet:?xt=urn:btih:5C6B454D74F9078786B2503E950DFE5B241F2C32
 magnet:?xt=urn:btih:428FCFC9330FAFBC9276D0D29F410679EE043E51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,30 +689,7 @@ magnet:?xt=urn:btih:428FCFC9330FAFBC9276D0D29F410679EE043E51
 magnet:?xt=urn:btih:92805F50782F80B2964838CAF770FBAF64E695E0
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574143   (375653) от 12.11.2012
-
-Black & Decker | Домашний мастер. Фотогид [2008] [PDF] [En]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Руководство для домашнего мастера в картинках (более 2000). Книга выпущена совместно с известной фирмой по производству инструмента "Black & Decker". Иностранный язык смущать вас не должен, поскольку все подробно иллюстрировано.
-Основные главы: внутренние работы (полы, стены); окна и двери; внешние работы (крыша, стены); сантехника и электрика; отопление и вентиляция.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5924FF745D3BABA6C342870F0F2B592E222F8F1E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

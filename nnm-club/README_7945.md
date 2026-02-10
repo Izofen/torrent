@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:0DCAE6B7355AE17B45CBFF6E0AD9A9404F127F43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Total Commander 10.00 (26.04.2022) Portable by MiG [Ru/En]
 ```bash
 magnet:?xt=urn:btih:4F8DA712C4D8CC7DC50EC6B4D7EB5099ED2CC412
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ VA - Beatport Funky House: Sound Pack #296 (2021) [MP3|320 Kbps] <Funky, Disco H
 magnet:?xt=urn:btih:27AF5FA3B312C3FA6F97610F9CB5096DE422226F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:27AF5FA3B312C3FA6F97610F9CB5096DE422226F
 magnet:?xt=urn:btih:B18409AADF6B694BB74BCA47239F7EB3AEC49982
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:B18409AADF6B694BB74BCA47239F7EB3AEC49982
 ```bash
 magnet:?xt=urn:btih:5ABC49B7B0996523EAC455FB402F4EA940A9DFB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ ProPresenter — это удобный многоцелевой инструме
 magnet:?xt=urn:btih:0F47FBFCC2135FA935632AA3077A0C91F170595B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ GoodNotes 5.6.32 [Multi/Ru]
 magnet:?xt=urn:btih:C915E4D13F6401C595DC52FF705FA1647E1F322A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:C915E4D13F6401C595DC52FF705FA1647E1F322A
 ```bash
 magnet:?xt=urn:btih:9F84A16D9840344707B09E0CD0EE56B353785399
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:9F84A16D9840344707B09E0CD0EE56B353785399
 magnet:?xt=urn:btih:931FF9893467C89F8B2CBB7952CDB95A11538E27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:931FF9893467C89F8B2CBB7952CDB95A11538E27
 ```bash
 magnet:?xt=urn:btih:D0133B327F19E9AB604DB1F5EE7A111288A70CC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ Grisly - Tomb King (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 magnet:?xt=urn:btih:B365735CB88594483AFD0EE5B9DBEDA67F30C459
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ CD1 - Act 1:
 ```bash
 magnet:?xt=urn:btih:BED48573D2B1AF9896866E0F250844A37910A259
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ Cowboy Junkies - Such Ferocious Beauty (2023) [FLAC 24/44.1|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:17EEA00BC635BB53885795D3DF0EA3FE0373F7D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ Mandator - Perfect Progeny / Strangled (2017) [FLAC|Lossless|image + .cue] <Thra
 magnet:?xt=urn:btih:0A4AE31A7EC1ACDD9BD2D5CB63A16D288FEF5128
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ GraphicConverter 11 — полнофункциональный графичес�
 magnet:?xt=urn:btih:EBB40660827FC4049941E89117A38016D2B6C0E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:EBB40660827FC4049941E89117A38016D2B6C0E5
 ```bash
 magnet:?xt=urn:btih:BBA111910CC3B33CFB6E816A1D94D4F24A589268
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ VA - Beatport Electro House: Sound Pack #295 (2021) [MP3|320 Kbps] <Club, Dance,
 magnet:?xt=urn:btih:D75EC0C36CE686BBD4B149248D015729E92629EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ magnet:?xt=urn:btih:D75EC0C36CE686BBD4B149248D015729E92629EE
 ```bash
 magnet:?xt=urn:btih:1875ED296D3B11631A5CFA5F2188CC46B664DD0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +513,8 @@ Fishbone - Fishbone (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Reggae>
 magnet:?xt=urn:btih:377807057B1E5E3B09C4CFFB907E7458C84EB9CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +542,8 @@ Bloodsugar - Join The Lines (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:4B9382519C19335E4EADDEBDEB5BA7849948A4DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +567,8 @@ magnet:?xt=urn:btih:4B9382519C19335E4EADDEBDEB5BA7849948A4DE
 ```bash
 magnet:?xt=urn:btih:4A0BF6E5A77EC4F1BA57E36A037183EF1CB5E0E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +597,8 @@ Sunken State - Solace in Solitude (2021) [FLAC|Lossless|WEB-DL|tracks] <Groove M
 magnet:?xt=urn:btih:51DD4E3DAF9E2777F0861D7576CEFFCE6A002368
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +626,8 @@ Synn Unsworth - Phobetor (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove, Death Met
 magnet:?xt=urn:btih:4F910852E3CBC77A21B0235011F2AAE191DC5286
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +652,8 @@ magnet:?xt=urn:btih:4F910852E3CBC77A21B0235011F2AAE191DC5286
 ```bash
 magnet:?xt=urn:btih:E1538BBA2AC4D56C0DC185957DD994038D5BB171
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +682,8 @@ Lil Durk - Almost Healed (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, 
 magnet:?xt=urn:btih:F2F169C22EEBECDE25E47A9E9E2900C31C23975B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +707,8 @@ RTG. Путешествие к горе Фишт (2013) HDTV [H.264/1080i]
 ```bash
 magnet:?xt=urn:btih:98CD3E0557ECA5A225F7FE4DB0A3A3252F95A541
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

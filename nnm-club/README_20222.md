@@ -1,650 +1,740 @@
-###  Публикация: 1208883   (779680) от 24.02.2018
+###  Публикация: 1209740   (779135) от 28.02.2018
 
-VA - Hidden Places Chillout And Ambient 7 (2018) [MP3|320 Kbps] <Downtempo, Lounge, Chill Out>
+Molecule (Molécule) Collection 4 Releases (2016-2018) Because Music [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Techno, Electro, Experimental, Field Recording>
 
 >>Electronic
->>Easy listening
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779680.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779135.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Florito  -  Konja Tokyo De (feat. Anna Y.)  5:33
-02.  L'Art Mystique  -  Underwater Twilight  4:27
-03.  Maksim Biserov  -  Rumination  6:28
-04.  Madhukar  -  When Love Rules  5:04(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 03:06:22
+01. Aria (05:08)
+ 02. Elements (04:19)
+ 03. Sila (04:05)
+ 04. 5951Hz (05:26)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient/Techno/Electro/Experimental/Field RecordingПродолжительность: 01:05:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1067442C442051109C7BC591FA6B455C82F7883
+magnet:?xt=urn:btih:FDC7493AD6D5BA65930F85381E36AF5D720EC9F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208943   (779681) от 24.02.2018
+###  Публикация: 1209714   (779136) от 28.02.2018
 
-John Dummer's Oobleedooblee Band - Oobleedooblee Jubilee (1973) Reissue, 2005 [MP3|320 Kbps] <Rock, Blues Rock>
+Журнал | Salon-interior №3 (235) (март 2018) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторитетный российский журнал по архитектуре и дизайну представляет на своих страницах все новое, уникальное, эксклюзивное, что создается в стране и мире, помогая читателям всегда быть в курсе современных тенденций архитектуры и дизайна. События, мировые выставки, обзоры аксессуаров, исторические здания, интервью с мировыми звездами, ландшафтные и флористические (   Читать дальше...   )Жанр: Архитектура, дизайн, строительствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7467BE84CA48390D3734AD076CDEC65F2A1DC1DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209656   (779137) от 28.02.2018
+
+Camp Cope - How to Socialise & Make Friends (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Rock, Indie Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Opener (03:40)
+02. How to Socialise & Make Friends (03:14)
+03. The Face of God (03:50)
+04. Anna (05:52)(   Читать дальше...   )Жанр: Alternative, Rock, Indie RockПродолжительность: 00:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F65CF405A55D52B7834489AEDE86F7B6F407CB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209694   (779138) от 28.02.2018
+
+Flunk - Morning Star (2004) [FLAC|Lossless|tracks + .cue] <Downtempo, Synth-pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning Star (03:52)
+02. On My Balcony (03:11)
+03. Spring To Kingdom Come (05:01)
+04. Six Seven Times (04:39)(   Читать дальше...   )Жанр: Downtempo, Synth-popПродолжительность: 00:35:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DB52D5E84007984AD67EF40BB0C91F7FA7CFE66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209639   (779139) от 28.02.2018
+
+The Bad Flowers - Starting Gun (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779681.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779139.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Passing Through
-2. Hello L.A., Bye Bye Birmingham
-3. Oobleedooblee Jubilee
-4. I've Been Scorned(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:39:50
+01. Thunder Child (03:57)
+02. Lions Blood (03:47)
+03. Secrets (03:44)
+04. Rich Man (03:16)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B2357E58656CE1E69F019DE0477DEA425A7A06C8
+magnet:?xt=urn:btih:7A7ADB84445B9A84D10A955ADB35E2332E2C0464
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208927   (779682) от 24.02.2018
+###  Публикация: 1209719   (779140) от 28.02.2018
 
-VA - Swing Trumpet Kings: Harry Edison, Buck Clayton, Red Allen, Roy Eldridge (1956, 1958, 1960) 2CD, 1996, Verve [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz, New Orleans Jazz>
+Smolik - Smolik3 (2006) [FLAC|Lossless|tracks + .cue] <Downtempo, Nu-Jazz, Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. S.Dreams (07:26)
+02. Cmyk (04:45)
+03. Cye (03:26)
+04. 50 Trees (04:10)(   Читать дальше...   )Жанр: Downtempo, Nu-Jazz, ChilloutПродолжительность: 00:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3BD9858ED6B31B85875105937A2F3CD84113FE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209819   (779141) от 28.02.2018
+
+Cary Brothers - Who You Are (2007) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jealousy (4:52)
+02. Ride (3:41)
+03. Who You Are (3:41)
+04. The Glass Parade (4:50)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58B57B5A34CCC76279F6E13B4FEEE6D6EA105E08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209582   (779142) от 28.02.2018
+
+Ball Park Music - Good Mood (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779142.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The End Times (04:07)
+2. I Am A Dog (03:36)
+3. Frank (03:49)
+4. The Perfect Life Does Not Exist (03:22)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0FF1D303812463549C6117A98990C291FE938C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209676   (779143) от 28.02.2018
+
+Frantic Amber - Burning Insight (2015) Reissued, 2017 [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Burning Insight
+03. Bleeding Sanity
+04. Soar(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93273802989F67CAA6E95F916EE694C97D364151
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209763   (779144) от 28.02.2018
+
+VA - Vocal Endless Story (2018) [MP3|320 Kbps] <Energy, Blissful, Uplifting>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Bukovski & Andy Elliass & Arczi With Aneym - All I Can Do (Extended Mix) 6:34
+02. Andy Moor & Michele C - We Can Be Free (Evan Pearce Remix) 6:33
+03. Rene Ablaze Ft. Crystal Blakk - Torn Into Pieces (Extended Mix) 7:11
+04. Sarah Lynn - Put You Together Again (Extended Mix) 7:28(   Читать дальше...   )Жанр: Energy, Blissful, UpliftingПродолжительность: 01:45:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7D440E783B59C3F11E9818248B75880C6A4F652
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209701   (779145) от 28.02.2018
+
+VA - Winter Deep House (2018) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779145.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 7even (GR) - Make It Hot (Original Mix)
+002. The Models - Twist & Bounce
+003. Jaques Le Noir - Now It's Time (Original Mix)
+004. Beach Coffee Ensemble - Bsospicius Area(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D29F35AE37201735FF339649FB03D75B24836FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209670   (779146) от 28.02.2018
+
+Amanda Ginsburg - Jag har funderat pa en sak (2018) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779682.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779146.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1 - Harry Edison, Buck Clayton, Red Allen:
-01. Memories for the Count [08:53]
-02. Come With Me [05:54]
-03. Critics' Delight [06:51](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, New Orleans JazzПродолжительность: 02:35:18
+01. I de manga valens land (4:09)
+02. Vem ar du? (4:20)
+03. En romantisk komedi (2:07)
+04. Flykten fran vardagen (feat. Nils Landgren) (4:25)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:71B6507B9EDB328447A2AF37A0054C2633E96A95
+magnet:?xt=urn:btih:552814170AD452FC25A6BBEE37B7A773EA9D65A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208138   (779683) от 24.02.2018
+###  Публикация: 1209849   (779147) от 28.02.2018
 
-Л.А. Леонтьев | Ленинская теория империализма (1969) [DJVU, PDF]
+VA - Yoga Love - The Full Moon Sessions 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Ambient>
 
->>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779683.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779147.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ленинская теория империализма составляет одно из центральных достижений ленинского этапа в развитии марксизма в целом, марксистской экономической науки в частности. Эта теория дает ключ к пониманию глубины противоречий капитализма на последней его стадии и раскрывает содержание тех коварных приемов, с помощью которых господствующий класс стремится сохранить и продлить (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU, PDF
+01.  Arrival  11:20
+02.  Polyshake Bells  13:13
+03.  Interludium  02:54
+04.  Good Mooning  29:22(   Читать дальше...   )Жанр: Downtempo, AmbientПродолжительность: 03:53:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A4C0825230B987D067C1E840997B8A4AD1E9551A
+magnet:?xt=urn:btih:43DACBB21C71435799AB69AE5DCDA848288AED39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209058   (779684) от 24.02.2018
+###  Публикация: 1209635   (779148) от 28.02.2018
 
-VA - The Official UK Top 40 Singles Chart 23.02.2018 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drake – God’s Plan 3:19
-02. Rudimental – These Days (Feat. Jess Glynne, Macklemore & Dan Caplen) 3:31
-03. Dua Lipa – Idgaf 3:38
-04. Portugal. The Man – Feel It Still 2:43(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:220FF452A8450D219384E9E9D0D9669DE6EFD535
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208860   (779685) от 24.02.2018
-
-VA - Double Environment: Progressive House Garden Music (2018) [MP3|320 Kbps] <Progressive, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779685.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Marsh - Face To Face (Airdraw Intro Remix)
-002. Sunlight Project - Tierra Del Fuego (Original Mix)
-003. Zoo Brazil - From A Distance (feat. Wolf & Moon)
-004. Freedome - I Feel You (ReWorked Radio Edit)(   Читать дальше...   )Жанр: Progressive, Tech HouseПродолжительность: 10:34:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:616CFEE8E91C158F8D8126B37063815852A1EDF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208147   (779686) от 24.02.2018
-
-С.А. Малахов | Против троцкизма и меньшевизма в литературоведении (1932) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779686.jpg" />
-</div>
-
-
-###  Подробнее
-
-В период развернутого социалистического наступления пролетариата и обостренной классовой борьбы выступления тов. Сталина помогли партии своевременно организовать отпор враждебной пролетариату идеологии и гнилому либерализму по отношению к ней. Так на основе выступления тов. Сталина на конференции аграрников-марксистов, на основе ленинского принципа, увязывания теории (   Читать дальше...   )Жанр: История, политология, искусство, литературоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5410F0F1ED4AB444E651FFA634B17F7EFCAB0FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208799   (779687) от 24.02.2018
-
-Николай Елин | Санька-рекордсмен (1976) [FB2]
+Н.В. Тулупов, П.М. Шестаков (ред.) | Пасхальный сборник (1913) [JPG]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779687.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779148.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Веселые и немножко грустные истории из жизни Сани Кручинина, мечтателя и фантазера.Жанр: Детская прозаФормат: FB2
+Повести и рассказы русских писателей.Жанр: Детская прозаФормат: JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F334E8E23CC7F521CBE8D1BA9CB013B8E15728BC
+magnet:?xt=urn:btih:2DDC1B5707AFA634AE613434ECBE39DDA480D403
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208817   (779688) от 24.02.2018
+###  Публикация: 1209756   (779149) от 28.02.2018
 
-VA - The Sounds Of The Underground 11 (Compiled and Mixed by Deeper82) (2018) [MP3|320 Kbps] <Progressive House, Tech House>
+VA - We Are Trance February (2018) [MP3|320 Kbps] <Uplifting, Progressive Trance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779688.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779149.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jorgio Kioris - Linda (Ziger Remix)
-02. Anthony G - I Can Show You (Oscar Vazquez Remix)
-03. Dom Kane - Compound (Original Mix)
-04. Graumann - The Ants (Extended Mix)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 01:04:23
+001. Dim3nsion - Agarimo (Extended Mix)
+002. Kiyoi & Eky - Turn Back The Rain (Mark Van Gear Remix)
+003. Richard Lowe - Levitate (Original Mix)
+004. Enfortro - We Came To Conquer (Veizo Remix)(   Читать дальше...   )Жанр: Uplifting, Progressive TranceПродолжительность: 13:45:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9D70166F45A0551380C1BB3E7BEE90AD83491FC6
+magnet:?xt=urn:btih:034CB98CA86B54D200544776E4F8B4226E8D0EB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208922   (779689) от 24.02.2018
+###  Публикация: 1209769   (779150) от 28.02.2018
 
-Mel Torme - Night At The Concord Pavilion (1990) 2002, Concord Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sing For Your Supper [05:03]
-02. You Make Me Feel So Young [03:57]
-03. Early Autumn [04:33]
-04. Guys And Dolls Medley [08:56](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED11A03C5CA27B7BC0995AAF7EAA687431BE2DBB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208928   (779690) от 24.02.2018
-
-Teddy Hill And His Orchestra - 1935 - 1937 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lookie, Lookie, Lookie Here Comes Cookie [02:57]
-02. Got Me Doin' Things [02:50]
-03. When The Robin Sings His Song Again [02:51]
-04. When Love Knocks At Your Heart [03:04](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:11:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A65064895618FE010AA4A7F3770FC238A544B229
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132243   (779691) от 23.02.2018
-
-Sniper: Ghost Warrior 3 / Снайпер: Воин-призрак 3 (2017) [Ru/Multi] (1.8/dlc) Repack xatab [Season Pass Edition]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779691.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом новейшем военном шутере вы отправитесь в тыл врага. Вы станете американским снайпером, заброшенным в Грузию вблизи границы с Россией. Вы сами сможете выбирать способы выполнения заданий в открытом мире, который не прощает ошибок. Отправляйтесь во вражеский тыл и расширьте возможности Sniper Ghost Warrior 3 вместе с сезонным пропуском.Тип издания: RepackРазработчик: CI GamesЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AF837BB701EDEC9E93389C97A1207CE4437347B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208589   (779692) от 23.02.2018
-
-Debian 9 Xfce Custom v2 2018.02.19 [amd64] 1xDVD
-
->>3
->>11
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779692.jpg" />
-</div>
-
-
-###  Подробнее
-
-1) Сборка "толстая", т.е. означает подборку программ "на все случаи жизни"
-2) Уникальные измененные программы и "перепаки"
-3) Огромный набор утилит и инструментов для конфигурирования системы
-4) Отличная русская локализация(   Читать дальше...   )Язык интерфейса: Мультиязычный (русский присутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C22B42C48908475FEA568AC43B392C50B4C8D317
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208582   (779693) от 23.02.2018
-
-Портал / The Gateway (2018) WEB-DL [H.264/1080p-LQ] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Существует гипотеза, согласно которой в мире имеются параллельные вселенные. Некоторые из них - такие же, как наша. Двое ученых пытаются найти портал, ведущий в другой мир. В итоге им это удается. В параллельном мире живут их двойники, но с ними происходят другие события, которые доказывают, что телепортация ни к чему хорошему не приводит.Производство: Австралия / Filmscope EntertainmentЖанр: ФантастикаРежиссер: Джон В. СотоАктеры: Жаклин МакКензи, Майлс Поллард, Шеннон Берри, Хейли МакЭлхинни, Бен Мортли, Трой Кауорд, Адам Ти Перкинс, Джаг Панну, Джон МакФерсонПеревод: Любительский (многоголосый закадровый) HDrezka StudioСубтитры: АнглийскиеПродолжительность: 01:30:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3CDE5E6EB51DF227A76CB018A9E74039CB5C3AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208841   (779694) от 23.02.2018
-
-Тор: Рагнарёк / Thor: Ragnarok (2017) Blu-ray [H.264/1080p] [Custom]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вернувшись в Асгард в поисках таинственного врага, ведущего охоту на Камни Бесконечности, Тор обнаруживает, что действия его брата Локи, захватившего трон Асгарда, привели к приближению наиболее страшного события — Рагнарёка. По легенде это ознаменует последнюю битву Асгарда, последствием которой станет его полное уничтожение. В попытке предотвратить это событие (   Читать дальше...   )Производство: США / Marvel EntertainmentЖанр: фантастика, фэнтези, боевик, комедия, приключенияРежиссер: Тайка ВайтитиАктеры: Крис Хемсворт, Том Хиддлстон, Кейт Бланшетт, Идрис Эльба, Джефф Голдблюм, Тесса Томпсон, Карл Урбан, Марк Руффало, Энтони Хопкинс, Бенедикт КамбербэтчПеревод: Дублированный (iTunes)Субтитры: Английские, Французские, Испанские, Русские (Full-length, SDH, Forced iTunes)Продолжительность: 02:10:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7079848CC8A1A66E65E3895125558218C4D913EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208567   (779695) от 23.02.2018
-
-Смерть Сталина / The Death of Stalin (2017) WEB-DL [H.264/1080p-LQ] [MVO]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сталин умер. Все прогрессивное человечество переживает глубочайшую скорбь, вызванную кончиной гениального вождя трудящихся всего мира. Перестало биться сердце того, чьи мысли и заботы охватывали весь мир, кто вдохновлял угнетенные империалистами народы на освободительную борьбу, кто нес им помощь и надежду в этой справедливой борьбе. В эти тяжелые для каждого свободолюбивого (   Читать дальше...   )Производство: Франция, Великобритания / Free Range Films, Main Journey, Quad Productions, Title MediaЖанр: КомедияРежиссер: Армандо ИаннуччиАктеры: Ольга Куриленко, Андреа Райзборо, Руперт Френд, Джейсон Айзекс, Стив Бушеми, Джеффри Тэмбор, Ричард Брэйк, Пэдди Консидайн, Майкл Пэйлин, Джонатан АрисПеревод: Любительский (двухголосый закадровый) Студия "Колобок"Субтитры: АнглийскиеПродолжительность: 01:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D138833A73D2F9CBA612F83A02F64B5112C7623
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208478   (779696) от 23.02.2018
-
-uTorrent Pro 3.5.3  Build 44358  Stable RePack (& Portable) by D!akov  [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779696.jpg" />
-</div>
-
-
-###  Подробнее
-
-µTorrent — быстрый, удобный и компактный торрент-клиент. Клиент µTorrent, на сегодняшний день, является одним из самых функциональных решений для работы с сетью BitTorrent. Программа сочетает в себе оптимальную функциональность при небольшом размере. Поддерживает работу независимо от треккера, позволяет загружать сразу несколько файлов, имеет настраиваемую полосу (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74AC770F3DD24FFF438960E7A4AFA1E7BE74BFDC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208696   (779697) от 23.02.2018
-
-Alien: Isolation (2014) [Ru/En] (1.0upd9/7dlc) Repack R.G. Catalyst
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие триллера Alien: Isolation разворачивается спустя пятнадцать лет после событий оригинальной кинокартины Ридли Скотта «Чужой». И теперь уже дочери Эллен Рипли, Аманде, предстоит столкнуться с ужасом из космических глубин в попытке выяснить всю правду об исчезновении матери. В роли Аманды вы повстречаетесь с ослепленными паникой, доведенными до крайней степени (   Читать дальше...   )Тип издания: RepackРазработчик: The Creative Assembly, Feral InteractiveЖанр: Action (Survival horror), 3D, 1st Person, StealthЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAAA0DD627EF731A0F543808A78460A82D2D0D74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208654   (779698) от 23.02.2018
-
-Болот Омурзаков | Как сделать ремонт без чужих рук (2018) [PDF]
+И. Якушевский | Ленинизм, революция и «советология» (1968) [DJVU]
 
 >>Разное (категория книг)
->>Строительство и ремонт
+>>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779698.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779150.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этой книге вы найдете понятные и подробные мастер-классы абсолютно по всем видам работ, которые необходимы во время большого ремонта или для поддержания своего дома в чистоте и комфорте. Каждая глава содержит пошаговые рекомендации и советы профессионалов по циклу ремонтных и отделочных работ потолка, стен, пола, окон, дверей, лестниц. Вы научитесь самостоятельно (   Читать дальше...   )Жанр: Строительство, ремонтФормат: PDF
+В предлагаемой книге анализируются «советологические» трактовки и концепции теории и практики Октябрьской революции. В отличие от работ, освещающих ее исторический и социально-экономический аспекты, здесь берется философский аспект — она рассматривается под углом зрения единства и взаимодействия революционной теории и практики.
+
+«Советология» уделяет также большое (   Читать дальше...   )Жанр: История, политология, философия, социология, психологияФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B535ED43495E2C7D280A326D84B741DDE1D83F4A
+magnet:?xt=urn:btih:E4DD75D6196F5796589799226A27064D35FB7E73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208733   (779699) от 23.02.2018
+###  Публикация: 1209665   (779151) от 28.02.2018
 
-Win 10 Tweaker 6.0 Portable by XpucT [Ru]
+Bitter:Sweet - Drama (2008) [FLAC|Lossless|tracks + .cue] <Downtempo, Trip Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro Dramatico (0:11)
+02. Get What I Want (03:25)
+03. Come Along With Me (02:19)
+04. The Bomb (03:02)(   Читать дальше...   )Жанр: Downtempo, Trip HopПродолжительность: 00:43:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1AF407BECB44DEB5F67793453C1FED70A6C5481
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209803   (779152) от 28.02.2018
+
+VA-Artistic Dance Zone 14 (2018) [MP3|320 Kbps] <House, Tech House, Deep House, Funky>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sinechain - Discoking (Radio Edit)
+02. Rheinkraft - Glow the Freeker
+03. DJ Anady - Dale Mas
+04. DIMES - Turn It Up(   Читать дальше...   )Жанр: House, Tech House, Deep House, FunkyПродолжительность: 02:13:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43CF48B50EA4B52A2A99F4C7E0A0C8FA639C85DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209945   (779153) от 28.02.2018
+
+VA - Rooftop Lounge The Sounds of Chillout (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ku You - Sandhand 05:03
+02. Thomas Sopper & Herr Schmidt - Wolken im Wind 06:44
+03. Han Tronic - Tea del Mar 06:02
+04. Ritmo Fatalismo - Sangria After Midnight 06:00(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 03:21:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F0AD8C9EC4D9327E4E40597FDD365AFBEA7449B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209761   (779154) от 28.02.2018
+
+VA - Psychometry: 100 Psy Goa Trance (2018) [MP3|320 Kbps] <Psy, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779154.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Egova - Shivaratri
+002. Kristallklar - Gears Of Existence (Original Mix)
+003. Psilocybe Project - I Am Darkness (Original Mix)
+004. Elliptic - Machine Elves(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 12:28:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DA28B6392351D40E01676C02298A34D256A14DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209699   (779155) от 28.02.2018
+
+VA - Hed Kandi: Fit & Fabulous (2010) [FLAC|Lossless|tracks] <House, Electro House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Various - Fit & Fabulous (continuous DJ mix) (40:33)
+02.Various - Fit & Fabulous (continuous DJ mix) 2 (40:52)
+03.Groovefinder - All This Love That I'm Giving (feat Leah McCrae - Christian Hoff mix) (5:23)
+04.Polina - Shotguns (Scumfrog remix) (6:20)(   Читать дальше...   )Жанр: House, Electro House, Tech HouseПродолжительность: 04:00:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE748568D916D5728E7C03D0538BA18237BA1A85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209733   (779156) от 28.02.2018
+
+Koenraad Ecker - A Biology Of Shadows (2018) In Aulis [FLAC|Lossless|WEB-DL|tracks] <Experimental, Spoken Word>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Les Entrailles Du Mensonge (04:50)
+ 02. Between The Desire And The Spasm (Falls The Shadow) (04:21)
+ 03. Black Blocks And Red Zones (05:04)
+ 04. Under Glass Argus Eyes (01:47)(   Читать дальше...   )Жанр: Experimental, Spoken WordПродолжительность: 00:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33F55FDAE5D3006A3B81C9197D35B7D4223809C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209660   (779157) от 28.02.2018
+
+VA - Dance All Night Vol. 1 (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex DJ Zeya - Marry Me 05:11
+02. Alex Sheavy - Vessel 02:54
+03. ArcticA - Anastasia (Last Sky Remix) 05:15
+04. Aveo - Colors 04:30(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:16:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6A9419BB1D692474AD09ECA38D3D4E738BFF654
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209554   (779158) от 27.02.2018
+
+Final Fantasy XV (2018) [Ru/Multi] (Build 1130472) Repack =nemos= [Windows Edition]
 
 >>3
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779699.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779158.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Win 10 Tweaker — это небольшая, но очень мощная программа, позволяющая сделать полную оптимизацию Windows 10 в несколько кликов. Не пускает пыль в глаза бесполезными настройками, а каждый пункт содержит подробную подсказку-описание. Любое действие выполняется без внешних модулей, средствами самой программы и возможностями Windows, поэтому антивирусы не ругаются на (   Читать дальше...   )Язык интерфейса: Русский
+Снова в путь — на пределе качества! Много бонусного контента, поддержка самого высокого разрешения и HDR 10: в красивейшем мире FINAL FANTASY XV все продумано до мелочей. Такого вы еще не видели! События Final Fantasy XV происходят в мире, где реальность соседствует с фантазией. Вместе с наследным принцем Ноктисом и его товарищами вам предстоит отправиться в грандиозное (   Читать дальше...   )Тип издания: RepackРазработчик: Square EnixЖанр: RPG (Open World), Action, 3rd Person, 3DЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6E172B96A3381A4045F564F5FA15B0D1CDD7CDF2
+magnet:?xt=urn:btih:62107CA0A6341C85F3A244CD8386E6F6230DC679
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208667   (779700) от 23.02.2018
+###  Публикация: 1170987   (779159) от 27.02.2018
 
-Убийство в Восточном экспрессе / Murder on the Orient Express (2017) BDRip [H.264]
+Улица (2017) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-79 из 79)
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Отечественные сериалы
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779700.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779159.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Путешествие на одном из самых роскошных поездов Европы неожиданно превращается в одну из самых стильных и захватывающих загадок в истории. Фильм рассказывает историю тринадцати пассажиров поезда, каждый из которых находится под подозрением. И только сыщик должен как можно быстрее разгадать головоломку, прежде чем преступник нанесет новый удар.Производство: США, Великобритания, Мальта, Франция, Канада, Новая ЗеландияЖанр: Драма, Криминал, ДетективРежиссер: Кеннет БранаАктеры: Кеннет Брана, Пенелопа Крус, Уиллем Дефо, Джуди Денч, Джонни Депп, Джош Гэд, Дерек Джекоби, Лесли Одом мл., Мишель ПфайфферПеревод: Дублированный (iTunes)Субтитры: русские, английскиеПродолжительность: 01:53:55
+«Улица» — это история жителей одной из улиц спального района большого города. Школьники и студенты, домохозяйки и продавцы, олигархи и простые рабочие — здесь встретятся более 30 персонажей разного возраста и социального статуса, у каждого из них своя история. В большой Вселенной «Улицы» нет главных и второстепенных героев, здесь есть бурная жизнь с ее радостями, (   Читать дальше...   )Производство: Россия / ТНТ, ГудСториМедиаЖанр: драма, мелодрама, комедияРежиссер: Жанна Кадникова, Николай Бурлак, Михаил СоловьёвАктеры: Егор Клинаев, Ольга Баранова, Владимир Хацкевич, Екатерина Седик, Павел Савинков, Сергей Змичеревский, Артемий Падалка, Марина Богатова, Ксения Жданова, Марта Дромашко и др.Продолжительность: ~00:27:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:517E4C160845F784689BD03947BAC74306884F34
+magnet:?xt=urn:btih:011FD43038C0FD47FBCB95250030E2CF572C6D21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208790   (779701) от 23.02.2018
+###  Публикация: 1209364   (779160) от 27.02.2018
 
-Последний богатырь (2017) BDRemux [H.264/1080p]
+Red Giant Universe 2.2.2 RePack by Team V.R [En]
 
 >>След.
->>Отечественные Фильмы (HD, FHD, UHD)
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779701.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779160.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Иван, обычный парень, по воле случая переносится из современной Москвы в фантастическую страну Белогорье. В этом параллельном мире живут герои русских сказок, волшебство — неотъемлемая часть быта, а спорные вопросы решаются битвой на богатырских мечах. Неожиданно Иван оказывается в самом центре борьбы светлых и темных сил, вот только непонятно, почему главная роль (   Читать дальше...   )Производство: Россия, Кинослово, Walt Disney Pictures, Yellow, Black & WhiteЖанр: Комедия, СемейныйРежиссер: Дмитрий ДьяченкоАктеры: Виктор Хориняк, Мила Сивацкая, Екатерина Вилкова, Елена Яковлева, Константин Лавроненко, Евгений Дятлов, Александр Семчев, Сергей Бурунов, Александр Кухаренко, Марина КалецкаяПеревод: Не требуется (Русский) (Лицензия Blu-Ray RUS)Субтитры: Русские (Full)Продолжительность: 01:53:58
+Red Giant Universe - это библиотека профессиональных эффектов для графических редакторов
+After Effects, Premiere Pro, DaVinci Resolve и Sony Vegas от известного разработчика Red Giant.
+Редакция Universe включает в себя более шестидесяти эффектов, ориентированных на создание сложного монтажа,
+работы с хромакей, изменения освещения, осуществление цветокоррекции, работы (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:86A5AA651FCD952A4C18BE4D6A20E0910B05A38B
+magnet:?xt=urn:btih:4CB9829B9332394F4121856B7BE88AE6D4052464
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208643   (779702) от 23.02.2018
-
-Герой / The Hero (2017) HDRip [Line, AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ли Хейден - стареющая звезда с золотым голосом, но лучшие его работы остались далеко в прошлом. Он проводит свои дни, вспоминая старую славу и покуривая травку со своим бывшим партнёром по сцене и нынешним наркодилером, Джереми, пока неожиданный диагноз рака не определяет его приоритеты. Вскоре он завязывает захватывающие, спорные отношения с комиком Шарлоттой и (   Читать дальше...   )Производство: США / Houston King Productions, Northern Lights Films, Northern Lights Films and Media VenturesЖанр: Драма, Мелодрама, КомедияРежиссер: Бретт ХейлиАктеры: Сэм Эллиотт, Лора Припон, Ник Офферман, Кристен Риттер, Кэтрин Росс, Али Вонг, Камерон Эспозито, Даг Кокс, Макс Гэйл, Джеки ДжойнерПеревод: Дублированный (Чистый звук)Субтитры: отсутствуютПродолжительность: 01:38:51Реклама: Присутствуют аудио, видео и текстовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:090B7EAEB4AF8ECCA404EEEEA512B26384CD43F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208638   (779703) от 23.02.2018
-
-Пожалуйста, приготовьтесь / Please Stand By (2017) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет фильма вертится вокруг молодой девушки Вэнди, страдающей аутизмом. Несмотря на болезнь девушка пытается вести нормальный образ жизни и в этом ей помогает сотрудница специального центра Скотти, в котором живет Вэнди. Со временем состояние девушки сильно улучшилось: она устроилась на работу в ресторан быстрого питания и завела четвероногого друга, за которым (   Читать дальше...   )Производство: США / 2929 ProductionsЖанр: Драма, комедияРежиссер: Бен ЛуинАктеры: Дакота Фэннинг, Тони Коллетт, Элис Ив, Ривер Александр, Марла Гиббс, Джессика Рот, Майкл Сталь-Дэвид, Стефани Аллен, Мэттью Кардаропле, Мэтт КорбойПеревод: Любительский (многоголосый закадровый) HDrezka StudioСубтитры: ОтсутствуютПродолжительность: 01:32:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85CC93B88D45502588B65817D5EC775DF82543E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208692   (779704) от 23.02.2018
-
-Injustice: Gods Among Us (2013) [Ru/En] (1.0.2787.0upd5/dlc) Repack R.G. Механики [Ultimate Edition]
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Injustice: Gods Among Us - новое слово в мире файтингов. Игра, за разработку которой отвечает компания NetherRealm Studios - создатели легендарной серии Mortal Kombat, - стирает границы между добром и злом. В роли культовых персонажей вселенных DC Comics - Бэтмена, Флэша, Харли Куинн, Соломона Гранди, Супермена и Чудо-женщины - вам предстоит вступить в битву невиданного (   Читать дальше...   )Тип издания: RepackРазработчик: NetherRealm StudiosЖанр: Arcade (Fighting), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D0F6EF4D4C056A897155BFDE06E1BDA75E5E00C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208633   (779705) от 23.02.2018
-
-The Universim (2016) [En] (Alpha 23) Repack VseTop
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779705.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Universim – это, наверно, самый масштабный симулятор бога, ведь игроку предстоит начать с небольшого поселения на необжитой людьми планете и постараться развиться до межгалактических полетов и колонизации новых планет. Вас ждет серьезная борьба за выживание, вам нужно брать во внимание все мельчайшие детали и направлять общество по нужному вам пути. Планета, (   Читать дальше...   )Тип издания: RepackРазработчик: CrytivoЖанр: Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D5CF5FE26AC64664D8224BF48D11F65F9968C05
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

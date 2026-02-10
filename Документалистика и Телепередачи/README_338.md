@@ -1,3 +1,29 @@
+###  Публикация: 943036   (451741) от 02.10.2015
+
+Секретные Истории - НЛО. Уход под воду (2009) SATRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Секреты, возвращенные из небытия и факты, окутанные тайной. Цикл документальных фильмов о самых деликатных моментах мировой истории, прошлого и сегодняшнего дня России. События второй мировой войны еще долгие годы будут поражать воображение современников драматическими поворотами и неожиданными интригами. Настало время раскрыть содержимое архивов под грифом «совершенно (   Читать дальше...   )Телекомпания: РЕН ТВЖанр: ДокументальныйПродолжительность: 00:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:140D1B57873F102CAF2D1316F9FC7729290B18E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943069   (451743) от 02.10.2015
 
 Вечерний Ургант. Сезон №8. Выпуск №19 (2015.10.02) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:3CD192DD4C26659F34ACEBF01F9C6AA77501E2E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:3CD192DD4C26659F34ACEBF01F9C6AA77501E2E6
 magnet:?xt=urn:btih:04C039D45DD4213522C9DA7FD801434713DD48FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:04C039D45DD4213522C9DA7FD801434713DD48FD
 ```bash
 magnet:?xt=urn:btih:AE63D30953746989F31AC5732A895BB3A0CC1648
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:AE63D30953746989F31AC5732A895BB3A0CC1648
 magnet:?xt=urn:btih:C565A52819638DF8377F707E77B608CDCD354EB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:C565A52819638DF8377F707E77B608CDCD354EB6
 ```bash
 magnet:?xt=urn:btih:6CBD9518EE71245828960D38DFF9FF35A596A78F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:6CBD9518EE71245828960D38DFF9FF35A596A78F
 magnet:?xt=urn:btih:C182D2C635D5FDDD8C2953A3FA743F76F6109C31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:C182D2C635D5FDDD8C2953A3FA743F76F6109C31
 ```bash
 magnet:?xt=urn:btih:6022CBBDD6E14A2CA93F9B3127158D2752312ECB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:6022CBBDD6E14A2CA93F9B3127158D2752312ECB
 magnet:?xt=urn:btih:07E15B8DB5699F05DFAA4F628E9E4B87AECD9A40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:07E15B8DB5699F05DFAA4F628E9E4B87AECD9A40
 ```bash
 magnet:?xt=urn:btih:C5CD0A66CBC778BEABFBD0CBDDCAFAA93C209205
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:C5CD0A66CBC778BEABFBD0CBDDCAFAA93C209205
 magnet:?xt=urn:btih:5E4CE3B16815015CDCB2657AA1C7D4714A3BBD8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:5E4CE3B16815015CDCB2657AA1C7D4714A3BBD8A
 ```bash
 magnet:?xt=urn:btih:1242B11DBA4B3B7722467AAD6E573FC167AB9944
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:1242B11DBA4B3B7722467AAD6E573FC167AB9944
 magnet:?xt=urn:btih:A4F8111DC839A684F8311B9745E324EE838E0407
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:A4F8111DC839A684F8311B9745E324EE838E0407
 magnet:?xt=urn:btih:122A4763F2B9E78BEBC2A2107018FBC37D92BB42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:122A4763F2B9E78BEBC2A2107018FBC37D92BB42
 ```bash
 magnet:?xt=urn:btih:575848C061BD03DC2C4FFC2B798DFAB76AEBB68F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:575848C061BD03DC2C4FFC2B798DFAB76AEBB68F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:575848C061BD03DC2C4FFC2B798DFAB76AEBB68F
 magnet:?xt=urn:btih:A49F5DFBDE0BB776954D9DDB1BE9F975F8ED828C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:A49F5DFBDE0BB776954D9DDB1BE9F975F8ED828C
 ```bash
 magnet:?xt=urn:btih:1B4A859D578852368B6B26E486053522A966BF18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:1B4A859D578852368B6B26E486053522A966BF18
 magnet:?xt=urn:btih:DDC6A08709E16A6855E3A5010F33BA6DDF7E5DA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:DDC6A08709E16A6855E3A5010F33BA6DDF7E5DA4
 magnet:?xt=urn:btih:772B55F0B6CE30734E5725765931E5B28AB0C6E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:772B55F0B6CE30734E5725765931E5B28AB0C6E3
 ```bash
 magnet:?xt=urn:btih:01C32F5C9C896623423E8D30173A1B4389AC1F9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:01C32F5C9C896623423E8D30173A1B4389AC1F9C
 magnet:?xt=urn:btih:0962437B5C5751FFA31A8AD8287638F72213BD6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:0962437B5C5751FFA31A8AD8287638F72213BD6B
 magnet:?xt=urn:btih:D4B4C85AC3C1A4333375B9E78192CB96FD853593
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:D4B4C85AC3C1A4333375B9E78192CB96FD853593
 ```bash
 magnet:?xt=urn:btih:A331E6DE783A6D0EBFD21B8130C62D98C96F33AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +656,8 @@ magnet:?xt=urn:btih:A331E6DE783A6D0EBFD21B8130C62D98C96F33AE
 magnet:?xt=urn:btih:9B252EBE78D84A8AB45F09C0E4DE4A1BEB6C0F6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,29 +682,7 @@ magnet:?xt=urn:btih:9B252EBE78D84A8AB45F09C0E4DE4A1BEB6C0F6E
 magnet:?xt=urn:btih:B164663352CC7FB21BE4CEEF41910E42AECD2173
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060521   (452949) от 08.10.2016
-
-Куда приводят понты. Фильм 2 (2016) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летом 2016 года в Москве банкиры и финансисты отмечали 700-летие рубля. На закрытой вечеринке, которая была устроена в столице в честь этого громкого события для гостей был устроен специальный сюрприз - борьба девушек в ванне, заполненной чёрной икрой. Пока одни следят за ценой на хлеб, другие не готовы отказаться от зрелищ. А они в Москве на любой вкус: можете посетить (   Читать дальше...   )Телекомпания: Студия 8, ТВЦЖанр: Телепередача, ДокументальныйПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD12C289E2967155EAF5797CCAEEF24E796CF79F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

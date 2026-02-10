@@ -19,6 +19,8 @@ Mageia 5.1 Cauldron [i586] 3xDVD
 magnet:?xt=urn:btih:A03707FDD6FB5D2927941EF1391FE2B320F1F371
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Ubuntu BusinessPack 18.04 (август 2019) [amd64] 1xDVD
 magnet:?xt=urn:btih:096AE5721483A00A57D3E708CB9FDBB624AF4030
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Ubuntu BusinessPack 16.04 (август 2019) [amd64, i386] 2xDVD
 ```bash
 magnet:?xt=urn:btih:4EAB7FD7EDE8CC4316A1AA9534CB1050E2829A79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ CentOS 7.9 (209) [x86-64, i386] 5xDVD, 2xCD
 magnet:?xt=urn:btih:E2625158E7938F4F313323368AF7E95AD1E8B989
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Debian GNU/Linux 9.6.0 + nonfree Stretch [i386] 4xDVD
 ```bash
 magnet:?xt=urn:btih:14232E14C93ACDCBD9050809003C0C1015D4E637
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ Q4OS - дистрибутив операционной системы Linux, с�
 magnet:?xt=urn:btih:8EF53DC6EF4F02D2B0A0D6444DE0D61A9B9AA4FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ Debian GNU/Linux 9.6.0 + nonfree Stretch [amd64] 4xDVD
 ```bash
 magnet:?xt=urn:btih:B059CCE29BCDA2C5510517DB3D658F85B864FFC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ Skype (Скайп) — бесплатное проприетарное прог�
 magnet:?xt=urn:btih:343D3575669A307C58887C358AAFADB46AB32B8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ Dr.Web Workstations 6.0.2.0 [x86, x86-64] (*.run)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ Manjaro Linux 0.8.8 (Arch + зоопарк рабочих столов) [x86-64]
 magnet:?xt=urn:btih:36A55C042684BAFFD01BC12AF5ED676C4FD7D84D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ Fedora 27 Live spins [x86-64] 7xDVD
 ```bash
 magnet:?xt=urn:btih:E6D1B2CA3BB8B0B15DD9D733523E383B1D5A2B47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -306,6 +328,8 @@ Manjaro Linux 0.8.8 (Arch + зоопарк рабочих столов) [i686] 9
 magnet:?xt=urn:btih:A65662CED866A712E1232AF53CD6E27E7768321A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ Red Hat Enterprise Linux 8.3
 ```bash
 magnet:?xt=urn:btih:9F4C3119F398E6617F57588B5357E7BB4CD026B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -354,6 +380,8 @@ Red Hat Enterprise Linux 7.9
 magnet:?xt=urn:btih:4518A735EEEA3B187639CB04A56D30ED581A5D43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ Red Hat Enterprise Linux (Server, Workstation, Client) 6.10 1xDVD
 ```bash
 magnet:?xt=urn:btih:025CEF17BC712B0758EE4B92681E038BE978522D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +434,8 @@ Fedora 25 [i386] 11xDVD
 magnet:?xt=urn:btih:38CD168AEECEB1FEF1E2A717D1F70734DB383FCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ CentOS 7.7 (1908) [x86-64] 5xDVD, 1xCD
 ```bash
 magnet:?xt=urn:btih:84A10CAABCC60283880BF2CC795FC55DC286A22D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +490,8 @@ CentOS 7.7 (1908) [i386] 2xDVD, 1xCD
 magnet:?xt=urn:btih:D82D3406080BDBE2A11399D6E423D09D402A7ED0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +515,8 @@ Adobe Dreamweaver CС - новая версия программы для соз
 ```bash
 magnet:?xt=urn:btih:E0297B438DAF37B51CD5E759C21BE93071125257
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +542,8 @@ Mattermost - это онлайн-чат с открытым исходным к�
 magnet:?xt=urn:btih:D858A68429D0CE551261F9F5AE16F70019C06E5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +568,8 @@ LMDE 3 "Cindy" MATE Edition by Lazarus [32-bit, 64-bit] (2xDVD) [Авторск�
 ```bash
 magnet:?xt=urn:btih:24FD36D3F41325FC63C51337BAB7170DF06EF9F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +597,8 @@ Cinelerra может работать с видео и звуком очень �
 magnet:?xt=urn:btih:EA22BA4CA1B929C5839DAA79492D7E4E42F24FE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +622,8 @@ KNOPPIX 7.6 [x32, x64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:CF8C34360A7FEC226E279411B07B9DF9093CCB6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +651,8 @@ Jondo Live-DVD предлагает безопасные, предварител
 magnet:?xt=urn:btih:2F6CF7EE3BD8E10C0BDB7207553572E6C74BF391
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +679,8 @@ Skype (произносится «скайп») — бесплатное про�
 magnet:?xt=urn:btih:556303A87FC7FAD1DCED65AE1C24A1320306A961
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ Skype (произносится «скайп») — бесплатное про�
 ```bash
 magnet:?xt=urn:btih:76FC49D54707DCE440DCEB47093310BA0D9DBC0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

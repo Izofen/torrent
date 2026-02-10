@@ -20,6 +20,8 @@ gSyncit 5.3.23.0 [En]
 magnet:?xt=urn:btih:8C206B65B8AF91B6D314F6C5F8DD24530BC60095
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:8C206B65B8AF91B6D314F6C5F8DD24530BC60095
 ```bash
 magnet:?xt=urn:btih:56A7903FA7F3B651906550A6271D74FC8D3476D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Task Killer - Убийца процессов. Думаю всем, кто ра�
 magnet:?xt=urn:btih:BF629DCF189B73E72C89980C376ABDCA948B9762
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:BF629DCF189B73E72C89980C376ABDCA948B9762
 ```bash
 magnet:?xt=urn:btih:A27ABEE5DE1EB94E628E765CCB41C5FA31EDCC5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Surviving Mars — это научно-фантастический симуля
 magnet:?xt=urn:btih:2B7DB4C29264285299995DF14AB3E439527B0604
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Futuremark 3DMark 2.15.7088 Developer Edition RePack by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BC2AF0D91DCFA9592E8D2C987216397874CED114
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Farming Simulator 22 (2021) [Ru/Multi] (1.11.0.0/dlc) Repack Other s [Platinum E
 magnet:?xt=urn:btih:C5A3791C7A03542058779EF893F2117264B37C7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:C5A3791C7A03542058779EF893F2117264B37C7E
 ```bash
 magnet:?xt=urn:btih:A8AF0DBFCF7A493EFA3328B35A8C1A162E5EC60B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:A8AF0DBFCF7A493EFA3328B35A8C1A162E5EC60B
 magnet:?xt=urn:btih:9656360C8EB0EA18AB0A1DAD2535A006ABF83822
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Lost Eidolons (2022) [Ru/Multi] (1.00.06.R293.8b7ed397/dlc) Repack DjDI [Digital
 ```bash
 magnet:?xt=urn:btih:E78D041C8304283AAB508D759561BB8628ADBCBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:E78D041C8304283AAB508D759561BB8628ADBCBA
 magnet:?xt=urn:btih:35C32A3D6DA30A12DBC7718680CF9FA5BDA2D6CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:35C32A3D6DA30A12DBC7718680CF9FA5BDA2D6CA
 ```bash
 magnet:?xt=urn:btih:2960CC3A0686E262E62861918F638F68A4E1D9BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:2960CC3A0686E262E62861918F638F68A4E1D9BB
 magnet:?xt=urn:btih:F3A1E59A005B0A4211704DBEE751CCEF01F7456A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:F3A1E59A005B0A4211704DBEE751CCEF01F7456A
 ```bash
 magnet:?xt=urn:btih:6F096843E8159A0360B5D3F53747D907E96D4D7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:6F096843E8159A0360B5D3F53747D907E96D4D7B
 magnet:?xt=urn:btih:C82D28AE0A262E99A6117592E3939742BA16BE7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Bandicam дает возможность записать выбранную о�
 ```bash
 magnet:?xt=urn:btih:EBDB3118E61EDA6DC5CEB74DEA2C2AADA8DD7507
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:EBDB3118E61EDA6DC5CEB74DEA2C2AADA8DD7507
 magnet:?xt=urn:btih:00C78836BD2496821190E6F03CCE1C6F1BD79058
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:00C78836BD2496821190E6F03CCE1C6F1BD79058
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 magnet:?xt=urn:btih:DFDADE9A4B9AD05684BBDCE050BDB876B44BA7E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Autorun Organizer - простое в использовании приложе�
 ```bash
 magnet:?xt=urn:btih:54E4CADEBD202F2E237507F34A86AFC9E48C2339
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:54E4CADEBD202F2E237507F34A86AFC9E48C2339
 magnet:?xt=urn:btih:7D744171ADF9B0F953A18AE673E078A3098FAE60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ magnet:?xt=urn:btih:7D744171ADF9B0F953A18AE673E078A3098FAE60
 ```bash
 magnet:?xt=urn:btih:D777D5667167BADEB0719C9371B39E84677B4A1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Hебо Москвы (1944) DVBRip
 magnet:?xt=urn:btih:FDADEC4642EFB9B69A818545FAC9DC90BD9592B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:FDADEC4642EFB9B69A818545FAC9DC90BD9592B8
 ```bash
 magnet:?xt=urn:btih:68DC0A07942BF6B8A8FF2071DD64FA39829A7682
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:68DC0A07942BF6B8A8FF2071DD64FA39829A7682
 magnet:?xt=urn:btih:26556B70FA22E8C1F95108653A48EFBA3DD01D3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ iStat Menus 6 — лучшее приложение для контроля ра
 ```bash
 magnet:?xt=urn:btih:1F518C235237BD64FD56DD8C36540C19638274E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

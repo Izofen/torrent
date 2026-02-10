@@ -19,6 +19,8 @@ Folder Player Pro - это ориентированный на каталоги 
 magnet:?xt=urn:btih:A42CE0A9DE3D360589E7036CE4CEC85159B5E7F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:A42CE0A9DE3D360589E7036CE4CEC85159B5E7F0
 ```bash
 magnet:?xt=urn:btih:59FC98B6C89D840641F77D1CE6542A500C1959F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Gallery - Photo Gallery, Album (XGallery) v1.9.9 Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:D1F6564363D87FB83B0025901907469EAEB00C76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:D1F6564363D87FB83B0025901907469EAEB00C76
 ```bash
 magnet:?xt=urn:btih:FF49DD62568D7FEC0A3074BEB63ED65BF7B42488
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:FF49DD62568D7FEC0A3074BEB63ED65BF7B42488
 magnet:?xt=urn:btih:12AFA23D6957617C5B5E16345E22B0FB721B3800
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:DDE768A0E9D9AFEF8A0D4E025363C4C6381B0AD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ MassTube — очень простая в использовании прогр�
 magnet:?xt=urn:btih:99118EA0B3D7C59ED66DF3016FA101BC9D75620F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:99118EA0B3D7C59ED66DF3016FA101BC9D75620F
 ```bash
 magnet:?xt=urn:btih:6AE98DDFBAE33FE7E4608A7A71BCADE5C834E2B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Seal of Evil (2006) [En] (1.06) License GOG
 magnet:?xt=urn:btih:8511C3156E84C1AF545C5729CA4D6E39AD36634F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Vanced — это модифицированная версия YT, котора
 magnet:?xt=urn:btih:F64420042C0A9EE5BAC9E37C33EF9AE13FD17E46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ Minimal Firewall — это портативный интерфейс бранд
 ```bash
 magnet:?xt=urn:btih:792CFBAC163F4906DFB3E609A8F7E87CE6392791
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:792CFBAC163F4906DFB3E609A8F7E87CE6392791
 magnet:?xt=urn:btih:208CA98E847EAECF8A3AF8D9A7A8B738DD8E600E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:208CA98E847EAECF8A3AF8D9A7A8B738DD8E600E
 ```bash
 magnet:?xt=urn:btih:FAEF39AD47E8EADE6DE408C0D049A3585857FF71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:FAEF39AD47E8EADE6DE408C0D049A3585857FF71
 magnet:?xt=urn:btih:1C1536342DAA78D5356A3D063DFA158CB5A0C7E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:1C1536342DAA78D5356A3D063DFA158CB5A0C7E4
 ```bash
 magnet:?xt=urn:btih:1E506A954852CE669A445D69383E3BDF255319A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ FacePic — приложение AI Face, приложение для легко
 magnet:?xt=urn:btih:112EB4E4EE3050C37243DC7EDD29CEF42CFF99D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:112EB4E4EE3050C37243DC7EDD29CEF42CFF99D3
 ```bash
 magnet:?xt=urn:btih:069DB90753F4347A33A2B08D59DE055DA59240D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:069DB90753F4347A33A2B08D59DE055DA59240D7
 magnet:?xt=urn:btih:ECD4A6C839CE46D4863FCA5125AF7AFE59995703
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:ECD4A6C839CE46D4863FCA5125AF7AFE59995703
 ```bash
 magnet:?xt=urn:btih:0B7C5920638C398F748C80447051F695E4847FEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:0B7C5920638C398F748C80447051F695E4847FEE
 magnet:?xt=urn:btih:E2F142FEACF153952CB9EC7BE0CAC9C3DF36C274
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ AI Photo Editor - AIFoto v1.15.3 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2848724FE5A0442425AEC7F6EBF06490CB2BCD96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:2848724FE5A0442425AEC7F6EBF06490CB2BCD96
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:D29235BD74AC5B02BB1EAF98CD0251DBA743DD2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:D29235BD74AC5B02BB1EAF98CD0251DBA743DD2C
 magnet:?xt=urn:btih:D8369E3198FE1973F0B95C0B82BB9964F754E92B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:D8369E3198FE1973F0B95C0B82BB9964F754E92B
 magnet:?xt=urn:btih:501E5B73DC80FDD2ECEA7AE1676638D7266C6AB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:501E5B73DC80FDD2ECEA7AE1676638D7266C6AB0
 ```bash
 magnet:?xt=urn:btih:8AF401A86ADBC6B16E60361A1EDE42F2F17FA0AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1224661   (662664) от 13.05.2018
+
+Николай Курдюмов | Самая полная энциклопедия по саду и огороду (2018) [PDF]
+
+>>Разное (категория книг)
+>>Сад, огород, животноводство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Николай Курдюмов - самый известный и уважаемый в нашей стране автор книг о природном земледелии. Его уникальный талант популяризатора позволяет читателю легко и с юмором разобраться в основных, но, увы, для большинства дачников скучных агрономических знаниях, без которых невозможно получать урожай без особых физических и материальных затрат и, что самое главное - (   Читать дальше...   )Жанр: Сад и огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67FB3437343AEE1618421045D0AD65EE30A7D1CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 901791   (662909) от 26.05.2015
 
 Оксана Усольцева (ред.) | 1000 лучших мест России, которые нужно увидеть за свою жизнь (2014) [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:DCE8E053CB43099FE17669766D0866E298FC503A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:DCE8E053CB43099FE17669766D0866E298FC503A
 magnet:?xt=urn:btih:079B3F14E796E7D306A6669F7CE0564B0EF41BB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:079B3F14E796E7D306A6669F7CE0564B0EF41BB2
 ```bash
 magnet:?xt=urn:btih:DBEEEE70DA1F03E21E64CAD49858F20910BBA096
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:DBEEEE70DA1F03E21E64CAD49858F20910BBA096
 magnet:?xt=urn:btih:EF8274D81797DCEB9BAC51DE01C94FA91A9B9F4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:EF8274D81797DCEB9BAC51DE01C94FA91A9B9F4A
 ```bash
 magnet:?xt=urn:btih:25013F9EE385A6C4D7160436EB8DC8BAFF487A83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:25013F9EE385A6C4D7160436EB8DC8BAFF487A83
 magnet:?xt=urn:btih:5DCF85E3BCBBBA728A54F8281B2A02AA2CBBF217
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:5DCF85E3BCBBBA728A54F8281B2A02AA2CBBF217
 ```bash
 magnet:?xt=urn:btih:0E702332EE9A340878BDFC7C1BF18062C64D8EA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:0E702332EE9A340878BDFC7C1BF18062C64D8EA7
 magnet:?xt=urn:btih:DB0005ADA8A84CA3C09F6E3EEBD89241FC7C3DE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:DB0005ADA8A84CA3C09F6E3EEBD89241FC7C3DE8
 ```bash
 magnet:?xt=urn:btih:691925C899E8129B16B55E1B2708FC2AFCA6BEEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:691925C899E8129B16B55E1B2708FC2AFCA6BEEF
 magnet:?xt=urn:btih:0E370325DFD3471D386833620A160F9FC6EFCA2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:0E370325DFD3471D386833620A160F9FC6EFCA2F
 ```bash
 magnet:?xt=urn:btih:64292E5EF9570318DE6361AEB0F0D175BEE84B7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:64292E5EF9570318DE6361AEB0F0D175BEE84B7D
 magnet:?xt=urn:btih:E9702BBC61C26E9D7BA42315094D6901A0C26C33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:E9702BBC61C26E9D7BA42315094D6901A0C26C33
 magnet:?xt=urn:btih:A376547B629ADCFEA6ED21C6D5C04993506C37A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:A376547B629ADCFEA6ED21C6D5C04993506C37A4
 ```bash
 magnet:?xt=urn:btih:5A86F25D08E443551B7A9915E1DCD331F5FDFFAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:5A86F25D08E443551B7A9915E1DCD331F5FDFFAB
 magnet:?xt=urn:btih:EE31BC2F7D2E59C22D77AE7A501F952212143EB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:EE31BC2F7D2E59C22D77AE7A501F952212143EB1
 ```bash
 magnet:?xt=urn:btih:09279E2A87BC06D17688ABBC4AE418E498E496BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:09279E2A87BC06D17688ABBC4AE418E498E496BD
 magnet:?xt=urn:btih:B4C731CEDA1E608DECD184B3056CB2AEA3111B4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:B4C731CEDA1E608DECD184B3056CB2AEA3111B4C
 ```bash
 magnet:?xt=urn:btih:53A67187904960AFE8FB37217D7E65B2D2A4F381
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:53A67187904960AFE8FB37217D7E65B2D2A4F381
 magnet:?xt=urn:btih:8425A59BBA57FAF26E8E16D56CD208892DAF56B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:8425A59BBA57FAF26E8E16D56CD208892DAF56B8
 ```bash
 magnet:?xt=urn:btih:8E1DD7A3FA38C4C180E1018EF5936F49415DFE40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +580,8 @@ magnet:?xt=urn:btih:8E1DD7A3FA38C4C180E1018EF5936F49415DFE40
 magnet:?xt=urn:btih:1FD3EC6A14795E4E7274EAAC8319F66340419A5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +606,8 @@ magnet:?xt=urn:btih:1FD3EC6A14795E4E7274EAAC8319F66340419A5C
 magnet:?xt=urn:btih:A63EEAC759DAD8D4002064EAEC6BA6078EAD1182
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:A63EEAC759DAD8D4002064EAEC6BA6078EAD1182
 ```bash
 magnet:?xt=urn:btih:EA2715CBCEF24A79DC4BD0BAB2C011665DE6F0F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +660,8 @@ magnet:?xt=urn:btih:EA2715CBCEF24A79DC4BD0BAB2C011665DE6F0F2
 magnet:?xt=urn:btih:16ED2B6C0D11A31E22E3629AB30BD0F99795F711
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,29 +686,7 @@ magnet:?xt=urn:btih:16ED2B6C0D11A31E22E3629AB30BD0F99795F711
 magnet:?xt=urn:btih:2DB5595D869275B72E40FC23E58CC39717AD5E99
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224571   (664719) от 11.05.2018
-
-Олег Иванов | Как найти деньги для вашего бизнеса. Пошаговая инструкция по привлечению инвестиций (2018) [EPUB, FB2, MOBI, PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664719.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассказывается о том, как привлечь инвестиции в малый бизнес, не связанный с инновациями и высокими технологиями. Вы узнаете, какие мотивы движут инвесторами и какие семь шагов необходимо сделать для привлечения инвестиций: от оценки проекта и подготовки пакета документов до нюансов юридического оформления и жизни после инвестиционной сделки. В каждой главе (   Читать дальше...   )Жанр: Бизнес, Финансы, ИнвестицииФормат: EPUB, FB2, MOBI, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D8914647461E52C0A41BEF030BCB3560ACED3B8
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

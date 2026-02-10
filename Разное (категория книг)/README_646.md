@@ -1,3 +1,29 @@
+###  Публикация: 992476   (900917) от 02.03.2016
+
+Дарья Нестерова | Вяжем для животных (2011) [PDF]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900917.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом издании приводится множество разнообразных моделей для собак и кошек самых разных пород: для борзых и пинчеров, для доберманов и болонок, для благородных сфинксов и грациозных абиссинских кошек. Эта книга для тех, кто хочет окружить своих домашних питомцев теплом и заботой, а заодно избавить себя от хлопот, связанных с необходимостью выгуливать животное в (   Читать дальше...   )Жанр: Хобби, рукоделиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BA12AC15F7A369AD905FF1AE93C2D47F8223AAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 868037   (900941) от 09.02.2015
 
 Грег Берендт, Лиз Туччилло | Обещать - не значит жениться (2014) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:61F4D345A2826E18E45CDB1DAF89AB77D7A0987A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:61F4D345A2826E18E45CDB1DAF89AB77D7A0987A
 ```bash
 magnet:?xt=urn:btih:536A9173F1206BCDF498D17FFB0FB1A55D626669
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:536A9173F1206BCDF498D17FFB0FB1A55D626669
 magnet:?xt=urn:btih:B68F2BB5FC6614CC7E21CB6975DF276F0671F471
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:B68F2BB5FC6614CC7E21CB6975DF276F0671F471
 ```bash
 magnet:?xt=urn:btih:D8B1F7EA37B720344226E7B6AC471FE0227A2AD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:D8B1F7EA37B720344226E7B6AC471FE0227A2AD4
 magnet:?xt=urn:btih:7B1FE8B1D60AECCD5D38389C8E6B5DE42C23CC8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:7B1FE8B1D60AECCD5D38389C8E6B5DE42C23CC8A
 magnet:?xt=urn:btih:4410016BD2A3BF196E72021C2079F5FDAD69B90C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:4410016BD2A3BF196E72021C2079F5FDAD69B90C
 ```bash
 magnet:?xt=urn:btih:AB71B3EF2CAD1C1B1947A5870F546A62FE83BC85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:AB71B3EF2CAD1C1B1947A5870F546A62FE83BC85
 magnet:?xt=urn:btih:3BE7BD9B0C06743A497E0A11860BC0360790874F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:3BE7BD9B0C06743A497E0A11860BC0360790874F
 ```bash
 magnet:?xt=urn:btih:83E8981E71838BCF94A748822D63E79B8FACE22B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:83E8981E71838BCF94A748822D63E79B8FACE22B
 magnet:?xt=urn:btih:FE4CEA147A801DD92F1A3281CE2092C48F251800
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:FE4CEA147A801DD92F1A3281CE2092C48F251800
 ```bash
 magnet:?xt=urn:btih:9237EE4F682EB0D0E2A30F04D90540C80391C544
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:9237EE4F682EB0D0E2A30F04D90540C80391C544
 magnet:?xt=urn:btih:E19F9EB2E23D8DDF94228803148153E0133BEDB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:E19F9EB2E23D8DDF94228803148153E0133BEDB5
 ```bash
 magnet:?xt=urn:btih:E5CD6A33D95DA07DEF8936378F9B4A6EBA6E047D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:E5CD6A33D95DA07DEF8936378F9B4A6EBA6E047D
 magnet:?xt=urn:btih:A06960C5CB5C91E9F5924D5386FC4FB070618C13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +418,8 @@ magnet:?xt=urn:btih:A06960C5CB5C91E9F5924D5386FC4FB070618C13
 magnet:?xt=urn:btih:6D3BB440F2F0FBA34170BF01F6725246B89419D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:6D3BB440F2F0FBA34170BF01F6725246B89419D6
 ```bash
 magnet:?xt=urn:btih:12C97739629241E52202A31DA842FADFDE1F328C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:12C97739629241E52202A31DA842FADFDE1F328C
 magnet:?xt=urn:btih:9EF1B6B86D1CD975F12651984CAF90085A2B8764
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:9EF1B6B86D1CD975F12651984CAF90085A2B8764
 ```bash
 magnet:?xt=urn:btih:AAC8E2D65D07881D9E01ACA0CB90CA6FA4293417
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:AAC8E2D65D07881D9E01ACA0CB90CA6FA4293417
 magnet:?xt=urn:btih:62F178A3BE6F9B48E1F6985B40B604EB4182698B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:62F178A3BE6F9B48E1F6985B40B604EB4182698B
 ```bash
 magnet:?xt=urn:btih:16606442C4548E563D1BAC48003BBEDD548CFC00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:16606442C4548E563D1BAC48003BBEDD548CFC00
 magnet:?xt=urn:btih:F3BCD9BE189C4D11154606FD287CD3A6F0051B3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +600,8 @@ magnet:?xt=urn:btih:F3BCD9BE189C4D11154606FD287CD3A6F0051B3A
 ```bash
 magnet:?xt=urn:btih:786F8D7A92060581B382E3E1A249F68DA645CF68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +630,8 @@ magnet:?xt=urn:btih:786F8D7A92060581B382E3E1A249F68DA645CF68
 magnet:?xt=urn:btih:B47544BB0C2DFC72B870C5A6F9B53A9CE954910D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +659,8 @@ magnet:?xt=urn:btih:B47544BB0C2DFC72B870C5A6F9B53A9CE954910D
 magnet:?xt=urn:btih:359799BF280215558F1FDA5A00BEC82906B911E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,29 +685,7 @@ magnet:?xt=urn:btih:359799BF280215558F1FDA5A00BEC82906B911E8
 magnet:?xt=urn:btih:6A89339D05B7A995D958273A21FC64B63AD19E1F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992014   (902200) от 01.03.2016
-
-Лайм Фаэй, Роберт Рэнделл (редакторы) | Курс MBA по стратегическому менеджменту (2013) [FB2, DOCX]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная цель менеджеров любого уровня - процветание их бизнеса. Для достижения этой цели необходимо создавать предложения, которые потребители высоко оценят, и вести бизнес так, чтобы обходить конкурентов по ключевым параметрам. "Курс МВА по стратегическому менеджменту", написанный преподавателями ведущих бизнес-школ мира, вооружает знаниями, позволяющими (   Читать дальше...   )Жанр: БизнесФормат: FB2, DOCX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2544CBA85FD0561E9E2832F004FA24F16E6C822C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

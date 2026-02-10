@@ -19,6 +19,8 @@ SteamWorld Build является спин-оффом франшизы Стим�
 magnet:?xt=urn:btih:6A2C8B637C2AB8DFD3B0DADE234B629ED9B2A99D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Farmer's Father: Save the Innocence - это настоящая история �
 ```bash
 magnet:?xt=urn:btih:1DD46E210664296E5D7B1D94B6E8FC1D59306BB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Beat Slayer - гибрид из упрощенного рогалика и ри�
 magnet:?xt=urn:btih:A37DAFF3CC23F21EFE51BF685735986A266ADC1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Bulletstorm: Full Clip Edition - специальное издание нашу�
 ```bash
 magnet:?xt=urn:btih:5E80108AFEDB8511F40CF6D0F47E034E125C65AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Into The Flames – симулятор профессии пожарного, к
 magnet:?xt=urn:btih:5E9B0470F75CB5256C91032DC90051F1A826660B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Aquarist - иммерсивный симулятор, позволяющий п�
 ```bash
 magnet:?xt=urn:btih:966BD9ACA097AE60BCE2E2CC3FDB4E56318C1C3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Flashing Lights: Police, Firefighting, Emergency Services Simulator – это �
 magnet:?xt=urn:btih:69527898F5CC96A853CD1156F7A0AB9E09ACC95D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Ancient Cities - это занимательный градостроитель�
 ```bash
 magnet:?xt=urn:btih:FE26963FB212406CA2CA6BDE75308F7D7E91C450
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Assetto Corsa Competizione - продолжение реалистичного �
 magnet:?xt=urn:btih:0E152536E6363B447C4A60924F47B2AA894E1EBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Assetto Corsa Competizione - продолжение реалистичного �
 ```bash
 magnet:?xt=urn:btih:FB7CA3F9B0EB733C6E2C7C3B1FF53F9AC2978B6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ No Plan B – это тактическая стратегия и по совм�
 magnet:?xt=urn:btih:F2AD09E22D7E6171DFC3D98F5F80DF563F710D0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Cartel Tycoon (2021) [Ru/Multi] (1.0.9.6429/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:3CCBB373AC40FAB5AD48ADE3BA28CAC5B78F1F6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Holy Maid Academy (2024) [Multi] (1.0.0a/dlc) License GOG
 magnet:?xt=urn:btih:CFD64D7FBC96DD5E833CF9107C303F626C07022E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ The Legend of Heroes: Trails into Reverie является очередным п
 ```bash
 magnet:?xt=urn:btih:6B2E248EE3C99268E9F3F01B22D69520EC370FCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Bulwark: Falconeer Chronicles (2024) [Multi] (0.2.0.5.202403281756/dlc) Repack F
 magnet:?xt=urn:btih:72971D257DDCD4505BB98D28067D9F46D2069E00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Real Estate Simulator ставит вас на место начинающего
 ```bash
 magnet:?xt=urn:btih:01AB5B05882C4F5F4B3EF7A3CA9467197FEB1AAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Geneforge 2 - Infestation - обновленная версия классиче
 magnet:?xt=urn:btih:6D44E59BC3E02C96C60053E4FB77D2AD8584C2EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Tempus Rail бросает вас с головой в кошмар Дикого
 ```bash
 magnet:?xt=urn:btih:D1E4925913A7EA55E5FB1822A75FB581EA32E3EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Bloody Ink - это психологическая хоррор-игра от п
 magnet:?xt=urn:btih:38820575289B1959F172669D06A18D4A1D50F4B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Gore Doctor - мрачный хоррор на выживание с давящ�
 ```bash
 magnet:?xt=urn:btih:45790AA9220DA0F2D3A003F00E987A8D2AA42435
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Between Horizons - это крутой 2.5D приключенческий де�
 magnet:?xt=urn:btih:B3E91B82F0376EE9AB547D469560B5290A39AD62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Tactic Boxing – откройте двери стилизованного ми�
 ```bash
 magnet:?xt=urn:btih:92C16B5605D5B841477AD011A1E67D395EC46C41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Aquarist - иммерсивный симулятор, позволяющий п�
 magnet:?xt=urn:btih:2C4B431500E8AD71C111AA5F8BBD026CCBF140C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Distant Bloom – постарайтесь восстановить некогд
 ```bash
 magnet:?xt=urn:btih:B66A6433020D37EA88A5AD6876B07911C18E2727
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Knowledge, or know Lady / Ladies School Prince (2024) [Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:3E0E4B1D2E7784543A93A952EB7FBF2A9A06920A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Necrosmith 2 - продолжение знаменитого симулятор�
 ```bash
 magnet:?xt=urn:btih:ABEB6369B0EDFD3AC622B0E96B36219CE636A2DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

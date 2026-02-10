@@ -19,6 +19,8 @@ Mirrors of Deception: The Silver Peaks Secret / Зеркала Обмана: С�
 magnet:?xt=urn:btih:00DCCD17D7C56EC87E815F0729403EAF9218916F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Reflections of Life 13: Sleep's Embrace / Отражения жизни 13: Об
 ```bash
 magnet:?xt=urn:btih:0BBE44BC6E3D82DDC0A7D2B3EAB55B7E0FA2950F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Sail Forth (2022) [Multi] (1.01) License GOG
 magnet:?xt=urn:btih:4CCBCD9634659DA353D4E70B46EB10AEC0574B23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Love, Money, Rock'n'Roll / Любовь, Деньги, Рок-н-Ролл (2022)
 ```bash
 magnet:?xt=urn:btih:60A158FD9CC91D37364D491B7507D120DC8569B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Control (2020) [Ru/Multi] (1.30/dlc) Repack FitGirl [Ultimate Edition]
 magnet:?xt=urn:btih:9029C9E27A818EB5D3095F6F3FEE287CFED4F3E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Rise of the Ronin - динамичная ролевая игра, в котор�
 ```bash
 magnet:?xt=urn:btih:B7C8D86802563ABB72E384671C40B42C41DE296F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack Other s [Complete Edition]
 magnet:?xt=urn:btih:E23A419A3C2DCF9A6A9926386C44967F50CC3D36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Combat Mission: Black Sea (2021) [Multi] (2.18.01/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:14F37C98412EF2B59F3EB6A713B1E0EED59685F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Panzer Corps 2 - Field Marshal Edition - ультимативное люксов
 magnet:?xt=urn:btih:2500154D517319C7E4A7BD3513746325A9DE5B86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Legend of Heroes Trails through Daybreak (2023) [Ru/Multi] (1.3.5.0/dlc) Rep
 ```bash
 magnet:?xt=urn:btih:9EF1DB107AD2C5B2C38B1CD0A4A666A38BC15B5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Remnant 2 - это атмосферная и брутальная комбина
 magnet:?xt=urn:btih:448D75D464330A3180F852C205CA3C6C1E7C5E5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ WWE 2K25 представляет вам непревзойденный сост
 ```bash
 magnet:?xt=urn:btih:9611965B66B539CC4BE3F4E6B487AC3779707C87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Trans-Siberian Railway Simulator (2024) [Ru/Multi] (Build 17516909) Repack Wante
 magnet:?xt=urn:btih:7F7FE7E8512B714D22703D3FCB095768F4B8EDEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Nightmare: The Lunatic — это платформер rogue-lite с элеме�
 ```bash
 magnet:?xt=urn:btih:909E261C4CF17B567D2B36E35C5EF9A9FD7ED4F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Rising Sun: Iron Aces (2025) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:B6273D087A545991C065751C97117DBF7C70EDF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ King Arthur: Knight's Tale (2022) [Ru/Multi] (2.0.1/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:6984FAA5B42397BC200716CB3B8E98118AE73526
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Tales of Graces f возвращается в красивой версии, в 
 magnet:?xt=urn:btih:32FAF473EC7B28B53F5BAA59DD872B164CE3B88F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ House of Caravan - атмосферный инди-хоррор с голово�
 ```bash
 magnet:?xt=urn:btih:8AC9C9BE1BA758811343D3CE807142DF3CA2CA68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Sons of The Forest - многопользовательский хоррор о�
 magnet:?xt=urn:btih:9293F0819EBF8F1C787588254587E2415BC76999
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Risk of Rain 2 (2020) [Ru/Multi] (1.3.7/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B527412ED9E5F97655737B9F21A847EC1DA96A3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Immortal Hunters (2025) [Ru/Multi] (0.1.1655.fb15f73) Repack FitGirl
 magnet:?xt=urn:btih:965FE2200AB73AF2A15084035A5AFCD205D796E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Beyond the Ice Palace 2 (2025) [Ru/Multi] (1.1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F140A3C5ACDFD192DFD8781C92DE4243BB0B2FE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Bonesaw - это пошаговый психологический хоррор 
 magnet:?xt=urn:btih:E6AFC441153AE14B4346ADC37A4DFF3D4856B56A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ THE KING OF FIGHTERS XIII GLOBAL MATCH (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:457DB15FDD7F85EE20A80143CEEB055FC80A656E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Hell Division – игра от 3-го лица, представляющая с
 magnet:?xt=urn:btih:C81264485FFB18A4C49490BC0AF80C7E3129A35A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Shift’n Slay – пошаговый тактический рогалик на
 ```bash
 magnet:?xt=urn:btih:C91AA77AB72D184C971CB40AC23A76FA8E67AE53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

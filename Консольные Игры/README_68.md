@@ -19,6 +19,8 @@ WSC Real 11 - Официальная игра Всемирной ассоциа�
 magnet:?xt=urn:btih:DA7E91592AA01557B9CE49C79F571E2876EB2C43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Saints Row: Gat Out of Hell — самостоятельное сюжетное 
 magnet:?xt=urn:btih:1C5594724D10D3D8BF2FBC33EB9EF0F56CE5F512
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Gran Turismo 4 Prologue [PS2] [RUS, PAL] (2004)
 ```bash
 magnet:?xt=urn:btih:8E34363398411059BA0CF1F2966667624E875388
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Sonic Shadow The Hedgehog [GameCube] [PAL] [Multi 5] (2005)
 magnet:?xt=urn:btih:B7A33E0C4EA53DE2A90445C43BECA466FD02619C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Castlevania создана всемирно известной студией Ko
 magnet:?xt=urn:btih:92858DE0D300AD1DCCF2DECB50D983B90CDB7A90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Spyro A Hero Tail [PAL] [Multi 6] (2004)
 ```bash
 magnet:?xt=urn:btih:A4129F6026ECD2B95235000ADA19AD489689BA82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Spyro A New Beginning [PAL] [Multi 6] (2006)
 ```bash
 magnet:?xt=urn:btih:9351521AAA78C1196E38150AA2501492BC83F9D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ Valkyrie Profile 2 Silmeria [PS2] [ENG, PAL] (2006)
 magnet:?xt=urn:btih:2FB228CB3AF9CCEA8290ABABC16E3BC89B43040D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:2FB228CB3AF9CCEA8290ABABC16E3BC89B43040D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ Bakugan: Defenders of the Core является сиквелом игры Bakuga
 magnet:?xt=urn:btih:84AF293F657DE33BE7608CBEDD2C401B1E3E8A4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ HD-переиздание платформера (   Читать дальше.
 magnet:?xt=urn:btih:AB33EBB6260E05159433BDE3F6A096CFB2523AD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ WWE Legends of Wrestlemania (2009) [PS3] EUR (4.30) [Cobra ODE / E3 ODE PRO] [Un
 ```bash
 magnet:?xt=urn:btih:239C740CE5C79A7FF4468B0651EF9E1CEA6B4F25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ Dante's Inferno (2010) [Xbox360] [Region Free] [License] [En]
 magnet:?xt=urn:btih:D0051F8CA6048E853F30FFD0AD675195C6F47B72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ Ice Age 3: Dawn of the Dinosaurs [Wii] [PAL] [Multi 6] (2009)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +405,8 @@ Super Monkey Ball Step and Roll [Wii] [PAL] [Multi 5] (2010)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ Championship Foosball [Wii] [NTSC] [Multi 5] (2008)
 ```bash
 magnet:?xt=urn:btih:1E379FE550031D61C0E50828DD8E9A995A13168A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +459,8 @@ Tom Clancy's Splinter Cell: Double Agent [Wii] [PAL] [Multi 5] (2006)
 magnet:?xt=urn:btih:8FE156845A295D1E36B9E2C85B9284D9B998F530
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ Dead to Rights: Retribution [PS3] [USA] [En] [3.15] [Cobra ODE / E3 ODE PRO ISO]
 ```bash
 magnet:?xt=urn:btih:D46460D7FA6DD8DC4F5CBACBB8B01C150F6B1B34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ Sonic Adventure DX [GameCube] [PAL] [Multi 5] (2003)
 magnet:?xt=urn:btih:87AD2BA6ADFF39735F11AB11D3D5147FC0820426
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ Barnyard [Wii] [PAL] [Multi 6] (2007)
 ```bash
 magnet:?xt=urn:btih:CAA86743814A524EF3AC2235648C4E915C9F3261
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +568,8 @@ Kidz Sports: Crazy Mini Golf 2 [Wii] [Eng] [NTSC] (2010)
 magnet:?xt=urn:btih:3502B46B1D9FE8180D6376BC8EB172C3ACD4287E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +594,8 @@ Terminator Salvation (2009) [PS3] EUR (3.55) [Unofficial] [Ru/En]
 magnet:?xt=urn:btih:114DBC3E2801BF6B2F46B20F510796FCDA18DF1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +619,8 @@ Call of Duty 4: Modern Warfare (2007) [Xbox360] [Region Free] Freeboot [En]
 ```bash
 magnet:?xt=urn:btih:0500FAA1ADCA7C8D96EC07F0F428D8AB23593BCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +648,8 @@ Darksiders II (2012) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Multi]
 magnet:?xt=urn:btih:F2804814785F22F9882C6F3D2E877F4AF49720CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ FIFA Street - футбольная игра повторяющая стиль у
 magnet:?xt=urn:btih:2D8CBC1EDFC199A8BE205C637B6CC1B76C2D3C49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ Need for Speed Undercover [Wii] [PAL] [ENG] (2008)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

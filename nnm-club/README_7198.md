@@ -22,6 +22,8 @@ VA - Естрадна Палитра/Variety Palette (1973) [FLAC 2.0|192/24|ima
 magnet:?xt=urn:btih:8D6E9BE83D0223A49F259F34022772FCCCCBCCF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:8D6E9BE83D0223A49F259F34022772FCCCCBCCF5
 ```bash
 magnet:?xt=urn:btih:038A87AA53400FBB8AE42A1370C246D946644FB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Amy Lynne Johnson - Piano Poetry, Vol. 2: Music to Calm the Mind and Lift the He
 magnet:?xt=urn:btih:0CC3278BB5A3E45B82288328B785694CBFD115B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:0CC3278BB5A3E45B82288328B785694CBFD115B4
 magnet:?xt=urn:btih:932A1AA78C13AF6C8ACDAC369AAC121B6D545CCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ AndroVid Pro представляет собой простой и удобны�
 ```bash
 magnet:?xt=urn:btih:7A82E0D6E665453879DE1760ADEFFBC27AE5CE6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:7A82E0D6E665453879DE1760ADEFFBC27AE5CE6C
 magnet:?xt=urn:btih:C3DEFFABD6DBD98EBEC997DFF8A973B37A094028
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:C3DEFFABD6DBD98EBEC997DFF8A973B37A094028
 ```bash
 magnet:?xt=urn:btih:98802AA0EE6EB4E73B1DC7786CBA475842E309E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ RarmaRadio - программа для прослушивания и запис�
 magnet:?xt=urn:btih:245D53B34541B2B8E05A2D9E08512BB0C395715E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Stronghold: Warlords (2021) [Ru/Multi] (1.9.23494.D/dlc) License PLAZA [Complete
 ```bash
 magnet:?xt=urn:btih:87DE27717A6EF39AFCC3ED6101B7A3EEF48E4377
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:87DE27717A6EF39AFCC3ED6101B7A3EEF48E4377
 ```bash
 magnet:?xt=urn:btih:98AEC6DF8B4F8D8E5D9241A66B4358A5B733FE1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ FiNCH - Rummelbums (2022) [FLAC|24/44.1|tracks|WEB-DL] <Hip-Hop, Eurodance, Pop 
 magnet:?xt=urn:btih:FC6004BB004C55A48AA49E0EE446E46D208A69CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ VA - Best Of Hits Party State (2016) [MP3|128-320 Kbps] <Dancehall, Bachata, Reg
 magnet:?xt=urn:btih:8BE136F3568E3596EE33BF45CB9CC530A568A164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:8BE136F3568E3596EE33BF45CB9CC530A568A164
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:8BE136F3568E3596EE33BF45CB9CC530A568A164
 ```bash
 magnet:?xt=urn:btih:33CC856FDE21B7C05F90C4195C45EAB032C1A4B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:33CC856FDE21B7C05F90C4195C45EAB032C1A4B5
 magnet:?xt=urn:btih:F64A0DEEDA1F95C6A78280AFD1D320DC94030A47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:F64A0DEEDA1F95C6A78280AFD1D320DC94030A47
 ```bash
 magnet:?xt=urn:btih:0516FB2E1DC7D77A8922605CFDD22606A0EDBA01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ BackupLoupe — это альтернативный графический ин�
 magnet:?xt=urn:btih:8F490DB874B2C711C779632F5C57E510A0BBD96F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ magnet:?xt=urn:btih:8F490DB874B2C711C779632F5C57E510A0BBD96F
 ```bash
 magnet:?xt=urn:btih:D26D5210A1FEC5D9149927B72A578A230ED2EF50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:D26D5210A1FEC5D9149927B72A578A230ED2EF50
 magnet:?xt=urn:btih:49CF963BA70357113D9F99129D4EC96BBBBD42A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:49CF963BA70357113D9F99129D4EC96BBBBD42A9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +556,8 @@ magnet:?xt=urn:btih:49CF963BA70357113D9F99129D4EC96BBBBD42A9
 ```bash
 magnet:?xt=urn:btih:1B94C907A0F48F3A363A375EEE968BF626C28E89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ VA - Summer Rock - The Greatest Hits for Your Festival Adventures (2023) [FLAC|L
 magnet:?xt=urn:btih:48AE7BED027D512BBF114593FBDA2988C732E610
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ VA - From Sunset to Sunrise Vol 2 20 Midnight Lounge Tunes (2015) [MP3|320 кб/
 magnet:?xt=urn:btih:E6AD4594E9C928916D03973A510877DD6E29BC6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ magnet:?xt=urn:btih:E6AD4594E9C928916D03973A510877DD6E29BC6D
 magnet:?xt=urn:btih:FF4D5A5491210D57FEDCC9BC0CE75251AD02BF9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +669,8 @@ magnet:?xt=urn:btih:FF4D5A5491210D57FEDCC9BC0CE75251AD02BF9D
 magnet:?xt=urn:btih:953AFA103B8F67F75FDC85ED24F2C4FAA9A5FF0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ Supreme: Бунтарский рэп / Supremes / Authentik (2021) BDRemux [H.26
 ```bash
 magnet:?xt=urn:btih:7ECFB3932C565C53DCEA7A24D638E2B445B0E7BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

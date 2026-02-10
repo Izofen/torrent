@@ -22,6 +22,8 @@ VA - Cyberpunk 2077 - Original Score EP (2020) [AAC|~331 Kbps] <Soundtrack>
 magnet:?xt=urn:btih:775C9B29ED40643D51BD75BD9E4AFB05372F5867
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:775C9B29ED40643D51BD75BD9E4AFB05372F5867
 ```bash
 magnet:?xt=urn:btih:95B76E15D97650BF501403F43713252FD2E38CEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - Best of 2019 Dance Music (2019) [MP3|320 Kbps] <Dance, House, Electro House
 magnet:?xt=urn:btih:3DCF918CEFBF98BA26B8988E6F545EC72C4E552D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:3DCF918CEFBF98BA26B8988E6F545EC72C4E552D
 ```bash
 magnet:?xt=urn:btih:A568A221EE4F09F20D29AF8F45D43C84D9A2EA2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ P.J. Perry - My Ideal (1989) Unity Records [FLAC|Lossless|tracks + .cue] <Hard B
 magnet:?xt=urn:btih:3288C0F2EAB8FB1B347859529E6D82935C82F211
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:3288C0F2EAB8FB1B347859529E6D82935C82F211
 ```bash
 magnet:?xt=urn:btih:7872D925A94C1F39A01FFD871212EA76BBEA164C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ Fourplay - Best of Fourplay (1997) 2020 Remastered [FLAC|24/44.1|Lossless|WEB-DL
 magnet:?xt=urn:btih:CE0CC164969025D81B7228634B09DDE489F0D0E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:CE0CC164969025D81B7228634B09DDE489F0D0E7
 ```bash
 magnet:?xt=urn:btih:50AEF86EA5349DF4CA50CD5763E9FF6339A5247F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ VA - Trance Universe Vol.01 (2019) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:DB73E9DDAFE8D2EEE425B300D0F8748B6D6DB163
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:DB73E9DDAFE8D2EEE425B300D0F8748B6D6DB163
 magnet:?xt=urn:btih:DDA490B5718219A44578A87E137786D9CE88CC6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:DDA490B5718219A44578A87E137786D9CE88CC6E
 ```bash
 magnet:?xt=urn:btih:CFF02CCC10E469AEDBF6F400BF724FCF7F62973B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:3E0B6B49086AC3E87A75E5B538B404FB006E3C5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +358,8 @@ Slayer - Reign In Loud. Live at Zepp Namba, Osaka, Japan, October 24th (2012) Bo
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +383,8 @@ Slayer - Reign In Loud. Live at Zepp Namba, Osaka, Japan, October 24th (2012) Bo
 ```bash
 magnet:?xt=urn:btih:D0EF75415469B16BE071524E7026C7383F24B140
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +410,8 @@ magnet:?xt=urn:btih:D0EF75415469B16BE071524E7026C7383F24B140
 magnet:?xt=urn:btih:D718BF95807AA174D1280207F1317A854D47BAB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +435,8 @@ magnet:?xt=urn:btih:D718BF95807AA174D1280207F1317A854D47BAB9
 ```bash
 magnet:?xt=urn:btih:9FF52B7098707CE09BA22A78EF0AE1DCACF3BE20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +462,8 @@ magnet:?xt=urn:btih:9FF52B7098707CE09BA22A78EF0AE1DCACF3BE20
 magnet:?xt=urn:btih:500C551D05A6652ED2BC6B88827E70790CDE5A9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ magnet:?xt=urn:btih:500C551D05A6652ED2BC6B88827E70790CDE5A9F
 magnet:?xt=urn:btih:4813972CE09BB17664289BE91FA4603A9C7B8C8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ magnet:?xt=urn:btih:4813972CE09BB17664289BE91FA4603A9C7B8C8A
 ```bash
 magnet:?xt=urn:btih:8BC45106CAA5012A52B75EDF53E779E4EDC42D81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +543,8 @@ Jimmy Forrest - Out Of The Forrest (1961) 1994, Original Jazz Classics [APE|Loss
 magnet:?xt=urn:btih:CE56BE59341AAD6A59EC66928BA57F785B08E915
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ StoneWire - Life As We Know It (2019) [MP3|320 Kbps] <Hard Rock>
 magnet:?xt=urn:btih:E56FD2AB2FC97ED631A8AA811C419D44FE49F28E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +597,8 @@ magnet:?xt=urn:btih:E56FD2AB2FC97ED631A8AA811C419D44FE49F28E
 ```bash
 magnet:?xt=urn:btih:E1CD7EAF22F7DC18584A08B95490BA4BC62B475F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +624,8 @@ magnet:?xt=urn:btih:E1CD7EAF22F7DC18584A08B95490BA4BC62B475F
 magnet:?xt=urn:btih:34CE44650108F583BFD215F9C38806DD7606B8EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +649,8 @@ magnet:?xt=urn:btih:34CE44650108F583BFD215F9C38806DD7606B8EA
 ```bash
 magnet:?xt=urn:btih:D598B910FE85989A8D9232C4A82576453AA4D9B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +676,8 @@ magnet:?xt=urn:btih:D598B910FE85989A8D9232C4A82576453AA4D9B9
 magnet:?xt=urn:btih:BE17A88FA05A9A768F891049F370E3BA56697656
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ magnet:?xt=urn:btih:BE17A88FA05A9A768F891049F370E3BA56697656
 ```bash
 magnet:?xt=urn:btih:5D81570041E2CF961E794E4F827EB9EAA08E6FE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

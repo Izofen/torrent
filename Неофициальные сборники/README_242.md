@@ -1,3 +1,32 @@
+###  Публикация: 1574159   (407479) от 03.09.2022
+
+VA - Remixes Box The Saved: The Perfect (2022) CD, Compilation [MP3|320 Kbps] <Club, Progressive, Hardstyle, Dubstep>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taylor Swift - willow (dancing witch version) (Elvira Remix) (Clean Short Edit)
+02. Saint JHN ft Imanbek - Roses (Loudar Hardstyle Bootleg) (Clean Radio Edit)
+03. Taylor Swift - willow (dancing witch version) (Elvira Remix) (Clean Radio Edit)
+04. Fat Ass Friction - Fat Beat (Richard Fraioli Remix) (Dirty Radio Edit)(   Читать дальше...   )Жанр: Club, Progressive, Hardstyle, DubstepПродолжительность: 02:16:37 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0281787B82709D74282E68A7BF19FDA86057CA8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 559301   (407533) от 14.10.2012
 
 VA - FreeFall Again (2012) [MP3|320 кб/с]<Trance>
@@ -27,6 +56,8 @@ VA - FreeFall Again (2012) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:8AFB9988C2C8DF2526B95EE7C36A6A9BB2A9F4E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -61,6 +92,8 @@ VA - Mega Cut Dreams (2012) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:AB5A10C3D4CD74C50A20560FA19FC33A504ECBFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -87,6 +120,8 @@ VA - Громкие новинки месяца Vol.12 (2018) [MP3|320 Kbps] <Po
 ```bash
 magnet:?xt=urn:btih:470B08BE98CE8D2C9B9385742FFD128B1E91FEF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +150,8 @@ VA - ЕвроХит Топ 40 Europa Plus 05.10.2018 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:003AB3717310F95A66BC7C6FBF7517B9A062B42B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +178,8 @@ VA - The Official UK Top 40 Singles Chart 05.10.2018 [MP3|320 Kbps] <Pop, Dance,
 ```bash
 magnet:?xt=urn:btih:4ACAE851A209F19D91FDF5BDDD9A790BF4669AC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +208,8 @@ VA - Beatport Progressive Trance: Sound Pack #181 (2020) [MP3|320 Kbps] <Progres
 magnet:?xt=urn:btih:D469DA901CBDB51790CDD3D0A2FFDE97A9BEC40F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +236,8 @@ VA - Vaginal Frictions Magic Love (2016) [MP3|96-320 Kbps] <Downtempo,Sexy, Loun
 ```bash
 magnet:?xt=urn:btih:67424B354C81E6FA40EAE1D98E24A1EC4778061B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +266,8 @@ VA - Beatport Progressive House: Electro Sound Pack #179 (2020) [MP3|320 Kbps] <
 magnet:?xt=urn:btih:367EEC3C3E31D2B0F4F430F6510961CA927736EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +295,8 @@ VA - Beatport Deep House: Electro Sound Pack #176 (2020) [MP3|320 Kbps] <Deep Ho
 magnet:?xt=urn:btih:C7FD6A16364A35A05B6F6D59EABD30A3127DAB0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +323,8 @@ VA - Свежак Vocal Trance NNM (2020) [MP3|320 Kbps] <Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:0633D5DAFA345A0132EEDE95BA1C7BBF4487E30D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +359,8 @@ VA - Top 100 Самые скачиваемые треки vol.8 (2012) [MP3|256 
 magnet:?xt=urn:btih:A7C148D6BFE6828A897F2CAB69B9D962ABDA5C35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +387,8 @@ VA - Музыкальное свежье русский выпуск 4 (2015) [M
 ```bash
 magnet:?xt=urn:btih:7D0945C75C2067F62DF66C1D67CE8CD881DA0C0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +417,8 @@ FR (Франция) - 29 треков(   Читать дальше...   )Жан�
 magnet:?xt=urn:btih:5296A419E4EACC8DE89880DBCFC116665EAAC179
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +445,8 @@ VA - Journey. Relaxing Instrumental Piano Bar and Smooth Jazz Music (2016) [MP3|
 ```bash
 magnet:?xt=urn:btih:29695D6AE7AC68CAD186B6BAC30CD350E7F90689
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +475,8 @@ VA - Фея Дождя. Песни на стихи Франчески Тотти
 magnet:?xt=urn:btih:BA6D69BC77F76C083B15C2738347237305BAE8CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +503,8 @@ VA - Uplifting Sexy Trance Sound (2015) [MP3|320 кб/с]<Trance, Uplifting Tran
 ```bash
 magnet:?xt=urn:btih:88694E49CFBA1FF0714E49289ECE29FEC2DA23DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +533,8 @@ VA - Sapphire Lounge (30 Luxury Chillout Tunes) (2013) [MP3|320 кб/с]<Lounge,
 magnet:?xt=urn:btih:CE88F38888F146AB3BDD1C8437DA14D7663D9640
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +561,8 @@ VA - Sunrise Avenue, Vol. 2 20 Lounge & Chill-Out Pearls (2015) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:AC8AC31BC1C12D17261678D0485545F16E54E3E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +591,8 @@ VA - Sunrise Avenue Vol 1 20 Lounge and Chill-Out Pearls (2015) [MP3|320 кб/с
 magnet:?xt=urn:btih:34DA432AD713B549B1B9885943E3DAE661E38EC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +619,8 @@ VA - About Reality And Fantasy (2015) [MP3|320 кб/с]<Club, Funky House>
 ```bash
 magnet:?xt=urn:btih:C31372592F7D02D13EAFCEFD5907E43C3FE63B35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +655,8 @@ VA - Хиты в тачку на прокачку! Vol.4 (2012) [MP3|256 кб/с
 magnet:?xt=urn:btih:5E8C5BAAB14A62273C6802238CCE8D83C47AA3C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +689,8 @@ VA - Осенний Плей-Лист 50/50 (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:3502F2C19C27EF6EB7DA8532DA6BCB923925BFAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -652,6 +725,8 @@ VA - Модный Хит В Машину! Русский (2012) [MP3|224 кб/с
 magnet:?xt=urn:btih:13C1663A789236CD6B83B1B50BCA7765E1FB2212
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -685,6 +760,8 @@ VA - Последние новинки в мире музыки от Vanovlad 50
 magnet:?xt=urn:btih:A90676587F09C39839DC225A07911297BE35FE6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -712,32 +789,7 @@ VA - Блатная волна Радио Шансон (2016) [MP3|256 Kbps] <Ш
 magnet:?xt=urn:btih:9F9D2E108A207EA6D8DFBF9519FA7D8980D347D3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066747   (408391) от 28.10.2016
-
-VA - Promo Only Dance Radio October (2016) [320] <Tropical, Indietronica, Club, Progressive>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Britney Spears F./G-Eazy - Make Me (Marc Stout & Tony Arzadon Radio Edit) 03:56
-02. Cash Cash & Digital Farm Animals F./Nelly - Millionaire (Ftampa Remix - Clean) 02:40
-03. Christina Aguilera - Telepathy (Rare Candy Radio Edit) 03:11
-04. Deorro F./Pitbull & Elvis Crespo - Bailar (Remix) 02:37(   Читать дальше...   )Жанр: Tropical, Indietronica, Club, ProgressiveПродолжительность: 01:04:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15DAEFFD2CF03AE7156B93F23063874D65B6BBB4
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

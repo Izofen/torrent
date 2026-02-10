@@ -1,3 +1,32 @@
+###  Публикация: 1377028   (853151) от 21.04.2020
+
+Axel Rudi Pell - 100% Axel Rudi Pell (2020) 2CD [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Clown Is Dead
+02. The Crusaders of Doom
+03. The Line
+04. Mistreated (Live)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 11:27:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF17345EBF6DD384E78AD81DED383FF38C2A618E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377083   (853154) от 21.04.2020
 
 Whitesnake - 100% Whitesnake (2020) [MP3|320 Kbps] <Rock, Hard Rock>
@@ -21,6 +50,8 @@ Whitesnake - 100% Whitesnake (2020) [MP3|320 Kbps] <Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E165B666446DA2B0A56A79E9D4D4BAE6D2BE9C58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -50,6 +81,8 @@ VA - The Official UK Top 40 Singles Chart (23-03-2014) [MP3|320 кб/с]<Pop, Da
 magnet:?xt=urn:btih:DD1419A73E1E48F1F8631ECF7CB7D916877DFAD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +109,8 @@ VA - Enigmatic Vibes (2020) [MP3|320 Kbps] <Enigmatic, New age>
 ```bash
 magnet:?xt=urn:btih:F4BF044E09D4EE79593A45B216BBD7445BFC3A81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -104,6 +139,8 @@ VA - 100% Classic metal (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
 magnet:?xt=urn:btih:48AE670AB954987D153A97A27F3D7FE7A6297604
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +167,8 @@ VA - 80s Pop Rock (2020) [MP3|320 Kbps] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:1F083B1D37088F0646098F4D56390E24E5268B26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -158,6 +197,8 @@ VA - Зайцев.Нет: Музыка весны (2017) [MP3|192-320 Kbps] <П�
 magnet:?xt=urn:btih:ADBB87AD7A91509976325D107539DA46C43D5136
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +225,8 @@ VA - Cosmic Rock (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:05302458CF0518A46EC5936DE6D71E344F8B03F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +255,8 @@ VA - Music for your Car (2017) [MP3|320 Kbps] <Dance , House>
 magnet:?xt=urn:btih:B0E77309932F4FB5532745038013BB46226597A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +283,8 @@ VA - Рок в Качалку - Мотивация (vol. 4) (2016) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:1CB021C3EC6CB20577D376E13A5A6D826E6510A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +313,8 @@ VA - Ultimate Hits Hottest Moves (2017) [MP3|320 Kbps] <Dancehall, Latin, Reggae
 magnet:?xt=urn:btih:2A23FE200220648BDB4B0CFF12B1E6B781074487
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +341,8 @@ VA - Music For Everyone - Tropical House Vol.1 (2017) [MP3|320 Kbps] <House, Tro
 ```bash
 magnet:?xt=urn:btih:3532E2FE2ED659764C7407DF2BE2B0AD8F9DE4D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +371,8 @@ VA - Снежный популярный отрыв. Сборник № 7 (2017)
 magnet:?xt=urn:btih:89DCEB7BED8D0716092308BA5FCBB34F2E7D6113
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +397,8 @@ VA - Dubstep 100 Top Hits Bass Blast DJ Mix (2016) [MP3|320 кб/с] <Dubstep>
 ```bash
 magnet:?xt=urn:btih:53DFD301148E36C4F428475ACCBF5B60A936C739
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +427,8 @@ magnet:?xt=urn:btih:53DFD301148E36C4F428475ACCBF5B60A936C739
 magnet:?xt=urn:btih:FE3DB03514296F53ECC9BDA8CEE69DA1C9306D7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +455,8 @@ VA - Empire Records - ANDRS Parody 2 (2017) [MP3|320 Kbps] <Club>
 ```bash
 magnet:?xt=urn:btih:8D390C709B82CBB24375A46FCE507EA8CA7FC652
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +485,8 @@ VA - Cookies With A Smile: Ibiza Deep House (2016) [MP3|320 кб/с] <Deep House
 magnet:?xt=urn:btih:096108DBCCCB88B2F2945E3DC96EC72922AD0772
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +513,8 @@ VA - Блатные струны на Шансоне 3 (2016) [MP3|256 кб/с] 
 ```bash
 magnet:?xt=urn:btih:64680AD6950303DA14F4162A7B797A70849E5B3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +543,8 @@ VA - All Pop Tracks Place Today (2016) [MP3|320 кб/с] <R&B, Country, Hip-Hop,
 magnet:?xt=urn:btih:AA0BC49ADB744D5A0BBB9FF440A81DD22170AEC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +571,8 @@ VA - Шансон Удачный 8 (2016) [MP3|256 кб/с] <Shanson>
 ```bash
 magnet:?xt=urn:btih:8392B3622519DA7F00670C9CEF1A57F92F2EAD7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +601,8 @@ VA - 90's Mixtape (2021) [MP3|320 Kbps] <Pop, Rock, R&B, Disco, Synthpop>
 magnet:?xt=urn:btih:EB7F4C2BF65506A786D01BA270515F68B770FB41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +630,8 @@ VA - Kiss FM Top 40 (21.09) (2021) [MP3|320 Kbps] <Pop, Dance, Disco, Synthpop>
 magnet:?xt=urn:btih:BE7D304135D26CEA676D9D9EA04DF75EE109D343
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +655,8 @@ VA - Eurovision Song Contest. Malmo 2013 (2013) [MP3|320 кб/с]<Pop>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +685,8 @@ VA - Music News vol.136 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 magnet:?xt=urn:btih:459D5E1693CCF5098B17A3FE9149279F1FBC0A3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +713,8 @@ VA - Fall Trends (2021) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:0CADF05A63C74A47E3AF7D8C080BA91B8FDE41D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -666,32 +743,7 @@ CD1
 magnet:?xt=urn:btih:26CFE8D91E9D92211CD6F79E7F01DC4BECBD68BC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498588   (854407) от 28.09.2021
-
-VA - Best Of Drum & Bass (2021) [MP3|320 Kbps] <Drum & Bass, Drumfunk, Soulful>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nero - Promises
-02. Chase & Status Feat. Liam Bailey - Blind Faith
-03. Sub Focus Feat. Alpines - Tidal Wave
-04. Wilkinson & Becky Hill - Afterglow(   Читать дальше...   )Жанр: Drum & Bass, Drumfunk, SoulfulПродолжительность: 01:43:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD61DBF1064CB1655AB9F00DC6316A7089E08385
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

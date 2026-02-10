@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:8333910766A7604F2E79D7568E457355D80F63E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:8333910766A7604F2E79D7568E457355D80F63E6
 ```bash
 magnet:?xt=urn:btih:2F973A6578AA259EA45D5804A2CF31AFDDF97437
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:2F973A6578AA259EA45D5804A2CF31AFDDF97437
 magnet:?xt=urn:btih:47F9AE3D835148F48544A0567E064382D907844E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:47F9AE3D835148F48544A0567E064382D907844E
 magnet:?xt=urn:btih:F22B246A16818E14FB814A994975BFDBB43BD594
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Doug Lowe | Java All-in-One For Dummies, 7th Edition (2023) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:192BA4911EB529977C1C0CB916CAAB1876F1E28B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:192BA4911EB529977C1C0CB916CAAB1876F1E28B
 magnet:?xt=urn:btih:C99CF5DD177BA7660EA469BC050AB7610C64D33B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:C99CF5DD177BA7660EA469BC050AB7610C64D33B
 ```bash
 magnet:?xt=urn:btih:5FF0D96F53EE1FD6F747A72A70631DBFB0212356
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:5FF0D96F53EE1FD6F747A72A70631DBFB0212356
 magnet:?xt=urn:btih:4289D9A8225A342AD1684425DE0C0A3D68A707DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Photoshop is a stunning program that puts the power of a professional photograph
 ```bash
 magnet:?xt=urn:btih:54ACE16BC477CAF147A7356023F114F3D7101402
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:54ACE16BC477CAF147A7356023F114F3D7101402
 magnet:?xt=urn:btih:E361E3F07F543BE3CE5355949DCF341E2232F097
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:E361E3F07F543BE3CE5355949DCF341E2232F097
 ```bash
 magnet:?xt=urn:btih:7EBF2B8225E27A4C39AE98DED1B922B786E69122
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ This book is all about making your Python better. To help you manage your codeba
 magnet:?xt=urn:btih:0FE2C4B0C74FE1211D95F67E0828B11CCDB41DDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:0FE2C4B0C74FE1211D95F67E0828B11CCDB41DDB
 ```bash
 magnet:?xt=urn:btih:600098277614CA149E514BB4D7F833EA2E3B54B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:600098277614CA149E514BB4D7F833EA2E3B54B4
 magnet:?xt=urn:btih:A271525E46EFC292D7C3A3A4FAE9A07BF3517B94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:A271525E46EFC292D7C3A3A4FAE9A07BF3517B94
 ```bash
 magnet:?xt=urn:btih:8B83D6E064113F5443585D01CCC998D9FF0EB995
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:8B83D6E064113F5443585D01CCC998D9FF0EB995
 magnet:?xt=urn:btih:C3B77671E5A04381DA271B0CC702EFD583B0F3F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ ABBYY FineReader PDF 15 — это универсальный инструмен
 ```bash
 magnet:?xt=urn:btih:A23F852D6F29C3ACF83128F7BF86557787E8E868
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ All programs (   Читать дальше...   )Жанр: Программар
 ```bash
 magnet:?xt=urn:btih:A3D067E85DD3458D4A5E046EB8CBB407F5C678AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:A3D067E85DD3458D4A5E046EB8CBB407F5C678AF
 magnet:?xt=urn:btih:145ABEA0A73EABAE8653C2F45FA466197B06F63D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:145ABEA0A73EABAE8653C2F45FA466197B06F63D
 ```bash
 magnet:?xt=urn:btih:11AA4D49E63D02906BB283FDE9B7364EB1F6792B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ Python — язык программирования №1 для машинно�
 magnet:?xt=urn:btih:224BFEAC12AF9E1FD9662A89879D8CDB2A994152
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:224BFEAC12AF9E1FD9662A89879D8CDB2A994152
 magnet:?xt=urn:btih:99C4427734B0DB2D0E91C858FBBC1A57DEF11E3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:99C4427734B0DB2D0E91C858FBBC1A57DEF11E3C
 ```bash
 magnet:?xt=urn:btih:E27E7B5D59512E4D5E6A7A49E0792ADA48E0AA51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ Advanced animation - одна из его ранних работ, являет�
 magnet:?xt=urn:btih:5B6CB74C6698E144CF8D3A844475886F9ED1C2A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:5B6CB74C6698E144CF8D3A844475886F9ED1C2A7
 magnet:?xt=urn:btih:DAF3DAF3A5E7E192EB040DEE47474DD94D7347F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:DAF3DAF3A5E7E192EB040DEE47474DD94D7347F9
 ```bash
 magnet:?xt=urn:btih:0A09756CA45867E5438555806567A809F526263D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

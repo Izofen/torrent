@@ -22,6 +22,8 @@ VA - Essential Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 magnet:?xt=urn:btih:802125168D3EADCE13003AD4A2617652D452DC6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:802125168D3EADCE13003AD4A2617652D452DC6A
 magnet:?xt=urn:btih:E6A8A0CCC4A63286DD4AA7F1A58B9ACFAA1F5B90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:E6A8A0CCC4A63286DD4AA7F1A58B9ACFAA1F5B90
 ```bash
 magnet:?xt=urn:btih:69E91F24F08C1C5F6F70F1B6D76037C5F42F2049
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:69E91F24F08C1C5F6F70F1B6D76037C5F42F2049
 ```bash
 magnet:?xt=urn:btih:A6D556CD61368D6CFF59714E608B668B3FBA0089
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ CD1 - Time Silent Radio vii:
 magnet:?xt=urn:btih:DB7E2DC4E610D25972294F12D601CFE7AD99CEDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ Text Editor Pro 31.3.0 + Portable + Bonus [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6D6CB7CD736BD1E25C460529F0A659F20C83FCA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +189,8 @@ Judas Priest - Sad Wings of Destiny (1976) Remaster, 2025, Exciter Records [FLAC
 magnet:?xt=urn:btih:11F789F2A7F5B01444961C5574CC4C9F9412915C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ Clouds - Desprins (2025) [MP3|320 Kbps] <Melodic  Funeral Doom Metal>
 ```bash
 magnet:?xt=urn:btih:F5407EDAC9D3926A7F18535F2D9EEF8D221F3220
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -231,6 +247,8 @@ VA - Sun Kissed, Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out,
 magnet:?xt=urn:btih:39E9E84C8F402BF1399EB11DA228E51419445B96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -257,6 +275,8 @@ The Flirts - Castle Gold Collection, Vol. 18 (1991) [OGG Vorbis|480 Kbps] <Elect
 ```bash
 magnet:?xt=urn:btih:F9389380DAE919B31A2C11F73B343A74DAFA3CBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +305,8 @@ The Flirts - Castle Gold Collection, Vol. 18 (1991) [AAC|320 Kbps] <Electronic, 
 magnet:?xt=urn:btih:897FD5D830D632F51013D24FF54061C1C85F92AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +333,8 @@ Markus Schulz - Global DJ Broadcast World Tour (DPRTMNT Toronto, Canada) (2025-0
 ```bash
 magnet:?xt=urn:btih:212D942A4A46B0E81ACEEC6D2E3D46EE887A4E7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +363,8 @@ VA - Top 11 November 2024 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <
 magnet:?xt=urn:btih:BAFEA268AB87E6E36579AAAD14B8EB092548002D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +392,8 @@ The Last Sentinel - Riftborn (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard 
 magnet:?xt=urn:btih:4F7BCB2A56FB6B58944115DA670AD4DF554401FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +419,8 @@ magnet:?xt=urn:btih:4F7BCB2A56FB6B58944115DA670AD4DF554401FD
 ```bash
 magnet:?xt=urn:btih:CE39750980AB9C848024C8F357567995F3EA5D7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +449,8 @@ The Last Sentinel - Eternal Blade Chronicles (2025) [FLAC 24/44.1|Lossless|WEB-D
 magnet:?xt=urn:btih:85101FB19699C9A11EF4D30C724587B7DECAAF93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +478,8 @@ The Essence - Caverns (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:7F4987A8E3DFFBE609FC7A2F105E0FFC633CD6EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +503,8 @@ magnet:?xt=urn:btih:7F4987A8E3DFFBE609FC7A2F105E0FFC633CD6EF
 ```bash
 magnet:?xt=urn:btih:3C52CE0B5D69D7BD6E12851B02C7744C562174E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +533,8 @@ Anabasi Road - Ecce Homo (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 magnet:?xt=urn:btih:F10C81B82BD4B443F6781F242F15B6794041F859
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +561,8 @@ Wlodek Gulgowski - Soundcheck (1976) (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:65A3AEEC0F16F652E0C86DB35D460820FE544ABD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +591,8 @@ Soulstance and Lo Greco Bros - The Cinematic Sound Of Soulstance (2025) [FLAC 24
 magnet:?xt=urn:btih:02FAC45C3571A14284552DC3001DD7BE40684538
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +620,8 @@ Conniption - The Theatre of Invention (2025) [FLAC|Lossless|WEB-DL|tracks] <Heav
 magnet:?xt=urn:btih:81DE54F771DBED915968E2B01D66F7391626BC38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +645,8 @@ Momodora: Moonlit Farewell - новая игра из серии Momodora. От�
 ```bash
 magnet:?xt=urn:btih:106F550C50ED7638601B559157D79075ED4AC96D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +675,8 @@ magnet:?xt=urn:btih:106F550C50ED7638601B559157D79075ED4AC96D
 magnet:?xt=urn:btih:F18A16EBB41C941B0821C7D628BCF780E80E19E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +701,8 @@ magnet:?xt=urn:btih:F18A16EBB41C941B0821C7D628BCF780E80E19E7
 magnet:?xt=urn:btih:C4EE9E0F4010C9DFA514096EDF5679CAAED4F555
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -676,6 +726,8 @@ magnet:?xt=urn:btih:C4EE9E0F4010C9DFA514096EDF5679CAAED4F555
 ```bash
 magnet:?xt=urn:btih:FE5BB59B02DD87369E5F667B87A1ADE17E10DA37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

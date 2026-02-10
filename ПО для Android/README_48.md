@@ -19,6 +19,8 @@ Coloring / Раскраска v2.0.94 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:43B5179FB8B4C93003F79B4E93A1074CB8943F93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ GPS АнтиРадар v41.1 Mod by viktorovich31 [Ru]
 ```bash
 magnet:?xt=urn:btih:C37DFC09B56B4475F4C202466AFBCD1BD5C82262
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ HeadUp Display (HUD) – это возможность использовать 
 magnet:?xt=urn:btih:B5B72DF2DB222F516E5DC6A2325A501CE2ED6CCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:B5B72DF2DB222F516E5DC6A2325A501CE2ED6CCB
 ```bash
 magnet:?xt=urn:btih:8E7E5B8E6E2F818827A56147F8811823E123C6C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ PhotoTune - Улучшитель фото v4.4.8 Mod by Raju054 [Multi]
 magnet:?xt=urn:btih:4A7BE5970D18773B80EBB59713881D749A3648EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:4A7BE5970D18773B80EBB59713881D749A3648EC
 ```bash
 magnet:?xt=urn:btih:BC23A8F73951BE7F18227540502047E81F31F5DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ jetAudio это музыкальный проигрыватель с 10/20 по�
 magnet:?xt=urn:btih:09AE47055FB8223CC52730C2D91F88A14FD9BDD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Netmonitor: Cell & WiFi  v1.20.0 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:27E57F3922260643F8F584FE82E7F5E7708C5E27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Reface v4.2.0 Mod by Mixroot [Multi]
 magnet:?xt=urn:btih:BC5674BC1BBCF999ECA88BE1F42EBADEEC3B7804
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ ToonMe v0.6.103 Mod by maxi123444 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9526D14DF6FFE9609B7EDA3459A18DE66A133438
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ SnapEdit — одно из лучших приложений для редакт
 magnet:?xt=urn:btih:830226C0DB078D0CAC940FB26C7503465141E508
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ jetAudio это музыкальный проигрыватель с 10/20 по�
 ```bash
 magnet:?xt=urn:btih:DE7DA300DD00055E5767466F0125FAB6BFDAF174
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:DE7DA300DD00055E5767466F0125FAB6BFDAF174
 magnet:?xt=urn:btih:7E20E377D84D37D0BCA681D74188CC44BF315A01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Cake recipes / Рецепты тортов v11.16.426 Mod by youarefinished [Ru/
 ```bash
 magnet:?xt=urn:btih:26318BB6DDA3462762584E1825A4639C36EC64A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Hear Clear / Услышать на расстоянии v1.1.6.9 Mod by Alex.Str
 magnet:?xt=urn:btih:4D2F4B893F494588BA93A5463304044FBCF9CAA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:4D2F4B893F494588BA93A5463304044FBCF9CAA2
 ```bash
 magnet:?xt=urn:btih:E4A14BEA102ABB2BCB3EA04BE1393DCB9D1083BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Perfect365 Makeup Photo Editor v9.45.9 Mod by ModExPro [Ru/Multi]
 magnet:?xt=urn:btih:EB97DA3AC5AC8ADE72246FDFD17F4664607343EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Perfect365 Video Makeup Editor v1.6.20 Mod by ModExPro [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D43F7E4E05787961DFFFC9C2D06EB3C83CC2EC30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:D43F7E4E05787961DFFFC9C2D06EB3C83CC2EC30
 magnet:?xt=urn:btih:B0EEB8CD88EAA0D3D5D1B2E74D017F41673D14F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Plus Messenger - неофициальное приложение для обме
 ```bash
 magnet:?xt=urn:btih:0DA3B705E5312593EFFDED5C7387FBC0A035556B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ Display Tester v4.60 Mod by Balatan, serborkr  [Ru/En]
 magnet:?xt=urn:btih:EC83B59736C0DD4DDCD8EC1B40953C42A8AA89A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ Astrolapp Live Planets and Sky v5.2.1.8 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:41A3737AF86B81C5FE9096AF5400B860A2AEB175
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Camera Translator использует самые передовые техно�
 magnet:?xt=urn:btih:C79E04F22846F316E3410C283CA3B4C9EAD0EEAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ SnapEdit — одно из лучших приложений для редакт
 magnet:?xt=urn:btih:C06B39E0A8AB8219435DBFBD04955C81F14598CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Astrological Charts / Астрологические Карты Pro v10.5 [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:561BD9FF196904575B70A777EC18CA2E24B2CE83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:561BD9FF196904575B70A777EC18CA2E24B2CE83
 ```bash
 magnet:?xt=urn:btih:58A5A83A3278E30EDA956D9AA90484A59A0A7BF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

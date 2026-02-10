@@ -19,6 +19,8 @@ Microsoft выпустила фирменный браузер Edge на баз�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Microsoft готовит обновление Windows 11 23H2, которое д
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Microsoft готовит обновление Windows 11 23H2, которое д
 magnet:?xt=urn:btih:87F231E4E3E07DD7F63BE5DF4FAC1639BB4C3F20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ FreeCAD – это очень мощный и серьезный продукт,
 ```bash
 magnet:?xt=urn:btih:425DA96F52802DDE322A925FE49ABBCFB6B580B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:425DA96F52802DDE322A925FE49ABBCFB6B580B2
 magnet:?xt=urn:btih:227C61E399C930964C33DC12DEC0E2B994A93384
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:227C61E399C930964C33DC12DEC0E2B994A93384
 ```bash
 magnet:?xt=urn:btih:BBE3C49439B67C115DE3019771E0D1CDFDC58E70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:BBE3C49439B67C115DE3019771E0D1CDFDC58E70
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Master PDF Editor — простая, но эффективная програм
 ```bash
 magnet:?xt=urn:btih:67C8CA36E93314B6C14D0A768218B1A003818B42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:67C8CA36E93314B6C14D0A768218B1A003818B42
 magnet:?xt=urn:btih:E401F006597CE0D4B0FEDDEEF044D05F0E61BF63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:E401F006597CE0D4B0FEDDEEF044D05F0E61BF63
 ```bash
 magnet:?xt=urn:btih:6416AE2EE350B7D7398ECA7BF8BCB7B81D22E34C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:6416AE2EE350B7D7398ECA7BF8BCB7B81D22E34C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:6416AE2EE350B7D7398ECA7BF8BCB7B81D22E34C
 ```bash
 magnet:?xt=urn:btih:9C6C3B847A31FB94DC49DE155CB2A041BBCEF47D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:9C6C3B847A31FB94DC49DE155CB2A041BBCEF47D
 magnet:?xt=urn:btih:25D4E88333F399EE9F91E86FD46B876367AEC209
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ IAA обновила протокол реагирования на обнару
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ IAA обновила протокол реагирования на обнару
 magnet:?xt=urn:btih:0B44ED2C116D2AA5A162EEF496D9E48AFF430A8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Agatha Christie - Hercule Poirot: The London Case (2023) [Ru/Multi] (1.0) Scene 
 ```bash
 magnet:?xt=urn:btih:7C7AFE3D789B8AC18BCFCB67CE613DFE84A60A26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:7C7AFE3D789B8AC18BCFCB67CE613DFE84A60A26
 magnet:?xt=urn:btih:1A7B4BB7CB49A036095A7F17D4FF64021E56500D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ magnet:?xt=urn:btih:1A7B4BB7CB49A036095A7F17D4FF64021E56500D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:1A7B4BB7CB49A036095A7F17D4FF64021E56500D
 magnet:?xt=urn:btih:8AE85FFF75B249471F7764A12439FF2D3C8C6D71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ magnet:?xt=urn:btih:8AE85FFF75B249471F7764A12439FF2D3C8C6D71
 magnet:?xt=urn:btih:52CBABF3BC4D1C9D37838DD93D4664689448A4A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +538,8 @@ magnet:?xt=urn:btih:52CBABF3BC4D1C9D37838DD93D4664689448A4A9
 ```bash
 magnet:?xt=urn:btih:E1FCB74500179EFCFD608EA73374F1F8C83C4051
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ magnet:?xt=urn:btih:E1FCB74500179EFCFD608EA73374F1F8C83C4051
 magnet:?xt=urn:btih:7E16EBEFA5EB050FE83DCADB6F8CF9CE13F22550
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ magnet:?xt=urn:btih:7E16EBEFA5EB050FE83DCADB6F8CF9CE13F22550
 ```bash
 magnet:?xt=urn:btih:8CEA6EC4A58B1B4C99390CFA0433CA87215A693A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ magnet:?xt=urn:btih:8CEA6EC4A58B1B4C99390CFA0433CA87215A693A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ magnet:?xt=urn:btih:8CEA6EC4A58B1B4C99390CFA0433CA87215A693A
 magnet:?xt=urn:btih:59BD6F06AE89706E6A607D68E2C7AEB525499A90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ magnet:?xt=urn:btih:59BD6F06AE89706E6A607D68E2C7AEB525499A90
 ```bash
 magnet:?xt=urn:btih:06C186D7E2BAF089F335F4271C17F4B932407A85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

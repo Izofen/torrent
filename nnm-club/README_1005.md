@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:65ABC0A4CB1B05063F5C87938CEADDA885EB967A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:65ABC0A4CB1B05063F5C87938CEADDA885EB967A
 ```bash
 magnet:?xt=urn:btih:54AAA4AB71D81356C30185653E3CD70FD9F1A9E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:54AAA4AB71D81356C30185653E3CD70FD9F1A9E0
 magnet:?xt=urn:btih:96617B23EB0DA9216D88D99FBF081074F5226655
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Lanpirot | Товарищ "Чума" (Книга 3). (2025) [MP3, Виктор �
 ```bash
 magnet:?xt=urn:btih:3DB8427BA12225D586ECE7229EF278B77E606E64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:3DB8427BA12225D586ECE7229EF278B77E606E64
 magnet:?xt=urn:btih:BF3595C4BEC0B9980CB617E58C462B78D81C6290
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Generation Zero - это шутер с элементами скрытности
 ```bash
 magnet:?xt=urn:btih:4770583EF36B7F91CEAA53B0730E531DFF524FA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Hands of Necromancy II (2) (2024) [Ru/Multi] (18.2.25) License GOG
 magnet:?xt=urn:btih:307CE52329596124907CA10AD76D50A1AD5F4454
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Stellar Settlers — это строитель космической базы/�
 ```bash
 magnet:?xt=urn:btih:EBC5B5646C3B3408187F8F9C32DBA2B6EEA2FD78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:EBC5B5646C3B3408187F8F9C32DBA2B6EEA2FD78
 magnet:?xt=urn:btih:B2968EB4DC44E41587B60A693376EBE68E86BA2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:B2968EB4DC44E41587B60A693376EBE68E86BA2B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:B2968EB4DC44E41587B60A693376EBE68E86BA2B
 magnet:?xt=urn:btih:D375E0EF9DDFBBA9777784DFCA213EB98EA3B5E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:D375E0EF9DDFBBA9777784DFCA213EB98EA3B5E9
 ```bash
 magnet:?xt=urn:btih:180E2650DB7CD78456DC99DDBD1D893CD48F060D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:180E2650DB7CD78456DC99DDBD1D893CD48F060D
 magnet:?xt=urn:btih:54AFBD33C805AFBFABF6D8C11C0C5323D204A82D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:54AFBD33C805AFBFABF6D8C11C0C5323D204A82D
 magnet:?xt=urn:btih:019A7A7CB1026983758D8B7C3CA9DAF200D248D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:019A7A7CB1026983758D8B7C3CA9DAF200D248D3
 ```bash
 magnet:?xt=urn:btih:803E05F89E9712F3058D12FC1DA2006A4B69F4CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:803E05F89E9712F3058D12FC1DA2006A4B69F4CC
 magnet:?xt=urn:btih:D8EE55834652AB1AF611BCB6B3723B4C55CA12F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:D8EE55834652AB1AF611BCB6B3723B4C55CA12F3
 ```bash
 magnet:?xt=urn:btih:272C12854F057A516BC2AA19478D4C99FAC5B388
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:272C12854F057A516BC2AA19478D4C99FAC5B388
 magnet:?xt=urn:btih:869960ADE5AA42DC04ADD0B28FEB69B4F5DDE3A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:869960ADE5AA42DC04ADD0B28FEB69B4F5DDE3A4
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ Hands of Necromancy – это шутер с видом от первого ли
 magnet:?xt=urn:btih:F8F6FEB59E7C7E80C0F969706ED9EED52BB65CF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:F8F6FEB59E7C7E80C0F969706ED9EED52BB65CF5
 ```bash
 magnet:?xt=urn:btih:7F24CC902581FEFF9AC073F43374D3FD49567CF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:7F24CC902581FEFF9AC073F43374D3FD49567CF6
 magnet:?xt=urn:btih:75B90EB5E0B485F3B354275A751BC48B4DD759EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ IconTo Pro 7.5 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:678E5D17ABCE4A47D5E34DB87980068F5D726EBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ R-Drive Image — является эффективной утилитой дл�
 magnet:?xt=urn:btih:29258B9C40EC9B52D5FB59FFB828A1A9D92D7D63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ magnet:?xt=urn:btih:29258B9C40EC9B52D5FB59FFB828A1A9D92D7D63
 magnet:?xt=urn:btih:434F8C10EB2B974CC9D744187D7E99CBE646B3A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:434F8C10EB2B974CC9D744187D7E99CBE646B3A5
 ```bash
 magnet:?xt=urn:btih:233A865CAD0F3B2371CBDE80E0CDEA5558C4D88D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

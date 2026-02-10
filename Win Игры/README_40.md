@@ -19,6 +19,8 @@ Void War - это тактический рогалик, вдохновлённ�
 magnet:?xt=urn:btih:241F4188B8B587FA7670CA5B37637479C874AD69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Sea of ​​Stars стремится модернизировать класс�
 ```bash
 magnet:?xt=urn:btih:1C02E77BA02AAECF501731F821982354C273D0D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ White Knuckle - это захватывающий рогалик от перво
 magnet:?xt=urn:btih:2B50FCC8213B63F09A50F4042205FF9952A1EC53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Don't Mess With Bober (2025) [Ru/Multi] (1.0.3) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5593023F04B18FE613F857D9C086821B3FAA263A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Tales Beyond The Tomb - White Silence (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:3353F3FAACB41736F745EE1BA130A2104EF760C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Yakuza 6: The Song of Life (2021) [Ru/Multi] (1.009a/dlc) Repack Yaroslav98
 ```bash
 magnet:?xt=urn:btih:E0311CBDE067B62B9E2B3F9E3431123F13F77D5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Ys VIII: Lacrimosa of Dana - это ролевая игра в жанре JRPG, 
 magnet:?xt=urn:btih:BF7BC11074302E533E69854A16348B654D8484B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Disney Dreamlight Valley - это гибрид между игрой-симул�
 ```bash
 magnet:?xt=urn:btih:02863912FB5A6CD9B77E9F725A0ACAFD1273BF7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Spiritfall (2024) [Ru/Multi] (1.6.27) Repack Let'sРlay
 magnet:?xt=urn:btih:FCF8C531FB9EA9FA942DA15539CF846A7DFC32B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Don't Mess With Bober (2025) [Ru/Multi] (Build 19026706) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:D0A3EAF5695477637A3F600EFCABF71C3854029C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Echo Paradox - это психологическая игра ужасов, 
 magnet:?xt=urn:btih:10F18B917D9DBCF0BA12E7F176A4E2CE88A3EC12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ System Shock 2: 25th Anniversary Remaster (2025) [Ru/Multi] (1.0.4258.0) Repack 
 ```bash
 magnet:?xt=urn:btih:61CA64EE7FF47DD46257BFF44CDACE612081B1B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Dreadful River (2023) [En] (0.9.1.0) License GOG [Early Access]
 magnet:?xt=urn:btih:6D935107431A9392A87AADC4644710D44E052E5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ My Time At Portia (2019) [Ru/Multi] (20250620-1430-141719/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:62948E91210E53EB3148186B2FFB873007F483C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Shatterline (2022) [Multi] (98.0.36.0) Repack FitGirl
 magnet:?xt=urn:btih:8E4252AF349F6AEABF5F52CD984BD544169C1145
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Heart of the Machine – игра в мире киберпанка, в кото�
 ```bash
 magnet:?xt=urn:btih:8624F4BFD00E5A6211A58713FEC46F2816E40FE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Songs of Conquest (2022) [Ru/Multi] (1.6.3/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:FA2CAA35993590DA3458F7B38B73E763426CCBD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Grand Theft Auto V (5) Enhanced (2025) [Ru/Multi] (1.0.889.15) Scene Rune
 ```bash
 magnet:?xt=urn:btih:FA5A5A0A2E0E791DD3CE052D9651FFAAFABE12F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Everspace 2 (2021) [Ru/Multi] (1.4.48188/dlc) Repack Let'sРlay [Complete Editio
 magnet:?xt=urn:btih:6AAA7CDA444479A6D496D22A57DB49ECEBAAFA23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ City Enigma (2025) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:FA49D9AA8F60D5140E405B2362CA9B731E82E27B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Yu-Gi-Oh! EARLY DAYS COLLECTION объединяет коллекцию клас
 magnet:?xt=urn:btih:7DC17B18CA37882280D5C7F1112205C2E7F7D9DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Clink (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D79730577DE44C036FB30823517EB6C7B100A094
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Assault On Proxima (2023) [En] (1.02) Repack FitGirl
 magnet:?xt=urn:btih:D37C8FA595880874AFEAEDF4D4CC21D477C58A5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ I Know This Place..? / Я знаю это место..? (2023-2025) [Ru/En] (Bui
 ```bash
 magnet:?xt=urn:btih:6C29ED287DE383A30CDD734C6DA6CC5266696249
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Ship of Fools — это кооперативное морское приклю�
 magnet:?xt=urn:btih:CBE9A76E52538D82173CE0C58FF11C8236A55024
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Paranormal Torment - это психологический хоррор, кот�
 ```bash
 magnet:?xt=urn:btih:E25172C352E5A09001C36B821EAA448EB23DDC48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

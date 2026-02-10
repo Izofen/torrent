@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:B46B8942AB66458811CD3A8184BFA0DBC780649B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:B46B8942AB66458811CD3A8184BFA0DBC780649B
 ```bash
 magnet:?xt=urn:btih:B8BA1EB5D12CF1F5F280884EF94B6546628D0555
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:B8BA1EB5D12CF1F5F280884EF94B6546628D0555
 magnet:?xt=urn:btih:21C45C24BF2A40802452D211360E4D3E96CBF238
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:21C45C24BF2A40802452D211360E4D3E96CBF238
 ```bash
 magnet:?xt=urn:btih:A8E96B1752F8F7E3E2D2289259A10EBC6B5671D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:A8E96B1752F8F7E3E2D2289259A10EBC6B5671D7
 magnet:?xt=urn:btih:44B61B6C6185D4969D25A4FC97E90EAEC67ED489
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Witch's Rhythm Puzzle (2023) [Multi] (1.04) License GOG
 ```bash
 magnet:?xt=urn:btih:3984A6107B896A30D17E90C518747CC5CF19406A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:3984A6107B896A30D17E90C518747CC5CF19406A
 magnet:?xt=urn:btih:2E6A8F29CE9CBCEBD6A5333D44AAAB8AB67F0DFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:2E6A8F29CE9CBCEBD6A5333D44AAAB8AB67F0DFC
 ```bash
 magnet:?xt=urn:btih:4D6BB260A4EF410B4D1B642A50D9AE19F5D18EDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:4D6BB260A4EF410B4D1B642A50D9AE19F5D18EDA
 magnet:?xt=urn:btih:C92E3A36BD9FB826D0CF7B3462BE39658A7D298C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:C92E3A36BD9FB826D0CF7B3462BE39658A7D298C
 ```bash
 magnet:?xt=urn:btih:6489071AA5C4F5AF524C91A4567135EF61F95DF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:6489071AA5C4F5AF524C91A4567135EF61F95DF3
 magnet:?xt=urn:btih:B907E522B3640BCC5A40C812AD31B5B405689CAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:B907E522B3640BCC5A40C812AD31B5B405689CAF
 ```bash
 magnet:?xt=urn:btih:B61981D9CF1DBD33C1074EF173F91D09336D2D0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:B61981D9CF1DBD33C1074EF173F91D09336D2D0F
 magnet:?xt=urn:btih:72EF58ADE9DC980F6AB4FF5E33F5518937DFAE24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Amatsutsumi - визуальная новелла в аниме-стилисти
 ```bash
 magnet:?xt=urn:btih:5A8E8AEBE4DC2EFB864913F8714CF35B34EC7C92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:5A8E8AEBE4DC2EFB864913F8714CF35B34EC7C92
 magnet:?xt=urn:btih:E4A14BEA102ABB2BCB3EA04BE1393DCB9D1083BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:E4A14BEA102ABB2BCB3EA04BE1393DCB9D1083BE
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:E4A14BEA102ABB2BCB3EA04BE1393DCB9D1083BE
 magnet:?xt=urn:btih:CBBDFA05C82C3062CC4E6A5688BB9B402D2107C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:CBBDFA05C82C3062CC4E6A5688BB9B402D2107C5
 ```bash
 magnet:?xt=urn:btih:A6EB316B811614812C3784BE7985A25866165483
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:A6EB316B811614812C3784BE7985A25866165483
 magnet:?xt=urn:btih:8C01D3BC6E56AEEAB521EAAD9D3458F4187AF1FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:8C01D3BC6E56AEEAB521EAAD9D3458F4187AF1FE
 ```bash
 magnet:?xt=urn:btih:AF31C290A00D483ACA1B161C634D6146E1CE083E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ FanControl – свободно распространяемый продукт,
 magnet:?xt=urn:btih:D28F4F72DB7A369705B4F0C910ADBB72C7BB9A55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:D28F4F72DB7A369705B4F0C910ADBB72C7BB9A55
 ```bash
 magnet:?xt=urn:btih:295E2807F883B781B4704E81817639D98A0A1EF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:295E2807F883B781B4704E81817639D98A0A1EF6
 magnet:?xt=urn:btih:EC09D1BD55313AFB764352DFDF96E45D9FF39CDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ magnet:?xt=urn:btih:EC09D1BD55313AFB764352DFDF96E45D9FF39CDE
 ```bash
 magnet:?xt=urn:btih:4E0884DE4F6CD33211DD8219C78BB14BA28B537D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ magnet:?xt=urn:btih:4E0884DE4F6CD33211DD8219C78BB14BA28B537D
 magnet:?xt=urn:btih:71CA7D10743D32019C66DD3ACFB06528AE21D3F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ magnet:?xt=urn:btih:71CA7D10743D32019C66DD3ACFB06528AE21D3F9
 ```bash
 magnet:?xt=urn:btih:328457EDF07CFAE00A0D8CCC8B25689B9975C011
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,148 @@
+###  Публикация: 1134723   (687079) от 16.05.2017
+
+ВИА Гра - Стоп! Снято! (2003) [FLAC|Lossless|image + .cue] <Pop, Europop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Стоп! Стоп! Стоп! [03:44]
+02. Good Morning, Папа! [03:34]
+03. Убей Мою Подругу [03:44]
+04. Не Оставляй Меня, Любимый! [03:31](   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C932ABAED207624374F1E334F46072540F6749BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134324   (687084) от 16.05.2017
+
+Carla's Dreams - Antiexemplu (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Antiexemplu  3:32
+02.  Imperfect  3:34
+03.  Tu Si Eu (feat. INNA)  3:11
+04.  Ne Bucuram In Ciuda Lor  3:21(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44BB72A9D2CFBF4D3A7F1F9AF02F92B21AD11E05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134574   (687212) от 16.05.2017
+
+Rose & the Howling North - Cuckoo (2013) [MP3|320 Kbps] <Alternative, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Better Days
+02. Broken Souls
+03. Cuckoo
+04. Changes(   Читать дальше...   )Жанр: Alternative, PopПродолжительность: 00:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B5A72FABF46D181EABD5E29903496EC325A7B86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134317   (687235) от 16.05.2017
+
+Женя Вилль - Моя красивая жизнь (2017) [TAK|Lossless|tracks] <Pop, Dance-Pop, Lyrics>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Моя красивая жизнь
+02 - Отрекись
+03 - Я люблю тебя, небо
+04 - Ветреная любовь(   Читать дальше...   )Жанр: Pop, Dance-Pop, LyricsПродолжительность: 00:49:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3961DBE396BBCD8392952DCAD840DF9060FC15E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134572   (687344) от 16.05.2017
+
+Оксо и Эспанцы - Полетели! (2017) [MP3|320 Kbps] <Art Pop, Chamber Pop, Acoustic>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Колёса
+02. Маяк
+03. Мосты
+04. Сан-Мигель(   Читать дальше...   )Жанр: Art Pop, Chamber Pop, AcousticПродолжительность: 00:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:196B67DE8B099BABAD76EACC220690D075C7834F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134516   (687349) от 16.05.2017
 
 VA - It's So Disco Vol 2 (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
@@ -21,6 +166,8 @@ VA - It's So Disco Vol 2 (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
 ```bash
 magnet:?xt=urn:btih:F9445AEE6BC6016808E91B79FBA0EADCE3B2EE31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +196,8 @@ VA - Beach Party 2 (2017) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:BBCEEDFECFEDFCD01F8DFF9B8125566A2834CD0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +225,8 @@ T.J.M. - TJM (1979) Reissue CD, Big Break Records, 2011 [MP3|320 Kbps] <Funk-Sou
 magnet:?xt=urn:btih:3B4A3E7DF603E333D04357DFBC63CA2BA3BEFAC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +253,8 @@ Folk & Røvere - Kaustisksoda (1998) Sonet Grammofon AS [MP3|320 Kbps] <Breaks, 
 ```bash
 magnet:?xt=urn:btih:69D28632F227545F70C7C7B819F00AA5F55D37CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +289,8 @@ Umberto Tozzi - Grandes Exitos (2001) [FLAC|Lossless]<Italo-pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +317,8 @@ Bonnie Tyler - Between The Earth And The Stars (2019) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:D680196EF0D5809C1372D9DF017C5EE26229DA46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +347,8 @@ Sophie Ellis-Bextor - The Song Diaries (2019) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:AF442CEC6EF954ADC59A783358481CE38EE6D8F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +375,8 @@ Patrick Norman - Sweet Sweet Lady (1978) LP [MP3|320 Kbps] <Disco>
 ```bash
 magnet:?xt=urn:btih:8E797FE3C3C02B032CC14578BDA574B4B58FF456
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +405,8 @@ VA - Союз 62 (2018) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:EDBF331880B639C79BA7863510061C9F395D970B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +433,8 @@ Dschinghis Khan - Moskau: Das Neue Best Of Album (2018) [MP3|320 Kbps] <Disco>
 ```bash
 magnet:?xt=urn:btih:40DD4A4782E90FBF3AF3BECE6B2C099D0C1686BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +463,8 @@ Various - Mixage (1983) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
 magnet:?xt=urn:btih:22265EA2064DA36DD9F83000835DB3D2FDF55B1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +490,8 @@ magnet:?xt=urn:btih:22265EA2064DA36DD9F83000835DB3D2FDF55B1A
 ```bash
 magnet:?xt=urn:btih:0E96BF17146767FF7BDB1496BAB94DD23866A45C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +519,8 @@ CD1
 ```bash
 magnet:?xt=urn:btih:9273540DBFAFAE4FB08ED3AE810C1D834811A855
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +555,8 @@ Kylie Minogue - The Best Of Kylie Minogue (2012) [FLAC|Lossless]<Pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +583,8 @@ Blue System - Диско 80-х (2007) [FLAC|Lossless|image + .cue] <Disco>
 ```bash
 magnet:?xt=urn:btih:E8C2340244DC339E3D7EA4D15BA2C11ED73FEFDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +613,8 @@ magnet:?xt=urn:btih:E8C2340244DC339E3D7EA4D15BA2C11ED73FEFDF
 magnet:?xt=urn:btih:36C5D02E15C992EA67CE6C6900F3AAEB2D971FDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +641,8 @@ magnet:?xt=urn:btih:36C5D02E15C992EA67CE6C6900F3AAEB2D971FDB
 ```bash
 magnet:?xt=urn:btih:82689C9B43D00CEB4EFC163E5B3EC6E0919BB8E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +671,8 @@ Denise McCann - Single & Album (1978, 1979) [MP3|320 Kbps] <Electronic, Disco>
 magnet:?xt=urn:btih:190C362697A64E67DEEC233AA362E6243AD2A60B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +700,8 @@ VA - Ultra Dance 20 (2019) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop>
 magnet:?xt=urn:btih:307AE57F0E589A4CC4F8AB07E7659659410EC394
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +726,8 @@ VA - Minos 2019 - 18 Super Hits (2018) [FLAC|Lossless|tracks + .cue] <Pop, Folk,
 ```bash
 magnet:?xt=urn:btih:A7139C89AFCCCCF0036A3A02D481FF3700CE98AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,140 +756,7 @@ CD1:
 magnet:?xt=urn:btih:EAC9FA0E24C4D799A311875E3581C28259743E66
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534878   (690518) от 04.03.2022
-
-VA - GANGSTER MUSIC, Vol. 5 (2022) [MP3|320 Kbps] <Eurodance, Technopop>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690518.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ONEIL/KANVISE - Requiem
-2. TRITICUM - The Spell
-3. Dj Quba/Sandra K - Flame Me
-4. Kitness - Time Will Come(   Читать дальше...   )Жанр: Eurodance, TechnopopПродолжительность: 01:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:665E0E0A46799A50BCB47C685C8E5971F7045FDD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535011   (690525) от 04.03.2022
-
-Bryan Adams - Pretty Woman - The Musical (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To Hollywood (3:38)
-02. Anywhere But Here (2:58)
-03. Something About Her (2:33)
-04. Luckiest Girl In The World (2:57)(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:50:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2020A7D9599DEB5F793B6B8B1F8CB8E5A1B6FA6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028394   (690661) от 22.06.2016
-
-IL - 2 Albums (2014, 2015) [MP3|320 кб/с] <nu-disco, disco house, french disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наши отжигают Французское Диско!01. M'arreter (6:14)
-02. Fils Du Ciel, Filles De La Lune (6:10)
-03. Musique Extraterrestre (4:40)
-04. Adieux, La Planete (5:28)(   Читать дальше...   )Жанр: nu-disco, disco house, french discoПродолжительность: 01:09:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56265CB294504452EF84328AED323EC34242535D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028202   (690767) от 22.06.2016
-
-Евгений Осин - Птицы (1999) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Птицы-миражи
-02. Мечта
-03. Простите
-04. Живое море(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:127A31DDB70A4BE3BE0777BD0208E286C3FC41BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221879   (691253) от 26.04.2018
-
-Елена Темникова - TEMNIKOVA III: Не модные (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691253.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro
-2. Не модные
-3. Не сдерживай меня
-4. Очень сильно(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6CDBA7D7ECE43A78EB630F56EFE87861880AC22
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

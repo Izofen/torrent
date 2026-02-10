@@ -22,6 +22,8 @@ Grey Wolf - Glorious Death (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:14E01C7ED6D828636373A2815224F7F85E26F9EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Bobby Darin - Commitment (1969) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Folk-Rock
 magnet:?xt=urn:btih:5EF96CAFD8B701CFDFCB6647B03C033D1AE5DE14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:5EF96CAFD8B701CFDFCB6647B03C033D1AE5DE14
 ```bash
 magnet:?xt=urn:btih:BEA748A2C9630DC3014B0743CC206E3F2F3F2E06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +107,8 @@ Hyloxalus - Make Me The Heart Of The Black Hole (2024) [FLAC 24/48|Lossless|WEB-
 magnet:?xt=urn:btih:F875DDB3E2D1F60EC08600CAC9CF683B095BD452
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ Grey Wolf - We Are Metalheads (2015) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:379B9EAC565D8031E46CF3E1085A638FA8935C0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -155,6 +165,8 @@ In Flames - 2 Albums Singles Collection (2003-2004) 2xCD, EP [FLAC|Lossless|imag
 magnet:?xt=urn:btih:5F1584E186295AD9B12B6BDD1032E51A58064B1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +193,8 @@ Bobby Darin - Born Walden Robert Cassotto (1968) [FLAC 24/192|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:6B329A64D5AF84BC1133524AAB09A6738F6C5351
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -209,6 +223,8 @@ Helgrindur - Helgrindur (2023) [FLAC|Lossless|image + .cue] <Pagan Black Metal>
 magnet:?xt=urn:btih:BE4F4A0765061D587BD8B9D98023B6510F2A28CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +251,8 @@ Richard Lindgren - Grand Jubilee (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Ro
 ```bash
 magnet:?xt=urn:btih:152DB4E5C7ADEA78315986429E8B34235B9A8EA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +281,8 @@ Brad "Guitar" Wilson - Buckle Up (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Bl
 magnet:?xt=urn:btih:B603FBEAE70DF097D12FDC19F858A496A71BAC13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +310,8 @@ Caro Emerald - The Shocking Miss Emerald (The Remixes) (2013) [FLAC|Lossless|WEB
 magnet:?xt=urn:btih:9A3C17969EF1FCFCAC718384906A6065E57B5285
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +335,8 @@ Total Video Converter Pro - полноценный и универсальный
 ```bash
 magnet:?xt=urn:btih:4C6802EC24139D4C8817B5B5C20B82B96B322B90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +363,8 @@ magnet:?xt=urn:btih:4C6802EC24139D4C8817B5B5C20B82B96B322B90
 ```bash
 magnet:?xt=urn:btih:36E14B9B6230B33439961B810B852FDD574FF75C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +393,8 @@ magnet:?xt=urn:btih:36E14B9B6230B33439961B810B852FDD574FF75C
 magnet:?xt=urn:btih:037E1D84890278443BA964C73E000F37D0C45A48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +418,8 @@ magnet:?xt=urn:btih:037E1D84890278443BA964C73E000F37D0C45A48
 ```bash
 magnet:?xt=urn:btih:0FD48B7543D71C5BBF0DEB9243748FF39F0227D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +447,8 @@ magnet:?xt=urn:btih:0FD48B7543D71C5BBF0DEB9243748FF39F0227D7
 magnet:?xt=urn:btih:40B80B8EA2102D7E38AA0110CD0E3FFBDD5F8160
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +472,8 @@ magnet:?xt=urn:btih:40B80B8EA2102D7E38AA0110CD0E3FFBDD5F8160
 ```bash
 magnet:?xt=urn:btih:9B59A1E22F5B6E0860E481C3722C711DF3D028F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +499,8 @@ magnet:?xt=urn:btih:9B59A1E22F5B6E0860E481C3722C711DF3D028F3
 ```bash
 magnet:?xt=urn:btih:3FA49AAADEF6075A099A359C1A0383A3F1EF233C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +529,8 @@ Caro Emerald & The Grandmono Orchestra - Live In Concert (At The Heineken Music 
 magnet:?xt=urn:btih:A1191274533FA9C40357D756DC3E33EBA2D76CE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +558,8 @@ magnet:?xt=urn:btih:A1191274533FA9C40357D756DC3E33EBA2D76CE5
 magnet:?xt=urn:btih:8E4BE32C2B5D2C741E127782BA90006CB4C9A9E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +584,8 @@ magnet:?xt=urn:btih:8E4BE32C2B5D2C741E127782BA90006CB4C9A9E3
 magnet:?xt=urn:btih:6AE4D54A446605D6E052693987F025B71DE35349
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +609,8 @@ magnet:?xt=urn:btih:6AE4D54A446605D6E052693987F025B71DE35349
 ```bash
 magnet:?xt=urn:btih:036EFE29F4BEFDCC7912F6A1AF7FA430BD909D26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +639,8 @@ Streetwize - Lift Me Up (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 magnet:?xt=urn:btih:C3EAE9F023DB22BFF75FA70804173303174B080A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +665,8 @@ magnet:?xt=urn:btih:C3EAE9F023DB22BFF75FA70804173303174B080A
 magnet:?xt=urn:btih:D337C9FD8FBD4B4173AD83F9807761045B8F7FEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +690,8 @@ magnet:?xt=urn:btih:D337C9FD8FBD4B4173AD83F9807761045B8F7FEB
 ```bash
 magnet:?xt=urn:btih:617FAA97923DF0645793ED8C855E2F3FE72C0275
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -669,6 +719,8 @@ Mitch Ryder - The Roof Is On Fire (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:9B285F7865134F5F0133897713502BD29878F933
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

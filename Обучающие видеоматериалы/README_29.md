@@ -19,6 +19,8 @@ Cryptology School | Cryptology 11 (2024) WEB-DL [AD] [RU]
 magnet:?xt=urn:btih:7193507F5A10CFE7251D1E5E3C5F596388CA1DAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Cryptology School | Workshop 6.0 (2024) WEB-DL [AD] [RU]
 ```bash
 magnet:?xt=urn:btih:FD4569135ED885C767E4A49C0B642C15384D2722
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ HTMX - потрясающая библиотека JavaScript, которая п
 magnet:?xt=urn:btih:B4EA26C2DF9C68A31770CC77D4F849C41A58399D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:B4EA26C2DF9C68A31770CC77D4F849C41A58399D
 magnet:?xt=urn:btih:66085872D6B8968745F1B2AEBAB0DBB2FE46A9EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ Academind Pro, Maximilian Schwarzmüller | ChatGPT - The Complete Guide (2024) W
 magnet:?xt=urn:btih:0900AF8ECAF11A1F3C3303E15567E678D02ED4F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ The Gnomon Workshop, Paul Ozzimo | Designing Sci-Fi Weapons for Film (2023) PCRe
 ```bash
 magnet:?xt=urn:btih:E09383CE6F264A1DE9E6EC0CC3F3300AA4C6D143
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +189,8 @@ Interview Ready, Gaurav Sen | System Design Course (2024) WEB-DL [EN]
 magnet:?xt=urn:btih:3D18B354F72B4EAC8614338E97F58052F42BB33C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ magnet:?xt=urn:btih:3D18B354F72B4EAC8614338E97F58052F42BB33C
 magnet:?xt=urn:btih:2BCB92F808A32C64E51359F39AD815594D5755C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ LiveClasses, Виталий Бужан | Калибровка мониторов
 ```bash
 magnet:?xt=urn:btih:6CAA370ACAE2CFB85CE820C63365A87EE1F5FED0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -255,6 +273,8 @@ Creativo, Андрей Баталов | Инфографика для марке
 magnet:?xt=urn:btih:C1565D6E48FA8C264C05DB6E59EBC08CDC42A01B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -281,6 +301,8 @@ Archicad-Master | Создание разверток в Archicad по техн�
 ```bash
 magnet:?xt=urn:btih:46C9BD82C89CE8AB052DCE617A00F551C93FE0A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +331,8 @@ Archicad-Master | Практическое GDL-программирование 
 magnet:?xt=urn:btih:725F479ACD0157F6DC3D43843D08271A060935A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +359,8 @@ Archicad-Master | Моделирование нестандартных фаса
 ```bash
 magnet:?xt=urn:btih:EC029EC9D53705F8FA02953356D1ECB8BDCDCD85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +389,8 @@ Juliagraule, Юлия Грауле | Онлайн-курс по фотограф
 magnet:?xt=urn:btih:CC465BB9EEB3B46116A53B6E73347807665027C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +414,8 @@ magnet:?xt=urn:btih:CC465BB9EEB3B46116A53B6E73347807665027C0
 ```bash
 magnet:?xt=urn:btih:CDDD1A82B544904B065723D35912CD9FDB90AF20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +441,8 @@ magnet:?xt=urn:btih:CDDD1A82B544904B065723D35912CD9FDB90AF20
 ```bash
 magnet:?xt=urn:btih:D709BDA20516DE33B307AC49D629558C8D2A623E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +471,8 @@ magnet:?xt=urn:btih:D709BDA20516DE33B307AC49D629558C8D2A623E
 magnet:?xt=urn:btih:3E5B321BEC70DE95E22D316CAC1EF6555E0F0063
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +498,8 @@ magnet:?xt=urn:btih:3E5B321BEC70DE95E22D316CAC1EF6555E0F0063
 magnet:?xt=urn:btih:8E803D3819C8756E4AD16474DBCCF36E11206FA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +523,8 @@ Frontend Masters, Miško Hevery | Bare Metal JavaScript: The JavaScript Virtual 
 ```bash
 magnet:?xt=urn:btih:87EE1CDD1A29E22DB8E889A98E3E8FA24D9A5055
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +553,8 @@ Data Science — это применение научных методов в р
 magnet:?xt=urn:btih:4B9E958FCC5191AF8359CFEB0F1FFF85EDD30088
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +578,8 @@ CG Cookie, Paul Caggegi | MODIFY: A complete guide on Blender's modifiers (2023)
 ```bash
 magnet:?xt=urn:btih:85D7BB74066E676BAAB2813E0E1C3CFC89F2EA9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +608,8 @@ magnet:?xt=urn:btih:85D7BB74066E676BAAB2813E0E1C3CFC89F2EA9D
 magnet:?xt=urn:btih:9243B979FEE8E97FE8C2FBF133ED2F5FF3CE68AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +636,8 @@ magnet:?xt=urn:btih:9243B979FEE8E97FE8C2FBF133ED2F5FF3CE68AC
 ```bash
 magnet:?xt=urn:btih:CF3BCF31176CABE46CF07059D36A370998C77751
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +666,8 @@ Skillbox, Андрей Щедрин | Горшечные растения (2022)
 magnet:?xt=urn:btih:0A431E40557E31C12E17A372D4E4D2329844AE84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +693,8 @@ magnet:?xt=urn:btih:0A431E40557E31C12E17A372D4E4D2329844AE84
 ```bash
 magnet:?xt=urn:btih:ACA8081AD3CA447D238DACDD98C321A08230C550
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -672,6 +722,8 @@ magnet:?xt=urn:btih:ACA8081AD3CA447D238DACDD98C321A08230C550
 ```bash
 magnet:?xt=urn:btih:E51E42F7B1E1550757D5525FE20F3EBBEF70BE17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

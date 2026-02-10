@@ -19,6 +19,8 @@ Weather Lord  / Повелитель погоды (L) [Ru] 2012
 magnet:?xt=urn:btih:FC798D92822C71B74B29FB724CAC9B4FDF413A34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:FC798D92822C71B74B29FB724CAC9B4FDF413A34
 magnet:?xt=urn:btih:6B72355A02A5B4D770EBA7C11964A5C64CE359DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:6B72355A02A5B4D770EBA7C11964A5C64CE359DC
 ```bash
 magnet:?xt=urn:btih:5262814D4EAE7D1A620ABB981847A993235F965B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Cюжет освещает приключения новой группы «вы
 magnet:?xt=urn:btih:23F85AB425ECC0E52B8A25CE853539C6F65B72DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:23F85AB425ECC0E52B8A25CE853539C6F65B72DF
 ```bash
 magnet:?xt=urn:btih:4433B5004965A3D3199AE630C873FA804EE45087
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ Nexuiz -игра в жанре арена-ориентированных FPS.
 magnet:?xt=urn:btih:BAD334EC5774C565BB492DD6270256AADA2297F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:BAD334EC5774C565BB492DD6270256AADA2297F9
 ```bash
 magnet:?xt=urn:btih:BB90D35941C0767B846BB9D05A34ADF297F75F79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:BB90D35941C0767B846BB9D05A34ADF297F75F79
 magnet:?xt=urn:btih:778B15BFA59917BA1B56F9291062ED94353332ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ iSendSMS - программа, предназначенная для беспл�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ VA - Niccolo PAGANINI - Complete Chamber Music (2007) [APE|Lossless]<Classical, 
 ```bash
 magnet:?xt=urn:btih:D2F7458E64AA4C0082CFD0BDA5EE7437962507E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ Video3D - Сделай сам 2012 (диск 31)Источник: Video3D
 magnet:?xt=urn:btih:A97B8BAD5FD0C58F4F95E2C56E9401214EE2BCD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ XVI век. Конкистадоры прокладывают дорогу че�
 ```bash
 magnet:?xt=urn:btih:313D5676B764255F472C9218BEA0FAB16C51C914
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:313D5676B764255F472C9218BEA0FAB16C51C914
 magnet:?xt=urn:btih:4B96B8D942737757E713E4EAC70F4CDC23D43F31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:4B96B8D942737757E713E4EAC70F4CDC23D43F31
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:4B96B8D942737757E713E4EAC70F4CDC23D43F31
 magnet:?xt=urn:btih:84C7CE23174E34EA01D4F577E7BE6FD1F94872B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ AutoCAD Architecture – это AutoCAD для архитекторов. Спе�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ Lync™ Server 2010 – это новые возможности подключ�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +478,8 @@ Game of Thrones / Игра престолов [En] (L) 2012
 magnet:?xt=urn:btih:CBFC72C411B83710DF7AC64396D9342FA30728CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:CBFC72C411B83710DF7AC64396D9342FA30728CF
 magnet:?xt=urn:btih:DC187A4F0B5A397FFC34862383B0A1C08D4FC0CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:DC187A4F0B5A397FFC34862383B0A1C08D4FC0CD
 ```bash
 magnet:?xt=urn:btih:0B3A00188105CD156599DFEBEB2FD7B90E96D030
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ magnet:?xt=urn:btih:0B3A00188105CD156599DFEBEB2FD7B90E96D030
 ```bash
 magnet:?xt=urn:btih:D042B9B22FB233E1550B39FDFA31746C616FBE77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +596,8 @@ Synthphonia Suprema - 2 Альбома (2006-2010) [MP3|320 кб/с]<Power Metal
 magnet:?xt=urn:btih:B757AA4BB09465311C48D5BDB03FDC2D8E90A479
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +631,8 @@ VA - Avto Club Май Vol.5 (2012) [MP3|320 кб/с]<Club>
 magnet:?xt=urn:btih:18FD07E25C7B05FFC9816B290367D272AB614D9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +656,8 @@ magnet:?xt=urn:btih:18FD07E25C7B05FFC9816B290367D272AB614D9E
 ```bash
 magnet:?xt=urn:btih:40DEAFB25A0AA9DC1E542277000524671A019A52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +683,8 @@ magnet:?xt=urn:btih:40DEAFB25A0AA9DC1E542277000524671A019A52
 ```bash
 magnet:?xt=urn:btih:F3E338E83BCEB9DFF43BE3496262DCCC267370E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +717,8 @@ magnet:?xt=urn:btih:F3E338E83BCEB9DFF43BE3496262DCCC267370E4
 ```bash
 magnet:?xt=urn:btih:7D32122BBE7DB147BD0D8424912FFAAC6605B5E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

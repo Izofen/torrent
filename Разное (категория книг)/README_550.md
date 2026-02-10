@@ -1,3 +1,29 @@
+###  Публикация: 1196591   (822195) от 03.01.2018
+
+Джейми Оливер | Выбор Джейми. Блюда из риса (2016) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_822195.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Джейми и друзья» – новая книжная серия, основанная на рецептах, отобранных для читателей всемирно известным британским шеф-поваром Джейми Оливером. Телеведущий, сторонник здорового питания, ресторатор и общественный деятель, Джейми Оливер заслужил доверие, уважение и любовь миллионов профессионалов и начинающих любителей готовить всех возрастов. Каждая книга содержит (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8A50C339C49FB916BD3512BA67157AD5D054544
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196584   (822196) от 03.01.2018
 
 Джейми Оливер | Выбор Джейми. Без мяса (2016) [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:A9F241D63E70E04964ACD96CBD653500F20E7760
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:A9F241D63E70E04964ACD96CBD653500F20E7760
 magnet:?xt=urn:btih:63713D539E562D7F08630A42C09E805921542F1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:63713D539E562D7F08630A42C09E805921542F1A
 ```bash
 magnet:?xt=urn:btih:EDF256EC915B66399972F1B382F61CD455FC5070
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:EDF256EC915B66399972F1B382F61CD455FC5070
 magnet:?xt=urn:btih:04914E94EBA7A8B1917AEE582B088B5DEDD873E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:04914E94EBA7A8B1917AEE582B088B5DEDD873E5
 ```bash
 magnet:?xt=urn:btih:B917FEAF670126B04DABB9A731664AECD90F280E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:B917FEAF670126B04DABB9A731664AECD90F280E
 magnet:?xt=urn:btih:0CC99FE6F3FD32F90C69B83CE9CF27F1E582CE68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ Harvard Business Review | Менеджмент. Главные идеи (2020) [
 ```bash
 magnet:?xt=urn:btih:842C6271DE827F2D1E829DCF0D58012E5BC54740
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:842C6271DE827F2D1E829DCF0D58012E5BC54740
 magnet:?xt=urn:btih:03F6130E4A670DBBC43831E42BC35344E33A41C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:03F6130E4A670DBBC43831E42BC35344E33A41C5
 magnet:?xt=urn:btih:1D4303B75DE547835B1BDBCAB3A8B05A7867CAA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:1D4303B75DE547835B1BDBCAB3A8B05A7867CAA1
 ```bash
 magnet:?xt=urn:btih:57E112207CA34A93F0C9D31FAE61EDFF821D85D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:57E112207CA34A93F0C9D31FAE61EDFF821D85D0
 magnet:?xt=urn:btih:4CEAB8CDE12766762694B4A04FF343C2277551FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:4CEAB8CDE12766762694B4A04FF343C2277551FD
 ```bash
 magnet:?xt=urn:btih:63328A947EFE896CC1E308DE1FEBC5F87DCEEEB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:63328A947EFE896CC1E308DE1FEBC5F87DCEEEB2
 magnet:?xt=urn:btih:8F62E4106195D65A36C084E479E4855AD3D0DB50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:8F62E4106195D65A36C084E479E4855AD3D0DB50
 ```bash
 magnet:?xt=urn:btih:4FBA3F2999548386D3CEBF0856005FAB96E5D7F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:4FBA3F2999548386D3CEBF0856005FAB96E5D7F2
 ```bash
 magnet:?xt=urn:btih:DA694B2923A36F2C1576FEAC586CBFD8A7B3B652
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:DA694B2923A36F2C1576FEAC586CBFD8A7B3B652
 magnet:?xt=urn:btih:F56D58EAF50264E7A75710097FAFF1C6F4F99BE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:F56D58EAF50264E7A75710097FAFF1C6F4F99BE4
 magnet:?xt=urn:btih:2553051F21BB9B6A0B9F4641A8FB2548EDA9E086
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:2553051F21BB9B6A0B9F4641A8FB2548EDA9E086
 ```bash
 magnet:?xt=urn:btih:C110D1EB11D227072CDCA7EB2FCD8D79FA64FCE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:C110D1EB11D227072CDCA7EB2FCD8D79FA64FCE8
 magnet:?xt=urn:btih:84DEEA86BB9FF70DF582FDA7A72588C3AC15A09C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:84DEEA86BB9FF70DF582FDA7A72588C3AC15A09C
 magnet:?xt=urn:btih:4A89EF22BE26CF233A9B31BC422232F5E8F02483
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:4A89EF22BE26CF233A9B31BC422232F5E8F02483
 ```bash
 magnet:?xt=urn:btih:8CB3DE8A66F4A07E67872F2D588513412AB3ADB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +600,8 @@ magnet:?xt=urn:btih:8CB3DE8A66F4A07E67872F2D588513412AB3ADB2
 magnet:?xt=urn:btih:7CC7AE480E467B35C376088CE44B73BDDEA7154C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:7CC7AE480E467B35C376088CE44B73BDDEA7154C
 ```bash
 magnet:?xt=urn:btih:9E47B1C545326FB090224FE206EE635F93903F6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:9E47B1C545326FB090224FE206EE635F93903F6B
 magnet:?xt=urn:btih:B53B98C0045CC85A42FE3E46990EC6A442347FF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,29 +679,7 @@ magnet:?xt=urn:btih:B53B98C0045CC85A42FE3E46990EC6A442347FF3
 magnet:?xt=urn:btih:3BA300FB2684D0D47FCBA31C0A071FBE634767A0
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 654895   (823516) от 11.05.2013
-
-Михаил Арранц | Собрание сочинений [1978 - 2006] [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823516.jpg" />
-</div>
-
-
-###  Подробнее
-
-АРРАНЦ Михаил (Мигель)Формат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3562487D8EE4B144F978B4CF94896D0B64A9678B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

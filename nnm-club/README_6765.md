@@ -19,6 +19,8 @@ LibreOffice - офисный пакет с открытым исходным к�
 magnet:?xt=urn:btih:C93BAFFCE35279272A870C2354D7087095C85432
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:C93BAFFCE35279272A870C2354D7087095C85432
 ```bash
 magnet:?xt=urn:btih:6E710EFD8B5D9118BF0D44D48E3320D9EA52E879
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Windows 11 - это серия операционных систем, разра
 magnet:?xt=urn:btih:3352E1467E12681476EA0F64AB13A66CC635C533
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The KMPlayer – это мощный мультимедиа проигрыват
 ```bash
 magnet:?xt=urn:btih:4EEECF82F7FC0076EB971912DA88D30D0D00DE40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Smart Launcher - лаунчер являющийся одним из самых 
 magnet:?xt=urn:btih:4D6D33D872876EF06F0B62240BA7DAE5EAEF430A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:4D6D33D872876EF06F0B62240BA7DAE5EAEF430A
 ```bash
 magnet:?xt=urn:btih:1AA8B4A5853C0BAF124E52FEAB07474248D013AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:1AA8B4A5853C0BAF124E52FEAB07474248D013AF
 magnet:?xt=urn:btih:4E3EB30E7CE60C09C2B9CCF232B1B1E47C592453
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ YouTube ReVanced - это реинкарнация проекта YouTube Vanced
 ```bash
 magnet:?xt=urn:btih:B712846F82BB8A31453F3078DA9B25BCD61D46F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:B712846F82BB8A31453F3078DA9B25BCD61D46F5
 magnet:?xt=urn:btih:B31DC105B8A930A5A607CE939E78484F6F9712E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:B31DC105B8A930A5A607CE939E78484F6F9712E5
 ```bash
 magnet:?xt=urn:btih:9F1DBDB42C10C8957B1A99CB19791ECE120793BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ AIMP – проигрыватель, включающий в себя множе
 magnet:?xt=urn:btih:DF5440FAA2ADD4C14824EA751D01E1D3A16F9A8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:DF5440FAA2ADD4C14824EA751D01E1D3A16F9A8F
 magnet:?xt=urn:btih:9FF444E47B5E00EF5D66B21EE6287AFF0167C178
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +330,8 @@ Ace Combat 7: Skies Unknown направляет всю мощь совреме�
 ```bash
 magnet:?xt=urn:btih:5B3059427B065DF732681C596BD52AB70B4D1DB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:5B3059427B065DF732681C596BD52AB70B4D1DB5
 magnet:?xt=urn:btih:775BE0B12BE36A739AFDE2DF54B189B5C9DB9827
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:775BE0B12BE36A739AFDE2DF54B189B5C9DB9827
 ```bash
 magnet:?xt=urn:btih:19668EF49DC7D5AC5CBDFFF82F6C9AFCCC765DF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:19668EF49DC7D5AC5CBDFFF82F6C9AFCCC765DF8
 magnet:?xt=urn:btih:6A62E9BD0E9B762848E4FA8487A616675B15EBDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:6A62E9BD0E9B762848E4FA8487A616675B15EBDD
 ```bash
 magnet:?xt=urn:btih:70C1668932AC4EDCD270B4ADEFC9D4F4E21D71D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:70C1668932AC4EDCD270B4ADEFC9D4F4E21D71D8
 magnet:?xt=urn:btih:E402256AB3C090D5CD9E9C3184DB477500CFB95D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:E402256AB3C090D5CD9E9C3184DB477500CFB95D
 ```bash
 magnet:?xt=urn:btih:B9C79A42A7B0A2FB3BB45C619FBA5B328C903DC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ Integrity Pro 12.7.9 [En]
 magnet:?xt=urn:btih:AF7B156D724F0B139D519F7B3B75156661C9A5BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 ```bash
 magnet:?xt=urn:btih:3EFC0601E2E0719947A5EA5F0CDBD1C4A83229E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ Mentally Defiled - Aptitude for Elimination (2014) [FLAC|Lossless|image + .cue] 
 magnet:?xt=urn:btih:B69861CB80801B94740531CFA8DEBEF75A7C0D88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ magnet:?xt=urn:btih:B69861CB80801B94740531CFA8DEBEF75A7C0D88
 ```bash
 magnet:?xt=urn:btih:B24A703368C0446B05FFF0B7950D910F57890738
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:B24A703368C0446B05FFF0B7950D910F57890738
 magnet:?xt=urn:btih:6D54C468210AD0686C095BC40B01C0FFE3E52137
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Lasso — оконный менеджер для macOS. Перемещайте �
 magnet:?xt=urn:btih:64165A3B8073566BB3778134E116B04566258274
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ magnet:?xt=urn:btih:64165A3B8073566BB3778134E116B04566258274
 ```bash
 magnet:?xt=urn:btih:934F2A56A1C693EF37515943AFD95546409C5ED3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

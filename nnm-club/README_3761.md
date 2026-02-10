@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:2304A38CE9FD5D1B9E09EDE663F7C8B1768875FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:2304A38CE9FD5D1B9E09EDE663F7C8B1768875FD
 ```bash
 magnet:?xt=urn:btih:B0D0ACCD40974E8FBEA57D2056068F6537911C83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:B0D0ACCD40974E8FBEA57D2056068F6537911C83
 magnet:?xt=urn:btih:AABFC60263358923AF611976D70321D9696852C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:AABFC60263358923AF611976D70321D9696852C4
 ```bash
 magnet:?xt=urn:btih:9ECF43A7B8797C46F861011079B51129E2076DC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Barry Harris Trio - Chasin' The Bird (1962) 1996, Original Jazz Classics [FLAC|L
 magnet:?xt=urn:btih:20398EE864D30A5D7CA331D38AC642E122F2E50A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ MyLanViewer — программа для сканирования и монит
 magnet:?xt=urn:btih:90A9B6B9A28DD7ECCE06514CFB73159E01DAAA2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:90A9B6B9A28DD7ECCE06514CFB73159E01DAAA2A
 ```bash
 magnet:?xt=urn:btih:B3E24F2004A640101D45CE3544D7098A6EF43272
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Vanessa Mai - Traumfabrik (2025) [FLAC|Lossless|WEB-DL|tracks] <Schlager, Pop>
 magnet:?xt=urn:btih:9B91ADB2F5BDDE880FF0D0822C20C0D6F830711D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:9B91ADB2F5BDDE880FF0D0822C20C0D6F830711D
 ```bash
 magnet:?xt=urn:btih:147732CB9856A3D4D01F6FCCD459268932EF690E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:147732CB9856A3D4D01F6FCCD459268932EF690E
 magnet:?xt=urn:btih:86D712B272C7C9907D837CD43F663CC4CA588C58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:86D712B272C7C9907D837CD43F663CC4CA588C58
 ```bash
 magnet:?xt=urn:btih:0B721BAAA6196EAD60A2F04D78928EBF1558745A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ Swinsian — простой аудио плеер с функцией управ
 magnet:?xt=urn:btih:B29F0980DD2D814F4E58A2C94E0F4798E6C92AA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ Alf Kjellman - Feather, But No Wings (1999) 2008, Reflect [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:B5DB9EB2B051D327FCF4D7CA3AA9E2865A2D5832
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ Mean Mistreater - Razor Wire (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heav
 magnet:?xt=urn:btih:1627F261DA18BE45325E7A95E95CD021E769B9F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:1627F261DA18BE45325E7A95E95CD021E769B9F5
 magnet:?xt=urn:btih:47F1096C6AA470C9A5F0B218A40A5937B943061F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:47F1096C6AA470C9A5F0B218A40A5937B943061F
 ```bash
 magnet:?xt=urn:btih:9C4F31FD36226FD3C9CE1A9795EF40BF10C632E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ Witherfall - What Have You Done? (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pro
 magnet:?xt=urn:btih:C89D009536D0F7028E0EA1520AC757E7D8C559C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ magnet:?xt=urn:btih:C89D009536D0F7028E0EA1520AC757E7D8C559C4
 magnet:?xt=urn:btih:52B1CB25B8F568EC818919C273A38FDAAB884056
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ magnet:?xt=urn:btih:52B1CB25B8F568EC818919C273A38FDAAB884056
 ```bash
 magnet:?xt=urn:btih:66CB7346728026EB4DEEE087377F261855912D5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ Nikos Chatzitsakos - Tiny Big Band 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Conte
 magnet:?xt=urn:btih:4E3DC63EA320FF7149F0BFA221945A6DD594ABB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ magnet:?xt=urn:btih:4E3DC63EA320FF7149F0BFA221945A6DD594ABB6
 ```bash
 magnet:?xt=urn:btih:8BF62546C58BEB530CFC1B0E36C52347E1F1104A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +594,8 @@ magnet:?xt=urn:btih:8BF62546C58BEB530CFC1B0E36C52347E1F1104A
 magnet:?xt=urn:btih:49F9ECB46E9A081E9A6AE69DAE683E4ABD8544D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +619,8 @@ magnet:?xt=urn:btih:49F9ECB46E9A081E9A6AE69DAE683E4ABD8544D7
 ```bash
 magnet:?xt=urn:btih:DFFC569F5A31A451A6015E05CF613C2A02C04667
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +649,8 @@ Witherfall - What Have You Done? (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 magnet:?xt=urn:btih:F5D527F7FC95E17D85D0F7617E3BE8DDFB1062A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +678,8 @@ Honeyblood - Serpentine Patterns (2024) [FLAC|Lossless|WEB-DL|tracks] <Drone Met
 magnet:?xt=urn:btih:7D31BFEB6F9AD1F776E0D94B90FC88E964F2F795
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ magnet:?xt=urn:btih:7D31BFEB6F9AD1F776E0D94B90FC88E964F2F795
 ```bash
 magnet:?xt=urn:btih:99F62E2B735F6448E6C54EA906AE75A222E699EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

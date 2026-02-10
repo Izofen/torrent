@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5017E671CEC6F73A8836EE9F8AFDB8AFC8120669
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Alestorm - The Thunderfist Chronicles (2025) [APE|Lossless|image + .cue] <Metal>
 magnet:?xt=urn:btih:5025B42AA4159745F91DD1D24B705746D55F23F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Restaurats (2025) [Ru/Multi] (20727795) Scene Tenoke
 magnet:?xt=urn:btih:45C29F17F01FFC8C011D00BC14747A1F6BFB7023
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:45C29F17F01FFC8C011D00BC14747A1F6BFB7023
 ```bash
 magnet:?xt=urn:btih:CBD6EFEF74ED674ECB19C20CE3FB81B302DFCE17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ VA - 60 minutes. Old School Dance Music vol.30 (Special 90's) (mixed by Dj V) (2
 magnet:?xt=urn:btih:021862F5FDDCD49681353B73A90DAC2733D7D050
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ VA - Suanda Music 500 (The Official Album) (2025) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:2C73BCD349F7EAF0A807BC29940DE2CCCAA28DD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ WipeBoxx входит в группу цифровых библиотек, сп�
 ```bash
 magnet:?xt=urn:btih:B82867E32AC5A248F2DCF89AF2BC9E05CB500AF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:B82867E32AC5A248F2DCF89AF2BC9E05CB500AF4
 magnet:?xt=urn:btih:02C14F06BA5C7F67A7DE41020687BD1D6E5EAAA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ Media Player Classic Home Cinema – удобный во всех планах �
 ```bash
 magnet:?xt=urn:btih:8C374C39DB74020A661A7B4357A263A052BE2C76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ Adobe Illustrator 2026 30.0.0 [Multi/Ru]
 magnet:?xt=urn:btih:83E1A2C80057D32071B65CB00CFA060ACAD37F85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:83E1A2C80057D32071B65CB00CFA060ACAD37F85
 ```bash
 magnet:?xt=urn:btih:955A4730392661C07E7E4357A091BB23E290A8C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:955A4730392661C07E7E4357A091BB23E290A8C0
 magnet:?xt=urn:btih:35BCA5CAF8BD703A770786DEE316182A20692D20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ MotoGP. Этап 21 из 22. Гран-при Португалии. Гонка (0
 magnet:?xt=urn:btih:15EE90027A4A2C584D39CED090133C959F88B8EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:15EE90027A4A2C584D39CED090133C959F88B8EA
 ```bash
 magnet:?xt=urn:btih:56A4E42C863614DADE446D36C3D0DA86296F5880
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:56A4E42C863614DADE446D36C3D0DA86296F5880
 magnet:?xt=urn:btih:D161E2B54D55D3C901D55B6F5F01A97C7FE6086F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:D161E2B54D55D3C901D55B6F5F01A97C7FE6086F
 ```bash
 magnet:?xt=urn:btih:61F27F19E8C5391174BFCD50D529ABB75910BCDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:61F27F19E8C5391174BFCD50D529ABB75910BCDB
 magnet:?xt=urn:btih:6723FE15CBCD110DAD7E18B8F73BE8FE74344785
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:6723FE15CBCD110DAD7E18B8F73BE8FE74344785
 ```bash
 magnet:?xt=urn:btih:EB1A2B56B023C7F95555007533078F35E51C1D52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ Chicago Blues Radio - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Blues, 
 magnet:?xt=urn:btih:C1B02380AB2E805EB36D7E11142FD33BACB4EBA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ magnet:?xt=urn:btih:C1B02380AB2E805EB36D7E11142FD33BACB4EBA2
 ```bash
 magnet:?xt=urn:btih:07A0394F2F6E6392954C0A75BD65A937A17B41FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +561,8 @@ VA - No name Sultry & Soulful Jazz  compilation (2025) [MP3|320 Kbps] <Sultry & 
 magnet:?xt=urn:btih:F09CF678B4359BC9433734C09E5E957BE607CFFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:F09CF678B4359BC9433734C09E5E957BE607CFFB
 magnet:?xt=urn:btih:3456A19A600DC92F81BD8D306D71464AC51B8BC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:3456A19A600DC92F81BD8D306D71464AC51B8BC3
 ```bash
 magnet:?xt=urn:btih:05BE3B16C9D6BAD25C4B31D1FA2A991AF93E9798
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +643,8 @@ magnet:?xt=urn:btih:05BE3B16C9D6BAD25C4B31D1FA2A991AF93E9798
 magnet:?xt=urn:btih:D632225F0367BAA11FA1CF7FC19FB991B4378D2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +669,8 @@ magnet:?xt=urn:btih:D632225F0367BAA11FA1CF7FC19FB991B4378D2B
 magnet:?xt=urn:btih:2D645CEFAACFA0347B6916B3B6E8BCFC2F7608AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ magnet:?xt=urn:btih:2D645CEFAACFA0347B6916B3B6E8BCFC2F7608AA
 ```bash
 magnet:?xt=urn:btih:B3A5BC891A36358B873431374A2136AF7AE76C1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ Arturia - Matrix-12 V2 2.3.1.1784 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack 
 magnet:?xt=urn:btih:70362E668883208F9E00D67F4F615056090C5F31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Arturia - Jup-8 V3 3.3.1.1782 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack by V
 magnet:?xt=urn:btih:F696F2DCC112E8114DDD27C72680FF3C82F4771D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Arturia - Prophet V3 3.3.1.1782 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack by
 ```bash
 magnet:?xt=urn:btih:71EBAFFB540FDA186C0114849A4F997457752DE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Arturia - CS-80 V3 3.3.1.1785 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack by V
 magnet:?xt=urn:btih:0FC593835A966FD564A9B6FA841FA997BF7F606F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Arturia - Synclavier V 2.0.1.1815 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack 
 ```bash
 magnet:?xt=urn:btih:BD459EAF9A6114880A640A9667849F511AF5737C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Arturia, в партнерстве с Dr. Bob Moog, представляет с�
 magnet:?xt=urn:btih:61566162B4D37B42F8B9082D5DC176AFA6C2897E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Arturia Oberheim SEM V – это программная эмуляция одн
 ```bash
 magnet:?xt=urn:btih:BC8185694284DF21ADD641B60EE96DB5B6DEFC7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Nero SoundTrax - многофункциональное полупрофесио
 magnet:?xt=urn:btih:AB1E0CF80459C4208F0D770581E3C3FE14532B13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Movavi Business Suite - создавайте профессиональные в
 ```bash
 magnet:?xt=urn:btih:819EBCDF539F03E341A2526157A245FA7BD8BF4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Movavi Slideshow Maker – это простая и удобная програ�
 magnet:?xt=urn:btih:6CED63FA42B973732ED40BDB5FF670DCE176ECAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Tipard HD Video Converter - программа, видео конвертер ф
 ```bash
 magnet:?xt=urn:btih:EDBCB49E76D5D088141DE4ED591D1E79F46F71DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Ashampoo ActionCam 1.0.2 RePack (& Portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:3854C7FAC4B13F13084943A604CDFFBC086742D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Movavi Photo Focus - простой в использовании инструм
 ```bash
 magnet:?xt=urn:btih:B170D17DC5050998A09702BDCEEDAEA76A1E86EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Movavi Photo Noir - отличное приложение для перевод�
 magnet:?xt=urn:btih:ECD767A582975FDBF60854198A52FECF7B35B4A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ AwesomeBump - это программа с открытым кодом созд�
 ```bash
 magnet:?xt=urn:btih:A7A7D6E055F02A84C1BDE5846B11414C1E91D75F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ Arturia - DX7 V 1.2.1.1797 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack by VR [
 magnet:?xt=urn:btih:51FF13A53C653C176740F4FED16E14C46FFBE9FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Buchla Easel V - реинкарнация знакового инструмен�
 magnet:?xt=urn:btih:C0E2E62FAF071D30A01E47B4FC55C395E2994164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Arturia - ARP 2600 V3 3.3.1.1782 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack b
 ```bash
 magnet:?xt=urn:btih:D6AFC3508610F7761ED6C8E7F550ABD5E61E0346
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ DrumComputer - это новый специалист по синтетичес�
 magnet:?xt=urn:btih:A4E10919FCDC9667F3B050251CA3B0BB410392FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ Reshade Image Enlarger - еще одна замечательная (и что �
 ```bash
 magnet:?xt=urn:btih:CB5EC7E1900FE52729C1D8F40127B7524F0CA497
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ Proclethya от Dymai Sound — программный синтезатор с �
 magnet:?xt=urn:btih:1AC55F2837CB1CCA21AD0C9CA161BCBC39CC4C70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ MediaHuman Audio Converter 1.9.7 (2802) RePack (& Portable) by TryRooM [Multi/Ru
 magnet:?xt=urn:btih:BD253A5BC9D7E2C75842E1828736706337844458
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Movavi Photo DeNoise 1.0.0 RePack by вовава [Ru/En]
 ```bash
 magnet:?xt=urn:btih:BA8E4DF1EB0EBEA274C071B64F187B67DBBA5FFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ Native Instruments - Traktor Scratch Pro 2.10.0.13 [Multi]
 magnet:?xt=urn:btih:00E9BCFEED1D7363F8B7AFE310FC4EE30700C0CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ TunesKit M4V Converter поможет вам конвертировать защ
 magnet:?xt=urn:btih:DCB628BD8A28A2A018B83ABAF712F1E469FF5EFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ W. A Production - Mutant Reverb v1.0.1 VST, VST3, AAX, x86 x64 Retail [En]
 ```bash
 magnet:?xt=urn:btih:3A9627ED6741235B47959C9D0426D373FF31FC3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

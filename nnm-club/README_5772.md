@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:7D31676F037C4EB0D6A8A300B17A884B516B15A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:7D31676F037C4EB0D6A8A300B17A884B516B15A4
 ```bash
 magnet:?xt=urn:btih:D4183742C2C76BEE8697B8868E8AF69054F52CEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:D4183742C2C76BEE8697B8868E8AF69054F52CEE
 magnet:?xt=urn:btih:9E1206CE510792E94FA35B2E8B9761F666456AA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ Bill Jennings & Jack McDuff - Legends Of Acid Jazz: Glide On (1959, 1960) 1999, 
 magnet:?xt=urn:btih:B8A9DF6A3B5C4A34A9BE30D9C93D15E37285C8A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:B8A9DF6A3B5C4A34A9BE30D9C93D15E37285C8A7
 ```bash
 magnet:?xt=urn:btih:4B7FF1F1BA9DF4F13AD6DD32C32F911DE7D523D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Batman: Arkham Origins / Batman: Летопись Аркхема (2013) [Ru/En] 
 magnet:?xt=urn:btih:7E438507ED6859DCBCD47EA7F069C68FF4079C1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Text Editor Pro 24.1.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:96E7DA8D3E8046A19632056251806B00B64755D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ Arabs In Aspic - Live at Avantgarden (2018) Remaster, 2023, Apollon Records [FLA
 magnet:?xt=urn:btih:68F29B637561F3A37A30BE3E68989557934AD24E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ BBC: 80 чудес света / Around the World in 80 Treasures (2005) [DVDRip]
 ```bash
 magnet:?xt=urn:btih:C1A63CCEDF3BE644F4CDED353F2674F3D46F627E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ Delight - Last Temptation (2000) [FLAC|Lossless|image + .cue] <Gothic Metal>
 magnet:?xt=urn:btih:3B26EA296A66742E1766CDF1E0314546A272941F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:3B26EA296A66742E1766CDF1E0314546A272941F
 ```bash
 magnet:?xt=urn:btih:61A9AC00145DAD3F253F446E7743993B74EF9E17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:61A9AC00145DAD3F253F446E7743993B74EF9E17
 magnet:?xt=urn:btih:6AF0E7552B87A85F39ACC298374B7C695BB670B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:6AF0E7552B87A85F39ACC298374B7C695BB670B2
 ```bash
 magnet:?xt=urn:btih:5CFA0A85798D0430DA484409B1914C45670FB523
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:5CFA0A85798D0430DA484409B1914C45670FB523
 magnet:?xt=urn:btih:AF7486C0FE69FFC3BB847917C465F206E9C87A6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:AF7486C0FE69FFC3BB847917C465F206E9C87A6D
 ```bash
 magnet:?xt=urn:btih:57E456DB50DF834A582274341444B805BFE9BA55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ Tokyo Mew Mew | Токио Мяу Мяу [2002, TV, 52 эп.] BDRip 480p 10-bit 
 magnet:?xt=urn:btih:F0E2436E5466F5158ACF6F668BC69C4A0F3D95CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ Belfarpost | Настольная экономическая игра. Милл�
 ```bash
 magnet:?xt=urn:btih:5430C3EF1DD97324306F0A16CC02D4B74E024817
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ Grymheart - Hellish Hunt (2023) [FLAC|Lossless|image + .cue] <Melodic Death Powe
 magnet:?xt=urn:btih:AA42EB9999FAE8A312422F1D8F2EA419D2299D34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ Random Deathmatch - Reach Out (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 magnet:?xt=urn:btih:5469CDA0580B1AD0C8A44FE8A0E36FD1705EA371
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:5469CDA0580B1AD0C8A44FE8A0E36FD1705EA371
 magnet:?xt=urn:btih:47CD97A1581A0E7F4951E6243C44035754B6AAD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ magnet:?xt=urn:btih:47CD97A1581A0E7F4951E6243C44035754B6AAD9
 magnet:?xt=urn:btih:F3DA44019B5B1F23C15EA95B2620F51056F3D442
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:F3DA44019B5B1F23C15EA95B2620F51056F3D442
 ```bash
 magnet:?xt=urn:btih:645E47495A96F71DC8E7088BE7047651EBA5696A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ VA - Ultimate Party Classics Pop (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:C047BEF4B7F008F7B9D2C58B785AE04446EF78C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ magnet:?xt=urn:btih:C047BEF4B7F008F7B9D2C58B785AE04446EF78C1
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +669,8 @@ Nuclear Assault — американская трэш-метал/кроссов�
 magnet:?xt=urn:btih:619312F4DD4A8BFE0F4CFA248B4EDE18D121009F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ magnet:?xt=urn:btih:619312F4DD4A8BFE0F4CFA248B4EDE18D121009F
 ```bash
 magnet:?xt=urn:btih:5CE043EE08A60B20610B5F73ECA118D295EB3DB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

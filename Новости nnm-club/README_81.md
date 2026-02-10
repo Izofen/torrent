@@ -21,6 +21,8 @@ Adobe® Creative Suite® 6 Design & Web Premium [Multi/Rus]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Paradise Cracked / Код доступа: РАЙ [Ru] (RePack) 2002 | RG Games (
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Adobe InDesign CS6 8 [Original installer] [Русский, английский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Call of Duty 4: Modern Warfare [Ru] (RePack/1.7) 2007 | R.G. Механики
 magnet:?xt=urn:btih:E4352B9D337DC1A20D8C8AF55372C45A74D27B2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:E4352B9D337DC1A20D8C8AF55372C45A74D27B2C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ Windows XP Pro SP3 Rus VL x86 с интегрированными критиче
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Windows XP Pro SP3 Rus VL x86 с интегрированными критиче
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ UFO (X-Com) – легендарная игра, положившая начал
 magnet:?xt=urn:btih:3A5FEB396417B12A2CB8E4E0F0DE3EC544BD3A6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ How I met your mother - комедия про Теда (Джош Рэднор) �
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ How I met your mother - комедия про Теда (Джош Рэднор) �
 magnet:?xt=urn:btih:90A5CAB8F81E1B2EDB4AE7ED1D9FEEE6A3954302
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:90A5CAB8F81E1B2EDB4AE7ED1D9FEEE6A3954302
 ```bash
 magnet:?xt=urn:btih:59E80B8832185C10E185377E928D3534E16A576A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Hand of Fate 2 - это «ползание по подземельям» в ст
 magnet:?xt=urn:btih:CFE442186EF56E8FEAD335B4D5B931DE7898C663
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:CFE442186EF56E8FEAD335B4D5B931DE7898C663
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Metal Gear Solid - The Twin Snakes (RePack/Emul) [En] 2004 (2012) | MarkusEVO
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ Metal Gear Solid - The Twin Snakes (RePack/Emul) [En] 2004 (2012) | MarkusEVO
 magnet:?xt=urn:btih:392EB8C45C7BACFB0AA4E34D309250CA90244E19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:392EB8C45C7BACFB0AA4E34D309250CA90244E19
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ Torchlight 2/II [En] (RePack/Beta/0.22.82) 2012 | Ali213
 magnet:?xt=urn:btih:4EC7CC1BA2EA6F448AC0A5649E45F8AF868BA40C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:4EC7CC1BA2EA6F448AC0A5649E45F8AF868BA40C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:4EC7CC1BA2EA6F448AC0A5649E45F8AF868BA40C
 ```bash
 magnet:?xt=urn:btih:D1D526C26C56387E81A7A40A79D3E0E28FCF58F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ magnet:?xt=urn:btih:D1D526C26C56387E81A7A40A79D3E0E28FCF58F3
 magnet:?xt=urn:btih:779BBBB3AAD7359C42829E8664B169589B542988
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ magnet:?xt=urn:btih:779BBBB3AAD7359C42829E8664B169589B542988
 magnet:?xt=urn:btih:4BF90ACF4DC1F32C11CBC18E5C0C47B73B6CC058
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:4BF90ACF4DC1F32C11CBC18E5C0C47B73B6CC058
 ```bash
 magnet:?xt=urn:btih:09BF607F59146317DEF5031DBF67D38C865250FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ Iron Front: Liberation 1944 [Multi6/+] (L) 2012 | RELOADED
 ```bash
 magnet:?xt=urn:btih:47AFA555619E385F11FAB7E01C13E5769828DC48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +637,8 @@ Nero Burning ROM + Nero Express - минимальный мультимедий�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ CSI: Место Преступления / CSI: Crime Scene Investigation [12 с
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +690,8 @@ CSI: Место Преступления / CSI: Crime Scene Investigation [12 с
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

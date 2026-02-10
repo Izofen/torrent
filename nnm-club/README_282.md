@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:1339FCC25D524CAB0D02CE92BCB34F76B75EAA74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Chico Hamilton - The Chico Hamilton Special (1960) 2016, Hallmark [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:0E8432AEC40F1D175FE68EE5AFF583D68D98ED7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Arckanum - Fenris Kindir (2013) Limited Edition, Reissue, 2020, Black Metal Stor
 magnet:?xt=urn:btih:E16850DD2AFE7FDE53F7DF782445919A70A04794
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:E16850DD2AFE7FDE53F7DF782445919A70A04794
 ```bash
 magnet:?xt=urn:btih:06754F2AF49B46024288C4D85541B0222CC38372
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:06754F2AF49B46024288C4D85541B0222CC38372
 magnet:?xt=urn:btih:20D9946D4FB03C9DBCA0EB7E72980C100EAD7169
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:20D9946D4FB03C9DBCA0EB7E72980C100EAD7169
 magnet:?xt=urn:btih:650572A269ADECFF720E180E81358ABBD3902C29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:650572A269ADECFF720E180E81358ABBD3902C29
 ```bash
 magnet:?xt=urn:btih:424803EBD2260F99C8F87EEC2C11E5273410C3EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ aurorawave - Monument (2025) [FLAC 24/44.1; 24/48|Lossless|WEB-DL|tracks] <Regga
 magnet:?xt=urn:btih:ABE0E9F3AA7131C75E0B37DCC1484EE48CF1FAFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:ABE0E9F3AA7131C75E0B37DCC1484EE48CF1FAFB
 ```bash
 magnet:?xt=urn:btih:3CA380B3806668764488343C06DAF42ACA67ED5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:3CA380B3806668764488343C06DAF42ACA67ED5A
 magnet:?xt=urn:btih:4FBB13D3A92A7CD0D5DE61347303A3F5AF95910F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ STAYC - I Want It (On the Spot) (2025) WEBRip [H.265/2160p] [60fps]
 ```bash
 magnet:?xt=urn:btih:0B2FDBC0E3CC77839345F53E927EBBBE813FCEF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ HeeJin (ARTMS) - Algorithm (2023) WEBRip [H.265/2160p] [60fps]
 magnet:?xt=urn:btih:C0CC34264F01B59116051E426F3CBB47CFBE05FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:C0CC34264F01B59116051E426F3CBB47CFBE05FE
 magnet:?xt=urn:btih:2EC02ACE389576DBC88287C6537B7000F11FA094
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:2EC02ACE389576DBC88287C6537B7000F11FA094
 ```bash
 magnet:?xt=urn:btih:66F322BB7AFA9D1711C984B9250F75B547BA5240
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:66F322BB7AFA9D1711C984B9250F75B547BA5240
 magnet:?xt=urn:btih:4D091E8E9361423BE313BA83C7AA9C3D08B843D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:4D091E8E9361423BE313BA83C7AA9C3D08B843D4
 ```bash
 magnet:?xt=urn:btih:F4E30CA9DCC36B4F34F0E8A48619FD429BD99E54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +456,8 @@ magnet:?xt=urn:btih:F4E30CA9DCC36B4F34F0E8A48619FD429BD99E54
 magnet:?xt=urn:btih:09D4CD9EE007B627E951213610A6D1B731287A79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:09D4CD9EE007B627E951213610A6D1B731287A79
 ```bash
 magnet:?xt=urn:btih:4F030CDFE9B12F84CA3828006A9A19C3055B48FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +509,8 @@ magnet:?xt=urn:btih:4F030CDFE9B12F84CA3828006A9A19C3055B48FB
 magnet:?xt=urn:btih:FDE072797C4FE51A730BD6BD78C5707A3BABCA9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ magnet:?xt=urn:btih:FDE072797C4FE51A730BD6BD78C5707A3BABCA9B
 magnet:?xt=urn:btih:557C67FEF6C7BFF916AD2F1811B44ABA9048DF0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ magnet:?xt=urn:btih:557C67FEF6C7BFF916AD2F1811B44ABA9048DF0F
 ```bash
 magnet:?xt=urn:btih:832E72C00A3FC7AD939FD9F5D739B695DA5BF734
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ magnet:?xt=urn:btih:832E72C00A3FC7AD939FD9F5D739B695DA5BF734
 magnet:?xt=urn:btih:387AB7D87BF314D2BF3F23333301E7D7104EEE41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ magnet:?xt=urn:btih:387AB7D87BF314D2BF3F23333301E7D7104EEE41
 magnet:?xt=urn:btih:480610F94D119B9A1ABB11945E0D4E6570678B86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +640,8 @@ magnet:?xt=urn:btih:480610F94D119B9A1ABB11945E0D4E6570678B86
 ```bash
 magnet:?xt=urn:btih:347F6A0451E001025C48F5A1DE0AC55762184B55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +670,8 @@ Francesco Farfa meets The Pleasure Team - The Search (Remixes) (2002) [FLAC|Loss
 magnet:?xt=urn:btih:8B5746BB0C5C8F966672FD487A38DC323EB84B26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +698,8 @@ Incite - Savage New Times (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Groove M
 ```bash
 magnet:?xt=urn:btih:2073366B408F8F47415F325E7BCC24284D0621BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

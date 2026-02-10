@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:240D31ED697DDCD5ACEE261CD47D600E5A87C1BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ VideoHive – My Wild Journey - 6967328 [AEP]
 ```bash
 magnet:?xt=urn:btih:A52C3CF17CC31C7A44FFDBCAA4B2D309B6EB0067
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ VideoHive – High Tech Supremacy - 3162798 [AEP]
 magnet:?xt=urn:btih:49B92540B99311C49B146C1671A04CB457300704
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ VideoHive – Photo Grid - 6530711 [AEP]
 ```bash
 magnet:?xt=urn:btih:2A0C4ACC5AF922B3354A22F9C8A8D972B251BF67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Minimal Ink&fire Logo/Title Reveals Package - красивые текстовы�
 magnet:?xt=urn:btih:1DD7EB5661524DB51C272E58B0A45AD235C222C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Cinema Awards Promo - профессиональная презентация в
 ```bash
 magnet:?xt=urn:btih:2ACAAF186D0CC8C93C77241A429C5E4DDE021FC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Parallax History - Уникальный, современный, кинемат�
 magnet:?xt=urn:btih:B3EC4F598581D42C94918DDACEAB962EC245E258
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ DeFocus Glitch Logo Intro - демонстрация вашего логотип
 ```bash
 magnet:?xt=urn:btih:A2F717969355F6592395C92D176A88B209A3013F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Wedding Titles - шаблон эффектных свадебных назван
 magnet:?xt=urn:btih:D0E8B605AC195B958797F6957DAD336F92E508A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Form - Hi-tech Impact Logo Transformation - раскрытие вашего 
 ```bash
 magnet:?xt=urn:btih:092EC41B96FCC0DECA9AF306354FB65E1EE8D4D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ FNT Broadcast Package - Современный, стильный и профес
 magnet:?xt=urn:btih:429E1AFCCC3F8E136C3F7A2B36AD9501C310A977
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:429E1AFCCC3F8E136C3F7A2B36AD9501C310A977
 ```bash
 magnet:?xt=urn:btih:270F5A2BAB03B3812AFC81AC972E414B02EA28C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Fashion Glitters - блестящее, много-целевое вступле�
 magnet:?xt=urn:btih:3B2C162E608F02A7AF5CB77CD33F3FBA756C717E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Modern Restaurant - любой ресторан, кафе, бар нуждает
 ```bash
 magnet:?xt=urn:btih:820DC676E397CF1D39BBDF39EDE561C3DBC839D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The X Logo Reveal - набор анимаций в стиле высоких т�
 magnet:?xt=urn:btih:7E46E02E36DED1F615F94F2223DABA992927EE0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Dynamic Titles In 4K Resolution - текстовый дизайн в динам�
 ```bash
 magnet:?xt=urn:btih:4F416E785185F946A7AF7F047CAF335F44A8FB88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Futuristic Titles - текстовые эффекты с футуристиче�
 magnet:?xt=urn:btih:D397AA5F6833B9B0EE6FAD0CECA48178CA803749
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ magnet:?xt=urn:btih:D397AA5F6833B9B0EE6FAD0CECA48178CA803749
 ```bash
 magnet:?xt=urn:btih:D6C2E8B8C89BC1A92522345AEE763C8D37108484
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Travel Slideshow это два варианта шаблона для After Effe
 magnet:?xt=urn:btih:EE242D9637331C1AF9497AB8CB2B4A6590D5CF3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Wedding Names - имеет 8 уникальных и оригинальных с
 ```bash
 magnet:?xt=urn:btih:FF04020BEC7F930983E9EA5015EC44161A5CAFAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:FF04020BEC7F930983E9EA5015EC44161A5CAFAD
 magnet:?xt=urn:btih:4495E0BB38557D753A7DB812EA2D0C8F096AAD10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Media Opener - очень простой и хорошо организован�
 ```bash
 magnet:?xt=urn:btih:8CE9738EC1F5463D07F99C2EDFD0C53BC9FA1965
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Fast Dynamic Slideshow - это стильный и современный ша�
 magnet:?xt=urn:btih:CE4FEAF0E1B31DFDF9E68F68A7BF70F14A0A1F78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ magnet:?xt=urn:btih:CE4FEAF0E1B31DFDF9E68F68A7BF70F14A0A1F78
 ```bash
 magnet:?xt=urn:btih:061E3EC09AE8F697BBF5E254FFD26E33ACD51BC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Stomp 2 - энергичный и вдохновляющий шаблон для
 magnet:?xt=urn:btih:61DD34C4F6A35CA017259D551366C9F43FCA2F01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Cinematic Slideshow - шаблон AE с великолепным дизайно
 ```bash
 magnet:?xt=urn:btih:1F2168C763BF51753A1A8F10B2F7580BD98A588D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 971799   (984654) от 04.01.2016
+
+VA - Water Show: Matrix Bass (2016) [MP3|320 кб/с] <Dubstep, DnB>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984654.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Taptone x Capitale - Breathing
+002. Fabian Mazur - Everybody Jack
+003. Royal Blood - Sawdust
+004. Skrux - Essence(   Читать дальше...   )Жанр: Dubstep, DnBПродолжительность: 09:12:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61915BDEEB1C6EC46ECA0DEEA2C3F4A26A287869
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971890   (984772) от 04.01.2016
 
 VA - Fantasy Chillout Selection (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -21,6 +50,8 @@ VA - Fantasy Chillout Selection (2015) [MP3|320 кб/с] <Downtempo, Chillout, L
 ```bash
 magnet:?xt=urn:btih:F7253E9002D64BDECE182817B536325ED1E19387
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - ЕвроХит Топ 40 Europa Plus 24.01.2020 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:BC1B92A178B65F265DA86BF15523D75A4E9E3FEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - The Official UK Top 40 Singles Chart 24.01.2020 [MP3|320 Kbps] <Pop, Dance,
 ```bash
 magnet:?xt=urn:btih:D535127353A48CDA4F4653F7A2F5D4D51F8E9900
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Pioneer Studio 33,5 (2015) 6 сборников [MP3|320 кб/с]<Dance, Di
 magnet:?xt=urn:btih:CED4536C1441C8E776E4ACAC5EF5AD2E7ED86C49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Top 100 Club Tracks (December 2015) (2015) [MP3|320 кб/с] <Dance, Club, 
 ```bash
 magnet:?xt=urn:btih:F2D762DCA0147B67C0B9EDFB8173304A83C1C43B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - DFM. Новогодний эфир (2015) [MP3|233-320 кб/с] <Pop, Dance
 magnet:?xt=urn:btih:C386D432C87E24AD605DD3EFD059A19F75F488B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Top Club Music World Hits 10116 (2016) [MP3|320 кб/с] <Bigroom, Tropical
 ```bash
 magnet:?xt=urn:btih:F6ED5364BF5FAFE3F7972CBFE1CC571C0DE8E382
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Amnezia Best Of 2015 (2015) [MP3|320 кб/с] <Dance>
 magnet:?xt=urn:btih:654EB7048D3C1AF4C338C1CEB8DCD28C9296F5D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Cinema Lounge Vol 1 (2015) [MP3|320 кб/с] <Lounge, Chill Out, Easy Liste
 ```bash
 magnet:?xt=urn:btih:DEE255A4932DAD55081D41B803E197246AF6B125
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - Deep and Sexy 20 Deep House and Funky House Music Tunes Vol 5 (2015) [MP3|3
 magnet:?xt=urn:btih:55E64A217E221182118E37DC5E69DD44E921C3DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - World 2016 Future (2016) [MP3|264-320 кб/с] <Club, Tropical, Future Hous
 ```bash
 magnet:?xt=urn:btih:9C35E5C25C839F64331B20586701E2C68C817A24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - Lovers Lounge (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:DB649806F669699E7ECFF3AFE1D088923F788AA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ VA - January DJ News (2016) [MP3|320 кб/с] <Funky, Club, Tech-House>
 ```bash
 magnet:?xt=urn:btih:FE9127A7EBE40C3A5BC5078C3F2FCCD1F45F0BEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ VA - 100 Greatest Guilty Pleasures (2020) [MP3|320 Kbps] <Pop, Rock, Other>
 magnet:?xt=urn:btih:6358A5780A3FD93FACC7BF366A48702E2B4E699A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +456,8 @@ VA - World of Electronic Music Vol.5 (2019) [MP3|320 Kbps] <Synthpop, Futurepop,
 ```bash
 magnet:?xt=urn:btih:DC2A181A2D8AB11575BF667173DABFC52D8E933D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +492,8 @@ Twistex - The Best (2013) [MP3|256 кб/с]<Dubstep>
 magnet:?xt=urn:btih:CD67C323AB040B4E195C07A5BA50EA3A7F86815C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +527,8 @@ VA - Drum and Bass Pro V.4 from AGR (2012) [MP3|320 кб/с]<Drum&Bass>
 magnet:?xt=urn:btih:99065549EAE4E007452C899FB3ED8B588A065993
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +555,8 @@ VA - Зайцев.нет Лучшие новинки Января (2020) [MP3|32
 ```bash
 magnet:?xt=urn:btih:A800975682FF4792ACB8E132BD37476098BADF8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +585,8 @@ AC/DC - Brian Johnson Hits (2016) Bootleg [MP3|320 Kbps] <Hard Rock>
 magnet:?xt=urn:btih:D1B618910226B2638D3819463EE596DC0D47A5E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +613,8 @@ Barclay James Harvest - Greatest of All Time (2020) [MP3|320 Kbps] <Progressive 
 ```bash
 magnet:?xt=urn:btih:8501F4390EE322F03091C139573EFBAC5965F591
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +643,8 @@ VA - Авто. Музыка. Дорога - Жаркие ночи (Sound Clinic 
 magnet:?xt=urn:btih:4AA6BC55F4705FACE62B5254B079C81E92124E5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +672,8 @@ VA - Back in the U.S.S.R. (По волнам Советской эстрады) 
 magnet:?xt=urn:btih:F81CB5F78E45759730688E8FADC9672492C82383
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +700,8 @@ VA - Снежный Хит. Самые Сливки (2016) [MP3|128-320 кб/с]
 ```bash
 magnet:?xt=urn:btih:C9E0F9BEC340FF9A32DB3ED7DA1F5CD50F124730
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -661,6 +736,8 @@ VA - Dj Compressor Energy Mix 13-01 (2013) [MP3|320 кб/с]<House, Trance, Tech
 magnet:?xt=urn:btih:91D3DB1DD4F72DF8A667F4E25D7BB88927003A16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -685,32 +762,7 @@ VA - XXXL Русский Рок (2009) [MP3|192 kbps]<Rock>
 нет
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971153   (987476) от 02.01.2016
-
-VA - Extra Trance (New year edition) (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rene Ablaze feat. Robin Vane - Into The Stars (Matt Chowski Remix) (07:15)
-02. Armin Van Buuren and W&W - If It Ain't Dutch (Fisical Project Re - Uplift) (07:19)
-03. Veselin Tasev - I Miss You (Extended Vox Mix) (06:06)
-04. Calvin Harris & Disciples - How Deep Is Your Love (Nifra Remix) (06:54)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:17:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:423FD416C9B4939806A7E611DBA84824D83BC211
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Mickey Jupp - Dance with Me (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
 magnet:?xt=urn:btih:E9269F22C65BD4936385C8DA4C0ED3C41D536C7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Mick Clarke - Rust Busters (The Collection) (2025) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:AA69EB60F65877ADB372B45B11C48C3695CCB9C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Mark Winkler - Hold On (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Smooth Jazz
 magnet:?xt=urn:btih:5BB3A76229C7B62FF4DCC4AF5592C873ACCE4AB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ KORG - multi/poly native 1.0.5 Standalone, VSTi 3, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:5664D35AD083A6E948CCD0958C0321E590F5D4CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ Korg выпустила программную версию синтезатор
 magnet:?xt=urn:btih:23A1C8FB1869060CDEC182D563400B0C6E54F71D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ Modwave, выпущенный в 2021 году, основан на наслед
 ```bash
 magnet:?xt=urn:btih:1C7093969603EED450597AB31E8F11BA82DB8779
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +189,8 @@ Love Suggestions - Chilly Summertime (2025) [FLAC|Lossless|WEB-DL|tracks] <Smoot
 magnet:?xt=urn:btih:1C5FC65A4B8DE5840ED2E93F318240D6AB95B253
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:1C5FC65A4B8DE5840ED2E93F318240D6AB95B253
 ```bash
 magnet:?xt=urn:btih:8CFB6F5115610C94E29D69B76B5A75ED50D54557
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -228,6 +244,8 @@ Lemek - Boundless (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 magnet:?xt=urn:btih:53E179832C800882E529781A110CA90E497FD337
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -254,6 +272,8 @@ Konstantin Klashtorni - Summer Favorites (2025) [FLAC|Lossless|WEB-DL|tracks] <S
 ```bash
 magnet:?xt=urn:btih:C08529FC38D52FE8B9FCFF28E286929752FAE532
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -282,6 +302,8 @@ John Christopher Morgan - Right On Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 magnet:?xt=urn:btih:B85C407FD2CEDB296BC01579EEECB87E05702985
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +331,8 @@ VA - Las Mejores Baladas del Rock (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:7836392E46B54C63384C4F58808E194023B056CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +358,8 @@ magnet:?xt=urn:btih:7836392E46B54C63384C4F58808E194023B056CB
 magnet:?xt=urn:btih:1C9BCA16A517FD11C315F1FC2A93EEAD98AA031A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +383,8 @@ magnet:?xt=urn:btih:1C9BCA16A517FD11C315F1FC2A93EEAD98AA031A
 ```bash
 magnet:?xt=urn:btih:C48EBF05D3288C604B9FE999AD49D898DA775AF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +410,8 @@ magnet:?xt=urn:btih:C48EBF05D3288C604B9FE999AD49D898DA775AF6
 magnet:?xt=urn:btih:01E5C0459CE8D6021FFD7F2F5B3121A287C7B48B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +435,8 @@ magnet:?xt=urn:btih:01E5C0459CE8D6021FFD7F2F5B3121A287C7B48B
 ```bash
 magnet:?xt=urn:btih:24D08F0A8EBEC20745FF0BB24255F8753B420333
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +462,8 @@ magnet:?xt=urn:btih:24D08F0A8EBEC20745FF0BB24255F8753B420333
 magnet:?xt=urn:btih:1A992198E5FE2F4EC57B87EEFFDA75EE347DF28C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ magnet:?xt=urn:btih:1A992198E5FE2F4EC57B87EEFFDA75EE347DF28C
 ```bash
 magnet:?xt=urn:btih:DC2E182DB5ABB3A66AB369219538DA254706C304
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +514,8 @@ magnet:?xt=urn:btih:DC2E182DB5ABB3A66AB369219538DA254706C304
 magnet:?xt=urn:btih:3686015CBBE2D8A9942BA5C58A3EDE9DD96CFC26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:3686015CBBE2D8A9942BA5C58A3EDE9DD96CFC26
 ```bash
 magnet:?xt=urn:btih:84E9CE6245BAA610FC8BB1C40A3FF67056C99A1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +566,8 @@ magnet:?xt=urn:btih:84E9CE6245BAA610FC8BB1C40A3FF67056C99A1C
 magnet:?xt=urn:btih:5D42FDB4C63F885DBE167AA01D8680DD97372E7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ magnet:?xt=urn:btih:5D42FDB4C63F885DBE167AA01D8680DD97372E7D
 ```bash
 magnet:?xt=urn:btih:26505BE0D9CB216E7F8432A6591A08BBE71C7558
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +619,8 @@ Genius Art: Image AI Generator v1.3.4 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:13B37BC179E3C3F50345E19B0C2B024C89EFD323
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ Smart AudioBook Player Pro v11.4.5 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:88E2D1C6AA836BF13C35E3DF0FF9A4E81E9C9D3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:88E2D1C6AA836BF13C35E3DF0FF9A4E81E9C9D3B
 ```bash
 magnet:?xt=urn:btih:D189F0C96B6EBF35EDBB8C558045D56D8DC1FCF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +699,8 @@ VA - Pride Rock Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:995AF51FF9EF7DC11CA086EB8B3EFBA596B6E62D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

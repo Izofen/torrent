@@ -19,6 +19,8 @@ My love with the GirlsGroup (2024) [Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:C0FB1E1842EAED19A90F4CA672ECD09986B695B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Legend of Heroes: Trails of Cold Steel III (2020) [Multi] (1.06/dlc) License
 ```bash
 magnet:?xt=urn:btih:325792F2A96FD0BCF9C014DA28C80EFB9E566F3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Agatha Christie - Murder on the Orient Express (2023) [Ru/Multi] (20231222-20582
 magnet:?xt=urn:btih:ABFE3E271D949215F4C2212551C0DD8EF52346BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ otus Lantern: Rescue Mother - это игра-рогалик с видом св�
 ```bash
 magnet:?xt=urn:btih:0F7AD13DEA619E6D0A27C53CE0AB0C5B24CF5112
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Pepper Grinder - это ураганная двухмерная адвенчур
 magnet:?xt=urn:btih:74DDCFDB94ECAEB9547CB9370CE38A23D18D0229
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ HOT WHEELS UNLEASHED 2: Turbocharged (2023) [Multi] (1.0/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D91B2861806073B5C28D10FB464412FED2C44459
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Ghostwire: Tokyo (2022) [Ru/Multi] (13890751/dlc) Repack FitGirl [Deluxe Edition
 magnet:?xt=urn:btih:2E348610FC941A2FFFABC29DA0004C090B2DCB14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Jonesville – это симулятор реальной жизни с обра
 ```bash
 magnet:?xt=urn:btih:F8CB3731FED50F8EF92E3CD60BD6F0471FDDC25F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Our Adventurer Guild - ролевая игра, где вы переместит
 magnet:?xt=urn:btih:D6DCB80BCA149D85D13C02B5E1F2C3C62FFA6BFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Goons: Legends & Mayhem - это увлекательная смесь хокк�
 ```bash
 magnet:?xt=urn:btih:2BED6B67714414D690B2680FC2AC8ACD9094C6AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Turbo Kid представляет собой метроидванию с дву
 magnet:?xt=urn:btih:E14360B3C84A4C051434977082DA12017C4C61CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Hot Wheels Unleashed (2021) [Ru/Multi] (1.0upd14/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:126250A18EBF678C01CB7112635FBE13958D29E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Rise of the Triad: Ludicrous Edition – эпическая реинкарнац
 magnet:?xt=urn:btih:B6F13E2210A62F468AC864C64B2AF853B2E7C898
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Fights in Tight Spaces (2021) [Ru/Multi] (1.2.9501/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:6FF85EC917740573C2AC03E56A3C21008B1D67AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:6FF85EC917740573C2AC03E56A3C21008B1D67AD
 magnet:?xt=urn:btih:9495A2BF833623D9A3D0F5589B5B7B44761F5CCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Hypnospace Outlaw – симулятор киберохранника в 90-х �
 ```bash
 magnet:?xt=urn:btih:CAD4EA12C805EE090A6989328D6DB9240473D811
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ The Harmony Chronicles: Chaos Realms / Хроники гармонии: Царс
 magnet:?xt=urn:btih:713CF90BE6014FF2B1D860161EED561CB5B1ED19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Mystical Riddles 4: Ghostly Park / Мистические загадки 4: Па
 ```bash
 magnet:?xt=urn:btih:D1184D1377977EDC11AA461B5EA6E5B8309441D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ BIOMORPH - это научно-фантастическая приключенч
 magnet:?xt=urn:btih:65C38E390243CC8DB541AB5BDD1D946347D4890C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Inspector Schmidt A Bavarian Tale (A Bavarian Tale: Totgeschwiegen) - ролев
 ```bash
 magnet:?xt=urn:btih:D55875A738A48C9FEB19D98F5249035DB7711E62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Farmer's Dynasty – высококачественный гибрид реал�
 magnet:?xt=urn:btih:1BD64BA68E5F4CF9872E2E31703EDDA143C08B1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Lil Doll House - атмосферный хоррор в формате escape th
 ```bash
 magnet:?xt=urn:btih:E7A4ECD341643687DCF75C674F802EC740FC2132
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ SWORD ART ONLINE Last Recollection - это приключенческий ро�
 magnet:?xt=urn:btih:40757B8A5D0ECD5021743DA7778D85310F6DDA2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Revival: Recolonization – 4X стратегия, события которой
 ```bash
 magnet:?xt=urn:btih:7E0BC705D49789B0F8050A982A2608D759172F40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Grand Canyon - это игра, которая предлагает вам по�
 magnet:?xt=urn:btih:95E4DF973FBC98241B3C4C8B3D5E62503FB02E10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Ghostwire: Tokyo (2022) [Ru/Multi] (Spider's Thread/dlc) Scene Rune [Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:139A3DB1A2F92CBC23925C362366AB4F478CC2AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

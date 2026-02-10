@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Water Park Tycoon (2014) [En] (1.2.4) Scene TiNYiSO
 ```bash
 magnet:?xt=urn:btih:4E60EB79266154A9131C1C28BB78C51FD33EC5D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (1417829 Build 17026604/dlc) Repack 
 magnet:?xt=urn:btih:D672413B58051335D91ECEBDC8BC672B833A293D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:D672413B58051335D91ECEBDC8BC672B833A293D
 ```bash
 magnet:?xt=urn:btih:794FF6D47A00B9D3467B9FFB8A821851B52F6D01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:794FF6D47A00B9D3467B9FFB8A821851B52F6D01
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:794FF6D47A00B9D3467B9FFB8A821851B52F6D01
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:794FF6D47A00B9D3467B9FFB8A821851B52F6D01
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:794FF6D47A00B9D3467B9FFB8A821851B52F6D01
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:794FF6D47A00B9D3467B9FFB8A821851B52F6D01
 magnet:?xt=urn:btih:B52C6171EDA02E88556740D5401C96C94F303442
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ GTA: Vice City - Definitive Edition - переиздание культовой 
 ```bash
 magnet:?xt=urn:btih:5403A72518CC206D7F68451FE03322E0051C5651
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ BBC. Нас уже 7.7 миллиардов человек. Дальше - бо�
 magnet:?xt=urn:btih:BDA66502611243C754CBBE9872D32E4C446C0A24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Grand Theft Auto San Andreas (2021) [Ru/Multi] (1.113.49697469) Repack Wanterlud
 magnet:?xt=urn:btih:43AFF60481798A490A5F09F601E413F7644B2579
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +330,8 @@ magnet:?xt=urn:btih:43AFF60481798A490A5F09F601E413F7644B2579
 ```bash
 magnet:?xt=urn:btih:02234732103E125C5F7014B91B266CD007925E28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ VA - Top 50 Achtziger Hits (2025) [MP3|320 Kbps] <Pop, Rock>
 magnet:?xt=urn:btih:848CD94E943706FFDCC647048D24CD55864BA605
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ VA - Stand Up And Shout - A Tribute To Ronnie James Dio (2015) [MP3|320 Kbps] <H
 magnet:?xt=urn:btih:7DB99F3428671AD462059B95B9ED5F0B3C757C48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Yorkshire — очаровательный ретро-округлый шриф�
 magnet:?xt=urn:btih:072078E3D920FA90871C7B5FD23C2319AD559451
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:072078E3D920FA90871C7B5FD23C2319AD559451
 ```bash
 magnet:?xt=urn:btih:7014E0D089D4B8F47995068B65BB8B9FCB869FC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ Secret Service - Aux Deux Magots (1987) [AAC|320 Kbps] <Pop>
 magnet:?xt=urn:btih:CD9EE58E54E3595997BDDCB555F3F78F3914B404
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:CD9EE58E54E3595997BDDCB555F3F78F3914B404
 ```bash
 magnet:?xt=urn:btih:14A721F599FDD9051F6FAF4D0BE848ED6B1399EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ VA - Dance Classics Vol. 6 (1988) Reissue, 2000, Roadrunner Arcade Music [MP3|32
 magnet:?xt=urn:btih:9D406A5E657F7669E4B1556AC5C573F74EA10723
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ QownNotes – менеджер заметок, позволяющий четко
 ```bash
 magnet:?xt=urn:btih:596FB044920A43227FD5F96B7FF5BED602769A49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ Cosity — это изысканный шрифт Display Serif, который 
 ```bash
 magnet:?xt=urn:btih:B8B19310A75A3CAAF6F8F26438B3C2E65FF6351C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +608,8 @@ Secret Service - Aux Deux Magots (1987) [OGG Vorbis|480 Kbps] <Pop>
 magnet:?xt=urn:btih:C6A284A3052D8D0B56F42F55F0FF2BFCF5A12F81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ Aquene Rough — это шрифт с засечками в стиле ар-ну
 magnet:?xt=urn:btih:928918F43052942DA4EAFFE233DC106F935A938D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ magnet:?xt=urn:btih:928918F43052942DA4EAFFE233DC106F935A938D
 ```bash
 magnet:?xt=urn:btih:AAA32363D3B4D7445FD31E752F8FD3ADD8C3E4C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +690,8 @@ VA - Dance Classics Vol. 6 (1988) [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Dis
 ```bash
 magnet:?xt=urn:btih:C886991AC6A9A3665835EA85907ABB9B935FE5FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

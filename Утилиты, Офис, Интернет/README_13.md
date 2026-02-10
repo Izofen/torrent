@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:0B6EE66652A669AABABC962D074DE61F44B323CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ MD5 Checksum Tool - небольшая утилита для рассчета MD
 ```bash
 magnet:?xt=urn:btih:402AD1CA65750CE4409594FE29731F6438C1F9B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Comfort Keys улучшает общее удобство Windows и помог�
 magnet:?xt=urn:btih:5842B42604D52AABB5A74A0C197F944E964353EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ CPU-Z способен показать различную информацию 
 ```bash
 magnet:?xt=urn:btih:ADAA650CFBD901B36746AF45C74D7A35F21919DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Macrium Reflect Free обладает интуитивно понятным по
 magnet:?xt=urn:btih:7EE24B4FDAEA8D720D6B4183964DB72BC6E52121
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ MSI Afterburner - утилита для разгона видеокарт люб
 ```bash
 magnet:?xt=urn:btih:5E9723660031F6E483556259160020AF820B715E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:5E9723660031F6E483556259160020AF820B715E
 magnet:?xt=urn:btih:0248A9EACD67EAB5FAF064E1536704A2F7B1151D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:0248A9EACD67EAB5FAF064E1536704A2F7B1151D
 ```bash
 magnet:?xt=urn:btih:4A9D701087D1F9171805D0234CDDDF771A1AA55C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 magnet:?xt=urn:btih:568B98933A8E25078C4D71C0CC817A1BB6BE9CDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:568B98933A8E25078C4D71C0CC817A1BB6BE9CDE
 ```bash
 magnet:?xt=urn:btih:B5688C0B4FCE0C15293E57A4A22981A282A7BC96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 magnet:?xt=urn:btih:96913DD278A5D73E385814F844012E801A9D5BD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Bulk Crap Uninstaller (BCUninstaller) - деинсталлятор програ�
 ```bash
 magnet:?xt=urn:btih:B32D18E439CA87B9D4DC55F2269D83DF846CC57C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ TweakPower – представляет собой единый графичес
 magnet:?xt=urn:btih:162F3BA664E243E4F459784833470CDC2F4DDB8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ MediaHuman mTube - программа будет отличным решение
 ```bash
 magnet:?xt=urn:btih:1B54D9F6E9A2B3DF431A6EB786E504A43ABE2A9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Master PDF Editor — простая, но эффективная програм
 magnet:?xt=urn:btih:8558E6E995031F6A0FA7AD199880E82169BC1FD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Total Mail Converter Pro простая в использовании прогр
 ```bash
 magnet:?xt=urn:btih:9BFA72E817BE214434063B2BC8796EF3913CAD02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ NetLimiter - программа, решающая проблему контро�
 magnet:?xt=urn:btih:00A6426E2ED13CC6CE32693036B0025D19AFCCA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Auslogics Driver Updater – программа представляющая с�
 ```bash
 magnet:?xt=urn:btih:7589F2C7431451EF442ED70E4BA57B4590C3270D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ iTop Easy Desktop позволяет вам гибко управлять эле
 magnet:?xt=urn:btih:F2E652D4439BB7C7E41CA4DB28410DFF83297795
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Revo Uninstaller Free 2.6.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:23EB5C7BB656F69CE754C0FF2F9490EE6C012E18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ WinRAR - один из самых известных архиваторов. Т�
 magnet:?xt=urn:btih:8F3A1731AEA47D1991F0F9B07CAD95AD494FB089
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:8E383B6101F3A06498A478DE5AB8127963613063
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ Windows Manager - это универсальная утилита для Micros
 ```bash
 magnet:?xt=urn:btih:D792FB384DC7AADD253235D98387527E7381DCD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ Xreveal работает в фоновом режиме, автоматичес�
 magnet:?xt=urn:btih:51B4816026A32C90487AF381FC9B44D3476D40CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Altus поддерживает темы, несколько учётных за�
 magnet:?xt=urn:btih:D22C82559CD6316F6DD4DFAE9F3DBD218079E526
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Exiland Backup - простая программа резервного копи
 ```bash
 magnet:?xt=urn:btih:635FD8C8CB60791FA28D9D3586C7E747DEE406C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

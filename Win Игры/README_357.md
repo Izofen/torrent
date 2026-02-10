@@ -1,27 +1,3 @@
-###  Публикация: 1021785   (422817) от 21.10.2016
-
-The Descendant (2016) [En] (3.2/dlc) Repack Other s [Episode 1-4]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422817.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Descendant — это приключенческая игра в сеттинге техногенного апокалипсиса, выполненная в стилистике мультфильма. В результате полного криогенного апокалипсиса, человечеству пришлось уйти под землю, и там начинать выстраивать новую жизнь.Тип издания: RepackРазработчик: Gaming Corps ABЖанр: Adventure (Space), 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C5EF584112D43A62C13A0652CBF284D838CB0E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927233   (422826) от 21.10.2016
 
 Odallus: The Dark Call (2015) [Ru/Multi] (1.1.1) License GOG
@@ -42,6 +18,8 @@ Odallus: The Dark Call - красивый аркадный платформер.
 ```bash
 magnet:?xt=urn:btih:FD4F0AD68E98B0F5BD71061F684C179C6B5F3F04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -66,6 +44,8 @@ Grim Tales 19: Heritage (2020) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:401ED0F2360B770B0D720ADFD75F0BFA73EF8096
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +72,8 @@ Lost Socks: Naughty Brothers (2016) [Ru/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:BA42B36AF775E665377B1720F8540B64BD349F8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +97,8 @@ Need for Speed: Rivals (2013) [Ru] (1.4.0.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:1A2B817794D6AE389AE5F42577CD6CE01EA0EEE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +124,8 @@ Tyranny (2016) [Ru/Multi] (1.2.0.0124/dlc) Repack R.G. Catalyst
 magnet:?xt=urn:btih:39673BBC393D912331B20C7508AD0601B18E4D45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +149,8 @@ Batman: The Telltale Series - видеоигра об одном из самых
 ```bash
 magnet:?xt=urn:btih:C7A1E2605500BED5F4BD935D6B59184106DDB76E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +176,8 @@ Marvel и Capcom объединились, чтобы организовать �
 magnet:?xt=urn:btih:7946709F60988E0B69F549962E83CBCB21872E93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +201,8 @@ NARUTO SHIPPUDEN: Ultimate Ninja STORM 3 Full Burst HD (2017) [Ru/Multi] (1.0.0.
 ```bash
 magnet:?xt=urn:btih:D85F805938641616C416AAAA568758E85FF1FF6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +229,8 @@ Rochard [Ru/Multi12] (RePack/1.31) 2011 l Fenixx
 magnet:?xt=urn:btih:71676FF740AAACF4526E4146F23C7D4522D0511D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +254,8 @@ Flood of Light (2017) [En/Ch] (1.1.3) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B4437D7314AD9EA862D344DA5D7B5AA2959CD623
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +281,8 @@ Haunted Halls 3: Revenge of Doctor Blackmore. Collector's Edition / Месть �
 magnet:?xt=urn:btih:1F1DAF4ACAACED596F841F779657B32424F58EF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +306,8 @@ Path to Mnemosyne предлагает вам отправиться в гипн
 ```bash
 magnet:?xt=urn:btih:7E2B1B0166722A75A4BB4979B7CDAA1800B26C1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +333,8 @@ Goggles: World of Vaporia - игра в жанре adventure, в которой 
 magnet:?xt=urn:btih:9808635C5A024E1A02C657B8E1B585BD8E2C690F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +358,8 @@ BloodRayne: Betrayal (2014) [Ru/Multi] (13.10.15) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:895D3ABE04BF06DE742231181C10BE8122AE17D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +385,8 @@ Secret City: London Calling / Тайный город: Лондон вызыва
 magnet:?xt=urn:btih:52C9C1F20AD5B0501F2B5975A54583E52B4FAC6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +410,8 @@ Distance — атмосферный гоночный платформер. Об�
 ```bash
 magnet:?xt=urn:btih:2F9521137533D445BE219B9F683B55B4277F92F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +437,8 @@ ELDERBORN (2020) [Ru/Multi] (1.09/dlc) License GOG [Metal AF Edition]
 magnet:?xt=urn:btih:62AFF8C3FC2B748F45568AB037AB2C58E7F0D91A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +462,8 @@ Being a DIK Season 1 (2020) [En] (0.4.8.14/dlc) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:E1584A0883C3A1B4006914E275188D56801D8A5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +490,8 @@ Ships 2017 (2016) [Ru/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:DD2078331D9CAE80071ADD921B5EE535815D86E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +517,8 @@ Ships 2017 (2016) [Ru/Multi] (1.0) License PLAZA
 magnet:?xt=urn:btih:2C2F8D6A548972F83EE017880B8B72CD9C607BA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +542,8 @@ Interstellaria (2015) [En] (1.089) License GOG
 ```bash
 magnet:?xt=urn:btih:62EE9E461E63D88E48C094057C4DA140EFEE9B79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +569,8 @@ Living Legends Remastered: Ice Rose / Живые легенды. Переизд�
 magnet:?xt=urn:btih:2DB3BBE4BB7E972C493EF1C39B368760C99E3AB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +594,8 @@ Puzzle Dimension [Ru/Multi11] (RePack/1.0u12) 2010 | NSIS
 ```bash
 magnet:?xt=urn:btih:713063D177145D55E37050AECA48DCF9B778344F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +621,8 @@ Impact Winter (2017) [Ru/Multi] (2.0.5) License PLAZA
 magnet:?xt=urn:btih:2ACD9D04B767E99E23794F4D296641375CB49A1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +646,34 @@ The Keeper of Antiques 3: The Last Will / Антиквар 3: Последняя
 ```bash
 magnet:?xt=urn:btih:0414DC361038EB2456F43720AFB7D4CEBD0FFD20
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178816   (426282) от 27.09.2018
+
+Hollow Knight (2017) [Ru/Multi] (1.4.3.2/dlc) License CODEX
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_426282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глубоко под умирающим городом Грязное Устье лежат руины древнего королевства. Многих влечет под землю тяга к богатству, славе или ответам на старинные загадки. «Hollow Knight» – классическое двухмерное приключение в огромном взаимосвязанном мире. Исследуйте извилистые пещеры, древние города и смертоносные пустоши, сражайтесь с порчеными тварями и заводите дружбу (   Читать дальше...   )Тип издания: LicenseРазработчик: Team CherryЖанр: Action, Adventure, ArcadeЯзык озвучки: Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16365DA35ECAB8AB3F1AD6C97CA9816BA53D353C
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

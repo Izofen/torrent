@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:E7426F50398B320D7765EA0F440B7790CA01C7D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NG: Малика, королева львов / Malika: The Lion Queen (2022) HD
 ```bash
 magnet:?xt=urn:btih:464414D0F6F06A5853E0FB753209D35D9661AC5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NG. Доисторические хищники / Prehistoric Predators (2007-20
 magnet:?xt=urn:btih:56116CE43E1AFD41977DABE2B7067DA7115EE489
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:56116CE43E1AFD41977DABE2B7067DA7115EE489
 ```bash
 magnet:?xt=urn:btih:E512307B6282069007595E1D078651ED35D30BE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ BBC: Живая Природа. Райские птицы / BBC: Natural World. 
 magnet:?xt=urn:btih:5CB3882B197F477CB65367985D40C36C84D723A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ BBC: Жизнь птиц / The Life of Birds (1998) DVDRemux (сезон 1, се
 ```bash
 magnet:?xt=urn:btih:481521B59550C3C26F671A759A3645F6D9961645
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ BBC. Horizon: Видим ли мы одно и то же? / Horizon: Do You See 
 magnet:?xt=urn:btih:B54FD07C3EE685C35495BD17BF0A81684137B859
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:B54FD07C3EE685C35495BD17BF0A81684137B859
 ```bash
 magnet:?xt=urn:btih:B1B0833DD6D5E15B1F5815D59C883D8EA9F80FA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:B1B0833DD6D5E15B1F5815D59C883D8EA9F80FA9
 magnet:?xt=urn:btih:3AFB5804F6163DAEB7F4A3569CCB1EB97456E4A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ NG. Акулий рай / Shark Eden (2010) WEB-DL [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:C66E47F7F5BDC461E9D8F9CDF3DB82EF64DE4FCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ PBS Nova: Загадка пустыни Наска / Nazca Desert Mystery (2022)
 magnet:?xt=urn:btih:3B33C7D31489ED4E72D4BCF6C82C251E94ADBFEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ NG. Дикий Вьетнам / Wild Vietnam (2024) WEB-DL [H.264/1080p] (сер
 ```bash
 magnet:?xt=urn:btih:05F2182310B26CFB6DC0DB8AD30E31E8A836EA9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ NG. Дикий Вьетнам / Wild Vietnam (2024) WEB-DL [H.265/2160p] [4K, SD
 magnet:?xt=urn:btih:FFE6BBE36DA26BAD1EA8DAB90A58B88146E2F839
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ NG: Планета рептилий / Planet Reptile (2025) HDTVRip [H.264/720p-
 ```bash
 magnet:?xt=urn:btih:04B286C2C23A07D20992AB32D95B0DF41425EC11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ PBS Nature: Сокровище Карибского моря / Treasure of the C
 magnet:?xt=urn:btih:D3D4DD89CD3375844B90D125F19CF06B7674ED5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ NG. Тайны бычьей акулы / Secrets of the Bull Shark (2020) WEB-DL
 ```bash
 magnet:?xt=urn:btih:7BA9783DF098C2935F6B98369CB8E0C194EC8924
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:7BA9783DF098C2935F6B98369CB8E0C194EC8924
 magnet:?xt=urn:btih:0FEAC9FE64B200FF645DC3FDB75C96F17486F70D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ magnet:?xt=urn:btih:0FEAC9FE64B200FF645DC3FDB75C96F17486F70D
 ```bash
 magnet:?xt=urn:btih:000DB46C893EE31A8AD65A4F55280C740F9BE417
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:000DB46C893EE31A8AD65A4F55280C740F9BE417
 magnet:?xt=urn:btih:7BF2B104E23E6B92E966F423B6544273472D4F35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ Discovery: Сражение динозавров / Clash of the dinosaurs (2009)
 ```bash
 magnet:?xt=urn:btih:70220F37016A4CAD51CF740C2EA3CDCB7B6E53E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ NG. Дикая природа Центральной Америки / Wild Centr
 magnet:?xt=urn:btih:BC00C7C484D40314ED621243E2A6821FFBA78381
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ NG: Чудища морей: Доисторическое Приключение
 ```bash
 magnet:?xt=urn:btih:86E8E0DCEE47A1C6AE014D4198256F6DD56AA887
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ magnet:?xt=urn:btih:86E8E0DCEE47A1C6AE014D4198256F6DD56AA887
 magnet:?xt=urn:btih:F1AF11A01D5B9659E7FD195EF082B31275CB323D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ NG. Незабываемые дорожные приключения Криса 
 ```bash
 magnet:?xt=urn:btih:1D3838D1ACA1F3298C322F106D0DA9743E506CFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ NG. Незабываемые дорожные приключения Криса 
 magnet:?xt=urn:btih:A1D60DDAA6737CA82CB811BBB6546C029773052B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ NG: Дикие леса Австралии / Australia's Wild Woodlands (2025) H
 ```bash
 magnet:?xt=urn:btih:4D26288EF130A4B793427DE4DEE0B3AAF9C6B6AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

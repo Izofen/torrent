@@ -20,6 +20,8 @@ Phantom Breaker: Battle Grounds — совместная экшен-игра д�
 magnet:?xt=urn:btih:E638DE9908D41B34DF356606C14A1CC11C2AF0C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Hitman: Absolution (2012) [PS3] [EUR] 4.25 [Cobra ODE / E3 ODE PRO ISO] [License
 ```bash
 magnet:?xt=urn:btih:CDA764B563B18FB91847377102A9FD451B689DC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:CDA764B563B18FB91847377102A9FD451B689DC2
 magnet:?xt=urn:btih:C4F18D66556C3D0FA03A88894F29E47EAA2AB9FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Heroes Over Europe (2009) [PS3] [EUR] 2.80 [Cobra ODE / E3 ODE PRO ISO] [License
 ```bash
 magnet:?xt=urn:btih:1761A7C3360FB19C4CC7C6FF2BC77B52FF77F386
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Resident Evil 6 (2019) [Switch] [USA] 8.1.0 [NSZ] [License / 1.0.1] [Ru/En]
 magnet:?xt=urn:btih:D0EA120117880C924518E06BEFA9C28F8AE5CCF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ RAD — это трехмерный боевик с элементами rogueli
 magnet:?xt=urn:btih:1336E24C3299C3442E28392154280D25A12FCD36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Vampyr (2019) [Switch] [USA] 9.0.1 [NSP] [License / 0.4] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:6B405646A3FB72696F79F93D6FF591395D67ECDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Fishing Resort [Wii] [NTSC] [ENG] (2011)
 magnet:?xt=urn:btih:3F72500C9561B8B86879C4EB6BD92B1D0F8943FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Just Cause 2 (2010) [Xbox360] [RegionFree] FreeBoot [License / DLC / TU] [Ru]
 ```bash
 magnet:?xt=urn:btih:76F4EF299F7655B42161DDD37A9BB6163BCC3188
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ GRID Autosport: Limited Black Edition (2014) [Xbox360] [RegionFree] FreeBoot [Li
 magnet:?xt=urn:btih:F3FC22C396F970FCCF76F275F7C47BAAE8FA0886
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Cloudy With a Chance of Meatballs / Облачно, возможны осадк�
 ```bash
 magnet:?xt=urn:btih:55E1F6B390AD0E4C0721F1925EA24DA5488F8226
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Winter Sports 2011: Go for Gold - примите участие в девяти 
 magnet:?xt=urn:btih:2C4AD5F635E41E7601C4388C9ACD4B61E8D05393
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ The History Channel: Battle for the Pacific (2008) [PS3] [EUR] 2.10 [Cobra ODE /
 ```bash
 magnet:?xt=urn:btih:8FF1B56F8C67A95DD8224E4A92329FF2DBE2DFAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Kung Fu Panda: Showdown of Legendary Legends – стилизованный по
 magnet:?xt=urn:btih:0E41D98D25420F0717D1976261BC33558E94AFC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Cars: Mater-National Championship (2007) [PS3] [EUR] 1.93 [Cobra ODE / E3 ODE PR
 ```bash
 magnet:?xt=urn:btih:2D5CB9386205C47686878EE512E0117A3FFCA477
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Truck Racer (2013) [PS3] [EUR] 4.46 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
 magnet:?xt=urn:btih:84AFF4F7455019582A36DB186B946022DEFA65EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Boom Blox [Wii] [PAL] [Multi 6] (2008)
 ```bash
 magnet:?xt=urn:btih:63BFF6CC15371B4E36EFDDD1D0156A9C95457E84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Rock Band 2 [Wii] [PAL] [Eng] (2008)
 magnet:?xt=urn:btih:3DB8D7A68DBC4E41C16D74E070D42455C157AC0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Bound by Flame – ролевая игра с экшен боями, дейст�
 ```bash
 magnet:?xt=urn:btih:0312F364F9A9E2876BCF158163CB8E391C5A14B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Rogue Warrior (2009) [PS3] [USA] 3.01 [Cobra ODE / E3 ODE PRO ISO] [License] [En
 magnet:?xt=urn:btih:48CD9CCCF00D946BDE298DB2D5248E09B7EEB80C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Nobunaga’s Ambition: Creation - это пятнадцатая часть по�
 ```bash
 magnet:?xt=urn:btih:793168162568C0F902C274BD8AF6FF6F92D29988
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Ratatouille / Рататуй (2007) [PS3] [EUR] 1.80 [Cobra ODE / E3 ODE PRO ISO
 magnet:?xt=urn:btih:1264DA654573828523FA1D3E956CDEEC9AEA2E65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ The Swapper — это 2D платформер, в котором предсто
 ```bash
 magnet:?xt=urn:btih:C68D7250868615A71FBD87F3A642BE37E87AAD97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ Endless Ocean [Wii] [PAL] [Multi 5] (2008)
 magnet:?xt=urn:btih:26AE9306278889A127DAEEF65015B062E6D37D08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ X-Men: The Official Game расскажет о событиях, происхо�
 ```bash
 magnet:?xt=urn:btih:F926BDD7EF1F066697CE1ABE7E7E0DC72403D1FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +679,8 @@ Pikmin 2 [Wii] [PAL] [Multi 5] (2009)
 ```bash
 magnet:?xt=urn:btih:548A52EC9ACC13B4C9365A02CB33642DC8C31D54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

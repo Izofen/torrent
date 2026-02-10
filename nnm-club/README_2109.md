@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3AD86D40962A1E0BC1B161925539FB6DFCC8F503
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Microsoft добавила в пакет утилит PowerToys для Windows 1
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Dream Engines Nomad Cities – это необычный градостроит�
 magnet:?xt=urn:btih:CF5CDB46052856400B339F83F308BAAF90354305
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:CF5CDB46052856400B339F83F308BAAF90354305
 ```bash
 magnet:?xt=urn:btih:9A3CB134E35C08E21C1E440F094ACAF2D96A2132
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 magnet:?xt=urn:btih:FFF3DA89FE0A4CE4FFDC6BE98B4883E9DBD4B81F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ PBS. Экспедиция со Стивом Бакшоллом / Expedition with
 ```bash
 magnet:?xt=urn:btih:245D3DD0A400217516C91A62E32DCF38D089ECD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Total Commander 11.03 (22.05.2024) Portable by MiG [Ru/En]
 magnet:?xt=urn:btih:7C4B881AD2090E382A3FF45355BA3200CE26CDAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:7C4B881AD2090E382A3FF45355BA3200CE26CDAD
 ```bash
 magnet:?xt=urn:btih:123090A16AFEA5AABCED21B11507834A46105E1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:123090A16AFEA5AABCED21B11507834A46105E1D
 magnet:?xt=urn:btih:5D92A9D925EC5C6241B76E20068244CBE85D1763
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Car For Sale Simulator 23 - это в основном игра по покуп�
 ```bash
 magnet:?xt=urn:btih:E0C178C3202957EE1D5AD5DCDDBC3C4EABEDB613
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:E0C178C3202957EE1D5AD5DCDDBC3C4EABEDB613
 magnet:?xt=urn:btih:690210E59A6FA49F2DA01C8D2030741D18D17418
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ MSMG ToolKit позволяет создавать облегченную вер
 magnet:?xt=urn:btih:9393F7AAA5D3BD97F3D3C248D6D8D09885EE48A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:9393F7AAA5D3BD97F3D3C248D6D8D09885EE48A9
 ```bash
 magnet:?xt=urn:btih:24821B2913633E5B292830C8D5857C2052E86465
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:24821B2913633E5B292830C8D5857C2052E86465
 magnet:?xt=urn:btih:68AC5D1DB1A5ACA62F44074BEF044095755196EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Tanya Lapointe | Артбук по фильму Дюна / The Art and Soul of D
 magnet:?xt=urn:btih:E5B7A6D7BDD66571950C72B5A87A36FD6700D442
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:E5B7A6D7BDD66571950C72B5A87A36FD6700D442
 ```bash
 magnet:?xt=urn:btih:F3B27980B45E29A0A211B155B324046894207BDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Movie Studio 2025 - это мощное, но простое в использо
 magnet:?xt=urn:btih:A1154F1E9E0345F15DFEEE04C7974A8E32B6D80E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:A1154F1E9E0345F15DFEEE04C7974A8E32B6D80E
 ```bash
 magnet:?xt=urn:btih:33A1EE5A0BF0BC285780B67D7EA56DAFA57B13AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:33A1EE5A0BF0BC285780B67D7EA56DAFA57B13AA
 magnet:?xt=urn:btih:D7986DE6655DD4562328065E09C98F5CC9D15F15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:D7986DE6655DD4562328065E09C98F5CC9D15F15
 ```bash
 magnet:?xt=urn:btih:ACBF76747A5A6A2931268EA99E055DC3BD9C058F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:ACBF76747A5A6A2931268EA99E055DC3BD9C058F
 magnet:?xt=urn:btih:06A821E2174AE5E80C6145434FB4F6BB59CF919E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:06A821E2174AE5E80C6145434FB4F6BB59CF919E
 ```bash
 magnet:?xt=urn:btih:0E6F1F400892377DD1767A3953AEFBAC39CABA3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:0E6F1F400892377DD1767A3953AEFBAC39CABA3C
 magnet:?xt=urn:btih:908FDF84DE6B8F9219D47ECE7655A9CF9C994812
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:908FDF84DE6B8F9219D47ECE7655A9CF9C994812
 ```bash
 magnet:?xt=urn:btih:1D3A45EDB59AFDC6FE1B742743F278AC87194620
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ Adobe Photoshop 2024 - новая версия программы для обр�
 magnet:?xt=urn:btih:D906EAE41A07767D9ECEA925C15493B928363000
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ magnet:?xt=urn:btih:D906EAE41A07767D9ECEA925C15493B928363000
 ```bash
 magnet:?xt=urn:btih:412C8F266BB379344FC5C018D5567EA5F6B4F517
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

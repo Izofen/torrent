@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:172E5D81BAF0F8391E3789E78AA6AB32663063BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Meat Loaf - американский рок-певец, кино- и театр�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Pink выступила в Австралии на концерте в подд�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Pink выступила в Австралии на концерте в подд�
 magnet:?xt=urn:btih:1D288E2B753B03CA729D6C5DE64C13360D755AE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:1D288E2B753B03CA729D6C5DE64C13360D755AE4
 magnet:?xt=urn:btih:BDCE8941741446526C6C17A383B3D50B9E36F4FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ DVJ BAZUKA (Базука) - Первая девушка DVJ в мире. Про�
 ```bash
 magnet:?xt=urn:btih:A22051D05DB4D5CFA1801CDFFF59780CAA24EC8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:A22051D05DB4D5CFA1801CDFFF59780CAA24EC8C
 ```bash
 magnet:?xt=urn:btih:74ABD21F396A4882E48588275854E26A929434C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:74ABD21F396A4882E48588275854E26A929434C0
 magnet:?xt=urn:btih:22513786AC99DB964102C107B542DA7E2A3B5201
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ Eros Ramazzotti - Stilelibero (2001) DVD9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -258,6 +276,8 @@ Eros Ramazzotti - Stilelibero (2001) DVD9
 magnet:?xt=urn:btih:1312CAD3CF7BAA5F7CB8C5C6534D31A802808B5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +304,8 @@ magnet:?xt=urn:btih:1312CAD3CF7BAA5F7CB8C5C6534D31A802808B5D
 magnet:?xt=urn:btih:01F9988EF5724271745EFEC1E5DA996BCD3FCDDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +329,8 @@ magnet:?xt=urn:btih:01F9988EF5724271745EFEC1E5DA996BCD3FCDDB
 ```bash
 magnet:?xt=urn:btih:F87788B345D2D8219EFFC60EFBE5C7865704E50D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +356,8 @@ Foreigner: Greatest Hits/Soundstage (2008)[720p] BDRip
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +381,8 @@ Foreigner: Greatest Hits/Soundstage (2008)[720p] BDRip
 ```bash
 magnet:?xt=urn:btih:88EE47D320BCC496B848789389B56572F48234A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +417,8 @@ Adele: Live at the Royal Albert Hall (2011) [1080i] Blu-Ray
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +448,8 @@ Adele: Live at the Royal Albert Hall (2011) [1080i] Blu-Ray
 magnet:?xt=urn:btih:904B575D1B15B9CEB99A7E0632CB37C26D59A3E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +476,8 @@ magnet:?xt=urn:btih:904B575D1B15B9CEB99A7E0632CB37C26D59A3E2
 magnet:?xt=urn:btih:383F676E31C013F567DD718EB948C030DDDC772D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +502,8 @@ magnet:?xt=urn:btih:383F676E31C013F567DD718EB948C030DDDC772D
 ```bash
 magnet:?xt=urn:btih:E4ECA002D5DB0B103EA1B7792F51C3E5C10B379F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +532,8 @@ http://en.wikipedia.org/wiki/Dave_GrusinЖанр: ДжазРежиссер: LEE 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +559,8 @@ http://en.wikipedia.org/wiki/Dave_GrusinЖанр: ДжазРежиссер: LEE 
 ```bash
 magnet:?xt=urn:btih:885D8ECA5A5E16E18C39C698A1B8E8477AFDEA72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +592,8 @@ Big Love Show / Грандиозный концерт ко Дню всех Вл�
 ```bash
 magnet:?xt=urn:btih:263E3D5C8A19BE5688DD42EB4C82ED684E1604AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +628,8 @@ magnet:?xt=urn:btih:263E3D5C8A19BE5688DD42EB4C82ED684E1604AA
 magnet:?xt=urn:btih:634686CA9B2EA19F70C6D311F68EB73E2E4B63A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +655,8 @@ magnet:?xt=urn:btih:634686CA9B2EA19F70C6D311F68EB73E2E4B63A9
 ```bash
 magnet:?xt=urn:btih:0BE2F8991E47DB529D452024B46213336A946009
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -645,6 +691,8 @@ VA - Millenium Sexy vol.3 - Сборник видеоклипов (2011) DVDRip
 magnet:?xt=urn:btih:25DC6C6C973B99AE17476F4B83332ACE0159ABB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -678,6 +726,8 @@ Ozzy Osbourne-The Ultimate Ozzy (1986) DVD9
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -701,6 +751,8 @@ Deep purple - Machine Head Live 1972 (1999) DVD5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

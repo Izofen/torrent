@@ -20,6 +20,8 @@ Microsoft не рекомендует использование програм�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Microsoft не рекомендует использование програм�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Arcania: Gothic 4 / Готика 4: Аркания (2010-2011) [Ru/En/Ge] (1.1.0
 ```bash
 magnet:?xt=urn:btih:D4E0128E4B6C59BD7374384001464D490360BE0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:D4E0128E4B6C59BD7374384001464D490360BE0C
 magnet:?xt=urn:btih:EC2911DBAED206EE6F7AE61BF61C01D518E8FC2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:EC2911DBAED206EE6F7AE61BF61C01D518E8FC2A
 magnet:?xt=urn:btih:090EB3B3C50704584EC4CD7976829C37F33A5C7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:090EB3B3C50704584EC4CD7976829C37F33A5C7E
 ```bash
 magnet:?xt=urn:btih:6B708825DD67122FBE1E2F73B0F82E5AB84E67C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ Windows 10 (v1809) x64 5in1 by kuloymin v17 (esd) [Ru]
 magnet:?xt=urn:btih:8CF2ACE81CD135C701143A878040C47138AF5382
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:8CF2ACE81CD135C701143A878040C47138AF5382
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ GoodbyeDPI.0.1.6. Launcher-3.9 [Ru]
 magnet:?xt=urn:btih:E86767C8F42169224E6F1E2B1147B1E62190B2C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ OS X Hackintosh. Ответы на вопросы.
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ OS X Hackintosh. Ответы на вопросы.
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ OS X Hackintosh. Ответы на вопросы.
 ```bash
 magnet:?xt=urn:btih:7C643C789E8A3BA01A051D065FA655DA50EEEA8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:7C643C789E8A3BA01A051D065FA655DA50EEEA8E
 magnet:?xt=urn:btih:D27149052957FFD3E9B3FA9DEA0F1AF3587C7CB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:D27149052957FFD3E9B3FA9DEA0F1AF3587C7CB8
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ Monogatari Series: Second Season / Истории, сезон второй [2013
 magnet:?xt=urn:btih:8FEF7DB36B8F08D21A51053F44C64098D8B85933
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:8FEF7DB36B8F08D21A51053F44C64098D8B85933
 ```bash
 magnet:?xt=urn:btih:1514D8424FFF8888FBA7780C71EF450DB28962AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ Shinchou Yuusha: Kono Yuusha ga Ore Tueee Kuse ni Shinchou Sugiru | Этот г�
 magnet:?xt=urn:btih:66C90F5BDCC05643906443718E42C526CC53DFAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ Hataage! Kemono Michi | Kemono Michi: Rise Up | Дорога зверя [2019, T
 ```bash
 magnet:?xt=urn:btih:AB3E0CC5451833F0C0E50315015C3E41747EF7BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ Kerish Doctor — комплексное решение для автомати�
 magnet:?xt=urn:btih:8C43F0E530F7DA95971A843099DCDCCFD7957488
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:8C43F0E530F7DA95971A843099DCDCCFD7957488
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:8C43F0E530F7DA95971A843099DCDCCFD7957488
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ Call of Duty: Black Ops Cold War (2020) [Ru/En] (1.34.0.15931218) Rip Other s
 ```bash
 magnet:?xt=urn:btih:452C798D43514531EF80C88F1BE39469484D9B26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ Might and Magic: Clash of Heroes - это увлекательный микс и
 magnet:?xt=urn:btih:9C956E907779C9FD49AF82CBB0702CFF103FEBD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:9C956E907779C9FD49AF82CBB0702CFF103FEBD2
 ```bash
 magnet:?xt=urn:btih:6EFD4877E935700DA59D43FEBA27B9273E7FE51D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:6EFD4877E935700DA59D43FEBA27B9273E7FE51D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:6EFD4877E935700DA59D43FEBA27B9273E7FE51D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ The Fleets of Sol – вторая игра в серии космических
 magnet:?xt=urn:btih:9B410B77058C34953BF93B7E81F492CBEADE6805
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Company of Heroes 2 (2014) [Ru/En] (4.0.0.23391/dlc) SteamRip =nemos= [Master Co
 ```bash
 magnet:?xt=urn:btih:FF3084216069F5E3C74405FF68A1CB6FE7C77F20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Panzer Corps: Soviet Corps (2016) [Ru/Multi] (1.25/dlc) License SKIDROW
 magnet:?xt=urn:btih:E61B0D784A522CF546383E7DDD971060D727032C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Atlantic Fleet - масштабная морская стратегия с по�
 ```bash
 magnet:?xt=urn:btih:A0DA360483F256CF53C6D379CB1D8BD094A204F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Expeditions: Conquistador (2013) [Ru/Multi] (1.6.5) License GOG
 magnet:?xt=urn:btih:68223425210DC65E5E650B46E46FFBF379A42677
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Ceres (2015) [Ru/Multi] (1.2.0) Repack ARMENIAC
 ```bash
 magnet:?xt=urn:btih:7E38EB636F4A5C6041949CA0B13BC4532D65E17B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ XCOM 2 – это продолжение полюбившейся игрокам
 magnet:?xt=urn:btih:E115C3BFF8154E1977E59A77C47BAB76AE23A4CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Panzer Corps (2010) [Ru/Multi] (1.30/dlc) License GOG [Gold]
 ```bash
 magnet:?xt=urn:btih:DB827C8A8BFF3423CAD248DFCE2B5DBAD1B1BE4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ XCOM 2 – это продолжение полюбившейся игрокам
 magnet:?xt=urn:btih:8AEFA59D1314A340CC91183F6EDC5919A123C0A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Syrian Warfare (2017) [En] (1.0.0.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:5AD553B5AC2AF1044DA7367BB76973EFD442819B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Halfway — это пошаговая RPG стратегия, события к�
 magnet:?xt=urn:btih:7976920D58344534D99FC18B8233A4A654D17B3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Fell Seal: Arbiter's Mark – пошаговая тактическая роле
 ```bash
 magnet:?xt=urn:btih:01FA833C88CB38BE9D6A3F416CE821901C5F9FD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Legends of Eisenwald – это приключенческая игра с та�
 magnet:?xt=urn:btih:B68258A6E03B12DB6FE12B2A98B55AA100C3C77E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Warhammer 40,000: Armageddon (2014) [Ru/Multi] (1.10/dlc) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:F9B6E0C41914062822FBD1B5FB9A98B3BE7FD9EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ StarСraft II: Legacy of the Void (2015) [Ru/En] (3.1.4.41219) Battle.Net-Rip OR
 magnet:?xt=urn:btih:937FAE70F22B34A1354964AD1F5ED6BB8B9FAE24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Battle of Empires: 1914-1918 / Битва империй: 1914-1918 (2015) [Ru] 
 ```bash
 magnet:?xt=urn:btih:AE5370C0FD36F62A1D3A6C7CEEEA8DB70274E975
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Frontline Zed (2019) [Ru/Multi] (1.30) Repack Other s
 magnet:?xt=urn:btih:605E7AF9DAEA82ABBBF66BD231895DBA2D6C859D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Panzer Corps 2 — лучшая стратегическая игра о Вто�
 ```bash
 magnet:?xt=urn:btih:98ADE6D4EF3F175130CDF414B6E955B276364E6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Dungeons 2 (2015) [Ru] (1.5.2.4-ae89b35a3232/dlc) Repack xatab
 magnet:?xt=urn:btih:D19A132CBD11C2F54989AF70A83C8F9616C64DC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Command: Modern Air / Naval Operations (2014) [En] (1.11 SR6 b870.4/dlc) License
 ```bash
 magnet:?xt=urn:btih:4C31ADC2353E8E9255CD50F7400A5EC8353A8C4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ XCOM 2 (2016) [Ru/En/Pl] (1.0.0.33124/dlc) Repack R.G. Origami [Digital Deluxe E
 magnet:?xt=urn:btih:461C74E0228F34152A1C4D43F58E2A0D4C56E043
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Spellcrafter (2015) [Ru/Multi] (1.0) License PROPHET
 ```bash
 magnet:?xt=urn:btih:868A35871BFA51ED32C450A865EDABEBB1E27BB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:868A35871BFA51ED32C450A865EDABEBB1E27BB1
 magnet:?xt=urn:btih:3C716D6D8E1BA38B9AF844D0E1B97C2FEB215576
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Fantasy General II — это переработка классической с
 ```bash
 magnet:?xt=urn:btih:68CB4EF2DA517224CFEC66C6F631D3B27AFC7029
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ XCOM 2 (2016) [Ru/Multi] (1.0.0.33124/dlc) SteamRip Let'sРlay [Digital Deluxe]
 magnet:?xt=urn:btih:DD3EC2CB0485E8BE7CDAF0970AA39FB17BFDD448
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Stars in Shadow это пошаговая научно-фантастическ�
 ```bash
 magnet:?xt=urn:btih:B6135A205253A441FAE0D65C98670CB0D6F45E5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

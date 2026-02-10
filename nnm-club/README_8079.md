@@ -22,6 +22,8 @@ Kamala - Karma (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 magnet:?xt=urn:btih:8BBE9D4843DCB088FBD59DBD760407BA920EF05C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:8BBE9D4843DCB088FBD59DBD760407BA920EF05C
 ```bash
 magnet:?xt=urn:btih:84C5A260D2CBE24A06A6FAC9366718E30BAEC342
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:84C5A260D2CBE24A06A6FAC9366718E30BAEC342
 magnet:?xt=urn:btih:CC85BD7B944D69CCC4189D9EFC1281E5987B5C28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ CD1:
 magnet:?xt=urn:btih:459D5B7D0D4D1B95F2E45C9D9617358D8D14902D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:459D5B7D0D4D1B95F2E45C9D9617358D8D14902D
 ```bash
 magnet:?xt=urn:btih:BBA49CB0576F5DCC957B5A123CC95AECC298DBAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ Imperia - The Last Horizon (2021) [MP3|320 Kbps] <Heavy Metal>
 magnet:?xt=urn:btih:37D7401AACEF31DB200120069432744A8F831F86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:37D7401AACEF31DB200120069432744A8F831F86
 ```bash
 magnet:?xt=urn:btih:0B51F25F12613ED31974A061361EDCB478740B11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ Trojan Killer – представляет собой антивирусный �
 magnet:?xt=urn:btih:E04FDE01A825A519AA80465A3C3CB9133857C976
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:E04FDE01A825A519AA80465A3C3CB9133857C976
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:E04FDE01A825A519AA80465A3C3CB9133857C976
 ```bash
 magnet:?xt=urn:btih:9AB84832265C090F322412A12F5A7CB0CCD17917
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ Jazzystics - Jazz & Chill Out (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 magnet:?xt=urn:btih:9DDA5A31E79831C9FA2CD0D1DEA61B3C68DBA4D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ Hush Money - Industry Standard (2022) [FLAC|Lossless|WEB-DL|tracks] <Southern Ro
 magnet:?xt=urn:btih:62800AE88428CE9CE7F0846DBF83D81CFE801BF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ Bandicam позволяет записать определенную облас
 magnet:?xt=urn:btih:F0E182E2066E35C35F52627302A7E27432F64550
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:F0E182E2066E35C35F52627302A7E27432F64550
 ```bash
 magnet:?xt=urn:btih:48C85F4DF7A1B240E453049A3989AFB0DB8EEE7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +405,8 @@ magnet:?xt=urn:btih:48C85F4DF7A1B240E453049A3989AFB0DB8EEE7C
 magnet:?xt=urn:btih:3A5C2FD6E336067C211FF3AD339275A2CDA650C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:3A5C2FD6E336067C211FF3AD339275A2CDA650C5
 ```bash
 magnet:?xt=urn:btih:5ABD6EC283699DB042683E365F039B06CF92711D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +457,8 @@ magnet:?xt=urn:btih:5ABD6EC283699DB042683E365F039B06CF92711D
 magnet:?xt=urn:btih:D04402DA72900E2D0374332850ABE4902D30D51D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ magnet:?xt=urn:btih:D04402DA72900E2D0374332850ABE4902D30D51D
 ```bash
 magnet:?xt=urn:btih:EC263B3426F844005A6DD0F2F26D63A9E5E39DEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +512,8 @@ Steel Panther - On the Prowl (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Hard, Glam-R
 magnet:?xt=urn:btih:DD061036B103AE5A958801052CC3519E1DE3B357
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ Enter Shikari - A Kiss for the Whole World (2023) [MP3|320 Kbps] <Alternative Ro
 ```bash
 magnet:?xt=urn:btih:CF25B4221EC5C74E22BE2CD815EB6F0335DDD830
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +570,8 @@ Signum Regis - Through The Storm (2015) EP [FLAC|Lossless|image + .cue] <Power M
 magnet:?xt=urn:btih:FB1630825071889B6A0464E1F99BA0059C0C9EB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +598,8 @@ Mad Show Boys - Эпидемия добра (2018) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:6650AA5DE27F8C588BF0FFE1F397E7B6E54E474F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +628,8 @@ Drakkar - Chaos Lord (2021) [MP3|320 Kbps] <Power Metal>
 magnet:?xt=urn:btih:A2D2122429C7A8B70BC3FA8514833FAB35598EF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +653,8 @@ Dual Monitor Auto Mouse Lock - это инструмент, который по�
 ```bash
 magnet:?xt=urn:btih:5BEE61F034E8C857F30FB44CA4A1CF8BE55AFD7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +680,8 @@ magnet:?xt=urn:btih:5BEE61F034E8C857F30FB44CA4A1CF8BE55AFD7F
 magnet:?xt=urn:btih:B3B489A30867F82D5C1DEFE1255EA9F922015F82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ TG Pro — контроль температуры и вентиляторов �
 ```bash
 magnet:?xt=urn:btih:32B0A328C1374F145582C5A80425937B2CBAF126
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

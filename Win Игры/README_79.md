@@ -19,6 +19,8 @@ Still Joking (2024) [Ru/En] (1.2251) License GOG
 magnet:?xt=urn:btih:285087AAA07900D780B43A836E2A5FEAA96867D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Quilts & Cats of Calico - это уникальная и наполненная 
 ```bash
 magnet:?xt=urn:btih:437AA24E7B88FF3733C922F2342EA92826C33C58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Core Keeper (2022) [Ru/Multi] (1.1.0.2-a156) Repack Wanterlude
 magnet:?xt=urn:btih:7CD994862C89818A7EBC47CB8EC6ADE18FEC9334
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Darkest Dungeon 2 - сиквел готической ролевой игры, �
 ```bash
 magnet:?xt=urn:btih:4AD0283B8A2494CE81C09C928B1F2D98149693D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Gas Station Simulator - это все о ремонте, развитии и э�
 magnet:?xt=urn:btih:9261DC0C628D452F1DDF98AC8B97906E2C3536AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.04.160.1/dlc) Repack Wanterl
 ```bash
 magnet:?xt=urn:btih:FB61390A0701E5A6E2BEA5FF6EF2877263145604
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Broken Roads создана командой настоящих энтузиас
 magnet:?xt=urn:btih:CA4EF6F034476CC59E5EB97DA406C196493AF30F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Lizards Must Die 2 / Русы против ящеров 2 (2025) [Ru/Multi] (bui
 ```bash
 magnet:?xt=urn:btih:487A840AF796CFB4A532AC89CB58B413679FEFDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Riftbreaker (2021) [Ru/Multi] (Exe:1033 Data:640/dlc) Repack Wanterlude
 magnet:?xt=urn:btih:8D1E81AE8C02598BDACA9A7472809362DFD38BA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Orcs Must Die! Deathtrap - это безумные бои от третьего 
 ```bash
 magnet:?xt=urn:btih:69670B1B22089114F015279D2A02EF0A1B6D2A85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15770319/dlc) Repack Wanterl
 magnet:?xt=urn:btih:95BB4187EB459042AEDC9009C6D1D2F67C7FA00C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Beyond the Ice Palace 2 (2025) [Ru/Multi] (1.1.1h) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:467885AE5DB77FCDE7481FBD4519982343E0ED4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ The Axis Unseen - это игра в жанре хэви-метал хоррор
 magnet:?xt=urn:btih:6EF230FE32DBF7C54F3996B9D832866C75ACD214
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Endzone 2 бросает вас в самую гущу постапокалип�
 ```bash
 magnet:?xt=urn:btih:36B58BCB34C700B3ABBFC2A66D16FBFC47BBEF85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Medieval Dynasty (2020) [Ru/Multi] (2.3.1.1/dlc) Repack Wanterlude
 magnet:?xt=urn:btih:9AFDA7D931CD524D132E36C84B568005A2DECCB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Wartales - ролевое приключение в открытом мире, �
 ```bash
 magnet:?xt=urn:btih:F0DE308ECB8B0010ECD22F4B3E5054554A7E832A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Songs of Conquest - пошаговая стратегия, вдохновлен�
 magnet:?xt=urn:btih:BD787EBF5AE5DCB44BB160317852E5486BC6950F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ The Matchless KungFu - это ролевая игра с открытым мир
 ```bash
 magnet:?xt=urn:btih:9179A033C8BA88F602FB68173816531876B9356F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ The Full Package Remastered - благодаря улучшенной графи
 magnet:?xt=urn:btih:406BFEA92A19DE62D16059C4900EF258E7C7C852
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Poop Killer: Flush or Die (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9B9F238CAFCDD18D026389707B329A4EA8779702
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Crash Time - Undercover – отправьтесь навстречу безос
 magnet:?xt=urn:btih:880BD4297C4779E307C2C8A2BB87C896FE1C1980
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Control (2020) [Ru/Multi] (1.30/dlc) Repack Let'sРlay [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:34B8D3B65E03A709406BDEFFF18DE0D5CE880040
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Easy Red 2 - шутер от первого лица с элементами с�
 magnet:?xt=urn:btih:2991A2E009CE16E5C8E77980DB3857AE4575FCAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ KARMA: The Dark World (2025) [Ru/Multi] (build 17844576) Repack FitGirl [Digital
 ```bash
 magnet:?xt=urn:btih:B22987C5F7522CB677E43AED5E50A55D5ECD66E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Ai Limit (2025) [Ru/Multi] (Build 17884331/dlc) Repack Other s [Deluxe Edition]
 magnet:?xt=urn:btih:2F26A1D293AB29229C80B323CD01D8402632D08D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Wildermyth — процедурно генерируемая тактическ�
 ```bash
 magnet:?xt=urn:btih:357E344B4875DB3AFC72118B816DD9E72BD0BA20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

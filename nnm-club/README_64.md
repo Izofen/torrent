@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:B7594C2989112AEC717EAA188DD60E8014E25DF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Greedland - это игра, предоставляющая поклонника
 ```bash
 magnet:?xt=urn:btih:964890935326B63859F147E4DCD2BAC4849BECFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NODE: The Last Favor of the Antarii / NODE: последняя услуга Ан
 magnet:?xt=urn:btih:A0C8AF6D3590BD6B48DAFF1A6D837AD58A33E88A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ For The King II (2023) [Ru/Multi] (1.8.8/dlc) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:7D6C44098597FE641EAE243051391EFD9AEFD82D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Google Earth Pro 7.3.6.10441 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:1C1C5E445640537D89D255A1D737567EBB332287
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:1C1C5E445640537D89D255A1D737567EBB332287
 ```bash
 magnet:?xt=urn:btih:B735F298325A784B5F46883E87CE5F8F5A857806
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:B735F298325A784B5F46883E87CE5F8F5A857806
 magnet:?xt=urn:btih:A61AA11FADE6C7E59E059606CC884151D521B2B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Dead Reset (2025) [Ru/Multi] (1.0.2) Repack Other s
 ```bash
 magnet:?xt=urn:btih:20D9A92FFFF1FA1FE599FB7CD3B700CC182E1CD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Kaoru Hana wa Rin to Saku | The Fragrant Flower Blooms with Dignity | Благо
 magnet:?xt=urn:btih:C09DDF42155DDEDD0CC9811858131350484FE35A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:C09DDF42155DDEDD0CC9811858131350484FE35A
 ```bash
 magnet:?xt=urn:btih:7A4AF9EF25FCA841087BC218347203FEF744B950
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:7A4AF9EF25FCA841087BC218347203FEF744B950
 magnet:?xt=urn:btih:D6C69850317AB74659690CCF9B39610503650D5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:D6C69850317AB74659690CCF9B39610503650D5C
 ```bash
 magnet:?xt=urn:btih:1903976654F830883C00E60F885D9BD10F716159
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ ESET NOD32 Internet Security - комплексное антивирусное �
 magnet:?xt=urn:btih:E4C7BADA0799539A71881EDBD0FF5A2C8F84069F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:E4C7BADA0799539A71881EDBD0FF5A2C8F84069F
 ```bash
 magnet:?xt=urn:btih:2CA8705C4194D207CB8FBBDDC903E5219E033ACA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ He пoлyчив paбoтy cвoeй мeчты пpи кopoлeвcкoм двope, мнo
 magnet:?xt=urn:btih:E134A72F00FA5E2483A5C7BBC04AE54B7F1AF0E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Dead Rising Deluxe Remaster (2024) [Ru/Multi] (1.3.0.0/dlc) Repack seleZen [Digi
 ```bash
 magnet:?xt=urn:btih:40E638C842B01ACA8AB2E523C8D1C687E53EDD22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:40E638C842B01ACA8AB2E523C8D1C687E53EDD22
 magnet:?xt=urn:btih:F3EB6262D71EF3378E093A9BF8C6DFF95E647FF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:F3EB6262D71EF3378E093A9BF8C6DFF95E647FF3
 ```bash
 magnet:?xt=urn:btih:620F3A5429A3E4E91572AE14DACD0975043C291B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Bloons TD 6 (Блунс ТД 6) – игра в жанре Tower defense, где
 magnet:?xt=urn:btih:2EB0FA4460D1FD14997E13E38EF937DFA0C22893
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:2EB0FA4460D1FD14997E13E38EF937DFA0C22893
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:2EB0FA4460D1FD14997E13E38EF937DFA0C22893
 magnet:?xt=urn:btih:413B960D847B880B5BCE72BED47F0B9C816B2081
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:413B960D847B880B5BCE72BED47F0B9C816B2081
 ```bash
 magnet:?xt=urn:btih:EC15A1A526C7D37AABFD7AB921FEF75C93A442F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ Bad Cheese - это психологический хоррор, вдохнов�
 magnet:?xt=urn:btih:24709F32BE877C3E7F5854524E9AB98131AF5139
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ magnet:?xt=urn:btih:24709F32BE877C3E7F5854524E9AB98131AF5139
 ```bash
 magnet:?xt=urn:btih:A205A25E81747D09E774A2180C5CFC0EB85DCE44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ magnet:?xt=urn:btih:A205A25E81747D09E774A2180C5CFC0EB85DCE44
 magnet:?xt=urn:btih:7DA99CB8B8C61042BCE67FA39F5ACD77E83476A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ S.T.A.L.K.E.R.: Clear Sky / S.T.A.L.K.E.R.: Чистое небо (2008) [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:4DE93D47DC7623D5F6379B03771598CDBFC963E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

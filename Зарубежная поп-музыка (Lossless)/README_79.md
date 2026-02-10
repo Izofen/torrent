@@ -22,6 +22,8 @@ Noémie Wolfs (ex.Hooverphonic) - Lonely Boy’s Paradise (2020) [FLAC|Lossless|
 magnet:?xt=urn:btih:83A531C8CE2D92BC7B211FA2B342963CE90C99F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ a-ha - Scoundrel Club (1987) EP, Compilation [FLAC|Lossless|tracks + .cue] <Elec
 ```bash
 magnet:?xt=urn:btih:44EE0EC5DA55EB6311D7F0CC72533D6F9AB4FB91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Luigi Tenco - Tenco (1966) [APE|Lossless|image + .cue] <Pop>
 magnet:?xt=urn:btih:4A0529F16A5BA4064E09D052941BDC7F7E88336C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ CD04 - Auf Wiedersehen (1974)Жанр: PopПродолжительность: 27
 ```bash
 magnet:?xt=urn:btih:28B3383117064A315938E15B1CCA22198568B95C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Charles Aznavour - After love (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson
 magnet:?xt=urn:btih:D447F9C107A7E4DFCE122E43C86E8BDFA9BD2DBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ SPC ECO - All We Have Is Now (2016) [FLAC|Lossless|WEB-DL|tracks] <Indie Dream P
 ```bash
 magnet:?xt=urn:btih:D441ADE136020F293A1B59ADEA356D98A17EE060
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Amelia Brightman - Amelia Brightman (2016) Limited Edition [FLAC|Lossless|tracks
 magnet:?xt=urn:btih:2DB362477ADC2617A39F9ED150E61D1D532E84B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Elisa (Elisa Toffoli) - On (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance Pop,
 ```bash
 magnet:?xt=urn:btih:FD7211854CC6F2960F7482CE807C994A1C6A0E04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ CD1:
 magnet:?xt=urn:btih:4944804B7A174002CE69318F50A6DBA1A1DF7F01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Aurora & The Betrayers - Vudu (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, S
 ```bash
 magnet:?xt=urn:btih:2085F7708D493BCA58D7BAE2076A6AEC60CCA0C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Lexi Strate - Waves (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:A144A4B30714CFC7063142DE7091C2591DF4A3A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Ed Sheeran - Divide (2017) [FLAC|Lossless|tracks + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:ED16100CA8A52FDE69556D8388C8A5C30F392C14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Banoffee - Look at Us Now Dad (2020) [FLAC|Lossless|Web-DL|tracks] <Indie Pop, A
 magnet:?xt=urn:btih:50DB6D2786E3F9ADE48E18C5D5A1E547D466A43C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +399,8 @@ Sixtine - Sweet Sixteen (2014) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Altern
 magnet:?xt=urn:btih:09F434E40D20262CB236A2EB0A167F8C718475C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +427,8 @@ Tokio Hotel - Dream Machine (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:47969E33E5B4F553CD9D46526371368992C6F1DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +459,8 @@ Sony Music в очередном своем сборнике собрала тр
 magnet:?xt=urn:btih:FF25B4E6929A19D40692FEF8C5BF26523A58E39D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +487,8 @@ VA - All I Think About Is You (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Roc
 ```bash
 magnet:?xt=urn:btih:6FD17CE68ECB1F29A24B4FDF8E07CA7E8E798A3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +517,8 @@ CD1:
 magnet:?xt=urn:btih:7F959C6C64A4DD7848118977BBC840A69488BFF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +545,8 @@ Niykee Heaton - The Bedroom Tour Playlist (2016) [FLAC|Lossless|tracks] <Pop, Rn
 ```bash
 magnet:?xt=urn:btih:FFF34070171D1101FD427123FFF729E17270CCB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +581,8 @@ Carly Simon - No Secrets (1972 / 2011 SACD Audio Fidelity {AFZ 114}) [FLAC|Lossl
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +609,8 @@ Belinda Carlisle - A Woman & A Man (1996) [FLAC|Lossless] <Pop>
 ```bash
 magnet:?xt=urn:btih:C5DD5A536727A4C03C3E7FA6605D9107CF9825CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +645,8 @@ Anouk - Sad Singalong Songs (2013) [FLAC|Lossless]<Pop, Electronic, Ballad, Trip
 magnet:?xt=urn:btih:A5C1D59C3C00FB5228708ADEC9F12B2C1FC6BD6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +673,8 @@ Marc Almond - Chaos and a Dancing Star (2020) [FLAC|Lossless|tracks + .cue] <Syn
 ```bash
 magnet:?xt=urn:btih:85C01B81FF64B5E90A87D2B0A742F2B699304ABC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -657,6 +703,8 @@ Al Bano & Romina Power - 6 Albums, Box Set, 9 CD (1985 - 1997) [FLAC|Lossless|tr
 magnet:?xt=urn:btih:06E7AC67BFC21CF11C69F52FE269A83CB873F537
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -684,6 +732,8 @@ Raphael - Canciones De Amor (2009) [FLAC|Lossless|image + .cue] <Latin Pop, Ball
 magnet:?xt=urn:btih:A44583B5D8473642AA9B7178E1E6BEF149C55DC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -710,6 +760,8 @@ VA - NRJ Hit Music Only (2015) 2CD [FLAC|Lossless]<Pop, Hip Hop, Eurodance, R&B>
 ```bash
 magnet:?xt=urn:btih:BC08F80F80E0FE03822C9209281DB14F1508B3CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

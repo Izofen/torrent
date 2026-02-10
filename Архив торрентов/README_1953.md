@@ -21,6 +21,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ SoftOrbits Pack by Wadimus 01.06.12 [Rus/Eng]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ SBK Generations [En/Multi5] (RePack/1.1) 2012 | R.G. Element Arts
 ```bash
 magnet:?xt=urn:btih:0DCDBD7A600955FAD621FE9479CC893C8228ABC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Mozilla Firefox - очень быстро работающий браузер, �
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Mozilla Firefox - очень быстро работающий браузер, �
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Mozilla Firefox - очень быстро работающий браузер, �
 magnet:?xt=urn:btih:76899B2A1FB0B918B56172E0C411249263A286D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:76899B2A1FB0B918B56172E0C411249263A286D0
 magnet:?xt=urn:btih:3AB965C37E7644C71FDFE1AA82C31137049FE3F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:3AB965C37E7644C71FDFE1AA82C31137049FE3F6
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ Bass Communion - 13 albums (2001-2009) [FLAC|Lossless] <Abstract, Ambient, Drone
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ Corel PaintShop Photo Pro X4 - комплекс для работы с цифр�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ Comedy Woman. Новый формат. Выпуск №80 (02.06.2012) SATRip
 magnet:?xt=urn:btih:B83C58FB8FB68EE92C13B1E6CD994C4E4B4CBD89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:B83C58FB8FB68EE92C13B1E6CD994C4E4B4CBD89
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:B83C58FB8FB68EE92C13B1E6CD994C4E4B4CBD89
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:B83C58FB8FB68EE92C13B1E6CD994C4E4B4CBD89
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:B83C58FB8FB68EE92C13B1E6CD994C4E4B4CBD89
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ Max Payne 3 (RePack/1.0.0.17) [Ru] 2012 | R.G. Element
 magnet:?xt=urn:btih:E6321CC4B4320504C8D109B814F3D6EA9C5B6CAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:E6321CC4B4320504C8D109B814F3D6EA9C5B6CAE
 ```bash
 magnet:?xt=urn:btih:5FFE8B55844472BC3DEC2DD4FCD2800045866F09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:5FFE8B55844472BC3DEC2DD4FCD2800045866F09
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ Free for commercial use WPI 1.1 by q1q1 (апрель 2012)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ Free for commercial use WPI 1.1 by q1q1 (апрель 2012)
 ```bash
 magnet:?xt=urn:btih:E3338770DA6D315415262E26601FD78C836A9495
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +585,8 @@ Armin Van Buuren - A State Of Trance 563 SBD (2012) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:7686C46B30BF7D3573BC56B448834333436ACC91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +620,8 @@ VA - Trance In Motion vol.116 (Mixed By E.S.) (2012) [MP3|320 kbps]<Trance, Voca
 magnet:?xt=urn:btih:D40E1EAADA2E067A0D3C77A1CB9C69456DEFA9C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +646,8 @@ magnet:?xt=urn:btih:D40E1EAADA2E067A0D3C77A1CB9C69456DEFA9C7
 magnet:?xt=urn:btih:90A1B9222144C1D932240581DC89A322C8596E43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +671,8 @@ magnet:?xt=urn:btih:90A1B9222144C1D932240581DC89A322C8596E43
 ```bash
 magnet:?xt=urn:btih:027CC2B99C555AABEC7CF6D3037C28A1DAA1A89F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +703,8 @@ magnet:?xt=urn:btih:027CC2B99C555AABEC7CF6D3037C28A1DAA1A89F
 ```bash
 magnet:?xt=urn:btih:0659149431C8BE945EE7A0F4CBB7AE802C3DCD35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

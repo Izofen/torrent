@@ -1,3 +1,29 @@
+###  Публикация: 1475873   (1012145) от 08.06.2021
+
+Большое приключение по Новой Зеландии. Крайстчерч / Coast New Zealand. Christchurch (2017) HDTV [H.264/1080p] (сезон 2, эпизод 5)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крайстчерч, третий по величине город Новой Зеландии, можно бесспорно назвать украшением Южного острова. Особый шарм городу придают многочисленные сады и парки.Крайстчерч - это город изящной неоготической архитектуры, грациозный облик которого переполнен английским колоритом и превосходством.Производство: Новая Зеландия, Great Southern Television, BBCЖанр: Документальный, познавательный, путешествияРежиссер: При ВисвалингамПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3E4B8BF8895C45ACA787BB38994C175B0F25761
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1475853   (1012150) от 08.06.2021
 
 Вызов зодчим. Страсбургский собор / Le Defi des Batisseurs. La Cathedrale de Strasbourg (2012) SATRip [H.264]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:828BE54C0247B5E4337FE62C92AE17AFAB166FDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:828BE54C0247B5E4337FE62C92AE17AFAB166FDD
 ```bash
 magnet:?xt=urn:btih:76A7BCC2EC1E4F65AA71FAEF219594863625153E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:76A7BCC2EC1E4F65AA71FAEF219594863625153E
 magnet:?xt=urn:btih:345819C8EE9537972A223FB7D98E4D057F7C3B03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:345819C8EE9537972A223FB7D98E4D057F7C3B03
 ```bash
 magnet:?xt=urn:btih:8166FF2FC66F2F8A743156D19C67516F03090A45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:8166FF2FC66F2F8A743156D19C67516F03090A45
 magnet:?xt=urn:btih:5004BB1D732821572C94316469BCED44ECB4D482
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:5004BB1D732821572C94316469BCED44ECB4D482
 ```bash
 magnet:?xt=urn:btih:58F49998FF6455298B1E1E7E2A4A195A6ECA334E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:58F49998FF6455298B1E1E7E2A4A195A6ECA334E
 magnet:?xt=urn:btih:FC38A522237886208EA200E93678558F2D1DB52D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:FC38A522237886208EA200E93678558F2D1DB52D
 magnet:?xt=urn:btih:528FC862C8D02E9E3651482838EB990225C6E83B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:528FC862C8D02E9E3651482838EB990225C6E83B
 ```bash
 magnet:?xt=urn:btih:E4E8A4000CCF2F0F61A1694B1D2692078E57302A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:E4E8A4000CCF2F0F61A1694B1D2692078E57302A
 magnet:?xt=urn:btih:B595E2301E7F14E4D1BA43AF54FFFAAAD1C8D38D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:B595E2301E7F14E4D1BA43AF54FFFAAAD1C8D38D
 ```bash
 magnet:?xt=urn:btih:EF5A87BF209C25D3DD44C3E5E447DF2711631C95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:EF5A87BF209C25D3DD44C3E5E447DF2711631C95
 magnet:?xt=urn:btih:A3A8CFD4DB6907CA58ADC8F444AC7CCFA1BC95B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:A3A8CFD4DB6907CA58ADC8F444AC7CCFA1BC95B7
 ```bash
 magnet:?xt=urn:btih:1EB5C4D245D75D3FFBBE44B6B5372833E4B09310
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:1EB5C4D245D75D3FFBBE44B6B5372833E4B09310
 magnet:?xt=urn:btih:061F2BA3810E3EF35700ADA079C270E3E5AC8852
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:061F2BA3810E3EF35700ADA079C270E3E5AC8852
 ```bash
 magnet:?xt=urn:btih:500FA7FF7A287959EB33F564619E0E0A4270CD65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:500FA7FF7A287959EB33F564619E0E0A4270CD65
 magnet:?xt=urn:btih:5FB005ACBA42780841BC459EB69E608F71B71973
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:5FB005ACBA42780841BC459EB69E608F71B71973
 ```bash
 magnet:?xt=urn:btih:B0045DEB477F77963155739905A7FA3DFA64E913
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:B0045DEB477F77963155739905A7FA3DFA64E913
 magnet:?xt=urn:btih:DB2DB835056807B3653D6499C121AEC9ABC3703F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:DB2DB835056807B3653D6499C121AEC9ABC3703F
 ```bash
 magnet:?xt=urn:btih:E020C03EFA3291E1B78DC1E78A66CABD3C056AE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:E020C03EFA3291E1B78DC1E78A66CABD3C056AE1
 magnet:?xt=urn:btih:96B49F4BB7B5DDD8E5002473D45B22212DADB31C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:96B49F4BB7B5DDD8E5002473D45B22212DADB31C
 ```bash
 magnet:?xt=urn:btih:D6D18DCF21457BE16C179705CBC131835794659A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:D6D18DCF21457BE16C179705CBC131835794659A
 magnet:?xt=urn:btih:142B31AF7B103916408B0B7E4447152E475EDFCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:142B31AF7B103916408B0B7E4447152E475EDFCD
 magnet:?xt=urn:btih:114D6E984DA4E9D51A4E584DA74AC2EB45FF2EE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:114D6E984DA4E9D51A4E584DA74AC2EB45FF2EE9
 ```bash
 magnet:?xt=urn:btih:9CE143B7394DF5C4D1B6D73CA26BF2661757DEF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,29 +678,7 @@ magnet:?xt=urn:btih:9CE143B7394DF5C4D1B6D73CA26BF2661757DEF5
 magnet:?xt=urn:btih:793AA57C1B5EEBD155938485220076AA087CD2B6
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142030   (1012833) от 03.06.2021
-
-Боевые награды Российской Федерации (2011) SATRip (2 серии из 2)
-
->>Документалистика и Телепередачи
->>Военное дело
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012833.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Боевые награды Российской Федерации» - С начала 1992 года, после распада СССР, начала формироваться самостоятельная наградная система РФ.Не один раз декларировался тезис о том, что она будет строиться на идее определённой преемственности наградной системы дореволюционной России с сохранением ряда элементов советской наградной системы.Первым правовым актом о наградах (   Читать дальше...   )Телекомпания: Россия, студия "Крылья России"Жанр: Документальный, ИсторияПродолжительность: 01:15:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:434ADD16BA867820B951FAF1B71BB924C5788A34
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

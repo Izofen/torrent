@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:2E156E45B18A8054CD245481302B84D21DF789F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:2E156E45B18A8054CD245481302B84D21DF789F7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:2E156E45B18A8054CD245481302B84D21DF789F7
 magnet:?xt=urn:btih:616421DB939B3D88CBD65B3F5FA38ADF9E3BC70C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:616421DB939B3D88CBD65B3F5FA38ADF9E3BC70C
 ```bash
 magnet:?xt=urn:btih:672E1CC695D11CC1B10DB42C576281BC22420986
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Defender Remover Portable 12.8.4 [En]
 magnet:?xt=urn:btih:2D2C438CCA86CBC2D6CF8528C5319870451FACEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:2D2C438CCA86CBC2D6CF8528C5319870451FACEF
 ```bash
 magnet:?xt=urn:btih:224FA77983893E6C01916F0E3BEE02DB11A28D6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:224FA77983893E6C01916F0E3BEE02DB11A28D6F
 magnet:?xt=urn:btih:0242E790ED33038A4A2A76ACB0186E1E84C46FF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:0242E790ED33038A4A2A76ACB0186E1E84C46FF3
 ```bash
 magnet:?xt=urn:btih:BFB8A5099F001D94E19BBE97653DD1A470452E5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:BFB8A5099F001D94E19BBE97653DD1A470452E5A
 magnet:?xt=urn:btih:F21ED93C38A55954AFCF0B0894451690A376BEED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Rufus - небольшая утилита помогает отформатир�
 ```bash
 magnet:?xt=urn:btih:C6EC794F7FE66181D70FE167B20CB2FC9EFAFF85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:C6EC794F7FE66181D70FE167B20CB2FC9EFAFF85
 magnet:?xt=urn:btih:B5A1897F8D82FD5D258CC8DCBEE18CB41863EA5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:B5A1897F8D82FD5D258CC8DCBEE18CB41863EA5D
 ```bash
 magnet:?xt=urn:btih:736FADAC8B3F69BFE20D9AC7CC19DC9CDAFC7CD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:736FADAC8B3F69BFE20D9AC7CC19DC9CDAFC7CD1
 magnet:?xt=urn:btih:E8F10208BCC514269CC582ECCD0BF05D5CAD65FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:E8F10208BCC514269CC582ECCD0BF05D5CAD65FF
 ```bash
 magnet:?xt=urn:btih:62CD7239DAE825A3530724EC83E9E8026B3F291C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:62CD7239DAE825A3530724EC83E9E8026B3F291C
 magnet:?xt=urn:btih:90641072367F6B41779B08A4CC761E98D82EC710
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ V Rising (2024) [Ru/Multi] (1.1.9.0-r92199-b5/dlc) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:C19D0D93400F9457E6D75F04CA1A46A60D0EC3F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:C19D0D93400F9457E6D75F04CA1A46A60D0EC3F5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:C19D0D93400F9457E6D75F04CA1A46A60D0EC3F5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:C19D0D93400F9457E6D75F04CA1A46A60D0EC3F5
 ```bash
 magnet:?xt=urn:btih:BCB9A94FF7483573D9296B805F34B90F1280CC6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ Adobe Media Encoder 2025 25.2.0.141 (x64) Portable by 7997 [Multi/Ru]
 magnet:?xt=urn:btih:C728DC8200CF24750FF32F44910DD89F88BC1B74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ magnet:?xt=urn:btih:C728DC8200CF24750FF32F44910DD89F88BC1B74
 ```bash
 magnet:?xt=urn:btih:3990A0B25B0FC939AC8F06AFCF632FBE10D25E1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ TapScanner — сканер документов, это простой скан
 magnet:?xt=urn:btih:7C8815F88F5E2C15E3747E41232D483AC6488FBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:7C8815F88F5E2C15E3747E41232D483AC6488FBA
 ```bash
 magnet:?xt=urn:btih:F653854ECCA667A0ACECB97091FE8C135A15E963
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:F653854ECCA667A0ACECB97091FE8C135A15E963
 magnet:?xt=urn:btih:70112E2584F7CEFAFBE5DE8A36C20FA43280C4E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ Isekai Maou to Shoukan Shoujo no Dorei Majutsu | How NOT to Summon a Demon Lord 
 ```bash
 magnet:?xt=urn:btih:CD44299FF8D6DAA613602E45418641E88031BD36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:CD44299FF8D6DAA613602E45418641E88031BD36
 ```bash
 magnet:?xt=urn:btih:2ABD1BDD5B95EF60AE08ADCFE9A3788BDBFB7F2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

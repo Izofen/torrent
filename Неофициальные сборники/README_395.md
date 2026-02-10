@@ -1,3 +1,32 @@
+###  Публикация: 1292318   (646918) от 29.03.2019
+
+VA - Secret Journey: Select Trance Mix (2019) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646918.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Darren Porter - Colours
+002. Revkin - No Recollection
+003. Bekar - Snow Extravaganza
+004. Essiuah - Soup (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 08:05:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F36A4CC5CA848B8A0BAAC761936AF0A672EA066
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 517489   (647032) от 01.07.2012
 
 VA - ЕвроХит Топ-40 (30.06.2012) [MP3|320 кб/с]<Pop, Dance>
@@ -28,6 +57,8 @@ VA - ЕвроХит Топ-40 (30.06.2012) [MP3|320 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:58D3170FB9FF7F8410FB703F03B3C24F6863F733
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +82,8 @@ VA - Летний ливень хитов в ремиксах (2012) [MP3|256 к
 ```bash
 magnet:?xt=urn:btih:E02CAFC4897767A98A570AD4E7F28BBA63039BAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -85,6 +118,8 @@ VA - XXXL Русское Радио. Выпуск 8 (2012) [MP3|256 kbps]<Pop|Da
 magnet:?xt=urn:btih:5737BC38C45112C76755E382614F2B4D5FBAE30A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -111,6 +146,8 @@ VA - Золотая Песня Года (2015) [MP3|128-320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:CFCA8429B5AB201BED7CFA005CC00C6AFCB5250B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +182,8 @@ VA - На Природу Пикничёк (2012) [MP3|128 kbps]<Pop>
 magnet:?xt=urn:btih:DC50F5331610EDE1B7FE319E1D6BE60C288DC721
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +211,8 @@ VA - Летний микс: музыка для души (2015) [MP3|256 кб/с
 magnet:?xt=urn:btih:F0D4895A2BF0389DD7B3282875DE65702762EA81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +236,8 @@ VA - Сводный Чарт Европы Плюс 50x50 (2012) [MP3|256 кб/с
 ```bash
 magnet:?xt=urn:btih:2B26B49457613D201829215BBAB1C49833E0E020
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +266,8 @@ VA - Radio Record TOP 33 — июнь (4) (2016) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:38649206046FAB0F4AD11AB3F172AAB069901DBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +294,8 @@ VA - Beatport Top 100 June (2015) [MP3|320 кб/с]<House, Tech House, Deep Hous
 ```bash
 magnet:?xt=urn:btih:47B5818BAD159BDE698068DEDC129B43A2D2C6E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +324,8 @@ VA - Vocal Trance Seduction Vol 2 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 magnet:?xt=urn:btih:F36CBCD8110D9484FE58C99975F052EB1EC8D3EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +352,8 @@ magnet:?xt=urn:btih:F36CBCD8110D9484FE58C99975F052EB1EC8D3EB
 ```bash
 magnet:?xt=urn:btih:3AE581E59081DDACCF51C79F6A3677A0E7B63E3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +388,8 @@ VA - Радио Energy - NRJ HOT30 (30.06.2012) [MP3|320 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:2681240A9022783E03061C223CFA3BDABD93FBA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +416,8 @@ VA - Реальные Песни В Крутую Тачку (2016) [MP3|256 Kbps
 ```bash
 magnet:?xt=urn:btih:5E42E478B860DDA1B17832655709F43C045A60AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +446,8 @@ VA - Жаркие танцы. Летние хиты (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:C521464D3E03EA58BB285BA89E30F7A193BCFC53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +472,8 @@ VA - Just Dance And Songs Shuffle (2016) [MP3|160-320 Kbps] <Club, Electro, Bigr
 ```bash
 magnet:?xt=urn:btih:6003BDF1340212BE3E45EC82992696C0488B11DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +502,8 @@ VA - Billboard Hot 100 Singles Chart 13th June (2015) [MP3|128-320 кб/с]<Hip-
 magnet:?xt=urn:btih:7374022CAEDD0BC86A5ACEFCE38B1236500DB651
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +530,8 @@ VA - Solo Piano Ultimate Chillout Lounge (2016) [MP3|320 Kbps] <Piano, Chillout,
 ```bash
 magnet:?xt=urn:btih:5BAA27AB428013A03C4B52EBA04DB9A416BADED9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +560,8 @@ VA - Modern Jazz Piano (2016) [MP3|320 Kbps] <Jazz>
 magnet:?xt=urn:btih:0CE64F158A43A9D2099A969E84FA3ED0452CB0AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +588,8 @@ VA - Best of Lounge, Ambient and Chill Out, Vol. 4 (2016) [MP3|320 Kbps] <Downte
 ```bash
 magnet:?xt=urn:btih:DB6A2350D5111A55A70C9C9FCA8C32DEEAE60183
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +618,8 @@ VA - Зарубежная Дискотека ХХ Века - 69 (2016) [MP3|320 
 magnet:?xt=urn:btih:6AE4F29000528C67198DA6A0DB0453DCC06E8577
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +646,8 @@ VA - Tropical Dance Party (2016) [MP3|320 Kbps] <Dance, Electro, Pop>
 ```bash
 magnet:?xt=urn:btih:F50EF6F1B6E39B987E413DCC24DCB1C912D7BE48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +676,8 @@ VA - Options Remake 150 Tracks - JUNE (2016) [MP3|320 Kbps] <House, Dance, Club>
 magnet:?xt=urn:btih:A03AE7B232479B691EBBC615B53FA864A55CBC53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +705,8 @@ VA - Зарубежная Дискотека ХХ Века - 61 (2016) [MP3|320 
 magnet:?xt=urn:btih:4F3E1122F472578C58A099B64FDC9625DF78C480
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +733,8 @@ VA - Trance Is Love - Trance Is  Life (2016) [MP3|320 Kbps] <Trance, Melodic, En
 ```bash
 magnet:?xt=urn:btih:FE113EE718A61BD6B5207D608A8575D0E1346976
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -692,38 +769,7 @@ VA - Жажда Скорости Пляжный Выпуск (2012) [MP3|256 kbp
 magnet:?xt=urn:btih:AA17FC7D06BEDF44864347D1FD72134B42768B8E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517166   (647786) от 01.07.2012
-
-VA - Ах, какая женщина (2CD) (2012) [MP3|128-155 кб/с]<Pop,Шансон>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop,ШансонПродолжительность: 09:56:15
-001. В.Добрынин — Ах, Какая Женщина.
- 002. С.Михайлов & Зара — Летим.
- 003. Кабриолет — Неповторимая.
- 004. Р.Рай & А.Бандера — Ты Лети, Моя Душа.
- 005. Трофим — Пожалей Меня, Пожалей.
- 006. В.Меладзе — Я Не Могу Без Тебя.
- 007. С.Михайлов & К.Бужинская — Королева Вдохновения.
- 008. Н.Басков & С.Ротару — Цветет Малина.
- 009. Ю.Антонов — Нет Тебя Прекрасней.(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E5860BF8AA9EE37EE6072F5BCF42F0C21168D40
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

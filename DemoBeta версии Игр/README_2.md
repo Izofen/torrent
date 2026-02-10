@@ -19,6 +19,8 @@ Hyperviolent (2023) [En] (0.9.0.6) License GOG [Early Access]
 magnet:?xt=urn:btih:4A55173BDE5ABB217CAE7C05D1311DE344F40AB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Forever Winter - это тактический хоррор-шутер на 
 ```bash
 magnet:?xt=urn:btih:EE818740D531D90F32995C2B41F617AA3B0114C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Arms Trade Tycoon: Tanks – это полноценная симуляция ж
 magnet:?xt=urn:btih:54A30027C0C057A2B10643DE2A70FE4F1B70B600
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Derail Valley – это увлекательный VR-симулятор упр
 ```bash
 magnet:?xt=urn:btih:7C415F23C63ED5F98EAE3E292A8FDD0C226A0E50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Lost Skies (2025) [Ru/Multi] (0.1.83/dlc) Repack Pioneer [Early Access]
 magnet:?xt=urn:btih:DAD5A7E3C0471BCC4CF3FA0666B68D02751BD577
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Sacred Fire - психологическая ролевая игра. Вы бе�
 ```bash
 magnet:?xt=urn:btih:EBF2855AD4FA507C98BCE277EBBEA8BB6F128342
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Hollywood Animal (2025) [Ru/Multi] (0.8.7ea) Repack seleZen [Early Access]
 magnet:?xt=urn:btih:EBDF10374659846C39739C7CD931AC0185187822
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Into the Dead: Our Darkest Days представляет собой сайд-с�
 ```bash
 magnet:?xt=urn:btih:2FD86AB8DA3E0DFCBACA61AB74304A9DB09B3938
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Eden Crafters (2024) [Ru/Multi] (0.60d) Repack Pioneer [Early Access]
 magnet:?xt=urn:btih:BB476244CE534F86CF43DC271B512926F11DCA35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Endzone 2 бросает вас в самую гущу постапокалип�
 ```bash
 magnet:?xt=urn:btih:36B58BCB34C700B3ABBFC2A66D16FBFC47BBEF85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Total Conflict: Resistance (2023) [Ru/Multi] (0.95.0) Repack seleZen [Early Acce
 magnet:?xt=urn:btih:A0C0EAB9DDF7AC1354A5376A5AE1397A3B752C41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Starground отбрасывает все правила. Это игра с ви
 ```bash
 magnet:?xt=urn:btih:4BD74B61CC32650B61EAB0CDBA34D47173410E48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ SpaceBourne II (2) (2023) [Multi] (5.2.4) License GOG [Early Access]
 magnet:?xt=urn:btih:867092ED0D5FE10CC4F5965106BBEE935C32A60B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Liar's Bar (2024) [Ru/Multi] (0.93) Repack Pioneer [Early Access Online Only]
 ```bash
 magnet:?xt=urn:btih:98A8FAABFE1D4B50DD42BB01E2E4DC5AC7CD1E16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Trans-Siberian Railway Simulator (2024) [Ru/Multi] (Build 17516909) Repack Wante
 magnet:?xt=urn:btih:7F7FE7E8512B714D22703D3FCB095768F4B8EDEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ ULTRAKILL – игра, вдохновленная классическими и
 ```bash
 magnet:?xt=urn:btih:02B17E817CFF15487C623C35218E80B6B08CA3BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Palworld предлагает находить и использовать пр�
 magnet:?xt=urn:btih:B2D396B28D0FB41BB15A93F3133E9D785A86CB47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ The First Berserker: Khazan — хардкорный ролевой экшен. 
 ```bash
 magnet:?xt=urn:btih:6A8C84FABDD580168ABBFFE9F199854B4E8B6A42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Supermarket Simulator (2024) [Ru/Multi] (0.6) Repack seleZen [Early Access]
 magnet:?xt=urn:btih:127E8B6866FB1F772FBF2640558AB43969AA57DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Slime Rancher 2 - это продолжение удостоенной нагр�
 ```bash
 magnet:?xt=urn:btih:95A8EB07EA2AAD3724ABD5F83C7EA8D9159D6F85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Industry Giant 4.0 (2024) [Ru/Multi] (0.4.2) License GOG [Early Access]
 magnet:?xt=urn:btih:95DC24673CD3E44975188A7638BDFB68B9833360
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Industry Giant 4.0 (2024) [Ru/Multi] (0.4.2) Repack seleZen [Early Access]
 ```bash
 magnet:?xt=urn:btih:68339003B3F55E4D31A714BA3E8D1F0848EFAB8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Manor Lords - стратегическая игра в эпоху среднев
 magnet:?xt=urn:btih:9F057EC5C13E3953EF9E80329D49F46EBBC9DAB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Winter Falling: Battle Tactics предлагает геймерам возгл�
 ```bash
 magnet:?xt=urn:btih:8ACD27EBC18A1E26DAC747D1B9E5F6F6EF066051
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Hidden Deep – научно-фантастическая игра, разраб
 magnet:?xt=urn:btih:8BE145F02122A9C0334148B7100C09E8D23C4ADB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Wild Woods - экшн-игра про лесных существ и взаим�
 ```bash
 magnet:?xt=urn:btih:C8300B59AFB32771AD2D1D160A08B2E38D0F08ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,27 +1,3 @@
-###  Публикация: 599838   (999033) от 07.01.2013
-
-Самоа – королева джунглей / Samoa, regina della giungla / Samoa, queen of the jungle  (1968) DVDRip [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экспедиция отправляется в непроходимые джунгли на поиски первобытного племени, хранящего бесценные сокровища. Там они встречают девушку-полукровку по имени Самоа, в которую влюбляется их предводитель Клинт , а ещё один молодой человек по имени Ален — в местную девушку Жасмин. Им предлагают остаться в племени, некоторых это привлекает, их очаровывают красота тропиков (   Читать дальше...   )Производство: Италия, Romana FilmЖанр: Приключения, БоевикРежиссер: Гуидо МалатестаАктеры: Роджер Браун, Эдвиж Фенек, Айви Хольцер, Андреа Аурели, Клаудио Руффини, Уилберт Брэдли, Иван БастаПеревод: Любительский одноголосый закадровый (автор перевода - Igor2138)Продолжительность: 01:24:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4530416425C4CA8AF941E8FBF85D4C45C2D8B4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 599426   (999048) от 07.01.2013
 
 Королевская охота за солнцем / The royal hunt of the sun (1969) DVDRip
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:C4530416425C4CA8AF941E8FBF85D4C45C2D8B4C
 ```bash
 magnet:?xt=urn:btih:64CED909E1C14105ACB17D971A3ED8C41F3B9928
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -66,6 +44,8 @@ magnet:?xt=urn:btih:64CED909E1C14105ACB17D971A3ED8C41F3B9928
 ```bash
 magnet:?xt=urn:btih:17BFF2866FBB955526C395AB4AB8E68B58621A70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +73,8 @@ magnet:?xt=urn:btih:17BFF2866FBB955526C395AB4AB8E68B58621A70
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +98,8 @@ magnet:?xt=urn:btih:17BFF2866FBB955526C395AB4AB8E68B58621A70
 ```bash
 magnet:?xt=urn:btih:D5FABD372F9C90F2749F0A2853354E3DB649CBA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +128,8 @@ magnet:?xt=urn:btih:D5FABD372F9C90F2749F0A2853354E3DB649CBA5
 magnet:?xt=urn:btih:AA7FA6775DBBBBF20272773927DEAB78329DF868
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +153,8 @@ magnet:?xt=urn:btih:AA7FA6775DBBBBF20272773927DEAB78329DF868
 ```bash
 magnet:?xt=urn:btih:C1E575126F61B3C812BF32AD9A674D71B8B782F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +181,8 @@ magnet:?xt=urn:btih:C1E575126F61B3C812BF32AD9A674D71B8B782F4
 magnet:?xt=urn:btih:756D41C1366788C75AE6E653139AB502B297A3FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +207,8 @@ magnet:?xt=urn:btih:756D41C1366788C75AE6E653139AB502B297A3FD
 ```bash
 magnet:?xt=urn:btih:B61AC1E2E70558A8000ACB6930BFAF539FB8FB5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +235,8 @@ magnet:?xt=urn:btih:B61AC1E2E70558A8000ACB6930BFAF539FB8FB5A
 magnet:?xt=urn:btih:2654A86D61695541C0D13D5DD6AF04939046F382
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +260,8 @@ magnet:?xt=urn:btih:2654A86D61695541C0D13D5DD6AF04939046F382
 ```bash
 magnet:?xt=urn:btih:9A127D00A27FAB78D55AD89936E2792151F562CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +287,8 @@ magnet:?xt=urn:btih:9A127D00A27FAB78D55AD89936E2792151F562CD
 magnet:?xt=urn:btih:B0FE29573CEC81AA6DA668800552D1274D45A1B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +312,8 @@ magnet:?xt=urn:btih:B0FE29573CEC81AA6DA668800552D1274D45A1B0
 ```bash
 magnet:?xt=urn:btih:8EA2484F9974103C54E74B834962CCBD5EDE39CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +339,8 @@ magnet:?xt=urn:btih:8EA2484F9974103C54E74B834962CCBD5EDE39CF
 magnet:?xt=urn:btih:71DAF92BD2AD715D5AA5E1E16D376D3057589F15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +364,8 @@ magnet:?xt=urn:btih:71DAF92BD2AD715D5AA5E1E16D376D3057589F15
 ```bash
 magnet:?xt=urn:btih:5A1B40422BA6456C0443E0F696B23A051DD8819D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +391,8 @@ magnet:?xt=urn:btih:5A1B40422BA6456C0443E0F696B23A051DD8819D
 magnet:?xt=urn:btih:40810A64E336EC7FE6E09D14CBDD2E65F9FD321E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +416,8 @@ magnet:?xt=urn:btih:40810A64E336EC7FE6E09D14CBDD2E65F9FD321E
 ```bash
 magnet:?xt=urn:btih:07A50EA77192001EB1223E8C1104B75FBFAB0946
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +443,8 @@ magnet:?xt=urn:btih:07A50EA77192001EB1223E8C1104B75FBFAB0946
 magnet:?xt=urn:btih:04415E4C677AF04ADA35AB913D4E919ACC431125
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +468,8 @@ magnet:?xt=urn:btih:04415E4C677AF04ADA35AB913D4E919ACC431125
 ```bash
 magnet:?xt=urn:btih:EFBFF71626A7AE8E7F27E42213934F1ED93F1F49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +495,8 @@ magnet:?xt=urn:btih:EFBFF71626A7AE8E7F27E42213934F1ED93F1F49
 magnet:?xt=urn:btih:EFAC0D74CD1CFA0CF6C11852114D7A85410E23BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +520,8 @@ magnet:?xt=urn:btih:EFAC0D74CD1CFA0CF6C11852114D7A85410E23BA
 ```bash
 magnet:?xt=urn:btih:4C32831AA857E73B12C692A19B923252A662EA1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +548,8 @@ magnet:?xt=urn:btih:4C32831AA857E73B12C692A19B923252A662EA1D
 magnet:?xt=urn:btih:BD91F7C34B2C7D52FACE8157C2F09FCD51B07761
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +573,8 @@ magnet:?xt=urn:btih:BD91F7C34B2C7D52FACE8157C2F09FCD51B07761
 ```bash
 magnet:?xt=urn:btih:99646586550C95306B86FDDD89F6A8D4CB2FD62A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +600,8 @@ magnet:?xt=urn:btih:99646586550C95306B86FDDD89F6A8D4CB2FD62A
 magnet:?xt=urn:btih:B127E9F36A694FD6AA24588FFA5A85109F8F502F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +625,8 @@ magnet:?xt=urn:btih:B127E9F36A694FD6AA24588FFA5A85109F8F502F
 ```bash
 magnet:?xt=urn:btih:62E13365B7A73DDF25CCB778C9DCE9F605C41CBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +652,34 @@ magnet:?xt=urn:btih:62E13365B7A73DDF25CCB778C9DCE9F605C41CBA
 ```bash
 magnet:?xt=urn:btih:F02FC0BA6BCD12DA36C73B0B3F0673C67E1AF2E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350714   (1002899) от 07.01.2020
+
+Школа Малибу / Malibu High (1979) BDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда парень бросает старшеклассницу, ее успеваемость резко падает. Чтобы избежать неудачи, она начинает соблазнять своих учителей — мужчин. Так начинается ее нисходящая спираль к наркомании и проституции и, в конечном итоге, к убийству босса мафии.Производство: США / Crown International Pictures, Star CinemaЖанр: Триллер, Драма, КриминалРежиссер: Ирвин БервикАктеры: Джилл Лэнсинг, Стюарт Тейлор, Кэти Джонсон, Уоллес Эрл, Алекс Манн, Тэмми Тейлор, Гарт Пиллсбери, Джон Хэрмон, Джон Йэтс, Джеймс ДевниПеревод: Авторский, Ю. СербинСубтитры: Английские (Full, SDH)Продолжительность: 01:30:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32641737104AE2C83042794013631CE14D4A5FB3
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

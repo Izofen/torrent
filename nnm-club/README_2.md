@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:8E8814BA2B786A19B2D747FB1A9B616AB304BB76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:8E8814BA2B786A19B2D747FB1A9B616AB304BB76
 ```bash
 magnet:?xt=urn:btih:E69646F9D3378E69CD011A1FE362E74E5FEC8A5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Desktop Info подключается к вашему рабочему стол�
 magnet:?xt=urn:btih:52C581567A719E9E4F4144AEA67B67D3CDACB569
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Missing Hearts: Crimson Cruise / Пропавшие Сердца: Багровы
 magnet:?xt=urn:btih:D73C4356FFA6DEDFAB102C32AABE1D6BA4E9F5A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:D73C4356FFA6DEDFAB102C32AABE1D6BA4E9F5A9
 ```bash
 magnet:?xt=urn:btih:BCC9F46D35C1D4354A4861178B666599626AC190
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ SUON-дневник — книга, которая заменит терапию
 magnet:?xt=urn:btih:C800CAEF5926A0AB6C971D766493AA64B8D08A89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:C800CAEF5926A0AB6C971D766493AA64B8D08A89
 ```bash
 magnet:?xt=urn:btih:33A3C96C3E38F1163C65BA53CE415729245B4EE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Moros Protocol (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:1DBDB2DFE65B7B6E119247511CF32763896F0400
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (1.4.0/dlc) License GOG [Deluxe Ed
 ```bash
 magnet:?xt=urn:btih:08FAB06B7C85141105CFC0BAA66534520C55A82A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ The Lightkeeper - психологический хоррор, действие 
 magnet:?xt=urn:btih:447D747E9118AEBEBCDB026FC138E34D5D435A2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:447D747E9118AEBEBCDB026FC138E34D5D435A2C
 ```bash
 magnet:?xt=urn:btih:00AF386880F6ABD89CDC5C750AC669594A64F67A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:00AF386880F6ABD89CDC5C750AC669594A64F67A
 magnet:?xt=urn:btih:8C54CF4565D55E2D092C43AFFC32B838695BCCCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:8C54CF4565D55E2D092C43AFFC32B838695BCCCC
 magnet:?xt=urn:btih:16BA3F4FC7A0DDA53A5A06B3E9DEEB7ACBD363CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Moros Protocol (2025) [Ru/Multi] (1.0.7.1) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:6BEEDADE65D494A82B922B8740F61957A6D664A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ RED CAD сочетает интуитивное управление с прак
 magnet:?xt=urn:btih:04A3FD86D17C17FC2F6EEB92765201A1D5263506
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ BBC: Родительство / Parenthood (2025) WEBRip [H.264/1080p] (сезо
 magnet:?xt=urn:btih:4079A7B11B5A7D7FD97F91BB8924E983C2E8966B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:8340CB65791CF7D2216128ABCB889CE4E626D46A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ SimilarImagesFinder - программа для поиска и удаления
 magnet:?xt=urn:btih:694159D302232C3E0ACCE12491A2C99DC40C7647
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ IsMyHdOK 4.44 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2BCE3D2B37CBABF3307FB4F4DC7891650B4A93C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ Slime Rancher 2 - это продолжение удостоенной нагр�
 magnet:?xt=urn:btih:9AAAC2CB01E336BB516571EC694210614826B576
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:9AAAC2CB01E336BB516571EC694210614826B576
 ```bash
 magnet:?xt=urn:btih:47A7B3AAAA25195D40AC3F6102A53B7C5EB9D773
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:47A7B3AAAA25195D40AC3F6102A53B7C5EB9D773
 magnet:?xt=urn:btih:109F4939AE1C37A59C9431D6848478CE7E9CEFBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ Yes, Your Grace 2: Snowfall - кинематографичная игра про
 ```bash
 magnet:?xt=urn:btih:028AF60B78115342EBC4F736BB28CE61D1F9CF4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ Between the Buried and Me - прогрессив-метал группа из г
 magnet:?xt=urn:btih:1C5BD67C506E752F6A6A40F3E67D98F44042DFEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:1C5BD67C506E752F6A6A40F3E67D98F44042DFEF
 magnet:?xt=urn:btih:1B1D558CF1DEF55850F03E03AE52856049FEAABB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:F2712B033AF62A6FBB9A1BB57ACF350C6BE92C4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

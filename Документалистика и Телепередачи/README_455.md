@@ -1,3 +1,29 @@
+###  Публикация: 1145576   (619984) от 26.06.2017
+
+Орел и решка. Перезагрузка (2017.06.25) WEB-DLRip (сезон 14: Амстердам)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шесть лет назад команда проекта "Орел и решка" впервые отправилась в большое путешествие по самым интересным городам нашей планеты. За прошедшее время в них столько всего изменилось, что создатели шоу решили приехать сюда снова. "Орел и решка" объявляет перезагрузку! Телезрителей ждет встреча с невиданными чудесами, новыми незабываемыми впечатлениями (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:45:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A9C026A192B276EB09D397B80ADA398995A51C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1145574   (619986) от 26.06.2017
 
 Орел и решка. Рай и ад (2017.06.25) WEB-DL [H.264/720p-LQ] (сезон 13: Райский Корфу)
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:C8440C85109EDFF9BA0EEBC0D8A2017F58230127
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:C8440C85109EDFF9BA0EEBC0D8A2017F58230127
 magnet:?xt=urn:btih:90426C908C925F6A11A10F34BF5B9653833C9006
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:90426C908C925F6A11A10F34BF5B9653833C9006
 magnet:?xt=urn:btih:E87C4ED00ACD77CC6D67A7BDCE66A0CC57F34CDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:E87C4ED00ACD77CC6D67A7BDCE66A0CC57F34CDC
 ```bash
 magnet:?xt=urn:btih:CD5A138CEEC30CA30C66183ED4EF5B877FE50294
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +152,8 @@ Rip by -=DeMoH=-Телекомпания: РоссияЖанр: Документ
 magnet:?xt=urn:btih:CDE04392B8717ECEB68EB3AA7F6F8E0DC4940AE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:CDE04392B8717ECEB68EB3AA7F6F8E0DC4940AE1
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:CDE04392B8717ECEB68EB3AA7F6F8E0DC4940AE1
 magnet:?xt=urn:btih:9C329BEC24083ED4CE7E30C98DF3974CCC3801CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:9C329BEC24083ED4CE7E30C98DF3974CCC3801CF
 ```bash
 magnet:?xt=urn:btih:C505B1027A4A37BC3EE3320F3AF92A7E8014F41D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:C505B1027A4A37BC3EE3320F3AF92A7E8014F41D
 magnet:?xt=urn:btih:0E1F43A35E7306340E3B3CFCFE65D50799A56EF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:0E1F43A35E7306340E3B3CFCFE65D50799A56EF2
 ```bash
 magnet:?xt=urn:btih:100011C206729F5F5D57A8482AB5E1B2626DCEF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:100011C206729F5F5D57A8482AB5E1B2626DCEF1
 magnet:?xt=urn:btih:7DEA68246E2276FC4AEEC55B794F37D546F00353
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:7DEA68246E2276FC4AEEC55B794F37D546F00353
 ```bash
 magnet:?xt=urn:btih:ED4F36ED70DD942F32CB760FEC6BE905A212F14F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:ED4F36ED70DD942F32CB760FEC6BE905A212F14F
 magnet:?xt=urn:btih:F316C621F22DC2CB6F867EB91E9D51FEECBA246F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:F316C621F22DC2CB6F867EB91E9D51FEECBA246F
 ```bash
 magnet:?xt=urn:btih:C5F81AE50B37ADED510AFD9EDBE5FFA22AD4520C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:C5F81AE50B37ADED510AFD9EDBE5FFA22AD4520C
 magnet:?xt=urn:btih:E34FB03095EFE3CDC9EFDF994008304ADE3AD935
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:E34FB03095EFE3CDC9EFDF994008304ADE3AD935
 magnet:?xt=urn:btih:B842205CE9BFC6418517EA8D8F6C406E3F5C68B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:B842205CE9BFC6418517EA8D8F6C406E3F5C68B8
 ```bash
 magnet:?xt=urn:btih:998418F440B8594748937D4EFBB17A3B0F2FBC05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:998418F440B8594748937D4EFBB17A3B0F2FBC05
 magnet:?xt=urn:btih:571D8E61B4393CE2150A208A8329BDFBB7415373
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:571D8E61B4393CE2150A208A8329BDFBB7415373
 magnet:?xt=urn:btih:C41664547D04CCA59617589F65F0A618E365B632
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:C41664547D04CCA59617589F65F0A618E365B632
 ```bash
 magnet:?xt=urn:btih:0AA8B8761ABBE539B9D5EB991B909BBB99DCF826
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:0AA8B8761ABBE539B9D5EB991B909BBB99DCF826
 magnet:?xt=urn:btih:7759F7DD3660E30D3ABDBC754D56F68A184320E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:7759F7DD3660E30D3ABDBC754D56F68A184320E7
 ```bash
 magnet:?xt=urn:btih:E9D8E304A1DC94C15EEC09C72CE58E1CE210EA3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:E9D8E304A1DC94C15EEC09C72CE58E1CE210EA3E
 magnet:?xt=urn:btih:30FEEDC45EF14FFE3037D83CE3EC1C743F45A740
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:30FEEDC45EF14FFE3037D83CE3EC1C743F45A740
 ```bash
 magnet:?xt=urn:btih:6E7584920885DF90DC04151A84518F5431912D89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,29 +674,7 @@ magnet:?xt=urn:btih:6E7584920885DF90DC04151A84518F5431912D89
 magnet:?xt=urn:btih:7424F791D83E6DDD13552F14777B22F3F695840E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544282   (621525) от 15.04.2022
-
-Призраки. Солдаты забытой войны (2021) HDTV [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм Макса Фадеева и Сергея Белоуса, показанный на канале Россия24. Документалисты прожили три года на передовой с бойцами батальона. Недавно фильм “Призраки. Солдаты забытой войны” получил “Специальный приз жюри” на церемонии закрытия 32-го Открытого фестиваля документального кино “РОССИЯ”. Также фильм понравился зрителям — ему дали третье место (   Читать дальше...   )Телекомпания: Россия / Россия 24Жанр: Документальный, ИсторияСубтитры: отсутствуютПродолжительность: 01:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D827D71D98D61E78F21308A0EAC34B6582859C48
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

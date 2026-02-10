@@ -19,6 +19,8 @@ Juuni Taisen / Война Двеннадцати [2017, TV, 12 ep] WEB-DL 720p R
 magnet:?xt=urn:btih:F15FB993517C679A7671B7936CEAAC0C554F6AE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Ousama Game The Animation / King's Game The Animation / Королевская �
 magnet:?xt=urn:btih:40040557ED652845E0A513F14799EEEACD187E32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:40040557ED652845E0A513F14799EEEACD187E32
 ```bash
 magnet:?xt=urn:btih:E540B08FC1DA1E4F35506600585797118461B8FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:E540B08FC1DA1E4F35506600585797118461B8FD
 magnet:?xt=urn:btih:0EBE6E9EDB56A8E4A64641D7E15390D57B482DE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Mushishi Zoku Shou / Мастер Муси (ТВ-2) [2014, TV, 11 ep] BDRip Hi10
 ```bash
 magnet:?xt=urn:btih:AEB47D6EAD014AEB0A224E106EC0446F8EBD3D57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Netojuu no Susume / Recovery of an MMO Junkie / Жизнь онлайн [2017, T
 magnet:?xt=urn:btih:0E91F0841A3480F69ED77EC5F346D94CF9E75CE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Donten ni Warau / Laughing Under the Clouds / Смех под облаками [
 ```bash
 magnet:?xt=urn:btih:118991225EBFF1180B42C10096D7D98D08426055
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:118991225EBFF1180B42C10096D7D98D08426055
 ```bash
 magnet:?xt=urn:btih:E8DF0300C529644645B8409FC93414226A2076CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Shingeki no Kyojin Season 2 | Attack on Titan Season 2 | Атака титано
 magnet:?xt=urn:btih:A2E4E062C1D689FA32D60BD6E4F0453A0F21D98C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:A2E4E062C1D689FA32D60BD6E4F0453A0F21D98C
 magnet:?xt=urn:btih:2DB6841F95C561A81BBAC7C811FDAF4EB6C51D58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Gekijouban Fate/Stay Night: Heaven's Feel | Судьба: Ночь схватк�
 ```bash
 magnet:?xt=urn:btih:D072BE8E2A666B3FAAD1294F40BD69F12D55C26D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:D072BE8E2A666B3FAAD1294F40BD69F12D55C26D
 magnet:?xt=urn:btih:9C5D64601CF7A5F92D1DB5BB348A1A66E82FA492
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Midnight Eye Gokuu | Goku: Midnight Eye | Гоку: Полуночный гла�
 ```bash
 magnet:?xt=urn:btih:0D5617169C3ACC5C613E53FDA891108C311953D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Midnight Eye Gokuu II | Goku II: Midnight Eye | Гоку II: Полуночны�
 magnet:?xt=urn:btih:60FBBE2DF5DE25545A5817BA83E3C77DB6513982
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ Meitantei Holmes: Aoi Ruby no Maki / Kaitei no Zaihou no Maki | Sherlock Hound: 
 magnet:?xt=urn:btih:6F19627DAD64389BFB1D64D26350B3600B982EA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Meitantei Holmes | Sherlock Hound | Великий детектив Холмс [
 ```bash
 magnet:?xt=urn:btih:6289F8C7494E37B203D875FD54F59A19CCC5EDFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ Shingeki no Kyojin: The Final Season (2023) | Attack on Titan The Final Season (
 magnet:?xt=urn:btih:A5B1AC8B4248CD2E3D1810C10A2848074898EA33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Psycho Diver: Mashou Bosatsu | Psycho Diver: Soul Siren | Психо-нырял�
 ```bash
 magnet:?xt=urn:btih:35537BF81C15F29D30B279701E86E121AF283573
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Shihaisha no Tasogare | Twilight of the Dark Master | Сумерки Повел�
 ```bash
 magnet:?xt=urn:btih:1C6F842A0A554E503D82679CDD02B5CDCBF54BFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ Dallos | Даллас [1983, OVA, 4 из 4] BDRip 1080p HEVC 10-bit raw+rus
 magnet:?xt=urn:btih:7B9EE49B64D8BD65AB4BBA6BABE247EEB7E4B354
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ Iria Zeiram The Animation | Iria: Zeiram The Animation | Ирия: Зейрам 
 magnet:?xt=urn:btih:8C24B03ECEF12E4E84CCB13A6C5100468B87425F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ Fate/Zero | Судьба: Начало [2011, TV, 25 из 25] BDRip 1080p HEVC 1
 ```bash
 magnet:?xt=urn:btih:001FB470292D27BF6C617908E5C6F270A922C456
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ Fate/Stay Night Unlimited Blade Works | Судьба: Ночь схватки. �
 magnet:?xt=urn:btih:38A92710FBFB520C659B17AF1AF29BF2C857C111
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ Fate/Stay Night | Судьба: Ночь схватки [2006, TV, 24 из 24] B
 ```bash
 magnet:?xt=urn:btih:A286EC7AFE6A32D04F8BE470BC7746B6416A3D6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ DearS | ДиарС [2004, TV, 12 + 1] DVDRip 544p raw+rus
 magnet:?xt=urn:btih:24D92180D4F21D2D67E55B03AC8D8D145C44C298
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Egao no Taenai Shokuba Desu | A Mangaka`s Weirdly Wonderful Workplace | Рабо
 ```bash
 magnet:?xt=urn:btih:624FB3842FA37B1CBED1D5287C26A2BC6145BC48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ CyberCorp (2024) [Ru/Multi] (1.03) Repack Let'sРlay
 magnet:?xt=urn:btih:11151AD1197EFC78523B25DF93F21678CB083C7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Age of Reforging: The Freelands (2023) [Ru/Multi] (1.06b) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:23E4F2F2553BC8E85731A19FB7A4B7CA489879D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.02.1/dlc) Repack Let'sРlay [Deluxe E
 magnet:?xt=urn:btih:0D861DF7630967B5293D70B3ED3B968309ED1622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Chip ‘n Clawz vs. The Brainioids (2025) [Ru/Multi] (1.0.23477) Repack Let'sРl
 ```bash
 magnet:?xt=urn:btih:09314050D2321E7A468C944ACF782D6F461232D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Nordic Ashes: Survivors of Ragnarok – динамическое приключ�
 magnet:?xt=urn:btih:AE3336668A1E97B1F7D33F910FEDE251DF5E9477
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The RPG (2025) [Ru/Multi] (1.001/1.004) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D385299A0C85B843C23AAB58962B20D923B22D8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Hell Clock (2025) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 magnet:?xt=urn:btih:5A9C17E7EBB7A29444D7502CD8A5E2EA836D4EF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Koboo: The Tree Spirit предлагает уникальное сочетан�
 ```bash
 magnet:?xt=urn:btih:6A6000ADAA4E6FA4CFD8CD4D5FE23B48DCA0D975
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Grand Emprise 2: Portals Apart (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:2307DA4819257544584ACAFF2E0332AF405F7236
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Starfield - долгожданная ролевая игра в жанре на�
 ```bash
 magnet:?xt=urn:btih:2A784F4E738694D793FF66312C2A3F6540742348
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Blood West (2023) [Ru/Multi] (4.5.0/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:06DC9010E07C46C92C0F8CDD74F927203A3FCE50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Soulstone Survivors - это динамичный экшен-рогалик, г�
 ```bash
 magnet:?xt=urn:btih:4A258883120773D78ABC0B4A3B84F9956C527C4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ God Of Weapons (2023) [Ru/Multi] (1.5.65/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:E1507B172577C4F554636B3B59AA147BCD2FCB60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Warhammer 40,000: Rogue Trader – это изометрическая роле�
 ```bash
 magnet:?xt=urn:btih:99009FA0A92CFD4B44B29534B0B394342171076D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Captain Bones - это приключенческий боевик действ�
 magnet:?xt=urn:btih:2F760A31A1F85F5A5DC9F7FA58FE427AAF8FBDEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Last Flame (2024) [Ru/Multi] (1.0.3 Hotfix 2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:CE6C69334CD5467600A42A3BAFB0E54D0FB68EEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ The Shaman's Ark (2025) [Ru/Multi] (build 19404296) Repack seleZen
 magnet:?xt=urn:btih:B901121EDB0D22793D91C81D7D84D22C22CC9637
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Hellcard выполнен в той же стилистике, что и ори�
 ```bash
 magnet:?xt=urn:btih:2A04DE7E1A5081EBA17AC0BC2D740827108291DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Tyrant's Realm (2025) [Ru/Multi] (20250731 Build 19375382) Scene Tenoke
 magnet:?xt=urn:btih:779E893C1D58F47A42E4980E922FA4CD944C6D19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ ARK: Survival Evolved (2017) [Ru/Multi] (360.1/dlc) Repack FitGirl [Ultimate Sur
 ```bash
 magnet:?xt=urn:btih:CC887AA7C9A5E4A1C720E8A2D966AF76A81F4E1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.6.2/dlc) Repack Want
 magnet:?xt=urn:btih:7EA37A93F35E00004271F08A08CAC4B8C2989078
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Achilles: Survivor (2025) [Ru/Multi] (1.0.9290) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:850F4E161BB83648307C82E3BF6837F3FED2BD5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Avowed (2025) [Ru/Multi] (1.5.1.0/dlc) Repack Let'sРlay [Premium Edition]
 magnet:?xt=urn:btih:77A018071E943FB4E857EE4EFB00DB4AD3D8E926
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (57661/dlc) Repack Wanterlude [Del
 ```bash
 magnet:?xt=urn:btih:AEB8E1E001F3E62E03AB8DACFA23DBDE9B88A94B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (178111/dlc) Repack seleZen [Deluxe E
 magnet:?xt=urn:btih:BA367719DAFB09790F17A2E8BC1A2226087A218E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ The Last Spell - это тактическая ролевая игра с эле
 ```bash
 magnet:?xt=urn:btih:57739091DA5DC594C67BFAA4F696EAE2A0A7778E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

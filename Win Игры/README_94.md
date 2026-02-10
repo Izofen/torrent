@@ -19,6 +19,8 @@ The Last Farmer (2024) [Ru/Multi] (1.0.11) Repack FitGirl
 magnet:?xt=urn:btih:B0B59AFBC087F1730662EC0F55432082A90F1D3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Amanita Design Collection (2003-2021) [Ru/Multi] (1.12/2.34/Build 4041/1.2.0/1.4
 ```bash
 magnet:?xt=urn:btih:23CE7282B8B928D2921186119DC632F2E80B9457
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Blasphemous II (2) (2023) [Ru/Multi] (2.2.0-cs57553/dlc) Repack Wanterlude
 magnet:?xt=urn:btih:3703E87AE71130C85C5E743A739C0FB71D84EFC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ A Game About Digging A Hole (2025) [Ru/Multi] (build 17291810) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:A1E94C2357853B967936092E0B2D3C582000FB5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Fallout 3 - это сочетание шутера от первого лица,
 magnet:?xt=urn:btih:98EB4334E0DABBC7E97266DE55B57BDFF55FCA83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Shumi Come Home - это очаровательная приключенческ
 ```bash
 magnet:?xt=urn:btih:CA7286260169FE27423F46E782153A2830AF54C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Crisis Core Final Fantasy VII Reunion (2022) [Ru/Multi] (1.03) Repack Wanterlude
 magnet:?xt=urn:btih:2C429A77596A453249EB0EA6C8511C658F19BDA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Last Farmer (2024) [Ru/Multi] (1.0.11) Scene SKIDROW
 ```bash
 magnet:?xt=urn:btih:6A1FED149976931274B27F409B177E4F3D6A4FFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ WARRIORS: Abyss (2025) [Multi] (1.0) Scene Rune
 magnet:?xt=urn:btih:9C66BBDD44AA116D29652D29981DA771BC7BF9AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Dark PGT (2025) [Ru/En] (build 17435047) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:B09F9FD0EA720DC8F58898AD771F14B6AB931424
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Master of Orion предлагает игрокам исследовать бе�
 magnet:?xt=urn:btih:13B03ABD285E911CF5BBED0F1A12EC5F150A806A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Victoria 3 - прямой сиквел одноименной игры, где �
 ```bash
 magnet:?xt=urn:btih:75B4A6D93ED95F1AE0F484BCD4C08B795DA8CAA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ X4: Foundations - долгожданное продолжение успешно
 magnet:?xt=urn:btih:17296E4C66ECAFDAAF46F94B3C829FA12125AA96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Living Legends 12: Frozen Destiny / Живые легенды 12: Замёрзш
 ```bash
 magnet:?xt=urn:btih:D6190C9D220AE6E804E35B89E35155A4F5EB4E44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Dead of Darkness (2025) [Ru/Multi] (1.0 Update 4) Repack Let'sРlay
 magnet:?xt=urn:btih:5949D7E5A7F18D63A16881D74578A7157D3B1B29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Feudal Baron: King's Land (2024) [Ru/Multi] (1.0.20241220.698) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:89B815CE37A0514F68AB2E71450261D8352FFBB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Geminism - это визуальный роман, который вовлека
 magnet:?xt=urn:btih:9DF9C337EC4ED352497D5845F84203D6C1B61636
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Slender Threads (2025) [Ru/Multi] (1.0.2) License GOG
 ```bash
 magnet:?xt=urn:btih:95F0C4A669E16CE97B9D429333888E3DB16FDEBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Warden's Will (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay
 magnet:?xt=urn:btih:14A03572254B835D1FB8B4B9FC127999C69EF84D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Fight School Simulator (2024) [Ru/Multi] (build 17408091) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F10044D773351EB5DF6C23920C909E5B626C0C45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ While Waiting (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:CFD9D7D5856C1D31070FD3FC055960F8971C570B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Instruments of Destruction (2024) [Ru/Multi] (1.11c) License GOG
 ```bash
 magnet:?xt=urn:btih:F8AD194B15BAEFFEA3B210EFCEB436E1C8985BF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Turbo Overkill - динамичный жесткий шутер от перво�
 magnet:?xt=urn:btih:CEADB74E27C664BEACA76322D19130F9573C2BB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Discolored 2 (2025) [Ru/Multi] (1.3.1) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:D92F766EC76074C62B3AA5512C2C6E854479AFAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ MiSide (2024) [Ru/Multi] (0.93) Repack EXROW
 magnet:?xt=urn:btih:037A8BD6F0C2CE1C83A988446BC541D96A98E4E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Dune Spice Wars – стратегический игровой проект, г
 ```bash
 magnet:?xt=urn:btih:FF4C971B2FC1A464AFB3845C60650FE616F781FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

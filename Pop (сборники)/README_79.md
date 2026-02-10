@@ -1,3 +1,32 @@
+###  Публикация: 1536953   (670590) от 14.03.2022
+
+VA - 90's One Hit Wonders (2022) [MP3|320 Kbps] <Pop, Dance, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vanilla Ice - Ice Ice Baby
+02. MC Hammer - U Can't Touch This
+03. Hanson - MMMBop
+04. The Cranberries - Zombie(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 02:24:46 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F5AFD4E3304F05BC44384984051CCE96EC60E47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536950   (670728) от 14.03.2022
 
 VA - 80's One Hit Wonders (2022) [MP3|320 Kbps] <Pop, Dance, Rock>
@@ -21,6 +50,8 @@ VA - 80's One Hit Wonders (2022) [MP3|320 Kbps] <Pop, Dance, Rock>
 ```bash
 magnet:?xt=urn:btih:50AB202CFECC97E9502CEDBE06698DDF41FEEDC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +79,8 @@ VA - Зажигательный Eurodance vol.4 (2017) [MP3|192-320 Kbps] <Eurod
 ```bash
 magnet:?xt=urn:btih:4AA89ABF619363203A7723FEF7AA9D4536481FB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +115,8 @@ VA - Самые горячие новинки этого года Vol.2 (2012) [
 magnet:?xt=urn:btih:318FA5E937883C3FB5C23DA9B2386C0680CB433B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +150,8 @@ VA - Летний Музыкальный Кураж (2012) [MP3|256 кб/с]<Pop
 magnet:?xt=urn:btih:DAAA0DD6CB3640AB204060A2E231B460E8006C83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +178,8 @@ VA - Stardust 03: Pop Dance Mixed (2022) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:D575D9D48A6D08E51211C1BDF9DE2B9C68F06F05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +208,8 @@ VA - Italo-Disco Instrumental Hits (2018) [MP3|320 Kbps] <Disco, Instrumental>
 magnet:?xt=urn:btih:2EA50778295F1F2B4E493AF5D00035C0425912A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +237,8 @@ VA - German Top 50 Official Dance Charts 04.05.2018 (2018) [MP3|320 Kbps] <Dance
 magnet:?xt=urn:btih:C00900EBC7100D4EABA370C6F9DD53FB9DEBFF4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +265,8 @@ VA - Наурыз (2019) [MP3|256-320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:D75042641954D2F8A52CEDD980E7308860336058
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +301,8 @@ VA - Взрывной хит-парад Лето 50/50 (2012) [MP3|160-256 кб/
 magnet:?xt=urn:btih:A4E8A575C47BE7A962FC3CC9480F44875913EAD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +329,8 @@ VA - Дискотека Хит FM. Любимая музыка выпуск № 
 ```bash
 magnet:?xt=urn:btih:81A0566AA5FC7EACC803905547CACB33145402FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +359,8 @@ VA - Топовая весенняя сотня выпуск № 8 (2017) [MP3|2
 magnet:?xt=urn:btih:CBEABD28CC02E444D3FD3669359DBCF42D2C4838
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +387,8 @@ VA - Зажигай вместе с Europa Plus. Версия № 5 (2017) [MP3|
 ```bash
 magnet:?xt=urn:btih:9D36B1EA88CCDF067EA9FAE1304CAFF8E2F366F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +417,8 @@ VA - Звездная тусовочка. Сборник № 12 (2017) [MP3|256 
 magnet:?xt=urn:btih:34BDFED4ED85803B89F0328451AAAAF7C88B8190
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +445,8 @@ VA - Горячая весенняя танцплощадка. Версия № 
 ```bash
 magnet:?xt=urn:btih:535EC3D77870F235B4EE46DB70F96C8278AF4C82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +475,8 @@ VA - Весенний хитовичок молодежный выпуск № 4
 magnet:?xt=urn:btih:C1132F70D2950A5572D6233BFDA66163731787CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +503,8 @@ VA - German Top 100 Single Charts 04.05.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:F93B511ADE139DD2154A11A9606548C429C47095
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +533,8 @@ Enrique Iglesias - The Best Songs (2016) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:084895A67E3CB967FE596B8D9A7F9F0695317784
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +561,8 @@ VA - Русская Дискотека ХХ Века - 1 (2010) [MP3|320 Kbps]<D
 ```bash
 magnet:?xt=urn:btih:B1F193E33A0DBD03C7FE8B44E742E35D90351DEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +591,8 @@ VA - Зарубежная Дискотека ХХ Века - 35 (2016) [MP3|320 
 magnet:?xt=urn:btih:207E95F2433FA482E42748AAA4450D4E6701DED7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +619,8 @@ VA - Русская Дискотека ХХ Века - 10 (2010) [MP3|320 Kbps]<
 ```bash
 magnet:?xt=urn:btih:08943D580BD9E7CC3D9531BF90394579DF1A16E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +649,8 @@ VA - Русская Дискотека ХХ Века - 9 (2010) [MP3|320 Kbps]<D
 magnet:?xt=urn:btih:233ACFA4A3B4E36138883B68341B6ED3F9BF3E1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +677,8 @@ VA - Русская Дискотека ХХ Века - 6 (2010) [MP3|320 Kbps]<D
 ```bash
 magnet:?xt=urn:btih:D77D2547769BF86EAB1D9306C2F9CCA2F6F53F8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +707,8 @@ VA - Русская Дискотека ХХ Века - 3 (2010) [MP3|320 Kbps]<D
 magnet:?xt=urn:btih:C36C82D3FF8740653D44BA2983D4A68D1592ED65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +735,8 @@ VA - Русская Дискотека ХХ Века - 5 (2010) [MP3|320 Kbps]<D
 ```bash
 magnet:?xt=urn:btih:2EF6317FFD7D970865B59B992EC9BE5B2C9CACFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -688,32 +765,7 @@ VA - Русская Дискотека ХХ Века - 2 (2010) [MP3|320 Kbps]<D
 magnet:?xt=urn:btih:F39B176E08596F93BB2E6A7BC2080CD04793F63E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030260   (674700) от 30.06.2016
-
-VA - Русская Дискотека ХХ Века - 7 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сталкер - Новости Из Первых Рук ( 1988 )
-02. Мальвина - Ждать Не Буду ( 1990 )
-03. Шоколад - Твое Отражение ( 1989 )
-04. Фристайл - Мы Разные ( 1989 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:13:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D571B425B4086BF81C2693429C11B75003FEA0B4
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

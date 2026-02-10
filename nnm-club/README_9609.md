@@ -22,6 +22,8 @@ VA - The Official UK Top 40 Singles Chart 09.11.2018 (2018) [MP3|320 Kbps] <Pop,
 magnet:?xt=urn:btih:28A557DA080D34EC35D6FB2F67A474A28F660C11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:28A557DA080D34EC35D6FB2F67A474A28F660C11
 ```bash
 magnet:?xt=urn:btih:BC2A5BB3B8E2036EA2A5450B06544F2214F80717
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:BC2A5BB3B8E2036EA2A5450B06544F2214F80717
 magnet:?xt=urn:btih:B49849BF0929A322FC46CA8008387C6D2B5A4FF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Mp3tag 2.90 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BFEA748608999B46A3F46A3FD3F96A7EECF40331
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:BFEA748608999B46A3F46A3FD3F96A7EECF40331
 magnet:?xt=urn:btih:9B8E5C88F2F72FAC91DAC3282A268B2FB0DCFB2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:9B8E5C88F2F72FAC91DAC3282A268B2FB0DCFB2A
 ```bash
 magnet:?xt=urn:btih:E09944F132E4C8EF7981127CD3B6AF9007648368
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:E09944F132E4C8EF7981127CD3B6AF9007648368
 magnet:?xt=urn:btih:0870028049AD41914E2B0E199B50AFE698C1F4A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:0870028049AD41914E2B0E199B50AFE698C1F4A6
 ```bash
 magnet:?xt=urn:btih:8D9942034B9ACD9D4ED70FFC1CA42C27E083321A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:8D9942034B9ACD9D4ED70FFC1CA42C27E083321A
 magnet:?xt=urn:btih:926B1597227E8BDC1ECA5EBF3E3003C4B91B2E87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:926B1597227E8BDC1ECA5EBF3E3003C4B91B2E87
 ```bash
 magnet:?xt=urn:btih:BF271D16CCF0088371FB56019304585DDCF10735
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ VA - Disco House: Funky Mix November (2018) [MP3|320 Kbps] <Funky, Disco House>
 magnet:?xt=urn:btih:F91B7CB9874BDFD1AA151A9C5C612234B2E67C53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:F91B7CB9874BDFD1AA151A9C5C612234B2E67C53
 magnet:?xt=urn:btih:F2515DACD81D4263AFF7450A71C6EF6C4B0689BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:F2515DACD81D4263AFF7450A71C6EF6C4B0689BE
 ```bash
 magnet:?xt=urn:btih:9F19C4F7F601768100D2CC9026D2FC3211C079FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ VA - Midnight Club 3 DUB Edition Remix Soundtrack (2006) [MP3|~245 кб/с (V0)]
 magnet:?xt=urn:btih:FFFD49B7111A95752AAF3480E8BEAFD79C95B8D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:FFFD49B7111A95752AAF3480E8BEAFD79C95B8D9
 ```bash
 magnet:?xt=urn:btih:C3EA2DC5A6B34CFC045171850965990B9829C2B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ magnet:?xt=urn:btih:C3EA2DC5A6B34CFC045171850965990B9829C2B9
 magnet:?xt=urn:btih:BDCFD6D4C9CBD383FF17221F005E54988355D416
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +457,8 @@ magnet:?xt=urn:btih:BDCFD6D4C9CBD383FF17221F005E54988355D416
 ```bash
 magnet:?xt=urn:btih:61F933F87F16BD0F5DD91E0E597071B2FE665CC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +484,8 @@ magnet:?xt=urn:btih:61F933F87F16BD0F5DD91E0E597071B2FE665CC6
 magnet:?xt=urn:btih:7E8BE4793DD717CEAE4209A225C36EE02B47FC0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ magnet:?xt=urn:btih:7E8BE4793DD717CEAE4209A225C36EE02B47FC0E
 ```bash
 magnet:?xt=urn:btih:5159B846262152DFD92E2E88CB9C7BA9DA16A2A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ magnet:?xt=urn:btih:5159B846262152DFD92E2E88CB9C7BA9DA16A2A1
 magnet:?xt=urn:btih:E9962918120AFD8D5A369A4FAF3854294F346762
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:E9962918120AFD8D5A369A4FAF3854294F346762
 ```bash
 magnet:?xt=urn:btih:DB18831EF38C2F0A81B203B99293AE17C07DC0B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +590,8 @@ magnet:?xt=urn:btih:DB18831EF38C2F0A81B203B99293AE17C07DC0B5
 magnet:?xt=urn:btih:F4B9CBFE5CDC18B40C9F5EAA19B3A7C5DC207454
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ magnet:?xt=urn:btih:F4B9CBFE5CDC18B40C9F5EAA19B3A7C5DC207454
 ```bash
 magnet:?xt=urn:btih:F57F9C72FC7090F6565D2BE5F5F4A3DB3C0D4DE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +643,8 @@ magnet:?xt=urn:btih:F57F9C72FC7090F6565D2BE5F5F4A3DB3C0D4DE3
 magnet:?xt=urn:btih:B04627AA82B829C6E593393B29E42E1AC10DF3DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +668,8 @@ Adguard — это лучший способ избавиться от разд�
 ```bash
 magnet:?xt=urn:btih:F5825F726A01C98E18F120C4BD77BCBEC0023CE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -647,6 +697,8 @@ VA - Future City Records Compilation Vol. VIII (2015) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:23F2C07DCBCBE11D87B92104F7100103D1D3B242
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

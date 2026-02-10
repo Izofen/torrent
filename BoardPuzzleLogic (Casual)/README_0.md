@@ -19,6 +19,8 @@ Dungeons & Degenerate Gamblers (2024) [Ru/Multi] (1.0a) Scene TinyISO
 magnet:?xt=urn:btih:9F0ED155DB31298B69892BAD37795CAA2C9E4732
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ World of Goo – основанная на реальной физике гол�
 ```bash
 magnet:?xt=urn:btih:CE41427346EB2C22A2809BBD9F82F20EC4D28580
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Tabletop Simulator - единственный симулятор, в котор�
 magnet:?xt=urn:btih:20FD020134FE304C9B409AF50613170BF2BBD62B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ KoroNeko – откройте двери для нашей предельно р
 ```bash
 magnet:?xt=urn:btih:9DBEBE77D1BDE8195C039B2CB1006F8FA601457C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ BYTES: The Reverse Tower Defense – это вариация традицион�
 magnet:?xt=urn:btih:6AF11F9DB4BC93DED0D1745601FB2782C5F40A08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:6AF11F9DB4BC93DED0D1745601FB2782C5F40A08
 ```bash
 magnet:?xt=urn:btih:B21BC6314DBF6467F3B2697D563F72BCBBC76B27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Regency Solitaire II (2024) [En] (1.04) License GOG
 magnet:?xt=urn:btih:990ACDF85C2A79D6D251CA53CD491B567EE4EB75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Regency Solitaire является карточной игрой, которая
 ```bash
 magnet:?xt=urn:btih:DD50918FF43A2EB7F6CD2A03A2549C9990157BEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Kubikon 3D (2024) [Multi] (1.0.12) License GOG
 magnet:?xt=urn:btih:A0FEECBF992C69C281F2FC7F2C37A672D1D40F03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Tents and Trees (2024) [Ru/Multi] (2404041009) License GOG
 ```bash
 magnet:?xt=urn:btih:AE4FD1002B8A52A9DBC767618088A35C3FDA8AD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ GWENT: Rogue Mage / ГВИНТ: Маг-Отступник (2022) [Ru/Multi] (1.0
 magnet:?xt=urn:btih:1C41EF6EB8CC904E16ABC340615D2EF8749B4878
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Papers, Please (2013) [Ru/Multi] (1.4.11.124) Repack EXROW
 ```bash
 magnet:?xt=urn:btih:FC5B69103DAC4AD3A5210DA3F9AF8E8F6FAD426F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:FC5B69103DAC4AD3A5210DA3F9AF8E8F6FAD426F
 magnet:?xt=urn:btih:DD4ED029CEDEF6D4957417574D331FDFD1943C7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ The Sims Carnival Bumper Blast - аркадная стрелялка. Пока �
 ```bash
 magnet:?xt=urn:btih:4477EB36ADFBF86E7C4BB9146609DDDC1DB5AA95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ My Diary - весьма оригинальная игра про путешес�
 magnet:?xt=urn:btih:D0EA39389D75FA757693FF522ACEA83625503129
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:D0EA39389D75FA757693FF522ACEA83625503129
 magnet:?xt=urn:btih:1286F3AA294E9D0A965EAE7A02067F5EE55EBB97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:1286F3AA294E9D0A965EAE7A02067F5EE55EBB97
 ```bash
 magnet:?xt=urn:btih:646FFB16D56F8D749E66C73E4F0A495AEAFDA833
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:646FFB16D56F8D749E66C73E4F0A495AEAFDA833
 magnet:?xt=urn:btih:BE75494CDB12537053F33E0F72C5CCD7AF6206CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ Jewel Quest Mysteries 4: The Oracle of Ur Collector's Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:6151521BCFA777CA99C56DB7D9D2A47031C34D54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ Space Sieged (L) [En] 2012
 magnet:?xt=urn:btih:4272ED02300D39082BFC342E2D366B0B32FE193B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:4272ED02300D39082BFC342E2D366B0B32FE193B
 ```bash
 magnet:?xt=urn:btih:AC67FB38F59FBB75C1A68E5C5C1672628934F244
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ Tunes Jungle Adventure / Нотки: Приключения в джунглях 
 magnet:?xt=urn:btih:06F6ECE76222D44BC97277D497CB6CE3CFB440FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ Mobiloid - это уникальная головоломка с оригина�
 ```bash
 magnet:?xt=urn:btih:44A7E842BE1638199EEBCAA68433856CA8AC81CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ Marine Tower Defence / Ух-ты, бухты! (P) [Ru] 2011
 magnet:?xt=urn:btih:85B00E79796EF58D806218DE55E7A11B3C017A91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ Turbo Gems - красиво оформленная игра, в современ
 magnet:?xt=urn:btih:B93F342329CC155C0C025B1EAB228AC3DCABBCEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Cubis Gold 2 (P) [En] 2008
 ```bash
 magnet:?xt=urn:btih:B39FDC3089A60D0FDE5E0E94A96AF981F36E4D79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

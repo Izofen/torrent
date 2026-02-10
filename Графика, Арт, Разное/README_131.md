@@ -1,53 +1,3 @@
-###  Публикация: 992350   (902420) от 01.03.2016
-
-Обои - LIFEstyle News MiXture Images. Wallpapers Part 920-923 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известная серия в сети качественных обоев на различную тематику для Вашего рабочего стола.
-В данный пак вошли выпуски из серии 920-923.Формат: JPGРазрешение файлов: 1680x1050 - 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48F2C89CE3BF0EBA2FA435796B8D358A1F61AC58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992339   (902498) от 01.03.2016
-
-Обои - Computer Desktop Wallpapers Collection 1447-1451 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Довольно известная серия в сети качественных обоев на различную тематику для Вашего рабочего стола.
-В данный пак вошли выпуски 1447-1451.Формат: JPGРазрешение файлов: 1680x1050 - 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89CA088C59AF5CBF56B64F03E98BB09245656958
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1492388   (903800) от 29.08.2021
 
 Картинки - Сборник арт картинок [JPG]
@@ -68,6 +18,8 @@ magnet:?xt=urn:btih:89CA088C59AF5CBF56B64F03E98BB09245656958
 ```bash
 magnet:?xt=urn:btih:C13D8E7CCC5D0FED79C6446271E742D5D0523B2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +46,8 @@ magnet:?xt=urn:btih:C13D8E7CCC5D0FED79C6446271E742D5D0523B2C
 magnet:?xt=urn:btih:2C786064108963033366DD3242062B79182340D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +73,8 @@ magnet:?xt=urn:btih:2C786064108963033366DD3242062B79182340D8
 magnet:?xt=urn:btih:90AE148116B408F7E9CB88122316DA88F00F74F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +98,8 @@ magnet:?xt=urn:btih:90AE148116B408F7E9CB88122316DA88F00F74F1
 ```bash
 magnet:?xt=urn:btih:F67E39960B3873DE42682E9DCCCD998407EBA77A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +126,8 @@ magnet:?xt=urn:btih:F67E39960B3873DE42682E9DCCCD998407EBA77A
 magnet:?xt=urn:btih:4B2F349E0AE1183B3034BAB6D9BFED595B5CF180
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +153,8 @@ magnet:?xt=urn:btih:4B2F349E0AE1183B3034BAB6D9BFED595B5CF180
 magnet:?xt=urn:btih:8015CB4F882E750319BE86FB4C43262DFC8165E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +178,8 @@ magnet:?xt=urn:btih:8015CB4F882E750319BE86FB4C43262DFC8165E0
 ```bash
 magnet:?xt=urn:btih:180DB3340EA26F87036B5761A7E3150CBE8E1BF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +205,8 @@ magnet:?xt=urn:btih:180DB3340EA26F87036B5761A7E3150CBE8E1BF1
 magnet:?xt=urn:btih:6FFB3FE85757C0C096542F1667DCE52FFD5717B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +230,8 @@ magnet:?xt=urn:btih:6FFB3FE85757C0C096542F1667DCE52FFD5717B0
 ```bash
 magnet:?xt=urn:btih:163925799F60D2803E0C5A20D543C6A8FC60C0EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +257,8 @@ magnet:?xt=urn:btih:163925799F60D2803E0C5A20D543C6A8FC60C0EC
 magnet:?xt=urn:btih:C9BA920FB479E217EB3AE5EE29B92ABD9BBCFE12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +282,8 @@ magnet:?xt=urn:btih:C9BA920FB479E217EB3AE5EE29B92ABD9BBCFE12
 ```bash
 magnet:?xt=urn:btih:4D57972DB1D8BFE83EF5B869B2400D344755EAF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +309,8 @@ magnet:?xt=urn:btih:4D57972DB1D8BFE83EF5B869B2400D344755EAF0
 magnet:?xt=urn:btih:CF3F0C4FCF49B5CE144D3D0DE6D06B64B9E95315
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +334,8 @@ magnet:?xt=urn:btih:CF3F0C4FCF49B5CE144D3D0DE6D06B64B9E95315
 ```bash
 magnet:?xt=urn:btih:89B72AA32D556864F9EF179ABE70C17DD34D92F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +361,8 @@ magnet:?xt=urn:btih:89B72AA32D556864F9EF179ABE70C17DD34D92F9
 magnet:?xt=urn:btih:0A0251BD33E2E0EE85B4BD829AF76347FE8762E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +386,8 @@ magnet:?xt=urn:btih:0A0251BD33E2E0EE85B4BD829AF76347FE8762E3
 ```bash
 magnet:?xt=urn:btih:F8FB9683D8E4DE97F3CB17A74968D7DD694F2ACF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +413,8 @@ magnet:?xt=urn:btih:F8FB9683D8E4DE97F3CB17A74968D7DD694F2ACF
 magnet:?xt=urn:btih:ED9D75FF881CDAD26887185E6248F8DAA118AF42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +438,8 @@ magnet:?xt=urn:btih:ED9D75FF881CDAD26887185E6248F8DAA118AF42
 ```bash
 magnet:?xt=urn:btih:355C1DB847393E6A1157794248CD65D8FA3B58E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +465,8 @@ magnet:?xt=urn:btih:355C1DB847393E6A1157794248CD65D8FA3B58E1
 magnet:?xt=urn:btih:F49077106CB7442A7141A3F2304490B9D2BECC8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +490,8 @@ magnet:?xt=urn:btih:F49077106CB7442A7141A3F2304490B9D2BECC8D
 ```bash
 magnet:?xt=urn:btih:78FCF0C665E3122EEB5FB7665C47EAD35D514311
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +517,8 @@ magnet:?xt=urn:btih:78FCF0C665E3122EEB5FB7665C47EAD35D514311
 magnet:?xt=urn:btih:7255C66B21E1ABA6F835A0CC80B353B571106657
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +542,8 @@ magnet:?xt=urn:btih:7255C66B21E1ABA6F835A0CC80B353B571106657
 ```bash
 magnet:?xt=urn:btih:4F829FFA4B24106AA36EAB80868D2600612C20CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +570,8 @@ magnet:?xt=urn:btih:4F829FFA4B24106AA36EAB80868D2600612C20CE
 magnet:?xt=urn:btih:A370AB8E85834D20796904864A50E5A51BB41571
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +595,8 @@ magnet:?xt=urn:btih:A370AB8E85834D20796904864A50E5A51BB41571
 ```bash
 magnet:?xt=urn:btih:326DED2C3C792D261BE5A5EF4EFD30A812F19304
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +622,60 @@ magnet:?xt=urn:btih:326DED2C3C792D261BE5A5EF4EFD30A812F19304
 ```bash
 magnet:?xt=urn:btih:9CAFB48171816B9C95FF87AB0F5B38780E45557D
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990338   (911722) от 25.02.2016
+
+Картинки - Красоты пляжей Малибу-2. 4284x2409 - 7952x4473 - 15 шт [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_911722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередные вариации на тему пляжей Малибу, часть 2.Формат: JPGРазрешение файлов: 4284x2409 - 7952x4473
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B4ED078379DF80E4C4AE584991B8987494D4510
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990336   (911859) от 25.02.2016
+
+Картинки - Венецианский карнавал-2. 4211x2369 - 5744x3231 - 30 шт [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_911859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известное на весь мир мероприятие в Венеции, часть 2.Формат: JPGРазрешение файлов: 4211x2369 - 5744x3231
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C218123266192110D62221C9610D87924F80EE19
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ FBReader Premium v3.7.0 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:6FCB3E274F0A359EE1D9DB993108EF09A78EE5C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ TapScanner — сканер документов, это простой скан
 magnet:?xt=urn:btih:D8F1FB7CC51E3E6E3C5C2D66C7A90B5AAB38E8D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ OfficeSuite Pro + PDF - это полнофункциональный офисн
 magnet:?xt=urn:btih:75F7F2739B5A03091E26AA69DCBBFE2E97E0DFC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:75F7F2739B5A03091E26AA69DCBBFE2E97E0DFC7
 ```bash
 magnet:?xt=urn:btih:11200055BA269E73D9F6D66CA12895063524F1A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ AndroPods v1.5.26 Mod by adidas [Ru/Multi]
 magnet:?xt=urn:btih:459925BAC9DAF0A153582943FB39ED38A4C21966
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ eWeather HDF - это точный прогноз погоды от двух м�
 magnet:?xt=urn:btih:434A12BE8655371BEC8551161F557761B1EC0145
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Windy.app - очень и очень востребованное погодно
 ```bash
 magnet:?xt=urn:btih:3A6C98F56C6B8818171A1A43431A7BF0BC6BBBF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:3A6C98F56C6B8818171A1A43431A7BF0BC6BBBF2
 magnet:?xt=urn:btih:5C4787BA0C2E94FC240A01AA69C6B7DA65F00937
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Windy.app - очень и очень востребованное погодно
 ```bash
 magnet:?xt=urn:btih:E8756D4080895C1EBF3B30DF45FEF522508AABAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Picturize it v1.1.9.1 Mod by srajawwal09 [Ru/Multi]
 magnet:?xt=urn:btih:BEC1E395D19127676D4C41306C5AA1829BEA8C62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Wood Block Puzzle – классическая игра-головоломка �
 ```bash
 magnet:?xt=urn:btih:B1D925938D304C92AD82B8BF0FC1716E39125517
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Reface: Face Swap AI Generator v4.11.0 Mod by derrin [Multi]
 magnet:?xt=urn:btih:BFA1F988EB458DFA426D0CE8D76E24CD4EA0CAAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ ToonMe v0.7.8 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C2DC287309273E76AF13EF7195B606B2EEA9B3FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ Rutube v29.4.1 Mod by vadj [Ru/En]
 magnet:?xt=urn:btih:C2143E91AEDCF5E90675C9B94407CE8CAB34A876
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:C2143E91AEDCF5E90675C9B94407CE8CAB34A876
 ```bash
 magnet:?xt=urn:btih:537352E91E487E0A8B340762CDAEF202C5765F7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ n7player Music Player - весьма впечатляющий своими во�
 magnet:?xt=urn:btih:D3612214A9BC10EC4E2951E6DCBA8CF53174CF33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Foreca Weather - весьма популярное погодное прилож
 ```bash
 magnet:?xt=urn:btih:16D7B66226030127E709034E31BAF82BC40E1701
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Navier HUD 3 - приложение помогающее расширять св
 magnet:?xt=urn:btih:4DC725397F33DA4AD8840558128F0A47CADBB129
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Foreca Weather - весьма популярное погодное прилож
 ```bash
 magnet:?xt=urn:btih:0EFA565E3E43035007E7EDBE20404DD9DCEE7604
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ Navier HUD 3 - приложение помогающее расширять св
 magnet:?xt=urn:btih:0CC0869EA376CE9F1BE29BAEF4FACD199209C395
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Navier HUD 3 - приложение помогающее расширять св
 magnet:?xt=urn:btih:DB6A37ADDBF41783E522C3195AD485FFC5DE632A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:DB6A37ADDBF41783E522C3195AD485FFC5DE632A
 ```bash
 magnet:?xt=urn:btih:A592DC60D2010CAF5C2826783197F7DAB5895A4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ Garmin: TopoActive Europe 2024.10 [En]
 magnet:?xt=urn:btih:2672712E36FAD1BA6C8AC6904DF47EE7CE1970E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ MiX Camera - это альтернативная камера для Android, р
 ```bash
 magnet:?xt=urn:btih:988C877F69D84A2D1EE7EA0053A9045E9B8DA827
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ Transparent clock & weather / Прозрачные часы и погода 7.01
 magnet:?xt=urn:btih:43601D90218CE9957DF7DA1FBD09F55D83C64EF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ AIDA64 2.01 (ARM64) Mod by CMAPTOC [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:DED5BA7C289E124FCDE00CEFD1D73FAC08C91D9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

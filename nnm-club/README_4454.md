@@ -22,6 +22,8 @@ Freakstorm - Angel In The Dark (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 magnet:?xt=urn:btih:4EBF51DA4588D5F0F4494581950B5D5E72F3EB82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:4EBF51DA4588D5F0F4494581950B5D5E72F3EB82
 ```bash
 magnet:?xt=urn:btih:51A31190B2392FAF8AB09A5FD9C88C697FDF86CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Trypogen 1.0 For Cinema 4D [En]
 magnet:?xt=urn:btih:916FAAE168A1C7788B952718115AE1C7167C058F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Hunting Unlimited 2 - симулятор охоты от компании SCS So
 magnet:?xt=urn:btih:55C87BA7B46425594067147449AFC7556C4534DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:55C87BA7B46425594067147449AFC7556C4534DD
 ```bash
 magnet:?xt=urn:btih:280B9611AE418317F7CE13112B26D2F70AA83000
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Polnalyubvi - О чем поет твое сердце (2023) [FLAC|Lossless|WEB
 magnet:?xt=urn:btih:42E25B8C94ED8E1DD0F0FD39A5CB21E0EC635704
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ Philip Wesley - The Magic of Christmas (2018) [FLAC|Lossless|WEB-DL|tracks] <New
 magnet:?xt=urn:btih:DF029B88C1E25A0C0A4DDC1DF8ABCDF34D415103
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:DF029B88C1E25A0C0A4DDC1DF8ABCDF34D415103
 ```bash
 magnet:?xt=urn:btih:B90CC92D68D7A8171521FB4465FA2B10185B5484
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:B90CC92D68D7A8171521FB4465FA2B10185B5484
 magnet:?xt=urn:btih:73C43747E2E94C45E71B4F70F537CFCB3A1DB60C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ Itsudatte Bokura no Koi wa 10 Centi Datta. | Our Love Has Always Been 10 Centime
 ```bash
 magnet:?xt=urn:btih:89AD7EEDEDBE7ACF72F7BEEF92D0C302277FEFA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ Rockets - Time Machine (2023) [FLAC|Lossless|WEB-DL|tracks] <Space Rock, Synth-p
 magnet:?xt=urn:btih:CFDEE60E051AA9CDD040F3AB70B11425432C363B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:CFDEE60E051AA9CDD040F3AB70B11425432C363B
 ```bash
 magnet:?xt=urn:btih:D4651928BCFF67DD0B8D20BE12EC79C6412EEA45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:D4651928BCFF67DD0B8D20BE12EC79C6412EEA45
 magnet:?xt=urn:btih:27A52A78CE88E4775249E68357562D498D666AB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:27A52A78CE88E4775249E68357562D498D666AB5
 ```bash
 magnet:?xt=urn:btih:06285673298623E7B424E61F4C4627AA8C1E7725
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ Alta Reign - Upon the Horizon (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 magnet:?xt=urn:btih:844615515F06C6F7E30E3CB6C2072152A9347D23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:844615515F06C6F7E30E3CB6C2072152A9347D23
 ```bash
 magnet:?xt=urn:btih:02FBDC00A07B595A8E6048B4AB4357E4DACC93FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:02FBDC00A07B595A8E6048B4AB4357E4DACC93FD
 magnet:?xt=urn:btih:211EB50742BA4A168D642D6E67B75B3202A8497D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:211EB50742BA4A168D642D6E67B75B3202A8497D
 magnet:?xt=urn:btih:E1C5229FF59AA9332E7F40EF59B61219F3122C0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:E1C5229FF59AA9332E7F40EF59B61219F3122C0B
 ```bash
 magnet:?xt=urn:btih:5F1CA0A88B04BD4CFC3D021AFB98A42D44AB5364
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +535,8 @@ John Legend - A Legendary Christmas (2018) [FLAC|Lossless|tracks + .cue] <R&B, P
 magnet:?xt=urn:btih:2995C320BE90F1C772B30D31AE5828E11A2DF2A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ magnet:?xt=urn:btih:2995C320BE90F1C772B30D31AE5828E11A2DF2A3
 ```bash
 magnet:?xt=urn:btih:3FC9FF4F04FB2EDE281B5242AD7FA4A9A03CEF3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +587,8 @@ magnet:?xt=urn:btih:3FC9FF4F04FB2EDE281B5242AD7FA4A9A03CEF3E
 magnet:?xt=urn:btih:34E49328F3C04E7274DF149633D38D1DFCB8D0EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ magnet:?xt=urn:btih:34E49328F3C04E7274DF149633D38D1DFCB8D0EE
 ```bash
 magnet:?xt=urn:btih:897AAB8664B0DCABEBBD7F923FC3F7C2E46177D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +642,8 @@ Tarja Turunen - From Spirits and Ghosts (2017) Score for a Dark Christmas, Speci
 magnet:?xt=urn:btih:5FD6024FE6D2BAD25ACB8CBE870C03CE90B1A9CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +667,8 @@ magnet:?xt=urn:btih:5FD6024FE6D2BAD25ACB8CBE870C03CE90B1A9CC
 ```bash
 magnet:?xt=urn:btih:045889C9D09B5F9B040AB15F7818EF947A80391F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +696,8 @@ VA - Partybreaks and Remixes - All In One October 003 (2018) [MP3|320 Kbps] <Pop
 ```bash
 magnet:?xt=urn:btih:DEC5F2C76274A724AD76EC85C584EAC6E5F44191
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

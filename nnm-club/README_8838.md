@@ -22,6 +22,8 @@ Magic Power - Magic Power (1980) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul
 magnet:?xt=urn:btih:BE321DD3D4C69BA3EDD9F51119EB3C70B7C20324
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Cockos Reaper является одной из самых продвинутых
 ```bash
 magnet:?xt=urn:btih:D25D30E4FDFF58F500FC4D190D5456A6635AB0C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:D25D30E4FDFF58F500FC4D190D5456A6635AB0C5
 magnet:?xt=urn:btih:4C8C76ED362049EC2C050B279E48B9EBA6261BBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:4C8C76ED362049EC2C050B279E48B9EBA6261BBB
 ```bash
 magnet:?xt=urn:btih:5E1525268837E5E02385F69123AAE8FECEC1A750
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ Snowball - 3 Albums (1978-1980) Reissue CD [MP3|320 Kbps] <Rock, Jazz-Funk, Prog
 magnet:?xt=urn:btih:79FAE157A6332DCDA2599C9A6A00B4B75FE1FE59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:79FAE157A6332DCDA2599C9A6A00B4B75FE1FE59
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ Vogue — женский журнал о моде, издаваемый с 1892 
 ```bash
 magnet:?xt=urn:btih:21811D5B3EAE2720C6E09BB8E447345567928F3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:21811D5B3EAE2720C6E09BB8E447345567928F3C
 magnet:?xt=urn:btih:0998B13C7B8CB9FF90F3413D57FCF90FC33318A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:0998B13C7B8CB9FF90F3413D57FCF90FC33318A4
 ```bash
 magnet:?xt=urn:btih:CD48AF05209C0E1940F706BF5142741E876EE2FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:CD48AF05209C0E1940F706BF5142741E876EE2FC
 magnet:?xt=urn:btih:AA74F7384359FD70A721C916F7264D4800A4E5B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:AA74F7384359FD70A721C916F7264D4800A4E5B9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:AA74F7384359FD70A721C916F7264D4800A4E5B9
 magnet:?xt=urn:btih:EA5ABC60A809A48AE86F2BF06B45A4E462195CAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:EA5ABC60A809A48AE86F2BF06B45A4E462195CAB
 ```bash
 magnet:?xt=urn:btih:3401C599F253766A855389D5B85342FFEF7CDE99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ Misja Helsloot - WhatTheHelsloot (2019) [MP3|320 Kbps] <Trance, Progressive Tran
 magnet:?xt=urn:btih:D50470576F45546A42A1E72EF0F9358FF3C3BE74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ VA - Nu-Disco Selections, Vol. 13 (2019) [MP3|320 Kbps] <Nu Disco / Disco>
 ```bash
 magnet:?xt=urn:btih:3F2CFAF880F25C51FABAF2837316FC6E7DF7210A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ David Liebman, Eric Ineke, Mario Laginha Quintet - Is Seeing Believing? (2016) D
 magnet:?xt=urn:btih:971DC76AB060F70B0D9C7AA261FC739E279A3CB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ magnet:?xt=urn:btih:971DC76AB060F70B0D9C7AA261FC739E279A3CB8
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +488,8 @@ Jazzmeia Horn - Love & Liberation (2019) Concord Jazz [FLAC|Lossless|tracks + .c
 magnet:?xt=urn:btih:E78F02E70C4F058C3B1A5F8837E135472BBEB8B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +516,8 @@ Jazzmeia Horn - A Social Call (2017) Prestige [FLAC|Lossless|tracks + .cue] <Voc
 ```bash
 magnet:?xt=urn:btih:62523E6BEE9E12511C6CEE497559ED80BB6A7F35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +546,8 @@ Jay Thomas & The Cantaloupes - The Art of Jazz: Live At SAM (2015) McVouty Recor
 magnet:?xt=urn:btih:0ED2868C3A3ED714F8DB00E961F905DD68ED7D9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +575,8 @@ CD1:
 magnet:?xt=urn:btih:A40F4E29FBBDAD21785989856B40A129BFD2C969
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +600,8 @@ VA - House Vip [27.12.2010] (2010) [MP3|320 kbps]<Electro House>
 ```bash
 magnet:?xt=urn:btih:1A6DDED92EF321070F982618DD8E8F66A8459177
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +628,8 @@ magnet:?xt=urn:btih:1A6DDED92EF321070F982618DD8E8F66A8459177
 magnet:?xt=urn:btih:58CC7E1AEE7ED19FEAEE3A2DDB9FB699FF3AC9D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +653,8 @@ magnet:?xt=urn:btih:58CC7E1AEE7ED19FEAEE3A2DDB9FB699FF3AC9D9
 ```bash
 magnet:?xt=urn:btih:A6B63BC021F82AB0C1DC935176BD843DE426879F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +680,8 @@ magnet:?xt=urn:btih:A6B63BC021F82AB0C1DC935176BD843DE426879F
 magnet:?xt=urn:btih:407DA9E4BCE71DBDAA8336D366496F323E832C8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ magnet:?xt=urn:btih:407DA9E4BCE71DBDAA8336D366496F323E832C8A
 ```bash
 magnet:?xt=urn:btih:56C50B0B64655BDAD6AB384D67A6E53ACEA9B1C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

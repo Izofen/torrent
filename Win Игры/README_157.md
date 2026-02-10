@@ -19,6 +19,8 @@ Train Valley World (2024) [Ru/Multi] (Build #370) Repack FitGirl
 magnet:?xt=urn:btih:B383D703E267A4EF178DC19EF2EB0A144DE5D4CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ ICARUS (2021) [Ru/Multi] (2.2.16.125988/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:BFB1F6925311E34CD02FD251362BF2ED2093EEF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Batman: Arkham Asylum (2010) [Ru/En] (1.1) Repack Decepticon [Game of the Year E
 magnet:?xt=urn:btih:9E75BE0E24815CFAD746A1FF95F62F452C071D21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ X Invader - это динамичный экшен-рогалик с видом 
 ```bash
 magnet:?xt=urn:btih:DAEED9C916F578BC669E3DEC3FA284FBF9D21C10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Shoulders of Giants представляет собой научно-фанта�
 magnet:?xt=urn:btih:62D36B31FE1DC7670CF053E5051F77EB590F1B5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Abathor бросает геймеров в самое сердце павшей 
 ```bash
 magnet:?xt=urn:btih:D324EF4EEC04E35383DB7A739B085D921D601D31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Regiments – стратегия в реальном времени, где Хо
 magnet:?xt=urn:btih:3E5810436AC3B7DE750196C13D00BD8EEC08DD5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Berserk Boy – аркадное приключение с элементами 
 ```bash
 magnet:?xt=urn:btih:837B927036DBFD3A5C3DCB4EA5D69C36F5C2ADB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Just Crow Things - мем-игра, где вы берете на себя ро�
 magnet:?xt=urn:btih:7E2D9E6233FFB6A0CEC13695DD8DCA1720A54D14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Arco - это минималистичная игра, действие кото
 ```bash
 magnet:?xt=urn:btih:D52049A3257ECD757D02F7B80251966DCC82EDA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Hidden Through Time 2: Discovery - спокойная приятная игра 
 magnet:?xt=urn:btih:28596AD8019E4F93E14B0DE12914D6613133A386
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:28596AD8019E4F93E14B0DE12914D6613133A386
 ```bash
 magnet:?xt=urn:btih:866E296D060DA07E4AC89558E68725B6FE3B89A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Meowsterpiece Museum - игра со скрытыми объектами, где
 magnet:?xt=urn:btih:3BAC712856F0C3A48A1B1AA8FAFB18EA473094E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Crime Scene Cleaner (2024) [Ru/Multi] (1.0.2D) Scene FairLight
 ```bash
 magnet:?xt=urn:btih:F9F4C7A39BC1A7F2C65991CCA677E32ABF4A1E6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Welcome to Elk – это биографическое приключение, �
 magnet:?xt=urn:btih:31CA6A148F9315A793DB418117DD5B1DFBDF57F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ DREDGE (2023) [Ru/Multi] (1.5.1/dlc) Scene DOGE
 ```bash
 magnet:?xt=urn:btih:D485C622EAAB11075F54F3A7D0DAA323FEDA9311
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Inversion - шутер от третьего лица, совмещающий д
 magnet:?xt=urn:btih:7F9C0D9157E7A468B6C24DF72CF51AB62B55068D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Guayota (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:2D93E62B8D2C4F218EB32CC38B06A35C655EFD23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Intravenous 2 погружает вас в мир жестоких интриг 
 magnet:?xt=urn:btih:FBD822C0E61D530BD87885CD46D20201A01DC606
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ MoonFire: A Seeker's Saga (2024) [En] (1.3.2) License GOG
 ```bash
 magnet:?xt=urn:btih:101AF4A3F61AD8A36543F6BAD0EF35250F2B712A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ The Last Case of Benedict Fox - это захватывающее и мрачн�
 magnet:?xt=urn:btih:C988146E3B3509F8C7EA804234AD2DF0FBCD9064
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ The Lullaby of Life (2024) [Ru/Multi] (1.0.7.0) License GOG
 ```bash
 magnet:?xt=urn:btih:5D2EA5140DBE5EE3B03EF6B3D4AF5E211C151DF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ DREDGE (2023) [Ru/Multi] (1.5.1/dlc) Repack Other s [Complete Edition]
 magnet:?xt=urn:btih:FE592C76D0ED34467340D54449A1DD16EFF1DC94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ POSTAL 4: No Regerts (2022) [En] (1.4.0) License GOG
 ```bash
 magnet:?xt=urn:btih:3D67DACE3D2DE55FA8D88FF7FB2607CD84B51965
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Passpartout 2: The Lost Artist позволяет игроку взять под
 magnet:?xt=urn:btih:B83AE3775B8674C7CF1FA2C6654D7EEC665A0937
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Trepang2 (2023) [Ru/Multi] (72.00/dlc) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:71B51F24DAC66962714BBDA748D11C7373254E77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

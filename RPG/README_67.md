@@ -19,6 +19,8 @@ BloodLust Shadowhunter - это ролевой dungeon crawler, в которо�
 magnet:?xt=urn:btih:144959B78446618C88E7160FB4DBA305C5B59854
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Birthright: The Gorgon's Alliance / Право на жизнь: Союз Гор�
 ```bash
 magnet:?xt=urn:btih:305E40152CD92D26DC075694A8F8FA136C5BBB72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Ashen – экшен-РПГ с открытым миром, что расска�
 magnet:?xt=urn:btih:47E16B4D0A8657854E053A9E5B4B55C32B2490DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Final Fantasy XIII / Final Fantasy 13 (2014) [Ru/Multi] (1.0.0.0) Repack R.G. Ca
 magnet:?xt=urn:btih:170C91885ED7E7C6066B675B5A54291B7E542BC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Pharaonic, увлекательная трехмерная игра, в кото
 ```bash
 magnet:?xt=urn:btih:C46E4418BDEFE52C37ADD46394F24D3A35CE25DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ King's Bounty. Легенда о рыцаре - это приключенчес�
 magnet:?xt=urn:btih:CA7AC74EB716E24DA16CF6C3D09DB1AEA6F02DED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ SWORD ART ONLINE: Fatal Bullet (2018) [Ru/Multi] (1.1.2/dlc) Repack xatab [Delux
 ```bash
 magnet:?xt=urn:btih:F702BDFEC1B1C45C9311D2953A29382DFBF231A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Anima Gate of Memories (2016) [En/Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:DAFD9E4D42CC1B74664E593B2341A44B2624EB13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Masters of Anima — это оригинальная приключенческ�
 ```bash
 magnet:?xt=urn:btih:15B1DD0F69C07B3D429246666A34BE2AD144240E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ SWORD ART ONLINE: Fatal Bullet (2018) [Ru/Multi] (1.1.2/dlc) License CPY [Deluxe
 magnet:?xt=urn:btih:A483DFC3478377CE99C42CB2132D42D15B4678BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Stranger of Sword City (2016) [En/Ja] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:961D4F9A6B972CFDB5D089493C2701EFD5C6B4D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Megamagic: Wizards of the Neon Age (2016) [En/Multi] (1.05) License GOG
 magnet:?xt=urn:btih:F5F217E593D25FFF2FB0050A3CC41C7B4624B609
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Ys: Memories of Celceta (2018) [Ru/Multi] (1.0.0.15) License GOG
 ```bash
 magnet:?xt=urn:btih:B081DC43E883200D589333DD62ACD397EC959E71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Stories: The Path of Destinies (2016) [Ru/Multi] (0.0.13825) License CODEX
 magnet:?xt=urn:btih:712C05B4D3DA6EE69BDB38C713BBD99BB356C195
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Kingdoms of Amalur: Reckoning (2012) [Ru] (1.0.0.2/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:83C056A1F3BB6ED5B68B5E8B64168F689D341CD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Tokyo Xanadu eX+ (2017) [En] (1.08/dlc) License GOG
 magnet:?xt=urn:btih:1F1A29F08624EA380440083B65AB1FD9BBABB2D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Seven: The Days Long Gone (2017) [Ru/Multi] (1.1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:35B456CEC34CE75E1CF63998EB6C2A6366FA5E2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Stories: The Path of Destinies (2016) [Ru/Multi] (0.0.13825) License GOG
 magnet:?xt=urn:btih:83071B4114572EBC05B032331CEB7DF5FCAFA717
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ The Incredible Adventures of Van Helsing: Final Cut изящный, хоть и 
 ```bash
 magnet:?xt=urn:btih:EEBE89B220CC5CC04C0A9627C470C99EE2B0DA7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Diablo + Hellfire (L) [En] 1996/1997
 magnet:?xt=urn:btih:09ACCE5D51D03CFDAD8FA4AB7829CD218EDF9469
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ The Flame in the Flood (2016) [Ru/Multi] (24.04.2017) Repack R.G. Механик
 ```bash
 magnet:?xt=urn:btih:DAA7175D4B02E137F1A9F37291E99E6D82EBFE49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Disciples III Дилогия [Ru] (Lossless Repack) 2009-2010 | R.G. Catalyst
 magnet:?xt=urn:btih:D7AE4575E21FC10294D7A1F5868EDDD93C3E8259
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Cornerstone: The Song of Tyrim – приключенческая игра в о
 ```bash
 magnet:?xt=urn:btih:00164F91B2B0B1AF44A21BBF4E63E0794BACB844
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ Hero Defense - Haunted Island приглашает всех любителей M
 magnet:?xt=urn:btih:16819F69B65FF5DA0E500A7FD88A15AC2227423C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Megamagic: Wizards of the Neon Age (2016) [En/Multi] (1.05) License HI2U
 magnet:?xt=urn:btih:64C2A87AC384B1C87EE3EE445D93273EBCB5547F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Mary Skelter 2 (2022) [En] (1.05) License GOG
 ```bash
 magnet:?xt=urn:btih:38AEC3EB08B4BFE54D0E92FFDFF29B62CCF5FBAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

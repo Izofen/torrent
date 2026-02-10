@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:1849563C61D999829D85636A532BD35732FA6C0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:1849563C61D999829D85636A532BD35732FA6C0C
 ```bash
 magnet:?xt=urn:btih:C5240F139D0C3CE95A4E18F9689FAEC14F9A0CDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:C5240F139D0C3CE95A4E18F9689FAEC14F9A0CDF
 magnet:?xt=urn:btih:63EB2CB8574AD570D57D81FA0CCD1063135C3099
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:63EB2CB8574AD570D57D81FA0CCD1063135C3099
 ```bash
 magnet:?xt=urn:btih:E9AEFE558DC9D3DB8F6225A311CC50A6C1A43B4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:E9AEFE558DC9D3DB8F6225A311CC50A6C1A43B4E
 magnet:?xt=urn:btih:2287EAC2CA27C2EA0426EE62B578A623AC129C24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:2287EAC2CA27C2EA0426EE62B578A623AC129C24
 ```bash
 magnet:?xt=urn:btih:168AD17E785F2189ED5B6B479E3BDD300B2F55D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:168AD17E785F2189ED5B6B479E3BDD300B2F55D7
 magnet:?xt=urn:btih:C57C049668313F456C1CE7DE8C69AF8F45BA95BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:C57C049668313F456C1CE7DE8C69AF8F45BA95BF
 magnet:?xt=urn:btih:55572AE4039ABAC0457FBBCB7BBA6A5E7CCC7490
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:55572AE4039ABAC0457FBBCB7BBA6A5E7CCC7490
 ```bash
 magnet:?xt=urn:btih:AC3B853E158B33096FCE9E21F0743B2AF88BBC62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:AC3B853E158B33096FCE9E21F0743B2AF88BBC62
 magnet:?xt=urn:btih:4B86A902A78A098DF774383DFC682D5250B98BBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:4B86A902A78A098DF774383DFC682D5250B98BBB
 magnet:?xt=urn:btih:868504053110824A28B633F06F54EDDE4058B720
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:868504053110824A28B633F06F54EDDE4058B720
 ```bash
 magnet:?xt=urn:btih:A1CE79167DE7624619CB3B1A75A2B1480AC386EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:A1CE79167DE7624619CB3B1A75A2B1480AC386EB
 magnet:?xt=urn:btih:A9A8278EC06E4C315C82B93DC17145970630BAE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:A9A8278EC06E4C315C82B93DC17145970630BAE3
 magnet:?xt=urn:btih:0F2CF858EAE0DA9D934110226301E4FA034E14D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:0F2CF858EAE0DA9D934110226301E4FA034E14D3
 ```bash
 magnet:?xt=urn:btih:EB5D5FF91750FCFD4C932DC0B51A442235FDDF16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:EB5D5FF91750FCFD4C932DC0B51A442235FDDF16
 magnet:?xt=urn:btih:146CC4717AB08D932CD8B1883B7182661580844A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ magnet:?xt=urn:btih:146CC4717AB08D932CD8B1883B7182661580844A
 magnet:?xt=urn:btih:54DA95CF771A1659C931735679B28A0DA9A03D95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:54DA95CF771A1659C931735679B28A0DA9A03D95
 ```bash
 magnet:?xt=urn:btih:212C23CBEF925156FDD98177AFEDA686308E8995
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ magnet:?xt=urn:btih:212C23CBEF925156FDD98177AFEDA686308E8995
 magnet:?xt=urn:btih:858EC292744128C8969B3492F6FCEE23489561FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ magnet:?xt=urn:btih:858EC292744128C8969B3492F6FCEE23489561FA
 ```bash
 magnet:?xt=urn:btih:6538A9199157A33E89480FE384D7C2059A05712E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ MotoGP. Этап 12 из 22. Гран-при Чехии. Гонка (20.07.2025)
 magnet:?xt=urn:btih:856F487BBCC9FEF1AEB643305BC2A6810EA037F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ MotoGP. Этап 12 из 22. Гран-при Чехии. Квалификаци�
 ```bash
 magnet:?xt=urn:btih:FB8A5D60277E2382934F3F6FF25CEE0BD89ED47C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ MotoGP. Этап 12 из 22. Гран-при Чехии. Спринт (19.07.202
 magnet:?xt=urn:btih:BE37B5BEA7D99DB4E8D71FAAF426A2B3A699806D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ MotoGP. Этап 11 из 22. Гран-при Германии. Гонка (13.07
 ```bash
 magnet:?xt=urn:btih:88598051E045E38127841E3C434C4598BDD941F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ MotoGP. Этап 11 из 22. Гран-при Германии. Спринт (12.
 magnet:?xt=urn:btih:BF4620219E6757D11A428FF64A3D0EC8DD6C622F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ MotoGP. Этап 11 из 22. Гран-при Германии. Квалифик�
 ```bash
 magnet:?xt=urn:btih:3CFDF9EF49081B628FC5F2061DA3DAA19D521CC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

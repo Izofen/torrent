@@ -20,6 +20,8 @@ Master PDF Editor — простая, но эффективная програм
 magnet:?xt=urn:btih:976547F26AF22F95EC2507E54CF774EE362F6A61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:49297601EC6FD1E58F4EEA69B3AA130F20D1E2A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ PDF24 Creator - бесплатная программа, которая позв
 magnet:?xt=urn:btih:94A200238C581DFCF0CB50E3644D4571D1CF8420
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Atlantis Word Processor 5.0.0.1 Repack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:89BF073D76E05049DE5911FAA88610AE612360F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ ExamDiff - мощная и легкая в использовании прогр
 magnet:?xt=urn:btih:28AE834EA568E60D3F5F5E1DF10F936B4D3F2BE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:F6766E247327FE54CF85E76C7723A7401DE744FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Acrobat Pro — это полностью обновленная настоль�
 magnet:?xt=urn:btih:71BF9DB50110E7970293B727E4609E61A84574B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ VueScan - программа предназначена для замены ст
 ```bash
 magnet:?xt=urn:btih:92548C4B61DB9168B8418B61E6D2C792FE74A9D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Wondershare PDFelement - программа для общего редактир
 magnet:?xt=urn:btih:DD6025EC54641999CEFB1BD535093A90332887C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ PDF-XChange Editor — программа для просмотра, редак�
 ```bash
 magnet:?xt=urn:btih:012FE62417FBE7F9512ECDE9DF5AED60B079B58E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ PDF-XChange Pro — универсальное решение для работ�
 magnet:?xt=urn:btih:D843CDBB6E1828A8236404E76737B04181CDC53B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Office LTSC 2024 предоставляет привычный набор при
 ```bash
 magnet:?xt=urn:btih:7F422A051DE955E04EF59BC5D6BD722B98458FF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ PDF Combine Pro — это настоящая находка для тех, ко
 magnet:?xt=urn:btih:8958C3832EFA7B7B991420FC32E97A340E1B1A39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:59AF262D660CF021554861EAA1D7FBA0EFB7F17F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ WinCHM - небольшая утилита для создания файлов 
 magnet:?xt=urn:btih:4E166E1C285A0D4D4A58E912A017228C01EB1FFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ SoftMaker Office Professional 2024 rev. S1228.0906 RePack (& portable) by KpoJIu
 ```bash
 magnet:?xt=urn:btih:11E907D406C58D72192CE9F7DA27D57CD67ABC5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ Master PDF Editor — простая, но эффективная програм
 magnet:?xt=urn:btih:E4F7B058465BBA8C994C8F2B2329387ECBE526CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Microsoft Office 2021 — новый офисный пакет от корпор
 ```bash
 magnet:?xt=urn:btih:E6E09BB2362D7D0BDB029D8EA1FF7A13AC629407
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ PDF Candy Desktop — универсальный инструмент, кото�
 magnet:?xt=urn:btih:198F85AE8BE41BE059570AC8F91AB043864C885B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ VueScan - программа предназначена для замены ст
 magnet:?xt=urn:btih:E8EC4C09E45D582270C2558DE6F48BC5E840A215
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ priPrinter - это виртуальный принтер, который вы �
 ```bash
 magnet:?xt=urn:btih:A5F0E03F26BDF0239CFD9B86C957B4044F16E037
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ Balabolka 2.15.0.905 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:DA548551C059DCDCCD955DD5D7822C24766203BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ Form Pilot Office — программа для заполнения элект�
 ```bash
 magnet:?xt=urn:btih:8A0CC81B8C4EC53B03C24C13D5BD3D53FD1CF7DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ PDF Candy Desktop — универсальный инструмент, кото�
 magnet:?xt=urn:btih:53FB9EB826910E83794B93998C49103615F943CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ Beyond Compare — мощнейшая программа для сравнени
 ```bash
 magnet:?xt=urn:btih:16AA17D03BBCB0B5C1B9B4FE6A59A56E23458DAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +672,8 @@ EmEditor Professional - профессиональная версия мощно
 ```bash
 magnet:?xt=urn:btih:1630BB9EFEAA70CC4BC6BC0C70D3E0041F98AA0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

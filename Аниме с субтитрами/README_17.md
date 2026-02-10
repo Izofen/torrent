@@ -19,6 +19,8 @@ Burn the Witch #0.8: Don't Judge a Book by Its Cover | Сжечь ведьму (
 magnet:?xt=urn:btih:2CD4A377ECCF74CD316D92F213C9CBDB1B2EC13E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Seishun Buta Yarou wa Odekake Sister no Yume o Minai | Rascal Does Not Dream of 
 magnet:?xt=urn:btih:3935D97473BC39FB45EC30CC510F126A6A22977D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Ooyuki Umi no Kaina: Hoshi no Kenja | Kaina of the Great Snow Sea: Star Sage | �
 ```bash
 magnet:?xt=urn:btih:C1CC45B83EE4F0F605BDE7197C7BEE2B1324D0CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Akuma-kun: Youkoso Akuma Land e!! | Дьяволёнок (1990) [1990, Movie] WE
 magnet:?xt=urn:btih:B27BEE6C4C83607339C41F17E8F746434941E1EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Akuma-kun (1989) | Дьяволёнок (1989) [1989, Movie] WEBRip 1040p raw
 ```bash
 magnet:?xt=urn:btih:7577AE1BB262C84C61676598EAF7C36267D1F014
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Aiyou de Mishi | Aiyou's Secret Room | Тень любви в тайной ко�
 magnet:?xt=urn:btih:09D794B1C2595A80D147E72E4BA4F2FD40BEDE09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Hikikomari Kyuuketsuki no Monmon / The Vexations of a Shut-In Vampire Princess /
 magnet:?xt=urn:btih:CB4793D798A9D2884F421EDC8E251D93982B705C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Pokemon Concierge | Покемон: Консьерж [2023, TV, 4 эп.] WEB-DL 
 ```bash
 magnet:?xt=urn:btih:B1236756046AC17034DC23511D489C50D997D073
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Tokyo Revengers: Tenjiku Hen | Tokyo Revengers: Tenjiku Arc | Токийские
 magnet:?xt=urn:btih:D6FF31BE6473A9066CF2A914FEB9E4F9C10DFB21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Jujutsu Kaisen (2023) | Магическая битва [ТВ-2] [2023, TV, 23 �
 ```bash
 magnet:?xt=urn:btih:0B5EA30ABF9C6E27EF1E107BBE4B536AD50DBBEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:0B5EA30ABF9C6E27EF1E107BBE4B536AD50DBBEE
 magnet:?xt=urn:btih:6932EB7A048E4EA16C76C8EEAC049B0F86AF68F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Uchuusen Sagittarius | Spaceship Sagittarius | Искатели приключе
 ```bash
 magnet:?xt=urn:btih:7A51EEB83DF41B90550D5F88DAF77558B774B4D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Dark Gathering | Тёмное собрание [2023, TV, 25 эп.] WebRip 720p 
 magnet:?xt=urn:btih:81F604896AE68CC2D30309696202A8369EE0AB35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Mashin Eiyuuden Wataru | Mashin Hero Wataru | Маленькие спасате�
 ```bash
 magnet:?xt=urn:btih:A158B04B015AB4788BDAE5F24980EBDA98D358DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Shin Mashin Eiyuuden Wataru Majinzan | Маленькие спасатели [19
 magnet:?xt=urn:btih:25027B526C14C6115C33A3B126ABC33370DC02E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Mashin Eiyuuden Wataru 2 | Mashin Hero Wataru 2 | Маленькие спаса�
 ```bash
 magnet:?xt=urn:btih:31288A6349EFE3CB8D95F2AD45D9CFCB98B7E58C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Mashin Eiyuuden Wataru: Owarinaki Toki no Monogatari | Маленькие спа
 magnet:?xt=urn:btih:F57141A73307EA3D950964881C0E323627FAC99D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Chou Mashin Eiyuuden Wataru | Mashin Hero Wataru 3 | Маленькие спас
 ```bash
 magnet:?xt=urn:btih:D45B3208B29D3B6F74A643C373DB31836C27FBAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ Mashin Eiyuuden Wataru: Nana Tamashii no Ryuujinmaru | Маленькие спа
 ```bash
 magnet:?xt=urn:btih:B370A0694117ED97DCACBF42667B4E202E53532E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ Gnosia | Гносия [2025, TV, 1 из 12 эп.] WEBRip
 magnet:?xt=urn:btih:27CCB2A017F2E08955E6E01024D95FACF8AED2D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ Chanto Suenai Kyuuketsuki-chan / Li'l Miss Vampire Can't Suck Right / Вампи
 magnet:?xt=urn:btih:364546C8E7399A18F65DAB2A492C76D341B7A43C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ Kanojo mo Kanojo (2023) | Girlfriend, Girlfriend (2023) | Мои девушки 
 ```bash
 magnet:?xt=urn:btih:34D3065BE56FD8FA7B11D2595947B88E71E58287
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ Shadowverse Flame: Seven Shadows Hen | Поэзия теней [ТВ-3] [2023, T
 magnet:?xt=urn:btih:A6B481F0674BA27456354D472E786A4F7BC4707C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Kamonohashi Ron no Kindan Suiri | Безумные расследования Р
 ```bash
 magnet:?xt=urn:btih:6ED0C38F114615ACC98A7731345506D2303EE8DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ Saihate no Paladin: Tetsusabi no Yama no Ou | The Faraway Paladin: The Lord of R
 magnet:?xt=urn:btih:64B3559F65F4252142AEC2C8B13BFB500FF02A0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Hoshikuzu Telepath / Stardust Telepath / Телепат звёздной пыл�
 ```bash
 magnet:?xt=urn:btih:CBBB54A30D5798559E49666EB80FFE3DDAEC4CD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

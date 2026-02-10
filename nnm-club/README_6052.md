@@ -22,6 +22,8 @@ A3 Ballade(   Читать дальше...   )Жанр: Classical, RomanticПр�
 magnet:?xt=urn:btih:3340FE0ABF6323E7917186F9C08D0600F10BC1DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:3340FE0ABF6323E7917186F9C08D0600F10BC1DF
 ```bash
 magnet:?xt=urn:btih:7D08721FBA217A08A4C03A16A90AD08E939D5667
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:7D08721FBA217A08A4C03A16A90AD08E939D5667
 magnet:?xt=urn:btih:5555213F331BC16094976F5C276883959DF69BE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:5555213F331BC16094976F5C276883959DF69BE5
 ```bash
 magnet:?xt=urn:btih:2F12D9AA75C3519E88F65B0AE76D217BEC62D4B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ VA - Horizon's Trance 2023 (2023) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:A463F2595CF4583CBF360B508D575A5DA6F5BE6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:A463F2595CF4583CBF360B508D575A5DA6F5BE6E
 ```bash
 magnet:?xt=urn:btih:09AAF2F27F12F47E4B2E1EEAEFCCE135CDC1EE9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ Eva Under Fire - Love, Drugs & Misery (2022) Deluxe Edition, 2023, Better Noise 
 magnet:?xt=urn:btih:12090CC0F1C4BD100106A1C2BF4FD450252DAD28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ Octavus Lupus - Octavus Lupus (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Me
 ```bash
 magnet:?xt=urn:btih:220E4DBAFDDB6050A811EEC61787EC243582A5C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +245,8 @@ Apostolica - Animae Haeretica (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Po
 magnet:?xt=urn:btih:7E3931AB5C562CAC7F908DDDC6D5923B103F0B37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ magnet:?xt=urn:btih:7E3931AB5C562CAC7F908DDDC6D5923B103F0B37
 ```bash
 magnet:?xt=urn:btih:FB2708B62E37FEFE21342925B314930E2CD44E7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -280,6 +300,8 @@ Starbenders - Take Back The Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Gla
 magnet:?xt=urn:btih:06E82D59BCF375D4002880073489438A2FBD4C01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ Kнига «Kогда мудрость войдет в сердце твое…�
 magnet:?xt=urn:btih:C6F6ADFB3B3594AF27863C815908A54738F17D39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ MotoGP. Этап 13. Гран-при Индии. Спринт (23.09.2023) WEBRi
 ```bash
 magnet:?xt=urn:btih:B118594E54931991F9BF6D104A5A30E2783D78C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +381,8 @@ Samurai Pizza Cats - You're Hellcome (2023) [FLAC|Lossless|WEB-DL|tracks] <Metal
 magnet:?xt=urn:btih:9A051C934F4805982F9A774BB11D4C476DA81BA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ magnet:?xt=urn:btih:9A051C934F4805982F9A774BB11D4C476DA81BA8
 ```bash
 magnet:?xt=urn:btih:EBCF8674E3F7A6C6D089E13BEB02ECA5172B2545
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ magnet:?xt=urn:btih:EBCF8674E3F7A6C6D089E13BEB02ECA5172B2545
 magnet:?xt=urn:btih:2D27E6261B0A0105018829B5536DB6C5E094C727
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ magnet:?xt=urn:btih:2D27E6261B0A0105018829B5536DB6C5E094C727
 ```bash
 magnet:?xt=urn:btih:66BCFF5F58E48253634976DB60D30CB6C6EA0D9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +488,8 @@ Domino Drive - Smoke And Mirrors (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic H
 magnet:?xt=urn:btih:60D55283CC91AC5037554987599181A77FB142B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ magnet:?xt=urn:btih:60D55283CC91AC5037554987599181A77FB142B2
 ```bash
 magnet:?xt=urn:btih:A7DCB5DEE3DED0C58AC019464B4829A540A5C4D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +540,8 @@ magnet:?xt=urn:btih:A7DCB5DEE3DED0C58AC019464B4829A540A5C4D7
 magnet:?xt=urn:btih:E83EC62B52289C997CABF3094B53FE4ECCC2618A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +565,8 @@ magnet:?xt=urn:btih:E83EC62B52289C997CABF3094B53FE4ECCC2618A
 ```bash
 magnet:?xt=urn:btih:5BAB6E24DAEF10191B0727CF1208C4BF8B21E31C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ MotoGP. Этап 13. Гран-при Индии. Квалификация (23.09
 magnet:?xt=urn:btih:19EE3B61BC7ED50AD8F7825D979CC4B20D0FCFBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ magnet:?xt=urn:btih:19EE3B61BC7ED50AD8F7825D979CC4B20D0FCFBC
 magnet:?xt=urn:btih:4633EE145AA13DAF4385BBF56C7B45BDCB5550DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ magnet:?xt=urn:btih:4633EE145AA13DAF4385BBF56C7B45BDCB5550DC
 ```bash
 magnet:?xt=urn:btih:D4160D9F12D252D030C1BC6492B2039AC0C913A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +673,8 @@ Corey Taylor - CMF2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Hard Rock>
 magnet:?xt=urn:btih:76351423B2CBAD3F96BA8EB935713EE9B8A32D09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ Great Master - Montecristo (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:7169FBC6218A5C74BC97C946D1304654051BDF9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

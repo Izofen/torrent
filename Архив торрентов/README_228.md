@@ -19,6 +19,8 @@ R-Studio Network 9.4 Build 191329 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:021968F0A5F8579DCF5BB2E7719FA1B761E264DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The KMPlayer – это мощный мультимедиа проигрыват
 ```bash
 magnet:?xt=urn:btih:6421C8A3CD7F21D0AE1F01EC0BDD6CA23C70537C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Skype предназначен для личного и делового общ�
 magnet:?xt=urn:btih:A2F92DEBD26014E9AB3F8869341FCA4CC4AC95C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Auslogics Duplicate File Finder поможет Вам избавиться от 
 ```bash
 magnet:?xt=urn:btih:D4D341B0A0CFCFBB4369DDAB4901E5F4E98E042D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Auslogics Registry Cleaner поможет вам избавиться от ош�
 magnet:?xt=urn:btih:5329A0284ECC42EF18248E0AF712B5A8C794761C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The KMPlayer – это мощный мультимедиа проигрыват
 ```bash
 magnet:?xt=urn:btih:756FED6EBBEEAC5B4C2970FE3B9AF7D028B98631
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ RegCool 2.006 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:AD41C8F55C868095EA82ED65B41EEFB3D2D74F7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ MiniTool Power Data Recovery - это инструмент предназнач�
 magnet:?xt=urn:btih:A1DFC297D61560907E33502448863E81351BA832
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ FolderSizes Enterprise 9.6.490 (Repack & Portable) by elchupacabra [Ru/En]
 ```bash
 magnet:?xt=urn:btih:0B409D2676D3C077E9B942CA23F1468FCA5D3069
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Windows Slimmer поможет вам в удалении ненужных ко�
 magnet:?xt=urn:btih:4DFC60527D8460963475DFEE6390DDEC09F38F22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:4DFC60527D8460963475DFEE6390DDEC09F38F22
 ```bash
 magnet:?xt=urn:btih:52190AFDD9EB5ABC74F4BEF6141960424952232B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ WinToUSB - позволяет устанавливать и запускать �
 magnet:?xt=urn:btih:B80824CD28255FA0DC93070A09452134E77D9A0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Opera One 111.0.5168.61 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:243B75D50603ACA5BBB0E6A755E14D3C02D053B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 magnet:?xt=urn:btih:0C0A99AB7E802D77D773DF1DA61C0E01047DE2FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ Windows Repair Toolbox — графическая оболочка пакета 
 ```bash
 magnet:?xt=urn:btih:021AA23B606F24D8BD01558FB94A631845B3D7C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Topaz A.I. Gigapixel — это приложение, использующее �
 magnet:?xt=urn:btih:F48AE5686F7C9D05402CB5CB322805FDD5FC7E89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ Advanced SystemCare PRO - это мощный пакет для оптимиза
 ```bash
 magnet:?xt=urn:btih:C460D6999A2AD8352DF3CF328C51D82920062A3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 magnet:?xt=urn:btih:1F2E19948E38333F7456CA3B711FD82713D9BEF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ AIDA64 - является мощным средством для идентиф�
 ```bash
 magnet:?xt=urn:btih:BA03646B47E226A139E4519477FDC1732BA3BC3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ Dr.Web CureIt! определяет и удаляет почтовые и сет
 magnet:?xt=urn:btih:21334E00DC131B283CE537ED114CC05209BAAB59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ Kaspersky Virus Removal Tool - бесплатный антивирусный с�
 ```bash
 magnet:?xt=urn:btih:25C03E40DFC20C1504423390836D8970D5DAE439
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ Bandicam позволяет записать определенную облас
 magnet:?xt=urn:btih:1A90049BFF6FB52BF65E25945BDA80584EE16244
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ AOMEI Backupper – программа для создания резервно�
 ```bash
 magnet:?xt=urn:btih:EFC303FA7B52BB2739EED2914EA283BA4F3EA08F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ Microsoft PowerToys – это набор утилит, позволяющих �
 magnet:?xt=urn:btih:EA7FDABA856B93C5D90C4587E8D12013F3049C5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:D8D6975B407C2F71A3CBCAEE5164C56345F13CBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +672,8 @@ Opera GX - это специальная версия браузера Opera, с
 ```bash
 magnet:?xt=urn:btih:5BCE9A602CBB12FDDCEF22F68FBCDFA040DA609E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ BesTW на днях перешел рубеж 2000 релизов. Он - гла
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ BesTW на днях перешел рубеж 2000 релизов. Он - гла
 magnet:?xt=urn:btih:196ACD1077515C56B583B3D30BBE873A9BEB1AB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:196ACD1077515C56B583B3D30BBE873A9BEB1AB4
 ```bash
 magnet:?xt=urn:btih:3D3933AA52AF953B733522FA51C8876334CE707B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:3D3933AA52AF953B733522FA51C8876334CE707B
 magnet:?xt=urn:btih:75FEB253826F6274BFE65C5D3660B13990F27B64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ RadioMaximus 2.33.00 (23.12.2024) RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B4EE359217B7C31C47C3E676D06A24CB0CBCF071
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Thehousefx, Will Wallace |  Destruction Training with Thinking Particles (2014) 
 ```bash
 magnet:?xt=urn:btih:4A9A777032129C21E972A4EC1AC1C97D084B7B0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:4A9A777032129C21E972A4EC1AC1C97D084B7B0D
 magnet:?xt=urn:btih:86C1A2ED625511AD65BF451F377A7CA338D5EDD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Tokidoki Bosotto Rossiya-go de Dereru Tonari no Alya-san | Alya Sometimes Hides 
 ```bash
 magnet:?xt=urn:btih:EDFE0A05816EE5C447251136D40AF8C90525CA67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Hannah - это трехмерный платформер с головолом�
 magnet:?xt=urn:btih:303990F667E0E38CE372858E58E725CDF207F725
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Stellarium – бесплатный эмулятор звездного неба
 ```bash
 magnet:?xt=urn:btih:093A81DA4A366159116B1336BF7B968376AB9196
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:093A81DA4A366159116B1336BF7B968376AB9196
 magnet:?xt=urn:btih:3B3173256C734C394A2908E295F6BCFD0C22E723
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Bendy and the Ink Machine™ — игра-головоломка-экшн в ж�
 ```bash
 magnet:?xt=urn:btih:4DC9691C27AB9E44157F890FB019353F9C613F3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ Aiseesoft Screen Recorder 3.1.6 RePack (& Portable) by elchupacabra (x64) [Multi
 magnet:?xt=urn:btih:64346D3AFC1AC60317BDF153E4147837D203D32E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:64346D3AFC1AC60317BDF153E4147837D203D32E
 ```bash
 magnet:?xt=urn:btih:010B417B58109647D97FF1BB037116C6EFD55689
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:010B417B58109647D97FF1BB037116C6EFD55689
 magnet:?xt=urn:btih:E81E87A69ACAD5A2F565348BEDE200115F9ECE0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:9D08C93709D89D8870D7B295F42FB8C7D7EED477
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:9D08C93709D89D8870D7B295F42FB8C7D7EED477
 magnet:?xt=urn:btih:75C901993782613BC1618894E1B9A8B1BF173491
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:75C901993782613BC1618894E1B9A8B1BF173491
 magnet:?xt=urn:btih:C054A768F88F596E07B4E8B3218A47ECCC0DE85A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:57E9467232EA536925CEF9D1382C6DAE97641778
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:57E9467232EA536925CEF9D1382C6DAE97641778
 magnet:?xt=urn:btih:BEAE388FBED5A358A98FF0D9A610709D7F44CD19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ MF Ghost (2024) | MF Призрак 2 [2024, TV, 12 эп.] WEBRip 720 raw
 magnet:?xt=urn:btih:3F18CAE8F929BB17BF6B438B4930B8B6E1C8A0BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:3F18CAE8F929BB17BF6B438B4930B8B6E1C8A0BA
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ Seirei Gensouki 2 / Seirei Gensouki: Spirit Chronicles 2 / Хроника миф
 magnet:?xt=urn:btih:A794FCA8F37317714BA2A8340982A8D6803C4F1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:A794FCA8F37317714BA2A8340982A8D6803C4F1D
 ```bash
 magnet:?xt=urn:btih:DFD7B71D00EDE00D57BF8E170CEAB9D725A5ED42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Tate no Yuusha no Nariagari Season 3 | The Rising of the Shield Hero Season 3 | 
 magnet:?xt=urn:btih:CEEDDE5FF23856F190387A2B18D71B2C70623C07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:CEEDDE5FF23856F190387A2B18D71B2C70623C07
 ```bash
 magnet:?xt=urn:btih:EE0A32E3175B1F9F328313687AE67ADFC98B614E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

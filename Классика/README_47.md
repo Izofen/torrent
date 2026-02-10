@@ -22,6 +22,8 @@ The Royal Philharmonic Orchestra - Symphonic Rock (2004) Box Set, 2CD [FLAC|Loss
 magnet:?xt=urn:btih:DCBAA9D45C45D5573BC502D253082472843079A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ The New London Chorale - The Young Mendelssohn (2003) [FLAC|Lossless|image + .cu
 magnet:?xt=urn:btih:F8BCE2B06BF051F5123DE1E245A4324B28E24423
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ De Monte - Laudate Dominum (Currende, Erik Van Nevel) (2001) [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:E0FAC6B7591E86A025D0953DA154AA25E9CE3EF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -104,6 +110,8 @@ Box 003 - Martha Argerich II(   Читать дальше...   )Жанр: Classi
 magnet:?xt=urn:btih:2147736657A2FDC0765D9DB52506CDF4F1983A6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +138,8 @@ London Philharmonic Orchestra - The Symphonic Music of Pink Floyd (1995) [FLAC|L
 ```bash
 magnet:?xt=urn:btih:E05A98E5C24A18B346CB911C0DA0E846BCE131C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -158,6 +168,8 @@ Amira Willighagen - Merry Christmas (2015) [MP3|192 кб/с] <Classical, Opera>
 magnet:?xt=urn:btih:C82A4C749C918622B805B1CCD016B0A4DF36F24B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -185,6 +197,8 @@ Hindemith - Octet
 magnet:?xt=urn:btih:35372CC174C6208F1EA4F13847DE107157A64C4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -209,6 +223,8 @@ magnet:?xt=urn:btih:35372CC174C6208F1EA4F13847DE107157A64C4D
 ```bash
 magnet:?xt=urn:btih:89FEF0E2D1559A7B873D5216DF1491AC3318DC4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +253,8 @@ Grieg - Piano Concerto in A minor, op. 16
 magnet:?xt=urn:btih:209C07303FE789F01AA3DD2384C1502CB6D95ABC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +281,8 @@ Debussy & Ravel - Monique Haas (2007) 6CD Box Set [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:CD0855311769D6A6821AB67B13F324537953FA19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +311,8 @@ Anna Netrebko, Rolando Villazon, Thomas Hampson - Violetta. Arias And Duets From
 magnet:?xt=urn:btih:99BE35C7E3943570C1677B8D68F4437C2E34A66A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +339,8 @@ The Chamber Orchestra of Europe feat. conductor  Claudio Abbado - Gioacchino Ros
 ```bash
 magnet:?xt=urn:btih:3AEB85A4E845354577B954F65A7127310C3009AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +369,8 @@ VA - Gluck. Orpfeo Ed Euridice, Iphigenie En Aulide, Iphigenie En Tauride. Fragm
 magnet:?xt=urn:btih:8331FE4FC93C4838824BC1D79E58065230ADFD93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +397,8 @@ Mikalojus Konstantinas Ciurlionis - 1875 - 1911 (2000) Box Set [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:9EFCBBC4B33620DE12D8287902F3C2134D32C413
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +427,8 @@ Wolfgang Amadeus Mozart - Mozart Klavierkonzert KV.365, Schubert Fantasie D940: 
 magnet:?xt=urn:btih:48A5FE83B4CF030EE1CF0DE189B10AB6DB768628
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ magnet:?xt=urn:btih:48A5FE83B4CF030EE1CF0DE189B10AB6DB768628
 magnet:?xt=urn:btih:D2108D60DE61252F3804EB69DFBA1E6AE9ACC562
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +484,8 @@ CD4 Bach - Cembalokonzerte BWV 1054 & 1055(   Читать дальше...   )Ж
 ```bash
 magnet:?xt=urn:btih:E4913462C22ECAE2DC6A7A52C7E466B2D8574E0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +517,8 @@ CD 04 Brahms(   Читать дальше...   )Жанр: Classical, Concerto, S
 magnet:?xt=urn:btih:D1280E6C44A1A342DF6F1E6CC93EB4D464B82150
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +545,8 @@ VA - Golden Classic, Box Set, 10CD [FLAC|Losless|image+.cue]<Classical, Orchestr
 ```bash
 magnet:?xt=urn:btih:0318C0ABEDC0E042A743B9E50BA783D169A6DFB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +575,8 @@ Lindsey Stirling - Live From London (2015) [FLAC|Lossless|tracks] <Classical Cro
 magnet:?xt=urn:btih:7ABAFAD63E99EF4249C3495E89DE009200B148F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +603,8 @@ Suite for solo cello no. 3 C-dur, BWV 1009
 ```bash
 magnet:?xt=urn:btih:90C8DDC33B3F64D1E7CF00E9722B3215C1A1939B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +633,8 @@ Piano Trio in C minor, op. 1 no. 3
 magnet:?xt=urn:btih:04C134C75A88FE52EC2A2810AA1E45DD3845723E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +661,8 @@ Piano Concerto no. 1 in E minor, op. 11
 ```bash
 magnet:?xt=urn:btih:CB0BE8A6F4049BB548E646D6843476A2D9BB39BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -645,6 +691,8 @@ VA - Избранная Классика (2000) S&V #02/2000 [FLAC|Lossless|trac
 magnet:?xt=urn:btih:8F262269364F31854DBE7406B4E12AA2A77448CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,6 +720,8 @@ Mozart - Very Best Of Mozart (2005) 2CDs [FLAC|Lossless|image + .cue] <Classical
 magnet:?xt=urn:btih:850C71C5F79BB18112821266393013E2668CB8E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -698,6 +748,8 @@ Piano Concerto no. 3 in C major, op. 26
 ```bash
 magnet:?xt=urn:btih:62CD331BBF217515B318416D26C4E1845C916702
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

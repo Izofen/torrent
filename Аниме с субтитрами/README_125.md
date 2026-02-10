@@ -1,3 +1,29 @@
+###  Публикация: 1613835   (1039318) от 19.02.2023
+
+Project A-ko 3: Cinderella Rhapsody | Проект А-ко III: Рапсодия Золушки [1988, OVA, 1 из 1] BDRip 1080p HEVC 10-bit raw+eng
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время очередного отдыха от школы, А-Ко мечтает об идеальном парне. Из-за этого, она и С-Ко начинают спорить, что привело к тому, что С-Ко убегает и её чуть ли не сбивает мотоциклист по имени Кей. Работая на полставки в ресторане быстрого питания, дабы накопить на платье для вечеринки, А-Ко встречает Кея и влюбляется в него с первого взгляда. Случилось так, что (   Читать дальше...   )Производство: Studio Fantasia / スタジオ・ファンタジアЖанр: приключения, комедия, романтикаРежиссер: Морияма ЮдзиПеревод: Ramzes IIIЯзык озвучки: японский, английскийСубтитры: РусскиеПродолжительность: 1 эп. на 51 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4524F24EF3455DAE17738CC3AE995B1294D9B444
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440040   (1039335) от 15.01.2021
 
 Himote House | Himote House: A Share House of Super Psychic Girls | Дом Химотэ [2018, TV, 12 из 12] BDRip 1080p 10-bit raw
@@ -18,6 +44,8 @@ Himote House | Himote House: A Share House of Super Psychic Girls | Дом Хи�
 ```bash
 magnet:?xt=urn:btih:E7651CD765161665042D67D0BC4E24B2F895E615
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ Kusoge-tte Iuna! | Don`t Call Us a Junk Game! | Это вам не трешов�
 magnet:?xt=urn:btih:8E3C55A5ACD6B786DF1CA9DFE5C7715E605DB968
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ Gekijouban Violet Evergarden | Violet Evergarden the Movie | Виолетта Э
 ```bash
 magnet:?xt=urn:btih:6BB281F012EA53B9DC1B69381FD96183B18D1B55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ Uzaki-chan wa Asobitai! | Uzaki-chan Wants to Hang Out! | Узаки хочет 
 magnet:?xt=urn:btih:0E312BE13F0A58B9B78929052C4A266B83EC8D5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ Sore dake ga Neck | That is the Bottleneck | Только до шеи [2020, TV,
 magnet:?xt=urn:btih:4EBE1D42FF2B5A30E032A8D9D198343635AC99E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +174,8 @@ Grisaia: Phantom Trigger The Animation | Грисайя: Призрачный к
 ```bash
 magnet:?xt=urn:btih:856C7774A181C63B22E261B6129B1041F16DB148
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ Toaru Kagaku no Railgun T | A Certain Scientific Railgun T | Некий науч
 magnet:?xt=urn:btih:60EEDD3AFD1AC59669ADDED66665CF2268CA7CE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ Fate/Grand Carnival | Судьба: Великий карнавал [2021, Speci
 ```bash
 magnet:?xt=urn:btih:3432C955222A44FFB950675839933B0F0B5ECA5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ Assassins Pride | Гордость убийцы [2019, TV, 12 эп.] BDRip 1080p
 magnet:?xt=urn:btih:0446FCF17F2C6F8CEEC58D358CB66B71CCFC5FF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ Takamiya Nasuno Desu! Teekyuu Spin-off | Я - Насуно Такамия! [2015
 magnet:?xt=urn:btih:01D1D0FF539EA2F6400C9B37011E6E8351A34684
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ Dr. Stone | Доктор Стоун [ТВ-1][2019, TV, 24 эп.] BDRip 1080p HEV
 ```bash
 magnet:?xt=urn:btih:BB8A73E4CA549831F88E81176BEA54E4D6630CE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ Karakai Jouzu no Takagi-san: Water Slider | Озорная Такаги OVA [201
 magnet:?xt=urn:btih:144D49BEB189F35162AADE173EA6808B580D457D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +362,8 @@ Tendouke no Oyobidenai Yatsura! | Tendo Family`s Annoying Acquaintances | Док
 ```bash
 magnet:?xt=urn:btih:3D12D20AC44C0E0318E55A8A87536AFFFE2138C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +392,8 @@ Yakusoku no Neverland | The Promised Neverland | Обещанный Неверл
 magnet:?xt=urn:btih:79F1FA91B1ACB7572C2573BBA028F8EBD73D52B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +417,8 @@ Santa Claus Tsukamaeta! | Я поймал Санта Клауса! [1989, OVA, 1
 ```bash
 magnet:?xt=urn:btih:F35986DFE024F06F299A7CE4722DF0B662FC0F94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +444,8 @@ Gokujou Seitokai | Best Student Council | Лучший студсовет [2005,
 magnet:?xt=urn:btih:2B86534305DACB5DEF908CE4B9C8024BD68BF95F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +469,8 @@ Jeremy no Ki | Jeremy's Trees | Дерево Джереми [1983, Movie] VHSRip
 ```bash
 magnet:?xt=urn:btih:2FCB1ECE594166CB78651A0C306100BA49073A51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +496,8 @@ Eikoku Koi Monogatari Emma | Emma: A Victorian Romance | Эмма: Виктор�
 magnet:?xt=urn:btih:93613ACC58FAC26A17F48F5A44FEE256E9BCDDAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +521,8 @@ Enen no Shouboutai: Ni no Shou | Fire Force (TV-2) | Пламенная бриг
 ```bash
 magnet:?xt=urn:btih:CB029017CDB78B5B55ED3E18E4E3843B89DBCC33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +548,8 @@ Love Live! Nijigasaki Gakuen School Idol Doukoukai / Love Live! Nijigasaki High 
 magnet:?xt=urn:btih:53AE625A588A5095D94ECC1EBAB24587C0950CBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +573,8 @@ Hachi-nantte, Sore wa Nai Deshou! | The 8th Son? Are You Kidding Me? | Вось�
 ```bash
 magnet:?xt=urn:btih:A8742FE91F92514BD8C822BA314A1DE1FD5372D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +600,8 @@ Houkago Teibou Nisshi | Diary of Our Days at the Breakwater | Рыбалка д�
 magnet:?xt=urn:btih:4D2422F8161030B59B38B54C04E632A3FDE6211F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +625,8 @@ Lapis Re:LiGHTs | Лазурные огни [2020, TV, 12 из 12] BDRip 1080p 1
 ```bash
 magnet:?xt=urn:btih:2F376C476EB95371863B4492C4A61664D9EC394E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +652,8 @@ Lupin Zero | Люпин Зеро [2022, Web, 6 эп.] WEBRip 720p raw
 magnet:?xt=urn:btih:04791DF37F051DD7313545F15C47F7F363C1E9C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,29 +678,7 @@ Yofukashi no Uta | Call of the Night | Песнь ночных сов [2022, TV,
 magnet:?xt=urn:btih:0A936F920F68F7CC9F3ABB7522F628E01E5DE137
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605602   (1043915) от 27.01.2023
-
-Renmei Kuugun Koukuu Mahou Ongakutai Luminous Witches | League of Nations Air Force Aviation Magic Band Luminous Witches | Сияющие ведьмы [2022, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043915.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лондон, война, магия, девочки-айдолы, фамильяры — думаете, это никак не связано? А вот и нет! Всё это ждёт нас в данном аниме. Девчонки, владеющие магией, — единственное, что может спасти людей во время войны. Это могло бы стать заурядным сюжетом, но всё не так просто! Героини могут сливаться со своими питомцами, превращаться в зверодевочек и с помощью магии использовать (   Читать дальше...   )Производство: студия Shaft / シャフトЖанр: повседневностьРежиссер: Саэки СёдзиПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C0D0EC2BF66210B4C3A6CD434A09DF8EAB6722A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

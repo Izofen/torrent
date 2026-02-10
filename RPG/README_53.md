@@ -19,6 +19,8 @@ Tyranny (2016) [Ru/Multi] (1.2.1.0160/dlc) Repack xatab
 magnet:?xt=urn:btih:F9E4BCB96E6DC4DC5E875E524924D6AACCBCEF02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Dark Souls III / Dark Souls 3 (2016) [Ru/Multi] (1.15/reg1.35/dlc) Repack Seraph
 ```bash
 magnet:?xt=urn:btih:4A73B212287FAC91B6E7FED32B8DD56C39F930E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Crashlands – ARPG с захватывающим сюжетом и возмож
 magnet:?xt=urn:btih:925EEC391E91ED4B6A11399B13735F4E062F4D70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Surge 2 (2019) [Ru/Multi] (1.0/upd2/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:E08767CF5DC84B069E69E39E677A975B8FC23C89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Lords Of The Fallen (2014) [Ru/Multi] (1.0.0/dlc) License GOG [Game of the Year 
 magnet:?xt=urn:btih:C4DD8070D8FEAB3A94D4A63B0AF9168616033318
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Willy-Nilly Knight (2017) [Ru/Multi] (1.1.0) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:1FB8EE40FCEAAF50A86380A71191CDBF31042554
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Willy-Nilly Knight - прекрасная история, основанная �
 magnet:?xt=urn:btih:4A0205B92CFDAE2BB5DCB23BB0C34B117E1424F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Willy-Nilly Knight - прекрасная история, основанная �
 ```bash
 magnet:?xt=urn:btih:9148D5C666FE62FEBBA74CFC8718F60547B86D4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Lords Of The Fallen (2014) [Ru] (1.0/dlc) Repack xatab [Game of the Year Edition
 magnet:?xt=urn:btih:2B56C54DBCDFB7498957695B91FF37120FB52BC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Inquisitor / Инквизитор (2012) [Multi] (1.10.18) License GOG
 ```bash
 magnet:?xt=urn:btih:3F15A5880BCB9B62FB2B217A193C7B6A6473EFDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ DeathSpank: Thongs of Virtue [En] (L) 2010 l SKIDROW
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Fallout: New Vegas — тут вам придется заранее копат�
 ```bash
 magnet:?xt=urn:btih:0195E2FF8D82DB2BEA783F93659E5BD99B626B08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ WORLD OF FINAL FANTASY (2017) [Multi] (1.0.0.0/dlc) License CODEX
 magnet:?xt=urn:btih:3A00CCC663E099A13104477405C29CED1DFD1591
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Thronebreaker: The Witcher Tales / Кровная вражда: Ведьмак. 
 ```bash
 magnet:?xt=urn:btih:C0B70E4590872F3BE7C6436608F52655A832AE51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ HuniePop – это своеобразный симулятор для PC, Mac �
 magnet:?xt=urn:btih:4D3E3EE338AD21400A1E7CF7905C1C16DF89DA09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Battle Chasers: Nightwar - это красочная ролевая игра с 
 ```bash
 magnet:?xt=urn:btih:DFC04B9384C2346DF0961C07CA6396B9FE78E723
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ The Other Half – темная фэнтезийная экшен РПГ, в к�
 magnet:?xt=urn:btih:09777FD7B1D9A69C831E29FEFB2BBB05003C3542
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Vendetta: Curse of Raven's Cry представляет собой экшн-пр
 magnet:?xt=urn:btih:A907A5141B91B3F7A968376F44C24A151B862771
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +486,8 @@ Fallout 2 – культовая ролевая игра, справедливо
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ Drakensang: The River of Time / Drakensang: Река времени [Ru] (Repack
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ Gamedec – изометрическая RPG в жанре киберпанк д
 ```bash
 magnet:?xt=urn:btih:C9BB4FE8F6BB3323481A883B16BA103AD01403E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ Jack Move (2022) [Ru/Multi] (1.0.5-118) License GOG
 magnet:?xt=urn:btih:FA869B66EF91C724596675470E716C8980EEB6EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:FA869B66EF91C724596675470E716C8980EEB6EB
 ```bash
 magnet:?xt=urn:btih:A03549A019A54188AAEAFB9D23EDCA8005AC20D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ Tyranny (2016) [Ru/Multi] (1.0.1.0010) Repack Other s
 magnet:?xt=urn:btih:9815774513B9ED1716A387890442E5036BD0FED0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ CODE VEIN – это мрачное ролевое приключение от �
 magnet:?xt=urn:btih:A7529FD8C6112A9A886844CB4F2FAF3F4F2BFAA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Wave of Darkness - сиквел к Legends of Dawn и вторая часть т
 ```bash
 magnet:?xt=urn:btih:D81F15CAB2FBFD28D843E858E23F5D9E30542A32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

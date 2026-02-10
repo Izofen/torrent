@@ -22,6 +22,8 @@ Stacey Kent feat. Art Hirahara - Songs From Other Places (2022) Special Edition 
 magnet:?xt=urn:btih:14BC7720CA8A8BA3813F89A006AFB7677BF06529
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:14BC7720CA8A8BA3813F89A006AFB7677BF06529
 magnet:?xt=urn:btih:3FE689F14CE3DC1F59D5129E1772B0F11AA5FDFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:3FE689F14CE3DC1F59D5129E1772B0F11AA5FDFE
 ```bash
 magnet:?xt=urn:btih:90A1FCCC807D0B4E62E2F2D7C0F1939F0737E02C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ Within Temptation - Bleed Out (2023) [FLAC|Lossless|image + .cue] <Symphonic Met
 magnet:?xt=urn:btih:E9411E14E2E830D951A013E3407B6F41640D6814
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ FL Studio Producer Edition 12 - это новая версия одной из �
 ```bash
 magnet:?xt=urn:btih:0973F2FA71C56E037011A725AC754F63B5D0E84C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ Warpig - Warpig (1970) [MP3|320 кб/с] <Rock>
 magnet:?xt=urn:btih:03E12B7C367705832AEE4906A2C649ECEC0A8EEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:03E12B7C367705832AEE4906A2C649ECEC0A8EEB
 magnet:?xt=urn:btih:8368102317923DA21F51627250E22CEEF22196E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:8368102317923DA21F51627250E22CEEF22196E4
 ```bash
 magnet:?xt=urn:btih:D8EA556A8AB78342EEC2E177F62D98D273A198CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:D8EA556A8AB78342EEC2E177F62D98D273A198CD
 magnet:?xt=urn:btih:F0D03328607E27835A7AF2CD9262C08B82DEEEB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:F0D03328607E27835A7AF2CD9262C08B82DEEEB3
 ```bash
 magnet:?xt=urn:btih:89BE38791BDB8565DEE8C9CE32D2F61F96696D56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ CD - 1:
 magnet:?xt=urn:btih:A0B66C24169E90710F613F7B0FCE86C0AF373E29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ magnet:?xt=urn:btih:A0B66C24169E90710F613F7B0FCE86C0AF373E29
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ Opera 57.0.3098.106 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:ADF3C4981F6DE9C158EF516CB40E2120D5F8CB3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:ADF3C4981F6DE9C158EF516CB40E2120D5F8CB3C
 ```bash
 magnet:?xt=urn:btih:B27329F730B7F3EF27BB3D162094C81D60817289
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +405,8 @@ Slade - And Now the Waltz(es) (2023) [MP3|320 Kbps] <Rock, Glam Rock>
 magnet:?xt=urn:btih:61D0FB3B24DB206FB9F109A906533BE2C47821C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ magnet:?xt=urn:btih:61D0FB3B24DB206FB9F109A906533BE2C47821C6
 magnet:?xt=urn:btih:84E904F24B7C98337663D8B8C26187DA5B7CE632
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 ```bash
 magnet:?xt=urn:btih:8FFB50ADE3AA39DA87421399DAD40B0D40D7E8BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +486,8 @@ VA - Acoustic Chillout Album (2015) [MP3|320 кб/с] <Downtempo, Chillout, Loun
 magnet:?xt=urn:btih:0ABC79E824BC27590F08A1CDA9E24CAFC58D28C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 magnet:?xt=urn:btih:7DE757AB212953DBBF4AED0AF333B72BC5851EB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +538,8 @@ magnet:?xt=urn:btih:7DE757AB212953DBBF4AED0AF333B72BC5851EB2
 magnet:?xt=urn:btih:346CC3074254A0A616CFFD5F4F8D0C581B63E6EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ Phantasmat 12: Death in Hardcover / Фантазмат 12: Смерть в ст�
 ```bash
 magnet:?xt=urn:btih:4C1D0FE860B0A86681290EBC63B5718A2B4E85A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +590,8 @@ magnet:?xt=urn:btih:4C1D0FE860B0A86681290EBC63B5718A2B4E85A7
 magnet:?xt=urn:btih:D0C30CC01700CBF60286C1DBE1B7506B2CD70D1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ magnet:?xt=urn:btih:D0C30CC01700CBF60286C1DBE1B7506B2CD70D1B
 ```bash
 magnet:?xt=urn:btih:F99030EAB12B79F94DD3CF9470AC1FB9F13767FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +646,8 @@ Lipshok - Shadows Of A Dark Heart (2020) [MP3|320 Kbps] <Gothic Metal, Gothic Ro
 magnet:?xt=urn:btih:E096087B6A0B18587794F85C8530F8FF054DF02E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +672,8 @@ magnet:?xt=urn:btih:E096087B6A0B18587794F85C8530F8FF054DF02E
 magnet:?xt=urn:btih:B84E4BC24F2C08BF68BACD3A73F3F26C8E994C88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ magnet:?xt=urn:btih:B84E4BC24F2C08BF68BACD3A73F3F26C8E994C88
 ```bash
 magnet:?xt=urn:btih:F30424AD5BA0A350803CFE8F0D7AD8A4C1B66473
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

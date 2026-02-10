@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:21F72517F0F0D9A2E97D3821B6E4D17CEFE92E74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:21F72517F0F0D9A2E97D3821B6E4D17CEFE92E74
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Tetris Forever посвящён сорокалетию не имеющей се�
 ```bash
 magnet:?xt=urn:btih:64610FDDBBCC2540DC869AE5610394B467869B55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:64610FDDBBCC2540DC869AE5610394B467869B55
 magnet:?xt=urn:btih:5C5C19627A49641D13B53E1F64EAFDD58326F0CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Red Dead Redemption - компьютерная игра в жанре action-adv
 ```bash
 magnet:?xt=urn:btih:8A68F72E63A9E9E9B683B07627D5EC52D7B92EF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Tempest Rising (2025) [Ru/Multi] (1.1.1+43856/dlc) Repack Decepticon
 magnet:?xt=urn:btih:31171AE996C379BCCA2F5B775556C1E7FCC591F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Robin Hood: The Legend of Sherwood / Робин Гуд. Легенда Шерв�
 ```bash
 magnet:?xt=urn:btih:91DA7567182C7BC64359DE9304C5F440020FF5A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:91DA7567182C7BC64359DE9304C5F440020FF5A0
 magnet:?xt=urn:btih:9336643E182495D027CBC0112E15270A35E60A6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:9336643E182495D027CBC0112E15270A35E60A6B
 ```bash
 magnet:?xt=urn:btih:5BF516CD7A76704DADC7816EEBE447E3BE566F25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:5BF516CD7A76704DADC7816EEBE447E3BE566F25
 magnet:?xt=urn:btih:F46EA86CC71EF34B3337CE727D94473DCC22B6F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:F46EA86CC71EF34B3337CE727D94473DCC22B6F5
 ```bash
 magnet:?xt=urn:btih:C28060AB1AD8AB34C48746FFC29A51B6700CFAD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:C28060AB1AD8AB34C48746FFC29A51B6700CFAD9
 magnet:?xt=urn:btih:B490337EB4C1143D2C09F2DC01815B549F7D93BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:B490337EB4C1143D2C09F2DC01815B549F7D93BC
 ```bash
 magnet:?xt=urn:btih:9271A5F7FDC5383895D3F17C548A073DF6B67EEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Orbit Culture — шведская мелодик-дэт-метал группа
 magnet:?xt=urn:btih:CBEA716A3F1A52AED6BA3DF8A74558AD23FBDE9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:CBEA716A3F1A52AED6BA3DF8A74558AD23FBDE9F
 magnet:?xt=urn:btih:6DC6A0F4CCD69F22156E7D4229107B79B2830EC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:6DC6A0F4CCD69F22156E7D4229107B79B2830EC9
 ```bash
 magnet:?xt=urn:btih:567C99974FE993030949E92485D17EE069798157
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:567C99974FE993030949E92485D17EE069798157
 magnet:?xt=urn:btih:6A1060E8ABB8D0FDF07D091AB5776F375AF8A5A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:C9D2463729ED51C6EE8E823A7D25832DF54AABCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ SpellRogue (2024) [Ru/Multi] (1.0.0b70/dlc) Repack FitGirl [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:36AA48EC8B031B0351636A98CA45F1F77FAC62D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:36AA48EC8B031B0351636A98CA45F1F77FAC62D1
 magnet:?xt=urn:btih:F1886F4527CE0D8CBE207E3306AAE00A79A4458B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:F1886F4527CE0D8CBE207E3306AAE00A79A4458B
 magnet:?xt=urn:btih:61865337E4AFF3201358D13BA85FEDD8C7311B82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:61865337E4AFF3201358D13BA85FEDD8C7311B82
 ```bash
 magnet:?xt=urn:btih:3F70D4BE5D6C9D2F7A5F4EEAB2B1C99BE812843D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ PilotEdit можно использовать для редактировани�
 magnet:?xt=urn:btih:27495E85B91D42942D9AD93BC71A8352057FB48E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:27495E85B91D42942D9AD93BC71A8352057FB48E
 ```bash
 magnet:?xt=urn:btih:6BA7BF9687B2B6197B88397544365E1A1124EBAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:6BA7BF9687B2B6197B88397544365E1A1124EBAA
 magnet:?xt=urn:btih:40914D140E796B28CF82E37FFF87315A0769614D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:40914D140E796B28CF82E37FFF87315A0769614D
 ```bash
 magnet:?xt=urn:btih:1FB3594A977E13D1146E02703DBCDE6B8C8C9F46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

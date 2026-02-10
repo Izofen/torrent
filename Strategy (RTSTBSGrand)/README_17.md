@@ -19,6 +19,8 @@ Total War: ATTILA (2015) [Ru/Multi] (1.2.1.0) License CPY
 magnet:?xt=urn:btih:85FD1934A2FDF09DBDCCCBC87AE874D4F16372E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Planar Conquest – 4X пошаговая стратегия, вдохновле
 ```bash
 magnet:?xt=urn:btih:9F20335D3C513C16DAD721ED8458E1C2B3000465
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Ashes of the Singularity - многообещающая футуристичес
 magnet:?xt=urn:btih:9CD8275EF1E6763704951F95D495B0688D84D7C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Endless Space 2 (2017) [Ru/Multi] (1.4.2 S5/dlc) Repack R.G. Механики [D
 ```bash
 magnet:?xt=urn:btih:760D64BBDDEFFC2BE6D9BBA2BABF34B9A1FC812C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Sins of a Solar Empire: Rebellion – первое самостоятельно�
 magnet:?xt=urn:btih:6AD70AABDD9E42988D4B484673551AD616133E1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Legends of Pegasus (2012) [Ru/En] (1.0.0.4354) RePack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:37D3898D8D4F791377A20D48F15276E51AB709B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Napoleon: Total War Imperial Edition + 7 DLC [Ru/En] (Steam-Rip/1.3) 2010 | R.G.
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Distant Worlds с самого начала подкупает своим нев
 ```bash
 magnet:?xt=urn:btih:EE90350411A84CB4800C609C4329F33E424FB6D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ MarZ: Tactical Base Defense (2019) [Ru/Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:B1CD6DB1D45E17DEE6B60709B895518C5D696EE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Warparty — это стратегия в реальном времени, де�
 ```bash
 magnet:?xt=urn:btih:557C4CDB7027DAEE8808EED28B3C845B34B1567A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Age of Wonders III - давно ожидаемое продолжение отм
 magnet:?xt=urn:btih:AD87D5B469524B61A8D5291566DADFF9AA59AA65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ Merchant Prince II - пошаговая стратегия, предоставл
 ```bash
 magnet:?xt=urn:btih:9D90671D43FD81A7FAEE8952127A222B44B79F4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ Warcraft: Orcs and Humans (1994) [En] (1.2) License GOG
 magnet:?xt=urn:btih:936818D5777D971920181F8F8823DD7BC1C33BD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Total War: Empire (2018) [Ru/En] (1.5.0) Repack xatab [Definitive Edition]
 magnet:?xt=urn:btih:EEE5B5E34F993B4875E4430341507110EDB76E8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Total War: Napoleon (2018) [Ru/En] (1.3.0) Repack xatab [Definitive Edition]
 ```bash
 magnet:?xt=urn:btih:ADFEB780C64709333BC621F161BD9977D64D11DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ StarCraft II – продолжение эпической саги о трех 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Sins of a Solar Empire: Rebellion – первое самостоятельно�
 ```bash
 magnet:?xt=urn:btih:08EF35B1B2E7E7937291F38663222B0D254E4E58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ The X-Com Files (1994-2016) [Ru/En] (0.6.2) Repack/Mod edcarnby
 magnet:?xt=urn:btih:8A81B47BC7078D5BD93B778BAEC0B9C154EFDF7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ Stronghold 3 – новая игра в серии стратегий в реа�
 ```bash
 magnet:?xt=urn:btih:9E15D92046AB71A0B3D0249AE3785F9E762CD5A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ Quarantine - это пошаговая стратегия, посвященна�
 magnet:?xt=urn:btih:DB5997114FF4524E7D5047726E8FE192F8D82DA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ S.W.I.N.E. / С.В.И.Н. [Ru] (L) 2002
 ```bash
 magnet:?xt=urn:btih:B6D99AE95FEED36AB5BB265C349E288AA6DD207C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ Age of Wonders III - давно ожидаемое продолжение отм
 magnet:?xt=urn:btih:2965B51127C5B360516AC569E1558D854771F382
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ War Wind (1996) [En/Fr/Ge] (1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:0CCD5B0F13D7DDEF75FFB25B2AA1F39904537C1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ Lost Sea (2016) [Ru/Multi] (1.0.3L) License GOG
 magnet:?xt=urn:btih:7404B2CA38E1616F1A741409A990639BB085C466
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ Total War: Medieval II / Total War: Medieval 2 (2018) [Ru/Multi] (1.52) SteamRip
 magnet:?xt=urn:btih:CA4C4F602A384C9A8D262D8CC74F4A98CB093DEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Total War: Empire (2018) [Ru/Multi] (1.5.0) SteamRip R.G. Origins [Definitive Ed
 ```bash
 magnet:?xt=urn:btih:8C1A9A4F68C4744230BEBD05CABEE6448AC1FF9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

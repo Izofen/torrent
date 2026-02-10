@@ -28,6 +28,8 @@ VA - Music Box of Memories (2012) [MP3|320 кб/с]<Dub Step/Drum'n'Bass>
 magnet:?xt=urn:btih:9B645DEBEA7BDF486243A952A07F26F16268C430
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ magnet:?xt=urn:btih:9B645DEBEA7BDF486243A952A07F26F16268C430
 ```bash
 magnet:?xt=urn:btih:7980743BC3BC06A816A2DBC8783B5D997C1D5C67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -85,6 +89,8 @@ The Simpsons - In The Key Of Springfield (1997) [MP3|320 кб/с] <OST>
 magnet:?xt=urn:btih:C479FC16A4D6E870357EE00047EFA332735E8213
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -110,6 +116,8 @@ magnet:?xt=urn:btih:C479FC16A4D6E870357EE00047EFA332735E8213
 magnet:?xt=urn:btih:426AAFE46C53D04806ABA90AA2076896438863D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -134,6 +142,8 @@ magnet:?xt=urn:btih:426AAFE46C53D04806ABA90AA2076896438863D2
 magnet:?xt=urn:btih:2AF5AD9EAEA7D343AE4F68BF895B833C8B15CFD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ magnet:?xt=urn:btih:2AF5AD9EAEA7D343AE4F68BF895B833C8B15CFD5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -183,6 +195,8 @@ magnet:?xt=urn:btih:2AF5AD9EAEA7D343AE4F68BF895B833C8B15CFD5
 magnet:?xt=urn:btih:E0D3E21A385EB4A4286613C532E0F94BB7B444FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -206,6 +220,8 @@ magnet:?xt=urn:btih:E0D3E21A385EB4A4286613C532E0F94BB7B444FC
 ```bash
 magnet:?xt=urn:btih:B80A38B825C989367A060C793E5DB0629CA2F09C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +252,8 @@ magnet:?xt=urn:btih:B80A38B825C989367A060C793E5DB0629CA2F09C
 magnet:?xt=urn:btih:F6C279038EB93F75AFB6A2C3BD836403B06E9081
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +278,8 @@ magnet:?xt=urn:btih:F6C279038EB93F75AFB6A2C3BD836403B06E9081
 magnet:?xt=urn:btih:BFED92A1BBECA7F2A3BC9E5FBC59C23F2BAF41E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +303,8 @@ magnet:?xt=urn:btih:BFED92A1BBECA7F2A3BC9E5FBC59C23F2BAF41E8
 ```bash
 magnet:?xt=urn:btih:49E77B348984878A2BCCEA3ED5183DAE4F77A5C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +339,8 @@ CD 1:
 magnet:?xt=urn:btih:9F4852352F34C2830A85E22339938A6BD28D88AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +368,8 @@ Mageia 3 beta 1 [x86-64] (3xDVD)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +404,8 @@ Various Artists - Commercial Suicide Is Painless Vol.1 (2012) [MP3|320 кб/с]<
 magnet:?xt=urn:btih:35F95A9E7BE2C02F945ABD117196B8438D0011D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +433,8 @@ Borgore - Turn Up (2012) EP [MP3|320 Kbps] <Dubstep>
 magnet:?xt=urn:btih:C06036182B27C34A97F35D69787C15C39826ABD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +458,8 @@ magnet:?xt=urn:btih:C06036182B27C34A97F35D69787C15C39826ABD6
 ```bash
 magnet:?xt=urn:btih:2FE5003758C4B9917CF4B1A4CEBD6E6B25758010
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +494,8 @@ VA - Радио Шторм - Русский Шторм - 83 (2012) [MP3|128-320 
 magnet:?xt=urn:btih:63AEBAADD5A67CC0B88D24B655FAFA26857A5F79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +519,8 @@ magnet:?xt=urn:btih:63AEBAADD5A67CC0B88D24B655FAFA26857A5F79
 ```bash
 magnet:?xt=urn:btih:922253F862365EE33620BEF0CEB5CD04D665B218
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +555,8 @@ magnet:?xt=urn:btih:922253F862365EE33620BEF0CEB5CD04D665B218
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +588,8 @@ Memory Drawings - Music For Another Loss (2012) [FLAC|Lossless]<Electronic, Rock
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +624,8 @@ Fiction - Lifescapes: Guitar For Stress Relief (2011) [MP3|320 кб/с]<Instrume
 magnet:?xt=urn:btih:34ECFE9A262A1359157F970DEE25C6B8B9CE0D86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +650,8 @@ magnet:?xt=urn:btih:34ECFE9A262A1359157F970DEE25C6B8B9CE0D86
 magnet:?xt=urn:btih:C4772EC62B62B9112A78A22879CF301BCC6A6BA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +675,8 @@ magnet:?xt=urn:btih:C4772EC62B62B9112A78A22879CF301BCC6A6BA5
 ```bash
 magnet:?xt=urn:btih:52F48E320099A63A0DB908BDAEA832C5B3AF43AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -660,6 +706,8 @@ Mageia 3 beta 1 [i586] (3xDVD)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -687,6 +735,8 @@ Mageia 3 beta 1 [i586] (3xDVD)
 ```bash
 magnet:?xt=urn:btih:0DB79CE3519A05DC26E8381C9FA0DF16A857E61E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -717,6 +767,8 @@ magnet:?xt=urn:btih:0DB79CE3519A05DC26E8381C9FA0DF16A857E61E
 ```bash
 magnet:?xt=urn:btih:D8BCDD3F060A348C153EC25A5716ECA5598C3536
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

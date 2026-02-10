@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:7258A267D62EE5916DD4E3BEC356E5C7E05F4BC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ VA - Across the Ocean (Lounge Collection), Vol. 2 (2020) [AAC|~320 Kbps] <Lounge
 ```bash
 magnet:?xt=urn:btih:976D1ED152AF9B8129FFFA20FF7267F8B76C3BB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Eye of the Atlas - Eye of the Atlas (2023) [FLAC|Lossless|WEB-DL|tracks] <Altern
 magnet:?xt=urn:btih:08B3189FE985882CE95BB212D0B1962836B3CE9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ RTG. Краснодар - город цветов (2013) HDTV [H.264/1080i]
 magnet:?xt=urn:btih:9B77D5F4E4592D230D1F5B434D2DEBB8ED30C20D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:9B77D5F4E4592D230D1F5B434D2DEBB8ED30C20D
 ```bash
 magnet:?xt=urn:btih:1165FD36726CD8F3D20BDF6DC08FF6CF43EBCCD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:1165FD36726CD8F3D20BDF6DC08FF6CF43EBCCD8
 magnet:?xt=urn:btih:7091D9FE01D886064AF6F32C723563F74D637188
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:7091D9FE01D886064AF6F32C723563F74D637188
 ```bash
 magnet:?xt=urn:btih:0B60F79A059C93AF9501ABA06A8B795156F5E775
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ Chaos Descent - The Blurry End of an Era (2023) [MP3|320 Kbps] <Melodic Death Me
 magnet:?xt=urn:btih:D97DA287893FDDB0DFA25C439BC149C00321E7F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:D97DA287893FDDB0DFA25C439BC149C00321E7F8
 ```bash
 magnet:?xt=urn:btih:E7C2E79C4A00400165B920E12742C4AD6EDA10A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ Runemagick - Beyond the Cenotaph of Mankind (2023) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:AED00C45C80F9A63152554470EF6141541F83223
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ Sacred Outcry - Towers Of Gold (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Power
 ```bash
 magnet:?xt=urn:btih:E710211E1A50B0AFF859FF5F787FA76C848D1432
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -306,6 +328,8 @@ VA - Electro Swing Elite Compilation 2016 (2016) [AAC|~309 Kbps] <Electro, Swing
 magnet:?xt=urn:btih:F3F67179CF6AF9A759694385220403A9EBAAC85E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +356,8 @@ Coma Waves - Coming To Your Senses (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu-Meta
 ```bash
 magnet:?xt=urn:btih:979FF16F846FB77DF67EBB92C12E872CB7653CD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +386,8 @@ Dream Widow, Foo Fighters - Dream Widow (2022) [AAC|~331 Kbps] <Thrash Metal>
 magnet:?xt=urn:btih:38A53A0D48A0E1444F89923C9E5459DC177138A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +412,8 @@ magnet:?xt=urn:btih:38A53A0D48A0E1444F89923C9E5459DC177138A0
 magnet:?xt=urn:btih:807BF90E3E08C1778E4218627CFDF03D8F9BFF7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +437,8 @@ magnet:?xt=urn:btih:807BF90E3E08C1778E4218627CFDF03D8F9BFF7A
 ```bash
 magnet:?xt=urn:btih:45D5540A6E1B54218139DBA0658DD0140596F22F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +467,8 @@ Hex Engine - Other People (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, ston
 magnet:?xt=urn:btih:FB9FD48993849D43CB797AB91B43F189ACBE3B38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +493,8 @@ magnet:?xt=urn:btih:FB9FD48993849D43CB797AB91B43F189ACBE3B38
 magnet:?xt=urn:btih:FDF9B1B95F51ABA66FFC8440D29F7B1CE68ABAD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +518,8 @@ Findroid | Избранник Башни (Книга 2). Tower Edition (2023) [M
 ```bash
 magnet:?xt=urn:btih:B46E2FC8EE10B8DE83987AC9BE57FE1637D45246
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +548,8 @@ Moozoonsii - 2 Albums (2019-2022) [MP3|320 Kbps] <Progressive Metal, Sludge Meta
 magnet:?xt=urn:btih:E25B589D0D4CC2D1D16F480A748A80DB5B48D136
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +573,8 @@ magnet:?xt=urn:btih:E25B589D0D4CC2D1D16F480A748A80DB5B48D136
 ```bash
 magnet:?xt=urn:btih:9863C84177D79E8AFD7440B42DC15A197E75A908
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +600,8 @@ magnet:?xt=urn:btih:9863C84177D79E8AFD7440B42DC15A197E75A908
 ```bash
 magnet:?xt=urn:btih:5167A96CECB287FD42EB9EEF2AA4EFF6BA0BCD71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +630,8 @@ Star of Madness - Into the Realm of Cthulhu (2023) [MP3|320 Kbps] <Death Metal>
 magnet:?xt=urn:btih:54A1C98EFDE6A10F7EC15D80CB99C93B76074C20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +658,8 @@ magnet:?xt=urn:btih:54A1C98EFDE6A10F7EC15D80CB99C93B76074C20
 ```bash
 magnet:?xt=urn:btih:50D3D60FE9BD1845CDDD69F0D7EF0C1CDF55ED33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +688,8 @@ Thinknetica Pro, Артем Кривоножко | Объектно-ориент
 magnet:?xt=urn:btih:0E2DC1F33CD068CE6D31629F6C2C9C11EB692466
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +714,8 @@ AutoSwitchInput Pro 2.2.1 [En]
 ```bash
 magnet:?xt=urn:btih:0E2CFA5661D2B7EC39595B6D71D0B7C76EF557B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

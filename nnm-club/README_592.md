@@ -22,6 +22,8 @@ VA - Ibiza Summer 2025 (House Hotties from the Heart) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:171449BC84C52C94292EEC78B072F1BE68C87900
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Disc 1 (01:09:35)
 ```bash
 magnet:?xt=urn:btih:F58B577118BFF35A2C77823C629A9FCC6DFC6790
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:F58B577118BFF35A2C77823C629A9FCC6DFC6790
 magnet:?xt=urn:btih:A28FD5A034F986AC42E0718C36C29C8053A5B978
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:A28FD5A034F986AC42E0718C36C29C8053A5B978
 ```bash
 magnet:?xt=urn:btih:8E933BE2AB5886859E40CD1873ECD7918A3D420A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Photo Studio — не просто приложение для редактир�
 magnet:?xt=urn:btih:94CAD073D35D350B55782DA4866327E518C7FFFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:94CAD073D35D350B55782DA4866327E518C7FFFF
 ```bash
 magnet:?xt=urn:btih:24B4D035431F49BF040C8801FCDEC88B46B10212
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ Aedon - The Quietest Shade (2025) [FLAC|Lossless|Web-DL|tracks] <Experimental, B
 magnet:?xt=urn:btih:DD5D0A38CA698E0BDD9930C2F736211B4E561634
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ Ninth Circle - Anthem Of The Immortal (2025) [MP3|320 Kbps] <Heavy Metal, Power 
 ```bash
 magnet:?xt=urn:btih:AAFA3C9C83F7A978446A20B2E823985816470413
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -230,6 +246,8 @@ Calibre - Little Foot (2025) [FLAC|Lossless|Web-DL|tracks] <Ambient, Dubstep, Te
 magnet:?xt=urn:btih:6AD8738733F8F97BAFD9C4EF51F940578FD95FE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -257,6 +275,8 @@ Michael Bloomfield - The Best Of Michael Bloomfield (1997) Compilation [FLAC|Los
 magnet:?xt=urn:btih:F7373CF5D540127B3F7E36C952A05E41F7316458
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ magnet:?xt=urn:btih:F7373CF5D540127B3F7E36C952A05E41F7316458
 ```bash
 magnet:?xt=urn:btih:D23DD84CCCA1005DDB14028B8774439493B15173
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +330,8 @@ magnet:?xt=urn:btih:D23DD84CCCA1005DDB14028B8774439493B15173
 magnet:?xt=urn:btih:065C44BC389F46B233CD3AE545B13117073DBF49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +358,8 @@ Gruesome - Silent Echoes (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:F5EE9AC2BBE213C9538F6EE151425BB6A7DC0F4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +388,8 @@ Susannah McCorkle - Dream (1987) 2002, The Jazz Alliance [FLAC|Lossless|tracks +
 magnet:?xt=urn:btih:41701D24F650B2BADA04A1E7D59B6EDDD4541144
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +414,8 @@ Vanced — это модифицированная версия YT, котора
 magnet:?xt=urn:btih:DD9944220DA35C1B8CA3F353A5CD1B1C5C7C819F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +439,8 @@ ARuler - лучшее и бесплатное приложение на Android 
 ```bash
 magnet:?xt=urn:btih:CBE8345D00C1FA25792D30ABC20A8C53833CA8DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +469,8 @@ ZZ Top - Live compilation (2025) [MP3|320 Kbps] <Rock, Blues>
 magnet:?xt=urn:btih:9F7DF09787995E55FD0B6289B39B3C9A8C44DD22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +494,8 @@ magnet:?xt=urn:btih:9F7DF09787995E55FD0B6289B39B3C9A8C44DD22
 ```bash
 magnet:?xt=urn:btih:E8464FB028BAD1B8CAB2F81E499154AD1E0907AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +521,8 @@ magnet:?xt=urn:btih:E8464FB028BAD1B8CAB2F81E499154AD1E0907AE
 magnet:?xt=urn:btih:0BAE6ACBC1953197147E6B3C08FDE8D977D2B3C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +546,8 @@ magnet:?xt=urn:btih:0BAE6ACBC1953197147E6B3C08FDE8D977D2B3C8
 ```bash
 magnet:?xt=urn:btih:50AA662CFE64BFC15DD6AF0A76D21FDC2BAB63E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +573,8 @@ Smart AudioBook Player Pro v11.4.7 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:CA41EEE587E0C8DE459DBEFBF73FB4CF853B54D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +598,8 @@ magnet:?xt=urn:btih:CA41EEE587E0C8DE459DBEFBF73FB4CF853B54D1
 ```bash
 magnet:?xt=urn:btih:E3B0A5C631567764E60C10D1B95C2897F418464E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +625,8 @@ magnet:?xt=urn:btih:E3B0A5C631567764E60C10D1B95C2897F418464E
 magnet:?xt=urn:btih:9200995616D0B800DFA9BC98E92005D8BB68A2E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ magnet:?xt=urn:btih:9200995616D0B800DFA9BC98E92005D8BB68A2E2
 ```bash
 magnet:?xt=urn:btih:FD4DDECFE6370AD6959F6DBFBF978FD9348E2DCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +680,8 @@ VA - Music News For Forum vol.098 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:61A44FE433DA8759D081E4526C47EBD78B86AB36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ magnet:?xt=urn:btih:61A44FE433DA8759D081E4526C47EBD78B86AB36
 ```bash
 magnet:?xt=urn:btih:5F5887FDF201D2B07BAD42BAC05A6A8570536EF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

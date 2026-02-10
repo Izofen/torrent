@@ -1,3 +1,29 @@
+###  Публикация: 1277356   (785416) от 20.01.2019
+
+Цзиндэчжэньский фарфор / Jingdezhen Porcelain (2017) HDTVRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цзиндэчжэнь в провинции Цзянси на севере Китая можно без преувеличения назвать керамической столицей страны. История местного производства фарфора, насчитывает не одну тысячу лет. Гуляя по улицам Цзиндэчжэня, нельзя не заметить дома с отделкой из фаянса, выложенные кусочками керамической плитки переулки и удивительно красивые керамические уличные фонари. Изготавливать (   Читать дальше...   )Производство: Китай, CGTNЖанр: Документальный, история, путешествияРежиссер: Ван БиньПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:52:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3A718BDECA1171F324B48C38D93537C550DF135
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1122009   (785569) от 12.04.2017
 
 Война, которая изменила мир: создание нового Китая / The War That Changed the World: The Making Of A New China (2016) HDTVRip (2 серии из 2)
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:4D7E38CB52EC804186522140C5EC459D057E0AC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:4D7E38CB52EC804186522140C5EC459D057E0AC3
 magnet:?xt=urn:btih:B5E712417DFACA7FF420430285CE29C818686E83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:B5E712417DFACA7FF420430285CE29C818686E83
 ```bash
 magnet:?xt=urn:btih:F10FF919B74921F32BDE3D2E6DF74DBAAD30ABCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:F10FF919B74921F32BDE3D2E6DF74DBAAD30ABCD
 magnet:?xt=urn:btih:2499E2F334441EA419A03FB820618831987F93F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:2499E2F334441EA419A03FB820618831987F93F2
 ```bash
 magnet:?xt=urn:btih:2FD3392F5995FF6B14DD14A1296083A0445FCE5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:2FD3392F5995FF6B14DD14A1296083A0445FCE5F
 magnet:?xt=urn:btih:0D522BC53DF4C09FE2CACC60B7459F713154D772
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:0D522BC53DF4C09FE2CACC60B7459F713154D772
 ```bash
 magnet:?xt=urn:btih:EF09F41D3FA77EC8394A7BE42A235BBF351928FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:EF09F41D3FA77EC8394A7BE42A235BBF351928FB
 magnet:?xt=urn:btih:EC6F25C91DED70FDB53CF13BC5905A9B411B78A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:EC6F25C91DED70FDB53CF13BC5905A9B411B78A3
 ```bash
 magnet:?xt=urn:btih:43605F2B3C2D29BB90061E4EADA3A8EF05C83AB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:43605F2B3C2D29BB90061E4EADA3A8EF05C83AB2
 magnet:?xt=urn:btih:29571287D217BF642AD69B5EA99C5D8D855ECC82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:29571287D217BF642AD69B5EA99C5D8D855ECC82
 ```bash
 magnet:?xt=urn:btih:8B2579EA0DE5DBF7377814B1A31FBE02E0BC6220
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:8B2579EA0DE5DBF7377814B1A31FBE02E0BC6220
 magnet:?xt=urn:btih:38F9F2B691646C329571FEDBB28F124E1865F9F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:38F9F2B691646C329571FEDBB28F124E1865F9F2
 magnet:?xt=urn:btih:1B64B541C48114C179A7489B1E3536880739F18E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:1B64B541C48114C179A7489B1E3536880739F18E
 ```bash
 magnet:?xt=urn:btih:C0EFB0355493DEA7E11EA4B8EE2517D34D191294
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:C0EFB0355493DEA7E11EA4B8EE2517D34D191294
 ```bash
 magnet:?xt=urn:btih:63570B3268562E80274CD20689EB2559808E3829
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:63570B3268562E80274CD20689EB2559808E3829
 magnet:?xt=urn:btih:47BED2D80E1869F4F760CC204B53065744AD4348
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:47BED2D80E1869F4F760CC204B53065744AD4348
 ```bash
 magnet:?xt=urn:btih:309C3689DFF390AB520F8E7650D1D06AA403D811
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:309C3689DFF390AB520F8E7650D1D06AA403D811
 magnet:?xt=urn:btih:37A979EAEE1D2FF200FA0DEBB69B699304378953
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:37A979EAEE1D2FF200FA0DEBB69B699304378953
 ```bash
 magnet:?xt=urn:btih:F55A9A30171DD9587DB07952FF898C404F0EDD8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:F55A9A30171DD9587DB07952FF898C404F0EDD8B
 magnet:?xt=urn:btih:9676B8A6BF9D00DDC61426562F11580D4AE5ADF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:9676B8A6BF9D00DDC61426562F11580D4AE5ADF8
 ```bash
 magnet:?xt=urn:btih:0030B9884E1BE34A8C243E43795727C59E972922
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +598,8 @@ magnet:?xt=urn:btih:0030B9884E1BE34A8C243E43795727C59E972922
 magnet:?xt=urn:btih:4CF34412D5D15D45BB5E0891FB2D91BC21B987E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:4CF34412D5D15D45BB5E0891FB2D91BC21B987E3
 ```bash
 magnet:?xt=urn:btih:F1B7AF931C28E0FF71695813892C31C0EC7434D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:F1B7AF931C28E0FF71695813892C31C0EC7434D5
 magnet:?xt=urn:btih:5CADD0D3C859999DBAE41A5F692380D465DBCDDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,30 +676,7 @@ magnet:?xt=urn:btih:5CADD0D3C859999DBAE41A5F692380D465DBCDDA
 magnet:?xt=urn:btih:096C418517AE5C526EA3BD18EF5855BBED5713B2
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123991   (786108) от 09.04.2017
-
-Орел и решка. Рай и ад (2017.04.09) WEB-DL [H.264/1080p-LQ] (сезон 13: Райский Кюрасао)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786108.jpg" />
-</div>
-
-
-###  Подробнее
-
-После нелегкого испытания под названием «Кругосветка» ведущие Регина Тодоренко и Леся Никитюк снова вместе отправляются в путешествие. В 13-м сезоне проекта они посетят самые райские и самые адские уголки нашей планеты. Их ждут волшебные тропические курорты и самые опасные места на Земле.
-В первом выпуске шоу Орел и решка. Рай и ад Леся и Регина будут искать рай (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13630BEB575CF71BFBF44D6207F1879E0FB23E3A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

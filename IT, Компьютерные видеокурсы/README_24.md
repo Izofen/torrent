@@ -22,6 +22,8 @@ Udemy, Haytham Omar-Ph.D | Revenue and Pricing Analytics with Excel & Python (20
 magnet:?xt=urn:btih:8B45CE4D731BACF5CDB7890C957836126E2F2A1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Udemy | Android разработка на Kotlin - с нуля до продви
 magnet:?xt=urn:btih:4C7B045F884FA3011CFB04EC2EB9681445176E8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ OTUS | AWS для разработчиков (Часть 1-3) (2020) PCRec
 ```bash
 magnet:?xt=urn:btih:CF5791C3EBAA08DF5520D9681A1F084B3C8F1BB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ Podlodka QA Crew | Карьерный рост и процессы тестир�
 magnet:?xt=urn:btih:FA544EFFE697C2357E86DEAC5BABB69C3379B8D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Podlodka QA Crew | Сезон 2. Мобильное тестирование и 
 ```bash
 magnet:?xt=urn:btih:C5F25573FE3DF1BE8311D913BBF0EFB735BFD431
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ Udemy, Глеб Михайлов | Data Science с Глебом Михайлов
 ```bash
 magnet:?xt=urn:btih:7093FECC5557BD79EC9A96C97EEF6B15508E6F81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ Skillbox, Александр Клейн | SQL-разработчик (2020) PCRe
 magnet:?xt=urn:btih:CD889A3FB9F185C881362A1E063F976E736051E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ Python стабильно входит в ТОП-10 наиболее попул�
 ```bash
 magnet:?xt=urn:btih:9463D5A03ED628E1905F60C69ABDDE8EB074334D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ Udemy, Alex Marshal | Java для начинающих 2020. С нуля до Ju
 magnet:?xt=urn:btih:0D7CC55F3E9C9F5A764B818EF508B9FF1BF119CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:0D7CC55F3E9C9F5A764B818EF508B9FF1BF119CB
 ```bash
 magnet:?xt=urn:btih:0B0D9A4C3055675A6AF50EEFA907B1787CB68BE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ Podlodka Teamlead Crew | Коммуникации в команде и проц�
 magnet:?xt=urn:btih:A4BC7E1AA2FD876280C4D0FBC6BA843D2944F816
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ SmartData — это техническая конференция для дат
 magnet:?xt=urn:btih:C9BAF04D055DB1D835E371D3A9AD637337C58CA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ JUG Ru Group | C++ Russia 2021. Конференция для C++ разрабо
 magnet:?xt=urn:btih:7807586B89DEFA928D358D1850AD16D529D32D9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ OTUS, Сурен Хоренян | Python-разработчик. Базовый 
 ```bash
 magnet:?xt=urn:btih:60E86FECC4C7780E3B1FE4E2BD4DCAF65126EC6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ DotNext - это десятки докладов от экспертов мир�
 magnet:?xt=urn:btih:44687B47BADC3C2B16EFD0086D955B64A1E38AE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ Mobius - это техническая конференция для коман�
 magnet:?xt=urn:btih:6E6D7E61EBF8BF4BF0E19A566BD1C809B88B3C90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ Udemy, Murtez Alrohani | Модульное тестирование Node.js / N
 ```bash
 magnet:?xt=urn:btih:2D29E769AEEA17EACC784D6862C44D4F5E48312F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +488,8 @@ SQL Server – универсальная платформа для управл
 magnet:?xt=urn:btih:30671B374841175900A4C0B4FD6B289CB52581DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ Udemy, Роман Панёв | Kotlin с нуля + разработка при�
 ```bash
 magnet:?xt=urn:btih:5A9C9CE798EBEF681FA71084FAA8A477A2158D4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +542,8 @@ Tocode | Курс по Vue.js 3 Практическое руководство 
 magnet:?xt=urn:btih:E15A2B6E5F40D65C6EE8441DEEFD3CE1DED7781A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +567,8 @@ Udemy, Anton Golosnichenko | Хуки React на практике [2021] (2021) 
 ```bash
 magnet:?xt=urn:btih:0234D542D78539AE8680B1AC537082B1DCA12C11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +594,8 @@ Softwaretesting, Арсений Батыров | Автоматизация те
 ```bash
 magnet:?xt=urn:btih:DAC7FBEACD898F97029BD6413B5176306EDB420E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +623,8 @@ Joker 2021 - международная Java-конференция 25-28 окт
 magnet:?xt=urn:btih:6691816804DA636054EC822833EAC26309AA829B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ Udemy, Nikita Sergeev | Аналитика в SPSS: от новичка до у�
 magnet:?xt=urn:btih:D4EFF5772AAB302DB4FAC69971C7C04476A0269C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +676,8 @@ Udemy, Martin Yanev, Plamen Yanev | The Complete Python Network Programming Cour
 magnet:?xt=urn:btih:C99ABE09AF220DD2EAE314077C907F5815AF634A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ Udemy, Георгий Черняк | Инженер тендерного отд�
 ```bash
 magnet:?xt=urn:btih:6CDDE280C61A0B4E1405678C0D136D5C06DF3CFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

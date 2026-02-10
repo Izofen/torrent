@@ -19,6 +19,8 @@ NG: Дикая природа Филиппин / Untamed Philippines (2018) WEBR
 magnet:?xt=urn:btih:4D78917155203098918B883799A79FC981EEF7DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NGW: Наследие леопарда / The Leopard Legacy (2021) WEBRip [H.264
 ```bash
 magnet:?xt=urn:btih:E458F1256E59594027ACCA3E2F630CB1F6297FEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:E458F1256E59594027ACCA3E2F630CB1F6297FEE
 magnet:?xt=urn:btih:DF6819CBF4A8952E55C62E5738B537EFC1B48F57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ BBC: Секреты космических войн / Space War Secrets (2020) W
 ```bash
 magnet:?xt=urn:btih:ECBD6C0189DE7D49E0EB255DDA19C43C6D30813D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ History Channel. Нацистский "Титаник" / The Nazi Titanic (2012)
 magnet:?xt=urn:btih:DCB1EB213D343197C22E1069AD33E1F3061EC36D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:DCB1EB213D343197C22E1069AD33E1F3061EC36D
 ```bash
 magnet:?xt=urn:btih:AB282F94165619FF821EC90AB45B048D61C7C53D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ NG. Кунг-Фу – Мастерство убийства / Kung Fu Killers (2
 magnet:?xt=urn:btih:AC64D41FC85E95F8E5F550BF01CA8FEA9718CE1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:AC64D41FC85E95F8E5F550BF01CA8FEA9718CE1D
 ```bash
 magnet:?xt=urn:btih:61834014E25578D900E040F3CB8FF5CC37939024
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ NG. Дикая природа Тайваня: остров джунглей / Wi
 magnet:?xt=urn:btih:D6B1247FC8D8C1D80925829FB9830906EA716416
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ NG: Самый опасный наркотик / The World`s Most Dangerous Drug
 ```bash
 magnet:?xt=urn:btih:9794E524ED30C159333E06503B3703A314D90699
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:9794E524ED30C159333E06503B3703A314D90699
 magnet:?xt=urn:btih:337ED09A64437743BFC98AE82E0B2CA532DD0763
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ NGW: Холодное королевство снежного барса / The F
 ```bash
 magnet:?xt=urn:btih:22294EE7E4FAA5AEEAFC7F8EAAB73B707023EF7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:22294EE7E4FAA5AEEAFC7F8EAAB73B707023EF7F
 magnet:?xt=urn:btih:5CFD7362B22F69516563FF460101F12653267196
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ History Channel. Соединенные штуки Америки / United Stuff
 ```bash
 magnet:?xt=urn:btih:B29163C7896DC2CBD0BF7B74D6458B079967A4A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ History Channel. Соединенные штуки Америки / United Stuff
 magnet:?xt=urn:btih:5DF97D6A217B933185DC45D5E912E161B7963103
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ BBC Horizon: Хаббл. Открытие тайн космоса / Hubble: The 
 ```bash
 magnet:?xt=urn:btih:3B2721F7D2865EE22DD0E8FF94BA47DB92AEDF36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ BBC. Великий рифт: Дикое сердце Африки / Great Rift:
 magnet:?xt=urn:btih:CB844F22DC1D6524A63D684176AD87A41371DB98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ magnet:?xt=urn:btih:CB844F22DC1D6524A63D684176AD87A41371DB98
 ```bash
 magnet:?xt=urn:btih:EA6FB210BD2AA5D38BC06C4A9C36D3ECC4532802
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ BBC. Самые милые животные / Super Cute Animals (2014) HDTVRip 
 magnet:?xt=urn:btih:F6F02AEB23ED07A2DAD862CD275170D62E48DA95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Discovery. Техногеника. Стратегические Бомбарди
 ```bash
 magnet:?xt=urn:btih:3601468B8B6D59BCE490A1F7212F97512703482D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ magnet:?xt=urn:btih:3601468B8B6D59BCE490A1F7212F97512703482D
 magnet:?xt=urn:btih:00BAD87601E2E46F60625E4D0A10626934CF2022
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ BBC. Панорама. Харви Вайнштейн: вся подноготн�
 ```bash
 magnet:?xt=urn:btih:0D08303E8F011A18AF67045DF3BD64A22C8214E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ NG. Дикие места Таиланда / Thailand's Wild Side (2019) WEBRip 
 magnet:?xt=urn:btih:EEC521910D3390AF57A32531413F3FDDAD99F047
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ NGW: Дикие места Ирана / Iran's Wild Side (2019) WEBRip [H.264/10
 ```bash
 magnet:?xt=urn:btih:8A8D166ED8646DC33A41EF0F1E1E272DC827AC5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ NGW: Южная Африка: Земля контрастов / South Africa: La
 magnet:?xt=urn:btih:D83137CE78E3A629E2C2990362031E9A233666DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ magnet:?xt=urn:btih:D83137CE78E3A629E2C2990362031E9A233666DC
 ```bash
 magnet:?xt=urn:btih:6B36AB4744E60ED252A43A6C9BD2250F4AC35803
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

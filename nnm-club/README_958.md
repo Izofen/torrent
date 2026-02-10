@@ -21,6 +21,8 @@ Launcher for zapret 2.3 [Ru/En]
 magnet:?xt=urn:btih:E70A4C26E899EAE568E6D34EF04B31C84C7AECED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:E70A4C26E899EAE568E6D34EF04B31C84C7AECED
 ```bash
 magnet:?xt=urn:btih:DAC016857381503E01A1B3F1D180601B2483357A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:DAC016857381503E01A1B3F1D180601B2483357A
 magnet:?xt=urn:btih:AAB97B7D6A127838C8F13DEB00FE8D3B74960B80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:AAB97B7D6A127838C8F13DEB00FE8D3B74960B80
 ```bash
 magnet:?xt=urn:btih:B057DD45C86B6017DEFD63DA8FC9F575CFECB131
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Battlefield 1 погружает вас в эпоху Первой мирово�
 magnet:?xt=urn:btih:53538D5E5E5F39762A1DDFE9B8C523D8D6C138C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Biohazard: Siberia - это психологический хоррор от п�
 ```bash
 magnet:?xt=urn:btih:7F0FC373BBB63F15EC3E25DCCC7FB53BD0003E46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:7F0FC373BBB63F15EC3E25DCCC7FB53BD0003E46
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:7F0FC373BBB63F15EC3E25DCCC7FB53BD0003E46
 ```bash
 magnet:?xt=urn:btih:A76C7B44D8BCB84D1C2E119B59C4342E403CBA81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:A76C7B44D8BCB84D1C2E119B59C4342E403CBA81
 magnet:?xt=urn:btih:7BE233BF6ED8850C15E1C4E7AADC6A5F73803881
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ SHAPIK: The Moon Quest - трогательный и атмосферный кв
 ```bash
 magnet:?xt=urn:btih:ED7D569C906242E31DE07FBAE784B91AD0C19DC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:ED7D569C906242E31DE07FBAE784B91AD0C19DC7
 magnet:?xt=urn:btih:B55D6669A2337C55313FAD0CED977D4EF3AB84EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:B55D6669A2337C55313FAD0CED977D4EF3AB84EC
 ```bash
 magnet:?xt=urn:btih:910BEC3AA11F88B76E028B4ECD51E96DD214FCB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:910BEC3AA11F88B76E028B4ECD51E96DD214FCB8
 magnet:?xt=urn:btih:DFBA4C585C9EEE0C77C6BA617F04D9DC7BEFE469
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:DFBA4C585C9EEE0C77C6BA617F04D9DC7BEFE469
 ```bash
 magnet:?xt=urn:btih:6885F0A47BA82F27C237BF79DB43516C3696724D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:6885F0A47BA82F27C237BF79DB43516C3696724D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ EOBD Facile - автосканер обд2 последнего поколени
 ```bash
 magnet:?xt=urn:btih:BEFE0BC54B5DACE24FBEB4C803FF2FC6B1556912
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:BEFE0BC54B5DACE24FBEB4C803FF2FC6B1556912
 magnet:?xt=urn:btih:20122FC0AF2F382FFB7B9A64BF24CCCCEE9F644D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:20122FC0AF2F382FFB7B9A64BF24CCCCEE9F644D
 magnet:?xt=urn:btih:836B0884E6D0A8F29B8C91FD17F19495E1B32CD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ Mass Effect 3 (2012) [PS3] [EUR] 4.01 [License] [Ru]
 ```bash
 magnet:?xt=urn:btih:AA1B74E65781133AA3093374B837166D4AF0011C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:AA1B74E65781133AA3093374B837166D4AF0011C
 magnet:?xt=urn:btih:16B78DFAD1B5A9648B7B93E7D1F31A171BF73B25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:16B78DFAD1B5A9648B7B93E7D1F31A171BF73B25
 ```bash
 magnet:?xt=urn:btih:AEE9AA3CD5ACB90153BB4FB3FCFDB72B14389381
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ OBS Студия - бесплатное программное обеспече�
 magnet:?xt=urn:btih:8D2AE9C7EFA8EF516834D1165E2F43CD3AD4499D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:8D2AE9C7EFA8EF516834D1165E2F43CD3AD4499D
 ```bash
 magnet:?xt=urn:btih:EE483440BD12B01B72D9AAF8A862E15A06C0CC32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +632,8 @@ La Postreria | Шоколад. Корпусные, нарезные, трюфе�
 magnet:?xt=urn:btih:124E95FEAB3B7A7BE8B7CB2B909CAAB20F6856B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ magnet:?xt=urn:btih:124E95FEAB3B7A7BE8B7CB2B909CAAB20F6856B5
 magnet:?xt=urn:btih:E06F1A9CB186AB61333B8CFEAF42134381091660
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ magnet:?xt=urn:btih:E06F1A9CB186AB61333B8CFEAF42134381091660
 ```bash
 magnet:?xt=urn:btih:FD17EA6FBD4BF8C377C34B053FDF0FFF6BFD9BA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

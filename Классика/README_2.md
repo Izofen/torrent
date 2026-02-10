@@ -22,6 +22,8 @@ Andrea Bocelli - Sogno (1999) [FLAC|Lossless|tracks + .cue] <Pop, Vocal>
 magnet:?xt=urn:btih:DF3840CE98EB4B55FE7B5DF5A6D8CC0182DB9867
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Музыка Семейства Штраусов. На Прекрасном
 ```bash
 magnet:?xt=urn:btih:4A07F9EA7B50956C24346416835E58FA5881A164
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Arranged By – Mischa Maisky - 5:32(   Читать дальше...   )Жанр
 magnet:?xt=urn:btih:037622EA6732DFA29AA35B958B23A15131B31A8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Maria Nemtsova - 3 Nocturnes, Op. 9: No. 1 in B-Flat Minor (5:33)
 magnet:?xt=urn:btih:512B19D87848EC4B922969961870CF8AA5D1246B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:512B19D87848EC4B922969961870CF8AA5D1246B
 ```bash
 magnet:?xt=urn:btih:151EA7BB4DCBE08E862BA5B8513DF447C74F6D14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ VA - Car Rides: Classical Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 magnet:?xt=urn:btih:CB7DDC253C3C5EA9BD1E51A5CB108AC23A800EED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +193,8 @@ VA - Best Classical Piano Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 magnet:?xt=urn:btih:D7D79E356A61BAF99369F7759FD27512614A6D27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ VA - Classical Music Brilliance (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ```bash
 magnet:?xt=urn:btih:80312BEDBC07533921E20A6537A516EE33C7C947
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +257,8 @@ Jon Schmidt & Steven Sharp Nelson (The Piano Guys) - Hits Volume I: Limited Foun
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +286,8 @@ Ludwig Van Beethoven - Missa Solemnis (1990) [FLAC|Lossless]<камерная>
 ```bash
 magnet:?xt=urn:btih:DE0F2795AB8100CC44245DEA2815A10A0CC9F08A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +322,8 @@ Carreras, Domingo, Pavarotti - The Best of The 3 Tenors (2002) [FLAC|Lossless]<C
 magnet:?xt=urn:btih:CBB49B563E52B71EF620BEDB692B7D41BA2315F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +356,8 @@ VA - REQUIEM (2005) [MP3|320 кб/с]<Классическая музыка>
 ```bash
 magnet:?xt=urn:btih:D4F911E1ABFF38DC59A08092B2C256D1984EF895
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +392,8 @@ magnet:?xt=urn:btih:D4F911E1ABFF38DC59A08092B2C256D1984EF895
 magnet:?xt=urn:btih:011858B532EFDCB7E1C8EFCBA87E6D721057EA76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +426,8 @@ Jon Schmidt & Steven Sharp Nelson - The PianoGuys: Hits Volume I (2012) [MP3|320
 ```bash
 magnet:?xt=urn:btih:227A174307500D1D72FDBC2CC982FC589DA35F3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +462,8 @@ magnet:?xt=urn:btih:227A174307500D1D72FDBC2CC982FC589DA35F3D
 magnet:?xt=urn:btih:B141A29E295432F3BA03E959197383B957D5F53E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +497,8 @@ David Garrett - Virtuoso (2007) [FLAC|Lossless]<Classical Crossover, Instrumenta
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +522,8 @@ Roberto Cacciapaglia - 3 альбома (2007-2010) [FLAC|Lossless]<New Age, Rel
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +558,8 @@ Symphony in F major, K.Anh. 223 (19a)
 magnet:?xt=urn:btih:7BEA4B3BE3855E94034D81390A5693B987A5696E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +593,8 @@ for bassoon and orchestra
 magnet:?xt=urn:btih:4367E0A081D69C2481E8E3B189F52F668CBF1755
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +618,8 @@ magnet:?xt=urn:btih:4367E0A081D69C2481E8E3B189F52F668CBF1755
 ```bash
 magnet:?xt=urn:btih:F0F57598DD44C9B415894A799773BDF01953D7A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +654,8 @@ magnet:?xt=urn:btih:F0F57598DD44C9B415894A799773BDF01953D7A4
 magnet:?xt=urn:btih:1E8F541A39148613CE9E3DAAC2B5B054E397DC07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +688,8 @@ magnet:?xt=urn:btih:1E8F541A39148613CE9E3DAAC2B5B054E397DC07
 ```bash
 magnet:?xt=urn:btih:B9C86A1D4F74067F142352EEABF9BCEDD6B101D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -680,6 +724,8 @@ Camerata Academica
 magnet:?xt=urn:btih:AB091F13EE8864FD0F2478E1391CC11F438E02D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -712,6 +758,8 @@ IV. Offertorium(   Читать дальше...   )2006Жанр: ClassicalПро
 ```bash
 magnet:?xt=urn:btih:6C4C44507F3557E7D3F4C5406CF650C84A846933
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -746,6 +794,8 @@ CD1
 magnet:?xt=urn:btih:16074D1B3FB6F9CE54A2696D13BF7853835CE847
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -778,6 +828,8 @@ Divertimento D-Dur KV 205 (167a)
 ```bash
 magnet:?xt=urn:btih:04F83A69D8B51EA5F472A2E08F3A3E8EE0369AC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

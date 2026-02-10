@@ -1,3 +1,29 @@
+###  Публикация: 1060521   (452949) от 08.10.2016
+
+Куда приводят понты. Фильм 2 (2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_452949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летом 2016 года в Москве банкиры и финансисты отмечали 700-летие рубля. На закрытой вечеринке, которая была устроена в столице в честь этого громкого события для гостей был устроен специальный сюрприз - борьба девушек в ванне, заполненной чёрной икрой. Пока одни следят за ценой на хлеб, другие не готовы отказаться от зрелищ. А они в Москве на любой вкус: можете посетить (   Читать дальше...   )Телекомпания: Студия 8, ТВЦЖанр: Телепередача, ДокументальныйПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD12C289E2967155EAF5797CCAEEF24E796CF79F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060750   (452962) от 08.10.2016
 
 Главная дорога (2016.10.08) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:E8A1C0682525537852C1AB4734FDE3EED9E21780
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:E8A1C0682525537852C1AB4734FDE3EED9E21780
 magnet:?xt=urn:btih:5820B4458B8C74E72045E1F9BA240516E49F592A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:5820B4458B8C74E72045E1F9BA240516E49F592A
 ```bash
 magnet:?xt=urn:btih:CE1EB4FDD22C57BF7B4326B93CA3667F684FF20E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:CE1EB4FDD22C57BF7B4326B93CA3667F684FF20E
 magnet:?xt=urn:btih:A7F0590C446EC978ADF0E2BBA21DB4D3621607EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:A7F0590C446EC978ADF0E2BBA21DB4D3621607EE
 ```bash
 magnet:?xt=urn:btih:2D3564D01D914180867090CBAB4FC65E07E3E267
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:2D3564D01D914180867090CBAB4FC65E07E3E267
 magnet:?xt=urn:btih:4A027CB3950FE8DF10C0A91ABF1E26A5F8FE974D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:4A027CB3950FE8DF10C0A91ABF1E26A5F8FE974D
 ```bash
 magnet:?xt=urn:btih:4C8329053DFBC436BB4A3745081939FD35505DB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ Discovery. Махинаторы (Автодилеры) / Wheeler Dealers (2015) 
 magnet:?xt=urn:btih:493923B7184DBD8B046C784EE68DD25EBFB26A3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:493923B7184DBD8B046C784EE68DD25EBFB26A3F
 ```bash
 magnet:?xt=urn:btih:C22CE5F6D5A99DEF4E76DE91B382719021C5A8DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:C22CE5F6D5A99DEF4E76DE91B382719021C5A8DD
 magnet:?xt=urn:btih:70402873F800E3AC4E7574838093E7E41622E018
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:70402873F800E3AC4E7574838093E7E41622E018
 ```bash
 magnet:?xt=urn:btih:4955B37935C23E8BE044EDEAEC411102CD28A933
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:4955B37935C23E8BE044EDEAEC411102CD28A933
 magnet:?xt=urn:btih:B87A089A478DF8C0CECBE62D87127CF8C54401E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:B87A089A478DF8C0CECBE62D87127CF8C54401E8
 ```bash
 magnet:?xt=urn:btih:671BBA0FFFB3D46726721AFB4F0E81157726FDEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:671BBA0FFFB3D46726721AFB4F0E81157726FDEB
 magnet:?xt=urn:btih:4E55F128E6FEE714DA5039361F9B19A9BB606891
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:4E55F128E6FEE714DA5039361F9B19A9BB606891
 ```bash
 magnet:?xt=urn:btih:378C979B27A74B117F37843FFDF38776A958D146
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:378C979B27A74B117F37843FFDF38776A958D146
 magnet:?xt=urn:btih:337D94BE37B96AD53D030EA47B07C5A2B417F3D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:337D94BE37B96AD53D030EA47B07C5A2B417F3D7
 ```bash
 magnet:?xt=urn:btih:5F7C6CB8D2B6713940738388C7DB0A476CB869E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:5F7C6CB8D2B6713940738388C7DB0A476CB869E5
 magnet:?xt=urn:btih:EB1FC32E0EC24955B99EABEC9EE8F26AF0FA9F53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:EB1FC32E0EC24955B99EABEC9EE8F26AF0FA9F53
 ```bash
 magnet:?xt=urn:btih:74B1CAF25395BAAE24E01B593E849E3F1229A36D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +547,8 @@ Viasat Nature: Большой Кавказ / The Greater Caucasus (2014) SATRip
 magnet:?xt=urn:btih:CB5D97E265F02F54FD51CFB2FB4856250989E8FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:CB5D97E265F02F54FD51CFB2FB4856250989E8FF
 ```bash
 magnet:?xt=urn:btih:0680C5824391E58CAF9981744BFC575A2E50C4EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:0680C5824391E58CAF9981744BFC575A2E50C4EF
 magnet:?xt=urn:btih:A8ED3D9098EEF6FE762CA6B98FF4E52EB8C71F5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:A8ED3D9098EEF6FE762CA6B98FF4E52EB8C71F5A
 ```bash
 magnet:?xt=urn:btih:DF82A072DC40E6DE357454A39B2D532B4D37883F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +651,8 @@ magnet:?xt=urn:btih:DF82A072DC40E6DE357454A39B2D532B4D37883F
 magnet:?xt=urn:btih:27D198F7392B5F9F6ACC6F160AB1A60E323AF092
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,29 +677,7 @@ magnet:?xt=urn:btih:27D198F7392B5F9F6ACC6F160AB1A60E323AF092
 magnet:?xt=urn:btih:1FD911CA9AC1DE17DAC893113109A79531E06D38
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942771   (453998) от 01.10.2015
-
-Открытая студия. Россия против ИГИЛ (01.10.2015) SATRip
-
->>Документалистика и Телепередачи
->>Общественно-политические и пропагандистские ток-шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совет Федерации единогласно разрешил использовать вооруженные силы России за границей. Ранее с просьбой о военной помощи к руководству страны обратился сирийский лидер Башар Асад. Целью нашей операции станет исключительно воздушная поддержка вооруженных сил этой ближневосточной страны в их борьбе против террористического монстра ИГИЛ. Как будут действовать наши военные (   Читать дальше...   )Телекомпания: 5 канал, РоссияЖанр: общественно-политическое ток-шоуПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0A25ED133337FA4354B612AE8C754CA5D95F4BA
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

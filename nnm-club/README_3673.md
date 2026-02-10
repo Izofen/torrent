@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:70BA6FA271805C98179F1C827FFF67DE2C19C528
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:70BA6FA271805C98179F1C827FFF67DE2C19C528
 ```bash
 magnet:?xt=urn:btih:809038890E78C233A08D4001BD05756AEF34914D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ The Expanse: A Telltale Series (2023) [Multi] (1.09) License GOG [Deluxe Edition
 magnet:?xt=urn:btih:DF01E218AA3F16E86BFF873C82C50C111E5E707E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ SуперКопы: Миссия «Бабушка» / 3 jours max (2023) WEBRip [
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ SуперКопы: Миссия «Бабушка» / 3 jours max (2023) WEBRip [
 ```bash
 magnet:?xt=urn:btih:3FAB9F7EC62D7C70F4C71B40311232262C23F4A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Stepik, Александр Шибаев | Многозадачность в Pyth
 magnet:?xt=urn:btih:4133BD41D7061E5A95B77D463AA97A24545BDB11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:4133BD41D7061E5A95B77D463AA97A24545BDB11
 ```bash
 magnet:?xt=urn:btih:7BB12DF64500D0A8476CF0483C983CEC1CDDB4CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:7BB12DF64500D0A8476CF0483C983CEC1CDDB4CD
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:7BB12DF64500D0A8476CF0483C983CEC1CDDB4CD
 ```bash
 magnet:?xt=urn:btih:E453E69A212078E99919A4B3C5F971DA56F651DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Ivideon Server 1.3.2 / Client 3.4.1 [Multi/Rus]
 ```bash
 magnet:?xt=urn:btih:2D26DC9DF83C5CA33F7678390166F30C7EAFC23A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ Dire Straits собрал бывший преподаватель (   Чита�
 magnet:?xt=urn:btih:F2FAA9C275FA2F2F6F5B4FF56770B57CF4085ADA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:F2FAA9C275FA2F2F6F5B4FF56770B57CF4085ADA
 ```bash
 magnet:?xt=urn:btih:8FC6CFC7FF917CD8A7CB44E6B4EDD6037B7CCFFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ Myth of Empires (2024) [Ru/Multi] (1.7.6/dlc) Repack FitGirl
 magnet:?xt=urn:btih:FBC477084BAEFCE44F6649B08447A18FD4A50D4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:FBC477084BAEFCE44F6649B08447A18FD4A50D4F
 magnet:?xt=urn:btih:EAF71D3AC1991D8A683D87E926E1F50AC41151CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:EAF71D3AC1991D8A683D87E926E1F50AC41151CF
 ```bash
 magnet:?xt=urn:btih:CE41618A818855C7EE990922D3468C32826A7515
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:CE41618A818855C7EE990922D3468C32826A7515
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:CE41618A818855C7EE990922D3468C32826A7515
 ```bash
 magnet:?xt=urn:btih:B86020B1986B57F9E19483D4D32F11D90A8FAE1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:B86020B1986B57F9E19483D4D32F11D90A8FAE1C
 magnet:?xt=urn:btih:ECBBAE6897888A719539D72545E273701D547941
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ WinRAR - один из самых известных архиваторов. Т�
 magnet:?xt=urn:btih:C9A3E5350FF8B25824551DEC77F5163A31B88E29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:C9A3E5350FF8B25824551DEC77F5163A31B88E29
 ```bash
 magnet:?xt=urn:btih:D70F25FC7B5DE6BB2CD20B7264D348BEC72EA603
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ QA.GURU, Артём Eрошенко, Aлексей Виноградов, Ром�
 magnet:?xt=urn:btih:9DCD83D7DD7F6DF15FC598F9F01B803D30C3143F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ Alex Klimov | Основы Python для алготрейдинга (2023) WEB-D
 ```bash
 magnet:?xt=urn:btih:F45348A922D8D003DDC189A5B7120C50C020CAD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +607,8 @@ magnet:?xt=urn:btih:F45348A922D8D003DDC189A5B7120C50C020CAD6
 magnet:?xt=urn:btih:243C8023A7D888B82F6D9F8FA4E88C7DD1507C88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:243C8023A7D888B82F6D9F8FA4E88C7DD1507C88
 ```bash
 magnet:?xt=urn:btih:31D05EDC5714F45CD20931C2EAD7BEEF9E56AE11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +659,8 @@ VMware Workstation — популярная программа для созда
 magnet:?xt=urn:btih:5DF90F8363927365965A95B3E2FD083A667773E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ magnet:?xt=urn:btih:5DF90F8363927365965A95B3E2FD083A667773E3
 ```bash
 magnet:?xt=urn:btih:18146A8EA561BF3F0DAF37E5C2F9786711ED9D21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

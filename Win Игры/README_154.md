@@ -19,6 +19,8 @@ Wargame: Red Dragon (2014) [Ru/Multi] (130278/dlc) Scene Rune
 magnet:?xt=urn:btih:1CE54BEA6E7B8AF984C5549ADAF1C5E97325E7FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Patron сочетает в себе классические элементы г
 ```bash
 magnet:?xt=urn:btih:EBDF7524388D84DAE0D1FFADA304C2563C61A935
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Townsmen A Kingdom Rebuilt (2019) [Ru/Multi] (2.2.8.0/dlc) License GOG
 magnet:?xt=urn:btih:5106FCEB5A49A22C2AF97D42A55565ED99F60BBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ inZOI: Character Studio (2024) [Ru/Multi] (15485995) Repack Meadwey [Early Acces
 ```bash
 magnet:?xt=urn:btih:8DB6711EF5E655F7638045B6431CB5557749E4B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Sunny Cafe (2021) [Multi] (1.1) License GOG
 magnet:?xt=urn:btih:72CE0FAA78879DDC7B1A39B5D4E62BBD061BBB70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Dark and Deep (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:181406E554DF2638E775C010A56ACF95379DDA74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Selene's Unbearable Night (2023) [Ru/Multi] (1.0) Repack Decepticon
 magnet:?xt=urn:btih:E2C527A03CE0EDB948E0F85FC9FD265FC0315D10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Lord of the Rings: Return to Moria (2024) [Multi] (1.3.2.157411) Scene Rune
 ```bash
 magnet:?xt=urn:btih:0ECA5CA2700311FDF75B44C94BCE062843DB89B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ FOOTAGE BODYCAM / FOOTAGE REC (2024) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:4E001E7AB82679089A7E898C9F2ABDC8F1BB11A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Dawning Clocks of Time Remake (2024) [En] (1.0.4.0820.26) License GOG
 ```bash
 magnet:?xt=urn:btih:696549DC99FBEDCC4A71949016802E0FFE0A329B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Northgard (2018) [Ru/Multi] (3.5.15.39065/dlc) Repack Other s [The Viking Age Ed
 magnet:?xt=urn:btih:62EC03B817E3824E6C900BEE1B374DE203034A46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Debtors' Club (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:4C7FEEA9703A3CA837DBC24BCA0FF43B05906C80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Outlast (2013) [Ru/En] (1.0.12046.0/dlc) Repack xatab
 magnet:?xt=urn:btih:9573D73D671BFA0B439A7BEC9EC5CCB19903B42C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Paris in 2000 Years - это градостроительная игра, пос
 ```bash
 magnet:?xt=urn:btih:FE6656091236B9F4794368BED369797B4594C105
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Chromosome Evil 2 переносит в леденящий душу мир, гд
 magnet:?xt=urn:btih:45C2B2499FE187D1A440A245C7D615DD37C4EC73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Shift 87 – самая необычная рабочая смена ждет в
 ```bash
 magnet:?xt=urn:btih:1A2BA8B6A062DFC387593935147104ACCEC4FFA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Selene's Unbearable Night (2023) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:ABA9E13CF8D0C1585A34A6B95281FF1AE7E544D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Office Fight (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9C55D609601C3B757CCEA60BF6C811E16A5E91DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ DOOM (2016) [Ru/Multi] (Build 13954591/dlc) Lossy Repack Decepticon
 magnet:?xt=urn:btih:725B76256FD7B43B59CF262F0131CC25009F703F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Landlord’s Super – интересный симулятор, перенося
 ```bash
 magnet:?xt=urn:btih:C4F9A1E341B07BAA7CD6E214BE84876966FC7B33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ magnet:?xt=urn:btih:C4F9A1E341B07BAA7CD6E214BE84876966FC7B33
 magnet:?xt=urn:btih:778CE9490E5061A627072F4325845D73625B5C12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ My Lovely Empress - симулятор имперского управления
 ```bash
 magnet:?xt=urn:btih:36254CD100ABD3C16B8CFA035D33467404CBAAF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Five Nights at Freddy's: Into the Pit (2024) [Ru/Multi] (1.0.4.5) Scene Tenoke
 magnet:?xt=urn:btih:4B00EDEEEC17E84F27D43AE39449F937EA9A5CB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Beach Club Simulator 2024 (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D6AA8C38B2425201D1E6DC262998F2C42FC6CE29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Eden Genesis - это не типичный платформер. Конечно
 magnet:?xt=urn:btih:DA33115C83F47F74B77706A641890633F07D07D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Who is Abby (2023) [En] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D50CF200CB4E980FEA985D2D7CC1A07534BB308D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1019942   (747973) от 24.05.2016
+
+Скотозаговор / Cowspiracy: The Sustainability Secret (2014) WEB-DL [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_747973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Со времен развития промышленности человечество упорно уничтожает планету вредными отходами, которые пагубно влияют не только на окружающую среду, но и на здоровье людей. Ежегодно происходит вымирание различных видов живых существ. Но мало кто догадывается, что именно приводит к таким результатам. Автор фильма всерьез обеспокоен экологической катастрофой. Ведь влиятельные (   Читать дальше...   )Телекомпания: A.U.M. Films, First Spark MediaЖанр: ДокументальныйПеревод: Двуголосый закадровый, любительский (Ю.Андреев и З.Балецкая)Язык субтитров: Русский, АнглийскийПродолжительность: 01:30:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACD672EEC2FECF7231FC6E24CF0B018E2CBFB4CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523720   (747982) от 13.01.2022
 
 "АББА" навсегда. Победитель получает всё / ABBA Forever: The Winner Takes It All (2019) HDTVRip [H.264/1080p-LQ]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:219E75B99B596F12F79EBDCAA2FA4EB1FF9FB709
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:219E75B99B596F12F79EBDCAA2FA4EB1FF9FB709
 magnet:?xt=urn:btih:0269EA056202080D6E4911956B8A55890E5A96FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:0269EA056202080D6E4911956B8A55890E5A96FE
 magnet:?xt=urn:btih:32222A38823A5E89B22629A99ABA27867D122038
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ Axios: Все имеет значение / Axios (2018) WEB-DL [H.264/720p-LQ] 
 ```bash
 magnet:?xt=urn:btih:88A7EA9FFF02A22E607DE3C460246A52CCF4713F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:88A7EA9FFF02A22E607DE3C460246A52CCF4713F
 magnet:?xt=urn:btih:F66EDB369D670F4E1590EBC642F0E586CF31D5E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:F66EDB369D670F4E1590EBC642F0E586CF31D5E8
 ```bash
 magnet:?xt=urn:btih:B311A5DF79DDA30858C1F8A7467E222F78DFAF33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:B311A5DF79DDA30858C1F8A7467E222F78DFAF33
 magnet:?xt=urn:btih:FC33A022DD090C557F304BFBB1B280F14A11DACF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:FC33A022DD090C557F304BFBB1B280F14A11DACF
 magnet:?xt=urn:btih:FA724B0922DD0A3A4526A8223A6671CF0B8D9BD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:FA724B0922DD0A3A4526A8223A6671CF0B8D9BD6
 ```bash
 magnet:?xt=urn:btih:8101F70F0EF392536BCCA5ADEF26BDE19FC0265A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:8101F70F0EF392536BCCA5ADEF26BDE19FC0265A
 magnet:?xt=urn:btih:F620544BD414BFFF486BA7D94142B97A291631D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:F620544BD414BFFF486BA7D94142B97A291631D3
 ```bash
 magnet:?xt=urn:btih:5B0E9C70B425510E50819D8EC5B59D75914EC70A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:5B0E9C70B425510E50819D8EC5B59D75914EC70A
 magnet:?xt=urn:btih:5CEE3A38C76C9B63DDC2226BD39AE5E1766D0F3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:5CEE3A38C76C9B63DDC2226BD39AE5E1766D0F3E
 magnet:?xt=urn:btih:E579C5112A3DD262D5A29F086B175CD33B309887
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:E579C5112A3DD262D5A29F086B175CD33B309887
 ```bash
 magnet:?xt=urn:btih:26BF47D057F81FDCB7ECE865DDB34B602523378C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:26BF47D057F81FDCB7ECE865DDB34B602523378C
 magnet:?xt=urn:btih:BD143902DAD1F24DAFCA7C2E62050A288FBA941B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:BD143902DAD1F24DAFCA7C2E62050A288FBA941B
 ```bash
 magnet:?xt=urn:btih:56E196340B7F3C7E29D87FFEE964CB63CDCA8E28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:56E196340B7F3C7E29D87FFEE964CB63CDCA8E28
 magnet:?xt=urn:btih:80E324C6D0A73E860312068548D6DF5A122D11DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:80E324C6D0A73E860312068548D6DF5A122D11DE
 ```bash
 magnet:?xt=urn:btih:1F9F12E2B75938919EB0421E7DAA166954D06A37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:1F9F12E2B75938919EB0421E7DAA166954D06A37
 magnet:?xt=urn:btih:29926ED210673C28818E455C3E23C1CF4F50D65C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:29926ED210673C28818E455C3E23C1CF4F50D65C
 ```bash
 magnet:?xt=urn:btih:88A603FD77DB5A8E051B6FC4E689BD0B80340274
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:88A603FD77DB5A8E051B6FC4E689BD0B80340274
 magnet:?xt=urn:btih:CE29C38575FC8CD7490F03BD5F7FC6D9852438C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:CE29C38575FC8CD7490F03BD5F7FC6D9852438C0
 ```bash
 magnet:?xt=urn:btih:EF9CC151506CD0D12737166F44D8BCD5A1A99329
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:EF9CC151506CD0D12737166F44D8BCD5A1A99329
 magnet:?xt=urn:btih:9735AD18AA0A323C986A67AFCF574804BD568E02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:9735AD18AA0A323C986A67AFCF574804BD568E02
 ```bash
 magnet:?xt=urn:btih:188E7844529807D51E0CBEF2BA1D7D34D4B812F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,29 +675,7 @@ magnet:?xt=urn:btih:188E7844529807D51E0CBEF2BA1D7D34D4B812F1
 magnet:?xt=urn:btih:8391643075B0C0A1533E7C378C5DC00B4117F0B6
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216489   (749328) от 31.03.2018
-
-Захар Прилепин. Уроки русского. Наша сила, наглость и хамство (30.03.2018) HDTV [H.264/1080i-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еженедельный проект Захара Прилепина находится на стыке жанров сетевого видеоблога и аналитической телепередачи. В нем известный писатель анализирует наиболее актуальные и общественно значимые темы недели. Фигура Захара Прилепина известна не только поклонникам литературы. Его публицистические выступления никогда не оставляют аудиторию равнодушной, подтверждая известный (   Читать дальше...   )Телекомпания: НТВ HD, ООО «Гринвич Продакшн»Жанр: Телепередача, Политика, Авторская программаСубтитры: отсутствуютПродолжительность: 00:24:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9616EE13179286AD22B0E398570CB48CD2E4EFC
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

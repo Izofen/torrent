@@ -19,6 +19,8 @@ Only Up 2! (2023) [Ru/Multi] (1.0) Repack dixen18
 magnet:?xt=urn:btih:4E7ACF8B2A37DF72B8930495879B7A6F1EFC9751
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:4E7ACF8B2A37DF72B8930495879B7A6F1EFC9751
 ```bash
 magnet:?xt=urn:btih:1D7BE8EF71A24E250C7E6793C485B44827E08FCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:1D7BE8EF71A24E250C7E6793C485B44827E08FCA
 magnet:?xt=urn:btih:E6E3FF3FFD878767D60BB006999A188B77F87803
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Bendy and the Dark Revival - это хоррор-игра на выживани�
 ```bash
 magnet:?xt=urn:btih:7F1B049ED2FB3C02282A0122F41CFC4FEE566358
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:7F1B049ED2FB3C02282A0122F41CFC4FEE566358
 magnet:?xt=urn:btih:DAD62F769D1C3412987BDB7BD1CCB40E17CC66CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:5270F5D4B3522D008CF9A51B4538461B9332325D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:5270F5D4B3522D008CF9A51B4538461B9332325D
 magnet:?xt=urn:btih:0E88DA6D625B43E3700FC1D297958012F1878E73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ VueScan - программа предназначена для замены ст
 ```bash
 magnet:?xt=urn:btih:74D39A32F058058AEE31DBF5DE474F96B224FF8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:74D39A32F058058AEE31DBF5DE474F96B224FF8C
 magnet:?xt=urn:btih:E5A0C35AFD23A3EB346BB3FA7811C4FFEE3E4CE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:E5A0C35AFD23A3EB346BB3FA7811C4FFEE3E4CE0
 ```bash
 magnet:?xt=urn:btih:0DFB5E9C73D1F61F573DD4208A10C268780A524C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:0DFB5E9C73D1F61F573DD4208A10C268780A524C
 magnet:?xt=urn:btih:E89679EDD991D080CC66F27DEC821D34051B77FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Only Up! Skibidi Together (2024) [Ru/Multi] (1.0) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:463B7ACDA384C151C242A2CC0BCE7919E0246EB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:463B7ACDA384C151C242A2CC0BCE7919E0246EB5
 magnet:?xt=urn:btih:0EB9D8C8BBE47D733E7A1F044C0A32E2C5AE1EBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:0EB9D8C8BBE47D733E7A1F044C0A32E2C5AE1EBA
 magnet:?xt=urn:btih:1042638DDE0F096E75A9EAAF2B8EA78A231A78D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Duplicate Files Search & Link (Duplicate Searcher) - это приложение
 ```bash
 magnet:?xt=urn:btih:1CD8C769221365D493C1F4418D8601561C0903CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ PLECS® является инструментом для высокоскоро�
 magnet:?xt=urn:btih:287615CA26865461B9B0696C3D35963BCB7AB299
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:287615CA26865461B9B0696C3D35963BCB7AB299
 magnet:?xt=urn:btih:47201DCFF1BD8EEF3BF9E6FFF9E7521759E08851
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Lost in Play (2022) [Ru/Multi] (1.0.63) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:6B10AC8A13B0EE18B0E980459414E6E28E816929
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:6B10AC8A13B0EE18B0E980459414E6E28E816929
 magnet:?xt=urn:btih:BD1394BD1A08D4A89CF2937CA82DB9F9766D878B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ The Weeknd feat. Daft Punk - I Feel It Coming (2017) WEB-DLRip [AV1/2160p] [4K, 
 ```bash
 magnet:?xt=urn:btih:A6BECE3803A8C3454F0CADA9B2C46218018D0778
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:A6BECE3803A8C3454F0CADA9B2C46218018D0778
 magnet:?xt=urn:btih:81C60079F39F62545A39DB32BDE0C11470AD9F07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:81C60079F39F62545A39DB32BDE0C11470AD9F07
 ```bash
 magnet:?xt=urn:btih:61AEB0020D78BA4CA3E52F23A128EF6E5F3D6F24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:61AEB0020D78BA4CA3E52F23A128EF6E5F3D6F24
 magnet:?xt=urn:btih:3DD2405ED4933E8364AE6AA0E2A3161D4008CFE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:3DD2405ED4933E8364AE6AA0E2A3161D4008CFE7
 magnet:?xt=urn:btih:A2F1549F17AC794599FAFAD634BC8CD8EDB29FD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ DisplayFusion - программа для управления обоями ра
 ```bash
 magnet:?xt=urn:btih:06AE7147A819FA57B8D60D34D38C5BD6EFC0A749
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:06AE7147A819FA57B8D60D34D38C5BD6EFC0A749
 ```bash
 magnet:?xt=urn:btih:E9D16AE1651F19B58405F7412135DAA055B610A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

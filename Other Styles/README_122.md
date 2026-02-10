@@ -22,6 +22,8 @@ VA - Cafe Chillout Ibiza Edition (2008) [MP3|167-233 kbps]<Lo-Fi>
 magnet:?xt=urn:btih:B7286AFE461ABAF191E4E3AEFBB4567AAC074093
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ CD-1: Seven Lazy Lounge
 ```bash
 magnet:?xt=urn:btih:01ED1A91AF60617537E14DB897DC8EDBDC27669A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Enigma - Enigma V: Dream On (2000) Full Version, Bootleg [FLAC|Lossless|tracks +
 magnet:?xt=urn:btih:936DEF5CF1E44DFFEDF2CCFB35694FD16A7CD4A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Evgeny Khmara (Евгений Хмара) - Fairy Tale (2017) [MP3|320 Kbps] <Ne
 magnet:?xt=urn:btih:D6851DC8A4B1472ABDB0C7F0E1193FD7A2A8B983
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ Angry Video Game Nerd II: ASSimilation (Sam Beddoes) (2016) [MP3|320 кб/с]<Sc
 ```bash
 magnet:?xt=urn:btih:F00100FDB69DC858FEED3E6BA4E09F2DADDE92D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ Argishty - Первый ереванский снег (2012) [FLAC|Lossless|trac
 magnet:?xt=urn:btih:C53427B74A46B2ECD9800384A651A737D388937D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +189,8 @@ Table Top Racing - World Tour (2016) [MP3|320 кб/с]<Soundtrack>
 ```bash
 magnet:?xt=urn:btih:139597BBCE3A8BD5CB9FBD28A29C5DA2BF512F21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -205,6 +219,8 @@ VA - 50 Mindful Sessions Turkish Massage Treatment (2017) [MP3|320 Kbps] <New Ag
 magnet:?xt=urn:btih:6501A2E1B1CECBC064578C6C4C2AE5FE63155C64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +247,8 @@ Lady Gaga, Bradley Cooper - A Star Is Born Soundtrack (2018) Explicit [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:8298C227D49AA01FD9263B6F06E2F8043264AA05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +277,8 @@ Kyle Landry - 4 альбома (2009-2014) [MP3|196-320 kbps] <Solo piano, New A
 magnet:?xt=urn:btih:EF126D80015DE1F03F025E152AC85AC35B390998
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +305,8 @@ VA - Image d'Amour (2001) [MP3|320 Kbps] <Instrumental, Classical>
 ```bash
 magnet:?xt=urn:btih:6F0A8D4DAA83BCA419D261CCF74F20A4307272D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +335,8 @@ magnet:?xt=urn:btih:6F0A8D4DAA83BCA419D261CCF74F20A4307272D9
 magnet:?xt=urn:btih:6FB71DF0DF580579A7DB02B63B04F1F5DB2D22E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +363,8 @@ The Royal Philharmonic Orchestra - ABBA Classic (1991) [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:A5F78D970581562511A4FCFFF447032A9D63BABF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +393,8 @@ VA - Classical Is Sexy A Rousing Collection Of Homophonic Melodies Vol.1 (2018) 
 magnet:?xt=urn:btih:CB98814C82ADE7344FA842B7E423C97A3AA36CF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +418,8 @@ Mike Oldfield - Tubular Bells  (1973) 25th Anniversary Edition, Remaster 2001 [A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +448,8 @@ Steve Jablonsky - Teenage Mutant Ninja Turtles: Out of the Shadows / Череп�
 magnet:?xt=urn:btih:122837101E08B08A365D33AB4B527A92A306FE12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +476,8 @@ Steve Jablonsky - Teenage Mutant Ninja Turtles: Out of the Shadows (Music from t
 ```bash
 magnet:?xt=urn:btih:B6A6DBB8F52BF45108E2088CA6E29C8F0881199A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +506,8 @@ Yanni - The Dream Concert: Live from the Great Pyramids of Egypt (2016) [FLAC|Lo
 magnet:?xt=urn:btih:8A019B44CDD7A877C3006D08229A4EC6A80D8733
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +534,8 @@ Ramin Djawadi - Варкрафт / Warcraft (Original Motion Picture Soundtrack)
 ```bash
 magnet:?xt=urn:btih:BFB3161AED7FD40DD1C14B1DD2AC5771E66D4941
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +564,8 @@ CD04 Chilled Smooth Pop(   Читать дальше...   )Релиз состо
 magnet:?xt=urn:btih:2630BFFF5E4F9BEC753F89865DA33EC210120869
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +592,8 @@ Ramin Djawadi - Warcraft (Original Motion Picture Soundtrack) (2016) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:343460A3663483F24359F5667E112126E0B1B24C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +622,8 @@ VA - 50 Sounds of Tropical Rainforest (2017) [MP3|320 Kbps] <Downtempo, Chillout
 magnet:?xt=urn:btih:C152478A3CA680738980455179E66702D94FE467
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +650,8 @@ Kari Rueslatten - To The North (2015) [FLAC|Lossless|image + .cue] <Folk, Nordic
 ```bash
 magnet:?xt=urn:btih:078982E1957196C18697CB0FD4F794035E7497F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +680,8 @@ Rajendra Teredesai - Moksha - The Path to Inner Peace (2016) [FLAC|Lossless|trac
 magnet:?xt=urn:btih:60C95A939B0C33AD9B7FE982C13A7BEE7107E18A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +709,8 @@ Piano Pianissimo - Breathe In, Breathe Out and Relax (2022) [FLAC|Lossless|WEB-D
 magnet:?xt=urn:btih:680B497979580998F26E9BE955E8E05D0FA194FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -687,6 +737,8 @@ Danny Wright - Unconditional Love (2016) [MP3|320 кб/с] <New Age, Piano>
 ```bash
 magnet:?xt=urn:btih:B232C1C16FAEB5FBEB85B581182EE2B70C393715
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

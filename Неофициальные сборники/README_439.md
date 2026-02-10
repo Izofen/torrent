@@ -1,3 +1,38 @@
+###  Публикация: 331349   (704288) от 02.05.2011
+
+VA - Record Super Chart № 187 (2011) [MP3|320 kbps]<House, Trance, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snoop Dogg Vs. David Guetta - Wet (David Guetta Extended Mix)
+02. Armin Van Buuren Feat Christian Burns - This Light Between Us (Armin Van Buuren's Great Strings Mix)
+03. Tim Berg - Seek Bromance (Avicii's Vocal Extended Mix)
+04. Tiesto & Hardwell - Zero 76 (Original Mix)
+05. Laurent Wery Featuring Swiftkid - Hey Hey Hey (Extended Club Mix)
+06. Tony Igy - Astronomia (Original Mix)
+07. Nirvana - Smells Like Teen Spirits (DJ's From Mars Remix)
+08. Avicii - Malo (Alex Gaudino & Jason Rooney Remix)
+09. Armin Van Buuren Feat. Laura V - Drowning (Avici Remix)
+10. Far East Movement Ft. The Cataracs & Dev - Like A G6 (Chew Fu Remix)(   Читать дальше...   )Жанр: House, Trance, DanceПродолжительность: 03:00:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E026C0FA18BCFF21E9EE1EB385184D38E7C29880
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220406   (704315) от 19.04.2018
 
 VA - Bravo All Stars: Planet Pop (2018) [MP3|320 Kbps] <Pop>
@@ -21,6 +56,8 @@ VA - Bravo All Stars: Planet Pop (2018) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:22B03DD39B2ACEC250CFF7E4129E6BDBAC1CD25D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +86,8 @@ VA - Горячая вечеринка в стиле R`N`B (2018) [MP3|320 Kbps]
 magnet:?xt=urn:btih:C695D46A7327D6E4F8D84EAD71C6E7E2BAC8E37E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +114,8 @@ VA - Clubland Xtreme: Euro EDM (2018) [MP3|320 Kbps] <Club, Dance, House>
 ```bash
 magnet:?xt=urn:btih:C0866296A5CA8CB50B4D19FC911B2142E1F7F31A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +144,8 @@ VA - Century Disco (2018) [MP3|256 Kbps] <Euro, Italo Disco>
 magnet:?xt=urn:btih:DEBB32A60B686959E8B9A7CAC124669C8415A5B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +172,8 @@ VA - 100 Romantic Songs (2017) [MP3|320 Kbps] <Pop , Rock , Ballads>
 ```bash
 magnet:?xt=urn:btih:E5036717FA3386FA4BBA440B7EE997A63521F8B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +202,8 @@ VA - Dance Hits Collection Vol.9 (2017) [MP3|320 Kbps] <Dance , Eurodance>
 magnet:?xt=urn:btih:4E5D3BE258E1EFFA866D217E27530762A3D3C052
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +230,8 @@ VA - Навстречу Судьбе. 2 (3CD) от DON Music (2017) [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:E813E7CA235D3E61677600F6E91A10BA0D924093
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +260,8 @@ VA - Modern Swing Jazz (2017) [MP3|320 Kbps] <Jazz, Swing Jazz>
 magnet:?xt=urn:btih:A1616E9A2E385142C25B88061372434849B9851E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +288,8 @@ VA - Сотка блатных душевных песен. Выпуск № 2 (
 ```bash
 magnet:?xt=urn:btih:EE41575C72113772DE77AC25613259EA696971B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +318,8 @@ VA - Top 100 Зайцев.Нет Февраль 2019 [MP3|320 Kbps] <Pop, Dance,
 magnet:?xt=urn:btih:50972FCB9D0DA5DC271A07D816B14FBBF534DECC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +346,8 @@ VA - Symphonic Adiemus (2019) [MP3|320 Kbps] <New Age, Ambient>
 ```bash
 magnet:?xt=urn:btih:D098092466B99888826BF5138D048CB19E8BA5CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +376,8 @@ VA - Smooth Lounge Music In Boudoir (2019) [MP3|320 Kbps] <Smooth Jazz, Lounge>
 magnet:?xt=urn:btih:51F3D2827FC1891ED81A5EBD0F80B00824DECB36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +404,8 @@ VA - Deep House Collection Vol.119 (2017) [MP3|320 Kbps] <Deep House, Club House
 ```bash
 magnet:?xt=urn:btih:8A8D042C3AA0A66AC9DDD4ABF1B93B4620CA215F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +434,8 @@ VA - Песни для души на радио Шансон. Выпуск № 5
 magnet:?xt=urn:btih:CABECCD7BEA49988A91BBD5D1F31C619CAD44A28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +462,8 @@ VA - Летняя свежая 30-тка Vol 4 (2020) [MP3|320 Kbps] <Pop, Dance
 ```bash
 magnet:?xt=urn:btih:3221D0F4E376A2E3B2424FA97B8A1647EF73EB97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +492,8 @@ VA - Classic Rock for Valentine's Day (2022) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:197974E2FB6FB884B58F4BEA4CCA51B740F82076
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +520,8 @@ VA - Душевный сборник Русского радио. Выпуск �
 ```bash
 magnet:?xt=urn:btih:08D6E0DFC4C2C244FD4E69A5913BD0589D7F19DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +550,8 @@ VA - Весенний хит русского шансона выпуск № 8 
 magnet:?xt=urn:btih:0B3F9C5DDBFF054F6E546A69948500062FF45E6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +578,8 @@ VA - New Music Releases Week 9 (2019) [MP3|192-320 Kbps] <Pop, Hip Hop, Alternat
 ```bash
 magnet:?xt=urn:btih:6353C5EE407E9BE033E44959C27EDA68622182C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +608,8 @@ VA - Весенняя 100-ка популярных треков выпуск �
 magnet:?xt=urn:btih:97CEDFFB554294E727918B7BFDD29E67A3A44953
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +636,8 @@ VA - Русский отрыв Русского радио. Версия № 5 (
 ```bash
 magnet:?xt=urn:btih:E9AA42F77D6E06B2B226151477BF4E07FAEB22E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +666,8 @@ VA - Драйвовый молодежный весенний музон вып�
 magnet:?xt=urn:btih:0339EFC21C6974BD342D7BF07DC4F68B2B3BF06D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +695,8 @@ VA - Red Sea Gruves (2019) [MP3|320 Kbps] <Balearic, Downtempo>
 magnet:?xt=urn:btih:D0D6B1EC51E938CBF79673C29BB0E7C9517726F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +723,8 @@ Rave The Reqviem - Darkly, powerfully (best) (2014-2018) Compilation Album [MP3|
 ```bash
 magnet:?xt=urn:btih:963B0A9911D0B57FFBC1DED1CEBA7A9212304379
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -676,32 +759,7 @@ VA - New Age Style. Mystical Dance. 2CD [Бутлег] (2009, 2010) [MP3|192-320
 нет
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220115   (705884) от 18.04.2018
-
-Sandra - Collection от ALEXnROCK (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705884.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли лучшие треки певицы. Весь материал взят с оригинальных CD альбомов, в некоторых на слух наверное есть ремастеринг, хотя и написано что оригиналные CD. Да пребудет с нами качественная музыка! Все лучшее для вас. ALEXnROCK01 Maria Magdalena
-02 The Skin I'm In
-03 We'll Be Together
-04 Forever(   Читать дальше...   )Жанр: PopПродолжительность: 03:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E66C220BF5885ED49BB01A13B7EFE02CAA684F5A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Tom Clancy’s EndWar (2008) [PS3] [EUR] 4.41 [Cobra ODE / E3 ODE PRO ISO] [Unof
 magnet:?xt=urn:btih:7BADA8E7424409275AF3F04A27243F1E3B7B1025
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Microsoft Windows 10.0.17763.805 Version 1809 (October 2019 Update) - Ориги
 ```bash
 magnet:?xt=urn:btih:80C2E9F0AD3768F42570E51AEEC824787356638F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ CentOS 7.7 (1908) [i386] 2xDVD, 1xCD
 magnet:?xt=urn:btih:D82D3406080BDBE2A11399D6E423D09D402A7ED0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Naka no Hito Genome [Jikkyouchuu] | The Ones Within | Nakanohito Genome [Jikkyou
 ```bash
 magnet:?xt=urn:btih:44F2680C833A77F63BC6BEB64CB5DCDB7CD4AED3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:44F2680C833A77F63BC6BEB64CB5DCDB7CD4AED3
 magnet:?xt=urn:btih:F691779951C151E5C4136116F975CBD3AC6EED05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:F691779951C151E5C4136116F975CBD3AC6EED05
 ```bash
 magnet:?xt=urn:btih:D3E21D654E72F5B62EEEBE584A47396F8500EB45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Stellarium это бесплатный планетарий для вашего 
 magnet:?xt=urn:btih:510206130CE2ABAFC1B8D17EB5C4F487DBA021EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Creative Fabrica - The Mega Christmas Bundle - 1200+ Graphics All in 1 Cute Bund
 ```bash
 magnet:?xt=urn:btih:2DD54683F9702FF20AB63A3EEF90F1007825D460
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:2DD54683F9702FF20AB63A3EEF90F1007825D460
 magnet:?xt=urn:btih:D83F629D2C4A72527CE8850D1E76D3B016F38E18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ NG. Солнечный фараон Египта: тайны и сокровищ
 ```bash
 magnet:?xt=urn:btih:A818229708ABC33B46DE3DEBE75B9E9442744B72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ Photo Mechanic — фотобраузер и фоторедактор опера
 magnet:?xt=urn:btih:3F4ADAF01D4C5299442745C9BE3052D58909FDB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ MX vs ATV: Untamed (2007) [PS3] [EUR] 1.93 [Cobra ODE / E3 ODE PRO ISO] [License
 ```bash
 magnet:?xt=urn:btih:4ED4B254C50FE1441C3F74E191A26BECBC3AAED7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ Jeff Lynne's ELO - From Out Of Nowhere (2019) [FLAC|Lossless|tracks] <Rock>
 magnet:?xt=urn:btih:9F0FA9798BF32C7808A166151B6311CFD6B30F30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Blade Strangers (2018) [Switch] [USA] 8.1.0 [NSP] [License / 1.3.0] [En]
 ```bash
 magnet:?xt=urn:btih:28D0C074B4192541509A4BF5CEB4FE33B4260253
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ VA - Planet Pop: Summertime Selection (2019) [MP3|320 Kbps] <Pop, Europop, Rnb>
 magnet:?xt=urn:btih:586C1DD9B5264AE4FDC8AA5D2B338245BA469B94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:586C1DD9B5264AE4FDC8AA5D2B338245BA469B94
 ```bash
 magnet:?xt=urn:btih:065274F469117D2B32A844C34252880E4C4EDA2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ Rock Candy Funk Party - американская джазовая фанкова
 magnet:?xt=urn:btih:D7F37D03C7F772AAB1E0F2AB781CEA83CF5D2E72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:D7F37D03C7F772AAB1E0F2AB781CEA83CF5D2E72
 ```bash
 magnet:?xt=urn:btih:78ABF2EE24FA56921FEE07834A7CBE92276DCA1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ magnet:?xt=urn:btih:78ABF2EE24FA56921FEE07834A7CBE92276DCA1C
 magnet:?xt=urn:btih:B1C71B19F41F773BD6597026612C4E871657F86E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ magnet:?xt=urn:btih:B1C71B19F41F773BD6597026612C4E871657F86E
 ```bash
 magnet:?xt=urn:btih:D939CFF69A2334E7B5B0AB1A9BC519EFC2BA788C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ magnet:?xt=urn:btih:D939CFF69A2334E7B5B0AB1A9BC519EFC2BA788C
 magnet:?xt=urn:btih:1BF54A4ABC63978A4A6853BA252086EF9E826996
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:1BF54A4ABC63978A4A6853BA252086EF9E826996
 ```bash
 magnet:?xt=urn:btih:9DA0F1E07B9F3F293E4291C7FB7C60DC7F5E4166
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +608,8 @@ Imagine Dragons - Origins (2018) Deluxe Edition [MP3|320 Kbps] <Indie Rock>
 magnet:?xt=urn:btih:7BE60C827886E3BFFAC5128943DAA3E18A10A541
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +633,8 @@ magnet:?xt=urn:btih:7BE60C827886E3BFFAC5128943DAA3E18A10A541
 ```bash
 magnet:?xt=urn:btih:1BCCE69B747871C490CA11A3A70022DBA5CFBB7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +660,8 @@ magnet:?xt=urn:btih:1BCCE69B747871C490CA11A3A70022DBA5CFBB7C
 magnet:?xt=urn:btih:68EE79B09AEEE3A63732220F8C6ADBA8FCC15C14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ magnet:?xt=urn:btih:68EE79B09AEEE3A63732220F8C6ADBA8FCC15C14
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

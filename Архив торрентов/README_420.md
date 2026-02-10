@@ -21,6 +21,8 @@ Total Commander IT Edition - Уникальная сборка на базе ф�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Puffin Web Browser позволит вам осуществлять более �
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Dynasty Warriors 7 - На десятый год своего существов�
 ```bash
 magnet:?xt=urn:btih:59FFD21FCDE7F678399720872765C3604A482144
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:59FFD21FCDE7F678399720872765C3604A482144
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:59FFD21FCDE7F678399720872765C3604A482144
 magnet:?xt=urn:btih:08C850AA2DB891D4C9A95B4A289253EDB5C52F7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:08C850AA2DB891D4C9A95B4A289253EDB5C52F7A
 ```bash
 magnet:?xt=urn:btih:4E0883F7D783BD5DC0BA4D8FC5DC310977F2FC59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ Google SketchUp Pro - это программное обеспечение, ко
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ Wondershare Disk Manager Free — приложение для операцион
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ Total Commander - популярный файловый менеджер с пр
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ Airwave - Atlas Winds / Chiricahua (2012) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:773A1666C96C172DFC65CD9C580AAFE8482DCC58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ DriverMax - утилита позволяющая загрузить после�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ AppRemover - это нетребующая установки на компью�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ AppRemover - это нетребующая установки на компью�
 ```bash
 magnet:?xt=urn:btih:3D0EC85205A90DFB766CC561C7C3A39F60DB1815
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:3D0EC85205A90DFB766CC561C7C3A39F60DB1815
 ```bash
 magnet:?xt=urn:btih:4C8BF9EF2D86DF08CAD494114052D34016A0B089
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ DesktopOK + x64 2.96 [Multi + Русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ DesktopOK + x64 2.96 [Multi + Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ DesktopOK + x64 2.96 [Multi + Русский]
 magnet:?xt=urn:btih:E24E0DAD3D2AD75B33EBA5CE009C7DAAB61B7B7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ magnet:?xt=urn:btih:E24E0DAD3D2AD75B33EBA5CE009C7DAAB61B7B7A
 ```bash
 magnet:?xt=urn:btih:571E66CF18FC1E85F3CA84C8C727E3BE9FE9F68D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:571E66CF18FC1E85F3CA84C8C727E3BE9FE9F68D
 magnet:?xt=urn:btih:D9D2FDB87A630413803FAF12890D39B1D0D86BC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ XnView 1.98.7 Complete Portable [Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ WinBin2Iso Portable v1.64.9 [Multi + Русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ WinBin2Iso Portable v1.64.9 [Multi + Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +612,8 @@ WinBin2Iso Portable v1.64.9 [Multi + Русский]
 magnet:?xt=urn:btih:5C49E317045A73862D8C55E6522B04EA3DAB77BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ Re: Гримм / Grimm (1 сезон 11 серия (22)) WEB-DLRip 720р [LostFi
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +670,8 @@ Re: Гримм / Grimm (1 сезон 11 серия (22)) WEB-DLRip 720р [LostFi
 magnet:?xt=urn:btih:12FD7F233227CC8F13B85557E420961069C7CA31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ magnet:?xt=urn:btih:12FD7F233227CC8F13B85557E420961069C7CA31
 ```bash
 magnet:?xt=urn:btih:3F67C07B0207EC9EB2FA9E973A30286216761CFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

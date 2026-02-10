@@ -19,6 +19,8 @@ WhatsApp Plus 2 v10.50 [Ru/Multi] (обновляемая)
 magnet:?xt=urn:btih:831D57A2350B89CB61C01EEA19EE3ADA91ED1DDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:831D57A2350B89CB61C01EEA19EE3ADA91ED1DDF
 ```bash
 magnet:?xt=urn:btih:3C40FF52A07B09690C597091323C56B21004376B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Enchant - A Blueprint Of The World (1994) Special Edition, 2CD [FLAC|Lossless|im
 magnet:?xt=urn:btih:613406B4AD43A8AADC87FD3E6BFFDBC428CD0759
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:613406B4AD43A8AADC87FD3E6BFFDBC428CD0759
 ```bash
 magnet:?xt=urn:btih:F6DCE8AA78387586B29E407D178A00AEA113D81E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Wizard - Bound By Metal (1999) [FLAC|Lossless|image + .cue] <Power Metal>
 magnet:?xt=urn:btih:C1D73637829F9FF57C2D3E6FDE7E0C87D492F7F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Wise Registry Cleaner - утилита для безопасной чистки 
 magnet:?xt=urn:btih:DAF1A768D08C628316D3B3BB3C21B67406BB94FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:DAF1A768D08C628316D3B3BB3C21B67406BB94FE
 ```bash
 magnet:?xt=urn:btih:D24F7FE32B4B3A4AB5B5F2CDFD6472B0A097B48C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ Wizard - Magic Circle (2005) [FLAC|Lossless|image + .cue] <Power Metal>
 magnet:?xt=urn:btih:9E6CBF6E985090A863E3769733676347A100253A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:9E6CBF6E985090A863E3769733676347A100253A
 ```bash
 magnet:?xt=urn:btih:F7AD9550737B8598208F204C9CFC557F51705699
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ Skillbox, BangBang, Tagline, Илья Митрошин и др. | Скетчин
 magnet:?xt=urn:btih:34C0975F3FB9A2FA7DDA727E22A4BBC8F96E2586
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ Skiltron - Into The Battleground (2013) [WavPack|Lossless|image + .cue] <Power F
 magnet:?xt=urn:btih:55FEBBC27FCB09F81956F28F3B279B9F930353F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ GraphicConverter 11 — полнофункциональный графичес�
 ```bash
 magnet:?xt=urn:btih:96A0642B8FA083DE899B6B18AFF12F74DC73DC37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ Oracle появилась четверть века назад и по сей д
 magnet:?xt=urn:btih:C2A74F827C17640EA841DCB0FE3D44D306322526
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ ItGid, Лущенко Александр | ООП в JS (2020) PCRec
 magnet:?xt=urn:btih:9470AF99F5E96BED77DF3948261CFD45ED2F95D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ FabFilter TotalBundle - содержит коллекцию последних �
 ```bash
 magnet:?xt=urn:btih:918F70FE540251071D6370821169427F04E25914
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ Xoth - Exogalactic (2023) [FLAC|Lossless|WEB-DL|tracks] <Technical Death, Black,
 magnet:?xt=urn:btih:CA7C9F73B4F86071A9934B123B116D768122775E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:CA7C9F73B4F86071A9934B123B116D768122775E
 ```bash
 magnet:?xt=urn:btih:4AEA1DA35BF582F026AFD59C4E4AD0309FDEE455
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:4AEA1DA35BF582F026AFD59C4E4AD0309FDEE455
 magnet:?xt=urn:btih:317FE68D6CF6AA51C87E133D05EC1DE9CFC56636
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ Keep It 2.3.3 [Multi]
 ```bash
 magnet:?xt=urn:btih:01A3E84BB18DB86E763BE642796F3D99ACB7E8BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:01A3E84BB18DB86E763BE642796F3D99ACB7E8BA
 magnet:?xt=urn:btih:84C605578BBD07A4965795ED7BE7212190EB51B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ NG: Становление Кусто / Becoming Cousteau (2021) WEB-DL [H.264/1
 magnet:?xt=urn:btih:9AF2B1D9742DF15476FB8C8F74EFC6BC47CB981F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +583,8 @@ magnet:?xt=urn:btih:9AF2B1D9742DF15476FB8C8F74EFC6BC47CB981F
 ```bash
 magnet:?xt=urn:btih:7AE5127735C595EC8D6CA586BD67B645492E28D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +613,8 @@ UVI - Model D Falcon 1.6 [En]
 magnet:?xt=urn:btih:FDBFF74B2C8F55A1C756CBB652E4FDD3870C576B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ UltraISO - одна из лучших программ для работы с о
 ```bash
 magnet:?xt=urn:btih:B33BFF3D7A561248557D0F3CAC7B89A783AAEE76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +665,8 @@ magnet:?xt=urn:btih:B33BFF3D7A561248557D0F3CAC7B89A783AAEE76
 magnet:?xt=urn:btih:946FC8139125E4D5B2BC981834375E1A2754D640
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ magnet:?xt=urn:btih:946FC8139125E4D5B2BC981834375E1A2754D640
 ```bash
 magnet:?xt=urn:btih:87E8AD09B0A3A77BB12A865A8857849BF43B7972
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

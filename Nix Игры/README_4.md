@@ -19,6 +19,8 @@ Vaporum - это однопользовательская ролевая игр�
 magnet:?xt=urn:btih:A65EB2FA6E08A68FF4B8D70FF04C2EB15B7FAB20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:A65EB2FA6E08A68FF4B8D70FF04C2EB15B7FAB20
 ```bash
 magnet:?xt=urn:btih:3AB429B30F82F09F99BAABDCAF9B535C62372744
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:3AB429B30F82F09F99BAABDCAF9B535C62372744
 magnet:?xt=urn:btih:A6EAE2AD63A3DABD5079BF3ACABB4A61A69CED88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:A6EAE2AD63A3DABD5079BF3ACABB4A61A69CED88
 ```bash
 magnet:?xt=urn:btih:776A33E9B553F80546EDACD173DFDF4E324927ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:776A33E9B553F80546EDACD173DFDF4E324927ED
 magnet:?xt=urn:btih:443F3A920EA15A3C081876FDD4487B3A9C91D15C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:443F3A920EA15A3C081876FDD4487B3A9C91D15C
 ```bash
 magnet:?xt=urn:btih:74B2A9D38DF213025324E287E5BC66199D0E349A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:74B2A9D38DF213025324E287E5BC66199D0E349A
 magnet:?xt=urn:btih:19F4296E904A3F992719A7953610A277E4FC2037
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:19F4296E904A3F992719A7953610A277E4FC2037
 ```bash
 magnet:?xt=urn:btih:BC9FD5961912BF3D3C4E02D4D4C6BCE794FB6311
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:BC9FD5961912BF3D3C4E02D4D4C6BCE794FB6311
 magnet:?xt=urn:btih:392ECDEAC64C0840F165DDE08F5FEF9AE8020618
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Human: Fall Flat, забавная головоломка, основанная 
 ```bash
 magnet:?xt=urn:btih:EC0E46F0FFF5EF641E4BD56A68EC07FB277F6EDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:EC0E46F0FFF5EF641E4BD56A68EC07FB277F6EDC
 magnet:?xt=urn:btih:24B5CB7A5C43DD152F14B73C3167C1A05EA3FA93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Victor Vran - это изометрический ролевой экшен с �
 ```bash
 magnet:?xt=urn:btih:F3ED730835EE19BBC4AA73252305A4EE269C8A20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Transport Fever – железнодорожный бизнес-симулято
 magnet:?xt=urn:btih:74E43F446FE7A41C25666A6CCDD626819B991664
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Planescape: Torment: Enhanced Edition - переработанное издан�
 ```bash
 magnet:?xt=urn:btih:6EFCE943FCE88184A7457E037968CA2AE2556D09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Moon Hunters - это кооперативная RPG для 1-4 человек, 
 magnet:?xt=urn:btih:77E7353C89CB689BC3732F68F97F4C639BB62F8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ magnet:?xt=urn:btih:77E7353C89CB689BC3732F68F97F4C639BB62F8A
 ```bash
 magnet:?xt=urn:btih:2997118E79B9F8142141C03547484C4D9A17F8F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:2997118E79B9F8142141C03547484C4D9A17F8F6
 magnet:?xt=urn:btih:1CBECAAFA6A406C2524794F42B99665DF78DFAB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ magnet:?xt=urn:btih:1CBECAAFA6A406C2524794F42B99665DF78DFAB2
 ```bash
 magnet:?xt=urn:btih:B51327BB0F6703D271ADFECF99CB50E89419271E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:B51327BB0F6703D271ADFECF99CB50E89419271E
 magnet:?xt=urn:btih:6538AB2A14E20EBBBB543B90807047383AD8D172
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Everything - это интерактив, наполненный всевозм�
 ```bash
 magnet:?xt=urn:btih:7612F1372A867F4C3B31ACEEA45A05820AA62300
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:7612F1372A867F4C3B31ACEEA45A05820AA62300
 magnet:?xt=urn:btih:02F221C054ED144A03988769BAD5212C0083E315
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ magnet:?xt=urn:btih:02F221C054ED144A03988769BAD5212C0083E315
 ```bash
 magnet:?xt=urn:btih:7B45409F7750F218D1247A38DE64D0F6CBCC13A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Braid - это выполненный в живописном стиле пла�
 magnet:?xt=urn:btih:E6D48DE39B3AB696BADA023A797A52A0CEABC6AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ The Final Station - увлекательное сочетание аркадно
 ```bash
 magnet:?xt=urn:btih:FF879BB5DBD7F1BDDD75CD160E560D7E8A554EA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ Little Inferno - новая оригинальная и зажигательна
 magnet:?xt=urn:btih:E287E4BF84D6310B90FD5D05BD982DDC897A5E4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Owlcat Games с гордостью представляют первую изо�
 ```bash
 magnet:?xt=urn:btih:C4FFB7D3572D7F2FFC051CBDCF123E51B47A611B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

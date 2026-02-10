@@ -22,6 +22,8 @@ Jean-Michel Jarre - Essential Recollection (2015) [MP3|320 кб/с]<Ambient, New
 magnet:?xt=urn:btih:7DACC7786D6885A4F5A8938E997C5EFC94DC0C35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Medwyn Goodall - Medicine Woman (1992-2022) Collection 8CD [MP3|320 Kbps] <New A
 ```bash
 magnet:?xt=urn:btih:6B188FD2F09BE35ADF8402C89B88D46BBD3719CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Malte Marten - Lifeline (2021) [FLAC|Lossless|WEB-DL|tracks] <Meditative, Handpa
 magnet:?xt=urn:btih:C2393BFC6D6C726E4521FF4F32942889D6AAB3D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Easy Listening Music: Relaxing Piano Music, Vol. 1 (2015) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:80F35FC38EA887BA674287CC1B495E5C6EE89BEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Franz Lambert - Pur (2001) [MP3|320 Kbps] <Instrumental>
 ```bash
 magnet:?xt=urn:btih:4289948189A70C6290BECF60E5C438487A2602D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +174,8 @@ Kenny G and Rahul Sharma - Namaste (2012) [MP3|320 кб/с]<Smooth Jazz , Saxoph
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +199,8 @@ VA - Mystic & Relax Vol.1(2007) [MP3|192 кб/с]<Enigmatic, New Age>
 ```bash
 magnet:?xt=urn:btih:52214B19ED1535670C6BB5A5DE842289064ABBFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +228,8 @@ Donald Quan - Zen Garden: Music For Relaxation (2013) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:8014C277E08C761E65A5EAC15D0F9E838809FE43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +264,8 @@ Various artists - The Muppets Original Motion Picture Soundtrack (2011) [MP3|320
 magnet:?xt=urn:btih:071C38B229115B52A41F1474D51622B157E293DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -281,6 +299,8 @@ Emilie Autumn - Fight Like A Girl (2012) [FLAC|Lossless]<Dark Cabaret, Gothic, D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +327,8 @@ Black Mango - Quicksand (2022) [FLAC|Lossless|WEB-DL|tracks] <African Blues Rock
 ```bash
 magnet:?xt=urn:btih:00952DF2E4E6A694C49814C3CEB7297494F30038
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +357,8 @@ Cliff Martinez - Too Old To Die Young (2019) Original Series Soundtrack  2CD [FL
 magnet:?xt=urn:btih:9E99CBC2B2FA69BF8849508937207CDDC00942A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +382,8 @@ magnet:?xt=urn:btih:9E99CBC2B2FA69BF8849508937207CDDC00942A7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +412,8 @@ Ilyin - Enemy (2019) [MP3|320 Kbps] <Instrumental, Neo-Classic, Metal>
 magnet:?xt=urn:btih:D8E7FDE585A7E15F0E151DF47B613BB1982367CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +440,8 @@ Karunesh (Карунеш) - The Way of the Heart (2005) [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:89EE41514E200CFA5F6EF57EBB17061A60937A64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +470,8 @@ DYATHON - Serenity (2017) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, Ne
 magnet:?xt=urn:btih:1D6A4B2C21A68169CF4A3E31427D95C2CBF688F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +498,8 @@ Brian Kelly - Tomorrow's Daydream (2018) [MP3|320 Kbps] <Piano, Neo-Classical, I
 ```bash
 magnet:?xt=urn:btih:995426FC52356363FA07E2E48377808F9537DC01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +528,8 @@ VA - BEST of 100 OST (2015) [MP3|320 кб/с]<Soundtrack>
 magnet:?xt=urn:btih:2C6F21BE2B64229F09673A0026612B670C6AFC3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +556,8 @@ Xiu Xiu - Haitian Drums: Girl with Basket of Fruit (2019) EP [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:EE2CAA724D576019D2DA60099E93942458619565
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +592,8 @@ CD1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +620,8 @@ Bernward Koch - Tree Tales (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern
 ```bash
 magnet:?xt=urn:btih:52416231708C722DB98A66106F0FF173738ABD94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +650,8 @@ VA - Street Hits 70s (2018) [MP3|320 Kbps] <Boogie, R&B, Soul-Jazz, Gospel Music
 magnet:?xt=urn:btih:EF9F1A462B5E9C1815DF0DAB36F768529E7AB8E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +678,8 @@ Cyril Baranov - Rosa (2018) [MP3|320 Kbps] <New Age, Neo-Classical>
 ```bash
 magnet:?xt=urn:btih:57F3E78917DCAEE43CAA83A77F4BD7C9F8C8E8D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -662,6 +708,8 @@ Dan Owen - Stay Awake with Me (2018) [MP3|320 Kbps] <Folk-Rock, Pop, Soul>
 magnet:?xt=urn:btih:12822CB589729E7D0042D312C8175414D8D2A1E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -689,6 +737,8 @@ magnet:?xt=urn:btih:12822CB589729E7D0042D312C8175414D8D2A1E8
 magnet:?xt=urn:btih:099D921663F18F6676FA835188AC7B52CD300186
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -715,6 +765,8 @@ Wilbert Roget, II - Mortal Kombat 11 (Original Game Soundtrack) (2019) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:2E9BD7D9600DB23B7E3B08F3BA949936330DD6EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

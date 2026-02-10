@@ -1,3 +1,38 @@
+###  Публикация: 550034   (448168) от 26.09.2012
+
+VA - Инструментальная музыка (2012) vol. № 81 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. G.Marradi - Rain And Tears
+02. T.Timmermans - Andrea With The Flowered Bag
+03. H.Marvin & The Shadows - Riders In The Sky
+04. Mario Battaini - Malaguena
+05. С.Панкратов & Б.Леготин - На тот большак
+06. The Ventures - Tequila
+07. R.Clauderman - I'm Not In Love
+08. Karunesh - Expansion
+09. Русские ДиДжеи - Чародеи
+10. Antonio De Lucena - Luceros(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:56:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B39A5C5C849843A7BEC4F4CC87813E457CE47150
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1163758   (448284) от 06.09.2017
 
 VA - US Dance Airplay Hot 50 September 2017 [MP3|320 Kbps] <Pop>
@@ -21,6 +56,8 @@ VA - US Dance Airplay Hot 50 September 2017 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:7314596A564BA1F1075406FC5CD6214B068553BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +85,8 @@ VA - Зайцев.нет: Лучшие новинки Сентября 2018 [MP3
 ```bash
 magnet:?xt=urn:btih:33AF64A39CB3B64B82CCA34DD6EC97CA76859309
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +121,8 @@ VA - Сладкая парочка.Только лучшие треки (2012) [
 magnet:?xt=urn:btih:D1604160272D965429E374507FEBB75D4DE32FB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +149,8 @@ VA - Pandemonium: Syntwave Music (2017) [MP3|320 Kbps] <Synthwave, Synthpop, Ele
 ```bash
 magnet:?xt=urn:btih:7A826FF6375FF2381C3D26A6BD729E2E12971576
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +179,8 @@ VA - Digital Tech House (2017) [MP3|320 Kbps] <Tech House, Minimal Electro>
 magnet:?xt=urn:btih:25A8C94315F634FC72B70CC4D4162F0724A08EA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +207,8 @@ VA - Disco Space Travels (2018) vol. 2 [MP3|320 Kbps] <Electronic, Space Disco>
 ```bash
 magnet:?xt=urn:btih:D763E8AC9B29D3233183298C86453D6BB63E0D07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +237,8 @@ VA - 50 Sax Jazz Classics (2015) [MP3|320 Kbps] <Jazz>
 magnet:?xt=urn:btih:95CA7720C30DE17D7736BB8FB377369D36A4BAD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +265,8 @@ VA - Сто хитов на Hit FM. Русский сборник (2016) [MP3|25
 ```bash
 magnet:?xt=urn:btih:44E09211E1732AF401FCF4DDFA95CD35F7E8C977
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +295,8 @@ VA - Workout Mix vol.6 (mixed by Dj V) (2016) [MP3|320 Kbps] <Club House, Electr
 magnet:?xt=urn:btih:3CA242123674E80F184266DCE7F32F886A69F869
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +324,8 @@ VA - Empire Records: 100% Goa (2017) [MP3|320 Kbps] <Trance, Psy-Trance>
 magnet:?xt=urn:btih:A3B1E2886F63CC300204E724B85E4BBECEF40120
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +352,8 @@ VA - Electro House Pool Party (2018) [MP3|320 Kbps] <Club, Dance, House>
 ```bash
 magnet:?xt=urn:btih:CAC63A74CFCAE2D6F9C5999F93804CB5212B2BC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +388,8 @@ VA - Хит Парад Танцевальной Музыки Русский (201
 magnet:?xt=urn:btih:ADB8C26FBEB1D3DA085B67F76F74D4580232457C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +416,8 @@ VA - Deep House Collection Vol.92 (2016) [MP3|320 Kbps] <Deep House, Club House,
 ```bash
 magnet:?xt=urn:btih:C9C4F5FE18A3C273C990065E3D431E9670F772C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +446,8 @@ VA - Звёзды Радио Эфиров Осень (2016) [MP3|256~320 Kbps] <
 magnet:?xt=urn:btih:8F4D8390C0B93FE0802E0470440885A31F93D2EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +474,8 @@ VA - BacauHouseMafia Vol.13 (2016) [MP3|320 Kbps] <Trance, Vocal Trance, Progres
 ```bash
 magnet:?xt=urn:btih:2590B390053C8D4B212AD9BAD88B822448831B9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +504,8 @@ VA - Oriental Deep (2022) [MP3|320 Kbps] <Deep House>
 magnet:?xt=urn:btih:8A7D4CDF0B60AF7C4D65F230D725304C41982DEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +532,8 @@ ABBA - Good Songs (ABBA) [MP3|160 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:3F55240B2D33CBF80962CB50739E60E3C0F7A6E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +562,8 @@ Boney M - Good Songs (2015) [MP3|192 кб/с]<Disco, Pop>
 magnet:?xt=urn:btih:AC40D84A3687BEC50B1711A9AA12BF46D17D9492
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +590,8 @@ VA - Популярный драйвовый хитовичок. Часть 5 (2
 ```bash
 magnet:?xt=urn:btih:75FE5233046F548938F06FFB376C865CCAAF7A95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +620,8 @@ VA - 160 Future House & Wonders EDM (2016) [MP3|320 Kbps] <House, Electro House,
 magnet:?xt=urn:btih:F87AAE87EB7C697CF2471AD97A6D77F361FF5B57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +648,8 @@ VA - Bass Future Welcome Sounds (2016) [MP3|247~320 Kbps] <House, Electro House,
 ```bash
 magnet:?xt=urn:btih:381F8A4309DEA59655DDE234D92FFB901F416055
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +684,8 @@ VA - Hot Dance Autumn Vol.3 (2012) [MP3|320 кб/с]<Dance, Club>
 magnet:?xt=urn:btih:E8D69AD240A97EAF8CB1945C1E3C15C3AEAACD22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +712,8 @@ VA - Turbo дискотека NRJ (2015) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:77F59F87BE0E06E2E0BC4C959086963A6A9E1F63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -661,6 +742,8 @@ VA - Ultimate Future Other Styles House (2016) [MP3|239~320 Kbps] <House, Future
 magnet:?xt=urn:btih:6ADDEEE9C192D0AC060853AE669C0AE2E785D90A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -688,32 +771,7 @@ VA - Schlager Hits Total: Remix Edition (2022) [MP3|320 Kbps] <Dance, Pop>
 magnet:?xt=urn:btih:70EA1AA79EB47E7C53E7D1FC13681A5148E95CD6
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943149   (449429) от 03.10.2015
-
-Medwyn Goodall - Beautiful World (2015) [MP3|320 кб/с]<New Age>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unbroken [00:06:02]
-02. Threshold [00:06:31]
-03. Beautiful World [00:05:43]
-04. Blue Skies [00:05:57](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:267F5EF40686FD9D79BDD86F8570F78B539A89A2
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

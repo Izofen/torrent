@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:939AF40DDAE4F6573950DF316DBE8E4F10F1CE89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:939AF40DDAE4F6573950DF316DBE8E4F10F1CE89
 ```bash
 magnet:?xt=urn:btih:56274FE2C4D4BC28372C7113D3FAD5CE45E8A2A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:56274FE2C4D4BC28372C7113D3FAD5CE45E8A2A4
 magnet:?xt=urn:btih:31E7EF77D06CEF79E89A71B22CEB08156FEF41E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:31E7EF77D06CEF79E89A71B22CEB08156FEF41E6
 ```bash
 magnet:?xt=urn:btih:4760F31648A17A23EA9F88ED541AA0E29409B177
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:4760F31648A17A23EA9F88ED541AA0E29409B177
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ White Dragon Project - The Story Of Gaia (2023) [FLAC|Lossless|WEB-DL|tracks] <H
 magnet:?xt=urn:btih:291302E5FF5139034609334574B3D196D76A8BE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:291302E5FF5139034609334574B3D196D76A8BE5
 ```bash
 magnet:?xt=urn:btih:563D1FA69CB1F41055A5ADE9FE64DBB8103BD5D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:563D1FA69CB1F41055A5ADE9FE64DBB8103BD5D6
 magnet:?xt=urn:btih:5408CFDE7E898E4DBE9FF484EB77C9744E9C24B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ MediaInfo — программа для получения подробной т
 ```bash
 magnet:?xt=urn:btih:E83FDB836AD42780FB7FDA4A611114C117878509
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ Adiant - Killing Dreams (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Melodic
 magnet:?xt=urn:btih:DE5441F6E46E8863FDF25911AF8DE4A575975FE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ File List Export (бывший File list to Excel) - простое в испо�
 ```bash
 magnet:?xt=urn:btih:B1C077267391344A93899634723FCEBE2BC1B7CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ Acroma - Burning Creation (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Me
 magnet:?xt=urn:btih:4B655BED81F019A9FA923E9C08CC5E8C6988AC0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ Adaimon - World of Fear (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Meta
 magnet:?xt=urn:btih:D85070FCD7A6537C27B7C5AD59CCE070FE677F57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ Text Workflow 1.6.6  [En]
 magnet:?xt=urn:btih:92BDFD45D739739289EBCB3367CD80FABDBE1A36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:92BDFD45D739739289EBCB3367CD80FABDBE1A36
 ```bash
 magnet:?xt=urn:btih:5878264A050D1A016788BACC68FFFC54A14AC223
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +429,8 @@ Nixil - All Knots Untied (2021) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 magnet:?xt=urn:btih:EE43DD47721AAE0FB1CABFF61B0E37809A7A858B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ Advent of Fire - Verikaste (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 magnet:?xt=urn:btih:0CC6766D55F854F79DC2051E3E9526E9319ADFD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ magnet:?xt=urn:btih:0CC6766D55F854F79DC2051E3E9526E9319ADFD0
 ```bash
 magnet:?xt=urn:btih:210F4E27DCC78437792BE9BED92076D9AB2DEA87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +510,8 @@ Windows 10 22H2 (19045.2251) x64 (3in1) by Brux [Ru]
 magnet:?xt=urn:btih:7712689F9EDE29525D87F24B91AC4C2DD24033EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ Visual Studio Enterprise 2022 - Интегрированное комплекс�
 ```bash
 magnet:?xt=urn:btih:62CFB07321341F329793EC8A310B16F20D973456
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +562,8 @@ magnet:?xt=urn:btih:62CFB07321341F329793EC8A310B16F20D973456
 magnet:?xt=urn:btih:E9BDEB15A7A5CB86C58511B4090DA8D4C7D0989C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +587,8 @@ magnet:?xt=urn:btih:E9BDEB15A7A5CB86C58511B4090DA8D4C7D0989C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +615,8 @@ WinPaletter v1.0.6.3 Portable [En]
 magnet:?xt=urn:btih:E223E7293DD661E39EC92037504576DF2387562E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +640,8 @@ magnet:?xt=urn:btih:E223E7293DD661E39EC92037504576DF2387562E
 ```bash
 magnet:?xt=urn:btih:FCCADDCF6606A51B37F74CE03BD20D6AC8662442
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +667,8 @@ magnet:?xt=urn:btih:FCCADDCF6606A51B37F74CE03BD20D6AC8662442
 magnet:?xt=urn:btih:E124A9EAD0834A1B646E2FE760F843D318774E50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ magnet:?xt=urn:btih:E124A9EAD0834A1B646E2FE760F843D318774E50
 ```bash
 magnet:?xt=urn:btih:E2036B962CE4662C67C171377F31CC99F1F70A90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

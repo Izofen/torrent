@@ -20,6 +20,8 @@ The Little Schemer – не просто введение в функциона�
 magnet:?xt=urn:btih:B01D22D357B8C7A9BE9E62EFDE6EEF9175D1C8BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:B01D22D357B8C7A9BE9E62EFDE6EEF9175D1C8BB
 ```bash
 magnet:?xt=urn:btih:1BF366739D829498789F367486F94F84F2E97296
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:1BF366739D829498789F367486F94F84F2E97296
 ```bash
 magnet:?xt=urn:btih:FBBDD8C5E5DC410CCB168FBD5FE7A74B13E6DADC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Elasticsearch – мощный инструмент для работы с бо�
 magnet:?xt=urn:btih:A4590777DA1523849F689EB0CCD3B5832CF2899D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:A4590777DA1523849F689EB0CCD3B5832CF2899D
 magnet:?xt=urn:btih:46E508E0BFE0890644348EA77E26166126863AFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:46E508E0BFE0890644348EA77E26166126863AFF
 ```bash
 magnet:?xt=urn:btih:BA1D83A9EBE5584904CDD3F4A0449C9C303DF9E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:BA1D83A9EBE5584904CDD3F4A0449C9C303DF9E1
 magnet:?xt=urn:btih:F25D363BDB5F8F5B58BF53F4B7C0BACA4C977DFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:F25D363BDB5F8F5B58BF53F4B7C0BACA4C977DFB
 ```bash
 magnet:?xt=urn:btih:6A1AF8E65C35267F8F2F5E6CF1E584F66B3B42E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:6A1AF8E65C35267F8F2F5E6CF1E584F66B3B42E7
 magnet:?xt=urn:btih:ADF164E2BC881AE1A1FD25F522109F23F2020505
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:ADF164E2BC881AE1A1FD25F522109F23F2020505
 magnet:?xt=urn:btih:F25390DEA1E02D3B431441F9266634E7BA045DBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Elizabeth Noble | Pro T-SQL 2022, 2nd Edition (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:E70C177BE6BC94D9CF5DBF9B181B49E266C3ED79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Colleen M. Farrelly, Yae Ulrich Gaba | The Shape of Data (2023) [PDF][EN]
 magnet:?xt=urn:btih:65DE10B342BDB7FE12A69865E433295B5C48425B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Aditya Iyengar | Build Your Own Web Framework in Elixir (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:2A867F35A439AF024A542163128B279D267AEDAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ Harsh Bhasin PhD | Python Programming Using Problem Solving (2023) [PDF][EN]
 magnet:?xt=urn:btih:4C901088288F70BA6919A6F8B9CA98D0EA09CA2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Deven Joshi | Building Cross-Platform Apps with Flutter and Dart (2023) [PDF][EN
 ```bash
 magnet:?xt=urn:btih:8408305603D8C0988554C4F57E84D76630FE5A31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Cеть Lightning (Lightning Network, LN) – это быстро развива
 magnet:?xt=urn:btih:BD65EB445F3B909F9BFC04AA81C1374D365C331D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ FPGA (Field-Programmable Gate Array, программируемые пользо
 ```bash
 magnet:?xt=urn:btih:358884DAC434A7D77144D5399A2B11D75DEAC87B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ Josh Steele, Renan Dias | Real-World iOS by Tutorials (2022) [PDF][EN]
 magnet:?xt=urn:btih:4675FF1086FE4B7BA20F02D2CA9F70D66E85104C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ James Gough, Daniel Bryant, Matthew Auburn | Mastering API Architecture (2022) [
 ```bash
 magnet:?xt=urn:btih:250DE521C3BD339634A60F800A8B4ADEAACF8C63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:250DE521C3BD339634A60F800A8B4ADEAACF8C63
 magnet:?xt=urn:btih:570BE8EDF31C0BCF3093EA08D64193BB0E6885AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:570BE8EDF31C0BCF3093EA08D64193BB0E6885AE
 ```bash
 magnet:?xt=urn:btih:BA8788EDB8EFAD457BDD768B4007D6EE63210339
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ Ivor Horton, Peter Van Weert | Beginning C++23, 7th ed. Edition (2023) [PDF][EN]
 magnet:?xt=urn:btih:000F0F10BF6EFCB6DE6B08723F1D347085B99E7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:000F0F10BF6EFCB6DE6B08723F1D347085B99E7E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ TinyML – технология, призванная расширить исп�
 magnet:?xt=urn:btih:1A6490AA0D1B85C8E6A01026BA32ED2024458C6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ Vinci J Rufus | Building Micro Frontends with React 18 (2023) [PDF][EN]
 magnet:?xt=urn:btih:07046E6D64A11C0BF1A28A875653F7F036F8172E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ Oswald Campesato | Python for Absolute Beginners (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:65E4158257DD6AD3D4349847606C53885D7F9330
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

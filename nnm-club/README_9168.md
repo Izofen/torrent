@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:47C61D25AA73209EF94E40E18BD2123EA3EF77AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:47C61D25AA73209EF94E40E18BD2123EA3EF77AC
 ```bash
 magnet:?xt=urn:btih:8A7A7B91D0E4FB74F3F7471EA69EAAD33B006688
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Christmas Forest Opener Neon - магические, парящие в возд�
 magnet:?xt=urn:btih:7343CA07FC807C27DEC1A02DEC7DC48A631BA845
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:7343CA07FC807C27DEC1A02DEC7DC48A631BA845
 ```bash
 magnet:?xt=urn:btih:8536B71074C00D5E0888596AD3B70DF707653750
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Screamer 2 (1996) [En] (1.00) License GOG
 magnet:?xt=urn:btih:ACA4FA710FFBE7B319BE58E3B719F677002DCDC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:ACA4FA710FFBE7B319BE58E3B719F677002DCDC7
 ```bash
 magnet:?xt=urn:btih:F2924BB67BAE55B702AC01DFF723436B902E3D88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:F2924BB67BAE55B702AC01DFF723436B902E3D88
 ```bash
 magnet:?xt=urn:btih:3A6ECFFDE51391BD270D0D889318AAC6CDDAB40A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ AC/DC - Transmission Impossible Legendary Broadcasts From The 1970s (2016) [MP3|
 magnet:?xt=urn:btih:66ED06E985F80B7F0AE0FE31045B35139A17EEDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:66ED06E985F80B7F0AE0FE31045B35139A17EEDC
 ```bash
 magnet:?xt=urn:btih:D605A8F40E97D9E4527071AFAEF2C61A84B36D7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:D605A8F40E97D9E4527071AFAEF2C61A84B36D7F
 ```bash
 magnet:?xt=urn:btih:6C44178BBD2C5258821C509545E650A545B3F94F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ VA - Revolution Nu-disco (2015) [MP3|320 кб/с]<House, Disco,Indie Dance,Nu-Di
 magnet:?xt=urn:btih:B07A622860DF1A666C0E3F6FEFC838559B9C4AF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ Jay Soto - Veritas (2015) [MP3|320 кб/с]<Smooth Jazz, Instrumental, Acoustic 
 ```bash
 magnet:?xt=urn:btih:262F1214FD367EC177F1953A5D95A0EC58FD01D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ Fridrik Karlsson - Total Chillout (2009) [APE|image+.cue]<New Age, Instrumental,
 magnet:?xt=urn:btih:153193FC0C8D320F1EF24066DEA6EAD0AE459F43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:153193FC0C8D320F1EF24066DEA6EAD0AE459F43
 ```bash
 magnet:?xt=urn:btih:0BBFBC4937E73434982B958E1E8A407F71EE9E11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ Khymera - The Grand Design (Japanese Edition) (2015) [FLAC|Image+cue]<Melodic Ro
 magnet:?xt=urn:btih:07C7DD2759E2685B04F8825EFA1E1E01278EBA2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ VA - Christmas with the Rat Pack (2002) [MP3|320 кб/с]<Jazz>
 magnet:?xt=urn:btih:D3EDC235A7C6E86A9B255855D9F312FF2F74B672
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ magnet:?xt=urn:btih:D3EDC235A7C6E86A9B255855D9F312FF2F74B672
 ```bash
 magnet:?xt=urn:btih:2D668CC81D892CDF3F387A0FD5620BB2CB926E86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +484,8 @@ magnet:?xt=urn:btih:2D668CC81D892CDF3F387A0FD5620BB2CB926E86
 magnet:?xt=urn:btih:C38D29322B60A111D3E95866CE677DAC2EC326D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ magnet:?xt=urn:btih:C38D29322B60A111D3E95866CE677DAC2EC326D0
 ```bash
 magnet:?xt=urn:btih:DDE29ECD85C0F568D1BF9C9C430E69C2B47DC5BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:3CE39E711D99BD886AC94C9773C38F3CFE65BDDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ magnet:?xt=urn:btih:3CE39E711D99BD886AC94C9773C38F3CFE65BDDE
 magnet:?xt=urn:btih:55F9590C8371C3DEDB2B3C9F9879A26BBFF3B890
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +587,8 @@ magnet:?xt=urn:btih:55F9590C8371C3DEDB2B3C9F9879A26BBFF3B890
 ```bash
 magnet:?xt=urn:btih:2C53966072E4A2F94B8AFF31CAE9422E2AFDD1CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +617,8 @@ Ayala - This Year (2015) [OGG|469-523 кб/с]<Alternative Indie Pop>
 magnet:?xt=urn:btih:627E605B35086F77DEA34A475A4FF1EC4B3FE028
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +642,8 @@ magnet:?xt=urn:btih:627E605B35086F77DEA34A475A4FF1EC4B3FE028
 ```bash
 magnet:?xt=urn:btih:64791DF887B877439AD0C44D2ECD62DC5594A011
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +669,8 @@ magnet:?xt=urn:btih:64791DF887B877439AD0C44D2ECD62DC5594A011
 magnet:?xt=urn:btih:7C33E12C98B79962DB0D525B3FB7D7EA24495785
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ magnet:?xt=urn:btih:7C33E12C98B79962DB0D525B3FB7D7EA24495785
 ```bash
 magnet:?xt=urn:btih:D8014A952724AD97FF2CDEDAE39D7824E38A64A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

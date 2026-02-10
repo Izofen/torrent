@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:5018889976934017D2817FA141F33CB56C03A63B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:5018889976934017D2817FA141F33CB56C03A63B
 ```bash
 magnet:?xt=urn:btih:B0C9C569E2BA66C4225B1FE4C14A24BB76AAD6C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ FinePrint - это многофункциональный драйвер для 
 magnet:?xt=urn:btih:4BF27ABAE471DF655469E7BC484EC468D4716D5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:4BF27ABAE471DF655469E7BC484EC468D4716D5A
 ```bash
 magnet:?xt=urn:btih:EB21E9DC0D66DDC430896CD8B613A777101821AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Udemy, Ines Ivanova-Kenova | Complete FastAPI REST course + AWS + Emails + Payme
 magnet:?xt=urn:btih:99B45A6D449043A3FB96637D6C1CB7E52F219F0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Bootstrap Studio - мощная программа для создания кр�
 ```bash
 magnet:?xt=urn:btih:8DDA8C6C92BA23ACE83A81F24CB3225F17B2CF22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:8DDA8C6C92BA23ACE83A81F24CB3225F17B2CF22
 magnet:?xt=urn:btih:ADFC465F9E4367CA9E1F15B143561006AD80FF15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:ADFC465F9E4367CA9E1F15B143561006AD80FF15
 ```bash
 magnet:?xt=urn:btih:8402216C6BDC44A1E25EF54151EAAB7994CF9146
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Morph EQ может трансформировать (   Читать даль�
 magnet:?xt=urn:btih:4B7265524CAD2185917119E3A2A5AB8D9082EF78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:4B7265524CAD2185917119E3A2A5AB8D9082EF78
 ```bash
 magnet:?xt=urn:btih:61DE3A7E25E5F92897D31FCD58929FE24E8CE1C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:61DE3A7E25E5F92897D31FCD58929FE24E8CE1C9
 magnet:?xt=urn:btih:28DE86AF8AC4DEC2A01F232C5E9FFC256AE3B9B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:28DE86AF8AC4DEC2A01F232C5E9FFC256AE3B9B6
 ```bash
 magnet:?xt=urn:btih:40D5174FB0EAEC45171391CC1CCFF5FC60540676
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ WSCC (Windows System Control Center) - портативная программа
 magnet:?xt=urn:btih:0BF8F18D6E2837177A7B7D13BB0993EBDEA626FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:0BF8F18D6E2837177A7B7D13BB0993EBDEA626FB
 ```bash
 magnet:?xt=urn:btih:44C79F2F2E598C955BCAA005084A17B5617AE205
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:44C79F2F2E598C955BCAA005084A17B5617AE205
 magnet:?xt=urn:btih:3D3FF7184B2343A4A311DA56F4F340A810355191
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:3D3FF7184B2343A4A311DA56F4F340A810355191
 ```bash
 magnet:?xt=urn:btih:B73191F0DB0D87DBFBB984B31C0D9AB840A23564
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:B73191F0DB0D87DBFBB984B31C0D9AB840A23564
 magnet:?xt=urn:btih:12E86CA4FF36189BE439255C8B84177E8170F84F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:12E86CA4FF36189BE439255C8B84177E8170F84F
 ```bash
 magnet:?xt=urn:btih:0BCF219B2FAA04E9D70B641C8FFAE6A586B2CBE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:0BCF219B2FAA04E9D70B641C8FFAE6A586B2CBE4
 magnet:?xt=urn:btih:D0206F93415C0D1C05E15376DCDF727499583C7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:D0206F93415C0D1C05E15376DCDF727499583C7B
 ```bash
 magnet:?xt=urn:btih:156346144631C79A0B0729F7D023EC19E773A586
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ OBS Студия - бесплатное программное обеспече�
 magnet:?xt=urn:btih:BFB3401B7442201EF09824038B8921DDB41ACA9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:BFB3401B7442201EF09824038B8921DDB41ACA9A
 ```bash
 magnet:?xt=urn:btih:564AA30AACEEE11EAD574E2BD82F955133DB15C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:564AA30AACEEE11EAD574E2BD82F955133DB15C5
 magnet:?xt=urn:btih:E286C4B87D27F19D8E259FEBFE6D8A419E59E2E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:E286C4B87D27F19D8E259FEBFE6D8A419E59E2E6
 ```bash
 magnet:?xt=urn:btih:9054ECB29A3DCE1C4FFD6D29487C72D6AB604236
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:9054ECB29A3DCE1C4FFD6D29487C72D6AB604236
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:9054ECB29A3DCE1C4FFD6D29487C72D6AB604236
 ```bash
 magnet:?xt=urn:btih:4469B07917C607104DE5DC78EAAD91D7E3CB2014
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

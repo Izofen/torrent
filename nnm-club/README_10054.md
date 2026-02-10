@@ -1,54 +1,3 @@
-###  Публикация: 1580912   (328805) от 03.10.2022
-
-Everything 1.4.1.1021 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Everything – это поисковый движок для Windows. Everything позволяет мгновенно находить файлы и/или папки по их именам. Для найденных результатов, в окне программы, применимы основные файловые операции доступные обычно из контекстного меню Windows Explorer. Everything не использует при работе индексирование содержимого файлов поэтому поиск происходит моментально, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38B3DE8E4A3B50C62A7174F2023EF87166C15622
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580891   (328806) от 03.10.2022
-
-VA - Motivation Mix 3 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Hype - Ferrari (3:05)
-02. LF SYSTEM - Afraid To Feel (2:57)
-03. Alesso - Words (feat. Zara Larsson) (2:22)
-04. Gryffin - Reckless (with MØ) (2:35)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:05:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87FD80BDA54738869486281EE94F44F4A3B0CC62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580977   (328807) от 03.10.2022
 
 OBS Studio 28.0.3 + Portable (x64) [Multi/Ru]
@@ -71,6 +20,8 @@ OBS Студия - бесплатное программное обеспече�
 ```bash
 magnet:?xt=urn:btih:2E46B1AA575B297E81D5204B9F3B63159D91D5FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +47,8 @@ magnet:?xt=urn:btih:2E46B1AA575B297E81D5204B9F3B63159D91D5FF
 magnet:?xt=urn:btih:9F6E53E4D4BE1024F1ED853B15CB104AFC240021
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +72,8 @@ magnet:?xt=urn:btih:9F6E53E4D4BE1024F1ED853B15CB104AFC240021
 ```bash
 magnet:?xt=urn:btih:354E89B314FF11E51DEF6C9D8F9149ABC2B0C4B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +99,8 @@ magnet:?xt=urn:btih:354E89B314FF11E51DEF6C9D8F9149ABC2B0C4B7
 magnet:?xt=urn:btih:38B49E4FC1A11B50DA8FA62DD7E89F047530CF1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +124,8 @@ magnet:?xt=urn:btih:38B49E4FC1A11B50DA8FA62DD7E89F047530CF1B
 ```bash
 magnet:?xt=urn:btih:6197807900E7151F2788BEDEAB1EA39149A03E2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +151,8 @@ magnet:?xt=urn:btih:6197807900E7151F2788BEDEAB1EA39149A03E2D
 magnet:?xt=urn:btih:C451F37A896D6336F5DF72DA1A042DC7702D09F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +176,8 @@ magnet:?xt=urn:btih:C451F37A896D6336F5DF72DA1A042DC7702D09F6
 ```bash
 magnet:?xt=urn:btih:2743C3C09899FA938C185C9957EF063DA94A1E55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +206,8 @@ magnet:?xt=urn:btih:2743C3C09899FA938C185C9957EF063DA94A1E55
 magnet:?xt=urn:btih:638BE196073227D50644A97553DE56EBA2765CD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +231,8 @@ magnet:?xt=urn:btih:638BE196073227D50644A97553DE56EBA2765CD7
 ```bash
 magnet:?xt=urn:btih:2133DACFE55428216BD5797F162DE77C29D87551
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +258,8 @@ magnet:?xt=urn:btih:2133DACFE55428216BD5797F162DE77C29D87551
 magnet:?xt=urn:btih:1B6013B5FA64A67EBDF63192ED63158208A8656C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +283,8 @@ magnet:?xt=urn:btih:1B6013B5FA64A67EBDF63192ED63158208A8656C
 ```bash
 magnet:?xt=urn:btih:98B8F1F9BD615A3AEEF5C8E905AE74E41719D148
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +310,8 @@ WSCC (Windows System Control Center) - портативная программа
 ```bash
 magnet:?xt=urn:btih:EE55CA4C78382BF156D17910B048539EC3BC3567
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +340,8 @@ magnet:?xt=urn:btih:EE55CA4C78382BF156D17910B048539EC3BC3567
 magnet:?xt=urn:btih:4DA89941984295D303773CE8E3481CFA14306EDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +365,8 @@ magnet:?xt=urn:btih:4DA89941984295D303773CE8E3481CFA14306EDB
 ```bash
 magnet:?xt=urn:btih:CBC564F11AB7509D37E416AA40E930E7CC6732FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +392,8 @@ magnet:?xt=urn:btih:CBC564F11AB7509D37E416AA40E930E7CC6732FF
 magnet:?xt=urn:btih:F01722D2A46F8254BE64FC743787AF6AFD8305CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +418,8 @@ BurnAware - простая и в тоже время мощная програм
 magnet:?xt=urn:btih:E9AD584344EE9EA7DC06A7E4F2F2752DF8491162
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +443,8 @@ ZD Soft Screen Recorder - программа для записи видео с �
 ```bash
 magnet:?xt=urn:btih:60BC68CE71ADD2102208F22D7DA60DFFAF3F32EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +472,8 @@ magnet:?xt=urn:btih:60BC68CE71ADD2102208F22D7DA60DFFAF3F32EC
 magnet:?xt=urn:btih:6836A9A7DD94F3D1D0D3F9BD23D5289C33CCB158
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +498,8 @@ magnet:?xt=urn:btih:6836A9A7DD94F3D1D0D3F9BD23D5289C33CCB158
 magnet:?xt=urn:btih:D81E6525EDA2E43AE948454C4002337550E53414
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +523,8 @@ magnet:?xt=urn:btih:D81E6525EDA2E43AE948454C4002337550E53414
 ```bash
 magnet:?xt=urn:btih:539607D01D025F52D01140A24E370161AEC3E723
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +553,8 @@ Condra - Aeonic Tempest from the Abyss (2022) [FLAC|Lossless|WEB-DL|tracks] <Mel
 magnet:?xt=urn:btih:BF491213DBA1A5E3AAE54A3419C77A4B352E58C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +578,8 @@ Aiseesoft Screen Recorder 2.6.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B05081475742F3B006027248642F853784A314D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +605,8 @@ RadioMaximus 2.30.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:13A9C057AF9A94EDB3B485434A9A7C5C0754286D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +631,63 @@ magnet:?xt=urn:btih:13A9C057AF9A94EDB3B485434A9A7C5C0754286D
 ```bash
 magnet:?xt=urn:btih:58881F194C02C78F942274F55F54860B5F8FAE15
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580936   (328890) от 03.10.2022
+
+Формула 1. Сезон 2022. Этап 17. Гран-при Сингапура. Гонка (02.10.2022) WEB-DL [H.264/720p] [50fps]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_328890.jpg" />
+</div>
+
+
+###  Подробнее
+
+2 октября 2022, воскресенье. 16:05 МСК. Этап 17, Сингапур. Гран-при Сингапура. Гонка (61 круг)Телекомпания: F1TV HDЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 02:36:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03F7125320787C91CBC096FA39C650973EBCCB54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580953   (328891) от 03.10.2022
+
+Manfred Mann’s Earth Band - Angel Station (1979) Japanese Edition, Reissue, 2022, Belle Antique [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_328891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don′t Kill It Carol
+02. You Angel You
+03. Hollywood Town
+04. Belle of the Earth(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2251CE0938F6791F88172CBDE23780D1BE43F99
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

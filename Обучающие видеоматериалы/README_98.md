@@ -19,6 +19,8 @@ Enterclass, Сергей Курбатов | Марафон. Тропинками
 magnet:?xt=urn:btih:ADEFFC12B95D3B1AE73FF2D1776B5370222CAF10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Enterclass, Павел Шевелев | Вид из окна (2023) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:F022309334BEC72B76FCF2CE0571D1D1A5E19860
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:F022309334BEC72B76FCF2CE0571D1D1A5E19860
 magnet:?xt=urn:btih:494AC3BEDE1F5E271794B3B1B15434C1C5501F1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ FrontendMasters, Lydia Hallie | Advanced Front-End & JavaScript Questions (2023)
 ```bash
 magnet:?xt=urn:btih:171E2ADD6B4F0614DF37BEEB63D1D18E68995D44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:171E2ADD6B4F0614DF37BEEB63D1D18E68995D44
 magnet:?xt=urn:btih:202CD4AF977F1BE1973D878FDD18062710F8424E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:202CD4AF977F1BE1973D878FDD18062710F8424E
 magnet:?xt=urn:btih:50B5A98B6739ECC2D5777BDF88ABD9BBFF90B9FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:50B5A98B6739ECC2D5777BDF88ABD9BBFF90B9FE
 ```bash
 magnet:?xt=urn:btih:7D55CC6BF5350E47BF84DB14E70FCFEA60843CDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ Bengala.art, Ирина Глушкова | Мини-курс NFT (2023) WEB-DL [
 magnet:?xt=urn:btih:D09E252C99F1B37171A3F7C388CFA10E181EE81C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:D09E252C99F1B37171A3F7C388CFA10E181EE81C
 magnet:?xt=urn:btih:041A23A651E9C0522F568E0D1D14C12F4999C5F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ Enterclass, Ольга Паволга | Черно-белая фотографи
 ```bash
 magnet:?xt=urn:btih:01ACCA0FA46BED38E8C4E92DF104DC5D35890433
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +296,8 @@ FrontendMasters, Ben Callahan | Enterprise Design Systems Thinking (2023) WEB-DL
 magnet:?xt=urn:btih:8878E46CA0F6331DF47CFA05809BC0423EE41A73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ LavandaSchool, Анастасия Чиркова | Цифровой портре
 magnet:?xt=urn:btih:B8CE97486C65013212BE28DDF7361BB9A54598B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ Watermedia, Татьяна Ширбидова | Базы акварели Сту
 ```bash
 magnet:?xt=urn:btih:0C16D55D5E82090C99901F4BCEC179E7D7D79E4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +381,8 @@ magnet:?xt=urn:btih:0C16D55D5E82090C99901F4BCEC179E7D7D79E4C
 magnet:?xt=urn:btih:60EAA95BB4889AB03A400CB4510E6BF0CF38068D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ FXPHD, Charles Chorein | HOU116 – Height Fields in Houdini, Part 2 (2022) WEB-
 ```bash
 magnet:?xt=urn:btih:15967C7A8994C7A3972CD1034FC2B42030AD53B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +436,8 @@ Kalacheva School, Вероника Калачева | Акварель Про 2.
 magnet:?xt=urn:btih:9F5709670722BDD4495D70B0483667277B10F523
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ FXPHD, Charles Chorein | HOU115 – Height Fields in Houdini, Part 1 (2022) WEB-
 ```bash
 magnet:?xt=urn:btih:7E1338EE4C89A077CE29D55CEB2C81034FC91B55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +491,8 @@ FASHION ILLUSTRATION. Полный online курс + вебинары по пр�
 magnet:?xt=urn:btih:AC61E51AA8F2B3F4658EE97D3EC5956B560607C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +517,8 @@ Udemy, Alex Cordebard | The Ultimate Blender 3D Geometry Nodes Course (2023) PCR
 ```bash
 magnet:?xt=urn:btih:B7F1AA8043CCE6691B55E57E3B11579ADFCF7C14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +545,8 @@ magnet:?xt=urn:btih:B7F1AA8043CCE6691B55E57E3B11579ADFCF7C14
 ```bash
 magnet:?xt=urn:btih:AE4DE7CCA66B086AC73F97742DE7BEE378B29D01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +575,8 @@ magnet:?xt=urn:btih:AE4DE7CCA66B086AC73F97742DE7BEE378B29D01
 magnet:?xt=urn:btih:5002A9A82A434D48A757C627314E0BFC38C3B86F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +604,8 @@ Productuniversity, Яна Чаруйская и др. | ИИ и для гене�
 magnet:?xt=urn:btih:7B5A2E5CEC9CCCDD02109F77DEA8B7828F49B40A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +631,8 @@ Enterclass, Мария Хаэт | Рисование карандашом (2023)
 ```bash
 magnet:?xt=urn:btih:1F2DF47F8FF330D8B712D5ED7D211E25808D1F69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +661,8 @@ Kalacheva School, Вероника Калачева | Композиция си�
 magnet:?xt=urn:btih:79927CE64C43FD38F7772AEB06DCFEE35DBD4616
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +690,8 @@ magnet:?xt=urn:btih:79927CE64C43FD38F7772AEB06DCFEE35DBD4616
 magnet:?xt=urn:btih:DE6DB8F2AC801BA3DAAC7280FD6F47E49511FB22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +717,8 @@ my_revit | Оформление чертежей (2023) WEB-DL [AD] [RU]
 ```bash
 magnet:?xt=urn:btih:7868F7B70D772E1111D9F16A21EE338C3D22F14B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

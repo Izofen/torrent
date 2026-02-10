@@ -1,3 +1,29 @@
+###  Публикация: 976998   (967604) от 19.01.2016
+
+Джозеф Сандлер и др. | Пациент и психоаналитик: основы психоаналитического процесса (2007) [EPUB, FB2, MOBI]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторы прослеживают возникновение и употребление представителями различных психоаналитических школ таких основных терминов, как перенос, контрперенос, сопротивление, отреагирование, инсайт, интерпретация и т. д. Книга рекомендуется специалистам-психотерапевтам и широкому кругу читателей.Жанр: Психология, психотерапия и консультированиеФормат: EPUB, FB2, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34636D781403208B63C76BBF83B9FF20E92BF008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 619592   (967625) от 16.02.2013
 
 Л.Михайлова | Настольная книга домашнего винодела [2010] [PDF]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:ACA7EF64E87B11DF64F8737DD7AE85A4B085F43B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:ACA7EF64E87B11DF64F8737DD7AE85A4B085F43B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:ACA7EF64E87B11DF64F8737DD7AE85A4B085F43B
 ```bash
 magnet:?xt=urn:btih:1BBA58050D42B72AE3F54CFE48CD1B9167FD4C79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:1BBA58050D42B72AE3F54CFE48CD1B9167FD4C79
 magnet:?xt=urn:btih:4343DBC31D5AA689EA85AE1DC55C64ADFE28E0BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:4343DBC31D5AA689EA85AE1DC55C64ADFE28E0BF
 ```bash
 magnet:?xt=urn:btih:939C1F3BE855E7C21213F659FB0EDA7F2568CAF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:939C1F3BE855E7C21213F659FB0EDA7F2568CAF8
 magnet:?xt=urn:btih:AE20260188FC80DA58628F295615626E26C6E2DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:AE20260188FC80DA58628F295615626E26C6E2DE
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:AE20260188FC80DA58628F295615626E26C6E2DE
 magnet:?xt=urn:btih:14DAB9FA30E3BE3267B8089C497722FF25ED191E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:14DAB9FA30E3BE3267B8089C497722FF25ED191E
 ```bash
 magnet:?xt=urn:btih:5227C7CC9556D1B7DE7F526FF56448DE8176A757
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:5227C7CC9556D1B7DE7F526FF56448DE8176A757
 magnet:?xt=urn:btih:D3A0D32E595FBE049C44A1726572B909CC0E8259
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:D3A0D32E595FBE049C44A1726572B909CC0E8259
 ```bash
 magnet:?xt=urn:btih:1918ACB0649E99126FCF5A914C4D7DF59127EE56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:1918ACB0649E99126FCF5A914C4D7DF59127EE56
 magnet:?xt=urn:btih:10B7B2411533ECA2AB9F8267F14282E07F294A69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:10B7B2411533ECA2AB9F8267F14282E07F294A69
 ```bash
 magnet:?xt=urn:btih:38D268FBF5CF7E3674F0A0F3328EBB20F6FE2878
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:38D268FBF5CF7E3674F0A0F3328EBB20F6FE2878
 magnet:?xt=urn:btih:756D4FB814EBF1E94B0FE54A4B095A9D38D46406
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:756D4FB814EBF1E94B0FE54A4B095A9D38D46406
 ```bash
 magnet:?xt=urn:btih:44568D4FD9F052FA866A203A0A663349C3B41D19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:44568D4FD9F052FA866A203A0A663349C3B41D19
 magnet:?xt=urn:btih:53BB75C7D03FD54FBFCFE7E67806A048C1870C5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:53BB75C7D03FD54FBFCFE7E67806A048C1870C5F
 ```bash
 magnet:?xt=urn:btih:06232A004CABAC144E36B0202E55AB6E483BF7F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:06232A004CABAC144E36B0202E55AB6E483BF7F3
 magnet:?xt=urn:btih:5AE33B1EE285A347711A5722FB64D84D9E45AF07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:5AE33B1EE285A347711A5722FB64D84D9E45AF07
 ```bash
 magnet:?xt=urn:btih:A365334EE4067F9E5B9DFD647D2F80CEB6A8A87E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +549,8 @@ magnet:?xt=urn:btih:A365334EE4067F9E5B9DFD647D2F80CEB6A8A87E
 magnet:?xt=urn:btih:F0859AD6B594130800B626C588B06DD21A2AE2EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +574,8 @@ magnet:?xt=urn:btih:F0859AD6B594130800B626C588B06DD21A2AE2EA
 ```bash
 magnet:?xt=urn:btih:0F1324C4CB5438B8D2A38C11773D6DB61DDFF784
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:0F1324C4CB5438B8D2A38C11773D6DB61DDFF784
 magnet:?xt=urn:btih:5AC749DB8BA4DCA472D54B4B8F8197AEE4835754
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:5AC749DB8BA4DCA472D54B4B8F8197AEE4835754
 ```bash
 magnet:?xt=urn:btih:B36E9CEBCE68E26EB1B9D5B9728E997322E97A50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:B36E9CEBCE68E26EB1B9D5B9728E997322E97A50
 magnet:?xt=urn:btih:585DB540DBEA9948B76CB5A415274A4F8F009AF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,29 +679,7 @@ magnet:?xt=urn:btih:585DB540DBEA9948B76CB5A415274A4F8F009AF8
 magnet:?xt=urn:btih:52C3264ACC5EDCA7D0046225B7DC5583F4C0A1D8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976681   (967870) от 19.01.2016
-
-М. С. Шаронов | Коммунисты и католики в Италии: Из истории диалога [1921-1956] (1973) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967870.jpg" />
-</div>
-
-
-###  Подробнее
-
-В монографии рассказывается о борьбе Итальянской коммунистической партии за массы против реакционного клерикализма. На обширном документальном материале автор рассматривает стратегию и тактику ИКП по отношению к католикам и их организациям. В книге показано, как осуществлялся после второй мировой войны союз итальянского рабочего класса с непролетарскими слоями, находившимися (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C75C9E97C499DEED6D3CDB1226953FCED06A07C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

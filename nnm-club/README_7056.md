@@ -19,6 +19,8 @@ GRID Legends — это захватывающие гонки, проходящ�
 magnet:?xt=urn:btih:AD680C68F82427D0CF03AD17475A60061ECD8F37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:AD680C68F82427D0CF03AD17475A60061ECD8F37
 ```bash
 magnet:?xt=urn:btih:C53A293581372834E8B35D1959B0DBB0240C9DC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:C53A293581372834E8B35D1959B0DBB0240C9DC1
 magnet:?xt=urn:btih:DC699241FA4491E14B4B0C7D56D0731014D027C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Rebelway, Urban Bradesko | CG Cinematography 101 (2021) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:EF39FCDD3644402871F53787C84913418507F2E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:EF39FCDD3644402871F53787C84913418507F2E5
 magnet:?xt=urn:btih:1BDB894B6D6E00490CE5CD99F0A9D81357FBE912
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:1BDB894B6D6E00490CE5CD99F0A9D81357FBE912
 ```bash
 magnet:?xt=urn:btih:15110B98278BDD93260B75001236E633E1575FAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:15110B98278BDD93260B75001236E633E1575FAC
 magnet:?xt=urn:btih:53E5564E7FEBC57E239539EA4676C6D4F853BD74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ Rebelway, Saber Jlassi | Transferring High-Res Assets from Houdini to Unreal Eng
 magnet:?xt=urn:btih:65FF19A0BE3B083430E2E8E329B174F05461D524
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ Cametah — аутентичный акцидентный рукописный �
 ```bash
 magnet:?xt=urn:btih:F29B7ABA4A3E4F6CEC38DB0AC9A7E9AEB1475A9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ MLUSB Mounter - это разработанный в Японии файловы
 magnet:?xt=urn:btih:52E5A4E1E5F6310ABC380DF42BA9722EDB791C9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ PowerWash Simulator возвращается! Красота в чистоте! 
 magnet:?xt=urn:btih:D63761FE2D6ABD363EEB796232A83D073D259FDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:D63761FE2D6ABD363EEB796232A83D073D259FDB
 ```bash
 magnet:?xt=urn:btih:86D7CEBD4140D98B380C109E4C6A480B7F3E3BE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:86D7CEBD4140D98B380C109E4C6A480B7F3E3BE4
 magnet:?xt=urn:btih:82279B3E877825C94721D0A7830E7015DFA190D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:82279B3E877825C94721D0A7830E7015DFA190D2
 ```bash
 magnet:?xt=urn:btih:21440C0D4D9726C2C24EF2B35702EE3F5BED12C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +397,8 @@ cLOUDs - Once Upon A Time... The Collection (2025) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:6CE5BA7A76BDFB30965E1B480D2114A146FB0FD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ TrustViewer - это комплексное решение для удаленн
 ```bash
 magnet:?xt=urn:btih:3841CCA9E14DAE5C362BF0A5CA564F321476EC6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:3841CCA9E14DAE5C362BF0A5CA564F321476EC6A
 magnet:?xt=urn:btih:5CAF0E7601CC78C30DB59E1815CE7DDE2ECAA38B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:5CAF0E7601CC78C30DB59E1815CE7DDE2ECAA38B
 ```bash
 magnet:?xt=urn:btih:791839FDAAA4FC300C46A32F10BE75CC507B22B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ Casse-o-player 3.1.3 Mod by TryRoom [Ru/Multi]
 magnet:?xt=urn:btih:CDF50AC49804755FBD3E58A3CCFE538EEB443406
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ magnet:?xt=urn:btih:CDF50AC49804755FBD3E58A3CCFE538EEB443406
 ```bash
 magnet:?xt=urn:btih:DADB7CA2BDDCF3DFC0EC1A4F12DA67FAA4953BF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +555,8 @@ V-Ray — мощный инструмент визуализации, нацел
 magnet:?xt=urn:btih:D10C449A02F466832ECF7D5E953C3BAE50642809
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +580,8 @@ magnet:?xt=urn:btih:D10C449A02F466832ECF7D5E953C3BAE50642809
 ```bash
 magnet:?xt=urn:btih:B75C3187EE38B9EBE45B54E41B2247AA51F4DCDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +607,8 @@ magnet:?xt=urn:btih:B75C3187EE38B9EBE45B54E41B2247AA51F4DCDB
 magnet:?xt=urn:btih:69C2E6AE737B6DF702D50AA5E2A2A3A430A1BD43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +633,8 @@ magnet:?xt=urn:btih:69C2E6AE737B6DF702D50AA5E2A2A3A430A1BD43
 magnet:?xt=urn:btih:83F3A5830FF4CA579295F8A5766559CF37787B33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ magnet:?xt=urn:btih:83F3A5830FF4CA579295F8A5766559CF37787B33
 ```bash
 magnet:?xt=urn:btih:956364833D502F6E9ABB96FD40A1D3C3FF647FC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +688,8 @@ magnet:?xt=urn:btih:956364833D502F6E9ABB96FD40A1D3C3FF647FC7
 ```bash
 magnet:?xt=urn:btih:983B23170351AEE337651CA7B6DFE873F50B1556
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

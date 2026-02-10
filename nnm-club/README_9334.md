@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:E5C468C4D9D5C98D2D28FCBEA8C459742402792F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:E5C468C4D9D5C98D2D28FCBEA8C459742402792F
 magnet:?xt=urn:btih:0D4D31F7A5787B7C7007E57535DAB3ECEDCCC1D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:0D4D31F7A5787B7C7007E57535DAB3ECEDCCC1D5
 ```bash
 magnet:?xt=urn:btih:0306D068867BAF0BBC569665F9727512EB391C2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ VA - Los clasicos argentinos - Tango - Vol.13 - Julio De Caro: El gran melodioso
 magnet:?xt=urn:btih:A143329D77F87873698EE56BEF2AF9D2D76EB03C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ WALTR для OS X: подружит iOS с MKV и FLAC
 ```bash
 magnet:?xt=urn:btih:635948FB697C7B19CB25AA168D66B771318E2793
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ Alex Neo - №16 (2016) [MP3|320 Kbps] <Italo Disco, Eurodance, Remix>
 magnet:?xt=urn:btih:0B34FD6C4BD74595CC8BD145A285564C59AB398F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:0B34FD6C4BD74595CC8BD145A285564C59AB398F
 ```bash
 magnet:?xt=urn:btih:EE435F710E60B35599CFFB3D112CE9DA4F0D1B17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +215,8 @@ Greg Maroney - The Light Within (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, A
 magnet:?xt=urn:btih:6B0ABFCEE99E7D23DCEC44F588810C79A779D9A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:6B0ABFCEE99E7D23DCEC44F588810C79A779D9A8
 ```bash
 magnet:?xt=urn:btih:0D59021F013D614A20FBF069F8C8D5B886816379
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ Infographics for Pages 3.1.1 [Multi/Ru]
 magnet:?xt=urn:btih:E9728E07477BB839C4D95518462D0E99359F601D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:E9728E07477BB839C4D95518462D0E99359F601D
 ```bash
 magnet:?xt=urn:btih:35BB6B0851F353E791C8A5A147F0256F763CDA34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ Espresso соединяет в себе текстовый редактор с �
 magnet:?xt=urn:btih:1EA83FA7D71E90381A00442624DD28A84F7C8749
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ magnet:?xt=urn:btih:1EA83FA7D71E90381A00442624DD28A84F7C8749
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:1EA83FA7D71E90381A00442624DD28A84F7C8749
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:1EA83FA7D71E90381A00442624DD28A84F7C8749
 ```bash
 magnet:?xt=urn:btih:DECB180EDE3CBE5AE08B835A05D2B2AEA4A9B709
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:DECB180EDE3CBE5AE08B835A05D2B2AEA4A9B709
 magnet:?xt=urn:btih:C6A72944867676E9E2EB3B209C143E0DBAE048F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:C6A72944867676E9E2EB3B209C143E0DBAE048F9
 ```bash
 magnet:?xt=urn:btih:008834566317329A71A8EDE9B4451DE1F9B6FF43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ World’s End Girlfriend - Last Waltz (2016) [FLAC|Lossless|WEB-DL|tracks] <Elec
 magnet:?xt=urn:btih:D8E1292EF6C1638052E70BCAC4292AA9C259D682
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ Luminar является первым в мире редактором фото�
 magnet:?xt=urn:btih:D01034C731960BAB87CE0A98B9B6F55A3D565FB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +538,8 @@ magnet:?xt=urn:btih:D01034C731960BAB87CE0A98B9B6F55A3D565FB6
 ```bash
 magnet:?xt=urn:btih:DF383A74A2F55CA4E30E74A937A57B0F7929B7F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +568,8 @@ Eschaton - Universe 2 (2016) [MP3|320 Kbps] <Electronic, Drum & Bass, Deep Techn
 magnet:?xt=urn:btih:A103247971629A81980E5EE77815D9A1C7CA5DDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +593,8 @@ magnet:?xt=urn:btih:A103247971629A81980E5EE77815D9A1C7CA5DDF
 ```bash
 magnet:?xt=urn:btih:745635A2CB25690B23856DD2384A677A08AD0805
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ magnet:?xt=urn:btih:745635A2CB25690B23856DD2384A677A08AD0805
 ```bash
 magnet:?xt=urn:btih:DA284A3BB2FDB6E417EB2BD1CBE41E53A030AA30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +650,8 @@ Ann Joy - Love Dance (1980) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
 magnet:?xt=urn:btih:5D609D887BE8F5BCAC407CC587516A0811098751
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ magnet:?xt=urn:btih:5D609D887BE8F5BCAC407CC587516A0811098751
 ```bash
 magnet:?xt=urn:btih:E10981D57BD4592740CD835E3068C1C804A99B84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -654,6 +704,8 @@ VA - Зимний снегопад хитов (2016) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:6F8E4B9336F7A64F1E5BDE965A9C69DA9E4A3F67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

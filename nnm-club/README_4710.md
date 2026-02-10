@@ -19,6 +19,8 @@ Grand Theft Auto IV (2008-2010) [Ru/Multi] (1.0.0.4/1.0.7.0/1.1.2.0) Lossless Re
 magnet:?xt=urn:btih:FF671917E5AE7F4A60EAD1C95154AEDEB4A3F729
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Viber для Windows позволяет бесплатно отправлять 
 ```bash
 magnet:?xt=urn:btih:D6581AFE6DC895E3E75A3493A92B0F3D4F4280F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:D6581AFE6DC895E3E75A3493A92B0F3D4F4280F9
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Ryan Ribot | Stylized Creature Texturing Volume 2 (2015) PCRec [En, Ru]
 magnet:?xt=urn:btih:71C027B492B1DF21DC106291CF85CE1A53C2CB70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:71C027B492B1DF21DC106291CF85CE1A53C2CB70
 ```bash
 magnet:?xt=urn:btih:1D9E96E15FC26349F440DFC8B7B24759265D6021
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ YO DO, Кирилл Семаев | Курс Linux v 2.0. От 0 до Linux Ад�
 magnet:?xt=urn:btih:524AAB92776D9775814F88957CB6139629ABCC4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:524AAB92776D9775814F88957CB6139629ABCC4D
 magnet:?xt=urn:btih:8E04F720A808704F3CB1AD7D64F135A4B07E9BEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Crash Bandicoot N. Sane Trilogy (2018) [Ru/Multi] (1.0) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:1B4AC09D510C6B0E5875FD1274BCFB6D288F2EED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Taimadou Gakuen 35 Shiken Shoutai / Антимагическая академи�
 magnet:?xt=urn:btih:2F57C3F310F76C04E47EBAD76D4E003238917DC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:2F57C3F310F76C04E47EBAD76D4E003238917DC7
 magnet:?xt=urn:btih:4FDC43AA06A6B0DD5C012F35FD5D50BB089038AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:4FDC43AA06A6B0DD5C012F35FD5D50BB089038AF
 ```bash
 magnet:?xt=urn:btih:C104FA18AD068F14FE6F146E4CC148D314C35CB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Winter landscapes Wallpapers (14.12.12) [Wallpapers]
 magnet:?xt=urn:btih:90B4B7F633F18F0EB9785C6F00F912D18C3E1A73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:90B4B7F633F18F0EB9785C6F00F912D18C3E1A73
 ```bash
 magnet:?xt=urn:btih:3FE39F1A4D7330B8D70A75906698EC0FFCA940E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:3FE39F1A4D7330B8D70A75906698EC0FFCA940E9
 ```bash
 magnet:?xt=urn:btih:A8C2A3BE59BB163C0BBF150249937F118525EAA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:A8C2A3BE59BB163C0BBF150249937F118525EAA4
 magnet:?xt=urn:btih:2B9F5E7ED6D06A540F5A4586E344AB0D60939A09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:2B9F5E7ED6D06A540F5A4586E344AB0D60939A09
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ Elmedia Player PRO (   Читать дальше...   )Тип издания: m
 magnet:?xt=urn:btih:F58A477E34700945D20096148921A6EADA42DD7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:F58A477E34700945D20096148921A6EADA42DD7D
 ```bash
 magnet:?xt=urn:btih:3D62F6068B04A85BB8A958806AB02D99D38B06D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +508,8 @@ Michael Land - Monkey Island 2 Special Edition: LeChuck's Revenge (2010) [MP3|32
 magnet:?xt=urn:btih:89EA9AD6261EA6D41C622C8A992F6606DEC33328
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:89EA9AD6261EA6D41C622C8A992F6606DEC33328
 ```bash
 magnet:?xt=urn:btih:3663EC8935598174F30F7ACA2957D82438B31E20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ Print to PDF Pro for Mac 4.2.0 [Multi/Ru]
 magnet:?xt=urn:btih:4F70DB62899063A6B132894EDAEFE551E9429F90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ magnet:?xt=urn:btih:4F70DB62899063A6B132894EDAEFE551E9429F90
 ```bash
 magnet:?xt=urn:btih:648850EA93715DCCCCA3484744746508DA7DBE51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +612,8 @@ magnet:?xt=urn:btih:648850EA93715DCCCCA3484744746508DA7DBE51
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ Adobe After Effects CC 2015 - популярная программа для р�
 magnet:?xt=urn:btih:4FC11FA72FFFF9A250E700D9CF9805CB01DA6212
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +663,8 @@ magnet:?xt=urn:btih:4FC11FA72FFFF9A250E700D9CF9805CB01DA6212
 ```bash
 magnet:?xt=urn:btih:A9DB0942647221AB91B84FB82783BBB3782075A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +692,8 @@ KAZKA - NIRVANA (2019) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:07514200EE33BD6D60ED237351D4637D01092230
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:0DFEEE9E01EFF648BD089E5208846AA6FF61EE5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:0DFEEE9E01EFF648BD089E5208846AA6FF61EE5F
 ```bash
 magnet:?xt=urn:btih:34777C3F33F49D970D64A791267D15B2322FC9C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Stephane Grappelli - Plays Jerome Kern (1987) [APE|Lossless]<Swing, Mainstream J
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Stephane Grappelli - Plays Jerome Kern (1987) [APE|Lossless]<Swing, Mainstream J
 ```bash
 magnet:?xt=urn:btih:56A9DE0B0C4E1A262DA1F08246CD1D0804415581
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -132,6 +140,8 @@ Stanley Turrentine - Ballads (1960-1969) /1993, CDP 0777 7 95581 2 4/ [APE|Lossl
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +165,8 @@ Stanley Turrentine - Ballads (1960-1969) /1993, CDP 0777 7 95581 2 4/ [APE|Lossl
 ```bash
 magnet:?xt=urn:btih:14D99BEFF7CA44633F5517E6245555769AD204E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +201,8 @@ VA - Mysterious Mind [mixed by monotype] (2011) [MP3|320 kbps]<Hard Trance, Tran
 magnet:?xt=urn:btih:EB3B509BCC1CDCE5963EF06DEC87591C608AA768
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +234,8 @@ Full Faith & Credit Big Band - JazzFaire (1992) [FLAC|Lossless]<Big Band>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +266,8 @@ Ernestine Anderson - Never Make Your Move Too Soon (1980) [FLAC|Lossless]<Vocal 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +302,8 @@ VA - Special Anniversary [mixed by monotype] (2011) [MP3|320 kbps]<Hard Trance, 
 magnet:?xt=urn:btih:1719A8C05BEF449671F2E2BC946797257B6DEA7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +337,8 @@ VA - Музыкальная Премия Года 50/50 (2012) [MP3|256 kbps]<Po
 magnet:?xt=urn:btih:4C09D6D1D3AED746A288E0B3F67FF05D6B6DC813
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +366,8 @@ magnet:?xt=urn:btih:4C09D6D1D3AED746A288E0B3F67FF05D6B6DC813
 ```bash
 magnet:?xt=urn:btih:25787681210CFFBEF8496A3804BE1EA9D8B64A0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +399,8 @@ String Connection - New Romantic Expectation (1983) [FLAC|Lossless]<Fusion>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +430,8 @@ Benny Carter - A Gentleman And His Music (1992) [FLAC|Lossless]<Swing, Jump Blue
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +455,8 @@ Benny Carter - A Gentleman And His Music (1992) [FLAC|Lossless]<Swing, Jump Blue
 ```bash
 magnet:?xt=urn:btih:25CC94C25200570062C405F74DC5E9D03505E175
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +491,8 @@ VA - Definitions Of The Deep II (2012) [MP3|320 kbps]<Drum & Bass>
 magnet:?xt=urn:btih:9B81A3722C7BC1E241CCC341F20C4AC77DA34680
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +518,8 @@ Dataworx - Control (The Remixes) (2008) [MP3|320 kbps]<Techno>
 ```bash
 magnet:?xt=urn:btih:3582798CEB3455F0748AA03AA45E48095495E0E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +547,8 @@ magnet:?xt=urn:btih:3582798CEB3455F0748AA03AA45E48095495E0E2
 magnet:?xt=urn:btih:DFE8E45389B431C4D47DD2F21235D2573CE40F4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +575,8 @@ magnet:?xt=urn:btih:DFE8E45389B431C4D47DD2F21235D2573CE40F4D
 ```bash
 magnet:?xt=urn:btih:0D3657C682B8ADD0BA0EA50EA47FF1EDE0E827E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +606,8 @@ Don Menza & His '80s Big Band - Burnin' (1983) [FLAC|Lossless]<Big Band>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +639,8 @@ George Howard - Steppin' Out (1984) [FLAC|Lossless]<Jazz-Funk>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +668,8 @@ George Howard - Steppin' Out (1984) [FLAC|Lossless]<Jazz-Funk>
 magnet:?xt=urn:btih:2F4D4EC1B89D36EC73687F60116A11D729105C38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +696,8 @@ Sonny Rollins - G-Man (1987) [FLAC|Lossless]<Hard Bop>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -686,6 +732,8 @@ Riger - Streyf (2009) [MP3|320 kbps]<Pagan\Black Metal>
 magnet:?xt=urn:btih:762BC8E3495332467AE72DEA318DEC0742B99FC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -715,6 +763,8 @@ Claus Ogerman & Michael Brecker - Cityscape (2002) [FLAC|Lossless]<Jazz>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -748,6 +798,8 @@ VA - Mystical Deep Vol. 2 (2011) [MP3|320 kbps]<Drum & Bass, Drumfunk, IDM, Down
 ```bash
 magnet:?xt=urn:btih:74D6686B6CE1CDD3357462C96CE74C77619F1629
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

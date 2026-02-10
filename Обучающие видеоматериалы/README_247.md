@@ -20,6 +20,8 @@ Udemy | Создание фотореалистичной улицы в Blender 
 magnet:?xt=urn:btih:7FA3E994B78E5D0009F2CDCC15B2066DEEEA5EDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Udemy | Создание фотореалистичной станции мет�
 ```bash
 magnet:?xt=urn:btih:E64903E84110F1F3BEB452DA327E2A267B59BAF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ javascript.ninja, Виталий Слободин, Илья Климов | CI/CD
 magnet:?xt=urn:btih:5D88BF55921F19D0F3429A7725A0FACD3221A96D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ School of Motion, Mike Frederick | Design Bootcamp Week 3 (2016) PCRec
 magnet:?xt=urn:btih:E3151A92CA923F4A73F828540627D397F9F83B06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ cmiVFX, Dennis Weil | Houdini Mograph Title Design (2013) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:1324B8D3553CE5E217C5DE81181FFDD86303809A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ cmiVFX, Adam Swaab | Houdini Particle Morphing Effects (2013) PCRec [En, Ru]
 magnet:?xt=urn:btih:D95C78EB8896BF7516E8B31EB2434B1EC52FFD70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ cmiVFX, Alvaro Segura | Houdini Debris Systems (2012) PCRec [En, Ru]
 magnet:?xt=urn:btih:F24B5D7D7C6C9F0F87A854FC58C012DF58D493EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ cmiVFX представляют новый мастер-класс от Шива
 ```bash
 magnet:?xt=urn:btih:EF52F87587D5DEB852B91BF05EBEFF9F5FEAC523
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ Bang Bang Education | Английский через иллюстрацию / E
 ```bash
 magnet:?xt=urn:btih:0B866D59C45144538BE2702CC27D492FDCD5DB87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:0B866D59C45144538BE2702CC27D492FDCD5DB87
 magnet:?xt=urn:btih:B0D0293269EE1CE8412E4625B7A1327D7AD0F503
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ ArtStation, Ben Keeling | Authoring Props For Games [Blender, ZBrush, Substance 
 ```bash
 magnet:?xt=urn:btih:A3BC301DA70050EAF1C14BC2458F34825A92DAEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ Udemy, Emiel Sleegers | Military Game Asset Creation in Blender 2.83, Substance 
 magnet:?xt=urn:btih:6FAE1D71127DE443823DA1E14D5FA1942EFEAE29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ Explore Blender, Gustav Nilsson | Mastering Drivers in Blender 2.7 (2014) PCRec 
 magnet:?xt=urn:btih:BA55350C7F3BCBB0DA14BAAF3AD292CD726D0ACD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ WingFox, Ognyan Zahariev | Magical Classroom Scene Creating for Games [Low Quali
 ```bash
 magnet:?xt=urn:btih:6F51C25F83639DCF62C33E6AA50501DECE6CA7B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ Solidprofessor | Подборка курсов по SolidWorks [2007-2013] PCRec
 magnet:?xt=urn:btih:7BBCBC0C09CDC5689F740A072E1D56B8351EC5DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ OTUS | Математика для Data Science. Продвинутый курс
 magnet:?xt=urn:btih:BC329CCE709C7167F101976B981DD8F9A1ED36E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ OTUS | Архитектор программного обеспечения (202
 ```bash
 magnet:?xt=urn:btih:828BD22F9797505106A4A337A819A0FABC8756DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +482,8 @@ Bang Bang Education | Секреты композиции (2017) PCRec [H.264/10
 magnet:?xt=urn:btih:B5B4E8F33077C009AF400560A1C9EA7FA740B9C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ The VFX School, Agustin Schilling, Pol Villa | Houdini Renascence Program Part 1
 ```bash
 magnet:?xt=urn:btih:F14122AEDA3BEDBC486EC6ECD50C17B9E18F99F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ The VFX School, Agustin Schilling, Pol Villa | Houdini Renascence Program Part 3
 magnet:?xt=urn:btih:46C20C45D93498743655DACE09B17A514FDDFBDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ The VFX School, Agustin Schilling, Pol Villa | Houdini Renascence Program Part 4
 ```bash
 magnet:?xt=urn:btih:E0BC0474F52C60998FD4CAB1D61DE81478EFD99C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +590,8 @@ magnet:?xt=urn:btih:E0BC0474F52C60998FD4CAB1D61DE81478EFD99C
 magnet:?xt=urn:btih:8D0086733BB7AFE20CE58DB87A0ECDC50B820E4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ United Traders | Обучение заработку на фондовой би�
 ```bash
 magnet:?xt=urn:btih:3B3A9F55CB350D9911D1EB8652A12D52309018D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +643,8 @@ magnet:?xt=urn:btih:3B3A9F55CB350D9911D1EB8652A12D52309018D0
 magnet:?xt=urn:btih:AEA9DD01329F4E99A33CC239A76E5CB43F048E1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +668,8 @@ magnet:?xt=urn:btih:AEA9DD01329F4E99A33CC239A76E5CB43F048E1D
 ```bash
 magnet:?xt=urn:btih:771FFE6BF128CD1DB5134C5D9193C06321C1BA48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -647,6 +697,8 @@ magnet:?xt=urn:btih:771FFE6BF128CD1DB5134C5D9193C06321C1BA48
 ```bash
 magnet:?xt=urn:btih:D9D6D4AFF018A49CAF118EBE5AECBFEAF95DD31E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

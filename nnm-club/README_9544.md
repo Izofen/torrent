@@ -19,6 +19,8 @@ Vivaldi 3.4.2066.106 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:4D6A9A6E13BFB9E35B1602D8D4BF8C4AF5DD31E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ CherryPlayer - уникальный проигрыватель аудио -, в�
 magnet:?xt=urn:btih:E63931C331090C8FDC2483BAACD64952A08762A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:E63931C331090C8FDC2483BAACD64952A08762A7
 magnet:?xt=urn:btih:83BA14E77066BF63127C5D0671A38EF7E47090FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:83BA14E77066BF63127C5D0671A38EF7E47090FD
 ```bash
 magnet:?xt=urn:btih:D47133F889AF4CB85AD294B84C80753A4F78DA13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Final Conflict - The Rise Of The Artisan (2020) [MP3|320 Kbps] <Progressive Rock
 magnet:?xt=urn:btih:00AD25E103EE61301940FEAEB5DCC223F9632A5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:00AD25E103EE61301940FEAEB5DCC223F9632A5D
 magnet:?xt=urn:btih:3A1E169EC0BDD3DED6A4408DA4FFC692C056A12E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:3A1E169EC0BDD3DED6A4408DA4FFC692C056A12E
 ```bash
 magnet:?xt=urn:btih:741BBF3885F1CB3FCE3035227C76E91D0CAEBA72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ Affinity Publisher 1.8.6 [Multi/Ru]
 magnet:?xt=urn:btih:0C33713D7EF7175CD82AAF740592DE5C316E0FD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ PDF-XChange Viewer - отличная программа для чтения и 
 ```bash
 magnet:?xt=urn:btih:AC2310A08966836D909E3A3DA51E590C2E55BC25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:AC2310A08966836D909E3A3DA51E590C2E55BC25
 magnet:?xt=urn:btih:78208BBF1B2687C95EB9F34C23B4F16D610F6207
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:78208BBF1B2687C95EB9F34C23B4F16D610F6207
 magnet:?xt=urn:btih:D49BE98045517C424B88CB9806B10CBFFF7B729A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ Allavsoft Video Downloader Converter поддерживает загрузку �
 ```bash
 magnet:?xt=urn:btih:3DF03D52AC19E643B8C40B176A75193EA69897A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:3DF03D52AC19E643B8C40B176A75193EA69897A7
 ```bash
 magnet:?xt=urn:btih:FC27B2769F203B0BD2049724F5AB078DD76A381D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:FC27B2769F203B0BD2049724F5AB078DD76A381D
 magnet:?xt=urn:btih:B8DF7B8E204FB07694A6845E6DD2B8A754EC4FE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ magnet:?xt=urn:btih:B8DF7B8E204FB07694A6845E6DD2B8A754EC4FE0
 ```bash
 magnet:?xt=urn:btih:A5A17B8D8AF194063FCDD9CDCBD1695D536E673C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ CD - 1:
 magnet:?xt=urn:btih:B9F19641526FA54C54777291E8784763E057B7D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:B9F19641526FA54C54777291E8784763E057B7D4
 ```bash
 magnet:?xt=urn:btih:3FB3A0D0BAE0FE7A2A7514AF3ACD887886ED351D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ magnet:?xt=urn:btih:3FB3A0D0BAE0FE7A2A7514AF3ACD887886ED351D
 magnet:?xt=urn:btih:7D26DD318651C1CC3C421EA236696DCC3E35D11E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ Johann Sebastian Bach MUnchener Bach-Chor, Munchener Bach-Orchester, Karl Richte
 ```bash
 magnet:?xt=urn:btih:E42DCF56B36B9AA03565BC8F6A5255A7F6629C73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +541,8 @@ The Rolling Stones - Blue & Lonesome (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:8BE1D13F88CAA3F5FB7DF1359CBD1010D4146C3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +569,8 @@ Death Dealer - Conquered Lands (2020) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:AA4DBAF6D3020FB9389BDF77EFD853E9CBB77338
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +599,8 @@ Joe Bonamassa - Live at the Greek Theatre '2015 (2016) DVD5
 magnet:?xt=urn:btih:E9D8A2C7A5EF785344F8D944276D2D8571900E74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +627,8 @@ VA - Black Coffee Lounge: Chillout Your Mind (2020) [AAC|~326 Kbps] <Downtempo, 
 ```bash
 magnet:?xt=urn:btih:FAFE292EBD29107CA2F0E769DFA6BF792137C2BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +657,8 @@ VA - Nostalgie Disco Fever: Les 50 Plus Grands Titres Disco-Funk ! (2016) [MP3|3
 magnet:?xt=urn:btih:954AE1BC9FEAAEF68BC30DCF83544B114414C040
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +686,8 @@ Clouds - Durere (2020) [FLAC|Lossless|image + .cue] <Atmospheric Doom, Funeral D
 magnet:?xt=urn:btih:E5C8C853F22F06FE47E3B373D112ED5A1BBF958E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +713,8 @@ magnet:?xt=urn:btih:E5C8C853F22F06FE47E3B373D112ED5A1BBF958E
 ```bash
 magnet:?xt=urn:btih:19AAAF8744A2DF696C1A3146A46A479FB2E3994F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

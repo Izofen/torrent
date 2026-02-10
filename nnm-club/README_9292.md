@@ -22,6 +22,8 @@ Nat King Cole - Greatest Love Songs (1987) [FLAC|Lossless|tracks + .cue] <Ballad
 magnet:?xt=urn:btih:232E796A5655FBC2F4636B4BB2AD32FFFD218AE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:232E796A5655FBC2F4636B4BB2AD32FFFD218AE0
 ```bash
 magnet:?xt=urn:btih:02FBE9422B76B85BBC00AABAE3CF93D2AE6AEAAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Leah - The Quest (2018) [FLAC|Lossless|image + .cue] <Symphonic Metal, Medieval 
 magnet:?xt=urn:btih:DC320473C01C2C20F11CBD121AE51A103FE5361B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ VA - Aly & Fila - Future Sound Of Egypt 523 (2017) [MP3|320 Kbps] <Trance, Uplif
 magnet:?xt=urn:btih:5B378C6A2C9F4B2B94C36E1A5965303F9A813700
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:5B378C6A2C9F4B2B94C36E1A5965303F9A813700
 ```bash
 magnet:?xt=urn:btih:D5CD6B13F28F5C0C02CB0BBB92BFC2BAC051D9EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ VA - In Disco We Trust Vol. 2 (2017) [MP3|320 Kbps] <House>
 magnet:?xt=urn:btih:6CA6E73AAA215121E6AF0A128665C9869FE53595
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:6CA6E73AAA215121E6AF0A128665C9869FE53595
 ```bash
 magnet:?xt=urn:btih:F336FAC3CA501A8E05F1826693CF9BE39A15AAC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ magnet:?xt=urn:btih:F336FAC3CA501A8E05F1826693CF9BE39A15AAC0
 magnet:?xt=urn:btih:B2123BF8298D3B4A53B95F6556EF14127D9E20CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:B2123BF8298D3B4A53B95F6556EF14127D9E20CE
 ```bash
 magnet:?xt=urn:btih:73D13153785EF693F26F91A7E36B199259F462DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ VA - Vocal Trance Gems: Best of (2017) [MP3|320 Kbps] <Trance,Vocal Trance>
 magnet:?xt=urn:btih:50C4B275F0892E43FB7B2926FF14730098F6D553
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:50C4B275F0892E43FB7B2926FF14730098F6D553
 ```bash
 magnet:?xt=urn:btih:BCDDE8E4FE4D2655A4ED7A4ADAB7606DCA684C64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +326,8 @@ Yusef Lateef - At Cranbrook And Elsewhere (1958) 2009, El Records [WavPack|Lossl
 magnet:?xt=urn:btih:1633549822ECE1488B170AE9C6FA1F0961B01415
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:1633549822ECE1488B170AE9C6FA1F0961B01415
 ```bash
 magnet:?xt=urn:btih:951CDAB891D1DA8AEBF42078C6AA1ECC3BD7E45D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ Air Explorer Pro — один из лучших файловых менедже�
 magnet:?xt=urn:btih:3600D1E2CD3179D9FDD1CE1E7347BE7C22E72EF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ Adobe Audition CC 2017 (10.0.1) [Multi]
 ```bash
 magnet:?xt=urn:btih:4240BD1D5B3048D10DC85305DDE93D6514BA0F58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:4240BD1D5B3048D10DC85305DDE93D6514BA0F58
 magnet:?xt=urn:btih:06736852443B580732FE1EAA05DBA081F171FFE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ magnet:?xt=urn:btih:06736852443B580732FE1EAA05DBA081F171FFE3
 magnet:?xt=urn:btih:2EBEB9FAE6F28B5B68D6BE1ECDE47CAD704E88ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:2EBEB9FAE6F28B5B68D6BE1ECDE47CAD704E88ED
 ```bash
 magnet:?xt=urn:btih:324D48A277C72A55362D993BC6B9792D95056BEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +509,8 @@ magnet:?xt=urn:btih:324D48A277C72A55362D993BC6B9792D95056BEB
 ```bash
 magnet:?xt=urn:btih:01FBA08A4FAD80662F2923E04EB1B8778F8052E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ CD
 magnet:?xt=urn:btih:C5074D060F778CC5F5BF84DF3F403BE7DE0D5057
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ AllDup - отличный инструмент для поиска и удале
 ```bash
 magnet:?xt=urn:btih:319CA50EEEFED5CC67E39DC9315A711DC5F347F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +591,8 @@ Bulletstorm (2011) [Ru] [macOS WineSkin]
 magnet:?xt=urn:btih:BEB6B6748440BAB1C80F3A1C3882754027444BD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ Magic Christmas Logo - Создайте потрясающий празднич�
 ```bash
 magnet:?xt=urn:btih:3DCADFD6DCAFE6E5C18EAA977D1566993A03606C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +643,8 @@ magnet:?xt=urn:btih:3DCADFD6DCAFE6E5C18EAA977D1566993A03606C
 magnet:?xt=urn:btih:3D085A85B6862ECEC696B8AE44CBE931CEC25FB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +669,8 @@ magnet:?xt=urn:btih:3D085A85B6862ECEC696B8AE44CBE931CEC25FB6
 ```bash
 magnet:?xt=urn:btih:48F30D94D2D22C952AB31391408F600EEC177863
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -648,6 +698,8 @@ magnet:?xt=urn:btih:48F30D94D2D22C952AB31391408F600EEC177863
 ```bash
 magnet:?xt=urn:btih:4541E8C09FFA96788578BEF8A4E269AF8F60BED1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

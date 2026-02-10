@@ -19,6 +19,8 @@ Witch Craft Works | Ведьмовство | Ремесло ведьмы [2014, 
 magnet:?xt=urn:btih:211C8D1BD5226756358D102783B88CF4ED7BBB94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Git, GitHub, Git workflow Gulp, Pug, SCSS, BEM, UI kit, дизайн систе�
 magnet:?xt=urn:btih:11732B7E95D5D3967EEA5179A2689812F39A8803
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:11732B7E95D5D3967EEA5179A2689812F39A8803
 ```bash
 magnet:?xt=urn:btih:22C65B9E3F6CA3B547DB5A77EF0081FB97E3A70A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:22C65B9E3F6CA3B547DB5A77EF0081FB97E3A70A
 magnet:?xt=urn:btih:CDD1CBA89625140857DDAA04618567BB96D395E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:CDD1CBA89625140857DDAA04618567BB96D395E0
 ```bash
 magnet:?xt=urn:btih:59AFA510DB8E46095FF7E97E8EE8FF642F224103
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Makai Toshi Shinjuku | Demon City Shinjuku | Синдзюку - город-ад 
 magnet:?xt=urn:btih:DBB56409CCA3CE2CC1EB51E1A8BE0952FED5882F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:DBB56409CCA3CE2CC1EB51E1A8BE0952FED5882F
 ```bash
 magnet:?xt=urn:btih:BC7FBCACD3C3ABFD88C87BFD9D8C52125789EACB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:BC7FBCACD3C3ABFD88C87BFD9D8C52125789EACB
 magnet:?xt=urn:btih:FFA04DEA0EFC029C79E83C17568AC72FD0C6B3B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Playfingerstyle, Стэн Кэрил | Прогрессивный Фингерс
 ```bash
 magnet:?xt=urn:btih:9196BF0A17F63E6988928C9C069A91F89DDA7258
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ Windows 10 November 2021 Update (под кодовым названием "21H2"
 magnet:?xt=urn:btih:56D1417B6C1A270BCB08D5155F8143A36A4788F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:56D1417B6C1A270BCB08D5155F8143A36A4788F2
 ```bash
 magnet:?xt=urn:btih:61A736066073D326CDFE2E3473E911119A341A61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:61A736066073D326CDFE2E3473E911119A341A61
 magnet:?xt=urn:btih:A594AF23ACF6F53FDAAE956DC5DA0EC51693EA45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:A594AF23ACF6F53FDAAE956DC5DA0EC51693EA45
 ```bash
 magnet:?xt=urn:btih:3C9733D20EC33BAD8EC9148822B0C515BCB28EB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ Middleburn - 121 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:60FCBF60C1CCFC5D252BFBC37D68DBDB55BCA21B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:60FCBF60C1CCFC5D252BFBC37D68DBDB55BCA21B
 ```bash
 magnet:?xt=urn:btih:3454F09E121CE22B8FE6B2AC17392AAC92ED6FEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ LikKnight - Beautiful and Bad (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:8F3AE5BADCD8B8A33618BA5A5DFDA78C6031351E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ Windows Server 2022 впервые обеспечивает расширенну
 ```bash
 magnet:?xt=urn:btih:E19EBB4E832618A3701A135595A08EFD75416C4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ Opera One 123.0.5669.23 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:1522E45CBCD19EDB2DD138F86AA3CD35BBFA6EB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ magnet:?xt=urn:btih:1522E45CBCD19EDB2DD138F86AA3CD35BBFA6EB9
 ```bash
 magnet:?xt=urn:btih:186A2C32BA27B85379137AADF2E66D14CD050306
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ Kill Dorothy - Liberate Me (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:FE3D05EF8AE3B6692859C10F0D616080B70F4805
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +556,8 @@ magnet:?xt=urn:btih:FE3D05EF8AE3B6692859C10F0D616080B70F4805
 ```bash
 magnet:?xt=urn:btih:60EC67B5B607437B8D565F1393F1E0FFBBC3D643
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ Rites to Ruin - Daughter of Hatred (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 magnet:?xt=urn:btih:E62A538A34B8A57F47031A8E06069E15320924CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ magnet:?xt=urn:btih:E62A538A34B8A57F47031A8E06069E15320924CD
 magnet:?xt=urn:btih:0B419984227BF7CC629A021B40B1C8FEDA384F9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ magnet:?xt=urn:btih:0B419984227BF7CC629A021B40B1C8FEDA384F9C
 ```bash
 magnet:?xt=urn:btih:20A000BD7FCF148EFF44A2DAB0E599358DABF276
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +665,8 @@ magnet:?xt=urn:btih:20A000BD7FCF148EFF44A2DAB0E599358DABF276
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ magnet:?xt=urn:btih:20A000BD7FCF148EFF44A2DAB0E599358DABF276
 ```bash
 magnet:?xt=urn:btih:B0385211EFB7BE5E8255DA577E42622F65C925DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Sakugan | Сакуган [2021, TV, 12 эп.] WebRip 720p raw
 magnet:?xt=urn:btih:1F026AE587951F3F08D0C505D006E71D8EE7D105
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Selection Project / Отборочный проект [2021, TV, 13] WEBRip 720p
 ```bash
 magnet:?xt=urn:btih:9EC70EE5E9F99113D74DE4564EF2D17E24A82DC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Teekyuu - 6 / Теннис - 6 сезон [2015, TV, 12] WEB-DLRip 720p raw
 magnet:?xt=urn:btih:F2035374E10AA01C69F2C8FA8D61C45E88E7AF24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Kishuku Gakkou no Juliet | Boarding School Juliet | Джульетта из шк
 ```bash
 magnet:?xt=urn:btih:29D4F1BCD1F9DFF49B53CF63D3F7A798A56B4C1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Iya na Kao Sarenagara Opantsu Misete Moraitai | Изобрази отвраще�
 magnet:?xt=urn:btih:4E41A51549DDCF34064DE613C3D2C8C783DB151E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Bakumatsu: Ren'ai Bakumatsu Kareshi Gaiden | Бакумацу [2018, TV, 12] WEB
 ```bash
 magnet:?xt=urn:btih:2A67299865106E0E1DECF73655CADEC21BB31F3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Ani Tore! XX: Hitotsu Yane no Shita de / Тренировки с аниме! XX 
 magnet:?xt=urn:btih:F97B525537C972C82239D6416E8DC79E875A1679
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Magic Kaito 1412 / Волшебник Кайто 1412 [2014, TV, 24 из 24] BDR
 ```bash
 magnet:?xt=urn:btih:7AC87D5DA81580138E473751B61F257A960EED33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Magic Kaito / Волшебник Кайто [2010, Special, 12 из 12] BDRip 10
 magnet:?xt=urn:btih:E2A833806C81114EEB56711AAC1E83AA3AB45542
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Jahy-sama wa Kujikenai! | The Great Jahy Will Not Be Defeated! | Великая 
 ```bash
 magnet:?xt=urn:btih:A4C39B83540E8EA82350FD2367A491036A2A760F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Puraore! Pride of Orange / Оранжевая гордость [2021, TV, 12] WE
 magnet:?xt=urn:btih:7D7B33CBC6F215B353833B3F94DA00CEA9250366
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Ikebukuro West Gate Park | Западные ворота парка Икэбук
 ```bash
 magnet:?xt=urn:btih:ADEB1281682A851023D794B1BCA7AB27C2DBF272
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Mahou Sensou | Magical Warfare | Война магов [2014, TV, 12] BDrip 1080
 magnet:?xt=urn:btih:B85C293C5C6D725A09BC28883D88F6936CF037FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Guraburu! | Grand Blues! | Великий блюз! [2020, TV, 12] WEBRip 720p r
 ```bash
 magnet:?xt=urn:btih:494E1CF8E4D477274AB3EE4BC9156CBF3B8D3A55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Fairy Gone 2 / Пропавшие феи 2 [2019, TV, 12] WEBRip 720p raw
 magnet:?xt=urn:btih:DC23D767B1068C3B353AB53CFB1A69825B3C1C11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Houkago Saikoro Club | After School Dice Club | Клуб настольных и
 ```bash
 magnet:?xt=urn:btih:406BD704DE1BA62CA93AD887CB166DC43053F9A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Takt Op.Destiny / Такт Опус. Судьба [2021, TV, 12] WEBRip 720p raw
 magnet:?xt=urn:btih:595AFA4957F84101A093DA9E7328D32E4122B1EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Starmyu / High School Star Musical / Старшая школа музыкаль�
 ```bash
 magnet:?xt=urn:btih:C1C3164F0F29391AF7FD81E27277A7A8B96DAA24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ Null Peta | Null & Peta | Нуль и Пета [2019, TV, 12 эп.] WEBRip 720p 
 magnet:?xt=urn:btih:8BA8E84F666683DE60D9814124F6308CBDF39272
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ Banana Fish | Рыбка-бананка [2018, TV, 24] WEBRip 720p raw
 magnet:?xt=urn:btih:335F9EF590FE5FA27F6464A926DCD02C04DEA416
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ Kyuuketsuki Sugu Shinu | The Vampire Dies in No Time | Этот вампир п�
 ```bash
 magnet:?xt=urn:btih:5419944191261D5C819C51F1E39E6C59E8E13DAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ Arknights: Fuyukomori Kaerimichi / Arknights: Perish in Frost / Рыцари к�
 magnet:?xt=urn:btih:BF8FE220379F047B11A88582C02F863A49B398B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ One Room: Third Season | Из одной комнаты [ТВ-3] [2020, TV, 12] 
 ```bash
 magnet:?xt=urn:btih:F0A3AF9505D0A7082D13C04A54CE8B26304F33CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ Blue Period | Голубой период [2021, TV, 12 эп.] WEBRip 720p raw
 magnet:?xt=urn:btih:D10B647A71A9ECD7A3DBCEB970A81FDD1CC51434
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ Houseki no Kuni | Land of the Lustrous | Страна самоцветов [2017
 magnet:?xt=urn:btih:FF5C320214060EBC8E17BB10397122ADD4D3DABE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Isekai Shokudou 2 | Restaurant to Another World 2 | Кафе из другого
 ```bash
 magnet:?xt=urn:btih:F992BC5F37506DDAB8215CD7F257679F068D017B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1200185   (796891) от 19.01.2018
+
+Великое противостояние (1974) SATRip (серии 1-2 из 2)
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796891.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам одноименной повести Льва Кассиля (1941—1947).
+Героиня фильма — ученый Серафима Андреевна Крупицына. Еще в школьные времена своей жизни она принимала участие в съемках фильма об Отечественной войне 1812 года, где исполнила роль партизанки. Позже, в годы Великой Отечественной войны, она фактически повторила подвиг своей героини. После войны ее вновь увлекла (   Читать дальше...   )Производство: СССРЖанр: ДрамаРежиссер: Юрий ДубровинАктеры: Лидия Мельникова, Игорь Владимиров, Александр Воеводин, Борис Зайденберг, Всеволод Платов, Эдуард Изотов, Тамара Чернова, Стефания Станюта, Владимир Эренберг, Алексей ЗадачинСубтитры: ОтсутствуютПродолжительность: 01:04:36 + 01:03:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CAE40D3554A39199BE6BDDE1ED76EAE57C17DC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200206   (796942) от 19.01.2018
 
 Бывший папа, бывший сын (1989) SATRip
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:A074C9B20C024F02595A6FACD4E15D4CCCD852BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:A074C9B20C024F02595A6FACD4E15D4CCCD852BC
 magnet:?xt=urn:btih:2ED4298DFB36655790DD46575CAA380184CCA65E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +97,8 @@ magnet:?xt=urn:btih:2ED4298DFB36655790DD46575CAA380184CCA65E
 ```bash
 magnet:?xt=urn:btih:B47546B11BCBB61F7CEE5318476D60ABAE1CF9A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +124,8 @@ magnet:?xt=urn:btih:B47546B11BCBB61F7CEE5318476D60ABAE1CF9A5
 magnet:?xt=urn:btih:D9CE829BE1B1DDA5FD9BA9F8FECCE35F7C51BEDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +150,8 @@ magnet:?xt=urn:btih:D9CE829BE1B1DDA5FD9BA9F8FECCE35F7C51BEDD
 magnet:?xt=urn:btih:64FBC4CA2132FFE5F104C02D12E00E9F09FA9D3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +175,8 @@ magnet:?xt=urn:btih:64FBC4CA2132FFE5F104C02D12E00E9F09FA9D3F
 ```bash
 magnet:?xt=urn:btih:471ACB2758DEDCA161E6B19AE43745991B083E06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +203,8 @@ magnet:?xt=urn:btih:471ACB2758DEDCA161E6B19AE43745991B083E06
 magnet:?xt=urn:btih:2805E32FB907698A2E58D9FBAE411CB54625A50B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +229,8 @@ magnet:?xt=urn:btih:2805E32FB907698A2E58D9FBAE411CB54625A50B
 ```bash
 magnet:?xt=urn:btih:1B886863E301FA5A59E8DC851214D6DFC89D62D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +257,8 @@ magnet:?xt=urn:btih:1B886863E301FA5A59E8DC851214D6DFC89D62D4
 magnet:?xt=urn:btih:F839D9A10DA0F683F854D2A56EB3BEF8162C8F20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ magnet:?xt=urn:btih:F839D9A10DA0F683F854D2A56EB3BEF8162C8F20
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +310,8 @@ magnet:?xt=urn:btih:F839D9A10DA0F683F854D2A56EB3BEF8162C8F20
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +335,8 @@ magnet:?xt=urn:btih:F839D9A10DA0F683F854D2A56EB3BEF8162C8F20
 ```bash
 magnet:?xt=urn:btih:1A11F60B017235B8CF04A943966BF6BF0B47E16B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +363,8 @@ magnet:?xt=urn:btih:1A11F60B017235B8CF04A943966BF6BF0B47E16B
 magnet:?xt=urn:btih:865E34CC212B70EC676853109ABA50E8255E2B6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +388,8 @@ magnet:?xt=urn:btih:865E34CC212B70EC676853109ABA50E8255E2B6F
 ```bash
 magnet:?xt=urn:btih:DA71326FD17146CE7E833443B2EF7A2CEEC0612D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +415,8 @@ magnet:?xt=urn:btih:DA71326FD17146CE7E833443B2EF7A2CEEC0612D
 magnet:?xt=urn:btih:652CCE86AB0C5E9ED4F867A7E7B4250E9D3F81EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +440,8 @@ magnet:?xt=urn:btih:652CCE86AB0C5E9ED4F867A7E7B4250E9D3F81EE
 ```bash
 magnet:?xt=urn:btih:D2D1F4FE9F07ED11845D61BD78D8A66564F3DEBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +467,8 @@ magnet:?xt=urn:btih:D2D1F4FE9F07ED11845D61BD78D8A66564F3DEBA
 magnet:?xt=urn:btih:04E702A0E7FC21456585375688ACB1541E560470
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +493,8 @@ magnet:?xt=urn:btih:04E702A0E7FC21456585375688ACB1541E560470
 magnet:?xt=urn:btih:CE0E1BF791712BD002C2A7A28DD86FB7D82EAEF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +518,8 @@ magnet:?xt=urn:btih:CE0E1BF791712BD002C2A7A28DD86FB7D82EAEF9
 ```bash
 magnet:?xt=urn:btih:01BAD9C1D92C1433ACA6B5298EFE69072760A0C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +547,8 @@ magnet:?xt=urn:btih:01BAD9C1D92C1433ACA6B5298EFE69072760A0C2
 magnet:?xt=urn:btih:0AFB5270665EB025DBE480305E4BB15F2C298000
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +572,8 @@ magnet:?xt=urn:btih:0AFB5270665EB025DBE480305E4BB15F2C298000
 ```bash
 magnet:?xt=urn:btih:1C8015B507BEA50319D01964F28EB5EFDD740869
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +599,8 @@ magnet:?xt=urn:btih:1C8015B507BEA50319D01964F28EB5EFDD740869
 magnet:?xt=urn:btih:954FFA6E5B426DBB1B112BBB3424A50D8DAD22E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +624,8 @@ magnet:?xt=urn:btih:954FFA6E5B426DBB1B112BBB3424A50D8DAD22E0
 ```bash
 magnet:?xt=urn:btih:6D2BCD2A35F898969DE98E2BBD5368DA58CA6696
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +651,8 @@ magnet:?xt=urn:btih:6D2BCD2A35F898969DE98E2BBD5368DA58CA6696
 magnet:?xt=urn:btih:99D66BDF28538FA8F07B520AABC5748391EEDB4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,30 +677,7 @@ magnet:?xt=urn:btih:99D66BDF28538FA8F07B520AABC5748391EEDB4A
 magnet:?xt=urn:btih:39F2DB3A4F702C89E41313E30DA4BEEE6FE9EBDB
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 882463   (816764) от 29.03.2015
-
-Аршин Мал Алан / Arshin Mal-Alan (1945) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация одноименной музыкальной комедии азербайджанского композитора Узеира Гаджибекова.
-Баку начала ХХ века. Богатый молодой купец Аскер решил жениться. Вопреки закону отцов он хочет до свадьбы увидеть свою будущую жену. Как это сделать, если девушкам стожайше запрещено открывать свое лицо при постороннем мужчине?Производство: СССР, "Азербайджанфильм"Жанр: Музыкальный, КомедияРежиссер: Рза Тахмасиб, Николай ЛещенкоАктеры: Рашид Бейбутов, Лейла Джеванширова, Л. Абдуллаев, А. Гусейн-Заде, И. Эфендиев, М. Калантарлы, Ф. Мехралиева, Р. Мустафаева, Мурат АлиевПеревод: ДублированныйПродолжительность: 01:28:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EED748D0E6206F136DDCBFAB1D2E1F338D7D0750
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

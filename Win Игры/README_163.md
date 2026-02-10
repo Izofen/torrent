@@ -19,6 +19,8 @@ Back - это игра ужасов с полным движением и жив
 magnet:?xt=urn:btih:D37019452A240F21A36FD4F3CD9AAB4F7E319E3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Great Houses of Calderia с головой окунает вас в жесток
 ```bash
 magnet:?xt=urn:btih:FE4035DF7DF2E54938CE678D14CB066EEC89FCB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ S.T.A.R.W.I.E.L.D. (2024) [Ru/En] (1.04) Repack Other s
 magnet:?xt=urn:btih:F088C7B82DABCE4865C740BF684B1793C90A2EAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ STAR WARS: Bounty Hunter (2024) [Ru/Multi] (Build 15125379) Repack Other s
 ```bash
 magnet:?xt=urn:btih:AE6769677AC417C15E255285850D42427FEF5463
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Blacklist Mafia (2024) [Ru/En] (Build 15226435) Repack Other s
 magnet:?xt=urn:btih:45D7C4D4254334C792F08FF6F7512C89DC7D7F57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ BioGun погружает пользователей в микроскопиче
 ```bash
 magnet:?xt=urn:btih:C9C6CCFBDC1EFAB4DBF17473463E2C74B92DD2EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Oblivion Override погружает в постчеловеческую эпо�
 magnet:?xt=urn:btih:681750EE7F5104FBE93762D0D4161EAC8705AAEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Ogu and the Secret Forest - это двухмерная приключенчес
 ```bash
 magnet:?xt=urn:btih:A8860A84DB8E0784E78BC12A0313B2B6345F7E9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Backrooms: Survival сочетает в себе ужас выживания
 magnet:?xt=urn:btih:FCBD5E89580F100A64DCA52D3595836FB016F509
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Darkside Detective: A Fumble in the Dark (2021) [Multi] (2.32.2089.160d) Lic
 ```bash
 magnet:?xt=urn:btih:5C62178FC95EF51C17E3F0088565C29923B8A800
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Gym Simulator 24 - виртуальный тренажерный зал, кот�
 magnet:?xt=urn:btih:61A15C76712C3B57FC56A025CB8CE8DC1B1D9536
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Relic Space (2023) [En] (1.03) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:6E580E81A95464ACEC34F8D5014C0990B399F4F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Elden Ring – фэнтезийное экшен-РПГ приключение, 
 magnet:?xt=urn:btih:32AEAADE742D19329E330F7F7592FAA9803DD606
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Dead Space 2 (2011) [Ru/En] (1.1/dlc) Repack FitGirl [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:9F26DEC70730323C0C0860CDEDD37094F22BEDFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ EARTH DEFENSE FORCE 6 (2024) [Multi] (1.0/dlc) Repack FitGirl
 magnet:?xt=urn:btih:BCB247444C907AC4FEBF0584CFD5EE4A1D15591A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Dead Space (2008) [Ru/Multi] (1.0.0.222) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:35AC15D995679FBAC510BC78A98005DEDF1F3BD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Dread Delusion смешивает фэнтезийное средневеков�
 magnet:?xt=urn:btih:5F5DF25F2BC3825F3237B5D92D5DA1900B585E3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ The Darkside Detective (2017) [Multi] (2.127.4.167d) License GOG
 ```bash
 magnet:?xt=urn:btih:6C690D20A8DA12E69B615F6AFAD22AEA5228FEA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Fabledom - это волшебный градостроительный симу
 magnet:?xt=urn:btih:F9C0FF8F133A91B08DB64C1F3255D3DA1DDD5F10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Stray (2022) [Ru/Multi] (1.5#368) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:678B009A600D40348A895CCEA75C149ED40E7118
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Dead Space 3 (2013) [Ru/En] (1.0.0.1/dlc) Repack FitGirl [Limited Edition]
 magnet:?xt=urn:btih:C42EDB14F8B5E309ABD7D1B8E7242599E962C189
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Fabledom - это волшебный градостроительный симу
 ```bash
 magnet:?xt=urn:btih:36CD0882E9BD1627D44F3D32061FC5BEF92E7A5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Cursed Fables 5: A Gilded Rose (2024) [En] (1.0) Unofficial [Collector's Edition
 magnet:?xt=urn:btih:1ADA5DA3002552594B28F1F8AE435742F6A14EA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Spirit Island - стратегия, выполненная в стиле нас�
 ```bash
 magnet:?xt=urn:btih:0319D2D4AF27F08696939E3B8F6BA94F1CD3F554
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Tales from the Borderlands (2014) [Ru/En] (1.0.1) Repack FitGirl [Episodes 1-5]
 magnet:?xt=urn:btih:5AEC15AC2057B8118B5A3E588CB76374F09F6277
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Space Prison бросает вас в холодную реальность га
 ```bash
 magnet:?xt=urn:btih:9BFFD9FBE2FB8DEFBF4971D5A0354D2DE60B5607
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ VA - Jazz Sensation Lounge (Chillout Your Mind) (2019) [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:F4E0EBBE8C5553439FAB405CD67B8FD1452F4356
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Blue Bar Lounge (Chillout Your Mind) (2019) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:5655B492F2E0F6261844FCA0D46C59E1D2F37FDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Eyeless In Gaza - Skeletal Framework (2022) 5CD, The Cherry Red Recordings 1981-
 magnet:?xt=urn:btih:B55D63C6C6E1820448D33C4A9AD0556E52943293
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ CatchAll - Original Structures (2017) Plexus Music [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:9CDA9A749F0C52BC4F579E78134641F8DA3F4D8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Chillmode For Spa & Wellness Hotels (2017) [MP3|320 Kbps] <Balearic, Downte
 magnet:?xt=urn:btih:C6D1C71C6F74CB7741081922E8CD4FD8A126DA39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - The Sound of Kingside 2017 (Compilation) [MP3|320 Kbps] <Progressive House,
 ```bash
 magnet:?xt=urn:btih:913B6554CFD8A6925D82F178AF93ABA4C3456B6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Sequences
 magnet:?xt=urn:btih:F3EAA1361B74C2A59636C6505176333A7F0B30BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Pastel Ghost - Ethereality (2018) [FLAC|Lossless|tracks + .cue] <Synthpop>
 ```bash
 magnet:?xt=urn:btih:C1FA79211E475A1F439F6C9ACDD410BF1F34FD3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Blackfilm - Discography 8 Releases (2008-2018) Denovali Records [FLAC|Lossless|t
 magnet:?xt=urn:btih:9830C330469A2AE7D3F825A7723259C7A78C61FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Dense - Impact (2018) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] <Psychill
 ```bash
 magnet:?xt=urn:btih:2051A67C69867212360287E99F928D0FB6187639
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Ah Cama-Sotz - Discography 29 Releases (1997-2020) Bats & Cats, Ant-Zen, Hands P
 magnet:?xt=urn:btih:DAA0B1DA2B7E3AE510C128C0C02D4DE79F1090B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ aAirial - Discography 16 Releases (2009-2020) [FLAC|Lossless|WEB-DL|tracks] <IDM
 ```bash
 magnet:?xt=urn:btih:3431296E69DF1575D14D1704DA2EA52DC1FE5D20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Oriental Indian Chill Loung - Private Room (2014) [MP3|320 кб/с]<Downtempo, C
 magnet:?xt=urn:btih:BE61E59A8DDD53031A6374403D6555C20C63D529
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Nothing But... The Future Of Trance Vol.09 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:DB581AEAE3663084D13BBC87E1AD2538EA327727
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Laura Luna Castillo - Laminares (2018) Genot Centre [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:DFC2D6B47701B252A1C43B6CEF8F0AC12D1BA15E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - Trance Anthems Vol.3 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:F91E23565312C63B0538F8BFC67FE013F66EC055
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - Magic Of Trance Vol. 6 (Mixed by Vito Von Gert) (2018) [MP3|320 Kbps] <Tran
 magnet:?xt=urn:btih:1C980DA8F3C00BC2546B12660B6C99C909D6C95B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ VA - Suanda Autumn Vol.5 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:9B10FC87D40BD7DEEA2F4EE50857F98B00A2DEE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ VA - Ibiza 2015: Essential Funky House Vol. 2 (2015) [MP3|320 кб/с]<House, Cl
 magnet:?xt=urn:btih:A035EE23DC79A25BDB8852BA8C53E75B36158B6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ VA - La Dolce Vita Lounge Collection 20 Fine Easy Listening Tunes (2015) [MP3|32
 ```bash
 magnet:?xt=urn:btih:EA1B85B78AFD7509F951178C89DEB576F4869C55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ Atomine Elektrine - Laniakea (2015) [MP3|320 кб/с]<Ambient, Experimental, Spa
 magnet:?xt=urn:btih:70418920EB6B994CBD11EF53B746DC00EE1CAE3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ Rammstein - InFected Brain (Instrumental & Remixes Versions) (2003) Bootleg [FLA
 ```bash
 magnet:?xt=urn:btih:43770EEEFAD167FB2D8A74074A8864A80F60AFF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ B2. Lorenzo Chiabotti - CursorЖанр: Electronic, House, Minimal, Tech HouseП
 magnet:?xt=urn:btih:86C1DBDC29055F74B0B168EBC708222851FBB48E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ VA - Individual Collection Vol.9 (2020) [MP3|320 Kbps] <Trance, Big Room, Drum &
 ```bash
 magnet:?xt=urn:btih:51770614642E3A527015A0FE4D3690EE5987457C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ Markus Schulz - Escape to Sedona
 magnet:?xt=urn:btih:439E75AA7FC43F7FED964CB486075E5AE942BD3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ Henrik Meierkord - Själ (Sjal) (2019) Ambientologist [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:E660125EBD242ED1A02B4B17377912AE7CB1F070
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

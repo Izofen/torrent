@@ -1,3 +1,32 @@
+###  Публикация: 1214903   (761289) от 24.03.2018
+
+Lumen - Забытое и найденное (2018) [FLAC|Lossless|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Домой
+02. Пули
+03. Вечность
+04. Самый главный человек(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF5A1D9A6C52239DD391E72504AA069D447B696B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214861   (762883) от 23.03.2018
 
 Дельфин - 442 (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
@@ -21,6 +50,8 @@
 ```bash
 magnet:?xt=urn:btih:43CFCEFFDF68C1D06774B29D930678CEF842906B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +79,8 @@ magnet:?xt=urn:btih:43CFCEFFDF68C1D06774B29D930678CEF842906B
 ```bash
 magnet:?xt=urn:btih:ADAB57CC7E3D158176B684C099E52C406B23FC02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -77,6 +110,8 @@ magnet:?xt=urn:btih:ADAB57CC7E3D158176B684C099E52C406B23FC02
 magnet:?xt=urn:btih:AC987EB65061D4C65BC6CBC1F52F4A56C17250BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +138,8 @@ magnet:?xt=urn:btih:AC987EB65061D4C65BC6CBC1F52F4A56C17250BD
 ```bash
 magnet:?xt=urn:btih:B492B56D8488469869D0C7EDB01B3E229996A7F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -131,6 +168,8 @@ magnet:?xt=urn:btih:B492B56D8488469869D0C7EDB01B3E229996A7F9
 magnet:?xt=urn:btih:AD0F353AEC8F3FE047ADE220D44E0F52FB3DDFBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +196,8 @@ Forgive-Me-Not - Heavenside (2004) [FLAC|Lossless|image + .cue] <Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:30479DCC935002225B15398BED8EA56307811686
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -185,6 +226,8 @@ magnet:?xt=urn:btih:30479DCC935002225B15398BED8EA56307811686
 magnet:?xt=urn:btih:B04DB5DD2EDAF092692F533611265C07BF90846E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +254,8 @@ magnet:?xt=urn:btih:B04DB5DD2EDAF092692F533611265C07BF90846E
 ```bash
 magnet:?xt=urn:btih:DBBC626BDCF55B0973AB54A954CDC38A3DF84A32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +284,8 @@ Alkonost - Песни белой лилии (2016) [FLAC|Lossless|tracks + .cue]
 magnet:?xt=urn:btih:889DF248EC200074DDF7AD73CE5251429AE0DB8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +312,8 @@ Alkonost - Октаграмма (2018) [FLAC|Lossless|tracks + .cue] <Folk, Meta
 ```bash
 magnet:?xt=urn:btih:36C7EFC57B5058A63BF6024FFF20AC38FE7FEB3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +342,8 @@ magnet:?xt=urn:btih:36C7EFC57B5058A63BF6024FFF20AC38FE7FEB3F
 magnet:?xt=urn:btih:F6AD1460523E6676F4387C0DE84029EE9A184867
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +370,8 @@ magnet:?xt=urn:btih:F6AD1460523E6676F4387C0DE84029EE9A184867
 ```bash
 magnet:?xt=urn:btih:6D911253A765D37CA87118417AEE640B8BDC9562
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +400,8 @@ magnet:?xt=urn:btih:6D911253A765D37CA87118417AEE640B8BDC9562
 magnet:?xt=urn:btih:DDC73A9011BF8E9491F5F6C99A1D751E2B4B2C9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +428,8 @@ magnet:?xt=urn:btih:DDC73A9011BF8E9491F5F6C99A1D751E2B4B2C9C
 ```bash
 magnet:?xt=urn:btih:C3D24BC0648AA2A95317B28EAF6B39B88C4AB886
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +458,8 @@ magnet:?xt=urn:btih:C3D24BC0648AA2A95317B28EAF6B39B88C4AB886
 magnet:?xt=urn:btih:1FD09AEA4BDF4AFDDFA4BD32C3FB2593E712ADD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +486,8 @@ magnet:?xt=urn:btih:1FD09AEA4BDF4AFDDFA4BD32C3FB2593E712ADD8
 ```bash
 magnet:?xt=urn:btih:8A9926C9F0CB4AFB04937A3A098D295951A8608B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +516,8 @@ magnet:?xt=urn:btih:8A9926C9F0CB4AFB04937A3A098D295951A8608B
 magnet:?xt=urn:btih:67D648587A9BF4056AF4C2EDC71357B1E3834388
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +544,8 @@ magnet:?xt=urn:btih:67D648587A9BF4056AF4C2EDC71357B1E3834388
 ```bash
 magnet:?xt=urn:btih:B7E7CDBAB288EB68169577F86C5FD0B952FF0CED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +574,8 @@ magnet:?xt=urn:btih:B7E7CDBAB288EB68169577F86C5FD0B952FF0CED
 magnet:?xt=urn:btih:20581F30E89E02B5EF219909647EEC3F224BAB0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +602,8 @@ magnet:?xt=urn:btih:20581F30E89E02B5EF219909647EEC3F224BAB0A
 ```bash
 magnet:?xt=urn:btih:9AAA9AEB3724496870244D6AEC3BB6EE7BC70739
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +632,8 @@ Krüger - Врага бей в рога (2018) [FLAC|Lossless|image + .cue] <Hea
 magnet:?xt=urn:btih:7485CEE9C21D3DC4DE79A8949EEDF2BB5B14A69E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +660,8 @@ magnet:?xt=urn:btih:7485CEE9C21D3DC4DE79A8949EEDF2BB5B14A69E
 ```bash
 magnet:?xt=urn:btih:5DB34FF8F7224E6FB34CA523A26079CD8B406844
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +690,8 @@ magnet:?xt=urn:btih:5DB34FF8F7224E6FB34CA523A26079CD8B406844
 magnet:?xt=urn:btih:AD62684E7B52AFB29FA8207DADAA8E27E6D45F47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +718,8 @@ magnet:?xt=urn:btih:AD62684E7B52AFB29FA8207DADAA8E27E6D45F47
 ```bash
 magnet:?xt=urn:btih:1504E0CB190D8301BB478C367E705218FD1B320B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -671,32 +748,7 @@ VA - Rock сейшн (1999) [FLAC|lossless|image + .cue] <Rock>
 magnet:?xt=urn:btih:9CA95C8A371217EE68F55D69AE42D231E7D098EC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512450   (787089) от 25.11.2021
-
-Ленинград - Хна (2011) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сладкий Сон
-02. И Больше Никого
-03. Прощай
-04. Нет И Еще Раз Нет(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F13B3CDEED7B25189BAFE91BA2152FB6CB16484B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

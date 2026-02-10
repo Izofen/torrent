@@ -22,6 +22,8 @@ Noraus - Noraus (2019) Microcosmos Records [FLAC|Lossless|WEB-DL|tracks] <Psybie
 magnet:?xt=urn:btih:838F44F00A5E1C108EC23BC9CCE67D7516BE113A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Gregory Esayan - Pilgrim's Diary (2016) [MP3|320 кб/с] <Progressive House , B
 magnet:?xt=urn:btih:8AE1F83CCE554549F80A15D71E50F86C1E12854B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Brian Eno - Reflection (2017) Japanese Limited Edition [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:7E2A0D2C969665BC13C94533B05ADE5DCAB05441
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ VA - Welcome To Miami (2019) [MP3|320 Kbps] <House, FutureHouse, Dance>
 magnet:?xt=urn:btih:472F3EE0145B60F54CE7F9742E80D11ACB5BAA89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ David August - D'Angelo (2018) [FLAC|Lossless|tracks + .cue] <Tech House, Deep H
 ```bash
 magnet:?xt=urn:btih:6A08D5F951836D29675927AA1881A7FB112C27A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ Lito - Hayastan EP (2018) Precept [FLAC|Lossless|WEB-DL|tracks] <Techno>
 magnet:?xt=urn:btih:7E4A50F897DB3EAA446E378A12054A61413B7008
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ Conforce - Machine Conspiracy (2010) Meanwhile [FLAC|Lossless|tracks+.cue] <Tech
 ```bash
 magnet:?xt=urn:btih:4CB13ECE40671BEDB858D662E47A8A3BF814A2F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ VA - Psychedelic Addict, Vol.1-2 (2019-2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/
 magnet:?xt=urn:btih:CD0C429D8ECFE1D12FA70B36648FFAD5DC0897CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +250,8 @@ VA - Techno Club Vol. 50 (Mixed by Talla 2XLC & Kai Tracid) (2016) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:71CA990AC8B6C657EE27E6F0D2B4FD7CE4FF384A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +280,8 @@ VA - The Chill Stompers, II (2020) AstroPilot Music [FLAC 2.0|44.1/24|tracks|WEB
 magnet:?xt=urn:btih:B62E2445194BC4B8ABD3E4BD4C648C72704C1490
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +308,8 @@ Bernd Filz - A Good Stuff (2016) [MP3|320 кб/с] <Electronic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:D8ED696962D2AAB3984130B8F9B684F7F72E3AEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +338,8 @@ Matt Fax - Progressions (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive House,
 magnet:?xt=urn:btih:B9FA38206333A3C74635312A330C576C6FB98EBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +366,8 @@ Matt Fax - Contrast (Remixed) (2018) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progres
 ```bash
 magnet:?xt=urn:btih:42E2B8EAE24EDC27C641E93650EF689E1986CF3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +396,8 @@ Matt Fax - Contrast (2017) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House
 magnet:?xt=urn:btih:F1E7D74D322B4AC8DC6E3CBA2688F12E49F2FF96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +421,8 @@ Stimming - Stimming (2013) [FLAC|Lossless]<Tech House, Deep House, Minimal Techn
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +448,8 @@ La Caina (ex resident of Cafe Del Mar) - Discography 4 Releases (2006-2015) [MP3
 magnet:?xt=urn:btih:06BFBB515BE74C1F1CC8B0783B9CB60C3868795C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +473,8 @@ DAB / Digital Analog Band (ex resident of Cafe Del Mar) - Discography 3 Releases
 ```bash
 magnet:?xt=urn:btih:AF6C8407E59A61D74BF589D55C99115C6FB41E22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +503,8 @@ Sonar - Volt Revisited (2003) Hands Productions [FLAC|Lossless|Vinyl|tracks] <Rh
 magnet:?xt=urn:btih:DC922B6CDCCA14A5CF6FB282498556C20072A9A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +531,8 @@ VA - Love Nightlife, Vol. 1 The Lounge Room Grooves By Kolibri Musique (2017) [M
 ```bash
 magnet:?xt=urn:btih:F39B19A0B4B1E9241AF53E22D5FF8870CF4ADF97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +561,8 @@ VA - Love Nightlife, Vol. 2 The Lounge Room Grooves (2018) [MP3|320 Kbps] <House
 magnet:?xt=urn:btih:BE3ED535529449756670775371C4985B42BEFF4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +589,8 @@ VA - Einfach Nur Mugge 2018 [MP3|320 Kbps] <House, Deep House, Big Room>
 ```bash
 magnet:?xt=urn:btih:294F43C3A2901011F327B8F59917B2CE99FD2B9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +619,8 @@ Bonobo - Fragments (2022) [FLAC|Lossless|Web-DL|tracks] <Downtempo, Ambient, Dee
 magnet:?xt=urn:btih:72DAF2FB63F16F88C53575716821C0B50DAE2383
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +647,8 @@ Nivhek - After its own death / Walking in a spiral towards the house (2019) [FLA
 ```bash
 magnet:?xt=urn:btih:E60752EB8DE35E85D8720CF67EC6C3F5358759CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +677,8 @@ All4tonic - Mus(ion)ic (2016) [MP3|160 кб/с] <Electronic, Ambient, EDM>
 magnet:?xt=urn:btih:B97A57150A726DBA367599A460D7EA4F789F0A24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +706,8 @@ VA - Good Old Days Vol 3: Disco House Sounds (2019) [MP3|320 Kbps] <Disco, Nu-Di
 magnet:?xt=urn:btih:C8A5388C33F3967DCCA8757FB56BF0B3A91A63F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -684,6 +734,8 @@ GMS - The G.M.S. Experiment (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance
 ```bash
 magnet:?xt=urn:btih:EF316E8DA07D32636F1265363839E9D01798AFC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

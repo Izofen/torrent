@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Valhalla Path: Survival (2024) [Ru/Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:CA970240B46A36FAF7AB663D29F2DCC03E7DAA33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:CA970240B46A36FAF7AB663D29F2DCC03E7DAA33
 ```bash
 magnet:?xt=urn:btih:8115BE693B5A3D11E65D8310551B09F6A802B9E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:8115BE693B5A3D11E65D8310551B09F6A802B9E8
 magnet:?xt=urn:btih:9EFFC01B8EAAEFCA55BCE2C7E9778AA0A67C12DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:9EFFC01B8EAAEFCA55BCE2C7E9778AA0A67C12DC
 ```bash
 magnet:?xt=urn:btih:0F314C32A063D472520C0F54644FA629C9BEB067
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Red Button – это мощная утилита для оптимизации 
 magnet:?xt=urn:btih:CE76EB74082C55ACD0C0EED37043859E8CD1F452
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:CE76EB74082C55ACD0C0EED37043859E8CD1F452
 ```bash
 magnet:?xt=urn:btih:D25A25F1E5A8766993787197CCA262DEE20AFC95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Horizon: Zero Dawn (2020) [Ru/Multi] (1.0.10.5/dlc) Repack xatab [Complete Editi
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ The Dungeon of Naheulbeuk - это ролевая игра, основанная
 ```bash
 magnet:?xt=urn:btih:CB4C839105AFF6A7A834CB9452F6566CE5E812BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:CB4C839105AFF6A7A834CB9452F6566CE5E812BD
 magnet:?xt=urn:btih:F918DFBAD7032E0EFC4511448CF8E4F751BC6B07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Returnal - это оригинальный шутер от третьего ли
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Marvel’s Spider-Man: Miles Morales (2022) [Ru/Multi] (1.1121.0.0/dlc) Repack O
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Sackboy: A Big Adventure (2022) [Ru/Multi] (10776131/dlc) Repack dixen18
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Sackboy: A Big Adventure (2022) [Ru/Multi] (10776131/dlc) Repack dixen18
 magnet:?xt=urn:btih:E379E85394E673366E8ABE6115A6842CDD497F32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Notification Widget v1.5.162 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D27A5EF571AE9ED58E37611FEEF290B907D0EFFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Product University, Виталий Капранов, Егор Котельник
 magnet:?xt=urn:btih:1B8D10E848445D14CE33965AB02D9ABBDC70AB53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:1B8D10E848445D14CE33965AB02D9ABBDC70AB53
 ```bash
 magnet:?xt=urn:btih:5B8D00ECF2EAAA168AC5A41665873B4149298898
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:5B8D00ECF2EAAA168AC5A41665873B4149298898
 magnet:?xt=urn:btih:B2E42CFF85260034AC835A07EDC80AF744DC11AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:B2E42CFF85260034AC835A07EDC80AF744DC11AF
 ```bash
 magnet:?xt=urn:btih:CB9968EEED8C49E8C6A86DBAE30339E755A6B2F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:CB9968EEED8C49E8C6A86DBAE30339E755A6B2F1
 magnet:?xt=urn:btih:73E74561BD07DDC0BB8EF23DD02D27FA3225288A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:73E74561BD07DDC0BB8EF23DD02D27FA3225288A
 ```bash
 magnet:?xt=urn:btih:641F845E02D9D99BD2126FAA56D0E46A900B1859
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:641F845E02D9D99BD2126FAA56D0E46A900B1859
 magnet:?xt=urn:btih:5F93166311238D8A9EAD8D0A08EF114D0870A646
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ magnet:?xt=urn:btih:5F93166311238D8A9EAD8D0A08EF114D0870A646
 ```bash
 magnet:?xt=urn:btih:50BF16AF974B8F380E119B034954905F076DDDAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:50BF16AF974B8F380E119B034954905F076DDDAE
 magnet:?xt=urn:btih:94B6C9F27A97EBE5D9AB1BE7C47056F615526C7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ magnet:?xt=urn:btih:94B6C9F27A97EBE5D9AB1BE7C47056F615526C7D
 magnet:?xt=urn:btih:A202980A4CF3F9F2BEA13E9D45CCD1F95D80D430
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ magnet:?xt=urn:btih:A202980A4CF3F9F2BEA13E9D45CCD1F95D80D430
 ```bash
 magnet:?xt=urn:btih:B022330B6103D30A14362265BF086E90EE859BD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

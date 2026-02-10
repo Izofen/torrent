@@ -19,6 +19,8 @@ SUPER BOMBERMAN R2 (2023) [Ru/Multi] (1.3.1) Repack Let'sРlay
 magnet:?xt=urn:btih:93D32ED9C922C86ED996E7CFD9DF7F33EC48A560
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Photo Sherlock v1.125 Mod by Mixroot  [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:53AC974FAEE590306F375E260D30524882798E58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:53AC974FAEE590306F375E260D30524882798E58
 magnet:?xt=urn:btih:C936EE78D4DEC17C7F99D6CFA5E2385DFC7AF2EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:C936EE78D4DEC17C7F99D6CFA5E2385DFC7AF2EA
 ```bash
 magnet:?xt=urn:btih:EF4103E83CE6CC49B50903F069F9D9A6611E8EF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Slay the Princess (2023) [Ru/Multi] (build 16887603) Repack seleZen [The Pristin
 magnet:?xt=urn:btih:13BADD3A17E1ED57F351FC537C086636E2AF8C92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ DRAGON QUEST BUILDERS v1.1.1 [En]
 ```bash
 magnet:?xt=urn:btih:446DAEBB2EB07923BA10E63766FDE1603D90C485
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:446DAEBB2EB07923BA10E63766FDE1603D90C485
 magnet:?xt=urn:btih:3F263D3D281AD49ABCB52D9C663D9C9C5A140DD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:3F263D3D281AD49ABCB52D9C663D9C9C5A140DD3
 ```bash
 magnet:?xt=urn:btih:E995F69C70D94A7A885A05C8E0943CDEB96CE747
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:E995F69C70D94A7A885A05C8E0943CDEB96CE747
 magnet:?xt=urn:btih:6BF24D03E8190DF8D5C6405755F0485D4F503898
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Picsmaster Photo Editor Pro, также известный как Picsmaster, �
 ```bash
 magnet:?xt=urn:btih:05999D511F2F84618CA7A99EC8680C4478EF8200
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:05999D511F2F84618CA7A99EC8680C4478EF8200
 magnet:?xt=urn:btih:310F9AFB5EE3087C233BFCFC414FF55B8125F4C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:310F9AFB5EE3087C233BFCFC414FF55B8125F4C9
 ```bash
 magnet:?xt=urn:btih:CD089B390B8557F246E011730BB71FAB0D218864
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:CD089B390B8557F246E011730BB71FAB0D218864
 magnet:?xt=urn:btih:C84761A3427A7211E9852A4F06E6B02BEE658856
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:C84761A3427A7211E9852A4F06E6B02BEE658856
 ```bash
 magnet:?xt=urn:btih:3868E9ABF5812EADA0AC96AD8D661885F0FF59B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:3868E9ABF5812EADA0AC96AD8D661885F0FF59B2
 magnet:?xt=urn:btih:F913049FD2A0F68D721F3EE3143C4D9783816A49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:F913049FD2A0F68D721F3EE3143C4D9783816A49
 ```bash
 magnet:?xt=urn:btih:823D85D34CC95EC40FF304EA6A8D14B3CCA045F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ Ugly — мрачный сказочный платформер, в которо
 magnet:?xt=urn:btih:F43787B2D0C8FD37704989AF9D26FC11FD64E773
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:F43787B2D0C8FD37704989AF9D26FC11FD64E773
 ```bash
 magnet:?xt=urn:btih:324545E02A58C238E870021158F944E762D8626E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:324545E02A58C238E870021158F944E762D8626E
 magnet:?xt=urn:btih:AA2AE3548BD736EE0A5D23666071569B66145B27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:AA2AE3548BD736EE0A5D23666071569B66145B27
 ```bash
 magnet:?xt=urn:btih:32CB8094C7C61C2AB1252E385D5BD1D12834B5D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:32CB8094C7C61C2AB1252E385D5BD1D12834B5D9
 magnet:?xt=urn:btih:EB773FA24A6981EC98BCE18D10046B8801BEF126
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Limoria (2025) [Ru/Multi] (build 16883517) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:3244F6AE41A741AFE70202EEB3DC9C92291F5B1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:3244F6AE41A741AFE70202EEB3DC9C92291F5B1A
 magnet:?xt=urn:btih:62A47CC4F9B6DD157A84CB8ED6234B603FBFF433
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:62A47CC4F9B6DD157A84CB8ED6234B603FBFF433
 ```bash
 magnet:?xt=urn:btih:DBE8E8532B4AC43F8D51FAC619F5D39E2801B572
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:DBE8E8532B4AC43F8D51FAC619F5D39E2801B572
 magnet:?xt=urn:btih:7F6B83582EB39342E48F77526047FB770753B8A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ magnet:?xt=urn:btih:7F6B83582EB39342E48F77526047FB770753B8A4
 ```bash
 magnet:?xt=urn:btih:459F654CD91FFBF32E8E70C91E6D4C266E4CECC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

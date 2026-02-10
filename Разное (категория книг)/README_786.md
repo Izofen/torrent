@@ -1,3 +1,30 @@
+###  Публикация: 1444603   (1034407) от 02.02.2021
+
+Дмитрий Лихачев | Как мы выжили (2021) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дмитрий Сергеевич Лихачев – человек, чье имя известно во всем мире. Выдающийся знаток отечественной и моровой культуры, избранный почетным членом многих зарубежных академий, глубокий мыслитель и общественный деятель.
+В книгу «Как мы выжили» входят воспоминания Дмитрия Сергеевича разных лет, в том числе и пронзительные, порой беспощадные и тягостные наблюдения о жизни (   Читать дальше...   )Жанр: Биографии и мемуары, Книги о войне, ПублицистикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C074087BDD43C6FE85742D5E9D44367CBF52F29E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444648   (1034411) от 02.02.2021
 
 Махатма Ганди | Моя жизнь, или История моих экспериментов с истиной (2020) [EPUB]
@@ -19,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:D2E0BC1A4FEBB478DA6C8C28EE4F023B7C200C45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +74,8 @@ magnet:?xt=urn:btih:D2E0BC1A4FEBB478DA6C8C28EE4F023B7C200C45
 magnet:?xt=urn:btih:918AE4BB90E9708CFD95636B0BDC8986E45E5A1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +100,8 @@ magnet:?xt=urn:btih:918AE4BB90E9708CFD95636B0BDC8986E45E5A1D
 ```bash
 magnet:?xt=urn:btih:E77555168F57E63423505AA9C5EEEA107C24C048
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +129,8 @@ magnet:?xt=urn:btih:E77555168F57E63423505AA9C5EEEA107C24C048
 magnet:?xt=urn:btih:DF1BA22CD6B031B3CE308160B3923423FC1C959C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +157,8 @@ magnet:?xt=urn:btih:DF1BA22CD6B031B3CE308160B3923423FC1C959C
 magnet:?xt=urn:btih:4F418DFFB2469E91D1955834AD3CF188E4C8C3A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +182,8 @@ magnet:?xt=urn:btih:4F418DFFB2469E91D1955834AD3CF188E4C8C3A1
 ```bash
 magnet:?xt=urn:btih:22F19DE753912FB362D1BF8986AAC0C11F451FCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +211,8 @@ magnet:?xt=urn:btih:22F19DE753912FB362D1BF8986AAC0C11F451FCF
 magnet:?xt=urn:btih:91E55AC716598D1F7ACC814F172D51CB6659F0A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +236,8 @@ magnet:?xt=urn:btih:91E55AC716598D1F7ACC814F172D51CB6659F0A0
 ```bash
 magnet:?xt=urn:btih:36C88D34B359E0FA03F3A643A014326B6E1D0EF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +266,8 @@ magnet:?xt=urn:btih:36C88D34B359E0FA03F3A643A014326B6E1D0EF3
 magnet:?xt=urn:btih:5606C5A6B90085E67EF1451625F1C8D06780E9CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +293,8 @@ magnet:?xt=urn:btih:5606C5A6B90085E67EF1451625F1C8D06780E9CA
 magnet:?xt=urn:btih:A23A881D5A625EC1904693555801ED6285FD2B19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +318,8 @@ magnet:?xt=urn:btih:A23A881D5A625EC1904693555801ED6285FD2B19
 ```bash
 magnet:?xt=urn:btih:15AFF05E83308187D940B4E04302492CF0C428C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +345,8 @@ magnet:?xt=urn:btih:15AFF05E83308187D940B4E04302492CF0C428C2
 magnet:?xt=urn:btih:84493BF8BDDFE80D2294DB0D472B8448C0D4A992
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +371,8 @@ magnet:?xt=urn:btih:84493BF8BDDFE80D2294DB0D472B8448C0D4A992
 magnet:?xt=urn:btih:74B671AC8AA153BD451AA9ACB30F46EB1DEF6022
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +396,8 @@ magnet:?xt=urn:btih:74B671AC8AA153BD451AA9ACB30F46EB1DEF6022
 ```bash
 magnet:?xt=urn:btih:C5B4F853EF644EDC2BCF9B3311D356E2C4EACA43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +425,8 @@ magnet:?xt=urn:btih:C5B4F853EF644EDC2BCF9B3311D356E2C4EACA43
 magnet:?xt=urn:btih:F2484D75E0363EDF788837A249E5DE4A9F674AB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +450,8 @@ magnet:?xt=urn:btih:F2484D75E0363EDF788837A249E5DE4A9F674AB8
 ```bash
 magnet:?xt=urn:btih:44664E217814AE1988C2C076E78C9AB139D66F79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +477,8 @@ magnet:?xt=urn:btih:44664E217814AE1988C2C076E78C9AB139D66F79
 magnet:?xt=urn:btih:0A82A0E2EBA20031564A229107158C710D36A9D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +503,8 @@ magnet:?xt=urn:btih:0A82A0E2EBA20031564A229107158C710D36A9D9
 magnet:?xt=urn:btih:65FD0B4958CF49589FF4013CB9012B8EFFCDCCD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +528,8 @@ magnet:?xt=urn:btih:65FD0B4958CF49589FF4013CB9012B8EFFCDCCD2
 ```bash
 magnet:?xt=urn:btih:FAD78B45B011D35A30E0A8C6B55AA0D8FACC08DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +556,8 @@ magnet:?xt=urn:btih:FAD78B45B011D35A30E0A8C6B55AA0D8FACC08DC
 magnet:?xt=urn:btih:7DD14675574C5A4C315D60F18E441832C6F998C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +582,8 @@ magnet:?xt=urn:btih:7DD14675574C5A4C315D60F18E441832C6F998C0
 ```bash
 magnet:?xt=urn:btih:905964DAEF8E5F874FE441F345AE235B29EBF371
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +610,8 @@ magnet:?xt=urn:btih:905964DAEF8E5F874FE441F345AE235B29EBF371
 magnet:?xt=urn:btih:65A3EF5B29F3931E92D35A4C49DC082EDBC4BA69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +635,8 @@ magnet:?xt=urn:btih:65A3EF5B29F3931E92D35A4C49DC082EDBC4BA69
 ```bash
 magnet:?xt=urn:btih:2F59661E7D7AF2B56E93DD1BEF3DD23DB3590AB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +662,8 @@ magnet:?xt=urn:btih:2F59661E7D7AF2B56E93DD1BEF3DD23DB3590AB2
 magnet:?xt=urn:btih:AC81D0D6B8E085C7A08ADB1BE74E5CF35AAEAE93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,29 +688,7 @@ magnet:?xt=urn:btih:AC81D0D6B8E085C7A08ADB1BE74E5CF35AAEAE93
 magnet:?xt=urn:btih:B537175A3A35A54B6BE45DADC1A620D4F59C9800
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617366   (1035266) от 06.03.2023
-
-Дмитрий Гриц | Адвокат бизнеса: 20 юридических консультаций понятным языком (2019) [FB2]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основные задачи предпринимателя в России, особенно на старте, – это выжить, найти клиентов, удержать и развить свой бизнес. Юридические аспекты при этом обычно уходят на второй план, во многом потому, что кажутся слишком сложными и непонятными. Однако базовая юридическая грамотность нужна всем, ведь именно из-за правовых ошибок можно потерять много денег, а то и (   Читать дальше...   )Жанр: ЮриспруденцияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13316040EF2378DCA841B9654663386B709EA81A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

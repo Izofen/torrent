@@ -1,3 +1,30 @@
+###  Публикация: 1369843   (899900) от 25.03.2020
+
+Евгений Старухин | Лесовик. Хаос повсюду (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899900.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Хаос повсюду» – фантастический роман Евгения Старухина, шестая книга цикла «Лесовик», жанр боевое фэнтези, LitRPG.
+Освободились боги двух стихий: хаоса и порядка. Что это принесёт миру, как отразится на главном герое, который является адептом одного из них? Насколько тяжело остаться самим собой, когда твой виртуальный бог сует свой нос абсолютно везде, даже в личную (   Читать дальше...   )Жанр: Боевое фэнтези, LitRPGПродолжительность: 09:22:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B4A33252655918E9E692DEBC5768B815A03C9ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369901   (899909) от 25.03.2020
 
 Дмитрий Серебряков | Война (2020) [MP3]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:01DE782596C6C2043E13CEBF5BFAB4B85717B8C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +73,8 @@ magnet:?xt=urn:btih:01DE782596C6C2043E13CEBF5BFAB4B85717B8C8
 magnet:?xt=urn:btih:C0DB07EF339985FC1950D59D1F44D7F15C78107D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +100,8 @@ magnet:?xt=urn:btih:C0DB07EF339985FC1950D59D1F44D7F15C78107D
 magnet:?xt=urn:btih:188AFA633B02F80B7EE685260CCE1BC551A2D6A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +125,8 @@ magnet:?xt=urn:btih:188AFA633B02F80B7EE685260CCE1BC551A2D6A8
 ```bash
 magnet:?xt=urn:btih:5323C95CA366C9888BBF6838F8CE2980C9EE9649
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +154,8 @@ magnet:?xt=urn:btih:5323C95CA366C9888BBF6838F8CE2980C9EE9649
 magnet:?xt=urn:btih:420BE87A1B2F6A71AB0FBF4F867298BA911EF609
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +182,8 @@ magnet:?xt=urn:btih:420BE87A1B2F6A71AB0FBF4F867298BA911EF609
 magnet:?xt=urn:btih:DBF90492CAAFCF1BE4F4753933CA618E4E370220
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +209,8 @@ magnet:?xt=urn:btih:DBF90492CAAFCF1BE4F4753933CA618E4E370220
 magnet:?xt=urn:btih:8E4C97003EA078EAD7BDFE7B00C4C3240E348077
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +234,8 @@ magnet:?xt=urn:btih:8E4C97003EA078EAD7BDFE7B00C4C3240E348077
 ```bash
 magnet:?xt=urn:btih:9B1C192199CACB9816FD1CF824C220EB8CA5BD17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +262,8 @@ magnet:?xt=urn:btih:9B1C192199CACB9816FD1CF824C220EB8CA5BD17
 magnet:?xt=urn:btih:EDA3057DC8AED93007DFEB2920A1F505C80593F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +287,8 @@ magnet:?xt=urn:btih:EDA3057DC8AED93007DFEB2920A1F505C80593F3
 ```bash
 magnet:?xt=urn:btih:D1A8AD2F303ACC06E8608714618E06E3759C9775
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +315,8 @@ magnet:?xt=urn:btih:D1A8AD2F303ACC06E8608714618E06E3759C9775
 magnet:?xt=urn:btih:896127746D1CDF145598A4B5DBB6A27EFF4932D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +341,8 @@ magnet:?xt=urn:btih:896127746D1CDF145598A4B5DBB6A27EFF4932D6
 magnet:?xt=urn:btih:B4A60558B0A265525533D9D98780A2D7C9799E81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +366,8 @@ magnet:?xt=urn:btih:B4A60558B0A265525533D9D98780A2D7C9799E81
 ```bash
 magnet:?xt=urn:btih:277A1113116469547D08B94D3832783553F4C6F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +395,8 @@ magnet:?xt=urn:btih:277A1113116469547D08B94D3832783553F4C6F0
 magnet:?xt=urn:btih:1C8F8DE3F759AA0474C626A37F34E5C41CBACFC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +420,8 @@ magnet:?xt=urn:btih:1C8F8DE3F759AA0474C626A37F34E5C41CBACFC2
 ```bash
 magnet:?xt=urn:btih:25554AE411914975AEE4E55AD755B7B176FF78A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +447,8 @@ magnet:?xt=urn:btih:25554AE411914975AEE4E55AD755B7B176FF78A5
 magnet:?xt=urn:btih:62225DE72A2F4E8BACAE7049D7B9A8D157FFD7DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +472,8 @@ magnet:?xt=urn:btih:62225DE72A2F4E8BACAE7049D7B9A8D157FFD7DB
 ```bash
 magnet:?xt=urn:btih:F46E8BD7B1FCB958A270784C26C5F59D22202003
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +499,8 @@ magnet:?xt=urn:btih:F46E8BD7B1FCB958A270784C26C5F59D22202003
 magnet:?xt=urn:btih:56C87D234FF5BBB6F9DC088628012E4D1BF72F30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +524,8 @@ magnet:?xt=urn:btih:56C87D234FF5BBB6F9DC088628012E4D1BF72F30
 ```bash
 magnet:?xt=urn:btih:040787DE20A09CA9557A76C52C8236F5594E0E54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +553,8 @@ magnet:?xt=urn:btih:040787DE20A09CA9557A76C52C8236F5594E0E54
 magnet:?xt=urn:btih:EB747910CF5017165DE53F6360276BDDB79BFE4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +578,8 @@ magnet:?xt=urn:btih:EB747910CF5017165DE53F6360276BDDB79BFE4A
 ```bash
 magnet:?xt=urn:btih:33FCFDB478A256F949310BE00E63972728B0610B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +605,8 @@ magnet:?xt=urn:btih:33FCFDB478A256F949310BE00E63972728B0610B
 magnet:?xt=urn:btih:0D7FE15A3AC9C5927AE9197DAD08F0616E248E39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +631,8 @@ magnet:?xt=urn:btih:0D7FE15A3AC9C5927AE9197DAD08F0616E248E39
 magnet:?xt=urn:btih:690CE2D46CF15E4D63C7825F9A2F028B2F1F188B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +656,8 @@ magnet:?xt=urn:btih:690CE2D46CF15E4D63C7825F9A2F028B2F1F188B
 ```bash
 magnet:?xt=urn:btih:032A79E52B1D21017D3D663A408AF97D6A9503C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,29 +684,7 @@ magnet:?xt=urn:btih:032A79E52B1D21017D3D663A408AF97D6A9503C7
 magnet:?xt=urn:btih:4213FC5651AB35843C6CD6DCB35DA25CBB11122C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369481   (903212) от 23.03.2020
-
-Михаил Уткин | Росланд Хай-Тэк. Захребетье (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычно в ЛитРПГ-романах игроки объединяются в кланы. Но что будет, если клан составят сотрудники реальной фирмы? Главный герой цикла «Ездовой гном», первая книга которого вам предлагается, – молодой менеджер с большими амбициями: он априори убеждён, будто весь мир перед ним в долгу, с чем едва ли согласны его коллеги. Однажды герой с подачи начальства попадает в (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтези, LitRPGПродолжительность: 07:55:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C173A9722619460833AEA2A1332B7C6327B064F2
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

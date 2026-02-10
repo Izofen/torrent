@@ -1,3 +1,29 @@
+###  Публикация: 1232310   (602259) от 23.06.2018
+
+Я жив и жажду крови. Che (2005) DVB [H.264/1080i-LQ]
+
+>>Документалистика и Телепередачи
+>>Личности в истории
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602259.jpg" />
+</div>
+
+
+###  Подробнее
+
+История жизни легендарного латиноамериканского революционера и команданте Кубинской революции, рассказанная его соратниками и его убийцами. Гевара де ла Серна Эрнесто (Че) легендарный латиноамериканский революционер, один из руководителей Кубинской революции 1959 года, служил в чине майора кубинской армии. Родился Че в Аргентине в семье архитектора, выучился на врача. (   Читать дальше...   )Телекомпания: Россия / Первый канал, Компания "Телеформат"Жанр: Документальный, БиографияСубтитры: Русские, телетекстПродолжительность: 01:16:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21F1EE46B8C99D5D98CDB52CA154A72C55BFB953
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232248   (602285) от 23.06.2018
 
 Главная дорога (23.06.2018) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:EF884E1975174908C2498D285E82F7C432D911A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:EF884E1975174908C2498D285E82F7C432D911A1
 magnet:?xt=urn:btih:5FBF5B8875399DB905CB0C85BD248822189CBD6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:5FBF5B8875399DB905CB0C85BD248822189CBD6C
 ```bash
 magnet:?xt=urn:btih:F27A032E24B11CA9036DD3CCDDA0FE5EA0689301
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:F27A032E24B11CA9036DD3CCDDA0FE5EA0689301
 magnet:?xt=urn:btih:12627754DC54846C1D998A80AF48525580CA6ABA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:12627754DC54846C1D998A80AF48525580CA6ABA
 magnet:?xt=urn:btih:716F4B67733A6AAAACEFB5F43F56485CA43E6FB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +174,8 @@ magnet:?xt=urn:btih:716F4B67733A6AAAACEFB5F43F56485CA43E6FB2
 ```bash
 magnet:?xt=urn:btih:8A9BF57DA0B672E800129BD81043C742BDA99349
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:8A9BF57DA0B672E800129BD81043C742BDA99349
 magnet:?xt=urn:btih:E2940AD43F278D5AB03FC8A3DC503F5A6794CA99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:E2940AD43F278D5AB03FC8A3DC503F5A6794CA99
 magnet:?xt=urn:btih:D3019FB9788A75D99D041DBCD8D51313F96DA795
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:D3019FB9788A75D99D041DBCD8D51313F96DA795
 ```bash
 magnet:?xt=urn:btih:9E6B8D488E6536DB7111B7245F688BD32EC5DA40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:9E6B8D488E6536DB7111B7245F688BD32EC5DA40
 magnet:?xt=urn:btih:BE4A7551FF7CB9CC37492A5E55DED593BFDF8967
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:BE4A7551FF7CB9CC37492A5E55DED593BFDF8967
 magnet:?xt=urn:btih:B61375A004AC49E39148DCADECDECA1F9A41953D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:B61375A004AC49E39148DCADECDECA1F9A41953D
 ```bash
 magnet:?xt=urn:btih:EF4DD41B261AF605E0A56CE56D148C50CFD4E794
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:EF4DD41B261AF605E0A56CE56D148C50CFD4E794
 magnet:?xt=urn:btih:67A1B2421769C386D9176F5320A7B21BA00B2597
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:67A1B2421769C386D9176F5320A7B21BA00B2597
 ```bash
 magnet:?xt=urn:btih:1C48C1EC796987D0DF644335AF332E4944EE1190
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:1C48C1EC796987D0DF644335AF332E4944EE1190
 magnet:?xt=urn:btih:77ADD16836DA2AD2C07028680F7A971B46F17223
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:77ADD16836DA2AD2C07028680F7A971B46F17223
 ```bash
 magnet:?xt=urn:btih:33E53A7993539A56D75C109D86C20F948005EB02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:33E53A7993539A56D75C109D86C20F948005EB02
 magnet:?xt=urn:btih:1413AC7CC7CA040648B35B4B20B727555F202A6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:1413AC7CC7CA040648B35B4B20B727555F202A6C
 ```bash
 magnet:?xt=urn:btih:C6086737EA2640681B1AAB21A2CF3F682BCD1AC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:C6086737EA2640681B1AAB21A2CF3F682BCD1AC5
 magnet:?xt=urn:btih:D6311E393B4F1E366B4D4F059126F7D77D25F02B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:D6311E393B4F1E366B4D4F059126F7D77D25F02B
 ```bash
 magnet:?xt=urn:btih:1A00BC41ADD2C55D242C921B1B7BAE98A8D018D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:1A00BC41ADD2C55D242C921B1B7BAE98A8D018D3
 magnet:?xt=urn:btih:2967F4EE0500260D74E2D980341F476FA8EAF3EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:2967F4EE0500260D74E2D980341F476FA8EAF3EC
 ```bash
 magnet:?xt=urn:btih:10611D5C37C7905E637BF1711C924778B7CD5895
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:10611D5C37C7905E637BF1711C924778B7CD5895
 magnet:?xt=urn:btih:92AF1A2C95060E00BF9DF08E80D93B170C207E31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:92AF1A2C95060E00BF9DF08E80D93B170C207E31
 ```bash
 magnet:?xt=urn:btih:151BCC3959E321FF7D7484AA8FDCDFCE09F1AAA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,29 +677,7 @@ magnet:?xt=urn:btih:151BCC3959E321FF7D7484AA8FDCDFCE09F1AAA8
 magnet:?xt=urn:btih:21B5AC1B889AC5ED52CEB7C94265E43335C471F1
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231992   (603146) от 21.06.2018
-
-Йеллоустонские природные чудеса / Yellowstone Natural Wonders (2017) WEBRip [H.264/2160p] [4K] (Серии 1-2 из 2)
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Йеллоустоун - земля с "огненным сердцем". Первый Национальный парк Америки. Первозданная и неприступная крепость, защитившая природу запада от исчезновения. Ежегодно более 3 000 000 человек приезжают полюбоваться красотами Йеллоустоуна. Но лишь немногие решаются пройти дальше грозного стража - горного хребта и попасть в соседнюю долину, где разворачиваются (   Читать дальше...   )Производство: США, Doclights, NDR NaturFilmЖанр: Видовой, природа, флора, фаунаРежиссер: Роман ХомлякПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 01:24:05+01:21:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96CC04850096F82E55482D8C62A5D75723847FE4
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

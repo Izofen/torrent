@@ -1,27 +1,3 @@
-###  Публикация: 1610626   (1042118) от 08.02.2023
-
-Шафт / Shaft (1971) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Адаптация одноимённого романа Эрнеста Тайдимена. Сюжет вращается вокруг частного детектива по имени Джон Шафт, которого нанял гарлемский мафиози, чтобы спасти свою дочь от похитивших ее итальянских мафиози.Производство: США, Metro-Goldwyn-Mayer, Shaft Productions Ltd.Жанр: криминал, боевик, триллерРежиссер: Гордон ПарксАктеры: Ричард Раундтри, Моузес Ганн, Чарльз Чоффи, Кристофер Ст. Джон, Гвенн Митчелл, Лоуренс Прессман, Виктор Арнольд, Шерри Брюэр, Рекс Роббинс, Камилль ЯрброПеревод: профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: английские  SDHПродолжительность: 01:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2298D50BCF9CCE57F57325B0CB378ABF0CBF4F2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610603   (1042161) от 08.02.2023
 
 1969 / 1969 (1988) BDRip [MVO]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:2298D50BCF9CCE57F57325B0CB378ABF0CBF4F2F
 ```bash
 magnet:?xt=urn:btih:94BEA77C98CCBA660AFAC905B6424A84A396F2CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:94BEA77C98CCBA660AFAC905B6424A84A396F2CA
 magnet:?xt=urn:btih:CE4BFA22E8D57AE41D93D09FA81CC6FF09E892D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:CE4BFA22E8D57AE41D93D09FA81CC6FF09E892D0
 ```bash
 magnet:?xt=urn:btih:38D4A3C6E152B8F0018A9189E88C68787021DD17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:38D4A3C6E152B8F0018A9189E88C68787021DD17
 magnet:?xt=urn:btih:351C75CA045AFE7F1E5CA810E35107E92995F71A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:351C75CA045AFE7F1E5CA810E35107E92995F71A
 ```bash
 magnet:?xt=urn:btih:7C882380396C13A4BBDD40625163EA6D04692996
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:7C882380396C13A4BBDD40625163EA6D04692996
 magnet:?xt=urn:btih:B85C11CA61E0AB4031860FD3DC1C9EC4E64EF744
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:B85C11CA61E0AB4031860FD3DC1C9EC4E64EF744
 ```bash
 magnet:?xt=urn:btih:C6A25E4C44370B17633951EF7D6843AF3686D8C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:C6A25E4C44370B17633951EF7D6843AF3686D8C8
 magnet:?xt=urn:btih:EB523B4128323AFBCA6381A70E25B45AD39DE790
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ magnet:?xt=urn:btih:EB523B4128323AFBCA6381A70E25B45AD39DE790
 ```bash
 magnet:?xt=urn:btih:F3A9B101126C31823FA2BF5D47E5D28819BC9C29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:F3A9B101126C31823FA2BF5D47E5D28819BC9C29
 magnet:?xt=urn:btih:691888EF8B2382B1FFF4F180ECFEBAF434CB7C37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ magnet:?xt=urn:btih:691888EF8B2382B1FFF4F180ECFEBAF434CB7C37
 ```bash
 magnet:?xt=urn:btih:B1F0C21BA657E429F02B3F1666A18025D30C91E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:B1F0C21BA657E429F02B3F1666A18025D30C91E2
 magnet:?xt=urn:btih:95958B1B0B27195EDA356CCAA3015AD75B3B6F90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ magnet:?xt=urn:btih:95958B1B0B27195EDA356CCAA3015AD75B3B6F90
 ```bash
 magnet:?xt=urn:btih:EB206AC0C78495ECBD39E4FE727140A96BAC73E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ magnet:?xt=urn:btih:EB206AC0C78495ECBD39E4FE727140A96BAC73E5
 magnet:?xt=urn:btih:2571301AF11AE2AC394C4DE2CFED1792E2552884
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ magnet:?xt=urn:btih:2571301AF11AE2AC394C4DE2CFED1792E2552884
 ```bash
 magnet:?xt=urn:btih:469A354A2D9BE725169F11A095AB6B987864AEF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ magnet:?xt=urn:btih:469A354A2D9BE725169F11A095AB6B987864AEF2
 magnet:?xt=urn:btih:031C1E6DD2EB537F9F5D11A381D384F8F69CFD34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ magnet:?xt=urn:btih:031C1E6DD2EB537F9F5D11A381D384F8F69CFD34
 ```bash
 magnet:?xt=urn:btih:AE22B5014BA70CF9C5215BC8C9B651CB914D92B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ magnet:?xt=urn:btih:AE22B5014BA70CF9C5215BC8C9B651CB914D92B9
 magnet:?xt=urn:btih:11D5C4587639F6E6844B94AAF5AE387E72FC275B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ magnet:?xt=urn:btih:11D5C4587639F6E6844B94AAF5AE387E72FC275B
 ```bash
 magnet:?xt=urn:btih:738D56BEF8FDF1F825E16BDC1F0B8AE8652AD69C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ magnet:?xt=urn:btih:738D56BEF8FDF1F825E16BDC1F0B8AE8652AD69C
 magnet:?xt=urn:btih:4F34BF4EBA33AD50CADC72BF583442D937424064
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ magnet:?xt=urn:btih:4F34BF4EBA33AD50CADC72BF583442D937424064
 ```bash
 magnet:?xt=urn:btih:8E5286026652C343966AD0D17A5960B543D23FD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ magnet:?xt=urn:btih:8E5286026652C343966AD0D17A5960B543D23FD5
 magnet:?xt=urn:btih:A59431070B9CB4A087E41422B22094F4CB09436F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ magnet:?xt=urn:btih:A59431070B9CB4A087E41422B22094F4CB09436F
 ```bash
 magnet:?xt=urn:btih:E01DB14F905C45B473AF2284AFE75789B9666129
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +617,8 @@ magnet:?xt=urn:btih:E01DB14F905C45B473AF2284AFE75789B9666129
 magnet:?xt=urn:btih:A4C5EE04A24D73234046BFA6C75397D80250DB0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +642,34 @@ magnet:?xt=urn:btih:A4C5EE04A24D73234046BFA6C75397D80250DB0C
 ```bash
 magnet:?xt=urn:btih:8DBFB4D2EAFAA80BF63A1D1DC5BC2B93F3080C7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607702   (1043969) от 27.01.2023
+
+Чарли Чейз. Санта-Клауса нет / There Ain't No Santa Claus (1926) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ну вот как вам рассказать сюжет? Многие очень быстро поймут. Ипотека, кредит, долги...Но, Рождество и надо дарить подарки любимым. Денег нет совсем. Надо крутиться. Быстро крутиться.... Ну, и ещё везение...Производство: США, Hal Roach StudiosЖанр: комедия, короткометражный, немое киноРежиссер: Джеймс ПэрротАктеры: Чарли Чейз, Blanche Mehaffey, Ной Янг, Джек Гэвин, Эльмо Биллингс, Хелен ГилморПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:22:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB9DB03E9FE0D9567BAFBB21C12E91F0E10B8DA9
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

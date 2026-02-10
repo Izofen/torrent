@@ -22,6 +22,8 @@ VA - Acoustic Dance Covers (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumen
 magnet:?xt=urn:btih:13B92BDBE8A12CA14E512C3E226034AA7D2D60D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:13B92BDBE8A12CA14E512C3E226034AA7D2D60D7
 ```bash
 magnet:?xt=urn:btih:9E7C8FB5E69E58E2B65AD5CAA4878F65736F1F3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:9E7C8FB5E69E58E2B65AD5CAA4878F65736F1F3A
 magnet:?xt=urn:btih:08C06CDF83182DC71481DF7BC92DF305B6AD7B28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:08C06CDF83182DC71481DF7BC92DF305B6AD7B28
 magnet:?xt=urn:btih:084A326451844B199FC2B070C055C94DC1C758C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:084A326451844B199FC2B070C055C94DC1C758C2
 ```bash
 magnet:?xt=urn:btih:737029C10F14B6EBA67743B0CA4E978CB3C22DB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ VA - Cafe Mary Lounge: 100 Relax Party (2016) [MP3|320 Kbps] <Lounge, Relax, Dow
 magnet:?xt=urn:btih:90F908A9BD78F30046B0F68BED5B743B07BB429C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ VA - Acoustic Songs About Love (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instr
 magnet:?xt=urn:btih:B62BD7D952648AF83900E703B26844A99CDDD2EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:B62BD7D952648AF83900E703B26844A99CDDD2EA
 magnet:?xt=urn:btih:37973AF61A454CC08C07D0596ACC78338EED1703
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:37973AF61A454CC08C07D0596ACC78338EED1703
 ```bash
 magnet:?xt=urn:btih:A217BAC6F137697535C386153C930ADB0106DA59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:A217BAC6F137697535C386153C930ADB0106DA59
 magnet:?xt=urn:btih:91E1A2F940C643648408F2156F99698E6330570C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:91E1A2F940C643648408F2156F99698E6330570C
 ```bash
 magnet:?xt=urn:btih:935C1DE71936C5D4BB43B708797417128CF31090
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ VA - Sunshine Live - Die 90er Vol.3 (2016) [MP3|~271 Kbps] <Eurodance, Rave, Tec
 magnet:?xt=urn:btih:7F28DC70EC49E8C94A91625B20E5E728EF6F1B5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:7F28DC70EC49E8C94A91625B20E5E728EF6F1B5C
 ```bash
 magnet:?xt=urn:btih:9A95E60272708E999587F39898E6056DE92F9FCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ CD: Aynsley Lister - Eyes Wide Open
 magnet:?xt=urn:btih:E7AE1B1E9A152C86F26F5A88697F31CBBC3E053E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:E7AE1B1E9A152C86F26F5A88697F31CBBC3E053E
 ```bash
 magnet:?xt=urn:btih:42577F8FC32C5D8F7B868277956106F3CC8DE043
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ magnet:?xt=urn:btih:42577F8FC32C5D8F7B868277956106F3CC8DE043
 magnet:?xt=urn:btih:02EEB8215FFEC7DB3AFECC6713E3F9971861529B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +457,8 @@ magnet:?xt=urn:btih:02EEB8215FFEC7DB3AFECC6713E3F9971861529B
 ```bash
 magnet:?xt=urn:btih:14D124279B1F3756F69A9E16B91C28FC86C84716
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +487,8 @@ Nightlife Unlimited (Ночной Безлимит)  из Канады ворв�
 magnet:?xt=urn:btih:706E0E2666316FE231E8A57E64EFAE0B3C45C4C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ magnet:?xt=urn:btih:706E0E2666316FE231E8A57E64EFAE0B3C45C4C7
 magnet:?xt=urn:btih:D4ACC86EE5BBB027301BD7C5907BB469609096A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ magnet:?xt=urn:btih:D4ACC86EE5BBB027301BD7C5907BB469609096A2
 ```bash
 magnet:?xt=urn:btih:FFAFF13AFD121A275DA80B9A994F0F0497DF679A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +570,8 @@ Hot Blood - Disco Dracula (1977) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco
 magnet:?xt=urn:btih:CEA2A27CAEF40F0620F9C297446F663BA5F211F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +598,8 @@ magnet:?xt=urn:btih:CEA2A27CAEF40F0620F9C297446F663BA5F211F9
 magnet:?xt=urn:btih:861FFEF2E24E40D8F6D0ECC6281CFC4FEB7A2ABC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +623,8 @@ magnet:?xt=urn:btih:861FFEF2E24E40D8F6D0ECC6281CFC4FEB7A2ABC
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +650,8 @@ VA - Mi Casa Es Su Casa (Mixed And Compiled by UNER, Coyu, Edu Imbernon) - 2010 
 magnet:?xt=urn:btih:82B6EC5BF25DD004A26E81F647BB495781BC50FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +676,8 @@ magnet:?xt=urn:btih:82B6EC5BF25DD004A26E81F647BB495781BC50FB
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ magnet:?xt=urn:btih:82B6EC5BF25DD004A26E81F647BB495781BC50FB
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

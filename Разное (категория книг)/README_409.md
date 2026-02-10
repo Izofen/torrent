@@ -1,3 +1,29 @@
+###  Публикация: 1297302   (604022) от 22.04.2019
+
+Нагиса Тацуми | Ничего лишнего. Минимум вещей, максимум счастья (2019) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зачем перекладывать вещи с места на место, если можно просто избавиться от лишнего? Нагиса Тацуми, автор бестселлеров про уборку, уверена, что, научившись проще относиться к вещам, вы не только освободите пространство, но и окружите себя именно тем, что любите. Множество практических советов и техник помогут разобраться в одежде, игрушках, книгах и документах, а (   Читать дальше...   )Жанр: Психология, ДомоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91E726485364B8582E92BC367F291DEFF24F2719
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297054   (604031) от 22.04.2019
 
 Валентина Ильянкова, Александр Коренюгин | Кухня СССР [8 книг] (2017-2019) [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:DE6D890040DF14E9815666F152B939CC199D0427
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:DE6D890040DF14E9815666F152B939CC199D0427
 magnet:?xt=urn:btih:A01CA928B8D5900BDABC6422D08EDBE1277E89D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:A01CA928B8D5900BDABC6422D08EDBE1277E89D1
 ```bash
 magnet:?xt=urn:btih:4EB33D0869D199ADC767E51B97C9787D18E60933
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +129,8 @@ magnet:?xt=urn:btih:4EB33D0869D199ADC767E51B97C9787D18E60933
 magnet:?xt=urn:btih:83C97ACA944B34E7D40FBE4E0E5A352D492D8317
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +154,8 @@ magnet:?xt=urn:btih:83C97ACA944B34E7D40FBE4E0E5A352D492D8317
 ```bash
 magnet:?xt=urn:btih:72533F61F4088EB09FA78E53F8A77EF634EF1E74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +183,8 @@ magnet:?xt=urn:btih:72533F61F4088EB09FA78E53F8A77EF634EF1E74
 magnet:?xt=urn:btih:3271E80FF52E549D11A9D0282540DE431B35E3B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +209,8 @@ magnet:?xt=urn:btih:3271E80FF52E549D11A9D0282540DE431B35E3B3
 magnet:?xt=urn:btih:7829C324A96CD7D5EAADB4D95E98BDCBFA39DB1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +234,8 @@ magnet:?xt=urn:btih:7829C324A96CD7D5EAADB4D95E98BDCBFA39DB1A
 ```bash
 magnet:?xt=urn:btih:A4333F64BEAF45505F273627629BD3FD3AA617DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +262,8 @@ magnet:?xt=urn:btih:A4333F64BEAF45505F273627629BD3FD3AA617DF
 magnet:?xt=urn:btih:FEF9CFC4DC264C04EE904944F62F5F4DB5E76546
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +287,8 @@ magnet:?xt=urn:btih:FEF9CFC4DC264C04EE904944F62F5F4DB5E76546
 ```bash
 magnet:?xt=urn:btih:A7D0942FA59D2D52C9AF39752CF1596A1939C00A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +314,8 @@ magnet:?xt=urn:btih:A7D0942FA59D2D52C9AF39752CF1596A1939C00A
 magnet:?xt=urn:btih:AED573F8A2ED5A9636E0AF37310F02E54709830F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +339,8 @@ magnet:?xt=urn:btih:AED573F8A2ED5A9636E0AF37310F02E54709830F
 ```bash
 magnet:?xt=urn:btih:83DCE1A73D73B7E4EBB85C97968F0B13A7BBB113
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:83DCE1A73D73B7E4EBB85C97968F0B13A7BBB113
 magnet:?xt=urn:btih:1BE13760B6CDD8801FE3E229E05C59B5588BE73D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:1BE13760B6CDD8801FE3E229E05C59B5588BE73D
 ```bash
 magnet:?xt=urn:btih:F5222F80D576ED1B4570874607F0AA6FCAC3D2D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +418,8 @@ magnet:?xt=urn:btih:F5222F80D576ED1B4570874607F0AA6FCAC3D2D7
 magnet:?xt=urn:btih:41086C00FF7F7700CB3B94494EFCDE16074A56CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:41086C00FF7F7700CB3B94494EFCDE16074A56CC
 ```bash
 magnet:?xt=urn:btih:E580A98F4E68B084D6A1DC65F0FA28F47DCF1440
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +473,8 @@ magnet:?xt=urn:btih:E580A98F4E68B084D6A1DC65F0FA28F47DCF1440
 magnet:?xt=urn:btih:75F0DDA0579CBA5E2D65979DFB985928CB4AA150
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +501,8 @@ magnet:?xt=urn:btih:75F0DDA0579CBA5E2D65979DFB985928CB4AA150
 magnet:?xt=urn:btih:2741AE12C24F129C4FBBF2404A2CCDE41830492D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +526,8 @@ magnet:?xt=urn:btih:2741AE12C24F129C4FBBF2404A2CCDE41830492D
 ```bash
 magnet:?xt=urn:btih:BF77694425D1A83CAD45A753AF18AC1ACDEF9D70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +553,8 @@ magnet:?xt=urn:btih:BF77694425D1A83CAD45A753AF18AC1ACDEF9D70
 magnet:?xt=urn:btih:636A8537A3E8B446FCF6F7461AE98F7976883F29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +578,8 @@ magnet:?xt=urn:btih:636A8537A3E8B446FCF6F7461AE98F7976883F29
 ```bash
 magnet:?xt=urn:btih:A8CD14E49177127A0A88FCE5201537D8F4A103DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +607,8 @@ magnet:?xt=urn:btih:A8CD14E49177127A0A88FCE5201537D8F4A103DA
 magnet:?xt=urn:btih:7ADE8FA731705D2FD814CCBA32E7AF1899829FCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +632,8 @@ magnet:?xt=urn:btih:7ADE8FA731705D2FD814CCBA32E7AF1899829FCB
 ```bash
 magnet:?xt=urn:btih:E8166B5EC30798C91622A621459ED562BFDB87C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +659,8 @@ magnet:?xt=urn:btih:E8166B5EC30798C91622A621459ED562BFDB87C1
 magnet:?xt=urn:btih:26FA3543FE21C6D74F2074BB0FC9930B049BA445
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,29 +685,7 @@ magnet:?xt=urn:btih:26FA3543FE21C6D74F2074BB0FC9930B049BA445
 magnet:?xt=urn:btih:332258423BE701D27DB6B1D73FB88F314FFD1BEB
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913446   (604864) от 29.06.2015
-
-Джон Брукс | Бизнес-приключения. 12 классических историй Уолл-cтрит (2015) [FB2]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда Билл Гейтс попросил Уоррена Баффета порекомендовать ему хорошую книгу о бизнесе, тот, ни минуты не задумываясь, дал ему свой экземпляр «Бизнес-приключений» Джона Брукса. Написанная более 40 лет назад, эта книга рассказывает о корпоративной и финансовой жизни Америки полувековой давности. Истории из жизни Уолл-стрит драматичны, увлекательны и поразительно актуальны. (   Читать дальше...   )Жанр: О бизнесе популярноФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADC379B4D16774933531532A87DF6DD378A46D6D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

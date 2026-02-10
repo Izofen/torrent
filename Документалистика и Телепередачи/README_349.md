@@ -1,3 +1,29 @@
+###  Публикация: 938448   (466147) от 25.09.2015
+
+Чудотворица: Матрона Московская (2015) WEB-DLRip [Серии 12 из 12]
+
+>>Документалистика и Телепередачи
+>>Религии и культы (Док/TV)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный сериал об уникальном даре и нелегкой судьбе слепой парализованной деревенской девушки Матроны, посвятившей себя служению людям. В любую погоду, в будни и праздники, в Покровском женском монастыре стоит очередь: сотни женщин приходят сюда, к мощам святой Матроны, в надежде на чудо. И чудеса случаются! Даже спустя более 60 лет после смерти Матрона Московская (   Читать дальше...   )Телекомпания: ТК ДомашнийЖанр: ДокументальныйПродолжительность: 12 x ~ 00:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:209C4F28FE147585B33149CD9BE49C7F87C2B05D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1058762   (466157) от 02.10.2016
 
 Политический детектив.  «Сирия: блеф запада» (02.10.2016) SATRip
@@ -21,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:7151457F83C2CAE801929F79518DD95FE4B179AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +76,8 @@ magnet:?xt=urn:btih:7151457F83C2CAE801929F79518DD95FE4B179AB
 magnet:?xt=urn:btih:F4849DCF12D62B6D2CE67286D126EF4F07B33963
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +103,8 @@ magnet:?xt=urn:btih:F4849DCF12D62B6D2CE67286D126EF4F07B33963
 ```bash
 magnet:?xt=urn:btih:304403C21740184BDFE964562279D7795F4DC324
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +132,8 @@ magnet:?xt=urn:btih:304403C21740184BDFE964562279D7795F4DC324
 magnet:?xt=urn:btih:67F4CC9C31CCB5B47A693D97D7B1A8727F388F64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +158,8 @@ magnet:?xt=urn:btih:67F4CC9C31CCB5B47A693D97D7B1A8727F388F64
 magnet:?xt=urn:btih:19F6B806E752950F85668EEDEFDEFBE17A8D2E40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +183,8 @@ magnet:?xt=urn:btih:19F6B806E752950F85668EEDEFDEFBE17A8D2E40
 ```bash
 magnet:?xt=urn:btih:6DD727D9C49A3BC7CAE4F52676F5A9F8F78BCF91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +212,8 @@ magnet:?xt=urn:btih:6DD727D9C49A3BC7CAE4F52676F5A9F8F78BCF91
 magnet:?xt=urn:btih:B1157FE9FC6CE2E1B45E59AE4E7CA18AE82DF637
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +238,8 @@ magnet:?xt=urn:btih:B1157FE9FC6CE2E1B45E59AE4E7CA18AE82DF637
 magnet:?xt=urn:btih:E1227309D9AD947874CA56B8C13D93F810A003BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +263,8 @@ magnet:?xt=urn:btih:E1227309D9AD947874CA56B8C13D93F810A003BF
 ```bash
 magnet:?xt=urn:btih:2E7746D314C0E695AED654896ADF5ED5CC2ABB11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +292,8 @@ magnet:?xt=urn:btih:2E7746D314C0E695AED654896ADF5ED5CC2ABB11
 magnet:?xt=urn:btih:92F27F1D63A1ACD28D85FD4E970B51F367C94DE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +317,8 @@ magnet:?xt=urn:btih:92F27F1D63A1ACD28D85FD4E970B51F367C94DE4
 ```bash
 magnet:?xt=urn:btih:2576B31F6BBEFB65C480D184B68DB0BF4EB57648
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +346,8 @@ magnet:?xt=urn:btih:2576B31F6BBEFB65C480D184B68DB0BF4EB57648
 magnet:?xt=urn:btih:588E887757C3190124E17232F6276D3AEC18CB18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +371,8 @@ magnet:?xt=urn:btih:588E887757C3190124E17232F6276D3AEC18CB18
 ```bash
 magnet:?xt=urn:btih:2A3C7CEC148C641E94CDC03CB9ED8F5500ADAE41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +398,8 @@ magnet:?xt=urn:btih:2A3C7CEC148C641E94CDC03CB9ED8F5500ADAE41
 magnet:?xt=urn:btih:ED606A402B37788CA73EE4E3E74E20B64F657A9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +423,8 @@ magnet:?xt=urn:btih:ED606A402B37788CA73EE4E3E74E20B64F657A9E
 ```bash
 magnet:?xt=urn:btih:53EE9035A6F259ECF098291FAB8E19DE93CDFE56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +450,8 @@ magnet:?xt=urn:btih:53EE9035A6F259ECF098291FAB8E19DE93CDFE56
 magnet:?xt=urn:btih:373F5D8F371809D8CD847737380DFCD18510C78C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +475,8 @@ magnet:?xt=urn:btih:373F5D8F371809D8CD847737380DFCD18510C78C
 ```bash
 magnet:?xt=urn:btih:166374E37E28F378BF98A2D3E7D3CC1CF8044D24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +502,8 @@ magnet:?xt=urn:btih:166374E37E28F378BF98A2D3E7D3CC1CF8044D24
 magnet:?xt=urn:btih:BD13FD494A1D7D93F0EE468C733CC81A40AA72A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +527,8 @@ Nat Geo Wild: Дом пауков / The Amazing Spider House (2015) HDTVRip [H.2
 ```bash
 magnet:?xt=urn:btih:E604B50C15F15D25DF895FB24677C6B757D41ECD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +554,8 @@ magnet:?xt=urn:btih:E604B50C15F15D25DF895FB24677C6B757D41ECD
 magnet:?xt=urn:btih:9C8E4329FB51141EFB707D9C74BD1493D5B70022
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +579,8 @@ magnet:?xt=urn:btih:9C8E4329FB51141EFB707D9C74BD1493D5B70022
 ```bash
 magnet:?xt=urn:btih:D8EA51A8F0B5CAE707FA3A327357EC366AB10B74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +606,8 @@ magnet:?xt=urn:btih:D8EA51A8F0B5CAE707FA3A327357EC366AB10B74
 magnet:?xt=urn:btih:60B57439ACBC878D502F5CF427E908063C5C5953
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:60B57439ACBC878D502F5CF427E908063C5C5953
 ```bash
 magnet:?xt=urn:btih:A6AC5035E877E38C4630D43CAE630DE7EC13A388
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +658,8 @@ magnet:?xt=urn:btih:A6AC5035E877E38C4630D43CAE630DE7EC13A388
 magnet:?xt=urn:btih:5EAB9B527EF5BEC4ADF4CA2B16E29E57DBA30928
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,29 +684,7 @@ magnet:?xt=urn:btih:5EAB9B527EF5BEC4ADF4CA2B16E29E57DBA30928
 magnet:?xt=urn:btih:321144BA0739C531846D2AB46096226D2AEE8E96
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940728   (467029) от 25.09.2015
-
-Секретные территории: Куда исчезают цивилизации (2013) DVBRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый фильм рассказывает о необычном явлении, которому трудно найти объяснение. Еженедельно зрители узнают об аномальных зонах, вещих снах, сверхъестественных способностях человека и НЛО. Авторы программы рассматривают все точки зрения – от самых фантастических до вполне реалистичных. Очевидцы и участники событий расскажут о том, что им довелось пережить, или с (   Читать дальше...   )Телекомпания: РЕН ТВЖанр: ДокументальныйПродолжительность: 00:47:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EECA7B598B341D04A02EFB820FFA73CC5330865C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

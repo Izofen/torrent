@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:8F672EE1FA953937089462839793355AA87FADB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ VivaVideo - это простой в использовании видеоред
 ```bash
 magnet:?xt=urn:btih:E65D734F6F91D8894384F7D940A6D10327E826D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Sleep Monitor помогает отслеживать и записывать д
 magnet:?xt=urn:btih:354F57BA7BE4C28845D460D65030526A9984F50C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ VivaVideo - это простой в использовании видеоред
 ```bash
 magnet:?xt=urn:btih:8F8A627EC0FAB626642D6297AC92778C1430072D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ PhotoRoom v5.5.6 Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:441D48B4D954658C03E9AD1522C30FE1CC05CFD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Photo Editor - уникальная программа для обработки
 ```bash
 magnet:?xt=urn:btih:75EB6CBFE999BFADC36A73E27B1187D794B16211
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ WaveEditor для Android™ — это профессиональный инс�
 magnet:?xt=urn:btih:3614F547596D43109A52F710C8BBB76D3EE02BBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ KineMaster - Video Editor & Maker v7.5.2.33832.GP Mod by Shadow_Patcher [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:9016C7B44A352FCACC8A895082A209BFB1CC25D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ PhotoRoom v5.4.9 Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:5DEAB1A7F074456F02716278FC154892B6DBFABD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ VivaVideo - это простой в использовании видеоред
 ```bash
 magnet:?xt=urn:btih:046F5D456F3A3859C0371E37AF15BEB4CB2CA828
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ SnapEdit — одно из лучших приложений для редакт
 magnet:?xt=urn:btih:32C7F63A2685DD771DF4A31ADB5723D31A4FAE57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ PhotoDirector - функциональный, но весьма простой �
 ```bash
 magnet:?xt=urn:btih:AF8782C2376401E7BCA69A49D21C2F63BE7259DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ PowerDirector – Video Editor v14.5.0 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:97B65A71529A4A7372B9A37157E0D80762C8B474
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ VivaVideo - это простой в использовании видеоред
 ```bash
 magnet:?xt=urn:btih:BA5E7AC0C39D8117FE702910C6AE8121223F340F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ PhotoRoom v5.3.6 Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:D8FAAE2C376197FE319F4FEC97C5CEBBB27CA792
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:C77A6D920EA9AF9E7152DDA15CF70F78BD5C0931
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ SnapEdit — одно из лучших приложений для редакт
 magnet:?xt=urn:btih:626783A5DE791FEA3B385FC47B773D01EFAD5749
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ SnapEdit — одно из лучших приложений для редакт
 ```bash
 magnet:?xt=urn:btih:47191B2EAEE36559D202A504DDC3E02D29AF5689
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ SnapEdit — одно из лучших приложений для редакт
 magnet:?xt=urn:btih:8BF681D95D88D36D793B2F3EE7ABB0F430CAB4D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ Picture Bird позволяет легко распознать птиц вок�
 ```bash
 magnet:?xt=urn:btih:369FF21413D0DDE6759EC8D36168E4FECC3335B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ SnapEdit — одно из лучших приложений для редакт
 magnet:?xt=urn:btih:221483663C700CDE47AF7504DB61270F2428B221
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ magnet:?xt=urn:btih:221483663C700CDE47AF7504DB61270F2428B221
 ```bash
 magnet:?xt=urn:btih:F924774A8940C550512E45C3539FBE049A2B2687
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ Ventusky: Прогноз погоды v36.2 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:25BAB413D51387E5393FA92B1B235EF34EFE3ED0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ PhotoRoom v5.2.6 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7E20568B0C4604F9760D743AC75E33CB9F9847D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ AirBrush: ИИ Фоторедактор v7.1.3 Mod by PieMods [Ru/Multi]
 magnet:?xt=urn:btih:C7B8A83444286A0E96A32C90B2F1F047AD0BD3DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Plus Messenger - неофициальное приложение для обме
 ```bash
 magnet:?xt=urn:btih:01F5EFE9048F975D4DDC36DBD4C55737BA685984
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

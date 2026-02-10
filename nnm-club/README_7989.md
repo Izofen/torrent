@@ -20,6 +20,8 @@ CareUEyes служит для изменения цветовой темпера
 magnet:?xt=urn:btih:ED7E141424CB5A8F12E350DE7FDDCDD204A1C1E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Rustorm - Razed to the Ground (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial G
 magnet:?xt=urn:btih:DEE208C9BD310045D0B41BAC8409BEC4C68E931E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ Aiseesoft Data Recovery (   Читать дальше...   )Язык интер
 ```bash
 magnet:?xt=urn:btih:15FA06681E4A061612E9E7917C03B40F5CA68FB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:15FA06681E4A061612E9E7917C03B40F5CA68FB4
 magnet:?xt=urn:btih:29D185D39836C7F9CD7553A80CC3EC3B490F8F82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:29D185D39836C7F9CD7553A80CC3EC3B490F8F82
 ```bash
 magnet:?xt=urn:btih:4CF5766C8475565819F24C84371124F642907C3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ Torrax - Pribehy (2021) [MP3|320 Kbps] <Power Heavy Metal>
 magnet:?xt=urn:btih:317393217F4BC8FDF7E038B5437ECC972B0C10E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +189,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:5A2BF2662C6A01AADC3B40544DF57360920A7DDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ magnet:?xt=urn:btih:5A2BF2662C6A01AADC3B40544DF57360920A7DDA
 magnet:?xt=urn:btih:71A9C7AE8D834FFEB6E587E2036684A85B9814C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ RedNotebook - это простое GTK+ / Gnome приложение напис
 ```bash
 magnet:?xt=urn:btih:63DC5CE3DE0A722B27B43E38AF9B19CA406ACE8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ Vinnum Sabbathi - Live at Channel 666 (2022) [FLAC|Lossless|WEB-DL|tracks] <Ston
 magnet:?xt=urn:btih:E4146EAA1A8C69CCB73EDF03A40D265263647938
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ Maria Muldaur - Maria Muldaur (1973) [FLAC|Lossless|image + .cue] <Blues, Jazz, 
 magnet:?xt=urn:btih:2C08213678B5C397F85581C795861FE0CE7D7A5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ PrivaZer - полезная утилита, которая поможет вам
 magnet:?xt=urn:btih:0F346EDDC1242A95A65B41B7572B150C6CC78622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:0F346EDDC1242A95A65B41B7572B150C6CC78622
 ```bash
 magnet:?xt=urn:btih:14959426EE021CDFFAF8B13946F54801C981FB4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +381,8 @@ Huxley Would Approve - Grave New World: Part Two (2021) [FLAC|Lossless|image + .
 magnet:?xt=urn:btih:964C2634044FDE8E4770BAF156E18AE4710B9590
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +409,8 @@ Enforcer - Nostalgia (2023) [FLAC|Lossless|image + .cue] <Heavy, Speed Metal>
 ```bash
 magnet:?xt=urn:btih:1A1C7F12F6D65C8A2C6A3FD07F2004BF382BBCBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +439,8 @@ VA - Trance Action Vol. 6 (2020) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:E213D85D754BFD575E9C43B3DCBF670812051FA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +464,8 @@ Little Green Men | Артбуки по играм Starpoint Gemini / The Art of 
 ```bash
 magnet:?xt=urn:btih:400D4F5E964D73FA3F2ED638550A4C305C66E066
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +494,8 @@ Goatsmoke - What's the scene, Bob? (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner 
 magnet:?xt=urn:btih:855E3EC15319C5862B2779DC9B4E086CF311C0EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +521,8 @@ magnet:?xt=urn:btih:855E3EC15319C5862B2779DC9B4E086CF311C0EB
 magnet:?xt=urn:btih:FC8B8055C3BDA90391CB515236FD9D9B6A425FD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +547,8 @@ magnet:?xt=urn:btih:FC8B8055C3BDA90391CB515236FD9D9B6A425FD0
 magnet:?xt=urn:btih:446EB4649754CC882344B60833340CDCF388DC1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ magnet:?xt=urn:btih:446EB4649754CC882344B60833340CDCF388DC1E
 ```bash
 magnet:?xt=urn:btih:2C66DBAEC5974083C8657BB049AB1252C62BD65E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +601,8 @@ Cisdem AppCrypt  - несложная  утилита, которая дает �
 magnet:?xt=urn:btih:50379D2617AC2280BF337E09EDCD41D6BF6D383D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +629,8 @@ magnet:?xt=urn:btih:50379D2617AC2280BF337E09EDCD41D6BF6D383D
 magnet:?xt=urn:btih:8DFB056ECE9FA6AE748F58A52BF89F9726AB69B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +654,8 @@ magnet:?xt=urn:btih:8DFB056ECE9FA6AE748F58A52BF89F9726AB69B9
 ```bash
 magnet:?xt=urn:btih:E155F817221106022A9DE6988FD1D70DB2C627F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +681,8 @@ magnet:?xt=urn:btih:E155F817221106022A9DE6988FD1D70DB2C627F5
 magnet:?xt=urn:btih:AAC41105C0DC98782B30F4F46086C11A287BEF70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ OCCT 12.0.0.b3 Portable [En]
 ```bash
 magnet:?xt=urn:btih:61F2E96F6A87BA4C1808352D46507C3F46009108
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

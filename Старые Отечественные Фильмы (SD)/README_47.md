@@ -1,3 +1,29 @@
+###  Публикация: 927772   (524058) от 14.08.2015
+
+Не суждено (1969) TVRip [Ukr]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524058.jpg" />
+</div>
+
+
+###  Подробнее
+
+История трагической любви бедной крестьянской девушки-сироты Кати Дзвонаривны. Панич Михаил Ляшенко, студент университета, под влиянием распространяемых тогда либеральных идей «единения» господ с народом, «слияния» господ и мужиков, ходит на улицу к сельской молодёжи, но держится ближе к девушкам, чтобы «омолодить поэзией душу». Он сводит Катю и бросает её в угоду (   Читать дальше...   )Производство: СССР, УкртелефильмЖанр: ДрамаРежиссер: Мирослав ДжинджиристыйАктеры: Петр Сергиенко, Валентина Магеровская, Николай Щипак, Аркадий Гащинский, Михаил Заднепровский, Галина Яблонская,     Мария Шульга, Павел Морозенко, Юлия Ткаченко, Нонна КопержинскаяПродолжительность: 01:30:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8F3BE4C23CD5A3F149557CB017B0C6784E6A5F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240629   (524355) от 12.08.2018
 
 Чистые пруды (1965) DVBRip [H.264]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:0E65EDC898F87AD5F29CF070AD689ED4B42F1DE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:0E65EDC898F87AD5F29CF070AD689ED4B42F1DE6
 magnet:?xt=urn:btih:10D1148C343D2AD220D46DF338A833E76C1E778E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:10D1148C343D2AD220D46DF338A833E76C1E778E
 ```bash
 magnet:?xt=urn:btih:7EC2663D2FAB0EF48688AE1B6DD8E056C0166B5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:7EC2663D2FAB0EF48688AE1B6DD8E056C0166B5D
 magnet:?xt=urn:btih:84C0CC7CC3A1733EA024CE1CB49879AD7EF67342
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:84C0CC7CC3A1733EA024CE1CB49879AD7EF67342
 ```bash
 magnet:?xt=urn:btih:FACDCD59E271BCE94F958259BD76E36D0A527D0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:FACDCD59E271BCE94F958259BD76E36D0A527D0F
 magnet:?xt=urn:btih:1D61FFEBC12A9CE844C8912E1A80746D0DF97382
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:1D61FFEBC12A9CE844C8912E1A80746D0DF97382
 ```bash
 magnet:?xt=urn:btih:CEEA0A2346FD0B11B991099AA53739F35F32D351
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:CEEA0A2346FD0B11B991099AA53739F35F32D351
 magnet:?xt=urn:btih:A63D78EDA531CB2F3D1BD950CAF35EFC22E87C21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:A63D78EDA531CB2F3D1BD950CAF35EFC22E87C21
 ```bash
 magnet:?xt=urn:btih:9C1B9539776FB5FA3C3566CCA27321C4E2B7C029
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:9C1B9539776FB5FA3C3566CCA27321C4E2B7C029
 magnet:?xt=urn:btih:1DE744DCF36D6FCC309D8016E598077A6212E51B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:1DE744DCF36D6FCC309D8016E598077A6212E51B
 ```bash
 magnet:?xt=urn:btih:7A3BC16E1C1B8E516FCC7947CF806FD6F0113A44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:7A3BC16E1C1B8E516FCC7947CF806FD6F0113A44
 magnet:?xt=urn:btih:93B94DA9D4D07F29033DF40ACE0F9E9ADEB652F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:93B94DA9D4D07F29033DF40ACE0F9E9ADEB652F8
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:93B94DA9D4D07F29033DF40ACE0F9E9ADEB652F8
 ```bash
 magnet:?xt=urn:btih:3E3FE20109D6229977539033418F18863718C29B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:3E3FE20109D6229977539033418F18863718C29B
 magnet:?xt=urn:btih:130E10F46FF086B5F5C30347024C5494857DFF7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:130E10F46FF086B5F5C30347024C5494857DFF7C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:130E10F46FF086B5F5C30347024C5494857DFF7C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:130E10F46FF086B5F5C30347024C5494857DFF7C
 ```bash
 magnet:?xt=urn:btih:C274FE7F41CF20D77A180C311088880A5F4044DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:C274FE7F41CF20D77A180C311088880A5F4044DC
 magnet:?xt=urn:btih:E41D133B8FA845BDE7B30E5C91EB201C6E80AD4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:E41D133B8FA845BDE7B30E5C91EB201C6E80AD4F
 ```bash
 magnet:?xt=urn:btih:3C6F76D09069303A14B99340CDF06747AE9B0197
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:3C6F76D09069303A14B99340CDF06747AE9B0197
 magnet:?xt=urn:btih:A62A7E5C41F02B4CF4EDBA40D22B0F43EB4A8E54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:A62A7E5C41F02B4CF4EDBA40D22B0F43EB4A8E54
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:A62A7E5C41F02B4CF4EDBA40D22B0F43EB4A8E54
 magnet:?xt=urn:btih:98C416F6E4FD6DA4C13615818FD938E00AC2B484
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:98C416F6E4FD6DA4C13615818FD938E00AC2B484
 ```bash
 magnet:?xt=urn:btih:B0DF1958074D68E5413B25D39F133BCCEBEAE231
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,30 +674,7 @@ magnet:?xt=urn:btih:B0DF1958074D68E5413B25D39F133BCCEBEAE231
 magnet:?xt=urn:btih:79BFAA0FAECA91FD30E36FCF90797C72091AEEE4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531921   (538254) от 07.08.2012
-
-Дело передается в суд (1976) TVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Киноповесть о молодой помощнице прокурора Лиане Девдариани, которой доверили завершить работу по делу о рухнувшем мосте. Проведя собственное расследование, она понимает, что привлеченный к уголовной ответственности инженер Сартания на самом деле не виновен. Лиана не только оправдывает невинно осужденного, но и изобличает подлинных виновников трагедии, повлекшей за собой человеческие жертвы.Жанр: Детектив, ДрамаРежиссер: Валериан КвачадзеАктеры: Марина Джанашия, Додо Абашидзе, Акакий Васадзе, Валериан Квачадзе, Эдишер Магалашвили, Георгий Гегечкори, Гурам Пирцхалава
-Полный список актеровПродолжительность: 01.22.00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6C53C5A3645F05C361B80045B3F4F3CBC7285A1
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

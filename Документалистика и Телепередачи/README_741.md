@@ -1,3 +1,29 @@
+###  Публикация: 1463110   (1020672) от 17.04.2021
+
+Живая еда с Сергеем Малозёмовым (17.04.2021) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вредные пищевые привычки: как с ними бороться и что делать, чтобы не переедать? Чем полезна овсянка и какую лучше выбрать при покупке — дорогую органическую или самую дешевую? С какого возраста можно включать грибы в рацион детей? Рецепт недели — овощные розы.Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:39:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62B4C780F23885096B6FC410BCACFDE5F0B15EFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463256   (1020674) от 17.04.2021
 
 Пятеро на одного (17.04.2021) WEBRip [H.264/1080p-LQ]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:FFAF01DCD17B61383761D2FEF890513BED46F9AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:FFAF01DCD17B61383761D2FEF890513BED46F9AF
 magnet:?xt=urn:btih:329CD70E1EDE6BB43164CA265E97CCE8E055C46F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:329CD70E1EDE6BB43164CA265E97CCE8E055C46F
 ```bash
 magnet:?xt=urn:btih:B5B260316A6A7FCB408BDE3C445FA6030484932B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:B5B260316A6A7FCB408BDE3C445FA6030484932B
 magnet:?xt=urn:btih:F6DE25E6F59A01DBF9A5CACC3D1AAC9AE558BA8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:F6DE25E6F59A01DBF9A5CACC3D1AAC9AE558BA8C
 ```bash
 magnet:?xt=urn:btih:11584AFEE0B8EC000D51D834A5C797E0D6DE49F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:11584AFEE0B8EC000D51D834A5C797E0D6DE49F7
 magnet:?xt=urn:btih:EBCB3B6307ED4DF87BF882D2EBD01DB719603AEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:EBCB3B6307ED4DF87BF882D2EBD01DB719603AEA
 ```bash
 magnet:?xt=urn:btih:3635C55578B41F85C4EFFAAE25B493DD85597D16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:3635C55578B41F85C4EFFAAE25B493DD85597D16
 magnet:?xt=urn:btih:9E2D1F518E730D213E18C0999455BA9B9D023503
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:9E2D1F518E730D213E18C0999455BA9B9D023503
 magnet:?xt=urn:btih:5B578A07AF283403240238C4E7C7692C8BA8B1CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:5B578A07AF283403240238C4E7C7692C8BA8B1CD
 ```bash
 magnet:?xt=urn:btih:33ADDC0DBD8868A68BD2A113588F6366C5794A6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:33ADDC0DBD8868A68BD2A113588F6366C5794A6C
 magnet:?xt=urn:btih:7408A3AD949C3FC97E7747AD5C0B301F528E4227
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:7408A3AD949C3FC97E7747AD5C0B301F528E4227
 magnet:?xt=urn:btih:C525713DA9E658C6726D4A7BF0F7652F4D1A2EA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:C525713DA9E658C6726D4A7BF0F7652F4D1A2EA2
 ```bash
 magnet:?xt=urn:btih:CD2CDF037DE852827F3CD2F23019519CA7B25E58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:CD2CDF037DE852827F3CD2F23019519CA7B25E58
 magnet:?xt=urn:btih:EBF99F5450E38F620F74212B22F3377A5D1EFD89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:EBF99F5450E38F620F74212B22F3377A5D1EFD89
 ```bash
 magnet:?xt=urn:btih:8F0122630C076A69094BD259DB6ECD90C8414DBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:8F0122630C076A69094BD259DB6ECD90C8414DBC
 magnet:?xt=urn:btih:43D87FB6267FB46479872055531AC6AC3DFBF526
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:43D87FB6267FB46479872055531AC6AC3DFBF526
 ```bash
 magnet:?xt=urn:btih:B3F355C4407A9EE2014CF39D0BFB8BFB2DCB0F6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:B3F355C4407A9EE2014CF39D0BFB8BFB2DCB0F6E
 magnet:?xt=urn:btih:626213AB3BE18F403B9F97DF62930F4F9F231E93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:626213AB3BE18F403B9F97DF62930F4F9F231E93
 ```bash
 magnet:?xt=urn:btih:43BAB3EA81005394B6833215485B4C59822F13AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:43BAB3EA81005394B6833215485B4C59822F13AA
 magnet:?xt=urn:btih:AA57B30C3623FF52024077DB425A1035B43B59C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:AA57B30C3623FF52024077DB425A1035B43B59C0
 ```bash
 magnet:?xt=urn:btih:6006BD567D81E308F00B1F6514052B28FF1A094A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +596,8 @@ magnet:?xt=urn:btih:6006BD567D81E308F00B1F6514052B28FF1A094A
 magnet:?xt=urn:btih:756147F72F3E3C7B076EFC2584BC23C7815BE570
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +621,8 @@ magnet:?xt=urn:btih:756147F72F3E3C7B076EFC2584BC23C7815BE570
 ```bash
 magnet:?xt=urn:btih:A41A45406B2D40592C65CA1BDF7CCBC30E5A90E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:A41A45406B2D40592C65CA1BDF7CCBC30E5A90E8
 magnet:?xt=urn:btih:AAD3D0FC0A4CD994DD03A020CCFADC68BE5C1A05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,29 +674,7 @@ magnet:?xt=urn:btih:AAD3D0FC0A4CD994DD03A020CCFADC68BE5C1A05
 magnet:?xt=urn:btih:C3CA179E2C73E595B473DCB58125678809F21065
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462189   (1021292) от 13.04.2021
-
-Верхняя точка (2021) IPTVRip [H.264]
-
->>Документалистика и Телепередачи
->>Космос
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утром 12 апреля 1961 года руководители стартовой команды на Байконуре услышали такие слова: "Заря-1, я - Кедр. Вижу Землю! Вижу округлый горизонт, у Земли красивый голубой ореол". Люди давно живут в космосе, в большом Доме, который называется планета Земля, но только шесть десятилетий назад мы стали настоящими хозяевами этого Дома, потому что получили возможность (   Читать дальше...   )Производство: Россия / ИП Истратов А.В.Жанр: Документальный, космосРежиссер: Андрей ИстратовЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:44:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51FD3CA87C59FAD486AD8F1554DB9F24E7C03DCB
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ NGW: Загадка гигантского пещерного паука / Myste
 magnet:?xt=urn:btih:CB92631C851A75B97660997FAE5D0F45FAEB7B2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NGW: Остров муссонов. Озерные охотники / Island of 
 ```bash
 magnet:?xt=urn:btih:3F875903F94A4BF8C79604256DEAF06D6AB4B726
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Discovery. Трамп: беспрецедентно / Unprecedented (2022) WEBRi
 magnet:?xt=urn:btih:FA64E20639BCE29A2892CD96C4C262F6956F4EE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ BBC:Атлантика: Самый необузданный океан на Зе
 ```bash
 magnet:?xt=urn:btih:4D006BC1550068BE4D2B2A9BD0725B967816032A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ BBC: Мари Тюссо. Восковая легенда / Madame Tussaud: A Le
 magnet:?xt=urn:btih:B3C8BF5CC06D74D31053C56E0B1DBD2BB38B45F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:B3C8BF5CC06D74D31053C56E0B1DBD2BB38B45F2
 ```bash
 magnet:?xt=urn:btih:9E163E9CCADFEFAAD0A98A702074414E354D4194
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ NG. Титаник: Роковой пожар / Titanic's: Fatal Fire (Titanic: 
 magnet:?xt=urn:btih:32EAB9D7355B0FFED9930F8608C1D05E7C7D77BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ NG. Потерянные мумии Новой Гвинеи / Mystery Mummies of
 ```bash
 magnet:?xt=urn:btih:E6A8E71568B46495DD73E80BC3B9EC387FEC898E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Discovery: Разрушители легенд. Опасное вождение 
 magnet:?xt=urn:btih:A70AC54D2CDEB7A6925A823F3B8068F6CB69BF56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:A70AC54D2CDEB7A6925A823F3B8068F6CB69BF56
 ```bash
 magnet:?xt=urn:btih:C7CA7352D1A4EB806157CF91EDBC5113EB33DB4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ BBC: Калигула. Что это было / Caligula with Mary Beard (2013) 
 magnet:?xt=urn:btih:C8BF56692ACF327AA4D548229C0034A7E5AECD35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:C8BF56692ACF327AA4D548229C0034A7E5AECD35
 ```bash
 magnet:?xt=urn:btih:AEFBD0A079DC0591E907C5B2BCA5F6CB6A3DB39D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Atari: конец игры / Atari: Game Over (2014) BDRip [H.264/1080p]
 magnet:?xt=urn:btih:E56A3599CBD424E087097D3A7FAAE0C505A2EF41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ NG: Секретное оружие Японии / Japan's Secret Weapon (2009) 
 ```bash
 magnet:?xt=urn:btih:B801A46F85CF07EA6B77E75CB78F3B925EB1BF6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ NG. Медоеды. Змеиные убийцы / Honey Badgers of the Kalahari.
 magnet:?xt=urn:btih:0FBDB0625706BD63A308788FEBEF30E70E460551
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ NG: Подъем "Коста Конкордии" / The Raising the Costa Concord
 magnet:?xt=urn:btih:46F0DB8EDE3E731C4B5035E89846F3B838B0EEE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:46F0DB8EDE3E731C4B5035E89846F3B838B0EEE6
 ```bash
 magnet:?xt=urn:btih:4D0A74A8C49F78AF2ACB3D7C77B9211FD6F0A6FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ Discovery: Американские Изобретатели / Invent It Rich (2
 magnet:?xt=urn:btih:C42E72A37360AB83D66A7F71FB105998008C4741
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ NG: Международный аэропорт Дубай. Серия 10 / Ulti
 ```bash
 magnet:?xt=urn:btih:A6BA551EA7FD51EA6DAC232213413AEFD348ECFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ Discovery. Неделя космоса / Space Week (2018) HDTVRip 720p [H.264/7
 magnet:?xt=urn:btih:1B22D34848F428A90061A31ED479DADB9CE283F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:1B22D34848F428A90061A31ED479DADB9CE283F8
 ```bash
 magnet:?xt=urn:btih:E0EA49BD0A0222324D9DB8707DFB69D41D9C6321
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ Animal Planet. Гангстеры дикой природы / Gangland Killers (
 magnet:?xt=urn:btih:37203B89D248A9FBF16BAA14C7F51BA74BE702DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:37203B89D248A9FBF16BAA14C7F51BA74BE702DF
 ```bash
 magnet:?xt=urn:btih:CCBA26D89692E2324B73BD828FAD7D844C16D028
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ magnet:?xt=urn:btih:CCBA26D89692E2324B73BD828FAD7D844C16D028
 magnet:?xt=urn:btih:7AAC28C063F18100EE7DA184D78B67757451C88C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ NG. Ужас в небесах / Terror in the Skies (2013) DVB (серии 1-4)
 magnet:?xt=urn:btih:5A6FEBD2212E154CDF579B3849E1606489EA4B82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ NG. Нотр Дам: гонка против ада / Notre-Dame. Race Against t
 ```bash
 magnet:?xt=urn:btih:16007300D9AAC01B18DBBD5190E48120FFF5F13A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

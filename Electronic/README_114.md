@@ -22,6 +22,8 @@ VA - Remix Rockets (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech
 magnet:?xt=urn:btih:72C1E855224D65601E2AAA84D2143D60B38BBEF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Any Second - Enemies (2022) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, 
 ```bash
 magnet:?xt=urn:btih:9924EF3811F6A2A2B879AD3FB531B5A9E92D184D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Globular - Untangled Everything (2019) [FLAC|Lossless|WEB-DL|tracks] <Downtempo,
 magnet:?xt=urn:btih:F386695DA9C285DD3C915734903734DA0CA283FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Menschdefekt - Recombination (2022) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro,
 ```bash
 magnet:?xt=urn:btih:468C8B3B915F08960BC8F125020F24028B6A07AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Reflection - Alpha et Omega (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 magnet:?xt=urn:btih:5B8AFC76427C95EC33F41F0F65E611873FE363E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ MEDUZA - Live @ Our House, Hi Ibiza, Spain (2023-09-29) [MP3|320 Kbps] <Tech Hou
 ```bash
 magnet:?xt=urn:btih:A22D7745B119D88EBEEF56F9A6DE4BF1BFBCB814
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Vintage Culture - Live @ Thunder Machine Stage, VNTG Is A Festival Brasilia, Bra
 magnet:?xt=urn:btih:2D702B25EAB7433B6DD58682E1F241FE09A3FF68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:2D702B25EAB7433B6DD58682E1F241FE09A3FF68
 ```bash
 magnet:?xt=urn:btih:8C362F1F4363E236CBEF873E0D9ECD08DB5D368C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Domenique Dumont - People On Sunday (2020) Leaf [FLAC|Lossless|tracks + .cue] <A
 magnet:?xt=urn:btih:700A9BDA811124BD74EEE9B2E327D8F748C06C5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Rian Treanor - File Under UK Metaplasm (2020) Planet Mu [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:E2770F566B7275F33172227F5E16180EF989F5D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Mirrors Of Mind - Тишина Становится Тобой (2022) [FLAC|Loss
 magnet:?xt=urn:btih:D4B692C29D66FB7628C6B010C7D0C73AF3FBCF2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Hammock - Discography 40 Releases (2005-2020) Hammock Music, Darla Records [FLAC
 ```bash
 magnet:?xt=urn:btih:0C1B4B00C32B1137A76B6479413F6C7969A753EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Winter Chillout Lounge 2020 [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downte
 magnet:?xt=urn:btih:309A48FB98C9AD9B43FBDD7141C103D2122BF81E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - The Best Of Suanda Voice 2022 [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:92A8DE65222F15214094F45DD34912622EF9F155
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Claptone - Live @ Mainstage, Mysteryland, Netherlands (2023-08-26) [MP3|320 Kbps
 magnet:?xt=urn:btih:3EB2E81D97DE16681B572A97614154B449F48475
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Depeche Mode - Delta Machine | The 12" Singles (2023) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:2B630B6D338722903AE9AC0831A92F9C703D9695
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ ZHU - Musical Chairs Mixtape (Vol. 1) (2022) [FLAC|Lossless|WEB-DL|tracks] <Prog
 magnet:?xt=urn:btih:D33544E5368BBAA8FF1C548AF699B5B9AFC794C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Acryl Madness - Afterlife (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Darks
 ```bash
 magnet:?xt=urn:btih:F0E2641C53F33893B10117E9B3EA545162AACB0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ VA - The Orient Collective - Collection (2023) 8 Relise [MP3|320 Kbps] <Electron
 magnet:?xt=urn:btih:1F619A6313234779EABFD2EAF97D67A10F98998D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ Telex - Telex I-III (2022-2023) [MP3|320 Kbps] <Disco, Synth-pop, House, Techno>
 ```bash
 magnet:?xt=urn:btih:B66296CC0947E27760868E89205615DC62D3C2B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ Timmy Trumpet - Mad World (2020) [MP3|320 Kbps] <Big Room, Electro House, Hardst
 magnet:?xt=urn:btih:94501A64CB67B2F2CF6422C3ACE45E0EE4D08F80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ VA - Trance 2023 Vol.9 [MP3|320 Kbps] <Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:A07907D63B3C5C3C9811F490FA383743A7C8C2F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ VA - Best of EDM Party 2021 (2020) [MP3|320 Kbps] <Future House, Progressive, Cl
 magnet:?xt=urn:btih:A62A451E1D6367FE5C01AE35F75BD171964B67AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ VA - Levitated Trance: Autumn (2023) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:AEF9E244C164C622054E6D4260DDA2350F8493CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ Eleventyseven - Gloom & Bloom (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Po
 magnet:?xt=urn:btih:E6E0D7612CE94EA77BC3EF876E641203B9F93F0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ Altar (Br) - Ancestral (2017) EP [FLAC|Lossless|Web-DL|tracks] <Ambient, Dark Am
 ```bash
 magnet:?xt=urn:btih:17338B85ED8CBABD26C685FBF610B88A58DC0A76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:9BDA184EE92185FEFBA1509D76DAAB1B82430C9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ The American Dollar - Music for Travel (2017) [FLAC|Lossless|WEB-DL|tracks] <Amb
 ```bash
 magnet:?xt=urn:btih:318CD00B6F1DC4DE5B1498862D37038040A55B0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -77,6 +81,8 @@ UNDERCOVER by CreatorЯзык интерфейса: Ru
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Pixelmator Pro предлагает широкий спектр професси
 magnet:?xt=urn:btih:EF6961F2FAAB4CEAB1F242EC89192D9D0A9EC381
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:EF6961F2FAAB4CEAB1F242EC89192D9D0A9EC381
 ```bash
 magnet:?xt=urn:btih:60F11A8A0B7E1D6DFD427E1D88062C97D20D56C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +170,8 @@ CD 1:
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +196,8 @@ CD 1:
 magnet:?xt=urn:btih:A824096837503F66003BE159F90285987321602F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ magnet:?xt=urn:btih:A824096837503F66003BE159F90285987321602F
 ```bash
 magnet:?xt=urn:btih:F40A749CA6DA935690A4BE56D97606C62DBD924D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ Cyanide Grenade - Quintessence Of Death (2017) [FLAC|Lossless|image + .cue] <Thr
 magnet:?xt=urn:btih:EA397B5124D7A262FBA40481C235EC44EB0689AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +276,8 @@ magnet:?xt=urn:btih:EA397B5124D7A262FBA40481C235EC44EB0689AC
 ```bash
 magnet:?xt=urn:btih:BF6C149480FD896746D8A69AD77372015E013FA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +303,8 @@ magnet:?xt=urn:btih:BF6C149480FD896746D8A69AD77372015E013FA7
 magnet:?xt=urn:btih:7635839E970090C4696D3FB365BC62807091ADA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +328,8 @@ magnet:?xt=urn:btih:7635839E970090C4696D3FB365BC62807091ADA2
 ```bash
 magnet:?xt=urn:btih:74E6A1A8F0B31B2F6232183F451478FAD737E610
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +355,8 @@ magnet:?xt=urn:btih:74E6A1A8F0B31B2F6232183F451478FAD737E610
 magnet:?xt=urn:btih:0CCBC9FB84B69D5A1F4F6E447808058DCCBC0F9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ magnet:?xt=urn:btih:0CCBC9FB84B69D5A1F4F6E447808058DCCBC0F9D
 ```bash
 magnet:?xt=urn:btih:B14407E0EEB94F71FE8B0A0DCE7AD7AAFD3927F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +407,8 @@ CodeRunner - отличный редактор для программиста �
 ```bash
 magnet:?xt=urn:btih:ACAAEC231278DEEA8CBD244B6BED924E29F58A4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +442,8 @@ The Modern Jazz Quartet - Under The Jasmin Tree / Space (2010) [FLAC|Lossless]<J
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +467,8 @@ The Modern Jazz Quartet - Under The Jasmin Tree / Space (2010) [FLAC|Lossless]<J
 ```bash
 magnet:?xt=urn:btih:39120C2383A01D2B16809D8218766D912FC34D45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +503,8 @@ Venom - Hell (2008) [MP3|320 kbps]<Black/Speed/Thrash Metal>
 magnet:?xt=urn:btih:7842B5284B4CB37D9F04D96CA8AE8C64C8257A60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +531,8 @@ UFO - The Best Of The Rest (1988) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A75417F974B50772B9F0CF34D6707A8CA20C076A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +561,8 @@ VA - не Громкие новинки недели 42 (2019) [MP3|320 Kbps] <P
 magnet:?xt=urn:btih:D7DF7D9267D8F0740865EFE5E9E9CFCA73F020DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +586,8 @@ magnet:?xt=urn:btih:D7DF7D9267D8F0740865EFE5E9E9CFCA73F020DE
 ```bash
 magnet:?xt=urn:btih:1EBC47056EB0415CE7A201A1913B49AAEB2FE57D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +616,8 @@ VA - Another Side of Mike Mareen Part Two (2016) Italo Box Music, 2019, Remaster
 magnet:?xt=urn:btih:460ED1B829C8894F07A3C062F1A1F7DCB2911B11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +644,8 @@ Jim Brickman - The Magic Of Christmas (2019) [FLAC|Lossless|WEB-DL|tracks] <New 
 ```bash
 magnet:?xt=urn:btih:BA27CDB31B44A33BD74DD6B3A71EDF920C7CADF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +675,8 @@ MKey 1.2.7.1  [Мультиязычный (русский присутствуе
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +701,8 @@ MKey 1.2.7.1  [Мультиязычный (русский присутствуе
 magnet:?xt=urn:btih:5A2323584626802E8C84F7E80E1069F4A09B179F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -676,6 +726,8 @@ European Rally Championship (ERC) 2019. Rally Hungary / Этап 8. Венгри
 ```bash
 magnet:?xt=urn:btih:CADD74D12B569DE8B008A184111496567DD5AC3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

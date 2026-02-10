@@ -19,6 +19,8 @@ NGW: Самые мощные челюсти / World's Deadliest Bite (2021) WEBR
 magnet:?xt=urn:btih:3F8B65CB5BA34E0C233764990D8AB5FB31F5152C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Discovery: Разрушители легенд. Челюсти: месть / Myt
 ```bash
 magnet:?xt=urn:btih:53E95EF175BAF898EEA9EE4BA1EA5A2C1C231A07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ BBC. Африканские Драконовы горы / BBC: Africa's Dragon M
 magnet:?xt=urn:btih:B0C4CE9C6EDDF67861AAA31CD0E979E06D9F0B5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NG. Тутанхамон: Цветная Версия / King Tut In Colour (2020
 ```bash
 magnet:?xt=urn:btih:97CDCFD5A82C51AC3F52DF1D4244F3B998CFA685
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ BBC: День Д: Последние слова / D-Day: Last Words (D-Day in 14
 magnet:?xt=urn:btih:2E65C85F1A7F1D70C8908ED91368C84A61C5CEF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ NG: Инстинкт выживания. Экстремальные джунгл
 ```bash
 magnet:?xt=urn:btih:88161E14D4E5A71FD9008A386F41293BC8860A57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Discovery: Я не должен был выжить / I Shouldn't Be Alive (2005
 magnet:?xt=urn:btih:3850B9870F694FB52C1EAF4C12D429EA9F4FE3FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ History Channel: Древние пришельцы / Ancient Aliens (2015) HDTV 
 ```bash
 magnet:?xt=urn:btih:E5141CA02B6A87953A30FD72BD5E4AE35325EEDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ BBC. Космическая гонка 21 века / The 21st Century Race for S
 magnet:?xt=urn:btih:9C86BC96175AA8663D3D532D11CCAD12727DEE13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ BBC. Скрытые вершины (Заповедник Бен-Эй) / The Hidd
 magnet:?xt=urn:btih:2D25712ED7D15958EFF917173C8212E53FE5AFF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ NG: От Парижа до Питтсбурга / Paris to Pittsburgh (2018) DVB
 ```bash
 magnet:?xt=urn:btih:2FD347D90681B3F29ADF42D47E852855058ED753
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:2FD347D90681B3F29ADF42D47E852855058ED753
 magnet:?xt=urn:btih:54C6234E8236C951AD6BA9B6B9DA60FAA04FEA98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Discovery. Османы и христиане: Битва за Европу / Ot
 magnet:?xt=urn:btih:7F035D600809C04681596221C11CA7F109EA08B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ NGW: Зов малыша белухи / Call of the Baby Beluga (2016) HDTV [H.2
 ```bash
 magnet:?xt=urn:btih:48404C7336509A61CDA518702CFE59678566E9B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:48404C7336509A61CDA518702CFE59678566E9B2
 magnet:?xt=urn:btih:9D58B4767DB6CC7FFECF6F94CF8AAC9737DE1865
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ BBC: Детские хирурги: совершая чудеса / Baby Surgeon
 ```bash
 magnet:?xt=urn:btih:288B6FC3BE656FB0330CE24F36E061D2C8FC54AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ NG: Суперсооружения. Корейская Супермагистр�
 magnet:?xt=urn:btih:0FE0C6F7F74F61E27923123E7B9B559362AB1BB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:0FE0C6F7F74F61E27923123E7B9B559362AB1BB2
 ```bash
 magnet:?xt=urn:btih:39FD5BBF706E85A9A2B037E334C38F0D804CAC52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ NG. Петра: тайны древних строений / Petra. Secrets of t
 magnet:?xt=urn:btih:A0BEA54B8F29EA0253F04909F7185B8ADB62D7B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ NG. Потерянный и найденный / Lost and Found (2019) HDTV [H.2
 ```bash
 magnet:?xt=urn:btih:F2D9AF16EE5A3CAA06D035D24418AC095D26CB1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:F2D9AF16EE5A3CAA06D035D24418AC095D26CB1D
 magnet:?xt=urn:btih:AF65C0FDE523BA83E6DDF33EFBF1D4B131815D52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ BBC: Жизнь птиц / The Life of Birds (1998) DVDRip (сезон 1, сер
 magnet:?xt=urn:btih:823CDE158C7D08A5052B75DE4D5F3377E119A8D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ NG: Затерянные сокровища Египта / Lost Treasures of Egy
 ```bash
 magnet:?xt=urn:btih:40F11748D661F671B8BD1FA7CD156BFB69FED52B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ NG:  В поисках Атлантиды / Finding Atlantis (2011) HDTVRip
 magnet:?xt=urn:btih:7EC2FE9C257DDB4939023EE15B58A254B23F759F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ NG: Осушить океан: Подводные лодки-убийцы / Drai
 magnet:?xt=urn:btih:1D7FA98729B8263F79BC306A6B5C190DB5E579D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ BBC. Как устроены шикарные отели. Эм-Джи-Эм (Ма
 ```bash
 magnet:?xt=urn:btih:D50C4E709F73C3E1CC1644318D9E8F0CF1E31F4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

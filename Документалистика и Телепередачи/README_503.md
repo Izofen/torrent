@@ -1,3 +1,29 @@
+###  Публикация: 1027370   (696535) от 19.06.2016
+
+Верю - не верю. Парагвай (17.06.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любители путешествий, Андрей Бедняков зовет вас в увлекательный тур по невероятным странам! В места, где раньше никто и никогда не был. В уголки планеты, которые хранят вековые тайны. По городам, о которых вы нигде больше не узнаете. Бородатый ведущий с прекрасной эрудицией проведет эксклюзивную экскурсию по местам вашей мечты. О каждом из них он расскажет пять интересных (   Читать дальше...   )В этом выпуске: Парагвай. государство находится в центре Южной Америки. Это одна их самых удивительных стран, полная интересных противоречий. Здесь есть железная дорога, но поезда не ходят. У них самый большой в мире флот, но нет выхода к морю. Помимо этого, Парагвай имеет двусторонний флаг, а одним из национальных героев является донской казак Иван Беляев. Но еще больше интересных (   Читать дальше...   )Телекомпания: Пятница!Жанр: ТелепередачаПродолжительность: 00:48:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B20EF9BCE087EA14297E0AFB6AF00207635A479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027659   (696541) от 19.06.2016
 
 НТВ-видение: Признание экономического убийцы. Часть вторая (2016.06.19) SATRip
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:A48A2567916AB86DD6E97758B6B5C01EBF4C41C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:A48A2567916AB86DD6E97758B6B5C01EBF4C41C1
 magnet:?xt=urn:btih:033DB4009422E64E000532D2D28FCF8F1BC897C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:033DB4009422E64E000532D2D28FCF8F1BC897C8
 magnet:?xt=urn:btih:892BB0B875264CEE67F642AA845F49FDD32F34AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:892BB0B875264CEE67F642AA845F49FDD32F34AD
 ```bash
 magnet:?xt=urn:btih:9AC63DE17E1C93AE575BAEE2F524E80DC5389630
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:9AC63DE17E1C93AE575BAEE2F524E80DC5389630
 magnet:?xt=urn:btih:3B403AC4600EEF980E62D2FABB67D44B2D1FE05B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:3B403AC4600EEF980E62D2FABB67D44B2D1FE05B
 ```bash
 magnet:?xt=urn:btih:AE156B4AD11AC7D9570A4F2AA6D2D0E348F0CDCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:AE156B4AD11AC7D9570A4F2AA6D2D0E348F0CDCB
 magnet:?xt=urn:btih:82DFB61BCCB3E9875DE072F49B56B62C0076F4B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:82DFB61BCCB3E9875DE072F49B56B62C0076F4B7
 ```bash
 magnet:?xt=urn:btih:9E44AD4264CF01984F89A5ACBD2DACC5EA7B1454
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:9E44AD4264CF01984F89A5ACBD2DACC5EA7B1454
 magnet:?xt=urn:btih:C2F8C81E83943B4CD6908358FE9BB90DDBBAB993
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:C2F8C81E83943B4CD6908358FE9BB90DDBBAB993
 ```bash
 magnet:?xt=urn:btih:C604AA239596D6FE9FCDC8A2123106390214EA49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:C604AA239596D6FE9FCDC8A2123106390214EA49
 magnet:?xt=urn:btih:F46C0346E87AEF9CE10675B2954712FD4E846E14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:F46C0346E87AEF9CE10675B2954712FD4E846E14
 ```bash
 magnet:?xt=urn:btih:4B47FB60BAF84D6FB5B98127C820A5C00BFB5CD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:4B47FB60BAF84D6FB5B98127C820A5C00BFB5CD9
 magnet:?xt=urn:btih:853A76E1FD75D7FF40CD2C03E8B9DA638D000D69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:853A76E1FD75D7FF40CD2C03E8B9DA638D000D69
 magnet:?xt=urn:btih:0639E230CABAC77A378441AB138B57E697025C50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:0639E230CABAC77A378441AB138B57E697025C50
 ```bash
 magnet:?xt=urn:btih:4649B2CD1DFABCA89A03D184B5D768FB0F6BD452
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:4649B2CD1DFABCA89A03D184B5D768FB0F6BD452
 magnet:?xt=urn:btih:C0FB774650FB9EA666F968937EF7F56CB4DA52F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:C0FB774650FB9EA666F968937EF7F56CB4DA52F5
 ```bash
 magnet:?xt=urn:btih:14F5C76260DFAC95B97283F1080FE00DD998A0B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:14F5C76260DFAC95B97283F1080FE00DD998A0B0
 magnet:?xt=urn:btih:592F2E74BD1A991E8972B47DF24F2DC2DFDD135B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:592F2E74BD1A991E8972B47DF24F2DC2DFDD135B
 ```bash
 magnet:?xt=urn:btih:7ECBA63F7C29AC2FD756D1FB6E2BD8A7857850DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:7ECBA63F7C29AC2FD756D1FB6E2BD8A7857850DA
 magnet:?xt=urn:btih:B8CF7C2B0BF0DADDA096FFF6E17CDBDE67B9A7A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:B8CF7C2B0BF0DADDA096FFF6E17CDBDE67B9A7A3
 ```bash
 magnet:?xt=urn:btih:D60489692445A6DAB3FFCE61C5D81332E0BC0BF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:D60489692445A6DAB3FFCE61C5D81332E0BC0BF5
 magnet:?xt=urn:btih:4B0E219C033644AE669ED83AE0179465783B3442
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:4B0E219C033644AE669ED83AE0179465783B3442
 ```bash
 magnet:?xt=urn:btih:7E595A69984431845B2D7E85FDFC4C776A04E48A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:7E595A69984431845B2D7E85FDFC4C776A04E48A
 magnet:?xt=urn:btih:0468E5C4366137A1AFEA5AE8D2F46DB6AE5EAC71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,29 +677,7 @@ magnet:?xt=urn:btih:0468E5C4366137A1AFEA5AE8D2F46DB6AE5EAC71
 magnet:?xt=urn:btih:AE68DB4EEFCB1F2B3510B292C6C4F41CFD0F1335
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027440   (698350) от 18.06.2016
-
-Экстрасенсы ведут расследование (2016.06.18) DVB [H.264] (сезон 7, выпуск 6)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный триллер-детектив с участием самых загадочных экстрасенсов России! Это не шоу, а демонстрация реальной мощи ясновидения. Участники и победители нескольких сезонов «Битвы экстрасенсов» приводят документальные доказательства того, как паранормальные способности способны помочь людям. В этом цикле экстрасенсы находят пропавших родственников и угнанные (   Читать дальше...   )Телекомпания: ТНТЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:188DE4607EA0C5F0FC61A32A2D7DD646F6098B7E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

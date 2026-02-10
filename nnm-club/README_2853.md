@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:A46B011EBD6FB139AC3A7EC023B18FC981B179A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:A46B011EBD6FB139AC3A7EC023B18FC981B179A8
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:A46B011EBD6FB139AC3A7EC023B18FC981B179A8
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:A46B011EBD6FB139AC3A7EC023B18FC981B179A8
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:A46B011EBD6FB139AC3A7EC023B18FC981B179A8
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Amulet of Time: Shadow of La Rochelle / Путешествие во времен
 ```bash
 magnet:?xt=urn:btih:C66D19EDE81CBF18AED06710BB26A4E954925C08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:C66D19EDE81CBF18AED06710BB26A4E954925C08
 ```bash
 magnet:?xt=urn:btih:D390BDCD3661B9456FAA9ED9405C84E06207A014
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +245,8 @@ John Williams - Star Wars The Complete Score (2008) [MP3|320 кб/с]<Score>
 magnet:?xt=urn:btih:9C4C59EC3F1661C6513268FAD7663EC120E5A523
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +273,8 @@ magnet:?xt=urn:btih:9C4C59EC3F1661C6513268FAD7663EC120E5A523
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ KMPlayer - это универсальный проигрыватель, кот�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +334,8 @@ Ottawan - Greates Hits (2007) [FLAC|Lossless]<Disco>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +364,8 @@ Slim - Весна-Лето [EP] (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
 magnet:?xt=urn:btih:F7B8D1FA2DF3DCFA586E6C16BBC384B614872AED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +389,8 @@ magnet:?xt=urn:btih:F7B8D1FA2DF3DCFA586E6C16BBC384B614872AED
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +417,8 @@ magnet:?xt=urn:btih:F7B8D1FA2DF3DCFA586E6C16BBC384B614872AED
 ```bash
 magnet:?xt=urn:btih:7023552EFEF66154892D2C1BF2ABEADBF3A93FA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +453,8 @@ VA - Дорожный патруль. Музыка в дорогу (2012) [MP3|2
 magnet:?xt=urn:btih:A1016EB1FAEA9C58287904D9F80DE08D5F84B071
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +478,8 @@ magnet:?xt=urn:btih:A1016EB1FAEA9C58287904D9F80DE08D5F84B071
 ```bash
 magnet:?xt=urn:btih:DA7B1F64088CE050868CE4D6BDFD8293D45C2948
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +505,8 @@ magnet:?xt=urn:btih:DA7B1F64088CE050868CE4D6BDFD8293D45C2948
 magnet:?xt=urn:btih:B74EC638DFA300DCD06376DBC89701FC96593807
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +530,8 @@ magnet:?xt=urn:btih:B74EC638DFA300DCD06376DBC89701FC96593807
 ```bash
 magnet:?xt=urn:btih:A77E1F8881FC9B9835AA18227AF547DBC2F96E1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +557,8 @@ Yetisports. Кругосветный пингвин. +бонус (L) [Ru/En] 200
 magnet:?xt=urn:btih:81F57A7ADB6D89BE419FB4FEB501C8FDA4472290
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +582,8 @@ magnet:?xt=urn:btih:81F57A7ADB6D89BE419FB4FEB501C8FDA4472290
 ```bash
 magnet:?xt=urn:btih:A645240A639333DDE126767C3F2B771A9053C0F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +612,8 @@ Dr.Web CureIt! 6.0 - Бесплатный антивирусный сканер 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +637,8 @@ Dr.Web CureIt! 6.0 - Бесплатный антивирусный сканер 
 ```bash
 magnet:?xt=urn:btih:7437854771554C79A4C5185F1E8AFC1029A77621
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +664,8 @@ magnet:?xt=urn:btih:7437854771554C79A4C5185F1E8AFC1029A77621
 magnet:?xt=urn:btih:AD01B111AEC0DC3D567E4C25637FD1DBB4A49E17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +690,8 @@ magnet:?xt=urn:btih:AD01B111AEC0DC3D567E4C25637FD1DBB4A49E17
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -674,6 +724,8 @@ magnet:?xt=urn:btih:AD01B111AEC0DC3D567E4C25637FD1DBB4A49E17
 ```bash
 magnet:?xt=urn:btih:1AC50E978A4B396807FD2208A40AECB4AC3FA7E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

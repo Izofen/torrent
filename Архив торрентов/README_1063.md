@@ -22,6 +22,8 @@ VA - Clubbing Culture Mixed Compilation (DJ WAD) (2016) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:0E41A56700EE3790368E8DFFBBBCB94EC95F75C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:0E41A56700EE3790368E8DFFBBBCB94EC95F75C6
 ```bash
 magnet:?xt=urn:btih:7E900DFD31115125EFFB42979AD58627A4DBC122
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:7E900DFD31115125EFFB42979AD58627A4DBC122
 magnet:?xt=urn:btih:B9AC5C3D8F2D03171BD51B9D80E52609A6765C4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:1A8AA8B2BBF64816486BA2EFACE4C3C6AA2A2FC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ Albums, EP, Single, Split:
 ```bash
 magnet:?xt=urn:btih:5FF40A350D1875BDE5C98CE1E8F2C4B152188B77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +170,8 @@ magnet:?xt=urn:btih:5FF40A350D1875BDE5C98CE1E8F2C4B152188B77
 magnet:?xt=urn:btih:26F9A4860DBFCA313E962755507D777C450B38F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +205,8 @@ De Profundis - This Winter In My Heart (2014) [MP3|320 кб/с]<Atmospheric Blac
 magnet:?xt=urn:btih:E0BEA3CE42BC9E10A0DA1F714ED5072B1058CE76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +230,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:83928B853EDD0E52209A9EB45A015B9BDC311895
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +257,8 @@ uTorrent - официальное приложение на Андроид. Бл
 magnet:?xt=urn:btih:1A430A3A0FAA5AF4B8E1B3E9E7A6BDD579832CD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +283,8 @@ DiskDigger - маленькая утилита, с которой можно в�
 magnet:?xt=urn:btih:4684851831DA155D3D89C13B9699ADD0C0428CE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +308,8 @@ XYplorer - удобный мультивкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:4899D815524A9461AA6FCF1321E1A4BD12A0A377
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +336,8 @@ magnet:?xt=urn:btih:4899D815524A9461AA6FCF1321E1A4BD12A0A377
 ```bash
 magnet:?xt=urn:btih:2F3DEB83142626D4C4A5F1A60F590242F3D03F14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +366,8 @@ Icaros - Icaros (2014) [MP3|320 кб/с]<Neocrust, Hardcore Punk>
 ```bash
 magnet:?xt=urn:btih:1C5E26C90590BEB4939F3F75AA5A434058CA2ED2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +399,8 @@ Neversun - Archaic Interpretation Of Freedom (2014) [MP3|320 кб/с]<Death Meta
 magnet:?xt=urn:btih:31D8BD4DDAF891A3AE59A328B6B602ACBD27349D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +424,8 @@ Total PDF Converter - преобразовывает PDF в RTF, Doc, Excel, HTM
 ```bash
 magnet:?xt=urn:btih:B2F53EDBC7F93722EDADC30DB674E9FEBC85A984
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +451,8 @@ magnet:?xt=urn:btih:B2F53EDBC7F93722EDADC30DB674E9FEBC85A984
 magnet:?xt=urn:btih:3214864F588E22E6E15BD74DFA914C74E9D24EA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +476,8 @@ Microsoft Visual Studio Professional 2019 - полный набор инстру
 ```bash
 magnet:?xt=urn:btih:25141D73B7B4ED1F29C998BAA1620DF4EA9E0C1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +512,8 @@ Godhole - Self Titled Double (2014) EP [MP3|320 кб/с]<Powerviolence, Grindcor
 magnet:?xt=urn:btih:D5E2F480ABF51870CCABA3DD7D2B7B9574891120
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +537,8 @@ Stellarium – бесплатный эмулятор звездного неба
 ```bash
 magnet:?xt=urn:btih:2D293F683CED17D5F37C3D751FB033A5BAA5FE6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +565,8 @@ Mudbath - Corrado Zeller (2015) [MP3|320 кб/с]<Doom/Sludge Metal>
 ```bash
 magnet:?xt=urn:btih:FF16EDFB52B9C2979540B4A80EABE241FC3850AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +597,8 @@ Kill Blinton - EP (2014) [MP3|320 кб/с]<Neocrust, Hardcore Punk>
 magnet:?xt=urn:btih:34D823731F8E107C9E2A142816B983248A93742D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +623,8 @@ Privatus - это простое приложение для удаления н
 ```bash
 magnet:?xt=urn:btih:E07189A4FAC0AB1BA2757EDCD36D7F4CC527BB1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +653,8 @@ DJ Skydreamer - Happy Hardcore (2005) Монолит [APE|image+.cue] <Hardcore>
 magnet:?xt=urn:btih:C2E0FEC1274572C62468601D17291C8A7F29BD46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +680,8 @@ magnet:?xt=urn:btih:C2E0FEC1274572C62468601D17291C8A7F29BD46
 magnet:?xt=urn:btih:9A06B3C3EEEE7E1A113DBB8F79C0477A60C19C3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +706,8 @@ magnet:?xt=urn:btih:9A06B3C3EEEE7E1A113DBB8F79C0477A60C19C3A
 magnet:?xt=urn:btih:FA32FC15CD5263CB8A74F7B240D7271343E43C1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -681,6 +731,8 @@ VueScan - программа для работы со сканерами HP, Min
 ```bash
 magnet:?xt=urn:btih:0CAF5F869A0B3BE66B906A705CC6E2E753B225CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

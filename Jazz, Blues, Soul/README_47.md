@@ -25,6 +25,8 @@ Joe Bonamassa - Live from Nowhere in Particular (2008) [FLAC|Lossless]<Blues Roc
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -57,6 +59,8 @@ Laura Fygi - Watch What Happens When Laura Fygi Meets Michel Legrand (1997) [FLA
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +95,8 @@ VA - 100 Tubes Blues (2010) 5CD Boxset [MP3|320 kbps]<Blues>
 magnet:?xt=urn:btih:749D65F866BAED1A5619C090F3D6D9494B5EA716
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +128,8 @@ Adele - Discography (Complete) (2008 - 2011) [MP3, AAC|192-320 kbps]<Поп-Дж
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +153,8 @@ Johnny Nash – 4 альбома (1968-1979) [mp3|192-320 kbps | tracks (VinylRi
 ```bash
 magnet:?xt=urn:btih:F4A73499339B89F1D0B8CDFDC350772909C30E4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +187,8 @@ Antonio Forcione & Sabina Sciubba - Meet Me In London (1997) [FLAC|Lossless]<Voc
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +223,8 @@ Joe Louis Walker - Hellfire (2012) [MP3|256 kbps]<Blues>
 magnet:?xt=urn:btih:08EBBFF744EF50CA0AA00DD6777490ECD7FF44FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +257,8 @@ Roger Ridley - Taking You Back II (2010) [FLAC|Lossless]<Blues, R&B, Soul>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +293,8 @@ Marvin Gaye - Motown's Greatest Hits (1992) [FLAC|Lossless]<Soul, Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +321,8 @@ The Perfect Jazz Collection, 25 исторических полноформат�
 ```bash
 magnet:?xt=urn:btih:B8586C3514708090480C1680820531EF92715FFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +357,8 @@ Natalie Cole - Два альбома (2004-2008) [FLAC|Lossless]<Jazz, Vocal Jaz
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +392,8 @@ Sade - The Magic of Sade (2010) [FLAC|Lossless]<Soul, Smooth-Jazz, Pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +423,8 @@ Kim Waters - 12 Albums (1989-2010) [MP3|192-320 kbps]<Smooth Jazz>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +459,8 @@ Jonny Lang - Lie To Me (1997) [FLAC|Lossless]<Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +493,8 @@ Erja Lyytinen - Songs From The Road (2012) [FLAC|Lossless]<Modern Electric Blues
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +529,8 @@ Bobby “Blue” Bland - Unmatched The Very Best (2011) [MP3|320 kbps]<Blues>
 magnet:?xt=urn:btih:EF99E1C9AB71F4E85CF9DA223C1EA4731561197B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +563,8 @@ Perry Como - Legends (2001) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +599,8 @@ Malia - Black Orchid (2012) [MP3|320 kbps]<Vocal Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +632,8 @@ Chick Corea, Eddie Gomez and Paul Motian - Further Explorations (2012) [FLAC|Los
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +667,8 @@ Sam Yahel, Ari Hoenig, Mike Moreno & Seamus Blake - Jazz Side of the Moon: The M
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +699,8 @@ Blue Mitchell - Blue's Moods (1960) /XRCD Japan Remasters, 2003/ [FLAC|Lossless]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -693,6 +735,8 @@ VA - Playboy Jazz - In a Smooth Groove (2004) [FLAC|Lossless]<Jazz, Smooth Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -725,6 +769,8 @@ VA - We Can Work It Out (Covers & Cookies of Lennon, Mc'Cartney & The Beatles) (
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -759,6 +805,8 @@ Joe Louis Walker - Hellfire (2012) [APE|Lossless]<Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -792,6 +840,8 @@ Katie Melua - Secret Symphony (2012) [FLAC|Lossless]<Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -824,6 +874,8 @@ Caravan Palace - Panic (2012) [MP3|320 кб/с]<Electro-Swing / Jazz Dance>
 ```bash
 magnet:?xt=urn:btih:E360B707545D3C007D59115BC20FB6E8539E84B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

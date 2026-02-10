@@ -1,3 +1,32 @@
+###  Публикация: 760196   (899544) от 26.02.2014
+
+Чудинова Елена, Ованесян Роберт (сост.) | Легенды Армении (1996) [PDF, FB2, DJVU, JPEG]
+
+>>Разное (категория книг)
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пересказ нескольких армянских легенд, выполненный Еленой Чудиновой и Робертом Ованесяном, сопровождаемый красочными иллюстрациями Ирины Волковой.
+На обороте титульной страницы указано: "Текст составлен по произведениям классиков армянской литературы, народного эпоса и фольклора".
+
+Основной сюжет книги - падение под натиском персидских захватчиков армянской (   Читать дальше...   )Формат: PDF, FB2, DJVU, JPEG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28C14DE8C7F64A804B9D824E7AEB00F798D4ADDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 637668   (899586) от 31.03.2013
 
 Макс Таль | 36 мудр на деньги и влияние [2012] [FB2]
@@ -18,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:F145A332F0167062B519B6933BD73C655CE8CBF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +74,8 @@ magnet:?xt=urn:btih:F145A332F0167062B519B6933BD73C655CE8CBF0
 magnet:?xt=urn:btih:697D7FAFC04EBEF0A3E4B0C354646F6B1FF0F0DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +99,8 @@ magnet:?xt=urn:btih:697D7FAFC04EBEF0A3E4B0C354646F6B1FF0F0DD
 ```bash
 magnet:?xt=urn:btih:FE0ABAA0DF3C4F70A5B2151953AB92EE59BFCFBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +126,8 @@ magnet:?xt=urn:btih:FE0ABAA0DF3C4F70A5B2151953AB92EE59BFCFBD
 magnet:?xt=urn:btih:F581B143CE4050C0434EA3F56C77E4B8191EA88D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +151,8 @@ magnet:?xt=urn:btih:F581B143CE4050C0434EA3F56C77E4B8191EA88D
 ```bash
 magnet:?xt=urn:btih:5C3027311E9DDB91575E97144D4BB10E90DEE6C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +178,8 @@ magnet:?xt=urn:btih:5C3027311E9DDB91575E97144D4BB10E90DEE6C3
 magnet:?xt=urn:btih:6D85EC51C586350D5A3C4F45A4C11338D4E4880A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +203,8 @@ magnet:?xt=urn:btih:6D85EC51C586350D5A3C4F45A4C11338D4E4880A
 ```bash
 magnet:?xt=urn:btih:EFDF85D2E9686182B730C70C0647DD2EFE91B8ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +230,8 @@ magnet:?xt=urn:btih:EFDF85D2E9686182B730C70C0647DD2EFE91B8ED
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +255,8 @@ magnet:?xt=urn:btih:EFDF85D2E9686182B730C70C0647DD2EFE91B8ED
 ```bash
 magnet:?xt=urn:btih:55D4CB1869C319F8C32A91B4FACF8E2AEB07F172
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +282,8 @@ magnet:?xt=urn:btih:55D4CB1869C319F8C32A91B4FACF8E2AEB07F172
 magnet:?xt=urn:btih:20A7855739F2A6626386CEC3C5682BC12CEB876B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +307,8 @@ magnet:?xt=urn:btih:20A7855739F2A6626386CEC3C5682BC12CEB876B
 ```bash
 magnet:?xt=urn:btih:48ABC9F98123102F36993284035A2E1075D638D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +334,8 @@ magnet:?xt=urn:btih:48ABC9F98123102F36993284035A2E1075D638D4
 magnet:?xt=urn:btih:3CD4D14AE7567B32C59A92DFF37909C2FF37B729
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +359,8 @@ magnet:?xt=urn:btih:3CD4D14AE7567B32C59A92DFF37909C2FF37B729
 ```bash
 magnet:?xt=urn:btih:9FF5FA861825FFB35A9A376A983FA07431DCAB2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +386,8 @@ magnet:?xt=urn:btih:9FF5FA861825FFB35A9A376A983FA07431DCAB2C
 magnet:?xt=urn:btih:EBB55C8B1220C6088ACD996056F98079D1D135D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +411,8 @@ magnet:?xt=urn:btih:EBB55C8B1220C6088ACD996056F98079D1D135D8
 ```bash
 magnet:?xt=urn:btih:5A1F484EDCFEA60CB74CC02545AC503596732881
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +439,8 @@ magnet:?xt=urn:btih:5A1F484EDCFEA60CB74CC02545AC503596732881
 magnet:?xt=urn:btih:5CE59D93DBD811364F6109BA0CF612EADC5607C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +464,8 @@ magnet:?xt=urn:btih:5CE59D93DBD811364F6109BA0CF612EADC5607C1
 ```bash
 magnet:?xt=urn:btih:B7C39732980086BFC410A5A4248DB1AF44A1BA61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +491,8 @@ magnet:?xt=urn:btih:B7C39732980086BFC410A5A4248DB1AF44A1BA61
 magnet:?xt=urn:btih:1174738BCC502D7B47E174CC7327E70121FAA963
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +516,8 @@ magnet:?xt=urn:btih:1174738BCC502D7B47E174CC7327E70121FAA963
 ```bash
 magnet:?xt=urn:btih:630E69F5F50965FCD184ED7A97D5478007090103
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +544,8 @@ magnet:?xt=urn:btih:630E69F5F50965FCD184ED7A97D5478007090103
 magnet:?xt=urn:btih:C3CA3AC8F431790109AF08B3B2F9C77FC1E70317
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +570,8 @@ magnet:?xt=urn:btih:C3CA3AC8F431790109AF08B3B2F9C77FC1E70317
 ```bash
 magnet:?xt=urn:btih:3A607DC03D11D7EEC2A4EC4723A3290C9B8C5B69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +598,8 @@ magnet:?xt=urn:btih:3A607DC03D11D7EEC2A4EC4723A3290C9B8C5B69
 magnet:?xt=urn:btih:3AF15AFB51860EB4FECB60E601760879F82A2632
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +623,8 @@ magnet:?xt=urn:btih:3AF15AFB51860EB4FECB60E601760879F82A2632
 ```bash
 magnet:?xt=urn:btih:6B05C548E2D3F51FCF86AF6F12FD4AAFC6969CD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +651,8 @@ magnet:?xt=urn:btih:6B05C548E2D3F51FCF86AF6F12FD4AAFC6969CD6
 magnet:?xt=urn:btih:00DC1822DF80D08A16E18B4D0F83D8D1EC933DAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,29 +678,7 @@ magnet:?xt=urn:btih:00DC1822DF80D08A16E18B4D0F83D8D1EC933DAE
 magnet:?xt=urn:btih:F4F9D721A256CC02214D8A8726553CB7C7181D63
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 760866   (899979) от 26.02.2014
-
-Т.П. Флинт, М. Рей (сост.) | Оксфордское руководство по философской теологии (2013) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-В последние десятилетия в аналитической философии появилось немало оригинальных и глубоких исследований на теологические темы. Данная книга подводит определенный итог новейших изысканий, в которых можно видеть синтез предметов рациональной "общетеистической теологии" и специально "христианской философии". В издании Флинта и Рея читатели найдут современные интерпретации таких базовых вопросов, как вера и наука, авторитет и богодухновенность Писания, простота, всезнание, темпоральность, всемогущество и моральное совершенство Бога, а также различные аспекты отношения Бога и мира. Провокативность издания определяется включением исламских, иудаистских и конфуцианских тем, которые отдельно в такого рода антологиях не рассматриваются.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C26638861B3D9CF5D50E69AA16EBB853680160F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ VA - 300% Classic In Rock (1999) [MP3|320 Kbps] <Classical, Vocal, Rock, Trance>
 magnet:?xt=urn:btih:AFA599EE6961D709D39561DB2DAA3ABD86006DA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Classico: Klassik mit Popstars (1999) [FLAC|Lossless|image + .cue] <Classic
 ```bash
 magnet:?xt=urn:btih:189C1150B743D2A648395C67FE2BB1C1B9C463AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - 300% Classic In Rock (1999) [FLAC|Lossless|tracks + .cue] <Classical, Vocal
 magnet:?xt=urn:btih:B827AD5791523258E741536FF2CB56B386F1351F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Frederic Chopin (Artur Rubinstein) - The Chopin Collection (1991) [MP3|320 Kbps]
 magnet:?xt=urn:btih:CA578F8AA016A387D0E39CD0B8B71F9B1E7136A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ Gabor Boldoczki - Oriental Trumpet Concertos (2016) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:638A03985060635CE5F15852B850641B5F73461F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +173,8 @@ VA - Новая и Старая Классика (2012) [MP3|320 кб/с]<Нео
 magnet:?xt=urn:btih:76A4AA77F1CA7AA55F13A39B10ABA849BD7582F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +198,8 @@ magnet:?xt=urn:btih:76A4AA77F1CA7AA55F13A39B10ABA849BD7582F9
 ```bash
 magnet:?xt=urn:btih:4AB106B8022455F5FCF6E16FBBABF665526ED173
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +228,8 @@ Jordi Savall + Montserrat Figueras + Arianna Savall - 6 альбомов (2000-2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +256,8 @@ Missa Bruxellensis XXIII vocum
 ```bash
 magnet:?xt=urn:btih:1F6B49CA62D2679F754381D2A4FA6432760A7D12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +286,8 @@ VA - The Musicals Album (2017) [MP3|320 Kbps] <Classical, Soundtrack>
 magnet:?xt=urn:btih:3EA365EDA26B1DE018DD4C3A4806A1B3F4A625D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +311,8 @@ VA - Мировая Классика в современной обработк�
 ```bash
 magnet:?xt=urn:btih:CE49DB440A9AF51CD8192B7537A90F78981442F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +340,8 @@ Symphonie 9 Op.125 d min
 ```bash
 magnet:?xt=urn:btih:0C9A0DAAFC79A02C2AD240582E0858544EA4D5A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +376,8 @@ VA - Иисус Христос Суперзвезда (русская верси
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +404,8 @@ Andrew Lloyd Webber - The Phantom of the Opera (1987) [FLAC|(image+.cue)]<Opera>
 ```bash
 magnet:?xt=urn:btih:2E3A807C2DA995FB6AD0C23BC0830ABC2B2E1279
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +434,8 @@ Christian Grovlen - BACH - Inside Polyphony (2017) [MP3|320 Kbps] <Classical>
 magnet:?xt=urn:btih:D4E3E8C5200062361F41430987F92D239289B451
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +462,8 @@ PIANO SONATA in E minor Op. 90
 ```bash
 magnet:?xt=urn:btih:5ADDA14C042B35AA2D3A53F7A4E7D946686F13E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +492,8 @@ Hauser, London Symphony Orchestra - Classic (2020) Conductor Robert Ziegler [FLA
 magnet:?xt=urn:btih:B7E351065A559E90C8F3E96798DA59B57F5AEC2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +520,8 @@ Teodor Currentzis, MusicAeterna - Gustav Mahler Symphony n°6 (2018) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:6204C7228B423E3268E515598717537B090A9034
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +550,8 @@ VA - Ave Maria (Unknown) [FLAC|Lossless|image + .cue] <Сrossover Classical, Pop
 magnet:?xt=urn:btih:25A81AE080202FCE6225270BBE648E567F270778
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +578,8 @@ Sweet Susie, Manni Montana ‎ - Kv 2006 (Inspired By Mozart) (2005) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:D99C7B6634C2C83E4C6A344730E5008574846276
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +608,8 @@ Concerto, Opus 8 No.7 in D minor 'Per Pisendel' RV.242
 magnet:?xt=urn:btih:B0BD2FA526DC61E07071F48A5D37F4D980560B7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +637,8 @@ VA - Complete Classical Chillout (2015) [MP3|320 кб/с]<Classical, Instrumenta
 magnet:?xt=urn:btih:41451A921ADCECA74406806D68970A460943FC4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +665,8 @@ Weber, Mahler - Die drei Pintos (Paolo Arrivabeni & National Philharmonic Orches
 ```bash
 magnet:?xt=urn:btih:15BF1D119CE8C6AD9DB088DFCEADC34FF7C5118D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -655,6 +701,8 @@ VA -  Парад Оркестров (1973) [MP3|320 кб/с]<Instrumental,Orches
 magnet:?xt=urn:btih:637AFB3FB3DA48CACF5B3FD45FD613122FAE884F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -681,6 +729,8 @@ magnet:?xt=urn:btih:637AFB3FB3DA48CACF5B3FD45FD613122FAE884F
 ```bash
 magnet:?xt=urn:btih:A2465C4CBF6848360BDEC8DF14C6AC487476784A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -715,6 +765,8 @@ Luciano Pavarotti - 16 Альбомов (20 CD) (1977-2007) [MP3|320 кб/с]<Op
 ```bash
 magnet:?xt=urn:btih:AD1046849BCBAB69351569E1663C4DA4D33BF5D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

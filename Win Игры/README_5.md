@@ -19,6 +19,8 @@ BeamNG.drive – автосимулятор, моделирующий повед
 magnet:?xt=urn:btih:3A089DC14C876056BB43CDFA67FD21594C95E941
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Bad Cheese - это психологический хоррор, вдохнов�
 ```bash
 magnet:?xt=urn:btih:4492B15645556DE7E019380BB8045A1BFE87F761
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Dead Rising Deluxe Remaster (2024) [Ru/Multi] (1.3.0.0/dlc) Repack FitGirl
 magnet:?xt=urn:btih:1ADF0126DFF603EF35D7B48AB27EC3AB2BDFD579
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Ravenswatch - хардкорное приключение, в котором п�
 ```bash
 magnet:?xt=urn:btih:CE25F6ACADEAAA4C8D48622E7A5BCD9D30D5DAC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Lawn Mowing Simulator - симулятор фермера, отправляющ�
 magnet:?xt=urn:btih:B021375979300708380BD34476333BE9F8D916B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ TRAIL OUT (2022) [Ru/Multi] (5.0/dlc) Repack FitGirl [Complete]
 ```bash
 magnet:?xt=urn:btih:E436B3A4C6024A7058A22E7B5669261290CB2977
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Chip ‘n Clawz vs. The Brainioids (2025) [Ru/Multi] (1.0.22358) Repack FitGirl
 magnet:?xt=urn:btih:AFE764BD8A9FC5297BE529358DBC6EE993D5605C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Greedland - это игра, предоставляющая поклонника
 ```bash
 magnet:?xt=urn:btih:964890935326B63859F147E4DCD2BAC4849BECFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ NODE: The Last Favor of the Antarii / NODE: последняя услуга Ан
 magnet:?xt=urn:btih:A0C8AF6D3590BD6B48DAFF1A6D837AD58A33E88A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ For The King II (2023) [Ru/Multi] (1.8.8/dlc) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:7D6C44098597FE641EAE243051391EFD9AEFD82D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Dead Reset (2025) [Ru/Multi] (1.0.2) Repack Other s
 magnet:?xt=urn:btih:20D9A92FFFF1FA1FE599FB7CD3B700CC182E1CD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Dead Rising Deluxe Remaster (2024) [Ru/Multi] (1.3.0.0/dlc) Repack seleZen [Digi
 ```bash
 magnet:?xt=urn:btih:40E638C842B01ACA8AB2E523C8D1C687E53EDD22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Bloons TD 6 (Блунс ТД 6) – игра в жанре Tower defense, где
 magnet:?xt=urn:btih:2EB0FA4460D1FD14997E13E38EF937DFA0C22893
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Bad Cheese - это психологический хоррор, вдохнов�
 ```bash
 magnet:?xt=urn:btih:24709F32BE877C3E7F5854524E9AB98131AF5139
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ S.T.A.L.K.E.R.: Clear Sky / S.T.A.L.K.E.R.: Чистое небо (2008) [Ru/Mul
 magnet:?xt=urn:btih:4DE93D47DC7623D5F6379B03771598CDBFC963E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ SCP Pandemic – игровой проект, разработанный в жа
 ```bash
 magnet:?xt=urn:btih:8BC0DB7410D0276DE8ACF792464575A7E6D65582
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ RoadCraft (2025) [Ru/Multi] (4.0.526486 526543/dlc) Repack FitGirl [Rebuild Edit
 magnet:?xt=urn:btih:AFA10C267CB4D1E5CB98EAD3E299C2E27DF06500
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Rise of Industry 2 (2025) [Ru/Multi] (1.2.0/dlc) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:85FE6F1F872F142A4BB99C94F5DAD0D9EEF508C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ TerraTech Worlds - игра на выживание с крафтом и стр�
 magnet:?xt=urn:btih:2F0C24196F617D5CB075C23282ADF59249B36227
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Last Epoch – приключенческая экшен-игра с глубо�
 ```bash
 magnet:?xt=urn:btih:7AA116C01DEC16F0183EC7C5C381C8DFC4AD28A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ S.T.A.L.K.E.R.: Call of Prypiat / S.T.A.L.K.E.R.: Зов Припяти (2010) [
 magnet:?xt=urn:btih:578D5D61FEEF0D54AE16F166A4147094B7326DD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ S.T.A.L.K.E.R.: Shadow of Chornobyl / S.T.A.L.K.E.R. Тень Чернобыля
 ```bash
 magnet:?xt=urn:btih:E48C1874B73F9E3E1F1E448443811AFF2BAFD4CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Chants of Sennaar (2023) [Ru/Multi] (1.0.0.9) Scene Tenoke
 magnet:?xt=urn:btih:D98B4B2CA309367360C1C5993FE4D5A33D1F3ACC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ S.T.A.L.K.E.R.: Legends of the Zone Trilogy (2025) [Ru/Multi] (1.10.0.26261) Rep
 ```bash
 magnet:?xt=urn:btih:5048D5B623FCE2E598BFBAA350739C3D95A0756E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Rogue Waters - это тактическая пошаговая игра в ду
 magnet:?xt=urn:btih:551600A88C994AEF24CCF5F3998E981BDABACA41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Steel Division 2 (2019) [Ru/Multi] (165547/dlc) Repack seleZen [Total Conflict E
 ```bash
 magnet:?xt=urn:btih:C7D77D4931D1E1488875E8143F8B7CA500BA3E21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

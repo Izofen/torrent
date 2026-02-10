@@ -19,6 +19,8 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.0.3.1) Repack Pioneer
 magnet:?xt=urn:btih:D5FF6C3B0A9C52248611204665992EBE058651A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Tails of Iron – это приключенческая ролевая игра 
 magnet:?xt=urn:btih:AC6F2875631613A6D98A0732518800D71E506A8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Darkest Dungeon 2 - сиквел готической ролевой игры, �
 ```bash
 magnet:?xt=urn:btih:443CDD001EA696E6FB88DECFA3AB60E2903AC685
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Risen [Ru] (Lossless RePack/1.1/1.2) 2009 | pe4enko
 magnet:?xt=urn:btih:F08F2F840700FC3BD1D3D457DF50A672B6AE0F46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Neverend [Ru] (RePack) 2005 | Sash HD
 ```bash
 magnet:?xt=urn:btih:D34B7BE823D8BD9D853283B882CD6F009E98812D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Venetica: HD Edition [Ru] (Lossless RePack) 2010 | Naitro
 magnet:?xt=urn:btih:62A872913617EEB6A8D1E28E69CED3D6CDF47083
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ King's Bounty Platinum Edition [Ru/En] (RePack) 2008-2010 | Seraph1
 ```bash
 magnet:?xt=urn:btih:8B38D071BC90649323BAA2C21056D3B24A0BFD94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Angels vs Devils [Ru] (L) 2004
 magnet:?xt=urn:btih:4430AE5B40B10ED5B54FA3445D80FF32C01D20BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Avernum: Escape from the Pit - первая часть новой трилоги
 ```bash
 magnet:?xt=urn:btih:93A08585E9282BB8AE4D03ACB6C263D542952C50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Realms of Arkania Антология [En/Ru] (RePack) 1992-1996 | Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ Prince Of Qin [Ru/En] (P) 2004
 magnet:?xt=urn:btih:CEA05B67A1A5885AF7DE7C8E1C7C8A415479DDA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ Lost in Random: The Eternal Die объединила динамичный экш
 ```bash
 magnet:?xt=urn:btih:BF8685BB903CE21B84C68B968E70B2857E1D9E1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Titan Quest (2016) [Ru/Multi] (2.10.21415/dlc) Repack Let'sРlay [Anniversary Ed
 magnet:?xt=urn:btih:83AD9FE68823BE055E5BED82C07B91BF64E23154
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Luck & Loot - динамичный рогалик с кубиками, где с
 ```bash
 magnet:?xt=urn:btih:5B22273539820C19CDBF1B01D2FA109E9D23A691
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ Talisman: Волшебное приключение от Games Workshop - это
 magnet:?xt=urn:btih:BE309DBDF9D08B079245E7732FC524955DBBEBF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Tainted Grail: Conquest - мрачная ролевая игра с пошаго
 ```bash
 magnet:?xt=urn:btih:8DF4E760DDF0354F391B9F0A083C55AA6BD897AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ Diablo 2 + Lord of Destruction [En/Ru] (RePack/1.13d) 2000 | R.G. ReCoding
 magnet:?xt=urn:btih:F1F51D096DE34EEF042FDCB22C4CBF0C44A23888
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Rings of Medusa и Return of Medusa [En] (RePack) 1990-1991 | Pilotus
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ A Savage Frontier Fantasy Role-Playing Epic Антология [En] (RePack) 199
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ Bad Blood - это пост-апокалиптическая РПГ от Origin 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ Cat Quest - замуррчательная РПГ, чье действие пр�
 magnet:?xt=urn:btih:77D535959E85820509652B7A0FCF3FF1F68270F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ Cat Quest II рассказывает историю двух королей, к
 ```bash
 magnet:?xt=urn:btih:6BF0494702743CCA157158BDDBA28D6B58EB9D37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ I Was a Teenage Exocolonist (2022) [En] (1) License GOG
 magnet:?xt=urn:btih:44D888E9843FAC8F7BB2783F41DE10A3D8DB2B26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Siralim Ultimate - пошаговая ролевая игра, позволяю�
 ```bash
 magnet:?xt=urn:btih:00BCAD407B8D0512D40F2CC18D848F008A1B2FD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Immortal Mantis (2022) [Multi] (1.1) License GOG
 magnet:?xt=urn:btih:5AE4AFCA93958B0FB76D3A213F803F689AB16AD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ mmortal Mantis: Revenge - хоррор с нелинейным повество�
 ```bash
 magnet:?xt=urn:btih:A5C5D4C59CC926E051BD18908D64BB49C73EFCDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

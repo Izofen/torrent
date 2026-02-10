@@ -19,6 +19,8 @@ EMPYRE: Earls of the Deep Earth - тактическая ролевая игра
 magnet:?xt=urn:btih:128BAD6935416DCC021EAE0CDD05F991DAAF3529
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Grand Soul Saga - чудом сбежав из страны, где назрев
 ```bash
 magnet:?xt=urn:btih:32816DAB48A4D170A06619BDFB7E5647F3D481AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Weird Dream отправляет игроков в сайд-скроллин
 magnet:?xt=urn:btih:20418B2117FF46ACE6E93531CC4BC649EC72D992
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Amygdala бросает вас в леденящую душу одиссею. А
 ```bash
 magnet:?xt=urn:btih:3D72FE6CD795B4B3CD3614DEEC3B852D9D17354F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ A Twisted Tale – приключение, игровой процесс кот�
 magnet:?xt=urn:btih:B9741FD60CE69451F8614EBA1BE674D24995B0D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Alone in the Dark (2024) [Ru/Multi] (1.02/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:9E888E4C7767B01133AE6E5ADDA562E5D2E6920A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ The Cadet Files: Scene Unseen ставит вас на место агента-�
 magnet:?xt=urn:btih:896C3376A0195CA6DA5DBDFC063E3F48EBC3CEE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Blade Prince Academy вливает свежую кровь в жанр такт
 ```bash
 magnet:?xt=urn:btih:C4F899E05694A5685AD91A5F2A0C826DAC9E8C42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Highwater переносит игроков в недалекое и мрачн�
 magnet:?xt=urn:btih:85E8437B684A67773856773EFF31C6D2222D9DC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Unbearable – это хоррор на выживание с видом от т
 ```bash
 magnet:?xt=urn:btih:F91D21615A0F2EDB95342487A32923916191E692
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ God of War – новый взгляд на популярную серию, г�
 magnet:?xt=urn:btih:96D7A85AC65BAA1D5BCFF15D4CEC6CD81C1632DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Alone in the Dark (2024) [Ru/Multi] (1.02/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E05C1A25B4795EA5E4C29140712ADEF6079B31EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Dishonored: Death of the Outsider (2017) [Ru/En] (1.145.0.0) Repack Other s
 magnet:?xt=urn:btih:7CDEC59C1A5FC6F0B16E33D88D74ED37565BE083
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Goblin Stone - пошаговая ролевая игра, рассказыва�
 ```bash
 magnet:?xt=urn:btih:54D848914CAF8DCC75E6A9E30D76E76A394DF1D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Beast Inside – психологический хоррор с соврем
 magnet:?xt=urn:btih:BAAF71586AFE101534E57D7F2342AA3FB8669651
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Trans-Siberian Legends (2024) [Ru/Multi] (1.0/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:C422500C354C5B029040CF7D3773781622AD444E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Left Behind (2024) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:62DBAE4226489125EBD92D94E9526F52E75F9171
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Death Trick: Double Blind - приключенческая игра в форм�
 ```bash
 magnet:?xt=urn:btih:2C10B5916FF5931347EFCB8A308653F479FFECDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Terminator: Dark Fate – Defiance позволяет окунуться в су
 magnet:?xt=urn:btih:1E69B136F3984C264DA690E08CCEA2236A765B52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The Quarry - кинематографичный хоррор, в котором 
 ```bash
 magnet:?xt=urn:btih:B4AB794951BD77DC297276D08210B5232A542C81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Contra: Operation Galuga, последняя часть легендарной �
 magnet:?xt=urn:btih:FEAE6DB0D3C38EE48D361D3D8B706CC8A42A38F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Shadow of the Tomb Raider (2018) [Ru/En] (1.0.492.0/dlc) Repack Decepticon [Defi
 ```bash
 magnet:?xt=urn:btih:AF5D2257DB68B57B318A94B94CD63BF61941CF99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ AMID EVIL (2019) [En] (2628/dlc) License GOG
 magnet:?xt=urn:btih:E7FDA35CBA863F337B7D379A23CAA44D4773B85C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Outcast - A New Beginning – это продолжение знаменитог
 ```bash
 magnet:?xt=urn:btih:F5AE587D0B3A6ADAB7EAB60B1AD9708D907A4F6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Living Legends 11: The Red Trace (2024) [En] (1.0) Unofficial [Collector's Editi
 magnet:?xt=urn:btih:DD0FF5F26451D1CC90EDF3C88D9CECBCB507C785
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Silent Cause - это однопользовательская игра в жа�
 ```bash
 magnet:?xt=urn:btih:8AF5B09C33FA8CE203EFA7A544EBB6D4FE57EF91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

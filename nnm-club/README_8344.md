@@ -22,6 +22,8 @@ VA - #001 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 magnet:?xt=urn:btih:B33E3774E6D8E92C90A43746C6EA86820DF74190
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:B33E3774E6D8E92C90A43746C6EA86820DF74190
 ```bash
 magnet:?xt=urn:btih:3CCA1569C1EA7FD2D0FC7638125419AF35A5CE82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Organetto - это шрифт, вдохновлённый надписями н�
 magnet:?xt=urn:btih:14F3073C4E8333EB7C71EE1C220A0FD19A32AACF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:14F3073C4E8333EB7C71EE1C220A0FD19A32AACF
 ```bash
 magnet:?xt=urn:btih:019344C1925412B52DFF145EAAAE101BFEC40EB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ VA - #002 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 magnet:?xt=urn:btih:0C5827717616D60AE4BFD0CA891687C094DB7F62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Nine Sols - это нарисованный от руки 2D экшен-плат
 ```bash
 magnet:?xt=urn:btih:C785BECFCF687CBA30485FB15FC846F32C26E3F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ VA - 80s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:E07D45672BD6CC73C4D1865E2AC7E142BE80D7BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:E07D45672BD6CC73C4D1865E2AC7E142BE80D7BD
 magnet:?xt=urn:btih:67B110B2D13B9970C60C05B25C80BCF7D7E19C29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:67B110B2D13B9970C60C05B25C80BCF7D7E19C29
 ```bash
 magnet:?xt=urn:btih:3399E04CB5F0E657F8E56254D7E8822E848D6053
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:3399E04CB5F0E657F8E56254D7E8822E848D6053
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:3399E04CB5F0E657F8E56254D7E8822E848D6053
 ```bash
 magnet:?xt=urn:btih:406DA0BB981DCD0C60BC6F3589A762EC3D00685C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ Affinity — полностью бесплатный с недавнего вр�
 magnet:?xt=urn:btih:B2E15C05B16C89B5F5F2FCA0BA6CBFB39C68C6E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:B2E15C05B16C89B5F5F2FCA0BA6CBFB39C68C6E2
 ```bash
 magnet:?xt=urn:btih:379F7B5744098650BD8918B5AA17284BB4320D9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:379F7B5744098650BD8918B5AA17284BB4320D9B
 magnet:?xt=urn:btih:4E50A4FF6E0118BD92AA85D075A24C67B91E5D43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ magnet:?xt=urn:btih:4E50A4FF6E0118BD92AA85D075A24C67B91E5D43
 ```bash
 magnet:?xt=urn:btih:DFE20CDDB54D8663E70A24A64E2747069C8D372F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:178745947D03AFC3BB848D50F885FDC55C2D96E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ Dwarf Fortress (2022) [En] (53.02) Repack Necros
 ```bash
 magnet:?xt=urn:btih:9B41F041D268E5AE8EF79252937059D99BF87A6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:9B41F041D268E5AE8EF79252937059D99BF87A6A
 magnet:?xt=urn:btih:6B17F0560A5EEEA2E8B4DDF52A13DC9DD80CCC12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ magnet:?xt=urn:btih:6B17F0560A5EEEA2E8B4DDF52A13DC9DD80CCC12
 ```bash
 magnet:?xt=urn:btih:B9AD6E98CBF143F939225E6D6FCE6E8F327B045D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ Alien Shooter 2 - Легенда это масштабное продолжен�
 magnet:?xt=urn:btih:EA554296A49702D5C8293D00A34BC188EA14FC9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ magnet:?xt=urn:btih:EA554296A49702D5C8293D00A34BC188EA14FC9E
 magnet:?xt=urn:btih:BD56B8FC84ADA34685AA6DDABEA4F8C9B30425DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ YouTube оказался в центре новой дискуссии о гра
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +609,8 @@ VA - Best Russian Echoes of Screamo.vol. 14 (2025) Compilation [MP3|320 Kbps] <A
 magnet:?xt=urn:btih:CDFC5E56497C547F2C4DEA79309EF35486EDEC38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ Dirkschneider & The Old Gang - Babylon (2025) [MP3|320 Kbps] <Heavy Metal>
 magnet:?xt=urn:btih:24255921591A0C2C7659B0E454E311BAB5CC3FBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +663,8 @@ magnet:?xt=urn:btih:24255921591A0C2C7659B0E454E311BAB5CC3FBE
 ```bash
 magnet:?xt=urn:btih:B4D484FF4288ADF2A727E532D8EDBDD3A42DF970
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +691,8 @@ magnet:?xt=urn:btih:B4D484FF4288ADF2A727E532D8EDBDD3A42DF970
 ```bash
 magnet:?xt=urn:btih:BC3E82FCC5131CCF6F12E9FC75610D6E215007D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

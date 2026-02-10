@@ -28,6 +28,8 @@ Europe — шведская рок-группа, созданная в Сток�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ Europe — шведская рок-группа, созданная в Сток�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ Europe — шведская рок-группа, созданная в Сток�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +107,8 @@ Europe — шведская рок-группа, созданная в Сток�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ Sam & Max Complete Pack [Ru/En] (Repack) 2007-2010 | Seraph1
 ```bash
 magnet:?xt=urn:btih:951D87744FFD4781E5268F2BD2F9BE1F4435A4D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:951D87744FFD4781E5268F2BD2F9BE1F4435A4D7
 magnet:?xt=urn:btih:B79D8472E22054205CDA19A8EF7E829D0497025A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:B79D8472E22054205CDA19A8EF7E829D0497025A
 ```bash
 magnet:?xt=urn:btih:8F093FD848AB8C67F8234B577BCAD75BE0D9114E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:8F093FD848AB8C67F8234B577BCAD75BE0D9114E
 magnet:?xt=urn:btih:5A4B608A234DAB609AEEFCE5B1E042493F6FB66A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:5A4B608A234DAB609AEEFCE5B1E042493F6FB66A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ Navicat Premium совмещает в себе функции других пр�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ Navicat Premium совмещает в себе функции других пр�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ AnVir Task Manager - мощный менеджер процессов и про�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ AnVir Task Manager - мощный менеджер процессов и про�
 ```bash
 magnet:?xt=urn:btih:DABA3A54AC5ABFFA175D56F4BAF48BA0FC74342B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +384,8 @@ Chihiro Yamanaka - Reminiscence (2011) [FLAC|Lossless]<Contemporary Jazz, Neo-Bo
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +409,8 @@ MSE Update Utility 1.1 [English]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +437,8 @@ Backup4All Professional - программа для архивирования �
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ Glary Utilities - функциональный набор системных т�
 magnet:?xt=urn:btih:21D775B7E24C87AE685350E5AFC580C8C5FB96BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +541,8 @@ Pitchshifter - Дискография (1991-2006)[6 Альбомов,5 Ep,7 Си
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ Pitchshifter - Дискография (1991-2006)[6 Альбомов,5 Ep,7 Си
 ```bash
 magnet:?xt=urn:btih:1AAB845D629F38DCC7B5C1091C15747DE08F0DD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +598,8 @@ Runaway Phoenix - The E.P. (2012) web / [FLAC|Lossless]<Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +627,8 @@ Runaway Phoenix - The E.P. (2012) web / [FLAC|Lossless]<Rock>
 magnet:?xt=urn:btih:84D5C1E0D606226B8A99B7FEA550D36534B27B92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +652,8 @@ History Channel. Тело Генриха VIII / Inside the Body of... Henry VIII
 ```bash
 magnet:?xt=urn:btih:CAAE7C7F48D90689810067BFE38A967BB07904FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +679,8 @@ magnet:?xt=urn:btih:CAAE7C7F48D90689810067BFE38A967BB07904FB
 magnet:?xt=urn:btih:B786E1E3D26270E6D5B36FBC153DA17A4C39FEDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +704,8 @@ magnet:?xt=urn:btih:B786E1E3D26270E6D5B36FBC153DA17A4C39FEDD
 ```bash
 magnet:?xt=urn:btih:C10A5B8C740856F2F17EB6ACE1E66E65C6BACF0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

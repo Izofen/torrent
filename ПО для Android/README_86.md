@@ -19,6 +19,8 @@ AirBrush: ИИ Фоторедактор v7.20.1 Mod by PieMods [Ru/Multi]
 magnet:?xt=urn:btih:0D728A39ECF094AD5D08D22AE1EA8A6BCAFE5259
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Smart AudioBook Player Pro v11.6.1 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:BBFC5F998A682C5585A141F46D95BA102DB0C228
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Smart AudioBook Player Pro v11.6.1 Mod by Kirlif' [Ru/Multi]
 magnet:?xt=urn:btih:82DC3E3B44DC9B0C58272595D701F505EB3CFCCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Talksy: Навык общения v0.2.1 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D4EC168310AF211528769BAE64B6BDBAB902FE43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Shazam (шазам) распознает любую песню за секунд
 magnet:?xt=urn:btih:0DB5B900856D9DCC1D8E4F7075418D44881BD1D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 ```bash
 magnet:?xt=urn:btih:F838FEDBC3BE758F0AB89A5EB2082661D47C803F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Photo Sherlock v1.131 Mod by Mixroot  [Ru/Multi]
 magnet:?xt=urn:btih:BB8D937888AB9B1740A1DD06DB006F302AA35336
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 ```bash
 magnet:?xt=urn:btih:2896E2EF1BB058EBCE281D49C3F0C4FE1835D18B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ FacePic — приложение AI Face, приложение для легко
 magnet:?xt=urn:btih:28EFF3DD58A2FD68C144D65991CDEC7D24E418E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ AI Photo Editor Pro - Polish v1.693.239 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:08C13BA941789E0552E05608AD9D3A27287CAFEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Smart AudioBook Player Pro v11.6.2 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:0294A94277BB6BE8D31C7AA46E82AE5720D96A5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ ProShot v8.32.3 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B9DB622851B136356EA41405D30D8D6A5C593967
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ ToonApp карикатура фоторедактор лучшее прилож�
 magnet:?xt=urn:btih:1B67FC982B57781CD223FBCE508E1331971F8037
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:1B67FC982B57781CD223FBCE508E1331971F8037
 ```bash
 magnet:?xt=urn:btih:7F0564F5DE92984BCA4CB05D70751812124D3538
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:7F0564F5DE92984BCA4CB05D70751812124D3538
 magnet:?xt=urn:btih:53BC21BEEEF29E9D984D9184098C56F11A93CDE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ magnet:?xt=urn:btih:53BC21BEEEF29E9D984D9184098C56F11A93CDE8
 ```bash
 magnet:?xt=urn:btih:21A7D9CC1C5C016B9171BA4061E390C918C04F4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ SIP клиент для Android. Не теряет связь с серверо�
 magnet:?xt=urn:btih:FA74510FEC81DD607375A9CE74B8E78641932550
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ VIP MP3 Player (ZK.FM Player) v4.1 (96) Mod [Ru]
 ```bash
 magnet:?xt=urn:btih:95D599F59FAF0B2D9AD77908BAE853F225C76557
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ FreeFlix TV Pro v1.0.3 Mod [En]
 magnet:?xt=urn:btih:6DE5B61642CEB26F1491E3EC3824F464EDCF570D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ WordBit v1.3.5 [Ru/En] - Английский язык (на блокировк�
 ```bash
 magnet:?xt=urn:btih:5D996D6ADBC92A717A00A6EE723E1CE24EFB49CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ magnet:?xt=urn:btih:5D996D6ADBC92A717A00A6EE723E1CE24EFB49CE
 magnet:?xt=urn:btih:C38C8F84926110129391CEF9445CDDF71EFA13C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ magnet:?xt=urn:btih:C38C8F84926110129391CEF9445CDDF71EFA13C3
 magnet:?xt=urn:btih:777B779204F06003ED3EAA88C3BE1ABD84E1ACD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ mPro.Скорая помощь v2.2.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:45F50DEF59C778F9E4E53CB48E4CF6C898D318F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ AnTuTu Benchmark 6.3.1 [Rus]
 magnet:?xt=urn:btih:D1EE9C856EB36B3A366AE284A5591544F1844586
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ GSM Spy Finder 16.01 (AdFree) [Ru-Multi]
 magnet:?xt=urn:btih:EDC2127DA87F761BA445D34587E90E4C15EF8365
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ magnet:?xt=urn:btih:EDC2127DA87F761BA445D34587E90E4C15EF8365
 ```bash
 magnet:?xt=urn:btih:5ED999AF52D3BA52CFACF1BEA0BC36424F157B4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

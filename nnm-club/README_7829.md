@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:B295AF35A540EF3174AC81C226521B22F55D3D44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:B295AF35A540EF3174AC81C226521B22F55D3D44
 ```bash
 magnet:?xt=urn:btih:49A08C608B832C93BCAE8903B1EBFC6009A59862
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Primitai - Violence of the Skies (2021) [MP3|320 Kbps] <Heavy Metal>
 magnet:?xt=urn:btih:BA4988F13A18A0D84F3B8F1D18F0575A9818DFD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ CD - 1 - The Masters :
 ```bash
 magnet:?xt=urn:btih:4B98B65F0AF6B338E640616CF276583B77CA4033
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Luger - Revelations of the Sacred Skull (2023) [MP3|320 Kbps] <Doom Metal, Heavy
 magnet:?xt=urn:btih:EF9EEB32233C963686AD9970C50B384BF5069D7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:EF9EEB32233C963686AD9970C50B384BF5069D7A
 ```bash
 magnet:?xt=urn:btih:7D6995D3300D43D8E6C20D1A9775861CBC653521
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ VA - Golden Fingers Vol 2 (The Best Italian Piano Solos Collection) (2015) [MP3|
 magnet:?xt=urn:btih:41ACA5E5E93CCE85C559F7BC12649C569A47B6C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ Cybervoid - Order Through Chaos (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial
 magnet:?xt=urn:btih:6B553E84072B03FA5973D6B490848004F2BF4179
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ MacCleanse 9.0.7 [En]
 ```bash
 magnet:?xt=urn:btih:A4DD94F7F2E7858A697D3B8EB3F25F4BBAD49B02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ The Browning - EoE Remixed (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Syn
 magnet:?xt=urn:btih:469D21F916A73A86B2CA86D6FEEEE402A02F3E54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:469D21F916A73A86B2CA86D6FEEEE402A02F3E54
 magnet:?xt=urn:btih:CD689CABFA856B23F3DD1D6E84F762BEC3DB7E3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ magnet:?xt=urn:btih:CD689CABFA856B23F3DD1D6E84F762BEC3DB7E3E
 ```bash
 magnet:?xt=urn:btih:C00C7978F67D6566E047C9F1B697947C23C3103E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +352,8 @@ Lilies of Megiddo - No Fear of Hell (2018) 2023, 893378 Records DK [FLAC|Lossles
 magnet:?xt=urn:btih:5B5A200FB2454C27528C2E615F7E12A7358DB15A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ ExpressionsinBar - это простое приложение в панели м
 ```bash
 magnet:?xt=urn:btih:DEAEBCCEBB78B08DF71E14BDD7D791F52FE86330
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ MotoGP. Этап 07. Гран-при Германии. Гонка (18.06.2023) W
 magnet:?xt=urn:btih:514ACACCFF0A9D65068F2A5A4B9E3465BE8CB7B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ magnet:?xt=urn:btih:514ACACCFF0A9D65068F2A5A4B9E3465BE8CB7B8
 ```bash
 magnet:?xt=urn:btih:5DA334C7D13100C6E801738754F716F1104CFF83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +457,8 @@ magnet:?xt=urn:btih:5DA334C7D13100C6E801738754F716F1104CFF83
 ```bash
 magnet:?xt=urn:btih:3AFA360AB90DB16389F7456525E729C406EE383C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +487,8 @@ Nazty Habit - Alcopocalypse (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, 
 magnet:?xt=urn:btih:C68566E9CE0E15780D01BCA2CF4E61FEA1B22FFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ RapidWeaver отлично подойдет тем, кто ищет ПО для 
 ```bash
 magnet:?xt=urn:btih:0623D0CF253AB25BA3EC7CFA1E3CE9E4B9A73674
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +543,8 @@ DeVicious - Code Red (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 magnet:?xt=urn:btih:55C02147E7B31B350E61402D73B04F2CCE0DB9E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +569,8 @@ magnet:?xt=urn:btih:55C02147E7B31B350E61402D73B04F2CCE0DB9E3
 magnet:?xt=urn:btih:C81D9AA4491F2AC56174893A6CC109879B596E1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +594,8 @@ magnet:?xt=urn:btih:C81D9AA4491F2AC56174893A6CC109879B596E1C
 ```bash
 magnet:?xt=urn:btih:EB0A8298B0A4C33C559D4BBD3F98BD295034E15F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +624,8 @@ Obsqure - Cloud 9 (2020) [AAC|~303 Kbps] <Psychill, Downtempo, Cinematic Electro
 magnet:?xt=urn:btih:5DC2989DE8EB26B0D7383D4A0909FB07ACD94DFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +653,8 @@ The Kinks - Soap Opera Tour 1975 (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] <Po
 magnet:?xt=urn:btih:5FECF105055F71643BFF869A95EFEFFB938B86AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +678,8 @@ ImageRanger - программа позволит найти все нужные
 ```bash
 magnet:?xt=urn:btih:DF7709863855E96BB96B1FC8EE2BB1F1F0C60D53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -657,6 +707,8 @@ Dave Darroch - Kamikaze (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:B127AD88B506938B4ABCFBFB3BF594F33FF5993A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

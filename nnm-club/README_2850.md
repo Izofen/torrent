@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:14093278C07A8B358744276DB563709C715DE3DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Retro Tape Deck Music Player - Реалистичный mp3 плеер аним�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Bananarama - 15 альбомов + 8 синглов (1983 - 2010) [MP3|320 kbps]
 ```bash
 magnet:?xt=urn:btih:2F66B88E6FF79974C93D8A2AB96A61570763461A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -102,6 +108,8 @@ Aquarium, Da Vinci, Space, Nature и My Pictures
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ Aquarium, Da Vinci, Space, Nature и My Pictures
 ```bash
 magnet:?xt=urn:btih:C22009D6634A294D8CCDA945804986E8BF3335D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -153,6 +163,8 @@ Worms: Reloaded / Worms 2: Armageddon + 7 DLC [Multi5/+] (RePack/1.0.0.475) 2010
 magnet:?xt=urn:btih:5793DB6892F92FA676D86EBCC75383506B3B4085
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:5793DB6892F92FA676D86EBCC75383506B3B4085
 ```bash
 magnet:?xt=urn:btih:6230E5C79F8AC7AA9E8B4CEC8620A5EAA8BBDDA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ magnet:?xt=urn:btih:6230E5C79F8AC7AA9E8B4CEC8620A5EAA8BBDDA4
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:6230E5C79F8AC7AA9E8B4CEC8620A5EAA8BBDDA4
 ```bash
 magnet:?xt=urn:btih:D648E22151A24F724F256168F85B4B03BF87BD7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ magnet:?xt=urn:btih:D648E22151A24F724F256168F85B4B03BF87BD7C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:D648E22151A24F724F256168F85B4B03BF87BD7C
 ```bash
 magnet:?xt=urn:btih:A58C81609577AD68C106F96032DB33E2C9AF5F15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ magnet:?xt=urn:btih:A58C81609577AD68C106F96032DB33E2C9AF5F15
 magnet:?xt=urn:btih:646720B81A5A20FCE904A1DD5CFE7CCA0D4FC532
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:646720B81A5A20FCE904A1DD5CFE7CCA0D4FC532
 magnet:?xt=urn:btih:ADB5FAADD6614BA15E0A6F503C6B2D6E07F28554
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:ADB5FAADD6614BA15E0A6F503C6B2D6E07F28554
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ Heroes of Might and Magic V: Gold Edition / Heroes of Might and Magic V: Зол�
 ```bash
 magnet:?xt=urn:btih:1BC3A1FF7F0A9BC31CD1395065F7E5B93AFB45B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ Windows7 Ultimate AUZsoft RED x64x86 v.8.12. [RUS]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ Counter-Strike: Source сочетает отмеченный наградами 
 ```bash
 magnet:?xt=urn:btih:3265C69431AA5E8AA177386F599DB63B5630064D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +484,8 @@ Backgammon3D по праву считается одной из лучших р�
 magnet:?xt=urn:btih:05E03B0DD0CDAB42BEC6C0F8E9F043565D3AC32A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ magnet:?xt=urn:btih:05E03B0DD0CDAB42BEC6C0F8E9F043565D3AC32A
 ```bash
 magnet:?xt=urn:btih:5AD50B2097214300A96C113E03634476248122EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +541,8 @@ GeoVision DVR & NVR System v8.5.0.0 (Russian) [Русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ GeoVision DVR & NVR System v8.5.0.0 (Russian) [Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +596,8 @@ Ennio Morricone - Live in Venice (2007) Upmix [DTS 5.1|44.1/24 WAVE|tracks] <Ins
 magnet:?xt=urn:btih:45C647A88DE47F74C891643380B423A818D5EA39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +622,8 @@ magnet:?xt=urn:btih:45C647A88DE47F74C891643380B423A818D5EA39
 magnet:?xt=urn:btih:37EBFC60B6536D382B0B07421C7438429FD9ED55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +647,8 @@ Easter Eggztravaganza (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:39DFA079126FCBFB5EF4A09D5283854EA054B650
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +676,8 @@ magnet:?xt=urn:btih:39DFA079126FCBFB5EF4A09D5283854EA054B650
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ magnet:?xt=urn:btih:39DFA079126FCBFB5EF4A09D5283854EA054B650
 ```bash
 magnet:?xt=urn:btih:7EBBA582AE524E4A33642277451E759D76551CDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

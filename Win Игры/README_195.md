@@ -19,6 +19,8 @@ John Wick Hex – нео-нуарное приключение с элемент
 magnet:?xt=urn:btih:3214CC0D8F8F34C0B9FFFE3E8B007775EDD5A752
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ GWENT: Rogue Mage / ГВИНТ: Маг-Отступник (2022) [Ru/Multi] (1.0
 ```bash
 magnet:?xt=urn:btih:1C41EF6EB8CC904E16ABC340615D2EF8749B4878
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Ghostwire: Tokyo (2022) [Ru/Multi] (13890751/dlc) Repack Decepticon [Deluxe Edit
 magnet:?xt=urn:btih:7E54E3D28DF93ED430DAAB7E9BE7E14DB742FFF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Purpose 1951 переносит вас в мир отставного врача
 ```bash
 magnet:?xt=urn:btih:13E36B05C9245E25A06167C7A62B31BEAE5AD338
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Seed of the Dead: Sweet Home переносит геймеров в сеттин
 magnet:?xt=urn:btih:75022139D56C23C477A820EFFA68BAF6AD8535D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ DYSCHRONIA: Chronos Alternate (2024) [Multi] (1.0) Repack FitGirl [Dual Edition]
 ```bash
 magnet:?xt=urn:btih:A535CDEBBD2822E9C90F1DD785A406684BE57BB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ One Last Dinner ставит вас на место знаменитого де�
 magnet:?xt=urn:btih:FA732726906CC865C4A540575F9E78414BEA7EA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Yet Another Fantasy Title (YAFT) - это изометрический роле�
 ```bash
 magnet:?xt=urn:btih:AE5FBD4AAAD7FD088EDEA4751616E293DAB99CAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Die Again – инди-экшен, использующий несколько �
 magnet:?xt=urn:btih:01C9B506C8FAE40B36751FE585BD5851BB6DD44C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Jupiter Hell (2021) [En] (1.8h) License GOG
 ```bash
 magnet:?xt=urn:btih:178376877A3498A582A21A70A8117AF81BD1AF2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Knight Cats 3: Whisper of the Universe / Коты-рыцари 3: Шепот В�
 magnet:?xt=urn:btih:3BCE45F09BA42DCD09800D3EC7B13E03D8D9171F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Sheba: A New Dawn повествует о мире, что переносит в
 ```bash
 magnet:?xt=urn:btih:8F05A048DEC954FE7ED5A8B2A293F83614D68E1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Five Nights at Freddy's: Security Breach - хоррор-выживастик, г
 magnet:?xt=urn:btih:1D620FC440409E13CCE7C0132ED00E9D9644E9CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Shanghai Summer отправляет игроков в путешествие п
 ```bash
 magnet:?xt=urn:btih:C1D97E225CD0B836C6217E135F94E62F3C905276
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Harold Halibut - созданная вручную нарративная игр
 magnet:?xt=urn:btih:DDF0892DF3AD34E7AD90570F84242CB1FE3852CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ INSPIRE - стильный RPG-шутер с видом сверху, событ
 ```bash
 magnet:?xt=urn:btih:3FC7687F8C2C5A082934ED0ECC1DB91515900EC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Turnip Boy Robs a Bank - это забавный двухмерный прикл
 magnet:?xt=urn:btih:7DCEEF253D64E1687D2ECB74BAE0A6E63CE2E1D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ otus Lantern: Rescue Mother - это игра-рогалик с видом св�
 ```bash
 magnet:?xt=urn:btih:51388FB4E3A02741D6401571E9DD88535D6636E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Acolyte of the Altar - это адвенчура в жанре roguelike deckbui
 magnet:?xt=urn:btih:A7CA43EC1CEC9F09A21FE3E6272B5951AA7793E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ My Life: Farm Vet ставит вас на место фермерского в�
 ```bash
 magnet:?xt=urn:btih:53F1ADB27768F3AC8613AED01DED8947B1804F1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Death Noodle Delivery (2024) [Ru/Multi] (3.2.8) Repack FitGirl
 magnet:?xt=urn:btih:F1EEBD668BDFDBDAA5E06A992E3016A3A275EDD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Anomaly Loop бросает игроков в ситуацию, когда по�
 ```bash
 magnet:?xt=urn:btih:E0AD180DF1CF33F389B701E2879C532F57342976
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Pathfinder: Gallowspire Survivors, созданная по мотивам поп
 magnet:?xt=urn:btih:3A21DF9B461D6BE7CF6B502AD94C732055B3762F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Sons of Valhalla - приключенческий сайд-скроллер с �
 ```bash
 magnet:?xt=urn:btih:6230695E71D337DED32E6155851784C2252D06D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ BMX Streets - это увлекательный симулятор фриста�
 magnet:?xt=urn:btih:8EE537EB39104A856954D3B486BD77FB48D4719E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Yet Another Fantasy Title (YAFT) - это изометрический роле�
 ```bash
 magnet:?xt=urn:btih:F1039FBFB00E4C84868F84E54DC4BEB57A4E53EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

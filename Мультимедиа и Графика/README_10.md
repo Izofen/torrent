@@ -19,6 +19,8 @@ Skylum Aperty 1.4.0.1260 RePack (& Portable) by elchupacabra [Multi]
 magnet:?xt=urn:btih:F795015EBD0CB5F89CFE7540E2DDA3D3579E6A51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Sonible smart:reverb 2 1.0.1 VST, VST 3, AAX (x64) RePack by R2R [En]
 ```bash
 magnet:?xt=urn:btih:C9796AACDF073CC27DDB1D853255644E2F90FB1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Sonible smart:deess 1.0.2 VST, VST 3, AAX (x64) RePack by R2R [En]
 magnet:?xt=urn:btih:17EC4E33246835AE481BCDAE8A9C918F7ED3FBE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Sonible smart:EQ 4 - это интеллектуальный эквалайзе�
 ```bash
 magnet:?xt=urn:btih:F336C79746E313F7D42B5968EB0479844403D42C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ CHEat code — это переосмысленный процессор муль
 magnet:?xt=urn:btih:095A1A9EE4B405DDA62C72AD543B9FF8D527860B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Motion: Fractal обеспечивает бесконечное движение
 ```bash
 magnet:?xt=urn:btih:BF0FCC247040D8891EA554AB27EDADE735827D97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ TheWaveWarden - Odin 2 2.4.0 VSTi 3, CLAP (x64) [En]
 magnet:?xt=urn:btih:2B0237105B54A48B27DC8E4977E5F15847CA2D0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ CyberLink AudioDirector Ultra – мощный инструментарий дл
 magnet:?xt=urn:btih:958BDBD634D39408891CCD0A2618DC5C0FCC7EAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ PowerDirector - самое быстрое и передовое программ
 ```bash
 magnet:?xt=urn:btih:0CD2F4F8B6F77FBA52842E02E2131556D96D1096
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Chord Generator — это MIDI-инструмент, который генер�
 magnet:?xt=urn:btih:F567F69063BE150A7C89B1D85913E3CD77D3FA27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Harmony Bloom - это MIDI -генератор, объединяющий пол
 ```bash
 magnet:?xt=urn:btih:D64E50E7C99DC74CA919737149FF115A9368F4AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ PowerDirector - самое быстрое и передовое программ
 magnet:?xt=urn:btih:D535F3FC0B8866223D684907AD6F763B567F6FA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Wave Observer Pro — это осциллограф и плагин монито
 ```bash
 magnet:?xt=urn:btih:E13F2BB9C690081DA755527FFA16ABA8DA7E56B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ DaVinci Resolve — единственное в мире решение для �
 magnet:?xt=urn:btih:6A982B6F68DB56BE3123BAA3384FA796796B7B8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Avidemux - небольшой, простой редактор для работ
 magnet:?xt=urn:btih:6B519B4BD08AC94B974E4AFA65D63D4A2C1FDC2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ KORG - multi/poly native 1.0.5 Standalone, VSTi 3, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:5664D35AD083A6E948CCD0958C0321E590F5D4CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ Korg выпустила программную версию синтезатор
 magnet:?xt=urn:btih:23A1C8FB1869060CDEC182D563400B0C6E54F71D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Modwave, выпущенный в 2021 году, основан на наслед
 ```bash
 magnet:?xt=urn:btih:1C7093969603EED450597AB31E8F11BA82DB8779
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:1C7093969603EED450597AB31E8F11BA82DB8779
 magnet:?xt=urn:btih:F864CA08BFAC651E1642E4CBF9F34966DE19A005
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ GIMP — это редактор, позволяющий работать со �
 magnet:?xt=urn:btih:1E7786FA91D68474D9F54134703355853965FF9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Hybrid - это синтез следующего поколения. Этот �
 ```bash
 magnet:?xt=urn:btih:2FBC177626D7861017FE0D9E6A8F514BDC662123
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ Lush 2 по-прежнему является 8-слойным синтезат�
 magnet:?xt=urn:btih:3750BB1F1AD7848E8C4443ACBCAC08F448EA11A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ OB-Xd — это классический синтезатор с неподвл
 magnet:?xt=urn:btih:F69C928B29DFB6FB43C616DB89206F916EA1E7AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ Vallhund обеспечивает точный и независимый кон�
 ```bash
 magnet:?xt=urn:btih:0545CE7A1CEB291DD72C7A1A99E78DFBC5C76C72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ Pubbas - Sheepadoodle Phaser 1.0.2 VST 3 (x64) [En]
 magnet:?xt=urn:btih:411743F05DEE3A4034C85B3CB3AC6D116C43EC95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ ON1 Photo RAW MAX 2025 — лучший редактор фотографий в
 ```bash
 magnet:?xt=urn:btih:C9F823220A297FAAE8949F316D4D91D38FA91D97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

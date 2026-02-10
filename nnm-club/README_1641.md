@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:7C6E68F4F4053C74280F9010DE74481632A4CDAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:7C6E68F4F4053C74280F9010DE74481632A4CDAB
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Dawn of the Monsters (2022) [Multi] (1.03/dlc) License GOG
 magnet:?xt=urn:btih:A93345BA4520ACF86E80BCA95DD7DB2F522935A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:A93345BA4520ACF86E80BCA95DD7DB2F522935A2
 ```bash
 magnet:?xt=urn:btih:938497C4B17457A92CD3BFC1986E217A1A250C8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:938497C4B17457A92CD3BFC1986E217A1A250C8B
 magnet:?xt=urn:btih:DF7829B14D7F46A77452A74F176081D4C2A63C82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:DF7829B14D7F46A77452A74F176081D4C2A63C82
 ```bash
 magnet:?xt=urn:btih:B27731E0CC3D80169E2475B9BC5535FAEB5B8FBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:B27731E0CC3D80169E2475B9BC5535FAEB5B8FBB
 magnet:?xt=urn:btih:C4661965F2612DBDC943CD36E75C3FF9BD4F7334
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:C4661965F2612DBDC943CD36E75C3FF9BD4F7334
 ```bash
 magnet:?xt=urn:btih:0ADEB864CBDCDA6B5385A6D6A1DD6CBE4BDAC432
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:0ADEB864CBDCDA6B5385A6D6A1DD6CBE4BDAC432
 magnet:?xt=urn:btih:B9D5A77A7A09425F42A26E5F032D566A4418AD80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:B9D5A77A7A09425F42A26E5F032D566A4418AD80
 magnet:?xt=urn:btih:2DDB272E4D240FE894C1CEDEC21FEA4B9E2E70EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:2DDB272E4D240FE894C1CEDEC21FEA4B9E2E70EB
 ```bash
 magnet:?xt=urn:btih:CC67EA92A9C82537E8A3864C381F68E1323BAA47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:CC67EA92A9C82537E8A3864C381F68E1323BAA47
 magnet:?xt=urn:btih:61C66369024EEA14495C1682B6B40043E65BA682
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:61C66369024EEA14495C1682B6B40043E65BA682
 magnet:?xt=urn:btih:0C42D0384666FD74D7D5AE45C7888B0477CE8CF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:0C42D0384666FD74D7D5AE45C7888B0477CE8CF7
 ```bash
 magnet:?xt=urn:btih:CD7D21C862E6FFC0B2F48B1135F5AB57CA4C9C56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:CD7D21C862E6FFC0B2F48B1135F5AB57CA4C9C56
 magnet:?xt=urn:btih:6E8626E00AAF353E18639FF95002E091A4A371DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Kingdom Rush Vengeance – это стратегия в реальном вре�
 ```bash
 magnet:?xt=urn:btih:95B14FDCE63766C419A76A2231B42D7E953C7E97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:95B14FDCE63766C419A76A2231B42D7E953C7E97
 magnet:?xt=urn:btih:01222E06AC136D049DB7A43895CD0AF6DFC67902
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:01222E06AC136D049DB7A43895CD0AF6DFC67902
 ```bash
 magnet:?xt=urn:btih:E9F5B8E65714C6D553C23B66A1848128B7B5A077
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ magnet:?xt=urn:btih:E9F5B8E65714C6D553C23B66A1848128B7B5A077
 magnet:?xt=urn:btih:0A4EBED07C750D845C54A35180B01AE88662AF4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:0A4EBED07C750D845C54A35180B01AE88662AF4B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:0A4EBED07C750D845C54A35180B01AE88662AF4B
 magnet:?xt=urn:btih:A2B399B9FE8DB15A1D9D465F6B1C6644792629C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:A2B399B9FE8DB15A1D9D465F6B1C6644792629C1
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:A2B399B9FE8DB15A1D9D465F6B1C6644792629C1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ EA сообщила, что над следующей игрой серии The 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ EA сообщила, что над следующей игрой серии The 
 magnet:?xt=urn:btih:10376F1ED2D64366349D95B674BDDFC997BD22C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:10376F1ED2D64366349D95B674BDDFC997BD22C2
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

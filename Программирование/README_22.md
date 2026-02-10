@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:5F3D84F8C4D26E225035BDFBC957C2C45675A466
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:5F3D84F8C4D26E225035BDFBC957C2C45675A466
 magnet:?xt=urn:btih:ED98E3457AB75C23FF19B8D042AA3B12F2A981A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:ED98E3457AB75C23FF19B8D042AA3B12F2A981A1
 ```bash
 magnet:?xt=urn:btih:F7D0A1EC40F5358A09B81EEADE2BE19299BF1FB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:F7D0A1EC40F5358A09B81EEADE2BE19299BF1FB6
 magnet:?xt=urn:btih:3DE35924F8D88CE3343BDDFDE9CE1257B9E86FA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:3DE35924F8D88CE3343BDDFDE9CE1257B9E86FA7
 magnet:?xt=urn:btih:A76C19AC5D109551CB00921BD795D0FE29F29B7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:A76C19AC5D109551CB00921BD795D0FE29F29B7E
 ```bash
 magnet:?xt=urn:btih:EBB3408E6AEFAFE42AB6DCD1FE141BBBBE432BDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:EBB3408E6AEFAFE42AB6DCD1FE141BBBBE432BDE
 magnet:?xt=urn:btih:42747F759BF2B75FFDD48415D788CFD5070C473E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:42747F759BF2B75FFDD48415D788CFD5070C473E
 ```bash
 magnet:?xt=urn:btih:70D5E59802DEA6BE22CEFAD727614427E08F6C51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:70D5E59802DEA6BE22CEFAD727614427E08F6C51
 magnet:?xt=urn:btih:D8760A69F9F78107993D1E8C5D4C60A9C54652A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:D8760A69F9F78107993D1E8C5D4C60A9C54652A9
 magnet:?xt=urn:btih:22E6ED2B749BE701DE4BAF2D146859C3CE32E53A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:22E6ED2B749BE701DE4BAF2D146859C3CE32E53A
 ```bash
 magnet:?xt=urn:btih:3222908CDABDF776737E17C8CA82B34E60DD020B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Krasimir Tsonev | 50 Tips on JavaScript: 50 of the most interesting features, co
 magnet:?xt=urn:btih:37348BE5EDE5107DA9525EC6C6B088EB7A004C1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:37348BE5EDE5107DA9525EC6C6B088EB7A004C1F
 ```bash
 magnet:?xt=urn:btih:053404EEEB857A347B153BD8CD32FA41FB57CFEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:053404EEEB857A347B153BD8CD32FA41FB57CFEC
 magnet:?xt=urn:btih:C0063FA807AEAA1BCE0E0905C7A1D4A48C03E584
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:C0063FA807AEAA1BCE0E0905C7A1D4A48C03E584
 ```bash
 magnet:?xt=urn:btih:D3ABEB3D4ECE008668A33D393B41416F8BBC8431
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:D3ABEB3D4ECE008668A33D393B41416F8BBC8431
 magnet:?xt=urn:btih:6BF54D6A6BF999448D6CC39AD6223F111332239C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:6BF54D6A6BF999448D6CC39AD6223F111332239C
 ```bash
 magnet:?xt=urn:btih:AF4D97314775E24E8A85B52A1EF2E842F10E8148
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:AF4D97314775E24E8A85B52A1EF2E842F10E8148
 magnet:?xt=urn:btih:F6845E82ACDFDED5D8DA1F9A9002DA1151B4E451
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:F6845E82ACDFDED5D8DA1F9A9002DA1151B4E451
 ```bash
 magnet:?xt=urn:btih:D00091E8491DC3E14B864C0A92670BEEB6ECACF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ David Matuszek | Quick Functional Programming (2023) [PDF][EN]
 magnet:?xt=urn:btih:E8881C717DF05ED96538783642D1ED67F7E74457
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ Noemí Ferrera | How to Test a Time Machine (2023) [PDF][EN]
 magnet:?xt=urn:btih:E265AD63C2A72217E677168B8DC9EB02426270BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:E265AD63C2A72217E677168B8DC9EB02426270BB
 ```bash
 magnet:?xt=urn:btih:FA8A283A875BB442D3F44794C4B8336EE9970C79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:FA8A283A875BB442D3F44794C4B8336EE9970C79
 magnet:?xt=urn:btih:AD9C4F4A4107D610DBC778B82F4E354FB9DC1FD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ Jeanine Meye | The Essential Guide to HTML5: Using Games to Learn HTML5 and Java
 ```bash
 magnet:?xt=urn:btih:00AE46B8A65A4ACA10A44BA71E4D277F861DB924
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ Daniel Ilett | Building Quality Shaders for Unity: Using Shader Graphs and HLSL 
 magnet:?xt=urn:btih:1AC71EEC1FE390A8E229D2EB5062A7A9B902EC35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ magnet:?xt=urn:btih:1AC71EEC1FE390A8E229D2EB5062A7A9B902EC35
 ```bash
 magnet:?xt=urn:btih:08EB2A1C4CA7088DEF40DC408CD0554E99818CDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

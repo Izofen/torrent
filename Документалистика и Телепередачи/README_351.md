@@ -1,3 +1,29 @@
+###  Публикация: 1058460   (468556) от 01.10.2016
+
+Голос. Специальный выпуск (2016.10.01) SATRip (сезон 5, выпуск 5)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468556.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Первый канал" объявляет о премьере нового сезона музыкального проекта "Голос". Из тысяч претендентов, приславших минувшим летом свои заявки на участие, отобраны полторы сотни тех, кто поднимется на ставшую уже знаменитой на всю страну сцену во время "слепых прослушиваний" в надежде покорить слух требовательных наставников. Зрителей (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТВ-Шоу, развлекательныйСубтитры: ОтсутствуютПродолжительность: ~ 02:13:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43C7C432EE402D8B2124C31BD9C19431E42B5E76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1058522   (468560) от 01.10.2016
 
 Битва экстрасенсов (2016.10.01) DVB (сезон 17, выпуск 5)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:F5CD915739101D44251C569D86772BCD714EEBDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:F5CD915739101D44251C569D86772BCD714EEBDC
 magnet:?xt=urn:btih:25DEDF6AAF2DD5F3937A1A865742E0129F9943D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:25DEDF6AAF2DD5F3937A1A865742E0129F9943D0
 magnet:?xt=urn:btih:C2D32E01920E855349B2E7E76338B4C3351CA85D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:C2D32E01920E855349B2E7E76338B4C3351CA85D
 ```bash
 magnet:?xt=urn:btih:12AA4713BBE7D88DC7B5EC15EA95AAC2FB6A38F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:12AA4713BBE7D88DC7B5EC15EA95AAC2FB6A38F5
 magnet:?xt=urn:btih:A11ABC95BD6E05A909101B707A96FA07DC5B09CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:A11ABC95BD6E05A909101B707A96FA07DC5B09CC
 ```bash
 magnet:?xt=urn:btih:8AB62207C40C6C27F501E47BA925EAC522D2C106
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:8AB62207C40C6C27F501E47BA925EAC522D2C106
 magnet:?xt=urn:btih:D7B9EA717F09FB576A1C94ABAA24E1D5D74579E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ BBC: Путешествие в Гайану / Expedition Guyana (2008) HDTVRip (
 ```bash
 magnet:?xt=urn:btih:0BF7511205504AB1BD39ACBAF1C9E350A32A5921
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:0BF7511205504AB1BD39ACBAF1C9E350A32A5921
 magnet:?xt=urn:btih:932F736672EF8A2D81C9BBFCDC581B6D0E0A73E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:932F736672EF8A2D81C9BBFCDC581B6D0E0A73E6
 ```bash
 magnet:?xt=urn:btih:CE5D42ACBA1CEBFEC31345709B7D991E0324B1A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:CE5D42ACBA1CEBFEC31345709B7D991E0324B1A5
 magnet:?xt=urn:btih:492AE70EC728362860D1082B9C8812BDA0B12FCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:492AE70EC728362860D1082B9C8812BDA0B12FCF
 ```bash
 magnet:?xt=urn:btih:013D54CD07D2C46C562761B36267E2852FA53806
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:013D54CD07D2C46C562761B36267E2852FA53806
 magnet:?xt=urn:btih:E95F5F0014B41A11E4B764AFBD908352F1DFDA3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:E95F5F0014B41A11E4B764AFBD908352F1DFDA3E
 ```bash
 magnet:?xt=urn:btih:67347B129152ECE63CD8C0F0DC62455CD1CEDCCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:67347B129152ECE63CD8C0F0DC62455CD1CEDCCD
 magnet:?xt=urn:btih:05843FACEE3EC3BB33B9F5EA0BAA0F6C1383345B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:05843FACEE3EC3BB33B9F5EA0BAA0F6C1383345B
 ```bash
 magnet:?xt=urn:btih:7406F99454A513C5B134613D4DB55E9031C70448
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:7406F99454A513C5B134613D4DB55E9031C70448
 magnet:?xt=urn:btih:9EF14542FB88647E455B2AC30BBEAB7790CCE1F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +487,8 @@ magnet:?xt=urn:btih:9EF14542FB88647E455B2AC30BBEAB7790CCE1F3
 ```bash
 magnet:?xt=urn:btih:F23C874ACB64B626DD130AF3A98BF292B572214C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:F23C874ACB64B626DD130AF3A98BF292B572214C
 magnet:?xt=urn:btih:EB01A2F22219B5556053143647C876D4979CED8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +539,8 @@ magnet:?xt=urn:btih:EB01A2F22219B5556053143647C876D4979CED8D
 ```bash
 magnet:?xt=urn:btih:B896D9D6995576DEDD185EC6ABAF8EB2BA4A9DF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +567,8 @@ magnet:?xt=urn:btih:B896D9D6995576DEDD185EC6ABAF8EB2BA4A9DF0
 magnet:?xt=urn:btih:A98D1300158BF62A4A5C83C3D147745776B91E1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +592,8 @@ magnet:?xt=urn:btih:A98D1300158BF62A4A5C83C3D147745776B91E1E
 ```bash
 magnet:?xt=urn:btih:3F126022EAE83FB1CE210E2B9DC342EA87EC0F89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +619,8 @@ magnet:?xt=urn:btih:3F126022EAE83FB1CE210E2B9DC342EA87EC0F89
 magnet:?xt=urn:btih:8E0C85691B303465508A640867EB8F09C2F2690D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +644,8 @@ magnet:?xt=urn:btih:8E0C85691B303465508A640867EB8F09C2F2690D
 ```bash
 magnet:?xt=urn:btih:897D69C70980470710812C7FF10027C5608DFD9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,29 +671,7 @@ magnet:?xt=urn:btih:897D69C70980470710812C7FF10027C5608DFD9D
 magnet:?xt=urn:btih:AAB163E8A046560153817A050DD2AA45923514C4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940272   (469334) от 24.09.2015
-
-В теме. США и КНР (2015) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469334.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Москве следят за исторической встречей в США. В страну с визитом прибыл лидер КНР Си Цзиньпин. Поездка направлена на укрепление доверия и сотрудничества между крупнейшими экономиками мираТелекомпания: Москва ДовериеЖанр: ДокументальныйПродолжительность: 00:28:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A61CD3627D574BDB5F936CFA3F253072ECECC723
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

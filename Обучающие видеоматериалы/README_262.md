@@ -20,6 +20,8 @@ Udemy, Laurence Svekis | Google Apps Script Complete Course New IDE 100+ Example
 magnet:?xt=urn:btih:9EA8670FD478E495358A188EB7CD9D40BE01887A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Hypnosis Training Academy, Igor Ledochowski | Разговорный гипно�
 magnet:?xt=urn:btih:7D8D1832D31223313E1CD993F536EDAB1DC5E655
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Just launched with all modern best practices for working with TensorFlow and pas
 ```bash
 magnet:?xt=urn:btih:D7EA203E70A54D9C6DEACF0555B866D29429157E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Rebrain, Fevlake, Дмитрий Гордеев и др. | Golang-разрабо
 magnet:?xt=urn:btih:3CD1959C355809D32E07DB3B41818F244A1DC0DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ Bistro English, Оксана Долинка | Бизнес английский 
 magnet:?xt=urn:btih:607FB7D81356756DB3AC1D5C3C1CE94CD698C11C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:607FB7D81356756DB3AC1D5C3C1CE94CD698C11C
 magnet:?xt=urn:btih:BD42987F74B04995C3E96F4C49D73DCCD2EA3D2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Genius Courses, Александр Сокирка | Разработка Пла�
 ```bash
 magnet:?xt=urn:btih:375D6E6FBA1608AA18E5FF761DE0C37F00E7948A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ Profit, Степанцев Альберт |  PHP Parallel - новое расш�
 magnet:?xt=urn:btih:D6E0528DE3A1EE6380D0F48DFE6CA81641651FA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ React и Go - это что-то вроде союза, заключенного
 ```bash
 magnet:?xt=urn:btih:B380EF0485ED3E9DD9330A7F17366C3F06510A32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ Udemy, Angular University | Angular Core Deep Dive (with FREE E-Book) (2021) PCR
 magnet:?xt=urn:btih:2A6062A67636B3E9E139A0ECCEB523AB4CDAF847
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ VMWare - программное обеспечение виртуализаци�
 ```bash
 magnet:?xt=urn:btih:CD489FF5E6BAC6C38CC5D5F7CEEE51480C8394EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ Udemy, Alexander Hagmann | Complete 2-in-1 Python for Business and Finance Bootc
 magnet:?xt=urn:btih:934626AD49C7839A7104AC1F371E832C5D6DC9BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ Gatsby JS использует React JS и GraphQL для создания и п
 magnet:?xt=urn:btih:41F4C98712CF65503B391522DC55C76AD7BF80B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ Udemy, Elshad Karimov | Java Data Structures and Algorithms Masterclass (2021) P
 ```bash
 magnet:?xt=urn:btih:C9CF98B57878BB8E418BB08F3CB06767DAFE9D8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ SVS, Jake Parker | Drawing Animals: Mammal Edition (2016) PCRec [En, Ru]
 magnet:?xt=urn:btih:656C3B4282D12D64B5CE44A4B4D2E0F746A98FE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ Gumroad, Lu Dongjun | Jungle Study (2015) PCRec [En, Ru]
 magnet:?xt=urn:btih:C9FA031AD5D455F1F7E24BE8663A28CB4F65DBD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ Gumroad, Lu Dongjun | Metal Study (2016) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:A2EB3E485D6CA176E5C47BD17810C11B0F90237C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ SVS, Jake Parker | Creative Environment Design (2015) PCRec
 magnet:?xt=urn:btih:1FA8570B7D5A61B04C4D52223829CCE5A520CFEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ Gumroad, Lu Dongjun | Desert Study (2016) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:5D5F389665E6F797CAA93C24BD592E67A81051E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ SVS, Will Terry | Choosing colors for storytelling (2017) PCRec
 magnet:?xt=urn:btih:ED8F5BCC8CD3B62FB2AF998D49265C6A55FB3029
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ Gumroad, Lu Dongjun | Jurassic Study (2016) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:B0347D90D146EBFBAD5C23AE237FC1EA021BC180
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +590,8 @@ Codestars by Rob Percival, Atil Samancioglu
 magnet:?xt=urn:btih:E1FB2E65973887499FF9CAEBF1AA42EB291E3DDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ Gumroad, Lu Dongjun | Freezing study (2016) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:A3FFF56E7CCE1FC59408E3743D72ED595284D028
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +642,8 @@ Gumroad, Lu Dongjun | Lava Study (2016) PCRec [En, Ru]
 magnet:?xt=urn:btih:EF69DDEF4EF76CD7318BFE67727C803F2543956F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +668,8 @@ Gumroad, Lu Dongjun | Bug Study (2015) PCRec [En, Ru]
 magnet:?xt=urn:btih:8578B9E016FF9B3D90750CDE259C31310B8FB04A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ Gumroad, Lu Dongjun | Gold Study (2016) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:92E497A150DF3DDA4963B1CF4B252649D96025F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

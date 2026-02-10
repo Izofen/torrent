@@ -19,6 +19,8 @@ Fort Solis - сюжетный триллер от третьего лица, р�
 magnet:?xt=urn:btih:723D93BCD0C55E2A19C07248FD771525506A34B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Through the Darkest of Times (2020) [Ru/Multi] (1.04.03.1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:6D096C5C4DDCED78E2FA538520D17D98D60254D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Queen's Wish: The Conqueror - ролевая игра, выполненная в
 magnet:?xt=urn:btih:9ED4950EC8F26C6B63B48FC6A0A32003B83AA51C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Undead Wilderness: выживите в неумолимых джунглях, р
 ```bash
 magnet:?xt=urn:btih:485D47CF911CD452DDFD1907C2A9E95D4B0F7022
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Grim Guardians: Demon Purge (2023) [Multi] (1.0) Scene TiNYiSO
 magnet:?xt=urn:btih:EC7120948EB14037DB14B22050314D628AB50068
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Remorse: The List представляет собой мрачное прикл�
 ```bash
 magnet:?xt=urn:btih:263FE8C8B76D6A58A1A3B9AEF59C73A7AB1B379A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ TROUBLESHOOTER: Abandoned Children — это первый сезон пошаг
 magnet:?xt=urn:btih:58144E7313C0E9B178A172E4F3E4D7C54701CC21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Sherlock Holmes and The Hound of the Baskervilles / Шерлок Холмс и �
 ```bash
 magnet:?xt=urn:btih:95D3B8DEB7B3A7C57E01199481B35038EC02E1D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Primitive Hearts (2023) [Multi] (v1/dlc) License GOG [18+]
 magnet:?xt=urn:btih:B7B0BA3DD2E326CC0F23C0E6D17DB6BA82F04278
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Void Scrappers расскажет об извечном противостоян
 ```bash
 magnet:?xt=urn:btih:3380D8B538A0123A0D1A905078EC6D7C8C265090
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Outer Worlds 2 - долгожданное продолжение титул�
 magnet:?xt=urn:btih:8D6F927161274B2568552B3FB836EB1ABE8A8DFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Terminus: Zombie Survivors - пошаговая игра на выживание
 ```bash
 magnet:?xt=urn:btih:0348FA4CBDD7506D014C93460DCA3065736FEF78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ GODBREAKERS (2025) [Ru/Multi] (Build 20302905/dlc) Repack Let'sРlay [Juice Edit
 magnet:?xt=urn:btih:2E441E787BD42C3B6E6C740B1C32235596D3A095
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Midnight Scenes: The Highway - поинт-н-клик хоррор-жанре, �
 ```bash
 magnet:?xt=urn:btih:95B8DC53F2E958CB9B3B5D9B78AA10B83BC281C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Hordelord - это адреналиновый аренный шутер с уп�
 magnet:?xt=urn:btih:F89742F56477661991FD1369BF695745E422F979
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Prototype 2 продолжение бестселлера с открытым м
 ```bash
 magnet:?xt=urn:btih:57BD6099FC5EE312BE8BDB13925DD6043AD61C4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Lost Eidolons: Veil of the Witch (2024) [Ru/Multi] (1.0.6/dlc) Repack FitGirl
 magnet:?xt=urn:btih:53A88350711F4F1A33C1030418129879F399CD1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Mushroom Hunter World (2025) [Ru/Multi] (1.0.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:DE514534891E476656F19E005694B3DF4A25E7BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ EMOTIONLESS: The Last Ticket - психологический хоррор от 
 magnet:?xt=urn:btih:6B745243582BD9D71369CDB91027B155FC985CDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ EMOTIONLESS: The Last Ticket - психологический хоррор от 
 ```bash
 magnet:?xt=urn:btih:0DA46D97636B3B506E5320C6FA71A83A8282B152
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ The Crew 2 (2018) [Ru/Multi] (4060652/dlc) Repack FitGirl [Gold Edition]
 magnet:?xt=urn:btih:7B107EF2D0E05CC1E9FE21F1A9410C24D903F110
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ One Hand Clapping – это двухмерный платформер, кото
 ```bash
 magnet:?xt=urn:btih:CA0CE135618D78551489D07DAF1E72336DC46513
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Jenny LeClue - это увлекательный приключенческий 
 magnet:?xt=urn:btih:076E1C71A2123DA22E0E630A43930910E245F6F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Truberbrook / Trüberbrook: A Nerd Saves the World (2019) [Ru/Multi] (1.6-fix) L
 ```bash
 magnet:?xt=urn:btih:163363C20EFA22622CB94B141D426B901178CF02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Labyrinthine - кооперативная хоррор игра, которая 
 magnet:?xt=urn:btih:EC684EECD2CF30F242858785E3E5BE92290B0CBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Onirism (2025) [Ru/Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:7FF3C70B810070C8E962A47C0313BB4415FB8D38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

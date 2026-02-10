@@ -1,3 +1,30 @@
+###  Публикация: 1387025   (792579) от 31.05.2020
+
+Первая передача на НТВ. Автомобильная передача (31.05.2020) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мелкое ДТП и съезд на обочину, а также — трюки и «крыша» автостопщицы на АЗС.
+«Первая передача» — это познавательный проект про автомобилистов и для автомобилистов — для тех, что хочет из простого автолюбителя стать автопрофессионалом!Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:26:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08B34F9B5D87966086D3F810DB55B6EDC23EFB0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201268   (792663) от 24.01.2018
 
 Дэвид Аттенборо. Курьезы природного мира (Загадки природы) / David Attenborough's. Natural Curiosities (2014-2015) HDTVRip [H.264/720p-LQ] (Сезон 2, 3, серия 16 из 16)
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:29C5228E638286BA5D0B4488D0234B769884F701
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:29C5228E638286BA5D0B4488D0234B769884F701
 magnet:?xt=urn:btih:845568E4D0E5AE6854364DAF5CF04997662FD731
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +97,8 @@ magnet:?xt=urn:btih:845568E4D0E5AE6854364DAF5CF04997662FD731
 ```bash
 magnet:?xt=urn:btih:FFBCB0AB8342CDC58A8A0D1639764E1BCF6F3B98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +124,8 @@ magnet:?xt=urn:btih:FFBCB0AB8342CDC58A8A0D1639764E1BCF6F3B98
 magnet:?xt=urn:btih:D8EF6CE6EE2C5C5B913FE029CEA70671EB83B4C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +149,8 @@ magnet:?xt=urn:btih:D8EF6CE6EE2C5C5B913FE029CEA70671EB83B4C3
 ```bash
 magnet:?xt=urn:btih:B2FBDF0033B7B0596E4663F4E306DAF10ED292B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +176,8 @@ magnet:?xt=urn:btih:B2FBDF0033B7B0596E4663F4E306DAF10ED292B9
 magnet:?xt=urn:btih:AAF3F47D4BD0E960CE787C84CE0BD19BF7F0F9FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +202,8 @@ magnet:?xt=urn:btih:AAF3F47D4BD0E960CE787C84CE0BD19BF7F0F9FB
 magnet:?xt=urn:btih:C177745A1BA6D143E36EF4E3E942C54D5534E705
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +227,8 @@ magnet:?xt=urn:btih:C177745A1BA6D143E36EF4E3E942C54D5534E705
 ```bash
 magnet:?xt=urn:btih:A8CBF25E77D002AD4B2FEBFC68AF630EC98C3A4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +257,8 @@ magnet:?xt=urn:btih:A8CBF25E77D002AD4B2FEBFC68AF630EC98C3A4D
 magnet:?xt=urn:btih:F9CA5D35003AE7D06391511162D0F6C7B7BD0D83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +283,8 @@ magnet:?xt=urn:btih:F9CA5D35003AE7D06391511162D0F6C7B7BD0D83
 magnet:?xt=urn:btih:0B7D3BF0B6D7D7A506B1AF1985C54C010798A2BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +308,8 @@ magnet:?xt=urn:btih:0B7D3BF0B6D7D7A506B1AF1985C54C010798A2BE
 ```bash
 magnet:?xt=urn:btih:979EDDB5F358B053C4482F7C0E67981F810922D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +336,8 @@ magnet:?xt=urn:btih:979EDDB5F358B053C4482F7C0E67981F810922D2
 magnet:?xt=urn:btih:3158F84F1C36EE172E4820087A8FEDE93EA42481
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +361,8 @@ magnet:?xt=urn:btih:3158F84F1C36EE172E4820087A8FEDE93EA42481
 ```bash
 magnet:?xt=urn:btih:39963A52F76D89E4E10A7F024EB54F62591D2258
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +388,8 @@ magnet:?xt=urn:btih:39963A52F76D89E4E10A7F024EB54F62591D2258
 magnet:?xt=urn:btih:6C5180EA4C8B1D5631210E037EB5CFD85B0D89CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +413,8 @@ magnet:?xt=urn:btih:6C5180EA4C8B1D5631210E037EB5CFD85B0D89CE
 ```bash
 magnet:?xt=urn:btih:43927A0DEF98E0DF0A5226F8E40206ACAF63CEB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +440,8 @@ magnet:?xt=urn:btih:43927A0DEF98E0DF0A5226F8E40206ACAF63CEB9
 magnet:?xt=urn:btih:925A00D27940B28ED53F1913C14C335496D05797
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +465,8 @@ magnet:?xt=urn:btih:925A00D27940B28ED53F1913C14C335496D05797
 ```bash
 magnet:?xt=urn:btih:6A0733A898FFAA95C1D9E219A8D001FC2DE41C21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +492,8 @@ magnet:?xt=urn:btih:6A0733A898FFAA95C1D9E219A8D001FC2DE41C21
 magnet:?xt=urn:btih:B044FF77DB3721C519F468792C862982704A203D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +517,8 @@ magnet:?xt=urn:btih:B044FF77DB3721C519F468792C862982704A203D
 ```bash
 magnet:?xt=urn:btih:9C27443717643E5705E850750E177FB4C66308F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +544,8 @@ magnet:?xt=urn:btih:9C27443717643E5705E850750E177FB4C66308F0
 magnet:?xt=urn:btih:8995DDB3562113B17310012991EF3910B99CAEB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +570,8 @@ History Channel. Далекий берег. Афроамериканцы в «Д
 magnet:?xt=urn:btih:DE529AB31E10B125C84EBD39F3153D07D6E7D31A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +595,8 @@ History Channel. Далекий берег. Афроамериканцы в «Д
 ```bash
 magnet:?xt=urn:btih:08829D48C7A26CFB3FA46E06261A554AF52A6A89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +623,8 @@ magnet:?xt=urn:btih:08829D48C7A26CFB3FA46E06261A554AF52A6A89
 magnet:?xt=urn:btih:65618B70EE15170C0A8EF19488105C9F651B64F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +648,8 @@ magnet:?xt=urn:btih:65618B70EE15170C0A8EF19488105C9F651B64F7
 ```bash
 magnet:?xt=urn:btih:95E65EB54FC4C9F4D26D0A453461371F3BCF7252
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,29 +675,7 @@ magnet:?xt=urn:btih:95E65EB54FC4C9F4D26D0A453461371F3BCF7252
 magnet:?xt=urn:btih:31F7EB23A05BCCF55C53D58BBB8BD5E4124ACBE8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 37896   (793148) от 06.04.2017
-
-Истина / фильм о геноциде сербов (2004)
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793148.jpg" />
-</div>
-
-
-###  Подробнее
-
-Недавно в белградском Савва-Центре состоялась демонстрация страшного фильма о геноциде сербского народа после распада Югославии. В фильме, названном авторами "Истина", показаны документальные кадры зверств хорватских усташей, боснийских и косовских моджахедов над мирными сербами. Демонстрация фильма вызвала огромный интерес сербской общественности. Зал (   Читать дальше...   )Жанр: документальныйПеревод: Любительский, одноголосыйПродолжительность: 01:01:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29A0B6D41C3CF73C0B9C83AAAD392660874782F1
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

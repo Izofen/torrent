@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:2171B1F834366A031D9C7935D2D77B85416E6FB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:2171B1F834366A031D9C7935D2D77B85416E6FB7
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Monster of Puppets - игра в стиле Fruit Ninja(только он отд
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Monster of Puppets - игра в стиле Fruit Ninja(только он отд
 magnet:?xt=urn:btih:F4E3508CD49186380AC3D41E0171D5A54AB7E9DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:F4E3508CD49186380AC3D41E0171D5A54AB7E9DF
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:F4E3508CD49186380AC3D41E0171D5A54AB7E9DF
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:F4E3508CD49186380AC3D41E0171D5A54AB7E9DF
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:F4E3508CD49186380AC3D41E0171D5A54AB7E9DF
 ```bash
 magnet:?xt=urn:btih:CECCC3CE8D26B5E6EFFB9BD0078EF1797E121430
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ AusLogics BoostSpeed - единственная программа, котора
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Kaspersky Internet Security - обеспечивает комплексную з
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Kaspersky Internet Security - обеспечивает комплексную з
 magnet:?xt=urn:btih:88F49BB13B4247B332E046B77604C3252137D602
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:88F49BB13B4247B332E046B77604C3252137D602
 ```bash
 magnet:?xt=urn:btih:791702C6E7875582EADE850FF15C8CFAD443B67D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:791702C6E7875582EADE850FF15C8CFAD443B67D
 magnet:?xt=urn:btih:70D1BB5A4D0AE6D29FFED9CCC6B6F48EE1ECFD6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ Rally Championship 2000 [Ru] (L) 1999
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ NG: Титаник: Заключительное слово с Джеймсом 
 ```bash
 magnet:?xt=urn:btih:0B063E87543B8BF32460FF4077910AE90BB1BEB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ Shiri - самый реалистичный автоматизированный
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ Shiri - самый реалистичный автоматизированный
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ Shiri - самый реалистичный автоматизированный
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ VA - Музыкальные летние хиты (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:6368C688259339555DE146404CA966A51F2E1975
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:6368C688259339555DE146404CA966A51F2E1975
 ```bash
 magnet:?xt=urn:btih:E26DBA1CCF2EBCCEAACB4622C2381D7ED4762ECB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +571,8 @@ AC/DC: Live at Donington (1991/2007) BDRip [1080p]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +596,8 @@ AC/DC: Live at Donington (1991/2007) BDRip [1080p]
 ```bash
 magnet:?xt=urn:btih:0A098E7A8594EA591CEF5BB80FBB8E91F7A446D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +623,8 @@ Gas Guzzlers — динамичные захватывающие гонки на
 magnet:?xt=urn:btih:5173A494EB207642282E9493F666F5C10B7FDDC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +649,8 @@ magnet:?xt=urn:btih:5173A494EB207642282E9493F666F5C10B7FDDC2
 magnet:?xt=urn:btih:1DEEB4D3D9EABD0BC6EFE466DA7993BF249BC348
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +674,8 @@ magnet:?xt=urn:btih:1DEEB4D3D9EABD0BC6EFE466DA7993BF249BC348
 ```bash
 magnet:?xt=urn:btih:27D694619755FCD22231A6EC1D4A0916DBDE6BE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -656,6 +706,8 @@ magnet:?xt=urn:btih:27D694619755FCD22231A6EC1D4A0916DBDE6BE7
 ```bash
 magnet:?xt=urn:btih:02843C02C999C97A4B3DA245C0A4377D7902FAE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

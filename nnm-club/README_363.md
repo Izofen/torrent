@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:1F7DED042E7C58F41F0FE748AFFE2D809570BC12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Killing Floor 3 (2025) [Ru/Multi] (Build 19273238/dlc) Repack Other s [Elite Nig
 ```bash
 magnet:?xt=urn:btih:68BFC8E8A9FF51F623F9B70ED549EF55AFE7F38B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:68BFC8E8A9FF51F623F9B70ED549EF55AFE7F38B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Clair Obscur: Expedition 33 - это новая пошаговая ролева�
 ```bash
 magnet:?xt=urn:btih:883FBD75CE7F30FA38E1861C8CB82487A2246FE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Myst (2021) [Ru/Multi] (3.0.5 HotFix) License GOG [VR]
 magnet:?xt=urn:btih:308C8B787CE8780A0F73A507A1F5699E2F1042FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Avowed (2025) [Ru/Multi] (1.5.1.0/dlc) Repack Let'sРlay [Premium Edition]
 ```bash
 magnet:?xt=urn:btih:77A018071E943FB4E857EE4EFB00DB4AD3D8E926
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:77A018071E943FB4E857EE4EFB00DB4AD3D8E926
 magnet:?xt=urn:btih:0C1B86754375113C6DF292F29B827D1651DB7421
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:0C1B86754375113C6DF292F29B827D1651DB7421
 ```bash
 magnet:?xt=urn:btih:D566805F2CF602D183A775B19EA313EBD3E30811
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:D566805F2CF602D183A775B19EA313EBD3E30811
 magnet:?xt=urn:btih:BBBFAF90FE6A04D6F6CCC4B4227C02F8990B5F80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:BBBFAF90FE6A04D6F6CCC4B4227C02F8990B5F80
 ```bash
 magnet:?xt=urn:btih:465734E25FA6F94A44A0C0CD7277647541CE139F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:465734E25FA6F94A44A0C0CD7277647541CE139F
 magnet:?xt=urn:btih:27CC80AD010354A65A45C7FB96C0DDEDD0E2C7AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Riven: The Sequel to Myst (1997) [Ru/Multi] (2.0.5) License GOG
 ```bash
 magnet:?xt=urn:btih:13ED6691503253054BCA8D661CF3C98CB9C0CE3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:13ED6691503253054BCA8D661CF3C98CB9C0CE3F
 ```bash
 magnet:?xt=urn:btih:18EF31CE23F7B7185E77DE17EA8EFDD844BDDFB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:18EF31CE23F7B7185E77DE17EA8EFDD844BDDFB3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:18EF31CE23F7B7185E77DE17EA8EFDD844BDDFB3
 magnet:?xt=urn:btih:A7C9BFAC3B8B597D8491E4D81F2054B4E2804E72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.3) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:11D1F892F7ADC7369992E4EB2FFB4D481B9D7785
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:11D1F892F7ADC7369992E4EB2FFB4D481B9D7785
 magnet:?xt=urn:btih:20C10A7CBEDE70512C720A0503DD29DE5B353996
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Myst (1999) [Multi] (2.0.5) License GOG [Masterpiece Edition]
 ```bash
 magnet:?xt=urn:btih:984F1F73222BDD951603B2E38482F916AA4C5217
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:984F1F73222BDD951603B2E38482F916AA4C5217
 magnet:?xt=urn:btih:001DA301B8C9AD2F6FA63A1A2A0A2B502D2D7C92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:001DA301B8C9AD2F6FA63A1A2A0A2B502D2D7C92
 ```bash
 magnet:?xt=urn:btih:AC23437D695D42F3B26F469358DB020562A15BA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ Queen - Greatest Hits II (1991) 1st UK Press [APE|Lossless|image + .cue] <Rock>
 magnet:?xt=urn:btih:A41A8EE242D8C44593D382E14EC60D69F995BCA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ R-Studio - основанная на новейшей уникальной те
 ```bash
 magnet:?xt=urn:btih:7D56AE85CA0F90BAE4AC6E6AB2D34567FC79D26C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:7D56AE85CA0F90BAE4AC6E6AB2D34567FC79D26C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:7D56AE85CA0F90BAE4AC6E6AB2D34567FC79D26C
 ```bash
 magnet:?xt=urn:btih:FF964EE4F87027A26BE39DBC116F50A20A69DCCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Relaxing Time 2: Italy Tour / Время отдыха 2: Итальянское 
 magnet:?xt=urn:btih:27237B1DCDBBFEEE93D4EF51DB1AA2A85E670A70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Wave Arts - Power Suite 7 2025.7.17 VST, VST 3, AAX (x64) RePack by TCD [En]
 ```bash
 magnet:?xt=urn:btih:DE5BD33E547DAFBE59FC2489D35DCFC76184993B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,90 @@
+###  Публикация: 954038   (344270) от 06.11.2015
+
+Seal - 7 (2015) [FLAC|Lossless|WEB-DL]<Pop, Soul, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daylight Saving
+02. Every Time I'm With You
+03. Life On The Dancefloor
+04. Padded Cell(   Читать дальше...   )Жанр: Pop, Soul, R&BПродолжительность: 00:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:621DBB4BA7B6986481D4FE948D66BF058FA2316E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954003   (344271) от 06.11.2015
+
+Anastacia - Ultimate Collection (2015) [MP3|320 кб/с]<Pop-Rock, R&B, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Outta Love 04:04
+02. Left Outside Alone 04:18
+03. Sick and Tired 03:30
+04. Paid My Dues 03:21(   Читать дальше...   )Жанр: Pop-Rock, R&B, SoulПродолжительность: 01:15:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:398D2EC4D312F61DDDB732E3727397C0E78263E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954029   (344506) от 06.11.2015
+
+Little Mix - Get Weird (2015) The Deluxe Edition [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Magic
+02. Love Me Like You
+03. Weird People
+04. Secret Love Song(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5665DBB00E2ED4A15F47B00E6FAEF939425D0F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954006   (344514) от 06.11.2015
 
 Seal - 7 (2015) [OGG| 430-510 кб/с]<Pop, Soul, R&B>
@@ -21,6 +108,8 @@ Seal - 7 (2015) [OGG| 430-510 кб/с]<Pop, Soul, R&B>
 ```bash
 magnet:?xt=urn:btih:7087E0CE3A880431F7D388B964F29DDFB99742D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +138,8 @@ Sara Bareilles - What's Inside: Songs From Waitress (2015) [MP3|320 кб/с]<Pop
 magnet:?xt=urn:btih:EB299782D9846DFE945D20FADBA3DC105766ADC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +166,37 @@ Fleurie - Love and War (2016) [FLAC|Lossless|tracks] <Alternative Pop, Ethereal,
 ```bash
 magnet:?xt=urn:btih:1EB2A6FD5AD4FF8A87506E5F92CACDB2F8D75A9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 155084   (344859) от 01.12.2009
+
+Леонид Агутин - Босоногий мальчик (1994) [APE|lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_344859.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Босоногий мальчик
+2. За счастьем
+3. Разговор о дожде
+4. Девочка(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +225,8 @@ magnet:?xt=urn:btih:1EB2A6FD5AD4FF8A87506E5F92CACDB2F8D75A9B
 magnet:?xt=urn:btih:CC20C56E17028C0E091AC6F72CD9FBC8FACF6976
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +254,34 @@ magnet:?xt=urn:btih:CC20C56E17028C0E091AC6F72CD9FBC8FACF6976
 magnet:?xt=urn:btih:10D28C85C06F50A152716A890D3F5C504C5920B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 257207   (345344) от 12.11.2010
+
+Андрей Алексин - Дискография (2001-2010) [MP3|320 kbps]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_345344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 05:54:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +307,8 @@ Computer - Come And Dance (1977) LP [MP3|320 Kbps] <Electronic, Disco, Funk-Soul
 ```bash
 magnet:?xt=urn:btih:9D0DD84D990441323BC56C2B3E1DC3B963EBEB89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -183,6 +337,8 @@ Quartz - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electronic, Disco>
 magnet:?xt=urn:btih:EAF0EA39B1AB3204CA712A238DB1E8400229419C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -209,6 +365,8 @@ Ellie Goulding - Delirium (2015) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:2153BFA97AF5AA61C23804C30EC1F9619158E2C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +395,8 @@ John The Whistler - It's Crazy (2000) [APE|Lossless|image + .cue] <Eurodance, Eu
 magnet:?xt=urn:btih:0EC5E5FD4BD81CABDA2CA2D691E66504AEB2C252
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +423,8 @@ Was (Not Was) - американская поп-рок-группа, основ�
 ```bash
 magnet:?xt=urn:btih:6D755B68121B6B0604E10D9B7BD9A5E36E2F961A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +453,8 @@ The Piccadilly Teardrops - Died in Your Eyes (2015) [OGG|446-491 кб/с]<Synthp
 magnet:?xt=urn:btih:2F572FBE0CDA91CCE56F3FABEDECEBBB7529B454
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +481,8 @@ Oxford Drama - In Awe (2015) [OGG| 428-494 кб/с]<Indie Pop, Downtempo, Electr
 ```bash
 magnet:?xt=urn:btih:493FBD11741DE8763466B253EA38498555714347
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +511,8 @@ George Maple - Lover (2017) [MP3|320 Kbps] <Pop, RnB>
 magnet:?xt=urn:btih:8C04CFC0EBF1138586B847CB51343D6146479865
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +539,8 @@ Christophe Mae - L'Attrape-Reves (2016) Edition Collector [MP3|320 Kbps] <French
 ```bash
 magnet:?xt=urn:btih:9B17AD62F90D1E96CEA9CCFE2ED941AE4F59754B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +569,8 @@ Michael Jackson - Off The Wall (1979) [FLAC|Lossless|tracks + .cue] <Pop>
 magnet:?xt=urn:btih:03BB2BC27B2E38887DB97D983147A1CE1F9E9792
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +597,8 @@ magnet:?xt=urn:btih:03BB2BC27B2E38887DB97D983147A1CE1F9E9792
 ```bash
 magnet:?xt=urn:btih:557D7B18DFC053E3F9BAE3BCAA06CBC6C867B332
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +627,8 @@ magnet:?xt=urn:btih:557D7B18DFC053E3F9BAE3BCAA06CBC6C867B332
 magnet:?xt=urn:btih:BA5D7FB6385B683A5C7113F09D9150B5AF675D66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +655,8 @@ magnet:?xt=urn:btih:BA5D7FB6385B683A5C7113F09D9150B5AF675D66
 ```bash
 magnet:?xt=urn:btih:2F4D768568317AECB00801239EED97E835F24E20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +685,8 @@ Pixie Geldof - I'm Yours (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, 
 magnet:?xt=urn:btih:E67C0869ED9D2390E413153DF518D096B5F93560
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +714,8 @@ magnet:?xt=urn:btih:E67C0869ED9D2390E413153DF518D096B5F93560
 magnet:?xt=urn:btih:BA01A2300EEB76E29FC010CA93DBAF988BE7E21B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,140 +742,7 @@ Agnetha Faltskog - I Stand Alone (1987) [FLAC|Lossless|image + .cue] <Pop>
 magnet:?xt=urn:btih:C9E823819A1740C8C99064B1CDABD646378CFB61
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257040   (347772) от 25.10.2018
-
-Устинья Малинина - Влюбишься (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Влюбишься (3:17)
-02. Без тебя (3:56)
-03. Непобедимы (3:40)
-04. Зима (3:30)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB44A1629BC0A8CFA1B2E6238A11A94654D488CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257127   (347779) от 25.10.2018
-
-Bryce - Best Of (2018) [MP3|320 Kbps] <Dance, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Megamix (Edit)
-02. We're In Heaven (Radio Edit)
-03. Bryce Ft. J-Malik - Body Rock (Radio Edit)
-04. Bryce Ft. Nitro - Weekend (Radio Edit)(   Читать дальше...   )Жанр: Dance, ElectronicПродолжительность: 01:27:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1A32721233A8DBC3D249C0ED5F93F6ABFFA09F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329663   (347849) от 07.10.2019
-
-VA – Новая игрушка 13 (2002) [FLAC|Lossless|tracks + .cue]<Pop, Dance>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Демо - Не ругай
-02. Дискотека Авария - Х.Х.Х.И.Р.Н.Р.
-03. Акула - Полюби
-04. Мумий Тролль - Морская капуста(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CEAA7E0CBD34FC46D6DBC049B8C285241B84CA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329994   (347852) от 07.10.2019
-
-Луна - Транс (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Золотые Лепестки (4:31)
- 02. Лунные Гипнозы (3:35)
- 03. Подружка (4:38)
- 04. Сиреневый Рай (4:14)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A489337AFE8D2827E7059D8C6D31CC31C1FF159
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329928   (347863) от 07.10.2019
-
-Laser Cowboys - Radioactivity (2018) Limited Edition, Remastered [FLAC|Lossless|tracks + .cue] <Italo-Disco, Hi-NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture (4:28)
-02. Radioactivity (From The Ucraine) (6:41)
-03. Ultra Warp (Armaged Don Mix) (5:15)
-04. Theme From Knight Rider (6:23)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRGПродолжительность: 01:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8845EB7322C942F3CBAFC7E65264C2F65BF0C2A4
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

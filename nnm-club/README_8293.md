@@ -28,6 +28,8 @@ Dj Starscream (Sid Wilson) - Abunaii Sounds (2003) [MP3|128 кб/с]<Drum'n'Bass
 magnet:?xt=urn:btih:DD4C8D3EB4A521D1AC351EA7A299FAC0D9ABC0BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -53,6 +55,8 @@ CD 1: Balance (01:13:01) ~246 кб\с
 ```bash
 magnet:?xt=urn:btih:437C55BFAEC3CF7748A0F883C512C0BA37B8CCC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -85,6 +89,8 @@ Simple Minds - Black & White 050505 (2005) [FLAC|Lossless]<Рок>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +125,8 @@ Cattle Decapitation - Monolith Of Inhumanity (2012) [FLAC|Lossless]<Technical De
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +160,8 @@ VA - Лучшая clubная музыка сезона (2012) [MP3|256 кб/с]<
 magnet:?xt=urn:btih:4606A6E03125EF06A874BF335079CB2B7724B299
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +185,8 @@ magnet:?xt=urn:btih:4606A6E03125EF06A874BF335079CB2B7724B299
 ```bash
 magnet:?xt=urn:btih:5D7524ED7A558265B20C9D5601F6406309BBA496
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +212,8 @@ magnet:?xt=urn:btih:5D7524ED7A558265B20C9D5601F6406309BBA496
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +237,8 @@ magnet:?xt=urn:btih:5D7524ED7A558265B20C9D5601F6406309BBA496
 ```bash
 magnet:?xt=urn:btih:C638E7442CAF8332990883C640EC9483AB1C41F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +264,8 @@ Avenue - серия женской прозы. И хотя нам, мужчин�
 magnet:?xt=urn:btih:B4DA48A08F9C7BD3E0AE8B31EA3F6D1EDCE23E52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +289,8 @@ Adrosoft Steady Recorder - маленькая и очень полезная у�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -305,6 +325,8 @@ VA - Грезы любви (2012) [MP3|320 кб/с]<Шансон>
 magnet:?xt=urn:btih:08A98601A035F977066CA7AC4946CEA6E3056C01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +350,8 @@ magnet:?xt=urn:btih:08A98601A035F977066CA7AC4946CEA6E3056C01
 ```bash
 magnet:?xt=urn:btih:2E10B62D40ECED001576F127C496E0758B87D2A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +377,8 @@ magnet:?xt=urn:btih:2E10B62D40ECED001576F127C496E0758B87D2A5
 magnet:?xt=urn:btih:DA15F8F7D3A149963BA47D791DA8156409BDA0A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +403,8 @@ magnet:?xt=urn:btih:DA15F8F7D3A149963BA47D791DA8156409BDA0A0
 ```bash
 magnet:?xt=urn:btih:59AC1EC2871C781BB41392E7C9A71BDB362ABC00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +437,8 @@ VA - Ministry Of Sound: The Mash Up Mix Bass (2012)
 magnet:?xt=urn:btih:911A8305FCD74DE617EAE6740B8E81663CBA19B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +463,8 @@ magnet:?xt=urn:btih:911A8305FCD74DE617EAE6740B8E81663CBA19B8
 magnet:?xt=urn:btih:7B546A48C6FF567A1D86599466331DF733A1BF26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +488,8 @@ Rebuild the History (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:9658BDFE3CB17AD07EC8446D72D8127026BE854F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +516,8 @@ magnet:?xt=urn:btih:9658BDFE3CB17AD07EC8446D72D8127026BE854F
 ```bash
 magnet:?xt=urn:btih:82AE4707CF5384ECA4A8BB47615FC07BB1F5B755
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +546,8 @@ magnet:?xt=urn:btih:82AE4707CF5384ECA4A8BB47615FC07BB1F5B755
 ```bash
 magnet:?xt=urn:btih:22FCA4751978D40863BF561A7E1DD850802FE484
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +582,8 @@ Stormfagel - 3 albums (2005-2010) [FLAC|Lossless] <Neofolk, Martial Industrial, 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +607,8 @@ Stormfagel - 3 albums (2005-2010) [FLAC|Lossless] <Neofolk, Martial Industrial, 
 ```bash
 magnet:?xt=urn:btih:A734F11BB233D4CB6591387EE64D22298062E023
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +634,8 @@ Photo Slideshow Creator - представляет собой удобный и�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +659,8 @@ VA - Инструментальная музыка (2012) vol. № 31 [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:88E02190EE37B7DB31B53F33A316218FD5720103
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +686,8 @@ Playboy — легендарный журнал для мужчин. Экскл�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +712,8 @@ Playboy — легендарный журнал для мужчин. Экскл�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -687,6 +737,8 @@ Playboy — легендарный журнал для мужчин, основ�
 ```bash
 magnet:?xt=urn:btih:32722E81F0F60ACE8F640F8E6F7F1375C380A4C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

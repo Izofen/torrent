@@ -19,6 +19,8 @@ Rome: Total War (2004) [En] (v1/dlc) License GOG [Collection]
 magnet:?xt=urn:btih:70B395F219A69CF2DE4BAF3E5665C897990FCAB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Medieval: Total War (2002) [En] (v1/dlc) License GOG [Collection]
 ```bash
 magnet:?xt=urn:btih:668369CDE4446D449DEF5D8B03C63A8441B3288A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Dungeon Keeper KeeperFX (2008) [Ru/Multi] (1.3.0) License/Mod GOG
 magnet:?xt=urn:btih:37B8FA6148DFED1EDBEAF3F65DA828ECF71F4B3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Challenge of the Five Realms (1992) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:39F8BE0F277185873475164087392D52F37622B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ The Dark Heart of Uukrul (1989) [En] (1.0) License GOG
 magnet:?xt=urn:btih:5FD45DCDB86869A51AE63F5A5941473B10FDFF35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Realms of Arkania Trilogy (1992-1996) (1.0/1.0 v2/1.0(a)) License GOG
 ```bash
 magnet:?xt=urn:btih:37F747EE7C6DD7AA1E9D29AB699408643C086BF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Dungeons and Dragons: Dragonshard / Кристалл всевластья (2005)
 magnet:?xt=urn:btih:059D9E07B6C9CA1505CA9FC81773990D85AE8BFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Call of Cthulhu: Prisoner of Ice (1995) [En] (1.01 v2) License GOG
 ```bash
 magnet:?xt=urn:btih:ED12339976B40AC768123791AB562CBB447FA5B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Just Cause 2 (2010) [Ru] (1.0.0.2/dlc) Repack seleZen [Complete Edition]
 magnet:?xt=urn:btih:184F9B70831CA271B9D1EC511BD2989EE96BA4A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Nosferatu: The Wrath of Malachi / Вампиры (2003) [Multi] (1.0v3) License 
 magnet:?xt=urn:btih:F99E3DAAA422F96A8D37D2D6A056EE69190290D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ magnet:?xt=urn:btih:F99E3DAAA422F96A8D37D2D6A056EE69190290D9
 ```bash
 magnet:?xt=urn:btih:51D7CA3567FA5EF52AD88CAE8DF421D6FA2A1D34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

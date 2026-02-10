@@ -22,6 +22,8 @@ Frozen Dawn - The Decline of the Enlightened Gods (2023) [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:39F69790A8EB3C4F3F48CD6B29531835B3D00AA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Paladine - Entering The Abyss (2021) [FLAC|Lossless|image + .cue] <Power Metal>
 magnet:?xt=urn:btih:6F1062427C459937156B5CC72645C383AEEBB6B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ Resident Evil Village v.1.0.0 (2022) [Multi/Ru] [macOS Native game]
 magnet:?xt=urn:btih:69830B462A25C4DF1816114849DCC163F53A7500
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:69830B462A25C4DF1816114849DCC163F53A7500
 ```bash
 magnet:?xt=urn:btih:87A6650F34B1B266174B5F6DA2E2506599B12431
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ Joachim Witt - Rubezahl (2018) [FLAC|Lossless|image + .cue] <Goth Rock, Darkwave
 magnet:?xt=urn:btih:ED890B8B92981480131EB5DEBC73AB1C4D66B387
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ Stepmother - Planet Brutalicon (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic
 magnet:?xt=urn:btih:2E0D1C17F6E5DE633080976A76907CD516B79F40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:2E0D1C17F6E5DE633080976A76907CD516B79F40
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ AVS Document Converter - предназначена для просмотра и
 magnet:?xt=urn:btih:4F1230EA69C6B190499750A4FD5FD6E6CA973838
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ Space Rangers 2: Reboot / Космические рейнджеры 2: Доми�
 ```bash
 magnet:?xt=urn:btih:B8B5C3BAA501CD139F4FF991F41749B1C5DC718E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:B8B5C3BAA501CD139F4FF991F41749B1C5DC718E
 magnet:?xt=urn:btih:1702979A2BB3FAD734915F8C04BC178C35C929C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:1702979A2BB3FAD734915F8C04BC178C35C929C3
 magnet:?xt=urn:btih:79283DFFDD22B6DC128E87A41FB9A870DA40043E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ Wingfox, David Masana Lafuente | 3D Game-Ready Environment In Unreal Engine 4 (2
 ```bash
 magnet:?xt=urn:btih:D86EF3CF2626126B87CE59671045C3E7BBD224E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ Powertryp - Midnight Marauder (2022) [FLAC|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:754D43F875EB2F714803643399953A5E5A9DBA7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ Origins - Edge Of Abyss (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 magnet:?xt=urn:btih:4DCEC30189F1F6C6627D494C4458B18F12706131
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:4DCEC30189F1F6C6627D494C4458B18F12706131
 ```bash
 magnet:?xt=urn:btih:3F068E6972A826CAD7C4A1D5394BDECBC4A72BA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:3F068E6972A826CAD7C4A1D5394BDECBC4A72BA2
 magnet:?xt=urn:btih:26628EA4D70E9B6D1388AF03877746FAB97BEFD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ magnet:?xt=urn:btih:26628EA4D70E9B6D1388AF03877746FAB97BEFD0
 magnet:?xt=urn:btih:ED9006C0BD3B6196484FAECBB0F893C9F68DF317
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:ED9006C0BD3B6196484FAECBB0F893C9F68DF317
 ```bash
 magnet:?xt=urn:btih:C7340A90FDCE7FEEE1AEDBFF3E3DAC04429AA201
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +511,8 @@ Great Master - Lion & Queen (2016) [FLAC|Lossless|image + .cue] <Power Metal>
 magnet:?xt=urn:btih:8389C00883E94BEF81B2FEE745ADB4383D67341E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +536,8 @@ Wingfox, MikeHong | Creating a photorealistic character Joan of Arc (2021) PCRec
 ```bash
 magnet:?xt=urn:btih:F86DF555F6452C8658A22DB37268E787560CDD60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +566,8 @@ magnet:?xt=urn:btih:F86DF555F6452C8658A22DB37268E787560CDD60
 magnet:?xt=urn:btih:1A5F5FDE549D7365E07166140603A986789B9E1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +595,8 @@ Ralph Burns - Bijou (1955) 1999, Original Jazz Classics [FLAC|Lossless|tracks + 
 magnet:?xt=urn:btih:B74DFC781F398398446EED0963F86D216F9EFE95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +622,8 @@ WSCC (Windows System Control Center) - портативная программа
 magnet:?xt=urn:btih:E7DAA0DFE631F4AA83C8569F65D7459515DDD6D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +647,8 @@ magnet:?xt=urn:btih:E7DAA0DFE631F4AA83C8569F65D7459515DDD6D3
 ```bash
 magnet:?xt=urn:btih:4CBA998D6D8BE465BCBE319ABDCC9C7BC146C078
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +676,8 @@ Granich.Design, Вадим Гранич | Графсистема UI-дизайн
 magnet:?xt=urn:btih:F756DB44F7DF0FBCD8F5488249E7D9D4F0AACC4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ magnet:?xt=urn:btih:F756DB44F7DF0FBCD8F5488249E7D9D4F0AACC4A
 ```bash
 magnet:?xt=urn:btih:E7C00EA0AC66799E31AD3D1C4412B6804AEC970C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

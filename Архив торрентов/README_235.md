@@ -19,6 +19,8 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 magnet:?xt=urn:btih:CB961AD57546A69CA72C9BA3D4BDCD6001638F6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ FBReader Premium v3.7.1 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5CC3D20978521E0F41B24FC4CFEFA595B7EC2DE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:79B1C4FC98E90553883E9A492E12E493997CA8C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ CopyQ это легкий, но многофункциональный мене�
 ```bash
 magnet:?xt=urn:btih:56CD6E6D2A12E6FF740AA4460B086361649A036A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Luminar Neo – это отдельный редактор, который вк�
 magnet:?xt=urn:btih:0471E088AC9FA61E64B7E1A8055E19629C5318DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ English Galaxy - уникальное приложение для тех, кто
 ```bash
 magnet:?xt=urn:btih:D134FA3ABEB1CD5FDC03908BA10F62C43E44E0CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:D134FA3ABEB1CD5FDC03908BA10F62C43E44E0CA
 magnet:?xt=urn:btih:05A5B0FDE3DF0EB2921AC3BB5B9A443CEB9AFD1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ PDF-XChange Editor — программа для просмотра, редак�
 ```bash
 magnet:?xt=urn:btih:96B1D6D8CF66E36AA1C2E9089E70557B7554D222
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ PDF-XChange Pro — универсальное решение для работ�
 magnet:?xt=urn:btih:BA55EA7E7E2824F8C1C03D95552636C4D542CFC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:BA55EA7E7E2824F8C1C03D95552636C4D542CFC4
 ```bash
 magnet:?xt=urn:btih:DF743997FE624EC0FF75BF5E22A9D146A0AD800B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ OCCT 13.0.1 Final Portable [En]
 magnet:?xt=urn:btih:8E12EE1297E9980C437100CF79F48307D6CD6C40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ RizomUV VS - это полнофункциональное приложение 
 ```bash
 magnet:?xt=urn:btih:1511486B95C417287187CE862CC95810331EA5CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:1511486B95C417287187CE862CC95810331EA5CF
 magnet:?xt=urn:btih:A7691291A1865846B674FE68A902DEEE16EDCDB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Mozilla Thunderbird –  легкая и безопасная бесплатна
 ```bash
 magnet:?xt=urn:btih:5AEE09C1D8419780356E886F5248118FB12579C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Wise Auto Shutdown позволяет Вам отключать компьюте
 magnet:?xt=urn:btih:F253699AD03488D46214B64060C34570AFD747E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ OpenVPN – мощная программа для работы с частны�
 ```bash
 magnet:?xt=urn:btih:1EB1BDBF14C0B66AA41C6EB44BC80261972BC34D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Adobe Bridge предоставит вам централизованный до
 magnet:?xt=urn:btih:109DF459EEF94DED87881F459C8E3148AFB01B8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Tor Browser Bundle 13.5 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D9DC36E24AB3594880178213535CD0CE8C4FF72B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ Topaz A.I. Gigapixel — это приложение, использующее �
 magnet:?xt=urn:btih:5B980C54A41514AE9B295E3190DAFF66D209ACE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ R-Studio Network 9.4 Build 191329 RePack (& portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8CA7FAC114C9CAFA98875FEC5EDDC72B5C90572C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:8CA7FAC114C9CAFA98875FEC5EDDC72B5C90572C
 magnet:?xt=urn:btih:86AC63A434662E563E7EF0E4726AF5AAC6514FD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:8C9E0D3BB978A36EB332E21A5D27FFF0E2E5BC12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:8C9E0D3BB978A36EB332E21A5D27FFF0E2E5BC12
 magnet:?xt=urn:btih:BD4602B963D00970CB8822F2FE75B4F28C342EC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ UsbTreeView - маленькая портативная утилита, реал
 ```bash
 magnet:?xt=urn:btih:559618351C30767B161C41FE585DF88548AA6F2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:84F6178CCBE00ABED28F78DF6C81A8860C594C26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Vivaldi 6.8.3381.44 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2A75CDAC2D04478D07F32DA57453CC65B87EAEEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

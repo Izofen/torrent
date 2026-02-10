@@ -1,3 +1,148 @@
+###  Публикация: 1324807   (421332) от 11.09.2019
+
+Nino De Angelo - Samuraj (1989) LP [MP3|320 Kbps] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_421332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продюсер: Dieter Bohlen01. Samuraj (3:57)
+02. Who's Gonna Love You Tonight (3:53)
+03. Have You Ever Been Lonely (3:07)
+04. Stay With Me (3:09)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:34:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C515ED411E1518A85D45CE728E37543BDCDF4588
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065192   (421763) от 22.10.2016
+
+VA - Decade of the Synth  Vol.1 (2016) [MP3|320 Kbps] <Disco, Nu Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_421763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vasiliy Arefiev - My Lost Melody  6:40
+02. Italo Brutalo - Velodrome  6:51
+03. Boy Funktastic - Beachs  4:16
+04. Ocsav - Move Your Soul  6:02(   Читать дальше...   )Жанр: Disco, Nu DiscoПродолжительность: 01:33:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDCF77C5512116EEA62DEDE1328EEB1151E49CC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167023   (421920) от 18.09.2017
+
+Emily Haines (of Metric) & The Soft Skeleton - Choir of the Mind (2017) [FLAC|Lossless|tracks] <Alternative Pop, Acoustic Indie Rock, Piano>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_421920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Planets
+02. Fatal Gift
+03. Strangle All Romance
+04. Wounded(   Читать дальше...   )Жанр: Alternative Pop, Acoustic Indie Rock, PianoПродолжительность: 00:59:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF36EB4B6BA52E4882469B7D742CF7472C81AC5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250391   (422141) от 29.09.2018
+
+Cher - Dancing Queen (2018) Warner Bros. Records [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_422141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing Queen (3:43)
+ 02. Gimme! Gimme! Gimme! (A Man After Midnight) (4:11)
+ 03. The Name of the Game (4:49)
+ 04. SOS (3:22)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:410B91F45800DDEB2F8E2C6D56656F6C2ACECE17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947062   (422486) от 15.10.2015
+
+Demi Lovato - Confident (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_422486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Confident
+ 02. Cool for the Summer
+ 03. Old Ways
+ 04. For You(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7C4C112500B8414CF378A36CC81E91AE37BE909
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411647   (422511) от 27.09.2020
 
 Юрий Антонов - Коллекция. 3 альбома (1996) [FLAC|Lossless|image + .cue] <Pop, Pop Rock, Folk>
@@ -21,6 +166,8 @@
 ```bash
 magnet:?xt=urn:btih:C90A1A502585877B6A6C293974C7AB8ED0BE5D5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +196,8 @@ Julio Iglesias - Mexico (2015) [FLAC|image+.cue]<Pop>
 magnet:?xt=urn:btih:505B61DD873DEE50A50D69A954582572CF3D7520
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +224,8 @@ Tim Maia - Disco Club (1978) Reissue CD, Atlantic, 2018 [MP3|320 Kbps] <Disco, F
 ```bash
 magnet:?xt=urn:btih:BA62BC34D075C51A3674858A6D133A052051A29A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +254,8 @@ Technique - Michael Angelo (1983) LP [MP3|320 Kbps] <Electronic, Pop, Disco>
 magnet:?xt=urn:btih:3ACBBE3E24355FA29184B1769955B83A19572242
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +282,8 @@ Tony Rallo And The Midnite Band - Burnin' Alive (1979) LP [MP3|320 Kbps] <Electr
 ```bash
 magnet:?xt=urn:btih:9B6674D2F0CA517C5E63B5345C8F38CAFAB856D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +312,8 @@ VA - Best of New Generation Maxi Disco Vol. 1 (2020) [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:4706636950D8A4F26E1670B9346970578AD2FF99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +340,8 @@ Will Butler - Generations (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 ```bash
 magnet:?xt=urn:btih:ABAA2FD53012F31AA38803BBACB94CE3BBBCFC14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +370,8 @@ VA - 20 лет. Лучшее (2016) [MP3|320 Kbps] <Pop, Rock>
 magnet:?xt=urn:btih:8B097F9EDD3F97798FAC4820B5515506DAF4EC35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +398,8 @@ Lady Gaga - Joanne (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Ele
 ```bash
 magnet:?xt=urn:btih:0FB7CD6B2DB376FED10F11F6F682C079FE061210
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +428,8 @@ The Cars - Heartbeat City (1984) [OGG Vorbis|485 Kbps] <Electronic>
 magnet:?xt=urn:btih:68689E77A023156F4D771A8FE330414BD6FA0B93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +456,8 @@ C.C.Catch - Like A Hurricane (1987) [OGG Vorbis|485 Kbps] <Electronic, Pop>
 ```bash
 magnet:?xt=urn:btih:3F43473BFF17E7D354B5D77A76A50EB7B057D1CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +486,8 @@ C.C.Catch - Big Fun (1988) [OGG Vorbis|485 Kbps] <Electronic, Pop>
 magnet:?xt=urn:btih:CF897FDC7EA5602F37959FFEEC2E3FEEBD93822F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +514,8 @@ C.C.Catch - Welcome To The Heartbreak Hotel (1986) [OGG Vorbis|485 Kbps] <Electr
 ```bash
 magnet:?xt=urn:btih:4C86D613F33578E99FA2F0326C507D475A38B413
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +546,8 @@ magnet:?xt=urn:btih:4C86D613F33578E99FA2F0326C507D475A38B413
 magnet:?xt=urn:btih:D7C968407FB891B202EF470D30F5EDDF5E659790
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +574,8 @@ magnet:?xt=urn:btih:D7C968407FB891B202EF470D30F5EDDF5E659790
 ```bash
 magnet:?xt=urn:btih:AB124D198A0C800F6A04C757F81DA0826DF44CE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +604,8 @@ magnet:?xt=urn:btih:AB124D198A0C800F6A04C757F81DA0826DF44CE5
 magnet:?xt=urn:btih:FE5E1A47C42CB61352BDB5FE589D24B3E2704D6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +632,8 @@ VA - Gold Ballads (2003) [APE|Lossless|image + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:A2C82C106F047E4061E28FF22F6E452FC8D6BF71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +662,8 @@ Melanie C - Version of Me (2016) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:759C7871A2D509255A1175DEE203667C4592CA39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +690,8 @@ Anastacia - Evolution (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:191B3AB8346BAC401F7B13BE8B961E6252F0CB2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +720,8 @@ VA - Skitzmix 90's Anthems (Mixed by Nick Skitz) (2017) [MP3|320 Kbps] <Eurodanc
 magnet:?xt=urn:btih:C181C235BE643A933C6B3D7F75A866028F970CC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,140 +749,7 @@ magnet:?xt=urn:btih:C181C235BE643A933C6B3D7F75A866028F970CC7
 magnet:?xt=urn:btih:3858167F568BED402BB1270EDE7EC6DF40109693
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946716   (425052) от 14.10.2015
-
-Tom Jones - Long Lost Suitcase (2015) [FLAC|Lossless]<Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opportunity To Cry
-02. Honey, Honey (ft. Imelda May)
-03. Take My Love (I Want To Give It)
-04. Bring It On Home(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14811B5B2BA147E052984DCFA84654AD8767D89D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324536   (425362) от 09.09.2019
-
-Liz Mitchell - Share The World (1999) ex. Boney M. [MP3|320 Kbps] <Reggae, Pop, Ballad>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Have A Party (4:53)
-02. Good Timing (3:59)
-03. Share The World (5:52)
-04. My Love's A Ship (3:47)(   Читать дальше...   )Жанр: Reggae, Pop, BalladПродолжительность: 00:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32AA721243690BAE3279C045C2FFD994D34CDD54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572034   (425399) от 25.08.2022
-
-Мираж 2 - Снова Вместе (1994) Remastered, 2020, J.S.P. [OGG Vorbis|485 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Музыка Нас Связала	4:29
-02. Наступает Ночь	4:23
-03. Снова Вместе	5:37
-04. Где Я	4:35(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2F91D1734260D66EF522E9456B0847A15B9F4AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572246   (425405) от 25.08.2022
-
-ABBA - On And On (2003) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waterloo
-02. Rock Me
-03. Love Isn't Easy
-04. Gonna Sing You My Lovesong(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18FC31F4D37F28B454AF62479D9C1E48E617DAEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064654   (425558) от 20.10.2016
-
-VA - BRAVO Hits 95 (2016) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Dance, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zara Larsson - Ain't My Fault (3:44)
-02. The Chainsmokers feat. Halsey - Closer (4:04)
-03. Enrique Iglesias feat. Wisin - Duele el corazón (3:20)
-04. Rag'n'Bone Man - Human (3:18)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Rock, Electronic, Dance, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep House, Electro, Synthpop, Pop Rock, Indie RockПродолжительность: 02:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F9659C3F5F11BB66597BB13411824D4D37E8021
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

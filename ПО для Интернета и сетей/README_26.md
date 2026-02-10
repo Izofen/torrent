@@ -19,6 +19,8 @@ SoftPerfect NetWorx - утилита для учета интернет-траф
 magnet:?xt=urn:btih:25E756AA92BAE1790900517342DB4578469C63F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ RusTV Player - программа для просмотра телевизион
 ```bash
 magnet:?xt=urn:btih:E0D2FC6EF9D4EDCD27638C36D4F2C9C5C8F741DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ ProgDVB 7.26.08 Professional [Multi/Ru]
 magnet:?xt=urn:btih:564E978E1C27DCAC850B6C48AF66426DEF9B9B66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ QupZilla — web-браузер построенный на базе Qt и бр�
 ```bash
 magnet:?xt=urn:btih:0E4879D478C27D639E3E33031211EB8C2522B4B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Portable Offline Browser позволяет скачивать как отдел
 magnet:?xt=urn:btih:87E03EBB886A4617D7DC9853D8771DF75ECECA11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ K-Meleon - браузер для операционной системы Windows
 ```bash
 magnet:?xt=urn:btih:5DE98A45218F69EACB356119470CBBBFDBE0B529
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ ePageCreator - программа для создания электронных
 magnet:?xt=urn:btih:2E2700BC5A9A26B73E9D5C7D4769CD7DBB458F3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ FlipCreator - программа для создания электронных 
 magnet:?xt=urn:btih:DA251303039DF96A4867F343D33653ABBF3CB54A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Lunascape — браузер от японского производителя.
 ```bash
 magnet:?xt=urn:btih:B65CC52C540EC99F03561BDC7AF76B1BF12BCA83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ BitTorrent - клиентская программа пиринговой сет
 magnet:?xt=urn:btih:F08F61DEDF0185D383C9EC797687BCAB7DFDAB19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ YouTube Downloader - простая и легкая в использовани�
 ```bash
 magnet:?xt=urn:btih:234B2B77C528DEF0949611453D5CE6F52927EDAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:234B2B77C528DEF0949611453D5CE6F52927EDAC
 magnet:?xt=urn:btih:913CD58AD006973DE14937623071C4856D4ECEEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ VNC Connect Enterprise 6.4.0 [Multi/En]
 ```bash
 magnet:?xt=urn:btih:04BA2274F7004041B7A60B44F2E282F900B8263F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Total Mail Converter надежная программа для конверти
 magnet:?xt=urn:btih:345D189EB9CE9970E5C6EF916454B95415BEE07C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Bigasoft Video Downloader Pro - популярный онлайн видео з�
 ```bash
 magnet:?xt=urn:btih:662408E85CC4B1AB6E9ABCD810D7C1BB45B68041
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:DFB7E36078886207FA446BF705B6A18205255AFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:5600B3E5022F7CEA82B135009C50A2E3E8389D8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Basilisk - это веб-браузер с открытым исходным к�
 ```bash
 magnet:?xt=urn:btih:033F393CA30F008931F5D02065E6D77FD642F4B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Management Remote PC - программа для удаленного управ
 magnet:?xt=urn:btih:AF9D350F642B32F3675AB8BDA35390D97A5B4FBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ WirelessNetView - бесплатная утилита, способная про
 ```bash
 magnet:?xt=urn:btih:FBA543F5704621E52B94722CA15B828303CCC3BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ Reverso для Windows - Приложение для операционных с
 magnet:?xt=urn:btih:40CA09EC65AC152EF6119484E6C2F2DF72B86591
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:90BE032EFE5C87A29358DFFE9DE5B55EBA989A6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ Becky! Internet Mail - это почтовая программа японско
 magnet:?xt=urn:btih:8F594A3103E1EF0D2095C25913B5DC783A4DE38F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ Artisteer - первый и единственный продукт автома
 magnet:?xt=urn:btih:AADA719D351EBFA529C92165E5D583907183447D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ cFosSpeed - это сетевой драйвер, который привязы�
 ```bash
 magnet:?xt=urn:btih:A0DADDB3D7F0A6E9BC00E88F04D1B3B7F6D65CB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +674,8 @@ FlylinkDC++ r503 build 19684 Stable Portable (x64/x86) + Хаблист [Multi/R
 ```bash
 magnet:?xt=urn:btih:096C5B5B05674264E5DA7EA99FB560C4DE100555
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

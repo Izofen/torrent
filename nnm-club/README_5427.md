@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:3615BDEFADB4561027A54EEDA36296F62CEF1398
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:3615BDEFADB4561027A54EEDA36296F62CEF1398
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:3615BDEFADB4561027A54EEDA36296F62CEF1398
 magnet:?xt=urn:btih:5AA40398C573AC095E5E9C948B807FF69CDE062E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:5AA40398C573AC095E5E9C948B807FF69CDE062E
 ```bash
 magnet:?xt=urn:btih:00A2B4267BBA8F2EBB6E5E846D43E12C71D62AFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:00A2B4267BBA8F2EBB6E5E846D43E12C71D62AFB
 magnet:?xt=urn:btih:46E82AE400ACB950D44293B63544A65788D2F29D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:46E82AE400ACB950D44293B63544A65788D2F29D
 magnet:?xt=urn:btih:958B1E592AA1D588DE9BF646F52D26E45564FECA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Pixar Animation Studios | Артбук по мультфильму Лука / Th
 ```bash
 magnet:?xt=urn:btih:80EDF21CE5262D4C8B0B7A80572193B6E3480B21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:80EDF21CE5262D4C8B0B7A80572193B6E3480B21
 magnet:?xt=urn:btih:3813B277BA266C0EA101686C1F68581F6C71CBB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:3813B277BA266C0EA101686C1F68581F6C71CBB0
 ```bash
 magnet:?xt=urn:btih:17EDD220D11045A20AFC98F63235496E85B19558
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:17EDD220D11045A20AFC98F63235496E85B19558
 magnet:?xt=urn:btih:F632BFCAA283CB5EB8B6A6C6E6EFD8B6F858F406
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:F632BFCAA283CB5EB8B6A6C6E6EFD8B6F858F406
 ```bash
 magnet:?xt=urn:btih:5DFD0EBFB3B8ED75C481ED52186ADEF8B6C1E811
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:5DFD0EBFB3B8ED75C481ED52186ADEF8B6C1E811
 magnet:?xt=urn:btih:70477911D6527493F0993A2A9F91E01CADBEE8B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:70477911D6527493F0993A2A9F91E01CADBEE8B9
 ```bash
 magnet:?xt=urn:btih:83C0EA0E9C5FBFB6BCF50B039C605FBACD0E8F25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:83C0EA0E9C5FBFB6BCF50B039C605FBACD0E8F25
 magnet:?xt=urn:btih:849EE224A8A62F01DE4B5524511F26B2394824E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ Walt Disney Animation Studios | Артбук по мультфильму Энк�
 magnet:?xt=urn:btih:E9FDB5173CE345FEAA75A925DA51310815428CBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:E9FDB5173CE345FEAA75A925DA51310815428CBE
 ```bash
 magnet:?xt=urn:btih:DA7728B0427A94D0B8BC16DA54C06FCA879DB65E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:DA7728B0427A94D0B8BC16DA54C06FCA879DB65E
 magnet:?xt=urn:btih:28A583B434AE08E96771ED84C6B3CEBE39F126A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ Wondershare Filmora - удобный видеоредактор, содержа�
 ```bash
 magnet:?xt=urn:btih:D2FA562AFF6A697B62C4B45D09A955F0905AB7AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ Adobe Photoshop 2024 - новая версия программы для обр�
 magnet:?xt=urn:btih:D236E51D8144C790398883676C1ED10B54470B86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:D236E51D8144C790398883676C1ED10B54470B86
 ```bash
 magnet:?xt=urn:btih:9A729439389E7158444810AFD3D799E3E1F6984F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +554,8 @@ Part I:
 magnet:?xt=urn:btih:C318A0B5F5B9D02B96D133B590D7CC8124C26D69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ magnet:?xt=urn:btih:C318A0B5F5B9D02B96D133B590D7CC8124C26D69
 ```bash
 magnet:?xt=urn:btih:772733BED4DECF856795B7A86BBEB3B28A6CECD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ magnet:?xt=urn:btih:772733BED4DECF856795B7A86BBEB3B28A6CECD5
 magnet:?xt=urn:btih:BD22C961CA2A0D99BD9C45DD5D1384DC52562535
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ Adobe Photoshop – многофункциональный графически�
 ```bash
 magnet:?xt=urn:btih:92D366E5927C5056FE6771F672225B6A842E3AD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +661,8 @@ Birdays – Дни рождения 1.5.0 [Ru/Multi]
 magnet:?xt=urn:btih:DF70074CCA857495F8BB7B6B6C2F550D6D2F86D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ Snap Art 4 - этот плагин предназначен для превра�
 ```bash
 magnet:?xt=urn:btih:2BA6E6CFAAF9A5B996012B56C479E8AF8EBFFC3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

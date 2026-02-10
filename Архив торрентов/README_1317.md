@@ -19,6 +19,8 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 magnet:?xt=urn:btih:F22064A99B1BD5CC3178049E6724B989A973DBE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ GPU Caps Viewer - информационная утилита, позволяю�
 ```bash
 magnet:?xt=urn:btih:7F399B5FD85D009F68E196281094D2A4B34354C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ HiBit Uninstaller - идеальное решение для удаления п
 magnet:?xt=urn:btih:0C455D86D9CDF8B7F5167ECEF43401E4608264AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ FontViewOK 8.12 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:318C7192796061D4FE4958FF697E81EF32B464B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Skype - бесплатная программа для текстового, г�
 magnet:?xt=urn:btih:B3E43041F6D278DD75E453B188504B466B0A0562
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ GoldWave - звуковой редактор, предназначенный д�
 ```bash
 magnet:?xt=urn:btih:29BF78959A8D66593A37599C77724E94E77DEA99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Revo Uninstaller Pro 5.2.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:720CEADA4F44C0B2AAC9A555AAA34838C40E544C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Exposure X6 Bundle v6.0.2.124 [EN]
 ```bash
 magnet:?xt=urn:btih:86486A58928B26A3AF2950F21DEE6462F562B438
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ FormatFactory - многофункциональный конвертер раз
 magnet:?xt=urn:btih:5711037F6E31F8862153EF048D949ECC7A803311
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Adobe XD - это новый творческий инструмент от ко
 ```bash
 magnet:?xt=urn:btih:39451DE5217A10D91FB48C98C29C90FAA47DDD2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Triple Triad является популярной карточной игрой
 magnet:?xt=urn:btih:79CDFBB9A65D0EF03A1D513B2EB920503E619ADE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ JRiver Media Center - мультимедийный центр. Воспроиз�
 ```bash
 magnet:?xt=urn:btih:7EE88F457A81712091F9C3866F7D12326FF56990
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Psiphon - это новый инструмент обхода интернет-�
 magnet:?xt=urn:btih:FBDDE66368CC7235243906D4D4B42F75F468360D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Skype предназначен для личного и делового общ�
 ```bash
 magnet:?xt=urn:btih:2255A514C82A16CA6BC3489CE75AA1AA0E39F7F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Windows Slimmer поможет вам в удалении ненужных ко�
 magnet:?xt=urn:btih:F107064FF73706EC4F78911603BC28337A74E62B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Macrorit Partition Expert Unlimited Edition – предоставляет мо�
 ```bash
 magnet:?xt=urn:btih:31B67B46E3BCFA67D3663737F84FA83291105F30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Microsoft Edge – кроссплатформенный веб-браузер н
 magnet:?xt=urn:btih:0F415893B228F9129FE09A347C4826027703307D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Auslogics Driver Updater – программа представляющая с�
 magnet:?xt=urn:btih:BAD73045FE11E0959F8A297A9086AE8711278D70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ Vivaldi 3.5.2115.73 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B2CA4A33E6B77CC0C0E5B9A8CE31F157F5E5F5A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ VSDC Pro создан для тех, кто хочет освоить нелин
 magnet:?xt=urn:btih:693B8F3D3BCD067846F01A876B22F95010A2C550
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Zoc terminal - является довольно известным telnet/SSH/S
 ```bash
 magnet:?xt=urn:btih:DA0F326BEFCF23493B24CFF4358AB401FE485E2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Balabolka 2.15.0.761 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:833BC6597867E2A6954FBE1C765AF1D5AA61F9E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:6DDC11E63279BECC3C6FC37BB123E217C9A11684
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ Adobe InCopy  входит в состав Creative Cloud. Поэтому (   �
 magnet:?xt=urn:btih:810C8F3408B267078B946042D2211C00940C715A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Macrorit Disk Scanner Unlimited - инструмент для проверки �
 magnet:?xt=urn:btih:54A248DC64ECDC521BA9EF640C9EF839DF669396
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Macrorit Partition Extender - утилита, доступная также в �
 ```bash
 magnet:?xt=urn:btih:7B716A31AC7113F82DFCC4E005AEA2F98AA48B75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

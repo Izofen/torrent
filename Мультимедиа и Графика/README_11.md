@@ -19,6 +19,8 @@ DaVinci Resolve — единственное в мире решение для �
 magnet:?xt=urn:btih:3FF3EAC921BC7126BD7FAF3F6D57FBE8D980C800
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Paint.NET - Простой, но мощный и удобный редактор
 ```bash
 magnet:?xt=urn:btih:0812328B2182FB54B35C7D6D56BDC3466A527C9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Topaz Photo AI использует передовые алгоритмы иск
 magnet:?xt=urn:btih:8AA23953288CF1AABACB4E9C3E35F107955DFC24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ MeGUI 2944 Portable by Heisenberg [En]
 ```bash
 magnet:?xt=urn:btih:6A550C95348B6947875AC73D19F5E55D8C2C2228
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Autodesk 3ds Max предоставляет все необходимые инс
 magnet:?xt=urn:btih:1147FD0A9077FF54D40BECC2C7D317C2B888514F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ AQusmatiq Audio - Dedalus Delay  1.1.0 VST 3, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:4BA729EE523AADE1A7A61C76740FFC7C42E99B3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ Telos Drums упрощает этот процесс, так что вы мож�
 magnet:?xt=urn:btih:49ABE12605B309C1E26392B3B1F8C5DD70D252E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ Toon Boom Storyboard Pro - это профессиональное програ�
 ```bash
 magnet:?xt=urn:btih:AA97697624059FF839E72C57DF9BF496E8E546A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ Inkscape – редактор векторной графики. Програм�
 magnet:?xt=urn:btih:CC161F64382B1F6F86D0FB7A0C5878F1A598BA46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ IrfanView - компактная и в то же время мощная про�
 magnet:?xt=urn:btih:F8FB473115A16FCCD51EF33BC6DF21EF0857CE35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ Toon Boom Harmony — профессиональная программа для
 ```bash
 magnet:?xt=urn:btih:97C578396EEF2533706BBFAAF73476462D68A0E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ Ashampoo Photo Optimizer 11.0.0.10 RePack (& Portable) by elchupacabra [Multi/Ru
 magnet:?xt=urn:btih:60252420249A0230884795B45E50D4FEFC7095CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ Video Shaper — это лёгкая в использовании беспла�
 ```bash
 magnet:?xt=urn:btih:90D0E469FD7709E769DB3AFF03A984C5CEBC6218
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ Lightroom объединяет фотографии в «коллекции» �
 magnet:?xt=urn:btih:4F6E7FE357E5F7384B26FFF99C6E9C3E508740F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ Adobe InDesign — профессиональный продукт для про
 ```bash
 magnet:?xt=urn:btih:61129116AEEBD267457F756658684E77CB37B7A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ UniFab - этот комплексный медиа-инструмент от DV
 magnet:?xt=urn:btih:98A78D99AFD852D237391E57FB8129179BB6667C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ Icecream Video Editor - простой редактор видео для Window
 magnet:?xt=urn:btih:E698813644BE2E5F2E8B9361AFEC278F52C6B488
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ Chaos Vantage 2.8.0 [En]
 ```bash
 magnet:?xt=urn:btih:9F953578FA43DBBAFD267BCAD1242066E5388BEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ Novation Bass Station от GForce, оставаясь в (   Читать да�
 magnet:?xt=urn:btih:4A2B67DF5ECB7011CF37C7D06DF99A3DD45F9BAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ GForce Software & Oberheim - TVS Pro 1.0.0 STANDALONE, VSTi, VSTi 3, AAX (x64) [
 ```bash
 magnet:?xt=urn:btih:DA8E5FE63CB033EDFFCA0669D5BD586C3929A90F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ Sub-Lift имеет два невероятно простых в использ
 magnet:?xt=urn:btih:82FC10541A47C551A7B15E30A38795114438F0FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ Bass XXL предлагает более эффективный способ д�
 ```bash
 magnet:?xt=urn:btih:C08718DD0DD2ED36B7BE6C7064261AAF2CEAE3D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ Adobe Photoshop 2024 - новая версия программы для обр�
 magnet:?xt=urn:btih:08943352B5C88790B942BC536B23732E90A0F5A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ Adobe Photoshop 2024 - новая версия программы для обр�
 ```bash
 magnet:?xt=urn:btih:1D006015BFE516A482F0D09380F9E397AE776E8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ Bloom Vocal Choir представляет вам платформу для со
 magnet:?xt=urn:btih:20BBFF41B540A72D92F2E1CD13828382E731F6A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ Jup-8000 V впервые переносит культовый синтезат
 ```bash
 magnet:?xt=urn:btih:62E810E505ACE1856C6208A9AFB702A10B96226C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -21,6 +21,8 @@ The Fall: Last Days of Gaia / The Fall: Последние дни мира + Mod
 magnet:?xt=urn:btih:2A045C7A485FBE29D5A46D0E1D93B5878A4BF6DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Fallout of Nevada - компьютерная ролевая игра по игр
 ```bash
 magnet:?xt=urn:btih:A7FD993CA509A8B41C840D7E8B6EDFD79288B0C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Outward – приключенческая РПГ, события которой
 magnet:?xt=urn:btih:A393A8F5A5A795C8C9CCA368A4446B708C8669CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Gnomes vs. Fairies игра в стиле Hack 'n' slash-Action RPG platformer. 
 ```bash
 magnet:?xt=urn:btih:84BA45974DD4D7929D30BE24FC11F8253818A4AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ GX UltraMoria [Ru] (L/0.9.9c) 1985
 magnet:?xt=urn:btih:F8940ED63C2F80486E1A8A41034F72F7BE9A8012
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Victor Vran - это изометрический ролевой экшен с �
 ```bash
 magnet:?xt=urn:btih:B06B32075336A6CE4964C0289EBA3A5860556DBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Deus Ex: Human Revolution: The Missing Link [Ru] (RePack/1.4.651) 2011 | Audiosl
 magnet:?xt=urn:btih:7F870208A93E1187E38FF2984520B5CCE37569D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Fallout 3 (2009) [Ru] (1.7.0.3/dlc) Repack Other s [Game of the Year Edition]
 ```bash
 magnet:?xt=urn:btih:19BF70BDE08D7FE96B3FEAF784A582CDA88F4F16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ King's Bounty: Crossworlds / King's Bounty: Перекрестки Миров [R
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ AereA – ролевой боевик на музыкальную тематик
 ```bash
 magnet:?xt=urn:btih:7F957ED66C21A50590C2E95EF6CBBDE3E724523C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Bastard (2018) [Ru/En/De] (1.31) Repack Other s
 magnet:?xt=urn:btih:596ABC376A448B225001D98E839DA52FD9D00E58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Haven (2020) [Ru/Multi] (1.1.302/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:7BA3E8B154E30889DA7645ADB641165E74C34742
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Fictorum (2017) [En] (1.1.01) License RELOADED
 magnet:?xt=urn:btih:EC37ED93085EB37F3975EC0B1075846ED757EC33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Agarest: Generations of War (2014) [En] (1.0) License GOG [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:D7F5BC031809E6DE5CF656162F7238184904E663
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ City of Brass (2018) [Ru/Multi] (1.0) Repack xatab
 magnet:?xt=urn:btih:31B4AD4AFA35E5C3E3E80BE68954E54478352F1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ The Witcher 3 Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru] (1
 ```bash
 magnet:?xt=urn:btih:F86AA19D0EA72B4D39E5A52BE1EE237A2C42DC4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Telepath Tactics от независимых разработчиков Fire Emb
 magnet:?xt=urn:btih:176D5912E97A4EC4C9680BC68E8B7598E1B42161
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ HordeCore - крутой сайд-скроллер с элементами бо�
 ```bash
 magnet:?xt=urn:btih:65E74AE1E9FE895433EEFA1E84908E42AE032C7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ StarCrawlers — это сплав из классического Dungeon Crawl
 magnet:?xt=urn:btih:5211E2C79D22CC9DA2AF86E11B69ED0F014AF627
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:5211E2C79D22CC9DA2AF86E11B69ED0F014AF627
 ```bash
 magnet:?xt=urn:btih:FCA3F017AE26F80A9CAC8D27C54240230A9CC7FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ Monster Hunter: World (2018) [Ru/Multi] (1.0 build 166925/dlc) Repack =nemos=
 magnet:?xt=urn:btih:D0CAEC87F6DBDD140105BC8CB3B87F59191551CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ We. The Revolution – это уникальная игра с необычно�
 ```bash
 magnet:?xt=urn:btih:ED79E55DEE70A9D5AAE93F6CA1A5E2894941711B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ magnet:?xt=urn:btih:ED79E55DEE70A9D5AAE93F6CA1A5E2894941711B
 magnet:?xt=urn:btih:FDCFA52543B0168A775F5E372E8C691955B40F13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ Vambrace: Dungeon Monarch (2025) [Multi] (1.0.6e-fix/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:5DD3105BB9DAC578B31B6C1CF6F9EC49ACEE7DBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ Submerged: Hidden Depths — это мирное приключение-иссл
 magnet:?xt=urn:btih:E6860B8F229BB20168294A48D2BCEA3D7E772815
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Fate/Extella Link является продолжением игры Fate/Extell
 ```bash
 magnet:?xt=urn:btih:63F833D585E1506E39BAD6EF9870D1BB9D4A683A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

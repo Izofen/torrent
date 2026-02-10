@@ -1,3 +1,29 @@
+###  Публикация: 1029483   (681962) от 26.06.2016
+
+Энн Ламотт | Маленькие победы. Как ощущать счастье каждый день (2016) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга – удивительное собрание реальных жизненных историй о надежде и радости, любви и прощении, потерях и обретениях. Особенно она будет полезна тем, кто столкнулся с потерями, болью, одиночеством, непониманием. Каждая глава – это мини-эссе о личном опыте автора и тех уроках, которые ей преподает жизнь. Победы над трудностями и болью кажутся порою незначительными, (   Читать дальше...   )Жанр: Самосовершенствование, личностный рост, практическая психологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BFAD36F7D9EA091780877456580B92AF4714AF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029266   (682058) от 26.06.2016
 
 Л. Т. Пинчук, Л. А. Филиппов (сост.) | Календарь атеиста [2-е изд.] (1967) [DJVU]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:BF03ED9CD17BDADF74A4ED3875649FB0BEFD7F38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:BF03ED9CD17BDADF74A4ED3875649FB0BEFD7F38
 ```bash
 magnet:?xt=urn:btih:46E36455F8E22FCAE8D2784C8DC90FECC31A9AA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:46E36455F8E22FCAE8D2784C8DC90FECC31A9AA0
 magnet:?xt=urn:btih:33C16980D7F03D01FD6C006E52DD4303A2DD6F36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +128,8 @@ magnet:?xt=urn:btih:33C16980D7F03D01FD6C006E52DD4303A2DD6F36
 magnet:?xt=urn:btih:A867D8C05E054FF239D6CA1C73653159529E0205
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +154,8 @@ Baidu – китайская компания, предоставляющая в
 magnet:?xt=urn:btih:78D63CCB0A12ABD0813BCCE90144756B4437C1B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:78D63CCB0A12ABD0813BCCE90144756B4437C1B6
 ```bash
 magnet:?xt=urn:btih:5DF686A4DF61F83321D16AFA0E65ABC9589174BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +209,8 @@ magnet:?xt=urn:btih:5DF686A4DF61F83321D16AFA0E65ABC9589174BD
 magnet:?xt=urn:btih:8F035D680E2158FA635F1A6DBFB07FBC26295A84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +235,8 @@ magnet:?xt=urn:btih:8F035D680E2158FA635F1A6DBFB07FBC26295A84
 magnet:?xt=urn:btih:E381A3433EE74DFC496E5C05AC4D85B0DBED134D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:E381A3433EE74DFC496E5C05AC4D85B0DBED134D
 ```bash
 magnet:?xt=urn:btih:540F519F2825C04918E50D2EE5E40203C3C5553C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +289,8 @@ magnet:?xt=urn:btih:540F519F2825C04918E50D2EE5E40203C3C5553C
 magnet:?xt=urn:btih:EF561D8332141E01662E88398A5DFCC5B298FEFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +315,8 @@ magnet:?xt=urn:btih:EF561D8332141E01662E88398A5DFCC5B298FEFB
 magnet:?xt=urn:btih:FB8B1DC30F2BE15CC0668504C7CAE36D31F11E8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +340,8 @@ magnet:?xt=urn:btih:FB8B1DC30F2BE15CC0668504C7CAE36D31F11E8C
 ```bash
 magnet:?xt=urn:btih:8AFFF5D101403ADE7C826F13A719B4B3C9D1F266
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +368,8 @@ magnet:?xt=urn:btih:8AFFF5D101403ADE7C826F13A719B4B3C9D1F266
 magnet:?xt=urn:btih:F49F9FF0254BBDE9C9E82D198E274CE2AA451CF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +394,8 @@ magnet:?xt=urn:btih:F49F9FF0254BBDE9C9E82D198E274CE2AA451CF4
 ```bash
 magnet:?xt=urn:btih:167DB256582B05A1CA8C0FFFDCD1BEB86137781E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +423,8 @@ magnet:?xt=urn:btih:167DB256582B05A1CA8C0FFFDCD1BEB86137781E
 magnet:?xt=urn:btih:27C17A3BB07AA314AEF7E15379E73B42117DC752
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +449,8 @@ magnet:?xt=urn:btih:27C17A3BB07AA314AEF7E15379E73B42117DC752
 magnet:?xt=urn:btih:BECE0135538A3EC0445315CFA54A2CF397371692
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +474,8 @@ magnet:?xt=urn:btih:BECE0135538A3EC0445315CFA54A2CF397371692
 ```bash
 magnet:?xt=urn:btih:1EB90D764CD8147B3EC77971B591E16C87DB5A9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +503,8 @@ magnet:?xt=urn:btih:1EB90D764CD8147B3EC77971B591E16C87DB5A9E
 magnet:?xt=urn:btih:FEEC491C5F4DA35CA7DC9E6718DBB2521B78F477
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +529,8 @@ magnet:?xt=urn:btih:FEEC491C5F4DA35CA7DC9E6718DBB2521B78F477
 magnet:?xt=urn:btih:8EF86272A0608A48802898C058F9631B94CE3842
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +554,8 @@ magnet:?xt=urn:btih:8EF86272A0608A48802898C058F9631B94CE3842
 ```bash
 magnet:?xt=urn:btih:523E8C7D4E4079FF2BEAA6C60555E99EB56DE291
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +585,8 @@ magnet:?xt=urn:btih:523E8C7D4E4079FF2BEAA6C60555E99EB56DE291
 magnet:?xt=urn:btih:190CBA08903B7892B11F314623686AC484FF96BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +610,8 @@ magnet:?xt=urn:btih:190CBA08903B7892B11F314623686AC484FF96BE
 ```bash
 magnet:?xt=urn:btih:3FF58081DE2A8905A3C760C70C8FCF6AEA2249D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +637,8 @@ magnet:?xt=urn:btih:3FF58081DE2A8905A3C760C70C8FCF6AEA2249D2
 magnet:?xt=urn:btih:42C21AD97C51C49EEBBFF42033097D924D071848
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +662,8 @@ magnet:?xt=urn:btih:42C21AD97C51C49EEBBFF42033097D924D071848
 ```bash
 magnet:?xt=urn:btih:77A5001FD34BD780749CE211BAF24FA1691FDCD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,30 +689,7 @@ magnet:?xt=urn:btih:77A5001FD34BD780749CE211BAF24FA1691FDCD0
 magnet:?xt=urn:btih:F67873A90BAF882C33F6D7FD36437C3B9F3BD9FF
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 507487   (683454) от 08.06.2012
-
-Е.А.Крылова | Сверхпростые кулинарные рецепты [2012] [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как часто у нас не хватает времени для того, чтобы полноценно поесть. А приготовить что-то полезное и вкусное дома и подавно…
-В этой книге вы найдете рецепты блюд, оригинальных и вкусных, но очень простых и не требующих много времени для приготовления. С помощью них вы всегда сможете приготовить великолепный ужин для всей семьи, даже в рабочие будни, и не ударите в грязь лицом, если неожиданно нагрянули гости.2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB6A88D6A43F4F335C29259E892E8F6586B4235E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

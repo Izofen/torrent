@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:27BE2A12BE8A68466BAD5F3D21ECB55B749CB427
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Knight Wolf 1981 - R.A.G.E. (2023) [MP3|320 Kbps] <Darksynth, Synthwave>
 magnet:?xt=urn:btih:DB1B74F362314BF60E0E7C96E5EB706CB785C6EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:DB1B74F362314BF60E0E7C96E5EB706CB785C6EE
 ```bash
 magnet:?xt=urn:btih:882A256762050849AFFCF70EFF93B054D754DAE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ Johnny Hallyday - Made in Rock'n'Roll (2023) [MP3|320 Kbps] <Pop-Rock, Rock'n'Ro
 magnet:?xt=urn:btih:B32A2F6777E09D94EB8A50A6B0776674D67F5F14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ The Death Spell - The Death Spell (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:9F17BDBE18BDF08460B45BC060FE7E9A0E205581
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -153,6 +163,8 @@ VA - Bravo Hits 18 (1997) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock>
 magnet:?xt=urn:btih:F82F06B42DF670D858C0A5545C33398FB3F540CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -179,6 +191,8 @@ magnet:?xt=urn:btih:F82F06B42DF670D858C0A5545C33398FB3F540CE
 magnet:?xt=urn:btih:5E5C002396667EFCB392D1EB22047FB488D7F641
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ magnet:?xt=urn:btih:5E5C002396667EFCB392D1EB22047FB488D7F641
 magnet:?xt=urn:btih:53072B1DAF57D7A566C6F3EA86CA25FE9F68860D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 ```bash
 magnet:?xt=urn:btih:632CF724574DFDC63618101C4FA708D34A480148
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ Secret Salt Squad - Ghosts of the Machine (2023) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:10EEC629555869838A457DABC4C64F2A7F7E17E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:10EEC629555869838A457DABC4C64F2A7F7E17E5
 ```bash
 magnet:?xt=urn:btih:2EF27163D94A050117D022C26C6AAC3504A9F3D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -305,6 +327,8 @@ magnet:?xt=urn:btih:2EF27163D94A050117D022C26C6AAC3504A9F3D6
 magnet:?xt=urn:btih:4484D1AB2EFC0AE8B87F241CC9EF8E2E380BE544
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +355,8 @@ VA - The Best Of Hit News Vol.4 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro H
 ```bash
 magnet:?xt=urn:btih:700B376BAF29EA9D57492E5F5BAD5E1C95098CCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +385,8 @@ VA - Oktoberfest Drinking Songs 2023 Traditional German Beer Festival Music (202
 magnet:?xt=urn:btih:EEAD2B65D0012D8FAB1932EDC10A6711E9E3927E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +414,8 @@ VA - Золотые дуэты русского шансона (2010) [MP3|320 K
 magnet:?xt=urn:btih:C7E6B6BD9483C67041391FFB3BD62B7925D750DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +439,8 @@ magnet:?xt=urn:btih:C7E6B6BD9483C67041391FFB3BD62B7925D750DD
 ```bash
 magnet:?xt=urn:btih:BAE23D410A907A82501852652FA1113F28BDFCAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +468,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:01B4ABE14D2FA301CE7BA6F74398719F65AF9F92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +493,8 @@ magnet:?xt=urn:btih:01B4ABE14D2FA301CE7BA6F74398719F65AF9F92
 ```bash
 magnet:?xt=urn:btih:A5AB771476346088F84A3E8CB28DBD04C5DCBDDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +523,8 @@ Zmey Gorynich - V​ж​и​ц​а (2022) [FLAC|Lossless|image + .cue] <Folk 
 magnet:?xt=urn:btih:8137FE57834B95A8ED3A71C66018026D93351048
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +548,8 @@ Floorp Browser – это модифицированная версия Firefox,
 ```bash
 magnet:?xt=urn:btih:C1770F5213054DAEB3F223A01B4D88A967FB588B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +575,8 @@ Ungoogled Chromium - версия веб-браузера Chromium без инт
 magnet:?xt=urn:btih:A02AFD5E55A7A955F62731DE453ED8E2C7CAC0AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +600,8 @@ magnet:?xt=urn:btih:A02AFD5E55A7A955F62731DE453ED8E2C7CAC0AD
 ```bash
 magnet:?xt=urn:btih:39A0FC041BF36E51687E31B7290745355AAA6107
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +627,8 @@ magnet:?xt=urn:btih:39A0FC041BF36E51687E31B7290745355AAA6107
 ```bash
 magnet:?xt=urn:btih:3B34BF3FE0F465D7BD98648BE56CB916A8C0BEF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +657,8 @@ magnet:?xt=urn:btih:3B34BF3FE0F465D7BD98648BE56CB916A8C0BEF1
 magnet:?xt=urn:btih:9D3F59ADCAB0077DF17692F102CA2B4971FEBEF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +682,8 @@ magnet:?xt=urn:btih:9D3F59ADCAB0077DF17692F102CA2B4971FEBEF8
 ```bash
 magnet:?xt=urn:btih:3B76805A1E0B7D87B336EE48A8F7F36A7F0CD493
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -660,6 +710,8 @@ magnet:?xt=urn:btih:3B76805A1E0B7D87B336EE48A8F7F36A7F0CD493
 ```bash
 magnet:?xt=urn:btih:3DE17C8A5F0599EE7778C5EA3A44141B91C50D94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

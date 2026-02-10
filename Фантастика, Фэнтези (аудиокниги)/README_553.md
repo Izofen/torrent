@@ -1,3 +1,32 @@
+###  Публикация: 1609821   (1042883) от 05.02.2023
+
+Макс Гудвин | Чужая тень. Книга 3 (2022) [MP3, Георгий Арсеньев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042883.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Чужая тень" - фантастический роман Макса Гудвина, третья книга одноименного цикла, жанр боевое фэнтези, приключенческое фэнтези, РеалРПГ.
+Я был избран тенью, но родился с искрой.
+Я прошёл сквозь орды мёртвых, но еще больше ощутил себя живым.
+Тёмный мир заметил меня — ведь там, где не бывает света, даже крохотная искра может показаться солнцем.(   Читать дальше...   )Жанр: Боевое фэнтези, РеалРПГПродолжительность: 08:34:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:876F623D710F7B4F42726502E78E78728DEC8F21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436706   (1043023) от 01.01.2021
 
 Ингви Акисон | Архивариус (2020) [MP3]
@@ -19,6 +48,8 @@
 ```bash
 magnet:?xt=urn:btih:C16A4B4F95A819EE853B2AB73CCD39561992A113
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +75,8 @@ magnet:?xt=urn:btih:C16A4B4F95A819EE853B2AB73CCD39561992A113
 ```bash
 magnet:?xt=urn:btih:EE9845EDFF68F3DC29FC05F8392DB0954E6336B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +105,8 @@ magnet:?xt=urn:btih:EE9845EDFF68F3DC29FC05F8392DB0954E6336B4
 magnet:?xt=urn:btih:9D1588B44A8D56BED501BD8C16730BB0A086AE39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +134,8 @@ magnet:?xt=urn:btih:9D1588B44A8D56BED501BD8C16730BB0A086AE39
 magnet:?xt=urn:btih:A54D6D7206D5428009381C1AAB6AE48CBE484092
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +159,8 @@ magnet:?xt=urn:btih:A54D6D7206D5428009381C1AAB6AE48CBE484092
 ```bash
 magnet:?xt=urn:btih:B4EA5D0EA3D899DAE03238477B65495A88D57B21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +188,8 @@ magnet:?xt=urn:btih:B4EA5D0EA3D899DAE03238477B65495A88D57B21
 magnet:?xt=urn:btih:65BE1D8F8C7874156DDBE45C005456967667BCFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +213,8 @@ magnet:?xt=urn:btih:65BE1D8F8C7874156DDBE45C005456967667BCFE
 ```bash
 magnet:?xt=urn:btih:9553C28379206993CBF355367A543725F92A4D91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +240,8 @@ magnet:?xt=urn:btih:9553C28379206993CBF355367A543725F92A4D91
 magnet:?xt=urn:btih:FDBC0DB6801C4FD70FF29816B8FD645FC379D8C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +265,8 @@ magnet:?xt=urn:btih:FDBC0DB6801C4FD70FF29816B8FD645FC379D8C8
 ```bash
 magnet:?xt=urn:btih:98E2B6B2523C97F6D1A3DA95E8FB9A14053A616A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +295,8 @@ magnet:?xt=urn:btih:98E2B6B2523C97F6D1A3DA95E8FB9A14053A616A
 magnet:?xt=urn:btih:5A4E17B7180E630EA6351B9E9CD606398E8332A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +321,8 @@ magnet:?xt=urn:btih:5A4E17B7180E630EA6351B9E9CD606398E8332A2
 magnet:?xt=urn:btih:99AD4C4DDA654373F164D6D23E2B61D70AFE98BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +346,8 @@ magnet:?xt=urn:btih:99AD4C4DDA654373F164D6D23E2B61D70AFE98BA
 ```bash
 magnet:?xt=urn:btih:0516AFEFA26D8ABB0140A57B7E0E7553AA540F23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +375,8 @@ magnet:?xt=urn:btih:0516AFEFA26D8ABB0140A57B7E0E7553AA540F23
 magnet:?xt=urn:btih:C49D08941D60B7BA15956BDF979BBD5F22985B57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +400,8 @@ magnet:?xt=urn:btih:C49D08941D60B7BA15956BDF979BBD5F22985B57
 ```bash
 magnet:?xt=urn:btih:E6DF91E9D385AB3DAA02AE3DA96E0E27339F8D34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +427,8 @@ magnet:?xt=urn:btih:E6DF91E9D385AB3DAA02AE3DA96E0E27339F8D34
 magnet:?xt=urn:btih:967EC5CAE6B757CA05C38216AAED4AC810A551FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +452,8 @@ magnet:?xt=urn:btih:967EC5CAE6B757CA05C38216AAED4AC810A551FB
 ```bash
 magnet:?xt=urn:btih:06C0476F67E2E3004B1F0839C1D35405C4688948
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +479,8 @@ magnet:?xt=urn:btih:06C0476F67E2E3004B1F0839C1D35405C4688948
 magnet:?xt=urn:btih:0D22612FBECE28B3C29FCB55429F3FF7B21BCBEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +504,8 @@ magnet:?xt=urn:btih:0D22612FBECE28B3C29FCB55429F3FF7B21BCBEA
 ```bash
 magnet:?xt=urn:btih:E1465417F400AD653B49759135813342D4A61353
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +531,8 @@ magnet:?xt=urn:btih:E1465417F400AD653B49759135813342D4A61353
 magnet:?xt=urn:btih:83E1FEA00D7530E5AC4D88A010988034E007C4EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +556,8 @@ magnet:?xt=urn:btih:83E1FEA00D7530E5AC4D88A010988034E007C4EF
 ```bash
 magnet:?xt=urn:btih:6547582E4664E81ACFD96E569CBB7C2B35698EB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +586,8 @@ magnet:?xt=urn:btih:6547582E4664E81ACFD96E569CBB7C2B35698EB3
 magnet:?xt=urn:btih:7941D09EA4752449C72DC444AF6A313591642981
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +611,8 @@ magnet:?xt=urn:btih:7941D09EA4752449C72DC444AF6A313591642981
 ```bash
 magnet:?xt=urn:btih:F566A072536DC2BAEDC3773A7CC2523D90260C9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +639,8 @@ magnet:?xt=urn:btih:F566A072536DC2BAEDC3773A7CC2523D90260C9D
 magnet:?xt=urn:btih:EAC5F81093455B641BF5DBD969CF82B6B43CF814
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +664,8 @@ magnet:?xt=urn:btih:EAC5F81093455B641BF5DBD969CF82B6B43CF814
 ```bash
 magnet:?xt=urn:btih:254ABFE5D9377D445ACE1D89232BA32C4476A210
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,29 +691,7 @@ magnet:?xt=urn:btih:254ABFE5D9377D445ACE1D89232BA32C4476A210
 magnet:?xt=urn:btih:D589C3C71C18D4197CF35BE0E339EFC132E832E4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606013   (1044591) от 20.01.2023
-
-Виктор Моключенко | Система Иерархии (Книга 1). Стажер. Система Иерархии (2022) [MP3, Виктор Моключенко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044591.jpg" />
-</div>
-
-
-###  Подробнее
-
-Система Иерархии, это цикл мистических рассказов-притч о Небесной Иерархии, в христианском ее представлении, которая опекает наше грешное человечество и борется за спасение, эволюцию каждой человеческой души... Притчи о посмертии, выборе, судьбе и надежде...Жанр: фантастика, фэнтезиПродолжительность: 01:57:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D8B423F31B6ADF8F8F255AAF8DF8A54DE548645
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

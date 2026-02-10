@@ -19,6 +19,8 @@ Root Explorer или Root Проводник - это отличное прил�
 magnet:?xt=urn:btih:3A774A719DBC1B7E6909F03FEF3A34C07B7E0BF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Skype - бесплатная программа для текстового, г�
 ```bash
 magnet:?xt=urn:btih:C9DA5B47B4DC72D6893CF285E64CF2DDB0F1D3E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Registry Finder - простая в использовании утилита д
 magnet:?xt=urn:btih:C2F1C60BA7E0F8D4E7598AAB1C057B1C92D18E7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Visual Studio Enterprise 2022 - Интегрированное комплекс�
 ```bash
 magnet:?xt=urn:btih:F8305E282F59243DE4A5F3FB6BD41CE5C4C4B337
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Rename Expert - программа предназначена для быстр�
 magnet:?xt=urn:btih:636987796ABF30BC4704B95E1E6F9F9470957927
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Etcher – простое и надежное приложение для зап
 ```bash
 magnet:?xt=urn:btih:8983A97A6F80EC8CAB60314D6E621EF585D69EF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ VPN Inf - быстрый, безопасный и безлимитный VPN
 magnet:?xt=urn:btih:6626696BC27FA324C21CFA5E311023A72AA1CF19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ YouTube ReVanced - это реинкарнация проекта YouTube Vanced
 ```bash
 magnet:?xt=urn:btih:4BED8CDB8CDFB1B2F4B3B77B662097B2ABFC1945
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ MEmu позволит играть в любимые игры на персон�
 magnet:?xt=urn:btih:418AE6737CBA631ACBDA3DA1B8E0A953F11B4C7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Lacey -  простой инструмент для поиска и скачив
 magnet:?xt=urn:btih:79DA295AAA6EDB024A770A29C77A3504B350F87B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ The KMPlayer – это мощный мультимедиа проигрыват
 ```bash
 magnet:?xt=urn:btih:47C5AE7CC977BEDBDE3296877644D4800A12F87E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ SQLite Expert Professional – мощный визуальный инструм�
 magnet:?xt=urn:btih:BA4BC19A7730EE88F3C01E4A290A5FD3CBB841B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:20BBA400F2BD645D9C9662CFA6FD82D4BDE73E24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Wondershare PDFelement - программа для общего редактир
 magnet:?xt=urn:btih:2D30D20BEEECF8CB57C57A2B012F82BCB6A74A2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:DD4C6459838BF366313A9220C1A987AADF167F49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Audacity - свободный, простой в использовании зв
 magnet:?xt=urn:btih:D2F990EBBE8D91A0A70D6C4E2A6B297CAD2269F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ MAXON CINEMA 4D – простая в использовании професс�
 ```bash
 magnet:?xt=urn:btih:A304B8399EE0B3AA0DFDC7D1F1E7F44A89AC2396
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ LibreWolf как раз решает (   Читать дальше...   )Язы
 magnet:?xt=urn:btih:BF95380FACFB97BD98D9F323ED30AB0BC3F7B7BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Windows Update Viewer 0.5.19.0 + Portable [En]
 ```bash
 magnet:?xt=urn:btih:6787544E25EC8CA5889B64BA565C1A7B0EDBA122
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ Opera GX - это специальная версия браузера Opera, с
 magnet:?xt=urn:btih:E82B82BC0C3793655414ED31039E1B93D82F65FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ Opera GX - это специальная версия браузера Opera, с
 magnet:?xt=urn:btih:088EE4DF543BD68E5289610D0B62DD4095BF4E68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ IObit Uninstaller Pro представляет собой удобный инс�
 ```bash
 magnet:?xt=urn:btih:579B385841B8CE8972C026C6C118B6CDE7672B51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ FontViewOK 8.33 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:AB504BC0F0F530BD27A70C9FDB6574ED1B313ED3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 ```bash
 magnet:?xt=urn:btih:8555FA7241D2FD7CCED0345D6949A4293CABC8C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ Everything – это поисковый движок для Windows. Everything
 magnet:?xt=urn:btih:FE7A0E269C85DE8154E0E93BEFF70D7CBAB31714
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Win10 All Settings 2.0.3.32 (x64) Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A25E3119D0B341A847F0B0EA0D9C4F9DD62DCF54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

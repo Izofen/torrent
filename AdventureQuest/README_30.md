@@ -19,6 +19,8 @@ Don't Stare - это сюжетный стелс-платформер, в кот
 magnet:?xt=urn:btih:23AB8664CCCB5D347C56604204A80F2707663E0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Perennial Order - это 2D-игра в жанре растительного у
 ```bash
 magnet:?xt=urn:btih:337AA277D70938EB981614775D34FAB4B758C20B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15473676/dlc) Repack DjDI [D
 magnet:?xt=urn:btih:96F89F2716D9EB79BE0143BB9FC8AA56A30A2EDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Sunset Hills - это нарисованная от руки игра-голов
 ```bash
 magnet:?xt=urn:btih:692F754DC5A9BE3D4BFA51EB846625A2EA19FF5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Sunset Hills - это нарисованная от руки игра-голов
 magnet:?xt=urn:btih:06CA37C83119A9FBB094106846A395EAA4048A91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15473676/dlc) Scene FairLigh
 ```bash
 magnet:?xt=urn:btih:993FBC8963FD4ABCD0F6A93E1813BB22745B2788
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Date Z - это визуальный роман, который сочетает
 magnet:?xt=urn:btih:A91CC3480D5F93A7DFFF1DDAB51988AA545D4227
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ I Wani Hug that Gator! погружает вас в жизнь Инко, ста�
 ```bash
 magnet:?xt=urn:btih:3B744720A9BA2A4FFC48119DE6ED728D41515090
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:3B744720A9BA2A4FFC48119DE6ED728D41515090
 magnet:?xt=urn:btih:B4C4D2DBB49279389D19E31397C9F0FB7281F7D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Wild West Dynasty (2023) [Ru/Multi] (1.0.9064) Repack FitGirl [Settler Edition]
 ```bash
 magnet:?xt=urn:btih:F791E7B2FE33F523C07D4235F9E88F7CB8C206D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Bewitching Sinners бросает вас в хаотичный фантасти�
 magnet:?xt=urn:btih:F83BD9FF67AD54BB37702BEE4E5EB07DC6041B5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ No Return (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:651630BE8AAFB5667C1E9BD2EB01DA544EF8C1B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ NARIBIKIMURA (2024) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:D6757824FA21496FDB24F7A79A23E47442AC1387
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Nancy Drew: Last Train to Blue Moon Canyon - детективная игра п�
 ```bash
 magnet:?xt=urn:btih:1610B7704BDEF3910C0AFDA1D7ACD26CD6A78C31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Nancy Drew: The White Wolf of Icicle Creek - приключенческая иг
 magnet:?xt=urn:btih:A14E4DE99D7F4D0C8CC169E03D5DE5D05F20F4AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ KONOSUBA - God's Blessing on this Wonderful World! Love For These Clothes Of Des
 ```bash
 magnet:?xt=urn:btih:A4A4500569D1D762914EAB0B0A7A65A7CA99C43E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Alter Ego (2010) [En] (1.0) Scene Skidrow
 magnet:?xt=urn:btih:4E6B969146BF74CA81B506DEDF2D1098529F89DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Highwater переносит игроков в недалекое и мрачн�
 ```bash
 magnet:?xt=urn:btih:1B1D60287D7FD583D4219000F9B968A4247B1B2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Fireside – окунитесь с головой в добрый игровой
 magnet:?xt=urn:btih:04E191E4B51A239202086A4E79C7130547CF5379
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Crypt Custodian - очаровательная метроидвания, нап�
 ```bash
 magnet:?xt=urn:btih:B8C8F9AD67C9B9EBBBACEEB2788AD24392D5134E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Sunny Cafe (2021) [Multi] (1.1) License GOG
 magnet:?xt=urn:btih:72CE0FAA78879DDC7B1A39B5D4E62BBD061BBB70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Dark and Deep (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:181406E554DF2638E775C010A56ACF95379DDA74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Selene's Unbearable Night (2023) [Ru/Multi] (1.0) Repack Decepticon
 magnet:?xt=urn:btih:E2C527A03CE0EDB948E0F85FC9FD265FC0315D10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ The Lord of the Rings: Return to Moria (2024) [Multi] (1.3.2.157411) Scene Rune
 ```bash
 magnet:?xt=urn:btih:0ECA5CA2700311FDF75B44C94BCE062843DB89B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ The Dawning Clocks of Time Remake (2024) [En] (1.0.4.0820.26) License GOG
 magnet:?xt=urn:btih:696549DC99FBEDCC4A71949016802E0FFE0A329B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Debtors' Club (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:4C7FEEA9703A3CA837DBC24BCA0FF43B05906C80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

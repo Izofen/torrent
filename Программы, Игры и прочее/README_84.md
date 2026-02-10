@@ -19,6 +19,8 @@ Mi Band 7 Циферблаты - проект преимущественно о�
 magnet:?xt=urn:btih:720CFD5C7B7F6F245EAAB9CBFE6467786FFB2D65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BetterSleep: Сон и Медитация - программа для тех, к
 ```bash
 magnet:?xt=urn:btih:2AD6FB010E68704AB9D4C9D495F11A8898854F87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:2AD6FB010E68704AB9D4C9D495F11A8898854F87
 magnet:?xt=urn:btih:6A95838A6D8926E5669B7E3515F1454222AD22B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:6A95838A6D8926E5669B7E3515F1454222AD22B8
 ```bash
 magnet:?xt=urn:btih:BBA735701C3A875036D610CCBF5903F6259604C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Total Commander - Android-версия культового файлового �
 magnet:?xt=urn:btih:4C7415546D33E1D7A72EEE4DE85E7FD75F4F5ADE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Always On Edge - отличный проект для персонализаци
 magnet:?xt=urn:btih:160A8F519992D86C832452D03A465D0EF85E7F75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ Pawxy: Fast VPN & Browser 1.4.3 Mod by ANiK555 [Ru]
 ```bash
 magnet:?xt=urn:btih:9DBF52887E83602DC8D2A4C515A87E3F078CB264
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:9DBF52887E83602DC8D2A4C515A87E3F078CB264
 magnet:?xt=urn:btih:948E86D29B7CC51136C83DCC5C8D81C55735C1B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ XFolder File Manager - отличный представитель катего�
 ```bash
 magnet:?xt=urn:btih:40DF12073102B5703F8D51357A1AAB556991D954
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ exFAT/NTFS for USB by Paragon 3.6.0.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:18D855847B4998A69629E213DD54D37C8F843663
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Smart Driver – удобный радар камер и ДПС, а так же 
 magnet:?xt=urn:btih:99F79A54D32BBA0684F6A1EF8B78A03628F091D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ Projectivy Launcher - приложение, что пригодится всем
 ```bash
 magnet:?xt=urn:btih:7351B84943397F3F528BAE9E9BA41EA9FBD5077B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ Idea Share / Передача файлов WiFi v1.3.14 [Ru/Multi]
 magnet:?xt=urn:btih:67699A96CD7FFBA46A2CA736C42935AC7AD7777E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:67699A96CD7FFBA46A2CA736C42935AC7AD7777E
 ```bash
 magnet:?xt=urn:btih:F7A45B0FAD4EA75FCAA14BF66E553A842EEB9F1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ Alight Motion - это первое предназначенное для сма
 magnet:?xt=urn:btih:F12411F0EBC958478A1F458FB1EE40C99F10ED69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Videoleap by Lightricks - весьма впечатляющий своими к�
 ```bash
 magnet:?xt=urn:btih:C11B3C12BD8EEA799570CC58F9AB8EAFF7581BB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:C11B3C12BD8EEA799570CC58F9AB8EAFF7581BB6
 magnet:?xt=urn:btih:E5AC79482F72991488D209E49B16A97F5D28F3A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ VPN RedCat – лучшее приложение для Андроид
 ```bash
 magnet:?xt=urn:btih:18F003B4AB56FC99A423FC84EF40B3E656FAB87E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ VPN service - VPN Beaver Proxy 2.31 [Ru]
 magnet:?xt=urn:btih:197CBFD61654AE67D395BCFAE91EE9310FEBB0E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:197CBFD61654AE67D395BCFAE91EE9310FEBB0E1
 ```bash
 magnet:?xt=urn:btih:0F1BB046D82AC2A37BFE63D5B7B0F9BBE2067FAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:0F1BB046D82AC2A37BFE63D5B7B0F9BBE2067FAD
 magnet:?xt=urn:btih:3BC8830758F99C861390A2F3E2E0F77999B91A22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ Daylio - Mood Tracker / Дневник - Трекер Настроения v1.53
 ```bash
 magnet:?xt=urn:btih:56A8B600848B5887E1E1F1029324030AE9518E34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ Human Anatomy Atlas 2023 v2023.0.09 [En]
 magnet:?xt=urn:btih:DC33895AFF2265F0810238D1CD35AA1937241137
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:DC33895AFF2265F0810238D1CD35AA1937241137
 ```bash
 magnet:?xt=urn:btih:7CFD8C79FDA4DEBDD7E48886F777F326716F1F44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ DjVu Reader & Viewer (читалка дежавю на русском языке
 magnet:?xt=urn:btih:03BF956A0328C2217F00490383DB20072205E722
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:03BF956A0328C2217F00490383DB20072205E722
 ```bash
 magnet:?xt=urn:btih:31912C77C608C8E38AC9774B920D6C100C304DCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

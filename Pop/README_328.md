@@ -1,3 +1,148 @@
+###  Публикация: 983561   (943621) от 06.02.2016
+
+Владимир Пресняков - Звездная серия (1999) [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Странник 04:25
+02. Стюардесса по имени Жанна 04:03
+03. На крылечке вдвоем 02:53
+04. Курочка Ряба 03:07(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6DA8E287431CFB3AE52069A17AA33C95E0CF01E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983382   (943675) от 06.02.2016
+
+Nina Nesbitt - Modern Love (2016) EP [FLAC|Lossless|tracks] <Pop, Indie Pop, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая шотландская поп-певица Nina Nesbitt, 5 февраля 2016 года представила свой новый мини-альбом, который получил название "Modern Love".01. Chewing Gum (03:20)
+ 02. Take You To Heaven (04:00)
+ 03. Masquerade (Niightwatch Demo) (03:34)
+ 04. Chewing Gum (Niightwatch Demo) (03:34)(   Читать дальше...   )Жанр: Pop, Indie Pop, Female VocalПродолжительность: 00:20:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A3EC11C20045F3F165EA793CBDCD41CC35805E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363295   (943706) от 27.02.2020
+
+VA - Самый русский хит 2: Пляски до упаду! (1998) [FLAC|Lossless|image + .cue] <Pop, Folk>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Надежда Кадышева и Золотое Кольцо - Я сама любовь (2:21)
+02. Дмитрий Донской - Моё солнышко (3:05)
+03. Балаган Limited - Соловьи поют, заливаются (3:27)
+04. Белый День - Уху я варила (2:57)(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7568F3130FD12D4F60BA2187B1275CDE5B5A5E45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363284   (943711) от 27.02.2020
+
+VA - Георгий Мовсесян • Мои друзья-мое богатство! (2004) [FLAC|Lossless|tracks + .cue]<Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Советская эстрада, РетроПродолжительность: 00:43:21Трэклист: 01. Вахтанг Кикабидзе - Мои года
+02. Иосиф Кобзон - Моим друзьям
+03. Анне Вески - Две печали
+04. Юрий Никулин - Товарищ инспектор, простите!(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8232ABF9E41CF509ABA2DBEEDCD9721C0A73D2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983283   (943729) от 06.02.2016
+
+Monica Naranjo - Lubna (2016) [FLAC|Lossless|tracks + .cue] <Latin,  Rock, Classical>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943729.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	Lasciatemi Qui 3:38
+2	Apocalitica 2:55
+3	Ya Esta Bien 6:52
+4	Perdida 4:58(   Читать дальше...   )Жанр: Latin,  Rock, ClassicalПродолжительность: 01:07:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAA385A7EAD105C25164A31FFC6A4046ABE5D141
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363288   (943752) от 27.02.2020
 
 Екатерина Разумовская - Остановка сердца (2005) [FLAC|Lossless|tracks + .cue]<Pop>
@@ -21,6 +166,8 @@
 ```bash
 magnet:?xt=urn:btih:38F245DDEB55A5C84936D7B9F9EE8FEABBA05578
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +196,8 @@ magnet:?xt=urn:btih:38F245DDEB55A5C84936D7B9F9EE8FEABBA05578
 magnet:?xt=urn:btih:FEA2342BC7EFB921E8C62BE5D09E9F4EEBD26A2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +225,8 @@ Do Piano - Again & Forever (2009) [FLAC|Lossless|image + .cue] <Italo-Disco, Syn
 magnet:?xt=urn:btih:37E577D7ECBE8FC28584ED82A8D657609B90C080
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +250,8 @@ Zayn - Pillowtalk (2016) Single [MP3|320 кб/с] <Pop, R&B>
 ```bash
 magnet:?xt=urn:btih:956B4F88460E237F62AB33D53D9D4CBC30BD8E48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +280,8 @@ magnet:?xt=urn:btih:956B4F88460E237F62AB33D53D9D4CBC30BD8E48
 magnet:?xt=urn:btih:25D73FB6FFB703CE85F2C4C6E32CECA72FDBC3E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +308,8 @@ magnet:?xt=urn:btih:25D73FB6FFB703CE85F2C4C6E32CECA72FDBC3E1
 ```bash
 magnet:?xt=urn:btih:7A1432930D1AE22A0C12A2C664AEB896560735F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +338,8 @@ magnet:?xt=urn:btih:7A1432930D1AE22A0C12A2C664AEB896560735F5
 magnet:?xt=urn:btih:7F8D668BAD7419A1597650496B163099A75B981D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +366,8 @@ magnet:?xt=urn:btih:7F8D668BAD7419A1597650496B163099A75B981D
 ```bash
 magnet:?xt=urn:btih:FA3ED442DDFC0845F88B7FC09315D02E741D5DE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +396,8 @@ magnet:?xt=urn:btih:FA3ED442DDFC0845F88B7FC09315D02E741D5DE9
 magnet:?xt=urn:btih:3A2DE2F6A02B567D103A1FB152541EEBEC3DB314
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +424,8 @@ magnet:?xt=urn:btih:3A2DE2F6A02B567D103A1FB152541EEBEC3DB314
 ```bash
 magnet:?xt=urn:btih:0D5FE3186A2C535BA3351299146CC48697077497
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +454,8 @@ magnet:?xt=urn:btih:0D5FE3186A2C535BA3351299146CC48697077497
 magnet:?xt=urn:btih:B6E584327DE146D8E2259E538EE3E1587899FA38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +483,8 @@ magnet:?xt=urn:btih:B6E584327DE146D8E2259E538EE3E1587899FA38
 magnet:?xt=urn:btih:808F4F7BBC654B9F0422C0554F7D3BDD312AF404
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +508,8 @@ magnet:?xt=urn:btih:808F4F7BBC654B9F0422C0554F7D3BDD312AF404
 ```bash
 magnet:?xt=urn:btih:45EFD25446B39316E01AC149B6C0E7DF9FE3F34B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +538,8 @@ magnet:?xt=urn:btih:45EFD25446B39316E01AC149B6C0E7DF9FE3F34B
 magnet:?xt=urn:btih:EB1D1C022BFD4C4F9FF9B7EC138FE333555BBE8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +563,8 @@ magnet:?xt=urn:btih:EB1D1C022BFD4C4F9FF9B7EC138FE333555BBE8C
 ```bash
 magnet:?xt=urn:btih:272E896C65E9F4226176C8381E3A352E1C96F938
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +593,8 @@ Charlie Puth - Nine Track Mind (2016) Deluxe [MP3|320 Kbps] <Pop, R&B, Soul>
 magnet:?xt=urn:btih:1D565932AB96BE342B1A92F8BCD6DCE9D1F70E10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +621,8 @@ Ibiza Dance Party - Big Ibiza Dance Mix (2017) [MP3|320 Kbps] <Euro Dance, Pop D
 ```bash
 magnet:?xt=urn:btih:D264E3EB9A2C9881CE42575D367E7A0F49839DDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +651,8 @@ Rumer - The Magic of Sarah Joyce (2017) [MP3|320 Kbps] <Female vocal>
 magnet:?xt=urn:btih:A67842DCA458188110E60B13B127EC5E53D071FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +679,8 @@ Chilly - For Your Love(1978)-Come To L.A(1979)-Secret Lies(1982) [FLAC+Cue|940 k
 ```bash
 magnet:?xt=urn:btih:518B8467F9DEB7EE9AD5F832F96225986A162BDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +709,8 @@ Chilly - Showbiz (1980) [FLAC|951 Kbps]<Pop/Disco>
 magnet:?xt=urn:btih:E1A79599E88E86ED8CF9BD08D4F2E4BCEEE78950
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,140 +735,7 @@ Adele - When We Were Young (2016) Single [MP3|320 кб/с] <Pop>
 magnet:?xt=urn:btih:1441474AFB0306FE70C588D876D3F769E10B3B59
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982933   (945295) от 05.02.2016
-
-Suzanne Vega - Retrospective: The Best Of Suzanne Vega (2003) [FLAC|Lossless|image + .cue] <Folk Rock, Indie Rock, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luka
-02. Tom's Diner (DNA Featuring Suzanne Vega)
-03. Marlene On The Wall
-04. Caramel(   Читать дальше...   )Жанр: Folk Rock, Indie Rock, Pop RockПродолжительность: 01:17:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B90DF1F2C3F1162E88EBC306ED04C4514B1DF48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363045   (945332) от 26.02.2020
-
-Discognosis - Discognosis (1977) LP [MP3|320 Kbps] <Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект от авторов и продюсеров Rinder & Lewis.01. Discognosis (4:41)
-02. Poison Ivy (3:24)
-03. One On One (4:14)
-04. Step By Step (2:57)(   Читать дальше...   )Жанр: Funk Soul, DiscoПродолжительность: 00:28:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ACE9A5E8CD8BB0405EB3172EF4FA0FAA78B17BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983140   (945468) от 05.02.2016
-
-VA - It Had To Be You • The Ultimate Love Songs (2014) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Pop Rock, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Coldplay - Fix You [4:55]
-02.Lily Allen - Somewhere Only We Know [3:30]
-03.Gabrielle Aplin - The Power Of Love [4:06]
-04.Labrinth feat. Emeli Sande - Beneath Your Beautiful [3:58](   Читать дальше...   )Жанр: Pop, Pop Rock, Ballad |Продолжительность: 03:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08D0908087D68FDC080EAFDB9A12133EBB0453CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983127   (945545) от 05.02.2016
-
-Beach House - Teen Dream (2010) [MP3|320 кб/с] <Dream Pop, Indie Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zebra (04:41)
-02. Silver Soul (04:51)
-03. Norway (03:49)
-04. Walk In The Park (05:14)(   Читать дальше...   )Жанр: Dream Pop, Indie RockПродолжительность: 00:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCE8C109D668DE2B73928C83FEDE2F5D5DE23B50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063973   (945585) от 07.01.2017
-
-Наталья Ветлицкая - De Luxe Collection (2002) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Половинки
-02. Я жду звонка
-03. Грусть
-04. Мальчики(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6DA37087B91B96DA74D64420825AA1E7F9EDE7F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

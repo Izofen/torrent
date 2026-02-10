@@ -19,6 +19,8 @@ IrfanView - компактная и в то же время мощная про�
 magnet:?xt=urn:btih:7CC95C64D00C4D86BAE3B13E6536A631E99FDEF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ MassTube Plus — очень простая в использовании про
 ```bash
 magnet:?xt=urn:btih:01C6B4C59E3A22E93FA999AE04258730B23A25C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:01C6B4C59E3A22E93FA999AE04258730B23A25C4
 magnet:?xt=urn:btih:31066F1DECE089D05F2B36CB68E5CC044F14F8A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:31066F1DECE089D05F2B36CB68E5CC044F14F8A4
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:31066F1DECE089D05F2B36CB68E5CC044F14F8A4
 magnet:?xt=urn:btih:31C49126C0BD7B8E5367F40C292533677A65421C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:31C49126C0BD7B8E5367F40C292533677A65421C
 magnet:?xt=urn:btih:04152DAC7FEB455BB5978347C758CF0F0E08E7A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:04152DAC7FEB455BB5978347C758CF0F0E08E7A9
 ```bash
 magnet:?xt=urn:btih:0500154977EA926F37A5CF5AB0EBDDC29C3E7571
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:0500154977EA926F37A5CF5AB0EBDDC29C3E7571
 magnet:?xt=urn:btih:8F2B8B5C3782B9BCF1E979215AF0062E05B4E4DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Amrita no Kyouen | Праздник Амриты [2023, Movie] WEBRip 1080p raw
 ```bash
 magnet:?xt=urn:btih:20F92C25B03F5DE6E73C429C95A59C82442C416A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:20F92C25B03F5DE6E73C429C95A59C82442C416A
 magnet:?xt=urn:btih:1A54B760C0070EF008E3A4B1BDAE569392C6396D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:1A54B760C0070EF008E3A4B1BDAE569392C6396D
 magnet:?xt=urn:btih:D71A4DFAA12AC869EA1F4E7121FB25D749A220B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:D71A4DFAA12AC869EA1F4E7121FB25D749A220B0
 ```bash
 magnet:?xt=urn:btih:2453ABF45FD02F8970C3CF505667360901304870
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:2453ABF45FD02F8970C3CF505667360901304870
 magnet:?xt=urn:btih:4C47C0CDCC55843FABF7130A4AFB48376C708048
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Master PDF Editor — простая, но эффективная програм
 ```bash
 magnet:?xt=urn:btih:C69EF3BA8746B7358107BFB9F9973ED4590613BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ Domestika, Luke Adam Hawker | Artistic Architectural Drawing with Ink (2022) WEB
 magnet:?xt=urn:btih:4CB06C6970F1AD6B6E3F2C16FE9010A3760B86BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ ToonMe 0.6.99 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:53146B5F83886505D770C40EF8EA4A170C410185
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:53146B5F83886505D770C40EF8EA4A170C410185
 magnet:?xt=urn:btih:55616FD402561B486685B547DB762B99306B32C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ NirLauncher Package - универсальный пакет из более че
 magnet:?xt=urn:btih:0BDFC943441CF5651FCD2A8C16D49724EA3FBE78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ Windows хороша, но всегда есть, что улучшить. Во�
 ```bash
 magnet:?xt=urn:btih:6FCAEE5EC5ABACEF845FCDC15906C2704E2D6EB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ magnet:?xt=urn:btih:6FCAEE5EC5ABACEF845FCDC15906C2704E2D6EB8
 magnet:?xt=urn:btih:09E9ADA016290C6BBB4F8B34BD684E21F52D2E78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ magnet:?xt=urn:btih:09E9ADA016290C6BBB4F8B34BD684E21F52D2E78
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ magnet:?xt=urn:btih:09E9ADA016290C6BBB4F8B34BD684E21F52D2E78
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:09E9ADA016290C6BBB4F8B34BD684E21F52D2E78
 ```bash
 magnet:?xt=urn:btih:ACE1C06B7290CDDC24E02443092DE6A0EF0BBD8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:ACE1C06B7290CDDC24E02443092DE6A0EF0BBD8A
 magnet:?xt=urn:btih:D6F19226A0C2412F1ABF164F037C6809804CAA4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:D6F19226A0C2412F1ABF164F037C6809804CAA4F
 magnet:?xt=urn:btih:B7FFE2B3003E90C1A58FC249B83422E784C5E9BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:B7FFE2B3003E90C1A58FC249B83422E784C5E9BA
 ```bash
 magnet:?xt=urn:btih:7C43364FB2537FC5865F34AE0447C2DEC602E793
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

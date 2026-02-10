@@ -1,3 +1,29 @@
+###  Публикация: 1243686   (483582) от 31.08.2018
+
+Гершон Бен Керен | Крав-мага. Система израильского рукопашного боя (2018) [PDF]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это не просто книга о крав-мага, а скорее учебное пособие по ее применению в реальных жизненных ситуациях. Техники, описанные в книге, обучат читателя тому, по каким сценариям могут развиваться различные ситуации с применением насилия. Издание состоит из четырех частей: первая рассматривает удары и блоки, вторая – сценарии с вооруженным нападением, третья – рукопашные (   Читать дальше...   )Жанр: Спортивные единоборства и боевые искусстваФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD9B3019CA0C580EC0198430FE0CA19908D142D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 710904   (483637) от 17.09.2015
 
 Наталья Замятина | Кухня Робинзона. Рецепты блюд из дикорастущих растений и цветов (2013) [FB2, PDF, DOC]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:92BF726660FF56C1399C926C9E3EC635B8BAAB9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:92BF726660FF56C1399C926C9E3EC635B8BAAB9B
 magnet:?xt=urn:btih:96FC3106F78ACF63B2DF8FC4DF8DDFC7E2D5FA44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:96FC3106F78ACF63B2DF8FC4DF8DDFC7E2D5FA44
 ```bash
 magnet:?xt=urn:btih:06D2BEC0FD4DF57DE92B445C1DEC7F637784EF15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:06D2BEC0FD4DF57DE92B445C1DEC7F637784EF15
 magnet:?xt=urn:btih:A1B3126CEF7498583975CF314BBAEC8578546C55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:A1B3126CEF7498583975CF314BBAEC8578546C55
 magnet:?xt=urn:btih:E5FB3CBB49CEC0AF443243DC115C90F76867AF86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:E5FB3CBB49CEC0AF443243DC115C90F76867AF86
 ```bash
 magnet:?xt=urn:btih:FDAEFF710C739E42EF9BA2DD83498CC65C636447
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:FDAEFF710C739E42EF9BA2DD83498CC65C636447
 magnet:?xt=urn:btih:C566CFFC742E4064576F1071134B40D7F419DDF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:C566CFFC742E4064576F1071134B40D7F419DDF2
 ```bash
 magnet:?xt=urn:btih:3AB11E49D80E377508838CB0D17100087332C713
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:3AB11E49D80E377508838CB0D17100087332C713
 magnet:?xt=urn:btih:5751595DECB996B120F8ECC8AE9DA64D9B6762B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:5751595DECB996B120F8ECC8AE9DA64D9B6762B5
 magnet:?xt=urn:btih:DE966770C76ED77CCFC5CF72915FA666EEBBF20A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:DE966770C76ED77CCFC5CF72915FA666EEBBF20A
 ```bash
 magnet:?xt=urn:btih:A841EDAF009BDBBBB299A4F3F3B1EADC4FCDB36D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +340,8 @@ magnet:?xt=urn:btih:A841EDAF009BDBBBB299A4F3F3B1EADC4FCDB36D
 magnet:?xt=urn:btih:AD226F9E877173605D550D43DFA429F727B38A5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +365,8 @@ Heather J. Paper | Built-Ins Idea Book (2017) [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:CB4638A53A79E5DEDF7946047B479D8F699D5415
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +392,8 @@ Jamie Gold | New Bathroom Idea Book (2017) [PDF] [En]
 magnet:?xt=urn:btih:14E46ABBB076CD05703D36FC08DD7615ADD48ACE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:14E46ABBB076CD05703D36FC08DD7615ADD48ACE
 ```bash
 magnet:?xt=urn:btih:26AB67FEB088FC960C3864E64DD93CAC18825D74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +445,8 @@ magnet:?xt=urn:btih:26AB67FEB088FC960C3864E64DD93CAC18825D74
 magnet:?xt=urn:btih:E1FBC6BF68F39524DDD0C7DEDBBE45D733E5E8E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +472,8 @@ magnet:?xt=urn:btih:E1FBC6BF68F39524DDD0C7DEDBBE45D733E5E8E0
 magnet:?xt=urn:btih:41C658A9E1F6BEE3B2AC5E74A570D374D8504E79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:41C658A9E1F6BEE3B2AC5E74A570D374D8504E79
 ```bash
 magnet:?xt=urn:btih:AC90002047A7FB2990B619FE758A56F6283B0B4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +524,8 @@ magnet:?xt=urn:btih:AC90002047A7FB2990B619FE758A56F6283B0B4F
 magnet:?xt=urn:btih:9EF817C138AEBFFA558A7C67242E4F008887BAAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:9EF817C138AEBFFA558A7C67242E4F008887BAAF
 magnet:?xt=urn:btih:9C4FAAA896732B61825FA18A85E86CE06BEDDBF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:9C4FAAA896732B61825FA18A85E86CE06BEDDBF1
 ```bash
 magnet:?xt=urn:btih:A1C11CA21A35BE8FF72C8337408E744089EA1DF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:A1C11CA21A35BE8FF72C8337408E744089EA1DF9
 magnet:?xt=urn:btih:05552B3E81AA92F8C40725EEABFC412AF6B36AE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:05552B3E81AA92F8C40725EEABFC412AF6B36AE5
 magnet:?xt=urn:btih:7C3109C8FAA469A223CD2863FCDB649D4E9F5117
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +654,8 @@ magnet:?xt=urn:btih:7C3109C8FAA469A223CD2863FCDB649D4E9F5117
 ```bash
 magnet:?xt=urn:btih:F19ACC9764198220575038A0946FAECBA819D36B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,29 +683,7 @@ Red Dead Redemption 2 - Complete Official Guide (Standard Edition) (2018) [EN]
 magnet:?xt=urn:btih:3B5FADB9B30BB1119C6173C97CA15A3E98F55A94
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318844   (484789) от 11.08.2019
-
-Диакон Георгий Максимов | Святоотеческое понимание миссии (2014) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное издание, представляющее запись лекций автора, читанных в Сретенской духовной семинарии и в Школе Православного Миссионера при Синодальном миссионерском отделе, впервые систематически излагает святоотеческий взгляд на миссионерское служение. Автор — глава сектора апологетической миссии Синодального Миссионерского отдела, член комиссии по миссионерской деятельности (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E97B075AEA0FCDFA3C6DEE461B696FF8D9A8FD1
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Ryuu to Sobakasu no Hime | Belle | Красавица и дракон [2021, Mov
 magnet:?xt=urn:btih:A59D8A0C565F3774D8F862651967F2DAF2DCA904
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Darling in the Franxx | Любимый во Франксе [2018, TV, 01-24 из
 ```bash
 magnet:?xt=urn:btih:D277A53A7E11112F4EC2B677F86678147E9E77FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Galilei Donna | Девы Галилея [2013, TV, 01-11 из 11] BDRip 400p raw
 magnet:?xt=urn:btih:52AB205E4AFAFD4C6F531E94A8D36760D5D56394
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Samurai Seven | Семь Самураев | 7 самураев [2004, TV, 26] HD
 ```bash
 magnet:?xt=urn:btih:A07671295BED85DEAEFDF797F83B7C68D20C489C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Tonari no Kaibutsu-kun | My Little Monster | Монстр за соседней 
 magnet:?xt=urn:btih:A257B724CC6B479EC2B3A94E5F04B7D5E6F9203C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Uchi no Maid ga Uzasugiru! | UzaMaid! | ЦубаКума! | Наша служа�
 ```bash
 magnet:?xt=urn:btih:6BD4C7CDE270B7D2AD3158D08AC9F72BC1052371
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Cowboy Bebop | Ковбой Бибоп [1998, TV, 26 эп.] BDRip 720p Hi10p raw
 magnet:?xt=urn:btih:7144063B7885FA9BCB5998A816D9BE590CF9D067
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Fantastic Children / Фантастические дети [2004, TV, 26] DVDrip
 ```bash
 magnet:?xt=urn:btih:2E570B5BEA76C6299EBCA7939754AB152E3F96B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Grisaia no Rakuen / The Eden of Grisaia / Эдем в серых тонах [201
 magnet:?xt=urn:btih:703C35A4DEA9E95993BDB9B36C4629735CF7D95C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:703C35A4DEA9E95993BDB9B36C4629735CF7D95C
 ```bash
 magnet:?xt=urn:btih:44D5674E67BCC595BD5CA97BCA6AF298BC231EC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Zombieland Saga | Zombie Land Saga | Зомбиленд. Сага [2018, TV, 12 
 magnet:?xt=urn:btih:B8DA4824A36D08C21373066C5EF0DC50CA8B090F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Zombieland Saga | Zombie Land Saga | Зомбиленд. Сага [2018, TV, 12 
 magnet:?xt=urn:btih:F6CBDB8ABE12AE846CEAEF0D97BFA6DC7BEC2820
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Ryuu no Haisha | The Dragon Dentist | Драконий зубной [2017, Speci
 ```bash
 magnet:?xt=urn:btih:43EAF514ADF1913640435DD6194494A27AF8FA86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Pokemon: Black and White. Rival Destinies / Покемон: Чёрное и Бе
 magnet:?xt=urn:btih:67D1CAB1534DACBB694449FC5A4F42778DDE1316
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Mobile Police Patlabor: The Movie / Полиция Будущего (фильм 
 ```bash
 magnet:?xt=urn:btih:9088A062A042D86FEEC667A1FC85920B16F71341
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Campione! / Campione! Matsurowanu Kamigami to Kami Koroshi no Maou / Чемпи�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Cowboy Bebop: Tengoku no Tobira / Ковбой Бибоп: Достучатьс�
 magnet:?xt=urn:btih:425D3A3B3CB23E1E6CB8B1B220AC07F4DFD9B4EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Grancrest Senki / Record of Grancrest War / Легенда о Гранкрест
 ```bash
 magnet:?xt=urn:btih:83C2D5CCB24E363053FD50AFE424879CCF0887D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Gegege no Kitarou (2018) | Китаро из леса Гегеге [ТВ-6] [201
 magnet:?xt=urn:btih:61EC0066FECFD2BDB302CBBAF54FC6F2BDF1E1CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Mecha-ude | Mechanical Arms | Механические руки [2018, ONA] WEBR
 ```bash
 magnet:?xt=urn:btih:1793D7B219EA751BFE50E39C01833F3CF09CB80B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ Golden Kamuy | Золотое Божество | Голден-камуй: дух
 magnet:?xt=urn:btih:7AFE68F7CA8A3E68ED9E0A9011DF62CFB94DC698
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Golden Kamuy | Золотое Божество | Голден-камуй: дух
 ```bash
 magnet:?xt=urn:btih:302C5DA773D140ACD87CD74DF40ED205D5C20BF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ Hakumei to Mikochi | Хакумэй и Микоти [2018, TV, 12 эп. +1 OVA] 
 magnet:?xt=urn:btih:605296FAD79884C6ED3F246A427ED02112208585
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Tsuki ga Kirei / Какая красивая луна! [2017, TV, 12 ep] HDTV 72
 ```bash
 magnet:?xt=urn:btih:2B80DF39A78867EB5CAE7DBA9844459CF3B90602
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:2B80DF39A78867EB5CAE7DBA9844459CF3B90602
 magnet:?xt=urn:btih:60B83AE47FE9300E8BD8321B8B61BBA121372F9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Ookami to Koushinryou | Spice and Wolf | Волчица и пряности [200
 ```bash
 magnet:?xt=urn:btih:0AF9D6B2599882B62492FB88B0337EFB33CB24BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

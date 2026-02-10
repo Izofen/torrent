@@ -1,3 +1,32 @@
+###  Публикация: 1178134   (358326) от 27.10.2017
+
+VA - Popular Dance 90s (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358326.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Aligator - Doggy Style
+002. In Colour - I Wanna Give It To You
+003. Cheyenne - The Money Man
+004. Waldo - Take Me Higher(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:679335A1D2F71939898A6CCF256A6CA836B4F332
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 577557   (358551) от 19.11.2012
 
 VA - Trance Maniacs Party: Melody Of Heartbeat #102 (2012) [MP3|320 кб/с]<Vocal Trance>
@@ -26,6 +55,8 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #102 (2012)
 magnet:?xt=urn:btih:0FD38A88CBD389F26A573AFFCCC158A9334F7BFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +83,8 @@ magnet:?xt=urn:btih:0FD38A88CBD389F26A573AFFCCC158A9334F7BFA
 ```bash
 magnet:?xt=urn:btih:5DF124DB5259462334A9B14D302E6C25042C0F96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -83,6 +116,8 @@ VA - Trance Eve Volume 45 (2012)
 ```bash
 magnet:?xt=urn:btih:F83ABFF0AAD5D05F0F4CCFD17A7EBA1140237BBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +152,8 @@ VA - Клубные Новинки Vol.180 (2012) [MP3|320 кб/с]<Club, Dance>
 magnet:?xt=urn:btih:D7C853E4BC01BA02E0CF8BD3F94DA6E4E83898DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +180,8 @@ The Beatles - Abbey Road De-Noised From Demos & Takes (2019) Bootleg [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:21AC83F739A49715C4892E77308100EAC864A492
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +210,8 @@ VA - Sexy Girls Lounge Vol 1 (2015) [MP3|320 кб/с]<Chillout, Lounge>
 magnet:?xt=urn:btih:94EC5F5E0618234116A1BAE6ED53396AC4A5097B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +238,8 @@ VA - Hardstyle Top 100 (2017) [MP3|320 Kbps] <Techno, Dance>
 ```bash
 magnet:?xt=urn:btih:32AE3768196FDCBF1E9606623AA319D1F7AEE41E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +268,8 @@ VA - ЕвроХит Топ 40 Europa Plus 19.10.2018 (2018) [MP3|320 Kbps] <Pop,
 magnet:?xt=urn:btih:0D724ACDDDC12B28541EA1D4995699AE71F0120D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +296,8 @@ VA - Trance Traveling 70 (2015) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:F7A311C9B207F6347FC24CF26FF633F713992144
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -279,6 +326,8 @@ VA - Age Of Rebelion: Rock Revue (2018) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:2B41727C77D852DCDB1D9068F83686E15A0105C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +354,8 @@ VA - German Top 100 Single Charts 22.10.2018 (2018) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:DEFD88C77389D1F0192CB59FEF92C9A5DB1A8407
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +384,8 @@ VA - Шансон 2020 Музыкальный хит-парад [часть.03] 
 magnet:?xt=urn:btih:C97AADEFEAA66CCD55267CCBE60AEEBF79F3EE2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +412,8 @@ VA - Amber Arcades: October Rock Compilation (2019) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:3112150C3F5D86875CF8436EF55AABF2CFF35FA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +442,8 @@ VA - Virus Attack: Psy Trance Set (2019) [MP3|320 Kbps] <Psychedelic Trance, Goa
 magnet:?xt=urn:btih:CE2A88A5541146E53E7E09AEA8AA33AA80035387
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +470,8 @@ VA - Hedkandi: Hardstyle Edition (2019) [MP3|320 Kbps] <Hard Dance, Electro, Har
 ```bash
 magnet:?xt=urn:btih:C4B65BC3ACB850FF9B6A46DBAB60D351F3575488
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +500,8 @@ VA - Beatport Top 100 Tech House October (2016) [MP3|320 Kbps] <Tech House>
 magnet:?xt=urn:btih:B7D9E805028AFF05C207E95ED5720DE85F14B79A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +528,8 @@ VA - Мегахитовая осень на Europa Plus. Часть 8 (2016) [MP
 ```bash
 magnet:?xt=urn:btih:282F9517C42AC55D4A6FBFDA70AB4A59FA3FE407
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +558,8 @@ VA - Высшая лига хитов шансона. Часть 4 (2016) [MP3|2
 magnet:?xt=urn:btih:12D1FFC4D37328545E5B83CDA4C30B668CD1E2BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +586,8 @@ VA - Сотка модных хитов 4 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:2EDC2008570112963754246D68F0725CB8A6E41A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +616,8 @@ VA - Осенняя позитивная сотка. Выпуск 8 (2016) [MP3|
 magnet:?xt=urn:btih:A62290664A1FA826B052794C880A043317BDC4BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +644,8 @@ VA - Beyond Reality: Techno Mix (2016) [MP3|320 Kbps] <Techno, Tech House, Elect
 ```bash
 magnet:?xt=urn:btih:B9B48FC7A097BABC4572D31522FE7E38B87D48E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +674,8 @@ VA - DJ Dynamic Basic Hits (2016) [MP3|250~320 Kbps] <House, Future House,  Funk
 magnet:?xt=urn:btih:2978A30DA8B0973CCFA56C4B30E30CD9E260A417
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +703,8 @@ VA - Music News vol.217 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:E06AB896B026CE6B227CB52B62DF6ACCD2273AED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +731,8 @@ VA - В машине с музыкой Vol.303 (2022) [MP3|320 Kbps] <Pop, Dance
 ```bash
 magnet:?xt=urn:btih:A6DC98194670F6120AF5A943B5EC1442DDD9F5D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -687,38 +764,7 @@ VA - Americans Swinging in Paris (Collection) (2002) [MP3|320 кб/с]<Retro, Sw
 magnet:?xt=urn:btih:2B92AA5E7877877E0A76983FA72F5C2B5C085B0B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577098   (360080) от 18.11.2012
-
-VA - Disco 80х: Зарубежный Выпуск В Современной Обработке (2012) [MP3|224 кб/с]<Disco, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Cavarra S Pizza Expres - Amada Mia Amore Mio
-02. Sabrina - Angel Boy (Extended Mix)
-03. F.R.David - Words (Remix)
-04. Killa Deejays - Freed From Desire
-05. Gazebo - Tears For Galileo (Dancefloor Radio)
-06. Disco Queen - Let's All Chant
-07. Mosaik - Believe (Cher)
-08. P. Ryan - You're Me Love
-09. People Of K. Feat. Crystal - Last Train To Trancentral (Klass 66 Radio Edit)
-10. E-Rotic - D.I.S.C.O. (Lust For Life)(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 07:17:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84618B50CAC4922C7B528D24FF99D7DCF423899A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

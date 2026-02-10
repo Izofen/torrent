@@ -21,6 +21,8 @@ Udemy, Data Is Good Academy | Data Analysis Masterclass (4 courses in 1)  (2021)
 magnet:?xt=urn:btih:A2DE7F370BA990CE23F4C7D0CA0CC98117913C3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Go - это современный, безопасный по типу, ском
 ```bash
 magnet:?xt=urn:btih:53AE63BEB54019CF942A5BF530F7B11FD4BFAE67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ SQL Delight (клиент кэширования)(   Читать дальше..
 magnet:?xt=urn:btih:DB243F90E67C91710F49DE6793A04391A63C0963
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Skillbox, Александр Кузнецов  и др. | JavaScript-фрейм�
 ```bash
 magnet:?xt=urn:btih:A22720A3A9B5F3F146C2AEB0DE889716878E80E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Udemy, Josh Werner, Learn Tech Plus | Front End Web Development Ultimate Course 
 magnet:?xt=urn:btih:25F718D253CB1B3CBDD74CA5977B7C1A42CAE752
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ Udemy, Sergey Shmatovskiy | Laravel 8 (PHP). Выполнение реально
 magnet:?xt=urn:btih:D941B46D17BC55E07AFAE5A395741A7FDF93F53A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ Udemy, Cristian Calinescu | Windows Server 2019 Hyper-V, Storage, Clustering and
 ```bash
 magnet:?xt=urn:btih:88525572C7763E26479AB65228B1926C07DBD739
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +215,8 @@ Udemy, Catalin Stefan | Complete Kotlin development masterclass (2021) PCRec [En
 magnet:?xt=urn:btih:0696CE9A4B8304D64604601D1CD840719EC3AC65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ Udemy, Prateek Narang и др. | Graph Theory Algorithms for Competitive Program
 magnet:?xt=urn:btih:E10467FF1B4529283C5D7DCED1482E93802C23D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ A Cloud Guru / LinuxAcademy | Kali Linux Deep Dive (2021) PCRec [En]
 ```bash
 magnet:?xt=urn:btih:894A98C604C63FA66724C90835E528DDAB6336F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ Academind Pro, Maximilian Schwarzmüller | Начало работы с Golang /
 magnet:?xt=urn:btih:D7A2DE5CAAFD4AC58D18EB90CF41E6BA070838C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ A Cloud Guru / LinuxAcademy | Introduction to LVM (2021) PCRec [En]
 ```bash
 magnet:?xt=urn:btih:A2E826E092440A47A1BAF0D6552B899F57C844EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +350,8 @@ Skillbox, Сергей Корниенко и др. | Веб-вёрстка (2020
 magnet:?xt=urn:btih:41F26AD7EC04A85C09FB78FDDED0F785FADE5620
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +379,8 @@ magnet:?xt=urn:btih:41F26AD7EC04A85C09FB78FDDED0F785FADE5620
 magnet:?xt=urn:btih:6B3F10C7F446FA73B29729051D2FA94F60F4F2DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ JavaScript.Ninja | Мастер-класс: ﻿тестирование Vue-пр
 ```bash
 magnet:?xt=urn:btih:7693E58F9F246085F5C2D057CEDE52FEAB279E98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ ReactJS (или просто React) - популярная библиотека 
 ```bash
 magnet:?xt=urn:btih:083BA2D0F2F962E3ED846200408DFCC2D586DBB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +461,8 @@ magnet:?xt=urn:btih:083BA2D0F2F962E3ED846200408DFCC2D586DBB9
 magnet:?xt=urn:btih:F9127742654F52C09C788A68025823AFA8A32CAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ Udemy, Исмаил Усеинов | jQuery для начинающих (2021) P
 ```bash
 magnet:?xt=urn:btih:1531F1677ED4D4A5EA45F827DEE732297474F40D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +517,8 @@ RuFrame, Ленар Баширов | Командная строка Windows  (2
 magnet:?xt=urn:btih:A301F6E35CFB2ECEA14573456C06593FFB6D1201
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +545,8 @@ magnet:?xt=urn:btih:A301F6E35CFB2ECEA14573456C06593FFB6D1201
 ```bash
 magnet:?xt=urn:btih:2F34E85043044E3873BD5506F36C5141D8B9E290
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +575,8 @@ Infostart Event 2017-2019
 magnet:?xt=urn:btih:F5F615F646A0A0DBC3DBEA648F3BF87D844A615B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +600,8 @@ magnet:?xt=urn:btih:F5F615F646A0A0DBC3DBEA648F3BF87D844A615B
 ```bash
 magnet:?xt=urn:btih:0BAB53CE3EF371F21D0A75EBC18C76D39ADB5D6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +629,8 @@ A Cloud Guru / LinuxAcademy | LPIC-2: Linux Engineer Exam 201 [En] (2018) PCRec
 magnet:?xt=urn:btih:A9487D2E9B6FDE23ECE3911CE9C0749C9EECA586
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +654,8 @@ Udemy, Trevor Sawler | Deploying a Secure Virtual Private Server with Ubuntu 20.
 ```bash
 magnet:?xt=urn:btih:5F9C072487B8D41D967026D4BC1FB6AAF111170D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +682,8 @@ Edston, Николай Петров | Создание чат-ботов в What
 magnet:?xt=urn:btih:52651F8FBFC1399F27BDEF93E89A46A05AB77625
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +707,8 @@ A Cloud Guru / LinuxAcademy | Red Hat Certified Specialist in Linux Diagnostics 
 ```bash
 magnet:?xt=urn:btih:5B18D91AECDA297A897E2CC9DB11FEF3D011BD47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

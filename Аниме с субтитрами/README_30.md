@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:BC6C8BC027DE904640EB532C43D3918EB4DA40EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:BC6C8BC027DE904640EB532C43D3918EB4DA40EE
 magnet:?xt=urn:btih:B6E0E5CC23958650F3DABC94265FA18A80ECF233
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Akebi-chan no Sailor Fuku | Akebi's Sailor Uniform | Школьная форма
 ```bash
 magnet:?xt=urn:btih:0D8A26C17CCA7D73FA106A43ACD3DB58F278856C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Sono Bisque Doll wa Koi o Suru | My Dress-Up Darling | Эта фарфорова
 magnet:?xt=urn:btih:25257362C51E5081E6DF2C774D99307EEC442A1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Black Rock Shooter: Dawn Fall | Стрелок с Черной скалы [ТВ-
 ```bash
 magnet:?xt=urn:btih:39398ABD8FDEDAECF6A24A4D331627FA5A93AAA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Tate no Yuusha no Nariagari Season 2 | The Rising of the Shield Hero Season 2 | 
 magnet:?xt=urn:btih:856F03CAB4E2CED5A3DF18AF4605CD30A3E08650
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Date a Live IV | Рандеву с жизнью [ТВ-4] [2022, TV, 12 эп.] BD
 magnet:?xt=urn:btih:07BB75CFB15D71A5B0A577DF524292114091E4F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Otomege Sekai wa Mob ni Kibishii Sekai Desu | Trapped in a Dating Sim: The World
 ```bash
 magnet:?xt=urn:btih:EE05EF44C61C3259F2E0C026C07D146058A296CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Galaxy Angel A / Galaxy Angel AA | Галактические ангелы А [�
 magnet:?xt=urn:btih:1097D8092527DBA3F67A08E8206DF4238F257DC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Shika no Ou: Yuna to Yakusoku no Tabi | The Deer King | Король-олень 
 ```bash
 magnet:?xt=urn:btih:595FFB4F4910E9FC3055810D47C231891AB1B04A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Nanatsu no Taizai: Ensa no Edinburgh | The Seven Deadly Sins: Grudge of Edinburg
 magnet:?xt=urn:btih:229AB65277D3171B881F6661B13893024D15443C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ Tomo-chan wa Onnanoko! | Tomo-chan Is a Girl! | Томо - девушка! [2023
 ```bash
 magnet:?xt=urn:btih:B7FD69CC4FA0A2AF434BF6EE23898C61ABCF6E66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ Otonari no Tenshi-sama ni Itsunomanika Dame Ningen ni Sareteita Ken | The Angel 
 magnet:?xt=urn:btih:4F3D53EE084C6471C9656213D4571B52C84D80ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Inu ni Nattara Suki na Hito ni Hirowareta. | My Life as Inukai-san's Dog | Ст�
 ```bash
 magnet:?xt=urn:btih:ECD78EFB75F73D9C0D3FE39D4244089D94F95B59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ Kimi wa Houkago Insomnia | Insomniacs After School | Бессонница пос
 magnet:?xt=urn:btih:B555814BC1CC241DE7B803C7C199C496DD098937
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Suzume no Tojimari | Судзумэ закрывает двери [2022, Movie] 
 ```bash
 magnet:?xt=urn:btih:F7BB56B7A36AE78CD56D24C1EA39C929F6C0FBC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ Kidou Senshi Gundam: Suisei no Majo (2023) | Mobile Suit Gundam: The Witch from 
 magnet:?xt=urn:btih:988AA734EA872F36431686FDD21245DBBF8D6FAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Jigokuraku | Hell's Paradise: Jigokuraku | Адский рай [2023, TV, 13 э�
 ```bash
 magnet:?xt=urn:btih:4F728F414606FAD16A2A6D139AEF10A2AC435A82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ Mashle | Mashle: Magic and Muscles | Магия и мускулы [2023, TV, 12 
 magnet:?xt=urn:btih:68F116826AABC6B50C4810696A46AAE46B92FCCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ Tengoku Daimakyou | Heavenly Delusion | Великая небесная стен
 ```bash
 magnet:?xt=urn:btih:5FAD00E3556CB2B763CC0705BF1D7948B8F25F9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ Idolmaster: Cinderella Girls - U149 / Идолмастер: Золушки - U14
 magnet:?xt=urn:btih:A3B37A957CA114691533101F75E722F758399C75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ Kanojo ga Koushaku-tei ni Itta Riyuu | Why Raeliana Ended Up at the Duke's Mansi
 ```bash
 magnet:?xt=urn:btih:FAA1403F50BE5F6DBDB61F9CE24A76E5A62E01ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ Kyokou Suiri | In/Spectre | Ложные выводы [2020, TV, 24 эп.] BDRip
 magnet:?xt=urn:btih:BE409EAD83E52F43FD482E56C14C257BFB7B57B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ World Dai Star / Мир великих звёзд [2023, TV, 12] WEBRip 720p raw
 ```bash
 magnet:?xt=urn:btih:F728D5EADBD1871080765A1CA753DAC2FAB71DFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ Kawaisugi Crisis | Too Cute Crisis | Слишком милый кризис [202
 magnet:?xt=urn:btih:B843305AEC05643C5D782A47C72F0F2C0374088E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Isekai Shoukan wa Nidome Desu / Summoned to Another World... Again?! / Приз�
 ```bash
 magnet:?xt=urn:btih:F7238E2F01B77BFF1193924F332E1EFFAE9563C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

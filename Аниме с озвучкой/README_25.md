@@ -19,6 +19,8 @@ Ame o Tsugeru Hyouryuu Danchi | Drifting Home | Плавучий дом [2022, M
 magnet:?xt=urn:btih:2BC8679CF12852C7EC8A91776A5AB0C7EC08CBE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:2BC8679CF12852C7EC8A91776A5AB0C7EC08CBE9
 ```bash
 magnet:?xt=urn:btih:8A9E70EDE230EED558C75A36BA0745FCDC84E0C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:8A9E70EDE230EED558C75A36BA0745FCDC84E0C1
 magnet:?xt=urn:btih:88E1E25E7152E868E31211EC14CB9FA0A7375CF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Oooku | Ooku: The Inner Chambers | Ооку: Внутренние покои [20
 ```bash
 magnet:?xt=urn:btih:D28A5BFCC9B65E26744FD17B4E26314D23F26673
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Grisaia: Phantom Trigger The Animation | Грисайя: Призрачный с
 magnet:?xt=urn:btih:131C84984DD8595A4EB3BBA8A1F37BF08D7FA68F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ SSSS.Gridman | Гридмен [2018, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw
 ```bash
 magnet:?xt=urn:btih:7B28F8EAE7D4FDE8B8FCFCE955CFE98B3916129F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Fate/Grand Order: Zettai Majuu Sensen Babylonia | Fate/Grand Order Absolute Demo
 magnet:?xt=urn:btih:60A677DF9BF9D6AFF1604489423233B333458184
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Fate/Grand Order: Shuukyoku Tokuiten - Kani Jikan Shinden Solomon | Fate/Grand O
 ```bash
 magnet:?xt=urn:btih:EE1EF81215BA608DE006C8CA992E2FA5BEC9DF9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Blue Thermal | Влюблённые в небо [2022, Movie] BDRip 1080p raw+ru
 magnet:?xt=urn:btih:7AE78134F0AAEC0E69C629B7BCF42A92D6B0B76E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Mai-HiME | My-Hime | Май-Химэ [2004-2005, TV, 26 эп. + 28 SP] BDRip 108
 ```bash
 magnet:?xt=urn:btih:E103DBA0E2FD0F7ECD46ECEF406C80DCBDC9F05F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:E103DBA0E2FD0F7ECD46ECEF406C80DCBDC9F05F
 magnet:?xt=urn:btih:5F68BADF69831C3693FD55791146977F2C4F22BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Osake wa Fuufu ni Natte kara | Love is Like a Cocktail | Любовь похож
 ```bash
 magnet:?xt=urn:btih:282580405C57DBF56D8873BAAEE75ED020CC0EC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:282580405C57DBF56D8873BAAEE75ED020CC0EC3
 magnet:?xt=urn:btih:AD8EDF5D92C6350BEBC8BECC1779F531CF83C8E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ Bokura no Yoake | Break of Dawn | Наш рассвет [2022, Movie] BDRip 1080
 ```bash
 magnet:?xt=urn:btih:B29C309F10C017E00A91523D143A06A34542ACCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ Bakuman 2 | Бакуман [ТВ-2] [2011, TV, 25] BDRip HEVC 1080p 10-bit raw+r
 magnet:?xt=urn:btih:D26591F567BB11DA97B2220229F1CBC4E0E350DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ Bakuman 3 | Бакуман [ТВ-3] [2012, TV, 25] BDRip HEVC 1080p 10-bit raw+r
 ```bash
 magnet:?xt=urn:btih:3D293AD2AE1D97B23F12FD9AFA385020C85B19F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:3D293AD2AE1D97B23F12FD9AFA385020C85B19F8
 magnet:?xt=urn:btih:E0D149712C70EB7BBAFBF0CD04B53183F08A7AF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ Kaijin Kaihatsubu no Kuroitsu-san | Miss Kuroitsu from the Monster Development D
 ```bash
 magnet:?xt=urn:btih:C9E064619956F1637B99A298BCC1903BBA6F263E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ High School Agent | Агент Старшеклассник [1988, OVA, 2 эп.]
 magnet:?xt=urn:btih:5AB1443F54A717F4D0AD4702F2C2C22578B2EFC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ Juuou Mujin no Fafnir | Unlimited Fafnir | Безграничный Фафнир
 ```bash
 magnet:?xt=urn:btih:EACC6DFE43027445D0699E0E2D492A2EA882AB9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:EACC6DFE43027445D0699E0E2D492A2EA882AB9A
 ```bash
 magnet:?xt=urn:btih:5DB40CC87A2F7CA6F75936BF5480BC1C03664E43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +580,8 @@ magnet:?xt=urn:btih:5DB40CC87A2F7CA6F75936BF5480BC1C03664E43
 magnet:?xt=urn:btih:7C270B0E8D8F87EFE39D45E496EE2C1A3AA889B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ magnet:?xt=urn:btih:7C270B0E8D8F87EFE39D45E496EE2C1A3AA889B3
 ```bash
 magnet:?xt=urn:btih:29C56075E559F394B45F400F6EF6DD1A3BFDD10E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +639,8 @@ magnet:?xt=urn:btih:29C56075E559F394B45F400F6EF6DD1A3BFDD10E
 magnet:?xt=urn:btih:9E32366FBC9DA270BA3BDF796B6904366AAF0244
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +667,8 @@ magnet:?xt=urn:btih:9E32366FBC9DA270BA3BDF796B6904366AAF0244
 magnet:?xt=urn:btih:2DAB218CD5EE5FB33F09B8DCE3F11CA6A4571E9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ Midara na Ao-chan wa Benkyou ga Dekinai | Ao-chan Can't Study! | Похотли�
 ```bash
 magnet:?xt=urn:btih:549D2AB0CE539D440F874B3D25B3BEC0D6432757
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

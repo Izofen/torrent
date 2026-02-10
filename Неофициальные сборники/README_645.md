@@ -1,3 +1,38 @@
+###  Публикация: 605952   (995295) от 21.01.2013
+
+VA - Клубный суперсборник. Муз кураж 50/50 (2013) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995295.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Next Feat. Dj Solar Explosion - Жажда Танца (Dance Club)
+ 002. Dj Tiesto & Allure Feat. Jes - Show Me The Way
+ 003. Пачуля - Ты И Я (Radio Mix)
+ 004. Aruba Ice & Greysound - Hold Me
+ 005. Zedd Vs. Bingo Players Vs. Alesso - Spectrum Rattle Pressure (Kitsch 2.0 Boolteg)
+ 006. Reggaer - Я Тебя Люблю (Spinafly & Dj Kann Club Mix)
+ 007. Ева Польна - Je T'aime (Я Тебя Тоже Нет) (Fresh Tunes Radio Edit)
+ 008. Aksioma Project - Без Тебя (D'marzio Remix)
+ 009. Светлана Лобода - Облака (Dj Ozeroff & Dj Sky Feat. Lebedev Radio Mix)
+ 010. Nikita - Авокадо (Dj Jedy Radio Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 06:10:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40839019EA58713361E4F3EE92782C8BC978A277
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 603361   (995307) от 21.01.2013
 
 VA - Trance. Vocal Fascination 43 (08.01.2013) [MP3|320 кб/с]<Vocal Trance>
@@ -27,6 +62,8 @@ VA - Trance. Vocal Fascination 43 (08.01.2013) [MP3|320 кб/с]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:5DE4E647DDA63994B24A8B5E157ABCA49AFD3B78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -61,6 +98,8 @@ VA - Vocal Passion Vol.51 (2012) [MP3|320 kbps] <Trance>
 magnet:?xt=urn:btih:9DCB5DDE4D478C67BA848996977B70A7B30BE9A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +132,8 @@ VA - Новогодняя блатная вечеринка Радио шанс�
 ```bash
 magnet:?xt=urn:btih:6A155AFFBE880D75D9C34AFE423EBDF010B2EE0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +168,8 @@ VA - Шевели Попой 3 (Зарубежный выпуск) (2013) [MP3|1
 magnet:?xt=urn:btih:6AF6AB9B0BDDA8D6DCBB91DB6071C80741065403
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +200,8 @@ VA - Первый свадебный вальс (2011) [MP3|320 кб/с]<Instrum
 ```bash
 magnet:?xt=urn:btih:CCC3105DB9839CA576B16487E7D45D7F8C73F6E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +236,8 @@ VA-Зарубежный Свежачок (2013) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:C8CF3D6AD1931154FF04E5511DB6CFCEB08BAE0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +270,8 @@ VA - Свежие Клубные Новинки Клубов Москвы (2013)
 ```bash
 magnet:?xt=urn:btih:7EEFAE821584D4EBC4695D30C54EAADE2D13C71E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -257,6 +306,8 @@ VA - Шевели Попой 2 (Русский выпуск) (2013) [MP3|128 к�
 magnet:?xt=urn:btih:003B956953C7EFD1C3073BD6BEC43210506C9457
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +340,8 @@ VA-Super Dance Hits DFM (2013) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:610F35C7A6CAAA510DD64876E75A671890547C13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +376,8 @@ VA-Убойный Русский Хит (2013) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:BAD7E4F4EB2B9472E0DFAD5197BC27704256310E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +410,8 @@ CD1
 ```bash
 magnet:?xt=urn:btih:DCBF2B48AEC9A112CB1AD67FA8370C9C9AB30C5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +446,8 @@ VA - Горячая 20 (22 Альбома) (1999-2012) [MP3|320 kbps] <Pop>
 magnet:?xt=urn:btih:C288A75F564FD8A5447F4CB5A2018B54EE5618D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +480,8 @@ VA-Cупер новая сотка хитов Dfm (2013) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:26BCB9F41C79B3CE34FEDDD21B87A870B766774A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +516,8 @@ VA-Шевели попой (2013) [MP3|128 кб/с]<Pop>
 magnet:?xt=urn:btih:41709DEB5CDC73F2ADFC856403E1D77B82E774A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +550,8 @@ VA - Зарубежная поп музыка (2013) [MP3|320 кб/с]<Pop,Dance
 ```bash
 magnet:?xt=urn:btih:18C83ECF6866FF7AAB08829D34EB18500525423E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +586,8 @@ VA-Зимний хит-парад звёзд Российской попмузы
 magnet:?xt=urn:btih:5DA244093076C9234D1AE7F4A65E5C48EF1EDB8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +620,8 @@ VA - Танцевальная Сборная Хитов. Зарубежный (2
 ```bash
 magnet:?xt=urn:btih:C5CDE1D2074262F7FFA967009E53F4D9CC8A2FF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +656,8 @@ VA - Зимняя Дискотека DFm (2013) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:43C41B0D90F64D75FBB154355F5813F300B9FB77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +690,8 @@ VA - Hot Dance vol. 264 (2013) [MP3|320 кб/с]<Dance>
 ```bash
 magnet:?xt=urn:btih:82B8DF29E06FE8420B36887AE2D63006B7006306
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +726,8 @@ VA - OE3 Greatest Hits Vol. 59 (2012) [MP3|320 kbps] <Pop>
 magnet:?xt=urn:btih:3FCAA3BC573BB09197A31603FC8B4892FBBB91C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -685,6 +760,8 @@ VA-200 Хитов зимы (2013) [MP3|192 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:DE9F0F7C3273D5ED43BEF4D9A517155175675F5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -719,6 +796,8 @@ VA - Русская музыка о любви (2013) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:323650230888E0EAFBCEB648856704ADC9F033C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -751,6 +830,8 @@ Relaxing Instrumental Jazz Ensemble - Chill Music (2012) [MP3|320 кб/с]<Instr
 ```bash
 magnet:?xt=urn:btih:0174DD7E1C6AC8C88830AF919ADF87CF592A07B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -785,6 +866,8 @@ VA - Dubstep Collection (2013) [MP3|320 кб/с]<Dubstep>
 magnet:?xt=urn:btih:1B8D41D00B8E20A2221BC43B7A8810196199512B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -818,38 +901,7 @@ VA-New Age Style - Erotic Lounge 5 (2013) [MP3|320 кб/с]<New Age,Chillout, Do
 magnet:?xt=urn:btih:ACD3B71D8722E6C0ACDB05C7EF40C1B37CA8263C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602763   (997547) от 13.01.2013
-
-VA-Зажигательные Зимние Хиты (2013) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997547.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Yolanda Be Cool - Before Midnight (Yolanda Be Cool's Mentalmen Mix)
-002 Milk & Sugar - Let the Sun Shine 2012 (Tocadisco Radio Edit)
-003 Tom Pulse feat. Fit4Funk - Flying Through The Air (Original Edit)
-004 Carlprit - Fiesta (Michael Mind Project Radio Edit)
-005 Far East Movement feat. Flo Rida & Sidney Sampson - Change Your Life
-006 Alex Clare - Too Close (DJ Yonce Radio Remix)
-007 DJ Stretch feat. Di Land - I Need You (Radio Edit)
-008 Miami Club feat. Nicci - Supernova (R.I.O. Radio Edit)
-009 Owl City feat. Carly Rae Jepsen - Good Time
-010 Sisi - Never Bye Bye (Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 05:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4756D1D9F294F5C45EC90770E936908F2584B84A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

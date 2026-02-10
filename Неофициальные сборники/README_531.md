@@ -1,3 +1,32 @@
+###  Публикация: 1505548   (802950) от 28.10.2021
+
+VA - Beatport Hardstyle: Electro Sound Pack #360 (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802950.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex Fury - Fair Enough
+002. Al Storm - Flashbacks
+003. Rob Iyf & Al Storm - Bitter, Sweet
+004. Korsakoff - Ready To Go(   Читать дальше...   )Жанр: Hardstyle, Hard Dance, ElectroПродолжительность: 07:12:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5F315D3DC176959A78EC4B3F05082B4F1F85C91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120118   (803354) от 30.03.2017
 
 VA - Опасные Связи 20: Сборник Русского Шансона (2017) [MP3|256 Kbps] <Шансон>
@@ -21,6 +50,8 @@ VA - Опасные Связи 20: Сборник Русского Шансон�
 ```bash
 magnet:?xt=urn:btih:88101C349647FA2B1B41EEFAE51450FF510F13F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Dинамик. Весна (2017) [MP3|256-320 Kbps] <Pop>
 magnet:?xt=urn:btih:B9E9074D223B20EC7FDFAB29BE8E6BCA365198CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +109,8 @@ VA - Музыка солнца (2014) [MP3|192-320 Kbps] <Pop>
 magnet:?xt=urn:btih:8F66CDC384CF229E0CA10BD00A507524F16D0964
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +137,8 @@ VA - Бомба Hits. Весенний (2017) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:A45C02B60F5D1AA94D2185A735B590DAA07B7F1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -131,6 +168,8 @@ Vaya Con Dios (произносится: ва́йя кон дьос; исп. С�
 magnet:?xt=urn:btih:F4910B8E0B6BC50805EC201002F7746A48803859
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +196,8 @@ VA - Beatport Trance Pack (29.03.) (2017) [MP3|320 Kbps] <Trance, Energy, Uplift
 ```bash
 magnet:?xt=urn:btih:A808203CBF7D6E0752F270AADEAE5EB239751C40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -185,6 +226,8 @@ VA - Abstract Vision: April Trance Party (2017) [MP3|320 Kbps] <Trance, Electro,
 magnet:?xt=urn:btih:81C698539EA1D5C85AF1BB5E8A661FA90C4AF494
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +254,8 @@ VA - Finding Around Blessing (Energy Tech Trance) 003 (2017) [MP3|320 Kbps] <Tra
 ```bash
 magnet:?xt=urn:btih:CACA012F192E3E2753DC58503139BAB4F876F100
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +284,8 @@ VA - 100% Автохит (2016) [MP3|256 кб/с] <Pop, Dance, Club>
 magnet:?xt=urn:btih:7A1FD16E1ED22CC49A87EC106F1927332FEB67AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +312,8 @@ VA - Hit Music (лето 2020) от Мяу (2020) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:E408C80A5BB999EBE6576195FC35A8F64AC8C74A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +342,8 @@ VA - Relaxing Piano: Neo Classical Collection (2020) [MP3|320 Kbps] <Piano Instr
 magnet:?xt=urn:btih:E20A1598C2D9159F5977BA13BB6D9C5AA8C9B985
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +370,8 @@ VA - Running Trax 5k & 10k - Ministry of Sound (2016) [MP3|256 кб/с] <House, 
 ```bash
 magnet:?xt=urn:btih:6991AA23F563FBC726132ABF81F3D4730092F834
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +400,8 @@ VA - Live Sounds Of Blues (2020) 3CD [MP3|320 Kbps] <Blues, Blues Rock>
 magnet:?xt=urn:btih:3E0E52CFB99AEC3358901EFB57E4355DFDA0E1E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +428,8 @@ VA - Beatport Progressive House: Electro Sound Pack #86 (2020) [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:339A07EBE8C78F3ACFE435A967C4A507608517E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +458,8 @@ VA - Music News vol.2 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
 magnet:?xt=urn:btih:1A2C950F859E4D3201D9EA3D961C49F6EBDA6259
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +486,8 @@ VA - На одной волне 2 (2016) [MP3|256 кб/с] <Pop, Dance, Club>
 ```bash
 magnet:?xt=urn:btih:AB18813BBE3917109F00D664DFC8D151D3F537D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +516,8 @@ VA - Созвездие весеннее - 4 (2016) [MP3|256 кб/с] <Pop, Danc
 magnet:?xt=urn:btih:177DA0EC5B40040826B5A80E7F267FBD141EE9DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +544,8 @@ VA - Hands Up Freaks Vol. 5 (Deejay Edition) (2016) [MP3|256 кб/с] <Club, Dan
 ```bash
 magnet:?xt=urn:btih:F61C6C6240D271E80790449B5ABE19DD1AE753EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +574,8 @@ VA - Trance Collection vol.42 (2016) [MP3|320 кб/с] <Trance>
 magnet:?xt=urn:btih:25415E76132B317EA0191DACA4835DD4B73E1002
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +602,8 @@ VA - Beatport Big Room House: Sound Pack #85 (2020) [MP3|320 Kbps] <Club, Dance 
 ```bash
 magnet:?xt=urn:btih:3DE5118F3CDD46803F99824B68626663BB39F9A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +632,8 @@ VA - Future Trance Energy 001 April TOP (2016) [MP3|320 кб/с] <Trance>
 magnet:?xt=urn:btih:48C316CB817E021F6C2546283D7CCF222C769730
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +660,8 @@ VA - Back to the Terry's Café 1997-2014 - That's What I Call Soulful Deep House
 ```bash
 magnet:?xt=urn:btih:C31387AFD0DE4A464B4AEB374765FA70528E2CED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +690,8 @@ VA - Melodic Techno Tom V (Compiled by ZeByte) (2017) [MP3|320 Kbps] <Melodic Te
 magnet:?xt=urn:btih:9C697CCDC218B190F8772B79E66CB129FE1F199F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +718,8 @@ VA - Hits Cocktail vol.15 (2018) [MP3|320 Kbps] <Club, Dance, House>
 ```bash
 magnet:?xt=urn:btih:E549D31B7FEC144F09CF3D3721678F80EABD9EFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -671,32 +748,7 @@ VA - The Official UK Top 40 Singles Chart 12.01.2018 [MP3|248-320 Kbps] <Electro
 magnet:?xt=urn:btih:90A15BEDD743F02043046396F23A847E5D5C2690
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198844   (804507) от 13.01.2018
-
-VA - Symphony GOA: Sunstate Pure Compilation (2017) [MP3|320 Kbps] <Psy, Goa Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804507.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tim Bourne - Sages Of Sivana (Original Mix) [8:18]
-002. Electit - Music Is The Universal Language [8:38]
-003. Perfectone - Shanti Dancer [8:24]
-004. Knock Out - Fascinating Place (Intro) (Original Mix) [2:30](   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 12:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37132A36BC4FA9F967DEB67B5C91B6D7038A52BF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

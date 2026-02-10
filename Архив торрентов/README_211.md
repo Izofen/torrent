@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:EE5ECFF720A135774BC6D07686AAF05DD6B69A10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ iZotope VEA (сокр. от Vocal Enhancement Assistant — помощник п�
 ```bash
 magnet:?xt=urn:btih:8983441A22652B231619D951745F3F495D8F0F20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Antivirus Removal Tool - портативный набор официальны�
 magnet:?xt=urn:btih:690E790EA1CC8D74A31E2343755E44B5AC8FC114
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ MediaHuman YouTube Downloader 3.9.9.94 (0727) RePack (& Portable) by TryRooM
 ```bash
 magnet:?xt=urn:btih:14CE497EF19B153217D039C2EE3FFDB20F753812
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ AIMP 5.30 Build 2563 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:4D180472E487D82710C3BCA931E290EAA7C83EC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ DISMTools — это интерфейс для DISM, позволяющий уп
 ```bash
 magnet:?xt=urn:btih:90CFCB39A8AB80B54AA0BC487D9E6AC77F0F86C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Snappy Driver Installer Origin (SDI Origin) - главная ветвь порт
 magnet:?xt=urn:btih:633B44C839BC3514A8F6AE832C434C788F20DB8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ EF Commander  — замечательный двухпанельный файл
 magnet:?xt=urn:btih:9B4C79622E8109CE4FB2E69B111446FC05E16001
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:E106427F7AB13E9234F34CB27F4FABBD2C09244D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:96743B13CC589B0189EC74C1FC61E82E1D2301F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:3ED86CD945FF9948DF294E5050BCA2F57120F45E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ StartAllBack - привычная для нас программа, котора
 magnet:?xt=urn:btih:9A75E613A592B41D04A18CDD5A1D4140EC433E20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:9A75E613A592B41D04A18CDD5A1D4140EC433E20
 ```bash
 magnet:?xt=urn:btih:1E11707D7EB52CD78BDA61E81EE31033088062DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:A215BDE402B3FC17AB93DB3259BD6B703E6C81CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:0ED31431FBF44F67E4BFD2626D09B711E9A4A06A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Guitar Pro позволяет редактировать партитуры и �
 magnet:?xt=urn:btih:0B81A4667998C17620098B69993D22A3E7395C46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ LDPlayer 9 — мощный бесплатный эмулятор устройс
 ```bash
 magnet:?xt=urn:btih:E2282D66EAAEAED329747F4532A54535AC31A238
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Youtube Downloader HD - бесплатная и предельно проста�
 magnet:?xt=urn:btih:8E7234B24EA502277D4CE70A3D9A8DE5D72F3588
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:C394CFDF6C5151C236741BD27F31683524476726
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ Planet VPN 2.8.35.47 [Multi/Ru]
 magnet:?xt=urn:btih:91422EF89A596B32EFD23FFA60FFD894176B533F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:967842D9135FB83616FD1074EDC698B015BDB6E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ Glary Utilities - функциональный набор системных т�
 magnet:?xt=urn:btih:5B029C89B695877EF1B6CE92CAB65BA2FCB299E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:FA9AC0864B21511E4EF8B44E6B2B38B7CB406666
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 magnet:?xt=urn:btih:7C67E865AD1B04A6C648C3C69FE026AAAA87976E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Wise Disk Cleaner 11.1.4.830 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:50AA5647E297C470698EA21195F5B1AB5DD5D1B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:172827D387C0D69A9312E3E8AB02E1A8BE9CE762
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

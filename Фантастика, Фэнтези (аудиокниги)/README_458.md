@@ -1,3 +1,29 @@
+###  Публикация: 1201658   (791563) от 26.01.2018
+
+Игорь Екимов | Путь ясновидца (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой произведения обладает уникальным талантом: он спонтанно видит отрывки будущего. Этот талант ("сверхъестественную интуицию") он использует в основном для личного обогащения, играя в тотализаторах. Он хорошо живёт, занимается любимым делом (азартными играми), не испытывает никаких проблем, мечтает эмигрировать за границу и мало интересуется (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 05:55:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C34044EE7C71BADDA0C0A4A9C90201C5EABE60A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387432   (791759) от 01.06.2020
 
 Игорь Шелег | Иностранец (Книга 1)  (2020) [MP3]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:93C1E0F043B101BC65C048608482F400C3E7C94B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -47,6 +75,8 @@ magnet:?xt=urn:btih:93C1E0F043B101BC65C048608482F400C3E7C94B
 magnet:?xt=urn:btih:843C34035582A7D7215244A0C8080A8C7FBB7623
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +102,8 @@ magnet:?xt=urn:btih:843C34035582A7D7215244A0C8080A8C7FBB7623
 magnet:?xt=urn:btih:6A159EFB1E2F6DBB5604D9F896B0F3A8C2AFF41C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +128,8 @@ magnet:?xt=urn:btih:6A159EFB1E2F6DBB5604D9F896B0F3A8C2AFF41C
 magnet:?xt=urn:btih:4CA94BFBEC0220A7DB6BFA16CB3BA0832648A62C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:4CA94BFBEC0220A7DB6BFA16CB3BA0832648A62C
 ```bash
 magnet:?xt=urn:btih:475A3411FACE30EB33F9C07924DE57BF09D41323
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +182,8 @@ magnet:?xt=urn:btih:475A3411FACE30EB33F9C07924DE57BF09D41323
 magnet:?xt=urn:btih:4D2D84D26325B4D6DF0CF7ED5F95E71C970A1DA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +207,8 @@ magnet:?xt=urn:btih:4D2D84D26325B4D6DF0CF7ED5F95E71C970A1DA3
 ```bash
 magnet:?xt=urn:btih:5B65CED92AE8A480E13C1F3D2C2E21B732BEDB45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +234,8 @@ magnet:?xt=urn:btih:5B65CED92AE8A480E13C1F3D2C2E21B732BEDB45
 magnet:?xt=urn:btih:34F2B28CBC7B485B79B0C449B664AD9BC16CEC06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +259,8 @@ magnet:?xt=urn:btih:34F2B28CBC7B485B79B0C449B664AD9BC16CEC06
 ```bash
 magnet:?xt=urn:btih:C67D83B175E5A9916BDF91B3AE388E8A6AB335D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +286,8 @@ magnet:?xt=urn:btih:C67D83B175E5A9916BDF91B3AE388E8A6AB335D2
 magnet:?xt=urn:btih:DBECBE58437A90A0DADF9258571F98FCEC9645F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:DBECBE58437A90A0DADF9258571F98FCEC9645F7
 magnet:?xt=urn:btih:F22ACFD185FF90AAE0A325C2C89DBF24A5450C70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:F22ACFD185FF90AAE0A325C2C89DBF24A5450C70
 ```bash
 magnet:?xt=urn:btih:F73AD8497C04585B3A68A6976D1450C6048E0F7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:F73AD8497C04585B3A68A6976D1450C6048E0F7B
 magnet:?xt=urn:btih:039CD454D3F748FAD3CF0D802903DF966E2ACBFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:039CD454D3F748FAD3CF0D802903DF966E2ACBFA
 ```bash
 magnet:?xt=urn:btih:2830195C4E9CCADA1C32D04B589F9999276870A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +420,8 @@ magnet:?xt=urn:btih:2830195C4E9CCADA1C32D04B589F9999276870A4
 magnet:?xt=urn:btih:49FE72616655FAA4D96E23C679CB0B16341F0CBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +445,8 @@ magnet:?xt=urn:btih:49FE72616655FAA4D96E23C679CB0B16341F0CBC
 ```bash
 magnet:?xt=urn:btih:DC6472979418C420FC7AF8E11505785E2E14D1B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +472,8 @@ magnet:?xt=urn:btih:DC6472979418C420FC7AF8E11505785E2E14D1B3
 magnet:?xt=urn:btih:95835FFB28DC9EC6A97F819136E70BE20F748F6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:95835FFB28DC9EC6A97F819136E70BE20F748F6A
 ```bash
 magnet:?xt=urn:btih:17BA147F3929317E1FCC33AC4921856B7976AA23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +524,8 @@ magnet:?xt=urn:btih:17BA147F3929317E1FCC33AC4921856B7976AA23
 magnet:?xt=urn:btih:F443AAEE686AD4A4112C680899DE8BC191F8FD41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +549,8 @@ magnet:?xt=urn:btih:F443AAEE686AD4A4112C680899DE8BC191F8FD41
 ```bash
 magnet:?xt=urn:btih:1F85785780F49B542FD6409B1271F0300D44F5E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +578,8 @@ magnet:?xt=urn:btih:1F85785780F49B542FD6409B1271F0300D44F5E0
 magnet:?xt=urn:btih:8E697EC172C056BFB6A685BA0F4F1D2E3CF2B172
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:8E697EC172C056BFB6A685BA0F4F1D2E3CF2B172
 ```bash
 magnet:?xt=urn:btih:A23404B49A36FBB753ADF818F9BD8749DF9DAA5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +634,8 @@ magnet:?xt=urn:btih:A23404B49A36FBB753ADF818F9BD8749DF9DAA5F
 magnet:?xt=urn:btih:CCE1D613153EBEBEEB84A07482740D0699C14EFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +660,8 @@ magnet:?xt=urn:btih:CCE1D613153EBEBEEB84A07482740D0699C14EFE
 ```bash
 magnet:?xt=urn:btih:FB33F5C7AAE913A4E648413673C05174B8400E18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,29 +689,7 @@ magnet:?xt=urn:btih:FB33F5C7AAE913A4E648413673C05174B8400E18
 magnet:?xt=urn:btih:6DFFCE6172512FCEB1BC0CECBFB20C57EA8043F4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122615   (793247) от 06.04.2017
-
-Фотина Морозова | Северное бешенство (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конец 1990 года. Советский Союз движется к распаду, а в маленьком северном городке вспыхивает эпидемия неизвестной болезни. Победить её старается, приехавший из Москвы, доктор Подбельский. Вместе с ним слушателям предстоит раскрыть не одну тайну, связанную с «северным бешенством», а также ответить на сакраментальный вопрос «Кому выгодно?».Жанр: ФантастикаПродолжительность: 08:59:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0808105426AE5428482D66B2F271A77954ACA3F0
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

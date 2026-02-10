@@ -19,6 +19,8 @@ BBC: Питомцы - дикие в душе / Pets: Wild at Heart (2016) HDTVRi
 magnet:?xt=urn:btih:CEB96800D9337EFC6C9FF1797748FA01F92DFD2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BBC: Волшебные числа: таинственный мир матема
 ```bash
 magnet:?xt=urn:btih:28024496FCFB0D8A66495BB36390EE9B2FA04D44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ BBC: Тайны атомной эры / Secret of Our Nuclrear Age (Britains Nuc
 magnet:?xt=urn:btih:38CBA7D7449604BD0D54B10601914B3F8E9CA048
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ BBC: Зачем нам Луна? / Do We Really Need the Moon? (2011) WEB-DL [H.
 ```bash
 magnet:?xt=urn:btih:25E3B7CB4164ADE7B786BD5D1F23A3140441EF0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ BBC: Инопланетяне. Мозговой штурм / Aliens: The Big Thi
 magnet:?xt=urn:btih:AD03F4CEA72D99EBA948CFBDCAF29AA63F7AC66B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ BBC:Атлантика: Самый необузданный океан на Зе
 ```bash
 magnet:?xt=urn:btih:4D006BC1550068BE4D2B2A9BD0725B967816032A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ BBC: Мари Тюссо. Восковая легенда / Madame Tussaud: A Le
 magnet:?xt=urn:btih:B3C8BF5CC06D74D31053C56E0B1DBD2BB38B45F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ BBC: Калигула. Что это было / Caligula with Mary Beard (2013) 
 ```bash
 magnet:?xt=urn:btih:C8BF56692ACF327AA4D548229C0034A7E5AECD35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:C8BF56692ACF327AA4D548229C0034A7E5AECD35
 magnet:?xt=urn:btih:4D0A74A8C49F78AF2ACB3D7C77B9211FD6F0A6FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ BBC: Начало и конец Вселенной / The Beginning and End of th
 ```bash
 magnet:?xt=urn:btih:8B3F4A146E62C867859846BEE78B71FE8C8A4FEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:8B3F4A146E62C867859846BEE78B71FE8C8A4FEA
 magnet:?xt=urn:btih:53F98857399EDBA7690E5781A445FF66586255AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ BBC: Враги разума [2 серии] / The Enemies of Reason (2007) DVDRi
 magnet:?xt=urn:btih:C1F37D23D4A5DA7D0BA993D455C18D1BFC45F811
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ BBC. Человеческая Вселенная / Human Universe (2014) BDRip [
 ```bash
 magnet:?xt=urn:btih:915C1E477BE7B9947AD1241B95728106A4F5E1DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ BBC: Авиакатастрофа в Мюнхене / The Munich Air Disaster (2
 magnet:?xt=urn:btih:B40FDE812B4351ECDF4F61D6719830815FEB948E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ BBC: Голубая планета (Голубая бездна) / The Blue Plan
 ```bash
 magnet:?xt=urn:btih:6BB4697F49BC3FA5640361E0254FDBB76687A1D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ BBC: Океанская одиссея / BBC: Deep Ocean (2006) DVDRip
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ BBC: Как преуспеть ... / How to Get Ahead (2014) HDTVRip [H.264/720p
 ```bash
 magnet:?xt=urn:btih:A33F8C317EDF5630A5FEAA7F8279202D7E8C474B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ BBC. В краю муссонов: Народы муссонов / Wonders of th
 magnet:?xt=urn:btih:628C0B0752837C8C3AB0AF981C8DE557427551C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ BBC: Цивилизация / Civilisation (1969) BDRip [H.264/720p-LQ] (Сер�
 ```bash
 magnet:?xt=urn:btih:AAA3654F4C7EE1E15A10B67D07555672EA4C2701
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ BBC: Пингвин: Шпион под прикрытием / Penguins - Spy In 
 magnet:?xt=urn:btih:ACED283697999C4BF01EDD6155A65431699754F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ BBC: Пингвин: Шпион под прикрытием / Penguins - Spy In 
 ```bash
 magnet:?xt=urn:btih:33AD8986A313E76DFF52154E88EBAC8401861325
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ BBC: Битва экзопланет / Battle of the exoplanets (2018) IPTVRip [
 magnet:?xt=urn:btih:993F3ABEBC2BE30AF4ADC14D24461222C251B67D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ BBC. Вселенная / Universe / Das Universum - Faszination Weltall (2022) 
 ```bash
 magnet:?xt=urn:btih:C9EF40506E09ADF1C2757B4FD92C0A27B7987490
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ BBC. Британские времена года / The Great British Year (2013
 magnet:?xt=urn:btih:3D491BC6059C6A276A8E4B5133ED10EA945D5EEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ BBC: Что такое красота? / What is beauty? (2009) DVBRip
 magnet:?xt=urn:btih:783D9EE7813EB12F9F8C46325C56C8960EBCA1F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ BBC. Тайны взросления / The Secret Life of Growing Up (2016) DVB 
 ```bash
 magnet:?xt=urn:btih:081AA7C85B0D909B06B63112D341CF0BBD797A99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Motion Science, Cameron Pierron | AE Volume II: Intermediate Techniques (2019) W
 magnet:?xt=urn:btih:1781D9812C9D5B3C85310ED2B3E25828B335718D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Artefactoschool, Константин Стерхов | Пора цветения
 magnet:?xt=urn:btih:62BA0EF36C706F48628C0F057A6F0887E784C457
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ After Effects может оказаться очень сложной прогр
 ```bash
 magnet:?xt=urn:btih:187686BFCBA630EF3BEA656064AAD7C6B4B4D9EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -102,6 +108,8 @@ CG Education, Максим Шаров,  Алиса Арифи | Геймифик
 magnet:?xt=urn:btih:0C4016852EB6053B2C28722F928D48654FDEAE69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +136,8 @@ Ben Marriott | Motion Foundation (2023) WEB-DL [AD] [EN / EN Sub]
 ```bash
 magnet:?xt=urn:btih:C9E15CEF06801BAD66178538BFF315A77FF01A0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:C9E15CEF06801BAD66178538BFF315A77FF01A0B
 magnet:?xt=urn:btih:EF88A830B3A016A28AC2B79404BA0286A14080CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -182,6 +194,8 @@ magnet:?xt=urn:btih:EF88A830B3A016A28AC2B79404BA0286A14080CF
 ```bash
 magnet:?xt=urn:btih:AFA585123DA8F221FADA49B61A9413A80D90A8F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -210,6 +224,8 @@ Gastrosmile, Венера Хабирова | Желудок – ты как? (20
 magnet:?xt=urn:btih:61C0D2643E2B53CB2B7F853A0E300F620AF2A0CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +252,8 @@ magnet:?xt=urn:btih:61C0D2643E2B53CB2B7F853A0E300F620AF2A0CF
 ```bash
 magnet:?xt=urn:btih:8F2B8B5C3782B9BCF1E979215AF0062E05B4E4DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +282,8 @@ Domestika, Luke Adam Hawker | Artistic Architectural Drawing with Ink (2022) WEB
 magnet:?xt=urn:btih:4CB06C6970F1AD6B6E3F2C16FE9010A3760B86BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +310,8 @@ magnet:?xt=urn:btih:4CB06C6970F1AD6B6E3F2C16FE9010A3760B86BF
 ```bash
 magnet:?xt=urn:btih:09E9ADA016290C6BBB4F8B34BD684E21F52D2E78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +340,8 @@ magnet:?xt=urn:btih:09E9ADA016290C6BBB4F8B34BD684E21F52D2E78
 magnet:?xt=urn:btih:A3FDF03B5263BA830414A50DC866F7B674B78D52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +365,8 @@ CyberYozh, Евгений Ивченков, LastByte | Анонимность и
 ```bash
 magnet:?xt=urn:btih:CE7B08CF3FAAA5585DDDE375D2A4635E86640A83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +393,8 @@ magnet:?xt=urn:btih:CE7B08CF3FAAA5585DDDE375D2A4635E86640A83
 ```bash
 magnet:?xt=urn:btih:30D5F5C22D9A3072F681F44789E3E37FDF1040AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +423,8 @@ magnet:?xt=urn:btih:30D5F5C22D9A3072F681F44789E3E37FDF1040AC
 magnet:?xt=urn:btih:E76EA34636309F4E88D24243FD0EA1C2455154A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +452,8 @@ Enterclass, Сергей Курбатов | Осенний Павловск (202
 magnet:?xt=urn:btih:9A963CC1D06E2DEE522D4349490F51A6B6F9F51D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +477,8 @@ magnet:?xt=urn:btih:9A963CC1D06E2DEE522D4349490F51A6B6F9F51D
 ```bash
 magnet:?xt=urn:btih:44B90994B0394313E00AD550F864B616CF3E63C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +507,8 @@ magnet:?xt=urn:btih:44B90994B0394313E00AD550F864B616CF3E63C2
 magnet:?xt=urn:btih:BF304EBA5E43BFB2B0259E1D845961801A37D4EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +533,8 @@ Domestika, David Drazil | Architectural Drawing: From Paper to Photoshop (2023) 
 ```bash
 magnet:?xt=urn:btih:2EE431BDE8149B551D5A392FDE26484F93C9D72F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +563,8 @@ Kuptsov GameDev Academy, Данил Купцов | Industry Entry for 3D Artist 
 magnet:?xt=urn:btih:0524233D86D5C90AFA7660ADA654EAE3723E020B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +591,8 @@ magnet:?xt=urn:btih:0524233D86D5C90AFA7660ADA654EAE3723E020B
 magnet:?xt=urn:btih:1A6AD25932DDB231E0D0751E26EEA24541C972FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +618,8 @@ PhotoCASA, Сергей Парышков | Креативные приемы в 
 ```bash
 magnet:?xt=urn:btih:E72C212152F63BA105643CB5CE657D601756FA61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +648,8 @@ Class101, Inhyuk Lee | The Ultimate Guide to Illustration - From Beginner to Int
 magnet:?xt=urn:btih:C36BD15D52D09A9A7A0B28E1FD7B2B9EC66D07EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +677,8 @@ magnet:?xt=urn:btih:C36BD15D52D09A9A7A0B28E1FD7B2B9EC66D07EE
 magnet:?xt=urn:btih:B98C3DC70D98CF64CFD67B2232F5E57387997F20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +704,8 @@ magnet:?xt=urn:btih:B98C3DC70D98CF64CFD67B2232F5E57387997F20
 ```bash
 magnet:?xt=urn:btih:666801024AF154D91290AF1F8879D96B3D6CC3F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -683,6 +733,8 @@ Class101, Inhyuk Lee | Advancing to Intermediate Illustration - Steps after Lear
 ```bash
 magnet:?xt=urn:btih:22E81E82ECE817642CE852879C0CC4CC7869EF05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

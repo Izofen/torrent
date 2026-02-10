@@ -19,6 +19,8 @@ NG: Штормовой год / Year Of The Storm (2011) HDTV [H.264/1080i]
 magnet:?xt=urn:btih:1EAB8709AC11C5C5F6F2F12C5D5409924548CBF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ NG. Осушить Бермудский треугольник / Drain the Bermu
 magnet:?xt=urn:btih:8EF57EF5B443754FAB3D68A42CE4869753D29E3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Animal Planet: Живой или вымерший. Гигант Мадагаск
 ```bash
 magnet:?xt=urn:btih:827863B31F9939A29D1C2E5CE8C8E65516132EA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:827863B31F9939A29D1C2E5CE8C8E65516132EA8
 magnet:?xt=urn:btih:33C30ED752C5774243AC1D76B5EDAE09D762A189
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:33C30ED752C5774243AC1D76B5EDAE09D762A189
 ```bash
 magnet:?xt=urn:btih:2197C982DEB57291AC373352DA26E6121348A1DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Discovery: Путешествие в неизвестность с Эдом Ст
 magnet:?xt=urn:btih:B45FDAA9F5282A53D187417D0CED7B034993154F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ BBC: Амазонка с Брюсом Перри / Amazon with Bruce Parry (2008
 ```bash
 magnet:?xt=urn:btih:B0089DFDD7780B1937945BD2CF45CBDA6E1B2AC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Discovery: Один на один с природой / Alone in the Wild (2009)
 magnet:?xt=urn:btih:7FC86481809A005BF30F15B315DFDF1C98A4D9AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:7FC86481809A005BF30F15B315DFDF1C98A4D9AF
 ```bash
 magnet:?xt=urn:btih:08542CA9F03C8BFE94475AFF98C646B98F5C4398
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:08542CA9F03C8BFE94475AFF98C646B98F5C4398
 magnet:?xt=urn:btih:671741116014E24F0C203CB468DA6C1C4E3E13F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ BBC. Самая дикая мечта. Покорение Эвереста / The
 ```bash
 magnet:?xt=urn:btih:338B85DA1C736D88F39764869B05364C7F191789
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ NG. Бушующие миры. Космический ветер / Storm Worlds.
 magnet:?xt=urn:btih:854136D0A297EA466FEBBC1E9FD9CD026197DD6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ BBC: Веллингтон - железный герцог без маски / We
 ```bash
 magnet:?xt=urn:btih:B1615C537417DAAD627A4AFCECCB3F8AED3517FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Discovery. Сокровища из кладовки / Backroad Bounty (2014) HDT
 magnet:?xt=urn:btih:DBA05C595930F3E7EF8572EE95277B491E8BF4DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ NGW: Дикая природа: Остров Воскресения / Wild Life:
 ```bash
 magnet:?xt=urn:btih:BEB9A0A219B808E22A386FD2BD15DCC1A633C371
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ BBC: Третья мировая война: взгляд из командно�
 magnet:?xt=urn:btih:6158599647C89E3CC91217546801CC9C7A80B462
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ Discovery: Дьявольский каньон / Devil's Canyon (2017) HDTVRip [
 ```bash
 magnet:?xt=urn:btih:8B0619F649BFC8A8A7FAE3ABB93895C7F7CD28D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ DV: Невероятное вокруг нас. Биоэнергия [8 из 28]
 magnet:?xt=urn:btih:2BD2D95254A1BDEE46D8889B6FB875905F389324
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ NG: Осушение океана: Вторая мировая война / Drai
 ```bash
 magnet:?xt=urn:btih:8D865E239C4332510D984F3FD851ECFCE553ADE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ BBC: Гении из царства животных / Super Smart Animals (2012
 magnet:?xt=urn:btih:D41F12FFA72F6A0FDA54138D62AC35F125C07859
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ NGW: Акулотрас / Sharkatraz (2016) HDTVRip
 ```bash
 magnet:?xt=urn:btih:D2C26CA65BFE8BD2763FD52AFEB83A255F3A5807
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ NGW: Гризли Аляски бросают вызов. Арктические
 magnet:?xt=urn:btih:93E4D00408F00A6AE5D0647ACF9691679149023D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:93E4D00408F00A6AE5D0647ACF9691679149023D
 ```bash
 magnet:?xt=urn:btih:50C543548D53EAAFCE75DA620A4D3A23413B88A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ NGW: Последний рай орангутанов / The Last Orangutan Eden 
 magnet:?xt=urn:btih:AED853BB31592F4DE953A9B60AD5D068650AE50D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ Discovery: Охотники за ядом / Venom Hunters (2016) HDTV [H.264/108
 magnet:?xt=urn:btih:E6830BA4F53F389971528A816788D83DAC9BEDE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ MV Agusta – производитель мотоциклов, располож�
 ```bash
 magnet:?xt=urn:btih:E84337DD354FA4F45F7BABEF409A1D6F909BE3A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

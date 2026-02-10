@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:371057457F32BB0352336804843D03F7755A498A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:371057457F32BB0352336804843D03F7755A498A
 magnet:?xt=urn:btih:AA3892D2884915820C170728E692D398AC8543C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:AA3892D2884915820C170728E692D398AC8543C2
 ```bash
 magnet:?xt=urn:btih:D2E3D62FEB0F56D2F046642868D260EB1FF64BD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -129,6 +137,8 @@ magnet:?xt=urn:btih:D2E3D62FEB0F56D2F046642868D260EB1FF64BD7
 magnet:?xt=urn:btih:3DCB238B9B3129A8C1E46B0F7DCEA62F99302354
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ Mystery Chronicles: Murder Among Friends / Загадочное происшес
 magnet:?xt=urn:btih:CD9C2C3FAC7E24793CBEFE3271B89B8031677641
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:CD9C2C3FAC7E24793CBEFE3271B89B8031677641
 ```bash
 magnet:?xt=urn:btih:69E9A5702712C1877BF3D754234139C7521B4499
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -205,6 +219,8 @@ magnet:?xt=urn:btih:69E9A5702712C1877BF3D754234139C7521B4499
 magnet:?xt=urn:btih:934C0F4A52C02E899A1893017D08863F5B4E4D6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +247,8 @@ magnet:?xt=urn:btih:934C0F4A52C02E899A1893017D08863F5B4E4D6C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +273,8 @@ magnet:?xt=urn:btih:934C0F4A52C02E899A1893017D08863F5B4E4D6C
 magnet:?xt=urn:btih:455B8D23E298691BA71747ACE42FE7329986DA55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ Maxim - самый читаемый мужской журнал страны. В
 ```bash
 magnet:?xt=urn:btih:7E833E9371054CE87461099CDD8CED5C85CC76F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -305,6 +327,8 @@ magnet:?xt=urn:btih:7E833E9371054CE87461099CDD8CED5C85CC76F1
 magnet:?xt=urn:btih:ABBD0A48FB266B64D801DCAE8705D207C1407290
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ magnet:?xt=urn:btih:ABBD0A48FB266B64D801DCAE8705D207C1407290
 ```bash
 magnet:?xt=urn:btih:4A9EF192CC626C06E570EC9687905F4CDC1D51A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -354,6 +380,8 @@ magnet:?xt=urn:btih:4A9EF192CC626C06E570EC9687905F4CDC1D51A9
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ Audio Damage - Ratshack Reverb 2.1.0 by ASSiGN [английский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +434,8 @@ Audio Damage - Ratshack Reverb 2.1.0 by ASSiGN [английский]
 magnet:?xt=urn:btih:9B708C631A70A807D420C17F1C346C3194D3FAB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ magnet:?xt=urn:btih:9B708C631A70A807D420C17F1C346C3194D3FAB2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ Megazone 23 OVA / Мегазона 23 [1985-1989, OVA, 4] DVDRip raw
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ Megazone 23 OVA / Мегазона 23 [1985-1989, OVA, 4] DVDRip raw
 magnet:?xt=urn:btih:122BAB9E6BB4D15F2331AD0F5899856588ADA826
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ magnet:?xt=urn:btih:122BAB9E6BB4D15F2331AD0F5899856588ADA826
 magnet:?xt=urn:btih:0740D089101538B590B6582AEDD196AB62F9A4E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ Tunes Jungle Adventure / Нотки: Приключения в джунглях 
 ```bash
 magnet:?xt=urn:btih:06F6ECE76222D44BC97277D497CB6CE3CFB440FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +602,8 @@ magnet:?xt=urn:btih:06F6ECE76222D44BC97277D497CB6CE3CFB440FC
 magnet:?xt=urn:btih:5B76C091231D528D5688EE8B620B114DF18B7E85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +628,8 @@ magnet:?xt=urn:btih:5B76C091231D528D5688EE8B620B114DF18B7E85
 magnet:?xt=urn:btih:93026DFE733422A62CF2949B50BEABEC44BAEEA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +653,8 @@ magnet:?xt=urn:btih:93026DFE733422A62CF2949B50BEABEC44BAEEA5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +684,8 @@ magnet:?xt=urn:btih:93026DFE733422A62CF2949B50BEABEC44BAEEA5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +711,8 @@ magnet:?xt=urn:btih:93026DFE733422A62CF2949B50BEABEC44BAEEA5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

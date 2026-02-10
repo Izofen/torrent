@@ -1,3 +1,116 @@
+###  Публикация: 612595   (985635) от 02.02.2013
+
+Видео-коллекция / Kim Wilde (1981 - 2010) (2010) TVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+В основе этого релиза - выступленияCD.1. Выступления в передаче Musikladen (Германия) 1981 - 1982  
+Продолжительность:00:15:15
+
+01. Kids In America (19.03.1981)
+02. Chequered Love (04.06.1981)
+03. Water On Glass (10.09.1981)
+04. Cambodia (17.12.1981)
+05. View From A Bridge (15.04.1982)Жанр: Музыка, PopПродолжительность: 01:20:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49DF69BEE8D36D12B67FAF2FB844A59B81E8851A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971501   (985686) от 03.01.2016
+
+Песня года 2015  (2016.01.01-02) HDTV [1080i-LQ] (части 1-2 из 2)
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_985686.jpg" />
+</div>
+
+
+###  Подробнее
+
+На телеканале "Россия" - главный концерт страны. Участвуют все звезды!
+Каждый год в первые дни нового года мы с радостью слышим позывные любимой программы: "Через годы, через расстояния, на любой дороге, в стороне любой песне ты не скажешь "до свидания", песня не прощается с тобой…"
+На сцене "Олимпийского" соберутся лучшие (   Читать дальше...   )Телекомпания: Россия HDЖанр: КонцертПродолжительность: 04:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADAA598D86D8FF016246DD3D1133C6AC9BF65D87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 740802   (985721) от 01.01.2014
+
+Дискотека 80-х (2014.01.01) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_985721.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Дискотека 80-х" - яркое и захватывающее шоу, ультрасовременная сценография, оригинальные творческие находки и, конечно же, незабываемая встреча с кумирами. Двадцать звездных имен, двадцать лучших, по мнению слушателей и команды радиостанции "Авторадио": Rick Astley, Ten Sharp, Sandra, Alphaville, Tomas Anders, Boney M, F.R. David, Pupo, Joy, (   Читать дальше...   )Жанр: КонцертАктеры: Олег Газманов, Игорь Николаев, Сергей Минаев, Владимир Маркин, Мираж, OttawanПродолжительность: 03:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8746B805BC24D0575141779DB20080033D7B4E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 740762   (985820) от 01.01.2014
+
+Дискотека 80-х (2014.01.01) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_985820.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Дискотека 80-х" - яркое и захватывающее шоу, ультрасовременная сценография, оригинальные творческие находки и, конечно же, незабываемая встреча с кумирами. Двадцать звездных имен, двадцать лучших, по мнению слушателей и команды радиостанции "Авторадио": Rick Astley, Ten Sharp, Sandra, Alphaville, Tomas Anders, Boney M, F.R. David, Pupo, Joy, (   Читать дальше...   )Жанр: КонцертАктеры: Олег Газманов, Игорь Николаев, Сергей Минаев, Владимир Маркин, Мираж, OttawanПродолжительность: 03:03:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D09602A00DDB7A603FEA9564A528C655AA0B3FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355006   (985875) от 24.01.2020
 
 Сборник клипов - Свежий Русский Хит от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ] [upscale]
@@ -21,6 +134,8 @@
 ```bash
 magnet:?xt=urn:btih:350CF6223E2502343BC3385F2920628AB7B9640B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +161,8 @@ Mylene Farmer - C'est dans l'air (2009) HDTVRip [720p]
 magnet:?xt=urn:btih:F290ECE471EA452F266562EDAD6DD85E1F96B852
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +186,8 @@ VA - Hard Bass 2011: The Live Registration (2011) Blu-Ray  [H.264]
 ```bash
 magnet:?xt=urn:btih:A242F5EC317420C8070193A5384A5F98594FEEF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +213,8 @@ magnet:?xt=urn:btih:A242F5EC317420C8070193A5384A5F98594FEEF1
 ```bash
 magnet:?xt=urn:btih:1E43A184F862D10BE8957B14B5A2C71D427CD5B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -129,6 +250,8 @@ Slipknot - Disasterpieces (2002) DVDRip
 magnet:?xt=urn:btih:DDC752A60E72EBC9B03727469396CE2F2C675F57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +278,8 @@ magnet:?xt=urn:btih:DDC752A60E72EBC9B03727469396CE2F2C675F57
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +314,8 @@ magnet:?xt=urn:btih:DDC752A60E72EBC9B03727469396CE2F2C675F57
 magnet:?xt=urn:btih:4173642FED1C7538A4BB32325025119B063FAFC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +340,8 @@ Mylene Farmer - Je te dis tout (2013) [1080p] HDRemux
 magnet:?xt=urn:btih:A13827629989978522B80FE3F7363B34D6CE6E14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +365,8 @@ David Guetta feat. Sia Furler - She Wolf (Falling to Pieces) (2012) HDRemux [h.2
 ```bash
 magnet:?xt=urn:btih:7FA2409E846BDFC995D5A17C0753B093D9ADF98B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +396,8 @@ Laid Back - 7 клипов (1990) DVDRip
 magnet:?xt=urn:btih:ED4A27284D963C901BF7C836D8344830ADBC3F85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +425,8 @@ magnet:?xt=urn:btih:ED4A27284D963C901BF7C836D8344830ADBC3F85
 magnet:?xt=urn:btih:39CF25D75032969F9286108527943B83C825430E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +450,8 @@ Shakira - Addicted To You (2012) HDRemux [h.264,1080p]
 ```bash
 magnet:?xt=urn:btih:6FD635E7CA6DC75C72300832B764D196632E31FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +483,8 @@ Infected Mushroom plays and is interviewed at KCRW 89.9FM (2012) [/H.264] TVRip
 ```bash
 magnet:?xt=urn:btih:3B4D5293D093128929B71D059CD78CB83BD7CE47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +519,8 @@ magnet:?xt=urn:btih:3B4D5293D093128929B71D059CD78CB83BD7CE47
 magnet:?xt=urn:btih:D4D3A92C8E9D7193C0931462C0631DA8EB97C7F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +544,8 @@ magnet:?xt=urn:btih:D4D3A92C8E9D7193C0931462C0631DA8EB97C7F6
 ```bash
 magnet:?xt=urn:btih:234A495D578564E1A3364BDDE0DC68E40E22FCE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +573,8 @@ magnet:?xt=urn:btih:234A495D578564E1A3364BDDE0DC68E40E22FCE2
 magnet:?xt=urn:btih:184B7D1C67D2BC992CF1B45DD213F81354B38B05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +599,8 @@ Shakira ft. Dizzee Rascal  - Loca (2010) HDRemux [h.264,1080i]
 magnet:?xt=urn:btih:1FC727D72A0E9D3B8D9B2136F06CCFB12D8312B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +624,8 @@ Tom Boxer feat. Antonia - Morena (2010) HDRemux [h.264,1080p]
 ```bash
 magnet:?xt=urn:btih:3D5127DE7452AA543F32AC3C7EBBE1FB82BA2EB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +653,8 @@ magnet:?xt=urn:btih:3D5127DE7452AA543F32AC3C7EBBE1FB82BA2EB6
 ```bash
 magnet:?xt=urn:btih:D9EECE4D14492FAE6CF144724BEE517F53AB9446
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +688,8 @@ magnet:?xt=urn:btih:D9EECE4D14492FAE6CF144724BEE517F53AB9446
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +713,8 @@ Flo Rida - Whistle (2012) HDRemux [H.264/1080p-LQ]
 ```bash
 magnet:?xt=urn:btih:F6455DEE0B3112A84A9D00D44A8E55ECF742226C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,130 +748,7 @@ Silent Circle - Live 1999 + Videos (1999) VHSRip
 нет
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970064   (987310) от 02.01.2016
-
-Концерт в Париже / Evanescence - Anywhere But Home (2004) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Anywhere but Home («Куда угодно, только не домой» — англ.) — концертный альбом американской рок-группы Evanescence, записанный на концерте Zenith in Paris в Париже в 2004 году, включающий, помимо записи концерта, бонусный би-сайд-трек «Missing». Выпущен на CD и DVD в 2004 году.01. Haunted (Intro)
-02. Haunted
-03. Going Under
-04. Taking Over Me(   Читать дальше...   )Жанр: Концерт, Alternative rockПродолжительность: 02:10:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FC7CFCC381B4E81FA84CB828635162CD2C97D4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 163580   (987369) от 06.01.2010
-
-Chris Rea - The Road To Hell & Back - The Farewell Tour (2006) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Jazzy Blue
-02. That's The Way It Goes
-03. Where The Blues Come From
-04. Josephine
-05. Work Gang
-06. Head Out On The Highway
-07. Easy Rider
-08. ‘Til The Morning
-09. Stony Road
-10. KKK Blues(   Читать дальше...   )Жанр: Концерт, Rock, bluesПродолжительность: 01:50:12
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971410   (987510) от 02.01.2016
-
-Александр Пушкин - Домик в Коломне. Из последних лет (1974) TVRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987510.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основе телеспектакля поэма "Домик в Коломне", стихи и письма Александра Сергеевича Пушкина. Романс на стихи Пушкина исполняет Евгений Нестеренко.Производство: СССР, Гостелерадио СССРЖанр: Телеспектакль, поэзияРежиссер: Лев ЕлагинАктеры: Сергей Юрский, Эммануил Виторган, Алла Покровская, Станислав Садальский, Александр ВокачПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C797F8A50ED9DDC0991A6E4F0627ED310F2F7A22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 433451   (987742) от 09.01.2012
-
-The Amsterdam Baroque Orchestra & Choir (Bach Johann Sebastian) "Matthew Passion" (2005) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Страсти по Матфею в исполнении The Amsterdam Baroque Orchestra & Choir. Запись концерта состоялась 22 и 23 марта 2005 в средневековой церкви Sint-Joris города Амерсфорт (Amersfoort) в Нидерландах.
-Исполняют:
-Оркестр и хор: The Amsterdam Baroque Orchestra & Choir
-Хор мальчиков: Boys Choir of Sacraments-Church Breda
-Дирижер: Ton Koopman
-Солисты: Jörg Dürmüller (Евангелист), Ekkehard Abele (Иисус), Cornelia Samuelis (Сопрано), Bogna Bartosz (Альт), Paul Agnew (Тенор), Klaus Mertens (Бас)
-Режиссер: Hans Hulscher
-Замысел звука: Tini Mathot, Adriaan Verstijnen
-Редакторы: Ton Koopman, Ruud Moll1. Coro I & II & Chorale: Kommt, ihr Tochter, helft mir klagen – O Lamm Gottes unschuldig (Chorale sung only in 1742 and 1743–1746 versions)
-2a. Evangelist, Jesus: Da Jesus diese Rede vollendet hatte
-3. Chorale: Herzliebster Jesu, was hast du verbrochen
-4a. Evangelist: Da versammleten sich die Hohenpriester und Schriftgelehrten
-4b. Coro I & II: Ja nicht auf das Fest
-4c. Evangelist: Da nun Jesus war zu Bethanien
-4d. Coro I: Wozu dienet dieser Unrat?
-4e. Evangelist, Jesus: Da das Jesus merkete, sprach er zu ihnen
-5. Recitativo (alto, flutes): Du lieber Heiland du
-6. Aria (alto, flutes): Bu? und Reu(   Читать дальше...   )Жанр: КонцертЯзык субтитров: РусскиеПродолжительность: 02:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3D1FA934D26E88A0E9E5221DF1386F29AEC227B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

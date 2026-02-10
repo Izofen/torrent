@@ -19,6 +19,8 @@ BBC Earth. 8 дней до Луны и обратно / 8 days to the Moon and b
 magnet:?xt=urn:btih:A8BFBE7F163C1FBBDF51C4B451BC86BB0C53676C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NG. Последствия: Нулевое население / Aftermath: Popul
 ```bash
 magnet:?xt=urn:btih:DADA7411EE71E78AD2D667124835B48D4BDE7AE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ BBC: Всемирная история живописи / Sister Wendy's Story o
 magnet:?xt=urn:btih:06476C2F9F06F9C84F600FBA5DB95CEAB67E7387
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ BBC: Horizon. Таинственные сигналы из космическо�
 magnet:?xt=urn:btih:CFD13B4F1D3E11FDD22F15211B9C1DC9C7D010C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ BBC. Секс и чувственность: искусство модерн / S
 ```bash
 magnet:?xt=urn:btih:D02BF79737F89E90A25A22F40C6B7DBF4493CE4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ BBC: Horizon. В поисках бессмертия / The Immortalist (2016) HD
 magnet:?xt=urn:btih:91A9C0BC2ABF46C386617717D80FD40B965EB96C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ BBC: Вивисекция. Как устроены насекомые / Insect D
 ```bash
 magnet:?xt=urn:btih:B4B22BDB67889DEF79ABE8055A341C89DB0BAA9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ BBC: Атлантида была здесь (Свидетельства Атла
 magnet:?xt=urn:btih:200F407716A12265821B1E8CE7AE7DC1578E385D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ BBC: Величайшие явления природы / Nature's Great Events 
 magnet:?xt=urn:btih:E48084B2857045ECB51617B83E286CC2BC3250B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ BBC: Великий рифт. Дикое сердце Африки / Great Rift:
 ```bash
 magnet:?xt=urn:btih:FEF9F7616CA3987A59FBA878DD40A9DBAF69864C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ BBC. Шедевры мировой архитектуры / Adventures in Archit
 magnet:?xt=urn:btih:F94D18F1231D1D39A2A2E8EDDEC6C9CA6B270270
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ BBC: 80 Чудес света (Вокруг света за 80 сокровищ�
 magnet:?xt=urn:btih:00865FE0D88A68B5B69D3A6074F874A1C5B31937
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ BBC: 80 Лучших садов мира / Around the World in 80 Gardens (2008)
 ```bash
 magnet:?xt=urn:btih:79FF2953BE043DD4B23FAFCD03598128DF64F85A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ BBC. Эттенборо и морской дракон / Attenborough and the Se
 magnet:?xt=urn:btih:FE8A4E159186A58C015F6822FAB7547A68CDBA35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ BBC. Экспедиция в Бирму / Expedition Burma (2011) BDRemux [H.264
 ```bash
 magnet:?xt=urn:btih:674283D968C4820CC83C9F5326469DB91263A1FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ BBC. Вена - столица империи / Vienna: Empire, Dynasty and Drea
 magnet:?xt=urn:btih:32B76D72DAB0953298D9D9D6A1C3855A641A354F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:32B76D72DAB0953298D9D9D6A1C3855A641A354F
 ```bash
 magnet:?xt=urn:btih:0DBC51DD5F22589519D6F0E70961576EC95EFF21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ BBC. Horizon. Как перестать тревожиться и стать с�
 magnet:?xt=urn:btih:2CC267C0C3E8ED04071F6DDAFBEB653F78B458B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ BBC horizon. Как видеоигры влияют на нашу жизнь? / 
 ```bash
 magnet:?xt=urn:btih:9EAA3D4F0D4008FA8CC53F61DB0D80E3B4ED4AEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ Animal Planet: То, что не видно вооруженным глазом 
 magnet:?xt=urn:btih:70603F7F15E5790D886B41EEE578FA996FE114F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ BBC. Горы - жизнь над облаками / Mountains: Life Above The C
 ```bash
 magnet:?xt=urn:btih:0129D22A5D03EEAB116A7F07AEC510D7CCA8E875
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ BBC Horizon. Какой длины верёвка? / How long is a piece of stri
 magnet:?xt=urn:btih:688BDF1D10CEA1FDC4532BD12A25891A01A65644
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Animal Planet. Собаковедение: Новые истории / DOGS 101 
 magnet:?xt=urn:btih:2F5748CA9FCCBE0FF95F6FB22060FF2A1B69FD0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ Animal Planet: Дом для рептилий. Дино-террариум / Sca
 ```bash
 magnet:?xt=urn:btih:FA5870C21B7E82B0E1119B30E391268B484AF17E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ Animal Planet. Природа Ближнего Востока / Wildest Middle E
 magnet:?xt=urn:btih:FD876F564DD4185464A3D736476E5FE5479D0708
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Animal Planet: Дом для рептилий. Агамы Дикого Запа�
 ```bash
 magnet:?xt=urn:btih:DA182805136EF494AF1435A853934855843E27DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

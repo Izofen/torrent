@@ -19,6 +19,8 @@ Democracy 3 (2013) [Ru/Multi] (1.31/dlc) License GOG [Complete Edition]
 magnet:?xt=urn:btih:41E3C5B94A7D3AA85DD3532076661238B57734E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ RollerCoaster Tycoon Classic (2017) [Multi] (1.0/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:0574027792CAFCE4832B1CDC42FA857356745732
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Surviving Mars — это научно-фантастический симуля
 magnet:?xt=urn:btih:BBEDA0F61D1B35BEC64AA2C85C8737C683B769AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Cityconomy: Service for your City (2015) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:5FE1524287755474801C9A45931FDCBD4FF7C091
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ TransRoad: USA (2017) [Ru/Multi] (1.0.7) Repack xatab
 magnet:?xt=urn:btih:0D77FC880585987E0AFD968E4C0B2B099231C59C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ RollerCoaster Tycoon World - это современное воплощение 
 ```bash
 magnet:?xt=urn:btih:49BEC31B7C2C8C36EC319CC1F561779871C1A5EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Tropico 4 расширяет геймплей предыдущей игры но
 magnet:?xt=urn:btih:0D06D60F72C3EB38371B7CE07B52E42D9DFD1D9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Tropico 4 расширяет геймплей предыдущей игры но
 magnet:?xt=urn:btih:4549CF5A218BAFD11410C3717735FE8762349CEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Surviving Mars (2018) [Ru/Multi] (20191010/dlc) Repack xatab [Digital Deluxe Edi
 magnet:?xt=urn:btih:C5EFAA594AB81494F669BD1EF7B8C9D148AA9AE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Motorsport Manager (2016) [Ru/Multi] (1.5.1/dlc) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:E7DBD90152B25D5B1BC496588A9EC268FE364B6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Emergency 2013 – дополнение для игры Emergency 2012: The Ques
 magnet:?xt=urn:btih:C138174F64F31D898B7D9CD9B1B9B9CD6787F0DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Blood Bowl 2 - сиквел прекрасной стратегии, созда�
 ```bash
 magnet:?xt=urn:btih:9EB44DBD8925F4A16829D5E00D58749FA5C5D0B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ Football Manager 2014 - это симулятор менеджера футбо�
 magnet:?xt=urn:btih:DE08FC7DE5516C9B677660F4300091113B8F14EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Banished (2014) [Ru/En] (1.0.7) Repack Other s
 ```bash
 magnet:?xt=urn:btih:9974F4DC2794087BF12AA2093E7783FAFA3605CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ Port Royale 4 (2020) [Ru] (1.1.1.16203) Repack xatab [Extended Edition]
 magnet:?xt=urn:btih:2CEB9EDFB2508D385066E5D8AA9AB9215004B896
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ Offworld Trading Company (2016) [Ru/Multi] (1.8.13949/dlc) Repack Other s
 magnet:?xt=urn:btih:B5FA6E50ABB4F0AEBBD7D6B176889E8C2BED7BBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Virtual Villagers 3: The Secret City / Робинзоны. Затерянный 
 ```bash
 magnet:?xt=urn:btih:25F1FDB0573B85544CD7434F43B944DBA5844078
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ Delicious: Emily's Taste of Fame / Объедение от Эмили: Вкус 
 magnet:?xt=urn:btih:33A072E676B5F4C2459746FF1AF57ACF26672E90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Sheltered (2016) [Ru/Multi] (1.9) License GOG
 ```bash
 magnet:?xt=urn:btih:D08240044E57B7BC803A64C045A633B157DD1056
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ Jurassic World Evolution (2018) [Ru/En] (1.4.3.37142/dlc) Repack R.G. Механ
 magnet:?xt=urn:btih:A6A18E4AAAB518224EBBD9B9E2F84E478638FEE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ The Settlers®: Rise of an Empire (2008) [Multi] (1.71.4289/dlc) License GOG [Go
 ```bash
 magnet:?xt=urn:btih:07F7FD74C4BF4D80DA305FE403FED6DAABBCCE02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ SPORE™ Collection (2008) [Ru/Multi] (1.2.0.2818/3.0.0.2818/dlc) Repack R.G. Ca
 magnet:?xt=urn:btih:18305F2371946030D8B887A07A6681DE114E0BA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Jurassic World Evolution (2018) [Ru/Multi] (1.4.3/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:33DA0C90100ABA5A2C3ACB2D2D3C7EBB1DB825E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ Jurassic World Evolution (2018) [Ru/En] (1.4.3/dlc) Repack xatab
 magnet:?xt=urn:btih:6E243B78A8B42FD064F2235BB7B50CFF7C91DF89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ Mars Horizon (2020) [Ru/Multi] (1.4.2.1) License GOG
 magnet:?xt=urn:btih:561CDB327DB10F7A19B575E0FF3D8E4E0BDB0CAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Prison Architect - это инди-игра и в то же время стра�
 ```bash
 magnet:?xt=urn:btih:5C14181619E96D03E6F36B88E38679A3936F20E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

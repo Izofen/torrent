@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:D32FBD33749D1755870522DC5F0B04A27FB47B0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Iridient Developer - мощное приложение для обработки
 magnet:?xt=urn:btih:A6B35E3B57E0C54F67E179ABC9EFF40FBE04E13A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Brave - защищённый веб-браузер на базе Chromium, по�
 ```bash
 magnet:?xt=urn:btih:8D6CEB37513737BEA8C4663304F1F0AC7FDF0B13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Aftermath - No Time To Waste (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive T
 magnet:?xt=urn:btih:E55AF32A824C466509B57C55D816BABDC079EEF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Underking - At Hell's Gate (2021) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Heav
 ```bash
 magnet:?xt=urn:btih:D8093572C84327C52D94308CF4E4DB703898D77E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ DotNext — это площадка, где раз в полгода .NET-раз
 magnet:?xt=urn:btih:6AC62D6A2C2C17B2E08FDE2634EB36BC974CD2BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:6AC62D6A2C2C17B2E08FDE2634EB36BC974CD2BF
 ```bash
 magnet:?xt=urn:btih:51B2098E0AD662456E15298DDF94905DCAC82C03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ Youtube Downloader HD - бесплатная и предельно проста�
 magnet:?xt=urn:btih:20EB1BC3B1DFA840D9366CB7A1F9AB4E36E38BA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ Process Monitor 3.95 [En]
 ```bash
 magnet:?xt=urn:btih:7BB1B87F2C13933F6CDFE71B15F6D52C11AFBACD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ The Animation Box, Yuri Lementy | Cartoon Mechanics Masterclass (2020) PCRec [RU
 ```bash
 magnet:?xt=urn:btih:3DFE0F1E1AF26465919208F15DC7A071BF54B77C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ Peso Pluma - Genesis (Génesis) (2023) [FLAC|Lossless|WEB-DL|tracks] <Regional M
 magnet:?xt=urn:btih:B8AAC90B402128D0441ED6E3FB3DBDB613724A00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ Darknet - trashworld (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal>
 ```bash
 magnet:?xt=urn:btih:2E31184A5FB9CCB2023A114F989FF8B4AAB277D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +350,8 @@ Nicky Romero & Tim van Werd & Timmo Hendriks - Protocol Radio 500 (2022-03-10) [
 magnet:?xt=urn:btih:F984734EAF19BD414570F1FA2BFBF471879B6CA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ Elektronika Praktyczna (Практическая электроника) - жу�
 magnet:?xt=urn:btih:20694E3F15FE2F940C661F618D481BF14B3A73FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:20694E3F15FE2F940C661F618D481BF14B3A73FF
 ```bash
 magnet:?xt=urn:btih:6772D33C38A05C749107A3E60E3F7DAC66341BD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +429,8 @@ FastScripts - Утилита для быстрого запуска AppleScript-
 magnet:?xt=urn:btih:25EE2B33C2AFF1B5CA7FC49838F3949E9F161FE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ magnet:?xt=urn:btih:25EE2B33C2AFF1B5CA7FC49838F3949E9F161FE9
 magnet:?xt=urn:btih:B6039068670E783BE57DADFC110B18D35343EC99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ Light Image Resizer - программа для изменения размер�
 magnet:?xt=urn:btih:D204247850308970C757CDFB88B480E608FBB54C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ System Toolkit - приложение «все-в-одном» для монит
 ```bash
 magnet:?xt=urn:btih:7806831EEB1720D27734F9E85509FECF8B415894
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +537,8 @@ Convoy - Some Gave All for Rock n Roll (2023) [FLAC|Lossless|WEB-DL|tracks] <Har
 magnet:?xt=urn:btih:5F2FC2A68BA0105537CF65C555C89A29539DF8E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +565,8 @@ Walk With Titans - Olympian Dystopia (2023) [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:45823E6FFBE49E4659EADFA054FD0AEFC211D4A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +595,8 @@ VA - The Universal - 90's Easy (2023) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
 magnet:?xt=urn:btih:D1DE506E445488F1A9050CD5A3094F1EE00074AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +621,8 @@ IconFly проста в использовании. Просто перетащ�
 ```bash
 magnet:?xt=urn:btih:7F5D884509A94612ADB06D9C1507D64D3DBBB0ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +651,8 @@ Papik - Papik Presents Cocktail Mina, Vol. 2 (2022) [AAC|~319 Kbps] <Nu Jazz, So
 magnet:?xt=urn:btih:D9B95089B707CA4A1160B27450EB2E223184354B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +677,8 @@ magnet:?xt=urn:btih:D9B95089B707CA4A1160B27450EB2E223184354B
 magnet:?xt=urn:btih:2F8CAB4AB06DD955011E3D5B6D8A7B8F65717DD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ MiniTool Partition Wizard - менеджер для работы с раздел
 ```bash
 magnet:?xt=urn:btih:2FBAD87C022473DF2A13E74654260DA881AAAF25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

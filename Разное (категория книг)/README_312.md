@@ -1,3 +1,29 @@
+###  Публикация: 1161839   (454961) от 03.09.2017
+
+Шио-Мгвимский монастырь (изд.) | Житие преподобного Шио Мгвимского. Служба параклиса молебнаго святому преподобному Шио Мгвимскому (2016) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_454961.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Святой и богоносный отец наш Шио происходил из Сирийской страны, из города Антиохии, который был некогда славен многими великими и святыми мужами. Преподобный родился от благочестивых и богатых родителей, имена которых остались для нас неизвестны. Других детей, кроме сего святого Шио, они не имели. Он был единственным утешением их старости и наследником их огромного (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F291CB864687E6F843C2A9CCFBE71F05420237A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1246961   (455108) от 14.09.2018
 
 Свято-Успенская Почаевская Лавра (изд.) | Благодатная помощь Царицы Небесной [PDF, DJVU]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:8DB600AEDEE4812C721E8514CE8E8743B31B9507
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:8DB600AEDEE4812C721E8514CE8E8743B31B9507
 magnet:?xt=urn:btih:2C151E1FB0B59F5FE86817F976EF2F19BC5654C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:2C151E1FB0B59F5FE86817F976EF2F19BC5654C5
 magnet:?xt=urn:btih:4433B60BC8013166FF34D0159BAAB41B8EFF9315
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:4433B60BC8013166FF34D0159BAAB41B8EFF9315
 ```bash
 magnet:?xt=urn:btih:D77B94F3D7F1D5419DB55B8885739084A1464AC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:D77B94F3D7F1D5419DB55B8885739084A1464AC6
 magnet:?xt=urn:btih:26BBD3804A40AA99F90A5794F30EB6C1A486E270
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:26BBD3804A40AA99F90A5794F30EB6C1A486E270
 ```bash
 magnet:?xt=urn:btih:83E514BAB46A5B31E3329AF878150822BD133A52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:83E514BAB46A5B31E3329AF878150822BD133A52
 magnet:?xt=urn:btih:EB9BBFB47DC8E18B1C0BA9BE5BB972976707F829
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:EB9BBFB47DC8E18B1C0BA9BE5BB972976707F829
 magnet:?xt=urn:btih:085729CFAE141E87C33C7F349ADDE305BD64ADAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:085729CFAE141E87C33C7F349ADDE305BD64ADAB
 ```bash
 magnet:?xt=urn:btih:478138AB17C216078E7C23D0B3C3864D47052BCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:478138AB17C216078E7C23D0B3C3864D47052BCA
 magnet:?xt=urn:btih:0065C87A30CDFE2C9F485A082E0001BA706D4F7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:0065C87A30CDFE2C9F485A082E0001BA706D4F7C
 ```bash
 magnet:?xt=urn:btih:4E9F2007CEAAF1FCE756BDB1C9B2902B60EAB3D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:4E9F2007CEAAF1FCE756BDB1C9B2902B60EAB3D9
 magnet:?xt=urn:btih:774CA68D71DA1EBE64000EAE73A87E7E068573D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:774CA68D71DA1EBE64000EAE73A87E7E068573D0
 magnet:?xt=urn:btih:189297637078689ACB50C36A0B0FC9EA6287C4C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:189297637078689ACB50C36A0B0FC9EA6287C4C1
 ```bash
 magnet:?xt=urn:btih:027AB9E958577A1E28A56EA176C6B73B560DFACA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:027AB9E958577A1E28A56EA176C6B73B560DFACA
 magnet:?xt=urn:btih:357E09F9A09AD23EF07E1C01FC17D62CE3E6F3F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:357E09F9A09AD23EF07E1C01FC17D62CE3E6F3F5
 ```bash
 magnet:?xt=urn:btih:CC144C8D2878E711E174EC9FC04A7D11E02BF729
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:CC144C8D2878E711E174EC9FC04A7D11E02BF729
 magnet:?xt=urn:btih:1B719B106CC2AD70D1E2806BE4F31A8DA9008CB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:1B719B106CC2AD70D1E2806BE4F31A8DA9008CB3
 ```bash
 magnet:?xt=urn:btih:8765A3FC15F4269C0035611096F279F2C40F4980
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:8765A3FC15F4269C0035611096F279F2C40F4980
 magnet:?xt=urn:btih:3725CB6C12823B0AFAECEF9DA6EC3DF75EE24F1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:3725CB6C12823B0AFAECEF9DA6EC3DF75EE24F1D
 ```bash
 magnet:?xt=urn:btih:5B5C8551948AAEB0C75B59F5C9E8389EFE49766F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +576,8 @@ magnet:?xt=urn:btih:5B5C8551948AAEB0C75B59F5C9E8389EFE49766F
 magnet:?xt=urn:btih:15A06FEB8F3352029FA3DCE702FA260DE278056E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:15A06FEB8F3352029FA3DCE702FA260DE278056E
 magnet:?xt=urn:btih:EA0DF2781271190DD329DAFB8B50DF2132191771
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +630,8 @@ magnet:?xt=urn:btih:EA0DF2781271190DD329DAFB8B50DF2132191771
 magnet:?xt=urn:btih:07FE94AB72FAD49ED8AC857C41D13FE68114A40D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +655,8 @@ magnet:?xt=urn:btih:07FE94AB72FAD49ED8AC857C41D13FE68114A40D
 ```bash
 magnet:?xt=urn:btih:F364D10BDDD0AEE57D041E17FCA141DD0FE600B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,29 +683,7 @@ magnet:?xt=urn:btih:F364D10BDDD0AEE57D041E17FCA141DD0FE600B2
 magnet:?xt=urn:btih:CFDBE56B581712E13CCEC35A13904F3D69AB2A3D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162389   (458768) от 01.09.2017
-
-Е. Афанасова | Готовим вино, наливки, настойки (2017) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458768.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы начнете процесс приготовления вина или настойки в июне, то уже через пару месяцев сможете удивить своих близких и друзей ароматным малиновым вином или сливовой настойкой с персиками. В период осенней непогоды вы насладитесь ароматами лета, частичкой его тепла и хорошего настроения.Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D24DECD6E30F2149523354DE05B47935E230D91
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

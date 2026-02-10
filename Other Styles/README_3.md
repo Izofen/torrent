@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:6A7D44062994B26F2836657E090909EB4E66DD7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:6A7D44062994B26F2836657E090909EB4E66DD7A
 ```bash
 magnet:?xt=urn:btih:E68CCFBB92C0F8B2C3BC93D1E36A1F7873CE8E8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Francis Goya - The Most Beautiful Original Melodies of Francis Goya (2024) Remas
 magnet:?xt=urn:btih:7C56AF4E2804BD9FA2B404A79B64C4794489D29C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Marilyn Monroe - The World Of Marilyn Monroe (2006) 2CD [WavPack|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:7F6A7C52BD49CF94C8CC556C9C6DB958C05D5E5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:7F6A7C52BD49CF94C8CC556C9C6DB958C05D5E5D
 magnet:?xt=urn:btih:8688BD397778F3C4D708C33507712DEA73ACAA78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Застольное настроение (2020) [MP3|320 Kbps] <Поп, З
 ```bash
 magnet:?xt=urn:btih:C0E3DD2DF862D77C9D208F7892DC29BA58D18E3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Jindřich Parma (Jindrich Parma) - Juno: Nové Retro (2015) [FLAC|Lossless|WEB-D
 magnet:?xt=urn:btih:A8777AB19DBBC372A9A421607F56AEBED5B2B7A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ David Arkenstone - Quest For the Runestone (2024) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:B717961FAA337752163C390FC70D8EF0172B9100
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ London Music Works - The Story of Wick: Music From the John Wick Movies (2024) O
 magnet:?xt=urn:btih:74A1BA7A4AE7369E73CE4A7CADC74ADC28492BA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Tom Holkenborg (Junkie XL) - Furiosa A Mad Max Saga OST (2024) OST [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:AEF75EF4CCB65EA72282792B8CCD09562D8DD63D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Gallows Bound - Gallows Bound (2014) [MP3|320 Kbps] <Americana, Bluegrass, Count
 magnet:?xt=urn:btih:A04D94860BEAD4A2ED2D7D69586C96C7CD220B3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Lindsey Stirling - Duality (2024) [FLAC|Lossless|image + .cue] <Instrumental, Ea
 ```bash
 magnet:?xt=urn:btih:8DFF88EDED7E711B9BD73699CDB28317234582DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ magnet:?xt=urn:btih:8DFF88EDED7E711B9BD73699CDB28317234582DF
 magnet:?xt=urn:btih:157FECF20A117788224D95F9CA2310EBAC578796
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Oriental Collection, Oriental Soundscapes Music Universe - Orient Music Adventur
 ```bash
 magnet:?xt=urn:btih:F1645B2E97CA227D0539B37B20E53A8217B41E86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Erotic Spa: Blissful Time (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 magnet:?xt=urn:btih:987FD914A8908C740B3E6F8E63301946BD5E03B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +455,8 @@ magnet:?xt=urn:btih:987FD914A8908C740B3E6F8E63301946BD5E03B0
 magnet:?xt=urn:btih:1463030AA7BBBB7E9160443B77C8A1DCFCFA0BCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +480,8 @@ magnet:?xt=urn:btih:1463030AA7BBBB7E9160443B77C8A1DCFCFA0BCE
 ```bash
 magnet:?xt=urn:btih:394F4AE4D12E9349592DE796A0FE185FCFF8BDCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +507,8 @@ magnet:?xt=urn:btih:394F4AE4D12E9349592DE796A0FE185FCFF8BDCD
 magnet:?xt=urn:btih:D502D55E3315C937366549095DF65B522F1BFD8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +532,8 @@ magnet:?xt=urn:btih:D502D55E3315C937366549095DF65B522F1BFD8B
 ```bash
 magnet:?xt=urn:btih:6901F6FA8F591A0025378D898B0926ACCEED3188
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +562,8 @@ Mark Ashley - Instrumentals Vol. 1 (2024) [MP3|320 Kbps] <Instrumental Pop>
 magnet:?xt=urn:btih:38247591BAB8C2FE0A6389C097EE26D26D625D24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +590,8 @@ Leonard Cohen - Thanks for the Dance (2019) Columbia Records [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:82A86D36DCCD1B3AF6EDCD82336A963B6881048B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +620,8 @@ Ramin Djawadi - Fallout (Original Amazon Series Soundtrack) (2024) [FLAC 24/44.1
 magnet:?xt=urn:btih:629A8E9E4D08B38B82E4F64BEA34F7F6E52132C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +648,8 @@ Brian Eno - Eno (Original Motion Picture Soundtrack) (2024)  [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:27088EED4DF91A14653ADC3F8A2562727FB0554D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +678,8 @@ Sex Pistols - The Filth & The Fury (Original Motion Picture Soundtrack) (2024) [
 magnet:?xt=urn:btih:EF1F727DD49BF37A7A9AE521301E368154076C56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +707,8 @@ Stoner Boner - Seductive Eruptions: Tantric Sex Music for the Ultimate High (201
 magnet:?xt=urn:btih:77380C13F54034EA8AD24B7F9D317D4C3FBBA254
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -685,6 +735,8 @@ Tantric Sex Background Music Experts - Entrance to Sex (2024) [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:06E83186511F0CAED67BDF861DD3C0E066AAF3DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

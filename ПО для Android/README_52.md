@@ -19,6 +19,8 @@ Powerful RAM Monitor Pro v10.1.0 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:F424D959A5E3FC19027F3EA0E2EE51E92D6F9139
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Speedtest - это приложение предназначено для опр
 ```bash
 magnet:?xt=urn:btih:440B5B6CF9173973995F70EB127EC5CF19F932EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:440B5B6CF9173973995F70EB127EC5CF19F932EA
 magnet:?xt=urn:btih:2A6AE49069973BBF686426CA4FB90B089BF977E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ XY VPN — это абсолютно бесплатный VPN! Быстрое и
 ```bash
 magnet:?xt=urn:btih:A93B7022F51FD5C03C7F5972566448ED2A2186C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ VPN Inf - быстрый, безопасный и безлимитный VPN
 ```bash
 magnet:?xt=urn:btih:E413C389917BDA802683C1590560E8BEC5B633AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ Melon VPN - это быстрый, неограниченный, стабиль�
 magnet:?xt=urn:btih:AED206A970DF2C733C228676EA154BAC7B75B1F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Bazaart: Photo Editor & Graphic Design v2.4.0 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:7D03A7F1DC6BBDD258F6AFA4FA33E69DF67C4CFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:7D03A7F1DC6BBDD258F6AFA4FA33E69DF67C4CFD
 ```bash
 magnet:?xt=urn:btih:76D6F922D1FD31B92C943BB3CCC1B6CF4483349C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ Melon VPN - это быстрый, неограниченный, стабиль�
 magnet:?xt=urn:btih:CCBE9E3A0F4FADE9ECF944EE6EAD7AEEACE600CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Planner 5D - дизайн интерьера v2.8.8 Mod by App_modz [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D5A318C9DB91710EAF19D7503EA9A5B31761D9B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ OBDeleven VAG car diagnostics v0.76 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:90F02386C694E65DFCC90CF22DCE45B031B715F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ ARuler - лучшее и бесплатное приложение на Android 
 magnet:?xt=urn:btih:196828EA7BB82A2B01FB87A8C427A37647B3FEEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ AR Plan 3D – инновационное приложение, использу
 ```bash
 magnet:?xt=urn:btih:AF9CBB268599D40D2ACAA186296008C2D8D5FD4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ VPN Inf - быстрый, безопасный и безлимитный VPN
 magnet:?xt=urn:btih:F562DCEEEA3A989FCA255A6E236A9BED821F3E8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:F562DCEEEA3A989FCA255A6E236A9BED821F3E8D
 ```bash
 magnet:?xt=urn:btih:34F9E2A0517EDF7359684818ADC37CB6CB3F5FEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ Psiphon Pro дает вам беспрецедентный доступ к ва�
 magnet:?xt=urn:btih:3D62E0B469E32B9026CB8564BF099036B732EF05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 ```bash
 magnet:?xt=urn:btih:204B0CDF5299B509F0A17D0007ABEC7ADB2C6909
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ Moon+reader относится к категории универсальных 
 magnet:?xt=urn:btih:8B8040A393E618696FAC87353579C3CD3BCDC4FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Polarr v6.8.13 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:FD33523BBBF6D3AEB87F3CA00AAEE0F03037F66D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ PROTO - симулятор схем v1.25.0 Mod by vedserega [Ru/Multi]
 magnet:?xt=urn:btih:409805C8BFE485627F08DCCC32AF375078921883
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Music Folder Player - аудиоплеер, что не может похвас�
 ```bash
 magnet:?xt=urn:btih:5B617E6400EEDE346DEEED7C6E49BDB890D79E32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Shazam (шазам) - невероятно популярное и очень у
 magnet:?xt=urn:btih:91638FAB2182968AE84FE0F12784975E336C2D5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Mobizen Screen Recorder - невероятно популярное прилож
 ```bash
 magnet:?xt=urn:btih:4AA20B155D05060E1960EBDE50079F79E0CE2668
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ Bazaart: Photo Editor & Graphic Design v2.3.4 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:D6009DC8A12D730211A0DA0C6D0D36DD7D920C3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ FBReader Premium v3.5.4 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:99A23B3A862E4123B6C5E16FE2EBBB7A4F117201
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ V Recorder – качественный и простой экранный ре�
 ```bash
 magnet:?xt=urn:btih:2FCB9ED09F619FEEFB4C349C13AB5F5866270682
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

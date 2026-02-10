@@ -22,6 +22,8 @@ Olivier Orand | Hol Baumann | OP 11 - Discography 10 Releases (2006-2019) Ultima
 magnet:?xt=urn:btih:02C1F8D4A367AA8CB8C615EDB2B064623F8AF79F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Suanda Chillout - Mixed By RIB & Seven24 (2016) [MP3|320 Kbps] <Chillout, L
 ```bash
 magnet:?xt=urn:btih:F0CB9631C3EDEF38DBDC64C8240DBF27D99372D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Chill Crossover - The 21st Century Soul Music (2016) [MP3|320 Kbps] <Lounge
 magnet:?xt=urn:btih:887F30D3E4711FC7E7D2747A7070200AE7B64DA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Summer Hits (2019) [MP3|320 Kbps] <Trance, Vocal Trance, Progressive Trance
 ```bash
 magnet:?xt=urn:btih:75278613985DABCDDA8B8017631B2270229F4F7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Advanced Modern Mood Music Vol.5 (2016) [MP3|320 Kbps] <Downtempo, Chillout
 magnet:?xt=urn:btih:41F332CCF3D23620114879A1058F90E8C0C9B3A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Advanced Modern Mood Music Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout
 ```bash
 magnet:?xt=urn:btih:96A2730CC2FEDB35C8B6F491612B1C5A7CDEC48F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Advanced Modern Mood Music Vol.3 (2016) [MP3|320 Kbps] <Downtempo, Chillout
 magnet:?xt=urn:btih:3C322E403396525764E79604B4D9509F7D41CB69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Caribbean Beach Lounge Vol.4 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lo
 ```bash
 magnet:?xt=urn:btih:ABFCCFCD80C592A4C3C383F0D770C5FE1639B9F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Advanced Modern Mood Music Vol.4 (2016) [MP3|320 Kbps] <Downtempo, Chillout
 magnet:?xt=urn:btih:92183086DD1B1E8610C9261D07C333B6EEE5C379
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Come Easy Tunes, Vol. 1 (Easy Jazzy Sunny Music) (2016) [MP3|320 Kbps] <Dow
 ```bash
 magnet:?xt=urn:btih:0247E6380A0B11FB22BBCF9C2AEC684EF74DA046
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Advanced Modern Mood Music Vol.2 (2016) [MP3|320 Kbps] <Downtempo, Chillout
 magnet:?xt=urn:btih:A8A75181AC65C9255386A38B057C2D5148E514F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Magic Moments 20 Selected Chillout Songs (2016) [MP3|320 Kbps] <Downtempo, 
 ```bash
 magnet:?xt=urn:btih:1C2E50CE4327016DAFB5D5D25842D819AACF5D07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Satin Lounge Vol.2 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:5821CFDE6E3DB26C105C8DDFEB08635455318B42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Classy Beach Chillout (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:C4E1D32A1264787FB8646E06E68DC33082EF8D22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ CD 01:
 magnet:?xt=urn:btih:43A5D81DD3FACF12AD95261B04F6B3696091916A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Bliss - Discography 8 Releases (2001-2013) Denmark [FLAC|Lossless|tracks+.cue, t
 ```bash
 magnet:?xt=urn:btih:35ACE7BC696830CEDDD4E37020BFEEFB714F12CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Synthetic Epiphany - Discography 16 Releases (2012-2018) [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:C08EA6A2DC278EB3D69376E4673E2ACAE3FF9207
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Spiritual Evolution - Genesis (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dow
 ```bash
 magnet:?xt=urn:btih:4DDBDCFB8BDA4CD62BFE3DFF4F6B93C810E26709
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ Digilio Lounge Music - Relax Chillout Music Summer (2018) [MP3|320 Kbps] <Balear
 magnet:?xt=urn:btih:5D359715CAEFF28A6BBA245730373B563FC2C6E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ The Exaltics - Das Heise Experiment 2 (2018) Solar One Music [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:8EFB5372E61C5B3F133EE1CFB90AC82C15970E89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ VA - Suanda Ibiza (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:ADE282F73DD1E788D045A0A892B422C40E8717F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ Natalie Cole - Good To Be Back (1989) [FLAC|Lossless|image + .cue] <Acid Jazz, S
 ```bash
 magnet:?xt=urn:btih:FA499A249722DC855FF8392A86EC88D7E9CEDE9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ Ancient Methods | Ugandan Methods - Discography 20 Releases (2007-2018) [FLAC|Lo
 magnet:?xt=urn:btih:B570E931FEEFD1E538844DA735D38E7BCA57714D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ VA - Chillhouse Cocktail Lounge Vol 2 (2016)[MP3|320 Kbps] <Chillhouse, Dance, E
 ```bash
 magnet:?xt=urn:btih:84FB70C49FECD197DB6DCA224A67332787C50E9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ VA - When The Night Falls (25 Amazing Tunes) Vol. 1 (2016) [MP3|320 Kbps] <Downt
 magnet:?xt=urn:btih:B71B85118A1769E790C6D48FC147DB2B745F0A7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ VA - After Hours Ibiza (2016) [MP3|320 Kbps] <Deep House, Funky, Soulful House>
 ```bash
 magnet:?xt=urn:btih:FBCB1180F370ED7F4E7BA5546D05966F57357E42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

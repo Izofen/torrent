@@ -1,3 +1,29 @@
+###  Публикация: 985019   (931005) от 14.02.2016
+
+Д. Михновский | Оружием сатиры - против религии. Мастера русской советской графики против религии и суеверий (1963) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_931005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая книга представляет собой краткий научно-популярный очерк развития советской антирелигиозной изобразительной сатиры. В ней анализируется опыт мастеров советской графики no созданию плакатов, сатирических рисунков, карикатур, служащих делу борьбы с религиозными пережитками и атеистического воспитания трудящихся. В книге рассказывается о работе над антирелигиозной (   Читать дальше...   )Жанр: История, религиоведение, сатира, искусствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5F85A6D028591B50CBF07E0EFCB171BAAAE43AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984510   (931008) от 14.02.2016
 
 А. М. Самсонов | Антифеодальные народные восстания в России и церковь (1955) [DJVU]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:484637CD1D1C7978653F3C4866B768A0C0CB5EA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:484637CD1D1C7978653F3C4866B768A0C0CB5EA1
 ```bash
 magnet:?xt=urn:btih:5722928A195C8E3CDD4BFDA46E2451473B4537EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:5722928A195C8E3CDD4BFDA46E2451473B4537EB
 magnet:?xt=urn:btih:0CC96601374077B2BF619B3456FDF0E5C60D12F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:0CC96601374077B2BF619B3456FDF0E5C60D12F3
 ```bash
 magnet:?xt=urn:btih:F5B4F11079FC4CA2461DAC14A789707CF736A00E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:F5B4F11079FC4CA2461DAC14A789707CF736A00E
 magnet:?xt=urn:btih:C10E43AC458A241A0FAAC161216E15D8710BC717
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:C10E43AC458A241A0FAAC161216E15D8710BC717
 ```bash
 magnet:?xt=urn:btih:315397627BF9D21248B9D3A97A3AFDFCAB99AEAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +207,8 @@ magnet:?xt=urn:btih:315397627BF9D21248B9D3A97A3AFDFCAB99AEAA
 magnet:?xt=urn:btih:DE611E0A8B4A454A21D6626F293269A4A96847E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:DE611E0A8B4A454A21D6626F293269A4A96847E5
 ```bash
 magnet:?xt=urn:btih:BB2D870A9B87B89E01B69ED777CAFAF56DAFCC85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +259,8 @@ magnet:?xt=urn:btih:BB2D870A9B87B89E01B69ED777CAFAF56DAFCC85
 magnet:?xt=urn:btih:8CD585E9C0E016B1935E7B3C3D2EB5F84EFAB5E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:8CD585E9C0E016B1935E7B3C3D2EB5F84EFAB5E0
 ```bash
 magnet:?xt=urn:btih:ECA7B815EB74BE62EDF6B8AF3DC6BF4392829155
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:ECA7B815EB74BE62EDF6B8AF3DC6BF4392829155
 magnet:?xt=urn:btih:80D722B210B0013111956A5D5653F582631A9B6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:80D722B210B0013111956A5D5653F582631A9B6B
 ```bash
 magnet:?xt=urn:btih:F3268BFF0CE014BE7986C7E9F4829FE1052FA6F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:F3268BFF0CE014BE7986C7E9F4829FE1052FA6F0
 magnet:?xt=urn:btih:A0CF637194E1B6068318038F220981ECB1148398
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:A0CF637194E1B6068318038F220981ECB1148398
 ```bash
 magnet:?xt=urn:btih:AB09FEA1684BA12F1C7851F61E99E9FB32943D6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:AB09FEA1684BA12F1C7851F61E99E9FB32943D6C
 magnet:?xt=urn:btih:E767E9EB41B1789AD493F6A38630B564A5D46EC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:E767E9EB41B1789AD493F6A38630B564A5D46EC8
 ```bash
 magnet:?xt=urn:btih:F6ADAAB97ACE28BF4D2B28038A70C2CE5DFD589F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:F6ADAAB97ACE28BF4D2B28038A70C2CE5DFD589F
 magnet:?xt=urn:btih:7AA9B5A3250935821E4523951DFE7B6E75A6F9F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:7AA9B5A3250935821E4523951DFE7B6E75A6F9F3
 ```bash
 magnet:?xt=urn:btih:6D0260AC7CD1754FA16D809E92DAB9F8BE0E4104
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:6D0260AC7CD1754FA16D809E92DAB9F8BE0E4104
 magnet:?xt=urn:btih:1CFA9D455404D229728BB932C41E630BA73E40BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:1CFA9D455404D229728BB932C41E630BA73E40BA
 magnet:?xt=urn:btih:5D1B14E8EC277D3A1CB42E6B8022D24144A6C632
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:5D1B14E8EC277D3A1CB42E6B8022D24144A6C632
 ```bash
 magnet:?xt=urn:btih:73ABBDD58DAD73625FCD31DA99605CA4D5EFF66D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:73ABBDD58DAD73625FCD31DA99605CA4D5EFF66D
 magnet:?xt=urn:btih:162B4BA192A5FC6ED8F187F5E17D10BC9D4B33F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:162B4BA192A5FC6ED8F187F5E17D10BC9D4B33F2
 ```bash
 magnet:?xt=urn:btih:39456479F0F1162B9A41624EF3043CD49CC0EC27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:39456479F0F1162B9A41624EF3043CD49CC0EC27
 magnet:?xt=urn:btih:2931857AEC0F689E2ADE249B8B5E3B7D357531D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,29 +679,7 @@ magnet:?xt=urn:btih:2931857AEC0F689E2ADE249B8B5E3B7D357531D5
 magnet:?xt=urn:btih:400589241AAAC562391FC5ACFFFF1BEDF059769B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 754847   (931827) от 08.02.2014
-
-Е.Н. Цимбаева | Грибоедов (2011) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Это первая в России научно-художественная биография гениального автора «Горя от ума» Александра Сергеевича Грибоедова, блестящего музыканта, дипломата, записного острослова и любимца женщин. Книга, написанная на основе архивных документов, представляет собой достоверное описание жизни героя на широком фоне быта и нравов его эпохи, а также общественно-политической обстановки в России и на международной арене в первой трети XIX века.Жанр: Биографии и мемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77DD747A2F26D3EC52A0D50B08B6A39F378FBB2B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

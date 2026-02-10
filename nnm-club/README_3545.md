@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:37F07890E5FB646181717D1CEC114DDE9C9FE847
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:37F07890E5FB646181717D1CEC114DDE9C9FE847
 magnet:?xt=urn:btih:C448ACEEA48FF287966AF8E441903AC9C6315BC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:C448ACEEA48FF287966AF8E441903AC9C6315BC7
 ```bash
 magnet:?xt=urn:btih:DA911F3152C2EB6663B641795B412D5042699A35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Icecream Video Editor - простой редактор видео для Window
 magnet:?xt=urn:btih:B3481149DF8A9069230813C558CF5CF53BCCC51B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:B3481149DF8A9069230813C558CF5CF53BCCC51B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:9237B33CB155FB38033FCDB29562814412071ABE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ VA - Music News vol.360 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:6817CDFFB9D3D9956140180F05E540BD9F0089AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:6817CDFFB9D3D9956140180F05E540BD9F0089AA
 ```bash
 magnet:?xt=urn:btih:E859E5FCD7FC6FB86F0EB4EB70AA8F5F7A4E2724
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:E859E5FCD7FC6FB86F0EB4EB70AA8F5F7A4E2724
 magnet:?xt=urn:btih:D9CDB0150C8FAFA1BF1270CE39263B25F186D3F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Icecream PDF Editor PRO - программа для поистине прост�
 ```bash
 magnet:?xt=urn:btih:036289F7690735C329F2D9239B6BB3B1C4E23600
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:036289F7690735C329F2D9239B6BB3B1C4E23600
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Icecream Photo Editor - лучший бесплатный фоторедакто
 ```bash
 magnet:?xt=urn:btih:BB2581B51686F18C2A014740FF7390CC405A0262
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Sante DICOM Editor — ведущее в отрасли приложение п�
 magnet:?xt=urn:btih:1BB20DB9DDD01E456D9816A5C7AB817FB7A47BD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Sumatra PDF — мощная, небольшая программа с прос�
 magnet:?xt=urn:btih:A420B6473B45036A53341DEAF41F796A55B4F5C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:A420B6473B45036A53341DEAF41F796A55B4F5C0
 magnet:?xt=urn:btih:C52C8FA06F7BC8521C3D9A5ECAC080DE9DA4B891
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:C52C8FA06F7BC8521C3D9A5ECAC080DE9DA4B891
 ```bash
 magnet:?xt=urn:btih:833350D080F4C535766F131645F57670C7EDC419
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ RubyMine — умная и удобная интегрированная сре�
 magnet:?xt=urn:btih:2A1A96AE4688521F2F2CFE2B32759EEBB094379B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:2A1A96AE4688521F2F2CFE2B32759EEBB094379B
 ```bash
 magnet:?xt=urn:btih:D613002700F37F38DA9554C0BB47B1C22C4D5B71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:D613002700F37F38DA9554C0BB47B1C22C4D5B71
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:D613002700F37F38DA9554C0BB47B1C22C4D5B71
 ```bash
 magnet:?xt=urn:btih:CB39ABC08725ADC4E9168D2D236ACF176DA4F813
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:CB39ABC08725ADC4E9168D2D236ACF176DA4F813
 magnet:?xt=urn:btih:E0BE7B2796784E6B58437DB26B2A41D137255349
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Icecream Slideshow Maker - это приложение для создания �
 ```bash
 magnet:?xt=urn:btih:FFD39D316115C3C34E57456EE3F348559D822D54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ StressMyPC - крошечная утилита, которая выполняе�
 magnet:?xt=urn:btih:59DC6FE71F7C8D8D4EAA84A2BCF1225957F33707
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:59DC6FE71F7C8D8D4EAA84A2BCF1225957F33707
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ KStars - бесплатное, с открытым исходным кодом, 
 ```bash
 magnet:?xt=urn:btih:1869CA69F7B8CAF6C25892FD5782B7C48DBE2639
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

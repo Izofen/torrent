@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:443BD793A27607993275E88A007FA3026BBBC878
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:443BD793A27607993275E88A007FA3026BBBC878
 ```bash
 magnet:?xt=urn:btih:6433469DA3111304504FA07100ABB4D8D32757A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:6433469DA3111304504FA07100ABB4D8D32757A5
 magnet:?xt=urn:btih:578F2155896E20572A46BE3576A0DBCE803BC38F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ DiskWarrior (утилита)  - инструмент, который (   Чит
 magnet:?xt=urn:btih:F6E190B6F31D560E33A5E861C3422544A21D676D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Pale Moon - веб-браузер, созданный на базе популя
 magnet:?xt=urn:btih:7F2F2D11D08C651CE2CE898F4A4A1C01F8EE0758
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Python - бесплатный, с открытым исходным кодом, 
 ```bash
 magnet:?xt=urn:btih:6B9B32583578E4A596E56782F973E86009B20F95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ Digital Emotion - Digital Emotion & Outside In The Dark (2002) [OGG Vorbis|480 K
 magnet:?xt=urn:btih:99B6D99E71CB03992328132077F220516299F4A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ PortableApps.com Platform - это функциональная платформ
 magnet:?xt=urn:btih:17E236083F059C4A2569E40B4A3F2ABAD83F2011
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:17E236083F059C4A2569E40B4A3F2ABAD83F2011
 ```bash
 magnet:?xt=urn:btih:C24F388A9494CE147C12FAD34BEECE17F6D9894E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ Sufyan bin Uzayr | Mastering SQL: A Beginner’s Guide (2023) [PDF][EN]
 magnet:?xt=urn:btih:14DCC4FC2B7C4BB11C074AA1F469A800B28C699E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:14DCC4FC2B7C4BB11C074AA1F469A800B28C699E
 ```bash
 magnet:?xt=urn:btih:B5B2F3A072FBA023AC82CD485B21D0D65D10EDA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ Pedro Igor Silva | Keycloak – Identity and Access Management for Modern Applic
 magnet:?xt=urn:btih:2ADA4E0EDBFEBE9224832D64AD1F15EAB1D5E946
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ Otonari ni Ginga | A Galaxy Next Door | Галактика по соседств
 ```bash
 magnet:?xt=urn:btih:7EFE1AD107DBFE150087CCC8DB1D35AA8EAB6197
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ VA - 80's Revolution - Disco Pop Volume 02 (2012) 2 CD [OGG Vorbis|480 Kbps] <El
 magnet:?xt=urn:btih:F6C92240EC86B4AB20612B86090600C94CDD088A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:F6C92240EC86B4AB20612B86090600C94CDD088A
 magnet:?xt=urn:btih:D23B254D5415B5A92FC3878B42065DE0527F7716
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:D23B254D5415B5A92FC3878B42065DE0527F7716
 ```bash
 magnet:?xt=urn:btih:08D95E3B357C21986DE24B38FB7A63ACC5AECF6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:08D95E3B357C21986DE24B38FB7A63ACC5AECF6A
 magnet:?xt=urn:btih:7133B99847988CEF1A43ADBFD5E6D1A4EB26F026
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ Joshua M Willman | Beginning PyQt, 2nd Edition (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:F03820A8DA3862CA398323F3F57109FD2E2E8426
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +503,8 @@ magnet:?xt=urn:btih:F03820A8DA3862CA398323F3F57109FD2E2E8426
 magnet:?xt=urn:btih:4945C1D3AE8D89E1ACBCF8C4C239EAC8801473F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:4945C1D3AE8D89E1ACBCF8C4C239EAC8801473F8
 magnet:?xt=urn:btih:0B9691370140F33E70BBA498A7EC02BD53A14296
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ Patrick Hall, James Curtis | Machine Learning for High-Risk Applications (2023) 
 ```bash
 magnet:?xt=urn:btih:25F7DF4A6C84C5ED03009C02CE43754D221A9A41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +582,8 @@ Joplin - это бесплатное приложение для создани�
 magnet:?xt=urn:btih:33DB14EEC7075582E0001A1BED492055DA13A4B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ magnet:?xt=urn:btih:33DB14EEC7075582E0001A1BED492055DA13A4B5
 ```bash
 magnet:?xt=urn:btih:767127B74984FF9141275D8A9DB6A6B2AD7F2BFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +637,8 @@ VA - Trance 100 - Best Of Summer 2023 [MP3|320 Kbps] <Uplifting Trance>
 magnet:?xt=urn:btih:BE033077F9B0CC454C63A5F8F5FAFD0336DF9ABB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:BE033077F9B0CC454C63A5F8F5FAFD0336DF9ABB
 ```bash
 magnet:?xt=urn:btih:6BE1C1B9B5CA387BAA7A59D6C429A51167278C61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +689,8 @@ HiBit Uninstaller - идеальное решение для удаления п
 ```bash
 magnet:?xt=urn:btih:0B938310C319016A7752812E83222B244A9EC7F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ NEEDY STREAMER OVERLOAD - это "многосерийный ADV", в котор
 magnet:?xt=urn:btih:21EAA2AD0D5448B183A119FD2F53964342752624
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ FreeCommander XE - это довольно-таки удобный в работ
 ```bash
 magnet:?xt=urn:btih:C723D8BAA0AAA94D2F9EDA0FD0E3E1786619F0F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ VA - Music News For Forum vol.058 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:8207B850324833A3B2F39ECCC418BD558324E333
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:8207B850324833A3B2F39ECCC418BD558324E333
 ```bash
 magnet:?xt=urn:btih:728628FB9E04EEFA415D66841D90DD7A34BBE8FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:728628FB9E04EEFA415D66841D90DD7A34BBE8FC
 magnet:?xt=urn:btih:091574CB440E84988719228CB972A9B743A6A63D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:091574CB440E84988719228CB972A9B743A6A63D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Foundation: Новая эра в средневековых строительн
 magnet:?xt=urn:btih:383BE82DF7A1E11C86D319C5F7241CAAB4914D9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Total Doc Converter — профессиональное решение для �
 ```bash
 magnet:?xt=urn:btih:190621F4BA254BE43D5672C45D995B1191C4299C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:190621F4BA254BE43D5672C45D995B1191C4299C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:190621F4BA254BE43D5672C45D995B1191C4299C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ BBC. История возникновения лекарств (Спасите�
 magnet:?xt=urn:btih:0B01C425342989557EB3491D9B10D5F5D73D1435
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ DeTechtive 2112 (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FF06046CCFD47C867C91686901517ADC73BF729C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:FF06046CCFD47C867C91686901517ADC73BF729C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:FF06046CCFD47C867C91686901517ADC73BF729C
 ```bash
 magnet:?xt=urn:btih:627EE104214CD35DB5FE319C9797BD2FEE4B0148
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ BBC. Подделка или удача / Fake or Fortune? (2011) HDTVRip (се�
 magnet:?xt=urn:btih:2A0C691CC8FBD309C185EBF41F0B97524FE0A219
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ AVS4YOU Software AIO Installation Package — мощный мультимеди�
 ```bash
 magnet:?xt=urn:btih:B2B286BF5EE6567AC7406AE97A4902ABF95CD43D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ AVS Media Player - полнофункциональный программный
 magnet:?xt=urn:btih:739E8964A3F7566744A332FB72465366750CA09A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:739E8964A3F7566744A332FB72465366750CA09A
 ```bash
 magnet:?xt=urn:btih:9EA376DEC549035D23824E32D0A3021D64EC4D86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:9EA376DEC549035D23824E32D0A3021D64EC4D86
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:9EA376DEC549035D23824E32D0A3021D64EC4D86
 ```bash
 magnet:?xt=urn:btih:355B65C194227101C32534BF1A56480B5D85823F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:355B65C194227101C32534BF1A56480B5D85823F
 magnet:?xt=urn:btih:954606426DFAB13DCB71959C9D9687A410624EFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ Mindroid является АВС (устройство аудио-визуаль
 ```bash
 magnet:?xt=urn:btih:861046DA79B1383DC9ADF477AA96E5745C7F958F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:861046DA79B1383DC9ADF477AA96E5745C7F958F
 magnet:?xt=urn:btih:3E3803C23EA3B5FB914EEB9DDAAFA9AA215B2250
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ CoolUtils Total Excel Converter 7.1.0.89 RePack (& Portable) by elchupacabra [Mu
 ```bash
 magnet:?xt=urn:btih:D2A1EC912561734F6A85996C2BD71816551D9F0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:D2A1EC912561734F6A85996C2BD71816551D9F0B
 magnet:?xt=urn:btih:EE16CEF730E43D0B02A71DB8C44555DB6930E623
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Gaia GPS (Topo Maps) v2025.1 b9029 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:54005B2A81EB4E042A849971354D7D226E8FF37A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

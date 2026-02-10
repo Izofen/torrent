@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5F7203EEC0670C5EE72E880A5316D2EDF7702FDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Skeletoon - Nemesis (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Power 
 ```bash
 magnet:?xt=urn:btih:DD0D2942DE159668852ECF3260AF7E78A3106368
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Shootki - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Ska, Rock>
 magnet:?xt=urn:btih:20345252E1437CEFF89E462DBF2E1774AD78EF2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ Udemy, Vasyl Velmyk | Курс по Front-End. От основ JavaScript до R
 ```bash
 magnet:?xt=urn:btih:8288A359F4BD63221238D3B5A30A8288E0B2577E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ Qantice - The Anastoria (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Sy
 magnet:?xt=urn:btih:2A3A413A89D2D087C3F5CEF469F499C394618556
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:2A3A413A89D2D087C3F5CEF469F499C394618556
 ```bash
 magnet:?xt=urn:btih:AD2B4DFE7072D720FFDCD922B74C2505A2D2BB78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:AD2B4DFE7072D720FFDCD922B74C2505A2D2BB78
 magnet:?xt=urn:btih:5CF31D3DDFCCB15C4FC007FD61CF9D66E413A547
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ Udemy, Кирилл Несмелов | Профессия Ui/Ux веб-диза�
 magnet:?xt=urn:btih:92BBE0ED0A8423D391C3FB7C85BAEBB3D996CCCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:92BBE0ED0A8423D391C3FB7C85BAEBB3D996CCCC
 ```bash
 magnet:?xt=urn:btih:1C5949AED2CB6C65B9E6A7DBA6D43372D3048C0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ Ron Carter - Parade (1979) 2000, Original Jazz Classics [FLAC|Lossless|tracks + 
 magnet:?xt=urn:btih:9E208036BD2E3B4069F3962EAFB571EDB51D6F9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:9E208036BD2E3B4069F3962EAFB571EDB51D6F9A
 ```bash
 magnet:?xt=urn:btih:CEEB0271967F2628CCEBFF6E2104BC5894B74AEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +325,8 @@ Stepmother - Planet Brutalicon (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <pro
 magnet:?xt=urn:btih:3B308A0010B4B9792F573226226881FA401150FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:3B308A0010B4B9792F573226226881FA401150FD
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -354,6 +380,8 @@ magnet:?xt=urn:btih:3B308A0010B4B9792F573226226881FA401150FD
 magnet:?xt=urn:btih:CD6F12354CBF2806A6136FF5E4D766C51638D11F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +408,8 @@ Heavy Water - Dreams Of Yesterday (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ha
 ```bash
 magnet:?xt=urn:btih:185AF80B2C67B4A3027BFD6B1911D8DBFABFD34E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +438,8 @@ Black Royal - Earthbound (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Blue
 magnet:?xt=urn:btih:C64087B5D1DA418C476151552C5F16FD2DA1F9E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +463,8 @@ magnet:?xt=urn:btih:C64087B5D1DA418C476151552C5F16FD2DA1F9E6
 ```bash
 magnet:?xt=urn:btih:8081709E96082A888FA6054E158ED30C508F868D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +493,8 @@ magnet:?xt=urn:btih:8081709E96082A888FA6054E158ED30C508F868D
 magnet:?xt=urn:btih:CE6476AF9B922D66BDCCAEAD8BA3C374E45E0585
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +518,8 @@ magnet:?xt=urn:btih:CE6476AF9B922D66BDCCAEAD8BA3C374E45E0585
 ```bash
 magnet:?xt=urn:btih:ABD06B6E190F6B877901A1461FD805E7F92A8D95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +548,8 @@ Fred Hersch & Esperanza Spalding - Alive At The Village Vanguard (2018) 2023, Pa
 magnet:?xt=urn:btih:E64A9861DF7BD18AD588BD1FA64E9C61860599AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +577,8 @@ Riot In The Attic - Those Who Donґt Belong (2022) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:5D42A85C605543D3E381C10136B476948AC8E341
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +603,8 @@ magnet:?xt=urn:btih:5D42A85C605543D3E381C10136B476948AC8E341
 magnet:?xt=urn:btih:4B43FDFC15903E8635756B10B33E9C4E499A7ABA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +628,8 @@ magnet:?xt=urn:btih:4B43FDFC15903E8635756B10B33E9C4E499A7ABA
 ```bash
 magnet:?xt=urn:btih:56D0DF21E857F450EB00C3AF5C348E238C04F92B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +656,8 @@ magnet:?xt=urn:btih:56D0DF21E857F450EB00C3AF5C348E238C04F92B
 magnet:?xt=urn:btih:FCFFA6D4403C605AFD1AE2524392ACDDADF0D9B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +683,8 @@ magnet:?xt=urn:btih:FCFFA6D4403C605AFD1AE2524392ACDDADF0D9B7
 magnet:?xt=urn:btih:6603FBE3AEF127592FDA713AF59E57F996F5569C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +708,8 @@ magnet:?xt=urn:btih:6603FBE3AEF127592FDA713AF59E57F996F5569C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

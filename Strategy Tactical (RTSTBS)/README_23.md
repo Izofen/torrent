@@ -19,6 +19,8 @@ Battlefleet Gothic: Armada 2 - это новая стратегия в реал�
 magnet:?xt=urn:btih:37DC68B10EAD2C7DB92795F6B5220A4D22A6D11F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Mahokenshi (2023) [Ru/Multi] (1.1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:0E8F1C469F0D17C7FCB6438211535AA8E352E385
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Brigador (2017) [Ru/Multi] (1.65b/dlc) License GOG [Up-Armored Edition]
 magnet:?xt=urn:btih:54B541700029ACD1854AFC4780BF6ADA85117D33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Battlestar Galactica Deadlock (2017) [Ru/Multi] (1.5.113/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:56A537460F1AC36C4EE68F9E35032254719F629F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Broken Arrow - это масштабная военная тактическая
 magnet:?xt=urn:btih:2717E2DBA41A5F362D66BDB36748C7A66FF70070
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Outpost: Infinity Siege - это гибридная игра, сочетающа
 ```bash
 magnet:?xt=urn:btih:FA81430E55AC6ED3A41452E98C5437E1DA813AC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Mount & Blade II: Bannerlord представляет собой долгожд�
 magnet:?xt=urn:btih:A4FA6CF7E2A9A9028FA5A814447AEC2D62DD7A39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Mount & Blade II: Bannerlord представляет собой долгожд�
 ```bash
 magnet:?xt=urn:btih:83192B165F27D8BCFC468987838A75A0C64D39D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Master of Command - это тактическая стратегия в реал
 magnet:?xt=urn:btih:3AA12C9D90191D154BE9816C3BD98EA02F4DF447
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Chaos Galaxy - это пошаговая стратегия в стиле пик
 ```bash
 magnet:?xt=urn:btih:9790EFC7D125286DB0540B8BD1864F657DE95FC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Shadow Gambit: The Cursed Crew – оригинальная стелс-стра�
 magnet:?xt=urn:btih:FB8063A9FEDBF1DF63E8B753702B0000B1B813D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Phoenix Point (2020) [Ru/Multi] (1.30/dlc) Repack Let'sРlay [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:6ED1A5411D27D61A97BF32EE633EBB1EE76AF88C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Shadow Gambit: The Cursed Crew – оригинальная стелс-стра�
 magnet:?xt=urn:btih:D59E563CA8BF6377ABBC03AB3A1B7D00D429A47B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ The Troop (2023) [Ru/Multi] (Build 20251216/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:AD3F0850FF21890E1CAC8ACB700D1C2359D693C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Phoenix Point (2020) [Ru/Multi] (1.30/dlc) Repack FitGirl [Complete Edition]
 magnet:?xt=urn:btih:A15AAD38144285A0ABD7D0C2DBD8872ACDA0B90F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Siege Survival: Gloria Victis (2021) [Ru/Multi] (08102025) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:AAC00F89DA4B4E55ABA3EFA3408BBD66B2B67D46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Lost Eidolons: Veil of the Witch (2024) [Ru/Multi] (1.0.6/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:67F43AD67442DAA8CC63B904D8BEABB20C7FA036
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Toads of the Bayou (2024) [Ru/Multi] (20.51) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:3663EBC960E8DF1AFE53998AA20386E00FA3435D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ They Are Billions (2019) [Ru/Multi] (1.0.14) Repack Let'sРlay
 magnet:?xt=urn:btih:FB1E0A68DF88E43B66A55BDDEDD306BC803D8217
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ RuneQuest: Warlords - это пошаговая боевая стратегия,
 ```bash
 magnet:?xt=urn:btih:59FB9BFDEF08ACAC15AC2AD0B8D6BD8404512BD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Victoria 3 - прямой сиквел одноименной игры, где �
 magnet:?xt=urn:btih:E208691CADEB3873A5CBC514E28A94627C96E6F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ FTL: Faster Than Light (2012) [Ru/Multi] (1.6.22/dlc) Repack Necros [Advanced Ed
 ```bash
 magnet:?xt=urn:btih:3A8A836A341ECD0CAE5D3060CC8CE32C0597553F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

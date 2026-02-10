@@ -19,6 +19,8 @@ Malwarebytes Windows Firewall Control - утилита, с помощью кот
 magnet:?xt=urn:btih:1DCB315A23165668FEC75D5005E4718424385029
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Kaze no Tani no Nausicaa | Nausicaa from the Valley of the Wind | Навсика
 ```bash
 magnet:?xt=urn:btih:AA67CD6D106C96BED855E8B16A167C6AA4CAED90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ foobar2000 - это аудиоплеер, подкупающий своим ве
 magnet:?xt=urn:btih:A5B3986A3E7DBA6F549500779ACC73AC5B5D928C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:A5B3986A3E7DBA6F549500779ACC73AC5B5D928C
 ```bash
 magnet:?xt=urn:btih:F4AF656C994C6708289A23EB1BD785CC42FE2315
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Tixati — это полноценный и бесплатный клиент с
 magnet:?xt=urn:btih:7F30899CC7007D00D4036CE4C3E69DB78C1DC2E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Ashampoo Photo Optimizer 11.0.0.10 RePack (& Portable) by elchupacabra [Multi/Ru
 ```bash
 magnet:?xt=urn:btih:60252420249A0230884795B45E50D4FEFC7095CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ A4 I'm Not A Fool(   Читать дальше...   )Жанр: Electronic, PopП
 magnet:?xt=urn:btih:70A59D053FAB6746FE440B9652A4A35295289007
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ updated_april_2025_x64_dvd_ea86301d.iso.
 magnet:?xt=urn:btih:8EAD1CC9F16227DA0C035159FC5EACF31313586B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ AnyDesk 9.5.2 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:44858037BFC5AFF1F618923B408A818508E399FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:44858037BFC5AFF1F618923B408A818508E399FF
 magnet:?xt=urn:btih:6BF74D98C6C8FFAA5BDD8A897DC2A193959115AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ ZEPHON (2024) [Ru/Multi] (1.1.0/dlc) Repack FitGirl [Supporter Edition]
 ```bash
 magnet:?xt=urn:btih:C22E4E4989F8F943D65AC0FEFF58331149A260B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Phasmophobia – психологический хоррор с наличием
 magnet:?xt=urn:btih:0592B22F3DFAFC50C89DFB50835C7383016815DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:0592B22F3DFAFC50C89DFB50835C7383016815DF
 ```bash
 magnet:?xt=urn:btih:BEF6BB989143E2AE79D2DC9FAA365C87BA771E30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:BEF6BB989143E2AE79D2DC9FAA365C87BA771E30
 magnet:?xt=urn:btih:A05EA32C277B808784B7CE511E2B567A851D86CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ Mark of the Deep (2025) [Ru/Multi] (1.0.0.0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:F95577A97F7B090EBCFC65B81B22FA7790EC2A71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258 834/dlc) License GOG [Deluxe Edi
 magnet:?xt=urn:btih:2A667A14A99266B3113CC554096E7FC52D21A041
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:2A667A14A99266B3113CC554096E7FC52D21A041
 ```bash
 magnet:?xt=urn:btih:26B72B5470E1AB92F408FEAB30C8AC1B86B864EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ updated_april_2025_x64_dvd_ea86301d.iso.
 magnet:?xt=urn:btih:989F8E01B46AFC7EC99EA1DFFA487C3A85085ADE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ Abelssoft SSD Fresh - если вы счастливый обладатель SS
 ```bash
 magnet:?xt=urn:btih:98C1925AF9D65E04886AEDDAFA8C49F717AC22BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ Mind Over Magic — это симулятор колонии, действие �
 magnet:?xt=urn:btih:8B33466B93B88D6973E59AB51717BA38537812E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:8B33466B93B88D6973E59AB51717BA38537812E7
 ```bash
 magnet:?xt=urn:btih:D79C302225893A6E36EF89529F964AF73226F4F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ updated_april_2025_x64_dvd_a39ebe02.iso
 magnet:?xt=urn:btih:2D781541D2B46D0AEFF710E3CA1831EEEE8A0126
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:2D781541D2B46D0AEFF710E3CA1831EEEE8A0126
 ```bash
 magnet:?xt=urn:btih:C972F3AF4363FBC8067E529D9E35C80306CFDEB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:C972F3AF4363FBC8067E529D9E35C80306CFDEB4
 magnet:?xt=urn:btih:FCAA414AAFF9F3720B44239743A807185F3D9BEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ Ratopia - это оригинальная стратегия, которая б�
 ```bash
 magnet:?xt=urn:btih:149A7C43420B1C0C27C95EC4D9AAB6CDF910D773
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +683,8 @@ magnet:?xt=urn:btih:149A7C43420B1C0C27C95EC4D9AAB6CDF910D773
 ```bash
 magnet:?xt=urn:btih:E8E1ED54DD08306810F7B23528B11708BFBEF4C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

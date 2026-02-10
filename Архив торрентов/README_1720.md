@@ -20,6 +20,8 @@ Bartender - утилита для простой организации икон
 magnet:?xt=urn:btih:FE3E773E527B193C792E0D9245026D6F034A288D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:FE3E773E527B193C792E0D9245026D6F034A288D
 ```bash
 magnet:?xt=urn:btih:2F7D4B3F0698BB5D0BDE557BAB66721AD5FDD474
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ WonderPen - приложение для как для профессиональ
 magnet:?xt=urn:btih:878AE9139ED86D2AE182A52362784C5B569A1151
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Filmage Screen Recorder - это универсальное программно
 ```bash
 magnet:?xt=urn:btih:1E96E39F0EC13DF89427E6A7EB0F99A887C19883
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Downcast – программа для загрузки и прослушива�
 magnet:?xt=urn:btih:B0D47FA4B1CCCCBA611453EF0482DAF9B98FD378
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Joplin - это бесплатное приложение для создани�
 magnet:?xt=urn:btih:1D0C3D29EDCCA9C4F2F8F633647765104C5BF070
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:2AD43A333352AB9BACDFC7DD1DC70679FAA8A9E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ MarsEdit 4 v4.4.12 [En]
 magnet:?xt=urn:btih:2AEFFB9426CA883F24F12E7DD6C9F43FB5E71492
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Audacity - свободный, простой в использовании зв
 ```bash
 magnet:?xt=urn:btih:7F465D600C36EF28F25FA3E68EC033DDF8AD4478
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Author 6.6.2 [Multi]
 magnet:?xt=urn:btih:8524C312131A931B60CAD57FC5D8F3343D1A8F51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Quick Search 5.35.1.138 [Multi/Ru]
 magnet:?xt=urn:btih:309A65322C04D4E59449EBD47E3D88FAF49B004E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Topaz A.I. Gigapixel — это первое и единственное при�
 ```bash
 magnet:?xt=urn:btih:299E83BA8CEA0F73792A38BD05D09F2F153476B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ OBS Студия - бесплатное программное обеспече�
 magnet:?xt=urn:btih:C6384530608739CAD063A9DBD6D82BF7521E432B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Ungoogled Chromium - версия веб-браузера Chromium без инт
 ```bash
 magnet:?xt=urn:btih:F0DDA98366BCC2B223A06884ED65A5A270DE5ABB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ Pipette — данный продукт пригодится дизайнера�
 magnet:?xt=urn:btih:231F582B80767ACB79D556B0A3F21F7044262249
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Foxit Reader - профессиональное приложение для чт
 ```bash
 magnet:?xt=urn:btih:1584C1FFC8152E188CB07C48659782F6E0072D32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ Armand Hammer & The Alchemist - Haram (2021) Compilation [MP3|320 Kbps] <Undergr
 magnet:?xt=urn:btih:513B6AF45F85024B5A312F28BFD1D5C113B8D994
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ LibreWolf как раз решает (   Читать дальше...   )Язы
 magnet:?xt=urn:btih:783B290AD46A6F11DBAAFC1FF3D5E2BA3B74E64B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ Music Collection - неплохая программа для создания �
 ```bash
 magnet:?xt=urn:btih:976CBFC6172DA681595C0BD997E85320FFA9F263
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ Draw.io 21.5.0 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:1EBF0C2EB584E13F0DEAC129D51F5028805552BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ Mirillis Action! 4.32.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3096C4653E1FB05C594B256CB9730B39C3FF8941
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +580,8 @@ UNKLE - Rōnin I (2021) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, Leftfield, Elec
 magnet:?xt=urn:btih:767CE5A4E16F6A460D0B5DC4C8D2AB50BCA3E28E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ Unarchiver - Unzip RAR ZIP - простое в использовании при
 ```bash
 magnet:?xt=urn:btih:541021F6C93CA9722D2BBEE6C629BBD3B1E55DB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +632,8 @@ UniBook - Аудиокниги v0.6.4 [Ru/En]
 magnet:?xt=urn:btih:5349D4347D8DF5F5A1DB125F131EC4696587BF28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ UninstallView - это инструмент для Windows, который со�
 magnet:?xt=urn:btih:2E37D669BDDB97961ED8196DD79211725ECA7A7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ Aurora — это красочный скин для Poweramp 3. Вы может
 ```bash
 magnet:?xt=urn:btih:909CFEBEA269395CE0CDD64AE2F14E2D1F0E2E3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

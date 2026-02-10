@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:36B62DFB79699A71970C0219E91DBF98577E6C2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:36B62DFB79699A71970C0219E91DBF98577E6C2F
 ```bash
 magnet:?xt=urn:btih:30F0F12E258216339C1FAB98708CE9C584CB2E20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:30F0F12E258216339C1FAB98708CE9C584CB2E20
 magnet:?xt=urn:btih:177CD7DAD43D8CF8CF0F7FA32127807D695728F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ DNA2: Dokoka de Nakushita Aitsu no Aitsu | ДНК 2 [1994, TV+OVA, 15 эп.] BDR
 ```bash
 magnet:?xt=urn:btih:4DAC9B493A07E19DD0ADF30077974BCCAE69691E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Bjork (Björk) - Utopia (2017) [FLAC|Lossless|tracks + .cue] <Pop, Experimental>
 magnet:?xt=urn:btih:119D8BA42D42380B4FFC9CBEA336A56D83B35BB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:119D8BA42D42380B4FFC9CBEA336A56D83B35BB1
 magnet:?xt=urn:btih:6FA136B5D964FC8B4E7BBC5D15BA37C48771DDC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:6FA136B5D964FC8B4E7BBC5D15BA37C48771DDC6
 ```bash
 magnet:?xt=urn:btih:D02939341B5E0D305F76B46044CD0AA7609CE6D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Avant Browser Ultimate 2017 build 12 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:EA69F176F08C3E9A82D98A674CC369F60159D55B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:EA69F176F08C3E9A82D98A674CC369F60159D55B
 ```bash
 magnet:?xt=urn:btih:CB13F40A9152403034F9C64B244EC9E763157901
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:CB13F40A9152403034F9C64B244EC9E763157901
 magnet:?xt=urn:btih:AEE25CB9AAE491A72C6717F5EEE7A0F83522B0B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:AEE25CB9AAE491A72C6717F5EEE7A0F83522B0B0
 ```bash
 magnet:?xt=urn:btih:2E1991C8D95E7717C36C585D99891241B2F44EC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:2E1991C8D95E7717C36C585D99891241B2F44EC5
 ```bash
 magnet:?xt=urn:btih:5A348649426B921C2D3FD1B60D057BCDA4C954BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:5A348649426B921C2D3FD1B60D057BCDA4C954BE
 magnet:?xt=urn:btih:09929A5B9ECB363D610B9B5EABC66E64971621F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:09929A5B9ECB363D610B9B5EABC66E64971621F4
 ```bash
 magnet:?xt=urn:btih:5990C2ED73F4A101381C69807CB7B8A1BE7724F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:5990C2ED73F4A101381C69807CB7B8A1BE7724F2
 magnet:?xt=urn:btih:C3EBDF6E2E68F979AACC5858584F9E0B55D5C8FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:C3EBDF6E2E68F979AACC5858584F9E0B55D5C8FA
 ```bash
 magnet:?xt=urn:btih:B8F78E2A3F607A1AF8AD0FE97DA6A615AEC9EB7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:B8F78E2A3F607A1AF8AD0FE97DA6A615AEC9EB7B
 magnet:?xt=urn:btih:4220A41932B4CD924E34B9BA2D1DC8B664FD8FE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:4220A41932B4CD924E34B9BA2D1DC8B664FD8FE8
 ```bash
 magnet:?xt=urn:btih:3BC12CD6819D4A51590F44A092D3E907D0240AC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:3BC12CD6819D4A51590F44A092D3E907D0240AC1
 magnet:?xt=urn:btih:1F5EDC59AE1933F4C1A17E9EBB51779D7AECEFB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ Denpa teki na Kanojo / Electromagnetic Girlfriend / Чокнутая подру�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ Denpa teki na Kanojo / Electromagnetic Girlfriend / Чокнутая подру�
 magnet:?xt=urn:btih:5E1A167B46B8201D7CC4A3C8E678BF05A0BB72BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:5E1A167B46B8201D7CC4A3C8E678BF05A0BB72BF
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:5E1A167B46B8201D7CC4A3C8E678BF05A0BB72BF
 magnet:?xt=urn:btih:1E9FF53956D2A41642ED892E10B13B96A5ABBAF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ magnet:?xt=urn:btih:1E9FF53956D2A41642ED892E10B13B96A5ABBAF2
 ```bash
 magnet:?xt=urn:btih:6720670720F412FC2DD7181F120524AFF8165C41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +660,8 @@ magnet:?xt=urn:btih:6720670720F412FC2DD7181F120524AFF8165C41
 magnet:?xt=urn:btih:C0E36C4F45A0DA5BD65B42459EB3B3D0306E45E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ magnet:?xt=urn:btih:C0E36C4F45A0DA5BD65B42459EB3B3D0306E45E0
 ```bash
 magnet:?xt=urn:btih:F2B7BD24862A93D9B85FE5D3B7613B7A8F815418
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

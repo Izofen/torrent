@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:F523D95DE2CE112351E5D534BC908BB879BF5936
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:F523D95DE2CE112351E5D534BC908BB879BF5936
 ```bash
 magnet:?xt=urn:btih:813BB3BB4589F2A6BB254982495D5AA10630B22F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Chillhop Essentials - Winter (2021) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop,
 magnet:?xt=urn:btih:AF444DE03AD8B68FE34AE420657200A3523DF061
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Chingy - Powerballin' (2004) [FLAC|Lossless|tracks + .cue] <Crunk/Midwest Hip-Ho
 ```bash
 magnet:?xt=urn:btih:440B557E0905B0301AB3633F55387EE7677F4C27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:440B557E0905B0301AB3633F55387EE7677F4C27
 magnet:?xt=urn:btih:6C79B6FFBF1418FD755E2D10911F5E4BD3C3790C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:6C79B6FFBF1418FD755E2D10911F5E4BD3C3790C
 ```bash
 magnet:?xt=urn:btih:018E9F2BB60F3B84FEBC116C68B8294E93839A37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:018E9F2BB60F3B84FEBC116C68B8294E93839A37
 magnet:?xt=urn:btih:19AD290008FA8641B9A85168002C59FC4712E49B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ magnet:?xt=urn:btih:19AD290008FA8641B9A85168002C59FC4712E49B
 magnet:?xt=urn:btih:355054813FE6BE15FFC06E1ACDF929D2C7CD56C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +253,8 @@ Emil Amos - Zone Black (2023) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap, Ambie
 ```bash
 magnet:?xt=urn:btih:18CD9185DA2B08C0C900893038EF6A92F122DD51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +289,8 @@ magnet:?xt=urn:btih:18CD9185DA2B08C0C900893038EF6A92F122DD51
 magnet:?xt=urn:btih:3E14353B51C7A05670F5A555B7A1210495E84ABD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +317,8 @@ magnet:?xt=urn:btih:3E14353B51C7A05670F5A555B7A1210495E84ABD
 ```bash
 magnet:?xt=urn:btih:6F8AC1770317AC77645ADD9787D2F470BCD075CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +347,8 @@ Playingtheangel - INFINITY (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:745DA81605B7A4925A67DE16705015CDEB21EC21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +375,8 @@ magnet:?xt=urn:btih:745DA81605B7A4925A67DE16705015CDEB21EC21
 ```bash
 magnet:?xt=urn:btih:7BEEC67A0F1DBCF08EECCD70E4E0DC4B9D333A97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +405,8 @@ Bob Marley & The Wailers - Africa Unite (2023) [MP3|320 Kbps] <Reggae>
 magnet:?xt=urn:btih:D828B2ABC2282DAA00F064467BE9810334A5AAE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +433,8 @@ Anacondaz - 5 альбомов+Не альбомные записи (2009-2015) 
 ```bash
 magnet:?xt=urn:btih:A4C3B1DC4E53AC35B4D4E7E04C0344E2315AC4F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +469,8 @@ magnet:?xt=urn:btih:A4C3B1DC4E53AC35B4D4E7E04C0344E2315AC4F2
 magnet:?xt=urn:btih:4174055BBA611B18BA8D447F16B773623211B705
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +497,8 @@ VA - Chillhop Essentials - Winter (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop,
 ```bash
 magnet:?xt=urn:btih:36560619AC627535462FF10F7A6A046DDA8E758A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +527,8 @@ ATL - Радио Апокалипсис (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:7851187BAFED7D613BE6FF9FB633B69AA407C89C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +556,8 @@ magnet:?xt=urn:btih:7851187BAFED7D613BE6FF9FB633B69AA407C89C
 magnet:?xt=urn:btih:A3F1A066A30E1E480B4BE48A22FF07E46628D188
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +584,8 @@ magnet:?xt=urn:btih:A3F1A066A30E1E480B4BE48A22FF07E46628D188
 ```bash
 magnet:?xt=urn:btih:F4F905A2C80CD8F9DDD9E6C1187D97E57440502E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +620,8 @@ Nicki Minaj - The Pinkprint (2014) [MP3|320 кб/с]<Hip-Hop, Pop>
 magnet:?xt=urn:btih:5EB3CC04C337910565F0A3C2AC01DF8361A271F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +650,8 @@ Jahmal - Спокойствие (2014) [MP3|320 кб/с]<Rap, Hip-Hop>
 magnet:?xt=urn:btih:141AD01FF3A1FE0E3265CEFE67DA2BCA103D5F1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +678,8 @@ magnet:?xt=urn:btih:141AD01FF3A1FE0E3265CEFE67DA2BCA103D5F1A
 ```bash
 magnet:?xt=urn:btih:020CCD50D4B3135D57D2F24DF3A20F8033CF796E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -662,6 +708,8 @@ magnet:?xt=urn:btih:020CCD50D4B3135D57D2F24DF3A20F8033CF796E
 magnet:?xt=urn:btih:F2513F0D3CCE0F46EC156A3FA9C6CC4C60F227DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -689,6 +737,8 @@ Davodka - Accusé De Réflexion (2017) [MP3|320 Kbps] <Rap, Hip-Hop, French Rap>
 magnet:?xt=urn:btih:6709400328968E5EE39E6B38BD80CACB42216A14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -715,6 +765,8 @@ magnet:?xt=urn:btih:6709400328968E5EE39E6B38BD80CACB42216A14
 ```bash
 magnet:?xt=urn:btih:FD5FF58318D5DDE7AF1927CFE055209A8EA1A84A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

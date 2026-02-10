@@ -1,3 +1,32 @@
+###  Публикация: 1058367   (467745) от 01.10.2016
+
+VA - Only Fresh Club Music Vol.2  (Клубные новинки сентября) (2016) [MP3|320 Kbps] <House, Electro House, Future House и др.>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_467745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый  сборник Only Fresh Club Music Vol.2  (Клубные новинки сентября) составлен из топ-120 самых новых песен этого сезона. В релиз вошла самая актуальная музыка с различных mp3 источников. Музыкальное предпочтение сделано на электронные жанры музыки в стиле: танцевальная, электро-хаус, фьюче-хаус, клаб-хаус, данс, и конечно же лучшие ремиксы и машапы.001. DJ Smash & Craig David - Good Time (Radio Edit)  3:42
+002. Artik & Asti vs Arcade 82 - Кто я тебе (Gumanev & DJ Cosmos Deeptool)  6:18
+003. Gala - Let A Boy Cry (Yastreb Radio Edit)  3:29
+004. Руки Вверх - Королева красоты (Extended Mix)  6:13(   Читать дальше...   )Жанр: House, Electro House, Future House и др.Продолжительность: 09:05:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4BF72A92D08CBF15728D0B74C4D9EB03776A314
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1245907   (467781) от 08.09.2018
 
 VA - German Top 100 Single Charts 07.09.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
@@ -21,6 +50,8 @@ VA - German Top 100 Single Charts 07.09.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:1C7736428FDA3A05ACF411C28DF25017870FAA4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -55,6 +86,8 @@ VA - Dance for Summer Party (2012) [MP3|320 кб/с]<Dance>
 magnet:?xt=urn:btih:1CEB1ADE7F9EA7C1231CE4906AFAEEA232348CCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -87,6 +120,8 @@ VA - Street Dance (2012) [MP3|320 кб/с]<Hip-Hop, R&B>
 ```bash
 magnet:?xt=urn:btih:3F993362C0AC7E83707C7F2E27FC740AF4D0AF2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +156,8 @@ VA - Soul of Ibiza Volume 44 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Tr
 magnet:?xt=urn:btih:4D84397247720597C43D96D519EC40F0BCE6D643
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +184,8 @@ VA - German Top 50 Official Dance Charts 07.09.2018 (2018) [MP3|320 Kbps] <Dance
 ```bash
 magnet:?xt=urn:btih:5C794D4FD659B4E843770F13EE6348031E44C457
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +216,8 @@ VA - The Champions of the Dance (2012) [MP3|320 кб/с]<Dance>
 magnet:?xt=urn:btih:C46F451C63B58CE06ECA525179D47D717464A265
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +244,8 @@ VA - Beatport Deep House: Electro Sound Pack #166 (2020) [MP3|320 Kbps] <Deep Ho
 ```bash
 magnet:?xt=urn:btih:05679E492A16968EC9BCB2A8C1BAD4F24304A2D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -231,6 +274,8 @@ VA - Beatport Club House: Electro Sound Pack #168 (2020) [MP3|320 Kbps] <Dance, 
 magnet:?xt=urn:btih:4ABDB02BBEB9F26ADC2E713A83384128C3F5787B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +303,8 @@ VA - Ibiza Summer Trance Session (2020) [MP3|320 Kbps] <Trance, Progressive, Upl
 magnet:?xt=urn:btih:6691CB6986331B048E0157E57B1170865B56CBDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +331,8 @@ VA - Beatport Drum And Bass: Electro Sound Pack #173 (2020) [MP3|320 Kbps] <Drum
 ```bash
 magnet:?xt=urn:btih:2351DD5151573160C23E0741DD1A5AF1E667E9EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +367,8 @@ VA - Блатной союз(600 треков) (2004) [MP3|192-256 kbps]<Шан�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +395,8 @@ VA - Новинки С Разных Популярных MP3 Сайтов Vol.53
 ```bash
 magnet:?xt=urn:btih:CD6E5E3E131917E3697A3F3C1AC82977A14555AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +425,8 @@ The Sword - Greatest Hits (2016) [MP3|320 Kbps] <Sludge, Stoner Rock, Post-Metal
 magnet:?xt=urn:btih:BAE957820997B35FB75FA0CE1879E939B06B3A50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +453,8 @@ VA - Electro Life 39 (by ZiP)(2015) [MP3|320 kbps]<Electro House, House>
 ```bash
 magnet:?xt=urn:btih:E19286E802471796EFF5F230570A89ED081CAF5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +483,8 @@ VA - Top Club 40 - September (2015) [MP3|128-320 кб/с]<Dance, Club, Electro>
 magnet:?xt=urn:btih:851136D610C24C4FEA8EAA1856658DD7FA592ACD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +511,8 @@ VA - Драйвовая осень с радио Шансон (2015) [MP3|256-32
 ```bash
 magnet:?xt=urn:btih:E131295F51F6CA3242CEB927EF1AF6E73E17F911
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +541,8 @@ VA - Best Hits Selection Deluxe  Год (2015) [MP3|320 кб/с]<Bigroom, Electr
 magnet:?xt=urn:btih:7D6B9DD4E7BF5464CB3E7AA69926A6D74279A4E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +569,8 @@ VA - Extra Trance: Bonus [09] (2016) [MP3|320 Kbps] <Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:BA313E3AD504ECA2131A97319C42DCDD9A80CAEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +599,8 @@ VA - Любимая Волна Europa Plus (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:0C2429426E3D9B9A79363B558C89EB4BF81DD640
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +627,8 @@ VA - Осенняя Позитивная Сотка 2 (2016) [MP3|256 Kbps] <Pop
 ```bash
 magnet:?xt=urn:btih:E5EAD078D9205FEC4041300CBCAE3C3910419C2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +657,8 @@ VA - Extra Trance (episode 7) (2015) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:AA95E02E8561A2429C148CA05DBA4408E9092CE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +685,8 @@ VA - Singles Chat Pop August 2019 Vol.3 [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:0C36E1DBD7F3A563A839EE452D44C0CFE3EAD6C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +715,8 @@ VA - I Love Drum & Bass (2015) [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:C21EF84D1B038C94E807314B9F6FC6D355D6496B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +744,8 @@ VA - Summer Sunset Grooves (2015) [MP3|320 кб/с]<House>
 magnet:?xt=urn:btih:3433F8C1AE507FB3A8764E5B60A7EEEB72C68123
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,29 +770,7 @@ VA - Инструментальная музыка (2012) vol. № 71 [MP3|320 �
 magnet:?xt=urn:btih:5B8517CFCDA26AA8D540F3E3AAA9FD221A80AE21
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547641   (469544) от 17.09.2012
-
-VA - Инструментальная музыка (2012) vol. № 72 [MP3|320 кб/с] <Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 02:00:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:210D05178F3A6674800CED49AD351058D43C6D2C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

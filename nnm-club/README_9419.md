@@ -22,6 +22,8 @@ Yggdrasil - Prose Edda (2009) [MP3|320 kbps]< Ambient, Downtempo, Breakbeat, Dub
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Yggdrasil - Prose Edda (2009) [MP3|320 kbps]< Ambient, Downtempo, Breakbeat, Dub
 ```bash
 magnet:?xt=urn:btih:41D040454D35D021B84FD88741AAAEE004258C5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Adobe Photoshop CC 2019 - новая версия программы для об
 magnet:?xt=urn:btih:1ED263B8A08FD3A5502619D1775873D41727C7A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:1ED263B8A08FD3A5502619D1775873D41727C7A1
 magnet:?xt=urn:btih:DAA0C7809843E18738E278285B0F3F6B182696BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:DAA0C7809843E18738E278285B0F3F6B182696BE
 ```bash
 magnet:?xt=urn:btih:6EF1525E7D52F5F5ACF3D4B51A148FEE136490D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Windows 10 Pro 1903 (build 18362.449) x64 by SanLex [Ru]
 magnet:?xt=urn:btih:160DEEC5B3C8DDA03133E111FD3D1A393FF340E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:160DEEC5B3C8DDA03133E111FD3D1A393FF340E6
 ```bash
 magnet:?xt=urn:btih:D1AC020B21FC7333036802B0833F72B394B627AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ DomoMeter — программа для учета коммунальных пл
 magnet:?xt=urn:btih:A4CAE6BE420F384E7078D6F4D5D829798320B5AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:A4CAE6BE420F384E7078D6F4D5D829798320B5AA
 ```bash
 magnet:?xt=urn:btih:32569577AB4A703ED704B786AF46CEC13A39AC0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ VA - Breaking From The Shadows: Electro House Dance Mix (2019) [MP3|320 Kbps] <E
 magnet:?xt=urn:btih:9E310A2E1B03DB598436F0021D840E2FE45EDD34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ Humphrey Robertson - Synthesizer Dance Christmas Edition (2005) [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:309A353F0EF985F8821211DCCF165B7B8C55B72D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ mindXpander - A Tribute To Laserdance (2000) [FLAC|Lossless|image + .cue] <Space
 magnet:?xt=urn:btih:8E39333374DB22D23ABE1C4B275054F136EFAE28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ Homefront (2011) [Ru] (1.5/dlc) Rip Other s [Collection Edition]
 ```bash
 magnet:?xt=urn:btih:D1F90637CBBB74AC7F8695C850EF7BD5BF82BC28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ Movie Park | Видеокурс по видеопродакшену, съёмк�
 magnet:?xt=urn:btih:0073B31A630FEBBAB9781CAD92A02BFDE18E4814
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ Angry Birds 2 в кино / The Angry Birds Movie 2 (2019) BDRip [H.264/1080p-LQ
 magnet:?xt=urn:btih:EE14FD0F35A4428F797A89F4148AC50A5436678C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ Homefront (2011) [Ru] (1.5.500001.0) Repack xatab [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:015B6F4137E5F0769CD69529EB67CE014C2761C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ magnet:?xt=urn:btih:015B6F4137E5F0769CD69529EB67CE014C2761C7
 magnet:?xt=urn:btih:4633BE5481C422BEC588F96D0444BD9D99612A2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:4633BE5481C422BEC588F96D0444BD9D99612A2A
 ```bash
 magnet:?xt=urn:btih:C90881750D21812E7C27939B892EC44244139D84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ Angry Birds 2 в кино / The Angry Birds Movie 2 (2019) HDRip [UKR] [Line]
 magnet:?xt=urn:btih:E80B1239B28C8A759B3F82305A0C68DC9F81F49F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ magnet:?xt=urn:btih:E80B1239B28C8A759B3F82305A0C68DC9F81F49F
 ```bash
 magnet:?xt=urn:btih:C9084B48AC8FE593EB0F655615FD490B789FCDBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +557,8 @@ Armin van Buuren - Balance (Extended Versions) (2019) [MP3|320 Kbps] <Big Room H
 magnet:?xt=urn:btih:26F9C1FDC38C35BA14F010B332E9C04EC807B3B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ VideoHive - Clean Corporate Broadcast Intro - 10702837 [AEP]
 ```bash
 magnet:?xt=urn:btih:C9270EA6CFB1519685F70837F5F3FEFE599A3973
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +610,8 @@ magnet:?xt=urn:btih:C9270EA6CFB1519685F70837F5F3FEFE599A3973
 magnet:?xt=urn:btih:6F2AF3B47E8FC78CFD4FC1B13622EC33BBE4E75C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ magnet:?xt=urn:btih:6F2AF3B47E8FC78CFD4FC1B13622EC33BBE4E75C
 ```bash
 magnet:?xt=urn:btih:166A73450986CC7E2950A1E43F1774ADF3E88730
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:166A73450986CC7E2950A1E43F1774ADF3E88730
 magnet:?xt=urn:btih:6BA02B59CD6B07A79664FAD3FDE8216B30E01767
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ magnet:?xt=urn:btih:6BA02B59CD6B07A79664FAD3FDE8216B30E01767
 ```bash
 magnet:?xt=urn:btih:519E27C004DBB73630B72097075904CFC4FEFBD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

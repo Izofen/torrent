@@ -19,6 +19,8 @@ WinPaletter 1.0.8.0 Standalone [Ru/En]
 magnet:?xt=urn:btih:07E32FFC1732D98361EE9569BB265DE3F5058DBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:2F7586FDCB17E5DD38ECBEA13DF9E3B05092186A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ FastCopy - инструмент для быстрого копирования/�
 magnet:?xt=urn:btih:F2231F63B14FFE0ABDF1B22D2AD66208FFCC0976
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ CopyQ это легкий, но многофункциональный мене�
 ```bash
 magnet:?xt=urn:btih:40F01DE3C8D2CF0B0B15A20982EE2AF1240580AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:18CA7140BA2545DE7F841326C53656BC567052B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ BSPlayer - один из тех мультимедийных плееров, ч�
 magnet:?xt=urn:btih:CB94C0C73FADA1996A6543D61CBE81413CCCCBDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ QuickTextPaste 8.67 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B146B615CCB5941B7725A947BC5A842A2285DD3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ OneCommander V3 — это современный файловый менедж�
 magnet:?xt=urn:btih:10EE0B6DF199F56AF07C6B374D59FD0F13EA3A5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:10EE0B6DF199F56AF07C6B374D59FD0F13EA3A5E
 magnet:?xt=urn:btih:5E1D4B5506E4A6F8AF6533EA346CD5F21F17877B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Total Commander 10.52 (31.10.2022) Portable by MiG [Ru/En]
 ```bash
 magnet:?xt=urn:btih:70D8F0FBE477883F475B7F269A230D0CB6E2EC2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Maplesoft Maple 2022.2 [Multi/Ru]
 magnet:?xt=urn:btih:3B2297444C7CF7680923B44F823A56F323724C1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ DriverDoc – достойная прога для обновления драй
 ```bash
 magnet:?xt=urn:btih:67268350B02F15F6046BD0C5103CDFBFBC647842
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:67268350B02F15F6046BD0C5103CDFBFBC647842
 magnet:?xt=urn:btih:961C96E98D094521A960E61A99EA43CBC91C043E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ WhatsApp Messenger - это кроссплатформенное приложе�
 ```bash
 magnet:?xt=urn:btih:0E505763BAAD771A165D56022EA85A76895BCEDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:0E505763BAAD771A165D56022EA85A76895BCEDD
 magnet:?xt=urn:btih:62E44E87DE7AA191E1A06917AD2E6A44CD3C2D21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Dr. Folder 2.9.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:63D9A53544D9D0FDA90A6B11062646934A751071
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ AOMEI Backupper – программа для создания резервно�
 ```bash
 magnet:?xt=urn:btih:AD165B3413CAE130E99E52719B4034E2A0A82EB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ One Commander V3 — это современный файловый менедж
 magnet:?xt=urn:btih:872A642C471E32A332E08BBCF51B0987F3BD15DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:872A642C471E32A332E08BBCF51B0987F3BD15DE
 ```bash
 magnet:?xt=urn:btih:85EEC7DDCAE059CEA0FB5DC41F7F7AF6F2165BD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ AIMP – проигрыватель, включающий в себя множе
 magnet:?xt=urn:btih:1C0AA8ADC33A6BB62CCBF6C14E27D06020F24767
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Steinberg - WaveLab 11 Pro 11.1.20 (x64) [En]
 ```bash
 magnet:?xt=urn:btih:7849A443DD81FDF961503CAB630EED3704C570F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ ZD Soft Screen Recorder - программа для записи видео с �
 magnet:?xt=urn:btih:BE721F373DEB8B4FCC6430D5BE9C8E6EA8540294
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:BE721F373DEB8B4FCC6430D5BE9C8E6EA8540294
 ```bash
 magnet:?xt=urn:btih:73D1DDA677455679225593F4C52234C4AA7D433C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ Rainlendar Pro — календарик для рабочего стола с п
 magnet:?xt=urn:btih:E56A896AD40E386FD33B0EF3167177A7763E69B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ Malwarebytes Free (ранее Malwarebytes Anti-Malware) – полноценн�
 magnet:?xt=urn:btih:BE580E22AC63EA1F8708840BFCEADC65AEB0D29E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Photo Supreme - вспомогательная программа для вла�
 ```bash
 magnet:?xt=urn:btih:2607AB1628D05206BF1CE0349628DB120AFEB47A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1042772   (578209) от 13.08.2016
+
+Последняя тайна Дзержинского (2004) DVB
+
+>>Документалистика и Телепередачи
+>>Личности в истории
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578209.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 июля 1926 года в 16 часов 40 минут скоропостижно скончался Феликс Дзержинский одна из самых ярких и загадочных фигур в истории русской революции. Дзержинский умер в возрасте сорока восьми лет. Но не это странно. Главная странность - в паталогоанатомической экспертизе его смерти. Когда речь идет о фигуре такой значимости, как Дзержинский, мы вправе рассчитывать (   Читать дальше...   )Телекомпания: Россия, Ассоциация "Наше кино"Жанр: ДокументальныйПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAF2FD2E102B98FA25F793EC892C2C81C4A4DDB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042747   (578310) от 13.08.2016
 
 Пять смертей Симона Петлюры (2008) DVB
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:354EE59F32A19B43DB8F804ED8D302738AB3E510
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:354EE59F32A19B43DB8F804ED8D302738AB3E510
 magnet:?xt=urn:btih:B2666B6B50D31BB663D9BCFB854957825C132903
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:B2666B6B50D31BB663D9BCFB854957825C132903
 ```bash
 magnet:?xt=urn:btih:FB6A397069F48FEF08EA6C7A7AF5235FE9640AD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:FB6A397069F48FEF08EA6C7A7AF5235FE9640AD8
 magnet:?xt=urn:btih:3C646D81A923123B782E6EA38A29B8109A31B522
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:3C646D81A923123B782E6EA38A29B8109A31B522
 ```bash
 magnet:?xt=urn:btih:7F0D77AA35C141878B9E6E18321C44E409A92F90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:7F0D77AA35C141878B9E6E18321C44E409A92F90
 magnet:?xt=urn:btih:542428842BDE607905BC53D18EBED444880EFC5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:542428842BDE607905BC53D18EBED444880EFC5F
 ```bash
 magnet:?xt=urn:btih:6B7F9BA5B3E8E042437DC47DC6EDDD8FFF621A76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:6B7F9BA5B3E8E042437DC47DC6EDDD8FFF621A76
 magnet:?xt=urn:btih:7F640CB2287068A4D000C6C19F92DB7B3824C21F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:7F640CB2287068A4D000C6C19F92DB7B3824C21F
 ```bash
 magnet:?xt=urn:btih:4A0B1B45047624E8B532CEA07185B5A51D90273A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:4A0B1B45047624E8B532CEA07185B5A51D90273A
 magnet:?xt=urn:btih:2584E455DA0446632E48FECABE280D59EC9B2AB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:2584E455DA0446632E48FECABE280D59EC9B2AB0
 ```bash
 magnet:?xt=urn:btih:26A49E26FFA8817DAD74541A005F12C50F28AC09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:26A49E26FFA8817DAD74541A005F12C50F28AC09
 magnet:?xt=urn:btih:53D5B81CEB81103179FB1DB4B16336DAFE482C26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +356,8 @@ magnet:?xt=urn:btih:53D5B81CEB81103179FB1DB4B16336DAFE482C26
 ```bash
 magnet:?xt=urn:btih:3E0F31014CBEC11BA1CFC4E69E63F092379FA6BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:3E0F31014CBEC11BA1CFC4E69E63F092379FA6BA
 magnet:?xt=urn:btih:72841E4162F4D67DFDE1DCE2F34FB19EA4463F7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +408,8 @@ magnet:?xt=urn:btih:72841E4162F4D67DFDE1DCE2F34FB19EA4463F7E
 ```bash
 magnet:?xt=urn:btih:C678FD751D608E29674C388080525A4126C2F3A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:C678FD751D608E29674C388080525A4126C2F3A9
 magnet:?xt=urn:btih:6EBCB8777841081FAF75B70972A86166EB04A33D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +460,8 @@ magnet:?xt=urn:btih:6EBCB8777841081FAF75B70972A86166EB04A33D
 ```bash
 magnet:?xt=urn:btih:F0F37432C565D9066A6733865F28414720E57C9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +487,8 @@ magnet:?xt=urn:btih:F0F37432C565D9066A6733865F28414720E57C9B
 magnet:?xt=urn:btih:23735325F5317FD932B534076F24E72970921033
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +512,8 @@ magnet:?xt=urn:btih:23735325F5317FD932B534076F24E72970921033
 ```bash
 magnet:?xt=urn:btih:9B8C8AD068453C424CC70697D407F9C3F19B76B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +539,8 @@ magnet:?xt=urn:btih:9B8C8AD068453C424CC70697D407F9C3F19B76B5
 magnet:?xt=urn:btih:26E8762F01C025D75909BCC0F89DB6DB46BDC454
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +564,8 @@ magnet:?xt=urn:btih:26E8762F01C025D75909BCC0F89DB6DB46BDC454
 ```bash
 magnet:?xt=urn:btih:7102DFF4F26C8D807989941E75E56E95F9ADA8DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +591,8 @@ magnet:?xt=urn:btih:7102DFF4F26C8D807989941E75E56E95F9ADA8DD
 magnet:?xt=urn:btih:45AA1DB3988DAF1AB48460944ED020A2AD3A17F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +616,8 @@ magnet:?xt=urn:btih:45AA1DB3988DAF1AB48460944ED020A2AD3A17F4
 ```bash
 magnet:?xt=urn:btih:879A53FCB5EE4B17289800FB1F3540C9A0167BC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +643,8 @@ magnet:?xt=urn:btih:879A53FCB5EE4B17289800FB1F3540C9A0167BC8
 magnet:?xt=urn:btih:34436F7F7D456481D291CC9DEB5D7F95A441121B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,29 +669,7 @@ magnet:?xt=urn:btih:34436F7F7D456481D291CC9DEB5D7F95A441121B
 magnet:?xt=urn:btih:27F4F69FF832F0EF19A4DA96A8B89D170BFE8CFC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042269   (579358) от 12.08.2016
-
-День Позора (2011) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм, рассказывающий о мало известных подробностях и обстоятельствах атаки японских вооруженных сил на военную базу Тихоокеанского флота США в Перл-Харборе на Гавайях 7 декабря 1941 года.Телекомпания: Россия, МБ-ГруппЖанр: ДокументальныйПродолжительность: 00:28:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5318CAA778DF25F5635237BE71D9202C07CFD25E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

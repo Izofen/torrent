@@ -28,6 +28,8 @@ Chamras Saewataporn - Green the World (2011) [MP3|320 кб/с]<New age, Instrume
 magnet:?xt=urn:btih:5AE879427D2F93FD188A0724CFD462938FEA51F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -61,6 +63,8 @@ VA - Creative Music Box 6 (2012) [MP3|320 кб/с]<Dub Step/Glitch Hop/Drum'n'Ba
 magnet:?xt=urn:btih:34D9A6E0E12F409DF5BC70019504C1BF1BF2A7C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -84,6 +88,8 @@ magnet:?xt=urn:btih:34D9A6E0E12F409DF5BC70019504C1BF1BF2A7C3
 ```bash
 magnet:?xt=urn:btih:455C4C84180141A063A66AE5E5C8596C4EF6877F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +124,8 @@ Dan Patlansky - Move my Soul (2009) [APE|Lossless]<Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +159,8 @@ VA - Christmas in St. Moritz (Chilled Tunes For Relaxed X-Mas Days) (2012) [MP3|
 magnet:?xt=urn:btih:272E7BA9B6CB6B0F6E05154AC52A65FAE6A51D79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +191,8 @@ WinCHM является удобной и мощной утилитой для �
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +222,8 @@ Necronomicon - The Queen Of Death (2012) [FLAC|Lossless]<Doom Metal / Psychedeli
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +248,8 @@ VSO Downloader - менеджер для многопоточной загруз
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -257,6 +273,8 @@ Scribus – бесплатная издательская программа с 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +302,8 @@ SUMo - программа, позволяющая отслеживать поя�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +327,8 @@ SUMo - программа, позволяющая отслеживать поя�
 ```bash
 magnet:?xt=urn:btih:E40E244D70E151ED235D1C51961AD65D5A32FC30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +363,8 @@ Dan Beaver And His Dam Blues Band - Last Call (2005) [FLAC|Lossless]<Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +395,8 @@ Shirley Johnson - 2 альбома (2002, 2009) [MP3|320 кб/с]<Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +420,8 @@ Shirley Johnson - 2 альбома (2002, 2009) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:5285F423CFC90E0A924F22C85C8234A435CB5156
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +455,8 @@ Alpha Tiger - Man Or Machine (2011) [WavPack|Lossless]<Power / Heavy Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +488,8 @@ Dado Moroni Trio - Shapes (2011) [FLAC|Lossless]<Post-Bop>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +524,8 @@ Demetrius Nabors - A Journey Within Part 1 (2011) [FLAC|Lossless]<Smooth Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +549,8 @@ Demetrius Nabors - A Journey Within Part 1 (2011) [FLAC|Lossless]<Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:B6B80D66A49128F0FC11184F917BEC4929E0378B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +585,8 @@ deeB - Daydream (EP) (2012) [MP3|320 кб/с]<trip-hop, acid jazz, insrumental h
 magnet:?xt=urn:btih:5AEDF7B34BA62FEA008A50253C8591C2AD188888
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +620,8 @@ Draugr - De Ferro Italico (2011) [WavPack|Lossless]<Folk Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +645,8 @@ New year wallpapers 2013 (18.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:7600ED8DA28BF8FD37D899FD92E743E05387B842
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +681,8 @@ Darrell Nulisch - Just For You (2009) [FLAC|Lossless]<Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +713,8 @@ Ananda Shankar - Ananda Shankar (1970) [MP3|320 кб/с]<World Fusion, Psychedel
 ```bash
 magnet:?xt=urn:btih:2229755C69ACAE47507D7978FD6061525E435E96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -703,6 +749,8 @@ Magic Island Recordings - Best Of 2012 (2012) [MP3|320 кб/с]<Trance, Progress
 magnet:?xt=urn:btih:32D67D8AD9E84E1FA46A2CB186E5282DB72D2667
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -736,6 +784,8 @@ VA - Dance Vibration Vol 2 (2012) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:79843F382DC8FB8D76DAF39134FDA516C495C35E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -768,6 +818,8 @@ Vrum - ;__; (2012) [MP3|320 кб/с]<Shoegaze Indie Post Rock>
 ```bash
 magnet:?xt=urn:btih:F7387CE280D75CF144B861C187C51433C695B738
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ NG: Египет с величайшим исследователем в мир�
 magnet:?xt=urn:btih:E40558E9DC4BA75C73FDFB8928868E54BFA9AFC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:E40558E9DC4BA75C73FDFB8928868E54BFA9AFC7
 ```bash
 magnet:?xt=urn:btih:4B03043F261D718701F50937F4CA5D1B9729EBA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NGW: Змеи в городе / Snakes in the city (2015-2017) HDTV [H.264/1080i
 magnet:?xt=urn:btih:7399D3A465CA4CFD409DA8A2FC1547C2F7EE4AF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NG: Экспедиция на Марс / Expedition Mars (2016) HDTV [H.264/1080
 ```bash
 magnet:?xt=urn:btih:393EA29E20538C180412CA8DB3844ABE666339D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ NGW: Короли ящериц / Lizard Kings (2009) HDTV [H.264/1080i-LQ]
 magnet:?xt=urn:btih:7B79D11B3FEB8AA80057A27F3E73F95B02C34706
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ NG. Взлёт чёрных фараонов / Rise of the Black Pharoahs (2014)
 ```bash
 magnet:?xt=urn:btih:86B15AC668C420FCF9EE544DFC241D82B1A77591
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Discovery. Пчелиный король / Bee Czar (2022) WEBRip [H.264/1080p-L
 magnet:?xt=urn:btih:151F143179A0906AAC4C466E33D41FC779A84A96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:151F143179A0906AAC4C466E33D41FC779A84A96
 magnet:?xt=urn:btih:1EE7CFD36A12864C575CFD4AE24FCFB1DF982E9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ NGW: В поисках таинственного зверя / Search for the Se
 ```bash
 magnet:?xt=urn:btih:79AA2EC139EC81F3613AB219D73D06E241C37832
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Discovery. Аэропорт изнутри / Airport from within (2015) HDTV [H.
 magnet:?xt=urn:btih:43AE123650167EE3570D9C713B94F2FB543428AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Discovery. Аляска: последний рубеж / Alaska: The Last Fronti
 ```bash
 magnet:?xt=urn:btih:42EC9BA4C0AAAE16593E36569A8C65986693F1CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Discovery. Аляска: последний рубеж / Alaska: The Last Fronti
 magnet:?xt=urn:btih:AEF759F02BE7719083FDE40C798BDB8C9FEAC1C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Discovery. Разгаданные тайны Библии / Biblical Mysteries E
 ```bash
 magnet:?xt=urn:btih:B7607127D1C459BAEB73FB77C2EBDEF386CEF4F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Discovery. Мужские берлоги / Epic Man Cave Builds (2015) HDTVRip [
 magnet:?xt=urn:btih:241C584C8F9D7C2ABEAC85AC79BAE1EF307177AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:241C584C8F9D7C2ABEAC85AC79BAE1EF307177AC
 ```bash
 magnet:?xt=urn:btih:F88BF0C57646083A74A0182798BDF89ACC84328E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ NGW: Гризли Аляски бросают вызов. Короли остр�
 magnet:?xt=urn:btih:328149B9109C522B28F70C327E8FDFB4BDA7A7C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:328149B9109C522B28F70C327E8FDFB4BDA7A7C8
 ```bash
 magnet:?xt=urn:btih:181AFF3E2FF138ED6343F22978FB8ECA1DAA08EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ BBC: Выдающиеся женщины ХХ столетия. Коко Шан�
 magnet:?xt=urn:btih:D888F35DB365BF8E1527CC8EB6608EF34304FDAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:D888F35DB365BF8E1527CC8EB6608EF34304FDAC
 magnet:?xt=urn:btih:10DE30F5F1BE7AE5613B64CE20F1AF4E9DC38AB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ BBC: Выдающиеся женщины ХХ столетия. Индира Г�
 ```bash
 magnet:?xt=urn:btih:3F2509F4FB848FA010623FBD4DA3EA3F6B0ACCB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ BBC. Horizon: В поисках бессмертия / The Immortalist (2016) HD
 magnet:?xt=urn:btih:0BF9D773C4DF1EE8BA3C84FEABDD5D58FC80C295
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ NGW: Дикие охотники. Рептилии / Wild Hunters. Reptiles (201
 magnet:?xt=urn:btih:9B9EFCEBEB41CFF4637882ECC8F64CC721588773
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ Discovery. Стальные парни / Steel Buddies (2014) HDTVRip [Сери�
 ```bash
 magnet:?xt=urn:btih:CF33F9FF852B90B1871EC0B2189C76CBBE9F48D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ History Channel. Реальные монстры / True Monsters (2015) HDTVRip 
 magnet:?xt=urn:btih:2D68249069D43116E3D655C5DCDF01D2ACF9A7A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ NGW: Малыши-экстремалы / Extreme babies animal (2016) HDTV [H.26
 magnet:?xt=urn:btih:2D0D8425ED39E531E358FFCAA8D143B137107BDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ DV:  Невероятное вокруг нас. Взгляд в космос [1
 ```bash
 magnet:?xt=urn:btih:BC28DB24F7D5CFA3D7393438EE4000AC72383972
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1052856   (527371) от 15.09.2016
+
+Право голоса. Обама: утиная охота (15.09.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_527371.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Право голоса» - это место для дискуссий и арена для политических баталий. Здесь поднимаются самые острые общественно-политические проблемы страны. В этой студии нет безразличных ораторов и безучастных зрителей. У нас каждый имеет право высказаться и быть услышанным. Мы задаем политикам и чиновникам неудобные вопросы, потому что хотим получить честные ответы. Здесь (   Читать дальше...   )В этом выпуске: До президентских выборов в США осталось меньше 2 месяцев. В этот период американские СМИ называют президента "хромой уткой", подводят итоги и критикуют "беззубую" внешнюю политику Обамы. Что будет после его ухода?Телекомпания: ТВ-ЦентрЖанр: Ток-шоу, дискуссия, политикаПродолжительность: 01:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FC3616FAB5F5370E454954B48FD5C8489094B4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1052877   (527372) от 15.09.2016
 
 В теме. Двойные стандарты (14.09.2016) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:10BF7FE7D04D141F34385C96268D4EDB5625970D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:10BF7FE7D04D141F34385C96268D4EDB5625970D
 ```bash
 magnet:?xt=urn:btih:202BF137485D4F853C05F94DD9756FF642447B8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:202BF137485D4F853C05F94DD9756FF642447B8B
 magnet:?xt=urn:btih:8A6DC09BC482CCAA99824A76F3AF9427037BA42B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:8A6DC09BC482CCAA99824A76F3AF9427037BA42B
 magnet:?xt=urn:btih:C011BED2ECB71C66BEF1077E17F2A38AE51E9CB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:C011BED2ECB71C66BEF1077E17F2A38AE51E9CB7
 ```bash
 magnet:?xt=urn:btih:691D88426C22346AE4D2CC09177D46F837D9743A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:691D88426C22346AE4D2CC09177D46F837D9743A
 magnet:?xt=urn:btih:C677402CEBE617B061F897493290703DEC0F7BB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:C677402CEBE617B061F897493290703DEC0F7BB1
 ```bash
 magnet:?xt=urn:btih:39A5F6FB7FA92CAE855A1D192754BDD1E1411347
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:39A5F6FB7FA92CAE855A1D192754BDD1E1411347
 magnet:?xt=urn:btih:FEABAED46B1F13D9D8056CBB4E5DDAAB71DCBA10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:FEABAED46B1F13D9D8056CBB4E5DDAAB71DCBA10
 ```bash
 magnet:?xt=urn:btih:31571685CFC29BD8C98ACFD0416E0666DB53B2FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:31571685CFC29BD8C98ACFD0416E0666DB53B2FD
 magnet:?xt=urn:btih:DB4314753BD39BAB8305439BEB5021C2A54D6997
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:DB4314753BD39BAB8305439BEB5021C2A54D6997
 ```bash
 magnet:?xt=urn:btih:B3BAE26F62695F78BB744AEC88A1D6D67BF94F0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:B3BAE26F62695F78BB744AEC88A1D6D67BF94F0C
 magnet:?xt=urn:btih:7EC3F073277075B93E2C8972D71AA15EB1ED56DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:7EC3F073277075B93E2C8972D71AA15EB1ED56DF
 ```bash
 magnet:?xt=urn:btih:1CD76DFEAB67B686A2786A2816CF58BB7C7E36BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:1CD76DFEAB67B686A2786A2816CF58BB7C7E36BE
 magnet:?xt=urn:btih:9A5882B3F9300E5BAA2E7CB4198A1D927AE14FD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:9A5882B3F9300E5BAA2E7CB4198A1D927AE14FD6
 ```bash
 magnet:?xt=urn:btih:758450CFE6747414470B71F504359D0D7A47476C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:758450CFE6747414470B71F504359D0D7A47476C
 magnet:?xt=urn:btih:FD13ADEBD6669C3A2A4240BD072A9342DD7A1757
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:FD13ADEBD6669C3A2A4240BD072A9342DD7A1757
 ```bash
 magnet:?xt=urn:btih:7A894B70C427BB4BE85CFD5F3F011A2293239CE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:7A894B70C427BB4BE85CFD5F3F011A2293239CE3
 magnet:?xt=urn:btih:EF14D13A0CBDA2E7F7F46C1B0278DC222B35ECC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:EF14D13A0CBDA2E7F7F46C1B0278DC222B35ECC7
 ```bash
 magnet:?xt=urn:btih:D69FEC4BB8F446256B895C680D15AFFFC8B8A8F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:D69FEC4BB8F446256B895C680D15AFFFC8B8A8F9
 magnet:?xt=urn:btih:4E02A73CDE5851F648B0ABF12DBA16E265AC0272
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:4E02A73CDE5851F648B0ABF12DBA16E265AC0272
 ```bash
 magnet:?xt=urn:btih:E91AFA377C4C3C35B871C60A03D018AC05A89880
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:E91AFA377C4C3C35B871C60A03D018AC05A89880
 magnet:?xt=urn:btih:92C83718DA9C92A7A643884927B637472031840F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +620,8 @@ magnet:?xt=urn:btih:92C83718DA9C92A7A643884927B637472031840F
 ```bash
 magnet:?xt=urn:btih:E6844649165B6418754B4A6BF04059A89F9D3B0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:E6844649165B6418754B4A6BF04059A89F9D3B0F
 magnet:?xt=urn:btih:B1EEDF23E16F1EC29321C4ABDDDC3790C74B546D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,29 +673,7 @@ magnet:?xt=urn:btih:B1EEDF23E16F1EC29321C4ABDDDC3790C74B546D
 magnet:?xt=urn:btih:3666295D23E2B5857DF03F685E9CBECB3CFD6FA7
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558910   (528792) от 22.06.2022
-
-Второй фронт. Лучше поздно, чем никогда (2014) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528792.jpg" />
-</div>
-
-
-###  Подробнее
-
-6 июня 1944 года - день высадки союзных войск в Нормандии и открытия второго фронта против армии фашистской Германии. Фильм – рассказ не только о самой десантной операции, но и предшествующих событиях – политических и военных, одни из которых мешали, а другие способствовали открытию второго фронта.Производство: Россия, т/к "Звезда"Жанр: документальный, историяРежиссер: Сергей НейлауЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:38:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFFBD0ED8D6F335E2EC7B8A6404117931CA29453
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

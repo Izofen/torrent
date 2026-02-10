@@ -1,3 +1,30 @@
+###  Публикация: 1003401   (843015) от 03.04.2016
+
+Открытие Китая (2016.04.03) SATRip (серия 6)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843015.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Открытие Китая" - это цикл авторских документальных фильмов о Поднебесной. Автор Евгений Колесов – не профессиональный журналист, а бизнесмен.
+Двадцать лет назад, еще студентом, он поехал в Китай учиться, да так там и остался. Основал заграницей успешную консалтинговую фирму, женился на русской девушке, родил четверых детей. А потом как человек творческий (   Читать дальше...   )Телекомпания: Первый каналЖанр: Документальный, познавательный, путешествиеСубтитры: ОтсутствуютПродолжительность: 00:2:
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3170E9FD57C28F369BF819F6CCB1E9EAA6E28243
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003455   (843119) от 03.04.2016
 
 Военная приемка. СУ-35С. Гость из будущего  (03.04.2016) SATRip
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:610DB27C8C2CE6E86E82B9547041D53A19F84240
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:610DB27C8C2CE6E86E82B9547041D53A19F84240
 magnet:?xt=urn:btih:78A4C3909FEF822DC600FAB6840A93701EEBC5A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +97,8 @@ magnet:?xt=urn:btih:78A4C3909FEF822DC600FAB6840A93701EEBC5A7
 ```bash
 magnet:?xt=urn:btih:48D6FDEF18EFCD550746B0AF651B3F8FB467FDCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +124,8 @@ magnet:?xt=urn:btih:48D6FDEF18EFCD550746B0AF651B3F8FB467FDCD
 magnet:?xt=urn:btih:09E75D7DD9C7A414931B482663FF9D4931D711CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +149,8 @@ magnet:?xt=urn:btih:09E75D7DD9C7A414931B482663FF9D4931D711CC
 ```bash
 magnet:?xt=urn:btih:938C8294ECB651D01FB6A71B8A25A57D0B85C451
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +176,8 @@ magnet:?xt=urn:btih:938C8294ECB651D01FB6A71B8A25A57D0B85C451
 magnet:?xt=urn:btih:8A1F0D66F1145E36589F33B4CE5833DF055F9A06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +201,8 @@ magnet:?xt=urn:btih:8A1F0D66F1145E36589F33B4CE5833DF055F9A06
 ```bash
 magnet:?xt=urn:btih:0CE1B97A0CD2310EF18E8FCA7FD0A7429AA56778
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +228,8 @@ magnet:?xt=urn:btih:0CE1B97A0CD2310EF18E8FCA7FD0A7429AA56778
 magnet:?xt=urn:btih:68387897BCA8AD1D8A3EDCA882B2A79121DE61C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +253,8 @@ magnet:?xt=urn:btih:68387897BCA8AD1D8A3EDCA882B2A79121DE61C8
 ```bash
 magnet:?xt=urn:btih:D831CE8AA220771AB0EAFFB6DD7198B917BBFE20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +280,8 @@ magnet:?xt=urn:btih:D831CE8AA220771AB0EAFFB6DD7198B917BBFE20
 magnet:?xt=urn:btih:FE5B50DD303BF5E10FE24BA2D96F5A43E9CE58B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +305,8 @@ magnet:?xt=urn:btih:FE5B50DD303BF5E10FE24BA2D96F5A43E9CE58B8
 ```bash
 magnet:?xt=urn:btih:058ADBF82FAF6C56DE844412AD314564975400C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +332,8 @@ magnet:?xt=urn:btih:058ADBF82FAF6C56DE844412AD314564975400C4
 magnet:?xt=urn:btih:F4E295F211A0287DA5277A82D8149C3C95AFE56D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +358,8 @@ magnet:?xt=urn:btih:F4E295F211A0287DA5277A82D8149C3C95AFE56D
 magnet:?xt=urn:btih:EB42BDAE5717B5D5B45B60D418835D6889A4F16E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +383,8 @@ magnet:?xt=urn:btih:EB42BDAE5717B5D5B45B60D418835D6889A4F16E
 ```bash
 magnet:?xt=urn:btih:64A535ECFC7209A29F85A41455E2ADDC897D1589
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +413,8 @@ magnet:?xt=urn:btih:64A535ECFC7209A29F85A41455E2ADDC897D1589
 magnet:?xt=urn:btih:B5DDFDC4295DC0722F89DDDAF4E4279CFA17494D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +439,8 @@ magnet:?xt=urn:btih:B5DDFDC4295DC0722F89DDDAF4E4279CFA17494D
 magnet:?xt=urn:btih:CE2E1B48D5D3DC8CDE43B64417E041534850C77D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +464,8 @@ magnet:?xt=urn:btih:CE2E1B48D5D3DC8CDE43B64417E041534850C77D
 ```bash
 magnet:?xt=urn:btih:FA959AE7AF264C275E5D7D7A4DF7F85C7225FD6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +492,8 @@ magnet:?xt=urn:btih:FA959AE7AF264C275E5D7D7A4DF7F85C7225FD6E
 magnet:?xt=urn:btih:274F7AB9DE9CC76BAD68CBCD68EF2C12765B08CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +519,8 @@ magnet:?xt=urn:btih:274F7AB9DE9CC76BAD68CBCD68EF2C12765B08CF
 magnet:?xt=urn:btih:D2C4EA4E2EF1356B3B81DC4BE285153692201C54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +544,8 @@ magnet:?xt=urn:btih:D2C4EA4E2EF1356B3B81DC4BE285153692201C54
 ```bash
 magnet:?xt=urn:btih:D010B60F2E356CD3D30D32854B692327D7CD1001
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +571,8 @@ magnet:?xt=urn:btih:D010B60F2E356CD3D30D32854B692327D7CD1001
 magnet:?xt=urn:btih:B3C93ED5078FF1BCF16C3857B4FED831B294317C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +597,8 @@ magnet:?xt=urn:btih:B3C93ED5078FF1BCF16C3857B4FED831B294317C
 magnet:?xt=urn:btih:6A9534DD6BD81DACD712841674DCA0D921490377
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +622,8 @@ magnet:?xt=urn:btih:6A9534DD6BD81DACD712841674DCA0D921490377
 ```bash
 magnet:?xt=urn:btih:30C6A1B901E8074B454857346D65B48CCCA981CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +652,8 @@ magnet:?xt=urn:btih:30C6A1B901E8074B454857346D65B48CCCA981CA
 magnet:?xt=urn:btih:94DF08C67E918B072D82A40F07E7000F2587B9C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,29 +678,7 @@ magnet:?xt=urn:btih:94DF08C67E918B072D82A40F07E7000F2587B9C4
 magnet:?xt=urn:btih:43EC0B009B1984B0E3F82B8ACE5712706D3258B0
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499928   (844435) от 04.10.2021
-
-Санторини / Santorini (2021) WEBRip [VP9/2160p]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Санторини – один из принадлежащих Греции Кикладских островов в Эгейском море. Мы исследовали острова пару недель, и это одни из моих лучших съёмок.Производство: ГрецияЖанр: Документальный, видовойРежиссер: Натан МакБрайдПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B51BEBE37C103227597C94718CDB1CC553B0ACD
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

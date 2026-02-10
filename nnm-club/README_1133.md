@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5195D05800235BD621F9CDDD98BE88C02CACD4ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Listen Audiobook Player v5.2.11 (1026) Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:41EA1B577C2893C58B32012BA8B08CCAE58654B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ MAGIX Vegas PRO — профессиональная программа для �
 magnet:?xt=urn:btih:42C7E7A0C28C8A581F091E741482BF7818A0BC1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:42C7E7A0C28C8A581F091E741482BF7818A0BC1B
 ```bash
 magnet:?xt=urn:btih:13C05AF76AF639671F6DC582AC7D710E846E25E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:13C05AF76AF639671F6DC582AC7D710E846E25E2
 magnet:?xt=urn:btih:70174D561F856CB3A2372596B0A0ECE72583C0C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:70174D561F856CB3A2372596B0A0ECE72583C0C7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:70174D561F856CB3A2372596B0A0ECE72583C0C7
 magnet:?xt=urn:btih:6F61E343A2AE523D6A9E2D0099A8EC850503287D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:6F61E343A2AE523D6A9E2D0099A8EC850503287D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:6F61E343A2AE523D6A9E2D0099A8EC850503287D
 magnet:?xt=urn:btih:0036E9A206FDF5D869CE84DA46D929A11A3C7AB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:0036E9A206FDF5D869CE84DA46D929A11A3C7AB4
 ```bash
 magnet:?xt=urn:btih:991CC0C1531B30B835A0D9AACD2CF38513285147
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Reg Organizer® - это многофункциональная программ
 magnet:?xt=urn:btih:C61BD45334C0DF04B12526CB5B53BF0CA6285337
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ The Outer Worlds: издание «Просто космос» дарит игр
 ```bash
 magnet:?xt=urn:btih:13DDD19E56538E646E6AA2E99ECA989461DE8698
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:13DDD19E56538E646E6AA2E99ECA989461DE8698
 magnet:?xt=urn:btih:9E175C3EEE83736C408528E468A047E784A42B5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:9E175C3EEE83736C408528E468A047E784A42B5A
 ```bash
 magnet:?xt=urn:btih:1E59D07646AF725BAF57D37FD782480EA9CE14E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:1E59D07646AF725BAF57D37FD782480EA9CE14E5
 magnet:?xt=urn:btih:5AAEA3AFC43033A65B4A62A8CDBD56D3AB3FAA93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Grand Theft Auto Vice City (2021) [Ru/Multi] (1.113.49697469) Repack Let'sРlay 
 ```bash
 magnet:?xt=urn:btih:5EBCD8862B8A9A982DFC7627FE63DC9CA58108C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:5EBCD8862B8A9A982DFC7627FE63DC9CA58108C6
 magnet:?xt=urn:btih:D2F0036A0FA7C278B1667C5AF3CE41650945D9FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ magnet:?xt=urn:btih:D2F0036A0FA7C278B1667C5AF3CE41650945D9FF
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +486,8 @@ magnet:?xt=urn:btih:D2F0036A0FA7C278B1667C5AF3CE41650945D9FF
 ```bash
 magnet:?xt=urn:btih:12AF062A34B8DA6D75B984114AE12337A6224D4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ magnet:?xt=urn:btih:12AF062A34B8DA6D75B984114AE12337A6224D4C
 magnet:?xt=urn:btih:783FE638D64AD040B78883D644E55A412933E76F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ Zoom Player - мощный, гибкий и настраиваемый DVD/Blu-r
 ```bash
 magnet:?xt=urn:btih:C5732D18ABB421367408F16FEFCEAD9783D5884B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ magnet:?xt=urn:btih:C5732D18ABB421367408F16FEFCEAD9783D5884B
 magnet:?xt=urn:btih:983C74400B8FC439FD251D19C2251EB68B901B7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru/En] (2.080.00) Repack R.G. Ме
 ```bash
 magnet:?xt=urn:btih:5F3DD59865DCF9D6A8173884441BF7F7B65ED13F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ Launcher for zapret 1.5 [Ru]
 magnet:?xt=urn:btih:76B53C799A601F5421FD1BD71590346E9AAEE19F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ Skillbox, Максим Клочков, Анастасия Полякова | П�
 magnet:?xt=urn:btih:781A39BA6152EEA0A435B8EB0B29974C87323E5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ magnet:?xt=urn:btih:781A39BA6152EEA0A435B8EB0B29974C87323E5E
 ```bash
 magnet:?xt=urn:btih:D23215F7C3092DB48C9AB872CF73666797D5DA40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

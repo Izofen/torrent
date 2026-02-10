@@ -22,6 +22,8 @@ Disc 1:
 magnet:?xt=urn:btih:B229F767FA6BD91C0C0827F284AD59A054952B79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:B229F767FA6BD91C0C0827F284AD59A054952B79
 ```bash
 magnet:?xt=urn:btih:A52CDBDD78DC97AC2169CFCBFBCCDB95F4827368
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:A52CDBDD78DC97AC2169CFCBFBCCDB95F4827368
 magnet:?xt=urn:btih:8C43E1FC3F90B0C79DABC0527C3923C9A2B35C69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:8C43E1FC3F90B0C79DABC0527C3923C9A2B35C69
 ```bash
 magnet:?xt=urn:btih:D7DA4F484432EFC9F9E5EDAF0A0115A993BC258A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ VA - Sexy Bath 6 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:B5EF09482328781018ECB6725CDF41D1315B09CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:B5EF09482328781018ECB6725CDF41D1315B09CB
 ```bash
 magnet:?xt=urn:btih:2B9A350ED3DACE4F13D8E365C6456DB50AEB3863
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Any Video Downloader Pro - это приложение для Windows, кото�
 magnet:?xt=urn:btih:94D7B2A5AEDD5580A0C2F909C50050D30B465327
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:94D7B2A5AEDD5580A0C2F909C50050D30B465327
 ```bash
 magnet:?xt=urn:btih:B650A49B652E16CB926B54F0303B77D66DD20E1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:B650A49B652E16CB926B54F0303B77D66DD20E1A
 magnet:?xt=urn:btih:7C2D814AE58101CC5EECF584A0F35B4A242F8FE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Stuart Loughridge | Портретный эскиз (2023) WEBRip [EN, RU]
 ```bash
 magnet:?xt=urn:btih:8C57DE5F35DF2D1A14ACBDEC688E8A14E5DD755C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:8C57DE5F35DF2D1A14ACBDEC688E8A14E5DD755C
 magnet:?xt=urn:btih:09377BF183684D2E15AED9DE835C91125A883D2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:09377BF183684D2E15AED9DE835C91125A883D2E
 ```bash
 magnet:?xt=urn:btih:2AA557A067C5CE785AB9AA9C2247BD4181439397
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:2AA557A067C5CE785AB9AA9C2247BD4181439397
 magnet:?xt=urn:btih:D6BCB78FE7A4116766CEF181942EE157A4747C99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:D6BCB78FE7A4116766CEF181942EE157A4747C99
 ```bash
 magnet:?xt=urn:btih:2E2E82E17594531DA7CD96F239400EDDF0C54ECD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ EasyUEFI - удобная утилита для редактирования з�
 magnet:?xt=urn:btih:2DB990D16834418C1F58E5A4D6DA490221C08A64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:2DB990D16834418C1F58E5A4D6DA490221C08A64
 ```bash
 magnet:?xt=urn:btih:D5AED0F5CE6BE901E046845C6A8AB6D7C5CB5DBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:D5AED0F5CE6BE901E046845C6A8AB6D7C5CB5DBA
 magnet:?xt=urn:btih:C79A3E367B4AF29DBD6400B138087BFD67BBFE53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:C79A3E367B4AF29DBD6400B138087BFD67BBFE53
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:C79A3E367B4AF29DBD6400B138087BFD67BBFE53
 magnet:?xt=urn:btih:9643639484A2904E6A5C6DB541434978EA07CB30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:9643639484A2904E6A5C6DB541434978EA07CB30
 ```bash
 magnet:?xt=urn:btih:70E622E09BAB705454F89AC15BD12176FF3D88C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ The Precinct (2025) [Ru/Multi] (1.4.18135) Repack FitGirl
 magnet:?xt=urn:btih:A57F0486C439F60B68F39CBED403638A7C0F111B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:A57F0486C439F60B68F39CBED403638A7C0F111B
 ```bash
 magnet:?xt=urn:btih:D88ACD2C38DBAA1373F0FFC0016F540B300AF8F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ Outer Wilds – приключенческий экшен от первого л
 magnet:?xt=urn:btih:2F7ACDD16496A4C7B192704583A7691AD714AF45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:2F7ACDD16496A4C7B192704583A7691AD714AF45
 ```bash
 magnet:?xt=urn:btih:5BDD89CC45A069B3DB09B19968789E4FB9C1A12E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ magnet:?xt=urn:btih:5BDD89CC45A069B3DB09B19968789E4FB9C1A12E
 magnet:?xt=urn:btih:6B25B90BF7B1B039E66AB8C2533D5CF73190D532
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Kaze Tachinu | The Wind Rises | Ветер Крепчает [2013, Movie] BDRemu
 ```bash
 magnet:?xt=urn:btih:F9FA9A272CE5E2A4005AC8B392F3DDC422638F50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

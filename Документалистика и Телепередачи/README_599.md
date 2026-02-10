@@ -1,3 +1,30 @@
+###  Публикация: 1120447   (803452) от 30.03.2017
+
+Поединок с Владимиром Соловьевым (2017.03.30) SATRip
+
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_803452.jpg" />
+</div>
+
+
+###  Подробнее
+
+Актуальный разговор Владимира Соловьева на общественно-политические темы.
+Сегодня на телеканале «Россия-1» в программе «Поединок с Владимиром Соловьевым» Сергей Кургинян против Николая Злобина.Телекомпания: РоссияЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD9AC80906D26C3BB5F8BC6B19483864B5081938
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120209   (803462) от 30.03.2017
 
 Специальный корреспондент. Убийство беглого депутата (2017.03.27) SATRip
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:F1CD02C70FC30536E00873054BEFF54FC2C1C9B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +71,8 @@ magnet:?xt=urn:btih:F1CD02C70FC30536E00873054BEFF54FC2C1C9B7
 ```bash
 magnet:?xt=urn:btih:E798E5C85FB9D0BB9A5EE1E84B1D5DCF948AE4C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +99,8 @@ magnet:?xt=urn:btih:E798E5C85FB9D0BB9A5EE1E84B1D5DCF948AE4C3
 magnet:?xt=urn:btih:8C335216B59283407D34E6EA305FA930DE6E260D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +124,8 @@ magnet:?xt=urn:btih:8C335216B59283407D34E6EA305FA930DE6E260D
 ```bash
 magnet:?xt=urn:btih:AB591F85DC38E63D459587B79E19165166CB0597
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +151,8 @@ magnet:?xt=urn:btih:AB591F85DC38E63D459587B79E19165166CB0597
 magnet:?xt=urn:btih:20493C96C581F4E787B79A8A3AA989A2F9AD0AB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +176,8 @@ magnet:?xt=urn:btih:20493C96C581F4E787B79A8A3AA989A2F9AD0AB0
 ```bash
 magnet:?xt=urn:btih:E9231999AC86D83D7D763805FEE2A258FE5AF7D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +203,8 @@ magnet:?xt=urn:btih:E9231999AC86D83D7D763805FEE2A258FE5AF7D9
 magnet:?xt=urn:btih:C97136157A06269989CD6BD771D4405E77DEA7E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +228,8 @@ magnet:?xt=urn:btih:C97136157A06269989CD6BD771D4405E77DEA7E0
 ```bash
 magnet:?xt=urn:btih:A828478EAF835A4571F93453EAC65774B4BD2373
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +255,8 @@ magnet:?xt=urn:btih:A828478EAF835A4571F93453EAC65774B4BD2373
 magnet:?xt=urn:btih:E5F6C7939ED99DCDA769FED0C4A9B78BE731C26D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +280,8 @@ magnet:?xt=urn:btih:E5F6C7939ED99DCDA769FED0C4A9B78BE731C26D
 ```bash
 magnet:?xt=urn:btih:C501DA0271C7B41177CF74C3FC22F9D545C77776
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +308,8 @@ magnet:?xt=urn:btih:C501DA0271C7B41177CF74C3FC22F9D545C77776
 magnet:?xt=urn:btih:EB435FFD5EFBD842C828E3FA6AB629DF9A5F058B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +333,8 @@ magnet:?xt=urn:btih:EB435FFD5EFBD842C828E3FA6AB629DF9A5F058B
 ```bash
 magnet:?xt=urn:btih:F907EB70B4F0798953E155B47D796CCF98B60C6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +360,8 @@ magnet:?xt=urn:btih:F907EB70B4F0798953E155B47D796CCF98B60C6D
 magnet:?xt=urn:btih:9733E2D345A085029063735C36AB28DDC93EF029
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +385,8 @@ magnet:?xt=urn:btih:9733E2D345A085029063735C36AB28DDC93EF029
 ```bash
 magnet:?xt=urn:btih:BA006615F4FCFC9F986E6C92233C7E852739B9D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +412,8 @@ magnet:?xt=urn:btih:BA006615F4FCFC9F986E6C92233C7E852739B9D3
 magnet:?xt=urn:btih:D374ADAC1FB152F30FF0A95E64513F951F08D1B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +437,8 @@ magnet:?xt=urn:btih:D374ADAC1FB152F30FF0A95E64513F951F08D1B5
 ```bash
 magnet:?xt=urn:btih:7960A364263AEF3A10E69413278CB3AF466620E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +464,8 @@ magnet:?xt=urn:btih:7960A364263AEF3A10E69413278CB3AF466620E8
 magnet:?xt=urn:btih:93FBCA9D8910D9DCBEA880EE50D2B73BF6288B32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +489,8 @@ magnet:?xt=urn:btih:93FBCA9D8910D9DCBEA880EE50D2B73BF6288B32
 ```bash
 magnet:?xt=urn:btih:CA0E2CC1DD83427FA18265F732B8F09D1C47F3C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +516,8 @@ magnet:?xt=urn:btih:CA0E2CC1DD83427FA18265F732B8F09D1C47F3C6
 magnet:?xt=urn:btih:359EC71118200A39D7B34D0B16EEEEB41B5D7BCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +541,8 @@ magnet:?xt=urn:btih:359EC71118200A39D7B34D0B16EEEEB41B5D7BCE
 ```bash
 magnet:?xt=urn:btih:87D8505CEB1DBCD2BD217FE7371D63BF18B4F21A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +569,8 @@ magnet:?xt=urn:btih:87D8505CEB1DBCD2BD217FE7371D63BF18B4F21A
 magnet:?xt=urn:btih:75A220AD556572732438582981D58C9E55A2F784
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +595,8 @@ magnet:?xt=urn:btih:75A220AD556572732438582981D58C9E55A2F784
 ```bash
 magnet:?xt=urn:btih:075C28A255A5EC2247DFA1FAFCA0DFF6489BD6E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +623,8 @@ magnet:?xt=urn:btih:075C28A255A5EC2247DFA1FAFCA0DFF6489BD6E5
 magnet:?xt=urn:btih:0C7DBE638B6B1B32AB32125C2409C0F65CDEA48B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +648,8 @@ magnet:?xt=urn:btih:0C7DBE638B6B1B32AB32125C2409C0F65CDEA48B
 ```bash
 magnet:?xt=urn:btih:C5603ACDE509A140AA44447F1C2D1F4FECAAC84E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,29 +675,7 @@ magnet:?xt=urn:btih:C5603ACDE509A140AA44447F1C2D1F4FECAAC84E
 magnet:?xt=urn:btih:74D572A3946A855B7ABF7E997EC4DEF7CBD4B37B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119971   (805131) от 29.03.2017
-
-Бомбы, которые взорвали мир (2017) HDTVRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805131.jpg" />
-</div>
-
-
-###  Подробнее
-
-На «Интере» вышел фильм с критикой НАТО, возмутивший Министерство информационной политики Украины. 24 марта 1999 года — черный день в истории Югославии. 18 лет назад мирный Белград превратился в ад. Это была первая в истории военная интервенция НАТО без ратификации ООН. Нарушив международный порядок, Югославия была атакована с воздуха. 78 дней бомбардировки. Война, (   Читать дальше...   )Телекомпания: Украина / ИНТЕРЖанр: Документальный, История, ХроникаПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C56D492CBD075B91B759419EC225EA8569753585
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:3349B806ECCDE7F25CE8EA33D4AC48B41D4DA8D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ magnet:?xt=urn:btih:3349B806ECCDE7F25CE8EA33D4AC48B41D4DA8D2
 magnet:?xt=urn:btih:C4636756592CC3F238F665433CE0A0CF1D465B02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ PSY2.0 | Основы сексуального здоровья (2023) WEB-DL [A
 ```bash
 magnet:?xt=urn:btih:3583F5814A6A1B0574B72380FCCDE6AB4158AE43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -102,6 +108,8 @@ Songwriting-academy, Олег Шаумаров | Большая Аранжиро
 magnet:?xt=urn:btih:1B673B128A08D9E74F1A4682E6F5453F8EFAAE01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +136,8 @@ magnet:?xt=urn:btih:1B673B128A08D9E74F1A4682E6F5453F8EFAAE01
 ```bash
 magnet:?xt=urn:btih:844C8FF30C543BB234EB067C96FF59824E340947
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -156,6 +166,8 @@ Slurm (Слёрм), Марсель Ибраев, Павел Селиванов, 
 magnet:?xt=urn:btih:F60C38D5173A543F1730B5F6A42CDECB5E12FED5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ Udemy | Библиотека курсов по Ansys (2018-2023) WEB-DLRip [EN /
 ```bash
 magnet:?xt=urn:btih:9B9591B85B2CDB0EE5D0774A2C84BC4982C7F6BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -206,6 +220,8 @@ LevelOne, Елизавета Волкова  | Сильная речь - что 
 magnet:?xt=urn:btih:00026ACA80B70D1A340EF1E9625819BCF9DEB69F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +245,8 @@ magnet:?xt=urn:btih:00026ACA80B70D1A340EF1E9625819BCF9DEB69F
 ```bash
 magnet:?xt=urn:btih:901FC186D6AFAD1944DA029F67F1D39CE94234E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -255,6 +273,8 @@ magnet:?xt=urn:btih:901FC186D6AFAD1944DA029F67F1D39CE94234E8
 magnet:?xt=urn:btih:F78826342A90391A082B1E872670DEB2BC5207CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ Soft skills — это навыки, которые помогают в рабо
 ```bash
 magnet:?xt=urn:btih:E96556FE49C0670903F621A6ED520270A5F299E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +330,8 @@ magnet:?xt=urn:btih:E96556FE49C0670903F621A6ED520270A5F299E0
 magnet:?xt=urn:btih:0F1BADB246C3CE6B52AFAFC0CACD0BAC3FA448B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +357,8 @@ Skillbox, М. Овчинников, С. Корниенко и др. | Веб-в�
 ```bash
 magnet:?xt=urn:btih:A95721B00D0CC2AB7BEDEC4D7D4A657BD2121F10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +387,8 @@ Changellenge, Денис Хайретдинов, Георгий Пащенко |
 magnet:?xt=urn:btih:DFCBF2F060E72F741EEBCAA21DF12D08D1D8A156
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +416,8 @@ Discover the secrets of ethical hacking and network discovery, using Nmap on thi
 magnet:?xt=urn:btih:CF81F86AA71E71D4AE71A0C0ABFB14D79C05A2F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +441,8 @@ The Gnomon Workshop, Alessandro Cangelosi | Natural Environment Creation Techniq
 ```bash
 magnet:?xt=urn:btih:1FFFA1C69959345043F30B7B1561850150374606
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +468,8 @@ Udemy | Библиотека курсов по Matlab (2022) [EN]
 ```bash
 magnet:?xt=urn:btih:BA4AC2D91B6D5436AC71AA3AC36BF1237B11F9B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +498,8 @@ pixel.one | Создание 2D игр в Unity (2019) WEB-DL [RU]
 magnet:?xt=urn:btih:0A690CCFE3BBC8FAAF52A035D08DBEE244923B57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +525,8 @@ Fine., Юлия Киселева | Мастер класс по работе с 
 magnet:?xt=urn:btih:EA7106027775BFDB6045D825AC359994AC13F037
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +551,8 @@ Williams Academy, Tamara Williams | Masterclass Photo & Retouch + Brushes (2023)
 ```bash
 magnet:?xt=urn:btih:CE62507B7580F57EA5386634139CCFD2A62C54B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +580,8 @@ magnet:?xt=urn:btih:CE62507B7580F57EA5386634139CCFD2A62C54B2
 magnet:?xt=urn:btih:F32E68605D94524A4C2DF51C9B9713963011573C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +606,8 @@ magnet:?xt=urn:btih:F32E68605D94524A4C2DF51C9B9713963011573C
 magnet:?xt=urn:btih:68464CF91311D4923AD8FC2769BD992F428F5377
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +631,8 @@ Heisenbug — большая техническая конференция, ко
 ```bash
 magnet:?xt=urn:btih:7ABA9AE48B933B6D79EA641D00ED9E054162C290
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +659,8 @@ magnet:?xt=urn:btih:7ABA9AE48B933B6D79EA641D00ED9E054162C290
 magnet:?xt=urn:btih:7002481C0A542AA238A957918362C409D9D35A1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +685,8 @@ Lumos, Олег Грознов | Как правильно читать карт
 magnet:?xt=urn:btih:9F24549B169C73734051D2D03916583A5A343B40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +710,8 @@ magnet:?xt=urn:btih:9F24549B169C73734051D2D03916583A5A343B40
 ```bash
 magnet:?xt=urn:btih:64AB332887E2F0BC0C8573E9A620F50231CF6979
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

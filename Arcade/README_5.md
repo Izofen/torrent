@@ -19,6 +19,8 @@ Among Us (2018) [Ru/Multi] (16.0.0i) Repack Pioneer
 magnet:?xt=urn:btih:4A8881C6C421140F7821C923C2DEA956E90AC3B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Zombieville USA 3D - это аркадный шутер, в котором чу�
 ```bash
 magnet:?xt=urn:btih:A16B3B0C1F0143975A7018BA70CBB886B239FD8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Nobody Saves the World (2022) [Ru/Multi] (18.01.2023/dlc) Repack Pioneer
 magnet:?xt=urn:btih:78112C2FAF2067E2BCDE0F62B64E3137ED25A02F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Human: Fall Flat – приключенческая головоломка с п
 ```bash
 magnet:?xt=urn:btih:433A20CE473E4E0760728BA8A0E2E8680FA6D9F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Lumencraft (2022) [Ru/Multi] (9257) License GOG
 magnet:?xt=urn:btih:8BCEDDA9A54A0F59520A978B2794259182543DB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Wonder Ball (2024) [Ru/Multi] (1.03) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9288F7D0BECC0DA396DD908DAF41CE38CA939905
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ The LEGO NINJAGO Movie Video Game (2017) [Ru/Multi] (1.0) License GOG
 magnet:?xt=urn:btih:420F8DDBE8309F0B3D63AD011873B28D792E7C0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Ale and Tale Tavern - это кооперативный фэнтезийный �
 ```bash
 magnet:?xt=urn:btih:6F38D53DE843DD136FC863D3531562304A9528D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ BLEACH Rebirth of Souls (2025) [Ru/Multi] (1.03/dlc) Repack FitGirl
 magnet:?xt=urn:btih:FF9ECE7BBD02B4ABC7658B9DC1D185DC63FB2743
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ BLEACH Rebirth of Souls (2025) [Ru/Multi] (1.03/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:5E9C71676D95389F3D288AA693EFE688EE181E04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Girl Genius: Adventures In Castle Heterodyne, созданная по мотив
 magnet:?xt=urn:btih:D0D6649FC66D02E3A041C028660A2073840AAC68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ BLEACH Rebirth of Souls (2025) [Ru/Multi] (build 17746622/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:1D44C56A23042687B7F76AF912A7263743611A5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Sonic X Shadow Generations (2024) [Ru/Multi] (1.01/dlc) Repack FitGirl
 magnet:?xt=urn:btih:F754CBB3B978A71C16D09DA1E8004ADC797D4B6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Ori and the Blind Forest (2015) [Ru/Multi] (1.0/dlc) Repack seleZen [Definitive 
 ```bash
 magnet:?xt=urn:btih:7AE7AD864BF366952FD4EBE4DF15E68D6C68E7E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Ori and the Will of the Wisps (2020) [Ru/Multi] (3.1) Repack seleZen
 magnet:?xt=urn:btih:6A2692221BBE9CDC6F61E43A9E19A7D5737FD9FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Dancing Pandas: Ranger's Path (2025) [En] (4.34H) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:952F0CCD97B3C24240A0EBC9FD395B7BD32AB4DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Moorhuhn Kart 4 (2025) [Ru/Multi] (1.0.12) Repack FitGirl
 magnet:?xt=urn:btih:FC9593AC88C6A86E9F55B23B051407979A82A2D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Moorhuhn Kart 4 (2025) [Ru/Multi] (1.0.12) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:5EA9B6C7DBC2E32180EC41E326A0CE7695D9CE69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Rising Sun: Iron Aces (2025) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:B6273D087A545991C065751C97117DBF7C70EDF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Bonesaw - это пошаговый психологический хоррор 
 ```bash
 magnet:?xt=urn:btih:E6AFC441153AE14B4346ADC37A4DFF3D4856B56A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ THE KING OF FIGHTERS XIII GLOBAL MATCH (2025) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:457DB15FDD7F85EE20A80143CEEB055FC80A656E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ House of Golf 2 (2024) [Ru/Multi] (1.2.5) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0A3A6085ABA6441150C42591C8EA9175EAC22B78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Granblue Fantasy Versus: Rising представляет собой захват
 magnet:?xt=urn:btih:71320CBE8EF620507C032E98741D3E373894915D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ The Lego Movie 2 Videogame (2019) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:7D34F2F82B3B62687AA57AD35865FF06A3DAF49D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ The Lego Movie Videogame (2014) [Ru/Multi] (1.0/dlc) License GOG
 magnet:?xt=urn:btih:B76280F57BEC3BBEFFC99FB51ABD15C0D57CCB06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ SHAPIK: The Moon Quest - трогательный и атмосферный кв
 ```bash
 magnet:?xt=urn:btih:ED7D569C906242E31DE07FBAE784B91AD0C19DC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

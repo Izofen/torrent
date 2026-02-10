@@ -19,6 +19,8 @@ Rufus - небольшая утилита помогает отформатир�
 magnet:?xt=urn:btih:54CCD4FDCB16AD55A95A4137E314B764F8D4E324
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:54CCD4FDCB16AD55A95A4137E314B764F8D4E324
 magnet:?xt=urn:btih:82FE84E8D63FF3ED1808A9E027ACFD7D0315852F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:82FE84E8D63FF3ED1808A9E027ACFD7D0315852F
 ```bash
 magnet:?xt=urn:btih:EAF3371AD4A7DE8CEA25D5B9F4E67119EA5BBEEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:EAF3371AD4A7DE8CEA25D5B9F4E67119EA5BBEEE
 magnet:?xt=urn:btih:604BC38A4632084B2B2D4E1A08CB28655A98FB32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:604BC38A4632084B2B2D4E1A08CB28655A98FB32
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:604BC38A4632084B2B2D4E1A08CB28655A98FB32
 magnet:?xt=urn:btih:785DB8E93E2C24D5180B3750D5C3B7F451199EA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:785DB8E93E2C24D5180B3750D5C3B7F451199EA5
 ```bash
 magnet:?xt=urn:btih:1513D1BC2CA757E55AF00C68475A8645C9775AE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ MEDUZA - Live @ Meduza³ (Futur Stage, Kappa FuturFestival) Turin, Italy (2025-0
 magnet:?xt=urn:btih:D64B614595A49AB6D695A8EC6EB5406482BEF402
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:D64B614595A49AB6D695A8EC6EB5406482BEF402
 ```bash
 magnet:?xt=urn:btih:094C89044B4D94DC60C35065F6D386749D75F4A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:094C89044B4D94DC60C35065F6D386749D75F4A5
 magnet:?xt=urn:btih:A605DDF7E2D0A878DD34E52572CD6DACAFFAD4C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:A605DDF7E2D0A878DD34E52572CD6DACAFFAD4C3
 ```bash
 magnet:?xt=urn:btih:5E4A1F7A5F177ED713094F3A69377DDE7B53934F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:5E4A1F7A5F177ED713094F3A69377DDE7B53934F
 magnet:?xt=urn:btih:CCEF4BFCF1D56A8D6A854B5239BA18CD31F83915
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:CCEF4BFCF1D56A8D6A854B5239BA18CD31F83915
 ```bash
 magnet:?xt=urn:btih:A0D6C2C158EDAE337CFD166E346676A31BAFD0F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:A0D6C2C158EDAE337CFD166E346676A31BAFD0F8
 ```bash
 magnet:?xt=urn:btih:E7469DE856C3810E77B8DFFC5369B35019A9DE3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ TrueNAS CORE (ранее FreeNAS) — это бесплатная операци
 magnet:?xt=urn:btih:EE0AB44C5C49678D090871BE465AE6F90CFF4ED9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:EE0AB44C5C49678D090871BE465AE6F90CFF4ED9
 ```bash
 magnet:?xt=urn:btih:4A0DF5BCC74D9A186EA840B281A07B12085A92ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ The Answer — североирландская рок-группа, образ�
 magnet:?xt=urn:btih:2DBAB69F9A59685D1B3E10776B55F06EA5934133
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ magnet:?xt=urn:btih:2DBAB69F9A59685D1B3E10776B55F06EA5934133
 magnet:?xt=urn:btih:6E23E3B0A820C0AFE67C38F9CC33A229AC1E0F1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ XIII век. Злодей захватил власть в Муромском к
 ```bash
 magnet:?xt=urn:btih:B51DCF1D7403CD2EAD773E83C56C43D5EB05257D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +533,8 @@ VA - Gentle Morning: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Ba
 magnet:?xt=urn:btih:39803193B42C93FBA7918EF6A129470644B8EF99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ Alcatrazz - легендарная рок-группа, сольный прое�
 ```bash
 magnet:?xt=urn:btih:914036C197E3B2A88639C4D51257D56BE612E759
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +591,8 @@ Backstreet Boys - A Very Backstreet Christmas (Deluxe Edition) (2022)(2025) [FLA
 magnet:?xt=urn:btih:7E692AA2D7A5B9DE92B09B24620EC649724FF469
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +620,8 @@ Sparks – группа, образованная в 1971 году братья�
 magnet:?xt=urn:btih:441B0CC68231D3122A883167F7360C5B35272C2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:441B0CC68231D3122A883167F7360C5B35272C2E
 ```bash
 magnet:?xt=urn:btih:C53E668DD3760FDEA7737F1E1A1E99DAC9C4592C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +675,8 @@ Ah Nee Mah - Native Spirit (2009) [FLAC|Lossless|tracks + .cue] <New Age, Native
 magnet:?xt=urn:btih:5FB0F8700B2138BA81DE66DB6E2A001E7DF830CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ magnet:?xt=urn:btih:5FB0F8700B2138BA81DE66DB6E2A001E7DF830CA
 ```bash
 magnet:?xt=urn:btih:14BF751905BEDC56746DFF6B6FB3EA2116B2042A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:042680F1AABF50F368656FB78931BDB4401F1ED6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:042680F1AABF50F368656FB78931BDB4401F1ED6
 magnet:?xt=urn:btih:67439492B802D1037DE88833D41188B69365CE50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Text Scanner [OCR] v9.3.9 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:6C5271FC7CD30355903A9D5D8917B0DA52EC932E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Adguard предназначен для блокировки абсолютно 
 magnet:?xt=urn:btih:749D6960474FE7F67199BCF631A9F1BB5E1C70EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Learn English - Listening and Speaking v6.3.2 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7B6FFF70F66C747301AEA127CB28939AACFF6989
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:7B6FFF70F66C747301AEA127CB28939AACFF6989
 magnet:?xt=urn:btih:8D776F0FBA7DD0D958A1C24CD5EE07BB25C8054C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:8D776F0FBA7DD0D958A1C24CD5EE07BB25C8054C
 ```bash
 magnet:?xt=urn:btih:2CA096B5875F90DD371AA31E2E1D123FA85C267D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:2CA096B5875F90DD371AA31E2E1D123FA85C267D
 magnet:?xt=urn:btih:46797F3D0A11CE925875CD84ECF51A3F5198EC79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ Atlantic Fleet - масштабная морская стратегия с по�
 magnet:?xt=urn:btih:16A5335671D59873F34AE4501F832D9B2F8193D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ All GPS Tools Pro - приложение предназначенное в пе�
 ```bash
 magnet:?xt=urn:btih:74C9413CA389A96B70DD621213FFE3C99E2B4A11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ YARVITTO v3.18 Pro [Ru/Multi] - путеводитель по Европе и н
 magnet:?xt=urn:btih:8A098D14C9D832FCBF77DFE77B466A84BE191422
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:8A098D14C9D832FCBF77DFE77B466A84BE191422
 magnet:?xt=urn:btih:EA82ACD7CE283D35DB519529BDB7CBF2BF017E1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:EA82ACD7CE283D35DB519529BDB7CBF2BF017E1F
 ```bash
 magnet:?xt=urn:btih:0C7A209C62422BEFEF2C33319D585E186E17918D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:0C7A209C62422BEFEF2C33319D585E186E17918D
 magnet:?xt=urn:btih:1AB62BD0F90D7D24CC029E822C067C1DA3526D28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ Oxford Russian Dictionary — Android-версия всеобъемлющего 
 magnet:?xt=urn:btih:88160185E647D294E2E3BD52864500820B187EF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ Aldiko Book Reader Premium v3.0.13 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:23A646F9A5A48B93F525EDCF65485FED57032C3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ High-Speed Camera Plus v3.1.0 [Ru/Multi] - высокоскоростная ка
 magnet:?xt=urn:btih:73FD396E8A6432DAC1028A3663370FFA40CD1C77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ magnet:?xt=urn:btih:73FD396E8A6432DAC1028A3663370FFA40CD1C77
 magnet:?xt=urn:btih:8D46E9D134B82425F0800820737F6A2017507E80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +502,8 @@ Smart Kitty - развивающая игра 1.0.5 [Ru]
 ```bash
 magnet:?xt=urn:btih:D316BAB6E2146E34D82C6717A20093DED7551B3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:D316BAB6E2146E34D82C6717A20093DED7551B3F
 magnet:?xt=urn:btih:50A9D3C9397F572209E5D433CF98B076DB0AC6B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:50A9D3C9397F572209E5D433CF98B076DB0AC6B1
 ```bash
 magnet:?xt=urn:btih:ED9ED8A892C372301199D9A13EAEDBC49A9C2CA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +587,8 @@ magnet:?xt=urn:btih:ED9ED8A892C372301199D9A13EAEDBC49A9C2CA5
 magnet:?xt=urn:btih:6CD040ED717BEFCCC0AC78E0F8A98B6BB2DA262D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ magnet:?xt=urn:btih:6CD040ED717BEFCCC0AC78E0F8A98B6BB2DA262D
 ```bash
 magnet:?xt=urn:btih:C2B83C7C7560ACE18065E66EAD1AB6C7B4B5E24F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +640,8 @@ Sound Touch 2 V1.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:A181A527E609B7C17A2363B449FC3F7E4CD0A676
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:A181A527E609B7C17A2363B449FC3F7E4CD0A676
 magnet:?xt=urn:btih:6278868C93661CD3E37000EA888C9C3E52BDF2FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ Defense Zone 2 HD  МОДх4  1.5.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:BDC8D77F1A83074D120B53BFC100E3B8AFC8B1DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

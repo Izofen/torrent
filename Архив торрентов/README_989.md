@@ -20,6 +20,8 @@ Transmission, в отличие от многих других BitTorrent кли
 magnet:?xt=urn:btih:D1D5B62358254055FDB54FFCD9764A21C60699B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ PortableApps.com Platform - платформа (это пустая оболоч
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ MKVToolnix - функциональный набор инструментов д
 ```bash
 magnet:?xt=urn:btih:5196359980F14FBEB97357656F8B33DE308F5ED6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ PESEdit.com 2013 Patch - это очень качественный патч, к
 magnet:?xt=urn:btih:9099324EFEDFCF28473B3A807FFCA3005FC33C68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Text Edit Plus — мощный, но простой текстовый реда
 ```bash
 magnet:?xt=urn:btih:C418B25002095998072A8F5DA05977907D80D771
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:C418B25002095998072A8F5DA05977907D80D771
 magnet:?xt=urn:btih:79F18487D9F38CE22AA72AE9E130423454E65D3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Kingsoft Office - офисный пакет, созданный китайски
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Kingsoft Office - офисный пакет, созданный китайски
 magnet:?xt=urn:btih:BF9E84E504DC0EB8EA00791058040D1913D89F8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:BF9E84E504DC0EB8EA00791058040D1913D89F8B
 magnet:?xt=urn:btih:8B705EE5F4AA47988F7F7DAD1DAEFBBFBBED1F91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Reface v3.56 Mod by Mixroot [Multi]
 ```bash
 magnet:?xt=urn:btih:763F4E85352D642F5943FB508F0DFE68F774AAF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:763F4E85352D642F5943FB508F0DFE68F774AAF2
 ```bash
 magnet:?xt=urn:btih:004C35AD4677B8D91D3609B2429E947709BEC244
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ B4 Du Bist Nicht Die Erste Liebe [03:29](   Читать дальше...   )Жа
 magnet:?xt=urn:btih:C57F16C9A888B6640CDEEED6125F60F46FABC853
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:C57F16C9A888B6640CDEEED6125F60F46FABC853
 magnet:?xt=urn:btih:34430D3048672E7495DCAB004BDF2B3464274D4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ Ungoogled Chromium - версия веб-браузера Chromium без инт
 ```bash
 magnet:?xt=urn:btih:897935C9A0EC5571ACF08FBD88279162ACF728C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ LibreWolf как раз решает (   Читать дальше...   )Язы
 magnet:?xt=urn:btih:E86272574A7137B5576A23BE328332709FBE3FA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ PNotes 9.2.0 [Rus/Eng] Portable by PortableApps
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +454,8 @@ Calculate Linux 13.0 [x86-64] (4xDVD + 3xCD)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ SRWare Iron 118.0.6000.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:39D13A9040D3675C2840DA305E1DE446E078C91D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ PrivaZer - полезная утилита, которая поможет вам
 magnet:?xt=urn:btih:68AB283BBA62DF1DC7E7A408DBFDBF1B5982AD7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ CoolNovo - бесплатный браузер на основе проекта 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ foobar2000 - аудиоплеер, основные черты которого 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +593,8 @@ Dismantled - The War Inside Me (2011) [FLAC|lossless] <EBM / Industrial>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +620,8 @@ Dismantled - The War Inside Me (2011) [FLAC|lossless] <EBM / Industrial>
 magnet:?xt=urn:btih:2FF56229C027FEA6EAA29B4FF5CD2C85D356BFCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ Media Player Classic HomeCinema - удобный во всех планах му
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +672,8 @@ Listen Audiobook Player v5.2.3 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:F10D9B9DDD0DCBD07384CBD9202A13AADC44426D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ magnet:?xt=urn:btih:F10D9B9DDD0DCBD07384CBD9202A13AADC44426D
 ```bash
 magnet:?xt=urn:btih:F6B103CEF1B8E80AF85F6A6296B18EFCCE45E8B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

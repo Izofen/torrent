@@ -22,6 +22,8 @@ Orphaned Land - A Heaven You May Create (2021) Live @ Heichal HaTarbut, Tel Aviv
 magnet:?xt=urn:btih:F6D927F3F1D708DACA5075AA4BE60D1254745861
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Sandboxie - yтилита для контроля за работой разли
 ```bash
 magnet:?xt=urn:btih:1917434D0AEAC5972C0BDB28657DC24F908719AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -79,6 +83,8 @@ VA - Клубный Super Автохит 5 50/50 - (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:D92892936285DE0D398EDF8659A8461B97C4E784
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -106,6 +112,8 @@ Disc One:
 magnet:?xt=urn:btih:354A75BAF7DA892CE8B6E92EAE9AF7E3C384499F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -131,6 +139,8 @@ magnet:?xt=urn:btih:354A75BAF7DA892CE8B6E92EAE9AF7E3C384499F
 ```bash
 magnet:?xt=urn:btih:4FC32D5DA61CD34AE19D596E9E9A5166BAE4FBB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -158,6 +168,8 @@ A4 Where Do You Go?(   Читать дальше...   )Жанр: Pop RockПро�
 ```bash
 magnet:?xt=urn:btih:2EE706B5823E98F878BF8B6C1534663476060308
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +204,8 @@ Michael Bolton - This Is The Time (1996) [FLAC|Lossless]<Pop Rock, Christmas>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +229,8 @@ Michael Bolton - This Is The Time (1996) [FLAC|Lossless]<Pop Rock, Christmas>
 ```bash
 magnet:?xt=urn:btih:DF8BA006534A2487E711452964EBAD5BBE3BCA77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +259,8 @@ Kings Crown - Closer To The Truth (2023) [FLAC|Lossless|image + .cue] <Melodic H
 magnet:?xt=urn:btih:64C9EDF5AAA82638661DBD910492ED8079B1B26E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +287,8 @@ Nitrate - Feel The Heat (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Ha
 ```bash
 magnet:?xt=urn:btih:203380942A10A5ED9C1C97D3BF5B1FE73E6829E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +317,8 @@ Xtrueder - Забытая Станция (2023) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:8296B1D4D046C02D7F2EF53365418E8A5ADCE63A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +342,8 @@ magnet:?xt=urn:btih:8296B1D4D046C02D7F2EF53365418E8A5ADCE63A
 ```bash
 magnet:?xt=urn:btih:B3D33490CB9A427AAFA6D9271B5643903F7994F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +369,8 @@ magnet:?xt=urn:btih:B3D33490CB9A427AAFA6D9271B5643903F7994F0
 magnet:?xt=urn:btih:D8288387F71CA68A5DDE4F78C307A8C66FDD8236
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +394,8 @@ magnet:?xt=urn:btih:D8288387F71CA68A5DDE4F78C307A8C66FDD8236
 ```bash
 magnet:?xt=urn:btih:B60D24ADB7EBFCD472E562BF34C5AE33AE87AED5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +421,8 @@ New year wallpapers 2013 (27.12.12) [Wallpapers]
 magnet:?xt=urn:btih:DA1AE9D3030B4C4CB37EA5A22DE2A9EA228E6634
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +447,8 @@ magnet:?xt=urn:btih:DA1AE9D3030B4C4CB37EA5A22DE2A9EA228E6634
 ```bash
 magnet:?xt=urn:btih:F41A1A250F828342C3E7AA4A8908C502DD938ADC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +477,8 @@ EmEditor Professional способен открывать очень больш�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +504,8 @@ EmEditor Professional способен открывать очень больш�
 ```bash
 magnet:?xt=urn:btih:EBEAB0E39179DA2F935C716D753ABE830284B87B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +534,8 @@ Rage Titanium - Настало Время Героев (2022) [FLAC|Lossless|tra
 magnet:?xt=urn:btih:F00251A0BB7125508F950C7E83016D13A32D9BAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +562,8 @@ Nuclear — чилийская трэш-метал-группа, основан�
 ```bash
 magnet:?xt=urn:btih:170A4189CFD363D30263F9CA1F3DB650A5F484D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +592,8 @@ Slice of Sorrow - Covered with Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Occul
 magnet:?xt=urn:btih:349EEC99EC82660175AA87D8D34733684CC4AAB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +617,8 @@ magnet:?xt=urn:btih:349EEC99EC82660175AA87D8D34733684CC4AAB0
 ```bash
 magnet:?xt=urn:btih:73EFDABEA6D0448C601509BA72A95BED5516A3B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +645,8 @@ magnet:?xt=urn:btih:73EFDABEA6D0448C601509BA72A95BED5516A3B8
 magnet:?xt=urn:btih:CBE9BFA5CCBDB7AE3B83CCAECD0A47F5A17337F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +671,8 @@ magnet:?xt=urn:btih:CBE9BFA5CCBDB7AE3B83CCAECD0A47F5A17337F5
 ```bash
 magnet:?xt=urn:btih:A47525B6CF47FB2AFD59D4ED72F366487141EAB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -651,6 +699,8 @@ magnet:?xt=urn:btih:A47525B6CF47FB2AFD59D4ED72F366487141EAB7
 magnet:?xt=urn:btih:CDBDA619176EB0DABF18A36353D1916DB51BF1DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -674,6 +724,8 @@ magnet:?xt=urn:btih:CDBDA619176EB0DABF18A36353D1916DB51BF1DB
 ```bash
 magnet:?xt=urn:btih:81DAC0A8CE0608B18FAFE9B814A8F5B04E044732
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

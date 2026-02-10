@@ -1,3 +1,32 @@
+###  Публикация: 989925   (915635) от 23.02.2016
+
+VA - Acoustic Cafe (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. George Ezra - Budapest
+02. Jess Glynne - My Love - Acoustic
+03. Jamie Lawson - Wasn't Expecting That
+04. Rachel Platten - Fight Song(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 02:26:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75847941D306B899BE0392D7F2632D35732F9677
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989617   (915644) от 23.02.2016
 
 VA - Maximum зимний mix - 2016 (2016) [MP3|256 кб/с] <Pop, Dance>
@@ -21,6 +50,8 @@ VA - Maximum зимний mix - 2016 (2016) [MP3|256 кб/с] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:8456B85C724630068C671D4CE9EB33D47CB4E70B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Лучшая 100-ка блатных хитов (2016) [MP3|256 кб/с] <�
 magnet:?xt=urn:btih:2605DB2183DAEF9B4764940CE5E19A358C9D0129
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Зажигательный улетный музон - 2016 (2016) [MP3|256
 ```bash
 magnet:?xt=urn:btih:73366A06CF2EA37B2F42098114D53AB1CF805C70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - TOP Non-Stop 2010-2015 - Lounge & Chillout [vol.4] (2010-2015) [MP3|320 к�
 magnet:?xt=urn:btih:B7E9414D36622AECFFA638950B912439400BD7EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Electro Sensation (2016) [MP3|320 кб/с] <Dance, Club House, Electro Hous
 ```bash
 magnet:?xt=urn:btih:C60644F8252A0165CB4226E4CB71DE396617300E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - House Nation Volume 5 (2016) [MP3|320 кб/с] <House, EDM, Club, Electro>
 magnet:?xt=urn:btih:F0F5FFB379357DFE160EB4807D1F7DEFBCBEEDD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Sexy House, Vol. 1 (2016) [MP3|320 кб/с] <House, Tech House, Deep House,
 ```bash
 magnet:?xt=urn:btih:64ABFD221A5B935A19C02BBE7043E16E3D8A0601
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Хиты в тачку (2017) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:5F305D073B097C0F326F827F1B0770CB0DED4E91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Душевные хиты на любой вкус (2017) [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:749DE5F15652A65156825CCB8680D29B85339AAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - Союз хитов зимний Выпуск № 9 (2017) [MP3|256 Kbps] <
 magnet:?xt=urn:btih:D5B43958BBA86F088181CF1C8F442623B82B338A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - Intergalactik Highway: Space Mix (2017) [MP3|201-320 Kbps] <SpaceSynth, Syn
 ```bash
 magnet:?xt=urn:btih:C81362E9F71817A62BBFB5770B5560E0CBAE8D10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - Я слушаю шансон. Зимний выпуск. Версия №3 
 magnet:?xt=urn:btih:90FA503FAAD92423A65A443D1E7B877E160EE54F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ VA - Зимний русский музобоз. Сборник № 4 (2017) [MP
 ```bash
 magnet:?xt=urn:btih:C98B5DDE8F7530C5CB2058E6F85FFF808C3E5D17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ VA - Зимняя сотка хитовая. Версия № 3 (2017) [MP3|256 
 magnet:?xt=urn:btih:8FDF585730C2689BB944178404FAAEF7EC6B3F3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +456,8 @@ VA - Снежный презент Выпуск № 2 (2017) [MP3|256 Kbps] <Pop
 ```bash
 magnet:?xt=urn:btih:E536F50F2E7FAF03FE215B27C19852DEB0F435D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +486,8 @@ VA - Громкие новинки Марта (2020) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:BEDD45C1494CB68D031CA79D2C1226D6B22520DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +514,8 @@ VA - B машину ремиксы Vol. 5 (2020) [MP3|320 Kbps] <House, Pop, Dan
 ```bash
 magnet:?xt=urn:btih:5D72764CA3E4E6B40E8A34F084E06307B0A0E9F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +544,8 @@ VA - B машину ремиксы Vol. 4 (2020) [MP3|320 Kbps] <House, Pop, Dan
 magnet:?xt=urn:btih:414D15A7054A3671D461749E59F94B9EE6ED6620
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +572,8 @@ VA - Foreign and Russian Remix 1 (January) (2017) [MP3|320 Kbps] <Club, Dance, H
 ```bash
 magnet:?xt=urn:btih:B02A211B7D6091E60BBC474BAD44A0A17320FE7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +602,8 @@ VA - Танцевальная зима. Снежная 100-ка. Версия �
 magnet:?xt=urn:btih:4ECDEAD8C172F71862EC83FBB703D3DDC1792E22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +630,8 @@ VA - Весенняя свежая 30-тка (2020) [MP3|320 Kbps] <Pop, Dance, 
 ```bash
 magnet:?xt=urn:btih:27F07BFCFD5E1955E03121955EB3AD8DFE326BCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +660,8 @@ VA - Radio DFM: Top D-Chart [14.03] (2020) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:2F35AA85FB97ED5E083391B91FDC51AFE952D647
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +688,8 @@ VA - 100 Самых Любимых Песен (2017) [MP3|320 Kbps] <Pop , R&B ,
 ```bash
 magnet:?xt=urn:btih:AF010A3B4257B2D546359919986FCD5DABA115D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +718,8 @@ VA - Electro Life Best 100 (by ZiP)(2015) [MP3|320 kbps]<Electro House, Dubstep,
 magnet:?xt=urn:btih:931FF4D86E6EBAD899C1E705D34FD918C2BFCC83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,32 +747,7 @@ VA - Придуманный мир. Новинки русского шансон
 magnet:?xt=urn:btih:74AA7A79CCC27682A1EA2ACB6E669F68519530AE
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989062   (917039) от 22.02.2016
-
-VA- Русский зимний муз-отрыв №1 - 2016 (2016) [MP3|192-320кб/с] <Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917039.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Danya - Никому и Никогда
-002. Елена Темникова - Ревность
-003. Aркадиас - Cоленый дождь
-004. Арвид – Ты позови меня(   Читать дальше...   )Жанр: PopПродолжительность: 05:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F83C31D85DEE836F7565829E94F4ED18CC16093F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

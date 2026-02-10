@@ -1,3 +1,29 @@
+###  Публикация: 1551639   (589272) от 17.05.2022
+
+Поколение аферистов / Generation Hustle (2021) WEB-DL [H.264/1080p] (сезон 1, серии 1-10 из 10)
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный сериал о жажде наживы. «Поколение аферистов» показывает механику беззастенчивых махинаций, которые проворачивают молодые и амбициозные люди в погоне за славой и богатством. В эпоху социальных сетей дозволено многое, а значит в борьбе за роскошный статус все средства хороши. Смешной, дерзкий и немного шокирующий сериал расскажет, как далеко виртуозы (   Читать дальше...   )Производство: США, CNN, Jigsaw Productions, Panoramic PicturesЖанр: документальный, криминалРежиссер: Йон Мотскин, Джереми Кроуэлл, Джордж ПламондонПеревод: многоголосый профессиональный (Amedia)Субтитры: английскиеПродолжительность: серии x ~00:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5541DF4ABC1D11078F12633E27A498568A3C4FAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1551660   (589307) от 17.05.2022
 
 Минимализм. Документальный фильм о важных вещах / Minimalism: A Documentary About the Important Things (2015) WEB-DLRip [DVO]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:0969D5A7939B02F58A3D41A6ECD6B2101D47AFA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:0969D5A7939B02F58A3D41A6ECD6B2101D47AFA3
 ```bash
 magnet:?xt=urn:btih:56E1D6325593643E15A15F1BF260FA39DC493C4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:56E1D6325593643E15A15F1BF260FA39DC493C4B
 magnet:?xt=urn:btih:BC4E1DBF9C41BB69B9A1CDE874525C4D8D9DDB1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:BC4E1DBF9C41BB69B9A1CDE874525C4D8D9DDB1B
 magnet:?xt=urn:btih:ADB6C7789720E61BA932FC1D39EFC54C7C17A02B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:ADB6C7789720E61BA932FC1D39EFC54C7C17A02B
 ```bash
 magnet:?xt=urn:btih:5FD85F13CCA3ADFF260BB9BE7330AABE05F5A3F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:5FD85F13CCA3ADFF260BB9BE7330AABE05F5A3F2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:5FD85F13CCA3ADFF260BB9BE7330AABE05F5A3F2
 ```bash
 magnet:?xt=urn:btih:9C44CA1C45045A9F8753130927B87881A343A1C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:9C44CA1C45045A9F8753130927B87881A343A1C3
 magnet:?xt=urn:btih:9C7E72FA9F8CE925459B77A4EA0C24AEC8070985
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:9C7E72FA9F8CE925459B77A4EA0C24AEC8070985
 ```bash
 magnet:?xt=urn:btih:D055A6EDDC053FDA708CFC42D6DECD9DDB3947FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:D055A6EDDC053FDA708CFC42D6DECD9DDB3947FD
 magnet:?xt=urn:btih:F9F73791773A7C0B98E33C13ACCA054DB578494E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:F9F73791773A7C0B98E33C13ACCA054DB578494E
 ```bash
 magnet:?xt=urn:btih:1C47F1C32FBC9DCC0C087CD7214C9E541A791606
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:1C47F1C32FBC9DCC0C087CD7214C9E541A791606
 magnet:?xt=urn:btih:5101A8D562C2221F441F561687D30665327DEFF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:5101A8D562C2221F441F561687D30665327DEFF0
 ```bash
 magnet:?xt=urn:btih:711399A36D947894A32A5F7E948B5A4084417D6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:711399A36D947894A32A5F7E948B5A4084417D6C
 magnet:?xt=urn:btih:60304930F966115DEF58C87AE342F10A26CFE31B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:60304930F966115DEF58C87AE342F10A26CFE31B
 ```bash
 magnet:?xt=urn:btih:325084FE39D40943C124685057903491FC93EB91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:325084FE39D40943C124685057903491FC93EB91
 magnet:?xt=urn:btih:D5F7443F4AE0990E047E6DC524BBED3368FAB107
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:D5F7443F4AE0990E047E6DC524BBED3368FAB107
 magnet:?xt=urn:btih:D6828D61811931FEAF950A4FBBE3DE6BB9A23653
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:D6828D61811931FEAF950A4FBBE3DE6BB9A23653
 ```bash
 magnet:?xt=urn:btih:CE95CA63360CF88F120ADEAD24FEF5F0E30151BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:CE95CA63360CF88F120ADEAD24FEF5F0E30151BC
 magnet:?xt=urn:btih:0F47F7D23B956415AB7F693CDF511A80ABBEC700
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:0F47F7D23B956415AB7F693CDF511A80ABBEC700
 ```bash
 magnet:?xt=urn:btih:CA442B0054ABBAC548897A70040CFBBDEC4C7AEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +577,8 @@ magnet:?xt=urn:btih:CA442B0054ABBAC548897A70040CFBBDEC4C7AEE
 magnet:?xt=urn:btih:110F95B7E9703AB2EB6529BE2BE21DC13E18F183
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:110F95B7E9703AB2EB6529BE2BE21DC13E18F183
 ```bash
 magnet:?xt=urn:btih:E74056C31D1DB5C55F692073CE5787466CE4CD90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:E74056C31D1DB5C55F692073CE5787466CE4CD90
 magnet:?xt=urn:btih:60116F2B2EE15886254F1F098657EA54AECF223F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +654,8 @@ magnet:?xt=urn:btih:60116F2B2EE15886254F1F098657EA54AECF223F
 ```bash
 magnet:?xt=urn:btih:5B1CEC911382D625DE7760E7B06A87B4B7DFD77F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,29 +681,7 @@ magnet:?xt=urn:btih:5B1CEC911382D625DE7760E7B06A87B4B7DFD77F
 magnet:?xt=urn:btih:0829E8CB4A5ECA3A8FA35DC305F0F1531B09E1FA
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551209   (590715) от 14.05.2022
-
-По следу монстра (14.05.2022) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590715.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Двойная жизнь». В Екатеринбурге много лет орудовал маньяк. Почти 15 лет преступник приносил людям боль и страдания. Почему полиция не могла его остановить? И как мать жертвы шла по следу монстра?Жанр: Документальный, криминал, расследованиеСубтитры: РусскиеПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49B490563E861A8904F787554B54571C48FA8A23
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

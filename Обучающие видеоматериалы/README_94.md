@@ -21,6 +21,8 @@ Videosmile, Вероника Полякова | Супер Illustrator (2018) WE
 magnet:?xt=urn:btih:3578D956E1B559CE5750BAD33D45CCB17E6B41AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ WhitePhotoSchool, Сергей Гунин | Гуру света - Практик
 ```bash
 magnet:?xt=urn:btih:E56EE1240AC29A57AC810989FE7A4A1A1F53C67E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ Geometrium, Павел Герасимов, Алексей Иванов | Фот�
 magnet:?xt=urn:btih:6F4A88F621ECCE2C7E52300CFCAB71665637C4B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Contrse, Дарья Калугина | Photoshop: финальный штрих 
 magnet:?xt=urn:btih:A84558A6557D261C265E78224551972C73AC5B78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ Hudozhnik Online, Роман Круглов | Марафон по графике
 ```bash
 magnet:?xt=urn:btih:D68B4B1C2583C02C7A3FB82CA7C3065C93F232D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -152,6 +162,8 @@ PROCREATE, мог подойти далеко не каждый художник
 magnet:?xt=urn:btih:52E5380B7016DE1AD730125D85939910C3B321AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ magnet:?xt=urn:btih:52E5380B7016DE1AD730125D85939910C3B321AD
 ```bash
 magnet:?xt=urn:btih:61B391B7685DA2124A2082DF8D52C547410402F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -206,6 +220,8 @@ magnet:?xt=urn:btih:61B391B7685DA2124A2082DF8D52C547410402F5
 magnet:?xt=urn:btih:ABC2EFD3C2601745F086B598307572D7D71316E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -232,6 +248,8 @@ magnet:?xt=urn:btih:ABC2EFD3C2601745F086B598307572D7D71316E7
 ```bash
 magnet:?xt=urn:btih:5BF4C9C9BA350839ACAE1A8D8444720E3744FD38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +278,8 @@ magnet:?xt=urn:btih:5BF4C9C9BA350839ACAE1A8D8444720E3744FD38
 magnet:?xt=urn:btih:67A22C239E2E5B4339FAEC086A7B264657CD435A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +307,8 @@ magnet:?xt=urn:btih:67A22C239E2E5B4339FAEC086A7B264657CD435A
 magnet:?xt=urn:btih:34DFE31F93C71C265AC5705E54AC0C7C255FDEFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +333,8 @@ magnet:?xt=urn:btih:34DFE31F93C71C265AC5705E54AC0C7C255FDEFB
 ```bash
 magnet:?xt=urn:btih:4C688484A68EF27B87C8512D270D0A89E52A6B8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +363,8 @@ magnet:?xt=urn:btih:4C688484A68EF27B87C8512D270D0A89E52A6B8E
 magnet:?xt=urn:btih:10FDA70F7D3BC59C5C5AB23CB8EF202CBEC120F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +388,8 @@ magnet:?xt=urn:btih:10FDA70F7D3BC59C5C5AB23CB8EF202CBEC120F9
 ```bash
 magnet:?xt=urn:btih:F5BF3CDFA8B6AEFD3F91EA8B0DC3D396316F4EF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +418,8 @@ magnet:?xt=urn:btih:F5BF3CDFA8B6AEFD3F91EA8B0DC3D396316F4EF3
 magnet:?xt=urn:btih:68F5984726A62FF598877BD7DDB24CBFEDF6EC1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +446,8 @@ english course спецпроект сети школ «Англомания»
 ```bash
 magnet:?xt=urn:btih:CEF87CA484ACF4DCF31BFD5927BF5C73BDEA6CED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +476,8 @@ Runn.consulting, Николай Русанов | Умный дом как биз
 magnet:?xt=urn:btih:9CE0A49D05E48E50CD5DE03A830A489798FD270B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +503,8 @@ magnet:?xt=urn:btih:9CE0A49D05E48E50CD5DE03A830A489798FD270B
 ```bash
 magnet:?xt=urn:btih:4D6F2F45C019963EEE1719157F7FAB7F2249A2CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +533,8 @@ magnet:?xt=urn:btih:4D6F2F45C019963EEE1719157F7FAB7F2249A2CC
 magnet:?xt=urn:btih:BA8C7CFF9B244739247218F8B678A22678EA85B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +561,8 @@ magnet:?xt=urn:btih:BA8C7CFF9B244739247218F8B678A22678EA85B1
 magnet:?xt=urn:btih:90B42AB6BC33C971C1B9CF971239A8A61C909AD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +588,8 @@ magnet:?xt=urn:btih:90B42AB6BC33C971C1B9CF971239A8A61C909AD6
 ```bash
 magnet:?xt=urn:btih:D84D1380C7C68064B656EBF4CE63886C9F291C07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +618,8 @@ magnet:?xt=urn:btih:D84D1380C7C68064B656EBF4CE63886C9F291C07
 magnet:?xt=urn:btih:1B8C048A73369AD2631A67EB127DD5617C93E0BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +647,8 @@ magnet:?xt=urn:btih:1B8C048A73369AD2631A67EB127DD5617C93E0BE
 magnet:?xt=urn:btih:4B775A0F85830993D86A5344F4CD75C78319A012
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +674,8 @@ Foxford (Фоксфорд), Дарья Романова | Финансовая �
 ```bash
 magnet:?xt=urn:btih:08B6E1F082729A37DC8708EE1240BFA26CD797F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -655,6 +703,8 @@ This course uses a mix of theory and practice. We will create dozens of little U
 magnet:?xt=urn:btih:43DDD296CD1D47747A3CFA37D6566B1527986DD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -681,6 +731,8 @@ magnet:?xt=urn:btih:43DDD296CD1D47747A3CFA37D6566B1527986DD2
 ```bash
 magnet:?xt=urn:btih:F37ABA3E4D08830A99311A1F6A3E739479CDA9F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

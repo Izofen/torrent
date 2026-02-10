@@ -22,6 +22,8 @@ Ancient Flame - Blood stained the barren land (2022) [MP3|320 Kbps] <Heavy Metal
 magnet:?xt=urn:btih:63E6AFE2D1693AEFC1317209E5699EAE039FB4B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:63E6AFE2D1693AEFC1317209E5699EAE039FB4B1
 ```bash
 magnet:?xt=urn:btih:54CB37A1055636F964A2B0F48F2D81953DB99A9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:54CB37A1055636F964A2B0F48F2D81953DB99A9A
 ```bash
 magnet:?xt=urn:btih:61390BBAA0974ECAE148C075D5175E65BC3EFF9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ VA - Uplifting Only - Fan Favorites 2014 - 2015 (Mixed by Ori Uplift) (2015) Abo
 magnet:?xt=urn:btih:2E04EB4ECABB50824EC87A139EEBBD83FA77039C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:2E04EB4ECABB50824EC87A139EEBBD83FA77039C
 ```bash
 magnet:?xt=urn:btih:D53FEC1C057006204491A8994CC9DB05740DF9F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ Gateway - Galgendood (2023) [MP3|320 Kbps] <Death, Doom Metal>
 magnet:?xt=urn:btih:A9E9546E899379BC89FBD6784ABA4C05865DC446
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:A9E9546E899379BC89FBD6784ABA4C05865DC446
 ```bash
 magnet:?xt=urn:btih:D409A04A762B28A08F60BB4E84D916F8CEAD6FC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ Knee - Тафофилия (2022) [MP3|320 Kbps] <Nu-Metalcore, Doom Metal>
 magnet:?xt=urn:btih:1D06C40F33EF2A2994D63AAA273C4437A5928ABA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:1D06C40F33EF2A2994D63AAA273C4437A5928ABA
 magnet:?xt=urn:btih:A4E235AFE9B65B843497D52538D3562544C489C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:A4E235AFE9B65B843497D52538D3562544C489C9
 ```bash
 magnet:?xt=urn:btih:A9A0BE61DB193C43BF7DE47674D775A331F31D4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +297,8 @@ Pink Floyd - The Later Years: 1987-2019 (2019) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:EADAD6969F17DCB719019397DEF12E7FAF1351CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ Occulsed - Parturition of Adulteration (2022) Compilation [FLAC|Lossless|image +
 magnet:?xt=urn:btih:29DE5A84B093EE496604A4CA610359F1AAA30422
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:29DE5A84B093EE496604A4CA610359F1AAA30422
 ```bash
 magnet:?xt=urn:btih:3C37DDECFDAD7552C166F77D9D1A239B331A2095
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +381,8 @@ Trick Or Treat - Re-Animated (2018) Japanese Edition [FLAC|Lossless|image + .cue
 magnet:?xt=urn:btih:122CCD2A9A2EE10E189A8D10A22CFC8C657C1DDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ magnet:?xt=urn:btih:122CCD2A9A2EE10E189A8D10A22CFC8C657C1DDF
 ```bash
 magnet:?xt=urn:btih:A63D27C3E52042A02C5114C2E820B4D8CB3BBBD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ Kubuntu 15.04 Vivid Vervet Alpha I [i386, amd64] 2xDVD
 magnet:?xt=urn:btih:59657C58F5D0736259D98CA737574FACBE475F62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ Ctrl + Paint, Matt Kohr | Weapon Design (2016) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:98EC1E4BEFDC2C3651BC64820C660E4955CB6694
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +488,8 @@ Third Realm + Sinister Device (Solo Project) - Discography 21 Release (2005-2019
 magnet:?xt=urn:btih:F5D856DFFB038F45BC5621697FAAB07EB72439EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +516,8 @@ Inmundus - Primordia (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, He
 ```bash
 magnet:?xt=urn:btih:D6CC50A9969E6F0854B481154A9455A71C69F571
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +546,8 @@ Dirty Grave - 5 Albums (2014-2022) [MP3|320 Kbps] <Doom Metal>
 magnet:?xt=urn:btih:B4B824F2049C8C7CAA682571658F81DD7D4C8D4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +571,8 @@ magnet:?xt=urn:btih:B4B824F2049C8C7CAA682571658F81DD7D4C8D4A
 ```bash
 magnet:?xt=urn:btih:953EC05E32876D1249C7CE140B5529700727FCED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +598,8 @@ magnet:?xt=urn:btih:953EC05E32876D1249C7CE140B5529700727FCED
 magnet:?xt=urn:btih:139149291A2D6D881C5A78F03FE3EA0E97C73311
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +623,8 @@ VueScan - программа для работы со сканерами HP, Min
 ```bash
 magnet:?xt=urn:btih:FCF187186D6586E715BF7298CD76697E521A5D95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +650,8 @@ magnet:?xt=urn:btih:FCF187186D6586E715BF7298CD76697E521A5D95
 magnet:?xt=urn:btih:58300933E6661069AC8ECEBEA883AE8EFE5B2E6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ TweakPower – представляет собой единый графичес
 ```bash
 magnet:?xt=urn:btih:38D703499B21D8B3CBA3BFB2E2018850A9FAB5B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -654,6 +704,8 @@ Ensanguinate - Eldritch Anatomy (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 ```bash
 magnet:?xt=urn:btih:93EACE087CB158E10044BC2135D488FB241FB20D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

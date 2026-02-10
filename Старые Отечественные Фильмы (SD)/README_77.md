@@ -1,3 +1,29 @@
+###  Публикация: 622780   (956619) от 25.02.2013
+
+В зоне особого внимания (1977) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_956619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время военных учений командир гвардейского полка направляет в тыл «врага» три диверсионные группы для обнаружения и захвата замаскированного командного пункта. Срок исполнения — двое суток. Разведчики выполняют задание в условиях, максимально приближенных к боевым…Производство: СССР, МосфильмЖанр: Боевик, драма, приключения, военныйРежиссер: Андрей МалюковАктеры: Борис Галкин, Михай Волонтир, Сергей Волкош, Игорь Иванов, Анатолий Кузнецов, Александр Пятков, Елена Цыплакова, Юрий Чернов, Александр Гай, Николай КрюковПродолжительность: 01:32:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B69D74ACD54FA3B5BF8240DAE1FB931CBB103512
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 622763   (956622) от 25.02.2013
 
 Ответный ход (1981) DVDRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:6842AA3E5862A856324E3A1B95AFDC651403F5AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:6842AA3E5862A856324E3A1B95AFDC651403F5AF
 magnet:?xt=urn:btih:CB7EA37EE6982BCBB76941AFCAA9EBCFCB156573
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:CB7EA37EE6982BCBB76941AFCAA9EBCFCB156573
 ```bash
 magnet:?xt=urn:btih:A94727E2F91ED6E2D58DB3A1EF854E54BD87DFB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:A94727E2F91ED6E2D58DB3A1EF854E54BD87DFB2
 magnet:?xt=urn:btih:F6C64F6B754F28120124B0491ECC959D4D758368
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:F6C64F6B754F28120124B0491ECC959D4D758368
 ```bash
 magnet:?xt=urn:btih:C99C0D409A2B65A95F50B70535025C286676925B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:C99C0D409A2B65A95F50B70535025C286676925B
 magnet:?xt=urn:btih:3F556D39003F9CFE570D58F9726CB42BE41FFE2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:3F556D39003F9CFE570D58F9726CB42BE41FFE2A
 ```bash
 magnet:?xt=urn:btih:F5ED0718F414653DA4101FBD0E50E2D5EB8E7564
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:F5ED0718F414653DA4101FBD0E50E2D5EB8E7564
 magnet:?xt=urn:btih:41C1C465519C55332FCD67DC631960FE8A04C289
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:41C1C465519C55332FCD67DC631960FE8A04C289
 ```bash
 magnet:?xt=urn:btih:EC121ABA44E9AABED8C14E413BD467FCF01ADE15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:EC121ABA44E9AABED8C14E413BD467FCF01ADE15
 magnet:?xt=urn:btih:E861970BB7989ED256C8340AB9E554D633916EAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:E861970BB7989ED256C8340AB9E554D633916EAC
 ```bash
 magnet:?xt=urn:btih:99DA0F7240632F665CE315CDA3B8C299A916C192
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:99DA0F7240632F665CE315CDA3B8C299A916C192
 magnet:?xt=urn:btih:A5F407C5D53C2DCF59548F911CF0CACAA6F00518
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +357,8 @@ magnet:?xt=urn:btih:A5F407C5D53C2DCF59548F911CF0CACAA6F00518
 ```bash
 magnet:?xt=urn:btih:5BD386FA2E5BCFBFDB56B203C45253E327B7DE05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:5BD386FA2E5BCFBFDB56B203C45253E327B7DE05
 magnet:?xt=urn:btih:0949236034B502F865DD2195BBC169B39B41ACF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +409,8 @@ magnet:?xt=urn:btih:0949236034B502F865DD2195BBC169B39B41ACF8
 ```bash
 magnet:?xt=urn:btih:E26ABC4702378C3A9F1CDD5EF255FF4A7F3D7E53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:E26ABC4702378C3A9F1CDD5EF255FF4A7F3D7E53
 magnet:?xt=urn:btih:21A919A9C69DAE7F2E7A750404887343189A39EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +461,8 @@ magnet:?xt=urn:btih:21A919A9C69DAE7F2E7A750404887343189A39EB
 ```bash
 magnet:?xt=urn:btih:774B5C5EE692E04DEEBC6145272C40A36BDABEAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:774B5C5EE692E04DEEBC6145272C40A36BDABEAD
 magnet:?xt=urn:btih:EBA4EAFB85A0A970B3214D1FDC206DF8B07BFD3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:EBA4EAFB85A0A970B3214D1FDC206DF8B07BFD3A
 ```bash
 magnet:?xt=urn:btih:5A820E6C9E9B1FE444343D73FA342A81DACFDBDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:5A820E6C9E9B1FE444343D73FA342A81DACFDBDA
 magnet:?xt=urn:btih:2E6D95059A83A62C49C2D7796663E4217C9ABED9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:2E6D95059A83A62C49C2D7796663E4217C9ABED9
 ```bash
 magnet:?xt=urn:btih:50ABC96808838DE320507BCEAD45B03F599F0096
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:50ABC96808838DE320507BCEAD45B03F599F0096
 magnet:?xt=urn:btih:24DDCB6FE7DDC8A17BD92EADD692E12C273789BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +618,8 @@ magnet:?xt=urn:btih:24DDCB6FE7DDC8A17BD92EADD692E12C273789BD
 ```bash
 magnet:?xt=urn:btih:D789CAD0186F7C537CA2E2C6C642CD98C0581782
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +645,8 @@ magnet:?xt=urn:btih:D789CAD0186F7C537CA2E2C6C642CD98C0581782
 magnet:?xt=urn:btih:5E31CF85FF81468F6B370A9446DFA75E2A6237F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,29 +671,7 @@ magnet:?xt=urn:btih:5E31CF85FF81468F6B370A9446DFA75E2A6237F6
 magnet:?xt=urn:btih:B43D89A732936984503EDDF7FE87592555A20476
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977658   (965680) от 21.01.2016
-
-Такая она, игра (1976) SATRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конфликт между тренером футбольной команды, и лучшими игроками — Бушуевым и Миленковым — привел к тому, что футболисты ушли из команды. Миленков вернулся в НИИ, а Бушуев уехал в провинциальный городок, стал тренером и, положив в основу тренировок научный подход к игре, в короткий срок добился больших успехов…Производство: СССР, киностудия им. ДовженкоЖанр: ДрамаРежиссер: Владимир Попков, Николай МалецкийАктеры: Степан Олексенко, Вячеслав Жолобов, Георгий Жженов, Николай Гринько, Александр Пашутин, Юрий Критенко, Борис Щербаков, Александр Мартынов, Александр Денисов, Антонина Лефтий, Регина Разума, Валентина Гришокина, Михаил Езепов, Борис Кудрявцев, Сергей Подгорный, Владимир Ермаков, Владимир Абазопуло, Роман Ткачук, Николай РушковскийПродолжительность: 01:32:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA23BA4C661C7728F81D0465136F761A647AE81E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

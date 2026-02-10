@@ -21,6 +21,8 @@ Udemy, Jonas Schmedtmann | Node.js, Express, MongoDB & More: The Complete Bootca
 magnet:?xt=urn:btih:ED252EC0455C3F88E4587A804BEC6ED9FD8B1491
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Udemy, Zachary Reece | A Complete Guide to the JAMstack and React E-Commerce (20
 magnet:?xt=urn:btih:609EE11914CF2BC69A299C88AEDA2AB558B77AA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ OTUS | Web-разработчик на Python (2019) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:7A316DAD4A4D0A5A93E8EE9FF95D5A70D52C2408
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ Udemy, Jason Cannon | Linux Shell Scripting: A Project-Based Approach to Learnin
 magnet:?xt=urn:btih:94E67BBA311807301963DEB911E56A3873BC220E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ Udemy, Kati Frantz | Advanced React For Enterprise: React for senior engineers (
 magnet:?xt=urn:btih:419F64AD784728A8A9D0A4AADA0AF4D8453F6EEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Udemy, Apiko Academy | Frontend React JS Web Development Course (2021) PCRec [UK
 ```bash
 magnet:?xt=urn:btih:3B5EA0B4137BD8919E09973B161CAC943BA39900
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ Udemy, Scott Barrett | JavaScript Algorithms and Data Structures Masterclass (20
 magnet:?xt=urn:btih:F62FD3178D9195A74665D6605A80DC5F1432E40D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ Swiftbook, Алексей Ефимов  и др. | Профессия iOS-раз
 ```bash
 magnet:?xt=urn:btih:4C10A0600531781A9597339D29BCCA2AB2699EAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ Udemy, Jonas Schmedtmann | Build Responsive Real-World Websites with HTML and CS
 magnet:?xt=urn:btih:05CCB3EF50232519DE53B3E678367A8C1D724735
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ Udemy, Laurence Svekis | Google Apps Script Complete Course New IDE 100+ Example
 magnet:?xt=urn:btih:9EA8670FD478E495358A188EB7CD9D40BE01887A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ Just launched with all modern best practices for working with TensorFlow and pas
 ```bash
 magnet:?xt=urn:btih:D7EA203E70A54D9C6DEACF0555B866D29429157E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ Rebrain, Fevlake, Дмитрий Гордеев и др. | Golang-разрабо
 magnet:?xt=urn:btih:3CD1959C355809D32E07DB3B41818F244A1DC0DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:3CD1959C355809D32E07DB3B41818F244A1DC0DA
 magnet:?xt=urn:btih:BD42987F74B04995C3E96F4C49D73DCCD2EA3D2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ Genius Courses, Александр Сокирка | Разработка Пла�
 ```bash
 magnet:?xt=urn:btih:375D6E6FBA1608AA18E5FF761DE0C37F00E7948A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ Profit, Степанцев Альберт |  PHP Parallel - новое расш�
 magnet:?xt=urn:btih:D6E0528DE3A1EE6380D0F48DFE6CA81641651FA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ React и Go - это что-то вроде союза, заключенного
 ```bash
 magnet:?xt=urn:btih:B380EF0485ED3E9DD9330A7F17366C3F06510A32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +459,8 @@ Udemy, Angular University | Angular Core Deep Dive (with FREE E-Book) (2021) PCR
 magnet:?xt=urn:btih:2A6062A67636B3E9E139A0ECCEB523AB4CDAF847
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ VMWare - программное обеспечение виртуализаци�
 ```bash
 magnet:?xt=urn:btih:CD489FF5E6BAC6C38CC5D5F7CEEE51480C8394EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +514,8 @@ Udemy, Alexander Hagmann | Complete 2-in-1 Python for Business and Finance Bootc
 magnet:?xt=urn:btih:934626AD49C7839A7104AC1F371E832C5D6DC9BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ Gatsby JS использует React JS и GraphQL для создания и п
 magnet:?xt=urn:btih:41F4C98712CF65503B391522DC55C76AD7BF80B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +567,8 @@ Udemy, Elshad Karimov | Java Data Structures and Algorithms Masterclass (2021) P
 ```bash
 magnet:?xt=urn:btih:C9CF98B57878BB8E418BB08F3CB06767DAFE9D8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +596,8 @@ Codestars by Rob Percival, Atil Samancioglu
 magnet:?xt=urn:btih:E1FB2E65973887499FF9CAEBF1AA42EB291E3DDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +621,8 @@ Udemy, Marek Gryszkiewicz | WebRTC 2021 Practical Course. Create Video Chat Appl
 ```bash
 magnet:?xt=urn:btih:73D98811F012A14C3C931530A00AF80AFB7BB7B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +651,8 @@ Udemy, Артем Баданов| Изучение Java с нуля (2021) PCRec
 magnet:?xt=urn:btih:D9F6D156B0D98B6745AD8F6CE6E64595BB78F754
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +677,8 @@ Udemy, Justin Mitchel | DjangoFlix - Build a Netflix-Like Service in Django & Py
 ```bash
 magnet:?xt=urn:btih:BE1E59BEEDC62554DE2810A2595281BC6CD4EE94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -655,6 +705,8 @@ software-testing.ru, О. Назина | Автоматизация тестов 
 ```bash
 magnet:?xt=urn:btih:56A9152A030EA2BE5B628C42CB5250639F78BE0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

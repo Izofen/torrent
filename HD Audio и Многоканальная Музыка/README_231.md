@@ -1,3 +1,30 @@
+###  Публикация: 1568303   (461945) от 08.08.2022
+
+Unisonic (Helloween, Gamma Ray, Iron Savior) - Studio Albums (2012 - 2014) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Unisonic — немецкая метал-супергруппа, образованная в 2009 году экс-вокалистом группы Helloween Михаэлем Киске вместе с Деннисом Уордом и Костой Зафирио из группы Pink Cream 69 и Мэнди Майером из группы Gotthard. В 2011 году к группе присоединяется сооснователь Helloween и лидер Gamma Ray, Кай Хансен.2012 - Unisonic
+2014 - Light of DawnЖанр: Melodic Heavy MetalПродолжительность: 02:01:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49434313FE80F9B7F217FC3C7CF1110FFFBF39C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1059513   (462105) от 04.10.2016
 
 Jack Bruce - Songs For A Tailor (1969) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Art Rock, Prog Rock>
@@ -21,6 +48,8 @@ A4 Weird Of Hermiston(   Читать дальше...   )Жанр: Art Rock, Pro
 ```bash
 magnet:?xt=urn:btih:031AC6E8CA59882F1C8ED132CF6C5FF5BACC5B91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +78,8 @@ Theatre Of Tragedy - Aegis(Upmix) (1998/2008) [DTS] <Gothic Rock>
 magnet:?xt=urn:btih:0C9695D48DEEAECACA763C6444DBF3CAEB2E426F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +105,8 @@ Down — метал-группа из США, основанная в 1991 го�
 ```bash
 magnet:?xt=urn:btih:735A1C9C5D74E5EAACCD17ECD327F5DE6C9684C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -102,6 +135,8 @@ David Gilmour - Rattle That Lock (2015) [DTS 5.1 44.1 /16 | .wav+.cue (BD-Audio)
 magnet:?xt=urn:btih:68B85CE6B20B2F465D01F8541FA988CF7E6E165C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +163,8 @@ Genesis - Anthology 1970-1998 (2007) [FLAC 2.0|88.2/24|tracks|SACD] <Progressive
 ```bash
 magnet:?xt=urn:btih:0C1389C8554C8F5BC14F2F0ACA1441F54CFCFFCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -156,6 +193,8 @@ Peter Gabriel - Up (2002) [FLAC 2.0|88.2/24|tracks|SACD] <Progressive Rock, New 
 magnet:?xt=urn:btih:B068C1F660AB66DB123712053D37A44DE2A8A52E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -182,6 +221,8 @@ A3 Carnival(   Читать дальше...   )Жанр: Jazz, Big Band, SwingП
 ```bash
 magnet:?xt=urn:btih:F62F7E442900F898B14CE8CC31E4B9BC3A627BEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -210,6 +251,8 @@ A4 Filipino Baby(   Читать дальше...   )Жанр: Folk, CountryПр�
 magnet:?xt=urn:btih:238BDC466E87923AECC91BE43A9655112EB54803
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +279,8 @@ A4. Слепой (1:57)(   Читать дальше...   )Жанр: Рок / А
 ```bash
 magnet:?xt=urn:btih:506E6A04F5BB2BBB92AFF19BB721F51E5BE209C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +309,8 @@ Larisa Stow - Moment By Moment (2001) [MLP 5.1 48Khz/24Bit, DTS 5.1, Dolby AC3 2
 magnet:?xt=urn:btih:EA6A6D554F9FA850860181156879AB51C6961BED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +337,8 @@ Walter Trout - Survivor Blues (2019) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Blues R
 ```bash
 magnet:?xt=urn:btih:3CE2E97977248B4A73A38A5F2ED7A72A00288B53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +367,8 @@ Thunderstone — финская англоязычная пауэр-метал-�
 magnet:?xt=urn:btih:2BFC7CA10275ED994DED6D706FF5CB9928819E4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +395,8 @@ A4. A Boat Lies Waiting (4:34)(   Читать дальше...   )Произво
 ```bash
 magnet:?xt=urn:btih:D2BDE3AB596AA4C8412E5D38A8415926E557351D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +425,8 @@ Written-By – D. Gerard, H.R. Barnes, R. BernetЖанр: Pop/ChansonПродо�
 magnet:?xt=urn:btih:0AEE0E8208925C43244D34F399E72D0F17804CC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +453,8 @@ A4. Drive (3:54)(   Читать дальше...   )Жанр: RockПродолж
 ```bash
 magnet:?xt=urn:btih:10474A267B5E17CB39D435849E7E70C776752E93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +483,8 @@ A4. Highway For Fools (3:14)(   Читать дальше...   )Производ
 magnet:?xt=urn:btih:B04EFF9E43E8745087B9197BBE12DCA581528BA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +511,8 @@ A4 The Same Parents(   Читать дальше...   )Жанр: New Age, Ambien
 ```bash
 magnet:?xt=urn:btih:C54C16F10D4881DA39F7E927111DE48A6126A9D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +541,8 @@ A4 Someday You'll Be Sorry(   Читать дальше...   )Жанр: Electron
 magnet:?xt=urn:btih:A767A155879B45C94EEE9D2CDCDD17E3280DCA4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +569,8 @@ A2 B/ Find Love(   Читать дальше...   )Жанр: Medieval, Ambient, 
 ```bash
 magnet:?xt=urn:btih:88B4CC7EF5E3F424C401BA737C8ED6F77B1A0B8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +599,8 @@ A4 I Love You… I'll Kill You(   Читать дальше...   )Жанр: New 
 magnet:?xt=urn:btih:C019A4EE24A4758DD9E084ADE9997383BD6A4850
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +627,8 @@ A4 Dancing With Mephisto(   Читать дальше...   )Жанр: Downtempo,
 ```bash
 magnet:?xt=urn:btih:7BB584EFF790C75FB825833C2AB40830F3825BC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +657,8 @@ A4. Downstream (4:01)(   Читать дальше...   )Производств�
 magnet:?xt=urn:btih:949B5744F6B1DA7280E69124992821AD7D5DD7E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +685,8 @@ magnet:?xt=urn:btih:949B5744F6B1DA7280E69124992821AD7D5DD7E3
 ```bash
 magnet:?xt=urn:btih:12799DA28FC820189063311F0B8381AFDD1EAB8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +715,8 @@ magnet:?xt=urn:btih:12799DA28FC820189063311F0B8381AFDD1EAB8C
 magnet:?xt=urn:btih:DB1058C3984588CB492182A6CD51B6072CF00B76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,32 +744,7 @@ magnet:?xt=urn:btih:DB1058C3984588CB492182A6CD51B6072CF00B76
 magnet:?xt=urn:btih:992FC651038C8FE9812A2A290D85E65FE6748AF9
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159161   (481624) от 21.08.2017
-
-VA - Робинзон - Леонид Дербенёв (1985) [DSD2.0|5,64MHz/1bit|image+.cue|Vinyl-Rip] <Pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Михаил Боярский - Робинзон [3:21]
-02. Алла Пугачева - Белая дверь [4:46]
-03. Михаил Боярский - Сяду в скорый поезд [2:40]
-04. ВИА Здравствуй, песня - Акселераты [3:12](   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC29A3F97A34A309CF555D9E7A95CE0C6502A23B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

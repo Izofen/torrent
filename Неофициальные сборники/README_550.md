@@ -1,3 +1,32 @@
+###  Публикация: 1114174   (833600) от 14.03.2017
+
+VA - Лучшая дискотека на Europa Plus выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833600.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Xana - Красивыи Мужчина 4:00
+002. Натали Янковских - Новая Я 3:08
+003. Moyyo - Любил Тебя Я 3:10
+004. Бьянка - Вселенная 3:09(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA7001F7088239DF026826550FB18B22063A9F00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114284   (833603) от 14.03.2017
 
 VA - The Place Dance (2017) [MP3|320 Kbps] <Dance, Club, Electro>
@@ -21,6 +50,8 @@ VA - The Place Dance (2017) [MP3|320 Kbps] <Dance, Club, Electro>
 ```bash
 magnet:?xt=urn:btih:91B4AD9C2CD4B859BF19158B17E46786DF970F83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +79,8 @@ VA - Вечеринка на радио Шансон выпуск № 5 (2017) [
 ```bash
 magnet:?xt=urn:btih:C6030E4B1C16FC9E5C592A3EE6A7B63F1A1629ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -77,6 +110,8 @@ VA - Trance Scenery Vol. 02 (2015) [MP3|320 кб/с]<Trance, Vocal Trance, Progr
 magnet:?xt=urn:btih:59530AAD5DB598D98B6E5FC45AC63FE47D7FF8E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +138,8 @@ VA - Trance Collection Vol.58 (2017) [MP3|320 Kbps] <Trance, Progressive Trance,
 ```bash
 magnet:?xt=urn:btih:0CA31E325B59585AC1D07C6D627F383BBB7DD6A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -131,6 +168,8 @@ VA - Best Chillout Vol.27 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:04A947412C1F457621D728A99926A1464CC7A318
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +196,8 @@ VA - Весенняя танцевальная вечеринка выпуск �
 ```bash
 magnet:?xt=urn:btih:E649DDCE27CD70CCA582A3125D148C91D86D7F77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -185,6 +226,8 @@ VA - Отдыхаем душой на Шансоне выпуск № 6 (2017) [
 magnet:?xt=urn:btih:5DAACDC4FDA425E5A954EE49A49F23DDEC20FA6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +254,8 @@ VA - Музыкальное ассорти хитов (50/50) (2016) [MP3|256 к
 ```bash
 magnet:?xt=urn:btih:ABB690F4A4719D7F25DEA34573B22583920600F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +284,8 @@ VA - На волне позитива. Версия № 5 (2017) [MP3|256 Kbps] 
 magnet:?xt=urn:btih:2F8E3BB9C7C082EECC28A44E0E01FB0FD63B61C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +312,8 @@ VA - Future House Reality Funk (2017) [MP3|320 Kbps] <Dance, Club, House>
 ```bash
 magnet:?xt=urn:btih:99DFA405494E1DF25C2BD086DFD02156BBCE52D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +342,8 @@ VA - Музыкальный презент на Europa Plus. Версия № 4 
 magnet:?xt=urn:btih:1206C97932BD6882A6D0C7A4161EA6EE7634E1E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +370,8 @@ VA - Immense Stadium World Electrix (2017) [MP3|256-320 Kbps] <Dance, Club, Hous
 ```bash
 magnet:?xt=urn:btih:81B5D237D8FFEB10B51F770784F972078FC7B52E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +400,8 @@ VA - Музыка Нас Связала: Дискотека 90-х (2016) [MP3|32
 magnet:?xt=urn:btih:50886D48B890CBAF27F42FCB35C3FA29A20F57FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +428,8 @@ magnet:?xt=urn:btih:50886D48B890CBAF27F42FCB35C3FA29A20F57FB
 ```bash
 magnet:?xt=urn:btih:2361E7DBF6507B3A374481598013E1B84024298F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +458,8 @@ magnet:?xt=urn:btih:2361E7DBF6507B3A374481598013E1B84024298F
 magnet:?xt=urn:btih:90B140AC404AB89F79379489E7D1E55F18C15293
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +486,8 @@ VA - Вспомним 90-2000 от Виталия 72 - 2 (2016) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:863B09698010C4FFBC8CCC463236E4478392004A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +516,8 @@ VA - Love Lyric Compilation Rock Blues (2016) [MP3|320 кб/с] <Blues Rock>
 magnet:?xt=urn:btih:BD977424A9F05CDC6455BCA8EA33107B63DB5ACD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +544,8 @@ VA - Русский суперсборник поп музыки (2016) [MP3|256
 ```bash
 magnet:?xt=urn:btih:D7E84C665242650DF7C12846403CC8802E67D6BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +574,8 @@ VA - 100 Хитов в дорогу (2016) [MP3|256 кб/с] <Shanson>
 magnet:?xt=urn:btih:51AA4A6A241184221B76C987AA78D270A9BED4B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +602,8 @@ VA - Nu Jazz Instrumentals (2016) [MP3|320 кб/с] <Nu Jazz, Lounge Jazz, Jazz 
 ```bash
 magnet:?xt=urn:btih:4D0CF3BFAF2C80F04FD073B53BC689A36B2C57B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +632,8 @@ VA - 45 Jahre ZDF Disco - Nr.1 Hits Der 70er (2016) [MP3|256 кб/с] <Pop, Rock
 magnet:?xt=urn:btih:9C6FD64F3600BC7520CC63A394B27A129615892C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +660,8 @@ VA - Extra Trance: Bonus [04] (2016) [MP3|320 кб/с] <Trance>
 ```bash
 magnet:?xt=urn:btih:8C3DADC5316EE561E172FB9C6BCBBB90B3EF9B2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +690,8 @@ VA - Русский Шансон 96. от Виталия 72 (2020) [MP3|320 Kbps
 magnet:?xt=urn:btih:6ADEF3AA053B43FFDA232B4915B4C1A124546E16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +718,8 @@ VA - Bass Killer 4 (2016) [MP3|320 кб/с] <Electro House, Dubstep, Drum and Ba
 ```bash
 magnet:?xt=urn:btih:73BCF61104CFB13FB7708FB3408752A372C23BE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -671,32 +748,7 @@ VA - Sweet Afternoon: Music Romantic and Chilling Pop Songs (2016) [MP3|320 кб
 magnet:?xt=urn:btih:B0FD3463D130E3C14838BD4146680D29E32A3B0B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004782   (834575) от 08.04.2016
-
-VA - Falling in Love with Lounge Music 100 Sexy Tracks (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834575.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aqua Mundi - Sweet Suggestions [05:32]
-002. B.Infinite - First Contact [07:42]
-003. Bonsugi - Guitars and Bad Girls [05:54]
-004. The Soul Elephant - Nobody [05:14](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 08:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85F0F5023B7AFF9F6D66588E0166DD6B3ECEE0ED
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

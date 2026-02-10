@@ -20,6 +20,8 @@ Yuusha Party o Oidasareta Kiyoubinbou / Jack-of-All-Trades, Party of None / Ма
 magnet:?xt=urn:btih:4D2578AC209118BC42FF37DF4B8345BC7A4F3F6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ MF Ghost 3rd Season | MF Призрак [ТВ-3] [2026, TV, 1 из 12 эп.] WEB
 ```bash
 magnet:?xt=urn:btih:F733D94407CE98AB8B0373EC164684E54743E874
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Tamon's B-Side | Tamon-kun Ima Docchi!? | Какой сейчас Тамон?! [
 magnet:?xt=urn:btih:184E52B6F278E7E3E599765FD68EAE78FD9AD310
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Gnosia | Гносия [2025, TV, 12 из 24] WEB-DL 1080p raw
 ```bash
 magnet:?xt=urn:btih:765CB8922F5E9B7900B087E6B778EE2F5D630200
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ The Daily Life of a Part-Time Torturer | Goumon Baito-kun no Nichijou | Повс
 magnet:?xt=urn:btih:9FAB8D1CD76DA71705A7BEE43F55149827C88BE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Kizoku Tensei: Megumareta Umare kara Saikyou no Chikara o Eru / Noble Reincarnat
 magnet:?xt=urn:btih:FAA9F66C6AF525815DEC4C8395D62A534F666249
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Ikoku Nikki | Дневник другой страны [2026, TV, 1 из 12] WEB
 ```bash
 magnet:?xt=urn:btih:939D485CE0B3A4810638E88A044328572A5CAF2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Hanazakari no Kimitachi e | Hana-Kimi | Для тебя во всём цвету
 magnet:?xt=urn:btih:A3E08ED193AC34609D613A887C036616A3CE2D2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Majutsushi Kunon wa Miete Iru | Kunon the Sorcerer Can See Through | Волше�
 ```bash
 magnet:?xt=urn:btih:66165F39A36207C8999CCA30E8C2131254C2A4BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Yuusha-kei ni Shosu: Choubatsu Yuusha 9004 Tai Keimu Kiroku / Sentenced to Be a 
 ```bash
 magnet:?xt=urn:btih:F0FF6D2CB532AD1BD3F0A3621BFFA0FC92AE2606
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ Golden Kamuy Saishuushou | Golden Kamuy Final Season | Золотое божес
 magnet:?xt=urn:btih:2390A32E5B34E750B77B0BB307EA8942D6F15BAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ Osananajimi to wa Lovecome ni Naranai / You Can't Be In a Rom-Com with Your Chil
 ```bash
 magnet:?xt=urn:btih:8ADB585AAB4A71BF20FCB026DC584A93C6FB4426
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ Kirei ni Shite Moraemasu ka. / Wash It All Away / Можете постират�
 magnet:?xt=urn:btih:2F5C7881E8A2A020B7DD8D040A3D05BB72C04B11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ Vigilante: Boku no Hero Academia Illegals 2 | Моя геройская акад
 ```bash
 magnet:?xt=urn:btih:A1B2AF49A9F024B6A426042CEB359A14F87EA497
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ Yuusha Party ni Kawaii Ko ga Ita no de, Kokuhaku Shite Mita. / There Was a Cute 
 magnet:?xt=urn:btih:D3AF1A2DD3C0F5E874C2B70F655AFBE4FDC4B7F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ Mayonaka Heart Tune / Tune In to the Midnight Heart / Полуночный мо�
 ```bash
 magnet:?xt=urn:btih:014FBBBFEE28502C1E5B2FF6F7AA4988AB11A081
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ Maou no Musume wa Yasashi Sugiru!! / The Daughter of the Demon Lord is Too Kind!
 magnet:?xt=urn:btih:870E86AF91FB005EE582A969320A2E4F5DE3945E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ Isekai no Sata wa Shachiku Shidai | Isekai Office Worker: The Other World's Book
 ```bash
 magnet:?xt=urn:btih:2AB2136C4663B410BC97956976E7ADBAE37FFC16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:2AB2136C4663B410BC97956976E7ADBAE37FFC16
 magnet:?xt=urn:btih:4D26FF58312FDB37DDD98731F98E21FD505426F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ Okiraku Ryoushu no Tanoshii Ryouchi Bouei |  Весёлая защита вла�
 ```bash
 magnet:?xt=urn:btih:DF7A75EF5105948FFC92A184478B0A99FF919D01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ Arne no Jikenbo | The Case Book of Arne | Дело Арне [2026, TV, 1 из 12
 magnet:?xt=urn:btih:A1DD16D5EAF5FC2E654FED9D6B1A90AF839F57B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ Shibou Yuugi de Meshi o Kuu. / Playing Death Games to Put Food on the Table / И
 magnet:?xt=urn:btih:C72840E0ADC89C79894B82F45CC1E2FAE2205EA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Shibou Yuugi de Meshi o Kuu. | Playing Death Games to Put Food on the Table | С
 ```bash
 magnet:?xt=urn:btih:07DAF065DBD7E7468CE98529700777F62BE2F804
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ Champignon no Majo / Champignon Witch / Грибная ведьма [2026, TV, 2
 magnet:?xt=urn:btih:FC1ADB394EB70AB27F607279B7A9F21825D9D733
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ Omae Gotoki ga Maou ni Kateru to Omou na to Yuusha Party o Tsuihou Sareta node, 
 magnet:?xt=urn:btih:7AE927E7D970A380D7BEF340ADAE6D3EB3A267D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Toumei Otoko to Ningen Onna: Sonouchi Fuufu ni Naru Futari / The Invisible Man a
 ```bash
 magnet:?xt=urn:btih:EF5120463CE04CEF1234E59DB5628DD87C03FD84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

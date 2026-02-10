@@ -19,6 +19,8 @@ Alder's Blood - это мрачная и темная тактическая с�
 magnet:?xt=urn:btih:ADBAD9B72716254BD68AC7D69BFD73402FB0D982
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ ArkCraft: The Rebirth of the World / ArkCraft: Возрождение мира (
 ```bash
 magnet:?xt=urn:btih:597ECBFB18CEF9770038EE203076F5EE90A75660
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Lords of the Fallen приглашает игроков в мрачный мир
 magnet:?xt=urn:btih:A3AB41DC374977A08FE3CA60F2935EADA7F82BB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Vaporum: Lockdown - это приквел знаменитой игры с пр�
 ```bash
 magnet:?xt=urn:btih:773FE33782EECDBFDAEC86031DE25898690D5213
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Medieval Dynasty (2020) [Ru/Multi] (2.2.0.5) Repack dixen18
 magnet:?xt=urn:btih:C476C1F5DF8840155E5E0686D0D0925641B9E3E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Lords of the Fallen приглашает игроков в мрачный мир
 ```bash
 magnet:?xt=urn:btih:0C33C33C8B3BDE7439A67BC66E9E90F062DB3AF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Monster Hunter Stories - ролевая игра во вселенной Monster
 magnet:?xt=urn:btih:41FED8EFC22E8AEE20235B45521FD464735540E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Necro Story (2024) [Ru/Multi] (6043) Repack FitGirl [Soundtrack Edition]
 ```bash
 magnet:?xt=urn:btih:07B545321E47CD7F8F909A6598505EC513286B33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Welcome to ParadiZe - это увлекательная изометрическ
 magnet:?xt=urn:btih:AB38E86AE3D1FA7D0A764FB4297CCBC93438717D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Expeditions: Rome (2022) [Ru/Multi] (1.6.0.741.23995/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:08FC845AF7E430ED636C64798C803FE04B52453C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Wayfinder (2023) [Multi] (1.0/dlc) Repack seleZen
 magnet:?xt=urn:btih:2B6FD7B04EE1E5E20DC85FA73C777CC78D97BE16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Sky Oceans: Wings for Hire переосмысливает классическу
 ```bash
 magnet:?xt=urn:btih:CE140D0F70E7612B6639D451DCD59F411B62CE00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Warhammer 40,000: Inquisitor - Martyr (2018) [Ru/Multi] (2.9.4d/dlc) Repack Let'
 magnet:?xt=urn:btih:34E9C5433E4DD4276607894BD8EF5D6DDB6D665A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Sovereign Syndicate (2024) [Ru/En] (1.1.11) Repack Wagner
 ```bash
 magnet:?xt=urn:btih:965627A24EE2973840BDC697CBCEFBD1740235E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Hive Jump 2: Survivors - научно-фантастическая ролева�
 magnet:?xt=urn:btih:66E0752EF3B134A1D19C812084C4FC4E1721E05E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Frontier Hunter: Erza's Wheel of Fortune (2022) [Ru/Multi] (1.1.02/dlc) Repack L
 ```bash
 magnet:?xt=urn:btih:9AF979CA2E109E4B530D05EA6AEABA88EAB498EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Robin Hood - Sherwood Builders – это приключенческая рол�
 magnet:?xt=urn:btih:81BD264AB7890820292417835E88A0E1C938F42C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Expeditions: Rome (2022) [Ru/Multi] (1.6/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:EFC6C272F7DB237DD7B7D4290D8E83CB5F0C43F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Bug Fables: The Everlasting Sapling – это юмористическая ро
 magnet:?xt=urn:btih:6BA8E999DE8DE5381C701ADAC6E20B7B05576C7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Albatroz - это приключенческая адвенчура на выж�
 ```bash
 magnet:?xt=urn:btih:A5EA272072692BA17BD548D1205203C06DBFEC19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Wyvia (2023) [Multi] (1.0.8) License GOG
 magnet:?xt=urn:btih:3E9ECD219B19D99761EA431BF9DB338D652A63CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Dragon Age™: Origins Вы Серый страж, один из последн�
 ```bash
 magnet:?xt=urn:btih:ED4DD100DDF5183BAEE0C8ADFF3DE6FFEC5ED548
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Deathbound - действие игры разворачивается в сре�
 magnet:?xt=urn:btih:95207D844140C663F30FDA679983997F723BC87B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Vaporum - это однопользовательская ролевая игр�
 ```bash
 magnet:?xt=urn:btih:44236277C8649EF0F210DC7AD5E0BD5A882AC8E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Alaloth: Champions of The Four Kingdoms (2022) [En] (1.0) Scene Rune
 magnet:?xt=urn:btih:938536BF3D8896A839BD03F29E6CFE0EE5ED2337
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Expeditions: Rome (2022) [Ru/Multi] (1.6.0.741.23995/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:FCE443769BD56636C346D0964BBFF0A958650DC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,52 +1,3 @@
-###  Публикация: 923104   (566310) от 30.07.2015
-
-Картинки - Фруктово-ягодное ассорти. 50 обоев 8К [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разнообразные фото (и немного графики) с фруктово-ягодным содержимым. Создают бодрый, позитивный настрой и наполняют желанием вести непременно только здоровый образ жизни. Хорошо очищают и тем самым оздоравливают ваш монитор от всякой скверны.)) Настоятельно рекомендуются к регулярному употреблению в свежем виде, особенно с утра. )Формат: JPGРазрешение файлов: 7680х4320
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D869453A005AF7667383D9158FF6A54661242CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529308   (566354) от 31.07.2012
-
-[Wallpapers] Высококачественные обои для рабочего стола - Разное [1600x1200 - 11812х7904] (2012) JPG
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Здесь вы найдете изображение на разное настроение
-(природа,техника, абстракция и т.д)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B9FCDE683D3D3C3E47A886F485FA9228D1C98A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922951   (566357) от 30.07.2015
 
 Картинки - Десертомания. 50 обоев 8К [JPG]
@@ -67,6 +18,8 @@ magnet:?xt=urn:btih:8B9FCDE683D3D3C3E47A886F485FA9228D1C98A9
 ```bash
 magnet:?xt=urn:btih:E7057B010E65A20C168F716AD7346031BEF389FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +45,8 @@ magnet:?xt=urn:btih:E7057B010E65A20C168F716AD7346031BEF389FF
 magnet:?xt=urn:btih:7CF6798EA45CBB8EBF80BC7E93E78BD101F19B7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +70,8 @@ magnet:?xt=urn:btih:7CF6798EA45CBB8EBF80BC7E93E78BD101F19B7A
 ```bash
 magnet:?xt=urn:btih:5C0F772A1F21663CBB92AABDEE83E93E0125F0DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +97,8 @@ magnet:?xt=urn:btih:5C0F772A1F21663CBB92AABDEE83E93E0125F0DF
 magnet:?xt=urn:btih:81C24F15589E37B1B8804BC1796EDD8989E12C02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +122,8 @@ magnet:?xt=urn:btih:81C24F15589E37B1B8804BC1796EDD8989E12C02
 ```bash
 magnet:?xt=urn:btih:2515188256603481DD3BED0DB9A37B5F4F2B9180
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +149,8 @@ magnet:?xt=urn:btih:2515188256603481DD3BED0DB9A37B5F4F2B9180
 magnet:?xt=urn:btih:248B155341BFDB8A11734F8C88B863BD29530C9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +174,8 @@ magnet:?xt=urn:btih:248B155341BFDB8A11734F8C88B863BD29530C9C
 ```bash
 magnet:?xt=urn:btih:F55D6B714BE1202C039B68D21759DFD756BF57ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +201,8 @@ magnet:?xt=urn:btih:F55D6B714BE1202C039B68D21759DFD756BF57ED
 magnet:?xt=urn:btih:835F15586288CC1DFE26D01E1FA675C506D82260
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +227,8 @@ magnet:?xt=urn:btih:835F15586288CC1DFE26D01E1FA675C506D82260
 magnet:?xt=urn:btih:6D34978085E0B3EE8371A10083FA0291A7604C61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +252,8 @@ magnet:?xt=urn:btih:6D34978085E0B3EE8371A10083FA0291A7604C61
 ```bash
 magnet:?xt=urn:btih:51ABBD93DDAE724013724D2A2F9BFD4BAA9E07E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +282,8 @@ magnet:?xt=urn:btih:51ABBD93DDAE724013724D2A2F9BFD4BAA9E07E6
 magnet:?xt=urn:btih:541DA87EC11F62B5828DC3DABA6064E19B0B01CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +307,8 @@ magnet:?xt=urn:btih:541DA87EC11F62B5828DC3DABA6064E19B0B01CC
 ```bash
 magnet:?xt=urn:btih:C44367D067A68F787454EB14D62EA27E0274F0C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +334,8 @@ Wallpapers - Sexy Girl Full HD [JPEG]
 magnet:?xt=urn:btih:77F621426E1C711477767556C8C7DBB261AAE97C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +360,8 @@ magnet:?xt=urn:btih:77F621426E1C711477767556C8C7DBB261AAE97C
 magnet:?xt=urn:btih:A294FA600282C2F60FB9B3DAD573C5A3D4FE4BB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +385,8 @@ magnet:?xt=urn:btih:A294FA600282C2F60FB9B3DAD573C5A3D4FE4BB5
 ```bash
 magnet:?xt=urn:btih:599536332FBD810D70EB437F2D7922D69356ED93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +414,8 @@ magnet:?xt=urn:btih:599536332FBD810D70EB437F2D7922D69356ED93
 magnet:?xt=urn:btih:E6301EFD55BC9A18A209855A7229EF7AB94CC3E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +439,8 @@ magnet:?xt=urn:btih:E6301EFD55BC9A18A209855A7229EF7AB94CC3E5
 ```bash
 magnet:?xt=urn:btih:5E1CEB8299F19CB06891A305D56F1EA22B0C7DA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +466,8 @@ magnet:?xt=urn:btih:5E1CEB8299F19CB06891A305D56F1EA22B0C7DA4
 magnet:?xt=urn:btih:B2BA59C9A46279717FDABBC175ADED6B55A20CDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +492,8 @@ magnet:?xt=urn:btih:B2BA59C9A46279717FDABBC175ADED6B55A20CDA
 magnet:?xt=urn:btih:BA8ADC6B43A74ABA7838C91C2EE92E1C394F066A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +517,8 @@ Wallpapers - Super Mixed HD Wallpapers Pack (12.08.14) [JPEG]
 ```bash
 magnet:?xt=urn:btih:03C58E0A1D1EF60BE907363088EE89C4C9EA6326
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +545,8 @@ magnet:?xt=urn:btih:03C58E0A1D1EF60BE907363088EE89C4C9EA6326
 magnet:?xt=urn:btih:ABB092C083764739EECDEEE01C08EA08B724075A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +570,8 @@ An Jeongwon - Artist Maggis Harem
 ```bash
 magnet:?xt=urn:btih:52D097E8CA2A005AD1AA3FF66485AFC5233E497D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +597,8 @@ Digital Artist Benita Winckler
 magnet:?xt=urn:btih:0C22807507B13AAD02B2D0EFBADF53B12793A906
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +622,60 @@ magnet:?xt=urn:btih:0C22807507B13AAD02B2D0EFBADF53B12793A906
 ```bash
 magnet:?xt=urn:btih:F515A726B26F1DAAFA422209654CAB55B3294D65
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921861   (573437) от 26.07.2015
+
+Картинки - Красавица Средиземноморья - Италия. 50 обоев 8К [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Солнечная темпераментная Италия, "загорающая" на прекрасных пляжах адриатического и средиземноморского побережий. Былая могущественная Римская империя, руины которой влекут к себе туристов со всего мира. Незабываемая зеркальная Венеция с ее тишиной и покоем, где слышны только плеск волн да крики одиноких чаек, разбавляемые мелодичным пением гондольеров. (   Читать дальше...   )Формат: JPGРазрешение файлов: 7680х4320
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAE7723F57EE9137FDEC45AA9CD7962D68EC76E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527684   (573551) от 28.07.2012
+
+[Wallpapers] Nature HD Wallpapers (27.07.12)
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89B9AB2C67B4EB03D0070F632BDA2BDCDD4B5AB0
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 953238   (351288) от 03.11.2015
+
+Барбара Аутланд Бейкер | Арнольд и я. Жизнь в тени Австрийского Дуба (2015) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откровенный рассказ об отношениях с легендой бодибилдинга, суперзвездой Голливуда и бывшим губернатором Калифорнии Арнольдом Шварценеггером.Жанр: Биографии и мемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CCC5BA8847CABCF7DF2CD0886C897C98F1A1E13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952980   (351295) от 03.11.2015
 
 Ирина Слука | 100 самых дорогих и редких монет (2015) [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:3FA83927EFF994B6945781E378D71D09E4AD1C83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:3FA83927EFF994B6945781E378D71D09E4AD1C83
 magnet:?xt=urn:btih:C3E20F92103BE1F6C040AE5917CDAA92747C604E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:C3E20F92103BE1F6C040AE5917CDAA92747C604E
 magnet:?xt=urn:btih:3E4ABCB956391CA447761F8AB9160B67CC3428F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:3E4ABCB956391CA447761F8AB9160B67CC3428F4
 ```bash
 magnet:?xt=urn:btih:85D361A65BA8169106124F7271F5409BFFF2033E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:85D361A65BA8169106124F7271F5409BFFF2033E
 magnet:?xt=urn:btih:8F0C9D3ED21DCBE7E51B554BAA42F11D4DAACBC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:8F0C9D3ED21DCBE7E51B554BAA42F11D4DAACBC9
 ```bash
 magnet:?xt=urn:btih:463091048A83C3748F1392B19B191773B2ACEFA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:463091048A83C3748F1392B19B191773B2ACEFA0
 magnet:?xt=urn:btih:D2C3EB1868EDA7FD2CFAD7C10F8B71E55C1DC383
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:D2C3EB1868EDA7FD2CFAD7C10F8B71E55C1DC383
 ```bash
 magnet:?xt=urn:btih:DB761D7B1DAE1A0BA6DE186611C9A2D6E231AF87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:DB761D7B1DAE1A0BA6DE186611C9A2D6E231AF87
 magnet:?xt=urn:btih:61897116B8E471D0DF9BACF102F6BBDCF78654CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:61897116B8E471D0DF9BACF102F6BBDCF78654CE
 ```bash
 magnet:?xt=urn:btih:7BD75CC22CE9BF0BF645397A987C9A1E093A6E66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:7BD75CC22CE9BF0BF645397A987C9A1E093A6E66
 magnet:?xt=urn:btih:E14DC586BBCCC2887324CE09D67B96C22C2B0906
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:E14DC586BBCCC2887324CE09D67B96C22C2B0906
 ```bash
 magnet:?xt=urn:btih:F78C3C7408D9FF32BFBB1EDB055A44D6860FB8C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:F78C3C7408D9FF32BFBB1EDB055A44D6860FB8C3
 magnet:?xt=urn:btih:6BB965DF8A778D1151F1976D2A6D24CE7500199D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:6BB965DF8A778D1151F1976D2A6D24CE7500199D
 magnet:?xt=urn:btih:863121DF00C557350DC9D803069E28D18D9AA30E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:863121DF00C557350DC9D803069E28D18D9AA30E
 ```bash
 magnet:?xt=urn:btih:BCF2B4B84E49E18F2006C4C40F26A86EAA573986
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:BCF2B4B84E49E18F2006C4C40F26A86EAA573986
 magnet:?xt=urn:btih:E7F62FF8047115AE235325998496A7A54650FAD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:E7F62FF8047115AE235325998496A7A54650FAD4
 magnet:?xt=urn:btih:B14B24FC0DFA21A816F1991FC38A3A58BCD95B2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:B14B24FC0DFA21A816F1991FC38A3A58BCD95B2E
 ```bash
 magnet:?xt=urn:btih:2DF3F1A6725E305EB061E28EADDFC245FAB02D2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:2DF3F1A6725E305EB061E28EADDFC245FAB02D2B
 magnet:?xt=urn:btih:E8F9B3FC829223FE00CEE10233799A74764EF7AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:E8F9B3FC829223FE00CEE10233799A74764EF7AA
 ```bash
 magnet:?xt=urn:btih:88957A6BF5331FF0243BAEEF3CB70E5A2043F44A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:88957A6BF5331FF0243BAEEF3CB70E5A2043F44A
 magnet:?xt=urn:btih:5373170D111241B0AACF0FC59713A276396A7022
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +600,8 @@ magnet:?xt=urn:btih:5373170D111241B0AACF0FC59713A276396A7022
 magnet:?xt=urn:btih:BDB8B93ECB49E96CABD29E272DF511672E2EF611
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:BDB8B93ECB49E96CABD29E272DF511672E2EF611
 ```bash
 magnet:?xt=urn:btih:F44A3907A3D75C943C4990B31F2E77C5C95EC505
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:F44A3907A3D75C943C4990B31F2E77C5C95EC505
 magnet:?xt=urn:btih:E4972F4416B8CEEB6AE7B12BF19E15ABC02128F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,31 +678,7 @@ magnet:?xt=urn:btih:E4972F4416B8CEEB6AE7B12BF19E15ABC02128F0
 magnet:?xt=urn:btih:5CDA440672043C0EE774EA498EEF0A83B8BB3780
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 578721   (352744) от 21.11.2012
-
-Генри Ансгар Келли | Сатана. Биография [2011] [FB2]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Биография Сатаны: когда родился, на ком женился, как до жизни такой докатился...
-Используя такие источники, как "Ветхий Завет", "Новый Завет", "Всемирный Интернет", а также магические гримуары библиотеки Незримого Университета, профессор Келли ответит на вопрос: кто ты, Сатана?
-А вот прочитать бы автобиографию Сатаны...Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2377A373410938CE59D90D7D54CF9B89A1330355
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

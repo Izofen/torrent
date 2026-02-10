@@ -1,3 +1,29 @@
+###  Публикация: 676649   (679974) от 06.07.2013
+
+Ян Валетов | Сердце проклятого [2013] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679974.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Самолет появился над дорогой внезапно. Он летел как-то странно, как не должны летать самолеты, описывая широкую дугу на высоте не более двадцати метров, левым крылом вперед. И сам самолет был непривычного вида, пустынного раскраса, но похожий силуэтом не на стремительный истребитель, а на раскормленного горбатого москита, который облетает спящего туриста, выбирая (   Читать дальше...   )Жанр: Исторические приключения, фантастика
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70A992415DE78F0B8D9FF3334662F5DE03385C4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 676431   (680044) от 06.07.2013
 
 Вадим Денисов | Русский Союз [2013] [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:CDC2286CB3B71314438EEF9B341C594B3BFAE28D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:CDC2286CB3B71314438EEF9B341C594B3BFAE28D
 ```bash
 magnet:?xt=urn:btih:270B526798C256664038A9891EAED6F7D26FE3A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:270B526798C256664038A9891EAED6F7D26FE3A6
 magnet:?xt=urn:btih:8B70143DAA5268E61B6DC729D0CD8C5B1335A78F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:8B70143DAA5268E61B6DC729D0CD8C5B1335A78F
 ```bash
 magnet:?xt=urn:btih:37171B33B2E11EF1F6416F874E95F37DD7580D49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +156,8 @@ magnet:?xt=urn:btih:37171B33B2E11EF1F6416F874E95F37DD7580D49
 magnet:?xt=urn:btih:A2EEAAE4BA7A184EBDC6071BF8F7ED3CC3E9A72F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +183,8 @@ magnet:?xt=urn:btih:A2EEAAE4BA7A184EBDC6071BF8F7ED3CC3E9A72F
 ```bash
 magnet:?xt=urn:btih:95D963DA25FFF3CF8A823E15F3E04259C7879E47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +212,8 @@ magnet:?xt=urn:btih:95D963DA25FFF3CF8A823E15F3E04259C7879E47
 magnet:?xt=urn:btih:873F37CA5E10A8A2E8B85CFB09489ADEF846788B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +237,8 @@ magnet:?xt=urn:btih:873F37CA5E10A8A2E8B85CFB09489ADEF846788B
 ```bash
 magnet:?xt=urn:btih:CA7D6E3A692A9CEA09FE56AB559EB909BAECCAA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +264,8 @@ magnet:?xt=urn:btih:CA7D6E3A692A9CEA09FE56AB559EB909BAECCAA7
 magnet:?xt=urn:btih:B37A09AA538C4E2F851B95BD929980BE57F482D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +289,8 @@ magnet:?xt=urn:btih:B37A09AA538C4E2F851B95BD929980BE57F482D3
 ```bash
 magnet:?xt=urn:btih:B63B97B470C1D5BD8926698AC79CA8E6D0C68152
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +316,8 @@ magnet:?xt=urn:btih:B63B97B470C1D5BD8926698AC79CA8E6D0C68152
 magnet:?xt=urn:btih:1AED43F782B690823FFE95F79935562481C1D991
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +341,8 @@ magnet:?xt=urn:btih:1AED43F782B690823FFE95F79935562481C1D991
 ```bash
 magnet:?xt=urn:btih:F01BDF3E1A98DBD96577DFC0515809B74A398D94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +368,8 @@ magnet:?xt=urn:btih:F01BDF3E1A98DBD96577DFC0515809B74A398D94
 magnet:?xt=urn:btih:22A158203971D8A3F91FEE5BCF3D4E8A114A2670
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +393,8 @@ magnet:?xt=urn:btih:22A158203971D8A3F91FEE5BCF3D4E8A114A2670
 ```bash
 magnet:?xt=urn:btih:21C9DBFF03E06A87BE54357EB16E229660192B7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +420,8 @@ magnet:?xt=urn:btih:21C9DBFF03E06A87BE54357EB16E229660192B7B
 ```bash
 magnet:?xt=urn:btih:F08325DD6F5FD2D5D0E58904EF5E50141884F1BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +450,8 @@ magnet:?xt=urn:btih:F08325DD6F5FD2D5D0E58904EF5E50141884F1BF
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +477,8 @@ magnet:?xt=urn:btih:F08325DD6F5FD2D5D0E58904EF5E50141884F1BF
 magnet:?xt=urn:btih:A37794B7AB783EBEE7E1136830525D9464FF88F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +502,8 @@ magnet:?xt=urn:btih:A37794B7AB783EBEE7E1136830525D9464FF88F4
 ```bash
 magnet:?xt=urn:btih:149304C2F7782DAC8B3EB91CFE4A3AFEB29DF283
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +532,8 @@ magnet:?xt=urn:btih:149304C2F7782DAC8B3EB91CFE4A3AFEB29DF283
 magnet:?xt=urn:btih:684E8D456B7308B08C612639DAF5B4CB5BAA53D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +560,8 @@ magnet:?xt=urn:btih:684E8D456B7308B08C612639DAF5B4CB5BAA53D9
 magnet:?xt=urn:btih:78DC75FB409A71F072249A31FADAF5B3327FED0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +586,8 @@ magnet:?xt=urn:btih:78DC75FB409A71F072249A31FADAF5B3327FED0D
 magnet:?xt=urn:btih:6BAA354F70F99F2F9CB48D5307F7E83AE106EC70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +611,8 @@ magnet:?xt=urn:btih:6BAA354F70F99F2F9CB48D5307F7E83AE106EC70
 ```bash
 magnet:?xt=urn:btih:24CC3AF79A59DDC7A2A7E91297F600C70D773883
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +640,8 @@ magnet:?xt=urn:btih:24CC3AF79A59DDC7A2A7E91297F600C70D773883
 magnet:?xt=urn:btih:902232CA72F315C8A376AB92FAC7C056AD5E1246
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +668,8 @@ magnet:?xt=urn:btih:902232CA72F315C8A376AB92FAC7C056AD5E1246
 magnet:?xt=urn:btih:DFC46D9BBA6435B247DFDC466DB50EE0B02877EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,31 +694,7 @@ magnet:?xt=urn:btih:DFC46D9BBA6435B247DFDC466DB50EE0B02877EB
 magnet:?xt=urn:btih:667CB1B9FA7E7FEE57D9E85C87DA7613EB375E84
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535881   (682235) от 08.03.2022
-
-Анатолий Дроздов | «Малахольный экстрасенс» Книга 2. Экстрасенс разбушевался (2022) [MP3, Максим Суслов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анатолий Фёдорович Дроздов – известный писатель-фантаст, пишущий в разных жанрах. Представляем в аудиоформате вторую книгу его новой дилогии о попаданце, который очутился в девяностых годах прошлого века и обрёл экстрасенсорные способности.
-
-После смерти пенсионер оказывается в теле молодого человека, который обладает необычным даром. Как все помнят, в девяностые (   Читать дальше...   )Жанр: Героическая фантастика, Историческая фантастика, ПопаданцыПродолжительность: 10:08:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:561FA9F1B9CE425B4FC3A9141CE8EC3FF5046856
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

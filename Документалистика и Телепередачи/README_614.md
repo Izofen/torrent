@@ -1,3 +1,29 @@
+###  Публикация: 1502803   (825042) от 16.10.2021
+
+Живая еда с Сергеем Малозёмовым (16.10.2021) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брусника: как эту кислую ягоду используют для лечения зубов, почек и других органов? Есть ли польза от карпа? Как его приготовить так, чтобы не мучиться с костями, и за что эту рыбу особенно ценят в Японии?Насколько полезен йогурт и творог на домашних заквасках?«Рецепт недели» – венгерский яблочный пирог.Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CED67AF416756C8063D7F9C42065216CB350BD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502920   (825132) от 16.10.2021
 
 Своя игра (16.10.2021) WEBRip [H.264/1080p] (выпуск 2)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:2073DC22361C6DB74EB47FDB2EED0BF4EF879298
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:2073DC22361C6DB74EB47FDB2EED0BF4EF879298
 magnet:?xt=urn:btih:0820D9449ACBC11A5CC5A4F0E4D05893C8BC9837
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:0820D9449ACBC11A5CC5A4F0E4D05893C8BC9837
 ```bash
 magnet:?xt=urn:btih:79EDF78905DBC47C337CC20BE007F37A930D9C5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:79EDF78905DBC47C337CC20BE007F37A930D9C5D
 magnet:?xt=urn:btih:8B89CDE551F63AC5562FAB9B7B6E74A685C7BC10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:8B89CDE551F63AC5562FAB9B7B6E74A685C7BC10
 ```bash
 magnet:?xt=urn:btih:34FA500F13BA5B831FEEF983CFEB1916A94B5B62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:34FA500F13BA5B831FEEF983CFEB1916A94B5B62
 magnet:?xt=urn:btih:BC9EDC2A5204987A83227C41EF60B60476234949
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:BC9EDC2A5204987A83227C41EF60B60476234949
 ```bash
 magnet:?xt=urn:btih:5D53356C52D5BBD48531C765673A039344F8D1A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:5D53356C52D5BBD48531C765673A039344F8D1A3
 ```bash
 magnet:?xt=urn:btih:331EA5C61F5CF73649F0D2349F400B14EA3CE193
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:331EA5C61F5CF73649F0D2349F400B14EA3CE193
 magnet:?xt=urn:btih:2FC612244228CBC6097C88ACA39A44B7D6538650
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:2FC612244228CBC6097C88ACA39A44B7D6538650
 ```bash
 magnet:?xt=urn:btih:20AED8A8F3A989DC442AE8CE9F518FF7CFF04DD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:20AED8A8F3A989DC442AE8CE9F518FF7CFF04DD3
 magnet:?xt=urn:btih:EDDA94AD6218EA6D3F5557EB54C6D3A40DB6B39F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:EDDA94AD6218EA6D3F5557EB54C6D3A40DB6B39F
 magnet:?xt=urn:btih:23429B955DBEBF098ED35B61F4DCADF836917160
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:23429B955DBEBF098ED35B61F4DCADF836917160
 ```bash
 magnet:?xt=urn:btih:AAFEC9161DC2E3C9EF4DF1C635D8916208726EAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:AAFEC9161DC2E3C9EF4DF1C635D8916208726EAF
 magnet:?xt=urn:btih:00ADE903D6CFA7BCC847C412ED8CE920117055F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ History Channel: Поворот наворот / Counting Cars (2012-2015) HDTVR
 ```bash
 magnet:?xt=urn:btih:0E6B08E515AC1A4E3EB10498FDB80D57791FC23A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:0E6B08E515AC1A4E3EB10498FDB80D57791FC23A
 magnet:?xt=urn:btih:8FA20C6EBDDF9CAAEAB89AC3092B81E063955FC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:8FA20C6EBDDF9CAAEAB89AC3092B81E063955FC5
 ```bash
 magnet:?xt=urn:btih:F2CD6BDD975FB4078B739ED77AF68A0E491E8EC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:F2CD6BDD975FB4078B739ED77AF68A0E491E8EC0
 magnet:?xt=urn:btih:82250C5C9ABA878EC20914EEC1EEA2A139F5444B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:82250C5C9ABA878EC20914EEC1EEA2A139F5444B
 ```bash
 magnet:?xt=urn:btih:EE837316CEF6A902135F89DBC7B3A132E16B7F7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:EE837316CEF6A902135F89DBC7B3A132E16B7F7F
 magnet:?xt=urn:btih:C73D3085B6D2B1C1D057D0800DC9275E61A5344B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:C73D3085B6D2B1C1D057D0800DC9275E61A5344B
 ```bash
 magnet:?xt=urn:btih:6E2478138DDCDECAD11A68F67F90C89D93EA5E9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +603,8 @@ BBC: Терри Пратчетт: Снова в чёрном / Terry Pratchett: 
 magnet:?xt=urn:btih:10FC3C393A77B7C899FB91616231BBB735550929
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:10FC3C393A77B7C899FB91616231BBB735550929
 ```bash
 magnet:?xt=urn:btih:95998901661B8296D2C93E7F3518B66A63AD1D9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +655,8 @@ magnet:?xt=urn:btih:95998901661B8296D2C93E7F3518B66A63AD1D9F
 magnet:?xt=urn:btih:5939D419437F1970A0E6E6808EC9432C95EC5376
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,29 +681,7 @@ magnet:?xt=urn:btih:5939D419437F1970A0E6E6808EC9432C95EC5376
 magnet:?xt=urn:btih:5EF182E6717512BD25A627FA9CDB6E931CF7AE54
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115737   (826352) от 18.03.2017
-
-Научное расследование Сергея Малозёмова. Еда живая и мертвая (2017.03.18) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826352.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Еда живая и мертвая» – новый научно-популярный цикл Сергея Малозёмова, репортера с медицинским образованием, автора и ведущего программы «Чудо техники» и научных расследований о климате, технологиях, бессмертии и экологии.Производство: НТВЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B96C17E91B645FBCEBA510689AF2BC92F8921E55
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

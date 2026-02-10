@@ -19,6 +19,8 @@ Text Editor Pro 27.8.0 + Portable + Bonus [Multi/Ru]
 magnet:?xt=urn:btih:2A6DFB0D20D5C4B6FBE922F8B9EF219225AAD716
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ n-Track Studio — кроссплатформенный аудиоредакто
 ```bash
 magnet:?xt=urn:btih:1DE70EDD2A17113CD93A7AD324D013B549D2F834
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Wondershare UniConverter - простой в использовании виде
 magnet:?xt=urn:btih:3A9B10B74CA94DB7215EE1184D85D9CD7D70F9D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:A199B51A75D5D72DBA326220FC06F2EEE23ADDB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Glary Disk Cleaner - инструмент от компании Glarysoft для
 magnet:?xt=urn:btih:C9F7396CCF4405FD6AB96CA6DFAF5E44A7C41A39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ RubyMine — умная и удобная интегрированная сре�
 ```bash
 magnet:?xt=urn:btih:68FD4C8EF2DCC6F04E05076DFCA73817F03DF450
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Path Finder - один из лучших файловых менеджеров, 
 magnet:?xt=urn:btih:2B1B8755B04D1CBD44E6A935C68B6CFC08A45EB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ DVD-Cloner - это небольшая утилита, при помощи ко�
 ```bash
 magnet:?xt=urn:btih:3EB7D5787BB63BABF39068AE4B2D70089197DF70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Dropzone - удобная утилита для автоматизация ру�
 magnet:?xt=urn:btih:09E4D2B5267A08AB5DBED67A8CE4456BA812F0A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Athentech Perfectly Clear Video for Mac 4.6.0 [En]
 magnet:?xt=urn:btih:01ACE42C56E78930EDA7E5E00C4DDEDCE66CEDBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ VueScan - программа предназначена для замены ст
 ```bash
 magnet:?xt=urn:btih:FA17A1EEB468EFC9CBA8D6887BD6A28124269459
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Sync Folders Pro - это простое в использовании прил�
 magnet:?xt=urn:btih:219B00543E9D3A0E9E0BB5049663C29C5459085E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Text Workflow 1.7  [En]
 magnet:?xt=urn:btih:CDFFB5F759BEAED183094ABB15C5170E194105F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Icecream Video Converter Pro 1.35 Portable by 7997 [Multi/Ru]
 magnet:?xt=urn:btih:AB71514CC202335F749C96EAB86BE6E69AD4F5E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ FontCreator - Редактор шрифтов FontCreator может созда�
 ```bash
 magnet:?xt=urn:btih:572F120BEB7783EF77F1D8B5DFBDF7EB302912A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ EverWeb даже создает мобильные сайты, которые о
 magnet:?xt=urn:btih:87F0623989500D9670053F4413EC36E4A54902F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ System Dashboard Pro — это современная интерпретаци�
 ```bash
 magnet:?xt=urn:btih:D95E37E5A60E375CD4F44F290A6149A4BAA35097
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ PhotoSweeper — отличный способ поиска дубликатов
 magnet:?xt=urn:btih:9A728EEB4D0AE94BF7F985062439A9FA0325292E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ KCNcrew Pack - это огромнейший сборник серийников
 ```bash
 magnet:?xt=urn:btih:A55A0DEB0244A592EF55A37E945E8114EC6EAF16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ PhotoMill X (aka Reformator) помогает Вам преобразовать 
 magnet:?xt=urn:btih:719EB895E15E35DE9D6DFE873C22704320D056F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ Path Finder - один из лучших файловых менеджеров, 
 magnet:?xt=urn:btih:DD5DB5C78D7E7E8083855E4FBFAC38010AE31E2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ Microsoft Office 2021 — новый офисный пакет от корпор
 ```bash
 magnet:?xt=urn:btih:A78603AE17A0C761695D105B3206B1D55E1B1651
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ ADB AppControl - это новая и удобная программа для �
 magnet:?xt=urn:btih:4F9AE6E3E5959D0A52CEA5454ED302FDC8B44EAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ Adobe After Effects — одно из ведущих в отрасли прил�
 magnet:?xt=urn:btih:062EA584CF7D3D67A757EEC5DF499CA42DC172E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ Auslogics Driver Updater – программа представляющая с�
 magnet:?xt=urn:btih:4F528EB8A7F630488E03232C159DC755A7D5E1AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Adobe Photoshop Lightroom Classic 13.0.1.1 (x64) Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A4049C86E43935E75DC74A71F4772EFC0CACCC19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

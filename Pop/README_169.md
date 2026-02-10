@@ -1,3 +1,148 @@
+###  Публикация: 1322590   (446566) от 30.08.2019
+
+Александр Ягья - Вспоминай меня (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446566.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Вспоминай
+2. Отпусти меня
+3. Постой
+4. Меня не любила ты(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5F113F89392AB0B2B31ECAFBC9AC9AAD79F3116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569830   (447104) от 15.08.2022
+
+VA - The Best Of Italo-Disco Vol. 8 (1987) [OGG|485 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solo – Harem	5:36
+02. Linda Jo Rizzo – Heartflash (Tonight)	5:58
+03. Silver Pozzoli – Pretty Baby	5:58
+04. Mike Mareen – Agent Of Liberty	8:50(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:47:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC2706F85D77DC620EF7C93917769864C43DF775
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569818   (447187) от 15.08.2022
+
+VA - The Best Of Italo-Disco Vol. 5 (1986) [OGG|485 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solid Strangers – My Delight	6:12
+02. Jimmy & Susy – Come Back	6:03
+03. Max-Him – Japanese Girl	5:58
+04. Cruisin' Gang – America Medley With Machinery	7:27(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:38:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B0E796CEBA427BA1CBECA06B2202D0EB5FB98ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569806   (447191) от 15.08.2022
+
+VA - The Best Of Italo Disco Hits Vol. III (1985) [OGG|485 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby's Gang - Challenger
+02. Miko Mission - The World Is You
+03. Charlie - Space Woman
+04. Mike Rogers - Just A Story(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:16:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D4EFB2C52036315F24576D431992AB52C09ECC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569911   (447195) от 15.08.2022
+
+Ken Laszlo - Greatest Hits & Remixes (2016) [OGG|485 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Cry              	6:37
+02. Tonight (Vocal Version)	5:49
+03. Hey Hey Guy          	5:50
+04. Everybody Is Dancing	7:16(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11FB203238D4F84DEF043C4C99260D17B58B7F19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569666   (447202) от 15.08.2022
 
 Sandra - Fading Shades (1995) [OGG|485 Kbps] <Downtempo, Synth-pop>
@@ -21,6 +166,8 @@ Sandra - Fading Shades (1995) [OGG|485 Kbps] <Downtempo, Synth-pop>
 ```bash
 magnet:?xt=urn:btih:B22B67A1228CC40537E68ACF092A8CC5ADA5D650
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +196,8 @@ Brass & Congas - Brass & Congas (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul,
 magnet:?xt=urn:btih:CAFDFD66DB677BB7D1EFF4BA1AD3512B142EE812
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +224,8 @@ Lime - The Greatest Hits (Remixed) (2007) [FLAC|Lossless|tracks + .cue] <Disco, 
 ```bash
 magnet:?xt=urn:btih:E1B08DA2D4F75FE3FF9492C647D475C9FA6AC477
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +254,8 @@ Faith Hill - Cry (2002) Japanese Edition [FLAC|Lossless|tracks + .cue] <Country,
 magnet:?xt=urn:btih:7AA1F45F605BE5176A0BA634324A636E2434FE75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +283,8 @@ magnet:?xt=urn:btih:7AA1F45F605BE5176A0BA634324A636E2434FE75
 magnet:?xt=urn:btih:94703401A97D415FE6725C44C990C4EE410D8532
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +311,8 @@ magnet:?xt=urn:btih:94703401A97D415FE6725C44C990C4EE410D8532
 ```bash
 magnet:?xt=urn:btih:0AE507A4C4560FAE779513CDDA4B84C303777476
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +345,8 @@ magnet:?xt=urn:btih:0AE507A4C4560FAE779513CDDA4B84C303777476
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +375,8 @@ magnet:?xt=urn:btih:0AE507A4C4560FAE779513CDDA4B84C303777476
 magnet:?xt=urn:btih:2625B38DA91E04E82CF97195BF894AD32713728A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +403,8 @@ Terry Scott Jr. - Survivor (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disc
 ```bash
 magnet:?xt=urn:btih:7530075D5C644CA76FEA2D5B4A0FD0106DC32ABE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +433,8 @@ Modern Talking - Romantic Warriors - The 5th Album (1987) [OGG|485 Kbps] <Disco>
 magnet:?xt=urn:btih:F6549B6BD87D717EFCC7431ED5B61F38536897CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +461,8 @@ VA - Alle 40 Goed 00's (2013) 2CD [FLAC|tracks + .cue]<Pop, R&B, Electronic>
 ```bash
 magnet:?xt=urn:btih:0EFD7C6536D611E4254A35F62AC40B7A29A91D38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +491,8 @@ CD - 1:
 magnet:?xt=urn:btih:71E0008DDA133025200425AC56A65602B3518D2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +519,8 @@ Taylor Swift - Lover (2019) Japan, Special Edition [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:245A96FA7132693AE49F14B1106D66EA7C4504E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +549,8 @@ Michael Zager - американский музыкальный продюсер
 magnet:?xt=urn:btih:AF222F93395CC247B6D58023029A8A7690B0779A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +577,8 @@ magnet:?xt=urn:btih:AF222F93395CC247B6D58023029A8A7690B0779A
 ```bash
 magnet:?xt=urn:btih:BB0AE42D3C209320D489FC360EDBFE6EE6A8FC08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +607,8 @@ VA - Power of Love: 80s Love Songs (2018) [MP3|320 Kbps] <Pop  Funk, Disco>
 magnet:?xt=urn:btih:42831F4780D69705E515C4463D2AA8EAABCA0CBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +635,8 @@ VA - BRAVO Hits 91 (2015) [FLAC|Lossless|WEB-DL]<Top 40, Pop, Rock, Dance, R&B, 
 ```bash
 magnet:?xt=urn:btih:5B138A808E49DC4DE2648377FD2A26BF11FC1FEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +670,8 @@ Pia Zadora - Let's Dance Tonight (1984) [MP3|320 кб/с]<Pop-Synthpop>
 magnet:?xt=urn:btih:8890099D1029807A6A76F31C755BB9109523955E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +698,8 @@ Modern Talking - The 1st Album (1985) [OGG|485 Kbps] <Disco>
 ```bash
 magnet:?xt=urn:btih:E7A306C15C5606DE36F450A18F3D813DEBC36028
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +728,8 @@ Blue System - Body Heat (1988) [OGG|485 Kbps] <Disco>
 magnet:?xt=urn:btih:8B15520A32E31E884DD1E6C8CE21B4649950DB5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,140 +757,7 @@ Janet Jackson - Unbreakable (2015) Deluxe Edition [MP3|320 кб/с]<R&B, Pop>
 magnet:?xt=urn:btih:64A06B3A8F4C02400C9DC5AFA99557104717DF4B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569615   (451653) от 13.08.2022
-
-Oscar Rocchi's Orchestra - Video Dance (1981) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Supersonic (3:25)
-02. Cabala (3:29)
-03. Open Gate (2:53)
-04. Altro Mondo (2:32)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 00:38:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2069A5ADEECC705D4AAF2B4BADD013E60F9A6956
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569526   (451664) от 13.08.2022
-
-Blue System - Twilight (1989) [OGG|485 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magic Symphony	3:34
-02. Love Me On The Rocks	3:27
-03. Save Me	3:45
-04. Nobody Makes Me Crazy (Like You Do)	3:27(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:34:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4BCE8DE1D74C18400A2C7CD2C120CC7030D4E33
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569555   (451665) от 13.08.2022
-
-Blue System - Obsession (1990) [OGG|485 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Is Such A Lonely Sword  4:10
-02. When Sarah Smiles	3:41
-03. Behind The Silence	3:32
-04. 2000 Miles	3:46(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:36:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EDFB670198CCD3B02CB81A28F198638890C991E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322051   (452389) от 27.08.2019
-
-VA - Romantic Moonlight: Nostalgy (2001) Compilation [FLAC|Lossless|image + .cue] <Pop, Easy Listening, Romantic, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andy Williams - Love Story
-02. Henri Salvador - Petit Fleur
-03. Connie Francis - I Will Wait For You
-04. Charles Aznavour - Une Vie D'amour(   Читать дальше...   )Жанр: Pop, Easy Listening, Romantic, BalladПродолжительность: 01:18:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D716DE9135EA85DC48348374B7FB2D96A2A010B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163232   (452500) от 04.09.2017
-
-Soraya - Dolce Vita (2007) [MP3|320 Kbps] <Eurodance, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Dolce Vita (3:33)
- 02. Tonight (3:49)
- 03. Soul Survivor (3:49)
- 04. Sweet Dreams (3:51)(   Читать дальше...   )Жанр: Eurodance, PopПродолжительность: 00:41:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C601D6FAE2C99A81C3AFB6F578A85B5CB7B3DC5D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

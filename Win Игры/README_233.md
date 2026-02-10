@@ -19,6 +19,8 @@ Klonoa Phantasy Reverie Series представляет собой мини-сб
 magnet:?xt=urn:btih:CEC02D36DDB531EB3A204AC6983FC6377DA454FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Christmas Stories 12: The Legend of Toymakers (2023) [En] (1.0) Unofficial [Coll
 ```bash
 magnet:?xt=urn:btih:48A07DA622B14483324FACA58088575F0CC4B521
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Oddworld: Stranger's Wrath HD [Ru/En] (Repack) 2012 | R.G. Механики
 magnet:?xt=urn:btih:686DC7EBC15FE715B887BA62712C50160E756399
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Call of Juarez: The Cartel / Call of Juarez: Картель [Ru] (L/1.1.12) 2011
 ```bash
 magnet:?xt=urn:btih:0DDC70A41CADF281DFEAF05472EC8735562BC632
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -131,6 +139,8 @@ Armed Forces: Corp / Наемники: Бизнес под прицелом [Ru]
 magnet:?xt=urn:btih:66A31F38E8F5216FC55CD34CC96FDD389632D4D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ Goalgetter / Torschutzenkonig (2023) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:0EF5C82C1E984839E75E23A1A2DFB7AD5060EC44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -179,6 +191,8 @@ SGS Taipings - военный и политический симулятор, к
 magnet:?xt=urn:btih:275FE7ABECC2AEC58B453627D4BF86D48B6CB12D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ Indie Collection [Ru/En] (RePack) 2008 - 2011 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:9DCF2B68B1CB0C3A975209168EE6C104542B5AE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ Mystery Case Files 14: Broken Hour / За семью печатями 14: Раз
 magnet:?xt=urn:btih:D4900E26909DB06597BCFF9A87A3DBA400EFBDDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ Devil's Hunt (2019) [Ru/Milti] (1.5.0) License GOG
 ```bash
 magnet:?xt=urn:btih:9D974B6C415756863BF52EE7DFB193D0AFBB24CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ Waifu Fighter - Family Friendly переносит игроков в уника�
 magnet:?xt=urn:btih:BDF4035AAF13458A9159057D9745EAF4A3216882
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ art of rally - раллийная игра от создателя игры Abso
 ```bash
 magnet:?xt=urn:btih:67BD9DAF77858523CDA9093C36BC482BB032178D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ Little Inferno довольна необычна и уникальна в сво
 magnet:?xt=urn:btih:E949FB34FEDDDA200B12E79B22118E783B9ECBCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ The Basement Collection — это сборник, включающий в се�
 ```bash
 magnet:?xt=urn:btih:344650D0483F66ABD82078468034A583AC2C92B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ Bus Simulator 21 (2021) [Ru/Multi] (2.33/dlc) Scene Rune
 magnet:?xt=urn:btih:A988EFB623D35F0D5A3D093B52980DA752A4D326
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ World Racing 2 - аркадный симулятор, вдохновленный
 ```bash
 magnet:?xt=urn:btih:AE8571F69BD59E2B36E771FDD22223D233AE0093
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ Big Adventure: Trip to Europe 6 / Большое приключение: Пое�
 magnet:?xt=urn:btih:54FF7B67449CD769C48A76EB03A7C1E6A41D43A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ The Walking Dead: Destinies (2023) [Multi] (1.2.0.6) Repack DjDI
 ```bash
 magnet:?xt=urn:btih:61B1C7B417879ED7948816C009DA577ABE04F1AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ Plants vs. Zombies (2009) [Ru/En] (1.2.0.1096) Repack dixen18 [Game of the Year 
 magnet:?xt=urn:btih:538A432924BDAD88F9672DFD7E2FCBE09F911388
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ Christmas Wonderland 14 (2023) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:98826ACB6C83F243557EE3E7802FFDB27E0A2DFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +557,8 @@ Turok 3 Shadow of Oblivion Remastered - это точная реставраци
 magnet:?xt=urn:btih:0E11B2F591C61B56D5899053C73A930224CAFE27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ Another Day — это психологический хоррор, с граф�
 ```bash
 magnet:?xt=urn:btih:010A65937D0F138C60269BEE1A7B26E37B588027
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +609,8 @@ Zipp's Café - история о кафе в городе животных, на
 magnet:?xt=urn:btih:166158B271746E6A1CBB72622820F5ACEB0D16E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ Tourist Trap в царстве виртуальных приключений в�
 ```bash
 magnet:?xt=urn:btih:30CE6ED92F1208A632DD5AB4398785AE3ADEB3C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +661,8 @@ Fuga: Melodies of Steel 2 переносит в разрушенный войн�
 magnet:?xt=urn:btih:B32FCA428B649CC73668A283C434450FC7BE190B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ Creature Lab - симулятор лаборанта, занимающегося
 ```bash
 magnet:?xt=urn:btih:C97E1F4D0CC55BC0F2D712B017B5498AFF93C866
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

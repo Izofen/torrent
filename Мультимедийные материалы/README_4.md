@@ -19,6 +19,8 @@ Medialife | Трек с нуля до готового результата в F
 magnet:?xt=urn:btih:F7D2BFE073F3103A7CFF6B46B41F3AB787C6B276
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Windows — популярнейшая пользовательская ОС, ч
 magnet:?xt=urn:btih:4AAF9F90F8C9333E707FAB5A8FFAA1F3C8AFA1E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:4AAF9F90F8C9333E707FAB5A8FFAA1F3C8AFA1E4
 ```bash
 magnet:?xt=urn:btih:F5650E1AB5917FE921495173F4DC809C03E86467
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ HTML Academy | Регулярные выражения для фронтенде
 magnet:?xt=urn:btih:AE53757A2376F176AB8F91A72258F0D294612AD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ HTML Academy | TypeScript, часть 1. Теория типов (2022) [unpacke
 ```bash
 magnet:?xt=urn:btih:ED166785F0D2DC19521B5C9B0C9C95E057B56D98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ HTML Academy | Анимации, часть 1. CSS-анимации (2022) [unpa
 magnet:?xt=urn:btih:23D2E6E83A092251156BEEEB7339C79E061C6EB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ HTML Academy | Протоколы и сети: основы (2022) [unpacked]
 ```bash
 magnet:?xt=urn:btih:085052360B7250A202235351AE2410DAE27A0CB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:085052360B7250A202235351AE2410DAE27A0CB4
 ```bash
 magnet:?xt=urn:btih:239FE5954DD8ACA2802E8F618818D7062E513FC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -232,6 +248,8 @@ Atmel Corp | ATMEL AVR/AVR32 Technical Library May 2012 [2012] [ISO]
 magnet:?xt=urn:btih:F25407D5552D33C0AA8406479AAA0586A10346E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +278,8 @@ Design-Genetics-Studio | Уроки Joomla! 1.5.x [2009] [NRG]
 magnet:?xt=urn:btih:9B5D2521557879CFB1D670650CDDA6D01C27C235
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +303,8 @@ Cambridge English Grammar in Use  & Etc (1CD & Books)
 ```bash
 magnet:?xt=urn:btih:9F048E4E9E33DC2292F1095DC1B97F13CEA714BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +333,8 @@ Webpack помогает повысить производительность �
 magnet:?xt=urn:btih:412A89CEF503556BEC06588A79127F60D9591F95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +362,8 @@ Stepik | Продвинутая работа с ошибками в Go (Golang) 
 magnet:?xt=urn:btih:0EFED1060D151C7CDEC5B60F9FF806CB2A93DB79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +389,8 @@ Stepik, Антон Телышев, Дмитрий Назарков | Продв�
 ```bash
 magnet:?xt=urn:btih:72C709F7F271503CC2ECF6CD0B05A323F70B0D55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +419,8 @@ magnet:?xt=urn:btih:72C709F7F271503CC2ECF6CD0B05A323F70B0D55
 magnet:?xt=urn:btih:DEDD28435A460B96265CDF949BF48B7E0AAD8DD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +444,8 @@ DVD приложение к журналу "Хакер" №06 (161), 2012 [unpac
 ```bash
 magnet:?xt=urn:btih:C6CC2FC112A5F4C449DEB9C34B71209472E4BCC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +471,8 @@ magnet:?xt=urn:btih:C6CC2FC112A5F4C449DEB9C34B71209472E4BCC8
 magnet:?xt=urn:btih:1989B82EB4082A31B0AC5DDACE4FC2C47253D953
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +496,8 @@ DVD приложение к журналу Хакер №01 (156) [2012][unpacke
 ```bash
 magnet:?xt=urn:btih:BB0ABC80989C308C417264CB0068B4FFC91D5887
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +523,8 @@ magnet:?xt=urn:btih:BB0ABC80989C308C417264CB0068B4FFC91D5887
 magnet:?xt=urn:btih:6847B1CB0BECD67416DAF1614D63823DCB6C32A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +548,8 @@ magnet:?xt=urn:btih:6847B1CB0BECD67416DAF1614D63823DCB6C32A1
 ```bash
 magnet:?xt=urn:btih:9CD26C55B775CEA9F006E722092E4AE9A53A90D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +577,8 @@ magnet:?xt=urn:btih:9CD26C55B775CEA9F006E722092E4AE9A53A90D0
 magnet:?xt=urn:btih:841AE116E70C93EB804B054F72D193141B75F07C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +603,8 @@ magnet:?xt=urn:btih:841AE116E70C93EB804B054F72D193141B75F07C
 ```bash
 magnet:?xt=urn:btih:A9201FBFFC6C7C5262BD93D44A0B518572BBAD0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +631,8 @@ magnet:?xt=urn:btih:A9201FBFFC6C7C5262BD93D44A0B518572BBAD0D
 magnet:?xt=urn:btih:EB22FC064B85D67009B8CC8BD36A49E4B2C74ECC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +657,8 @@ Chip (Чип) — первый компьютерный журнал в Евро
 magnet:?xt=urn:btih:7C2D2030EAE00A6943D0E96F6861F9B5DA4C5183
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +682,8 @@ Windows 7 от «А» до «Я» [2011] [EXE]
 ```bash
 magnet:?xt=urn:btih:38C4B2CD9222B3A47014E17B94641EC8623194F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -661,6 +711,8 @@ Version 02(   Читать дальше...   )Жанр: Руководство �
 ```bash
 magnet:?xt=urn:btih:04E6F0C584689626D6944406DF85A4841B5D291A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:A014B9F2F01221A1B804534042A41FF6628ACD06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Baymax - это графический шрифт, вдохновленный д
 ```bash
 magnet:?xt=urn:btih:581BD33D432B1A912E704284ABCEC07034340F04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:581BD33D432B1A912E704284ABCEC07034340F04
 magnet:?xt=urn:btih:93D30ABC19A3D57262D7B6096743E82AF05ED11B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Uncage Ext - это вторая версия шрифта UNCAGE, в котор
 ```bash
 magnet:?xt=urn:btih:E28D3E0FAB65519BB3C75617ACCD1139083A788F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Mongule — футуристический шрифт без засечек с �
 magnet:?xt=urn:btih:93DE8DEE33FD54448F361B8541815ADF68B073E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Microbots — это футуристический пиксельный шри�
 ```bash
 magnet:?xt=urn:btih:2C9F316F8CFA248D2F9843270B6BB9A31D205E38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:2C9F316F8CFA248D2F9843270B6BB9A31D205E38
 magnet:?xt=urn:btih:D8630226E27367374DC09E0F5F0F9271663F3AFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Renastica — современный рукописный шрифт, созда
 magnet:?xt=urn:btih:D9F1DB89010985F2E22BB2DF23A2735F06D31776
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:D9F1DB89010985F2E22BB2DF23A2735F06D31776
 ```bash
 magnet:?xt=urn:btih:487EBE21CEA312E1A35A941B84C7C1627D1FCDAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:487EBE21CEA312E1A35A941B84C7C1627D1FCDAD
 magnet:?xt=urn:btih:FDD70B22CDD648F30988D1E9333D4D5C7428567E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Shiver Grim — пугающий шрифт для Хэллоуина, вопл�
 ```bash
 magnet:?xt=urn:btih:6E3E44C25623695ED252BA724D2B4F460BEC76D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:6E3E44C25623695ED252BA724D2B4F460BEC76D0
 magnet:?xt=urn:btih:74467371C004BDF74047018BACB5A0EF6ABA2849
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:74467371C004BDF74047018BACB5A0EF6ABA2849
 ```bash
 magnet:?xt=urn:btih:D6A9BAFD614FC12E150CBFD41B671E503589A7C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:D6A9BAFD614FC12E150CBFD41B671E503589A7C7
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Brenzo - это современный геометрический шрифт �
 ```bash
 magnet:?xt=urn:btih:E480FF3D522745322714ED1AD5141ADC2128C20F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Crenalia отличается контрастным, ярким характе�
 magnet:?xt=urn:btih:14AB5EDF0BE6117FBF3615F66AB650F844029399
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ CS Brownie — смелое выражение радости и причудл�
 ```bash
 magnet:?xt=urn:btih:CF0008A7CE25D37FBD02215A7CDC6EFBA61D9470
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ MONIQA - это шрифт с вариабельным отображением.
 magnet:?xt=urn:btih:FFB99EBC6DB3ED4CBE2F46E479DF8752D229CD84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Granke - это больше, чем просто шрифт, это заявл�
 ```bash
 magnet:?xt=urn:btih:F5D9904B5F91116E75FE9599F7E6DDEF54CA963E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:F5D9904B5F91116E75FE9599F7E6DDEF54CA963E
 ```bash
 magnet:?xt=urn:btih:E27756C206194507AC4E0D3251A6BBB3DFE5AD4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ Voland — шрифт с засечками, разработанный для �
 magnet:?xt=urn:btih:2CFF1DD6342ECE5C4FB0A3505D34356BCAD7BB5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:2CFF1DD6342ECE5C4FB0A3505D34356BCAD7BB5D
 ```bash
 magnet:?xt=urn:btih:26C0B18CA2046A908506A0DDD1B697286C978552
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ Sato — универсальный и удобный шрифт без засе
 magnet:?xt=urn:btih:EBA8C87D07232885AE0A1A9767A479FCBA95A89A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:EBA8C87D07232885AE0A1A9767A479FCBA95A89A
 ```bash
 magnet:?xt=urn:btih:541901C4DE6CC31CFCBFC15FEE4E403B9C588F9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:541901C4DE6CC31CFCBFC15FEE4E403B9C588F9B
 magnet:?xt=urn:btih:44211F133A0A5BB2E94D2B5C9AFC0B11CCFB3D7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:44211F133A0A5BB2E94D2B5C9AFC0B11CCFB3D7D
 ```bash
 magnet:?xt=urn:btih:5343FC2E25888EE91962129C41737A720D14E4BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

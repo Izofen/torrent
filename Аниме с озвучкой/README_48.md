@@ -19,6 +19,8 @@ Usagi Drop | Брошенный Кролик [2011, TV, 11 ep + 4 sp] BDRip 1080
 magnet:?xt=urn:btih:37ADD7B7B08378C8A23C9A7C32092D11CED87EBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ No Guns Life | Жизнь без оружия [TV-1] [2019, TV, 12 из 12] BDRi
 ```bash
 magnet:?xt=urn:btih:F7C6E7C06C96ED9350BEB982830F3747A6496CCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Tokyo Magnitude 8.0 | Токийское Восьмибалльное [2009, TV,
 magnet:?xt=urn:btih:84ABAF0CAB1757817D38982CE267F27D62CED384
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Chuunibyou demo Koi ga Shitai! Movie: Take On Me | Чудачество Любв
 ```bash
 magnet:?xt=urn:btih:3EBEFD8ABEF91F4478F700A5E66D5391951A823E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ True Tears | Настоящие Слезы [2008, TV, 13 ep + 8 Specials] BDRip 
 magnet:?xt=urn:btih:40C6D304521439FB32C623FDB7526A718B296C27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Zero no Tsukaima: Princess no Rondo | Подручный Бездарной Лу
 ```bash
 magnet:?xt=urn:btih:8446FBD1FEF889441D342658C4F26A84982685A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Zero no Tsukaima F| Подручный Бездарной Луизы: Финал
 magnet:?xt=urn:btih:0C07EB82A3DF7B1F89A6F286F3E724BFB8F15E2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Hagane no Renkinjutsushi / Fullmetal Alchemist: Brotherhood / Стальной �
 ```bash
 magnet:?xt=urn:btih:EBF84C291E1935558E41F8477DE01FA4CF25456A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Evangelion. 2.22 You Can [Not] Advance | Евангелион. 2.22 Ты (не) 
 magnet:?xt=urn:btih:2EEE5AD0E21BA8E8DAF17338B615485DC547A22D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Umi ga Kikoeru | Ocean Waves | Здесь слышен океан [1993, Movie] 
 magnet:?xt=urn:btih:2A6D9B3C8DEE2D224902CC8DE0C0527887121CD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Highlander: The Search for Vengeance | Горец: В поисках мести 
 ```bash
 magnet:?xt=urn:btih:3AE59FB964F4954DEDA42AEA7C20DC23EEE4D1FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ Seishun Buta Yarou wa Yumemiru Shoujo no Yume o Minai | Эта глупая св
 magnet:?xt=urn:btih:04BB6CBD33E12EA5CFC06D98E03C3B951BEB51D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Strike the Blood III | Удар Крови [OVA-3] [2018, OVA, 10 ep] BDRip 1080
 magnet:?xt=urn:btih:82A58FC30B03EBAE1CEEC96F595760187676B271
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ The Rolling Girls | Девчонки-путешественницы | Девча
 ```bash
 magnet:?xt=urn:btih:46C964F46F52135F9FCF7BF39C0CA9D955E31D7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ TV-1 (AniDub), (Anilibria), - внешними файламиЯзык субти
 magnet:?xt=urn:btih:EB74F6E025D7EB37D367EB5E82D275436C437362
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Kimi no Na wa | Твоё Имя [2016, Movie] BDRip 1080p 10-bit raw+rus
 ```bash
 magnet:?xt=urn:btih:AECB80B239F089D4E99A39B035A7DD2AE644CA9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ Lord El-Melloi II Sei no Jikenbo: Rail Zeppelin Grace Note - Hakamori to Neko to
 magnet:?xt=urn:btih:760C37B6EC871383BC41FD448F31063AB498AD4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ Fate/Apocrypha / Судьба/Апокриф [2017, TV, 25 ep] HDTV 720p Raw+Rus
 ```bash
 magnet:?xt=urn:btih:D43E0F3D197FFFFAB23B1F76CEE6ABB0AB4D5812
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ Just Because! / А просто так! [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
 magnet:?xt=urn:btih:3E703B2751B597693989EBD37C0436972697DD98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ Goblin Slayer / Убийца гоблинов [2018, TV, 12 ep] WEB-DL 720p Raw+
 ```bash
 magnet:?xt=urn:btih:69B4D27C5AAA938C4D2F413FFF7094544E0C1708
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ Kureopatora | Cleopatra | Клеопатра, королева секса [1970]
 magnet:?xt=urn:btih:7BB463E500C1368C17064FEC3DD9C69FB839682F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ Sword Art Online II | Мастера Меча Онлайн II [ТВ-2] [2014, TV
 ```bash
 magnet:?xt=urn:btih:D57B76C60EBEBFB336259227D703B90AE39919D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ Goblin Slayer | Убийца Гоблинов [2018, TV, 12 ep] BDRip 1080p raw+
 magnet:?xt=urn:btih:A2A91E96E88B0B0F2A837762DAC98A1B6E8007BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ Bosco daiboken | Bosco Adventure | Приключения Боско [1986, TV, 
 ```bash
 magnet:?xt=urn:btih:B5E79DD637E822EC043D8E0477175F8ADFCB757E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ Bosco daiboken | Bosco Adventure | Приключения Боско [1986, TV, 
 magnet:?xt=urn:btih:3A850B0C4D26B82C79E002CD8BC9141DE2BF5B6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Gekijouban Violet Evergarden | Violet Evergarden the Movie | Виолетта Э
 ```bash
 magnet:?xt=urn:btih:FC2D193660F57BB7A4B0AF9A51BBB7595C83E941
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

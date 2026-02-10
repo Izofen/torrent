@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:9C80B0438F329F890DAA3C1D4759D3380DDC1D84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:9C80B0438F329F890DAA3C1D4759D3380DDC1D84
 ```bash
 magnet:?xt=urn:btih:985841285BBCBCE31984ED985FE0B6AB3CE200CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Pablo Munoz Gomez | A Guide To: ZBrush Comic Style Render / Руководств
 magnet:?xt=urn:btih:674D39DA819F25FE485E657FE6481717F175AA62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Takashi Iijima | Action Anatomy: For Gamers, Animators, and Digital Artists / А
 ```bash
 magnet:?xt=urn:btih:1CAA0267BAD490570B16151BC7E7A9631BF3B0DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Publishing Python Packages научит вас, как легко делитьс
 magnet:?xt=urn:btih:6F262AF646465E5DA9D749CD6A28D686B75DA118
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Steve Santello, Alan R. Stagner | Building an RPG with Unreal / Построен
 ```bash
 magnet:?xt=urn:btih:62A7DC6E13EDB876F0C5FCBF1B24AC857444C048
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:62A7DC6E13EDB876F0C5FCBF1B24AC857444C048
 magnet:?xt=urn:btih:4BE198B6DBAAD395F379D027E4EFF4FC5AB4562A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:4BE198B6DBAAD395F379D027E4EFF4FC5AB4562A
 magnet:?xt=urn:btih:997E29637E242DA72705AA79A87C3691856B620E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:997E29637E242DA72705AA79A87C3691856B620E
 ```bash
 magnet:?xt=urn:btih:0C7774876927AA96ED2D5EFF397FD4601E0A89A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ Did you know that most Python programmers waste 70% of their time Googling the s
 magnet:?xt=urn:btih:DD38CC09B981B80B25F328DCAF97DB4ABF2B300B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ This book covers Raspberry Pi 5 OS concepts and commands that allow a beginner t
 ```bash
 
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ JavaFX — это платформа для создания Rich Internet Appli
 magnet:?xt=urn:btih:3FFAF542D404CC915E25FCF5CB4E2715D8BFAA05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:3FFAF542D404CC915E25FCF5CB4E2715D8BFAA05
 ```bash
 magnet:?xt=urn:btih:4558FD95B94A6AD912B2EFBB0C04D93A9ABF9E86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:4558FD95B94A6AD912B2EFBB0C04D93A9ABF9E86
 magnet:?xt=urn:btih:64A6C4A2BC7D889B43A3603B5AC6A595ADFF95EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:64A6C4A2BC7D889B43A3603B5AC6A595ADFF95EF
 ```bash
 magnet:?xt=urn:btih:C37AEA3664C12AC5B983F0943E527D8DF271B2F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:C37AEA3664C12AC5B983F0943E527D8DF271B2F1
 magnet:?xt=urn:btih:2CDE59EE48984A0305AA5DABCE60B54077E42C39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:2CDE59EE48984A0305AA5DABCE60B54077E42C39
 ```bash
 magnet:?xt=urn:btih:928AA9AC6346E0B4317EE3A600BB35D6150EC758
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:928AA9AC6346E0B4317EE3A600BB35D6150EC758
 magnet:?xt=urn:btih:CD030D8E7CA168825511F6FEFA9E52C0525FD5BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:CD030D8E7CA168825511F6FEFA9E52C0525FD5BD
 magnet:?xt=urn:btih:F9EED9684EB1EE622D58E46DFB3CE9ED6C57C4C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ Matthew Dowst | Practical Automation with PowerShell (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:15C01A611C7C278D591590862FD7F61F140FD031
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ John Sharp | Microsoft Visual C# Step by Step, 10th Edition (2022) [PDF][EN]
 magnet:?xt=urn:btih:16E89A55FC201EEB7E2B2E4F010CF84981E15F32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ Federico Kereki | Mastering JavaScript Functional Programming, 3rd Edition (2023
 ```bash
 magnet:?xt=urn:btih:1D60C7615AF2E2BE4B9020B609FE4A897AB40D95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ Marten Deinum, и др. | Spring 6 Recipes: A Problem-Solution Approach to Sprin
 magnet:?xt=urn:btih:9EE4C63524B9BAD144E307373EBEA1637513077D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ Junghyun Seok, он же Стоунхаус, написал это очень п
 ```bash
 magnet:?xt=urn:btih:FB54E28FB81B73C500224967C3165C633894F6BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +660,8 @@ Sveta Smirnova, Alkin Tezuysal | MySQL Cookbook, 4th Edition (2022) [PDF][EN]
 magnet:?xt=urn:btih:C2FF589E9D0F31B2924992D8731DF4FFC7A647F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ Florian Rappl | Modern Frontend Development with Node.js (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:896BFF2A13AFF210659947816296ABBC130897ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:014B571C52D02E1F085EE5EC7B5932833BAEE325
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Simple PDF Reader \ Простой PDF Reader v1.0.82 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:6209C4816C8B757FAED4E200552A1CC40409C73E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:6209C4816C8B757FAED4E200552A1CC40409C73E
 magnet:?xt=urn:btih:258FE2A4F46DD010FAC9209D8BB51300AA2ED388
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ The Tartarus Key (2023) [En] (01.01b) License GOG
 ```bash
 magnet:?xt=urn:btih:CE44695C59A01682F72A87B096E6B05C8EF51AB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:CE44695C59A01682F72A87B096E6B05C8EF51AB1
 magnet:?xt=urn:btih:5FC7A3E7DE6A8DC8DFC399448D6CBDE525C7820D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:5FC7A3E7DE6A8DC8DFC399448D6CBDE525C7820D
 magnet:?xt=urn:btih:B63E262025D291A3DE867F1CFC4486E59697C7D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Dr. Fetus' Mean Meat Machine - это идеальный баланс между
 ```bash
 magnet:?xt=urn:btih:71AACA667D9E0FF25035DCB5F2AFBB77010C2613
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:71AACA667D9E0FF25035DCB5F2AFBB77010C2613
 magnet:?xt=urn:btih:F37ABA3E4D08830A99311A1F6A3E739479CDA9F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:F37ABA3E4D08830A99311A1F6A3E739479CDA9F5
 ```bash
 magnet:?xt=urn:btih:745DBBED36088D4B94338CB607BF24791678C1C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Civitatem - однопользовательский градостроител�
 magnet:?xt=urn:btih:CEAF35E3B9D9B26FBD636DC3BC848163E2F84BD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:CEAF35E3B9D9B26FBD636DC3BC848163E2F84BD9
 ```bash
 magnet:?xt=urn:btih:3D169FD358A099F685F9E6B65BA09A43D302ECA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:3D169FD358A099F685F9E6B65BA09A43D302ECA8
 magnet:?xt=urn:btih:C9EFAB19A3A159DCC3E0547F65495FCFC933FBDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:C9EFAB19A3A159DCC3E0547F65495FCFC933FBDB
 ```bash
 magnet:?xt=urn:btih:818F2C28F0A9566332E71DF815993ED112519529
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Sludge Life 2 - это продолжение сюрреалистическог
 magnet:?xt=urn:btih:95245C0795821D0B615C61C7750CD6AE11DBDF89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:95245C0795821D0B615C61C7750CD6AE11DBDF89
 ```bash
 magnet:?xt=urn:btih:040C1EF056339B73F1246BAB2EADBA96CC4E9D86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:040C1EF056339B73F1246BAB2EADBA96CC4E9D86
 magnet:?xt=urn:btih:94A05F20716D082E838E9A959D2FCAF4138B3309
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:94A05F20716D082E838E9A959D2FCAF4138B3309
 ```bash
 magnet:?xt=urn:btih:2D96C396EF03B6FAD4BCF177C568422256A46C3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:2D96C396EF03B6FAD4BCF177C568422256A46C3B
 magnet:?xt=urn:btih:C42FF2EF7EC12ACB05407C2593A648D2D3B6A2E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:C42FF2EF7EC12ACB05407C2593A648D2D3B6A2E3
 ```bash
 magnet:?xt=urn:btih:0A46F7F40DA8DBF7D7F6ACB10B7356E2DA2A6A55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:0A46F7F40DA8DBF7D7F6ACB10B7356E2DA2A6A55
 magnet:?xt=urn:btih:668C2771CE3E75AFC2B79712425D9A3817F5C267
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ Tengoku Daimakyou | Heavenly Delusion | Великая небесная стен
 ```bash
 magnet:?xt=urn:btih:5FAD00E3556CB2B763CC0705BF1D7948B8F25F9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ A Long Journey to an Uncertain End – смесь квеста и приключ
 magnet:?xt=urn:btih:196BA8773B6EAFA776E440ABA0D752A9BCB73D20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:196BA8773B6EAFA776E440ABA0D752A9BCB73D20
 ```bash
 magnet:?xt=urn:btih:4190B8B33C029C5A1C0F6A6B416E30C7F242311E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:4190B8B33C029C5A1C0F6A6B416E30C7F242311E
 magnet:?xt=urn:btih:68BA583BCAC649F1413C6C47463EF55A3F78D11F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:68BA583BCAC649F1413C6C47463EF55A3F78D11F
 magnet:?xt=urn:btih:B674D9F0F08A2A5554A967EB359B9E773363FE5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:A43D04BCC8E20A97F82C82B4358093C3AA48DA2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ VA - Trance Collection Vol.55 (2016) [MP3|96-320 Kbps] <Trance, Progressive Tran
 magnet:?xt=urn:btih:6AD630E8AF9D2CE922F274CD0B998790EFDAA34C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Best of Perplexity 2016  [MP3|320 Kbps] <House, Tech House, Deep House, Ele
 ```bash
 magnet:?xt=urn:btih:9371B8D9D952FFE47D856D6E6B1326CD3EBEC652
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Зимний шансон года Выпуск № 3 (2016) [MP3|256 Kbps]
 magnet:?xt=urn:btih:6EE7B0F3DE1A15D8549419AD2D454D7469A32026
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Музыкальный заряд Выпуск № 10 (2016) [MP3|256 Kbps]
 ```bash
 magnet:?xt=urn:btih:5D513A21F4018016C7F944738859A266A3B76612
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Танцевальная зима. Выпуск № 2 (2016) [MP3|256 Kbps]
 magnet:?xt=urn:btih:5B8D85AAA771B664F6233D8608E8D41D9FB73DED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Хиты под водочку: Замкнутый круг (2016) [MP3|320
 ```bash
 magnet:?xt=urn:btih:CDC82AC28F2633214D20792E18DFFCB3F6A2FD1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Отрывайся с лучшими хитами. Сборник № 6 (20
 magnet:?xt=urn:btih:F8974FB51499C83116B4A02B064F67D40FBCE530
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Музыкальные новинки. Only Best Hits № 3 (2016) [MP3|256
 ```bash
 magnet:?xt=urn:btih:A18A58A85B17C42CB288E47061C061BBCA9AFD99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Bond - Just Bond Compilation (2018) [MP3|320 Kbps] <Instrumental, Classical Cros
 magnet:?xt=urn:btih:67269046F5EA312A75BCE6A543A86E8C3EE6F603
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ The BossHoss - Compilation (2021) [MP3|320 Kbps] <Rock/Country/Rockabilly>
 ```bash
 magnet:?xt=urn:btih:1B3E5938B74B222EC7EA07EF2FEAABAE60CFB8A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Хиты под водочку: Поворот на 360 (2005) [MP3|320 Kbp
 magnet:?xt=urn:btih:35C5C71F98ABA7007EB76CA8E005C6596DAB2493
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Взрывной Хит-Парад выпуск № 4 (2016) [MP3|256 Kbps]
 ```bash
 magnet:?xt=urn:btih:B180E44F61D8FEFA1773BE28C79677D2A8C800E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ CD1 Preparty
 magnet:?xt=urn:btih:BE3450F9EA985C8584A797BA9C7DB5581B3C680C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Part 1 (Discoteka):
 ```bash
 magnet:?xt=urn:btih:BE0445D8F6A944FD264C37D9E344BCCD75DD6E5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Top 100: Most-Read Lyrics (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:4B9F4032A41F41A67AD1EA2FA90A21A948A53487
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - Trance In Motion Vol.368 (2023) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 ```bash
 magnet:?xt=urn:btih:940D46A13CC389BA1C84B639835318BF18E3C7F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - Шансон в натуре (2015) [MP3|320 кб/с] <Шансон>
 magnet:?xt=urn:btih:7EB5D9DA2AE15182E532F5F960E59604B7E564F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ VA - Trance In Motion Vol.367 (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:453FCD2E4577DD27C29737DA704D670ABB25B988
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ VA - 80's Hits Time Machine (2018) [MP3|320 Kbps] <Pop, RnB, Alternative, Rock>
 magnet:?xt=urn:btih:6481C78AC91E967296A1EA976352C1E0BAD66BD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ Roxette - 25 Best Songs (2012) [MP3|~245 кб/с]<Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:97B93C35286A569607E97DB663AD6C388420C7DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ VA - ЕвроХит Топ 40 Europa Plus 25.12.2020 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:E93DB816AA8CEDBF15F74D937A8B24EA82E2E4BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ magnet:?xt=urn:btih:E93DB816AA8CEDBF15F74D937A8B24EA82E2E4BC
 ```bash
 magnet:?xt=urn:btih:2E2B927FC369E654DDB47436B91ABF88AEF2F34E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ VA - Chill Session 2016 (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:105FCEB0370EB732EADFD0544D7E374CA659D221
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ VA - Privileged Euro Trance: December Party (2015) [MP3|320 кб/с] <Trance, Pr
 ```bash
 magnet:?xt=urn:btih:F802A718A392BE223ECAF6901839E715B634ACC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ VA - DJ Mixes New Year 2022 (2021) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:8A0777EFBB58BC30FA06F6D30F833055C2E7F86E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ VA - Blues Collection 5 (2016) [MP3|320 Kbps] <Blues, Folk, Rock>
 ```bash
 magnet:?xt=urn:btih:3C0341CE4B5C3280139CFBE24F04588CFCCC27FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

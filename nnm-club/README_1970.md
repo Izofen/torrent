@@ -22,6 +22,8 @@ Rhapsody или Rhapsody of Fire — итальянская метал-груп�
 magnet:?xt=urn:btih:3C2C65835422E1FA7AFAA26ED403B9992AAA2D57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:3C2C65835422E1FA7AFAA26ED403B9992AAA2D57
 ```bash
 magnet:?xt=urn:btih:1689999C8FC47A475684DAC620FF9C6BE7C29556
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:1689999C8FC47A475684DAC620FF9C6BE7C29556
 magnet:?xt=urn:btih:B92C2263CAA71F82923D771CA91369925C1DAB50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:B92C2263CAA71F82923D771CA91369925C1DAB50
 ```bash
 magnet:?xt=urn:btih:68D7A3C712C5E89AE3508B60AF6FEB9D5B60FF25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:68D7A3C712C5E89AE3508B60AF6FEB9D5B60FF25
 magnet:?xt=urn:btih:1B4B92A9DDAE7B55875AF96B09726CFF890DB517
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:1B4B92A9DDAE7B55875AF96B09726CFF890DB517
 magnet:?xt=urn:btih:7E823B8C43A92C9279064F6A99C4841D2905521E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:7E823B8C43A92C9279064F6A99C4841D2905521E
 ```bash
 magnet:?xt=urn:btih:A26ABE1BAD7A240B67849016AB694203DFB6145D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +215,8 @@ VA - Markus Schulz - Sunrise Set 2024 (Emotional Dance Mix) (2024) [MP3|320 Kbps
 magnet:?xt=urn:btih:C006817FDFEF04E43524B4EF39E8A93413BE1128
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ Al Di Meola - Eden (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Jazz, Fusion>
 magnet:?xt=urn:btih:F1DAA7385BC736C6BD8C5BD36FB851A9573A3C6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ magnet:?xt=urn:btih:F1DAA7385BC736C6BD8C5BD36FB851A9573A3C6E
 ```bash
 magnet:?xt=urn:btih:D8D2ACE73EF01F828A492AAF553D5EA62BE743F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +298,8 @@ QuickMemoryTestOK - небольшая, но эффективная утилит
 magnet:?xt=urn:btih:ACFF32EC877C5A2C9B955BD91B8E514597BD369A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ magnet:?xt=urn:btih:ACFF32EC877C5A2C9B955BD91B8E514597BD369A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:ACFF32EC877C5A2C9B955BD91B8E514597BD369A
 magnet:?xt=urn:btih:E60DA4F9CF0F939D4CD04614074325A98ED14906
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:E60DA4F9CF0F939D4CD04614074325A98ED14906
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:E60DA4F9CF0F939D4CD04614074325A98ED14906
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:E60DA4F9CF0F939D4CD04614074325A98ED14906
 ```bash
 magnet:?xt=urn:btih:FD06704A74DBB09EAD4475C17F6901EA07C9FD21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:FD06704A74DBB09EAD4475C17F6901EA07C9FD21
 magnet:?xt=urn:btih:5C2E57E5426FF3BF5FF5E3D2EA9BC36581ED62B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:5C2E57E5426FF3BF5FF5E3D2EA9BC36581ED62B1
 ```bash
 magnet:?xt=urn:btih:266B0BC73B99C9221C30AE8AD1FF280EB7EC751A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +509,8 @@ VA - ЕвроХит Топ 40 Europa Plus 28.06.2024 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:E08AE29A15C02BB6731CCDAA8C4C963E1E0B2075
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ magnet:?xt=urn:btih:E08AE29A15C02BB6731CCDAA8C4C963E1E0B2075
 ```bash
 magnet:?xt=urn:btih:3F795C37BAA6420918598D46E5EE9B06831CF692
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:3F795C37BAA6420918598D46E5EE9B06831CF692
 magnet:?xt=urn:btih:B11FC26D90381B97C797157E1933D05661559FA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:B11FC26D90381B97C797157E1933D05661559FA0
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +613,8 @@ magnet:?xt=urn:btih:B11FC26D90381B97C797157E1933D05661559FA0
 magnet:?xt=urn:btih:BC5D62EB175EF24BF7D77BAD196E547801AA815A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ magnet:?xt=urn:btih:BC5D62EB175EF24BF7D77BAD196E547801AA815A
 ```bash
 magnet:?xt=urn:btih:F70229DC65326064683BD70D938F50BC34E82193
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +665,8 @@ magnet:?xt=urn:btih:F70229DC65326064683BD70D938F50BC34E82193
 magnet:?xt=urn:btih:1F7B6860A45DD467859D0919BBFCC024A742A24A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ Mystery Detective Adventure / Мистическое детективное пр
 ```bash
 magnet:?xt=urn:btih:6F1DAF122E5D3B58F0E1831E6361D272B89D0F48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

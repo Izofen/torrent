@@ -1,3 +1,29 @@
+###  Публикация: 1131922   (704597) от 07.05.2017
+
+Первая передача на НТВ. Автомобильная передача (2017.05.07) SATRip (выпуск 291)
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704597.jpg" />
+</div>
+
+
+###  Подробнее
+
+« Первая передача» — новый проект для автомобилистов и про автомобилистов. Ведущий «Первой передачи» — Виктор Травин, президент Коллегии правовой защиты автовладельцев. Уже много лет этот известный журналист защищает права автолюбителей. В автомире для него нет секретов и закрытых дверей. Всех, кто не представляет своей жизни без автомобиля, и тех, кто только задумывается (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаРежиссер: Роман ИовицаСубтитры: ОтсутствуютПродолжительность: ~ 00:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:134516281DD6CD11464B30DA23D9D6DA547BC65D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132003   (704705) от 07.05.2017
 
 Вечная жизнь. Свидетельства бессмертных (2017) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:BF350B6F34800D3F78A7A22EE029CBF5D700E93B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:BF350B6F34800D3F78A7A22EE029CBF5D700E93B
 ```bash
 magnet:?xt=urn:btih:B9AC89F190969D8C6B74761B34792722BC16E753
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:B9AC89F190969D8C6B74761B34792722BC16E753
 magnet:?xt=urn:btih:ED79B8F43BBCD6791CCDE9144C3E6EDD2D11DCF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:ED79B8F43BBCD6791CCDE9144C3E6EDD2D11DCF6
 magnet:?xt=urn:btih:A1D198A3B401E0EC8A11C5AF7452C2A40BEE2ED5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:A1D198A3B401E0EC8A11C5AF7452C2A40BEE2ED5
 ```bash
 magnet:?xt=urn:btih:D983A6BA50FF78704A2D214A715D18B13FA7DED9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:D983A6BA50FF78704A2D214A715D18B13FA7DED9
 magnet:?xt=urn:btih:9BD7ED47FE78717E3946721EFEA2892FF3792EE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:9BD7ED47FE78717E3946721EFEA2892FF3792EE1
 ```bash
 magnet:?xt=urn:btih:2F5B5FB17D7FA0932D3728484348F8D82AD3A28F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:2F5B5FB17D7FA0932D3728484348F8D82AD3A28F
 magnet:?xt=urn:btih:127990C68DC11AB564DD30001CE202F886152259
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:127990C68DC11AB564DD30001CE202F886152259
 ```bash
 magnet:?xt=urn:btih:E5E491ADE43B16A1F5DF2BF6A0E6864327359034
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:E5E491ADE43B16A1F5DF2BF6A0E6864327359034
 magnet:?xt=urn:btih:28B490DB8B57FAF53F35F9E0AAE170E1BDC85D55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:28B490DB8B57FAF53F35F9E0AAE170E1BDC85D55
 magnet:?xt=urn:btih:389EF15A4D4A9E9C2821668BB35332AEB521413F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:389EF15A4D4A9E9C2821668BB35332AEB521413F
 ```bash
 magnet:?xt=urn:btih:B78BA6375D76061CD9D216EF601C776A0A30B25C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:B78BA6375D76061CD9D216EF601C776A0A30B25C
 magnet:?xt=urn:btih:2D5E85C64F77D4C2A8B1F50C01DD28B6A7D76D49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:2D5E85C64F77D4C2A8B1F50C01DD28B6A7D76D49
 ```bash
 magnet:?xt=urn:btih:51D5407DAD75907409BDE92785566990F410517D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:51D5407DAD75907409BDE92785566990F410517D
 magnet:?xt=urn:btih:AEB472BF252F37FC04225C86759DD28D285CF8D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:AEB472BF252F37FC04225C86759DD28D285CF8D4
 ```bash
 magnet:?xt=urn:btih:F254AD0F000767F95ECE381C961D9E370C49F404
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:F254AD0F000767F95ECE381C961D9E370C49F404
 magnet:?xt=urn:btih:C9DF7A03648C25C2A67A4B4137BE244AA72E4167
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:C9DF7A03648C25C2A67A4B4137BE244AA72E4167
 ```bash
 magnet:?xt=urn:btih:ABFD799F1B3CE3231C67101F1D9E296D4B555BAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:ABFD799F1B3CE3231C67101F1D9E296D4B555BAB
 magnet:?xt=urn:btih:EEBD0B05D8ECD39129BC2A290F95F7E2A611A9FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:EEBD0B05D8ECD39129BC2A290F95F7E2A611A9FF
 ```bash
 magnet:?xt=urn:btih:43B9253889F171EAB88AA588DDD2BA0650C01A6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:43B9253889F171EAB88AA588DDD2BA0650C01A6B
 magnet:?xt=urn:btih:B172DBC657A442AC9B85CC8024BAE7B3EDD1CF55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +598,8 @@ magnet:?xt=urn:btih:B172DBC657A442AC9B85CC8024BAE7B3EDD1CF55
 ```bash
 magnet:?xt=urn:btih:FA136019F2C299C7E0424CE21E99D3AF22801306
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:FA136019F2C299C7E0424CE21E99D3AF22801306
 magnet:?xt=urn:btih:3D26FDD47D5534E47868FC7717CE5BEC0C7614BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:3D26FDD47D5534E47868FC7717CE5BEC0C7614BF
 ```bash
 magnet:?xt=urn:btih:8AD0D22D70FC1254C30777CF1D063E826A7D0B3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,29 +677,7 @@ magnet:?xt=urn:btih:8AD0D22D70FC1254C30777CF1D063E826A7D0B3F
 magnet:?xt=urn:btih:4B5F2DD92B8DF71B4DAFEAC4B443DED872806292
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025755   (705963) от 14.06.2016
-
-Лучший друг человека / The Wonder of Dogs (2013) HDTVRip [H.264/720p] (серии 1-3 из 3)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кинологи рассказывают о больших собаках и маленьких, о служебных и декоративных, о мохнатых и бесшерстных. Мы узнаем, почему один вид животных отличается таким невероятным множеством форм и размеров. Ни одно из наземных животных не демонстрирует такого разнообразия, как собаки. Трудно поверить, что датский дог и чихуахуа принадлежат к одному виду.Телекомпания: Великобритания, British Broadcasting Corporation (BBC), Open University, The Windfall Films, The Open Universitety and For National Geographic ChannelЖанр: Документальный, животные, познавательныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 3 x ~ 00:43:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98F04FF75762E1440063ACB7D1CA10AF43CCF9F2
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

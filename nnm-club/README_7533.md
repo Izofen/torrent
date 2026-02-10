@@ -22,6 +22,8 @@ Signs Of The Swarm - Amongst The Low And Empty (2023) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:80A9CB33557A36744911756ECD6C47B76DF41B8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ DVD бонус к второму фильму One Piece
 magnet:?xt=urn:btih:678B06EF59BEE961A707EB2AA70D9A654EDD93E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:678B06EF59BEE961A707EB2AA70D9A654EDD93E8
 ```bash
 magnet:?xt=urn:btih:4F2FB00BCC1C1FAFB8064B0A78033BCEBC80F000
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ Hour 1:
 magnet:?xt=urn:btih:A4D69D0239906360522DDF5A45249207AA3B0C6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ Bonded - Into Blackness (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
 magnet:?xt=urn:btih:4344DFF87F99E5B167DB88EB7F512DECC174C5D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ Dogs Of Neptune - 2 Albums (2016-2023) [MP3|320 Kbps] <Progressive Heavy Metal, 
 ```bash
 magnet:?xt=urn:btih:5EBDE7C649248113B22809A94C404668DDFFA35A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -179,6 +191,8 @@ magnet:?xt=urn:btih:5EBDE7C649248113B22809A94C404668DDFFA35A
 magnet:?xt=urn:btih:4AFEBE76B437589BC91D3509C01C9F0E4EB1E7FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ Cryostasis — это эффект спектральной инерции, ко
 ```bash
 magnet:?xt=urn:btih:F0F74E92B590DDDC3B5BE5DF4A2816D61C75137E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ magnet:?xt=urn:btih:F0F74E92B590DDDC3B5BE5DF4A2816D61C75137E
 magnet:?xt=urn:btih:37C035A101AAA704182F23B3F163421BF6DFD7D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ Auto Express — еженедельный британский автомоби�
 ```bash
 magnet:?xt=urn:btih:84C6E59829E68DB3B8FF0A3B524C1AFE1B4E4AE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +296,8 @@ LittleBigPlanet: GOTY Edition / Little Big Planet: GOTY Edition [PS3] [EUR] [Ru/
 ```bash
 magnet:?xt=urn:btih:6F40B0A1DD94B1D79E8C31BBE20AAE677A2B9D0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +326,8 @@ Nocturnal Graves - ...from the Bloodline of Cain (2013) [FLAC|Lossless|image + .
 magnet:?xt=urn:btih:FB528B6F2D491BF4293911D770A9F6374ED82AEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ magnet:?xt=urn:btih:FB528B6F2D491BF4293911D770A9F6374ED82AEA
 magnet:?xt=urn:btih:11E6E77F1AD899EA4609425AFAF914073F059DA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ Auto Express — еженедельный британский автомоби�
 ```bash
 magnet:?xt=urn:btih:A72396E1D7D98482B3E188F2E45F59B127A44489
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +407,8 @@ Magma - Kartehl (2022) [FLAC|Lossless|tracks + .cue] <Prog Rock, Jazz-Rock>
 magnet:?xt=urn:btih:2B5945ED4ECAC087C4C87830D0183BB7614DAD73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ magnet:?xt=urn:btih:2B5945ED4ECAC087C4C87830D0183BB7614DAD73
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +462,8 @@ Abaddon - Statues of Sorrow (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, 
 magnet:?xt=urn:btih:DEE27F7E101F8CBAF40FB253E3C73CAE51387C92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ magnet:?xt=urn:btih:DEE27F7E101F8CBAF40FB253E3C73CAE51387C92
 ```bash
 magnet:?xt=urn:btih:B921CB17A0227B8A82CE35DE568AA6A419B49122
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +517,8 @@ Nordheim - Refill (2013) [FLAC|Lossless|image + .cue] <Folk Metal>
 magnet:?xt=urn:btih:9F20BF660797070D4AD0BA8152C1200337CE6667
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +542,8 @@ magnet:?xt=urn:btih:9F20BF660797070D4AD0BA8152C1200337CE6667
 ```bash
 magnet:?xt=urn:btih:DC70D60A116C6DDB592D291EE119280FB3B7C43B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +572,8 @@ magnet:?xt=urn:btih:DC70D60A116C6DDB592D291EE119280FB3B7C43B
 magnet:?xt=urn:btih:32FD4512831AC5E91971711FDA4D8EC60E063E3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +601,8 @@ James Rivera's Metal Wave - New Wave Gone Metal (2023) [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:B30E1199FFD9C3F5817130220E7FFB59768F85D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +629,8 @@ magnet:?xt=urn:btih:B30E1199FFD9C3F5817130220E7FFB59768F85D3
 magnet:?xt=urn:btih:FC1A93D1603CD60F10CBF42700E57A24C9EC4BC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +655,8 @@ Muteking the Dancing Hero | Герой-танцор Мутэкинг [2021, TV, 
 magnet:?xt=urn:btih:1A36DA9A40F1210A4486A837A11566A32D66BB2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +680,8 @@ Microsoft Server 15 Apps RUS-ENG (AIO)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -659,6 +709,8 @@ Arkham Witch - Beer And Bullet Belts (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom 
 ```bash
 magnet:?xt=urn:btih:B4166E00EF18A768D811D04A8B153D1692F2B62D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

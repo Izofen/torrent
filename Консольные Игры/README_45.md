@@ -19,6 +19,8 @@ A Boy and His Blob - ремейк оригинальной игры, котор�
 magnet:?xt=urn:btih:A94742904E6E8368F7F9533BFA39AEE242AAB96B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Trinity Universe – это аналогичный Cross Edge, кроссове�
 magnet:?xt=urn:btih:638373F1D7249358E760FE67B87D429AE25C8D0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Block Party! 20 Games [Wii] [NTSC-U] [Eng] (2008)
 ```bash
 magnet:?xt=urn:btih:BD0B6A243F02D4B3192D457827F81C53786FA824
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Sonic Boom: Rise of Lyric (2014) [WiiU] [USA] 5.3.2 [Loadiine GX2] [Repack] [En]
 magnet:?xt=urn:btih:E5285064191F4A49E7AF4CFDB60475F9914EADAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Mighty No. 9 (2016) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Repack] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:41176BE513681349720D5B8868B2F07B5E2E0684
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Catherine (2011) [PS3] [EUR] 4.82 [HAN] [Repack] [Ru]
 magnet:?xt=urn:btih:8B8ACAC0E091EC5797239FCB8EAC08FF42A5A009
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Resident Evil 0 HD Remaster (2016) [PS3] [JAP] 4.21 [Cobra ODE / E3 ODE PRO ISO]
 ```bash
 magnet:?xt=urn:btih:91439E633D611B961E2848B3EB44BF90134266FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ A Boy and His Blob - ремейк оригинальной игры, котор�
 magnet:?xt=urn:btih:6AC333F93B5794A8EF967D5056F473B4CA9991AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Boogie SuperStar [Wii] [PAL] [Multi 6] (2008)
 ```bash
 magnet:?xt=urn:btih:F926319984336AC76F709FD0CA6059B7B2BF2D88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Lego Star Wars: The Force Awakens - очередной выпуск игры в 
 magnet:?xt=urn:btih:32189E085378460CFBE893DAE967CC1296E771DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Guilty Gear Xrd -REVELATOR- (2016) [PS3] [USA] 3.40 [Cobra ODE / E3 ODE PRO ISO]
 magnet:?xt=urn:btih:7343AFFBB0E1E01A4B2423F19287659F33F31106
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Tokyo Mirage Sessions #FE (2016) [WiiU] [ЕUR] 5.3.2 [Loadiine GX2] [License] [E
 ```bash
 magnet:?xt=urn:btih:9717BDAC363625A6216DD3EEC6146D1070D061FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Under Siege – это стратегия, в которой нам обещаю
 magnet:?xt=urn:btih:271839EAEDE67C4C632416BA3556CBC3C29DFE98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Faery: Legends of Avalon перенесет нас в сказочный мир 
 ```bash
 magnet:?xt=urn:btih:0C1965B8840E5A5960C81B001F67DA29DA906B8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Samurai Jack: (   Читать дальше...   )Тип издания: Licens
 magnet:?xt=urn:btih:8E0259BC78255270D7208E7BD1CB3AF086612B20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Skullgirls: 2nd Encore (2019) [Switch] [USA] 9.1.0 [NSZ] [Unofficial / 1.0.3] [R
 magnet:?xt=urn:btih:B113FAC308AA9FEBBD85647A770E39AA884C3DAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Handball 16, Handball 17 (2015-2016) [PS3] [EUR] 4.76, 4.80 [Cobra ODE / E3 ODE 
 ```bash
 magnet:?xt=urn:btih:615BC5F15042C05362BDC58EC797DDC86D651DB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:615BC5F15042C05362BDC58EC797DDC86D651DB6
 magnet:?xt=urn:btih:B14205D20CD4A78307A4679F928287B7F7BE3157
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ Devil May Cry 5 (2019) [PS4] [EUR] 5.05 [HEN] [License / 1.08 / DLC] [Ru/Multi]
 magnet:?xt=urn:btih:6D66578B0CB9B9407570CD77345F66A6F496C1E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Mario & Sonic at the Rio 2016 Olympic Games (2016) [WiiU] [EUR] 5.3.2 [Loadiine 
 ```bash
 magnet:?xt=urn:btih:1EC41E0FA820CD830D9482F42F2ADE61957AF453
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ Mighty No. 9 - духовный наследник легендарной сер
 magnet:?xt=urn:btih:2BD61E2BA5C897F056D636E2BD25B007BA3A7D33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ LEGO Dimensions объединяет персонажей различных в�
 ```bash
 magnet:?xt=urn:btih:876B2D01C7EA3480C5D0A6C33F20E22D448F36F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ Dance Dance Revolution - Hottest Party 4 [Wii] [PAL] [Multi 5] (2011)
 magnet:?xt=urn:btih:1CA06181FCA7EEF9C130A1B7BC405F614FF48924
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ Sniper Elite V2 (2013) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Multi]
 magnet:?xt=urn:btih:67F26DBF0BA3143BCD40D82A77AE8A7998705521
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ Back to Bed (2014) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN / 1.01] [R
 magnet:?xt=urn:btih:500FE5862083918798FDFE24C22E23FF7B815059
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ The Book of Unwritten Tales 2 (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO IS
 ```bash
 magnet:?xt=urn:btih:3621112B807B178213CCFCC54C6C557D030F0D4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

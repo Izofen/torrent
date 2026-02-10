@@ -19,6 +19,8 @@ X4: Foundations - это космический симулятор, продол
 magnet:?xt=urn:btih:C5B4D29FECBADEE2CF4E402D2E9CF7CD3D273EA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ American Truck Simulator (2016) [Ru/Multi] (1.56.1.2s/dlc) Repack SE7EN
 ```bash
 magnet:?xt=urn:btih:DB1EF40A0000E957F3713D56A61E1D93CC013616
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:DB1EF40A0000E957F3713D56A61E1D93CC013616
 magnet:?xt=urn:btih:89BF9941954EC2715FD2EB76284F7C974882D7B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.6/dlc) Repack Deceptic
 ```bash
 magnet:?xt=urn:btih:4FD22280975F6614C2863A57DD63BFAF84477EAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.1.0c/dlc) Repack Let'sРl
 magnet:?xt=urn:btih:CC0CBBB3AF824DCA906401072B7D0D52D184A3A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ The X-Com Files: Transdimesional Express (1994-2025) [Ru/En] (3.9.1b) Repack/Mod
 magnet:?xt=urn:btih:C0C2D5BC497F64FE8C13FD5776F9B122CEE44239
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ magnet:?xt=urn:btih:C0C2D5BC497F64FE8C13FD5776F9B122CEE44239
 ```bash
 magnet:?xt=urn:btih:00D97848883598FC37CA7ABD5B2C57AA8371A634
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:00D97848883598FC37CA7ABD5B2C57AA8371A634
 magnet:?xt=urn:btih:662FD4CBA26E682C0C9DC5B8E1DB0003D84F11D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:662FD4CBA26E682C0C9DC5B8E1DB0003D84F11D7
 ```bash
 magnet:?xt=urn:btih:D974C33F5002C5A2053D22D0A380D6C83576CCCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Elden Ring: Nightreign — самостоятельная глава знаме�
 magnet:?xt=urn:btih:0655CAA572E613287B5A3F47B82F28CB037B8B44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:0655CAA572E613287B5A3F47B82F28CB037B8B44
 ```bash
 magnet:?xt=urn:btih:918B0A6E6A5014C9BC66DE21A76DA554DBD0E6FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Sins of a Solar Empire II (2024) [Ru/Multi] (1.45.9/dlc) Repack Let'sРlay [Prem
 magnet:?xt=urn:btih:DA37D4831CD41FE91534054EC37CF3F96A247B40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:DA37D4831CD41FE91534054EC37CF3F96A247B40
 ```bash
 magnet:?xt=urn:btih:9658C504B1F1524FE3CDE8826727A172723BBCD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ METAL GEAR SOLID Δ SNAKE EATER (2025) [Ru/Multi] (1.1.4/dlc) Repack Let'sРlay 
 magnet:?xt=urn:btih:9C2899FA764042432EC953D2430DA2C220051784
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ Old World - это историческая стратегия, в которо�
 ```bash
 magnet:?xt=urn:btih:7C9E5BF2383B7376CCF37A1E2C9478D104233BE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:7C9E5BF2383B7376CCF37A1E2C9478D104233BE1
 magnet:?xt=urn:btih:BD2A8CF0A7A3EB4C8DDECACABA4667BD2D20D5E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:BD2A8CF0A7A3EB4C8DDECACABA4667BD2D20D5E8
 ```bash
 magnet:?xt=urn:btih:3EF2A51A032591B7A45B2452714FEE256B4100D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ VEXED - Studio Albums (2 releases) (2021-2023) hand made [restored, declipped] [
 ```bash
 magnet:?xt=urn:btih:22A2D3996426ABC4D92EA0611F1709126469CD9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:22A2D3996426ABC4D92EA0611F1709126469CD9E
 magnet:?xt=urn:btih:0360CE9C3C6A01A6B25BF839426A0093801000C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Alliant Audio с гордостью представляет Minimal Techno! М�
 ```bash
 magnet:?xt=urn:btih:BEC88191313C545EA4AC697E041AA8875316F9D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ Thy Art Is Murder — австралийская дэткор-группа, об
 magnet:?xt=urn:btih:45F5F06D790367AB841644D345F4DD1A1B7749CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:45F5F06D790367AB841644D345F4DD1A1B7749CD
 magnet:?xt=urn:btih:17BD2D50962FA465BE3DA40E96C6A93459D76D67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:17BD2D50962FA465BE3DA40E96C6A93459D76D67
 magnet:?xt=urn:btih:8E02BFEF622BEE6F4F8101F99099955233CE292A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:8E02BFEF622BEE6F4F8101F99099955233CE292A
 ```bash
 magnet:?xt=urn:btih:BC8289079D1F9F50C1672CB38463B9D944B91EB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ Qirvalen — современный, гармоничный и стильный 
 magnet:?xt=urn:btih:3D8B2B92C537B9C9799FEC4C8D6FFE91E46CFFF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:3D8B2B92C537B9C9799FEC4C8D6FFE91E46CFFF1
 ```bash
 magnet:?xt=urn:btih:85A42CFFB33675FDB3831B7A34914F260E66C504
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

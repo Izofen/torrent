@@ -22,6 +22,8 @@ Ennio Morricone - The Very Best Of (1995) [APE|Lossless|image + .cue] <Instrumen
 magnet:?xt=urn:btih:D77E5E8C422EB56614DBCE94D6552E28500D52DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Wise Hand - Manschoud (1999) [APE|Lossless|image + .cue] <New Age>
 ```bash
 magnet:?xt=urn:btih:C040631310DA7E4BDE5E2AD372563A042AD30F9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Atom Music Audio - Exogen: Metahuman Themes (2020) [MP3|320 Kbps] <Soundtrack, I
 magnet:?xt=urn:btih:EB0528A4B33CB44D67AA7F825CB0306635A79FB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Ennio Morricone - Famous Morricone Soundtracks (2020) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:5F4B487499C709E0864C859B1C0481F70DD59BCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Temple Song Hearts - Temple Song Hearts XIV (2020) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:60C5D8775CA3C33A72661F9E90A502B86C4A6075
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Atom Music Audio - Epic Nature Series: Earth (Planet of Life) (2020) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:14E37D94F455E3F5FA04AEB60B3736E6E2BF72CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - OST - The Angry Birds Movie (Original Motion Picture Soundtrack) (2016) [MP
 magnet:?xt=urn:btih:DD7B009A6B8A15A86123EA36FCE89EA022D6B644
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Douglas Blue Feather - Rhythms of the Night (2015) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:17F99F30187B963CDAD21875A97395E5F88BB877
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - In Too Deep (Original Motion Picture Soundtrack) (1999) [FLAC|Lossless|trac
 magnet:?xt=urn:btih:B310BA4518177D3D41C10B76D71E69EDAF0220AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Gregorianika - Ora et Labora (2009) [FLAC|Lossless|tracks + .cue] <New Age, Greg
 ```bash
 magnet:?xt=urn:btih:88D5B965958397DD27E51779AE0CD1F77CF9D6E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ magnet:?xt=urn:btih:88D5B965958397DD27E51779AE0CD1F77CF9D6E2
 magnet:?xt=urn:btih:8D495584F85B81270E1BE7042F8B543763A39FB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ OVA - Дискография (2011-2012) [FLAC|Lossless|WEB-DL|tracks] <Instrume
 ```bash
 magnet:?xt=urn:btih:5F3EE7951814A72E216DA8B5494C43849A986FC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Jon Brion - Паранорман, или Как приручить зомби / 
 magnet:?xt=urn:btih:BB4333D78484C30477DF82DFFCB8E0EAF02E24BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ magnet:?xt=urn:btih:BB4333D78484C30477DF82DFFCB8E0EAF02E24BD
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Willie Nelson - First Rose Of Spring ‎ (2020) [FLAC|Lossless|tracks + .cue] <C
 magnet:?xt=urn:btih:A9C1C3FA0CE554D0C7A92BB2F02F17BA04A529D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Paul Mauriat & His Orchestra - Greatest Hits, 2CD (2007) [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:44CEC9CEA2F081DD4E72C6DFE628ABA9209CDEE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Leo Rojas - Leo Rojas (2017) [FLAC|Lossless|image + .cue] <Panflute, Native amer
 magnet:?xt=urn:btih:0B2518CA9DE889F67888B709BA6E66F41FD19CE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ magnet:?xt=urn:btih:0B2518CA9DE889F67888B709BA6E66F41FD19CE6
 ```bash
 magnet:?xt=urn:btih:616E0A0E66405B7382AD69720B8D385DE4831627
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ Friska Viljor - Broken (2019) [MP3|320 Kbps] <Indie>
 magnet:?xt=urn:btih:782B209501200CED3D7ED6F834EC8EA24B88B43C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ Jann Beaudry - Legere (2019) [MP3|320 Kbps] <Ethnic>
 ```bash
 magnet:?xt=urn:btih:9D6DBAFC3DCB581B65034651DFB2356C6868AE8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ Jennifer Nettles - Playing with fire (2016) [MP3|320 кб/с] <Country>
 magnet:?xt=urn:btih:D6B63C2606D6FDDC93F64F528AA2616BE88BCFF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ Isis & Cobra - The Goddess Spiral Meditations (2013) [MP3|320 кб/с] <New Age>
 ```bash
 magnet:?xt=urn:btih:E7DFFDE371F8174930AF4679E844603FDE47DC1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ Snatam Kaur - Beloved (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 magnet:?xt=urn:btih:E960577997C0C489E246A02191BD2D7CD87C4D2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ Paul Mauriat - Diamond Collections (1996) Unofficial Release [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:5DEE6AC6697B3585E45E20229FAA37AC4E5275FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ Edward Simoni - Zauber der Panfloete (2012) [MP3|320 Kbps] <Instrumental>
 magnet:?xt=urn:btih:569753CF4030056F82269635BCE3572E94C957DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ magnet:?xt=urn:btih:569753CF4030056F82269635BCE3572E94C957DD
 ```bash
 magnet:?xt=urn:btih:AED21EC2460E31BD1FFFC13FF20CE40046720497
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

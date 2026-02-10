@@ -19,6 +19,8 @@ Acrobat Pro — это полностью обновленная настоль�
 magnet:?xt=urn:btih:2FC3D5788EDF94B3446AF7E5129D765E9DCAE6DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:2FC3D5788EDF94B3446AF7E5129D765E9DCAE6DE
 ```bash
 magnet:?xt=urn:btih:C44B41882314178B0DE7B02FDC537B6F6D56F925
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:C44B41882314178B0DE7B02FDC537B6F6D56F925
 magnet:?xt=urn:btih:9752E56DAC2B9BA3728811046841CA6A3E5D3A44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:9752E56DAC2B9BA3728811046841CA6A3E5D3A44
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Machinarium — обладательница множества наград о�
 magnet:?xt=urn:btih:EA9012F92F262DB1B14A361D433FE4E3CD6EBE28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:EA9012F92F262DB1B14A361D433FE4E3CD6EBE28
 magnet:?xt=urn:btih:1B3320207382DA62E4261F14E3B18B90FC905DDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Adobe Illustrator 2023 27.4.1.672 RePack by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3971BAAE82366615468AF6861896AA73988594A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:3971BAAE82366615468AF6861896AA73988594A8
 magnet:?xt=urn:btih:2A3422A3763E7B720F3B1AE74710A7D13D4C9AA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:2A3422A3763E7B720F3B1AE74710A7D13D4C9AA4
 ```bash
 magnet:?xt=urn:btih:7E1D1142983C8D42EA1105C2E1EF4747C28593C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Stepik | Продвинутая работа с ошибками в Go (Golang) 
 magnet:?xt=urn:btih:0EFED1060D151C7CDEC5B60F9FF806CB2A93DB79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ Stepik, Антон Телышев, Дмитрий Назарков | Продв�
 magnet:?xt=urn:btih:72C709F7F271503CC2ECF6CD0B05A323F70B0D55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:72C709F7F271503CC2ECF6CD0B05A323F70B0D55
 ```bash
 magnet:?xt=urn:btih:6C8F25558D458984BF79D07AA880D636905FCDEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ Gary Numan - I, Assassin (1982) 2002, Beggars Banquet Records [FLAC|Lossless|WEB
 magnet:?xt=urn:btih:FD7A03DCE1ADA64A5E882CDB77010E41DE26A503
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:FD7A03DCE1ADA64A5E882CDB77010E41DE26A503
 ```bash
 magnet:?xt=urn:btih:E646F7D291E86133C2288BE6E8C28C7084C46A39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ Trainyard Blues Band - Last Call To Memphis (Special Edition) (2023) [FLAC|Lossl
 magnet:?xt=urn:btih:2E5F3112E9D7ADEB52D6DA4C95A270FA5A510BAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ T3nors - Naked Soul (2023) Japanese Edition [FLAC|Lossless|image + .cue] <AOR, M
 magnet:?xt=urn:btih:4D4FBD5A6F3DA8172BC09160AF1465F4DD133884
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:4D4FBD5A6F3DA8172BC09160AF1465F4DD133884
 ```bash
 magnet:?xt=urn:btih:DB7F8B2EB72DCC2BF3BD259051345D2EC5FAA74E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +484,8 @@ Destination Unknown - Destination Unknown (2023) [FLAC|Lossless|image + .cue] <A
 magnet:?xt=urn:btih:195D2C0DE35725775D4CE9FE098BC23ED381EE6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ magnet:?xt=urn:btih:195D2C0DE35725775D4CE9FE098BC23ED381EE6F
 ```bash
 magnet:?xt=urn:btih:099994C36E4FAE13F68762C8DF025FAE4B59E114
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ King Diamond - The Puppet Master (2003) Reissue, 2013, Metal Blade Records [FLAC
 magnet:?xt=urn:btih:4BC32578B436B8BE3E03366F384D348F440BED72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ magnet:?xt=urn:btih:4BC32578B436B8BE3E03366F384D348F440BED72
 ```bash
 magnet:?xt=urn:btih:49A2F6E7ED8796CAA2FE1BE9F3A88BAFEB595D16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +596,8 @@ A4 Walk Like An Egyptian(   Читать дальше...   )Жанр: Pop RockП
 magnet:?xt=urn:btih:BF45F2685B4E84CE299C188819A9317B1595CA24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +624,8 @@ Amberjacks - The Ride (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, 7
 ```bash
 magnet:?xt=urn:btih:B96DA14E1DBD37BBC457C4046C400193A5EEB815
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +654,8 @@ The Bluesbones - Unchained (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:ED0D88084480A211CDA18238D6704CCB97752DEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +683,8 @@ Hoplites (Oplitis) - Trothisomeni (2023) [FLAC|Lossless|WEB-DL|tracks] <Progress
 magnet:?xt=urn:btih:0073459946B1569C712D858DCE383B721B81AB69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +711,8 @@ Zio - Truewaves (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:FC3FC0E40E8743494CDC590587ECD8270A145F91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

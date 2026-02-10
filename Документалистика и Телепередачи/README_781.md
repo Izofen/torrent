@@ -1,3 +1,29 @@
+###  Публикация: 1846229   (1051254) от 06.01.2026
+
+Байки из склепа: Путь от комикса к телесериалу / Tales from the Crypt: From Comic Books to Television (2004) DVDRip [H.264] [DVO]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051254.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом документальном фильме рассказывается история этих знаменитых, противоречивых и влиятельных комиксов. Кроме того, несколько авторов и режиссеров, в том числе Джон Карпентер, Джордж А. Ромеро, Джоэл Сильвер и Р. Л. Стийн, обсуждают, как европейское общество вдохновляли их на создание комиксов «ужасов».Производство: СШАЖанр: документальный, фэнтези, ужасы, драмаРежиссер: Чип ШелбиУчастники: Джон Карпентер, Расс Кохрэн, Джек Дэвис, Дигби Дил, Марк Эваньер, Эл Фельдштейн, Уильям М. Гейнс, Грант Гайссман, Джонатан ХемингуэйПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, английскийПродолжительность: 00:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42F74784453DF8E38737866345075AD1FFED08AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847027   (1051725) от 10.01.2026
 
 Дурное влияние (Злой инфлюенсер): История Джоди Хильдебрандт / Evil Influencer: The Jodi Hildebrandt Story (2025) WEB-DL [H.264/1080p] [MVO]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:4FBC4D7FB046C6031ECC988FB1D07320626D89EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:4FBC4D7FB046C6031ECC988FB1D07320626D89EE
 magnet:?xt=urn:btih:DF22CFD28100F3C5BB4B42155A2EF7407D53D729
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:DF22CFD28100F3C5BB4B42155A2EF7407D53D729
 magnet:?xt=urn:btih:CAA121A2D69826882AF0B3682F5EDAAB0C099DAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:CAA121A2D69826882AF0B3682F5EDAAB0C099DAE
 ```bash
 magnet:?xt=urn:btih:CF7ED72B39ED7ED4659AB5A342C6F5485B397F6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:CF7ED72B39ED7ED4659AB5A342C6F5485B397F6C
 magnet:?xt=urn:btih:5A7DCE7B5EC76B4F90CB2534F4A24148027FC7E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:5A7DCE7B5EC76B4F90CB2534F4A24148027FC7E3
 ```bash
 magnet:?xt=urn:btih:A97D109AC04B8D728A0611262A4661B8E49A268E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +207,8 @@ magnet:?xt=urn:btih:A97D109AC04B8D728A0611262A4661B8E49A268E
 magnet:?xt=urn:btih:F19A1C7275EA4FD8C25D31F08399B28D5424DC0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +236,8 @@ magnet:?xt=urn:btih:F19A1C7275EA4FD8C25D31F08399B28D5424DC0A
 magnet:?xt=urn:btih:C6BADE91916264041F1F07137EE824638322A029
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +261,8 @@ magnet:?xt=urn:btih:C6BADE91916264041F1F07137EE824638322A029
 ```bash
 magnet:?xt=urn:btih:1D7409A38321D020003768FFC156B5F51F41F1E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +288,8 @@ magnet:?xt=urn:btih:1D7409A38321D020003768FFC156B5F51F41F1E9
 magnet:?xt=urn:btih:56C8EE5B844C5E2B848E3F94465B167E90FC5AE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +313,8 @@ magnet:?xt=urn:btih:56C8EE5B844C5E2B848E3F94465B167E90FC5AE1
 ```bash
 magnet:?xt=urn:btih:809E63BDD070C0B25DBCD49988C2BF2E61F89AD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +342,8 @@ magnet:?xt=urn:btih:809E63BDD070C0B25DBCD49988C2BF2E61F89AD5
 magnet:?xt=urn:btih:4BF228EA423793DAE6AC0669A18780B9A81CE701
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +367,8 @@ magnet:?xt=urn:btih:4BF228EA423793DAE6AC0669A18780B9A81CE701
 ```bash
 magnet:?xt=urn:btih:398728D5869368903EDAD55CE94C4CC784AE07B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +394,8 @@ magnet:?xt=urn:btih:398728D5869368903EDAD55CE94C4CC784AE07B7
 magnet:?xt=urn:btih:D41AFF195297952ECB472323B391BC775F62D70A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +419,8 @@ magnet:?xt=urn:btih:D41AFF195297952ECB472323B391BC775F62D70A
 ```bash
 magnet:?xt=urn:btih:7869831A08C17DB93C844F23B13EEEEBCFFC9202
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +448,8 @@ magnet:?xt=urn:btih:7869831A08C17DB93C844F23B13EEEEBCFFC9202
 magnet:?xt=urn:btih:552310F2C1B6CE1DE99AEA86DD83815153CD4A0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +474,8 @@ magnet:?xt=urn:btih:552310F2C1B6CE1DE99AEA86DD83815153CD4A0C
 magnet:?xt=urn:btih:B9D66C81411113982DE0F51D12ED81A74CDAB9B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +499,8 @@ magnet:?xt=urn:btih:B9D66C81411113982DE0F51D12ED81A74CDAB9B7
 ```bash
 magnet:?xt=urn:btih:96605A4629FA41C64E38B68E09222F99E5747A3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +529,8 @@ magnet:?xt=urn:btih:96605A4629FA41C64E38B68E09222F99E5747A3E
 magnet:?xt=urn:btih:D03958CC7F130D1AB1988CAC85D2BF201B1CC859
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +557,8 @@ magnet:?xt=urn:btih:D03958CC7F130D1AB1988CAC85D2BF201B1CC859
 magnet:?xt=urn:btih:3EF95065F5FF7BC7E6CDF32951695A4298C0C10C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +582,8 @@ magnet:?xt=urn:btih:3EF95065F5FF7BC7E6CDF32951695A4298C0C10C
 ```bash
 magnet:?xt=urn:btih:260719A702341844FC6309C7DC9EE961D10B484A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +609,8 @@ magnet:?xt=urn:btih:260719A702341844FC6309C7DC9EE961D10B484A
 magnet:?xt=urn:btih:666AD6629112339FB5B747A2070DA3D0B7182C48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +634,8 @@ magnet:?xt=urn:btih:666AD6629112339FB5B747A2070DA3D0B7182C48
 ```bash
 magnet:?xt=urn:btih:2B0D25198B6A94C6FFA147C1BD3896609B7EA81E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +661,8 @@ magnet:?xt=urn:btih:2B0D25198B6A94C6FFA147C1BD3896609B7EA81E
 ```bash
 magnet:?xt=urn:btih:4FFE4000DBE41BB4F364084D851FA299462B3C98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,29 +691,7 @@ magnet:?xt=urn:btih:4FFE4000DBE41BB4F364084D851FA299462B3C98
 magnet:?xt=urn:btih:9D55F165722C74038859C0FAB13E78012513D199
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851052   (1054838) от 
-
-Йеллоустон: Супервулкан. Судный день Америки / Yellowstone Supervolcano: American Doomsday (2011) WEB-DL [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представьте себе современные Помпеи, напоминающую бомбу замедленного действия, по размерам превосходящую 1000 бомб, сброшенных на Хиросиму, или зону бедствия, в 10 миллионов раз превышающую по площади «нулевой уровень» Хиросимы. Звучит невероятно, не правда ли? Под самым известным национальным парком Америки скрывается огромный супервулкан, ужасные последствия извержения (   Читать дальше...   )Производство: Великобритания, Wildflame ProductionsЖанр: документальный, природа, наука, катастрофыРежиссер: Жобим СэмпсонУчастники: Ларри Дэвис, Шон ДулиПеревод: Одноголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:23:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEF691B83C38002900A2DCA6E844E563F72EB68E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:4A6A11D8F3CB0BF9CF3A9631392ED6F28CDE6CC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:4A6A11D8F3CB0BF9CF3A9631392ED6F28CDE6CC2
 ```bash
 magnet:?xt=urn:btih:84C7C54C999F37D5579ACFF95F2CD51240C5CE1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Cloudpunk (2020) [Ru/Multi] (1.0) License SKiDROW
 magnet:?xt=urn:btih:E6C80523857D7F83A1CAE40B650B9C31AD7E524C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:E6C80523857D7F83A1CAE40B650B9C31AD7E524C
 ```bash
 magnet:?xt=urn:btih:9D50EB956DA236A295CCEF3393578472B6EFACAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:9D50EB956DA236A295CCEF3393578472B6EFACAC
 magnet:?xt=urn:btih:8D09B425EAA247963C873318728C4058821F0C96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Block auto-update 1.1 Portable [En]
 ```bash
 magnet:?xt=urn:btih:92941E1A6ECCFECADE4A53F15D2016D11C7C1DF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:92941E1A6ECCFECADE4A53F15D2016D11C7C1DF1
 magnet:?xt=urn:btih:00255416284ABF251206B5C39D741BA08E831BED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:00255416284ABF251206B5C39D741BA08E831BED
 ```bash
 magnet:?xt=urn:btih:057AA1AADF3FC171591C1EB7F2DB7D823BAEEC18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:057AA1AADF3FC171591C1EB7F2DB7D823BAEEC18
 magnet:?xt=urn:btih:0AFF816DCCF08065FAD451092E82CE1BEB67669D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ S.T.A.L.K.E.R.: Clear Sky / S.T.A.L.K.E.R.: Чистое небо (2008) [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:9D4E4501A642F0378A863984D5DCFADDC4E04C7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:9D4E4501A642F0378A863984D5DCFADDC4E04C7A
 magnet:?xt=urn:btih:9E4F648CCA65A3E89C9BD82F7257A029E93B9092
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl - Darkest Time (2007/2016) [Ru] (1.0006/1.0)
 magnet:?xt=urn:btih:A8EE25A211FED9258BF78671DF9A99B654BACB54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:A8EE25A211FED9258BF78671DF9A99B654BACB54
 ```bash
 magnet:?xt=urn:btih:046F157CE9741FA8B281B01E558ABBC4FE1C3796
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ VA - Дискотека Казанова: Старые Песни По Ново�
 magnet:?xt=urn:btih:688A94DEC3B91F38A14089A28EBBEBEFCC4E5FA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:688A94DEC3B91F38A14089A28EBBEBEFCC4E5FA2
 ```bash
 magnet:?xt=urn:btih:F71915CA5C0B67E71BE55222CA7D72A2C0E82D1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ VA - Dream Dance (Дискотека Казанова) vol.2 (2016) [MP3|320 Kbp
 magnet:?xt=urn:btih:BBA9402A2688A61D6305BAFBC8AD31B94871861E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:BBA9402A2688A61D6305BAFBC8AD31B94871861E
 ```bash
 magnet:?xt=urn:btih:01CFD39A8E8A83A82F8DE079870E7E2FCF62B032
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ VA - TOP 100 Club (November) (2016) [MP3|320 Kbps] <House, Mash Up, Club, Dance>
 magnet:?xt=urn:btih:BE794F7AC82E36D7F3A3EEA60B5D6327250091BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ magnet:?xt=urn:btih:BE794F7AC82E36D7F3A3EEA60B5D6327250091BF
 ```bash
 magnet:?xt=urn:btih:8EB7E047AA2B5047DF204E20C9CBCCB34837DC6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ The Exposure X2 Bundle - это редактор фотографий и орг�
 magnet:?xt=urn:btih:9A60D77DCDF38F003EF752F7B3D802B63932163E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:9A60D77DCDF38F003EF752F7B3D802B63932163E
 ```bash
 magnet:?xt=urn:btih:BE1DDBB4AC6E121DC91A023E9783BD408CFF0E5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:BE1DDBB4AC6E121DC91A023E9783BD408CFF0E5B
 magnet:?xt=urn:btih:0ADBC1738ECEAB71C3A601BFBFEE59C410BB55E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:0ADBC1738ECEAB71C3A601BFBFEE59C410BB55E8
 magnet:?xt=urn:btih:68EEF1D5274269CD4ADA8BE7360705BEBC5510F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ Master of Orion (2016) [Ru/Multi] (54.6/dlc) License CODEX [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:517D9A2E103053FBB3B9D62764B06DCB0A2162E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ magnet:?xt=urn:btih:517D9A2E103053FBB3B9D62764B06DCB0A2162E2
 magnet:?xt=urn:btih:2D6FDBF94FAF91FBD6B6DF6AAB4CB08F39282B90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ magnet:?xt=urn:btih:2D6FDBF94FAF91FBD6B6DF6AAB4CB08F39282B90
 ```bash
 magnet:?xt=urn:btih:AEE9A086B1DFCFFA60162626D6CC3D2DB6FE906C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

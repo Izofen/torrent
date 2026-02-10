@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:390D99F2D609E4F7CAA8D697BAF4959E7FCEE335
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:390D99F2D609E4F7CAA8D697BAF4959E7FCEE335
 ```bash
 magnet:?xt=urn:btih:B7DE0FEE0CA1663096A52032B0808B1DB2F5AF74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Rise of the Ronin - динамичная ролевая игра, в котор�
 magnet:?xt=urn:btih:A19562375A92C8A37DA2FFC87B4EB9B947FE7AD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Tails of Iron 2: Whiskers of Winter (2025) [Ru/Multi] (1.14932/dlc) Repack Let's
 ```bash
 magnet:?xt=urn:btih:47C917C46F930CB7BF83A4820EB1896BAB94E1D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Windows 11, 24H2 [26100.3775] 38in1 (x64) by adguard (v25.04.09) [Ru/En]
 magnet:?xt=urn:btih:03E205351A94520EFE10866E322C17EDD065851C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:03E205351A94520EFE10866E322C17EDD065851C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:03E205351A94520EFE10866E322C17EDD065851C
 magnet:?xt=urn:btih:19BB16B5CAFB3C4C33029C4CA17999D4C6B162BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Frontline: Assault Corps WW2 (2025) [Ru/Multi] (1.0.24L) Repack Let'sРlay
 magnet:?xt=urn:btih:0D00C887AA30F2887A2B8DEC9D7E5079DE4DFD21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ magnet:?xt=urn:btih:0D00C887AA30F2887A2B8DEC9D7E5079DE4DFD21
 ```bash
 magnet:?xt=urn:btih:0FCCEEA13A7C8CE5C193384AF75DA418713F7A30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:0FCCEEA13A7C8CE5C193384AF75DA418713F7A30
 magnet:?xt=urn:btih:A5E5BB19A94954FFE266440D643F4B44AE70009C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:A5E5BB19A94954FFE266440D643F4B44AE70009C
 ```bash
 magnet:?xt=urn:btih:85E1D21003AD7AA39D4A76EF9823FCA9A83C06A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Imagine - это бесплатный просмотрщик изображен�
 magnet:?xt=urn:btih:34BBD60F57EFA2C6C1FA6207BE5245E3697E0C50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:34BBD60F57EFA2C6C1FA6207BE5245E3697E0C50
 ```bash
 magnet:?xt=urn:btih:94A5980804A66C76B713997448F6470EEC10B183
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:94A5980804A66C76B713997448F6470EEC10B183
 magnet:?xt=urn:btih:22F00D6F01F320FE44B768C8FE4B814A66B3A218
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:22F00D6F01F320FE44B768C8FE4B814A66B3A218
 ```bash
 magnet:?xt=urn:btih:B8A3B477731D400F74424329D9923B943DFE7BB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:B8A3B477731D400F74424329D9923B943DFE7BB2
 magnet:?xt=urn:btih:3F726823D92F89F7968CB8B2DF9B107CAC31969D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:3F726823D92F89F7968CB8B2DF9B107CAC31969D
 ```bash
 magnet:?xt=urn:btih:00E5C3AA591684E465988D3B09B813B73E3EC1B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ Into the Necrovale (2024) [En] (1.0.1) License GOG
 magnet:?xt=urn:btih:D0AD3F3539189CC05D74718E3ABCC276B94DB20E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:D0AD3F3539189CC05D74718E3ABCC276B94DB20E
 ```bash
 magnet:?xt=urn:btih:2A8A45211371737FF8D8EB10BE1785311C140EBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:2A8A45211371737FF8D8EB10BE1785311C140EBF
 magnet:?xt=urn:btih:B4A868DFF1E6C9FD8469662D01EEA4A75D414885
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:B4A868DFF1E6C9FD8469662D01EEA4A75D414885
 ```bash
 magnet:?xt=urn:btih:89973B71CA306A75C024161367CD2202FA0C646B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ VA - 90s Greatest Hits (2007) [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, 
 magnet:?xt=urn:btih:252645A42F4946EC1649A2BEFA369826F555A388
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:252645A42F4946EC1649A2BEFA369826F555A388
 ```bash
 magnet:?xt=urn:btih:0074B623F9F1A5A4703B306D34241DF0DD85D28B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ Cockos Reaper является одной из самых продвинутых
 magnet:?xt=urn:btih:F10B5C0BA4744163E682700F24D5246BE4A9AD36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:F10B5C0BA4744163E682700F24D5246BE4A9AD36
 magnet:?xt=urn:btih:835F9BEAA31FE6D54805219D05D3C7D3341315EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ HiPER Calc Pro v11.1.3 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:AEA3F5DADF343548987006881D229E542C036A9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Leisure Suit Larry: Love for Sail! / Ларри в выходном костюм
 magnet:?xt=urn:btih:315554E0BA995EE95BAEEA90DDFA4C02FEB551A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Leisure Suit Larry - Wet Dreams Dry Twice (2020) [Ru/Multi] (1.0.1.54) License G
 ```bash
 magnet:?xt=urn:btih:833FD8027D3ADF535F2F405B5B28581F23F0F1AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Game of Thrones: A Telltale Games Series (2014-2015) [En] (1.0.0.1) License CODE
 magnet:?xt=urn:btih:B44C33B8FA90085A4FD7D848C90101C1FD468244
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Kena: Bridge of Spirits – сказочное приключение в оча�
 ```bash
 magnet:?xt=urn:btih:20F0F3E561E693B5C8EF668C208EB5D8218BB98E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Alwa's Legacy - современная игра в стиле ретро, пол
 magnet:?xt=urn:btih:DF3490BFB1632179203B0BF4798676FF1237ED10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Among the Sleep (2014) [Ru/Multi] (2.0.1/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:D01F913AD09FE46B8A4AB3617FD3F82D1EFB8C05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Call of Cthulhu – это детектив с элементами психол
 magnet:?xt=urn:btih:8B1827577EBA1CC03B06F6924BE7E3D06E9D379B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Transient (2020) [Ru/Multi] (0.119) License GOG
 ```bash
 magnet:?xt=urn:btih:51427A3F3233318B9ABC66F8D522A09513A01B8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Amnesia A Machine for Pigs (2013) [Ru/Multi] (1.0 Upd2) License PROPHET
 ```bash
 magnet:?xt=urn:btih:022B6C3311FF99CEEA78CD101A65E15068699D8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Black Mirror III завершит историю ужасных событий �
 magnet:?xt=urn:btih:DF98EA6E3626809819642C0239517BDAEA5A31F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ The Lost Chronicles of Zerzura [En] (L) 2012 | SKIDROW
 ```bash
 magnet:?xt=urn:btih:FFD842E1C7DCCF1F2DB6F84655402CC0604A4273
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Turnip Boy Commits Tax Evasion (2021) [Ru/Multi] (1.1.3f1) License GOG
 magnet:?xt=urn:btih:62175C5BB69FCDCC2AC839FF43B70DE2FDFBAAE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Among the Sleep (2014) [Ru/Multi] (3.0.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:908E17DE37C819297CD67C2A52FC2B9C18B6D7E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ The Dark Eye. Chains Of Satinav [Ru/En] (Repack/1.1) 2012 | Fenixx
 magnet:?xt=urn:btih:01147959D29CF6D14627ABC4EBEB36C37C366824
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ TheNightfall (2018) [Ru/Multi] (1.5) Repack Other s [Halloween Edition]
 ```bash
 magnet:?xt=urn:btih:5A8220DA058EAA015E7BDEE9354B001CE550B114
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Trine 4: The Nightmare Prince – очередная часть в серии л
 magnet:?xt=urn:btih:96B0A7E0EC7E2707A38801D557FAC09274B3CF9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ The Book of Unwritten Tales (2012) [Multi] (2.0.0.4) License GOG
 magnet:?xt=urn:btih:6390A38CB33529E8BB907F900D44A28031AFA139
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Attentat 1942 - это мрачная визуальная новелла, в к
 ```bash
 magnet:?xt=urn:btih:059AD7A23448ADAA3267C2912EC8F4E37F98FD73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Penumbra 4: Necrologue / Пенумбра 4: Некролог (2014) [Ru] (1.0) 
 magnet:?xt=urn:btih:F52A33C8CA346EF88DA393CCC4FC49184C9EA5A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Yesterday Origins (2016) [Ru/Multi] (1.0/u4) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:44D2941DD3E030FF9F6D477D3FC2AE92EE1BB4B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ Neptune Flux (2016) [En] (1.0) Repack Other s
 magnet:?xt=urn:btih:708E4BA1AA248B9B490DB957EA69D78D927C9C31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Tales (2016) [Ru/Multi] (1.0.1) License HI2U
 ```bash
 magnet:?xt=urn:btih:FD6F214A69E4B0B0D9A020306C7826CEF6EF13C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ TheNightfall (2018) [Ru/Multi] (1.5) License PLAZA [Halloween Edition]
 magnet:?xt=urn:btih:F0F75E736C0AECE3E0910935B333CDC97BA73F15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ The Wild Eight (2019) [Ru/Multi] (1.0.4) License CODEX
 ```bash
 magnet:?xt=urn:btih:737DDAABBFCC90B968AF753F57B6DC03738F23BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ Cognition - это "эпизодический криминальный трил
 magnet:?xt=urn:btih:07D62E855BD4891509DF23831BEAF00F79AFE3FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Silence: The Whispered World 2 (2016) [Ru/Multi] (1.0.19854) Repack Other s
 ```bash
 magnet:?xt=urn:btih:E3001D5078D1147EDC8DD5E1CE888AE17374025A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:459B8BFF14676ED49C0E07C29FC8A8BD821BC07E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ magnet:?xt=urn:btih:459B8BFF14676ED49C0E07C29FC8A8BD821BC07E
 magnet:?xt=urn:btih:738010D9F97F5F5B71A56591422BA2DB874555BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ Flutter - это новый framework от Google по кросс-платфор
 magnet:?xt=urn:btih:0598BC5740A73F2C35C5BEBE94736E1CA03CB2A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:0598BC5740A73F2C35C5BEBE94736E1CA03CB2A8
 magnet:?xt=urn:btih:28F6A097B68B5FED0C2A01682FAFB5E9B6948933
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:28F6A097B68B5FED0C2A01682FAFB5E9B6948933
 ```bash
 magnet:?xt=urn:btih:7D3E76BAA7E38E538F93882DF034EC5AC24EE6D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:7D3E76BAA7E38E538F93882DF034EC5AC24EE6D6
 magnet:?xt=urn:btih:9C79C159F28B0E2EF2E30E54A50A4E2DB6676702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ Udemy, Bogdan Stashchuk | The World of Computer Networking. Your CCNA starts her
 ```bash
 magnet:?xt=urn:btih:495AED4DDD97DF882FA73EDC9FCFDF4BDB302A39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ Udemy, Oleksandr Kocherhin | Практический курс по Lodash (2022
 magnet:?xt=urn:btih:385D55CA38A5B9AE075FFDAB2F4D19A9D289C84E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ Udemy, Mrawan Hussain | Blender: Tesla Cybertruck Forge (2022) PCRec [EN / EN Su
 ```bash
 magnet:?xt=urn:btih:AA4DE50CE8EAD6DA0D1278CE82E2E1A662BB7BE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ Udemy, Alex Marshal | Автоматизация тестирования Java +
 magnet:?xt=urn:btih:627467E07E5DBB1FE1BB4DDAAAB3F1009312E5FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ Frontend-разработка - одна из самых популярных и
 ```bash
 magnet:?xt=urn:btih:1E9FE6FC2F2FD8CFB7527F2EF68AD37DDC86BDED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ Redux - самое популярное решение для управлени
 magnet:?xt=urn:btih:B8C5EF67EC2918ADC3B7632D55BE79DCCC6EAF91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ Udemy, Basar Buyukkahraman | Spring Boot and React with Test Driven Development 
 ```bash
 magnet:?xt=urn:btih:2C33D0DCD30FAF6D1F042B457B64A4A80FF3E583
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:2C33D0DCD30FAF6D1F042B457B64A4A80FF3E583
 magnet:?xt=urn:btih:D4FE544A959F3770936BC57066AAF0578F78BB70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:D4FE544A959F3770936BC57066AAF0578F78BB70
 magnet:?xt=urn:btih:A34DA350E7A6F0DE9E0DDD19BA9C9AAF2F7F455E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ Udemy, Keino Campbell | IELTS Band 7+ Complete Prep Course (2021) WEB-DL [EN / E
 ```bash
 magnet:?xt=urn:btih:229017CAFA169586EC13242BF0C0749D01F0B26E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ Udemy, Sime Bugarija | Blender 3+ Reality Capture 5h, futuristic movie scence, f
 magnet:?xt=urn:btih:907A2885E0A2CDEAF4F0A80A3088D819B999A5EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ Udemy, Sime Bugarija | Cinematic look with Blender 3.0 - 8+ hours MASTER tutoria
 ```bash
 magnet:?xt=urn:btih:09A15D00A9B42D229773264FE27224A0E621A306
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ ArtStation, Sam Carr | Blender for 2D Artists (2021) PCRec [EN]
 magnet:?xt=urn:btih:4876191D6EFD6812A36561B17CF9BC2C065612BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ ArtStation, Milad Kambari | McLaren 650S GT3 Tutorial (Modeling, Texturing, Ligh
 ```bash
 magnet:?xt=urn:btih:6CF14B9E3BE65D8425303803669DEA6F7D8609D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +554,8 @@ Skillshare, Aniket Rawat | Creating A Moroccan Riad Environment In Unreal Engine
 magnet:?xt=urn:btih:20AFD49CA4C5EAF7C8A99EC9463E9D71131503C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ Vex – это язык программирования, использующи
 ```bash
 magnet:?xt=urn:btih:EB8368DFAAB592D29BF794842620C65043C5139D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +608,8 @@ CGcircuit, David Adan | Total Destruction: Volume 2 RBD Simulations (2020) PCRec
 magnet:?xt=urn:btih:382A0E2DC227F1FBD21771F0D852FF9ACF647E30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ CGcircuit, David Adan | Total Destruction: Volume 3 Particles (2020) PCRec [EN, 
 magnet:?xt=urn:btih:53681BDCCF9D9A31F0434B33900BE340E567101F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:53681BDCCF9D9A31F0434B33900BE340E567101F
 magnet:?xt=urn:btih:0B912DBF1932A9D50094B9DE4A17D1AF9CB6198E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ Jojo Mayer | Secret Weapons For The Modern Drummer (русские субтит�
 ```bash
 magnet:?xt=urn:btih:C10DDE86C77A963E719B6E7891A5FE7DBB043C0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

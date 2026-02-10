@@ -19,6 +19,8 @@ VideoSolo Screen Recorder - программа, с помощью которой
 magnet:?xt=urn:btih:08258C869B4F81006432692C887A36226B1E5642
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ AnyMP4 Screen Recorder - программа предназначена для з
 ```bash
 magnet:?xt=urn:btih:79FD6FEEB76F0C526B9BF3770BF150B065E1CDBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ WinCDEmu – миниатюрная утилита, с открытым исхо
 magnet:?xt=urn:btih:6B19496BA6C428512F4A50E83CE9E2A18AFD2816
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ SpaceSniffer - удобная, бесплатная, портативная ут
 magnet:?xt=urn:btih:481CD1FE02D98A06C78B1C6F75A1830C987EC821
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Apowersoft Streaming Video Recorder - программа, которая раб�
 ```bash
 magnet:?xt=urn:btih:FA8454665C33240BF380D8EEEAB214D0E7E20DB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ PSD Codec позволяет напрямую просматривать фай�
 magnet:?xt=urn:btih:F35979DCEBA07520BF5FBFEA8AA7D4BB660FF173
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Free Studio Manager - это единый пакет бесплатных про
 ```bash
 magnet:?xt=urn:btih:5383CE5E1D1EE7DB40129D936EFE22E8AC6AA320
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Disable Nvidia Telemetry - полезная утилита для Windows, ко�
 magnet:?xt=urn:btih:4B5325CF1E490A869410E5D8ABDB77A1A865D8F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ EasyBoot 6.6.0.800 Portable by PortableAppZ [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B9167DD3B19C752EEB23BE049DACF39722501773
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ ListTV позволяет в удобной форме просматриват�
 magnet:?xt=urn:btih:B676835F4AFBDC182D7F543909CA65F50D98A70B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ H2testw - утилита со странным названием, но очен
 ```bash
 magnet:?xt=urn:btih:E2C4E7A51ABB35FB3A21894AC3E3776C599A4021
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ FileViewPro GOLD Edition 1.9.8.19 RePack (& Portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:182F1490256203C4752E4848324432BAE691B51F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ TuneFab Screen Recorder - это программа, с помощью кото�
 ```bash
 magnet:?xt=urn:btih:577D6694123874B45A91BA1E72007F010101B40C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Siatki 4.0.2.1 [Ru/Eng/Pol]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ i1Profiler (i1Publish) 1.5.6 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B3EFBAD2037E4BA2DF5570598220C8F9B923B66F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Free Studio Manager - это единый пакет бесплатных про
 magnet:?xt=urn:btih:9AB34F258FCCC0974471386716C46332DD18D0E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ XWidget - платформа для персонализации и оптими
 ```bash
 magnet:?xt=urn:btih:27C3A0D4A5B44DF6DD930C41CDB8E41804C5942F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Bootable USB Flash Drive Creator v1.0 [En] (Авторская раздача)
 magnet:?xt=urn:btih:31E170E980FDF7B7D52E0C21E8CD8E66E81D9E8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ EmbroBox 2.0 [русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Password Safe 3.49.01 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:F518CFD49876673A167425BCDD5C90162F2BB7F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Stardock Start8 – утилита, предназначенная для при
 ```bash
 magnet:?xt=urn:btih:BF61C3C7B41845EF8BB2F4C244974512BA33D0D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Synergy - бесплатная программа, с помощью котор�
 magnet:?xt=urn:btih:A28EBAD6AC3A34ECCAAEE3662659EA1017C25B42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ ChromeCookiesView - не требующая инсталляции неболь�
 ```bash
 magnet:?xt=urn:btih:DE995E059B5D48B33EEA3CA706F8BCAEC969E2F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ Win10 SpyStop - еще одна программа для Windows 10, котор
 magnet:?xt=urn:btih:73C07EAA535FFDD0769FBE6701C5AD035122BF7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Password Cracker 4.35 Portable [Multi/Ru]
 magnet:?xt=urn:btih:FF78C9A73F54406ECCB1468102D06D9D32886F6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ DoNotSpy10 — эта утилита предоставляет пользова
 ```bash
 magnet:?xt=urn:btih:C51166719F008DE49682568ADB691FAD376EA8E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

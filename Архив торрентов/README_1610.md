@@ -20,6 +20,8 @@ Vox - небольшой и очень простой в использован�
 magnet:?xt=urn:btih:3338100FE4A3959B2A4D29BAB5BC7E15FA20242F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ GM EPUB Reader — это полнофункциональное приложе�
 ```bash
 magnet:?xt=urn:btih:0A770656383D45F973F615A262ED08D2FDA84E05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Brave - защищенный браузер на базе Chromium, постро
 magnet:?xt=urn:btih:28016B85AE6EE17B7AB96534549864ED89DCD2C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Comodo BackUp - программа для создания бэкапов, с п
 ```bash
 magnet:?xt=urn:btih:04FEBDEB44A274CDC5CD0216425B7E268F1D6A5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Text Editor Pro 18.2.0 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:76869AF8BF0253B0F03D15BE6E55061E8A932496
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ AOMEI Backupper – программа для создания резервно�
 ```bash
 magnet:?xt=urn:btih:C97AD006F03C6A5DD7CCE87CCC0D57AEAC3BFD0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ SizeUp - управляем окнами приложений
 magnet:?xt=urn:btih:0F740E6B9374AA16293FFD57D91CA25B6BAB9520
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Mirillis Action! v 3.8.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DCA49B25C0744EF658A5E321A08750A88D0F1016
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ GARRISON (Игорь Савосин) - Signal (2018) [MP3|320 Kbps] <Ambient, Ch
 magnet:?xt=urn:btih:194DBD927250C34D0A5A6E02A4766E3C21E9ECBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ TweakPower – представляет собой единый графичес
 ```bash
 magnet:?xt=urn:btih:8E1BCB4D890379742E31EBABD11060FB1EAFAB39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Moo0 RightClicker является расширением контекстног
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ HDCleaner – многофункциональный программный пр
 ```bash
 magnet:?xt=urn:btih:F929ECE7EEA3573BFF59F3C1FC966416D26780AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ Codex во время более тщательного тестирования
 magnet:?xt=urn:btih:F8A8977A6A768DE1A5CC9576FEAA3E9F7DF869FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ Mirillis Action! 4.13.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C0DF0272CB0496A9E0D755A5B08AC4147210DFB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:C0DF0272CB0496A9E0D755A5B08AC4147210DFB7
 magnet:?xt=urn:btih:45634DD7C3A740CACC556C087D094ABE432977AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:45634DD7C3A740CACC556C087D094ABE432977AA
 ```bash
 magnet:?xt=urn:btih:1F15B451B1CCA290FE58D929B6319E66D2FF2B1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ WinUtilities - системный набор для настройки ваше�
 magnet:?xt=urn:btih:A122E12A8914D6062FB0D89B8A30A0A1548E4F1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ VueScan - программа для работы со сканерами HP, Min
 ```bash
 magnet:?xt=urn:btih:D6F2AB755DB2B782FFB80260FCB3CF849B8E84CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ Hard Disk Sentinel (HDSentinel) - программа для мониторинг
 magnet:?xt=urn:btih:3490C8D4A8132D254F242CDC82018EE26A49FD8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:3490C8D4A8132D254F242CDC82018EE26A49FD8C
 ```bash
 magnet:?xt=urn:btih:8CCFBC06D29FA210FB2DA270A7D949694AF34790
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ YTD Video Downloader позволяет загрузить нужный вам �
 magnet:?xt=urn:btih:9D1230C5DC93A9B1F8E2099BEBF3EFF5A2165382
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ XYplorer - удобный мультивкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:35D4CECA8D9B092B90303FB4357FE59C6A78C804
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ magnet:?xt=urn:btih:35D4CECA8D9B092B90303FB4357FE59C6A78C804
 magnet:?xt=urn:btih:F6FBF43B56671C527A97916D5CC92904819ADD38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ Boxy SVG 4.2.3 [En]
 ```bash
 magnet:?xt=urn:btih:60E731F13B565702C0FF727AA4DA61080D5EACDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ Neon - Hypersonic (2013) [FLAC|Lossless|WEB-DL]<Full-On>
 magnet:?xt=urn:btih:C0D9636992B1820C8BB36182DC848206ED920F7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ WinToUSB - позволяет устанавливать и запускать �
 ```bash
 magnet:?xt=urn:btih:5B7B60ED703CFE61B90191DEF3156733564A1C7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

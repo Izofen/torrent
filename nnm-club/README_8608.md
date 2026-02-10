@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:E3338770DA6D315415262E26601FD78C836A9495
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:E3338770DA6D315415262E26601FD78C836A9495
 ```bash
 magnet:?xt=urn:btih:F4DB6D6C5A35FF96DE6C5D3BB8A89138D125ACB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Port Royale 3: Pirates & Merchants [Ru/En] (RePack/1.1.2.24556) 2011 l R.G. Cata
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Corel PaintShop Photo Pro X4 - комплекс для работы с цифр�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Garrison - The Final Chapter (2025) [MP3|320 Kbps] <AOR, Arena-Rock>
 magnet:?xt=urn:btih:0B96AAEBAD6D62B17C9F4EB2D5DCB4E9D0E63258
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Battlefield 6 (2025) [Multi] (1.1.2.0 Build 20800939/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:9DB2324DE87D6F2D445FFFB071758B37556D99BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ Steve Hooker - Smokin' Guitar (remastered) (2025) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:612BCE548B749B6B272B7291A8F4F366EEC99DD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ Southbound Snake Charmers - 1000 Cuts (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 ```bash
 magnet:?xt=urn:btih:720E839344A822A1AC3D663E977CACFB34BC2E29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ Rich Wendel's Fat Fish Logic - The Last Comeback (2025) [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:4A987BA3072CC45C39765C286FB54F21DB49D16E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -254,6 +272,8 @@ Matthew Patrick - Authentico (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:D7CDB1010494B089D7BBECFFA53C38567DAA21C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ Luke - The Truth Remains The Same (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:CA5E6AB8E7D2B3FD26617594A5655006A82B72C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +336,8 @@ Armin Van Buuren - A State Of Trance 563 SBD (2012) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:7686C46B30BF7D3573BC56B448834333436ACC91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +361,8 @@ magnet:?xt=urn:btih:7686C46B30BF7D3573BC56B448834333436ACC91
 ```bash
 magnet:?xt=urn:btih:EC0C413739F726EB6DCB8C7ED4947AEBA02EAD67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +388,8 @@ magnet:?xt=urn:btih:EC0C413739F726EB6DCB8C7ED4947AEBA02EAD67
 magnet:?xt=urn:btih:7BDF0E09D958769854C0301494E3809932950772
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +414,8 @@ magnet:?xt=urn:btih:7BDF0E09D958769854C0301494E3809932950772
 magnet:?xt=urn:btih:E10FAD13BB3CDFD91ADAD95D4E00028C1D97F0F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +439,8 @@ magnet:?xt=urn:btih:E10FAD13BB3CDFD91ADAD95D4E00028C1D97F0F1
 ```bash
 magnet:?xt=urn:btih:90A1B9222144C1D932240581DC89A322C8596E43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +469,8 @@ Los Skeletone Blues - Its a Great Album!!! (2025) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:5CB88C6B932F459CA507E7E8BD696366345F6672
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +494,8 @@ magnet:?xt=urn:btih:5CB88C6B932F459CA507E7E8BD696366345F6672
 ```bash
 magnet:?xt=urn:btih:027CC2B99C555AABEC7CF6D3037C28A1DAA1A89F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +523,8 @@ Kim Wilson - Slow Burn (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:94A9C12C1610DEF095FE4368836506DCD2F17495
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +556,8 @@ magnet:?xt=urn:btih:94A9C12C1610DEF095FE4368836506DCD2F17495
 magnet:?xt=urn:btih:0659149431C8BE945EE7A0F4CBB7AE802C3DCD35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +581,8 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:91D142FC1C853160DEBD3E7C9575579FF0139110
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +608,8 @@ magnet:?xt=urn:btih:91D142FC1C853160DEBD3E7C9575579FF0139110
 magnet:?xt=urn:btih:01FC530659DB10C00227FCF7BAEE310F97340B40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +633,8 @@ magnet:?xt=urn:btih:01FC530659DB10C00227FCF7BAEE310F97340B40
 ```bash
 magnet:?xt=urn:btih:ABFFA6D24B3D11A7FAFF8606F699FE37ECD2DBB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +663,8 @@ magnet:?xt=urn:btih:ABFFA6D24B3D11A7FAFF8606F699FE37ECD2DBB5
 magnet:?xt=urn:btih:4C65B9FAD5513C01D3A4AC247CD60F165F4758CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +690,8 @@ magnet:?xt=urn:btih:4C65B9FAD5513C01D3A4AC247CD60F165F4758CD
 magnet:?xt=urn:btih:E2B69D2D4C3D90518F4BB638844915664A481105
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +715,8 @@ magnet:?xt=urn:btih:E2B69D2D4C3D90518F4BB638844915664A481105
 ```bash
 magnet:?xt=urn:btih:782F9FAAB674641FF63473850124F06B467100BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

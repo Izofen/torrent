@@ -1,3 +1,29 @@
+###  Публикация: 1170125   (397798) от 03.10.2017
+
+Игумен Максим (Рыжов) | Истории, вдохновляющие нас к христианскому подвигу (2013) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_397798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эти истории рассказаны в проповедях игуменом Максимом (Рыжовым), настоятелем храма Живоначальной Троицы в Коньково. Автор вспоминает знакомые многим и менее известные повести из патериков, притчи, примеры из житий святых и подвижников благочестия, иллюстрируя этими примерами те или иные евангельские истины в их приложении к жизни христиан нашего времени, разбирая (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95CE1C0E0B7659F25F265157EDA6D240B6259994
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 566856   (398088) от 28.10.2012
 
 Ник Дейкин | Морской аквариум [2001] [DJVU]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:FB4FF6299794794B80C3FF47B8A9671CA491367A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:FB4FF6299794794B80C3FF47B8A9671CA491367A
 ```bash
 magnet:?xt=urn:btih:88B8958D11CAFE29C39692D36CE45303B9F968FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +102,8 @@ magnet:?xt=urn:btih:88B8958D11CAFE29C39692D36CE45303B9F968FC
 magnet:?xt=urn:btih:EA9B2A6A6C1ED29881D4F283CC11BD7DE601FAB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:EA9B2A6A6C1ED29881D4F283CC11BD7DE601FAB3
 ```bash
 magnet:?xt=urn:btih:2C463FC6435A37F29741FF1BC1FFC3470282B7BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +155,8 @@ magnet:?xt=urn:btih:2C463FC6435A37F29741FF1BC1FFC3470282B7BF
 magnet:?xt=urn:btih:2C9F3464B0F59EE977074175B11C675A0F3F6A96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +182,8 @@ magnet:?xt=urn:btih:2C9F3464B0F59EE977074175B11C675A0F3F6A96
 magnet:?xt=urn:btih:0F10A06C5B97E649C3554BB9EE8EF9875726384F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +207,8 @@ magnet:?xt=urn:btih:0F10A06C5B97E649C3554BB9EE8EF9875726384F
 ```bash
 magnet:?xt=urn:btih:C2B9EC04BB728436D4357B28929C481D6B817042
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +234,8 @@ magnet:?xt=urn:btih:C2B9EC04BB728436D4357B28929C481D6B817042
 magnet:?xt=urn:btih:A44AD0E2D95456F765DB11BEED5224B9974C60E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:A44AD0E2D95456F765DB11BEED5224B9974C60E8
 ```bash
 magnet:?xt=urn:btih:A4922F7AF4744B1A8CEA5F6320C6FB6B4363A2EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +289,8 @@ magnet:?xt=urn:btih:A4922F7AF4744B1A8CEA5F6320C6FB6B4363A2EB
 magnet:?xt=urn:btih:255B5D7DA4B99CB81CAF7FA22ACAD57E92947A48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +314,8 @@ magnet:?xt=urn:btih:255B5D7DA4B99CB81CAF7FA22ACAD57E92947A48
 ```bash
 magnet:?xt=urn:btih:E61A4317281E0259C8B546174FCE98634DDAB5DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +341,8 @@ magnet:?xt=urn:btih:E61A4317281E0259C8B546174FCE98634DDAB5DF
 ```bash
 magnet:?xt=urn:btih:365E423520BFC524EF6D699FCB5BC4BA97C8D683
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +370,8 @@ magnet:?xt=urn:btih:365E423520BFC524EF6D699FCB5BC4BA97C8D683
 magnet:?xt=urn:btih:4B59377F0C46502CE8E78E33CAE07C68EA6B4D13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +395,8 @@ magnet:?xt=urn:btih:4B59377F0C46502CE8E78E33CAE07C68EA6B4D13
 ```bash
 magnet:?xt=urn:btih:165AC814016F88C83F22C95736BEA1A9E09E8CDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +422,8 @@ magnet:?xt=urn:btih:165AC814016F88C83F22C95736BEA1A9E09E8CDB
 magnet:?xt=urn:btih:3CA06B6B04D73125835298C0D9198459572F220A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +448,8 @@ magnet:?xt=urn:btih:3CA06B6B04D73125835298C0D9198459572F220A
 ```bash
 magnet:?xt=urn:btih:460BCE6B83D7CEE7CE9DB52FD1A8FF95197D20A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +477,8 @@ magnet:?xt=urn:btih:460BCE6B83D7CEE7CE9DB52FD1A8FF95197D20A1
 magnet:?xt=urn:btih:32254561185CC8D596F6F85D06012126D574DABD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +502,8 @@ magnet:?xt=urn:btih:32254561185CC8D596F6F85D06012126D574DABD
 ```bash
 magnet:?xt=urn:btih:4296D563E45893B8F1670A81FB01726ABECCF472
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +530,8 @@ magnet:?xt=urn:btih:4296D563E45893B8F1670A81FB01726ABECCF472
 magnet:?xt=urn:btih:F6EC2154F8052D4160E8050C839ECBA5B044DD10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +555,8 @@ magnet:?xt=urn:btih:F6EC2154F8052D4160E8050C839ECBA5B044DD10
 ```bash
 magnet:?xt=urn:btih:9220C58F6671C09AAEBB7772A49D4163CA0D1868
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +583,8 @@ magnet:?xt=urn:btih:9220C58F6671C09AAEBB7772A49D4163CA0D1868
 magnet:?xt=urn:btih:019A6A72B7083CF6992C480E8716DCA502692D2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +608,8 @@ magnet:?xt=urn:btih:019A6A72B7083CF6992C480E8716DCA502692D2B
 ```bash
 magnet:?xt=urn:btih:82021034A0D097539385483EC1235570145792AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +635,8 @@ magnet:?xt=urn:btih:82021034A0D097539385483EC1235570145792AF
 magnet:?xt=urn:btih:F51497F9F3DE1FBD7AC087BB57A8D2DB2B6E2E57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +660,8 @@ magnet:?xt=urn:btih:F51497F9F3DE1FBD7AC087BB57A8D2DB2B6E2E57
 ```bash
 magnet:?xt=urn:btih:6EBD4EBB374DF20048EDB8C97AE2730D8540195D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,31 +687,7 @@ magnet:?xt=urn:btih:6EBD4EBB374DF20048EDB8C97AE2730D8540195D
 magnet:?xt=urn:btih:0B446A094ED3765960C760934230896753CFE7F9
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170023   (401520) от 29.09.2017
-
-Юрий Галенович | Россия: взгляд из Китая (2017) [FB2, EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401520.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1689 г. в Нерчинске был заключен мирный договор между Россией и Китаем, впервые определивший границу между государствами и положивший начало российско-китайским отношениям.
-За прошедшие сотни лет между нашими странами были как периоды дружбы, так и противостояния, доходившего до вооруженного столкновения.
-Кто сейчас Китай для России – друг или враг? Как официальные (   Читать дальше...   )Жанр: История, ПолитикаФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4868631A4E6775BC8C8B82999744E6D94CC991CF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

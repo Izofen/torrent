@@ -19,6 +19,8 @@ AIDA64 - является мощным средством для идентиф�
 magnet:?xt=urn:btih:2E931F4FF1A0404BD20886D080700D222345AE40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Tixati — это полноценный и бесплатный клиент с
 ```bash
 magnet:?xt=urn:btih:16008095455BF4B876AAE90D9A83E9B653D39388
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Phase One Capture One - один из лучших профессиональн�
 magnet:?xt=urn:btih:D7E056C7C61A4342D802266BEDA4B50F8E2FF5D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Total Commander Extended - это x86 и x64 версии Total Commander в о�
 ```bash
 magnet:?xt=urn:btih:6D3F7ED07F1B2159DD1851562B7E7B409D0912C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Foxit PDF Editor Pro (ранее известный как Foxit PhantomPDF Busi
 magnet:?xt=urn:btih:033BF9D35115FBC8D2E5C4D395BCA7CCDD74902C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Recuva - небольшая, но весьма эффективная утили
 ```bash
 magnet:?xt=urn:btih:2D843E4E134327A629DADE2743412BC5F39D379F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Android Studio предоставляет быстрые инструменты 
 magnet:?xt=urn:btih:8C85E671914F284594A90E74838BD5B6CA86F23F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:102DC993A1F65542D1C957EAE7291C8B1D4EF145
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Bandicam поможет вам сделать запись игры с высо�
 magnet:?xt=urn:btih:AB0E439307BC39957AC3A9403A0831ED22C534C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Wireshark - бесплатный сниффер, предназначенный 
 magnet:?xt=urn:btih:09B0E6F8FB2ED1C091ED1836502D7DDDEC094A05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ FxSound (ранее DFX Audio Enhancer) - отличное приложение,
 ```bash
 magnet:?xt=urn:btih:483860E8F77D9A43750AF44B06F972E50197C61F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ AOMEI Partition Assistant – мощная программа для работ�
 magnet:?xt=urn:btih:D2740C67D4DAFFA642F423B85BF4775CF6B66646
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ DaVinci Resolve — единственное в мире решение для �
 ```bash
 magnet:?xt=urn:btih:CC9CE4D1C110A422B39729A62BFDAD64CD5444D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ CrossOver 22.1.1 [Multi/Ru]
 magnet:?xt=urn:btih:1C60CFB8E20B70E4CEDEFA953F8533224D720850
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ KLS Backup - мощная программа, предназначенная д�
 ```bash
 magnet:?xt=urn:btih:5E751CE7AA4F5F828CE3158CB2AEC893E73D9553
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ SysAdmin Software Portable v.0.6.4.0 by rezorustavi (Update 22.05.2023) [Ru]
 magnet:?xt=urn:btih:19B5E8F1C11D8FB7B1C05C6E452F8C5637B7270A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Office Tool Plus - функциональная программа для раб
 ```bash
 magnet:?xt=urn:btih:E8B734904EF09642377AC1888AC840D4E9972CEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ R-Drive Image — является эффективной утилитой дл�
 magnet:?xt=urn:btih:DFE7F04238C34817793B9CCE5023EC0601A4A144
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ OnionFruit Connect 2023.521 [En]
 ```bash
 magnet:?xt=urn:btih:A74D53BD58D18400FDBEED01A9616C0BDB8CD9FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ StopUpdates10 – бесплатная утилита для Windows 10 и Windo
 magnet:?xt=urn:btih:F0EB145DA5415C78030F0849D45F8C9AC65BCD5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:26D2B5EFCF51227755BCCBE1D0B5154AD1FC163E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ R-Studio Network 9.2 Build 191153 RePack (& portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:579D10D54177D13178384956D6FB4FC671C6431C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Windows 10 Debloater – небольшая утилита для тонкой �
 ```bash
 magnet:?xt=urn:btih:52C2E0B55C631AB5A597108235FEF274EBC4FB3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ NVIDIA GeForce Driver — драйвера для видеокарт произ�
 magnet:?xt=urn:btih:FC7C34483653FEC0E71A2C8DCC19D3F52A0C464E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Cent Browser является усовершенствованной верси�
 magnet:?xt=urn:btih:6C18F3CE8DE9CE99A3ED32961002545690A09D74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Windows 11 Manager - это универсальная утилита специ
 ```bash
 magnet:?xt=urn:btih:2075A1CD3EA6D1C51A22E3428578396DAA741419
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

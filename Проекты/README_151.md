@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:943D1F76E040C9DF27608F19A89EEE5CC721970D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Back to School - отлично подходит для школьного ил�
 ```bash
 magnet:?xt=urn:btih:99A759001F8C49EE00DCA94E73E0BD0E6223FCF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ TMScript - это проект cценария, который создаёт л
 magnet:?xt=urn:btih:EFBA22C7DA2274F62758A197DED1D0E3BBA374C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:EFBA22C7DA2274F62758A197DED1D0E3BBA374C9
 magnet:?xt=urn:btih:E7239E2621D8218BD880DC941018262B2D3AD049
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ The Muse (Муза) - является инструментом для подн�
 ```bash
 magnet:?xt=urn:btih:2DE4647DAC4C226DAF172481E0BD0D7C0236B202
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:2DE4647DAC4C226DAF172481E0BD0D7C0236B202
 magnet:?xt=urn:btih:352BC55DC1DD2A3FBC07993AD4BB34AAA2EAD5A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Glitch Lower Thirds & Titles - набор текстовых подложек с
 ```bash
 magnet:?xt=urn:btih:C04B8528B497D0C50032379F15200864AC8A213E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:C04B8528B497D0C50032379F15200864AC8A213E
 ```bash
 magnet:?xt=urn:btih:DE33DA75C875AC3D2707E95F1ECA101C93F993A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Lower Third – Two Text Line, in and out animation ( Duration 00:15:00 )(   Ч�
 magnet:?xt=urn:btih:EA9DF3D21B9D0BB58C0B52E4C153E646433C7103
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:EA9DF3D21B9D0BB58C0B52E4C153E646433C7103
 ```bash
 magnet:?xt=urn:btih:59F3D3AA1E4308B97F60451830D01D96FDA1DFAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ MAIN FEATURES:(   Читать дальше...   )Формат: AEP
 magnet:?xt=urn:btih:843A61326428D1D7314CF98AB5C48513DC7480DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ Modular project style (very easy for customization)(   Читать дальше
 magnet:?xt=urn:btih:D067D4905BF4B77F9D02FC166C34F07A5CDE0ED9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:D067D4905BF4B77F9D02FC166C34F07A5CDE0ED9
 ```bash
 magnet:?xt=urn:btih:7F7E6C831EEEF68C6DE9DFABCC5EC34B7B66B1AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:7F7E6C831EEEF68C6DE9DFABCC5EC34B7B66B1AE
 magnet:?xt=urn:btih:341575B9BCBBB7FE11EAB9C8A32DB673E42BC6E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ Modern Glitchy Opener - Современный шаблон, который ид
 ```bash
 magnet:?xt=urn:btih:421E01F7CCA7C66D2BB9452FEF47679EE7681A61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ Alphabet Logo Reveal  - анимированный алфавит для ваш�
 magnet:?xt=urn:btih:7726546A4A29728A83A2AC36F601F3799736F1E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ Mirage - слайд-шоу, включающее в себя 20 заполнит
 ```bash
 magnet:?xt=urn:btih:5D262078627745FE282674D1EF315FFC47877590
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ Perfect to present your photos or videos
 magnet:?xt=urn:btih:C28A7EC2F342960E307701F8A9DA80E473E73C41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ RevoStock - Motionpile The Last War Title - 921674 [AEP]
 magnet:?xt=urn:btih:12ACF1B6FD6DB45FB6EC06F1F4E9E34331586348
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ VideoHive - On The Wall - 1589656 [AEP]
 ```bash
 magnet:?xt=urn:btih:DCA0CE21EB79DC740A479FFB4B901879F5B49B0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ magnet:?xt=urn:btih:DCA0CE21EB79DC740A479FFB4B901879F5B49B0A
 magnet:?xt=urn:btih:EF574C6B80E6A5791365DCBA339BC4C9799B6638
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ Summer Opener - энергичное, летнее видео-слайд-шоу.
 magnet:?xt=urn:btih:7F0B9F182FC8F3118D013BC403290DBA2602815F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ Parallax Reel  - хорошо сконструированный шаблон в
 ```bash
 magnet:?xt=urn:btih:D58F4F426994BA2218B8245F0C16C947861CB20D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +641,8 @@ Native resolution – 1280×720px(   Читать дальше...   )Форма�
 magnet:?xt=urn:btih:77B2A55B7D1D355ADBCFEE477118123DB34E0439
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ VideoBlocks - Action Reveal [AEP]
 magnet:?xt=urn:btih:0851B811C9874EC9A7F84BAB871E673B2354916F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ magnet:?xt=urn:btih:0851B811C9874EC9A7F84BAB871E673B2354916F
 ```bash
 magnet:?xt=urn:btih:0C5D8498DF7D1C51E7CC9A4BD1377551D33FB1BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

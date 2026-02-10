@@ -21,6 +21,8 @@ Labrador — семейство шрифтов без засечек.
 magnet:?xt=urn:btih:186AC14E356477BD66D0D140C2359D6D9CEE05BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ PhotoDirector - функциональный, но весьма простой �
 ```bash
 magnet:?xt=urn:btih:5229C3A9AACA287A0F0E715677A04E8804F4E462
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ VA - Love and Peace, Lounge & Chill Out, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:961329DE6F8E7A203D7A3AAACD9F040F4003CA35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:961329DE6F8E7A203D7A3AAACD9F040F4003CA35
 magnet:?xt=urn:btih:C1462D60A7250969728DC70EF93D5CC7D9B3302D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:C1462D60A7250969728DC70EF93D5CC7D9B3302D
 ```bash
 magnet:?xt=urn:btih:645226B92C066193FE379B912103172C7D1956AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -152,6 +162,8 @@ Distain! - Homesick Alien (1998) [FLAC|Lossless|tracks + .cue] <Electronic, Synt
 magnet:?xt=urn:btih:AA910A1F7419D53ABCCBD0890F9B4888DC4012D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -179,6 +191,8 @@ VA - Jazz for a Crime vol. 1-3 (2024) Signora Ward Records [FLAC|Lossless|Web-DL
 magnet:?xt=urn:btih:A8257D111D14FAB1FEB625CD745A2F3731201F0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ Balabolka 2.15.0.887 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5738FF7895A47978C8AF5BD10A81801ED1DDF4FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -231,6 +247,8 @@ magnet:?xt=urn:btih:5738FF7895A47978C8AF5BD10A81801ED1DDF4FF
 magnet:?xt=urn:btih:8D6370FB2C9AB3C25CDEA8E9FC76D97C205671D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +273,8 @@ Christybella — это монолинейный и рукописный шри�
 magnet:?xt=urn:btih:4021FF402AD2680CA9CF20253EBC91409196D401
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ magnet:?xt=urn:btih:4021FF402AD2680CA9CF20253EBC91409196D401
 ```bash
 magnet:?xt=urn:btih:C9230065021C2DD37EC1DDEBB2DBFDD01D8BF544
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +326,8 @@ Perfectly Clear — приложение, которое позволяет вс
 magnet:?xt=urn:btih:950070AE06D356959A9B5F131DC914C0DC64B202
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ Desktop Calendar – бесплатный календарь рабочего с
 ```bash
 magnet:?xt=urn:btih:990F77685526AC9C0DBDDCEAD09D2C7D3D3DEAC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ magnet:?xt=urn:btih:990F77685526AC9C0DBDDCEAD09D2C7D3D3DEAC7
 magnet:?xt=urn:btih:DA3D4B44DC98B5539B01AB5925784444DD8EEB9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:DA3D4B44DC98B5539B01AB5925784444DD8EEB9F
 ```bash
 magnet:?xt=urn:btih:29871FDF62C3433F3A6745613A2D8BD4EA1FA610
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ PrivaZer - полезная утилита, которая поможет вам
 magnet:?xt=urn:btih:61206571A587FCDD4EFEF283457D7E573BB697F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ Wise Disk Cleaner 11.2.0.837 RePack (& portable) by Dodakaedr [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7EF71D6E23B50D94F98694E4CE8CBD5AF0722769
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ magnet:?xt=urn:btih:7EF71D6E23B50D94F98694E4CE8CBD5AF0722769
 magnet:?xt=urn:btih:F0416D9A0642EF211D98AE0553F602019828C11A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:F0416D9A0642EF211D98AE0553F602019828C11A
 ```bash
 magnet:?xt=urn:btih:467497353F1C1C5B6C9166233AD24F28AD05288F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +535,8 @@ Process Lasso позволяет вручную или автоматическ�
 magnet:?xt=urn:btih:0D5DC453D2FA46CE042F8B07D665BCF275209D32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ TuneIn объединяет спортивные события, музыку, �
 ```bash
 magnet:?xt=urn:btih:D2368BD403336ACDED42DAA38AA7703239A64F01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +590,8 @@ magnet:?xt=urn:btih:D2368BD403336ACDED42DAA38AA7703239A64F01
 magnet:?xt=urn:btih:E4AF1A4932D59C997514BCBD91D60FDA3714351F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ magnet:?xt=urn:btih:E4AF1A4932D59C997514BCBD91D60FDA3714351F
 ```bash
 magnet:?xt=urn:btih:005BFAC69735B18ED7F655B11F9C4DA1AB8C5659
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +642,8 @@ magnet:?xt=urn:btih:005BFAC69735B18ED7F655B11F9C4DA1AB8C5659
 magnet:?xt=urn:btih:ECDADF3721AE0F599029A620D4B151D14C4F8CF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +667,8 @@ Text Editor Pro 31.4.0 + Portable + Bonus [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F08BFBF764F6775CDD0029DC54B9FB72004C42A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -645,6 +695,8 @@ Kabyta — семейство шрифтов без засечек, извест
 ```bash
 magnet:?xt=urn:btih:17BDD6302700E7E6375CB5CBACA9ED00B4436406
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

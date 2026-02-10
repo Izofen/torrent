@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:671A5A5D5CBB614C6EB91BF54E27CB1DE0860371
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Crysis: Remastered (2021) [Ru/Multi] (3.0.0) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:242F5A5E1610B3AF84F36C6358A0727B83E821A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Fifth Element (1998) [Ru/Multi] (1.0) Repack 1nomok
 magnet:?xt=urn:btih:FC63CD6596D82BFE838CCAD2103837A71472A241
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:FC63CD6596D82BFE838CCAD2103837A71472A241
 ```bash
 magnet:?xt=urn:btih:BEE5DBE81D8BB8E57E8719095B9811E707D22744
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:BEE5DBE81D8BB8E57E8719095B9811E707D22744
 magnet:?xt=urn:btih:03BD1D3AE559D77A519F692A6C40438F2DCC6287
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:03BD1D3AE559D77A519F692A6C40438F2DCC6287
 ```bash
 magnet:?xt=urn:btih:C5F85D4B86AFFCBACC9A01D5A3A594C61BCE20AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ VA - Hot and Erotic (2024) [MP3|320 Kbps] <Jazz, Electro, Nu Jazz>
 magnet:?xt=urn:btih:AF7D7C10D765BE7B8CA60748D699887A99A44996
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:AF7D7C10D765BE7B8CA60748D699887A99A44996
 ```bash
 magnet:?xt=urn:btih:7153FADA1F2613D93697A657D67CC9587AF773A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:7153FADA1F2613D93697A657D67CC9587AF773A8
 magnet:?xt=urn:btih:18182389B3754DA25456EEA0471ACD49D8F9681C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:18182389B3754DA25456EEA0471ACD49D8F9681C
 ```bash
 magnet:?xt=urn:btih:BABEF429D94DD6F0CF2770841AB48D464F0B8843
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:BABEF429D94DD6F0CF2770841AB48D464F0B8843
 magnet:?xt=urn:btih:6D285829A6B9D75FF265A3AEB136AA0F3AF9C2F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ Balabolka 2.15.0.881 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:DCC8A662AE656CA2C68971C0CBFBE964BA3FCCC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:DCC8A662AE656CA2C68971C0CBFBE964BA3FCCC0
 ```bash
 magnet:?xt=urn:btih:4FB953E517D5FA03DB5C6061A1246E8EAF7E0CF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:4FB953E517D5FA03DB5C6061A1246E8EAF7E0CF3
 magnet:?xt=urn:btih:FF0ABBB8AA044CA12B1FE6102EE0156A34A3C3A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:FF0ABBB8AA044CA12B1FE6102EE0156A34A3C3A0
 ```bash
 magnet:?xt=urn:btih:0A3473FD5403B6EDF564243828ED18EF78345B1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ Thenx v5.6.1 [En] Mod by youarefinished
 magnet:?xt=urn:btih:A9887B2CE05FB31F4B6A514383B78A619A8F0183
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:A9887B2CE05FB31F4B6A514383B78A619A8F0183
 magnet:?xt=urn:btih:C38A6C3FCCD275B34919927368294B2DB2E6E825
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:C38A6C3FCCD275B34919927368294B2DB2E6E825
 ```bash
 magnet:?xt=urn:btih:6AC93900D7558B1E044928A60459AD7A83A16B7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:6AC93900D7558B1E044928A60459AD7A83A16B7A
 ```bash
 magnet:?xt=urn:btih:5F4D14026D71FD52416AFCCE67DE6196F5A83EA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ VA - Autumn Car Music Hits 2024 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 magnet:?xt=urn:btih:2A0BA8A40838EBD5F859084B387D9E74CF2EB895
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +556,8 @@ Allie X - Girl With No Face (2024) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Indie P
 magnet:?xt=urn:btih:F743ACC071F630952FDE73974526F9DC25A59F7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +581,8 @@ magnet:?xt=urn:btih:F743ACC071F630952FDE73974526F9DC25A59F7C
 ```bash
 magnet:?xt=urn:btih:74B1837B2B07D613ED1222CABB3000C5ADB832A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +608,8 @@ magnet:?xt=urn:btih:74B1837B2B07D613ED1222CABB3000C5ADB832A3
 magnet:?xt=urn:btih:554A7398087FDABCD5D7D43775D214DEF78B2EEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ magnet:?xt=urn:btih:554A7398087FDABCD5D7D43775D214DEF78B2EEB
 ```bash
 magnet:?xt=urn:btih:460597C42DDAAFF02E20D1D239901B7003258317
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +664,8 @@ Blondie - Live In Boston 1978 (2024) HQ Remastered [MP3|320 Kbps] <New Wave, Pun
 magnet:?xt=urn:btih:C19DFFE8897D729B208F53FA7DEDEB8AEBE73B0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ You Still Got Me - одиннадцатый сольный студийный а
 ```bash
 magnet:?xt=urn:btih:F772758DE2B93CFA84F852F383A9485D4C60B143
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

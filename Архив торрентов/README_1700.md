@@ -20,6 +20,8 @@ Azureus — свободный BitTorrent-клиент, созданный в 20
 magnet:?xt=urn:btih:FFFA16B08DA2699121C8BBF46EC819A3C75C51A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Movavi Video Converter - программа для конвертации вид
 ```bash
 magnet:?xt=urn:btih:8A9857BC20A8A7DA4AE2C4D7A8C1F74AA652DF60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ AIDA64 - является мощным средством для идентиф�
 magnet:?xt=urn:btih:93ED38208789474DFE51E0E43E7F51825F6F475C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:CD6FED14D389F6EAF52F7D1FA60B50554116A0F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Export for iTunes -  экспортируйте свои плейлисты и �
 ```bash
 magnet:?xt=urn:btih:E69BD8248B3FC031D52A6C53345EE34040B3F428
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Opera Crypto Browser 100.0.4815.30 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:9978011266AB8E17A41B329B8D8C7D2C08A01946
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Things — приятный и простой ежедневник. Это ид�
 ```bash
 magnet:?xt=urn:btih:ACE570BE996F4FCF712CBF21FE2B30ADD30FD8DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ iTubeGo YouTube Downloader Pro for Mac 6.9.9 [Multi]
 magnet:?xt=urn:btih:08863511935E042EEDC438E4663A430D24F7D91D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Projectivy Launcher - приложение, что пригодится всем
 ```bash
 magnet:?xt=urn:btih:BF8816DCA096993E0E9EC30758E5460373C644C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Affinity Photo — обеспечивает более высокую скоро
 magnet:?xt=urn:btih:4AE42DF8712227947325D7CB7C816D1B8FBB6613
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Recordia 2.2.0 [En]
 ```bash
 magnet:?xt=urn:btih:4F8FF5EBF7F1EB26063B229FC51A3B29B0373062
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Optimizer рекомендуется использовать после све�
 magnet:?xt=urn:btih:7DC774625E2A6B91C44C448C881E6057B0164127
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Revo Uninstaller Pro 5.1.7 Portable by FC Portables [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:59C0340D759DE0DA7B638F23A5A8627B93EE3A19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ DMG Canvas создает образы дисков (.dmg). Процедура �
 magnet:?xt=urn:btih:BC3AED3C36F6B547DE7AE06D71A44876ABAAAA88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ BurnAware - относительно небольшая мощная и прос
 ```bash
 magnet:?xt=urn:btih:C48C974E578F90779E777F1781A88BB8DD98EDBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:4E1877F5284B9F707CEFB2FADE7DE0E394E0E08F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Middle  просто добавляет возможность сделать «
 ```bash
 magnet:?xt=urn:btih:A42C91346DB97CA5C3CC28FDD031B1930DF4093F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Timemator 2 v2.8.4 [En]
 magnet:?xt=urn:btih:2FE5B4AF0A3D5B2B862F010FD588D777F3869218
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:9A215C2B4ABF64A1FF3C2CDCD161428FE7A67FC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ NIUBI Partition Editor – программа для простого и над�
 magnet:?xt=urn:btih:A0F75B73F6EA7DFCCFC60B822F1BAD694B33EABE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ One Switch - это крошечное приложение, разработа�
 ```bash
 magnet:?xt=urn:btih:8DAE31E73EC46379142C29F340448AB67F2A7994
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ X Icon Changer - отличный проект по персонализации
 magnet:?xt=urn:btih:CADC4B4B8DEBC59DB1A3920B0958991D0F79750B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Phase One Capture One - один из лучших профессиональн�
 ```bash
 magnet:?xt=urn:btih:5F89F5B4D1CA5D609BAF6039332141C4E6C04AA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ Alfred 4 Powerpack 4.6.1 [En]
 magnet:?xt=urn:btih:985083A7AF746E0D3ED8CB4B4D374C78EC1F2FE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Opera One 100.0.4815.47 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:7275601B599D524B118AF7F8FEEFAEECFAA06A5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +677,8 @@ WSCC (Windows System Control Center) - портативная программа
 ```bash
 magnet:?xt=urn:btih:D9DED0FCA2A210CB3D717139722E089B4064A283
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

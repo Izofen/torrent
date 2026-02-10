@@ -1,3 +1,29 @@
+###  Публикация: 1320242   (470930) от 18.08.2019
+
+Оливер Сакс | В движении. История жизни (2019) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470930.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оливер Сакс – известный британский невролог, автор ряда популярных книг, переведенных на двадцать языков, две из которых – "Человек, который принял жену за шляпу" и "Антрополог на Марсе" – стали международными бестселлерами. Оливер Сакс рассказал читателям множество удивительных историй своих пациентов, а под конец жизни решился поведать историю (   Читать дальше...   )Жанр: Классическая и профессиональная психология, Биографии и мемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CB094B1825C988D1A8A2E47DBCC485304A112AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 939414   (470974) от 23.09.2015
 
 Дэйв Ульрих, Уэйн Брокбэнк | HR в борьбе за конкурентное преимущество (2015) [EPUB, FB2, MOBI, PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:50E7DB1BA44383F9DBF97F7A446FAAEF1872D8F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:50E7DB1BA44383F9DBF97F7A446FAAEF1872D8F6
 magnet:?xt=urn:btih:FB9221F9E814CB947501FB8958B4B33CB07F9FC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:FB9221F9E814CB947501FB8958B4B33CB07F9FC2
 ```bash
 magnet:?xt=urn:btih:96DA815DCB42261CD5C2E4C0E28B29804672CBF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:96DA815DCB42261CD5C2E4C0E28B29804672CBF4
 magnet:?xt=urn:btih:428C9BF29F9D787589DC479FBA7594867EEB9A85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +154,8 @@ magnet:?xt=urn:btih:428C9BF29F9D787589DC479FBA7594867EEB9A85
 magnet:?xt=urn:btih:5BB465A20FB65E2FA1121BE21F78D4E876BEBD04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:5BB465A20FB65E2FA1121BE21F78D4E876BEBD04
 ```bash
 magnet:?xt=urn:btih:ACEFCABE92668C7C6199575BEA0A4B6AA5F1048E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +207,8 @@ magnet:?xt=urn:btih:ACEFCABE92668C7C6199575BEA0A4B6AA5F1048E
 magnet:?xt=urn:btih:138FF2D49241AC57C7F8DB14B7A8160785641383
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:138FF2D49241AC57C7F8DB14B7A8160785641383
 ```bash
 magnet:?xt=urn:btih:F5175D4BF3883E5D26A5FEC31B751D09642B7665
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +261,8 @@ magnet:?xt=urn:btih:F5175D4BF3883E5D26A5FEC31B751D09642B7665
 magnet:?xt=urn:btih:0FC2D294FEA7F2D86AC0D2DEFC65B3034660723B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +286,8 @@ magnet:?xt=urn:btih:0FC2D294FEA7F2D86AC0D2DEFC65B3034660723B
 ```bash
 magnet:?xt=urn:btih:2E0950AC67DC93F38A8E8BEE847DC853F8DE34F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +313,8 @@ magnet:?xt=urn:btih:2E0950AC67DC93F38A8E8BEE847DC853F8DE34F4
 magnet:?xt=urn:btih:46D801CFA19343EE3DC098A472F4CF7FCA986AE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:46D801CFA19343EE3DC098A472F4CF7FCA986AE9
 ```bash
 magnet:?xt=urn:btih:4DC8B1A5E8E9DCD3A607479BA675074D43A8EF62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:4DC8B1A5E8E9DCD3A607479BA675074D43A8EF62
 magnet:?xt=urn:btih:0CDD2C2417F1CB5389538BC082804246B193539A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +393,8 @@ magnet:?xt=urn:btih:0CDD2C2417F1CB5389538BC082804246B193539A
 magnet:?xt=urn:btih:5734230CCA59B14A1208814B29294CAEAB9567FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +418,8 @@ magnet:?xt=urn:btih:5734230CCA59B14A1208814B29294CAEAB9567FC
 ```bash
 magnet:?xt=urn:btih:4EA0E59A0950AB529819DF932F7181EC96B8B051
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +445,8 @@ magnet:?xt=urn:btih:4EA0E59A0950AB529819DF932F7181EC96B8B051
 magnet:?xt=urn:btih:E4CAE5038021BF00883B30988CF4187B3A1ABC3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:E4CAE5038021BF00883B30988CF4187B3A1ABC3D
 ```bash
 magnet:?xt=urn:btih:3D0E78E8AE449110359F8ADA50DBB737B0E5D9B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +498,8 @@ magnet:?xt=urn:btih:3D0E78E8AE449110359F8ADA50DBB737B0E5D9B2
 magnet:?xt=urn:btih:675CFBC80072F99636FB4BF4614AE038EDBA04E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:675CFBC80072F99636FB4BF4614AE038EDBA04E0
 ```bash
 magnet:?xt=urn:btih:83B06F69BCF134816AA499F7A64627AF734ED047
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +552,8 @@ magnet:?xt=urn:btih:83B06F69BCF134816AA499F7A64627AF734ED047
 magnet:?xt=urn:btih:F8881A4867B1A8CFCD7B2FE17D9303DAD74817B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +577,8 @@ magnet:?xt=urn:btih:F8881A4867B1A8CFCD7B2FE17D9303DAD74817B2
 ```bash
 magnet:?xt=urn:btih:E170648B087090FE0AFFF4F63C4880C19BE13F0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:E170648B087090FE0AFFF4F63C4880C19BE13F0D
 magnet:?xt=urn:btih:302C59CAF5558B6159D0FD34F5DB7B3988C93378
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:302C59CAF5558B6159D0FD34F5DB7B3988C93378
 ```bash
 magnet:?xt=urn:btih:4AD14EC343311A015ABCEDE3FC69B32D1C1D281F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +656,8 @@ magnet:?xt=urn:btih:4AD14EC343311A015ABCEDE3FC69B32D1C1D281F
 magnet:?xt=urn:btih:60F723932E1897E88AD1625693BA8EB35EEE18C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,29 +682,7 @@ magnet:?xt=urn:btih:60F723932E1897E88AD1625693BA8EB35EEE18C3
 magnet:?xt=urn:btih:A507CEEAA10E2C1B487AC3FB0ACC6BD5D8F16C6B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406577   (472629) от 04.09.2020
-
-Бронислав Виногродский | Я - даос. Ты тоже? (2016) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472629.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем вашему вниманию третью книгу Бронислава Виногродского из серии "Боевая семиотика". "Перед вами необычная книга, представляющая собой попытку говорить о тех вещах, которые практически не поддаются обсуждению и описанию, во всяком случае на привычном для нас языке и в рамках доступной нам системы понятий. Язык описания и система понятий, (   Читать дальше...   )Жанр: Религия и теологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52787B43B0A6F9B50F55DE6FAE271EC4E655F02B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

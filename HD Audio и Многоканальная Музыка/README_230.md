@@ -1,3 +1,32 @@
+###  Публикация: 1063057   (436936) от 15.10.2016
+
+Rainbow - Difficult to Cure (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436936.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. I Surrender (4:05)
+A2. Spotlight Kid (4:56)
+A3. No Release (5:37)
+A4. Magic (4:09)(   Читать дальше...   )Производство: Polydor - 20MM 9233Жанр: Hard RockПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A1D7CEE68453C8F35F1F24CF03080D1DAEF669E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1323333   (437700) от 03.09.2019
 
 Audrey Hepburn, Rex Harrison - My Fair Lady (The Original Sound Track Recording) (1964) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Soundtrack, Musical>
@@ -21,6 +50,8 @@ Audrey Hepburn, Rex Harrison - My Fair Lady (The Original Sound Track Recording)
 ```bash
 magnet:?xt=urn:btih:87CB27A7C81D69A4BC7AADFDC0284D0A3CF12253
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ Children of Bodom — финская англоязычная группа из 
 magnet:?xt=urn:btih:187216DAFA8327AEF0CB682A3E84BD586894F08B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +109,8 @@ Pink Floyd - Wish You Were Here (2016) 1975 [DSD2.0|5,64MHz/1bit|tracks|Vinyl-Ri
 magnet:?xt=urn:btih:4ACA3DF70C50ECF5949B642CB3C139DAE637F1F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +137,8 @@ VA - Антология советского киношлягера - Любим
 ```bash
 magnet:?xt=urn:btih:FED43C6456353DABE26831DCE11BD04540C1EEB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -132,6 +169,8 @@ Rattle That Lock («Греми замкОм») — четвёртый сольн
 ```bash
 magnet:?xt=urn:btih:0AC1920B556EC91436F70CF88776260920C8C67D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +203,8 @@ Rainbow - Long Live Rock ‘n’ Roll (1977) SHM-SACD /2010/ [DSD 2.0 1bit/2822,
 magnet:?xt=urn:btih:090E3F36192B0A660ED3E918ACA26BAE20DAE837
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +231,8 @@ A3	По Посаду Городскому(   Читать дальше...   )Ж�
 ```bash
 magnet:?xt=urn:btih:97447F37DE88FBBF02D0A9F8F29E248D5C3EE8DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +261,8 @@ David Crosby - If I Could Only Remember My Name (1971) Reissue, 2022, Mobile Fid
 magnet:?xt=urn:btih:44FC23E0C52ACD0F0356C7D7C0D12C86993D2A14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +289,8 @@ Marilyn Manson - The Pale Emperor (2015) Deluxe Edition [FLAC 2.0 24/96|traсks(
 ```bash
 magnet:?xt=urn:btih:DA99CAB69897FAB4510C74E7EB34D623F0042E0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +319,8 @@ magnet:?xt=urn:btih:DA99CAB69897FAB4510C74E7EB34D623F0042E0D
 magnet:?xt=urn:btih:1D66340AFB8ECE3EEBBF8E2625F9AF15A40949EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +347,8 @@ Enigma Club - Амазония (2002) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Worl
 ```bash
 magnet:?xt=urn:btih:E3EB5B761C0D0747A2090124554332430BB0AFEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +377,8 @@ magnet:?xt=urn:btih:E3EB5B761C0D0747A2090124554332430BB0AFEE
 magnet:?xt=urn:btih:C790170D765C41EFDF499BE435AB0C27DB8B2FFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +405,8 @@ Sixx:A.M. — американская супергруппа, основанн�
 ```bash
 magnet:?xt=urn:btih:0666DEDB59D17C5D16E425DC31F60F687E27FE00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +435,8 @@ B1. Landscape (6:02)(   Читать дальше...   )Жанр: Dream-House, T
 magnet:?xt=urn:btih:1DBD0D6AA936BE7A0F696B2D053D0E19717B53D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +463,8 @@ A4. Heart's Grown Cold (4:15)(   Читать дальше...   )Произво�
 ```bash
 magnet:?xt=urn:btih:63C6F44FF58D39BCDEEF57E41650180BF44B7744
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +493,8 @@ Harumi Nomoto Trio - Another Ordinary Day (2020) [DSD64 2.0|1bit/2822,4kHz |SACD
 magnet:?xt=urn:btih:B1FAB8315253F8F88EF067A2D438FC3C18AA7C59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +521,8 @@ A4. Legion Of Aliens (3:37)(   Читать дальше...   )Производ�
 ```bash
 magnet:?xt=urn:btih:42E6D37D98E03BEF65A23D665C2EF3794717E9A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +551,8 @@ Richard Clayderman - 7 Albums (1978-1984) [FLAC 2.0|24/192|image + .cue|Vinyl-Ri
 magnet:?xt=urn:btih:4F00D51FEE3F07827505FF8324B11EA85C66953D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +579,8 @@ Gamma Ray — немецкая метал-группа, созданная в 19
 ```bash
 magnet:?xt=urn:btih:8EE1918D93BF6902C636FB2CDFD2DE185537AA30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +609,8 @@ Shinedown — американская рок-группа, основанная
 magnet:?xt=urn:btih:D7D23DD6DAF667EA772FC0C16774500CB38BF9AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +637,8 @@ magnet:?xt=urn:btih:D7D23DD6DAF667EA772FC0C16774500CB38BF9AE
 ```bash
 magnet:?xt=urn:btih:119B0A483678636826F666896191C10049CE198E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +667,8 @@ A4. Turning In Circles (3:32)(   Читать дальше...   )Произво�
 magnet:?xt=urn:btih:13DFB3F1B800C00EBC337220436272A56DFF494D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +695,8 @@ A4. Tonight (3:40)(   Читать дальше...   )Производство: 
 ```bash
 magnet:?xt=urn:btih:E200C30D544F3F807D2EDBB1474285307C00418B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +725,8 @@ Car-Man (Кар-Мэн) - Кармания (Carmania) (1992) [FLAC 2.0|96/24|ima
 magnet:?xt=urn:btih:EE146ED843CC42F0767552426FD7ACAE57B11BCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -674,30 +751,7 @@ VA - Hits Of BBC And Alaska Records 1 & 2 (1977) [FLAC 2.0|96/24|image+.cue|Viny
 magnet:?xt=urn:btih:9B78BC52F3E8C73FC99C4F6238D2A72A9E6DCA86
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568303   (461945) от 08.08.2022
-
-Unisonic (Helloween, Gamma Ray, Iron Savior) - Studio Albums (2012 - 2014) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unisonic — немецкая метал-супергруппа, образованная в 2009 году экс-вокалистом группы Helloween Михаэлем Киске вместе с Деннисом Уордом и Костой Зафирио из группы Pink Cream 69 и Мэнди Майером из группы Gotthard. В 2011 году к группе присоединяется сооснователь Helloween и лидер Gamma Ray, Кай Хансен.2012 - Unisonic
-2014 - Light of DawnЖанр: Melodic Heavy MetalПродолжительность: 02:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49434313FE80F9B7F217FC3C7CF1110FFFBF39C0
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

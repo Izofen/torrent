@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:4AC37C44DC38E4608566CCC56183E5BCDBC531FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:4AC37C44DC38E4608566CCC56183E5BCDBC531FB
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Cyberpunk 2077 приключенческая ролевая игра, дейс�
 magnet:?xt=urn:btih:1F5817DA89C2E5EB7A7D65523AC1C80069C76C96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Cyberpunk 2077 приключенческая ролевая игра, дейс�
 ```bash
 magnet:?xt=urn:btih:B1C18A21D8AFCEB36CF22EB8BB630C06F3DAD22B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ MechWarrior 5: Mercenaries (2019) [Ru/Multi] (1.11.371/dlc) License GOG
 magnet:?xt=urn:btih:E79BB75773E20E9C2CD858E9A092D7D0EDC4E25B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Steel Division 2 (2019) [Ru/Multi] (166508/dlc) License GOG [Total Conflict Edit
 ```bash
 magnet:?xt=urn:btih:A1B1E811565DB88BEC5D1392FDD26668039DF76D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Airships: Conquer the Skies (2015) [Ru/Multi] (1.2.8.2/dlc) License GOG (обн�
 magnet:?xt=urn:btih:5F3A153371B77338010CCD93BC70C8966D1D1D57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:5F3A153371B77338010CCD93BC70C8966D1D1D57
 ```bash
 magnet:?xt=urn:btih:D74F41FB9E5095AA2DACDA049DF23E7311E80346
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ AI War 2 (2019) [En] (5.714/dlc) License GOG [Titan Edition]
 magnet:?xt=urn:btih:CDB1B194FB626D9BEB8A64B6317F60B9AA81B20C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:CDB1B194FB626D9BEB8A64B6317F60B9AA81B20C
 ```bash
 magnet:?xt=urn:btih:82DE13F9B36E38DAE74CB6421DDE4B6A7EF4B9EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:82DE13F9B36E38DAE74CB6421DDE4B6A7EF4B9EF
 magnet:?xt=urn:btih:07EA08AA022B50B13D9947E52818AC8C4EA32283
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2025.09.07 [Ru]
 ```bash
 magnet:?xt=urn:btih:98A9B7B93589CBCA441455A7FCB2319C2FF59375
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:98A9B7B93589CBCA441455A7FCB2319C2FF59375
 magnet:?xt=urn:btih:674131A341D9B491EE5192F6E0BB5BED323992DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:674131A341D9B491EE5192F6E0BB5BED323992DD
 ```bash
 magnet:?xt=urn:btih:EA00553075D0AA9FF577D5129E6110C8C2108891
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:EA00553075D0AA9FF577D5129E6110C8C2108891
 magnet:?xt=urn:btih:F491589B8C4E59764AD6F6A3B5F93543A86FE89E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Starship Troopers: Terran Command — захватывающая стратег�
 ```bash
 magnet:?xt=urn:btih:38CB75820E91D2F51E485E7DD2A0479989E2C690
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Knock on the Coffin Lid (2024) [Ru/Multi] (1.3.5.4/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:D4B35A5B30D739C9E363427318F990D9CB577F15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ magnet:?xt=urn:btih:D4B35A5B30D739C9E363427318F990D9CB577F15
 ```bash
 magnet:?xt=urn:btih:57CC62E31F91E4DA1DCFB54D5D78991C27111878
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:57CC62E31F91E4DA1DCFB54D5D78991C27111878
 magnet:?xt=urn:btih:3B24D0F8829243670B99C4BF5C15912448BBD043
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ magnet:?xt=urn:btih:3B24D0F8829243670B99C4BF5C15912448BBD043
 magnet:?xt=urn:btih:AF7B23D038E32FA4B691536BC648ED7999AFEAAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +538,8 @@ Brigand: Oaxaca - это хардкорный гибрид RPG и FPS, дейс�
 ```bash
 magnet:?xt=urn:btih:69BA985716B6EB69678A139004386C037DD39EFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ Devolver - Non Compos Mentis (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metalco
 magnet:?xt=urn:btih:1B9FA648F002599EDAC9D69BE4635E9136544C2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ VA - Uplifting Trance Collection (2025) [MP3|320 Kbps] <Trance, Uplifting Trance
 magnet:?xt=urn:btih:C1D3FB73BD063FDA439AC99ABBBC509F4AE49919
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:C1D3FB73BD063FDA439AC99ABBBC509F4AE49919
 ```bash
 magnet:?xt=urn:btih:E8CBC238A4BB2943C2706493E54E0AAD228D2DAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ Anton Ryazanov Project - Collection 4 Albums (2024-2025) [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:F00ECA1B658EBE7934077B8B13D9DC11CBA73360
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ VA - Armin van Buuren - A State Of Trance 1242 (2025) [MP3|320 Kbps] <Trance, Pr
 ```bash
 magnet:?xt=urn:btih:9C8B8F6B8D8505E81AD0FA5D2CC88A9299C09190
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

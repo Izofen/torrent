@@ -1,3 +1,38 @@
+###  Публикация: 535781   (515620) от 17.08.2012
+
+VA - Hit Parade XX Century Instrumental Music (2CD) (1994) [MP3|320 кб/с]<Instrumental, Soundtrack>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_515620.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Symphonic Rock Orchestra - The Phantom Of The Opera (4:31)
+ 2. S. Taylor - Summertime (2:34)
+ 3. The Shadows - Chi May (3:38)
+ 4. J. Last - The Lonely Sheepheard (4:21)
+ 5. P. Mauriat - Mammy Blue (2:52)
+ 6. Jan Morks Quartet - You Don't Know How Much (3:23)
+ 7. A. Ventura - Love Story (3:45)
+ 8. F. Goya - I Just Call To Say I Love You (3:50)
+ 9. Ocarina - Song Of Ocarina (3:37)
+ 10. H. Manginy - The Pink Pantera (2:36)(   Читать дальше...   )Жанр: Instrumental, SoundtrackПродолжительность: 00:13:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26AE0C88842C73C8CDCBFB81FDF52B96E0CFB6A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1561321   (515634) от 04.07.2022
 
 VA - Envolver - Summer (2022) [MP3|320 Kbps] <Pop, Rock, R&B>
@@ -21,6 +56,8 @@ VA - Envolver - Summer (2022) [MP3|320 Kbps] <Pop, Rock, R&B>
 ```bash
 magnet:?xt=urn:btih:C86317DD233F19C6AC3004743447DD9DB541DE5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +86,8 @@ VA - Summer Beach Party Vol. 02 (2018) [MP3|320 Kbps] <House, Club, Dance>
 magnet:?xt=urn:btih:5A4088C90186A82735DDC81EB67937EEBA99E338
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +114,8 @@ VA - Prime Latin Nights (2018) [MP3|320 Kbps] <Latin, Reggaeton, Dance>
 ```bash
 magnet:?xt=urn:btih:4CE6BE74F98488BA3C9EBBBFD1C38D84768DE0E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -106,6 +147,8 @@ Richard Brown - Best of 1994-2012. Compiled by Firstlast (2018) [MP3|256-320 Kbp
 magnet:?xt=urn:btih:A57E618D57A3301E29504D974CA718697D9BCCFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -132,6 +175,8 @@ VA - House 100 August 2018 (6) (2018) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:BCC6B43CB7AB38B6CB326923DAFEFAFD33E9E16E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +205,8 @@ VA - Летние super новинки. Часть 6. 50/50 (2015) [MP3|256 кб
 magnet:?xt=urn:btih:826180F2CAD4E16950BF450A6352B37FEB76A62B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +233,8 @@ VA - Летние super новинки. Часть 4. 50/50 (2015) [MP3|256 кб
 ```bash
 magnet:?xt=urn:btih:E9010544002D4BA9C198B797E776D08FC8F1ABA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +263,8 @@ VA - Летние super новинки. Часть 5. 50/50 (2015) [MP3|256 кб
 magnet:?xt=urn:btih:6AD18617DAE6BF47D8FA331D25D6E54E06A2C04E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +291,8 @@ VA - Cafe Chillout Music Club Bar Music (2015) [MP3|320 кб/с]<Downtempo, Chil
 ```bash
 magnet:?xt=urn:btih:28E3A9EFDDBA27B1DFED6105D6E6A0F9782AC956
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +321,8 @@ VA - Office Sounds – Chillout Edition (2015) [MP3|320 кб/с]<Downtempo, Chil
 magnet:?xt=urn:btih:68742265430FE5273A2C61D0F81D5D7F7CFEF26F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +349,8 @@ VA - Perfect Sin Lounge Moments Best of Relaxed Bossa Nova and Sexy Smooth Beat 
 ```bash
 magnet:?xt=urn:btih:D5739864AA4FE9471A990F53DC94E54B35AD5703
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +379,8 @@ VA - Best Deep & Chillhouse Sounds (2015) [MP3|320 кб/с]<Deep House, Chill Ho
 magnet:?xt=urn:btih:FEEE7BEB4209012082F0CDF6FCF8A2D501F32D60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +405,8 @@ VA - Ibiza Residence (2015) [MP3|320 кб/с]<House, Club>
 ```bash
 magnet:?xt=urn:btih:907FD15DDD0089A626DF6CB3B574B879D89EE387
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +435,8 @@ VA - Natural Lounge and Chill Out (2015) [MP3|320 кб/с]<Downtempo, Chillout, 
 magnet:?xt=urn:btih:6215437B5C1BB61DD570FB9FF19BBA850B2F2354
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +463,8 @@ VA - Русская дискотека 90-х-2000-х (2014) [MP3|320 Kbps] <Pop,
 ```bash
 magnet:?xt=urn:btih:0C6B76EB05DEFC568410B4C9D2275952DD87CC90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +493,8 @@ Tanita Tikaram - Compilation (2022) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:2EA78F17E3DA49D6F0A17D6FCCD46E004AEA13DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +521,8 @@ VA - не Громкие новинки недели 25 (2019) [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:C7DF630005F29EDD74282E52FF6007132928C225
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +551,8 @@ VA - Record Super Chart 595 (2019) [MP3|320 Kbps] <House, Club, Dance>
 magnet:?xt=urn:btih:4EB384F2891A657632DFA7DD62EAA131731C3374
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +579,8 @@ VA - Feel The Love: Club House Electromix (2019) [MP3|320 Kbps] <Electro House>
 ```bash
 magnet:?xt=urn:btih:21D174BC78BB6647CA47A7A0AA309990DC75A0EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +609,8 @@ VA - Enhanced Session Electro House (2019) [MP3|320 Kbps] <Electro House>
 magnet:?xt=urn:btih:D2729BEF20B99A9CC6FA9F4FF84E0A4E845E5C4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +637,8 @@ VA - Drum Mystery: Bass Line Sound (2019) [MP3|320 Kbps] <Drum And Bass>
 ```bash
 magnet:?xt=urn:btih:BBB2391CB2930750B446A918FFAC000E31F2DA12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +667,8 @@ VA - Самые горячие летние хиты (2015) [MP3|256 кб/с]<Po
 magnet:?xt=urn:btih:1AF5BD231D8FFCC0E191F313E4FC3F7D5765D781
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +695,8 @@ VA - XXXL блатнячок на радио Шансон. Сборник 2 (201
 ```bash
 magnet:?xt=urn:btih:EA89DBA1D41364D172F657868A3B321F27C2DA99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +725,8 @@ VA - Intim Deep House (2015) [MP3|320 кб/с]<Deep House, Chillout>
 magnet:?xt=urn:btih:6B56F82660F86D7F4B6402866E8C1C1E5E1FBE0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -671,32 +754,7 @@ VA - Music For Everyone - Drum and Bass & Liquid Vol.4 (2015) [MP3|320 кб/с]<
 magnet:?xt=urn:btih:7A61BEA2D308F1D944A232C74894EB472CF7850A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241765   (517817) от 19.08.2018
-
-VA - Club Dance Ambience (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517817.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adrian Lux - Teenage Crime (Shevtsov & Krasavin Remix)
-002. Aiden Jude &  Max Landry - Sub Zero (Kue Remix)
-003. Alen Morris - Over You (Club Mix)
-004. Alma Ft. Tove Styrke - Good Vibes (Just Kiddin Remix)(   Читать дальше...   )Жанр: Dance, Club, House, Electro HouseПродолжительность: 07:30:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E12397C927CF0302875AA57162EDF25EDE5955A3
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

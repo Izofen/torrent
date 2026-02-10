@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:15402143630FD4FC10DD28139389AF71933CD8E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:15402143630FD4FC10DD28139389AF71933CD8E8
 ```bash
 magnet:?xt=urn:btih:4C94971AD0A2AE65AD9F81BC651735065E23FE5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Three Kingdoms Mushouden переносит геймеров в 182 год на�
 magnet:?xt=urn:btih:47719A7ED8B53BD0CC6810982E0642CA09BA3AC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0/dlc) Repack Let's�
 ```bash
 magnet:?xt=urn:btih:3227ABC1DF055EB406562CD1654BE406CE432BE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:3227ABC1DF055EB406562CD1654BE406CE432BE3
 magnet:?xt=urn:btih:9B1DD3247D61296F998AD89AA8A8318471222811
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:9B1DD3247D61296F998AD89AA8A8318471222811
 ```bash
 magnet:?xt=urn:btih:3F0755F69EFDB24F1C1E64BD8D332128CD542021
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (10.0.0.1/dlc) Repack Wanterl
 magnet:?xt=urn:btih:9CB29F2B0313BE6044532F4943ABBC29F701A2A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:9CB29F2B0313BE6044532F4943ABBC29F701A2A1
 ```bash
 magnet:?xt=urn:btih:15EB2182B749995D5792F0BCC2B477604220461E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Terraforming Mars – официальная адаптация популярн
 magnet:?xt=urn:btih:3DD4BE8454DCCE0C74A304A7BC40E2BACDA41619
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:3DD4BE8454DCCE0C74A304A7BC40E2BACDA41619
 ```bash
 magnet:?xt=urn:btih:A963B9A33841161E1BE824CA7CDBDF6CAF3AF073
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:A963B9A33841161E1BE824CA7CDBDF6CAF3AF073
 magnet:?xt=urn:btih:A9838A208E2ED1BD64A1C4D28B04A236EE7F5BD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:A9838A208E2ED1BD64A1C4D28B04A236EE7F5BD2
 ```bash
 magnet:?xt=urn:btih:A42C7E424CB0E5885B1501A9330F74721A57E637
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:A42C7E424CB0E5885B1501A9330F74721A57E637
 magnet:?xt=urn:btih:A681B2E819C28DED9A2B6C1DFAC3B25891934DE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Web-программирование:
 magnet:?xt=urn:btih:301FD2945568611049389FB48ED09296223E6584
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ SnowRunner (2021) [Ru/Multi] (38/dlc) Repack Let'sРlay [4-Year Anniversary Edit
 ```bash
 magnet:?xt=urn:btih:1AF8ADA31E36BC2EF430A6FA0469005159B70A2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (Update 12/dlc) Repack Let'sРla
 magnet:?xt=urn:btih:AD5F67362FB6A76179317C30C27C08D7F4E5FFB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:AD5F67362FB6A76179317C30C27C08D7F4E5FFB7
 ```bash
 magnet:?xt=urn:btih:B2AF2F985290C596F1E65658A65895B93412369D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:B2AF2F985290C596F1E65658A65895B93412369D
 magnet:?xt=urn:btih:23831D83C9A7DC7377BE506542A995B904454F55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:23831D83C9A7DC7377BE506542A995B904454F55
 ```bash
 magnet:?xt=urn:btih:D1E997479D2463665B7E1C189C0513A535B3CCFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:D1E997479D2463665B7E1C189C0513A535B3CCFE
 magnet:?xt=urn:btih:62F9A6EDEF4748B49DD7892A44D60100E15B9F4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:62F9A6EDEF4748B49DD7892A44D60100E15B9F4D
 ```bash
 magnet:?xt=urn:btih:4019E34C422433869512085FA39F45056F5C0228
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ Daemon X Machina: Titanic Scion (2025) [Ru/Multi] (1.0.3/dlc) Repack Let'sРlay 
 magnet:?xt=urn:btih:1CCDE71A5DBDB7BBC7B49C32EF7BACF95AB55D2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:1CCDE71A5DBDB7BBC7B49C32EF7BACF95AB55D2F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:1CCDE71A5DBDB7BBC7B49C32EF7BACF95AB55D2F
 ```bash
 magnet:?xt=urn:btih:BC1E75BDCE22BC10B30E5680C05A218779A52221
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:BC1E75BDCE22BC10B30E5680C05A218779A52221
 magnet:?xt=urn:btih:9B76C695CD386F35808324A00BE3500BE1FF5F0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:9B76C695CD386F35808324A00BE3500BE1FF5F0B
 ```bash
 magnet:?xt=urn:btih:917326E222C496D0219A123ADDF69D1AD2C993DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

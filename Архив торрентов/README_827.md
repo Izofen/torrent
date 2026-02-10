@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:AC26D812A7BE24CFAA42D34173CE6D0D95EEB2F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ CD 1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -84,6 +88,8 @@ VA - Black Hole (1996) [FLAC|Lossless]<Goa Trance>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +124,8 @@ The Nitty Gritty Dirt Band - 19 альбомов (1967-2009) [MP3|128-320 кб/�
 magnet:?xt=urn:btih:543115488F9D1468D313D4090A0EC74A7A613622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +149,8 @@ Sergio Mendes - Timeless (2006) [FLAC|Lossless]<Jazz, Bossa-Nova, Samba>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +179,8 @@ Sergio Mendes - Timeless (2006) [FLAC|Lossless]<Jazz, Bossa-Nova, Samba>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +204,8 @@ Sergio Mendes - Timeless (2006) [FLAC|Lossless]<Jazz, Bossa-Nova, Samba>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +231,8 @@ Ashampoo Snap - программа для создания скриншотов 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +257,8 @@ Ashampoo Snap - программа для создания скриншотов 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Ashampoo Snap - программа для создания скриншотов 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +318,8 @@ Aaliyah - Aaliyah (2001) [MP3|320 кб/с]<R&B>
 magnet:?xt=urn:btih:5C6C7C16F828AE7D5B4DAFE84BA1A212A64EAFB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +352,8 @@ VA - Narada Guitar (1998) 2CD [FLAC|Lossless]<Guitar, Folk>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +388,8 @@ Pakt - Berlin (2012) [MP3|224-320 кб/с]<EBM, Synthpop, Industrial>
 magnet:?xt=urn:btih:2FE99C02BA8BD8F6017CBE87131EC48EBE09954C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +423,8 @@ The Future Sound Of London - Environments 4 (2012) [MP3|320 кб/с]< Ambient, I
 magnet:?xt=urn:btih:F70125C3E69BB3D67DB81CDA2052FAB647189A44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +452,8 @@ magnet:?xt=urn:btih:F70125C3E69BB3D67DB81CDA2052FAB647189A44
 magnet:?xt=urn:btih:5325E2180F172937F7557DD1E2762B37FF37C669
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +477,8 @@ Fotosizer 1.34.0.510 [мульти]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +504,8 @@ Fotosizer 1.34.0.510 [мульти]
 magnet:?xt=urn:btih:A4EE1A5CC627BE13BC75376B7EAA46F0803BFCD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +529,8 @@ magnet:?xt=urn:btih:A4EE1A5CC627BE13BC75376B7EAA46F0803BFCD6
 ```bash
 magnet:?xt=urn:btih:2C19ED31845310AF46D796A7F855328F9D6AEB53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +556,8 @@ magnet:?xt=urn:btih:2C19ED31845310AF46D796A7F855328F9D6AEB53
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +586,8 @@ magnet:?xt=urn:btih:2C19ED31845310AF46D796A7F855328F9D6AEB53
 magnet:?xt=urn:btih:EDF4B334578DAA89B7D9451E46410B15B42D8BA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +611,8 @@ Nokia Suite - набор программ для работы с мобильн�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +638,8 @@ Nokia Suite - набор программ для работы с мобильн�
 magnet:?xt=urn:btih:6FDDE36E482AEFBD715C17C3566A4707B46A4167
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +663,8 @@ magnet:?xt=urn:btih:6FDDE36E482AEFBD715C17C3566A4707B46A4167
 ```bash
 magnet:?xt=urn:btih:D01E79DD4083C3FE7EC2CB655AB1C2B48FBAE82A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -648,6 +694,8 @@ magnet:?xt=urn:btih:D01E79DD4083C3FE7EC2CB655AB1C2B48FBAE82A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -674,6 +722,8 @@ rchBang является проектом, разрабатываемым ArchBa
 magnet:?xt=urn:btih:60CEEA580F1499C21A3A1AE1C617BC5FB3D10998
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -697,6 +747,8 @@ magnet:?xt=urn:btih:60CEEA580F1499C21A3A1AE1C617BC5FB3D10998
 ```bash
 magnet:?xt=urn:btih:B543B346B7EC02715700CCD86B84C289DF7727A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Skillshare, Dawid Tuminski | How To Create A Flat Design Night Camping in Affini
 magnet:?xt=urn:btih:F3FB7358713027306E9D28F493D79901AB2D4CE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Udemy, Emma Grimberg | Искусство создания текстов с ч�
 ```bash
 magnet:?xt=urn:btih:36D2AF43E7DA52D32212C08F86A7258A14144926
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ magnet:?xt=urn:btih:36D2AF43E7DA52D32212C08F86A7258A14144926
 magnet:?xt=urn:btih:9F88DB3E522D0E2052AFCAED72B5EC36B24920FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ magnet:?xt=urn:btih:9F88DB3E522D0E2052AFCAED72B5EC36B24920FB
 magnet:?xt=urn:btih:3C1FEDA8D8EB637BA26E912B53830A8AC06EB6CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ Stepik, Renat Lotfullin | Microsoft Excel - Продвинутый пользо�
 ```bash
 magnet:?xt=urn:btih:80FD9E9AD5C36EF161C3628E097F7946E24164A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ ChatGPT (от англ. Generative Pre-trained Transformer «генератив�
 magnet:?xt=urn:btih:864586A3AB5FB7EE7FD9474BE3134DBE3505F35D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ Udemy, Valeri Visuals | Premium Logo Animation in Adobe After Effects (2023) WEB
 magnet:?xt=urn:btih:3EED55D00C566885B968F2A646450F06CDE17C75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ Affinity Designer — самое быстрое, эффективное и, во
 ```bash
 magnet:?xt=urn:btih:BE318E061380DCBCA919FF44C9D58FC06B839802
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ Skillshare, Isabel Aracama | Learn to Use the Pen Tool in Affinity Designer (201
 magnet:?xt=urn:btih:6AE92A1F974455E0BFF7F9085188DD5283B1481D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ Enterclass, Анастасия Беседина | В осеннем парке (
 ```bash
 magnet:?xt=urn:btih:792D61FBDAEA16D9444CAFC8BA033ED8CBFEA6EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +297,8 @@ Mashafotoblog, Маша | Мобильная фотосъемка и обраб�
 magnet:?xt=urn:btih:B98D41FC0F5B67F31215175713347533D1ACB6FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ Ultimate Lighting — углубленный учебный курс
 ```bash
 magnet:?xt=urn:btih:3A0471C84D88AC87DAC197C31F9506943E1AC96E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +355,8 @@ magnet:?xt=urn:btih:3A0471C84D88AC87DAC197C31F9506943E1AC96E
 magnet:?xt=urn:btih:A8B2480E3B1BBAC7C3049D7B5E7F2D2474F84ECC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +381,8 @@ Artstation, Michael Gerard | Unreal Complete Scene - Forest Environment (2023) W
 ```bash
 magnet:?xt=urn:btih:9845A0104D9D9E0CEC9049330202829125927180
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +409,8 @@ SMD pro, Андрей Нифедов | VirtualDj и Подкастинг (2010) 
 magnet:?xt=urn:btih:149D2DC31A481350A6D90ED8BBEC68D38903239B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +435,8 @@ Enterclass, Владислав Татаринов | Такая разная во
 magnet:?xt=urn:btih:3D676577803D275A6808A2A97620B20AA697D45F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +460,8 @@ Udemy, Thomas Harle | Unreal 5 Niagara - Introduction To Niagara (2023) WEB-DL [
 ```bash
 magnet:?xt=urn:btih:2BFA8678E3D760F70866FFA15967C6BF067C7B5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +490,8 @@ magnet:?xt=urn:btih:2BFA8678E3D760F70866FFA15967C6BF067C7B5B
 magnet:?xt=urn:btih:1BE418C0079CA1A2191C2E5E698409018C146FB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +516,8 @@ Udemy, Jestoni Esteban | Affinity Designer: A Comprehensive Guide for Beginners 
 ```bash
 magnet:?xt=urn:btih:B8CA59567FE6AD807C6B7665A072D9FCE37EEC2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +544,8 @@ Domestika, Nick Liefhebber | Illustrated pattern design: Eye catching vector ill
 magnet:?xt=urn:btih:36E5A125DD728B35F44116BD1577DBC2ACB0606A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +570,8 @@ Kubernetes в настоящее время является одной из с�
 ```bash
 magnet:?xt=urn:btih:9E1CA8B4F57019093E42698C0DBF0D74C4D0DA45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +600,8 @@ magnet:?xt=urn:btih:9E1CA8B4F57019093E42698C0DBF0D74C4D0DA45
 magnet:?xt=urn:btih:8B7EBCCF50B4E013F5CBAD05B072D692D61D2471
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +629,8 @@ magnet:?xt=urn:btih:8B7EBCCF50B4E013F5CBAD05B072D692D61D2471
 magnet:?xt=urn:btih:794D285EF02C86A91652D5701D730C7DEDC9CB93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +654,8 @@ Udemy, Nam Ha Minh | Spring Boot REST APIs Ultimate Course (2023) WEB-DL [EN / E
 ```bash
 magnet:?xt=urn:btih:151C038C68AFF015AB3C9C8FF31C9AFD61684F43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +684,8 @@ magnet:?xt=urn:btih:151C038C68AFF015AB3C9C8FF31C9AFD61684F43
 magnet:?xt=urn:btih:12F04E5789BDD89049CD94D4BF29050B0C9E9DF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +711,8 @@ Udemy, Norbert B. Menyhart | 30+ React Projects, Learn React JS by Building 30+ 
 ```bash
 magnet:?xt=urn:btih:533AA610137E3BEA239D9BC321C08CF6C6C37BD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

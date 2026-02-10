@@ -19,6 +19,8 @@ The Legend of Heroes: Trails of Cold Steel (2013) [PS3] [USA] 3.55 [Cobra ODE / 
 magnet:?xt=urn:btih:8F5C297108A7B2CA6E5CBD431047932D109884DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Comrade Black продолжает свой крестовый поход про
 ```bash
 magnet:?xt=urn:btih:A8A1451D0ADE14CD61A9E67ED74D2CF5BFD5B355
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:A8A1451D0ADE14CD61A9E67ED74D2CF5BFD5B355
 magnet:?xt=urn:btih:CFFB845C330DE355BE93EA4C55D303DEE46088FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ The Simpsons Game [XBOX360] [Ru] [Freeboot] (2007)
 ```bash
 magnet:?xt=urn:btih:D368EF1F9DF6D4E5B3C60E4097497B81BE61D4DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Dragon's Crown [PS3] [EUR] [En] [4.40] [Cobra ODE / E3 ODE PRO ISO][2013]
 magnet:?xt=urn:btih:60B38C5EC6C990A178BC7809D9FDB5603F33AD2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Burnout 3: Takedown [PS2] [NTSC] [Ru/En] (2004)
 ```bash
 magnet:?xt=urn:btih:2DA7F51721AB73D932BA79FA39E321BC74D63E4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ ToCA Race Driver — это не только скоростные машины 
 ```bash
 magnet:?xt=urn:btih:AB00905CEF2D058505C23450F85AC53E5C1EAA04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:AB00905CEF2D058505C23450F85AC53E5C1EAA04
 magnet:?xt=urn:btih:FAA355E49293E9BD0118C45897549D803212820D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ WALL-E [Wii] [PAL] [Rus] (2008)
 ```bash
 magnet:?xt=urn:btih:D301E4ED3182D1272B6E82BF28C6E926EA0F4975
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ Mana Khemia является духовным наследником попул�
 magnet:?xt=urn:btih:4CF38509F85F31D93F86C1E9FBA175473403B3E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ Cерия Assassin's Creed выходит на Nintendo Switch! Сыграйте
 magnet:?xt=urn:btih:8A162DDF9F6A4D9FACDEA6C065789D9DE60127A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ Wonderbook: Walking with Dinosaurs / Wonderbook: Прогулки с Диноз�
 ```bash
 magnet:?xt=urn:btih:20A59D152E23D7A079A9066D4D8BD2E6445F3E71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ Need for Speed Most Wanted (2005) [PS2] [EUR] [Unofficial] [Ru]
 magnet:?xt=urn:btih:4FCD287A43FBF558178FFB0F6CADB64C1DFBDC7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ inFAMOUS 2: Festival of Blood [PS3] [PSN] [USA] [RUSSOUND] [3.55] [3k3y ODE ISO]
 ```bash
 magnet:?xt=urn:btih:F0C3AD6A7B72D9EB2151B75DB20A8F3D5E23A8D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ WipEout HD Fury [PS3] [PAL] [Ru] [2.76] [Cobra ODE / E3 ODE PRO ISO] (2009)
 magnet:?xt=urn:btih:F0705C1630478D06118D67AA6558D8C2FAB37600
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ Rune Factory: Tides of Destiny [PS3] [+MOVE] [USA] [En] [4.21] [Cobra ODE / E3 O
 magnet:?xt=urn:btih:096B9D077E8752D580A7EDF75C30B605C62B50F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ DARK SOULS II: Scholar of the First Sin (2015) [PS3] [EUR] 3.30 [HEN / CFW] [Rep
 ```bash
 magnet:?xt=urn:btih:4AA06006F6B99E3AFAE17256E3E2489570E444A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ Mini Ninjas (2009) [PS3] [EUR] 2.60 [Cobra ODE / E3 ODE PRO ISO] [License] [Mult
 magnet:?xt=urn:btih:EA2F34B55AD5A715EACB07A43A14F47EA0160F80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ Siren: New Translation (в Европе известна, как Siren: Blood Cu
 ```bash
 magnet:?xt=urn:btih:48D3DC0EC5018D2DC885E1E7A2357A3D14326E8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +535,8 @@ Ninja Gaiden Sigma [PS3] [EUR] [Multi5] [1.80] [Cobra ODE / E3 ODE PRO ISO] (200
 magnet:?xt=urn:btih:6C64E6A9AB6481087BD303E17A45376988ED9891
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ Wonderbook: Book of Potions является продолжением Wonderbook
 magnet:?xt=urn:btih:A51A1452AF8169096BEA25F7867326B54B86FAA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ Ridge Racer 7 [PS3] [PAL] [ENG] [1.50] [Cobra ODE / E3 ODE PRO ISO] (2006)
 magnet:?xt=urn:btih:1A9544F9343DD40FD97BA6A1D856AB71E143F345
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ Saints Row IV [PS3] [PAL] [En] [Repack / 1.05 / 18 DLC] (2013) | R.G. Inferno
 ```bash
 magnet:?xt=urn:btih:AF3B789E9EF24B4DD075265B3E7BA808CD569B70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +643,8 @@ magnet:?xt=urn:btih:AF3B789E9EF24B4DD075265B3E7BA808CD569B70
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +669,8 @@ Call of Duty: World at War [Wii] [PAL] [En/Fr] (2008)
 magnet:?xt=urn:btih:BC7526913668CD3E440FAC8875C7513E6AB0D8BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ Brothers In Arms: Earned In Blood [Wii] [Multi 5] [PAL] (2008)
 ```bash
 magnet:?xt=urn:btih:6F63B4AE176E3006C32FF5E409616948A396B637
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

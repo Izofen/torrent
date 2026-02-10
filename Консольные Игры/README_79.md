@@ -21,6 +21,8 @@ Drop Zone: Under Fire [WiiWare] [RegionFree] [Eng] (2012)
 magnet:?xt=urn:btih:BA50539A72902CA177489C520ACDC43FB20DF7AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Teenage Mutant Ninja Turtles 2 Battle Nexus [GameCube] [NTSC] [ENG] (2004)
 magnet:?xt=urn:btih:3F3738CB12FBD8672DD811ED3868ADB3054CD7CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Marvel Nemesis: Rise of the Imperfects — Это файтинг, в котор�
 ```bash
 magnet:?xt=urn:btih:B9551A44C91F1844F7B579F586A37C6E8955A434
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +107,8 @@ SoulCalibur II [GameCube] [NTSC] [ENG] (2003)
 magnet:?xt=urn:btih:8FC7143A2E6929FB53D53C2281BE9B3F10694BF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +136,8 @@ Ben 10 Ultimate Alien: Cosmic Destruction - продолжение серии и
 magnet:?xt=urn:btih:823EBAAE93C93E0E82E449C6C8C7D005BBBD708C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ Buffy the Vampire Slayer: Chaos Bleeds – это экшен, созданный
 magnet:?xt=urn:btih:22443D01300BD8D16A8E3021806F4521266D6D42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +189,8 @@ WinUAE 2.5.1 + BIOS (эмулятор Amiga) [Amiga CD32] [English] (2012)
 ```bash
 magnet:?xt=urn:btih:177DF08756396B99BC1EDE588AEADA855D2CE7C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ Hunter: The Reckoning - это приключенческий экшен от т
 magnet:?xt=urn:btih:7BCC956A8D5055025AAB33979830DBFD3BA6747A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +250,8 @@ Summoner A Goddess Reborn [GameCube] [NTSC] [ENG] (2003)
 magnet:?xt=urn:btih:9D4018CD2A707243129A15D1A30FA7216505A7A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -257,6 +275,8 @@ Chicken Little: Ace in Action [Wii] [ENG] [NTSC] (2006)
 ```bash
 magnet:?xt=urn:btih:D2560DBA70AA62FD811FD93681E1FD31FF072492
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +304,8 @@ Catz [Wii] [Region Free] [ENG] (2006)
 magnet:?xt=urn:btih:710EBF7674070DA75203F8C7941B039C97B3DDE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +329,8 @@ The Sims 2: Castaway [Wii] [NTSC] [ENG] (2007)
 ```bash
 magnet:?xt=urn:btih:F40950FE04882EE7E94CE713A2D409C5D986FD79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +356,8 @@ Agatha Christie: And Then There Were None [Wii] [NTSC] [ENG] (2008)
 magnet:?xt=urn:btih:52A22F74A4EC4E4D9F36734AFB1D9757C0470240
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +381,8 @@ Monster High: Ghoul Spirit [Wii] [NTSC] [Eng] (2011)
 ```bash
 magnet:?xt=urn:btih:843CB542CAAD03C28FE56DCB2D6E3D46CFEF949A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +408,8 @@ Dead Rising 2 [xbox 360] [Region Free] [rus v2.1] (2010)
 magnet:?xt=urn:btih:621DDB12E641D2EF534D05FCC67AB1389B684762
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ Bee Movie Game [Wii] [PAL] [Multi3] (2007)
 ```bash
 magnet:?xt=urn:btih:F5BFB35D518DFBF9E26BD8278FA6A07D35565E00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +462,8 @@ Get Fit with Mel B - это комплексная фитнес-программ
 magnet:?xt=urn:btih:4CBF3F3D840B2C7180FD6CEE962B0F807AF34363
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ Inazuma Eleven Go Strikers 2013 [Wii] [NTSC-J] [JPN] (2012)
 ```bash
 magnet:?xt=urn:btih:73FE4FD034428961FEFCDE932A8AA50601BD9B03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +516,8 @@ Air Conflicts: Pacific Carriers продолжает серию аркадных
 magnet:?xt=urn:btih:1D5E8E261656AFE1B00620840670D1486A94D44F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +542,8 @@ Start The Party! Save the World / Зажигай! Спасая мир [PS3] [RUS
 ```bash
 magnet:?xt=urn:btih:125F08ED1B6990A3E7CA4661CC68325AC3CC02BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +571,8 @@ Showtime Championship Boxing [Wii] [NTSC] [Eng] (2007)
 magnet:?xt=urn:btih:3260314EA29F7C8E22E6E8F417C4386CAD62AB53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +596,8 @@ New Super Mario Bros Wii The Next Levels [Wii] [ENG] [NTSC] (2010)
 ```bash
 magnet:?xt=urn:btih:5E94E8F99F309ABB06681D7DF1F0DD280C11AD40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +632,8 @@ Vanquish [PS3] [ENG] [NTSC-U] (2010)
 magnet:?xt=urn:btih:7502E1758B469A4ED34025BB4F56327B0F4165FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +662,8 @@ Fat Princess / Принцесса-обжора [PS3] [RUS] [PSN] [3.55] (2009)
 magnet:?xt=urn:btih:85585E2AE91D6634A1A00545B1D71D3D05C3A710
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +687,8 @@ magnet:?xt=urn:btih:85585E2AE91D6634A1A00545B1D71D3D05C3A710
 ```bash
 magnet:?xt=urn:btih:EA0061E5CBC7BB13C7D0105885FAEE4C615A93F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -665,6 +715,8 @@ Yetisports: Penguin Party Island [Wii] [PAL] [De] (2010)
 ```bash
 magnet:?xt=urn:btih:F4948B4768B0A026E239090207038B6A4CBA4238
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

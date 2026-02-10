@@ -22,6 +22,8 @@ Hearts on Fire - Signs & Wonders (2025) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 magnet:?xt=urn:btih:03EF58B73572A3EA42B49A10052B49CDC5D85558
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:03EF58B73572A3EA42B49A10052B49CDC5D85558
 ```bash
 magnet:?xt=urn:btih:FB43F5979C8B94FB616D111719ECEC5FD278B16E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ J.R. Richards - My Darkest Hour (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternativ
 magnet:?xt=urn:btih:F5AC103E79882A687A32FBD72648F58324EDDB45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:F5AC103E79882A687A32FBD72648F58324EDDB45
 ```bash
 magnet:?xt=urn:btih:785F84BED603816615533A8B2267648BBD9DDDA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ magnet:?xt=urn:btih:785F84BED603816615533A8B2267648BBD9DDDA8
 magnet:?xt=urn:btih:5A8DDD909685DF26FB559EBEC5ACC758D6642DAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +165,8 @@ magnet:?xt=urn:btih:5A8DDD909685DF26FB559EBEC5ACC758D6642DAF
 magnet:?xt=urn:btih:9D339E25C697837A4C3B8FD6963EDF0AA5635AE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ magnet:?xt=urn:btih:9D339E25C697837A4C3B8FD6963EDF0AA5635AE4
 ```bash
 magnet:?xt=urn:btih:EBBB352267EB4BAE6F0836049567295044D7FFE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ Ashen - Chimera (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt Metal, Modern 
 magnet:?xt=urn:btih:85A8037EF0BC4BB9231E37A8F349793334185EB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +251,8 @@ Reyvi - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:FCB41EBD1B81797DC9E55727DAA70786AD3DB524
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +276,8 @@ magnet:?xt=urn:btih:FCB41EBD1B81797DC9E55727DAA70786AD3DB524
 ```bash
 magnet:?xt=urn:btih:BFB3DBEA292A84A3D5298B791B8FEF4ECD903439
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +303,8 @@ magnet:?xt=urn:btih:BFB3DBEA292A84A3D5298B791B8FEF4ECD903439
 magnet:?xt=urn:btih:2ADFD462DF0E604EB7A8302A6063DA36FD966280
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +329,8 @@ magnet:?xt=urn:btih:2ADFD462DF0E604EB7A8302A6063DA36FD966280
 ```bash
 magnet:?xt=urn:btih:7B93DBDB6878D198D1BEFCFE6570DD5F7C2B7EBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +359,8 @@ VA - A State Of Trance, Ibiza 2025 (Mixed by Armin van Buuren) (2025) [FLAC|Loss
 magnet:?xt=urn:btih:1D7ECE678A5A52AD6306C1ECC0FA399C8AB106C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +388,8 @@ magnet:?xt=urn:btih:1D7ECE678A5A52AD6306C1ECC0FA399C8AB106C2
 magnet:?xt=urn:btih:8054CF3478DB356FAEB19F7272818B318314773D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +414,8 @@ magnet:?xt=urn:btih:8054CF3478DB356FAEB19F7272818B318314773D
 magnet:?xt=urn:btih:EB06AC8685FA09253946A29341806050EC1C10F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +439,8 @@ magnet:?xt=urn:btih:EB06AC8685FA09253946A29341806050EC1C10F5
 ```bash
 magnet:?xt=urn:btih:7645C6218EB645791CB07EC5B9AEFD858D18B9A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +469,8 @@ magnet:?xt=urn:btih:7645C6218EB645791CB07EC5B9AEFD858D18B9A2
 magnet:?xt=urn:btih:8B19BBAEF07EEAFF9AB02CF25A961E5F947B5485
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +498,8 @@ Sequence Vogue - Perspectives (2025) [MP3|320 Kbps] <Synthpop, Futurepop>
 magnet:?xt=urn:btih:0040A994D328497F0278D4050DA47A9164D62384
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +523,8 @@ magnet:?xt=urn:btih:0040A994D328497F0278D4050DA47A9164D62384
 ```bash
 magnet:?xt=urn:btih:39F645D1CC69192680CA8C0D85FF12666550865C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +553,8 @@ magnet:?xt=urn:btih:39F645D1CC69192680CA8C0D85FF12666550865C
 magnet:?xt=urn:btih:C66A2FA1B82BFEEA192537DB4B102C00437E5C1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +579,8 @@ magnet:?xt=urn:btih:C66A2FA1B82BFEEA192537DB4B102C00437E5C1B
 ```bash
 magnet:?xt=urn:btih:12F607A8996BF70F85CA83B83438ECF04C7A7FF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +609,8 @@ Teddy Swims - I've Tried Everything But Therapy (Part 2) (2025) [FLAC|Lossless|i
 magnet:?xt=urn:btih:503F0587286529F052D8D0C5D60D7B92700F9544
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +636,8 @@ magnet:?xt=urn:btih:503F0587286529F052D8D0C5D60D7B92700F9544
 magnet:?xt=urn:btih:96BD4B5EBFB8DBDA8C00EE8C75AC5D04AE3340C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +661,8 @@ magnet:?xt=urn:btih:96BD4B5EBFB8DBDA8C00EE8C75AC5D04AE3340C1
 ```bash
 magnet:?xt=urn:btih:37999186DCC9C01906BAADCF82036F42195796B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +688,8 @@ magnet:?xt=urn:btih:37999186DCC9C01906BAADCF82036F42195796B4
 magnet:?xt=urn:btih:750F95797144AFDB06DC23947C029458C2540B61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +713,8 @@ magnet:?xt=urn:btih:750F95797144AFDB06DC23947C029458C2540B61
 ```bash
 magnet:?xt=urn:btih:6BFC2852AB2190BCA81E72A11909E6479991E1DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

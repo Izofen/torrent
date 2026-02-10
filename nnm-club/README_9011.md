@@ -22,6 +22,8 @@ VA - Hot Dance Pool Party (2019) [MP3|320 Kbps] <Dance, House, Pop>
 magnet:?xt=urn:btih:9706F087E4C44322E8B65A99ED802AC50F680743
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -50,6 +52,8 @@ magnet:?xt=urn:btih:9706F087E4C44322E8B65A99ED802AC50F680743
 magnet:?xt=urn:btih:554D67645C0A30A85423E4B96EAF9B6C126FD39B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -77,6 +81,8 @@ magnet:?xt=urn:btih:554D67645C0A30A85423E4B96EAF9B6C126FD39B
 magnet:?xt=urn:btih:037BEA4ADF0FA33740D96896209FE5390910DC83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:037BEA4ADF0FA33740D96896209FE5390910DC83
 ```bash
 magnet:?xt=urn:btih:5B534DE66C690670C68C2EAB9475B407F3B911B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -134,6 +142,8 @@ Metrik - Panda TV Promo (30.11.2010) [MP3|192 kbps]<Drum & Bass>
 magnet:?xt=urn:btih:B2AAD91D5C6D197C013948B322032CFCAF820D98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -161,6 +171,8 @@ VA - Happy Nation: Reggae Collection (2019) [MP3|320 Kbps] <Reggae, Dancehall, R
 magnet:?xt=urn:btih:517505DA402D982E39C4D958D6A22DC8AF78000F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +196,8 @@ Registry Life 5.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:823B3CD71538064DF0DEFBA8BC78A2AB8DA56B2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -209,6 +223,8 @@ VA - Музыкальный Новогодний Подарок from AGR | @nGeL
 magnet:?xt=urn:btih:CB5EC45C95134B54C3DF1E57053D986AB208F07D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -232,6 +248,8 @@ magnet:?xt=urn:btih:CB5EC45C95134B54C3DF1E57053D986AB208F07D
 ```bash
 magnet:?xt=urn:btih:13F1EB24A34D6777DB45FFED080ABE80A61BD4AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -257,6 +275,8 @@ magnet:?xt=urn:btih:13F1EB24A34D6777DB45FFED080ABE80A61BD4AD
 magnet:?xt=urn:btih:952481BD3BAEF4EF5F0CEB4AB8C3A706DB51C541
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -281,6 +301,8 @@ Wifi Signal Strength - отображение состояния уровня Wi
 ```bash
 magnet:?xt=urn:btih:8FAB9EE929CE4F343B069AEFB4422034233CE6F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +331,8 @@ New London Chorale - Het Mooiste Van (2006) [FLAC|Lossless|image + .cue] <Classi
 magnet:?xt=urn:btih:369254B890D730D49606F75C1F75671FD9403C7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +359,8 @@ magnet:?xt=urn:btih:369254B890D730D49606F75C1F75671FD9403C7B
 ```bash
 magnet:?xt=urn:btih:5E97A218623317E21EACB28781D2E76A3E52C5CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +389,8 @@ VA - Record Super Chart 612 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 magnet:?xt=urn:btih:6AC6A0F5933CB929F943FB5939F6AE83B702C9F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +415,8 @@ magnet:?xt=urn:btih:6AC6A0F5933CB929F943FB5939F6AE83B702C9F1
 magnet:?xt=urn:btih:EE2B20B17A1BEB3514C4401E739D74A2600FFD9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +440,8 @@ magnet:?xt=urn:btih:EE2B20B17A1BEB3514C4401E739D74A2600FFD9C
 ```bash
 magnet:?xt=urn:btih:9D7C7B5EDDD2774950CC11701250FA415F61BE59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +470,8 @@ magnet:?xt=urn:btih:9D7C7B5EDDD2774950CC11701250FA415F61BE59
 magnet:?xt=urn:btih:D0CDAEDEF1F71F8E7A311C8F3BF09ED3B2669C55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +496,8 @@ magnet:?xt=urn:btih:D0CDAEDEF1F71F8E7A311C8F3BF09ED3B2669C55
 ```bash
 magnet:?xt=urn:btih:DBAD83614736BB5F67C00D2C19011C50DC49AFDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +524,8 @@ magnet:?xt=urn:btih:DBAD83614736BB5F67C00D2C19011C50DC49AFDA
 magnet:?xt=urn:btih:2530B8DA0AA802DC5F5F9A55C2F20EC01CB965B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +549,8 @@ PassFab for ZIP — программа для восстановления за�
 ```bash
 magnet:?xt=urn:btih:6DFB1BACF1016EB61B5FCC3B1F1F43DB7858EE8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +576,8 @@ AnExplorer PRO File Manager v4.0.4 [Ru/Multi]
 magnet:?xt=urn:btih:BB11D491673CFA7C2672D609E3A5396BF1FED997
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +601,8 @@ magnet:?xt=urn:btih:BB11D491673CFA7C2672D609E3A5396BF1FED997
 ```bash
 magnet:?xt=urn:btih:CB0E7E7D42273EB0FBD71CF077654BED0FAB149E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +628,8 @@ NG: Древние греки / The Greeks (2016) HDTVRip (Серии 1-3 из 3
 magnet:?xt=urn:btih:92345A253777ED850EA45A1AA7307AC78754EC4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +653,8 @@ magnet:?xt=urn:btih:92345A253777ED850EA45A1AA7307AC78754EC4C
 ```bash
 magnet:?xt=urn:btih:FC8ABCDDBFE71B1C1EEE9B80DDA38A12F8BF42DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +681,8 @@ magnet:?xt=urn:btih:FC8ABCDDBFE71B1C1EEE9B80DDA38A12F8BF42DA
 magnet:?xt=urn:btih:7741AA345963E7834FB1E62144E36512DA2A151B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 ```bash
 magnet:?xt=urn:btih:5F4E165130C0BCD5004B23DB548B1F92445FEA31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

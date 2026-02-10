@@ -19,6 +19,8 @@ The Dark Eye: Chains of Satinav (2012) [Ru/Multi] (3.0.351.5498) Repack Let'sРl
 magnet:?xt=urn:btih:9125DD2AA1EDF4C109282583AAF5F20530E9B378
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Deathbulge: Battle of the Bands (2023) [En] (1.2.2) License GOG
 ```bash
 magnet:?xt=urn:btih:D296E9B3F0FD220289144DA0B168D70BC6D3CA3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Pools (Бассейны) – игра, разработанная в жанре 
 magnet:?xt=urn:btih:9D4A95EE880374C2F012E237A2C565F546290DFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Randal's Monday (2014) [Ru/Multi] (1.0.3) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:C36ED21EA3757257BB3824AF253371909F351849
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Dude, Where Is My Beer? (2020) [Ru/Multi] (11) License GOG
 magnet:?xt=urn:btih:CB7C59134D1676F9149FED208D279EC94947DBDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The Many Pieces of Mr. Coo - это сюрреалистическое граф�
 ```bash
 magnet:?xt=urn:btih:EA9ABAF9C6D64C295D45C82DD91EA157E33E5285
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Jusant - увлекательная видеоигра, которая приг�
 magnet:?xt=urn:btih:8668677AA0CB2933A61D8061293C119D6FFB2EA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ FIRE - это приключение-исследование с множест�
 ```bash
 magnet:?xt=urn:btih:CEAEDB4263CA073018988CC6A842A6B367B8984A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Doll Impostor погружает игрока в атмосферу страха
 magnet:?xt=urn:btih:A153CBA0593023E624F2BDBFFC91A29DD793F565
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Dungeon Defenders – интересная игра, которая сочета
 ```bash
 magnet:?xt=urn:btih:ACA50E3247A48603A462C530D719EF2330D87BA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Open Wheel Manager 2 приглашает вас в мир автогонок. �
 magnet:?xt=urn:btih:C00F10685890FC33F0C5C44EDDD147178F52B594
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ The Binding of Isaac: Rebirth - это RPG-шутер с элементами и
 ```bash
 magnet:?xt=urn:btih:86E1B5AF22E0B09F037524F15BFAD2011A8B56D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Trade Conquest (2024) [En] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:0F91708A0BD8E3DAF6A116DC73272DE4EC5C57F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Only Up 2! (2023) [Ru/Multi] (1.0) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:4E7ACF8B2A37DF72B8930495879B7A6F1EFC9751
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Bendy and the Dark Revival - это хоррор-игра на выживани�
 magnet:?xt=urn:btih:7F1B049ED2FB3C02282A0122F41CFC4FEE566358
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Only Up! Skibidi Together (2024) [Ru/Multi] (1.0) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:463B7ACDA384C151C242A2CC0BCE7919E0246EB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Lost in Play (2022) [Ru/Multi] (1.0.63) Repack Let'sРlay
 magnet:?xt=urn:btih:6B10AC8A13B0EE18B0E980459414E6E28E816929
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Alaskan Truck Simulator – уникальная игра, в которой в�
 ```bash
 magnet:?xt=urn:btih:033F4EFCD4264DFBDB61926CA32F1DF0B5D49AC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Dragon Quest Monsters: The Dark Prince (2024) [Multi] (1.0.1) Scene Tenoke
 magnet:?xt=urn:btih:687414FD41210347EDAB1FB4FB12706085321FB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Atari 50: The Anniversary Celebration приглашает игроков в и�
 ```bash
 magnet:?xt=urn:btih:FD473F9903FD2262B4CA76E369BCB1E0B678ACC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Viscera - это шутер с видом сверху, вдохновленны
 magnet:?xt=urn:btih:08A0C379997164E8BDB0C6437BBD65E8C5B94C01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Super Woden GP 2 - это любовное письмо в мир автоспо
 ```bash
 magnet:?xt=urn:btih:22762FF5757B7243FEB8CD4B09CD899BF501C53E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Paranormal Files 12: Fatal Flaw (2024) [En] (1.0) Unofficial [Collector's Editio
 magnet:?xt=urn:btih:FA4EC25DE4045A6BCACA9A15AF3E6E38D75ED399
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Nine Sols (2024) [Ru/Multi] (202412161711.b1327bd4.0) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:688D8A4F61A79171242FA86C65D89803B8ECECEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ SPRAWL (2023) [Multi] (1.7) License GOG
 magnet:?xt=urn:btih:81F19EB82D16319745BB502BEBBB2F24E7777707
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Banishers: Ghosts of New Eden - это увлекательная Action-RPG, к
 ```bash
 magnet:?xt=urn:btih:EF984C488D18B3EC2E2BE324EB0071E55D31F0AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

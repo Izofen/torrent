@@ -1,3 +1,30 @@
+###  Публикация: 1542885   (634919) от 08.04.2022
+
+Робин Хобб | «Сага о Видящих» Книга 1. Ученик убийцы (2022) [MP3, Александр Городиский]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой — бастард королевского наследника Фитц, выросший среди слуг и, по приказу деда-короля, с малолетства готовившийся в тайные убийцы. Интриги королевского двора, измены, клевета, презрение окружающих, — таков удел юного бастарда.
+Страна переживает тяжкие времена, — король болен и слаб, его сыновья ненавидят друг друга, а с моря угрожают кровожадные пираты (   Читать дальше...   )Жанр: Героическое фэнтези, Зарубежное фэнтезиПродолжительность: 18:32:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D2BDAF0EAC327B50765D2D744DAB75A7E479CC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1542911   (635046) от 08.04.2022
 
 Елизар Лазовский | Прошлая настоящая жизнь (2022) [MP3, Константин Бережной]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:1926BAB2ADBDE082DA3C1E71776B46B3B6BA3C67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +71,8 @@ magnet:?xt=urn:btih:1926BAB2ADBDE082DA3C1E71776B46B3B6BA3C67
 ```bash
 magnet:?xt=urn:btih:5C6C4172421959EDA62FCFAAF7F0A898CD82D324
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +99,8 @@ magnet:?xt=urn:btih:5C6C4172421959EDA62FCFAAF7F0A898CD82D324
 magnet:?xt=urn:btih:D0D5A64727F23DE83243B338F3732702774D3E5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +125,8 @@ magnet:?xt=urn:btih:D0D5A64727F23DE83243B338F3732702774D3E5C
 magnet:?xt=urn:btih:B1C20CF2A1A673DA57EC483352A65B32DF35122A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +150,8 @@ magnet:?xt=urn:btih:B1C20CF2A1A673DA57EC483352A65B32DF35122A
 ```bash
 magnet:?xt=urn:btih:2C280A18F825C3A1FA8240E8BF96E05FDC789D97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +179,8 @@ magnet:?xt=urn:btih:2C280A18F825C3A1FA8240E8BF96E05FDC789D97
 magnet:?xt=urn:btih:AA671AA82C83862266488A976049A8257008690A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +204,8 @@ magnet:?xt=urn:btih:AA671AA82C83862266488A976049A8257008690A
 ```bash
 magnet:?xt=urn:btih:1591FF1932BF589356023E7984A618CF69E3E9CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +231,8 @@ magnet:?xt=urn:btih:1591FF1932BF589356023E7984A618CF69E3E9CB
 magnet:?xt=urn:btih:043E830D102FAE4A258621C525478575744DCFA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +257,8 @@ magnet:?xt=urn:btih:043E830D102FAE4A258621C525478575744DCFA6
 magnet:?xt=urn:btih:D5F8DEA79EE46D46D7D537EC8E3B2C0EB481E633
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ magnet:?xt=urn:btih:D5F8DEA79EE46D46D7D537EC8E3B2C0EB481E633
 ```bash
 magnet:?xt=urn:btih:FDFAB35EEF5128FB10FBDAB49102580F8F00E2F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +310,8 @@ magnet:?xt=urn:btih:FDFAB35EEF5128FB10FBDAB49102580F8F00E2F4
 magnet:?xt=urn:btih:472B60B7372C8ECD2EF92A19B3BA71E221A52F88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +335,8 @@ magnet:?xt=urn:btih:472B60B7372C8ECD2EF92A19B3BA71E221A52F88
 ```bash
 magnet:?xt=urn:btih:7187C2236D84BA39A43734BB60CDED17E1D22707
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +363,8 @@ magnet:?xt=urn:btih:7187C2236D84BA39A43734BB60CDED17E1D22707
 magnet:?xt=urn:btih:CB1009EB4757A46488E4B4AF7CCCED37BCF1ED57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +389,8 @@ magnet:?xt=urn:btih:CB1009EB4757A46488E4B4AF7CCCED37BCF1ED57
 magnet:?xt=urn:btih:B8662AFAE7350918AE30028AFC178283B0710742
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +414,8 @@ magnet:?xt=urn:btih:B8662AFAE7350918AE30028AFC178283B0710742
 ```bash
 magnet:?xt=urn:btih:783399008F07C7DCDD50E175DEEBEF841710BF93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +442,8 @@ magnet:?xt=urn:btih:783399008F07C7DCDD50E175DEEBEF841710BF93
 magnet:?xt=urn:btih:CC7A18074C4AF45099236DD0A86B9C72D17246E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +467,8 @@ magnet:?xt=urn:btih:CC7A18074C4AF45099236DD0A86B9C72D17246E9
 ```bash
 magnet:?xt=urn:btih:4CB112AF97DE1CD249ADB5AA7039FECB81284601
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +495,8 @@ magnet:?xt=urn:btih:4CB112AF97DE1CD249ADB5AA7039FECB81284601
 magnet:?xt=urn:btih:C3C1701CCE82CC125113E1C1727A25387AFE1BDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +522,8 @@ magnet:?xt=urn:btih:C3C1701CCE82CC125113E1C1727A25387AFE1BDE
 magnet:?xt=urn:btih:75F38EC14832ACCA312551A2BD0D65316425781A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +547,8 @@ magnet:?xt=urn:btih:75F38EC14832ACCA312551A2BD0D65316425781A
 ```bash
 magnet:?xt=urn:btih:4CE18AEE37AD9D125BE4C6C8E06E82A2B0BA2627
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +574,8 @@ magnet:?xt=urn:btih:4CE18AEE37AD9D125BE4C6C8E06E82A2B0BA2627
 magnet:?xt=urn:btih:B2412694C09B3B2725022CA61626840E9993E76E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +599,8 @@ magnet:?xt=urn:btih:B2412694C09B3B2725022CA61626840E9993E76E
 ```bash
 magnet:?xt=urn:btih:FA2D03FA3769010946921583AFC24AD8991F5974
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +626,8 @@ magnet:?xt=urn:btih:FA2D03FA3769010946921583AFC24AD8991F5974
 ```bash
 magnet:?xt=urn:btih:CF55AF35857BCDC6BBDA42E9DFD08837B0C22628
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +656,8 @@ magnet:?xt=urn:btih:CF55AF35857BCDC6BBDA42E9DFD08837B0C22628
 magnet:?xt=urn:btih:7BE1AA807FDF96BD469EABFD4DFFCAF5674A7CFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,30 +682,7 @@ magnet:?xt=urn:btih:7BE1AA807FDF96BD469EABFD4DFFCAF5674A7CFE
 magnet:?xt=urn:btih:5B226330D5DEA2F8EF559ECCD82E080D5B16BF3E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143341   (637076) от 17.06.2017
-
-Александр Беляев | Остров погибших кораблей (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637076.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр Беляев – один из основоположников советской фантастической литературы, выдающийся писатель, оставившей наследие из более, чем 20 замечательных повестей и романов.
-Потерпев бедствие, трансатлантическое пассажирское судно относится течением в таинственные закоулки Саргассова моря, откуда до сих пор никому не удавалось выбраться. Все корабли, попадающие туда, (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 05:11:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1E40351A6B4D5A00C5F0F03AAADEEE4BD9C2605
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ AI Limit (2025) [Ru/Multi] (1.1.001/dlc) Repack Let'sРlay [Deluxe Edition]
 magnet:?xt=urn:btih:0688F52752FCD408B75D054DB0CF350831D8E299
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Last Epoch – приключенческая экшен-игра с глубо�
 ```bash
 magnet:?xt=urn:btih:A38426C620E8C6E7EAF41E125E4325ADB6986B5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ System Shock 2 (2025) [Ru/Multi] (1.2.4244.0) Repack Let'sРlay [25th Anniversar
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ System Shock 2: 25th Anniversary Remaster (2025) [Multi] (1.2.4546) License GOG
 ```bash
 magnet:?xt=urn:btih:55FD758215AA19D80FE7C03023A4888E0353E26B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Soulstone Survivors - это динамичный экшен-рогалик, г�
 magnet:?xt=urn:btih:E13999EDFB8324F1FB33DF42AC1A37A401BC6AC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Warsim: The Realm of Aslona – это симулятор управления �
 ```bash
 magnet:?xt=urn:btih:D72C32ABC6758C39FE4D38B8B6C916F1EC40198E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Slayer: the Demon Haunted World представляет мир, выходящ�
 magnet:?xt=urn:btih:6FA5042E1401BD23090B38F34BE0B08A3C8F2792
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Starfield - долгожданная ролевая игра в жанре на�
 ```bash
 magnet:?xt=urn:btih:F42736CF9E0FE41552814739E56C22C626A648B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Survive the Fall (2025) [Ru/Multi] (1.1.4.2506/dlc) License GOG [Ultimate Editio
 magnet:?xt=urn:btih:A3A31F8D3DA34083E829FEC15750CC0CC61AD213
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Tales & Tactics – перед вами классический автобат�
 ```bash
 magnet:?xt=urn:btih:D3AD8CC4CC2E17AC12EEF0EEDFB67A7DD153E225
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Everafter Falls (2024) [Multi] (2.1.4) License GOG
 magnet:?xt=urn:btih:91FFE2197C3A7E4A38F4F962AA86AC1BA9F56AB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ False Skies - это классическая ролевая игра с инт�
 ```bash
 magnet:?xt=urn:btih:6A4366990992FB0805153ECEA606355FB780A0AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Dragon Ruins II (2) (2025) [En] (250701) License GOG
 magnet:?xt=urn:btih:74379C3E31E9386BD5762DCC21F7C6086B1E34E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ The Edge of Allegoria - это пошаговая ролевая адвенчу�
 ```bash
 magnet:?xt=urn:btih:67BE1CAE0631FF572A97E455B4B3C4D7F38067DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Barony повествует об обретшем вечное существо�
 magnet:?xt=urn:btih:9F6D81344E4B13F3EE61A09F2EB79A640E53AC7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Scrapnaut - это командно-административная игра н
 ```bash
 magnet:?xt=urn:btih:45A723F167339B6EE7C1F52FB98685319EC6F59F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Ys X (10): Nordics (2024) [Multi] (1.0.9/dlc) License GOG
 magnet:?xt=urn:btih:416A6A58676340F380894AA28F96677E69D5EE58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Ys: The Oath in Felghana (2012) [En] (2020.03.11) License GOG
 ```bash
 magnet:?xt=urn:btih:3C8379CA255157A63BA762532585A0BC0048F526
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ The Last Spell (2023) [Ru/Multi] (1.2.20.2/dlc) License GOG
 magnet:?xt=urn:btih:F633813A2B6FE6DB6B2A63AE902B8970875A7205
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Vagrus - The Riven Realms – ролевая игра с элементами с
 ```bash
 magnet:?xt=urn:btih:B2B3B59427F43AF0B1AF23B14E3F9160E23D5AA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Darkest Dungeon – пугающе сложная пошаговая ролев�
 magnet:?xt=urn:btih:18F697FD74E1DDA68D748340B7D41C5BA9508154
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Chained Echoes - это сюжетная JRPG. С группой героев в
 ```bash
 magnet:?xt=urn:btih:2044E6AD9E027D784A6CC647A26971642E8A0129
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Avowed (2025) [Ru/Multi] (1.5.1.0/dlc) Repack Wanterlude
 magnet:?xt=urn:btih:951AA0E2949FD2994A0A4F6839390EF4A47A2AC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ The Slormancer - эпическая двухмерная экшен-RPG с ис�
 ```bash
 magnet:?xt=urn:btih:5C3CE3379BB2E51FCBB9442B7A657206484D9CE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Lost in Random: The Eternal Die объединила динамичный экш
 magnet:?xt=urn:btih:7AA6C220C8DA0289C2ECAEDBD5CB9B44E449E9C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Warhammer 40,000: Space Marine (2025) [Multi] (4326/dlc) License GOG [Master Cra
 ```bash
 magnet:?xt=urn:btih:310685DF455985E1265C0103C6789C244EB7DEFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

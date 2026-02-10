@@ -22,6 +22,8 @@ The Devil Wears Prada - (сокращенно TDWP) группа, играюща
 magnet:?xt=urn:btih:48EC789DD8CCCC95C8F85C3E1E26E147F2528D0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ DvärG (DvarG) - Скала (2012) [FLAC|Lossless|WEB-DL|tracks] <Progressive He
 magnet:?xt=urn:btih:CB4DE0BDDF0E68711779D9577DBB4562998D9E16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ Disc 1:
 ```bash
 magnet:?xt=urn:btih:06778A84240CDE236FE896F085BC5002BD6AC882
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +115,8 @@ magnet:?xt=urn:btih:06778A84240CDE236FE896F085BC5002BD6AC882
 magnet:?xt=urn:btih:2A3C18B8760C01F45DA11EBCB47F9FEA31FE81A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -134,6 +142,8 @@ Skumring - De Glemte Tider (2005) [APE|Lossless] <Doom Metal, Folk>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +178,8 @@ Skumring - De Glemte Tider (2005) [APE|Lossless] <Doom Metal, Folk>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +212,8 @@ Time Life - Guitar Rock - FM Classics(   Читать дальше...   )Жан�
 ```bash
 magnet:?xt=urn:btih:E86D94F8EE802C0F776DECC5AFFD0EAD00D6A6C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -234,6 +248,8 @@ Red Elvises - Drinking With Jesus (2008) [MP3|320 кб/с]<Rock-n-Roll, Rockabil
 magnet:?xt=urn:btih:2B36F36D78F390B4819DC507989D00E1DCB725F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +276,8 @@ The Dead Daisies - Live At Stonedead (2025) Live [FLAC 24/44.1|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:1E88B370105BF0216E7BD11AE7759FD8F80C8670
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +307,8 @@ Spiritbox — канадская метал-группа из Виктории, 
 magnet:?xt=urn:btih:C4240C9DEF0FCBA6522E8A80A0363BF0139AE3F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +335,8 @@ Suicide Queen - Crowned In Blood (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <I
 ```bash
 magnet:?xt=urn:btih:BBA4F58E6542A1A71F2009ABDEA7DF0BFE68532F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +365,8 @@ Elithium - Strangers Parade (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Meta
 magnet:?xt=urn:btih:37A347974F2EF91A3571E23F75F020F00BC597F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +393,8 @@ Cheap Trick - All Washed Up (2025) [FLAC|Lossless|image + .cue] <Rock, Power Pop
 ```bash
 magnet:?xt=urn:btih:AF6DD56B66FAAA71C482FF214607F50C9EF586D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +423,8 @@ Various - Killed By Deaf - A Punk Tribute To Motörhead (2025) Compilation [FLAC
 magnet:?xt=urn:btih:C1109CB036ED854440DC4D47589C261938C1BB62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +451,8 @@ CD1-3 1755(   Читать дальше...   )Жанр: Gothic MetalПродол
 ```bash
 magnet:?xt=urn:btih:D3AA6D9BB2E4D9671CB4D8B3BF14CF488FE85276
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +481,8 @@ Bloodbound - Field of Swords (2025) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 magnet:?xt=urn:btih:8603571304BE7D6C32E281E64EBBE542199FCE46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +509,8 @@ Agalloch - Ashes Against The Grain (2006) 2XCD, Reissue, 2025, Eisenwald , Delux
 ```bash
 magnet:?xt=urn:btih:36312CA5246638AC3231DE74FC990159BDECCC73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +539,8 @@ Midnite City - Bite The Bullet (2025) [MP3|320 Kbps] <Melodic Hard Rock, Glam>
 magnet:?xt=urn:btih:AC04287361814D09CE79662CFB4421F6184B0CDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +567,8 @@ Kiss - Alive! (Live) (1975) Remaster, 2025, UMe Direct 2 [MP3|320 Kbps] <Hard-Ro
 ```bash
 magnet:?xt=urn:btih:B73C6E00DD6CC2B19DE5E290980E3BD5377791DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +597,8 @@ Aerosmith & YUNGBLUD - One More Time (2025) EP [FLAC 24/96|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:67A3CE2FA6E20B7221305CCE53138BF5C99F5053
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +625,8 @@ Bloodbound - Field Of Swords (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy
 ```bash
 magnet:?xt=urn:btih:19FF89B3FA06D609AD393159C38294EF9506EE49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +655,8 @@ Sainted Sinners - High On Fire (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard 
 magnet:?xt=urn:btih:79B825485986D3AB9E234837997592A953DAF7F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +683,8 @@ magnet:?xt=urn:btih:79B825485986D3AB9E234837997592A953DAF7F3
 ```bash
 magnet:?xt=urn:btih:26208A47D56FB4F709580EB6A2F0E9566A12330E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +713,8 @@ magnet:?xt=urn:btih:26208A47D56FB4F709580EB6A2F0E9566A12330E
 magnet:?xt=urn:btih:2C375582BC54183510C54D099A8E188E0DDB40DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,6 +742,8 @@ magnet:?xt=urn:btih:2C375582BC54183510C54D099A8E188E0DDB40DC
 magnet:?xt=urn:btih:DCE270E966158CBC38E7A76CA610A3F7E371BA4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -720,6 +770,8 @@ magnet:?xt=urn:btih:DCE270E966158CBC38E7A76CA610A3F7E371BA4C
 ```bash
 magnet:?xt=urn:btih:2A09D95B9DFD91D96CFD0CBAD8F10D14295C46E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

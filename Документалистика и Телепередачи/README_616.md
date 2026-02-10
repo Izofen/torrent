@@ -1,3 +1,29 @@
+###  Публикация: 1501595   (827952) от 14.10.2021
+
+Битва экстрасенсов (2021) WEBRip [H.264/1080p] (сезон 22, выпуск 2)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_827952.jpg" />
+</div>
+
+
+###  Подробнее
+
+В проекте «Битва экстрасенсов» участвуют люди, обладающими необычными способностями. Ведьмы и колдуны, эзотерики, маги, целители, гадатели и многие другие соревнуются за победу и звание лучшего экстрасенса сезона. «Битва экстрасенсов» – культовый проект и знаковое шоу в истории ТНТ. Каждый год люди, которые называют себя экстрасенсами, доказывают свои способности (   Читать дальше...   )Телекомпания: ТНТЖанр: Телепередача, Реальное ТВПродолжительность: 01:09:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E46EE2E4C14C75D813AECFB78D75DBF1D9462561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501717   (827961) от 14.10.2021
 
 Битва экстрасенсов (2021) WEBRip [H.264/1080p] (сезон 22, выпуск 3)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:5CCFDC3D4359636D88CFDD8FD21A4362BF6013D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:5CCFDC3D4359636D88CFDD8FD21A4362BF6013D7
 magnet:?xt=urn:btih:7EE1BE2C70BFA61090F82529B317E2308E8C369C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:7EE1BE2C70BFA61090F82529B317E2308E8C369C
 ```bash
 magnet:?xt=urn:btih:1AA8BC5D7F204E8DDAFD002828AC568C673F98DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:1AA8BC5D7F204E8DDAFD002828AC568C673F98DC
 magnet:?xt=urn:btih:8741C005009F19A9CF27E7938E99F64A3D0CB38A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:8741C005009F19A9CF27E7938E99F64A3D0CB38A
 ```bash
 magnet:?xt=urn:btih:53F4AB397F64EB84F1CEB26538BF98A3787B22EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:53F4AB397F64EB84F1CEB26538BF98A3787B22EA
 magnet:?xt=urn:btih:958B6903AF8617DB7AFDFE0497EFCA8F9FFB0B88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:958B6903AF8617DB7AFDFE0497EFCA8F9FFB0B88
 ```bash
 magnet:?xt=urn:btih:880491CB020419FAB612FB11F4CF629176AED344
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:880491CB020419FAB612FB11F4CF629176AED344
 magnet:?xt=urn:btih:1344B1C98AD1DD938A1A3F85B9AC548713111D26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:1344B1C98AD1DD938A1A3F85B9AC548713111D26
 ```bash
 magnet:?xt=urn:btih:5AFB826FC092C5A9411AD9E65CBEF68E0EA75339
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ IMAX: Голубая планета / Blue Planet (1990) BDRemux [VC-1/1080p] [E
 magnet:?xt=urn:btih:60BC1C979B576B1BEF64590875EE5F1F55B82373
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:60BC1C979B576B1BEF64590875EE5F1F55B82373
 magnet:?xt=urn:btih:1F7D8585A1F71FAA8433B37F35D692B7F5BD284C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:1F7D8585A1F71FAA8433B37F35D692B7F5BD284C
 ```bash
 magnet:?xt=urn:btih:5C18EE227CD181F98EBCFE2C64DD83558CA0A9C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:5C18EE227CD181F98EBCFE2C64DD83558CA0A9C9
 magnet:?xt=urn:btih:8B77EB9D3B64631EB08ACCA52C30777B870E910F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:8B77EB9D3B64631EB08ACCA52C30777B870E910F
 ```bash
 magnet:?xt=urn:btih:85F18C36C7841F60A2316DA167217828BA1D91B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:85F18C36C7841F60A2316DA167217828BA1D91B3
 magnet:?xt=urn:btih:A75301F176D3407DD61997305200799DA0EA7E54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:A75301F176D3407DD61997305200799DA0EA7E54
 ```bash
 magnet:?xt=urn:btih:FBE795AB00C60262B821BB9268AD1EF7EBBD741A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:FBE795AB00C60262B821BB9268AD1EF7EBBD741A
 magnet:?xt=urn:btih:6DCA02218B6B908F4CDE0822DB63AD3FA16B1223
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:6DCA02218B6B908F4CDE0822DB63AD3FA16B1223
 ```bash
 magnet:?xt=urn:btih:25A902D340F4BA0659B42213B756F8F0EB25B807
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:25A902D340F4BA0659B42213B756F8F0EB25B807
 magnet:?xt=urn:btih:B06809FE919E998EDE60A173F43E1846A8B1F913
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:B06809FE919E998EDE60A173F43E1846A8B1F913
 ```bash
 magnet:?xt=urn:btih:B1E744E2EFC16E344DEEFD3524D7ED2B6C581023
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:B1E744E2EFC16E344DEEFD3524D7ED2B6C581023
 magnet:?xt=urn:btih:7E30D9854EF0F150CA9F4C67A21920ECE83BA43C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:7E30D9854EF0F150CA9F4C67A21920ECE83BA43C
 ```bash
 magnet:?xt=urn:btih:E7332165672B07C7E6CDE7C6A00B574B55809410
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +621,8 @@ magnet:?xt=urn:btih:E7332165672B07C7E6CDE7C6A00B574B55809410
 magnet:?xt=urn:btih:F6D91E430797CD3592B962B45091E3D730CF2883
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +646,8 @@ magnet:?xt=urn:btih:F6D91E430797CD3592B962B45091E3D730CF2883
 ```bash
 magnet:?xt=urn:btih:B7BB1C0CCF6D3F809FA533474502DC6BC5345D32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,29 +673,7 @@ magnet:?xt=urn:btih:B7BB1C0CCF6D3F809FA533474502DC6BC5345D32
 magnet:?xt=urn:btih:B7218C98E7469DB49E4E13D5CA56734007FD20E8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365339   (829302) от 05.05.2020
-
-Африканские охотники / Africa's Hunters (2016-2017) UHDTV [H.265/2160p] [4K, 10-bit, 50fps] (сезоны 1-2, серии 1-12 из 12)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дикая природа, которая заставляет своих детищ сражаться за выживание, использует самые жестокие методы. Пищевая цепочка на Африканском континенте весьма запутана. Здесь животные одновременно могут быть как хищниками, так и жертвами. Сложно сказать, кто именно занимает вершину этой сложнейшей цепи. Здесь есть место и диким кошкам, и медведям, и псам и многим другим (   Читать дальше...   )Производство: Канада, Plimsoll Productions for Blue Ant Media InternationalЖанр: Документальный, природа, флора, фаунаРежиссер: Ханна ХоарПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:196AA02DF103C5CF6A226DDE204506F0B5DFBE6B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

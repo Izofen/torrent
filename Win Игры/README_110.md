@@ -19,6 +19,8 @@ Gestalt: Steam & Cinder - это метроидвания, вдохновлен�
 magnet:?xt=urn:btih:D54EF0871E72BF5DE88BD150B6E9EB75CB12C304
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Discolored 2 (2025) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:1074A1CF90483651A9301F340C7E69B0587C41FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Per Aspera (2020) [Ru/Multi] (1.8.3.63441/dlc) Repack FitGirl [Deluxe Edition]
 magnet:?xt=urn:btih:A1227E3F43599F08B9AFBF9EE505ADC65F8A226E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ My Summer Car – симулятор жизни финского, 19-тилет�
 ```bash
 magnet:?xt=urn:btih:5D517A3257135EDBDB44E9E7C0ABD28D96A79CCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Valhalla Path: Survival (2024) [Ru/Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:CA970240B46A36FAF7AB663D29F2DCC03E7DAA33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Gold Mining Simulator (2017) [Ru/Multi] (1.8.2.858/dlc) Repack Let'sРlay [Gold 
 ```bash
 magnet:?xt=urn:btih:015BEC26E9344F8F8D0BEBA05C3059C7283B599F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Thank Goodness You're Here! (2024) [Ru/Multi] (1.6.1) Repack Let'sРlay
 magnet:?xt=urn:btih:5D84FF15766ADF0931B890AA412CCD500AD11A2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Mullet MadJack - это динамичный шутер от первого ли
 ```bash
 magnet:?xt=urn:btih:756E58558F4AEFCA99E65C1DE4C3A59E96E0C967
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Warden's Will (2025) [Ru/Multi] (1.0.0c) Repack seleZen
 magnet:?xt=urn:btih:49147375226F461371CBFD8080FC2AE2B98DA6FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Only Up: Lizards Must Fall / Only Up: Восхождение Русов (2025) [
 ```bash
 magnet:?xt=urn:btih:039B74795BDEC05FB877DE194886A06BFF219CBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Forever Skies – это нетипичное выживание, в мире п
 magnet:?xt=urn:btih:3DBA1A955E07C7C277BF98575541470A8E1C7647
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ ZERO Sievert (2024) [Ru/Multi] (1.0.10) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:43F57FB717AE095267B9AB5C87996B1AFB183E53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Red Solstice 2: Survivors (2021) [Ru/Multi] (3.16/dlc) Repack Wagner
 magnet:?xt=urn:btih:FF3E2DD8EB58F63904EE465F71A8A5A115CD4282
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Cartier 06 (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0CB54C97305E8869338F1F7F932B41FE0BD918FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Supraland Six Inches Under (2022) [Ru/Multi] (1.2.3349) Repack Let'sРlay
 magnet:?xt=urn:btih:9309D13ED799B8FF24178310B2B88CB69EB72FA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Rusted Moss (2023) [Ru/Multi] (1.76) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:15921EB9B58C186D9B3BB5CF64FA2F1B255CD452
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Touch Type Tale: Strategic Typing (2024) [Ru/Multi] (1.2.68) Repack FitGirl [Del
 magnet:?xt=urn:btih:DF7E9D6F040B7BF8A32519E17F6786079A0C48B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Mystery of Myths: Heart of Athens / Тайна мифов: Сердце Афин
 ```bash
 magnet:?xt=urn:btih:872A6F00CEF8ADA69B87300EAACCF541F6ACEEA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ For The King II (2023) [Ru/Multi] (1.3.5) Repack Pioneer
 magnet:?xt=urn:btih:967984F851035E64A266B737C0A0D55C80E60373
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Nine Sols (2024) [Ru/Multi] (202501031718.687084df.0) Repack Wagner
 ```bash
 magnet:?xt=urn:btih:176529A490427C9BF0FDA6F18C36015150563949
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Toy Tactics - основанная на законах физики страте
 magnet:?xt=urn:btih:1B2C55CE3E5BD3321773B95A0D2C510BFE0EA3DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Grand Theft Auto V (5) (2015) [Ru/Multi] (1.0.3411.0/1.70) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:54FD8FF749317FEE3173FE0FDCEDC43AC88DD561
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Supraland - игра-головоломка от первого лица в жа
 magnet:?xt=urn:btih:6A74DD5507966F87668E6841AF980457881B0757
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Milo and the Magpies (2021) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:8BC234BF9679CA33FEE45FFC0A6C06226684AAEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Night Shift Nurses (2024) [Multi] (1.0.0/dlc) License GOG
 magnet:?xt=urn:btih:9C956EADF704C00700F982CA12D988DBF52B0944
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Night Shift Nurses (2024) [Multi] (1.0.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:48CF2287B51AA7576FAB17D37EF407D060470E86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

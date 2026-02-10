@@ -19,6 +19,8 @@ Discovery: Разрушители легенд. Дрифт в Сан-Франц�
 magnet:?xt=urn:btih:DD34992A183AC8C51C9F75F95E6A4F9076B46497
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:DD34992A183AC8C51C9F75F95E6A4F9076B46497
 ```bash
 magnet:?xt=urn:btih:211B53C36AFBADCA76CDE6EF074F3912AC46D02F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ BBC:Стюарты в изгнании / BBC:The Stuarts in Exile (2015) HDTVRip
 magnet:?xt=urn:btih:F77A42BE3C66D6B47D5762466422C61E13ED894A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ BBC: Еда будущего / Tomorrow's Food (2015) HDTVRip [H.264/720p-LQ] (3
 ```bash
 magnet:?xt=urn:btih:2E3E28C5F097E86D0B44CD2556CA841F93195722
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Discovery Science: Встреча с инопланетянами: Кванто�
 magnet:?xt=urn:btih:0BC569CAB01698889D66D6768F41482E3386BD45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ NGW: Земля хищника / Predator Land (2019) HDTV [H.264/1080i-LQ] (с�
 ```bash
 magnet:?xt=urn:btih:A5EE173A5EDAC759215B3EEA6C487FE2EB173319
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ NGW: Рожденные в Африке. Круг жизни / Born in Africa (2
 magnet:?xt=urn:btih:8A5203B4F2939A159D014B874CB3DC518AE8A83E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:8A5203B4F2939A159D014B874CB3DC518AE8A83E
 ```bash
 magnet:?xt=urn:btih:99F6098254C06A98AC55D2792AC3074FAC449619
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:99F6098254C06A98AC55D2792AC3074FAC449619
 magnet:?xt=urn:btih:C3EAA0F1DB4939194BD4EF35C15CB7182BC6FC7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:C3EAA0F1DB4939194BD4EF35C15CB7182BC6FC7F
 ```bash
 magnet:?xt=urn:btih:F0EF2A24901EEE530738143FCF8FDA7AB2F0F242
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Discovery. Ржавая империя / Junkyard Empire (2015) HDTVRip (1-4 с�
 magnet:?xt=urn:btih:3D377A27088063E6ECED9A32643879731E5CBA70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ NGW: Бойцовский клуб для животных / Animal Fight Club (
 ```bash
 magnet:?xt=urn:btih:DD8DF523FDA9C79C025B104A05D3E171EDB3EAAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ NG: Враждебная планета / Hostile Planet (2019) HDTV [H.264/1080
 magnet:?xt=urn:btih:AFB450FEDDA15EF91905077FE0B6200EBB49E753
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:AFB450FEDDA15EF91905077FE0B6200EBB49E753
 ```bash
 magnet:?xt=urn:btih:62F830591A4AE0A09CDB5237ACADD984BEC0CF2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:62F830591A4AE0A09CDB5237ACADD984BEC0CF2F
 magnet:?xt=urn:btih:C8ACA2992F695D3E33DF9FA7AFF4595073E2546B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Discovery. Сейчас рванёт / Fire in the Hole (2015) HDTVRip  [H.264/7
 ```bash
 magnet:?xt=urn:btih:D2B412B5318FDBB892AB74E61759762D95265E3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Discovery. Сейчас рванёт / Fire in the Hole (2015) HDTVRip (1-5 се
 magnet:?xt=urn:btih:B9F2D45C102FA338220ECB672ED61B358BC191C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Animal Planet: В дебрях Латинской Америки [ 5 из 5] / W
 ```bash
 magnet:?xt=urn:btih:5352B6FC78E8BB8FC3C437FC8DE74C0367FB0C09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ History Channel. Рейхсканцелярия Гитлера / Inside Hitler's
 magnet:?xt=urn:btih:7F8CE3D77D4B6D951787623B08464CFF56648685
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ magnet:?xt=urn:btih:7F8CE3D77D4B6D951787623B08464CFF56648685
 ```bash
 magnet:?xt=urn:btih:EF97F4DE0492E8992F2937A431DC86F5D5819025
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Animal Planet: Вторжение паразитов (Нашествие). Па�
 magnet:?xt=urn:btih:C19606073FCE7DFEDB41851DCC98E07DF92C6C78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ magnet:?xt=urn:btih:C19606073FCE7DFEDB41851DCC98E07DF92C6C78
 ```bash
 magnet:?xt=urn:btih:CB6EA815D293D258C449B586C28B13F60C20DFDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Animal Planet. Земля зверей. Тигры-убийцы / Beast Lands. K
 magnet:?xt=urn:btih:E390F82AD33CF65A28381C18217FE11932C3D49E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ NGW: Кошка будущего / Future Cat (2014) HDTV [H.264/1080i-LQ]
 ```bash
 magnet:?xt=urn:btih:CBD7E0CECFB7891F5A8C3732DD493BD93E5FC24E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ magnet:?xt=urn:btih:CBD7E0CECFB7891F5A8C3732DD493BD93E5FC24E
 magnet:?xt=urn:btih:548385A30AD51185DE41667CD78A2E0AE8FFB0B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ magnet:?xt=urn:btih:548385A30AD51185DE41667CD78A2E0AE8FFB0B9
 ```bash
 magnet:?xt=urn:btih:0445EB04897C5CE8360F7EE9938FCB773D4AAE1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

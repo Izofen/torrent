@@ -1,27 +1,3 @@
-###  Публикация: 756825   (920709) от 14.02.2014
-
-Гравитация / Gravity (2013) BDRemux [1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доктор Райан Стоун, блестящий специалист в области медицинского инжиниринга, отправляется в свою первую космическую миссию под командованием ветерана астронавтики Мэтта Ковальски, для которого этот полет — последний перед отставкой. Но во время, казалось бы, рутинной работы за бортом случается катастрофа. Шаттл уничтожен, а Стоун и Ковальски остаются совершенно одни; (   Читать дальше...   )Производство: США, Великобритания / Reality MediaЖанр: Фантастика, триллер, драмаРежиссер: Альфонсо Куарон / Alfonso CuarónАктеры: Сандра Буллок, Джордж Клуни, Эд Харрис, Орто Игнатиуссен, Фалдут Шарма, Эми Уоррен, Башер Саваж, Дженис АхернПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русский (forced, full), украинский (forced, full), английский (full, SDH)Продолжительность: 01:30:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99C85088F58FE6341200CC287239912A38C29B8A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988463   (920800) от 20.02.2016
 
 Академия вампиров / Vampire Academy (2014) BDRip [H.264]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:99C85088F58FE6341200CC287239912A38C29B8A
 ```bash
 magnet:?xt=urn:btih:5DF126F4DE44F5D2084D397F95D74CD13D047850
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:5DF126F4DE44F5D2084D397F95D74CD13D047850
 magnet:?xt=urn:btih:D0D25604C2B9651F65B9CE674B00BC67D07DE0DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:D0D25604C2B9651F65B9CE674B00BC67D07DE0DA
 ```bash
 magnet:?xt=urn:btih:446FA7134937BA0260B21A2BD31E5419E7466395
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:446FA7134937BA0260B21A2BD31E5419E7466395
 magnet:?xt=urn:btih:109435DBB09E1775B7B86D301F95043C109D1EEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:109435DBB09E1775B7B86D301F95043C109D1EEA
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +151,8 @@ magnet:?xt=urn:btih:109435DBB09E1775B7B86D301F95043C109D1EEA
 magnet:?xt=urn:btih:58CB0123ABDAD6A6F951738BA9FC943C3949D35B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +177,8 @@ magnet:?xt=urn:btih:58CB0123ABDAD6A6F951738BA9FC943C3949D35B
 ```bash
 magnet:?xt=urn:btih:52533938FAE66B2F586380F1EFA8DD325711C162
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +205,8 @@ magnet:?xt=urn:btih:52533938FAE66B2F586380F1EFA8DD325711C162
 magnet:?xt=urn:btih:6E87E536E5C214573B42B829BC89E6DF7740F58A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +230,8 @@ magnet:?xt=urn:btih:6E87E536E5C214573B42B829BC89E6DF7740F58A
 ```bash
 magnet:?xt=urn:btih:1DB94C9E08CDD33388574B0B7C30BDC528E89FDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +257,8 @@ magnet:?xt=urn:btih:1DB94C9E08CDD33388574B0B7C30BDC528E89FDC
 magnet:?xt=urn:btih:421D9C84A294C27623446D18373EF0811C15581F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +283,8 @@ magnet:?xt=urn:btih:421D9C84A294C27623446D18373EF0811C15581F
 magnet:?xt=urn:btih:9AE27454E1CB55FE02C962442F207A9517E0968C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +308,8 @@ magnet:?xt=urn:btih:9AE27454E1CB55FE02C962442F207A9517E0968C
 ```bash
 magnet:?xt=urn:btih:B3741A745DBA247DC6EA9FB4D0C9FC107C3EC538
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +336,8 @@ magnet:?xt=urn:btih:B3741A745DBA247DC6EA9FB4D0C9FC107C3EC538
 magnet:?xt=urn:btih:32295788BD9DAC324DA062D42E155AB587003F10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +361,8 @@ magnet:?xt=urn:btih:32295788BD9DAC324DA062D42E155AB587003F10
 ```bash
 magnet:?xt=urn:btih:92291ECBEEF0ABD120666754B2042836DF5D2C26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +388,8 @@ magnet:?xt=urn:btih:92291ECBEEF0ABD120666754B2042836DF5D2C26
 magnet:?xt=urn:btih:F0F16527A46F46D90E6750393650303A60A0062B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +413,8 @@ magnet:?xt=urn:btih:F0F16527A46F46D90E6750393650303A60A0062B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +440,8 @@ magnet:?xt=urn:btih:F0F16527A46F46D90E6750393650303A60A0062B
 magnet:?xt=urn:btih:EF78BDF848B63F5DEEF5CF6A2A06964D75B76607
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +465,8 @@ magnet:?xt=urn:btih:EF78BDF848B63F5DEEF5CF6A2A06964D75B76607
 ```bash
 magnet:?xt=urn:btih:EC03BD027AC1C67928BF059139B0C67673D27104
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +492,8 @@ magnet:?xt=urn:btih:EC03BD027AC1C67928BF059139B0C67673D27104
 magnet:?xt=urn:btih:1A2ADBFC76484EB899BE3B5D86023405A6D071FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +517,8 @@ magnet:?xt=urn:btih:1A2ADBFC76484EB899BE3B5D86023405A6D071FF
 ```bash
 magnet:?xt=urn:btih:75F565381E696951D0D00EFEC6C8073495A6B829
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +544,8 @@ magnet:?xt=urn:btih:75F565381E696951D0D00EFEC6C8073495A6B829
 magnet:?xt=urn:btih:DDF1B035705E324637399C0812FEAFD312E4B3C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +569,8 @@ magnet:?xt=urn:btih:DDF1B035705E324637399C0812FEAFD312E4B3C1
 ```bash
 magnet:?xt=urn:btih:CD6E0F25167065C94487826CAEC1C4AFC41EE691
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +596,8 @@ magnet:?xt=urn:btih:CD6E0F25167065C94487826CAEC1C4AFC41EE691
 magnet:?xt=urn:btih:983434370D8FD2A92D87E9EA784C9552374BE507
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +621,8 @@ magnet:?xt=urn:btih:983434370D8FD2A92D87E9EA784C9552374BE507
 ```bash
 magnet:?xt=urn:btih:F0AFEC6D1DDBCEACEF7740AF40A89F419207958A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +649,34 @@ magnet:?xt=urn:btih:F0AFEC6D1DDBCEACEF7740AF40A89F419207958A
 ```bash
 magnet:?xt=urn:btih:FB5E2D4ACDB567F31233310462504CAC1187A724
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366685   (921716) от 12.03.2020
+
+Призраки / Wind Chill (2007) WEB-DL [H.264/1080p-LQ] [Open Matte]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_921716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пара студентов, поехав домой на каникулы, решает воспользоваться дорогой, явно не пользующейся большой популярностью. Увы, слишком поздно герои вспоминают, что не следует доверять коротким, но заброшенным путям.Производство: США, Великобритания / Blueprint Pictures, TriStar PicturesЖанр: ужасы, триллер, драмаРежиссер: Грегори ДжейкобсАктеры: Эмили Блант, Эштон Холмс, Мартин Донован, Нед Беллами, Йен А. Уоллес, Донни Джеймс Лукас, Челан Симмонс, Даррен Мур, Линден Бэнкс, Каз Один ДаркоПеревод: Многоголосый профессиональный, авторскийСубтитры: русские, английскиеПродолжительность: 01:30:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BFA830B91233A0EA28C2F30ABE8BCA694BAC62E
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

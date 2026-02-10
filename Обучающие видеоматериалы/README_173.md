@@ -20,6 +20,8 @@ Will Wallace | Разрушение дома / Destruction Training with Thinkin
 magnet:?xt=urn:btih:9DE40766315045E2C8D7A65F516A7CE4FF0C0D8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:9DE40766315045E2C8D7A65F516A7CE4FF0C0D8D
 magnet:?xt=urn:btih:529B208619AA47A399E707BC82BE4877A50AFA2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ Lynda.com | Основы программирования: объектно-ор
 magnet:?xt=urn:btih:599F9D0A33F8722FB51B1364FA1F33077252B87D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ Paul Katami | KettleBell Drills Workout (2010) DVDRip [EN]
 magnet:?xt=urn:btih:CAFF0930700398189270A086A4239BC5BF8A0EB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Profileschool | Мастер-класс Смешанный Свет. Практ�
 ```bash
 magnet:?xt=urn:btih:59A647616B58807E9F2A680F5488849BD676714E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ The Gnomon Workshop, Aaron Sims | Real-Time Filmmaking in Unreal Engine 5 — TH
 magnet:?xt=urn:btih:2F5E68A595656CAAF1D0AA8C7F0478A70A55E297
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ Paul Katami | KettleBell Kombos (2010) DVDRip [EN]
 magnet:?xt=urn:btih:0CD067530DDC3E4301AC38836E395F3A29988022
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ David Luong | Intro to Digital Matte Painting (2015) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:5F942E2C87135C03B6E84819AA548EE5C822BD4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ Masterclass, Will Wright | Will Wright Teaches Game Design and Theory (2018) PCR
 magnet:?xt=urn:btih:8CD0C4A402E0031F4B1AFEA18C47DE6365F4ACAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ Udemy, Hardy Fowler | Line Art Master (2018) PCRec [EN, RU]
 magnet:?xt=urn:btih:96D8720394BB8E057B60BD0BD69186A8AD416F9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ Entagma, Moritz Schwind | Axiom Solver: Dissolving Logo (2021) PCRec [EN, RU]
 magnet:?xt=urn:btih:923E2013D3D25278EC5289E3506DA3B41D9E72BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ Entagma, Moritz Schwind | Mograph Liquids: Controlling FLIP Fluids Via Curve For
 ```bash
 magnet:?xt=urn:btih:E17775C674FF55507BABFCB638C306DD18B63E8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ Destruction I - идеальный курс для начала работы с 
 magnet:?xt=urn:btih:9BD017585914CF174B4505FA6FFD931E72BAFFD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:9BD017585914CF174B4505FA6FFD931E72BAFFD2
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ Bob Harper | Inside Out Method - Pure Burn Super Strength (2010) DVDRip [EN]
 magnet:?xt=urn:btih:B44000DCDFCF4551D219772FFEE47830D554C0CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:B44000DCDFCF4551D219772FFEE47830D554C0CE
 magnet:?xt=urn:btih:872CA092BCB322908EE32BFB12C9834D1904065A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:872CA092BCB322908EE32BFB12C9834D1904065A
 ```bash
 magnet:?xt=urn:btih:F90E9FD3D32336361C27E816D203B6A10927D5B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +477,8 @@ Blender стал очень важной частью моего рабочег�
 magnet:?xt=urn:btih:A1FAFC1C1E7D63C694EF744BD221D8AD6E586C44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:A1FAFC1C1E7D63C694EF744BD221D8AD6E586C44
 magnet:?xt=urn:btih:ABEC52E121D231B4EE64935403FDE49F5354DE5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:ABEC52E121D231B4EE64935403FDE49F5354DE5C
 ```bash
 magnet:?xt=urn:btih:D7DB12101997C58610008770DA61801B6AE459D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +558,8 @@ Artstation, Aleksandr Kirilenko | Becoming An Expert In Marvelous Designer (2020
 magnet:?xt=urn:btih:DB497DB3B82BA62CF1990456EF996036A201E568
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ Groove3, Эрик Кинл | Creating Game Audio with Pro Tools (2015) PCRec [EN
 magnet:?xt=urn:btih:0BD63FB0DC6340F9CB8079258F03C5C558F6E319
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +610,8 @@ magnet:?xt=urn:btih:0BD63FB0DC6340F9CB8079258F03C5C558F6E319
 ```bash
 magnet:?xt=urn:btih:985A9ECE13427BDE68A5107EF7BE0E98BBF2A69C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +637,8 @@ Lynda.com | CSS: Styling Forms (2012) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:81FD6EE08CDD67DCA85142CA830420A76A0A0F91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ ZCUT Power Strength Series это 12 новых высокоинтенсивны
 magnet:?xt=urn:btih:99019FB2D6C53E37A88C92BECAB74FAE6A06D940
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ magnet:?xt=urn:btih:99019FB2D6C53E37A88C92BECAB74FAE6A06D940
 ```bash
 magnet:?xt=urn:btih:205559C070BF4A11EE0426C24756DBB55A84FB23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

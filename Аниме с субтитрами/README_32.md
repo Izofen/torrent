@@ -19,6 +19,8 @@ Owari no Seraph: Nagoya Kessen Hen | Seraph of the End: Battle in Nagoya | По�
 magnet:?xt=urn:btih:01624B718974EEEE981808389567F0F6608B0D7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Nomad: Megalo Box 2 | Мегалобокс [ТВ-2] [2021, TV, 13 из 13] BDRip
 ```bash
 magnet:?xt=urn:btih:599434E04FAC504A755097517F4DAC9E05EA997D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Brave Witches | Храбрые ведьмы [2016, TV, 12 эп. + 1 OVA] BD-rip 
 magnet:?xt=urn:btih:458B58B5DF9846BC80643F671B6B7AF90E57D276
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Tokyo Revengers: Seiya Kessen Hen | Tokyo Revengers: Christmas Showdown Arc | Т
 ```bash
 magnet:?xt=urn:btih:B083D4F20BCC423370AEF6758ADE8CE60BE3D6A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Majutsushi Orphen Hagure Tabi: Urbanrama Hen | Sorcerous Stabber Orphen: Chaos i
 magnet:?xt=urn:btih:8EA852EA7666404C8D8A9A13A4E585EFB340DC0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Nokemono-tachi no Yoru | The Tale of Outcasts | Сказание об отвер
 ```bash
 magnet:?xt=urn:btih:362ECF7B8F564FD9791979FB1DC7B515DC4D7D57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Wan Sheng Jie | All Saints Street | Улица всех святых [2020, Web,
 magnet:?xt=urn:btih:6FF41C3A385AB7162C7C6EF0A5B2ED68E27EB799
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Tsurune: Tsunagari no Issha | Tsurune: The Linking Shot | Песнь тетив�
 magnet:?xt=urn:btih:020B32624147BC2CF7AF1D88B60FDFDEC8B914A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Saikyou Onmyouji no Isekai Tenseiki | Реинкарнация сильнейш�
 ```bash
 magnet:?xt=urn:btih:0E90962D7816EFE124A65EF5E6319FD7C9B5692B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Shin Shinka no Mi: Shiranai Uchi ni Kachigumi Jinsei | The Fruit of Evolution 2:
 magnet:?xt=urn:btih:61FC41DB202AE72521F60C4F9F4C67ED7414D9F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Spy Kyoushitsu / Spy Classroom / Шпионский класс [2023, TV, 12] WE
 magnet:?xt=urn:btih:F1727C6700977C64B5AA85BAB43F62AE8D5D80B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ Buddy Daddies | Папаши-подельники [2023, TV, 12 эп.] WEBRip 72
 ```bash
 magnet:?xt=urn:btih:1009185AF60FB68C6EDAF4E710195DCBE70A9725
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ Kyuuketsuki Sugu Shinu 2 | The Vampire Dies in No Time 2 | Этот вампир
 magnet:?xt=urn:btih:04CCB39DE4204661EB9FB2DA7BA86664E8F629CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ Technoroid: Overmind | Технороид: Сверхразум [2023, TV, 12 э
 magnet:?xt=urn:btih:3309C278DF90BC445C22307E106BAC6D0C49E61E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ Ars no Kyojuu | Giant Beasts of Ars | Гигaнтскиe звeри Арсa [2023
 magnet:?xt=urn:btih:E3F096D1106812519A286C60E5AD65F612109C8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ High Card | Старшая карта [2023, TV, 12 эп.] WEBRip 720p raw
 ```bash
 magnet:?xt=urn:btih:E5EEF9CF2A0E7E736EC0904B3AE31166E2D27DA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ Cool Doji Danshi | Play It Cool, Guys | Сыграйте круто, ребят�
 magnet:?xt=urn:btih:8213C32D244FF07208D64F73E85B413A8FBA6F1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ Mononogatari | Malevolent Spirits | История о мононокэ [2023, TV
 ```bash
 magnet:?xt=urn:btih:8429D6FC515AB0BA967E7F2273051D21603E86C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ Kyokou Suiri Season 2 / In/Spectre Season 2 / В/Спектре 2 / Ложные
 magnet:?xt=urn:btih:781DC583A6A9F815B70B8AC67E4416CABBA3464F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ Yowamushi Pedal: Limit Break | Трусливый велосипедист [ТВ
 ```bash
 magnet:?xt=urn:btih:944CFA7393EB78EAFD918AB9BECEA108769AFC25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ Kami-tachi ni Hirowareta Otoko 2 | By the Grace of the Gods 2 | Избранны
 magnet:?xt=urn:btih:999F44BD5B39793C009C827281B89B7373FFC2CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ Boku no Hero Academia Season 6 | Моя геройская академия [Т�
 ```bash
 magnet:?xt=urn:btih:A9E03B47F8A240652537768C13EBD1B55D953813
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ Blue Lock | Блю Лок [2022, TV, 24 эп.] WEB-DL 720p raw
 magnet:?xt=urn:btih:9EBBED78821849F5916EAE0E3BBB29135687747C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ Otonari no Tenshi-sama ni Itsunomanika Dame Ningen ni Sareteita Ken | Истор
 magnet:?xt=urn:btih:E74D1E4521323DFB1A2D9E70799F5A1BC139ED77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ Isekai Nonbiri Nouka | Farming Life in Another World | Фермерская жи
 ```bash
 magnet:?xt=urn:btih:4F456542EB58DF04FF1163D03F2F59C66810CFD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +684,8 @@ The Legend of Heroes: Sen no Kiseki - Northern War | Легенды Героев
 ```bash
 magnet:?xt=urn:btih:B5E0979F0648D640DC21AAAE200B115D3173585A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

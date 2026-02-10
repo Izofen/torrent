@@ -19,6 +19,8 @@ Manjaro Linux - быстрая, дружественная операционн�
 magnet:?xt=urn:btih:ACFCD0AAB0517A95AE551756386F78D30DB609AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Manjaro Linux - быстрая, дружественная операционн�
 ```bash
 magnet:?xt=urn:btih:B1AA5ABE58EC6C7750484FAE283FDCBA70C5C1C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Ubuntu ServerPack - полный комплект серверного ПО, к�
 magnet:?xt=urn:btih:3B24B85DE750ADEB1ADC0E4BF6A75494E0EF5BB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Manjaro Linux - быстрая, дружественная операционн�
 magnet:?xt=urn:btih:EC9EBB4C70DC6260AA9FA05CE79A64E9E6ABFB9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ antiX - легковесный LiveCD-дистрибутив Linux, создан
 ```bash
 magnet:?xt=urn:btih:09051CD747A7207D190EC624A046EEB40AF4FF39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Manjaro Linux 0.8.7.1 Легкий дистрибутив: Arch + E17 [i686, x86
 magnet:?xt=urn:btih:0C4EB30DD782C98D21780978791822FB33A6EF32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ ArcoLinux (ранее ArchMerge) - это дистрибутив, сочетаю
 magnet:?xt=urn:btih:DEEB382E55A53FB97C642EC47AA6E8289875CDFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Xubuntu 15.10 Wily Werewolf (Легкий дистрибутив) [i386, amd64] 
 ```bash
 magnet:?xt=urn:btih:090AE72E124DA221F8F2F4EC60B249EDFBBEE9CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Lubuntu — это современная операционная систем�
 magnet:?xt=urn:btih:FB0DF3D4F496E173B41D46DAA7B253F50E42B323
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ elementary OS — дистрибутив операционной системы
 ```bash
 magnet:?xt=urn:btih:6336C11F532BC49B52640A31705868CC72D1516B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Debian GNU/Linux 9.2.1 + nonfree Stretch [i386] 4xDVD
 magnet:?xt=urn:btih:ABDF1BCD914BF572F3B5DE6F021F0A1905FB1B4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ elementary OS — дистрибутив операционной системы
 ```bash
 magnet:?xt=urn:btih:2B57B19B1963AB21721A11574464F70FFA065F81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ Debian GNU/Linux 9.2.1 + nonfree Stretch [amd64] 4xDVD
 magnet:?xt=urn:btih:7182EF6808B0C00B9E71F9256103084A365BC3C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ Antergos - современная, привлекательная и мощна�
 ```bash
 magnet:?xt=urn:btih:DD650B887DB2BB3065B74FE32906A59A669C0DEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ KDE neon 5.11 (20171011) [x86-64] 6xDVD
 magnet:?xt=urn:btih:221B2FA27BB7B8667C2757E8CF06C8AC345B90AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ Tor Browser for Linux - удобная и простая модификация 
 ```bash
 magnet:?xt=urn:btih:54C44207C8D7F10E96292C091AEB4717FD640AD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ Debian Live GNU/Linux 9.2.0 + nonfree Stretch [amd64] 12xDVD
 magnet:?xt=urn:btih:012F40B4442BBAB003A56730650E47AF0FA16876
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ Debian GNU/Linux 9.2.0 + nonfree Stretch [amd64] 4xDVD
 ```bash
 magnet:?xt=urn:btih:37B7919801DB2DED03AD956ED60987CF06C69002
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ Debian GNU/Linux 9.2.0 + nonfree Stretch [i386] 4xDVD
 magnet:?xt=urn:btih:7AEF099E367F17CCE4187CFA1A42A8BB9AFF7269
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ Manjaro Linux 0.8.7.2 (Arch + KDE) [i686, x86-64] 2xDVD
 magnet:?xt=urn:btih:47F3DF7DCF981A2DE0E92DB14AD4A775900886A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ Santoku дистрибутив основанный на Ubuntu и предна�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ FreeNAS 8.2.0 остался в разделе, а не перенесен в а
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ MKVToolnix - функциональный набор инструментов д
 ```bash
 magnet:?xt=urn:btih:3D0791206E1A49D6764D13A6F3849B2A7CEF59D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +643,8 @@ Sep 27 18:07:16 2017
 magnet:?xt=urn:btih:C46ABA9FB3178F1CA7DF90B1B69F232609CCE94D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +671,8 @@ Edubuntu — дистрибутив операционной системы Linu
 magnet:?xt=urn:btih:A8EB3B710B8339DF688188B0F4A044ADF064457A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +698,8 @@ Lubuntu — это свободная операционная система н
 ```bash
 magnet:?xt=urn:btih:D26174A54ABCC93DB95BE48D6A79B67D7B2B9651
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

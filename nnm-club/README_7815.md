@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:4C55D08673D21F85AB593AFC081A6D7F2604CC2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ VA - The Official UK Top 100 Singles Chart 26.03.2021 [MP3|320 Kbps] <Pop, Dance
 magnet:?xt=urn:btih:5A5022BCD3D697E13A4F8B5BCC5452B9C6AE9221
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:5A5022BCD3D697E13A4F8B5BCC5452B9C6AE9221
 ```bash
 magnet:?xt=urn:btih:963F8AAB496EF3BCAC1C727F872AD6164CF59D36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ Draken - Draken (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:7674A3A7D26CB8B6AA6EAAED97E7042C19813A2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ Psilocybe Larvae - Agony (2003) [FLAC|Lossless|image + .cue] <Dark Metal>
 magnet:?xt=urn:btih:08952F6FC239735AD20B828C411541E907171662
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ Wise Video Converter  - видео конвертер для конвертир�
 ```bash
 magnet:?xt=urn:btih:5148370D071D42B6295D2FCDBFDC0BB1685243A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +189,8 @@ Roxanne - Stereo Typical (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock
 magnet:?xt=urn:btih:BB9C0CA5492F12894D8DE4AC3406D81E44600459
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +218,8 @@ Tokyo - Seven (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, New Wave>
 magnet:?xt=urn:btih:B2518DC1DEAADC1A793AE95F26DA843A523AB643
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ VTC Radio - настоящее виртуальное дорожное ради�
 magnet:?xt=urn:btih:A23446DBC3EDE31FED0717032C3EE3DC3D0C086B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ magnet:?xt=urn:btih:A23446DBC3EDE31FED0717032C3EE3DC3D0C086B
 ```bash
 magnet:?xt=urn:btih:EBAD3BEEF6910A71A331CDA14094404E80C8B680
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +298,8 @@ magnet:?xt=urn:btih:EBAD3BEEF6910A71A331CDA14094404E80C8B680
 magnet:?xt=urn:btih:54D8284C2BBF6F9BC3DCD67015165AA00FFC4563
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ Filmage Screen Recorder - это универсальное программно
 magnet:?xt=urn:btih:1E96E39F0EC13DF89427E6A7EB0F99A887C19883
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:1E96E39F0EC13DF89427E6A7EB0F99A887C19883
 ```bash
 magnet:?xt=urn:btih:E5E4EDA8E92DE5CB3E2A522E11C9A3DD39BC3CA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ Downcast – программа для загрузки и прослушива�
 magnet:?xt=urn:btih:B0D47FA4B1CCCCBA611453EF0482DAF9B98FD378
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:B0D47FA4B1CCCCBA611453EF0482DAF9B98FD378
 ```bash
 magnet:?xt=urn:btih:18E239CFF4B24914AC1C7F90508EB04F1D3450DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ Otu - Moonic Of A Down (2022) [MP3|320 kbps] <Sludge, Drone, Doom Metal>
 magnet:?xt=urn:btih:31593DFAADE308D9124623DDB3C366B6BDD75C5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ Joplin - это бесплатное приложение для создани�
 magnet:?xt=urn:btih:1D0C3D29EDCCA9C4F2F8F633647765104C5BF070
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:2AD43A333352AB9BACDFC7DD1DC70679FAA8A9E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +512,8 @@ magnet:?xt=urn:btih:2AD43A333352AB9BACDFC7DD1DC70679FAA8A9E8
 ```bash
 magnet:?xt=urn:btih:7BA053FC99191C1CE94EA41BF2FE1EAF8E0E5DFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +542,8 @@ Arlen Roth, Jerry Jemmott - Super Soul Session! (2023) [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:609D878827D2D1517BAE9FE063B36AA5EBE9652D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +570,8 @@ Deathspell Omega - The Synarchy of Molten Bones (2016) [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:B6DDE0EECA685E39DA6A962EE7600BB8BEACEC4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +600,8 @@ Hypno5e - Sheol (2023) [FLAC 2.0|44,1/24|WEB-DL|tracks] <Avantgarde-Metal, Progr
 magnet:?xt=urn:btih:60AEB4DBB037AF08F5CD4F6E869036098818B62F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ MarsEdit 4 v4.4.12 [En]
 ```bash
 magnet:?xt=urn:btih:2AEFFB9426CA883F24F12E7DD6C9F43FB5E71492
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +652,8 @@ Audacity - свободный, простой в использовании зв
 magnet:?xt=urn:btih:7F465D600C36EF28F25FA3E68EC033DDF8AD4478
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +678,8 @@ magnet:?xt=urn:btih:7F465D600C36EF28F25FA3E68EC033DDF8AD4478
 magnet:?xt=urn:btih:00A9B7920C6D1B01B25CFC0E70FD23006845E00D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ RTG. Мраморный карьер Рускеала (2013) HDTV [H.264/1080i]
 ```bash
 magnet:?xt=urn:btih:10EB9DBE305CF5AA0EA135C4067959D02AD3434B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:C0EF23BBA08B3291875DE3475A0D73D091434E36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:C0EF23BBA08B3291875DE3475A0D73D091434E36
 ```bash
 magnet:?xt=urn:btih:5507109315E6085602C8D053CEE61C452967C685
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Creatures of Ava - это не типичная адвенчура по ловл
 magnet:?xt=urn:btih:C3A2C149EF1CEC21B3A39400AF6C5A91ADC0265E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:C3A2C149EF1CEC21B3A39400AF6C5A91ADC0265E
 ```bash
 magnet:?xt=urn:btih:F54CE28C356ADE970E5960975950BDA0A676CCF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:F54CE28C356ADE970E5960975950BDA0A676CCF9
 magnet:?xt=urn:btih:F322A0559B5533A424C10A72F4FAAAD03F72E2AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:F322A0559B5533A424C10A72F4FAAAD03F72E2AE
 ```bash
 magnet:?xt=urn:btih:6450EE7B175A90FFC1B553AAA53AA9D956DACC08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Kono Sekai wa Fukanzen Sugiru | Quality Assurance in Another World | Этот м
 magnet:?xt=urn:btih:B045172778AA135E26C0C064A9F68FD5CB28534C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:B045172778AA135E26C0C064A9F68FD5CB28534C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Last Epoch – приключенческая экшен-игра с глубо�
 magnet:?xt=urn:btih:E5CD2CA9F356094A69F230A30B70F2E76ED2FE63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Mechabellum - это эпический автобаттлер в научно-�
 ```bash
 magnet:?xt=urn:btih:B253D6EA96DC586CE852F3921A0C5A8534F28E2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Naze Boku no Sekai o Dare mo Oboeteinai no ka? / Why Does Nobody Remember Me in 
 magnet:?xt=urn:btih:811BCB8873439FCC1A6AFDEF260FC49F9A212E5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:811BCB8873439FCC1A6AFDEF260FC49F9A212E5E
 ```bash
 magnet:?xt=urn:btih:F14A0AC23D69D511798C8BF8D16DC6750EB3544C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:F14A0AC23D69D511798C8BF8D16DC6750EB3544C
 magnet:?xt=urn:btih:5037A0ED58E360A9CBF7E14E07FA7F6AEBAC9931
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:5037A0ED58E360A9CBF7E14E07FA7F6AEBAC9931
 ```bash
 magnet:?xt=urn:btih:0D0557459B7A0767B38F7D785CC3F73C26A51327
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:0D0557459B7A0767B38F7D785CC3F73C26A51327
 magnet:?xt=urn:btih:3ECF4C16D9DA5541566CDFEE5062B8B7F1BC766C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ magnet:?xt=urn:btih:3ECF4C16D9DA5541566CDFEE5062B8B7F1BC766C
 ```bash
 magnet:?xt=urn:btih:0D6A9625DD86D8BC1691FF2B6F125CAF96BA52FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:0D6A9625DD86D8BC1691FF2B6F125CAF96BA52FA
 magnet:?xt=urn:btih:9D18ED7C4FDD73B3C64570AC853E01C633C75872
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ MInstAll v.28.09.2024 By Andreyonohov (ISO) [Ru]
 ```bash
 magnet:?xt=urn:btih:D7541E554DBB61965E14030C3CA151C590860460
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ Mylene Farmer - 138 Realeases (1984-2024) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:19849F473C8B9970CA56D077D75FD0D3E3E6EF9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:19849F473C8B9970CA56D077D75FD0D3E3E6EF9D
 magnet:?xt=urn:btih:40BF6AB3E186A043966EFD02ADEB8D3BC75FFE03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ Lords and Villeins (2021) [Ru/Multi] (1.6.14/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:B8D8990FB1BCF9F41D32FCD64824D4684FE22520
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15770319/dlc) Repack Decepti
 magnet:?xt=urn:btih:B5494AE54CE72FA0C6059B24FDA7DD7C2F0DFFA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ Hadean Tactics – это военная стратегия с элемента�
 ```bash
 magnet:?xt=urn:btih:07193F0A281EE05FD73C6C9F50D7BC63FBAF702F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ NARUTO X BORUTO Ultimate Ninja STORM CONNECTIONS (2023) [Ru/Multi] (1.50/dlc) Sc
 magnet:?xt=urn:btih:2A5413A9E002BE7D7136A627C4E90097CD223FE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:2A5413A9E002BE7D7136A627C4E90097CD223FE5
 magnet:?xt=urn:btih:DA2B1A0F5B65965F4AE96466D0DDAACD06CAF739
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ macOS Sequoia — это новейшая операционная систем�
 ```bash
 magnet:?xt=urn:btih:50962F50DA325DA308D5DBA4C60DCC45F7259E9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ TechSmith Snagit облегчает захват изображений с эк�
 magnet:?xt=urn:btih:D303258E9ABB60F23F35F12A3E5CF55D3362F286
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Coolmuster Android Assistant — программа предназначенна
 ```bash
 magnet:?xt=urn:btih:57F42A7A825AB8290C580E002768A959B32E9F83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Icecream Screen Recorder - программа, позволяющая вести
 magnet:?xt=urn:btih:42044F0D1B7D5F317C2B91CA817F44524B472B49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Comedy Woman (2017.11.17) SATRip
 ```bash
 magnet:?xt=urn:btih:D0079D09A3F5CBA8BA8DCFFA35FD77B29A17D160
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Wise Registry Cleaner - утилита для безопасной чистки 
 magnet:?xt=urn:btih:482FADE5DBBF326F07D28FC07E3C6167CE729DAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:482FADE5DBBF326F07D28FC07E3C6167CE729DAD
 ```bash
 magnet:?xt=urn:btih:470D6EF9693C5199D32FA61A1AF3BC728B35AF9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Sora no Method / Celestial Method / Небесный метод [2014, TV, 13 ep
 magnet:?xt=urn:btih:C8A1A2A928C1600308AA3C278D0442981B2AF4DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ FileZilla - программа, предназначенная для загру
 ```bash
 magnet:?xt=urn:btih:57FF10A1CDC54645FF1523774A3BB7225CFA9C66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:57FF10A1CDC54645FF1523774A3BB7225CFA9C66
 magnet:?xt=urn:btih:CD4D89BED3C43ADACFBC2D1927732E5DD23F325E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Ashampoo Photo Optimizer - приложение для оптимизации и
 magnet:?xt=urn:btih:4D0048B7C581C203B666C888886126B904D74137
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ magnet:?xt=urn:btih:4D0048B7C581C203B666C888886126B904D74137
 ```bash
 magnet:?xt=urn:btih:D57E468B97FEAF182CF8FDA435D5B829088F61A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:D57E468B97FEAF182CF8FDA435D5B829088F61A1
 magnet:?xt=urn:btih:B8B19D500D306FC64361DD45794E9D1C86A8ED55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ MediaInfo позволяет получать техническую инфор�
 ```bash
 magnet:?xt=urn:btih:0C640C2D3B353510BE4DD3724A388F3C7E4373D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ ReSharper – это расширение для Microsoft Visual Studio, пом
 ```bash
 magnet:?xt=urn:btih:29CB39E915BA9CE482B43DA65F4D895A71A7F4CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ Daniel Pemberton - Spider-Man: Into the Spider-Verse / Человек-паук: 
 magnet:?xt=urn:btih:383E847F77833D1A5E8167F4E7C5F15065A0E53B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ SamDrivers 19.10 LAN [Multi/Ru]
 magnet:?xt=urn:btih:BD7552CAA98AB73889D74E6F30FB925B4C42EA3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ WinX HD Video Converter Deluxe - профессиональное приложе
 ```bash
 magnet:?xt=urn:btih:45C2B688027495C94B05F56AAF9005AA8EE47B0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ Luminar является первым в мире редактором фото�
 ```bash
 magnet:?xt=urn:btih:BCCC2916F1B1CD8DB67FC79FC60429247CDF43E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ magnet:?xt=urn:btih:BCCC2916F1B1CD8DB67FC79FC60429247CDF43E1
 magnet:?xt=urn:btih:CB4BB5B3B386998C839E16C7FE82043CDE682225
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:B762E4496BDA267A13F8863A3825AFD510492F2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ Norton 360 - комплексное решение "все-в-одном". Эф�
 magnet:?xt=urn:btih:92289973F58F5E1E7FBB8109B3CDB3BAFBF05863
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:92289973F58F5E1E7FBB8109B3CDB3BAFBF05863
 magnet:?xt=urn:btih:2AB8FE9C71A355B47DA5367856E2D2824B2C0E11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:2AB8FE9C71A355B47DA5367856E2D2824B2C0E11
 ```bash
 magnet:?xt=urn:btih:981C226F7B6C281BC70D2151A37349212DCADE18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:981C226F7B6C281BC70D2151A37349212DCADE18
 magnet:?xt=urn:btih:4AC5024698343D85AC34920F7902BA65F34D54AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ VA - Spartaque - Codex Podcast 002 with Skobar (2018) [MP3|320 Kbps] <Techno>
 magnet:?xt=urn:btih:B97174A3EFB5784864AA7F71A9A4E988F199E7E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:60D7E0C26CB9BC5FE8D11DCB66F3D6421E96F8E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

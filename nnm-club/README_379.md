@@ -19,6 +19,8 @@ Marvel's Spider-Man 2 (2025) [Ru/Multi] (1.526.0.0/dlc) Repack Let'sРlay [Digit
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ MInstAll v.03.07.2025 By Andreyonohov (Unpacked) [Ru]
 ```bash
 magnet:?xt=urn:btih:67FD98A9EC4D7197FA4D3033E8EC4C6F271191FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:67FD98A9EC4D7197FA4D3033E8EC4C6F271191FE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:67FD98A9EC4D7197FA4D3033E8EC4C6F271191FE
 ```bash
 magnet:?xt=urn:btih:EB37C4E54E189C82C7129FBDFE3B5FD003F6A50B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:EB37C4E54E189C82C7129FBDFE3B5FD003F6A50B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:EB37C4E54E189C82C7129FBDFE3B5FD003F6A50B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:EB37C4E54E189C82C7129FBDFE3B5FD003F6A50B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:EB37C4E54E189C82C7129FBDFE3B5FD003F6A50B
 ```bash
 magnet:?xt=urn:btih:1965F19475F20E778CD615C303149EB4FC33AD31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:1965F19475F20E778CD615C303149EB4FC33AD31
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Oxygen Not Included (2019) [Ru/Multi] (Build U56-679336-SCRP/dlc) Repack Let'sР
 ```bash
 magnet:?xt=urn:btih:802E92C5B01934F319862B4915BEEF290DFA7760
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:802E92C5B01934F319862B4915BEEF290DFA7760
 magnet:?xt=urn:btih:32F7756E48C73A84C800FE7908EEB8B2F364A72D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.05.297/dlc) Repack Let'sРla
 ```bash
 magnet:?xt=urn:btih:87F089919308B0F103E4A1499881222FA11CFA24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:87F089919308B0F103E4A1499881222FA11CFA24
 magnet:?xt=urn:btih:1BB36D4D925B143E463E6EA5912C22A395920B83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:1BB36D4D925B143E463E6EA5912C22A395920B83
 ```bash
 magnet:?xt=urn:btih:6174BFB44349605C72382512310BB7364AB3BC94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:6174BFB44349605C72382512310BB7364AB3BC94
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:6174BFB44349605C72382512310BB7364AB3BC94
 magnet:?xt=urn:btih:09FB268C0BCB23C93B5C35229E0819E531A7AD6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.16.2/dlc) Repack 
 ```bash
 magnet:?xt=urn:btih:08F424FCA439450ED8201A37DEB9060A9938A731
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ Adobe Photoshop — это приложение для редактирован�
 magnet:?xt=urn:btih:4D94CB060EA25EBDEDA4F470C52938CE680713BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:4D94CB060EA25EBDEDA4F470C52938CE680713BB
 ```bash
 magnet:?xt=urn:btih:ABFD46D1D941D08B14ADB868E6B9FFD391104CC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:ABFD46D1D941D08B14ADB868E6B9FFD391104CC7
 magnet:?xt=urn:btih:928A0E5C961EA10F14F74153880632CB7A828CAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:928A0E5C961EA10F14F74153880632CB7A828CAF
 ```bash
 magnet:?xt=urn:btih:417819F0CEDD1ED68B950BE60B4F197444ABAA17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:417819F0CEDD1ED68B950BE60B4F197444ABAA17
 magnet:?xt=urn:btih:EBE0D0440144035266A1F464B60FB4AA72AFCE58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:EBE0D0440144035266A1F464B60FB4AA72AFCE58
 magnet:?xt=urn:btih:007103A58E40F59D3202D989195FB1B69AF640D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Metamodernist Toolkit — это набор из 100 элементов и 3 ф�
 ```bash
 magnet:?xt=urn:btih:6C99358C1B4C912511CFCF4CB672E3D807E94EA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:6C99358C1B4C912511CFCF4CB672E3D807E94EA6
 magnet:?xt=urn:btih:5802D3E8C98E0725FF7C746DBE13A592D06C0FCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:5802D3E8C98E0725FF7C746DBE13A592D06C0FCD
 ```bash
 magnet:?xt=urn:btih:63928449B6FF9D39B279D3F3D08154063476DF91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

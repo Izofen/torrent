@@ -1,3 +1,34 @@
+###  Публикация: 1104616   (879781) от 15.02.2017
+
+Beth Hart - Better Than Home (2015) [WavPack|192/32|image + .cue|Vinyl-Rip] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что говорят о Бет Харт (Beth Hart)? Да всякое, (особенно критики-женщины старались), но все сходились в одном - такое бешеной энергетики, невероятной страстности при абсолютной естественности, такой феноменальной рок-блюз певицы не помнят уже давно.
+
+Бет Харт (Beth Hart) родилась в Лос-Анджелесе в 1972 году. Игре на фоно научилась очень рано, бросила играть классику (   Читать дальше...   )A1. Might As Well Smile 4:01
+A2. Tell 'Em To Hold On 4:24
+A3. Tell Her You Belong To Me 5:56
+A4. Trouble 4:42(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D5431EF63FAA91ABF6E1B1F7EE07F350DE67922
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104307   (879940) от 15.02.2017
 
 VA - RETROспектива, часть XI: Эстрадные оркестры XI (1934-1958) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
@@ -21,6 +52,8 @@ VA - RETROспектива, часть XI: Эстрадные оркестры X
 ```bash
 magnet:?xt=urn:btih:64A86471AA2E43AAD43C0436559FE39120740400
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +82,8 @@ SIDE A
 magnet:?xt=urn:btih:F048316E84851E0911A895F81E34F182614F52FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +110,8 @@ A4. Когда меня ты позовёшь (5:30)(   Читать дальш�
 ```bash
 magnet:?xt=urn:btih:507A90084A700B8FEDED72B5489EE7AAC14E1B7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +140,8 @@ A4. Пробковый пояс (5:15)(   Читать дальше...   )Жан
 magnet:?xt=urn:btih:27959F65A685D2657CBF9D7608BA013D309EF820
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +168,8 @@ Mike Oldfield - Discovery And The Lake (2016) 1984 [DTS 5.1 CD-Extra|44.1/16|ima
 ```bash
 magnet:?xt=urn:btih:182DD2962B50A7A6D762BDCDF84B5FDB158978D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +198,8 @@ A4. You Won't Be There (3:42)(   Читать дальше...   )Произво�
 magnet:?xt=urn:btih:16501523C3C41FA298C507A141E98D842DA0FCFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +226,8 @@ VA - RETROспектива, часть X: Эстрадные оркестры X 
 ```bash
 magnet:?xt=urn:btih:5B1A445C7801A8952923B459350A71355AF1E7CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +256,8 @@ A4 Стучись В Любую Дверь(   Читать дальше...   )Ж
 magnet:?xt=urn:btih:A9D67C4A9E97236D4B232BA33B1624E130E1A45B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +284,8 @@ A4 Es Jott A Dokto • And The Doctor Came(   Читать дальше...   )Ж
 ```bash
 magnet:?xt=urn:btih:2632D83DD71A5EC607A8CBCDDADC8E2DB2C3C62D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +314,8 @@ VA - RETROспектива, часть IX: Эстрадные оркестры I
 magnet:?xt=urn:btih:949F976A69CEE853170542992D59907ACF4F0F0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +343,8 @@ A4. Miss Adventure (2:57)(   Читать дальше...   )Жанр: Hard Rock
 magnet:?xt=urn:btih:F67C12FC1902186F85BEEDA0F14E0E0D6DC3CD8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +371,8 @@ Ambra - Child Of The Universe (2003) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] <new 
 ```bash
 magnet:?xt=urn:btih:6504199D66E4C771A6B3864569C6B4F758738273
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +402,8 @@ magnet:?xt=urn:btih:6504199D66E4C771A6B3864569C6B4F758738273
 magnet:?xt=urn:btih:E53769531F15E4849297DAFCE5D80FBD0CFC8123
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +431,8 @@ magnet:?xt=urn:btih:E53769531F15E4849297DAFCE5D80FBD0CFC8123
 magnet:?xt=urn:btih:DAD68544BFE11D32C0EA513950027E7FEB0E9E34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +459,8 @@ John Lennon - Imagine (2014/1971) [LPCM 2.0 96/24|Audio-DVD (BD-Audio)] <Rock>
 ```bash
 magnet:?xt=urn:btih:30EEFA9C46FE6ADBC4807C403290638F74F3B251
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +490,8 @@ magnet:?xt=urn:btih:30EEFA9C46FE6ADBC4807C403290638F74F3B251
 magnet:?xt=urn:btih:4DE303B00CBC13483740D48F7574FE7A8EB76D93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +519,8 @@ AC/DC - Let There Be Rock (1977) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:4402E00C2965C9DE3615437D75E4B3D42CC85956
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +550,8 @@ magnet:?xt=urn:btih:4402E00C2965C9DE3615437D75E4B3D42CC85956
 magnet:?xt=urn:btih:E9C3BFB4F9B7C3FD7367A8F77C080FDBF9482366
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +578,8 @@ A4 Your Mirror 3:59(   Читать дальше...   )Жанр: Funk, Soul, Pop
 ```bash
 magnet:?xt=urn:btih:B86B57DC8AB150CB300F0A12D89EC9B9739167C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +608,8 @@ George Harrison – All Things Must Pass (50th Anniversary) (2021) [DTS-ES Discr
 magnet:?xt=urn:btih:140202108F00581B0D1C17E151680A56454483AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +636,8 @@ magnet:?xt=urn:btih:140202108F00581B0D1C17E151680A56454483AA
 ```bash
 magnet:?xt=urn:btih:7ADBE19D66A9FC120E884B5789554675713E9B21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +666,8 @@ magnet:?xt=urn:btih:7ADBE19D66A9FC120E884B5789554675713E9B21
 magnet:?xt=urn:btih:B4D0035C691C96D7A0092C5C0E2E572764FDCF4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +694,8 @@ magnet:?xt=urn:btih:B4D0035C691C96D7A0092C5C0E2E572764FDCF4D
 ```bash
 magnet:?xt=urn:btih:6246DFA48BE8681B8C2E686E26414BF65AC8DE48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -647,6 +724,8 @@ Enigma - The Fall Of A Rebel Angel (2016) [WavPack 2.0|32/192|image+.cue|Vinyl-R
 magnet:?xt=urn:btih:63980C31979D75EE5D2953BEAD32229CC25F6BE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -674,32 +753,7 @@ C. Columbia (07:31)(   Читать дальше...   )Жанр: TranceПрод�
 magnet:?xt=urn:btih:204F40F5614F2DEF168C111DAB845727B9D4294A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098601   (908447) от 30.01.2017
-
-Tiёsto - Elements Of Life (Limited Vinyl Edition) (2007) [FLAC 2.0|24/96|tracks|Vinyl-Rip] <Trance>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908447.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Tiesto - Ten Seconds Before Sunrise (7:28)
-B1. Tiesto feat. JES - Everything (6:56)
-C1. Tiesto - Carpe Noctum (6:58)
-D1. Tiesto - Bright Morningstar (8:16)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F5F3B4CD88F33CE47FE940353C514100A1F917
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1305977   (555873) от 02.06.2019
+
+VA - Hit Music (лето 2019) от Мяу [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555873.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Moon Taxi - Now's The Time
+002. Ally Brooke feat. A Boogie Wit Da Hoodie - Lips Don't Lie
+003. Градусы - Не Уходи
+004. Jam & Spoon Feat. Plavka Vs. D - Right In The Night (Rico Bernasconi Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 07:00:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F62DD9F91A737CC41A201C2CE3F55BF68B346945
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1305931   (555930) от 02.06.2019
 
 VA - German Top 100 Single Charts 07.06.2019 (2019) [MP3|320 Kbps] <Pop>
@@ -20,6 +49,8 @@ VA - German Top 100 Single Charts 07.06.2019 (2019) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:1737740809138CDA8015C0D68CAB4DE3B1720A62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +79,8 @@ VA - German Top 100 Single Charts 16.07.2018 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:3D526DA2536E96CA36AF2B4A7FC6F9A63A963F27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +107,8 @@ VA - German Top 100 Single Charts 13.07.2018 (2018) [MP3|320 Kbps] <Pop, Rap>
 ```bash
 magnet:?xt=urn:btih:CD98B68AB6DC9D563556DE093ADD922B589CA9C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -102,6 +137,8 @@ VA - Самые шикарные летние хиты 6 (2015) [MP3|256 кб/с
 magnet:?xt=urn:btih:113D4AAAD6F391755C5112B9BA1CE68E5AF73DF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +165,8 @@ VA - Дискотека 80-90 годов по - новому (Зарубежны
 ```bash
 magnet:?xt=urn:btih:2735A21BC83F6E2C72547CF76E868FC72080EF2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -156,6 +195,8 @@ ABBA - The Best Songs (2016) [MP3|320 Kbps] <Pop, Disco, Dance>
 magnet:?xt=urn:btih:3A390C44AFB900362FC662851923F9A0D6092E04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -182,6 +223,8 @@ VA - Зарубежная Дискотека Восьмидесятые (2016) [
 ```bash
 magnet:?xt=urn:btih:E4335193551508ED774632B677F12A55F806600B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -210,6 +253,8 @@ VA - 80's Cardio Workout Playlist Vol.3 (2016) [MP3|112 Kbps] <Pop>
 magnet:?xt=urn:btih:B0663A46047744249C7A7DC3205948A9CB79AD1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +281,8 @@ VA - Летние новинки интернета 50+50 Август (2016) [M
 ```bash
 magnet:?xt=urn:btih:E9F8563DA6B55B229F5D84264C38F2EE68A1C18D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +317,8 @@ VA - Жаркое Лето На Европе Плюс (2012) [MP3|256 кб/с]<P
 magnet:?xt=urn:btih:69D93360C3F746C44E1639897F91CC3984589FBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +345,8 @@ VA - Летящей Походкой В Лихие 90е (2016) [MP3|320 Kbps] <�
 ```bash
 magnet:?xt=urn:btih:8264232E31129EB8284CA86E68100A6830C81003
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +375,8 @@ CD1:
 magnet:?xt=urn:btih:0CF9B672109540C47A2C0D275328F63F60598BAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +403,8 @@ VA - Golden Vinil Time: Popular Disco Music Of The 70s (2019) [MP3|320 Kbps] <Po
 ```bash
 magnet:?xt=urn:btih:41CB42E03D800D1685FCE5E0B798A146BDA9AA6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +433,8 @@ VA - German Top 50 Party Schlager Charts 27.05.2019 (2019) [MP3|320 Kbps] <Pop, 
 magnet:?xt=urn:btih:47B10BC0AE368F98B48C3B6F50728FC69ED2C0BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +461,8 @@ VA - Загорелая Попса: 100 Новинок Лета (2015) [MP3|256-
 ```bash
 magnet:?xt=urn:btih:554B084AE6DE45E8DDB9CFF16FDAF0B0A19FE10C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +491,8 @@ VA - Валерию Меладзе от Velvet Music: Юбилей 50 лет (20
 magnet:?xt=urn:btih:0C1725AE4E182DD478757E64392D4443B49DF120
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +519,8 @@ VA - Хитовый бум (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:D2950D27CDB66CA49B1A331200534C0B65C4307F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +555,8 @@ VA - Союз Хитовый 3 (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:0D6C49A37DF062B2069E1A705DECF5DB4FB04F53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +583,8 @@ VA - Авто Хит Зарубежный (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:C9F8DE2EA13AE0C562B6C13E4329BAEC19A4741C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +613,8 @@ VA - Disco Дача. Лучшее (2016) [MP3|128-320 Kbps] <Pop, Disco, Dance>
 magnet:?xt=urn:btih:0BCF2D58807FD224A08151303C9A614BF5200440
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +641,8 @@ VA - Классный muzon. Выпуск 10 (2016) [MP3|256 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:33A89131DDC0B11BE55AF0E6D89C0C1164F690A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +671,8 @@ VA - The Latest Summer Hits (2016) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:CBB0BDA32F07F02A5960F4ADF473AB7CE4370425
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +699,8 @@ VA - Russian Mega Boom (2016) [MP3|256 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:90797F91B0A3F4FE8EF5786B7B5B06718B191138
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -654,6 +729,8 @@ VA - Танцевальный Ритм 7 (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:874AE8640267F8D85E2A3D865FE1C6C5B701BECE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -681,32 +758,7 @@ VA - Unknown 80's (part VIII) (2017) [MP3|320 Kbps] <Electronic Pop Rock, Synthp
 magnet:?xt=urn:btih:058E70651E2F53BA572C478658EFD421415D0D44
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152792   (563285) от 24.07.2017
-
-VA - German Top 100 Single Charts 24.07.2017 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563285.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Luis Fonsi – Despacito (feat. Daddy Yankee)
-002. Imagine Dragons – Thunder
-003. Robin Schulz – OK (feat. James Blunt)
-004. DJ Khaled – Wild Thoughts (feat. Rihanna Bryson Tiller)(   Читать дальше...   )Жанр: PopПродолжительность: 05:46:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49F2B8B6F2B01FC5ED84D84F2D39C317A670420C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

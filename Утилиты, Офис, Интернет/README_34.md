@@ -19,6 +19,8 @@ Edge Blocker – бесплатная портативная утилита дл
 magnet:?xt=urn:btih:240E2E4C234865EC87EEAAACE941BCCE7D8EB62B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Transcend SSD Scope - удобное приложение для работы с
 magnet:?xt=urn:btih:715D3CD7028D92655BCFC8382BB0E9F11194D9DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ R-Drive Image — является эффективной утилитой дл�
 ```bash
 magnet:?xt=urn:btih:A53F08D51D5E32A969011BE553CD9DA86048E687
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Wise Registry Cleaner - утилита для безопасной чистки 
 magnet:?xt=urn:btih:9B6121F6B14B8F2A9A595DD12C9F402DCD9CD2E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ PointerStick 6.35 Portable [Multi/Ru]
 magnet:?xt=urn:btih:9418C9D4C9E3F3A969543E23F6B672EE0EDE2BB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Sleipnir - быстрый и надежный браузер на базе дв�
 ```bash
 magnet:?xt=urn:btih:80B18053269F50B426EBB33A42EA8DACAC79ED86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Opera Crypto Browser 108.0.5067.28 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:3B68E2D7623CBFCB5AF79D50659D0D847843B78D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ RegScanner 2.75 + Portable [Ru/En]
 magnet:?xt=urn:btih:D34146F13A0AB15AA3583DF4A3D2F2C26A3D166D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:D34146F13A0AB15AA3583DF4A3D2F2C26A3D166D
 ```bash
 magnet:?xt=urn:btih:DDC4963AD43C1BE8C7CCEA5BEB86878D903CC7DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Desktop.Calendar.Tray.OK 4.06 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:EC21E866F61F4E2460D9DD0FAB46207224B7C0C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ ProcessKO 6.33 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:418F70D76C4F889A4E320EEFA3567341B6C0EA8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Cyberduck — программа представляет собой беспл�
 magnet:?xt=urn:btih:715847D1A40BE570CDB75C9D882BBE4D017A8C82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Foxit Reader - профессиональное приложение для чт
 ```bash
 magnet:?xt=urn:btih:D256D40E12BE7244B9C78C204CDBEA2A01548E2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Print.Test.Page.OK - это альтернативная портативная 
 magnet:?xt=urn:btih:0D0A82C7D07907E47A69A92427EF2B9D6244C6FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Any Burn - небольшая бесплатная утилита для раб�
 ```bash
 magnet:?xt=urn:btih:54A6EBEE9389F955113B5BC554EA10369AD1EB62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Acrobat Pro — это полностью обновленная настоль�
 magnet:?xt=urn:btih:5D99C6E4AC351F751CAB5645A76CC081F5786253
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ VueScan - программа предназначена для замены ст
 ```bash
 magnet:?xt=urn:btih:661361CDE708711A00FB7A94E0156A8996182D95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Rufus - небольшая утилита помогает отформатир�
 magnet:?xt=urn:btih:0559318E56AD4E88C445D9D06A3AE74ACE4CB555
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Wise Disk Cleaner 11.2.3.843 RePack (& portable) by Dodakaedr [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:134B46AA4B03AB4040D73D094957170115E32214
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ File & Image Uploader - удобная и просто незаменимая п
 magnet:?xt=urn:btih:90A198DD53F9D72F71C91CE2279A3B93C21C3739
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:90A198DD53F9D72F71C91CE2279A3B93C21C3739
 ```bash
 magnet:?xt=urn:btih:9505B3643EDA7497AB103160E9C45BE87D3074B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ Total Mail Converter надежная программа для конверти
 magnet:?xt=urn:btih:FE26C7E44B6E1D20BEDC674FF13754DFB28B8333
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ C этой программой можно записать все, что пр�
 ```bash
 magnet:?xt=urn:btih:7008436C3AEAFD13969D5A2F601B0FB9D5511D96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ ProxyCap - небольшая программа, которая позволи�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Tor (The Onion Router) — свободное программное обесп�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +680,8 @@ TestDisk 6.11 (Востанови то что казалось-бы потеря
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

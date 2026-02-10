@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:79B3C8C02CFD65B499FD64D38D15748E1591D114
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Jacque Fresco - инженер, дизайнер, футуролог. Автор
 magnet:?xt=urn:btih:A3227ADE857F39B8433433F4C8CBF43D08B2B641
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:A3227ADE857F39B8433433F4C8CBF43D08B2B641
 ```bash
 magnet:?xt=urn:btih:7E75FACE21A6339B5201FC745EBEC466650A247C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Format Factory - многофункциональный конвертер ра�
 magnet:?xt=urn:btih:AC093E10F2B836F5AF9295B78A65A786E96BE6E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:AC093E10F2B836F5AF9295B78A65A786E96BE6E0
 ```bash
 magnet:?xt=urn:btih:252E0CFD9327E68D99E126F3979AD22C3ABBDBAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:252E0CFD9327E68D99E126F3979AD22C3ABBDBAA
 magnet:?xt=urn:btih:EAC4A8245D7B150C2912A86C19053040C6C3226D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:EAC4A8245D7B150C2912A86C19053040C6C3226D
 ```bash
 magnet:?xt=urn:btih:972F9241A4AF9C72AA69DA8D1BB75C89DE5B87EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ The Euro Truck Simulator 2 дарит вам опыт управления са�
 magnet:?xt=urn:btih:508F3C1611C9DC805C16D391EE46B8539A1796C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:508F3C1611C9DC805C16D391EE46B8539A1796C1
 ```bash
 magnet:?xt=urn:btih:A462872FB88E89F1A0BD08058158A335A8C812AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Tower - мощный и элегантный Git клиент для Mac
 magnet:?xt=urn:btih:5F171AB5C99BC12CB0502916332B622ED021C90F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ Christmas - это типографический проект, который �
 magnet:?xt=urn:btih:E0750B05E223C5BAE96807E3F26774BE4AC76290
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ IntelliJ IDEA — самая умная среда разработки для J
 magnet:?xt=urn:btih:2D11FA0FDFD11B86AE637F752981A02F5876632D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:2D11FA0FDFD11B86AE637F752981A02F5876632D
 ```bash
 magnet:?xt=urn:btih:53511533795F8199679D5EFE90D00FE4A84361E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:53511533795F8199679D5EFE90D00FE4A84361E4
 magnet:?xt=urn:btih:89862D549186619DF6E90C944D5AE49B6651F15F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:89862D549186619DF6E90C944D5AE49B6651F15F
 ```bash
 magnet:?xt=urn:btih:1CF509208A2C0DB3C27B3277B6191D28D347CB6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:1CF509208A2C0DB3C27B3277B6191D28D347CB6E
 magnet:?xt=urn:btih:FD317601224DF4278887A52E187BE3559D0A01BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:FD317601224DF4278887A52E187BE3559D0A01BE
 magnet:?xt=urn:btih:6D61E4574360A063E68017C4F655E17C88090669
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ Rainmeter - утилита для мониторинга ресурсов ком
 ```bash
 magnet:?xt=urn:btih:00865B7DE74A3159AC56BFFF53882AFD88D73CA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ Christmas Glittering - это потрясающий шаблон After Effects.
 magnet:?xt=urn:btih:D60318C0F367045DE4E9426AE517EB6321616B6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:D60318C0F367045DE4E9426AE517EB6321616B6A
 magnet:?xt=urn:btih:C6D593AF21B9F45131F84A6B66FDC1BBE9FFFF27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:C6D593AF21B9F45131F84A6B66FDC1BBE9FFFF27
 ```bash
 magnet:?xt=urn:btih:130B96F08F30816B217E468A7823EEE371C6CE34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ VA - The Official UK Top 40 Singles Chart 30.11.2018 [MP3|320 Kbps] <Pop, Dance,
 magnet:?xt=urn:btih:F5FC7D320291053E092862BF8F82A7ABEE3BD384
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ magnet:?xt=urn:btih:F5FC7D320291053E092862BF8F82A7ABEE3BD384
 magnet:?xt=urn:btih:A0C79F0D90C45A376189E7AD76B5D4464F8D67F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +633,8 @@ magnet:?xt=urn:btih:A0C79F0D90C45A376189E7AD76B5D4464F8D67F9
 ```bash
 magnet:?xt=urn:btih:37C1E21AB721BCB5CFCEB681B0EC30DA63C0FE12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +663,8 @@ Brothers of Metal - Prophecy Of Ragnarok (2017) 2018, Limited Edition [FLAC|Loss
 magnet:?xt=urn:btih:5469FD00E0D44C494E15D3E862CD4C77735E2EF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ magnet:?xt=urn:btih:5469FD00E0D44C494E15D3E862CD4C77735E2EF6
 ```bash
 magnet:?xt=urn:btih:E63664A951824E0D67C848E14563A1A376253F62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

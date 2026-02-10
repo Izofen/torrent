@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:A4BE5E3C13C8D4BC66DAC85A61A54A421D964C47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ LTR Limited Grotesque — семейство низкоконтрастных г
 ```bash
 magnet:?xt=urn:btih:EB927870A39598A6FAF48E1577AA548E88ED76E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Lausanne — необычайно сложный шрифт без засече�
 magnet:?xt=urn:btih:222F3D6A36A4D78AEC4130D67D2AA5E9B3236AC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:222F3D6A36A4D78AEC4130D67D2AA5E9B3236AC7
 magnet:?xt=urn:btih:AB9A4CDCEE24F194221894D4156C6B5425F17C06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Aktiv Grotesk — это сжатый шрифт без засечек, разр
 ```bash
 magnet:?xt=urn:btih:F7C7812ADD4BCC49726FF739CDB385E77808F852
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:F7C7812ADD4BCC49726FF739CDB385E77808F852
 magnet:?xt=urn:btih:82673EEBA11DA82254C1029F6786CFA5A40B15F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Rustica Plains — это шрифт без засечек ручной рабо
 magnet:?xt=urn:btih:6C118A7CD9898415285CB6632BC3B4735BE50EFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Bolger Font – Serif Display Font аутентичный display font. Шриф
 ```bash
 magnet:?xt=urn:btih:F58D6408BBD7975CC575B07DB44918C39494F738
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:F58D6408BBD7975CC575B07DB44918C39494F738
 magnet:?xt=urn:btih:8E19528B1ACB40697A3DB6DDF246D2D8A638D736
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:8E19528B1ACB40697A3DB6DDF246D2D8A638D736
 ```bash
 magnet:?xt=urn:btih:AB7F3C5C45E2FC8DC3785067589AF0AE9CDFEC44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:AB7F3C5C45E2FC8DC3785067589AF0AE9CDFEC44
 magnet:?xt=urn:btih:6DCC5A70A6D1C3B6AE73607D2307D973F60C1B19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ TT Fellows — гуманистический гротеск с механиче
 ```bash
 magnet:?xt=urn:btih:0AD50D498AC2C559E242E37932541EE20B5808ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:0AD50D498AC2C559E242E37932541EE20B5808ED
 magnet:?xt=urn:btih:739B52E9E3AFB65E07CC276A691A64921B368511
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:739B52E9E3AFB65E07CC276A691A64921B368511
 ```bash
 magnet:?xt=urn:btih:F0F1F57CC34931D206378B82C91029EA2CE05E73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ Codec Pro — новейшее воплощение семейства Codec, р
 magnet:?xt=urn:btih:3BF8350EBB7F4E21ED271BC3DD229582D52A2004
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:3BF8350EBB7F4E21ED271BC3DD229582D52A2004
 ```bash
 magnet:?xt=urn:btih:F1AFF597132AB962F32958B1671D48EACFDAFC95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:F1AFF597132AB962F32958B1671D48EACFDAFC95
 magnet:?xt=urn:btih:A21770820A40068CF0E6CDB939D72187A3D34F55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ Lebora — это современный шрифт с засечками с у�
 ```bash
 magnet:?xt=urn:btih:E9261B3848524123F4C27D50D499831DC8C6F073
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ magnet:?xt=urn:btih:E9261B3848524123F4C27D50D499831DC8C6F073
 magnet:?xt=urn:btih:F36F2FAE7803179CBF484D1BF3B8B9ABAC21D688
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ Faktum — это исследование жанра геометрически
 magnet:?xt=urn:btih:D734B0030FC6BAD2205FA09BF49FF37E27D1412C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ FF Kievit обеспечивает расширенную типографску
 ```bash
 magnet:?xt=urn:btih:1C3E8B17FEE1A68FD68A0B4E10D1A8DC1AFA213C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ magnet:?xt=urn:btih:1C3E8B17FEE1A68FD68A0B4E10D1A8DC1AFA213C
 magnet:?xt=urn:btih:C8744EFE723FCC5951CC4B4890071A1C6E8838E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ magnet:?xt=urn:btih:C8744EFE723FCC5951CC4B4890071A1C6E8838E1
 ```bash
 magnet:?xt=urn:btih:092FE67910FF9DC35F7783059A12A1C0A3515018
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +633,8 @@ Argö — это шрифт с засечками, изначально разр
 magnet:?xt=urn:btih:654CE11BBBC7181247CE4BF0AF8DFE56827A1C77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ TA Sonatina — это универсальный акцидентный шри�
 ```bash
 magnet:?xt=urn:btih:43D407ABE8D0EB6FBB515C88F8F3C2E2F8374169
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +686,8 @@ Charming Blues — современный и роскошный шрифт с з
 ```bash
 magnet:?xt=urn:btih:31E83EC16C2C9809849B91CF60DC328A642EE115
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

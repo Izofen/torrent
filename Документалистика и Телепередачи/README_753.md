@@ -1,3 +1,29 @@
+###  Публикация: 1450917   (1028714) от 28.02.2021
+
+Мелодии и ритмы зарубежной эстрады / Pop Gear (1965) DVB
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Go Go Mania, также известный как Pop Gear, - это потрясающий британский музыкальный ревю-фильм с концертными кадрами от таких легендарных рок-групп, как The Beatles, Eric Burdon and the Animals, Herman's Hermits, The Spencer Davis Group и многих других. Каждое выступление представляет Джимми Сэвил, давний ведущий Top of the Pops Би-би-си, и включает в себя “She Loves (   Читать дальше...   )Телекомпания: Великобритания / Associated British-PathéЖанр: Документальный, музыкаПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: Русские (Teletext)Продолжительность: 01:07:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:491A5A681BEE30DE93D3B9AB63EB89D7821B852E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450814   (1028719) от 28.02.2021
 
 Ронни Вуд - Кто-то там наверху любит меня / Ronnie Wood - Somebody Up There Likes Me (2019) DVB [H.264/1080i-LQ] [MVO]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:9423917D87FC3F8980AA5A2C42B8F4FBEA04A664
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:9423917D87FC3F8980AA5A2C42B8F4FBEA04A664
 magnet:?xt=urn:btih:7D4D7D44E6FA01A88E0E17328439561A76F6CA1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:7D4D7D44E6FA01A88E0E17328439561A76F6CA1C
 ```bash
 magnet:?xt=urn:btih:6428F1DECD8FE5188749213F36C02298CDF08DE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:6428F1DECD8FE5188749213F36C02298CDF08DE2
 magnet:?xt=urn:btih:C53FAC318647A7CD5D654E65AF41357351529DA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:C53FAC318647A7CD5D654E65AF41357351529DA5
 ```bash
 magnet:?xt=urn:btih:DBE0F972507DA18ED212593900ADAB49CC51E7A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:DBE0F972507DA18ED212593900ADAB49CC51E7A6
 magnet:?xt=urn:btih:22422E3D4BE9C71E77432CFE6ECE2995963F842F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:22422E3D4BE9C71E77432CFE6ECE2995963F842F
 ```bash
 magnet:?xt=urn:btih:4E3B8AAA41DF4579E5E82D504221B106D86D583F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:4E3B8AAA41DF4579E5E82D504221B106D86D583F
 magnet:?xt=urn:btih:76C92B3E470E52E5CC91B7A0A7A07A765B23E975
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:76C92B3E470E52E5CC91B7A0A7A07A765B23E975
 ```bash
 magnet:?xt=urn:btih:BF6BB88FA033CB09751FD8D807B6F4827F1A467B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:BF6BB88FA033CB09751FD8D807B6F4827F1A467B
 magnet:?xt=urn:btih:3EEF8D9A479F519D27E8E7AA1FAAEC17FE2D91E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:3EEF8D9A479F519D27E8E7AA1FAAEC17FE2D91E2
 ```bash
 magnet:?xt=urn:btih:A232272A8262C9341597C2025C6A2CD0DE9D2F35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:A232272A8262C9341597C2025C6A2CD0DE9D2F35
 magnet:?xt=urn:btih:DA53FF8FECC7F04A01758E246A5F16B9CC92BF40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +356,8 @@ magnet:?xt=urn:btih:DA53FF8FECC7F04A01758E246A5F16B9CC92BF40
 ```bash
 magnet:?xt=urn:btih:00F3C0EF7D8AB484BCAB6257C9E378D0225BD994
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:00F3C0EF7D8AB484BCAB6257C9E378D0225BD994
 magnet:?xt=urn:btih:250CCEFE1FF9C5D42C446E2CF6E0A55A2344EA7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +408,8 @@ magnet:?xt=urn:btih:250CCEFE1FF9C5D42C446E2CF6E0A55A2344EA7D
 ```bash
 magnet:?xt=urn:btih:372E96D98F3ABB8517C76B7AB218DEC6EDE13C5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:372E96D98F3ABB8517C76B7AB218DEC6EDE13C5C
 magnet:?xt=urn:btih:216C562A2EE049883D296D8105C4ED3B0055E968
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +460,8 @@ magnet:?xt=urn:btih:216C562A2EE049883D296D8105C4ED3B0055E968
 ```bash
 magnet:?xt=urn:btih:C56BFBA57763875F7207AE3C07345E7B36BF5FB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +487,8 @@ Tiny World - это невероятной красоты документаль
 magnet:?xt=urn:btih:5A066C4DBEEE38628ED2E8FCB70A7E24B412AF41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +512,8 @@ magnet:?xt=urn:btih:5A066C4DBEEE38628ED2E8FCB70A7E24B412AF41
 ```bash
 magnet:?xt=urn:btih:3353B86906928A63F35DF9ACF211A1F36554197F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +540,8 @@ magnet:?xt=urn:btih:3353B86906928A63F35DF9ACF211A1F36554197F
 magnet:?xt=urn:btih:B68C84EE057D68C6B65DECDBEACAE40991E5C108
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +565,8 @@ magnet:?xt=urn:btih:B68C84EE057D68C6B65DECDBEACAE40991E5C108
 ```bash
 magnet:?xt=urn:btih:1DA2B41BFFE0AF1443E12BD1354D367D16E676C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +592,8 @@ magnet:?xt=urn:btih:1DA2B41BFFE0AF1443E12BD1354D367D16E676C2
 magnet:?xt=urn:btih:A318248F57DC0A8386CB1F2467314E12C47D0D02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +618,8 @@ magnet:?xt=urn:btih:A318248F57DC0A8386CB1F2467314E12C47D0D02
 ```bash
 magnet:?xt=urn:btih:5B199AFE5B0D86489C5AB3D59CB030FEF68E15EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:5B199AFE5B0D86489C5AB3D59CB030FEF68E15EC
 magnet:?xt=urn:btih:6BC41268656B07A0ED25AC3CFB6B0557CE28DD3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,29 +674,7 @@ magnet:?xt=urn:btih:6BC41268656B07A0ED25AC3CFB6B0557CE28DD3B
 magnet:?xt=urn:btih:7ABD86009FBAEB342FBF51A4EBED425BA6092C18
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623339   (1029396) от 01.04.2023
-
-Аншлаг и компания. Владимир Винокур (01.04.2023) SATRip [H.264]
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой данного выпуска "Аншлага" – юбиляр этой недели, народный артист России Владимир Винокур. За 30 лет существования "Аншлага" собрана уникальная коллекция его выступлений и интервью. Сегодня в программе – настоящая мозаика новых и архивных номеров одного из самых любимых "аншлаговцев".Телекомпания: Россия / ВГТРКЖанр: ТВ-шоу, юморСубтитры: ОтсутствуютПродолжительность: 01:29:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7413B3C2A3B12132ED0C9E9DD8CD34787AF0C391
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

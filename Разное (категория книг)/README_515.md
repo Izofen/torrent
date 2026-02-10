@@ -1,3 +1,31 @@
+###  Публикация: 1210591   (778661) от 03.03.2018
+
+Чарльз Брандт | "Я слышал, ты красишь дома". Исповедь киллера мафии "Ирландца" (2018) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778661.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Я слышал, ты красишь дома» – на языке мафии это выражение означает «Я слышал, ты умеешь убивать людей», а под «краской» подразумевается кровь.
+
+Это тот редкий случай, когда боссы мафии признали книгу о себе правдивой – штатный киллер одной из «семей» Фрэнк «Ирландец» Ширан рассказал о своей жизни перед самой смертью. Эти истории, затаив дыхание, слушали опытные (   Читать дальше...   )Жанр: Биографии, мемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40F21A6442B701539E8DB87D81B4AAC372AC3F63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210283   (778705) от 03.03.2018
 
 У. З. Фостер | Очерк политической истории Америки (1955) [DJVU]
@@ -20,6 +48,8 @@
 ```bash
 magnet:?xt=urn:btih:0B9C7BD97403D9AA8C3464B735B9AC6D66E0D37F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +74,8 @@ magnet:?xt=urn:btih:0B9C7BD97403D9AA8C3464B735B9AC6D66E0D37F
 ```bash
 magnet:?xt=urn:btih:CD0E0647D848C18D2A179EFED101805FDCDB9AF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +103,8 @@ magnet:?xt=urn:btih:CD0E0647D848C18D2A179EFED101805FDCDB9AF9
 magnet:?xt=urn:btih:226A3C7906621ACF9F2506E1D7A3897E94D2C950
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +128,8 @@ magnet:?xt=urn:btih:226A3C7906621ACF9F2506E1D7A3897E94D2C950
 ```bash
 magnet:?xt=urn:btih:F55E54247499A5FF3ACCEB3B0598218043A93DE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +155,8 @@ magnet:?xt=urn:btih:F55E54247499A5FF3ACCEB3B0598218043A93DE0
 magnet:?xt=urn:btih:B743E79ABD179515500D4D9915966E8E2F744587
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +181,8 @@ magnet:?xt=urn:btih:B743E79ABD179515500D4D9915966E8E2F744587
 magnet:?xt=urn:btih:DF02D2D409AC39930CF572E95084E5E203126F23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +206,8 @@ magnet:?xt=urn:btih:DF02D2D409AC39930CF572E95084E5E203126F23
 ```bash
 magnet:?xt=urn:btih:03CA856F994A9385D51143915C76AD39C8216927
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +235,8 @@ magnet:?xt=urn:btih:03CA856F994A9385D51143915C76AD39C8216927
 magnet:?xt=urn:btih:0DC5ADCFBCC47D051FC8174596B4BA54666D97CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +261,8 @@ magnet:?xt=urn:btih:0DC5ADCFBCC47D051FC8174596B4BA54666D97CB
 magnet:?xt=urn:btih:F86313FC4637FD6043505612AA164B35F04DCFEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +286,8 @@ magnet:?xt=urn:btih:F86313FC4637FD6043505612AA164B35F04DCFEE
 ```bash
 magnet:?xt=urn:btih:AA5127A6E0319E9B3E4CD6AE5BF3AD7B5F3A8302
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +315,8 @@ magnet:?xt=urn:btih:AA5127A6E0319E9B3E4CD6AE5BF3AD7B5F3A8302
 magnet:?xt=urn:btih:E4DD75D6196F5796589799226A27064D35FB7E73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +340,8 @@ magnet:?xt=urn:btih:E4DD75D6196F5796589799226A27064D35FB7E73
 ```bash
 magnet:?xt=urn:btih:DEC7ABACE0FE357349E6381260B6FF2E773C66B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +367,8 @@ magnet:?xt=urn:btih:DEC7ABACE0FE357349E6381260B6FF2E773C66B5
 ```bash
 magnet:?xt=urn:btih:8FB7704B560815759722ED8DFF20D14B951ED7AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +396,8 @@ magnet:?xt=urn:btih:8FB7704B560815759722ED8DFF20D14B951ED7AB
 magnet:?xt=urn:btih:BA8ECEDB837F8C356168B263D72E79344BCEE3D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +421,8 @@ magnet:?xt=urn:btih:BA8ECEDB837F8C356168B263D72E79344BCEE3D8
 ```bash
 magnet:?xt=urn:btih:5226AA0DEA70747A709A43D4C5F3E7F14FC8CAC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +450,8 @@ magnet:?xt=urn:btih:5226AA0DEA70747A709A43D4C5F3E7F14FC8CAC8
 magnet:?xt=urn:btih:74FA18D9ACB56B8F6C038199DE48D06478667BA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +477,8 @@ magnet:?xt=urn:btih:74FA18D9ACB56B8F6C038199DE48D06478667BA4
 magnet:?xt=urn:btih:2B056DF84CFEA33B287A0779846511D6D9AFBC53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +503,8 @@ magnet:?xt=urn:btih:2B056DF84CFEA33B287A0779846511D6D9AFBC53
 magnet:?xt=urn:btih:C275D9D0BFA853BCF0F3B3B0D9CAED4DEE4B785B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +528,8 @@ magnet:?xt=urn:btih:C275D9D0BFA853BCF0F3B3B0D9CAED4DEE4B785B
 ```bash
 magnet:?xt=urn:btih:7281A92C5000E73F999141C6AFE71A56FC059B59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +557,8 @@ magnet:?xt=urn:btih:7281A92C5000E73F999141C6AFE71A56FC059B59
 magnet:?xt=urn:btih:DEC695B9E1C001D3F3AA8BC70DDEC8CBD40F0DA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +585,8 @@ magnet:?xt=urn:btih:DEC695B9E1C001D3F3AA8BC70DDEC8CBD40F0DA0
 magnet:?xt=urn:btih:8EA54C6F3B190524FFC51AFA7070FFCBB9E712D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +611,8 @@ magnet:?xt=urn:btih:8EA54C6F3B190524FFC51AFA7070FFCBB9E712D4
 magnet:?xt=urn:btih:01BA0AC13FC7B7AA1E4355E06F4DB0636388113B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +636,8 @@ magnet:?xt=urn:btih:01BA0AC13FC7B7AA1E4355E06F4DB0636388113B
 ```bash
 magnet:?xt=urn:btih:45C03C6A67C12D0AE4E0228DDCFC56E89E56A945
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +665,8 @@ magnet:?xt=urn:btih:45C03C6A67C12D0AE4E0228DDCFC56E89E56A945
 magnet:?xt=urn:btih:0C365B21D0E737D24CA5533D8B6106A7D313F10C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,29 +691,7 @@ magnet:?xt=urn:btih:0C365B21D0E737D24CA5533D8B6106A7D313F10C
 magnet:?xt=urn:btih:EFCF4E55A086FA700B01573745D5A81FCB7F8587
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209035   (779589) от 24.02.2018
-
-Тацунари Иота | Она не объясняет, он не догадывается. Японское искусство диалога без ссор (2018) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впервые в России! Японский бестселлер по отношениям. Все любовные истории уникальны, но ругаемся мы по одним и тем же причинам. Эксперт по коммуникации Тацунари Иота решил проблему непонимания между полами. Он выявил 36 основных источников конфликта полов, объяснил их с научной точки зрения и сформулировал фразы для мужчин и женщин, которые мгновенно решают эти конфликты. (   Читать дальше...   )Жанр: Зарубежная психология, Семейная психология, Социальная психологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6613C384B05D8AB71F6E3B3F9F48F5EACD52E1C0
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

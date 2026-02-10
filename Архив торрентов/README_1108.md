@@ -19,6 +19,8 @@ Icecream Video Converter Pro 1.38 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:D5BCC8B895B46C2736FCBA752A4ED5AF84E458E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:D5BCC8B895B46C2736FCBA752A4ED5AF84E458E0
 magnet:?xt=urn:btih:422B48B4CB002A7AFC4AA208C9F766481D260FAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Hetman Word Recovery 2.2 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:AA0602DC9D0F2F0CE9E06A55D2590E2FECA43DA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ Death Dealer - War Master (2013) Japan [FLAC|Lossless]<Power Metal>
 magnet:?xt=urn:btih:1BCCD8B61DD4C8B8D0B2C305C20DD0F8FAD37431
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ BetterDisplay — поистине замечательный инструмен
 ```bash
 magnet:?xt=urn:btih:5F2FB0ABEA7B9751524690C73DEC43383346D806
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:5F2FB0ABEA7B9751524690C73DEC43383346D806
 magnet:?xt=urn:btih:575607F500EDE232BC11EC30DD976554B1F878AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ Icecream Video Editor - видеоредактор, предлагающий б�
 ```bash
 magnet:?xt=urn:btih:151BC3455A8386BF3E9F3633A39DA8A1CF268EE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +215,8 @@ Wondershare UniConverter - это полный набор инструменто
 magnet:?xt=urn:btih:1E14E868ECF1E91DE8E333B445D7F55BC2F821E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:1E14E868ECF1E91DE8E333B445D7F55BC2F821E9
 ```bash
 magnet:?xt=urn:btih:3834290EBB70EF7C5789A3C15B519A02DEEEB186
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ save2pc Ultimate - это простая в использовании прог�
 magnet:?xt=urn:btih:2CE1778F9A7C3DF006FAF46DBC14F6BC60C04657
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ VSO ConvertXtoHD - новый продукт от разработчиков Con
 magnet:?xt=urn:btih:FCEDB0FCC36E91E22C3D55B92BF9685E871209FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:FCEDB0FCC36E91E22C3D55B92BF9685E871209FE
 ```bash
 magnet:?xt=urn:btih:5831731567E770B960B8DC0EA634392737246561
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ The Logo Creator — Графический редактор, предназна
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ ForkLift – это альтернативный файловый менедже
 ```bash
 magnet:?xt=urn:btih:2A007D2158225226695E5EA60E48C74774CADB34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ Movavi PDF Editor 3.0.1 [Multi/Ru]
 magnet:?xt=urn:btih:C223D0F1B84845EC16567E388F2EF493E83F59D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:C223D0F1B84845EC16567E388F2EF493E83F59D9
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:C223D0F1B84845EC16567E388F2EF493E83F59D9
 ```bash
 magnet:?xt=urn:btih:1AF348F4C6989793A5E745C8430F104C4023E9C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +478,8 @@ DxO PhotoLab 7 ELITE Edition 7.1.1 [Multi]
 magnet:?xt=urn:btih:D9B957C316541EB5C8224E378EAE2FDB964B25CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ TG Pro — контроль температуры и вентиляторов �
 ```bash
 magnet:?xt=urn:btih:BDBDCB00A455F6A8E35AB074DED93279F12F7C1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ Geekbench 5 предлагает обновленный интерфейс и р
 magnet:?xt=urn:btih:181B32935D83D79BE567AE3320259D43ACFE7BAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:E898A8DBBD5937F483352A9E9B1A6AE820CA1933
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:E898A8DBBD5937F483352A9E9B1A6AE820CA1933
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ magnet:?xt=urn:btih:E898A8DBBD5937F483352A9E9B1A6AE820CA1933
 ```bash
 magnet:?xt=urn:btih:2105A903B8D6711FC7A69A87B13F2EAE0A040953
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +640,8 @@ Downie поддерживает более 1,000 популярных сайто
 magnet:?xt=urn:btih:D1C1ED35FDB1FAE8D5A09A7D6713F99FD829C1D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +666,8 @@ Ski Safari - весёлая игра , сумасшедшие гонки на с
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ Ski Safari - весёлая игра , сумасшедшие гонки на с
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

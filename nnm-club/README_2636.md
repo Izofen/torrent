@@ -21,6 +21,8 @@ WAVE BLOCK — это сырой и энергичный шрифт, созда�
 magnet:?xt=urn:btih:D851241CADE5BC0796EA488D368308797C611FAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:D851241CADE5BC0796EA488D368308797C611FAF
 ```bash
 magnet:?xt=urn:btih:B96C514918535AF567F1229F01AA8823DE24D601
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:B96C514918535AF567F1229F01AA8823DE24D601
 ```bash
 magnet:?xt=urn:btih:3232F88A34A77EC1CD8F24E50007ED03BE35BF5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ Disc 1 - The Ultra-Violence:
 magnet:?xt=urn:btih:B86FEE6F2B16650715A1ABA6B9ED51CBF78D5AAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ Sub Zero Project - Tomorrowland Friendship Mix (2025-03-13) [MP3|320 Kbps] <Hard
 magnet:?xt=urn:btih:1B592E1D0EAE6844597201E051F2DCF2E1A0E462
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ Podrich — элегантный вневременной шрифт с засе
 ```bash
 magnet:?xt=urn:btih:B68F24E4A67F7C3EC10C054364EF6D74B1711CFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -179,6 +191,8 @@ Opeth - Pale Communion (2014) Japanese Edition [FLAC|Lossless|image + .cue] <Pro
 magnet:?xt=urn:btih:73294D495F94F4F9FF190B6CFDBA342543D35C9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +218,8 @@ Romantic History — это вневременной шрифт, черпающ�
 ```bash
 magnet:?xt=urn:btih:877BF38BFD664526123889D48F6C84487F385082
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -232,6 +248,8 @@ Jon Anderson - Perpetual Change (Live) (2025) [FLAC 24/96|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:8AAAC46320638E53AF00E081617FB95B6CEE730E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -257,6 +275,8 @@ Trend Polaroid — это современный дуэтный шрифт, со
 ```bash
 magnet:?xt=urn:btih:A7B3AB18DDCE896BD1D04E047C931A50D74FE46C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +305,8 @@ VA - The World Series Of Trance, Vol. 1 (2025) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:89FD22999CCDAB528CF8240A6F170A594A8856B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +330,8 @@ magnet:?xt=urn:btih:89FD22999CCDAB528CF8240A6F170A594A8856B4
 ```bash
 magnet:?xt=urn:btih:B850CCA5944ECF4A4ABB4BBC270B2804C859F406
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +358,8 @@ magnet:?xt=urn:btih:B850CCA5944ECF4A4ABB4BBC270B2804C859F406
 magnet:?xt=urn:btih:8E6F9FCD30803CED0DEC34804CAD93EEED09D990
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +383,8 @@ Picture Bird позволяет легко распознать птиц вок�
 ```bash
 magnet:?xt=urn:btih:8C636EBC5C9B29C7DA4027AC6F1C31C313FC0143
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +411,8 @@ magnet:?xt=urn:btih:8C636EBC5C9B29C7DA4027AC6F1C31C313FC0143
 magnet:?xt=urn:btih:6AB44E16676E2B18711C484EA18A1B4C9570F024
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +438,8 @@ Daff Moon Phase (Фазы Луны) v3.45 Mod by shv7net [Ru/En]
 magnet:?xt=urn:btih:0E4DCC7122E049B6660C7C18F0BB9A7354CED6B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +463,8 @@ magnet:?xt=urn:btih:0E4DCC7122E049B6660C7C18F0BB9A7354CED6B1
 ```bash
 magnet:?xt=urn:btih:46D504E2D5B70BB1971B0B7FA425BD2745A5EB20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +490,8 @@ magnet:?xt=urn:btih:46D504E2D5B70BB1971B0B7FA425BD2745A5EB20
 magnet:?xt=urn:btih:CBCE10AF47ED798C50DFAF9F9B366A54D8DAB3A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +516,8 @@ TrackChecker Mobile v2.28.1 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:448DF21798362D4B17EBF622E10D96565B8F446B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ magnet:?xt=urn:btih:448DF21798362D4B17EBF622E10D96565B8F446B
 ```bash
 magnet:?xt=urn:btih:AE4AF735EAEA225287E33D947F905F006AFFDD3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +569,8 @@ magnet:?xt=urn:btih:AE4AF735EAEA225287E33D947F905F006AFFDD3D
 magnet:?xt=urn:btih:DA2940BC9EE9E9C119E8C56E8D905FCDA0D4DC23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +594,8 @@ magnet:?xt=urn:btih:DA2940BC9EE9E9C119E8C56E8D905FCDA0D4DC23
 ```bash
 magnet:?xt=urn:btih:22376614172E41A581246840AB0AA8545BEF3F17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +624,8 @@ Coolio - Greatest Hits (2025) Compilation [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop
 magnet:?xt=urn:btih:507E132B2FEEC7E5BA267B50A835FB58F3F63EB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ magnet:?xt=urn:btih:507E132B2FEEC7E5BA267B50A835FB58F3F63EB5
 ```bash
 magnet:?xt=urn:btih:4EF6C312B6E0E084EF1C219E9DF818058234E63E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +680,8 @@ Karen Cheryl - Etonnamment Romantique Best Of (2025) Remastered [MP3|320 Kbps] <
 magnet:?xt=urn:btih:43F5DDF065CCA1F4933F4FC4F7DD97939405B563
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ Lighting calculations / Расчеты освещения v6.1.0 Mod by Balatan 
 ```bash
 magnet:?xt=urn:btih:88415A277853B23E7A9192F7EC8EF0ED5D489A3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

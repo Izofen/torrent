@@ -19,6 +19,8 @@ Last Kids on Earth and the Staff of Doom (2021) [Multi] (1.0) License Fairlight
 magnet:?xt=urn:btih:499ECEF1F22C313A221D619F429EBB49E5A39BE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Wing of Darkness (2021) [Multi] (1.0) License DOGE
 ```bash
 magnet:?xt=urn:btih:22E39039BF3871DFA75A5B2D36E3FD60BA1B4575
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Ghosts 'n Goblins Resurrection (2021) [Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:5329C372AB62A9970BABFBD2482AF5C9A3F4BB38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Mayhem in Single Valley (2021) [Ru/Multi] (4.0.00) License GOG
 ```bash
 magnet:?xt=urn:btih:822D4B7F89D985BAEE7C53EF66F96EF58BBD9293
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Hocus Pocus (1994) [En] (1.1) License GOG
 magnet:?xt=urn:btih:EE95000C9D7531EEB644D099C3052354D942D33F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Pumpkin Jack — это дикая, но симпатичная 3D-игра, в 
 ```bash
 magnet:?xt=urn:btih:7980CE0580D11F350BE143313F402A136517DCC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ REDEEMER: Enhanced Edition — это жестокая и бескомпроми
 magnet:?xt=urn:btih:205DADD6A29031EA5C006D51D7D610337EC9B8CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Hotline Miami — это взрывной боевик, брызжущий на�
 ```bash
 magnet:?xt=urn:btih:F423F751A7CA4B33FCD6FE723BCA468277572E64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Vigil: The Longest Night — это 2D-платформер с боев�
 magnet:?xt=urn:btih:1CE778EBE8A19533A9A5896E1563717393957800
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ WarriOrb — это экшен-платформер, где ты играешь 
 ```bash
 magnet:?xt=urn:btih:6B2F05F73A09D90D3F5C20AF87E616FC287DAC31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Puyo Puyo Tetris 2 — это новый кроссовер мегапопуля
 magnet:?xt=urn:btih:9BBA3955686F34839BB3A0BD2F592DB757CFA3E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Kosmokrats – это приключенческая игра-головолом
 ```bash
 magnet:?xt=urn:btih:C52C0D6AF9D7D9B37C3CC32D0E82E397BAAFB0E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Cyberia (1994) [En] (1.0) License GOG
 magnet:?xt=urn:btih:11BA82BF5B6D316059B956B41EA0DCA2BB2A134B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Warhammer 40,000: Dakka Squadron (2021) [Ru/En] (153773 PCS) Repack Other s [Fly
 ```bash
 magnet:?xt=urn:btih:E02689B88BEB82DAB4C3A43893ED2943C9F02BFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Blue Fire (2021) [Ru/Multi] (3.0.8) Repack Other s
 magnet:?xt=urn:btih:2367FBDAEEDB873AABA0CBB79A0013D2F35633C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Jump Force (2019) [Ru/Multi] (2.05/dlc) Repack xatab [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:DF7E796444DC78B6916F7DF8C48D9CF1C217E945
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Redout: Space Assault (2021) [Ru/Multi] (1.0.1) Repack xatab [Deluxe Edition]
 magnet:?xt=urn:btih:A85EC1D954267AD32AD20A81FBA3DBCD1F52EB00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ GRIME (2021) [Ru/Multi] (1.11.11/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:D7407466D00B517D1ECFAD1509E0E0B426889D7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Rayman Forever (1999) [En] (1.21) License GOG
 magnet:?xt=urn:btih:2931AD551FBB383A99D3D175C7EB0D6B213482DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Rayman 3 HD (2012) [Multi] (1.0) Repack/Mod HDlab
 ```bash
 magnet:?xt=urn:btih:7B0BC01B0A546B7B75D2DB4813B676177F7D3B1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ RUINER (2017) [Ru/Multi] (1.6c) License GOG
 magnet:?xt=urn:btih:FEA6196FA8B938471A609E6D1BC4C5C2D61996BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Arcade Paradise (2022) [Ru/Multi] (1016/dlc) License GOG [Digital Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:AC1265B7DE5DADF8DC892A56FF20C5102F06DD29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Beatbuddy: Tale of the Guardians – приключенческий экшен �
 magnet:?xt=urn:btih:D40D8DCA2E19AFF5E7D021C97B8EBDED7F10A741
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Power of Ten - экшен-рогалик в открытом космосе, в�
 ```bash
 magnet:?xt=urn:btih:9FC69D72CD73E7E472E2FAECBA8802C885107E44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Temple Of Snek (2023) [Ru/Multi] (1.0) License TENOKE
 magnet:?xt=urn:btih:6A443AF0C0A11BD8EECCAED98B0D7114BF519CE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Yooka-Laylee and the Impossible Lair - это совершенно новый п
 ```bash
 magnet:?xt=urn:btih:83552E84038832E71B2F896C4C887C519B48C5BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

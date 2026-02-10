@@ -22,6 +22,8 @@ Solarstone - . . . - - (2019) [FLAC|Lossless|WEB|tracks] <Trance, Progressive Tr
 magnet:?xt=urn:btih:FACFACB353DDE7DC783D3C45B5D4236BAED6C06C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ John Carpenter, Cody Carpenter, Daniel Davies - Halloween / Хэллоуин (Or
 magnet:?xt=urn:btih:AE720EF135870865045E946B281F6BE7E749532F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ Swinsian демонстрирует простой, но вместе с тем 
 magnet:?xt=urn:btih:863389B60494B38F715051DAFDA077B06A4A7D74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ Screenflick  - Приложение для захвата и записи вид
 ```bash
 magnet:?xt=urn:btih:2B6837CA4BB9F900A69592B23E3DAB85A585D9CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:2B6837CA4BB9F900A69592B23E3DAB85A585D9CE
 magnet:?xt=urn:btih:16D9A40FF05102E36762BB3BBBCE681B0DBA20DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:16D9A40FF05102E36762BB3BBBCE681B0DBA20DC
 magnet:?xt=urn:btih:AC5615FDEDCC5F436DD914D554AEC1A43C4C4E4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:AC5615FDEDCC5F436DD914D554AEC1A43C4C4E4B
 ```bash
 magnet:?xt=urn:btih:A77E3916DD8BD8F27840B1FE3844892A1B3C84D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ eMC (E.M.C.) - The Tonite Show (2015) [FLAC|tracks + .cue] <Hip Hop, Conscious>
 magnet:?xt=urn:btih:8E4AC3F68E153E7B87D36CCF7A05F810F9D214B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ Andreas - Magickal Nights (2011) [MP3|320 кб/с]<New Age>
 ```bash
 magnet:?xt=urn:btih:582700377E6BFDFF8770A0E90D5F15785B6FC57A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ REKI - Безвремя (2015) [FLAC|Lossless|Tracks] <Instrumental, Rock, Metal
 magnet:?xt=urn:btih:70F66A491F701E56620D1EA9E6EC698AAFFB8440
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -281,6 +301,8 @@ Graveshadow - Nocturnal Resurrection (2015) [FLAC|image +.cue]<Symphonic Metal>
 magnet:?xt=urn:btih:275CAF7E8D1F57C450AD9E4F145F63279A5CB653
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ magnet:?xt=urn:btih:275CAF7E8D1F57C450AD9E4F145F63279A5CB653
 ```bash
 magnet:?xt=urn:btih:48471DD026BBD2264BE82CB37E177525878B6025
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -329,6 +353,8 @@ magnet:?xt=urn:btih:48471DD026BBD2264BE82CB37E177525878B6025
 magnet:?xt=urn:btih:73E39A5A5115F945A0D6C277C2FE110D54EB7926
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +379,8 @@ magnet:?xt=urn:btih:73E39A5A5115F945A0D6C277C2FE110D54EB7926
 ```bash
 magnet:?xt=urn:btih:0AF86C88B108C39D92FFF6E1C3A15BEDCB175644
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +409,8 @@ VA - Winterpearls A Lovely Cold Breeze Lounge & Chillout Vol.2 (2014) [MP3|320 �
 magnet:?xt=urn:btih:5170AF4B54CD1076A03174A5D405F0CEB04CCDC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +435,8 @@ magnet:?xt=urn:btih:5170AF4B54CD1076A03174A5D405F0CEB04CCDC8
 magnet:?xt=urn:btih:DF907F1E77EA38E0EF6EF66E87EC04897078CCAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +460,8 @@ magnet:?xt=urn:btih:DF907F1E77EA38E0EF6EF66E87EC04897078CCAD
 ```bash
 magnet:?xt=urn:btih:9085D58EAEED1E3C28C46F67DB2668A5031EEB3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ magnet:?xt=urn:btih:9085D58EAEED1E3C28C46F67DB2668A5031EEB3B
 magnet:?xt=urn:btih:2B461464ACFC648A88BC96523CA273A915ECCC11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +515,8 @@ magnet:?xt=urn:btih:2B461464ACFC648A88BC96523CA273A915ECCC11
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ magnet:?xt=urn:btih:2B461464ACFC648A88BC96523CA273A915ECCC11
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +568,8 @@ magnet:?xt=urn:btih:2B461464ACFC648A88BC96523CA273A915ECCC11
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +593,8 @@ magnet:?xt=urn:btih:2B461464ACFC648A88BC96523CA273A915ECCC11
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +622,8 @@ magnet:?xt=urn:btih:2B461464ACFC648A88BC96523CA273A915ECCC11
 magnet:?xt=urn:btih:AECD84A2317B28DBBA5C1E49150C1078797CBD5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +647,8 @@ magnet:?xt=urn:btih:AECD84A2317B28DBBA5C1E49150C1078797CBD5B
 ```bash
 magnet:?xt=urn:btih:928B53A9FD97504FD2742CA3097D268C4BEA9C2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +674,8 @@ Avira RegistryCleaner 2.0.2.0 DC 21.11.17 [En]
 magnet:?xt=urn:btih:29EF47805910684BF39A6E43652CA9A15FD5D605
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ magnet:?xt=urn:btih:29EF47805910684BF39A6E43652CA9A15FD5D605
 ```bash
 magnet:?xt=urn:btih:679FDF216A83D214D6CE257B0A20D75BE90AB81F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

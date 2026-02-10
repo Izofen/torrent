@@ -19,6 +19,8 @@ AIDA64 - является мощным средством для идентиф�
 magnet:?xt=urn:btih:541BF464419F8CEA7D94170E6F132D650D3F88DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Perimeter / Периметр (2024) [Ru/En] (3.1.3) Scene Tenoke [Legate Edition
 ```bash
 magnet:?xt=urn:btih:FA52B061E0FE97AB8C11FC2A688D233EB5DD6373
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:FA52B061E0FE97AB8C11FC2A688D233EB5DD6373
 magnet:?xt=urn:btih:6F90FEAE4F885073C378B8656BE6C8FA3A9004F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2013) [Ru/Multi] (
 ```bash
 magnet:?xt=urn:btih:9C1D179D0DB4F4A33E959148A419868ABC620521
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:3C67A5E9FC5D5D242C90B064B74BAE927A68A405
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:3C67A5E9FC5D5D242C90B064B74BAE927A68A405
 ```bash
 magnet:?xt=urn:btih:546F971135D137A2B42AE246A127D5B1A99F8832
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:546F971135D137A2B42AE246A127D5B1A99F8832
 magnet:?xt=urn:btih:F5EAB0D9E6338FC4422FA1CC20F29990B412967C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Galacticare - это ваш шанс спасти галактику, заним
 ```bash
 magnet:?xt=urn:btih:7C0E81D2464DD3F60A1CC2D68ED8DEAE9C6B8FE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:7C0E81D2464DD3F60A1CC2D68ED8DEAE9C6B8FE0
 magnet:?xt=urn:btih:43D224101A5AE47D6517D2A1057D8FD08AB780C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ TasteMaker: Restaurant Simulator – симулятор менеджмента �
 ```bash
 magnet:?xt=urn:btih:CE6C1DD1E4E4500329F51437FB32BEAC564C9A2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:CE6C1DD1E4E4500329F51437FB32BEAC564C9A2E
 magnet:?xt=urn:btih:C5AECE6EACF97EACB7C0CDF00AC99466D05E4DFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:C5AECE6EACF97EACB7C0CDF00AC99466D05E4DFC
 ```bash
 magnet:?xt=urn:btih:83B4BD104F2A0BFB6B618DAEC4F0BB86472C3989
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Wondershare UniConverter - простой в использовании виде
 magnet:?xt=urn:btih:042E48C5DCC185D0C366AE8371C03DF3DDD3F92B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:042E48C5DCC185D0C366AE8371C03DF3DDD3F92B
 ```bash
 magnet:?xt=urn:btih:49D755D3FD66D80F5BE3757A3704F5AEB09057B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:49D755D3FD66D80F5BE3757A3704F5AEB09057B8
 magnet:?xt=urn:btih:04430F2A55293D8B010912FECA60418864097556
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:04430F2A55293D8B010912FECA60418864097556
 ```bash
 magnet:?xt=urn:btih:0893269B12426C345E13835EEC543DCB03BA0AB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:0893269B12426C345E13835EEC543DCB03BA0AB4
 magnet:?xt=urn:btih:A6BC5BAF3B92E7574153A049E1E44E16427C3E23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:A6BC5BAF3B92E7574153A049E1E44E16427C3E23
 ```bash
 magnet:?xt=urn:btih:507E4193BFED751605027AFAC9B13398D90EA7D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:507E4193BFED751605027AFAC9B13398D90EA7D0
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:507E4193BFED751605027AFAC9B13398D90EA7D0
 ```bash
 magnet:?xt=urn:btih:AA5C2561B978767EF5BAB81403752D1CE8B69AC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ VA - Music News vol.381 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:1549BD0B5F65903ADC6BFCA2F4A581A80C83CE03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:1549BD0B5F65903ADC6BFCA2F4A581A80C83CE03
 ```bash
 magnet:?xt=urn:btih:1AD8267F490C273591903ED8EA189436ACC87344
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:1AD8267F490C273591903ED8EA189436ACC87344
 magnet:?xt=urn:btih:4753844A4C35B5FE282E4BCA21430E94B70A7405
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:4753844A4C35B5FE282E4BCA21430E94B70A7405
 ```bash
 magnet:?xt=urn:btih:969CB3C0AE303B12774DE05FC04002609263AE91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ EzPing 2.1 Portable [En]
 magnet:?xt=urn:btih:9BC1BDEE8802975F6B1343860ED394CC183C8040
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:9BC1BDEE8802975F6B1343860ED394CC183C8040
 ```bash
 magnet:?xt=urn:btih:C97983F4DB9D5AD675D52337803E324482C37BAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

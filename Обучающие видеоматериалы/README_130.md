@@ -19,6 +19,8 @@ Udemy, Антон Трунович | Основы информационной �
 magnet:?xt=urn:btih:1AFDA7EFB2F840A7AB7A2C8F47D1ED471DB46188
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ WingFox, Pedro Blanco | Sci-Fi Environment Design Concept Art Course (2020) PCRe
 ```bash
 magnet:?xt=urn:btih:88747730CA4D82258A94C3175A7E037A7120C9D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ SRE - это подход к организации IT Operations. Команд�
 magnet:?xt=urn:btih:191F7FBFF258B886D90A5BFEFF412A74535F32C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Udemy, Logus Online | Master English grammar| Grammar rules, practice, tests (20
 magnet:?xt=urn:btih:E28E611B1FED6B6D104F82706A38CA00A9BF98A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ The Gnomon Workshop, Bill Buckley | Creating Game Ready Animations for Productio
 ```bash
 magnet:?xt=urn:btih:5B543DACBF630F895E99CF65AA9AC8CB302118B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ DesignCourse построен таким образом, чтобы предос
 magnet:?xt=urn:btih:3EED2F7AEFBBC6231C9104BE33C27E72B2C76701
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Lynda, Brenda Romero | Game Design Foundations: 1 Ideas, Core Loops, and Goals (
 ```bash
 magnet:?xt=urn:btih:A1274BA7DF3A630E6F64EC0B253B71F1939EA79D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Cyberband Academy | Полное погружение в No-code (2021) WEB-DL [
 magnet:?xt=urn:btih:62E973AF63200C29B053AEFE59534226C9286CB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:62E973AF63200C29B053AEFE59534226C9286CB0
 magnet:?xt=urn:btih:18C2929D964E8AB2CA172E0AF4C214EC089F317A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:18C2929D964E8AB2CA172E0AF4C214EC089F317A
 ```bash
 magnet:?xt=urn:btih:5F14AA91F7D3EDD1142D1A4A0F2EE5B28D48484E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Skillshare, Aniket Rawat | Creating a Kitchen Environment in Unreal Engine 5 (20
 magnet:?xt=urn:btih:048CDE4E59544DB02A92239B639C61CE71349508
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ Gumroad, Daniel Thiger | Tree Bark Creation (2019) PCRec [RU]
 ```bash
 magnet:?xt=urn:btih:D10D1182EB26AB52AD7F887C5BBB09888EFEB951
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ Michael Pavlovich | Substance Painter Quick Start (2015) PCRec [EN, RU]
 magnet:?xt=urn:btih:38A1A7C49983506916C42838163586A9E11F613F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ Skillshare, Neil Bettison | Blender 3 - The Beginners Ultimate Stylized Scene Cl
 ```bash
 magnet:?xt=urn:btih:0506A1B19DD58AA3A5115CE19E95CCD378363FB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ Michael Pavlovich | Substance Designer Quick Start (2015) PCRec [EN, RU]
 magnet:?xt=urn:btih:3550358C45C4648F0A833B336F1A42CB8E4E41C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ Applied Houdini ("Houdini на практике") - это серия видео
 ```bash
 magnet:?xt=urn:btih:8468644231F9FCB2D997BCF6AED4F28DF4BDC9FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ Motiondesign.school, Markus Magnusson | Science of Character Animation (2019) PC
 magnet:?xt=urn:btih:51AD5B37AC9683DF6AA426EFAEA50F634D811D21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ Pluralsight, Dan Cox | Realistic Texturing of Modular Structures in Substance Pa
 ```bash
 magnet:?xt=urn:btih:C814B7D865EE026A561419A69F048CC940154A51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ Gumroad, Henrique Campanha | Painting a Realistic Skin Texture using Mari (2015)
 ```bash
 magnet:?xt=urn:btih:A9F08E3A9AEA19A080B25C661617073C2B282524
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:A9F08E3A9AEA19A080B25C661617073C2B282524
 magnet:?xt=urn:btih:68F4755106111EE3BD80F52072B3C81162310270
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ Alessandro Zamboni | Discover The Secrets To Creating Bestselling Sticker Design
 magnet:?xt=urn:btih:511CF370C5157CACF747B7DA6E90AC0518F2DE5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ Zero To Mastery Academy (ZTM), Aleksa Tamburkovski | Complete Cybersecurity Boot
 magnet:?xt=urn:btih:9551CDA462B5CFBA1F3E62957A5142744F7EF9D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +610,8 @@ FlippedNormals, Chunck Trafagander | UV Mapping for Games (2020) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:05ED44D1C8553F9DF43BB7870E1B5BACED5C2187
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +640,8 @@ magnet:?xt=urn:btih:05ED44D1C8553F9DF43BB7870E1B5BACED5C2187
 magnet:?xt=urn:btih:80A92F10B427744A0C894EDF2562D5E1E01E3BAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +669,8 @@ magnet:?xt=urn:btih:80A92F10B427744A0C894EDF2562D5E1E01E3BAD
 magnet:?xt=urn:btih:434A065120C11603B3BEBEEAF5ECFCCBB7F9634B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ Gumroad, Lance Wilkinson | Keyshot Passes and Photoshop Composite (2017) PCRec [
 ```bash
 magnet:?xt=urn:btih:D2D64674DBB72035BECBED2BECC0BB53E35D2778
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

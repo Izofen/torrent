@@ -1,3 +1,29 @@
+###  Публикация: 803524   (620939) от 09.07.2014
+
+Гуру Вар Авера | Астральное карате, или Биоэнергетическая основа греко-славяно-варяжского панкратиона (2003) [DJVU]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620939.jpg" />
+</div>
+
+
+###  Подробнее
+
+При всем обилии книг по «восточным единоборствам», и «Биоэнергетическом развитии личности», сразу скажу вам, что эта книга не имеет себе равных по данной тематике. Очень много новой, совершенно уникальной информации о санс-энергиях, формирующих основу рукопашного боя. Ну, а главное, что здесь даются не компилятивные выжимки из «древней мудрости», а излагаются личностные знания европейца ХХ века. Это не сухой учебник по нанесению и отражению ударов - это Учебник Жизни. Дарю его своим читателям и будущим ученикам.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5F3BECD8E183DD599DB34EE2CC97A7C685A11C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1229926   (620965) от 09.06.2018
 
 О.В. Косик | «Кто нас разлучит от любви Божией?» Книга о священноисповеднике епископе Афанасии Ковровском : с приложением полного текста службы Всем святым, в земле Русской просиявшим (2017) [PDF,  ...
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:0A6391EEB97C30EC3F1976DF36DA25ED683FA20C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:0A6391EEB97C30EC3F1976DF36DA25ED683FA20C
 magnet:?xt=urn:btih:965F36DB790A567E16E287698443F3DB9FBE7201
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:965F36DB790A567E16E287698443F3DB9FBE7201
 ```bash
 magnet:?xt=urn:btih:5A432F09902339657542CA04084DDDAFEE75C3E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:5A432F09902339657542CA04084DDDAFEE75C3E9
 magnet:?xt=urn:btih:0A8D2AFAD3C73F099D6AED934EEA08EE00BE0CCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:0A8D2AFAD3C73F099D6AED934EEA08EE00BE0CCF
 magnet:?xt=urn:btih:5B006F9C3E6311144F4B11050AE9AE0F93D9795D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +174,8 @@ magnet:?xt=urn:btih:5B006F9C3E6311144F4B11050AE9AE0F93D9795D
 ```bash
 magnet:?xt=urn:btih:590ADA04BF845746BB35D7452A437E7E476A399C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:590ADA04BF845746BB35D7452A437E7E476A399C
 magnet:?xt=urn:btih:7D91D080990C78AFCC86AFA1BE49625E7E707F10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:7D91D080990C78AFCC86AFA1BE49625E7E707F10
 ```bash
 magnet:?xt=urn:btih:848BE8F4292A19B4950F4613891E87757ACC9F04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:848BE8F4292A19B4950F4613891E87757ACC9F04
 magnet:?xt=urn:btih:72D671FD28C4F841D4E91E7163431E241882C7BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:72D671FD28C4F841D4E91E7163431E241882C7BC
 ```bash
 magnet:?xt=urn:btih:2A1E085C1CE5349157A73E59C29DFD7D5702B9A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:2A1E085C1CE5349157A73E59C29DFD7D5702B9A2
 magnet:?xt=urn:btih:1ACF4D630072C6BE8EC55F4FA85EEF00BFA4A860
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:1ACF4D630072C6BE8EC55F4FA85EEF00BFA4A860
 ```bash
 magnet:?xt=urn:btih:3EC5F6B018D7B6CFF3266A355E78D85159E42B9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:3EC5F6B018D7B6CFF3266A355E78D85159E42B9B
 magnet:?xt=urn:btih:B741D11EE7F68E2CCBAC052D69CE1D4E3C0C8413
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:B741D11EE7F68E2CCBAC052D69CE1D4E3C0C8413
 magnet:?xt=urn:btih:B078499DA57ACDF8153A3F1DC22A428F9B5636D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:B078499DA57ACDF8153A3F1DC22A428F9B5636D7
 ```bash
 magnet:?xt=urn:btih:62BF7646F319A18A78D8CCE45A5830DB9E2B343C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:62BF7646F319A18A78D8CCE45A5830DB9E2B343C
 magnet:?xt=urn:btih:529F6EE14FDBCF402A47361BE75FD91A66DE8950
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:529F6EE14FDBCF402A47361BE75FD91A66DE8950
 ```bash
 magnet:?xt=urn:btih:D25D392C1083AD8CF4771B2B05FAA2F9BC015986
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:D25D392C1083AD8CF4771B2B05FAA2F9BC015986
 magnet:?xt=urn:btih:7024AE57DE656015228FFA8F3A4188F5FD022AD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:7024AE57DE656015228FFA8F3A4188F5FD022AD0
 ```bash
 magnet:?xt=urn:btih:9157A5093C62D4FE875A2A50DB07A2B38664D293
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:9157A5093C62D4FE875A2A50DB07A2B38664D293
 magnet:?xt=urn:btih:2094AE7BE6ADF77D6268A2BDB770CE47C0E86418
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:2094AE7BE6ADF77D6268A2BDB770CE47C0E86418
 ```bash
 magnet:?xt=urn:btih:239379C519693FD8E45EA728FE7C9543081ABCCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:239379C519693FD8E45EA728FE7C9543081ABCCC
 magnet:?xt=urn:btih:2D87EC4080ECEBC721A95031D815034588DEABC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +620,8 @@ magnet:?xt=urn:btih:2D87EC4080ECEBC721A95031D815034588DEABC9
 ```bash
 magnet:?xt=urn:btih:B22C380FF0CECD00923776DCE713288FA5554807
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:B22C380FF0CECD00923776DCE713288FA5554807
 magnet:?xt=urn:btih:D70460A508D47199A48309B399479FA769262E66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,30 +673,7 @@ magnet:?xt=urn:btih:D70460A508D47199A48309B399479FA769262E66
 magnet:?xt=urn:btih:202A2F492AE188241F7E68F66249B9D123EA924B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910037   (623418) от 19.06.2015
-
-Станислав Махов | Штурмовой бой ГРОМ. Психологическая подготовка (2014) [FB2, EPUB]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623418.jpg" />
-</div>
-
-
-###  Подробнее
-
-Психологическому оружию в наше время придается огромное значение. Владение этим оружием значительно повышает боеспособность и зачастую является решающим фактором в достижении победы.
-Работа над собой требует определенного творчества. Это обусловлено тем, что необходимо учитывать свои индивидуальные способности. Психологическая подготовка рассмотрена на примере рукопашного (   Читать дальше...   )Жанр: Самосовершенствование, Спорт, фитнесФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F5A4CB4BEF51E688A82152AC2184F5D91F2781B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

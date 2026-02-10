@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:59586BDDF4375A40CC68EB9EBEC387BFB7A325FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:59586BDDF4375A40CC68EB9EBEC387BFB7A325FB
 ```bash
 magnet:?xt=urn:btih:85C36DBDAE649BDAD14FF2CBAC0A8661C966D56E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:85C36DBDAE649BDAD14FF2CBAC0A8661C966D56E
 magnet:?xt=urn:btih:A702DEE388986C0E281529FEC7C84C621EDD853C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:A702DEE388986C0E281529FEC7C84C621EDD853C
 ```bash
 magnet:?xt=urn:btih:85EF1B4413904EADFFE44DC8737CF860CB2003D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Crime - Master Of Illusion (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:7632114228FB734EE52C1E5ACF925CD2B4ECD628
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:7632114228FB734EE52C1E5ACF925CD2B4ECD628
 ```bash
 magnet:?xt=urn:btih:5AE9073A23F218CA9F1FE9E0B85C341B0D58C8B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:5AE9073A23F218CA9F1FE9E0B85C341B0D58C8B0
 magnet:?xt=urn:btih:DECEB05EFAD1D3AC0AAC86D560AFC669C95B1F64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:DECEB05EFAD1D3AC0AAC86D560AFC669C95B1F64
 ```bash
 magnet:?xt=urn:btih:54AE63968FC6BE10C906DD8442CDA9B3FA5130D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:54AE63968FC6BE10C906DD8442CDA9B3FA5130D3
 magnet:?xt=urn:btih:69AE935575FC7F29D098B3D8099A9E0B6FDD2D2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:69AE935575FC7F29D098B3D8099A9E0B6FDD2D2E
 ```bash
 magnet:?xt=urn:btih:CD7B3AF2FCD0A4B2DC0674B929BF3146F3745CC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ Kenny Barron, Dave Holland, Johnathan Blake - Without Deception (2020) Dare2 Rec
 magnet:?xt=urn:btih:38801DFBD0D08710B2D054607C4D570DB26F9CF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:38801DFBD0D08710B2D054607C4D570DB26F9CF7
 magnet:?xt=urn:btih:C13F8F4E6A5E6E435880E0B8F8C34BA1770D5E80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:C13F8F4E6A5E6E435880E0B8F8C34BA1770D5E80
 ```bash
 magnet:?xt=urn:btih:B727D734B20552905C0E89C0A65751BD1B6C68E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ WarKings - Morgana (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 magnet:?xt=urn:btih:402173C29969540ABA726B3DC004D3AD2D5213C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ Ethan Iverson Quartet With Tom Harrell - Common Practice (2017) 2019, ECM Record
 magnet:?xt=urn:btih:35E4A5DB89F89310640C35F7F21EC989ADACAA96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:35E4A5DB89F89310640C35F7F21EC989ADACAA96
 magnet:?xt=urn:btih:C72179F74DBC840CD11354FCD043748BF0C1D139
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:C72179F74DBC840CD11354FCD043748BF0C1D139
 ```bash
 magnet:?xt=urn:btih:D6DC2074E6CE302EB99F7CE6A9C8E7249632D2BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ Xentrix - Seven Words (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 magnet:?xt=urn:btih:264F2B2103FCE7C6A68A201204032BB1DAFB6BF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ Incursion - Blinding Force (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:B30B57FCE0F9F81B7FE30C4BC75A1EDA57415AC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ magnet:?xt=urn:btih:B30B57FCE0F9F81B7FE30C4BC75A1EDA57415AC9
 magnet:?xt=urn:btih:96CF2553214122D948AD55E1A002EB7D0894AF7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ magnet:?xt=urn:btih:96CF2553214122D948AD55E1A002EB7D0894AF7A
 ```bash
 magnet:?xt=urn:btih:FC5B21B1369E791E189B661D323B356B8AC93991
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +590,8 @@ MMXX - Sacred Cargo (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Gothic Ric
 magnet:?xt=urn:btih:163992CCA1704A2D2CD0DB0AD87DBBB768DB7CFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ magnet:?xt=urn:btih:163992CCA1704A2D2CD0DB0AD87DBBB768DB7CFB
 ```bash
 magnet:?xt=urn:btih:4C7995E60CA8FEBB66F8C6C7ADDF4D423AB3AE60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +645,8 @@ NG: 11 сентября - хроника террора / Inside 9/11 (2007) TVR
 magnet:?xt=urn:btih:5D9B9DF21431BF836B21309D8D43885E940E79FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +674,8 @@ Oak - The Quiet Rebellion Of Compromise (2022) [FLAC|Lossless|WEB-DL|tracks] <Pr
 magnet:?xt=urn:btih:E8D32B54C301BB69BE003A4B3C799F9236503874
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ Stratovarius - Will The Sun Rise? (1996) Single, Remastered, T&T [OGG Vorbis|480
 ```bash
 magnet:?xt=urn:btih:12702F1B0EA5CDD53257A102F90B42B12DBD3E7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

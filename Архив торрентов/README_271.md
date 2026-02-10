@@ -19,6 +19,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:C25DB63128F8B48A910A291045930784F95A82C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ UltraSearch Professional находит файлы и папки на локал
 ```bash
 magnet:?xt=urn:btih:24F6935A06EA42BB99F6AF50E12E00377BD4C436
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Wondershare UniConverter - простой в использовании виде
 magnet:?xt=urn:btih:8FAD336EF175D60F6B4A3E0D122DBB0941AB52F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:2147B1F541DE6B807B8A7E75F4F88B3DEEA635F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Icecream Screen Recorder – простая программа для запис
 ```bash
 magnet:?xt=urn:btih:274B146D7419AF447AAA9BC10FAB40817DBFF7BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Balabolka 2.15.0.869 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:3843C699CC212FBD0ED0D4500C8B7A216DABF0DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ WinToUSB - позволяет устанавливать и запускать �
 ```bash
 magnet:?xt=urn:btih:E2970D06225FBB6BA98AF39D0107C3AFBBBD7736
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ HopToDesk - это бесплатный инструмент для удален
 magnet:?xt=urn:btih:E151342E2C56159305119748FFC65F5B46CCD3E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 ```bash
 magnet:?xt=urn:btih:5A007158F0D4021289B812E69C9868C28AAF2984
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ EF Commander  — замечательный двухпанельный файл
 magnet:?xt=urn:btih:A9098E01279EEBE4998AD8239D2145B037CE125C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 ```bash
 magnet:?xt=urn:btih:45A1EBA6123CE0F2D54A4DE088A74F6F3F1D875C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ WinToUSB — лучший Windows To Go (WTG) Creator, который позво
 magnet:?xt=urn:btih:B114FE7D953CC392CB1776441E6BD69DBDD6B55C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Media Player Classic Home Cinema – удобный во всех планах �
 ```bash
 magnet:?xt=urn:btih:B69E49FF2A4A21196AB67B242E92EE2FBF8A9CCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Rosetta Stone: Изучение языков v8.24.1 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:18937D3FB3948193B2D892E6CDE5F555A23013EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:74051B07E940670EEF5D43E7F9EE3CE1B587DFC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Duplicate Cleaner выполнит глубокое сканирование в�
 magnet:?xt=urn:btih:EFEDF92B1E5BC0518C4A6FF99CEE8353B0E98E10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Adguard – интернет-фильтр для защиты пользоват
 magnet:?xt=urn:btih:7B48D139E7A58F36FF3BBBF03B7D962633957F83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ BananaVisualLibraries - программный продукт от BananaBrain, 
 ```bash
 magnet:?xt=urn:btih:1D226BFB74A6DD630AC85B6FE5278FCCE6226E96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Soft Organizer - утилита для полного удаления нену�
 magnet:?xt=urn:btih:77146DB50572B45ED77B8088D2B288B7F05E4DAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ TikTok - социальное приложение для тех кто пред
 magnet:?xt=urn:btih:011C953E9404101CEA7E6B87D04940DD54AB6586
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ Double Commander - это свободный, с открытым исходны
 ```bash
 magnet:?xt=urn:btih:E869BFF17A222CE0BE2090194845FB15E3DAE9EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:9B23920DB95FFD4B1BC0DCD7BBDD57D7CB15EC97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:5BD988C2BB1071C8C82FA01CE48FF5F29684AAB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:A010DAE43E0A13F4AADF95CE95CD9DCEC97A9CA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Glary Utilities - функциональный набор системных т�
 magnet:?xt=urn:btih:1CBA55F3281A3EB411B39BFCD5B1A47C75B7EE06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ XYplorer – удобный многовкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:652F134E8FF3614AF979919EAF6C35BCF956EE65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

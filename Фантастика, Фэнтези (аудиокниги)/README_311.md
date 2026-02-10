@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:AA7C321D8AEE774E8E804CDB54865B679BB7A89A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:AA7C321D8AEE774E8E804CDB54865B679BB7A89A
 ```bash
 magnet:?xt=urn:btih:4B22CEDA22E95F7B0BE2D09DEDAAFDAC079218BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:4B22CEDA22E95F7B0BE2D09DEDAAFDAC079218BD
 magnet:?xt=urn:btih:19371AE5F09803914BD8B2C2DA24326D90B4E3F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:19371AE5F09803914BD8B2C2DA24326D90B4E3F2
 ```bash
 magnet:?xt=urn:btih:CA622322B27561BB62848021672AF1E8FE9639B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:CA622322B27561BB62848021672AF1E8FE9639B5
 ```bash
 magnet:?xt=urn:btih:D54AE74F1F35359C5A554A65A861426F41A06C2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:D54AE74F1F35359C5A554A65A861426F41A06C2E
 magnet:?xt=urn:btih:EB2FC5460BDD498599A25ED0B7C2500FA6440C76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:EB2FC5460BDD498599A25ED0B7C2500FA6440C76
 magnet:?xt=urn:btih:C3F67E9AF074A75D40A8EA99B5F742CE2F766F44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:C3F67E9AF074A75D40A8EA99B5F742CE2F766F44
 ```bash
 magnet:?xt=urn:btih:F690D9D79211999745B84649CD03A48F4ED745B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:F690D9D79211999745B84649CD03A48F4ED745B7
 ```bash
 magnet:?xt=urn:btih:DD8FBA8DF24E03B020F5F841B4941DA0B9DC5542
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:DD8FBA8DF24E03B020F5F841B4941DA0B9DC5542
 magnet:?xt=urn:btih:3D428FF9F583DC1971114D5F24FBA87382E28CA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:3D428FF9F583DC1971114D5F24FBA87382E28CA8
 ```bash
 magnet:?xt=urn:btih:8F83B67A6497A581C37A4CC8FCBDA31110ECE4ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:8F83B67A6497A581C37A4CC8FCBDA31110ECE4ED
 magnet:?xt=urn:btih:E17EB5B39B19F1480E4544DDB311E97B7E86C81D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:E17EB5B39B19F1480E4544DDB311E97B7E86C81D
 ```bash
 magnet:?xt=urn:btih:9780DB6C924F512E2C1FAA81253A679436FADCED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:9780DB6C924F512E2C1FAA81253A679436FADCED
 magnet:?xt=urn:btih:88953963AC689114709E2AE5CD18D5B6C68A81ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:88953963AC689114709E2AE5CD18D5B6C68A81ED
 ```bash
 magnet:?xt=urn:btih:33289C9294A7BA1379FE4C91D1687877E1ED2A94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:33289C9294A7BA1379FE4C91D1687877E1ED2A94
 magnet:?xt=urn:btih:BB89C27CF20B9012401D5F47F04801C8E3071625
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:BB89C27CF20B9012401D5F47F04801C8E3071625
 ```bash
 magnet:?xt=urn:btih:0103120FAE6FBB7524FD456DB30EECF2B71EB701
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,34 @@ magnet:?xt=urn:btih:0103120FAE6FBB7524FD456DB30EECF2B71EB701
 magnet:?xt=urn:btih:405B55FDD2CE7AB18FAB0C856B371E4A25C5864F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 155967   (344985) от 01.12.2009
+
+Алексей Калугин | Осколки реальности [2009] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_344985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лейтенант Джагг Апстрак, под именем которого действует агент космической службы спасения Андрей Макеев, получает новое рискованное задание на планете Дошт. Цель Апстрака – вытащить блокированную катастрофой исследовательскую группу из Гиблого Болота. Однако с первых же шагов его отряд сталкивается с ловушками относительного времени, искореженным пространством и жуткими (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 14:37:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:405B55FDD2CE7AB18FAB0C856B371E4A25C5864F
 ```bash
 magnet:?xt=urn:btih:01AB7C5FC586D6704C3E0055C251A8CDEE051BAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:01AB7C5FC586D6704C3E0055C251A8CDEE051BAB
 magnet:?xt=urn:btih:3884806918BC9C0C55C9EC8B792FBC0C98D725A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:3884806918BC9C0C55C9EC8B792FBC0C98D725A6
 ```bash
 magnet:?xt=urn:btih:AE98388C3538E8B161149CF6C0840DC46BF03A91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:AE98388C3538E8B161149CF6C0840DC46BF03A91
 magnet:?xt=urn:btih:4C31CB65F7C7A2986BD9F3D3AEB2EA46CE908DC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:4C31CB65F7C7A2986BD9F3D3AEB2EA46CE908DC5
 magnet:?xt=urn:btih:E04B6D4383651FEA369D92C1B3B2255D47489A40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:E04B6D4383651FEA369D92C1B3B2255D47489A40
 ```bash
 magnet:?xt=urn:btih:E22B63DB4ACB548C57BF854122FA7901D106D230
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,31 +679,7 @@ magnet:?xt=urn:btih:E22B63DB4ACB548C57BF854122FA7901D106D230
 magnet:?xt=urn:btih:F8748A422169AF019B163AEC7295AE9536B21640
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330028   (345446) от 08.10.2019
-
-Стивен Кинг | Оно (Книга 1). Тень прошлого (2019) [MP3, Игорь Князев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из самых масштабных романов Стивена Кинга, вошел в десятку лучших произведений автора, а также попал в списки «100 самых великих книг столетия»
-
-В маленьком провинциальном городке Дерри много лет назад семерым подросткам пришлось столкнуться с кромешным ужасом – живым воплощением ада. Прошли годы… Подростки повзрослели, и ничто, казалось, не предвещало новой (   Читать дальше...   )Жанр: Мистика, УжасыПродолжительность: 23:09:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F283E35C896A298A87B4E149CFAE44BF439DC5E9
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ kobezzza.channel, Андрей Кобец | «Computer Science во Frontend». 
 magnet:?xt=urn:btih:BC02E0F7E4D49699FEC2D5BB58D72A5CD67EB6A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:BC02E0F7E4D49699FEC2D5BB58D72A5CD67EB6A6
 ```bash
 magnet:?xt=urn:btih:B1D753135ADA21C805647BB60F387C6B4AE997F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:B1D753135ADA21C805647BB60F387C6B4AE997F9
 magnet:?xt=urn:btih:DB6844575CB243D23D7DD68A0CDC7D129D58CE08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:DB6844575CB243D23D7DD68A0CDC7D129D58CE08
 ```bash
 magnet:?xt=urn:btih:53EA77B23237D4EF5E0B8CA5D8DED1C6753FF279
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:53EA77B23237D4EF5E0B8CA5D8DED1C6753FF279
 magnet:?xt=urn:btih:7822F9942F0CFFE0A54FA52911BC7AC77B6D01F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:7822F9942F0CFFE0A54FA52911BC7AC77B6D01F1
 ```bash
 magnet:?xt=urn:btih:D59D9E9140CFC698C7C85AF1465E14269C51A10E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Suzi Quatro - Uncovered (2022) [DSD 128|tracks|Vinyl-Rip] <Glam-Rock>
 magnet:?xt=urn:btih:C5930AF51E77D9D26876F9B89210A5F9B1D8B82B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:C5930AF51E77D9D26876F9B89210A5F9B1D8B82B
 ```bash
 magnet:?xt=urn:btih:83B127DB90438CC56062C443B979E8C4C5D23CD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ Murder House – сюжетный сурвайвл-хоррор, в которо
 magnet:?xt=urn:btih:72050145D856B6AF481866EAF9E1689F776A1736
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Empires of the Undergrowth – это уникальная по своей ме�
 ```bash
 magnet:?xt=urn:btih:7C97DE030FD71DB5E1BC4B26A2DC21DA90E6E65B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:7C97DE030FD71DB5E1BC4B26A2DC21DA90E6E65B
 magnet:?xt=urn:btih:A71D559B56B9B66FE717B9F8431AE3F884151683
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:A71D559B56B9B66FE717B9F8431AE3F884151683
 ```bash
 magnet:?xt=urn:btih:714DB43AB75A5EDC964BDFCDD4A9FBA373E5F746
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:714DB43AB75A5EDC964BDFCDD4A9FBA373E5F746
 magnet:?xt=urn:btih:7E15C839A12E4836A8F22D649B4997EB119B4DAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:7E15C839A12E4836A8F22D649B4997EB119B4DAE
 magnet:?xt=urn:btih:3AE96CBA1B4982751EB19451048584ED0ED407B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:3AE96CBA1B4982751EB19451048584ED0ED407B2
 ```bash
 magnet:?xt=urn:btih:753A83D9BB5B5D885F789A99E88F0B2971240302
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:753A83D9BB5B5D885F789A99E88F0B2971240302
 magnet:?xt=urn:btih:DF81740BCF5787DBC0DFC707B00ABAB497161A33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Tipard Video Converter Ultimate - профессиональная програ�
 ```bash
 magnet:?xt=urn:btih:111ADE64664064F46558DDEB2F50BAB0B246E558
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:111ADE64664064F46558DDEB2F50BAB0B246E558
 magnet:?xt=urn:btih:8A410CF0D7D30069EBFEFB891C91D5173896221F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:8A410CF0D7D30069EBFEFB891C91D5173896221F
 ```bash
 magnet:?xt=urn:btih:94A721038A422D4FA5B817150912F587E0342624
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:94A721038A422D4FA5B817150912F587E0342624
 magnet:?xt=urn:btih:FEEC6AD81BF4F881E6AF5D68E817ACB0C3B28C7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:FEEC6AD81BF4F881E6AF5D68E817ACB0C3B28C7A
 ```bash
 magnet:?xt=urn:btih:89A2DC057146F11BBA1E84E95D7E54B5034D5CCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:89A2DC057146F11BBA1E84E95D7E54B5034D5CCC
 magnet:?xt=urn:btih:4335C925B81AB69B43577FFB88BE31D3528E9C65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:4335C925B81AB69B43577FFB88BE31D3528E9C65
 magnet:?xt=urn:btih:D5669A42A360F4F102A510D643903884C666FBF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:D5669A42A360F4F102A510D643903884C666FBF8
 ```bash
 magnet:?xt=urn:btih:B7019F2F09D1CB5C6196DFE08317BD29CAD55C81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:B7019F2F09D1CB5C6196DFE08317BD29CAD55C81
 magnet:?xt=urn:btih:0DDADE40FF0525EEB5A94D588FBE994976C7744A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:ABA50EF002179280A25937B212D821A7EA5BE8B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

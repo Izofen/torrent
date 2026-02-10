@@ -20,6 +20,8 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 magnet:?xt=urn:btih:7AEF65F838CB109B89EBDED20233059231D61BFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:7AEF65F838CB109B89EBDED20233059231D61BFD
 ```bash
 magnet:?xt=urn:btih:7BC21A0B0A00385888111DFB68F2BD51B2674AF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ VA - Café Deluxe Chillout - Nu Jazz / Lounge, Vol. 7 (2021) [AAC|~294 Kbps] <Ea
 magnet:?xt=urn:btih:274AC542A9821133731A009D5300B6A0E2DB7288
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ Vision Denied - Age Of The Machine (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 magnet:?xt=urn:btih:62CAE5EB399B6DDCB9BFE1BA4750422661A45E48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ AudioSwitcher - небольшая утилита, которая находит
 ```bash
 magnet:?xt=urn:btih:F063C57AA7DE54B7485ED6DD9580479B074C2CBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:F063C57AA7DE54B7485ED6DD9580479B074C2CBC
 magnet:?xt=urn:btih:5970381FF869EED1E5C45525193613019922516A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:5970381FF869EED1E5C45525193613019922516A
 ```bash
 magnet:?xt=urn:btih:8A8602E0EF5CA16A4DD001B4129AD07187961B28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ Chucho Valdes - Tumi Sessions (2007) Tumi Music [FLAC|Lossless|tracks + .cue] <A
 magnet:?xt=urn:btih:1CF26C7F59D660396FC67EFF4BF69DA92D87031D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:1CF26C7F59D660396FC67EFF4BF69DA92D87031D
 ```bash
 magnet:?xt=urn:btih:B52A1A4DDF592DDC8D2CD9AD05E6B73AE4122618
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:B52A1A4DDF592DDC8D2CD9AD05E6B73AE4122618
 magnet:?xt=urn:btih:426B385EE77E23C692B0C288A20C2D9047DCF419
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:426B385EE77E23C692B0C288A20C2D9047DCF419
 ```bash
 magnet:?xt=urn:btih:44540726129D356BA95C388F8A1EE29D982E1523
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ Multitouch 1.24.1 [En]
 magnet:?xt=urn:btih:ACE8A85E1187E16BE0F527D391B9612027617A5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:ACE8A85E1187E16BE0F527D391B9612027617A5D
 ```bash
 magnet:?xt=urn:btih:059D9F542D8BC0FB4B94C8DDDEB8E569B0641999
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ Core Fire - Consumed (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Heavy Metal>
 magnet:?xt=urn:btih:061329BFE922D0D9EB35B73C3786D882093C6853
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ Tequilajazzz - Камни (2021) [AAC|~331 Kbps] <Alternative, Rock>
 magnet:?xt=urn:btih:23BE160FA5758BB7EC4024F9679AD520D641BA83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:23BE160FA5758BB7EC4024F9679AD520D641BA83
 ```bash
 magnet:?xt=urn:btih:D61A7807D720CEC2FEA93C126E229DAEB4922D59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +454,8 @@ Ethan Philion - Meditations On Mingus (2022) Sunnyside [FLAC|Lossless|tracks + .
 magnet:?xt=urn:btih:675A70697D7E8EFDAD7AF67596A26BDEC1D8AF06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ Icecream Video Converter 1.26 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5DF7C799CF25213F8F82974CC63BC7FFC46B9279
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +509,8 @@ Red Nichols - 1925 - 1927 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 magnet:?xt=urn:btih:3459BDDEA2B672D83B5047DAAE4FD5A7CC990F32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +537,8 @@ Void King - 3 Albums (2016-2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal>
 ```bash
 magnet:?xt=urn:btih:18081FE0B179F088EC9BA0E93015805071B2CB92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +567,8 @@ Shaka Ponk - Shaka Ponk (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, 
 magnet:?xt=urn:btih:AEC29AFEC6C8905C7C79F58F62F6041F43012DD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +595,8 @@ Aramis - Crimson (2023) [MP3|320 Kbps] <Death, Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:DCEA7083EB65C467B48CB8E9748EE39013B63324
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +625,8 @@ VA - Urban House Grooves, Vol. 1 (2021) [AAC|~323 Kbps] <House, Progressive Hous
 magnet:?xt=urn:btih:0D5D56466E8633193D009585B6C3C00F3D4AF4BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +654,8 @@ Rhythm Therapy Band - Music Room Sessions, Vol. 2 (2023) [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:B1F6BF1DA2939DFEFA8927F46C45DE15E14A74C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +679,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:B723945B50B8166C284F8AB89D530EC0FF098AD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -657,6 +707,8 @@ magnet:?xt=urn:btih:B723945B50B8166C284F8AB89D530EC0FF098AD4
 ```bash
 magnet:?xt=urn:btih:00D748A375A4D23B9536D0A0F02361A4C77A5E51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

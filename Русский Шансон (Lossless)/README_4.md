@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:82021747CFCFCE81E103917D1585740465291511
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:82021747CFCFCE81E103917D1585740465291511
 ```bash
 magnet:?xt=urn:btih:98E8AA800279934E0F763C37BA55A36ECEC842A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:98E8AA800279934E0F763C37BA55A36ECEC842A1
 magnet:?xt=urn:btih:7384C5C156B8FEE2D249347BABB71756513C0E6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:7384C5C156B8FEE2D249347BABB71756513C0E6C
 ```bash
 magnet:?xt=urn:btih:026E320EE7970A07631864A1439DE6CC3F9E8928
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Самые новые песни о любви 9 (2025) [FLAC|Lossless|WEB-
 magnet:?xt=urn:btih:30246A99A3C3BBAB9969E3B5C9C8BC0DCEBD3463
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Курортный шансон 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:647D1FB5FC6D6FD081B0B99EE6B7C1117C75188C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Новые хитовые песни 2025, Часть 6 (2025) [FLAC|Lossle
 magnet:?xt=urn:btih:EDF7F903F9819B00DD7355BC3413F43730FD7C3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Шансон премьера 2025 июнь (Новые песни. Нов�
 ```bash
 magnet:?xt=urn:btih:E138B07E5DBDF3ABB39DBB3E5F63E047F6A761D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ magnet:?xt=urn:btih:E138B07E5DBDF3ABB39DBB3E5F63E047F6A761D6
 magnet:?xt=urn:btih:43B1F819ED0006C3A59B8B4A77CF07FA0645BC3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Навстречу любви (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Ch
 ```bash
 magnet:?xt=urn:btih:30EB179BEE037E4FC691B01BF9AAEE2D5D0C4DA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ magnet:?xt=urn:btih:30EB179BEE037E4FC691B01BF9AAEE2D5D0C4DA1
 magnet:?xt=urn:btih:42A7D0E798C29B643B4BF208C6B8935E2FE5D3E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Душевный шансон (2025) [FLAC|Lossless|WEB-DL|tracks] <Шан�
 ```bash
 magnet:?xt=urn:btih:9BA8B497224EB9B51C91AC0B98342821BF5E4E87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Русская 30-ка хитов 14 (Новые русские песни)
 magnet:?xt=urn:btih:0BF298E798B0969DE87D9020B4A21F8CBDDE660B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +399,8 @@ VA - Новые хитовые песни 2025, Часть 5 (2025) [FLAC|Lossle
 magnet:?xt=urn:btih:61079DE32517EAA80A41C511263FB28C18D6D844
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +426,8 @@ magnet:?xt=urn:btih:61079DE32517EAA80A41C511263FB28C18D6D844
 ```bash
 magnet:?xt=urn:btih:DA5F54846D92A7577282142D0E7EAA3A6BA48F0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +456,8 @@ VA - Шансон премьера 2025 апрель (Новые песни. Н�
 magnet:?xt=urn:btih:1D9126D64A6298089E05AE0BE2C20A050974113B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +484,8 @@ VA - Новые хитовые песни 2025, Часть 4 (2025) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:5D1CDCEEE54FCD586F98AE4551B09138264F4622
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +514,8 @@ VA - Плакала весна (Красивые весенние песни) (2
 magnet:?xt=urn:btih:069D425906C11C1B191FFCCE9EE43B1C9BCFCF00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +542,8 @@ VA - Авторский сборник Шансона otKOSTETa (2025) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:4DDE5AF0B46A2BD404729090387F1F876C6E7C75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +572,8 @@ VA - Русский шансон (2025) [FLAC|Lossless|WEB-DL|tracks] <Шанс�
 magnet:?xt=urn:btih:36EC9D7A66C333DD720BFC9FE06598561CB7125F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +600,8 @@ VA - Шансон о любви (2025) [FLAC|Lossless|WEB-DL|tracks] <Шансо
 ```bash
 magnet:?xt=urn:btih:E014A44CC8E123E0B34BA21D3283143D2DD12FE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +630,8 @@ VA - Шансон для мужчин (2025) [FLAC|Lossless|WEB-DL|tracks] <Ша
 magnet:?xt=urn:btih:2EE2DDA1D6C30BD74DACD24A3FCE56F3077609B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +658,8 @@ VA - Самые новые песни 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:C2697273EB584C4C5361DC6C99A80C9FF059330A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +688,8 @@ VA - Шансон премьера 2025 февраль (Новые песни. �
 magnet:?xt=urn:btih:BD888900000E9FCEB9392D7EE0C376D4129970E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +717,8 @@ magnet:?xt=urn:btih:BD888900000E9FCEB9392D7EE0C376D4129970E5
 magnet:?xt=urn:btih:C1462D60A7250969728DC70EF93D5CC7D9B3302D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +745,8 @@ magnet:?xt=urn:btih:C1462D60A7250969728DC70EF93D5CC7D9B3302D
 ```bash
 magnet:?xt=urn:btih:ABF2B83C52D1FF3FE6CB66A334CF392929DB25DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

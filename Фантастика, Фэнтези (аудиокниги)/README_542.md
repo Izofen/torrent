@@ -1,3 +1,29 @@
+###  Публикация: 1452782   (1027545) от 07.03.2021
+
+Джо Холдеман | Вечные узы (2021) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027545.jpg" />
+</div>
+
+
+###  Подробнее
+
+2054-й год. Главного героя призывают в армию, в особое воинское подразделение «механиков» — людей, управляющих на расстоянии искусственными роботами-аватарами. Для того, чтобы стать «механиком», необходимо выдержать имплантацию в мозг особого чипа, благодаря которому каждый из 10-ти механиков группы ощущает своих напарников, как самого себя. Но каково это — общаться (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 01:14:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:273728F7434307E4F90D92FB2C6834B63D7D0874
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452438   (1027672) от 06.03.2021
 
 Владимир Шорохов | Проект «Лекси» (2021) [MP3]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:5203A0D1FBD28311CBFF265BD9418CD2C9928884
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:5203A0D1FBD28311CBFF265BD9418CD2C9928884
 magnet:?xt=urn:btih:B0602C304FA8248AD436395C7C1C8AE7304CEC48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:B0602C304FA8248AD436395C7C1C8AE7304CEC48
 ```bash
 magnet:?xt=urn:btih:B4D011CAF3D28D13E34D881A13B92EB2D51D0A1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:B4D011CAF3D28D13E34D881A13B92EB2D51D0A1D
 magnet:?xt=urn:btih:69F02097D1ABE94065286704527A9D2D8EAAC63F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:69F02097D1ABE94065286704527A9D2D8EAAC63F
 ```bash
 magnet:?xt=urn:btih:806AA57750970257AD49CC732922166A61FEA876
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:806AA57750970257AD49CC732922166A61FEA876
 magnet:?xt=urn:btih:6AF208EA0F050FC05A8849178D927318968BAB14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:6AF208EA0F050FC05A8849178D927318968BAB14
 ```bash
 magnet:?xt=urn:btih:45693FA5CA96E2647FF598353FE6DF13076D1DFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:45693FA5CA96E2647FF598353FE6DF13076D1DFF
 magnet:?xt=urn:btih:7D6409C5CB11FCBAEE3C8C32BA50959B62387A33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +259,8 @@ magnet:?xt=urn:btih:7D6409C5CB11FCBAEE3C8C32BA50959B62387A33
 magnet:?xt=urn:btih:544DDA9BF438923C0973474B25A7F5CE7979F019
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:544DDA9BF438923C0973474B25A7F5CE7979F019
 ```bash
 magnet:?xt=urn:btih:BAD5EB3482E7B9A4614582D9F3410CD178707843
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +313,8 @@ magnet:?xt=urn:btih:BAD5EB3482E7B9A4614582D9F3410CD178707843
 magnet:?xt=urn:btih:F9CDE60F50DBC22274F1375DA33EFC5ACB1F601D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +341,8 @@ magnet:?xt=urn:btih:F9CDE60F50DBC22274F1375DA33EFC5ACB1F601D
 magnet:?xt=urn:btih:9216E2727ED5E4EED434950A205B53963633170F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +368,8 @@ magnet:?xt=urn:btih:9216E2727ED5E4EED434950A205B53963633170F
 magnet:?xt=urn:btih:AA108299B6A00D73036F517A1055772D0E7B7C64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +394,8 @@ magnet:?xt=urn:btih:AA108299B6A00D73036F517A1055772D0E7B7C64
 magnet:?xt=urn:btih:B94936DA38D943A8A332F63C09AAC28A33CBDC4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +419,8 @@ magnet:?xt=urn:btih:B94936DA38D943A8A332F63C09AAC28A33CBDC4D
 ```bash
 magnet:?xt=urn:btih:40B2B4C7A034D9154ED63A89C6C919F4D4F824FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +447,8 @@ magnet:?xt=urn:btih:40B2B4C7A034D9154ED63A89C6C919F4D4F824FC
 magnet:?xt=urn:btih:760661EDFEE94FB6BAD8B761EE2D5ACDFD4AE477
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +472,8 @@ magnet:?xt=urn:btih:760661EDFEE94FB6BAD8B761EE2D5ACDFD4AE477
 ```bash
 magnet:?xt=urn:btih:B364E0780120F0CBCE5582269304C6824EB98E3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +502,8 @@ magnet:?xt=urn:btih:B364E0780120F0CBCE5582269304C6824EB98E3C
 magnet:?xt=urn:btih:D04FE3DA47B7D1356384F5072C0C529C8979DE2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +528,8 @@ magnet:?xt=urn:btih:D04FE3DA47B7D1356384F5072C0C529C8979DE2E
 ```bash
 magnet:?xt=urn:btih:A4D4448F3A1A650DF0AEC94BC3253187F6A3C795
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +556,8 @@ magnet:?xt=urn:btih:A4D4448F3A1A650DF0AEC94BC3253187F6A3C795
 magnet:?xt=urn:btih:BDDB48122388C9F8BE377E43FAD96F0F7EBF2BE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +581,8 @@ magnet:?xt=urn:btih:BDDB48122388C9F8BE377E43FAD96F0F7EBF2BE7
 ```bash
 magnet:?xt=urn:btih:6D1A19BAD211E695486D23466863C78A27F3E70E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +608,8 @@ magnet:?xt=urn:btih:6D1A19BAD211E695486D23466863C78A27F3E70E
 ```bash
 magnet:?xt=urn:btih:4DF85957FCEFA1FC5B593503FB5B6381DB3FA2FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +637,8 @@ magnet:?xt=urn:btih:4DF85957FCEFA1FC5B593503FB5B6381DB3FA2FD
 magnet:?xt=urn:btih:0845C290DCFBC8D578E8DBAFB908756EF87A8845
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +664,8 @@ magnet:?xt=urn:btih:0845C290DCFBC8D578E8DBAFB908756EF87A8845
 magnet:?xt=urn:btih:06045A67B95724DAC6E2605C7ACBA4256A199A99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,29 +690,7 @@ magnet:?xt=urn:btih:06045A67B95724DAC6E2605C7ACBA4256A199A99
 magnet:?xt=urn:btih:362437F3741ABDFB4CED83BE43534FF470B0DC45
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450860   (1028645) от 28.02.2021
-
-Дмитрий Михалек (Leach23) | Игрок, забравшийся на вершину. Книга 4 (2021) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028645.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Игрок, забравшийся на вершину» – фантастический роман Leach23, четвертая книга цикла, жанр ЛитРПГ, боевое фэнтези. 2044 год. Мир игр давно изменился и, самой популярной среди них, стала игра VRMMO «Восхождение». «Восхождение» – это огромный мир поделенный на 100 этажей. Каждый этаж это отдельная безграничная локация, с государствами, странами, племенами и разнообразными (   Читать дальше...   )Жанр: ЛитРПГ, Фэнтези, ПриключенияПродолжительность: 10:36:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4239DC61D2B5A7AF0C0287D578854F6630BD70DE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

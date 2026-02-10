@@ -22,6 +22,8 @@ VA - Recoverworld Radio 001 (Mixed by Rich Smith) (2015) [MP3|320 кб/с]<Tranc
 magnet:?xt=urn:btih:962FB137D6A3A0282079A79190B6E2A470E1A918
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Brookes Brothers - Orange Lane (2017) LP [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:85595881FA8FC3D734A5440CC02F994A6C15C72A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Psygressive Vol.1 (2017) [MP3|320 Kbps] <Psy-Trance>
 magnet:?xt=urn:btih:401BF6F7C0B93702F70FBE0A56AE7FD3065F4069
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ The Seven Fields Of Aphelion - Discography 2 Releases (2010-2017) Graveface Reco
 ```bash
 magnet:?xt=urn:btih:39B87157FD109E7403E1494173F5EA85103B5A40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ hologram_ - Discography 6 Releases (2014-2017) Ant-Zen, Audiotrauma [FLAC|Lossle
 magnet:?xt=urn:btih:B2CABC29FED531837D0071E2E01D864C8802EF3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Chillout Music 2017, Vol. 1 (Mixed By Gerti Prenjasi) [MP3|320 Kbps] <Balea
 ```bash
 magnet:?xt=urn:btih:2E0CBC72EC398BCF8C4AA528185F9AC503E98C8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Wonderful Chillout Lounge Music, Vol. 1 (2017) [MP3|320 Kbps] <Balearic, Do
 magnet:?xt=urn:btih:1D10374053ED1C3A2E1F6224288A760879732739
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - New Grooves, Vol. 1 (25 Funky Lounge & Electronica) (2017) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:56A1AE55652A0C78F2FD8858BE90D4012C59A2F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Ghost And Tape - Vár (2017) Home Normal [FLAC|Lossless|WEB-DL|tracks] <Ambient,
 magnet:?xt=urn:btih:4721A9421EB76EE0E1090FDC6BCB95C7DAE74D18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Forever Dance (2017) [MP3|320 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:0897C8D363B9342D4E31E394225247D2572B845D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Nothing But... The Future Of Trance Vol. 04 (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:EDF2737EF7D201864312E219BE9FA03C57C6A237
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Deru - Discography 12 Releases (2003-2018) [FLAC|Lossless|tracks+.cue, tracks] <
 ```bash
 magnet:?xt=urn:btih:A4819062E3C43AEFF197EC5BAB6E6FA9D18690B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Sylvgheist Maelstrom (Sylvgheist Maëlström) - Discography 4 Releases (2010-201
 magnet:?xt=urn:btih:0640FF1B841FC0D89143A660830B7A08A88C7102
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Deep House Edition #005 (2016) [MP3|320 Kbps] <Deep House, Club House>
 ```bash
 magnet:?xt=urn:btih:5B9F6BC43D2003EE1C2D11F0EA855B1A76FC912D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Deep House Top 50 (2016) [MP3|320 Kbps] <House>
 magnet:?xt=urn:btih:14A897B7BA27CBC52221119967E94C40FB2CDCD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - Deep House Edition #004 (2016) [MP3|320 Kbps] <Deep House, Club House>
 ```bash
 magnet:?xt=urn:btih:576B8F57B974A3EFDD8B88FD3E70490BB445C9EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - Deep House Edition #003 (2016) [MP3|320 Kbps] <Deep House, Club House>
 magnet:?xt=urn:btih:08A084415864BAE50A7AD5476C5A2253A3A4965D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ end.user - Resurface (2018) Hands Productions [FLAC|Lossless|WEB-DL|tracks] <Dru
 ```bash
 magnet:?xt=urn:btih:916F958E5C1324EB65E80B37278E51D85A98706C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ S:cage - Discography 2 Albums (2004-2006) Ant-Zen [FLAC|Lossless|tracks+.cue] <R
 magnet:?xt=urn:btih:D212C8BCF4DAF060BBB5D2AF80339B6704804908
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ Ametsub - Discography 7 Releases (2006-2017) [FLAC|Lossless|tracks+.cue, tracks]
 ```bash
 magnet:?xt=urn:btih:E6E997E98D7E765D9E70824C34C81811C352A34B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ VA - Die 2010er Club Classics (2018) [MP3|320 Kbps] <House>
 magnet:?xt=urn:btih:B85E5506FD582BFD7245566129A9A0107FA31D0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ VA - Melodic Deep House Autumn '20 (2020) [MP3|320 Kbps] <Prorgessive-House>
 ```bash
 magnet:?xt=urn:btih:6CCCAF5CA3BD9C8584A205B7C0F4549053B2273E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ VA - Workout Mix 2021 (2020) [MP3|320 Kbps] <House, Dance>
 magnet:?xt=urn:btih:6ECF3EA8A7B192B1F4CB6C653FD7C9D836F461FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ VA - XXXd Generation (2000) Unit [FLAC|Lossless|WEB-DL|tracks] <Breakbeat, IDM, 
 ```bash
 magnet:?xt=urn:btih:896499F186A095858F06638E5B5A894E5C393D59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ VA - Best Of Trance (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:F531E7297995F5C3CD298C56D5640B202D485A9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ Raphaelle Fanti - Insomniac (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:E733DE336B08226EE78DAA4E134B5F9DB6F74FDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

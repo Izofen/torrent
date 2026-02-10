@@ -19,6 +19,8 @@ Red Hat Enterprise Linux (Server) 7.2 [x86-64] 1xDVD + 1xCD
 magnet:?xt=urn:btih:D597607F28F3E9BD3D16F657EE572CA5EDA84025
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ P.S. После установки в Домашней Папке снять г�
 ```bash
 magnet:?xt=urn:btih:ECC0362B8210D2F4636ED4C731A9DE71E152946C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Ubuntu EducationPack 16.04 (2020.10) [i386 + amd64] (2хDVD)
 magnet:?xt=urn:btih:10CF47B3E394DEBB5AE85AAD64E1A9FF0FCA40F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ Arch — «легковесный», простой и гибкий дистри
 ```bash
 magnet:?xt=urn:btih:2CA62704BC6F0D23581CA3ED6ECA611431B7A4C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ Q4OS - дистрибутив операционной системы Linux, с�
 magnet:?xt=urn:btih:74EBC6BF12B6F0509AB0A19AA7E86E7C1B460D43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ Sabayon 16.11 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64
 magnet:?xt=urn:btih:10FCD67B1B672D62855F5F71FF44170003AE2BB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ Debian Edu, также известный как Skolelinux, является д
 ```bash
 magnet:?xt=urn:btih:7089BC8A14413D7434EACE7CAA8B18B5CBE490B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ Debian GNU/Linux 11.5.0 + nonfree (firmware) Bullseye [i386] 2xDVD+3xCD
 magnet:?xt=urn:btih:73FE7E9CCC8D38D35FFF551BD7137B726438B53F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ Adobe Dreamweaver CS6 - новая версия программы для соз
 ```bash
 magnet:?xt=urn:btih:3A08AB68C3C6532B14ECA9DCCCECDBE473694B76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ Fedora 23 Server DVD + Netinstall [i386, x86-64] 2xDVD, 2xCD
 magnet:?xt=urn:btih:A1E3B3E297D020304D9DF6F1FE061DEA4A6EB2DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ RFRemix (Russian Fedora Remix) 23 Wayland (Server DVD + Netinstall) [i386, x86-6
 ```bash
 magnet:?xt=urn:btih:7C6DC8C7C76C95FA7DAD299C06198C56D6DA19FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ Linuxfx 10.7.105 KDE Plasma. Дистрибутив Linux, с рабочим с�
 magnet:?xt=urn:btih:0234801FB48B2D4015A34392EB973F2154CC046B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ RFRemix Live (Дистрибутив RFR жив) (Russian Fedora Remix) 23 (KDE,
 ```bash
 magnet:?xt=urn:btih:BC79F4C14E5FF5484E5B3B526AA3162D8EAF142E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ RFRemix Live (Дистрибутив RFR жив) (Russian Fedora Remix) 23 (KDE,
 magnet:?xt=urn:btih:3CC70358C958D467096D9620493CC2E08D146BE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ Oracle Linux — инициатива Oracle Corporation по созданию �
 magnet:?xt=urn:btih:F3F347DB0DA9BC6CDE85D647CD656C96024EA506
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ Tor Browser for Linux - удобная и простая модификация 
 ```bash
 magnet:?xt=urn:btih:477654B286528E1983B0D77121A3372A617FAD0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +459,8 @@ Skype (произносится «скайп») — бесплатное про�
 magnet:?xt=urn:btih:65D629381AA368A0155C6E78032BD257CC322B6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ Tor Browser for Linux - удобная и простая модификация 
 ```bash
 magnet:?xt=urn:btih:FE46EEDFE27437F1FF8100E2CCFCA39A35A21F6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +513,8 @@ Fedora 23 Wayland Live (KDE, XFCE, MATE Compiz, LXDE, SoaS + Cinnamon) [x86-64] 
 magnet:?xt=urn:btih:97EBBC2BD30B9E890019643C1FF015E3E4C9C977
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ Fedora 23 Wayland Live (KDE, XFCE, MATE Compiz, LXDE, SoaS + Cinnamon) [i686] 6x
 magnet:?xt=urn:btih:DD88D7709BD7FD4DA5FD005882B47F28B0468C08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ Runtu 18.04 Xfce [x86_x64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:1A7360EEC4E9B640C461970E1B2B6DA585DD361D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +594,8 @@ Aget скачивает HTTP-ссылки способом, подобным wge
 magnet:?xt=urn:btih:4E811C0CD6915E6A0DA9C11D910766C568AE7C5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +620,8 @@ SUSE Linux Enterprise – это законченный программный �
 magnet:?xt=urn:btih:6951E7F49B58E75C21C26CD8083E633A48F5F859
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ Sabayon 15.11 (KDE, XFCE, GNOME, SpinBase, Minimal + теперь с MATE и ser
 ```bash
 magnet:?xt=urn:btih:8078A83FAAC2A835588AE8D0029E5E5437AD9F94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +680,8 @@ Mageia 4 Beta I [i586, x86-64] 6xDVD
 magnet:?xt=urn:btih:80A5D2D692AB42F71C034DB7AADF91569F952BED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ Parted Magic — готовое решение для работы с разде
 ```bash
 magnet:?xt=urn:btih:03DDC83B367FD93AB37B8BB62CDCB9DA5D634845
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

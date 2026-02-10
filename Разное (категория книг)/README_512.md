@@ -1,3 +1,30 @@
+###  Публикация: 1015038   (775456) от 09.05.2016
+
+Александр Андрианов | Проснись! Действуй прямо сейчас (2016) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга – история победы: над обстоятельствами, ощущением безвыходности и собственной никчемности, ленью и вредными привычками!
+Александр Андрианов, автор книги, был человеком, которому не за что было уважать себя, и от этого он еще больше себя ненавидел и разрушал. Нелюбимая работа изматывала его, превращала каждый день в пытку. Семейная жизнь заставляла его нервничать (   Читать дальше...   )Жанр: ПсихологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD1C56A2D0B26015987B714BB1B8DD3E2339040C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276777   (775635) от 21.01.2019
 
 Джин Желязны | Говори на языке диаграмм. Пособие по визуальным коммуникациям (2016) [PDF, FB2, EPUB, MOBI]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:ECF31636F4AD9F38306D5B19B0F548B25FAC8707
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +71,8 @@ magnet:?xt=urn:btih:ECF31636F4AD9F38306D5B19B0F548B25FAC8707
 ```bash
 magnet:?xt=urn:btih:6252D6E4A2A5BECDFF9C2294DDC24F91144F6228
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +100,8 @@ magnet:?xt=urn:btih:6252D6E4A2A5BECDFF9C2294DDC24F91144F6228
 magnet:?xt=urn:btih:46286532239F625248FFD8453AF20CF10A5EC2CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +125,8 @@ magnet:?xt=urn:btih:46286532239F625248FFD8453AF20CF10A5EC2CA
 ```bash
 magnet:?xt=urn:btih:1747C36DD4C102A6D940CF34A874E778D7B0B5B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +152,8 @@ magnet:?xt=urn:btih:1747C36DD4C102A6D940CF34A874E778D7B0B5B9
 magnet:?xt=urn:btih:A5466F1A9D59E9094CA64B3B7AEE72401EA77AB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +177,8 @@ magnet:?xt=urn:btih:A5466F1A9D59E9094CA64B3B7AEE72401EA77AB7
 ```bash
 magnet:?xt=urn:btih:634354C27BBBDEF67C6954C89802F29C6D7650D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +206,8 @@ magnet:?xt=urn:btih:634354C27BBBDEF67C6954C89802F29C6D7650D3
 magnet:?xt=urn:btih:1E6408BE503402F4CDACDAA48B8681E3EADF0AE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +232,8 @@ magnet:?xt=urn:btih:1E6408BE503402F4CDACDAA48B8681E3EADF0AE5
 magnet:?xt=urn:btih:48FB006EC3A8AF696CCE5F453367ADB2FDF593B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +257,8 @@ magnet:?xt=urn:btih:48FB006EC3A8AF696CCE5F453367ADB2FDF593B2
 ```bash
 magnet:?xt=urn:btih:9149F3581C7206CC288EB044744F82CC64C587E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +285,8 @@ magnet:?xt=urn:btih:9149F3581C7206CC288EB044744F82CC64C587E2
 magnet:?xt=urn:btih:476A0C569568D3008CFC636E2009A8AE2C9753E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +312,8 @@ magnet:?xt=urn:btih:476A0C569568D3008CFC636E2009A8AE2C9753E0
 magnet:?xt=urn:btih:B005140FF80EA462D0B6632B9C0BC337E80DD522
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +338,8 @@ magnet:?xt=urn:btih:B005140FF80EA462D0B6632B9C0BC337E80DD522
 magnet:?xt=urn:btih:90D3C3C73B44F7063671D23C3FCA8912A427CA9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +363,8 @@ magnet:?xt=urn:btih:90D3C3C73B44F7063671D23C3FCA8912A427CA9A
 ```bash
 magnet:?xt=urn:btih:3211439CB02162FB1E7FB894D3B3ECF73C2D709F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +392,8 @@ magnet:?xt=urn:btih:3211439CB02162FB1E7FB894D3B3ECF73C2D709F
 magnet:?xt=urn:btih:2AB79B4DC182F66379E129CA8907C42F56DEC3C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +417,8 @@ magnet:?xt=urn:btih:2AB79B4DC182F66379E129CA8907C42F56DEC3C8
 ```bash
 magnet:?xt=urn:btih:1673F8B30387A8F6F8E6F316F2E3CF4FE17DEB1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +446,8 @@ magnet:?xt=urn:btih:1673F8B30387A8F6F8E6F316F2E3CF4FE17DEB1F
 magnet:?xt=urn:btih:3126D2564431434B3F459F74EA8E263E4A96ECBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +471,8 @@ magnet:?xt=urn:btih:3126D2564431434B3F459F74EA8E263E4A96ECBD
 ```bash
 magnet:?xt=urn:btih:0D680F7ADF118E4950459CC1BF89138B7A892234
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +498,8 @@ magnet:?xt=urn:btih:0D680F7ADF118E4950459CC1BF89138B7A892234
 magnet:?xt=urn:btih:9E04BCF051FEC5765523256F691BA6AB64AC8E0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +524,8 @@ magnet:?xt=urn:btih:9E04BCF051FEC5765523256F691BA6AB64AC8E0C
 magnet:?xt=urn:btih:BD29B41A8AA67327483B8E67822479F07FB43489
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +549,8 @@ magnet:?xt=urn:btih:BD29B41A8AA67327483B8E67822479F07FB43489
 ```bash
 magnet:?xt=urn:btih:3BB6D535B988AE636D0F3D9D9363820DA94AD6BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +577,8 @@ magnet:?xt=urn:btih:3BB6D535B988AE636D0F3D9D9363820DA94AD6BF
 magnet:?xt=urn:btih:F51EE6846D2B89EE93A18476F81233A3D22561BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +603,8 @@ magnet:?xt=urn:btih:F51EE6846D2B89EE93A18476F81233A3D22561BF
 magnet:?xt=urn:btih:2C076A727747410A1C5499284D01BE64C87092D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +628,8 @@ magnet:?xt=urn:btih:2C076A727747410A1C5499284D01BE64C87092D7
 ```bash
 magnet:?xt=urn:btih:F57EF6F1FF644C0C8E4B3D800BF4F6C2E11CDEE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +657,8 @@ magnet:?xt=urn:btih:F57EF6F1FF644C0C8E4B3D800BF4F6C2E11CDEE3
 magnet:?xt=urn:btih:FC72912F28416A50CD42A46AC5498FDAD907E296
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,29 +683,7 @@ magnet:?xt=urn:btih:FC72912F28416A50CD42A46AC5498FDAD907E296
 magnet:?xt=urn:btih:BEF6935C7C9CD583243DDD16259078EE2CCEB87F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014060   (776638) от 06.05.2016
-
-Алекс Новак | Книга, которой нет. Как бросить беличье колесо и стряхнуть пыль со своей мечты (2015) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776638.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Книга, которой нет» – это не художественное произведение, автор которого борется за признание, овации, премии и прочую блестящую мишуру. У этой книги другая цель – сделать так, чтобы в мире стало меньше серых жизней. Чтобы незаурядные люди вспоминали, что они талантливы, и начинали творить. Чтобы те, кто отчаялся, получили поддержку и увидели свет в конце тоннеля. (   Читать дальше...   )Жанр: Самосовершенствование, личностный рост, психологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9340718E6D0841F0BECCF5D058BDDCAE5B5CD5A9
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

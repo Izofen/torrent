@@ -19,6 +19,8 @@ Paint.NET - Простой, но мощный и удобный редактор
 magnet:?xt=urn:btih:DD6D43E5AB01880C047F003CA74471F1F0144A9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.4.5 Gold 
 ```bash
 magnet:?xt=urn:btih:3A44ADAD17A583C6DFBE4E2C8CA7CCD1E839B49F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:3A44ADAD17A583C6DFBE4E2C8CA7CCD1E839B49F
 magnet:?xt=urn:btih:08BBAD94B0EF697D1DB9D8E4D89AD3E207D3EC82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Cockos Reaper является одной из самых продвинутых
 ```bash
 magnet:?xt=urn:btih:23BDB7EA669FC9881BF2B49B3D35A367E9BFC8A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 magnet:?xt=urn:btih:213244E474B2B70084B4D60CEE4F0FD47910B204
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Capture One - один из лучших профессиональных кон
 ```bash
 magnet:?xt=urn:btih:C34087EF97D63B8AA03271489C2765D3A87342B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Media Player Classic Home Cinema – удобный во всех планах �
 magnet:?xt=urn:btih:91F94EF18660B03621D8F97D25C9284798F78599
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Coolmuster Android Assistant — программа предназначенна
 ```bash
 magnet:?xt=urn:btih:15E83770A87D05F6C4CF0C435A9D40D7F95ED31B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ DaVinci Resolve — единственное в мире решение для �
 magnet:?xt=urn:btih:D859743A07DC61A3F6A52331130BD607D7B818D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:EF96F429B0512B80F18AE823EF177CE1466F4705
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:EF96F429B0512B80F18AE823EF177CE1466F4705
 magnet:?xt=urn:btih:BFBA11F0B56D368D2C0FDF2FBAE20F7D7C92344B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ GIMP — это редактор, позволяющий работать со �
 ```bash
 magnet:?xt=urn:btih:7BC1E2A791A58692B94DCAD64970D79CA792B986
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Electrical Calculations Pro / Электрические расчеты v10.3.1 
 magnet:?xt=urn:btih:6E5C3FB10D6D1ED2E72EBD2C1381EC6483D19D2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Tablacus Explorer - удобный в работе и простой в испо
 magnet:?xt=urn:btih:A6D68CDD2B0928CA378EE4A7956F3463DF8B77B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +382,8 @@ AirBrush: ИИ Фоторедактор v7.6.0 Mod by PieMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1AD67F2845824828D3E6E7CAA67A1021E6D43A6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ Balabolka 2.15.0.890 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:FCD248121B56822982033F1F2E989B2E7D391184
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Topaz A.I. Gigapixel — это приложение, использующее �
 magnet:?xt=urn:btih:295A7FE2F3E575F750C97EC688C786F76FBEF20C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ FBReader Premium v3.8.6 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5C924C9AB78E3C99A0D1C95C7103D6AD9DD569EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Multi Commander - мощный многооконный менеджер фай�
 magnet:?xt=urn:btih:4C0E632C8BED74D86737012CDBCB72CE92217620
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Double Commander - это свободный, с открытым исходны
 ```bash
 magnet:?xt=urn:btih:2BDECF4A130EBF1F5BC846ED4B3D41AD727DFD21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ Wondershare PDFelement - программа для общего редактир
 magnet:?xt=urn:btih:BBE9C4F4D08A53A080B56A597FB08CAE962DEB84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ Words – это лучшее приложение для изучения сл�
 ```bash
 magnet:?xt=urn:btih:AA1656515C4B02B2FD5AEC1078FB148CC3EA9DB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Zoo Match / Три в Ряд: Зоопарк и Животные v1.7.9 Mod by v
 magnet:?xt=urn:btih:22077A20256846BC71444F14EC889E29B128E114
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ Media Player Classic Home Cinema - удобный во всех планах м�
 ```bash
 magnet:?xt=urn:btih:E804B081CBED0253D996136C69141B98633CF75F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ Blender - бесплатный редактор трехмерной графи�
 magnet:?xt=urn:btih:65986A0E92E2D8F4421E8F93959C2E5565258778
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Topaz A.I. Gigapixel — это приложение, использующее �
 ```bash
 magnet:?xt=urn:btih:3605A13A35A49463314E7E5D0887FB078A380FBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

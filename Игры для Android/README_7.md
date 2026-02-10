@@ -19,6 +19,8 @@ Space Marshals 3 - это сюжетная история в жанре экшн
 magnet:?xt=urn:btih:435825018CCF34D8C620F93A1BD036916DC0F5DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:435825018CCF34D8C620F93A1BD036916DC0F5DB
 ```bash
 magnet:?xt=urn:btih:52B435C92F71D2A316F3227109B9FEF00AC221D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ PAC-MAN 256: вечный лабиринт v2.0.0 [Ru]
 magnet:?xt=urn:btih:8250C77C9DE6CD3D8345788A726F8390D436284D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:8250C77C9DE6CD3D8345788A726F8390D436284D
 ```bash
 magnet:?xt=urn:btih:4010449CC8ED17C464D718ACAB92E91DA9F7CC23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ MudRunner — это непревзойденная гонка по бездор
 magnet:?xt=urn:btih:55081B8931B1D82F80F9266DB351BD11C431C9C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Pascal's Wager - это мрачная и стильная экшн RPG на м�
 magnet:?xt=urn:btih:5046D816EEC65B3452452A79020077207D173029
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ FAR: Lone Sails v1.31 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:A52479F7708F405F531FC29194F48137809DF1F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Russian crosswords v1.15.3 [Ru/En] (обновляемая)
 magnet:?xt=urn:btih:410D325184EA03C3B79DA072C023C1F3E0EA3EC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Toy Defense 2 / Солдатики-2 v2.7.0.1 + Mod [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B89D987C45F3D6DED1C464DD4066CD49167892AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:B89D987C45F3D6DED1C464DD4066CD49167892AC
 magnet:?xt=urn:btih:72C3C26C7E4A2E3521FAB3FE399C0135D9EC31E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Pro Pool 2023 v1.52 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:73D41AF84DCD4A6007B7D331A009A3A262813BA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Among Us - кооперативный фантастический экшн, р�
 magnet:?xt=urn:btih:36991BDF8F079CCDBED2C0948251FD0FBC44BBD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ BlockSudoku / Кудоку-Вуди Блок v2.6.1 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:240523AC43B2CE9B9B99525546A332CD252DD81E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Dendy Games (645 in 1) v3.11 [En]
 magnet:?xt=urn:btih:A906A51E2B372FA9E99112EFEB687D9F67038FA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ ARK: Survival Evolved v2.0.21 [Ru]
 ```bash
 magnet:?xt=urn:btih:2DB25D2295BA920FED438F201BEAEBC33FACEE8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Max Payne Mobile - увлекательный экшен-шутер на Анд�
 magnet:?xt=urn:btih:2510AC73BE5DEBB78B58C25B7F6619120344E21E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Garena Free Fire: Безумие v1.56.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:861E196BB0E3412DE07046B1C0E9A4B716B64826
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ ROBLOX - Здесь каждый режим противостояния пре�
 magnet:?xt=urn:btih:BA2664DC82AC439771BE51C282E3D33E82D29ADA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Half-Life 2: Episode Two - наконец-то, мы дождались прод
 ```bash
 magnet:?xt=urn:btih:3E9C4FA9F2D7846E74C013D5CF860CED0A4F2120
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Prince of Persia Shadow&Flame – эпическая сага легендарн
 magnet:?xt=urn:btih:424CCA4830010E54FD5EC00DFCBB0F2F085BA88A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Survivalist: invasion PRO v0.0.431 [Ru]
 ```bash
 magnet:?xt=urn:btih:C1DBB68614C3EAE846F1FA1CFD324389C586A27C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Death Worm - управляйте подземным чудовищем на And
 magnet:?xt=urn:btih:F67C24878CA93BCBDE0CFC0D4FE5A1E9D0EE5575
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Pro Pilkki 2 v1.9 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:AABD8E3FDBD0F29EEA4A425F5B7909683218588B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ Quick Brain / Упражнения для мозга v2.5.9 [Ru/Multi] (обно
 magnet:?xt=urn:btih:96B4BBBA4381D73E32E3AC6E56DC36CBDF5FC70B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Reanimation Inc. Скорая Помощь - surgeon simulator , играй в �
 magnet:?xt=urn:btih:076395D37389555439D0487738324676C86E4930
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Unmechanical — приключенческая игра, сочетающая �
 ```bash
 magnet:?xt=urn:btih:16035AE96D7C425B678EF64A433CE6708AD524DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

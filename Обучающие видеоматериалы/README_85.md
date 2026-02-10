@@ -19,6 +19,8 @@ Traversymedia | MERN From Scratch (2023) WEB-DL [EN]
 magnet:?xt=urn:btih:094C9638D06A0EEECCC08985715B6A35D839EFB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ GreyscaleGorilla, Zach Corzine | Next Level Mograph Procedural Systems in C4D (2
 ```bash
 magnet:?xt=urn:btih:33C7CF57128AC9EDA01835B636ED81F7BF1E48B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:33C7CF57128AC9EDA01835B636ED81F7BF1E48B4
 magnet:?xt=urn:btih:610672CDAEA0AFCD966FEA75C4D3B990E83207C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Liveclasses, Алексей Шадрин | Тайны модернизма: Эг
 magnet:?xt=urn:btih:CA996FA4CC09C407555540A2AAFAE28A58C94886
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ Udemy, Eincode by Filip Jerga, Filip Jerga | Svelte and Firebase: The Full Cours
 magnet:?xt=urn:btih:1710377EEE16CCBF62C51CE044EFED19F9172743
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:1710377EEE16CCBF62C51CE044EFED19F9172743
 ```bash
 magnet:?xt=urn:btih:AA3ED1CD0B622AA279CDD373EAC609D033896A56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:AA3ED1CD0B622AA279CDD373EAC609D033896A56
 magnet:?xt=urn:btih:E423FB766D6BF28BCED663313B9B8E2E48838DE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:E423FB766D6BF28BCED663313B9B8E2E48838DE8
 ```bash
 magnet:?xt=urn:btih:AF6C89A2A1DCE3B55FF3A8902B490ECEC9EFA361
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:AF6C89A2A1DCE3B55FF3A8902B490ECEC9EFA361
 magnet:?xt=urn:btih:26EE5DBD89FC23A9BC81F62B84958005D697303E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:26EE5DBD89FC23A9BC81F62B84958005D697303E
 ```bash
 magnet:?xt=urn:btih:E4EE0700717A802620B2391902102FC6B331CF18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ Photoville, Игорь Новиков | Как в кино (2023) WEB-DL [AD] [R
 magnet:?xt=urn:btih:A59FF9ACAA18FFC78E0218F3BCD8859ECEF0DE56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ Udemy, Tri Dimension Education | Complete Houdini FX 19.5 Course Beginner To Adv
 ```bash
 magnet:?xt=urn:btih:EB4BA3270FA92E6858969AB94CAAAC2CB0259DA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ Udemy, Alpha Omondi Ogilo | MERN Invoice Web App with Docker,NGINX and ReduxTool
 magnet:?xt=urn:btih:19A3F3A152837FD4941D0B05961135410AB1C275
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ Liveclasses, Антон Мартынов | Как найти свой путь �
 ```bash
 magnet:?xt=urn:btih:F455187361AD4A6E674BA4924A30065C39D5DAF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ Gumroad, Florian Bard | Houdini All combined Lightning Setups (2023) WEB-DL [AD]
 magnet:?xt=urn:btih:391C2CD83313BCCF334BFAF459F0FD94B1F7DB7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ Z-art school, Татьяна Зубова | Горная река (2020) WEB-DL 
 magnet:?xt=urn:btih:12FDEACB98F7EBB6A7D2A57E9F242C4527D3106D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ magnet:?xt=urn:btih:12FDEACB98F7EBB6A7D2A57E9F242C4527D3106D
 ```bash
 magnet:?xt=urn:btih:1823F2FAEB1B2B3CB3A2460C347D0A933454823D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ magnet:?xt=urn:btih:1823F2FAEB1B2B3CB3A2460C347D0A933454823D
 magnet:?xt=urn:btih:4294DB0262C21169E116483151424FF65A7568DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ magnet:?xt=urn:btih:4294DB0262C21169E116483151424FF65A7568DE
 ```bash
 magnet:?xt=urn:btih:62C3AFD7BB71401CEF9B6E9B96D04B5356E94B8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +537,8 @@ magnet:?xt=urn:btih:62C3AFD7BB71401CEF9B6E9B96D04B5356E94B8C
 magnet:?xt=urn:btih:51B19ABAC51E4389BDEE5C660E9E7208FD011072
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ magnet:?xt=urn:btih:51B19ABAC51E4389BDEE5C660E9E7208FD011072
 ```bash
 magnet:?xt=urn:btih:FD9C40B9683EA8F015C88999E229365EACD8E13E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ magnet:?xt=urn:btih:FD9C40B9683EA8F015C88999E229365EACD8E13E
 magnet:?xt=urn:btih:1D3DCF81B18C99AA802BC42943F7B5E38810F0F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ Rebrain, Fevlake | NGINX онлайн-практикум (2023) WEB-DL [AD] [RU]
 ```bash
 magnet:?xt=urn:btih:AE6692B50166991046EC848964AB334D122E3E65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +647,8 @@ Udemy, Andrei Dumitrescu | OpenAI API with Python Bootcamp: ChatGPT API, GPT-4, 
 magnet:?xt=urn:btih:D00A7F2B0D274B5539A07610C54E732B97307634
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +674,8 @@ Welcome to the fundamental and the most complete course 'Java from Zero to First
 ```bash
 magnet:?xt=urn:btih:377E59B3390F47B9784A99817E4A2586E2E44424
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +703,8 @@ Liveclasses, Артур Орлов | Steinberg Cubase: быстрый старт
 ```bash
 magnet:?xt=urn:btih:64674910DAEB1D6D6CEB0DFA20F3B117E7EA9858
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

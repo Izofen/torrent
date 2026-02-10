@@ -28,6 +28,8 @@ CD1 Продолжительность: 01:10:48
 magnet:?xt=urn:btih:4FFE9BDF572A927D24A25AD226CE3AC2C91C9BA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -61,6 +63,8 @@ Artёm Puchkoff & Sasha Fresh - Jam Sation vol.1 (2012)/2012, Resonanse Records/
 magnet:?xt=urn:btih:6E26455219E571A7EB96933669653FC767DE684A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -84,6 +88,8 @@ magnet:?xt=urn:btih:6E26455219E571A7EB96933669653FC767DE684A
 ```bash
 magnet:?xt=urn:btih:EAC5608541E078AB6BB2AEEC7DA82D8260EDE267
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -113,6 +119,8 @@ magnet:?xt=urn:btih:EAC5608541E078AB6BB2AEEC7DA82D8260EDE267
 magnet:?xt=urn:btih:6E6C61E8D03082F53F54E93518BFB94381A51412
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -136,6 +144,8 @@ magnet:?xt=urn:btih:6E6C61E8D03082F53F54E93518BFB94381A51412
 ```bash
 magnet:?xt=urn:btih:D3D9D649278E8773194D4317FD331DA42E44C2A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +175,8 @@ magnet:?xt=urn:btih:D3D9D649278E8773194D4317FD331DA42E44C2A7
 magnet:?xt=urn:btih:FC10CDAE3E9787ECF4FCD42CD5FBFDC4CA15F1A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +201,8 @@ magnet:?xt=urn:btih:FC10CDAE3E9787ECF4FCD42CD5FBFDC4CA15F1A9
 magnet:?xt=urn:btih:5F398CC1D2919493682A653306DD499FE3908648
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +226,8 @@ magnet:?xt=urn:btih:5F398CC1D2919493682A653306DD499FE3908648
 ```bash
 magnet:?xt=urn:btih:FE8360E46310E8B9BA1433536CE0EFEB046AC2A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +257,8 @@ magnet:?xt=urn:btih:FE8360E46310E8B9BA1433536CE0EFEB046AC2A9
 magnet:?xt=urn:btih:38135ED9BB938218C94DD9B060E01F1191A91FD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ magnet:?xt=urn:btih:38135ED9BB938218C94DD9B060E01F1191A91FD8
 ```bash
 magnet:?xt=urn:btih:034547BFE923DB0EE4F66B9AF9DA553BD1220ED3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ magnet:?xt=urn:btih:034547BFE923DB0EE4F66B9AF9DA553BD1220ED3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +335,8 @@ magnet:?xt=urn:btih:034547BFE923DB0EE4F66B9AF9DA553BD1220ED3
 magnet:?xt=urn:btih:49B2F5589A5CD15536EBE9DAEC1C1787916CD09D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +360,8 @@ magnet:?xt=urn:btih:49B2F5589A5CD15536EBE9DAEC1C1787916CD09D
 ```bash
 magnet:?xt=urn:btih:6C1F3E8314116F5E0B165BFBD15ED6A4340E43BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +390,8 @@ magnet:?xt=urn:btih:6C1F3E8314116F5E0B165BFBD15ED6A4340E43BC
 ```bash
 magnet:?xt=urn:btih:838ED7FAA00DE083DC81075748C1A7BD0AEE1E4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +426,8 @@ VA - Мощная Dance Атака. Зарубежный (2012) [MP3|256 кб/с
 magnet:?xt=urn:btih:DDB2F29EFCA8898D7B91FE85C1185AFE525C9A33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +461,8 @@ VA - Лучшая 100ка - Взорви танцпол 2 (2012) [MP3|256 кб/�
 magnet:?xt=urn:btih:FE86E61E711995F160CA5DB63568A5BE73CA844E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +495,8 @@ Nike Beats - Instrumental vol.4 (2012) [MP3|320 кб/с]<Instrumental>
 magnet:?xt=urn:btih:E44F9CB5B01C267322E217847F3AF14D0C0519C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +520,8 @@ magnet:?xt=urn:btih:E44F9CB5B01C267322E217847F3AF14D0C0519C8
 ```bash
 magnet:?xt=urn:btih:835CA12CD4B0CD63DBB32E126916A6C1848B1011
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +547,8 @@ magnet:?xt=urn:btih:835CA12CD4B0CD63DBB32E126916A6C1848B1011
 magnet:?xt=urn:btih:EB4D8CB0C8DB0CF2818AE189FA5632399C4AE4CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ magnet:?xt=urn:btih:EB4D8CB0C8DB0CF2818AE189FA5632399C4AE4CF
 ```bash
 magnet:?xt=urn:btih:318A1AF41A7EE14D37D72FB3F920CDDE7A552344
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +603,8 @@ magnet:?xt=urn:btih:318A1AF41A7EE14D37D72FB3F920CDDE7A552344
 magnet:?xt=urn:btih:9673A6B8635DBEAC7AA19AEFFD6EA8DD554B709B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +633,8 @@ magnet:?xt=urn:btih:9673A6B8635DBEAC7AA19AEFFD6EA8DD554B709B
 magnet:?xt=urn:btih:FDD69F0F64B9CB9949D6D5B8029C9D81B2FF2CD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +661,8 @@ magnet:?xt=urn:btih:FDD69F0F64B9CB9949D6D5B8029C9D81B2FF2CD4
 magnet:?xt=urn:btih:0512AD7B2B1BE6D0B5FC62F85431B421A459DEE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +686,8 @@ magnet:?xt=urn:btih:0512AD7B2B1BE6D0B5FC62F85431B421A459DEE2
 ```bash
 magnet:?xt=urn:btih:150E71BA4B6C0C140AB7BAD0CAAA04F930012933
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -674,6 +722,8 @@ Meshuggah - Koloss (2012) [MP3|~245 кб/с (V0)]<Progressive Post-Thrash / Math
 magnet:?xt=urn:btih:1F9581A028D278682979458DA39FBA7D4828ED72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -697,6 +747,8 @@ magnet:?xt=urn:btih:1F9581A028D278682979458DA39FBA7D4828ED72
 ```bash
 magnet:?xt=urn:btih:271098DC39B4D7D40D664DD9B6511506569E9487
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

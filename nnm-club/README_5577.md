@@ -22,6 +22,8 @@ Slugdge - Esoteric Malacology (2018) [WavPack|Lossless|image + .cue] <Technical 
 magnet:?xt=urn:btih:28C19DBC00454B036B251BCE2D756FC50AB79253
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ VA - The Texas Chainsaw Massacre: The Beginning / Техасская резня 
 ```bash
 magnet:?xt=urn:btih:E5CE58F38588D6C0F27CAE7826658F347DFC1AEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ Tower Hill - Deathstalker (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Old Scho
 magnet:?xt=urn:btih:A45D609771C0892F12B8745E5E07676319A579A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:A45D609771C0892F12B8745E5E07676319A579A2
 ```bash
 magnet:?xt=urn:btih:7E4BCBD02CBE62CC3C6626419C3A7C03EAA425CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ Sound Studio - универсальная студия звукозаписи.
 ```bash
 magnet:?xt=urn:btih:B6EB2AD4B25E050DBD83BFC432B3DC5E1A6B15D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -153,6 +163,8 @@ The Gaslight Anthem - History Books (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:4AAAF5EDDEABD2AA730F310028DD2E02EB13B4B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ Sensei - это приложение, которое охватывает как
 ```bash
 magnet:?xt=urn:btih:A9152E70BEE429978F95BF4C1427392904E8C844
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -204,6 +218,8 @@ VA - Merry Christmas/Dance Music Party (2019) [MP3|320 Kbps] <Deep House>
 magnet:?xt=urn:btih:43140B671E812C43B2E1DF6011B8FF339B1B2A12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ magnet:?xt=urn:btih:43140B671E812C43B2E1DF6011B8FF339B1B2A12
 ```bash
 magnet:?xt=urn:btih:A2974EF711F35528251B27129CDB5D030ED54F83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ magnet:?xt=urn:btih:A2974EF711F35528251B27129CDB5D030ED54F83
 magnet:?xt=urn:btih:A2CE7399FFEAD04DFABD39958A0614D3797936DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ Typora дает вам безупречный опыт как читателя, 
 ```bash
 magnet:?xt=urn:btih:35042F062CCE657EBAECAB40F2FC4AB87B851908
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +325,8 @@ Kazumi Tateishi Trio - Ghibli Meets Jazz: Beautiful Songs (2011) Victor [FLAC|Lo
 magnet:?xt=urn:btih:54B8545BA94C13A7687917A2FEA4A9841F0E82B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:54B8545BA94C13A7687917A2FEA4A9841F0E82B1
 ```bash
 magnet:?xt=urn:btih:8F5E1AEED54CEE606E6EB0F9F1DA96D829F9E474
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ Driver Reviver – это приложение, которое проскани�
 magnet:?xt=urn:btih:4606FB8B5E306875C733DE299BA756D59E1B5BB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ Nisus Writer Pro Мощный мультиязычный текстовый ре
 ```bash
 magnet:?xt=urn:btih:B71B487B3481B07F50AF6B0FE57CD55BE13726C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +429,8 @@ magnet:?xt=urn:btih:B71B487B3481B07F50AF6B0FE57CD55BE13726C5
 magnet:?xt=urn:btih:74F0219822D1C8F9AA36C7CFFFC4BE44146CF403
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ magnet:?xt=urn:btih:74F0219822D1C8F9AA36C7CFFFC4BE44146CF403
 magnet:?xt=urn:btih:76464FC04383B7DD126A4AF4A95EF82DA3B59816
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +480,8 @@ SILKYPIX Developer Studio Pro 11 — это последняя версия вы
 ```bash
 magnet:?xt=urn:btih:601C7BC54800F09BF07706D1A45D5211171C992B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +510,8 @@ magnet:?xt=urn:btih:601C7BC54800F09BF07706D1A45D5211171C992B
 magnet:?xt=urn:btih:D39376966C6F6E936DEA9191DE8E55437140DBA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ VA - Psygressive Vol. 7 (2019) [MP3|320 Kbps] <Psy-Trance>
 magnet:?xt=urn:btih:EBDAF36B25695F5A13870454981522BBFDE4BE06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +565,8 @@ magnet:?xt=urn:btih:EBDAF36B25695F5A13870454981522BBFDE4BE06
 ```bash
 magnet:?xt=urn:btih:2F5D4DDE51C40A3D8A6B2870A98333C4AE7D390E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +593,8 @@ Udemy, Murtez Alrohani | Модульное тестирование Node.js / N
 ```bash
 magnet:?xt=urn:btih:2D29E769AEEA17EACC784D6862C44D4F5E48312F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +623,8 @@ Jeff Berlin - Jack Songs (2022) [FLAC 2.0|96/24|tracks|WEB-DL] <Progressive Rock
 magnet:?xt=urn:btih:9002FB1B5A5EDF4601C55FB2F1D1CE49DB15D9F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +648,8 @@ OmniPlayer Pro для Mac - это универсальный медиаплее
 ```bash
 magnet:?xt=urn:btih:54A05EEC3F5B9290467A2E3F0471F8170E80C01A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +676,8 @@ YouTube5 был расширением Safari, когда Flash был еще в
 magnet:?xt=urn:btih:2627B7826C0CF4A0FC9B655827AFF55E492ED9BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ Pale Moon - веб-браузер, созданный на базе популя
 ```bash
 magnet:?xt=urn:btih:686D8A8BED0717E2F31FD982235CE350166704BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

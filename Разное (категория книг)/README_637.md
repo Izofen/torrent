@@ -1,3 +1,29 @@
+###  Публикация: 868946   (893839) от 13.02.2015
+
+Уильям Зинсер | Как писать хорошо. Классическое руководство по созданию нехудожественных текстов (2013) [PDF, FB2, DOCX]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Мастерство писателя совершенно напрасно окружено ореолом тайны. Писать значит думать на бумаге. Всякий, кто ясно мыслит, способен ясно писать о любом предмете - статьи, эссе, блоги или даже целые книги. Более того, умение грамотно излагать свои мысли в письменном виде обязательно для любого, кто хочет преуспеть в современном перенасыщенном информацией мире. Уильям Зинсер, самый авторитетный преподаватель писательского ремесла из ныне живущих, в 30-м юбилейном издании своей книги, впервые выходящей на русском, (   Читать дальше...   )Жанр: БизнесФормат: PDF, FB2, DOCX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D44C69BCABFCDF5042A2927D04B35DCB0BFED12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 293999   (893936) от 14.02.2011
 
 Бронислав Виногродский | Путь чая [2007] [DJVU]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:08474B3645A5842A048A5675A2DA454F4E798A6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:08474B3645A5842A048A5675A2DA454F4E798A6A
 magnet:?xt=urn:btih:B78CAEC064BEC9839A7C50EF9A632F5B11686BD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:B78CAEC064BEC9839A7C50EF9A632F5B11686BD2
 ```bash
 magnet:?xt=urn:btih:71A0E45BE86742FF70483EB496A34DACD09F2D22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:71A0E45BE86742FF70483EB496A34DACD09F2D22
 magnet:?xt=urn:btih:5D9B2204AC3ECA68823A782328CDD4B39C9D7537
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:5D9B2204AC3ECA68823A782328CDD4B39C9D7537
 ```bash
 magnet:?xt=urn:btih:4802EE12429F07EF3479583382F4F6752FE9E383
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:4802EE12429F07EF3479583382F4F6752FE9E383
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +212,8 @@ magnet:?xt=urn:btih:4802EE12429F07EF3479583382F4F6752FE9E383
 magnet:?xt=urn:btih:B46E1F9A04295EAC720786B98801E4B45CE9FCE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +237,8 @@ magnet:?xt=urn:btih:B46E1F9A04295EAC720786B98801E4B45CE9FCE9
 ```bash
 magnet:?xt=urn:btih:BFEA71A405598D23F0B499588609C9C045A4581D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +264,8 @@ magnet:?xt=urn:btih:BFEA71A405598D23F0B499588609C9C045A4581D
 magnet:?xt=urn:btih:8AFC32523B7C2FBB3C86B4D2DE064CC9D2F2BFBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +289,8 @@ magnet:?xt=urn:btih:8AFC32523B7C2FBB3C86B4D2DE064CC9D2F2BFBF
 ```bash
 magnet:?xt=urn:btih:5EBA62E8C2191A945F85D629FA131D53E2867419
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +321,8 @@ magnet:?xt=urn:btih:5EBA62E8C2191A945F85D629FA131D53E2867419
 magnet:?xt=urn:btih:65FA079AAF6BF3DEE2006D179C48AA177DABE044
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +346,8 @@ magnet:?xt=urn:btih:65FA079AAF6BF3DEE2006D179C48AA177DABE044
 ```bash
 magnet:?xt=urn:btih:F3545A013E4E5B535250D97DDADAA9B42C49FBCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +373,8 @@ magnet:?xt=urn:btih:F3545A013E4E5B535250D97DDADAA9B42C49FBCA
 magnet:?xt=urn:btih:0E40C9FD594D1BDC4CD1C0BB721069CBF99463AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +398,8 @@ magnet:?xt=urn:btih:0E40C9FD594D1BDC4CD1C0BB721069CBF99463AC
 ```bash
 magnet:?xt=urn:btih:8FBF837F3E7D89FC830EFDFA4C048D587E9EA62F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +425,8 @@ magnet:?xt=urn:btih:8FBF837F3E7D89FC830EFDFA4C048D587E9EA62F
 magnet:?xt=urn:btih:2FB113ED3F9EC9E2350F01437C9D36EE9053C699
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +451,8 @@ magnet:?xt=urn:btih:2FB113ED3F9EC9E2350F01437C9D36EE9053C699
 magnet:?xt=urn:btih:C47BD144957271899976F87C984CAB2E7C9FA9D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +476,8 @@ magnet:?xt=urn:btih:C47BD144957271899976F87C984CAB2E7C9FA9D8
 ```bash
 magnet:?xt=urn:btih:F1EAD97A9019B2D1D263BA7931AA82A17AE53CDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +504,8 @@ magnet:?xt=urn:btih:F1EAD97A9019B2D1D263BA7931AA82A17AE53CDF
 magnet:?xt=urn:btih:89F8F5214E4ACFE93D7F5F3C578933CE09CFC934
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +529,8 @@ magnet:?xt=urn:btih:89F8F5214E4ACFE93D7F5F3C578933CE09CFC934
 ```bash
 magnet:?xt=urn:btih:84AD055115C34E4EC059CDC2F900B27E84DC5B4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +556,8 @@ magnet:?xt=urn:btih:84AD055115C34E4EC059CDC2F900B27E84DC5B4A
 magnet:?xt=urn:btih:91620B6E51218FF1937F52271370BDFB06DE3B69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +581,8 @@ magnet:?xt=urn:btih:91620B6E51218FF1937F52271370BDFB06DE3B69
 ```bash
 magnet:?xt=urn:btih:1B7D236384A804E1384ED0E364CE6212CD345F85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +608,8 @@ magnet:?xt=urn:btih:1B7D236384A804E1384ED0E364CE6212CD345F85
 magnet:?xt=urn:btih:10082CCB8E7A0B33B629BB7AD3634F029CC8FE3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +633,8 @@ magnet:?xt=urn:btih:10082CCB8E7A0B33B629BB7AD3634F029CC8FE3E
 ```bash
 magnet:?xt=urn:btih:A5AB1DD857BD82279B307CF65A059099C14C8E0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +660,8 @@ magnet:?xt=urn:btih:A5AB1DD857BD82279B307CF65A059099C14C8E0D
 magnet:?xt=urn:btih:C82D8E995A21730C52DACDFC9D52DD0DE5D916F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,29 +686,7 @@ magnet:?xt=urn:btih:C82D8E995A21730C52DACDFC9D52DD0DE5D916F1
 magnet:?xt=urn:btih:E98EE92155E116B4058559A9FD68C6A9DFF2DB7E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 295630   (894494) от 14.02.2011
-
-И. А. Зайцева | Энциклопедия стильного макияжа [2010] [PDF]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Макияж позволяет женщине подчеркнуть свои достоинства и замаскировать недостатки, однако это возможно лишь при правильном использовании косметических средств. Из данного издания вы узнаете все секреты и тонкости дневного, вечернего и свадебного макияжа, а также правила использования косметики для юных девушек.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B799AF6E54DD3F8AFDFD89CA0AC6CA41CBC9677
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

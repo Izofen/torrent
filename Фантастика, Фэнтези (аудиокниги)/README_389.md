@@ -1,3 +1,29 @@
+###  Публикация: 1551799   (589304) от 17.05.2022
+
+Серг Усов | Алерния (Книга 4). Война (2022) [MP3, Александр Чайцын]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589304.jpg" />
+</div>
+
+
+###  Подробнее
+
+Попаданка из нашего мира в мир жестокого и мрачного магического средневековья не погибла и не сошла с ума. Вика уверенно устраивается в новой жизни, обзаводится друзьями и соратниками. Ею создан Орден Тени с официально благими целями. Теперь ей предстоит его развивать и расширять. Вот только на королевство, в котором действует наша современница, готовят нападение (   Читать дальше...   )Жанр: Боевое фэнтези, ПопаданцыПродолжительность: 11:27:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:897751C3634A7BA5A9AFE165E04802A24532A62B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1551713   (589310) от 17.05.2022
 
 Александр Алефиренко | S-T-I-K-S: Архипелаг Надежды (Книга 2). Пират. Потерна в прошлое (2022) [MP3, Иван Никонов]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:F69245D2477253B6B0944AEAD00AF87701EFD95F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:F69245D2477253B6B0944AEAD00AF87701EFD95F
 magnet:?xt=urn:btih:7C2D1FA6EE1A66AB72438277CC490D0F40498D32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:7C2D1FA6EE1A66AB72438277CC490D0F40498D32
 ```bash
 magnet:?xt=urn:btih:0D98529062E544FBF40B6236E7084BBB03B35504
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:0D98529062E544FBF40B6236E7084BBB03B35504
 magnet:?xt=urn:btih:4DF556A853C3A5FC078D6F7309C5BF47CEDCDE6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:4DF556A853C3A5FC078D6F7309C5BF47CEDCDE6B
 ```bash
 magnet:?xt=urn:btih:AA86165C2C949F3F034CE5940A17F250310D850A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:AA86165C2C949F3F034CE5940A17F250310D850A
 magnet:?xt=urn:btih:9F5A2295F27FA698536FA8069CD3A44F8409361C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:9F5A2295F27FA698536FA8069CD3A44F8409361C
 magnet:?xt=urn:btih:A1E77186E497853A62F71D30A6A7BA6492047214
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:A1E77186E497853A62F71D30A6A7BA6492047214
 ```bash
 magnet:?xt=urn:btih:2C490D3580FB206E82742FFD6F7AF3A6C58D2275
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +259,8 @@ magnet:?xt=urn:btih:2C490D3580FB206E82742FFD6F7AF3A6C58D2275
 magnet:?xt=urn:btih:C030567ADFBE75DB375D22DC879CFFD306375C85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:C030567ADFBE75DB375D22DC879CFFD306375C85
 ```bash
 magnet:?xt=urn:btih:1B270B2794BEA25FA4C4B42AB6962618DF8EC07C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:1B270B2794BEA25FA4C4B42AB6962618DF8EC07C
 magnet:?xt=urn:btih:B1C9C8CB8BE8C3067E8164CCBA366A721CD4DDF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:B1C9C8CB8BE8C3067E8164CCBA366A721CD4DDF5
 magnet:?xt=urn:btih:7D43B70C222D1EEFFAB15305CC2DEFB24E50701F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:7D43B70C222D1EEFFAB15305CC2DEFB24E50701F
 ```bash
 magnet:?xt=urn:btih:DD409DD5C4BC3A13A5E5001634CCD3DB3C2C58FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:DD409DD5C4BC3A13A5E5001634CCD3DB3C2C58FB
 magnet:?xt=urn:btih:046257C50CC6B5EB0711EAAE38F3A79EB4378272
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:046257C50CC6B5EB0711EAAE38F3A79EB4378272
 ```bash
 magnet:?xt=urn:btih:2BC0EE74E9E4096B5826BDD77AAAF996583378DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:2BC0EE74E9E4096B5826BDD77AAAF996583378DC
 magnet:?xt=urn:btih:1A6DC099711958A658B119CA274E81B3C5927F66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:1A6DC099711958A658B119CA274E81B3C5927F66
 ```bash
 magnet:?xt=urn:btih:3984BBD2C3328F4966107191EA6D43B6985DD23C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +498,8 @@ magnet:?xt=urn:btih:3984BBD2C3328F4966107191EA6D43B6985DD23C
 magnet:?xt=urn:btih:8340488542EB3A81BEE1172D88B167095D9E8600
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:8340488542EB3A81BEE1172D88B167095D9E8600
 ```bash
 magnet:?xt=urn:btih:82A50996682732F1D19ED15EACD3D879EFD164E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:82A50996682732F1D19ED15EACD3D879EFD164E3
 magnet:?xt=urn:btih:D0A7CEAD5462D1FD68FE5E690BE2D7B2C1BADEE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:D0A7CEAD5462D1FD68FE5E690BE2D7B2C1BADEE2
 ```bash
 magnet:?xt=urn:btih:A90119CE61BEE5265234CC38F540E8441859AF0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +604,8 @@ Vera Aleksandrova | "Оборотни" Книга 1. Медвежий инсти
 magnet:?xt=urn:btih:93E3C6E05457C29E3A1ED7E9C6C2D2FA15404A45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +632,8 @@ magnet:?xt=urn:btih:93E3C6E05457C29E3A1ED7E9C6C2D2FA15404A45
 magnet:?xt=urn:btih:BBC211CD7CFB43871E6D1F6BB966ED36BB614006
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:BBC211CD7CFB43871E6D1F6BB966ED36BB614006
 ```bash
 magnet:?xt=urn:btih:79D7970E578C1344DF458D692E15CCAA07DBF2D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,30 +685,7 @@ magnet:?xt=urn:btih:79D7970E578C1344DF458D692E15CCAA07DBF2D2
 magnet:?xt=urn:btih:CB705DC36F621BA931D5043E74BFDE0B72F1779B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915876   (591853) от 06.07.2015
-
-Урсула Ле Гуин | Апрель в Париже (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591853.jpg" />
-</div>
-
-
-###  Подробнее
-
-Урсула Ле Гуин является не просто асом в сфере фантастики, но и классиком вообще для всей мировой литературы ХХ века. Миры, созданные в её воображении, читатели воспринимают как само собой разумеющееся, без лишнего пафоса.
-"Апрель в Париже" - милый и добрый рассказ о том, как людей из разных социальных слоев и разного времени объединяет одиночество.Жанр: ФантастикаПродолжительность: 00:52:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C741E6FFC5706AF95748E90826A03F34FB964752
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

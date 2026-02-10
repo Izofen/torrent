@@ -19,6 +19,8 @@ Neon Glass Audio React Logo - Это впечатляющий звуковой �
 magnet:?xt=urn:btih:6299E0C3CCBB0574FB0DF82FB11989C6CFC64551
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Elemental 2D FXФормат: AEP
 ```bash
 magnet:?xt=urn:btih:08A3111D82973173D5864802A969A6CCAC56734F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Colorful Shadows - Motion Titles Pack - проект для анимации т�
 magnet:?xt=urn:btih:1CF8DE2AAC0CE3148B550F0D0CA0408BA82BD73B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Abstract Aqua Particle - красивый и простой проект, иде
 ```bash
 magnet:?xt=urn:btih:A2BA65F763DE776EB032DAD870BFC69469B3C924
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Glitch Transitions V3 - это удивительный шаблон After Effec
 magnet:?xt=urn:btih:7F1284EBECBD3AE03F8236F7FCFB48AEEA811991
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:7F1284EBECBD3AE03F8236F7FCFB48AEEA811991
 ```bash
 magnet:?xt=urn:btih:0D90C30F2513D82F328F91242264DEF4D9986E6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:0D90C30F2513D82F328F91242264DEF4D9986E6B
 magnet:?xt=urn:btih:13648A66BF64D7C26860CE00C09B8CB361DD88B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Travel Slideshow - это шаблон After effects, который может 
 ```bash
 magnet:?xt=urn:btih:5522ED38A26DB0884FF268FF3BFA5C95BF5EFCA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Paper World включает в себя все необходимое для с
 magnet:?xt=urn:btih:A80ACB44D2B311A2AA4C716833596C09674AA26A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:A80ACB44D2B311A2AA4C716833596C09674AA26A
 magnet:?xt=urn:btih:B802B6746DCA0A161A0555049C128E6964A6E263
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:B802B6746DCA0A161A0555049C128E6964A6E263
 ```bash
 magnet:?xt=urn:btih:C9F2C33ECEEBD4149B07532B86E2F0C1EC5429D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:C9F2C33ECEEBD4149B07532B86E2F0C1EC5429D5
 magnet:?xt=urn:btih:F0F730D5AA17503B005F8EC5870FBD2CA449D6C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Golden Elegance Logo - это проект премиум класса, в ко�
 ```bash
 magnet:?xt=urn:btih:36959DC91EF381C6E25C3C083E5C3F79F3C62653
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ Wedding Film Package - красивый шаблон After Effects, с проф�
 magnet:?xt=urn:btih:A594BE0060BEAA2C66FE271B9878EB1BF0ACAE6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Valentine's Day - это неповторимый способ продемон�
 ```bash
 magnet:?xt=urn:btih:E7935B7B69E2F09C76650CEB633AB89829644DB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Golden Slideshow - отличный способ продемонстриров�
 magnet:?xt=urn:btih:80C45499A62019BAF582625AD01D13E668C5DD89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Rhythmic Website Presentation - это проект, подходящий для
 ```bash
 magnet:?xt=urn:btih:5AB6151BCA32E2176FD8EED91137C980EBCAF7AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ Tropical Journey Slideshow, это многоцелевой проект, кот
 magnet:?xt=urn:btih:367E8E286534667DF643555D7DC2C8CE6F73BA51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:367E8E286534667DF643555D7DC2C8CE6F73BA51
 magnet:?xt=urn:btih:3A77A53A552FB720CE109A378C1A67CE196DC6E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:3A77A53A552FB720CE109A378C1A67CE196DC6E5
 ```bash
 magnet:?xt=urn:btih:3E01CEB7FF3AE7C7C18F07363D4AEDCB30D45AB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:3E01CEB7FF3AE7C7C18F07363D4AEDCB30D45AB3
 magnet:?xt=urn:btih:B0F084704A125DF86E849F13C3C30A2FD681D00B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ Logo Reveals 2 - это чистый шаблон After Effects с минима�
 ```bash
 magnet:?xt=urn:btih:998636224342CC32291A3D536F65131E1B2EB2D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:998636224342CC32291A3D536F65131E1B2EB2D9
 magnet:?xt=urn:btih:80DDA0A71181E6E802DE6C03465141860FA8AD5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:80DDA0A71181E6E802DE6C03465141860FA8AD5D
 ```bash
 magnet:?xt=urn:btih:DBA8FFE5E98C23CBE33CF4F331A2BD13667B2289
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ GlitchMaker Toolkit - это лучший шаблон After Effects, котор
 magnet:?xt=urn:btih:C7BA44703D07901C1723E80F02ABEECB18C25B6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:C7BA44703D07901C1723E80F02ABEECB18C25B6F
 ```bash
 magnet:?xt=urn:btih:D6B88D6917A2393FBFC2028ACA7DF42076A5A071
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

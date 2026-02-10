@@ -19,6 +19,8 @@ NGW: Дикая Франция с Рэем Мирсом / Wild France with Ray M
 magnet:?xt=urn:btih:EEAF184E7A93D648828939D82B2E2CF02AEF4605
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NGW: Секретный кубинский риф / Cuba's Secret Reef (2015) HD
 ```bash
 magnet:?xt=urn:btih:F46264C1FA33B1FEA814AB49F5EBD9FD1C06DCDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NGW: Царство больших акул / Big Sharks Rule (2018) HDTV [H.264
 magnet:?xt=urn:btih:3F15514BC47CBC2A0086DA8696F886CD6B68D71D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NG: Фараоны, которые построили Египет [2 серии
 ```bash
 magnet:?xt=urn:btih:A07BCBDCC835DE2696D91366678087D33837CAF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ NG: История города пиратов / История города п�
 magnet:?xt=urn:btih:43E27AA7719B5F842C696D524294E61E4A351E11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ NG: Бойцовский клуб для животных / Animal Fight Club (2
 ```bash
 magnet:?xt=urn:btih:6DFECD8ED02FF7F95C32B567719F27AE22F60B56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ NG: Лесное царство / Kingdom of the Forest (2010) SATRip
 magnet:?xt=urn:btih:4F8BDBE0675834F5AE0F11EB056B574C5561B280
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ National Geographic. Зона риска. Фестиваль байкеров в
 ```bash
 magnet:?xt=urn:btih:E676BE60D22F3883252D9E02985AC20858729C20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ NGW: Анаконда. Тихий убийца / Anaconda. Silent killer (2014) 
 magnet:?xt=urn:btih:3AA3630EC3E8AAA3C0298E8D2F71BD4E1B1E68E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ NG: Дикая природа Таиланда / Wild Thailand (2013) HDTVRip (2
 ```bash
 magnet:?xt=urn:btih:63E12416FBFF7B74E4E60161987EDD7727F853FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ NG: Осушить океан: Корабли-призраки Атлантик�
 magnet:?xt=urn:btih:E2919EA7915DC4AE843ADB0655BCC9CD8995B29E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ NGW: Прекрасная Америка: Величественный Севе�
 ```bash
 magnet:?xt=urn:btih:4C3C421C6B03B9F61A2296E005CC3191EC6D83E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ NGW: Намибия. Убежище гигантов / Namibia. Sanctuary of Gia
 magnet:?xt=urn:btih:65DC41DC378C49F74DAE926283E8B6DCE08B1CE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ NGW: Пума! / Puma! (2012) HDTV [H.264/1080i-LQ]
 ```bash
 magnet:?xt=urn:btih:3304ACF1E00C25C13A25938E35D445739690C760
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ NGW: Тимбавати: мир диких кошек / Timbavati: An Epic Cat S
 magnet:?xt=urn:btih:0156515CE0813BF31A49DDAF2497B114A4DB4A6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ NGW: Земля хищника / Predator Land (2019) HDTV [H.264/1080i-LQ] (с�
 ```bash
 magnet:?xt=urn:btih:A5EE173A5EDAC759215B3EEA6C487FE2EB173319
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ NGW: Рожденные в Африке. Круг жизни / Born in Africa (2
 magnet:?xt=urn:btih:8A5203B4F2939A159D014B874CB3DC518AE8A83E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ NGW: Бойцовский клуб для животных / Animal Fight Club (
 ```bash
 magnet:?xt=urn:btih:DD8DF523FDA9C79C025B104A05D3E171EDB3EAAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ NG: Враждебная планета / Hostile Planet (2019) HDTV [H.264/1080
 magnet:?xt=urn:btih:AFB450FEDDA15EF91905077FE0B6200EBB49E753
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ NGW: Кошка будущего / Future Cat (2014) HDTV [H.264/1080i-LQ]
 ```bash
 magnet:?xt=urn:btih:CBD7E0CECFB7891F5A8C3732DD493BD93E5FC24E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ NG: Последние львы / The Last Lions (2011) BDRip [H.264/576p]
 magnet:?xt=urn:btih:87BAEDE5B050E4326C3D435A2B6387C59B9C7C96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ magnet:?xt=urn:btih:87BAEDE5B050E4326C3D435A2B6387C59B9C7C96
 ```bash
 magnet:?xt=urn:btih:25ACB43B55D9DE8E24DEA2A2B9972BB2B5DA8EE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ NG. Прекрасная Америка / America the Beautiful (2022) WEB-DL [H
 magnet:?xt=urn:btih:EFE88AF1A3D20A1537C078FC819ADCE834EADD95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ magnet:?xt=urn:btih:EFE88AF1A3D20A1537C078FC819ADCE834EADD95
 ```bash
 magnet:?xt=urn:btih:1905D7C41820332C1430C6C39F01968384A55F10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ NGW: Змеи-монстры / Monster Snakes (2019) HDTV [H.264/1080i]
 magnet:?xt=urn:btih:58539BAC805051FA5F6B292BEDC9BC1FEF7C7335
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ NG. Осушить океан: глубокое погружение / Drain the
 ```bash
 magnet:?xt=urn:btih:D81EE025BB3565A5538731882E67462ED86A8B4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

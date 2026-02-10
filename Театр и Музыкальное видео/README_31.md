@@ -25,6 +25,8 @@
 magnet:?xt=urn:btih:DB2F414316ED74CB0FD62A03D49C5763F21D78CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ magnet:?xt=urn:btih:DB2F414316ED74CB0FD62A03D49C5763F21D78CA
 ```bash
 magnet:?xt=urn:btih:6639CE4ABE70F07CD626750E90EA054904C2C8D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -83,6 +87,8 @@ Gary Moore: Live At Montreux (2010) [1080i] Blu-Ray
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -106,6 +112,8 @@ Gary Moore: Live At Montreux (2010) [1080i] Blu-Ray
 ```bash
 magnet:?xt=urn:btih:70D9BA3EBEBCDB8F7418777611BC042959A38D45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -131,6 +139,8 @@ Grace Jones предстала в мире шоу бизнеса в качест
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ Grace Jones предстала в мире шоу бизнеса в качест
 ```bash
 magnet:?xt=urn:btih:17F8985D8DB057504E90314DD3E569E37AC1E2CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -179,6 +191,8 @@ magnet:?xt=urn:btih:17F8985D8DB057504E90314DD3E569E37AC1E2CE
 magnet:?xt=urn:btih:726444257FB6864030D8D7CCBE95745337A0FE50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ magnet:?xt=urn:btih:726444257FB6864030D8D7CCBE95745337A0FE50
 ```bash
 magnet:?xt=urn:btih:1CB2AF6DCF97E718BED10ABD6DE52707F3EFFC9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ magnet:?xt=urn:btih:1CB2AF6DCF97E718BED10ABD6DE52707F3EFFC9E
 magnet:?xt=urn:btih:54A44EF3144AD22A850E8C0CA96C57BEE972DD8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:54A44EF3144AD22A850E8C0CA96C57BEE972DD8E
 ```bash
 magnet:?xt=urn:btih:D27222675B28F798C312FCD15CABB4E577B4CBD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:D27222675B28F798C312FCD15CABB4E577B4CBD7
 magnet:?xt=urn:btih:C88AF25AF57C898C9E75416342D5E3A5641B1C85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ MANOWAR (USA), TARJA (Fin),  ACCEPT (Ger),  UNISONIC (Ger),  SABATON (Swe),  LOR
 ```bash
 magnet:?xt=urn:btih:5063658C00B39B3E654BE91D783EF37E2E6CB431
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:5063658C00B39B3E654BE91D783EF37E2E6CB431
 ```bash
 magnet:?xt=urn:btih:C3850D29D8F2CAFE4BD74703E45CDAF15517E8BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +383,8 @@ Heavy Metal Night - Rockpop In Concert (1983) VHSRip
 ```bash
 magnet:?xt=urn:btih:4C63DB977A93AA7FCF0A2A206D07F7FC181BD5A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +421,8 @@ magnet:?xt=urn:btih:4C63DB977A93AA7FCF0A2A206D07F7FC181BD5A8
 magnet:?xt=urn:btih:579C4FDDA43A15D021541B4A12F4BDF2DFE03B4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +449,8 @@ UK Top 40 Music Video Hits Febuary 2012 (DVD5)
 ```bash
 magnet:?xt=urn:btih:98AB80BB8F459C2F3A243268EC65BC0167E964ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +479,8 @@ magnet:?xt=urn:btih:98AB80BB8F459C2F3A243268EC65BC0167E964ED
 magnet:?xt=urn:btih:9FB0E1BF5CE4D7377C97C698D3A0C6E29DDF0C44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +507,8 @@ magnet:?xt=urn:btih:9FB0E1BF5CE4D7377C97C698D3A0C6E29DDF0C44
 magnet:?xt=urn:btih:EF0C394640A5F1ACD8A6DEA8EB19BEBE622F95E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +533,8 @@ magnet:?xt=urn:btih:EF0C394640A5F1ACD8A6DEA8EB19BEBE622F95E2
 ```bash
 magnet:?xt=urn:btih:574A9B43AA7475B8BCE9EE20C0BFCBAAB2DC0C2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +562,8 @@ Gregorian - Christmas Chants & Visions - Live in Berlin (2008) DVD9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +598,8 @@ Santana were founded in the late sixties and came into the spotlight following t
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +623,8 @@ Santana were founded in the late sixties and came into the spotlight following t
 ```bash
 magnet:?xt=urn:btih:4E2BD4B4831F11BDB251493CF159B8979CFD7A30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +650,8 @@ magnet:?xt=urn:btih:4E2BD4B4831F11BDB251493CF159B8979CFD7A30
 ```bash
 magnet:?xt=urn:btih:D09B742AFC7BA32399B0D5DCCEF09BBCB124E70B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +685,8 @@ magnet:?xt=urn:btih:D09B742AFC7BA32399B0D5DCCEF09BBCB124E70B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -662,6 +710,8 @@ DVJ Bazuka - Omen (Uncensored) (2012) [WMV] WEBRip
 ```bash
 magnet:?xt=urn:btih:7E5ABA7FD3F4D27FAD664EF2920C8CD60383587B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -695,6 +745,8 @@ DVD1
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

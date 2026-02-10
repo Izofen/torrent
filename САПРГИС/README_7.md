@@ -19,6 +19,8 @@ Keysight Advanced Design System 2026 Update 1 [En]
 magnet:?xt=urn:btih:AD9718FDE5B7F4F488826B4912B863062B8504A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ PSIM - программа для проектирования и моделир�
 ```bash
 magnet:?xt=urn:btih:18155F363671998CEEC45159B56F8E6D9EF5BE52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ SkyCAD Electrical Pro 1.3.61.23785 [En]
 magnet:?xt=urn:btih:35E07F8CBA9E1D1DB9C9FB0E1A1D2DE3D594EBEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Altium Designer — это мощная система, позволяющая �
 magnet:?xt=urn:btih:1E05B28A17DFBC877027F4475769E18D3DF96AA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ DipTrace - это многофункциональная САПР по разр�
 ```bash
 magnet:?xt=urn:btih:CC14D825E6A4911C88666D28A747BE54CE0AF0AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ TopSolid 7 объединяет автоматизированное проек�
 magnet:?xt=urn:btih:9E1D485244E28CDE9DE51B41C2EB2FEAE7B1FC34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ QSPICE 2026.1.4 [En]
 ```bash
 magnet:?xt=urn:btih:51FBE9785903EA3D7B1AD7292DAB97FF5A1DEE37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ InfineonSpice 2025.04.1 [En]
 magnet:?xt=urn:btih:CE3993134B71CA9A9CCE363F24C93EF52C3E8CAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:CE3993134B71CA9A9CCE363F24C93EF52C3E8CAE
 magnet:?xt=urn:btih:06E6E8C92357AD20C71A1857EC3C6211DAB0D504
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ nanoCAD – первая отечественная базовая САПР-пл
 ```bash
 magnet:?xt=urn:btih:ABC4C548DDB3B3E3C4574EDF6C5F6DCE88B1AA76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ DYMOLA (Dynamic Modeling Laboratory) является средством для 
 magnet:?xt=urn:btih:669181B1B626251733DEFA6F1667947B93B8FCBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ SimulationX разработан инженерами для инженеров,
 magnet:?xt=urn:btih:483DD6BFD6C94894007637F86C09B0A0902450BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Amesim предлагает инженерам интегрированную п
 ```bash
 magnet:?xt=urn:btih:1B1EA58DD218AB5542C8C75FAFE38FD78190E5B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

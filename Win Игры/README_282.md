@@ -19,6 +19,8 @@ Franchise Hockey Manager возвращается в сезоне 2022–2023 г
 magnet:?xt=urn:btih:10A3773B052F79055A99C3B032F853FA21A36AC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Coffee Talk Episode 2: Hibiscus & Butterfly (2023) [Multi] (1.11) License GOG
 ```bash
 magnet:?xt=urn:btih:0BB21D1C3390DD482036B075EC8D962D89236750
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Mystical Riddles 3: Ship From Beyond / Мистические загадки 3: 
 magnet:?xt=urn:btih:2FC08C72BB1A68C5C0B205BC0715FE3D0CF8A982
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Probo Rush захватывающая и насыщенная действиям
 ```bash
 magnet:?xt=urn:btih:9808944124E7B8331DEC0CDC3C4B6AF53C69FF16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Beacon Pines - это милое и одновременно жуткое при
 magnet:?xt=urn:btih:785150783A085CF294FE4B48D7B675B5BE8CFE69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Starless использует научно-фантастический сетт
 ```bash
 magnet:?xt=urn:btih:3F1EBC5C39E3B0BDEE896779A7DB5CDDEA28A352
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Nobody Saves the World (2022) [Ru/Multi] (31300/dlc) License GOG
 magnet:?xt=urn:btih:A56A114EF3E3ADBC32D985A3D6D2B96CEAA847BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Ms. Holmes 4: The Case of the Dancing Men / Мисс Холмс 4: Дело о �
 ```bash
 magnet:?xt=urn:btih:B92DE7F5BA949BB568B683D3D242A3C5B977DEDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Volcano Princess (2023) [Multi] (2.01.05) Scene Tenoke
 magnet:?xt=urn:btih:9DD946DC8742E009C09B1017D53D89CF58A539A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Full Moon Rush - это энергичный скролл-шутер, в кот�
 ```bash
 magnet:?xt=urn:btih:03D88E54FB93F037C668C912076E372E26CB06C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Dark City 8: Kyiv (2023) [En] (1.0) Unofficial [Collector's Edition]
 magnet:?xt=urn:btih:711A375948E07BD8CAF8D21F0B536D8F88E9B85C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Tennis Manager 2023 - это проработанный спортивный с�
 ```bash
 magnet:?xt=urn:btih:B1006BB2571DB68FC81F38AE61973675C30654D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Class of '09 (2021) [En] (1.0) License GOG
 magnet:?xt=urn:btih:FC67D39779D86C935FE336970201BCE0E499A648
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Farming Simulator 22 (2021) [Ru/Multi] (1.11.0.0/dlc) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:FC503B92DE036E2B04581D6A5938C7E98649BBCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Koa and the Five Pirates of Mara (2023) [Multi] (1.2.1s) Scene Tenoke
 magnet:?xt=urn:btih:37D4CC1449A29073D838541227326E010AD3FF77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ One Dreamer – это проникновенная инди-игра о соз�
 ```bash
 magnet:?xt=urn:btih:11C59F00A6320CC0A67157466E1D9BE7E9C3CB2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Cursed House 11 / Проклятый дом 11 (2022) [Ru] (1.0) Unofficial
 magnet:?xt=urn:btih:A1247DD532D21672333DE9AD36DC675D1B3A2236
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Ghost 1.0 - научно-фантастический экшен-платфор�
 ```bash
 magnet:?xt=urn:btih:78DC1A3C0DA65D9871DD8BDD68C85BF655F6CE76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Cursed Fables 3: A Voice to Die For / Проклятые предания 3: Г�
 magnet:?xt=urn:btih:A814233A5DFF04DC07738A8D895E79ABA4A4A7C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Sylphy and the Sleepless Island повествует о приключениях
 ```bash
 magnet:?xt=urn:btih:28083C0D28A822EC37FC187425FF54F74F5E90C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Split (2022) [Ru/Multi] (0.9.20) License GOG [Early Access]
 magnet:?xt=urn:btih:CF5241622F35A4D57542086D68721DD323777B09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Foretales (2022) [Multi] (1.1.4127) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:DA75E33208F53BC67B139A81F3260E0C357D58D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ It Happened Here 2: Beacon of Truth (2023) [En] (1.0) Unofficial [Collector's Ed
 magnet:?xt=urn:btih:1A20C2ACC5C8FF5E5519AFD249D90651DD5C952D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Ultimate Fishing Simulator (2018) [Ru/Multi] (2.20.9500/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:47A47F8B304F5395578DB07B861951617DA43C19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Viking Heroes 3 / Герои викинги 3 (2022) [Ru] (1.0) Unofficial [Coll
 magnet:?xt=urn:btih:E5E3EC70BD2CB19D1F5D1556D6D29F591EAC58CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ King of Retail (2022) [Ru/Multi] (1.0.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:9D277D003E0124F271C728229C1201C1C3DFE60B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

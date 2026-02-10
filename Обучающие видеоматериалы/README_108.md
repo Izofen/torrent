@@ -21,6 +21,8 @@ Enhance your skills - become a professional level Solutions Architect and pass t
 magnet:?xt=urn:btih:E7CA89025EC1FA045C8C382AC621CB430A91C09F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Vaporwave - это одновременно музыкальный и визуа
 ```bash
 magnet:?xt=urn:btih:ADD2F32C377C3144169F55F2073D29EF87B1A709
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ TutorOnline, Василий Рустамович | Курс по высшей м
 magnet:?xt=urn:btih:EC40B2C71004045E0CFD878DFFA982369533B8B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:EC40B2C71004045E0CFD878DFFA982369533B8B1
 magnet:?xt=urn:btih:457DC094E0C129D1B7B2B2C739F5BC528C28891C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ Udemy, Sime Bugarija | Complete Blender beginner workflow for Cinematic animatio
 magnet:?xt=urn:btih:69C62B66C7F518E8B0DE2F3F59D29AE42350DCE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ Gumroad, Rachel | Modeling a Scifi Helmet in Blender 2.8 (2020) PCRec [EN]
 magnet:?xt=urn:btih:E2EDF0B226718AB56BF7CADAFF3BFA9C0764C05F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ YouTube, Rachel | Scifi Hardsurface Glove Time-Lapse in Blender 2.9 (2022) PCRec
 ```bash
 magnet:?xt=urn:btih:C7B732D69B7C384FCC03886B8715ABC2AB0A5835
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ Udemy, Victor Deno | Blender: Ultimate Game Art Creation Guide (2022) PCRec [EN]
 magnet:?xt=urn:btih:3F21F5916B5F914C1F5933C58CFBF4FFD56D2AB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ Udemy, Jose Moreno | Blender & Substance - Modeling and Texturing Videogame Prop
 ```bash
 magnet:?xt=urn:btih:BDA46F046FE9F693E9FC9C92E5C501F642C1CCD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ Deep dive into the architecture view for each AWS (   Читать дальше
 magnet:?xt=urn:btih:61C37122F281E64030D6A13C68278683624268A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ Udemy, Ali Ncir | Blender 2.8 and Substance Painter - 3D Modeling Game Assets (2
 magnet:?xt=urn:btih:8F4A767F5A58213D8631E94779BEA178D965D511
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ Learn PyTorch. Become a Deep Learning Engineer. (   Читать дальше..
 ```bash
 magnet:?xt=urn:btih:6D12CEFDAE34EA79162B9012763E0B0CEE59C431
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +352,8 @@ ArchDialog | 99 летних вебинаров для дизайнеров ин
 magnet:?xt=urn:btih:C71B2659A338EBF2AB2E767117C47D35EAFDADA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ Udemy, Nexttut, Nikolay Naydenov | Male Character Creation in Zbrush (2019) PCRe
 ```bash
 magnet:?xt=urn:btih:15B48BB693CD484319122F7801807EA9465EB290
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +408,8 @@ Udemy, Grim Future Studio | Unreal Engine - базовый курс №2. От �
 magnet:?xt=urn:btih:4DC0D9D8BB6A47FECFFCA808C2FE690270ADB496
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +435,8 @@ magnet:?xt=urn:btih:4DC0D9D8BB6A47FECFFCA808C2FE690270ADB496
 magnet:?xt=urn:btih:65BAE3CB69E99F65A308D26144D4593753530452
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +460,8 @@ Cubebrush, Marc Brunet | Ultimate Career Guide: 3D Artist Part 1-7 (2018) PCRec 
 ```bash
 magnet:?xt=urn:btih:339B3D6DF7F981DF137410DC297EEA67AE7112C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +490,8 @@ Deutsch Online | Большой грамматический интенсив A2
 magnet:?xt=urn:btih:ED14B765CF78CA9859E0F29CA4D7757C6D33BFD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +518,8 @@ Deutsch Online | Большой грамматический интенсив В
 ```bash
 magnet:?xt=urn:btih:85E34E968DC1F40D540D2B1D97B5AA665E797139
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +548,8 @@ Skill Cup, Максим Ильяхов, Родион Скрябин | Бренд
 magnet:?xt=urn:btih:C8CFC65F20DB2991880B4372DC3F566D4DD0A790
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +576,8 @@ Udemy, Ben Tristem, Sam Pattuzzi | Unreal Engine Blueprint Game Developer: Learn
 magnet:?xt=urn:btih:68842553E74FB7D3E3CDA1FFC1494C846699637C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +602,8 @@ The Gnomon Workshop, Kristin Farrensteiner | Creating Creature Hair & Fur Grooms
 magnet:?xt=urn:btih:FD9DD00D94A085B4ACDD4E056D8407D19725C025
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +627,8 @@ The Gnomon Workshop, Nick Reynolds | Creating Props for Games (2017) PCRec [EN, 
 ```bash
 magnet:?xt=urn:btih:3C75C40D5E0BA87F266CBD08AED3C11BCBFCFC45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +657,8 @@ GlobalDigitalSpace запускает цикл лекций с Алексеем 
 magnet:?xt=urn:btih:54C501CF18048539EDA5EEA98306FF986A543C76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +684,8 @@ Udemy, Victory 3D, Corazon Bryant | Female Game Character Creation in Blender Co
 ```bash
 magnet:?xt=urn:btih:3D0A6D14408B1CEF59344AC73547414DBECE5A3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -663,6 +713,8 @@ magnet:?xt=urn:btih:3D0A6D14408B1CEF59344AC73547414DBECE5A3B
 ```bash
 magnet:?xt=urn:btih:D05CCBD978B23523554934AC2E0491333D288B92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

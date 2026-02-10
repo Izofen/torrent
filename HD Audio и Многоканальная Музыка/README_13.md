@@ -22,6 +22,8 @@ Liv Sin - Close Your Eyes (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 magnet:?xt=urn:btih:6D128B29E081F4C5C0A3196835F303AF10FB0421
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ B2 - Like A Perpetual Funeral(   Читать дальше...   )Жанр: Doom,
 ```bash
 magnet:?xt=urn:btih:7F593CED2C587AC2E79F1DA820378594F985D6CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Mr. Saxxy and the Funkaholix - The Dusty Tape Sessions (2025) [FLAC 24/48|Lossle
 magnet:?xt=urn:btih:E507B1B0EC4660E3CD396DB267BE1D553CF004DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Pawlo-X Sax - Smooth Jazz Summer 2025 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:95D8E70AD7B157A4D3A8C75ACC177DD404A5558B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Leah - (Leah McHenry) Лиа МакГенри, известная под псе�
 magnet:?xt=urn:btih:FB48463A61754806ED3BA12E4EA291E05A389F95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ A4 Pisces(   Читать дальше...   )Жанр: Blues Rock, Hard RockПр
 ```bash
 magnet:?xt=urn:btih:8C00C372180E6E3E917A5629FBEF4DFACD0D3B79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -185,6 +197,8 @@ Motograter — американская метал-группа, образов�
 magnet:?xt=urn:btih:7E8FAE7F357EBC168F1DF10B2D5702C6196A815F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ Presto Ballet — прогрессив-рок-группа, основанная
 ```bash
 magnet:?xt=urn:btih:CA23955C9229958F8F94D6C8E3BB1722BC335FC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +255,8 @@ Evanescence («исчезание», «мимолётность») — амер�
 magnet:?xt=urn:btih:83F98183A290A7421AFFC6F6F64DC463CAE7B4F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +283,8 @@ Chaos Magic - хэви-метал проект, созданный Катери�
 ```bash
 magnet:?xt=urn:btih:30181E5CEE86954F23E78EEFACCC9106E424D2D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +313,8 @@ John Skelley - We Were Lightning (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Roc
 magnet:?xt=urn:btih:AA0EC9A49E2ADFB7587F02CA2B652E666415834A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +341,8 @@ LP4, Close To You, MFSL 1-132, (mono)Жанр: Vocal, Ballad, SwingПродол�
 ```bash
 magnet:?xt=urn:btih:C0EFF431D62180F064DFD29AFE03DE9621067AB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +371,8 @@ Pink Floyd — одна из самых великих групп в истор�
 magnet:?xt=urn:btih:0D6315DB1502077BAA5A1EC716C15CE0D8591D6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +399,8 @@ Sting - Collection (1985-2006) [DSD 128|tracks, image + .cue|Vinyl-Rip] <Soft ro
 ```bash
 magnet:?xt=urn:btih:82900E2275BEF4CFCCC364933E049698093EE7BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +430,8 @@ Supermax - Collection (1977-1990) [DSD 128|tracks, image + .cue|Vinyl-Rip] <Disc
 magnet:?xt=urn:btih:58DF6D39AE8A45904FA395B0ABE78E0191C99F1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +458,8 @@ Roger Waters - Roger Waters: This Is Not A Drill (Live From Prague May 2023) (20
 ```bash
 magnet:?xt=urn:btih:6EDC1998DC4307560EC3B35AEB107C0456DC1743
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +488,8 @@ Boney M. (Бони Эм.) — диско-группа, созданная в 197
 magnet:?xt=urn:btih:80E497E45FC1067CF3A187122EB9B623ED2B2C0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +516,8 @@ Chilly - западногерманская диско-группа, получ�
 ```bash
 magnet:?xt=urn:btih:EE2CE49C8A6B9A610D19041CA169C0EC62E0F40E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +546,8 @@ Chris Rea - Collection (1979-2017) [DSD 128|tracks|Vinyl-Rip] <Rock>
 magnet:?xt=urn:btih:50009BAFDBF26E5F2C1116A906A253F5F502315C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +574,8 @@ A3 高橋洋子 - 魂のルフラン / Yoko Takahashi (   Читать даль
 ```bash
 magnet:?xt=urn:btih:F2ACC00C21EADC6F64FB29EF100222FE5DE2E929
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +604,8 @@ Folk Bitch Trio - Now Would Be A Good Time (2025) [FLAC 24/96|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:20C333D85260B76EB9385A0C051681AFCC95280D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +633,8 @@ Yello (Йеллo) — швейцарская электронная группа
 magnet:?xt=urn:btih:18CA75CFE6613C2FE66937F4BEDCA25C0B9364FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +660,8 @@ magnet:?xt=urn:btih:18CA75CFE6613C2FE66937F4BEDCA25C0B9364FA
 ```bash
 magnet:?xt=urn:btih:E3E6F03F6667EA84FADC95BE0E7C7B5C51A71D1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +690,8 @@ Alice Cooper - Studio Albums (11 releases) (2000-2025) hand made [restored, decl
 magnet:?xt=urn:btih:337B9A6467C9EA3D2E96A4BE3B173C5DC96C91DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -671,6 +719,8 @@ Madonna - Veronica Electronica (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop, 
 magnet:?xt=urn:btih:79EDA56A15ACC6A787C2016059667C7CCEF764C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -697,6 +747,8 @@ Ozzy Osbourne - 10 студийных альбомов (1980-2020) [DSD 128|trac
 ```bash
 magnet:?xt=urn:btih:AF50FA6C30CF66CF2F70C21F5E864D30F7B51211
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

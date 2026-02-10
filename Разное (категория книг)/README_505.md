@@ -1,3 +1,29 @@
+###  Публикация: 1214045   (765672) от 20.03.2018
+
+Кэролайн Уилльямс | Мой продуктивный мозг. Как я проверила на себе лучшие методики саморазвития и что из этого вышло (2018) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765672.jpg" />
+</div>
+
+
+###  Подробнее
+
+В очередной раз, опоздав на встречу в новом кафе, вы шутите, что страдаете географическим кретинизмом? Связки ключей разложены по всем сумкам и курткам, но вы их все равно не можете найти, когда нужно? Постоянно забываете, когда день рождения у свекрови и годовщина вашей свадьбы? Не отчаивайтесь, это лечится! Кэролайн Уилльямс, журналист и редактор, взяла на себя (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12556ED079693CD5D8F89B163913805FE5BE1391
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1521280   (765856) от 01.01.2022
 
 Книжная серия | «Кулинария. Домашний кондитер» [11 книг] (2020-2022) [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:1D50B6A0B796E85364FAD0082DBB3DD41F2A5055
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:1D50B6A0B796E85364FAD0082DBB3DD41F2A5055
 magnet:?xt=urn:btih:FDD8EC39F8C94EFB3EC9F4D6FA1D3F88ADC9E1C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:FDD8EC39F8C94EFB3EC9F4D6FA1D3F88ADC9E1C2
 ```bash
 magnet:?xt=urn:btih:DAEBB3E139A8A9981C7CF6CA63CD5CB240A9F4B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:DAEBB3E139A8A9981C7CF6CA63CD5CB240A9F4B8
 magnet:?xt=urn:btih:C691CAC03466947E511B4C991F81A68B0DC2FF29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:C691CAC03466947E511B4C991F81A68B0DC2FF29
 ```bash
 magnet:?xt=urn:btih:CA00171C9A681F1812D207E85A81D8D0747F7A84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:CA00171C9A681F1812D207E85A81D8D0747F7A84
 magnet:?xt=urn:btih:8082DD28AB5752BDA339A11C1A044788BF48437F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:8082DD28AB5752BDA339A11C1A044788BF48437F
 ```bash
 magnet:?xt=urn:btih:27928F060513507E2B70DF5C65AB5E2CAC528965
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:27928F060513507E2B70DF5C65AB5E2CAC528965
 magnet:?xt=urn:btih:39D90BE7BE7452ADC78EB9CE4387795F7508394A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:39D90BE7BE7452ADC78EB9CE4387795F7508394A
 ```bash
 magnet:?xt=urn:btih:2CDB6DA99C83FDB58E6CF7F78B3FCE5904532F0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:2CDB6DA99C83FDB58E6CF7F78B3FCE5904532F0F
 magnet:?xt=urn:btih:A47CC92F1FB9129D637200AF6550BB13135878F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:A47CC92F1FB9129D637200AF6550BB13135878F3
 magnet:?xt=urn:btih:FE65619622DB3CEE5058713E9F0D9F0A506E318B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:FE65619622DB3CEE5058713E9F0D9F0A506E318B
 ```bash
 magnet:?xt=urn:btih:4EFB4F77D74EE2271E7F98C80BAFA6EFCF2D29F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:4EFB4F77D74EE2271E7F98C80BAFA6EFCF2D29F4
 magnet:?xt=urn:btih:BCE7C8BAD50FB6CE200F470652A29578336BB63C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:BCE7C8BAD50FB6CE200F470652A29578336BB63C
 magnet:?xt=urn:btih:1D99F6C14906BA912E7A2FE1ED8A834E83EEF512
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:1D99F6C14906BA912E7A2FE1ED8A834E83EEF512
 ```bash
 magnet:?xt=urn:btih:BFE4A9E79F2F68B4FA57A7DBB39FA9C0DC454365
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:BFE4A9E79F2F68B4FA57A7DBB39FA9C0DC454365
 magnet:?xt=urn:btih:05D11E5B3ED65809BC201E18FB8B674635B68BEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:05D11E5B3ED65809BC201E18FB8B674635B68BEF
 ```bash
 magnet:?xt=urn:btih:C5F3EEF5F688FF7A0576B91A639BEC444A9D6019
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:C5F3EEF5F688FF7A0576B91A639BEC444A9D6019
 magnet:?xt=urn:btih:1C34F9D4B713133EB89F537549B8318A46FCBC25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +518,8 @@ Spyderco | Каталог ножей Spyderco (2017) [PDF] [En]
 magnet:?xt=urn:btih:2A0EBDB76252E5C3F04383F353F0DC56B7AA5971
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:2A0EBDB76252E5C3F04383F353F0DC56B7AA5971
 ```bash
 magnet:?xt=urn:btih:F90D41371AAC0FFC6545F48C67A86466EB9F17A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:F90D41371AAC0FFC6545F48C67A86466EB9F17A5
 ```bash
 magnet:?xt=urn:btih:8D011A8BC17BED40437B714CDBA94815B6FAF841
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:8D011A8BC17BED40437B714CDBA94815B6FAF841
 magnet:?xt=urn:btih:8568E91D6C9018ED22AF87DC013C9771DD4ABA9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:8568E91D6C9018ED22AF87DC013C9771DD4ABA9D
 magnet:?xt=urn:btih:A5D75786B3944ECA82E0B067FA47633A6D8A2CEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +654,8 @@ magnet:?xt=urn:btih:A5D75786B3944ECA82E0B067FA47633A6D8A2CEE
 ```bash
 magnet:?xt=urn:btih:4466C7E315B594630FB92C14D53DF36BB0C826D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,29 +681,7 @@ magnet:?xt=urn:btih:4466C7E315B594630FB92C14D53DF36BB0C826D5
 magnet:?xt=urn:btih:A5DC023680E7740B4E20D189B8389E38F244BC51
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126228   (766289) от 17.04.2017
-
-Татьяна Борщ | Лунный посевной календарь на 2017 год (2016) [RTF, FB2]
-
->>Разное (категория книг)
->>Эзотерика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перемещения фаз Луны оказывают огромное влияние на развитие и рост всех растений и плодов, выращиваемых вами на приусадебном участке. Ваш урожай будет обильным, если выполнять все работы в соответствии с благоприятными фазами Луны. В этом лунном посевном календаре на 2017 год вы найдете точные даты вхождения Луны в знаки зодиака, а также советы – как, когда и какие (   Читать дальше...   )Жанр: Справочники, эзотерика, сад и огородФормат: RTF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B83DD2326E0E92318244A9CBBE49C58BC497868A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

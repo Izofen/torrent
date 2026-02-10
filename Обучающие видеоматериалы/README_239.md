@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:C434BA6CF4665510F8E702FC4F953962F450326E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:C434BA6CF4665510F8E702FC4F953962F450326E
 magnet:?xt=urn:btih:D875FDFC001748A6D98248B59882F75D04B21DAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ Liveclasses, Дмитрий Ларионов | Работа с разными р
 ```bash
 magnet:?xt=urn:btih:10EA2FE238A83F8BAF6069FE3459E0330133D5A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:10EA2FE238A83F8BAF6069FE3459E0330133D5A8
 magnet:?xt=urn:btih:B02B2A57C698E78279AD9EAF6E65F3742FE5EC74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Liveclasses, Дмитрий Ларионов | Работа с разными р
 ```bash
 magnet:?xt=urn:btih:1FAFD816653EB4EB6147E16E53279700B3C61914
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ Jose Portilla | Complete Python Bootcamp: Go from zero to hero in Python 3 (2019
 magnet:?xt=urn:btih:A7E51382795BB216B67B775B0D56A56AFB6A7752
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ ITVDN | iOS Developer (2015-2020) PCRec [H.264/1080p,720p-LQ]
 ```bash
 magnet:?xt=urn:btih:775F703EA01E669E9C079453AFA451C8F1B7D092
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ Edwin Diaz, Coding Faculty Solutions | PHP for Beginners - Become a PHP Master -
 magnet:?xt=urn:btih:5132DB8740F86B063426AC45EFFE825F6DE014B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:5132DB8740F86B063426AC45EFFE825F6DE014B3
 ```bash
 magnet:?xt=urn:btih:77F140CB5DE11D38EC9266D820BFA69286CF4645
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ Profileschool | Съёмка города в режимное время: инт
 magnet:?xt=urn:btih:BB2025092B0715E5AA525F8A28050B833519A877
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:BB2025092B0715E5AA525F8A28050B833519A877
 magnet:?xt=urn:btih:CE1AE2AC16AE8F78F8DDC699E86F9630088F357F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ Geekbrains | Java. Практическое применение (2015) PCRec [H
 magnet:?xt=urn:btih:845500A7F0F7EBD1D7AD3079DEE2853A657FFD14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ Profileschool | DaVinci Resolve 11 Lite. Базовый уровень (2015) PC
 ```bash
 magnet:?xt=urn:btih:8007A04C6074C0CABBCBAE1298E08D63C448AA1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:8007A04C6074C0CABBCBAE1298E08D63C448AA1C
 magnet:?xt=urn:btih:49AE09E98DD9E56FC1CEF189893D3C1FC53D5943
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:49AE09E98DD9E56FC1CEF189893D3C1FC53D5943
 magnet:?xt=urn:btih:EA0E1B4E45E0967782E57E45557EE5CFC6F0DCC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:EA0E1B4E45E0967782E57E45557EE5CFC6F0DCC0
 ```bash
 magnet:?xt=urn:btih:6EC8EB61D26CD6BEA02C8C7DB360C29E011A3328
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ magnet:?xt=urn:btih:6EC8EB61D26CD6BEA02C8C7DB360C29E011A3328
 magnet:?xt=urn:btih:C2DDEF71571742FE12B9A8A326E88A198FFC82FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ magnet:?xt=urn:btih:C2DDEF71571742FE12B9A8A326E88A198FFC82FB
 magnet:?xt=urn:btih:711756ABFFFB4CAFFF459A0735B3D2516E6F26FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +512,8 @@ magnet:?xt=urn:btih:711756ABFFFB4CAFFF459A0735B3D2516E6F26FC
 ```bash
 magnet:?xt=urn:btih:0A6E545E99C05AD0A279F9D6663E8CC0D7C717DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +540,8 @@ magnet:?xt=urn:btih:0A6E545E99C05AD0A279F9D6663E8CC0D7C717DC
 ```bash
 magnet:?xt=urn:btih:13EA009B846FFD0758B9F4C40EC493D5F5EAC229
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +570,8 @@ magnet:?xt=urn:btih:13EA009B846FFD0758B9F4C40EC493D5F5EAC229
 magnet:?xt=urn:btih:BE211A7D1401EC92DD90264ADFBBDE074F183B3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +595,8 @@ kalachevaschool, Калачева Вероника | Ла-Ла Курс (2017) P
 ```bash
 magnet:?xt=urn:btih:7385EFB7EA0177D5CA626657BB9EFD316DEF3262
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +623,8 @@ magnet:?xt=urn:btih:7385EFB7EA0177D5CA626657BB9EFD316DEF3262
 magnet:?xt=urn:btih:1B85A116E0AB65AF9AE28D70F4819C468B91D4D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +649,8 @@ C# стабильно входит в ТОП-10 наиболее популяр�
 ```bash
 magnet:?xt=urn:btih:79BDD5A6423145B712B75B82918E6DFBDAE2AA92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +678,8 @@ Pluralsight - это онлайн-платформа для обучения и 
 magnet:?xt=urn:btih:BC5F2375AB4E50ECABA69EE65D4DAEA3863C7EA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ CGMA, Dmitrij Leppee | Character Facial Sculpting Week 1-2 (2020) PCRec
 ```bash
 magnet:?xt=urn:btih:151D0B0380DA01DB5643D7011C8B5C4534EFD712
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

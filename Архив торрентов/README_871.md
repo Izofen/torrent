@@ -19,6 +19,8 @@ Speedtest - это приложение предназначено для опр
 magnet:?xt=urn:btih:9FE5500F973AA65CEB1CA18077E4B2F81C1A1BA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Opera One 108.0.5067.29 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:2228016D345A9758629FEC7A60F4689EA343845D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ RSS Guard предоставляет строгий и лаконичный по
 magnet:?xt=urn:btih:06D80D5BB03777835824E68EC800574668FD501D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ XYplorer – удобный многовкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:B0DF8E55F862609566EE9C83F474FAB68562222C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Speedtest - это приложение предназначено для опр
 magnet:?xt=urn:btih:1EF63AA46F18BF19743850DFD9AAC85342957BD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ PDF Shaper Premium / Ultimate 14.0 RePack (& Portable) by Dodakaedr [Ru/En]
 ```bash
 magnet:?xt=urn:btih:C1D17BD46C7B84EC7D1C1761404046E934F10985
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Sumatra PDF — мощная, небольшая программа с прос�
 magnet:?xt=urn:btih:CB01223230B2AE82201B8418EA4DD100F5BD12C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Opera One 108.0.5067.29 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:37CAD5D2604028E40007C239D7B55336F7CBAD1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ WiFiSpoof - небольшая утилита, которая поможет в�
 magnet:?xt=urn:btih:9754D7D5379CBB6FB03A9062053F54E70523E6A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Cookie - (   Читать дальше...   )Тип издания: macOS Softw
 ```bash
 magnet:?xt=urn:btih:557EF3E3135314D86F1039C88AD6CF2EC3A96FB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ Opera GX - это специальная версия браузера Opera, с
 magnet:?xt=urn:btih:62AD8481CB6E5DED2815DAF9027309E96D4158D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ System Dashboard Pro — это современная интерпретаци�
 magnet:?xt=urn:btih:1EBC9FE8EB66830C4981217B9DBAE0B4EC5E3CB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:6DE2A118C92C79F01E5FE6484CF6968C247BAFE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:E67603AE71CFA6D42733024C270C037A96D0CAE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:5BA64A177B8D2243BE38BC45BB104E2C3FEAA2A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:F1C1DF3EF75E693CBFDAD0C16DB87C85A9AEC461
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Brave - защищённый веб-браузер на базе Chromium, по�
 ```bash
 magnet:?xt=urn:btih:7DE687DC4D91F6CDB370A630F4E73AC786C93375
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ RSS Guard предоставляет строгий и лаконичный по
 magnet:?xt=urn:btih:0457C16DAD46F1C83D6DA6C10B267D443AEF5ABC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ Visual Studio Enterprise 2022 - Интегрированное комплекс�
 ```bash
 magnet:?xt=urn:btih:14D077CFF30E07D76025564C4C66443F4B05B3BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ PDFCreator –  бесплатная программа для конверти�
 magnet:?xt=urn:btih:44EFCA2A280C6F8CC6BC56F71C13396444DB1085
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ BetterMouse — это утилита для macOS, улучшающая про�
 ```bash
 magnet:?xt=urn:btih:DA3C6C8F97FB97331223D093F38350C9AFEF4B66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ PullTube 1.8.5.28 [Multi/Ru]
 magnet:?xt=urn:btih:0BF0940BF5ED744A8456C584F4B23D00D0352B27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ Allavsoft Video Downloader Converter поддерживает загрузку �
 ```bash
 magnet:?xt=urn:btih:FCCF4DFAA60A14BE2D392FC886A6EB1FD5D69915
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:FCCF4DFAA60A14BE2D392FC886A6EB1FD5D69915
 magnet:?xt=urn:btih:0B18515AA1D828C6B5365C48652A00F66C035BD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:0B18515AA1D828C6B5365C48652A00F66C035BD4
 ```bash
 magnet:?xt=urn:btih:399048BA8C5E3B2F44014616D7BA1FA004AD0C2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +677,8 @@ FxFactory Pro включает  фильтры, генераторы и пере
 ```bash
 magnet:?xt=urn:btih:B51625200BF6FD45BA69AC665C29B6CDDD832E16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

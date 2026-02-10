@@ -1,27 +1,3 @@
-###  Публикация: 1279938   (763201) от 01.02.2019
-
-Warhammer Quest 2: The End Times (2019) [Ru/Multi] (1.0) Repack xatab
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763201.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Warhammer Quest 2: The End Times вы проведете свой отряд через объятые войной земли и отправитесь в подземелье за славой и сокровищами! Мечом, стрелами и заклинаниями пробивайтесь сквозь ряды порождений Хаоса, которые грозят миру Warhammer.Тип издания: RepackРазработчик: PerchangЖанр: 3D, StrategyЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8463FF1C42CC76C4488AD645E68E82645C30E7D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1521866   (763326) от 04.01.2022
 
 Grim Tales 21: Echo of the Past / Страшные сказки 21: Эхо прошлого (2021) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -42,6 +18,8 @@ Grim Tales 21: Echo of the Past / Страшные сказки 21: Эхо пр�
 ```bash
 magnet:?xt=urn:btih:82C31E4F1B1EE3753BA7A6B450E5AE6D47988655
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ The Christmas Spirit 5: Golden Ticket / Дух Рождества 5: Золот�
 magnet:?xt=urn:btih:54BA42021A2F9B84C3E5817EACA42C9D87BD1D09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +71,8 @@ The Cursed Forest (2019) [Ru/Multi] (1.0.6) Repack xatab
 magnet:?xt=urn:btih:01769C5EBBD1B41C1068C956D062A19648D80038
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +96,8 @@ Greed 3: Old Enemies Returning (2017) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:9B0D2C20FD98723A5F66934D8E3FEBEC8F825C5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +124,8 @@ Ghost of a Tale рассказывает историю отважного мы�
 magnet:?xt=urn:btih:D88E1CD5791540ED40F24E38445B777AD7385F9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +149,8 @@ Nanoui (2018) [En] (1.0.1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:61C20CE78A9B504F7AEFDE9E1EF493BBB6795370
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +176,8 @@ Paranormal Activity: The Lost Soul – приключенческая игра �
 magnet:?xt=urn:btih:937065B5C5E1EA3232B4862E4567A315973919C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +201,8 @@ Pizza Connection 3 (2018) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F18F4330B6EE19B9FC3866D772C6CF2470FA8F5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +228,8 @@ XCOM 2 - WOTC Customization Pack [Ru/En] Mod firstlast2
 magnet:?xt=urn:btih:854746824AA73801D11D9E59523EBB05E5775059
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:854746824AA73801D11D9E59523EBB05E5775059
 ```bash
 magnet:?xt=urn:btih:A3A5F3CBFF49F5C31D815DB9065733D3B994E157
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +280,8 @@ Trackmania Turbo (2016) [Ru/Multi] (2016-03-23_18_29) Repack =nemos=
 magnet:?xt=urn:btih:284EE3FA6F2D13095D0D8FA0C881CB594FE15E8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +305,8 @@ Solstice Chronicles: MIA это шутер с видом сверху, в кот
 ```bash
 magnet:?xt=urn:btih:EB71276C9BA6E9F457A23537B65261F8687036FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +332,8 @@ Headlander (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst
 magnet:?xt=urn:btih:6BDB777B05F60581630DF8CB28AD657382F46AC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +357,8 @@ Lumo, волшебный платформер повышенной степен�
 ```bash
 magnet:?xt=urn:btih:0CD69BD27FF346A685B40960C4E16A43D9BEC971
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +384,8 @@ magnet:?xt=urn:btih:0CD69BD27FF346A685B40960C4E16A43D9BEC971
 magnet:?xt=urn:btih:DFFDADD4A7B48C39118EC6C016E338D88ED8D27C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +409,8 @@ PuppetShow 15: Porcelain Smile (2019) [En] (1.0) Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:315A4B9724F83159990B80FC5A1D908B58E6906A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +436,8 @@ Wanderlust: What Lies Beneath / Жажда странствий: Что утаи
 magnet:?xt=urn:btih:497CF379BE109041444600EEF024DE42F72020FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +461,8 @@ Shadowplay 3: The Forsaken Island (2018) [En] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:563A4411F937C39E1266A2D4C8C436CC6E997E17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +488,8 @@ Assault Gunners HD Edition (2018) [Multi] (1.0) License PLAZA
 magnet:?xt=urn:btih:3BDCD976DAB325FC4153763BE593AF679A9E3DA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +513,8 @@ Distance – это аркадная гонка, выполненная в ст�
 ```bash
 magnet:?xt=urn:btih:791F1D25E81BE2B897D450812B658AD0E08CD470
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +540,8 @@ UNSIGHTED (2021) [Multi] (1.1) License GOG
 magnet:?xt=urn:btih:37DD3F39FD6276F8517B7000973577F0845512A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +565,8 @@ Tower of Time — удивительная игра со множеством п
 ```bash
 magnet:?xt=urn:btih:4DEF6DE9E6B5CB58D6648C2C8634C732BA18C528
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +592,8 @@ Tank Warfare: Тунис 1943 – тактический симулятор бо
 magnet:?xt=urn:btih:7577F7CC60E3B4D0E36B80EAE48CAF4E04ED63EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +618,8 @@ Homefront: The Revolution – это шутер от первого лица, в
 magnet:?xt=urn:btih:4F6D3F94F87F6CD6AC7FD6C4202D997E96638A6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +643,34 @@ PC Building Simulator (2019) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:B86B2CF07F42F5577F11C98A7029E1962E89D4F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214255   (765624) от 20.03.2018
+
+Attack on Titan 2 - A.O.T.2 (2018) [Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отриньте все страхи. A.O.T. 2 — это продолжение игры, основанной на популярном во всем мире аниме «Attack on Titan».Тип издания: LicenseРазработчик: KOEI TECMO GAMES CO., LTD.Жанр: Action, 3D, 3rd PersonЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Немецкий, ЯпонскийЯзык интерфейса: Английский, Немецкий, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D71C83D73EDE6A8040F2E3305ADC8DF7D5E5BAB9
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

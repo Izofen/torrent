@@ -1,3 +1,31 @@
+###  Публикация: 1852022   (1055707) от 
+
+Юрий Уленгов, Валерий Пылаев | Гардемарин Ее Величества (Книга 5). Коронация (2025) [MP3, Вадим Пугачев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я дал императору корону. Верным мне князьям – богатство и власть. Стране – почти четверть века покоя и мира. Я был готов ко всему, даже к собственной смерти.
+Но меня подвели. Оставили в небытии на долгих десять лет и вернули в этот мир, лишь когда взятое взаймы благополучие начало трещать по швам.
+На дворе две тысячи пятнадцатый год, почти вся моя семья уничтожена, (   Читать дальше...   )Жанр: Попаданцы, Альтернативная историяИздательство: ЛитРесПродолжительность: 08:30:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD8B8CA21257D9D73C79421C6B436DB154E3C19F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852027   (1055709) от 
 
 Александра Лисина | Гибрид (Книга 13). Тень мастера (2026) [MP3, Максим Полтавский]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:DC15AECB00FFB78D7EC305A8BF821C0DF6155BB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +72,8 @@ magnet:?xt=urn:btih:DC15AECB00FFB78D7EC305A8BF821C0DF6155BB6
 ```bash
 magnet:?xt=urn:btih:4B6801ACE904D2B17DDFBCF3A74DAABBB82F2598
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +100,8 @@ magnet:?xt=urn:btih:4B6801ACE904D2B17DDFBCF3A74DAABBB82F2598
 magnet:?xt=urn:btih:5CB80D62F58622893EB03A75162E32778F82FEFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +125,8 @@ magnet:?xt=urn:btih:5CB80D62F58622893EB03A75162E32778F82FEFB
 ```bash
 magnet:?xt=urn:btih:06E9C09E84672247FCAB4B8E4EACD6AF92A9D4B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +152,8 @@ magnet:?xt=urn:btih:06E9C09E84672247FCAB4B8E4EACD6AF92A9D4B4
 magnet:?xt=urn:btih:8B3009F829C52D356EC5116F608004C710256BA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +177,8 @@ magnet:?xt=urn:btih:8B3009F829C52D356EC5116F608004C710256BA5
 ```bash
 magnet:?xt=urn:btih:39470AA01E420E88AC54BF9107FC495F876828DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +204,8 @@ magnet:?xt=urn:btih:39470AA01E420E88AC54BF9107FC495F876828DC
 magnet:?xt=urn:btih:C3D9A54EC94AFA34DC4E091F8AFFEC2707EEE530
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +229,8 @@ magnet:?xt=urn:btih:C3D9A54EC94AFA34DC4E091F8AFFEC2707EEE530
 ```bash
 magnet:?xt=urn:btih:45A036151E5F5313FB98F04B8E36C7A9B417DA5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +257,8 @@ magnet:?xt=urn:btih:45A036151E5F5313FB98F04B8E36C7A9B417DA5C
 magnet:?xt=urn:btih:6FB22A92E2FC0DF6528BCD644F6CCAC4BCB6FF61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +284,8 @@ magnet:?xt=urn:btih:6FB22A92E2FC0DF6528BCD644F6CCAC4BCB6FF61
 magnet:?xt=urn:btih:7F2BA5F4BC99876298055BDFEE4AEA4F0FE8AEFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +309,8 @@ magnet:?xt=urn:btih:7F2BA5F4BC99876298055BDFEE4AEA4F0FE8AEFC
 ```bash
 magnet:?xt=urn:btih:E7C601478B542462DB694F8F1306B7B5B46298D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +336,8 @@ magnet:?xt=urn:btih:E7C601478B542462DB694F8F1306B7B5B46298D2
 magnet:?xt=urn:btih:C4E35A772D41217EABC2E6AF93877B8740A27B75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +361,8 @@ magnet:?xt=urn:btih:C4E35A772D41217EABC2E6AF93877B8740A27B75
 ```bash
 magnet:?xt=urn:btih:5830B615851E9954E3E6AE8FC805515F2B88198D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +388,8 @@ magnet:?xt=urn:btih:5830B615851E9954E3E6AE8FC805515F2B88198D
 magnet:?xt=urn:btih:B6E94CD34CB0812936EFF1A54EC3C751780796D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +413,8 @@ magnet:?xt=urn:btih:B6E94CD34CB0812936EFF1A54EC3C751780796D4
 ```bash
 magnet:?xt=urn:btih:E0B250531FB7981ADB7A862503117C924241A3C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +440,8 @@ magnet:?xt=urn:btih:E0B250531FB7981ADB7A862503117C924241A3C9
 magnet:?xt=urn:btih:5F95736371162A7E49EDE03F348694000CDF3A4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +465,8 @@ magnet:?xt=urn:btih:5F95736371162A7E49EDE03F348694000CDF3A4C
 ```bash
 magnet:?xt=urn:btih:B0582591E2FED5956FB7361DF683109CBF825A76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +492,8 @@ magnet:?xt=urn:btih:B0582591E2FED5956FB7361DF683109CBF825A76
 magnet:?xt=urn:btih:0D6902BF0260F7E8C8B503E64777BFDB947F2B04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +517,8 @@ magnet:?xt=urn:btih:0D6902BF0260F7E8C8B503E64777BFDB947F2B04
 ```bash
 magnet:?xt=urn:btih:29B6A3BA6F5738EB109DCA99F97B8F71BB1D609C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +544,8 @@ magnet:?xt=urn:btih:29B6A3BA6F5738EB109DCA99F97B8F71BB1D609C
 magnet:?xt=urn:btih:CB3683E260F7E48D8B0E630284413472BB25001F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +569,8 @@ magnet:?xt=urn:btih:CB3683E260F7E48D8B0E630284413472BB25001F
 ```bash
 magnet:?xt=urn:btih:94B54511792F093FE2F4D8393D83A9E97C0B39F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +596,8 @@ magnet:?xt=urn:btih:94B54511792F093FE2F4D8393D83A9E97C0B39F2
 magnet:?xt=urn:btih:AF5BE076233EAD91E4662FF20FF1CFD2F3F19471
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +621,8 @@ magnet:?xt=urn:btih:AF5BE076233EAD91E4662FF20FF1CFD2F3F19471
 ```bash
 magnet:?xt=urn:btih:03547D9784DCE42126DCD626A5BCC91442F84D90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +649,8 @@ magnet:?xt=urn:btih:03547D9784DCE42126DCD626A5BCC91442F84D90
 magnet:?xt=urn:btih:2ACB0CABD21548C5E728C1E2C65A2E363B67D2C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,29 +676,7 @@ magnet:?xt=urn:btih:2ACB0CABD21548C5E728C1E2C65A2E363B67D2C1
 magnet:?xt=urn:btih:942785A134F33304A294B9CCF4381EEC953F3A2A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852296   (1055770) от 
-
-Александр Зайцев | Сатурн, Змея и Амариллис (2024) [MP3, Лариса Иванова]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бостон, конец XIX века. Адам – талантливый, но безуспешный художник, чьи странные и пугающие картины не могут добиться признания, встречая лишь взгляды, полные тревоги и отвращения. Не найдя себе места в обществе, став добровольным затворником в собственной мастерской, меланхоличный художник, однако, не оставляет попыток создать полотно, способное донести до людей (   Читать дальше...   )Жанр: МистикаИздательство: ЛитРесПродолжительность: 07:07:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC3E56C9952AF12C9A535EC6F67EE9BBB665E9DF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

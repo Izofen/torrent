@@ -22,6 +22,8 @@ Pink Floyd - Delicate Sound Of Thunder (2 LP) (1988) [WavPack|192/32|tracks|Viny
 magnet:?xt=urn:btih:AE6718A21081EAFCC78388CE02D30DC97CABBBF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ A4 Все Мы Верим(   Читать дальше...   )Жанр: Heavy Met
 ```bash
 magnet:?xt=urn:btih:3A8C96644EC00ECE51D19B47E1268D09DAF7D075
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ A4. Demolition Man (3:46)(   Читать дальше...   )Производс�
 magnet:?xt=urn:btih:6CDFA27E225714123D416437C9B764AC46FC405C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ A4 Sweet Dreams(   Читать дальше...   )Жанр: Prog Rock, Symphoni
 ```bash
 magnet:?xt=urn:btih:70858773752C1E07300167E7C371F1DC5A3ADCF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ A4. One Fine Day (3:29)(   Читать дальше...   )Производст�
 magnet:?xt=urn:btih:E4A1EB9397DDC99578E447B43FAA1ACC517D74F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ D1 Gdansk (Tina)(   Читать дальше...   )Жанр: Electronic, Berlin
 ```bash
 magnet:?xt=urn:btih:5FF1C9A94ADE865987476D01A3875C882A18B7D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:5FF1C9A94ADE865987476D01A3875C882A18B7D7
 magnet:?xt=urn:btih:558FB2CA57D2652980F2A6F6E83DFD47B253470F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -209,6 +223,8 @@ B. Вариации 16 — 30. Ария 26:30Жанр: Electronic, Classical, Ne
 ```bash
 magnet:?xt=urn:btih:6EC2E6412BEE348F10DD94AE8C445F25A6BC3A48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +253,8 @@ A4 Девушка В Белом • A. Girl In White(   Читать дальш�
 magnet:?xt=urn:btih:0C4207DEC35430C0DBC66FD70EF84F7EE3AE3FD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +281,8 @@ magnet:?xt=urn:btih:0C4207DEC35430C0DBC66FD70EF84F7EE3AE3FD1
 ```bash
 magnet:?xt=urn:btih:1F63D89CDCD569479C8D0A620B3130E10F1477FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +311,8 @@ A4 Surface To Air(   Читать дальше...   )Жанр: Hard Rock, Classi
 magnet:?xt=urn:btih:1936BD7C51CAFD46AD48AD09E69728AF3DE41A5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +336,8 @@ Andrew Lloyd Webber & Tim Rice - Jesus Christ Superstar (1970)/Иисус Хри
 ```bash
 magnet:?xt=urn:btih:B78AC4AD8380CDF662BC646B3C722BAF9A22AB7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +372,8 @@ Elvis Presley - Our Memories Of Elvis (1979) [FLAC 2.0 24/96|traks(Vinil-Rip)]<R
 magnet:?xt=urn:btih:8AA570B4A405ABB69A5FE4F54E2857DEE7564F15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +400,8 @@ A4 Не Говори О Любви(   Читать дальше...   )Жанр: 
 ```bash
 magnet:?xt=urn:btih:73114A96360FF284768223FF621C97B8E70469A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +430,8 @@ Spring Concerto in E major RV 269
 magnet:?xt=urn:btih:A762169DA14E395D09C5BEECF03B15202834F9D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +458,8 @@ A4 Mind over Matter(   Читать дальше...   )Жанр: Pop RockПро�
 ```bash
 magnet:?xt=urn:btih:7012E518BDE96ECCCB29451FFE786590F4C9B6F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +488,8 @@ Carnival of the Animals
 magnet:?xt=urn:btih:1FD2C86480B45946949490126DB3A6DC3A1FAC2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +516,8 @@ A4 Puccini - Intermezzo: (Manon Lescaut, Ch'ella Mi Creda), Placido Domingo(   �
 ```bash
 magnet:?xt=urn:btih:33136F64EAFBA3B5B3CCE40D48271A51645FC462
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +546,8 @@ Emigrate — сайд-проект, основанный Рихардом Кру
 magnet:?xt=urn:btih:B7D8805CFB71D7A56BF46607287FCFBCAE293341
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +574,8 @@ A4. Breakdown (3:53)(   Читать дальше...   )Производство
 ```bash
 magnet:?xt=urn:btih:5B9840B532FDF4A68C2B717B5EEA03070BF1ACCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +604,8 @@ Within Temptation - Black Symphony (2008) [FLAC 5.1 24/96|tracks (Blu-ray rip)]<
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +632,8 @@ Toshiro Ito & '68 All Stars - Romantic Guitar Mood Best 16 (1973) [FLAC 2.0|44,1
 ```bash
 magnet:?xt=urn:btih:2E139619DF26ECD6CDD4BF3E1E4CAC694A8526B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +662,8 @@ Joe Hunter/Джо Хантер - Поет Джо Хантер (1974) [FLAC 1.0|9
 magnet:?xt=urn:btih:C4CC52CC861C73F32509F20ABB73900DBBBF8C18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +690,8 @@ A4 Toussaint L'Overture(   Читать дальше...   )Жанр: Psychedelic
 ```bash
 magnet:?xt=urn:btih:69AE9BFE323CA7F40FB23B1DE856B28C914BD70E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -672,6 +720,8 @@ Judas Priest - British Steel (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]  <He
 magnet:?xt=urn:btih:03BE611D1BAD9E26B3E4A979616B4983A45386C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -698,6 +748,8 @@ Teddy Ikeya Quintet - Dream (1967) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, 
 ```bash
 magnet:?xt=urn:btih:294E6A060046BC8F5C29FD2E5BF57D1170AA520B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

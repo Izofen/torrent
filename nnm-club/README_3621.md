@@ -19,6 +19,8 @@ Tipard Mac Video Converter Ultimate for Mac 10.2.56 [Multi]
 magnet:?xt=urn:btih:139B5B132C4F580F1C27348FC09E0E4370846186
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:139B5B132C4F580F1C27348FC09E0E4370846186
 magnet:?xt=urn:btih:91FC14272DCB2AEBCB9A768F70F80E99BD2077BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ GIMP — это редактор, позволяющий работать со �
 ```bash
 magnet:?xt=urn:btih:99887377BB98D6BA337A86E08C95A9BED6BF0386
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:99887377BB98D6BA337A86E08C95A9BED6BF0386
 magnet:?xt=urn:btih:E308FC2009FB18D164C8A7061AA5F885070B3667
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:E308FC2009FB18D164C8A7061AA5F885070B3667
 ```bash
 magnet:?xt=urn:btih:C7B8F4630080AD512050796E0059657D0D00658E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:C7B8F4630080AD512050796E0059657D0D00658E
 magnet:?xt=urn:btih:348E0649E7AD1689907C815E75B331D5FF881676
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ ToonMe v0.7.1 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B1626454378356D6523520ACF12B89B36BF11CBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Stay 1.4 [En]
 magnet:?xt=urn:btih:27A8394D2C33A1AFAC026B6B7AD5B0C0836F066D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:85539170070B8B20F792E85DC4F72CB08879D4A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:85539170070B8B20F792E85DC4F72CB08879D4A6
 ```bash
 magnet:?xt=urn:btih:D0BC6C25536A9C9F1A88FF3F440B88ADBC3D5B48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ Judas Priest - Invincible Shield (2024) [FLAC|Lossless|image + .cue] <Heavy Meta
 magnet:?xt=urn:btih:B6CAF389986EEA5E7873D797A18FB82041457692
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ IceCream Ebook Reader Pro 6.48 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4A2AC0DA44B68BE4B3F0A389C782C3A48BF26A11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:4A2AC0DA44B68BE4B3F0A389C782C3A48BF26A11
 magnet:?xt=urn:btih:454CF4CB10C763E458A4E972FAD1C21FF90EEE89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:454CF4CB10C763E458A4E972FAD1C21FF90EEE89
 magnet:?xt=urn:btih:B557F5F5E70137B4F38B3FBD9B54B576784F2451
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ LibreOffice — мощный офисный пакет, полностью со�
 ```bash
 magnet:?xt=urn:btih:B4F6B36C7D115C16A058428198F62E4732465F93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:B4F6B36C7D115C16A058428198F62E4732465F93
 magnet:?xt=urn:btih:FC5AD3DAD49A01FF94F135B691C589CA62EC8447
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ YT Saver Video Downloader & Converter for Mac 7.4.1 [Multi]
 ```bash
 magnet:?xt=urn:btih:524A41540585F8C589248988EB908D9D43BF26A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ Skeletal Remains - The Entombment Of Chaos (2020) Japanese Edition [FLAC|Lossles
 magnet:?xt=urn:btih:F70D97CD1D44A2B7782FC9B6EA947A71D92E514B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +502,8 @@ Alfred PowerPack 5.5 Beta 2 [En]
 ```bash
 magnet:?xt=urn:btih:52107F88EE3F83E7A24082397DD50E376F14C80E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ Eddie "Lockjaw" Davis - On Prestige (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 magnet:?xt=urn:btih:BE05D3C0774C54A91F8398FD70A713C513627871
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ Stephane Grappelli - Parisian Thoroughfare (1973) 1989, Black Lion [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:75C2BC87F1BA25536B99BC52FA648915FF28225C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +590,8 @@ Scott Hamilton - Plays Ballads (1989) Concord Jazz [FLAC|Lossless|tracks + .cue]
 magnet:?xt=urn:btih:642248437C20E463B2C806A0DE93D453CF1D9790
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ Soulver предназначен для «быстрой математики» 
 ```bash
 magnet:?xt=urn:btih:59B54024647B79932F1B74736482CEF442B22FDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +646,8 @@ Tim Hegarty - Tribute (2014) Miles High Records [FLAC|Lossless|tracks + .cue] <P
 magnet:?xt=urn:btih:ABB05D1F1C6762DD25410B7BAFDF8C65A7782816
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +673,8 @@ magnet:?xt=urn:btih:ABB05D1F1C6762DD25410B7BAFDF8C65A7782816
 ```bash
 magnet:?xt=urn:btih:CE9B629732A84E3C51F5BAB3B60DF895CD415A59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -652,6 +702,8 @@ Branford Marsalis Quartet - Crazy People Music (1990) CBS [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:B263C7E1BA30ED371238296693502A25D588F4F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

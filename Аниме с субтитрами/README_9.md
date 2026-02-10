@@ -19,6 +19,8 @@ Yoru no Kurage wa Oyogenai / Jellyfish Can't Swim in the Night / Медуза н
 magnet:?xt=urn:btih:CA9BBC04D6E6CB287C232AF76136E79B7C484C04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Seiyuu Radio no Uraomote/ The Many Sides of Voice Actor Radio / Другая с�
 ```bash
 magnet:?xt=urn:btih:CC33EECECE2BDC547C799D4AA5326EB38E178137
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Urusei Yatsura (2024) | Lum, the Invader Girl | Несносные пришел�
 magnet:?xt=urn:btih:D09C002697BE0D34BD5E35337949FDA74E34C9F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Kaii to Otome to Kamikakushi / Mysterious Disappearances / Мистика, юн�
 ```bash
 magnet:?xt=urn:btih:3409A7257490FBD646E11E5EAF69A7799A7335B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Date a Live V / Рандеву с Жизнью 5 [2024, TV, 12] WEBRip 720p raw
 magnet:?xt=urn:btih:A1F75E3595CFB638A765DFA76175B4B10F891461
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Kakuriyo no Yadomeshi Ni | Kakuriyo: Bed and Breakfast for Spirits Season 2 | П
 ```bash
 magnet:?xt=urn:btih:B1376E29AF087AE39D4EAE19B49497D28AAC29AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Unnamed Memory / Безымянное воспоминание [2024, TV, 12] WE
 magnet:?xt=urn:btih:1F56FD4CD3C0C9B21CA7FF16A812DFF6853336DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Kami wa Game ni Uete Iru. / Gods' Games We Play / Богиня жаждет иг
 ```bash
 magnet:?xt=urn:btih:8883D8AB324459DB79C2592B0CCEAF6C2C49126C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Tensei Kizoku, Kantei Skill de Nariagaru / Переродившись арист
 magnet:?xt=urn:btih:031789B9F0CAD4B17FA5F51663E76D689AA6306F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Kuroshitsuji: Kishuku Gakkou Hen | Black Butler: Public School Arc | Тёмны�
 ```bash
 magnet:?xt=urn:btih:F7833A7B13CE82416AAEC80C095D1CFBFBB8266B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Shinigami Bocchan to Kuro Maid (2024) | The Duke of Death and His Maid (2024) | 
 magnet:?xt=urn:btih:1012B135C1322CABB47467B8A79008E79BFF2C7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ The Idolmaster Shiny Colors | Идолмастер: Яркие цвета [ТВ-
 ```bash
 magnet:?xt=urn:btih:562C071DB47078B19CDB0026A979ED1912FCC92E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Astro Note | Записи Астро [2024, TV, 12 эп.] WEBRip 720p raw
 magnet:?xt=urn:btih:391CB5DAEC5B9FEFFCD6D1B71D451FAE1437ACC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Henjin no Salad Bowl | A Salad Bowl of Eccentrics | Салатница эксц�
 ```bash
 magnet:?xt=urn:btih:017A5F487341A0BABBC27F77A83F302B828E0643
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ Xинacэ Xoтapy — cтapшeклaccницa, пpeвышe вceгo цeнящaя c
 magnet:?xt=urn:btih:AE6AA2BC0E09943012313F71FE28C93ACF1F1B92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Bartender: Kami no Glass | Bartender: Glass of God | Бармен: Бокал б
 ```bash
 magnet:?xt=urn:btih:3ED0A997C9C72DE0868B2642AC12E67449080270
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ Kono Subarashii Sekai ni Shukufuku o! 3 | Этот замечательный м
 magnet:?xt=urn:btih:8C0AEA7907940A773F5F04286A83A03F46448E30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ Re:Monster | Перерождение: Монстр [2024, TV, 12 эп.] WebRip 
 ```bash
 magnet:?xt=urn:btih:8F79F12101A492935D21A0EEA319DD189C1291E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ Mahou Shoujo ni Akogarete | Gushing over Magical Girls | Становясь во
 magnet:?xt=urn:btih:F8493A0F6CA0DBA7D445DCC24032DB8984974EAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ Jii-san Baa-san Wakagaeru / Grandpa and Grandma Turn Young Again / Дедушк�
 ```bash
 magnet:?xt=urn:btih:6A4DB70CD1B7A3DF7453AB660E1DDBB7C2E9E0DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ Boku no Kokoro no Yabai Yatsu | The Dangers in My Heart | Опасность в 
 magnet:?xt=urn:btih:2D946B2E00AFCF116E6A3C66C696E1FA67B74A42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ One Room, Hiatari Futsuu, Tenshi-tsuki. / Studio Apartment, Good Lighting, Angel
 ```bash
 magnet:?xt=urn:btih:01787A4166EA8DDDBD1993AC989C4D03297B92E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ Maou no Ore ga Dorei Elf o Yome ni Shitanda ga, Dou Medereba Ii? | An Archdemon'
 magnet:?xt=urn:btih:21DC1E2E83545F8FB414CFA70D362CE5BBF03E7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ Dekisokonai to Yobareta Moto Eiyuu wa, Jikka kara Tsuihou Sareta no de Suki Katt
 ```bash
 magnet:?xt=urn:btih:04AC4DABDF19DD09A6A431A30754414E640349BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ Omamori Himari / Защитница Химари [2010, TV, 12 серий] BDrip
 magnet:?xt=urn:btih:FC26B6BEF5C5195295A31D0BFEAB35C72F2978E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Garouden: The Way of the Lone Wolf | Легенда о голодных волк
 ```bash
 magnet:?xt=urn:btih:1B4E0455517C9F90EFADF0AC96480C8303C19D53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

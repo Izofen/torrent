@@ -22,6 +22,8 @@ Brian McDonald - Wind It Up (2000) Japanese Edition [FLAC|Lossless|image + .cue]
 magnet:?xt=urn:btih:E6CD7277B97217E859BB764F538BE32C02A94FDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Ploho - When the Soul Sleeps (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, 
 magnet:?xt=urn:btih:F67F54CC927FD13C5344FDDEAE547365F6EACDB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:F67F54CC927FD13C5344FDDEAE547365F6EACDB3
 magnet:?xt=urn:btih:23AF990C51188B33C07EE88368AAC5E41B274398
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:23AF990C51188B33C07EE88368AAC5E41B274398
 ```bash
 magnet:?xt=urn:btih:C750E9F5442B245DB99612C515E4734E7D0248FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:C750E9F5442B245DB99612C515E4734E7D0248FE
 magnet:?xt=urn:btih:CD70BCAD275DA1166367EEE80E64C1FA85767CC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:CD70BCAD275DA1166367EEE80E64C1FA85767CC8
 ```bash
 magnet:?xt=urn:btih:BDD4F3FCC32F30F50914E27D637CB18E48A3D02B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ VA - Music News vol.296 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:95B2245D6AAB9F04F9F29F9A9A9B133181D99301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ magnet:?xt=urn:btih:95B2245D6AAB9F04F9F29F9A9A9B133181D99301
 magnet:?xt=urn:btih:906DED12E4610340461F1E18CA1D4622C5DF366A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:906DED12E4610340461F1E18CA1D4622C5DF366A
 ```bash
 magnet:?xt=urn:btih:5AABE2FE5468C0B9FDD55F7F15E807D0F1AEA396
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ Dragonhammer - Second Life (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 magnet:?xt=urn:btih:F83EE9363329A76D7FE60FEDBE2870744FAC832A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:F83EE9363329A76D7FE60FEDBE2870744FAC832A
 ```bash
 magnet:?xt=urn:btih:2FEED3E522BECD368DD2EA148E3A6A2CED30F346
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ magnet:?xt=urn:btih:2FEED3E522BECD368DD2EA148E3A6A2CED30F346
 magnet:?xt=urn:btih:538A6682FA3EDB206441345279B2F8EFAE30F6E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:538A6682FA3EDB206441345279B2F8EFAE30F6E1
 ```bash
 magnet:?xt=urn:btih:77C66FF619A4E073B2024BC5959562ECA5C2B743
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:77C66FF619A4E073B2024BC5959562ECA5C2B743
 magnet:?xt=urn:btih:A505C9C826C820E06DF40D779E56FF9D050E6B11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:A505C9C826C820E06DF40D779E56FF9D050E6B11
 ```bash
 magnet:?xt=urn:btih:21789ABEB126CD3BEBCB08A4307C0442F35E477F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:B16A66D9A5D75E1010B66D38798DE38E47D404A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:4DDE01279AC25C913701D3DAE054578F6D892A44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ C.O.P - Enemy (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 magnet:?xt=urn:btih:3E7B24B25F0F53FB3D9158A718F77F2DB487F163
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ Master - Master (1990) [WavPack|Lossless|image + .cue] <Death Metal>
 magnet:?xt=urn:btih:B19B51EB8981AA246960A7807F91AA306E23866F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +536,8 @@ magnet:?xt=urn:btih:B19B51EB8981AA246960A7807F91AA306E23866F
 magnet:?xt=urn:btih:C8D3160534146B210D43F986AF7AD85E18384C44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:C8D3160534146B210D43F986AF7AD85E18384C44
 ```bash
 magnet:?xt=urn:btih:5E510B23BBF7E18FEBDEC941867DBF627FBF3002
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:5E510B23BBF7E18FEBDEC941867DBF627FBF3002
 magnet:?xt=urn:btih:4FA61E75AF47E615C087F9B80DA71390A8B7AD22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:4FA61E75AF47E615C087F9B80DA71390A8B7AD22
 ```bash
 magnet:?xt=urn:btih:C0D3859FA536AEE9A13C2DB00A5F0279DED76DBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +641,8 @@ magnet:?xt=urn:btih:C0D3859FA536AEE9A13C2DB00A5F0279DED76DBB
 magnet:?xt=urn:btih:4E94879124BEDBF402655365D55CC0B1A92278F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +667,8 @@ CCleaner - утилита для чистки мусора в операцион
 magnet:?xt=urn:btih:EDE1901B1E460109A08249CECBEA4466995F6E84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ magnet:?xt=urn:btih:EDE1901B1E460109A08249CECBEA4466995F6E84
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

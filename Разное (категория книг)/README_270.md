@@ -1,3 +1,29 @@
+###  Публикация: 949274   (379263) от 22.10.2015
+
+Валерий Лейбин | Краткий психоаналитический словарь-справочник (2015) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_379263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Краткий психоаналитический словарь-справочник содержит определения терминов психоанализа. Он представляет интерес для студентов, специалистов и всех тех, кто стремится понять бессознательную деятельность человека, причины возникновения психических расстройств и пути разрешения внутриличностных конфликтов.Жанр: ПсихоанализФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37C260FCEBB0CE274EAB7529A4D956ED8A8CB850
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948985   (379361) от 22.10.2015
 
 Андрей Плетенев | Чему не учат в вузе, но без чего вам не получить хорошей работы. 16 ваших конкурентных преимуществ (2015) [FB2]
@@ -21,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:5D49DBB9060944422A97C1B03AF878ADE98D37F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +76,8 @@ magnet:?xt=urn:btih:5D49DBB9060944422A97C1B03AF878ADE98D37F4
 magnet:?xt=urn:btih:6868A03932BC89F22D7C4826423523EB52DF6521
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +104,8 @@ magnet:?xt=urn:btih:6868A03932BC89F22D7C4826423523EB52DF6521
 magnet:?xt=urn:btih:BAFC89B6F3287DDCB125DDB11A43C668E54F42C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +129,8 @@ magnet:?xt=urn:btih:BAFC89B6F3287DDCB125DDB11A43C668E54F42C5
 ```bash
 magnet:?xt=urn:btih:6B2FF8D3F090348E6C7B1D90558C7AA734C8F3B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +158,8 @@ magnet:?xt=urn:btih:6B2FF8D3F090348E6C7B1D90558C7AA734C8F3B7
 magnet:?xt=urn:btih:53D0D7CEFDDB42082D300A7979CDFC64B1F88E5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +183,8 @@ magnet:?xt=urn:btih:53D0D7CEFDDB42082D300A7979CDFC64B1F88E5D
 ```bash
 magnet:?xt=urn:btih:DE2008B6FC9687118D3DB88702371E2722091092
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +210,8 @@ magnet:?xt=urn:btih:DE2008B6FC9687118D3DB88702371E2722091092
 magnet:?xt=urn:btih:163CD8F4AEA29AC053BF14D78FFAAD480125B572
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +235,8 @@ magnet:?xt=urn:btih:163CD8F4AEA29AC053BF14D78FFAAD480125B572
 ```bash
 magnet:?xt=urn:btih:F337AC917967209A94069A2DDE1B4ABD39A7D17E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +262,8 @@ magnet:?xt=urn:btih:F337AC917967209A94069A2DDE1B4ABD39A7D17E
 magnet:?xt=urn:btih:5DBA6FDCD5E19AE297416AB0ECC7BDDF267F3979
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +287,8 @@ magnet:?xt=urn:btih:5DBA6FDCD5E19AE297416AB0ECC7BDDF267F3979
 ```bash
 magnet:?xt=urn:btih:3E3C3C90F7F82485327D0A1CABE40CE74EBF86E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +314,8 @@ magnet:?xt=urn:btih:3E3C3C90F7F82485327D0A1CABE40CE74EBF86E5
 magnet:?xt=urn:btih:810E7CB4F4278EBD69B593944A7D5F8B1D80963C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +340,8 @@ magnet:?xt=urn:btih:810E7CB4F4278EBD69B593944A7D5F8B1D80963C
 ```bash
 magnet:?xt=urn:btih:08397A46240F14AA662BBEF99216FF2D039AC8D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +369,8 @@ magnet:?xt=urn:btih:08397A46240F14AA662BBEF99216FF2D039AC8D8
 magnet:?xt=urn:btih:88BBF940CFAA3F408E457641DE260D4CADE4E2EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +395,8 @@ magnet:?xt=urn:btih:88BBF940CFAA3F408E457641DE260D4CADE4E2EC
 magnet:?xt=urn:btih:BDAABD5581BF44123FD9DF30ED1492F71165BF16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +420,8 @@ magnet:?xt=urn:btih:BDAABD5581BF44123FD9DF30ED1492F71165BF16
 ```bash
 magnet:?xt=urn:btih:00AAA5895434A747EEFB625628C8133920C16042
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +449,8 @@ magnet:?xt=urn:btih:00AAA5895434A747EEFB625628C8133920C16042
 magnet:?xt=urn:btih:26040D70F48669E48829788D5F00F07D1D014399
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +475,8 @@ magnet:?xt=urn:btih:26040D70F48669E48829788D5F00F07D1D014399
 ```bash
 magnet:?xt=urn:btih:871C38FF0C751B3B3A3B95FE9B21013AE6024C8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +503,8 @@ magnet:?xt=urn:btih:871C38FF0C751B3B3A3B95FE9B21013AE6024C8B
 magnet:?xt=urn:btih:53EAD8D60FE10638842ECA6AFEDC136E9CAB49EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +528,8 @@ magnet:?xt=urn:btih:53EAD8D60FE10638842ECA6AFEDC136E9CAB49EA
 ```bash
 magnet:?xt=urn:btih:3EF6F8E5454672AE5D7B953A0E11B0B73C535D60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +556,8 @@ magnet:?xt=urn:btih:3EF6F8E5454672AE5D7B953A0E11B0B73C535D60
 magnet:?xt=urn:btih:2E61A6CD2A7C59021A9F59187BFB28B4E5B916C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +581,8 @@ magnet:?xt=urn:btih:2E61A6CD2A7C59021A9F59187BFB28B4E5B916C5
 ```bash
 magnet:?xt=urn:btih:5159BCAC6264E8CF946061A34D4F3416FADA3ADB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +608,8 @@ magnet:?xt=urn:btih:5159BCAC6264E8CF946061A34D4F3416FADA3ADB
 magnet:?xt=urn:btih:3922C2B0EF3ED9C5A466618D51479D5ED6A2D674
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +633,8 @@ magnet:?xt=urn:btih:3922C2B0EF3ED9C5A466618D51479D5ED6A2D674
 ```bash
 magnet:?xt=urn:btih:90C41D4647872EBCE2870E26FA6506321A3C7747
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +660,8 @@ magnet:?xt=urn:btih:90C41D4647872EBCE2870E26FA6506321A3C7747
 magnet:?xt=urn:btih:511282AA16191DD89B0424BD7DC29F3905844955
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,29 +686,7 @@ magnet:?xt=urn:btih:511282AA16191DD89B0424BD7DC29F3905844955
 magnet:?xt=urn:btih:EC56E9687E164CBDA2F0E6800DB01A23DB091E53
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326932   (380774) от 22.09.2019
-
-Ирина Пигулевская | Химчистка на вашей кухне. Все для идеальной чистоты дома (2019) [FB2]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждая хозяюшка хочет, чтобы дом сверкал чистотой. Поддерживать идеальный порядок – нелегкий труд, требующий к тому же немалых денежных средств на химчистку и бытовую химию. Но оказывается, многое можно отстирать, вычистить, отполировать, подклеить и освежить самостоятельно, нужно только знать, как это сделать. Порой, все необходимые ингредиенты для этого можно найти (   Читать дальше...   )Жанр: Домашнее хозяйство, Сделай самФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:553DEC7729F5D82F3BFBB41BCAE13935DE620152
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

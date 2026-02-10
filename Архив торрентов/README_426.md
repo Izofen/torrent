@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:35B1AA6002DDD5E087B9CDD374D0DDDC7C2B4172
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:35B1AA6002DDD5E087B9CDD374D0DDDC7C2B4172
 ```bash
 magnet:?xt=urn:btih:C72D45F9B2A69C1925881689790DDA590D120EF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Kaspersky TDSSKiller 2.7.17.0
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ Kaspersky TDSSKiller 2.7.17.0
 magnet:?xt=urn:btih:733B4DC94C987A5CAEB398018DBBF5FC2E02D75A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:733B4DC94C987A5CAEB398018DBBF5FC2E02D75A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ Simsation - ежемесячный журнал о игре The Sims 3.2012Фо�
 magnet:?xt=urn:btih:91BEE9735BF7A1DA0C5944B487700D7F2A22A5F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ VueScan - программа для работы со сканерами. Мож
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +215,8 @@ Talamasca - Make Some Noise (2011) [FLAC|Lossless]<Psychedelic, Full On>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ Talamasca - Make Some Noise (2011) [FLAC|Lossless]<Psychedelic, Full On>
 ```bash
 magnet:?xt=urn:btih:EBDB2DC7AC029F39752A577B21A67ED29EB7F3A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +277,8 @@ Jethro Tull - Greatest Hits (2011) 2CD, Chrysalis Rec. cdchr 60041 [FLAC|Lossles
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +303,8 @@ Jethro Tull - Greatest Hits (2011) 2CD, Chrysalis Rec. cdchr 60041 [FLAC|Lossles
 magnet:?xt=urn:btih:B74E97139DBD4371C99150E3A98E6C806FE47B8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +328,8 @@ magnet:?xt=urn:btih:B74E97139DBD4371C99150E3A98E6C806FE47B8C
 ```bash
 magnet:?xt=urn:btih:25B25BF99AAAAF27530AE65F19AF8AB397EC1BF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +357,8 @@ Freemake Free Audio Converter 1.1.0.26 [Multi + Русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +382,8 @@ Freemake Free Audio Converter 1.1.0.26 [Multi + Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +418,8 @@ Freemake Free Audio Converter 1.1.0.26 [Multi + Русский]
 magnet:?xt=urn:btih:3F4C25F2F08C81C696348A12F5575137C8A63F4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +443,8 @@ MAXIM является абсолютно уникальным журналом 
 ```bash
 magnet:?xt=urn:btih:DEC758CEFB607650C9A9F751AB7B63F3A16C4B8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +470,8 @@ Any Video Converter Ultimate предоставляет пользователя
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +495,8 @@ Any Video Converter Ultimate предоставляет пользователя
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +522,8 @@ Any Video Converter Ultimate предоставляет пользователя
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +547,8 @@ Any Video Converter Ultimate предоставляет пользователя
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +574,8 @@ Any Video Converter Ultimate предоставляет пользователя
 magnet:?xt=urn:btih:51599D44FDA853CF73FE75DE86F96D756131B10B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +599,8 @@ magnet:?xt=urn:btih:51599D44FDA853CF73FE75DE86F96D756131B10B
 ```bash
 magnet:?xt=urn:btih:C590C0DFA44C05827403A58D6FF2F361FA4BFCA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +631,8 @@ magnet:?xt=urn:btih:C590C0DFA44C05827403A58D6FF2F361FA4BFCA9
 ```bash
 magnet:?xt=urn:btih:D5ADC28346DC454682BFE0CACFDD4874D08177BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +667,8 @@ VA - Дискотека 90-х Vol.1 (2012) [MP3|320 кб/с]<Dance/EuroDance/Pop
 magnet:?xt=urn:btih:E5B5AB40700C60D154AC6A03E4256E7D3EE3B560
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +692,8 @@ magnet:?xt=urn:btih:E5B5AB40700C60D154AC6A03E4256E7D3EE3B560
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +720,8 @@ magnet:?xt=urn:btih:E5B5AB40700C60D154AC6A03E4256E7D3EE3B560
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:A83F931128D99304A8FB1811223CCB804A65CBC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Silver – это игра, созданная британскими разра
 ```bash
 magnet:?xt=urn:btih:D6DBBDAA02414ACED540CD51788774A3A4BCC96B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Mechajammer - ролевая игра с изометрическим видом
 magnet:?xt=urn:btih:24E8DEA4E88DD99953804B4715EE00AB75705BCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Cultist Simulator - настольная игра о нелёгкой и пол�
 ```bash
 magnet:?xt=urn:btih:4B622FDB95E1D1DA5AE0567D55090F9D6A7DA456
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Ronin – это стильный пошаговый экшен-платформ
 magnet:?xt=urn:btih:8EE77F8F5BD0DE8722F0984E88B4DA6254B15A94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ RUINER — суровый и жестокий экшн, действие кот�
 ```bash
 magnet:?xt=urn:btih:DF3785EFE3FDD32353C5DA8F39E1FA886ADD2D22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Broforce — брутальный 2D-шутер с полностью разру
 magnet:?xt=urn:btih:BA7D28C39A137E6369E15DF79F1C94347283FACC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:BA7D28C39A137E6369E15DF79F1C94347283FACC
 ```bash
 magnet:?xt=urn:btih:B2A4A5A445B47212368A93089A431ADD4764C85D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Jotun – это рисованная вручную приключенческ�
 magnet:?xt=urn:btih:A18B75F68FAAF53BE87321C944421AB4538EDF46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Dreamfall Chapters – профинансированное через Kickstart
 ```bash
 magnet:?xt=urn:btih:408990B7B03EA69186B34F5F31CED76BFAB6B8BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:408990B7B03EA69186B34F5F31CED76BFAB6B8BF
 magnet:?xt=urn:btih:28E87B19488F53D6E55EFAF1A36D1C81121C06B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ A Story About My Uncle - это приключенческий платформ�
 ```bash
 magnet:?xt=urn:btih:C194AAA6B4607F47B05FCBFE93BFFDC7D16CF343
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:C194AAA6B4607F47B05FCBFE93BFFDC7D16CF343
 magnet:?xt=urn:btih:AA3548A8AC401DC5F4638F2F62FA3B4734926B48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:AA3548A8AC401DC5F4638F2F62FA3B4734926B48
 ```bash
 magnet:?xt=urn:btih:DD85A2DAA02EBE34B3CA8DA1B6886B5FBE8EB036
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:DD85A2DAA02EBE34B3CA8DA1B6886B5FBE8EB036
 magnet:?xt=urn:btih:AA9F5A34740EF50489BAAB9A644F38942E80EAEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Kerbal Space Program – игра смешанного жанра, где вы �
 ```bash
 magnet:?xt=urn:btih:3C63AF63F76AF2296973AD336F8ACFAC37A2DBF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:3C63AF63F76AF2296973AD336F8ACFAC37A2DBF6
 magnet:?xt=urn:btih:A2E57D5591922505DDF86AA27FBB3D89676E7FEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ magnet:?xt=urn:btih:A2E57D5591922505DDF86AA27FBB3D89676E7FEB
 ```bash
 magnet:?xt=urn:btih:A9BB11A1817C8F3AC0854CA3F3AC924079961789
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ Project Zomboid - многообещающая Survival-RPG, в которой �
 magnet:?xt=urn:btih:205956EBA9BE7AF6EC8DB4D738899561B5CEFE4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Renowned Explorers: International Society, стратегическая игра
 ```bash
 magnet:?xt=urn:btih:81204E50CB62A49DE094C3CC3C2E1605F2327AFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:81204E50CB62A49DE094C3CC3C2E1605F2327AFC
 magnet:?xt=urn:btih:3B12F7AF31AC873DAD5B9BA3F07E4D7AFE148D30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ magnet:?xt=urn:btih:3B12F7AF31AC873DAD5B9BA3F07E4D7AFE148D30
 ```bash
 magnet:?xt=urn:btih:1EEAECD0E98ED1175DC37D95AB1ACD76C3101F96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:1EEAECD0E98ED1175DC37D95AB1ACD76C3101F96
 magnet:?xt=urn:btih:01FD893E891E1806CB24332F20BA7E813DFCCE97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Lost Sea – это экшн-приключение, действие котор
 ```bash
 magnet:?xt=urn:btih:3AF74EC552E845F14986BE7FA4D07A89F0103BF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ The Cave — новая приключенческая игра от автор�
 magnet:?xt=urn:btih:DA7805D049369FB9A433A4C315D1F5C3791C7DC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ magnet:?xt=urn:btih:DA7805D049369FB9A433A4C315D1F5C3791C7DC7
 ```bash
 magnet:?xt=urn:btih:AAC3704E37A13C5F9696708C7F27D1A68784BF43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

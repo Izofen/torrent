@@ -22,6 +22,8 @@ Angelo Taylor - The Best of Angelo 2008 (2008) [FLAC|Lossless|WEB-DL|tracks] <Sy
 magnet:?xt=urn:btih:07702B28E16699CD9115BFCCF4BF7BF956890093
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Angelo Taylor - Alone in the Universe (2006) [MP3|320 Kbps] <Synthpop, Space, Am
 ```bash
 magnet:?xt=urn:btih:B338AF99DD2883C002FB77F4A5F8A56B1C23DA9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Dance With the Dead - Send The Signal [EP] (2014) [MP3|320 кб/с]<Electronic, 
 magnet:?xt=urn:btih:40B71A4AE30362056CF986EB36A1BDBABF62083B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Alan Morris - Made Of Light - The Best Of (2022) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:807F30BC62E02F8D7C4C35574403D45F43EE6BA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ KMFDM - Salvation (2015) EP [MP3|320 кб/с]<Aggro-Industrial>
 magnet:?xt=urn:btih:3F2223F9B44D07574199E5ACD1281A679D1D48F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Popof - Love Somebody (2015) [MP3|320 кб/с]<House, Deep House>
 ```bash
 magnet:?xt=urn:btih:A3BAE8C400F3C1CE01399B7A4F40E7598DAC5C67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Black Hole Trance Music 05-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Tran
 magnet:?xt=urn:btih:DF4DEDC88C5D27BDB39245FE72C937ACDA79730A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - The Dark Room Lounge (Sexy and Smooth Easy Listening Deluxe Moments) (2015)
 ```bash
 magnet:?xt=urn:btih:B180AF6D8C03A4D0C286FB6997D12385039B8DE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - A State Of Trance Radio Top 20 - July (2015) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:0250E6E8FC1CB9DA49D634F2D4C0E18F512A0B52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Chillout (The Beauty Of Lounge & Jazz Music) (2015) [MP3|320 кб/с]<Loung
 ```bash
 magnet:?xt=urn:btih:2FD1687B485D160221D18B8E1C2B05E23126BDDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Uncharted Vol. 24 (Compiled By Koen) (2022) [FLAC|Lossless|WEB|tracks] <Psy
 magnet:?xt=urn:btih:3240D71A9A0DFAD183198D30D1CD17D2EEBBEFCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Hospital Mixtape - Lens (2022) [FLAC|Lossless|WEB|tracks] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:B07FD5281B72D36B6FDBAA1770E13CD65F45E6A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Under Break - The Experience (2022) [FLAC|Lossless|WEB|tracks] <Breaks>
 magnet:?xt=urn:btih:0244789097A810BE7B46CA3ECD6AEFA576B23A18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Deep Sounds: The Very Best Of Deep House (Spring Edition) 3CD (2015) [FLAC|
 ```bash
 magnet:?xt=urn:btih:69FED0E4FFF1258A91F50472C0758187AD8E84CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Chill Out Lounge 2015.1 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Loung
 magnet:?xt=urn:btih:1CEEC3955041EC0301403686EA5C120961491755
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - Cafe del Mar XXI (2015) [MP3|320 кб/с]<Chill House, Lounge>
 ```bash
 magnet:?xt=urn:btih:687070710BDFC7290FC676AA0EC626C0C7598C78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - Magic Island - Music For Balearic People Vol. 6 (Mixed by Roger Shah) (2015
 magnet:?xt=urn:btih:570D4613DD9A37329B2F27D29FDB979CEFBC3181
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +511,8 @@ Stefan Torto (Stefanos Tortopoglou) - Discography 7 Releases (2011-2015) [MP3|32
 ```bash
 magnet:?xt=urn:btih:2C8455E2B2EA0B59397764D250EF8BDA3105197B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +541,8 @@ FKA twigs - LP1 (2014) Japanese Edition [MP3|320 кб/с]<Alternative R&B, Trip 
 magnet:?xt=urn:btih:289CF9EAD7FBC453213BDB21CF3075252340B31E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +569,8 @@ VA - Poel (Entspannungs Musik Zum Seele Baumeln Lassen) (2015) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:CE4330BAC6ABB4FC190A2F114563F75408C5D862
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +600,8 @@ Berlin - 11 Albums, 5 Compilations (1980-2020) [MP3|320 кб/с] <New Wave, Synt
 magnet:?xt=urn:btih:866A83EDCD3E41C0C5F12F9E7F7FC822909E9071
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +628,8 @@ Dimitri Vegas & Like Mike - Tomorrowland Friendship Mix (2022-05-12) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:AD2C0BCEBE5DA61E26BFB4A850BD627B474F0B62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +658,8 @@ VA - Nassau Beach Club Ibiza 2015 (2015) 2CD [FLAC|tracks + .cue]<Deep House, Ch
 magnet:?xt=urn:btih:2C80C8D4F261B0D9E5B99FA727761707C3BB7DA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +686,8 @@ Shantel - Club Guerilla (1997)  [FLAC|tracks +.cue]<Downtempo, Dub, Trip-Hop>
 ```bash
 magnet:?xt=urn:btih:5F518D867DD1436D12BF5386EAAFC8F4D62D1642
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -668,6 +716,8 @@ VA - Festival Favorites 2015 - Armada Music (2015) [MP3|320 кб/с]<Progressive
 magnet:?xt=urn:btih:EB89365C9289DE308AA8B65BB195CA4581B55F1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,6 +744,8 @@ Asia 2001 - Eternal (2022) [FLAC|Lossless|WEB|tracks] <Goa Trance>
 ```bash
 magnet:?xt=urn:btih:88EDE99F1C948862548FD6911C46FB57D7C28878
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

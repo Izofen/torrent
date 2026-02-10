@@ -1,3 +1,61 @@
+###  Публикация: 1419105   (341850) от 27.10.2020
+
+VA - Now 100 Hits The Legends (2020) [MP3|320 Kbps] <Pop, Rock, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_341850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. George Michael - Faith 3:10
+02. Elton John - Sacrifice 5:06
+03. Tina Turner - The Best 5:30
+04. Amy Winehouse - Rehab 3:30(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 6:00:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5FD9513941D5E59CED7C014922055E2B1A4C4C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180205   (341966) от 03.11.2017
+
+Maroon 5 - Red Pill Blues (2017) Deluxe Edition [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_341966.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Best 4 U
+2. What Lovers Do (Feat. SZA)
+3. Wait
+4. Lips On You(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:407882739C32D914AA327771F00410497B32C5FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419292   (342039) от 27.10.2020
 
 Joy Peters - Burning Dreams (2020) [MP3|320 Kbps] <Italo-Disco, Euro-Disco, Synthpop>
@@ -21,6 +79,8 @@ Joy Peters - Burning Dreams (2020) [MP3|320 Kbps] <Italo-Disco, Euro-Disco, Synt
 ```bash
 magnet:?xt=urn:btih:62563249BC9F50E6B30D2B8943DAFAFE7CB3E277
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +109,8 @@ Mirko Hirsch - Missing Pieces - Return to Neon (2020) Special Edition [FLAC|Loss
 magnet:?xt=urn:btih:BABBCF08DFD469BF9CD2E7D730CC5E5FE1ED8EB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +137,8 @@ Mirko Hirsch - Missing Pieces - Return to Neon (2020) Special Edition [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:168D0C907D5092C9C4272125DC3F1AE2CE2595B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +167,8 @@ VA - Dance Club 2020.03 (2020) [MP3|320 Kbps] <Dance, Pop, Deep House>
 magnet:?xt=urn:btih:59F006FAB4F05B66D2384B3393B7553A42986BF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +195,8 @@ Piano Fantasia & Beautiful Ballet - Song For Denise / Energy (2020) Unofficial [
 ```bash
 magnet:?xt=urn:btih:B58F0FD7266A070F596BACB4DA71ED0B84DCAA88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +225,8 @@ VA - Fly To Moscow (2018) Unofficial [MP3|320 Kbps] <Italo-Disco, Synthpop>
 magnet:?xt=urn:btih:5C07D805820F8663475E75AE2A7942975AE12E95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +253,8 @@ Wonder - Up & Down (1980) LP [MP3|320 Kbps] <Electronic, Disco>
 ```bash
 magnet:?xt=urn:btih:3E686D6F46D4283F4BA9EE712D1BD433BFE0F3C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +283,8 @@ Amadeus Liszt - Win The Race (2020) Unofficial [MP3|320 Kbps] <Italo-Disco>
 magnet:?xt=urn:btih:E3A0244D15891CFD4EFB9AFE619C13062FC460F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +311,8 @@ Bjork - Vulnicura Strings (2015) [MP3|320 кб/с]<Pop, Experimental, Acoustic>
 ```bash
 magnet:?xt=urn:btih:D61FF050EFCB33B7E373BBBE68DDEB34CC54D1F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +341,8 @@ Interface - Plastic Age (2020) Unofficial [MP3|320 Kbps] <Synthpop, Italo-Disco>
 magnet:?xt=urn:btih:6146375674050C5CD93A8D132D20B751B97211F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +369,37 @@ Kate Boy - One (2015) [MP3|320 кб/с]<Alternative, Synthpop, Indie Pop>
 ```bash
 magnet:?xt=urn:btih:A68B09EEAB00E5667D16F07F79BB3C755FF7AE0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580538   (342462) от 25.11.2012
+
+Adriano Celentano - Unicamentecelentano (2011) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_342462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если перевести с итальянского название диска, то оно звучит как "Только Челентано". В отличии от 3-х боксового сета 2006 года с таким же названием, в сборнике 2011 года лишь один диск. Я бы назвал его "Unicamente Super-Celentano"01. C'e Sempre Un Motivo    [0:05:25]
+02. Io Sono Un Uomo Libero    [0:05:48]
+03. Le Stesse Cose    [0:05:42]
+04. L'Emozione Non Ha voce (Io Non So Parlar D'Amore)    [0:04:08](   Читать дальше...   )Жанр: PopПродолжительность: 01:13:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +428,8 @@ Dee Dee - Loving You (1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
 magnet:?xt=urn:btih:6B65BF6F6C46AD6935830C9E67642B79B464FA11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +456,8 @@ DJ Friction present Ground Control - Boogie Some More (2017) [MP3|320 Kbps] <Dis
 ```bash
 magnet:?xt=urn:btih:786490C6726563580EDD082D140E5550D7D2D972
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +486,8 @@ CD01:
 magnet:?xt=urn:btih:326BD5C5E271E792DE50BFA03CF4C3269C29DAF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +514,8 @@ VA - А у нас во дворе... (2005) [FLAC|Lossless|image + .cue]<Рор>
 ```bash
 magnet:?xt=urn:btih:3A34744B7C2EDEE92DAB4444C59258EDDFDA0744
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +544,8 @@ CD01:
 magnet:?xt=urn:btih:A758CB07B50C80FDC1371DC15A65F74D3CE3B95E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +572,8 @@ Chantereau, Dahan & Pezin - Disco & Co  (vol. 1-3) (1979) 3 LP [MP3|320 Kbps] <E
 ```bash
 magnet:?xt=urn:btih:BBF58A18D74CDBE434A38ECC9029C9C25D0B4885
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +602,8 @@ C.J. & Co - Deadeye Dick (1978) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
 magnet:?xt=urn:btih:43ECE365CAC4E91F100792C9A5363D7CE9FF42F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +630,8 @@ Mylene Farmer - Interstellaires (2015) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:67623C4C83805AFA98C5431EAE15146FD9FA73CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +660,8 @@ magnet:?xt=urn:btih:67623C4C83805AFA98C5431EAE15146FD9FA73CA
 magnet:?xt=urn:btih:7FD0CC6A930D708CD2634DEDAE86BD0A5BA840C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +688,8 @@ Radiorama - Disco Collection (2001) [MP3|320 кб/с]<Pop, Disco, Retro>
 ```bash
 magnet:?xt=urn:btih:9958093A1F1233969020DB2E451112EF17C81085
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +718,8 @@ magnet:?xt=urn:btih:9958093A1F1233969020DB2E451112EF17C81085
 magnet:?xt=urn:btih:E0FF20C4C3D4043ACCAB0DD42C4DF4ED73B8F557
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,86 +747,7 @@ Lara Fabian - Ma Vie Dans La Tienne (2015) [FLAC|Lossless|WEB-DL]<Pop>
 magnet:?xt=urn:btih:09D4CCC4DEAC45AE4876CF738E0646E06118F281
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954038   (344270) от 06.11.2015
-
-Seal - 7 (2015) [FLAC|Lossless|WEB-DL]<Pop, Soul, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daylight Saving
-02. Every Time I'm With You
-03. Life On The Dancefloor
-04. Padded Cell(   Читать дальше...   )Жанр: Pop, Soul, R&BПродолжительность: 00:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:621DBB4BA7B6986481D4FE948D66BF058FA2316E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954003   (344271) от 06.11.2015
-
-Anastacia - Ultimate Collection (2015) [MP3|320 кб/с]<Pop-Rock, R&B, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Outta Love 04:04
-02. Left Outside Alone 04:18
-03. Sick and Tired 03:30
-04. Paid My Dues 03:21(   Читать дальше...   )Жанр: Pop-Rock, R&B, SoulПродолжительность: 01:15:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:398D2EC4D312F61DDDB732E3727397C0E78263E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954029   (344506) от 06.11.2015
-
-Little Mix - Get Weird (2015) The Deluxe Edition [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Magic
-02. Love Me Like You
-03. Weird People
-04. Secret Love Song(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5665DBB00E2ED4A15F47B00E6FAEF939425D0F0
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

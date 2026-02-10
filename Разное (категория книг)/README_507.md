@@ -1,3 +1,29 @@
+###  Публикация: 1213574   (768078) от 17.03.2018
+
+Светлана Орлова | Назад, в будущее! 600 рецептов советской кухни (2016) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все мы родом из детства! Из той счастливой поры, когда деревья и сугробы были большими, а наши родители – молодыми и красивыми. И жили мы тогда в большой, красивой и сильной стране – СССР. С тех пор много воды утекло, много событий произошло в жизни каждого из нас – просто закончилась золотая пора детства и мы шагнули во взрослую жизнь со всеми её заботами и хлопотами. (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:345360B21A1834D18B3AB449F835E2611F91FE79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213596   (768105) от 17.03.2018
 
 Джейн Мэтьюз | Время желаний. Как начать жить для себя (2018) [FB2]
@@ -21,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:16281FEF51798716ABEC8ECA7CFAD94C186EE243
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ Black Dog & Leventhal | Fine Homebuilding. Home Repair Wisdom & Know-How (2017) 
 magnet:?xt=urn:btih:7DDF78CE071971A92238136A734476D1DCE38C94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:7DDF78CE071971A92238136A734476D1DCE38C94
 ```bash
 magnet:?xt=urn:btih:FF8EDAD812A1175DADEC908C5A5DB9E4E7F0D45B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:FF8EDAD812A1175DADEC908C5A5DB9E4E7F0D45B
 magnet:?xt=urn:btih:984A797E3354F53B106A438300AF5DD272BA9A7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:984A797E3354F53B106A438300AF5DD272BA9A7F
 ```bash
 magnet:?xt=urn:btih:11C19496223F5D38CA0B71BC69A38E6E071E32BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +181,8 @@ magnet:?xt=urn:btih:11C19496223F5D38CA0B71BC69A38E6E071E32BB
 magnet:?xt=urn:btih:DAD46E049B5EFFE85F3A7DA3E834BE1306C0CC68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:DAD46E049B5EFFE85F3A7DA3E834BE1306C0CC68
 ```bash
 magnet:?xt=urn:btih:7F31E1A51945AE06AC5DF913D9E1C04DAAA66FC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +235,8 @@ magnet:?xt=urn:btih:7F31E1A51945AE06AC5DF913D9E1C04DAAA66FC8
 magnet:?xt=urn:btih:901E63D7F41C100D1649263E9C38B307DA9A301B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +262,8 @@ magnet:?xt=urn:btih:901E63D7F41C100D1649263E9C38B307DA9A301B
 ```bash
 magnet:?xt=urn:btih:8EE25BA2E8E68940AFF7F62B702806701DC4CD0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +292,8 @@ magnet:?xt=urn:btih:8EE25BA2E8E68940AFF7F62B702806701DC4CD0E
 magnet:?xt=urn:btih:43B165CF0302CCB29857910633CD472B42142D8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +317,8 @@ magnet:?xt=urn:btih:43B165CF0302CCB29857910633CD472B42142D8B
 ```bash
 magnet:?xt=urn:btih:5A8A3DCB6C5DCA2004D107740A466445987B3E0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +344,8 @@ magnet:?xt=urn:btih:5A8A3DCB6C5DCA2004D107740A466445987B3E0D
 magnet:?xt=urn:btih:F0DB70837F8791ED5F714A599850B9D40C514CA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +370,8 @@ magnet:?xt=urn:btih:F0DB70837F8791ED5F714A599850B9D40C514CA5
 magnet:?xt=urn:btih:1C7AF86C705D699C166B9456456D50CAD32EDA51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +395,8 @@ magnet:?xt=urn:btih:1C7AF86C705D699C166B9456456D50CAD32EDA51
 ```bash
 magnet:?xt=urn:btih:3512EB333FD702D5F46C71D294C0B0E804909669
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +424,8 @@ magnet:?xt=urn:btih:3512EB333FD702D5F46C71D294C0B0E804909669
 magnet:?xt=urn:btih:1D9138A269DDF9C82ED25058CEEE9B8FC48C34DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +450,8 @@ magnet:?xt=urn:btih:1D9138A269DDF9C82ED25058CEEE9B8FC48C34DF
 magnet:?xt=urn:btih:8241B37B4C770B3AD1F9BF3C3CFC14E2E185D37A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +475,8 @@ magnet:?xt=urn:btih:8241B37B4C770B3AD1F9BF3C3CFC14E2E185D37A
 ```bash
 magnet:?xt=urn:btih:AF38490BDA9B05DF28690959C935DCF91A4BA840
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +504,8 @@ magnet:?xt=urn:btih:AF38490BDA9B05DF28690959C935DCF91A4BA840
 magnet:?xt=urn:btih:3A0BB8ED61DA4366B6010124CD31D24DA538A06E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +531,8 @@ magnet:?xt=urn:btih:3A0BB8ED61DA4366B6010124CD31D24DA538A06E
 ```bash
 magnet:?xt=urn:btih:440CD6FC1480626D52580A8E7BFF86F222885927
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +560,8 @@ magnet:?xt=urn:btih:440CD6FC1480626D52580A8E7BFF86F222885927
 magnet:?xt=urn:btih:7EDB72D92E94408687B5E59FDB1CEC24929F4F91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +586,8 @@ magnet:?xt=urn:btih:7EDB72D92E94408687B5E59FDB1CEC24929F4F91
 ```bash
 magnet:?xt=urn:btih:675667F9574933600C7AD3A5AD8414EEEDC7CE9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +614,8 @@ magnet:?xt=urn:btih:675667F9574933600C7AD3A5AD8414EEEDC7CE9B
 magnet:?xt=urn:btih:45AD72CB236B064CB03D4B23BEA9A377AF7DE7B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +641,8 @@ magnet:?xt=urn:btih:45AD72CB236B064CB03D4B23BEA9A377AF7DE7B0
 magnet:?xt=urn:btih:16D7F9BDAAC619553134BB47D5220743D559F16E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +666,8 @@ magnet:?xt=urn:btih:16D7F9BDAAC619553134BB47D5220743D559F16E
 ```bash
 magnet:?xt=urn:btih:EA8A15B205BCCBE8464267D45290F825F9206518
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,29 +693,7 @@ magnet:?xt=urn:btih:EA8A15B205BCCBE8464267D45290F825F9206518
 magnet:?xt=urn:btih:E3646E5F66BDEC70FBD2073671C2339934EA875D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392559   (769147) от 26.06.2020
-
-Роджер Сайп, Робб Збиерски | Разум под контролем. Неочевидные стратегии достижения целей (2020) [EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Успех в жизни часто определяют одним словом – «больше»: лучшие результаты, быстрый карьерный рост, выросший доход… Работай больше. Делай больше. Достигай большего. И как можно скорее. Мы крутимся как белки в колесе, но итогом становятся стресс и опустошенность. А теперь представьте, что достичь целей можно и другим, гораздо более эффективным способом… замедлив ход. (   Читать дальше...   )Жанр: Психология, Саморазвитие, Личностный ростПеревод: Наталия ХоренкоФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDE643A928FDE92BE674F9CED58B9E45D39B2BCC
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

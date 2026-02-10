@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:F5180D4B4DDC79ECA705BE8EF11D8F074FECED62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ NG: Секреты истории - Эксперименты ЦРУ: Контр�
 magnet:?xt=urn:btih:8F810C3B463A41410A289BEC2375A99DF44ADB2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:8F810C3B463A41410A289BEC2375A99DF44ADB2A
 ```bash
 magnet:?xt=urn:btih:FF77D6F0711A01AE5BC947BFD8A02AF232645A6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ VA - Club&Dance Осенние Треки Remix NNM (2022) [MP3|320 Kbps] <Pop, 
 magnet:?xt=urn:btih:EEFE2FC091CC863BB2174CAC749A7476CB2A8FEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ ExperienceIndexOK - небольшая утилита от разработчи�
 ```bash
 magnet:?xt=urn:btih:11FADB7D7FA5028B5A21281A3A475F6E1824A9FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ QownNotes – менеджер заметок, позволяющий четко
 magnet:?xt=urn:btih:9610B56E6C6C66BD13CC9AED0FB0490E90FED7F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:9610B56E6C6C66BD13CC9AED0FB0490E90FED7F3
 ```bash
 magnet:?xt=urn:btih:9191830D90D2AB70E4080C2981E9D66312634A23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ BELOFF [dp] 2022.11.1
 magnet:?xt=urn:btih:FC133D2E790FC474F77D53748446B14D1DEB2F0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:FC133D2E790FC474F77D53748446B14D1DEB2F0E
 ```bash
 magnet:?xt=urn:btih:2501E779D03066C5C3D1AED2FE3CF05E24661486
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:2501E779D03066C5C3D1AED2FE3CF05E24661486
 magnet:?xt=urn:btih:88CB02290D6133AC13E85672A51EA9FCD30BFCB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:88CB02290D6133AC13E85672A51EA9FCD30BFCB7
 ```bash
 magnet:?xt=urn:btih:468C085AFDC05C2234CB62C55B324C807605F9EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:468C085AFDC05C2234CB62C55B324C807605F9EF
 magnet:?xt=urn:btih:BB31D5856EE581118F06FF1178705E38323704B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ PREQUEL — это фоторедактор с огромным количест
 ```bash
 magnet:?xt=urn:btih:C81FF156349E4EE71C6BC85AEB5267544523D6A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ Primal Fear - Code Red (2023) [FLAC|Lossless|image + .cue] <Power Metal>
 magnet:?xt=urn:btih:006C331D540AB97C8482F4FC74045421C26FF43F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ A4 Looser(   Читать дальше...   )Жанр: Heavy, Speed MetalПро�
 magnet:?xt=urn:btih:B9D73EF8AD4A278F145A7498DC4E472EC062CCE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:B9D73EF8AD4A278F145A7498DC4E472EC062CCE2
 ```bash
 magnet:?xt=urn:btih:F887E552E0E872B7BC80AD40B6DF937BE084762D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:F887E552E0E872B7BC80AD40B6DF937BE084762D
 magnet:?xt=urn:btih:8E5A04D19EA66B47F69D01A3C6BA3CC982D4ABB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ FontCreator - Редактор шрифтов FontCreator может созда�
 ```bash
 magnet:?xt=urn:btih:0DDCE991A046894052306D7310A610FAEFEEA700
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ OOMPH! - Richter und Henker (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Industri
 magnet:?xt=urn:btih:D68F2FEB897CB57B7F3D3E5AA91EB2A8C6FFF96E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ magnet:?xt=urn:btih:D68F2FEB897CB57B7F3D3E5AA91EB2A8C6FFF96E
 ```bash
 magnet:?xt=urn:btih:D74CF2C46D5647C06D70C820DA256AB5F87CA534
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +561,8 @@ The Starkillers - Пираты Японского Моря (2023) [FLAC|Lossless
 magnet:?xt=urn:btih:600791D5A01D866975604A0B8E3BC5969367F316
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +587,8 @@ magnet:?xt=urn:btih:600791D5A01D866975604A0B8E3BC5969367F316
 magnet:?xt=urn:btih:1811883F51ED8553393D48F9C1169B8549CAAA8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ Radeon Software Slimmer - портативная утилита для удал�
 ```bash
 magnet:?xt=urn:btih:6A1573077C84562CE25371F3FDCD5E94EB8E8C60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +642,8 @@ magnet:?xt=urn:btih:6A1573077C84562CE25371F3FDCD5E94EB8E8C60
 magnet:?xt=urn:btih:101B3B9CDC6AB9672F4243FC5C0A33865EDB598A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +668,8 @@ Sandboxie - yтилита для контроля за работой разли
 magnet:?xt=urn:btih:877EA115BF6583E87D7D659E270B8E82A081DB15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ TrafficMonitor - портативная утилита с минималисти
 ```bash
 magnet:?xt=urn:btih:311B7DA1A48EB3D7F48233038DBA6FFA77693157
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

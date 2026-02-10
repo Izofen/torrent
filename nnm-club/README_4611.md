@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:06D66208F02D2E9D23DE557D969B612E13293226
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Kekkai Sensen & Beyond / Стражи Барьера и Загранье [ТВ-2
 ```bash
 magnet:?xt=urn:btih:8C4A343CAEB5E73C77E49ABFE62C8D2F981B1C5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:8C4A343CAEB5E73C77E49ABFE62C8D2F981B1C5B
 magnet:?xt=urn:btih:03B63DACFB156CB8FC28EB71BAAC0A6870FC08AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Kenzen Robo Daimidaler / Daimidaler the Sound Robot / Звуковой робо�
 ```bash
 magnet:?xt=urn:btih:E89A5CF490B6FA777C6A8CA4D1F6638227DD0161
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ The Kindeman Remedy (2023) [Ru/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:9B52E3EE1656F103C86B306A19366EEA505EC273
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:9B52E3EE1656F103C86B306A19366EEA505EC273
 ```bash
 magnet:?xt=urn:btih:D295D7ADEFE4112A09E4E12F136B61BF7963472F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Freemake Video Converter - это бесплатное универсально�
 magnet:?xt=urn:btih:519123FACBABBC669D283602A3AEC41438266778
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Kerbal Space Program (2015) [Ru] (1.11.0.03045/dlc) Repack xatab (обновля
 magnet:?xt=urn:btih:F18B36125C3D150487E74DE4DE5AB52E5C83B04A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ magnet:?xt=urn:btih:F18B36125C3D150487E74DE4DE5AB52E5C83B04A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ VA - Toolroom Knights (Mixed By Forza) (26.11.2012) [MP3|320 кб/с]<Progressiv
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ VA - Toolroom Knights (Mixed By Forza) (26.11.2012) [MP3|320 кб/с]<Progressiv
 ```bash
 magnet:?xt=urn:btih:4DCB5DB4BF809D0CE55584B3542CF91263F49F04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ VA - Vocal Chillout Music (2018) [MP3|320 Kbps] <Downtempo, ChillOut, NewAge>
 magnet:?xt=urn:btih:C28BF7349BBB19AA30B39081367F7086EB941954
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:C28BF7349BBB19AA30B39081367F7086EB941954
 ```bash
 magnet:?xt=urn:btih:A042A39BCF5F5D9F56B2FDA4ACF066B7ADFB0590
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:A042A39BCF5F5D9F56B2FDA4ACF066B7ADFB0590
 magnet:?xt=urn:btih:0C52D0CFE3478334A99D27B25ECE8597E664927D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:0C52D0CFE3478334A99D27B25ECE8597E664927D
 ```bash
 magnet:?xt=urn:btih:0AE81DC747F9A0F9CFC1A3AF3ACFD26FC42D272E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:0AE81DC747F9A0F9CFC1A3AF3ACFD26FC42D272E
 magnet:?xt=urn:btih:9BD169BDA9F8FC67A653B3BB3D44ABB6FF964CD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:9BD169BDA9F8FC67A653B3BB3D44ABB6FF964CD4
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +477,8 @@ magnet:?xt=urn:btih:9BD169BDA9F8FC67A653B3BB3D44ABB6FF964CD4
 magnet:?xt=urn:btih:6AC27D10235B9B5F8EFCA959B3557078034E24E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +502,8 @@ magnet:?xt=urn:btih:6AC27D10235B9B5F8EFCA959B3557078034E24E7
 ```bash
 magnet:?xt=urn:btih:7564A9896361AAC78DDBEBE35EEECEC9EFB61FDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:7564A9896361AAC78DDBEBE35EEECEC9EFB61FDE
 magnet:?xt=urn:btih:32ABD0D28767001B5A9723280660E1E06A195FC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ magnet:?xt=urn:btih:32ABD0D28767001B5A9723280660E1E06A195FC5
 magnet:?xt=urn:btih:F985D8C20E371A21CD3FA92EB0DCB65860EF95BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +580,8 @@ Dies Irae / Судный День [2017, TV, 11 ep + SP] WEB-DL 720p Raw+Rus
 ```bash
 magnet:?xt=urn:btih:8DB89365163536CE81A940324115BAC6245ED244
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +610,8 @@ Accept-SP - Dream Of Tree (2019) [MP3|320 Kbps] <Metal, Progressive Rock>
 magnet:?xt=urn:btih:074E344AC4AB5C7DDD7302AFC99EDEA5E7FC2723
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ magnet:?xt=urn:btih:074E344AC4AB5C7DDD7302AFC99EDEA5E7FC2723
 ```bash
 magnet:?xt=urn:btih:E6AA8C7441C6589022C25ABD68CAF0208C90A48D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +662,8 @@ Mahouka Koukou no Rettousei: Raihousha Hen | The Irregular at Magic High School:
 magnet:?xt=urn:btih:0F1571C82C329DA7E1C710ACBFA97D4BDB4C892D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ magnet:?xt=urn:btih:0F1571C82C329DA7E1C710ACBFA97D4BDB4C892D
 ```bash
 magnet:?xt=urn:btih:E13CF8D36CA7DA97C63A89BB0EA4C354F79D7692
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

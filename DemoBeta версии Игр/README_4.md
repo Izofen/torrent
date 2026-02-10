@@ -19,6 +19,8 @@ Builders of Greece (2024) [Ru/Multi] (14640143) Repack Wagner [Early Access]
 magnet:?xt=urn:btih:7DE9121E64AD38757F471DD0C1627DCD96D9DA31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Car For Sale Simulator 23 - это в основном игра по покуп�
 ```bash
 magnet:?xt=urn:btih:E0C178C3202957EE1D5AD5DCDDBC3C4EABEDB613
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Slime Rancher 2 - это продолжение удостоенной нагр�
 magnet:?xt=urn:btih:CB4CE6D378F67C2E2AB9B0BC1748D225B1A030E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Saleblazers предлагает насладиться увлекательны
 ```bash
 magnet:?xt=urn:btih:D0546E4FFCDB576F9C4B1A000840BA6DA3526ADC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ CRETE (2025) [En] (Alpha 0.12.0) Repack Let'sРlay [Playtest]
 magnet:?xt=urn:btih:E7636D28982B08B112C4B145E673C6436931CB0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Fata Deum - The God Sim / Fata Deum - Симулятор Бога (2025) [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:FDF292AE9ECA0534D1BF773DED0D9196857FE32C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Titan Quest II (2025) [Ru/En] (0.2.0-public.102611+win.1879) Repack Let'sРlay [
 magnet:?xt=urn:btih:A122EC0E948DBE7E344320BEADE8A59F2B7EC870
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Into the Dead: Our Darkest Days представляет собой сайд-с�
 ```bash
 magnet:?xt=urn:btih:04F18744D930DA7CFD3204AE76588B9E97163D94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Metel - Horror Escape (2020) [Ru/En] (1.01) Repack Necros [Early Access]
 magnet:?xt=urn:btih:C00CF5E879BAC5C4E066CAD2F98BC2DB4BF306E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Lifecraft представляет собой симулятор управле�
 ```bash
 magnet:?xt=urn:btih:145F03B27FA5B98E11328BF23B9611E897A18D70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Exanima (2015) [En] (0.9.0.5) License GOG
 magnet:?xt=urn:btih:42D308B4E48BAF872BC67006110C9F168879E8A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Stellar Tactics – увлекательное путешествие по ко�
 ```bash
 magnet:?xt=urn:btih:294F52AF5C406344DD41CDD07F653C0657199205
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Stellar Warfare совмещает в себе сразу несколько п�
 magnet:?xt=urn:btih:35C3B9635B21B016A2E9DCE2C9B69C2D9D4E1BA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ BEAST: False Prophet (2023) [Multi] (1.1.24118) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:6F11C5BB2BEA292CF544C01A6E1464EDA21A7872
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Encased — пошаговая научно-фантастическая RPG. И
 magnet:?xt=urn:btih:47A5715719416EC1F9DBE81FEBA2EC9B4436E2EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Secret Order 8: Return to the Buried Kingdom (2018) [En] (Beta) Unofficial
 ```bash
 magnet:?xt=urn:btih:936F18E20DA28F33375B1157366359E8CA694A2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ PuppetShow 15: Porcelain Smile (2018) [En] (Beta) Unofficial
 magnet:?xt=urn:btih:74A01FC9E0EB8F03A938BCA442E8CD01DF2E3750
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Mystery of the Ancients 8: No Escape (2018) [En] (Beta) Unofficial
 ```bash
 magnet:?xt=urn:btih:512EDE08C3AD70FC5A1C79F808638DE7C16F330A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Travellers Rest (2020) [Ru/Multi] (0.7.3.5.1) Repack Pioneer [Early Access]
 magnet:?xt=urn:btih:AEB3342010F0CC6B34F8551D0C7E2A95B4C88089
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Teardown (2020) [En] (0.9.0) Unofficial [Early Access]
 ```bash
 magnet:?xt=urn:btih:AD46F9FA181990F16315608C67561A97A3EF059E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ The Fermi Paradox - это повествовательная стратегич
 magnet:?xt=urn:btih:E799E5227C44A9E2131507E39AD0687812F4DC15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Witchfire (2023) [En] (0.1.9 Build 47935) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A9A084F5EF06C2DE2BD8E120F1F75553704D4AA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Daimon Blades – это мрачный и динамичный first-person sla
 magnet:?xt=urn:btih:59205D257C2F6C5EDF2641AB769FD7D0B486E6F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Demonologist — это кооперативная игра ужасов, в к�
 ```bash
 magnet:?xt=urn:btih:D19DACFA38F00242E66E6791202CED5D36546033
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Arena Renovation (2023) [Ru/Multi] (0.6.153) License GOG [Early Access]
 magnet:?xt=urn:btih:6092ED92172DCD49E75B6520747F1560B5819EC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Maximum Action (2018) [En] (0.92) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:E025EA9969751D5CFEB21E623F097FEA7C480D02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

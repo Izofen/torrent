@@ -19,6 +19,8 @@ LazyMedia Deluxe это Android TV приложение, которое можн
 magnet:?xt=urn:btih:296FB70458FB3D6E0D6FD96CE4B8932C296645A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:296FB70458FB3D6E0D6FD96CE4B8932C296645A3
 ```bash
 magnet:?xt=urn:btih:360058B8C578BB7811BD5A623D22396E5B2FE390
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ WPS Office - очень полезное, офисное приложение д
 magnet:?xt=urn:btih:66BE80311C5A83B62945EDF1C750F09B93DBAE5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:66BE80311C5A83B62945EDF1C750F09B93DBAE5E
 ```bash
 magnet:?xt=urn:btih:D90FCF6378828AC585C166BCB98AC6661B2D4033
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Mi Home - это приложение для управления умным д�
 magnet:?xt=urn:btih:6B79DDF577667F042939C664CA57B6ADBB84D43C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:1597725B06E8A012D64E02320C2077FC973605E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 magnet:?xt=urn:btih:224D7E1AE5BAABB1741B794D812443FA0F1F2C52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:224D7E1AE5BAABB1741B794D812443FA0F1F2C52
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ MSI Afterburner - утилита для разгона видеокарт люб
 magnet:?xt=urn:btih:F3505C7B2F262B5DE0C9E2499D6C74A27F4172A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:F3505C7B2F262B5DE0C9E2499D6C74A27F4172A5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:F3505C7B2F262B5DE0C9E2499D6C74A27F4172A5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:F3505C7B2F262B5DE0C9E2499D6C74A27F4172A5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:F3505C7B2F262B5DE0C9E2499D6C74A27F4172A5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:CB3AEF6C0009F0D204A0BA30122831501A5E7A2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:CB3AEF6C0009F0D204A0BA30122831501A5E7A2A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:CB3AEF6C0009F0D204A0BA30122831501A5E7A2A
 magnet:?xt=urn:btih:A4E347C07F3014B3566592AEB2AF9EDB49706AF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:5103A2C9B89E83B9BFCD3F081B536AEA3B54D7D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:5103A2C9B89E83B9BFCD3F081B536AEA3B54D7D5
 magnet:?xt=urn:btih:C43A07E78D0A1530ED6F2C4D46F2F0189E2BB3A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:C43A07E78D0A1530ED6F2C4D46F2F0189E2BB3A4
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:C43A07E78D0A1530ED6F2C4D46F2F0189E2BB3A4
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:C43A07E78D0A1530ED6F2C4D46F2F0189E2BB3A4
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:C43A07E78D0A1530ED6F2C4D46F2F0189E2BB3A4
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:C43A07E78D0A1530ED6F2C4D46F2F0189E2BB3A4
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:2D3EC76A093BE456D886C6B712A428B07C8B4D80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Freemake Video Converter - это бесплатное универсально�
 magnet:?xt=urn:btih:0CC31B62D668AB558483E910B31A652A7E76048D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 ```bash
 magnet:?xt=urn:btih:132CD2C88050C1433AC667A9E437F8A37446E925
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

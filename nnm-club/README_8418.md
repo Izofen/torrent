@@ -19,6 +19,8 @@ Confrontation / Confrontation: Последняя битва [Ru] (RePack/1.0.0.
 magnet:?xt=urn:btih:B76B90FD6919D1CA89DD754244A7A7238B532B38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:B76B90FD6919D1CA89DD754244A7A7238B532B38
 ```bash
 magnet:?xt=urn:btih:2F40602926BFDD46C80163FB54D9779268585DFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:2F40602926BFDD46C80163FB54D9779268585DFE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:2F40602926BFDD46C80163FB54D9779268585DFE
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Blu-ray Player – это лучший, всемирно известный Blu-
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Blu-ray Player – это лучший, всемирно известный Blu-
 magnet:?xt=urn:btih:F9F7C575F93C0862F64C36B8BEDA4C46F7F226B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:F9F7C575F93C0862F64C36B8BEDA4C46F7F226B7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:F9F7C575F93C0862F64C36B8BEDA4C46F7F226B7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Microsoft Windows 7 Ultimate SP1 x86 by SarDmitriy v.02 (2012) (Rus)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Microsoft Windows 7 Ultimate SP1 x86 by SarDmitriy v.02 (2012) (Rus)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ CyberLink PowerDVD — один из самых лучших современн�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ Yetisports. Кругосветный пингвин [WineSkin]
 magnet:?xt=urn:btih:14AA841B68A19BC24BD7451733C38365592B3E5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:14AA841B68A19BC24BD7451733C38365592B3E5B
 ```bash
 magnet:?xt=urn:btih:56F5D60F82F1B4EF247760D751F7DE8E0B70674A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:56F5D60F82F1B4EF247760D751F7DE8E0B70674A
 magnet:?xt=urn:btih:3731D1EAE2DAA6203CA3DD95145B4505BF682E45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:3731D1EAE2DAA6203CA3DD95145B4505BF682E45
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ Debian GNU/Linux 6.0.5 [i386] (10xDVD)
 magnet:?xt=urn:btih:A951FC4BDD266B40A7EDB12E179EAADAE679E0C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ VBA32 Personal 3.12.16.8 [Multi/Русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ VBA32 Personal 3.12.16.8 [Multi/Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +512,8 @@ Windows 7 Professional - 3 ключаПобедитель отберет лыч�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ Artisteer - первый и единственный продукт автома
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ Artisteer - первый и единственный продукт автома
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +595,8 @@ Call of Duty: Modern Warfare 2 [Ru] (RePack/Multiplayer Only|alterRev1.3.37a++b1
 magnet:?xt=urn:btih:6D86637470F2F7B0BD91E49C1153A6E7D9FB82A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +620,8 @@ L. A. Noire The Complete Edition [Ru/En] (1.3.2613/Repack) 2011 | UltraISO
 ```bash
 magnet:?xt=urn:btih:170D55FAB8373EDD900F463FDBBA1A4DEE986D1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +651,8 @@ magnet:?xt=urn:btih:170D55FAB8373EDD900F463FDBBA1A4DEE986D1E
 magnet:?xt=urn:btih:26D673E2C9354EFBB526AEC513913FC2F282DDCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +676,8 @@ magnet:?xt=urn:btih:26D673E2C9354EFBB526AEC513913FC2F282DDCC
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -661,6 +711,8 @@ VA - Русский Хитовичок (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:088F16344BA5B3A0634AA583DC1AA3C7311B9AA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

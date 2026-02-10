@@ -19,6 +19,8 @@ iSpy - мощное программное обеспечение для наб�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ root password: live (standard user login: one / no password)
 ```bash
 magnet:?xt=urn:btih:B8CD9F2B4D8BF953407E42FD87AFC7E00A5B61B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:B8CD9F2B4D8BF953407E42FD87AFC7E00A5B61B1
 magnet:?xt=urn:btih:5D817449654010F33EC0DD775A89E1F060CE73CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Jack the Ripper [En] (RePack) 1995 | Pilotus
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Jack the Ripper [En] (RePack) 1995 | Pilotus
 magnet:?xt=urn:btih:349EFDFBF4C8F7907E5A8E37A8F62B6D3C90EBA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:349EFDFBF4C8F7907E5A8E37A8F62B6D3C90EBA5
 ```bash
 magnet:?xt=urn:btih:CC83D258A09B16D568EC2EE2E378FA8851AFAB98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:CC83D258A09B16D568EC2EE2E378FA8851AFAB98
 magnet:?xt=urn:btih:D83EDECA6BD2659155C82F16AEF887BD44B90740
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:D83EDECA6BD2659155C82F16AEF887BD44B90740
 ```bash
 magnet:?xt=urn:btih:16688E2DAEC892B552404DFFB552B074101373A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:16688E2DAEC892B552404DFFB552B074101373A9
 ```bash
 magnet:?xt=urn:btih:9C36D0E9CDABA5EA78E4B7FB6F250CA3F1AA94B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ DeCoDeR Pack содержит только декодеры и фильтры д
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ DeCoDeR Pack содержит только декодеры и фильтры д
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ CIFRAmagazine.com | Электронный журнал CIFRAmagazine №02 [201
 ```bash
 magnet:?xt=urn:btih:8F56E6F9C04D4C7609545DD112D98BE0CAD5030C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:8F56E6F9C04D4C7609545DD112D98BE0CAD5030C
 magnet:?xt=urn:btih:93B06F5CE06CE454F51D73EC74260F14FF73F7E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:93B06F5CE06CE454F51D73EC74260F14FF73F7E2
 ```bash
 magnet:?xt=urn:btih:22E0AAAE528318443E4F83C1D402489A8740CE44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:22E0AAAE528318443E4F83C1D402489A8740CE44
 magnet:?xt=urn:btih:367594FE6B4CAD5FBD94DD23BBB7664C25114D2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ Total Eclipse [En] (RePack) 1988 | Pilotus
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +454,8 @@ Total Eclipse [En] (RePack) 1988 | Pilotus
 magnet:?xt=urn:btih:E3624E635044A75B6D61DA580D7625C50EB211D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:E3624E635044A75B6D61DA580D7625C50EB211D9
 ```bash
 magnet:?xt=urn:btih:947EF34229B0BCC3A7B447EFB75FC5435ECBE119
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ magnet:?xt=urn:btih:947EF34229B0BCC3A7B447EFB75FC5435ECBE119
 magnet:?xt=urn:btih:6F22E8F9A7C832A7CA5FC109B99E46306D36251B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +545,8 @@ magnet:?xt=urn:btih:6F22E8F9A7C832A7CA5FC109B99E46306D36251B
 magnet:?xt=urn:btih:BDB034B586BD6097BFD017CA3797EB0D284E46BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +571,8 @@ magnet:?xt=urn:btih:BDB034B586BD6097BFD017CA3797EB0D284E46BF
 ```bash
 magnet:?xt=urn:btih:AC19D174A79B9769BE9AEFA464EBC3BABB5B16FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +607,8 @@ Interphace - Injected Movements (2005) [MP3|320 кб/с]<Euro-Trance>
 magnet:?xt=urn:btih:38C0691CC02FDC1DBB2AFFD697B056DD5FE98D5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +642,8 @@ State of Mind - Live! (2012) [MP3|256 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:0AFD71F0826FA4B9BC0B023BFA238C159D0E1B7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +672,8 @@ CoDeC Pack содержит как декодеры для проигрыван�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -660,6 +708,8 @@ Reflexion - 3 альбома (2006 - 2010) [FLAC,APE|Lossless]<Gothic Metal,Love
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -690,6 +740,8 @@ Reflexion - 3 альбома (2006 - 2010) [FLAC,APE|Lossless]<Gothic Metal,Love
 ```bash
 magnet:?xt=urn:btih:05F02CB1C8FCC4E673C08E4A11D0608245BC9735
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ You Are Grounded (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:88349F02A16D226611E27685D68AE7B281D64B66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Little Big Adventure – Twinsen’s Quest (2024) [Ru/Multi] (1.0.4) Repack FitG
 ```bash
 magnet:?xt=urn:btih:465B5083653BF8FE26892ED3A41296A323C7DD30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Vasilisa and Baba Yaga / Василиса и Баба Яга (2024) [Ru/Multi] (
 magnet:?xt=urn:btih:5A59C3D7359EC685FB560C67CE6EED5172CADB52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Witch of Fern Island - это красочный симулятор жизн
 ```bash
 magnet:?xt=urn:btih:67CA663E4A059EF33BE310DB666BFA8BE8735FA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Gori: Cuddly Carnage - динамичный экшен с элементами �
 magnet:?xt=urn:btih:265CB5E2FDEE2A406F587D8B12652860E5BCD12B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Tavern Talk бросает вас в самое сердце фэнтезийн�
 ```bash
 magnet:?xt=urn:btih:768D6A8F65BC12F29CCC821A91A2C8301689B6C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Black Book / Черная Книга (2021) [Ru/Multi] (build 12000953) Repack d
 magnet:?xt=urn:btih:0FF7D5DDF79435AB4DE543A59317D1885A2C554D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Dragonsphere (1994) [En] (1.01) License GOG
 ```bash
 magnet:?xt=urn:btih:74EAA125E5D6DD0D4D7EEAFD83BDF88A63C0442F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.06) Repack 
 magnet:?xt=urn:btih:CD98A1668E85AA627279BFDA453EACB944D05D06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Destiny Star Girlfriend (2023) [Multi] (1.0.2/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:8FAD6106D2180D2B2835BC76299297EF0A7B9049
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Destiny Star Girlfriend 2 (2024) [Multi] (1.0.0/dlc) License GOG
 magnet:?xt=urn:btih:6AEC986FCD4B13DE5EFA7F0AD34D06B6F2CC8416
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Lunacy: Saint Rhodes - хоррор на выживание от первого 
 ```bash
 magnet:?xt=urn:btih:44C871C243F5B9908D03497257C8A0190F609BDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Hello Neighbor 2 создана в мультяшном стиле, а вы ис
 magnet:?xt=urn:btih:D9652C0B124A59ABCCD1826D85E3F18A997CC8E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (2.618.0.0/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:DE0624C62873D10A7565E13FA43DD3E9932B2BE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Demonologist - это кооперативная игра ужасов, в ко�
 magnet:?xt=urn:btih:0A60C956175F87C6FCB464913518371F0F7734AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Abyss School - это приключенческая игра с упором н
 ```bash
 magnet:?xt=urn:btih:93759C90A7DCCFA43F5226E19EA77EC0E7C96F6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Shadow Corridor 2 (2024) [Multi] (1.14.1) Scene Tenoke
 magnet:?xt=urn:btih:3C63A5C0AADAB0A331F62083393E0EDF519D45C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Two Falls (Nishu Takuatshina) (2024) [Multi] (1.0) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:CB09AC80E04B70D89A843544288B9D904CEA86B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Chicken Police - это приключение с рассказами, слож
 magnet:?xt=urn:btih:C251A58EB0AB4FB314C63694B5988CF613246AF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Crimson Snow (2022) [Ru/Multi] (Build 11503562) Repack Other s
 ```bash
 magnet:?xt=urn:btih:0FDB855E32DB3FA0437AA39D16F573022D8E4E9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Chicken Police: Into the HIVE! - увлекательное детективно
 magnet:?xt=urn:btih:BFA450AA4A302FFF1344209A93647DEBF647EEF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Lula 3D (2006) [Ru/En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:9FB68820365CAD2FEE1AF166D5939D3D0DDA6763
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Five Nights at Freddy's: Into the Pit (2024) [Ru/Multi] (1.0.9.0) Repack FitGirl
 magnet:?xt=urn:btih:EE6CC631B53A20B7A27F55494EAFBA5B367A590F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Time Machine / Машина времени (2000) [Ru/En] (1.23) Repack 1nomok
 ```bash
 magnet:?xt=urn:btih:1C0F01B885198B000935705FF1F1F6F68F0F7C44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Massacre At The Mirage (2024) [En] (1.0) License GOG
 magnet:?xt=urn:btih:529EB74BAA9D9626C793C88C8669532291E1AEFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Ace Ventura (1996) [Ru/En] (1.0) Repack 1nomok
 ```bash
 magnet:?xt=urn:btih:B45F432C7B1FBFED5DEBC3619661912B593E9419
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

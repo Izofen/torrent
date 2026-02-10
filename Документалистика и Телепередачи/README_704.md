@@ -1,3 +1,30 @@
+###  Публикация: 981410   (953100) от 31.01.2016
+
+Главное. Итоговая программа (31.01.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждое воскресенье в 18.00 ведущая программы Ника Стрижак подводит информационные итоги недели. В этом ей помогают авторитетные собеседники, ведущие авторских рубрик и команда корреспондентов Пятого канала.В этом выпуске: Жесткие аргументы дальневосточного полпреда Трутнева: Как Пётр Порошенко и генсек НАТО рисковали жизнью в Давосе, и как на это отреагировал Владимир Путин? Кого ещё в большой политике можно назвать отличником ГТО?
+Европол уполномочен заявить – Старый свет ждет новое испытание терактами. Кто на очереди? Какую тактику используют боевики для организации атак за рубежом? (   Читать дальше...   )Телекомпания: Пятый каналЖанр: ТелепередачаПродолжительность: 01:32:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39C08B51B8DA4688A90FF33E615905508C5067BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981229   (953107) от 31.01.2016
 
 Горизонты атома (30.01.2016) SATRip
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:180A8B4927660AE65DE6A977D4EF2C810062B8A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +71,8 @@ magnet:?xt=urn:btih:180A8B4927660AE65DE6A977D4EF2C810062B8A1
 ```bash
 magnet:?xt=urn:btih:789DC9E0C4B4B58EE948132FC2EC1F5DF0F13853
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +99,8 @@ magnet:?xt=urn:btih:789DC9E0C4B4B58EE948132FC2EC1F5DF0F13853
 magnet:?xt=urn:btih:F3B54D55980A0D4C3497CD3B46CF1D8B0AB1878B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +124,8 @@ magnet:?xt=urn:btih:F3B54D55980A0D4C3497CD3B46CF1D8B0AB1878B
 ```bash
 magnet:?xt=urn:btih:CE1EA320B4468FCB1FF3841212B984816734618F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +154,8 @@ Bee Gees: В наши времена / The Bee Gees: In Our Own Time (2010) BDRi
 magnet:?xt=urn:btih:C24C520F8A5FC831C9DC3AA2317371297B7003AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +179,8 @@ magnet:?xt=urn:btih:C24C520F8A5FC831C9DC3AA2317371297B7003AA
 ```bash
 magnet:?xt=urn:btih:10622D534BB0A416D8AAB35EC755685155AE26A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +206,8 @@ magnet:?xt=urn:btih:10622D534BB0A416D8AAB35EC755685155AE26A0
 magnet:?xt=urn:btih:C4D5CADF06C64ED865E25201748A73D6FCDA6353
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +231,8 @@ magnet:?xt=urn:btih:C4D5CADF06C64ED865E25201748A73D6FCDA6353
 ```bash
 magnet:?xt=urn:btih:5A28FDF749B42E97604E982BF41CDF46F3C4A0A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +259,8 @@ magnet:?xt=urn:btih:5A28FDF749B42E97604E982BF41CDF46F3C4A0A6
 magnet:?xt=urn:btih:67AB6BFB40B3AA6B34652390FBF59DE810EC1CF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +285,8 @@ magnet:?xt=urn:btih:67AB6BFB40B3AA6B34652390FBF59DE810EC1CF0
 ```bash
 magnet:?xt=urn:btih:E72D7DEE78101CF9E7956C57C6021D847CC40B6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +313,8 @@ magnet:?xt=urn:btih:E72D7DEE78101CF9E7956C57C6021D847CC40B6F
 magnet:?xt=urn:btih:BB29FDE00310E96039261136B9860B1A9A9F17CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +338,8 @@ Discovery. Секретные базы нацистов / Secret Nazi Bases (201
 ```bash
 magnet:?xt=urn:btih:D547301814A2E59A358E27BDC06539F825CB7AF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +365,8 @@ magnet:?xt=urn:btih:D547301814A2E59A358E27BDC06539F825CB7AF1
 magnet:?xt=urn:btih:9F9E919E023451F1F87A256FDEB48ED1BCB4E191
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +390,8 @@ magnet:?xt=urn:btih:9F9E919E023451F1F87A256FDEB48ED1BCB4E191
 ```bash
 magnet:?xt=urn:btih:696D75FBDC8CD15D22CB58BF4860285D1516CCF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +417,8 @@ magnet:?xt=urn:btih:696D75FBDC8CD15D22CB58BF4860285D1516CCF7
 magnet:?xt=urn:btih:C302298B06655B4C78E8B330CC15A949120B96F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +442,8 @@ magnet:?xt=urn:btih:C302298B06655B4C78E8B330CC15A949120B96F5
 ```bash
 magnet:?xt=urn:btih:949B19D6E524A098E63C021EB660D4B910818213
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +469,8 @@ magnet:?xt=urn:btih:949B19D6E524A098E63C021EB660D4B910818213
 magnet:?xt=urn:btih:1F44168E15928CD0721813BB90C253A03BB7A4E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +494,8 @@ magnet:?xt=urn:btih:1F44168E15928CD0721813BB90C253A03BB7A4E1
 ```bash
 magnet:?xt=urn:btih:15D418D63E0C7B06A3D8438E2E9C12B320365D83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +521,8 @@ magnet:?xt=urn:btih:15D418D63E0C7B06A3D8438E2E9C12B320365D83
 magnet:?xt=urn:btih:3F0A7003DBD7C108129E8CDEA7853923886EC2E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +546,8 @@ magnet:?xt=urn:btih:3F0A7003DBD7C108129E8CDEA7853923886EC2E7
 ```bash
 magnet:?xt=urn:btih:3834A15A3B69B1D2A48F0CB33CB70C86F860E04E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +573,8 @@ magnet:?xt=urn:btih:3834A15A3B69B1D2A48F0CB33CB70C86F860E04E
 magnet:?xt=urn:btih:A295623B7BA2CC4FAADB1CE3983B344ED7792A1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +598,8 @@ magnet:?xt=urn:btih:A295623B7BA2CC4FAADB1CE3983B344ED7792A1F
 ```bash
 magnet:?xt=urn:btih:D4523ABDBD0804329A6EBC4DAA2242085ACB0071
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +625,8 @@ magnet:?xt=urn:btih:D4523ABDBD0804329A6EBC4DAA2242085ACB0071
 magnet:?xt=urn:btih:1E6D09950946D6E49656BE5442002C11B44A3FDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +650,8 @@ magnet:?xt=urn:btih:1E6D09950946D6E49656BE5442002C11B44A3FDD
 ```bash
 magnet:?xt=urn:btih:86C16100AE740636F68BDA28D6E1265DACE5597D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,29 +677,7 @@ magnet:?xt=urn:btih:86C16100AE740636F68BDA28D6E1265DACE5597D
 magnet:?xt=urn:btih:C39D517671FA33E22B903AD90ACA14C7F1A81B84
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979689   (954651) от 30.01.2016
-
-Полет Валькирии (2011) IPTVRip
-
->>Документалистика и Телепередачи
->>Личности в истории
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954651.jpg" />
-</div>
-
-
-###  Подробнее
-
-В трудное для России время летом 1917 года в России был сформирован первый женский батальон смерти. Духовным вдохновителем и организатором этого военного формирования была Мария Бочкарёва. Уникальная женщина - военнослужащая, писатель-мемуарист и полный Георгиевский кавалер, единственная женщина в России, удостоившаяся этого звания.Телекомпания: Россия, ООО «ДОК-Синема»Жанр: Документальный, война, история, биографияПродолжительность: 00:46:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF402504D62F513D491FABE143E047E351D8F5BA
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

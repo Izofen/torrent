@@ -19,6 +19,8 @@ Spirit Island - стратегия, выполненная в стиле нас�
 magnet:?xt=urn:btih:0319D2D4AF27F08696939E3B8F6BA94F1CD3F554
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Railway Empire 2 (2023) [Ru/Multi] (1.4.0.61453/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:7F0C056326CB9FB85693903D59217204AE9201D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Totally Accurate Battle Simulator - сумасшедшая тактическа�
 magnet:?xt=urn:btih:57D88E28C96AA8A3F6D5ECD5038A1BAE8715BCBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Rising Lords представляет смесь стратегии с карт�
 ```bash
 magnet:?xt=urn:btih:403145CDFEB3286644C4ED4BC2A3F2E5F22430F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Harvest Days: My Dream Farm (2022) [Multi] (1.0.0-dsp/dlc) License GOG
 magnet:?xt=urn:btih:8F3912DCAE0B47C7B73EC1A7041C38FB5269A10A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Blood Bowl III (3) (2023) [Ru/Multi] (1.5.3.0/dlc) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:3B1F93036E7A687E5F73CF4328B51B128D18B82F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ HexoCity - это расслабляющая головоломка, погру�
 magnet:?xt=urn:btih:0545175F1E8CD552A895C7CBD31A43EE3F17B4B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Zet Zillions – перед вами классический одно-поль�
 ```bash
 magnet:?xt=urn:btih:76FFD0200424987153027FA08AC330FABD7C8B5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ TerraScape позволяет игрокам осуществить свою м�
 magnet:?xt=urn:btih:4494209D9561D2F9DA915B54A09767146C23B078
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Founders' Fortune (2020) [Ru/Multi] (1.2.8) License GOG
 ```bash
 magnet:?xt=urn:btih:5AE43A31924DD167E3DF84653E5F992B51368F47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Station to Station - это романтический и минималисти
 magnet:?xt=urn:btih:4C16F271FBFB7CE2F6FB4F1CB881D8AF3E556881
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Barn Finders – это симулятор поиска "сокровищ" в г
 ```bash
 magnet:?xt=urn:btih:FB2277E3799D401276062750A5069E1ED557928B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Land of the Vikings является градостроительным симо
 magnet:?xt=urn:btih:9D497E850ACC4321068111233A35D06FA6106B1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Chocolate Factory - это не обычный симулятор магната
 ```bash
 magnet:?xt=urn:btih:98C9BF3FAC66851B75B1A5D7038116C7CC9D604C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Good Company — это симулятор менеджера в жанре «т
 magnet:?xt=urn:btih:DFE80D5428BB5766CA3D554E4D24C16F6D605195
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Winkeltje - игра о строительстве, украшении и упр
 ```bash
 magnet:?xt=urn:btih:3A0DAD4B90CBDA6C5183B1E1BBAB9C8AF6731E80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Chocolate Factory - это не обычный симулятор магната
 magnet:?xt=urn:btih:C03665AAD8C994555AF27784C38FA622EE1EC313
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Republic of Pirates - это не типичная градостроитель�
 ```bash
 magnet:?xt=urn:btih:F635755688C788C12B0B43B58E37DB834358B16E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Ghostboy – хотите открыть для себя мир психичес
 magnet:?xt=urn:btih:97B212B26C99D608A17F15366538FB944E1CAE25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ El Dorado: The Golden City Builder – это увлекательная стр�
 ```bash
 magnet:?xt=urn:btih:9133ADDFCF149A1DE96AF7953DCD18DD1F1E2BD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ El Dorado: The Golden City Builder – это увлекательная стр�
 magnet:?xt=urn:btih:95ED1F7526B9B2633A7A8F652945D61ABFFC4C25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ The Invisible Hand (2021) [En] (1.2.3) License GOG [Deep Pockets Edition]
 ```bash
 magnet:?xt=urn:btih:A03DC771756C58CE3574CDAB73E5D80CA5BA56D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Tropico 6 (2019) [Ru/Multi] (22/dlc) Repack dixen18 [El Prez Edition]
 magnet:?xt=urn:btih:7424A7ED90FA577C68C7DA40BD1F04D1B88733E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Tropico 6 (2019) [Ru/Multi] (22/dlc) Scene Doge [El Prez Edition]
 ```bash
 magnet:?xt=urn:btih:9360AB6F970A9B13502E67F0C6C4911504D0E479
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Startopia (2001) [Ru/En] (1.0) Unofficial
 magnet:?xt=urn:btih:FA249B233B1009A839032747A8031B913CBA59C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Thriving City: Song предлагает перенестись в прошло�
 ```bash
 magnet:?xt=urn:btih:B449E7DC8AC92A08866BEC9956EE13D4F3A4F390
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

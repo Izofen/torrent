@@ -1,3 +1,29 @@
+###  Публикация: 1572704   (361463) от 16.09.2022
+
+Tensei Kenja no Isekai Life: Daini no Shokugyou o Ete, Sekai Saikyou ni Narimashita | Жизнь мудреца в другом мире [2022, TV, 12 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юджи Сано — корпоративный раб, который даже дома после работы продолжает пахать. И вот одним таким вечером на его рабочем столе появляется уведомление, гласящее, что он был призван в другой мир. Попытавшись избавиться от него перезагрузкой, наш герой ненароком даёт своё согласие… В следующее мгновение Юджи оказывается посреди леса, и всё вокруг до жути напоминает (   Читать дальше...   )Производство: Студия Revoroot / レヴォルトЖанр: комедия, фэнтезиРежиссер: Кодзима КэйсукэПеревод: SovetRomantica (SR); YakuSub (YS)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6115BEA5E678ED1E2672661C6E29299C33852BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1071091   (361708) от 09.11.2016
 
 Kingyou Chuuihou! / Goldfish Warning! / Осторожно! Золотая рыбка! [1991, TV, 54 из 54] DVDRip 480p raw
@@ -18,6 +44,8 @@ Kingyou Chuuihou! / Goldfish Warning! / Осторожно! Золотая ры�
 ```bash
 magnet:?xt=urn:btih:17AE51EC74DB7533456178AC0C086A54B4843C75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ Macross 7 Dynamite / Макросс 7 Динамит [1997,OVA,4] DVDRip Raw
 magnet:?xt=urn:btih:27DF435ACC1ED96C8052BFA0718B78773ACB3D03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ Dungeon ni Deai o Motomeru no wa Machigatteiru Darou ka? II / Danmachi II / Мо
 ```bash
 magnet:?xt=urn:btih:1DF56BB64C960C423597B3041033682DBDE98130
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ Lord El-Melloi II-sei no Jikenbo: Rail Zeppelin Grace Note | Lord El-Melloi II's
 magnet:?xt=urn:btih:9E81E4D73FA1EC34DDADC2F47AB6856F2A521F5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ Toaru Kagaku no Accelerator / Некий научный Акселератор [
 ```bash
 magnet:?xt=urn:btih:6F4197AB71E55033F782B84ECBC19C0CFFD25A5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ Tsuujou Kougeki ga Zentai Kougeki de Nikai Kougeki no Okaasan wa Suki Desuka? / 
 magnet:?xt=urn:btih:8777B122C59F9972F5E360C6FE88555CAAFEBC8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ Jouran: The Princess of Snow and Blood | Смута. Принцесса снег
 ```bash
 magnet:?xt=urn:btih:0A173AFAC06DFD0CF574DE1A0250B5FF01D828F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ Dance In The Vampire Bund | Танец на Вампирском берегу [2
 magnet:?xt=urn:btih:724DAB5D3D1BF0069983B16E92B2E9F4CE807E6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ Tengen Toppa Gurren Lagann / Heavenly Breakthrough Gurren Lagann / Гуррен-
 ```bash
 magnet:?xt=urn:btih:1956034360466557DE187AB53632A1DD5E192FB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ Toaru Majutsu no Index III | A Certain Magical Index III | Индекс волш
 magnet:?xt=urn:btih:3B7E75CBCB323A71C38D6047AD156C28D4C96944
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ Aragne no Mushikago | Aragne: Sign of Vermilion | Клетка с насеком
 ```bash
 magnet:?xt=urn:btih:A23687BBF31A277337EE9F1269B1410F4C9F1023
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ Miru Tights | Созерцая колготки [2019, Web, 12 эп. + 1 SP] BDR
 magnet:?xt=urn:btih:6BFDF66738A39CADA510B502F37DA3D774464829
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +357,8 @@ Chou Kadou Girl 1/6 | Amazing Stranger | Ускоренная девушка [20
 magnet:?xt=urn:btih:8D9B223A869DFDB512913E79F298E6647BCF1F1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +382,8 @@ Dagashi Kashi | Магазинчик дешёвых сладостей [2016, TV
 ```bash
 magnet:?xt=urn:btih:841205EF2F6D59E224BEF99B8684EB53BD5BA0E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +410,8 @@ Shinka no Mi: Shiranai Uchi ni Kachigumi Jinsei | The Fruit of Evolution: Before
 magnet:?xt=urn:btih:D8F328C09970BE272AC03146B55E144D1A955113
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +435,8 @@ Choujin Koukousei-tachi wa Isekai demo Yoyuu de Ikinuku you desu! | High School 
 ```bash
 magnet:?xt=urn:btih:8C7385EC0C30D7A5201AF036C11F4AE4F93CDAD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +462,8 @@ Konbini Kareshi | Convenience Store Boy Friends | Парни из магазин
 magnet:?xt=urn:btih:DCC52FF3203062AB70518AFD335B849A3F6CBBA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +487,8 @@ Fukumenkei Noise | Anonymous Noise | Не скрывая крик [2017, TV, 12 
 ```bash
 magnet:?xt=urn:btih:BA1B8060E9CCAA7BA4B09241D353C99EDB262D29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +514,8 @@ Dororo | Дороро [ТВ-2] [2019, TV, 24 эп.] BDrip 1080p raw
 magnet:?xt=urn:btih:19F1BC834ADD194B3880FE34A48A2935984AF1E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +539,8 @@ Sangatsu no Lion S1+S2 | March Comes in like a Lion S1+S2 | Мартовский
 ```bash
 magnet:?xt=urn:btih:5B5D425DA3EB15560C82F3CE1DBE2547F2622785
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +566,8 @@ Granbelm | Гранбелм [2019, TV, 13 эп.] WebRip 720p raw
 magnet:?xt=urn:btih:2CFFD44A1AD52CDC787BC6B70169ECB8825E41CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +591,8 @@ Tsukumogami Kashimasu | We Rent Tsukumogami | Цукумогами напрок�
 ```bash
 magnet:?xt=urn:btih:2FB6E84A298CA13B139A358AD097D795ECEE6E0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +618,8 @@ Kawaikereba Hentai demo Suki ni Natte Kuremasu ka? | Влюбишься ли т�
 magnet:?xt=urn:btih:8644F96091D723FA076C069193E7864605494F1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +643,8 @@ Karakai Jouzu no Takagi-san 2 | Озорная Такаги [ТВ-2] [2019, TV, 
 ```bash
 magnet:?xt=urn:btih:D6DD44DB58338766A7A266FC67626914C899C882
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,29 +670,7 @@ Suzumiya Haruhi-chan & Nyoron Churuya-san / Меланхолия Суздуми 
 нет
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 721316   (372195) от 11.11.2013
-
-Mahou Yuugi / Magical Witchland / Magical Play / Волшебная страна ведьм [2001, OVA/ONA, 1+22 ep.] DVDRip Hi10P 480p raw +eng
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленькая Падуду из страны Морских Небес прибывает в Свитлэнд с намерением пройти ряд магических поединков и стать настоящей волшебницей. Это не так-то просто: желающих стать полноправными ведьмами и в самом Свитлэнде навалом, и никто не собирается подыгрывать-проигрывать простушке Падуду – ни коварная МиуМиу, ни задиристая Пипин. А вокруг кипит бурная жизнь сказочного (   Читать дальше...   )Жанр: комедия, махо-сёдзёРежиссер: Хаяси Хироки / Hayashi HirokiПеревод: Tray | GreanЯзык озвучки: ЯпонскийЯзык субтитров: Русский; Английский (soft)Продолжительность: OVA - (1 эп.), 30 мин. ONA - (22 эп.), 9 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B1CBE43EA66FD8AE3A88E35DB129F18E4B70887
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

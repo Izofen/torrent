@@ -19,6 +19,8 @@ izi.TRAVEL v7.2.2.514 Mody Ale.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:66F41BA9F8C1A4A2A54F7FA5F12348A35709B4F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ PhotoRoom - приложение, что будет одинаково поле�
 ```bash
 magnet:?xt=urn:btih:167F7788BE8C1462DC7459C1C81516DF1B7F7C2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ VIP Notes - программа-блокнот, что несмотря на св
 magnet:?xt=urn:btih:0EDB0242A3B58626A999CB3B7F0295067A9771F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Square Home - красивый, стильный и функциональный
 ```bash
 magnet:?xt=urn:btih:BF87F8760F7CF492C5B11CA8253706A20A836790
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Smart Launcher - лаунчер являющийся одним из самых 
 magnet:?xt=urn:btih:BA5B9D08774BACF2C5C4B4F62F6C8AAB7FAD630F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ FX Player Pro - универсальный медиаплеер который �
 ```bash
 magnet:?xt=urn:btih:F0B36BF2EE0C4ADB03C0A97B2F9E7FADB0E9B1F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ PhotoDirector - функциональный, но весьма простой �
 magnet:?xt=urn:btih:6733BED70195404DCF22D80E1364FFF19C36DFEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ PhotoRoom - приложение, что будет одинаково поле�
 ```bash
 magnet:?xt=urn:btih:CF9F477CDA546DC1BE1AA8F579336CC6CAE641D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ VPN Russia - VPN сервера в России 1.184 Mod by FreeApkexe [Ru/En]
 magnet:?xt=urn:btih:17633C64698926E2E099C0D860FF82C7A57A79DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Talkao Translate - голосовой переводчик. Talkao Translate —
 ```bash
 magnet:?xt=urn:btih:E13D6D3A54414F7C02E06FEE86ED961F248F944A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Seal 1.11.0 [Ru/Multi]
 magnet:?xt=urn:btih:0E0AE14F5B62FF0D0DDD106B8C1A0B399DF652BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Node Video - один из самых мощных видеоредакторо�
 ```bash
 magnet:?xt=urn:btih:93BF6362CBFAD6C2157AED95FACE99801BEA8CAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:93BF6362CBFAD6C2157AED95FACE99801BEA8CAE
 magnet:?xt=urn:btih:E59170ED96FECB6A53C886D86D23425FD83BAB41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Smart AudioBook Player Pro v11.5.5 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:6FC74749184F4880764923C8C3F311F1D5AF6C48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +382,8 @@ Smart AudioBook Player Pro v11.5.5 Mod by Kirlif' [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2F8A6B878F69429636337F2E0E8AEE426F34302A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ eWeather HDF - это точный прогноз погоды от двух м�
 magnet:?xt=urn:btih:4B6F020230DCA32D5FB705A6B47E78DDDE72D80C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ PaperColor - превосходное приложение для рисован
 ```bash
 magnet:?xt=urn:btih:5CDAD4F4CC934E59B50889B8938C94FDE8B07B74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ Flud - это оптимальный torrent-клиент для Andoid-устр
 magnet:?xt=urn:btih:63D0E6881D8077862F9442891B00C4EBFFB1C6B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ PixelLab - отличный фоторедактор, в котором все �
 ```bash
 magnet:?xt=urn:btih:15010CFB307F61373378704A15FB1A4930CA711D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ magnet:?xt=urn:btih:15010CFB307F61373378704A15FB1A4930CA711D
 magnet:?xt=urn:btih:06BA16F5407398D3C602D04DD6992C9ED213746C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ WiFi Mouse Pro - Превратите ваше устройство в саму�
 magnet:?xt=urn:btih:998FE81C50F0335836DE44CB627D960510129344
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Coach Guitar — ПОТРЯСАЮЩИЙ новый способ научитьс
 ```bash
 magnet:?xt=urn:btih:5AAA0206611CDE9B502EE3DB5289ED48E94BC049
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:5AAA0206611CDE9B502EE3DB5289ED48E94BC049
 magnet:?xt=urn:btih:0119F0523B7800ADC58C1C4F89B80023ED36F728
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:0119F0523B7800ADC58C1C4F89B80023ED36F728
 magnet:?xt=urn:btih:1BA1F8FE4C609E62A1F18791EEA30FC4F6136C5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Caustic 3 – редактор электронной электронной м�
 ```bash
 magnet:?xt=urn:btih:D09F5AB22E529E7D4E351770EA3CFF890836453F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +675,8 @@ magnet:?xt=urn:btih:D09F5AB22E529E7D4E351770EA3CFF890836453F
 ```bash
 magnet:?xt=urn:btih:785C69CDF1B99E04B4E6185EE6A18228D8815F3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

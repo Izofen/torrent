@@ -19,6 +19,8 @@ Parrot Timer / Кухонный таймер v2.9.0 Mod by Alex.Strannik [Multi]
 magnet:?xt=urn:btih:93A21F85806387681BD33046A35FFA823DF871B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:93A21F85806387681BD33046A35FFA823DF871B7
 ```bash
 magnet:?xt=urn:btih:A44F6DD04D77535369C6546105FB16B05047FB70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ VA - National Pop Dance Music Vol.109 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 magnet:?xt=urn:btih:ED126DD6D749D2A3E6BCA89A2CF7889054918ED1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Way of the Hunter (2022) [Ru/Multi] (1.27/dlc) Repack seleZen [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:CA6769B3098B8262C07A1B8CDF88838ED389E915
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ VA - Compilation Part 167 Electronic (2025) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:BE7E76AE8951BA4F8F6E6C2A76301C1743652C50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Till Lindemann - Und die Engel singen (2025) Single [FLAC 24/44.1|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:A6D1C82F769C2E3D610986D73083086DEF8F8DF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ VaporCam (90s) / 90-е - Глюк VHS Видеоэффекты v1.7.7 Mod by Ale
 magnet:?xt=urn:btih:58C54BCD8DDB661FC44EF82EC4FC8AF3FA0F2238
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:58C54BCD8DDB661FC44EF82EC4FC8AF3FA0F2238
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:58C54BCD8DDB661FC44EF82EC4FC8AF3FA0F2238
 magnet:?xt=urn:btih:4BA2AA14DDC9B988AF8D288E6F8B3144B3AED6B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Shazam (шазам) распознает любую песню за секунд
 ```bash
 magnet:?xt=urn:btih:6ED8532A79F334298CBACA3D80F665660A37F407
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ V.A. - Cafe del Mar Ibiza Chillout Mix VI (DJ Mix) (2025) [FLAC|Lossless|WEB-DL|
 magnet:?xt=urn:btih:EB44D489604182F35B946452451DB23EA3DB20D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:EB44D489604182F35B946452451DB23EA3DB20D4
 ```bash
 magnet:?xt=urn:btih:04461CDE5B3E65CBBA9B05E60782203892159AAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:04461CDE5B3E65CBBA9B05E60782203892159AAF
 ```bash
 magnet:?xt=urn:btih:D20BEC710B46454C19DC9E73BFFE01E0CF29CB3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:D20BEC710B46454C19DC9E73BFFE01E0CF29CB3E
 magnet:?xt=urn:btih:543854E6ECB398C930A147ECE9DD084922819178
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:543854E6ECB398C930A147ECE9DD084922819178
 magnet:?xt=urn:btih:6B6BAD1E834E693F135EEE9B64E2AE0BDC09BB46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ Jigsawscapes® - Пазлы v4.0.2 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:DFBDE1E06FF7DF68EBBB9F53DE4C239FEFE40CA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +455,8 @@ VA - National Pop Dance Music Vol.107 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 magnet:?xt=urn:btih:6B0FBD9001645B05A6CE22D7B31B6C9A40CD1E4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ AdGuard — уникальный блокировщик рекламы без п
 magnet:?xt=urn:btih:229EB3C97FDCB1D168AA52C995AD63A00F11FA91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:229EB3C97FDCB1D168AA52C995AD63A00F11FA91
 ```bash
 magnet:?xt=urn:btih:A6E4C5484668E6415B90EFD59435252406394052
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +537,8 @@ magnet:?xt=urn:btih:A6E4C5484668E6415B90EFD59435252406394052
 magnet:?xt=urn:btih:AD49D9C485593BB14BDF5B4EEAA03C2CFFA0833B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ magnet:?xt=urn:btih:AD49D9C485593BB14BDF5B4EEAA03C2CFFA0833B
 ```bash
 magnet:?xt=urn:btih:0A3A0DDF5163806D2BAF87E66F3CA86B735CDA45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:0A3A0DDF5163806D2BAF87E66F3CA86B735CDA45
 magnet:?xt=urn:btih:EBCBEE15191A0C3934F5167061BC63C3B9B04F3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:EBCBEE15191A0C3934F5167061BC63C3B9B04F3B
 ```bash
 magnet:?xt=urn:btih:B25467E2F9438A16795D76A8FD632791600AC39D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +641,8 @@ WPS Office - очень полезное, офисное приложение д
 magnet:?xt=urn:btih:E5E0F42FCEFAC340CD20BC0EB7C0C120F8E052C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +667,8 @@ Muviz Edge — первое в своем роде приложение, кот�
 magnet:?xt=urn:btih:12F201CEB1575EA2B3E6512880EED22CE7E3500E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ magnet:?xt=urn:btih:12F201CEB1575EA2B3E6512880EED22CE7E3500E
 ```bash
 magnet:?xt=urn:btih:9ABDB8A5E354E95B7CF0DD08F8997A8B433F6C0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

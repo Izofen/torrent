@@ -1,3 +1,30 @@
+###  Публикация: 1100539   (627131) от 22.06.2017
+
+Марс: Формирование новой Земли / Mars: Making the New Earth (2009) HDTVRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Космос
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627131.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возможность превращения Марса в обитаемый мир с деревьями, прекрасными цветами, чистыми реками и бирюзовым небом сегодня является предметом серьезного научного исследования и весьма вероятным будущим Красной планеты. Ученый из НАСА Крис МакКей 30 лет занимается изучением Марса и организмов, обитающих в экстремальных условиях на Земле. Писатель и продюсер Марк Дэвис (   Читать дальше...   )Телекомпания: США, National Geographic CannelЖанр: ДокументальныйРежиссер: Марк ДэвисПеревод: Одноголосый закадровый, профессиональный
+(по заказу телеагенства "Русский репортаж")Продолжительность: 00:49:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15AA9CDE1C03C5AD3E44F890F1406A87F33F1539
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1246678   (627340) от 12.04.2022
 
 Гагарин (2014) SATRip
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:45473505F4E5222CF455A8BD13720C25C98A3899
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +71,8 @@ Solo (2021) WEBRip [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:B6496B814FB064648DC36B0EB1218763606772FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +99,8 @@ magnet:?xt=urn:btih:B6496B814FB064648DC36B0EB1218763606772FC
 magnet:?xt=urn:btih:BF3A1FC9A34F99202F5754E91CC8726A63F99D73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +125,8 @@ magnet:?xt=urn:btih:BF3A1FC9A34F99202F5754E91CC8726A63F99D73
 ```bash
 magnet:?xt=urn:btih:BD2895517166675C8334B0B62E27B5D23F0C0D65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +153,8 @@ magnet:?xt=urn:btih:BD2895517166675C8334B0B62E27B5D23F0C0D65
 magnet:?xt=urn:btih:3017473CF8E18C0D5F34D8A946CE3E76E4803443
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +178,8 @@ magnet:?xt=urn:btih:3017473CF8E18C0D5F34D8A946CE3E76E4803443
 ```bash
 magnet:?xt=urn:btih:C71C06D74743789ADD323B35DB090C84366D233C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +205,8 @@ magnet:?xt=urn:btih:C71C06D74743789ADD323B35DB090C84366D233C
 magnet:?xt=urn:btih:5078B1E95D7A6FEA0484FEC1EF78F2D005073D57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +230,8 @@ magnet:?xt=urn:btih:5078B1E95D7A6FEA0484FEC1EF78F2D005073D57
 ```bash
 magnet:?xt=urn:btih:E32D6BC1CB32BA5DE74B6A82B3FBFB79B6E4FB66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +257,8 @@ magnet:?xt=urn:btih:E32D6BC1CB32BA5DE74B6A82B3FBFB79B6E4FB66
 magnet:?xt=urn:btih:5121A2F688B76B99168E57F0E5E68011CC015C5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ magnet:?xt=urn:btih:5121A2F688B76B99168E57F0E5E68011CC015C5D
 ```bash
 magnet:?xt=urn:btih:D1D39B0D5C6D012278B590301002D5C1AB5A0D9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +309,8 @@ magnet:?xt=urn:btih:D1D39B0D5C6D012278B590301002D5C1AB5A0D9C
 magnet:?xt=urn:btih:D8442A82F212E230C462449D74D067603810BB99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +334,8 @@ magnet:?xt=urn:btih:D8442A82F212E230C462449D74D067603810BB99
 ```bash
 magnet:?xt=urn:btih:1ACAD430B414B0A4B587B683B4BDCD15512B5478
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +361,8 @@ magnet:?xt=urn:btih:1ACAD430B414B0A4B587B683B4BDCD15512B5478
 magnet:?xt=urn:btih:4579E16AA92E5A419AC6D95C89C4F5C63D84BDDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +386,8 @@ magnet:?xt=urn:btih:4579E16AA92E5A419AC6D95C89C4F5C63D84BDDF
 ```bash
 magnet:?xt=urn:btih:0A0E766C4029AAEED5CB9E652B7D37E261DA67D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +413,8 @@ magnet:?xt=urn:btih:0A0E766C4029AAEED5CB9E652B7D37E261DA67D6
 magnet:?xt=urn:btih:FCEAAA64E7F8EF23215E4F33F3A36E978AAA4937
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +438,8 @@ magnet:?xt=urn:btih:FCEAAA64E7F8EF23215E4F33F3A36E978AAA4937
 ```bash
 magnet:?xt=urn:btih:8F8431515E8C0AEE8F08E90DA9DE5BEE9AF4DC0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +465,8 @@ magnet:?xt=urn:btih:8F8431515E8C0AEE8F08E90DA9DE5BEE9AF4DC0E
 magnet:?xt=urn:btih:99EBDA9FAE02170376CB0C829A991AC0AA98ABAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +490,8 @@ Viasat History: По железным дорогам бывшей империи
 ```bash
 magnet:?xt=urn:btih:FEACE8BA40CF884D76CC4FCCE2703FD6F38C8402
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +517,8 @@ magnet:?xt=urn:btih:FEACE8BA40CF884D76CC4FCCE2703FD6F38C8402
 magnet:?xt=urn:btih:33BA3A72666C9D99FB2C1D5DCE9A18A7FFCEE76F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +542,8 @@ magnet:?xt=urn:btih:33BA3A72666C9D99FB2C1D5DCE9A18A7FFCEE76F
 ```bash
 magnet:?xt=urn:btih:025EAA31F748BDBDD112EF8615B4E95B9AC2EB69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +569,8 @@ magnet:?xt=urn:btih:025EAA31F748BDBDD112EF8615B4E95B9AC2EB69
 magnet:?xt=urn:btih:4EB016E8BD65DA72DAD513FDF8639475F7C53062
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +594,8 @@ magnet:?xt=urn:btih:4EB016E8BD65DA72DAD513FDF8639475F7C53062
 ```bash
 magnet:?xt=urn:btih:383C9711FB68E031EE2ABA972AB92D2522AA8780
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +621,8 @@ magnet:?xt=urn:btih:383C9711FB68E031EE2ABA972AB92D2522AA8780
 magnet:?xt=urn:btih:2A562548D98A16FEC4FC7D563B9750CF57F32CEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +646,8 @@ magnet:?xt=urn:btih:2A562548D98A16FEC4FC7D563B9750CF57F32CEB
 ```bash
 magnet:?xt=urn:btih:D0D702973511E6476A8B87D67782CA0E67D7DFFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,32 +674,7 @@ magnet:?xt=urn:btih:D0D702973511E6476A8B87D67782CA0E67D7DFFB
 magnet:?xt=urn:btih:34695ED30BB902C7BDAC3774342EE180CF8C5148
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543448   (629368) от 11.04.2022
-
-Маска (2022) WEBRip [H.264/1080p] (сезон 3, выпуск 9)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий сезон телешоу «Маска»! В это раз удивлять, восхищать, путать и радовать будут 14 новых героев «Маски»: Джокер, Дракон, Козерог, Леопард, Лошадь, Малыш, Монстрик, Мухомор, Осьминог, Павлин, Пёс, Пончик, Пчела и Сфинкс. Под невероятными костюмами скрываются певцы, актеры, спортсмены, ведущие и шоумены, в копилке которых более 10 званий народных и заслуженных (   Читать дальше...   )00:00:00 Маска
-00:15:06 Мухомор — «Самый лучший день»
-00:27:47 Анубис — Gangsta Paradise
-00:43:49 Дракон — «Нежность»(   Читать дальше...   )Телекомпания: НТВ | «ВайТ Медиа»Жанр: ТВ-шоу, музыкаПродолжительность: 02:15:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DE04F0F335BAF1CEF38DCCB7AFCCCB8B122584D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

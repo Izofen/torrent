@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Terminator Коллекция [En/Ru] (RePack) 1990-2003 | Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Terminator Коллекция [En/Ru] (RePack) 1990-2003 | Pilotus
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Waves Complete 9.0 R1 [Английский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Carmageddon TDR2000 / Кармагеддон. Колеса смерти [Ru] (Re
 ```bash
 magnet:?xt=urn:btih:E1BB2C40757D52BFE0B700D845327315B717B2F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Dead Mountaineer Hotel / Отель "У погибшего альпиниста"
 magnet:?xt=urn:btih:DC36E45418C59209C834A68FD5CF0B4269A71B49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:DC36E45418C59209C834A68FD5CF0B4269A71B49
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:DC36E45418C59209C834A68FD5CF0B4269A71B49
 ```bash
 magnet:?xt=urn:btih:3312C05626F81A49AE4750413D801797F24845E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:3312C05626F81A49AE4750413D801797F24845E9
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Guitar Pro [3.0+Jailbreake]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Guitar Pro [3.0+Jailbreake]
 magnet:?xt=urn:btih:95EEF8EC1520EC0A464B1F141870B91735EA37BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ BBC: Планета Земля / Planet Earth (2006) BDRip [720p]
 ```bash
 magnet:?xt=urn:btih:15A7B6999F1A75AA521FB076D5E36CF79DFF27F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Airport Tower Simulator 2012 [En/Ge] (L) 2012
 magnet:?xt=urn:btih:43254B7B40A4BBDB63D3AF919061FFD61E0F711E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Aero Crystal - набор тем для Windows 7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Stone Quarry Simulator 2012 {1.2} (L) [En] 2012
 magnet:?xt=urn:btih:B2A2FE1973166E5FB1360F6D2C4F0CC1CB8CDDD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:B2A2FE1973166E5FB1360F6D2C4F0CC1CB8CDDD1
 ```bash
 magnet:?xt=urn:btih:AFE53436F9242C6140BDBB968E9C4DB59C4E0558
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:AFE53436F9242C6140BDBB968E9C4DB59C4E0558
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ The Lord of the Rings: The Battle for Middle-earth 2 The Rise of the Witch-king 
 ```bash
 magnet:?xt=urn:btih:8B99454AB7BE20732625EB6EBAEE3A68735FFBA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:8B99454AB7BE20732625EB6EBAEE3A68735FFBA6
 magnet:?xt=urn:btih:F1901D4086A93818B09FE3BF1FBA29B0862D49E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:F1901D4086A93818B09FE3BF1FBA29B0862D49E6
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:F1901D4086A93818B09FE3BF1FBA29B0862D49E6
 magnet:?xt=urn:btih:060A32D3F9C7BBDEB644FB7A8753E323F7C68F54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:060A32D3F9C7BBDEB644FB7A8753E323F7C68F54
 ```bash
 magnet:?xt=urn:btih:29CFF68DE5B49818B62D62AD615986B3204CC226
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ ReFX Nexus 2 - 2011 Presets Pack [FXB|NXP][английский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ ReFX Nexus 2 - 2011 Presets Pack [FXB|NXP][английский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ ReFX Nexus 2 - 2011 Presets Pack [FXB|NXP][английский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ ReFX Nexus 2 - 2011 Presets Pack [FXB|NXP][английский]
 ```bash
 magnet:?xt=urn:btih:08E9C8E73FA7DD06596D29F9BFB0EF0311684A24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

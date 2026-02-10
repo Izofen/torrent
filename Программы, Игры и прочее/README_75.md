@@ -19,6 +19,8 @@ Turbo VPN - Лучший безопасный и бесплатный впн д�
 magnet:?xt=urn:btih:468E4BCE69B965876761CC2F874240A3D9BC40FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ VPN Monster - неограниченный бесплатный впн для An
 magnet:?xt=urn:btih:330287A92BC110EAF536B32FE9ACCC909A256154
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Moon Reader - проект-читалка которая весьма извес
 ```bash
 magnet:?xt=urn:btih:6BAFBF8412EA1535AA691092A24EB5F11B450684
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ VPN Thailand: VPN в Тайланде 1.85 [Ru/En]
 magnet:?xt=urn:btih:553A6E39A34E471889079364D3A5064AACD07655
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Word: Поиск Слова Кроссворд v7.2 [Ru/Multi]
 magnet:?xt=urn:btih:5901EA2C1C7F967D8B60DA40D7DDC322A25C2700
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Garmin: City Navigator Europe NTU 2024.20 [En]
 ```bash
 magnet:?xt=urn:btih:144160F1F8FF729CA156AC8F5A69B9574A0F500B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Picture Mushroom — распознавайте грибы мгновенно. �
 magnet:?xt=urn:btih:E8F1CA5839FFAC869D3E767CB3B41A8B5B3C8665
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Picture Bird позволяет легко распознать птиц вок�
 ```bash
 magnet:?xt=urn:btih:3D3F0238EF4C11997D87763F1EC0C167B1267641
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ TrackView - HomeSafe v3.8.27 Mod by maxi123444 [Ru/Multi]
 magnet:?xt=urn:btih:1CF7ED8E20A9FB0040BF223DC5225B58E2617535
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:1CF7ED8E20A9FB0040BF223DC5225B58E2617535
 magnet:?xt=urn:btih:3A91CC57EBDF331FCC61627016BAE53E41AE9E67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Listen Audiobook Player v5.1.0 (955) Mod by derrin [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:21DCB449B6EBDDBD6FEE232902AD100A2E8BA468
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Melon VPN - это быстрый, неограниченный, стабиль�
 magnet:?xt=urn:btih:B6979B5AFF1EC6BDC22327AFF9A045425A37446C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Relax Night ~ Nature Sounds v5.13.3 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:81B61DC01531CC9F279A00F6A3E01AC3A37495D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ Picture Mushroom — распознавайте грибы мгновенно. �
 magnet:?xt=urn:btih:F37EC6A613A660C3D2790FB4B18455EFC5BFB97A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:F37EC6A613A660C3D2790FB4B18455EFC5BFB97A
 ```bash
 magnet:?xt=urn:btih:9A7C44B4415308D6B957FD6E0426A4A6E54A824D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:9A7C44B4415308D6B957FD6E0426A4A6E54A824D
 magnet:?xt=urn:btih:A527024C745C63C2E5B4AC0F2A3AD9C54F1D7078
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ ElectroCalc - DIY Electronics v3.9  Mod by vedserega [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9E281DCC701623818ABA1A7008434966547AC1A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:9E281DCC701623818ABA1A7008434966547AC1A1
 magnet:?xt=urn:btih:46FB3ADB2EFE5A75D0C2BCA2694FFF44F508D2B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Plus Messenger - неофициальное приложение для обме
 ```bash
 magnet:?xt=urn:btih:54DDDF7977761352292B373A770041A988D12AA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ PREQUEL — это фоторедактор с огромным количест
 magnet:?xt=urn:btih:C81FF156349E4EE71C6BC85AEB5267544523D6A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Frolomuse - бесплатный музыкальный плеер, с мощн�
 ```bash
 magnet:?xt=urn:btih:AFCA6952521C9707121183B4953F52FECD835146
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Jellify – приложение которое может накладыват�
 magnet:?xt=urn:btih:1743FF752E449E1BB62F71E5D23F0FB67E2FFE21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Frolomuse - бесплатный музыкальный плеер, с мощн�
 ```bash
 magnet:?xt=urn:btih:24606E141ED4CE42DFAE704D2BC17493FF0F760B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:24606E141ED4CE42DFAE704D2BC17493FF0F760B
 magnet:?xt=urn:btih:E5CC03DA15CF2D42C1526250F35C2E343B6D03A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ Dais Dark - Poweramp v3 Skin 1.3.7 [Ru/Multi]
 magnet:?xt=urn:btih:74E2A3AF8797160400E1376B5BDDAB1E068C5E4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ BSPlayer - один из тех мультимедийных плееров, ч�
 ```bash
 magnet:?xt=urn:btih:E03DD655FC96BAB4345093E4BEFCA809E3425BC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

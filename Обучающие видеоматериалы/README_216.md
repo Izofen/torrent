@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:42D9F84D3ED321C326F01877F8B9ECCAFD3B7C56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Udemy | Основы ООП на Python (2020) PCRec [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:C34324B7AC4A2C79CF7413AE826A1D729F25E0BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:C34324B7AC4A2C79CF7413AE826A1D729F25E0BF
 magnet:?xt=urn:btih:4E68079BB2B904A9347F7892B07EF4812C0D6AC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ CoffeeScript - это язык программирования, который 
 ```bash
 magnet:?xt=urn:btih:6BF94FE64E26C6D778BBFE2DCDD7A552D42E5436
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:6BF94FE64E26C6D778BBFE2DCDD7A552D42E5436
 magnet:?xt=urn:btih:1EF9C5E76A14F72E3DEBE4D31F6BE86DAF2F9654
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:1EF9C5E76A14F72E3DEBE4D31F6BE86DAF2F9654
 magnet:?xt=urn:btih:BFAF2763D123B3D34516F2820FDC4F98A91F2971
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ Lynda.com | Creative DSLR Video Techniques (2013) WEB-DL [H.264/720p-LQ] [EN]
 ```bash
 magnet:?xt=urn:btih:DDA6C907786218C155B7A0539C3773F0735B4F9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ Allan McKay | FX Technical Director Transformation Module 6 (2015) PCRec
 magnet:?xt=urn:btih:9C7B65CED405A7217A307D36C8F82F1B987EE802
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:9C7B65CED405A7217A307D36C8F82F1B987EE802
 ```bash
 magnet:?xt=urn:btih:47A4A0E12840E5DC991FFB8B057580C557FE96A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ Udemy, Testing World | End to End Automation using Python | Web Application & AP
 magnet:?xt=urn:btih:66D27FC541C0AF0D77D5F1A85A0AE974C9AE231D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ Udemy, Luca Berton | Automate Ubuntu Linux SysAdmin tasks in 30+ Ansible example
 ```bash
 magnet:?xt=urn:btih:8CE0F4CBD17539CD0B9DB584E864D49546A690C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +326,8 @@ Udemy, Imran Teli | DevOps Projects | 20 Real Time DevOps Projects (2021) WEB-DL
 magnet:?xt=urn:btih:670957BEEA39775EF4FC1BE47193518F2A1E5EC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +355,8 @@ Udemy, Tom See | Linux RHCSA preparation course - RHEL 8.2 - Latest version (202
 magnet:?xt=urn:btih:9AF48B532A10C905C7D5A2BB7FA8178EBE12C844
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ Udemy | Разжёванный курс по JavaScript для чайников 
 ```bash
 magnet:?xt=urn:btih:348AFF3C41EE0308C15AED5790DBA81E6BFE8896
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +409,8 @@ SANS Institute, Joshua Wright | SEC504: Hacker Tools, Techniques, and Incident H
 magnet:?xt=urn:btih:B61B48599AAB9AA3CC7A59E873D9ED28D5574B96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +436,8 @@ Udemy | MQL5: Создание торговых роботов и индикат
 magnet:?xt=urn:btih:D600E7A0A25E73DEF20C48B3DE9CBBACDBECA49A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ Lynda.com | Camera Movement for Video Productions (2014) WEB-DL [H.264/720p-LQ] 
 ```bash
 magnet:?xt=urn:btih:57CD7BF5D7DFAC48CC752FA2601B02ABF3CAA536
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ magnet:?xt=urn:btih:57CD7BF5D7DFAC48CC752FA2601B02ABF3CAA536
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ Eрок, призванный развить в вас основные навы
 ```bash
 magnet:?xt=urn:btih:4F2AE53570AE8C7D79A1EE2FD6830F719F285E6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +542,8 @@ Excel – мощный инструмент для обработки и ана�
 magnet:?xt=urn:btih:D546BB34F5A6EA6CA12D1DF67919169A5FAA97E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +569,8 @@ magnet:?xt=urn:btih:D546BB34F5A6EA6CA12D1DF67919169A5FAA97E3
 magnet:?xt=urn:btih:A339BE51A1DFA4C27ABFA64106CCBDA47EC6B757
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +595,8 @@ ITVDN | Angular Advanced (2017) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:C90E925531FD2DB5EDF5DEB795D6C7BB4998EE79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +620,8 @@ magnet:?xt=urn:btih:C90E925531FD2DB5EDF5DEB795D6C7BB4998EE79
 ```bash
 magnet:?xt=urn:btih:BDCCCEF90A9ECEFF92B24FCE005EE5317C492D56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +649,8 @@ magnet:?xt=urn:btih:BDCCCEF90A9ECEFF92B24FCE005EE5317C492D56
 magnet:?xt=urn:btih:0961FA7CE663B181DDD0D4F4B2DA6C3A7D66AE8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +676,8 @@ Lectrum | Продвинутый онлайн-курс по Backend (2020) PCRec
 magnet:?xt=urn:btih:ECA0B06BFEC3EE3E37D7321D580DD91CC47037D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ Udemy | Корпоративное приложение Myphotos: JEE 7, NetBean
 ```bash
 magnet:?xt=urn:btih:B453B9E67BB61CA42CE1368AC7AA96F73BC6D593
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

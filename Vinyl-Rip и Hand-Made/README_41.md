@@ -22,6 +22,8 @@ Rage Of Light - Melodic Death/Trance метал-группа из Швейцар
 magnet:?xt=urn:btih:446E0DEBBC6D8173825DAB3B75670C59F6803B3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Nevermore — американская метал-группа из Сиэтла
 ```bash
 magnet:?xt=urn:btih:CAE1A42BD7D81B818E2D436A1386A53649BBE001
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ White Skull — итальянская пауэр/хэви-метал групп
 magnet:?xt=urn:btih:1C416370A2455DA8462BA1DADD4EA3593E7C1F17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ A04. Armageddon {04:13}(   Читать дальше...   )Жанр: Speed, Thra
 ```bash
 magnet:?xt=urn:btih:CA458C00D10AD82E5DC37E425FAC9FB0A0C4648B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ A4 Ground Zero Brooklyn(   Читать дальше...   )Жанр: Speed, Thra
 magnet:?xt=urn:btih:E4CA29A734E49334A40D6BE2319A9AB39A3F5CA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Gotsu Totsu Kotsu - Studio Albums (6 releases) (2009-2023) hand made [restored, 
 ```bash
 magnet:?xt=urn:btih:D117CA506D858DA1C45EEDE60ADCC2D61E77E36E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Rhino Bucket — американская хард-рок-группа из Ва
 magnet:?xt=urn:btih:12FCD7D81A5651985721345FE607624644F1DCE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -209,6 +223,8 @@ Immorium - австралийская метал-группа, основанн�
 ```bash
 magnet:?xt=urn:btih:70F882FE0E09D050209503E618A4A2890A1EB512
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +253,8 @@ Collapse 7 - метал-группа из Зальцбурга, Австрия, 
 magnet:?xt=urn:btih:A748F49EBDCDB4680C01D90DA1CCA630EB37C80C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +281,8 @@ Circus Maximus — норвежская прогрессив-метал-груп
 ```bash
 magnet:?xt=urn:btih:AEB2CB25F947163C6755F7403400E03EC34F3E9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +311,8 @@ Saxon — английская рок-группа, одна из ярких п�
 magnet:?xt=urn:btih:C1C38FAAC544AD9051D3A177815806307F29EDF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +339,8 @@ Hollywood Undead — американская рок-группа из Лос-А
 ```bash
 magnet:?xt=urn:btih:7F364EDC6C81AB98F58314991D16178074C8D413
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +369,8 @@ Darzamat — польский музыкальный коллектив из г�
 magnet:?xt=urn:btih:58F1B9555315F8792152DEF43C8CEAD49471B070
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +397,8 @@ B2 Vomit RitualЖанр: Death MetalПродолжительность: 00:10:08
 ```bash
 magnet:?xt=urn:btih:6255D79591533C7D345A5B0BFB637F0DE3CD073C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +427,8 @@ Anthem — метал-группа из Японии, основанная в 19
 magnet:?xt=urn:btih:2B6711036FF2939873896775730D1A71597E5C58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +455,8 @@ A4. Dance(   Читать дальше...   )Жанр: Middle Eastern Folk, Prog
 ```bash
 magnet:?xt=urn:btih:ED4B718E820F99A53875D54D416B7ABC7F9D2CDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +485,8 @@ A4 Ты Была Слишком Красива(   Читать дальше...  
 magnet:?xt=urn:btih:EACA7A2AEED035ABA02D31DF17005395826B6CCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Metallica - Unload (Bootleg) (1999) [FLAC 16/44.1|Lossless|tracks|MC-Rip] <Acous
 magnet:?xt=urn:btih:B7D945DE4278DD86451514DA3B1A535105188A64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +541,8 @@ Triple Kill - Thrash/Power Metal-группа сформированная в 20
 ```bash
 magnet:?xt=urn:btih:7243D16CB5D49ABF21C4E127623671BCB5AB6D2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +571,8 @@ A1 Я — Просто Певец • I'm Only A Singer
 magnet:?xt=urn:btih:E74F8F0520A8681935D11A5BB56057346E0A1B79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +597,8 @@ Green Labyrinth - швейцарская прогрессив-метал гру�
 ```bash
 magnet:?xt=urn:btih:C17FE29B954AEFD226983AE6C6E1E90B506EC7B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +627,8 @@ Infernal Poetry — итальянская дэт-метал-группа из �
 magnet:?xt=urn:btih:78E43A6BA1CA8E417795BA618AFB52F3DCDDD3D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +655,8 @@ B1. From Saviour To Assassin(   Читать дальше...   )Жанр: Progre
 ```bash
 magnet:?xt=urn:btih:A8CEABB8030D1F0FC2F6CE903CFDE3F12975DC7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +685,8 @@ A4 Al Jahliyah(   Читать дальше...   )Жанр: Black, Folk MetalП�
 magnet:?xt=urn:btih:DADB02171C9E835554D51F1A404B83A1873CA82F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +714,8 @@ A4 Ектения • IV • Милость(   Читать дальше...   )�
 magnet:?xt=urn:btih:2D6D10BB09207C0A3E4BA1835AB8505F5FF42E07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -692,6 +742,8 @@ Graveworm — итальянская дарк-метал-группа, обра�
 ```bash
 magnet:?xt=urn:btih:85ADEDB81DB9292B0C30461F3BBB3935CD18747E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

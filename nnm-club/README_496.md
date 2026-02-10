@@ -19,6 +19,8 @@ Hibi wa Sugiredo Meshi Umashi / Food for the Soul / Дни проходят, а 
 magnet:?xt=urn:btih:B2EE346E6F734E3404448929D16844EE25BB1DD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Steinberg - Cubase Pro 14 14.0.32 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A1751C9FB2572F3059809724F99E9CB287B51EA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:A1751C9FB2572F3059809724F99E9CB287B51EA5
 magnet:?xt=urn:btih:9C2B34379FA38A4A66CE7A2E13E7716DEE12528C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:9C2B34379FA38A4A66CE7A2E13E7716DEE12528C
 ```bash
 magnet:?xt=urn:btih:348B63BFA2F82BCC43451C6DE4C9A43D6626CF5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:348B63BFA2F82BCC43451C6DE4C9A43D6626CF5F
 magnet:?xt=urn:btih:30BABCAA15C4DCC7A2A1A9BD7EF2DAD6E1264B8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:30BABCAA15C4DCC7A2A1A9BD7EF2DAD6E1264B8C
 ```bash
 magnet:?xt=urn:btih:859AA7320D510351214208CF32332B70AD24A04F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:859AA7320D510351214208CF32332B70AD24A04F
 magnet:?xt=urn:btih:47E1DC91E29430E5E38D9C6749AE3B9EBBC5095F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Apocalypse Hotel | Апокалипсис: Отель [2025, TV, 12 из 12 эп
 magnet:?xt=urn:btih:B24A501C11084945A131D82668B287E6FF0A0214
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Boxville (2022) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:ED78109628AA034AB6B02893C21CED62F85A8CB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:ED78109628AA034AB6B02893C21CED62F85A8CB7
 magnet:?xt=urn:btih:2B8A654BC10169DF290DE5AA5B4D2780267E5E33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Revo Registry Cleaner Pro - это мощное и эффективное про
 ```bash
 magnet:?xt=urn:btih:715FEAF14382E4B659273E5FDCC5B385F21988B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ mono | Моно [2025, TV, 12 эп.] WEBRip 720p raw
 magnet:?xt=urn:btih:4441DFE60DE1D66BBF07F34B59DD1D1833A79EBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Medieval Dynasty (2020) [Ru/Multi] (2.4.0.3/dlc) Repack FitGirl [Ultimate Editio
 ```bash
 magnet:?xt=urn:btih:17B2361DEB763177EA846059E32A231843198A0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ Commentary  Geek' talk-русские, английские.Продолжите
 magnet:?xt=urn:btih:46F28BAAA8A33F1C04AC6664A84E8C224DC359F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Manhunt (2004) [Ru] (1.1) Repack EXROW
 ```bash
 magnet:?xt=urn:btih:98B0B3664E2B5B03D07CEF34C35A350B7B9F9F9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:98B0B3664E2B5B03D07CEF34C35A350B7B9F9F9D
 magnet:?xt=urn:btih:757E9EC3E20EC1B383107946ABC65B9CB42961A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ HDRezka TV — это неофициальный клиент для просм�
 ```bash
 magnet:?xt=urn:btih:9756DCB742079C4FD8CD75BBF926EC50A609BB43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Teogonia | Теогония [2025, TV, 12 эп.] WEBRip 720p raw
 magnet:?xt=urn:btih:020234602234B065228BEEA7DDE52D106FFC843D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:020234602234B065228BEEA7DDE52D106FFC843D
 ```bash
 magnet:?xt=urn:btih:2C17396976E60C7CF2E2E8B0B1B2EFE7E114BE0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ ByeByeDPI v1.5.2 [Ru/Multi]
 magnet:?xt=urn:btih:A32C884C40C72BCA876216DE517B2837B5702959
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Kowloon Generic Romance | Обычная романтика в Цзюлуне [2
 ```bash
 magnet:?xt=urn:btih:31DAEE5F98851FE500181DCC87A922059B55A0CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:31DAEE5F98851FE500181DCC87A922059B55A0CF
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:31DAEE5F98851FE500181DCC87A922059B55A0CF
 ```bash
 magnet:?xt=urn:btih:081F970A59CB307F7C94B47DC2DFE5B74CA131E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ NetLimiter - программа, решающая проблему контро�
 magnet:?xt=urn:btih:00A6426E2ED13CC6CE32693036B0025D19AFCCA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:00A6426E2ED13CC6CE32693036B0025D19AFCCA2
 magnet:?xt=urn:btih:54C8A0EB9144313398534DE077EB5AA1DE3AA469
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:54C8A0EB9144313398534DE077EB5AA1DE3AA469
 ```bash
 magnet:?xt=urn:btih:56A35C58CEB0207BB07A78C3AB23C7FF2891B180
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

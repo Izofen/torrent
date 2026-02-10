@@ -1,27 +1,3 @@
-###  Публикация: 545112   (478445) от 13.09.2012
-
-Вампиры / Vampyres (1975) [H.264] BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Две английские вампирши живут в замке близ Лондона и каждую ночь отправляются на поиск очередной наивной жертвы мужского пола. Однако встретившийся им однажды парень по имени Тэд оказался вампиршам не по зубам.Жанр: Ужасы, ЭротикаРежиссер: Хосе Рамон ЛаррасАктеры: Марианн Моррис, Анулька Дзюбинская, Мюррэй Браун, Брайан Дикон, Сэлли Фолкнер, Майкл Бирн, Карл Лэнчбери, Маргарет Хилд, Джералд Кейс, Бесси ЛавПеревод: Одноголосый закадровыйЯзык субтитров: Русские, английскиеПродолжительность: 01:27:36
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566843   (478486) от 31.07.2022
 
 Ночной душитель / The Night Strangler (1973) BDRip [VO]
@@ -42,6 +18,8 @@
 ```bash
 magnet:?xt=urn:btih:702DE62A61560FE814D119F298A2A8AF0B9CEE0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:702DE62A61560FE814D119F298A2A8AF0B9CEE0F
 magnet:?xt=urn:btih:D242EAC627141F0944E676E61E12B668D14FC02E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:D242EAC627141F0944E676E61E12B668D14FC02E
 ```bash
 magnet:?xt=urn:btih:6BBA99B49EC4D9D2D2B068FE18D7DB41E86CF6D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:6BBA99B49EC4D9D2D2B068FE18D7DB41E86CF6D1
 magnet:?xt=urn:btih:B6C1452F2EA9081739701B4051F37FBEBD2B561F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:B6C1452F2EA9081739701B4051F37FBEBD2B561F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:B6C1452F2EA9081739701B4051F37FBEBD2B561F
 magnet:?xt=urn:btih:DAC0EC813B2B41CBCCBC422E2BB3B7D153778903
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:DAC0EC813B2B41CBCCBC422E2BB3B7D153778903
 ```bash
 magnet:?xt=urn:btih:BC9A0F414F24E658A0CBD191F0725C8C86980585
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:BC9A0F414F24E658A0CBD191F0725C8C86980585
 magnet:?xt=urn:btih:00EA7B87210485314BD74309AD74D574C09DB3C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ magnet:?xt=urn:btih:00EA7B87210485314BD74309AD74D574C09DB3C2
 ```bash
 magnet:?xt=urn:btih:DA3C93166C346698F9AD3BBBC043A87F8021B4C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:DA3C93166C346698F9AD3BBBC043A87F8021B4C4
 magnet:?xt=urn:btih:0C914EE276F63AE13D28729595B1FD5DE2EF366D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ magnet:?xt=urn:btih:0C914EE276F63AE13D28729595B1FD5DE2EF366D
 ```bash
 magnet:?xt=urn:btih:D012D6C9D4BCFCBA0EE7552B352EC24F58DC475F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:D012D6C9D4BCFCBA0EE7552B352EC24F58DC475F
 magnet:?xt=urn:btih:4A713589DCADA2779345F7E414AF5CDCA750E07A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ magnet:?xt=urn:btih:4A713589DCADA2779345F7E414AF5CDCA750E07A
 ```bash
 magnet:?xt=urn:btih:832BD99C593809C0114A6C4F728BF1E53BF914D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ magnet:?xt=urn:btih:832BD99C593809C0114A6C4F728BF1E53BF914D6
 magnet:?xt=urn:btih:453482B2763C89764C2E2B352F7F6214E1F7B798
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ magnet:?xt=urn:btih:453482B2763C89764C2E2B352F7F6214E1F7B798
 ```bash
 magnet:?xt=urn:btih:A8490B35FC35499AEE7BE46C21A533152076964E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ magnet:?xt=urn:btih:A8490B35FC35499AEE7BE46C21A533152076964E
 magnet:?xt=urn:btih:8C2D8B85EEF8CFBD60732040BB7586F898E9127A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ magnet:?xt=urn:btih:8C2D8B85EEF8CFBD60732040BB7586F898E9127A
 ```bash
 magnet:?xt=urn:btih:AABAC0AE5B33923B288F8843E491E7FA0CB0C3EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ magnet:?xt=urn:btih:AABAC0AE5B33923B288F8843E491E7FA0CB0C3EC
 magnet:?xt=urn:btih:A7E99F143AA2BC38CEC0F99E93F62899A4BC24F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ magnet:?xt=urn:btih:A7E99F143AA2BC38CEC0F99E93F62899A4BC24F3
 ```bash
 magnet:?xt=urn:btih:6FFD499319D728056B84ECFB17175AFDD7C237D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +514,8 @@ magnet:?xt=urn:btih:6FFD499319D728056B84ECFB17175AFDD7C237D3
 magnet:?xt=urn:btih:DD76DEE7B47038EC6EAE8B8C7BD1C47672DC3503
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +541,8 @@ magnet:?xt=urn:btih:DD76DEE7B47038EC6EAE8B8C7BD1C47672DC3503
 magnet:?xt=urn:btih:937E8627657F42C9272A550259B15791AB70FAAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +566,8 @@ magnet:?xt=urn:btih:937E8627657F42C9272A550259B15791AB70FAAF
 ```bash
 magnet:?xt=urn:btih:3FF974AC08060FDAFA785E6F33ED7737565C3514
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +593,8 @@ magnet:?xt=urn:btih:3FF974AC08060FDAFA785E6F33ED7737565C3514
 magnet:?xt=urn:btih:63854D1A9A4BFFE2293B2B9C536174CD22B654F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +619,8 @@ magnet:?xt=urn:btih:63854D1A9A4BFFE2293B2B9C536174CD22B654F5
 magnet:?xt=urn:btih:EB369A936552BB362B79CB230ECD66926B3872AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +644,35 @@ magnet:?xt=urn:btih:EB369A936552BB362B79CB230ECD66926B3872AA
 ```bash
 magnet:?xt=urn:btih:584DFECA694F047ACFFEF0BF86110A6EDFD58E53
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 384280   (484782) от 05.09.2011
+
+Голубой гром / Blue Thunder (1982) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_484782.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Голубой гром» — это чудо-вертолет, оснащенный супертехникой. Он разработан для того, чтобы надежно оградить Лос-Анджелес от террористов. Но пилот Мёрфи узнает нечто такое, что ему знать вовсе не следовало.
+   И вот уже вертолётчику самому приходится защищаться, и единственный путь к спасению — разоблачить высокопоставленных заговорщиков и их наймитов.Жанр: Боевик, Драма, КриминалРежиссер: Джон БэдэмАктеры: Рой Шайдер, Малкольм МакДауэлл, Уоррен Оутс, Кэнди Кларк, Дэниел Стерн, Пол Роублинг, Дэвид Шайнер, Джо Сантос, Эд Бернард, Джейсон БернардПеревод: Русский профессиональный (многоголосый, закадровый)Продолжительность: 01:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8182040609CC34170C18EA1CD5E70846D2512C2
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

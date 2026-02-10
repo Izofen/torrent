@@ -19,6 +19,8 @@ Mizu Zokusei no Mahou Tsukai | The Water Magician | Маг воды [2025, TV, 8
 magnet:?xt=urn:btih:403A252905BAAC0F1F36AEE8D6CA0B3D4B6A390F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Kijin Gentoushou | Sword of the Demon Hunter | Хроники людей и де
 ```bash
 magnet:?xt=urn:btih:306930B6CD72D82732DCA1DF108E7149657E6B21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Yasei no Last Boss ga Arawareta! | A Wild Last Boss Appeared! | Шaльнoй пo
 magnet:?xt=urn:btih:3BC7B5CC1FE019A6CC28A14A0A70AF336DC06B68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:3BC7B5CC1FE019A6CC28A14A0A70AF336DC06B68
 ```bash
 magnet:?xt=urn:btih:B34329D2870DEE85BDD52ABF1A3B05D9921F59F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Nageki no Bourei wa Intai Shitai TV-2 | Let This Grieving Soul Retire! 2 | Пл�
 magnet:?xt=urn:btih:C90706EDC07C26E0BF894AB7F6C744AB6AE9AD13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:C90706EDC07C26E0BF894AB7F6C744AB6AE9AD13
 ```bash
 magnet:?xt=urn:btih:7AB20A945360EF29990D42BF04D886991D45C4E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Mugen Gacha 9999! | Backstabbed in a Backwater Dungeon! | Бeскoнeчнaя гa
 magnet:?xt=urn:btih:5F90C2E1D6FEE7B0E0719A1EE1B10E725D6C7CA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:5F90C2E1D6FEE7B0E0719A1EE1B10E725D6C7CA8
 ```bash
 magnet:?xt=urn:btih:54F9F6D71EA9EFF496C9754FA3889EEA9E28124A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:54F9F6D71EA9EFF496C9754FA3889EEA9E28124A
 magnet:?xt=urn:btih:7F67348E6B5AFAA1BD3824500105645388ECAEA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:7F67348E6B5AFAA1BD3824500105645388ECAEA5
 magnet:?xt=urn:btih:11159F66F2BDD224FD52437501A15507331B729A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Ansatsusha de Aru Ore no Status ga Yuusha yori mo Akiraka ni Tsuyoi Nodaga | My 
 ```bash
 magnet:?xt=urn:btih:65E05E6312DFCFE511DDAB8F0B7BF93D43610788
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:65E05E6312DFCFE511DDAB8F0B7BF93D43610788
 magnet:?xt=urn:btih:654D9F7DE48C992931BCD8E795F0DFCA75E104DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:654D9F7DE48C992931BCD8E795F0DFCA75E104DC
 ```bash
 magnet:?xt=urn:btih:0C48187F3CB7D359AB4709DEFE2A1F415A18789C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:0C48187F3CB7D359AB4709DEFE2A1F415A18789C
 magnet:?xt=urn:btih:0AC1500BBDFE925AECED5114529510495FA8B3B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:0AC1500BBDFE925AECED5114529510495FA8B3B8
 magnet:?xt=urn:btih:7C454BDD46CEB1588D8E3F88107F8F1D993E43DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Kekkon Yubiwa Monogatari II | Легенда свадебных колец 2 | �
 ```bash
 magnet:?xt=urn:btih:D21D83E8BAFC9467A3FF63E32F17D99379701821
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Chanto Suenai Kyuuketsuki-chan | Li`l Miss Vampire Can`t Suck Right | Вампи
 magnet:?xt=urn:btih:4EC60E1FAE67F71BA57759AC50A105335792E781
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Egao no Taenai Shokuba Desu | A Mangaka`s Weirdly Wonderful Workplace | Рабо
 magnet:?xt=urn:btih:624FB3842FA37B1CBED1D5287C26A2BC6145BC48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Yano-kun no Futsuu no Hibi | Yano-kun's Ordinary Days | Обыкновенные
 ```bash
 magnet:?xt=urn:btih:77F4558372C4ADB7E34ED3D79C0CC82D076DD360
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:77F4558372C4ADB7E34ED3D79C0CC82D076DD360
 magnet:?xt=urn:btih:AF7042A761BDF19E99E97E62CD0E4141A8E89354
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:AF7042A761BDF19E99E97E62CD0E4141A8E89354
 magnet:?xt=urn:btih:4BDD82F097F56C3C417A5B4463CC126DB94D83F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ Yuusha-kei ni Shosu: Choubatsu Yuusha 9004 Tai Keimu Kiroku | Sentenced to Be a 
 ```bash
 magnet:?xt=urn:btih:431B24F931E6411F005A70EB89278AA2ECDFFC16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:431B24F931E6411F005A70EB89278AA2ECDFFC16
 magnet:?xt=urn:btih:6B0CDAB888AE736E25C8AC40BD2B592878966D99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:6B0CDAB888AE736E25C8AC40BD2B592878966D99
 magnet:?xt=urn:btih:7BE3F880456741E583D8B05BC0FDB6D7E537A0FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Goumon Baito-kun no Nichijou | The Daily Life of a Part-time Torturer | Повс
 magnet:?xt=urn:btih:E070C895D14E40C38A22239B36D4A7599F9079AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ magnet:?xt=urn:btih:E070C895D14E40C38A22239B36D4A7599F9079AE
 ```bash
 magnet:?xt=urn:btih:AB6AB92ED665E8002DB0B79BB4524F86A15466A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

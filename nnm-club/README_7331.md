@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:54CA127D95DA3F3DDFA0A57F88E118F28A843AF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:54CA127D95DA3F3DDFA0A57F88E118F28A843AF8
 magnet:?xt=urn:btih:933F8FAA1D4FA81F3F81B6D8499A3ADB5D3BAAFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ Levius | Левиус [2019, ONA, 12 эп.] WebRip 720p raw
 ```bash
 magnet:?xt=urn:btih:B36FCDEB616CC76FBAC06A3193B79CA82375B291
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ Pussycat - Unreleased Demos 1983 (2023) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:2E70B3E30302043D644BF249B1161A1AD4A75AE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:2E70B3E30302043D644BF249B1161A1AD4A75AE3
 ```bash
 magnet:?xt=urn:btih:1371CFC0306CED5C8D8B30EDAFBE1DEF50EA9377
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:1371CFC0306CED5C8D8B30EDAFBE1DEF50EA9377
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:1371CFC0306CED5C8D8B30EDAFBE1DEF50EA9377
 ```bash
 magnet:?xt=urn:btih:18515EEB32EFBCEB05A672E2DB8C3CEBC83E3E8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:18515EEB32EFBCEB05A672E2DB8C3CEBC83E3E8E
 magnet:?xt=urn:btih:8CA91FEF85E15CC3906DF7F647AF40925EA704FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ Adobe Photoshop 2021 - новая, следующая за CC 2020 версия 
 magnet:?xt=urn:btih:157387B59F3FF1882F4983D46372745E9F3510B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:157387B59F3FF1882F4983D46372745E9F3510B9
 ```bash
 magnet:?xt=urn:btih:23B17C24D031517319437FF1CA48FB8BEC6CCE8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ LiSA - Lover"S"Mile (2012) [MP3|320 Kbps] <J-Pop>
 magnet:?xt=urn:btih:6C65BB74A6F9C72535C667241205BB34356A0AAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:6C65BB74A6F9C72535C667241205BB34356A0AAF
 ```bash
 magnet:?xt=urn:btih:ADAE2EED0A1BFBCF908411483507D8CF5D1C68C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:ADAE2EED0A1BFBCF908411483507D8CF5D1C68C8
 ```bash
 magnet:?xt=urn:btih:800D9A1A7BC435357D78C97E01AF728EDDD632CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +383,8 @@ Roger Taylor - 3 CD (1994-1998) [FLAC|Lossless]<Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +410,8 @@ Roger Taylor - 3 CD (1994-1998) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:1524A935B5E680058804287931FB5606BFD02CCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +440,8 @@ In Each Hand A Cutlass - The Kraken (2015) [MP3|320 кб/с] <Post-Rock, Post-Me
 magnet:?xt=urn:btih:F5FAFC998AA463790AD4EEDBD6C564FB8C1F9E22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +466,8 @@ magnet:?xt=urn:btih:F5FAFC998AA463790AD4EEDBD6C564FB8C1F9E22
 ```bash
 magnet:?xt=urn:btih:3C47F7E0A17945D434A1C5C5EF25D704CFB32A10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +496,8 @@ VA - Jazzin' (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 magnet:?xt=urn:btih:0A566FA421EECB047C29430F943E72E2A2BE6384
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +522,8 @@ magnet:?xt=urn:btih:0A566FA421EECB047C29430F943E72E2A2BE6384
 magnet:?xt=urn:btih:304201E53FECDA28E768C2EF5552B8B153919567
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +547,8 @@ magnet:?xt=urn:btih:304201E53FECDA28E768C2EF5552B8B153919567
 ```bash
 magnet:?xt=urn:btih:802543B7EC6A4DD21D85BF2C3B06C0433CDD2339
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +577,8 @@ Roxette - Joyride (30th Anniversary Edition) (2021) [AAC|~351 Kbps] <Pop, Rock>
 magnet:?xt=urn:btih:C9EB0E597DA681368DD12B7DFCE78CC19CDDB5EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +602,8 @@ magnet:?xt=urn:btih:C9EB0E597DA681368DD12B7DFCE78CC19CDDB5EC
 ```bash
 magnet:?xt=urn:btih:D531C95A5DC1C625DB734C0B84F55741C82BF350
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +631,8 @@ magnet:?xt=urn:btih:D531C95A5DC1C625DB734C0B84F55741C82BF350
 magnet:?xt=urn:btih:4588EFE4A49141C52A253EDDA5E4074A30CC99D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +656,8 @@ magnet:?xt=urn:btih:4588EFE4A49141C52A253EDDA5E4074A30CC99D7
 ```bash
 magnet:?xt=urn:btih:52CFD570A4B1218F137C2EA35A44007164F8A065
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +683,8 @@ magnet:?xt=urn:btih:52CFD570A4B1218F137C2EA35A44007164F8A065
 ```bash
 magnet:?xt=urn:btih:38221F2AAD93B323ADBA186FEB2A2B51AFEE0F06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -662,6 +712,8 @@ VA - After Christmas Lounge Chilled and Relaxed Lounge Tunes (2015) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:2DA69742005F0764ACFC6A1723F984F712602DF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

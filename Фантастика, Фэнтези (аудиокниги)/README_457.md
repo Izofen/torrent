@@ -1,3 +1,29 @@
+###  Публикация: 1510506   (790753) от 17.11.2021
+
+Джин Вулф | Пятая голова Цербера (2021) [MP3, Михаил Лукашов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Место действия – яркие колониальные миры Сен-Круа и Сент-Анн, планеты-близнецы, балансирующие на общей орбите. Сыновья содержателя борделя обсуждают геноцид и замышляют убийство; юного инопланетного странника преследует его двойник-тень; политический заключенный пытается подтвердить свою личность, и не в последнюю очередь – самому себе.Жанр: Научная фантастика, Социальная фантастикаПродолжительность: 10:40:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9985576C89CE2327502FC2CC5D28F0EDEE2834FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510618   (790754) от 17.11.2021
 
 Шлифовальщик | Копирайт (2021) [MP3, Какой-то мужик]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:B789CBB615EA9D028BC7BF9AE5C112628347E9EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:B789CBB615EA9D028BC7BF9AE5C112628347E9EE
 magnet:?xt=urn:btih:8B67459E6CBA97F8B745D191BED48DE948C68547
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:8B67459E6CBA97F8B745D191BED48DE948C68547
 magnet:?xt=urn:btih:59E18367E41CD539335EDB418199A28D59E0C021
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:59E18367E41CD539335EDB418199A28D59E0C021
 ```bash
 magnet:?xt=urn:btih:CE537E8B275FBA9E2957C0205FF171CFDDAE5141
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:CE537E8B275FBA9E2957C0205FF171CFDDAE5141
 magnet:?xt=urn:btih:352CB945CCD3DF0BAF116922FDEE8790EB7F422A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:352CB945CCD3DF0BAF116922FDEE8790EB7F422A
 ```bash
 magnet:?xt=urn:btih:453CDC24C0B823E4B531354AA39F7345AA74D259
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:453CDC24C0B823E4B531354AA39F7345AA74D259
 magnet:?xt=urn:btih:2DD4119A4746D9440F781F3BEDEF006435AAC47B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:2DD4119A4746D9440F781F3BEDEF006435AAC47B
 ```bash
 magnet:?xt=urn:btih:2EA033898A2256A2C9ED9FE8765DB5F29476E17B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:2EA033898A2256A2C9ED9FE8765DB5F29476E17B
 magnet:?xt=urn:btih:5F97A5663A5290C407B0D1C03F578B55ADBE6AE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:5F97A5663A5290C407B0D1C03F578B55ADBE6AE7
 ```bash
 magnet:?xt=urn:btih:F88C6B70320046D8ACCF9606118FC9010BB5175F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:F88C6B70320046D8ACCF9606118FC9010BB5175F
 magnet:?xt=urn:btih:0FE42443A3E512C607A3238A390B9142DB67766C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:0FE42443A3E512C607A3238A390B9142DB67766C
 magnet:?xt=urn:btih:A74DBBA4B8DF062BD72BF5558C54BF733A773D89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:A74DBBA4B8DF062BD72BF5558C54BF733A773D89
 ```bash
 magnet:?xt=urn:btih:8F501DCABE6FE059D99646CB2D5499D66B480DF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:8F501DCABE6FE059D99646CB2D5499D66B480DF6
 magnet:?xt=urn:btih:C0FD801BE0744BDF8B3E833252C9787E62F85EBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:C0FD801BE0744BDF8B3E833252C9787E62F85EBC
 magnet:?xt=urn:btih:BE50DAE467A851452450F19F11C10597C2E434F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:BE50DAE467A851452450F19F11C10597C2E434F7
 ```bash
 magnet:?xt=urn:btih:D07240A8893053FEFE8E1A35EB0021DBB446ED1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:D07240A8893053FEFE8E1A35EB0021DBB446ED1B
 magnet:?xt=urn:btih:6F275EC81AEB99F617051BD32F29DA7A7ECA39A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:6F275EC81AEB99F617051BD32F29DA7A7ECA39A2
 magnet:?xt=urn:btih:4FC88FAD887B71F26A0457E75F0D946519ECEDC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:4FC88FAD887B71F26A0457E75F0D946519ECEDC8
 ```bash
 magnet:?xt=urn:btih:B66C54566A1520C5108DA3BB4C00AA215E3F39D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:B66C54566A1520C5108DA3BB4C00AA215E3F39D8
 magnet:?xt=urn:btih:BF0562F2AA2B0B83740061CB758EE37397A8DC7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +574,8 @@ magnet:?xt=urn:btih:BF0562F2AA2B0B83740061CB758EE37397A8DC7F
 ```bash
 magnet:?xt=urn:btih:C9D61762E6D6E10C9E358BA8404A92E121D17651
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:C9D61762E6D6E10C9E358BA8404A92E121D17651
 magnet:?xt=urn:btih:51F793ED89B7F161285791A6E5F327E53AADEB5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:51F793ED89B7F161285791A6E5F327E53AADEB5A
 magnet:?xt=urn:btih:D9E532E52C43839EF9E8DCA5A4F3AE2E7B39A3D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:D9E532E52C43839EF9E8DCA5A4F3AE2E7B39A3D0
 ```bash
 magnet:?xt=urn:btih:C4D88AAAE1A4B63D6B900BFD5DF58DF44308E79E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,29 +682,7 @@ magnet:?xt=urn:btih:C4D88AAAE1A4B63D6B900BFD5DF58DF44308E79E
 magnet:?xt=urn:btih:30AD0BFCEB95B367D37DFF6D3A3144A9A8782EBB
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201658   (791563) от 26.01.2018
-
-Игорь Екимов | Путь ясновидца (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой произведения обладает уникальным талантом: он спонтанно видит отрывки будущего. Этот талант ("сверхъестественную интуицию") он использует в основном для личного обогащения, играя в тотализаторах. Он хорошо живёт, занимается любимым делом (азартными играми), не испытывает никаких проблем, мечтает эмигрировать за границу и мало интересуется (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 05:55:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C34044EE7C71BADDA0C0A4A9C90201C5EABE60A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

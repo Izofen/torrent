@@ -19,6 +19,8 @@ StarCrawlers (2017) [En] (1.1.4.1) License GOG
 magnet:?xt=urn:btih:8A61E48B8F3041946A4F128FCAAAD8597FAC500C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Blood Bowl 2 (2015) [Ru/Multi] (3.0.219.5) License GOG [Legendary Edition]
 ```bash
 magnet:?xt=urn:btih:AE979C6CEFC2B122D1A7B86ABDB015DE2791B707
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Mystical Riddles 3: Ship From Beyond (2023) [Multi] (1.0) Unofficial [Collector'
 magnet:?xt=urn:btih:7F09A67650C848F9419FD0C15175C23F5A163EDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Whispered Secrets 14: Purrfect Horror / Нашептанные секреты 14
 ```bash
 magnet:?xt=urn:btih:78622CAD4B9A0381D590F29ECCE1F09F874974A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Legend of Grimrock – это ролевая игра об исследован�
 magnet:?xt=urn:btih:FF09BDE26DAE41C398A3F5970A373BC66CCC061A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Monster Hunter Rise (2022) [Ru/Multi] (13.0.0.1/dlc) License EMPRESS
 ```bash
 magnet:?xt=urn:btih:46EFC237920547F2844DBBF901ACB42866FF62B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Rhythm Sprout: Sick Beats & Bad Sweets - это увлекательная ри�
 magnet:?xt=urn:btih:4EA615BEAD1C107FABE224BEAFA5296DF3B748AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ STORY OF SEASONS: A Wonderful Life предлагает погрузиться �
 ```bash
 magnet:?xt=urn:btih:525FF04A3A57D54D1CD813C920F8D92337F71A72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Immortal Love 10: Polar Lights / Бессмертная любовь 10: Сев�
 magnet:?xt=urn:btih:81380443C449CE02408D71486E2F222045223E86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Showgunners - пошаговая стратегия, сюжет которой �
 ```bash
 magnet:?xt=urn:btih:D1F26D137BCD31416CECA7DE612DCD37F33211EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Zachtronics Solitaire Collection (2022) [En] (1.0) License GOG
 magnet:?xt=urn:btih:D40C620296DFB860D44C4CF9F28BE2EB6B5B625F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Papa's Freezeria Deluxe (2023) [En] (1.0.3) Repack NotDaMazzlov
 ```bash
 magnet:?xt=urn:btih:FC5C17B8BB70E4C9CC1408C23247E8A412802579
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Big Adventure: Trip to Europe 5 / Большое приключение: Пое�
 magnet:?xt=urn:btih:B1918305642D97B9F32287F23673EF715B2E653C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ When The Past Was Around - приключенческая игра о любви
 ```bash
 magnet:?xt=urn:btih:66F5E1B258F3AF7F4FBCB792E61FBCB6CDBDF294
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ King's Bounty: The Legend / King's Bounty: Легенда о рыцаре (2008)
 magnet:?xt=urn:btih:5F619E18D4B63B6831D02FE4714293500FD486E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Immortal Love 10: Polar Lights (2023) [En] (1.0) Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:8FC07E388F367442CF00070C061E8A2EFA07B8B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Unsolved Case 3: The Scarlet Hyacinth / Нераскрытое дело 3: Ал�
 magnet:?xt=urn:btih:9D198B9AA8467C4971434B92DF93C8719C9554B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Cursed Fables 3: A Voice to Die For (2023) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:FBC51A24C1C15196C9163E1C10A01E727FCBABE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Are You Smarter than a 5th Grader - это очаровательная юмор
 magnet:?xt=urn:btih:0D187E4EF812C559C160E9B2B72E666DB44DA40E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Islets (2022) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:3F092139EFAC2D8C60C1DBA232830F8D8B70E78B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ LEGO DC Super-Villains (2018) [Ru/Multi] (1.0/dlc) License GOG
 magnet:?xt=urn:btih:BBE49B8C6BFC94EE5E80A7FB4C456AE9C938290F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Edge Of Galaxy – стратегия с непрямым управлением
 ```bash
 magnet:?xt=urn:btih:DF0A08B991B5AF4DAAACB753A0E3F77D7545AAA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Shing! - трехмерный экшен-рогалик, построенный 
 magnet:?xt=urn:btih:EA3ABDFB3DA2DFA4292BEFFD2D87E62FB2DED34A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Save Room - Organization Puzzle – игра-головоломка с 40+ по�
 ```bash
 magnet:?xt=urn:btih:43266B17ACFCB655ED56D473E85EEF69B54CDAF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ SolSuite Solitaire 2022 – высококачественная игра, ко�
 magnet:?xt=urn:btih:FC4441803E7426C888F97EB4EB02BC1200A1F99E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ A Tale of Paper: Refolded — это платформер-головоломка
 ```bash
 magnet:?xt=urn:btih:3F479521C464B17DB21258BDA21D8E3D3A004DE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1113767   (836722) от 12.03.2017
+
+Лучше всех (2017.03.12) SATRip (сезон 2, выпуск 5)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое детское телевизионное шоу талантов, куда приглашаются юные участники от трех до 12 лет. Если ваш ребенок проявляет экстраординарные способности, то его ждут в нашем шоу!Телекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 01:18:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCCC83BB97B2EB4E3716091261A1B5810A23FBCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113661   (836726) от 12.03.2017
 
 Чудо техники (2017.03.12) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:6644176094A0098B8A229F114D788D69C284A923
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:6644176094A0098B8A229F114D788D69C284A923
 magnet:?xt=urn:btih:6A3EE1FC274F5567B001D08816C1D213C6728D2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:6A3EE1FC274F5567B001D08816C1D213C6728D2A
 ```bash
 magnet:?xt=urn:btih:B6ECE8446E20F818C1CCE4DA682B9C10D37845BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:B6ECE8446E20F818C1CCE4DA682B9C10D37845BD
 magnet:?xt=urn:btih:319A92CF3BF714E9F4EC853FFA70F79F4F792087
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:319A92CF3BF714E9F4EC853FFA70F79F4F792087
 magnet:?xt=urn:btih:3A188C4D506D08BEBC6B69635C61F4F7BA2374C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:3A188C4D506D08BEBC6B69635C61F4F7BA2374C0
 ```bash
 magnet:?xt=urn:btih:F23B0DDF9D0B7709A19CE4D289D9C35CF5E25287
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:F23B0DDF9D0B7709A19CE4D289D9C35CF5E25287
 magnet:?xt=urn:btih:FB35A1ABEC97DCB6F4A5407ED4797BD400E1BA0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:FB35A1ABEC97DCB6F4A5407ED4797BD400E1BA0B
 magnet:?xt=urn:btih:DE820C3F61BDC36A7927FA224642239F6990BCD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:DE820C3F61BDC36A7927FA224642239F6990BCD7
 ```bash
 magnet:?xt=urn:btih:996C95D0460A7745A2C37241A02FD29856C498AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +286,8 @@ magnet:?xt=urn:btih:996C95D0460A7745A2C37241A02FD29856C498AA
 magnet:?xt=urn:btih:53307E9417F31E814B9AF2DF1A7369B716B8C37B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:53307E9417F31E814B9AF2DF1A7369B716B8C37B
 ```bash
 magnet:?xt=urn:btih:618D3446EB40CA81327AF5AF0030661C90242A96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:618D3446EB40CA81327AF5AF0030661C90242A96
 magnet:?xt=urn:btih:96630C3AE9CD0A4C41C31564B522CE075C07B076
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:96630C3AE9CD0A4C41C31564B522CE075C07B076
 ```bash
 magnet:?xt=urn:btih:22B275903836528C17DBC3A733998FF254E7228F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +392,8 @@ magnet:?xt=urn:btih:22B275903836528C17DBC3A733998FF254E7228F
 magnet:?xt=urn:btih:64798D7194B757D5D665B0E045041C3C380F7ED2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:64798D7194B757D5D665B0E045041C3C380F7ED2
 ```bash
 magnet:?xt=urn:btih:CBFB17A61E47A29C0DCA2917005ADC46FD72A114
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:CBFB17A61E47A29C0DCA2917005ADC46FD72A114
 magnet:?xt=urn:btih:B565935B2F3355A4EB826B9F533DDA6EC5402E23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:B565935B2F3355A4EB826B9F533DDA6EC5402E23
 ```bash
 magnet:?xt=urn:btih:F0D1EE25CA1D883F2E7D115B33BEF4494FB56977
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:F0D1EE25CA1D883F2E7D115B33BEF4494FB56977
 magnet:?xt=urn:btih:E889AB745C34B82041BBD9344E56927B9F8A1EEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:E889AB745C34B82041BBD9344E56927B9F8A1EEC
 magnet:?xt=urn:btih:EA51F6C6942545AC376B9087B143AE487889BE50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:EA51F6C6942545AC376B9087B143AE487889BE50
 ```bash
 magnet:?xt=urn:btih:CBB30665040F67A5BB963C29CDF7160B1F4CDC29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:CBB30665040F67A5BB963C29CDF7160B1F4CDC29
 magnet:?xt=urn:btih:984D0CBD5C6CFD28F08225EBD4456699DCEE1B1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +600,8 @@ magnet:?xt=urn:btih:984D0CBD5C6CFD28F08225EBD4456699DCEE1B1D
 ```bash
 magnet:?xt=urn:btih:0177DFAAE31D4B985B109AE71EF88BC4BA3B9E1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +627,8 @@ magnet:?xt=urn:btih:0177DFAAE31D4B985B109AE71EF88BC4BA3B9E1C
 magnet:?xt=urn:btih:3AFEE4B5AA9507783D2A7E2988B64354E44EA2CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:3AFEE4B5AA9507783D2A7E2988B64354E44EA2CA
 ```bash
 magnet:?xt=urn:btih:FBFB1EEA7FD693FC4E27A9675AE1830FC395C0A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,29 +679,7 @@ magnet:?xt=urn:btih:FBFB1EEA7FD693FC4E27A9675AE1830FC395C0A5
 magnet:?xt=urn:btih:83097B23D57029D7EFDAD6F6D17438EE923BB267
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113540   (838325) от 11.03.2017
-
-Голос. Дети (2017.03.11) HDTV [H.264/1080i] (сезон 4, выпуск 4)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838325.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Первый канал" представляет премьеру четвёртого сезона музыкального проекта "Голос. Дети". Детский конкурсный проект строится по тем же принципам, что и взрослый. Из тысяч заявок на участие, присланных в адрес "Первого канала", музыкальная редакция отобрала несколько сотен самых достойных. В ходе предварительных кастингов к участию в (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ТВ-Шоу, развлекательныйСубтитры: ОтсутствуютПродолжительность: ~ 01:22:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA31E3A704D029B60E3B8770FA586987E0B7823D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

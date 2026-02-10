@@ -22,6 +22,8 @@ Shores of Null - The Loss of Beauty (2023) [MP3|320 Kbps] <Melodic Black, Doom M
 magnet:?xt=urn:btih:57A669C998AA01B4F950343128DBE97996F2BB57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Adobe Zii - это небольшая и замечательная утилит
 ```bash
 magnet:?xt=urn:btih:983FE774758CC69EF891E41006D80806946A4A77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Giovanni Cigui - Cheewi Beats (2020) [AAC|~344 Kbps] <Jazz>
 magnet:?xt=urn:btih:A898446C9DD29CBE2D4350D937857ED8F90F4016
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ PullTube 1.8.5.17 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F7523F7F530A8DC1C41989C3C1830E976B94E267
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ VA - Qua La Mano (1980) Musica Di Detto Mariano, LP [MP3|320 Kbps] <Electronic, 
 magnet:?xt=urn:btih:6E949CDD42D45CD65890B719D58A35B3BAB9D514
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ PC Cleaner Pro – это очень мощный и многофункцион�
 ```bash
 magnet:?xt=urn:btih:13DC76C9888ECE608052E97E0ED8968925725744
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ Giovanni Cigui - Rock (2020) [AAC|~360 Kbps] <Jazz>
 magnet:?xt=urn:btih:90475FDE6DD9DEECE4E62E6340C6922D8E99E2E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ Kristy Lee - The Olive Tree (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:C2CE9AEDAB513B5667FC3FCD06AFB50A4144E447
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +245,8 @@ Folder scanner - визуально анализирует диск / папку
 magnet:?xt=urn:btih:C54B6E7A6400A5A03FEDF4B462E7BAB9E4BBEA10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +274,8 @@ magnet:?xt=urn:btih:C54B6E7A6400A5A03FEDF4B462E7BAB9E4BBEA10
 magnet:?xt=urn:btih:49B1082BAF379D0C7D671CA5E869A180EA4E48DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ magnet:?xt=urn:btih:49B1082BAF379D0C7D671CA5E869A180EA4E48DF
 magnet:?xt=urn:btih:4EE10CA8AEE313A62D0C000AA233FD1EE87C45F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ Grid 1.1.4 [En]
 ```bash
 magnet:?xt=urn:btih:9302641726E4B46C359E22D74442390D3F2654CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +355,8 @@ Within Temptation - Shed My Skin (2021) EP [FLAC|Lossless|image + .cue] <Gothic 
 magnet:?xt=urn:btih:6E810500448E838EFE24ACBAD789008CAE4A8B60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +381,8 @@ magnet:?xt=urn:btih:6E810500448E838EFE24ACBAD789008CAE4A8B60
 magnet:?xt=urn:btih:9DD17B9DB4FDF26755C25D44F19504AB819E03C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ magnet:?xt=urn:btih:9DD17B9DB4FDF26755C25D44F19504AB819E03C3
 ```bash
 magnet:?xt=urn:btih:6BCA360C1F524642EE1A9486D8375294B697235E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +436,8 @@ magnet:?xt=urn:btih:6BCA360C1F524642EE1A9486D8375294B697235E
 magnet:?xt=urn:btih:A10EFF2ACAB8AD3DD3303376BB0CE838C7364CA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +465,8 @@ Andrea Scala - Coming Back, Leaving Again (2020) [AAC|~336 Kbps] <Jazz>
 magnet:?xt=urn:btih:200D8358D35F362269A96D3201388F2184663ADE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +491,8 @@ magnet:?xt=urn:btih:200D8358D35F362269A96D3201388F2184663ADE
 magnet:?xt=urn:btih:4FBFC2A0C87FECF048BD9E33A246EE35A9452CD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +516,8 @@ magnet:?xt=urn:btih:4FBFC2A0C87FECF048BD9E33A246EE35A9452CD5
 ```bash
 magnet:?xt=urn:btih:940F52AB7E62DDCCE9940A3D6C9271F9911D606E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +544,8 @@ Blocs - простой способ создания красивых сайто
 ```bash
 magnet:?xt=urn:btih:861B03D67E5B7ADB6C0E59910D00141CF5BA89A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +574,8 @@ KillHammer - Время скверны (2019) [FLAC|Lossless|WEB-DL|tracks] <Mel
 magnet:?xt=urn:btih:330B557085DE01BE4C1F36BD268157BB1BDF65E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +599,8 @@ A Better Finder Attributes позволить изменить дату созд
 ```bash
 magnet:?xt=urn:btih:43591FB3C467E347CD059F990F61888B28E1F540
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +629,8 @@ Adrenaline Rush - Soul Survivor (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
 magnet:?xt=urn:btih:4E893810772B46769CD9A992E7FBC24CDB181B1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +654,8 @@ magnet:?xt=urn:btih:4E893810772B46769CD9A992E7FBC24CDB181B1C
 ```bash
 magnet:?xt=urn:btih:F98311A6DE0629719C1653C933D5C17ADDFFB31B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +683,8 @@ Wondershare UniConverter - это полный набор инструменто
 magnet:?xt=urn:btih:9964E6B298BFDF1662A70C96DE35D63C15C6B43E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +711,8 @@ Ascendants of Kings - Ellisius (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 ```bash
 magnet:?xt=urn:btih:7D1C8955D6E2D8C8C9A5FCA6998C5AE3F7DAC796
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

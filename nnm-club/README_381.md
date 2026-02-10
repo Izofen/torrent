@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:04201E142201BA2EF64E894AA849985EE5495101
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:04201E142201BA2EF64E894AA849985EE5495101
 ```bash
 magnet:?xt=urn:btih:703E318C2E54F6806A3841576742D4BA28751E0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ A-HA - Album Collection 5CDs (1985-1993) 1st German Press [APE|Lossless|image + 
 magnet:?xt=urn:btih:2513A18957985D62F2012345F8A44369793E63F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:2513A18957985D62F2012345F8A44369793E63F1
 ```bash
 magnet:?xt=urn:btih:0100B329CDAA3C992FA8177BFF72FCC3AE352457
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:0100B329CDAA3C992FA8177BFF72FCC3AE352457
 magnet:?xt=urn:btih:8AC794C6DC355E18C7E8ABB6B111117AF773E1C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:8AC794C6DC355E18C7E8ABB6B111117AF773E1C8
 ```bash
 magnet:?xt=urn:btih:01FD5F6F9FCD6553B339E880E6382D7D69DE5257
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:01FD5F6F9FCD6553B339E880E6382D7D69DE5257
 magnet:?xt=urn:btih:FD2836DE2AFC12883C542AC6B77755C614280842
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:FD2836DE2AFC12883C542AC6B77755C614280842
 ```bash
 magnet:?xt=urn:btih:D7DFD81E7E5B9DCDB4A5D10B632B062B4DB0CEBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ VA - Let's Talk About Sex (1992) [APE|Lossless|image + .cue] <Pop>
 magnet:?xt=urn:btih:143DD67CA63B81A60EF37A7D4616E29DD03E49C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:143DD67CA63B81A60EF37A7D4616E29DD03E49C3
 ```bash
 magnet:?xt=urn:btih:1B16856349ACF522A385DFC4EDBB9B78319C6D15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:1B16856349ACF522A385DFC4EDBB9B78319C6D15
 magnet:?xt=urn:btih:66E92C401009F6B226C01A694372097C6C9164C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:66E92C401009F6B226C01A694372097C6C9164C4
 ```bash
 magnet:?xt=urn:btih:45A12DA269E8B772DA964E3CBA128267D55F72EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:45A12DA269E8B772DA964E3CBA128267D55F72EF
 magnet:?xt=urn:btih:EF6ECF5D1F5C4D218A53EDD890268F7F8D0CE510
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:EF6ECF5D1F5C4D218A53EDD890268F7F8D0CE510
 ```bash
 magnet:?xt=urn:btih:2E1AE3A90618471A8F4C5D7478A2E648CC116444
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:2E1AE3A90618471A8F4C5D7478A2E648CC116444
 magnet:?xt=urn:btih:6EBCD0C2C9440706FDFBEA8EAAA594EBEF98E081
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:6EBCD0C2C9440706FDFBEA8EAAA594EBEF98E081
 ```bash
 magnet:?xt=urn:btih:93E914B83043C70E6F8108392F8E576B23C1336A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:93E914B83043C70E6F8108392F8E576B23C1336A
 magnet:?xt=urn:btih:BC03A81C0260190534ADAAFE37C2F74639A51DB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:BC03A81C0260190534ADAAFE37C2F74639A51DB1
 ```bash
 magnet:?xt=urn:btih:A9E98EADFAE1B83A793B9C2AD70E4D33F5E4A276
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:A9E98EADFAE1B83A793B9C2AD70E4D33F5E4A276
 magnet:?xt=urn:btih:B5470B7B3D9C5BC85D2E5DB6C4BFA051A1D268A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:B5470B7B3D9C5BC85D2E5DB6C4BFA051A1D268A5
 ```bash
 magnet:?xt=urn:btih:F0B2C47FFF14865A342B324830B6CF1C41226FBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ Jean-Michel Jarre - Album Collection 7CDs (1976-1990) 1st German Press [APE|Loss
 magnet:?xt=urn:btih:95D59DED2248BE1F4AEAC9A7C8EE333340F2E348
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:95D59DED2248BE1F4AEAC9A7C8EE333340F2E348
 ```bash
 magnet:?xt=urn:btih:36EAA918AB7140DEE3FDA70ADE09DB4F694A98AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:36EAA918AB7140DEE3FDA70ADE09DB4F694A98AF
 magnet:?xt=urn:btih:0E5C8401FB4720498E234B2DD1C1129D8D110C2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:0E5C8401FB4720498E234B2DD1C1129D8D110C2C
 ```bash
 magnet:?xt=urn:btih:B98FA07848EE5EEF6EFA98807D3772DDBE1CF554
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ Queen - Ballads (2025) Remastered, 2011, UMG Recordings, Inc. [FLAC|Lossless|WEB
 magnet:?xt=urn:btih:B8B509DF160523E5369C9C76F93220390F7AB2B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:B8B509DF160523E5369C9C76F93220390F7AB2B9
 ```bash
 magnet:?xt=urn:btih:53CD2BF75CD4469727B26D791C82A74AE944B45B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1233793   (577938) от 01.07.2018
+
+Андрей Белянин | Сотник и басурманский царь (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Задумал как-то басурманский царь себе гарем обновить. И отправил он своих лучших воинов на Русь. Ну, те сразу-то с задачей не справились и позвали на подмогу злющую ведьму с чертями и разбойников лесных. Кстати, Баба-яга тоже в сторонке не осталась. Вот тут-то всё и завертелось, тут-то всё и началось… Казаки прыгнули на коней – и в погоню за разбойниками! А хитрые (   Читать дальше...   )Жанр: Юмористическое фэнтезиПродолжительность: 06:51:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF66C939553FD360FBC47B0EE39286DA65EA2D4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042396   (577990) от 13.08.2016
 
 Генри Лайон Олди | Волчонок (2016) [MP3]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:AA64274F5FDA2529E2C43C745E930FE5DD4B7D03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:AA64274F5FDA2529E2C43C745E930FE5DD4B7D03
 ```bash
 magnet:?xt=urn:btih:35C2009028AB3709C1324BDD846EBF300B12B380
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +101,8 @@ magnet:?xt=urn:btih:35C2009028AB3709C1324BDD846EBF300B12B380
 magnet:?xt=urn:btih:39AE0BA715EC6DAAFD7749130FD541D68DB66440
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +128,8 @@ magnet:?xt=urn:btih:39AE0BA715EC6DAAFD7749130FD541D68DB66440
 magnet:?xt=urn:btih:02CBE55F682497C9D8AA4567C6202655FB9D028B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:02CBE55F682497C9D8AA4567C6202655FB9D028B
 ```bash
 magnet:?xt=urn:btih:2C60B892D2BA702B4720ED7C6C197B6DC5E5CC06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:2C60B892D2BA702B4720ED7C6C197B6DC5E5CC06
 magnet:?xt=urn:btih:F9E6AC2FAA265E0C0FF303F9D05726F868D8B366
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:F9E6AC2FAA265E0C0FF303F9D05726F868D8B366
 ```bash
 magnet:?xt=urn:btih:6BCD5B2BE2B79966A38F504B04DC24D261CB818E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:6BCD5B2BE2B79966A38F504B04DC24D261CB818E
 magnet:?xt=urn:btih:4757A23B850CA20D7D95F7A2E4E09EB8A855ED86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:4757A23B850CA20D7D95F7A2E4E09EB8A855ED86
 ```bash
 magnet:?xt=urn:btih:93D0D9975700C01170945048DEC17318F3B62796
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:93D0D9975700C01170945048DEC17318F3B62796
 magnet:?xt=urn:btih:214E63474CA43E2DAB794B56060F5F5E42EC3472
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:214E63474CA43E2DAB794B56060F5F5E42EC3472
 magnet:?xt=urn:btih:FAF205B7A54F1430FC0D92C57EF928645965B332
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:FAF205B7A54F1430FC0D92C57EF928645965B332
 ```bash
 magnet:?xt=urn:btih:9F87943AD5F265354CDC2E57194DFDD6DB889DB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:9F87943AD5F265354CDC2E57194DFDD6DB889DB2
 magnet:?xt=urn:btih:8CE9DFC5944FDFC640F222B826C5469739E5C18E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:8CE9DFC5944FDFC640F222B826C5469739E5C18E
 ```bash
 magnet:?xt=urn:btih:202C94FE0577D83C1124953ED879A98741682FCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:202C94FE0577D83C1124953ED879A98741682FCA
 magnet:?xt=urn:btih:003BEE835BE12ED56AF9C97798530117EE82A435
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:003BEE835BE12ED56AF9C97798530117EE82A435
 ```bash
 magnet:?xt=urn:btih:D72FFE75C9252D0E3F049539DDD25D74D19BAC08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:D72FFE75C9252D0E3F049539DDD25D74D19BAC08
 magnet:?xt=urn:btih:54DF87ED262AE14BA780352A9DA1FA2EE363BBB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:54DF87ED262AE14BA780352A9DA1FA2EE363BBB9
 ```bash
 magnet:?xt=urn:btih:BFF949E7BB1E7B1FC0323376DE35C78124054478
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:BFF949E7BB1E7B1FC0323376DE35C78124054478
 magnet:?xt=urn:btih:63D07318F71457C9F689790492212EAAE97D64F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:63D07318F71457C9F689790492212EAAE97D64F7
 ```bash
 magnet:?xt=urn:btih:3FCE4A8AF07D3EAE0CEFC7D272EAD75581358B50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:3FCE4A8AF07D3EAE0CEFC7D272EAD75581358B50
 magnet:?xt=urn:btih:4B58F1A0306052E4E89E6C402E586D8417061CAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:4B58F1A0306052E4E89E6C402E586D8417061CAB
 magnet:?xt=urn:btih:82AF321EA2E14A7E0FE19CC1C9A6F97FA105DC62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:82AF321EA2E14A7E0FE19CC1C9A6F97FA105DC62
 ```bash
 magnet:?xt=urn:btih:B96D6AD2F8754B9080FE6FDD208D84C5120A4D90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:B96D6AD2F8754B9080FE6FDD208D84C5120A4D90
 magnet:?xt=urn:btih:81616962F8305E76638EB5CEE1EFA887A0044F02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,31 +678,7 @@ magnet:?xt=urn:btih:81616962F8305E76638EB5CEE1EFA887A0044F02
 magnet:?xt=urn:btih:DE07FC12D74242E24AA120BB295A73E13301A9E1
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 447920   (581291) от 10.08.2016
-
-Говард Филлипс Лавкрафт | Рассказы (2008) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американский писатель, поэт и журналист, писавший в жанрах ужасов, мистики и фэнтези, совмещая их в оригинальном стиле. Родоначальник Мифов Ктулху.
-Наряду с Робертом Говардом считается одним из основателей жанра фэнтези.
-При жизни Лавкрафта его произведения не пользовались большой популярностью, однако уже после его смерти они оказали заметное влияние на формирование (   Читать дальше...   )Жанр: Фантастика, ужасыПродолжительность: 05:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63AF8CF6436E0CAB4817E51D9E682EB21A36618B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

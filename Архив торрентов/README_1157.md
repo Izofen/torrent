@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:8DFD6319F6CD20239E40C9852C5828AF0FEE36D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Microsoft .NET 6.0.12 Runtime [Ru/En]
 magnet:?xt=urn:btih:F4D501D210B62711E97062CBDF2A6496E373774A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:F4D501D210B62711E97062CBDF2A6496E373774A
 ```bash
 magnet:?xt=urn:btih:E2197BFF6632FAEC94F531CA73AE50C8F4692ABB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ PDF-XChange Editor — программа для просмотра, редак�
 magnet:?xt=urn:btih:0DC93B960B45336C4208ADDF9E5767B9CFC0CBBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Rider позволяет разрабатывать приложения для 
 magnet:?xt=urn:btih:C1C85F65C87BE6D042031E4D2B8494300DB6E847
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:92D4FC41C8A7415520D696450D85B98D741F4C30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ _updated_nov_2021_x64_dvd_1fdd35c3.iso.
 magnet:?xt=urn:btih:AEE46E114C0AFCDDAFFA8A6DD299F8EB627D0987
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ PDF Extra - Сканнер и редактор - универсальное пр
 ```bash
 magnet:?xt=urn:btih:B58C29B1BE302AA55396487736641B3C8A82AB8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Dynamic Island - dynamicSpot - приложение, что предоставл
 magnet:?xt=urn:btih:8876A566A73F15CF1B2032A99D2E290EAD3C979E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Artlantis 2020 – профессиональный набор инструме�
 ```bash
 magnet:?xt=urn:btih:0C4728610866B41EB71D729CEEA0AAC46ADE2684
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:0C4728610866B41EB71D729CEEA0AAC46ADE2684
 magnet:?xt=urn:btih:4CE30683ED957827F5DA203223798EE4F47B31FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ DaVinci Resolve — единственное в мире решение для �
 ```bash
 magnet:?xt=urn:btih:C9A5D8ECB610496257A4CDA2865F18A9409BD780
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ V-Ray для Cinema 4D предоставляет стандарт в отрас
 magnet:?xt=urn:btih:1D21E9DD4E295CFFA65915547902343B903A4E51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Smart Defrag - дефрагментатор, позволяющий довест
 magnet:?xt=urn:btih:55C78AB3477483F418EB1B05704251EF1AD59C4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ EZ CD Audio Converter - утилита для преобразования ау�
 ```bash
 magnet:?xt=urn:btih:477D34095AB1B45C3AD944333D57A2DFC1891C0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ RadioBOSS - автоматизация радиовещания, озвучка 
 magnet:?xt=urn:btih:3887CFA85348E943AA6D67201D737EEA6B3E1520
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Vidmore Video Converter 2.3.8 [Multi/Ru]
 magnet:?xt=urn:btih:AF7E151880BCCBB331F8A616F5BB943A3D3D2DF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ GIMP — это редактор, позволяющий работать со �
 ```bash
 magnet:?xt=urn:btih:95B02FD705B22BF071D067F9EB053E1D525B063A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:95B02FD705B22BF071D067F9EB053E1D525B063A
 magnet:?xt=urn:btih:6CD45B87982F796314D76A5561ADA055FB120811
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Opera 65.0.3467.78 Portable by Cento8 [Ru/En]
 magnet:?xt=urn:btih:26F12FCCC08485C93E59033DE17672DF4046425E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:0C64326371A53C4714483AFB6DCE0035066A8244
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ Athentech Perfectly Clear Complete 3.9.0.1711 Repack by elchupacabra [En]
 magnet:?xt=urn:btih:699E47BD2CAC274D23754FF76C316A4F998944B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Movavi Picverse предназначен как для начинающих, т�
 ```bash
 magnet:?xt=urn:btih:D1C561BA9F5A0B14BCA839C13A4471378A4B073A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:D1C561BA9F5A0B14BCA839C13A4471378A4B073A
 magnet:?xt=urn:btih:3C5A4CF5ED1AF63E6C34AF4B9D3DC14C7D76BFFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Ashampoo Burning Studio 18 - это всё то, о чём Вы просили. 
 ```bash
 magnet:?xt=urn:btih:22A50ABB0653DFDB753637C9D96161B8FA89DF80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +676,8 @@ Perfectly Clear WorkBench позволяет всего за пару клико
 ```bash
 magnet:?xt=urn:btih:BE3686A4F02D6380788F26481A4C71DFFD97FC11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

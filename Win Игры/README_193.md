@@ -19,6 +19,8 @@ Rauniot - приключенческий квест, представленны�
 magnet:?xt=urn:btih:676A6FC8BE288D3C60D167EE6FA26474A053D383
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Signal State сочетает в себе игру-головоломку и
 ```bash
 magnet:?xt=urn:btih:F474BA337C79A3CA0C92FF3CD2C7C6514AFA0124
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Shinkansen 0 отправляет геймеров в уникальное пр�
 magnet:?xt=urn:btih:B1006B08DE57CFE513C9E8D89C77766D4160B9F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ LAKE The Legend of Snowblind - атмосферная приключенческ
 ```bash
 magnet:?xt=urn:btih:7523D350C3FF14B52EBCB985903E99A3DD672CA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Sweet Transit – это градостроение, где все во мног
 magnet:?xt=urn:btih:07440E101CE9B114DBC0136813D36E72A2E78518
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Kingsgrave манит вас в пустынный мир. Приключени�
 ```bash
 magnet:?xt=urn:btih:499DB8B743609D41BE25CA8FACA80F93AC65FE09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Aquamarine - это созерцательное, пошаговое прикл�
 magnet:?xt=urn:btih:A473C887F96886EEF6079037BB0EF93DC7FD4428
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Laika: Aged Through Blood – вдохновлённая вестернами р
 ```bash
 magnet:?xt=urn:btih:E10A2541B686A9EFD26C16B827A302C953839E63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ UFO Robot Grendizer - The Feast of the Wolves предлагает взять н
 magnet:?xt=urn:btih:128BA769692049559F663C33E3D0CB553A8A6EC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Demon Lord Reincarnation (2023) [En] (1.0.6.1/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:F61F3820B1E600DD60BC676CC81CBD1A37354FD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Aron's Adventure – ролевое приключение, разворачив
 magnet:?xt=urn:btih:E43EACD63A7D2A0E6340FEC69504E9B4A0958F5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Omega Mouse Zero – настало время отправиться в уди�
 ```bash
 magnet:?xt=urn:btih:420B4492D02CBB6620C617F224E7A0A39290999C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Mato Anomalies - это пошаговая RPG, которая отправля�
 magnet:?xt=urn:btih:12B72E33D69DE78A9AE8D41FDCEC4450CAC96704
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Sophia the Traveler позволяет пользователям очутить
 ```bash
 magnet:?xt=urn:btih:E359CB6EE6FB7D14FADC0722922A6BDC355F90C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Battle Planet - Judgement Day - топ-даун шутер, однако его 
 magnet:?xt=urn:btih:207041623F678EF7B8003A0D79F778014BD5685D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Witch's Cauldron - это мрачная история, в которой �
 ```bash
 magnet:?xt=urn:btih:6216B5E682AE097FB9A11AAD5BEC67EF10AD2308
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Galactic Ruler Enlightenment – окунитесь с головой в нев�
 magnet:?xt=urn:btih:1B537750E493DDB701671013CC81A542CA467F16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Eiyuden Chronicle: Hundred Heroes – это увлекательный фент
 ```bash
 magnet:?xt=urn:btih:4110159439AC7FB25C117909632797265C21A992
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Ready, Steady, Ship! - кооперативная игра для дивана, 
 magnet:?xt=urn:btih:2E55814CFACDDB32C84A11077AB582DB32218BE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Aron's Adventure – ролевое приключение, разворачив
 ```bash
 magnet:?xt=urn:btih:5DE30E1932D64B6E7323B9AF444CD64EC0168A11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Astria Ascending (2021) [Multi] (1.0.154/dlc) License GOG [Digital Collector's E
 magnet:?xt=urn:btih:0E5F8EA2BE35497EF7AACCCCAF6A625120C86CAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Agatha Christie Hercule Poirot: The London Case (2023) [Ru/Multi] (1.0.7) Licens
 ```bash
 magnet:?xt=urn:btih:EE7DA14EF29B29F2170746FE02FA4590CC2FA5CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Scars Above использует научно-фантастический се�
 magnet:?xt=urn:btih:EB5B4505E83A9C55CAFEB098E7B2B3FD7014C2DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ World Turtles - это увлекательная средневековая г�
 ```bash
 magnet:?xt=urn:btih:8F8CCA07EFFF045C8900D54B89AB6210B2ED022F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ The Repair House: Restoration Sim - это умиротворяющая и за�
 magnet:?xt=urn:btih:9A493992B01F72B96B2EC12C0244BBDF7626B9B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Knights and Guns - аркадное приключение, выполненно
 ```bash
 magnet:?xt=urn:btih:CAADC894DFD58C5E45C4A458B42BE93326C870B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

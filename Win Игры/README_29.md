@@ -19,6 +19,8 @@ Chip ‘n Clawz vs. The Brainioids (2025) [Ru/Multi] (1.0.23477) Repack Let'sРl
 magnet:?xt=urn:btih:09314050D2321E7A468C944ACF782D6F461232D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.08.06.18.12/dlc) Repack Fit
 ```bash
 magnet:?xt=urn:btih:2A237CF51BB72F1BCCED8B0DDACF2E1C6F8932F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ RAILGRADE (2023) [Ru/Multi] (7.3.63.1) Repack FitGirl
 magnet:?xt=urn:btih:6A7FA09C2A751E7D9BDB69B7AE56E79B9906BA44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Nordic Ashes: Survivors of Ragnarok – динамическое приключ�
 ```bash
 magnet:?xt=urn:btih:AE3336668A1E97B1F7D33F910FEDE251DF5E9477
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.3) Repack Other s
 magnet:?xt=urn:btih:929DF32EEA4FE461A1A0E89C8820E7A1F4010BD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The RPG (2025) [Ru/Multi] (1.001/1.004) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D385299A0C85B843C23AAB58962B20D923B22D8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Hell Clock (2025) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 magnet:?xt=urn:btih:5A9C17E7EBB7A29444D7502CD8A5E2EA836D4EF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Iron Core: Mech Survivor - это однопользовательская ро�
 ```bash
 magnet:?xt=urn:btih:A36DD25399849130D219B2DF65D969ACA22D478B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Runa Illustra (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 magnet:?xt=urn:btih:FDBCF2EBFC477C8CFBB92E7770E1FD151711E8E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Forgotten 23 (2025) [Multi] (1.0.5) License GOG
 ```bash
 magnet:?xt=urn:btih:0169046E2B8FFF3C88844ACC17CA36E71B7C94D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Relaxing Time 3: Enchanting France / Время отдыха 3: Чарующая
 magnet:?xt=urn:btih:3B5C84C387B14F4F49431F3B809D82E8774A5DD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Koboo: The Tree Spirit предлагает уникальное сочетан�
 ```bash
 magnet:?xt=urn:btih:6A6000ADAA4E6FA4CFD8CD4D5FE23B48DCA0D975
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Terra Nil – градостроительный симулятор-песочн
 magnet:?xt=urn:btih:AC49F57FCF26B9ACE62C723F9F1AADAA03BD7888
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ RIPOUT - это хоррор-шутер с режимом совместной �
 ```bash
 magnet:?xt=urn:btih:63FEBF0E1DC63CF223A7EC1A1860AE512C1ED9D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Yomi 2 - это файтинг в карточной форме. Изучайт�
 magnet:?xt=urn:btih:9E3B68DFC2418F1EE61D20FBEEFB0A1F5D7610D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Count of Monte Clicker - это игровой проект, повеств�
 ```bash
 magnet:?xt=urn:btih:F3E9B99B32A50D54BCA0A542AAB46A68BCD6A125
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Digger: Galactic Treasures - атмосферная космическая иг�
 magnet:?xt=urn:btih:0D76201C8CE03820331F7F1110ED5D1F8E390BB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Le Mans Ultimate - официальная игра FIA World Endurance Champions
 ```bash
 magnet:?xt=urn:btih:5F2F54CAB57C510543D0EF774C93C538B718E65A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Iron Core: Mech Survivor - это однопользовательская ро�
 magnet:?xt=urn:btih:89FF6A68033D5954508EA5E9B2CF7C099D708C16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ MX vs ATV Legends показывает, какими могут быть инт�
 ```bash
 magnet:?xt=urn:btih:320B26A1B5983AA946BBC256B4AF998E5CD113F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ The House of the Dead 2: Remake - это обновленная версия в�
 magnet:?xt=urn:btih:3C691ABA5C9DE0355F1FAE42075FA5249431BBC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ MX vs ATV Legends показывает, какими могут быть инт�
 ```bash
 magnet:?xt=urn:btih:66828EB3C664D7E28D71323327510B923E3B06CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Grand Emprise 2: Portals Apart (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:2307DA4819257544584ACAFF2E0332AF405F7236
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Satisfactory - это игра от первого лица в открытом 
 ```bash
 magnet:?xt=urn:btih:8DCE61CAC4D139F4306A9EB34F81D9FA8DD60D45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Grim Chronicles: Superior Sorcery (2025) [En] (1.0) Unofficial [Collector's Edit
 magnet:?xt=urn:btih:474F65A12EE70800AE17DAC4A797A48EE92026BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Hidden Portals: Eternal Balance / Скрытые порталы: Вечный б
 ```bash
 magnet:?xt=urn:btih:ADF9E9A5039B3EE0221751DF03D3C4134C849CA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

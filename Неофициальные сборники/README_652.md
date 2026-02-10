@@ -1,3 +1,32 @@
+###  Публикация: 1483456   (1006778) от 14.07.2021
+
+VA - Electro Town (2021) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006778.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Peetu S - Afterlife
+002. Human Force - Sun Rising High
+003. Green Court - Silent Heart
+004. Wavetraxx - Lost Transition(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 10:29:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F15575E00776F7C701B1013DD65AF3A8D40B4CC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483381   (1006850) от 13.07.2021
 
 VA - Новички в попсе Vol 9 (2021) [MP3|320 Kbps] <Pop>
@@ -21,6 +50,8 @@ VA - Новички в попсе Vol 9 (2021) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:043558CD2722A00E4480ACD097553AACABC12116
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - That Other World: Indie & Alternative Music (2021) [MP3|320 Kbps] <Indie Ro
 magnet:?xt=urn:btih:DEA386C4CE0D5E38A077E339948380FFCFF4304B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Виртуозы Жанра - Russian Blues (2021) 2CD [MP3|320 Kbps] <Blue
 ```bash
 magnet:?xt=urn:btih:6747E071A9A4126CCB49F8C1FA1DC78931717AB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ CD 01:
 magnet:?xt=urn:btih:FB41CEE02D3BDFB842AE49D7F902E8E107B656E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Music Love: Romantic Sound Mix (2021) [MP3|320 Kbps] <Pop, Romantic>
 ```bash
 magnet:?xt=urn:btih:E47BD75A2234771E3ED647DD6AF2455A069EEBF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Electro House: Late Night Party (2021) [MP3|320 Kbps] <House, Electro, Club
 magnet:?xt=urn:btih:4DA828DF16000DDE6387E580FAD5B844A9F8D841
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - D&B Master Box (2021) [MP3|320 Kbps] <Drum & Bass, Dubstep, Bassline>
 ```bash
 magnet:?xt=urn:btih:129554836050A968433733084B1FF9F2489AF175
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Neon Mania: Synth Electronic DJ Mixtape (2021) [MP3|320 Kbps] <Synthwave, S
 magnet:?xt=urn:btih:5B44A95C77DB708BBC8024E6E7F1A54D5092343D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Sex у нашому селі (2007) [MP3|256 кб/с]<folk>
 ```bash
 magnet:?xt=urn:btih:D1DE067828DFB5D48F0773154BF574C836079105
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - Record Super Chart 10.07.2021 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:4A420E104DB0EAFF4A4758D01F85140FE380252C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - Music News vol.114 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 ```bash
 magnet:?xt=urn:btih:7867A233B2956A208C47EDBB1FD61E6CCB4FE80D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - 100 Greatest Modern Indie Songs (2021) [MP3|320 Kbps] <Alternative & Indie>
 magnet:?xt=urn:btih:AA402E5FC2C3D464C20A06AD548DFC7D3FC95FF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ VA - Romantic R&B Sunday (2021) [MP3|320 Kbps] <R&B, Soul>
 ```bash
 magnet:?xt=urn:btih:BF0618486ED9251F8169FA8C754D64DB459D9199
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ VA - EDC: Deep House Cafe Del Mar (2021) [MP3|320 Kbps] <Deep House, Electro>
 magnet:?xt=urn:btih:2EF9C1AAD7795FF2CAFD7516D104EA73EEAE21AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +456,8 @@ VA - Easy Listening: Music For A Relaxed Mood (2021) [MP3|320 Kbps] <Easy Listen
 ```bash
 magnet:?xt=urn:btih:1A0A98869CF28A914D0947A5DE8E2B928F231937
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +486,8 @@ VA - Beatport Hard Dance: Sound Pack #315 (2021) [MP3|320 Kbps] <Hardstyle, Hard
 magnet:?xt=urn:btih:30EA78596FA8A285BC56752D2E57D81472A667EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +514,8 @@ VA - Beatport Electro House: Sound Pack #314 (2021) [MP3|320 Kbps] <House, Elect
 ```bash
 magnet:?xt=urn:btih:B33480147B459815F8E6F36C77C36DA60B951D4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +544,8 @@ VA - Private Summer Theme: Lounge Party (2021) [MP3|320 Kbps] <Lounge, Chillout,
 magnet:?xt=urn:btih:768E6A711FBCD8D501B932BDC0984BC5E0E6149F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +572,8 @@ VA - Rock covers (2021) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:F4E878C1144CBFC34531B926F4964EF9BFA6B022
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +602,8 @@ VA - 100 Greatest Alternative 80s (2021) [MP3|320 Kbps] <Rock, Alternative>
 magnet:?xt=urn:btih:942E4B6A5E937898A7D7E14B6B1CA4ECD651B824
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +630,8 @@ VA - National Pop Dance Music (Vol.21) (2021) [MP3|320 Kbps] <Pop, Folk, Dance>
 ```bash
 magnet:?xt=urn:btih:F1CAB47EF4679205D73C7FF9529560ADD6D92719
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +660,8 @@ CD 01:
 magnet:?xt=urn:btih:790FE77A964467DE4829940F08BCC5A227EA27F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +688,8 @@ VA - Exotic Ethnic House (2021) [MP3|320 Kbps] <Ethnic house, electro>
 ```bash
 magnet:?xt=urn:btih:8C871E80209A70DBF0035A4BFF409F3D6514C0AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +718,8 @@ VA - Beatport Funky House: Sound Pack #312 (2021) [MP3|320 Kbps] <Funky, Disco H
 magnet:?xt=urn:btih:36AEAFBA5EA62BD166998274B66311B38703BE79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,32 +747,7 @@ VA - Beatport Tech House: Sound Pack #313 (2021) [MP3|320 Kbps] <Tech House, Ele
 magnet:?xt=urn:btih:2C5AE8A85813AE54232847688DBDE4348C5EC767
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482043   (1007790) от 07.07.2021
-
-VA - A Quantum State: Synth Electronic Mix (2021) [MP3|320 Kbps] <Synthetic, Syntwave, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007790.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Third Son - Everything In It’s Right Place
-002. Dmx Krew - Solar Transit
-003. Monday In Neptune - Laurence
-004. Anton Mazo - Surrealism(   Читать дальше...   )Жанр: Synthetic, Syntwave, ElectronicПродолжительность: 11:56:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB693A6D9C74CFCA675C1A16492A40B7DB080B87
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

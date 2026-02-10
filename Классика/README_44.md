@@ -22,6 +22,8 @@ Symphony No.1, Op.21, C major
 magnet:?xt=urn:btih:8C1035D300123C7AB8044DCD45173204B91FE80E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Marin Marais - Jordi Savall - Le Concert Des Nations – Alcione, Suite Des Airs
 ```bash
 magnet:?xt=urn:btih:B583B3176A4959BC73C43AC0EF68D0E5F74BB812
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Wolfgang Amadeus Mozart 	Hermitage String Trio  03:41
 magnet:?xt=urn:btih:5A243D2360A0E5FD04390911D6A9327849336EA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Epoca Barocca - Christoph Schaffrath - 2 альбома (2006, 2010) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:9344F02BEC0B609839DBB6F36D8A64D118BFBB9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Korngold, Rosza, Waxman, Heifetz - Concertos - Tema Con Variazioni - "Carmen" Fa
 magnet:?xt=urn:btih:9D48A8E245C4C595770BD2E867DD43B369707367
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Kalman - Die Csardasfurstin (Сильва) (1968) 1994 Hungaroton Classic Kft [A
 ```bash
 magnet:?xt=urn:btih:267990C5A3BFAC51A5247007F062F354F61A2998
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Tina Guo - The Journey (2011) [FLAC|Lossless|tracks + .cue] <Classical Contempor
 magnet:?xt=urn:btih:FA7137DCCBA77FF93A0125F607675E5B925D6C4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Золотое Барокко (2001) S&V #02/2001 [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:AA5644432D56594C82FD75F69C249F781F4D8702
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Favourite Classics (1999) S&V #12/1999 [FLAC|Lossless|tracks + .cue] <Baroq
 magnet:?xt=urn:btih:6573EDFDB3B849A535795690CB76B4960E209148
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Ivan Moravec - Plays Chopin (2001) [FLAC|Lossless|tracks] <Classical, Keyboard>
 ```bash
 magnet:?xt=urn:btih:1476D7DAA5338279075CEF7090985B0476AD0899
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Rudolf Innig - Nowowiejski - Complete Organ Symphonies (1998) 3CD [FLAC|Lossless
 magnet:?xt=urn:btih:9D1039EF445822BD9A5C07EBD1F57A512C49FADF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Telemann - A Fagotto Solo (2010) [FLAC|Lossless|tracks] <Classical, Chamber Musi
 ```bash
 magnet:?xt=urn:btih:FC0321CD6588DED8521D7DDEDB35F50798B69795
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Piano Concerto No. 1 in D minor Op. 15:
 magnet:?xt=urn:btih:1D4AF9207049AD0CF200787419BB753D8710DD7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Quartet No. 10 in A major, MS37 [23:53]Жанр: Classical, InstrumentalПрод
 ```bash
 magnet:?xt=urn:btih:45BD97E07566B3B283BF4E69C3762BA94EBA0E4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Act 1
 magnet:?xt=urn:btih:97CABF062AFA5459962EDF1EFA9DDACE6CDC0DAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Jenny Oaks Baker - Classic - The Rock Album (2014) [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:790AE970F87360C56578A841E17B54533161879A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Marches Caracteristiques, D. 886
 magnet:?xt=urn:btih:F4FBCF72599711E95A6D2296F49DBF2EB19EC582
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +515,8 @@ Netrebko, Quasthoff, Terfel, Garanca, Pape - The Mozart Album (2006) [MP3|320 к
 magnet:?xt=urn:btih:DF6B3ED3053FD57F27B8E8BE9EE4E0FCAC91555B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +540,8 @@ Allan Pettersson - Symphony No. 6 (Nordiska Musikförlaget) (2012) [FLAC|96/24|W
 ```bash
 magnet:?xt=urn:btih:B3F013EE3E53A39403AD8E14536B6073525E8B18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +569,8 @@ Nevermind - Quentin & Guillemain: Conversations (2016) [FLAC|Lossless|tracks] <C
 magnet:?xt=urn:btih:C492EDB304A291240676FCEA98C832A1CC6852DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +594,8 @@ V.A. - Старинная музыка для органа и трубы (2002) 
 ```bash
 magnet:?xt=urn:btih:31354C0A115AB1B89EE1202CC36F67C14F398EB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +624,8 @@ VA - Ballet Masterpieces: The World's Favorite Ballets and Ballet Suites (2009) 
 magnet:?xt=urn:btih:052550613F0A4D3AD8D21D690651E3D76560DD88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +652,8 @@ VA - Romantic Collection - Classic For Love (2000) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:FCDEA7780646748AEA324CB09F73B1CF7CF8BF20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +682,8 @@ Julia Lezhneva/Юлия Лежнева - Handel - Arias (2015) [FLAC 2.0|96/24|t
 magnet:?xt=urn:btih:721E8FF9267B46FF817E9D8757AD3B2C050987EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +711,8 @@ Tina Guo - Game On! (2017) [MP3|320 Kbps] <Classical Crossover, Soundtrack>
 magnet:?xt=urn:btih:2AFBFE4D15EB4A0421ADC55C5520E5662AF911FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -689,6 +739,8 @@ TCHAIKOVSKY - Francesca da Rimini • Symphony No.6 "Pathetique"  Moscow Radio O
 ```bash
 magnet:?xt=urn:btih:03BE209DEEE31417A6283EB46226531C0E5935C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

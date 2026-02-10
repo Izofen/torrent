@@ -1,3 +1,29 @@
+###  Публикация: 516194   (653528) от 28.06.2012
+
+Святитель Тихон Задонский | Полное собрание творений (5 томов) [2003] [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653528.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Ежели кому покажется в каком рассуждении грубое нечто, тому охотно объявляю, что здесь ищется польза, а не услаждение, спасение, а не человекоугодие. Будет ли кто просвещенный имея разум, паче чаяния начитает что достойное исправления, то скудоумию моему, а не воли моей приписать прошу. Спасайся о Христе, любезный брат."Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:904F5C1A6EA0CF2BCD4EB197E36D90A41EE5BC89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1226618   (653590) от 22.05.2018
 
 Борис Бублик | Щедрый огород. Авторские секреты выращивания отличного урожая (2018) [PDF]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:AF41499CD98A586F78DC146A7BB609995F982C05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -47,6 +75,8 @@ magnet:?xt=urn:btih:AF41499CD98A586F78DC146A7BB609995F982C05
 magnet:?xt=urn:btih:E089DD1589B95A64C103A66E260B69C85E7E930C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:E089DD1589B95A64C103A66E260B69C85E7E930C
 ```bash
 magnet:?xt=urn:btih:68DBBA98D2CA67ED8C1378386B901B7198397D1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +127,8 @@ Amos Media Co. | Scott 2017 Standard Postage Stamp Catalogue. Volume 6 includes 
 magnet:?xt=urn:btih:D2B7E4523A04CED3BDCF70AF96F392DEC843DF76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ Krause Publications | 2018 Standard Catalog of World Coins. 2001-Date. 12th Edit
 ```bash
 magnet:?xt=urn:btih:33F0AC9473C57B00F0AE313DCD5648120EDD4461
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +179,8 @@ Krause Publications | Standard Catalog of World Paper Money, Modern Issues, 1961
 magnet:?xt=urn:btih:0CFF31C5A03EA37B0580158B35F16816C6240AB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ Amos Media Co. | Scott 2017 Standard Postage Stamp Catalogue. Volume 5 includes 
 ```bash
 magnet:?xt=urn:btih:83AA0A8042C887A0C4DA50953B345379F84D1183
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +233,8 @@ magnet:?xt=urn:btih:83AA0A8042C887A0C4DA50953B345379F84D1183
 magnet:?xt=urn:btih:E76BFD64889424BF95F7A458FB5AFEDBDD5651B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:E76BFD64889424BF95F7A458FB5AFEDBDD5651B9
 ```bash
 magnet:?xt=urn:btih:58993F84E76E33B7A11A4151A887531743413E31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +289,8 @@ magnet:?xt=urn:btih:58993F84E76E33B7A11A4151A887531743413E31
 magnet:?xt=urn:btih:536354987DFC83C91BB335B4FA3FD6CAAE9D5E86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +314,8 @@ magnet:?xt=urn:btih:536354987DFC83C91BB335B4FA3FD6CAAE9D5E86
 ```bash
 magnet:?xt=urn:btih:926B8902AA47DC44886C85B2F296402BE4E834F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +343,8 @@ magnet:?xt=urn:btih:926B8902AA47DC44886C85B2F296402BE4E834F7
 magnet:?xt=urn:btih:85E1489EC925B9534ECC0D4CC93060F91A2000E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +368,8 @@ magnet:?xt=urn:btih:85E1489EC925B9534ECC0D4CC93060F91A2000E2
 ```bash
 magnet:?xt=urn:btih:F4A67C370FA6314D9E24DB39EA819237B706A585
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +395,8 @@ magnet:?xt=urn:btih:F4A67C370FA6314D9E24DB39EA819237B706A585
 magnet:?xt=urn:btih:DB5A2B9E49FA466D0A186C3F843E596E051B0ECE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +420,8 @@ Cэм Харрис | Ложь: Почему говорить правду все
 ```bash
 magnet:?xt=urn:btih:35DBA7E157C22F5C1C875BB72CA0E54B3420FD3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +447,8 @@ magnet:?xt=urn:btih:35DBA7E157C22F5C1C875BB72CA0E54B3420FD3B
 magnet:?xt=urn:btih:C75FB7625D7D1B1B55FD190CF9EC1C880F17083B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +472,8 @@ magnet:?xt=urn:btih:C75FB7625D7D1B1B55FD190CF9EC1C880F17083B
 ```bash
 magnet:?xt=urn:btih:B78AB3B1F0DA60ACC0F3300558E2400CDAD02F89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +502,8 @@ magnet:?xt=urn:btih:B78AB3B1F0DA60ACC0F3300558E2400CDAD02F89
 magnet:?xt=urn:btih:F6E3EB33F2F62D081FAAEFF3E147C738EE2D3AA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +527,8 @@ magnet:?xt=urn:btih:F6E3EB33F2F62D081FAAEFF3E147C738EE2D3AA1
 ```bash
 magnet:?xt=urn:btih:4586CFCB10D6586036E1331729A6E285C4BC96BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +554,8 @@ magnet:?xt=urn:btih:4586CFCB10D6586036E1331729A6E285C4BC96BD
 magnet:?xt=urn:btih:E98B6E54A6601B8527F18EF754CDBCC9EFACB1F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +580,8 @@ magnet:?xt=urn:btih:E98B6E54A6601B8527F18EF754CDBCC9EFACB1F1
 magnet:?xt=urn:btih:BEB5C230B17B7EF5FE0F429C67893B57A92412BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +605,8 @@ magnet:?xt=urn:btih:BEB5C230B17B7EF5FE0F429C67893B57A92412BE
 ```bash
 magnet:?xt=urn:btih:39B721B4912086F3ECCFF7F41D5A6C72686874B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +634,8 @@ magnet:?xt=urn:btih:39B721B4912086F3ECCFF7F41D5A6C72686874B9
 magnet:?xt=urn:btih:079CE87B4A9518F9050617E4045B7E41A8F52DE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +659,8 @@ magnet:?xt=urn:btih:079CE87B4A9518F9050617E4045B7E41A8F52DE0
 ```bash
 magnet:?xt=urn:btih:628EBD96F18B69FB63945D2C6E8A1EA20874E4FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,29 +686,7 @@ magnet:?xt=urn:btih:628EBD96F18B69FB63945D2C6E8A1EA20874E4FE
 magnet:?xt=urn:btih:47FDAF90071B1F0FE92164D70CDE3A45E5A8D126
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904228   (655105) от 02.06.2015
-
-Брайан Когман | HBO: Игра престолов (2015) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэвид Бениофф и Дэн Уайсс – исполнительные продюсеры и ведущие сценаристы, взявшие на себя нелегкую задачу экранизации на канале Эйч-би-о саги Дж.Р.Р.Мартина «Песнь льда и пламени». Вместе с Брайаном Когманом, постоянным редактором сериала и автором нескольких эпизодов, они создали грандиозное зрелище – «Игра престолов» завоевала премии «Эмми» и «Золотой глобус» (   Читать дальше...   )Жанр: ПублицистикаПеревод: Наталья ВиленскаяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:599B898EF607AD8C618CB8804A0EBFD2FC4F6E2F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

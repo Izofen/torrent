@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:F369AF06ECC79941544CBA38ECC4FC3DC017F2DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:F369AF06ECC79941544CBA38ECC4FC3DC017F2DC
 ```bash
 magnet:?xt=urn:btih:4B8223E106561F0765709D0FEA24C5A036907F90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -77,6 +81,8 @@ VA - Trance Maniacs Party: Uplifting Breeze #37 (07.04.2012) [MP3|320 кб/с]<T
 magnet:?xt=urn:btih:3AC70A62686F161BF9556D5901DA744D7C71CE45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -105,6 +111,8 @@ magnet:?xt=urn:btih:3AC70A62686F161BF9556D5901DA744D7C71CE45
 magnet:?xt=urn:btih:AC5542BEED7D9F796765A53991E857E3C5679AB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +136,8 @@ magnet:?xt=urn:btih:AC5542BEED7D9F796765A53991E857E3C5679AB8
 ```bash
 magnet:?xt=urn:btih:9C22999502813B06DD4FD58B21967DDA711235FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -153,6 +163,8 @@ magnet:?xt=urn:btih:9C22999502813B06DD4FD58B21967DDA711235FA
 magnet:?xt=urn:btih:C5C91CFAFE9422E7A7B686D2378502482251B208
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:C5C91CFAFE9422E7A7B686D2378502482251B208
 ```bash
 magnet:?xt=urn:btih:EC764D8BA3D3A11C4711017E84B7CA70E02FD20B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +215,8 @@ magnet:?xt=urn:btih:EC764D8BA3D3A11C4711017E84B7CA70E02FD20B
 magnet:?xt=urn:btih:F2C35A54A5ADD319A1C7ADCAF8E3E6A91309BC44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:F2C35A54A5ADD319A1C7ADCAF8E3E6A91309BC44
 ```bash
 magnet:?xt=urn:btih:5148BE2CDD2D8A056E6E98B91CA1E63A50336442
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:5148BE2CDD2D8A056E6E98B91CA1E63A50336442
 magnet:?xt=urn:btih:D1457B923541204BDC36D9B15AD38F614A511B19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:D1457B923541204BDC36D9B15AD38F614A511B19
 ```bash
 magnet:?xt=urn:btih:D0E7D9EB9C582BD588E5F22CCD5E03121FBBF1C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:D0E7D9EB9C582BD588E5F22CCD5E03121FBBF1C9
 magnet:?xt=urn:btih:383B19CCBC561F74E0F5C567E0F7C710054D6C26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:383B19CCBC561F74E0F5C567E0F7C710054D6C26
 ```bash
 magnet:?xt=urn:btih:E5B1954574E0073B0F592DF1A5699FB0CFBC6414
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:E5B1954574E0073B0F592DF1A5699FB0CFBC6414
 magnet:?xt=urn:btih:B2BC2408BE8F4482DD76995F57296DCE809F23CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ magnet:?xt=urn:btih:B2BC2408BE8F4482DD76995F57296DCE809F23CF
 ```bash
 magnet:?xt=urn:btih:2BF4EC575726BB7E52B0F85EC5D1C37D19402E72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ VA - TMP: Clear Sky 071 (03.05.2012) [MP3|320 kbps]<Vocal Trance, Uplifting Tran
 magnet:?xt=urn:btih:264A47F5D0BC80160EEB1E0BFB7C51CABFBEB64E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +468,8 @@ Venetian power - The arid land (1971) [MP3|224 кб/с]<Progressive Rock>
 magnet:?xt=urn:btih:D623AFA2772A83C3A5378E9173E98A58E2DD8026
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +502,8 @@ Drapsnatt - Hymner Till Undergangen (2010) [MP3|320 кб/с]<Folk/Black Metal>
 magnet:?xt=urn:btih:8EF69DE7EE040D8469817161F55CA9C70A3A0F7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +531,8 @@ magnet:?xt=urn:btih:8EF69DE7EE040D8469817161F55CA9C70A3A0F7E
 ```bash
 magnet:?xt=urn:btih:0B039DEEBB81212B14AC7CEF903F387BD7C04794
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +567,8 @@ VA - Русские Новинки Vol.53 from AGR (2012) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:CBB6E00577E195021A459FB388F4E6CF80185E73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +602,8 @@ VA - TMP: Trance Harmony 067  (2012) [MP3|320 кб/с]<Trance, Uplifting Trance,
 magnet:?xt=urn:btih:B3F1780150EA76EC02DEE716D5B9F89D4FF65A0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +633,8 @@ magnet:?xt=urn:btih:B3F1780150EA76EC02DEE716D5B9F89D4FF65A0B
 magnet:?xt=urn:btih:698442B3A9D3CCE104502C4615FFF4A52AD7119F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +658,8 @@ magnet:?xt=urn:btih:698442B3A9D3CCE104502C4615FFF4A52AD7119F
 ```bash
 magnet:?xt=urn:btih:08D646C73EE3D0063961167E53013EE5BB1DA85C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +685,8 @@ magnet:?xt=urn:btih:08D646C73EE3D0063961167E53013EE5BB1DA85C
 magnet:?xt=urn:btih:B347116337C28D19B8EEFC036F546AA2E06B6541
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +711,8 @@ magnet:?xt=urn:btih:B347116337C28D19B8EEFC036F546AA2E06B6541
 magnet:?xt=urn:btih:0126DF281FAA6743FA3B1D2553EC22E616454BEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -686,6 +736,8 @@ magnet:?xt=urn:btih:0126DF281FAA6743FA3B1D2553EC22E616454BEB
 ```bash
 magnet:?xt=urn:btih:19ECB66AB0660AEF022999E2A3A7BB7A8DF2169B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

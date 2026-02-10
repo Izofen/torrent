@@ -21,6 +21,8 @@ Countless Skies - рок-руппа из Хартфордшира, Велико�
 magnet:?xt=urn:btih:2D8DD6D5172F1520E1A3FA232DA68580627DA62E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Unanimated — шведская метал-группа, основанная в
 magnet:?xt=urn:btih:89A7B1317627F59747691AA209B220A1D1C53101
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:89A7B1317627F59747691AA209B220A1D1C53101
 ```bash
 magnet:?xt=urn:btih:6EEDFB69E2549E1C97019BA078B6F37B052469C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:6EEDFB69E2549E1C97019BA078B6F37B052469C6
 magnet:?xt=urn:btih:2BE9DAE9DDCD42B02752E10A59281C08E3AEC4CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:2BE9DAE9DDCD42B02752E10A59281C08E3AEC4CD
 ```bash
 magnet:?xt=urn:btih:08BD563A2920B1C73BC0455FBEFA9FF1FA5FCCBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:08BD563A2920B1C73BC0455FBEFA9FF1FA5FCCBD
 magnet:?xt=urn:btih:E27756C206194507AC4E0D3251A6BBB3DFE5AD4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:E27756C206194507AC4E0D3251A6BBB3DFE5AD4C
 magnet:?xt=urn:btih:323994E394B305CD7132EB787E354A676492661A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:323994E394B305CD7132EB787E354A676492661A
 ```bash
 magnet:?xt=urn:btih:BFB51DD38C2D0D99EDEB075AB836BE95CD010266
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ VA - Бархатный шансон 2025, Часть 2 (2025) [FLAC|Lossless|WE
 magnet:?xt=urn:btih:79BEBC6DF133761C12B099D4B59A00AD868B40E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ VA - Бархатный шансон 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:5CD51CBF8D078891F80DC169E1099A7CD3D7F95B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:5CD51CBF8D078891F80DC169E1099A7CD3D7F95B
 ```bash
 magnet:?xt=urn:btih:42D12064B7A8ABAC9B25CC7428A01E37C1382C2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ PanoramaStudio Pro - программа от немецких разработч
 magnet:?xt=urn:btih:F691DA0499C3DF7ADD31921B80931F03DCA42E2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:F691DA0499C3DF7ADD31921B80931F03DCA42E2D
 ```bash
 magnet:?xt=urn:btih:8A0D9FDD5DF495A46FDE822C225D9DDC4CBBAA24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ Minimal Firewall — это портативный интерфейс бранд
 magnet:?xt=urn:btih:123717242D4F6E26D425AC6DBB36E9F6A4BD3267
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:123717242D4F6E26D425AC6DBB36E9F6A4BD3267
 ```bash
 magnet:?xt=urn:btih:337F7A21E3574BE9AD357E9C97BD3F0F0D8216CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ Hot Rod Frankie - 9 Albums (2006-2025) [MP3|320 Kbps] <Psychobilly, RAC, Oli, Ho
 magnet:?xt=urn:btih:CD0D9FB255FD76A247420EC6508644046DAEFEB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:CD0D9FB255FD76A247420EC6508644046DAEFEB2
 ```bash
 magnet:?xt=urn:btih:BC2C31BCE9A902463F9F7557A7954062A5AA9C12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +477,8 @@ Synology отменила запрет на жёсткие диски WD и Seag
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +502,8 @@ Synology отменила запрет на жёсткие диски WD и Seag
 ```bash
 magnet:?xt=urn:btih:2D8EA800B0814D194191D03C768423F8A11FF33F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:2D8EA800B0814D194191D03C768423F8A11FF33F
 magnet:?xt=urn:btih:82020151624D06AD1AC04E787B78FED1DFB4ACCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ magnet:?xt=urn:btih:82020151624D06AD1AC04E787B78FED1DFB4ACCA
 ```bash
 magnet:?xt=urn:btih:5894F9E1EA6027FF447528D08E01179A12BEEDD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ magnet:?xt=urn:btih:5894F9E1EA6027FF447528D08E01179A12BEEDD2
 magnet:?xt=urn:btih:9C5674069058ED2A10B81526D850A799E5014301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ magnet:?xt=urn:btih:9C5674069058ED2A10B81526D850A799E5014301
 ```bash
 magnet:?xt=urn:btih:4B715A8A46D4EB4CE2F3B55AF0032EA5CC062054
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +636,8 @@ Cyan Kicks - Come Hell, Come High Water (2025) [FLAC 24/48|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:C46BF5949D0047651852225D658D7BC90B5DBDD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:C46BF5949D0047651852225D658D7BC90B5DBDD0
 magnet:?xt=urn:btih:883D181FFA08CE1B21EFC7FD9C8444AE4C9FF7DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ Joakim Karlsson | The trio (2020) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:C9A18FD9AB054EF6AFE28E9D46B267483B31D44F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

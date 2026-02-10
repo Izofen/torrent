@@ -22,6 +22,8 @@ Xavier Soranells and The Andy James Band - From Barcelona to Boston (2022) [FLAC
 magnet:?xt=urn:btih:9F76451B57BCD3D0D114888F9385DC5420F847EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Katie Melua - Live In Concert (2019) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, 
 ```bash
 magnet:?xt=urn:btih:8578F32168CA16952CC221D92E940DDB0D0C4214
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Regis Philbin - When You're Smiling (2004) Hollywood Records [FLAC|Lossless|trac
 magnet:?xt=urn:btih:E64CFACF346F979998C8EFD1E5465698CAFF1A93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Swingrowers - Remote (2014) [FLAC|Lossless|WEB-DL|tracks + .cue] <Electro Swing>
 magnet:?xt=urn:btih:731739DA28CF1330D127F5125B217EC400D157ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ Ahmad Jamal - Ballades (2019) Jazz Village [FLAC|Lossless|tracks + .cue] <Post-B
 ```bash
 magnet:?xt=urn:btih:4E29B0203D4A407276E40D93B1B9F48C10B13254
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -159,6 +169,8 @@ Jay Jesse Johnson - 6 Studio Albums (2007-2021) 6xCD [FLAC|Lossless|image + .cue
 magnet:?xt=urn:btih:E95A502F74C0B6A4AFF2E2EDD2A66A905F52E415
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -185,6 +197,8 @@ Harold Lopez-Nussa - Timba A La Americana (2023) Blue Note Records [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:751C4B96CF8903846D663AB13A0EB99C07FCC7B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +227,8 @@ Jim Snidero - Waves Of Calm (2019) Savant [FLAC|Lossless|tracks + .cue] <Post-Bo
 magnet:?xt=urn:btih:78921B7EB76F43677B16E2EE1EA51C30AE7494A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +255,8 @@ Claudio Roditi - Slow Fire (1989) Milestone Records [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:ECC3F89C3BBF53BCE7B585B56929629FF3AA7E90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +285,8 @@ The Jaki Byard Quartet With Joe Farrell - The Last From Lennie's (1965) 2003, Pr
 magnet:?xt=urn:btih:40B0F97D0D6C3B1AE848C274A339DE235AD7956B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +313,8 @@ Paolo Fresu - Birth Of The Cool (2012) Musica Jazz [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:726EB3E7C35ECC63A0B4526516E49E988388F461
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +343,8 @@ Benny Carter - Further Definitions (1961, 1966) 2005, Impulse! [FLAC|Lossless|tr
 magnet:?xt=urn:btih:99A1DCC369E2E9C6D6DB1677E10BD09D94D72945
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +371,8 @@ Tony Parenti's All Stars - Happy Jazz (1955) 2007, Membran Music [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:0BB7AE215001796AF67F1B19B25573BC84DB38F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +401,8 @@ Herlin Riley - Perpetual Optimism (2017) 2019, Mack Avenue [FLAC|Lossless|tracks
 magnet:?xt=urn:btih:51886600E96EDB9AC7658F497F051F514851CCDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +429,8 @@ Erroll Garner - 1950 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, 
 ```bash
 magnet:?xt=urn:btih:F45D07432298A014B853A534BD3BE05DE12905D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +465,8 @@ Vaya Con Dios - Thank You All ! (2014) [FLAC|Lossless|WEB-DL]<Pop, Jazz-Pop, Blu
 magnet:?xt=urn:btih:A14230F05964471548355EE0C7C15914715A52F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +494,8 @@ VA - Sexy Beach Jazz: The Very Best of Cafe Chill and Summer Relaxing Smooth Jaz
 magnet:?xt=urn:btih:4589970D6FC53A9A9AC29BDE3B32963522706369
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +522,8 @@ Dexter Gordon - Ca'Purange (1972) 1999, Original Jazz Classics[FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:DDE3056DC6928593236F44DD9D174A73E0ADF181
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +557,8 @@ VA - Electro Swing 2015 (2014) [FLAC|Lossless|WEB-DL]<Nu Jazz, Electro Swing, El
 magnet:?xt=urn:btih:0D38D2BD2C15788C646BBC0CAE493DA66548B8D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +585,8 @@ Aston Grey Project - The Sensual Side (2016) [MP3|320 Kbps] <Jazz, Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:5E82AB0357D075BFFDF55A7D4DD79701B8694676
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +615,8 @@ Casiopea - Dramatic (1993) Village[FLAC|Lossless|tracks + .cue] <Jazz Fusion>
 magnet:?xt=urn:btih:2E8A93C15412916CED0DC2C829BB8C366699F143
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +643,8 @@ Hank Crawford & Jimmy McGriff - Crunch Time (1998), Fantasy[FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:763D0F6061F1A1B6B315D92B6403036133164338
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +673,8 @@ Dalindeo - Kallio (2013) [FLAC|Lossless|tracks + .cue] <Nu Jazz, Rockabilly>
 magnet:?xt=urn:btih:37BA425ADE780475B4E28320E0CC01D955F6DA23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +701,8 @@ Caravan Palace - <Iº_ºI> (2015) [MP3|320 Kbps] <Electro Swing, Gypsy Jazz>
 ```bash
 magnet:?xt=urn:btih:E18DECFEFA5C569C922A52B2C0F28AAF430384B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -683,6 +731,8 @@ The Chico Hamilton Quintet - With Strings Attached (1959) 2007, Collectables[FLA
 magnet:?xt=urn:btih:062CCAA9DBA07ACA77313717D50CA70854275EB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -709,6 +759,8 @@ The J.J. Johnson Quintet - J Is For Jazz (1956) Remaster, 2015, Sony Music[FLAC|
 ```bash
 magnet:?xt=urn:btih:C870F23EF87AA9622F9CAFA07D8D065ECF6C8154
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:A13F319B18BA6737E8CF37113C1073059AC7463E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Red Hat Enterprise Linux (RHEL) - популярная коммерческая 
 ```bash
 magnet:?xt=urn:btih:17FE448278658634CAE114AB299FBA0C8E5E4B19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:17FE448278658634CAE114AB299FBA0C8E5E4B19
 magnet:?xt=urn:btih:91DE6B444887469083F914C8988C9D88CDBDF05D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ Live синхронизирует все и работает в режиме р�
 magnet:?xt=urn:btih:0E21F727E892ABA3ADC54E6CF9B2C2AA8A8B9958
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:0E21F727E892ABA3ADC54E6CF9B2C2AA8A8B9958
 ```bash
 magnet:?xt=urn:btih:AD99062926026516A0FBDCCA6F9FF4E251A976C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:AD99062926026516A0FBDCCA6F9FF4E251A976C3
 magnet:?xt=urn:btih:473E52ADC9E0FFA06B488BA09E47002BF94B49B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:473E52ADC9E0FFA06B488BA09E47002BF94B49B5
 ```bash
 magnet:?xt=urn:btih:A10E57BF1102CDFC4ECB65459C7E38A64DD95E05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ VA - Autum Hits 2025 (Deep Strips) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, 
 magnet:?xt=urn:btih:6E43A7AD956D139A9E4B5DF8E53967F0E500DC67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ Photo Sherlock v1.131 Mod by Mixroot  [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:BB8D937888AB9B1740A1DD06DB006F302AA35336
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:BB8D937888AB9B1740A1DD06DB006F302AA35336
 magnet:?xt=urn:btih:5BE77E893A43CAC4071D20907FD2383DFF5B5DB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ Spyglass v3.9.11 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:42D340EEB9EBD2E43D114F80BF183FB6E7568875
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:42D340EEB9EBD2E43D114F80BF183FB6E7568875
 magnet:?xt=urn:btih:BEBC527B3D284C46B096EA2D30B9D20FA46C001C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ Udemy, Арнольд Оберлейтер | AI-агенты: автоматиз
 magnet:?xt=urn:btih:A1988FDD0ADE488BC18E013E025E910EE5A66FDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ Udemy, Арнольд Оберлейтер | AI-Автоматизация: Со
 ```bash
 magnet:?xt=urn:btih:EC97F7FCB825E471BBDBD4FC7A4DAE876B7B324E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:EC97F7FCB825E471BBDBD4FC7A4DAE876B7B324E
 magnet:?xt=urn:btih:8371D1D6DF0BF13DD66581ED2A7DA48F6CE2B707
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:8371D1D6DF0BF13DD66581ED2A7DA48F6CE2B707
 magnet:?xt=urn:btih:F34D0C0DDEBEDD6DBFF3718C9B294987A157E7AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ Udemy, Арнольд Оберлейтер | Голосовые ИИ-Агент�
 ```bash
 magnet:?xt=urn:btih:F7708C21B3CA4E9B8DEBD14CE73F9BEA969946F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ Udemy, Арнольд Оберлейтер | RAG Agents: создание при
 magnet:?xt=urn:btih:F6C8796B7B92C7183389E3A2F96EAF4419625026
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:F6C8796B7B92C7183389E3A2F96EAF4419625026
 ```bash
 magnet:?xt=urn:btih:F9BE513CA2402D084B72FFD78CBDFBE8E45608E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ Udemy, Арнольд Оберлейтер | Всё об AI: ChatGPT, Midjourney
 magnet:?xt=urn:btih:E81BCD75D10072EEEAE741BBA78D651A3C78C6C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ magnet:?xt=urn:btih:E81BCD75D10072EEEAE741BBA78D651A3C78C6C5
 ```bash
 magnet:?xt=urn:btih:E34B7CBCB1B0B79322973D28AE3C979432F33F78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +582,8 @@ Jethro Tull - Aqualung Live (Live 2004 - Remaster 2025) (2025) [FLAC 24/44.1|Los
 magnet:?xt=urn:btih:CE2D62090ABE04BC2242B9F19C0E28CE4D50260D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ magnet:?xt=urn:btih:CE2D62090ABE04BC2242B9F19C0E28CE4D50260D
 ```bash
 magnet:?xt=urn:btih:C6005AD48EB92B06911A6B837623378AFF3CE389
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +634,8 @@ magnet:?xt=urn:btih:C6005AD48EB92B06911A6B837623378AFF3CE389
 magnet:?xt=urn:btih:7B48ABBF7DDAB40A69D940342BB858254CF13584
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ magnet:?xt=urn:btih:7B48ABBF7DDAB40A69D940342BB858254CF13584
 ```bash
 magnet:?xt=urn:btih:2D8F0B0A4FF4D6E0A378993392BF850ED71F7235
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +686,8 @@ magnet:?xt=urn:btih:2D8F0B0A4FF4D6E0A378993392BF850ED71F7235
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

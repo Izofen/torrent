@@ -22,6 +22,8 @@ Low. - Shoganai (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal, Metalcore>
 magnet:?xt=urn:btih:C0CD34266754216E7F362200E155EFD66EA797C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:C0CD34266754216E7F362200E155EFD66EA797C4
 ```bash
 magnet:?xt=urn:btih:8FA66DEA416D090ECB973569A803B11F6C0C04B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:8FA66DEA416D090ECB973569A803B11F6C0C04B9
 magnet:?xt=urn:btih:B3B42ED01CC53BFD6E9E7CDCA6812AFF17F1EE51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:B3B42ED01CC53BFD6E9E7CDCA6812AFF17F1EE51
 magnet:?xt=urn:btih:17B12F18ECC390B5145E692FB122B2CDA2629049
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Clone Fighter освобождает место на диске, находя и
 ```bash
 magnet:?xt=urn:btih:1DAA2285D8DFD24B7DD9E5CDF7E5F16B0D5F698C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ Last In Line - Jericho (2023) [FLAC|Lossless|WEB-DL|tracks] <heavy metal, hard r
 magnet:?xt=urn:btih:FBB4500093D510870C2BF3023E3A6EA9863B0558
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:FBB4500093D510870C2BF3023E3A6EA9863B0558
 magnet:?xt=urn:btih:49E2F138911A4B3A26719E6093D270894A651578
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ ZD Soft Screen Recorder - программа для записи видео с �
 ```bash
 magnet:?xt=urn:btih:8CFFEFFA924CEA42A1D81D25F7AE1E72D2FD73AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ Drowning Pool - Strike A Nerve (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal,
 magnet:?xt=urn:btih:72C5F5D2BC22C775067CE483BE2039FBFB567239
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:72C5F5D2BC22C775067CE483BE2039FBFB567239
 ```bash
 magnet:?xt=urn:btih:E426F9476B3CA168E35703CB16EE6B169E332080
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:E426F9476B3CA168E35703CB16EE6B169E332080
 magnet:?xt=urn:btih:AE859D35DDBBF0B571D4C81732CC8833299E1906
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ Dato поддерживает все языковые стандарты и яз
 ```bash
 magnet:?xt=urn:btih:9BDFA786A263EF33E367799C372E0F9C3F42307C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ Empyre - Relentless (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Alte
 magnet:?xt=urn:btih:DA7C7DFDEF017422A21AF537BA80E307B76102ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:DA7C7DFDEF017422A21AF537BA80E307B76102ED
 ```bash
 magnet:?xt=urn:btih:9DCE3B9171031F2CB33F95FC598D762AF3154609
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ Counterparts - A Eulogy For Those Still Here (2022) [MP3|320 Kbps] <Metalcore, H
 magnet:?xt=urn:btih:591EED794D1705F5EC51305BBBFCB53D67A29214
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:591EED794D1705F5EC51305BBBFCB53D67A29214
 ```bash
 magnet:?xt=urn:btih:D9BB310CAE0F4B6BF85EB72D024F6F8D35CBD982
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ Monolyth - We've Caught The Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic De
 magnet:?xt=urn:btih:9D967B7616899BEF05CFB2D34C77639FCA6C9BDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ Downie поддерживает более 1,000 популярных сайто
 ```bash
 magnet:?xt=urn:btih:232217874D1933797DD1A908159FB806C55878F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +514,8 @@ Yate был разработан для людей, которые серьез�
 magnet:?xt=urn:btih:FCABAC24A4E395F3B99C27F1DD70EABAB727C236
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ CudaText — абсолютно бесплатный мультиплатфор�
 magnet:?xt=urn:btih:0E84BA0C383F8A2D33468620B6B156859871DC80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +567,8 @@ magnet:?xt=urn:btih:0E84BA0C383F8A2D33468620B6B156859871DC80
 magnet:?xt=urn:btih:F867AE422A7E80A818A7B22D39E2044A33B39EAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +592,8 @@ ScreenSaverNow 1.70 [En]
 ```bash
 magnet:?xt=urn:btih:65E072F6D126CB0A1C49BAB31E2ECECA81FC6555
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +621,8 @@ magnet:?xt=urn:btih:65E072F6D126CB0A1C49BAB31E2ECECA81FC6555
 magnet:?xt=urn:btih:5DF527177E96B9C422A777618D9ED451A0556EF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +646,8 @@ Audacity - свободный, простой в использовании зв
 ```bash
 magnet:?xt=urn:btih:660C200426E042AC51C688C67ABB0400FD61BE91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +673,8 @@ magnet:?xt=urn:btih:660C200426E042AC51C688C67ABB0400FD61BE91
 magnet:?xt=urn:btih:1695EA6EF3155BE0827AC6EC7103530A0BAD6331
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +698,8 @@ magnet:?xt=urn:btih:1695EA6EF3155BE0827AC6EC7103530A0BAD6331
 ```bash
 magnet:?xt=urn:btih:18AC2B12E6FFF65AC2EB6D87973DFBDBFE975434
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

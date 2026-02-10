@@ -22,6 +22,8 @@ Odin - Las Puertas Del Destino (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 magnet:?xt=urn:btih:62BF6ED243F0A94CA613E5E507FC507DCF7FD147
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:62BF6ED243F0A94CA613E5E507FC507DCF7FD147
 ```bash
 magnet:?xt=urn:btih:B98F75B8F8F0CFE8E158908CAE28381B4160B94D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Gleb Kolyadin (Глеб Колядин) - Mobula (2025) [FLAC 24/48|Lossless|WEB
 magnet:?xt=urn:btih:5DA4BCFA7E0C4D1626E8E2A68A06A676E22899F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Silent Stream of Godless Elegy - фолк-метал группа из Чехи�
 magnet:?xt=urn:btih:949EE514903372029284757FEB44927B32FD143B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +136,8 @@ magnet:?xt=urn:btih:949EE514903372029284757FEB44927B32FD143B
 ```bash
 magnet:?xt=urn:btih:BD1103AFAB4496B2F013F13E87B99D59C2079B00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -156,6 +166,8 @@ Janus - Gravedigger Hybrid (2006) Version, 2025, M.i.G [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:0D6A7077FC89A763DF628D31B64F3C24FAAFDC37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -182,6 +194,8 @@ VA - One Shot '80 Volume 3 (1999) [OGG Vorbis|480 Kbps] <Synth-pop, Disco, Dance
 ```bash
 magnet:?xt=urn:btih:9451AA592947AECCD84C75EA93DFCA1B9C0B4E5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:9451AA592947AECCD84C75EA93DFCA1B9C0B4E5A
 magnet:?xt=urn:btih:7EA2329B326952FA6A1C857A1D99BC5418ACA9E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +252,8 @@ Ringo Starr - Look Up (2025) [FLAC|Lossless|tracks + .cue] <Rock, Country>
 ```bash
 magnet:?xt=urn:btih:70B055AF06C83B2E0755D8F96A44BB959E0AFFF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +282,8 @@ magnet:?xt=urn:btih:70B055AF06C83B2E0755D8F96A44BB959E0AFFF5
 magnet:?xt=urn:btih:A2C0EE75A82963072BC53B169482E7A075B2A836
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +307,8 @@ magnet:?xt=urn:btih:A2C0EE75A82963072BC53B169482E7A075B2A836
 ```bash
 magnet:?xt=urn:btih:549F6C09A3490019FB421A6EBFEADD26C6D6F885
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +337,8 @@ Gillan - The Japanese Album (1978) Deluxe Edition. 2025, Edsel [FLAC 24/44.1|Los
 magnet:?xt=urn:btih:DBE202D65ABD1B6EB3E315300FD297A3F3C69D8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +362,8 @@ Imagine - это бесплатный просмотрщик изображен�
 ```bash
 magnet:?xt=urn:btih:0750D1E4EA27819C341F4D6121CCE7FCB94C9905
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +391,8 @@ iSenin - Исповедь (2025) [MP3|320 Kbps] <Chanson>
 ```bash
 magnet:?xt=urn:btih:8760C1E0D01E8A85EFE1C2B73401BBF5E1555EC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +424,8 @@ Marko Hietala - Roses From The Deep (2025) [FLAC|Lossless|image + .cue] <Symphon
 magnet:?xt=urn:btih:FEA4176CA2D87235FF06733339A330AF285946C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +449,8 @@ Morina Borick — элегантный современный шрифт с за
 ```bash
 magnet:?xt=urn:btih:A4532332371267E0B62AC8DBBAC3554BFE9F4F51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +479,8 @@ magnet:?xt=urn:btih:A4532332371267E0B62AC8DBBAC3554BFE9F4F51
 magnet:?xt=urn:btih:CCECDCDECB289D6F28469FDD94058F73E4151258
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +505,8 @@ magnet:?xt=urn:btih:CCECDCDECB289D6F28469FDD94058F73E4151258
 magnet:?xt=urn:btih:0E28C7FBA30C49692B2960FC60E2DDA692F5D6BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +530,8 @@ magnet:?xt=urn:btih:0E28C7FBA30C49692B2960FC60E2DDA692F5D6BD
 ```bash
 magnet:?xt=urn:btih:61E7609A53C1532B81D05B18C7AC27FBCC169209
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +560,8 @@ magnet:?xt=urn:btih:61E7609A53C1532B81D05B18C7AC27FBCC169209
 magnet:?xt=urn:btih:80CD153C2C60D20312480E5D2F85853492985B7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +589,8 @@ Tori Amos - The Music of Tori and the Muses (2025) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:8591B8749B0062FE9E288F60A72431FC2FD36702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +614,8 @@ MotoGP. Этап 01 из 22. Гран-при Таиланда. Гонка (02.03
 ```bash
 magnet:?xt=urn:btih:36703B6368BF9E3C1DE23A71F7B04485A58CA1EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +647,8 @@ magnet:?xt=urn:btih:36703B6368BF9E3C1DE23A71F7B04485A58CA1EA
 magnet:?xt=urn:btih:0E475388B41C97649EFD8434426EF676F49FEE74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +675,8 @@ Dark Chapel (Часовня Тьмы) - Spirit in The Glass (2025) [FLAC 24/44.1
 ```bash
 magnet:?xt=urn:btih:7C03F238C399189223C604E801B15387F6CCA7FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -657,6 +705,8 @@ John Lee Hooker - The Standard School Broadcast Recordings (2025) [FLAC 24/96|Lo
 magnet:?xt=urn:btih:72ABB400D03609127D5E05E1156FA3E5ED742627
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -680,6 +730,8 @@ PhotoDirector - функциональный, но весьма простой �
 ```bash
 magnet:?xt=urn:btih:8EC75D557D916354C4D46D65BBB9A1170431721C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

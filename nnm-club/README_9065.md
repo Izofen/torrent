@@ -19,6 +19,8 @@ KissXsis TV | KissXsis 2010 | Поцелуй сестер [2010, TV, 12 эп] HD
 magnet:?xt=urn:btih:40D9B37CD05DD9B1C4C7BFFC924B70BDF5BC5169
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:40D9B37CD05DD9B1C4C7BFFC924B70BDF5BC5169
 ```bash
 magnet:?xt=urn:btih:0A138A648431D2A66163BFFB77701CD5391AC184
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:0A138A648431D2A66163BFFB77701CD5391AC184
 magnet:?xt=urn:btih:B39B1FCE1D7119134599B531EB5EA9F00327FFA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Coursera | Машинное обучение и анализ данных (2018)
 magnet:?xt=urn:btih:CE99EE24988C1F27A08AC5DA601B749C5C653C63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:CE99EE24988C1F27A08AC5DA601B749C5C653C63
 ```bash
 magnet:?xt=urn:btih:7F22D2F79547F25A1E80569417AA9C55D1C6A1FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:7F22D2F79547F25A1E80569417AA9C55D1C6A1FC
 magnet:?xt=urn:btih:23D9A27313F9CB1D78AC9681D4426FD8CEA8ECAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ VMware Workstation — популярная программа для созда
 ```bash
 magnet:?xt=urn:btih:CC9A923B55372C491E1D421D8BE2794DD0DFF569
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:CC9A923B55372C491E1D421D8BE2794DD0DFF569
 magnet:?xt=urn:btih:77C1B6DEBD7C278FDFFDA7C3DBDE1172D8F849C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:77C1B6DEBD7C278FDFFDA7C3DBDE1172D8F849C3
 ```bash
 magnet:?xt=urn:btih:EC784770A6C28F22EB218739F5BDFC4E97D3D442
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:EC784770A6C28F22EB218739F5BDFC4E97D3D442
 magnet:?xt=urn:btih:24A98ED75F7EF1B23AEBC89547701B2517F9D8A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ The Cursed Forest (2015) [Ru/En] (0.7.3) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B32722E41583CA51964237FB838272039CCF043E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ VA - Весь Русский Рок (18CD) (2012) [MP3|128-320 кб/с]<Rock>
 magnet:?xt=urn:btih:C2486EA80010CDE3988DDB070C9607D67F30DC34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ MAGIX Vegas PRO — профессиональная программа для �
 magnet:?xt=urn:btih:2E0C1325FE12F8AD2FBF7BC96865334C59DE6DEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Discovery: Забытая инженерия / Abandoned Engineering (2018) HDTV
 ```bash
 magnet:?xt=urn:btih:FAE992C2C0EE64D95885321AE7D83E7740063DDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:FAE992C2C0EE64D95885321AE7D83E7740063DDA
 magnet:?xt=urn:btih:BC99FCF41C3F21B43179A6077BEA9140B247556A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:BC99FCF41C3F21B43179A6077BEA9140B247556A
 ```bash
 magnet:?xt=urn:btih:81CFE595CE3318B15D13A7B70EE92C76D4BECE42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:81CFE595CE3318B15D13A7B70EE92C76D4BECE42
 magnet:?xt=urn:btih:98D0D22C302BB6CD7214012333D55F3E9CF6793F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:98D0D22C302BB6CD7214012333D55F3E9CF6793F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:98D0D22C302BB6CD7214012333D55F3E9CF6793F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:98D0D22C302BB6CD7214012333D55F3E9CF6793F
 magnet:?xt=urn:btih:FDE947B219760416329E7F00555ECD35DB7290DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ VA - DisneyMania [7 CD] (2002-2010) [MP3|150-267 kbps]<Детские песни
 ```bash
 magnet:?xt=urn:btih:E47034C4ADDC0B3B6E46AD4E156781B8B84AD3C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:E47034C4ADDC0B3B6E46AD4E156781B8B84AD3C2
 magnet:?xt=urn:btih:0B3FD0587B0D0965F6B5DCB4AC415A66A9BFB4FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:0B3FD0587B0D0965F6B5DCB4AC415A66A9BFB4FF
 ```bash
 magnet:?xt=urn:btih:EBD439409324E55ECE609230A46C24C7E8D6DEE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ VA - Самые скачиваемые треки ВКонтакте Осень 
 magnet:?xt=urn:btih:CF35DC0F5E72DF305DE13CAE14C0F482D3F7B8A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ magnet:?xt=urn:btih:CF35DC0F5E72DF305DE13CAE14C0F482D3F7B8A1
 ```bash
 magnet:?xt=urn:btih:A0E0D81D545DB3659127755249BB22C6CA399360
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +684,8 @@ magnet:?xt=urn:btih:A0E0D81D545DB3659127755249BB22C6CA399360
 ```bash
 magnet:?xt=urn:btih:C0E6BB977085B377AC32A0FDED8E1EB11F72D731
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

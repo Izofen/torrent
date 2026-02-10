@@ -1,28 +1,3 @@
-###  Публикация: 1275458   (790321) от 11.01.2019
-
-Обвиняемые / The Accused (1988) WEB-DLRip [H.264] [Open Matte]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Героиня этого фильма, Сара Тобиас, рассказывает свою ужасную историю прокурору Кэтрин Мерфи. Сара была безжалостно изнасилована тремя мужчинами в баре. Однако преступников приговаривают лишь к небольшому сроку за хулиганство.
-Такое решение суда было основано на заключении следствия, в котором утверждалось, что Сара сама спровоцировала обвиняемых на насилие. По просьбе (   Читать дальше...   )Производство: США, Канада / Paramount Pictures, Jaffe-LansingЖанр: Драма, криминалРежиссер: Джонатан КапланАктеры: Келли МакГиллис, Джоди Фостер, Берни Колсон, Лео Росси, Энн Хирн, Кармен Ардженциано, Стив Энтин, Том О`Брайен, Питер Ван Норден, Терри Дэвид МаллиганПеревод: Профессиональный многоголосый, профессиональный двухголосый, авторскийСубтитры: Английские (Full, SDH), французские (Full), немецкие (Full)Продолжительность: 01:50:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E381F14F693E29FA0509F2914CF477AC346C9DFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202166   (790456) от 28.01.2018
 
 Нанятые для убийства / Hired to Kill (1990) BDRip [H.264]
@@ -43,6 +18,8 @@ magnet:?xt=urn:btih:E381F14F693E29FA0509F2914CF477AC346C9DFF
 ```bash
 magnet:?xt=urn:btih:40F5E2A91C938786DB61420FA6A00D2B60E227EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +45,8 @@ magnet:?xt=urn:btih:40F5E2A91C938786DB61420FA6A00D2B60E227EA
 magnet:?xt=urn:btih:BABC10EDEDB7B475DB6747A073BA2CFCD416A6F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +70,8 @@ magnet:?xt=urn:btih:BABC10EDEDB7B475DB6747A073BA2CFCD416A6F6
 ```bash
 magnet:?xt=urn:btih:6ECB541645C58B54D3C2421D2D0703068BF016E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +97,8 @@ magnet:?xt=urn:btih:6ECB541645C58B54D3C2421D2D0703068BF016E3
 magnet:?xt=urn:btih:F54DAAA063B1EC35874C94223DB89F8ED4BE0527
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +122,8 @@ magnet:?xt=urn:btih:F54DAAA063B1EC35874C94223DB89F8ED4BE0527
 ```bash
 magnet:?xt=urn:btih:18380702419636EF8EC9027FEC4A4C32C8CFCA6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +149,8 @@ magnet:?xt=urn:btih:18380702419636EF8EC9027FEC4A4C32C8CFCA6A
 magnet:?xt=urn:btih:84DF20CF7C9AF67A9D0FF6B00D632B48F148D133
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +174,8 @@ magnet:?xt=urn:btih:84DF20CF7C9AF67A9D0FF6B00D632B48F148D133
 ```bash
 magnet:?xt=urn:btih:825C28D589F45D5D5780C44DF491A47B2A336693
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +201,8 @@ magnet:?xt=urn:btih:825C28D589F45D5D5780C44DF491A47B2A336693
 magnet:?xt=urn:btih:6CA2A1BB51CFF3FFE68AB0387D0262DB016FBAA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +226,8 @@ magnet:?xt=urn:btih:6CA2A1BB51CFF3FFE68AB0387D0262DB016FBAA4
 ```bash
 magnet:?xt=urn:btih:694ECB490918DD7E4C3425471CB5092737D569CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +254,8 @@ magnet:?xt=urn:btih:694ECB490918DD7E4C3425471CB5092737D569CE
 magnet:?xt=urn:btih:C3E4D4C88358F9F8749980013A3812960BC2E9A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +281,8 @@ magnet:?xt=urn:btih:C3E4D4C88358F9F8749980013A3812960BC2E9A5
 magnet:?xt=urn:btih:5A8725C7702C8D3E2BA6E1786371F439D1A13729
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +307,8 @@ magnet:?xt=urn:btih:5A8725C7702C8D3E2BA6E1786371F439D1A13729
 magnet:?xt=urn:btih:130624FAE7684195E6F66C1967DBF2DDDFB0AC0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +332,8 @@ magnet:?xt=urn:btih:130624FAE7684195E6F66C1967DBF2DDDFB0AC0D
 ```bash
 magnet:?xt=urn:btih:C26B51E9B9E474042BB1C11E5778945EC8C041BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +360,8 @@ magnet:?xt=urn:btih:C26B51E9B9E474042BB1C11E5778945EC8C041BC
 magnet:?xt=urn:btih:FCB6080203BC32ECB119B5AD94C19C6E88F964A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +385,8 @@ magnet:?xt=urn:btih:FCB6080203BC32ECB119B5AD94C19C6E88F964A6
 ```bash
 magnet:?xt=urn:btih:AFA5E2DAA20EBA398B58C1A0041EE566F3BC98A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +412,8 @@ magnet:?xt=urn:btih:AFA5E2DAA20EBA398B58C1A0041EE566F3BC98A1
 magnet:?xt=urn:btih:D743BAE8E7744A82A459F52B38D9495A6FD47044
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +437,8 @@ magnet:?xt=urn:btih:D743BAE8E7744A82A459F52B38D9495A6FD47044
 ```bash
 magnet:?xt=urn:btih:69457924F0CFBEBCEEF65FC892893AA36870994B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +464,8 @@ magnet:?xt=urn:btih:69457924F0CFBEBCEEF65FC892893AA36870994B
 magnet:?xt=urn:btih:894E13D6350BD4893199E5E645DCA6B06145E730
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +489,8 @@ magnet:?xt=urn:btih:894E13D6350BD4893199E5E645DCA6B06145E730
 ```bash
 magnet:?xt=urn:btih:B355136529D9BC442CF041EDC4D4768660650535
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +516,8 @@ magnet:?xt=urn:btih:B355136529D9BC442CF041EDC4D4768660650535
 magnet:?xt=urn:btih:2418324DFB205FB5AC39D6A2348C05F9384C78F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +541,8 @@ magnet:?xt=urn:btih:2418324DFB205FB5AC39D6A2348C05F9384C78F2
 ```bash
 magnet:?xt=urn:btih:253E1D604098F10AF14A15FE6864CADFB885D9C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +568,8 @@ magnet:?xt=urn:btih:253E1D604098F10AF14A15FE6864CADFB885D9C2
 magnet:?xt=urn:btih:F1D4F4778064498DC4A21568966DC3018BD82524
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +593,8 @@ magnet:?xt=urn:btih:F1D4F4778064498DC4A21568966DC3018BD82524
 ```bash
 magnet:?xt=urn:btih:33DDA2A178BB68F7685846C80D9BC8882EDAA47C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +620,8 @@ magnet:?xt=urn:btih:33DDA2A178BB68F7685846C80D9BC8882EDAA47C
 magnet:?xt=urn:btih:AD4BC782FA832593D47268DA98EBE965DD7DEA48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +646,34 @@ magnet:?xt=urn:btih:AD4BC782FA832593D47268DA98EBE965DD7DEA48
 ```bash
 magnet:?xt=urn:btih:BE538C41CE44B1416B4299D64A652D2B4CD965F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509736   (794036) от 13.11.2021
+
+Соблазнительница / The Temptress (1911) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794036.jpg" />
+</div>
+
+
+###  Подробнее
+
+На вечеринке художников и музыкантов в доме скрипача Василия (sic!) и его возлюбленной Эйлин,  Клео де Беллвиль знакомится со скрипачем, впечатляется им и решает заполучить талантливого музыканта. Она соблазняет глупого молодого человека. Позже Клео сообщает Василию, что ее дядя собирается лишить ее наследства, и раскрывает ему план, с помощью которого она может покончить (   Читать дальше...   )Производство: США, The Essanay Film Manufacturing CompanyЖанр: Драма, короткометражный, немое киноРежиссер: Нет сведенийАктеры: Лотти БрискоПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:14:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDA97D54D429A94B6C52EA3A7FD778C66FA9AB18
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

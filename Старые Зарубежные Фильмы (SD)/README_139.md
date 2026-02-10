@@ -1,27 +1,3 @@
-###  Публикация: 925077   (543079) от 05.08.2015
-
-Бирюзовое ожерелье / Colierul de turcoaze (1986) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543079.jpg" />
-</div>
-
-
-###  Подробнее
-
-На границе Румынии и Австрии неизвестными похищены крупный венский банкир Виленсдорф и его дочь. Австрийский консул официально заявляет, что, если похищенные не будут найдены, дело закончится вооруженным конфликтом. Между тем руководителям тайного общества "Братство" становится известно, что Виленсдорф был послан в Бухарест, чтобы сыграть роль "подсадной (   Читать дальше...   )Производство: РумынияЖанр: Приключения, боевикРежиссер: Георге ВитанидисАктеры: Флорин Пьерсик, Марга Барбу, Соби Чех, Ион Бесою, Александр Арсинел, Константин Кодреску, Жан Константин, Джордж МотоиПеревод: ДублированныйПродолжительность: 01:32:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F93E8B69B8207A33DD3A9EF739838B4741C42141
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048718   (544623) от 04.09.2016
 
 Блэйз / Blaze (1989) DVDRip
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:F93E8B69B8207A33DD3A9EF739838B4741C42141
 ```bash
 magnet:?xt=urn:btih:7F0C369B67C75BC2634E33C8F14174E2A17BDAB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:7F0C369B67C75BC2634E33C8F14174E2A17BDAB6
 magnet:?xt=urn:btih:B2EA5A3CE43856B45A3C340C3DAF57644354D67C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:B2EA5A3CE43856B45A3C340C3DAF57644354D67C
 ```bash
 magnet:?xt=urn:btih:1368DAD28E7A060BDC429D8D101334ACA1E97B3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:1368DAD28E7A060BDC429D8D101334ACA1E97B3D
 magnet:?xt=urn:btih:F7CE8D39ACC2C2A5B2A29EEBB2DEC40C2CB073E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:F7CE8D39ACC2C2A5B2A29EEBB2DEC40C2CB073E7
 ```bash
 magnet:?xt=urn:btih:6963535CD245C9AFADE524D4AF3B816EF750C4A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:6963535CD245C9AFADE524D4AF3B816EF750C4A5
 magnet:?xt=urn:btih:5CC05B8AE7FE7DBE5E6CAE5B1D9C5E7D4F5B0D2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +175,8 @@ magnet:?xt=urn:btih:5CC05B8AE7FE7DBE5E6CAE5B1D9C5E7D4F5B0D2B
 magnet:?xt=urn:btih:A2327C09698F1707E358311198A12E6D9C12B240
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +200,8 @@ magnet:?xt=urn:btih:A2327C09698F1707E358311198A12E6D9C12B240
 ```bash
 magnet:?xt=urn:btih:AA87AE8C13C71DEDA7D6E6BADB4487DA6693A9C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +228,8 @@ magnet:?xt=urn:btih:AA87AE8C13C71DEDA7D6E6BADB4487DA6693A9C8
 magnet:?xt=urn:btih:772B61EB2BCE2EABFBD43C65F8FBD525476265ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +255,8 @@ magnet:?xt=urn:btih:772B61EB2BCE2EABFBD43C65F8FBD525476265ED
 magnet:?xt=urn:btih:961BBF23D7FA5710CB8DB30C88421F59F957E272
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +280,8 @@ magnet:?xt=urn:btih:961BBF23D7FA5710CB8DB30C88421F59F957E272
 ```bash
 magnet:?xt=urn:btih:B03D3D8CEDFC124969F9E1CCC942BAAC9CD8562C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +307,8 @@ magnet:?xt=urn:btih:B03D3D8CEDFC124969F9E1CCC942BAAC9CD8562C
 magnet:?xt=urn:btih:A1651A45454BE85C8A0EBD79D13DF9B935C173DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +333,8 @@ magnet:?xt=urn:btih:A1651A45454BE85C8A0EBD79D13DF9B935C173DB
 magnet:?xt=urn:btih:221733F59C92633D43FFD38FC0EC45DFA5FC09B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +358,8 @@ magnet:?xt=urn:btih:221733F59C92633D43FFD38FC0EC45DFA5FC09B4
 ```bash
 magnet:?xt=urn:btih:7ABFC62A7F0A0DA46C24B4322C6953F18835C7FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +386,8 @@ magnet:?xt=urn:btih:7ABFC62A7F0A0DA46C24B4322C6953F18835C7FD
 magnet:?xt=urn:btih:48EF6AD0B9D72804A8F91A057094598B622BF3B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +411,8 @@ magnet:?xt=urn:btih:48EF6AD0B9D72804A8F91A057094598B622BF3B3
 ```bash
 magnet:?xt=urn:btih:4DBF2FF7EDCCC3C57B1EFF91C06B0DF4043A0C94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +438,8 @@ magnet:?xt=urn:btih:4DBF2FF7EDCCC3C57B1EFF91C06B0DF4043A0C94
 magnet:?xt=urn:btih:420FD38BFAD7F0884073AA769F0E59A2985046CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +463,8 @@ magnet:?xt=urn:btih:420FD38BFAD7F0884073AA769F0E59A2985046CD
 ```bash
 magnet:?xt=urn:btih:CB88722F83DC61FC186511D201A1FCC993E822C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +490,8 @@ magnet:?xt=urn:btih:CB88722F83DC61FC186511D201A1FCC993E822C0
 magnet:?xt=urn:btih:F436CA4171D29AD7270FD437458DEBB87FFBAF76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +515,8 @@ magnet:?xt=urn:btih:F436CA4171D29AD7270FD437458DEBB87FFBAF76
 ```bash
 magnet:?xt=urn:btih:2A595A60BB4D40B33F4B05D957CFC7903DBAEA35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +543,8 @@ magnet:?xt=urn:btih:2A595A60BB4D40B33F4B05D957CFC7903DBAEA35
 magnet:?xt=urn:btih:909C203F08155B9AD6EED05E3EF7BB36B9D87F09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +568,8 @@ magnet:?xt=urn:btih:909C203F08155B9AD6EED05E3EF7BB36B9D87F09
 ```bash
 magnet:?xt=urn:btih:AC78362F42CD0E7C0500E1115D556BD8C5411818
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +595,8 @@ magnet:?xt=urn:btih:AC78362F42CD0E7C0500E1115D556BD8C5411818
 magnet:?xt=urn:btih:D539E7274355D5033C34A4460FEEB3571332D7D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +621,8 @@ magnet:?xt=urn:btih:D539E7274355D5033C34A4460FEEB3571332D7D5
 magnet:?xt=urn:btih:C4419136F365D0765A74E71CC9FFC1D524D344BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +646,34 @@ magnet:?xt=urn:btih:C4419136F365D0765A74E71CC9FFC1D524D344BA
 ```bash
 magnet:?xt=urn:btih:C872059E13282A75ED7BE21E5A214F34716E1FEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046664   (551659) от 27.08.2016
+
+Горячая жевательная резинка 4: Трое в армии / Sapiches (1983) DVDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551659.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом фильме наши друзья идут в армию, где и продолжаются их весёлые приключения. Три «героя» на три месяца идут на сборы в армию. Но ни одного из них не взволновала строгая дисциплина армейской жизни, они придумали как можно смутить и надуть офицеров. Результат? Полный хаос и неразбериха. Подглядывания за девушками в раздевалках, танцы-шманцы-обниманцы, разговоры (   Читать дальше...   )Производство: Израиль, Германия (ФРГ)/ Cannon, Golan-Globus Productions Ltd., KF KinofilmЖанр: Мелодрама, КомедияРежиссер: Боаз ДэвидсонАктеры: Ифтах Кацур, Цахи Ной, Йонатан Сэгаль, Двора Кедар, Менаш Варшавски, Соня Мартин, Йосси Шиллоах, Моше Иш-Кассит, Девора Бакон, Беа ФидлерПеревод: Авторский (А.Гаврилов, А.Михалёв)Продолжительность: 01:35:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F5CFFB72156596BDE658C32F27FD1895DCAF75D
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

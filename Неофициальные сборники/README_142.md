@@ -22,6 +22,8 @@ VA - Music News For Forum vol.144 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:00D03757B2B016F74C90E90643523D951D30C9BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ The Smooth Ballroom Band - Sax & Sex (Compilation) (2025) [MP3|320 Kbps] <Insrum
 ```bash
 magnet:?xt=urn:btih:D49AB3F963F4BEAF4F0202F5EA8602F46B71D520
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Sons of Ashes - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Blues, Blues 
 magnet:?xt=urn:btih:547AA1F4555CECDC75A803A31A92C4FBFDEF0070
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Enlly Blue - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Blues, Blues Roc
 ```bash
 magnet:?xt=urn:btih:9FA71E3D169CCC00BAB56E7DFD79E034F5906584
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Etta Mae Hartwell - Favorites Collection (2025) [MP3|320 Kbps] <Blues, Soul>
 magnet:?xt=urn:btih:8EB4B3B3BD4BD040526DDF33B3DBAF51A3E5ABEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Chilled Blues - Dark Blues Ballads Winter Nights with Blues (2025) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:862B01C8AF0D01717FACF8EFD5B48B1371FF198E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - #001 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 magnet:?xt=urn:btih:B33E3774E6D8E92C90A43746C6EA86820DF74190
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ VA - #002 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 magnet:?xt=urn:btih:0C5827717616D60AE4BFD0CA891687C094DB7F62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +253,8 @@ VA - Best Russian Echoes of Screamo.vol. 14 (2025) Compilation [MP3|320 Kbps] <A
 ```bash
 magnet:?xt=urn:btih:CDFC5E56497C547F2C4DEA79309EF35486EDEC38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +289,8 @@ magnet:?xt=urn:btih:CDFC5E56497C547F2C4DEA79309EF35486EDEC38
 magnet:?xt=urn:btih:F057434F057F677D8107B69F24090CEB80D64192
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +323,8 @@ VA - Только Хиты на Хит FM 50\50 часть 2 (2012) [MP3|256 к�
 ```bash
 magnet:?xt=urn:btih:404881FF25DA769E1F0831DD5D963D957644A599
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +359,8 @@ VA - Новинки Танцевального Радио DFM (2012) [MP3|256 к
 magnet:?xt=urn:btih:AEBA7043801498D54D67A6A9BB006863D57FE37F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +387,8 @@ VA - No name compilation (2025) [MP3|320 Kbps] <Electronic, Easy listening, Inst
 ```bash
 magnet:?xt=urn:btih:151742A1B74FD411D77A463F4BE693EB47731C88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +417,8 @@ Morgan Luna - Compilation (2025) [MP3|320 Kbps] <Blues, Soul>
 magnet:?xt=urn:btih:BD90AEFFE458CB143D37EC8AA19BF68586384068
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +442,8 @@ VA - Инструментальная музыка (2012) vol. № 34 [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:5EA4984A614C1CBCDEC4CD66767A84BB39385371
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +478,8 @@ VA - Кавказская Дискотека Опа-Опа! (2012) [MP3|256 кб
 magnet:?xt=urn:btih:00677E64B7B16125FDDD7F5DD3A304C3FE4D54F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +512,8 @@ magnet:?xt=urn:btih:00677E64B7B16125FDDD7F5DD3A304C3FE4D54F9
 ```bash
 magnet:?xt=urn:btih:555654EC7AB70C759C0068163217B79FB602F218
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +548,8 @@ magnet:?xt=urn:btih:555654EC7AB70C759C0068163217B79FB602F218
 magnet:?xt=urn:btih:A146820A032BAF7D39B08A7F49AB83EE60A200F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +582,8 @@ VA - Зарубежные Новинки Vol.49 from AGR (2012) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:AB7E41B96C36CE165F1C7886ED79107590C02C7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +618,8 @@ VA - Лучшая Майская Вечеринка (2012) [MP3|256 кб/с]<Pop
 magnet:?xt=urn:btih:B331D425AB0B3B98A6F811FA5EADC7CFFA0219BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +652,8 @@ VA - German TOP 100 Single Charts (10.05.2012) [MP3|152-312 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:20F46FD83F6406C7F4BE4A06A2996CB060B578AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +688,8 @@ VA - Самый Модный Молодежный Хит (2012) [MP3|256 кб/с
 magnet:?xt=urn:btih:677E2B36336FB44F7DBF2CF84BE6346D5AC29B3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -678,6 +722,8 @@ VA - Продвинутый Клубняк 50+50 (2012) [MP3|320 кб/с]<Pop,Da
 ```bash
 magnet:?xt=urn:btih:E663934BEBBF1F12211133F8213470A91AD11F9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -712,6 +758,8 @@ VA - Playbox На Европе Плюс (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:340DE51E6C746FFB8F7B82E90E7E8074316EB731
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -736,6 +784,8 @@ VA - Инструментальная музыка (2012) vol. № 36 [MP3|320 �
 magnet:?xt=urn:btih:6F512B5264CE791976C015CBA064C16DDA55EA21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -759,6 +809,8 @@ VA - Инструментальная музыка (2012) vol. № 35 [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:3505239F5A0834BFA2C5E41E1547AAEA04FDCEFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

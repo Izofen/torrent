@@ -1,3 +1,29 @@
+###  Публикация: 1451800   (1028061) от 04.03.2021
+
+Земля, изваянная ветрами / Tuulte tahutud maa (2018) HDTVRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великолепный фильм Йоозепа Матьюса о дикой природе Эстонии, завораживающий потрясающей красотой пейзажей, съемками диких животных и стай перелетных птиц.Производство: Эстония, WildKinoЖанр: Документальный, природа, флора, фаунаРежиссер: Йоозеп МатьюсПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:01:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F5188248F41D5BD693FECDB430D878328E65E5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451988   (1028089) от 04.03.2021
 
 Обсерватории / Observatories (2019) WEBRip [H.264/2160p] (3 фильма)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:E01AEFB89DC00F83D8791AE751BB72D09B9D728F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:E01AEFB89DC00F83D8791AE751BB72D09B9D728F
 magnet:?xt=urn:btih:691558B1345C448C88DECED0DE7249EE4DBC510F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:691558B1345C448C88DECED0DE7249EE4DBC510F
 ```bash
 magnet:?xt=urn:btih:3A04F27A21C4DADAF2A47400AA1F24A1AAEF4565
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:3A04F27A21C4DADAF2A47400AA1F24A1AAEF4565
 magnet:?xt=urn:btih:752D665AC6B2131CC15756611947177392AF5A81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:752D665AC6B2131CC15756611947177392AF5A81
 ```bash
 magnet:?xt=urn:btih:9D86D8569D1BF059A906C699275441415F89BF0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:9D86D8569D1BF059A906C699275441415F89BF0E
 magnet:?xt=urn:btih:B603602EDF30A3AEB560F71F570FC0E89A81A321
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:B603602EDF30A3AEB560F71F570FC0E89A81A321
 ```bash
 magnet:?xt=urn:btih:61CE151D262009486574A9C44543778D2AEB7A82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ National Geographic. Нераскрытые тайны Второй мирово
 magnet:?xt=urn:btih:0FC2BD06CAE1EEBDEBA767EEB16648711455B37D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:0FC2BD06CAE1EEBDEBA767EEB16648711455B37D
 ```bash
 magnet:?xt=urn:btih:5655CA4732A6D765BE110DC58C309DE7B55698C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:5655CA4732A6D765BE110DC58C309DE7B55698C4
 magnet:?xt=urn:btih:4D63F0261F6E2B2A2AD61C10B0E9FA25C03E2CA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:4D63F0261F6E2B2A2AD61C10B0E9FA25C03E2CA7
 ```bash
 magnet:?xt=urn:btih:9BFBE5331F4BD92F1446F67A4AC6D69AC43E851E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:9BFBE5331F4BD92F1446F67A4AC6D69AC43E851E
 magnet:?xt=urn:btih:055830AC7098591249EC0BC37C1E63F73E3D1C01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +357,8 @@ magnet:?xt=urn:btih:055830AC7098591249EC0BC37C1E63F73E3D1C01
 ```bash
 magnet:?xt=urn:btih:D5497DB62C23C0A5608E8D7F51281A03E83FE78D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:D5497DB62C23C0A5608E8D7F51281A03E83FE78D
 magnet:?xt=urn:btih:44872C4A576F43014AEF26A6D08F40E5F91E72B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +409,8 @@ magnet:?xt=urn:btih:44872C4A576F43014AEF26A6D08F40E5F91E72B0
 ```bash
 magnet:?xt=urn:btih:973010FF6D4323CB962CF43EB1D91C70EE55AFBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:973010FF6D4323CB962CF43EB1D91C70EE55AFBD
 magnet:?xt=urn:btih:C161105D32AD39F6004F53A2B28F50790BEC8BDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +461,8 @@ magnet:?xt=urn:btih:C161105D32AD39F6004F53A2B28F50790BEC8BDD
 ```bash
 magnet:?xt=urn:btih:AB37C7316047BB3BDD9787583D07BCB33F68C2C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:AB37C7316047BB3BDD9787583D07BCB33F68C2C7
 magnet:?xt=urn:btih:3D578B626795D5704FBD116E9576F483F43BB50A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +513,8 @@ magnet:?xt=urn:btih:3D578B626795D5704FBD116E9576F483F43BB50A
 ```bash
 magnet:?xt=urn:btih:05EF31DD1D9EF3EDE3980F519A40034500E36774
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +540,8 @@ magnet:?xt=urn:btih:05EF31DD1D9EF3EDE3980F519A40034500E36774
 magnet:?xt=urn:btih:BF03F4CEFED0949EDD33DF1285D463F55F50CB00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +565,8 @@ magnet:?xt=urn:btih:BF03F4CEFED0949EDD33DF1285D463F55F50CB00
 ```bash
 magnet:?xt=urn:btih:EAE3229EADD2FB211421299F59684FB86520027C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +592,8 @@ magnet:?xt=urn:btih:EAE3229EADD2FB211421299F59684FB86520027C
 magnet:?xt=urn:btih:0EBFF3A23DA2401EE8EEE118F8D8C141314F1569
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +617,8 @@ magnet:?xt=urn:btih:0EBFF3A23DA2401EE8EEE118F8D8C141314F1569
 ```bash
 magnet:?xt=urn:btih:A1F0CA88F264BCF11D9E5E44CA6F66ACB3906DE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +644,8 @@ magnet:?xt=urn:btih:A1F0CA88F264BCF11D9E5E44CA6F66ACB3906DE3
 magnet:?xt=urn:btih:D942676671560B6FD5BC7E7EF05E6434B4253B72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,29 +670,7 @@ magnet:?xt=urn:btih:D942676671560B6FD5BC7E7EF05E6434B4253B72
 magnet:?xt=urn:btih:9E8FE55E5CD2E7188432616D57863A7FF37E2AC8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450917   (1028714) от 28.02.2021
-
-Мелодии и ритмы зарубежной эстрады / Pop Gear (1965) DVB
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Go Go Mania, также известный как Pop Gear, - это потрясающий британский музыкальный ревю-фильм с концертными кадрами от таких легендарных рок-групп, как The Beatles, Eric Burdon and the Animals, Herman's Hermits, The Spencer Davis Group и многих других. Каждое выступление представляет Джимми Сэвил, давний ведущий Top of the Pops Би-би-си, и включает в себя “She Loves (   Читать дальше...   )Телекомпания: Великобритания / Associated British-PathéЖанр: Документальный, музыкаПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: Русские (Teletext)Продолжительность: 01:07:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:491A5A681BEE30DE93D3B9AB63EB89D7821B852E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

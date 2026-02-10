@@ -1,3 +1,148 @@
+###  Публикация: 1365415   (930571) от 07.03.2020
+
+Dreamcatcher (드림캐쳐) - Dystopia : The Tree of Language (2020) [FLAC|Lossless|tracks + .cue] <KPop, KRock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:20)
+02. Scream (03:24)
+03. Tension (03:11)
+04. Red Sun (03:05)(   Читать дальше...   )Жанр: KPop, KRockПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB2F9A5767AAE1C6E7630AB8178B771E22FD2FFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094006   (930619) от 17.01.2017
+
+Linda Jo Rizzo - Fly Me High (The Album) (2015) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Fly Me High  (07:20) 
+02|  There's A Fire  (05:37) 
+03|  Only One Night  (07:34) 
+04|  Heartflash  (05:58) (   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:14:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD1CF64748983CD8E367B585E5EAF38C78F11A39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986677   (930626) от 14.02.2016
+
+VA - The Best Of The 80's Volume II (1998) [FLAC|Lossless|tracks + .cue] <Pop Rock, Disco, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adamski - Killer (4:10)
+02. Haircut One Hundred - Love Plus One (3:36)
+03. Fairground Attraction - Perfect (3:36)
+04. Hall & Oates - Maneater (4:28)(   Читать дальше...   )Жанр: Folk Rock, Pop Rock, House, Disco, New Wave, Soft Rock, Synth-popПродолжительность: 01:18:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3782C86B0E5E7ABFB4398F90C1F3E34D0A65303E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986127   (930711) от 14.02.2016
+
+Vengaboys - The Platinum Album (2000) [MP3|320 кб/с] <Europop, Euro House, Ballad>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shalala Lala 03:33
+02. 24-7 In My 911 03:10
+03. Kiss (When The Sun Don't Shine) 03:30
+04. Uncle John From Jamaica 03:06(   Читать дальше...   )Жанр: Europop, Euro House, BalladПродолжительность: 00:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21F7F115B4EEE1B87CD53E9F174FA48E6A40BCF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986352   (930872) от 14.02.2016
+
+Whitney - The Greatest Hits (2000) 2CD [FLAC|Lossless|tracks + .cue] <Soul, Disco, RnB/Swing>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whitney Houston & George Michael - If I Told You That (4:32)
+02. Fine (3:34)
+03. My Love Is Your Love (4:18)
+04. It's Not Right but It's Okay (4:49)(   Читать дальше...   )Жанр: Soul, Disco, RnB/Swing, Downtempo, Synth-pop, BalladПродолжительность: 02:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D97A02BA4BFEC2F6500DA81C3E3A170BF0CE3B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 629864   (931274) от 13.03.2013
 
 Justin Timberlake - The 20/20 Experience (Deluxe Edition) (2013) [FLAC (tracks+cue)|Lossless]<Pop, R&B>
@@ -18,6 +163,8 @@ Justin Timberlake - The 20/20 Experience (Deluxe Edition) (2013) [FLAC (tracks+c
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +193,8 @@ Justin Timberlake - The 20/20 Experience (Deluxe Edition) (2013) [FLAC (tracks+c
 magnet:?xt=urn:btih:1D609EB6848F9619BB688D0FDD9719E1F7032108
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +221,8 @@ magnet:?xt=urn:btih:1D609EB6848F9619BB688D0FDD9719E1F7032108
 ```bash
 magnet:?xt=urn:btih:68F7A000073D6A3C1ACC5C4DC71EB7D7D42821D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +251,8 @@ Red Box - The Circle & The Square (1986) Reissue, 2008, Cherry Pop [APE|Lossless
 magnet:?xt=urn:btih:2BBC1C8608F6F00960313B1202057FAADD2B5CAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +279,8 @@ VA - The Disco Sessions (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
 ```bash
 magnet:?xt=urn:btih:CD95F75A2DE4F71C38F1899CC5E4E520E76A6F84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +309,8 @@ magnet:?xt=urn:btih:CD95F75A2DE4F71C38F1899CC5E4E520E76A6F84
 magnet:?xt=urn:btih:EB3CEE83B1963325EC6742045A3C635C2D6B5E42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +338,8 @@ Ronan Keating - Time of My Life (2016) [FLAC|Lossless|tracks] <Pop>
 magnet:?xt=urn:btih:44BD138989DA6331DF0BB0F177728CDA5D586D53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +366,8 @@ VA - EGB: La musica de una generacion (2014) 2CD [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:5A11C62BD53BB7CF10E70D207627D7983F1ECFB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +397,8 @@ Grammy — музыкальная премия Американской акад
 magnet:?xt=urn:btih:A993C4EC3367F5C8ABE459ED64E69B365E214E1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +425,8 @@ Alex Christensen & The Berlin Orchestra - Classical 90s Dance 3 (2019) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:5EF79945B3C3E3EE368B09DAA3C059910ED54503
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +455,8 @@ VA - Retro 80s Pop (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
 magnet:?xt=urn:btih:8610B16B9BFB8A0ED2761BCA94FA0F36F6204DBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +480,8 @@ Baccara - I Belong To Your Heart (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Di
 ```bash
 magnet:?xt=urn:btih:144E553DAF7423D817A7D7011253F66E37436DC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +510,8 @@ Vanessa Daou - Welcome to My Blues: An Anthology (1994-2017) (2017) Compilation 
 magnet:?xt=urn:btih:F7E258FD9CB1011852470F7CAAC3EEA732F43415
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +538,8 @@ In Search Of Orchestra - In Search Of... (1977) [MP3|320 Kbps] <Electronic, Soun
 ```bash
 magnet:?xt=urn:btih:E082EA8A6A40B1EC652EC9FDA3F6501062BAE058
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +568,8 @@ VA - Global Hits 2002 (2002) [FLAC|Lossless|tracks + .cue] <Pop>
 magnet:?xt=urn:btih:F020F7A7C13EA218612C3EFA397CF54C43EFFF3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +596,8 @@ VA - Love Is All Around (2000) [FLAC|Lossless|tracks + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:E5E32E6FD3A9C66A5A6E523DC46864C4683034E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +626,8 @@ VA - Everlasting Love (2000) [FLAC|Lossless|tracks + .cue] <Pop>
 magnet:?xt=urn:btih:0575E8B0657D8F0259A9CE2C8D8F71892C314559
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +654,8 @@ VA - It Started With A Kiss (2000) [FLAC|Lossless|tracks + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:175C72B5CAB5D05BC17084F08DC99CD47607FDEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +684,8 @@ VA - Megaspot 2004 (2003) [FLAC|Lossless|tracks + .cue] <Pop>
 magnet:?xt=urn:btih:C5085ACA2EC792DF6F0DF5442FA603C112ACAD6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +712,8 @@ Joe Dassin - Поёт Джо Дассен (1980) [FLAC|Lossless|image + .cue] <P
 ```bash
 magnet:?xt=urn:btih:B7EF0E22087659DA2D14790EF6A8D40C204426F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,140 +742,7 @@ Meghan Trainor - Title (Deluxe Edition) (2015) [FLAC|Lossless]<Pop>
 magnet:?xt=urn:btih:CEBF97956FFF6B2FA36C5895C9DAEC7D19376814
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984489   (935114) от 11.02.2016
-
-Юрий Антонов - Несёт Меня Течение (1993) [FLAC|Lossless|image + .cue] <Pop Rock,Retro>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	От Печали До Радости 	04:16
-02. 	Несет Меня Течение 	04:25
-03. 	Все, Как Прежде 	03:21
-04. 	У Берез И Сосен 	03:54(   Читать дальше...   )Жанр: Pop Rock,RetroПродолжительность: 00:48:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A73608D312A5D0F6BFC0AED4A8A2A882C83F9406
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984434   (935118) от 11.02.2016
-
-Земляне - Grand Collection (1992) Compilation [FLAC|Lossless|image + .cue] <Rock,Soviet Rock>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	Трава у дома 	04:45
-02. 	Каскадёры 	03:31
-03. 	Я люблю природу 	04:32
-04. 	Маленький кораблик 	04:45(   Читать дальше...   )Жанр: Rock ,Soviet RockПродолжительность: 01:09:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C62ACB18F9539C2152C1CACD1A1553F7FD15E8BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093286   (935321) от 14.01.2017
-
-Corona X - And Me U (2000) [MP3|256 Kbps] <Europop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Volcano
-02. Everything You Need
-03. Good Love
-04. And Me U(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FF70C085FF08C0EC378DD6ACF3E535F45A39658
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985042   (935394) от 11.02.2016
-
-Виктор Салтыков - Star Collection (2001) Compilation [FLAC|Lossless|image + .cue] <Electronic, Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	Кони В Яблоках 	04:42
-02. 	Островок 	03:18
-03. 	Улетели Листья 	04:08
-04. 	Белая Ночь 	04:37(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 01:07:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEC43953FA86A3CC61F1A721A545C93AE40069AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985257   (935528) от 11.02.2016
-
-VA - Kuschelrock 17 (2003) [FLAC|Lossless|tracks + .cue] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shakira - The One (3:46)
-02. Jennifer Lopez - Again (5:50)
-03. Justin Timberlake - Cry me a river (4:52)
-04. Kelly Rowland - Stole (4:13)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C26BA0EED7C9DF129F8C504C85410FDF7143EA6
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

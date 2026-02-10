@@ -22,6 +22,8 @@ VA - Ninthwave Records 2000-2002 (Promo CD) (2003) [FLAC|Lossless|image + .cue] 
 magnet:?xt=urn:btih:31C1713425855B116FB00F0289235608EB384E34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Stars Crusaders - Welcome To Hydra (2017) [FLAC|Lossless|image + .cue] <Synth-po
 magnet:?xt=urn:btih:9F390D61CD3DD6AF6DC7A00107F53424A2B9CCBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ Rupesh Cartel - Contract (2005) [FLAC|Lossless|image + .cue] <Synth-pop, Trance>
 ```bash
 magnet:?xt=urn:btih:844B995AF886B00A65497B2A1BE28C9F2F8C0307
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -104,6 +110,8 @@ VA - Welcome To Ibiza (2012) [MP3|320 кб/с]<House>
 magnet:?xt=urn:btih:652E1FE58740E3BB8B707B5BFAAE85A5BD2DA474
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +138,8 @@ Howard Jones - Celebration (30th Anniversary) (2013) [FLAC|Lossless]<SynthPop, N
 ```bash
 magnet:?xt=urn:btih:EF5695E28BCD1C6D3A0CED341B0E5D1605104ADA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +174,8 @@ VA - HouseVip (12.01.2010) [MP3|320 kbps]<Electro House>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +202,8 @@ VA - Goa 2016 Vol. 1 (2016) [MP3|320 кб/с] <Psychedelic, Progressive Psytranc
 ```bash
 magnet:?xt=urn:btih:9CE1C158763089F99076FDDB776F88DCB41BFD35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +232,8 @@ VA - Deep House Hits 2020 [FLAC|Lossless|WEB-DL|tracks] <House, DeepHouse, Progr
 magnet:?xt=urn:btih:47D848946AB39ECC6BFB7684F1312A29A0A1061F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +260,8 @@ House Side (CD1)
 ```bash
 magnet:?xt=urn:btih:FE32E80A2034A9F9ACD0E20894E8F360FD8C8AE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +290,8 @@ Turboslash - Speed (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, D
 magnet:?xt=urn:btih:97A09F40157286F8D24920C7A7895F82141EDC46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +318,8 @@ Madonna - Bitch I’m Madonna (2015) [FLAC|Lossless|tracks] <Electronic, House, 
 ```bash
 magnet:?xt=urn:btih:A7FE2C82397CD7ED531457D42B5DB16EF68A09CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +354,8 @@ Mflex - Kidnap My Soul (2013) [MP3|320 кб/с]<Nu italo disco, Synthpop, New Wa
 magnet:?xt=urn:btih:B2245A6E2C2EDA42C91760F1293FDD5A454811A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +383,8 @@ Davey Suicide - Discography 9 Releases (2012-2020) [MP3|320 Kbps] <Industrial Me
 magnet:?xt=urn:btih:F0367002795E9B204B6BD66C6BFF718B9D4AE028
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +411,8 @@ Bob Sinclar, Dimitri From Paris - Knights Of The Playboy Mansion (2011) 2CD, Mix
 ```bash
 magnet:?xt=urn:btih:E1D18832EADAB35B830E38A7D198C4A75A5FA2A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +447,8 @@ VA - Defqon.1 (2012) [FLAC|Lossless]<Hardstyle, Hardcore, Hardtrance>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +482,8 @@ VA - Valentine's Day Collection: King Street Sounds 20 Years Essentials (2013) [
 magnet:?xt=urn:btih:A308AE29A879BF9A5A46B1B4C31336626432CF9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +510,8 @@ Tangerine Dream - Recurring Dreams (2020) Studio/Compilation, 2019 [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:1349BB2A7B20B88A718611F9B49DC551ACAA2AD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +540,8 @@ New Arcades - Returning Home (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Re
 magnet:?xt=urn:btih:F39980525A587DD1F74BCA96CA9957B04E01D3F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +568,8 @@ Schwarz & Funk - The Deeparture Sessions (2015) [FLAC|Lossless|WEB-DL|tracks] <E
 ```bash
 magnet:?xt=urn:btih:14B513C1E3567DD8A6DAEFAB17220C9EEBB4D32B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +598,8 @@ VA - Uphill Workout (2020) [MP3|320 Kbps] <Melodic House, Techno>
 magnet:?xt=urn:btih:BC2630DFC510A2EBD7C0D2553B16F23DC6BD402D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +627,8 @@ Jazzyspoon - 2020 Hindsight (2015) [MP3|320 кб/с] <Electronic Pop, Downtempo,
 magnet:?xt=urn:btih:B2D8D64699A2183C7F310568C3C3CF5CEB4389D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +655,8 @@ Ambassadors 5 - Drum & Bass Poetry (2015) [MP3|320 кб/с] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:D0ADBCD30A4BC06DC31032983E820E33C8C4F78E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +686,8 @@ Michael Cassette - Singles & EP's (2007-2011) [FLAC|Lossless]<House, Progressive
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +714,8 @@ VA - Top Songs For Spinning Hardstyle Hits 2020 Session [MP3|320 Kbps] <Hard Dan
 ```bash
 magnet:?xt=urn:btih:AF811FE82FA4C5D2E6E24F86088DE7541FFDA746
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -696,6 +744,8 @@ Time Travelers - Time Travelers (1982) LP [MP3|320 Kbps] <Electronic, Jazz, Rock
 magnet:?xt=urn:btih:29DADED68C8E1E48AFCFAA17B5FE2B3FD8B660F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -722,6 +772,8 @@ VA - When House Goes Deep (2020) [MP3|320 Kbps] <House, Deep House>
 ```bash
 magnet:?xt=urn:btih:84F68173D55373D422AB2796B09D2A803B20E0BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

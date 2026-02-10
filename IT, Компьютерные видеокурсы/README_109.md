@@ -19,6 +19,8 @@ Udemy, Stephen Grider | Полный курс по Elixir и Phoenix / The Compl
 magnet:?xt=urn:btih:40ED1C1B77199AD0189A16C8F0FEF5C32CB00368
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Docker - это открытая платформа для разработчи�
 ```bash
 magnet:?xt=urn:btih:7DD3CEDFD403274AB47B7D6D06B29E385D10E303
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ Udemy, Chang Tan | Введение в разработку эксплойтов
 magnet:?xt=urn:btih:879FDAF36964A20B1D8FE8CFBD5B7910939FF462
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Modern Javascript Bootcamp (2020) фокусируется на том, чтоб
 ```bash
 magnet:?xt=urn:btih:F687EE6CDFB0A62BFC9F10F1F19C66012EE58A45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ Skillbox, И. Павлов и др. | Алгоритмы и структуры �
 magnet:?xt=urn:btih:95CCADEB56242FAAB99128F679F16241D3C02F16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ Python-разработчик создаёт бэкенд сайтов: мозг
 ```bash
 magnet:?xt=urn:btih:4605D93F20EBB6EAEEA7D0D027DF62AEA4596792
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ NestJS использует невероятную популярность и �
 magnet:?xt=urn:btih:24C50D8130F8A934C6DA83B401C8511BABFF422E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ Udemy, Joseph Phillips | PMP Exam Prep Seminar - Pass the PMP on Your First Atte
 ```bash
 magnet:?xt=urn:btih:25A75E751F21279D09CC51377F4E806F4F235E10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ Udemy, Patrick God | .NET Core 3.1 Web API & Entity Framework Core Jumpstart (20
 magnet:?xt=urn:btih:E570A29D472B7C62C5DC4A17E261E790CB2EF387
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ Udemy, Nate Ross | API and Web Service Introduction (2020) PCRec [En / En Sub]
 ```bash
 magnet:?xt=urn:btih:E3B38EAF781DBFD7E0CFC1AF81D68AE9884C8CEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ OTUS, Дмитрий Бугайченко | Промышленный Machine Lea
 magnet:?xt=urn:btih:D744B5642DF10B814DEA9CEAC5B44D566D30CAC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ Udemy, Мефодий Келевра | Maximum Paranoid v.2 (2021) PCRec
 magnet:?xt=urn:btih:1F7C2BF550216B8EC61D78E7817DF75752A85904
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ Thinknetica Pro, Святослав Крюков | Оптимизация зап
 magnet:?xt=urn:btih:8119CFB4ED48B701B1DCBA370416F897DE747EFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:8119CFB4ED48B701B1DCBA370416F897DE747EFE
 ```bash
 magnet:?xt=urn:btih:A3FD46C988791BCED9673CF01736CB4D462AC4E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ Udemy, Neil Cummings | Complete guide to building an app with .Net Core and Reac
 magnet:?xt=urn:btih:EC64CDD8B7A8B2B205CCD7A8BECDF69240E6365C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ Deworker Pro, Дмитрий Елисеев | Что есть React: Пишем 
 ```bash
 magnet:?xt=urn:btih:F1CA4A619347E5D4874940CEE3EFE44F0828B993
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +460,8 @@ fullstack.io, Amelia Wattenberger | Fullstack D3 Мастер-класс / Fulls
 magnet:?xt=urn:btih:0037E31C36A86492EE735127E8897D3287F925CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ OTUS, Алексей Цыкунов | Администратор Linux. Вирт
 ```bash
 magnet:?xt=urn:btih:C5378210994132C0847825193FAB719138BFB21C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +518,8 @@ BrainsCloud, Дмитрий Валак | HTML и CSS с нуля для начи
 magnet:?xt=urn:btih:8B3DF6B7DFA7CFBB79019D01B4091C781B037D53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ ProgLib.academy, Никита Ларионов и др. | Онлайн-курc �
 ```bash
 magnet:?xt=urn:btih:A4C3E2AB4EBF6F7950E72C0F24D8F36A0AF1DB81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +574,8 @@ ProgLib.academy, Вениамин Жиленко, Никита Ларионов 
 magnet:?xt=urn:btih:6C4D64631A63296450A2B60C39DD6DB7077F65C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +599,8 @@ Pluralsight, Craig Stansbury | Cisco Core Security: Securing the Cloud (2021) PC
 ```bash
 magnet:?xt=urn:btih:F292FF62FE22145AFE690F696C764BF19AC0FBD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +627,8 @@ Udemy, Центр digital-профессий ITtensive | Машинное обу
 magnet:?xt=urn:btih:0EE831C0C3191886F17A9C2290D403960C46C44F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +652,8 @@ Skillshare, Andrei Dumitrescu | Узнай Docker с нуля / Learn Docker Fro
 ```bash
 magnet:?xt=urn:btih:0738E946748D2A2B819CDF2155EFD89A7857CD68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +680,8 @@ magnet:?xt=urn:btih:0738E946748D2A2B819CDF2155EFD89A7857CD68
 magnet:?xt=urn:btih:3F172B1222045EEFD56CFA032E09FF738DA69FB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ Udemy, Andrei Neagoie и др. | Complete Machine Learning & Data Science Bootca
 ```bash
 magnet:?xt=urn:btih:370DDEA00C67A6CF4D470BF4F5C2CA05F71CA201
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

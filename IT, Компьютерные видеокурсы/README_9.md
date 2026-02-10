@@ -21,6 +21,8 @@ Udemy, Александр Малейко | Тестирование API (Postman
 magnet:?xt=urn:btih:B46BBA99FB035DFBB810EB324DCBBDCE15B7148D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Product University, Аркадий Морейнис, Алексей Черняк
 ```bash
 magnet:?xt=urn:btih:ABE9DA7057CFBF89D4A050673A17AA91B95D4F10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ Product University | Анализ данных с AI (2023) WEB-DL [AD] [RU]
 magnet:?xt=urn:btih:7AA9583A3E76FB0067F999639C758A4385537845
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ DevEducation | Курс Frontend 2.0  (2022 -2023) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:8DC511F341035A161B54EA7597B5CCD0F66687C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ Product University | UX/UI Design. Дизайнер интерфейсов  (202
 magnet:?xt=urn:btih:128993A4F9877FE7BB4DBFA1847C509E471A8D3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ Product University | Telegram-бот Developer (2022) WEB-DL [AD] [RU]
 ```bash
 magnet:?xt=urn:btih:6AA61915D2F863D530ACADAD35A9A2541227BF68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -179,6 +191,8 @@ Product University, Алексей Черняк, Павел Сидоров | Blo
 magnet:?xt=urn:btih:2ACEC73C611E8A1C385D1331200A9EA0D8B2DDE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ Telegram Web App – это удобный инструмент для разр�
 ```bash
 magnet:?xt=urn:btih:084C4BE10DD4B4482241F3D83557A696C4FC1283
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -233,6 +249,8 @@ Learn Python, М. Корнеев, И. Лебедев, В. Филонов и др
 magnet:?xt=urn:btih:9D05DDFD50957F912149F3CF8B98FED3122B040B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +278,8 @@ Stepik | HTML CSS (pro) (2024) WEB-DL [AD] [RU]
 magnet:?xt=urn:btih:FE6C8263468B1103F0C76E81D0F0230C58CBFF20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +303,8 @@ Infostart, Анна Щепина | Проектирование интерфей
 ```bash
 magnet:?xt=urn:btih:B94CD3886E36400A0BCDA6EE8995E48DDF191EBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +332,8 @@ GetAnalyst | Проектирование микросервисов (2024) WEB-
 magnet:?xt=urn:btih:4D2B668C48B1B583B54C7FE3EA2FBD0F6DCEADF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +358,8 @@ HolyJS - конференция для всех, кто программируе
 ```bash
 magnet:?xt=urn:btih:7BB46CE37A2FFC0F833E345ADB24AD8727603539
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +388,8 @@ magnet:?xt=urn:btih:7BB46CE37A2FFC0F833E345ADB24AD8727603539
 magnet:?xt=urn:btih:00DB8A415EF915809AB9FE950BAF1BC0AEE79DE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +414,8 @@ Dmdev, Dzianis Matveyenka | Docker (2024) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:FFC1121F716CF3D14081D837CCE6D873EB84BE11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +442,8 @@ magnet:?xt=urn:btih:FFC1121F716CF3D14081D837CCE6D873EB84BE11
 magnet:?xt=urn:btih:7F42A2B10B19EAB3F69C71FA7F1E3F2B14D7BC96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +469,8 @@ JPoint - конференция для Java-программистов. Одна
 ```bash
 magnet:?xt=urn:btih:5B379F17F9ACDB204C0E4F90713B313F6A75D3EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +499,8 @@ Stepik, Дмитрий Фокеев | Создание сайтов и веб д
 magnet:?xt=urn:btih:CD1FCEBC2F5264232B648C913C28A4FD3CFEE4FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +524,8 @@ PGConf.Russia – это международный технический фо�
 ```bash
 magnet:?xt=urn:btih:BAE259D225FFA68F547F33308480686BDF2783CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +554,8 @@ SafeCode - конференция, где обсуждают инструмен�
 magnet:?xt=urn:btih:566314D0BD2B0ED1310191B887C9D29C4BF58CBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +581,8 @@ Build a Micro Saas Academy, Jamie Tam | How to Build a Micro SaaS That Makes Mon
 magnet:?xt=urn:btih:8204CA0E35AC39F1906A7D70C4A30945DF95E926
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +606,8 @@ Godnolytika, Влад Князев | Готовимся к собеседова�
 ```bash
 magnet:?xt=urn:btih:5F16B3537CAA0961EE4C85281657F10683267616
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +633,8 @@ Milan Jovanović | Pragmatic Clean Architecture (2024) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:17AA50F2E0473B22BFBDC8CC2B3B65E9BA265FFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +663,8 @@ GoFunc - конференция для тех, кто использует Go в
 magnet:?xt=urn:btih:AC9535B84A5E8BEED3A7C6B94B999A7BF7AE18BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +688,8 @@ Pikuma, Gustavo Pezzi | 3D Computer Graphics Programming (2024) WEB-DLRip [EN]
 ```bash
 magnet:?xt=urn:btih:6E58AAF85EC23CAE422ABC3396B4BFAC5FE2BC5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -666,6 +716,8 @@ JavaScript.Ninja | Учись реальности, Crash Course (Пакет Б�
 ```bash
 magnet:?xt=urn:btih:3AEF7161DC0EA4711F24561E227BFBC354DE728D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

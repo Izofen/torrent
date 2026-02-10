@@ -19,6 +19,8 @@ Worms Ultimate Mayhem является совмещением двух друг�
 magnet:?xt=urn:btih:AA418FF7107F6B3A16E6724CF196349182AAEB19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Remnant: From the Ashes – боевик с видом от третьего л�
 ```bash
 magnet:?xt=urn:btih:4B51C77076E3F4400B7F6E075EEDA64A6DCFE2AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ DiRt Rally 2.0 (2019) [USA] 5.05 [HEN] [License / 1.26 / DLC] [Multi]
 magnet:?xt=urn:btih:CC757C1D33581531788544572C54249DE05F025B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Fullmetal Alchemist and the Broken Angel - это еще один высокоб
 ```bash
 magnet:?xt=urn:btih:FDE1A66D475A503FE15CF5DCEFBA6BA51DF7FA18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Tiny Tina's Wonderlands (2022) [PS4] [USA] 5.05 [HEN] [License / 1.08 / DLC] [Ru
 magnet:?xt=urn:btih:468C32906E978C45EDC87339C2986051196DEA5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Nickelodeon All-Star Brawl (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.15 / DLC] 
 ```bash
 magnet:?xt=urn:btih:5DFE14F27F50024AA3DD9747C3194C7D7C7B666A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Bus Simulator 21 (2021) [PS4] [USA] 5.05 [HEN] [License / 2.21 / DLC] [Ru/Multi]
 magnet:?xt=urn:btih:FF607C46E88A8250CD812F3E8D4B2458660147AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [PS4] 
 ```bash
 magnet:?xt=urn:btih:0323B6D8068776E0E010AB735DCDAFD0217889C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Manhunt [Uncensored] (2004) [Xbox360] [PAL] [FreeBoot] [License] [Ru]
 magnet:?xt=urn:btih:89AE380EC21AC58D7BBE388F66029933AD59CD35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Tom Clancy's Ghost Recon: Wildlands (2018) [PS4] [EUR] 9.00 [HEN] [License / 1.3
 ```bash
 magnet:?xt=urn:btih:A5C136ABA951100B4A692ACC0F735974F190A70B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Prey (2017) [PS4] [EUR] 9.0 [HEN] [License / 1.12 / DLC] [Ru/Multi]
 magnet:?xt=urn:btih:CAA986A12FC32C3AAD94E4A0E99E42EA9C4D3771
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ The Quarry (2022) [PS4] [USA] 5.05 [HEN] [License / 1.04 / DLC] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E4BCB4538936AF3471617EBDA78A8E9633A3D424
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Cuphead - это игра в жанре run'n'gun, в которой игрок�
 magnet:?xt=urn:btih:34B874767B25B4AFF121B3EC1437DC63E025309F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ NBA 2K22 (2021) [PS4] [USA] 5.05 [HEN] [License / 1.13] [Multi]
 ```bash
 magnet:?xt=urn:btih:41A50EEACDB4D00D082075DD28A8F0182AB58B84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ MX vs ATV Legends (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.08] [Ru/Multi]
 magnet:?xt=urn:btih:485AF008997C12274820BAD9203AA22A97A79F20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Martha Is Dead - это мрачный психологический трилл
 ```bash
 magnet:?xt=urn:btih:53AEBAB81E15B465EAC0E1A6AA67E63291301193
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Farm Together (2019) [PS4] [EUR] 5.05 [HEN] [License / 1.35 / DLC] [Ru/Multi]
 magnet:?xt=urn:btih:B15EBA80692D6FAAF8168608296C9F6FB5B92B7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Minecraft (2019) [PS4] [EUR] 9.00 [HEN] [License / 2.35 / DLC] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:18AFF20DED3CBC867E4FF6663D44E220A3713159
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ Farming Simulator 22 (2021) [PS4] [USA] 5.05 [HEN] [License / 1.10 / DLC] [Ru/Mu
 magnet:?xt=urn:btih:5BF228837346F1CC8831E381A1E910352AC433E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ GRID Legends — это захватывающие гонки, проходящ�
 ```bash
 magnet:?xt=urn:btih:AD680C68F82427D0CF03AD17475A60061ECD8F37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ CROSS✝CHANNEL ～For all people～ (2014) [PS3] [JAP] 4.55 [Cobra ODE / E3 ODE
 magnet:?xt=urn:btih:F70D656BCFD16D18180F6DE0276729CCF930BE5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ Assassin's Creed: Origins / Assassin's Creed: Истоки (2017) [PS4] [EUR] 9.
 ```bash
 magnet:?xt=urn:btih:93FC152375C1F8AE635FBE6A969A156A3D574AED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ Project CARS 2 – один из самых реалистичных автом�
 magnet:?xt=urn:btih:2C7A474226DD3FF4B9A4A7A1117C5B0B92466752
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ LEGO The Hobbit (2014) [PS4] [EUR] 5.05 [HEN] [License / 1.02] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7480D7D92DE9025D5C9397C43DA1E47F44EE1BCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ Conan Exiles - игра о выживании в открытом мире по 
 magnet:?xt=urn:btih:2781A982625E65C509A13E1C80CDA24743C23EC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Aragami 2 — это стелс-игра от третьего лица, в ко
 ```bash
 magnet:?xt=urn:btih:FDE7A8CA5ACA4D9C0A572DD79D857A5EBE19D635
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

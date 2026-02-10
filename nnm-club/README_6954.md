@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:E0FA7137865DCAC18730C8E5C0155ABEFCA94976
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Eagles - On The Border (1974) 2022 [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Classic R
 magnet:?xt=urn:btih:3D77F06C408DA47943BFADF7FE62F4D0F5B9912A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:E82CD55E6954E1D4B7A69E5CB7DF758838AE35D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:E82CD55E6954E1D4B7A69E5CB7DF758838AE35D4
 magnet:?xt=urn:btih:A5E91CFD77ED6B448CB29417EDDF3D8E6913B1E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:A5E91CFD77ED6B448CB29417EDDF3D8E6913B1E7
 ```bash
 magnet:?xt=urn:btih:27B55F4B3D77ACAA3A07AF6B0E59B04FC4255EAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Opus3 - A Selection from Test-records 1,2 & 3 (2008) [DSD64 5.1, 2.0|image(iso)|
 magnet:?xt=urn:btih:7D3A1BBCC1C3EDA527A9C6DFB92BA2F6707BB187
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:7D3A1BBCC1C3EDA527A9C6DFB92BA2F6707BB187
 ```bash
 magnet:?xt=urn:btih:C59E0E03B06978BA21E6BAC70F7B653343BE6335
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:C59E0E03B06978BA21E6BAC70F7B653343BE6335
 magnet:?xt=urn:btih:526E2A8A2814267B2FF26228F6CEC799F8B733E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ UsbTreeView маленькая утилита, реализующая больш
 magnet:?xt=urn:btih:61C294679C17AD1C4FA2450A08BEA2CF1162EBB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Bakuman 2 | Бакуман [ТВ-2] [2011, TV, 25] BDRip HEVC 1080p 10-bit raw+r
 ```bash
 magnet:?xt=urn:btih:D26591F567BB11DA97B2220229F1CBC4E0E350DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Stemroller является полностью (   Читать дальше...
 magnet:?xt=urn:btih:76982F38ED42419705AC27230A4875522B91D6B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:76982F38ED42419705AC27230A4875522B91D6B8
 ```bash
 magnet:?xt=urn:btih:15F6C651597DF5E9E8995953AB2CCB2832E6E81A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:15F6C651597DF5E9E8995953AB2CCB2832E6E81A
 magnet:?xt=urn:btih:CAF566B5EC364DE0D5C7431E415D119EBADB558F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:CAF566B5EC364DE0D5C7431E415D119EBADB558F
 ```bash
 magnet:?xt=urn:btih:109E60260C1913409B260C2E9781BF78BC0FC644
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:109E60260C1913409B260C2E9781BF78BC0FC644
 magnet:?xt=urn:btih:DEF9A1889DDB147AEC6C38A3DA28F7446EEBD350
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ NG. Путь гепарда / The Way Of the Cheetah (2022) WEB-DL [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:9D17FB7259752012B28CF527A558A5848391D728
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ SMPlayer - мощный мультимедиа проигрыватель, ко�
 magnet:?xt=urn:btih:38F7A5F838D0406E55D8E1D372D14C1EBF76265E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:38F7A5F838D0406E55D8E1D372D14C1EBF76265E
 magnet:?xt=urn:btih:5C4A5AEBC50C3917265E952FC0E41FB1DB360D66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:5C4A5AEBC50C3917265E952FC0E41FB1DB360D66
 ```bash
 magnet:?xt=urn:btih:C50577D93BAECCEE04F7EB3664F6F26B3354DDC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:C50577D93BAECCEE04F7EB3664F6F26B3354DDC1
 magnet:?xt=urn:btih:F73CA14F7C4DCEA3A1700F4CC17C2A9AA10F9669
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ VA - Summer House Collection (Compiled by ZeByte) (2017) [MP3|320 Kbps] <Tropica
 magnet:?xt=urn:btih:B71B35D8228F0D2463E76CDD493FE4CA996EFCCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ Affinity Photo — обеспечивает более высокую скоро
 ```bash
 magnet:?xt=urn:btih:7BE0FE4B3C1A8495825923AE6D22A9FFC5BFBDB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ Bakuman 3 | Бакуман [ТВ-3] [2012, TV, 25] BDRip HEVC 1080p 10-bit raw+r
 magnet:?xt=urn:btih:3D293AD2AE1D97B23F12FD9AFA385020C85B19F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:3D293AD2AE1D97B23F12FD9AFA385020C85B19F8
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ magnet:?xt=urn:btih:3D293AD2AE1D97B23F12FD9AFA385020C85B19F8
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +685,8 @@ magnet:?xt=urn:btih:3D293AD2AE1D97B23F12FD9AFA385020C85B19F8
 ```bash
 magnet:?xt=urn:btih:37CBC72B4A0095F18108600B6B9F46A0AFB0C56D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

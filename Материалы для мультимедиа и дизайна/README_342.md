@@ -1,3 +1,135 @@
+###  Публикация: 1203690   (787682) от 03.02.2018
+
+Векторный клипарт - Fotolia - Flyer gift card Valentine's Day [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+День Святого Валентина
+25 EPS + Jpeg PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46B1D393266D337F3790DBA472FB6831E783AA0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511928   (787761) от 23.11.2021
+
+3D модели - Cults3D - GENSHIN IMPACT - YAE MIKO [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Корпус - цельный, основание - отдельное. Я напечатал ее в масштабе 1/20, так что она была примерно 9 см в высоту, включая основание.Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC029E6C5BE53D3932D0E0E147759D38917DE3A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511931   (787788) от 23.11.2021
+
+3D print - CGTrader - Scooby Doo 3D print [OBJ, STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787788.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель Скуби-Ду - из американского мультсериала, включающий множество мультсериалов, снятых с 1969 года до наших дней.Формат: OBJ, STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD305FE3FD25906E95BE7ACE861F67E1916B1FDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511927   (787791) от 23.11.2021
+
+3D модели - Hum3D - Volvo Electric Tractor Truck 2019 [3DS, C4D, FBX, LWO, MAX, MB, OBJ, STL, WRL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787791.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки VolvoФормат: 3DS, C4D, FBX, LWO, MAX, MB, OBJ, STL, WRL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30DDFCD60BF5680E49D4E41B9A2AB5816EF89A8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511949   (787792) от 23.11.2021
+
+3D модели - Hum3D - UAZ Patriot (3163) 2014 [3DS, C4D, FBX, LWO, MB, Mental Ray|Scanline|V-Ray|*.max, OBJ, STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787792.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки UAZФормат: 3DS, C4D, FBX, LWO, MB, Mental Ray|Scanline|V-Ray|*.max, OBJ, STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23ED263780D8275AA6B856471077FF6257D91488
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203471   (787924) от 02.02.2018
 
 Шаблоны - ImageToday - ASADAL Design / 5isucai from TRECA@MOXOMOR aka [PSD, TIF]
@@ -19,6 +151,8 @@
 ```bash
 magnet:?xt=urn:btih:D1C4E24348555986FA982601C23E290D5A7185A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +177,8 @@ magnet:?xt=urn:btih:D1C4E24348555986FA982601C23E290D5A7185A7
 ```bash
 magnet:?xt=urn:btih:5CE9AB42C96E7FDA8E04DBB3F335BDEA7F0228D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +206,8 @@ magnet:?xt=urn:btih:5CE9AB42C96E7FDA8E04DBB3F335BDEA7F0228D1
 magnet:?xt=urn:btih:F7A3F39388C9C97491B48F9994B1BBAA6ED04084
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +233,8 @@ magnet:?xt=urn:btih:F7A3F39388C9C97491B48F9994B1BBAA6ED04084
 ```bash
 magnet:?xt=urn:btih:B021E8373AA7E998E935DB69CF9A74AE1FA92771
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +262,8 @@ magnet:?xt=urn:btih:B021E8373AA7E998E935DB69CF9A74AE1FA92771
 magnet:?xt=urn:btih:A777D8174EC5086015FF4AE8BC6FA4767B38EB36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +289,8 @@ magnet:?xt=urn:btih:A777D8174EC5086015FF4AE8BC6FA4767B38EB36
 ```bash
 magnet:?xt=urn:btih:BCC01ACA9269FE27995F5B81D07138240349DD1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +318,8 @@ magnet:?xt=urn:btih:BCC01ACA9269FE27995F5B81D07138240349DD1C
 magnet:?xt=urn:btih:1B9CFFAF7D460394A7AE8477455249AB837754AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +345,8 @@ magnet:?xt=urn:btih:1B9CFFAF7D460394A7AE8477455249AB837754AE
 ```bash
 magnet:?xt=urn:btih:0D1C2063977A2A39D0D1332D4AEBFCCB550F2E5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +374,8 @@ magnet:?xt=urn:btih:0D1C2063977A2A39D0D1332D4AEBFCCB550F2E5D
 magnet:?xt=urn:btih:1151C628388FDC3697F07486C091B7B2AB2865A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +401,8 @@ magnet:?xt=urn:btih:1151C628388FDC3697F07486C091B7B2AB2865A0
 ```bash
 magnet:?xt=urn:btih:175D08E930D4D5C8431B07268C3CD89ECAD30CBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +430,8 @@ magnet:?xt=urn:btih:175D08E930D4D5C8431B07268C3CD89ECAD30CBD
 magnet:?xt=urn:btih:B83D0A80BE784A5723B42FF2D861E4FB415013BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +457,8 @@ magnet:?xt=urn:btih:B83D0A80BE784A5723B42FF2D861E4FB415013BF
 ```bash
 magnet:?xt=urn:btih:FF11C656D1D89848C0433C9037192E371D3DD930
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -330,6 +486,8 @@ magnet:?xt=urn:btih:FF11C656D1D89848C0433C9037192E371D3DD930
 magnet:?xt=urn:btih:ED97FD06DE186664E597C74DFC75AEEF6FEC7E90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +511,8 @@ magnet:?xt=urn:btih:ED97FD06DE186664E597C74DFC75AEEF6FEC7E90
 ```bash
 magnet:?xt=urn:btih:27C3C00F23731A3AA8E622170095E2A72E6556B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +538,8 @@ Southbank Display Font - это новейший шрифт от Vintage Type Co
 magnet:?xt=urn:btih:5D6502418BFE59EC9BF5F4658A47A79624B1B415
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +564,8 @@ magnet:?xt=urn:btih:5D6502418BFE59EC9BF5F4658A47A79624B1B415
 magnet:?xt=urn:btih:5FE15BA7F23B3944605B948E19291836AB3D819A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +589,8 @@ magnet:?xt=urn:btih:5FE15BA7F23B3944605B948E19291836AB3D819A
 ```bash
 magnet:?xt=urn:btih:CFA67B4A954A0B1530C56A37AF0A755475DD4E8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +618,8 @@ magnet:?xt=urn:btih:CFA67B4A954A0B1530C56A37AF0A755475DD4E8A
 magnet:?xt=urn:btih:47E16F81BFF6DE430DC9948F3B78B15F696BE8BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +646,8 @@ magnet:?xt=urn:btih:47E16F81BFF6DE430DC9948F3B78B15F696BE8BA
 magnet:?xt=urn:btih:EC0E43C2D7DDD456F136171D9EF019CBB3DEDCE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +671,8 @@ magnet:?xt=urn:btih:EC0E43C2D7DDD456F136171D9EF019CBB3DEDCE6
 ```bash
 magnet:?xt=urn:btih:D95AFE8F77B93E1D199AC6A4A6505DE86C72ED7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,125 +698,7 @@ magnet:?xt=urn:btih:D95AFE8F77B93E1D199AC6A4A6505DE86C72ED7D
 magnet:?xt=urn:btih:5449419A0E7D2DB18A2577D09E407052DF4E95EB
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275868   (789227) от 13.01.2019
-
-Шрифты - GraphicRiver - Pribor – Clean Lo-Fi Stencil Font With Cyrillic - 4174149 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это первый шрифт автора «Pribor», созданный под впечатлением от старых электроприборов и других устройств из СССР в 80-х годах. Pribor имеет минималистичный, простой и слегка использованный стиль ло-фи. Стиль ретро-механики, хорошая читабельность и превосходный внешний вид в разных размерах, который позволяет использовать его для логотипов, печати, веб-приложений, (   Читать дальше...   )Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1840C43F92FEF7B2E63C4F370850033D901DD31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275859   (789254) от 13.01.2019
-
-Шрифты - Creative Market - Adefebia Wedding Script Font - 389122 [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивый и элегантный свадебный шрифт, который имеет уникальный стиль и современную каллиграфию. Шрифт хорошо подойдет для дизайна, дизайна элементов, свадьбы, событий, футболок, логотипов и т. д.Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B112C6F36F7D922B1B3DD5BAB26FAFDC7CA97EFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275869   (789258) от 13.01.2019
-
-Кисти - GraphicRiver - Cloud Brushes - 16730842 [ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот стильный набор облачных кистей, который включает в себя 20 красивых разновидностей облаков для Вашего творчества.Формат: ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94637E5A78040276C65710FAB265813BF9533EC9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275871   (789264) от 13.01.2019
-
-Текстуры - GraphicRiver - Wooden Backgrounds - 8802226 [JPEG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшой пакет красивых деревянных фонов для Вашего творчества. Фоны имеют разную цветовую расцветку.Формат: JPEGРазрешение файлов: 3000x2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCC4C7DAAAFF4D335461BCC2693D70C7532D3287
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275860   (789326) от 13.01.2019
-
-Шрифты - Creative Market - Anniversa - Wedding Font - 1143895 [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Anniversa - это свадебный шрифт с современным стилем каллиграфии, подходящий для дизайна, дизайна элементов, свадьбы, мероприятий, логотипа и т. д.Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:020AEC7EB9AB37F88BA034ED30BA100281580E1A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

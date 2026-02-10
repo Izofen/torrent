@@ -1,3 +1,30 @@
+###  Публикация: 1303977   (568488) от 23.05.2019
+
+Александр Зорич | Красные звезды (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Владимир Пушкарев и Константин Уткин – два друга не разлей вода, любители опасностей и адреналиновых встрясок. И работа у них – под стать горячим натурам: экстремальные пожарники. Тушение аварийных реакторов, спасение людей из аномальных зон в секретных институтах…
+Казалось бы, человека на такой работе уже ничем не прошибешь. Но однажды после взрыва на Троицком термоядерном (   Читать дальше...   )Жанр: Героическая фантастика, Научная фантастикаПродолжительность: 10:30:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:692A28B149A9DF0CC9C9B0DCEE7BCE0F198EDAAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1303928   (568509) от 23.05.2019
 
 Александр Мазин |Викинг 8 | Мы платим железом (2019) [MP3]
@@ -19,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:3C4E978D433A97A15BA35113A0D42E19FDEBCAD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +74,8 @@ magnet:?xt=urn:btih:3C4E978D433A97A15BA35113A0D42E19FDEBCAD5
 magnet:?xt=urn:btih:9004CA2F6EC302AD143F8A763FCA76482E9E5B69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +100,8 @@ magnet:?xt=urn:btih:9004CA2F6EC302AD143F8A763FCA76482E9E5B69
 magnet:?xt=urn:btih:9AF7219C8D3C0CCB136191E33C357119B216FCFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +125,8 @@ magnet:?xt=urn:btih:9AF7219C8D3C0CCB136191E33C357119B216FCFD
 ```bash
 magnet:?xt=urn:btih:62FB530B63E82B7983BBCE5B90A26F24A37147E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +153,8 @@ magnet:?xt=urn:btih:62FB530B63E82B7983BBCE5B90A26F24A37147E0
 magnet:?xt=urn:btih:6C9CC52FDC8132EF0D8ABA1F27F1E9F7CFD39BD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +179,8 @@ magnet:?xt=urn:btih:6C9CC52FDC8132EF0D8ABA1F27F1E9F7CFD39BD0
 ```bash
 magnet:?xt=urn:btih:9D536D5A5F0F929E14CA76EC1210F636C62B977C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +208,8 @@ magnet:?xt=urn:btih:9D536D5A5F0F929E14CA76EC1210F636C62B977C
 magnet:?xt=urn:btih:A177BAA25C2752202B65C4F6C4A2B841FA9CC1C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +233,8 @@ magnet:?xt=urn:btih:A177BAA25C2752202B65C4F6C4A2B841FA9CC1C9
 ```bash
 magnet:?xt=urn:btih:A3DDBC43C4567AD59955BAC684C5858F672DA348
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +260,8 @@ magnet:?xt=urn:btih:A3DDBC43C4567AD59955BAC684C5858F672DA348
 magnet:?xt=urn:btih:9A8386382CC94B7FCC6B23C05C50B85CF310C758
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +285,8 @@ magnet:?xt=urn:btih:9A8386382CC94B7FCC6B23C05C50B85CF310C758
 ```bash
 magnet:?xt=urn:btih:995889C471225A21F54F00C94426844DE388B40C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +313,8 @@ magnet:?xt=urn:btih:995889C471225A21F54F00C94426844DE388B40C
 magnet:?xt=urn:btih:5642C01950DA5ECA7026169B575C684AB5BFCED0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +339,8 @@ magnet:?xt=urn:btih:5642C01950DA5ECA7026169B575C684AB5BFCED0
 magnet:?xt=urn:btih:82E7E8F355534D08872A2F49F131846AF529EE62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +364,8 @@ magnet:?xt=urn:btih:82E7E8F355534D08872A2F49F131846AF529EE62
 ```bash
 magnet:?xt=urn:btih:65A92FF9E8810FB020C357E0E3C3C8D069C07542
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +392,8 @@ magnet:?xt=urn:btih:65A92FF9E8810FB020C357E0E3C3C8D069C07542
 magnet:?xt=urn:btih:A8936CF23B656E65A5187E329EDC24DED0635710
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +417,8 @@ magnet:?xt=urn:btih:A8936CF23B656E65A5187E329EDC24DED0635710
 ```bash
 magnet:?xt=urn:btih:F4ED1724B895D5C8328B6FE0C0771D91BAF5FEE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +444,8 @@ magnet:?xt=urn:btih:F4ED1724B895D5C8328B6FE0C0771D91BAF5FEE1
 magnet:?xt=urn:btih:C9A15A5C6B0D0927E1AB9715C3A281812308E36F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +469,8 @@ magnet:?xt=urn:btih:C9A15A5C6B0D0927E1AB9715C3A281812308E36F
 ```bash
 magnet:?xt=urn:btih:906D21365672BF9DB14B4687D613E646AE7A83A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +496,8 @@ magnet:?xt=urn:btih:906D21365672BF9DB14B4687D613E646AE7A83A7
 magnet:?xt=urn:btih:621E532913F0D2EA7456869922F22AE1003A15D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +521,8 @@ magnet:?xt=urn:btih:621E532913F0D2EA7456869922F22AE1003A15D4
 ```bash
 magnet:?xt=urn:btih:989FCFF98715010EC7CB901263247F571E8E8572
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +549,8 @@ magnet:?xt=urn:btih:989FCFF98715010EC7CB901263247F571E8E8572
 ```bash
 magnet:?xt=urn:btih:DC3BCDBF42DBE84BCD6DC3A2F00160E4562BB5E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +579,8 @@ magnet:?xt=urn:btih:DC3BCDBF42DBE84BCD6DC3A2F00160E4562BB5E8
 magnet:?xt=urn:btih:86C16861E46B02D9187E69AB7AAAA29820A70F6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +606,8 @@ magnet:?xt=urn:btih:86C16861E46B02D9187E69AB7AAAA29820A70F6A
 magnet:?xt=urn:btih:E12067DB2F84644D406E9AB9821ECB8D118DA1A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +631,8 @@ magnet:?xt=urn:btih:E12067DB2F84644D406E9AB9821ECB8D118DA1A3
 ```bash
 magnet:?xt=urn:btih:CD3698632E0763E4781775E3DFE3E86EF2972670
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +659,8 @@ magnet:?xt=urn:btih:CD3698632E0763E4781775E3DFE3E86EF2972670
 magnet:?xt=urn:btih:2ADE2F3546FF5385F2EEDADB798BF5BA64ACF933
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,29 +685,7 @@ magnet:?xt=urn:btih:2ADE2F3546FF5385F2EEDADB798BF5BA64ACF933
 magnet:?xt=urn:btih:44394B8D9BD868F5567F30ED8AAA4A9F82DD841E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043568   (570805) от 17.08.2016
-
-Николай Андреев | Метрополия (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Переговоры с Маорой не принесли желаемого результата — снова война. Планету горгов необходимо найти, и возглавит эту экспедицию, конечно, Олесь. В результате поисков найдена новая высокоорганизованная цивилизация; кто они — союзники или враги — ещё предстоит выяснить.Тьма и Свет также вступили в свою схватку, и кто погибнет на этот раз, неизвестно.Жанр: Боевая фантастикаПродолжительность: 12:10:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BD36CAC1CF44320D5794B830AC8448AB0E26BE0
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

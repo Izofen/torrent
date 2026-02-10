@@ -1,3 +1,29 @@
+###  Публикация: 1394702   (762099) от 06.07.2020
+
+Великие океаны / Great Blue Wild (2015-2018) UHDTV 2160p [H.265/2160p-LQ] [4K, 10 bit] сезоны 1-3 из 3, серии 1-18 из 18
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_762099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Познакомьтесь поближе с китовыми акулами, дельфинами, гигантскими скатами мантой и захватывающими рыбными стаями.Жанр: Документальный, ПриродаПеревод: Двуголосый профессиональныйПродолжительность: ~00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FAE374A6BC3D415DFEC1B18AD468B8A0BFE0FE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017102   (762554) от 16.05.2016
 
 Орел и решка. Кругосветка (2016) WEBRip [H.264/720p-LQ] [hand made 60fps] (сезон 12: За кадром)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:E9EB44083170F3CBD80A5AD2E8A2A91F90CDBC11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:E9EB44083170F3CBD80A5AD2E8A2A91F90CDBC11
 magnet:?xt=urn:btih:F89A8DB4A03C6941E494B2F0205E01E19978F087
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:F89A8DB4A03C6941E494B2F0205E01E19978F087
 ```bash
 magnet:?xt=urn:btih:CE1583EDE7E85E2E46BACCDD4D38A31CA0B08A6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:CE1583EDE7E85E2E46BACCDD4D38A31CA0B08A6B
 magnet:?xt=urn:btih:D235A891707829D11E1018E8D12258E986B7C4E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:D235A891707829D11E1018E8D12258E986B7C4E1
 ```bash
 magnet:?xt=urn:btih:3A59098989CC5C50D8C173F65449DBEDB023D6E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:3A59098989CC5C50D8C173F65449DBEDB023D6E3
 magnet:?xt=urn:btih:269CB1DD1A7AD8D3C22C23C6A3B7A0117DA4C656
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:269CB1DD1A7AD8D3C22C23C6A3B7A0117DA4C656
 ```bash
 magnet:?xt=urn:btih:699FD2DD3A5E54A37701109B03176EB6AA43D2F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:699FD2DD3A5E54A37701109B03176EB6AA43D2F6
 magnet:?xt=urn:btih:55FCF40DE82D1B2E915253446591913307679B42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:55FCF40DE82D1B2E915253446591913307679B42
 ```bash
 magnet:?xt=urn:btih:1A7D1175D12CAD057E3E5C00D10447680157EFAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:1A7D1175D12CAD057E3E5C00D10447680157EFAA
 magnet:?xt=urn:btih:F0B0419923536A0806E4328DDB735257ECB96174
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:F0B0419923536A0806E4328DDB735257ECB96174
 ```bash
 magnet:?xt=urn:btih:5AF22C0E4952341CC40572BC913089C03E5B1E67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:5AF22C0E4952341CC40572BC913089C03E5B1E67
 magnet:?xt=urn:btih:B7CC099DDB39D1AAF547C6D10AE2A120D82AF7B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +356,8 @@ magnet:?xt=urn:btih:B7CC099DDB39D1AAF547C6D10AE2A120D82AF7B3
 ```bash
 magnet:?xt=urn:btih:03FA562EC2CA0274F63EE0E26C2CF64033303137
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:03FA562EC2CA0274F63EE0E26C2CF64033303137
 magnet:?xt=urn:btih:C01A62EC69CC92779C2B8D470F93F78EBC79D91E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:C01A62EC69CC92779C2B8D470F93F78EBC79D91E
 ```bash
 magnet:?xt=urn:btih:75B09EED1B3DE81BBA6D33854344DACB2EC5A317
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:75B09EED1B3DE81BBA6D33854344DACB2EC5A317
 magnet:?xt=urn:btih:10C3D2E05DDD762F4D552D9B6F14FA6E589623F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:10C3D2E05DDD762F4D552D9B6F14FA6E589623F9
 ```bash
 magnet:?xt=urn:btih:5A7C3390DC902170C7897092A5A0706DE0DC0671
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:5A7C3390DC902170C7897092A5A0706DE0DC0671
 magnet:?xt=urn:btih:1E7AE0FD1267A0F9F9617CCD8AB1A91A68068E45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:1E7AE0FD1267A0F9F9617CCD8AB1A91A68068E45
 ```bash
 magnet:?xt=urn:btih:F07362F6B58290B17E06ABB3B7E39B7FA4782F34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:F07362F6B58290B17E06ABB3B7E39B7FA4782F34
 magnet:?xt=urn:btih:610A59901E3669905F22C6974472070A980E8C4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:610A59901E3669905F22C6974472070A980E8C4D
 ```bash
 magnet:?xt=urn:btih:206EF7DA4A5742A22F093EDD426F58A445798010
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:206EF7DA4A5742A22F093EDD426F58A445798010
 magnet:?xt=urn:btih:318B7016B4D5D62DACCDE9985DDC0DC9F5BBB487
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +618,8 @@ magnet:?xt=urn:btih:318B7016B4D5D62DACCDE9985DDC0DC9F5BBB487
 ```bash
 magnet:?xt=urn:btih:FE3E2FFA6AA7FF805023061289A6147D6B7DACB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +645,8 @@ magnet:?xt=urn:btih:FE3E2FFA6AA7FF805023061289A6147D6B7DACB2
 magnet:?xt=urn:btih:1593A62C8D3E83AE88E33119C3B6FF6DE70D3DE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,29 +671,7 @@ magnet:?xt=urn:btih:1593A62C8D3E83AE88E33119C3B6FF6DE70D3DE8
 magnet:?xt=urn:btih:EEEB457C82CDFC3AD6C5A4ACDE46FDBC94F2408B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521762   (763447) от 04.01.2022
-
-Пир тварей. Круговорот жизни / Banquet of the Beasts - The Cycle of Life (2021) HDTVRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что происходит, когда в чаще леса погибает животное? Наука преследует мрачную задачу: изучить во всех подробностях то, что происходит с мертвыми животными в дикой природе.Производство: Германия, Marco Polo Film AGЖанр: документальный, природа, флора, фаунаРежиссер: Даниэла Пульверер, Борис РаимПеревод: одноголосый профессиональный (Iyuno-SDI Group Russia)Субтитры: отсутствуютПродолжительность: 00:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:368620CFEFED4F3DCDF965BB6CC3FEBF0C072200
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

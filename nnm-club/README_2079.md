@@ -19,6 +19,8 @@ Music Collection - неплохая программа для создания �
 magnet:?xt=urn:btih:533B13827C3B42B0676EDE3A3D2D5BEED94FFEFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:533B13827C3B42B0676EDE3A3D2D5BEED94FFEFF
 ```bash
 magnet:?xt=urn:btih:CDACAC95AB270751D4FB43A629B342E2C8F1737C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Umbraclaw – события нашей игры вращаются вокруг
 magnet:?xt=urn:btih:C959FE9E0B23A1BAD7C53075B44D537B9281BB9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ HDCleaner – многофункциональный программный пр
 ```bash
 magnet:?xt=urn:btih:B05D648A5D011FE1AEEA9B026C680399498D9001
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:B05D648A5D011FE1AEEA9B026C680399498D9001
 magnet:?xt=urn:btih:FFDB6C6DE330F83913882460D037ED68CF13D5B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Rocket Rumble бросает геймеров в безумный мир, где
 ```bash
 magnet:?xt=urn:btih:17AE0D924C7BF6D1B1F7E82D3C2FD2B6CF7D1E72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ R – безусловно лучшая среда для интерактивн
 magnet:?xt=urn:btih:1E87D4C6ED683746D35708ECB5C383DF14424A81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:1E87D4C6ED683746D35708ECB5C383DF14424A81
 magnet:?xt=urn:btih:4DEFF02071ED1C7219B57443BC4038BF758C2C02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ Dark Souls 2: Scholar of the First Sin - это ролевой экшен, в к
 ```bash
 magnet:?xt=urn:btih:C8008561192730C9580760039110442E43B04C50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:C8008561192730C9580760039110442E43B04C50
 magnet:?xt=urn:btih:04B6B82F15E298F066D9DB1212891860BD3FDE18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Medieval Kingdom Wars Story (2023) [Ru/Milti] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:95AA113AA74406D134027857EFEB4D187DF48922
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Maxthon Browser — многофункциональный браузер со �
 magnet:?xt=urn:btih:7F6BFB4B02F932C09E07BBB793F4CDABC37FF541
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:7F6BFB4B02F932C09E07BBB793F4CDABC37FF541
 ```bash
 magnet:?xt=urn:btih:FB89A695FC207AAC9253BBEBA997C4D9305E6812
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Kingdom of Fallen: The Last Stand / Королевство Павших: Пос�
 magnet:?xt=urn:btih:23A0380DB6960D040E2B5F255ABF4415E3530DE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ Tiny Terry's Turbo Trip - безумная аркада про Терри, ге�
 ```bash
 magnet:?xt=urn:btih:56D6E6ADAC2A69283BFC8353D299F6F1F37F1A57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:56D6E6ADAC2A69283BFC8353D299F6F1F37F1A57
 magnet:?xt=urn:btih:B1614EF4AEDE4D7220B11B3FD27E372BCE9EC77E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:B1614EF4AEDE4D7220B11B3FD27E372BCE9EC77E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ CONSORTIUM Remastered ставит вас на место Консорциума
 magnet:?xt=urn:btih:A7F12C66F211D9691B43A41B575C7F1C1023476F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:A7F12C66F211D9691B43A41B575C7F1C1023476F
 ```bash
 magnet:?xt=urn:btih:7520E1EFC156006667AEFE5A9368C15385934E64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:0CE5C8A3E5AE876D38FEA4E2D1C856D21C14006E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ magnet:?xt=urn:btih:0CE5C8A3E5AE876D38FEA4E2D1C856D21C14006E
 ```bash
 magnet:?xt=urn:btih:B29C3CA99602E83B2509C16CACDD5EC174883941
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ magnet:?xt=urn:btih:B29C3CA99602E83B2509C16CACDD5EC174883941
 magnet:?xt=urn:btih:84EB493DB94E06A9113C80E2785B9CD4B055DD34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:84EB493DB94E06A9113C80E2785B9CD4B055DD34
 ```bash
 magnet:?xt=urn:btih:D76212790E65CAF28A84FA1C8AC216B0F51AD891
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:D76212790E65CAF28A84FA1C8AC216B0F51AD891
 magnet:?xt=urn:btih:420FB91261460226DF29FB01B5DAFAD84393CF32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Crown Wars: The Black Prince - пошаговая стратегия, дейст
 magnet:?xt=urn:btih:AD47409E6E66560661A7CFEC4DEDD74A721E6EFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Touhou Mystia's Izakaya (2021) [Multi] (4.1.2/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:C6DA2478AE099FA710EC4A16BAB21DEF07CD37C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

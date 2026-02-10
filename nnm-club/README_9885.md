@@ -1,55 +1,3 @@
-###  Публикация: 958024   (319122) от 23.11.2015
-
-Алексей Рижский | Nokia в шоколаде (2014) [MP3, Алексей Князев]
-
->>Художественные аудиокниги и публицистика
->>Сатира, Юмор (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наивно даже не всерьез допустить кощунственную мысль, будто такой человек как Швейк мог умереть. Он вечен. И неожиданное исчезновение его ровным счетом ничего не значит. Возможно, этот скромный герой просто не выдержал бремени обрушившейся на него славы и переехал из Праги на новое место жительства, где его никто не знает.
-Независимая Балтийская Республика живет (   Читать дальше...   )Жанр: Ироническая антиутопия, юмористическая прозаПродолжительность: 08:27:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1126DF43EABE295D0D7676C34E3A9BD1C67FB76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959059   (319123) от 23.11.2015
-
-Foo Fighters - Saint Cecilia (2015) EP [MP3|320 кб/с]<Alt. Rock, Post-Grunge, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319123.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Saint Cecilia
-2. Sean
-3. Savior Breath
-4. Iron Rooster(   Читать дальше...   )Жанр: Alt. Rock, Post-Grunge, Hard RockПродолжительность: 00:18:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:934BA2C1BBBB1A77D038DE4159DF889ABED3FE5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959167   (319124) от 23.11.2015
 
 Н. И. Арепьева (ред.) | Албания. Справочная карта (1982) [JPG, PDF]
@@ -70,6 +18,8 @@ magnet:?xt=urn:btih:934BA2C1BBBB1A77D038DE4159DF889ABED3FE5D
 ```bash
 magnet:?xt=urn:btih:DB35BCB2A3AA783B80E5BDFA12F8F6B955A341E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +45,8 @@ magnet:?xt=urn:btih:DB35BCB2A3AA783B80E5BDFA12F8F6B955A341E0
 magnet:?xt=urn:btih:F6AD9381222F8ED2629BA5210AAB67E36BB7F51D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +70,8 @@ Eventide: Slavic Fable (2015) [En] Unofficial [Collector's Edition / Колле�
 ```bash
 magnet:?xt=urn:btih:FB109F3039667452B2FBE56FBE23D3E54486546C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +97,8 @@ magnet:?xt=urn:btih:FB109F3039667452B2FBE56FBE23D3E54486546C
 magnet:?xt=urn:btih:79CA4B2D233E4E2607935005D1A27C61504EC39A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +122,8 @@ Coolutils Total PDF Converter — данный программный проду
 ```bash
 magnet:?xt=urn:btih:CC0BB1E242F2F20D0CC9CE68276706E504DFD603
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +152,8 @@ Slade - Alive At Reading (1980) Bootleg [MP3|192 кб/с]<Rock, Glam Rock>
 magnet:?xt=urn:btih:C3955D36F8858B6D769B8E79D64C7D27698058BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +179,8 @@ magnet:?xt=urn:btih:C3955D36F8858B6D769B8E79D64C7D27698058BC
 magnet:?xt=urn:btih:5E4AF6BD9A3243F1E2C3FAE725F24027099A7D37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +205,8 @@ Surface 8: Return to Another World (2015) [En] Unofficial [Collector's Edition /
 magnet:?xt=urn:btih:1D115443706F193AAFE2CD8E2691104D37B5432C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +230,8 @@ magnet:?xt=urn:btih:1D115443706F193AAFE2CD8E2691104D37B5432C
 ```bash
 magnet:?xt=urn:btih:30A2FB4D1D351DAEE1D450818B0D003755C2E940
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +260,8 @@ VA - Supermusic for your supercar (2015) [MP3|320 кб/с]<Deep, Tech, Club, Hou
 magnet:?xt=urn:btih:AE4036138C43D3E89CA20FBF3DCA8727A5EFDD73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +285,8 @@ magnet:?xt=urn:btih:AE4036138C43D3E89CA20FBF3DCA8727A5EFDD73
 ```bash
 magnet:?xt=urn:btih:8625AD02988E6402855141B4A4CBC35A2979448C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +315,8 @@ magnet:?xt=urn:btih:8625AD02988E6402855141B4A4CBC35A2979448C
 magnet:?xt=urn:btih:E521AE4E64F73F5B82DF634A5C5305BB270A6756
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +340,8 @@ magnet:?xt=urn:btih:E521AE4E64F73F5B82DF634A5C5305BB270A6756
 ```bash
 magnet:?xt=urn:btih:AC00030D4EAA684E693BB45A4C76BE039DE2FDD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +368,8 @@ magnet:?xt=urn:btih:AC00030D4EAA684E693BB45A4C76BE039DE2FDD0
 magnet:?xt=urn:btih:4D31FBCEB74CB3833AC7F4854E4AB9ED2E52A6F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +393,8 @@ magnet:?xt=urn:btih:4D31FBCEB74CB3833AC7F4854E4AB9ED2E52A6F2
 ```bash
 magnet:?xt=urn:btih:9D68B78E1E7B041EEA0F78B642BB6BEDF8CEFE65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +420,8 @@ magnet:?xt=urn:btih:9D68B78E1E7B041EEA0F78B642BB6BEDF8CEFE65
 magnet:?xt=urn:btih:2D46668C45DDEA1221936DA14464BB6FC70D0C5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +445,8 @@ magnet:?xt=urn:btih:2D46668C45DDEA1221936DA14464BB6FC70D0C5D
 ```bash
 magnet:?xt=urn:btih:E2A942D8A25A3596EDDD915461C1266E4635A35D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +472,8 @@ CrossOver Linux 20.0.0 [x86-x64] (deb, rpm, bin)
 ```bash
 magnet:?xt=urn:btih:A916799D7F13C67BA8B7AD7DDCF3F2BC461078A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +501,8 @@ magnet:?xt=urn:btih:A916799D7F13C67BA8B7AD7DDCF3F2BC461078A7
 magnet:?xt=urn:btih:09BDB53DA66CF951E668FC21E19DDBBBED0C0558
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +526,8 @@ magnet:?xt=urn:btih:09BDB53DA66CF951E668FC21E19DDBBBED0C0558
 ```bash
 magnet:?xt=urn:btih:339CD62CACD9A8F463C56902D219C4365C77BE6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +553,8 @@ magnet:?xt=urn:btih:339CD62CACD9A8F463C56902D219C4365C77BE6E
 ```bash
 magnet:?xt=urn:btih:120E764F539B6FDB79D6056CA3636473CB599002
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +583,8 @@ magnet:?xt=urn:btih:120E764F539B6FDB79D6056CA3636473CB599002
 magnet:?xt=urn:btih:F7C9FC2C0AD659DCC0A484E3160065190F4C1F53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +612,8 @@ The Metrolites - For The People (2006) [FLAC|Lossless|tracks + .cue] <Surf, Gara
 magnet:?xt=urn:btih:0C6002524C8C5ACB1FF6B93A3FE3A6FFF24E0EF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +640,66 @@ Hypnoskull - The Manichaean Consciousness (2018) Ant-Zen [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:063AEE16CCC4577CED9A224D3A5BBFBA0648B3EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259706   (319165) от 04.11.2018
+
+Sangam - Finder (2018) House of the Leg [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_319165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Finder (02:14)
+02. Be Waiting (04:27)
+03. Smoke When You're Not Here (04:12)
+04. Calm (02:47)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 00:29:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A79D80631CF188431F9E3850705D4911D869E8E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259735   (319166) от 04.11.2018
+
+The Kabalas - Martinis and Bagels (1995) [FLAC|Lossless|tracks + .cue] <Klezmer, Polka>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_319166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freilach HaShlishi (2:11)
+ 02. Planet of the Apes Polka (3:22)
+ 03. Private Oy! (Deli Detective) (3:24)
+ 04. Stray Katz (1:38)(   Читать дальше...   )Жанр: Klezmer, PolkaПродолжительность: 00:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8AE701B9E0216588D6C5D3B073C0245671C57B5
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

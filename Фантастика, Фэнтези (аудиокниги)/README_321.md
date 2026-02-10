@@ -1,3 +1,29 @@
+###  Публикация: 950161   (372319) от 25.10.2015
+
+Никита Аверин, Игорь Вардунас | Противостояние (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ревущие костры инквизиции и грохот копыт по залитой кровью Европе, готовящейся к войне с альбигойской ересью. Таинственный Жеводанский Зверь, наводящий ужас в окрестностях севера Франции и шериф провинциального американского городка Эльдорадо, спустя столетия расследующий серию загадочных убийств в иллинойском заповеднике Шоуни. Что связывает эти события между собой (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 09:42:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77169A4D9CC19B0117BF9D6F0F0E58E843C3DE49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1254535   (372403) от 14.10.2018
 
 Роман Прокофьев | Игра Кота [Книга 3] (2018) [MP3]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:674457FDC82DF959409126F977639660A62A2144
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:674457FDC82DF959409126F977639660A62A2144
 magnet:?xt=urn:btih:D4D6947E4B9E388F881D5C785C65D6F34E144FF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:D4D6947E4B9E388F881D5C785C65D6F34E144FF7
 ```bash
 magnet:?xt=urn:btih:E90EC05E6AB692C399CC7A42BC82CAB6B64646CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:E90EC05E6AB692C399CC7A42BC82CAB6B64646CF
 magnet:?xt=urn:btih:FD79AB0B1E5F1ACC173B2A7A89E7520C1F6FF9F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:FD79AB0B1E5F1ACC173B2A7A89E7520C1F6FF9F2
 magnet:?xt=urn:btih:759C41069D953FEBF1B7B9FBE9F0E2082DC6FEAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:759C41069D953FEBF1B7B9FBE9F0E2082DC6FEAF
 ```bash
 magnet:?xt=urn:btih:1FAE1A6A0007BD2A38E4536CD7719818F6CA8336
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:1FAE1A6A0007BD2A38E4536CD7719818F6CA8336
 magnet:?xt=urn:btih:397E38942A135E885F92FDDB6F2AB5BA317DF6B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:397E38942A135E885F92FDDB6F2AB5BA317DF6B9
 ```bash
 magnet:?xt=urn:btih:83705E40E0F4C834B6E5E75CA06898982E1A22F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:83705E40E0F4C834B6E5E75CA06898982E1A22F8
 magnet:?xt=urn:btih:B3DF512C1E0200F762730E0803869D8CC2EEDEC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:B3DF512C1E0200F762730E0803869D8CC2EEDEC5
 ```bash
 magnet:?xt=urn:btih:18251F98B778F315EFB9F9426EFDB81331B15108
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:18251F98B778F315EFB9F9426EFDB81331B15108
 magnet:?xt=urn:btih:6A4E53E2FFC1E07BD6C38B76E3974C6AC52B05A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:6A4E53E2FFC1E07BD6C38B76E3974C6AC52B05A5
 ```bash
 magnet:?xt=urn:btih:2053CAADF83027AB5862B72E3D1D78873A57C605
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:2053CAADF83027AB5862B72E3D1D78873A57C605
 magnet:?xt=urn:btih:7CB9B1A6506353308A7A8AB5452BC991ED1A905B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:7CB9B1A6506353308A7A8AB5452BC991ED1A905B
 ```bash
 magnet:?xt=urn:btih:6DAB2D73E31AF378320FAB4097E11F59807AAB23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:6DAB2D73E31AF378320FAB4097E11F59807AAB23
 magnet:?xt=urn:btih:4D6DC7B346CE0B9252F382EAA5595BEDEA39EB73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:4D6DC7B346CE0B9252F382EAA5595BEDEA39EB73
 magnet:?xt=urn:btih:13B6037D3D40B1BFBDFCF71D6F5AAF7E1C1E6452
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:13B6037D3D40B1BFBDFCF71D6F5AAF7E1C1E6452
 ```bash
 magnet:?xt=urn:btih:9CA700094EF84FEA75184CBB6C4D1C8B7A5E4C9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:9CA700094EF84FEA75184CBB6C4D1C8B7A5E4C9D
 magnet:?xt=urn:btih:89BFFFD724448C5BAEDF8291CCCE010BCDAAAAC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:89BFFFD724448C5BAEDF8291CCCE010BCDAAAAC7
 magnet:?xt=urn:btih:9095186B608B3CB889B86779934C5B156055C9A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:9095186B608B3CB889B86779934C5B156055C9A0
 magnet:?xt=urn:btih:7C1B3EB08A311631FEBD0F59F7FC5FDC023CDC72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:7C1B3EB08A311631FEBD0F59F7FC5FDC023CDC72
 ```bash
 magnet:?xt=urn:btih:A453F72B1DB8A8D4439C1858EC7B4EDD9AC72134
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +596,8 @@ magnet:?xt=urn:btih:A453F72B1DB8A8D4439C1858EC7B4EDD9AC72134
 magnet:?xt=urn:btih:6840785298E581920B951453817BEC3A4CBB4575
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +621,8 @@ magnet:?xt=urn:btih:6840785298E581920B951453817BEC3A4CBB4575
 ```bash
 magnet:?xt=urn:btih:3A81B36C16ACF96120F261FB07104D1BECADB69C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:3A81B36C16ACF96120F261FB07104D1BECADB69C
 magnet:?xt=urn:btih:8B1808E04FFBE2F2EC4B4BA7AFB67DBEBB7F89E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,29 +676,7 @@ magnet:?xt=urn:btih:8B1808E04FFBE2F2EC4B4BA7AFB67DBEBB7F89E3
 magnet:?xt=urn:btih:BE664AC1165E2DDCE4A93776B8FECB211197BA05
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327473   (374230) от 25.09.2019
-
-Евгений Щепетнов | Военачальник (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Страшная беда накатила на некогда мирную Истрию. Внутреннее междоусобное противостояние переросло в жестокую борьбу с внешним врагом, высадившимся на материке. Плетутся заговоры, толпы кровожадных воинственных соседей Истрии, обладающих магическими способностями, убивают ее защитников. Последняя надежда империи – Влад, ранее земной человек, а теперь воин и маг. Сумеет (   Читать дальше...   )Жанр: Героическое фэнтези, Книги про волшебников, ПопаданцыПродолжительность: 10:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEE5FE3BD3199BF9C250673E8B51018ED73E783C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

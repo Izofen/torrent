@@ -19,6 +19,8 @@ Geekbrains | Серьезный PHP (2014) PCRec [H.264]
 magnet:?xt=urn:btih:05D7C7F26B20B85A35A447D26B32A95BB94A7EE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Udemy, Bogdan Stashchuk | The World of Computer Networking. Your CCNA starts her
 magnet:?xt=urn:btih:495AED4DDD97DF882FA73EDC9FCFDF4BDB302A39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Udemy, Oleksandr Kocherhin | Практический курс по Lodash (2022
 ```bash
 magnet:?xt=urn:btih:385D55CA38A5B9AE075FFDAB2F4D19A9D289C84E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:385D55CA38A5B9AE075FFDAB2F4D19A9D289C84E
 magnet:?xt=urn:btih:938E09494BB1E74B6D8472046D0AFCF40E2BA1A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Udemy, Alex Marshal | Автоматизация тестирования Java +
 magnet:?xt=urn:btih:627467E07E5DBB1FE1BB4DDAAAB3F1009312E5FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Frontend-разработка - одна из самых популярных и
 ```bash
 magnet:?xt=urn:btih:1E9FE6FC2F2FD8CFB7527F2EF68AD37DDC86BDED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Redux - самое популярное решение для управлени
 magnet:?xt=urn:btih:B8C5EF67EC2918ADC3B7632D55BE79DCCC6EAF91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Udemy, Basar Buyukkahraman | Spring Boot and React with Test Driven Development 
 ```bash
 magnet:?xt=urn:btih:2C33D0DCD30FAF6D1F042B457B64A4A80FF3E583
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ Udemy, YouRa Allakhverdov | Современный JavaScript - с Нуля до
 magnet:?xt=urn:btih:82B990BE7574E1A53E1A210B0F19F105FD7A5234
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:82B990BE7574E1A53E1A210B0F19F105FD7A5234
 ```bash
 magnet:?xt=urn:btih:A34DA350E7A6F0DE9E0DDD19BA9C9AAF2F7F455E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Udemy, Михаил Непомнящий | Компетенция Верстал
 magnet:?xt=urn:btih:472407AFB9970EB350F9D6663612C3A284646C43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ React - превосходно документированная библиот
 ```bash
 magnet:?xt=urn:btih:F836375CEE0B7125917AB8089996103C3E0902E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:F836375CEE0B7125917AB8089996103C3E0902E5
 magnet:?xt=urn:btih:1DBDB91848FC7DEDFF92F4E9BAF6440AEB0A6D1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ Geekbrains | PHP. Уровень 1 Основы веб-разработки (201
 ```bash
 magnet:?xt=urn:btih:E302863CFFC31C6DFA062791D4B80B1A005C2198
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ Udemy, Serhii K | Practical OpenGL and GLSL shaders fundamentals with C++ (2019)
 magnet:?xt=urn:btih:91AEA0E913FDD359403230E249F6AA9077CB77CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:91AEA0E913FDD359403230E249F6AA9077CB77CC
 magnet:?xt=urn:btih:0839D42B168A19F6EB230E65A9A079FEDF34B02A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ magnet:?xt=urn:btih:0839D42B168A19F6EB230E65A9A079FEDF34B02A
 magnet:?xt=urn:btih:091EA7576CCA6F300C6B730043D4F40ED271064A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ Udemy | Java. Клиент-серверное приложение. Многоп
 ```bash
 magnet:?xt=urn:btih:6C5D40A97CB7DBE65C3CDDCC4438B21413866A65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:6C5D40A97CB7DBE65C3CDDCC4438B21413866A65
 magnet:?xt=urn:btih:7B2DE870F2DF7437532083D19CA349F6D16EEF19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ Lynda.com | Использование регулярных выражений (
 ```bash
 magnet:?xt=urn:btih:C034D0E9F95F0B5102B6EBF400B8F961B5B77B13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +559,8 @@ magnet:?xt=urn:btih:C034D0E9F95F0B5102B6EBF400B8F961B5B77B13
 magnet:?xt=urn:btih:7B5292002C3E92A32BC0F62BEF7ED56F28AA5C0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ Udemy | Игры со спрайтами на C# (2018) PCRec [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:E36CA4F12F46C7215CBC3AD024F2D64C942678CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +612,8 @@ Convert Monster | Эффективный Яндекс.Директ 2.0 (2015) PC
 magnet:?xt=urn:btih:22E4C8C1C8D239A44B361ADAB3AD023C6DD94978
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ Udemy | Фундаментальный курс по основам C# .NET (201
 ```bash
 magnet:?xt=urn:btih:01D15163C8108544377B91FBD60326925BA07A55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ magnet:?xt=urn:btih:01D15163C8108544377B91FBD60326925BA07A55
 magnet:?xt=urn:btih:8A111D172483C9078752C15A9A44DA973E6E44C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ magnet:?xt=urn:btih:8A111D172483C9078752C15A9A44DA973E6E44C9
 ```bash
 magnet:?xt=urn:btih:3AA5C073C0B095F9B65EF57470D51C96ADD23C0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

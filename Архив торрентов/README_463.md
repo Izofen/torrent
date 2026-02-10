@@ -21,6 +21,8 @@ NVIDIA GeForce Driver 296.17 Preview [Мульти, есть русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Warp [En] (RePack) 2012 | a1chem1st
 magnet:?xt=urn:btih:640FE41B717E3495610555435208F90251C9D907
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ RAW (среди фанатов известная как Monday Night Raw или
 ```bash
 magnet:?xt=urn:btih:5B0884D180BC8314D4DBB26FF9E58E19281787B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:5B0884D180BC8314D4DBB26FF9E58E19281787B6
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:5B0884D180BC8314D4DBB26FF9E58E19281787B6
 ```bash
 magnet:?xt=urn:btih:19D8F86911F38588514E44780C02A1DD3E44C37D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +167,8 @@ VA - The All Time Greatest Rock Songs Of The 60s, 70s, 80s And 90s (1997) [FLAC|
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ VA - The All Time Greatest Rock Songs Of The 60s, 70s, 80s And 90s (1997) [FLAC|
 ```bash
 magnet:?xt=urn:btih:219BA2F369F6B64D8AA8F87D174AB1BBBF616356
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -205,6 +219,8 @@ magnet:?xt=urn:btih:219BA2F369F6B64D8AA8F87D174AB1BBBF616356
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ magnet:?xt=urn:btih:219BA2F369F6B64D8AA8F87D174AB1BBBF616356
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ magnet:?xt=urn:btih:219BA2F369F6B64D8AA8F87D174AB1BBBF616356
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:219BA2F369F6B64D8AA8F87D174AB1BBBF616356
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +330,8 @@ magnet:?xt=urn:btih:219BA2F369F6B64D8AA8F87D174AB1BBBF616356
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +358,8 @@ magnet:?xt=urn:btih:219BA2F369F6B64D8AA8F87D174AB1BBBF616356
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +383,8 @@ NG: Дубаи: Чудо или мираж? / Dubai: Miracle or Mirage? (2007) H
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +413,8 @@ LMFAO - Sorry For Party Rocking (2011) [MP3|320 кб/с]<Electro, Rap>
 magnet:?xt=urn:btih:39EB1883C0FA214B2D7DA06EFD208D01D7C3FEDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +438,8 @@ nVIDIA GeForce Verde R295 Driver (for Notebooks) 296.10 WHQL [Многоязыч
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +465,8 @@ AnMaBaGiMa обновил свой плагин, позволяющий прев
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +494,8 @@ AnMaBaGiMa обновил свой плагин, позволяющий прев
 magnet:?xt=urn:btih:7919BA8B2F76F6B36F0B7A76C46B454B8951C406
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +521,8 @@ All Zombies Must Die! (P) [Multi5/-] 2012 l THETA
 magnet:?xt=urn:btih:9F6737B70184E88B412227EAF8C4371F9D900922
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +546,8 @@ magnet:?xt=urn:btih:9F6737B70184E88B412227EAF8C4371F9D900922
 ```bash
 magnet:?xt=urn:btih:3C4E3F96764E03E69553645B85A4A2FE7FAEF150
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +578,8 @@ Defense Grid: The Awakening – яркий представитель жанра
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +609,8 @@ Defense Grid: The Awakening – яркий представитель жанра
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +637,8 @@ Defense Grid: The Awakening – яркий представитель жанра
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +662,8 @@ Warp [En] (RePack) 2012 | shidow
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -645,6 +693,8 @@ SUSE Linux 11 Enterprise Server позиционируется как опера
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +718,8 @@ SUSE Linux 11 Enterprise Server позиционируется как опера
 ```bash
 magnet:?xt=urn:btih:DBFC3561EB332B375E0876FDAFD8FA793EBFED09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

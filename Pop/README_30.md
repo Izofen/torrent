@@ -22,6 +22,8 @@ VA - Dance Classics Gold 2 (1991) 2 CD [OGG Vorbis|480 Kbps] <Electronic,  Hip H
 magnet:?xt=urn:btih:B0DE7B8D4BA03ADD2A77248D5530F706F5EE93E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Dance Classics Gold 3 (1992) 2 CD [MP3|320 Kbps] <Electronic,  Hip Hop, Fun
 ```bash
 magnet:?xt=urn:btih:7D2D756BE1B6395912DAE29C2948A3ED5B63AA41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Italo Disco - The Lost Legends Vol. 16 (2018) [OGG Vorbis|480 Kbps] <Electr
 magnet:?xt=urn:btih:CC6970003804819E02B4866A48FA9EDA850D03E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Cock Robin - американская поп-рок-группа, наиболе
 ```bash
 magnet:?xt=urn:btih:9746079D70220EF1CF3637AF4AA0C872A928546D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:9746079D70220EF1CF3637AF4AA0C872A928546D
 magnet:?xt=urn:btih:60F0A84ED77E521420183C51BE77014FFAACE7EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Marius M.21 - Dreams (2016) [MP3|320 Kbps] <Italo-Disco, Space-Disco>
 ```bash
 magnet:?xt=urn:btih:7F8DDC4336537460477EE2A918A2B8EDC2911E20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ The Flirts - Blondes, Brunettes & Redheads (1994) [OGG Vorbis|480 Kbps] <Electro
 magnet:?xt=urn:btih:891D6942352428148F2AD227A3F514150CF144C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Marius M.21 - Disco Classics (Best Reworks) (2011) [MP3|320 Kbps] <Italo-Disco, 
 ```bash
 magnet:?xt=urn:btih:D17224ADD21288522C055C2C4F929779D7BF8B68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ magnet:?xt=urn:btih:D17224ADD21288522C055C2C4F929779D7BF8B68
 magnet:?xt=urn:btih:197DBD37EED48D21723E24044790A3309FA39BF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Marius M.21 - The Album (2010) [MP3|320 Kbps] <Italo-Disco, Instrumental>
 ```bash
 magnet:?xt=urn:btih:288394F60EA2844EBC5672F840BDF736CE20D8AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Nipper's Greatest Hits - The 60's Volume 2 (1988) [OGG Vorbis|480 Kbps] <Ro
 magnet:?xt=urn:btih:ED17BC25639FED3355637B9F79FB83A20B506CBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +341,8 @@ VA - I Love Disco France 80's (2013) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Ita
 magnet:?xt=urn:btih:D9872004CCA3FF6B5663E2BD023216078808CF0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +368,8 @@ Highland - Nicole Heiland, Dean Burke и Patrice "Lady Scar" Gansau (учавс�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +394,8 @@ Highland - Nicole Heiland, Dean Burke и Patrice "Lady Scar" Gansau (учавс�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +419,8 @@ Highland - Nicole Heiland, Dean Burke и Patrice "Lady Scar" Gansau (учавс�
 ```bash
 magnet:?xt=urn:btih:00375A827F0491E681B207C6599AAB5513D70D30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +455,8 @@ magnet:?xt=urn:btih:00375A827F0491E681B207C6599AAB5513D70D30
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +489,8 @@ magnet:?xt=urn:btih:00375A827F0491E681B207C6599AAB5513D70D30
 ```bash
 magnet:?xt=urn:btih:6F8631AD323272EC5868EA307E9B2DC14EA7BD13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +525,8 @@ The Steve Miller Band - Abracadabra (1982) [FLAC|Lossless]<Pop Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +554,8 @@ Mylene Farmer - Du Temps Remixes (CDM) (2012) [MP3|320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:EA41F798A24F881D22853FE8FC69015AAFEAF1C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +590,8 @@ VA - Золотой фонд. Мое последнее танго  - Кумир
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +625,8 @@ Lady GaGa - The Singles (2011) [FLAC|Lossless]<Pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +650,8 @@ Lady GaGa - The Singles (2011) [FLAC|Lossless]<Pop>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +686,8 @@ Matia Bazar - 2 альбома (2006-2011) [FLAC|Lossless]<Pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -675,6 +721,8 @@ VA - Золотые хиты ВИА. Песни Вячеслава Добрын�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -702,6 +750,8 @@ VA - Золотые хиты ВИА. Песни Вячеслава Добрын�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -725,6 +775,8 @@ VA - Золотые хиты ВИА. Песни Вячеслава Добрын�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

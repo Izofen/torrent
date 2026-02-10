@@ -19,6 +19,8 @@ foobar2000 - это аудиоплеер, подкупающий своим ве
 magnet:?xt=urn:btih:167338AA0CB0F27168C1826E69D1A552C1111A97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:167338AA0CB0F27168C1826E69D1A552C1111A97
 magnet:?xt=urn:btih:9CFDE182056BEB530AF5A4C1DA21C3FE58CAC827
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ NewPipe v0.27.3 Free + Mod by Alex.Strannik  [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B937B69AA78DA873216C4C1366FBFEDF2950B793
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:B937B69AA78DA873216C4C1366FBFEDF2950B793
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:B937B69AA78DA873216C4C1366FBFEDF2950B793
 ```bash
 magnet:?xt=urn:btih:8A9C16C5EAC1E24CB261E8617F00FB4DE1004FF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:8A9C16C5EAC1E24CB261E8617F00FB4DE1004FF5
 magnet:?xt=urn:btih:85039790B6E041941358EF3A22092E998AB3CDC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:85039790B6E041941358EF3A22092E998AB3CDC0
 ```bash
 magnet:?xt=urn:btih:8D9E7C395F32024AA78A6626DBC0DAB8C367B443
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:8D9E7C395F32024AA78A6626DBC0DAB8C367B443
 magnet:?xt=urn:btih:9E6FF43592799898DAC216EF484D091EE35BBB28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:9E6FF43592799898DAC216EF484D091EE35BBB28
 ```bash
 magnet:?xt=urn:btih:F5A093063A3DE5833B694D15C2C68DCD32EE8D05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:F5A093063A3DE5833B694D15C2C68DCD32EE8D05
 magnet:?xt=urn:btih:354C27777C133D87491A36691262A2C669EA9788
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Albatroz - это приключенческая адвенчура на выж�
 ```bash
 magnet:?xt=urn:btih:A5EA272072692BA17BD548D1205203C06DBFEC19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:A5EA272072692BA17BD548D1205203C06DBFEC19
 magnet:?xt=urn:btih:E061F523AFFEBA482EC43975D5E14B9BF6BD8E83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:E061F523AFFEBA482EC43975D5E14B9BF6BD8E83
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:E061F523AFFEBA482EC43975D5E14B9BF6BD8E83
 magnet:?xt=urn:btih:63FA24132A2ACCCF70E3B51B05867340082D5E1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:63FA24132A2ACCCF70E3B51B05867340082D5E1B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:63FA24132A2ACCCF70E3B51B05867340082D5E1B
 magnet:?xt=urn:btih:2362C8428135F4333568BF00612FE3688F12F7EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Quantum Break (2016) [Ru/Multi] (1.0.126.0307) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:E461CFABE18378E63F2925E14FF249CFB6D6402A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ XnView - утилита, предназначенная для просмотр�
 magnet:?xt=urn:btih:75EA62DC28B32D5F92B5486318DF6DF30B054E8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Wyvia (2023) [Multi] (1.0.8) License GOG
 ```bash
 magnet:?xt=urn:btih:3E9ECD219B19D99761EA431BF9DB338D652A63CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:3E9ECD219B19D99761EA431BF9DB338D652A63CD
 magnet:?xt=urn:btih:6D08EAB1D4AE1766E4BB836B500AAAA3AA9735C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Beyond: Two Souls (2019) [Ru/Multi] (Build 5117920) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:186C970A5A5AAD2A7A727772E15C64E20A8F090E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ Maptorium GoogleSat Cache [Ru/En]
 magnet:?xt=urn:btih:9392B51B54E2C80E3B9429886A5D6CA4E058EEEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:9392B51B54E2C80E3B9429886A5D6CA4E058EEEB
 ```bash
 magnet:?xt=urn:btih:9F327A5B90C17CCBABFCD3DEFDA15750161545B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ Heavy Rain (2019) [Ru/Multi] (Build 5236766) Repack Let'sРlay
 magnet:?xt=urn:btih:9B32CDE80571BA7811ACF699EF84DF096E14D66E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:9B32CDE80571BA7811ACF699EF84DF096E14D66E
 ```bash
 magnet:?xt=urn:btih:B7E6E79D13B8EC5EF8B20BD900F28F22C75120AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:B7E6E79D13B8EC5EF8B20BD900F28F22C75120AA
 ```bash
 magnet:?xt=urn:btih:9A115DADA24614FF9ADC122237E1687B38DE270B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

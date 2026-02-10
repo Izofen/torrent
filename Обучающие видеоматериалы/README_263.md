@@ -21,6 +21,8 @@ Enterclass, Сергей Курбатов | Сложная вода. Прост�
 magnet:?xt=urn:btih:726594BC5999C433513FB50DBEAF4E76D929DF63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Schoolism, Kris Pearn | Storyboarding (2016) PCRec
 ```bash
 magnet:?xt=urn:btih:C4CCDA5CEFB86F214AC0D4CD1E7316D07D641A8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ SVS, Jake Parker | Mastering Perspective (2015) PCRec
 magnet:?xt=urn:btih:A12C356292B08774B1CC1D9AA043D3BAE810E52E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ SVS, Will Terry, Jake Parker | Posing Characters: Children's Book Edition (2015)
 ```bash
 magnet:?xt=urn:btih:A8F1997D8A700CAFC513AB70A4930024F1E10883
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ SVS, Will Terry | Illustrating Children's Books Part 2 (2015) PCRec [En, Ru]
 magnet:?xt=urn:btih:25747E32A91B9DE0ED5D3C9F999AAB6DEB155721
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Udemy, Marek Gryszkiewicz | WebRTC 2021 Practical Course. Create Video Chat Appl
 ```bash
 magnet:?xt=urn:btih:73D98811F012A14C3C931530A00AF80AFB7BB7B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Udemy, Артем Баданов| Изучение Java с нуля (2021) PCRec
 magnet:?xt=urn:btih:D9F6D156B0D98B6745AD8F6CE6E64595BB78F754
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ Udemy, Justin Mitchel | DjangoFlix - Build a Netflix-Like Service in Django & Py
 magnet:?xt=urn:btih:BE1E59BEEDC62554DE2810A2595281BC6CD4EE94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Profileschool, Никита Чесноков | Основы VFX в After Effects
 ```bash
 magnet:?xt=urn:btih:C095B9B7CD34831561B68ED29AC7D7C68AF600BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ software-testing.ru, О. Назина | Автоматизация тестов 
 magnet:?xt=urn:btih:56A9152A030EA2BE5B628C42CB5250639F78BE0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ Udemy, Data Is Good Academy | Data Analysis Masterclass (4 courses in 1)  (2021)
 magnet:?xt=urn:btih:A2DE7F370BA990CE23F4C7D0CA0CC98117913C3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ Go - это современный, безопасный по типу, ском
 magnet:?xt=urn:btih:53AE63BEB54019CF942A5BF530F7B11FD4BFAE67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ Udemy, Jaysen Batchelor, Austin Batchelor | The Ultimate Digital Painting Course
 ```bash
 magnet:?xt=urn:btih:E1CB8BC3E17ACCC77B1B04B210BC4649A26B6AE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ shop.makeupbyellin, Эллин Святимова | Визаж для себя (
 magnet:?xt=urn:btih:5B1B4341B4410D23D02DD48B19FC34225A2C8CE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ SQL Delight (клиент кэширования)(   Читать дальше..
 magnet:?xt=urn:btih:DB243F90E67C91710F49DE6793A04391A63C0963
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ CGMA, James Paick | Environment Design 2 James Paick (2012) PCRec
 magnet:?xt=urn:btih:22556185A6B829E511ADEACDCECAECFD2C711822
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ Gumroad, Eytan Zana | Color and Light (2014) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:0F7EA654B93714A3459B269E99B6B88FEB78FA7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +482,8 @@ CG-Cookie, Sander Mos | Landscapes Course (2016) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:AB216DBA9330ADEFCD2EA64D0592664A92661129
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +512,8 @@ Skillbox, Александр Кузнецов  и др. | JavaScript-фрейм�
 magnet:?xt=urn:btih:A22720A3A9B5F3F146C2AEB0DE889716878E80E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ Skillbox, Дмитрий Бородин | Математика для финан
 magnet:?xt=urn:btih:BA49E44A1566111CAD30AD8753508C36DDD1A7AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +568,8 @@ Kalacheva School, Вероника Калачёва | Цветные каран�
 magnet:?xt=urn:btih:DAA701AF979BC241F96804C24132361C15B7A814
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +594,8 @@ Proko | Anatomy of the Human Body: Skeleton (2018) PCRec
 magnet:?xt=urn:btih:7DEA63BF0F286D464C23FFE270A9BE93A345788D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +619,8 @@ Proko, Stan Prokopenko | Anatomy of the Human Body: Arms (2018) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:309CA5B5A6F74310CC4D2A69902FCE3CB6A74819
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +647,8 @@ Marco Bucci | Understanding and Painting the Head (2018) PCRec [En, Ru]
 magnet:?xt=urn:btih:EE77998151167999567A086BB571994383779652
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +672,8 @@ The Gnomon Workshop, Aaron Limonick | Environmental Design and Illustration (201
 ```bash
 magnet:?xt=urn:btih:1EBB89D4B045092D56D852935F2C0B0AB13FCE30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +699,8 @@ Masterclass, Dan Brown | Dan Brown Teaches Writing Thrillers (2018) PCRec
 ```bash
 magnet:?xt=urn:btih:6007AA461AC83B196242009AF694829E4C007CA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ The Triumphant Return of Diabolos (2022) [Multi] (3/dlc) License GOG [18+]
 magnet:?xt=urn:btih:55815F2FDE77EE387DDCA728657751A2BFC9DF69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Game of Thrones: A Telltale Games Series - это игра состоящая и
 ```bash
 magnet:?xt=urn:btih:0F69F43AA9BFC863787CE85D0CA2006A01CD65C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Strange Investigations 2: Two For Solitaire / Удивительные расс�
 magnet:?xt=urn:btih:700B491378D254EACFC357516AA6C17F78F67A97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Please Fix The Road - это красочная, минималистичная,
 ```bash
 magnet:?xt=urn:btih:C170B66DC698F58C42D819343BF423F2B002902A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Fantasy Mosaics 53: Mysterious Cosmos (2022) [En] (1.0) Unofficial
 magnet:?xt=urn:btih:D72E42AA5F9B64D4C4CB96D595FF0D3CF954F01D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Dispatch - это комедия о рабочем месте супергеро
 ```bash
 magnet:?xt=urn:btih:D442FE45C8C627DB3EB782DF155494263188D82A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ The Black Ice (2025) [Ru/Multi] (1.0) Repack Other s [Early Access]
 magnet:?xt=urn:btih:55C6D8473A1B0E204DD818098CFFEEB236DAFB9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Beneath - это шутер на выживание от первого лиц
 ```bash
 magnet:?xt=urn:btih:129ECC82F0BD96D8D33DC10C687805324AFD55B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Black Skylands (2021) [Ru/Multi] (1.0.0/dlc) License GOG
 magnet:?xt=urn:btih:BA4DE3D76EF7DB1111CFBC4CC40AB1D783424AB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Gord (2023) [Ru/Multi] (1.2.0.38299/dlc) Repack DjDI [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:B4BB9562566D3020E919994795E9C8DAD91BA62D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Turbo Overkill 1.0 наконец-то здесь! Ноги, руки, вело�
 magnet:?xt=urn:btih:9271D506AECF8343A8FB2B5B4F4688499A7322E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Wreckreation (2025) [Ru/Multi] (1.0.144924) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:30AE8AC68C8F42EBC442FD34753D26FD8841911B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Legendary Tales возвращаются с новой историей-прик
 magnet:?xt=urn:btih:0688C876BFCD34047F4C768ADDF59561F1A1182A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Evil Bank Manager (2018) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:0A1588BC5D6C4EA848F0A28794BE73D0A8BF3963
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Valakas Story (2019) [Ru/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:114874EDF31E0B22CD890250D6070A83192A91B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Tropico 6 (2019) [Ru] (1.070/dlc) Repack Other s [El Prez Edition]
 ```bash
 magnet:?xt=urn:btih:099B7B223949F85B5A4B12178B155C61224BCC62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Arise: A Simple Story (2019) [Ru/Multi] (1.0) Repack xatab
 magnet:?xt=urn:btih:6698B2654DC09A308E48C9DDFC8B7B23828EAF85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Lightracer Spark - это приключенческая научно-фанта
 ```bash
 magnet:?xt=urn:btih:086FCEC459C24AAA4279AE2E9325FDD1510B9073
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ The Unseen Fears 3: Last Dance / Невидимые страхи 3: Послед
 magnet:?xt=urn:btih:A45C74AA6C30F3868AE3881A933425E196705140
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Asterix & Obelix XXXL: The Ram From Hibernia (2022) [Ru/Multi] (1.03.2) License 
 ```bash
 magnet:?xt=urn:btih:602E19F437B25510660B510DA88D64FA731B6D47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ The Dark Pictures Anthology — это серия напряжённых кин�
 magnet:?xt=urn:btih:6FABB5FBF8DE73573E793E4B3C69177628532E10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Shelter Manager (2021) [Ru/Multi] (0.5.5_prod2) License TiNYiSO
 ```bash
 magnet:?xt=urn:btih:10CD3F0DC1443C9A18E390494B4232DF14F83E9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Assetto Corsa Competizione (2019) [Ru/Multi] (1.8.0/dlc) License CODEX
 magnet:?xt=urn:btih:D8DFB2310A08D552C81C3C459645407E1FDAF31E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Ship Graveyard Simulator (2021) [Ru/Multi] (1.0.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:CE990B6402019DEB867DEBDB3E0FFFE187134079
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ MXGP 2021 - The Official Motocross Videogame (2021) [Multi] (1.0b7737829) Licens
 magnet:?xt=urn:btih:0932C57F653BFA8367A0911A640FCB55DF5E2A86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ The Guild 3 (2017) [Ru/Multi] (1.0.6) License GOG
 ```bash
 magnet:?xt=urn:btih:1736C563CCAF0989FB20F72E962A581FBAE025DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

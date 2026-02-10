@@ -1,3 +1,29 @@
+###  Публикация: 289395   (918307) от 31.01.2011
+
+Лайон Спрэг де Камп, Флетчер Прэтт | Математика волшебства (Дипломированный чародей - 2) [2011] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_918307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключения психоаналитика Гарольда Ши продолжаются. На этот раз он со своим коллегой, доктором Чалмерсом, оказывается в царстве Фей, мире прекрасных дам и отважных рыцарей с весьма своеобразными представлениями об этикете, мире могущественных колдунов с кучей комплексов и мифических чудовищ с прекрасным аппетитом.Жанр: Юмористическое фэнтези
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1964D25B1DEAD667FC1A60ECCAC3508B240895E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367017   (918640) от 14.03.2020
 
 Джон Маррс | The One. Единственный (2020) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:C7989ECE371F4B47170B35A54076648A38A5A2F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:C7989ECE371F4B47170B35A54076648A38A5A2F8
 magnet:?xt=urn:btih:6F87E868C564D8F21AD2E9029D9D94A123394B55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:6F87E868C564D8F21AD2E9029D9D94A123394B55
 ```bash
 magnet:?xt=urn:btih:3C51021A8604C08B62819149AFA1551E2B909D94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:3C51021A8604C08B62819149AFA1551E2B909D94
 magnet:?xt=urn:btih:5A59B9C71D963014B04546F4E331ED60751BFD3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:5A59B9C71D963014B04546F4E331ED60751BFD3E
 ```bash
 magnet:?xt=urn:btih:D0A1C045C560EE16980B3DC47FBEF199F6FEDBD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:D0A1C045C560EE16980B3DC47FBEF199F6FEDBD0
 magnet:?xt=urn:btih:2132EADFFD26AC7C74B00A2DC94A4272018DE18B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:2132EADFFD26AC7C74B00A2DC94A4272018DE18B
 ```bash
 magnet:?xt=urn:btih:258D37C3FA68E2C13E8695A7EF813EE142BE40B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:258D37C3FA68E2C13E8695A7EF813EE142BE40B5
 magnet:?xt=urn:btih:BFFD2F18BB3883BEABFBE8685FEBEE1A7781BED0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:BFFD2F18BB3883BEABFBE8685FEBEE1A7781BED0
 magnet:?xt=urn:btih:B82A70B82D74A71CE8878394B22F750A06A94375
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +278,8 @@ magnet:?xt=urn:btih:B82A70B82D74A71CE8878394B22F750A06A94375
 ```bash
 magnet:?xt=urn:btih:60C555F4B00858C2496C787C0E221A0989ED894E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:60C555F4B00858C2496C787C0E221A0989ED894E
 magnet:?xt=urn:btih:78BCCC7AB0B35B15D9DF7F5C9D4D197D6425F174
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:78BCCC7AB0B35B15D9DF7F5C9D4D197D6425F174
 ```bash
 magnet:?xt=urn:btih:F0A2954D2C331D21CDA0DB1FC7DED6567F940170
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:F0A2954D2C331D21CDA0DB1FC7DED6567F940170
 magnet:?xt=urn:btih:451EC1AF401D0D2081DB07F35E8C38DD2DDDF14E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:451EC1AF401D0D2081DB07F35E8C38DD2DDDF14E
 ```bash
 magnet:?xt=urn:btih:E92CF99D1187DA69861035E124212A0BFAA14E77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:E92CF99D1187DA69861035E124212A0BFAA14E77
 magnet:?xt=urn:btih:3D675DCF05A70B2D973EBE387D997EB9455FECFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:3D675DCF05A70B2D973EBE387D997EB9455FECFE
 ```bash
 magnet:?xt=urn:btih:34C7E9B8033D655D9410BBA5AE691E00ADEBC7AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:34C7E9B8033D655D9410BBA5AE691E00ADEBC7AD
 magnet:?xt=urn:btih:37EC4D4FB4B400EBA022F926E3F87D986D3F2278
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +487,8 @@ magnet:?xt=urn:btih:37EC4D4FB4B400EBA022F926E3F87D986D3F2278
 ```bash
 magnet:?xt=urn:btih:BA99DFA55A22CB84B1BA83FDBB3A3FAC8E5E2F13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +515,8 @@ magnet:?xt=urn:btih:BA99DFA55A22CB84B1BA83FDBB3A3FAC8E5E2F13
 ```bash
 magnet:?xt=urn:btih:2D79A86081A496CB055085EC6AF09EE7D9EFDCD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:2D79A86081A496CB055085EC6AF09EE7D9EFDCD8
 magnet:?xt=urn:btih:8A1AB444C313129158341A268BA21B7CB0781E90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:8A1AB444C313129158341A268BA21B7CB0781E90
 magnet:?xt=urn:btih:8F41C9CFEC95F8225B6D2FFC0DD0E60EEDAEA528
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +596,8 @@ magnet:?xt=urn:btih:8F41C9CFEC95F8225B6D2FFC0DD0E60EEDAEA528
 ```bash
 magnet:?xt=urn:btih:3B275E9AB0F1A64FDAE1E8EACA9A09DA72508477
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:3B275E9AB0F1A64FDAE1E8EACA9A09DA72508477
 magnet:?xt=urn:btih:C411A522F1F23BC03643A630AE2A07EAC8C509D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:C411A522F1F23BC03643A630AE2A07EAC8C509D1
 ```bash
 magnet:?xt=urn:btih:5AB370BF814E61E53EAB1DD320525C1E510CE122
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,29 +679,7 @@ magnet:?xt=urn:btih:5AB370BF814E61E53EAB1DD320525C1E510CE122
 magnet:?xt=urn:btih:2165084E87A1A0BFADBD5B2472D2AB6EC6ECD92B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366618   (921752) от 12.03.2020
-
-Дикон Шерола | Черный Барон. Часть 2. По ту сторону зелёной сетки (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всё свое детство Дима Лесков провел в обшарпанном интернате на окраине Петербурга. Он не знал, кто его родители, где его настоящий дом, и уж тем более он не мог знать, почему видит в темноте и внушает людям страх. Оказавшись за пределами детского дома он впервые встречает себе подобного. Вот только с его появлением у Дмитрия погибает лучший друг, а сам он оказывается (   Читать дальше...   )Жанр: Фантастика, фэнтезиЯзык озвучки: РусскийПродолжительность: 05:56:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:297AE0C9329BA504B44BF402ED50CF5540FD6E0F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

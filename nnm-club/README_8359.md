@@ -24,6 +24,8 @@
 magnet:?xt=urn:btih:39F7BCF9864388152FC16C6D2A338C7ECC84224F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:39F7BCF9864388152FC16C6D2A338C7ECC84224F
 ```bash
 magnet:?xt=urn:btih:69A22D20A43BF7D72A9C517588507A874A1C540B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:69A22D20A43BF7D72A9C517588507A874A1C540B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:69A22D20A43BF7D72A9C517588507A874A1C540B
 ```bash
 magnet:?xt=urn:btih:D7991F065E16AC43C61ACFF6E91FCF0A5FAFA22C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:D7991F065E16AC43C61ACFF6E91FCF0A5FAFA22C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:D7991F065E16AC43C61ACFF6E91FCF0A5FAFA22C
 ```bash
 magnet:?xt=urn:btih:D26C95489ABCB1431741EE32AF80EBD0BF84176E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ Empire Drowns - Endless Nights (2025) [FLAC|Lossless|WEB-DL|tracks] <Doom, Gothi
 magnet:?xt=urn:btih:EBBCE35F243A323D129B8F95A23B349C62AD7BB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:EBBCE35F243A323D129B8F95A23B349C62AD7BB4
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:49D59FD5DF56A72DF3ADF6C679DD7C3DC3B087D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:49D59FD5DF56A72DF3ADF6C679DD7C3DC3B087D8
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:49D59FD5DF56A72DF3ADF6C679DD7C3DC3B087D8
 ```bash
 magnet:?xt=urn:btih:C5A8E372BA9C6B4A90294B34ACA1196ADE0C32E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:C5A8E372BA9C6B4A90294B34ACA1196ADE0C32E3
 magnet:?xt=urn:btih:5AC7D66D7952B91C38BD2CA5F1397C0506412A66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:5AC7D66D7952B91C38BD2CA5F1397C0506412A66
 ```bash
 magnet:?xt=urn:btih:F071B8E2D91FBA9CE702064B6873647AEBA93438
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:F071B8E2D91FBA9CE702064B6873647AEBA93438
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:F071B8E2D91FBA9CE702064B6873647AEBA93438
 ```bash
 magnet:?xt=urn:btih:0D30A0F28FD14A5ADD56EDDDDE6F5675978625D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:0D30A0F28FD14A5ADD56EDDDDE6F5675978625D2
 magnet:?xt=urn:btih:46039E99C77B14BC4CA2EC423787E22F0EA91FD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:46039E99C77B14BC4CA2EC423787E22F0EA91FD7
 ```bash
 magnet:?xt=urn:btih:82A3AD59014B6EAF79F9C71B009DD2251A88BF5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:82A3AD59014B6EAF79F9C71B009DD2251A88BF5F
 magnet:?xt=urn:btih:F594C34FFE6DA9E05449B8CD2CA6B5A33241E0BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ The Sojourn (2020) [Ru/Multi] (1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:FDF703D1CB8981087661C75E3E484E795824D6E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:FDF703D1CB8981087661C75E3E484E795824D6E3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:FDF703D1CB8981087661C75E3E484E795824D6E3
 ```bash
 magnet:?xt=urn:btih:B4D46F97047AA17F24A4B01A9AC1BC0C202DAAB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:B4D46F97047AA17F24A4B01A9AC1BC0C202DAAB0
 magnet:?xt=urn:btih:35FCDA4BB5CCE826C86D242858F4650522BBCC45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:35FCDA4BB5CCE826C86D242858F4650522BBCC45
 ```bash
 magnet:?xt=urn:btih:6318F34312C34A13C22FEBA102483B4495466B35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +638,8 @@ magnet:?xt=urn:btih:6318F34312C34A13C22FEBA102483B4495466B35
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +665,8 @@ magnet:?xt=urn:btih:6318F34312C34A13C22FEBA102483B4495466B35
 magnet:?xt=urn:btih:5AF57092955461FBC8082DE03B4DB6924A0A4279
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ magnet:?xt=urn:btih:5AF57092955461FBC8082DE03B4DB6924A0A4279
 ```bash
 magnet:?xt=urn:btih:120E32077431151FD8AE6D263B91E70841EE8667
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ VA - Mega Hits 2014 (2023) [OGG Vorbis|480 Kbps] <Pop>
 magnet:?xt=urn:btih:13D98AE3D7510AE76C5AC85BBB82EA0D5F86721B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:13D98AE3D7510AE76C5AC85BBB82EA0D5F86721B
 ```bash
 magnet:?xt=urn:btih:BACF0D3F6FFE386B3B4F14A290EF198921982FA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:BACF0D3F6FFE386B3B4F14A290EF198921982FA7
 magnet:?xt=urn:btih:5DD1F6719B1F1687E78100DC6CF0AC9648C502ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Watashi ni Tenshi ga Maiorita! Precious Friends | Ангел спустился 
 ```bash
 magnet:?xt=urn:btih:977C82BC8BF2F08CF460487B7E96975B88A899BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Joe Bonner Trio - Parade (1979) 1987, SteepleChase [FLAC|Lossless|tracks + .cue]
 magnet:?xt=urn:btih:F4CB03ADF89DBD71B2E0C6B0F56322106D098A82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:F4CB03ADF89DBD71B2E0C6B0F56322106D098A82
 ```bash
 magnet:?xt=urn:btih:BF31D998EF1F931C9217A7220E438F4EA3B751D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ Haunt - Mind Freeze (2020) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:58A6F361D5AED4C295D3B5E813F575E39E8A001B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ iA Writer 5.6.10 [Multi/Ru]
 magnet:?xt=urn:btih:D81ECAF927D8A6B84929682543FA54B5FE6C1F76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ Export for iTunes -  экспортируйте свои плейлисты и �
 ```bash
 magnet:?xt=urn:btih:B8BE4B1270C83FE2AE0F014736B23D20C2F12B63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ VA - Coastal Breeze: Chillout Your Mind (2023) FLAC [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:199CDDC050773C085C396BBB949CDCE038395D13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:199CDDC050773C085C396BBB949CDCE038395D13
 ```bash
 magnet:?xt=urn:btih:006D0DB4A0B54D07941F3E25116D56640C3A3D04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ Acres - Burning Throne (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alt.
 magnet:?xt=urn:btih:B94367117AFBF42D1DCB1CE63DD99B4957C8A23C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ FinePrint - это многофункциональный драйвер для 
 magnet:?xt=urn:btih:8A193F4148FD197D109FE6485FC296F7C1D385E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:8A193F4148FD197D109FE6485FC296F7C1D385E4
 ```bash
 magnet:?xt=urn:btih:333AF6B0AB5655751F4B29C15ADE958953E7D1A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ VA - Armin van Buuren - A State Of Trance 1121 (2023) [MP3|320 Kbps] <Trance, Pr
 magnet:?xt=urn:btih:28BC2DE68AC298BAEFC8BC4FAF9E8283EE60A317
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ Grazia — итальянское женское издание, выпуска�
 ```bash
 magnet:?xt=urn:btih:F52322539E44A78DE315A9E56712043B3443AEBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ WonderPen - приложение для как для профессиональ
 magnet:?xt=urn:btih:AEA3038893819EBC0D67A5671DB1CAA4495469C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ Magoshare Data Recovery - одно из самых мощных приложен
 magnet:?xt=urn:btih:212231C31A480C0130E05D670CA52E756998F550
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:4047F3F26C62BDB6ADFEE51F34861D2B4D05E077
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ Gololedz - Gololedz (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Crust>
 magnet:?xt=urn:btih:75E87E3C99803C5B42138105EF1756674DA56C67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ DxO PureRAW 2.1.1 build 1 RePack by KpoJIuK [Multi]
 magnet:?xt=urn:btih:ECB58ADA1BBCCF7FC4494A873780F6F561654A5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:ECB58ADA1BBCCF7FC4494A873780F6F561654A5E
 ```bash
 magnet:?xt=urn:btih:04498F04372AD4643A97024F01C0FF795E496C95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +616,8 @@ magnet:?xt=urn:btih:04498F04372AD4643A97024F01C0FF795E496C95
 magnet:?xt=urn:btih:A734ABB899D8248D59B1794D09057004A00791D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +641,8 @@ magnet:?xt=urn:btih:A734ABB899D8248D59B1794D09057004A00791D2
 ```bash
 magnet:?xt=urn:btih:50335FBCB9A57069BD8501E1E338D5DAABB7E757
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +671,8 @@ magnet:?xt=urn:btih:50335FBCB9A57069BD8501E1E338D5DAABB7E757
 magnet:?xt=urn:btih:F34E7355AE431DB7E47002C5FD81B3B868BFEBA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ Posterino – программа, ориентированная на созда
 ```bash
 magnet:?xt=urn:btih:3D87C6143ACE852E4F8B76041C04F33612DD5411
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

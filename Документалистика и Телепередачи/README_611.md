@@ -1,3 +1,29 @@
+###  Публикация: 1116781   (822074) от 20.03.2017
+
+Без обмана. Каша из топора (2017.03.20) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_822074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это масштабное потребительское расследование, задача которого дать зрителям подробные советы, как не попасть в неприятности за собственные деньги. В центре программы оказываются самые разные товары и услуги потребительского рынка, их "судят" авторитетные эксперты и рядовые люди. Корреспонденты программы часто выступают в роли тайных агентов, внедряющихся (   Читать дальше...   )Производство: РоссияТелекомпания: ТВЦЖанр: Документальный, расследованиеСубтитры: ОтсутствуютПродолжительность: ~ 00:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D2A2E62B6E85297B7935773D3D377DBC6557709
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 888101   (822175) от 09.05.2020
 
 Штурм Берлина. В логове зверя (2015) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:659CDC05BE0FB6A58E124BB07BC8F271EE4F0CA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:659CDC05BE0FB6A58E124BB07BC8F271EE4F0CA4
 magnet:?xt=urn:btih:B099DA129A60464FDD7FF4F73A461DB7D1597459
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:B099DA129A60464FDD7FF4F73A461DB7D1597459
 ```bash
 magnet:?xt=urn:btih:12859F669CC1839FEB685D5750196254486EE075
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:12859F669CC1839FEB685D5750196254486EE075
 magnet:?xt=urn:btih:0E32F3387978A373B594E9D4FEAE047725719E1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:0E32F3387978A373B594E9D4FEAE047725719E1D
 ```bash
 magnet:?xt=urn:btih:B25441B085C1E845315B2BB8947D2A3226AF8E49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:B25441B085C1E845315B2BB8947D2A3226AF8E49
 magnet:?xt=urn:btih:1C918D45C2F0A29D4F34FE2D875FC5A137E97787
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:1C918D45C2F0A29D4F34FE2D875FC5A137E97787
 ```bash
 magnet:?xt=urn:btih:1B2ABA412479F551533CC41B0DE270912DD6AF1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:1B2ABA412479F551533CC41B0DE270912DD6AF1C
 magnet:?xt=urn:btih:02EF790D93F0142C3EE3AEFE47CD637FFA22CF92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:02EF790D93F0142C3EE3AEFE47CD637FFA22CF92
 ```bash
 magnet:?xt=urn:btih:4A231EFB819F3312308964C0085A39C1CF8BB060
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:4A231EFB819F3312308964C0085A39C1CF8BB060
 magnet:?xt=urn:btih:A5A3F3168DB5411E34FDFAE06FAE77201EC1473D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:A5A3F3168DB5411E34FDFAE06FAE77201EC1473D
 ```bash
 magnet:?xt=urn:btih:B5D59D8A903798FE6735344643B7803563598EC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:B5D59D8A903798FE6735344643B7803563598EC4
 magnet:?xt=urn:btih:B014784E0D4AEB88DDC74592A88301CD55B709EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:B014784E0D4AEB88DDC74592A88301CD55B709EE
 ```bash
 magnet:?xt=urn:btih:852340684132AFC98311BFF5D5462FB6020EDEE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:852340684132AFC98311BFF5D5462FB6020EDEE4
 magnet:?xt=urn:btih:4A9EDDC26BFF4477557939D139473CC60722877E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:4A9EDDC26BFF4477557939D139473CC60722877E
 ```bash
 magnet:?xt=urn:btih:86E1D09A5E59FE1BE6595C85B6438D6E12DFA79A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:86E1D09A5E59FE1BE6595C85B6438D6E12DFA79A
 magnet:?xt=urn:btih:32C6056C248C32B155913636E92619746D21AF97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:32C6056C248C32B155913636E92619746D21AF97
 ```bash
 magnet:?xt=urn:btih:FC9A67BAE74A289B5EEBD85D10934E38A7C5A443
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:FC9A67BAE74A289B5EEBD85D10934E38A7C5A443
 magnet:?xt=urn:btih:E1F8DC6470A4850F0A7D623CC9D60F0FF7E49EE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +515,8 @@ magnet:?xt=urn:btih:E1F8DC6470A4850F0A7D623CC9D60F0FF7E49EE7
 magnet:?xt=urn:btih:F550098B50CACD01CE6BA3957CB5681B6820834F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +540,8 @@ magnet:?xt=urn:btih:F550098B50CACD01CE6BA3957CB5681B6820834F
 ```bash
 magnet:?xt=urn:btih:30EE8E7493EA66113054B07D2F8856EE56423258
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:30EE8E7493EA66113054B07D2F8856EE56423258
 magnet:?xt=urn:btih:DDDA1A0B68B9ABDC2E3313B3A714FB85C72F46D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:DDDA1A0B68B9ABDC2E3313B3A714FB85C72F46D2
 magnet:?xt=urn:btih:B3D25BF338959CA8EB8EFC508E8FB21DFABDAD56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:B3D25BF338959CA8EB8EFC508E8FB21DFABDAD56
 ```bash
 magnet:?xt=urn:btih:25538E1C92A11FFE8FCB9DF99EE2D7A6B1A79EA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:25538E1C92A11FFE8FCB9DF99EE2D7A6B1A79EA0
 magnet:?xt=urn:btih:438DAAB135AC4B1DE27CDA3F7365DF9F7FB3735B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,29 +675,7 @@ magnet:?xt=urn:btih:438DAAB135AC4B1DE27CDA3F7365DF9F7FB3735B
 magnet:?xt=urn:btih:10C4E2BA0B81EE63085BCAF35211F293B33B5DF6
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503041   (823035) от 17.10.2021
-
-Новые Танцы (2021) WEBRip [H.264/1080p] (сезон 1, выпуск 10)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новое танцевальное шоу! Лучшие танцовщики страны снова выходят на сцену. Теперь не будет наставников и их команд, а только очные танцевальные поединки между участниками в четырёх категориях: соло, дуэты, дети и команды. Оценивать выступления участников будет Мигель совместно с двумя приглашенными гостями. Компанию неизменной ведущей Ляйсан Утяшевой составит Ульяна (   Читать дальше...   )Телекомпания: Россия, Comedy Club Production, Телеканал ТНТЖанр: Реалити-шоу, танцы, развлекательный, хореографияСубтитры: ОтсутствуютПродолжительность: 01:29:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86F7D7FC14542B4F8B1D4FA04D85A4F65985FEF7
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -28,6 +28,8 @@ Leonard Cohen - Old Ideas (2012) [MP3|320 kbps]<Singer-Songwriter, Folk, Blues>
 magnet:?xt=urn:btih:6FE096F5C22844E1842B012FECC047141429ADB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ magnet:?xt=urn:btih:6FE096F5C22844E1842B012FECC047141429ADB9
 ```bash
 magnet:?xt=urn:btih:DE69A9597127D51BE77D54694442464EA5D67476
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ VA - Музыка для души 18 CD (2007-2009) [MP3|320 kbps]<Instrumental,
 magnet:?xt=urn:btih:F3CDFA691AEE6C28032960BD474F7D8C1AAD577F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +129,8 @@ Relaxing Dreams - Дискография (25 альбомов) (1994-2004) [MP3|
 magnet:?xt=urn:btih:1E2E4024B8AB7C155B469FD884A978B8CEBF937C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +156,8 @@ Password (Пароль) - настоящий бриллиант, вершина 
 ```bash
 magnet:?xt=urn:btih:3ABCD1793CDD58155AAB1301CF6CF795D7031D05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +202,8 @@ ________________________________________________________________________________
 magnet:?xt=urn:btih:FDEE10E85A47563B0EA8BC8782648BDAF4939A48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +237,8 @@ Two Steps From Hell - Invincible (2010) [FLAC|Lossless]<Trailer Music>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +270,8 @@ Angelight (Ангелайт) - Мир женских энергий (3 альб�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +306,8 @@ Score - Че Гевара: Дневники мотоциклиста / The Motor
 magnet:?xt=urn:btih:A9A067FCB7C6B04F253FE03D9E469E22A43A78C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +331,8 @@ OST Золотые хиты - Наше кино (2002) [MP3|320 kbps]<Soundtrack
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +367,8 @@ OST Г. Гладков - Обыкновенное чудо (1996) [MP3|320 kbps]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +401,8 @@ VA - The Rough Guide To The Cuban Music Story (2001) [FLAC|Lossless] <Latin, Afr
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +437,8 @@ OST - Disney Afternoon (1991) [MP3|192]<ost>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +472,8 @@ Keman Muzigi - Великолепный век / Muhtesem Yüzyil (2011) [MP3|12
 magnet:?xt=urn:btih:244083736FA8E81FA3CA10CA66C256D51AFF072F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +497,8 @@ OST - Всегда говори «ДА» / Yes Man (2008) [MP3|192-320 kbps]<Sou
 ```bash
 magnet:?xt=urn:btih:ADED8488A05D306ECDC5389535099C78CCF1291F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +533,8 @@ The Operative: No One Lives Forever - The Original Game Soundtrack (2001) [FLAC|
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +567,8 @@ Alan Silvestri & VA - Назад в будущее / Back To The Future (1985) [
 ```bash
 magnet:?xt=urn:btih:BF8A00815EFC3C2FD952FB82F3E8D345049A03AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +605,8 @@ Armik - The Best Of Armik / Casa De Amor (2002, 2012) [FLAC|Lossless]<Instrument
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +640,8 @@ VA - Compact Disc Club - Cosmo Latino [4CD Box Set] (2011) [FLAC|Lossless]<Latin
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +665,8 @@ The Phantom of the Opera at the Royal Albert Hall: In Celebration of 25 Years (2
 ```bash
 magnet:?xt=urn:btih:F851C7F2D3239651904B82870EA8CCF9D66329AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -661,6 +701,8 @@ VA - Compact Disc Club - Compact Disc Club - Emotions [4CD Box Set] (2010) [FLAC
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +735,8 @@ First Aid Kit - The Lion's Roar (2012) [MP3|320 kbps]<Folk, Indie, Acoustic>
 ```bash
 magnet:?xt=urn:btih:05EF5809381586352A268BA7E629AA5A84FAD4BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -727,6 +771,8 @@ Ennio Morricone - Super Gold Edition (6 CD Box Set) (2005) [MP3|320 kbps]<Soundt
 magnet:?xt=urn:btih:32248D86813FC148DC11272AB303DFDE6775A8B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -760,6 +806,8 @@ VA - Alan Wake (2012) [MP3|320 kbps]<Официальный саундтрек (
 magnet:?xt=urn:btih:91A466F51EF9EC706BA829DCD50035FD6DC8F45B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -783,6 +831,8 @@ Future World Music - Дискография (2004-2007) [MP3|192-320 kbps]<Trail
 ```bash
 magnet:?xt=urn:btih:EF3E442AB25D063BAF3DA295369560D21AAC7A63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -808,6 +858,8 @@ Audiomachine - 9 Albums (2006-2011) [MP3|256-320 kbps]<Soundtrack, Trailer music
 ```bash
 magnet:?xt=urn:btih:1B6B33F4AE2699045671B725DF4E09F57F1E5956
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

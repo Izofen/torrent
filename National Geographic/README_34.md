@@ -19,6 +19,8 @@ NGW: Дикая Корея. Голос природы / Wild Korea. Voice of nat
 magnet:?xt=urn:btih:AC039A2577EC4820911322B24DBB86709552056E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NG. История десятилетий / The '80s and '90s Greatest (2018) SA
 ```bash
 magnet:?xt=urn:btih:61D72D1619EBC36BF93457400C05EC3D0D944EDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NGW: Дикая Миссисипи, лучшее / Wild Mississippi (2018) HDTVR
 magnet:?xt=urn:btih:31D83E1A639BBEA761B71FDD1EB96CC544516A00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NG. Аляска: Новое Поколение / Life Below Zero: Next Generati
 ```bash
 magnet:?xt=urn:btih:7243AF29E64D5E2A264A677220B5F68AF61655F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ NGW: Львицы: борьба за выживание / Lions: The Hunt For Su
 magnet:?xt=urn:btih:6288A028B895397F4A1D6A7C4DF9DE50CB84F2CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ NGW: Тигриная королева Тару / Tiger Queen of Taru (2020) WEB
 ```bash
 magnet:?xt=urn:btih:554573D162FF09C76F2650FCB4FF1CD8B3AB67B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ NG: Космос: Возможные миры / Cosmos: Possible Worlds (2020) W
 magnet:?xt=urn:btih:3592EAEF3B558B064B27AF0F57B35E76C96C0010
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ NGW: Дикие охотники. Медведи / Wild Hunters. Bears (2019) WE
 ```bash
 magnet:?xt=urn:btih:D3C33CDE837A6710ED68C5B62D6BD75C1DE292B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ NGW: Дикие охотники. Кошки / Wild Hunters. Cats (2019) WEBRip 
 magnet:?xt=urn:btih:A4DA2DB1D4AB39BCCB6818A00B127B5B66114A3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ NGW: Дикие охотники. Рептилии / Wild Hunters. Reptiles (201
 ```bash
 magnet:?xt=urn:btih:2F9DEC1FDC60BDD483D1230A6F97886E0D316832
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ NGW: Дикие охотники. Волки и шакалы / Wild Hunters. Wol
 magnet:?xt=urn:btih:130985EDE0B155A24219CA76465CBC86E675D5E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ NGW: Дикие охотники. Змеи / Wild Hunters. Snakes (2019) WEBRip 
 ```bash
 magnet:?xt=urn:btih:F3A532A350C9E407C4F10D0E263D138165DA0EA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ NG: Спасти Нотр-Дам / Saving Notre-Dame / Sauver Notre-Dame (2020) 
 magnet:?xt=urn:btih:861E88B897938D2754B19C0CF3DFF31D5629DCE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ NG: Мегазаводы / Megafactories (2011-2012) HDTVRip [H.264/720p] (5 с�
 ```bash
 magnet:?xt=urn:btih:A0242B543CD828F4A95B5B1C7E3926020F54937E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ NG. Непокорный остров / Port Protection (Lawless Island) (2015) 
 magnet:?xt=urn:btih:65C334FC2C3C54C667490EC4F5F36336A4B704C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ NGW: Сесил: Наследие короля / Cecil: The Legacy of a King (20
 magnet:?xt=urn:btih:8F1730520FE839C184D35EE1B8C94BF64C05D3AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ NG: В Поисках гигантского осьминога / Search for the
 ```bash
 magnet:?xt=urn:btih:785106CEE44E1EA44617A204A1002A03B8670968
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ NG: Карта ада / Map of Hell (2016) HDTVRip [H.264/720p-LQ]
 magnet:?xt=urn:btih:838AC5452C6752423C8B51EC4914A57F31825454
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:838AC5452C6752423C8B51EC4914A57F31825454
 ```bash
 magnet:?xt=urn:btih:2D2B5E3731DD4C4ABF938F20AA9018CCEFF01572
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ NG. Храм фашизма / Nazi Temple of DOOM (2012) HDTVRip [H.264/1080i]
 magnet:?xt=urn:btih:3031F1A5B02D7CB54D430440291FB42454350DE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ NG: Земля под рентгеном / X-Ray Earth (2020) HDTVRip [H.264/720
 ```bash
 magnet:?xt=urn:btih:273B63947BE67FE5F43DF4CF5EA0354FE3853EC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ NG: Дикая природа Новой Зеландии: затерянный 
 magnet:?xt=urn:btih:EC092C0058120427AA2431C9FAAB5F9CED238514
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ NGW: Дикие Филиппины. Скрытые чудеса / Untamed Philip
 ```bash
 magnet:?xt=urn:btih:1505CC979FEE060D6556510B2F16BE10A5921555
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ NGW: Дикие Филиппины. Скрытые чудеса / Untamed Philip
 magnet:?xt=urn:btih:26DCF40E52817A5DF1E23A42CE405FAD83A7E9A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ NG: Дикая природа Филиппин / Untamed Philippines (2018) WEBR
 magnet:?xt=urn:btih:4D78917155203098918B883799A79FC981EEF7DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ NGW: Наследие леопарда / The Leopard Legacy (2021) WEBRip [H.264
 ```bash
 magnet:?xt=urn:btih:E458F1256E59594027ACCA3E2F630CB1F6297FEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:A5DE48870E2E1BAB548A19BDF8AA66FF804FB828
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Sidney Bechet - 1947 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Dixie
 ```bash
 magnet:?xt=urn:btih:9F4B681873D5F5EC75EC1DC0CCEA71ECBBE7E0F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Disharmony - Gods Made of Flesh (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Doo
 magnet:?xt=urn:btih:CD92C6F8431AB5D3C2E58E94974C05C90D74D4DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ VA - Fireplace Chill, Vol. 1 (2020) [AAC|~332 Kbps] <Lounge, Chill Out, Downtemp
 magnet:?xt=urn:btih:93AF8A6BB573CD0FE38E546B5DE5FADDC8C2A281
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:93AF8A6BB573CD0FE38E546B5DE5FADDC8C2A281
 magnet:?xt=urn:btih:4D6126FCB5337B164743A86CC130A6A80C252462
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ Tor Browser Bundle 11.0.11 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:E8FED167190606709AEB758EA8BBEB5026043E99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +189,8 @@ Baccara - Baccara (1977)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop>
 magnet:?xt=urn:btih:5CCFF4D651623339252A73CA4D8A37716199A78F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:BE7C6F7C317343F657E2BC36244571A74EA6E46B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -228,6 +244,8 @@ Wirethrone - Wirethrone (2018) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Meta
 magnet:?xt=urn:btih:15279E086C903544C7662D0746D68CAAF22C316C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ EdgeView 3 - это новейший просмотрщик изображени
 ```bash
 magnet:?xt=urn:btih:D31721306E6A44B7A426BA81CC959C861BEC913A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:D31721306E6A44B7A426BA81CC959C861BEC913A
 magnet:?xt=urn:btih:681935FA3C7182C5BBD433C549CBBD1A83F06861
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ magnet:?xt=urn:btih:681935FA3C7182C5BBD433C549CBBD1A83F06861
 ```bash
 magnet:?xt=urn:btih:0626268E18602EE36077B5F496C8CB7D6005FA96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +352,8 @@ Winterwar - Wizard of the North (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic De
 magnet:?xt=urn:btih:7FC254166DF9B59D29E683ECC43FF6A9E5A9F21C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ MediaInfo — позволит узнать техническую информ�
 magnet:?xt=urn:btih:454876C3939B73DEEFD568C2C97E95F9850175FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:454876C3939B73DEEFD568C2C97E95F9850175FF
 ```bash
 magnet:?xt=urn:btih:1F6445250D106ECEFF866B871D627788C479560F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ magnet:?xt=urn:btih:1F6445250D106ECEFF866B871D627788C479560F
 magnet:?xt=urn:btih:9D8A0855D777D1798F5DA76C407F56DD2DCEABF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ GraphicConverter 11 — полнофункциональный графичес�
 ```bash
 magnet:?xt=urn:btih:7F2A1E559CE8818FD6058D2BC2D8F4AF104136AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ Smart Driver Manager - это быстрый, простой и безопасн
 magnet:?xt=urn:btih:1CAEA3EAC2C13718222B4E8098EBB0B318CB0694
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:1CAEA3EAC2C13718222B4E8098EBB0B318CB0694
 ```bash
 magnet:?xt=urn:btih:D6678A813E210F6EC1EB37998961BB575FC55F4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +535,8 @@ magnet:?xt=urn:btih:D6678A813E210F6EC1EB37998961BB575FC55F4A
 magnet:?xt=urn:btih:863B12167CE1F7EE4AC77EAE3955107F87CE923D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ magnet:?xt=urn:btih:863B12167CE1F7EE4AC77EAE3955107F87CE923D
 ```bash
 magnet:?xt=urn:btih:DB9C382C343FEA0E55418DB1964F08D0E2B2858A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +587,8 @@ magnet:?xt=urn:btih:DB9C382C343FEA0E55418DB1964F08D0E2B2858A
 ```bash
 magnet:?xt=urn:btih:970CCA119795E348FD3541553D4D16E6B6BAC560
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +617,8 @@ Submarine Silence - Did Swans Ever See God? (2020) [FLAC|Lossless|image + .cue] 
 magnet:?xt=urn:btih:E644102CB3D88745DB0F1C66DD4768178E7DDEC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +646,8 @@ a-ha - Headlines and Deadlines (The Hits Of a-ha) (1991) [FLAC|Lossless|tracks +
 magnet:?xt=urn:btih:6A8877BB638C0DC6BBC19DCD9A4BDE6B755BCA9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +672,8 @@ VideoProc Converter 4K 5.5 [Multi]
 magnet:?xt=urn:btih:14B87C6FE7641A0BFFAAACA211125EE1E1807300
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ Warpips - стратегия в реальном времени с элемен�
 ```bash
 magnet:?xt=urn:btih:23EBCF21EAFDCD637B09C40D43BB2F140CF1ECBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

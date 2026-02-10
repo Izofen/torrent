@@ -19,6 +19,8 @@ FIFA 16 – первая игра в серии FIFA, в которой учас
 magnet:?xt=urn:btih:9AC821F79F504C327DA4FEF94C6983D291C2F43F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Sniper: Ghost Warrior 3 (2017) [Ru/En] (3.8.6/dlc) Repack Decepticon [Gold Editi
 ```bash
 magnet:?xt=urn:btih:2673CFB8E22E53C3A36609A411C5D926F5E69CA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Deber - это короткая платформенная игра, в кото
 magnet:?xt=urn:btih:1CE7D1369A9503DB6C4F5BE01E9B23FAC2BCC1C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Shadow Corridor 2 переносит игроков в кошмарный мир
 ```bash
 magnet:?xt=urn:btih:36E10A1DEF4292DE1E3ACFB0FBE12EA59B259A8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ The Thaumaturge - изометрическая ролевая игра с глу
 magnet:?xt=urn:btih:0210DF705F642340EDB37A8AB4A81D7CBDC7273C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Beat Slayer - гибрид из упрощенного рогалика и ри�
 ```bash
 magnet:?xt=urn:btih:3FCB5E1472C78BDAA2C91CAE4A29C03EEDA4F707
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ One Last Breath рассказывает историю о отчаянии, н�
 magnet:?xt=urn:btih:08D4E1BB2AB3FBBAFB4012D65DDF62112834F8FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ RimWorld (2018) [Ru/Multi] (1.5.4063/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:97219CC11A3F4DBEA0ED57A1136924DAE72B8595
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Children of the Sun бросает вас с головой в жестокую 
 magnet:?xt=urn:btih:EB19EBAB708A95DB250289EC260C5CB51DD8C02E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Terra Memoria - ролевая игра с фантастическим миро
 ```bash
 magnet:?xt=urn:btih:891207F58D3A3BB2126011477705FE64FDDF39C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ A Divine Guide To Puzzle Solving бросает вас в мир богов в �
 magnet:?xt=urn:btih:7F19DE4753E925F44B0B93FF5826A10EC586DF42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Children of the Sun бросает вас с головой в жестокую 
 ```bash
 magnet:?xt=urn:btih:772DF4DF07B479F775498BD8B65F33FC1025C4E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Voice Love on Air - это игра-симулятор знакомств BL, в
 magnet:?xt=urn:btih:8AD8FC8CD7663123BA891B0A3D64FEFCACCC0894
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ White Day 2: The Flower That Tells Lies – первый эпизод прикл
 ```bash
 magnet:?xt=urn:btih:1E68FABD109C96FB6CB32C591C9DB8E08F233AF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ CD 2: Trap Master - инновационный геймплей, в которо
 magnet:?xt=urn:btih:F976EFCCDD64D881DAEC9D77E7696F862C1E4667
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Nightmare House (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D156D6E7DFB1BA267308E10A4AF928214E48F916
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ FIFA 16 – первая игра в серии FIFA, в которой учас
 magnet:?xt=urn:btih:F8741C4FB9A0ADE9C51DC04C086218152DB5506D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Turbo Kid представляет собой метроидванию с дву
 ```bash
 magnet:?xt=urn:btih:DB93143A09B11DE563F60E1146B7C55D8296816F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ MythForce сочетает в себе все эти элементы в увл�
 magnet:?xt=urn:btih:B1622C261A33DDE24502A59DB0FC394C8603C628
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Inkbound - это тактическая РПГ, в которой вы смож
 ```bash
 magnet:?xt=urn:btih:DEF639125BDC92B07A17DB01563FB40AA42FD044
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ NightFeed предлагает уникальную смесь экшена, в�
 magnet:?xt=urn:btih:B3F5BC2A05300A9EC6D6B795C86554E176B271B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Monsters Domain - фэнтезийная игра, сочетающая в се�
 ```bash
 magnet:?xt=urn:btih:047FF93D2B2D3D2AB60AC6B4982F85906323EDED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ The Lost Village - это оригинальная смесь из иммерс�
 magnet:?xt=urn:btih:CD5E871FE4C76615D7494EFBE3893FCA51D0E4ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ White Day 2: The Flower That Tells Lies – первый эпизод прикл
 ```bash
 magnet:?xt=urn:btih:D87E041CAF687BFA5F348F2F1D77E921702A261A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Fractals of Destiny погружает в захватывающее прикл�
 magnet:?xt=urn:btih:FEDC028858C60A4D85F6C71C7ABC0B6FFE819A10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Broken Roads создана командой настоящих энтузиас
 ```bash
 magnet:?xt=urn:btih:5F3CA02C6264A17B1EE0E0D477AF261515D25033
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

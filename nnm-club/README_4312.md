@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@
 magnet:?xt=urn:btih:E06BC5627C02C3265320ADBEEEBA126990743473
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:E06BC5627C02C3265320ADBEEEBA126990743473
 ```bash
 magnet:?xt=urn:btih:BA9A58D729F6BE1C7F8ADA25672820F3519A50DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:BA9A58D729F6BE1C7F8ADA25672820F3519A50DC
 magnet:?xt=urn:btih:0DF033E2D597869DABB5210302E75DA44EBA8083
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:0DF033E2D597869DABB5210302E75DA44EBA8083
 ```bash
 magnet:?xt=urn:btih:ED3C695DC18BE50FC197AC9B0FEB787566CC82C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Zipp's Café - история о кафе в городе животных, на
 magnet:?xt=urn:btih:166158B271746E6A1CBB72622820F5ACEB0D16E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:166158B271746E6A1CBB72622820F5ACEB0D16E5
 ```bash
 magnet:?xt=urn:btih:2E6EB5817B5890917AF44DE9A3A0CFF81D7A9562
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:2E6EB5817B5890917AF44DE9A3A0CFF81D7A9562
 magnet:?xt=urn:btih:BC141F4F6FC158B2D0452B1D44F8625068BE008F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Tourist Trap в царстве виртуальных приключений в�
 ```bash
 magnet:?xt=urn:btih:30CE6ED92F1208A632DD5AB4398785AE3ADEB3C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Fuga: Melodies of Steel 2 переносит в разрушенный войн�
 magnet:?xt=urn:btih:B32FCA428B649CC73668A283C434450FC7BE190B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:B32FCA428B649CC73668A283C434450FC7BE190B
 ```bash
 magnet:?xt=urn:btih:BA0DA389E87D5965CA5BDB5044CB808C32B5C58C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:BA0DA389E87D5965CA5BDB5044CB808C32B5C58C
 magnet:?xt=urn:btih:C482D8DBDFAD10A6E2DF864E0048F1445D3FDD6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:C482D8DBDFAD10A6E2DF864E0048F1445D3FDD6B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:C482D8DBDFAD10A6E2DF864E0048F1445D3FDD6B
 magnet:?xt=urn:btih:AD079AB430CE2D5E2EC54810C30B1680D2DAE28E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Creature Lab - симулятор лаборанта, занимающегося
 ```bash
 magnet:?xt=urn:btih:C97E1F4D0CC55BC0F2D712B017B5498AFF93C866
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:C97E1F4D0CC55BC0F2D712B017B5498AFF93C866
 magnet:?xt=urn:btih:2DB62B70447CA62DCDEE14FB18D292650A115334
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ Singularity [Ru/En] (RePack/1.1) 2010 | R.G. Механики
 magnet:?xt=urn:btih:FBC795E38F4EAE5767F975901AA9308367C72289
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:2968C40C1B2FF080306E0C27ED2CA380196F74FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ Far Cry 3 [Ru] (RePack/1.04) 2012 | Audioslave
 magnet:?xt=urn:btih:E79B722A855C3CBE0B995D525A4B088CF9428204
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:E79B722A855C3CBE0B995D525A4B088CF9428204
 ```bash
 magnet:?xt=urn:btih:55858F303CD15D15083D4E5BB439D5F88B5C53AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +554,8 @@ FUEL [Ru/En] (RePack) 2009 | R.G. Механики
 magnet:?xt=urn:btih:30B83DD4D9FF6A358F1A390382061D99E947C5F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ magnet:?xt=urn:btih:30B83DD4D9FF6A358F1A390382061D99E947C5F8
 magnet:?xt=urn:btih:71CFB8BABA735E4DBE38825EE14E340BA6852B3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +608,8 @@ magnet:?xt=urn:btih:71CFB8BABA735E4DBE38825EE14E340BA6852B3B
 magnet:?xt=urn:btih:6C1B6AD357DC53CEF7FBDA359D74135E5EE3FC8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +633,8 @@ magnet:?xt=urn:btih:6C1B6AD357DC53CEF7FBDA359D74135E5EE3FC8B
 ```bash
 magnet:?xt=urn:btih:3712368F2AD5AEEDA3F840290E919D0DE07AA700
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +663,8 @@ VA - Русские Хиты 7 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:11E38F044C187A3A1BA7D282363348019C05E87A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ magnet:?xt=urn:btih:11E38F044C187A3A1BA7D282363348019C05E87A
 ```bash
 magnet:?xt=urn:btih:8E95AB7D08237350E3E32DBA9C4D3F3547EC46B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

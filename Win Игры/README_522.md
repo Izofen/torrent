@@ -1,27 +1,3 @@
-###  Публикация: 1082877   (918542) от 24.01.2017
-
-Rift (2011) [Ru/En] (4.0/hf9) License
-
->>Win Игры
->>Online (MMO)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вымышленная вселенная игры «Rift» существует между множеством различных измерений (жизнь, смерть, воздух, огонь, вода и земля), боги которые охраняли мир Телара запечатали планету магическим печатью, чтобы не дать проникнуть в него Регулосу Разрушителю, который пожирает миры. Со временем действие печати ослабло, что стало вызывать появление Разломов (англ. Rift), (   Читать дальше...   )Тип издания: LicenseРазработчик: Trion WorldsЖанр: RPG (Rogue, Action), 3D, 3rd Person, Online-onlyЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F10311F6534D113ADD314E4954984CDDAC73D72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988901   (918553) от 21.02.2016
 
 Immortal Love: Letter From The Past / Бессмертная любовь: Письмо из прошлого (2015) [Ru] Unofficial [Collector's Edition / Коллекционное издание]
@@ -42,6 +18,8 @@ Immortal Love: Letter From The Past / Бессмертная любовь: Пи�
 ```bash
 magnet:?xt=urn:btih:32FEFBC27B3A5888F50866252B77B833EE2529C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:32FEFBC27B3A5888F50866252B77B833EE2529C0
 magnet:?xt=urn:btih:FA9532D1B03DCE0A7A6E748415EE8FDE42C888D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ PuppetShow 8: The Face of Humanity (2016) [En] Unofficial [Collector's Edition /
 ```bash
 magnet:?xt=urn:btih:D31946E2813C5B7AA32978F48166D08F77B1D700
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Mysteries Of The Past: Shadow Of The Daemon (2016) [En] Unofficial [Platinum Edi
 magnet:?xt=urn:btih:752C1FEFEA41F52FE951BB9179CDB41762EF0F0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Lost Lands 2: The Four Horsemen / Потерянные земли: Четыре 
 ```bash
 magnet:?xt=urn:btih:C90DA2B64A09B093AA406DA1E5177DAACD4FF540
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Ministry of Broadcast (2020) [Ru/Multi] (1.1.0.0/upd4) Repack Other s
 magnet:?xt=urn:btih:2E144722AD5B13287AB9745B9D9CBFE095FB3EE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Hell Architect — игра, в которой вы можете создава�
 ```bash
 magnet:?xt=urn:btih:C09C7633F6B21DD58282E945C5CF55479AA3D2AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +202,8 @@ Reel Deal Slots Adventure III World Tour (L) [En] 2011
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +227,8 @@ Greak: Memories of Azur — это сайд-скроллер для одного
 ```bash
 magnet:?xt=urn:btih:C72ADA065006E48A05E7C5A6C88496C25BF1FB85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +254,8 @@ God Eater 2: Rage Burst является самостоятельным допо
 magnet:?xt=urn:btih:8345E35A30EC5EC02AC1C76D508E411FC8C7B9D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +279,8 @@ Oddworld: New 'n' Tasty (2015) [Ru/Multi] (1.06/dlc) Repack R.G. Механик�
 ```bash
 magnet:?xt=urn:btih:BA239836BA1BE16CB764EEACF489B30466ED64EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +306,8 @@ Quadrant (2015-2017) [Ru/Multi] (1.53) License POSTMORTEM
 magnet:?xt=urn:btih:17FB398B371E1DD981F4B22816BF49FC1D3247AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +331,8 @@ The Uncertain: Episode 1 - The Last Quiet Day / The Uncertain: Эпизод 1 - 
 ```bash
 magnet:?xt=urn:btih:4521F8F48C54B27393FB42A9B8F23C5C2C3F5056
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +358,8 @@ Entwined. Strings of Deception / Запутанное дело. Нити лжи 
 magnet:?xt=urn:btih:D326C24BE1A93B70339362091C13DACC7FD0CB95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +383,8 @@ Wasteland Remastered (2020) [Ru/Multi] (1.07) Repack Other s
 ```bash
 magnet:?xt=urn:btih:0EE8B0C0C7699FF84C1513DCC28829FC35D9680D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +410,8 @@ Devotion — это атмосферная игра ужасов от перво
 magnet:?xt=urn:btih:399E76B344EE2D12115AB03C851471122F7F3120
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +435,8 @@ DeadTruth: The Dark Path Ahead является эпизодическим хо�
 ```bash
 magnet:?xt=urn:btih:EEDBA4702246CB6E33FE9992AC5EB526D9D10E81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +462,8 @@ Dark City 4: Dublin (2020) [En] (1.0) Unofficial [Collector's Edition]
 magnet:?xt=urn:btih:0F50B7672FE658A3ADE16C9C6BE343B4A8EE56A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +487,8 @@ Hard Reset Redux (2016) [Ru/En] (1.1.3.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:3D998C8BE2FAE8D450F41A915BB801A5FEAB411B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +514,8 @@ God Eater 2: Rage Burst является самостоятельным допо
 magnet:?xt=urn:btih:C1ECB4BFE6617174C75029C3C4604494929DB767
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +539,8 @@ Jewel Keepers: Easter Island / Хранители сокровищ: остров
 ```bash
 magnet:?xt=urn:btih:5B4ECAEADCD4AD6447FEF6E6A9D93527D99F69F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +566,8 @@ Wonderburg / Вандербур (2009) [Ru] (1.0) Unofficial
 magnet:?xt=urn:btih:A887A405D0B977AE782F9BF0D6FD5982AF65CC14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +591,8 @@ Unbound: Worlds Apart (2021) [Ru/Multi] (1.0.3) License GOG
 ```bash
 magnet:?xt=urn:btih:2D5C178FF01551A03A87BF50396165B737D5E179
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +618,8 @@ Stygian: Reign of the Old Ones (2019) [Ru/Multi] (1.1.6/dlc) Repack Other s
 magnet:?xt=urn:btih:A70BD5186FC365796FA5E4DAEFFAED01B39B1888
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +643,34 @@ Stars in Shadow это пошаговая научно-фантастическ�
 ```bash
 magnet:?xt=urn:btih:B6135A205253A441FAE0D65C98670CB0D6F45E5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095542   (923688) от 21.01.2017
+
+Road Fist (2017) [En] (1.0) License PLAZA
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_923688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Road Fist — игра, стиль которой определен классическими фильмами-боевиками 80-90-х годов. Игроку предстоит выйти на темные городские улицы, чтобы сразиться с бандитами и очистить город от их влияния.Тип издания: LicenseРазработчик: Gabriel RodriguesЖанр: Action (Fighting), Arcade, 3DЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78B92211CE2A6232C23AC52C1916C1C63BAF99B1
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

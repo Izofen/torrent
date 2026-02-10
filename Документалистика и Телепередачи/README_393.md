@@ -1,3 +1,29 @@
+###  Публикация: 1051509   (532360) от 11.09.2016
+
+Танцы (2016.09.10) WEB-DL [H.264/720p-LQ] (сезон 3, выпуск 4)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_532360.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 августа на ТНТ стартует 3-й сезон самого масштабного танцевального шоу страны! Создатели обещают, что проект станет еще круче, ярче и мощнее: новые города, новые герои, новые «ТАНЦЫ»! География участников третьего сезона шоу «ТАНЦЫ» впечатляет! На телевизионные кастинги попали представители более 100 городов. И не только России, но и Прибалтики, Европы, Америки (   Читать дальше...   )Телекомпания: ТНТЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: 01:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:171AC1179193F27C8B62FED0BA5369BF20E9B58D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1051380   (532450) от 11.09.2016
 
 Русские соколы в небе Китая (2015) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:201F3D13878A050313D460A49A6F375A735A8245
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:201F3D13878A050313D460A49A6F375A735A8245
 magnet:?xt=urn:btih:24BA845BA9C96C8EFCBABC06B4BE880B242A8E9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ NG. Очевидцы: День Д / Eyewitness: D-Day (2019) HDTV [H.264/1080i-L
 ```bash
 magnet:?xt=urn:btih:F34E9F8B6AC87DA748A49A74CBF74D5A2133FB80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:F34E9F8B6AC87DA748A49A74CBF74D5A2133FB80
 magnet:?xt=urn:btih:2B7D892BE130E1C2A765C5EDC43F1003D2AAE7DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:2B7D892BE130E1C2A765C5EDC43F1003D2AAE7DB
 ```bash
 magnet:?xt=urn:btih:4D027B235329981950F8DAE8E05F5C579C0677C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:4D027B235329981950F8DAE8E05F5C579C0677C0
 magnet:?xt=urn:btih:D6CC59BA63537E1FC3A7085E61E9DBF3E845275F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:D6CC59BA63537E1FC3A7085E61E9DBF3E845275F
 ```bash
 magnet:?xt=urn:btih:678200591B9A011DB8FCA60E330AC68798D820B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:678200591B9A011DB8FCA60E330AC68798D820B3
 magnet:?xt=urn:btih:61BD665805ECCFA10C5C3E8FCE5415456095FD69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:61BD665805ECCFA10C5C3E8FCE5415456095FD69
 ```bash
 magnet:?xt=urn:btih:EFF9A3C6B7A98D6E02ABDAE279538DA452449628
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:EFF9A3C6B7A98D6E02ABDAE279538DA452449628
 magnet:?xt=urn:btih:4D5E5E1EB28495E032071D93466D203ABFAB904C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:4D5E5E1EB28495E032071D93466D203ABFAB904C
 ```bash
 magnet:?xt=urn:btih:DC3F1427E55D7AB04E3878CE39E8046253D07C87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:DC3F1427E55D7AB04E3878CE39E8046253D07C87
 ```bash
 magnet:?xt=urn:btih:692A4B1FB0C41F90283A95FC19EBEA0B026D1284
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:692A4B1FB0C41F90283A95FC19EBEA0B026D1284
 magnet:?xt=urn:btih:DBF4FF902DA175272FBA6EB324182F93398406DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:DBF4FF902DA175272FBA6EB324182F93398406DA
 magnet:?xt=urn:btih:1CB6C2549F4E4BFE4CE21B1B04BB138AFCF40328
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:1CB6C2549F4E4BFE4CE21B1B04BB138AFCF40328
 ```bash
 magnet:?xt=urn:btih:5368EEC43BCCE25355AFD15A291BC50139DE7352
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:5368EEC43BCCE25355AFD15A291BC50139DE7352
 magnet:?xt=urn:btih:10EBC4B4C706D34C2C25CD492D2A69E0C332E133
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:10EBC4B4C706D34C2C25CD492D2A69E0C332E133
 ```bash
 magnet:?xt=urn:btih:FF947C3A8486F965E71DE50C0860F3CE9143250D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:FF947C3A8486F965E71DE50C0860F3CE9143250D
 magnet:?xt=urn:btih:4F572A1690BE4F196A99F804FF378369E03834C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:4F572A1690BE4F196A99F804FF378369E03834C7
 ```bash
 magnet:?xt=urn:btih:C33220B12753F64AE9A683893C98547DBA740B6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:C33220B12753F64AE9A683893C98547DBA740B6C
 magnet:?xt=urn:btih:0BF75E77FCF4A9E3ED87312563BD48841E23F3AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:0BF75E77FCF4A9E3ED87312563BD48841E23F3AF
 ```bash
 magnet:?xt=urn:btih:788B7B80190B8FC3FF1B8E08034C7F511FBA09C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:788B7B80190B8FC3FF1B8E08034C7F511FBA09C4
 magnet:?xt=urn:btih:68FB05398EA51C1570A3AE582100AE15DC496D61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +620,8 @@ magnet:?xt=urn:btih:68FB05398EA51C1570A3AE582100AE15DC496D61
 ```bash
 magnet:?xt=urn:btih:039392CB3C78AB8AF3B2D0454B312C6C4326635B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:039392CB3C78AB8AF3B2D0454B312C6C4326635B
 magnet:?xt=urn:btih:FD27316232BB7D7B55EEF32C66C0A9B0A8F2ACD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,31 +673,7 @@ magnet:?xt=urn:btih:FD27316232BB7D7B55EEF32C66C0A9B0A8F2ACD2
 magnet:?xt=urn:btih:7347BD8C61EF8472CD0FF3B7640B817FBD17FB45
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926447   (533497) от 10.08.2015
-
-Дикая красота Корсики / Corsica wild beauty (2013) HDTVRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Средиземноморский остров Корсика - это достаточно внушительный по размерам уголок суши в данной акватории, но не этим он удивителен и примечателен.
-Экзотический и яркий мир Средиземного моря представлен тысячами островов, но Корсика всегда занимала особое место в плане флоры и фауны, истории и географии, климата, политического и общественного устройства.
-Данный регион (   Читать дальше...   )Производство: Франция | ARTE G.E.I.E., Centre National Du CinemaЖанр: Документальный, видовойРежиссер: Жан ФроманПеревод: Одноголосый закадровый, профессиональный | ТПО Ред МедиаПродолжительность: ~00:27:00 x 5
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2E90CBCB5AAA822AD64D00E6089C0304A332A69
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

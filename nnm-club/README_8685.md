@@ -19,6 +19,8 @@ Complete Internet Repair 5.0.1.3812 RePack (& Portable) by elchupacabra [Ru/En]
 magnet:?xt=urn:btih:C2A7ACD4632402F858561689B74A03F3EB0B9C0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:C2A7ACD4632402F858561689B74A03F3EB0B9C0A
 ```bash
 magnet:?xt=urn:btih:C49C7CD203867FA3C1182E9995D635B368733E14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ MKVToolnix - функциональный набор инструментов д
 magnet:?xt=urn:btih:A0F7F84A572114972C80AD23588445BE14CC974B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Adobe® Flash® Player - плагин для браузеров Internet Explore
 ```bash
 magnet:?xt=urn:btih:C3A51C410E7740475751B31876E919AAF853867E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:C3A51C410E7740475751B31876E919AAF853867E
 magnet:?xt=urn:btih:16EA0C7E1C0DDDEE1F363758AD85D0AD4AAF95C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Stand Up (2017.12.17) SATRip (сезон 7, выпуск 12: Даджест)
 ```bash
 magnet:?xt=urn:btih:7B028B7135A28AEDE28DF90A339C9AD5EB5D6866
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:7B028B7135A28AEDE28DF90A339C9AD5EB5D6866
 magnet:?xt=urn:btih:72D0C101DBB6A49664E14573AB6178F2348D9DC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:72D0C101DBB6A49664E14573AB6178F2348D9DC3
 ```bash
 magnet:?xt=urn:btih:C57DBA60C823CCDF1CFA2E459FDF51AA447DECA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:C57DBA60C823CCDF1CFA2E459FDF51AA447DECA4
 magnet:?xt=urn:btih:55D306BB4346C8C16A5F22B858BEB86CA2E52E1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:55D306BB4346C8C16A5F22B858BEB86CA2E52E1E
 magnet:?xt=urn:btih:B7DF72DCF3C77D31D2946D2F844D3DC01627E870
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ magnet:?xt=urn:btih:B7DF72DCF3C77D31D2946D2F844D3DC01627E870
 ```bash
 magnet:?xt=urn:btih:FA0B33DE96B22EBA68A26F8314EFDE9AD268EC1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ OMD (Orchestral Manoeuvres In The Dark) - The Punishment of Luxury (2017) 2CD De
 magnet:?xt=urn:btih:F618F1D3E69AFF56136B1B2D71115C7FD8607CD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:F618F1D3E69AFF56136B1B2D71115C7FD8607CD6
 ```bash
 magnet:?xt=urn:btih:7C05D4E994FD893E628FD40DC98AD4E5A6154FCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:7C05D4E994FD893E628FD40DC98AD4E5A6154FCE
 magnet:?xt=urn:btih:CCC766111C8BF2588AF6B21BEEDD7CA770FD9972
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:CCC766111C8BF2588AF6B21BEEDD7CA770FD9972
 ```bash
 magnet:?xt=urn:btih:F6AB7B44A3D939313886F664ED62FC9B193CFD8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Axel Rudi Pell - The Ballads V (2017) [MP3|320 Kbps] <Heavy Metal>
 magnet:?xt=urn:btih:40F739FA0FB0FD032C3C2C6378872A30EAEECBEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:40F739FA0FB0FD032C3C2C6378872A30EAEECBEC
 ```bash
 magnet:?xt=urn:btih:8C83DE7F7050E20D0793BC6E01389A88477C81D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:8C83DE7F7050E20D0793BC6E01389A88477C81D4
 magnet:?xt=urn:btih:C8A4CD4C11EEFDAD8329983FB91FF244C69A956B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:C8A4CD4C11EEFDAD8329983FB91FF244C69A956B
 ```bash
 magnet:?xt=urn:btih:961E0BB6F72796CEF15C9799318D3B6DF69E1E61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:961E0BB6F72796CEF15C9799318D3B6DF69E1E61
 magnet:?xt=urn:btih:F6697AC395014194EFA8593CBEC1C44EFBAB4F1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:F6697AC395014194EFA8593CBEC1C44EFBAB4F1E
 ```bash
 magnet:?xt=urn:btih:EE96CE424A7C2B134DD2E06464BEF730D0881DC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ AIMP – проигрыватель, включающий в себя множе
 magnet:?xt=urn:btih:50816FCDC8CFFB63C9726ED3035CED2C4384E3B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:50816FCDC8CFFB63C9726ED3035CED2C4384E3B7
 magnet:?xt=urn:btih:676E634D2D8C9C1D6356274D555C8093DF733BF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:676E634D2D8C9C1D6356274D555C8093DF733BF6
 ```bash
 magnet:?xt=urn:btih:C143985C1CAC2FC0094FB8E4B498B945BAC0D308
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ magnet:?xt=urn:btih:C143985C1CAC2FC0094FB8E4B498B945BAC0D308
 magnet:?xt=urn:btih:B8CA1FB84C137A4E90C2F4A932FD493163ABF7F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:B8CA1FB84C137A4E90C2F4A932FD493163ABF7F3
 ```bash
 magnet:?xt=urn:btih:CAE5ECAF2437C8F2336FFE52725C6D03234371B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

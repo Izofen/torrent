@@ -19,6 +19,8 @@ HeXen II (2) (1997) [En] (1.11 music fix) License GOG
 magnet:?xt=urn:btih:718DD40103F3C7D6155D042E63D7200974A2A2FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ GIMP — это редактор, позволяющий работать со �
 ```bash
 magnet:?xt=urn:btih:419CE0E7BC95E6704663163DC7124817402BB58B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Master Collection — лучшее из лучшего, содержащее 100
 magnet:?xt=urn:btih:C710B3A0F1D9C5859C99E06D20D7AE998408FD23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Corner Kitchen: Fast Food Simulator (2025) [Ru/Multi] (1.1.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B79580663BE9135473E7DED85ADF0529D9C5BA09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Tixati — это полноценный и бесплатный клиент с
 magnet:?xt=urn:btih:F34639B1E782B2E7CB7DB7217721AEFA88882BE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ WinTools.net – набор инструментов для оптимизаци
 ```bash
 magnet:?xt=urn:btih:BF7C5E93BEBB4539224051018FB423DB396FDF67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:BF7C5E93BEBB4539224051018FB423DB396FDF67
 magnet:?xt=urn:btih:8D9331682C6C38D0AA01D5EDF772A22EC319D621
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Wantless Solace at World’s End (2024) [Ru/En] (1.0.1000) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:F0E5539A873FD65995E1CFB60DE37C2ACD5B0079
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Udemy, Navid Abbas Zadeh | Interior design- autodesk 3dsmax and vray- from zero 
 magnet:?xt=urn:btih:2DD27680709408E92861FC3B8F2F46748ABF8F25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ HeXen: Deathkings of the Dark Citadel – модификация к оригин
 ```bash
 magnet:?xt=urn:btih:B3F902553BCD0ABC0ABF1AA3A8A1B4FD2CD35976
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Beyond Galaxyland - это космическая ролевая игра с п�
 magnet:?xt=urn:btih:AF437446F94592AA24C633EEFD7B7FB8F5F57814
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ IPTV Pro v9.0.9 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:562F99ADFF10C5835DAF5D0CAEA1216838BD1E94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:562F99ADFF10C5835DAF5D0CAEA1216838BD1E94
 magnet:?xt=urn:btih:7DF87BF23EBF25339B22157E75B01024B605022F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ MobiOffice - это полнофункциональный офисный пак
 ```bash
 magnet:?xt=urn:btih:BE2DA2C19E65FB1ADEFFD2220F38F78DFAC14684
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:BE2DA2C19E65FB1ADEFFD2220F38F78DFAC14684
 magnet:?xt=urn:btih:2896CBF364297280364EB5BFE59560CD600E3724
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ magnet:?xt=urn:btih:2896CBF364297280364EB5BFE59560CD600E3724
 ```bash
 magnet:?xt=urn:btih:6531338F482264339E7F1A0989EAF25C15B2E792
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ Michael Klastorin, Randal Atamaniuk | Артбук по фильмам Наза�
 magnet:?xt=urn:btih:FEB80497E0E29B4E6F0AA95C64A44C134B2C7297
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Gone Rogue можно назвать иммерсивным симуляторо
 ```bash
 magnet:?xt=urn:btih:8A46B9BC09338FAAC3D903F33651727508A90027
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ Control (2020) [Ru/Multi] (1.30/dlc) Repack seleZen [Ultimate Edition]
 magnet:?xt=urn:btih:EB2231D25333F2F7783C80D4840C7EDAFB04FF4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ AIMP 5.40 Build 2669 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:68119A9EF45310666092B376ABCF2D6F3431E10D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:68119A9EF45310666092B376ABCF2D6F3431E10D
 ```bash
 magnet:?xt=urn:btih:390C7C18005709D5D5C450A63EB917DF24D8E5F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:390C7C18005709D5D5C450A63EB917DF24D8E5F5
 magnet:?xt=urn:btih:6FB1E2DA9FC4BDC1930F44E56E5EE0658A1A3B39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ magnet:?xt=urn:btih:6FB1E2DA9FC4BDC1930F44E56E5EE0658A1A3B39
 ```bash
 magnet:?xt=urn:btih:39C8DA4BA7AA177E8AD65FE629CFEDF8D412314F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:39C8DA4BA7AA177E8AD65FE629CFEDF8D412314F
 magnet:?xt=urn:btih:EC1BD016B56A70EEA76D8333FADB3EE6D499E4C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ magnet:?xt=urn:btih:EC1BD016B56A70EEA76D8333FADB3EE6D499E4C2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:BF87E14EE49B0F12A09303D62C0A27882233D3CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

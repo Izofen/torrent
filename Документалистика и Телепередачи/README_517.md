@@ -1,3 +1,29 @@
+###  Публикация: 1024837   (713982) от 10.06.2016
+
+Оружие Первой мировой войны (2014) SATRip (Серии: 1-4 из 4)
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713982.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая Мировая, или как ее еще называют, Великая война, стала одной из самых кровопролитных в истории человечества. Это был итог военного противостояния двух европейских военно-политических блоков - Тройственного союза и Антанты. В общей сложности, в Первую Мировую, было вовлечено свыше 30 государств с общей численностью населения более 1 миллиарда. 10 миллионов (   Читать дальше...   )Телекомпания: Россия, ОАО «ТРК ВС РФ «ЗВЕЗДА»Жанр: Документальный, война, оружие, историяПродолжительность: 4 х ~ 00:38:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A4B6004CD2C86D2A8047C1DBFB183A99A133417
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024428   (714079) от 10.06.2016
 
 Пусть говорят - Аффтар жжот 12 (08.06.2016) SATRip
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:4A2EC22F99D430E093708260E6E2C66B174DE7BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -50,6 +78,8 @@ magnet:?xt=urn:btih:4A2EC22F99D430E093708260E6E2C66B174DE7BF
 magnet:?xt=urn:btih:F8769E091B31FDCF10629228AC1EBDCFDB75EFF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +103,8 @@ magnet:?xt=urn:btih:F8769E091B31FDCF10629228AC1EBDCFDB75EFF3
 ```bash
 magnet:?xt=urn:btih:FD7E2FD1DAB2D5F1F254360F81563D19BE96B837
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +130,8 @@ magnet:?xt=urn:btih:FD7E2FD1DAB2D5F1F254360F81563D19BE96B837
 magnet:?xt=urn:btih:FB75EE37A24A930280DF37D9EED2836662137979
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +155,8 @@ magnet:?xt=urn:btih:FB75EE37A24A930280DF37D9EED2836662137979
 ```bash
 magnet:?xt=urn:btih:C19A97428342EE4372FD3A2D2FEC57F80F87AAC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +182,8 @@ magnet:?xt=urn:btih:C19A97428342EE4372FD3A2D2FEC57F80F87AAC6
 magnet:?xt=urn:btih:8FAEBAC4A38FA1F237EE1390A2334EEE8290F98D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +207,8 @@ magnet:?xt=urn:btih:8FAEBAC4A38FA1F237EE1390A2334EEE8290F98D
 ```bash
 magnet:?xt=urn:btih:C5CAC558C74467298753E62EDF88EDC271D4CB9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +234,8 @@ magnet:?xt=urn:btih:C5CAC558C74467298753E62EDF88EDC271D4CB9E
 magnet:?xt=urn:btih:548D7632382055C299DDA2C9F4D8839DC93ED39A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +259,8 @@ magnet:?xt=urn:btih:548D7632382055C299DDA2C9F4D8839DC93ED39A
 ```bash
 magnet:?xt=urn:btih:344C6B2B97DC3588093A7F23F00C3E0FB1F00ADF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +286,8 @@ magnet:?xt=urn:btih:344C6B2B97DC3588093A7F23F00C3E0FB1F00ADF
 magnet:?xt=urn:btih:A7232BF3847E44CE5F0E2D8F7DD0C05453A971E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:A7232BF3847E44CE5F0E2D8F7DD0C05453A971E2
 magnet:?xt=urn:btih:FBE13E50BCC8B0ED3285985C7630E91493C319F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:FBE13E50BCC8B0ED3285985C7630E91493C319F0
 ```bash
 magnet:?xt=urn:btih:17365D4BDFD21187A5C512354518E20FF9277EE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +365,8 @@ Discovery Channel. Военный архив: под грифом «Топ-10» 
 magnet:?xt=urn:btih:DC7DAE6683C3ED96A0090707B31CE41A9C931295
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:DC7DAE6683C3ED96A0090707B31CE41A9C931295
 ```bash
 magnet:?xt=urn:btih:780D8E66367AA36420A847EB00B2349EBADC5213
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:780D8E66367AA36420A847EB00B2349EBADC5213
 magnet:?xt=urn:btih:E14FBDAAE3F26BBC21C8CB40A1548FA1B8B3496D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:E14FBDAAE3F26BBC21C8CB40A1548FA1B8B3496D
 ```bash
 magnet:?xt=urn:btih:F6EF02D73201B05610DE8205482A66D68EF7B692
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:F6EF02D73201B05610DE8205482A66D68EF7B692
 magnet:?xt=urn:btih:41705447C41C2537063FA3DC6D9217383B68BD84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:41705447C41C2537063FA3DC6D9217383B68BD84
 ```bash
 magnet:?xt=urn:btih:491E4436AA3EC182E4677124AC296918FC903FA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:491E4436AA3EC182E4677124AC296918FC903FA2
 magnet:?xt=urn:btih:7B0BB237BE123A3BB7CF12684AC1401E92C48CAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:7B0BB237BE123A3BB7CF12684AC1401E92C48CAA
 ```bash
 magnet:?xt=urn:btih:6ED2B0C94F96930567E0E9F96D2EB1E70A52B7D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:6ED2B0C94F96930567E0E9F96D2EB1E70A52B7D7
 magnet:?xt=urn:btih:1FAF2C546875C1F24B3BE4F8205276462BAAE8D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +598,8 @@ magnet:?xt=urn:btih:1FAF2C546875C1F24B3BE4F8205276462BAAE8D9
 ```bash
 magnet:?xt=urn:btih:5A2C5F9C03E1F8019A0A58D1DC939314C0C7BBDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:5A2C5F9C03E1F8019A0A58D1DC939314C0C7BBDA
 magnet:?xt=urn:btih:99201910650D28EE6DFFCB7B573487C07042892F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:99201910650D28EE6DFFCB7B573487C07042892F
 ```bash
 magnet:?xt=urn:btih:B04B9D5415106C49B15614D2BB8591C0C44BB157
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,29 +677,7 @@ magnet:?xt=urn:btih:B04B9D5415106C49B15614D2BB8591C0C44BB157
 magnet:?xt=urn:btih:0C363ECA81DAF8BE1B89DD18593DC05CBB87A656
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219162   (715510) от 13.04.2018
-
-Арсенал России (2010) SATRip (4 серии из 4)
-
->>Документалистика и Телепередачи
->>Военное дело
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал о советском и российском стрелковом оружии. В каждом выпуске рассказана история создания того или иного образца оружия и приведены любопытные факты. «Арсенал России» – это интересная и познавательная программа, проиллюстрированная кадрами исторической хроники и рассказами экспертов.Производство: Россия, ООО «Феникс-Тверь»Жанр: Документальный, оружие, историяРежиссер: Сергей КравчукПродолжительность: 4 х ~ 00:21:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD0571745867DD84BF95021FDEF8B8C8E11CDD7E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

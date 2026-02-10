@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:931E4D96ADD8C7B9660D2C426B4C1D267A2237D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Mega City Police / Mega City Force (2023) [Ru/Multi] (1.092) License GOG [Digita
 ```bash
 magnet:?xt=urn:btih:5E9E9D42C08B027FDCDB6289BA56F12A8455C9D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:5E9E9D42C08B027FDCDB6289BA56F12A8455C9D1
 magnet:?xt=urn:btih:25CB04673FF33622555301D0743E69B441CC9DBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:25CB04673FF33622555301D0743E69B441CC9DBC
 ```bash
 magnet:?xt=urn:btih:673C750BEB3B2FEC1AAAFACC9084EF8961895F72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:673C750BEB3B2FEC1AAAFACC9084EF8961895F72
 magnet:?xt=urn:btih:6ECCFF3007181E7FFE6126E01551A5305D00EDD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:6ECCFF3007181E7FFE6126E01551A5305D00EDD0
 ```bash
 magnet:?xt=urn:btih:FCED070408D11FBAC0ED8CAF8E64F653BBE3ED9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Sker Ritual – фантастический боевик, который мож
 magnet:?xt=urn:btih:4613408D41636F2D4DFF2149CB6004D1DCA48FF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ The Stone of Madness – тактическая стелс-игра в реал�
 ```bash
 magnet:?xt=urn:btih:603E8854244588CD7D374FA1ED96039D6ABEEC40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Menace from the Deep - захватывающая карточная игра в
 magnet:?xt=urn:btih:E78DB7D40C176208A719FA5A53894F617D553B68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:E78DB7D40C176208A719FA5A53894F617D553B68
 ```bash
 magnet:?xt=urn:btih:6A356A93A4774DD382EE0D694F5723E2708A029E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:6A356A93A4774DD382EE0D694F5723E2708A029E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (56190/dlc) Repack Other s [Deluxe
 ```bash
 magnet:?xt=urn:btih:EF710840FFB2BBB1183077EF961D513E2DFE080E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Riven (2024) [Ru/Multi] (1.7.1) Repack Let'sРlay [The Deluxe Edition]
 magnet:?xt=urn:btih:D2AEA7CC6B5FC1FBBB3F5441D6FB980707DC7B83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:D2AEA7CC6B5FC1FBBB3F5441D6FB980707DC7B83
 ```bash
 magnet:?xt=urn:btih:6ECED548FD0C6151E5F4F6EA91DDF7FC9510F1EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:6ECED548FD0C6151E5F4F6EA91DDF7FC9510F1EB
 ```bash
 magnet:?xt=urn:btih:E60505308F4B7843510DE114BAD4F0069B092E1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ Billy Idol - Dream Into It (2025) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, Rock
 magnet:?xt=urn:btih:FBE44ECD36A3EE09F19E06F1DB9ADB7A855E4121
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ VA - Compilation Part 158 Electronic (2025) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:D8203C7F200C42DFC2278E5F1C9248C226529EDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:D8203C7F200C42DFC2278E5F1C9248C226529EDC
 magnet:?xt=urn:btih:82BA6D092E3AAA36F1609BF1F4C0714DF99BE229
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:82BA6D092E3AAA36F1609BF1F4C0714DF99BE229
 ```bash
 magnet:?xt=urn:btih:4842334E99735CCB705E257BBED287F523066574
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ Billy Idol - Dream Into It (2025) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:61ADB96887F16D7CB0358EF2ED098811648E5810
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:61ADB96887F16D7CB0358EF2ED098811648E5810
 magnet:?xt=urn:btih:870BCA2AC741A3BCF0093DC7274CBE298C7FC1F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:870BCA2AC741A3BCF0093DC7274CBE298C7FC1F9
 ```bash
 magnet:?xt=urn:btih:2F9FA30FE6B52BB66F7A521255DC85D2D7517B39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ Bloom Vocal Choir представляет вам платформу для со
 magnet:?xt=urn:btih:20BBFF41B540A72D92F2E1CD13828382E731F6A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ Jup-8000 V впервые переносит культовый синтезат
 magnet:?xt=urn:btih:62E810E505ACE1856C6208A9AFB702A10B96226C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:E9F117D307BD09082358DAB177510F3AE64561EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +683,8 @@ Pure LoFi ваш незаменимый инструмент для аутент
 ```bash
 magnet:?xt=urn:btih:7F294DAA863A644734CB49AA582612BBC92A15D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

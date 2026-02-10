@@ -1,3 +1,29 @@
+###  Публикация: 578024   (1028992) от 26.02.2021
+
+И.И. Фоглеръ | Руководство къ изученiю шашечной игры (1881) [DJVU]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028992.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге подробно описываются правила игры в русские шашки и поддавки, приведены примеры с диаграммами, а также некоторые партии с комментариями и задачи, дана краткая историческая справка. От автора: "Книжка Петрова* кратка, без диаграмм, нотация в ней цифирная, но она очень хорошо составлена. Говорится в книжке у Петрова мало, но дельно и верно. Вот и всё, (   Читать дальше...   )Жанр: Учебная литература, досуг, раритетФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C45417595C2951EF4CE5A7D1FB380A9BDF0FF10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450312   (1029143) от 25.02.2021
 
 Валерий Медведев | Большая книга огородника (2021) [PDF]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:37AD32EEEC23BEA7134F1BF53677D0775FA402F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:37AD32EEEC23BEA7134F1BF53677D0775FA402F4
 magnet:?xt=urn:btih:698B537836EEA13AFBC20DE9989E7D38CB224F34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:698B537836EEA13AFBC20DE9989E7D38CB224F34
 ```bash
 magnet:?xt=urn:btih:481A9EEBE42E408C824528A6662B601A3E581346
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:481A9EEBE42E408C824528A6662B601A3E581346
 magnet:?xt=urn:btih:0F29B284AA1679A540D19AC49AF221B54B2B53C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:0F29B284AA1679A540D19AC49AF221B54B2B53C9
 ```bash
 magnet:?xt=urn:btih:2E6E815C799EDB1FC867632682C72F007ED4A494
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:2E6E815C799EDB1FC867632682C72F007ED4A494
 magnet:?xt=urn:btih:4E67CC03210C3B19B9559401BAE2F1937F6F5120
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:4E67CC03210C3B19B9559401BAE2F1937F6F5120
 ```bash
 magnet:?xt=urn:btih:81C6A581C5704677FCBDC59B36402781B602EA62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:81C6A581C5704677FCBDC59B36402781B602EA62
 magnet:?xt=urn:btih:B5AB26420D13C5F1C190CF51BC05C8290A2D7C39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:B5AB26420D13C5F1C190CF51BC05C8290A2D7C39
 magnet:?xt=urn:btih:A781E18E33847F976592DBCE7AE933723307FD38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:A781E18E33847F976592DBCE7AE933723307FD38
 ```bash
 magnet:?xt=urn:btih:E81D48FDE19908EDA68EB8ABA3608A51A63887BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:E81D48FDE19908EDA68EB8ABA3608A51A63887BD
 magnet:?xt=urn:btih:53B0E3E37258A05FCD5304A44110C9C4B8E9CF42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:53B0E3E37258A05FCD5304A44110C9C4B8E9CF42
 ```bash
 magnet:?xt=urn:btih:8B00479A6CFD7C51221AF687C3D94180BBF66448
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:8B00479A6CFD7C51221AF687C3D94180BBF66448
 magnet:?xt=urn:btih:01F98FBB9E38B082F72D7F950488A3C734665CB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:01F98FBB9E38B082F72D7F950488A3C734665CB7
 magnet:?xt=urn:btih:A76D26D3D5C806DBCD4DC684A888DFE0716D7C01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ COVID-19 – опасный и для большинства невидимый 
 ```bash
 magnet:?xt=urn:btih:C080C9FBE52CB003A6FEC6BCD3E70E82F098C49C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:C080C9FBE52CB003A6FEC6BCD3E70E82F098C49C
 magnet:?xt=urn:btih:435945F0E87D1624F9D1179AB5BDECC57B0EAE97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:435945F0E87D1624F9D1179AB5BDECC57B0EAE97
 ```bash
 magnet:?xt=urn:btih:76CAA4DC089F737E226CCC0D6C2FBC3069BB10EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:76CAA4DC089F737E226CCC0D6C2FBC3069BB10EF
 magnet:?xt=urn:btih:D79FA585D909236E0B8C274E9E67030E7ECA490D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:D79FA585D909236E0B8C274E9E67030E7ECA490D
 magnet:?xt=urn:btih:CA01DBEAE02C8590261A83BD2AB2024304FF26F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:CA01DBEAE02C8590261A83BD2AB2024304FF26F9
 ```bash
 magnet:?xt=urn:btih:A70287E677FDC76992248EEE0F00EF0BB4C55857
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +574,8 @@ magnet:?xt=urn:btih:A70287E677FDC76992248EEE0F00EF0BB4C55857
 magnet:?xt=urn:btih:93A339460A70DF19F41DCE5E369CEAFD90A52773
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:93A339460A70DF19F41DCE5E369CEAFD90A52773
 ```bash
 magnet:?xt=urn:btih:6B1C1036A2C1E19069DF8E3E66C2549C966BEAE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +627,8 @@ magnet:?xt=urn:btih:6B1C1036A2C1E19069DF8E3E66C2549C966BEAE5
 magnet:?xt=urn:btih:C31211AACC507930DA807E663642474C4015E2A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:C31211AACC507930DA807E663642474C4015E2A2
 ```bash
 magnet:?xt=urn:btih:6F68D3C899794C2A9E027A4D8755C42A54A62212
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,29 +679,7 @@ magnet:?xt=urn:btih:6F68D3C899794C2A9E027A4D8755C42A54A62212
 magnet:?xt=urn:btih:4CCC22CDF95349A81AFC20FE45474BABEF7383C3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448642   (1030662) от 18.02.2021
-
-Елена Синякова | Мастер обратной связи. В бизнесе и в жизни (2020) [EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обратная связь, или фидбэк, – одна из важнейших составляющих общения между людьми. В то же время именно здесь кроется очень много недопонимания, разочарования, раздражения и других далеко не самых приятных эмоций и ощущений. И ладно, если это были бы только эмоции и ощущения! На кону часто стоит успех в выполнении работы, отношения с руководством, родственниками (   Читать дальше...   )Жанр: Психология, Саморазвитие, Личностный ростФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CB1C1D9C77F49B73FDAA9016CB400E38FBB16B7
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

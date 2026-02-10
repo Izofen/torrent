@@ -19,6 +19,8 @@ Heat Guardian – это хардкорный боевик о мире вечн�
 magnet:?xt=urn:btih:2500E847C85F9A95F27041B0C0FDE1EA847CD00C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Dustoff Heli Rescue 2 (2017) [Ru/Multi] (21) License PLAZA
 ```bash
 magnet:?xt=urn:btih:CCAEF5A0B7A30270113880BD5D905DF16C06B3AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ LEGO City Undercover (2017) [Ru/En] (1.0/upd4) Repack xatab
 magnet:?xt=urn:btih:59879C8B331EF935C5C2DDB594B2B77EC08A3810
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Zombie Rollerz: Pinball Heroes - это сумасшедшая смесь кла
 magnet:?xt=urn:btih:DB120A4F24948EA09DAED78158F5B935D21BEE37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Diggers 1 и Diggers 2: Extractors [En] (RePack) 1993-1995
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Robot Wars: Arena of Destruction [Ru] (P) 2002
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Impact Winter (2017) [Ru/Multi] (1.0.2) Repack VseTop
 ```bash
 magnet:?xt=urn:btih:77CE56F7042B930A53575AB0B55B6A79246F5645
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Judgment: Apocalypse Survival Simulation (2018) [Ru/Multi] (1.0.3965) License SK
 magnet:?xt=urn:btih:1B4E7BFBD015F5721D0597C5CA035E9826D4BC3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Guitar Hero 3: Legends Of Rock / Guitar Hero 3. Легенды рока (2008) [
 ```bash
 magnet:?xt=urn:btih:C2A7787708A430F2A31278D481F348F9D3F2F087
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Rayman Origins (RePack/1.0.32504.1.02) [Ru] 2012 l Fenixx
 magnet:?xt=urn:btih:210EFEA8FC950602B56D2FE357FEBF30A85C7C99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Bio Menace (1993) [En] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:BD9A4066C8A3A242258F33369177D96700C1D87B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Dangerous Dave Антология [En] (RePack) 1988-1993 | RG games (Pilotus)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ LEGO Star Wars: The Force Awakens (2016) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:CD834FE2C85178D1060B4004DD814F16CCDA4840
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Distrust (2017) [Ru/Multi] (1.1.5.2) License GOG
 magnet:?xt=urn:btih:26809364CE1431E06A5EB4D8CDE8759BA544350F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ Dragon Ball FighterZ – эпичный, яркий, динамичный и н�
 ```bash
 magnet:?xt=urn:btih:A85A0856121BEFBA0100C1F04DB5AE5A5F1AA669
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ Emporium - короткая интерактивная виньетка. Emporiu
 magnet:?xt=urn:btih:5C5B3953DCC36A9803B48CBD175CFD99E1291AF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ Reservoir Dogs: Bloody Days (2017) [Ru/Multi] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:E8010E58823D54B8C82384E41B4E157A28742742
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ Lemma (2015) [Multi] (1.0) License RELOADED
 magnet:?xt=urn:btih:D16FA5B76F8F761D62759DBF9C678902FBB5C6A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ Basingstoke представляет собой суровый рогалик с
 ```bash
 magnet:?xt=urn:btih:482051F86FEA1E610D2A78526085F42697075A46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ Lost Orbit – космическая аркада от независимых �
 magnet:?xt=urn:btih:1D8139EF1754A859BD1325362BD822F82854C067
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ Broforce (2015) [En] (5399) Repack R.G. Origami
 ```bash
 magnet:?xt=urn:btih:45635C49D2F834D4B2F76EA4B5156050402B4D85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ Mighty No. 9 (2016) [Ru/Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:15315BD8501FB9FF90353463C29F30EFCA4C9F34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ Dragon Ball FighterZ – эпичный, яркий, динамичный и н�
 ```bash
 magnet:?xt=urn:btih:B4DE28662F0766EB2E654E6E3A89AC7A0EDF0A2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ Rayman Origins - это классический платформер не то�
 ```bash
 magnet:?xt=urn:btih:45B7A30204F90877C3D1CE3EC14BB3FCCC6C0BAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ Bunny Bricks [En] (RePack) 1993 | Pilotus (RG Games)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ She Wants Me Dead - В этой игре вы будете играть за г�
 ```bash
 magnet:?xt=urn:btih:E21E2C61CD8253885940723CCB12580C63B4C3C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

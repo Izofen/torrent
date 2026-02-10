@@ -22,6 +22,8 @@ VA - News & The Blues: Telling It Like It Is (1990) Series: Roots n' Blues [WavP
 magnet:?xt=urn:btih:A5A2CB6380B4DBE6933B3B537ABDA5FA017DF9BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Nagart - Вы это слышали? (2021) EP [MP3|320 Kbps] <Punk Rock>
 ```bash
 magnet:?xt=urn:btih:72C33BDD60B3D183A8E4724C65336DE8FF3983E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Clubbing Tech House: November Set (2021) [MP3|320 Kbps] <Tech House, Club, 
 magnet:?xt=urn:btih:3C62543FB7FEDA2AC4EA3B1275900504FED142AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Google Earth Pro 7.3.4.8573 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:17EDBB393825CCF2DC14018202B50EDA1FE53767
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:17EDBB393825CCF2DC14018202B50EDA1FE53767
 ```bash
 magnet:?xt=urn:btih:E0E0B192A05C70661FD0C90D178D0B35921E4BB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ Devil's Whiskey - Historias De Muerte (2023) [FLAC|Lossless|WEB-DL|tracks] <Ston
 magnet:?xt=urn:btih:06CC97DAC05DDCBB8CF65C5F845048C7A65630E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ Photo Supreme — вспомогательная программа для вл�
 ```bash
 magnet:?xt=urn:btih:C3C495A0DD4B5798F0B31F5902D1BACB2020258A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ VA - Traxsource Best Of Ibiza - Hype Chart (2016) [MP3|320 Kbps] <Deep House, Te
 magnet:?xt=urn:btih:73FE9D78969EE8A5E7F39844B3A4C918280BE311
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:73FE9D78969EE8A5E7F39844B3A4C918280BE311
 ```bash
 magnet:?xt=urn:btih:B91E74772DC986B417EE6F08D845A9DF18CE1E49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ VA - Beatport Drum And Bass: Sound Pack #376 (2021) [MP3|320 Kbps] <Drum And Bas
 magnet:?xt=urn:btih:365DDB1E72DCA7F32DED384254CE3E51ABD49CE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:365DDB1E72DCA7F32DED384254CE3E51ABD49CE3
 magnet:?xt=urn:btih:CB6FD272EBED3A00C5F430343A8240990CF65831
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ magnet:?xt=urn:btih:CB6FD272EBED3A00C5F430343A8240990CF65831
 ```bash
 magnet:?xt=urn:btih:B81CBE0DFE59745EED6D6EFA65CB29449F694504
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +352,8 @@ Gerard Joling - No More Boleros (1989) [MP3|320 Kbps] <Рор>
 magnet:?xt=urn:btih:C30675E517B00B6C04A5B2F09C87C42D1B7F1CB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +381,8 @@ Sax Gordon - Showtime! (2013) [MP3|320 Kbps] <Blues, Jazz, Funk>
 magnet:?xt=urn:btih:C1BB9F9F41AB5638A290634CFC4AF25FA7AF81B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 ```bash
 magnet:?xt=urn:btih:F100AB1DAF987E68DC39A6E87D545414B754E547
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ magnet:?xt=urn:btih:F100AB1DAF987E68DC39A6E87D545414B754E547
 magnet:?xt=urn:btih:7E8B97C8F0AC819566A89DBDF2E1AEDC8395BD27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ WhatsApp Messenger - это кросс-платформенное приложе
 ```bash
 magnet:?xt=urn:btih:DEE07892FD8E8608821844C0F23936BDBB7F03FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ Ziggurat возвращается и теперь он ещё лучше. Исп
 magnet:?xt=urn:btih:C7199E361700AAC8A26F4FECD08114928997C43A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:064727B7354BD426C983665123CE2754CDB8B2EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +540,8 @@ Marco Garau's Magic Opera - Battle of Ice (2023) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:5EB2A2A7143D1F16642DA5788CE0F7CF9FF663F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +565,8 @@ magnet:?xt=urn:btih:5EB2A2A7143D1F16642DA5788CE0F7CF9FF663F2
 ```bash
 magnet:?xt=urn:btih:14BC0F03220959FB1F06BD88D7029F5A830AE6AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ WinSnap - отличный многофункциональный инструм
 magnet:?xt=urn:btih:491BC5355EE52064E2C0F212B478B17BCBB3007D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ Entagma, Moritz Schwind | New in Houdini 18.5 (2020) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:70A499480E06BCE76D1C57A15839CDABC035150A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +644,8 @@ magnet:?xt=urn:btih:70A499480E06BCE76D1C57A15839CDABC035150A
 ```bash
 magnet:?xt=urn:btih:396685FCBDDA480FBB1D42A3A09CDBFEC5C85564
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +674,8 @@ VA - Exotic Paradise Vol.1 (2021) [MP3|320 Kbps] <Trance, UpliftingTrance>
 magnet:?xt=urn:btih:E6133A0BD6C355EC88212C67E556D106757F37F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ Nik Complete 4 Collection by DxO v4.3.4 U2B [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6856912F16A576466965929C43A1D4A5502717C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

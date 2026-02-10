@@ -1,57 +1,3 @@
-###  Публикация: 1181456   (323835) от 07.11.2017
-
-Teddy Wilson - Classic Jazz Archive: The Gentleman Of Swing (1934 - 1938) 2CD, 2004, Membran Music [FLAC|Lossless|image + .cue] <Swing, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323835.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - My Melancholy Baby:
-01. Somebody Loves Me [03:06]
-02. Sweet And Simple [03:22]
-03. Liza [03:07](   Читать дальше...   )Жанр: Swing, Piano JazzПродолжительность: 02:25:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6FAF8A5D4CE8807BF301A51417EA0EF9D15FFD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181511   (323836) от 07.11.2017
-
-VA - Recoverworld Radio 015 (Mixed by Para X) (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Physical Phase - Magma (Original Mix)
-02 Mike Spinner - Momentum (Original Mix)
-03 Casey Rasch - Through London (Original Mix)
-04 Manuel Le Saux & Astuni - Team Deathmatch (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:12:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF7D90BF44D732E10F2D722149ABD1F24ECF9B1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181390   (323837) от 07.11.2017
 
 VA - Sunrise Blend - 2017 (Compilation) [MP3|320 Kbps] <House, Deep House, Big Room>
@@ -75,6 +21,8 @@ VA - Sunrise Blend - 2017 (Compilation) [MP3|320 Kbps] <House, Deep House, Big R
 ```bash
 magnet:?xt=urn:btih:CAC3C5A6923D4BFA4B3448D9BB69F3BDD1801E3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +51,8 @@ ChronoSync представляет собой приложение для Mac, 
 magnet:?xt=urn:btih:3C637E669EACB54BC8668282A5C18255C8205B1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +79,8 @@ VA - Silk Music Showcase 06 (Mixed by Jacob Henry & Tom Fall) (2017) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:3CC5402511949152902B41BB6AB55F9E860ACEFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +109,8 @@ magnet:?xt=urn:btih:3CC5402511949152902B41BB6AB55F9E860ACEFF
 magnet:?xt=urn:btih:5D53480735D85CB2E3E08978440AE2FE28FB24D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +137,8 @@ Phil Woods - Freedom Jazz Dance (1969) 1990, Moon Records [FLAC|Lossless|image +
 magnet:?xt=urn:btih:DA68FAFCA523BC428A514FD025178A9552572298
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +163,8 @@ magnet:?xt=urn:btih:DA68FAFCA523BC428A514FD025178A9552572298
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -233,6 +191,8 @@ RamCleaner 7.1[Eng]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -257,6 +217,8 @@ RamCleaner 7.1[Eng]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +242,8 @@ RamCleaner 7.1[Eng]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +272,8 @@ V.A. - Rock Hearts Collection (2011) (4CD Box Set) [FLAC|Lossless]<Rock ballads>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +298,8 @@ V.A. - Rock Hearts Collection (2011) (4CD Box Set) [FLAC|Lossless]<Rock ballads>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +326,8 @@ V.A. - Rock Hearts Collection (2011) (4CD Box Set) [FLAC|Lossless]<Rock ballads>
 magnet:?xt=urn:btih:BCB68D24639361E4C3DDDD6DCE504C5498C13ED9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +351,8 @@ magnet:?xt=urn:btih:BCB68D24639361E4C3DDDD6DCE504C5498C13ED9
 ```bash
 magnet:?xt=urn:btih:9280B9217DAAC49126E5B235C4C647AE4C1C075A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +378,8 @@ magnet:?xt=urn:btih:9280B9217DAAC49126E5B235C4C647AE4C1C075A
 magnet:?xt=urn:btih:A87A2E25F929FC5888799B7CC9C9A0A32CA1E8A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +403,8 @@ magnet:?xt=urn:btih:A87A2E25F929FC5888799B7CC9C9A0A32CA1E8A4
 ```bash
 magnet:?xt=urn:btih:DAF278A10EAB63D9125D90090184B85B5C000427
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +430,8 @@ magnet:?xt=urn:btih:DAF278A10EAB63D9125D90090184B85B5C000427
 magnet:?xt=urn:btih:D936BDB814AF230231BDE8DA26CC694A88CD45E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +455,8 @@ magnet:?xt=urn:btih:D936BDB814AF230231BDE8DA26CC694A88CD45E7
 ```bash
 magnet:?xt=urn:btih:190AF8B55E459A9D41294CF12DCD731C79265BB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +484,8 @@ magnet:?xt=urn:btih:190AF8B55E459A9D41294CF12DCD731C79265BB0
 magnet:?xt=urn:btih:01EACC88ECCB7F72568A5A29B203039B6265E4FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +509,8 @@ magnet:?xt=urn:btih:01EACC88ECCB7F72568A5A29B203039B6265E4FB
 ```bash
 magnet:?xt=urn:btih:F0682F1C1D9F0DFC59734B9C8C1BD7FEB7E75741
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +536,8 @@ magnet:?xt=urn:btih:F0682F1C1D9F0DFC59734B9C8C1BD7FEB7E75741
 magnet:?xt=urn:btih:43A1D1BDE99E5AC58F327954A527EB183E31ED86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +561,8 @@ magnet:?xt=urn:btih:43A1D1BDE99E5AC58F327954A527EB183E31ED86
 ```bash
 magnet:?xt=urn:btih:480B3E17A69D24B536D2A38FAE359715D3ECE94B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +589,8 @@ magnet:?xt=urn:btih:480B3E17A69D24B536D2A38FAE359715D3ECE94B
 magnet:?xt=urn:btih:D9F35FC5069606D5094192D037BC246BAAB942DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +615,8 @@ magnet:?xt=urn:btih:D9F35FC5069606D5094192D037BC246BAAB942DA
 magnet:?xt=urn:btih:612B9F016F4F56246F9EFBF235ECB6DE5F55BEFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +640,62 @@ magnet:?xt=urn:btih:612B9F016F4F56246F9EFBF235ECB6DE5F55BEFA
 ```bash
 magnet:?xt=urn:btih:9DA409812C1AA57BF7BDCFD66D27E9A61528C77E
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958433   (323875) от 21.11.2015
+
+Обои - Сборник игровых обоев. 2560x1440 - 50 шт [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка качественных игровых обоев для вашего рабочего стола.Формат: JPGРазрешение файлов: 2560x1440
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:234A1AF5FCD3439DD4F2337FF6822E12F1B1D46B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958551   (323876) от 21.11.2015
+
+Диана Килина | 2 (2015) [FB2]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая книга серии 1+1=?
+
+Я влюбилась. Влюбилась, пожалуй, впервые в жизни; бесповоротно и без оглядки. Я влюбилась в эти горячие сильные руки; в улыбку, из–за которой меня бросает то в жар, то в холод; в ровные интонации голоса и в короткий жест рукой, когда он поправляет свои длинные золотистые с рыжинкой волосы. Влюбилась, дура. Влюбилась в этот огромный город; (   Читать дальше...   )Жанр: Современные любовные романы, ЭротикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93D4682BE8A812F5487003BF66EFCDC928BDB855
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

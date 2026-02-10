@@ -19,6 +19,8 @@ Cartel Tycoon (2021) [Ru/Multi] (1.0.9.6411/dlc) License GOG
 magnet:?xt=urn:btih:E0EF508844ED30521FCEB167AE8F33022801A802
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Showgunners (2023) [Ru/Multi] (1.1.2_58602/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:03E1ECB0FC4C78783C4AF796268EBBF2FE5B6A61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Shadows Over Loathing - это приключенческая RPG в жанре 
 magnet:?xt=urn:btih:1E8234478073D5DA9C3A6AB73CDA6EAC47ECC9A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Maze of Realities 3: Ride in the Sky (2023) [Multi] (1.0) Unofficial [Collector'
 ```bash
 magnet:?xt=urn:btih:153877C9F6306811893A628445C5057E53476E64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Need for Speed, одна из ведущих игровых серий возв�
 magnet:?xt=urn:btih:217C85B5F00C51263FDA51C1A482EA1F274E29B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Sally Face (2016-2019) [Ru/Multi] (1.5.46) License GOG [Episodes 1-5]
 ```bash
 magnet:?xt=urn:btih:F1EFE74ADE663424A7B84BEC5F8E69F7EB46E187
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Little Nightmares (2025) [Ru/Multi] (Build 19756066) Scene Rune [Enhanced Editio
 magnet:?xt=urn:btih:6C608068F42ACE802060939495441E539226E97E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Little Nightmares III - это новая часть серии, предста�
 ```bash
 magnet:?xt=urn:btih:8C0D2801D88EB9DF47E667D6B099CD1A2D50B030
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Rise of the Tomb Raider (2016) [Ru/Multi] (1.0.1.0/dlc) Repack Yaroslav98 [20 Ye
 magnet:?xt=urn:btih:79282748DC0B1585053A801B1F9DCCF7BC22305C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Lethal Honor - Order of the Apocalypse (2025) [Multi] (Build 20336899) Scene Run
 ```bash
 magnet:?xt=urn:btih:D6A69769A15D5B213B015D8A5D7112981363CEF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Hyperviolent (2023) [Ru/Multi] (1.0.0.2) Repack FitGirl
 magnet:?xt=urn:btih:E6C6F395ED0CBFDD464F90929773746D28C21326
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Autobahn Police Simulator 3 позволяет вам играть за офиц
 ```bash
 magnet:?xt=urn:btih:95123A04FA4A7EE2C636D82AF8D4650DD654DDDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Dead Silence - Echoes of the Damned (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:A9CA3792F923F5BFE6C3790FD0A667178E86E59A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Kathy Rain: Director's Cut (2021) [Ru/Multi] (1.0.3.5273) License GOG [Deluxe Ed
 ```bash
 magnet:?xt=urn:btih:AD3E2303C415CF2BFA0BB04E5A702013E34989B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Knight Cats 2: Waves on the Water / Коты-рыцари 2: Волны на в�
 magnet:?xt=urn:btih:D146BF871B329536B6CB2E6484C671F9AAB69528
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Bendy Lone Wolf (2025) [Ru/Multi] (2.0.0) Scene FairLight
 ```bash
 magnet:?xt=urn:btih:99BCF336F6F29D5563DC2D1BF8D3C9F7AC2E91C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Slime Rancher 2 (2025) [Ru/Multi] (1.0.0) Scene Rune
 magnet:?xt=urn:btih:5B0869FB9B6A59F304CCCEEDA5BB8B576F48A36E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ You Will Die Here Tonight - ролевой экшен с пошаговыми э
 ```bash
 magnet:?xt=urn:btih:EE7A24D6DFC8D9C0135E91F7EE3834799582E552
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Cyber Shadow – инди-платформер с видом сбоку, име�
 magnet:?xt=urn:btih:2341B798F6BC74888E277B1C5098D0421AFBE03A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Need For Speed: Rivals (2013) [Ru/En] (1.4.0.0/dlc) Repack Decepticon [Complete 
 ```bash
 magnet:?xt=urn:btih:F4C3E1808FB82B019BE3D5C592837082422B8D89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Buried Alive погружает игроков в клаустрофобичес
 magnet:?xt=urn:btih:C2E664F2F5E8E0F11A2B3895EE14D45550B746E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Trinity Fusion – это выполненный в 2.5D научно-фанта
 ```bash
 magnet:?xt=urn:btih:58D0AA660455A21606A6F1818B5E11F358D63A44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ The Fabulous Fear Machine - стратегическая игра с увлек�
 magnet:?xt=urn:btih:502298222552E20AB50AD69793EDCDFAE30EA9A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Asterigos: Curse of the Stars (2022) [Ru/Multi] (1.08rc1/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:5DB4AD1019302903FE052CAE67F2AD7236F86DAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Need For Speed: Shift 2 Unleashed (2011) [Ru/En] (1.0.2.2/dlc) Repack Decepticon
 magnet:?xt=urn:btih:D64811789E9FAA34D6C3EC8F5445316B2FCB9500
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Stay Still 2 (2023) [En] (1.0) Repack DjDI
 ```bash
 magnet:?xt=urn:btih:57D2AE09742F25BDB7D26CCDE5BE4CD5E844E822
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

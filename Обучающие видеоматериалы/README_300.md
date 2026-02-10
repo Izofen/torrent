@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:7FF1A1F282321209C6EA9603FF3D5C3D5147F2CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Udemy, Chad Darby | Spring & Hibernate for Beginners (includes Spring Boot) (202
 magnet:?xt=urn:btih:441E602C48DA4FE3D792281B39E494EA87DFBCA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Coding Ninjas | Java Foundation with Data Structures & Algorithms (2020) PCRec [
 ```bash
 magnet:?xt=urn:btih:2C2D991C8106EEC06F96227888D41BC1E7F1127B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Patrick Gladys | Creating Game-Ready Vegetation (2019) PCRec [En, Ru]
 magnet:?xt=urn:btih:C968F5D05C30319DF736A972FE82D5FF9F5C43F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ Alex Jerjomin | Sculpting a Stylized Axe in ZBrush (2015) PCRec
 magnet:?xt=urn:btih:C23BB38534B5841E55F0C3B250DE5C51D698AC93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ Jonathan Lampel | Normal Map Modeling for Games (2017) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:A443CAF2C42015E42221767A04708C065D9B4D3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ Coursera, Indranil Gupta | Cloud Computing Concepts, Part 1-2 (2020) PCRec [En /
 magnet:?xt=urn:btih:EB08CC522CB177E3FEA2CC146655EB5F5BE3B004
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ John Moncrief | Introduction to Particles in Houdini (2015) PCRec
 ```bash
 magnet:?xt=urn:btih:467541E852577E65E5AC0CE16DEFF3E1E6391CB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ Udemy, Алекс Маршал | Golang для начинающих (2021) PCRec
 magnet:?xt=urn:btih:9A9EB062CFD6D069A8562A2DA60642A9ED39E03C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ Udemy, Alex Cordebard | Ультимативный курс по скульпт�
 ```bash
 magnet:?xt=urn:btih:A9089E63409D1E0494F9517C10381E60C7A02DB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +297,8 @@ Udemy, Maximilian Schwarzmuller | React - The Complete Guide (incl Hooks, React 
 magnet:?xt=urn:btih:BAE56EA210072F116FCCF811C03867BFF05BCC6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ CSS - сокращение от Cascading Style Sheets - это «язык пр�
 magnet:?xt=urn:btih:AAD79995715FC3F4DBE36EE82F0999D57A3D1268
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:AAD79995715FC3F4DBE36EE82F0999D57A3D1268
 ```bash
 magnet:?xt=urn:btih:5E2453492C8DA2D620C3F166792C2F15D2A92B2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ magnet:?xt=urn:btih:5E2453492C8DA2D620C3F166792C2F15D2A92B2E
 magnet:?xt=urn:btih:F9BDA2D2302EA82722746E79E38F802E68288558
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ Blender является мощным open-source решением для 2D и 
 ```bash
 magnet:?xt=urn:btih:C99AA3D1AF50E09215A3AF28FFE562C47420C38B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ SLIDE MOVIE версии 2.0 (2017) Видеокурс
 magnet:?xt=urn:btih:2361D30B39CDD5493312DA37F1F44F77CB9AA39A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ Udemy, Эдуард Козлов | Изучаем PHP с нуля (базовы�
 ```bash
 magnet:?xt=urn:btih:EDC1A86C520248E01F9F5B1E815C0F4CC9779C18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +487,8 @@ Convert Monster | Яндекс.Директ [Пакет "Эксперт"] (2019)
 magnet:?xt=urn:btih:1D96A0439647AD19CCC5E5810280159926731C5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ Udemy, Gabriel Wallace | English Language Intermediate Masterclass: 10 Courses i
 ```bash
 magnet:?xt=urn:btih:275E19CE8CC55045A1096E54271A969E8AF005A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +543,8 @@ Udemy, For Your English | English Grammar Pro | Beginner to Advanced (A1-C1) Gra
 magnet:?xt=urn:btih:937CAC79ECD462B895121C85F6D1C14DDB84229F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +569,8 @@ Udemy, Олег Новиков | Сайт на Django 3.1 Реализация �
 ```bash
 magnet:?xt=urn:btih:E3366B11347C19D97F139FBB9CE74316FA0D675F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +598,8 @@ magnet:?xt=urn:btih:E3366B11347C19D97F139FBB9CE74316FA0D675F
 magnet:?xt=urn:btih:CA0541C4351B81395DAA2C8066173A649095CBF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +624,8 @@ Udemy, Gabriel Wallace | English Language Beginner Masterclass: 10 Courses in 1!
 ```bash
 magnet:?xt=urn:btih:B88E36EE9AB43035B607340FC1AF9E7A0C3F9F75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +652,8 @@ Udemy, Gabriel Wallace | English Language Advanced Masterclass: 10 Courses in 1!
 magnet:?xt=urn:btih:644B25D4681E789F42623F6EDC5893D3A37DBE50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +678,8 @@ Udemy, Kazi Ariyan | Django 3 - Python Backend Web Development For Beginner (202
 ```bash
 magnet:?xt=urn:btih:D6C062E81173825B4DB45028B0EACC49FB3D4B4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -657,6 +707,8 @@ Udemy, Code Star Academy и др. | The Complete Oracle SQL Bootcamp (2021) PCRe
 ```bash
 magnet:?xt=urn:btih:837177275AD9E2E78FE6C2366221FCF42AB5B918
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Tomb Raider IV-VI Remastered Darkness Trilogy предлагает погруз�
 magnet:?xt=urn:btih:B25F48F72AE15A7866917B856CD8783E4AF68BB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Catizens (2022) [Ru/Multi] (1.0.r166) License GOG
 ```bash
 magnet:?xt=urn:btih:5B859285807E6D1C769FC0CCF3D1825483144C51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Avowed (2025) [Ru/Multi] (1.2.5.0/dlc) Repack FitGirl [Premium Edition]
 magnet:?xt=urn:btih:B706DC4B8E689CD3213D70CF84D3DE176A741477
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Symphonia (2024) [Ru/Multi] (1.1.3) Repack Let'sРlay [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:513D0DCB623B47BA625531D6BB43C2DCBD55F6C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Scorchlands – прогресс и магия, это одно и тоже! Т�
 magnet:?xt=urn:btih:547C7A0E064C354FBF48124F62F065596CBB7596
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Symphonia (2024) [Ru/Multi] (1.1.3) License GOG
 ```bash
 magnet:?xt=urn:btih:CCF2B608F3503AAE3A95712CB73BE36FC5C12CC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Suicide Squad: Kill the Justice League (2024) [Multi] (1.0.6.0/dlc) Scene Rune [
 magnet:?xt=urn:btih:40008D8A67B5FEB1C36C349B7B9F28672396E83B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Age of Mythology: Retold - игра от создателей культовой
 ```bash
 magnet:?xt=urn:btih:A8FA0764788AC6EE73DCD5163880043904C34A53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Noob - The Factionless (2023) [Multi] (20250124) License GOG
 magnet:?xt=urn:btih:82F498CAECA85A964941E96DC25CF8C08C3A7540
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Garden Life: A Cozy Simulator - не просто песочница, а еще 
 ```bash
 magnet:?xt=urn:btih:7BFC57E6A439E019991B126606F27FDFC405000C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Amazing Cultivation Simulator – игровой проект, разработ�
 magnet:?xt=urn:btih:606E616C91913A35B7DE2742421132DBCFBCD427
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Flooded - стратегическая видеоигра в режиме реа
 ```bash
 magnet:?xt=urn:btih:11742DA7C2CD975FF18133B7F3577D9B6BB9C32D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Kardboard Kings - это симулятор управления магазин�
 magnet:?xt=urn:btih:5D5DC0E3AD6BA48892D5EDBDA164310B10E0308E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Clone Drone in the Danger Zone – увлекательная аркада, в �
 ```bash
 magnet:?xt=urn:btih:07AF15588EFD62EDD5461FC901AFB19E8DA72B33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Mind Echoes: The Lost Mysteries / Эхо разума: Утраченные та
 magnet:?xt=urn:btih:EA7BD4B8DD1D119C2B8F9F1E0D92E04262C884F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Suicide Squad: Kill the Justice League (2024) [Ru/Multi] (1.0.6.0/dlc) Repack De
 ```bash
 magnet:?xt=urn:btih:195D47896720338BC730D331A510896DC0DF8DF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Rake - жуткий сурвивал-хоррор по мотивам крипи
 magnet:?xt=urn:btih:747BE1F39865D8982BD7914174A35E0E0A3AB5FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Locks (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:CB7342D444CC5B0E5F2A26C96909F1D4D05128A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Let's Cook Together 2 продолжает идею первой части - г
 magnet:?xt=urn:btih:07C647B4E00F3ECBFC82D71C4D7CCCD397C1702C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Door Kickers 2 Task Force North – великолепное сочетание 
 ```bash
 magnet:?xt=urn:btih:1CCA36A80CACB8A06755A75B808D3FA2197EE75C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ The Backrooms: Mass Extinction (2022) [En] (1.2.2 Beta) Repack FitGirl [VR]
 magnet:?xt=urn:btih:981527D950775AA9EA3C5E915DB3B7221817D204
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Renaissance Kingdom Wars (2024) [Ru/Multi] (1.0) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:8E274D6C1418E881BFAF09DB9196A3D720351351
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Saturn (2024) [Ru/En] (1.35.02.11.16461/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:EC1C4AE6DA055C67695251DE76C73FC1786E2D9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Blood Bar Tycoon (2025) [Ru/Multi] (1.0.10122/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:537200FF53AF82CF78BB6E7067DEE66253CC7493
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Bulwark - это создание своей крепости и расшире�
 magnet:?xt=urn:btih:EFB01BDBA4AFFB52FBF44E9F504C9A5BD638F72B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Suicide Squad: Kill the Justice League (2024) [Ru/Multi] (1.0.6.0/dlc) Repack Wa
 ```bash
 magnet:?xt=urn:btih:E96CB6587B87BAD1174FC9ADFBD9FBD1E5C54DD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

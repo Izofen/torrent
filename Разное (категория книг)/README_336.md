@@ -1,3 +1,30 @@
+###  Публикация: 1053529   (496463) от 18.09.2016
+
+Вадим Сингаевский | Пригороды Санкт-Петербурга (2011) [PDF]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитые пригороды Санкт-Петербурга – Петергоф, Царское Село, Стрельна, Ораниенбаум и другие императорские резиденции – были выстроены лучшими зодчими и давно стали национальным достоянием России.
+Богато иллюстрированное издание позволит совершить увлекательное путешествие по легендарным дворцовым комплексам, с их неповторимыми парками, аллеями и фонтанами, и познакомиться (   Читать дальше...   )Жанр: Путеводители, Энциклопедии, История, АрхитектураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6619B00285CDC7EF71D4EDC9284B67167E90FB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318338   (496503) от 05.08.2019
 
 Инна Метельская-Шереметьева | Кулинарная КОНСЕРВАтория. Проверенные годами и поколениями рецепты заготовок от классических до экзотических (2019) [PDF]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:547919CA222B900A2E07C76B27F9998FF86701CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:547919CA222B900A2E07C76B27F9998FF86701CC
 magnet:?xt=urn:btih:898C3F50159DFF38F2FDFA3D1CD1AE1C8D7D1B83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +97,8 @@ magnet:?xt=urn:btih:898C3F50159DFF38F2FDFA3D1CD1AE1C8D7D1B83
 ```bash
 magnet:?xt=urn:btih:F0E0BA7EB91D207BB926495A6952BDC00C19FC43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +124,8 @@ magnet:?xt=urn:btih:F0E0BA7EB91D207BB926495A6952BDC00C19FC43
 magnet:?xt=urn:btih:708535C8A932F8EA5BD6A4789DD8B3A924481E85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +149,8 @@ magnet:?xt=urn:btih:708535C8A932F8EA5BD6A4789DD8B3A924481E85
 ```bash
 magnet:?xt=urn:btih:E2541DED05B9DECA421A835BCDEFB93DA924F021
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +176,8 @@ magnet:?xt=urn:btih:E2541DED05B9DECA421A835BCDEFB93DA924F021
 magnet:?xt=urn:btih:90555EB33D289806BE45684AF2EDC5FEC1AB7FD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +202,8 @@ magnet:?xt=urn:btih:90555EB33D289806BE45684AF2EDC5FEC1AB7FD4
 ```bash
 magnet:?xt=urn:btih:80DCCD4295C8F22ECA4CD98D240B38ED5469536E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +232,8 @@ magnet:?xt=urn:btih:80DCCD4295C8F22ECA4CD98D240B38ED5469536E
 magnet:?xt=urn:btih:6755A5317392C9F1B07E034B06CA226FCF22E6FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +258,8 @@ magnet:?xt=urn:btih:6755A5317392C9F1B07E034B06CA226FCF22E6FC
 magnet:?xt=urn:btih:CC1FE7CB6FF945C0F621BC51C82CBA3C3006FEDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +283,8 @@ magnet:?xt=urn:btih:CC1FE7CB6FF945C0F621BC51C82CBA3C3006FEDB
 ```bash
 magnet:?xt=urn:btih:1BDD9E51979C72EFA688A72C342B78AC7D8DCA03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ magnet:?xt=urn:btih:1BDD9E51979C72EFA688A72C342B78AC7D8DCA03
 magnet:?xt=urn:btih:452A44C82FBC4D866D215D3E4B4666D0574232E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +337,8 @@ magnet:?xt=urn:btih:452A44C82FBC4D866D215D3E4B4666D0574232E7
 ```bash
 magnet:?xt=urn:btih:93EBE334955223E9892EE34D2E48F8A2DD87CF18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +365,8 @@ magnet:?xt=urn:btih:93EBE334955223E9892EE34D2E48F8A2DD87CF18
 magnet:?xt=urn:btih:B0AFACB0006239915583A70CAD6E77616E532F40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +390,8 @@ magnet:?xt=urn:btih:B0AFACB0006239915583A70CAD6E77616E532F40
 ```bash
 magnet:?xt=urn:btih:2F9067EE9D75839EFB89F295BB8BCC11A154DC08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +417,8 @@ magnet:?xt=urn:btih:2F9067EE9D75839EFB89F295BB8BCC11A154DC08
 magnet:?xt=urn:btih:11282F52B4409128CDD0218F5E1408B62F5D115B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +443,8 @@ magnet:?xt=urn:btih:11282F52B4409128CDD0218F5E1408B62F5D115B
 ```bash
 magnet:?xt=urn:btih:161B03629A8B93E11E7A293F68E4E0AF5EE645C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +473,8 @@ magnet:?xt=urn:btih:161B03629A8B93E11E7A293F68E4E0AF5EE645C5
 magnet:?xt=urn:btih:B857FAC615233B5CD55EDE84DA8CB39D1BCFFFD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +498,8 @@ magnet:?xt=urn:btih:B857FAC615233B5CD55EDE84DA8CB39D1BCFFFD5
 ```bash
 magnet:?xt=urn:btih:CD114313B594A550F01792CDE228174BAFDEA2C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +525,8 @@ magnet:?xt=urn:btih:CD114313B594A550F01792CDE228174BAFDEA2C3
 magnet:?xt=urn:btih:6EED43BC4D202AAF5F8801ED30E732757A54E540
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +550,8 @@ magnet:?xt=urn:btih:6EED43BC4D202AAF5F8801ED30E732757A54E540
 ```bash
 magnet:?xt=urn:btih:2524811E3DCF262A32E5B723213A3D132C04D066
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +577,8 @@ magnet:?xt=urn:btih:2524811E3DCF262A32E5B723213A3D132C04D066
 magnet:?xt=urn:btih:EE26D0B54155FFFD4DFBAF5E18A82FFC191D2549
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +603,8 @@ magnet:?xt=urn:btih:EE26D0B54155FFFD4DFBAF5E18A82FFC191D2549
 magnet:?xt=urn:btih:B2CD1C22BDB672F8288D1DBDCCDDBB8560977FF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +628,8 @@ magnet:?xt=urn:btih:B2CD1C22BDB672F8288D1DBDCCDDBB8560977FF6
 ```bash
 magnet:?xt=urn:btih:EC56DFC066B0703F894B1A5E311340D2B876E033
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +657,8 @@ magnet:?xt=urn:btih:EC56DFC066B0703F894B1A5E311340D2B876E033
 magnet:?xt=urn:btih:4F317E160B83728D5B3549FA4F9DD11E07D1D5D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,31 +683,7 @@ magnet:?xt=urn:btih:4F317E160B83728D5B3549FA4F9DD11E07D1D5D8
 magnet:?xt=urn:btih:78E8A23E813B81E449ACEA4A9D6D1FCB0EACEC8C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317898   (498624) от 03.08.2019
-
-И. К. Сурский | Отец Иоанн Кронштадтский (В 2-х томах) (2011) [FB2, EPUB, RTF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498624.jpg" />
-</div>
-
-
-###  Подробнее
-
-К 100-летней годовщине блаженной кончины и 180-летию со дня рождения святого праведного Иоанна Кронштадтского мы рады предложить нашему читателю эту замечательную книгу о Всероссийском пастыре, в которую вошли его житие, поучения, пророчества, свидетельства очевидцев о чудесах и исцелениях по молитвенному предстательству отца Иоанна.
-
-Впервые этот труд в двух томах (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B63AF2160E678BB42C49EE715BF485F07F17107C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

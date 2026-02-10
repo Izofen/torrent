@@ -19,6 +19,8 @@ Beat Slayer - гибрид из упрощенного рогалика и ри�
 magnet:?xt=urn:btih:3FCB5E1472C78BDAA2C91CAE4A29C03EEDA4F707
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Terra Memoria - ролевая игра с фантастическим миро
 ```bash
 magnet:?xt=urn:btih:891207F58D3A3BB2126011477705FE64FDDF39C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Fallout 4 - это продолжение знаменитой постапок�
 magnet:?xt=urn:btih:3B8E3FA18EC135E9ADED4E355C5BDEE8BFCC413E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Inkbound - это тактическая РПГ, в которой вы смож
 ```bash
 magnet:?xt=urn:btih:DEF639125BDC92B07A17DB01563FB40AA42FD044
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ NightFeed предлагает уникальную смесь экшена, в�
 magnet:?xt=urn:btih:B3F5BC2A05300A9EC6D6B795C86554E176B271B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Monsters Domain - фэнтезийная игра, сочетающая в се�
 ```bash
 magnet:?xt=urn:btih:047FF93D2B2D3D2AB60AC6B4982F85906323EDED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Fractals of Destiny погружает в захватывающее прикл�
 magnet:?xt=urn:btih:FEDC028858C60A4D85F6C71C7ABC0B6FFE819A10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Broken Roads создана командой настоящих энтузиас
 ```bash
 magnet:?xt=urn:btih:5F3CA02C6264A17B1EE0E0D477AF261515D25033
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Inquisitor - это сюжетная приключенческая игра
 magnet:?xt=urn:btih:D6DA53340FA35ED66AE796C46E68F0DB081AD5A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Broken Roads создана командой настоящих энтузиас
 ```bash
 magnet:?xt=urn:btih:6190E636963F6BF84B2FCED3EA0DCE9D22A9BF4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Sheba: A New Dawn повествует о мире, что переносит в
 magnet:?xt=urn:btih:1EF71D07376FF39B23F74E40102A847799845CA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Inkbound - это тактическая РПГ, в которой вы смож
 ```bash
 magnet:?xt=urn:btih:F50A2729B4FD156913117ED95023F4C287310656
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Felvidek – события этой JRPG-игры разворачиваютс�
 magnet:?xt=urn:btih:602774D9956E87D8A24E0E40D878ACE0DB0B66E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Monsters Domain - фэнтезийная игра, сочетающая в се�
 ```bash
 magnet:?xt=urn:btih:93119CBDD24933BA46059365FFC756C6834F4259
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ In Stars And Time - увлекательная РПГ, которая заста
 magnet:?xt=urn:btih:66F5A56DBDCF85AA6F133D5963E283607A6AEF99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Gothic II: Night of the Raven / Готика 2: Ночь Ворона (2003) [Ru
 ```bash
 magnet:?xt=urn:btih:8433153D0D88B84F399E6FE61B048272859A82BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Colony Ship: A Post-Earth Role Playing Game - пошаговая ролевая 
 magnet:?xt=urn:btih:0BBAFA29586E6C589202197475488CC62729731F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Sea of Stars - динамичное ролевое приключение, ра�
 ```bash
 magnet:?xt=urn:btih:53F1ACC60BBB2D7483EC8DEC5051A69CA7F2C30B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Withering Rooms отличается от многих хорроров. Во-п
 magnet:?xt=urn:btih:415C582D3877CE102FB1CD4C85B853D22FA841E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Pathfinder: Gallowspire Survivors, созданная по мотивам поп
 ```bash
 magnet:?xt=urn:btih:70B455260E2680AF111C8EA6AE3726AC0CA0D20F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Withering Rooms отличается от многих хорроров. Во-п
 magnet:?xt=urn:btih:86D9EE2A74D69F317AF75933725E7E40A5795E79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Go Fight Fantastic - приключенческий экшен с богатым
 ```bash
 magnet:?xt=urn:btih:C8D84B6EFDCF73A735DEEE4D8534200E1856B8D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ The Legend of Heroes: Trails into Reverie является очередным п
 magnet:?xt=urn:btih:6B2E248EE3C99268E9F3F01B22D69520EC370FCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Geneforge 2 - Infestation - обновленная версия классиче
 ```bash
 magnet:?xt=urn:btih:6D44E59BC3E02C96C60053E4FB77D2AD8584C2EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Knowledge, or know Lady / Ladies School Prince (2024) [Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:3E0E4B1D2E7784543A93A952EB7FBF2A9A06920A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Stardew Valley (2016) [Ru/Multi] (1.6.3) Repack Other s [AD]
 ```bash
 magnet:?xt=urn:btih:B15A7288313609DEF723F0CDF403DC614E0D9094
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

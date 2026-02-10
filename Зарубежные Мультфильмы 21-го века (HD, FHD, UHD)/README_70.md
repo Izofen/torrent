@@ -1,27 +1,3 @@
-###  Публикация: 832438   (409702) от 19.10.2014
-
-Как приручить дракона 2 / How to Train Your Dragon 2 (2014) BDRip [1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409702.jpg" />
-</div>
-
-
-###  Подробнее
-
-С момента примирения викингов и драконов прошло пять лет. Пока Астрид, Сморкала и остальные ребята проводят время, соревнуясь друг с другом в популярных на острове драконьих гонках, Иккинг и Беззубик путешествуют по небу, составляя карту неизвестных мест. Когда одно из их приключений приводит к открытию тайной ледяной пещеры, которая является домом для сотен ранее (   Читать дальше...   )Производство: США / DreamWorks Animation, Mad Hatter EntertainmentЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Дин ДеБлуа / Dean DeBloisАктеры: Джей Барушель, Кейт Бланшетт, Джерард Батлер, Крэйг Фергюсон, Америка Феррера, Джона Хилл, Кристофер Минц-Плассе, ТиДжей Миллер, Кристен Уиг, Джимон ХонсуПеревод: ДублированныйЯзык субтитров: Русский, украинский, английский (full, SDH)Продолжительность: 01:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3528F204D9937CD9C5083561062F98D9D8377817
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948380   (410636) от 20.10.2015
 
 Головоломка / Inside Out (2015) BDRip [H.264/720p]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:3528F204D9937CD9C5083561062F98D9D8377817
 ```bash
 magnet:?xt=urn:btih:92CFD06CD7967A43E243E3840FB4001AE540344A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:92CFD06CD7967A43E243E3840FB4001AE540344A
 magnet:?xt=urn:btih:F6153075DF095293DE26900545F0DF1F326CEF81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:F6153075DF095293DE26900545F0DF1F326CEF81
 ```bash
 magnet:?xt=urn:btih:AF2B5431C787353F47E35B9B664954B4886CD67D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:AF2B5431C787353F47E35B9B664954B4886CD67D
 magnet:?xt=urn:btih:942BF1A979136D582169DAD3849464D82A638101
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:942BF1A979136D582169DAD3849464D82A638101
 ```bash
 magnet:?xt=urn:btih:FB66599B3FCFDD11C4F970EDFC37E48C3A8274BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:FB66599B3FCFDD11C4F970EDFC37E48C3A8274BD
 magnet:?xt=urn:btih:E55DEBE2760E7B45B2FA3D94A22495BA040225F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:E55DEBE2760E7B45B2FA3D94A22495BA040225F6
 ```bash
 magnet:?xt=urn:btih:C1A021B4FC6464D4D19EA7A02613B534E4F28761
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:C1A021B4FC6464D4D19EA7A02613B534E4F28761
 magnet:?xt=urn:btih:60B76627D20AD5637ED674DDDA50FA32103963D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ magnet:?xt=urn:btih:60B76627D20AD5637ED674DDDA50FA32103963D6
 ```bash
 magnet:?xt=urn:btih:7E7BB79CE9F0B4CA837B48A3FB270FDED7A28023
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:7E7BB79CE9F0B4CA837B48A3FB270FDED7A28023
 ```bash
 magnet:?xt=urn:btih:F89CC18642B37E0BDDC782C1E61CEBB1872B30EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +283,8 @@ magnet:?xt=urn:btih:F89CC18642B37E0BDDC782C1E61CEBB1872B30EA
 magnet:?xt=urn:btih:00F175C82F0CD3AF2F76D6FBD3DDC8CD64D912B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +312,8 @@ magnet:?xt=urn:btih:00F175C82F0CD3AF2F76D6FBD3DDC8CD64D912B5
 magnet:?xt=urn:btih:AE415790D520F7E9C8F08AD4218634DEE33B46F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +337,8 @@ magnet:?xt=urn:btih:AE415790D520F7E9C8F08AD4218634DEE33B46F5
 ```bash
 magnet:?xt=urn:btih:E6DCBACB57B106F287223601CA8DBAD17E692879
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +364,8 @@ magnet:?xt=urn:btih:E6DCBACB57B106F287223601CA8DBAD17E692879
 magnet:?xt=urn:btih:648AB0FF689A1E78F0E3D675992D66724F091716
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +389,8 @@ magnet:?xt=urn:btih:648AB0FF689A1E78F0E3D675992D66724F091716
 ```bash
 magnet:?xt=urn:btih:CC9230C1DF7E76B29CC1AAF7D42C47919D1E71CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +416,8 @@ magnet:?xt=urn:btih:CC9230C1DF7E76B29CC1AAF7D42C47919D1E71CC
 magnet:?xt=urn:btih:919FF19E03D4DDEAAA3A576BCB8F1D9B79C2A4BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +441,8 @@ magnet:?xt=urn:btih:919FF19E03D4DDEAAA3A576BCB8F1D9B79C2A4BE
 ```bash
 magnet:?xt=urn:btih:77F8E17078B485E36E8FA1A54BFF4E1AB763E0F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +468,8 @@ magnet:?xt=urn:btih:77F8E17078B485E36E8FA1A54BFF4E1AB763E0F9
 magnet:?xt=urn:btih:824FECF42C5EFBA80C221E7A34D46551CB5770B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +494,8 @@ magnet:?xt=urn:btih:824FECF42C5EFBA80C221E7A34D46551CB5770B9
 magnet:?xt=urn:btih:1CF07B1B33C2FCC9F7C48E412B691DB44C829083
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +519,8 @@ magnet:?xt=urn:btih:1CF07B1B33C2FCC9F7C48E412B691DB44C829083
 ```bash
 magnet:?xt=urn:btih:BF3BE9690DC5BCBFD46BE9A8A776638BC5DF1771
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +547,8 @@ magnet:?xt=urn:btih:BF3BE9690DC5BCBFD46BE9A8A776638BC5DF1771
 magnet:?xt=urn:btih:6A3B395AC9BB1046FCE275E2B0C23DFBAF308B0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +572,8 @@ magnet:?xt=urn:btih:6A3B395AC9BB1046FCE275E2B0C23DFBAF308B0D
 ```bash
 magnet:?xt=urn:btih:CAB07690CC787FC8A6085685E896148BD995E242
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +600,8 @@ magnet:?xt=urn:btih:CAB07690CC787FC8A6085685E896148BD995E242
 magnet:?xt=urn:btih:6BC6395921E79069CE98C568F4C910535B267297
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +627,8 @@ magnet:?xt=urn:btih:6BC6395921E79069CE98C568F4C910535B267297
 magnet:?xt=urn:btih:DC7CE7856A0AA365DF1D5AE1579A81FD7124C8D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +652,34 @@ magnet:?xt=urn:btih:DC7CE7856A0AA365DF1D5AE1579A81FD7124C8D0
 ```bash
 magnet:?xt=urn:btih:3AD5A1B96642FDD0A11E34961880EEA761327226
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065611   (416008) от 24.10.2016
+
+История игрушек: Гавайские каникулы / Toy Story Toons: Hawaiian Vacation (2011) BDRemux [H.264/1080p] (Локализованный видеоряд)
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_416008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кен и Барби планируют романтический побег в тропический рай, но удастся ли им осуществить задуманное?..Производство: США | Walt Disney | Pixar Animation StudiosЖанр: Короткометражный, Комедия, СемейныйРежиссер: Гари РидстромПеревод: ДублированныйСубтитры: Русские, Украинские, Английские (форсированные / полные, вшитые, отключаемые)Продолжительность: 00:05:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E623B797E65E4471CABF144029A7EA8F9483F2E8
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

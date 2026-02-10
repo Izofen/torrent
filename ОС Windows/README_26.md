@@ -1,3 +1,30 @@
+###  Публикация: 1292496   (644320) от 30.03.2019
+
+Microsoft Windows 10 Version 1809 Build 17763.379 (Updated March 2019) Оригинальные образы MSDN [Ru]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_644320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы Windows 10 Version 1809 Build 17763.379 (Updated March 2019) MSDN business_edition и consumer_edition.
+Redstone_5 ex-RTM Build: 17763.1.rs5_release.180914-1434 + March 12, 2019 CumulativeUpdate KB4489899 = OS Build 17763.379.rs5_release_svc_prod1.190306-1916Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4018C62ECC454BC862D0D0168A337FD533F9B8EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292504   (646355) от 29.03.2019
 
 Microsoft Windows 10 Version 1809 Build 17763.379 (Updated March 2019) Оригинальные образы MSDN [En]
@@ -19,6 +46,8 @@ Redstone_5 ex-RTM Build: 17763.1.rs5_release.180914-1434 + March 12, 2019 Cumula
 ```bash
 magnet:?xt=urn:btih:28B9222FA58306799995A3BA883223391BB219A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +73,8 @@ Windows 7 с интегрированным пакетом обновления 
 ```bash
 magnet:?xt=urn:btih:D838B10F8F30DF756D00B8E45B29584AA55DFBAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +103,8 @@ Recovery USB-Flash for Lenovo Z5070 / Windows 8.1 (х64) [Ru]
 magnet:?xt=urn:btih:89CC6A3CBE3D393367E106A14F3B723BEEC90FE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +128,8 @@ Microsoft Windows 10.0.19044.1586 Professional Version 21H2 (Updated March 2022)
 ```bash
 magnet:?xt=urn:btih:446595EE116AEF57959E800B2BED4FACE92DB89D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +158,8 @@ Windows 10 November 2021 Update (под кодовым названием "21H2"
 magnet:?xt=urn:btih:1072D6799297A0965099DEB5E7F15DA853296461
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +183,8 @@ Windows 11 - это серия операционных систем, разра
 ```bash
 magnet:?xt=urn:btih:FC4070D19493160AAAA1F28F563CA1479789F82A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +210,8 @@ Microsoft Windows 10.0.19044.1586, Version 21H2 (Updated March 2022)  - Ориг
 ```bash
 magnet:?xt=urn:btih:40AB1C40070F327240DEE888FB5C075EE66FABF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +240,8 @@ Windows 10 May 2021 Update (под кодовым названием "21H1") я�
 magnet:?xt=urn:btih:76DCB00E439B85AD6FA6119950D7A8D069617044
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +265,8 @@ Windows Server SAC - канал Semi-Annual Channel идеально подхо�
 ```bash
 magnet:?xt=urn:btih:5F0A4F10DC3C4F5C810660BCE5C50E1390330306
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +295,8 @@ Windows 10 October 2020 Update (под кодовым названием "20H2")
 magnet:?xt=urn:btih:59BFA2696B2F45A512EB2370A2BA3701DE1E73B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +323,8 @@ Windows 10 May 2021 Update (под кодовым названием "21H1") я�
 ```bash
 magnet:?xt=urn:btih:30E5CE8834F3760D4611826FB1D3198F82C0377F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +353,8 @@ Windows 10 October 2020 Update (под кодовым названием "20H2")
 magnet:?xt=urn:btih:8B6763441C5E22DF61FA08C82094236C4583897D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +379,8 @@ Microsoft Windows 10 10.0.17134.1 Version 1803 (Updated April 2018) - Ориги
 ```bash
 magnet:?xt=urn:btih:10EB893A74488C15EAAAEBCD19FCC651C2FE2654
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +408,8 @@ Windows 10 включает “универсальную” архитекту�
 magnet:?xt=urn:btih:B10999411D659A26E223F9FBC8261B3CD80E72DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +433,8 @@ magnet:?xt=urn:btih:B10999411D659A26E223F9FBC8261B3CD80E72DB
 ```bash
 magnet:?xt=urn:btih:E842B2521D14D256B72972BAA8A44088C27D0AEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +462,8 @@ Windows 10 включает “универсальную” архитекту�
 magnet:?xt=urn:btih:AD0887D600D0C950AD278648C592EF5384C93C0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +488,8 @@ Microsoft Windows 10 10.0.17134.1 Consumer editions Version 1803 (Updated April 
 magnet:?xt=urn:btih:27445BD9A44A7D3CAF754129AA57830C9A04DB15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +513,8 @@ Microsoft Windows 10 10.0.17134.1 Business editions Version 1803 (Updated April 
 ```bash
 magnet:?xt=urn:btih:3972DD1A47B0C7CB5CDF83997085A2C1CACD9F58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +542,8 @@ Recovery USB-flash for Sony VAIO SVF152A29V (SVF1521H1R) Windows 8 [Ru]
 magnet:?xt=urn:btih:6D87C3D2CE4838C995167EA435E639664CD770F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +568,8 @@ Windows 10 «Корпоративная с долгосрочным обслуж
 ```bash
 magnet:?xt=urn:btih:02CCEC8491E7BE5FEB9A42091895FA104951E81B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +596,8 @@ Microsoft Windows 10.0.19041.450 Version 2004 (Updated Aug 2020) - Оригин�
 magnet:?xt=urn:btih:970AD7C20A4E0BE1510D79CC2AE1F8FB14D50A11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +621,8 @@ Windows Server SAC - канал Semi-Annual Channel идеально подхо�
 ```bash
 magnet:?xt=urn:btih:27511EEA3A2C6D7F849CE61372C83CC9DFA7E85B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +649,8 @@ Windows 10 «Корпоративная с долгосрочным обслуж
 magnet:?xt=urn:btih:527ED958E7B901B78BC260DD0BB7364C71D7D403
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +674,8 @@ Windows Server 2019 LTSC Version 1809 Build 17763.1397 (Updated Aug 2020) Ори
 ```bash
 magnet:?xt=urn:btih:FB6DCFE122259D3139E9FAC422A078F33016906C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,30 +702,7 @@ Microsoft Windows 10.0.19041.450 Version 2004 (Updated Aug 2020) - Оригин�
 magnet:?xt=urn:btih:BA8530C2E09A9943F9EEEC25DDF54E0277546AF4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403451   (690164) от 20.08.2020
-
-Microsoft Windows 10.0.17763.1397 Version 1809 (Updated Aug 2020) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690164.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.1397.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4592302316EBCEBDF41AF2A3CECDE9A54EF4D722
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

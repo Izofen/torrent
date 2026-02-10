@@ -19,6 +19,8 @@ El Hijo - A Wild West Tale – это увлекательная игра в с�
 magnet:?xt=urn:btih:D461BDA6BDD9BF2C46E1BAB2A41DE7ACDF16EE49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:D461BDA6BDD9BF2C46E1BAB2A41DE7ACDF16EE49
 ```bash
 magnet:?xt=urn:btih:005255508DA1E884FADEF6D00DB1C47AE86314F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Frontier Hunter: Erza's Wheel of Fortune (2022) [Ru/Multi] (1.1.02/dlc) Repack L
 magnet:?xt=urn:btih:9AF979CA2E109E4B530D05EA6AEABA88EAB498EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:9AF979CA2E109E4B530D05EA6AEABA88EAB498EA
 ```bash
 magnet:?xt=urn:btih:FAB615ECC08DABA46D1D574D9F48998AB0531A2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Plus Messenger - неофициальное приложение для обме
 magnet:?xt=urn:btih:97B37DE8D9B2E567F24D4428670F002C736AF44C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:97B37DE8D9B2E567F24D4428670F002C736AF44C
 ```bash
 magnet:?xt=urn:btih:FDDF787F688DB842A478E225C02FE8CFB82E5411
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:FDDF787F688DB842A478E225C02FE8CFB82E5411
 magnet:?xt=urn:btih:58D3E0AB74A0836C21C01628DD6E1D8242D73C49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Vov Sticky Notes 9.3 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B929D95078F9A5765859B080F1EE4CE68D3AE254
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Simple Sticky Notes — простая в понимании программа 
 magnet:?xt=urn:btih:501F989AB85C40F3D1050AC933DB450AF726878A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ ThunderSoft Video to GIF Converter - удобный инструмент для 
 ```bash
 magnet:?xt=urn:btih:AFC7E240AF8D344949CB579C9762E8DB374B08BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ ThunderSoft GIF to Video Converter - является программным о�
 magnet:?xt=urn:btih:248E08DBA5B14C90F78244A12082C033F211DAC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ MechWarrior 5: Clans (2024) [Ru/Multi] (1.0.80/dlc) Scene FairLight
 magnet:?xt=urn:btih:51D86616DC40A796ABC880BE8CC9E4DBF4CA2CBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:245161B41A32185C3C0C0BD82C6CEAA47096B6E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:245161B41A32185C3C0C0BD82C6CEAA47096B6E5
 magnet:?xt=urn:btih:281A77FEDE7B297EF51F25758762214193343CFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Slay the Princess (2023) [Ru/Multi] (1.0z) License GOG [The Pristine Cut]
 ```bash
 magnet:?xt=urn:btih:5EE16D1E8B0C5BD17C90C6F6DAA510F2073271EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Bakeneko Anzu-chan | Ghost Cat Anzu | Кот-призрак Андзу [2024, Mo
 magnet:?xt=urn:btih:AFE72198ED3452D04A07EF293BB91F9ADCE0AD19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:AFE72198ED3452D04A07EF293BB91F9ADCE0AD19
 ```bash
 magnet:?xt=urn:btih:4F063FF2F3E0B36E556425106606D0789D77E960
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:4F063FF2F3E0B36E556425106606D0789D77E960
 magnet:?xt=urn:btih:BA1EE6FF3751EE250940B1D9A47778E7D78853BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Diamond Cut Forensics Audio Laboratory 11.04 [En]
 ```bash
 magnet:?xt=urn:btih:0EE5C36799A923E6A99AE1D0BE2FA84935E356F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:0EE5C36799A923E6A99AE1D0BE2FA84935E356F7
 magnet:?xt=urn:btih:FFD4E9E86B54022DBAE0EC0E61F8234E59DE3BA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ CarX Street (2024) [Ru/Multi] (1.2.1/dlc) Repack Other s [Deluxe edition]
 ```bash
 magnet:?xt=urn:btih:26D28423A15EBA89FF0B7A194520B9BFF5886352
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:26D28423A15EBA89FF0B7A194520B9BFF5886352
 magnet:?xt=urn:btih:C9F7416E673E158B15A3A7261BC2D148B1029171
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:C9F7416E673E158B15A3A7261BC2D148B1029171
 magnet:?xt=urn:btih:3EB75FA30034D1FD8A53B94C186E08EE3293FAAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ The Strange City (2024) [Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:0584E0C6B738DE2B952544527E7C17D2B90B9516
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ RustDesk Remote Desktop – программное обеспечение для
 magnet:?xt=urn:btih:238DC5AE849BB077875C948A3A37C0C5F59CC108
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ CERERA - CERERA pres Echo Of The Universe #022 Live @Zig Zag 25 Years 14 02 (202
 ```bash
 magnet:?xt=urn:btih:922A4B1381A36B9FFE8B4BD24B9EE5022BD07A9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

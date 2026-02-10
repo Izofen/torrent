@@ -28,6 +28,8 @@ VA - Убойные хиты Europa Plus 3 50/50 (2012) [MP3|256 kbps]<Pop>
 magnet:?xt=urn:btih:05E134CD41B4536C9E2F52CB9BAFA160EFC93DA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ VA - Топ 100 Europa Plus 4 50/50 (2012) [MP3|256-320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:54885B32F042C84E70249E8EB359BB0967A3A0AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ VA - Южный Хит Парад (2012) [MP3|256 kbps]<Pop>
 magnet:?xt=urn:btih:3CB888CBEB0A7F761F551A4B1AD80196B43BF1E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +132,8 @@ VA - Топ 100 Продвинутый Русский (2012) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:BAAF98762FEFF26A8976ED40869570323B95083F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +168,8 @@ VA - Музыка для отличного настроения (2012) [MP3|256
 magnet:?xt=urn:btih:9DE4EA9C80FD71E931BF723590B466245882A07C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +202,8 @@ VA - Лучшие Песни Русского Радио 5 (2012) [MP3|256-320 k
 ```bash
 magnet:?xt=urn:btih:4AA19DEFFFD4332C42282A8D2588E07EA9FCAD98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +238,8 @@ VA - Europa Plus Включи Весь Мир! Весна 50/50 (2012) [MP3|128 
 magnet:?xt=urn:btih:0962622A03CFA71F480CD1D6CB8120902C551677
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +272,8 @@ VA - В Машину! Зарубежный (2012) [MP3|256 kbps]<Pop | Dance>
 ```bash
 magnet:?xt=urn:btih:7D26B0935A3DE7DCE366E3FF866BE664CB8BA180
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +308,8 @@ VA - 100 Most Beautiful Love Songs (2006) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:2A795B8226E1D3B074305FC8F3E3BC3678DD902F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +342,8 @@ VA - Disco Hits 90's Русский (2012) [MP3|256 kbps]<Pop | Disco>
 ```bash
 magnet:?xt=urn:btih:B87FECC245DB3711B28E9A3522A3E86771AD348D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +378,8 @@ VA - Disco Hits 90's Зарубежный (2012) [MP3|256 kbps]<Pop | Disco>
 magnet:?xt=urn:btih:EAB1A4C1E32C17D29BA1107262BBE2CA5BCA724B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +412,8 @@ VA - Потап и Настя в кругу друзей (2012) [MP3|192-256 kbp
 ```bash
 magnet:?xt=urn:btih:6293E2048F17952D9B95334C71314353080505B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +448,8 @@ VA - Новинки Эфира Love Radio 11 (2012) [MP3|256-320 kbps]<Pop>
 magnet:?xt=urn:btih:AB51D55FD71741F1D1EAFB5AAEA12DFD33DDAC6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +482,8 @@ VA - ЕвроХит Топ-40 (13.04.2012) [MP3|320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:255D8C7F43AB45CF0FD4BEF02D242DF8942D8B61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +518,8 @@ VA - Фестиваль Авторадио 80-90-Х 50/50 (2012) [MP3|256 kbps]<
 magnet:?xt=urn:btih:FE09B44D74E5C7961AAB8854628A8F54D613EBBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +552,8 @@ VA - MAXI. Все хиты весны на Русском Радио (2012) [MP3
 ```bash
 magnet:?xt=urn:btih:FBA50BAE0060FC5A38344B59AFA6ACFD7E7BDE04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +588,8 @@ VA - XXXL Союз 70: Парад хитов Русский (2012) [MP3|256 kbps
 magnet:?xt=urn:btih:457A12B47AC94EE851E75BE58343B16A6E506ADA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +622,8 @@ VA - NeРусский Шторм 57 (2012) [MP3|320 kbps]<Pop | Dance>
 ```bash
 magnet:?xt=urn:btih:BD9A9FDC0A3CC25E484718FA28C180687EC80E95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +658,8 @@ VA - Танцевальный Рай Русский (2012) [MP3|256 кб/с]<Pop
 magnet:?xt=urn:btih:05E38454908F5365F2609E87C4F5E0809FFE4765
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +692,8 @@ VA - За Рулем с Авторадио - Зарубежные Хиты 90-Х
 ```bash
 magnet:?xt=urn:btih:DFCD68D42729ED102C0057DFDE3B70C48849AE9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -688,6 +728,8 @@ VA - Absolute Acoustic 2012 (2012) [MP3|~197-254 кб/с (V 0)]<Acoustic Pop>
 magnet:?xt=urn:btih:D04C23F07CDF36D0E8F8610706B5E2CB9BFF3011
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -720,6 +762,8 @@ VA - Включи меня снова (2012) [MP3|175-241 kbps]<Pop | Dance>
 ```bash
 magnet:?xt=urn:btih:53ABEF5108915DA4F6C10BFB82577FD4F139BBB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -754,6 +798,8 @@ VA - Танцевальный Русский Хит часть 2 (2012) [MP3|256
 magnet:?xt=urn:btih:291727B35DC8C3E74BD031742AA14409CAF99601
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -786,6 +832,8 @@ VA - Дискотека 777 Русская vol. 2 (2012) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:EA09ADAA4D6D0D63D54A3257472CAB211D839CAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -820,6 +868,8 @@ VA - Свежий Хит На Русском Радио (2012) [MP3|256 кб/с]
 magnet:?xt=urn:btih:FED7CEB29C4112ACC9DDBD921E6F8A64C404C987
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -852,6 +902,8 @@ VA - Звезды дискотек. Хитовый взрыв (2012) [MP3|256 к
 ```bash
 magnet:?xt=urn:btih:85C091AFEEC28687FC3FE26C6C889E5981B8D39C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

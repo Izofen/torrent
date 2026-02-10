@@ -19,6 +19,8 @@ Astarotte no Omocha! | Игрушка Астаротты [ТВ] [2011, TV, 12 + 
 magnet:?xt=urn:btih:D6FADE82F400A763D738222B839D950C1E08ACCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Ishura | Исура [ТВ-1] [2024, TV, 12 эп.] WebRip 720p raw
 ```bash
 magnet:?xt=urn:btih:FB9EA45A2C034D3A90864AF096FD1EC44D5923EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Bleach: Sennen Kessen Hen - Soukoku Tan | Bleach: Thousand-Year Blood War - The 
 magnet:?xt=urn:btih:9BC1BE7C42ADDF76CB0C7D5874A6E6540D55190E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Fate/Strange Fake | Судьба: Странная подделка [ТВ] [2024
 ```bash
 magnet:?xt=urn:btih:79CE299212CD4D3DED9AB1168E7EB5A492FF131C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Wasurenagumo | Li'l Spider Girl | Паучонок [2012, Special] BDRip 1080p H
 magnet:?xt=urn:btih:0629C71060910DD0FDA3BF2D389A182FEDDE4C36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Kamonohashi Ron no Kindan Suiri 2nd Season  | Безумные расследо�
 magnet:?xt=urn:btih:3668CD969C7C5707DEFC2E2D0D2C1939DBC1AB84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Kami no Tou: Koubou-sen | Tower of God: Workshop Battle | Башня Бога: �
 ```bash
 magnet:?xt=urn:btih:99CA2261FA62701102A814EB8B06C2705049DD67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Blue Lock vs. U-20 Japan | Синяя тюрьма: Блю Лок [ТВ-2] [2024
 magnet:?xt=urn:btih:2EA801034511F58045B7B6E945681974A016F246
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Yeosin Gangnim | True Beauty | Истинная красота [2024, Web, 13 э
 ```bash
 magnet:?xt=urn:btih:AB3BACB07E31D2B7007CC51A484BC2E41D426CB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Shin Tennis no Ouji-sama: U-17 World Cup Semifinal | Новый принц те�
 magnet:?xt=urn:btih:22C245F5861FB1AC0C47290A69D57FD5C5D2BAE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Tasuketsu: Fate of the Majority | Tasuuketsu | Правило большинст
 ```bash
 magnet:?xt=urn:btih:6C762AD083DDB5131EE5E7FC3FAA0E768D7EE9C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Yarinaoshi Reijou wa Ryuutei Heika o Kouryakuchuu | На этот раз оде�
 magnet:?xt=urn:btih:AB77C1BAB71549ECFE2AB17B2A0C233825C938C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Sengoku Youko / Ёко из Сэнгоку [2024, TV, 35] WEBRip 720p raw
 magnet:?xt=urn:btih:D106F0E6604BA0A4C76B8CF2D35D0F6533E9FE0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Natsume Yuujinchou Shichi | Natsume's Book of Friends Season 7 | Тетрадь 
 ```bash
 magnet:?xt=urn:btih:D065BF52E60F5FA7133EBF4FEE5949A6778DBB9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ Love Live! Superstar!! 3 / Живая любовь! Суперзвёзды!! 3 [
 magnet:?xt=urn:btih:CD6AB464A4280F80EC51A6D5AC52560F40865271
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ MF Ghost (2024) | MF Призрак 2 [2024, TV, 12 эп.] WEBRip 720 raw
 ```bash
 magnet:?xt=urn:btih:3F18CAE8F929BB17BF6B438B4930B8B6E1C8A0BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ Seirei Gensouki 2 / Seirei Gensouki: Spirit Chronicles 2 / Хроника миф
 magnet:?xt=urn:btih:A794FCA8F37317714BA2A8340982A8D6803C4F1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ Raise wa Tanin ga Ii | Yakuza Fiance | Незнакомцы в другой жи
 ```bash
 magnet:?xt=urn:btih:745676055A6756533EB977E27987D19197857949
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ Kabushikigaisha Magilumiere | Magilumiere Co. Ltd. | Компания Маги-�
 magnet:?xt=urn:btih:C17026223020F0D4FBC09FB31062FC22AB28E467
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ Hoshi Furu Oukoku no Nina | Nina the Starry Bride | Нина в королевс
 magnet:?xt=urn:btih:C65F6079FB5E999F7D963FCA3EF96DC7D6CA0F1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ Ranma 1/2 (2024) | Ранма 1/2 (2024) [2024, TV, 12 эп.] WebRip 720p 10-bit
 ```bash
 magnet:?xt=urn:btih:05185C87CD500E3068392CFFD28E96759BCD9F1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ Ao no Exorcist: Yuki no Hate Hen | Blue Exorcist: Beyond the Snow Saga | Син�
 magnet:?xt=urn:btih:41D18BECB171BAC80785A963AB2A016DD9F63821
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ Party kara Tsuihou Sareta Sono Chiyushi, Jitsu wa Saikyou ni Tsuki / Целит�
 magnet:?xt=urn:btih:8B01F5B1A9ED8B4C02DE026265D20C81B8CCF94A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ Kimi wa Meido-sama. / You Are Ms. Servant. / Ты — горничная [2024, 
 ```bash
 magnet:?xt=urn:btih:7045060FFB506CE79D4B345C5F9104FF16B8B735
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ Tensei Kizoku, Kantei Skill de Nariagaru 2 / Переродившись арис
 magnet:?xt=urn:btih:BD978F4B93C8C24A0F5F2CEAE565B6BF59C28B5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ Nageki no Bourei wa Intai Shitai / Let This Grieving Soul Retire! / Скорбя
 ```bash
 magnet:?xt=urn:btih:25ADEEC7DB111304B303DB69C06803CAFB18B25E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

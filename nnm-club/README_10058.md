@@ -1,54 +1,3 @@
-###  Публикация: 956919   (329043) от 15.11.2015
-
-ABBYY Lingvo Dictionary для Mac 1.9.6 [En/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329043.jpg" />
-</div>
-
-
-###  Подробнее
-
-ABBYY Lingvo Dictionary - самый популярный оффлайн словарь от компании ABBYY.
-Узнайте перевод незнакомого слова, значения устойчивых выражений, примеры употребления слов в контексте с помощью словаря ABBYY Lingvo для Mac. Это отличное приложение для тех, кто учит иностранный язык или сталкивается с переводом. Откройте мир с Lingvo!
-
-Переводите слова с русского на (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: октябрь 2015Разработчик: ABBYYПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B03F9127FFC06FC93F19D9ADEB79C6809BD5ADB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581011   (329048) от 03.10.2022
-
-Сид Чаплин. Легкомысленный, веселый и щекотливый / Giddy, Gay, and Ticklish (1915) WEBRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередные злоключения Гассла и его женушки. Решили сходить в парк, отдохнуть, подышать свежим воздухом. Вот и отдохнули...Производство: США, Keystone Film CompanyЖанр: комедия, короткометражный, немое киноРежиссер: Ф. Ричард ДжонсАктеры: Сид Чаплин, Филлис Аллен, Эдгар Кеннеди, Дикси Чен, Дэн Альбертс, Эдвин Фрэйзи, Гроувер ЛигонПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские встроенные отключаемыеПродолжительность: 00:12:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:087FEDDAE660E60A5C5953BD8E790D7CA2FCCE08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580948   (329049) от 03.10.2022
 
 Monster Truck - Warriors (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Southern Rock>
@@ -72,6 +21,8 @@ Monster Truck - Warriors (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Southe
 ```bash
 magnet:?xt=urn:btih:D1F7F917CE362B3C91CC7A0CA4538D35376670D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +51,8 @@ Free Spirit - All The Shades Of Darkened Light (2014) [FLAC|Lossless|image + .cu
 magnet:?xt=urn:btih:14BE3DB141D2CB52236E451057C6DE77A0C3B0C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +80,8 @@ Macrocosm - Second Voyage (2005) [OGG Vorbis|484 Kbps] <Electronic, Synth-pop>
 magnet:?xt=urn:btih:D4665806A037E1CF7F482F507301E3AEFD24A11F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +105,8 @@ magnet:?xt=urn:btih:D4665806A037E1CF7F482F507301E3AEFD24A11F
 ```bash
 magnet:?xt=urn:btih:13DB32ECC724DA98FC2847EB1624F6BB40FD876B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +132,8 @@ Elysian Fields - Gateway (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 ```bash
 magnet:?xt=urn:btih:417BB76916CEBE77F58FBB7E8689FF103A406D01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +162,8 @@ Dark Divine - Halloweentown (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Metalcore, 
 magnet:?xt=urn:btih:74C623FD2CA16A01C22B3BB1150F81AD816D50EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +188,8 @@ Black Tongue Reverend - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psy
 ```bash
 magnet:?xt=urn:btih:611D104488264BF11B39BE927A867BBE7A94E87B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -255,6 +218,8 @@ Nylist - Divine Vision Torn Apart (2022) [FLAC|Lossless|WEB-DL|tracks] <Deathcor
 magnet:?xt=urn:btih:6ECE917B84F0CE7E05E21434996D7D43B8F12CB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -281,6 +246,8 @@ The Red Rodney Quintet - Red Alert! (1990) Continuum Recording [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:93C9192581E2FED0797798974920438B4715008D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +276,8 @@ Tankard - Pavlov's Dawgs (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
 magnet:?xt=urn:btih:5441765F3EC4BEB97045D6792018665A20931A1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +304,8 @@ Ian Blurton's Future Now - Second Skin (2022) [FLAC|Lossless|WEB-DL|tracks] <Har
 ```bash
 magnet:?xt=urn:btih:7CB6169BFA3E5D3147CC3B433B01C223C03BB13E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +334,8 @@ Acausal Intrusion - Seeping Evocation (2022) [FLAC|Lossless|WEB-DL|tracks] <Tech
 magnet:?xt=urn:btih:4A3CE252F48BE784B2624F43C2B070D237775E54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +362,8 @@ Runelord - The Battle For Greatness (2018) [FLAC|Lossless|image + .cue] <Heavy M
 ```bash
 magnet:?xt=urn:btih:3B4AE1FEA65FC947F296D78AC45CA34FF0CEA46F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +392,8 @@ Butchery - Ferocious Rampage (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 magnet:?xt=urn:btih:D09DBA34539040C5C5E1DD0CEF1475F7B83729C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +417,8 @@ Maxim является абсолютно уникальным журналом 
 ```bash
 magnet:?xt=urn:btih:1732C17079BE81964539AE812E9CDD8AB4D29575
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +447,8 @@ Alice Cooper - Live at Bonnaroo Festival 2012 DVDRip
 magnet:?xt=urn:btih:A09D1DF0D0C46FACCE954719D6CDD2C6097A330B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +472,8 @@ Slimjet 6.0.1.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3937BD95E271DF45717FEEB504C10124619D6AFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +499,8 @@ Media Player Classic HomeCinema - удобный во всех планах му
 magnet:?xt=urn:btih:A0598499CC238849637C70F0885BA69BE2D46EF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +524,8 @@ magnet:?xt=urn:btih:A0598499CC238849637C70F0885BA69BE2D46EF0
 ```bash
 magnet:?xt=urn:btih:EAF506CBBF76D2C477F8A0F33D67A82B2ADC214D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +551,8 @@ Aquarion Logos / Акварион: Логос [ТВ-3] [2015, TV, 5 из 12] HDT
 magnet:?xt=urn:btih:4337C6D7E4986933BD4196E8F9502928B19ED0E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +576,8 @@ magnet:?xt=urn:btih:4337C6D7E4986933BD4196E8F9502928B19ED0E1
 ```bash
 magnet:?xt=urn:btih:0EA6921D5A29D99407C3C7047547754AF47DB817
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +603,8 @@ magnet:?xt=urn:btih:0EA6921D5A29D99407C3C7047547754AF47DB817
 magnet:?xt=urn:btih:0ED6D7D85FDE369F895C04F46451694F9772ED39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +628,8 @@ magnet:?xt=urn:btih:0ED6D7D85FDE369F895C04F46451694F9772ED39
 ```bash
 magnet:?xt=urn:btih:A1DFAAFB0B154101A242328D486B7164CA26F253
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -660,6 +655,60 @@ magnet:?xt=urn:btih:A1DFAAFB0B154101A242328D486B7164CA26F253
 ```bash
 magnet:?xt=urn:btih:216D921CC09459CDC2E9D2D9DC5FF62A67CAD60F
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956699   (329111) от 15.11.2015
+
+Крик совы (Особые полномочия) (2013) HDTVRip [H.264/720p-LQ] (сезон 1, серии 1-10 из 10)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329111.jpg" />
+</div>
+
+
+###  Подробнее
+
+1957 год, время хрущевской "оттепели". Городок Остров Псковской области сотрясает череда дерзких преступлений. При стычке бандитов с правоохранительными органами тяжело ранен один из лучших сотрудников местной милиции – капитан Юрий Сиротин. В бессознательном состоянии он разговаривает по-немецки, что приводит к служебному расследованию, которое поручено (   Читать дальше...   )Производство: Кинокомпания "Щука", ФАБЕРЖЕ ПРОДАКШНЖанр: Детектив, КриминалРежиссер: Олег ПогодинАктеры: Сергей Пускепалис (Митин), Андрей Мерзликин (Балахнин), Мария Миронова (Нина Каверина), Евгений Дятлов (Сиротин), Андрей Феськов (Оборин), Анатолий Васильев (Бакур), Игорь Савочкин (Ворон), Серафима Низовская (Аглая), Василий Бочкарев (Горобец), Сергей Юшкевич (Глушенко), Наталья Высочанская (Вера Белькевич), Александр Марушев (Седой), Евгения Дмитриева (Маруся), (   Читать дальше...   )Продолжительность: 10 x ~ 00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB3558E06933BCEEE4B5834864CD93F8BFAE4DE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956664   (329112) от 15.11.2015
+
+Миньоны / Minions (2015) BDRemux [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Миньоны живут на планете гораздо дольше нас. У них одна навязчивая идея — служить самой Гадкой личности из имеющихся в наличии. Динозавры, фараоны, Дракула, Наполеон — все они оказались недолговечны. И тогда миньоны рванули в Нью-Йорк. Их ждут деньги, власть, роковая суперзлодейка Скарлет Оверкилл и, конечно же, вкуснейшая «банана»! Во всяком случае, так им кажется.Производство: США / Illumination EntertainmentЖанр: мультфильм, комедия, семейныйРежиссер: Кайл Балда, Пьер КоффанАктеры: Сандра Буллок, Джон Хэмм, Майкл Китон, Эллисон Дженни, Стив Куган, Дженнифер Сондерс, Джеффри Раш, Стив Карелл, Пьер Соффин, Кэти МиксонПеревод: Профессиональный (полное дублирование) (Лицензия BD CEE)Язык субтитров: Русский, Английский, УкраинскийПродолжительность: 01:30:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C686C3C436BB7E28309C74756E13C9234F79C2B2
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,57 +1,3 @@
-###  Публикация: 1582226   (323598) от 09.10.2022
-
-Armed For Apocalypse - Ritual Violence (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under My Shame [00:03:14]
-02. Frail [00:02:20]
-03. Full of Phlegm [00:04:48]
-04. Hourglass [00:02:59](   Читать дальше...   )Жанр: Sludge Metal, Doom MetalПродолжительность: 00:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D527AD5B4E0426320325AD69CD5CEC65C2C7A351
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074630   (323599) от 21.11.2016
-
-Paul Taylor - Prime Time (2011) [APE|Lossless|image + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Push To Start (3:50)
-02. Moment Of Truth (4:32)
-03. Don't Wanna Let You Go (4:23)
-04. Cant Nobody (3:53)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E97CBD1148B57831E8658189E4A29618BAB36B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073842   (323600) от 21.11.2016
 
 Буало-Нарсежак | Вдовцы (2003) [MP3]
@@ -72,6 +18,8 @@ magnet:?xt=urn:btih:1E97CBD1148B57831E8658189E4A29618BAB36B4
 ```bash
 magnet:?xt=urn:btih:1B16A0D76CC0654458880E2A6AE00C3648B37CFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +45,8 @@ Dungeon Defenders: Second Wave - это продолжение первой ча
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +70,8 @@ The Beatles Anthology [Episode 1-4, русская озвучка М.Жолоб�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +98,8 @@ The Beatles Anthology [Episode 1-4, русская озвучка М.Жолоб�
 magnet:?xt=urn:btih:0C5BC43DECD4288A55A35A2A2131F7D034920D06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +124,8 @@ magnet:?xt=urn:btih:0C5BC43DECD4288A55A35A2A2131F7D034920D06
 ```bash
 magnet:?xt=urn:btih:411E9F39E95788C30453F5A277B28F2AC01554EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +154,8 @@ VA - Disco Forever (2000) The Sound Of Underground Disco, Compiled By Dimitri Fr
 magnet:?xt=urn:btih:4BB8B2C4DC4D109431F63273BD363C1758A13269
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +183,8 @@ Mark Ashley - I Will Not Forget You (2017) [FLAC|Lossless|tracks + .cue] <Euro-D
 magnet:?xt=urn:btih:72BBC1187533D21B36DF3E2AA53C2EC962FCED75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +208,8 @@ magnet:?xt=urn:btih:72BBC1187533D21B36DF3E2AA53C2EC962FCED75
 ```bash
 magnet:?xt=urn:btih:A4B2236FA1BD78E4243870FF3FA4F00EE834EC46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +236,8 @@ App Uninstaller- лучший способ удаления приложений
 ```bash
 magnet:?xt=urn:btih:CC2503DFA5B0FA3A93F5F912EA5707A7B9C43E11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +266,8 @@ Red Before Black (CD1)
 magnet:?xt=urn:btih:94592F57C0B271C4346D70D4A3EA913D52352F97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +292,8 @@ magnet:?xt=urn:btih:94592F57C0B271C4346D70D4A3EA913D52352F97
 ```bash
 magnet:?xt=urn:btih:501491E64BB0EE6CA92B38C0B205391BD39220DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +320,8 @@ Airmail – это почтовый клиент для операционной
 ```bash
 magnet:?xt=urn:btih:341E5422F966A4865BD5542DE0E38C1F638ECF16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +350,8 @@ VA - Best Of Crystalclouds Recordings Vol.3 (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:2C5E3559117093AAA782F35DDFF15B837A7B5252
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +377,8 @@ magnet:?xt=urn:btih:2C5E3559117093AAA782F35DDFF15B837A7B5252
 magnet:?xt=urn:btih:FF85B39169DCB3F90C0EBB1F894E96E06262FC3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +403,8 @@ Any Video Converter Professional - это многофункциональная
 magnet:?xt=urn:btih:166459A8E84B359CFA27C5202B40569971F67385
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +428,8 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:EBB4894D531AB3FB146455A346DF4222BD77E0B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +458,8 @@ VA - Estiva & Temple One - Enhanced Sessions Vol. 1 (2009) [MP3|320 Kbps] <Tranc
 magnet:?xt=urn:btih:442FA34889F66366C3BB54778D1511772103819A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +484,8 @@ magnet:?xt=urn:btih:442FA34889F66366C3BB54778D1511772103819A
 ```bash
 magnet:?xt=urn:btih:A7659D60A30FB8356CCD2955FB5C2F763B4C871C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +514,8 @@ Am Tierpark - Cherry Blossom (2016) EP [MP3|320 Kbps] <Synthpop, Electronic>
 magnet:?xt=urn:btih:13A6BC7888FF47C16BC723A0373735B2D62A979B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +543,8 @@ magnet:?xt=urn:btih:13A6BC7888FF47C16BC723A0373735B2D62A979B
 magnet:?xt=urn:btih:5D13AF3F01EAC592C6DBB60023FC248524229EC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +570,8 @@ Azureus — свободный BitTorrent-клиент, созданный в 20
 magnet:?xt=urn:btih:E310D25696E76C6894EEA6261E4012E5FCA017A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +596,8 @@ magnet:?xt=urn:btih:E310D25696E76C6894EEA6261E4012E5FCA017A7
 magnet:?xt=urn:btih:1D16ED46C35F99EE8B62EAD8E99FD281AD636476
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +621,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:8C2EB930566F3BCA798C206D6CE14D047B741B8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -658,6 +650,64 @@ VA - Tender Jazz with Sexappeal (2014) [MP3|320 Kbps] <Vocal Jazz, Lounge, Smoot
 ```bash
 magnet:?xt=urn:btih:88B7372B7891FA2B527C4FE52EC815954D7879F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958377   (323641) от 21.11.2015
+
+Проекты - VideoHive - Rose Petals Heart - Photo Gallery - 5315746 [AEP]
+
+>>Проекты
+>>Свадебные и романтические (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания романтического слайдшоу.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43FA473B67E77D2F3F5C398D2D1CF03F54AE4543
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958435   (323642) от 21.11.2015
+
+VA - Beatport Top 100 20.11.2015 (2015) [MP3|320 кб/с]<House, Electro, Progressive, Deep House, Tech House, Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323642.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Shaun Frank & KSHMR - Heaven (feat. Delaney Jane) (Extended Mix)
+002. Hot Since 82 - Veins (Original Mix)
+003. R3hab & Headhunterz - Won't Stop Rocking (Extended Mix)
+004. Joe Stone and Daser - Freak (And You Know It) (Extended Mix)(   Читать дальше...   )Жанр: House, Electro, Progressive, Deep House, Tech House, TechnoПродолжительность: 10:09:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:168213731E1F41CB19C7459FE1A77FA02A49B65F
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

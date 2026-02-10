@@ -1,3 +1,29 @@
+###  Публикация: 1089791   (950235) от 04.01.2017
+
+Пророки. Соломон (2016) HDTVRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Религии и культы (Док/TV)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950235.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой серии из цикла фильмов о великих пророках Ветхого Завета с участием библеистов и историков идет повествование о великом и непревзойденном царе Израиля – Соломоне, которого в христианстве и исламе признают пророком. Почему именно царь Соломон построил для своего народа первый Храм Божий? В чем была легендарная мудрость царя Соломона? Мог ли он на самом деле (   Читать дальше...   )Телекомпания: НеофитЖанр: ДокументальныйПродолжительность: 00:26:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1FD3EB0B6D5099D9A4B0F45845FFBDBAF29553B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 523447   (950302) от 04.01.2017
 
 Запах странствий: Западная Япония / Flavors Of West Japan (2006-2010) HDTVRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:C364A4F9D4AC8108C8912AD5747576A1104ED913
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:C364A4F9D4AC8108C8912AD5747576A1104ED913
 magnet:?xt=urn:btih:3F5153B25781377B729653F8B4229FC9D8782DE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:3F5153B25781377B729653F8B4229FC9D8782DE6
 ```bash
 magnet:?xt=urn:btih:71E2B9CEC0E93B4279363C4E4BD4B0296C949E68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:71E2B9CEC0E93B4279363C4E4BD4B0296C949E68
 magnet:?xt=urn:btih:FC9AF43D83DC48FB1CC9B97DF06A4B5CADF7C846
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:FC9AF43D83DC48FB1CC9B97DF06A4B5CADF7C846
 ```bash
 magnet:?xt=urn:btih:3AF8606DA851D690BEA5BA1AEB8B10CBF3A460C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ NGW: Просторы Америки / America's Wild Spaces (2018) HDTV [H.264/
 magnet:?xt=urn:btih:4E167179C014A330BA4CE87B8DB398BA21B96E8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:4E167179C014A330BA4CE87B8DB398BA21B96E8E
 ```bash
 magnet:?xt=urn:btih:8D6AB71FF6D1415F92106E840525E8CDDFD34A04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:8D6AB71FF6D1415F92106E840525E8CDDFD34A04
 magnet:?xt=urn:btih:04B1D9EF9CCAD7BE6364D1903AEBCE951B5A3335
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:04B1D9EF9CCAD7BE6364D1903AEBCE951B5A3335
 ```bash
 magnet:?xt=urn:btih:4C920B5E0D96D87EC21D22252687FB4299C74340
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:4C920B5E0D96D87EC21D22252687FB4299C74340
 magnet:?xt=urn:btih:C0D148C913B1B1A556996285F6FBA3112A0010EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:C0D148C913B1B1A556996285F6FBA3112A0010EA
 ```bash
 magnet:?xt=urn:btih:919C255C1867CACE87FCA4C797EDE13232523252
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:919C255C1867CACE87FCA4C797EDE13232523252
 magnet:?xt=urn:btih:3F8FD9DD5C36F1154F79F7FD1CD184E2867F408E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +356,8 @@ magnet:?xt=urn:btih:3F8FD9DD5C36F1154F79F7FD1CD184E2867F408E
 ```bash
 magnet:?xt=urn:btih:8BEE71B5394C1D98FE1FFA7103D9E2B121A9EB66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:8BEE71B5394C1D98FE1FFA7103D9E2B121A9EB66
 magnet:?xt=urn:btih:B5B7B8FC562E2FEBC6C58641C86033CADB8514B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +409,8 @@ magnet:?xt=urn:btih:B5B7B8FC562E2FEBC6C58641C86033CADB8514B0
 ```bash
 magnet:?xt=urn:btih:918082CC16038925BC7A25983789979C1647DCEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:918082CC16038925BC7A25983789979C1647DCEF
 magnet:?xt=urn:btih:9E920280B97F550D10213B6DDA09846375AC7355
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +461,8 @@ magnet:?xt=urn:btih:9E920280B97F550D10213B6DDA09846375AC7355
 ```bash
 magnet:?xt=urn:btih:CC543CCDCC65FFAB8EC6DED57342DC8579B1F7C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:CC543CCDCC65FFAB8EC6DED57342DC8579B1F7C2
 magnet:?xt=urn:btih:2C789AB7B81B553DD48928D34B1912F527420961
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +515,8 @@ magnet:?xt=urn:btih:2C789AB7B81B553DD48928D34B1912F527420961
 magnet:?xt=urn:btih:F0A6173FF9829D2BCC95BC0ECB0D3F9F763A03B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +540,8 @@ magnet:?xt=urn:btih:F0A6173FF9829D2BCC95BC0ECB0D3F9F763A03B9
 ```bash
 magnet:?xt=urn:btih:53E2F4562AE2F7C196B18A1D12F38A07504CAD72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:53E2F4562AE2F7C196B18A1D12F38A07504CAD72
 magnet:?xt=urn:btih:340F308B3B9FBD8336B9240A516D37937FAD837D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:340F308B3B9FBD8336B9240A516D37937FAD837D
 ```bash
 magnet:?xt=urn:btih:58D27EB2473A109073213C72F3347090F9AB6335
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +620,8 @@ magnet:?xt=urn:btih:58D27EB2473A109073213C72F3347090F9AB6335
 magnet:?xt=urn:btih:3AE6330DBA99FBF3F4C85C1B6493D2CBFD7D18AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +645,8 @@ magnet:?xt=urn:btih:3AE6330DBA99FBF3F4C85C1B6493D2CBFD7D18AD
 ```bash
 magnet:?xt=urn:btih:2F5D7ACE2C1BDDCC82873844EB3722A2A60D1CB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,29 +672,7 @@ magnet:?xt=urn:btih:2F5D7ACE2C1BDDCC82873844EB3722A2A60D1CB0
 magnet:?xt=urn:btih:FA5D16562E70F8AE0D0813625F8DC8B782572CC1
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981401   (952380) от 31.01.2016
-
-Воскресный вечер с Владимиром Соловьевым (2016.01.31) SATRip
-
->>Документалистика и Телепередачи
->>Общественно-политические и пропагандистские ток-шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952380.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Мы ставили задачу сделать программу для умного, неравнодушного зрителя, которая позволит обсуждать актуальные проблемы в разных форматах: от интервью "один на один" до "круглого стола". Надеемся, она будет такой же острой, как политическое ток-шоу "Поединок". Но если в "Поединке" сталкиваются две полярные точки зрения, (   Читать дальше...   )Телекомпания: РоссияЖанр: ТелепередачаПродолжительность: ~ 02:47:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89E7E2F2F646D1DEDCCC6F2CF32A459E542ECD97
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

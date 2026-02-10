@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:C35966F617271638B561EE155C3C6E583B31183C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ magnet:?xt=urn:btih:C35966F617271638B561EE155C3C6E583B31183C
 magnet:?xt=urn:btih:519ABFEA04B7C52EDA7C5B3F0BD97DD98516A4D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Volumexpert (Вохмянина Л.) | Реверс и Арбитраж (2012) P
 ```bash
 magnet:?xt=urn:btih:437BA0434976A64607FFC8E28E14AA4D6484ABE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Volfix.net (Михаил Лемах) | Симбиоз технического �
 ```bash
 magnet:?xt=urn:btih:E3CC8809C49397E875B9B79BEB68D733C2201CE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ Volfix.net | Торговые тактики для фьючерса на инд
 magnet:?xt=urn:btih:FA1F5C0D0F00A58ACFF099A091C1719BBE6803D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ Volfix.net (Михаил Лемах) | Практическое применен
 magnet:?xt=urn:btih:DB3D79A99679E185A9241CE5FD85E5E54BE962B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ Volumexpert (Вохмянина Л.) | Интрадей или поиск иде
 ```bash
 magnet:?xt=urn:btih:80B1669BE85F7B81A20009BB41A5BE7EC18C91BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ Volfix.net | Валютные фьючерсы - рабочие параметр
 magnet:?xt=urn:btih:0A985713BBB8524B77A6DFF51AA7C99BBD3AF399
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ Lynda.com | JavaScript (2011-2014) [PCRec] [EN]
 ```bash
 magnet:?xt=urn:btih:FA395AFCE37D1D7CCB3056B0160409D395B5E0C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ Lynda.com | CSS (2009-2013) [PCRec] [EN]
 magnet:?xt=urn:btih:AB78659193B728857725CED1F437EC3185EA2EB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:AB78659193B728857725CED1F437EC3185EA2EB9
 ```bash
 magnet:?xt=urn:btih:F81EC7AC7721DC1B31889E2D6151A0FF25348A4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ magnet:?xt=urn:btih:F81EC7AC7721DC1B31889E2D6151A0FF25348A4A
 magnet:?xt=urn:btih:7EA4423D9A7D7D3FD0CB15A0E1896BF80D0A73F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:7EA4423D9A7D7D3FD0CB15A0E1896BF80D0A73F0
 ```bash
 magnet:?xt=urn:btih:3391EDFEE4D932717EF008728C2A05185D5E099B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:3391EDFEE4D932717EF008728C2A05185D5E099B
 magnet:?xt=urn:btih:1DA83D26FD4527EC9190FB058FC21E969C1BB459
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:1DA83D26FD4527EC9190FB058FC21E969C1BB459
 magnet:?xt=urn:btih:863B49CD7823F4859EB5BA962C80054A47F382AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:863B49CD7823F4859EB5BA962C80054A47F382AB
 ```bash
 magnet:?xt=urn:btih:BD9440FE5E1000B1F0375E45AE29DBD4D82C6F66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +455,8 @@ magnet:?xt=urn:btih:BD9440FE5E1000B1F0375E45AE29DBD4D82C6F66
 magnet:?xt=urn:btih:7338DC42F97D3B7B3F633C936BB4BC346F5C7D0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:7338DC42F97D3B7B3F633C936BB4BC346F5C7D0A
 magnet:?xt=urn:btih:50EF97595736BDB5F8D8BD880ABDAFC0D3A4DB3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ ITVDN | Unity3D Написание игрового сервера и созда
 ```bash
 magnet:?xt=urn:btih:C54F7BE039488A61247224DB1CC33692E9D41851
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ Volumexpert  | КУРС ПРОФЕССИОНАЛ (2014) PCRec
 ```bash
 magnet:?xt=urn:btih:70B0792F1A967ED989F90341F48F8EEBAE45BBB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +564,8 @@ Volumexpert (Вохмянина Л.) | Базовый курс по объемн
 magnet:?xt=urn:btih:469ED32D454E6DFB9AE1AB4E4BD5E9E51C81DBFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +592,8 @@ Volfix.net | LEVEL 3 Высокоэффективная торговая стр�
 ```bash
 magnet:?xt=urn:btih:60B555F0B51697FFD0529DC740544ACF0C619C0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +622,8 @@ Volfix.net (Вохмянина) | Market Profile - новое мышление �
 magnet:?xt=urn:btih:C86CA7FD860A0621D907FBD1A77AB8BAE53EECC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +651,8 @@ magnet:?xt=urn:btih:C86CA7FD860A0621D907FBD1A77AB8BAE53EECC0
 magnet:?xt=urn:btih:8A4BB9AF50AD9E98B20465FB2C793C9B45FCC0E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +677,8 @@ Lynda.com | HTML (2010-2014) [PCRec] [EN]
 magnet:?xt=urn:btih:2D9E7AB0D7C41D6D07DCDD03FF7896737A4B541D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ Lynda.com | Foundation (2014) [PCRec] [EN]
 ```bash
 magnet:?xt=urn:btih:C3A19A75546A32FE3676BEFD830FD95C338D2520
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

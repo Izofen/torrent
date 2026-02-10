@@ -1,3 +1,29 @@
+###  Публикация: 1407282   (1030094) от 20.02.2021
+
+Путин: История русского шпиона / Putin: A Russian Spy Story (2020) HDTV [H.264/1080i-LQ] (серии 1-3 из 3)
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трехсерийный фильм о президенте России Владимире Путине. Проект представляет собой «интервью с теми, кто работал с политиком, хорошо его знал и сталкивался с ним». В числе заявленных спикеров шоу — Татьяна Юмашева, дочь предшественника Путина в кресле российского главы Бориса Ельцина, Марина Литвиненко, вдова бывшего сотрудника ФСБ Александра Литвиненко, журналист (   Читать дальше...   )Производство: Великобритания, Channel 4Жанр: Документальный, Биография, ПолитикаРежиссер: Ник ГринПеревод: Двуголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 3 x ~ 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:465AEDBA3EEC7D6E86F88BA6FD7B01506D6D54A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1622438   (1030161) от 28.03.2023
 
 Гении природы / Bionik Revolution - Die besten Ideen der Natur (2012) BDRip [H.264/1080p] (серии 1-3 из 3)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:BA05B590A87C0674BDAF027C974D000E4169532D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:BA05B590A87C0674BDAF027C974D000E4169532D
 magnet:?xt=urn:btih:7CB3A1D276DB2751451895BE21D4590439A4E970
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:7CB3A1D276DB2751451895BE21D4590439A4E970
 magnet:?xt=urn:btih:D1C54B4BF2FDCEFFDEB7567616B20240C76F91A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:D1C54B4BF2FDCEFFDEB7567616B20240C76F91A0
 ```bash
 magnet:?xt=urn:btih:DD4547EF1B1DC33D95F91321F18CDE44F76A1D71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:DD4547EF1B1DC33D95F91321F18CDE44F76A1D71
 magnet:?xt=urn:btih:5587606B2080D11330B3D138CB89132A06DCFD9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ Genesis: Сумма частей (Genesis: Части целого) / Genesis: S
 ```bash
 magnet:?xt=urn:btih:6C5D2508049C546E4CFB53EA027E8C4769917839
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:6C5D2508049C546E4CFB53EA027E8C4769917839
 magnet:?xt=urn:btih:B4F840C3CB9793F6002175012F50BFF0C7EBB869
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:B4F840C3CB9793F6002175012F50BFF0C7EBB869
 ```bash
 magnet:?xt=urn:btih:2408F3B9DE023F4F4189E0F5F3084D2CB146850E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:2408F3B9DE023F4F4189E0F5F3084D2CB146850E
 magnet:?xt=urn:btih:DA97E70FFF9D9FF28F19D7B0830C9BD9479F2E2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:DA97E70FFF9D9FF28F19D7B0830C9BD9479F2E2C
 magnet:?xt=urn:btih:D4E26FC1D587FAE9BEC01DDF4884D9E498AB43FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:D4E26FC1D587FAE9BEC01DDF4884D9E498AB43FD
 ```bash
 magnet:?xt=urn:btih:180EA4B8255F3656D30C85CC695D56B17C99517D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:180EA4B8255F3656D30C85CC695D56B17C99517D
 magnet:?xt=urn:btih:DB0A4278A96BA06E290AF355D670C8CF8C770F64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:DB0A4278A96BA06E290AF355D670C8CF8C770F64
 magnet:?xt=urn:btih:7DF4821F2D788BC84783B241C80ABF50B9F91DD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:7DF4821F2D788BC84783B241C80ABF50B9F91DD1
 ```bash
 magnet:?xt=urn:btih:734ED2E45FE72224E99576DDA4074D45BF31A0E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:734ED2E45FE72224E99576DDA4074D45BF31A0E7
 magnet:?xt=urn:btih:5864F8096EEF5A259773504169DB4D0D00F4E908
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:5864F8096EEF5A259773504169DB4D0D00F4E908
 ```bash
 magnet:?xt=urn:btih:A82B64E48E479E72CB8B01686CABE1209CD37E16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:A82B64E48E479E72CB8B01686CABE1209CD37E16
 magnet:?xt=urn:btih:838A6A55F9CCB74450B3801522D4F6DF18DC46F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:838A6A55F9CCB74450B3801522D4F6DF18DC46F1
 ```bash
 magnet:?xt=urn:btih:6F5C2DE8A68176593C90F55DEA2E9FBDAC2D16AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:6F5C2DE8A68176593C90F55DEA2E9FBDAC2D16AA
 magnet:?xt=urn:btih:4170DF32D7236D6D241BBFE3313BD4EC2F4A2209
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:4170DF32D7236D6D241BBFE3313BD4EC2F4A2209
 ```bash
 magnet:?xt=urn:btih:B241C46BBA41D9F7D130D801DD6756F2F94CF735
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:B241C46BBA41D9F7D130D801DD6756F2F94CF735
 magnet:?xt=urn:btih:B82A0B09CF43D7A10BDDF5D1E3F6ADD28548A668
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:B82A0B09CF43D7A10BDDF5D1E3F6ADD28548A668
 ```bash
 magnet:?xt=urn:btih:9E243B2C3C583D131A586A73E25368BF3C1FC4C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:9E243B2C3C583D131A586A73E25368BF3C1FC4C0
 magnet:?xt=urn:btih:CD73E79273E94D4AEA6207C80BBC03FAAF098426
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:CD73E79273E94D4AEA6207C80BBC03FAAF098426
 ```bash
 magnet:?xt=urn:btih:60728ADF63ECACC3BBB0CF94ECF75ED43F27888B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,31 +679,7 @@ magnet:?xt=urn:btih:60728ADF63ECACC3BBB0CF94ECF75ED43F27888B
 magnet:?xt=urn:btih:0BFFCA850BB7330763C0E6B6C2B8EAEA7464F73C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621570   (1030968) от 25.03.2023
-
-Главная дорога (25.03.2023) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Больничные последствия задержания для буйного нарушителя, бронемузин китайского лидера, сход снега с крыши и дорогостоящий ремонт из-за беспечности автовладельцев.
-Как в 90-е: житель Оренбурга избил, бросил в багажник и пытался вывезти в другой город возлюбленную, которую чудом спасли инспекторы. Что можно сделать, если вас похитили и закрыли в багажнике?
-Отсижу, (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:25:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:432F3072217DD0C814B25204905E84F187FA2AEC
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

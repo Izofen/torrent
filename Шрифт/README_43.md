@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:992FCD5922C0977374CDFE95CA9A19195E34E3D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:992FCD5922C0977374CDFE95CA9A19195E34E3D6
 magnet:?xt=urn:btih:A18BB0732BD59C11E85D4BFA8E8CEFC36351A0CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Signation - С основным стилем рукописного письма
 ```bash
 magnet:?xt=urn:btih:8CA0DE897287F041978607CCFD078A61E4B03E83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:8CA0DE897287F041978607CCFD078A61E4B03E83
 magnet:?xt=urn:btih:FDAA00B0FB064B0433F8C20A97738AD55922B732
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Asia Tiger - это свежий современный шрифт, элеган
 ```bash
 magnet:?xt=urn:btih:1D6574E59F4F4F8895DDE1BC13956600032F35A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:1D6574E59F4F4F8895DDE1BC13956600032F35A4
 magnet:?xt=urn:btih:8611A369228B9F7CF4A40CD577CE67DBFD4CEB64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:8611A369228B9F7CF4A40CD577CE67DBFD4CEB64
 magnet:?xt=urn:btih:80FCEF3DEF95C605F3615073316D586C5D4DFC2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:80FCEF3DEF95C605F3615073316D586C5D4DFC2D
 ```bash
 magnet:?xt=urn:btih:3632372BEA90CF8441E36BB334268B9E0A8D2A21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:3632372BEA90CF8441E36BB334268B9E0A8D2A21
 magnet:?xt=urn:btih:31BF414A1526D31E39E8F1E1426BD9B787BE6643
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:31BF414A1526D31E39E8F1E1426BD9B787BE6643
 magnet:?xt=urn:btih:FF9189F6905B5BF075BDBB106BF75CADB38D4E15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:FF9189F6905B5BF075BDBB106BF75CADB38D4E15
 ```bash
 magnet:?xt=urn:btih:7BEB8B2EBBD5128D6F32BD1630058666BA8F9BB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:7BEB8B2EBBD5128D6F32BD1630058666BA8F9BB6
 magnet:?xt=urn:btih:986C415FAC0475CA7738191E69A09497513C234F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:986C415FAC0475CA7738191E69A09497513C234F
 ```bash
 magnet:?xt=urn:btih:096D0C32657710765D1438727195C671044F6DB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:096D0C32657710765D1438727195C671044F6DB0
 magnet:?xt=urn:btih:4849D102092CA45D19E42B02C9CFE3B506FCAC62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:4849D102092CA45D19E42B02C9CFE3B506FCAC62
 ```bash
 magnet:?xt=urn:btih:FE8B193A7E5C8A4E6F4B8893826947F994B00621
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:FE8B193A7E5C8A4E6F4B8893826947F994B00621
 magnet:?xt=urn:btih:191310ADBC1A1F188503B3CA92CC8F5851B20F63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:191310ADBC1A1F188503B3CA92CC8F5851B20F63
 ```bash
 magnet:?xt=urn:btih:134917E289CA1693DA204E0EA3C36AC42D6097A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:134917E289CA1693DA204E0EA3C36AC42D6097A1
 magnet:?xt=urn:btih:DB07572488B16E009B978E3D077AB09F644AB320
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ magnet:?xt=urn:btih:DB07572488B16E009B978E3D077AB09F644AB320
 ```bash
 magnet:?xt=urn:btih:A2F9B697445F97225A08478A61AEA46786690DB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ magnet:?xt=urn:btih:A2F9B697445F97225A08478A61AEA46786690DB4
 magnet:?xt=urn:btih:1B40D2314507CC8765AB8BAED137D283F84484F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:1B40D2314507CC8765AB8BAED137D283F84484F2
 ```bash
 magnet:?xt=urn:btih:DE0840D2473D8A5FFB6AECCA8010B18CB57213CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:DE0840D2473D8A5FFB6AECCA8010B18CB57213CA
 magnet:?xt=urn:btih:EF8400E9C0776EB98212B0FEDAC6F1E23C26E039
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ CS Adelina — современный рукописный шрифт, излу�
 ```bash
 magnet:?xt=urn:btih:CE2AD8C977610BA2F3F0ABDF86FF2A96F9CEDC01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ magnet:?xt=urn:btih:CE2AD8C977610BA2F3F0ABDF86FF2A96F9CEDC01
 magnet:?xt=urn:btih:B7F56A445C0D198CCCFEE47E8215354E16F3DA12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ ORVADO — это современный декоративный шрифт, с
 magnet:?xt=urn:btih:68600E1C33345D298E6E294A9B07CD95048229A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ magnet:?xt=urn:btih:68600E1C33345D298E6E294A9B07CD95048229A8
 ```bash
 magnet:?xt=urn:btih:1C9EEC8E69707CDC07E7BF7EABC3CF23A14D8D6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

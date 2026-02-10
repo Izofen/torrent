@@ -1,3 +1,32 @@
+###  Публикация: 1851799   (1055372) от 
+
+Валерий Гуров, Денис Старый | Фаворит (Книга 3). Русский флаг (2025) [MP3, Павел Архипов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очнулся — кровь на лице, палуба дрожит, пушки молчат. Французы на горизонте. На фрегате паника. Капитан-француз приказывает сдаться.
+А я? Я ветеран. Прошел Великую Отечественную. И у меня один принцип: РУССКИЕ НЕ СДАЮТСЯ.
+Теперь я в 1730-х. Успел поднять бунт на корабле, сохранить честь флага и попасть под военный трибунал.
+Но я не сломаюсь.(   Читать дальше...   )Жанр: Фантастика, ПопаданцыИздательство: ЛитРесПродолжительность: 08:32:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A3277DEF36FE5A709E564418CC04BCFDE6677EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1851798   (1055373) от 
 
 Валерий Гуров, Денис Старый | Фаворит (Книга 2). Служу России! (2025) [MP3, Павел Архипов]
@@ -21,6 +50,8 @@
 ```bash
 magnet:?xt=urn:btih:A988A24AB3F74391F89AE39F65C8DE18B898289E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ magnet:?xt=urn:btih:A988A24AB3F74391F89AE39F65C8DE18B898289E
 magnet:?xt=urn:btih:3F22EABEE3177E5B504D7F53E912B5C103060793
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +105,8 @@ magnet:?xt=urn:btih:3F22EABEE3177E5B504D7F53E912B5C103060793
 ```bash
 magnet:?xt=urn:btih:1163E17697F6EA06F23D5A1B7844FCD3D1CB1D3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +134,8 @@ magnet:?xt=urn:btih:1163E17697F6EA06F23D5A1B7844FCD3D1CB1D3C
 magnet:?xt=urn:btih:59B0311B05A5D02A48B3137C0C52A6D32E5974C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +160,8 @@ magnet:?xt=urn:btih:59B0311B05A5D02A48B3137C0C52A6D32E5974C8
 magnet:?xt=urn:btih:ACD469EC79441E0C56C209627A618E3B06876599
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +185,8 @@ magnet:?xt=urn:btih:ACD469EC79441E0C56C209627A618E3B06876599
 ```bash
 magnet:?xt=urn:btih:3217D7C5CBCDA76358EF73DCD590D809CDEB29F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +214,8 @@ magnet:?xt=urn:btih:3217D7C5CBCDA76358EF73DCD590D809CDEB29F4
 magnet:?xt=urn:btih:A16B40C4C27E3DDE81D72883F9A660F2F9DD3FEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +240,8 @@ magnet:?xt=urn:btih:A16B40C4C27E3DDE81D72883F9A660F2F9DD3FEA
 ```bash
 magnet:?xt=urn:btih:84D3694725A126F22A6FB454E0290FA0A9F71E91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +269,8 @@ magnet:?xt=urn:btih:84D3694725A126F22A6FB454E0290FA0A9F71E91
 magnet:?xt=urn:btih:0E331F160F1E1C3A7B579D2C4A0C5884AA9E7122
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +295,8 @@ magnet:?xt=urn:btih:0E331F160F1E1C3A7B579D2C4A0C5884AA9E7122
 ```bash
 magnet:?xt=urn:btih:56FA1ABFFCE664CBEEFCFF124CC0191B7EEB5DCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +324,8 @@ magnet:?xt=urn:btih:56FA1ABFFCE664CBEEFCFF124CC0191B7EEB5DCD
 magnet:?xt=urn:btih:22C806E21B7D73ABD65367A56F4E53C34505CA2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +351,8 @@ magnet:?xt=urn:btih:22C806E21B7D73ABD65367A56F4E53C34505CA2E
 ```bash
 magnet:?xt=urn:btih:86C2D6C65898989B757885C1378ED896B9B112CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +380,8 @@ magnet:?xt=urn:btih:86C2D6C65898989B757885C1378ED896B9B112CB
 magnet:?xt=urn:btih:A86EC0832EB0E0DB0B093D9A593B85776B9A5011
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +406,8 @@ magnet:?xt=urn:btih:A86EC0832EB0E0DB0B093D9A593B85776B9A5011
 ```bash
 magnet:?xt=urn:btih:5D005BD34BB003153326225FD0E68057AAC669FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +435,8 @@ magnet:?xt=urn:btih:5D005BD34BB003153326225FD0E68057AAC669FE
 magnet:?xt=urn:btih:9D258C177210A2941A5D847ED3D88C4F29EBE80C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +462,8 @@ magnet:?xt=urn:btih:9D258C177210A2941A5D847ED3D88C4F29EBE80C
 magnet:?xt=urn:btih:09DD6621B4CEE0FAEBC0E92328E37097246EDB64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +487,8 @@ magnet:?xt=urn:btih:09DD6621B4CEE0FAEBC0E92328E37097246EDB64
 ```bash
 magnet:?xt=urn:btih:192BDE38835902C6534996EDEE509D0EC1AB6340
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +514,8 @@ magnet:?xt=urn:btih:192BDE38835902C6534996EDEE509D0EC1AB6340
 magnet:?xt=urn:btih:37EF8CF76B9CE7520CDE159F9C1A060192773B13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +539,8 @@ magnet:?xt=urn:btih:37EF8CF76B9CE7520CDE159F9C1A060192773B13
 ```bash
 magnet:?xt=urn:btih:D74DE6F5E8CC5096A2AA8E2E7F075FBA3B434A24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +566,8 @@ magnet:?xt=urn:btih:D74DE6F5E8CC5096A2AA8E2E7F075FBA3B434A24
 ```bash
 magnet:?xt=urn:btih:AE8E9A89D6CAAF6313E9E8A67F69820A103928F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +596,8 @@ magnet:?xt=urn:btih:AE8E9A89D6CAAF6313E9E8A67F69820A103928F1
 magnet:?xt=urn:btih:A0C465AD8A82512A8C014870FAB6D042D6F1C789
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +621,8 @@ magnet:?xt=urn:btih:A0C465AD8A82512A8C014870FAB6D042D6F1C789
 ```bash
 magnet:?xt=urn:btih:21546DFCFCFEF9FE70675FD37AE7888134FEC2F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +651,8 @@ magnet:?xt=urn:btih:21546DFCFCFEF9FE70675FD37AE7888134FEC2F0
 magnet:?xt=urn:btih:66FD92E1C9D82D50B9CEA4FEEAC716255737A60E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +676,8 @@ magnet:?xt=urn:btih:66FD92E1C9D82D50B9CEA4FEEAC716255737A60E
 ```bash
 magnet:?xt=urn:btih:4CA630931BABD75D1B3161DC0A44FD28AE3ABCAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,29 +704,7 @@ magnet:?xt=urn:btih:4CA630931BABD75D1B3161DC0A44FD28AE3ABCAB
 magnet:?xt=urn:btih:60AF605C29CC57C147C4ECFAFF0AC1C6314EFC31
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851642   (1055437) от 
-
-Виктор Викторов | Пепел (Книга 3). Полозов. Игры разума (Том 3) (2025) [MP3, Семён Ващенко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055437.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отвергнутый собственным Родом, сосланный в глухую северную провинцию, Пётр Полозов пытается обуздать родовой дар, наличие которого он всеми силами старается скрыть ото всех.Его считают ни на что не способным?Пусть. Ещё не время заявлять о себе!Его хотят сделать разменной монетой? А вот здесь, дорогие родственнички, вы крупно просчитались!На что может пойти амбициозный (   Читать дальше...   )Жанр: Боевая магия, Боевое фэнтези, Городское фэнтезиИздательство: ЛитРесПродолжительность: 07:23:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C506515261B0BAA711D92BF41FB7BC6D8823D593
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

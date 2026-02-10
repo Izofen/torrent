@@ -19,6 +19,8 @@ MultiTimer - это простое и универсальное таймер-п
 magnet:?xt=urn:btih:C420AAE268912F1A915686C37033F043ED2888FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ InviZible Pro сочетает в себе сильные стороны Tor, DN
 magnet:?xt=urn:btih:D9AEB6752E4B00B5B05E889E098BB9A8C4F96707
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ LazyIPTV Deluxe v2.46 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E6285495FA6E66FA3D868D04E49D6D578E4D3AC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Smart AudioBook Player Pro v10.0.6 Mod by Balatan, Kirlif', Alex.Strannik [Ru/Mu
 magnet:?xt=urn:btih:A717A605E04F798870C40867ADAC287501D3128A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:A717A605E04F798870C40867ADAC287501D3128A
 ```bash
 magnet:?xt=urn:btih:7CB45765FDEE269225DBD3B0D51FAA306F54A5F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ XY VPN — это абсолютно бесплатный VPN! Быстрое и
 magnet:?xt=urn:btih:80B596B38DBAB261D56725C264964FEED304E0A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Cleaner for WhatsApp — это мощный инструмент для очи�
 ```bash
 magnet:?xt=urn:btih:D3B379B27D6413AF2184B915EB352879360C611F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ QR & Barcode Scanner Pro - очередное приложение для счи
 magnet:?xt=urn:btih:D801E9EC402693107E1572FE33D2117E2E80C41C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:D801E9EC402693107E1572FE33D2117E2E80C41C
 ```bash
 magnet:?xt=urn:btih:35E3649FE3B370C31962B3EE020D6AE38F584B87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ VPN Russia - VPN сервера в России 1.168 Mod by ANiK555 [En]
 magnet:?xt=urn:btih:EF75684D27A032F08006014750166F88651E1E8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:EF75684D27A032F08006014750166F88651E1E8C
 ```bash
 magnet:?xt=urn:btih:E7B8F62D8BC4BDDDEF8AA0C2E2028C592E631776
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Offline Maps / Офлайн карты для путешественников v
 magnet:?xt=urn:btih:6FD19DDA9EFAE98EF8E850D03CCA35798F2E8489
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ jetAudio HD Music Player Plus - мощный и стильный аудиопл�
 ```bash
 magnet:?xt=urn:btih:96E28A3212B145697B75F22CE58CB4C99AFB8E90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Truecaller - представляет собой электронную теле
 magnet:?xt=urn:btih:3C40A7A7CEDEAAED58D6CA1D65A73B4A3753F9DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Truecaller - представляет собой электронную теле
 ```bash
 magnet:?xt=urn:btih:E79EF863C29D9864C38154ED66608D1437DA437A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Snap Camera HDR – Еще одно популярное приложение, �
 magnet:?xt=urn:btih:31E421926EFCE7C8347C05D7E1CECBA3E1C4FBD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ Kodi 20.2 (Nexus) for Android [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:65591393126F687496D1A2D0800C0883FA696ECB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ Casse-o-player 3.2.3 Jubilee Update Mod by alax1972 + Cassette Pack (Unpacked) [
 magnet:?xt=urn:btih:AC277160EC6DCB5682A18D80634F91AF46CF3EB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ SmartTube Next - неофициальный продукт представля�
 ```bash
 magnet:?xt=urn:btih:BC41B012D9ADBD7234FBDB342FFF46A71AA6E523
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ SD Maid поможет держать Ваше устройство в чист�
 magnet:?xt=urn:btih:577E2FDBF09493EC38C73EB2FCB9F34B78051441
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ Titan - Home Workout & Fitness v3.6.7 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:55D7CA054333FC494FE467DBDFFF351D376D2532
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ Listen Audiobook Player v5.0.15 [Ru/Multi]
 magnet:?xt=urn:btih:89AD48AFE0D53B4B32B28AA08FED30D597E84F0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:89AD48AFE0D53B4B32B28AA08FED30D597E84F0C
 ```bash
 magnet:?xt=urn:btih:AB7FC7EAA6B1E8A7F4A601ECC35D8D0D099D35C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ magnet:?xt=urn:btih:AB7FC7EAA6B1E8A7F4A601ECC35D8D0D099D35C4
 magnet:?xt=urn:btih:9098281D23E929A01CE44B49B9D4A7E190F00570
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ magnet:?xt=urn:btih:9098281D23E929A01CE44B49B9D4A7E190F00570
 magnet:?xt=urn:btih:F755DA0B4EE8DD664CD0A0C05B2A857813E388E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ MX Player Pro v1.68.4 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:18DCD0670647F0DE20495F96957689FF4E92C4C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

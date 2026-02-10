@@ -19,6 +19,8 @@ Topaz DeNoise AI 3.7.2 (x64) RePack (& Portable) by elchupacabra [En]
 magnet:?xt=urn:btih:C4D2F01399D585977815A4901BC38D34AAB62168
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ PaintTool SAI - это высококачественное и легкое пр
 ```bash
 magnet:?xt=urn:btih:46490A1FB9BC83885152CA72B097B48EC983B7C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Perfectly Clear — приложение, которое позволяет вс
 magnet:?xt=urn:btih:8020F75032679BEE9768B6C2E2F6A5618E87D512
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:8020F75032679BEE9768B6C2E2F6A5618E87D512
 ```bash
 magnet:?xt=urn:btih:15869713CF6EC8504D085AA68BAF0C8F7A021A12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Topaz DeNoise AI 3.7.2 RePack by KpoJIuK [En]
 magnet:?xt=urn:btih:D2D4BC44A8DD3866388DDE86124FD0FBA172E947
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ HitPaw Photo Enhancer - это наиболее полный инструмен�
 magnet:?xt=urn:btih:1041CAFFF67E5CC5A5A25B92DC91DED327405C3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Nik Collection by DxO – это наиболее полная коллекци�
 ```bash
 magnet:?xt=urn:btih:448F42885019628C3B39D9CAB064031E8117BF50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:448F42885019628C3B39D9CAB064031E8117BF50
 magnet:?xt=urn:btih:FF591FD2D54169353BD04FB394FAF0E211406BE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:FF591FD2D54169353BD04FB394FAF0E211406BE3
 ```bash
 magnet:?xt=urn:btih:134B73520977739734CA95870D62208B7C2CE038
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ ArtRage настоящая художественная студия для по
 magnet:?xt=urn:btih:D564A04A6C618C6C675C0C47C75CF61962FB3A9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Adobe Illustrator 2023 27.0.0.602 RePack by PooShock [Multi/Ru]
 magnet:?xt=urn:btih:2F7FCEC7E7ED8C775B8990E1B1DFCEEB9B81E1DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:2F7FCEC7E7ED8C775B8990E1B1DFCEEB9B81E1DB
 ```bash
 magnet:?xt=urn:btih:5BFC4369DC1025A6D867D5BBD5A7DB3EA549390C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Adobe Illustrator — это принятое в качестве отрасле
 magnet:?xt=urn:btih:072666D56A2C6BA1DD15274FA1DD8DE402D7DE32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Lightroom объединяет фотографии в «коллекции» �
 ```bash
 magnet:?xt=urn:btih:1AF17CF5919F3BAC303BB64B7311A353C8B980C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Adobe Photoshop — это приложение для редактирован�
 magnet:?xt=urn:btih:4910A2B26BC9E3186F083B6E0594A6DCC2985EF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ CorelDRAW Graphics Suite 2025 26.2.0.170 Portable by conservator [Ru/En]
 ```bash
 magnet:?xt=urn:btih:32C239D1969256BC96EC79AFE5A808FF941BFF97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:32C239D1969256BC96EC79AFE5A808FF941BFF97
 magnet:?xt=urn:btih:B51B9C0BB1C7E20B24AF8CFDA1F8CCAE6372CBF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ InDesign — ведущее в отрасли программное обесп�
 ```bash
 magnet:?xt=urn:btih:7154D56C04D4F6204570333405E82F353D21D4DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ InCopy позволяет авторам напрямую набирать те�
 magnet:?xt=urn:btih:FFFEC2EC95090476E511C322217C2B3067AF64A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ Dynamic Auto-Painter — уникальный редактор, который �
 ```bash
 magnet:?xt=urn:btih:57BC6259F091EEA5D092AFBDCAC50BD0AB663B9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ VEGAS Image - мощная программа для работы с вашим�
 magnet:?xt=urn:btih:808A06308E65D69C97CE96EB593040D70E84D16E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Blob Studio - это продукт, созданный на основе Twiste
 ```bash
 magnet:?xt=urn:btih:BE0CC204EE0FAE1B0EA886DD2107708B9FE604C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ Pinta 2.1.1 [Multi/Ru]
 magnet:?xt=urn:btih:23704E92A7D0FAABD6AF60E497FCEE5F6CD63664
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ HitPaw Photo Enhancer - это наиболее полный инструмен�
 ```bash
 magnet:?xt=urn:btih:014D3313DF13C2498A781F8D61DD7C6B3D2FD442
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ PhotoInstrument - мощный и лёгкий в использовании р�
 magnet:?xt=urn:btih:49D0B3F158847208AEEDFD2B7EE86813AB1A1BAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ DrawingBotV3 - это программа для преобразования и�
 ```bash
 magnet:?xt=urn:btih:9674F6AD02D87CBC7CEA26B05BDE769CB17EC1E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

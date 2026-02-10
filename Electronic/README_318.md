@@ -22,6 +22,8 @@ Major Lazer - 3 Albums + 2 EP + Singles + Remixes + Bonus (2009-2015) [MP3|320 �
 magnet:?xt=urn:btih:2C69F5E97389776C0C86BA2DD4C81DA039801E43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -50,6 +52,8 @@ CD2 - 01:15:56Треклист CD1:
 magnet:?xt=urn:btih:104594D2CBD327091CCD3F280DCAA41177470B77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +80,8 @@ Philip Anders - My Kind Of Car (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House>
 ```bash
 magnet:?xt=urn:btih:B2F2C9ADD8E78243D013DB582173749F0B37D22C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -104,6 +110,8 @@ VA - Inner Balance Chillout Your Soul 2 (2017) [MP3|320 Kbps] <Balearic, Downtem
 magnet:?xt=urn:btih:BB6FC87E86868AEAFBBBBF16032CEF938F309AD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +138,8 @@ Breathdub - Modulations (2017) [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House
 ```bash
 magnet:?xt=urn:btih:57FB12840C395431343D83E826EEB4E46DC122C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -158,6 +168,8 @@ VA - House On My Soul: Summer Edition (2017) [FLAC|Lossless|WEB-DL|tracks] <Prog
 magnet:?xt=urn:btih:2B0AF058AF36807F441724A53CE9B252AF5A7489
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +196,8 @@ VA - Relaxing Beach Chillout Vol.4 (2017) [MP3|320 Kbps] <Downtempo, Chillout, L
 ```bash
 magnet:?xt=urn:btih:2F3C91D33F2EBB7861AB8FC7A594A70A9AC68912
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +226,8 @@ VA - Classic Progressive House Vol. 1 (2017) [MP3|320 Kbps] <Progressive House>
 magnet:?xt=urn:btih:8A03515671AE6BBCBA3BAA54D780AF7762526CF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +254,8 @@ Mike Dehnert - Providing Home (2017) [FLAC|Lossless|WEB-DL|tracks] <Techno>
 ```bash
 magnet:?xt=urn:btih:046A04FD5D01E5E6E008D736BCF5873470F3247D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +284,8 @@ VA - This Is My Church Vol.6 (The Chill Out Edition) (2017) [MP3|320 Kbps] <Down
 magnet:?xt=urn:btih:53F1A7D53D64BCB469B6BB998623E6CAA9D29043
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +312,8 @@ Evolving Atmospheres - Evolving Atmospheres (2017) [MP3|320 Kbps] <Ambient, Dron
 ```bash
 magnet:?xt=urn:btih:AB02FFF24A4C49825967FF313BE32EABD484798D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +342,8 @@ Ronny Vergara - Remixes Compilation Vol.02 (2017) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:90B29F3056294EE185130E54307675E021DDC4A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +370,8 @@ VA - Sigh Chill Out Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:7AFBCB7EF169AFD63F2CCDF4A56144538D18C835
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +400,8 @@ Irazu & Regis - Shtamm (2017) [FLAC|Lossless|WEB-DL|tracks] <Techno>
 magnet:?xt=urn:btih:D089A0BA4EDD75C9C7F67D196D9D0E5DC038EF58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +428,8 @@ VA - Clinique Sampler (Part 94) (2017) [MP3|320 Kbps] <House,Progressive House>
 ```bash
 magnet:?xt=urn:btih:E611B20B6AB0A369ABE1D1C000A1F48FC58728DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +458,8 @@ SETI - Discography 3 Releases (1994-1996) Instinct Ambient [FLAC|Lossless|tracks
 magnet:?xt=urn:btih:EA1685B6C160AE71524A5B62EF18C547F97F1027
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +486,8 @@ VA - Chill Out Essentials Vol 1-15 (2012-2014) [Обновляемая] [MP3|320
 ```bash
 magnet:?xt=urn:btih:4A7F8BE03CBF0C0A2C23AD5B24B8FB6C104476E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +516,8 @@ Toyah - Desire (серия "Другие восьмидесятые") (1987) Rei
 magnet:?xt=urn:btih:52B3309EE54EC663137B11B56B9302A5ED908198
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +544,8 @@ VA - Solomun Pres: Selected Remixes (2009-2015) - 2016 [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:B492085B2AA10982472F738E9EEA2E51253B4945
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +574,8 @@ VA - Lounge Music for Cooking (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 magnet:?xt=urn:btih:2EBF05E89DE29D5B44AA60A65C5D0984F60DA1AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +602,8 @@ VA - Yoga Centre, Vol. 1 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:9FCD26B78DC488FA7B4F0176C1FDD5322A07C092
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +632,8 @@ VA - The Very Best Of Chill Out Vol 1 (2015) [MP3|320 кб/с]<Downtempo, Chillo
 magnet:?xt=urn:btih:32717BBC1C5561CD291976D6A0E7BC4A84ED36C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +660,8 @@ VA - Eargasm Chill Out Vol 3 - 4 (An Obsession Of Erotic Lounge) (2015) [MP3|320
 ```bash
 magnet:?xt=urn:btih:EAA6F2C76EE8DE3F04C90FB5A967825C0EAB13AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +690,8 @@ VA - I Love Spa Chill Out (Sunset Ibiza Meditation Music) (2015) [MP3|320 кб/�
 magnet:?xt=urn:btih:561CBDD3054AE0D981BB2FF28FCFC82A492594EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -671,6 +719,8 @@ Martins Garden - Renaissance: A Dub Opera (2018) Merkaba Music [FLAC|Lossless|WE
 magnet:?xt=urn:btih:583F1088980F25E2ADE6D6648D4E4844751A0ECB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -697,6 +747,8 @@ magnet:?xt=urn:btih:583F1088980F25E2ADE6D6648D4E4844751A0ECB
 ```bash
 magnet:?xt=urn:btih:C4B51A85F295DD30A73C0853B3B8C104C5BA9A9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

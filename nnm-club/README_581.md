@@ -22,6 +22,8 @@ Paul Cargnello - Combat Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:850442D832F583FFC61600A89A7F756AA1A54CA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Nancy Cassidy - The Devil Wins (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:35E3B795ED5DE390730ED0154408DE900B3B6EC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Jon Cleary - The Bywater Sessions (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, S
 magnet:?xt=urn:btih:1D44F28F11934191E170E3D7CE2E8A2B0EA3775E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Noir & Gerber - Partout Partout (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:B8BC0EF4BE13EB9E327CC8D7030C9DA139425F23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Hat Fitz & Cara - At The Couch Sessions (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 magnet:?xt=urn:btih:76FFE9A6F1AE64DDB8A226E96C061549A9269C59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Jennifer Lyn & The Groove Revival - Retrograde (2025) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:DB698B85A8CA866DDB8834F82732B04A3A5D3B82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Pagan Altar - Never Quite Dead (2025) [MP3|320 Kbps] <NWOBHM, Heavy Metal, Doom 
 magnet:?xt=urn:btih:94994C13A95E7778F4DABC373455E2B94CA76635
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ magnet:?xt=urn:btih:94994C13A95E7778F4DABC373455E2B94CA76635
 ```bash
 magnet:?xt=urn:btih:19E85B0D3BB3B74568046B5F83676EF9F597D2C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ Rolf Ericson & Lennart Aberg - Ellington & Strayhorn (1995) Sittel AB [FLAC|Loss
 magnet:?xt=urn:btih:9AE36367F090EAC139F41D780EDE4B9C28544E06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +280,8 @@ Excessive - Cycles (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 magnet:?xt=urn:btih:02FEE23AD670F591AFEFAD01B74D9F9A8D594344
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +306,8 @@ magnet:?xt=urn:btih:02FEE23AD670F591AFEFAD01B74D9F9A8D594344
 magnet:?xt=urn:btih:E2440D0BD0E37AE8B0C35848717DF9AD94DA8ECE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +331,8 @@ magnet:?xt=urn:btih:E2440D0BD0E37AE8B0C35848717DF9AD94DA8ECE
 ```bash
 magnet:?xt=urn:btih:11CDDBB5A2805A424CCEC03CC7825E94BB1BCB0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +361,8 @@ Crematory - Destination (2025) [FLAC|Lossless|image + .cue] <Gothic Metal>
 magnet:?xt=urn:btih:A93DFCF6C425B9970CC48E055BC66C8691369E2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +390,8 @@ magnet:?xt=urn:btih:A93DFCF6C425B9970CC48E055BC66C8691369E2C
 magnet:?xt=urn:btih:59E0AF58EE4606F25E6A94BCCE93340F93B43444
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +415,8 @@ magnet:?xt=urn:btih:59E0AF58EE4606F25E6A94BCCE93340F93B43444
 ```bash
 magnet:?xt=urn:btih:278FE603559182A934786554DC1A96900F6F9C04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +443,8 @@ magnet:?xt=urn:btih:278FE603559182A934786554DC1A96900F6F9C04
 magnet:?xt=urn:btih:371C5DC350FC0B65497403B445AA380FAB16F995
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +468,8 @@ magnet:?xt=urn:btih:371C5DC350FC0B65497403B445AA380FAB16F995
 ```bash
 magnet:?xt=urn:btih:0CEEDF98F3FDF85EFD1A405D1A8878E0AF61F374
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +495,8 @@ magnet:?xt=urn:btih:0CEEDF98F3FDF85EFD1A405D1A8878E0AF61F374
 magnet:?xt=urn:btih:179FDEC7745ED741D7A879F14B3393643277123E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +521,8 @@ magnet:?xt=urn:btih:179FDEC7745ED741D7A879F14B3393643277123E
 magnet:?xt=urn:btih:BCE79062004401CC8271E50906B60864F4513897
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +546,8 @@ magnet:?xt=urn:btih:BCE79062004401CC8271E50906B60864F4513897
 ```bash
 magnet:?xt=urn:btih:03362958A9E96A98A7A4690C9A1F35F6AE6AAD71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +576,8 @@ Pink Martini - Bella ciao (2025) EP [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop-Jaz
 magnet:?xt=urn:btih:430CBAB71A40D448A70F4C0AFAE6A49A01D42CF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +601,8 @@ magnet:?xt=urn:btih:430CBAB71A40D448A70F4C0AFAE6A49A01D42CF0
 ```bash
 magnet:?xt=urn:btih:9108FAA80E67A440469B41AD5B44CED47A44C573
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +631,8 @@ A-Z - A2Z² (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 magnet:?xt=urn:btih:109B8BB1B5EBCEF864C62E61B90DDEEFCC2B1DBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +660,8 @@ Joanne Shaw Taylor - Black & Gold (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Mo
 magnet:?xt=urn:btih:F5DAE28B585381FED69389F471FA969EF8CFC0CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +686,8 @@ magnet:?xt=urn:btih:F5DAE28B585381FED69389F471FA969EF8CFC0CC
 ```bash
 magnet:?xt=urn:btih:14312383E05FED13774893C3B59E86CB7EA97147
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -664,6 +714,8 @@ magnet:?xt=urn:btih:14312383E05FED13774893C3B59E86CB7EA97147
 ```bash
 magnet:?xt=urn:btih:6A334F9B816F707A1695E20C6A77D0B0A28BD153
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

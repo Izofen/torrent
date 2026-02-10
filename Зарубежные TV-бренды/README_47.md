@@ -19,6 +19,8 @@ NG. Легенда о хрустальном черепе / Legend of the Crysta
 magnet:?xt=urn:btih:8B422E227106DBB0F980386709FBA26563AC1B52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BBC: Тайны тёмной энергии / The Mysteries of Dark Energy (2015
 ```bash
 magnet:?xt=urn:btih:4F3B34EC646E541593DF00427BD005396404385F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:4F3B34EC646E541593DF00427BD005396404385F
 magnet:?xt=urn:btih:03683320B6018195517297FEC03AE2A9FBDD43E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NG: Реальные "Злые птицы" / Real Angry Birds (2014) HDTVRip
 ```bash
 magnet:?xt=urn:btih:F798C4ABF1A51E640FA1A51E10E83508549C0AB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Discovery: Наука магии / The Magic of Science (2013) HDTVRip (1-9 се
 magnet:?xt=urn:btih:C1F12C563A53D15C1C315E6A88879F19208ED4C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ NG:Больше, чем тираннозавр / Bigger Than T.Rex (2014) HDTV [
 ```bash
 magnet:?xt=urn:btih:41D00A0BEC5DCB50898B28D05FD7A67DD5391051
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:41D00A0BEC5DCB50898B28D05FD7A67DD5391051
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ NG. Акула-молот: в поисках рекордсмена / World's Bi
 ```bash
 magnet:?xt=urn:btih:60CE0008AD81371D335C30CD5D2B18B99A332D65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:60CE0008AD81371D335C30CD5D2B18B99A332D65
 magnet:?xt=urn:btih:A33E0DF747F1A47B5E14EB54346D2FD678FBF403
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Discovery: Встреча с инопланетянами. Сигнал / Alien 
 ```bash
 magnet:?xt=urn:btih:C36AE621DC83751AA65656DFC9103F0C607D5BEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:C36AE621DC83751AA65656DFC9103F0C607D5BEF
 magnet:?xt=urn:btih:F4BA38D74CC84CCE03B806F95C251A109E110904
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ NG: Взгляд изнутри: Северная Корея - династия 
 ```bash
 magnet:?xt=urn:btih:05293FEDAC933BAF78FC296D48027A49010E0B30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ National Geographic. Тайны святых ковчегов / Mysteries of The
 magnet:?xt=urn:btih:8DF6CF97A276E174C23ABBBAF90B90B432F73E1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ NG: Тайны святых ковчегов / Mysteries of the Holy Arks (2018)
 ```bash
 magnet:?xt=urn:btih:EA559E431AF62162F35169CD2186EF2DCA75349E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:EA559E431AF62162F35169CD2186EF2DCA75349E
 ```bash
 magnet:?xt=urn:btih:1F5882716208A82F32D8808F171D3B5FB04B973B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Discovery: Встреча с инопланетянами. Прибытие / Al
 magnet:?xt=urn:btih:B60CD03165B722461373F0A53239998E038E3BC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:B60CD03165B722461373F0A53239998E038E3BC4
 ```bash
 magnet:?xt=urn:btih:CE858EDCA404FAC088094B80095C4D3F4459CD49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ BBC: Тайны тёмной энергии / The Mysteries of Dark Energy (2015
 magnet:?xt=urn:btih:7FC7E4EC3D6F543E60E6ABE6FB330CE96A6F5101
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ BBC: Человек на Марсе. Экспедиция на красную п
 ```bash
 magnet:?xt=urn:btih:DE6E762E9EC4403B9A0DDD23DFA68FC59063755F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:DE6E762E9EC4403B9A0DDD23DFA68FC59063755F
 magnet:?xt=urn:btih:90827626746D446FB00DA9B5FB1F3EC4A5482947
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Discovery. Смертельный улов / Deadliest Catch (2014) HDTVRip (С�
 ```bash
 magnet:?xt=urn:btih:580CB91E0B256F1F6445270A1D17853CA8ECD886
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Da Vinci Learning: BBC: Джимми Дохерти в Саду Дарвина /
 magnet:?xt=urn:btih:21BB273814E4B8F189A0AD7E800B904E664C6712
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ NG: Человек против осьминога / Man vs octopus (2017) HDTVR
 ```bash
 magnet:?xt=urn:btih:75E9748E398F6FB81BBA476B52FC1DAEEE722AD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ NG: Генуя. Хронология катастрофы / Genoa. Bridge Disast
 magnet:?xt=urn:btih:253D8EAD9BB36F189583F7638B15F38179F480F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ NG. Осушить океан / Drain the Oceans (2011-2018) SATRip (9 сери�
 magnet:?xt=urn:btih:2F8E49CEE9B17BF0C40B74A64B8912C0D5F995C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ NGW: Секретная жизнь жемчужин / The Secret Life of Pearls 
 ```bash
 magnet:?xt=urn:btih:488471B63E59A429803A2261C7D5018D742566C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

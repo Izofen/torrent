@@ -22,6 +22,8 @@ Laura Cantrell - Kitty Wells Dresses: Songs Of The Queen Of Country Music (2011)
 magnet:?xt=urn:btih:3F245505D8414AC36A474C1CF781DED451C3599C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Piano Peace - Relaxing Piano Lullabies (2018) [FLAC|Lossless|WEB-DL|tracks] <Ins
 ```bash
 magnet:?xt=urn:btih:D6F09307DDD8AD1A37DCE6C56BD9D982C39B6E03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Piano Peace - Piano Study Music (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrument
 magnet:?xt=urn:btih:946453C9449BFE77D8F890CF7BFFA1F8D7E0E2FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Satyricon - Satyricon & Munch (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Dark Ambien
 ```bash
 magnet:?xt=urn:btih:D4FBBA90F9B78B7C5BB3E4A4C5378A8FF049D81B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Schandmaul - Knüppel aus dem Sack (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Folk R
 magnet:?xt=urn:btih:41229C7481D8D15A8F7CED1F46421D6B889D7DEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ Kyle Dixon & Michael Stein - Stranger Things / Очень странные де�
 ```bash
 magnet:?xt=urn:btih:4320261796528C2488FE44EC162EA377D653D716
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ David Arkenstone - Barcelona Nights (2015) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 magnet:?xt=urn:btih:CE7BAC3B7697D8B60124A8306EF6E5A5F2992EA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ Gomer Edwin Evans - Sensual Moods: Soulful Music for Erotic Moments (2014) [FLAC
 ```bash
 magnet:?xt=urn:btih:E7DBB0E3725EFCA2DCAD0123AEECC04852C54314
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ Blue Stone - Pandora's Box (2011) [FLAC|Lossless|tracks + .cue] <New Age, Ethnic
 magnet:?xt=urn:btih:37A9679A16069B8DAC1450BAAA4795CAC3AD6F6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ Nick Murray - To the Stars (2016) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:7AC3E779AD1C4ADC7640CCCEE40CD9ABF218FA83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ Aythar - The God Particle (2016) [MP3|320 Kbps] <Ambient, Space>
 magnet:?xt=urn:btih:12EBD6B49E82CE980015DFFB160AEDB361C9BE9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +338,8 @@ Piano Peace - Piano Music for Movies (2018) [FLAC|Lossless|WEB-DL|tracks] <Instr
 magnet:?xt=urn:btih:E87498A5B72068552E2AA6B4E8990A2D2C5981BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +364,8 @@ Deuter - Sattva Temple Trance (2018) [MP3|320 Kbps] <New Age, Meditative, Relax>
 ```bash
 magnet:?xt=urn:btih:5470585B8BF05D70FE5E9F177427697AE44DF817
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +394,8 @@ VA - Southpaw (2015) [MP3|320 кб/с]<OST>
 magnet:?xt=urn:btih:147FF249638B0E8EB9F27D4F0F3021A953F274BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +420,8 @@ Llewellyn - Didgeridoo Gold: Music for Relaxation and Healing (2015) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:74AB31CC58BEB610A33519AE4A843BCE14FE8565
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +450,8 @@ Mystica - Best Of Gregorian Voices: Parts 1-4 (2016) [FLAC|Lossless|tracks] <New
 magnet:?xt=urn:btih:262307204CC92B7A7D10634A8D63649D27CDFD0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +478,8 @@ VA - Grease (The Original Soundtrack From The Motion Picture) (1998) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:45E24E99EAA00853259C73ECA49CCD26E488434C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +508,8 @@ Bob Dylan - The Best Of Bob Dylan (1997) [FLAC|Lossless|tracks + .cue] <Rock, fo
 magnet:?xt=urn:btih:44435EE5A0BBC654427FCA3BABC16B03D82CC1F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +536,8 @@ Laura Sullivan - The Modern Romantic: New Relaxing Classical Piano Music (2016) 
 ```bash
 magnet:?xt=urn:btih:CD2D77EC91C690C8E6A9231CEB6AFFC700F1775B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +566,8 @@ Casey Weston - Find the Moon (2013) [MP3|320 Kbps] <Country Pop, Vocal>
 magnet:?xt=urn:btih:EEC9BCF3F7045CD4028F6A2A76BCEA51212D70F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +594,8 @@ John Galanakis - Doom Vanguard (2018) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack,
 ```bash
 magnet:?xt=urn:btih:C230F6157C353EEE5B156EC68C7FA5B2FAD4124E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +624,8 @@ VA - Country Car Music (2019) [MP3|320 Kbps] <Country>
 magnet:?xt=urn:btih:C93C522E7E16A43DBAC102B6D1C1C476ADF8F58A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +652,8 @@ VA - 40 Latin Hits 2017 (Reggaeton, Electro Latino & Mambo) [MP3|320 Kbps] <Lati
 ```bash
 magnet:?xt=urn:btih:1353088FC29F205F1680D0DDFC2FB58ABDF4564F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +682,8 @@ VA - Latino 2017 - Essential Summer Hits  [MP3|320 Kbps] <Latin Music, Salsa, Me
 magnet:?xt=urn:btih:20D7D74C78C0712C405FDB620D5CAFB38FB38081
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +711,8 @@ VA - Latin Hits 2017 The Best (Reggaeton  Bachata  Kizomba) [MP3|320 Kbps] <Lati
 magnet:?xt=urn:btih:7F6C5D88B2F388F76D75A3AE9EFFF3E479649A69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -689,6 +739,8 @@ Really Slow Motion & Instrumental Core - Other Worlds (2015) [MP3|320 Kbps] <Sou
 ```bash
 magnet:?xt=urn:btih:8A49A6E7A1BE07F092FE933D3F02D689B958A344
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:50C9109C45D04D7DA498ED72BDB6A4E8B25771A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Spiritfall (2024) [Ru/Multi] (1.6.27) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:FCF8C531FB9EA9FA942DA15539CF846A7DFC32B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Comfort Keys улучшает общее удобство Windows и помог�
 magnet:?xt=urn:btih:5842B42604D52AABB5A74A0C197F944E964353EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:5842B42604D52AABB5A74A0C197F944E964353EC
 ```bash
 magnet:?xt=urn:btih:6E6477FAD64C6771FF4A54542165644BB6DA4A7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:6E6477FAD64C6771FF4A54542165644BB6DA4A7D
 magnet:?xt=urn:btih:EC8374DDACD73C389995E0CED1C726D3EF84FA19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:EC8374DDACD73C389995E0CED1C726D3EF84FA19
 ```bash
 magnet:?xt=urn:btih:EC2B1AFB9D81683EADEC8C586872375AAED38A52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Don't Mess With Bober (2025) [Ru/Multi] (Build 19026706) Scene Tenoke
 magnet:?xt=urn:btih:D0A3EAF5695477637A3F600EFCABF71C3854029C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ DaVinci Resolve — единственное в мире решение для �
 ```bash
 magnet:?xt=urn:btih:51D5669F517482F040AE0F0F31D6EB296642408F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Echo Paradox - это психологическая игра ужасов, 
 magnet:?xt=urn:btih:10F18B917D9DBCF0BA12E7F176A4E2CE88A3EC12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ CPU-Z способен показать различную информацию 
 ```bash
 magnet:?xt=urn:btih:ADAA650CFBD901B36746AF45C74D7A35F21919DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Macrium Reflect Free обладает интуитивно понятным по
 magnet:?xt=urn:btih:7EE24B4FDAEA8D720D6B4183964DB72BC6E52121
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:7EE24B4FDAEA8D720D6B4183964DB72BC6E52121
 ```bash
 magnet:?xt=urn:btih:4E5C0F0750B7F0FFA6AA3A171D86733BA9E513D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ System Shock 2: 25th Anniversary Remaster (2025) [Ru/Multi] (1.0.4258.0) Repack 
 magnet:?xt=urn:btih:61CA64EE7FF47DD46257BFF44CDACE612081B1B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Dreadful River (2023) [En] (0.9.1.0) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:6D935107431A9392A87AADC4644710D44E052E5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ MSI Afterburner - утилита для разгона видеокарт люб
 magnet:?xt=urn:btih:5E9723660031F6E483556259160020AF820B715E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ magnet:?xt=urn:btih:5E9723660031F6E483556259160020AF820B715E
 ```bash
 magnet:?xt=urn:btih:C6BC7F5945A16AAC6A7AA2F57CF5A315BC33DAA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ My Time At Portia (2019) [Ru/Multi] (20250620-1430-141719/dlc) License GOG
 magnet:?xt=urn:btih:62948E91210E53EB3148186B2FFB873007F483C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ magnet:?xt=urn:btih:62948E91210E53EB3148186B2FFB873007F483C1
 ```bash
 magnet:?xt=urn:btih:A94D4BA69B4C8C47A39317455730771C1EF5E5B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:A94D4BA69B4C8C47A39317455730771C1EF5E5B7
 magnet:?xt=urn:btih:986EC026B035BB5C937FD920D8399047EC0978F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ magnet:?xt=urn:btih:986EC026B035BB5C937FD920D8399047EC0978F1
 magnet:?xt=urn:btih:AAD81806AEB1EAB5625BF792E1CC3949C8D0915D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ magnet:?xt=urn:btih:AAD81806AEB1EAB5625BF792E1CC3949C8D0915D
 ```bash
 magnet:?xt=urn:btih:75C24E0EA6802967E9F3979C2C7FFAAE4795D8F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:75C24E0EA6802967E9F3979C2C7FFAAE4795D8F7
 magnet:?xt=urn:btih:B256180ABCCB863817DCB404942A1D79C3788A26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:B256180ABCCB863817DCB404942A1D79C3788A26
 ```bash
 magnet:?xt=urn:btih:F093475F9EDF2A16977F17EABD0AF0F161672173
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ magnet:?xt=urn:btih:F093475F9EDF2A16977F17EABD0AF0F161672173
 magnet:?xt=urn:btih:25E17C6F156E5936941C7C88B72A7851BDA25810
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ Shatterline (2022) [Multi] (98.0.36.0) Repack FitGirl
 magnet:?xt=urn:btih:8E4252AF349F6AEABF5F52CD984BD544169C1145
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Heart of the Machine – игра в мире киберпанка, в кото�
 ```bash
 magnet:?xt=urn:btih:8624F4BFD00E5A6211A58713FEC46F2816E40FE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

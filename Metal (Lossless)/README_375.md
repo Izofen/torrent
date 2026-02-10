@@ -1,3 +1,74 @@
+###  Публикация: 615224   (978419) от 07.02.2013
+
+VA - Metallica A Tribute To Kill 'Em All (2013) [FLAC|lossless] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Black Tide - Hit The Lights (03:43)
+02. Burden Of Grief - The Four Horsemen (05:26)
+03. Rage - Motorbreath (live) (03:04)
+04. Dust Bolt - Jump In The Fire (04:02)
+05. Eisregen & The Vision Bleak - (Anesthesia) Pulling Teeth (03:32)
+06. Motorhead - Whiplash (03:51)
+07. Anthrax - Phantom Lord (04:31)
+08. Cannibal Corpse - No Remorse (06:16)
+09. Primal Fear - Seek & Destroy (07:13)
+10. Dew-Scented - Metal Militia (04:37)Жанр: Thrash MetalПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590094   (978678) от 07.02.2013
+
+Nightfall - 5 альбомов (1999 - 2013) [FLAC / APE|Lossless]<Symphonic Black Metal (early), Dark Metal, Gothic Metal, Doom/Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа Nightfall была основана в начале последней декады нового тысячелетия. Четверо молодых людей объединились с единственной священной целью - создать маленькое сообщество, святилище для их драгоценных мыслей, желаний, теорий и других разумных вещей.
+Они представили себя миру посредством единственного демо-релиза "Vanity" (1991). Эта лента была "официально" выпущена почти через 2 месяца. Именно тогда французский лейбл Holy Records связался с группой и предложили четырём перспективным грекам лучший шанс завоевать мир. Результат? Довольно фантастический.01. Phaethon 04:35
+02. Oberon & Titania 04:33
+03. Colonized Cultures 03:21
+04. The Nightwatch 04:49
+05. Stellar Parallax 04:05
+06. Hubris 05:18
+07. The Reptile Gods 04:42
+08. Hyperion 04:27
+09. Akhenaton, the 9th Pharaoh of the 18th Dynasty 04:10
+10. The Sand Reckoner 04:20(   Читать дальше...   )Жанр: Symphonic Black Metal (early), Dark Metal, Gothic Metal, Doom/Death MetalПродолжительность: 00:50:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 614904   (978682) от 07.02.2013
 
 Sylosis - 3 Альбома (2008-2012) Дискография [FLAC|Lossless]<Melodic Death Metal | Thrash Metal >
@@ -27,6 +98,8 @@ Sylosis - 3 Альбома (2008-2012) Дискография [FLAC|Lossless]<Me
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -61,6 +134,8 @@ Trail of Tears - Дискография (1998-2009) [FLAC|Lossless]<Gothic Metal
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +167,8 @@ Burden Of Grief - Fields Of Salvation (2003) [APE|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:2E06EB14E99CE40C4CDB75BFD7B94AF35EAC244B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +203,8 @@ Mechina - Xenon (2014) [FLAC|Lossless]<Symphonic/Melodic Death Metal>
 magnet:?xt=urn:btih:DAED0579599A83843C0A997604BE51820C8B368F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +231,8 @@ The Shadow Theory - самый последний на сегодняшний м
 ```bash
 magnet:?xt=urn:btih:1FEC8EE73E72064C5715F86D0A27291572033651
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +265,8 @@ Mechanical Organic - This Global Hive Part One (2012) [FLAC|Lossless]<Progressiv
 ```bash
 magnet:?xt=urn:btih:65C6225D87EAF5E373200E7C8BF62C08E06F00A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +301,8 @@ Refraction - Fossils (2013) [FLAC|Lossless]<Progressive Metal>
 magnet:?xt=urn:btih:CE92FAF4553B2CFC6DB4D4A18D51150B75DF4CD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +336,8 @@ Brutal Hand - Brutal Hand (2004) [FLAC|Lossless]<Heavy/Progressive Metal>
 magnet:?xt=urn:btih:DD925ECD923372930EF76CFBA71D0CBDCAD87E47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +364,8 @@ Burning Point - 13 альбомов (2001 - 2015) Discography [APE, FLAC, WavPac
 ```bash
 magnet:?xt=urn:btih:12E2E3373D4E64A53BAD1208D0E16459CEC6D324
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -305,6 +394,8 @@ Love Might Kill - 2 Big 2 Fail (2012) Japan [FLAC|Lossless|image + .cue] <Heavy 
 magnet:?xt=urn:btih:99E2B0DAF6D31A51D209EBAC1DB7A64AF1B3D70B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +422,8 @@ Status Minor - Ouroboros (2012) Japan [FLAC|Lossless|image + .cue] <Progressive 
 ```bash
 magnet:?xt=urn:btih:4B8444F6D01A0F082B34387C147C9EBDE59C2CB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +458,8 @@ Legion Of The Damned - Ravenous Plague (2014) [FLAC|Lossless]<Thrash/Death Metal
 magnet:?xt=urn:btih:7A95C29D57849CCDD1B3430D11292B9DBFBE4913
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +486,8 @@ Marko Hietala - Pyre of the Black Heart (2020) [FLAC|Lossless|WEB-DL|tracks] <Sy
 ```bash
 magnet:?xt=urn:btih:66E5CAC057E219C089FCAF712BE7C8A07C3C4DAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +516,8 @@ Ark - Ark (1999) Reissue, 2000, Avalon [FLAC|Lossless|image + .cue] <Heavy Metal
 magnet:?xt=urn:btih:A14588A49ABC3D40968F87139C74130B0972A222
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +545,8 @@ Darkstar - Marching Into Oblivion (1996) [FLAC|Lossless|image + .cue] <Instrumen
 magnet:?xt=urn:btih:8428E0ED2FF57124FC0CDFAAA5CDBD5222CD98EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +573,8 @@ Paul Dianno (Paul Di'Anno) - 15 albums, 23 CD (1986-2019) [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:7CCA2B80EA7714ECAE47C747031589FEDC8185AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +609,8 @@ Burden Of Grief - Haunting Requiems (2000) [FLAC|Lossless]<Melodic Death Metal>
 magnet:?xt=urn:btih:F92A2F125348645885FFE53D9CEFFB97725BDFC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +637,8 @@ Barbarossa - The Weight of Void (2020) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 ```bash
 magnet:?xt=urn:btih:2A0D2BBDAD53F8D9626699283233356D1CECCC19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +673,8 @@ Kill The Romance - For The Rome And The Throne (2011) [FLAC|Lossless]<Melodic De
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +707,8 @@ Pomegranate Tiger - Entities (2013) [FLAC|Lossless]<Progressive Metal, Instrumen
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +743,8 @@ Angeli Di Pietra - Anthems of Conquest (2011) [FLAC|Lossless]<Folk Metal, Power 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +771,8 @@ Silent Knight - Conquer & Command (2015) [FLAC|Lossless|image + .cue] <Power Met
 ```bash
 magnet:?xt=urn:btih:361E847E8E9610DD3E3CC58263D550F288DEEB51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -686,6 +801,8 @@ Casket - 3 альбома (1997 - 1998) Discography [FLAC|Lossless|image + .cue]
 magnet:?xt=urn:btih:56D5D2B2B22766C4BEF17BFF2C3D922A72C7E837
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -713,59 +830,7 @@ Kuni - Rock (2011) Japan [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
 magnet:?xt=urn:btih:3A1CED86DE91F394995ABD2B6F3B734C8A779416
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972501   (982078) от 06.01.2016
-
-Rocka Rollas - Pagan Ritual (2015) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Punic Wars (06:05)
-02. Gaulic Boare (04:25)
-03. Demigod (04:52)
-04. Lost In The Enchanted Forest (07:08)(   Читать дальше...   )Жанр: Speed Metal, Heavy MetalПродолжительность: 00:47:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48A3ADC58608806CE05C7538F58791414DE04F58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972663   (982081) от 06.01.2016
-
-Burning in Hell - 2 альбома (2004 - 2006) Discography Japan [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Freedom
-02.Shadows of the Wars
-03.The End of the World
-04.Forever I'll Be Here(   Читать дальше...   )Жанр: Power MetalПродолжительность: 02:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F1E5F82AB8B8A368C78BD99D843B4BB955E0F80
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

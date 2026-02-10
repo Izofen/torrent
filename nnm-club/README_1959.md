@@ -19,6 +19,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 magnet:?xt=urn:btih:788E9468CF914504F43EC38DA85A74200E2B358D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ SamDrivers 24.7 LAN [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FD39AB5904355185D6F532A4B5FBC17BF6FA0E5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:FD39AB5904355185D6F532A4B5FBC17BF6FA0E5E
 magnet:?xt=urn:btih:6BE4A0D68934DC48149EECD792DAFE8F80C93AB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Astrox Imperium - космический симулятор с элемента�
 ```bash
 magnet:?xt=urn:btih:A8DF4134143137345D6876B3B6324FC6C1BAA42C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ LiveClasses, Виталий Бужан | Цветокоррекция в DaVinci
 magnet:?xt=urn:btih:C82A4620DAC545DE690762A714840211814BD3B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Thief Simulator 2 (2023) [Ru/Multi] (1.27c) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:F37F2C75A1DF2638DB63C08BD5EC799E30B68E45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:F37F2C75A1DF2638DB63C08BD5EC799E30B68E45
 magnet:?xt=urn:btih:331AB2B1641445A89804164DC6B04DB51AB6E40A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Total Commander – самый популярный файловый менед�
 ```bash
 magnet:?xt=urn:btih:B78CA8995EF3A0DA554BABE2D514E1939A29144A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:B78CA8995EF3A0DA554BABE2D514E1939A29144A
 magnet:?xt=urn:btih:ECBEEAD80FA81CBFF8F95B7E94AC337ADF0D60D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:ECBEEAD80FA81CBFF8F95B7E94AC337ADF0D60D7
 ```bash
 magnet:?xt=urn:btih:5A52AD9392D62DE6856D51EE9157B90861A9CACE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ GASPING.2 - это однопользовательская игра на выж
 magnet:?xt=urn:btih:72B42B9596D6182E7E52AA3E90BE5D9055D1A014
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:72B42B9596D6182E7E52AA3E90BE5D9055D1A014
 ```bash
 magnet:?xt=urn:btih:BB636C9695F68325979E870AB3A86DA39376FCF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:BB636C9695F68325979E870AB3A86DA39376FCF8
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Windstorm: Start of a Great Friendship - Remastered (2024) [Multi] (0.7.3) Repac
 ```bash
 magnet:?xt=urn:btih:EAAEFE61C9D34F9E4725A85A86344CDD4F98835C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:EAAEFE61C9D34F9E4725A85A86344CDD4F98835C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ magnet:?xt=urn:btih:EAAEFE61C9D34F9E4725A85A86344CDD4F98835C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:EAAEFE61C9D34F9E4725A85A86344CDD4F98835C
 magnet:?xt=urn:btih:8018822E636D97FECD387FD2CBC009C54A0F763B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ magnet:?xt=urn:btih:8018822E636D97FECD387FD2CBC009C54A0F763B
 ```bash
 magnet:?xt=urn:btih:023FB0C4086D0AFECA13DBADD90C980CD42B35BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:023FB0C4086D0AFECA13DBADD90C980CD42B35BC
 magnet:?xt=urn:btih:8F538AC74908B12A83F273BF2AC7A0E364B71AE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ magnet:?xt=urn:btih:8F538AC74908B12A83F273BF2AC7A0E364B71AE8
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 magnet:?xt=urn:btih:4807DDC735E5B8315CA584ABE1D4DB2778930749
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ magnet:?xt=urn:btih:4807DDC735E5B8315CA584ABE1D4DB2778930749
 ```bash
 magnet:?xt=urn:btih:E975031CB7550683806399BA1042D64E72E49210
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:E975031CB7550683806399BA1042D64E72E49210
 magnet:?xt=urn:btih:F9D4C27432A73BC20C14E3A76E01C2DD2FEF8D8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Ludus Mortis переносит вас в мрачную фэнтезийную 
 ```bash
 magnet:?xt=urn:btih:12B5B21E9F9A4E2608FF4C9CCDF6C8CEF61D033C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ magnet:?xt=urn:btih:12B5B21E9F9A4E2608FF4C9CCDF6C8CEF61D033C
 magnet:?xt=urn:btih:B2C751E80263C3FD8073AEB231D413A26D9B8D87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Chornobyl Liquidators - симулятор ликвидатора Чернобы
 ```bash
 magnet:?xt=urn:btih:DC1B06398248CB12611D2AB2578E61C73CFCD3A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Wolf and Raven - Renegades (2016) [MP3|320 Kbps] <Synthpop, Synthwave, Retrowave
 magnet:?xt=urn:btih:BFE2F272739AECE47B0AA1D2DF6F6235E27C7AA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Drink and Beach Deep House Selection (2017) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:6B7974AD1CE7A23B1ABC670D67A78AD67C8115DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Ibiza Trance (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
 magnet:?xt=urn:btih:C3F6AE4FCBAE10B0226109D176CBC079A4A2EFCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ VA - May Trance (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:8A2DA290B77DB8D37952F60EB888726D916666E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ VA - Cala Ibizarre: Sunset Lounge Vol.3 (2017) [MP3|320 Kbps] <Downtempo, Chillo
 ```bash
 magnet:?xt=urn:btih:21C8C62D922461A4451398E5D367C3A62F1720E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +173,8 @@ CD1: 01:09:42
 magnet:?xt=urn:btih:45D82941522116EB2ED1689DFE6FD454B4B7C67F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +201,8 @@ Chris van Buren - Tierra Del Fuego (2018) [MP3|320 Kbps] <Synthpop, Synthwave>
 ```bash
 magnet:?xt=urn:btih:9CA016DDF79E2F5BE1435EE94B03842B367D224B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +231,8 @@ Chris van Buren - Hope and Destiny (2016) [MP3|320 Kbps] <Synthpop, Synthwave>
 magnet:?xt=urn:btih:9455D72E6190B2DA63AEF230C68298C77B1EA51F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +259,8 @@ Wolf and Raven - Lair of the Dragon (2018) [MP3|320 Kbps] <Synthpop, Synthwave, 
 ```bash
 magnet:?xt=urn:btih:5C16936E653D3684FBFB8D13465EEB11DE2BC1B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +289,8 @@ Siatria - Мой мир (2016) [MP3|320 Kbps] <Dance, EDM>
 magnet:?xt=urn:btih:07500899CBA817E9C961BE90A1DA0EF68DAA8725
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +318,8 @@ VA - Beat Full Tech (2019) [MP3|320 Kbps] <House, Tech House, Deep House>
 magnet:?xt=urn:btih:D3BFE0FC1D6A593CD433B3CEF1D711F11349F452
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +346,8 @@ Morcheeba - Blaze Away (2018) Fly Agaric Records [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:0A24B81C63DD37A475CBE509C3FBA619055A4F71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +382,8 @@ Various Artist - Ibiza 2012 Back to the Island (2012) [MP3|320 кб/с]<Progress
 magnet:?xt=urn:btih:A509B557E8F933E80CCD2FE4B30FC4B2D842F0C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +407,8 @@ the_empath - Discography 9 Releases (1999-2016) Subroom Medialab, Hymen Records 
 ```bash
 magnet:?xt=urn:btih:9E7061F16B618EA202E20D3B31837443F24CE7DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +437,8 @@ VA - Secrets of Time Relaxation (2018) [MP3|320 Kbps] <Ambient, Chillout, Lounge
 magnet:?xt=urn:btih:7C6E657EF77A56DEA7F76B2D3BCE13F7B2BCD2D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +465,8 @@ Woob - 新 プログラム (2018) Time Limited [FLAC|Lossless|WEB-DL|tracks] <Am
 ```bash
 magnet:?xt=urn:btih:CB07EB1225187B26610A30AF9DA55506E88611FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +495,8 @@ VA - Trance Festival Ibiza (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
 magnet:?xt=urn:btih:6930D5BC7805D80B058A7E6C6F83B0594910621A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +523,8 @@ VA - Hawaiian Sunset - Lounge & Chillout (2015) [MP3|320 кб/с]<Downtempo, Chi
 ```bash
 magnet:?xt=urn:btih:A908AF44DAC428305D5CE07414F70EBE45D21EC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +553,8 @@ VA - Lounge Sensations (2015) [MP3|320 кб/с]<Downtempo>
 magnet:?xt=urn:btih:2C01180BC339328AE8F1B0212264DF4A0D8F9880
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +581,8 @@ VA - Chillout, Love & Sex (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:FC0D58CE295DC4A78FBC2006B8A11D8DAECB5072
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +611,8 @@ Musicformessier & Dan Caine - Timelessness (2017) [MP3|320 Kbps] <Ambient>
 magnet:?xt=urn:btih:25374ABAF128F490A12C13CCF2BBA47F50641D0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +639,8 @@ VA - Ibiza Tech House Dance Sounds (2018) [MP3|320 Kbps] <Minimal, Tech House>
 ```bash
 magnet:?xt=urn:btih:6C91B3DF97A5BD2F5D0877D8CEB144295B854529
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +669,8 @@ VA - 5 Years Suanda (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:180C1728212304D94F161300859969BB9A40FEE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +697,8 @@ Michael Rehulka - Balearic Soul (2018) [MP3|320 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:C2737C40E5818DBCAD24450CEC22F8A4BF0D1FD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -679,6 +727,8 @@ VA - Friends Connection 3: Odd Machinery (Mixed By Nightbob) (2018) [MP3|320 Kbp
 magnet:?xt=urn:btih:FA81FE310A088D5EC78D105C5025E22E3731768A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -705,6 +755,8 @@ Tuomo Väänänen (Tuomo Vaananen) - A Small Flood (2017) Ljudverket [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:7D7467BD083834A6E0972E9E368622B0808D296D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Clip Studio Paint EX (ранее Manga Studio EX) - это ведущее в м�
 magnet:?xt=urn:btih:326E1A4E760EA552BE4DF5F5B0F16FACB464ED70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:F20D11E817F7DDCE68E4CDA0738F55590CFAD8C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ DxO PureRAW 3.4.0 build 16 RePack by KpoJIuK [Multi]
 magnet:?xt=urn:btih:A81D29BE8974DEBA77770DA11A171F88057FA29A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Opera One 100.0.4815.54 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D1F6CDA18573DAE4ABB74C057AE6958CD7FCC6EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ eM Client - отличный почтовый клиент с возможнос
 magnet:?xt=urn:btih:700DDBE6E238EEA78872A0467F83B700BB0BE715
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ The KMPlayer – это мощный мультимедиа проигрыват
 magnet:?xt=urn:btih:026BCCFD16440DA7A6338AA6BEC29A24C3571662
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ App Builder позволяет создавать приложения для с
 ```bash
 magnet:?xt=urn:btih:25F0BB10774C94BFF3E18249A046B7479064CA2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Spotify имеет громадный каталог музыки, поддер�
 magnet:?xt=urn:btih:28C0C487DD260CF1B23EBC28798AE52EB17CD743
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Adobe Acrobat Reader — приложение Reader для самых важн�
 ```bash
 magnet:?xt=urn:btih:6B7647552B9D95A630973A462F27518A24121DDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Stardock Start11 – новая версия приложения для нас�
 magnet:?xt=urn:btih:1F886614E078524639169AA7EB262E79FCDDEE63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Mozilla Thunderbird –  легкая и безопасная бесплатна
 ```bash
 magnet:?xt=urn:btih:00B23B169E16DF7E597A27AC83FBCE9871C8BCED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 magnet:?xt=urn:btih:2D31F400C3B73A3176D86E80627A93D03C7B69EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 ```bash
 magnet:?xt=urn:btih:2083E84C65ECF9F6D0C27436727526E7FC127B08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Rufus - небольшая утилита помогает отформатир�
 magnet:?xt=urn:btih:E0DCF48349181223C37E093563CEB351C43932A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Advanced SystemCare PRO - это мощный пакет для оптимиза
 ```bash
 magnet:?xt=urn:btih:29AEE46A3F65135DE77177263B7877307408E243
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ BananaDefenderBlocker - программный продукт от BananaBrain, 
 magnet:?xt=urn:btih:D0D272E573A9E5A56AABB7D815EF0AE9684DF94C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ FastStone Capture представляет собой довольно мощн�
 ```bash
 magnet:?xt=urn:btih:965CF48EDE0450336ED40022E0717A36A1BAFCA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ ColorControl - небольшая программа которая после �
 magnet:?xt=urn:btih:033D8A8CE70B5EC6673B98669AC49CC0C3DE9C92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ DxO PhotoLab Elite 6.8.0 build 242 RePack by KpoJIuK [Multi]
 ```bash
 magnet:?xt=urn:btih:007B77937D5BD1072FBB770867CFE787DA08FF85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 magnet:?xt=urn:btih:F52D01971084E097588E37DCA9CB40FD329CE1C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:12BF48E91594EB08707577701138AC8EAB731E2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ Auslogics Disk Defrag Pro - это профессиональная версия
 ```bash
 magnet:?xt=urn:btih:6BE1377EC338B1EAD1C9760E65C5F29A65531457
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ CareUEyes служит для изменения цветовой темпера
 magnet:?xt=urn:btih:8101773AED3191A0B8E31F1DAD6A3BFB00D4138D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 ```bash
 magnet:?xt=urn:btih:ABE508CF554F94B3F6BD231FC99E96EC179AB280
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ TeraCopy – утилита улучшает процесс копировани
 magnet:?xt=urn:btih:D394EABF916E82A7819EBE0891D0B183151DD785
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ magnet:?xt=urn:btih:D394EABF916E82A7819EBE0891D0B183151DD785
 ```bash
 magnet:?xt=urn:btih:514CFBB083C80E619B2C29E6A78C55EA1DC8E02F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

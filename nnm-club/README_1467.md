@@ -19,6 +19,8 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.272) Repack seleZen
 magnet:?xt=urn:btih:BA87C76B26BF8B6980442EB09A44B168AD5AA1F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:BA87C76B26BF8B6980442EB09A44B168AD5AA1F2
 ```bash
 magnet:?xt=urn:btih:BB8A43B47FFAD46B1DD34F4EFBA0E9D03AA8110B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:BB8A43B47FFAD46B1DD34F4EFBA0E9D03AA8110B
 magnet:?xt=urn:btih:F69B093F363F684968047F1E5EF742CE97590D49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:F69B093F363F684968047F1E5EF742CE97590D49
 ```bash
 magnet:?xt=urn:btih:860C5DFAA62139CC3B246ABC61DEC54A2563B1F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Ashes of the Union (2024) [Ru/Multi] (Patch #7 Hotfix) Scene Skidrow
 magnet:?xt=urn:btih:D3C5D07F290A0D0F62D4A65556CE94CE9E3D0A79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:D3C5D07F290A0D0F62D4A65556CE94CE9E3D0A79
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Quadrober Simulator / Симулятор Квадробера (2024) [Ru/En] (1.
 magnet:?xt=urn:btih:9C6A23F5BA838BCA5B8E3B88F526522201249409
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Subnautica: Below Zero (2019) [Ru/Multi] (Build 49371) Repack Other s
 ```bash
 magnet:?xt=urn:btih:755719E3DDE81E59D145ECF1B3D8B12E95A7CC98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Topaz A.I. Gigapixel — это приложение, использующее �
 magnet:?xt=urn:btih:77534E167802E55F6FD10EF15CBF091805BD8C2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:77534E167802E55F6FD10EF15CBF091805BD8C2D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Kerio Control — это комплексное решение в области
 magnet:?xt=urn:btih:FBB6F87A88C2488D8113259578E02AD1A0EC0E9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:FBB6F87A88C2488D8113259578E02AD1A0EC0E9A
 magnet:?xt=urn:btih:9823F7EBBB1D3BA28D2ED4C34B0625FA819D729B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.272/dlc) Repack Other s [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:AF57BCCB50DB3D18AD529B848FA8A5FF68365824
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ VA - Disco Inferno 70s 80s (2024) [MP3|320 Kbps] <Disco>
 magnet:?xt=urn:btih:6D8158E9FB9CDFAC936C33E85EB176800F453E09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:6D8158E9FB9CDFAC936C33E85EB176800F453E09
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:6D8158E9FB9CDFAC936C33E85EB176800F453E09
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:6D8158E9FB9CDFAC936C33E85EB176800F453E09
 ```bash
 magnet:?xt=urn:btih:813D83FD6AC620376F415C564EA5348A3C70F9DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Quadrober Simulator / Симулятор Квадробера (2024) [Ru/En] (1.
 magnet:?xt=urn:btih:78C48427C0F2B566AB481A7193F316F81EE22212
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:78C48427C0F2B566AB481A7193F316F81EE22212
 ```bash
 magnet:?xt=urn:btih:3A22EBA4AA098698D318CC9F6A7CF564FD96A14A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:3A22EBA4AA098698D318CC9F6A7CF564FD96A14A
 magnet:?xt=urn:btih:CF67D7D9FCE11C2B596168F825871D14989CB284
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.0.37.0/1.0.38.0) Repack FitGir
 ```bash
 magnet:?xt=urn:btih:E1B2AB65532BEF825AC69EBAF605AF695BF5D605
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:E1B2AB65532BEF825AC69EBAF605AF695BF5D605
 magnet:?xt=urn:btih:80151D0B2CFD332707C4A90AB30624F6388D3FAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ Call to Arms - Gates of Hell: Ostfront – стратегия в реально�
 ```bash
 magnet:?xt=urn:btih:7E081A2A18154FC1153600790611D603B5081291
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:7E081A2A18154FC1153600790611D603B5081291
 magnet:?xt=urn:btih:E322447DC19AB6FAA752227B2F40D00AB2E84F40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:E322447DC19AB6FAA752227B2F40D00AB2E84F40
 magnet:?xt=urn:btih:9361844CBF6C10971183FF4E91BD38081285D724
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ magnet:?xt=urn:btih:9361844CBF6C10971183FF4E91BD38081285D724
 ```bash
 magnet:?xt=urn:btih:618A8C87C5DAA2C9A5C78409108D644086C8EE63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

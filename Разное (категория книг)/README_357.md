@@ -1,3 +1,32 @@
+###  Публикация: 1558618   (529981) от 21.06.2022
+
+Никлас Брендборг | Загадка нестареющей медузы. Секреты природы и достижения науки, которые помогут приблизиться к вечной жизни (2022) [PDF, EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все мы хотим прожить «до ста лет». Но на нашей планете есть существа и организмы, для которых век – лишь начало жизни.
+
+Много ли зависит от генов, можно ли скорректировать их влияние питанием или образом жизни? За несколько сотен лет наблюдений и экспериментов накопилось много данных, которые помогут переосмыслить понятие возраста.
+(   Читать дальше...   )Жанр: Публицистика, здоровьеПеревод: Алена ЮченковаФормат: PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1801DEF0DF74BBE66020E405D469FADE5CD1264
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 819936   (530058) от 09.09.2014
 
 Шри Калки (Вайрагья) | И грянул гром! Пробуждение третьего глаза (2011) [DJVU]
@@ -19,6 +48,8 @@
 ```bash
 magnet:?xt=urn:btih:5905BC20B6547D38BC59292229BB4F6AC0EA64BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +75,8 @@ magnet:?xt=urn:btih:5905BC20B6547D38BC59292229BB4F6AC0EA64BA
 magnet:?xt=urn:btih:0DA1B4567EA319F161A7E77C0C13C20B22F9F9A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +100,8 @@ magnet:?xt=urn:btih:0DA1B4567EA319F161A7E77C0C13C20B22F9F9A0
 ```bash
 magnet:?xt=urn:btih:70A30C9C1B4416D20F7F9C12FB81FB46DA75E196
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +129,8 @@ magnet:?xt=urn:btih:70A30C9C1B4416D20F7F9C12FB81FB46DA75E196
 magnet:?xt=urn:btih:146524DD2AB2F3C68CABDF78B30D5A102AA1B417
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +157,8 @@ magnet:?xt=urn:btih:146524DD2AB2F3C68CABDF78B30D5A102AA1B417
 magnet:?xt=urn:btih:FE06608E3A47691CFCFA520A9806D256166EB56F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +182,8 @@ magnet:?xt=urn:btih:FE06608E3A47691CFCFA520A9806D256166EB56F
 ```bash
 magnet:?xt=urn:btih:CCA2B7C3A7A9814AEB58B2C12AEDAE7A1DE32925
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +209,8 @@ magnet:?xt=urn:btih:CCA2B7C3A7A9814AEB58B2C12AEDAE7A1DE32925
 magnet:?xt=urn:btih:9D3FBF8F38D266000BA9F92BFFC52CA85051CD0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +234,8 @@ magnet:?xt=urn:btih:9D3FBF8F38D266000BA9F92BFFC52CA85051CD0D
 ```bash
 magnet:?xt=urn:btih:66C620909D6B51AA82B3007882551B44CCB8C825
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +261,8 @@ magnet:?xt=urn:btih:66C620909D6B51AA82B3007882551B44CCB8C825
 magnet:?xt=urn:btih:1F8434D6E24EB3D74C44B46EE87C297694953B37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +286,8 @@ magnet:?xt=urn:btih:1F8434D6E24EB3D74C44B46EE87C297694953B37
 ```bash
 magnet:?xt=urn:btih:9D76D5E574F76277D545D63ADE3CA359AE1AB641
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +313,8 @@ magnet:?xt=urn:btih:9D76D5E574F76277D545D63ADE3CA359AE1AB641
 magnet:?xt=urn:btih:CD9680AB514E23ECE9FE46782A49248FC2805299
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +338,8 @@ magnet:?xt=urn:btih:CD9680AB514E23ECE9FE46782A49248FC2805299
 ```bash
 magnet:?xt=urn:btih:7EFAC794F361EFD99793173A3172E73EFFA3A955
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +367,8 @@ magnet:?xt=urn:btih:7EFAC794F361EFD99793173A3172E73EFFA3A955
 magnet:?xt=urn:btih:3FD184085DBF37A7BAD285E171744FE4C2D85D3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +392,8 @@ magnet:?xt=urn:btih:3FD184085DBF37A7BAD285E171744FE4C2D85D3E
 ```bash
 magnet:?xt=urn:btih:4153E06CEB32CF27DA413913A7C75B057FD2D42F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +419,8 @@ magnet:?xt=urn:btih:4153E06CEB32CF27DA413913A7C75B057FD2D42F
 magnet:?xt=urn:btih:09E806235ED713C44120B90355C3417A92C7EDEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +445,8 @@ magnet:?xt=urn:btih:09E806235ED713C44120B90355C3417A92C7EDEE
 magnet:?xt=urn:btih:1C363CA36C6D02AD19B6B20448742E7D48F2D378
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +470,8 @@ magnet:?xt=urn:btih:1C363CA36C6D02AD19B6B20448742E7D48F2D378
 ```bash
 magnet:?xt=urn:btih:7980C319E4E6936545E2D39FEEF0EC1D5FED73CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +498,8 @@ magnet:?xt=urn:btih:7980C319E4E6936545E2D39FEEF0EC1D5FED73CE
 ```bash
 magnet:?xt=urn:btih:68F7C750F15AA176FA2C7AFC6846801EADFF02D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +528,8 @@ magnet:?xt=urn:btih:68F7C750F15AA176FA2C7AFC6846801EADFF02D9
 magnet:?xt=urn:btih:E55A84477C714C9B40F54DA92E8B3A94D96924BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +553,8 @@ magnet:?xt=urn:btih:E55A84477C714C9B40F54DA92E8B3A94D96924BB
 ```bash
 magnet:?xt=urn:btih:6B4CA43C9759178A4559B2A817BB04E46C272CD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +581,8 @@ magnet:?xt=urn:btih:6B4CA43C9759178A4559B2A817BB04E46C272CD3
 magnet:?xt=urn:btih:F5BEF02D1339FFE2A168814D0FBCC04C0A1BA7D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +606,8 @@ magnet:?xt=urn:btih:F5BEF02D1339FFE2A168814D0FBCC04C0A1BA7D1
 ```bash
 magnet:?xt=urn:btih:EFE1B7B6F8312ABCFD234950D73B10A571905C53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +633,8 @@ magnet:?xt=urn:btih:EFE1B7B6F8312ABCFD234950D73B10A571905C53
 magnet:?xt=urn:btih:CDA165DF789C90755765C1C732D8788F865F2F06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +658,8 @@ magnet:?xt=urn:btih:CDA165DF789C90755765C1C732D8788F865F2F06
 ```bash
 magnet:?xt=urn:btih:0A79B4350E823F7278206F85DD869A73B87E326F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,31 +685,7 @@ magnet:?xt=urn:btih:0A79B4350E823F7278206F85DD869A73B87E326F
 magnet:?xt=urn:btih:2879F9D444A656A3F473AD67BD7F53C8D4A05566
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926952   (531268) от 11.08.2015
-
-Лорен Грэхэм | Сможет ли Россия конкурировать? История инноваций в царской, советской и современной России (2014) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга – серьезное исследование на тему, почему в России веками не удается коммерциализация технологических идей. Со времен Петра I и до «Сколково», будучи первопроходцами во многих важнейших отраслях науки, россияне серьезно отстают, как только речь заходит о получении выгоды.
-
-Автор, Лорен Грэхэм – известный исследователь советской науки, профессор MIT, преподаватель (   Читать дальше...   )Жанр: Зарубежная публицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E30C7F4CFE3071F5A1B2C6C5509324A74FAF0F8
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

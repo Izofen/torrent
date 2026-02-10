@@ -19,6 +19,8 @@ Crying Suns (2019) [Ru/Multi] (3.0.1) License GOG
 magnet:?xt=urn:btih:FFB9E47D7366B608FEC70620399172093340F4A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Metal: Hellsinger (2022) [Ru/Multi] (1.7.0-68176-154/dlc) Repack DjDI [Essential
 ```bash
 magnet:?xt=urn:btih:EEF9E4D04651C37DF593FFEC6C28C3C111D30931
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Galactic Civilizations III – самая глобальная игра-песо
 magnet:?xt=urn:btih:87B513A2517B01F69F84359446373E97480FF748
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Evil West (2022) [Ru/Multi] (0.48) License GOG
 ```bash
 magnet:?xt=urn:btih:8A87453AF87D830403AA73DB705D52FEEF232436
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ The Captain (2021) [Multi] (1.1.4) License GOG
 magnet:?xt=urn:btih:736CD9AA9AB64FA599DAD9EBF3FEB33FDE89D30F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ A Plague Tale: Innocence – это невероятный средневеко�
 ```bash
 magnet:?xt=urn:btih:794F5F6A64B006F1C174D9189B7F945C17DC8891
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Beautiful Desolation - это двухмерная изометрическая 
 magnet:?xt=urn:btih:C1B7B784AA1AE296A3A2AC5F43F11080A4A7CFCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Tour de France 2023 (2023) [Multi] (1.00.04.703) Scene Rune
 ```bash
 magnet:?xt=urn:btih:DD7C57C9EC559461C1AB36FA7611B3C8047C24CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Car Dealership Simulator - это иммерсивный симулятор сп
 magnet:?xt=urn:btih:8744A1DFE6A373AB963FD9440724BAE9D406FAB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Farthest Frontier (2022) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D08A59B9ED9EFC364D2EC06234099D9448D6B4A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Bread & Fred - это сложный кооперативный платформ
 magnet:?xt=urn:btih:70C9F9C405DCE7C75C53EF7C685DE2F69337D6BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Tin Hearts – это адвенчура и по совместительств�
 ```bash
 magnet:?xt=urn:btih:2E893CF552F8FE0B49D4E6B0D01CC9255B0B48F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Dreams of Another - это экшен-игра с исследованием о�
 magnet:?xt=urn:btih:A6815BC2F8C4A34CEA878B4711919F874A895854
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Crime Detective Red Flags - игра, вдохновлённая реально�
 ```bash
 magnet:?xt=urn:btih:D1450F4C7C395672FB880C8627B0DC7C5F21E9D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Ninja Gaiden 4 (2025) [Ru/Multi] (1.0.1.0/dlc) Repack FitGirl [Deluxe Edition]
 magnet:?xt=urn:btih:CE1A7C820C7D7A98E5196BE7049CCCAC94061A49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ SpongeBob SquarePants: The Cosmic Shake (2023) [Ru/Multi] (1.4b/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:FF9B1A16F6A1AF8A7B3A255355486C889508524F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Ninja Gaiden 4 (2025) [Ru/Multi] (1.0.2.0/dlc) Repack seleZen [Deluxe Edition]
 magnet:?xt=urn:btih:A3376C3D2A41108C52072C7E0AEA53F9C2F257B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ A Light in the Dark – это визуальная новелла с рисов
 ```bash
 magnet:?xt=urn:btih:E07775FDF426A47BBD35D695174F774F0C5DB65E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Morrok (2023) [Ru/Multi] (Build 11369620) Repack Other s
 magnet:?xt=urn:btih:321525062EBF52EE307A91225DEBA6CD80178367
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Resident Evil 7: Biohazard (2017) [Ru/Multi] (1.0/dlc) Repack Decepticon [Gold E
 ```bash
 magnet:?xt=urn:btih:F4FA6B3689AE241785C454D783D6130398A74BE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Tormented Souls 2 (2025) [Ru/Multi] (1.2.0/dlc) Repack seleZen [Digital Deluxe E
 magnet:?xt=urn:btih:6FEDC67095F4A286FC701059475F260A91612BEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Reflections of Life 14: Gone But Not Forgotten / Отражения жизни 1
 ```bash
 magnet:?xt=urn:btih:F32C81D8F7CAE55573AB1444CEC368A6CC15ADF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ The Lonesome Guild - это одиночный ролевой боевик с в
 magnet:?xt=urn:btih:5F322D2323579FE0B6716B1804595A5A10351647
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Malice: Two Sisters (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:B83291F983172A3DE82517E3B0143CD34EB4D7FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Atlantic Journey: The Lost Brother / Атлантическое путешест
 magnet:?xt=urn:btih:85BB1423935D2BE0B1167DCE244AE093D599740F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ magnet:?xt=urn:btih:85BB1423935D2BE0B1167DCE244AE093D599740F
 ```bash
 magnet:?xt=urn:btih:7E18409D2A225B85044ED825E94A76739F932CAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

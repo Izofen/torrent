@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C768993A29AB9772E65A6D6A69CE3EB0840A6B05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Vinci J Rufus | Building Micro Frontends with React 18 (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:07046E6D64A11C0BF1A28A875653F7F036F8172E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Planner 5D - дизайн интерьера v2.8.8 Mod by App_modz [Ru/Multi]
 magnet:?xt=urn:btih:D5A318C9DB91710EAF19D7503EA9A5B31761D9B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Rainlendar - cимпатичный календарик для рабочего 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Rainlendar - cимпатичный календарик для рабочего 
 magnet:?xt=urn:btih:14A01A51C718892C20FB4A591347481FA83DB41C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Oswald Campesato | Python for Absolute Beginners (2023) [PDF][EN]
 magnet:?xt=urn:btih:65E4158257DD6AD3D4349847606C53885D7F9330
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:65E4158257DD6AD3D4349847606C53885D7F9330
 ```bash
 magnet:?xt=urn:btih:6A5259646EC3834C4037499917E7C998922D47BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:6A5259646EC3834C4037499917E7C998922D47BE
 magnet:?xt=urn:btih:A919C186FA2A358137B5294E032CE615C1030B7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:A919C186FA2A358137B5294E032CE615C1030B7D
 ```bash
 magnet:?xt=urn:btih:9CE7178F51B0CE3D21FF6E620C0111CDC21E4C6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:9CE7178F51B0CE3D21FF6E620C0111CDC21E4C6B
 magnet:?xt=urn:btih:0FA390E4AA1EB4EEAF4989A2F8937EFFCE2F4788
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:0FA390E4AA1EB4EEAF4989A2F8937EFFCE2F4788
 ```bash
 magnet:?xt=urn:btih:1AA41FB6933E671B1B18CA15C1A2123996EE5CD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:1AA41FB6933E671B1B18CA15C1A2123996EE5CD0
 magnet:?xt=urn:btih:CC24669666BDAEED89FC480C75EE919C3DF40203
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:CC24669666BDAEED89FC480C75EE919C3DF40203
 magnet:?xt=urn:btih:AA6FA8D3D5F17F6C3C28A989E4BC448FB7CD3FCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:AA6FA8D3D5F17F6C3C28A989E4BC448FB7CD3FCB
 ```bash
 magnet:?xt=urn:btih:36072677DD5968F238F4C5272C999C55A053384C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ Roman Mantra | Mantra PRO Ai. Вебинар по созданию нейроа�
 magnet:?xt=urn:btih:F39063E12A1CA05E9F127397A2C4756902D42284
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:F39063E12A1CA05E9F127397A2C4756902D42284
 magnet:?xt=urn:btih:9B387E1A7B032B7B3244B4C0AC8F5C28E4C9739D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:9B387E1A7B032B7B3244B4C0AC8F5C28E4C9739D
 ```bash
 magnet:?xt=urn:btih:AC777989CD5EDF4091F5740985F04877996F3E37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:AC777989CD5EDF4091F5740985F04877996F3E37
 magnet:?xt=urn:btih:E8A9EA51A0509D9711DF8EE604D3A2A8A633C1A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:E8A9EA51A0509D9711DF8EE604D3A2A8A633C1A7
 magnet:?xt=urn:btih:0B2ADCFF317D6A99853295CFF8739C9B4154251C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ Ultimate Band – уникальная музыкально-ритмическа
 ```bash
 magnet:?xt=urn:btih:F241A517A2E548574062A01A21FC76F90C6FAA99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +556,8 @@ magnet:?xt=urn:btih:F241A517A2E548574062A01A21FC76F90C6FAA99
 magnet:?xt=urn:btih:60F52A261E6EB2E5109CD86204DE8C1B5A85B1DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +581,8 @@ magnet:?xt=urn:btih:60F52A261E6EB2E5109CD86204DE8C1B5A85B1DD
 ```bash
 magnet:?xt=urn:btih:E9B001FC52C1F33211FF3768FB0DB87D0832D09D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:E9B001FC52C1F33211FF3768FB0DB87D0832D09D
 magnet:?xt=urn:btih:A3DAFE5A9F1391505F5368E25D4713D845EDE004
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ magnet:?xt=urn:btih:A3DAFE5A9F1391505F5368E25D4713D845EDE004
 ```bash
 magnet:?xt=urn:btih:B275279D9E4E0B406FE1555FCA5DC7127EFACD4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +670,8 @@ Placido Domingo - Christmas With Placido Domingo (1981) [FLAC|Lossless]<Classica
 magnet:?xt=urn:btih:C42F9C948D5B70B50778E99AFAF48D29C4F85E4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ magnet:?xt=urn:btih:C42F9C948D5B70B50778E99AFAF48D29C4F85E4A
 ```bash
 magnet:?xt=urn:btih:51A36D65B4F033C732DAEED2A1D69652D30C0177
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

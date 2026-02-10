@@ -22,6 +22,8 @@ Mike Higham & Matthew Margeson - Miss Peregrine’s Home For Peculiar Children /
 magnet:?xt=urn:btih:F56737134A736E7D36C3DE9BE8738D13F4466C6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Louis Landon - Healing Hearts 3 - Solo Piano (2016) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:AE3FDD1AC017E485D8810F4F280B81AE84B514BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Magna Canta - Deep Spirits (2000) [MP3|320 Kbps] <New Age, Ambient>
 magnet:?xt=urn:btih:0EB0F1D3BBA1DA0905B492C4D34854B33B0CC660
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Spa Relaxation Ambient Music Vol 1 (2016) [MP3|320 Kbps] <Downtempo, Balear
 ```bash
 magnet:?xt=urn:btih:F1C56B41D5C0B5334EF0A32F8EA9D01084F082B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Kami Thompson - Love Lies (2011) [MP3|320 Kbps] <Folk, Pop-Rock, World>
 magnet:?xt=urn:btih:C3CFBB2B59A93334E08AEE55B7504FA95C46CE43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Angus Gill - Nomad (2017) [MP3|320 Kbps] <Country>
 ```bash
 magnet:?xt=urn:btih:5DDC32186E2F789E0BA35507A07023372BCBAA3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ James Horner - A Beautiful Mind (2001) [MP3|320 Kbps] <Score>
 magnet:?xt=urn:btih:C69FD1FED932DC04FD0528BDC79E3B83D01B6520
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Nathaniel Mechaly - Taken (2008) [MP3|320 Kbps] <Score>
 ```bash
 magnet:?xt=urn:btih:ABDCE0A65650204C8EBF39329F19C5A98170A80B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Alan Menken - Enchanted (2007) [MP3|320 Kbps] <Score>
 magnet:?xt=urn:btih:91BB59D4F3AF89E9D565EA2A59C88D022716683F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Nature Sounds Nature Music - Zen One: Relaxing Vibes For Sleep & Yoga & Meditati
 ```bash
 magnet:?xt=urn:btih:6F28B4AE6F29210E2B148B448C19A38729B72BA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Country Covers (2018) [MP3|320 Kbps] <Country, Pop, Folk>
 magnet:?xt=urn:btih:B2E5E5ADFF64474DED1CF10156E6BEE3AD373E5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Johan Onvlee - Relaxation With Guitar (1998) [FLAC|Lossless|tracks + .cue] <Inst
 ```bash
 magnet:?xt=urn:btih:27F1BD0CC548E8C055A90AF37A168989125B665B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Liquid Bloom - 2 альбома (2007-2015) [MP3|320 кб/с]<Shamanic, Trance, 
 magnet:?xt=urn:btih:9E5DAECB7F04B0CDF23FF768143D1653DE618473
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Olivia Newton-John - If Not For You (1971) 1993, Reissue [FLAC|Lossless]<Country
 ```bash
 magnet:?xt=urn:btih:1439190274C92924A5308C9C123CFF3160117107
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Cafe Del Mar - Classical (2013) [FLAC|Lossless|image + .cue] <Instrumental,
 magnet:?xt=urn:btih:31750B6EF49F01A59ECB09D801207C0326352EE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Gomer Edwin Evans - The Very Best Of Angel Dreams (2015) [MP3|320 кб/с]<New A
 ```bash
 magnet:?xt=urn:btih:995219D1FC544F6A957E3268BDC0EF48E8FC824A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - Knockin' on Heaven's Door (1997) [MP3|320 Kbps] <Soundtrack, Score>
 magnet:?xt=urn:btih:C05997E9B909D426B138D01383066FFD41EAB042
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ VA - Eurotrip (2004) [MP3|320 Kbps] <Soundtrack>
 ```bash
 magnet:?xt=urn:btih:83EED80D78584205E59BB3A81D4C421D3B7659DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ Medwyn Goodall - Moon Goddess 2 (2012) [FLAC|Lossless|tracks + .cue] <New Age>
 magnet:?xt=urn:btih:A4877B1B7B8648AECE838BB3DF8E12831FB4D665
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +573,8 @@ Andrea Guerra - The Pursuit Of Happyness (2006) [MP3|320 Kbps] <Score>
 magnet:?xt=urn:btih:D61749F3BA3AECBAEFEB0A0145F54750B8566808
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +601,8 @@ Phil Thornton - Pure Crystal Bowls (2016) [FLAC|Lossless|tracks] <New Age, Medit
 ```bash
 magnet:?xt=urn:btih:3F1B38B69E740C5F9C3DF53163324DA58AC074F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +636,8 @@ Prabodhi - 2 albums (1989, 1991) [MP3|320 кб/с]<New age>
 magnet:?xt=urn:btih:6959687F4C96212A04C1D264E789D4A1C24A3663
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +664,8 @@ The Romantic Strings Orchestra - Ebb Tide: Romantic Piano & Orchestra (1996) Com
 ```bash
 magnet:?xt=urn:btih:C58B193407C74EDEF73485D8E6B02804D11201A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -648,6 +694,8 @@ LeAnn Rimes - You Light Up My Life (1997) [FLAC|Lossless|tracks] <Country, Folk>
 magnet:?xt=urn:btih:A17CAB852F5A63994D7253D627939CB5ECA9FF61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -675,6 +723,8 @@ Trevor Jones - Around the World in 80 Days (2004) [MP3|320 Kbps] <Score>
 magnet:?xt=urn:btih:486716AA2464556FC41A5AA670A1BB7658305F0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -701,6 +751,8 @@ James Newton Howard - Waterworld (1995) [MP3|320 Kbps] <Score>
 ```bash
 magnet:?xt=urn:btih:57A2D539B9E79481B8AD6096A509F207D916CB00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

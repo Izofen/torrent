@@ -19,6 +19,8 @@ Fireship.io | Firestore Data Modeling Course (2019) WEB-DL [EN]
 magnet:?xt=urn:btih:7E9179091416F8199AEB96DD256151C81D6421E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Firebase Security — полный курс научит вас писать, с
 magnet:?xt=urn:btih:2B19781123500A824D017566D60EB4436E46706D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:2B19781123500A824D017566D60EB4436E46706D
 magnet:?xt=urn:btih:C0F918CE9D361CDD5C6FFC28AAA1B711EADDF850
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:C0F918CE9D361CDD5C6FFC28AAA1B711EADDF850
 ```bash
 magnet:?xt=urn:btih:5DA197475A66E3AA16CCF25AC9C6D156CF33EBAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:5DA197475A66E3AA16CCF25AC9C6D156CF33EBAE
 ```bash
 magnet:?xt=urn:btih:C14A5F891B2737183368D073385C99B97138533E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:C14A5F891B2737183368D073385C99B97138533E
 magnet:?xt=urn:btih:B373927DD1E241EC39B9EDDE6012AE98B48128E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ OTUS | Разработчик Node.js (2020) PCRec
 ```bash
 magnet:?xt=urn:btih:B427CFFEC9D5AC14EB79EFA9A0FE02FFDE4DCDE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ Python & DevOps(   Читать дальше...   )Жанр: Программи�
 magnet:?xt=urn:btih:55367208F17D8334F2D987683DF414860720B4F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ Pluralsight.com | Python Fundamentals (2013) PCRec [H.264] [RU/EN]
 magnet:?xt=urn:btih:68430CD661C0C3A5C0F15C691B3D0644AB1B2F8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ EC-Council, Bred W. Beatty | The Computer Hacking Forensic Investigator (CHFI) (
 ```bash
 magnet:?xt=urn:btih:0BEF8F732C3B19405AD22C61FF26735CD2060216
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:0BEF8F732C3B19405AD22C61FF26735CD2060216
 magnet:?xt=urn:btih:0CD5C0D8EE8EC541EE51AD375E3021BE3E7F7FF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:0CD5C0D8EE8EC541EE51AD375E3021BE3E7F7FF9
 ```bash
 magnet:?xt=urn:btih:4A4CE7CDD1B8D8062F355F8F27394FAE11A9D521
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:4A4CE7CDD1B8D8062F355F8F27394FAE11A9D521
 magnet:?xt=urn:btih:DB7DBA395AF9CE212300BF9AF006EDB2BFB38685
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ WebCademy | JavaScript разработчик: Уровень Developer (2020) P
 magnet:?xt=urn:btih:7F999161DF22127E081EB6643814E8B262D95D7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ ItGid, Александр Лущенко | PHP Stage 2 (2019) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:05E97A6893A5362BF39EAF2AA6C5C04E50906B75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ HTML и CSS. Профессиональная вёрстка сайтов [21 я
 magnet:?xt=urn:btih:F661ED37E747D75338FECC5D9D6E61E092088ED2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ Geekbrains | 1С-Битрикс. Управление сайтом (2015) PCRec 
 ```bash
 magnet:?xt=urn:btih:2952184584728B71AE13211E45C092B6EDE8A569
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ Spring MVC для начинающих. Как создавать веб про�
 magnet:?xt=urn:btih:BCB044E33B79EE68F11E67A67F54CD82E92D35C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ magnet:?xt=urn:btih:BCB044E33B79EE68F11E67A67F54CD82E92D35C3
 magnet:?xt=urn:btih:52550FE5F8792A47D4A0172BEA34BA181B09D9EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ LearnVisualStudio.net | Visual C Sharp 2010 Express Edition for Absolute Beginne
 ```bash
 magnet:?xt=urn:btih:902364898EBDF1DC771D84531AC24EE92C82AC0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +564,8 @@ Slurm (Слёрм), Владимир Гурьянов | Prometheus (2022) WEB-DL
 magnet:?xt=urn:btih:06B9614BCFDEBDF9282171FA334AEF3857644D47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ Geekbrains | HTML5 и CSS3. Современные средства Web-разр
 magnet:?xt=urn:btih:C88B0BBF5D29F8DF614B4F0E28AD427F0AEED673
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ Tuts+ | PSD to HTML: Flat Design Build  (2014) PCRec [H.264/720p]
 ```bash
 magnet:?xt=urn:btih:D773287AC3E451D0E627DA0DFB727E7D5416FBD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:D773287AC3E451D0E627DA0DFB727E7D5416FBD4
 magnet:?xt=urn:btih:1CABE4CFF0F8F31BCC988E0CFEB3F1EC5151D090
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +673,8 @@ magnet:?xt=urn:btih:1CABE4CFF0F8F31BCC988E0CFEB3F1EC5151D090
 magnet:?xt=urn:btih:88521A530B55C457083F5CD14ED7B7A53B5EB892
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ magnet:?xt=urn:btih:88521A530B55C457083F5CD14ED7B7A53B5EB892
 ```bash
 magnet:?xt=urn:btih:0B15F6D2466F0481FF33E0DAFD5A7F521CFD911A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

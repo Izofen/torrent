@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:78292B1B530518023A96723845F552E7D430FAED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BBC: Что такое свет / Light Fantastic (2004)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ BBC: Белый медведь - Шпион во льдах / BBC: Polar Bear - 
 magnet:?xt=urn:btih:A600007D48DCF369D02E9A1EABDDA2FCF2659D26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ BBC: Жизнь на земле / Life on Earth (1979) BDRip [H.264/720p-LQ] (Э
 ```bash
 magnet:?xt=urn:btih:2D6848D639A6177B0F4B3F85B2D9B9A6BA8DA112
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:2D6848D639A6177B0F4B3F85B2D9B9A6BA8DA112
 magnet:?xt=urn:btih:11711E23ECDDC25A56A09FF3675D16EEA5D55004
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ BBC: Глубина / Deep Blue (2003) [720p]BDRip
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ BBC: Загадки истории. Век полетов: Легенды мир
 magnet:?xt=urn:btih:AE9D8977A9B145DBC9C3E37CC80C0B5F366D39B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ BBC: Величайшие явления природы / Nature's Great Events 
 ```bash
 magnet:?xt=urn:btih:9A1DA4DCDB12F0EBE373A0E0B2E66FACAD0B90A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ BBC. Horizon: Как дожить до 101 года? / How to live to 101? (2008
 magnet:?xt=urn:btih:AC42215AE9ADFC88695146DE29FC13BFFE2C9B99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ BBC: Сокрытые миры / Hidden Kingdoms (2014) BDRip [H.264/1080p] (С�
 ```bash
 magnet:?xt=urn:btih:EC9B7CD8B41E2F5ECF7DAE2F2556B3F411D505EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ BBC: Суперстая / Swarm: Nature's Incredible Invasions (Megaschwaerme. D
 magnet:?xt=urn:btih:AACFACAEF60DA77CFB46E911A734FA1CE454C22E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ BBC: Величайшие явления природы (эпизоды 1-6 из
 ```bash
 magnet:?xt=urn:btih:E9B17640DFCDC43F15D322EA84D0B40BD28910C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ BBC. Horizon: Война против науки / A War On Science (2006) DVBRi
 magnet:?xt=urn:btih:6635A6AC3419A9C55B316DBC320AC9097F4E9559
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:6635A6AC3419A9C55B316DBC320AC9097F4E9559
 magnet:?xt=urn:btih:E4DB58C78D899FF687538D67764A103064100F52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:E4DB58C78D899FF687538D67764A103064100F52
 ```bash
 magnet:?xt=urn:btih:B3944437FC03EFEF98F2E965093F007576DCA1F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:B3944437FC03EFEF98F2E965093F007576DCA1F3
 magnet:?xt=urn:btih:E6E5FD1CA0342D3CCD46931CA2C58A935E166E2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:E6E5FD1CA0342D3CCD46931CA2C58A935E166E2B
 magnet:?xt=urn:btih:74A538A794BE6A1748C59AC85C5DCA401233603A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ BBC: Невидимые миры / Richard Hammond's Invisible Worlds (2010) BDR
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ BBC: Невидимые миры / Richard Hammond's Invisible Worlds (2010) BDR
 magnet:?xt=urn:btih:B07FF47F1CD40C4D32A5DC73078B349AD103E78B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ BBC: Вырастая во Вселенной [5 из 5] / Growing Up in the Uni
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/720p] 
 ```bash
 magnet:?xt=urn:btih:220B437298945A1DE45A8D7E37F64B8F67D30668
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ magnet:?xt=urn:btih:220B437298945A1DE45A8D7E37F64B8F67D30668
 magnet:?xt=urn:btih:BF0AE136BEA44CF1BFAF93A256BA733F2A3FA775
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:BF0AE136BEA44CF1BFAF93A256BA733F2A3FA775
 ```bash
 magnet:?xt=urn:btih:634911D644C72C080431846C0BFB96D60D6969C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:634911D644C72C080431846C0BFB96D60D6969C8
 magnet:?xt=urn:btih:13C25BDB48699FD3A95F6003CF1DAAC3B0C870F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ BBC. Как устроены шикарные отели. Marina Bay Sands (Си
 ```bash
 magnet:?xt=urn:btih:CBC807B57F084F635A68605E8A234FD591B9D030
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +683,8 @@ magnet:?xt=urn:btih:CBC807B57F084F635A68605E8A234FD591B9D030
 ```bash
 magnet:?xt=urn:btih:339CD68798CA6CF6D71902ED2A6A9B1FA5862B14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

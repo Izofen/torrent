@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:E8065C0285ED2CDC8F4DD05C12DC01C1B3EC6F49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:BAA2F26140AD0C821F1537289DAD628CE31B229E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Metashape способна обрабатывать любые фотограф�
 magnet:?xt=urn:btih:E4C3BB964D340C233EBC711CE911A44DB7E989B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ BetterTouchTool удобное приложение, которое позвол
 ```bash
 magnet:?xt=urn:btih:FD730A8551DB2A60C6C437CBA4BB1003BEEB40BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ AnyDesk 6.1.0 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:FA3C49AEDF29EE58F82ECB9053C3EF276AC6C368
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Symantec Endpoint Protection – антивирусная программа, в
 magnet:?xt=urn:btih:C29318E09BB83C58C325F20EF2807F21DDD872D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Victoria 5.34 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:872FE81A0DBD3D798DF64211DC46FB6A4954DF75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Rocket Typist Pro 3.0.0 [Multi/Ru]
 magnet:?xt=urn:btih:4EADFA190D5142845C2B9ED591D3DB6EF36CE707
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ MediaHuman YouTube Downloader - удобное приложение с помо�
 ```bash
 magnet:?xt=urn:btih:9BCCB6BC9EBF1006B0A1221DDED27932D9E9E00E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ Amadine - это программное обеспечение для векто
 magnet:?xt=urn:btih:FF1A5D93E0237DBECAC6DE9A5555C745981645BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ Youtube Downloader HD - бесплатная и предельно проста�
 ```bash
 magnet:?xt=urn:btih:87CDBC468F0ACB7833A2E78A8CCCD9ED1F9061AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ Codepoint for Mac 1.11 [Multi]
 magnet:?xt=urn:btih:5C97DEDC8108974EF509ACF1C6611596C1E382FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ Microsoft Visual C++ Redistributable Package – это распространя
 ```bash
 magnet:?xt=urn:btih:7599A7B91068DE26C06460B790653B13E4A1B812
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 magnet:?xt=urn:btih:3F762E54E735B938FCDB0118A6AA76E9FF41B685
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ Maplesoft Maple 2020.2 [En]
 magnet:?xt=urn:btih:DAF604C822E9F5F36AB16087A327315A72E96BCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ WinToHDD - программа 3-в-1, которая позволяет выпо
 magnet:?xt=urn:btih:727981710AD3958360D9929A3AB71139BDE0BBB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2022.12.07 [En]
 ```bash
 magnet:?xt=urn:btih:5977E224C448CF8E5A46C9334A32926DC4461A35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ You can replicate server, desktop, and tablet environments in a virtual machine 
 magnet:?xt=urn:btih:92162A093D00E38315AE18FFB18F58D3B6E050D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:03627B7DD4545A8EA26DB77ED6B18146F0221B91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ WhatsApp Messenger - кроссплатформенный мобильный м�
 magnet:?xt=urn:btih:779B7D9FA53C1434E67D7DE7FAD3B4F534006685
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ Light Image Resizer - программа для изменения размер�
 ```bash
 magnet:?xt=urn:btih:7613D3C1DAEA296D0AA777BA6F866039EDDB0E31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ Tor Browser Bundle 10.0.6 [Ru/En]
 magnet:?xt=urn:btih:4FF3C62BED38AA8A351DF7BC2B9DEBDA3FA09166
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:E20E3A3B6748F5D4367770523FAB48DF857E4FE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +633,8 @@ ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391.isoИнтегрированы о
 magnet:?xt=urn:btih:C0F8E1E75EA5818D10AC3C88F1296D9C1C2C98A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ Cent Browser является усовершенствованной верси�
 magnet:?xt=urn:btih:B7EE87E25983FD3242DF9754062A2B60A5E6323B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:26A2E14F8BD3B5F1E9456DBF4FC7F434B3EE56DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

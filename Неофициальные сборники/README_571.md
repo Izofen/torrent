@@ -1,3 +1,32 @@
+###  Публикация: 1375117   (867116) от 13.04.2020
+
+VA - Beatport Deep House: Electro Sound Pack #58 (2020) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_867116.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Godfathers - Roper St
+002. Modular Bros. - Jailtime
+003. Anton Ishutin - Release The Energy
+004. Djscifi - Trap Inside Your Love(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 11:24:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:058785C28F316AF76AA52D0A5DAE1B86249C0253
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375247   (867187) от 13.04.2020
 
 VA - Acoustic Rock vol.5 (2020) [MP3|320 Kbps] <Rock>
@@ -21,6 +50,8 @@ VA - Acoustic Rock vol.5 (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:90A306EE1D2AE5F932668E08850DD8E9A3AB02F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Bass Reflex: Drum Electro Sound (2020) [MP3|320 Kbps] <D&B, Bassline, Dubst
 magnet:?xt=urn:btih:CB292278ED1C66CD4FA43EBB64BAB5C1A4690120
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Beatport Electro House: Sound Pack #57 (2020) [MP3|320 Kbps] <Electro House
 ```bash
 magnet:?xt=urn:btih:CC5F1A319B0657E05B546C2F036128DD3C188492
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Woman of Jazz (2017) [MP3|320 Kbps] <Jazz, Vocal Jazz>
 magnet:?xt=urn:btih:9934505B6029F516B7401CE832F32C94EF619AFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Music News vol.133 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 ```bash
 magnet:?xt=urn:btih:CBE9FF3270D5E4F6680AD3611119D6586EB79AF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ Scorpions - Anthology (2015) 8 Альбомов [MP3|320 кб/с] <Hard Rock>
 magnet:?xt=urn:btih:60F20BB16B5E658C4EE0B65508844009D2D2B30F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Клубный мега хит в машину (2016) [MP3|256-320 кб/с]
 ```bash
 magnet:?xt=urn:btih:DAAE022CA353C01F829FE61D8A5CAFF16E115FE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Blues Forever vol.41 - vol.44 (2016) [MP3|320 кб/с] <Blues>
 magnet:?xt=urn:btih:4397DD8205A735F79AD38297A6BEBE5934B4AFE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Электронный Кавардак [Compiled by Zebyte] (2017) [MP3|32
 ```bash
 magnet:?xt=urn:btih:C9ED8843879A4FBC7D444FBA5AA03D5C887CC9B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - Haywyre System Relax Ambient (2017) [MP3|320 Kbps] <Ambient, Downtempo>
 magnet:?xt=urn:btih:2E77CF40987E4C66292F6EA906E739594BC77F31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - Музыка дороги Сборник русского шансона (2
 ```bash
 magnet:?xt=urn:btih:635638329F76BA3186269AB12FEDE1A5E6B7BB1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - Хит FM - Восхитительная Двадцатка март (2016)
 magnet:?xt=urn:btih:464185B2FBCCE0729F05B86CCD03D0FC3EE6D867
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ VA - Pacific Music- Relax Underwater Sound (2016) [MP3|256-320 кб/с] <Chillou
 ```bash
 magnet:?xt=urn:btih:6E893D14B70FF56F6397F9C6D511128F32DD7FA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ VA - Горячая 20-ка Кавказ (2012) [MP3|320 кб/с] <Кавказ�
 magnet:?xt=urn:btih:B091EF7BE65DE3D7EA8DEAAEE06EEA380D16142F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +456,8 @@ VA - Flight Of The Soul Vol.52 (2016) [MP3|320 кб/с] <Chillout, Downtempo, Lo
 ```bash
 magnet:?xt=urn:btih:962D47AFA2AE8F5ABA96CF84CAFB93B0DC967001
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +486,8 @@ VA - The Very Best of Latin Jazz (2016) [MP3|320 кб/с] <Jazz>
 magnet:?xt=urn:btih:99BD297AC6A95DD52F53E60162A86EC9A9A0DC92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +514,8 @@ VA - Лирика шансона 2 от DON Music (2015) [MP3|256-320 кб/с] <
 ```bash
 magnet:?xt=urn:btih:22E9536D5C5EC0CCD7FAAD8E891553F7327BFC16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +544,8 @@ magnet:?xt=urn:btih:22E9536D5C5EC0CCD7FAAD8E891553F7327BFC16
 magnet:?xt=urn:btih:EA862FF7E3111B3F0384391196CF9B89C6FB7FFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +572,8 @@ VA - Acoustic Rock vol.2 (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:63D2B0F00308A3C2CF82919546A11E8BD0AFC5C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +602,8 @@ Manowar - 100% Manowar (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
 magnet:?xt=urn:btih:C6717DA211254BFE99F66662D96771C83371DA74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +630,8 @@ magnet:?xt=urn:btih:C6717DA211254BFE99F66662D96771C83371DA74
 ```bash
 magnet:?xt=urn:btih:8ACFE957EC257F9A6D9F75D59BA105071DCA3AA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +660,8 @@ magnet:?xt=urn:btih:8ACFE957EC257F9A6D9F75D59BA105071DCA3AA6
 magnet:?xt=urn:btih:713A46C1354FE7FDDB71F771D0BA6BF0ACE117C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +688,8 @@ Robert Plant - 100% Robert Plant (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:906B32B664C89E33CEE4030046928EA3E17706DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +718,8 @@ VA - My Favourite Hits of 1981 (11CD) (2014) [MP3|320 кб/с]<Disco, Pop, Synth
 magnet:?xt=urn:btih:E4868CAFDF76F28AC17317CC10EDC9A5C57ED5A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,32 +747,7 @@ VA - не Громкие новинки недели 63 (2020) [MP3|320 Kbps] <P
 magnet:?xt=urn:btih:87B5931D8E82652ACA16B8DE112587309B679628
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375138   (868983) от 12.04.2020
-
-VA - Acoustic Rock vol.3 (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. America - A Horse with No Name (04:12)
-02. Bread - Everything I Own (03:07)
-03. Faces - Ooh La La (03:34)
-04. Alanis Morissette - Ironic - Acoustic Version (03:55)(   Читать дальше...   )Жанр: RockПродолжительность: 01:40:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1199BDF5A56B472712B1349C871022942FB5CFBB
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

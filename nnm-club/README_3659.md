@@ -19,6 +19,8 @@ Bridge Constructor Portal (2017) [Ru/Multi] (001.04/dlc) License GOG
 magnet:?xt=urn:btih:A86BD7DE26A1C7AF781A88E9FFFE38F46CF664A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:A86BD7DE26A1C7AF781A88E9FFFE38F46CF664A6
 ```bash
 magnet:?xt=urn:btih:62D153E48AA9E414BAE4D5FE535083C0EABDC9FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Invisible Fear погружает вас в леденящий душу кошм
 magnet:?xt=urn:btih:C77F8C6A81471682C177896C76C6409057A8A6C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:C77F8C6A81471682C177896C76C6409057A8A6C5
 ```bash
 magnet:?xt=urn:btih:C652442198621F8D406304FBF4B8F5AB59277D90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:C652442198621F8D406304FBF4B8F5AB59277D90
 magnet:?xt=urn:btih:53F240FD0CB74BBBA2D09E6FA89DC2EA563388CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:53F240FD0CB74BBBA2D09E6FA89DC2EA563388CD
 ```bash
 magnet:?xt=urn:btih:386101A2B3B7DEE86EE40B15BACCD3401012DF50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:386101A2B3B7DEE86EE40B15BACCD3401012DF50
 magnet:?xt=urn:btih:D16C8B8C1D35D3FF1C14BE9D4F4F0F3F23055625
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:D16C8B8C1D35D3FF1C14BE9D4F4F0F3F23055625
 magnet:?xt=urn:btih:788FC035DE53F7019C7F8396428EC72B42E06CBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Slave Zero X - это биопанк-экшен, выполненный в по�
 magnet:?xt=urn:btih:C2391D0DADD31606D3B20FB1AC7252A4542E3C7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:C2391D0DADD31606D3B20FB1AC7252A4542E3C7C
 ```bash
 magnet:?xt=urn:btih:D4CBB8627716C3CCE6233A808FCC1DE496057103
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:D4CBB8627716C3CCE6233A808FCC1DE496057103
 magnet:?xt=urn:btih:2D74285E93CA045B6E6D2A347796D3C01EFC4183
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:2D74285E93CA045B6E6D2A347796D3C01EFC4183
 ```bash
 magnet:?xt=urn:btih:654F16AA0923929F2626057744027B41AA3FC3DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:654F16AA0923929F2626057744027B41AA3FC3DF
 magnet:?xt=urn:btih:76BFFFEB3427A8C910FB8A81BB95AB9B65086F2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:76BFFFEB3427A8C910FB8A81BB95AB9B65086F2E
 ```bash
 magnet:?xt=urn:btih:4B857CD887CD50DF970C9C7DFAE79FB8831A431D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:4B857CD887CD50DF970C9C7DFAE79FB8831A431D
 magnet:?xt=urn:btih:A676B78892D6C8C6A01129B27F00B4DABED5A52E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:A676B78892D6C8C6A01129B27F00B4DABED5A52E
 ```bash
 magnet:?xt=urn:btih:B386079BF90CD0B5DFC803902505B7F6CFED6F1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:B386079BF90CD0B5DFC803902505B7F6CFED6F1E
 magnet:?xt=urn:btih:40B4FCF8E882078D53FE2169A90F93584A8D6AAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:40B4FCF8E882078D53FE2169A90F93584A8D6AAC
 ```bash
 magnet:?xt=urn:btih:9A0A7EFA21A6CF50D34882548EC11A065B17C062
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:9A0A7EFA21A6CF50D34882548EC11A065B17C062
 magnet:?xt=urn:btih:F1A279FDAE93C7A06B3B81D42BB85A5573603C46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ The Bat! – общепризнанная система обработки эл
 ```bash
 magnet:?xt=urn:btih:48319C4CC99DDF590B5A78CB3DF2037C1A66EAF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ Star Wars: Dark Forces Remaster был воплощен в жизнь коман
 magnet:?xt=urn:btih:DEC27076A224EBDCC3A9CD70AD3BEE88A2034F3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ magnet:?xt=urn:btih:DEC27076A224EBDCC3A9CD70AD3BEE88A2034F3A
 ```bash
 magnet:?xt=urn:btih:E2231A4955BEE0BB97325971A31A2102E05F8F37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:E2231A4955BEE0BB97325971A31A2102E05F8F37
 magnet:?xt=urn:btih:1F778B45A8FFBCE12BAE93BD04FD32213E64F97E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ magnet:?xt=urn:btih:1F778B45A8FFBCE12BAE93BD04FD32213E64F97E
 ```bash
 magnet:?xt=urn:btih:03302C3CCA21B53C19038224388635629272A454
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ magnet:?xt=urn:btih:03302C3CCA21B53C19038224388635629272A454
 magnet:?xt=urn:btih:688776150F29BAD0DD7FBC29669605DD3D708932
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ magnet:?xt=urn:btih:688776150F29BAD0DD7FBC29669605DD3D708932
 ```bash
 magnet:?xt=urn:btih:7F8D67CFE15530675F154B847B7DAB09F8A5D24B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

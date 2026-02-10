@@ -21,6 +21,8 @@ Planet of Lana v1.6.2 [Ru]
 magnet:?xt=urn:btih:8B325F5AE20A352308E3CD23AD639D57FFB81A8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Slender Threads v1.5 [Ru]
 magnet:?xt=urn:btih:B1350C7CBA09500E0BC300A21823B1176BE50C08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Red Dead Redemption v1.53.61003005 [Ru]
 ```bash
 magnet:?xt=urn:btih:E2CBADE372B6CEEF6654A1EF8D4095C0C2F8729B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Bendy and the Dark Revival® («Бенди и темное возрождени�
 magnet:?xt=urn:btih:47AEAECDD47AAE0DFF19A61B02CBDC6460D1A4A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Red Dead Redemption NETFLIX v1.53.61003005 [Ru]
 ```bash
 magnet:?xt=urn:btih:6843E1D01525C6E443DBA7B40547EB9A926AC6EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Red Dead Redemption v1.53.61003005 [Ru]
 magnet:?xt=urn:btih:0C0CDB1F31ED338AB50FC18D6F59505C2825D8EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Red Dead Redemption NETFLIX v1.53.61003005 [Ru]
 ```bash
 magnet:?xt=urn:btih:C68AECA8F70BE38E9FBA3E693A7CE586CCA9EC53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Bendy: Lone Wolf v2.0.0 [Ru]
 magnet:?xt=urn:btih:47C0FFFBC75AA60A4C2F2608AA62A8C4D5AA9431
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Broken Sword: Reforged v1.1.9.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:C0A68A0ECD0F12FAD9D7DC30E69C01771950B03B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:C0A68A0ECD0F12FAD9D7DC30E69C01771950B03B
 magnet:?xt=urn:btih:05444FBFCB5DAFB90D2581D328569777E4ED6AEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Real Fishing / Настоящая Рыбалка v0.1.2.0 Mod by vadj [Ru/En]
 ```bash
 magnet:?xt=urn:btih:A53A7C1E356452CF77465BC6C55B1B9FFD5CF07B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Tricky Words / Хитрое слово: слова из букв v10.2.0 Mod by 
 magnet:?xt=urn:btih:19AACEBE29F2CC0C8F4F2F8CBF6D6CC5656B5459
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:19AACEBE29F2CC0C8F4F2F8CBF6D6CC5656B5459
 ```bash
 magnet:?xt=urn:btih:D562A9E9CFB229F08C8E4B2BE311F1D59C50DAB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ Zoo Match / Три в Ряд: Зоопарк и Животные v2.0.0 Mod by v
 magnet:?xt=urn:btih:1C40FBF5B11858057E59AD2F565AA4166CFF00C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ Ocean Match / Рыбки: Три в ряд v3.3.4 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:BB28B19DC8CC6F30EDA06A9E20A199C8981108DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ Jewel Legend: игра три в ряд v3.21.1 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:398703D2A0402ECE3A5AFC5FC0A39DCBD836CDC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ Jigsawscapes® - Пазлы v5.0.2 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:4FDA1FEA2F4DA7FDB3E586C8829F38CE55BE62EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:4FDA1FEA2F4DA7FDB3E586C8829F38CE55BE62EE
 magnet:?xt=urn:btih:F3AA5286B90F85321C3C7DBBF171F424027713ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ BlockSudoku / Кудоку-Вуди Блок v2.6.6 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:6D5B7F2445D133DF2978605FEE7912B4ED7C8E61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:6D5B7F2445D133DF2978605FEE7912B4ED7C8E61
 ```bash
 magnet:?xt=urn:btih:0D435A8263A8300F510A3BE594E3CD83A86FA78A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

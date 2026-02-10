@@ -1,3 +1,31 @@
+###  Публикация: 945012   (438414) от 08.10.2015
+
+Н. А. Ковальский | Международные католические организации (1962) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438414.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брошюра представляет собой научно-популярный очерк структуры и деятельности международных католических организаций.
+
+Создание массовых католических светских организаций, в том числе международных,— новый вид деятельности Ватикана. Эти организации являются одним из средств, при помощи которых Ватикан надеется приостановить кризис католической церкви, обусловленный (   Читать дальше...   )Жанр: История, религиоведение, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6015689051EFAC47CC9C9654C00609B528F7872
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410290   (438552) от 20.09.2020
 
 Борис Зайцев | Афон (2018) [FB2, EPUB]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:A102F023C4EF9645AB13E6B2D19B2A350698BBB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +72,8 @@ magnet:?xt=urn:btih:A102F023C4EF9645AB13E6B2D19B2A350698BBB1
 ```bash
 magnet:?xt=urn:btih:1D4502BBC786CF1DA703158F7B5B069C931D3F31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +100,8 @@ magnet:?xt=urn:btih:1D4502BBC786CF1DA703158F7B5B069C931D3F31
 magnet:?xt=urn:btih:05A010D11B9B805CF9C87E01D566E2B23A7C557C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +125,8 @@ magnet:?xt=urn:btih:05A010D11B9B805CF9C87E01D566E2B23A7C557C
 ```bash
 magnet:?xt=urn:btih:2E903D90924A71AF70277D9411E5324CA425D2FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +152,8 @@ magnet:?xt=urn:btih:2E903D90924A71AF70277D9411E5324CA425D2FB
 magnet:?xt=urn:btih:F04DDEE096B427E4EC4E2D2A029AB62CB49BC849
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +177,8 @@ magnet:?xt=urn:btih:F04DDEE096B427E4EC4E2D2A029AB62CB49BC849
 ```bash
 magnet:?xt=urn:btih:9E0B63C0E816B85DAD628712D2B777D90824E5C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +206,8 @@ magnet:?xt=urn:btih:9E0B63C0E816B85DAD628712D2B777D90824E5C7
 magnet:?xt=urn:btih:482DB49CE22D03054CDCD162B79B9383EAA42DE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +231,8 @@ magnet:?xt=urn:btih:482DB49CE22D03054CDCD162B79B9383EAA42DE9
 ```bash
 magnet:?xt=urn:btih:B1404ACA824D2A2C8D8AC7838488928AF970038C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +260,8 @@ magnet:?xt=urn:btih:B1404ACA824D2A2C8D8AC7838488928AF970038C
 magnet:?xt=urn:btih:F55B250F5AAC59C954D62A69A4FB28752AABBD9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +285,8 @@ magnet:?xt=urn:btih:F55B250F5AAC59C954D62A69A4FB28752AABBD9D
 ```bash
 magnet:?xt=urn:btih:0CEDC653E516796A207B95631E11C3DC570E7E4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +312,8 @@ magnet:?xt=urn:btih:0CEDC653E516796A207B95631E11C3DC570E7E4E
 magnet:?xt=urn:btih:D760D5EDC1AE845BB3E034558BFB88FD75940721
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +337,8 @@ magnet:?xt=urn:btih:D760D5EDC1AE845BB3E034558BFB88FD75940721
 ```bash
 magnet:?xt=urn:btih:8D0E7B5F6683A79AF0CCF35DC464F527AEC4DC75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +366,8 @@ magnet:?xt=urn:btih:8D0E7B5F6683A79AF0CCF35DC464F527AEC4DC75
 magnet:?xt=urn:btih:4C7FCEE2DAB2066A98A6DD6188B48D91DBA0B489
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +391,8 @@ magnet:?xt=urn:btih:4C7FCEE2DAB2066A98A6DD6188B48D91DBA0B489
 ```bash
 magnet:?xt=urn:btih:D23728FB8BB63FD9344DB461F734B44139D8AEFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +420,8 @@ magnet:?xt=urn:btih:D23728FB8BB63FD9344DB461F734B44139D8AEFC
 magnet:?xt=urn:btih:7560753CBA23EEFCB8DE989A5B3D3926C0DB2A85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +445,8 @@ magnet:?xt=urn:btih:7560753CBA23EEFCB8DE989A5B3D3926C0DB2A85
 ```bash
 magnet:?xt=urn:btih:7F40FF6CA1910EE4A85CECD6BFC73F61CECEE266
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +474,8 @@ magnet:?xt=urn:btih:7F40FF6CA1910EE4A85CECD6BFC73F61CECEE266
 magnet:?xt=urn:btih:546C13F44F3999F30B8911565308F716850806FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +499,8 @@ magnet:?xt=urn:btih:546C13F44F3999F30B8911565308F716850806FD
 ```bash
 magnet:?xt=urn:btih:C1BE7EF2D1ED44EAE00175327A452A227C8D585B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +528,8 @@ magnet:?xt=urn:btih:C1BE7EF2D1ED44EAE00175327A452A227C8D585B
 magnet:?xt=urn:btih:0835A2A02C39FEA83D91BDEE750268B818118E3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +554,8 @@ magnet:?xt=urn:btih:0835A2A02C39FEA83D91BDEE750268B818118E3B
 magnet:?xt=urn:btih:169F4E0C9D668562C316748EEBC70872D41D4CDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +579,8 @@ magnet:?xt=urn:btih:169F4E0C9D668562C316748EEBC70872D41D4CDF
 ```bash
 magnet:?xt=urn:btih:CA6280B83D4E548F94C56E353325A26A2FB0CC0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +608,8 @@ magnet:?xt=urn:btih:CA6280B83D4E548F94C56E353325A26A2FB0CC0C
 magnet:?xt=urn:btih:99C84083EC6AA58368D530C0EFECC7278F5369F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +633,8 @@ magnet:?xt=urn:btih:99C84083EC6AA58368D530C0EFECC7278F5369F5
 ```bash
 magnet:?xt=urn:btih:C77AE545D03E6757A1E6EC417945216D42CEA1C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +660,8 @@ magnet:?xt=urn:btih:C77AE545D03E6757A1E6EC417945216D42CEA1C4
 magnet:?xt=urn:btih:9C27906FDCCE5B33604343FF94350B9843A5CD0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,29 +686,7 @@ magnet:?xt=urn:btih:9C27906FDCCE5B33604343FF94350B9843A5CD0F
 magnet:?xt=urn:btih:98B5DC069C7B13C2248A51066B1ADB35B9ED9E9E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944585   (440239) от 07.10.2015
-
-Яков Перельман | Чудо нашего века (1925) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440239.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге Я.И.Перельман рассказывает о нехитрых приемах, с помощью которых обманывают публику «отгадыватели мыслей» и прочие «феномены».Жанр: Образовательная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D8BFAA909E178B27E847F7732FA145B4233971E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

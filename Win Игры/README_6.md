@@ -19,6 +19,8 @@ Firefighting Simulator: Ignite (2025) [Ru/Multi] (1.0003.28253.87380/dlc) Repack
 magnet:?xt=urn:btih:B162EBF46B52B33ABB8149BE44407AE5D59CDA7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Betrayer рассказывает историю героя, оказавшег�
 ```bash
 magnet:?xt=urn:btih:26AFEEC32C7C8E75C219CD3C5E7359369CB6FDAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Mortal Sin - хаотичная и кровавая игра в жанре rogue
 magnet:?xt=urn:btih:FD6A60A4CA1994984CCCB135F25BB13D01F63E77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Kingdom Come: Deliverance II - захватывающий сюжетный ро�
 ```bash
 magnet:?xt=urn:btih:AFBB22740A340FE9AE8635F463D520F2AF467D96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Wingspan - стратегическая карточная игра про пт�
 magnet:?xt=urn:btih:6B7F2B7B9CCB5695A471D2BD648BF49D4D58CA14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Metal Gear Solid Delta: Snake Eater (2025) [Ru/Multi] (1.1.3 Build 19869727/dlc)
 ```bash
 magnet:?xt=urn:btih:014670F5E04A215BF045E7AF55E02B9074141DDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ StarVaders (2025) [Ru/Multi] (1.1.1) License GOG
 magnet:?xt=urn:btih:05BFD2D9ADBBBB6E50D83D83D9C8DA9747973909
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Mystery Trackers 21: The Shrouded Village / Охотники за тайнами
 ```bash
 magnet:?xt=urn:btih:8E31A8F446B845536C9B2F212C4A2C981336845B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Knights of the Crusades (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:6DC83D59F8840AB0A44C340339112561600289AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Lost Skies (2025) [Ru/Multi] (1.0.79-50871/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:1995395CA736AF599DC9D44071F5A270FA99D224
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ CULTIC (2022) [En] (Build 20024050/dlc) Repack Let'sРlay [Complete Edition]
 magnet:?xt=urn:btih:E6C4274E304A30215A7C38C7D21C7E6A946F721B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Dying Light: The Beast (2025) [Ru/En] (1.2.0/dlc) Repack Decepticon [Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:69A2B769C277E9BC3DA9620B07AC7E45A8AC63C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Medieval Dynasty (2021) [Ru/Multi] (2.4.1.1/dlc) Repack Let'sРlay [Ultimate Edi
 magnet:?xt=urn:btih:0D17A19B3E4248630C23B2BCE5758F92D0AA89A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Ravenswatch - хардкорное приключение, в котором п�
 ```bash
 magnet:?xt=urn:btih:A3E36CCE6918D65544C6F64BE30AEEF67132176A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ House Builder (2021) [Ru/Multi] (Build 15-09-2025/dlc) Repack FitGirl [Pack and 
 magnet:?xt=urn:btih:95D2CF6654D0BC446E3663F22701B1C950369CD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Dying Light: The Beast (2025) [Ru/Multi] (1.2.0/dlc) Repack seleZen [Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:68274B244807BF8C76402717191D87A722DB9386
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Firefighting Simulator Ignite (2025) [Ru/Multi] (1.0005.28457.87919/dlc) Repack 
 magnet:?xt=urn:btih:9ACABC378E91049B41E4AF8D0FF37DC59F50869B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Lost Skies (2025) [Ru/Multi] (1.0.79) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:3DDB9D63E58CABAAD3B542CE764700BBD57482D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Parkitect (2018) [Ru/Multi] (1.11f3/dlc) License GOG
 magnet:?xt=urn:btih:89BB04ED2E84AF9132CC67A58F7A9ECF7DF29D5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Forever Skies (2023) [Ru/Multi] (1.0.3 Build #41195/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:6486C20D46E35E54FBBBDAC31F4354AEBA1004F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ WARNO (2024) [Ru/Multi] (166262/dlc) License GOG
 magnet:?xt=urn:btih:55F38BEF20E5D2B3600A03E225B4A713FCCC6049
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Lost Soul Aside™ (2025) [Ru/Multi] (1.008/dlc) Repack Let'sРlay [Deluxe Editi
 ```bash
 magnet:?xt=urn:btih:778671C531D28CE311BDC39082CA997767F41240
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Darkest Dungeon 2 - сиквел готической ролевой игры, �
 magnet:?xt=urn:btih:E0AB5A37E8B3E9A31C1F8F8FAB8A5EE923ED1BDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Operation: Polygon Storm - стремительная военная игра, �
 ```bash
 magnet:?xt=urn:btih:5FC0032E098AAC079B44B2A2EBBC443366C337A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Dying Light: The Beast (2025) [Ru/Multi] (1.2.0/dlc) Repack FitGirl [Deluxe Edit
 magnet:?xt=urn:btih:470AC366684BFE14CDC51D0F0DFBDAAB5A85730A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ El Paso, Elsewhere - это шутер от третьего лица в жан�
 ```bash
 magnet:?xt=urn:btih:BFC7B616D0FEC10B4825A8C9062A66FF10280254
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

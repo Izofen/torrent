@@ -1,27 +1,3 @@
-###  Публикация: 1167275   (419085) от 19.09.2017
-
-Transformers: Fall of Cybertron / Трансформеры: Падение Кибертрона (2012) [Ru/Multi] (1.0/dlc) License PLAZA
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419085.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сражение за планету Кибертрон вступает в решающую фазу. Жестокие Десептиконы и противостоящие им Автоботы готовятся к последнему удару, который должен поставить финальную точку в затянувшемся конфликте.Тип издания: LicenseРазработчик: High Moon Studios, Mercenary TechnologyЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B83891ED54B5D230D7CAA56945E7F3DF27A69DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167144   (419104) от 19.09.2017
 
 Myths Of The World 12: Fire Of Olympus / Мифы народов мира 12: Огонь Олимпа (2017) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -42,6 +18,8 @@ Myths Of The World 12: Fire Of Olympus / Мифы народов мира 12: О
 ```bash
 magnet:?xt=urn:btih:AF857EC43F8AA9A32B338824E3833FD5926B622B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Jurassic World Evolution (2018) [Ru/En] (1.4.3.37142/dlc) Repack R.G. Механ
 magnet:?xt=urn:btih:A6A18E4AAAB518224EBBD9B9E2F84E478638FEE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ HYPERGUN (2018) [Ru/Multi] (1.1.0.6) License GOG
 ```bash
 magnet:?xt=urn:btih:D3EC4DDE7D378F2D9DDE0A88F0E0B902CF30D49B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Dungeons 2: A Game of Winter (2015) [En] (1.5.1.392/dlc) License CODEX
 magnet:?xt=urn:btih:2B929B60238A27A2EA8EF48BE5735944E1F51739
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Nevertales 4: Legends / Несказки 4: Легенда (2015) [Ru] Unofficia
 ```bash
 magnet:?xt=urn:btih:A6008340644F05BC9E1A860C1BA4271A22221C8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Living Legends 7: Fallen Sky / Живые легенды 7: Падшие неб�
 magnet:?xt=urn:btih:35B8A76A8246CEF6DF5921F494327B5F52D298FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ The Settlers®: Rise of an Empire (2008) [Multi] (1.71.4289/dlc) License GOG [Go
 ```bash
 magnet:?xt=urn:btih:07F7FD74C4BF4D80DA305FE403FED6DAABBCCE02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Trollhunters: Defenders of Arcadia / Охотники на троллей: За�
 magnet:?xt=urn:btih:E83CC96F109AC995F0069D8FA6D7AEBB64741FE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ Panzer Dragoon: Remake (2020) [Ru/Multi] (0.8.1) License GOG
 ```bash
 magnet:?xt=urn:btih:92515A532D25C4212AED3C80AD9EFD1D82ABAEDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ The Vanishing of Ethan Carter (2014) [Multi] (1.04) License GOG [Redux]
 magnet:?xt=urn:btih:8B8BBBBB4BF5A23806EBEB1980C01D29B7813349
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ RAD — это трехмерный боевик с элементами rogueli
 ```bash
 magnet:?xt=urn:btih:37580E6C4AAC36F9A0AD86B4383727117911EFBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ Grim Tales 17: Guest From The Future / Страшные сказки 17: Гос�
 magnet:?xt=urn:btih:E2F2BD93F77B8C66919BA5ADE718F09F87E07DF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ Breath of Darkness - Dollhaven Mystery (2015) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:F98B31AA3495A80E90507697069F4EA49428741D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ Robot Squad Simulator 2017 - это аркадный экшен с элемен�
 magnet:?xt=urn:btih:B8B8346DEC7A76B19D24102C13EA3622EADAF1EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ Midnight Fight Express (2022) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:2FB8C4D2D913CE15BDAD896C2BBA41A13A30B994
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +411,8 @@ Tryst - это стратегия в реальном времени, дейст
 magnet:?xt=urn:btih:EF3E1367E3B2937A0BBACB68DF95A3D2AD94D2EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +439,8 @@ F1 2012 — это новая часть всемирно известной с�
 magnet:?xt=urn:btih:F396980DEF84E7CA46D63F2CABA3F1129FA6184B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +464,8 @@ Diluvion — трехмерная игра о странствиях в морс
 ```bash
 magnet:?xt=urn:btih:C3B5946829E3D7299C8AAB4D8814BA9C52582F12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +491,8 @@ Tower of Time — удивительная игра со множеством п
 magnet:?xt=urn:btih:90ACF622A10E41B4122876499D321AA426D33D02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +516,8 @@ Whispered Secrets: The Story of Tideville Collector's Edition [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:82E5AB8913742CFAFEFC96AD18051209B66243A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +543,8 @@ WWE 2K Battlegrounds — новая ошеломительная аркада, �
 magnet:?xt=urn:btih:D016403F90F20A8C096EA72ADF85D1C7E4C2042F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +568,8 @@ CastleStorm II продолжает tower defense игру CastleStorm, пред
 ```bash
 magnet:?xt=urn:btih:AFEBAF352073F69733B9FFB1A61086C568A094DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +595,8 @@ BPM: Bullets Per Minute (2020) [En] (1.0) Repack xatab
 magnet:?xt=urn:btih:CCCFB060122139A4F1C96245F5EA8A6F3AE9D507
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +621,8 @@ Dark Tales 18: Edgar Allan Poe's The Devil in the Belfry / Тёмные исто
 magnet:?xt=urn:btih:8BB317B17252802729013661D785DFC6C7CF9F76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +646,34 @@ Wolcen: Lords of Mayhem, ролевая игра с элементами экш�
 ```bash
 magnet:?xt=urn:btih:C38D143445062CEF4043D0CF446A4DFB10015430
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021785   (422817) от 21.10.2016
+
+The Descendant (2016) [En] (3.2/dlc) Repack Other s [Episode 1-4]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_422817.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Descendant — это приключенческая игра в сеттинге техногенного апокалипсиса, выполненная в стилистике мультфильма. В результате полного криогенного апокалипсиса, человечеству пришлось уйти под землю, и там начинать выстраивать новую жизнь.Тип издания: RepackРазработчик: Gaming Corps ABЖанр: Adventure (Space), 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C5EF584112D43A62C13A0652CBF284D838CB0E6
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

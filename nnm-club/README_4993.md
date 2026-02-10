@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:7CBD0D708D00DEA7C49EFE8A1C5A5C2AEF883D09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:7CBD0D708D00DEA7C49EFE8A1C5A5C2AEF883D09
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:7CBD0D708D00DEA7C49EFE8A1C5A5C2AEF883D09
 ```bash
 magnet:?xt=urn:btih:176A4676C1A2673F2A7F2D9BAA4CD44BC5E84E4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Jeff McMillan - Howlin' At The Moon (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:336C240F4515B3580581C4F2B0BAAC86A4576F15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:336C240F4515B3580581C4F2B0BAAC86A4576F15
 magnet:?xt=urn:btih:556DF9D32E3552BAA0F837D9DD6FBC155C1CF4D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:556DF9D32E3552BAA0F837D9DD6FBC155C1CF4D4
 magnet:?xt=urn:btih:65B188C05176D52C016B71EFEFF79C9D5043418D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Shultais Education | Проектирование баз данных (2018) PCR
 ```bash
 magnet:?xt=urn:btih:34E6F3B90D69E3BD434B847A6FA01F425B871594
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:34E6F3B90D69E3BD434B847A6FA01F425B871594
 magnet:?xt=urn:btih:D6D9C38A76686E3205BF5585A1D7E4939E4519F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:D6D9C38A76686E3205BF5585A1D7E4939E4519F8
 ```bash
 magnet:?xt=urn:btih:7835031D16C4DE32249DAC9A678EF48DF0CC43C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:7835031D16C4DE32249DAC9A678EF48DF0CC43C5
 magnet:?xt=urn:btih:3C6181AD1E53751F4D1EF36407D9DA4FFC91C67E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ Learn Squared, Maxx Burman | Intro to Matte Painting (2017) WEB-DLRip [RU, EN]
 ```bash
 magnet:?xt=urn:btih:3BE7174A79017063713835EF31C52CF81AEBEDE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ VA - Disco Christmas 2017 (2016) [MP3|320 Kbps] <Funky, Club House>
 magnet:?xt=urn:btih:15F065ABB77472CD63CBD6A7F92D135C190B2C37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ Rogue Deal - Escape from Justice (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 magnet:?xt=urn:btih:083C0DC6C22285467670D6E13CCF2F23F378ECF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:083C0DC6C22285467670D6E13CCF2F23F378ECF2
 ```bash
 magnet:?xt=urn:btih:4498826F32109D9AB040E07DDC894A949FF0D132
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +397,8 @@ Houseki no Kuni | Land of the Lustrous | Страна самоцветов [2017
 magnet:?xt=urn:btih:FF5C320214060EBC8E17BB10397122ADD4D3DABE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:FF5C320214060EBC8E17BB10397122ADD4D3DABE
 ```bash
 magnet:?xt=urn:btih:F28E5114C7370CB12C20551EF5894D38133357BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ magnet:?xt=urn:btih:F28E5114C7370CB12C20551EF5894D38133357BD
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ Webbed (2021) [Ru/Multi] (1.04b) License GOG
 magnet:?xt=urn:btih:0234D9722DD513555336A57032EEA531CAD8043B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:0234D9722DD513555336A57032EEA531CAD8043B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:0234D9722DD513555336A57032EEA531CAD8043B
 magnet:?xt=urn:btih:D059D26687092C1B6FB30569A91984B0306FA842
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ E-Trophee Andros — французский национальный чемпи�
 ```bash
 magnet:?xt=urn:btih:79A64640E2C5D763AF10B31EE670409A19007997
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +584,8 @@ VA - Underworld - Best275z (1988 - 2016) [MP3|320 Kbps] <Electronic, Progressive
 magnet:?xt=urn:btih:9F24BB29A2247B34856C6FAA22B42689C63FCCCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ magnet:?xt=urn:btih:9F24BB29A2247B34856C6FAA22B42689C63FCCCA
 magnet:?xt=urn:btih:188DA94B4A7DCACB9AA1A443BE7FCA65ACCD83AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ magnet:?xt=urn:btih:188DA94B4A7DCACB9AA1A443BE7FCA65ACCD83AB
 magnet:?xt=urn:btih:E97DD4DE159877F7C9D905416367A94FB27FD1DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:E97DD4DE159877F7C9D905416367A94FB27FD1DE
 ```bash
 magnet:?xt=urn:btih:5CBACB4A54AF40D4521E09004D09B256D0E2A26B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +691,8 @@ Pat Martino - Footprints (1972) 2003, Savoy Jazz [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:B718F27165998C335EF7BF764F149E0AF23BAC8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

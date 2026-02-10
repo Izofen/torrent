@@ -1,3 +1,29 @@
+###  Публикация: 1478675   (1010160) от 20.06.2021
+
+Своя игра (20.06.2021) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Телекомпания: «НТВ»Жанр: Интеллектуальная играСубтитры: РусскиеПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3161CE1B13D946E86DCC39D876E7E3DBF2CF49F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1478645   (1010164) от 20.06.2021
 
 Сто к одному (20.06.2021) WEBRip [H.264/720p-LQ]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:D5044E3B6FAE1FB29C0E370C3075328D9C4F815A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:D5044E3B6FAE1FB29C0E370C3075328D9C4F815A
 magnet:?xt=urn:btih:240E51DF1D23A2B1BCDCBDEA1EE02576FEA62535
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:240E51DF1D23A2B1BCDCBDEA1EE02576FEA62535
 ```bash
 magnet:?xt=urn:btih:3FB02AC9E9FE9ED661C1EBA979AAD593DEB5078F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:3FB02AC9E9FE9ED661C1EBA979AAD593DEB5078F
 magnet:?xt=urn:btih:C5AC066131B3CDA18A455F4E664D26CA9A61590B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:C5AC066131B3CDA18A455F4E664D26CA9A61590B
 ```bash
 magnet:?xt=urn:btih:022FAC12716AB6C791C13E5D90E7AAEC610D0779
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +181,8 @@ magnet:?xt=urn:btih:022FAC12716AB6C791C13E5D90E7AAEC610D0779
 magnet:?xt=urn:btih:5248D517C213FF0EC8DFA13EE161157B3523C8B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:5248D517C213FF0EC8DFA13EE161157B3523C8B9
 ```bash
 magnet:?xt=urn:btih:269870A138FE11F952118F681A1816D17ADBEF64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +233,8 @@ magnet:?xt=urn:btih:269870A138FE11F952118F681A1816D17ADBEF64
 magnet:?xt=urn:btih:A316BA379932384B742BCEF88B09055FA0A57E9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:A316BA379932384B742BCEF88B09055FA0A57E9F
 ```bash
 magnet:?xt=urn:btih:F01D9EFBAA2516A1AFE2A7B1050EEF997C09F952
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:F01D9EFBAA2516A1AFE2A7B1050EEF997C09F952
 magnet:?xt=urn:btih:5F0C6580B71C94F4BBE798C816CAEEEB4ED333E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:5F0C6580B71C94F4BBE798C816CAEEEB4ED333E5
 magnet:?xt=urn:btih:E9C80C7508B149C8DD6569688471D72E64EE7F01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:E9C80C7508B149C8DD6569688471D72E64EE7F01
 ```bash
 magnet:?xt=urn:btih:A6B831B1FB1C18C8D74F59CA7B6D0BD78328D365
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:A6B831B1FB1C18C8D74F59CA7B6D0BD78328D365
 magnet:?xt=urn:btih:AC682ABD3C2FF6BD0B61100CF00EE3D30B451F40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:AC682ABD3C2FF6BD0B61100CF00EE3D30B451F40
 ```bash
 magnet:?xt=urn:btih:062B40E006CBEC72BE97268269ED8FC07C15C3BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:062B40E006CBEC72BE97268269ED8FC07C15C3BE
 magnet:?xt=urn:btih:1B0014832C5F4584EC17735BA085912DBF264D36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:1B0014832C5F4584EC17735BA085912DBF264D36
 ```bash
 magnet:?xt=urn:btih:51FE5B3FD566630A5F4F249D192977647A14E979
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:51FE5B3FD566630A5F4F249D192977647A14E979
 magnet:?xt=urn:btih:D2C67F5571554C04B4A416704BC8013DE8723F8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:D2C67F5571554C04B4A416704BC8013DE8723F8B
 ```bash
 magnet:?xt=urn:btih:A8349073D1E95034BF91A673FA1D3D8FF3C78526
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:A8349073D1E95034BF91A673FA1D3D8FF3C78526
 magnet:?xt=urn:btih:9F9E37E43216688A9849A0E892ADD2710AEE29B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:9F9E37E43216688A9849A0E892ADD2710AEE29B7
 ```bash
 magnet:?xt=urn:btih:BCB91C76864EBA16093FF2F550E5AD03B25C1DF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:BCB91C76864EBA16093FF2F550E5AD03B25C1DF2
 magnet:?xt=urn:btih:11FD498E2672D2798132DC68BA92F422C01BE86E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:11FD498E2672D2798132DC68BA92F422C01BE86E
 ```bash
 magnet:?xt=urn:btih:AE77256CB184B907FFE26D1566CE503C0E4546D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:AE77256CB184B907FFE26D1566CE503C0E4546D5
 magnet:?xt=urn:btih:C125C15860D58865A69246ECBDF98ADFD3FB4602
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:C125C15860D58865A69246ECBDF98ADFD3FB4602
 ```bash
 magnet:?xt=urn:btih:AF9178DEFE555C5A1077AC4C994982BD8B627808
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,29 +676,7 @@ magnet:?xt=urn:btih:AF9178DEFE555C5A1077AC4C994982BD8B627808
 magnet:?xt=urn:btih:0970AEFBEA656F70804BD009B25D1F26F2B08371
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475873   (1012145) от 08.06.2021
-
-Большое приключение по Новой Зеландии. Крайстчерч / Coast New Zealand. Christchurch (2017) HDTV [H.264/1080p] (сезон 2, эпизод 5)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крайстчерч, третий по величине город Новой Зеландии, можно бесспорно назвать украшением Южного острова. Особый шарм городу придают многочисленные сады и парки.Крайстчерч - это город изящной неоготической архитектуры, грациозный облик которого переполнен английским колоритом и превосходством.Производство: Новая Зеландия, Great Southern Television, BBCЖанр: Документальный, познавательный, путешествияРежиссер: При ВисвалингамПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3E4B8BF8895C45ACA787BB38994C175B0F25761
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

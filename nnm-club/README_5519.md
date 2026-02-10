@@ -22,6 +22,8 @@ Electric Light Orchestra - Secret Messages (1983) Limited Edition, Reissue, Rema
 magnet:?xt=urn:btih:A4E0585E860AE3D88C77A98EAF236B77C9BBFFC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Sky Swap AI позволяет легко заменить или улучшит
 ```bash
 magnet:?xt=urn:btih:9BB1660EC5EFEB8F3BB2F29F7B8BBB71FB48738D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:9BB1660EC5EFEB8F3BB2F29F7B8BBB71FB48738D
 magnet:?xt=urn:btih:8616E7D138366FD7E3B2C71DB5E09D5541B2F3C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ The Christmas Spirit 3: Grimm Tales (2019) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:E9DB0D214B8FFD24E4426A0B80120E0531491CE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:E9DB0D214B8FFD24E4426A0B80120E0531491CE4
 magnet:?xt=urn:btih:E20459DAFA4A8F1FA100E9366A47EAA2EFD06636
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ This Is the President (2021) [Ru/En] (1.0.0.7816929) License CODEX
 magnet:?xt=urn:btih:A26382BF49225A8D6C8809F8E05A443F81B275C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Inpaint - позволяет умно удалять нежелательные 
 ```bash
 magnet:?xt=urn:btih:338AD96D90B68847A0BAA521F9D78D1B02A9988D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ VA - Vocal Trance 2023 (2022) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:24DD3AAE3E2ABD2D3B02BF65B29CFAFB280EAFFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:24DD3AAE3E2ABD2D3B02BF65B29CFAFB280EAFFE
 ```bash
 magnet:?xt=urn:btih:65E1E000A1DBEB221669914F166E3BDD6E43D867
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:65E1E000A1DBEB221669914F166E3BDD6E43D867
 magnet:?xt=urn:btih:CE5FE96A5B58EAA851189807ABD06C9371BD1776
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:CE5FE96A5B58EAA851189807ABD06C9371BD1776
 ```bash
 magnet:?xt=urn:btih:18CB02A7DC30D1428C0F855DC36B76F8AAF6D366
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:18CB02A7DC30D1428C0F855DC36B76F8AAF6D366
 magnet:?xt=urn:btih:839A2C49994525C9B5AB8618F4E3BC9E1C2F3290
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ RAR - это консольное приложение, позволяющее �
 ```bash
 magnet:?xt=urn:btih:9F1D515A131741D67418CA215AE4EFFA81E6DDAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ VA - The True Romance (2022) [MP3|320 Kbps] <Pop, Lyric, Romantic>
 magnet:?xt=urn:btih:DF3E1A09F563B8D9BA5B16945E7658C08381BE70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:DF3E1A09F563B8D9BA5B16945E7658C08381BE70
 ```bash
 magnet:?xt=urn:btih:62F405EBD4D521388465411DE632C312F58E4C23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ VA - Planet Dance Music: Euromix Energia Total (2019) [MP3|320 Kbps] <Dance, Pop
 magnet:?xt=urn:btih:A350659179DAC6CFA3F8BA9A25BDEE9DCCF5DAFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ VA - The Message Of The Dark Angel (2023) [MP3|320 Kbps] <Death, Black, Heavy Me
 magnet:?xt=urn:btih:41F251A0EA60E2FC158886B3BE2448AFDBB4ECC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ magnet:?xt=urn:btih:41F251A0EA60E2FC158886B3BE2448AFDBB4ECC7
 ```bash
 magnet:?xt=urn:btih:84157810454BE214BBD3A613879BE00793E5AD77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +508,8 @@ The Apocalypse Blues Revival - The Apocalypse Blues Revival (2020) [MP3|320 Kbps
 magnet:?xt=urn:btih:A8F0A31E040B1E8507685A7A3F73F62F293D67D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ magnet:?xt=urn:btih:A8F0A31E040B1E8507685A7A3F73F62F293D67D8
 magnet:?xt=urn:btih:D197B087FA6714FB9C630D42036791512F44D8DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ magnet:?xt=urn:btih:D197B087FA6714FB9C630D42036791512F44D8DB
 ```bash
 magnet:?xt=urn:btih:D1DE84F6EAB3438D8A1E78A8F0D4800D9A499D9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +589,8 @@ VA - 50 Hits Winter 2020 (2019) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:2C0B31A72F0A78AB7B911637994B6382D9E2E5A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ SophiApp — это графический наследник Sophia Script for 
 ```bash
 magnet:?xt=urn:btih:C75FD0E6036C32C2032BB0280DFCFE0BE28846CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +644,8 @@ ZZ Top — культовая американская блюз-рок-груп�
 magnet:?xt=urn:btih:840F1C5C9B785A41B4DDB0A71C45C16FDAC70195
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:840F1C5C9B785A41B4DDB0A71C45C16FDAC70195
 magnet:?xt=urn:btih:2DDCE53E8FD4533214B47DFE4F195FF5853D3705
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ magnet:?xt=urn:btih:2DDCE53E8FD4533214B47DFE4F195FF5853D3705
 ```bash
 magnet:?xt=urn:btih:C33B3939D7327E29CEDA7597CBF69C0365D68E43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:BB5C868B19AF031E1DF84120DD943EDC21223606
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Proprofiling, Алексей Филатов | Практикум по профа
 magnet:?xt=urn:btih:8E941A7F0247DA55F936E49C7454A2171FF90E8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:8E941A7F0247DA55F936E49C7454A2171FF90E8D
 ```bash
 magnet:?xt=urn:btih:2EE683B1BFC8DFE6643B020A439F16DF4306D51B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:2EE683B1BFC8DFE6643B020A439F16DF4306D51B
 magnet:?xt=urn:btih:36BCF3EC74576D67BFB4BA80CAAB92640E5DBC83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:36BCF3EC74576D67BFB4BA80CAAB92640E5DBC83
 ```bash
 magnet:?xt=urn:btih:3BD044BE835818427D1BBC349A817A6D7BF272D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:3BD044BE835818427D1BBC349A817A6D7BF272D7
 magnet:?xt=urn:btih:D3A7A666D9C7234BE6D96AAC8A96441B0673ABBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ CGCircuit, Andrii Zamorskyi | Ship splash and foam (2023) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:6A88CA4EC1B00252A1872493347D3B3791945ADE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:6A88CA4EC1B00252A1872493347D3B3791945ADE
 magnet:?xt=urn:btih:9F3C8F5C70C1DD3B4331602D23EA46BC91E6666E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Udemy, Navid Abbas Zadeh | Interior design- autodesk 3dsmax and vray- from zero 
 ```bash
 magnet:?xt=urn:btih:2DD27680709408E92861FC3B8F2F46748ABF8F25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:2DD27680709408E92861FC3B8F2F46748ABF8F25
 magnet:?xt=urn:btih:75AECCBDE124ECAE00083CB46F67A7F39E8E77CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:75AECCBDE124ECAE00083CB46F67A7F39E8E77CC
 magnet:?xt=urn:btih:AA8C4FC88190A21F3996C55E809661D4A34DBCD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ Udemy, Marcello Pattarin | 3ds max Workflow Game PBR Complete Course (2025) WEB-
 ```bash
 magnet:?xt=urn:btih:4910D164E90A1DF7492D78F2FFF1AF5872B17ECD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ Udemy, Penny de Byl | Shader Development from Scratch with Cg - Unity 6 Compatib
 magnet:?xt=urn:btih:BECBF8AF37197366BD1DAF8341A9D3C10CDF0BED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ Udemy, David Nixon | Unreal Engine 5 for Games: Physics (2025) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:FAF1BF36EE156B5401D5D554F1C0437CF137F480
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:FAF1BF36EE156B5401D5D554F1C0437CF137F480
 ```bash
 magnet:?xt=urn:btih:C7BABCB01C9E51A0F3F110B384CFD104157C7789
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:C7BABCB01C9E51A0F3F110B384CFD104157C7789
 magnet:?xt=urn:btih:E3AFAE325AE94BDBE59865A9F8B458E41971C0C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ Udemy, Rafael Falconi | Creating Golden Hour Atmosphere to Cityscape in Photosho
 magnet:?xt=urn:btih:1DD444FAB5D6A63AD43B3DDE5F565BD5627FD027
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ Playbook содержит стратегии и шаблоны для распр
 ```bash
 magnet:?xt=urn:btih:5A38F4C09BF72DC1BC52F6EADAD1EA784652823F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:5A38F4C09BF72DC1BC52F6EADAD1EA784652823F
 magnet:?xt=urn:btih:1F0D81657EAD574C75D10DD343ACB087CC91FFB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:1F0D81657EAD574C75D10DD343ACB087CC91FFB4
 magnet:?xt=urn:btih:CB025AA2A0D5461B97B658FAF1EBFD01986A21C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ David Dubnitskiy School - The Secrets of Masterful Erotic Photography - Renault 
 magnet:?xt=urn:btih:F3BB051FC56F52983D80C8FA282A5A93B0CCBDD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ Udemy, Alex Cordebard | The Ultimate Blender 4.3 Low Poly Guide (2025) WEB-DL [E
 ```bash
 magnet:?xt=urn:btih:EDD88F15CA62677472FA308D13D77030E62606AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +615,8 @@ magnet:?xt=urn:btih:EDD88F15CA62677472FA308D13D77030E62606AD
 magnet:?xt=urn:btih:E5FB33094060C383C2A347953F013F96CD47B7F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +641,8 @@ magnet:?xt=urn:btih:E5FB33094060C383C2A347953F013F96CD47B7F6
 magnet:?xt=urn:btih:298B9EB88CCC4A9C7DEA03A056EFF96308518D4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +666,8 @@ magnet:?xt=urn:btih:298B9EB88CCC4A9C7DEA03A056EFF96308518D4E
 ```bash
 magnet:?xt=urn:btih:7E58207C76698C926AFA10678D44C06599ECA4CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -645,6 +695,8 @@ magnet:?xt=urn:btih:7E58207C76698C926AFA10678D44C06599ECA4CC
 ```bash
 magnet:?xt=urn:btih:76A2CE6A8E68DD8A8E5B2636E0FF61B095D82EBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

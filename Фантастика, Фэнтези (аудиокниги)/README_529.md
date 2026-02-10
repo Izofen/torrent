@@ -1,3 +1,29 @@
+###  Публикация: 1471326   (1015151) от 20.05.2021
+
+Маргит Сандему | Люди Льда-5. Смертный грех (2021) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сесилия Мейден, внучка Тенгеля Доброго, попадает в непростую ситуацию, но, благодаря унаследованным от предков чертам — незаурядности натуры, решительности, целеустремленности, умению любить — она преодолевает все превратности судьбы. Действие разворачивается на фоне Тридцатилетней войны католиков с протестантами, в которой участвует король Дании и Норвегии Кристиан (   Читать дальше...   )Жанр: Любовное фэнтези, любовно-фантастические романыПродолжительность: 06:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FC30EBF5611A3F951270BE9C68FC67CEB31A7E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1471160   (1015204) от 19.05.2021
 
 Дмитрий Распопов | Сокрушитель Богов (2021) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:F22B4264D3AC54587D2CDF00B9146E4CC02267CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:F22B4264D3AC54587D2CDF00B9146E4CC02267CD
 ```bash
 magnet:?xt=urn:btih:F2777B47F00D38F2D25681DE44B6435D80480693
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:F2777B47F00D38F2D25681DE44B6435D80480693
 magnet:?xt=urn:btih:8E60B7E96B7318DE291523820760E5030068469F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:8E60B7E96B7318DE291523820760E5030068469F
 magnet:?xt=urn:btih:751783B951CDE14B1FAFC7579910E1AE45155B63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:751783B951CDE14B1FAFC7579910E1AE45155B63
 ```bash
 magnet:?xt=urn:btih:5EAF3C837EF43E56ED675BBA39C45B514C053BBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:5EAF3C837EF43E56ED675BBA39C45B514C053BBA
 magnet:?xt=urn:btih:AFC00DBFCEA43B9E5374E87AC58E8BA3158A50F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:AFC00DBFCEA43B9E5374E87AC58E8BA3158A50F6
 magnet:?xt=urn:btih:9043EAAAE929A9F8036B513D8A1B3AF4DDD2BD0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:9043EAAAE929A9F8036B513D8A1B3AF4DDD2BD0F
 ```bash
 magnet:?xt=urn:btih:03C52F0C58BBB8D67021677197A1EA12A5E6C15D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:03C52F0C58BBB8D67021677197A1EA12A5E6C15D
 magnet:?xt=urn:btih:35A87AE48D9B40B65A467724AD495CC0B69D465D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:35A87AE48D9B40B65A467724AD495CC0B69D465D
 ```bash
 magnet:?xt=urn:btih:6D5D9E5E14BCF37769D7F7FFFE8FA38105101EED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:6D5D9E5E14BCF37769D7F7FFFE8FA38105101EED
 ```bash
 magnet:?xt=urn:btih:AD3FDE1A48739A7F5603500F02EB08675DB29057
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:AD3FDE1A48739A7F5603500F02EB08675DB29057
 magnet:?xt=urn:btih:9593F95E79DDCE47BA85DC78C9623847D48D9792
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:9593F95E79DDCE47BA85DC78C9623847D48D9792
 ```bash
 magnet:?xt=urn:btih:A5CBBC36C995007FD8F3814D47E1A630F143D9CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:A5CBBC36C995007FD8F3814D47E1A630F143D9CE
 magnet:?xt=urn:btih:EB11F5A37DA59EE5C4221A0058D95D6E63901371
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:EB11F5A37DA59EE5C4221A0058D95D6E63901371
 ```bash
 magnet:?xt=urn:btih:954FD112208F80E8B458339B34A72C019E2DE9D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +445,8 @@ magnet:?xt=urn:btih:954FD112208F80E8B458339B34A72C019E2DE9D5
 magnet:?xt=urn:btih:D86825148B23B523CAD2CE82F1118559C780E982
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:D86825148B23B523CAD2CE82F1118559C780E982
 ```bash
 magnet:?xt=urn:btih:DFD98838EA7EF1C38C618438DE9C530F955B4918
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:DFD98838EA7EF1C38C618438DE9C530F955B4918
 magnet:?xt=urn:btih:6ED77A17B44D4EE8A5D85A06C789F01B7215F7F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:6ED77A17B44D4EE8A5D85A06C789F01B7215F7F0
 ```bash
 magnet:?xt=urn:btih:9F031A892CF60E5498390386C20F238E7133772B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +552,8 @@ magnet:?xt=urn:btih:9F031A892CF60E5498390386C20F238E7133772B
 magnet:?xt=urn:btih:FD15E1C70A66DFA3632AD00BE57DBA963E24C904
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +577,8 @@ magnet:?xt=urn:btih:FD15E1C70A66DFA3632AD00BE57DBA963E24C904
 ```bash
 magnet:?xt=urn:btih:CB3D79900BA0CBF20EBB30FFDF99FE53799CFFE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:CB3D79900BA0CBF20EBB30FFDF99FE53799CFFE8
 magnet:?xt=urn:btih:110F12EA2B781EBD4416F022B38BB80F1C3ACF1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:110F12EA2B781EBD4416F022B38BB80F1C3ACF1D
 ```bash
 magnet:?xt=urn:btih:10EE82E45090AA9A32DAE85A038B6A47DF092450
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +656,8 @@ magnet:?xt=urn:btih:10EE82E45090AA9A32DAE85A038B6A47DF092450
 magnet:?xt=urn:btih:26D0A4DCBBAA2A34F74EC60A4645E05654EC11E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,29 +682,7 @@ magnet:?xt=urn:btih:26D0A4DCBBAA2A34F74EC60A4645E05654EC11E6
 magnet:?xt=urn:btih:9DA9653B2360B950D07186269C9BA8A1182320B2
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470200   (1015937) от 15.05.2021
-
-Терри Пратчетт | Плоский мир: Опочтарение (2021) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015937.jpg" />
-</div>
-
-
-###  Подробнее
-
-В жизни каждого человека есть нелегкие решения. Мокрист фон Губвиг, мошенник экстраординари, мастер художественной подделки и настоящий специалист по фальшивкам тоже стоит перед тяжелым выбором: быть повешеным или поставить Почтовую Службу Анк-Морпорка с ног на голову. Неуверенно приняв тяжелое, неоднозначное решение, он теперь должен следить за тем, чтобы, несмотря (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 13:59:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:689ACC15A2C9EF69F4B1FBADE65F4A5FCCCAF936
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1472917   (1013959) от 27.05.2021
+
+Андрей Чвалюк | Хроники забытых колоний. Преодолеть табу. Книга 1 (2021) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сотни лет люди жили на этой планете родовыми общинами и вели натуральное хозяйство. Каждое племя сообща выращивало примитивные сельскохозяйственные культуры, выпасало мелкий рогатый скот и добывало полезные ископаемые для своих нужд, которые были весьма скромными, так как в долинах царил поздний железный век. Людям были неведомы такие понятия, как религия, война (   Читать дальше...   )Жанр: Боевая фантастика, космическая фантастика, научная фантастикаПродолжительность: 03:17:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCF5D71010B100343191D609E81DCC472CF1EA0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472967   (1013962) от 27.05.2021
 
 Владимир Шорохов | Проект «Жизнь за один день» (2021) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:5DB216926697FBA5BEF1C90837A68444D51B6F7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:5DB216926697FBA5BEF1C90837A68444D51B6F7C
 magnet:?xt=urn:btih:E8BFE43465CFBEB81823ABC66785A0CD8FABE874
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:E8BFE43465CFBEB81823ABC66785A0CD8FABE874
 ```bash
 magnet:?xt=urn:btih:66B6B51B807907663B5DCF25E280A1D9DA5180EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:66B6B51B807907663B5DCF25E280A1D9DA5180EB
 magnet:?xt=urn:btih:54CF9E45DFE2CD9726D272E2F6F194AD7F9381BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:54CF9E45DFE2CD9726D272E2F6F194AD7F9381BC
 ```bash
 magnet:?xt=urn:btih:44DF1CA06A67B19ECE6CADED834255A572B45194
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:44DF1CA06A67B19ECE6CADED834255A572B45194
 magnet:?xt=urn:btih:EDB9B5FB9D11D16CD0A9CEE2BE553DBA0CDB61DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:EDB9B5FB9D11D16CD0A9CEE2BE553DBA0CDB61DD
 ```bash
 magnet:?xt=urn:btih:2A54222E9AA1D917D8E310FCF649BB91B98267D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:2A54222E9AA1D917D8E310FCF649BB91B98267D3
 magnet:?xt=urn:btih:07E379E14CA0ECE69664F97CB8F34189D67FB717
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:07E379E14CA0ECE69664F97CB8F34189D67FB717
 ```bash
 magnet:?xt=urn:btih:356C6115930CB9B3B11688DE1192AD32EA06F627
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:356C6115930CB9B3B11688DE1192AD32EA06F627
 magnet:?xt=urn:btih:68A5AF8197C5C7230A142CE39B8E92184205E2C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:68A5AF8197C5C7230A142CE39B8E92184205E2C6
 ```bash
 magnet:?xt=urn:btih:C154CC9361BD4A0EBBB683389246B8B188C9077C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:C154CC9361BD4A0EBBB683389246B8B188C9077C
 magnet:?xt=urn:btih:A868885729D6E1AAF2EA00C5359470058D34DDB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:A868885729D6E1AAF2EA00C5359470058D34DDB4
 ```bash
 magnet:?xt=urn:btih:905D85D81CA2FE3B42E994C64DDAEB7099DEB05F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +392,8 @@ magnet:?xt=urn:btih:905D85D81CA2FE3B42E994C64DDAEB7099DEB05F
 magnet:?xt=urn:btih:A5CACEB027CB4BE76C30B74D33A9F64F0B51114F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +419,8 @@ magnet:?xt=urn:btih:A5CACEB027CB4BE76C30B74D33A9F64F0B51114F
 magnet:?xt=urn:btih:398C608C900F08CDDBFB98835E6453215784D150
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:398C608C900F08CDDBFB98835E6453215784D150
 ```bash
 magnet:?xt=urn:btih:5FE6A0B00931F798649332DC38E407A0AA64A6EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:5FE6A0B00931F798649332DC38E407A0AA64A6EB
 magnet:?xt=urn:btih:BF94D488504D28A3DF94F1E8A781032467B27163
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:BF94D488504D28A3DF94F1E8A781032467B27163
 ```bash
 magnet:?xt=urn:btih:E42E6E7697E9AA73547BD4139A078E906A7C6BAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:E42E6E7697E9AA73547BD4139A078E906A7C6BAB
 magnet:?xt=urn:btih:5B18F540131B563B2B92B337B8E88025B059556D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:5B18F540131B563B2B92B337B8E88025B059556D
 ```bash
 magnet:?xt=urn:btih:F5F5D25C1D55E0CA755BBF24EC8DB99F071FB0E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:F5F5D25C1D55E0CA755BBF24EC8DB99F071FB0E7
 magnet:?xt=urn:btih:2619794FD1AB398DCF160FC963F04C233CEA1E29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +600,8 @@ magnet:?xt=urn:btih:2619794FD1AB398DCF160FC963F04C233CEA1E29
 ```bash
 magnet:?xt=urn:btih:025BBC49D4FD405D55A6B6246FECB681D659908C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +627,8 @@ magnet:?xt=urn:btih:025BBC49D4FD405D55A6B6246FECB681D659908C
 magnet:?xt=urn:btih:D0AA2262E492E1FB9B75B051F813D7E5E51DC45D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:D0AA2262E492E1FB9B75B051F813D7E5E51DC45D
 ```bash
 magnet:?xt=urn:btih:8ADF1E1BB1075D93F4E3937B90AB0B45B83B26D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,29 +680,7 @@ magnet:?xt=urn:btih:8ADF1E1BB1075D93F4E3937B90AB0B45B83B26D6
 magnet:?xt=urn:btih:A229ACAC8C10281A5B650F4ABF19B8CF56D8048C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471326   (1015151) от 20.05.2021
-
-Маргит Сандему | Люди Льда-5. Смертный грех (2021) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сесилия Мейден, внучка Тенгеля Доброго, попадает в непростую ситуацию, но, благодаря унаследованным от предков чертам — незаурядности натуры, решительности, целеустремленности, умению любить — она преодолевает все превратности судьбы. Действие разворачивается на фоне Тридцатилетней войны католиков с протестантами, в которой участвует король Дании и Норвегии Кристиан (   Читать дальше...   )Жанр: Любовное фэнтези, любовно-фантастические романыПродолжительность: 06:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FC30EBF5611A3F951270BE9C68FC67CEB31A7E2
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

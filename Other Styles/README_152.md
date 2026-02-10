@@ -22,6 +22,8 @@ Ken Yang - Meet the Sky (2001) [FLAC|Lossless|tracks] <International, New Age, E
 magnet:?xt=urn:btih:4C094B6B60F2D1F14D2C11022DB21B5F19167B1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ VA - Terminator 2 from Super Bass (2007) [FLAC|Lossless]<Instrumental, Demonstra
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -88,6 +92,8 @@ VA - Cafe De Paris 1930-41 - 24 Accordeon Classics (1993) [FLAC|Lossless]<Jazz, 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -111,6 +117,8 @@ VA - Cafe De Paris 1930-41 - 24 Accordeon Classics (1993) [FLAC|Lossless]<Jazz, 
 ```bash
 magnet:?xt=urn:btih:BDF2E57A419A7A5192E781759E435527AD67CB0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -138,6 +146,8 @@ David Arkenstone - The Delicate Balance (2020) EP [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:E4A1F07185DD074E8DD51B5987A9D1283A55D219
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +182,8 @@ Antonio Chainho - A Guitarra e outras mulheres (1998) [FLAC|Lossless]<Instrument
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +210,8 @@ The City of Prague Philharmonic Orchestra - The Game of Thrones Symphony (2017) 
 ```bash
 magnet:?xt=urn:btih:7C5B5163DC7975BDCA967B4DA751B2C3F44F1862
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -232,6 +246,8 @@ Cristina Branco - Fado / Tango (2011) [FLAC|Lossless]<Fado, Tango, Vocal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +275,8 @@ The City of Prague Philharmonic Orchestra - The Game of Thrones Symphony (2017) 
 magnet:?xt=urn:btih:94A8C2670D20363F347BAAE3CA0C40BE4C39AB97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +301,8 @@ Atlas - Прогревочный и размагничивающий диск (2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +326,8 @@ VA - Relaxation (9 CD) (2006) [APE|Lossless]<New Age / Relaxation>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +362,8 @@ CD1:
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +391,8 @@ CD1:
 magnet:?xt=urn:btih:DBB3C06F13106BA441B27A9DDC2BF58FDD299D43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +417,8 @@ Echoes Of Nature (Звуки природы) - The Natural Sounds Of The Wildern
 ```bash
 magnet:?xt=urn:btih:F07BD3DB8557879A283A233B5FC5DE43B75E2C37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +452,8 @@ VA - Ballroom Miracles (2010) [MP3|320 kbps]<Ballroom Dance, Instrumental, Easy 
 magnet:?xt=urn:btih:EBDD3B794C33018D975EA86D2DD2C28F6A301AFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +480,8 @@ magnet:?xt=urn:btih:EBDD3B794C33018D975EA86D2DD2C28F6A301AFC
 ```bash
 magnet:?xt=urn:btih:D7B654B730D7CA4C8F943253B71D78BA7DE6F5ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +516,8 @@ Henry Jackman - Первый мститель: Другая война / Captain
 magnet:?xt=urn:btih:8318A53DCFABBCD38CD2B067BBF972C674F525C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +551,8 @@ Armik - Flames Of Love (2013) [MP3|320 кб/с]<Instrumental, Flamenco>
 magnet:?xt=urn:btih:ED19DCD8BCCB2DC08243294AF3F48F29AF65B1AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +580,8 @@ Steve Wingfield & Dr. Lee R. Bartel - The Science of Sleep (2002) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:4C5699B7A3120DBD3DC2ACD71AC85DA57DA0E2F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +616,8 @@ Gloriana - A Thousand Miles Left Behind (2012) [FLAC|Lossless]<Country>
 magnet:?xt=urn:btih:CDA25A5042F74C5458DEE888ACE1F1B606492A8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +644,8 @@ Tristeria - Epoka (2011) 2017 Tristeria [FLAC|Lossless|WEB-DL] <New Age, Enigmat
 ```bash
 magnet:?xt=urn:btih:897CA1392BA1DDFFB1FA62BBCE94260106425DA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +680,8 @@ VA - 1000% Best Soundtrack (2010) [MP3|128 kbps]<Soundtrack>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +708,8 @@ Unknown Artist - A Night In A Greek Taverna (Unknown) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:69699C288E57B1F084B08C7F3C00ED771AC1D510
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -698,6 +744,8 @@ WhoMadeWho - Dreams (2014) [FLAC|Lossless]<Indie Rock, Synth-pop, Disco>
 magnet:?xt=urn:btih:644F54B89BE153079EE655DFB1963D8206FD8A87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -731,6 +779,8 @@ magnet:?xt=urn:btih:644F54B89BE153079EE655DFB1963D8206FD8A87
 magnet:?xt=urn:btih:18B25D6035F632A9D5EF18FFB205E4053A2D5E74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -757,6 +807,8 @@ Mairead Nesbitt - Hibernia (2016) [MP3|320 Kbps] <Instrumental,  Celtic,  Folk>
 ```bash
 magnet:?xt=urn:btih:3C0606489F9193C0AE69FC5FB0BA792E12061F99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

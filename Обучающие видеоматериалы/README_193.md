@@ -19,6 +19,8 @@ Udemy | Фундаментальный курс по основам C# .NET (201
 magnet:?xt=urn:btih:01D15163C8108544377B91FBD60326925BA07A55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:01D15163C8108544377B91FBD60326925BA07A55
 ```bash
 magnet:?xt=urn:btih:3A7040818055EAEBEFA570EA4778B02AEE5CCFEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:3A7040818055EAEBEFA570EA4778B02AEE5CCFEA
 ```bash
 magnet:?xt=urn:btih:8A111D172483C9078752C15A9A44DA973E6E44C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:8A111D172483C9078752C15A9A44DA973E6E44C9
 magnet:?xt=urn:btih:3B2EB19CD7C1CAB24B3FB643966AFE3B1E1EB1A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ google | Сборник видеоуроков по Python [2006-2008] [EN] CamR
 ```bash
 magnet:?xt=urn:btih:48993A4D52C861318B8BFD98AC7862752546CD58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:48993A4D52C861318B8BFD98AC7862752546CD58
 magnet:?xt=urn:btih:CC6C0CA80F1AFA5B956DA52E5500E289F9740E4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ Scott Deardorff портретный художник, который приме
 ```bash
 magnet:?xt=urn:btih:7FE4C1B6D988F45BF5EF47EB838D5633E2522F5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:7FE4C1B6D988F45BF5EF47EB838D5633E2522F5F
 magnet:?xt=urn:btih:55447C6F5D74A8D29C9B2D408B7B59C34E96AF15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:55447C6F5D74A8D29C9B2D408B7B59C34E96AF15
 magnet:?xt=urn:btih:0729B003F3276E5497AFDAC1801317634F13A1ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:0729B003F3276E5497AFDAC1801317634F13A1ED
 ```bash
 magnet:?xt=urn:btih:8A3D6D55562233A8C2CE574F1845812F0B183A63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:8A3D6D55562233A8C2CE574F1845812F0B183A63
 magnet:?xt=urn:btih:39C036A4BE83ADA99D5D8449988F976BCF048A35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:39C036A4BE83ADA99D5D8449988F976BCF048A35
 magnet:?xt=urn:btih:8E160EC50D40380ACADB6DD990FBAC6DE60362A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ magnet:?xt=urn:btih:8E160EC50D40380ACADB6DD990FBAC6DE60362A4
 magnet:?xt=urn:btih:9ABB77F2612C0A01FB4C1A8D9772F514C7D16D98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +379,8 @@ magnet:?xt=urn:btih:9ABB77F2612C0A01FB4C1A8D9772F514C7D16D98
 magnet:?xt=urn:btih:CA9F5B898310C227F295B1696813E2E1E61AD00D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ Jillian Michaels | Hot Body, Healthy Mommy (2016) HDTVRip [H.264/720p-LQ] [EN]
 ```bash
 magnet:?xt=urn:btih:880BCE53D67B337CA581F39B8162D796DB2BB273
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ magnet:?xt=urn:btih:880BCE53D67B337CA581F39B8162D796DB2BB273
 magnet:?xt=urn:btih:0C8A363E92202827EE85021FC697D042E5AC8552
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ magnet:?xt=urn:btih:0C8A363E92202827EE85021FC697D042E5AC8552
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +484,8 @@ magnet:?xt=urn:btih:0C8A363E92202827EE85021FC697D042E5AC8552
 magnet:?xt=urn:btih:FB61EE1163EA95C8A99535085BBEA90ABF204ECB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ magnet:?xt=urn:btih:FB61EE1163EA95C8A99535085BBEA90ABF204ECB
 ```bash
 magnet:?xt=urn:btih:723D97097B16623050E01667ACD5CBC11A5E69C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:723D97097B16623050E01667ACD5CBC11A5E69C1
 magnet:?xt=urn:btih:4FA0AED4880FACDE431BEECC8597D8093E7093A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ magnet:?xt=urn:btih:4FA0AED4880FACDE431BEECC8597D8093E7093A7
 ```bash
 magnet:?xt=urn:btih:DA3BBD85532D5F8EEDAAB716BD2A9541C594DBDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +593,8 @@ lectoroom, Елена Базанова | Этюд с гортензией акв
 magnet:?xt=urn:btih:52DB123970B1A341A90BA3671C99B1104EB732EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +619,8 @@ magnet:?xt=urn:btih:52DB123970B1A341A90BA3671C99B1104EB732EA
 ```bash
 magnet:?xt=urn:btih:C4E8BB9C10C81805CCF6E63941B7B6BE28DC086C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +649,8 @@ magnet:?xt=urn:btih:C4E8BB9C10C81805CCF6E63941B7B6BE28DC086C
 magnet:?xt=urn:btih:12A3A7B812092F02ECCDE1203265094FA4C441EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +678,8 @@ magnet:?xt=urn:btih:12A3A7B812092F02ECCDE1203265094FA4C441EC
 magnet:?xt=urn:btih:AF720462E59EF2B9679B00699633045D615A7258
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ magnet:?xt=urn:btih:AF720462E59EF2B9679B00699633045D615A7258
 ```bash
 magnet:?xt=urn:btih:EBA7682F9FB8EEBBFB68C71F731F01BF47E94301
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

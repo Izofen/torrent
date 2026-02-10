@@ -1,3 +1,29 @@
+###  Публикация: 912701   (610401) от 26.06.2015
+
+Касильда Жета, Кристофер Райан | Секс на заре цивилизации (2015) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610401.jpg" />
+</div>
+
+
+###  Подробнее
+
+В традициях лучших исторических и научных трудов эта книга бесцеремонно и аргументированно расправляется с безосновательными допущениями и ошибочными заключениями в вопросах эволюции человеческой сексуальности, предлагая революционное объяснение тому, почему мы сегодня живём и любим именно так, а не иначе.Жанр: Психология, Секс и семейная психологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7FC184850EDF10005B9C8B644166C9E8F94031D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230936   (610516) от 15.06.2018
 
 Родригу Карлуш Феррас | Криштиану Роналду (2018) [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:463B02098F139C5E5EE17B3B0412432EAF4B8951
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:463B02098F139C5E5EE17B3B0412432EAF4B8951
 magnet:?xt=urn:btih:2AD3558B4CB30126D68179796FBD5991913F992E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:2AD3558B4CB30126D68179796FBD5991913F992E
 ```bash
 magnet:?xt=urn:btih:F224703080ED250AE6E56F0FB5A1A527945D0226
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:F224703080ED250AE6E56F0FB5A1A527945D0226
 magnet:?xt=urn:btih:86428F76674728743C87C877C70B8947A2FD95BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:86428F76674728743C87C877C70B8947A2FD95BF
 ```bash
 magnet:?xt=urn:btih:E8840EC750143C00008D37184062F9F6E6EF50E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:E8840EC750143C00008D37184062F9F6E6EF50E2
 magnet:?xt=urn:btih:4186475390BA74E23ACEAA170E68AD9CF529B1F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:4186475390BA74E23ACEAA170E68AD9CF529B1F5
 magnet:?xt=urn:btih:3D5C832B51F76258986F6EA922AFA616D1D8285E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:3D5C832B51F76258986F6EA922AFA616D1D8285E
 ```bash
 magnet:?xt=urn:btih:AA789C58FAB14870B165BC4C026884EE69690D09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:AA789C58FAB14870B165BC4C026884EE69690D09
 magnet:?xt=urn:btih:CF10BE76CD7098F3350479D813650D3804B4C98E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:CF10BE76CD7098F3350479D813650D3804B4C98E
 magnet:?xt=urn:btih:D6478AE27BCEF081EF0DC22A935F94D499C2DE39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:D6478AE27BCEF081EF0DC22A935F94D499C2DE39
 ```bash
 magnet:?xt=urn:btih:C5A8B9033130A0352D2D71A08C9BDC30BD81B392
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:C5A8B9033130A0352D2D71A08C9BDC30BD81B392
 magnet:?xt=urn:btih:12C62C94CE9E5F5DF1899C036EE488E0DE5051CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:12C62C94CE9E5F5DF1899C036EE488E0DE5051CE
 ```bash
 magnet:?xt=urn:btih:A44EABDA4651F945AF51FD2ADE952DF7D2668BAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:A44EABDA4651F945AF51FD2ADE952DF7D2668BAA
 magnet:?xt=urn:btih:0DD8FF09996FC9031C744B74D1E5825C337A28D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:0DD8FF09996FC9031C744B74D1E5825C337A28D4
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:0DD8FF09996FC9031C744B74D1E5825C337A28D4
 magnet:?xt=urn:btih:2D5B6F6490CC4B88B6451F8C1F5C095BF04ACFEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:2D5B6F6490CC4B88B6451F8C1F5C095BF04ACFEC
 ```bash
 magnet:?xt=urn:btih:FB1B1C6B7F74766FEED3DBFAD36966BF2AB815A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:FB1B1C6B7F74766FEED3DBFAD36966BF2AB815A4
 magnet:?xt=urn:btih:7CE366C8EB64781BF9F33DDB286BFB6A888A83DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:7CE366C8EB64781BF9F33DDB286BFB6A888A83DB
 magnet:?xt=urn:btih:3B08A0AA8AC05B23DCF678138FB31F9A622B8C47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:3B08A0AA8AC05B23DCF678138FB31F9A622B8C47
 ```bash
 magnet:?xt=urn:btih:66103E1B10F0904FFA7675B604C448472155210A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +574,8 @@ A.A.Чумаков | Школа парусного спорта [1981] [DJVU]
 magnet:?xt=urn:btih:3D9F3DCCECD519CFDE281532D33483EE679AC12D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:3D9F3DCCECD519CFDE281532D33483EE679AC12D
 ```bash
 magnet:?xt=urn:btih:45DE1A9931067AF0D97D0AABDE2D0354E1414A47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:45DE1A9931067AF0D97D0AABDE2D0354E1414A47
 magnet:?xt=urn:btih:39B15D04690A212719B1A12F3FB8DA4AA6894F3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:39B15D04690A212719B1A12F3FB8DA4AA6894F3C
 ```bash
 magnet:?xt=urn:btih:0FE04CF31376231EE203624DFB623692245A8D66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,29 +681,7 @@ magnet:?xt=urn:btih:0FE04CF31376231EE203624DFB623692245A8D66
 magnet:?xt=urn:btih:A4F047C8B4AD0651C1D26DCD3D3D51A9FB395AAC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037735   (611674) от 25.07.2016
-
-Ричард Бояцис, Энни Макки | На одной волне: Как управлять эмоциональным климатом в коллективе (2016) [EPUB, FB2, MOBI]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследования в области психологии лидерства убедительно доказывают, что способность руководителя вызывать у подчиненных эмоциональный отклик – резонанс – позволяет повысить эффективность управления. Но как конкретно действует этот механизм? На основе научных исследований текущего и прошлых десятилетий и практического опыта, накопленного в области консалтинга, авторы (   Читать дальше...   )Жанр: Менеджмент, модели управления, бизнесФормат: EPUB, FB2, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D6B299A6BE8C0C82688BB9313F604DC67399617
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

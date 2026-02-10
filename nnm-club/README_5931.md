@@ -19,6 +19,8 @@ Artweaver - это полнофункциональный инструмент �
 magnet:?xt=urn:btih:85AA2C3141F689ADAF3FAD423A3854DC6F0E993D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Marc Hartman - Salt Water (2019) [AAC|~330 Kbps] <Lounge, Ambient, Chillout>
 magnet:?xt=urn:btih:B53C5EFA166887871E42CB7A1D97A6736825CE60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ KORG Collection 4 4.0.0 Standalone, VSTi, VSTi 3, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:50CA344264B79FDE3770A6722F597A61F4A92A40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Atena - Subway Anthem (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive 
 magnet:?xt=urn:btih:50267A417E405875D734BE0AABC4BEA48D428420
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ A Better Finder Rename является лучшим решением для а�
 ```bash
 magnet:?xt=urn:btih:B071409E697B01A1A4F6FB828CC8F8B81D943526
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:B071409E697B01A1A4F6FB828CC8F8B81D943526
 magnet:?xt=urn:btih:5193218EDC7D8366EC0FCF73503F11F554CC423C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ iZotope Audiolens 1.1.0 (x64) RePack by R2R [En]
 ```bash
 magnet:?xt=urn:btih:87DC31AB153AFF0D166776AE2AC3E3DBB125E724
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ Create Illusions - Illusion I (2023) [FLAC|Lossless|WEB-DL|tracks] <Italy Progre
 magnet:?xt=urn:btih:860FE9D2E1B3C3ECB00EB872B8285E21145EDF55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ Sacrifix - Killing Machine (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:475F59BB414826DB7619EB0738D9917ED40E5371
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ Yakuro - Compilation (2022) [MP3|320 Kbps] <Instrumental, Electronic>
 magnet:?xt=urn:btih:87AF839CBE09EC84C24A97B9655307A6502E0F5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:87AF839CBE09EC84C24A97B9655307A6502E0F5C
 ```bash
 magnet:?xt=urn:btih:8F470A0903B5A8282587F67B47157BE09EFA7FDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +326,8 @@ Bear - Vanta (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Groove Metal, Ma
 magnet:?xt=urn:btih:3AABF64F0613293EBC48AA92A019FC076A265AE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:90E093BE6957F83D019DBFC235FB22A1F94F88A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +381,8 @@ Michael Wolff - Impure Thoughts (2000) Indianola Music Group [FLAC|Lossless|trac
 magnet:?xt=urn:btih:855DB1E13C44395779FFCD20F558D565C41693D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ XYplorer – удобный мультивкладочный файловый м
 ```bash
 magnet:?xt=urn:btih:1186012C380653BDCE0CBCEE5FAC3F7BE0353EE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +436,8 @@ Endseeker - Corrosive Revelation (2015) EP [FLAC|Lossless|image + .cue] <Death M
 magnet:?xt=urn:btih:7679497003FB2671FD5B10D1CE6CC129C4A2291A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +465,8 @@ Hank Mobley - Hank Mobley (1957) 1996, Toshiba-EMI [FLAC|Lossless|tracks + .cue]
 magnet:?xt=urn:btih:5BC608462E74DEEAC0EDFA48A44FDCB5A34E845D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +491,8 @@ Arkane Studios | Артбук по игре Dishonored: Обесчещенный
 magnet:?xt=urn:btih:6FD23C0C2784AB0C9D2708A7CBCA9150FFF224B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +516,8 @@ PDF Protector является простая в использовании ут
 ```bash
 magnet:?xt=urn:btih:B90C27C47C08FB748FF27527717966F7F45ABF88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +546,8 @@ Marc Hartman - Tales From The Other Side (2019) [AAC|~325 Kbps] <Lounge, Ambient
 magnet:?xt=urn:btih:622B91B9DB3DDCB215E7EC3FBD2B7211C3DE9FFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ magnet:?xt=urn:btih:622B91B9DB3DDCB215E7EC3FBD2B7211C3DE9FFC
 ```bash
 magnet:?xt=urn:btih:206B5F323484AB5B718218CEA9307AA0A8CC575E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +600,8 @@ Drop - Color Picker 1.6.3 [En]
 ```bash
 magnet:?xt=urn:btih:D3FAED83468E18F602AD1FCCAFC92623E6FC0211
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +630,8 @@ DISC 1:
 magnet:?xt=urn:btih:C7692C98C3E5A969ECDB07E63966EC2658403C26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +656,8 @@ WSCC (Windows System Control Center) - портативная программа
 ```bash
 magnet:?xt=urn:btih:E4BB938681E959521A93A8B1DF08E6B6C0C9F97B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +684,8 @@ BusyCal - программа на Mac OS X, которая поможет вам
 magnet:?xt=urn:btih:58AB3DA75DA3641BA294F560F9C0E18963F4DE32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +710,8 @@ magnet:?xt=urn:btih:58AB3DA75DA3641BA294F560F9C0E18963F4DE32
 ```bash
 magnet:?xt=urn:btih:3D4ACD85F52D72B0B4F55D20AE23E7D4FF41D27B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

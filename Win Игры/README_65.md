@@ -19,6 +19,8 @@ Stellar outpost commander передает игроку контроль над 
 magnet:?xt=urn:btih:3F509202327F816EC8BA0AB7B1000B32D447CC16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Age of Wonders: Planetfall – это новая стратегическая и
 ```bash
 magnet:?xt=urn:btih:402D649388D3A50315A275A14E757D588313600D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ DON'T WATCH - это психологический хоррор от перво
 magnet:?xt=urn:btih:E5EDF521909EA6EC9B8EC26671226CFA4591A377
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ SimRail: The Railway Simulator (2023) [Ru/Multi] (30.04.2025/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E451880E249EC34C8627E146E2589E7E6B28C909
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ My Party Needs An Alchemist (2025) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:893581FD1E9D0CFF611117F6A26567C6425E9C62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ A Haunting Novel 2: Surfaced Secrets (2025) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:99BF12ED98A32416943C7FDC1EC0499B8F4FE7D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ SimRail: The Railway Simulator (2023) [Ru/Multi] (build 18316498/dlc) Repack sel
 magnet:?xt=urn:btih:C9353F3FB3159C3340D4474E04C84520BF97EF88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Super Raft Boat Together погружает игроков в подводное
 ```bash
 magnet:?xt=urn:btih:455A6C944B0F31720E48533E198C52E8404FDF6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Ship of Fools - это кооперативное морское приключ�
 magnet:?xt=urn:btih:9D70D9210BA22944363429DD03A0B8B747249C6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Breath of Fire IV (2000) [Multi] (1.0 HotFix) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B4157152D35BA49B0C4A92E54EABDA509C4FDC40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Astral Ascent переносит геймеров в современный фе
 magnet:?xt=urn:btih:E91999182001431ACBEE0D5DE3E1884833F888D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Pocket and Zooom - это игра-головоломка, где главной
 ```bash
 magnet:?xt=urn:btih:DAB5045DC33F71E5684B2616DAB1627C68E80CB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Dolls Nest (2025) [Multi] (1.0.1) Scene Tenoke
 magnet:?xt=urn:btih:70B3844B27CC68D110250ABFCA34B65AC2FF12B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Skogdal (2025) [Ru/Multi] (0.9.12) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:6EF3255CCDA6A4D96FE1B78F1B7A2B204C160C41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Wartales - ролевое приключение в открытом мире, �
 magnet:?xt=urn:btih:89971A17F701C5910B8A497883BFE7E03D9B3C3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (2.00.128634) Repack Other s [Soundt
 ```bash
 magnet:?xt=urn:btih:055C6C96A51B5712D2B5487E044C7AAD931B3ECC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Old Skies (2025) [En] (1.1) Repack FitGirl
 magnet:?xt=urn:btih:79A568201EC3D8331B2F6B0ADEF7C75310E3C907
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Kingdom Rush Vengeance (2020) [Ru/Multi] (1.16.3.16/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:32A200F6F5CFC74EE78CFE8956525FDC76CB4E4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Dolls Nest (2025) [Multi] (1.0.1) Repack FitGirl
 magnet:?xt=urn:btih:28934680333E5E31F922391C889717738174587C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Badlands Crew передает геймеру контроль над боево
 ```bash
 magnet:?xt=urn:btih:3E0B38525B1EFECF4B6C827CB5BBC3DC4800591D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Pax Augusta (2025) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:410DF57F874D648C6E2F5D94B5E2A796F202891D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Skin Deep - затягивающий шутер от первого лица. В
 ```bash
 magnet:?xt=urn:btih:CC2364AAE906042E8C40F61A73B317C203687070
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Haunted House Renovator (2025) [Ru/Multi] (1.3.190) Repack FitGirl
 magnet:?xt=urn:btih:7499BF54783C66B15B9A3B36686D8460EE03ACD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Once Upon A Puppet (2025) [Ru/Multi] (2.14.4.1/dlc) Repack FitGirl [Backstage Ed
 ```bash
 magnet:?xt=urn:btih:E110D6B5D38C7DB44312DB18CD57B4CB4A11C344
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ theHunter Call of the Wild (2017) [Ru/Multi] (2989309/dlc) Repack Let'sРlay [Ul
 magnet:?xt=urn:btih:BF87B692CE3E4C5ECEA574F115E824E0346E3D88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (0.20074/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:CE6B8B84FA9505ED65A35421B679BE0A45B85AB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

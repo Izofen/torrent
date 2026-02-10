@@ -19,6 +19,8 @@ Leisure Suit Larry: Love for Sail! / Ларри в выходном костюм
 magnet:?xt=urn:btih:315554E0BA995EE95BAEEA90DDFA4C02FEB551A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Fallout 2 – культовая ролевая игра, справедливо
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ PC Football 2007 / Лига чемпионов. Футбол (2006) [Ru] (1.6) L
 magnet:?xt=urn:btih:E5446C1B1F8B9F0F6223C41BEC17EF559D6F1E86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Evolva / Evolva. Риск заражения (2000) [En] (1.2.944) License GOG
 ```bash
 magnet:?xt=urn:btih:3CB5B69A2C7268BBC6ED8B83453EC657C9E618D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Revenant (1999) [En/Fr] (1.22L) License GOG
 magnet:?xt=urn:btih:A692BFD35ED4242AFD3AE99D9B194A75D82C9D8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Legacy of Kain: Soul Reaver 2 (2001) [Multi] (1.02) License GOG
 ```bash
 magnet:?xt=urn:btih:BAFA7D4D02B1579BC78DE61D09C53681E2348C73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Etherlords / Демиурги (2001) [Ru/En] (1.07/1.04) License GOG
 magnet:?xt=urn:btih:CACBF091F9BF3B16271D479BEC47FC56598E25C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Independence War 2: Edge of Chaos - настоящий сиквел. Перва�
 ```bash
 magnet:?xt=urn:btih:7EF64A82E7B15A331C00A1379663741850689C34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Uprising 2: Lead and Destroy [En] (L) 1998
 magnet:?xt=urn:btih:7B0CD89B168C0806F4DC8FDFBAB30014F0A2B684
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ DOOM II (1994) [En] (1.9/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:36743EDEBBF5D61964FFCFAD1E295F9342DDEB3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Final Doom - сборник из двух любительских IWAD-файл
 magnet:?xt=urn:btih:1E8BE565B607FCB3B100FD821A361FE07FD21898
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Schizm: Mysterious Journey / Щизм (2001) [Ru/Multi] (b744) License GOG
 ```bash
 magnet:?xt=urn:btih:EEB4778A9E7E03213123A5F5C1D0AC7BA23D4A88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Postal 2 (2003) [Ru/Multi] (5024/dlc) License GOG [Uncut Version]
 magnet:?xt=urn:btih:221BF8288B8939DE4C9D53497BB50E9C291CC6CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Creatures: Exodus / Creatures: Покорение космоса (2004) [En] (2.
 ```bash
 magnet:?xt=urn:btih:73221EECE9F65B5A59718BBB8D366303FF9153C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Atlantis: The Lost Tales (1997) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:64207D220183CA4D5DC5EA30A9168271307EDC0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Emperor of the Fading Suns / Император Угасающих Звёзд (1
 ```bash
 magnet:?xt=urn:btih:4D6950EA464DE78930A55F1B349EB89D6D8BDB5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Far Cry - Ёкарный Бабай (2019) [Ru/En] (1.0) Mod Bert-Masters-Studio
 magnet:?xt=urn:btih:43A88919E408FE92E986661E9394D361BF1B88CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ eXoDOS Collection (2019) [En] (4.0) Repack eXo
 ```bash
 magnet:?xt=urn:btih:6B901594EF61DA8E2D498F88B05D5ACEDD16E881
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Emergency Room 3 / Скорая помощь 2 (2001) [Ru] (1.0) License
 magnet:?xt=urn:btih:4192D2BFDCDFB63AC3603EAABE3328359A55A37B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Reah - потрясающе атмосферная приключенческа�
 ```bash
 magnet:?xt=urn:btih:2EBBA9F685E000D478CFF76E3C304F9501E3C229
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Anachronox (2000) [Ru/En] (1.0) Repack R.G. Catalyst
 magnet:?xt=urn:btih:3C3CD8FE9597A24B828FC82C48CA9495723436F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Imperial Glory (2005) [Ru/Multi] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:9425A8814BB6C271CD22924EF30B6832CC459EE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ XXV век. Планетная система Пандемия. Фантасти
 magnet:?xt=urn:btih:2CE54EB0CADE696444611110B700E3384F5A815D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Watchmaker / Тайна маятника (2002) [Ru] (1.0) License
 ```bash
 magnet:?xt=urn:btih:BE20D932078AFA5E75BAF30CE21D7C34291025C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ Pool of Radiance: Ruins of Myth Drannor - современная реинкар�
 magnet:?xt=urn:btih:F19B232874C582EB39F196C6A9394404A55861A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Realms of Chaos (1995) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:9C30B283CFFF45623108F56331E1863AD3C0EA75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

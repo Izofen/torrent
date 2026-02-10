@@ -19,6 +19,8 @@ Europa Universalis IV – продолжение знаменитой серии
 magnet:?xt=urn:btih:544C64E6F9B159755D7F21476619A4D52F9A6E30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:544C64E6F9B159755D7F21476619A4D52F9A6E30
 ```bash
 magnet:?xt=urn:btih:72C7741972E54271E36010659BAC627F134E9012
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Divinity Chronicles: Journey to the West - это захватывающий к�
 magnet:?xt=urn:btih:C80AA8FBA71A62710B6FD0225F87E5DA74DC8C03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Front Mission 2: Remake - обновленная версия классичес
 ```bash
 magnet:?xt=urn:btih:C3481519C3F9D22EEF1146900434377E125F3099
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Golf With Your Friends (2020) [Ru/Multi] (258/dlc) Scene Tenoke
 magnet:?xt=urn:btih:AF26896585042D69B73FE59623A91443D6333A1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Internet Cafe Evolution позволит вам превратиться в на
 ```bash
 magnet:?xt=urn:btih:3DB1144296F1366C94DEC0372E94E9ADA52555DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Tales from Candleforth – это самый настоящий двухмерн
 magnet:?xt=urn:btih:B6C9D91ADDDF07A3ED2260E9FF7967B8B6C68A66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Front Mission 2: Remake - обновленная версия классичес
 ```bash
 magnet:?xt=urn:btih:B7A7FB2EE76FD8424A5BC48C9C21645F4B4C3848
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Dark City 9: Amsterdam / Мрачный город 9: Амстердам (2024) 
 magnet:?xt=urn:btih:9EAA0DC1C3F5009B7D08D2CA3F463E001EBD8A74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Crossroads 4: Fatal Truths / Перекрёсток 4: Роковые истин
 ```bash
 magnet:?xt=urn:btih:4ED0DA44B1F3818DD2CAE52407005392902271A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Lunar Lander Beyond - насыщенный событиями космическ
 magnet:?xt=urn:btih:405EFE8A9D5FB4F86A8200314C4EB1AB74C7FF88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ The Game of Sisyphus - инди-игра из разряда тех, что ис
 ```bash
 magnet:?xt=urn:btih:A495D1258E91868CDCDA841D6984A44922C4935C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Wild Card Football - это веселый и простой аркадный с
 magnet:?xt=urn:btih:B24B2E263925199FE96BD63E5E777F69672CD698
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Naheulbeuk's Dungeon Master (2023) [Ru/Multi] (1.8) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:A74583D018B14A3D63FBEDA2A4BAD67194491A74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Naheulbeuk's Dungeon Master - это уникальная и увлекател�
 magnet:?xt=urn:btih:3E1A512C1A3D70375F00E302769A0E32BF17A043
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Pools (Бассейны) – игра, разработанная в жанре 
 ```bash
 magnet:?xt=urn:btih:80690B702138A76F1B8AB74FA098E83ADF3B05C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Five Nights at Freddy's: Security Breach - хоррор-выживастик, г
 magnet:?xt=urn:btih:C9A9002DFDDE0F34D4C96C09864FDA95360DB4A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Bootleg Steamer – перед вами традиционный рогалай�
 ```bash
 magnet:?xt=urn:btih:933B17FC61FC077CE3CE2694E7BB533CA0CC6DC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Oriental Valley - симулятор жизни, где вы создадите 
 magnet:?xt=urn:btih:6A5321D82F8514BC61CE4323BE95F997122E7508
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Tad the Lost Explorer - это увлекательный трехмерный �
 ```bash
 magnet:?xt=urn:btih:64B2E437FD984FC2A2E00287A80AE2F678B96037
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Solium Infernum - увлекательная пошаговая стратеги
 magnet:?xt=urn:btih:8DCB71C990020DDF23585D6918C0077D07DCEDB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Unholy Village – Иосиф вместе со своими друзьями о
 ```bash
 magnet:?xt=urn:btih:15E3268CB0EA3236C96C100D2F41B397FC2F0E83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Deadpool (2013) [Ru/En] (1.0/dlc) Repack dixen18
 magnet:?xt=urn:btih:F2F752D29CA8BE6B48E47D5FC91645B8DF78D265
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Project MIKHAIL: A Muv-Luv War Story (2024) [Multi] (1.0000.5178) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:41E6D912B8C5003894B264A32443634685FF630E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Dawn of Man - уникальная историческая стратегия �
 magnet:?xt=urn:btih:C569D56EDCD7B7AFDD8AB29FC897CFA69BC3C88D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ War Hospital (2024) [Multi] (1.10/dlc) License GOG [Supporter Edition]
 ```bash
 magnet:?xt=urn:btih:3838224D6EE570B6B79CD0106B7A6467CDCEE523
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

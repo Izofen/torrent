@@ -19,6 +19,8 @@ The Hand of Merlin (2021) [En] (675212/dlc) License GOG [Deluxe Edition] [Early 
 magnet:?xt=urn:btih:E7EEC6C49EC92EA84E441C4D7CD9D50BCBB7B6E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:E7EEC6C49EC92EA84E441C4D7CD9D50BCBB7B6E8
 ```bash
 magnet:?xt=urn:btih:A37D592EFEE4291CF21EEB5F6E460844DF2FEDB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ ARK: Survival Evolved – это захватывающая и увлекате�
 magnet:?xt=urn:btih:21E4ECC82A1636A3315A2DAE749629FAE05211E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Slime Rancher - оригинальный симулятор по разведе�
 ```bash
 magnet:?xt=urn:btih:759658BE312DB2AE421D48BDFC4A93CDBCFF4923
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ MadOut BIG City (2017) [Ru/En] (24.02.2017) Repack Andrxaxa
 magnet:?xt=urn:btih:2842B932878F5D22DEFB079BDF875CD0E700640E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Gremlins vs Automatons – это автономная версия карточ
 ```bash
 magnet:?xt=urn:btih:D17B561C5AD766B81A019764D3D1F61762442E9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ World War Party: Balls of Duty (2017) [En] (0.1.9) Repack VseTop [Early Access]
 magnet:?xt=urn:btih:120839CC69E4CEA8A34D3DB48AA39738C225C032
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Forest — это необычный survival horror с открытым м�
 ```bash
 magnet:?xt=urn:btih:BC5A5D8973CC19AACCE20E07C50358FEA652F5BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Portal Knights (2016) [Ru/Multi] (Alpha 0.2.2) SteamRip MarkusEVO (R.G. Games)
 magnet:?xt=urn:btih:442E494CA36D6A111AC0ED05CB26DA22BBDB22BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Endzone — градостроительный симулятор о возро�
 ```bash
 magnet:?xt=urn:btih:40A77B1C4BB53B7B7604FB3354D7A509E2B8396C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Warshift (2015) [Ru/En] (1.3.7) SteamRip
 magnet:?xt=urn:btih:518873AFF3D94CB427A0ECA7555BD29B344792BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Life is Feudal: Forest Village (2016) [Ru/Multi] (0.9.6042) Repack Other s
 ```bash
 magnet:?xt=urn:btih:198FE1F8F1D82A40FF4137729F36F6F95F85D91B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Surviving the Aftermath (2019) [Ru/Multi] (1.17.0.3533/dlc) Repack Other s [Foun
 magnet:?xt=urn:btih:F4FA4144B63AEC8EF156E63778ED8B5A8E45D25F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Warhammer 40,000: Space Wolf (2017) [Ru/Multi] (0.0.2) Repack Other s
 ```bash
 magnet:?xt=urn:btih:3A3B4BDF5CB28B1BF7B7B0CAD2C9F627B4FF707F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Paint the Town Red (2016) [En] (0.4.2) Repack VseTop
 magnet:?xt=urn:btih:FD9F09EE907933BA776D186AC93C655ACE9D5F0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Wild Eight – это новый проект на тему выживани
 ```bash
 magnet:?xt=urn:btih:6093A7796DA3634BF5597E46B977FD8AE16C82CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Finding Bigfoot (2017) [Ru/Multi] (1.1.7) Repack Other s
 magnet:?xt=urn:btih:EFD58CE57BFB94609DC9CA9DAA0C13F16130F26A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ World of Horror (2020) [En] (0.9.17h1) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:546C2C170942A74F6AF195FB7E016121D8031E82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Dorfromantik (2021) [Ru/Multi] (0.2.0.2) License GOG [Early Access]
 magnet:?xt=urn:btih:924371E8FC6BF443DDF0DCB58B2DEDA255A2BB17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Men of War: Assault Squad это самостоятельное дополнен
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Castle Story - новая воксельная стратегия с элеме�
 magnet:?xt=urn:btih:47C6883D45F5B0544E973A6F17836647C386BB51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ BeamNG DRIVE - своего рода духовный наследник Rigs Of
 magnet:?xt=urn:btih:FD66BEC6E4EB9DCD475B1498598EF0E2FDD355DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +590,8 @@ Roguelands - эпичный фантастический RPG-рогалик от
 ```bash
 magnet:?xt=urn:btih:6638083BD8810654A90ACDAE17300715F6055ED2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ The Last Look – приключенческий инди-хоррор, в ко�
 magnet:?xt=urn:btih:24227B750F7116569D3660CCD05F4F6443C28626
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ Good Night, Knight (2021) [En] (0.6.2.04) License GOG [Early Access]
 magnet:?xt=urn:btih:0854A92C46A5A8940D3019B9847AFF9B37C18447
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ The Sheltered - это стратегия в реальном времени, д
 ```bash
 magnet:?xt=urn:btih:87622C2DC99C884D9889773116951C7320CA2FF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

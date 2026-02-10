@@ -21,6 +21,8 @@ Lynda.com | Основы программирования: объектно-ор
 magnet:?xt=urn:btih:599F9D0A33F8722FB51B1364FA1F33077252B87D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:599F9D0A33F8722FB51B1364FA1F33077252B87D
 magnet:?xt=urn:btih:F90E9FD3D32336361C27E816D203B6A10927D5B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:F90E9FD3D32336361C27E816D203B6A10927D5B0
 ```bash
 magnet:?xt=urn:btih:0E01468873D86D823D36A7CA28A31ABD1F33D6BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Skillbox, Ренат Шагабутдинов и др. | PowerPoint + Google П�
 magnet:?xt=urn:btih:72CE14ED876E59BA9678B63D0C23E8FBA5496FBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Skillbox, Павел Козлов и др. | MS Office и инструменты
 magnet:?xt=urn:btih:4A4F376D581BEB3A27DB0F808E3A21E4B59DE1A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ ITVDN | Алгоритмы и структуры данных (2015) PCRec [H.26
 ```bash
 magnet:?xt=urn:btih:11CA89F030E6FF938D5DB728C32A6B47B01188DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ Spring Framework - самая популярная среда Java для соз
 magnet:?xt=urn:btih:3A56B442DFC0FD04A1CA6504122F4E6ABD9E01D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ Hibernate - потрясающая среда для объектно-реляц
 magnet:?xt=urn:btih:8560ECA3C76B8D3E40F789D70AF23BF1439E1D06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:8560ECA3C76B8D3E40F789D70AF23BF1439E1D06
 ```bash
 magnet:?xt=urn:btih:E8C44E83C8B05A2275FE39D85DBA456EBFA583EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:E8C44E83C8B05A2275FE39D85DBA456EBFA583EF
 magnet:?xt=urn:btih:2BAEBEE77B70E67F0DCC18C8D2B47D1B0311F439
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:2BAEBEE77B70E67F0DCC18C8D2B47D1B0311F439
 ```bash
 magnet:?xt=urn:btih:81BBB8F9B1CBB67BB06EABEE0C501AA8D12B2E07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ EMPO | Аналитика для SEO (2015) PCRec [H.264/720p]
 magnet:?xt=urn:btih:E36A1F89A7F5493ECA95B5E74BE60E94BE451190
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ OTUS | Разработчик Java (Часть 1-3) (2020) PCRec
 ```bash
 magnet:?xt=urn:btih:4062224E12BBCD8E82D9D5026AB3A13F86D47C37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:4062224E12BBCD8E82D9D5026AB3A13F86D47C37
 magnet:?xt=urn:btih:CED4C0009AFDF669694F51DA1E671CABCA334F0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:CED4C0009AFDF669694F51DA1E671CABCA334F0B
 magnet:?xt=urn:btih:133F88734185279B89AE7B1AED0C0517CA734D21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:133F88734185279B89AE7B1AED0C0517CA734D21
 ```bash
 magnet:?xt=urn:btih:DF1E4BDD482C07D9254E0FCA409CE69321457922
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:DF1E4BDD482C07D9254E0FCA409CE69321457922
 ```bash
 magnet:?xt=urn:btih:29471B39A47DB016F1E8B2C2CE1C966A85A869A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ magnet:?xt=urn:btih:29471B39A47DB016F1E8B2C2CE1C966A85A869A9
 magnet:?xt=urn:btih:5A8DD17D15C7F2112B5005BE8FE5E8C019108987
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ Charles Dye | Mix it Like a Record [2012] DVDRip [RUS + ENG]
 ```bash
 magnet:?xt=urn:btih:44286D3D3815861903ACE7E109CC3ACBA37A9E86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +543,8 @@ magnet:?xt=urn:btih:44286D3D3815861903ACE7E109CC3ACBA37A9E86
 magnet:?xt=urn:btih:A78CC81F1D743FA297AE374AE69E38DCF8CA1A9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +568,8 @@ loftschool | React.js. Разработка веб-приложений (2018) P
 ```bash
 magnet:?xt=urn:btih:1A9B54A1B963298FDD5C515072BF0F3CAF7B10BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +596,8 @@ Softwaretesting | Погружение в тестирование. Jedi point (
 ```bash
 magnet:?xt=urn:btih:AD70829CAE3005CCE8F74438272EEEE323199E74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +626,8 @@ magnet:?xt=urn:btih:AD70829CAE3005CCE8F74438272EEEE323199E74
 magnet:?xt=urn:btih:CF398929F0164C8DD30CC0DC6E0007138EAF4020
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +655,8 @@ magnet:?xt=urn:btih:CF398929F0164C8DD30CC0DC6E0007138EAF4020
 magnet:?xt=urn:btih:03B65F15ED79FAE434A0AD166D05D4521299A9FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +681,8 @@ javaops.ru | Enterprise Java-разработчик (TopJava) (2019) PCRec
 magnet:?xt=urn:btih:C0266F1459B50A9D055484857D8DA2CEE6ED4167
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ magnet:?xt=urn:btih:C0266F1459B50A9D055484857D8DA2CEE6ED4167
 ```bash
 magnet:?xt=urn:btih:0B01A06D39378408870D4D1A33E46FAE7B39C919
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

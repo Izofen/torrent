@@ -22,6 +22,8 @@ BBC: Планета динозавров (серии 1-6 из 6) / Planet Dinosa
 magnet:?xt=urn:btih:268C7BB395F9C5EE1D109473C2711330FDDF1764
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:268C7BB395F9C5EE1D109473C2711330FDDF1764
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -79,6 +83,8 @@ magnet:?xt=urn:btih:268C7BB395F9C5EE1D109473C2711330FDDF1764
 magnet:?xt=urn:btih:A9A9F070CDAC9F28DF562EC90427C39ADD7B9881
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -107,6 +113,8 @@ Angry Birds Anthology / Сердитые Птицы: Антология [En] (2.
 magnet:?xt=urn:btih:195F13E16D7319E10CB59735120575DB38DF72F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -132,6 +140,8 @@ magnet:?xt=urn:btih:195F13E16D7319E10CB59735120575DB38DF72F8
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +165,8 @@ magnet:?xt=urn:btih:195F13E16D7319E10CB59735120575DB38DF72F8
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -182,6 +194,8 @@ magnet:?xt=urn:btih:195F13E16D7319E10CB59735120575DB38DF72F8
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ magnet:?xt=urn:btih:195F13E16D7319E10CB59735120575DB38DF72F8
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -230,6 +246,8 @@ magnet:?xt=urn:btih:195F13E16D7319E10CB59735120575DB38DF72F8
 magnet:?xt=urn:btih:964CA59FFE15CC40514FA6FBA57A264B86233911
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -254,6 +272,8 @@ magnet:?xt=urn:btih:964CA59FFE15CC40514FA6FBA57A264B86233911
 magnet:?xt=urn:btih:BDA743E2C2844581CF14EF823115FB2D8F751DD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:BDA743E2C2844581CF14EF823115FB2D8F751DD3
 ```bash
 magnet:?xt=urn:btih:67A07A2FA0CD21D985EE7624C523496A50E709B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +325,8 @@ magnet:?xt=urn:btih:67A07A2FA0CD21D985EE7624C523496A50E709B1
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +357,8 @@ magnet:?xt=urn:btih:67A07A2FA0CD21D985EE7624C523496A50E709B1
 magnet:?xt=urn:btih:CEA214371DD631B5F2873F6A4150C9FB0A25C79F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +382,8 @@ magnet:?xt=urn:btih:CEA214371DD631B5F2873F6A4150C9FB0A25C79F
 ```bash
 magnet:?xt=urn:btih:E22C2C4B9A138B52C076EA5BE7647ACBD8148890
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +417,8 @@ Vinny Valentino, Baron Browne and Joel Rosenblatt - Double B Double V (2011) [FL
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +448,8 @@ Vinny Valentino, Baron Browne and Joel Rosenblatt - Double B Double V (2011) [FL
 magnet:?xt=urn:btih:29E1C707B0C800E5EE0E05356AFEE3291D76A1FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +474,8 @@ magnet:?xt=urn:btih:29E1C707B0C800E5EE0E05356AFEE3291D76A1FF
 magnet:?xt=urn:btih:65B50B058EE5D224F0EE82D7965186B005FDF7CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +499,8 @@ magnet:?xt=urn:btih:65B50B058EE5D224F0EE82D7965186B005FDF7CA
 ```bash
 magnet:?xt=urn:btih:1D9CC12D253A26A4ACBB46CD377A1317E1609DDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +531,8 @@ magnet:?xt=urn:btih:1D9CC12D253A26A4ACBB46CD377A1317E1609DDF
 magnet:?xt=urn:btih:AE3379CE6E6AAB493450EBF53EFF5DE7222D36A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +558,8 @@ magnet:?xt=urn:btih:AE3379CE6E6AAB493450EBF53EFF5DE7222D36A9
 magnet:?xt=urn:btih:59A95064AAC99D0E1F4123E55326A1BF8EFF50A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +583,8 @@ magnet:?xt=urn:btih:59A95064AAC99D0E1F4123E55326A1BF8EFF50A2
 ```bash
 magnet:?xt=urn:btih:780ADE0529E03E2C21D4EBFE22A4BF7D94057872
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +619,8 @@ Volume 1 (1995)
 magnet:?xt=urn:btih:92926A6E54BDAC0BA4309C318F0F187323D3B0AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +644,8 @@ magnet:?xt=urn:btih:92926A6E54BDAC0BA4309C318F0F187323D3B0AF
 ```bash
 magnet:?xt=urn:btih:AB7CFC264B1C0BDC86EB1B196E7C1CE3BB12A1A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +672,8 @@ magnet:?xt=urn:btih:AB7CFC264B1C0BDC86EB1B196E7C1CE3BB12A1A3
 ```bash
 magnet:?xt=urn:btih:D467770B6711BECA1AA6BDFB7A4ED1948701C02F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -660,6 +708,8 @@ The Herbaliser - The Remix According To The Herbaliser (2012) [MP3|320 кб/с]<
 magnet:?xt=urn:btih:1BC5C3336B04A018A19AEE6E660589821CE43CCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -683,6 +733,8 @@ magnet:?xt=urn:btih:1BC5C3336B04A018A19AEE6E660589821CE43CCF
 ```bash
 magnet:?xt=urn:btih:757436E5CDB4471BB40116263FEB406F6EFE4FCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

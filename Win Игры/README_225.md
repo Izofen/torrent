@@ -19,6 +19,8 @@ RIDE 5 (2023) [Multi] (20240124/dlc) Scene Rune [Special Edition]
 magnet:?xt=urn:btih:0D8408CF6EC0D24D26B726FC7D5D1BF55BF83EB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Magic City Detective 4: Wrath of the Ocean (2024) [Multi] (1.0) Unofficial [Coll
 ```bash
 magnet:?xt=urn:btih:1B05B5C54E097A30D16492ADD78BFB9893886630
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ RIN: The Last Child (2024) [Ru/Multi] (1.0) Scene SKIDROW
 magnet:?xt=urn:btih:BBB52455935EDB1F8007ACE7A4BB6EA093E1AB32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Source (2024) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:94BDFEFB4A71E6B6F919520CDBC8C7BB3FB2CB64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Heroes of Eternal Quest – окунитесь с головой в настоя
 magnet:?xt=urn:btih:25CC0D02702248824035332CFCCF14F5D7BC6C95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Victory At Sea Pacific (2018) [Ru/Multi] (1.14.2) License GOG (обновляе�
 ```bash
 magnet:?xt=urn:btih:88AA8BCDC60679E2DCBC20DBC9FADC5096586F4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Apex Heroines - это научно-фантастический ролевой 
 magnet:?xt=urn:btih:32901196F725C41782E1A2AC90B4810757BAAB8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Monster Hunter Rise (2022) [Ru/Multi] (16.0.2.0/dlc) Scene Razor1911
 ```bash
 magnet:?xt=urn:btih:586C47B24FEAF8466980CFBBA0716D9FA024DBD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ GRAVEN (2021) [Ru/Multi] (1.0) Scene Rune
 magnet:?xt=urn:btih:2AD65E73927FF22EC43AC9BA4AA9CAEEC8A15263
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Luna's Fishing Garden - двумерное приключение, механи�
 ```bash
 magnet:?xt=urn:btih:E3AC6E3F960C1E297249DBCF90C578546631E9AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Around the World 2: Travel to Canada / Вокруг света 2: Путешес
 magnet:?xt=urn:btih:16E9A617B45AB2C8B3BD2F1E5D4B0FDA93C905B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Eternights - это игровой проект, который рассказы
 ```bash
 magnet:?xt=urn:btih:A7A1F9F31026E963CA0875ADD767A41E266A50D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Farming Simulator 22 (2021) [Ru/Multi] (1.13.1.1/dlc) Scene Tenoke
 magnet:?xt=urn:btih:0D35D7E22C1AD3AB1A6D8CAD33C0E40E830D7890
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Lost Eidolons: Veil of the Witch (2024) [Ru/Multi] (1.0.6) Scene Rune
 ```bash
 magnet:?xt=urn:btih:91CD082FF552A1B59C7A3F44580F68D1DD5081AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Universim, симулятор бога, в котором успех ваш�
 magnet:?xt=urn:btih:B4524A0ABFD497C9F7194BAB4980A1F95051B97B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Little Nightmares III - это новая часть серии, предста�
 ```bash
 magnet:?xt=urn:btih:B297B8C0C1DEE3FD5F829BDCB2D59DAB43FBE8B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Little Nightmares (2025) [Ru/Multi] (Build 19756066/dlc) Repack FitGirl [Enhance
 magnet:?xt=urn:btih:D1C25B1FA0711AC3D56A126A6F485720BD3F46CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Little Nightmares (2025) [Ru/Multi] (Build 19756066/dlc) Repack seleZen [Enhance
 ```bash
 magnet:?xt=urn:btih:4460506B637B0ED50DF88E3BC4C59A1A51FC39CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Little Nightmares (2025) [Ru/Multi] (Build 19756066/dlc) Repack Other s [Enhance
 magnet:?xt=urn:btih:642BAED8AB4B7633EA14F68C3D596898315E8089
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Serious Sam 3: BFE — это великолепное возвращение в
 ```bash
 magnet:?xt=urn:btih:3CB700EDD2363E1D4C2C96C7C73F6551F2C007DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Little Nightmares III - это новая часть серии, предста�
 magnet:?xt=urn:btih:88A64A20745E4107C8FCA95D688B793A8E886099
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Little Nightmares III - это новая часть серии, предста�
 ```bash
 magnet:?xt=urn:btih:CAFB6A5D5474C128EAE0B57C2BA2ED7D665D01BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Nienix: Cosmic Warfare (2023) [Ru/Multi] (1.0501) Scene Tenoke
 magnet:?xt=urn:btih:A8D5E8B753AA4B63A0DB6FE0E4DDA48207DEFD6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Sovereign Syndicate (2024) [En] (1.0.25) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:299F4D8BF00F1F3683F47E8A05FF9DC6884011F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Merchant of the Skies – увлекательное приключение, п�
 magnet:?xt=urn:btih:E4A800DA60DE86F59E073C2F0F06156E8EAF75E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Cliff Empire - небольшая экономическая стратегия.
 ```bash
 magnet:?xt=urn:btih:3B7330378C41C90AAFEFC4B57E0B6A3C5B158FB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

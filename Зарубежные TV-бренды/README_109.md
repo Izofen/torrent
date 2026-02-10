@@ -19,6 +19,8 @@ BBC: Планета Земля / BBC: Planet Earth (2006) [1080p] Blu-ray [4-Dis
 magnet:?xt=urn:btih:A40432ECCEBCC787E5CFD45F492FEE767FED5E66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BBC: Живая Природа. Райские птицы / BBC: Natural World. 
 ```bash
 magnet:?xt=urn:btih:0642B0F715C88FA52453FD4CCC0ACA4EB3AC19D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NG. Линии Наска: Погребенные секреты. Древние
 magnet:?xt=urn:btih:43EE00378DDF474C63FDAE6DE2222F0B02E80464
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:43EE00378DDF474C63FDAE6DE2222F0B02E80464
 ```bash
 magnet:?xt=urn:btih:A00DE154627431350A1CCCB6E1A4D120782188B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ NG. Грядет шторм / Gathering Storm (2020) WEB-DL [H.264/1080p] (се�
 magnet:?xt=urn:btih:15C0E5017422EE0D76430E8EBCB6D1150E034F0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:15C0E5017422EE0D76430E8EBCB6D1150E034F0D
 magnet:?xt=urn:btih:AC06D0A15E262C55F02DB5DA575DD4DA390ECABD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ NG. Загадки Библии. Воины-тамплиеры / The Secret Bibl
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ NG. Загадки Библии. Воины-тамплиеры / The Secret Bibl
 magnet:?xt=urn:btih:3FBF1F615E0C69DB6EC39CDB5B529F092244E329
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ BBC: Терри Джонс и варвары / Terry Jones' Barbarians (2006) SA
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ BBC: Терри Джонс и варвары / Terry Jones' Barbarians (2006) SA
 magnet:?xt=urn:btih:79FBFF35108B918FD09914BE2ABADC34D902DFDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ History Channel: Письменный код (История письменно�
 ```bash
 magnet:?xt=urn:btih:037CA5029507457BBAE4D684BB962E31FD6E1D9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Discovery. Гигантские чудовища: Громадный потро�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ NG: Хранители сокровищ Египта / Egypt's Treasure Guardian
 ```bash
 magnet:?xt=urn:btih:DA4EEB783D9A068F3AA50AF28EB2CF117B88676E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Discovery. Техногеника. Лефортовский тоннель (2017
 magnet:?xt=urn:btih:4416BDC953D8F3287E15376523893C44E131C314
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ DV: История письменности / The Written Word (2005) SATRip (с
 ```bash
 magnet:?xt=urn:btih:787E1896AADB3F8030712FE26D510E81B8FE7514
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ DV: Из истории великих научных открытий / Great M
 magnet:?xt=urn:btih:B1A7207B7BCB6F6D30A91AE4B8323C54F65583A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ DV: Из истории великих научных открытий / Great M
 ```bash
 magnet:?xt=urn:btih:1F684DECC0190B94447BB8D8643126210619740E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ BBC: Мир природы: Львы пустыни / Natural World: Desert Lion
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ BBC. Тайный командующий. Военный стратег Иран
 ```bash
 magnet:?xt=urn:btih:58253218C936D19E518CA7CBA9A285F7EE56EAE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:58253218C936D19E518CA7CBA9A285F7EE56EAE5
 magnet:?xt=urn:btih:A515459263D14A89518297FDD01E18F467369073
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ magnet:?xt=urn:btih:A515459263D14A89518297FDD01E18F467369073
 ```bash
 magnet:?xt=urn:btih:D9197FA92ACBCC68C13146B9C85A9B3BB6C52A73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ magnet:?xt=urn:btih:D9197FA92ACBCC68C13146B9C85A9B3BB6C52A73
 magnet:?xt=urn:btih:32787A789D5366D6BA11A48102EFF1334AE5147F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ DV: Из истории великих научных открытий / Great M
 ```bash
 magnet:?xt=urn:btih:AD14DD009A0D85DABCF148A8E00DD8256F4A6F24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ Discovery. Смертельный улов / Deadliest Catch (2019) HDTVRip [H.2
 magnet:?xt=urn:btih:89B7EB8551FF6525C5503FEF046D37764580CAFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ Discovery. Дороги России: Трасса Кола (2016) HDTVRip [720p
 magnet:?xt=urn:btih:6DC78236BD3700A1581B11304F7EC196ACC09AD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ magnet:?xt=urn:btih:6DC78236BD3700A1581B11304F7EC196ACC09AD6
 ```bash
 magnet:?xt=urn:btih:2C3B61F09EC5D59A3BBB1D3C3C6A9216E3389E07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

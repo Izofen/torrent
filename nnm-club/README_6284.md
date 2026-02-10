@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:DB16EE6ECDFC874856C79C9122F44FDC6DF534AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:DB16EE6ECDFC874856C79C9122F44FDC6DF534AB
 ```bash
 magnet:?xt=urn:btih:F00C975861D3C9468F70D15351E579075EDAD087
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:F00C975861D3C9468F70D15351E579075EDAD087
 magnet:?xt=urn:btih:4C5602D918FE8044D3FCA709C960137E08E8F978
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:4C5602D918FE8044D3FCA709C960137E08E8F978
 ```bash
 magnet:?xt=urn:btih:668DB758A3E5336A9F9F76571E6B3EAA9D47A565
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:668DB758A3E5336A9F9F76571E6B3EAA9D47A565
 magnet:?xt=urn:btih:961C96E98D094521A960E61A99EA43CBC91C043E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ WhatsApp Messenger - это кроссплатформенное приложе�
 magnet:?xt=urn:btih:0E505763BAAD771A165D56022EA85A76895BCEDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:0E505763BAAD771A165D56022EA85A76895BCEDD
 ```bash
 magnet:?xt=urn:btih:597A70873EAFD3CFBB91C318EC9D482036D277B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:597A70873EAFD3CFBB91C318EC9D482036D277B4
 magnet:?xt=urn:btih:62E44E87DE7AA191E1A06917AD2E6A44CD3C2D21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:62E44E87DE7AA191E1A06917AD2E6A44CD3C2D21
 magnet:?xt=urn:btih:3F2349E30224B32D7FB67AB9E4B7ECFBAA63881F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:3F2349E30224B32D7FB67AB9E4B7ECFBAA63881F
 ```bash
 magnet:?xt=urn:btih:3EC1D9D3479A1681E4EB904BE634FB240C08C9F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ Udemy, Dzianis Matveyenka (DMdev) | Beginner's Guide to Groovy for Java Devs (20
 magnet:?xt=urn:btih:150C8F51AEA1D37E51CC30780C57E10357B0F450
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:150C8F51AEA1D37E51CC30780C57E10357B0F450
 magnet:?xt=urn:btih:AC432EC7AEAE30AF65FBDAB8704650BC1353C23F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:AC432EC7AEAE30AF65FBDAB8704650BC1353C23F
 ```bash
 magnet:?xt=urn:btih:33F1DC9812296248DE5795346B5CB1C8AB23BF6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:33F1DC9812296248DE5795346B5CB1C8AB23BF6C
 magnet:?xt=urn:btih:E0E4004AD178A021B1D3428CF987112C13BC79EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:E0E4004AD178A021B1D3428CF987112C13BC79EF
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:E0E4004AD178A021B1D3428CF987112C13BC79EF
 magnet:?xt=urn:btih:BDA01F649A1A1A320D5B31F9F4703868C500F0CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:BDA01F649A1A1A320D5B31F9F4703868C500F0CA
 ```bash
 magnet:?xt=urn:btih:D5FF60140ACAA2E9347825221FAF7CE20375978A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:D5FF60140ACAA2E9347825221FAF7CE20375978A
 magnet:?xt=urn:btih:D18D3D512CCBB41642FF4A8E8B165AB5C37BA6B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:D18D3D512CCBB41642FF4A8E8B165AB5C37BA6B4
 ```bash
 magnet:?xt=urn:btih:D73DFC266F681F24B95377A1A29614612E10F6D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:D73DFC266F681F24B95377A1A29614612E10F6D0
 magnet:?xt=urn:btih:25810DB48941EFF6D81C35848ED36B3CF5FC1B44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:25810DB48941EFF6D81C35848ED36B3CF5FC1B44
 ```bash
 magnet:?xt=urn:btih:758B78C2DE716E5D1B215BD8C54D59C7F3CE4529
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:758B78C2DE716E5D1B215BD8C54D59C7F3CE4529
 magnet:?xt=urn:btih:BA3FC0E6FC402E7A3B090161B8B419D6F9DA2811
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Dr. Folder 2.9.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:63D9A53544D9D0FDA90A6B11062646934A751071
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ AOMEI Backupper – программа для создания резервно�
 magnet:?xt=urn:btih:AD165B3413CAE130E99E52719B4034E2A0A82EB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:AD165B3413CAE130E99E52719B4034E2A0A82EB6
 ```bash
 magnet:?xt=urn:btih:13169E963AD3B2682CDAE915F264BD410EECA5B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +675,8 @@ magnet:?xt=urn:btih:13169E963AD3B2682CDAE915F264BD410EECA5B5
 ```bash
 magnet:?xt=urn:btih:B45690A3B2A42670AC223216DC085E2317BDC645
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

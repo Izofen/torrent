@@ -1,3 +1,29 @@
+###  Публикация: 1156512   (527660) от 07.08.2017
+
+Алена Медведева | Волчье счастье (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_527660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Побег лишь отсрочил неизбежное. Но развязка неминуема - во главе клана оборотней должен встать кто-то один. Хватит ли сил Елене взвалить на свои плечи власть? Уступит ли Андрей это право? И самое главное - захотят ли они оба этого выбора? Смогут ли выбраться из ловушки, куда их загнали Хранители традиций и противники всего нового. Волчье счастье... Оно так близко, (   Читать дальше...   )Жанр: Романтическое фэнтезиПродолжительность: 10:06:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17FACC832CD5ECA196A17FAB2B349B1CED3929DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1156504   (527664) от 07.08.2017
 
 Алена Медведева | Обыкновенная история… вампирши (2017) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:D1A0A5992F7BDBE1162F3AA09AEA8ED4E99F492D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:D1A0A5992F7BDBE1162F3AA09AEA8ED4E99F492D
 ```bash
 magnet:?xt=urn:btih:72591A1F4B93610553294B9422B465FABAB16B7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:72591A1F4B93610553294B9422B465FABAB16B7D
 magnet:?xt=urn:btih:50B4795AA3F3D7A938542BFD069CB86D3E742B16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +129,8 @@ magnet:?xt=urn:btih:50B4795AA3F3D7A938542BFD069CB86D3E742B16
 magnet:?xt=urn:btih:0D236A4A96A3A852E0DA6F5BA34C8F5FE810C0CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +156,8 @@ magnet:?xt=urn:btih:0D236A4A96A3A852E0DA6F5BA34C8F5FE810C0CC
 ```bash
 magnet:?xt=urn:btih:83FA833C35BA68D2E225359FB60D38627C4B57C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +186,8 @@ magnet:?xt=urn:btih:83FA833C35BA68D2E225359FB60D38627C4B57C2
 magnet:?xt=urn:btih:236250A2AC4729EEEF0736ED84D20FE4F5D7ED63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +211,8 @@ magnet:?xt=urn:btih:236250A2AC4729EEEF0736ED84D20FE4F5D7ED63
 ```bash
 magnet:?xt=urn:btih:B49F67CF9D2F3BD4D1AA42D89F3C59F2522B5C76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +240,8 @@ magnet:?xt=urn:btih:B49F67CF9D2F3BD4D1AA42D89F3C59F2522B5C76
 magnet:?xt=urn:btih:2592DFD137CDE1D17277C0040F6C62C19DB0240C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +266,8 @@ magnet:?xt=urn:btih:2592DFD137CDE1D17277C0040F6C62C19DB0240C
 magnet:?xt=urn:btih:9DA4455CE3293E454D485701A422F835AA2484E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +291,8 @@ magnet:?xt=urn:btih:9DA4455CE3293E454D485701A422F835AA2484E6
 ```bash
 magnet:?xt=urn:btih:FCE75763F5C833DD567672AC06A65D238F4A4FCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +320,8 @@ magnet:?xt=urn:btih:FCE75763F5C833DD567672AC06A65D238F4A4FCB
 magnet:?xt=urn:btih:BF358EFDB576840ED39CDB5D14A5E071C7BE56A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +345,8 @@ magnet:?xt=urn:btih:BF358EFDB576840ED39CDB5D14A5E071C7BE56A9
 ```bash
 magnet:?xt=urn:btih:76DD64F91857BC73480E1E1589AC994DF8A83C3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +372,8 @@ magnet:?xt=urn:btih:76DD64F91857BC73480E1E1589AC994DF8A83C3B
 magnet:?xt=urn:btih:104A7CE2914FCE7C6A368D09F5DEBBCFD0D98FB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +397,8 @@ magnet:?xt=urn:btih:104A7CE2914FCE7C6A368D09F5DEBBCFD0D98FB4
 ```bash
 magnet:?xt=urn:btih:05B3CD59CF25BE70D5EB12C53D83BDC5C46EBD8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +424,8 @@ magnet:?xt=urn:btih:05B3CD59CF25BE70D5EB12C53D83BDC5C46EBD8E
 ```bash
 magnet:?xt=urn:btih:F07DA6E5177AA62450434CAA8AFAA0834B7ADFCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +453,8 @@ magnet:?xt=urn:btih:F07DA6E5177AA62450434CAA8AFAA0834B7ADFCD
 magnet:?xt=urn:btih:7B72A77972452A75C44685569F4C99365D07D1C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +478,8 @@ magnet:?xt=urn:btih:7B72A77972452A75C44685569F4C99365D07D1C4
 ```bash
 magnet:?xt=urn:btih:8D19DEA48A64BC38D1EF3DD4378EDF474A4986A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +505,8 @@ magnet:?xt=urn:btih:8D19DEA48A64BC38D1EF3DD4378EDF474A4986A0
 magnet:?xt=urn:btih:EAF8A883549605B4D2778A7E5CBFD3019595EE3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +530,8 @@ magnet:?xt=urn:btih:EAF8A883549605B4D2778A7E5CBFD3019595EE3C
 ```bash
 magnet:?xt=urn:btih:02FEBEFC579100BFB26AE83AB778942039C62338
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +559,8 @@ magnet:?xt=urn:btih:02FEBEFC579100BFB26AE83AB778942039C62338
 magnet:?xt=urn:btih:8153D3985C1599DA52BBCDD721DFF03F78718A2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +584,8 @@ magnet:?xt=urn:btih:8153D3985C1599DA52BBCDD721DFF03F78718A2B
 ```bash
 magnet:?xt=urn:btih:450E306B27F095B4E73AE3759B79B2C792251BA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +611,8 @@ magnet:?xt=urn:btih:450E306B27F095B4E73AE3759B79B2C792251BA0
 magnet:?xt=urn:btih:28A48AF374D31CB369523369BF4ACB4237D4C86A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +636,8 @@ magnet:?xt=urn:btih:28A48AF374D31CB369523369BF4ACB4237D4C86A
 ```bash
 magnet:?xt=urn:btih:87D9BAC1E2656C43783F0A6FB99590E21A293AD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +663,8 @@ magnet:?xt=urn:btih:87D9BAC1E2656C43783F0A6FB99590E21A293AD1
 magnet:?xt=urn:btih:BEE65911C927526AC521AA5240CEE4A79E87D7FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,29 +689,7 @@ magnet:?xt=urn:btih:BEE65911C927526AC521AA5240CEE4A79E87D7FB
 magnet:?xt=urn:btih:39FF7634C186463A3F4FEE9F14354B458C46D34F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312821   (529108) от 06.07.2019
-
-Андрей Респов | О скитаниях (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он вернулся. Возвращение в прошлую жизнь – способ ли это обрести смысл своей новой электронной жизни? Или лишь попытка посмотреть в глаза тем, которым ты задолжал немного мести… Посмотреть, пожать плечами и жить дальше. Тобой опять хотят сыграть втёмную. Игра скоро закончится. Остаётся надеяться…Жанр: Боевое фэнтези, Героическое фэнтезиПродолжительность: 15:27:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F98702BE858CBAE5D5DB90B91FFC7AAF792EBBFE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:0B5CA3EBCF4743AA3E8C6E39EA657FEDF5C6A3A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Scooter - Live at Rock Am Ring festival (2022) WEB-DL [H.265/2160p] [hand made u
 ```bash
 magnet:?xt=urn:btih:C272E5C9378B04C952A048CF280F6DEDF7944741
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Scooter - Live in Moscow (2000) VHSRip [H.264/1080p-LQ] [hand made upscale AI]
 magnet:?xt=urn:btih:6641B9A610E2B725187450919679DC32282E5A69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:6641B9A610E2B725187450919679DC32282E5A69
 ```bash
 magnet:?xt=urn:btih:D4ED19D8980FDB217E8F917F40DE00346986B9C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ magnet:?xt=urn:btih:D4ED19D8980FDB217E8F917F40DE00346986B9C3
 magnet:?xt=urn:btih:78770089F8346B587DA5D05C7E546CA188684D9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:78770089F8346B587DA5D05C7E546CA188684D9B
 magnet:?xt=urn:btih:58E8F4A72808B72D91694A013D09129EB46ECADC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:58E8F4A72808B72D91694A013D09129EB46ECADC
 ```bash
 magnet:?xt=urn:btih:1BDF5F007B7982AFC855EDEF6C835CAE67AB7DA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ magnet:?xt=urn:btih:1BDF5F007B7982AFC855EDEF6C835CAE67AB7DA5
 magnet:?xt=urn:btih:BFF2078BE66A7BE09BE6FA51451958D9694A355C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ Jennie, Dua Lipa - Handlebars (2025) WEBRip [H.265/2160p] [AI Remaster]
 ```bash
 magnet:?xt=urn:btih:8CFC582600C36218FE6F9EB5A9FC0D4B9D4F6621
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ magnet:?xt=urn:btih:8CFC582600C36218FE6F9EB5A9FC0D4B9D4F6621
 ```bash
 magnet:?xt=urn:btih:FDCE4DC4FBCD628C4188BD6977889107E7CA4A96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -281,6 +301,8 @@ Concerto No.2 in G minor, Op.8, RV 315, Summer (L'estate)(   Читать дал
 magnet:?xt=urn:btih:1D41AADB646857A67545094FA45541C0FB1E903E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +327,8 @@ Lady Gaga на фестивале Coachella 2025 / Lady Gaga at Coachella Festiv
 ```bash
 magnet:?xt=urn:btih:8278D8D5C82348E26E1A428C1EDB2D09B69EBFAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +356,8 @@ Lady Gaga на фестивале Coachella 2025 / Lady Gaga at Coachella Festiv
 magnet:?xt=urn:btih:E8CA315D0124377DA04792A46B76FC2877EAF9E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +382,8 @@ magnet:?xt=urn:btih:E8CA315D0124377DA04792A46B76FC2877EAF9E1
 ```bash
 magnet:?xt=urn:btih:DB28A2C4203A0EE6B23A8D4317D8EF0F82FD2C6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +410,8 @@ magnet:?xt=urn:btih:DB28A2C4203A0EE6B23A8D4317D8EF0F82FD2C6E
 magnet:?xt=urn:btih:DEC536D94E5C6CCE86269E785F9FBA5D03E6CA8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +435,8 @@ STAYC - GPT (On the Spot) (2024) UHDTVRip [H.265/2160p]
 ```bash
 magnet:?xt=urn:btih:29AAA56B1FB10C709A54BC38AE3F85CBFF67EF82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +462,8 @@ magnet:?xt=urn:btih:29AAA56B1FB10C709A54BC38AE3F85CBFF67EF82
 magnet:?xt=urn:btih:CB39405A5EB381B9235F70D23EEC828A0C2ACB73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ magnet:?xt=urn:btih:CB39405A5EB381B9235F70D23EEC828A0C2ACB73
 ```bash
 magnet:?xt=urn:btih:9E2776E74F75A0985A7E3CDE6A72CD52F82FFA79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +519,8 @@ eRa: The Live Experience 2025 (2025) CamRip [H.264/1080p]
 magnet:?xt=urn:btih:C5546F19024E322A8AA4B3F6639E28D83C514FA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +545,8 @@ magnet:?xt=urn:btih:C5546F19024E322A8AA4B3F6639E28D83C514FA1
 ```bash
 magnet:?xt=urn:btih:BC4C3E715B11B42B973C4264B2E31A85C90680AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +575,8 @@ magnet:?xt=urn:btih:BC4C3E715B11B42B973C4264B2E31A85C90680AD
 magnet:?xt=urn:btih:A077FE99ACF78EC6646F1CFDF6883DE06A80BA26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +600,8 @@ magnet:?xt=urn:btih:A077FE99ACF78EC6646F1CFDF6883DE06A80BA26
 ```bash
 magnet:?xt=urn:btih:E02952C240EA179CCA62D70F9419FF3FC4ACE7AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +631,8 @@ magnet:?xt=urn:btih:E02952C240EA179CCA62D70F9419FF3FC4ACE7AC
 magnet:?xt=urn:btih:284423AC75315801AF943209C9305863D48BAE1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +659,8 @@ magnet:?xt=urn:btih:284423AC75315801AF943209C9305863D48BAE1D
 ```bash
 magnet:?xt=urn:btih:8A7A087C78A95EB59F4E25C8B5E8F1F4AE0FCED7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +689,8 @@ magnet:?xt=urn:btih:8A7A087C78A95EB59F4E25C8B5E8F1F4AE0FCED7
 magnet:?xt=urn:btih:BDEF038F048116EA728E2ED326DA3ACA8F3D3E99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +717,8 @@ Scooter - The stadium techno inferno - Live in Hamburg (2011) DVDRip [H.264/1080
 ```bash
 magnet:?xt=urn:btih:B42FC75D169EC8D7AFF603E1110237A8A6EA319D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

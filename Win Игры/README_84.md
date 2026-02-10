@@ -19,6 +19,8 @@ Cities: Skylines II - это живая экономическая систем�
 magnet:?xt=urn:btih:80DCE7120401738126826D212E848430182EF737
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Cities: Skylines II - это живая экономическая систем�
 ```bash
 magnet:?xt=urn:btih:F4950784431747AAEEA907C8F8E51FDC1D69B5DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Corner Kitchen: Fast Food Simulator (2025) [Ru/Multi] (1.1.1) Repack FitGirl
 magnet:?xt=urn:btih:B79580663BE9135473E7DED85ADF0529D9C5BA09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Wantless Solace at World’s End (2024) [Ru/En] (1.0.1000) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:F0E5539A873FD65995E1CFB60DE37C2ACD5B0079
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Beyond Galaxyland - это космическая ролевая игра с п�
 magnet:?xt=urn:btih:AF437446F94592AA24C633EEFD7B7FB8F5F57814
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Gone Rogue можно назвать иммерсивным симуляторо
 ```bash
 magnet:?xt=urn:btih:8A46B9BC09338FAAC3D903F33651727508A90027
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Control (2020) [Ru/Multi] (1.30/dlc) Repack seleZen [Ultimate Edition]
 magnet:?xt=urn:btih:EB2231D25333F2F7783C80D4840C7EDAFB04FF4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Sonic X Shadow Generations (2024) [Ru/Multi] (1.01/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F754CBB3B978A71C16D09DA1E8004ADC797D4B6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Jagged Alliance 3 (2023) [Ru/Multi] (1.5.1.366685) Repack Wanterlude
 magnet:?xt=urn:btih:E16C1069AE504D3620B6D0B0C21B1AB5F2C13CF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Succubus (2021) [Ru/Multi] (18354/dlc) Repack Decepticon [The Worshipper Bundle]
 ```bash
 magnet:?xt=urn:btih:BC430B93908AC6953959EEE0F59EA5E9D66B75B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Split Fiction (2025) [Ru/Multi] (Build 17714403) Repack Wanterlude
 magnet:?xt=urn:btih:ED5814B893471F3BD3E3E71144FE8AD00F27E1CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ RRed Dead Redemption 2 – приключенческий шутер от тре
 ```bash
 magnet:?xt=urn:btih:6E7808C526AE59053CB3C0AD99FA07A138853BAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Dungeon Tycoon приглашает игроков отправиться в п�
 magnet:?xt=urn:btih:B8F737BA2F6A6370ABB0B59EEA0CC7C58C06F4A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Chernobylite — научно-фантастическая ролевая игр
 ```bash
 magnet:?xt=urn:btih:3D6C5D429C7C013AC8BDA32BBB37C975056D9A1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Candy & Toys Store Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:7C933929B7D8E6278E7EF4E09E5B2C2B272A7CA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Deep Rock Galactic – научно-фантастический шутер пр
 ```bash
 magnet:?xt=urn:btih:CA19E7134AE220B0B633E49892221AB48C1D96AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Ori and the Blind Forest (2015) [Ru/Multi] (1.0/dlc) Repack seleZen [Definitive 
 magnet:?xt=urn:btih:7AE7AD864BF366952FD4EBE4DF15E68D6C68E7E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Ori and the Will of the Wisps (2020) [Ru/Multi] (3.1) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:6A2692221BBE9CDC6F61E43A9E19A7D5737FD9FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Hauntsville (2025) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:20207073B153BC6D6CA82B80BB6E564F071D1F0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Republic of Pirates (2024) [Ru/Multi] (0.32.1.24) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:DB7333A65403763265D162DEFE0987F2382A1BF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Dance of Cards (2023) [Ru/Multi] (1.1.0/dlc) License GOG
 magnet:?xt=urn:btih:C98DE5AF911630A61272ED833E765CFCA5720861
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Dancing Pandas: Ranger's Path (2025) [En] (4.34H) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:952F0CCD97B3C24240A0EBC9FD395B7BD32AB4DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Out of the Park Baseball 26 (2025) [Multi] (26.1 Build 39) Repack FitGirl
 magnet:?xt=urn:btih:0398808ACE93E42BC2C8D58249630ACCA9DB3FAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Castlevania Dominus Collection (2024) [Multi] (1.003.000) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:A42E8E08414D8C61B44D3A2C220DFD69A15B93BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Potion Shop Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:0C06EE5DD9EFC464587BADC738010581DF9246B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Control (2020) [Ru/Multi] (1.30/dlc) Repack Other s [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:511A967066EB467A509FF6035E19EB93BB6471F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ FolderSizes 9.6.488 Enterprise [En]
 magnet:?xt=urn:btih:64EC4D12D952A610B1A54213234AB23547666975
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ FocusWriter 1.8.8 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1E2C66D786CD410901ECB9F476AF9D43200039AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Apocalyptica - Plays Metallica, Vol. 2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:55685525BA15AB85EDFFF9B902FFF8A39902F725
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ UltraSearch Professional находит файлы и папки на локал
 magnet:?xt=urn:btih:8A47C01E226CEE9FEA53402E53E7DFFDBD9C7922
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Blue Archive the Animation / Синий архив [2024, TV, 7 из 12] WEBRip 
 ```bash
 magnet:?xt=urn:btih:28F8D174C45FA6318B877F54FFBA3E7A2C01B338
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Windows Manager - это универсальная утилита для Micros
 magnet:?xt=urn:btih:0724310A0A72EF87CA82EB0927623A2C742C0411
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Free Hex Editor Neo - бесплатный Редактор Шестнадцат
 magnet:?xt=urn:btih:BD82908F8EBEC0075387601A4893AC09AF42B46E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:D43523D0EC587B57C82A358A2B96092FAEF75844
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:DDAAB0A6CF05E59C5AD7F11D9C0C7147B3E12C59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ KStars - бесплатное, с открытым исходным кодом, 
 ```bash
 magnet:?xt=urn:btih:ADEA43261E1AC3C8C64047ECEC0B25E0F8CAE4FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Topaz A.I. Gigapixel — это приложение, использующее �
 magnet:?xt=urn:btih:66E9F907C4063F6791C469D558BCD145E73927C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:B805926C701D602FE27439406E4D3F059E3B6ED0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ Hex Editor Neo - мощный Редактор Шестнадцатеричны�
 magnet:?xt=urn:btih:E55EF803FFC2BE2DA22296064616CB6CBFFA4A44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ Topaz A.I. Gigapixel — это приложение, использующее �
 magnet:?xt=urn:btih:E13347CB132E98DD7FC977E21F4A53638A84DD49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ AIDA64 - является мощным средством для идентиф�
 ```bash
 magnet:?xt=urn:btih:39375E903B6E6D628851C560FBB9021B766ECCED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:98E8998236686B7BFB5739B015405E3C592A1FDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ Planet VPN 2.8.26.44 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CE6155A123BF2C0C6FB21B6AAC74074CDF8FDB94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ Driver Booster сканирует и определяет устаревшие �
 magnet:?xt=urn:btih:63C6319719F137D74A9C6A6F1944ACC14BB49B73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Visual Studio Code – визуальный редактор кода от ко�
 ```bash
 magnet:?xt=urn:btih:6FF8084F1F4C9EF943A1E9D3ACD4185E1DFB6FFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ Cent Browser является усовершенствованной верси�
 magnet:?xt=urn:btih:8DEE88FDAA60647CFFE0474FC78142BCF94D596A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ MInstAll v.04.06.2024 By Andreyonohov (ISO) [Ru]
 ```bash
 magnet:?xt=urn:btih:470CF5475FB98B6D1FA76C165513FC706481CC75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ AIDA64 - является мощным средством для идентиф�
 magnet:?xt=urn:btih:21A06BC4B7B20D909321A3872B8F131062D20BB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:9DC0388B8D4247F8DAD016F6DF4A0E16AF4A11B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ PhotoRoom v4.9.9 b1431 Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:477BED41D0ECBC68592D2E3D3E0C1FD53A4F95E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ Driver Booster сканирует и определяет устаревшие �
 magnet:?xt=urn:btih:EB7FEF025C945DD66E07EDAEEB22D50A462ACE0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Opera One 110.0.5130.66 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A88D80CB6DE62EF4166AB81084B7375D2A192D3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

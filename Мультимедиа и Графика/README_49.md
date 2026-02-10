@@ -19,6 +19,8 @@ Affinity Photo — обеспечивает более высокую скоро
 magnet:?xt=urn:btih:7BE0FE4B3C1A8495825923AE6D22A9FFC5BFBDB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Tint Guide Collection 28.05.2023 Portable by AlekseyPopovv [Multi/Ru]
 magnet:?xt=urn:btih:039F75A73ADF9349B5F895177952899A5588C765
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Affinity Publisher - программное обеспечение нового 
 ```bash
 magnet:?xt=urn:btih:04E884487F05FD50731A8B7B46EF46713105EBD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Corel PhotoMirage - изображения с эффектами вращени�
 magnet:?xt=urn:btih:C1FFA06D3838F62C25A1C6EAA6CBFE88C18E1461
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Synfig — примечателен наличием средств для ко�
 magnet:?xt=urn:btih:8A3E5311F928B05C4F9F02D2B354126C6FCF0154
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ WinX HD Video Converter Deluxe - профессиональное приложе
 ```bash
 magnet:?xt=urn:btih:68195F8F2986608F4EDBFAFACC227DCB9587756A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ HitPaw Compressor - программа для быстрого и качеств
 magnet:?xt=urn:btih:24C001BB601D96365DE14B4D921A6F0538C3AEC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ HitPaw Object Remover - позволит свободно и разумно уд
 ```bash
 magnet:?xt=urn:btih:FF76A3988CC3309C97147EE03D4BFE00E46B8EED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ HitPaw Object Remover 1.0.0.16 RePack by OctaneS [Multi/Ru]
 magnet:?xt=urn:btih:F28338F5C9847194A55B101F2C723871B99ED05D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Apeaksoft Video Editor 1.0.30 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3D837AECF859730E3ED940B10FA3F1C7E3624189
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Assimilate Scratch программа предназначена для обра
 magnet:?xt=urn:btih:3BCF3D3643ABFFE6589EFC8C60AC08C5FA8143B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ ColorCorrect - это шейдер для коррекции цвета. В от
 ```bash
 magnet:?xt=urn:btih:19FE4DF1ECF92E82415FAAADB70B9E6DDF7E4352
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ GiliSoft Video Editor 15.4.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:ADEF00B5CB9A0D2372AA01269303111829BE20C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Video Enhancer - лучший редактор видео в линейке пр
 ```bash
 magnet:?xt=urn:btih:5FE6096E3CB291F94E2ECBAE1579042B8BEDEB35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ JixiPix Chromatic Edges 1.0.26 [En]
 magnet:?xt=urn:btih:46FC45807FFE40F64FFD9EE6380D8CB415B784F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Affinity Photo — обеспечивает более высокую скоро
 ```bash
 magnet:?xt=urn:btih:6A44ED2842A63D8A7B582BDF31A0896A039D7FA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Affinity Publisher - программное обеспечение нового 
 magnet:?xt=urn:btih:153871348275799DABBF819EA0A0227BF7EE2AA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Affinity Designer — самое быстрое, удобное и точное 
 ```bash
 magnet:?xt=urn:btih:F96FFE64B2FEDED8E4F7EC6793F3E63202F5D5B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ Reaper - это мощная цифровая рабочая станция (DAW
 magnet:?xt=urn:btih:BC21BD1741F3B71CACF89F937D3A23A6A27F2E27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ GIMP — это редактор, позволяющий работать со �
 ```bash
 magnet:?xt=urn:btih:274F1E7297C0BE9D041F9F787AB5C79179EE65FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ Winxvideo AI  - это набор инструментов для масштаб
 magnet:?xt=urn:btih:1E4C97AC221746D80672598B946B5D1078FC5437
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Capture One - один из лучших профессиональных кон
 ```bash
 magnet:?xt=urn:btih:B6F097CDF617C398530B0A9FDBB7CC36B11274AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ Chaos Vantage 3.0.2 [En]
 magnet:?xt=urn:btih:85905318BB16C02F09C69F3584266E98987F2617
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ Adobe Photoshop 2025 - новая версия программы для обр�
 ```bash
 magnet:?xt=urn:btih:1E8671EC5BF6BBE813042225A2600BDF9C179FAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ Adobe Photoshop 2025 - новая версия программы для обр�
 magnet:?xt=urn:btih:15A01301ED3D4745B2FCE794F194F4CAEA274EA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ FastStone MaxView - быстрый и компактный просмотрщи�
 ```bash
 magnet:?xt=urn:btih:5EFEAE0AAFC3324506E8255EC99C9D936C197A1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

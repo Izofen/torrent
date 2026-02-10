@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:D2A0992E8C5595B7696E1EA41DF9AC4C800304C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:D2A0992E8C5595B7696E1EA41DF9AC4C800304C7
 magnet:?xt=urn:btih:FC4BB40E499ED9F9499013651BBF0D83441E8412
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:FC4BB40E499ED9F9499013651BBF0D83441E8412
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:FC4BB40E499ED9F9499013651BBF0D83441E8412
 ```bash
 magnet:?xt=urn:btih:6EF74D901EFA084FEEF7E051376F4980F6195DCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:6EF74D901EFA084FEEF7E051376F4980F6195DCF
 magnet:?xt=urn:btih:901BEC099D93AE2253856E0B2EE38D7B8F7753AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ VkBot 2.1.7 [Ru]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ VkBot 2.1.7 [Ru]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ VkBot 2.1.7 [Ru]
 magnet:?xt=urn:btih:7F6A564FADFAC98EE097326804B7758D42D80588
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:7F6A564FADFAC98EE097326804B7758D42D80588
 ```bash
 magnet:?xt=urn:btih:066BAD8DF508CBF6E556D5635653A5E247228D3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:066BAD8DF508CBF6E556D5635653A5E247228D3E
 magnet:?xt=urn:btih:68C50F895640C53ED5F19EF067289C253CD1F010
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:68C50F895640C53ED5F19EF067289C253CD1F010
 ```bash
 magnet:?xt=urn:btih:3DB30B57CEA2962E113907E8E98CF7DF8FFEA338
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:3DB30B57CEA2962E113907E8E98CF7DF8FFEA338
 magnet:?xt=urn:btih:957FCC66A5423B3C09005CFFDAD95E5DE5B76DE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:957FCC66A5423B3C09005CFFDAD95E5DE5B76DE3
 magnet:?xt=urn:btih:6937342364EC4AF1C090F25A9E4C710F674ACAD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:6937342364EC4AF1C090F25A9E4C710F674ACAD4
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ Uaral - 2 albums (2005-2007) [FLAC|Lossless] <Doom Metal, Folk>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ Uaral - 2 albums (2005-2007) [FLAC|Lossless] <Doom Metal, Folk>
 magnet:?xt=urn:btih:B0C8FBF514E3ACB43C817CB2DF8240AAF7A237D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:B0C8FBF514E3ACB43C817CB2DF8240AAF7A237D3
 ```bash
 magnet:?xt=urn:btih:E7F2CDEA98A72DF0077AE8DFB33C5E291B0B6691
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ Disc 1 (English):
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ Disc 1 (English):
 ```bash
 magnet:?xt=urn:btih:6A454DB609CAAFEBD7B0B1BA143423DCB46AB47F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:6A454DB609CAAFEBD7B0B1BA143423DCB46AB47F
 magnet:?xt=urn:btih:C78F8DDCE659718250008AE59326366C8B156D15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ magnet:?xt=urn:btih:C78F8DDCE659718250008AE59326366C8B156D15
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +587,8 @@ Gene Wars (RePack) [Ru/En]  1996 | RG Games (Pilotus)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ NG: Суперсооружения: Мегазаводы. Суператтрак
 magnet:?xt=urn:btih:40B5C2F6CAA9D97B4308BF3A524719AA01244BB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ Nefarious Ned – это забавный зомби-платформер. Вы 
 ```bash
 magnet:?xt=urn:btih:E8E8B25147F79A4E38BD4D4C9F438C02CA5C414D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ magnet:?xt=urn:btih:E8E8B25147F79A4E38BD4D4C9F438C02CA5C414D
 magnet:?xt=urn:btih:84595FC48B5B09374A5AEF16D0F747B83AE4571C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ magnet:?xt=urn:btih:84595FC48B5B09374A5AEF16D0F747B83AE4571C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

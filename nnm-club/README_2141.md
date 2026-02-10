@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:5013DA18F123D189B55ACFB0EDC5F79E0AC5E0C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ VA - РАДИО БАТЯ - 006 (2024) [MP3|320 Kbps] <Шансон, Поп, Ру
 magnet:?xt=urn:btih:1FABC673AFA53C37B655E42E7FE3CA59CB76397B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ Lorelei and the Laser Eyes – посетите невероятное стар�
 magnet:?xt=urn:btih:68884573ACBED3DE959C2A30C14F0B19B5B0592B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:68884573ACBED3DE959C2A30C14F0B19B5B0592B
 ```bash
 magnet:?xt=urn:btih:A5D315CD669E5EAC3D307F21C9CA97A5FCDA7A46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ VA - РАДИО БАТЯ - 005 (2024) [MP3|320 Kbps] <Поп, Рок, Шансо
 magnet:?xt=urn:btih:9B579589BB51759FEAD296086326C600CB3CA914
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:9B579589BB51759FEAD296086326C600CB3CA914
 magnet:?xt=urn:btih:59C52E5E9387193676F7D2A747A04B16C8EA6680
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ StarCraft Remastered - это обновленная версия знамени
 ```bash
 magnet:?xt=urn:btih:75FCC71AD4BAD1E9957AF36DC9CE7BE0220F7788
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:75FCC71AD4BAD1E9957AF36DC9CE7BE0220F7788
 magnet:?xt=urn:btih:4360CB1F77D80EF1E8467ED67F13B96A62DAFF73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ Ghost of Tsushima (2024) [Ru/Multi] (14380324/dlc) Scene Rune [Director's Cut]
 ```bash
 magnet:?xt=urn:btih:21AEC18812DE9BBB797F3936D7B46485C560ED86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:21AEC18812DE9BBB797F3936D7B46485C560ED86
 magnet:?xt=urn:btih:E6470160B9676D7929A3BF67637D1E5DFF49281D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ Warcraft III - культовая компьютерная игра в жанр�
 ```bash
 magnet:?xt=urn:btih:EE39E3FE168B80637DE164B6859B840CBABBC496
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:EE39E3FE168B80637DE164B6859B840CBABBC496
 magnet:?xt=urn:btih:EF9D405E6F53461E0038B44D469EADCB069C7F1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:EF9D405E6F53461E0038B44D469EADCB069C7F1C
 ```bash
 magnet:?xt=urn:btih:A4D8F0DDFC685E84063947C4AE5684AAB5E470E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:A4D8F0DDFC685E84063947C4AE5684AAB5E470E0
 magnet:?xt=urn:btih:B78B32AFFCD2BEACCED0F4828AB662C4BB28E840
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:B78B32AFFCD2BEACCED0F4828AB662C4BB28E840
 magnet:?xt=urn:btih:4682005FC6A897025381D1F099E51C31425EC468
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ XXIII век. Сеть маяков по всей галактике помог�
 ```bash
 magnet:?xt=urn:btih:DE8ED98A3144013DE9970590BDC1459E2177AC8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ magnet:?xt=urn:btih:DE8ED98A3144013DE9970590BDC1459E2177AC8A
 magnet:?xt=urn:btih:897A4B458730D42A2956A023F80B56B2F296E956
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ Warcraft II: Battle.net Edition / Военное ремесло 2: Боевое 
 ```bash
 magnet:?xt=urn:btih:963B84716CD1AE808EC717A34BB7B8847397FF9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ AEW: Fight Forever разработана компанией YUKE's Co, Ltd., с
 magnet:?xt=urn:btih:CFF18845F62A353B2778407DA7BD4C725EB1EC4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ magnet:?xt=urn:btih:CFF18845F62A353B2778407DA7BD4C725EB1EC4D
 ```bash
 magnet:?xt=urn:btih:6A7B383E6C4423D46E419A579939A816FA11343D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +555,8 @@ magnet:?xt=urn:btih:6A7B383E6C4423D46E419A579939A816FA11343D
 magnet:?xt=urn:btih:04C57E4907FD0C247F09517E3F841BB01D1B2DEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +580,8 @@ magnet:?xt=urn:btih:04C57E4907FD0C247F09517E3F841BB01D1B2DEA
 ```bash
 magnet:?xt=urn:btih:DC233742B1DEFF906451AA16C1A140507C99E06E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +608,8 @@ magnet:?xt=urn:btih:DC233742B1DEFF906451AA16C1A140507C99E06E
 magnet:?xt=urn:btih:C97838AD93EB83AB912D0A01F8F9D03030E5B5F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +633,8 @@ magnet:?xt=urn:btih:C97838AD93EB83AB912D0A01F8F9D03030E5B5F9
 ```bash
 magnet:?xt=urn:btih:EF54D5DCC4E44A015620C67B71EAE1CB88D45ECD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +660,8 @@ magnet:?xt=urn:btih:EF54D5DCC4E44A015620C67B71EAE1CB88D45ECD
 magnet:?xt=urn:btih:3899076255DDA59FD8B9FDD7CF5E52D8DD9B04E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ magnet:?xt=urn:btih:3899076255DDA59FD8B9FDD7CF5E52D8DD9B04E7
 ```bash
 magnet:?xt=urn:btih:E8B92917F824CBC361C2FBBF100E58F3BC648F0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

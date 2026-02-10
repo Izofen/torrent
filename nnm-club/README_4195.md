@@ -22,6 +22,8 @@ The Hoochie Coochie Men - Second Helping (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 magnet:?xt=urn:btih:D4E501839B4F68046089BCE22FC9C4E868A282C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Silverflame - FLY ON (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:6AB0BF65760972899BD49DA9ECE5046C5DD8BD32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Lil'Magic Sam - Tired Out (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:2DE44F9DEC27E1EE17C3759641E2D495FB9E00BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Kristina Train - County Line (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock, 
 magnet:?xt=urn:btih:C04A036DE49CE6338F1F6BB38BA9E96D05FC0C14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ magnet:?xt=urn:btih:C04A036DE49CE6338F1F6BB38BA9E96D05FC0C14
 ```bash
 magnet:?xt=urn:btih:300D74845987C5EDCE283B57A5DABF53EFF6222C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ magnet:?xt=urn:btih:300D74845987C5EDCE283B57A5DABF53EFF6222C
 magnet:?xt=urn:btih:44211F133A0A5BB2E94D2B5C9AFC0B11CCFB3D7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +189,8 @@ magnet:?xt=urn:btih:44211F133A0A5BB2E94D2B5C9AFC0B11CCFB3D7D
 ```bash
 magnet:?xt=urn:btih:31ADD2F700A038113486913426894ADB3D954EAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +217,8 @@ Linux Mint Debian Edition 7 (LMDE ) получил название "Gigi", ос
 magnet:?xt=urn:btih:864ACB15B81C720A3ABAA93224E21534A524A4DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ magnet:?xt=urn:btih:864ACB15B81C720A3ABAA93224E21534A524A4DF
 magnet:?xt=urn:btih:A209DA1B33F1FC2E3A5DD361F770B23F566744B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:A209DA1B33F1FC2E3A5DD361F770B23F566744B1
 ```bash
 magnet:?xt=urn:btih:30E873AC545092D4F58992E2DDACED3D19E81B6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:30E873AC545092D4F58992E2DDACED3D19E81B6F
 magnet:?xt=urn:btih:5343FC2E25888EE91962129C41737A720D14E4BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ Bloodywood - индийская метал-группа из Нью-Дели, о
 ```bash
 magnet:?xt=urn:btih:51661B315415AA1F34CB8BA655550AFAE553FAFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -329,6 +353,8 @@ Ihsahn - Вегард Сверре Твейтан — норвежский ко�
 magnet:?xt=urn:btih:8972B0F12D968E481C81A6523DDE6C68A08DE19A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +382,8 @@ A1 В Ритме «Леткисс»
 magnet:?xt=urn:btih:30EBB19F725636BF292EB77C7F3EBC60A978D875
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +408,8 @@ Bakemono no Ko | The Boy and the Beast | Ученик Чудовища [2015, Mo
 magnet:?xt=urn:btih:F72580CFDC842AF6E3C086A01E6890600ADD2534
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ magnet:?xt=urn:btih:F72580CFDC842AF6E3C086A01E6890600ADD2534
 ```bash
 magnet:?xt=urn:btih:4A6153FABE4A1DA887CECA05E3050E2B0364F0E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +463,8 @@ magnet:?xt=urn:btih:4A6153FABE4A1DA887CECA05E3050E2B0364F0E7
 magnet:?xt=urn:btih:A9D4515FF4DE081A83C4C8DAB6FA1A08C6991ADA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +489,8 @@ Cерия «Врата Балдура» – это культовая компь
 magnet:?xt=urn:btih:F46E08A14B16617C2BD7C97BEC56C99FCC17246B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ magnet:?xt=urn:btih:F46E08A14B16617C2BD7C97BEC56C99FCC17246B
 ```bash
 magnet:?xt=urn:btih:0EE9932EB581D5567E84074029AF24610B172819
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +544,8 @@ Kuptsov GameDev Academy, Данил Купцов | Industry Entry for 3D Artist 
 magnet:?xt=urn:btih:0524233D86D5C90AFA7660ADA654EAE3723E020B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +569,8 @@ magnet:?xt=urn:btih:0524233D86D5C90AFA7660ADA654EAE3723E020B
 ```bash
 magnet:?xt=urn:btih:36D6BFA58C2C3AC16395BA65CFA021CB35289C28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +596,8 @@ magnet:?xt=urn:btih:36D6BFA58C2C3AC16395BA65CFA021CB35289C28
 magnet:?xt=urn:btih:0E46A2023F9E9BEB9A934A79E22AA21CED92AC61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +621,8 @@ magnet:?xt=urn:btih:0E46A2023F9E9BEB9A934A79E22AA21CED92AC61
 ```bash
 magnet:?xt=urn:btih:A3E889187056BBC2EFD7B3722C3883BC9130576E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +648,8 @@ Isekai Quartet 3 | Четвёрка попаданцев [ТВ-3] [2025, TV, 1 �
 magnet:?xt=urn:btih:604B6892FA574E4C02077794618AAFEF7DA3DBD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +673,8 @@ Twilight — создан как изысканный завершающий ш�
 ```bash
 magnet:?xt=urn:btih:73973B0A9BF113CF4F0374C6F9646D2E7605EB78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -652,6 +702,8 @@ Purvpn 10.0 [En/Farsi]
 ```bash
 magnet:?xt=urn:btih:966DA72173AAFB22386EB4B327A4311E8DCC026C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

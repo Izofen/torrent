@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:460994161A4CD4DD4CC983C3C92E1C78B66C6B9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ MultiUSB-3.0+UEFI 24-05 x86 x64 [RU/EN] (авторская раздача)
 magnet:?xt=urn:btih:7C24239307CF222A01CDE458E6997489CB3F2C60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ CorelDRAW Graphics Suite 2024 25.1.0.269 (x64) RePack by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4F9DF39E1BB227AE9726D3E9F34FC0642AA058D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:4F9DF39E1BB227AE9726D3E9F34FC0642AA058D0
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:4F9DF39E1BB227AE9726D3E9F34FC0642AA058D0
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:4F9DF39E1BB227AE9726D3E9F34FC0642AA058D0
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:4F9DF39E1BB227AE9726D3E9F34FC0642AA058D0
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:4F9DF39E1BB227AE9726D3E9F34FC0642AA058D0
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:4F9DF39E1BB227AE9726D3E9F34FC0642AA058D0
 magnet:?xt=urn:btih:5CDE41A8E5CCFBCA8230CE7FFCF2F93F5E1DC606
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Microsoft заморозила развёртывание Windows 11 24H2 на �
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Microsoft заморозила развёртывание Windows 11 24H2 на �
 magnet:?xt=urn:btih:803B9B7808CE6F0B32E73E27A598D562FDCE34DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:803B9B7808CE6F0B32E73E27A598D562FDCE34DE
 ```bash
 magnet:?xt=urn:btih:D4DB922167466A87817F345F1CD1303F19674B18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Doom: The Dark Ages официально анонсирована — со щи�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Doom: The Dark Ages официально анонсирована — со щи�
 ```bash
 magnet:?xt=urn:btih:E81D79B36C1FA859ECDC1181C16F2260395E1C44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:E81D79B36C1FA859ECDC1181C16F2260395E1C44
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:E81D79B36C1FA859ECDC1181C16F2260395E1C44
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:E81D79B36C1FA859ECDC1181C16F2260395E1C44
 ```bash
 magnet:?xt=urn:btih:E645AEE8480AE9A9A518D5E89DE3A97F5DEE59CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ Windows 10 Professional 22H2 x64 Game OS 1.7 by CUTA [Ru]
 magnet:?xt=urn:btih:20ED16EC8CCA5FCD59D68F4ACFF7DD0C0A5296B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:20ED16EC8CCA5FCD59D68F4ACFF7DD0C0A5296B4
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:20ED16EC8CCA5FCD59D68F4ACFF7DD0C0A5296B4
 ```bash
 magnet:?xt=urn:btih:693C2F6D96C1B9D3B5CD5C624E22F2CF93656F6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:693C2F6D96C1B9D3B5CD5C624E22F2CF93656F6E
 magnet:?xt=urn:btih:9988AAAF433BD591F322706369DA26311E013413
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:9988AAAF433BD591F322706369DA26311E013413
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:9988AAAF433BD591F322706369DA26311E013413
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:9988AAAF433BD591F322706369DA26311E013413
 magnet:?xt=urn:btih:BB4D7DA5503B8080124247EEDDAC7B7C7E03C195
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ magnet:?xt=urn:btih:BB4D7DA5503B8080124247EEDDAC7B7C7E03C195
 ```bash
 magnet:?xt=urn:btih:F13CF3F98D2479B64B4E4E88D8637CDD8DA4B255
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

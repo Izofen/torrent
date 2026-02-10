@@ -22,6 +22,8 @@ Milton (Milt) Buckner - The Swinging Block-Chords Pianist 1943-1950 (2002) Jazz 
 magnet:?xt=urn:btih:F84838685659B093D18E3D1D35B40A7E1AF1CEA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Just Before Dawn - Battle-Sight Zeroing (2022) EP [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:C05B346F27E141A594D9CE5CFB41FD3FD4892135
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ magnet:?xt=urn:btih:C05B346F27E141A594D9CE5CFB41FD3FD4892135
 ```bash
 magnet:?xt=urn:btih:19B9F6FE441E1FE372B2B9076895CBE54E9BC27C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:19B9F6FE441E1FE372B2B9076895CBE54E9BC27C
 magnet:?xt=urn:btih:8939127B16DEAD1002F325EB2F51234482CFBD2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:8939127B16DEAD1002F325EB2F51234482CFBD2B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:8939127B16DEAD1002F325EB2F51234482CFBD2B
 ```bash
 magnet:?xt=urn:btih:589495AAD25E03EEB9D384257BE56F719B52FF19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -179,6 +191,8 @@ magnet:?xt=urn:btih:589495AAD25E03EEB9D384257BE56F719B52FF19
 magnet:?xt=urn:btih:618240C233AA6F373409A7AD23F26D1E31F3EAAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -206,6 +220,8 @@ Tygers Of Pan Tang - Bloodlines (2023) [FLAC|Lossless|image + .cue] <Hard Rock, 
 magnet:?xt=urn:btih:8B817DDF5D2E9EBF9121F83E44A4DECEA7C270B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -230,6 +246,8 @@ magnet:?xt=urn:btih:8B817DDF5D2E9EBF9121F83E44A4DECEA7C270B1
 ```bash
 magnet:?xt=urn:btih:3E3BCF875E37AF59607B80DE1B51E18BCCFE4444
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -258,6 +276,8 @@ ADX - Bestial (2020) [WavPack|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:5C39DF6DBB731C01ED158C4769EA691A443927E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +305,8 @@ Slumbering Sun - The Ever​-​Living Fire (2023) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:068959F5FE2B06E3DA1E63CA8B3250B80A97E348
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +333,8 @@ AVZ - Бесплатная быстро работающая антивирус�
 magnet:?xt=urn:btih:4A8185AC96ABB40924FC27382FA1AAE04DDE70C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +359,8 @@ Audio Hijack - отличное решение для аудио записи н
 ```bash
 magnet:?xt=urn:btih:134913D3251E15DB093A3E9C3E05EE0382D632BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +389,8 @@ Rein de Graaff - Early Morning Blues (2018) Timeless Records [FLAC|Lossless|trac
 magnet:?xt=urn:btih:672A5DD093D0661C1A02D01BE8766A15297CFBF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +414,8 @@ magnet:?xt=urn:btih:672A5DD093D0661C1A02D01BE8766A15297CFBF3
 ```bash
 magnet:?xt=urn:btih:E3E10872088A89D8A12196F739197A388CCD5E7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +441,8 @@ magnet:?xt=urn:btih:E3E10872088A89D8A12196F739197A388CCD5E7E
 ```bash
 magnet:?xt=urn:btih:A8AB5E2677A6FE7A796E8800B6FC43CD29D884BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +471,8 @@ magnet:?xt=urn:btih:A8AB5E2677A6FE7A796E8800B6FC43CD29D884BD
 magnet:?xt=urn:btih:D4443E6798D90E1405BC3151BA666322E0698A29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +500,8 @@ Archaic Knowledge - 2 Albums (2016-2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, D
 magnet:?xt=urn:btih:6A2288DEF651931AE810E28712BBA4A593FCDBCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +525,8 @@ Mod Pack использует три классических эффекта м�
 ```bash
 magnet:?xt=urn:btih:B7ED4BE1AC3908C61DB6F3C7AA77D21D91B59E1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +555,8 @@ FileAssistant 2.8 [En]
 magnet:?xt=urn:btih:040D5309EA0DC61638DF33D81BB9169389DAC29E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +580,8 @@ Format Factory - многофункциональный конвертер ра�
 ```bash
 magnet:?xt=urn:btih:4E0923F5D55737AF4005154D3C3A12909326328B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +610,8 @@ magnet:?xt=urn:btih:4E0923F5D55737AF4005154D3C3A12909326328B
 magnet:?xt=urn:btih:842EADCD78CE4E1AC2769AA6033010BB7A553136
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +635,8 @@ magnet:?xt=urn:btih:842EADCD78CE4E1AC2769AA6033010BB7A553136
 ```bash
 magnet:?xt=urn:btih:36AC1AF40AC8F5CF7EF6C0425579F0474AA2B79D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +662,8 @@ magnet:?xt=urn:btih:36AC1AF40AC8F5CF7EF6C0425579F0474AA2B79D
 magnet:?xt=urn:btih:112921AC25DF450AA23454F69B8648766BFBAE58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +688,8 @@ magnet:?xt=urn:btih:112921AC25DF450AA23454F69B8648766BFBAE58
 magnet:?xt=urn:btih:08E9E649C41B046574C3CB70A45350A8AAEB5EEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +713,8 @@ magnet:?xt=urn:btih:08E9E649C41B046574C3CB70A45350A8AAEB5EEA
 ```bash
 magnet:?xt=urn:btih:B15A61510CC735B337D5DF2DB3C5550801F9FE7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

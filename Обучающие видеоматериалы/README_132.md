@@ -21,6 +21,8 @@ Schoolism, Wouter Tulp | Digital Painting Workout with Wouter Tulp Part 1 (2020)
 magnet:?xt=urn:btih:743089BA27268F1A5F5F17586CA22E5BA371D26D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Uartsy, Daniel Orchard | Building Perceptive AI in Unreal Engine (2020) PCRec [E
 magnet:?xt=urn:btih:BF1A877FD55ED52CB54EC630FDED8FA5DA7601CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Institute-art, Игорь Сахаров | Солнечный лес + Цвет�
 magnet:?xt=urn:btih:35615D658CBA065B267FB9241A59571608692D09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ TimePad, Ксения Голубович | Предмет искусства: о
 ```bash
 magnet:?xt=urn:btih:E316D5D13478B83E76589B980B491489CBAA073A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Udemy, Nexttut, Abraham Leal | Hair Creation for Game Character in Maya XGen and
 magnet:?xt=urn:btih:7CC553E26A805FF9479D73A8F4FBF73B8D53812B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ FlippedNormals | Sculpting the Facial Features in Zbrush (2020) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:BCD7B3E18485028C2D568B36CF2F680C8EB2B604
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ FlippedNormals, Henning Sanden | Introduction to Sculpting in Blender 2.92 (2021
 magnet:?xt=urn:btih:46983DB580E19B2C486A493B744FFF5F3FA23BF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Gumroad, Nika Zautashvili | Blender Video - WHALE-1 (2022) Blu-ray [Realtime pro
 ```bash
 magnet:?xt=urn:btih:6EC2C725E99F689D97DC3145D3ED34993E58BD96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Gumroad, Daniel Thiger | Rock Creation Techniques Part 1-2: Shapes, Surface Deta
 magnet:?xt=urn:btih:252D095584C41FA3688341BB0ACCF822B1FF2750
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Lynda, George Maestri | Animating Cartoon Characters in Maya (2015) PCRec [RU]
 ```bash
 magnet:?xt=urn:btih:152F1A49F755F8DB0DD8946352D0179E0E90C6A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Udemy, DJ Nicke | Become a Professional Character Animator (2015) PCRec [RU]
 magnet:?xt=urn:btih:B5343EF6131A901FD790FF076A174D1EDFAA07E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ Udemy, Darrin Lile | Create Captain America's Motorcycle with Blender 2.7 (2019)
 magnet:?xt=urn:btih:E54B2DBA01E2D79BF4799CE905D4E045F8F8B388
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ SideFX, Simon Verstraete | Post Apocalyptic Ruins for UE4 in Houdini (2020) PCRe
 ```bash
 magnet:?xt=urn:btih:024EE0B783C34881DE2112280C508E42B66D89FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ Gumroad, Danny Mac | Step by Step Base Meshes - Marie Antoinette (2020) PCRec [E
 magnet:?xt=urn:btih:08DF5CA1008312C9C964A716843CCAAD94A98971
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:08DF5CA1008312C9C964A716843CCAAD94A98971
 ```bash
 magnet:?xt=urn:btih:333AF6B0AB5655751F4B29C15ADE958953E7D1A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ Udemy, Sime Bugarija | Creating asteroid scene in Blender (Backrooms, cinematic)
 magnet:?xt=urn:btih:DA8BD0A6CECBB9982EAFAC5AF7BB61AAC9DE8940
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ Bravo Chef! Французская кухня [2012] DVDRip
 ```bash
 magnet:?xt=urn:btih:3E9F56416AA5BF57B5CE18ABCC3E4D653F46DCFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ Skillshare, Aniket Rawat | Complete Guide to Substance Painter 2022 (2022) PCRec
 ```bash
 magnet:?xt=urn:btih:B54C8F83E4EE2F107409CC71C95E0EA7A76E576C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ Udemy, Ken Zhuang | Master Houdini FX: Art Directing Magic Smoke Explosion (2022
 magnet:?xt=urn:btih:7F0F634D95585E7471603A4C7A32FAA195D62983
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ Skillshare | Astronaut Animation: Motion Graphics & Rendering in Cinema 4D & Red
 magnet:?xt=urn:btih:73212D656B381F060A7987B96640D665585F520F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ Uartsy, Jahirul Amin | Rigging Fundamentals in Maya (2017) PCRec [RU]
 ```bash
 magnet:?xt=urn:btih:550EACCAF80AC957C56CF581C9A0D7EBCE8486CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +582,8 @@ magnet:?xt=urn:btih:550EACCAF80AC957C56CF581C9A0D7EBCE8486CA
 magnet:?xt=urn:btih:456D9D73C1A229C4C6633206C75026AFA9997E77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ Uartsy, Ben Tristem, Sam Patuzzi | Unreal Multiplayer Mastery Online Game Develo
 magnet:?xt=urn:btih:AA1BCF70618097BFA466F32EE743D48ABE880889
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ Blender - это блестящая программа, способная со�
 ```bash
 magnet:?xt=urn:btih:2C854861030D78E573EC3E0A87AC297EDC16F46C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +665,8 @@ magnet:?xt=urn:btih:2C854861030D78E573EC3E0A87AC297EDC16F46C
 magnet:?xt=urn:btih:88A988B2DAD2C08DF8D8AD92FEB3B126B77698A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ magnet:?xt=urn:btih:88A988B2DAD2C08DF8D8AD92FEB3B126B77698A0
 ```bash
 magnet:?xt=urn:btih:DF07AA29B5B6144E2BE61AF799E82401A1961E30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

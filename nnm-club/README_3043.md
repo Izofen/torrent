@@ -28,6 +28,8 @@ VA - Звезды Танцевальных Хитов. Зарубежный (201
 magnet:?xt=urn:btih:C8D3509881E4A32FD773085F67C30BC9F8AE20F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -61,6 +63,8 @@ VA - High Big DubStep (2012) [MP3|320 кб/с]<Dubstep, Progressive>
 magnet:?xt=urn:btih:3D038053C8C5E8530B50CE0431DBAE9690A242AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +97,8 @@ Space Cat - The Remixes (2010) [FLAC|Lossless]<Psychedelic / Full On>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +126,8 @@ Illegimitation (Demo 2003):
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -152,6 +160,8 @@ VA - High Rankin presents This Is Suicide Dub Volume 1 (2010) [MP3|320 кб/с]<
 magnet:?xt=urn:btih:4845516FB28C01F76D8FD5E42680DEDF2F3D9487
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +186,8 @@ magnet:?xt=urn:btih:4845516FB28C01F76D8FD5E42680DEDF2F3D9487
 magnet:?xt=urn:btih:2716B309F3E7B5300482E041253510FE0B8DA2D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +211,8 @@ magnet:?xt=urn:btih:2716B309F3E7B5300482E041253510FE0B8DA2D2
 ```bash
 magnet:?xt=urn:btih:14ED9FB8EC9B57A84FE2AB7366C18F14F2A69FD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -233,6 +247,8 @@ Lord of Speed vs DJ Kaos - Split (2012) [MP3|320 кб/с]<Speedcore, Noise>
 magnet:?xt=urn:btih:DED9B5C665EE7403E3CBD8414A855638C7388551
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -257,6 +273,8 @@ magnet:?xt=urn:btih:DED9B5C665EE7403E3CBD8414A855638C7388551
 magnet:?xt=urn:btih:D560C0E2C0014C9660F81420EE93B69132D36CF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +298,8 @@ magnet:?xt=urn:btih:D560C0E2C0014C9660F81420EE93B69132D36CF0
 ```bash
 magnet:?xt=urn:btih:3EA33C794A7D2C999D04F8A112D169EF4C16DDA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +331,8 @@ Ashley Wallbridge - The Inner Me (2012)
 ```bash
 magnet:?xt=urn:btih:0FFD516CEC172CC1FAFDF5EABF4E7C96CF282DA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +367,8 @@ CD1: On The Beach (01:13:46)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +400,8 @@ CD1: On The Beach (01:13:46)
 ```bash
 magnet:?xt=urn:btih:E0542847A03D490D5B54592E8058DF274590FB46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +436,8 @@ Narco - La Rave Del Infierno: Alita De Mosca Remixes (2012) [MP3|320 кб/с]<El
 magnet:?xt=urn:btih:CF6DB280A2752DF3EA675F18EFB751F282F8121B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +471,8 @@ VA - Chanson d'amour (2011) [FLAC|Lossless]<Chanson>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +497,8 @@ VA - Chanson d'amour (2011) [FLAC|Lossless]<Chanson>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +533,8 @@ VA - Весенний хит-парад Record 6 50/50 (2012) [MP3|256 кб/с]<
 magnet:?xt=urn:btih:6CF6F0268A36985B545864967EFEE0CDA300A96D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +566,8 @@ VA - Armada Presents The Miami Soundtrack 2012 (2012)
 magnet:?xt=urn:btih:28BFAAD81596514B9F0E030D44ACD95F0DE3B5D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +592,8 @@ magnet:?xt=urn:btih:28BFAAD81596514B9F0E030D44ACD95F0DE3B5D3
 magnet:?xt=urn:btih:439B956AD0EB708A0CFC95A674B9A091DDC14204
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +617,8 @@ magnet:?xt=urn:btih:439B956AD0EB708A0CFC95A674B9A091DDC14204
 ```bash
 magnet:?xt=urn:btih:68F2F8847E46C6EF397C71049FBDAF4722EBCDE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +649,8 @@ magnet:?xt=urn:btih:68F2F8847E46C6EF397C71049FBDAF4722EBCDE8
 ```bash
 magnet:?xt=urn:btih:A127BD845B84DD469A55D4F67551B6540EDD4DA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +685,8 @@ CD11993Жанр: RockПродолжительность: 01:17:43
 magnet:?xt=urn:btih:9DAE3B72FC59D78D9D6BF363AFDB3C4FD94DA7E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -676,6 +720,8 @@ VA - Dash Berlin Top 20 - March (2012) [MP3|320 кб/с]<Uplifting Trance>
 magnet:?xt=urn:btih:909ADFEDBAF623BBACEE785C7C3A2D6E780DF685
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -702,6 +748,8 @@ magnet:?xt=urn:btih:909ADFEDBAF623BBACEE785C7C3A2D6E780DF685
 ```bash
 magnet:?xt=urn:btih:835B0B611A49E6A84B9452B94F2DDFF049917DF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -736,6 +784,8 @@ VA - Ideal Chill II-IV (WEB) (2010-2012) [MP3|~225 кб/с (V1), 320 кб/с (CB
 magnet:?xt=urn:btih:A153E41F41FFF819F2C91B394FD093A2C57CBA37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -768,6 +818,8 @@ VA - Masterland.com - 10 Лет В Сети (2012) [FLAC|Lossless]<Heavy / Power
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

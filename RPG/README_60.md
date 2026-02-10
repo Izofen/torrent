@@ -19,6 +19,8 @@ Fallen A2P Protocol (2015) [Multi] (1.0.0) License PLAZA
 magnet:?xt=urn:btih:66137A092D70EFD1B5751913B82535954BBD26BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Incredible Adventures of Van Helsing (2013) [Ru/Multi] (1.4.2b/dlc) SteamRip
 ```bash
 magnet:?xt=urn:btih:710E73726FABA5BE45B1F02E4C637FC68CDDBFB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Incredible Adventures of Van Helsing III (2015) [En/Multi] (1.0.6) SteamRip 
 magnet:?xt=urn:btih:DDC65CBA84647FD8C018C070379BCADB5FED9DF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Lords Of The Fallen (2014) [Ru/Multi] (1.6/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:5919C513AD7F09D5505EABD9C53C33AC507AB66A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Fairy Fencer F (2015) [En] (1.0/dlc/u2) Repack R.G. Games
 magnet:?xt=urn:btih:5C01767C9F8D372774189BB0B87342865CA3B2C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Royal Bounty HD - приятный подарок для поклонников 
 ```bash
 magnet:?xt=urn:btih:276930BC8B5012383B219317BB5D5FDCB2B956F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Guild of Dungeoneering (2015) [En] (1.02) Repack CPY
 magnet:?xt=urn:btih:8B9A39C25071B7AC01B177A6B445ABEF6AD43398
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Victor Vran - это изометрический ролевой экшен с �
 ```bash
 magnet:?xt=urn:btih:062E12B5E8F75111A94AB15017A4E7760F5CB4CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Envy the Dead — это рогалик-симулятор выживания г
 magnet:?xt=urn:btih:F9E30FE6BB8F7169B336CA5D8997B5942F0B322F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Kyn (2015) [En/De] (4.6.6.11209528/dlc) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:6A8437120DAD4B5ADC3D394D6BD43D0B870AED64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Legend of Heroes: Trails of Cold Steel (2017) [En/Jp] (1.0.6421.30108/dlc) R
 magnet:?xt=urn:btih:1FE1B779DC16E1F5EB654B86A3D527ACFED43D22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Avadon 3: The Warbor – заключительная часть РПГ трил
 ```bash
 magnet:?xt=urn:btih:ED2C4B0CA79FADE97DDA92D6A040CA45A03142FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Acting Lessons предлагает получить уроки актерско
 magnet:?xt=urn:btih:B79178492796DA51B1536D0D367A05E482F9A359
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Pyre - ролевая игра, в которой вы становитесь п
 ```bash
 magnet:?xt=urn:btih:AB99676EA79225E3E5501C5CF020CF76AC9BB1C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Underhero (2018) [En] (4.0) License PLAZA
 magnet:?xt=urn:btih:26DCDE764A0B0D0C4472DE09853408BD3D87CFA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Fairy Fencer F (2015) [En/Jp] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:B2266B69EF5F1E14DF95B850E1865979C8411877
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Darklands (1992) [En/Ge] (483.07) License GOG
 magnet:?xt=urn:btih:EE973FBA73F231E6038309EAD777269755F91C15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Gorasul: The Legacy of the Dragon / Горасул: Наследие Драко�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Deiland – однопользовательская приключенческ�
 magnet:?xt=urn:btih:CB8570F4C29CB272BE8D6841DBC41C2622A3848F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Deiland – однопользовательская приключенческ�
 ```bash
 magnet:?xt=urn:btih:895821C1A0D308090FE1A9A64442D83300967471
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Mechajammer - ролевая игра с изометрическим видом
 magnet:?xt=urn:btih:6D11DE2359ADC58EFD7E498259F724C5BC4AE572
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Silver – это игра, созданная британскими разра
 ```bash
 magnet:?xt=urn:btih:74C2ADCDD047901BA57AC21B5242AC6C94EFE5BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ The Technomancer - это продолжение Mars: War Logs, в которо
 magnet:?xt=urn:btih:2462FABFFC8364A73E08714FD6C82F6C087C0789
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Lisa (2014) [Ru] (1.0u2) Repack MasterDarkness
 ```bash
 magnet:?xt=urn:btih:9004140108FF1D06EA73AA9C1F7C57F21B2155B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ NECROPOLIS, безжалостный и динамичный боевик, в к
 magnet:?xt=urn:btih:6641D44E4D224E4B1CA8BA118BC3B04363D56C45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Undercroft (2006) [En] (1.2) Repack dark_elf2
 ```bash
 magnet:?xt=urn:btih:AFF923544232C7ACFABE61F9818D306F1C022A30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

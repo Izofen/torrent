@@ -19,6 +19,8 @@ Movavi Video Suite - пакет программ на русском языке,
 magnet:?xt=urn:btih:4E9BAC31757982F515A76594EC1CF618C86491DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ ScreenFlow - создаем свои скринкасты
 magnet:?xt=urn:btih:6E3CA9097544B28766BC1D01C16404A6ADF3018C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ RAW Power 3.1.2 [En]
 ```bash
 magnet:?xt=urn:btih:44957AE0C662E29430FB3B06605AF8A5B3AA10AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ iVI способна конвертировать и импортировать 
 magnet:?xt=urn:btih:A994E80D719A50C6D10476AF084926AB4E1DD060
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ MWeb оддерживает расширенный синтаксис Github: TO
 magnet:?xt=urn:btih:F1B96F1D4F0A62C5436E9225E2C28FA6476F7D38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Viwizard Spotify Music Converter for Mac 2.8.3 [En]
 ```bash
 magnet:?xt=urn:btih:46139CF848596D5FCB92CC1F96D051FA107D8DD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ DRmare Music Converter for Spotify 2.6.3 [En]
 magnet:?xt=urn:btih:CA80B2F804512EF76F6D87D5C41730E79ED26D2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ PowerPhotos - позволяет разбить ваши изображения 
 ```bash
 magnet:?xt=urn:btih:B2484EDF6DC1E0C3E00299502CB6248060673DD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 magnet:?xt=urn:btih:4646E625D8F20B1464A8865DA6E8402DD84AF668
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:4646E625D8F20B1464A8865DA6E8402DD84AF668
 magnet:?xt=urn:btih:F290F4BC206F92867E2C3513DC5A7ABA44560199
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Topaz A.I. Gigapixel — это первое и единственное при�
 ```bash
 magnet:?xt=urn:btih:5D3E0C93162C3607034E8DBCFF632EC27B616B5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ NeoOffice создан на основе офисного пакета OpenOffic
 magnet:?xt=urn:btih:63E8B656C535FAB7B057DB5C5B31807324AC188D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ OfficeSuite Pro + PDF - полнофункциональный офисный п
 ```bash
 magnet:?xt=urn:btih:E461E64287ADD0CC5D5FB3BDDDF03823AE387F9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ iconStiX предлагает обработку нескольких объек
 magnet:?xt=urn:btih:39F510BA6002B7C6C6468B777D9E2982646EC209
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ Ableton Live 10 Suite представляет собой самое полно�
 ```bash
 magnet:?xt=urn:btih:E13EA97D5E2576755517D7715DC0E1FE3266FBE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ Display Maid позволяет сохранять и восстанавлива
 magnet:?xt=urn:btih:790ABC419EF8C4567C201FA0D83ED9A92E9777FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Timemator 2 v2.7.3 [En]
 ```bash
 magnet:?xt=urn:btih:8C359B6D94DC92F69E696E22E9CECE162002F9FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ AudKit Spotify Music Converter for Mac 2.0.3 [En]
 magnet:?xt=urn:btih:5BBCF6818D4EE9885CC463FC6E2ABAE9F0763DA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ Website Watchman 2.12.0 [En]
 ```bash
 magnet:?xt=urn:btih:08D4360497C18FF8DAF0131D125F098127DE0645
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ MarsEdit 4 v4.4.10 [En]
 magnet:?xt=urn:btih:A845C46E02A85F899CB0695E82DE7CFE2354D8CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:966EBD4D0F105B0991BFB48ABED3A30B5DD74BD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ MiniTool Partition Wizard Technician - мощный менеджер для ра
 magnet:?xt=urn:btih:A790D75F42C5483A6A25BA727EB4F9C2BD674E94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:E682C1DAD62D27DB4B42C6E3F396CD142B6CAED2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ Skype - бесплатная программа для текстового, г�
 magnet:?xt=urn:btih:EEA2ED5C75DA984F8809569145F9F02EF3C5D5DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ Vivaldi 6.4.3160.41 include standalone [Multi/Ru]
 magnet:?xt=urn:btih:6DFD570A2B40DE0947EF1D6F94505D11782B0ABB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 ```bash
 magnet:?xt=urn:btih:7E9F4F3D4E448FEB47470158884F90C624AEFE3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

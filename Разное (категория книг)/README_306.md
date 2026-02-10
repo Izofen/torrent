@@ -1,3 +1,29 @@
+###  Публикация: 944245   (442501) от 06.10.2015
+
+Вирджиль Станислас Мартин | 50 упражнений, чтобы убедить кого угодно (2014) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вам порой не хватает этой уверенности, тогда этот сборник упражнений для вас. В нем вы найдете по-настоящему оригинальные и эффективные методы воздействия на людей, ведь умение убеждать помогает каждому добиться успеха во всех сферах жизни.Жанр: ПсихологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:159B0B4C312A080607AA7F6DA24A6452FF2C53B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 944174   (442513) от 06.10.2015
 
 Гай Мэдоус | Я не могу уснуть. Уникальная система избавления от бессонницы за 5 недель (2014) [FB2, RTF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:CCB26407CB91191253D93AE5F1018276A9C49F71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:CCB26407CB91191253D93AE5F1018276A9C49F71
 magnet:?xt=urn:btih:DE7FDE639761F31355E37E3202523246A94D0DB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:DE7FDE639761F31355E37E3202523246A94D0DB7
 ```bash
 magnet:?xt=urn:btih:99B4B07DDE0E941B64734A291DA12604FE76FFBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:99B4B07DDE0E941B64734A291DA12604FE76FFBA
 magnet:?xt=urn:btih:E9BA865885AE6EC38E894431CC116A7D22436B62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:E9BA865885AE6EC38E894431CC116A7D22436B62
 ```bash
 magnet:?xt=urn:btih:E5F008C52DDCECC4675439333DC2649B97F0BEF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:E5F008C52DDCECC4675439333DC2649B97F0BEF6
 ```bash
 magnet:?xt=urn:btih:D18144CCF632F98FA1C5FA2C89A2C66F6CA79636
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:D18144CCF632F98FA1C5FA2C89A2C66F6CA79636
 magnet:?xt=urn:btih:B40D1B7E471793A4265172A86A46E13FD4B0603D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:B40D1B7E471793A4265172A86A46E13FD4B0603D
 magnet:?xt=urn:btih:E6304DD0558627A7E472EBAD885FFF7ACEF1EB74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:E6304DD0558627A7E472EBAD885FFF7ACEF1EB74
 ```bash
 magnet:?xt=urn:btih:3044F2DEC76ECAC36B59B736108A9ED6BD0C3C78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:3044F2DEC76ECAC36B59B736108A9ED6BD0C3C78
 magnet:?xt=urn:btih:9800E5FB0960CF6BB4AE540DC370CA44229D85EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:9800E5FB0960CF6BB4AE540DC370CA44229D85EA
 magnet:?xt=urn:btih:FD10754B8290ABA45629E8697157F85A0CCB10A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:FD10754B8290ABA45629E8697157F85A0CCB10A4
 ```bash
 magnet:?xt=urn:btih:B10A007FCC2AF73F01525FE533ACBB5E7F67729E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:B10A007FCC2AF73F01525FE533ACBB5E7F67729E
 magnet:?xt=urn:btih:7C12FE6D005EAC550A40F7652B1DE252A00029BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:7C12FE6D005EAC550A40F7652B1DE252A00029BA
 ```bash
 magnet:?xt=urn:btih:44254CB19AA067A03B547B98C588FEEE04C4FEBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:44254CB19AA067A03B547B98C588FEEE04C4FEBA
 magnet:?xt=urn:btih:B4231A1E8E421CFF1BCE61123869A512A00C3F04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:B4231A1E8E421CFF1BCE61123869A512A00C3F04
 ```bash
 magnet:?xt=urn:btih:7654647299F0FE3D0E99FD406BB619653D5FCAA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:7654647299F0FE3D0E99FD406BB619653D5FCAA0
 magnet:?xt=urn:btih:987191FC0821BAB46025F5BCA2EDE90C8700E00D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:987191FC0821BAB46025F5BCA2EDE90C8700E00D
 ```bash
 magnet:?xt=urn:btih:EAE6C1FC2CCB270305835DB2B479DD301CB49A30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:EAE6C1FC2CCB270305835DB2B479DD301CB49A30
 magnet:?xt=urn:btih:283C350C5C8A15BA87397894F0AE0DCF3514F88E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:283C350C5C8A15BA87397894F0AE0DCF3514F88E
 magnet:?xt=urn:btih:6B648C76FDC7956925157AD62F703FFD76EA8968
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:6B648C76FDC7956925157AD62F703FFD76EA8968
 ```bash
 magnet:?xt=urn:btih:A4193CFA4E611C2C045BE4DC0779DE1410B0A0D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:A4193CFA4E611C2C045BE4DC0779DE1410B0A0D5
 magnet:?xt=urn:btih:665442E489A375992683CE68AC7C3CB814C61B4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:665442E489A375992683CE68AC7C3CB814C61B4E
 ```bash
 magnet:?xt=urn:btih:68DDA4EC8764F06BAE235D352897A3CDDCA57D84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +654,8 @@ magnet:?xt=urn:btih:68DDA4EC8764F06BAE235D352897A3CDDCA57D84
 magnet:?xt=urn:btih:C87A29C91D5EE62E2190B0A24BB5814E17381BC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,29 +681,7 @@ magnet:?xt=urn:btih:C87A29C91D5EE62E2190B0A24BB5814E17381BC2
 magnet:?xt=urn:btih:61D01249F34F92A41336B0CF83E95A5539A78AA6
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248093   (444515) от 19.09.2018
-
-В.Г. Горбачёва (сост.) и др. | О духовной жизни и молитве Иисусовой (2017) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444515.jpg" />
-</div>
-
-
-###  Подробнее
-
-В предлагаемом читателю сборнике собраны письма святителя Феофана Затворника, написанные им к схиигумену Герману (Гомзину) и к валаамскому схимонаху Агапию (Молодяшину), а также письма о. Агапия к о. Герману и наставления «О молитве Иисусовой, словесно, умно и сердечно совершаемой», составленные схимонахом Агапием и его сподвижниками, просмотренные и исправленные (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A17FB83373242AC767855436CD760A5DEDDA7175
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

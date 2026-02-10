@@ -19,6 +19,8 @@ ReThink 5 (2024) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:9126E3B9D70A64CD99314BF00130349F6D2D5EDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ HexoCity - это расслабляющая головоломка, погру�
 ```bash
 magnet:?xt=urn:btih:0545175F1E8CD552A895C7CBD31A43EE3F17B4B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ SCHiM (2024) [Ru/Multi] (1.0) Repack dixen18
 magnet:?xt=urn:btih:55C5E350C43E334F57FA7060EA8A4727CA545AD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Dawning Clocks of Time Remake – ремейк инди-игры, перен
 ```bash
 magnet:?xt=urn:btih:8B7F8933BAFB78C378B10CA6A1BD3AE29918E07C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Fortress Challenge: Fort Boyard (2024) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:298A95AC5CE9AE219A9CD0C8D7326476231BF931
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Songs of Steel: Hispania (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D2AD81C4F29A5B92D12B3386612EBF16171DE8B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Zet Zillions – перед вами классический одно-поль�
 magnet:?xt=urn:btih:76FFD0200424987153027FA08AC330FABD7C8B5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Ducky: The Brave – сыграйте за милого утенка Даки, �
 ```bash
 magnet:?xt=urn:btih:566BFAFBA782FDC196A99AB909CF98BE5C4E69E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ In Search Of You (2024) [Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:E5262AB5443213AE1082CC166FB3086528E9BD37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Blacksad: Under the Skin (2019) [Ru/Multi] (20270705) License GOG
 ```bash
 magnet:?xt=urn:btih:F3D8236A30B4A0733DEC6E5A944F84AA2BE82D52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Guns Demons отправляет вас в мир, где скоростные �
 magnet:?xt=urn:btih:179F467E45D9DE68541F2329D321F20929645D9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Crow Country (2024) [Multi] (20240525) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:928290767C53543F650D5A1C306A6C0747D767C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ SANABI – это пиксельный экшн с ретро стилистик
 magnet:?xt=urn:btih:673791D3A098D124B116FF887086A4DE101B5011
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Serpent in the Staglands (2015) [En] (19) License GOG
 ```bash
 magnet:?xt=urn:btih:3E7EE4E93DCF8D6F9E50C85A7667EBAAB9549CA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Anger Foot - это молниеносная хардбасс-игра, где �
 magnet:?xt=urn:btih:612F2743395F1218323FA51BE2FCAEE4F60E29B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Until Then – после судьбоносной встречи жизнь М�
 ```bash
 magnet:?xt=urn:btih:495DC92190BA7191127A8E688881A7A6AA10C92D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Pacific Drive - это атмосферное автомобильное при�
 magnet:?xt=urn:btih:A6C096AA734C67532795B1D35F7C0656F9246259
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ USC: Counterforce (2023) [Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:D0001FCBC3E98308165865ACB60B383224002B8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ ReRoad (2020) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:B293E434AA149B8F3831129D4541B6F5BDDC228E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Superscout - это не совсем обычная видеоигра. Она 
 ```bash
 magnet:?xt=urn:btih:7A5D255029E5A2130E266FC0F1CD9C90F0EAB4A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Stories from the Outbreak – в этой классической пошаго�
 magnet:?xt=urn:btih:525C4A24DC60F75E131D48D6BE861DE9D349B77D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Ranch Simulator - Build, Farm, Hunt (2023) [Ru/Multi] (1.051) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:731C628CE9D0B2B416E96DF8CF888E2F52936F74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Star Wars: Dark Forces Remaster был воплощен в жизнь коман
 magnet:?xt=urn:btih:6F89FE767F9413FBBD7A3CEFCABA344CD71B4D6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Apollo Justice: Ace Attorney Trilogy представляет новичка-а�
 ```bash
 magnet:?xt=urn:btih:3C875633CAECB8BEA00D66504CB3766BD54CFCBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Burnout Paradise – Remastered - аркадная гонка, главные о
 magnet:?xt=urn:btih:383A517A2376AAB11986C16982A7C80AC1790777
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Braid (2024) [Ru/Multi] (20240603) Repack dixen18 [Anniversary Edition]
 ```bash
 magnet:?xt=urn:btih:489A07978F5D3DDC3F421B993C18B8E211306F7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

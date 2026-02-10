@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:1FA3B8318C39AB82716D7AF964C674DE0921FD7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Opera One 117.0.5408.93 Portable by Cento8 [Ru/En]
 magnet:?xt=urn:btih:9D0FA52DDBD5EA65749B0AE4B44F762EDFF5D60E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:D0E6EA3D11F56CB4204476318A8B50B40A126861
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Advanced Renamer хоть и бесплатная (   Читать дальше
 magnet:?xt=urn:btih:D09830A9225D397A0F041C97082B1CE440566551
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Visual Studio Enterprise 2022 - Интегрированное комплекс�
 ```bash
 magnet:?xt=urn:btih:182313574FB15AC50B40B8FAFC683179C42448B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 magnet:?xt=urn:btih:3E55CCD1D5C3ECFEB4FD1E8B0D8EC657AC0D49C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ AIMP 5.40 Build 2667 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:441EE2916A6E2FB8759FA1473D33EE8CF597D95B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Psiphon - это новый инструмент обхода интернет-�
 magnet:?xt=urn:btih:4F79F3925EF1F555FD2C2ED2FD766DC9B82462FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Paint.NET - Простой, но мощный и удобный редактор
 ```bash
 magnet:?xt=urn:btih:9196D3D8289969B9B4D973C17D8CAC9FAFA08769
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Brave - защищенный браузер на базе Chromium, постро
 magnet:?xt=urn:btih:F50539BF92D7094A2A7477BFB1D328D049BD68AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Office Tool Plus - функциональная программа для раб
 ```bash
 magnet:?xt=urn:btih:D0DD8A9BEEE70525BDE71BEF2749585C1F68D308
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Red Button – это мощная утилита для оптимизации 
 magnet:?xt=urn:btih:432BA5FD4BAE11D3A4F71A648217D625565714D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:432BA5FD4BAE11D3A4F71A648217D625565714D6
 magnet:?xt=urn:btih:7B560155F6E745232BC8C8AFDF899DFB7374E074
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:8ED6A49373C564CE07574E5414A045D3550F82D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7
 magnet:?xt=urn:btih:E935CC18C89402BA7A2B179531AE449E7FC8FC65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Vivaldi 7.1.3570.60 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5D8D9C3A77CC672AEF083F9C3CFCAB76B3C5129F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ WizFile простая в использовании программа для �
 magnet:?xt=urn:btih:279437400BA29EA49B573C9D102B31A5375FA0A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Opera One 117.0.5408.93 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:35D63CC780C4DE7FF02C99062269E506CBC25716
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ TikTok - социальное приложение для тех кто пред
 magnet:?xt=urn:btih:4C3D45BEE1B65BF4B61986FD8BD6FE3C7BF9F921
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Alfa eBooks Manager - одна из самых популярных програ
 ```bash
 magnet:?xt=urn:btih:F1AE9CE599B752A949411916C334A6F534869CBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ Kdenlive - бесплатный нелинейный видеоредактор,
 magnet:?xt=urn:btih:133210EABB05C2983486B3AC0A7E5099CEA391C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ EF Commander  — замечательный двухпанельный файл
 ```bash
 magnet:?xt=urn:btih:83EF1284E7C810648FAC0154307AD2F84243FB74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ PilotEdit можно использовать для редактировани�
 magnet:?xt=urn:btih:0ED2F9EB0D00927B7C7EDC76BD01A4B6CE8E1726
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Xplorer2 Ultimate - профессиональная версия небольш
 magnet:?xt=urn:btih:8E5F94468610D05226396298639E1A933A7FED50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ Aiseesoft Screen Recorder 3.1.16 RePack (& Portable) by elchupacabra (x64) [Mult
 ```bash
 magnet:?xt=urn:btih:E2766AD2B11B9E2DDD26F494DC035B0690ECC98D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:E2766AD2B11B9E2DDD26F494DC035B0690ECC98D
 ```bash
 magnet:?xt=urn:btih:177CE973E1018F846F73D5D5F2B4E062DFFD4DF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

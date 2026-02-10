@@ -1,3 +1,29 @@
+###  Публикация: 1323336   (437512) от 03.09.2019
+
+Сергей Плотников | Аколит (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_437512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раньше он был обычным менеджером средних лет без каких-либо амбиций. То, что он оказался в другом мире и в чужом теле, можно считать настоящим подарком судьбы. Ведь это шанс начать все заново! Здесь все по-другому. Магия, монстры, вероломные волшебники и неведомые существа. Стать охотником на монстров – довольно неплохая участь для того, кто раньше был офисным планктоном (   Читать дальше...   )Жанр: Боевое фэнтези, ПопаданцыПродолжительность: 12:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70C02853DD22EF156061414098A0B90AA52F33C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1323304   (437519) от 03.09.2019
 
 Ренделл Фрейкс | Терминатор (2019) [MP3]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:74A502F713B808858FFF4D6F6B9E7095C59C9EFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ Nerus | Прах и сталь (2018) [MP3]
 magnet:?xt=urn:btih:EBFC36A7161684F5562FF8EAAB0036F64709FE5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:EBFC36A7161684F5562FF8EAAB0036F64709FE5D
 ```bash
 magnet:?xt=urn:btih:EF47A4C04EE609CDBCECA46F1745519214347DFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:EF47A4C04EE609CDBCECA46F1745519214347DFA
 magnet:?xt=urn:btih:F6F31EBA5BFE238B94EA9916D5EBB5D87EDB19C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:F6F31EBA5BFE238B94EA9916D5EBB5D87EDB19C9
 magnet:?xt=urn:btih:8FD61CA9ED7FCC91D89D5E1B0F4FAB5DE179407E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:8FD61CA9ED7FCC91D89D5E1B0F4FAB5DE179407E
 ```bash
 magnet:?xt=urn:btih:D4CB4C3650688D61DC1A495AA7FC82F767F50AD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:D4CB4C3650688D61DC1A495AA7FC82F767F50AD1
 magnet:?xt=urn:btih:D49655B0F32B64C0DE35CF1FE569B32B3FF8AAA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:D49655B0F32B64C0DE35CF1FE569B32B3FF8AAA4
 magnet:?xt=urn:btih:B7B2917B3434188FC513073A43D564D0FB70848A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:B7B2917B3434188FC513073A43D564D0FB70848A
 ```bash
 magnet:?xt=urn:btih:EBA2A0D80EF7D6598813C797F169DE05E132D70E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:EBA2A0D80EF7D6598813C797F169DE05E132D70E
 magnet:?xt=urn:btih:8ECF84641280413493B0C1A80AC1D4CB04011129
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:8ECF84641280413493B0C1A80AC1D4CB04011129
 ```bash
 magnet:?xt=urn:btih:322FE42A33643987C9F74E5B51349949374D44D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:322FE42A33643987C9F74E5B51349949374D44D0
 magnet:?xt=urn:btih:C7B3B57F3D8B460E1E2D1449486DA68C28AE219B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:C7B3B57F3D8B460E1E2D1449486DA68C28AE219B
 ```bash
 magnet:?xt=urn:btih:C31587B2CF8C524418033B86B4FE8C76347281AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:C31587B2CF8C524418033B86B4FE8C76347281AC
 magnet:?xt=urn:btih:BC381B24A9C6F02364DB76D0B0C1EF18DECED42E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:BC381B24A9C6F02364DB76D0B0C1EF18DECED42E
 ```bash
 magnet:?xt=urn:btih:348196DA206E21489A2C2CF94E164480FD107361
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:348196DA206E21489A2C2CF94E164480FD107361
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:348196DA206E21489A2C2CF94E164480FD107361
 ```bash
 magnet:?xt=urn:btih:075F52DAA2A2D27C26243FA3C32E2C3343DA125C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:075F52DAA2A2D27C26243FA3C32E2C3343DA125C
 magnet:?xt=urn:btih:297DB0A7282A43BB19FE6BA721E3748F22DD78FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:297DB0A7282A43BB19FE6BA721E3748F22DD78FD
 ```bash
 magnet:?xt=urn:btih:EDE2FE72591C8AA94EB3AA301EC6E24CFDE9E62B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:EDE2FE72591C8AA94EB3AA301EC6E24CFDE9E62B
 magnet:?xt=urn:btih:3CE0CC2FA30343CFDF227AF82F2BBBC6D44A1844
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:3CE0CC2FA30343CFDF227AF82F2BBBC6D44A1844
 ```bash
 magnet:?xt=urn:btih:98ED1DCBEBB30191B6637F00F9513D7BBBBB8853
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +598,8 @@ magnet:?xt=urn:btih:98ED1DCBEBB30191B6637F00F9513D7BBBBB8853
 magnet:?xt=urn:btih:F14B31A331BF7F75034B39B0E7543FACA2866D57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:F14B31A331BF7F75034B39B0E7543FACA2866D57
 ```bash
 magnet:?xt=urn:btih:AE829EBECA378A332EF9C96B4AC57EAB4686B9C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:AE829EBECA378A332EF9C96B4AC57EAB4686B9C8
 magnet:?xt=urn:btih:7D879DD50097F9A8CF83AE1B03BC313A4EBBCAED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,29 +678,7 @@ magnet:?xt=urn:btih:7D879DD50097F9A8CF83AE1B03BC313A4EBBCAED
 magnet:?xt=urn:btih:D2A04F3F07999C2525FFEE63C7F062F75C071BF4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062193   (439802) от 14.10.2016
-
-Брэм Стокер | Проклятие мумии, или Камень семи звезд (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439802.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Проклятие мумии, или Камень семи звезд", ранее издававшийся под названием "Талисман мумии". Успешный адвокат полюбил прекрасную Маргарет — дочь знаменитого ученого-египтолога. Именно отец девушки нашел мумию египетской царицы Теры, добровольно ушедшей из жизни, чтобы воскреснуть через тысячелетия. И вот дух царицы обрел свободу... Ожившая мумия, (   Читать дальше...   )Жанр: Фэнтези, ужасыПродолжительность: 09:29:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3682A448B7892EE291316B4F53FF848A4ECA0E0
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

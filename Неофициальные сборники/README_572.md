@@ -1,3 +1,32 @@
+###  Публикация: 1375138   (868983) от 12.04.2020
+
+VA - Acoustic Rock vol.3 (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. America - A Horse with No Name (04:12)
+02. Bread - Everything I Own (03:07)
+03. Faces - Ooh La La (03:34)
+04. Alanis Morissette - Ironic - Acoustic Version (03:55)(   Читать дальше...   )Жанр: RockПродолжительность: 01:40:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1199BDF5A56B472712B1349C871022942FB5CFBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374962   (869094) от 12.04.2020
 
 VA - Music For Everyone - Vocal Trance & Progressive Vol.6 (2020) [MP3|320 Kbps] <Trance, Progressive Trance, Vocal Trance>
@@ -22,6 +51,8 @@ VA - Music For Everyone - Vocal Trance & Progressive Vol.6 (2020) [MP3|320 Kbps]
 magnet:?xt=urn:btih:B415DDEBC2355E0C683EBCF1E08B6CB50F2156FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +76,8 @@ VA - Высшая лига интернациональная 50/50 (2011) [MP3|
 ```bash
 magnet:?xt=urn:btih:9F044EDBBF018CA66A1073264416D9F3341562AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +106,8 @@ VA - Громкие новинки Сентября (2021) [MP3|320 Kbps] <Pop, 
 magnet:?xt=urn:btih:9D920852FB9884F5577B7C6916B9876696452BC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +134,8 @@ VA - Deep House, Baby (2021) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:1007365AC823FC0A98E919A2B2373C481326E746
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +164,8 @@ VA - ЕвроХит Топ 40 Europa Plus 17.09.2021[MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:59811E18927800A64A622CD3D03E5C98B59E0C72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +192,8 @@ VA - Unknown 80's (part IV) (2017) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop
 ```bash
 magnet:?xt=urn:btih:B6884ACA586F322AD871B2E26FD38B153196B452
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +222,8 @@ VA - Большой Мальчишник (2017) [MP3|320 Kbps] <Pop , Rock , Cha
 magnet:?xt=urn:btih:11D960A2F9FEF962704489F4AD6C5E81443A5DD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +250,8 @@ VA - Beatport Tech House: Sound Pack #350 (2021) [MP3|320 Kbps] <Club, Tech Hous
 ```bash
 magnet:?xt=urn:btih:F4E6485C7FF2722C6E261433AAE52938AD0C9FED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +280,8 @@ VA - Deep House Collection Vol.109 (2017) [MP3|217-320 Kbps] <Deep House, Club H
 magnet:?xt=urn:btih:C73C8CBDC9C1F74B539B3798B7414F3043D77589
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +308,8 @@ VA - Хиты в тачку выпуск № 4 (2017) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:E985E7B1073DBE27E31B380E0BBDD257A5BD0CDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +338,8 @@ VA - Space Electronic Disco (2017) [MP3|320 Kbps] <pacesynth, Electronic Disco, 
 magnet:?xt=urn:btih:206BB95261DB6EE58C9774E070DE4F39FD18A749
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +366,8 @@ VA - 110 New Generation Italo Disco (2017) [MP3|320 Kbps] <Disco, Pop>
 ```bash
 magnet:?xt=urn:btih:85A91CD359A768572E05CDEE5D3A7A8EAF53D807
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +396,8 @@ VA - Автозвук. Отборный зимний хит. Часть № 6 (2
 magnet:?xt=urn:btih:4FF4D7C725E116E1A4DF912C5A11E50EA3357257
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +424,8 @@ VA - Танцевальная вечеринка от Хит FM (2017) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:0A7C390E3BEE7261EC178AB4A37F8A53351F721B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +454,8 @@ VA - Dance The Movement (2017) [MP3|251-320 Kbps] <Dance, Pop, Club, House>
 magnet:?xt=urn:btih:4A4D0F55A28C31A04A6C63172F08E1905B5E01A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +482,8 @@ magnet:?xt=urn:btih:4A4D0F55A28C31A04A6C63172F08E1905B5E01A1
 ```bash
 magnet:?xt=urn:btih:889A219E85574F395D88065B16DAE37ED0AFE1F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +512,8 @@ VA - Весенние хиты. Сборник популярных песен (
 magnet:?xt=urn:btih:2189C32FDC4497D1A8A24C30A9F3872507640026
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +540,8 @@ VA - Blues Forever vol.37 - vol.40 (2015) [MP3|320 кб/с] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:0C33F7640C3CA3828B8F8B958D98C929F8C3DBD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +570,8 @@ VA - Музыка хорошего настроения 4 (2016) [MP3|256 кб/�
 magnet:?xt=urn:btih:BD0EB92D2C0C9766E758B200A3DE981588499E8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +598,8 @@ VA - Дорожный Шансон На Скорости (2016) [MP3|256-320 к�
 ```bash
 magnet:?xt=urn:btih:0F443B6E101B921079C81ECE5BAB2082B4471834
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +628,8 @@ VA - Радио шансон. Следом за тобой (2016) [MP3|256 кб/
 magnet:?xt=urn:btih:824560ECEA3CDBE67B3615BF87D6AD647D00DCDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +656,8 @@ Chris Rea - 100% Chris Rea (2020) [MP3|320 Kbps] <Blues, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:9F749987DFED59723F53AF99C36F30C1E7CEA4DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +686,8 @@ VA - Beatport Electronic: Sound Pack #45 (2020) [MP3|320 Kbps] <Synthwave>
 magnet:?xt=urn:btih:E002A39653674919058A56BCA837947D3CCF0910
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +714,8 @@ VA - Романтика: Хиты на все времена (2020) [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:84C81B51DD782BEA594EB43D9F6CE35C56E2E4A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,32 +744,7 @@ Leo Rojas - 100% Leo Rojas (2020) [MP3|320 Kbps] <Native American, New age, Worl
 magnet:?xt=urn:btih:8C4264BD08B56083539FF70F36413944A5515516
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374720   (870665) от 11.04.2020
-
-VA - Top 100 Зайцев.нет Март (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870665.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kygo feat. Sasha Sloan - I'll Wait 3:35
-002. ENJOYME - Поцелуйчик 2:52
-003. H1GH - Шатаюсь по дворам 2:26
-004. BLR & Danny Quest - Escapar 3:11(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:22:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D36C6586348B7562F07548755C96CDFD29E045A1
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -21,6 +21,8 @@ Ventoy - это инструмент с открытым исходным код
 magnet:?xt=urn:btih:E30CD5761502311A1BA88DFC911ECBD18F048A50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Q-Dir позволяет получать быстрый доступ к час�
 magnet:?xt=urn:btih:3B0F594D61F011150169FC95CF5D1EB7E4F95B90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ System Dashboard Pro — это современная интерпретаци�
 ```bash
 magnet:?xt=urn:btih:31D9ADB65E699B50B0AD4CCBA141655A78AE70DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Altium Designer — это мощная система, позволяющая �
 magnet:?xt=urn:btih:7257BB1FC42D6385148A705F94BB178CDC272714
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Microsoft® Windows® 7 Ultimate Ru x86/x64 nBook IE11 by OVGorskiy 03.2023 1DVD
 ```bash
 magnet:?xt=urn:btih:A3EE669580A77A179D1EAF1DEF11C2DC92E9DE71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Autodesk 3ds Max предоставляет все необходимые инс
 magnet:?xt=urn:btih:3AB0BC32497D48AB3037A2DB0FC232B4AAE13769
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Master of Typing создан для тех, кто хочет научитьс�
 ```bash
 magnet:?xt=urn:btih:EB90D7E12676BD6910D170A548F87ECE70D011EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Sumatra PDF — мощная, небольшая программа с прос�
 magnet:?xt=urn:btih:D4D1939B564B862BF17C9ADF9D69BC24B374F23E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ One Switch - это крошечное приложение, разработа�
 ```bash
 magnet:?xt=urn:btih:825DE331E4178F45BE76B3177C3014CC3C48E7A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Monkey's Audio — данная утилита предназначена для
 ```bash
 magnet:?xt=urn:btih:AB5057F5B00DE4EB58F44B6951F1890256C36D8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:AB5057F5B00DE4EB58F44B6951F1890256C36D8C
 magnet:?xt=urn:btih:BED1FB7F61BA4866F99F4AF58CC043D062B76CF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:BED1FB7F61BA4866F99F4AF58CC043D062B76CF1
 ```bash
 magnet:?xt=urn:btih:EF53E2FFD0A3FA8E33937C953A972028EFA6D817
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ DeepChord - Label Pack (2000-2003) [MP3|192-320 кб/с]<Dub Techno, Ambient, Mi
 magnet:?xt=urn:btih:0E131144507760C6DE06EC4DFA6B2DE58049883F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:0E131144507760C6DE06EC4DFA6B2DE58049883F
 ```bash
 magnet:?xt=urn:btih:E49CB0A4DE8BB284C92A5912AD8C7A86C23EDFEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +406,8 @@ VA - Chilling Deluxe (2009) [FLAC|Lossless]<Chillout, Downtempo>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ VA - Chilling Deluxe (2009) [FLAC|Lossless]<Chillout, Downtempo>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +467,8 @@ Armin van Buuren presents - Downtempo Sessions (Time To Relax) (2012) [MP3|~224 
 magnet:?xt=urn:btih:8F9AB074D2B081BD674273A8440DF930AAC9D5DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +492,8 @@ magnet:?xt=urn:btih:8F9AB074D2B081BD674273A8440DF930AAC9D5DF
 ```bash
 magnet:?xt=urn:btih:2C60EAD071F7E147D947A2B7183EC2F088C8072C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +519,8 @@ magnet:?xt=urn:btih:2C60EAD071F7E147D947A2B7183EC2F088C8072C
 magnet:?xt=urn:btih:ADA7120E003112838CCD9CFCF2F6359D356319A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ magnet:?xt=urn:btih:ADA7120E003112838CCD9CFCF2F6359D356319A6
 ```bash
 magnet:?xt=urn:btih:0EF406117BC8AF483E5F35E0B09EAAB130E84231
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +571,8 @@ WinUtilities - системный набор для настройки ваше�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +597,8 @@ WinUtilities - системный набор для настройки ваше�
 magnet:?xt=urn:btih:11226ED4C7AA64A8223301AAB67CE52018C89D9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +622,8 @@ magnet:?xt=urn:btih:11226ED4C7AA64A8223301AAB67CE52018C89D9E
 ```bash
 magnet:?xt=urn:btih:B32723A523607FB2366569C7023EC6EF2A2FF377
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +650,8 @@ Infix PDF Editor Professional - позволяет редактировать и
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +680,8 @@ Ben Sims - 3 EP (2011-2012) [MP3|320 kbps]<Techno, Tech House, Disco House>
 magnet:?xt=urn:btih:4B16420A13F17DBA6BBAC073D6FE2C9FDC7B5B46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ Auslogics Disk Defrag - бесплатная программа, призван�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

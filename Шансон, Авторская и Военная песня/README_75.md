@@ -22,6 +22,8 @@ VA - Песни о Родине. Песни о России (2021) [MP3|320 Kbps
 magnet:?xt=urn:btih:D54101C2335FF27D1F9E00CC037D09AE6D2282CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Пацанам городских окраин (2004) [MP3|320 Kbps] <Ша�
 ```bash
 magnet:?xt=urn:btih:804A0321CF0466788992E78BF43D3D74DD41C5E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -77,6 +81,8 @@ magnet:?xt=urn:btih:804A0321CF0466788992E78BF43D3D74DD41C5E6
 magnet:?xt=urn:btih:86BFF2A1875179708FE7C4A6AA4B270E122F541A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ magnet:?xt=urn:btih:86BFF2A1875179708FE7C4A6AA4B270E122F541A
 ```bash
 magnet:?xt=urn:btih:4BBD32B606245A3BC4A8DF2A3B1E7C51D884F857
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -131,6 +139,8 @@ VA - На волне любимого радио шансон (2005) 2 CD [MP3|3
 magnet:?xt=urn:btih:4C802D074405788781291B8DD9CEAE4583ACF4B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ magnet:?xt=urn:btih:4C802D074405788781291B8DD9CEAE4583ACF4B9
 ```bash
 magnet:?xt=urn:btih:7814412C2DA3B60D1B37A0FFD932A9303EB84763
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -185,6 +197,8 @@ magnet:?xt=urn:btih:7814412C2DA3B60D1B37A0FFD932A9303EB84763
 magnet:?xt=urn:btih:1850ADF854D9A84E3D4B3F909875E80993DCB649
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ VA - Дискотека русского шансона (2020) [MP3|320 Kbps] <�
 ```bash
 magnet:?xt=urn:btih:9E3459BDE42EEE475550215E1B48EC005E920301
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +255,8 @@ magnet:?xt=urn:btih:9E3459BDE42EEE475550215E1B48EC005E920301
 magnet:?xt=urn:btih:89C9F57CD94E2151DAC22A03FD0AC86411B520E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +283,8 @@ magnet:?xt=urn:btih:89C9F57CD94E2151DAC22A03FD0AC86411B520E4
 ```bash
 magnet:?xt=urn:btih:E4B5DB6533FB86F8DCFA5FCCB74804B4A7D1815D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +313,8 @@ magnet:?xt=urn:btih:E4B5DB6533FB86F8DCFA5FCCB74804B4A7D1815D
 magnet:?xt=urn:btih:1FE05D2F550DEC228B34AE9CA308897C8F693E94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +341,8 @@ magnet:?xt=urn:btih:1FE05D2F550DEC228B34AE9CA308897C8F693E94
 ```bash
 magnet:?xt=urn:btih:847233826ABACC4544FD02FA84475193B80E0E88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +371,8 @@ magnet:?xt=urn:btih:847233826ABACC4544FD02FA84475193B80E0E88
 magnet:?xt=urn:btih:8476F64774A559B39A66A8172C8F0548D0EE74E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +399,8 @@ VA - На волне любимого радио шансон (2005) 2 CD [FLAC|
 ```bash
 magnet:?xt=urn:btih:2FD28DDFA10A00F9CA24B9CDA399592F9A483297
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +429,8 @@ magnet:?xt=urn:btih:2FD28DDFA10A00F9CA24B9CDA399592F9A483297
 magnet:?xt=urn:btih:E5698D3B0E73FC9619101CDC1562F722107FDCAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +457,8 @@ magnet:?xt=urn:btih:E5698D3B0E73FC9619101CDC1562F722107FDCAE
 ```bash
 magnet:?xt=urn:btih:469064A80C465DBF56753DD70A44D143508AF9BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +487,8 @@ magnet:?xt=urn:btih:469064A80C465DBF56753DD70A44D143508AF9BE
 magnet:?xt=urn:btih:3AD61F0CFE51A8E1E060F70DAFFCAF13D08C8C5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +515,8 @@ magnet:?xt=urn:btih:3AD61F0CFE51A8E1E060F70DAFFCAF13D08C8C5E
 ```bash
 magnet:?xt=urn:btih:44367EDEE80E3E36529767FDEEB739278FDF2F8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +545,8 @@ Salvatore Adamo - In French Please ! (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, 
 magnet:?xt=urn:btih:2D7099F7BF3E396419AB09FF2984ABAFDD1780F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +573,8 @@ VA - Шоферской 12 (2002) [MP3|320 Kbps] <Шансон>
 ```bash
 magnet:?xt=urn:btih:881D722EC301BFF220DB128FC5C8D43EE6F63A8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +603,8 @@ magnet:?xt=urn:btih:881D722EC301BFF220DB128FC5C8D43EE6F63A8A
 magnet:?xt=urn:btih:545536CCD826C6769457151DDF138602BC7DED9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +631,8 @@ magnet:?xt=urn:btih:545536CCD826C6769457151DDF138602BC7DED9B
 ```bash
 magnet:?xt=urn:btih:45BAD13DCBB31547F3BA69E608AF6B588A562436
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +661,8 @@ magnet:?xt=urn:btih:45BAD13DCBB31547F3BA69E608AF6B588A562436
 magnet:?xt=urn:btih:6DDFC4FC7351887242D51D4DA22AD5047B777DD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +689,8 @@ magnet:?xt=urn:btih:6DDFC4FC7351887242D51D4DA22AD5047B777DD9
 ```bash
 magnet:?xt=urn:btih:A1CC6E109F835F5C6C04869DA5317EFBF4AE0469
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -671,6 +719,8 @@ magnet:?xt=urn:btih:A1CC6E109F835F5C6C04869DA5317EFBF4AE0469
 magnet:?xt=urn:btih:320C4F1EB4ED7C75E272625A2E1003BDC47A5382
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -697,6 +747,8 @@ magnet:?xt=urn:btih:320C4F1EB4ED7C75E272625A2E1003BDC47A5382
 ```bash
 magnet:?xt=urn:btih:10612850A878583336D49F1A9D3A40C52BD1BCF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

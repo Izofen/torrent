@@ -1,3 +1,29 @@
+###  Публикация: 989598   (915395) от 23.02.2016
+
+Мария Полякова. Своя среди чужих (2015) DVB
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о судьбе одной из немногих советских женщин-резидентов Марии Поляковой. Она умерла 7 мая 1995 года за два дня до юбилея Великой Победы. Автору фильма удалось незадолго до ее смерти записать большое интервью с "резидентом Марией". Это интервью и легло в основу фильма.Телекомпания: Студия "Русский космос"Жанр: ДокументальныйПродолжительность: 00:54:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B05531C2AEF7A2BC24501FDD51066F0C95E3A111
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367526   (915415) от 16.03.2020
 
 Леонардо: загадка утраченного портрета / Leonard de Vinci, le Portrait Retrouve (Leonardo: The Mystery of the Lost Portrait) (2018) UHDTV [H.265/2160p] [4K, SDR, 10-bit, 50fps]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:4CB255DDC6F16A9016087DB548E49A3199DFC0F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:4CB255DDC6F16A9016087DB548E49A3199DFC0F5
 magnet:?xt=urn:btih:7EDDBE747A0888F507A87836C5B16D64FF9844A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:7EDDBE747A0888F507A87836C5B16D64FF9844A0
 ```bash
 magnet:?xt=urn:btih:1023BF755688EA5CBCE6A8AB7F85EC9E0B2EB9E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:1023BF755688EA5CBCE6A8AB7F85EC9E0B2EB9E7
 magnet:?xt=urn:btih:DCEB169C35C63D8D52CD47068FDCC30E17A01A23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:DCEB169C35C63D8D52CD47068FDCC30E17A01A23
 magnet:?xt=urn:btih:460F6618EAB08F2F34C906AF48C40F44241AAB73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:460F6618EAB08F2F34C906AF48C40F44241AAB73
 ```bash
 magnet:?xt=urn:btih:9061D5E4530D12223F41CC7B41B9969B5D77E3B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:9061D5E4530D12223F41CC7B41B9969B5D77E3B7
 magnet:?xt=urn:btih:D7255AA4983D77E9EC913CF765C577D7DC7D1A91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:D7255AA4983D77E9EC913CF765C577D7DC7D1A91
 ```bash
 magnet:?xt=urn:btih:BB7AC2C7B5124BC54F193DDAFA679FFE6A3948A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:BB7AC2C7B5124BC54F193DDAFA679FFE6A3948A3
 magnet:?xt=urn:btih:B18DBEE1D9E3710C0F29581E1E948CB742E6B68A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:B18DBEE1D9E3710C0F29581E1E948CB742E6B68A
 ```bash
 magnet:?xt=urn:btih:15FAD90C2010E6D549B51F7099664BD8676D4CFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:15FAD90C2010E6D549B51F7099664BD8676D4CFF
 magnet:?xt=urn:btih:E390DF2E4CBB511249B0DDDFE485F633A06DED9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:E390DF2E4CBB511249B0DDDFE485F633A06DED9F
 ```bash
 magnet:?xt=urn:btih:34DDA45A242049D1F58B05054A7CA0E8917BEFAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:34DDA45A242049D1F58B05054A7CA0E8917BEFAC
 magnet:?xt=urn:btih:22505DC2D57102687ECD68D527B10F3B6770EE5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:22505DC2D57102687ECD68D527B10F3B6770EE5C
 magnet:?xt=urn:btih:6C35627B915FCCF82E170A56FBAE17627D14B703
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:6C35627B915FCCF82E170A56FBAE17627D14B703
 magnet:?xt=urn:btih:AA8DD05E62A2483BBE8CDEB292A37E7F1594B013
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:AA8DD05E62A2483BBE8CDEB292A37E7F1594B013
 ```bash
 magnet:?xt=urn:btih:BD9DD34FF7DFB5C903ABE0917E97A93036CF0613
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:BD9DD34FF7DFB5C903ABE0917E97A93036CF0613
 magnet:?xt=urn:btih:713E4765C6D7B3C25B7A5821266C71FE5D861315
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:713E4765C6D7B3C25B7A5821266C71FE5D861315
 ```bash
 magnet:?xt=urn:btih:4B526C0D423932BE7B7F616598DBB04C33AD0B56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:4B526C0D423932BE7B7F616598DBB04C33AD0B56
 magnet:?xt=urn:btih:C5B40B8B0244404FE4D1D8807F3674E7AB02ECA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:C5B40B8B0244404FE4D1D8807F3674E7AB02ECA3
 magnet:?xt=urn:btih:D6637782744827D91308B72DEBBD74069E1903FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:D6637782744827D91308B72DEBBD74069E1903FA
 ```bash
 magnet:?xt=urn:btih:1A8286CF1A46162D698F480AC567FBF4A149BEED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +600,8 @@ magnet:?xt=urn:btih:1A8286CF1A46162D698F480AC567FBF4A149BEED
 magnet:?xt=urn:btih:D237F590FA99BEB10B94186998DF47AC87C1B88B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:D237F590FA99BEB10B94186998DF47AC87C1B88B
 ```bash
 magnet:?xt=urn:btih:24D3DCC043ACBF51F30392D4D7AA08579E792E39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +654,8 @@ magnet:?xt=urn:btih:24D3DCC043ACBF51F30392D4D7AA08579E792E39
 magnet:?xt=urn:btih:F9B242069392CDA998862CC0DB1893F0E1BADEBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,30 +681,7 @@ magnet:?xt=urn:btih:F9B242069392CDA998862CC0DB1893F0E1BADEBA
 magnet:?xt=urn:btih:98D7A1D1B4521B047D2B49025C5BD78C8E6FFBCF
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989541   (916902) от 22.02.2016
-
-День космических историй. Кто управляет водой?  (2016.02.22) SATRip
-
->>Документалистика и Телепередачи
->>Космос
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916902.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый день приносит научные сенсации. Порой они опровергают незыблемые истины. Или решают глобальные проблемы, над которыми столетиями бились ученые. Но однозначно - меняют будущее человечества.
-День космических историй - это хит-парад самых новых и интересных научно-популярных программ. Каждый фильм - это увлекательное путешествие в мир сенсационных открытий. Эксклюзивные (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3AEAC6854DDA1F0A5692E6003099FDFFB5CB5C3
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

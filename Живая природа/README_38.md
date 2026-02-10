@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:F43E2540C817C17C3C461851DF98F0CA4AAE2BF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:F43E2540C817C17C3C461851DF98F0CA4AAE2BF2
 ```bash
 magnet:?xt=urn:btih:CB24A2DC1524E53F57A32C858825895D322D33C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NG. Дикая Арктика / Wild Arctic (2018) WEB-DL [H.264/1080p] (Сер�
 magnet:?xt=urn:btih:279437F93477BB168B8D64D0D3F50ECA8C7A454F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:279437F93477BB168B8D64D0D3F50ECA8C7A454F
 ```bash
 magnet:?xt=urn:btih:C0096074AE6CBC0BB43A81A9EEE6C7E863D46544
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:C0096074AE6CBC0BB43A81A9EEE6C7E863D46544
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:C0096074AE6CBC0BB43A81A9EEE6C7E863D46544
 ```bash
 magnet:?xt=urn:btih:100B470387272C825C7A4DD3B3145E13AEF66402
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:100B470387272C825C7A4DD3B3145E13AEF66402
 magnet:?xt=urn:btih:B9E388CA0415196E61C08AFEADDE0675E390F54C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ NG. Кевин Ричардсон - Заклинатель львов / Kevin Ri
 ```bash
 magnet:?xt=urn:btih:4D3C4251D76DF3901765DFA1584DAC988299E705
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:4D3C4251D76DF3901765DFA1584DAC988299E705
 magnet:?xt=urn:btih:813B18AE808951D4CCC3F5819DC8B66564AA2A6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ BBC. Как устроена природа / Secrets of Our Living Planet (2012
 magnet:?xt=urn:btih:7832D504CE43D628004C9BD47600248F0EE97E00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ magnet:?xt=urn:btih:7832D504CE43D628004C9BD47600248F0EE97E00
 ```bash
 magnet:?xt=urn:btih:039CCD728D087AF2B3F82F552FAB9FE7DEF352BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:039CCD728D087AF2B3F82F552FAB9FE7DEF352BE
 magnet:?xt=urn:btih:1C918D45C2F0A29D4F34FE2D875FC5A137E97787
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:1C918D45C2F0A29D4F34FE2D875FC5A137E97787
 ```bash
 magnet:?xt=urn:btih:4A9EDDC26BFF4477557939D139473CC60722877E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Animal Planet. Чудеса голубой планеты. Семь контин
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Animal Planet. Чудеса голубой планеты. Семь контин
 magnet:?xt=urn:btih:E507ADC15AE70C0C73DADD6B28A06D97A7B0D275
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ magnet:?xt=urn:btih:E507ADC15AE70C0C73DADD6B28A06D97A7B0D275
 ```bash
 magnet:?xt=urn:btih:76DBA834F1A1EB13E34D259D534C0ED3F65EF3CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ IMAX: Голубая планета / Blue Planet (1990) BDRemux [VC-1/1080p] [E
 magnet:?xt=urn:btih:60BC1C979B576B1BEF64590875EE5F1F55B82373
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:60BC1C979B576B1BEF64590875EE5F1F55B82373
 ```bash
 magnet:?xt=urn:btih:5C18EE227CD181F98EBCFE2C64DD83558CA0A9C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:5C18EE227CD181F98EBCFE2C64DD83558CA0A9C9
 magnet:?xt=urn:btih:6DCA02218B6B908F4CDE0822DB63AD3FA16B1223
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:6DCA02218B6B908F4CDE0822DB63AD3FA16B1223
 ```bash
 magnet:?xt=urn:btih:196AA02DF103C5CF6A226DDE204506F0B5DFBE6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:196AA02DF103C5CF6A226DDE204506F0B5DFBE6B
 magnet:?xt=urn:btih:EB8534D5013070BAD0AD090FDE220CD01FADDC01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:EB8534D5013070BAD0AD090FDE220CD01FADDC01
 ```bash
 magnet:?xt=urn:btih:9895FF321071C3674F4CE45D21A4342A199C2B81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:9895FF321071C3674F4CE45D21A4342A199C2B81
 magnet:?xt=urn:btih:9D63BB24E614A3F9ABB8BA75BF4BDC508ECF28E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:9D63BB24E614A3F9ABB8BA75BF4BDC508ECF28E7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:9D63BB24E614A3F9ABB8BA75BF4BDC508ECF28E7
 magnet:?xt=urn:btih:469EA72CBA34DE167B09EB856D6B47A513384423
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:469EA72CBA34DE167B09EB856D6B47A513384423
 ```bash
 magnet:?xt=urn:btih:7054937FED0F8C426BE00B7B6C49A9E526CF4371
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

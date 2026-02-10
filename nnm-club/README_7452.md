@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ VA - Deep Strips (2018) [MP3|320 Kbps] <Funky, Dance, Nu Disco, Deep House>
 magnet:?xt=urn:btih:22EA2ABB248FB5C481915CD5C314037E5B43FA38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Lasso — оконный менеджер для macOS. Перемещайте �
 magnet:?xt=urn:btih:22C9043B89BA02593C4C9D35ABF2DB9848B6C5BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:22C9043B89BA02593C4C9D35ABF2DB9848B6C5BF
 ```bash
 magnet:?xt=urn:btih:9B3D55CD0EDB38F7A17553F76EF2E46ED43656FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:9B3D55CD0EDB38F7A17553F76EF2E46ED43656FC
 magnet:?xt=urn:btih:6E413AE7BD86FCD5E93E18F7BD20FC96FF0A6267
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ This War of Mine v6.0.8 (2014) [Multi/Ru] [macOS Native game]
 ```bash
 magnet:?xt=urn:btih:BA52DAA4B9C9B7B1228A14054D8EC314FB3A8A82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ VA - I Saw You Dancing (2001) Приложение к журналу Stereo & Vi
 magnet:?xt=urn:btih:555B70F111FD3A1D06F07BAD7E3BF06CA0400E64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ Sabaton - Steel Commanders (2021) EP [FLAC|Lossless|image + .cue] <Heavy Metal, 
 magnet:?xt=urn:btih:8142303A0C07BA53D0F45BBB1EA4AF1B346EA4A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ Smoke Color - простой в использовании экшен фотош
 ```bash
 magnet:?xt=urn:btih:1B07417C66FDFBC523D7B63FA49FB48315E459C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:1B07417C66FDFBC523D7B63FA49FB48315E459C2
 magnet:?xt=urn:btih:805EC5F309C72763F3B79E5EC9879EE171347CCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:805EC5F309C72763F3B79E5EC9879EE171347CCC
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:805EC5F309C72763F3B79E5EC9879EE171347CCC
 magnet:?xt=urn:btih:B0129D0D536897CA61AF6F82CFEA2BD704DC8166
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:B0129D0D536897CA61AF6F82CFEA2BD704DC8166
 ```bash
 magnet:?xt=urn:btih:424FA10717E81216250651D5FF6C6C5D14C410FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:424FA10717E81216250651D5FF6C6C5D14C410FE
 magnet:?xt=urn:btih:278DCD9880B730FE7B53AA7AA20EEE866AB6DC68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ Antivirus Removal Tool - портативный набор официальны�
 ```bash
 magnet:?xt=urn:btih:DCEE8C562BBA0ED208462D6F3D9951FA9F367ABF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ The Bat! - популярный клиент электронной почты; 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ The Bat! - популярный клиент электронной почты; 
 ```bash
 magnet:?xt=urn:btih:DE750CB24F83F1DA1FB3A26ADB76172E8BCAD0F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +478,8 @@ magnet:?xt=urn:btih:DE750CB24F83F1DA1FB3A26ADB76172E8BCAD0F6
 ```bash
 magnet:?xt=urn:btih:5228619A561F58ADDD7340F3832B750C058E11C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +508,8 @@ CGEvent | Подборка мастерклассов по трехмерке М
 magnet:?xt=urn:btih:96555C808496625A8232F16B32D4C13809B1959E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:96555C808496625A8232F16B32D4C13809B1959E
 ```bash
 magnet:?xt=urn:btih:05CC43DD47630DADF005501FAF5F4AE936E48E7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +564,8 @@ magnet:?xt=urn:btih:05CC43DD47630DADF005501FAF5F4AE936E48E7A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ magnet:?xt=urn:btih:05CC43DD47630DADF005501FAF5F4AE936E48E7A
 magnet:?xt=urn:btih:C879C8B22ADC14151F71E83278D1617035EDE3F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ magnet:?xt=urn:btih:C879C8B22ADC14151F71E83278D1617035EDE3F6
 ```bash
 magnet:?xt=urn:btih:8981E96DADF30A79BC4F189248185AAE1E0E8F75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:8981E96DADF30A79BC4F189248185AAE1E0E8F75
 magnet:?xt=urn:btih:7539A13BC0C4FAB0B0384D9FF1DC5AA5E7F8B0B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +671,8 @@ magnet:?xt=urn:btih:7539A13BC0C4FAB0B0384D9FF1DC5AA5E7F8B0B9
 ```bash
 magnet:?xt=urn:btih:6598091490DCED3E2D029EB9BF663F5C004D3E1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +700,8 @@ magnet:?xt=urn:btih:6598091490DCED3E2D029EB9BF663F5C004D3E1D
 ```bash
 magnet:?xt=urn:btih:5C2BF12678EFD988AD6284DFC6A1A60F6F588C5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

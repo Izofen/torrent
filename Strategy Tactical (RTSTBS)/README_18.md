@@ -19,6 +19,8 @@ TASTEE: Lethal Tactics (2016) [Ru/En] (1.0) Repack R.G. Catalyst
 magnet:?xt=urn:btih:3CCF06939FF9D26171277F453753F92C96C33395
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Warhammer 40,000: Armageddon (2014) [En] (1.05/dlc) License SKIDROW [Untold Batt
 magnet:?xt=urn:btih:60E1F7EAA43D22C2AA02463A7A0E719D85B72C91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Valkyria Chronicles 4 – очередная часть серии японск�
 ```bash
 magnet:?xt=urn:btih:1B674BCF4B2887080DC26E4DCFAB3D1B11BEEDC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Battlefleet Gothic: Armada 2 — это новая стратегия в реа�
 magnet:?xt=urn:btih:D39226B32FC11AE1B31C762EF977289D650131AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Crookz - The Big Heist (2015) [Ru/En] (1.0.0.24360) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:D1F8556A420AE1A73BAB5564A34A2D8939310F57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Jagged Alliance возвращается! Превосходное сочета�
 magnet:?xt=urn:btih:E0912F14D21EBF4BD5F4B7CDC44626272B0B16D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Codename: Panzers Phase Two - стратегия в реальном време�
 ```bash
 magnet:?xt=urn:btih:6B9A026113803E3B04E54B3D64AE34C9554CEAB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Decisive Campaigns: Barbarossa (2015) [En] (1.00) Repack Other s
 magnet:?xt=urn:btih:127947212C9E71D1392CABAE8B48D6DD028C82A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Stars in Shadow это пошаговая научно-фантастическ�
 ```bash
 magnet:?xt=urn:btih:C17ED5E0F8609455F44FA5F57C83CFF991EF83BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Warhammer 40,000: Armageddon: Da Orks - вторая часть в серии в
 magnet:?xt=urn:btih:566E74DB1E289FA1743E9B3A68B207A7B159B0E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Codex of Victory (2017) [Ru/Multi] (1.0.2mx) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:B4BA019BACF7FE4186F5F4283F0DDF6A20F0F036
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Attack of the Earthlings (2018) [Ru/Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:CE59CE5B08FB1FC1124A1EF5BEEDC230A636D935
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Sudden Strike 4 (2017) [En] (1.06/dlc) License RELOADED
 ```bash
 magnet:?xt=urn:btih:8AFFC2104572AA6C3361BD87A8DA55F969DAAC37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:8AFFC2104572AA6C3361BD87A8DA55F969DAAC37
 magnet:?xt=urn:btih:5606C690263CD7ADE39D38F23F64F9506E250022
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:5606C690263CD7ADE39D38F23F64F9506E250022
 ```bash
 magnet:?xt=urn:btih:1FC63855BC4863EC1C1B4D16B92013FAA036F7D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ This War of Mine - первая игра, которая позволяет ув
 magnet:?xt=urn:btih:B393D9B63A824D730BF3D7B8D905218DE7F514CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ Wargame: Red Dragon – первый выпуск популярной сери�
 ```bash
 magnet:?xt=urn:btih:D6B9B6509C1C2EB7879637CA28385986CCAE9130
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ Shock Tactics (2017) [Ru/Multi] (1.0.6158) License CODEX
 magnet:?xt=urn:btih:388210CA5D365A83F7260EFAD2382062AFF61843
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ Scourge of War: Wavre (2015) [En/Fr/It] (1.0.0.0/dlc) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:A387CBB8A16593A5329C12295B5A5F5F2D6EBF8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.02.00/dlc) Licens
 magnet:?xt=urn:btih:63EEBFA90E4540BF2DAB522F722BBF5F9128499D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ Warhammer 40,000: Space Wolf (2017) [Ru/Multi] (1.1.8/dlc) License GOG [Complete
 ```bash
 magnet:?xt=urn:btih:D96D0272F6A23D49C10E3DD63FF7FE8A255E4C37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ CountryBalls Heroes - это игра, в которой тебе предсто
 magnet:?xt=urn:btih:7826D70EB949D68E3DF1C830452EAB59AB928A21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ Ancestors Legacy – это историческая стратегия в ре�
 ```bash
 magnet:?xt=urn:btih:B6944ACB2A69E9883FA96E8AC0E8DBD4D6D6B816
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ Banner Saga 3 - грандиозное завершение захватываю
 magnet:?xt=urn:btih:0D598B99EFC9ED972965CFDA4FD5CB5B79DA18C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ Banner Saga 3 - грандиозное завершение захватываю
 magnet:?xt=urn:btih:24116CE6F9CA6F3E91174FED3705412338E339A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Door Kickers: Action Squad - сумасшедший олдскульный 2D-э
 ```bash
 magnet:?xt=urn:btih:F64F9E4CAF15ECF83F482B779CFE1D33D9F539B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

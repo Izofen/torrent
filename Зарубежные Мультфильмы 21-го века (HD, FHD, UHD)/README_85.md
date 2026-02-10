@@ -1,27 +1,3 @@
-###  Публикация: 915345   (592207) от 05.07.2015
-
-Дом / Home (2015) BDRemux [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инопланетная раса бувов во главе с капитаном Смеком захватывает Землю, чтобы укрыться от своих смертельных врагов и обрести новый дом. Руководствуясь благими намерениями, бувы начинают переселять расу людей, но одной находчивой девушке по имени Тип удаётся сбежать. В бегах она встречается с изгнанным бувом по имени О, который случайно уведомил врагов о своём местонахождении.Производство: США, DreamWorks AnimationЖанр: Мультфильм, Фантастика, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Тим ДжонсонПерсонажи: Джим Парсонс, Рианна, Стив Мартин, Дженнифер Лопез, Мэтт Джонс, Брайан Степанек, Эйприл Стрюбинг, Стивен Кеарин, Лиза Стюарт, Эйприл УинчеллПеревод: Дублированный (Лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский (Forced, Full), украинский (Forced, Full), английский (Full)Продолжительность: 01:33:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FFB0916F4D939C40DAA2AC91955F9307E488347
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1300330   (593496) от 05.05.2019
 
 Ковер-самолет / Hodja fra Pjort (2018) BDRemux [H.264/1080p]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:5FFB0916F4D939C40DAA2AC91955F9307E488347
 ```bash
 magnet:?xt=urn:btih:25DDCEADB74BD7A3349F63062857D6FA76E566E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:25DDCEADB74BD7A3349F63062857D6FA76E566E1
 magnet:?xt=urn:btih:80DD0B9791170B8F07D7BA30395D5FB39C8F1179
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:80DD0B9791170B8F07D7BA30395D5FB39C8F1179
 ```bash
 magnet:?xt=urn:btih:779BF6CC601A9F28C30614D78AE452EEA66EC943
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +98,8 @@ magnet:?xt=urn:btih:779BF6CC601A9F28C30614D78AE452EEA66EC943
 magnet:?xt=urn:btih:66D0672EE851F69F6B74321A895EF099E33248EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +123,8 @@ magnet:?xt=urn:btih:66D0672EE851F69F6B74321A895EF099E33248EC
 ```bash
 magnet:?xt=urn:btih:ED57DA158D7D1473461BB232F395FFDA0CD1D589
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:ED57DA158D7D1473461BB232F395FFDA0CD1D589
 magnet:?xt=urn:btih:199E878E628054A83A579A2FF97FE3F578D91AB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +175,8 @@ magnet:?xt=urn:btih:199E878E628054A83A579A2FF97FE3F578D91AB2
 ```bash
 magnet:?xt=urn:btih:373A3BACE6AD8CCEE50A59C92E915A6B6A13904C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +202,8 @@ magnet:?xt=urn:btih:373A3BACE6AD8CCEE50A59C92E915A6B6A13904C
 magnet:?xt=urn:btih:8E6A9D51B8BA1638F52BB2A837F2DD1A05724E7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +227,8 @@ magnet:?xt=urn:btih:8E6A9D51B8BA1638F52BB2A837F2DD1A05724E7B
 ```bash
 magnet:?xt=urn:btih:73A0CEF2430D5C12BA4377F20985B83CF4175EBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +254,8 @@ magnet:?xt=urn:btih:73A0CEF2430D5C12BA4377F20985B83CF4175EBC
 magnet:?xt=urn:btih:96E2E2672C89C83446D5C5854D59068FA3B75AB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +279,8 @@ magnet:?xt=urn:btih:96E2E2672C89C83446D5C5854D59068FA3B75AB1
 ```bash
 magnet:?xt=urn:btih:7609F4EA067CAD78D8E97AB1B3C4736CEF9A186E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +306,8 @@ magnet:?xt=urn:btih:7609F4EA067CAD78D8E97AB1B3C4736CEF9A186E
 magnet:?xt=urn:btih:251950A78AEB6C091CEB7F73D0BF2B12DBC100C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +331,8 @@ magnet:?xt=urn:btih:251950A78AEB6C091CEB7F73D0BF2B12DBC100C5
 ```bash
 magnet:?xt=urn:btih:8B6E24A2B9E51C473435093344C3FFD08AF66401
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +360,8 @@ magnet:?xt=urn:btih:8B6E24A2B9E51C473435093344C3FFD08AF66401
 magnet:?xt=urn:btih:6E5259C9BC9CFCF15CF092D2A75E4F70B79234CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +385,8 @@ magnet:?xt=urn:btih:6E5259C9BC9CFCF15CF092D2A75E4F70B79234CC
 ```bash
 magnet:?xt=urn:btih:0778BED328FB2D0BDA69FBEEA54236245CBFCACE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +412,8 @@ magnet:?xt=urn:btih:0778BED328FB2D0BDA69FBEEA54236245CBFCACE
 magnet:?xt=urn:btih:ABCE728F490D843A0DD72E95455FC36F67616233
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +438,8 @@ magnet:?xt=urn:btih:ABCE728F490D843A0DD72E95455FC36F67616233
 magnet:?xt=urn:btih:73DA7A0A61CC87D332917F95E033ED0353607CAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +463,8 @@ magnet:?xt=urn:btih:73DA7A0A61CC87D332917F95E033ED0353607CAD
 ```bash
 magnet:?xt=urn:btih:45341F41B9E429488BC25B9703AE551DE142F4FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +491,8 @@ magnet:?xt=urn:btih:45341F41B9E429488BC25B9703AE551DE142F4FF
 magnet:?xt=urn:btih:15FF46A1C43C1416FD6160355C5E29D45BFD32AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +516,8 @@ magnet:?xt=urn:btih:15FF46A1C43C1416FD6160355C5E29D45BFD32AA
 ```bash
 magnet:?xt=urn:btih:EABE3F259BA6875D6A29EA617F29683487576045
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +543,8 @@ magnet:?xt=urn:btih:EABE3F259BA6875D6A29EA617F29683487576045
 magnet:?xt=urn:btih:49780898ED9DFA14B44A43BCEF581CF7D93A3220
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +568,8 @@ magnet:?xt=urn:btih:49780898ED9DFA14B44A43BCEF581CF7D93A3220
 ```bash
 magnet:?xt=urn:btih:1CA5393CE94645A35EF67AAAEA7EEA8CB8A9E0B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +597,8 @@ magnet:?xt=urn:btih:1CA5393CE94645A35EF67AAAEA7EEA8CB8A9E0B4
 magnet:?xt=urn:btih:FBD505DAC6838CC9098E7DF62A23648B85764D28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +623,8 @@ magnet:?xt=urn:btih:FBD505DAC6838CC9098E7DF62A23648B85764D28
 magnet:?xt=urn:btih:402A1E66DE0226CCFF2B628DF8A245777BB790AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +648,34 @@ magnet:?xt=urn:btih:402A1E66DE0226CCFF2B628DF8A245777BB790AD
 ```bash
 magnet:?xt=urn:btih:3AC4A095E9CA79C80423EFAB8DDB7EDCEB8712D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149768   (597863) от 12.07.2017
+
+Лего Фильм: Бэтмен / The LEGO Batman Movie (2017) BDRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Готэму вновь грозит опасность. И на его стражу становится единственный герой, которого заслуживает этот город — Бэтмен, альтер-эго миллиардера Брюса Уэйна, живущего в своем огромном родовом поместье вместе с дворецким Альфредом. Но в этот раз супергерой вынужден взять в напарники парня по имени Дик Грейсон, которого он, сам того не помня, усыновил на одном из светских (   Читать дальше...   )Производство: США, Дания / DC Entertainment, LEGO System A/SЖанр: мультфильм, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Крис МакКейПерсонажи: Уилл Арнетт, Майкл Сера, Розарио Доусон, Рэйф Файнс, Зак Галифианакис, Дженни Слейт, Джейсон Манцукас, Конан О’Брайен, Даг БенсонПеревод: Дублированный (Лицензия BD CEE)Субтитры: Русские (forced, full), английскиеПродолжительность: 01:44:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B48AC8683D2521F6A8D2A788212C22DA6B215386
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

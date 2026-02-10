@@ -27,6 +27,8 @@ Papa Grows Funk - Needle In The Groove (2012) [FLAC|Lossless]<Funk>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -50,6 +52,8 @@ Papa Grows Funk - Needle In The Groove (2012) [FLAC|Lossless]<Funk>
 ```bash
 magnet:?xt=urn:btih:580CAF1FF873EDF1164CBA5221F637C0330BE30D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:580CAF1FF873EDF1164CBA5221F637C0330BE30D
 magnet:?xt=urn:btih:28BD97BF3112D40C0851181166268AB5E56551F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Doctor Butcher -  (1994-2005/2006) [MP3|320 kbps]<Progressive Heavy Metal>
 magnet:?xt=urn:btih:B5F87EA0ECC839949768CCFD710DDEB2E3DFAEB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:B5F87EA0ECC839949768CCFD710DDEB2E3DFAEB0
 ```bash
 magnet:?xt=urn:btih:2CEBDD6D512BE301FBDE3C046C6089336D614D8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -156,6 +166,8 @@ The Groundhogs - Muddy Waters Songbook (1999) [FLAC|Lossless]<Blues-Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +200,8 @@ Ulf Wakenius - Vagabond (2011) [FLAC|Lossless]<Contemporary Jazz, Post-Bop, Ethn
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +236,8 @@ Janet Klein and Her Parlor Boys - Janet Klein's Scandals or Living In Sin (2004)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +263,8 @@ Janet Klein and Her Parlor Boys - Janet Klein's Scandals or Living In Sin (2004)
 ```bash
 magnet:?xt=urn:btih:147E9E671CB1F12B9E44BEC66FB138819E0EBA7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -281,6 +299,8 @@ Hilde Louise Asbjornsen - Eleven Nights (2005) [FLAC|Lossless]<Jazz, Vocal Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +324,8 @@ Trisquel GNU/Linux 5.0 (LXDE&NetInstall) [i686 + x86_64] (4xCD)
 ```bash
 magnet:?xt=urn:btih:CD1FA069F238FFEE7C313DEFDC460118692BDC70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +360,8 @@ Gravediggaz - 6 Feet Deep (Niggamortis) (1994) [MP3|320 kbps]<East Coast Hip-Hop
 magnet:?xt=urn:btih:630D1EC8AA948E0BBA793849425074879988E2E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +395,8 @@ Various Artists - Rap Против наркотиков (2002) [MP3|320 kbps]<Hi
 magnet:?xt=urn:btih:587F9FE9EC89FA2577D1D1AC49A3525DB868BD32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +423,8 @@ magnet:?xt=urn:btih:587F9FE9EC89FA2577D1D1AC49A3525DB868BD32
 magnet:?xt=urn:btih:588F13E588F06246B747354D634BD6E18BCAB85F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +448,8 @@ Trisquel GNU/Linux 5.0 (GNOME) [i686 + x86_64] (2xCD + 2xDVD)
 ```bash
 magnet:?xt=urn:btih:CC4EF241C0E1A70341F2DB17FD981C56BEC36548
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +484,8 @@ IntroWert - Progressive Reason Episode 071 [13.02.2012] (2012) [MP3|192 kbps]<Pr
 magnet:?xt=urn:btih:D927B568EE27C139E23197556DEEBBEB7F5D454F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +519,8 @@ Kirsti Huke - Deloo (2007) [FLAC|Lossless]<Vocal Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +544,8 @@ Kirsti Huke - Deloo (2007) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:F0BF468FD32C594CD2C885DC4DAFB363A7E8E24F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +573,8 @@ Red Garland Trio - Can't See For Lookin' (1996) [FLAC|Lossless]<Jazz>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +609,8 @@ VA - Jazz Macchiato (2009) [FLAC|Lossless]<Vocal Jazz, Bop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +635,8 @@ VA - Jazz Macchiato (2009) [FLAC|Lossless]<Vocal Jazz, Bop>
 magnet:?xt=urn:btih:2C1DC4D14F78E6ADF682CF3A7AC92C263A7C7806
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +660,8 @@ magnet:?xt=urn:btih:2C1DC4D14F78E6ADF682CF3A7AC92C263A7C7806
 ```bash
 magnet:?xt=urn:btih:6553EA71A260BDE13D033ACF34626C63284A19B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +694,8 @@ Meander - Time Machine (2012) [MP3|320 kbps]<Psychedelic / Full On, Psy-Prog>
 ```bash
 magnet:?xt=urn:btih:679C2C3381287D471C7F3D33E4EFB43F8481C804
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -684,6 +730,8 @@ Hope Waits - Hope Waits (2007) [FLAC|Lossless]<Vocal Jazz, Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -717,6 +765,8 @@ Twina - Out As A Signal (2012) [MP3|192-320 kbps]<Psychedelic / Full On>
 magnet:?xt=urn:btih:29A9B27D1115C74BEF6FB2488411DB62157D654F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -749,6 +799,8 @@ Too Slim And The Taildraggers - Shiver (2011) [FLAC|Lossless]<Blues-Rock>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

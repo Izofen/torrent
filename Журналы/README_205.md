@@ -1,27 +1,3 @@
-###  Публикация: 1332666   (311694) от 21.10.2019
-
-Журнал | Приусадебное хозяйство №10 [+ Приложения] (октябрь 2019) [PDF, DJVU]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал знакомит садоводов, огородников, цветоводов с современными технологиями и народным опытом возделывания овощных, плодовых, ягодных и лекарственных культур, с огромным разнообразием садовых и комнатных цветов, с новыми и незаслуженно забытыми сортами. Не обойдены вниманием и владельцы домашних ферм — здесь они находят ответы на многие вопросы по содержанию животных (   Читать дальше...   )Жанр: Дача, сад, огородФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B64B1E488F169FF4C5CEE0C59BD301ED1DDD08CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332665   (311805) от 21.10.2019
 
 Журнал | Приусадебное хозяйство №9 [+ Приложения] (сентябрь 2019) [PDF, DJVU]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:B64B1E488F169FF4C5CEE0C59BD301ED1DDD08CD
 ```bash
 magnet:?xt=urn:btih:57D966BF066A25F976176E9B369C0120792DF7B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:57D966BF066A25F976176E9B369C0120792DF7B2
 magnet:?xt=urn:btih:B46513D0C5FFDACB2D68D1F3C8A6BA36BCD6B88F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +71,8 @@ magnet:?xt=urn:btih:B46513D0C5FFDACB2D68D1F3C8A6BA36BCD6B88F
 magnet:?xt=urn:btih:A5BACF2EE2A2233BB5A483870B9657B4C5F854AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +96,8 @@ magnet:?xt=urn:btih:A5BACF2EE2A2233BB5A483870B9657B4C5F854AD
 ```bash
 magnet:?xt=urn:btih:C33C053E77E46F7AF341914FE9C0D7CCB7EBB138
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +125,8 @@ magnet:?xt=urn:btih:C33C053E77E46F7AF341914FE9C0D7CCB7EBB138
 magnet:?xt=urn:btih:C8AF5B2C5252F847952236A772BA93413133F8B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:C8AF5B2C5252F847952236A772BA93413133F8B8
 ```bash
 magnet:?xt=urn:btih:5AB9C98C58F6112E25C9AE358F8692EE71F154CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +177,8 @@ magnet:?xt=urn:btih:5AB9C98C58F6112E25C9AE358F8692EE71F154CE
 magnet:?xt=urn:btih:CBC7F8617165FF067131389F1D497D229464D792
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +202,8 @@ magnet:?xt=urn:btih:CBC7F8617165FF067131389F1D497D229464D792
 ```bash
 magnet:?xt=urn:btih:FBC6A4BE038E5FAAC93C4FE0B8E7DB691B8246A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +229,8 @@ magnet:?xt=urn:btih:FBC6A4BE038E5FAAC93C4FE0B8E7DB691B8246A9
 magnet:?xt=urn:btih:3E6235042DB54F4C8F18FB55B3EDD0275A1B3DD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +254,8 @@ magnet:?xt=urn:btih:3E6235042DB54F4C8F18FB55B3EDD0275A1B3DD1
 ```bash
 magnet:?xt=urn:btih:9B54DED00C0AA6C0AD1AEF4813147707E1BF0064
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +281,8 @@ magnet:?xt=urn:btih:9B54DED00C0AA6C0AD1AEF4813147707E1BF0064
 magnet:?xt=urn:btih:FF122A67DD9FB1060538498366C2F0C6D66408C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +306,8 @@ magnet:?xt=urn:btih:FF122A67DD9FB1060538498366C2F0C6D66408C9
 ```bash
 magnet:?xt=urn:btih:8541FABE44197A935913A9FD542AB5BF9853F1DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +333,8 @@ magnet:?xt=urn:btih:8541FABE44197A935913A9FD542AB5BF9853F1DE
 magnet:?xt=urn:btih:DE9D140F5045B3E6FF813B91EF13725FF73CCBC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +358,8 @@ magnet:?xt=urn:btih:DE9D140F5045B3E6FF813B91EF13725FF73CCBC8
 ```bash
 magnet:?xt=urn:btih:60ACB07CBD01920F47B8B4C134ECEBCB1FD0E228
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +385,8 @@ magnet:?xt=urn:btih:60ACB07CBD01920F47B8B4C134ECEBCB1FD0E228
 magnet:?xt=urn:btih:D1C5FFAF09FBED1F6FD4FCB3F454D82B8FAEA7B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +410,8 @@ magnet:?xt=urn:btih:D1C5FFAF09FBED1F6FD4FCB3F454D82B8FAEA7B8
 ```bash
 magnet:?xt=urn:btih:89B09DB4829F27B2D54BBEF38202B2A91C94D7E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +437,8 @@ magnet:?xt=urn:btih:89B09DB4829F27B2D54BBEF38202B2A91C94D7E1
 magnet:?xt=urn:btih:6CDFD248C72E08FB4E5A0D0215F8CDB06325FF3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +462,8 @@ magnet:?xt=urn:btih:6CDFD248C72E08FB4E5A0D0215F8CDB06325FF3F
 ```bash
 magnet:?xt=urn:btih:0B057F377FAC8F239230297F71623A6707F2CF26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +489,8 @@ magnet:?xt=urn:btih:0B057F377FAC8F239230297F71623A6707F2CF26
 magnet:?xt=urn:btih:B1706C9DA14769ED7437AFF23D21FBEFDD66BCCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +514,8 @@ magnet:?xt=urn:btih:B1706C9DA14769ED7437AFF23D21FBEFDD66BCCC
 ```bash
 magnet:?xt=urn:btih:83EF81685F3BCDEBF802BEDE863DB67909912D4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +541,8 @@ magnet:?xt=urn:btih:83EF81685F3BCDEBF802BEDE863DB67909912D4D
 magnet:?xt=urn:btih:49480EBCEB2096EB810ACA593530BC25E68AEA9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +567,8 @@ magnet:?xt=urn:btih:49480EBCEB2096EB810ACA593530BC25E68AEA9A
 magnet:?xt=urn:btih:CEEC61E19E2A58A8AE51CC75F648FA66929BD572
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +592,8 @@ magnet:?xt=urn:btih:CEEC61E19E2A58A8AE51CC75F648FA66929BD572
 ```bash
 magnet:?xt=urn:btih:AD3EE8496232C9642A53FE211EDDC3810817C451
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +620,8 @@ magnet:?xt=urn:btih:AD3EE8496232C9642A53FE211EDDC3810817C451
 magnet:?xt=urn:btih:44ADF3FC6A3BF1312A4E8D1C4D52EF9D364110A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +645,34 @@ magnet:?xt=urn:btih:44ADF3FC6A3BF1312A4E8D1C4D52EF9D364110A3
 ```bash
 magnet:?xt=urn:btih:2B5717142BC36F52D62C8F1508184CB4D5286F20
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182910   (312782) от 12.11.2017
+
+Газета | АиФ. На даче №21 (493) (ноябрь 2017) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_312782.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Аиф. На Даче" — Популярное издание по “дачной” тематике для владельцев огородов, садовых участков, совхозов, питомников, дач и усадеб, а также для тех, кто только собирается ими стать.Жанр: Дом, сад, огород, дача, цветоводство, ландшафтный дизайнФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17566B7EE427DCE803753B153D4D65D0CEDF9E59
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

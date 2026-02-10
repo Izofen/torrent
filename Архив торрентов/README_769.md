@@ -23,6 +23,8 @@
 magnet:?xt=urn:btih:9837A0A62FF6F8CC5DC7EFDBF2B0E7EB78ECF9F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:9837A0A62FF6F8CC5DC7EFDBF2B0E7EB78ECF9F1
 magnet:?xt=urn:btih:8C3E95AD62C9EF63DBDE59A8F1233B598F324464
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:8C3E95AD62C9EF63DBDE59A8F1233B598F324464
 ```bash
 magnet:?xt=urn:btih:EF7E82553D744EF432E06029C1C02B6CBD2B6157
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -104,6 +110,8 @@ Etic - Feedback (2005) [FLAC|Lossless]<Psychedelic / Progressive>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -137,6 +145,8 @@ VA - MAXI. Русские ДиДжеи Зажигают (2012) [MP3|224 kbps]<Po
 magnet:?xt=urn:btih:47A04E4540EE5CB1B53D2AD8823117F812A480A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -160,6 +170,8 @@ magnet:?xt=urn:btih:47A04E4540EE5CB1B53D2AD8823117F812A480A9
 ```bash
 magnet:?xt=urn:btih:4E66BDA7166C659DAC7D2896344C190342143186
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -185,6 +197,8 @@ magnet:?xt=urn:btih:4E66BDA7166C659DAC7D2896344C190342143186
 magnet:?xt=urn:btih:76F7D621569DF2C59D0A4D40FD2A41B9A57D3325
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ magnet:?xt=urn:btih:76F7D621569DF2C59D0A4D40FD2A41B9A57D3325
 ```bash
 magnet:?xt=urn:btih:5DD1415232D3ED3A44757979084230B60F517A21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -234,6 +250,8 @@ magnet:?xt=urn:btih:5DD1415232D3ED3A44757979084230B60F517A21
 ```bash
 magnet:?xt=urn:btih:97AAFEABEF043386FC358A749F4E44A78484B58E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +285,8 @@ Somnesia - Mystic Moon (2012) [MP3|320 кб/с]<Goa Trance>
 magnet:?xt=urn:btih:5F67B68FE709C537AC7D3402C0CC4460E670F57D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +314,8 @@ magnet:?xt=urn:btih:5F67B68FE709C537AC7D3402C0CC4460E670F57D
 ```bash
 magnet:?xt=urn:btih:ED98E96D488D2683D07558AC3A819811C3E5494F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +350,8 @@ magnet:?xt=urn:btih:ED98E96D488D2683D07558AC3A819811C3E5494F
 magnet:?xt=urn:btih:1661981C88FE7973A38A677CC712007C349BB0CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +385,8 @@ VA - TMP: Vanilla Dreams - 066 (2012) [MP3|320 kbps]<Vocal Trance>
 magnet:?xt=urn:btih:6F5C6C6AD8A4208A08E87CFB4A5FFDF6C0FFF6AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +410,8 @@ Thunderbird - простая и удобная бесплатная програ
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +437,8 @@ Wise Registry Cleaner 7.13 build 449 Final + Portable [Multi(Rus)]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +462,8 @@ Wise Registry Cleaner 7.13 build 449 Final + Portable [Multi(Rus)]
 ```bash
 magnet:?xt=urn:btih:AFF100BA2C26A2C8B337B1E7252BE97D9CAC8F4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +498,8 @@ magnet:?xt=urn:btih:AFF100BA2C26A2C8B337B1E7252BE97D9CAC8F4C
 magnet:?xt=urn:btih:4FE05B79FA5F02283B228AAB5E64EA1E16CEBD4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +533,8 @@ VA - Natural Rhythm presents WMC Miami 2012 Sampler (2012) [MP3|320 кб/с]<Hou
 magnet:?xt=urn:btih:995EA7150696131EA1E2FFC1EA8ACDCFC0E7C187
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +561,8 @@ Mark Broom - M28 EP (2012) [MP3|320 кб/с]<Techno, Dub Techno>
 ```bash
 magnet:?xt=urn:btih:49DCDA668D523539DD49EB35C95923BB34391667
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +597,8 @@ VA - TMP: Vanilla Dreams - 065 (24.03.2012) [MP3|320 kbps]<Vocal Trance>
 magnet:?xt=urn:btih:8EA0FDD1C60B406F3AE44D2D89AAFB51A94DDA19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +622,8 @@ magnet:?xt=urn:btih:8EA0FDD1C60B406F3AE44D2D89AAFB51A94DDA19
 ```bash
 magnet:?xt=urn:btih:D0F5D1FFA479B9449B596BE6149D148E3969B09C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +652,8 @@ Altar of Plagues - 6 альбомов (2006-2011) [MP3|128 - 320 кб/с]<Black 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +677,8 @@ Altar of Plagues - 6 альбомов (2006-2011) [MP3|128 - 320 кб/с]<Black 
 ```bash
 magnet:?xt=urn:btih:94FEDEBEA3C0A1D5382DBB5AEA337D828A290250
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -658,6 +704,8 @@ magnet:?xt=urn:btih:94FEDEBEA3C0A1D5382DBB5AEA337D828A290250
 magnet:?xt=urn:btih:270D94082A1466713CDFFD597BAB18C343629FC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -682,6 +730,8 @@ magnet:?xt=urn:btih:270D94082A1466713CDFFD597BAB18C343629FC1
 magnet:?xt=urn:btih:E3D6BCD03F13747A1CDF00294D1199D8120B40E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -705,6 +755,8 @@ magnet:?xt=urn:btih:E3D6BCD03F13747A1CDF00294D1199D8120B40E7
 ```bash
 magnet:?xt=urn:btih:FD0B94CA4D92FB28900113624084CB216F4F8BBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

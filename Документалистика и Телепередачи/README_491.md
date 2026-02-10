@@ -1,3 +1,29 @@
+###  Публикация: 1136286   (674754) от 22.05.2017
+
+Дикая природа Словакии / Wild Slovakia (2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Богатством и разнообразием флоры и фауны Словакия обязана уникальной природе с древними лесами, низменными поймами и обширными лугами, простирающимися до самых живописных Татр.Производство: Германия, Наутиус фильмЖанр: Документальный, природа, флора, фаунаРежиссер: Ян ХафтПеревод: Одноголосый закадровый, профессиональный (СВ Дубль)Субтитры: отсутствуютПродолжительность: 00:48:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEB6A90A9B2B8BCF76E9659BC52737228F352235
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536512   (674771) от 12.03.2022
 
 К-3. Ленинский комсомол (2021) HDTV [MPEG-2/1080p]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:7F5F6DB31F5BF2D4B1D33644986B7A86E679931D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:7F5F6DB31F5BF2D4B1D33644986B7A86E679931D
 magnet:?xt=urn:btih:343D7B63F286587A8B8F9A21C559C72303F4EA5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:343D7B63F286587A8B8F9A21C559C72303F4EA5E
 ```bash
 magnet:?xt=urn:btih:0E80A85FF0755ED99DCC660E32B602FA1F9317E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:0E80A85FF0755ED99DCC660E32B602FA1F9317E7
 magnet:?xt=urn:btih:265F27980D258E4587193792A01EDB9F0E5F65DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:265F27980D258E4587193792A01EDB9F0E5F65DB
 magnet:?xt=urn:btih:3573951DAF171D490A0DF0528A75E82763AE8E91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +174,8 @@ magnet:?xt=urn:btih:3573951DAF171D490A0DF0528A75E82763AE8E91
 ```bash
 magnet:?xt=urn:btih:DC8381439C0C591BE5700964A009B84AC6D46FE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:DC8381439C0C591BE5700964A009B84AC6D46FE4
 magnet:?xt=urn:btih:3E043C725F3ABA162CD469B94167A6A8608C81D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:3E043C725F3ABA162CD469B94167A6A8608C81D5
 ```bash
 magnet:?xt=urn:btih:384CE2DE7B2C1FE45DA5BA4E939D3199C12C3971
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:384CE2DE7B2C1FE45DA5BA4E939D3199C12C3971
 magnet:?xt=urn:btih:EEF4EC9B53D3FDF2A0DE434A93CE8A2244F128C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:EEF4EC9B53D3FDF2A0DE434A93CE8A2244F128C0
 magnet:?xt=urn:btih:E3D08A6D91D6A1A8B415477F6D1393B4C28C94D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:E3D08A6D91D6A1A8B415477F6D1393B4C28C94D7
 ```bash
 magnet:?xt=urn:btih:16099F40C57446C3AE00ADAAE0B97CA0488781DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:16099F40C57446C3AE00ADAAE0B97CA0488781DD
 magnet:?xt=urn:btih:5C6A4CA8757543FE0A3DA8A595C1E46E1D3C1F87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:5C6A4CA8757543FE0A3DA8A595C1E46E1D3C1F87
 magnet:?xt=urn:btih:D309FEF43EB2AFE1BF852D728EC0D1036ACF19F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:D309FEF43EB2AFE1BF852D728EC0D1036ACF19F0
 ```bash
 magnet:?xt=urn:btih:66EF84E9E4F918A089872D14499EA12F976A7550
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +412,8 @@ The Ventures: Звезды на гитарах / The Ventures: Stars on Guitars 
 magnet:?xt=urn:btih:8E1411BF9C4EADE04DF34A69EA088D7CE78321F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:8E1411BF9C4EADE04DF34A69EA088D7CE78321F9
 ```bash
 magnet:?xt=urn:btih:D7B0D39017A0A1509F6BB41916FEC11F0C41C172
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:D7B0D39017A0A1509F6BB41916FEC11F0C41C172
 magnet:?xt=urn:btih:8C15C9A882B132E8967E296429E227F4EC16F5F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:8C15C9A882B132E8967E296429E227F4EC16F5F3
 magnet:?xt=urn:btih:FC79D33A570DC4229313F5B5949A2241299B0D78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +515,8 @@ magnet:?xt=urn:btih:FC79D33A570DC4229313F5B5949A2241299B0D78
 ```bash
 magnet:?xt=urn:btih:B868195A89E1BA0BA46664C20104EBF67A39ED19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:B868195A89E1BA0BA46664C20104EBF67A39ED19
 magnet:?xt=urn:btih:CC9ED6E0FD40EB2FAAB76070A0A9C93A2A0B3E2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:CC9ED6E0FD40EB2FAAB76070A0A9C93A2A0B3E2C
 ```bash
 magnet:?xt=urn:btih:F95C2CAEBC62B72D9071C193A862FCE3EE6E4BE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +596,8 @@ magnet:?xt=urn:btih:F95C2CAEBC62B72D9071C193A862FCE3EE6E4BE8
 magnet:?xt=urn:btih:798995E3E87A31F797A63198F3F5A47068FBA0EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +621,8 @@ magnet:?xt=urn:btih:798995E3E87A31F797A63198F3F5A47068FBA0EA
 ```bash
 magnet:?xt=urn:btih:95EA78968AFF7C43EBCD4F84F14AD2C58CD455DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:95EA78968AFF7C43EBCD4F84F14AD2C58CD455DD
 magnet:?xt=urn:btih:40C11EEB0CCA7381856848F661F0CDA89D959D49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,31 +674,7 @@ magnet:?xt=urn:btih:40C11EEB0CCA7381856848F661F0CDA89D959D49
 magnet:?xt=urn:btih:EB79AE01BA51636228B3BE1E794ED553F374A5DF
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136058   (676842) от 21.05.2017
-
-Холостяк (2017.05.20) HDTVRip (сезон 5, выпуск 11)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676842.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 МАРТА В 21:30 НА ТНТ НАЧНЕТСЯ НОВЫЙ СЕЗОН ШОУ «ХОЛОСТЯК»
-Грядет новый сезон самого романтичного шоу на ТНТ. Продюсеры невероятно долго и тщательно подбирали главного героя — они хотели пригласить достойного мужчину, сильную личность, человека с огоньком в глазах. И такой мужчина нашелся. Вот только не с огоньком в глазах, а с ревущим пламенем в сердце!
-С главным (   Читать дальше...   )Телекомпания: ТНТ HDЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:08:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:277E76A5683709B594651D0B6242EF683A58E8D4
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

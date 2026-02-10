@@ -22,6 +22,8 @@ Downie поддерживает более 1,100 популярных сайто
 magnet:?xt=urn:btih:FCF56D0F1D0496A9D91041FB1FAB134F4953C0DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Celtic Frost - Morbid Tales (1984) Remastered, 2017 [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:47FC9F5509675D67E355B472052C86C711555E31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Celtic Frost - To Mega Therion (1985) Remastered, 2017 [FLAC|Lossless|image + .c
 magnet:?xt=urn:btih:DD1944BB292496CE66186E5F430A901884359FCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ VA - Pantha Du Prince - Coming Home (2017) Stereo Deluxe [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:4F02E0192FE6FFA5A5817F71CE73625BB865EF18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:4F02E0192FE6FFA5A5817F71CE73625BB865EF18
 ```bash
 magnet:?xt=urn:btih:A7C160316F0C2DA29A24D01213F64991A712255D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ Celtic Frost - Vanity / Nemesis (1990) Remastered, 2017 [FLAC|Lossless|image + .
 magnet:?xt=urn:btih:F5D67DFFBD14AE7C0B087CB8C248D1EBBA49443A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ magnet:?xt=urn:btih:F5D67DFFBD14AE7C0B087CB8C248D1EBBA49443A
 magnet:?xt=urn:btih:237CECA55E6A66EF04AA49872BE6824DA63B75A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ magnet:?xt=urn:btih:237CECA55E6A66EF04AA49872BE6824DA63B75A8
 ```bash
 magnet:?xt=urn:btih:8551021CA8B633B14A66CDF14DFCCDBF3053DCC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -228,6 +244,8 @@ magnet:?xt=urn:btih:8551021CA8B633B14A66CDF14DFCCDBF3053DCC3
 magnet:?xt=urn:btih:8098EC6ED01B3B2C41BC5B037F9193A8567E2ABA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ magnet:?xt=urn:btih:8098EC6ED01B3B2C41BC5B037F9193A8567E2ABA
 ```bash
 magnet:?xt=urn:btih:F92E555927EA37D4FFA868BA524AA081CA30958F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:F92E555927EA37D4FFA868BA524AA081CA30958F
 magnet:?xt=urn:btih:0EBDC83AA1BA260733B023AEA654932BBAE290A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ FileMenu Tools настраивает пункты контекстного ме
 magnet:?xt=urn:btih:307F00E6B179630E692E2F99DB0B9A480E09D54E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:307F00E6B179630E692E2F99DB0B9A480E09D54E
 ```bash
 magnet:?xt=urn:btih:0E7339D5765A6ED31FFFA454740C485ABCCFE7AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:0E7339D5765A6ED31FFFA454740C485ABCCFE7AE
 magnet:?xt=urn:btih:924BF070D38C420F9E0F6A63E6C2B3B221BDE8E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:924BF070D38C420F9E0F6A63E6C2B3B221BDE8E0
 ```bash
 magnet:?xt=urn:btih:777B779204F06003ED3EAA88C3BE1ABD84E1ACD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ Abs Workouts & Exercises Pro 1.2 [En]
 magnet:?xt=urn:btih:A4E102C76804C40038B2889A2FD6548A1DB1D838
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ VA - Best Meditation Music 50 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instru
 ```bash
 magnet:?xt=urn:btih:4B63B8238873A2DA28B7C1EC252421ABC57D76A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ GymGuide Pro 2.5.0 [Ru]
 magnet:?xt=urn:btih:55CA11D815B8BBB6553080679EA656832FFBECC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ Computer File Explorer 1.3 build 71 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:AA18FE9939C42E85B4C1108F03BFE3AE250B5C88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +544,8 @@ Fitness Point - это простое приложение, чтобы след�
 magnet:?xt=urn:btih:A9099FD106EF7C03C69C410D38CC965DF8959E15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +569,8 @@ magnet:?xt=urn:btih:A9099FD106EF7C03C69C410D38CC965DF8959E15
 ```bash
 magnet:?xt=urn:btih:C0FE36CFF2E0FDF6F2AE7884379329D166CAD7A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +596,8 @@ magnet:?xt=urn:btih:C0FE36CFF2E0FDF6F2AE7884379329D166CAD7A2
 magnet:?xt=urn:btih:2740359A318DB511DA336B68306B3971BB67E031
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +621,8 @@ magnet:?xt=urn:btih:2740359A318DB511DA336B68306B3971BB67E031
 ```bash
 magnet:?xt=urn:btih:106ADC0E6D0FEE39D377604FF1070F9A44445D0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +648,8 @@ magnet:?xt=urn:btih:106ADC0E6D0FEE39D377604FF1070F9A44445D0B
 magnet:?xt=urn:btih:05327F3E755DBDFFD3D7EF926E41DD9FC0D2B360
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +673,8 @@ magnet:?xt=urn:btih:05327F3E755DBDFFD3D7EF926E41DD9FC0D2B360
 ```bash
 magnet:?xt=urn:btih:3AA4B432920B735AEBDA0E0581FD4409A05D8CD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -652,6 +702,8 @@ King Crimson - Teatro Toniola, Mestre Venice, Italy (1995) 2010 [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:7C370E5C5E90B98DF7CC60F991BE83F4E3AB4BFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1456857   (1024754) от 24.03.2021
+
+Хартнетт / Hartnett (2020) WEBRip [VP9/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несмотря на то, что многие планы изменились, а поездки были отложены / отменены, 2020 год по-прежнему был для меня невероятным. От съёмок в Дубае до трехнедельных съёмок в Японии - это был действительно год роста не только для контента, но и для меня лично.Производство: АвстралияЖанр: Документальный, видовойРежиссер: Бен ХартнеттПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:03:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DD79B3558A7ECC8CE11A99E155F85CB5697E4AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456843   (1024755) от 24.03.2021
 
 Горы северной Норвегии / Mountains of northern Norway (2021) WEBRip [H.264/2160p]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:C69C65621C5D72F96AD1BD74EA7B2752C24D0037
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:C69C65621C5D72F96AD1BD74EA7B2752C24D0037
 magnet:?xt=urn:btih:CB3AB7602A8872C826874E466F14471DF27B8B7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ BBC. Дневник большого медведя / Big Bear Week (2006) SATRi
 ```bash
 magnet:?xt=urn:btih:9CF9963AF2C6850B62085CA4B2BD76DA0CE1387B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:9CF9963AF2C6850B62085CA4B2BD76DA0CE1387B
 magnet:?xt=urn:btih:791E6ED8178DF1254AA805E7D16EF90A8898C578
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:791E6ED8178DF1254AA805E7D16EF90A8898C578
 ```bash
 magnet:?xt=urn:btih:FCB282679A2270B818E2E72F1328EEA8314B2535
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:FCB282679A2270B818E2E72F1328EEA8314B2535
 magnet:?xt=urn:btih:22C33F286F435EED2D3FA80FC35ACC72ED912010
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:22C33F286F435EED2D3FA80FC35ACC72ED912010
 ```bash
 magnet:?xt=urn:btih:26B068565813EC1DCA880082B1F71D20E24EF936
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:26B068565813EC1DCA880082B1F71D20E24EF936
 magnet:?xt=urn:btih:37921C9EA9878DBBFE8DB836FBE23C1BC9BB6F95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:37921C9EA9878DBBFE8DB836FBE23C1BC9BB6F95
 ```bash
 magnet:?xt=urn:btih:2E48E1397786C0153C98FF3D928D001041693615
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:2E48E1397786C0153C98FF3D928D001041693615
 magnet:?xt=urn:btih:335C5A7951CF2E696D43615DBF82D0155C85628C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:335C5A7951CF2E696D43615DBF82D0155C85628C
 ```bash
 magnet:?xt=urn:btih:84F1011B4F4D5F5D9BAC8ED2A07AD837871C891D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:84F1011B4F4D5F5D9BAC8ED2A07AD837871C891D
 magnet:?xt=urn:btih:2A4309E1C9A292842FC669C9B3F47B613815A79C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +356,8 @@ magnet:?xt=urn:btih:2A4309E1C9A292842FC669C9B3F47B613815A79C
 ```bash
 magnet:?xt=urn:btih:A51966844775D1838467AFA2930A3416492F5006
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:A51966844775D1838467AFA2930A3416492F5006
 magnet:?xt=urn:btih:445890DDAC923BF2FCBED27E05F0C7C1460E9ADF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +409,8 @@ magnet:?xt=urn:btih:445890DDAC923BF2FCBED27E05F0C7C1460E9ADF
 magnet:?xt=urn:btih:BCF3603896CE16CF7A8C73AFD1BECB3E6DE428BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +434,8 @@ magnet:?xt=urn:btih:BCF3603896CE16CF7A8C73AFD1BECB3E6DE428BC
 ```bash
 magnet:?xt=urn:btih:69C45CF9761911256A5DD8CD47C9208CC0AA6FF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:69C45CF9761911256A5DD8CD47C9208CC0AA6FF5
 magnet:?xt=urn:btih:42A69CA76546981DA7296A7A40AA38D13460A5B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +487,8 @@ magnet:?xt=urn:btih:42A69CA76546981DA7296A7A40AA38D13460A5B8
 ```bash
 magnet:?xt=urn:btih:B52B3FA82F6D3CBF9B62E241CEC490BC9E601212
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:B52B3FA82F6D3CBF9B62E241CEC490BC9E601212
 magnet:?xt=urn:btih:1CA4144B8D2F968BFF8BFE4A34B07D34B3CC3870
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +539,8 @@ magnet:?xt=urn:btih:1CA4144B8D2F968BFF8BFE4A34B07D34B3CC3870
 ```bash
 magnet:?xt=urn:btih:A8FD8333EEF871BFD430FA17565565B745938AAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:A8FD8333EEF871BFD430FA17565565B745938AAE
 magnet:?xt=urn:btih:9B0F288DA15E8DB66713E35BE2A6B9DFC89D6CD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +591,8 @@ magnet:?xt=urn:btih:9B0F288DA15E8DB66713E35BE2A6B9DFC89D6CD1
 ```bash
 magnet:?xt=urn:btih:803B95BFEEE18E02F76A5BE0DBA242D06A3800A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +618,8 @@ magnet:?xt=urn:btih:803B95BFEEE18E02F76A5BE0DBA242D06A3800A1
 magnet:?xt=urn:btih:7F7E9E6D1FBEB0E8607C6EDC230A3CA83F1E3063
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +643,8 @@ magnet:?xt=urn:btih:7F7E9E6D1FBEB0E8607C6EDC230A3CA83F1E3063
 ```bash
 magnet:?xt=urn:btih:7957E36F9147D28C0C24BE1EC1CAF5AD4035A4E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,29 +670,7 @@ magnet:?xt=urn:btih:7957E36F9147D28C0C24BE1EC1CAF5AD4035A4E7
 magnet:?xt=urn:btih:28B2A75BA4696BC9866BA17D236D781CA323DED7
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456073   (1025287) от 21.03.2021
-
-Повелись! Правдивая история о фальшивом искусстве / Made You Look: A True Story About Fake Art (2020) WEBRip (H264/1080p)
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный кинофильм, где речь будет идти о грандиозном уголовном скандале, в котором будет замешан американский эрмитаж художественных картин в городе Нью-Йорке. Директор компании, обслуживающей это заведение наживался тем, что совершал сделки купли-продажи поддельных работ знаменитых художников. Но его выдаст одна особенная деталь.Производство: Норвегия, Kavana EntertainmentЖанр: Документальный, расследованиеРежиссер: Барри АвричПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:29:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8699AD46AAEEC2A7B7515CEA89550AE582E13F3
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Terry Scott Taylor - Imaginarium - Songs from the Neverhood (2004) 2CD [FLAC|Los
 magnet:?xt=urn:btih:4E9B8162E776157CEBE1A094185E1A612780F307
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Steven Price - Gravity: Original Motion Picture Soundtrack (2013) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:5069FB9EFDC963CCA2095318DD0B8EAD747A68B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Anima - Temple of the Heart (2010) [MP3|320 Kbps] <New Age, Native American Flut
 magnet:?xt=urn:btih:387D2E192CA0593DCB52512AC183C29856BD1491
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Jean-Michel Jarre - Electronica 1: The Time Machine (2015) [FLAC|image+.cue]<Amb
 ```bash
 magnet:?xt=urn:btih:69F4769D1FAB4E832FD308625DE97D0C1592D461
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Piano Peace - Spa Piano & Ocean Waves (2018) [FLAC|Lossless|WEB-DL|tracks] <Inst
 magnet:?xt=urn:btih:DA673F718D901045F5443E2CC66CA8E3124F6599
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Henry Jackman - Хищник / The Predator (2018) [MP3|320 Kbps] <Score>
 ```bash
 magnet:?xt=urn:btih:739DADB5545B139AC00A893F2592A77A2ABFD12B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Hans Christian - Nanda Devi (2015) [MP3|320 кб/с]<New Age, Meditation>
 magnet:?xt=urn:btih:42EC0F410A5E4671E9157F52B419038F967B31DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Russ Davies - The Watch Soundtrack (2022) [FLAC|Lossless|tracks] <Score>
 ```bash
 magnet:?xt=urn:btih:E1393096F40C449152AE6060AE23D2A43FDDE729
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Gears of War (Collection Original Soundtrack) (2007-2016) [MP3|320 кб/с]
 magnet:?xt=urn:btih:05B2B883710722466940001F5D6F9A3C0E780C88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Tariverdiev (Микаэл Таривердиев) - Film Music (2015) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:799F2B9DD1D67ABECBF260A1BE9203B4C3590B62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Золотая коллекция - Песни Нашего Кино (1998)
 magnet:?xt=urn:btih:A4DDA2250D4BD1F9C5D8514D7BFAF3D1AF98B4AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +341,8 @@ Armik - Esta Guitarra (2020) [FLAC|Lossless|WEB-DL|tracks] <Flamenco, Guitar>
 magnet:?xt=urn:btih:F14E4B5AC30996B6BC9B5476891FE038D458D2B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +366,8 @@ VA - Scream Collection 1-4 / Крик 1-4 (1996-2011) [MP3|320 Kbps] <Soundtrack
 ```bash
 magnet:?xt=urn:btih:E32617DDEBDCE72C7AFBFD0C7C54C8DFBF35AFF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +396,8 @@ Sufjan Stevens - The Ascension (2020) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock, 
 magnet:?xt=urn:btih:E5499BD0DF2AEC4CB26C7FC0EBB64A3CE08E52C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +424,8 @@ Hiroka Matsuda - The Black Fire Original Image Album (1987) [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:6EC5F4D7C9F6B69D59D72C8B1AEE968E7D7A8210
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +454,8 @@ Esperanza - 2 Альбома (1998, 2001) [FLAC|Lossless|tracks] <Instrumental, 
 magnet:?xt=urn:btih:80BCD83E014A72DB3CF2C62622F7503671904855
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +482,8 @@ V.A. - Александр Зацепин: Лучшие песни из кино�
 ```bash
 magnet:?xt=urn:btih:E4617002D69899CC3B9B214F79F7E7293DE73DFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +512,8 @@ magnet:?xt=urn:btih:E4617002D69899CC3B9B214F79F7E7293DE73DFD
 magnet:?xt=urn:btih:F45CD8035D543E208139644C42B6D729149BC474
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +540,8 @@ Mauricio Nader - Our Soul Revealed (2018) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:56D2EC25F9506E858C902900931F78F721EC2322
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +570,8 @@ Thierry David - Zen World (2006) 2008, Real Music [FLAC|Lossless|tracks + .cue] 
 magnet:?xt=urn:btih:81E22DE6C09E0EDEA3461EAFC416A978BC786D41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +598,8 @@ VA - Клинч (2015) [MP3|320 кб/с]<Soundtrack>
 ```bash
 magnet:?xt=urn:btih:9C57777787B48C8DD31B7B994834679215180B3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +628,8 @@ Francisco Canaro - Todo Milonga Serie Baile, Vol. 1 (2015) [MP3|192 кб/с]<Tan
 magnet:?xt=urn:btih:528A25BE1063A0AF1270FE4D16C296633CC9CE5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +656,8 @@ Enigmatic Hits - Reloaded (2020) [MP3|320 Kbps] <Enigmatic, New age>
 ```bash
 magnet:?xt=urn:btih:72194804D4A027ED7781AF054E7F115592748122
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +686,8 @@ Francisco Canaro - Serie Para Baile Vol.2 - Todo Vals (1941) [MP3|256 кб/с]<T
 magnet:?xt=urn:btih:602EFD7695FDFC64236A1C5002B9CD3820BD00E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +715,8 @@ Bernard L'Hoir - She's... (2015) [OGG| 407-500 кб/с]<New Age, Jazz, Folk, Ins
 magnet:?xt=urn:btih:FFBB5C9855BBF92CF28E169D4730C471255CF29A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ VA - Romantic Guitars (1995) [FLAC|Lossless|image + .cue] <Instrumental, Guitar>
 ```bash
 magnet:?xt=urn:btih:58F10C83EC4AE7FE4132907AB864FFFF07D065FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

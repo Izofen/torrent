@@ -19,6 +19,8 @@ Moon+reader относится к категории универсальных 
 magnet:?xt=urn:btih:8B8040A393E618696FAC87353579C3CD3BCDC4FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Polarr v6.8.13 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:FD33523BBBF6D3AEB87F3CA00AAEE0F03037F66D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ PROTO - симулятор схем v1.25.0 Mod by vedserega [Ru/Multi]
 magnet:?xt=urn:btih:409805C8BFE485627F08DCCC32AF375078921883
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Music Folder Player - аудиоплеер, что не может похвас�
 ```bash
 magnet:?xt=urn:btih:5B617E6400EEDE346DEEED7C6E49BDB890D79E32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Shazam (шазам) - невероятно популярное и очень у
 magnet:?xt=urn:btih:91638FAB2182968AE84FE0F12784975E336C2D5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Mobizen Screen Recorder - невероятно популярное прилож
 ```bash
 magnet:?xt=urn:btih:4AA20B155D05060E1960EBDE50079F79E0CE2668
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Bazaart: Photo Editor & Graphic Design v2.3.4 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:D6009DC8A12D730211A0DA0C6D0D36DD7D920C3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ FBReader Premium v3.5.4 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:99A23B3A862E4123B6C5E16FE2EBBB7A4F117201
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ V Recorder – качественный и простой экранный ре�
 magnet:?xt=urn:btih:2FCB9ED09F619FEEFB4C349C13AB5F5866270682
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ izi.TRAVEL v7.2.2.514 Mody Ale.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:66F41BA9F8C1A4A2A54F7FA5F12348A35709B4F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ PhotoRoom - приложение, что будет одинаково поле�
 magnet:?xt=urn:btih:167F7788BE8C1462DC7459C1C81516DF1B7F7C2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ VIP Notes - программа-блокнот, что несмотря на св
 ```bash
 magnet:?xt=urn:btih:0EDB0242A3B58626A999CB3B7F0295067A9771F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Square Home - красивый, стильный и функциональный
 magnet:?xt=urn:btih:BF87F8760F7CF492C5B11CA8253706A20A836790
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Smart Launcher - лаунчер являющийся одним из самых 
 ```bash
 magnet:?xt=urn:btih:BA5B9D08774BACF2C5C4B4F62F6C8AAB7FAD630F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ FX Player Pro - универсальный медиаплеер который �
 magnet:?xt=urn:btih:F0B36BF2EE0C4ADB03C0A97B2F9E7FADB0E9B1F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ PhotoDirector - функциональный, но весьма простой �
 ```bash
 magnet:?xt=urn:btih:6733BED70195404DCF22D80E1364FFF19C36DFEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ PhotoRoom - приложение, что будет одинаково поле�
 magnet:?xt=urn:btih:CF9F477CDA546DC1BE1AA8F579336CC6CAE641D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ VPN Russia - VPN сервера в России 1.184 Mod by FreeApkexe [Ru/En]
 ```bash
 magnet:?xt=urn:btih:17633C64698926E2E099C0D860FF82C7A57A79DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Talkao Translate - голосовой переводчик. Talkao Translate —
 magnet:?xt=urn:btih:E13D6D3A54414F7C02E06FEE86ED961F248F944A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Seal 1.11.0 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0E0AE14F5B62FF0D0DDD106B8C1A0B399DF652BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Node Video - один из самых мощных видеоредакторо�
 magnet:?xt=urn:btih:93BF6362CBFAD6C2157AED95FACE99801BEA8CAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ magnet:?xt=urn:btih:93BF6362CBFAD6C2157AED95FACE99801BEA8CAE
 ```bash
 magnet:?xt=urn:btih:E59170ED96FECB6A53C886D86D23425FD83BAB41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Smart AudioBook Player Pro v11.5.5 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:6FC74749184F4880764923C8C3F311F1D5AF6C48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Smart AudioBook Player Pro v11.5.5 Mod by Kirlif' [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2F8A6B878F69429636337F2E0E8AEE426F34302A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ eWeather HDF - это точный прогноз погоды от двух м�
 magnet:?xt=urn:btih:4B6F020230DCA32D5FB705A6B47E78DDDE72D80C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ PaperColor - превосходное приложение для рисован
 ```bash
 magnet:?xt=urn:btih:5CDAD4F4CC934E59B50889B8938C94FDE8B07B74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

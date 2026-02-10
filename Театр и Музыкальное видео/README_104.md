@@ -1,3 +1,206 @@
+###  Публикация: 361253   (576955) от 10.07.2011
+
+Beyonce - Best Thing I Never Had (2011) HDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодня стала доступна еще одна лирическая баллада от мисс Beyonce Knowles - "Best Thing I Never Had"-2011, которая войдет в четвертый сольный альбом Beyonce – "4". Клип снимали на Ямайке. Продюсером трека является Symbolyc One.Жанр: ВидеоклипРежиссер: Энтони МэндлерАктеры: BeyonceПеревод: ОтсутствуетПродолжительность: 00:04:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEA7710EE9F9243308094CB7F54BAD928519AE92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919842   (577236) от 24.07.2015
+
+Аль Бано и его леди. Концерт Феличита (2010) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577236.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Государственном Кремлевском Дворце состоялась премьера музыкальной программы звезды итальянской эстрады - Аль Бано. Многие с нетерпением ждали возвращения артиста в Россию. Он - настоящий итальянец, который знает толк в вине, в женщинах, в футболе и отлично поет. Его музыка - искренняя, мелодичная и в тоже время очень экспрессивная, покорила миллионы россиян. Свою (   Читать дальше...   )01. Al Bano - Il Mio Concerto Per Te
+02. Al Bano и Наталья Подольская - Che Angelo Sei
+03. Al Bano и Юлия Началова - Королева красоты
+04. Al Bano и Жасмин - Abbandonati(   Читать дальше...   )Производство: РоссияЖанр: Музыкальный, КонцертПродолжительность: 01:40:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C930E43C6EC7D70E1666B60D4E9521221B3A6CBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526929   (578367) от 25.07.2012
+
+Rammstein - Live aus St. Petersburg (2012) BDRip 720p
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Sonne
+03. Wollt Ihr Das Bett In Flammen Sehen?
+04. Keine Lust
+05. Sehnsucht
+06. Asche zu Asche
+07. Feuer Frei!
+08. Mutter
+09. Mein Teil
+10. Du Riecht So Gut(   Читать дальше...   )Жанр: Industrial metalПродолжительность: 01:57:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 811614   (578406) от 10.08.2014
+
+Hidden Tribe - Live at RTC-Fest @ Da:Da (2013) [1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Презентация альбома «Sub Mira» в клубе «Da:Da», Санкт-Петербург, 31.08.201301. Souls Connection
+02. Maiden Bright
+03. Phenomenon
+04. Double Twins(   Читать дальше...   )Жанр: Ethno-con-fusion, Trip-Hop, DowntempoПродолжительность: 00:59:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC585EAF40B0B86B68F40FBCDF1F0C7E8BEA5F7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 360925   (578611) от 09.07.2011
+
+MEDINA - FOR ALTID (2011) HDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый сингл Датской певицы  Медины (Medina) - "For Altid" 2011. Датская певица Medina, исполнительница нашумевшего дэнс-хита "You & I", представила свою новую песню "For Altid" пока на датском языке, но в ближайшее время ожидается англоязычная версия песни, которая будет называться Forever. Песня, кстати, очень похожа на её предыдущую работу "Gutter".Жанр: ВидеоклипРежиссер: N/AАктеры: MedinaПеревод: ОтсутствуетПродолжительность: 00:03:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C12C36E37661FCB64FA2FD781A5940836180A6BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920752   (578630) от 23.07.2015
+
+Led Zeppelin - Celebration Day (2012) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грандиозный концерт группы Led Zeppelin на площадке O2 Arena в Лондоне, который посетили 18 тысяч зрителей из 20 миллионов желающих. Порядок песен (стартуют ребята символично с «Good Times Bad Times» – первой песни первого альбома 1969 года), освещение, работа операторов – здесь все подернуто духом реконструкции, но с искренним ощущением чуда. Никакие фильтры и ракурсы (   Читать дальше...   )01. Good Times Bad Times
+02. Ramble On
+03. Black Dog
+04. In My Time Of Dying(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalРежиссер: Dick CarruthersПродолжительность: 02:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0572313D529754EED468FCC899A64FC2A3967F5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554169   (578938) от 29.05.2022
+
+Квартирник у Маргулиса. Юбилей Павла Фахртдинова (28.05.2022) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поэту, музыканту и автору-исполнителю Павлу Фахртдинову — 40! В его творчестве столько разнообразных стилей, тем, настроений и интонаций, что репертуар артиста можно изучать годами и все равно постоянно ждать чего-то нового. Свой юбилей музыкант отметил в атмосферной студии «Квартирника». В праздничный вечер он исполнил не только свои хиты, но и новые композиции. (   Читать дальше...   )00:00:06 Выведи
+00:04:59 Слушай, сынок
+00:10:40 Это важно
+00:16:45 Дальше(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:06:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75FE343907AACE2D40FC02AFEFD0F6E4F161FCB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1302754   (579075) от 17.05.2019
 
 Сборник клипов - Rap & Hip Hop Video Collection от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ] [upscale]
@@ -21,6 +224,8 @@
 ```bash
 magnet:?xt=urn:btih:279CA724CFAE2882F6CEC29C1F68C9EEF886FC8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +254,8 @@ Metallica - Orgullo Pasion Y Gloria - Tres Noches En Mexico (2009) BDRip [H.264/
 magnet:?xt=urn:btih:F115A025896E10D0B8E5EBB4E23787BEF108ED17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +283,8 @@ Whitesnake - Made In Japan (2011/2013) BDRip [H.264/1080p]
 magnet:?xt=urn:btih:8A93FABFF32CDEB57A7816A4DF0E99A9049C4C4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +308,8 @@ magnet:?xt=urn:btih:8A93FABFF32CDEB57A7816A4DF0E99A9049C4C4E
 ```bash
 magnet:?xt=urn:btih:5E0176683F59067692C8BEA5F479C2E17AB3E580
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +336,8 @@ magnet:?xt=urn:btih:5E0176683F59067692C8BEA5F479C2E17AB3E580
 magnet:?xt=urn:btih:E0E608B5DEBEA3B859AB7B1BF1DFA496CFE4C780
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +361,8 @@ magnet:?xt=urn:btih:E0E608B5DEBEA3B859AB7B1BF1DFA496CFE4C780
 ```bash
 magnet:?xt=urn:btih:E140EE64D677A4F57752BA6483856C4AC3C84F9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +391,8 @@ Metallica - Fan Can Six, Copenhagen(2010) BDRip [H.264/1080p]
 magnet:?xt=urn:btih:1D6E9D5357B0D52080EF12AD5F5B90E531733E0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +419,8 @@ magnet:?xt=urn:btih:1D6E9D5357B0D52080EF12AD5F5B90E531733E0C
 ```bash
 magnet:?xt=urn:btih:4C9025229C25A214C7C924006ADD83A8372E8542
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -230,6 +449,8 @@ Avril Lavigne - Live at The Roxy Theatre (16.10.2007) HDTV [1080i]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +477,8 @@ Avril Lavigne - Live at The Roxy Theatre (16.10.2007) HDTV [720p]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +507,8 @@ Nightwish - Showtime, Storytime (2013) BDRip [H.264/1080p]
 magnet:?xt=urn:btih:744DB7EF307F0D09AF0B251E6F78F7DCAB5C7365
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +532,8 @@ magnet:?xt=urn:btih:744DB7EF307F0D09AF0B251E6F78F7DCAB5C7365
 ```bash
 magnet:?xt=urn:btih:A8B722ABF9396C6CAD6783DC7243EC07EECB97AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +559,8 @@ U2: 360° at the Rose Bowl (2010) DVD9
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +584,8 @@ The iconic duo's acclaimed production, first presented at the Royal Opera House 
 ```bash
 magnet:?xt=urn:btih:EAF83C61444553C30D48F430539D4999A5C657B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +611,8 @@ The iconic duo's acclaimed production, first presented at the Royal Opera House 
 magnet:?xt=urn:btih:E21BCEB820F947EC0F658BF8B6BDE79D310B957C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +636,8 @@ Linkin Park - Rock in Rio (2012) HDTVRip 720p
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +666,8 @@ Linkin Park - Rock in Rio (2012) HDTVRip 720p
 magnet:?xt=urn:btih:93F6A7E398F5471D61183030D80660A8EC57C9D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +691,8 @@ magnet:?xt=urn:btih:93F6A7E398F5471D61183030D80660A8EC57C9D3
 ```bash
 magnet:?xt=urn:btih:E22A7B5F1E113C87CE3E0906FABD949AF7BA4BF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,198 +722,7 @@ magnet:?xt=urn:btih:E22A7B5F1E113C87CE3E0906FABD949AF7BA4BF7
 magnet:?xt=urn:btih:A35240DCEEDFF2BB61D202730C7DEE0DCD7AED1E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357096   (587790) от 30.06.2011
-
-The Prodigy - World's on Fire (2011) [1080i] BDRemux
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587790.jpg" />
-</div>
-
-
-###  Подробнее
-
-World’s on Fire ( Мир в огне) — видеоконцерт и первый концертный альбом британской электронной группы The Prodigy, выпущенный на blu-ray 24 мая 2011 года. Фильм-концерт демонстрировался в кинотеатрах. Съёмки проходили на фестивале Warrior’s Dance, организованном участниками коллектива в городе Милтон-Кинс 24 июля 2010 года.1. Intro (Live)
-2. Breathe (Live)
-3. Omen (Live)
-4. Colours (Live)
-5. Thunder (Live)
-6. Warriors Dance (Live)
-7. Firestarter (Live)
-8. Run With The Wolves (Live)
-9. Weather Experience (Live)
-10. Voodoo People (Live)(   Читать дальше...)Жанр: Electronic, BreakbeatРежиссер: Liam HowlettАктеры: The ProdigyПеревод: Не требуется, нет диалогов и комментариевПродолжительность: 01:09:01
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 165835   (588165) от 03.08.2016
-
-France Gall - видеозаписи (1963 - 1984)/ VHSRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_588165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Isabelle Genevive Marie Anne Gall
-родилась в семье Роберта Галла, автора песен Шарля Азнавура и Эдит Пиаф, и певицы Сесиль Бертье. В подростковом возрасте создала вместе с братьями музыкальную группу. В 15 лет записала свой первый альбом. Её первый сингл «Ne sois pas si bte» имел оглушительный успех, как и последующие песни певицы, невинные, на первый взгляд, но (   Читать дальше...   )Жанр: МузыкаАктеры: France GallПеревод: Оригинальный
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917230   (588575) от 13.07.2015
-
-ВИА ГРА - Избранное (Видеография, лучшие хиты ''2000-2010'') (2015) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшая подборка видео хитов за 2000 - 2010 годы.1. Попытка N5
-2. Обними меня
-3. Бомба
-4. Я не вернусь(   Читать дальше...   )Жанр: PopПродолжительность: 01:52:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBF9FF16D8A9DEF49B9C0C04E3A2C2E4E8724A90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917945   (588607) от 13.07.2015
-
-Status Quo - Pictures - Live At Montreux (2009) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588607.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2009, Британская рок-группа Status Quo, дала концерт в Montreux (Швейцария). Группа привезла набор горячих хитов и классических произведений из всех эпох своей карьеры, включая не менее 18 - входивших в разное время в Top 20 UK. Тур "Pictures" - признаётся многими знатоками, как один из лучших в истории коллектива.01. Caroline
-02. The Wanderer
-03. Rain
-04. Don't Drive My Car(   Читать дальше...   )Жанр: RockПродолжительность: 01:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05F7147D3DA821740C80770816F1E048A289A2A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917927   (588621) от 13.07.2015
-
-Megadeth - Countdown To Extinction - Live  (2013) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый концертный релиз американской группы Megadeth.  Концерт записан в Помоне (Калифорния, США) в декабре 2012.01. Intro: Prince Of Darkness
-02. Trust
-03. Hangar 18
-04. Public Enemy(   Читать дальше...   )Жанр: Heavy Metal, Thrash Metal, Speed Metal, Hard RockПродолжительность: 01:32:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BB5586C6861F47A19E9E318E729A3B900E85D7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 808821   (588764) от 30.07.2014
-
-Lacrimosa - Live In Mexico City (The First Edition) Bonus DVD (2014) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lacrimosa Theme/Arrival At The Airport
-02. Irgendein Arsch Ist Immer Unterwegs
-03. Schakal
-04. Alles LügeЖанр: Gothic MetalПродолжительность: 00:20:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D14DA9277693873F3A42F6108C1190021F334537
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917649   (589019) от 12.07.2015
-
-Kiss - Live In Nurburgring (2010/2012) BDRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kiss — американская рок-группа, основанная в Нью-Йорке в январе 1973 года и известная сценическими макияжами её участников, а также концертными шоу, сопровождающимися различными пиротехническими эффектами.01. Modern Day Delilah
-02. Cold Gin
-03. Let Me Go, Rock 'N'
-04. Firehouse(   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy MetalПродолжительность: 01:54:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3227C356DAC347206F8C31E6454636639B37F732
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

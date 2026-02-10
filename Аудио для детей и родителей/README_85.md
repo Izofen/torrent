@@ -22,6 +22,8 @@ VA - Philadelphia Chickens (2002) [MP3|140-160 kbps]<Детские песенк
 magnet:?xt=urn:btih:AFAD05BF4B81359B352A5175622CF816D05E7BD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:AFAD05BF4B81359B352A5175622CF816D05E7BD4
 ```bash
 magnet:?xt=urn:btih:7ACECF42D0A0F0E357AB8CF1AE61C6C488AD6D06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ magnet:?xt=urn:btih:7ACECF42D0A0F0E357AB8CF1AE61C6C488AD6D06
 magnet:?xt=urn:btih:5D781B258989C446622E005D55CC28B5F5805350
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ CD1: 01. Alessandro De Muro - Libus
 ```bash
 magnet:?xt=urn:btih:2E6A234607F0E04BCDC0B38FB48F6508E6A5A37A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ VA - Die 30 Schonsten Kinderlieder (2002) [MP3|128 kbps]<Детские песе
 magnet:?xt=urn:btih:1C2A64454F3788A2C9971DA3647813CE9E6C9A74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ magnet:?xt=urn:btih:1C2A64454F3788A2C9971DA3647813CE9E6C9A74
 ```bash
 magnet:?xt=urn:btih:F0F0B778C4D1EF7FD378B677ECDD0F39243A14BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ CD 01: Art Time Classics
 magnet:?xt=urn:btih:BF120C8FFA8523256F35C7338A8F6A1B50291982
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +218,8 @@ magnet:?xt=urn:btih:BF120C8FFA8523256F35C7338A8F6A1B50291982
 ```bash
 magnet:?xt=urn:btih:8AFCF850447FDBE46F02F064039F562819B9FD91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +245,8 @@ magnet:?xt=urn:btih:8AFCF850447FDBE46F02F064039F562819B9FD91
 magnet:?xt=urn:btih:A682FFB8C6AD241FEA8F99AFFEB7B2CA8154309B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ magnet:?xt=urn:btih:A682FFB8C6AD241FEA8F99AFFEB7B2CA8154309B
 ```bash
 magnet:?xt=urn:btih:2326D5FC94B9FC35AF5A5082338E9721AD7EF2DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:2326D5FC94B9FC35AF5A5082338E9721AD7EF2DD
 magnet:?xt=urn:btih:45FD4CE2FB86376D446EBF99AAC8B7B2AFCC0873
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ magnet:?xt=urn:btih:45FD4CE2FB86376D446EBF99AAC8B7B2AFCC0873
 ```bash
 magnet:?xt=urn:btih:C111D010D107C88E2F3928D0DD7E5484DA8045F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:C111D010D107C88E2F3928D0DD7E5484DA8045F2
 magnet:?xt=urn:btih:E822B6B7043D4A5A0F84BF74D528E23B7B2B40D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ magnet:?xt=urn:btih:E822B6B7043D4A5A0F84BF74D528E23B7B2B40D8
 magnet:?xt=urn:btih:36261DF96C6FB378B306EE891112EBEB583DC15F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ magnet:?xt=urn:btih:36261DF96C6FB378B306EE891112EBEB583DC15F
 ```bash
 magnet:?xt=urn:btih:2CC67129DB590D8F13F8B7867AAA691BF53E44A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +434,8 @@ VA - Brazilian lullaby (1999) [MP3|320 kbps]<Колыбельные для ма�
 magnet:?xt=urn:btih:F6246D2A218E24423B9ED429CD8902F2F00C2C80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +463,8 @@ VA - Babydream.Traume sub. vol.3 (2001) [MP3|320 kbps]<Колыбельная м
 magnet:?xt=urn:btih:CB1D8F870C6A80D242A41DC4AECE0F3D68183F0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +491,8 @@ magnet:?xt=urn:btih:CB1D8F870C6A80D242A41DC4AECE0F3D68183F0F
 magnet:?xt=urn:btih:FD5D8315A9C34FC3D7C523919E3FF359DAB0C67F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +517,8 @@ magnet:?xt=urn:btih:FD5D8315A9C34FC3D7C523919E3FF359DAB0C67F
 magnet:?xt=urn:btih:C3744E8218CB29E16FD2FDA82370A7B076F283E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +542,8 @@ magnet:?xt=urn:btih:C3744E8218CB29E16FD2FDA82370A7B076F283E7
 ```bash
 magnet:?xt=urn:btih:CF223A56C28061115A069C0E9B98B314E064C221
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +570,8 @@ magnet:?xt=urn:btih:CF223A56C28061115A069C0E9B98B314E064C221
 magnet:?xt=urn:btih:A87322339A32933590A1EDE81CA5A169CB8208FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +595,8 @@ magnet:?xt=urn:btih:A87322339A32933590A1EDE81CA5A169CB8208FE
 ```bash
 magnet:?xt=urn:btih:CCF8FFF190CE228B5A536659AB859383A4EFB86F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +622,8 @@ magnet:?xt=urn:btih:CCF8FFF190CE228B5A536659AB859383A4EFB86F
 ```bash
 magnet:?xt=urn:btih:F8D69F3F261B3CDE91F414856CF7A5F04E6E4891
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +652,8 @@ magnet:?xt=urn:btih:F8D69F3F261B3CDE91F414856CF7A5F04E6E4891
 magnet:?xt=urn:btih:9969AF7496DBC9F18A7BD7A41B8F784654C995F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +679,8 @@ magnet:?xt=urn:btih:9969AF7496DBC9F18A7BD7A41B8F784654C995F1
 magnet:?xt=urn:btih:3C107D9E8213765751F063CD6C7E90396355A9D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +704,8 @@ magnet:?xt=urn:btih:3C107D9E8213765751F063CD6C7E90396355A9D3
 ```bash
 magnet:?xt=urn:btih:CC16BE3F6261D434DE11A5D2CA7BEAE4B1E67900
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

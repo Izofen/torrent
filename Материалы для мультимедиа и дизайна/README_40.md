@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:D57691B7B970BB62DA271387AF938BFE3951EF6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Salina — современный, высококонтрастный перех
 ```bash
 magnet:?xt=urn:btih:CC8458E7D6C87E0DE60E1DCBE697D9136508F3F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:CC8458E7D6C87E0DE60E1DCBE697D9136508F3F3
 magnet:?xt=urn:btih:EF07CD7D79FD204E0F486F6D7C3FB0F04CBF1C5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Havering — еще одно дополнение к семействам шри
 magnet:?xt=urn:btih:4B0E17FF16A1EA5D63F51F23110C9F978A5A6D0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:4B0E17FF16A1EA5D63F51F23110C9F978A5A6D0A
 ```bash
 magnet:?xt=urn:btih:F6ACB7B35EC302AB6BDE3EAD98ED0A0C7EEBD4FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:F6ACB7B35EC302AB6BDE3EAD98ED0A0C7EEBD4FF
 magnet:?xt=urn:btih:58807363D26662263CDACB8FB82E4FBA7B63E8BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:58807363D26662263CDACB8FB82E4FBA7B63E8BA
 magnet:?xt=urn:btih:1023F90B677F5A3A4D90F2F33243E7227EC1104E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ Socora LITE - это мощный мини-синтезатор и "motion fx st
 ```bash
 magnet:?xt=urn:btih:E28845C4350D2CBE788A16E8CBC56FF526BDACD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ Mercury Script — это семейство шрифтов с тремя нас
 magnet:?xt=urn:btih:465F3ACD7D92C2D9A501AC1DBB8661D9646C9C52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:465F3ACD7D92C2D9A501AC1DBB8661D9646C9C52
 ```bash
 magnet:?xt=urn:btih:C3BBE795EF4A469218F8CC7E3A49F0F0869396D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:C3BBE795EF4A469218F8CC7E3A49F0F0869396D7
 magnet:?xt=urn:btih:2476CAF1ED07C4FAA718681F36052ABB68D983E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:2476CAF1ED07C4FAA718681F36052ABB68D983E3
 ```bash
 magnet:?xt=urn:btih:0B3A9D6515DDFBA802B6C41F01D4CAE592B8C57B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:0B3A9D6515DDFBA802B6C41F01D4CAE592B8C57B
 magnet:?xt=urn:btih:CC411CC300CAD8B4A79345A240FE9685CE936761
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:CC411CC300CAD8B4A79345A240FE9685CE936761
 ```bash
 magnet:?xt=urn:btih:8CBBCAEAB215F0099908077C9211F8A2D2765E22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:8CBBCAEAB215F0099908077C9211F8A2D2765E22
 magnet:?xt=urn:btih:1C68DAB2818EB88D71506E17B59419C1272930C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:1C68DAB2818EB88D71506E17B59419C1272930C1
 ```bash
 magnet:?xt=urn:btih:69525B60F332672B8C25133F03C4CC4F6FC5DF70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:69525B60F332672B8C25133F03C4CC4F6FC5DF70
 magnet:?xt=urn:btih:E495335210FFEAFB45C4624174CA8970D4B6BE66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:E495335210FFEAFB45C4624174CA8970D4B6BE66
 ```bash
 magnet:?xt=urn:btih:65DB1104784E920F31F1BB8F6D85762D95F1ABEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ magnet:?xt=urn:btih:65DB1104784E920F31F1BB8F6D85762D95F1ABEB
 magnet:?xt=urn:btih:AA5F72249E3ABA13162F1D7241D1C180EC8BB609
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:AA5F72249E3ABA13162F1D7241D1C180EC8BB609
 ```bash
 magnet:?xt=urn:btih:C23A1F125185FCC11D25F539F2295E4FF204F049
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:C23A1F125185FCC11D25F539F2295E4FF204F049
 magnet:?xt=urn:btih:39A369DF20D421C12B311E73172805092E8EFEAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:39A369DF20D421C12B311E73172805092E8EFEAA
 ```bash
 magnet:?xt=urn:btih:ED528075E0EE0233836460FDFC6B00E1A68ED821
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:ED528075E0EE0233836460FDFC6B00E1A68ED821
 magnet:?xt=urn:btih:04E854B60B9244510161AA214C32D038D2BD76B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:04E854B60B9244510161AA214C32D038D2BD76B8
 ```bash
 magnet:?xt=urn:btih:9D136D573D7CE886D7C4058D57B0E92F2AEA9CA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:9D136D573D7CE886D7C4058D57B0E92F2AEA9CA5
 magnet:?xt=urn:btih:2FAFEB8742A7E9358389D5A9F1253470639E76D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ Refinery — новейший шрифт в коллекции квадратн�
 ```bash
 magnet:?xt=urn:btih:01E8E30C99AA36A554BB8086C245D65EC64B35E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

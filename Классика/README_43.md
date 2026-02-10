@@ -22,6 +22,8 @@ Ivan Moravec - Chopin: Nocturnes (1991) 2 CD [FLAC|Lossless|tracks] <Classical, 
 magnet:?xt=urn:btih:9C7F1E22DB10506E8B3B85D0A9EA7E2E25F80758
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Jean Rondeau - Vertigo (2016) [FLAC|Lossless|tracks] <Classical>
 ```bash
 magnet:?xt=urn:btih:04D97D6C5312ECC90EC12466F5A8237515D6BD95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Suite XII in a Adler: Suite 15 "ex autographo"
 magnet:?xt=urn:btih:FB221FE2A39311C7C3C3441F36B30822C7DE4DB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Richard Strauss, Alfred Lord Tennyson - Enoch Arden: A Melodrama (Mac Morgan, Wi
 ```bash
 magnet:?xt=urn:btih:C070E41CB03CF497B008BBAD2F0A789A48F97EEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ Symphonies 38 in C major K. 504 "Prague"
 magnet:?xt=urn:btih:EB49CF647CAC0716E1803BC92D8F90CC034D9F07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ magnet:?xt=urn:btih:EB49CF647CAC0716E1803BC92D8F90CC034D9F07
 ```bash
 magnet:?xt=urn:btih:A00FCDB4FB674ED45CD34D181634F85473EE4009
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -182,6 +194,8 @@ Lemminkäinen Suite
 magnet:?xt=urn:btih:F485FFD2684CF7B58904605DB26DF7BCC08104C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ George Frideric Handel - Arminio (2016) [FLAC 2.0|96/24|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:378D2F0AFF89D776760C6E4CEB3A92FEA95A4B61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +252,8 @@ La sonnambula
 magnet:?xt=urn:btih:E7B2F283120F40ED3A2B36B1935970FEBACF68A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +280,8 @@ Sonatine for piano in F sharp minor(   Читать дальше...   )Жанр:
 ```bash
 magnet:?xt=urn:btih:6F9FDB05CB6C0E3F8FE5F7BB2D573413D12E1D89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +310,8 @@ Symphony No. 4 in E flat major 'Romantic' (1874-80)
 magnet:?xt=urn:btih:0AE143D3B82C5213C95FD254BC03A83C277503BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +338,8 @@ Piano Concerto In A Minor, Op. 54
 ```bash
 magnet:?xt=urn:btih:06E639E6692F22C2E425ABAF8E7FA22349ACC68B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +368,8 @@ J.S.Bach - Famous Organ Works (1979) Reissue, 2009, JVC [FLAC|Lossless|image + .
 magnet:?xt=urn:btih:C2DE50AA6786D1CB1A9C85D2C1C0FDCD9C204EA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +396,8 @@ magnet:?xt=urn:btih:C2DE50AA6786D1CB1A9C85D2C1C0FDCD9C204EA4
 ```bash
 magnet:?xt=urn:btih:BC4E956BB24FAAEF191C27114E55BDF77A9E34F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +426,8 @@ Mozart - Symphonien №. 25, 29, 35 «Haffner» (1972) Reissue, 2008, Decca [FLA
 magnet:?xt=urn:btih:BF0EDFB5F19452C155644D86876A94F56A0FF680
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +455,8 @@ Rudolf Kempe - Kempe Conducts Tchaikovsky, Debussy, Janacek (2002) [FLAC|Lossles
 magnet:?xt=urn:btih:7B4F5A616EB30573C0BF407AB7AABC7CF0DBA673
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +483,8 @@ Joseph Lin, Benjamin Loeb - Korngold - Music for Violin and Piano (2003) [FLAC|L
 ```bash
 magnet:?xt=urn:btih:BE27F2A9929579F8A4AE1A3236D3125397041D17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +519,8 @@ magnet:?xt=urn:btih:BE27F2A9929579F8A4AE1A3236D3125397041D17
 magnet:?xt=urn:btih:2747D8DB665878F3404FD9792FAA0468FB6351B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +547,8 @@ magnet:?xt=urn:btih:2747D8DB665878F3404FD9792FAA0468FB6351B7
 ```bash
 magnet:?xt=urn:btih:8E51009688A83641217ADC703287BA65EC35D867
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +577,8 @@ The London Orion Orchestra - Pink Floyd's Wish You Were Here Symphonic (2016) [M
 magnet:?xt=urn:btih:E8EDA82C4E4A91801DFF571F5BCBFE1928477BE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +605,8 @@ Chopin - Etudes opus 10 et opus 25 - Samson Francois (1966) [FLAC 2.0|96/24|Loss
 ```bash
 magnet:?xt=urn:btih:BD80F75157D79024F48EA563195126C694D3C7AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +635,8 @@ VA - Favourite Classics (1999) S&V #12 (1999) [MP3|320 кб/с] <Romantic, Class
 magnet:?xt=urn:btih:462BCC1DA4E78C9A80823EBFD095DD050A629ABC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +663,8 @@ Paul Mauriat - Emotion (1993) [FLAC|Lossless|image + .cue] <Classical Music, Ins
 ```bash
 magnet:?xt=urn:btih:AD6B564E2CE8C1A825D58E189E818628C77650FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -647,6 +693,8 @@ J.S.Bach - Motets - Bach Collegium Japan • Masaaki Susuki (2009) [APE|Lossless
 magnet:?xt=urn:btih:D8E7E3ECC9CBF96F54A50A5071461E0BC53C75E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -674,6 +722,8 @@ magnet:?xt=urn:btih:D8E7E3ECC9CBF96F54A50A5071461E0BC53C75E1
 magnet:?xt=urn:btih:7AB75891E80223D2B2A358A6522C87151C75FF3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -700,6 +750,8 @@ Sarah Brightman - New Collection (2008) [FLAC|Lossless|image + .cue] <Classical 
 ```bash
 magnet:?xt=urn:btih:83DA650456EFD645BBEAC000C7C089FBD02A9CCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

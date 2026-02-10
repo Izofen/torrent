@@ -19,6 +19,8 @@ Bakumatsu: Ren'ai Bakumatsu Kareshi Gaiden | Бакумацу [2018, TV, 12] WEB
 magnet:?xt=urn:btih:2A67299865106E0E1DECF73655CADEC21BB31F3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:2A67299865106E0E1DECF73655CADEC21BB31F3D
 magnet:?xt=urn:btih:173B15F56B70186F2ACF7B4E8C86BFA98AB3F4B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:173B15F56B70186F2ACF7B4E8C86BFA98AB3F4B9
 magnet:?xt=urn:btih:6468C9F9F0FC0F75FFD8D6C015085AF5784C902E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:6468C9F9F0FC0F75FFD8D6C015085AF5784C902E
 ```bash
 magnet:?xt=urn:btih:34078BA025195E695B929E8B620A6404000E6A00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:34078BA025195E695B929E8B620A6404000E6A00
 magnet:?xt=urn:btih:44731473E191F3974445960EC1C2C823DC6AECAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:44731473E191F3974445960EC1C2C823DC6AECAD
 ```bash
 magnet:?xt=urn:btih:046C3705563EADE13F1C061EB1AE9B004CD93BBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ PAC-MAN 256: вечный лабиринт v2.0.0 [Ru]
 magnet:?xt=urn:btih:8250C77C9DE6CD3D8345788A726F8390D436284D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:8250C77C9DE6CD3D8345788A726F8390D436284D
 ```bash
 magnet:?xt=urn:btih:8F0A31E59A61330E66718D4E8374A6854CE85940
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:8F0A31E59A61330E66718D4E8374A6854CE85940
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:8F0A31E59A61330E66718D4E8374A6854CE85940
 ```bash
 magnet:?xt=urn:btih:7884F6C48BFE60B7D3FF42F9EB80985469924FEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Alphaville - Prostitute (1994) Deluxe Version, Remaster, 2023, Warner Music Cent
 magnet:?xt=urn:btih:9F3E3197B575CF63604EE84E58329E6FD2871570
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:9F3E3197B575CF63604EE84E58329E6FD2871570
 ```bash
 magnet:?xt=urn:btih:150F5FA0295E5824782AEA5DA5E25CA95332002B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ Visual Studio Community 2019 - Бесплатная, полнофункцион�
 magnet:?xt=urn:btih:084FA08BE53DAE4440950A30E4C65E1FFC05DABB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:084FA08BE53DAE4440950A30E4C65E1FFC05DABB
 ```bash
 magnet:?xt=urn:btih:6076F4F33B016CE1603340F38FEC1B303FF2C167
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:6076F4F33B016CE1603340F38FEC1B303FF2C167
 magnet:?xt=urn:btih:32D7FA6A1B6243E77DCFD416F5B6BC165EB084B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:32D7FA6A1B6243E77DCFD416F5B6BC165EB084B9
 ```bash
 magnet:?xt=urn:btih:D51C2C7B71CBF43476101758CD2214C1D1D050D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Character Animator — это приложение для анимировани
 magnet:?xt=urn:btih:FF1C07C34B4F3BC75F0954CC93D2A4BD5EA18DD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:FF1C07C34B4F3BC75F0954CC93D2A4BD5EA18DD5
 ```bash
 magnet:?xt=urn:btih:D68A0C88BF86BCC4A3C111E3FB73B7E3C0C7C601
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:D68A0C88BF86BCC4A3C111E3FB73B7E3C0C7C601
 magnet:?xt=urn:btih:EB3A6E6B7751122181C1171FFA5575D3D6A8D30A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:EB3A6E6B7751122181C1171FFA5575D3D6A8D30A
 ```bash
 magnet:?xt=urn:btih:1C15436E621179A55BA1FD8FBEEDCAAD3F73F021
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:1C15436E621179A55BA1FD8FBEEDCAAD3F73F021
 magnet:?xt=urn:btih:6B944B9310AC185297820F259755DF56F391EB2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:6B944B9310AC185297820F259755DF56F391EB2B
 ```bash
 magnet:?xt=urn:btih:2E697F7DA68AB7872E1EA07EE0CC6FAA34123B4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:2E697F7DA68AB7872E1EA07EE0CC6FAA34123B4A
 magnet:?xt=urn:btih:0C705E03386C0B5F502B290ECF69EBC48EC443AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:0C705E03386C0B5F502B290ECF69EBC48EC443AF
 magnet:?xt=urn:btih:5EB19A1E4E22EFB77F4E904B630A8017EDB2D187
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ F.E.A.R. [Platinum Collection] (2005-2007) [En] (License GOG) [macOS WineSkin]
 ```bash
 magnet:?xt=urn:btih:43647BC48D00B71A027CEEA6A70AF702E0FDAE3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +675,8 @@ magnet:?xt=urn:btih:43647BC48D00B71A027CEEA6A70AF702E0FDAE3C
 ```bash
 magnet:?xt=urn:btih:66D4BDD526ABE062A8068536ACCB0CB2BB2FF4B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

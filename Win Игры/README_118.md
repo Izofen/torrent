@@ -19,6 +19,8 @@ The Cabin Factory приглашает геймеров в мир, где за �
 magnet:?xt=urn:btih:FA45A54C004BC1682EFA024E977C1EE50073108B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Line's Guarder (2023) [Ru/Multi] (Update 10) Repack Other s
 ```bash
 magnet:?xt=urn:btih:694FD1D5C9E6283163F8F219831CF88EFC72B41D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Between the Stars (2019) [Ru/Multi] (1.0.0.8) License GOG
 magnet:?xt=urn:btih:BEF7D83A2613A534B123C7BF44C0B4F078C6FB3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Jixo: The Season of Joy / Jixo: Сезон веселья (2024) [Ru] (1.0) Unof
 ```bash
 magnet:?xt=urn:btih:C46697B8CE00CA7C12C41B24716520774C3F8B4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Alaskan Truck Simulator – уникальная игра, в которой в�
 magnet:?xt=urn:btih:901CAA006BAB3FF2657F989DEAFAE9679F75FF08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Unsolved Case 6: Ash and Secrets / Нераскрытое дело 6: Пепел
 ```bash
 magnet:?xt=urn:btih:D01EE947F615FFB380DFEDA20A683CCD2D82A573
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Connected Hearts 5: Hour of the Witch / Связанные сердца 5: Ча�
 magnet:?xt=urn:btih:0E226AA5220F4F4D9646C0407CF74B4032A73E65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Ebenezer and the Invisible World (2023) [Ru/Multi] (1.2.0.1) Repack Let'sРlay [
 ```bash
 magnet:?xt=urn:btih:AA8B7199E92E9EE9A351E1B9ABB50E9B08C1AAF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Monster Jam Steel Titans 2 – это продолжение популярно�
 magnet:?xt=urn:btih:C7B34FC06E2CA90C0560FB1723DB478460AE8EBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Alaskan Truck Simulator – уникальная игра, в которой в�
 ```bash
 magnet:?xt=urn:btih:E2378C6CB90B83EE275165A16B4C144666D880B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Crown Wars: The Black Prince (2024) [Ru/Multi] (Build 16501847/dlc) Repack Let's
 magnet:?xt=urn:btih:32B01560D888E5B0E15C5E58B49FC875AC2DDAE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:32B01560D888E5B0E15C5E58B49FC875AC2DDAE1
 ```bash
 magnet:?xt=urn:btih:9DED39A80B92B33E58AC47F4A91305007DF57B0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Tekken 8 - продолжение культового файтинга, нап�
 magnet:?xt=urn:btih:34C891649802945251E92451FFB946B1B62CE853
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Anima Flux (2018) [Ru/Multi] (1.0.9) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:7EFBFEE842CC8B7BB645068739771903C8B094C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ NDIKA — игра от третьего лица с историей о стр�
 magnet:?xt=urn:btih:74F8F67C7BDC5D064053FF5AFC15B07E45891F69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Chess Assistant - это инструмент управления для орг
 ```bash
 magnet:?xt=urn:btih:D63E91DA9ED9F5798623DDEFA799909465E248D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Unknown 9: Awakening (2024) [Ru/Multi] (Build 16687288/dlc) Repack Let'sРlay [D
 magnet:?xt=urn:btih:D970995DF84210F0E8A41BCCA42E1F9B4ECE6A50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.08) Repack 
 ```bash
 magnet:?xt=urn:btih:9837B011C4B7256F1AB4F1A3E85BCCC95D28216C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ State of Decay 2 - игра-антиутопия про выживание в о
 magnet:?xt=urn:btih:A0CFED0B8A2B84BE52120ACC98D3C004C1DC0628
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The Cabin Factory приглашает геймеров в мир, где за �
 ```bash
 magnet:?xt=urn:btih:B03F036327E1361255EEBC70D778A2AD2B584838
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ No More Snow (2023) [Multi] (1.2.0) License GOG
 magnet:?xt=urn:btih:0AF73EABBAA947C7C5AF37DFBCA197BC2798425D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Blasphemous 2 (2023) [Ru/Multi] (2.2.0-cs57553/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:FCBE417CBE4B9FF21318273F580BC71674270800
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Harold Halibut - созданная вручную нарративная игр
 magnet:?xt=urn:btih:2C85735318385417153D29C2C0772DE406903356
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Barony повествует об обретшем вечное существо�
 ```bash
 magnet:?xt=urn:btih:D1D764FFC42844192BB19AEF3B8DD315192F7FC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ The Cabin Factory приглашает геймеров в мир, где за �
 magnet:?xt=urn:btih:9C8AA7DE93C0004DC552812FE8E5F967DFEA3C5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ DEVOUR - кооперативный выживастик от первого л�
 ```bash
 magnet:?xt=urn:btih:CE0F252D8B7638EAFDF1AD810E8657E0ACC2AA3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

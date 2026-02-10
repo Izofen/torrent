@@ -20,6 +20,8 @@ PCalc (   Читать дальше...   )Тип издания: macOS Software
 magnet:?xt=urn:btih:3B8862D69DCB005E2ED1B025B7316C003AFEE65A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ TG Pro — контроль температуры и вентиляторов �
 ```bash
 magnet:?xt=urn:btih:39681BBE8C1E2F6AF79D386B2CD95BCD71E668F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ beaTunes анализирует музыкальные композиции, о�
 magnet:?xt=urn:btih:38259E1040326F81E7C3ED4394958B1BC3DA8ECF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Apowersoft Screen Capture Pro – многофункциональная про�
 magnet:?xt=urn:btih:2C34208598A5B6409832D397124C8DE6A75B19A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:2C34208598A5B6409832D397124C8DE6A75B19A0
 ```bash
 magnet:?xt=urn:btih:693651E91D8F10EBF733317B70711872725F586E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ Otto Dix - Vantablack (2023) [FLAC|Lossless|WEB-DL|tracks] <DarkWave, Alternativ
 magnet:?xt=urn:btih:E33BFB0030DCC146DDD9330C081B7048C7B123DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ Michael Thompson Band - The Love Goes On (2023) [FLAC|Lossless|image + .cue] <Me
 ```bash
 magnet:?xt=urn:btih:067153A945A2E5B26C7F4D96AE2E6307CE82EDE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ Topic - Tomorrowland Friendship Mix (2021-03-04) [MP3|320 Kbps] <House, Future H
 magnet:?xt=urn:btih:E812215AE346E0D9465CC7571ADDF18BE1FCCA15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:E812215AE346E0D9465CC7571ADDF18BE1FCCA15
 magnet:?xt=urn:btih:ADFC922AC99F04CBB048428DB3866B70C41922D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:ADFC922AC99F04CBB048428DB3866B70C41922D1
 ```bash
 magnet:?xt=urn:btih:5669627072635E10CB9000E772619F04699CB6DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +297,8 @@ Tronos - Celestial Mechanics (2019) [FLAC|Lossless|image + .cue] <Groove Metal, 
 magnet:?xt=urn:btih:AFE2B8DC0C304D202EDCFEEA8E51C97B25F1DA66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ Skillshare, Aniket Rawat | Creating a Kitchen Environment in Unreal Engine 5 (20
 ```bash
 magnet:?xt=urn:btih:048CDE4E59544DB02A92239B639C61CE71349508
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -329,6 +353,8 @@ VA - Funky Music Sunshine The Groove (2023) [MP3|320 Kbps]  <Indie Dance, Club M
 magnet:?xt=urn:btih:16486F6388EDD05683993B22529BF373FD0CD91B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +379,8 @@ magnet:?xt=urn:btih:16486F6388EDD05683993B22529BF373FD0CD91B
 magnet:?xt=urn:btih:BD722248DC52E7A2BA34DE0097C8D0D6319B7118
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ magnet:?xt=urn:btih:BD722248DC52E7A2BA34DE0097C8D0D6319B7118
 ```bash
 magnet:?xt=urn:btih:FC9F77F66F4E4F90ACC82A60C913850ECA5AA57D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +434,8 @@ Numenor - Draconian Age (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black, P
 magnet:?xt=urn:btih:7A08C54AD4A3E26C406CA200D391AD1F9688184F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ VA - ZYX Italo Disco New Generation Vol. 6 (2015) 2 CD [OGG Vorbis|480 Kbps] <It
 ```bash
 magnet:?xt=urn:btih:EC91E5B88D92DA4E71843AC022A5BD89426CCBC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +492,8 @@ VA - Autumn Breeze, Vol. 2: Chill Sounds for Relaxing Moments (2018) [AAC|~328 K
 magnet:?xt=urn:btih:34180B9B43AECB644B9EB2867F82F580CDF8FEC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +517,8 @@ magnet:?xt=urn:btih:34180B9B43AECB644B9EB2867F82F580CDF8FEC4
 ```bash
 magnet:?xt=urn:btih:083C0589A93E0D397CD55759A1E59AAA68B2ABC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +545,8 @@ magnet:?xt=urn:btih:083C0589A93E0D397CD55759A1E59AAA68B2ABC4
 magnet:?xt=urn:btih:F3ECFA50773C97937E0D0055A868B0A8B26D99AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +570,8 @@ magnet:?xt=urn:btih:F3ECFA50773C97937E0D0055A868B0A8B26D99AC
 ```bash
 magnet:?xt=urn:btih:111B6369383E3288DABD22B4AD5DAD21B081F27A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +597,8 @@ Viper FTP (ранее ViaFTP) - простой и очень удобный FTP-
 ```bash
 magnet:?xt=urn:btih:C34DFA2D29E9629E4EB02B8F3A64E90E95479A0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +627,8 @@ ulk - Restoration Magic (2022) [FLAC|Lossless|WEB-DL|tracks] <Dungeon Synth>
 magnet:?xt=urn:btih:5A1CC6DD189D01907512BE293639805368CECC50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +656,8 @@ magnet:?xt=urn:btih:5A1CC6DD189D01907512BE293639805368CECC50
 magnet:?xt=urn:btih:FF2361A23870F4568BD65A488840F09523E04B77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +682,8 @@ BetterMouse — это утилита для macOS, улучшающая про�
 magnet:?xt=urn:btih:9347C392CBCFF3D800D541017CDA5FBE1C67D9C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +707,8 @@ magnet:?xt=urn:btih:9347C392CBCFF3D800D541017CDA5FBE1C67D9C8
 ```bash
 magnet:?xt=urn:btih:EE79729838E306212EF33536213242F691B488D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

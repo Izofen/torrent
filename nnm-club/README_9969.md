@@ -1,53 +1,3 @@
-###  Публикация: 1181405   (323368) от 07.11.2017
-
-Мартин Блейзер | Жизнь после антибиотиков. Чем нам грозит устойчивость бактерий к антибиотикам и нарушение микрофлоры (2016) [PDF, EPUB]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323368.jpg" />
-</div>
-
-
-###  Подробнее
-
-«В 1850 году каждый 4-й ребенок в Америке умирал еще до первого дня рождения».
-Во многом именно благодаря антибиотикам в последние полвека большинство родителей в развитых странах могут спокойно растить детей; стали возможны серьезные хирургические операции; снизились риски бактериальных инфекций. Однако злоупотребление антибиотиками, в том числе их использование (   Читать дальше...   )Жанр: Медицинская литератураФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DE3F511376EDBA7E759E523D7A5C7024265F64E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181504   (323369) от 07.11.2017
-
-Шаблоны - Новый год тихонько постучится в дверь [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323369.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многослойная PSD Шаблон-рамка. для фото
-Автор: lunar.elfФормат: PSDРазрешение файлов: 3508x4961
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2104A9565164C35088D53E7CD02DB81CBCDE4CED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181583   (323370) от 07.11.2017
 
 Google Chrome 62.0.3202.89 Stable RePack (& Portable) by D!akov [Multi/Ru]
@@ -68,6 +18,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:D6F5D8D3E3CB71A640EF3C39B89CD2D680ABF636
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +46,8 @@ magnet:?xt=urn:btih:D6F5D8D3E3CB71A640EF3C39B89CD2D680ABF636
 magnet:?xt=urn:btih:52930DEA7F790BF6962882AAFD1E75ECECD97495
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +72,8 @@ magnet:?xt=urn:btih:52930DEA7F790BF6962882AAFD1E75ECECD97495
 magnet:?xt=urn:btih:E0B2CC7C25037685287FBAC8B19B3ED9B5731236
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +97,8 @@ magnet:?xt=urn:btih:E0B2CC7C25037685287FBAC8B19B3ED9B5731236
 ```bash
 magnet:?xt=urn:btih:A3598447D859EB18CBD13AE88D9EF16E3FEB8971
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +127,8 @@ magnet:?xt=urn:btih:A3598447D859EB18CBD13AE88D9EF16E3FEB8971
 magnet:?xt=urn:btih:4E349D16BA607262A10FCA5F01E284D95F815C59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +154,8 @@ magnet:?xt=urn:btih:4E349D16BA607262A10FCA5F01E284D95F815C59
 magnet:?xt=urn:btih:033DDD607B9F6F09A2108D9BC42003A7F2604BA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +180,8 @@ magnet:?xt=urn:btih:033DDD607B9F6F09A2108D9BC42003A7F2604BA3
 magnet:?xt=urn:btih:CB94E7824213E0D95BD824829BAA9A4CCCDE1D93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +205,8 @@ magnet:?xt=urn:btih:CB94E7824213E0D95BD824829BAA9A4CCCDE1D93
 ```bash
 magnet:?xt=urn:btih:B67A7B9E0D9B869E2BF161F8F40B5AC450714585
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +234,8 @@ magnet:?xt=urn:btih:B67A7B9E0D9B869E2BF161F8F40B5AC450714585
 ```bash
 magnet:?xt=urn:btih:2C52251CE9B7F099D860699B0E695E54D119DE4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +265,8 @@ magnet:?xt=urn:btih:2C52251CE9B7F099D860699B0E695E54D119DE4C
 magnet:?xt=urn:btih:91E6FC2B8C95F3C20891FBAC35DDD9358BCB830A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +291,8 @@ NGW: Рыбалка с Майком Иаконелли. Крючок в Гудз
 magnet:?xt=urn:btih:4BD4DEB15085BCB5071A3C684CB95108DB96A73F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +316,8 @@ magnet:?xt=urn:btih:4BD4DEB15085BCB5071A3C684CB95108DB96A73F
 ```bash
 magnet:?xt=urn:btih:D442E87EED65E8AA311051A506B31B6EDF5F2E38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +346,8 @@ Barbra Streisand - Walls (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:9789A03FEC677B5A8B73B983EA4EB8702E2813BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +374,8 @@ Marianne Faithfull - Negative Capability (2018) [FLAC|Lossless|WEB-DL|tracks] <F
 ```bash
 magnet:?xt=urn:btih:698B3DED8A41D2D47D3172E62651843A6638B8E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +404,8 @@ Tesla Boy - Remedy (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
 magnet:?xt=urn:btih:53C07DF50CA430884DD6AE857581DEDFFFB65ACC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +433,8 @@ magnet:?xt=urn:btih:53C07DF50CA430884DD6AE857581DEDFFFB65ACC
 magnet:?xt=urn:btih:455061B96DF16B7AE44C17DDC5E3325FEA76F5FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +458,8 @@ Various Artists - House Phenomena Vol 3 (2010) [MP3|320 kbps]<House>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +485,8 @@ Various Artists - House Phenomena Vol 3 (2010) [MP3|320 kbps]<House>
 magnet:?xt=urn:btih:77DF25A54AE96723979745253D2AF78BDC91AF9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +510,8 @@ O/OREOS - первый микроспутник НАСА, запущенный �
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +537,8 @@ O/OREOS - первый микроспутник НАСА, запущенный �
 ```bash
 magnet:?xt=urn:btih:36F5DD5ACE2126CCEA6717476AAA14523E37E5D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +567,8 @@ magnet:?xt=urn:btih:36F5DD5ACE2126CCEA6717476AAA14523E37E5D0
 magnet:?xt=urn:btih:35163C7FB643D2A64F60F08A76A0D3FDA230ACBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +596,8 @@ Isea-N - Light of Tribes (2018) Mudra Music [FLAC|Lossless|WEB-DL|tracks] <Psych
 magnet:?xt=urn:btih:767CD88B71628752B1B9B7619CCCD440571BFA29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +621,8 @@ magnet:?xt=urn:btih:767CD88B71628752B1B9B7619CCCD440571BFA29
 ```bash
 magnet:?xt=urn:btih:2AAF624D2866A3B3F6769C0C42802C04AB62C195
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -654,6 +650,66 @@ Birth of Joy - Hyper Focus (2018) [FLAC|Lossless|tracks + .cue] <Psychedelic Roc
 ```bash
 magnet:?xt=urn:btih:7F4318ECBC0228E93F1488D618D23CD9ED0C0A3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259188   (323405) от 02.11.2018
+
+Patti Austin - For Ella (2002) Playboy Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Too Close for Comfort [3:59]
+02. Honeysuckle Rose [4:14]
+03. You'll Have to Swing It (Mr. Paganini) [4:23]
+04. Our Love Is Here to Stay [5:30](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ADA9263BC773079169F551133C9B30F395D62F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259222   (323406) от 02.11.2018
+
+Joe Satriani - Flying in a Blue Dream (1989) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flying In A Blue Dream (5:23)
+ 02. The Mystical Potato Head Groove Thing (5:10)
+ 03. Can't Slow Down (4:49)
+ 04. Headless (1:30)(   Читать дальше...   )Жанр: Alternative Rock, Hard RockПродолжительность: 01:04:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DAB7AD954117F305B6582391FA010B776E20DC7
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

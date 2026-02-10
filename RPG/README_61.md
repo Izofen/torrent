@@ -19,6 +19,8 @@ Titan Quest Anniversary Edition - мифический набор, из кото
 magnet:?xt=urn:btih:B900E2B6336D2A7C46949FD076951939D2F63413
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Starbound - динамичная ролевая игра с открытым м�
 ```bash
 magnet:?xt=urn:btih:81F5C0AE2F854BB4D3E6549EE4B16D2FC2BFF84F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Sword Art Online: Hollow Realization - это очередная часть пр
 magnet:?xt=urn:btih:AEEDF4851644399011BEBD4FE6EB6383BB2E244C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Outward – приключенческая РПГ, события которой
 ```bash
 magnet:?xt=urn:btih:F488F2A82B3DF1C4E76A66062EA8E7598FA349BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Divinity: Original Sin 2 – является продолжением леге�
 magnet:?xt=urn:btih:3CAE0B4C8FA46B1011B7D55821B2AF2C8CEEA6DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Bastion – ролевой боевик, в котором рассказчик 
 ```bash
 magnet:?xt=urn:btih:DF8C990D73DA2E13F8C97815A4E48D8A4FE71389
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ SpellForce 3 (2017) [Ru/Multi] (1.40.1/dlc) License GOG
 magnet:?xt=urn:btih:5571163D48813B6B0A611632C4842775FE699BBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Zombasite – кооперативный клон Diablo, RPG в мире фен
 ```bash
 magnet:?xt=urn:btih:9A5B0C653FD3E090828EE08D449080449F1B808F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ SteamWorld Quest – это ролевая карточная игра, кото
 magnet:?xt=urn:btih:817719A79C95752CA8EB76252E53BF5E33C8D857
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Overlord II / Overlord 2 (2009) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:1FCF38CEF55D48D022C5CE59E8650117EAB9FECF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Mary Skelter: Nightmares (2018) [En/Jp] (1.0) License GOG
 magnet:?xt=urn:btih:D74092F993DF80BE53A63A9BD5C03CCB4F5049C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Warhammer: Chaosbane (2019) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:1A362DB7BB1E2880A68119A00A54B8D21CD9E83C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Deep Sky Derelicts даст возможность почувствовать с
 magnet:?xt=urn:btih:85EFD6F347EC69A7F508FFB6619F2B8186869A57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Vambrace: Cold Soul (2019) [Ru/Multi] (1.0) License HOODLUM
 ```bash
 magnet:?xt=urn:btih:CE6CFFEEF03149A71CB50542F6E4D9E5C1568E3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Yonder: The Cloud Catcher Chronicles (2017) [En] (1.0) Repack Covfefe
 magnet:?xt=urn:btih:4FF2F11C0617B3D2B38D458B80960A08355BBE6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ City of Brass (2018) [Ru/Multi] (1.6.0/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:726F9A8D7F81B19169D81D615B1048CC158CD79A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ ATOM RPG - это постапокалиптическая инди-игра, в
 magnet:?xt=urn:btih:E2DE40E5B2189BC1B3F6AB5E687E8568D5C36C4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Blood & Gold: Caribbean! – это смесь экономической стр
 magnet:?xt=urn:btih:97B26B41839967E259FD66B878B1063D13E1A2A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +486,8 @@ SpellForce 3: Soul Harvest (2019) [Ru/Multi] (1.0) License HOODLUM
 ```bash
 magnet:?xt=urn:btih:C2A6BCEC9F285050035040118D170F0B8A7F3D03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ Deus Ex: Human Revolution: The Missing Link / Deus Ex: Human Revolution Augmente
 magnet:?xt=urn:btih:DD9DC739351522EBE2D6E7157FF85CFC9026E5DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ Hero Defense - Haunted Island предоставляет игроку пять �
 ```bash
 magnet:?xt=urn:btih:D5C2A0B2235610FD1620C8F79639129B1C147CD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ Rage of the Battlemage - динамичная hack'n'slash RPG, где вы ок
 magnet:?xt=urn:btih:1D16F459B112B9713D3D6DABB9FCFEEDFA624E82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ The Fall of the Dungeon Guardians представляет собой броди
 ```bash
 magnet:?xt=urn:btih:F3C9C075DB065D59DAF03E8D89EF631EDDD1BA74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ Corpse Party: Blood Drive (2019) [Multi] (0.95) License GOG
 magnet:?xt=urn:btih:54A3A235398E460601947E3A8D5B624F271D3C5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ Icy - сюжетная survival-RPG, где Вы возьмете на себя 
 magnet:?xt=urn:btih:ACF77E6C68A714D3CAA3CF4F04D1CC59F5EFF255
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.1.2) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:4CB0C700D47272F92339B698ABAC948AAEE92F2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

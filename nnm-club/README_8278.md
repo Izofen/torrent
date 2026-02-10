@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:B9C717714749899C2413C70E87526627B5F7E4F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ Satarian - Безумие Первого Шага (2012) [MP3|320 кб/с]<Melod
 ```bash
 magnet:?xt=urn:btih:42828F22AD1C64637FA4D1DA63F5B315F15B4B18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -85,6 +89,8 @@ VA - Клубный Танцпол Vol.1 (2012) [MP3|320 кб/с]<Dance, Club>
 magnet:?xt=urn:btih:8C1864BCEB07F891135C33B7310024BB01E6DD36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ magnet:?xt=urn:btih:8C1864BCEB07F891135C33B7310024BB01E6DD36
 ```bash
 magnet:?xt=urn:btih:AEDB1AD453BCC2B17FF2AAAA22207994763CBBAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +150,8 @@ CD 1 Время звучания: 01:10:48
 magnet:?xt=urn:btih:8AA4F54CE33C149A37B319CC61F46387BFB6C7CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +180,8 @@ magnet:?xt=urn:btih:8AA4F54CE33C149A37B319CC61F46387BFB6C7CC
 magnet:?xt=urn:btih:9B2D35A675380F4D3A94F31AFD21A36556B67F11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +205,8 @@ magnet:?xt=urn:btih:9B2D35A675380F4D3A94F31AFD21A36556B67F11
 ```bash
 magnet:?xt=urn:btih:EB6E3D5FD2686037E4528C2459FBA6562EBB3BA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +236,8 @@ magnet:?xt=urn:btih:EB6E3D5FD2686037E4528C2459FBA6562EBB3BA6
 magnet:?xt=urn:btih:FA1E7F062DFE9452E8B57BC9EA58F4E0948BD69C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +261,8 @@ magnet:?xt=urn:btih:FA1E7F062DFE9452E8B57BC9EA58F4E0948BD69C
 ```bash
 magnet:?xt=urn:btih:0B5A53588798E635F928D6AD8F96977604D39D89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +288,8 @@ magnet:?xt=urn:btih:0B5A53588798E635F928D6AD8F96977604D39D89
 magnet:?xt=urn:btih:E1F26A6DB8DF74D575F47B6C805D8C08E3ABC967
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +313,8 @@ DesktopOK 3.10 Portable [Multi/Rus]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +343,8 @@ DesktopOK 3.10 Portable [Multi/Rus]
 ```bash
 magnet:?xt=urn:btih:A06D78C71FB20AACE9510BFB6CADB211A139C5E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +379,8 @@ VA - Return To Space (2009) [MP3|224 кб/с]<Spacesynth>
 magnet:?xt=urn:btih:31309DEF129252BF822DD17E1E3E91E69B1437B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +404,8 @@ magnet:?xt=urn:btih:31309DEF129252BF822DD17E1E3E91E69B1437B1
 ```bash
 magnet:?xt=urn:btih:21A9704C9D964C2EDD4574252A06ADF1CF15CAEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +435,8 @@ magnet:?xt=urn:btih:21A9704C9D964C2EDD4574252A06ADF1CF15CAEB
 magnet:?xt=urn:btih:4FD4CA649C0FA95969ADEAFDA343689399FA5081
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +464,8 @@ magnet:?xt=urn:btih:4FD4CA649C0FA95969ADEAFDA343689399FA5081
 ```bash
 magnet:?xt=urn:btih:B0DCBE20B5CCDC7A22F2A7F2D8B6F667628B8D61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +500,8 @@ John Lindberg Trio - Hell Of A Ride (2012) [MP3|~245 кб/с (V0)]<Rockabilly, R
 magnet:?xt=urn:btih:24299BFC6F23FA6A1D76ACF5832E429CACF932F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +529,8 @@ magnet:?xt=urn:btih:24299BFC6F23FA6A1D76ACF5832E429CACF932F6
 ```bash
 magnet:?xt=urn:btih:1B9E7E024E9C5C9890E447E185EE88BF6E5E41D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +562,8 @@ John Coltrane - The Best of John Coltrane (2009) [FLAC|Lossless]<Bop, Hard Bop, 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +598,8 @@ Fluxion - Дискография (12 винилов, 6 альбомов) (1998-2
 magnet:?xt=urn:btih:346DF3C655E775485753A47A43F7EA11B19B0FDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +625,8 @@ magnet:?xt=urn:btih:346DF3C655E775485753A47A43F7EA11B19B0FDA
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +654,8 @@ magnet:?xt=urn:btih:346DF3C655E775485753A47A43F7EA11B19B0FDA
 magnet:?xt=urn:btih:63BFFAC55A041339922958B918E33B7AA81624F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +680,8 @@ magnet:?xt=urn:btih:63BFFAC55A041339922958B918E33B7AA81624F1
 ```bash
 magnet:?xt=urn:btih:F47896BE7A4960D34AFC2F3F63DDDB613DAD8E23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -669,6 +715,8 @@ Ali Jackson, Aaron Goldberg, Omer Avital - Yes! (2012) [FLAC|Lossless]<Contempor
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +744,8 @@ Ali Jackson, Aaron Goldberg, Omer Avital - Yes! (2012) [FLAC|Lossless]<Contempor
 ```bash
 magnet:?xt=urn:btih:63B245EB1B27B7814663C9DE03BC8B33F8735839
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -729,6 +779,8 @@ David Benoit - Full Circle (2006) [FLAC|Lossless]<Contemporary Jazz, Piano Jazz,
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

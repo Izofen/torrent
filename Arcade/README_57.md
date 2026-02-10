@@ -19,6 +19,8 @@ Dungeonland – аркадный экшен, в котором группе иг
 magnet:?xt=urn:btih:8DF93C4E352B92D1B42ED889D4D1270651E17EBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ iBomber Attack [En] (RePack) 2012 | TiNYiSO
 ```bash
 magnet:?xt=urn:btih:2A2DACD264C747C0D3C583FAFAC401ABA27E8C04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Forgotten Passages (2020) [Ru/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:0636FAEA3C3A131AA19A8E6374EF6A848736ADA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Wizard of Legend — игра о стремительных походах в п
 magnet:?xt=urn:btih:F01BAB200ABB397D2DFA85D25EF329A5AB2DAFA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Miner Wars 2081 [En] (P) 2012 | *FLT*
 ```bash
 magnet:?xt=urn:btih:97F1008C491BFB3A2C612ECB8C05061FFCBC2D7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Wasteland Angel возвращает нас во времена старых а�
 magnet:?xt=urn:btih:F9FFF9EDEB03C3C78E3EFB78DE8CDA58D3347F88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Dawnstar - экшен с ролевыми элементами, разработ
 ```bash
 magnet:?xt=urn:btih:03B88AD707C1C67D2AEA4CE3ABE392896D9A6061
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Soldier vs. Aliens - увлекательная аркада от студии B
 magnet:?xt=urn:btih:999F51C0BCBE65EC1FE08700BC15912B67F7BA62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ MediEvil 2 навсегда стала одной из тех игр, котор
 magnet:?xt=urn:btih:48B2E7E85AAD8E1716F44D5280C0531EA94321E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Karateka [Ru/En/Multi5] (L) 2012 | TiNYiSO
 ```bash
 magnet:?xt=urn:btih:24AA78CC63B643ABF0619620FDD40C0D6BFD94A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ Pure [Ru/En] (RePack) 2008 l R.G. Games
 magnet:?xt=urn:btih:C27A33DD3EB75034C9EF68ADA0DF3B7BE2F9AA1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ Shank: Dilogy [En/Ru] (Repack) 201 - 2012 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:82805D731E7050F6C17AE523F7DAED9B52CD3BA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ BDSM: Big Drunk Satanic Massacre (2019) [Ru/Multi] (1.0.33) Repack Mr_Weegley [1
 magnet:?xt=urn:btih:B2511E5C32BC6A72E1027E4CE886C0BA97F5D368
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ Wizard of Legend - динамичный экшен с видом сверху в
 ```bash
 magnet:?xt=urn:btih:81DBAD309CECC393F0E8E53E5C7DFC9A8177E6AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ Luxar (2020) [Ru/Multi] (1.0) Repack Mr_Weegley
 magnet:?xt=urn:btih:19497701B9339B4E0B28A57AD69FF3D932E7D6AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ Dodgeball Academia (2021) [Ru/Multi] (1.2) License GOG
 magnet:?xt=urn:btih:690D22469E246661B7FD6D348B38C50498570408
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ Street Fighter V (2016) [Ru/Multi] (07.011/dlc) Repack Necros
 ```bash
 magnet:?xt=urn:btih:31D41B192395426A9767B3B28378FDD5A4F149CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ Mortal Kombat XL – файтинг нового поколения и след�
 magnet:?xt=urn:btih:D4F5815641A611C0610FE48FE808BAF21DB036E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ Harry Potter and the Philosopher's Stone / Гарри Поттер и Филос
 ```bash
 magnet:?xt=urn:btih:35710A22D33D27DC3B29317AB476600A6EC9574D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ Banners of Ruin (2021) [Ru/Multi] (1.0.3) License PLAZA
 magnet:?xt=urn:btih:00C3D5BEFB211D33628148E880DE7C9EF89AC4F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ Unbound: Worlds Apart – захватывающий атмосферный пл
 ```bash
 magnet:?xt=urn:btih:BE97114888002B0599F43888B9C96985D37BECD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ Intravenous (2021) [Ru/Multi] (1.0) License DARKSiDERS
 magnet:?xt=urn:btih:F3A8886C22424FA3332CB2876551E96FBE61F828
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ Orcs Must Die! 3 выводит свирепые побоища с орками 
 ```bash
 magnet:?xt=urn:btih:7F27C3850EF780062D4B211B514019D844A26738
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ Police Stories – это история о двух полицейских: Д�
 magnet:?xt=urn:btih:C3E896CA8C9C6F2B92D2E31F6A9E3B0F4EE11173
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ Alekon (2021) [En] (1.0) License DOGE
 magnet:?xt=urn:btih:6452EDCD050AD24A00F96F2B33A0B8E249985F9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Guilty Gear -Strive- (2021) [Multi] (Build 6841150/dlc) License Fairlight
 ```bash
 magnet:?xt=urn:btih:D842D6CBD7A1C8B0FCFC46FB97CCCB2319196073
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ Swiftlab, Дунаев Сергей | ВСЕ КУРСЫ ПО SWIFT (2018 - 2019)
 magnet:?xt=urn:btih:6D942B0D42E65902B6CE9AFACDD6158022985562
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Rebrain, Дмитрий Дунаев и др. | Онлайн-практикум 
 magnet:?xt=urn:btih:1048C71A0759A4B21E42D19E1D6BDECB4FD506EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ Infostart, Николай Бондаренко | 1С:Предприятие дл
 ```bash
 magnet:?xt=urn:btih:203742B923E13808AD1F08489EEA03DAB021A20C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:203742B923E13808AD1F08489EEA03DAB021A20C
 magnet:?xt=urn:btih:E58041D575D65A1A36467493F69A8628D05CE2EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ DunderData, Ted Petrou | Анализ данных на Python / Master Data Ana
 magnet:?xt=urn:btih:5D4E75020BA844414DFB6EF045B322160B06DA23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ React Bootcamp, Reed Barger | Build Discord with React (2021) PCRec [En]
 magnet:?xt=urn:btih:EDD9C014DCCC3102A179FD89CBB038A7B62CF421
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ Udemy, Colt Steele | The Modern React Bootcamp (Hooks, Context, NextJS, Router) 
 ```bash
 magnet:?xt=urn:btih:DC28D2F393EB4F423401EC14DFE1189ED8601C48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +215,8 @@ ITVDN, Александр Шевчук | C# Базовый (ООП) 2021 (2021) 
 magnet:?xt=urn:btih:69ED6DDA38413C62943F3C4CC989D06387E13730
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ Python – один из самых популярных языков прогр
 ```bash
 magnet:?xt=urn:btih:83ECA98D56CA6A475AC7E3CD6D354FBFF9F1C644
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ magnet:?xt=urn:btih:83ECA98D56CA6A475AC7E3CD6D354FBFF9F1C644
 magnet:?xt=urn:btih:25D9D005F561271023616DDB89B42E63379BB051
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ Udemy, Stanislav Gorchakov | Алгоритмический Трейдинг с 
 ```bash
 magnet:?xt=urn:btih:A013C1C04DEF4769D3AD8B87F928DAF2B51E45D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +325,8 @@ Slurm (Слёрм), Тимофей Ларкин и др. | CI/CD на приме
 magnet:?xt=urn:btih:29119BB78B18A217591ABB806EF558E7ED579419
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ Self-Learning, Виталий Трунин | Курс по T-SQL Путь про
 ```bash
 magnet:?xt=urn:btih:6658F25FD84840DF78C5A16FCCB882D2C0E11FA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ Self-Learning, Виталий Трунин | Курс по T-SQL Путь про
 magnet:?xt=urn:btih:95871B0FABA417DFCBD4936D755F26151E9BB8FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ Zenva Academy | Академия разработки игр: Симулятор
 magnet:?xt=urn:btih:3E01312360BF9E6A4B423FE00B90159AB2A132AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ React Summi | React Summit Remote Edition 2021 PCRec [En]
 ```bash
 magnet:?xt=urn:btih:FF0BFCAB51A10F70AF5E9820AC1B03C20D979424
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ Geeks For Geeks | Java App Development: Summer Training - Live (2020) WEB-DL [En
 magnet:?xt=urn:btih:0BC282F4C78B5C41DE4BD7139DA92FE66425EAED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ Geeks For Geeks | Fundamentals of Java and Java Collections (2021) WEB-DL [En]
 ```bash
 magnet:?xt=urn:btih:2AA79B660BA83213AF0F26487CBB402CFDFFF182
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +513,8 @@ Nizamov School, Илья Низамов | NuxtJS + 1C. Личный кабине
 magnet:?xt=urn:btih:6C5726BC3DBD6DDD3267877DB2D691F065D6505F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +538,8 @@ Geeks For Geeks | C++ STL - Basic to Advanced (2020) WEB-DL [En]
 ```bash
 magnet:?xt=urn:btih:F734941787E61F70E2DCB26597D18289E0AA27DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +566,8 @@ C - самый (   Читать дальше...   )Производство: Ud
 magnet:?xt=urn:btih:57C690269BC0C91C221802345540F00ED9C14903
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ HolyJS 2021 Piter | Конференция для JavaScript-разработч�
 ```bash
 magnet:?xt=urn:btih:526460122AEFFDC103C08CB2C6106CC4A5DC8A5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +618,8 @@ Udemy, Astrit Krasniqi | Netacad CCNAv7 (semester 1-2 of 3) (2020-2021) PCRec [E
 ```bash
 magnet:?xt=urn:btih:8391A8911E3A07CBCDCB735946D5C8B708962B91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +648,8 @@ magnet:?xt=urn:btih:8391A8911E3A07CBCDCB735946D5C8B708962B91
 magnet:?xt=urn:btih:F8251D26FA9EA8CCA9BF114D6BEAF4D4EEBBAB10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +676,8 @@ ZTM, Andrei Neagoie и др. | Complete Node.js Developer in 2021: Zero to Maste
 magnet:?xt=urn:btih:36163EF3105BB55B8F5479D67B36013123D695A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ Udemy, ZTM, Andrei Neagoie и др. | Complete Ethical Hacking Bootcamp 2021: Ze
 ```bash
 magnet:?xt=urn:btih:13F13EC25C0B3B75E0278A4B813FF55BAEC089B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

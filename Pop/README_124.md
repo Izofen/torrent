@@ -22,6 +22,8 @@ Kim Wilde - Wilde Winter Songbook (2015) Deluxe Edition [FLAC|tracks] <Pop, Holi
 magnet:?xt=urn:btih:7F1EBD79D85380CBA2947B9D295510D7DD4CB854
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ RutiCelli - Nocturnal Miniatures (2015) [OGG|496-551 кб/с]<Alternative Pop, A
 ```bash
 magnet:?xt=urn:btih:AEC8543DA53BDA78D1F540F7AEDE23FC0306825D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - ВИА 1970-х: О тебе, наверное (2007) [APE|Lossless|image + 
 magnet:?xt=urn:btih:474B7F9DF3DEEE01C8F392D9F975820372002278
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Танго Оскара Строка (1997) [FLAC|Lossless|image + .cue] <R
 ```bash
 magnet:?xt=urn:btih:B41BB5584BD1D6BFC1FDCEE6F550DD6A36824B89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:B41BB5584BD1D6BFC1FDCEE6F550DD6A36824B89
 magnet:?xt=urn:btih:D4B84895DAA3753BFD1B4DBB1AEFF0CDB43B03A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Burito - Samskara (2019) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:CDA8E1B7FEBFDDD36B855D0A3354A5DED5164C7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:CDA8E1B7FEBFDDD36B855D0A3354A5DED5164C7B
 magnet:?xt=urn:btih:67519574C897E566E2D0EB92ABE60086022F8853
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Dalida - Music Box (2004) [APE|Lossless|image + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:F62DAD451BE53C6F8E6D83D9D759BD8A54841F77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - The Pop Years 1976-1977 (2009) 2CD, Compilation [MP3|320 Kbps] <Disco, PopR
 magnet:?xt=urn:btih:A0352F3F04AF10785D5BF2DC9594F80AFC25266E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ magnet:?xt=urn:btih:A0352F3F04AF10785D5BF2DC9594F80AFC25266E
 ```bash
 magnet:?xt=urn:btih:2AA33546B715E11D2E4F69FFC2F91EE885179B7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Celine Dion - D’elles (2007) [FLAC|Lossless|image + .cue] <Pop>
 magnet:?xt=urn:btih:0E3127D31A9636D826CC28312603298853C93DD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Jessica Mauboy - HILDA (2019) [MP3|320 Kbps] <Pop, R&B>
 ```bash
 magnet:?xt=urn:btih:C797C3F8849BDAFD0BF55CE16D217BDE5E8E43EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Dance Anthems 2019.03 (2019) [MP3|320 Kbps] <Euro Dance, Pop Dance>
 magnet:?xt=urn:btih:160C95047AEBA946C6632B3A73C2DC6B12E26306
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ CD01:
 ```bash
 magnet:?xt=urn:btih:80C9D2EE32C306E2D19A11D407337E7AF1B726F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ magnet:?xt=urn:btih:80C9D2EE32C306E2D19A11D407337E7AF1B726F9
 magnet:?xt=urn:btih:4541E8C09FFA96788578BEF8A4E269AF8F60BED1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ CD01:
 ```bash
 magnet:?xt=urn:btih:C2D832AB772B9120B8D84B595BF06EC3F8FA62F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - Ballermann Pisten Party 2019 (2018) [MP3|320 Kbps] <Pop, Schlager>
 magnet:?xt=urn:btih:52F809705F2A993CA5E8A6337FCE4D0E1BBB580F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Belinda Carlisle - The Collection (2014) [MP3|320 кб/с] <Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:0A4BD66BD73EA1F5C83684081A27B2C075656162
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ Nightlife Unlimited (Ночной Безлимит)  из Канады ворв�
 magnet:?xt=urn:btih:706E0E2666316FE231E8A57E64EFAE0B3C45C4C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +573,8 @@ Hot Blood - Disco Dracula (1977) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco
 magnet:?xt=urn:btih:CEA2A27CAEF40F0620F9C297446F663BA5F211F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +598,8 @@ VA - NOW That’s What I Call Club Hits (2013) [MP3|320 кб/с]<Pop, Dance, Clu
 ```bash
 magnet:?xt=urn:btih:142B196822378D0303413E4EECC199ED38B1EA5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +628,8 @@ Eurielle - Arcadia (2015) [OGG|482-537 кб/с]<Alternative Pop, Contemporary Cl
 magnet:?xt=urn:btih:D08FF2245C8939F2199807C59FC17EBF285B8196
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +656,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:D4DF14A859F2FE5A2747EEFD78DA00DA7D3D767D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +686,8 @@ magnet:?xt=urn:btih:D4DF14A859F2FE5A2747EEFD78DA00DA7D3D767D
 magnet:?xt=urn:btih:E3E2396EEDA71A4F758CEA1459D64D48249D4FA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +715,8 @@ VA - Давид Тухманов: Сердце любить должно (2005) 
 magnet:?xt=urn:btih:00E5851A8D13D2C901876FDE70727BCABCE66883
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ magnet:?xt=urn:btih:00E5851A8D13D2C901876FDE70727BCABCE66883
 ```bash
 magnet:?xt=urn:btih:3243CDFE2A25DE6D4DCEC71EE34DF2E41383A732
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

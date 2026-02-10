@@ -22,6 +22,8 @@ VA - Euro Disco: The Lost Legends Vol.8 (2017) [MP3|320 Kbps] <Euro-Disco, Synth
 magnet:?xt=urn:btih:4BCBFDD3ABB55168446A20BF54EC33573EFB449F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Italo Disco: The Lost Legends Vol.10 (2017) [MP3|320 Kbps] <Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:AD3A03AEA876B14764B099DF42AD1B9A01155CAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Faydee - Patterns (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, House>
 magnet:?xt=urn:btih:E33E5C4B145A30DD995E3D0574AFEDC9227669A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Euro Disco: The Lost Legends Vol.7 (2017) [MP3|320 Kbps] <Euro-Disco, Synth
 ```bash
 magnet:?xt=urn:btih:C0E59EF46014199B3F35BA633370448FB027BC66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Euro Disco - The Lost Legends Vol. 2 (2017) [MP3|320 Kbps] <Euro-Disco, Syn
 magnet:?xt=urn:btih:B490F9AF53D014881030C8521433567474F8B585
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Italo Disco: The Lost Legends Vol.9 (2017) [MP3|320 Kbps] <Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:81EB32E2CC724313D6FAB7245068AF0D2F4060EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Euro Disco - The Lost Legends Vol. 3 (2017) [MP3|320 Kbps] <Euro-Disco, Syn
 magnet:?xt=urn:btih:266243AE2F6C0A04197AFFD6CACCB098AEE6ECC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Euro Disco: The Lost Legends Vol. 6 (2017) [MP3|320 Kbps] <Euro-Disco, Synt
 ```bash
 magnet:?xt=urn:btih:99E029E0D9469C41D85AFEA89584AA4EF757DCC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Euro Disco - The Lost Legends Vol. 5 (2017) [MP3|320 Kbps] <Euro-Disco, Syn
 magnet:?xt=urn:btih:9189F4E02AC1DB5CE9D8F4DDF9266459EA47E473
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Euro Disco: The Lost Legends Vol.9 (2017) [MP3|320 Kbps] <Euro-Disco, Synth
 ```bash
 magnet:?xt=urn:btih:ABADA4B8CF1A84D57DE05E1C92820BBFB5BA4265
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Новый русский хит 2 (2017) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:B1D32DD779672B144A45F395A5109D4A41F89DCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Mistral - Best Of Mistral 1977-80 (2012) Compilation [MP3|320 Kbps] <Electronic,
 ```bash
 magnet:?xt=urn:btih:3ED2A610FE101A2811DD3D129AF1C73E4D538DB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Italo Disco: The Lost Legends Vol.6 (2017) [MP3|320 Kbps] <Italo-Disco>
 magnet:?xt=urn:btih:A284DE6511A9C0C3E22A1284DCA3BC91F02B274B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Brunori Sas - A Casa Tutto Bene (2017) [FLAC|Lossless|tracks + .cue] <Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:D4ACB198147C457E1AFB24F337D5B511C425599C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Marcus & Martinus - Moments (2017) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:CB8CA82D49E75404ADD82A2D0A0554EA3279648E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - Новогодний подарок. Оригинальные записи 
 ```bash
 magnet:?xt=urn:btih:F027B5DF182CF02EDC0738FF2E1F28F4717678D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ magnet:?xt=urn:btih:F027B5DF182CF02EDC0738FF2E1F28F4717678D8
 magnet:?xt=urn:btih:05C697C72B096EAB337CB4B66A47263EE1013FFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Camila Cabello - Romance (2019) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:9BD211283596BA79C83642EB45CA0DB2C66FD6B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ VA - ZYX Italo Disco Spacesynth Collection 3 (2017) 2CD, Compilation [FLAC|Lossl
 magnet:?xt=urn:btih:FB92848B3B4DC3F9AC305ACAB6018AB760CD550F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ Harlem Voices - Singing (1996) [FLAC|Lossless|image + .cue] <Funk / Soul, Gospel
 ```bash
 magnet:?xt=urn:btih:08311AB0751228D4377C62A21AE4FD3431FF1353
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ magnet:?xt=urn:btih:08311AB0751228D4377C62A21AE4FD3431FF1353
 magnet:?xt=urn:btih:4580250CEC645FE4750A06E0939FAE241F80BC3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ Grimes - Miss Anthropocene (2020) [FLAC|Lossless|tracks] <Synthpop, Indie Pop>
 ```bash
 magnet:?xt=urn:btih:476B759E690C53AED5E2372F8E3EA15ECE179B45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ VA - 100 Greatest Best Songs Ever (2019) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:1D5F84E29502D37B03F3D100E4D871A654F13669
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ VA - 100 Greatest Karaoke Songs (2019) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:870C9F117595CA9E409BBCB977DDF55A24EA2136
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ VA - ZYX Italo Disco Spacesynth Collection 2 (2015) 2CD, Compilation [FLAC|Lossl
 magnet:?xt=urn:btih:834F9E7CC05CC4BC4759A97F1DBA76FBDF3DED03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ VA - Christmas Pop Hits (2019) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:EA285B71169A8E67B9DA92E898AC9F179D5B59FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

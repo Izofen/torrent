@@ -19,6 +19,8 @@ christmas slideshow - проект для создания новогоднег�
 magnet:?xt=urn:btih:646996CD968FC4ECBC568FAD664E29659F68C250
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:646996CD968FC4ECBC568FAD664E29659F68C250
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:646996CD968FC4ECBC568FAD664E29659F68C250
 magnet:?xt=urn:btih:318D247DB7B031F74002C091AD44FACE02A3B45F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:318D247DB7B031F74002C091AD44FACE02A3B45F
 ```bash
 magnet:?xt=urn:btih:22657B1251673A956DCFC07227A2A467B301C69C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:22657B1251673A956DCFC07227A2A467B301C69C
 magnet:?xt=urn:btih:E6B084AF56BE4567CB623FA78A38384EDC7CD3E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:E6B084AF56BE4567CB623FA78A38384EDC7CD3E4
 ```bash
 magnet:?xt=urn:btih:50FF43345A094856A43D1FD68818F1592BFACEFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:50FF43345A094856A43D1FD68818F1592BFACEFC
 magnet:?xt=urn:btih:B88738B3402683496E6777B8AFD53B40DF362B67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:B88738B3402683496E6777B8AFD53B40DF362B67
 ```bash
 magnet:?xt=urn:btih:A4141544DCD6E911A28E6296A815CB1E420E03BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ BestReminder v2018.12.29.11 Final [Multi/Ru]
 magnet:?xt=urn:btih:3F37806CC8BACCCEA74A41AE22807EA005D63D3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ VA - Relax Culture, Vol. 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillo
 magnet:?xt=urn:btih:F057D3993BD8457CDA78B524002E083190778E23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:F057D3993BD8457CDA78B524002E083190778E23
 magnet:?xt=urn:btih:149FF53C38849235DF9FE970DBD8FEC67E3E045E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:149FF53C38849235DF9FE970DBD8FEC67E3E045E
 ```bash
 magnet:?xt=urn:btih:D8E2D3604C7889E7C1D356F934EF123F35CA86B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:D8E2D3604C7889E7C1D356F934EF123F35CA86B6
 ```bash
 magnet:?xt=urn:btih:05F1D32CD0DAECED5487A125FD14CF93DA38137D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +373,8 @@ Firedance (David Arkenstone) - Spirit of the Drum (2008) [FLAC|Lossless]<New Age
 magnet:?xt=urn:btih:8F2D09E006FA67FEC743E178327FAE1AE5CB8325
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:8F2D09E006FA67FEC743E178327FAE1AE5CB8325
 ```bash
 magnet:?xt=urn:btih:A3671C4C11A987811CA62F1152B8AC6A7369676F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ VA - Beatport Psy Trance: Electro Sound Pack #215 (2020) [MP3|320 Kbps] <Psy, Go
 magnet:?xt=urn:btih:65990FC6D4B6E8B158D6D4009C75742C2E86BD0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:65990FC6D4B6E8B158D6D4009C75742C2E86BD0D
 ```bash
 magnet:?xt=urn:btih:E44CCF7BB8D364EB2E86D132F2C696BD38C27A2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:E44CCF7BB8D364EB2E86D132F2C696BD38C27A2E
 magnet:?xt=urn:btih:95381D3C65F8C6E56A8F16FDAC42FAB1890A78FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ magnet:?xt=urn:btih:95381D3C65F8C6E56A8F16FDAC42FAB1890A78FE
 magnet:?xt=urn:btih:DC7701B7A1236EDA8DFFA285CF29D46B511997F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ magnet:?xt=urn:btih:DC7701B7A1236EDA8DFFA285CF29D46B511997F0
 ```bash
 magnet:?xt=urn:btih:DDA25BB1A45B4AC1540092D3E4AA0BBBA60DABAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +561,8 @@ Artie Shaw - 1950 (2005) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band
 magnet:?xt=urn:btih:5F82F20926967E8FA1BAE3D692C33C704F742022
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ Doctor Lonnie Smith - Too Damn Hot! (2004) Palmetto Records[FLAC|tracks+.cue] <J
 magnet:?xt=urn:btih:C048341BE21A3E5AA725366BDA5ACA8472103A69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ magnet:?xt=urn:btih:C048341BE21A3E5AA725366BDA5ACA8472103A69
 ```bash
 magnet:?xt=urn:btih:FA3F252C65C9359409BB60E568416990A5D3D9F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +645,8 @@ Digital-Tutors | Introduction to Houdini 15 (2015) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:920419E162FBABA9C528CA6DF2F243E038A11841
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +674,8 @@ David Arkenstone, Kathleen Fisher - Celtic Sanctuary (2006) [FLAC|Lossless]<New 
 magnet:?xt=urn:btih:23C0B89ACD1A57932B9EF230A829E30717F0E7C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ magnet:?xt=urn:btih:23C0B89ACD1A57932B9EF230A829E30717F0E7C7
 ```bash
 magnet:?xt=urn:btih:3FA012F8B36AE2BD754ED7B816E3042629FD6A96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

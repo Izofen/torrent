@@ -20,6 +20,8 @@ Maxthon Browser — многофункциональный браузер со �
 magnet:?xt=urn:btih:5A5F3F1D01A73391CE7F71F8D4DBE730C809920D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ SanDisk (Western Digital) SSD Dashboard - официальная програм�
 magnet:?xt=urn:btih:B54717A2B5BDC4FF68C05D7947F5F73F15EB1CBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 ```bash
 magnet:?xt=urn:btih:FD38CC5D1669689A66200E9A070A79865FE2A7DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Floorp Browser – это модифицированная версия Firefox,
 magnet:?xt=urn:btih:7D28D5247579B10466A7923FE5D0E315BDA05B2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Luminar Neo 1.12.2 U2B [Multi]
 ```bash
 magnet:?xt=urn:btih:23576CA3A9ABDF16B345422DB87E56F06EFADADB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Visual Studio Code – визуальный редактор кода от ко�
 magnet:?xt=urn:btih:85172AA16B6C529D15FD117B6BF55A0B6D4306EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 magnet:?xt=urn:btih:BDEFB1D94C3A9E157B9226E8D98A2ED69AFF39FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Nik Collection by DxO – это наиболее полная коллекци�
 ```bash
 magnet:?xt=urn:btih:7B65A507B64CE34B7F6E61BC9253D1C6256D1CD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ ADB AppControl - это новая и удобная программа для �
 magnet:?xt=urn:btih:2E92A66963CD05082D444D03975D62899B3ADAC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Adguard – интернет-фильтр для защиты пользоват
 magnet:?xt=urn:btih:F690AEA10B112961BD9FDD93F08E5D8EC7383700
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ PhotoRoom v4.6.1 Mod by KirillCXV, Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2AB0FD3D5B5F1156E12FC16922A6A82014BFEC7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ july_2023_x64_dvd_0ee9325c.iso
 magnet:?xt=urn:btih:44FF797BC9616B413E167FE97D66F4CF49E436F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Snappy Driver Installer Origin (SDI Origin) - главная ветвь порт
 magnet:?xt=urn:btih:BB2F04958F5BB8EF7FF92705FB1F3F8E8FA51897
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Luxion KeyShot Pro — средство для интерактивной фот
 ```bash
 magnet:?xt=urn:btih:F50667A9E42759A4423F9276661EADC5386CEDE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ _updated_july_2023_x64_dvd_0ee9325c.iso
 magnet:?xt=urn:btih:C6E7D26E0E3EDCDD9D60BC3CF71CA7514C928A58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ uTorrent Pro 3.6.0 Build 46846 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 magnet:?xt=urn:btih:FAAB461758217593DE3667585137C928FA3A394B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ SoftMaker Office Professional 2024 rev. S1202.0723 RePack (& portable) by KpoJIu
 ```bash
 magnet:?xt=urn:btih:36D2C34A2EE4AB94233BADDA7D7793A852AB631E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ Davinci Resolve Studio 18.5 [Multi/Rus]
 magnet:?xt=urn:btih:5924C81765F91A8A467BCBEC1C6D031C832E19E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ Hetman Partition Recovery - программа восстанавливает д
 magnet:?xt=urn:btih:7A27D181290F5E0228CAD3199DDF4E6C8EED0922
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ TweakPower – представляет собой единый графичес
 ```bash
 magnet:?xt=urn:btih:8AD538057C3D50219C40AE0443F2A2D72800B754
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ magnet:?xt=urn:btih:8AD538057C3D50219C40AE0443F2A2D72800B754
 magnet:?xt=urn:btih:F23D9337E38D7E4F940645BE6BFAE0A6DCF5FD30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ Adobe After Effects — одно из ведущих в отрасли прил�
 magnet:?xt=urn:btih:3B42B7CF8CAA2F2F3F985B94BDC6FCA32B9A0DCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ Windows 11 (9in1) by Updated Edition (19.07.2023) [Ru]
 ```bash
 magnet:?xt=urn:btih:EF5847448E18D0943EFF815D7AFA864A940B5204
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +633,8 @@ DogLinux Debian 12 Bookworm 2023.07.21 [x86, amd64] 2xDVD 2xCD (ISO)
 magnet:?xt=urn:btih:62E69C3EBEB8C9AB6AA572831A9EB8D5CBA53C38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ AOMEI Backupper – программа для создания резервно�
 magnet:?xt=urn:btih:927ADED4B6F3300A7D3DB5A47E6DFCF8C7940148
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ Magic Recovery Software 2023.07 Portable by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:AB45E6917080614E67E6C662AC2C344196AFC2F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

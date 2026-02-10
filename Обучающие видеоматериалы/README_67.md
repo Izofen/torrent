@@ -22,6 +22,8 @@ Softwaretesting , Наталья Руколь | Школа тест-менедж
 magnet:?xt=urn:btih:E325E8FFB2B0C3247BD9961090BFA0997E369623
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ CG Fast Track | Основы анимации в Blender 2.82 / Blender Animatio
 ```bash
 magnet:?xt=urn:btih:62894D98B5BB970119058FD242D2231E0620B401
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Blender - это мощное приложение, предоставляюще
 magnet:?xt=urn:btih:F3AFC229DAE029E33CCDD46713DCB579DBB06E2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Skillshare, Neil Bettison | Дизайн и рендер стилизованн�
 ```bash
 magnet:?xt=urn:btih:A5D67652EE022ACE51D6F884829B035FEEFA6B07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:A5D67652EE022ACE51D6F884829B035FEEFA6B07
 magnet:?xt=urn:btih:23A99D68A733599F53A02C036E2D06DE83CAAA58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ CG Cookie, Jonathan Lampel | POTHEAD: Create a Hard Surface Character in Blender
 magnet:?xt=urn:btih:41BF00F2498F65683295DBBFD1510EF929FA966C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ CG Cookie, Wayne Dixon | OFF-ROAD: Rig and Animate an RC Monster Truck in Blende
 ```bash
 magnet:?xt=urn:btih:9A51254309B1E403E648964817C71D5DB65EC0FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ CG Cookie, Paul Caggegi | PANELS: Create a Comic Book with Grease Pencil in Blen
 magnet:?xt=urn:btih:3EBBF3E302FCE8DC610ACDF8F9576FDC77CEF7B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ CG Cookie, Kent Trammell | CUBICITY: Creating and Utilizing Asset Libraries with
 magnet:?xt=urn:btih:3839ABF20E524608506FB8E6B113F91E64727C26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ CG Cookie, Kenan Proffitt | ASTRAY: Environment Building Workflow in Blender (20
 ```bash
 magnet:?xt=urn:btih:32F75C23A198F425C5003EE6D16DE7E38DAAD6E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:32F75C23A198F425C5003EE6D16DE7E38DAAD6E5
 ```bash
 magnet:?xt=urn:btih:9569CF3F137A12A370134E51B07C407FDE69667D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:9569CF3F137A12A370134E51B07C407FDE69667D
 magnet:?xt=urn:btih:57175FBB7957CF3703EAF3A6C139587FDF2908A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ Skillbox, Владислав Прищепов, Андрей Смагин  | Юн
 magnet:?xt=urn:btih:6F0B3C8C9E3BD8DF6E8A4FEC54EBB5D4CAB2DFF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ Kalachevaschool, Ирина Артамонова | Цветущая пастел
 ```bash
 magnet:?xt=urn:btih:679705FB8AD601667A6B5D77878CCE7D4EA61108
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +410,8 @@ Udemy | Полный курс немецкого от А1 до С2 (2019) WEBRip
 magnet:?xt=urn:btih:4B9C7B5769B138403EAF98F0B415AB5866398FAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +435,8 @@ Cubebrush, Marc Brunet | Drawing and Coloring Techniques (2014) WEB-DLRip [RU, E
 ```bash
 magnet:?xt=urn:btih:F9016B0EF7920271CBCBC426A0386C5B785D4368
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +463,8 @@ Gumroad, Tim Bergholz | Blade Tutorial Extended Edition (2016) PCRec [En, Ru]
 magnet:?xt=urn:btih:CC427BBDA074D21F76D5061C31A69F7FEF7EA86A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ Gumroad, Tim Bergholz | Blade Tutorial (2016) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:1C1EAAC6A4FB2F6221BCFD2C2C1A973560155BF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +518,8 @@ Skillbox, Дарья Макарова и др. | Скетчинг на план�
 magnet:?xt=urn:btih:4C6DBA7439AE167EB11356B4296F15315782F7CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +546,8 @@ Skillbox, Анна Марчук и др. | Запуск подкаста с ну
 magnet:?xt=urn:btih:CC58AF3609938CEFF89765FC3DDEE006635B4D58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +571,8 @@ Skillbox, Вадим Михалев и др. | Мастер презентаци
 ```bash
 magnet:?xt=urn:btih:68142CB68EDD66EE5C44FBDC3A3AD1BCB7297673
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +601,8 @@ All Ears English, Jessica Beck и др. | 3 Keys IELTS Online Course (2020) CamR
 magnet:?xt=urn:btih:64C9A8F2B9CF2833A3CBFB262F419A340AA150AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +626,8 @@ Udemy, Nexttut, Arash Arefnia | Complete Guide to Unreal Engine 5 (2022) PCRec [
 ```bash
 magnet:?xt=urn:btih:696B742D55D0DADC2E3F580FD3C88DF032CF2212
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +656,8 @@ magnet:?xt=urn:btih:696B742D55D0DADC2E3F580FD3C88DF032CF2212
 magnet:?xt=urn:btih:D5F03D91B5742CF0CE4F59E9CFCDEAD10D8622DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +682,8 @@ Domestika, Luis Alberto Gayoso Berrosp | Digital Sculpture of Fantastic Creature
 magnet:?xt=urn:btih:7EE0F62C540C76251453D6B3C1A87665086871FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +707,8 @@ magnet:?xt=urn:btih:7EE0F62C540C76251453D6B3C1A87665086871FF
 ```bash
 magnet:?xt=urn:btih:7F772FB35F135CD4981A83EBDBD969D3BA5FE99D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

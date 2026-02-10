@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:53775D4719F32E379240183D226B1820D0E353C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ From movies and video games to illustrations and image renders, visual art has t
 magnet:?xt=urn:btih:DA5C41E4E6B297600564FF8BC04DBB8F40338E78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ Web Dev Simplified | React Simplified - Advanced (2023) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:DF5B82952222CBE287920E9EB1A64228D886AF61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ Udemy, Aniket Rawat | Creating a Traditional Chinese Room Environment in UE5 (20
 magnet:?xt=urn:btih:4B3AD710D4F4287F0E35D8302EBB715425B5D170
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ P.S. Уделяйте обучению всего 15 минут в день и �
 ```bash
 magnet:?xt=urn:btih:05C0E00024C850193AFBBCF54E4766779C64C437
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ Web Dev Simplified | React Simplified - Beginner (2023) WEB-DL [EN]
 magnet:?xt=urn:btih:A1E1BE5991BC827D7619773D6FC4E43FDC6C553D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ Udemy, ASOMobile ASOTeam | Стань ASO специалистом: базовы
 ```bash
 magnet:?xt=urn:btih:19A0F9417FDB65C4DD0C89C47AC186E3B539A11C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ Stepik, Дмитрий Читалов | Создаем чат-бот на баз
 magnet:?xt=urn:btih:9635B07281B7E4107691825E54928CCC611644AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ OTUS, Алексей Железной | Data Warehouse Analyst (2023) WEB-DL [RU
 ```bash
 magnet:?xt=urn:btih:9CCA99A6832B8E663F2960A11BC78F164A940867
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ Bonnie & Slide, Егор Мараев | Убойная анимация 2.0 (202
 magnet:?xt=urn:btih:E19AAA08CADD1641BAA01A5CA6A4C87F913F468E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ Stepik, Evgeniy Lestopadov | Регулярные выражения на при
 ```bash
 magnet:?xt=urn:btih:9C1404B9151F943CF69767249F4203B7460456DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ Xml на примерах. (Курс обновлен с учетом замеч
 ```bash
 magnet:?xt=urn:btih:F90DB3D7910A110C048371E4AF1274AB4E2E9E2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +351,8 @@ kobezzza.channel, Андрей Кобец | «Computer Science во Frontend». 
 magnet:?xt=urn:btih:BC02E0F7E4D49699FEC2D5BB58D72A5CD67EB6A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ Babok-school, Анна Вичугова | Разработка ТЗ на инф�
 ```bash
 magnet:?xt=urn:btih:88269D8B761E32E575AE3BDC0C2AAC5B49C4238E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +408,8 @@ magnet:?xt=urn:btih:88269D8B761E32E575AE3BDC0C2AAC5B49C4238E
 magnet:?xt=urn:btih:87EBFDABADF9DF190C000DF4782C0B8B1D4C7497
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ Laravelcreative.ru | Laravel 10 Vue 3 Inertia SPA Вебсокет Форум (2
 ```bash
 magnet:?xt=urn:btih:E126D33E81E430624AD3B419743097D11D09E0C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +460,8 @@ Stepik, Evgeniy Lestopadov | Windows CMD - быстрый старт (2023) WEB-
 magnet:?xt=urn:btih:0C054256F271856E3275D99B7A6B3255937B0AAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ Proglib.Academy, Евгений Тюменцев | Архитектура и ш�
 magnet:?xt=urn:btih:4D5D588E62D635FC5564E9784673271D23088F35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ Babok-school, Анна Вичугова | Основы архитектуры и
 ```bash
 magnet:?xt=urn:btih:A919221B3358595FC070991B83D534082D4D791F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ Kitze | Zero To Shipped (2023) WEB-DL [EN]
 magnet:?xt=urn:btih:98815B5EF3469D6140CE5852DF0C9B311AE323CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +565,8 @@ Laravelcreative.ru | Laravel 10 Vue 3 Inertia SPA Вебсокет чат (2023)
 magnet:?xt=urn:btih:32533B8F3D90E4CE724BEDF6DF2DC5FF748D8F14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ Laravelcreative.ru | Excel Import Laravel Inertia Vue Tailwind [RU]
 ```bash
 magnet:?xt=urn:btih:D11AF28889AF372BC4B49C65B6D2107D0F32012F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +618,8 @@ Whether you're a beginner or an experienced Android developer, this course will 
 ```bash
 magnet:?xt=urn:btih:0E9B75521F441753427A4E84FCB08CB0912E108A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +648,8 @@ Udemy, Oscar Villarreal | Procedurally Generated Scenes with Blender, Python & N
 magnet:?xt=urn:btih:D72EBF4E383DBCCEC28D8D653EE416E320F73E08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +674,8 @@ Motion-дизайн в Adobe After Effects — это уникальный ку�
 magnet:?xt=urn:btih:DD5035868846344375C07D5C6E254B2D56DAE576
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ Laravelcreative.ru | Социальная сеть SPA Laravel 9 vue 3 Tailwind 
 ```bash
 magnet:?xt=urn:btih:037E0E72FB35A569567FD5F568BFC8EF33A1B628
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

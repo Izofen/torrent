@@ -19,6 +19,8 @@ CrystalDiskInfo отслеживает состояние жестких дис�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Rainmeter - программа для мониторинга ресурсов к
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Maxthon - браузер поддерживающий вкладки и имее
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +107,8 @@ KRS-One - The BDP Album (2012) [MP3|185-205 кб/с]<Hip-Hop>
 magnet:?xt=urn:btih:5CD8C1A82FA38B45C7C9AC1F90A245286FC39759
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:5CD8C1A82FA38B45C7C9AC1F90A245286FC39759
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Google Chrome - веб-браузер с открытым исходным ко�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ DJ GraF aka Slava -  Sabotage (2012) Год: 2012
 ```bash
 magnet:?xt=urn:btih:CB607DBEBE98168F51B1149F0FA33F54913236D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +226,8 @@ VA - Ayurveda Lounge. Relaxation & Meditation. Volume 1 (2012) [MP3|320 кб/с]
 magnet:?xt=urn:btih:B9E3086ACDD81D4D458C0A2546051D53AEE2F847
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +251,8 @@ magnet:?xt=urn:btih:B9E3086ACDD81D4D458C0A2546051D53AEE2F847
 ```bash
 magnet:?xt=urn:btih:426643428966A682750F390048EF3B3A7B322DB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +279,8 @@ magnet:?xt=urn:btih:426643428966A682750F390048EF3B3A7B322DB4
 ```bash
 magnet:?xt=urn:btih:400F85F611F5DFFAF5A1AD00172B4FAD00B4A160
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +315,8 @@ CD1
 magnet:?xt=urn:btih:023FDB3263AA40AA171314FE87F744929CD71343
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +350,8 @@ Analogik - New Seeland (2012) [MP3|320 кб/с]<Funk, Nu Jazz, Broken Beat>
 magnet:?xt=urn:btih:A1D0DCCCD1F2A02E791F1909C488A5268B3C791E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +377,8 @@ magnet:?xt=urn:btih:A1D0DCCCD1F2A02E791F1909C488A5268B3C791E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +406,8 @@ Freemake Video Converter 3.0.1.24 [Multi + Русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +431,8 @@ Ministry Of Sound - The Sound Of Dubstep 4 2CD (2012) [MP3|~224 кб/с ]<Dubste
 ```bash
 magnet:?xt=urn:btih:D01D3DB6275FEFAE535081F1A746685B07966A3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +467,8 @@ Kyau & Albert - 15 Years (The Album) (12.03.2012) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:AB700FCC02B9235E17B5BE206AFE2DD326035F43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +493,8 @@ AIDA64 Extreme - утилита является очень мощным инс�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +518,8 @@ Freemake Video Converter - это удобное, бесплатное прил�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +554,8 @@ VA - Клубная Вечеринка Радио Record (2012) [MP3|128 kbps]<C
 magnet:?xt=urn:btih:04263D1C9E6BD4AEC107BB179FB253ABAB93E49F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +580,8 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +605,8 @@ Ubiquitous Player - универсальный файловый менеджер
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +641,8 @@ Idina Menzel - Live Barefoot At The Symphony (2012) [MP3|~245 кб/с (V0)]<Jazz
 magnet:?xt=urn:btih:F4C49EECAC319B3D751D68F89FFEED9F0464E083
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +676,8 @@ SuperDетки - Бикини-мини (2007) [FLAC|Lossless]<Pop-Dance>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +701,8 @@ SuperDетки - Бикини-мини (2007) [FLAC|Lossless]<Pop-Dance>
 ```bash
 magnet:?xt=urn:btih:2A3046200C09F1A5E09747E800E549B760D4BA34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -681,6 +729,8 @@ magnet:?xt=urn:btih:2A3046200C09F1A5E09747E800E549B760D4BA34
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -714,6 +764,8 @@ Icehouse - 2 Альбома (1986,1987) /1992, Massive Rec./[APE|Lossless]<Alter
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

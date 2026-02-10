@@ -19,6 +19,8 @@ PhotoDirector - функциональный, но весьма простой �
 magnet:?xt=urn:btih:292B3654BFE1F86ED74C48CE735EAC5DE6A9684D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Belitha — очаровательный рукописный шрифт, кот
 ```bash
 magnet:?xt=urn:btih:D1E9B85DB9C0203B07B5A1758457DB97DB50F05C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ CD1 - Live In Austin, Texas – October The 11th, 1985:
 magnet:?xt=urn:btih:FD80CFAD344669A67A62CEB064A8BE57D7AA1102
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:FD80CFAD344669A67A62CEB064A8BE57D7AA1102
 ```bash
 magnet:?xt=urn:btih:54121E4BEA555C8BEB04E65CE99517BCCBE269DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ Side A:
 magnet:?xt=urn:btih:26C0C4EE524952A83EF80D462A488C9CF55146D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Jigsawscapes® - Пазлы v3.8.2 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:FAB5EAD949ECF28A89DDBE83895D43A6CC511B7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Ms. Holmes 7: The Death of Peter Blackheart / Мисс Холмс 7: Смерт�
 ```bash
 magnet:?xt=urn:btih:5CC914345F64A3E55F9617F4678B402E8DE05E95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:5CC914345F64A3E55F9617F4678B402E8DE05E95
 magnet:?xt=urn:btih:C2026687E1A3032D1CCFB4218D491CDCC01183A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ Draw.io 26.1.1 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:449762F840EED98D730FF48558435BA1B65613A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:449762F840EED98D730FF48558435BA1B65613A3
 ```bash
 magnet:?xt=urn:btih:AC9F6250259A08E8D7045DDAF214430CDE7B18D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:AC9F6250259A08E8D7045DDAF214430CDE7B18D6
 magnet:?xt=urn:btih:7585DA779071FAF480121BBF4B375059542BD914
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:7585DA779071FAF480121BBF4B375059542BD914
 magnet:?xt=urn:btih:5759646DCE0FF78E4ED5EFF72D38753F5599905C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:5759646DCE0FF78E4ED5EFF72D38753F5599905C
 ```bash
 magnet:?xt=urn:btih:7736AF9860D353DCAE5874892327ECA1253BA3C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:7736AF9860D353DCAE5874892327ECA1253BA3C4
 magnet:?xt=urn:btih:9EFE00EE8939204A67DD1FC982A8F493ACF32C2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:9EFE00EE8939204A67DD1FC982A8F493ACF32C2D
 magnet:?xt=urn:btih:CFF8FDB6830A1FBB19BA5F98001533648F921751
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:CFF8FDB6830A1FBB19BA5F98001533648F921751
 magnet:?xt=urn:btih:C84FF07DDDF2509D6370C7C09A21F131415F8E16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ ScreenToGif — удобный бесплатный инструмент, с п�
 ```bash
 magnet:?xt=urn:btih:DDD5F9612D498B4FC2ABB5840971FA4EC7C29E7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ Vermilia - Karsikko (2025) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Pagan, Bla
 magnet:?xt=urn:btih:A62398263F3B45F9139C358197E4676201AA23B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ Dead Rabbitts, Judge & Jury, Escape the Fate - Redefined (2025) [FLAC 24/48|Loss
 ```bash
 magnet:?xt=urn:btih:6E51AA17BBAEA948DA16E44A6DBC9B37A42C85BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +543,8 @@ Malevolent Hand - Entropic Immolation (2025) [FLAC|Lossless|WEB-DL|tracks] <Heav
 magnet:?xt=urn:btih:49B92A991AB542E1520C75ECCCC500A80FCD3546
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +571,8 @@ Sonny Rollins - In Denmark, Vol.2 (1968) 1992, Moon Records [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:A662F835EC7CDB6214E3871A43E27FD9A0400964
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +601,8 @@ Rioghan - Kept (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Metal, 
 magnet:?xt=urn:btih:C106BA04BD5C6E8CCB4A78173C3DA4886552FA70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +627,8 @@ Sonny Rollins - In Denmark, Vol.1 (1968) 1992, Moon Records [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:4A997D80EBBB11152F93D75171FC97144CEA07F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +655,8 @@ magnet:?xt=urn:btih:4A997D80EBBB11152F93D75171FC97144CEA07F5
 magnet:?xt=urn:btih:A3F3303A9021362740FFE8220F5C1282D999F4C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +681,8 @@ magnet:?xt=urn:btih:A3F3303A9021362740FFE8220F5C1282D999F4C7
 ```bash
 magnet:?xt=urn:btih:36907FD4FFF7BDFE9E55AB6F1025024CE03D0556
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -659,6 +709,8 @@ Coretan Komedi — игривый и смелый шрифт-кисть, кот�
 ```bash
 magnet:?xt=urn:btih:A40C8E9FA563C6D40FBC9BCBB78BCDBE7FCE14D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

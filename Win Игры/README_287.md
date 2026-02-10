@@ -19,6 +19,8 @@ Nickelodeon All-Star Brawl (2021) [Multi] (1.0.5) License CODEX
 magnet:?xt=urn:btih:06E30A3C736A2E32B8100815481B3024558932CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Dispatcher (2015) [Ru/En] (1.0/upd2) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:BA401A69AAA6C0DBC95A613283913116ACCC75A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Europa Universalis 4 - стратегия, разрабатываемая сту
 magnet:?xt=urn:btih:BCDD4F2350A122B7761E8D61063F3B7253BECAD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Solar Ash (2021) [Ru/Multi] (1.03.44179) License CODEX
 ```bash
 magnet:?xt=urn:btih:2550935EF11CAAC1B8ACC8F20D97FE7F75147AD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ VIKINGS WOLVES OF MIDGARD™: Рагнарек. Легенда гласит, ч�
 magnet:?xt=urn:btih:5E8D4B9632D642B97EFAD802289615072ECB6568
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Highrise Mogul - игра про магнатов о строительстве 
 ```bash
 magnet:?xt=urn:btih:9F3126D92E02AD4244305C68A8EF5620D0963AFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Deathtrap (2015) [Ru/Multi] (1.0.5) Repack R.G. Механики
 magnet:?xt=urn:btih:5305EC673F221242968B5F7BF652D049329B9ABB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Magicka 2 (2015) [Ru/Multi] (1.2.0.0/dlc) Repack R.G. Механики [Deluxe E
 ```bash
 magnet:?xt=urn:btih:741E650BF58CBC6F5C406E53C5B616DE49B08702
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Shieldwall Chronicles: Swords of the North — это игра в жанре rpg
 magnet:?xt=urn:btih:785CB44DFAB0549E06EAFB8819547DAD09214A7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ World's End Club (2021) [Ru/Multi] (0.0.0+hotfix) License CODEX
 ```bash
 magnet:?xt=urn:btih:B9058ED09292240E82FB1A453AAAF4E27F09C38A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ LEMURIA (2022) [Ru/Multi] (1.2.5/dlc) License DOGE
 magnet:?xt=urn:btih:F76FB664748BE0E2FA3AA6E9649DDEB1D2AB0DAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Christmas Stories 10: Yulemen / Рождественские истории 10: 
 ```bash
 magnet:?xt=urn:btih:7BD03BCB3676BE617E8597077E76AB13AAC8705D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:7BD03BCB3676BE617E8597077E76AB13AAC8705D
 magnet:?xt=urn:btih:30C79B54A118FF82DCAD522D021A187B6779DB68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Behind the Memory — игра от первого лица, в которой �
 ```bash
 magnet:?xt=urn:btih:C316DC365E0DEBE6304AD210EBE97A395A6FECE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Today Is My Birthday (2020) [Ru/En] (1.6) Repack Other s
 magnet:?xt=urn:btih:A0E397A33DD12F0BAFBA203E4B5E8CE5EA4E07F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ House on the Hill — это сюжетный хоррор от первого �
 ```bash
 magnet:?xt=urn:btih:9A6F1C626FB189772729AAABFF840885043931BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Oddworld Stranger's Wrath HD (2010) [Ru/Multi] (1.5) SteamRip Let'sPlay
 magnet:?xt=urn:btih:DBDE145D7AC7655EA3A3CEEB66C92F9E3DCA7026
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Aim Hero - это идеальное решение для тренировки 
 ```bash
 magnet:?xt=urn:btih:9AD002E5050FFA2FF548BFC445B85A8442733974
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Professional Lumberjack 2015 (2015) [Multi] (1.0) License PROPHET
 magnet:?xt=urn:btih:9E154F9FD5E58FE91C45CBF20E3B4949691C39F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Talisman: Digital Edition - это электронная адаптация н�
 ```bash
 magnet:?xt=urn:btih:F0B7696C3FF4DC3AFBBE85E2D6097D3BD8947708
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Cabela's Outdoor Adventures (2009) [Ru/En] (1.0) Unofficial
 magnet:?xt=urn:btih:C9AB9CDF2407FF8CEB4B62D05B10D3CA2F3AFCBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Memoirs of Murder 2: Resorting to Revenge (2018) [En] (1.0) Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:948207B9CD22DA0CCEB6BE7EB39D2F13B2C4D385
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Cabela's Big Game Hunter продолжает серию симуляторов 
 magnet:?xt=urn:btih:F5E4696415BFA8A52D990AD93DA355BB918A8175
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ CHORUS – космическая стрелялка, в которой вам �
 ```bash
 magnet:?xt=urn:btih:D8D21E50F9B4E0249E30E391224AEBB45FCD3FBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Aliens: Fireteam Elite (2021) [Ru/Multi] (1.0.1.90663/dlc) License CODEX [Deluxe
 magnet:?xt=urn:btih:4D31797AC3C0E37F0D3876A219CC617FF0F8AFFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Tangledeep – это RPG выполненная в стиле 16-битной �
 ```bash
 magnet:?xt=urn:btih:BA790ECDA5D7BD344364BECA4C17ED8279DABBF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

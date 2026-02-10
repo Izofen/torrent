@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:679597C7031932C2EF1317991A7743034DCCCA95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Nitrate - Real World (2018) Reissue, 2021, MR Records Production [FLAC|Lossless|
 magnet:?xt=urn:btih:B911B4216B7660A74DCEB983AEAE85CCF203A968
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:B911B4216B7660A74DCEB983AEAE85CCF203A968
 magnet:?xt=urn:btih:81612C16E4A7A8025A9D685077856FF8DE4D6EA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:81612C16E4A7A8025A9D685077856FF8DE4D6EA6
 ```bash
 magnet:?xt=urn:btih:62118645EEFBBF3BCC96F47B5337A7354FF9AB49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Sam & Max Save the World (2020) [Switch] [USA] 10.2.0 [NSP] [License / 1.0.2] [R
 magnet:?xt=urn:btih:84CFA0521365AA2DD0345C0601656D73C457E391
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:84CFA0521365AA2DD0345C0601656D73C457E391
 magnet:?xt=urn:btih:FB50523FB4417F2B84B1DA55B22C19CD3B709F69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:FB50523FB4417F2B84B1DA55B22C19CD3B709F69
 ```bash
 magnet:?xt=urn:btih:0508E77B1F74E69E0DC32E7BD8435516328C6B0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ CD - 1 - Opvs Contra Natvram:
 magnet:?xt=urn:btih:8C5938EF5CC7B0A511611D62D4B53AAFE6D6E61E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Forza Motorsport (2023) [Ru/Multi] (1.488.4138.0/dlc) Repack DjDI [Premium Editi
 ```bash
 magnet:?xt=urn:btih:752E1CAE1B4ACC0E645C6CEFEFB1140B958BC91B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:752E1CAE1B4ACC0E645C6CEFEFB1140B958BC91B
 magnet:?xt=urn:btih:F129883C5663FA7D5776C182F706F7E2A955C202
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:F129883C5663FA7D5776C182F706F7E2A955C202
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:F129883C5663FA7D5776C182F706F7E2A955C202
 magnet:?xt=urn:btih:872FEA5B2751CCBF7B1EE416C59EB9A85C64465F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:872FEA5B2751CCBF7B1EE416C59EB9A85C64465F
 ```bash
 magnet:?xt=urn:btih:2FEDD618B8C5FC91EEB2B25AEBFCCDE16291C13C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ Pink Floyd Solo Projects: Roger Waters, David Gilmour, Richard Wright, Nick Maso
 magnet:?xt=urn:btih:8749A3356DA3EB8E5A3722C919D9D53FD521CE62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:8749A3356DA3EB8E5A3722C919D9D53FD521CE62
 magnet:?xt=urn:btih:06B04C6BA0347DF18C297EE41362BC558BC04468
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ Wall World сочетает в себе несколько жанров. В эт
 magnet:?xt=urn:btih:198D14922F4961A9F30708EB24D56E4A491B8C4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:198D14922F4961A9F30708EB24D56E4A491B8C4E
 ```bash
 magnet:?xt=urn:btih:16951D4696F91F5A6974A597A22CD57E6BF8FC00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:16951D4696F91F5A6974A597A22CD57E6BF8FC00
 magnet:?xt=urn:btih:2F4A72CEE2CD4B26FAEA3E008CEB9F292DECE1B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:2F4A72CEE2CD4B26FAEA3E008CEB9F292DECE1B6
 ```bash
 magnet:?xt=urn:btih:4D985D310A47A05856E5097ADEFCAC1960475A58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:4D985D310A47A05856E5097ADEFCAC1960475A58
 magnet:?xt=urn:btih:E23591223311BD81FC41D0B3EA1E9CD9D915F1B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ Brejestovski Language School, Антон Брежестовский | Основ
 ```bash
 magnet:?xt=urn:btih:A4D79A3882686F24990394387D38B5B50A2C7BE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +590,8 @@ Diablo - When All The Rivers Are Silent (2022) [FLAC|Lossless|image + .cue] <Mel
 magnet:?xt=urn:btih:07E16BEFC24812DC47C17259867A425733EE1F56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ magnet:?xt=urn:btih:07E16BEFC24812DC47C17259867A425733EE1F56
 magnet:?xt=urn:btih:2C400AEC0FF541291D4F752F67B39C2FD3F2EF3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +641,8 @@ The Tenants - симулятор домовладельца, в котором �
 ```bash
 magnet:?xt=urn:btih:A9A8B622348F3A98A01E473E54A4A5F44B083300
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +671,8 @@ Richard Marx - Rush Street (1991) [OGG Vorbis|480 Kbps] <Rock, Soft Rock, Pop>
 magnet:?xt=urn:btih:FD06DF93BFF1241002C67442E1B9CCD20DB350BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +696,8 @@ magnet:?xt=urn:btih:FD06DF93BFF1241002C67442E1B9CCD20DB350BC
 ```bash
 magnet:?xt=urn:btih:F429AF9A32ABD8035CBE4F20969A006F07EFB0A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:A943972E92ECAC5AC72CCC13B90519A6C426A599
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:A943972E92ECAC5AC72CCC13B90519A6C426A599
 magnet:?xt=urn:btih:AE8ED40126F04506EB860669FF2BFD7316C53BD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ IObit Uninstaller Pro представляет собой удобный инс�
 ```bash
 magnet:?xt=urn:btih:A14EC4B09E74CF65C7BCC104D92E9B7A14B64F87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:A14EC4B09E74CF65C7BCC104D92E9B7A14B64F87
 magnet:?xt=urn:btih:2CD6EE0FB1988F79C6A679C45873B53F12A68485
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:2CD6EE0FB1988F79C6A679C45873B53F12A68485
 ```bash
 magnet:?xt=urn:btih:22652C1A7570D94A4FD7BE3F41CD986D8448F169
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Yarinaoshi Reijou wa Ryuutei Heika o Kouryakuchuu | На этот раз оде�
 magnet:?xt=urn:btih:AB77C1BAB71549ECFE2AB17B2A0C233825C938C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Last Day on Earth: Survival v1.31.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:0A43D035880EE421763A346AC98CDF43D26816CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:0A43D035880EE421763A346AC98CDF43D26816CB
 magnet:?xt=urn:btih:288228C3F3342C77F78D0145514B857B39C5A516
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Tokyo Clanpool (2024) [Multi] (0.30) License GOG
 ```bash
 magnet:?xt=urn:btih:BEA46AEA3BE4E7D9C4BFD5EFA4DB54B3D5DCF595
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:BEA46AEA3BE4E7D9C4BFD5EFA4DB54B3D5DCF595
 magnet:?xt=urn:btih:52D4E324A07E588D898F256C7A25A2C33DC7CD89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Warcraft III: Reforged - это потрясающая переработанн�
 ```bash
 magnet:?xt=urn:btih:A9071A353A972EA90C8FB9DB7AF5647BBD2429D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:A9071A353A972EA90C8FB9DB7AF5647BBD2429D8
 magnet:?xt=urn:btih:9F93FFB8DAC034E2E0DA6347655426375FF1EAD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ V Rising (2024) [Ru/Multi] (1.0.10.2-r83846-b3/dlc) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:FDF25B9A33AD4DF05C9126D7AFF1C258905913DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:FDF25B9A33AD4DF05C9126D7AFF1C258905913DE
 magnet:?xt=urn:btih:7311897F808D1085323D13B1F0B180E8147BE664
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:7311897F808D1085323D13B1F0B180E8147BE664
 ```bash
 magnet:?xt=urn:btih:DE845236FDD140C51C80AC7555321D141358BE95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ Conway: Disappearance at Dahlia View (2021) [Multi] (1.2.0.1) License GOG
 magnet:?xt=urn:btih:A552DC32D19EBC523FE798E13C7F53D9E0C724A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:A552DC32D19EBC523FE798E13C7F53D9E0C724A6
 ```bash
 magnet:?xt=urn:btih:83E7F0A82BA2219D98CC376DA146AADDFD29DCCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ Sengoku Youko / Ёко из Сэнгоку [2024, TV, 35] WEBRip 720p raw
 magnet:?xt=urn:btih:D106F0E6604BA0A4C76B8CF2D35D0F6533E9FE0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ magnet:?xt=urn:btih:D106F0E6604BA0A4C76B8CF2D35D0F6533E9FE0F
 ```bash
 magnet:?xt=urn:btih:4CD4973A3222DEC23EB91ED931FAAE6B7C2DA522
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ The Legend of Heroes: Trails to Azure продолжает историю Лло
 magnet:?xt=urn:btih:B6EBA58DBB6D7D6247170F902A8509FE418F90C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ magnet:?xt=urn:btih:B6EBA58DBB6D7D6247170F902A8509FE418F90C3
 ```bash
 magnet:?xt=urn:btih:FC8F18F3B583822CFF25EC91625BBCED41DFEA8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ HDD Low Level Format Tool - утилита для низкоуровневого
 magnet:?xt=urn:btih:4F9D84A310BDBA8993E3494FD8495B5371E7AB92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ magnet:?xt=urn:btih:4F9D84A310BDBA8993E3494FD8495B5371E7AB92
 ```bash
 magnet:?xt=urn:btih:FDEA8B7B7756F931D4627554F42CAE7065BF6B88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ magnet:?xt=urn:btih:FDEA8B7B7756F931D4627554F42CAE7065BF6B88
 magnet:?xt=urn:btih:CFE652D1B7EB81DA7E6FF8C10EAF265F4EB56410
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ magnet:?xt=urn:btih:CFE652D1B7EB81DA7E6FF8C10EAF265F4EB56410
 ```bash
 magnet:?xt=urn:btih:0E282DEC7C802127D6E7088A6BDB908FB30066C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

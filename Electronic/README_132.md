@@ -22,6 +22,8 @@ VA - Trance Universe Vol.01 (2019) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:DB73E9DDAFE8D2EEE425B300D0F8748B6D6DB163
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Trance The Annual 2020 (2019) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:DA22FFC17732DA59959E9CA676124234CC6A66CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Jo Berger Myhre & Olafur Bjorn Olafsson (Jo Berger Myhre & Ólafur Björn Ólafs
 magnet:?xt=urn:btih:0A3275F148159C9A3B877D36C078F61408804891
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Frankmusik - Day Break (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synt
 ```bash
 magnet:?xt=urn:btih:D07ED3118A8B266876EA2E296350A325A56C18E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Alter Ego Records: Best Of (2019) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:A71A16FB2EF60EDBE5DDE8F815E76A2AE316EA9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Jo Berger Myhre & Olafur Bjorn Olafsson (Jo Berger Myhre & Ólafur Björn Ólafs
 ```bash
 magnet:?xt=urn:btih:FA71C8452504FEA0C66DE6FF7F82D17C84F78F68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Planet Boelex - Discography 12 Release (2006-2020) Monotonik, Soft Phase [FLAC|L
 magnet:?xt=urn:btih:AC777244AFCA7C39E667E19FA4C338529DBCAFD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ KiLN (Waterwheel, Fibreforms) - Discography 16 Releases (1997-2020) Thalassa, Gh
 ```bash
 magnet:?xt=urn:btih:55B190FDF72C45509A15F5C15C824EB62FD16165
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Fejka - Hiraeth (2022) LP [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno,
 magnet:?xt=urn:btih:E7D68B5E2750CD4E78EFA26DDC59549EFF4AA51B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - ADE Inspirations (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, M
 ```bash
 magnet:?xt=urn:btih:934A59473C9B65B5974FFA61E69B4CED574EAD67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Marsh - Lailonie (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno, D
 magnet:?xt=urn:btih:FDFEDCA89310814F6D29AC42D3BFC9A77C80168E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Feeling Relaxed Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:36BCC31486048EDCE4C95B877BC08A0F6A2BA4EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Monstercat - Best of 2016 (2016) [MP3|320 Kbps] <Electro, House, Glitch Hop, Dru
 magnet:?xt=urn:btih:6A2C2FD7BEF9B53E47121803DF1C661BEF38D58C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Oskar Sala - Discography 15 Releases (1961-2016) Erdenklang, Fax +49-69/450464 [
 ```bash
 magnet:?xt=urn:btih:2649063E1CE0111180F68706E8A16BE6FA223233
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ StereOMantra - Observatory (2016) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Ambie
 magnet:?xt=urn:btih:07DC6DD5CB6FC457A3E1B32108414DCF1B0513FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - Press Play Vol. 3 (Mixed By Susana) (2015) [MP3|320 кб/с] <Trance, Vocal
 ```bash
 magnet:?xt=urn:btih:2F6099F0484319387FCEC3DF9962ECAE06D77985
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Philtron - None (1997) [FLAC|Lossless|image + .cue] <Synth-Pop>
 magnet:?xt=urn:btih:CAB87AE7ACE22A23865667AF8831B956C8DA6B09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Wolves And Horses - Discography 9 Releases (2015-2018) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:EF78DA68FD23D6EB0D3886323E21A60518D81C9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ VA - Vocal House Essentials (2021) [FLAC|Lossless|WEB-DL|tracks] <House>
 magnet:?xt=urn:btih:45B33870327DA3B6642723766F622331F1B2B0CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ VA - Remembering the 90s: Best Hits Remixed (2018) [MP3|320 Kbps] <Progressive H
 ```bash
 magnet:?xt=urn:btih:B266935E78CD950DBBFDFE87597B2DEBA9565778
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ VA - A Lovely Connection Chilling Music (2019) [MP3|320 Kbps] <Balearic, Downtem
 magnet:?xt=urn:btih:0F25F1CB5D1F3F379A30B3F73CC8CD40129B4A42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ Jyl - Jyl (1984) LP [MP3|320 Kbps] <Electronic, New Wave, Synth-pop, Electro>
 ```bash
 magnet:?xt=urn:btih:3420C47D5BB5759F586D303CC9416D95F7946084
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ VA - Underground Trance Essentials Vol. 13 (2019) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:0B6ECC0D76ECB88779FFA109CA35D21E198CF77C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ VA - Utopia (2017) Rebellion der Traumer [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 ```bash
 magnet:?xt=urn:btih:C042F38E4F41580106730E17EF6F04A5309FC751
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ Experimental Products - Prototype (1982) LP [MP3|320 Kbps] <Electronic, Minimal,
 magnet:?xt=urn:btih:5E2890F54AA41D8C8CE0EC609652BD1F135E0516
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ VA - Utopia II (2018) Rebellion der Traumer [FLAC|Lossless|WEB-DL|tracks] <Melod
 ```bash
 magnet:?xt=urn:btih:177BCBCFF93B7038CDF974CB064B4DF2BCE03F0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ Way of the Hunter (2022) [Ru/Multi] (1.28a/dlc) License GOG [Elite Edition]
 magnet:?xt=urn:btih:AC15DD9460EA2E31A906F19D1662D48C341AF0E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Monster Energy Supercross 25 - The Official Video Game представляет 
 ```bash
 magnet:?xt=urn:btih:B255813F609CB391FCD1C8C574D722869B8DA15D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ PGA Tour 2K23 (2022) [Multi] (1.0) Scene Rune
 magnet:?xt=urn:btih:90C8E9EE5E341811699B91012A68F1F409420E6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Session: Skate Sim (2022) [Ru/Multi] (1.0.6.31/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:467497FF0FEA01F7931A8B97B884DD1D4A091E99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ JDM: Japanese Drift Master сочетает в себе реалистичную
 magnet:?xt=urn:btih:51D01F356EF173C7CB2B6845AC1F7CA8A9773D3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Way of the Hunter (2022) [Ru/Multi] (1.28/dlc) Repack FitGirl [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:6105221F156C11A189FD47AE690A4E8902A35B54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Tennis Manager 25 ставит геймера во главе теннисной
 magnet:?xt=urn:btih:4833617D2727AFACC761F886ECA4FB63BB966709
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Steep (2016) [Ru/Multi] (1.23.7640008/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F51AAAEE2090816844F6CACDA47F94CF01A04B49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Tony Hawk's Pro Skater 3 + 4 (2025) [Multi] (Build 18871623/dlc) Scene Rune
 magnet:?xt=urn:btih:C1175485ACC042A713F3EB3E3B141BBAD654E9F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Tony Hawk's Pro Skater 3 + 4 (2025) [Multi] (Build 18871623/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:BFAD6EE8616E6AC4296B97CC1D67364878BBA0F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Lonely Mountains: Snow Riders (2025) [Ru/Multi] (1.2.101/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:85AB2FFCE694D910FDF67C77781580B02F56F632
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ WWE 2K25 представляет вам непревзойденный сост
 ```bash
 magnet:?xt=urn:btih:91B2533B39232F16A93F24E013CB9EE2B4BC18A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ theHunter: Call of the Wild – наиболее реалистичный на �
 magnet:?xt=urn:btih:C4B508A2DE7F33605AC1343AF262BAA51AB65457
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ theHunter: Call of the Wild – наиболее реалистичный на �
 ```bash
 magnet:?xt=urn:btih:791EE4BE9504A9F2F3F6A660B2EF28D73B107164
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Way of the Hunter (2022) [Ru/Multi] (1.27/dlc) Scene Rune [Elite Edition]
 magnet:?xt=urn:btih:69FE0A0486CF0BA65F9647B461A3684014BA788D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Way of the Hunter (2022) [Ru/Multi] (1.27/dlc) Repack seleZen [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:CA6769B3098B8262C07A1B8CDF88838ED389E915
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ Golf With Your Friends (2020) [Ru/Multi] (19.981700/dlc) License GOG
 magnet:?xt=urn:btih:586EAB9C84732B7EBE4AB96809DDFD3C0AC32FF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Tennis Manager 25 ставит геймера во главе теннисной
 ```bash
 magnet:?xt=urn:btih:D9E5321998BA9C37C4393726192D5E457A124932
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ JDM: Japanese Drift Master сочетает в себе реалистичную
 magnet:?xt=urn:btih:3B4A14B9DC65B17B215952A34C2D5BD72BAC3C1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ We Are Football 2024 (2024) [Multi] (1.4.0.18237532) License GOG
 ```bash
 magnet:?xt=urn:btih:530852320995D0990E1382A9B6CDBDC4D6C8E085
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ Shredders (2022) [Ru/Multi] (13234/dlc) Repack Let'sРlay [540INDY Edition]
 magnet:?xt=urn:btih:00F7E1F4C37082B2635A0974DCF9C50970D103F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ Laundry & Supermarket Simulator / Laundry Simulator: PowerWash It! (2025) [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:0B69D766A44B5E7FD0E8EB258B63564F721F84DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ Ultimate Fishing Simulator 2 (2022) [Ru/Multi] (1.25.05.09.3975) Repack FitGirl
 magnet:?xt=urn:btih:C271550D6AC189B74B42D94AFF1BD930C3A7C89D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ Ultimate Fishing Simulator 2 (2022) [Ru/Multi] (1.25.05.09.3975) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:6AD0706264776ABBAF360F9187DEEA45F3879A8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ theHunter Call of the Wild (2017) [Ru/Multi] (2989309/dlc) Repack Let'sРlay [Ul
 magnet:?xt=urn:btih:BF87B692CE3E4C5ECEA574F115E824E0346E3D88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Sledders (2023) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E5D4B9F6B96B12EB94E093671B089D254F530F9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

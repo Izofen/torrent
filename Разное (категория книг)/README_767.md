@@ -1,3 +1,29 @@
+###  Публикация: 1484642   (1005946) от 21.07.2021
+
+Е. Поселянин | Царице моя Преблагая. Богоматерь (2012) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Усердное почитание верующими Богоматери началось ещё при Её жизни. «Радуйтесь! Я с вами во все дни!» — сказала Она, и это обещание быть помощницей и заступницей христиан Пресвятая Богородица исполняет и по сей день, став нашей небесной Матерью. Труд Евгения Поселянина «Богоматерь. Полное иллюстрированное описание Её земной жизни и посвящённых Её жизни чудотворных (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9F395C1B574F68EE0C96719A5E66BB844EB4BF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1484448   (1006072) от 19.07.2021
 
 Владимир Древс, Анастасия Вриндавати | Ментальный алхимик. Как получить доступ к подсознанию и обрести уверенность (2021) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:5EB4C334F67215B2DAEDADAC3C2E20943628933D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:5EB4C334F67215B2DAEDADAC3C2E20943628933D
 magnet:?xt=urn:btih:E5077CE125B89BE22C5530B9D1CF95BF6F8C2690
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:E5077CE125B89BE22C5530B9D1CF95BF6F8C2690
 ```bash
 magnet:?xt=urn:btih:90358F3C2974C8FB55F33C8F2A0A935169A85276
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:90358F3C2974C8FB55F33C8F2A0A935169A85276
 magnet:?xt=urn:btih:8CD2FD05415BF2F060220C5E90983580C6D082C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:8CD2FD05415BF2F060220C5E90983580C6D082C1
 ```bash
 magnet:?xt=urn:btih:46A6C270D3B04C27FC1BE67C58CE13B796B26273
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:46A6C270D3B04C27FC1BE67C58CE13B796B26273
 magnet:?xt=urn:btih:138A4DAC38110193B50B91E4344EA4823120007C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:138A4DAC38110193B50B91E4344EA4823120007C
 ```bash
 magnet:?xt=urn:btih:814EBE405AC8969DCAB5F81723B1481604E2F8B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:814EBE405AC8969DCAB5F81723B1481604E2F8B2
 magnet:?xt=urn:btih:59FC6C8A8B345B7F9B26F9F26C2B5F8FEFF12842
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:59FC6C8A8B345B7F9B26F9F26C2B5F8FEFF12842
 ```bash
 magnet:?xt=urn:btih:02AC32189CF021320C81EBC73859049D37229350
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:02AC32189CF021320C81EBC73859049D37229350
 magnet:?xt=urn:btih:705EADC2F438E9D4FF8706EBB74A1199AAA9AC06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:705EADC2F438E9D4FF8706EBB74A1199AAA9AC06
 ```bash
 magnet:?xt=urn:btih:7FEA9B5A8EDECF3B9A2FEC6A4AD8BDFF5E4F4A21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:7FEA9B5A8EDECF3B9A2FEC6A4AD8BDFF5E4F4A21
 magnet:?xt=urn:btih:EA467DFA7AF63B7F36859654C8BD22E2D4C977BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:EA467DFA7AF63B7F36859654C8BD22E2D4C977BD
 magnet:?xt=urn:btih:4E1A413378E6C19F509F2289336CB3F7D58457CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +392,8 @@ magnet:?xt=urn:btih:4E1A413378E6C19F509F2289336CB3F7D58457CF
 magnet:?xt=urn:btih:2B631F328F87A8A55899B6F99CFEF6CC33559573
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:2B631F328F87A8A55899B6F99CFEF6CC33559573
 ```bash
 magnet:?xt=urn:btih:564AA1E80E2D425D76595AF63D1C375EA4891E08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +445,8 @@ magnet:?xt=urn:btih:564AA1E80E2D425D76595AF63D1C375EA4891E08
 magnet:?xt=urn:btih:EC27C2C8109B21E988EDB97AAF77E74C8E2367BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:EC27C2C8109B21E988EDB97AAF77E74C8E2367BE
 ```bash
 magnet:?xt=urn:btih:D44419DA3A7A84A7423DE66C4A477560FFBCEE2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +498,8 @@ magnet:?xt=urn:btih:D44419DA3A7A84A7423DE66C4A477560FFBCEE2A
 magnet:?xt=urn:btih:9E9769916CB95AE22AE7C77747EFF1A1B1B4DA19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +524,8 @@ magnet:?xt=urn:btih:9E9769916CB95AE22AE7C77747EFF1A1B1B4DA19
 ```bash
 magnet:?xt=urn:btih:FD131E77733B0526291CDE51814F4A4E32802055
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +553,8 @@ magnet:?xt=urn:btih:FD131E77733B0526291CDE51814F4A4E32802055
 magnet:?xt=urn:btih:13F28CAC668FC4D88A99A4FA364119C52E03F02C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +579,8 @@ magnet:?xt=urn:btih:13F28CAC668FC4D88A99A4FA364119C52E03F02C
 magnet:?xt=urn:btih:24BEBFC4E536C31C553556BA3B8B666159211E61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:24BEBFC4E536C31C553556BA3B8B666159211E61
 ```bash
 magnet:?xt=urn:btih:0AFA72B5AD94B49A7D230FBB7F64AE39D56D715D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +633,8 @@ magnet:?xt=urn:btih:0AFA72B5AD94B49A7D230FBB7F64AE39D56D715D
 magnet:?xt=urn:btih:36970321A007E04F513E138518BE4A867B8C18CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +660,8 @@ magnet:?xt=urn:btih:36970321A007E04F513E138518BE4A867B8C18CD
 ```bash
 magnet:?xt=urn:btih:87FADA1C4FB5DD45450779809E165483617A2D75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,31 +689,7 @@ magnet:?xt=urn:btih:87FADA1C4FB5DD45450779809E165483617A2D75
 magnet:?xt=urn:btih:5603A4B73D0B97A2135D221D1A3B87E398C8BE81
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481581   (1008176) от 04.07.2021
-
-Иеромонах Киприан (сост.) | Ищите Царствия Божия (2003) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008176.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге собраны проповеди, наставления, духовные стихи приснопоминаемого отца Валентина Мордасова († 19.07.1998), а также воспоминания о нём его духовных чад.
-
-Да упокоит Всеблагой Господь душу праведника в вечных Своих селениях!Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43514735ED2D39829E1207A068784F2ABD6437E3
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

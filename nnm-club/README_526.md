@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:2B339FE10EB630FEA471EFC72F508532229EBFC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Manowar - Kings of Metal (1988)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Heavy, Pow
 ```bash
 magnet:?xt=urn:btih:E52DB2772D1ED42A8E523CA506A0F3D2838866EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Magic Finger Project - The All Time Greatest Synthesizer Hits Now And Forever, V
 magnet:?xt=urn:btih:1CE5051264891497ABC94AD44D093B0FE3A18BF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:1CE5051264891497ABC94AD44D093B0FE3A18BF6
 magnet:?xt=urn:btih:3B78E798C3B061A1819D66F50DED08FB5E053D81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Photo Studio — не просто приложение для редактир�
 ```bash
 magnet:?xt=urn:btih:6E6BF34932AF70355797C9108BEC0E65AA4DCA87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Pola & Bryson - Overgrown (2025) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 magnet:?xt=urn:btih:2608AEF1B6065FB106187394D2BF3C3FD8B42A3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:2608AEF1B6065FB106187394D2BF3C3FD8B42A3D
 ```bash
 magnet:?xt=urn:btih:70AFE5B04FF0E9C1FBBC8F6FEB0D77669F0B48F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:70AFE5B04FF0E9C1FBBC8F6FEB0D77669F0B48F4
 magnet:?xt=urn:btih:5B1A6EA0AEBF8D44584CCCDFA44EFD883011ABFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:5B1A6EA0AEBF8D44584CCCDFA44EFD883011ABFE
 ```bash
 magnet:?xt=urn:btih:6D1240A9808CA5083BAC94CC66FFAF98005C55E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:6D1240A9808CA5083BAC94CC66FFAF98005C55E3
 magnet:?xt=urn:btih:0B97376854DFFF4307BCD60D186CC6C6B6820253
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ Devil May Cry 4 (2015) [Multi] (1.0/dlc) License GOG [Special Edition]
 ```bash
 magnet:?xt=urn:btih:6DCED5EA851BC3E7E89D665401417D2E913D56CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:6DCED5EA851BC3E7E89D665401417D2E913D56CA
 magnet:?xt=urn:btih:5D49D9070831588C1E3FAC068FF7F0F8C8B01401
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ FBReader Premium v3.8.15 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C2EF4D5EDF83555C885876A033CA95201C219A93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:C2EF4D5EDF83555C885876A033CA95201C219A93
 magnet:?xt=urn:btih:A9EEFA052677C995D3B54B482FC48007233A87CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ Steinberg - Cubase Pro 14 14.0.31 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CEAA19489976D62F8C00BFE75A03D73AB0D4DDC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:CEAA19489976D62F8C00BFE75A03D73AB0D4DDC0
 magnet:?xt=urn:btih:7CC974FDF66FC8D92AC318361501E6A7533EA4E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ magnet:?xt=urn:btih:7CC974FDF66FC8D92AC318361501E6A7533EA4E8
 ```bash
 magnet:?xt=urn:btih:0560929F856ECDFDD6141052A81BAA450883855E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:0560929F856ECDFDD6141052A81BAA450883855E
 magnet:?xt=urn:btih:3D5926E6C757ED78F4CEFFA3BC8426CFCB90E731
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ magnet:?xt=urn:btih:3D5926E6C757ED78F4CEFFA3BC8426CFCB90E731
 ```bash
 magnet:?xt=urn:btih:26D8342DC9FD61650F5508B68636163C3F2B80B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ V.A. - ZYX Italo Disco Spacesynth Collection 11 (2025) [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:83300A99AFFD31090523C58DC1596CD3D26E4DB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +556,8 @@ magnet:?xt=urn:btih:83300A99AFFD31090523C58DC1596CD3D26E4DB4
 ```bash
 magnet:?xt=urn:btih:AC5F975A39C22CDDFD618C8393AE29DEFE5B730D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ V.A. - Cafe del Mar 45th Anniversary (2025) [FLAC|Lossless|WEB-DL|tracks] <Chill
 magnet:?xt=urn:btih:2114F54DB2B4D8448FD7A94A0B0195AB9782162A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ magnet:?xt=urn:btih:2114F54DB2B4D8448FD7A94A0B0195AB9782162A
 ```bash
 magnet:?xt=urn:btih:9591F78AA3AECD0DDCD584DF48D17EFA55249DA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +638,8 @@ magnet:?xt=urn:btih:9591F78AA3AECD0DDCD584DF48D17EFA55249DA0
 magnet:?xt=urn:btih:6CEA8052C9AEB9D395BE1AA5F69C4DD216723EC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:6CEA8052C9AEB9D395BE1AA5F69C4DD216723EC7
 magnet:?xt=urn:btih:8CB4224C57A3CB1FE5706AC515B1A05946F58E75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ Visual Studio — это мощное средство разработчика,
 ```bash
 magnet:?xt=urn:btih:8EB3C39C5426168BB325B630F334796BEDD83948
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Richard Sanderson - Anytime At All (1990) [APE|Lossless|image + .cue] <Europop, 
 magnet:?xt=urn:btih:698EB5C823605675079CCAE980984CAA789CE965
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ VA - BRAVO Hits 84 (2014) [FLAC|Lossless|WEB-DL]<Pop, Top 40>
 ```bash
 magnet:?xt=urn:btih:578E3B7C81863ABBFB29B3DC6C1CED3360D088AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -88,6 +92,8 @@ James Morrison - The Awakening (2011) [FLAC|Lossless]<Pop, Soft Rock, Soul>
 magnet:?xt=urn:btih:A84DEDD571985D252AB0770483C2D0D0DD28043E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +127,8 @@ Jamie Grace - Ready to Fly (2014) [FLAC|Lossless]<Pop>
 magnet:?xt=urn:btih:404ABB60F13152AA3D44A586709FA9E09CFC396F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +155,8 @@ VA - Summer Break 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:F0333A89A3C1F1FD9C47E66EDDC29CE1D7544E87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +191,8 @@ Lea Michele - Louder (2014) [FLAC|Lossless]<Pop>
 magnet:?xt=urn:btih:88CF128EE1A6FFFFA951DAE18CBC92EDF825A633
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +219,8 @@ VA - Italian Best Hits (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:A734CF6B099792E042AB71804C1D770380C70751
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +249,8 @@ Halsey - If I Can’t Have Love, I Want Power (Target Exclusive) (2021) [FLAC 2.
 magnet:?xt=urn:btih:2134632F541CA88BF590CDFAA3B462DC3839E22C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +277,8 @@ Wax - Magnetic Heaven (1986) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Pop Rock, 
 ```bash
 magnet:?xt=urn:btih:918AC800E3B72FA53F27D652573DA4650C01597E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +307,8 @@ VA - Die Hit-Giganten - Sommerhits (2007) 2CD, Compilation [FLAC|Lossless|tracks
 magnet:?xt=urn:btih:5F6F0C185F9CF6AFAE3C46EC426C4DAB72EB566D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +336,8 @@ Wax - A Hundred Thousand In Fresh Notes (1989) [FLAC|Lossless|WEB-DL|tracks] <Ne
 magnet:?xt=urn:btih:A05454FFACBD57D6531A0E40B432E8E8C5EFDB23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +364,8 @@ The Twins - Hold On To Your Dreams (1987) Remastered, 2003, Passion Factory Reco
 ```bash
 magnet:?xt=urn:btih:B5FCE22047611FD339D924FA0CD41B7CCC8CD4D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +400,8 @@ Indila - Mini World (2014) /Deluxe Edition/ [FLAC|Lossless]<Pop>
 magnet:?xt=urn:btih:6CE63FC3C0DC3A5078F9342393333A6DEF0BB547
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +429,8 @@ Alizee - 5 (2013) [FLAC|Lossless]<Pop>
 magnet:?xt=urn:btih:0FF3FFD0C4EE5A3F313CD433B321CBB538A1AA82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +455,8 @@ ABBA - Still Have Faith In You, Don't Shut Me Down (2021) [FLAC 2.0|96/24|tracks
 ```bash
 magnet:?xt=urn:btih:74D202BFC3CA63B24B9E865904AA04B456B851F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +485,8 @@ BRAVO Hits представляет собой серию музыкальных
 magnet:?xt=urn:btih:493ACA5319E6FD657CF87B541AB2622C45FD2522
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +510,8 @@ East 17 - Around the World: The Journey so Far (1996) [FLAC|Lossless]<Pop, Dance
 ```bash
 magnet:?xt=urn:btih:F28757C1087125BB5F71B34A5EAE4B9FEE513146
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +540,8 @@ VA - Die Hit-Giganten: Best of Disco (2013) Box Set, 3CD [FLAC|Lossless|image + 
 magnet:?xt=urn:btih:B89879A135FB66087933FA1A38E3CA8D84E5FFA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +568,8 @@ Eighth Wonder - Fearless (1988) Reissue, 2010, Cherry Pop [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:D2EE78715831661BDBF62BE14F1DFB114FD9B633
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +599,8 @@ Night Terrors of 1927 - Everything's Coming Up Roses (2015) [FLAC|Lossless]<Indi
 magnet:?xt=urn:btih:34A6F2476A6EF923F8B211BF264F29D42F646D68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +627,8 @@ VA - Die Hit-Giganten - Partyklassiker (2005) 2CD, Compilation [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:8523C05AC6F6481588921C2CFB58874EF9CDC953
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +657,8 @@ Gen X (Generation X) - Kiss Me Deadly (1981) Reissue, 2005, EMI [FLAC|Lossless|i
 magnet:?xt=urn:btih:F58A6936617EDA7A51BEC9D89224D74947CA1D64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +685,8 @@ Johnny Hates Jazz - Tall Stories (1991) [FLAC|Lossless|image + .cue] <Pop Rock, 
 ```bash
 magnet:?xt=urn:btih:FBB5BE704569E9C4D24A2EF2A69578EF09D964DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -675,6 +721,8 @@ Chris De Burgh - The Ultimate Collection (2CD) (2005) [FLAC|Lossless]<Pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -701,6 +749,8 @@ Engelbert Humperdinck - Forgotten Promises [1967 – 1975] (2021) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:F1C3305A14E3729668FCA8F93820343A85E4DAD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -734,6 +784,8 @@ VA - 10 Love Stars (1993) /20 Original Recordings/[FLAC|Lossless]<Pop, Rock, Bal
 ```bash
 magnet:?xt=urn:btih:6E6E9E16EA450FC136D35FB8B4AA1E4771F2494C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

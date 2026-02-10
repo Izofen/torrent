@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3CB1D61D1EDC461547F4D71F3E86AAFC634B0640
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:3CB1D61D1EDC461547F4D71F3E86AAFC634B0640
 ```bash
 magnet:?xt=urn:btih:30107D4C5900C3CB27B0E512B8F6B5292076DC2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Xtrah & Noisia - Gravitas EP (2015) [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:9009F67CDC06C20C8D463712AAE73AD0C9BE2115
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:9009F67CDC06C20C8D463712AAE73AD0C9BE2115
 ```bash
 magnet:?xt=urn:btih:A54F18785B38AACBEBC43A9373EB2F451406611C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Bryan Ferry - Boys and Girls (1985) Remastered, 2015, Virgin [FLAC|image + .cue]
 magnet:?xt=urn:btih:258DB0890231B041E29D03C00C2D8590F1FFC000
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:258DB0890231B041E29D03C00C2D8590F1FFC000
 ```bash
 magnet:?xt=urn:btih:505B84C741F8A7444168EF2F6CB5BA249F94ECB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ PowerPhotos также поддерживает (   Читать дальше..
 magnet:?xt=urn:btih:C0F80688B5A7D4BC8C4954749C6B4447147301B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:C0F80688B5A7D4BC8C4954749C6B4447147301B5
 ```bash
 magnet:?xt=urn:btih:4089473EB2D53E531CFA77718878196B8D5ECC26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:4089473EB2D53E531CFA77718878196B8D5ECC26
 magnet:?xt=urn:btih:3C80F8402344531AED1231C4943F9E60E18E744B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:3C80F8402344531AED1231C4943F9E60E18E744B
 ```bash
 magnet:?xt=urn:btih:75036AE6052DB90BBF5419BF5167A24E61764C81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ Rockwell - Obsolete Medium LP (2015) [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:AD1D5AEDE08A3021FD24DD8297113D7E01ED09BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:AD1D5AEDE08A3021FD24DD8297113D7E01ED09BF
 magnet:?xt=urn:btih:59F6765CBE472A1227C82A2D29AF09648E316A3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:59F6765CBE472A1227C82A2D29AF09648E316A3C
 ```bash
 magnet:?xt=urn:btih:E9D65223A988E22297B19FB86FA8E275DEC3D653
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ VA - Eatbrain Pres. Mirror Universe 1 (2015) [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:10D77C596517F044D32EDD555AB8FEC89324A9BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ Kruder & Dorfmeister - Discography 18 Releases (1993-2020) Studio !K7, G-Stone [
 ```bash
 magnet:?xt=urn:btih:CFE92A39D9181F09F33C294B1D13103900A3D5ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ VA - Christmas Party 2015-2016 (2015) [MP3|320 кб/с]<Progressive House>
 magnet:?xt=urn:btih:549DBE7B607C45157CACD0CEB670C451791EFDD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +457,8 @@ magnet:?xt=urn:btih:549DBE7B607C45157CACD0CEB670C451791EFDD6
 ```bash
 magnet:?xt=urn:btih:93011288D1A71E3AE318CE9FC8F5908719C9C3A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +484,8 @@ magnet:?xt=urn:btih:93011288D1A71E3AE318CE9FC8F5908719C9C3A9
 magnet:?xt=urn:btih:D93B38F323A098679576496028A45ABBB0176614
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ magnet:?xt=urn:btih:D93B38F323A098679576496028A45ABBB0176614
 ```bash
 magnet:?xt=urn:btih:97962C8AB40533BA262537FE8D87C2FFA2810677
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ Kingston Wall - Kingston Wall II (1993) Japanese Edition, Zero Corparation [FLAC
 magnet:?xt=urn:btih:334B409F4F38A975C09845F92E57DE4C9DFA1146
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ magnet:?xt=urn:btih:334B409F4F38A975C09845F92E57DE4C9DFA1146
 ```bash
 magnet:?xt=urn:btih:1F93A78B19C21E8A9E8FC49F89D65D5838789631
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +594,8 @@ magnet:?xt=urn:btih:1F93A78B19C21E8A9E8FC49F89D65D5838789631
 magnet:?xt=urn:btih:EF2E5375E208FB022F5CA4D9EED0E4433B1F5785
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +622,8 @@ Bangalore Choir - Metaphor (2012) [FLAC|image+.cue]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C0D72F2F7CAD57EC2A36C8F79473AF74232EEB24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +652,8 @@ Invold - Starfall EP (2015) [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:21278AF1BBE32DEF36BD7290DAF0930568BFEA61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +679,8 @@ Udemy, Dr. Ryan Ahmed и др. | Программирование на Python 3.
 ```bash
 magnet:?xt=urn:btih:7DD1A6935E2A1A5F7551C90C5D7FB8F5CDF6B899
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -658,6 +708,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:6D51104469F6F4AA835D6DE7FB71DDFE69A9C9CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

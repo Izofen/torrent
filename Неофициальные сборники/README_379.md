@@ -1,3 +1,32 @@
+###  Публикация: 802361   (626665) от 06.07.2014
+
+VA - Alterportal HITS 14 Vol. 70 (June (2014)) [MP3|128-320 кб/с] <Alternative, Metal, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. XtortYa - Not Mine
+02. Scare Don't Fear - City Of Skeletons
+03. Man Made Machine - X-Rated
+04. The Chant - Falling Kind(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 02:11:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6142C904AB2167C4856543D9DB7343213FEA787D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 521652   (626696) от 11.07.2012
 
 VA - Панк-Рок в Авто (2012) [MP3|294-320 кб/с]<Punk, Punk Rock>
@@ -28,6 +57,8 @@ VA - Панк-Рок в Авто (2012) [MP3|294-320 кб/с]<Punk, Punk Rock>
 magnet:?xt=urn:btih:EC1EEA6561EDEC56843C25C31DFB1ACB638002B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +85,8 @@ VA - 50 Best of Summer Workout Hits (2016) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:B678F11951E3DFAE6B419A256623AB3A4007F06E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +115,8 @@ VA - Club Dance Ambience vol.78 (2016) [MP3|320 Kbps] <House, Electro House, Pro
 magnet:?xt=urn:btih:8E6684DBF6670B76119067CEAACC57C4D50D9F2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +143,8 @@ VA - Ibiza Clubbing Missing July (2016) [MP3|320 Kbps] <House, Electro House, Fu
 ```bash
 magnet:?xt=urn:btih:E41B0BE59BCE8F00A150EF9D71C8A41472D7A821
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +173,8 @@ VA - Believe In Trance  Music (2016) [MP3|320 Kbps] <Trance, Uplifting Trance>
 magnet:?xt=urn:btih:D360AF6B321DD7009B96C5A3770E37F325D7CD74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +201,8 @@ VA - Auto Hits (2017) [MP3|320 Kbps] <Pop, Trance, Disco, House, Electro, Euroda
 ```bash
 magnet:?xt=urn:btih:8DEF91737A165BE35C53CE65077ED35178C0AEB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +231,8 @@ VA - Italo Disco Vol.10 (2017) [MP3|320 Kbps] <Italo Disco>
 magnet:?xt=urn:btih:A601E26160EE54809FC4F3B647A6C53F639E6010
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +260,8 @@ VA - Дискотека Казанова Старые Песни По Новом
 magnet:?xt=urn:btih:ABF59A5811BEF1112F6C2F866B960AD1BE11DA32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +288,8 @@ VA - Record Russian Mix (2015) [MP3|320 кб/с]<Club House, Dance, Pop, House>
 ```bash
 magnet:?xt=urn:btih:083425651BECE6792BBEB414CFC24B61B2432CAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +324,8 @@ CD 1. Время звучания: 01:18:27
 magnet:?xt=urn:btih:B36DB1997D244B21AB25D342D1D2AFD61A168DEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +352,8 @@ VA - Beautiful Rock Ballads Vol.01-40 (2019) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:72CF8AAD752669DD2B504596A42786629EBB4050
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +382,8 @@ Amethystium - Odonata (2001):
 magnet:?xt=urn:btih:CE9AE8CF0F0F6156D3140D83C44B31C2B155EA9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +411,8 @@ VA - Летние хиты за рулем. Выпуск 50/50 (2015) [MP3|256 �
 magnet:?xt=urn:btih:182BAD5DD25E633F33A846FA847574EB5CD02041
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +439,8 @@ VA - Italo & Space Vol.39 (2017) [MP3|320 Kbps] <Italo Disco, Spacesynth, Eurobe
 ```bash
 magnet:?xt=urn:btih:19087A4B8785D1B191DD3307AFE562AD4FD1D3F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +472,8 @@ Hits of My Soul - сборник электронной и инструмент�
 magnet:?xt=urn:btih:CA9801C53C0BB603E71CDFA73B1A9ABDCFAB4C9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +500,8 @@ VA - Relax & Massage (2018) [MP3|256-320 Kbps] <Relax, Massage, New Age>
 ```bash
 magnet:?xt=urn:btih:77437FC715D550B0ADDB83DAC20C1C814130BDDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +530,8 @@ VA - Дискотека Казанова Старые Песни По Новом
 magnet:?xt=urn:btih:EA562AAE9F23E4573240173093A088C8C71D78CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +558,8 @@ VA - Лето в кайф. Часть 3 (2015) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:5444EAFF421F5CD7E758139D3F018280A42A14EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +588,8 @@ VA - Super Sommer Hits (2018) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:7E5380E0514BB98B85BCBF9D93787BBE64F6D3DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +616,8 @@ VA - When My Day Comes (2019) [MP3|320 Kbps] <Rock Blues>
 ```bash
 magnet:?xt=urn:btih:0BB8005FFD336E9BE5E007520E51B7EA85E5837B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +646,8 @@ VA - Душевная музыка для дорожных приключени�
 magnet:?xt=urn:btih:3968338A28CB6EC4E5847A19B1B9CF9764F405D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +674,8 @@ VA - Чартова дюжина: Итоги 2015 ("Наше радио" - ре�
 ```bash
 magnet:?xt=urn:btih:536C0B5A5968687281A423367CA941759B135A63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +704,8 @@ VA - Шансон на лето 2 (2015) [MP3|256 кб/с]<Шансон>
 magnet:?xt=urn:btih:D0959811108C73323D5586A9E02165F1C7F5B457
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +732,8 @@ VA - German Top 50 Party Schlager Charts 04.06.2018 (2018) [MP3|320 Kbps] <Pop, 
 ```bash
 magnet:?xt=urn:btih:04BD6F9F7198E4A8D3D688232F72167BA75A3C28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -685,32 +762,7 @@ VA - Top 50 Production (2018) [MP3|320 Kbps] <Tech House>
 magnet:?xt=urn:btih:24896EAF80B7FC6341EBC3F6EE91A1D73C6F533F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229281   (628214) от 05.06.2018
-
-VA - Lounge Flow: Modern Chillout Selection (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deadly Ride - Should You (Whell Version)
-02. Momylove - Technical Love (Sea Original)
-03. Hiroky Samoto - Counterclockwise (Sine Swap)
-04. Ephemeral - Frogs Rain (Retro Day)(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, ElectronicПродолжительность: 01:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72B22F6D02FE7895160AF5D210F9E5ED3F26FC5F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

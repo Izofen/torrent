@@ -19,6 +19,8 @@ Detective Club 2: Gallery of Shadows / Детективный клуб 2: Гал
 magnet:?xt=urn:btih:9F3F08200DF8FB9FAFA9AE2C79AA6ACBB3091931
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28324) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:E563ABD0A6ABC0710C02ADC9AE99DAF2C1E1257F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Enshrouded - увлекательная игра, действие которо�
 magnet:?xt=urn:btih:446B2F73C26D7360DCC35325F8D51B2F0A4EB3B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ MechWarrior 5: Mercenaries (2019) [Ru/Multi] (1.10.370/dlc) Repack FitGirl [Inne
 ```bash
 magnet:?xt=urn:btih:6BC4FBCF83899E92367FEB0EFF4E11A5A60029A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Cronos: The New Dawn - это новое слово в жанре survival horro
 magnet:?xt=urn:btih:3960265E392AF5B998204C74DB2873E75138F340
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0/dlc) Repack seleZe
 ```bash
 magnet:?xt=urn:btih:1BFEAF8213C5D5413DB33670688972B2C9931B05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ KELDER (2025) [Ru/Multi] (1.0) Scene DOGE
 magnet:?xt=urn:btih:4E5B57F087BAA0644070B4AD123B7DDFE4D4D2A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28324) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:227F16073CDC4AF03CCFCC0C8A7ECEF59A32BE24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ PowerSlave Exhumed – это полноценный порт классичес
 magnet:?xt=urn:btih:D1AA997962EFFD022CD6FD30DBE898FE9A572A65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ SnowRunner (2020) [Ru/Multi] (38.0/dlc) Repack seleZen [Premium Edition]
 ```bash
 magnet:?xt=urn:btih:B9F9C45C121DEBEB2E743A9526E4FA1584A2E941
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Stygian: Outer Gods (2025) [Ru/Multi] (220825) License GOG [Early Access]
 magnet:?xt=urn:btih:3CA1841B8C7FE7971F5B0B0C6A0278A9394AA6A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Valheim - The Bog Witch (2021) [Ru/Multi] (0.221.4) Repack Pioneer [Early Access
 ```bash
 magnet:?xt=urn:btih:60138992E8109604F05E30B53F0ADB067F62B317
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Hordes of Hel - захватывающая игра-рогалик на выжи
 magnet:?xt=urn:btih:009C657C089967EA9E61491645E6F96276FA1848
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Whisker Wanderlust: The Wondrous Journey (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A533357BED678B0DF74A6526AF5117BFD2A7B257
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Central Bank / Центральный Банк (2025) [Ru/Multi] (0.99b) Scene T
 magnet:?xt=urn:btih:A1F554721107E09FAAB6E3775C96BC548022974F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Hollow Knight Silksong (2025) [Ru/Multi] (1.0.28324) Scene FairLight
 ```bash
 magnet:?xt=urn:btih:5C47FD0C3030369FA1883122BBBC55C5C68E3F53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Down in Bermuda (2021) [Ru/Multi] (1.6.3) License GOG
 magnet:?xt=urn:btih:E9F06978E5EB82810BA9ABA090941E8AB569F1B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Cronos: The New Dawn - это новое слово в жанре survival horro
 ```bash
 magnet:?xt=urn:btih:1AD26D302D70A71DDDC43EB3EBDB89885F640A14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Metal Eden – научно-фантастический адреналинов�
 magnet:?xt=urn:btih:F5F8C1130B860064F74982AC266C0C637F0A08EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The Hundred Line: Last Defense Academy (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:948AF9D5037A9847D7FA110A0344A6CE336C537A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Neyyah - приключение Point-and-click с видом от первог�
 magnet:?xt=urn:btih:537817ED23B752ED0D5E15A7554AF0400653A89A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Metal Eden – научно-фантастический адреналинов�
 ```bash
 magnet:?xt=urn:btih:62370F4104700A197D4F8FF7481EB31F44743933
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Otherskin (2025) [Ru/Multi] (Build 19817814) Repack FitGirl
 magnet:?xt=urn:btih:562DF374F5A94912DFCE76E2D9370B9B6EC01456
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Vault of the Void представляет собой колодостроите
 ```bash
 magnet:?xt=urn:btih:BDFDAA689C8AA776E70A77DE6161FE36AB75EFB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Farming Simulator 25  – это увлекательное приключени
 magnet:?xt=urn:btih:8F144A3C5BF6FDF4F2FC81676003244F110E8BA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Lords of the Fallen представляет совершенно новое э�
 ```bash
 magnet:?xt=urn:btih:60A69FCFC33F74D6B010B3979ACCEEF17B5C8AFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

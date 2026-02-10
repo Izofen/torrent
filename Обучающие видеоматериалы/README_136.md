@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:AEC0719D91FC43015F04ED5A1703939BE8DBF319
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Scott Eaton | Anatomy for Artists Week 1-8 (2012) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:9E125118CA896A9B8B21506757F7526A775EFA06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Scott Eaton | Portraiture and Facial Anatomy Week 1-6 (2016) PCRec
 magnet:?xt=urn:btih:CD5D08A0F304BA86AF9A999572649FEFE2ED34A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Axiom Solver - это волюметрический флюид солвер д�
 ```bash
 magnet:?xt=urn:btih:4EEF57BA3A23F51040449AC5B98E1D2B9C51FF5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Thinknetica Pro, Алексей Наумов | Внутреннее устрой
 magnet:?xt=urn:btih:B8EFABA14DD73687302AAD62E0FA56A97989E56A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Rebelway, Nick Chamberlain | 8 Essential Compositing Techniques: Free Webinar (2
 magnet:?xt=urn:btih:82D86957DFB86F0F3B1DA825D9089CFE1AEBAA3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ SideFx, Attila Torok | Sexy Explosions in Houdini 18.5 (2020) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:7A5BD03BC2DC9BC3E5AEA59A3A71AA169309AD78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:7A5BD03BC2DC9BC3E5AEA59A3A71AA169309AD78
 magnet:?xt=urn:btih:0E01E4C47ED10A120C2EAE153462B6B0EA95616B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ Liveclasses, Андрей Козьяков | Adobe Illustrator: Расширен
 ```bash
 magnet:?xt=urn:btih:3DA138C16F98C3103CE825C33986CC089B19B8FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ Udemy, Motion Guru | Complete Modeling & Animating a Drone in Blender 3.0 (2022)
 magnet:?xt=urn:btih:684E58B3337DAFC921C44393928263D84A53F3D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ Rebelway, Urban Bradesko | Meteor in Houdini and Karma (2021) WEB-DL [EN, RU]
 ```bash
 magnet:?xt=urn:btih:08F6140BDFE30F1F6592AF861019CC39E585302E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ TutorPlace, Наталья Терновская | "1С:Управление на
 magnet:?xt=urn:btih:BCD53ED7AF2DB38C20B7C08C649A7881C0DFF0D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:BCD53ED7AF2DB38C20B7C08C649A7881C0DFF0D6
 ```bash
 magnet:?xt=urn:btih:8E92FD78C27EA1882C0D016D0B0C669D20860622
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:8E92FD78C27EA1882C0D016D0B0C669D20860622
 magnet:?xt=urn:btih:5E49939464AE323CFDC5D37659959E076E524857
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:5E49939464AE323CFDC5D37659959E076E524857
 ```bash
 magnet:?xt=urn:btih:BD56B8FC84ADA34685AA6DDABEA4F8C9B30425DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ Max Gor | Работа в системе «1С:Медицина. Больниц�
 magnet:?xt=urn:btih:236D85297322108CAFAF5813E6FA63E256CC3761
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:236D85297322108CAFAF5813E6FA63E256CC3761
 ```bash
 magnet:?xt=urn:btih:3A3DF0A838D77BA4EAE36D75657965BE584A9E32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +477,8 @@ TrueDO, Александра Катайцева | Продвинутая быт�
 magnet:?xt=urn:btih:7AD97C660EAE71A6C3635E915BB52B6521BA8C88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +502,8 @@ TrueDO, Александра Катайцева | Основы бытовой р
 ```bash
 magnet:?xt=urn:btih:32F4BEE53871FF25558FBCA166B3F9CEA7092A76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +529,8 @@ TrueDO, Сергей Дёмкин | Основы работы ручным фр�
 magnet:?xt=urn:btih:A6C267BFAE730B55A334D93D62D230A0B9F945E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ TrueDO, Ольга Танана | Основы кожевенного дела (
 ```bash
 magnet:?xt=urn:btih:2C963D4574994A0D411292EE611CBB04F42E5FE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ TrueDO, Сергей Дёмкин | Основы столярного дела (
 magnet:?xt=urn:btih:AB6BDC4E1E4F7AAF3D0A68D21CB598544C881CEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ TrueDO, Виталий Кудряшов | Основы сварочного де
 ```bash
 magnet:?xt=urn:btih:BFABC6B0F2DE6CEB390BB6984FF0B7CAF5FE3C10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +633,8 @@ TrueDO, Александра Фалендуш | Деревянная игруш�
 magnet:?xt=urn:btih:270B679E85DB6FB33B3AD9CEEE51AFD106032BAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ magnet:?xt=urn:btih:270B679E85DB6FB33B3AD9CEEE51AFD106032BAE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ Wikisound | FL Studio 20 абсолютный профи (2018) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:F66031A11805A5948634AC7F1FB2EDB3F22E0433
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

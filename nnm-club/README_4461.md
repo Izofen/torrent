@@ -19,6 +19,8 @@ Comedy Woman. Новогодний выпуск (2016.12.31) WEB-DL [H.264/720p-
 magnet:?xt=urn:btih:230A230F899A4193A9D2B8DD5564D240D7DDBFDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:230A230F899A4193A9D2B8DD5564D240D7DDBFDA
 ```bash
 magnet:?xt=urn:btih:3933455167D7D0C888459366E046A70CC6CBA9B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:3933455167D7D0C888459366E046A70CC6CBA9B3
 magnet:?xt=urn:btih:34597563BBA04B2ED653063CFB29DDA367FD9585
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ PictureThis - Plant Identification v3.70 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:BF9BA1DB9D50BFC5BE670CCA3C6EEFC5DE95F497
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ VA - Iron Goddess: Experimental (2018) [MP3|320 Kbps] <Ambient, Electronic, Down
 magnet:?xt=urn:btih:6CAE5691E46D32437E2BB3E5D21C9951971442E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:6CAE5691E46D32437E2BB3E5D21C9951971442E7
 ```bash
 magnet:?xt=urn:btih:AA097802944A6C20A95DEF71EAFD203DBC7AA901
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:AA097802944A6C20A95DEF71EAFD203DBC7AA901
 magnet:?xt=urn:btih:69F22D16A0F708F3CEE98EB7882AEB2BF405F5D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:69F22D16A0F708F3CEE98EB7882AEB2BF405F5D8
 ```bash
 magnet:?xt=urn:btih:123DB8F2BB5F0466343489B1D49AAA6D3FBBA3C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:123DB8F2BB5F0466343489B1D49AAA6D3FBBA3C7
 magnet:?xt=urn:btih:CB6DEFD6ACA52F865CC35F7F276D63F177334D23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Selber Machen — немецкий журнал для домашних маст
 ```bash
 magnet:?xt=urn:btih:7E6AB173D8209830EAB8687336CDD0FD3760D0F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:7E6AB173D8209830EAB8687336CDD0FD3760D0F3
 magnet:?xt=urn:btih:08CDB3B01133F7774218F22FB77387E3EE0598F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:08CDB3B01133F7774218F22FB77387E3EE0598F6
 ```bash
 magnet:?xt=urn:btih:DF63E1836A59B8B123BE20617007AC85441C4097
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ The Shapeshifters - Let Loose (2022) Deluxe Edition, 2023, Glitterbox Recordings
 magnet:?xt=urn:btih:EC10AB3CAC5EFB2ECA89DBFEA4E2DC95E46E25A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:EC10AB3CAC5EFB2ECA89DBFEA4E2DC95E46E25A4
 ```bash
 magnet:?xt=urn:btih:FDC59E6B52FF80AC91ECB69FBDE1AEE8DA66731C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:FDC59E6B52FF80AC91ECB69FBDE1AEE8DA66731C
 magnet:?xt=urn:btih:ABD30127B5461BA9705742DF059BE70D724C0240
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:ABD30127B5461BA9705742DF059BE70D724C0240
 ```bash
 magnet:?xt=urn:btih:F6936CF88FAE15F737CB9E7334EB54CC4472E0A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:F6936CF88FAE15F737CB9E7334EB54CC4472E0A3
 magnet:?xt=urn:btih:B61DAB0AF39DBF2C8298E9150C1A4D1EE9BD7212
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:B61DAB0AF39DBF2C8298E9150C1A4D1EE9BD7212
 ```bash
 magnet:?xt=urn:btih:1DF8EC4410BD8FD4D93867596F2562472910C371
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:1DF8EC4410BD8FD4D93867596F2562472910C371
 magnet:?xt=urn:btih:664F0751A3491500BAABBE0FF049D4C8DC66FB44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:664F0751A3491500BAABBE0FF049D4C8DC66FB44
 magnet:?xt=urn:btih:BA22765B6166A228F753283B44A57AD7BED3286D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Kamisama ni Natta hi / The Day I Became a God / День, когда я стал
 ```bash
 magnet:?xt=urn:btih:F0407FB081BD4E9C0297604E940E0A2FA3908B0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ The Shapeshifters - Let Loose (2022) Deluxe Edition, 2023, Glitterbox Recordings
 magnet:?xt=urn:btih:CFA446A81D63E76BB20C915DB4F090D39319D5AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ magnet:?xt=urn:btih:CFA446A81D63E76BB20C915DB4F090D39319D5AA
 magnet:?xt=urn:btih:8CEB6B0894B4BCA7E2BA48C98243855C151424D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ magnet:?xt=urn:btih:8CEB6B0894B4BCA7E2BA48C98243855C151424D2
 magnet:?xt=urn:btih:3E02075AC1981B66C084103D69E844219F4ECF90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ magnet:?xt=urn:btih:3E02075AC1981B66C084103D69E844219F4ECF90
 magnet:?xt=urn:btih:66F61E7BA01F5776209CD16BDDB44121BCBE515A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ magnet:?xt=urn:btih:66F61E7BA01F5776209CD16BDDB44121BCBE515A
 ```bash
 magnet:?xt=urn:btih:7556F7C60ABCD1FDBEDA9FDACBAD6585946567E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

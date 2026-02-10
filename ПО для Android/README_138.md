@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:702B0F85CFE68C414DDFEF033C3C279EA8D3BB44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ AI Music Maker & Cover Songs v1.13 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C50B02767E42F2E0BA71500A210A718548C25A11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ FotoTweak - AI Image Generator v1.0.48 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:937E15772BBA6CFBB7314C7040FFF9B3A4AEB8D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ VRadio - Online Radio App v2.8.10 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C15A5624A449D5F9E00330F6BEF80CFF49F2D09E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ VK Музыка: песни и подкасты v8.6 Mod by VK Equals [Ru/En]
 magnet:?xt=urn:btih:93BA48A7EC4130995018740746827C45133D432A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ OTT Онлайн прямое телевидение, в котором вы н�
 ```bash
 magnet:?xt=urn:btih:2FCC0C1EED43433C3551CD81E613C5822848D00A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ NokoPrint v5.24.8 Mod by derrin [Ru/Multi]
 magnet:?xt=urn:btih:5F663D3A24DE6B7D5BB7AB3F704003B57F7E0146
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Bananastreet: Deep House & EDM v4.1.63 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:4077A7CF0F1BB27312F1071407B5E81FE6E665B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:4077A7CF0F1BB27312F1071407B5E81FE6E665B2
 ```bash
 magnet:?xt=urn:btih:790A0A789F23C60544684C554169D05767E5833E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:790A0A789F23C60544684C554169D05767E5833E
 magnet:?xt=urn:btih:A2CC68885D269E1623370B666A5408169A560DCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Vanced — это модифицированная версия YT, котора
 ```bash
 magnet:?xt=urn:btih:061E4C7BC7D18DB633C409D4F354BD4B590A21ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ One Read / Все Документы Читатель - Офис v1.2.7 Mod by T
 magnet:?xt=urn:btih:78D135C53616007F7D721274627C21D4B01C4CD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Mary’s recipes: рецепты, меню v7.0.0 Mod by Alex.Strannik [Ru/Multi
 magnet:?xt=urn:btih:DDF7A2AFC4A77CC8E487A037930185E1EED09741
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Hear Clear / Услышать на расстоянии v1.2.0.2 Mod by Garant68
 ```bash
 magnet:?xt=urn:btih:E9485FA96EF7DB7FF02DD3B4CC54E5D23FEC9564
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ TapScanner — сканер документов, это простой скан
 magnet:?xt=urn:btih:E0C84786AEE734255BD28A686D85CE67B22AA6EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Smart AudioBook Player Pro v11.6.5 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F6689C7009CF2874C4C3BD487AD6A738FB3733F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 magnet:?xt=urn:btih:9D968AE2EFD1358FCB28D0D44C649DE3A37849BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Lighting calculations / Расчеты освещения v6.1.11 Mod by Balatan
 ```bash
 magnet:?xt=urn:btih:5650B472DAF5F1E64582FEFEBBBB5D5C54185CE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:5650B472DAF5F1E64582FEFEBBBB5D5C54185CE3
 magnet:?xt=urn:btih:F366AB02BB786D1374B963D944E073D4E06CD887
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:F366AB02BB786D1374B963D944E073D4E06CD887
 ```bash
 magnet:?xt=urn:btih:49ADFD91DB7FE168FFBF518F8AFC57AD4D6AEF8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ Cozy Magnifier & Microscope Plus v7.0.1 Mod by derrin [Ru/Multi]
 magnet:?xt=urn:btih:FED5303E2B64D8BE3C1DBBCC1EC05406D91C10EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ ProShot v8.32.4 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:09FADBCC6EE010BE7FC597B75AB6220BCF766E8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ FacePic — приложение AI Face, приложение для легко
 magnet:?xt=urn:btih:E101CDD4E97CB0E503FBBF4AA26BD40A14C056E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Flud - простой и элегантный BitTorrent клиент для о�
 ```bash
 magnet:?xt=urn:btih:69848426F30F8D75F4442C5F61EB01658EE0F828
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:69848426F30F8D75F4442C5F61EB01658EE0F828
 magnet:?xt=urn:btih:76E446B5D1678B8C76EAD722573A0D9C8FD176AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ PianoMeter – Piano Tuner v5.0.0 Mod by Alex.Strannik [Ru/En]
 ```bash
 magnet:?xt=urn:btih:969197BA023DEF1E3CEB0523537AB470875EB70F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

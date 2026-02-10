@@ -19,6 +19,8 @@ Patreon, Timur Shemsedinov | Технологический стек Node.js (20
 magnet:?xt=urn:btih:FBEFEA76812348FFECF940B285B8E61FC619E04A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ OTUS , Алексей Кулиничев, Роман Помазанов, Ива�
 magnet:?xt=urn:btih:AEABAB241CB7A3F5965BB7286C81EEB357D61B78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Udemy, Andre LaMothe | Fast and Furious Game Development with JavaScript and AI 
 ```bash
 magnet:?xt=urn:btih:21A2693637F0925E2280E79E85DD086A06C51722
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Udemy, Piotr Jura | Master Nuxt 3 - Full-Stack Complete Guide (2023) WEB-DL [EN 
 magnet:?xt=urn:btih:639AE0591A902AA9C7846EE8D4D823FA726F330D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:639AE0591A902AA9C7846EE8D4D823FA726F330D
 magnet:?xt=urn:btih:3CA60E59A96568E567D5DE296E10129887E053E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Udemy, John Smilga | NextJS & OpenAI - 2024 Edition (2023) WEB-DL [EN / EN Sub]
 ```bash
 magnet:?xt=urn:btih:35CECAC957F685D82674DA6DD0A7F57DEB930211
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ PurpleSchool | Прохождение собеседования (2023) WEB-DL [
 magnet:?xt=urn:btih:8DF2BC4E73C5CA41FA4F592D2A604777DE6834B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ Udemy, Nata Vacheishvili | React Native: Mobile App Development (CLI) [2024] (20
 magnet:?xt=urn:btih:F2A54298BCBE8276390ADD42EB7D866EAEC26580
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Udemy, Лиана Климович | UI Design с нуля (2023) WEB-DL [AD] [R
 ```bash
 magnet:?xt=urn:btih:583AAF223089C4DB408902907FDD1378427434DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ Udemy, D&A Programming | Программирование в Scratch с 6 лет
 magnet:?xt=urn:btih:8FF914864F673DEAA48CA197E3D29CA2A8669637
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ Gary Simon | Advanced FrontEnds (2023) WEB-DL [EN]
 magnet:?xt=urn:btih:EAF39EC3037FA7D450221414CF1ED25AF1CCE2CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ Udemy, Bogdan Stashchuk | Kubernetes - Полный Курс по Kubernetes (20
 ```bash
 magnet:?xt=urn:btih:C761E6BEBF2562AAF69F62335FAC34B67E536B69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ Udemy, Frantz Merine | OBS Studio - Learn how to become a Virtual Event Producer
 magnet:?xt=urn:btih:196933611D20146BDC9109641C55A5EBF42AD440
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ WebRTCcourse, Tsahi Levent-Levi | Higher-level WebRTC Protocols (2023) WEB-DL [E
 ```bash
 magnet:?xt=urn:btih:2F7354DEC1F08F6BA4C2C9B9758E2A594676ED02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ TypeScript - это строго типизированный язык прог�
 ```bash
 magnet:?xt=urn:btih:EFC5422D89C39F9558C2F2A1ED641B1247B26193
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ education.empireschool | Excel и Google-таблицы (2023) WEB-DL [AD] [RU]
 magnet:?xt=urn:btih:82BCFDB7A8309CB7649C510D4C549976BB2AB078
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ learn.nestjs.com | NestJS. Architecture and Advanced Patterns (2023) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:31818A1D662CD15D5A00491A1C06D804BD28DCF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ WebRTCcourse, Tsahi Levent-Levi | Low-level WebRTC Protocols (2023) WEB-DL [EN]
 magnet:?xt=urn:btih:5D80DEA06F49C7D8E8769ACEBF097CD5E5CC6B34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:5D80DEA06F49C7D8E8769ACEBF097CD5E5CC6B34
 ```bash
 magnet:?xt=urn:btih:491F6208EB23BD0DE46BC3CBCCA482CCC0C38735
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +538,8 @@ magnet:?xt=urn:btih:491F6208EB23BD0DE46BC3CBCCA482CCC0C38735
 magnet:?xt=urn:btih:AA9D574A1AA569E6B38DD7B7210C489153FA29F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ Softwaretesting, Арсений Батыров, Виталий Котов | Ав
 ```bash
 magnet:?xt=urn:btih:8C75CDAFB6BC21FA6F505FAA01EB27D8B0AC41B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +594,8 @@ Podlodka Crew | Podlodka QA Crew. Сезон 7. Оптимизируем про�
 magnet:?xt=urn:btih:8AC92B8530A239EA0F267B11E8594A169CC8823E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +619,8 @@ magnet:?xt=urn:btih:8AC92B8530A239EA0F267B11E8594A169CC8823E
 ```bash
 magnet:?xt=urn:btih:3C407BEFFCCAEA6E0A9FD72039AFEAD6EE4A83CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +646,8 @@ Stepik, Глеб Учитель | Проектирование архитект�
 magnet:?xt=urn:btih:C7B4919E32863D4F0B2B3FA09698CF5914446E4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +672,8 @@ frontcat1 | Грокаем собеседования. Frontend developer (2023)
 magnet:?xt=urn:btih:BD5961035E352E3065C0BAF4B469F184E62E100A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ Let's Get Rusty | Rust Developer Bootcamp (2023) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:AF4F4674FC819E507D1D9DA78CC6B1A8CBAA013C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

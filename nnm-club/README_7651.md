@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:F62B61728A013F5894D0F4CD95381B36C45DD4C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Rising Steel - Beyond the Gates of Hell (2022) [FLAC|Lossless|image + .cue] <Hea
 ```bash
 magnet:?xt=urn:btih:EB8AC984C2AE98F03726056E08185446FC09D5E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Vision Deprived - Self Elevating, Deep Inside the Void (2023) [FLAC|Lossless|WEB
 magnet:?xt=urn:btih:282DEF2EF138F552AEF3223D5EC71081C41D47D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Sororicide & Strigaskor Nr. 42 & In Memoriam - Apocalypse (1992) Split, Alda Mus
 magnet:?xt=urn:btih:6A8F50B0FB024C9BB20B184DD9E8586466D3F969
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ Bai Yao Pu 3 | Manual of Hundred Demons 3 | Руководство сотен д
 ```bash
 magnet:?xt=urn:btih:54130E48920119B851FCDC9F4AB351A0DE12A4EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:54130E48920119B851FCDC9F4AB351A0DE12A4EE
 magnet:?xt=urn:btih:032A74D385377A901B6155EED5EEBE06C6383119
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:032A74D385377A901B6155EED5EEBE06C6383119
 magnet:?xt=urn:btih:B96CE4D1DF050A7AD26A2B0B6C4BB20927439198
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:B96CE4D1DF050A7AD26A2B0B6C4BB20927439198
 ```bash
 magnet:?xt=urn:btih:D69E3039D4343741E0115B4C8B73CA3E740E2C4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ Any Given Day  - немецкая металкор группа, образов�
 ```bash
 magnet:?xt=urn:btih:79A9AA4CC8E34999BA320EC8787BD10F7F049D17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ Hellbearer - For Those About to Bear Hell (2023) [MP3|320 Kbps] <Thrash Metal>
 magnet:?xt=urn:btih:D61DEDD08898F140D0E02FE83B40ADB1E003010C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ Outer Heaven - Infinite Psychic Depths (2023) [FLAC|Lossless|WEB-DL|tracks] <Dea
 magnet:?xt=urn:btih:383857CC2DE617B8B693A65FA3ACCE69ADE637CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ magnet:?xt=urn:btih:383857CC2DE617B8B693A65FA3ACCE69ADE637CE
 magnet:?xt=urn:btih:227D8C3EB4461171B708A54DF5A39AA4CAE662C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:227D8C3EB4461171B708A54DF5A39AA4CAE662C9
 ```bash
 magnet:?xt=urn:btih:4870B2EAAE7BE41E771D7AF9B17461D957FF5FD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +381,8 @@ Volcandra - Into the Azure (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black M
 magnet:?xt=urn:btih:6F2179191479EF59B42A9AF9E8E302311A72D1DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ magnet:?xt=urn:btih:6F2179191479EF59B42A9AF9E8E302311A72D1DA
 magnet:?xt=urn:btih:E989BC353C85A2D428F00087475B6BC56F221578
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ PullTube 1.8.5.12 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:26C1734A215BA180EB32C300859AE9B1E7387A4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +460,8 @@ GeoSetter - программа, которая предназначена для
 ```bash
 magnet:?xt=urn:btih:F34DA760B60F7178EE18D80FC531E81580F1C150
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +490,8 @@ Fynal Stand - Tribulation Saint (2023) [MP3|320 Kbps] <Power, Thrash Metal>
 magnet:?xt=urn:btih:A236BE9615CDFA310C3B541F35B0B351965341BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +519,8 @@ White Falcon - Nueva era (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:2E92085EC91A27AA65B359475CBC76101065858B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ AOMEI Backupper – программа для создания резервно�
 ```bash
 magnet:?xt=urn:btih:EC8DD9A5A3F47E3A1F20D52E45A63E384B180C1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +571,8 @@ magnet:?xt=urn:btih:EC8DD9A5A3F47E3A1F20D52E45A63E384B180C1B
 ```bash
 magnet:?xt=urn:btih:331BC489D42FE5070285BEB0A70E8D0F3B88B1B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +601,8 @@ Purtenance - The Rot Within Us (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 magnet:?xt=urn:btih:AA5700127CE8606FCA870295A63E00842B878CFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +627,8 @@ magnet:?xt=urn:btih:AA5700127CE8606FCA870295A63E00842B878CFA
 magnet:?xt=urn:btih:2D2314705307BF4B13B30124AF790DBCBC25476E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +652,8 @@ magnet:?xt=urn:btih:2D2314705307BF4B13B30124AF790DBCBC25476E
 ```bash
 magnet:?xt=urn:btih:3C5C10D81EDDBBBE1CC289EE41570697F35430BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +680,8 @@ Athentech Perfectly Clear Video for Mac 4.5.0 [En]
 magnet:?xt=urn:btih:32971214D3FC3196A3C72A090DD48844F5B931FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ magnet:?xt=urn:btih:32971214D3FC3196A3C72A090DD48844F5B931FD
 ```bash
 magnet:?xt=urn:btih:38D00C8BAAB7F4327CED8E6AC9B95CEFD58091CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

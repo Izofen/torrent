@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:1AF27509EF3D46259325BF6B14692C281174EC1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:1AF27509EF3D46259325BF6B14692C281174EC1D
 ```bash
 magnet:?xt=urn:btih:D10FF078C4E9FB9DC9E58B54CBD8C0B5D92A6CC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:D10FF078C4E9FB9DC9E58B54CBD8C0B5D92A6CC8
 magnet:?xt=urn:btih:A4BE5E3C13C8D4BC66DAC85A61A54A421D964C47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ LTR Limited Grotesque — семейство низкоконтрастных г
 ```bash
 magnet:?xt=urn:btih:EB927870A39598A6FAF48E1577AA548E88ED76E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Lausanne — необычайно сложный шрифт без засече�
 magnet:?xt=urn:btih:222F3D6A36A4D78AEC4130D67D2AA5E9B3236AC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:222F3D6A36A4D78AEC4130D67D2AA5E9B3236AC7
 ```bash
 magnet:?xt=urn:btih:E883342FEBE0B4AB35836F6E0DB2F6987C4A4C9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:E883342FEBE0B4AB35836F6E0DB2F6987C4A4C9B
 magnet:?xt=urn:btih:AB9A4CDCEE24F194221894D4156C6B5425F17C06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Aktiv Grotesk — это сжатый шрифт без засечек, разр
 magnet:?xt=urn:btih:F7C7812ADD4BCC49726FF739CDB385E77808F852
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:F7C7812ADD4BCC49726FF739CDB385E77808F852
 ```bash
 magnet:?xt=urn:btih:F5B47BE6AA3E9BE0329931897E6EA03BAD52FCBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:F5B47BE6AA3E9BE0329931897E6EA03BAD52FCBF
 magnet:?xt=urn:btih:82673EEBA11DA82254C1029F6786CFA5A40B15F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ Rustica Plains — это шрифт без засечек ручной рабо
 magnet:?xt=urn:btih:6C118A7CD9898415285CB6632BC3B4735BE50EFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ Bolger Font – Serif Display Font аутентичный display font. Шриф
 ```bash
 magnet:?xt=urn:btih:F58D6408BBD7975CC575B07DB44918C39494F738
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:F58D6408BBD7975CC575B07DB44918C39494F738
 magnet:?xt=urn:btih:8E19528B1ACB40697A3DB6DDF246D2D8A638D736
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:8E19528B1ACB40697A3DB6DDF246D2D8A638D736
 ```bash
 magnet:?xt=urn:btih:AB7F3C5C45E2FC8DC3785067589AF0AE9CDFEC44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ Submerged — это библиотека бутиковых звуковых э
 magnet:?xt=urn:btih:B6FF4BC0D8FA0818DF7C27E35A616B62072D9E0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:B6FF4BC0D8FA0818DF7C27E35A616B62072D9E0C
 ```bash
 magnet:?xt=urn:btih:6DCC5A70A6D1C3B6AE73607D2307D973F60C1B19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ TT Fellows — гуманистический гротеск с механиче
 magnet:?xt=urn:btih:0AD50D498AC2C559E242E37932541EE20B5808ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:0AD50D498AC2C559E242E37932541EE20B5808ED
 ```bash
 magnet:?xt=urn:btih:F7764E02FF75F4D7C8B5E04AC2284E385E934647
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:F7764E02FF75F4D7C8B5E04AC2284E385E934647
 magnet:?xt=urn:btih:739B52E9E3AFB65E07CC276A691A64921B368511
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:739B52E9E3AFB65E07CC276A691A64921B368511
 ```bash
 magnet:?xt=urn:btih:F0F1F57CC34931D206378B82C91029EA2CE05E73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:F0F1F57CC34931D206378B82C91029EA2CE05E73
 magnet:?xt=urn:btih:540F210CFA258B4A2C8E538D0978A567EE2744A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:540F210CFA258B4A2C8E538D0978A567EE2744A8
 ```bash
 magnet:?xt=urn:btih:30AC474A5F9FAD3B98063668EF1FE8E437B8E471
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:30AC474A5F9FAD3B98063668EF1FE8E437B8E471
 magnet:?xt=urn:btih:454541453711DC3949DACDA6F7F3F3D9976FC694
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ Codec Pro — новейшее воплощение семейства Codec, р
 ```bash
 magnet:?xt=urn:btih:3BF8350EBB7F4E21ED271BC3DD229582D52A2004
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ magnet:?xt=urn:btih:3BF8350EBB7F4E21ED271BC3DD229582D52A2004
 magnet:?xt=urn:btih:F1AFF597132AB962F32958B1671D48EACFDAFC95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:F1AFF597132AB962F32958B1671D48EACFDAFC95
 ```bash
 magnet:?xt=urn:btih:21B1504DB77F4B43E3D4A7CC188DE4ABDA26AC36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

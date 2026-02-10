@@ -19,6 +19,8 @@ Worshippers of Cthulhu (2024) [Ru/Multi] (1.0.0.3) Repack Let'sРlay
 magnet:?xt=urn:btih:7304B2EFFC6B12E12DF10029874EE0A6FE9E8F1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Kingdom Rush 5: Alliance TD (2024) [Ru/Multi] (6.00.114/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:DF7EE8731C0377F8BE789C2ACF7962605936867B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack Other s [Ultimate Bundle]
 magnet:?xt=urn:btih:DA707B903BEDCC2DCF2D793AF88D36A59AD3F21F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Arctic Awakening - приключенческая игра от первого �
 ```bash
 magnet:?xt=urn:btih:3CCFACF11C2EF774B10C1146DE05AC2BD538C6A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (1.45.9/dlc) Repack seleZen [Rei
 magnet:?xt=urn:btih:027355053198F865013CAF139D6B16B06AD8DDA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Arctic Awakening - приключенческая игра от первого �
 ```bash
 magnet:?xt=urn:btih:9BE508FCC83DF0DFE7A20211563E47DD303E8E73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Arctic Awakening - приключенческая игра от первого �
 magnet:?xt=urn:btih:3337225C5936EB0B3BA38DE6AF0AD8A63F72A7FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Metal Gear Solid Delta: Snake Eater (2025) [Ru/Multi] (1.1.4/dlc) Repack Decepti
 ```bash
 magnet:?xt=urn:btih:9C9D2DD43F9F1610AD9918D62C4B402EA43830A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Mystery of Woolley Mountain - это потусторонняя приклю
 magnet:?xt=urn:btih:5AD04D8838F69734894FC9D7EF5B89A0411232FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Mai: Child of Ages (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C37AEDAF823457E8E37089CD86E0064F14BED89C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Platypus Reclayed (2025) [Ru/Multi] (1.0.20) Repack FitGirl
 magnet:?xt=urn:btih:126AA1AE7F2949B34FC7AAC013C0513178E5278C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Meganoid - это сложный платформер, генерирующий 
 ```bash
 magnet:?xt=urn:btih:596A84632344ACFD8EF7A9239AD32E63212B659A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Rise of the Tomb Raider (2016) [Ru/Multi] (1.0.1.0/dlc) License GOG [20 Year Cel
 magnet:?xt=urn:btih:30FF322BEEDB978E2769B394B9C29D2181AC134E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Wartales - ролевое приключение в открытом мире, �
 ```bash
 magnet:?xt=urn:btih:5FC3678CF7416A4E16D325D6BB74A207E67320DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Shadow of the Tomb Raider (2018) [Ru/Multi] (1.0.1.0/dlc) License GOG [Definitiv
 magnet:?xt=urn:btih:D1E6EACFE5FA829E2D5906BD1C7D856F1AAE4B21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Knock on the Coffin Lid - ролевая игра с элементами стр
 ```bash
 magnet:?xt=urn:btih:3C81370AD047B3A05677A75166B418EBAF30ABD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.8.0) Repack FitGirl
 magnet:?xt=urn:btih:7536CA034DBC9DA3C27A7E11C2DAEA0850BDA838
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Police Simulator: Patrol Officers - симулятор полицейского,
 ```bash
 magnet:?xt=urn:btih:616549AFDEC7D66D6E8AD99A6721873441B990F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Car Dealer Simulator открывает путь в сферу торговли 
 magnet:?xt=urn:btih:A97A204B3A6E4BA0A0DD5CBFB392340580A079F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ HELLCARD – это карточный «рогалик», поддержива�
 ```bash
 magnet:?xt=urn:btih:B67CAAF7EBA082845F99B91DCB0E94015154C7C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Ranch Simulator - Build, Farm, Hunt (2023) [Ru/Multi] (1.173s) Repack Pioneer
 magnet:?xt=urn:btih:E7CCDB86DAADE599371E6FA624ECD5DC1E5BA3CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Reus 2 выделяется своей уникальностью и увлек�
 ```bash
 magnet:?xt=urn:btih:1FF8F4DF91739934238CDD243C67561270AEB94D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ TurretGirls предлагает управлять оперативником �
 magnet:?xt=urn:btih:D6A695949AD5451BA954D07B36CCCF494DCA85A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Victoria 3 - прямой сиквел одноименной игры, где �
 ```bash
 magnet:?xt=urn:btih:341DA446622173A4A082294B8DC206360D1B5A31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Undead West - это «пулевой ад» с элементами «рога�
 magnet:?xt=urn:btih:297702138D89F6881D51F04C965A28835639E329
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Realpolitiks 3: Earth and Beyond (2024) [Ru/Multi] (1.250900) License GOG
 ```bash
 magnet:?xt=urn:btih:39D517A934E48FE51670AE516E9D5F374EF8ECD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

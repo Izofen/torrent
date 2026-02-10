@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:440C5D1CB71E58AC4F57E59764EB9D82CCE69EC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:440C5D1CB71E58AC4F57E59764EB9D82CCE69EC7
 magnet:?xt=urn:btih:D6189FC1AC48085697CD963CA4120C16234135D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:D6189FC1AC48085697CD963CA4120C16234135D6
 ```bash
 magnet:?xt=urn:btih:73FF03B30128C1223969B82BF056D04737D63472
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:73FF03B30128C1223969B82BF056D04737D63472
 magnet:?xt=urn:btih:18BB3854C11150F2561A2ECA7BE58C200DA258EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:18BB3854C11150F2561A2ECA7BE58C200DA258EC
 ```bash
 magnet:?xt=urn:btih:FDC32F82E00594CF1167FB2301B660A0A90BE7AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Shelley Powers / Шейли Пауерс | JavaScript Cookbook [2010] [PDF] [En]
 magnet:?xt=urn:btih:ABC5FE2144918990F89D5107CC4D3576E50CD68A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:ABC5FE2144918990F89D5107CC4D3576E50CD68A
 ```bash
 magnet:?xt=urn:btih:B450EF5D9AC5C53D927D4C6D9E3625AEF124732A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:B450EF5D9AC5C53D927D4C6D9E3625AEF124732A
 magnet:?xt=urn:btih:CDF3E12CCE63ECB90BF2168C4D17BC44EB77E38A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:CDF3E12CCE63ECB90BF2168C4D17BC44EB77E38A
 ```bash
 magnet:?xt=urn:btih:A8DF792079A844D769AE0AED7C82D6D61A4C6540
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ Chris Smith | Programming F# 3.0, 2nd Edition [2012 October] [PDF]
 magnet:?xt=urn:btih:1FFA1986921F11CEB7FC60EE38A31B2B643055CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:1FFA1986921F11CEB7FC60EE38A31B2B643055CF
 magnet:?xt=urn:btih:41D759EE62B2D6DD2ECAC0D35E9B2FEE68948EA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:41D759EE62B2D6DD2ECAC0D35E9B2FEE68948EA1
 ```bash
 magnet:?xt=urn:btih:F9317A68E1CFEF53918ABBD2330DF8ABFF27970B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ Real World Python делает упор на проектную практику
 magnet:?xt=urn:btih:EEBAF235ADD9DC77C027F58E935C57E71442BBC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:EEBAF235ADD9DC77C027F58E935C57E71442BBC4
 magnet:?xt=urn:btih:433EA630E3DABF87C45786851BC12F87C6D9ABD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:433EA630E3DABF87C45786851BC12F87C6D9ABD9
 ```bash
 magnet:?xt=urn:btih:07E0567E8B6902AB29364A94F68AF1CDDC817942
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:07E0567E8B6902AB29364A94F68AF1CDDC817942
 magnet:?xt=urn:btih:77549E6A655BAA31998A2198DB3A0B172AC645F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:77549E6A655BAA31998A2198DB3A0B172AC645F5
 ```bash
 magnet:?xt=urn:btih:B7F47A85B7243604C5B46DD0041E912A97B040E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:B7F47A85B7243604C5B46DD0041E912A97B040E2
 magnet:?xt=urn:btih:A814F8CBB6C5E690AD5CCAB15CEB82A1E8A74B9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:A814F8CBB6C5E690AD5CCAB15CEB82A1E8A74B9B
 ```bash
 magnet:?xt=urn:btih:1104FCB46BB2E3AA6191BAD84544F12D9AB2629C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ magnet:?xt=urn:btih:1104FCB46BB2E3AA6191BAD84544F12D9AB2629C
 magnet:?xt=urn:btih:AFB7E12DC2E294BB343D55D26329D361C8E0AB75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ magnet:?xt=urn:btih:AFB7E12DC2E294BB343D55D26329D361C8E0AB75
 magnet:?xt=urn:btih:4972B6C9D0BDF225666703F1887AA0358FBD209F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:4972B6C9D0BDF225666703F1887AA0358FBD209F
 ```bash
 magnet:?xt=urn:btih:CED346E5414AF82B52B9A32B457CF1543BEAD8F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ Peter Verhas / Питер Верхас | Java Projects / Проекты на Jav
 magnet:?xt=urn:btih:9938A6A870A42306C582C1D445C32A949A3E8B8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ magnet:?xt=urn:btih:9938A6A870A42306C582C1D445C32A949A3E8B8E
 ```bash
 magnet:?xt=urn:btih:54B512C0FBA2C5DE46AF5AF229A2221E11257CB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:54B512C0FBA2C5DE46AF5AF229A2221E11257CB0
 magnet:?xt=urn:btih:792D174CED2F9D29242521F61D7B82E4D2565B0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:792D174CED2F9D29242521F61D7B82E4D2565B0A
 ```bash
 magnet:?xt=urn:btih:3000A2DD7A7CC13E5049F0A5AC3AFE6276DFEEC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ VA - Compilation Part 160 Electronic (2025) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:2F268236721880404772A7EFA4C522F0890CC39B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:2F268236721880404772A7EFA4C522F0890CC39B
 ```bash
 magnet:?xt=urn:btih:543E52625AAD3FE750C32E76033C8CC27A47B300
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ Berserk: Ougon Jidai Hen II - Doldrey Kouryaku | Berserk Golden Age Arc II: The 
 magnet:?xt=urn:btih:B1F2513AD03B008A3FF93529A5D9B1AC2EF62E00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:B1F2513AD03B008A3FF93529A5D9B1AC2EF62E00
 ```bash
 magnet:?xt=urn:btih:BBF0F6854578C6E6333C9A5BD82062182291619F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ VA - Relax & Unwind: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Ba
 magnet:?xt=urn:btih:F6D5DAB2997F4083A5B080FEC340E2E03F4E5EA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ Berserk: Ougon Jidai Hen I - Haou no Tamago | Berserk Golden Age Arc: The Egg of
 magnet:?xt=urn:btih:40033187D7A287E0DE7D06B2AD17D97646BB21FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ WeNote: заметки блокнот планер v6.32 Mod by Balatan [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:F4A594A1435D5CBAB5EAE74454981B411EAD3991
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ Magic Eraser - это революционное приложение для р�
 magnet:?xt=urn:btih:429E5E3AF043A71F744594B279FF97A05BAFC7A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:429E5E3AF043A71F744594B279FF97A05BAFC7A5
 ```bash
 magnet:?xt=urn:btih:968029802ECB2F65EFC7724F7B6DA0EEEC5DC187
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ Beegie Adair - The Great American Songbook (2025) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:23FA34D487C25EB12EA3607981119CAC1AC8F5EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:23FA34D487C25EB12EA3607981119CAC1AC8F5EC
 ```bash
 magnet:?xt=urn:btih:FB2DDF04E80BD2D589BE37E95D71025FDF22B28F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ Nightfall - Children of Eve (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black,
 magnet:?xt=urn:btih:81037400DB93B02713798151DED153F60B5D3225
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:81037400DB93B02713798151DED153F60B5D3225
 magnet:?xt=urn:btih:24CF05146F134191436810FDFAE2A87D42FC1089
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:24CF05146F134191436810FDFAE2A87D42FC1089
 ```bash
 magnet:?xt=urn:btih:7CB3E011BE3FA82738FFD61F3E13009EFE9C800C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +405,8 @@ with Max Cavalera (vocals)(   Читать дальше...   )Жанр: Hardcore
 magnet:?xt=urn:btih:517C54971DE261B0881139377D79D8B7D914B2F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ Joe Newman - Quintet At Count Basie's (1961) 2005, Verve Records [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:93C2F6629A89159E9B883BA38048BFBAFE0DFAA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +463,8 @@ Believer - Extraction From Mortality (1989) [FLAC|24/192|image + .cue|Vinyl-Rip]
 magnet:?xt=urn:btih:64D5F7BD4EBD85DBF55843CE0665AB233E1A419C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +492,8 @@ Game Over - Face the End (2025) [MP3|320 Kbps] <Thrash Metal>
 magnet:?xt=urn:btih:72BD9598F012007F82088C829AFC53F2BADED0A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +517,8 @@ magnet:?xt=urn:btih:72BD9598F012007F82088C829AFC53F2BADED0A8
 ```bash
 magnet:?xt=urn:btih:573687236ED3EDA981501CA3D5DFCC6FF9EBFDB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +544,8 @@ Microsoft exFAT/NTFS for USB by Paragon Pro v5.0.0.17 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:2B137BCBB0AD0875B88F9151987906EB15A1DE81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +569,8 @@ magnet:?xt=urn:btih:2B137BCBB0AD0875B88F9151987906EB15A1DE81
 ```bash
 magnet:?xt=urn:btih:E895C1B1218F07192F2FB5556CDEF4624DB0938F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +596,8 @@ magnet:?xt=urn:btih:E895C1B1218F07192F2FB5556CDEF4624DB0938F
 magnet:?xt=urn:btih:6F5E603E7B0D8B1293B0EC05C988459E2F3F0431
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +621,8 @@ magnet:?xt=urn:btih:6F5E603E7B0D8B1293B0EC05C988459E2F3F0431
 ```bash
 magnet:?xt=urn:btih:B536F922C72A821951F9764581EF6BE2814B28C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +648,8 @@ magnet:?xt=urn:btih:B536F922C72A821951F9764581EF6BE2814B28C3
 magnet:?xt=urn:btih:8726B2A6B72E77CFBACF3689CE7DA7086BD87F7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +674,8 @@ NewPipe v0.27.7 Free + Mod by Alex.Strannik  [Ru/Multi]
 magnet:?xt=urn:btih:0858DE2C07F447719FE0E9A1C62BD7B944F2EA98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ magnet:?xt=urn:btih:0858DE2C07F447719FE0E9A1C62BD7B944F2EA98
 ```bash
 magnet:?xt=urn:btih:1883E0AA68CDC026062F724B901FF2608F082618
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

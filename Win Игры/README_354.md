@@ -1,27 +1,3 @@
-###  Публикация: 1412851   (413151) от 01.10.2020
-
-Projection: First Light (2020) [Ru/Multi] (2.0.1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Projection: First Light рассказывает о приключениях девочки по имени Грета, которая живет в таинственном мире кукол, играющих в театре теней. Она отправляется в путешествие в сопровождении легендарных героев культур, которые она изучает.Тип издания: RepackРазработчик: Shadowplay Studios, Sweaty Chair, Blowfish StudiosЖанр: Adventure, Platform, Puzzle, 2DЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78D382E2B8016248D9B498904BEE48071C8B7381
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 504698   (413208) от 10.10.2012
 
 Max Payne Трилогия [En/Ru] (RePack) 2001-2012 | Martin (Audioslave)
@@ -44,6 +20,8 @@ Max Payne Трилогия [En/Ru] (RePack) 2001-2012 | Martin (Audioslave)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +47,8 @@ The Deadly Tower of Monsters, платформер с неповторимым �
 magnet:?xt=urn:btih:EF7264A742E6EEC12CEF9FA8D360ACEE92846553
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +73,8 @@ Wasteland 3 (2020) [Ru/Multi] (1.1.1/dlc) License HOODLUM
 magnet:?xt=urn:btih:BF59F86C5BF4757526E3EA1930F5EC378E9A8D4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +98,8 @@ Resident Evil 3 – полностью обновленный ремейк хо�
 ```bash
 magnet:?xt=urn:btih:00E8FA3AF8BECFB9289F3B11C350E05130BA4E84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +128,8 @@ Saints Row: The Third отдает в ваши руки банду «Святы�
 magnet:?xt=urn:btih:0F29381DE0C503D88C069E6C16E23FB19B574129
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +153,8 @@ Human: Fall Flat, забавная головоломка, основанная 
 ```bash
 magnet:?xt=urn:btih:5519EA44225A6C0E2D1A47A2A2F89F682CD4A3EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +180,8 @@ Overloop (2022) [En] (1.1) License GOG
 magnet:?xt=urn:btih:4E25326CF7984E1727037E43709512D80E03E388
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +205,8 @@ Transformers: Fall Of Cybertron / Трансформеры: Падение Ки�
 ```bash
 magnet:?xt=urn:btih:271A17713B808FE221D3EE92071BE4AA2132C48E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +233,8 @@ Gabriel Knight: Sins of the Fathers (2014) [Multi] (1.0) License [20th Anniversa
 magnet:?xt=urn:btih:1628536022EFCDEF3F2771F4F198C2662BF0C157
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +258,8 @@ Cadenza 6: The Following (2019) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:17B3538B03B8E55A3DBFC9EF01BDBCA31B042F91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +285,8 @@ Lost Lands: A Hidden Object Adventure (2017) [Ru] (1.0) Unofficial
 magnet:?xt=urn:btih:723DA2E2B3F39CB6931B9FEE3E57C25673509EE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +310,8 @@ StarDrive 2 - это захватывающее и увлекательное п
 ```bash
 magnet:?xt=urn:btih:CAE739214766A0A696D26DC4B4AA909A20D0836D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +337,8 @@ Wasteland 2: Director's Cut (2014) [Ru/En] (1.0/upd1) Repack R.G. Catalyst
 magnet:?xt=urn:btih:EBF24933D6B50EC06E387DF1DA1680830D9312E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +362,8 @@ Shadows: Heretic Kingdoms (2014) [Ru/En/De] (1.0.0.8172) Repack xatab
 ```bash
 magnet:?xt=urn:btih:51EB0107F6199C303CBAA1F06583F8B5441E81ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +389,8 @@ Castle Crashers - двумерный платформер от студии Behe
 magnet:?xt=urn:btih:0ADAED4788E10074B194A6520E4E099091B981DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +414,8 @@ Pine — это приключенческий боевик с открытым 
 ```bash
 magnet:?xt=urn:btih:039027DC881D8216600AE809E2C42388527E9EA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +441,8 @@ Immortal Realms: Vampire Wars это увлекательная стратеги
 magnet:?xt=urn:btih:D86D770C3942AF66D0B490E5B40682F2AD56949F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +466,8 @@ Don’t Starve — это бескомпромиссная игра на выж�
 ```bash
 magnet:?xt=urn:btih:17C932AA7B9A06B930E21848529B1BCD6F005250
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +493,8 @@ Revived Legends: Titan's Revenge / Ожившие легенды: Месть т�
 magnet:?xt=urn:btih:8E044CFC70458596EEE14A59C60A2CE5A32EDC2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +518,8 @@ Mystery Expedition: Prisoners Of Ice / Роковая экспедиция: Пл
 ```bash
 magnet:?xt=urn:btih:DD6771245A0A755326E2978BB20AFEFFAF1D78C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +545,8 @@ Spellforce 2: Demons Of The Past (2014) [Ru/En] (2.68.5408) License GOG
 magnet:?xt=urn:btih:07C6B07F3E1F10DD096AE4E842503821C84FED69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +570,8 @@ Sky Break (2016) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:E508017A0363DF92BAF779715661FECAA8F8C97C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +597,8 @@ Demolish & Build Company 2017 (2016) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F0599A82F8F6B4F6CB28A848F853A92659F1F076
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +627,8 @@ Planets under Attack – новый проект компании Targem Games �
 magnet:?xt=urn:btih:9219BCD9C7506A14966CFD3C85315E00C9D49B5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +652,34 @@ Medford Asylum - Paranormal Case (2015) [En/Multi] Unofficial
 ```bash
 magnet:?xt=urn:btih:272C111614ECE1676A6D9933DC5FD7D432E33D9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150492   (415901) от 13.09.2019
+
+Jotun (2015) [Ru/Multi] (11-09-2019) License GOG [Valhalla Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_415901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jotun – нарисованный вручную экшен про исследование мира, основанного на скандинавской мифологии. Главная героиня, девушка по имени Тора, была храбрым воином, но погибла смертью, недостойной настоящего викинга. Теперь ей необходимо отвоевать место на пирах Вальгаллы. Перешагните порог Чистилища викингов, отыщите руны, пробуждающие ото сна великанов-йотунов, бросьте (   Читать дальше...   )Тип издания: LicenseРазработчик: Thunder Lotus GamesЖанр: Ролевая игра, Экшн, ФэнтезиЯзык озвучки: ИсландскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B20A8BFF37C0B9719569645E787ADCB985A8EB12
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

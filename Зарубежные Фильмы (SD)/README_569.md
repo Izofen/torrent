@@ -1,3 +1,29 @@
+###  Публикация: 1003840   (841282) от 04.04.2016
+
+Пылающая равнина / The Burning Plain (2008) HDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сильвия страдает от грехов прошлого… Юная Марианна пытается спасти разбитую вдребезги любовь своих родителей… Джина и Ник пылают в страсти тайного порочного романа… Как переплетаются нити жизней этих людей, разделенных во времени и пространстве? Тайная мистика судьбы.Производство: США, АргентинаЖанр: Мелодрама, драма, криминалРежиссер: Гильермо АрриагаАктеры: Шарлиз Терон, Ким Бейсингер, Хоаким де Альмейда, Дженнифер Лоуренс, Хосе Мария Язпик, Тесса Иа, Диего Х. Торрес, Дж.Д. Пардо, Дэнни Пино, Бретт КалленПеревод: Профессиональный многоголосый (Парадиз-ВС)Субтитры: ОтсутствуютПродолжительность: 01:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BA5F269A0D29327198EA730133A59C6195B8876
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003629   (841288) от 04.04.2016
 
 Жажда смерти 5: Лик смерти / Death Wish V: The Face of Death (1993) BDRip [H.264]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:2EDA9C01D66561E0E679F5D41E6EDAFB6F823E37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:2EDA9C01D66561E0E679F5D41E6EDAFB6F823E37
 magnet:?xt=urn:btih:5B09B315F7EC7E2975B41199C83FBF3188694CD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:5B09B315F7EC7E2975B41199C83FBF3188694CD7
 ```bash
 magnet:?xt=urn:btih:65E8270CDCF335FB30F486BCF26BFBCAFD4E2245
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:65E8270CDCF335FB30F486BCF26BFBCAFD4E2245
 magnet:?xt=urn:btih:C86FC65D478068BDE1DBC4AE8A83B52AB1EE777D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:C86FC65D478068BDE1DBC4AE8A83B52AB1EE777D
 ```bash
 magnet:?xt=urn:btih:CCFE4FE5FEF0980252A9874ACB030E902231CAFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:CCFE4FE5FEF0980252A9874ACB030E902231CAFB
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:CCFE4FE5FEF0980252A9874ACB030E902231CAFB
 ```bash
 magnet:?xt=urn:btih:5A63E6CEDD28AA90DF90FB80FDAA20C6C9B08B6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:5A63E6CEDD28AA90DF90FB80FDAA20C6C9B08B6F
 magnet:?xt=urn:btih:04628379758FCAE80387E28CC7135EECCFEAAA50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:04628379758FCAE80387E28CC7135EECCFEAAA50
 ```bash
 magnet:?xt=urn:btih:26356F69D528385314901D884B00ABC0FA062E3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,29 +279,7 @@ magnet:?xt=urn:btih:26356F69D528385314901D884B00ABC0FA062E3B
 magnet:?xt=urn:btih:127B389BA47715D3DC4A268C64FFD49314211BAE
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 771550   (841972) от 30.03.2014
-
-Секреты / Ha-Sodot (2007) DVDRip [H.264] [Hi10P]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Религиозная школа древнего каббалистического города Цфат. Дочь раввина Наоми делает все возможное, чтобы отсрочить свадьбу и продолжить учиться. Бунтарка Мишель послана в Цфат религиозными родителями из Франции для усмирения характера. Подруги знакомятся с загадочной француженкой Анук, которая ищет в Цфате покой и очищение. Но ортодоксальное общество отвергает ее. (   Читать дальше...   )Производство: Франция, ИзраильЖанр: ДрамаРежиссер: Ави НешерАктеры: Аня Букштейн, Дана Ивги, Фанни Ардан, Михаль Штамлер, Адир МиллерПеревод: Профессиональный (многоголосый закадровый)Субтитры: нетПродолжительность: 02:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F86D779FA69D296FCFCEDAEE7F4E27DBF6B871BA
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:F86D779FA69D296FCFCEDAEE7F4E27DBF6B871BA
 ```bash
 magnet:?xt=urn:btih:291641CBEC10E676BF5CDA700168D6175D5E8824
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:291641CBEC10E676BF5CDA700168D6175D5E8824
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:291641CBEC10E676BF5CDA700168D6175D5E8824
 ```bash
 magnet:?xt=urn:btih:A131868CC5ADC5652BC7B4CA1C25BF34777AB105
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:A131868CC5ADC5652BC7B4CA1C25BF34777AB105
 magnet:?xt=urn:btih:7FA47399F921F89E2CD1A532A88AC51C08868FCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:7FA47399F921F89E2CD1A532A88AC51C08868FCA
 ```bash
 magnet:?xt=urn:btih:3832D0F65220DAEBDA302ACFDD7E58C8CA1B0C32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:3832D0F65220DAEBDA302ACFDD7E58C8CA1B0C32
 magnet:?xt=urn:btih:B3E7AF464B83752295320650E4DBFF7A3B6F5D71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:B3E7AF464B83752295320650E4DBFF7A3B6F5D71
 ```bash
 magnet:?xt=urn:btih:7564AD7880AD2234574329409120BB8314B442FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:7564AD7880AD2234574329409120BB8314B442FA
 magnet:?xt=urn:btih:411B344D4983A86728AFE3CEE82ED26E40C7E95D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:411B344D4983A86728AFE3CEE82ED26E40C7E95D
 ```bash
 magnet:?xt=urn:btih:84E910985354E5D2680B84826980842C5F2203EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:84E910985354E5D2680B84826980842C5F2203EC
 magnet:?xt=urn:btih:04CB897A3B09FFA56BCFB96114EC0AC9DC2CA982
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ magnet:?xt=urn:btih:04CB897A3B09FFA56BCFB96114EC0AC9DC2CA982
 magnet:?xt=urn:btih:01B8887C207956311D363C47EE5DF65883C94C48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ magnet:?xt=urn:btih:01B8887C207956311D363C47EE5DF65883C94C48
 ```bash
 magnet:?xt=urn:btih:B7EDFEC0AF01BCDCBC006F3B6F5C2398B6D5E196
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:B7EDFEC0AF01BCDCBC006F3B6F5C2398B6D5E196
 magnet:?xt=urn:btih:F7FCC356E5493350892154EBE8E8B1D1ACF1B030
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ magnet:?xt=urn:btih:F7FCC356E5493350892154EBE8E8B1D1ACF1B030
 magnet:?xt=urn:btih:DDD3CFD5DD1770481E08E435D7389D0C1EB848E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ magnet:?xt=urn:btih:DDD3CFD5DD1770481E08E435D7389D0C1EB848E2
 ```bash
 magnet:?xt=urn:btih:1B6670A549778FE9C2022AA7636FB895E832212D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

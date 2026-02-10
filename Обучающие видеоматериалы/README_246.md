@@ -21,6 +21,8 @@ Udemy, Tim Buchalka's Learn Programming Academy, Dr. Frank Mitropoulos | Beginni
 magnet:?xt=urn:btih:C40A7F593BB12B2D90230D8868DD08EC44EB871A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Python - самый популярный язык программировани
 magnet:?xt=urn:btih:474B5B0F48AE94F7E17701C426D29B165587A967
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Udemy, Stephane Maarek | Ultimate AWS Certified SysOps Administrator Associate 2
 ```bash
 magnet:?xt=urn:btih:F87A99FE35ED8F33BC62CD088671A8130E3A953D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:F87A99FE35ED8F33BC62CD088671A8130E3A953D
 magnet:?xt=urn:btih:B100DC59D8222406C65B772F7FEE3812CAA3C730
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ Udemy, Chris Sikes | Red Team Ethical Hacking - Intermediate  (2021) WEB-DL [En 
 magnet:?xt=urn:btih:5E1E8BE66F9CF431BB20BF8BA2137B9064D3B66D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ This complete course is designed to educate and transform you into a job-ready, 
 ```bash
 magnet:?xt=urn:btih:03F3366123BD3CB040CADA717D7B25E7FD0FACE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ React Query стал идеальным решением для управлен
 magnet:?xt=urn:btih:FD5A4BF9B5BF51586657B37DD10E0CFF3415733E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ This course will show you--from start to finish--how to build a real-life applic
 ```bash
 magnet:?xt=urn:btih:FAB4E40A379DEA36DC818FAAD063115D83D94412
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ Andy Anderson | Adobe Photoshop CC Tutorials for Beginners (2014) PCRec [H.264] 
 magnet:?xt=urn:btih:6F3856F2D3B58788546674E02CB8BB9E5E2C50E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ The Art Of Aaron Blaise, Ronnie Williford | Taking Control of Color with Ronnie 
 ```bash
 magnet:?xt=urn:btih:E02E0EE84D8BF42886E715D68F15A0BFD225F5DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:E02E0EE84D8BF42886E715D68F15A0BFD225F5DF
 magnet:?xt=urn:btih:3A7D0293EC1732968AC55AFBC6E5E2DC2F2DBC32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ Context Tools | Автоматизация контекстной рекламы
 magnet:?xt=urn:btih:E570DB5C2EC858E6038E39028B0724FFAD855C26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ SVS, Will Terry | Draw 50 Things (2017) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:CC627F7889150C624E82AB2C3CC1F3477AB4C05A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ magnet:?xt=urn:btih:CC627F7889150C624E82AB2C3CC1F3477AB4C05A
 magnet:?xt=urn:btih:4C903C9E0B18A0C9BC08419ECBF6B67CFCDC97AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ magnet:?xt=urn:btih:4C903C9E0B18A0C9BC08419ECBF6B67CFCDC97AA
 ```bash
 magnet:?xt=urn:btih:EEE0AEC706079DBC6CD1226C9FA9E91E11EC79E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +434,8 @@ magnet:?xt=urn:btih:EEE0AEC706079DBC6CD1226C9FA9E91E11EC79E4
 magnet:?xt=urn:btih:52E4CE30C0AFF779D4B0515C3515ECBDBCD51F05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ Udemy | Секреты фотореализма в Blender 2.8 / The Secrets to 
 ```bash
 magnet:?xt=urn:btih:9E97D95A715CE1C06E36C88C7AA8A2FBB8BF9843
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +490,8 @@ Udemy, Tim Buchalka's Learn Programming Academy, Jason Fedin | Advanced C Progra
 magnet:?xt=urn:btih:E9844443541621B28D0F6AB88106CC3B398D8F91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +518,8 @@ School of Motion, Joey Korenman | FreelanceU (2016) PCRec
 magnet:?xt=urn:btih:A322A6C1FF25E904D1AF699F427BAC1E72600C28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +543,8 @@ magnet:?xt=urn:btih:A322A6C1FF25E904D1AF699F427BAC1E72600C28
 ```bash
 magnet:?xt=urn:btih:8EB7D0B23258C93BBEEF2C9896B843EF06D3EF99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +571,8 @@ Rohan Dalvi | Ornamental Designs in Houdini Part 1 (2018) PCRec
 magnet:?xt=urn:btih:C815388BA50B19F6EE21340DDCFD108849D0C4A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +598,8 @@ Rohan Dalvi | Ornamental Designs in Houdini Part 2 (2018) PCRec
 magnet:?xt=urn:btih:E195E63F04049348880CC2AED9395FE902A4EEAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +624,8 @@ Rohan Dalvi | Rocket Bus (2019) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:108393AF2B810AA09E0DCF605688489954F3E8D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +654,8 @@ Udemy, Guillaume Duhan | Svelte.js & Firebase: Pokedex edition (2021) WEB-DL [En
 magnet:?xt=urn:btih:C17CE015CF3E5B5678A068D241DDF0212A8F7278
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +682,8 @@ Rohan Dalvi | Making dessert in Houdini Part 1 (2016) PCRec
 magnet:?xt=urn:btih:A40BAA3355191D490CC8F0D54D6E4BA21AB2E262
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +708,8 @@ Rohan Dalvi | Mograph in Houdini (2014) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:6E4A77BBB5EFAAB65CAAB0B78720EB7F2EA8D682
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

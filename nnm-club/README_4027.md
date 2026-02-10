@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:0EC5E4B90C3A49ACCB8658585FC6BB76A4495E76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Lumion Pro 2023.4.2.0 [Multi/Ru]
 magnet:?xt=urn:btih:0A2634E699505A0D6B6BDE0E9A6332943C7F8AC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:0A2634E699505A0D6B6BDE0E9A6332943C7F8AC5
 magnet:?xt=urn:btih:13B39B16A868944F19611DA25E3C1B5BA6E1E220
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:13B39B16A868944F19611DA25E3C1B5BA6E1E220
 ```bash
 magnet:?xt=urn:btih:196539BD883DB9357AC6713A27CB0D2360B06BEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Wucan - Axioms (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:D71DE9D81686002424C532B91779A814E81036EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ S.E.C.U. предлагает два захватывающих режима и�
 ```bash
 magnet:?xt=urn:btih:258BEAE460C1F73C526B119403921793F57D880E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:258BEAE460C1F73C526B119403921793F57D880E
 magnet:?xt=urn:btih:593B0E1B2980E5B42608DE99ACB83C07D12F8094
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:593B0E1B2980E5B42608DE99ACB83C07D12F8094
 ```bash
 magnet:?xt=urn:btih:713DFD65794358CF07A03D527B8600685CC0C0CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Strangers - Boundless (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:6F390E2E93D8BE10628A733C5218D50B274FC0A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:6F390E2E93D8BE10628A733C5218D50B274FC0A7
 ```bash
 magnet:?xt=urn:btih:4756E3E6A3F42BF13E0FC176448A4E65744DB7C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:4756E3E6A3F42BF13E0FC176448A4E65744DB7C4
 magnet:?xt=urn:btih:3DD29D2D6FD7AF3B29D18FC8BD0861C6C8B8E1AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Hikikomari Kyuuketsuki no Monmon | Зaбoты пpинцeccы вaмпиpoв–xи
 ```bash
 magnet:?xt=urn:btih:5B2E43DFA6A871DAFB962ABA2C201A685E5E7666
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:5B2E43DFA6A871DAFB962ABA2C201A685E5E7666
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:5B2E43DFA6A871DAFB962ABA2C201A685E5E7666
 ```bash
 magnet:?xt=urn:btih:E8AA1A0746DFF5C76DF606125073A7A7CCD318CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:E8AA1A0746DFF5C76DF606125073A7A7CCD318CE
 magnet:?xt=urn:btih:9EDCBD3ECF3A6ADD5EB17B55F8D4FB4AA98A5FE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:9EDCBD3ECF3A6ADD5EB17B55F8D4FB4AA98A5FE2
 magnet:?xt=urn:btih:5FC8C635E1FD80A88E1C84BDDF69AE3FDE3EE3B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:5FC8C635E1FD80A88E1C84BDDF69AE3FDE3EE3B0
 ```bash
 magnet:?xt=urn:btih:A5CE6C7D11AE29F8268F4523AA26F614574D0202
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ Schwarzer Engel - 2024 - Gotterfunken - EP(   Читать дальше...   )Ж
 magnet:?xt=urn:btih:B2C98244DBC332C7955419DF0E575A7688E61E2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:B2C98244DBC332C7955419DF0E575A7688E61E2F
 ```bash
 magnet:?xt=urn:btih:287496568C29BBDD6975118FB3188A838AEEB667
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ The Austrian Blues Combo - Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 magnet:?xt=urn:btih:D9E84D1C99B3AD6116D28B96E7C038E99D98A0C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +581,8 @@ Olaf Hoeks & Ruud de Vries - Swang Thang (2024) [FLAC|Lossless|WEB-DL|tracks] <J
 magnet:?xt=urn:btih:36A40CE830B8A55CF025986453D2943BCECF6B14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:36A40CE830B8A55CF025986453D2943BCECF6B14
 magnet:?xt=urn:btih:A8DD9D07B32E558F35F33339C416BE3CE9B05FAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ magnet:?xt=urn:btih:A8DD9D07B32E558F35F33339C416BE3CE9B05FAD
 ```bash
 magnet:?xt=urn:btih:ADAA17E792E74EAB43A3EC0ED1F6856E2A735FD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ Revisal - Curtain Call (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Deathcore>
 magnet:?xt=urn:btih:A756FF745887522011375CB35C4007EC16704C59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ magnet:?xt=urn:btih:A756FF745887522011375CB35C4007EC16704C59
 ```bash
 magnet:?xt=urn:btih:7F966F72AF9A4C50D66F371FD8B6D7C7D8FC5BCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

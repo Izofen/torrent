@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:93EF0B9C3AFEC1A87B66A223E0D503C7FC91DAFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -53,6 +55,8 @@ VA - A Psychedelic Journey Vol.1 (2012) [MP3|320 кб/с]<psychedelic, full on>
 magnet:?xt=urn:btih:E837AFE5451BC85980D01FDDDD3BD0BF443328FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -78,6 +82,8 @@ magnet:?xt=urn:btih:E837AFE5451BC85980D01FDDDD3BD0BF443328FD
 magnet:?xt=urn:btih:B29311213B5E5A5A8B6E7F08E0B7C0CD45AC6D41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ magnet:?xt=urn:btih:B29311213B5E5A5A8B6E7F08E0B7C0CD45AC6D41
 ```bash
 magnet:?xt=urn:btih:6D3B1D85DD7142E8882D2135FC8CC30790879BF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:6D3B1D85DD7142E8882D2135FC8CC30790879BF0
 magnet:?xt=urn:btih:C5302AD6A2C3CB582C3B0D2687131F00B430E674
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ magnet:?xt=urn:btih:C5302AD6A2C3CB582C3B0D2687131F00B430E674
 ```bash
 magnet:?xt=urn:btih:18D61F353BB43BF07ECE06BF6C26CF9A47486F33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -182,6 +194,8 @@ magnet:?xt=urn:btih:18D61F353BB43BF07ECE06BF6C26CF9A47486F33
 magnet:?xt=urn:btih:25DA79F6DB1BF07D8A49A2430F69FB2BBEBBEAEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ magnet:?xt=urn:btih:25DA79F6DB1BF07D8A49A2430F69FB2BBEBBEAEE
 ```bash
 magnet:?xt=urn:btih:192B7D5D904D38EC91740B082E1D9E3EFBBD3788
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +255,8 @@ VA - Dance Explosion  (2011) [MP3|320 кб/с]<Dance>
 magnet:?xt=urn:btih:5FC000CEE496862CC244767639D477165240FCCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +290,8 @@ DJ Kocmoc - Electro Sensation vol.24 (6.04.2012) [MP3|320 кб/с]<Electro House
 magnet:?xt=urn:btih:2A583B4D6F87A6B5BE944F42EE910495E880E098
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +315,8 @@ magnet:?xt=urn:btih:2A583B4D6F87A6B5BE944F42EE910495E880E098
 ```bash
 magnet:?xt=urn:btih:58BDFAC662AC5F05512ABCBFBAD15B126C1C12E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +342,8 @@ magnet:?xt=urn:btih:58BDFAC662AC5F05512ABCBFBAD15B126C1C12E9
 ```bash
 magnet:?xt=urn:btih:CB4AA5D7480AE8EF8B484EFDD46BEA495FDA2813
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -354,6 +378,8 @@ VA - Back To Life Promo Mix - Mixed By Rezonanz (2012) [MP3|320 кб/с]<Dubstep
 magnet:?xt=urn:btih:5C23578C51AA13BF07A18D4ED7C2B4E478420016
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +403,8 @@ magnet:?xt=urn:btih:5C23578C51AA13BF07A18D4ED7C2B4E478420016
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +430,8 @@ magnet:?xt=urn:btih:5C23578C51AA13BF07A18D4ED7C2B4E478420016
 magnet:?xt=urn:btih:6DE9115712BDA72F4381B132823E7ECD46448F4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ magnet:?xt=urn:btih:6DE9115712BDA72F4381B132823E7ECD46448F4C
 magnet:?xt=urn:btih:EFBC1A3B28EBD3D8D166E05E3EED3059C4AE21A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +481,8 @@ magnet:?xt=urn:btih:EFBC1A3B28EBD3D8D166E05E3EED3059C4AE21A6
 ```bash
 magnet:?xt=urn:btih:51CD230ABD34688B59941B3DC60FCA4F9030F573
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +517,8 @@ VA - Союз еврохитов (2012) [MP3|256 kbps]<Pop | Dance>
 magnet:?xt=urn:btih:1497BD6E48E88A3E74D05B62366709DA63DC243E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +543,8 @@ magnet:?xt=urn:btih:1497BD6E48E88A3E74D05B62366709DA63DC243E
 magnet:?xt=urn:btih:27A96A1C080D8468F85A66F7079C54A9521C5F00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +568,8 @@ magnet:?xt=urn:btih:27A96A1C080D8468F85A66F7079C54A9521C5F00
 ```bash
 magnet:?xt=urn:btih:00E14F0124E8E1C99F182154719F13919ECBADB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ Baby D - Deliverance (1996)
 magnet:?xt=urn:btih:449DEE9AF896A1337096102D9543B43D04D3E820
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +627,8 @@ magnet:?xt=urn:btih:449DEE9AF896A1337096102D9543B43D04D3E820
 ```bash
 magnet:?xt=urn:btih:A5144F61823C555B8497D21186BB2AED81635CA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +654,8 @@ magnet:?xt=urn:btih:A5144F61823C555B8497D21186BB2AED81635CA7
 magnet:?xt=urn:btih:B82AA84E9F4434DECE2F5EBE3FB8B583425F070D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +679,8 @@ magnet:?xt=urn:btih:B82AA84E9F4434DECE2F5EBE3FB8B583425F070D
 ```bash
 magnet:?xt=urn:btih:8316C0C601D570445535E111289D0B8A880F986F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -658,6 +706,8 @@ Yesterday Live - это наш шутливый ответ америкнско�
 magnet:?xt=urn:btih:AACB1DF76BFD05A85D4AC2130ADC28A9914CFC04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -681,6 +731,8 @@ magnet:?xt=urn:btih:AACB1DF76BFD05A85D4AC2130ADC28A9914CFC04
 ```bash
 magnet:?xt=urn:btih:6C3588381B59CDF9DC8CBF496BB7F8D89F3C29A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

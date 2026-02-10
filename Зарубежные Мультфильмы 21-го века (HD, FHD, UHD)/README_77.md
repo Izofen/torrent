@@ -1,27 +1,3 @@
-###  Публикация: 822853   (475119) от 20.09.2014
-
-Hot Wheels: Начало приключений / Team Hot Wheels: The Origin of Awesome! (2014) BDRip [1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475119.jpg" />
-</div>
-
-
-###  Подробнее
-
-В самом мееееедленном городке мира четверо счастливчиков обнаруживают, что жизнь становится намного интересней, если слегка... поддать газку! Познакомьтесь с Гейджем, Уайеттом, Брэндоном и Рэттом. Эти ребята рождены для гонок. Поодиночке они отлично подготовленные рэйсеры, но вместе становятся настоящей КОМАНДОЙ ХОТ ВИЛС! Однажды по городу с ревом проносится загадочная (   Читать дальше...   )Производство: СШАЖанр: ДетскийРежиссер: Метт ДеннерПерсонажи: Грант Джордж, Дэвид Лодж, Николас Ройе, Бен Дискин, Фарук ТаухидПеревод: Дублированный (Лицензия)Продолжительность: 01:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CAC9A1D32FBFBF9F2E6186806AB172635B57868
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1244981   (475789) от 04.09.2018
 
 Невероятные приключения Скаута / Scout's Amazing Adventures (2012) HDRip [H264/720p-LQ] [EN / RU Sub]
@@ -44,6 +20,8 @@ magnet:?xt=urn:btih:2CAC9A1D32FBFBF9F2E6186806AB172635B57868
 ```bash
 magnet:?xt=urn:btih:8DD148556B5A9F462816C528FC27BF7560E05A35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +47,8 @@ magnet:?xt=urn:btih:8DD148556B5A9F462816C528FC27BF7560E05A35
 magnet:?xt=urn:btih:866A94C8F9FB2AD7EB468BFD3D0AC521A98A601C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +72,8 @@ magnet:?xt=urn:btih:866A94C8F9FB2AD7EB468BFD3D0AC521A98A601C
 ```bash
 magnet:?xt=urn:btih:0DA91E769769A990B5ACF1D1DFCF9C0C560F69E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +99,8 @@ magnet:?xt=urn:btih:0DA91E769769A990B5ACF1D1DFCF9C0C560F69E5
 magnet:?xt=urn:btih:71D08BAE354A03AD32E74BAF2CAC2828A2CB71B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +124,8 @@ magnet:?xt=urn:btih:71D08BAE354A03AD32E74BAF2CAC2828A2CB71B9
 ```bash
 magnet:?xt=urn:btih:288AF07C7DB0D69F2F73B8F6FE2A8CB06FD7F562
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +153,8 @@ magnet:?xt=urn:btih:288AF07C7DB0D69F2F73B8F6FE2A8CB06FD7F562
 magnet:?xt=urn:btih:9529BF71790E837F5C5FDDBF1914A4DA1CF988E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +178,8 @@ Hot Wheels: Начало приключений / Team Hot Wheels: The Origin of
 ```bash
 magnet:?xt=urn:btih:5A799DB3324944A53E2C223C1F3C4424FDDBE52A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +205,8 @@ magnet:?xt=urn:btih:5A799DB3324944A53E2C223C1F3C4424FDDBE52A
 magnet:?xt=urn:btih:34BC43B8A72A5C640EAA5F06180C77E7B168AC84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +230,8 @@ magnet:?xt=urn:btih:34BC43B8A72A5C640EAA5F06180C77E7B168AC84
 ```bash
 magnet:?xt=urn:btih:DD8C8574A2859AE61F90DFD302C4068E8CD00806
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +257,8 @@ magnet:?xt=urn:btih:DD8C8574A2859AE61F90DFD302C4068E8CD00806
 magnet:?xt=urn:btih:07CD194DF180E3689AA847ED409D73FF94B75D37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +282,8 @@ magnet:?xt=urn:btih:07CD194DF180E3689AA847ED409D73FF94B75D37
 ```bash
 magnet:?xt=urn:btih:315E3C48B84ABFDC49F479DA6D33C1CB870F55E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +309,8 @@ Hot Wheels: Начало приключений / Team Hot Wheels: The Origin of
 magnet:?xt=urn:btih:E760589922A86E25513F9416A94A4E5917E41132
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +334,8 @@ magnet:?xt=urn:btih:E760589922A86E25513F9416A94A4E5917E41132
 ```bash
 magnet:?xt=urn:btih:ADFDAE109F496D65C3E9931DC6AF3AEF208F7EE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +363,8 @@ magnet:?xt=urn:btih:ADFDAE109F496D65C3E9931DC6AF3AEF208F7EE4
 magnet:?xt=urn:btih:10B42DD5589D8795D0263C5345698522E09BFD2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +388,8 @@ magnet:?xt=urn:btih:10B42DD5589D8795D0263C5345698522E09BFD2C
 ```bash
 magnet:?xt=urn:btih:9A331AB4429BC8F06B96AAEF53AD39A97366A9DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +415,8 @@ magnet:?xt=urn:btih:9A331AB4429BC8F06B96AAEF53AD39A97366A9DC
 magnet:?xt=urn:btih:FF101ACAC883DC2CE3BCA6CFFEBE6969E8A5B53B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +440,8 @@ magnet:?xt=urn:btih:FF101ACAC883DC2CE3BCA6CFFEBE6969E8A5B53B
 ```bash
 magnet:?xt=urn:btih:03F21B3D9AE82E67925962EF43AD78F84A99B86E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +468,8 @@ magnet:?xt=urn:btih:03F21B3D9AE82E67925962EF43AD78F84A99B86E
 ```bash
 magnet:?xt=urn:btih:BDC61E9D26FAF0E0DE24F9C40F85B27094710F4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +498,8 @@ magnet:?xt=urn:btih:BDC61E9D26FAF0E0DE24F9C40F85B27094710F4E
 magnet:?xt=urn:btih:2EB47322FCB96B7919901AE0B408DB8341952F99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +525,8 @@ magnet:?xt=urn:btih:2EB47322FCB96B7919901AE0B408DB8341952F99
 magnet:?xt=urn:btih:19BFF33BC6FE222970A60CD1F755E1A283985B7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +550,8 @@ magnet:?xt=urn:btih:19BFF33BC6FE222970A60CD1F755E1A283985B7E
 ```bash
 magnet:?xt=urn:btih:C4F9857A203C303978E93FB8192972D7325F8C23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +577,8 @@ magnet:?xt=urn:btih:C4F9857A203C303978E93FB8192972D7325F8C23
 magnet:?xt=urn:btih:D98FD3A1F1A9A59C63DD52042273321868A621FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +602,8 @@ magnet:?xt=urn:btih:D98FD3A1F1A9A59C63DD52042273321868A621FD
 ```bash
 magnet:?xt=urn:btih:8635D9E8849EEAA4093813E8B2B290CE89EE0C84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +629,8 @@ magnet:?xt=urn:btih:8635D9E8849EEAA4093813E8B2B290CE89EE0C84
 magnet:?xt=urn:btih:7007099EA51D3E055EC976B5AA2A07D0A5BEC1CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +654,34 @@ magnet:?xt=urn:btih:7007099EA51D3E055EC976B5AA2A07D0A5BEC1CB
 ```bash
 magnet:?xt=urn:btih:93A87B4A627C9D0F82AC7F593DAFCE35A031F712
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055023   (489518) от 21.09.2016
+
+Шрек навсегда / Shrek Forever After (2010) BDRip [H.265/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_489518.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чем бы еще заняться огру, который уже сразился со злым драконом, спас прекрасную принцессу и уберег от беды королевство родственников по линии жены? Что ж, если вы Шрэк, то, сами того не заметив, вы вдруг сядете дома и станете наслаждаться покоем в кругу семьи. Вместо того чтобы как раньше пугать деревенских жителей, теперь Шрэк, хоть и с неохотой, но соглашается (   Читать дальше...   )Производство: США /  DreamWorks Animation, Pacific Data Images (PDI)Жанр: Мультфильм, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Майк МитчеллПерсонажи: Майк Майерс, Эдди Мёрфи, Кэмерон Диаз, Антонио Бандерас, Джули Эндрюс, Уолт Дорн, Джейн Линч, Крэйг РобинсонПеревод: ДублированныйЯзык субтитров: РусскийПродолжительность: 01:33:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0A4DA219CE778BF1C5833430E2EBFB195237731
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

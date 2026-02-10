@@ -1,3 +1,31 @@
+###  Публикация: 769047   (857781) от 21.03.2014
+
+В.Ф. Суханов | Гитара для всех - самоучитель игры на шестиструнной гитаре (1997) [PDF]
+
+>>Разное (категория книг)
+>>
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Звуки гитары. Томные и страстные, искрометные и нежные. суровые и радостные. К из вас не мечтал овладеть этим инструментом?
+Наконец-таки, после долгого перерыва появилась оригинальная авторская программ обучения и самоучитель, составленные опытным преподавателем. В книгу включено миг замечательных песен.
+В общем, любите гитару: эта любовь — на всю жизнь!Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65D7E8146D5DEE51197D057333719228A1618012
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 875493   (857873) от 06.03.2015
 
 Т. Чернышова (сост.) | Блюда православной кухни к праздникам и постам (2014) [PDF]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:BD3DC39AB5E8D8A6667A0D6FFADBDBEBE4287FD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +73,8 @@ magnet:?xt=urn:btih:BD3DC39AB5E8D8A6667A0D6FFADBDBEBE4287FD7
 magnet:?xt=urn:btih:F4C9ECB7732B5C56A6ADC605063B747AEE142E10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +98,8 @@ magnet:?xt=urn:btih:F4C9ECB7732B5C56A6ADC605063B747AEE142E10
 ```bash
 magnet:?xt=urn:btih:DE37C124FE14F0C559E3E7F99AC21241D504A9A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +125,8 @@ magnet:?xt=urn:btih:DE37C124FE14F0C559E3E7F99AC21241D504A9A1
 magnet:?xt=urn:btih:E279759380834BC24F86B1E1E6260858608048C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +150,8 @@ magnet:?xt=urn:btih:E279759380834BC24F86B1E1E6260858608048C5
 ```bash
 magnet:?xt=urn:btih:78BA69F854572CEC081E7B6FE9255769BC982111
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +181,8 @@ magnet:?xt=urn:btih:78BA69F854572CEC081E7B6FE9255769BC982111
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +207,8 @@ magnet:?xt=urn:btih:78BA69F854572CEC081E7B6FE9255769BC982111
 ```bash
 magnet:?xt=urn:btih:B82D31F1D8082A740A6411E56DE93EA20BFE3CF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +235,8 @@ magnet:?xt=urn:btih:B82D31F1D8082A740A6411E56DE93EA20BFE3CF6
 magnet:?xt=urn:btih:DB57DDFA2E0913B2D5DEB29248914B141A645BFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +262,8 @@ magnet:?xt=urn:btih:DB57DDFA2E0913B2D5DEB29248914B141A645BFF
 magnet:?xt=urn:btih:C10817408061E45EF35BDC42E663716BFFBE4C57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +287,8 @@ magnet:?xt=urn:btih:C10817408061E45EF35BDC42E663716BFFBE4C57
 ```bash
 magnet:?xt=urn:btih:DC8873273F933E529A47DF0C1C8DFD119EA485F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +316,8 @@ magnet:?xt=urn:btih:DC8873273F933E529A47DF0C1C8DFD119EA485F7
 magnet:?xt=urn:btih:FF65CA7477272F73CB8875AABFDD986B1A5D7866
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +344,8 @@ magnet:?xt=urn:btih:FF65CA7477272F73CB8875AABFDD986B1A5D7866
 magnet:?xt=urn:btih:84968C7ACADDB9F29307120F8B35BC49D946F163
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +369,8 @@ magnet:?xt=urn:btih:84968C7ACADDB9F29307120F8B35BC49D946F163
 ```bash
 magnet:?xt=urn:btih:5490D33B6EE999D44709BA4AAF4DFBFF1A6A532C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +400,8 @@ magnet:?xt=urn:btih:5490D33B6EE999D44709BA4AAF4DFBFF1A6A532C
 magnet:?xt=urn:btih:0CDD11760F8AA1A16F23F38D1CD1E99309C0B9BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +425,8 @@ magnet:?xt=urn:btih:0CDD11760F8AA1A16F23F38D1CD1E99309C0B9BA
 ```bash
 magnet:?xt=urn:btih:93C4991CCF8BB98738A8A39F281A530A59CA8C13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +453,8 @@ magnet:?xt=urn:btih:93C4991CCF8BB98738A8A39F281A530A59CA8C13
 magnet:?xt=urn:btih:A6225407F223E3637EAEFF61D5039739CBD4C045
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +478,8 @@ magnet:?xt=urn:btih:A6225407F223E3637EAEFF61D5039739CBD4C045
 ```bash
 magnet:?xt=urn:btih:E14EF484C250438A66F00876D69341106B9617A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +508,8 @@ magnet:?xt=urn:btih:E14EF484C250438A66F00876D69341106B9617A1
 magnet:?xt=urn:btih:9246ABF25C4D89CACB392E71952715AA9D77ACBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +533,8 @@ magnet:?xt=urn:btih:9246ABF25C4D89CACB392E71952715AA9D77ACBF
 ```bash
 magnet:?xt=urn:btih:1C55ACF89B65FC31D7E6823A10DE0271D0C8ACFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +560,8 @@ magnet:?xt=urn:btih:1C55ACF89B65FC31D7E6823A10DE0271D0C8ACFD
 magnet:?xt=urn:btih:D28E78AE80061E709804E1A29172927D4665CFD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +585,8 @@ magnet:?xt=urn:btih:D28E78AE80061E709804E1A29172927D4665CFD6
 ```bash
 magnet:?xt=urn:btih:AAF6091BDC2E30939C4B7D18340F92805E391218
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +612,8 @@ magnet:?xt=urn:btih:AAF6091BDC2E30939C4B7D18340F92805E391218
 magnet:?xt=urn:btih:7099544F104C5337E7D464CBD1DB5902912D3EC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +638,8 @@ magnet:?xt=urn:btih:7099544F104C5337E7D464CBD1DB5902912D3EC4
 magnet:?xt=urn:btih:84CB6A6A610908658ADC9C148420D3E30ABDF864
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +663,8 @@ magnet:?xt=urn:btih:84CB6A6A610908658ADC9C148420D3E30ABDF864
 ```bash
 magnet:?xt=urn:btih:0FD609E230C24C3B18D463C496509E8FE49E5122
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,29 +691,7 @@ magnet:?xt=urn:btih:0FD609E230C24C3B18D463C496509E8FE49E5122
 magnet:?xt=urn:btih:08F91A072F961D61BDA915EFF5C00994EA3FBC24
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 768710   (858487) от 21.03.2014
-
-Антон Гикман, Адольф Маркс | Всеобщий географический и статистический карманный атлас (1908) [PDF]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858487.jpg" />
-</div>
-
-
-###  Подробнее
-
-В атласе 1908 года опубликованы 64 цветные географические карты и сравнительные географо-статистические таблицы (диаграммы) с их кратким объяснением. Особый интерес представляют диаграммы, дающие широкое представление об историческом пространстве начала XX века: сравнительная величина всех государств на земном шаре по занимаемой ими поверхности в квадратных километрах; (   Читать дальше...   )Жанр: Справочники, география, раритетФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95ED08ABC6C2086F8ABCA47246C839AE422F4067
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

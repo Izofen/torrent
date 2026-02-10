@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:267BA558E0BD2A8ABAA9B437461878EAD31F1E66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Rokka no Yuusha | Rokka: Braves of the Six Flowers | Герои шести цв�
 ```bash
 magnet:?xt=urn:btih:C5D26C38A82C73C7FFCD4C165FD349EB706F9410
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:C5D26C38A82C73C7FFCD4C165FD349EB706F9410
 magnet:?xt=urn:btih:CDD1CBA89625140857DDAA04618567BB96D395E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Makai Toshi Shinjuku | Demon City Shinjuku | Синдзюку - город-ад 
 ```bash
 magnet:?xt=urn:btih:DBB56409CCA3CE2CC1EB51E1A8BE0952FED5882F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:DBB56409CCA3CE2CC1EB51E1A8BE0952FED5882F
 magnet:?xt=urn:btih:FFA04DEA0EFC029C79E83C17568AC72FD0C6B3B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:FFA04DEA0EFC029C79E83C17568AC72FD0C6B3B6
 ```bash
 magnet:?xt=urn:btih:186A2C32BA27B85379137AADF2E66D14CD050306
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Goku II: Midnight Eye | Гоку 2: Полуночный глаз [1989, OVA] DV
 magnet:?xt=urn:btih:77F8FD390F299CBBF0CAD2051C29C7DA75D8EDB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Goku Midnight Eye | Гоку: Полуночный глаз [1989, OVA] DVDRip 5
 ```bash
 magnet:?xt=urn:btih:3726ADAE8F6299FD9EA971C7CBB62AFD23BF9B71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:3726ADAE8F6299FD9EA971C7CBB62AFD23BF9B71
 magnet:?xt=urn:btih:EE83B9CD1857F34C8BE63BA69D5E40E4A9F4AE02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Summer Pockets | Карманы лета [2025, TV, 26 эп.] WEBRip 1080p raw+r
 ```bash
 magnet:?xt=urn:btih:A7BFC1BE4E3C835B01A33C1029EF4C8C9BD036C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:A7BFC1BE4E3C835B01A33C1029EF4C8C9BD036C5
 magnet:?xt=urn:btih:983B23170351AEE337651CA7B6DFE873F50B1556
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:983B23170351AEE337651CA7B6DFE873F50B1556
 magnet:?xt=urn:btih:A2A4332073E93F62065B039D2FE0FF40A3190D12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:A2A4332073E93F62065B039D2FE0FF40A3190D12
 magnet:?xt=urn:btih:A71496138B5D5661D83213D31404FE80484FD27E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ Spriggan | Спригган [2022, Web, 06 эп.] WEB-DL 1080p raw+rus
 ```bash
 magnet:?xt=urn:btih:3C75F215456269666802C9E969AA3FC9099B5494
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:3C75F215456269666802C9E969AA3FC9099B5494
 ```bash
 magnet:?xt=urn:btih:DCE94442FD9702E080F6556270C203B87C9668C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:DCE94442FD9702E080F6556270C203B87C9668C0
 magnet:?xt=urn:btih:5D485A77AE362A3FAA6F6767F8CF088A5D2E50B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:5D485A77AE362A3FAA6F6767F8CF088A5D2E50B2
 magnet:?xt=urn:btih:3D80933AF187EF09CBCFB203BB8836252A876487
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ One Piece Film: Gold | Ван-Пис: Фильм тринадцатый [2016, M
 ```bash
 magnet:?xt=urn:btih:D0C20D42CA71C7936B1E5C5CC43548ED3E3A6B99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ Anne no Nikki | The Diary of Anne Frank | Дневник Анны Франк [19
 magnet:?xt=urn:btih:706ED9A2B4CBAC8EB30263D2F5BFCEB41457B7AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ One Piece: Heart of Gold | Ван-Пис: Золотое сердце [2016, Spe
 ```bash
 magnet:?xt=urn:btih:A9DA86E1C9D1585229D437C1AD882E7F73F3A03A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +558,8 @@ magnet:?xt=urn:btih:A9DA86E1C9D1585229D437C1AD882E7F73F3A03A
 magnet:?xt=urn:btih:07013F81EEECECEC4F3CAA06B33D8269D992B582
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ Gekijouban One Piece: Stampede | Ван-Пис: Фильм четырнадца�
 magnet:?xt=urn:btih:15ED212302285638D593D52D100126C7B5BCE558
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +610,8 @@ Denpa Kyoushi | Ultimate Otaku Teacher | Он - сильнейший учите�
 ```bash
 magnet:?xt=urn:btih:3E5D7DB351654B161D5BE5E53696795C1A41C5C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +637,8 @@ Drifters | Скитальцы [2016, TV, 12 из 12] BDRip 1080p raw+rus
 magnet:?xt=urn:btih:0A63CA2B60B1C81AE86835841BF7CE9A459098CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +663,8 @@ Elfen Lied | Эльфийская песнь [2004, TV, 13 из 13 + спешл]
 magnet:?xt=urn:btih:63A054745481B0929BC5B84BCBD7097E38A09D8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ magnet:?xt=urn:btih:63A054745481B0929BC5B84BCBD7097E38A09D8E
 ```bash
 magnet:?xt=urn:btih:439C599980FDC52BAB37275C0CEFD0E88AADBFDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

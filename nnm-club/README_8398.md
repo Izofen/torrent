@@ -19,6 +19,8 @@ Harmony Bloom - это MIDI -генератор, объединяющий пол
 magnet:?xt=urn:btih:FD0AD09E398175BCE234DB1550B2773EC74E7B7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:FD0AD09E398175BCE234DB1550B2773EC74E7B7E
 ```bash
 magnet:?xt=urn:btih:C8394796C9D0ACC5DC27A10BCD9B9FAE680E423B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:C8394796C9D0ACC5DC27A10BCD9B9FAE680E423B
 magnet:?xt=urn:btih:A4DE923F7C15A396C057B33FB0F34A8DF154ADC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:A4DE923F7C15A396C057B33FB0F34A8DF154ADC7
 ```bash
 magnet:?xt=urn:btih:45490D3A7D78EEA0FDD67BAA7CDC6CBCC4E0E01D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:45490D3A7D78EEA0FDD67BAA7CDC6CBCC4E0E01D
 magnet:?xt=urn:btih:FD5AE37B89C3CFE9DEDBE0D07B2E7F0DBCF384B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:FD5AE37B89C3CFE9DEDBE0D07B2E7F0DBCF384B4
 ```bash
 magnet:?xt=urn:btih:D7AF958AB42F8CD6406E6D67856324C2B794530A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:D7AF958AB42F8CD6406E6D67856324C2B794530A
 magnet:?xt=urn:btih:47D0BBE35F8084BC5CC672F3F3663A203F43E640
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Voidtrain (2023) [Ru/Multi] (1.0/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:51B3FDBB08EBAF04D388FE436681A9069E70A02F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Voidtrain (2023) [Ru/Multi] (1.0/dlc) Repack Pioneer [Deluxe Edition]
 magnet:?xt=urn:btih:61A178A7F3B0540705EE10B9F26CE45DE062D2C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Sonic Racing: CrossWorlds (2025) [Ru/Multi] (1.1.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:87DE6ED539B67ADF03F47061C34D324F18D46B50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ Star Crafter (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:FB2BA101318ADDEDFC9335D4FE081703771AE0D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Atelier Resleriana: The Red Alchemist & (and) the White Guardian (2025) [Multi] 
 ```bash
 magnet:?xt=urn:btih:5C0713B7776FADB69550DBE09FD5C28192F205B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ VA - Music News For Forum vol.146 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:37CDBA824F5996D8859F9B24AA0C637170517143
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:37CDBA824F5996D8859F9B24AA0C637170517143
 magnet:?xt=urn:btih:89F594E15172039CD404465A887E0F06EAAE28F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:89F594E15172039CD404465A887E0F06EAAE28F4
 ```bash
 magnet:?xt=urn:btih:D514A7C0C7D06BB32516E260AFB5F9BECE695E2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:D514A7C0C7D06BB32516E260AFB5F9BECE695E2A
 magnet:?xt=urn:btih:07601E5445E8BF7C7F0B39227FCC43B08B16C217
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ Bridge Constructor Stunts (2016) [Ru/Multi] (1.1-fix) License GOG
 ```bash
 magnet:?xt=urn:btih:76E5147958D79AA0DA7D7BA0C6897B6BF1E7AEC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ Cat Town (2022) [Multi] (1.0) Scene DARKSiDERS
 magnet:?xt=urn:btih:4AAD89597E5B2BBB568BC9DF8E2F619E3A5E4C4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ Hunter×Hunter Nen×Impact (2025) [Multi] (1.1.1/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:FCED184D787398C8BE3FB21C02513D941D2F52AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ Acres - это уход за посевами и забота о земле дл
 magnet:?xt=urn:btih:07C11652E91C125CDBF847D1AD1AD69F28408B0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:07C11652E91C125CDBF847D1AD1AD69F28408B0B
 ```bash
 magnet:?xt=urn:btih:440D4E79D935BB9CD96FA42DE9FFD67FECDFDF72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ Ys vs Trails in the Sky: Alternative Saga (2025) [Multi] (1.0.0) License GOG
 magnet:?xt=urn:btih:DC47E322BEBDBB62886CF44CC5799B5AE5301995
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ Ys vs Trails in the Sky: Alternative Saga (2025) [Multi] (Build 20347223) Scene 
 ```bash
 magnet:?xt=urn:btih:67BCD17A114B500812A73944E2E31DD321F12910
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ Battle Suit Aces (2025) [Multi] (Build 20305022) Scene Tenoke
 magnet:?xt=urn:btih:0AD258DDE0853A26F66CE00A0A9D427F8E086F09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:0AD258DDE0853A26F66CE00A0A9D427F8E086F09
 magnet:?xt=urn:btih:12A315B6553767125D2E6263604ADE2905A07854
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:12A315B6553767125D2E6263604ADE2905A07854
 ```bash
 magnet:?xt=urn:btih:0B1DE876D33C737AA33C44FBED6DE035618EF846
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

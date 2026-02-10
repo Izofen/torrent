@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:B9FB94B1A4A565629066745B2925DCED56969576
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:B9FB94B1A4A565629066745B2925DCED56969576
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ UBitMenu программа - дополнение к ленточному ин�
 magnet:?xt=urn:btih:872F35227510991717EEA3509FC39B58D538D00D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:872F35227510991717EEA3509FC39B58D538D00D
 ```bash
 magnet:?xt=urn:btih:5A087DC884FBE4E94219003B51CA9CC9A85D6196
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:5A087DC884FBE4E94219003B51CA9CC9A85D6196
 magnet:?xt=urn:btih:A92F5C3FB4CEECBDA0FF59B34198594FB4558176
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Little Big Workshop (2019) [Ru/Multi] (1.0.11339) License ALiAS
 magnet:?xt=urn:btih:1040A7AD55BE334A740C347ED8B51CFCC58B5D82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ magnet:?xt=urn:btih:1040A7AD55BE334A740C347ED8B51CFCC58B5D82
 ```bash
 magnet:?xt=urn:btih:BC4623D68D348706221BE560845675089BFEB0CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Adobe Premiere Pro - это мощный, настраиваемый редак�
 magnet:?xt=urn:btih:D5DF7DF75F5C77C4EBE8B8DB1809689143D90468
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:D5DF7DF75F5C77C4EBE8B8DB1809689143D90468
 magnet:?xt=urn:btih:15A6EC4F3EB7FF875E68F4BCECCD23F6B0DFF1FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Dead Space 3 (2013) [Ru/En] (1.0.0.1/dlc) Repack Other s [Limited Edition]
 ```bash
 magnet:?xt=urn:btih:DCDA24964355BA726AEA75CAAEFD501688AEC79E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Dead Space (2008) [Ru] (1.0.0.222) Repack Other s
 magnet:?xt=urn:btih:A774F9F85921D36C002D280A9AE1426D85C8A5D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Borderlands 2 (2012) [Ru/En] (1.8.4/dlc) Repack Mizantrop1337 [Game of the Year 
 ```bash
 magnet:?xt=urn:btih:9AD1BC60ABBAA96D26863F2DB0D50042FD94D665
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ HTML Academy | Интенсивный онлайнкурс «Базовый PHP�
 magnet:?xt=urn:btih:C13D7F2015D7570485DAFBAC902048D6F16CACD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Dead Space 2 (2011) [Ru/En] (1.1/upd1/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:08C216A53BCE3B6B727A39FE73234CF9D19B43B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ New Super Mario Bros. Wii [Wii] [PAL] [Multi5] (2009)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ New Super Mario Bros. Wii [Wii] [PAL] [Multi5] (2009)
 magnet:?xt=urn:btih:AE6B4914276B78FBD7107FA62985CF406FEC14B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:1F69D2F813491BA12E741085D766A61EB7DC1242
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:1F69D2F813491BA12E741085D766A61EB7DC1242
 magnet:?xt=urn:btih:5EBEABFF9681638DD42D3C4B886723EBB927C4CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Call of Duty: Ghosts – новая часть в серии Call of Duty. На�
 ```bash
 magnet:?xt=urn:btih:F1AC36023895BB5B288E21912EEBDF530EA8E147
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Big Lebowski, The / Большой Лебовски (1998) DVDRip (Goblin)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Expeditions: Viking (2017) [Ru/Multi] (1.0.7.1) License GOG [Deluxe Edition]
 magnet:?xt=urn:btih:271FC3A9F5010EAF5076E978BB8E6117DB394998
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Emsisoft Anti-Malware обнаруживает и безопасно обезв�
 ```bash
 magnet:?xt=urn:btih:F0F8D1DAE9E789213DC39363FC8751A8E9564A3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:F0F8D1DAE9E789213DC39363FC8751A8E9564A3A
 magnet:?xt=urn:btih:45BDE0A0D11A2B638356A6D6219860F0B4AAE208
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Shadow Defender – программа, аналогичная программ�
 ```bash
 magnet:?xt=urn:btih:A5960395D41E8D1747C6FF01EEA08B47B2A10643
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ Dr.Web Katana (Kills Active Threats And New Attacks) — это целый ко�
 magnet:?xt=urn:btih:C7B011B4814BFF8AC758CDE708B7E3D70D8FFCD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ magnet:?xt=urn:btih:C7B011B4814BFF8AC758CDE708B7E3D70D8FFCD1
 ```bash
 magnet:?xt=urn:btih:9F4BFFB4E14408D11D3BF48163E46484BACBAD7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:BB1D7EBF9DEA683F5844037DF39552EF03664F7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:BB1D7EBF9DEA683F5844037DF39552EF03664F7E
 ```bash
 magnet:?xt=urn:btih:8CFE6681649694831989442101DF6BDC1A107FFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ VA - Smooth Jazz Performance (2023) [MP3|320 Kbps] <Jazz, Smooth Jazz>
 magnet:?xt=urn:btih:B8E8BA77CA6DA2216CCB327CE10B80086B1A57AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ FITLAB, Юлия Агеева | Интенсив по подбору запас�
 ```bash
 magnet:?xt=urn:btih:FDD9FBD6C0E5B0DBBACEB1E588D0CAD336D93994
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ VA - Rock & Blues part 18 Compilation (2023) [MP3|320 Kbps] <Rock, Blues>
 magnet:?xt=urn:btih:D91EB310981E342E54B11F827A90AF8410FA399A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:D91EB310981E342E54B11F827A90AF8410FA399A
 ```bash
 magnet:?xt=urn:btih:92893CBFDF69AF0C5A64D6FA6099E89FD3D06BE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:92893CBFDF69AF0C5A64D6FA6099E89FD3D06BE5
 magnet:?xt=urn:btih:6EF14C85C4958D90F60F18B1915C7C58BE5813F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:6EF14C85C4958D90F60F18B1915C7C58BE5813F0
 ```bash
 magnet:?xt=urn:btih:7F24B1E336870C9F2FA4ED37310628A8F6FC74B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ my_revit | Оформление чертежей (2023) WEB-DL [AD] [RU]
 magnet:?xt=urn:btih:7868F7B70D772E1111D9F16A21EE338C3D22F14B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:7868F7B70D772E1111D9F16A21EE338C3D22F14B
 ```bash
 magnet:?xt=urn:btih:DBCD50CD86F8911851C924BB5C57D097F3F1A639
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:DBCD50CD86F8911851C924BB5C57D097F3F1A639
 magnet:?xt=urn:btih:8F06C1D2412819CF014F21DD6A396A2027CB3FB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ jv16 PowerTools - достаточно мощный набор утилит, п�
 ```bash
 magnet:?xt=urn:btih:2A71D3018F2D718F7B6880632CB78BE3A4EDBD14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ HOMESTYLER - это онлайн-инструмент для дизайна ин
 magnet:?xt=urn:btih:0C38BCA543CE6F593076EABFE14CEAA4407266DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ Avidemux - небольшой, простой редактор для работ
 magnet:?xt=urn:btih:4D8402FF9A232CF0BEDE78EA2435F98924175C65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ Sulekha AloorRavi | Metaprogramming with Python (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:B0AC413B13B1FFCF5287130AFF7F9C3A32C48531
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ Abelssoft Win10PrivacyFix - утилита позволяющая (   Чита�
 magnet:?xt=urn:btih:112CA121DE177B111C958019F028EB07DB0DB34B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ Adobe Animate, пришедший на смену Flash Professional - это м
 ```bash
 magnet:?xt=urn:btih:96AD873424442C14725C8CCA245794844E94986A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:96AD873424442C14725C8CCA245794844E94986A
 magnet:?xt=urn:btih:54F869E46422F30B68772467E8E58751CDD33C4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:59474F7069FFE15E8F8A0C5447E2C582CF3483AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ magnet:?xt=urn:btih:59474F7069FFE15E8F8A0C5447E2C582CF3483AA
 magnet:?xt=urn:btih:283A9C1A68F7ED3EBD99EFFEE86BBC8F3BD9CF9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ MemTest86 - программа позволяющая проверить опе�
 ```bash
 magnet:?xt=urn:btih:DD5C9FA2C340C2BF41305AF8FF1549D531328813
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +580,8 @@ magnet:?xt=urn:btih:DD5C9FA2C340C2BF41305AF8FF1549D531328813
 magnet:?xt=urn:btih:372EB9E9E954FA413E1EAFBCD87A878CA5B3C1FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ magnet:?xt=urn:btih:372EB9E9E954FA413E1EAFBCD87A878CA5B3C1FC
 ```bash
 magnet:?xt=urn:btih:03497A2A542AB2C9F6BE1B2B81AEA9BCBDBC8930
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:03497A2A542AB2C9F6BE1B2B81AEA9BCBDBC8930
 magnet:?xt=urn:btih:9335B878A3C591F450F1B50FE6F68D2937FB1D6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ magnet:?xt=urn:btih:9335B878A3C591F450F1B50FE6F68D2937FB1D6E
 magnet:?xt=urn:btih:B4A4AE6ED5E34F05F8F9BAB70D434EE2A53193F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ magnet:?xt=urn:btih:B4A4AE6ED5E34F05F8F9BAB70D434EE2A53193F9
 ```bash
 magnet:?xt=urn:btih:8D57F4B3264AA34F283416189E4D311D82EB711E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

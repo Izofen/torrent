@@ -19,6 +19,8 @@ Lost Horizon / Затерянный горизонт (2010) [Ru/En] (08.12.2015)
 magnet:?xt=urn:btih:F03CC527B638F038072F0662807894BE4934908A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:F03CC527B638F038072F0662807894BE4934908A
 magnet:?xt=urn:btih:2AF793A100BF25A4C41282E1D6B0CE8E0C656AAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:2AF793A100BF25A4C41282E1D6B0CE8E0C656AAD
 ```bash
 magnet:?xt=urn:btih:30F8874DB73071EFAF09AAE99EDAB53522B126C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:30F8874DB73071EFAF09AAE99EDAB53522B126C3
 magnet:?xt=urn:btih:703DFEE8D8438FF54517C6DB9E6C9B2AE3524A74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ BlueStacks HD App Player - это специальная программа, и�
 ```bash
 magnet:?xt=urn:btih:EA463C7401048DDA9D293D0D8D9D0EBEF35BA9F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:EA463C7401048DDA9D293D0D8D9D0EBEF35BA9F0
 magnet:?xt=urn:btih:3FFAE388492D8CBB27033158A21C5A0055AEA744
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:3FFAE388492D8CBB27033158A21C5A0055AEA744
 magnet:?xt=urn:btih:61D69067C1280E61654163628AAC6D9B51A6003F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:61D69067C1280E61654163628AAC6D9B51A6003F
 ```bash
 magnet:?xt=urn:btih:E1DAA882B8A259A803D783CBBB82E3D65C621654
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:E1DAA882B8A259A803D783CBBB82E3D65C621654
 magnet:?xt=urn:btih:9F1F8488007C8129231F478AA6A012C87F25E194
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:9F1F8488007C8129231F478AA6A012C87F25E194
 ```bash
 magnet:?xt=urn:btih:50A3B96585D507BF0E5C96A85B65C9F1A17E2525
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ VMware Workstation — популярная программа для созда
 magnet:?xt=urn:btih:F622024458892325F4F9FE560D8DB4AA5937AD99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:F622024458892325F4F9FE560D8DB4AA5937AD99
 ```bash
 magnet:?xt=urn:btih:C6CA48F918BF7005A15035308988A173DA84A429
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:C6CA48F918BF7005A15035308988A173DA84A429
 ```bash
 magnet:?xt=urn:btih:554E04FFA7B43C8735A072780ECACD578531F476
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:554E04FFA7B43C8735A072780ECACD578531F476
 magnet:?xt=urn:btih:1A5BFE12E32DE77DB6311AF3BD89282B2D24AFCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:1A5BFE12E32DE77DB6311AF3BD89282B2D24AFCB
 ```bash
 magnet:?xt=urn:btih:DCAA37C371FE1CF0467B4FF4557D7FFA5B50649A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ Europe - Live at Sweden Rock: 30th Anniversary Show (2013) Blu-Ray [1080i]
 ```bash
 magnet:?xt=urn:btih:96DD3B1CAB70C4CAFE991343DADBD6AD37AC624F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:96DD3B1CAB70C4CAFE991343DADBD6AD37AC624F
 magnet:?xt=urn:btih:620E86071CC5AFA34E5DF595661E90D85108D316
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ magnet:?xt=urn:btih:620E86071CC5AFA34E5DF595661E90D85108D316
 magnet:?xt=urn:btih:D0D3F1FD4306142395238754F84BD3FD4CC9B146
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:D0D3F1FD4306142395238754F84BD3FD4CC9B146
 ```bash
 magnet:?xt=urn:btih:EB42DB72F9C9C7F10AE6C40F2DB3C0A635A4EB1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ magnet:?xt=urn:btih:EB42DB72F9C9C7F10AE6C40F2DB3C0A635A4EB1E
 magnet:?xt=urn:btih:0405A01B725C52B792AF300B5547DB34E0CFAACF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ magnet:?xt=urn:btih:0405A01B725C52B792AF300B5547DB34E0CFAACF
 ```bash
 magnet:?xt=urn:btih:770AD5ABFFCA8EA71565215FD083586D8B34CF58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ Linux Format - первый в России ежемесячный журнал 
 magnet:?xt=urn:btih:0E75D40E64F4AFC5F36946FAE262715FA9BE8D7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ magnet:?xt=urn:btih:0E75D40E64F4AFC5F36946FAE262715FA9BE8D7A
 magnet:?xt=urn:btih:81C6B35183D8C054F237BA416C070F648429D8DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ The Evil Within / Зло Внутри (2015) WEBRip [H.264/1080p-LQ]
 ```bash
 magnet:?xt=urn:btih:4E0022BD2F6D261CEC65CF7D90F2762D13EEB088
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ magnet:?xt=urn:btih:4E0022BD2F6D261CEC65CF7D90F2762D13EEB088
 magnet:?xt=urn:btih:08C477BD781776EBEEB4C1A74DAA0DBB80676395
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ magnet:?xt=urn:btih:08C477BD781776EBEEB4C1A74DAA0DBB80676395
 ```bash
 magnet:?xt=urn:btih:B46CA2B8F900EDA6543453CC5C2ABA76CC386014
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 572638   (383064) от 09.11.2012
+
+Л.В.Сотникова | Мошенничество с финансовой отчетностью: выявление и предупреждение [2011] [PDF]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены теоретические представления, экономическая природа и финансовые и нефинансовые потери в результате экономических преступлений в сфере мошенничества с финансовой отчетностью в условиях глобального рынка.
+Раскрыты факторы риска, методы фальсификации финансовой отчетности, элементы бухгалтерского учета, которые могут привести к манипуляциям с ней, финансовые индикаторы как инструмент выявления такого мошенничества. Исследованы аспекты предотвращения фальсификации отчетной информации: роль законодательной базы, систем внутреннего и внешнего аудита, мотивации менеджмента к достоверности отчетных данных и др. Для работников финансовых и экономических служб коммерческих организаций, менеджмента высшего звена, аудиторов; для преподавателей и студентов экономических специальностей вузов.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53BFC90AC8DDA9A3A43C41FD53C52C8CDE28B7AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175031   (383135) от 16.10.2017
 
 В.Я. Игнатьева и др. | Средства подготовки игроков в гандбол (2015) [FB2, EPUB]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:806CC3A2587EE693753D47722EB09641F1C02B95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +71,8 @@ magnet:?xt=urn:btih:806CC3A2587EE693753D47722EB09641F1C02B95
 ```bash
 magnet:?xt=urn:btih:0452036FE4F71891BE45F3F40700EBF1E96F45ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +99,8 @@ magnet:?xt=urn:btih:0452036FE4F71891BE45F3F40700EBF1E96F45ED
 magnet:?xt=urn:btih:C5E82D64DC34CD249371C5A712A1ECA126DCADDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +124,8 @@ magnet:?xt=urn:btih:C5E82D64DC34CD249371C5A712A1ECA126DCADDD
 ```bash
 magnet:?xt=urn:btih:02AB951E0EB79B6FC1D8B5F8F252831E9048F6CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +152,8 @@ magnet:?xt=urn:btih:02AB951E0EB79B6FC1D8B5F8F252831E9048F6CC
 magnet:?xt=urn:btih:A4651E899FEABD35B9AD918D09241F2CCDBBD1FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +178,8 @@ magnet:?xt=urn:btih:A4651E899FEABD35B9AD918D09241F2CCDBBD1FC
 magnet:?xt=urn:btih:AB6EAC7046F097C860A2410C5CB0F878EB78C412
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +203,8 @@ magnet:?xt=urn:btih:AB6EAC7046F097C860A2410C5CB0F878EB78C412
 ```bash
 magnet:?xt=urn:btih:473FFE5BC74EB4CBF29B5DAAAAAAD6F3CE3D322B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +232,8 @@ magnet:?xt=urn:btih:473FFE5BC74EB4CBF29B5DAAAAAAD6F3CE3D322B
 magnet:?xt=urn:btih:5A19F93DC387390E6A82FCA60DB4335BA1C76861
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +260,8 @@ magnet:?xt=urn:btih:5A19F93DC387390E6A82FCA60DB4335BA1C76861
 magnet:?xt=urn:btih:2CAE65AD456331499F25F6BB2E1A8AFCBB41132E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +285,8 @@ magnet:?xt=urn:btih:2CAE65AD456331499F25F6BB2E1A8AFCBB41132E
 ```bash
 magnet:?xt=urn:btih:C80372FA1562D1247E6E157E911EF5DD675F3B3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +314,8 @@ magnet:?xt=urn:btih:C80372FA1562D1247E6E157E911EF5DD675F3B3C
 magnet:?xt=urn:btih:E119A545A087FF38C26C709C66113710B3A7B9B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +339,8 @@ magnet:?xt=urn:btih:E119A545A087FF38C26C709C66113710B3A7B9B1
 ```bash
 magnet:?xt=urn:btih:D29C58B044C8E8A861A90D5B33DFDEC2EA89B52C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +366,8 @@ magnet:?xt=urn:btih:D29C58B044C8E8A861A90D5B33DFDEC2EA89B52C
 magnet:?xt=urn:btih:DA4E8153AC160EEBC186AEEA552B4D02FF4E3AAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +391,8 @@ magnet:?xt=urn:btih:DA4E8153AC160EEBC186AEEA552B4D02FF4E3AAD
 ```bash
 magnet:?xt=urn:btih:2F353762BA7D5FB04306482DEE39E04148518E2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +418,8 @@ magnet:?xt=urn:btih:2F353762BA7D5FB04306482DEE39E04148518E2E
 magnet:?xt=urn:btih:95E071478ABA55628058E9FDDADB7D2F53D9FF7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +444,8 @@ magnet:?xt=urn:btih:95E071478ABA55628058E9FDDADB7D2F53D9FF7D
 magnet:?xt=urn:btih:51A6DDA4F96DB0032A234B814ADE43DEE44CE085
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +469,8 @@ magnet:?xt=urn:btih:51A6DDA4F96DB0032A234B814ADE43DEE44CE085
 ```bash
 magnet:?xt=urn:btih:D18E3FF9D3EE33A4CEC6AC9179A80EBE0CAF6017
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +497,8 @@ magnet:?xt=urn:btih:D18E3FF9D3EE33A4CEC6AC9179A80EBE0CAF6017
 magnet:?xt=urn:btih:1E91E9C7367FC1D52F640306F84A16FE9DBFAB5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +522,8 @@ magnet:?xt=urn:btih:1E91E9C7367FC1D52F640306F84A16FE9DBFAB5C
 ```bash
 magnet:?xt=urn:btih:D19D0136A37BC1C0261697BBA0405E1B3A4713AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +549,8 @@ magnet:?xt=urn:btih:D19D0136A37BC1C0261697BBA0405E1B3A4713AA
 magnet:?xt=urn:btih:23146AC14F730F80F66EE8956526788675CDC4D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +574,8 @@ magnet:?xt=urn:btih:23146AC14F730F80F66EE8956526788675CDC4D5
 ```bash
 magnet:?xt=urn:btih:24F74D19C52C01B3F5919A99E37D680D0448DAEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +603,8 @@ magnet:?xt=urn:btih:24F74D19C52C01B3F5919A99E37D680D0448DAEE
 magnet:?xt=urn:btih:8BB52D6689F0D7D53E8F7F87507BF79BCE503686
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +629,8 @@ magnet:?xt=urn:btih:8BB52D6689F0D7D53E8F7F87507BF79BCE503686
 ```bash
 magnet:?xt=urn:btih:BC17AE784B35E387F67B227709B127B53F789FD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +657,8 @@ magnet:?xt=urn:btih:BC17AE784B35E387F67B227709B127B53F789FD8
 magnet:?xt=urn:btih:5997C711C24616C2FDB306D9C0606C38F68F6D20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,29 +683,7 @@ magnet:?xt=urn:btih:5997C711C24616C2FDB306D9C0606C38F68F6D20
 magnet:?xt=urn:btih:663F5B0B4C42A6C129DDB34C6ABF2AADF9C917C3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326552   (384837) от 20.09.2019
-
-Тим Харфорд | 50 изобретений, которые создали современную экономику (2019) [FB2]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любое изобретение – не просто свидетельство человеческой сообразительности, это объяснение того, как устроен наш мир, какие невидимые системы вроде глобальных цепей поставок, вездесущей информации, денег окружают нас. В книге Тима Харфорда на примере пятидесяти изобретений, таких как бумага, штрихкоды, интеллектуальная собственность, письменность и других, освещаются (   Читать дальше...   )Жанр: Научно-популярная литература, ЭкономикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE4345AADD341B853C3168AA448E856737A0C09F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

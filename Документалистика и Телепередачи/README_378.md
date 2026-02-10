@@ -1,3 +1,32 @@
+###  Публикация: 377987   (507366) от 20.08.2011
+
+Военная тайна (2011) SATRip (114 выпусков)
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507366.jpg" />
+</div>
+
+
+###  Подробнее
+
+- Операция "Сокрытие": Как неопознанный космический корабль оказался на дне Балтийского моря?;
+- Неизвестные страницы Чеченской войны. Герои нашего времени;
+- Боевая колесница Цахала. Почему израильский танк считается лучшим в мире?;
+- Пасха - остров тайн и загадок, территория неизведанного;(   Читать дальше...   )Жанр: ДокументальныйПеревод: ОтсутствуетПродолжительность: 01:12:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5CADBBB678F5664FF57D17B88B25B9F7B1D29D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 538406   (507459) от 25.08.2012
 
 Прекрасная Италия (40 серия). Лацио- от Террачины до Вентотене / Magnifica Italia - Lazio: da Terracina a Ventotene (2007) HDTVRip
@@ -19,6 +48,8 @@
 ```bash
 magnet:?xt=urn:btih:5ED06718820F09BB4F2137CE8A227D6597CC3BBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +76,8 @@ magnet:?xt=urn:btih:5ED06718820F09BB4F2137CE8A227D6597CC3BBD
 magnet:?xt=urn:btih:76159F097A6663642CBD2D5423A7FFF27695AAF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +101,8 @@ magnet:?xt=urn:btih:76159F097A6663642CBD2D5423A7FFF27695AAF8
 ```bash
 magnet:?xt=urn:btih:86E8C107A13DE0235D0EC72A436DD3047DA30A13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +128,8 @@ magnet:?xt=urn:btih:86E8C107A13DE0235D0EC72A436DD3047DA30A13
 magnet:?xt=urn:btih:A31F291D85E951F36E78F1731A431E7792AACCA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +153,8 @@ magnet:?xt=urn:btih:A31F291D85E951F36E78F1731A431E7792AACCA0
 ```bash
 magnet:?xt=urn:btih:B5AAD72412BAE18AF3AE1A39BDAD654B7CB975C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +180,8 @@ magnet:?xt=urn:btih:B5AAD72412BAE18AF3AE1A39BDAD654B7CB975C1
 magnet:?xt=urn:btih:C8F4D6422C241905FFCF566E518E57504DBC8512
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +205,8 @@ magnet:?xt=urn:btih:C8F4D6422C241905FFCF566E518E57504DBC8512
 ```bash
 magnet:?xt=urn:btih:FBA97828D9CAED5AED2462DFA7D962A053F54855
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +232,8 @@ magnet:?xt=urn:btih:FBA97828D9CAED5AED2462DFA7D962A053F54855
 magnet:?xt=urn:btih:7C2E5EB08F45D16BA96FB6EB1F5346B6ED619CFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +257,8 @@ magnet:?xt=urn:btih:7C2E5EB08F45D16BA96FB6EB1F5346B6ED619CFC
 ```bash
 magnet:?xt=urn:btih:BA743B33108B158193E381FA7546DAEBD451E06A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +284,8 @@ magnet:?xt=urn:btih:BA743B33108B158193E381FA7546DAEBD451E06A
 magnet:?xt=urn:btih:11A28CCCCAFF33B4EA7D486D705142B12D2F7893
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +309,8 @@ magnet:?xt=urn:btih:11A28CCCCAFF33B4EA7D486D705142B12D2F7893
 ```bash
 magnet:?xt=urn:btih:51FFB0205CCD612A37235F7B2C6533B39EC78FF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +336,8 @@ magnet:?xt=urn:btih:51FFB0205CCD612A37235F7B2C6533B39EC78FF9
 magnet:?xt=urn:btih:06F731C0FD4FF55F6428C4CBA384EADB7AD20BAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +361,8 @@ magnet:?xt=urn:btih:06F731C0FD4FF55F6428C4CBA384EADB7AD20BAC
 ```bash
 magnet:?xt=urn:btih:D01204945CDF555822BF74B21B14CA16A9C69C40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +388,8 @@ magnet:?xt=urn:btih:D01204945CDF555822BF74B21B14CA16A9C69C40
 magnet:?xt=urn:btih:EA8EB4A98326D103D34768D610D5CCABEFFBAE4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +413,8 @@ magnet:?xt=urn:btih:EA8EB4A98326D103D34768D610D5CCABEFFBAE4D
 ```bash
 magnet:?xt=urn:btih:5C5D73295EACFB90311E6F7C160193003174D434
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +440,8 @@ magnet:?xt=urn:btih:5C5D73295EACFB90311E6F7C160193003174D434
 magnet:?xt=urn:btih:554C3B82D88F9A76B4CC304AC53DAC53C3D7008F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +465,8 @@ magnet:?xt=urn:btih:554C3B82D88F9A76B4CC304AC53DAC53C3D7008F
 ```bash
 magnet:?xt=urn:btih:E9E0C98316822289668B28B3271E16967EB18419
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +492,8 @@ magnet:?xt=urn:btih:E9E0C98316822289668B28B3271E16967EB18419
 ```bash
 magnet:?xt=urn:btih:97722701D8127C4A717F29FFFED9AEFF62ECC45E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +521,8 @@ magnet:?xt=urn:btih:97722701D8127C4A717F29FFFED9AEFF62ECC45E
 magnet:?xt=urn:btih:D3C21BB3F7E00753E3F50AD030AC1CE003D72C8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +546,8 @@ magnet:?xt=urn:btih:D3C21BB3F7E00753E3F50AD030AC1CE003D72C8A
 ```bash
 magnet:?xt=urn:btih:AB4A3C083B4EFF2B9DED658A679D19EB6757B3EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +573,8 @@ magnet:?xt=urn:btih:AB4A3C083B4EFF2B9DED658A679D19EB6757B3EF
 magnet:?xt=urn:btih:12EB2AFA78EE5A38EF1C954D21D6ECAE9FA5784A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +598,8 @@ magnet:?xt=urn:btih:12EB2AFA78EE5A38EF1C954D21D6ECAE9FA5784A
 ```bash
 magnet:?xt=urn:btih:ABD0D03DE6BF803AF83CB9C2A2CFA5012AAC7624
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +625,8 @@ magnet:?xt=urn:btih:ABD0D03DE6BF803AF83CB9C2A2CFA5012AAC7624
 magnet:?xt=urn:btih:7B6CC92809773B32F518C30ABF6DABFE9E2EAFAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +650,8 @@ magnet:?xt=urn:btih:7B6CC92809773B32F518C30ABF6DABFE9E2EAFAB
 ```bash
 magnet:?xt=urn:btih:F86B8EC0B0E5BFC3FCD08A833CF9ED35830479FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,29 +677,7 @@ magnet:?xt=urn:btih:F86B8EC0B0E5BFC3FCD08A833CF9ED35830479FC
 magnet:?xt=urn:btih:CE6C8129F2B74A977EBEED8076BB6626042A5BF4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562601   (508939) от 09.07.2022
-
-Крамб / Crumb (1994) BDRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм об авторе андерграундных комиксов Роберте Крамбе, творчество которого включало в себя навязчивые сексуальные идеи, социальную критику и личные наблюдения за странностями человеческой психологии.Производство: США, Superior PicturesЖанр: документальный, комедия, биографияРежиссер: Терри ЦвигоффПеревод: многоголосый профессиональный (24 ДОК)Субтитры: русские (на места без озвучки), русские (полные), английскиеПродолжительность: 02:00:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FB37AEE6E1112975F0881AAB909A94D7CB4FAD4
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

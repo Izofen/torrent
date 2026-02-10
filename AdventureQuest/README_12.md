@@ -19,6 +19,8 @@ Black Convergence - третья часть известной приключе�
 magnet:?xt=urn:btih:420714B27D4E23DE768179EB8F6DEE13DBB1036B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Resonance (2012) [En] (3.1c) License GOG
 ```bash
 magnet:?xt=urn:btih:9733F735DF814ADB90ACC12E4189F7EB1BC6C792
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Shivah - нуарный квест про Рассела Стоуна - ев
 magnet:?xt=urn:btih:70E29387A51231FA3B2283EE03AB62A1E8CA800F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Blackwell Epiphany - заключительная часть серии поин
 ```bash
 magnet:?xt=urn:btih:1B943C68FB2D28B548A715880BBDB13FBE1BAD3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Fort Solis - сюжетный триллер от третьего лица, р�
 magnet:?xt=urn:btih:AD0EF3612E6B00A3B0F8D95BEBAAEE983E8162EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Brassheart - это приключенческая игра в жанре кве
 ```bash
 magnet:?xt=urn:btih:62873C2BF6CEA5B5526D4423A8369432AC27ED7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ The Fifth Disciple / Пятый чародей (2002) [Ru] (1.0) License
 magnet:?xt=urn:btih:CB90409C79D1A350F50B41B9B7B7EBA65FB4A034
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Lushfoil Photography Sim – это невероятно красивая и р�
 ```bash
 magnet:?xt=urn:btih:108964DE9465E4BA96CA1A94F9E4E8D75A47A7E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Post Trauma (2025) [Multi] (1.04) Scene Rune
 magnet:?xt=urn:btih:9942371CA1366C39088CDEA493E7945DB745D7DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Poppy Playtime (2021) [Ru/Multi] (Build 17717270/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:5D0EA743BEEC26F6199BD35BB98841601110547F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Trine 4: The Nightmare Prince – очередная часть в серии л
 magnet:?xt=urn:btih:864E0E39FE2C34EA4DB61ED250CEEE7B7D74BA4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Biped - это динамичная приключенческая 3D-игра �
 ```bash
 magnet:?xt=urn:btih:05F9727EAD126FB694E8519F4677899A7F5C7ECD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Alan Wake 2 (2023) [Ru/Multi] (1.2.8/dlc) Repack Wanterlude [Deluxe Edition]
 magnet:?xt=urn:btih:3F3B2AADF6DB2D0AF968EFA719F1610AF9A44287
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Myst (2021) [Ru/Multi] (3.0.4) Repack Let'sРlay [VR]
 ```bash
 magnet:?xt=urn:btih:E4AB033738553BFEE67FD220E835D9B2123DE004
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ CAPTURED (2024) [Ru/Multi] (1.2.1.0.2) Repack FitGirl
 magnet:?xt=urn:btih:7023B73345BF76FC4C8E6B500ECCFF2FA9F2DCF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Alan Wake II (2) (2023) [Ru/Multi] (1.2.8/dlc) Repack seleZen [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:2B0E1F48E80093A335885EE1DC9A80294E19F839
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Venus Vacation PRISM: DEAD OR ALIVE Xtreme (2025) [Multi] (1.02/dlc) Repack FitG
 magnet:?xt=urn:btih:1A2CE47B52A350B672538BDD235D2713A705C2AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Dave the Diver - это казуальная приключенческая RPG 
 ```bash
 magnet:?xt=urn:btih:D05B1DB78FFD859F9535C8B790CF5A274E2DBF07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (729654) Repack FitGirl
 magnet:?xt=urn:btih:DAD8102BD0274A74EA758A67BD6DB384CC1D36CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (build 18057167) Repack seleZe
 ```bash
 magnet:?xt=urn:btih:C6DF9E24E7408AE467C0F466C917BE276902DECC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ South of Midnight (2025) [Ru/Multi] (1.1.2 185185) Repack dixen18
 magnet:?xt=urn:btih:D92273FFCF314FCC7DE1AAAB39FECF17C792DE26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ The Stalked 2 (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0B51C90130EBE5176B11B7658F67B8A3DD342BDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ LEILA (2025) [Ru/Multi] (Build 18011991) Repack FitGirl [Supporter Edition]
 magnet:?xt=urn:btih:F7DA4DF70EA02C3352F6D174FD4778EE0DBD5B34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ The Last of Us Part II (2) (2025) [Ru/Multi] (1.0.10407.714/dlc) Repack seleZen 
 ```bash
 magnet:?xt=urn:btih:96888F03849CEB880B368C3019F084563E7253D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ PEPPERED — это экзистенциальный платформер, гд�
 magnet:?xt=urn:btih:151F5AA6238E75370CB0DDC31642D0E03292DB72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ LEILA (2025) [Ru/Multi] (Build 18011991) Repack Other s [Supporter Edition]
 ```bash
 magnet:?xt=urn:btih:E7728B4200BA1C37E8984D536C6D4879F4C6D0E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

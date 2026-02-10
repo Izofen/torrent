@@ -1,3 +1,134 @@
+###  Публикация: 1401544   (709164) от 10.08.2020
+
+Стили - The Hungry JPEG - Gold Mine - 34701 [ASL]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709164.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 золотых стилей для текста.Формат: ASL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33565A5C0DEDE4F8BA9EF362A05F432A1025127D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401532   (709275) от 10.08.2020
+
+Растровый клипарт - Beautiful pansy summer flowers stock photo [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивые летние цветы анютины глазки, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3744x5616-5616x3744
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE64E6ECD4A4EBD148229EFC80698971C3994F01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025623   (709416) от 12.06.2016
+
+Шаблоны - Creativemarket - 3D Template catalog+PSD [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шаблон для создания 3D обложки.Формат: PSDРазрешение файлов: 5000x3000 / 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1600CF5ABCF3FEE2200E581EEC3738F439C645AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219903   (709483) от 16.04.2018
+
+Кисти - Gumroad - ZBrush/SP - 18 Rock Brushes + 3 Ztool rocks, mini tutorial [ZBP, ZTL, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пользовательские каменные кисти и альфа-набор, 18 кистей и альфа-карт + 3 зубчатые скальные сеткиФормат: ZBP, ZTL, PSD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E7C47307E0006A687280DC968ADDD7277EF7993
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025700   (709573) от 12.06.2016
+
+Экшены - GraphicRiver - Intense Background Remover v4 [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Intense Background Remover v4 - экшен  от Charles Brown.
+ Это действие профессионально отделяет изображение от темного, светлого и цветного фона, не влияя на важные детали.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DD75CD007825EE46799B9C6317D500E34D1265C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219834   (709630) от 16.04.2018
 
 3D модели - Creative Market - Low Poly City Pack 1 - 2100863 [3DS, C4D, FBX, OBJ]
@@ -18,6 +149,8 @@
 ```bash
 magnet:?xt=urn:btih:01E7CA0018089DB29BDFC4ED85CBED3C2AC687F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +176,8 @@ magnet:?xt=urn:btih:01E7CA0018089DB29BDFC4ED85CBED3C2AC687F1
 magnet:?xt=urn:btih:4B930F6247208EC712FFC0A40D6178A139E0E546
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +201,8 @@ Filmy FX - экшен для Вашего творчества.Формат: ATN
 ```bash
 magnet:?xt=urn:btih:83330E121DEFF7FDFF5D90E8AB150AF7A28D52D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +228,8 @@ magnet:?xt=urn:btih:83330E121DEFF7FDFF5D90E8AB150AF7A28D52D8
 magnet:?xt=urn:btih:85D3B346C9D69D9D684714806757D0B4578ACDEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +254,8 @@ Memories - экшен для Вашего творчества.Формат: ATN
 magnet:?xt=urn:btih:4CE53128C9F9D691BD174A31BA9F2B37286DD820
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +279,8 @@ magnet:?xt=urn:btih:4CE53128C9F9D691BD174A31BA9F2B37286DD820
 ```bash
 magnet:?xt=urn:btih:ACDFDBDBD0C1630171211C6331BF6EBDE45BDE61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +308,8 @@ magnet:?xt=urn:btih:ACDFDBDBD0C1630171211C6331BF6EBDE45BDE61
 magnet:?xt=urn:btih:322EB9E7D3846DAC5EA9B895C971273E8CBD3579
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +333,8 @@ magnet:?xt=urn:btih:322EB9E7D3846DAC5EA9B895C971273E8CBD3579
 ```bash
 magnet:?xt=urn:btih:460F621946C61B4EF2F3BF01B206BA461347C026
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +362,8 @@ magnet:?xt=urn:btih:460F621946C61B4EF2F3BF01B206BA461347C026
 magnet:?xt=urn:btih:EC728BF519F0063A9AA50F85E752341F5C92EC37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +387,8 @@ magnet:?xt=urn:btih:EC728BF519F0063A9AA50F85E752341F5C92EC37
 ```bash
 magnet:?xt=urn:btih:A2D59EA3477937946BCAA4A0E854AF7C7B7EE183
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +416,8 @@ magnet:?xt=urn:btih:A2D59EA3477937946BCAA4A0E854AF7C7B7EE183
 magnet:?xt=urn:btih:A683ABEAE09FAD6DACDA0C2D10CCE0BB93B275DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +443,8 @@ magnet:?xt=urn:btih:A683ABEAE09FAD6DACDA0C2D10CCE0BB93B275DA
 ```bash
 magnet:?xt=urn:btih:3378AB12A0F69EAD54655EA671BC785286A50652
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +472,8 @@ magnet:?xt=urn:btih:3378AB12A0F69EAD54655EA671BC785286A50652
 magnet:?xt=urn:btih:0C95A2DA1CA989BDA4B2E66775F53D7D7CB23CEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +500,8 @@ magnet:?xt=urn:btih:0C95A2DA1CA989BDA4B2E66775F53D7D7CB23CEE
 magnet:?xt=urn:btih:1A46153920BDD3FF9FE9F3869C3551F4AC5D63BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +525,8 @@ magnet:?xt=urn:btih:1A46153920BDD3FF9FE9F3869C3551F4AC5D63BC
 ```bash
 magnet:?xt=urn:btih:C19C07CCED465D55E7D7166968021DC1C13F8349
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +552,8 @@ magnet:?xt=urn:btih:C19C07CCED465D55E7D7166968021DC1C13F8349
 magnet:?xt=urn:btih:C7E220EC8C15DEE26E39AA7B3B61F21B80FB9562
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +577,8 @@ magnet:?xt=urn:btih:C7E220EC8C15DEE26E39AA7B3B61F21B80FB9562
 ```bash
 magnet:?xt=urn:btih:FC212AAC6A2437EEA363629A6491311A429045BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +606,8 @@ magnet:?xt=urn:btih:FC212AAC6A2437EEA363629A6491311A429045BA
 magnet:?xt=urn:btih:EA13804B0D39F096EB2093BBC0C8B599CF38E999
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +634,8 @@ magnet:?xt=urn:btih:EA13804B0D39F096EB2093BBC0C8B599CF38E999
 magnet:?xt=urn:btih:88C5EE2CB43E59937FAC03ECE117799C598D9E0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +659,8 @@ magnet:?xt=urn:btih:88C5EE2CB43E59937FAC03ECE117799C598D9E0C
 ```bash
 magnet:?xt=urn:btih:943DACF2ABD047BCF26CE4AE76CAD4E108D633C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,125 +686,7 @@ magnet:?xt=urn:btih:943DACF2ABD047BCF26CE4AE76CAD4E108D633C7
 magnet:?xt=urn:btih:E22F737B02434E18DBC5C4880BD661737B3CAB01
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219584   (711834) от 15.04.2018
-
-Растровый клипарт - Butterflies #17 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт Бабочки для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 312x298-706x795
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E6A5FF5FB83879DF9187103282684FB24EE0D65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219581   (711840) от 15.04.2018
-
-Растровый клипарт - Travel #1 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт путешествия для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 44x768-7999x11172
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63D693A011CE2C350EF2EDDF84A552A826B80DB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219583   (711843) от 15.04.2018
-
-Растровый клипарт - Animals #22 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт зверушки для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 174x350-4747x4889
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4857F0B4AB8FF5FB520C39B2275B583E12C569C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286290   (712590) от 02.03.2019
-
-Шаблоны - Календари и рамки для 8 марта, Влюбленных и Поздравительные [PSD, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка многослойных PSD шаблонов-рамок для фото от авторов Koaress, lunar.elf, Lady Marisa.Формат: PSD, PNGРазрешение файлов: 2478x3504-4961x3508
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41EF375D3306F796053B43489F496DF93E852D22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400985   (712622) от 08.08.2020
-
-3D модели - KitBash3D - Props: Secret Labs [OBJ, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оживите свои высокотехнологичные правительственные лаборатории и подземные научные миры с помощью герметичных камер этого набора, коллайдеров частиц, компьютеров, серверов, операционных столов, рентгеновских аппаратов, криокамер, сборочных линий роботов, а также десятков и десятков других предметов. Вы можете создавать безобидные хранилища данных, злые фермы клонирования, (   Читать дальше...   )Формат: OBJ, FBX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0A32769A0F4A411C851478223BB9A1FBFD693EB
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

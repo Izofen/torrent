@@ -20,6 +20,8 @@ fiedler audio имеет репутацию компании, которая у�
 magnet:?xt=urn:btih:1AD4FFE98F05A4B082FD972C17864F0FFCF36AC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ VA - Eurodance Radio Mix Club House (2015) [MP3|320 кб/с] <Club, Electro Hous
 magnet:?xt=urn:btih:7B7EE1AF5D3A57E4AD2AD171A41C4024022EC592
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:7B7EE1AF5D3A57E4AD2AD171A41C4024022EC592
 ```bash
 magnet:?xt=urn:btih:322EA8DBBCC22CA9AE36FC859FFBC519B38A2C21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ Windows 10 May 2021 Update (под кодовым названием "21H1") я�
 magnet:?xt=urn:btih:C4EDECCF0D3026F1E1681F97F1F64B43B1394757
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ VA - Infrasonic Summer Selection (2023) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:30EED3690CBF99D3E4764F010F21C0F4FDCC0444
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -152,6 +162,8 @@ VA - Future Horizon: Tech House Movements (2019) [MP3|320 Kbps] <Tech House, Ele
 magnet:?xt=urn:btih:11C6308927265FCF3A7F0E30211313E62C2D75B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -179,6 +191,8 @@ VA - Music for Mindfulness, vol. 1 (2017) [AAC|~308 Kbps] <Downtempo, Chill Out>
 magnet:?xt=urn:btih:87FE9B405F1BF7EA9498FC6C10E36FB3AFAB3FDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ magnet:?xt=urn:btih:87FE9B405F1BF7EA9498FC6C10E36FB3AFAB3FDE
 ```bash
 magnet:?xt=urn:btih:0F9AE48404D1282F464D9E0B9F0CBD5E8F6C1D5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -230,6 +246,8 @@ Mammoth WVH - Mammoth WVH II (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Al
 magnet:?xt=urn:btih:992E18A98DD2BAB46DC47840B237A7BA10BB524D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ magnet:?xt=urn:btih:992E18A98DD2BAB46DC47840B237A7BA10BB524D
 ```bash
 magnet:?xt=urn:btih:4603AB7952E26CA3EB38325EF79BB9021890B71B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -281,6 +301,8 @@ VA - Music for Mindfulness, vol. 6 (2021) [AAC|~317 Kbps] <Downtempo, Chill Out>
 magnet:?xt=urn:btih:B8E372C6DFAEB1A6CADC803A7B8761817462D42E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ magnet:?xt=urn:btih:B8E372C6DFAEB1A6CADC803A7B8761817462D42E
 ```bash
 magnet:?xt=urn:btih:2F2C6A36119019B6190752330FAB568BCD47144C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +356,8 @@ VA - Hedkandi Dance House (2019) [MP3|320 Kbps] <Club, Dance, House>
 magnet:?xt=urn:btih:499E2889D2DE509115FF99D8B4F094611B0576D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +382,8 @@ BurnAware - простая и в тоже время мощная програм
 magnet:?xt=urn:btih:674F7618B7C25A7D7447DDA8D58094B622609EF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ magnet:?xt=urn:btih:674F7618B7C25A7D7447DDA8D58094B622609EF4
 ```bash
 magnet:?xt=urn:btih:4950DDB292AE4CE795880918CF23A54495892F36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +437,8 @@ The Iron Bees - Хулиганы (2023) [MP3|320 Kbps] <Ska, Punk>
 magnet:?xt=urn:btih:CAB4F214C65FBC1CDC8FEBEA9B9658EB8D48ACD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ magnet:?xt=urn:btih:CAB4F214C65FBC1CDC8FEBEA9B9658EB8D48ACD4
 ```bash
 magnet:?xt=urn:btih:4F2268A16CE46F30A2C5DE4A8D468C9AE975123A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ AutoRuns - утилита для контроля автозагрузки пр�
 magnet:?xt=urn:btih:B87B10F362F332A41B6F55D47D434CB0B63218A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +515,8 @@ iBoostUp Memory Booster позволяет вам просматривать п�
 ```bash
 magnet:?xt=urn:btih:D9AB5A844A2048E42174BB646C73403FE40DD8D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +545,8 @@ VA - Abstrct Vision: Psychedelic Trance (2019) [MP3|320 Kbps] <Psychedelic Tranc
 magnet:?xt=urn:btih:26EFE63CC77F5E72CC9D245D7F803E2E271944A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +574,8 @@ VA - Music for Mindfulness, vol. 3 (2019) [AAC|~317 Kbps] <Downtempo, Chill Out>
 magnet:?xt=urn:btih:C3EAA17B8923E3D431C157E104E9E880E6B90A5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +599,8 @@ magnet:?xt=urn:btih:C3EAA17B8923E3D431C157E104E9E880E6B90A5F
 ```bash
 magnet:?xt=urn:btih:39333F1E29E9680AB8A5FE4DB96CE308A5931861
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +630,8 @@ Wet (   Читать дальше...   )1. W.A.P. (Wet Ass Plutonium) (5:05)
 magnet:?xt=urn:btih:ABE49AA2A6933D9E1AAF7D63770288E9B6B791C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +656,8 @@ magnet:?xt=urn:btih:ABE49AA2A6933D9E1AAF7D63770288E9B6B791C6
 magnet:?xt=urn:btih:254886BAD66444356AF738560887A4003FA92F64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +681,8 @@ magnet:?xt=urn:btih:254886BAD66444356AF738560887A4003FA92F64
 ```bash
 magnet:?xt=urn:btih:53E3165CC3A32AC8D63ADDF92D5F9FC33547C267
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -659,6 +709,8 @@ Inboard 1.1.4 [En]
 ```bash
 magnet:?xt=urn:btih:B7AF0407053FD742C73F229BCA7A4B4A44D08B6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

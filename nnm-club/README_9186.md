@@ -22,6 +22,8 @@ Merge - Ineffable (2016) [MP3|320 Kbps] <Alternative Rock, Post-Hardcore>
 magnet:?xt=urn:btih:97EE7C51B4A720CED8412A43AE65B9A2F72BF3EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Hidden Element - Together (2016) [MP3|320 Kbps] <Drum & Bass, Dubstep, Dowtempo>
 magnet:?xt=urn:btih:775AEB0F8FA62EF607A8FD0C5075143ADD495459
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:775AEB0F8FA62EF607A8FD0C5075143ADD495459
 ```bash
 magnet:?xt=urn:btih:63219A0636EBA87313F941C7ED090F97626D25EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +107,8 @@ T:Base - Discover Yourself (2016) [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:F93072D8AD93C5B42E9017E5AFAE1C36DAF9986C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +136,8 @@ VA - Убойные хиты на Шансоне. Версия 4 (2016) [MP3|256
 magnet:?xt=urn:btih:D08107091DD56F373C7C447D5087D3343B84F7FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:D08107091DD56F373C7C447D5087D3343B84F7FA
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:D08107091DD56F373C7C447D5087D3343B84F7FA
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:D08107091DD56F373C7C447D5087D3343B84F7FA
 magnet:?xt=urn:btih:7C8CD8A8FF33A972FF8804120A7A85D509EAC4A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ Kimi no Iru Machi / A Town Where You Live / Город, в котором ты �
 ```bash
 magnet:?xt=urn:btih:30BB4F2A01CDE516DFF9B967CE8F8C858BE2EBFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ VA - Отрывайся с лучшими хитами - 4 (2016) [MP3|256 Kbps]
 magnet:?xt=urn:btih:D1299762F340E2911788D3CF1D0BE46AC3A23F28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ Ghost Of Mary - Oblivaeon (2016) [MP3|320 Kbps] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:3228664D9261510AB1FB5BD52C7ED439B7A1E448
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -305,6 +327,8 @@ SpamSieve 2.9.27 [Multi/Ru]
 magnet:?xt=urn:btih:08ADE4DA1A15CA2E57564B2485947A22E5BC501E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +355,8 @@ magnet:?xt=urn:btih:08ADE4DA1A15CA2E57564B2485947A22E5BC501E
 ```bash
 magnet:?xt=urn:btih:7F6AF94D8721AF50E64200AC6FA31DDF9D292E00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +385,8 @@ VA - A 40 Track Compilation : Edinburgh (2016) [FLAC|Lossless|WEB-DL|tracks] <Pr
 magnet:?xt=urn:btih:07769E408BFC5BDF38C671BE5F0BE16BB3791F45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +411,8 @@ magnet:?xt=urn:btih:07769E408BFC5BDF38C671BE5F0BE16BB3791F45
 magnet:?xt=urn:btih:F0DF88B63C722BAD38E6BB4BB158A73C6F2EB8C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +436,8 @@ magnet:?xt=urn:btih:F0DF88B63C722BAD38E6BB4BB158A73C6F2EB8C3
 ```bash
 magnet:?xt=urn:btih:4449702FDF09C51136DD05B46A9AEBE0A27549F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +466,8 @@ Albums:
 magnet:?xt=urn:btih:2C3215DCB1C775C562B4EE5EAE4E3CFDBA4A5052
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +494,8 @@ Albums:
 ```bash
 magnet:?xt=urn:btih:DD4E45EF3C47288A388D835D99FE5D721C0FF83E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +524,8 @@ Loya - Aimovoria (2016) [MP3|320 Kbps] <Alternative Metal, Post-Rock>
 magnet:?xt=urn:btih:E219B181C2D2602F129763B1BEEAA1E5C75F5553
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +553,8 @@ VA - Best Of Toolroom (2016) [MP3|320 Kbps] <Minimal, Tech House>
 magnet:?xt=urn:btih:7420CFA2A8773D42B3497318222E07708D6E4C26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +578,8 @@ magnet:?xt=urn:btih:7420CFA2A8773D42B3497318222E07708D6E4C26
 ```bash
 magnet:?xt=urn:btih:F093668C6870B8B7432FFFE477178C2A59ADCE6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +606,8 @@ DropDMG — это очень простая, но функциональная 
 magnet:?xt=urn:btih:54D1FE19BD425C37A98947FE4C4A3DE4D5F99A79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +633,8 @@ Mortem & Harland - Proximity / The Same (2015) [MP3|320 Kbps] <Drum'n'Bass, Deep
 magnet:?xt=urn:btih:F15263588F220C454C5C896DCCBBB1077B28C8A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +659,8 @@ AnyTrans - файловый менеджер, который отвечает з
 ```bash
 magnet:?xt=urn:btih:EE97D311F42711211B208619A7D819D77827815E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +689,8 @@ VA - YearMix 2K16 (2016) [MP3|201-247 Kbps] <Hands Up, Dance, House, Bigroom, Fu
 magnet:?xt=urn:btih:82651D96484E539155278A182EBD69826D667EA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +717,8 @@ VA - Trance Above Charts Top 100 (2016) [MP3|320 Kbps] <Trance, Tech Trance, Mel
 ```bash
 magnet:?xt=urn:btih:95074F69EBDF14AC2391424162C3F431E6043498
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

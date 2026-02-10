@@ -19,6 +19,8 @@ Ojou to Banken-kun | A Girl & Her Guard Dog | Девушка и её сторо�
 magnet:?xt=urn:btih:6C3BEE20B2BF989799CEFC131EAB6B377FCA36C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Atomic Heart — приключенческий ролевой боевик с �
 ```bash
 magnet:?xt=urn:btih:38DFDF0427C87CA65942552B015BEA44602781E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:38DFDF0427C87CA65942552B015BEA44602781E5
 magnet:?xt=urn:btih:A18853C97C69FC6A4C7D50DCF393391D7E61B33E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:A18853C97C69FC6A4C7D50DCF393391D7E61B33E
 ```bash
 magnet:?xt=urn:btih:B0AB21C0FD3E47F7C1C82FCB2E9EC1F2C634084E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Need for Speed: Carbon (2006) [Ru] (1.4) Repack/Mod Финиган [High Quality
 magnet:?xt=urn:btih:A7465A3B63DA3B952B8E003AEBE0143BF3DC77C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:A7465A3B63DA3B952B8E003AEBE0143BF3DC77C9
 magnet:?xt=urn:btih:A7C1A95D6A93B9AD60DB08E988C8A516BE42382E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ Windows 11 - это серия операционных систем, разра
 ```bash
 magnet:?xt=urn:btih:A0CEAA64CD6F299BDDA7EAEAFB712B2561B7B029
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:A0CEAA64CD6F299BDDA7EAEAFB712B2561B7B029
 magnet:?xt=urn:btih:6AB214DFA20B1C411987AFE88895695DAE54557D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Windows 10 22H2 (19045.3803) x64 (3in1) by Brux [Ru]
 ```bash
 magnet:?xt=urn:btih:1B24CACCD3EC0AE136F40324DCEB12F4ED69638F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Helck | Хельк [2023, TV, 24 эп.] WebRip 720p raw
 magnet:?xt=urn:btih:5C98940A3EADC49EC07A4E383E719D46FEBC70AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ PyCharm – это самая интеллектуальная Python IDE с п�
 ```bash
 magnet:?xt=urn:btih:006AFBE7732536C3E369FD9D22688BD3AE31AAF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ PARANOID (2023) [Ru/Multi] (1.0) Scene Rune
 magnet:?xt=urn:btih:DEDCD280BD9EB3FE774BE94B3F325954A16CCC24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Hellblade: Senua's Sacrifice (2017) [Ru/Multi] (1.03.1.202112071122) Repack Dece
 ```bash
 magnet:?xt=urn:btih:A2208AB2FDC982E0CEB858D07F66314158F315D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:A2208AB2FDC982E0CEB858D07F66314158F315D2
 magnet:?xt=urn:btih:345E3C164282C55A4F75E98E42D7E31D380F074D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:345E3C164282C55A4F75E98E42D7E31D380F074D
 ```bash
 magnet:?xt=urn:btih:16D640D4E3F51601C79B171141F1F4368F5A482D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ VA - Workout Motivation (Flex Edition) (2019-2023) [MP3|320 Kbps] <Relax, Chill�
 magnet:?xt=urn:btih:B0C678F86F4131C9A7E826A9BBF9D223213543C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Dr. Stone: New World | Доктор Стоун [ТВ-3] [2023, TV, 22 эп.] Web
 magnet:?xt=urn:btih:AC3BEF293D54FDF2B2BED9C39E2A45804FED04D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:AC3BEF293D54FDF2B2BED9C39E2A45804FED04D5
 ```bash
 magnet:?xt=urn:btih:71EBD2EE1736FA1B0E045973357F002C1D362CF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ Excel — самая популярная программа для работы
 magnet:?xt=urn:btih:71310AA419B0DF42695D85E23A41FABE07A84CB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:71310AA419B0DF42695D85E23A41FABE07A84CB6
 ```bash
 magnet:?xt=urn:btih:369048B5A6278BEBD576C535B0807BD9CDCA8303
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ Kage no Jitsuryokusha ni Naritakute! 2 / The Eminence in Shadow 2 / Восхож
 magnet:?xt=urn:btih:C61FB71478CA32EAF7776644DFFD9059C7C6157C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +580,8 @@ The Brecker Brothers - Score (1988) 1991, Jazz Door [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:7B22CB68260C85402914640F74C0AF3EF94C8E53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +610,8 @@ Warpath - Uprising Of The Oppressed (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:40247F09233EBDC238F0F2DA68D78B7A03FD1AA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ magnet:?xt=urn:btih:40247F09233EBDC238F0F2DA68D78B7A03FD1AA0
 ```bash
 magnet:?xt=urn:btih:9C049D1AAC982DC0B2E8AB690F664B7069A50244
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +667,8 @@ Tears Of Asclepius - Город призрак (2023) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:C27F8EF2F0B378C3C54DA70DD0CA2FF4E95FE860
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ magnet:?xt=urn:btih:C27F8EF2F0B378C3C54DA70DD0CA2FF4E95FE860
 ```bash
 magnet:?xt=urn:btih:D7DE3BA9C16CCF18800D4DC90ABB86101651FC9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

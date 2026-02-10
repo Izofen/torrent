@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:8B2368C46D30072ED98361C3DF6450D07EB73381
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:8B2368C46D30072ED98361C3DF6450D07EB73381
 ```bash
 magnet:?xt=urn:btih:C1624AE0011C8A55F5316B722D16AB8D3E0D03E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:C1624AE0011C8A55F5316B722D16AB8D3E0D03E4
 magnet:?xt=urn:btih:D4C08A9EB4CD9ADE4F85CAC65BBAEF8EF4734A60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:D4C08A9EB4CD9ADE4F85CAC65BBAEF8EF4734A60
 ```bash
 magnet:?xt=urn:btih:4A791EA60328C907DA0A0AF5391B697891F244C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Five Nights at Freddy's 4 - данной части игрового проце�
 magnet:?xt=urn:btih:995A959A56A1F3278DCD6D13298A7F1633535384
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:995A959A56A1F3278DCD6D13298A7F1633535384
 ```bash
 magnet:?xt=urn:btih:79080F3E12024065EEF90B97B4C8BB590D617D10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:79080F3E12024065EEF90B97B4C8BB590D617D10
 magnet:?xt=urn:btih:E008FF79438A4264B270B51EF81CA0E1BFE6E39A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:E008FF79438A4264B270B51EF81CA0E1BFE6E39A
 ```bash
 magnet:?xt=urn:btih:FC8C6B2BD1CEA0970F532FCCCF89B87E70169D8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:FC8C6B2BD1CEA0970F532FCCCF89B87E70169D8E
 magnet:?xt=urn:btih:34686DDE02B34031DE00E9F72DF4DC643EF2F806
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:34686DDE02B34031DE00E9F72DF4DC643EF2F806
 ```bash
 magnet:?xt=urn:btih:E0679A8CE378E31481545F011372034AFD27713B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Udemy, Lucas Bazilio | The Complete Lua Programming Course: From Zero to Expert!
 magnet:?xt=urn:btih:8B794290C4643E63E25A59490FF7E23BBAF1B88D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:8B794290C4643E63E25A59490FF7E23BBAF1B88D
 ```bash
 magnet:?xt=urn:btih:A988C18E4CAB410C894F0DF266A1743B86A0DCEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:A988C18E4CAB410C894F0DF266A1743B86A0DCEA
 magnet:?xt=urn:btih:9C859BBD591FAF1ECDABD86EB63CC35AEFA9635D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Microsoft Office 2021 — новый офисный пакет от корпор
 ```bash
 magnet:?xt=urn:btih:2DC6E19EB1BF044944B55954CC80CA5211AF418B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:2DC6E19EB1BF044944B55954CC80CA5211AF418B
 magnet:?xt=urn:btih:EF3C73B3E51FA8B254383ECE34DDBBAA5DA69D11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:EF3C73B3E51FA8B254383ECE34DDBBAA5DA69D11
 ```bash
 magnet:?xt=urn:btih:93C4184C60E621C086C421FAE16E9F922121A153
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ Banners of Ruin (2021) [Ru/Multi] (1.4.69/dlc) License GOG [Supporter Edition]
 magnet:?xt=urn:btih:AB3CDEA353630CDBC8FCA347CCF0E3C648B71984
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:AB3CDEA353630CDBC8FCA347CCF0E3C648B71984
 ```bash
 magnet:?xt=urn:btih:E1CA06A92E8F710947411787872180F68872FBCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Wo Long: Fallen Dynasty – это ролевой экшен от третьег
 magnet:?xt=urn:btih:B002BBB81B9ECC47DC74BF9EA8F35288A9A41049
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:B002BBB81B9ECC47DC74BF9EA8F35288A9A41049
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ Need for Speed: Undercover (2008) [Ru/Multi] (252136/dlc) Repack Decepticon [Col
 magnet:?xt=urn:btih:AF9C385AB2DC99D4401F63A680CD0F558E21A85F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ God of War: Ragnarok - Deluxe Edition (2022) PS4 [EUR] 9.0 (Backport до 5.05) 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ God of War: Ragnarok - Deluxe Edition (2022) PS4 [EUR] 9.0 (Backport до 5.05) 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ WordPress plugin - Oxygen 4.8 [PHP, SVG, CSS, JS]
 ```bash
 magnet:?xt=urn:btih:60E4D23A96805ABBA4CB6B11BA53D77AC5124C77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:60E4D23A96805ABBA4CB6B11BA53D77AC5124C77
 magnet:?xt=urn:btih:F555E05755287C1E6EAC255862E9DAD8DE679C2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Boushoku no Berserk / Berserk of Gluttony / Ненасытный берсерк 
 ```bash
 magnet:?xt=urn:btih:AC29F7802043A0BA348D5A4CAEC1E07377CE9270
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

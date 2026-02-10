@@ -22,6 +22,8 @@ YTDisBystro - сбока на основе zapret от KDS. Обеспечива
 magnet:?xt=urn:btih:5943AABDB0283EA566E1973AA021307F64DB680A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ S.T.A.L.K.E.R. 2 подошел к запретной зоне
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ S.T.A.L.K.E.R. 2 подошел к запретной зоне
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ S.T.A.L.K.E.R. 2 подошел к запретной зоне
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Call of Duty: Modern Warfare Remastered – переиздание Call of Duty 
 ```bash
 magnet:?xt=urn:btih:6FCF6D1F305BA6B480A3598461A5AD93B6FEC9E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:6FCF6D1F305BA6B480A3598461A5AD93B6FEC9E7
 magnet:?xt=urn:btih:F7B24D1BD7ABAF2CCFC58A606FAAD2B363F8BD78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:F7B24D1BD7ABAF2CCFC58A606FAAD2B363F8BD78
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:F7B24D1BD7ABAF2CCFC58A606FAAD2B363F8BD78
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Windows 11 24in1 (incl. LTSC) +/- Office 2024 by SmokieBlahBlah 2024.11.02 [Ru/E
 ```bash
 magnet:?xt=urn:btih:95C1A76771ACD5E370B27710A182B7A37E022145
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ ru-ru_windows_11_enterprise_ltsc_2024_x64_dvd_f9af5773
 magnet:?xt=urn:btih:0CDF907EFE9E53359C93D47DD37F1C6DB098F1CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:0CDF907EFE9E53359C93D47DD37F1C6DB098F1CF
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:0CDF907EFE9E53359C93D47DD37F1C6DB098F1CF
 magnet:?xt=urn:btih:1C7AD7C8917512B3FD585092729D11F4E0E3BF6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:1C7AD7C8917512B3FD585092729D11F4E0E3BF6B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:1C7AD7C8917512B3FD585092729D11F4E0E3BF6B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:1C7AD7C8917512B3FD585092729D11F4E0E3BF6B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:1C7AD7C8917512B3FD585092729D11F4E0E3BF6B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:1C7AD7C8917512B3FD585092729D11F4E0E3BF6B
 ```bash
 magnet:?xt=urn:btih:B16A893A6E830E6108B12440B60EAFD9F5115CEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2024.11.08 [Ru]
 magnet:?xt=urn:btih:B7933CDA2181A70A39B6C89002CF3801B5AA3E90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:B7933CDA2181A70A39B6C89002CF3801B5AA3E90
 ```bash
 magnet:?xt=urn:btih:66D91B8D303578FAF0A4DBABE6A336077E1E3D3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ GoodbyeDPI 0.2.3rc3 Launcher 9.2 [Ru/En]
 magnet:?xt=urn:btih:695C02A51E873F08CD7CD4CE5F81AA30DFFADF7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ Shadowsocks – это сетевой протокол шифрования пе
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ Shadowsocks – это сетевой протокол шифрования пе
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ Microsoft прекратит поддержку Windows 10 в октябре 202
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ Microsoft прекратит поддержку Windows 10 в октябре 202
 magnet:?xt=urn:btih:0FEE3B08D6D4207F54E8335D54A1421C4B97F0FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ magnet:?xt=urn:btih:0FEE3B08D6D4207F54E8335D54A1421C4B97F0FB
 magnet:?xt=urn:btih:2057B05B7D3C454848ACE8D7FD3946937A2F291C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:2057B05B7D3C454848ACE8D7FD3946937A2F291C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

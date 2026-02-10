@@ -22,6 +22,8 @@ VA - Chilling Process Vol.07 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 magnet:?xt=urn:btih:077EAAAD44ACBADBC23A2DEBB4908D31A296C84C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Divna Ljubojeviс / Дивна Любоевич & Melodi - Mysteres Byzantins (2
 ```bash
 magnet:?xt=urn:btih:DFD36353E02DE6F92DAD179209FB4421D3A75411
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:DFD36353E02DE6F92DAD179209FB4421D3A75411
 magnet:?xt=urn:btih:FEFEDA1D4F61FEB4D42A131B2369ADFC7A6A57D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ magnet:?xt=urn:btih:FEFEDA1D4F61FEB4D42A131B2369ADFC7A6A57D7
 magnet:?xt=urn:btih:681BBC7905F519CECF4A0B45D8A1F59A78E30062
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:681BBC7905F519CECF4A0B45D8A1F59A78E30062
 ```bash
 magnet:?xt=urn:btih:9A3790F6E2D67C1512856B52CACE556F97121910
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ Toccata In C Major, B. 564
 magnet:?xt=urn:btih:BD12A25ED340DB6E47FBCCF0FF80D700A77E692E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +193,8 @@ magnet:?xt=urn:btih:BD12A25ED340DB6E47FBCCF0FF80D700A77E692E
 magnet:?xt=urn:btih:BE2479C53FAE7FA73ED89C732F625BE293843332
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +218,8 @@ magnet:?xt=urn:btih:BE2479C53FAE7FA73ED89C732F625BE293843332
 ```bash
 magnet:?xt=urn:btih:ECA7E39098CDD972557A49228FBEF4753C8EB67E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -232,6 +248,8 @@ Yusef Lateef - Yusef Lateef's Detroit: Latitude 42º 30' Longitude 83º (1969) 2
 magnet:?xt=urn:btih:88473CB9753EDBC290F86DF456A514FAE39F0AB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +276,8 @@ magnet:?xt=urn:btih:88473CB9753EDBC290F86DF456A514FAE39F0AB9
 magnet:?xt=urn:btih:B69233D428C3B7295676730E663B01A81F1DB589
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -281,6 +301,8 @@ magnet:?xt=urn:btih:B69233D428C3B7295676730E663B01A81F1DB589
 ```bash
 magnet:?xt=urn:btih:E5F0A5600CC37EE01B04F3D170C05C217E50A9D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +329,8 @@ magnet:?xt=urn:btih:E5F0A5600CC37EE01B04F3D170C05C217E50A9D5
 ```bash
 magnet:?xt=urn:btih:B8ECFB5BFC7559227BDAC4E4B67B22DBC8AEB0B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +359,8 @@ Tom Holkenborg aka Junkie XL - Distance Between Dreams / Расстояние м
 magnet:?xt=urn:btih:0777982C371AA9710F74CE837D3038A827B1768B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +388,8 @@ magnet:?xt=urn:btih:0777982C371AA9710F74CE837D3038A827B1768B
 magnet:?xt=urn:btih:4F72BCAD3CC23D2517B25C6565ECBA54B647D9C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +413,8 @@ magnet:?xt=urn:btih:4F72BCAD3CC23D2517B25C6565ECBA54B647D9C3
 ```bash
 magnet:?xt=urn:btih:99C68A9D6CDF43CB82FFE564839F82396A421F92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +443,8 @@ magnet:?xt=urn:btih:99C68A9D6CDF43CB82FFE564839F82396A421F92
 magnet:?xt=urn:btih:6AE85CC23D0F7DCC522F5B5D10FE0B1F5A82848E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +468,8 @@ magnet:?xt=urn:btih:6AE85CC23D0F7DCC522F5B5D10FE0B1F5A82848E
 ```bash
 magnet:?xt=urn:btih:8FD053290A26C048088CAD07BBE2C11D432AD484
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +497,8 @@ magnet:?xt=urn:btih:8FD053290A26C048088CAD07BBE2C11D432AD484
 magnet:?xt=urn:btih:801737FBFFE04DFB6C7D68177A20F29332529648
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +522,8 @@ magnet:?xt=urn:btih:801737FBFFE04DFB6C7D68177A20F29332529648
 ```bash
 magnet:?xt=urn:btih:E20F67695FCBB3707D68EEF0E14220D70DEF7E78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +552,8 @@ magnet:?xt=urn:btih:E20F67695FCBB3707D68EEF0E14220D70DEF7E78
 magnet:?xt=urn:btih:0772B4202EF5F63561DEF0D1756D3F1F7EF31B92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +580,8 @@ VA - Billboard 2016 Year End Hot 100 Songs (2016) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:3A1DC1F0FDA0DFDEF883E4228E51C266F781AFA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +610,8 @@ Cкелетон. Кубок мира 2017-2018. 3-й Этап. Уистлер (�
 magnet:?xt=urn:btih:5059AC7B35C5D10A1CFCC510053DE11CB75E7EE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +635,8 @@ magnet:?xt=urn:btih:5059AC7B35C5D10A1CFCC510053DE11CB75E7EE0
 ```bash
 magnet:?xt=urn:btih:275D82B140ABB9E9E22DE58A9A1447823ABBB1D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +665,8 @@ Cкелетон. Кубок мира 2017-2018. 3-й Этап. Уистлер (�
 magnet:?xt=urn:btih:2CD510EA547C19B77029263978E6E0AA6A1DA488
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +694,8 @@ magnet:?xt=urn:btih:2CD510EA547C19B77029263978E6E0AA6A1DA488
 magnet:?xt=urn:btih:FA16F494EE158AB9B5B4E4D4DE77010C449D2D3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +719,8 @@ magnet:?xt=urn:btih:FA16F494EE158AB9B5B4E4D4DE77010C449D2D3E
 ```bash
 magnet:?xt=urn:btih:066F8B2F3D6F8FF6DB48455135F83E10839DBBC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

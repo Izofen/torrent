@@ -19,6 +19,8 @@ ACDSee Photo Studio Ultimate сочетает в себе поддержку с�
 magnet:?xt=urn:btih:B8A5CFACD7C2DA8CE99EF8BC57236CF2C8B5B85E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BluffTitler - программа для создания красивых тек
 ```bash
 magnet:?xt=urn:btih:841A665ACDF3A6FEED38323B3071F0D5A2B60150
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ VocalSynth 2 - захватывающий вокальный опыт, кото�
 magnet:?xt=urn:btih:BF5745294FA5316BDCB8F9D46817462C56AFF505
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ MediBang Paint Pro 29.1 [Multi/Ru]
 magnet:?xt=urn:btih:AD740EFB8B4F1FC34B6A2EECACC3918EA87328DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ E-Phonic - Invader 2 1.0.10 VSTi 3 (x64) [En]
 ```bash
 magnet:?xt=urn:btih:6C544D434F3C08837B5C4B1791BA2507DD1170D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ VoosteQ - Material Comp 1.7.1 VST, VST 3, AAX (x64) RePack by MOCHA [En]
 magnet:?xt=urn:btih:7E6D1EF3D052C39C92A5397DB5518E4E599D7785
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ ACDSee Photo Studio Ultimate сочетает в себе поддержку с�
 ```bash
 magnet:?xt=urn:btih:4EBDC759B0399A16198BCDEA37B302C832F86C6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ W.A. Production & K391 - Put Me On Drums 1.0.1 VST, VST3, AAX (x86/x64) [En]
 magnet:?xt=urn:btih:759164149889294DC5FBD9E1362A5E5E28F0D164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Pineapple Pictures - это легкая и не требующая устано
 ```bash
 magnet:?xt=urn:btih:13BDEED347DFF6E86E89566780A93BD1E0D2DE3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ iZotope - Nectar 3 Plus 3.8.0 VST, VST3, RTAS, AAX (x64) RePack by R2R [En]
 magnet:?xt=urn:btih:2BFA41965DD7D5AF3388F871B845BCEF2FB0A6D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ iZotope - Relay 1.3.0 VST, VST3, AAX (x64) RePack by R2R [En]
 ```bash
 magnet:?xt=urn:btih:340A1FA276CA463EE61C4BD44AFDA9095EB37415
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Credland Audio - StereoSavage 2.0.0 VST, VST3, AAX (x86/x64) [En]
 magnet:?xt=urn:btih:2A9B5C2E2A51EB2296ADDB3560BD9BA39D2D2FC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ W.A. Production CHORDS Pro + Notes 1.0.0 VSTi, VSTi3, AAX RePack by TeamCubeadoo
 magnet:?xt=urn:btih:FAAC2FDCCE8A534C31AA3A086269E16C8811CC65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Unfiltered Audio - Instant Delay 1.3.0 VST, VST3, AAX RePack by TeamCubeadooby [
 ```bash
 magnet:?xt=urn:btih:AD2E7064D05373EDEFE6661C6793CC4B7FAE9274
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ AliveColors — графический редактор, созданный ро
 magnet:?xt=urn:btih:699E69DCE9FA2B59D67013E48519083F231836F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ GOM Player Plus - мультимедийный плеер со множеств�
 ```bash
 magnet:?xt=urn:btih:2A477878EAB82AAD00E01F756CF37A709740135E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ Sketch Drawer – это инструмент редактирования из�
 magnet:?xt=urn:btih:13FB9FACB62DD2EA3140EED6B8606B0AE868609E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Adobe Substance 3D Designer 13.0.2 build 6942 [Multi]
 ```bash
 magnet:?xt=urn:btih:4C56B810303D11E925058B661C6131D263D5CBB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Fusion 18 — это самое современное в мире програ�
 magnet:?xt=urn:btih:8CB94948B8E253DC7248513A927334CF823E488D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Green Screen Wizard - это автономная программа для ра
 ```bash
 magnet:?xt=urn:btih:8769B8061DF783E63DCEA84E6C4C5596529428B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ MediaHuman Audio Converter - бесплатный аудио конвертер,
 magnet:?xt=urn:btih:6B4B8504873667ED4168A319C347E5C97C204FED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ PhotoInstrument - мощный и лёгкий в использовании р�
 ```bash
 magnet:?xt=urn:btih:E3CDE75F37339E393321C2BF3C9A985CDA7DEB77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ Cartoon Animator (ранее известный как CrazyTalk Animator) пр�
 magnet:?xt=urn:btih:C92A97B78442F78DE809C0CE1DB32294F84B5A75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ SOUND FORGE вот уже более 20 лет задает стандарты �
 ```bash
 magnet:?xt=urn:btih:40DF33A1593AD950A6B1B6FF368E3E28A428F4E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ iClone представляет собой программный продукт
 magnet:?xt=urn:btih:9D6E236895107BEBFD90CFBEC2E1E68BC1EE7D02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ PhotoDiva - программа для ретуши портретных фото
 ```bash
 magnet:?xt=urn:btih:DA4B756E2C89AB863D91535E657ADD3F2C768BA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

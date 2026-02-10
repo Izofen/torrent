@@ -1,3 +1,38 @@
+###  Публикация: 520529   (631431) от 09.07.2012
+
+VA - Top 100: Танцевальная летняя дискотека (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631431.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Шахзода - Все Только Начинается (3:19)
+2. Example - Changed The Way You Kiss Me (Radio Edit) (3:12)
+3. Нюша - Воспоминание (3:38)
+4. MMDance feat. Dj Smash - Суббота (Radio Edit) (3:20)
+5. Bobina feat. Винтаж - На-На-На (3:37)
+6. Полина Гагарина - Спектакль Окончен (Piastro & Dvj Storm Studio69 Extended Mix) (4:24)
+7. Ёлка - Около Тебя (Andry Makarov Remix) (3:48)
+8. Leonid Rudenko Feat. Alexander - Stranger (3:16)
+9. Dj Onegin - Пуля (3:27)
+10. Soda feat. DJ Niki - Города (Sandslash Extended Remix) (4:24)Жанр: PopПродолжительность: 05:58:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60DB19F24296957B1AAC647227067360ADE00271
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143923   (631494) от 20.06.2017
 
 VA - Diamond Euphoria: Night House Party (2017) [MP3|320 Kbps] <House, Club, Dance>
@@ -21,6 +56,8 @@ VA - Diamond Euphoria: Night House Party (2017) [MP3|320 Kbps] <House, Club, Dan
 ```bash
 magnet:?xt=urn:btih:2BB6F1989719F3CAF4F15DD5534AC713A0BDB718
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +85,8 @@ magnet:?xt=urn:btih:2BB6F1989719F3CAF4F15DD5534AC713A0BDB718
 ```bash
 magnet:?xt=urn:btih:15E5CEDCE5A6142A2B2A43EC0E9EBC1D647C8ED6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +121,8 @@ VA - Прохолодильные песни (2012) [MP3|127-320 кб/с]<Punk-R
 magnet:?xt=urn:btih:8E98D28CD63FF13F263332FC74C7070D1638379C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +155,8 @@ VA - Отдыхай с хитами Europa Plus (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:C00171A1F070F0245773CAC2E7751423018C41E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +191,8 @@ VA - Танцевальный клубный заряд (2012) [MP3|256-320 кб
 magnet:?xt=urn:btih:FAA16022E62A234282077954837FD9CAFAA06104
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +225,8 @@ VA - Авто Дискотека 50+50 Vol.1 (2012) [MP3|192-256 кб/с]<Pop,Da
 ```bash
 magnet:?xt=urn:btih:2951A14874C1DD3C11FD75AD9F2CCAE83A7E64EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +261,8 @@ VA - Muz-сливки хит-парадов (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:61036E06032782262F8BD2A0D8A5396B825BDD08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +296,8 @@ VA - A State Of Vocal Trance Volume 1 (2012) [MP3|320 кб/с]<Vocal Trance>
 magnet:?xt=urn:btih:A3F2BFBD1682F2B33C159DF28561ADACA1E83E54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +324,8 @@ VA - Drumsound and Bassline Sampler (2017) [MP3|320 Kbps] <Drum&Bass, Dubstep>
 ```bash
 magnet:?xt=urn:btih:E13B2F42E26A1DFDFCA23C5AF950D826D4DB9A2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +354,8 @@ VA - Best Of New Age (2018) [MP3|256-320 Kbps] <New Age>
 magnet:?xt=urn:btih:DEE26608D86D0AA9607616E92BE061064D17A597
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +383,8 @@ VA - Music News vol.179 (2022) [MP3|320 Kbps] <Pop, Soul, Dance>
 magnet:?xt=urn:btih:165BA69E04C61488BE796C923BDD41B1377C5745
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +411,8 @@ VA - Good To Be Alive (2019) [MP3|320 Kbps] <Blues, Rock Blues, Country>
 ```bash
 magnet:?xt=urn:btih:C449DBE0A652F2420DE51F9009725C80A4CEFC07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +447,8 @@ VA - Furious Dubstep Attacks From Evolinte (2012) [MP3|320 кб/с]<Dubstep, Dru
 magnet:?xt=urn:btih:E2C9FEEA1F36E57AED5E938B7D3BED986EF19DF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +481,8 @@ VA - Radio Dance Show (2012) [MP3|320 кб/с]<Pop,Dance>
 ```bash
 magnet:?xt=urn:btih:8F79520E9850AD50D919AD06C71628403246899E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +517,8 @@ VA - Новинки танцполов 3 Русский (2012) [MP3|256 кб/с]
 magnet:?xt=urn:btih:DACDBA7A58B8E76E616D9D96AC5DBA9751AED7B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +545,8 @@ VA - Дискотека RnB (2018) [MP3|256-320 Kbps] <R&B, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:8084185D313739546B960F2FFCDADAB9CC7B02D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +575,8 @@ VA - 80s Soul Classics (2019) [MP3|320 Kbps] <Soul, RnB, Funk>
 magnet:?xt=urn:btih:55719F058996647C77C0ED5793F3DB8DEAD02B74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +603,8 @@ VA - Live Limited Welcome On April (2019) [MP3|320 Kbps] <Club, Electro, Dance>
 ```bash
 magnet:?xt=urn:btih:BEB687EE837F60B94B26E931D5724BD70F6273E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +633,8 @@ VA - The Official UK Top 40 Singles Chart 05.04.2019 [MP3|320 Kbps] <Pop, Dance,
 magnet:?xt=urn:btih:70FCCB2347031BEAC5DF76CAE9D7FDCF467C97C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +661,8 @@ VA - Beach House Spring Party (2019) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:A23CC334C3067E283D08BB6D50E28370916DC981
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +691,8 @@ VA - Car Audio. Жаркий уикенд. Sound Clinic - Special Edition (2015)
 magnet:?xt=urn:btih:CE06FEFE1908BA505F2281A3DE483B0A679118DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +719,8 @@ VA - Ночка ноченька. Суперсборник русского ша
 ```bash
 magnet:?xt=urn:btih:720DBC0D68BE6B1F4BFD813E35534735B33C0C13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +749,8 @@ VA - Summer Dance (2015) [MP3|320 кб/с]<Dance, Club, House>
 magnet:?xt=urn:btih:A5F4939B307B3D3CF48E56FD418D077ADC5B58D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +777,8 @@ VA - Beatport Deep House Top 100 May (2015) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:65483400E804CFA0CB8168AC7917A3AF2151D42D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -724,32 +807,7 @@ VA - Disco Hits - Generation Two (2016) [MP3|306-320 Kbps] <Pop>
 magnet:?xt=urn:btih:60DE91AA94217B476E8E75518EC5B5D395607BC3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908207   (632484) от 15.06.2015
-
-Teddy Killerz - Countdown Remixes EP (2015) [MP3|320 кб/с]<Drum & Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Countdown (Davip remix) (04:39)
-02. Countdown (Engage remix) (04:30)
-03. Countdown (Rusty K remix) (04:52)
-04. Countdown (Gydra remix) (04:56)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:29:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C63772DA57614E745DE0413D8EB8FD5E433160FA
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

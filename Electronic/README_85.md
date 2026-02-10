@@ -22,6 +22,8 @@ VA - Nothing But... Trancetopia Vol. 11 (2024) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:A8D5782877674E687BB01F00D8EB392FFB63E2A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ VA - One Year Anniversary (2024) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:52D2165E30F7DA668E7F3BA280378C69F79DB751
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ VA - Selador Decade Mix (Mixed by Dave Seaman & Steve Parry) - 2023 [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:844D08D3813AC8D3FE22F050DA5D4877742E2609
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ VA - Музыка для сна и прослушивания перед сно�
 magnet:?xt=urn:btih:3B205BFE085203FC882D718EBEFCEC654DFF1D50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ VA - Winter Dance Covers 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electro
 ```bash
 magnet:?xt=urn:btih:3AE3266E4F7A0683588AF2D7F3CC94B023A24D80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ Antania - The God Complex (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal
 magnet:?xt=urn:btih:8ABEF74A9CD1651C19AD2599D90C169311253205
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +189,8 @@ Blank & Jones - Relax (Edition Five) (2010) 2 CD [FLAC|Lossless|image + .cue] <E
 ```bash
 magnet:?xt=urn:btih:109F6110BD63D3F66021F3EA23738B6BE038E438
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -205,6 +219,8 @@ VA - The Best Club Tracks 2024 [MP3|320 Kbps] <Dance, Club, House, Electronic>
 magnet:?xt=urn:btih:2E775C269F69A3582D8A80CDAF63E327B8042BD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +247,8 @@ L'ame Immortelle (L'Âme Immortelle) - Ungelebte Leben (2024) [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:129787F8746EF00EEFD384E23DC73329AE41E5D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +277,8 @@ Markus Schulz - Global DJ Broadcast New Year's Rehab (2024-01-04) [MP3|320 Kbps]
 magnet:?xt=urn:btih:550E7C0309C4EF9E9C526C3B03F9809FB55F5DE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +305,8 @@ VA - Redux Selection Vol. 1 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:59B4F7FC4435DC4C64C9EC78A38D6AC04A3FDEE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +335,8 @@ VA - Silent Shore Trance - Highlights 2023 (2024) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:D7901A99D5751B5C7D36B7B8DD9ED870F3B4E650
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +360,8 @@ VA - Armin van Buuren - A State Of Trance 1154 (2024) [MP3|320 Kbps] <Trance, Pr
 ```bash
 magnet:?xt=urn:btih:A167BB9887651A7F03AF0C5AD4F269EDC0B7D308
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +390,8 @@ VA - Levitated Trance - Highlights 2023 (2024) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:83D3548BCDC7C0DC4B1D869AE106FD29A82189E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +418,8 @@ Lemongrass - Mirror Of Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillo
 ```bash
 magnet:?xt=urn:btih:0B9B49E57CDD51CF638EF61EC25D2A9F06FF987D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +448,8 @@ VA - Trance Emotions Vol. 12 (Best of Edm Playlist Compilation 2024) (2024) [MP3
 magnet:?xt=urn:btih:538D40B85897D88CB0194C47BC50CCD58F935B85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +476,8 @@ VA - Trance Anthems 2024 [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:B85433D9BA5180FCA525769B0169C0E952B9CF7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +506,8 @@ Andrew Rayel - Find Your Harmony Radioshow (Yearmix 2023) (2024-01-03) [MP3|320 
 magnet:?xt=urn:btih:077C1A6C56120EE5038A8163986954C80A1099B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +534,8 @@ Laibach - 3 Releases (2023) [MP3|320 Kbps] <Industrial, Neo-Classical, Experimen
 ```bash
 magnet:?xt=urn:btih:826E7DB09DA54F61CCE93276C70F92347B9B78DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +564,8 @@ Laibach - 3 Releases (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Neo-Class
 magnet:?xt=urn:btih:854AAE2C9C25C67BA83470CCD25F85D7A5A04368
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +592,8 @@ Eric Prydz - Live @ Forever Stage Forever Midnight, Los Angeles Convention Cente
 ```bash
 magnet:?xt=urn:btih:3CD4E417FA47E7B0AA2ED15A15470FF33A26F0F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +622,8 @@ VA - Interplay Highlights 2023 - Extended Versions (2024) [MP3|320 Kbps] <Trance
 magnet:?xt=urn:btih:53347701E33DFE690CAA9A6800D693485AC62567
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +650,8 @@ VA - Keep It Trance Vol. 18 (2024) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:AFA41500571819618D495871223B9BBA198FFD5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +680,8 @@ VA - Ablazing Winter Sessions 2024 [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:BD030616E704915B04185F8FAD94830E6C420AB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +709,8 @@ draag me - lord of the shithouse (2023) [FLAC|Lossless|WEB-DL|tracks] <alternati
 magnet:?xt=urn:btih:66670C99FEF90966FB3DA41B234E9DB4BCF69076
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -687,6 +737,8 @@ Tiesto - New Year's Eve Best of 2023 Mix (Countdown to 2024) (2023-12-31) [MP3|3
 ```bash
 magnet:?xt=urn:btih:52BD1E23992DED2065F114285F8FDA599169F65C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

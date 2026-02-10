@@ -19,6 +19,8 @@ Lighting calculations / Расчеты освещения v6.1.4 Mod by Balatan 
 magnet:?xt=urn:btih:4ACBC1670D3C41C14C099647D1DB9CD345E14410
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Bria Mobile: VoIP Softphone v6.20.1 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:59B25CCC9C644556120ACAA18775BF9E86E7797B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ FBReader Premium v3.8.13 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:331FC068703A227F54C83034DAD42D73E0593AB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:331FC068703A227F54C83034DAD42D73E0593AB0
 magnet:?xt=urn:btih:9CAA7F7386AC88D48BD386978C6B6963DCE554ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ MetaProducts Offline Explorer Enterprise — мощнейшая программ
 ```bash
 magnet:?xt=urn:btih:B0835601BFC7292CB21FF8F87F6BD9D0CC8EF5F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:B0835601BFC7292CB21FF8F87F6BD9D0CC8EF5F1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Windows Manager - это универсальная утилита для Micros
 magnet:?xt=urn:btih:80B044E22EDBD4D1879E46B72DAF7AE8E9C7A211
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:80B044E22EDBD4D1879E46B72DAF7AE8E9C7A211
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:80B044E22EDBD4D1879E46B72DAF7AE8E9C7A211
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:80B044E22EDBD4D1879E46B72DAF7AE8E9C7A211
 ```bash
 magnet:?xt=urn:btih:21AF79B5E9DB400126678B8A4D8CDB299E9F30C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:21AF79B5E9DB400126678B8A4D8CDB299E9F30C4
 magnet:?xt=urn:btih:208214819E680EED9C7995779354BB8BEA676696
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:208214819E680EED9C7995779354BB8BEA676696
 ```bash
 magnet:?xt=urn:btih:D0A0AD72E0A0060DD20C1DC1E643695C134F3AC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ Yaplakal.com — популярное информационно-развлек�
 magnet:?xt=urn:btih:809B2669604F787AF9430AFB9528224252F00A5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ PictureThis - Plant Identification v5.4.0 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:70D222D6EE3E3CAEC7E94549BC6150861779B543
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ Daily Yoga - это платформа, обеспечивающая мента�
 magnet:?xt=urn:btih:25F1854CACDDE2347632E80B7C327E3B8F02E598
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Shazam (шазам) распознает любую песню за секунд
 ```bash
 magnet:?xt=urn:btih:7C52AC5B22C9DE052DB75F63C64469A9C7E0FD4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ HiPER Calc Pro v11.1.4 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:718970E625270CC8BB8F7F75987C0FD9DFD6D26C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Smart AudioBook Player Pro v11.4.6 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:28A264FC0656D5588A18FFEA569053888DED5249
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ Windows Manager - это универсальная утилита для Micros
 magnet:?xt=urn:btih:3183930EBCB2068462B48796248C6721D4C44D7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:46FAB75B7C53B4FE91D474D56A55A9B773611B6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Device Info — простое, но мощное приложение для An
 ```bash
 magnet:?xt=urn:btih:1762D5DC72A867E2D1AC56CA760EA82A510941E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Vanced — это модифицированная версия YT, котора
 magnet:?xt=urn:btih:D1FAC42FE2E618777356A79BB56C2931090CCABA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:EBFA5699E5977E88A672B536D9CB74FEC730A588
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ Wondershare PDFelement - программа для общего редактир
 magnet:?xt=urn:btih:617DBF25434110C6AA571C9D181B89053BE8F386
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ Mindroid является АВС (устройство аудио-визуаль
 magnet:?xt=urn:btih:5ACC132049CD835C1ECA34305F3FD7AC86041287
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ RUTUBE — официальное приложение одноименной о
 ```bash
 magnet:?xt=urn:btih:C440AF9E736C56D2101DDA6E134E6DA64368515B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1107614   (867990) от 22.02.2017
+
+Джереми Скейхилл | Грязные войны. Поле битвы - Земля (2015) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_867990.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издателя: Американский журналист Джереми Скейхилл посвятил свое расследование войнам, которые ведут по всему мира США. Более десяти лет он посещал зоны боевых действий - в качестве журналиста программы Democracy Now он побывал в Ираке, Афганистане, Сомали, Йемене и др. - брал интервью у солдат, бандитов, джихадистов, жертв, и добытые им материалы стали причиной (   Читать дальше...   )Жанр: Публицистика, История войнФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D503FCB9BFD2DF77614A5F1332FF2516E086BE19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1107582   (867995) от 22.02.2017
 
 Гэри Крист | Джаз. Великая история империи греха и порока (2017) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:92324763749E7F8C1992EBE2E5AF83B412BE723C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:92324763749E7F8C1992EBE2E5AF83B412BE723C
 ```bash
 magnet:?xt=urn:btih:916F26F18E75B273E91B1B16A5D2993B2A7FD512
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:916F26F18E75B273E91B1B16A5D2993B2A7FD512
 magnet:?xt=urn:btih:6625A3FFB94C93AFC2BA9F6D92D53DDD78A7D6D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:6625A3FFB94C93AFC2BA9F6D92D53DDD78A7D6D9
 ```bash
 magnet:?xt=urn:btih:3ED86697D357697E62187CC8187246DEDD8AC0D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:3ED86697D357697E62187CC8187246DEDD8AC0D8
 magnet:?xt=urn:btih:159993CE34AA944EFA4D5EDF92867A50918F756C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:159993CE34AA944EFA4D5EDF92867A50918F756C
 ```bash
 magnet:?xt=urn:btih:DD0419F73C6D0353A90C9FD998D78D264DA1A7C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:DD0419F73C6D0353A90C9FD998D78D264DA1A7C1
 magnet:?xt=urn:btih:BB0D24C24A834F0426801198ECD4864B2EC18B93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:BB0D24C24A834F0426801198ECD4864B2EC18B93
 ```bash
 magnet:?xt=urn:btih:ACD3ABDBD40E256D52E8C6BD460D0EE679A04F4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:ACD3ABDBD40E256D52E8C6BD460D0EE679A04F4A
 magnet:?xt=urn:btih:D51078FB5A73D78573E15984F64A046012D13E19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:D51078FB5A73D78573E15984F64A046012D13E19
 magnet:?xt=urn:btih:E9FFEE39C825BBE9FC2FB9BBD70CB543CD913139
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:E9FFEE39C825BBE9FC2FB9BBD70CB543CD913139
 ```bash
 magnet:?xt=urn:btih:006433339D3280B284A26EB92E6FE79EE5985093
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:006433339D3280B284A26EB92E6FE79EE5985093
 magnet:?xt=urn:btih:E604BDE44E80A04EB126B9D301BA8488334FAC19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:E604BDE44E80A04EB126B9D301BA8488334FAC19
 ```bash
 magnet:?xt=urn:btih:E5D840FEFBD0021D8695B9B44FF7CC88CBCC3C18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:E5D840FEFBD0021D8695B9B44FF7CC88CBCC3C18
 magnet:?xt=urn:btih:8ACD6E9226DBB8EDFF076A4E4198C722CFD0CF93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:8ACD6E9226DBB8EDFF076A4E4198C722CFD0CF93
 ```bash
 magnet:?xt=urn:btih:A7D439A658F6407190B1D606C91BC7B496F61DD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:A7D439A658F6407190B1D606C91BC7B496F61DD5
 magnet:?xt=urn:btih:D798FC27DC0EA152949777A4FC5BD4B816CDE5B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:D798FC27DC0EA152949777A4FC5BD4B816CDE5B0
 magnet:?xt=urn:btih:0C663A1E93897E81D0C2E83819CAA5A19481C826
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:0C663A1E93897E81D0C2E83819CAA5A19481C826
 ```bash
 magnet:?xt=urn:btih:3FC7AE9FE503ABCB915325AF6599ED21124500A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:3FC7AE9FE503ABCB915325AF6599ED21124500A3
 magnet:?xt=urn:btih:F5C8E554D624D7A2013282A779E0C57D62500D55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:F5C8E554D624D7A2013282A779E0C57D62500D55
 ```bash
 magnet:?xt=urn:btih:F2C8990B8ACAB2CE41F36A974CADD958FEDC2551
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:F2C8990B8ACAB2CE41F36A974CADD958FEDC2551
 magnet:?xt=urn:btih:4DC699EB4ED2C00BACCDCBD51AFE923573F204B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:4DC699EB4ED2C00BACCDCBD51AFE923573F204B5
 ```bash
 magnet:?xt=urn:btih:B8A4202EFCF7DEBE3567588B4E50317C57FC5925
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:B8A4202EFCF7DEBE3567588B4E50317C57FC5925
 magnet:?xt=urn:btih:EEA73ADD2A0F52AAB23BE2288F4FEB09BBDA89D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:EEA73ADD2A0F52AAB23BE2288F4FEB09BBDA89D2
 ```bash
 magnet:?xt=urn:btih:8AEE232CD82F45CC60287A2DA142C012F4A33164
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,31 +674,7 @@ magnet:?xt=urn:btih:8AEE232CD82F45CC60287A2DA142C012F4A33164
 magnet:?xt=urn:btih:FDBB8B86D6E5D4FEDE25536A72EC708A96C8C682
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374466   (869091) от 12.04.2020
-
-Игумения Евпраксия (Инбер) | Дарим тебе дыхание: Рассказы о жизни рядом со старцем Наумом (2019) [FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869091.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой небольшой книге автор, игумения Евпраксия, рассказывает о жизни рядом со старцем, лаврским архимандритом Наумом (Байбородиным; 1927–2017). Много всего удивительного, чудесного происходило постоянно, но разве можно привыкнуть к чуду… А ведь самым большим чудом был сам Батюшка.
-
-Отец Наум был живым примером святости, примером невозможного для человека наших (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8969A457FCC5D80A06D10AE12A756714215CC190
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

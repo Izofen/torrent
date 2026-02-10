@@ -19,6 +19,8 @@ Nice — игривый ретро-шрифт, который излучает �
 magnet:?xt=urn:btih:36B1EE5D8FE664E4AF1E8B54E1D9A78C72444540
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:36B1EE5D8FE664E4AF1E8B54E1D9A78C72444540
 ```bash
 magnet:?xt=urn:btih:A95693C020C8F94E568566FD678658170FEA7803
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:A95693C020C8F94E568566FD678658170FEA7803
 magnet:?xt=urn:btih:3617D1F3E21EA33E17C0EF6122A4670A1816650A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:3617D1F3E21EA33E17C0EF6122A4670A1816650A
 ```bash
 magnet:?xt=urn:btih:858B8272D8D58E2725A7134916C83545F8D82402
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ TigerCat — это специальный шрифт, который приме
 magnet:?xt=urn:btih:AF17F66F4898CD1F1F41643EB2EB18F96FF93F90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:AF17F66F4898CD1F1F41643EB2EB18F96FF93F90
 magnet:?xt=urn:btih:2135874F5AC87F8E295B62E76898CB36629DE02D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ magnet:?xt=urn:btih:2135874F5AC87F8E295B62E76898CB36629DE02D
 ```bash
 magnet:?xt=urn:btih:58ECB29E18849A1DD44E5CF32C681639DC8C3284
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:58ECB29E18849A1DD44E5CF32C681639DC8C3284
 magnet:?xt=urn:btih:E4658F6982F58DC99D1D418B232AB8B7771012B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Prox — гуманистический шрифт без засечек, пре
 ```bash
 magnet:?xt=urn:btih:4C5427EEABD98B8F7F538794950EC3DF72CE2049
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:4C5427EEABD98B8F7F538794950EC3DF72CE2049
 magnet:?xt=urn:btih:3F18CB071D94127C755DEBB84FF2986434F77ADA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:3F18CB071D94127C755DEBB84FF2986434F77ADA
 ```bash
 magnet:?xt=urn:btih:F41FD714512BAF715BAF2D238BBE9956BCCD6FA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:F41FD714512BAF715BAF2D238BBE9956BCCD6FA6
 magnet:?xt=urn:btih:CA61163F3065DE58A844A01B8C053D8C94F77A33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:CA61163F3065DE58A844A01B8C053D8C94F77A33
 ```bash
 magnet:?xt=urn:btih:231E53002CE3582549FEC262688266B6D1CABFDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:231E53002CE3582549FEC262688266B6D1CABFDD
 magnet:?xt=urn:btih:BB239871209A23FDB1A4AFE1F60BF2B0CCBC56C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:BB239871209A23FDB1A4AFE1F60BF2B0CCBC56C5
 magnet:?xt=urn:btih:758EF3351F56D2CFF15D6A570FCEDFEE2D85FC5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Schaberstein — это семейство шрифтов без засечек,
 ```bash
 magnet:?xt=urn:btih:CA5595A4F0FE2BDF85B0C9611BBBE722D5F5069D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Gonia — это семейство шрифтов с засечками, раз
 magnet:?xt=urn:btih:64CD2803221121F60144CF1ACA98ADFF50642A0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:64CD2803221121F60144CF1ACA98ADFF50642A0A
 ```bash
 magnet:?xt=urn:btih:50BADA46BBDC5E15D8F17F0237AC7658C9CD17D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:50BADA46BBDC5E15D8F17F0237AC7658C9CD17D9
 magnet:?xt=urn:btih:0A594839EB7C7C3260B3EF7967A90346DC009B83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:0A594839EB7C7C3260B3EF7967A90346DC009B83
 magnet:?xt=urn:btih:804C0C6717AD52370AA8424AFF4F2AAC375CC047
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ magnet:?xt=urn:btih:804C0C6717AD52370AA8424AFF4F2AAC375CC047
 ```bash
 magnet:?xt=urn:btih:740BBDEA72616307294BA05C3918C9A1A9D8CB84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:740BBDEA72616307294BA05C3918C9A1A9D8CB84
 magnet:?xt=urn:btih:70D5936CC5DBF27E341A5DDE38D5BD28DFC25FCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ Kindred Fall привносит четкий контраст, прохладн�
 magnet:?xt=urn:btih:715321379151FE87838F3824593683548A71C05E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ Doremy — это шрифт Display Serif, который производит 
 ```bash
 magnet:?xt=urn:btih:781A5DE9B1C04F282E2D412FFDA61E4700B3FD3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ Entrance — это ретро-округлый шрифт, который пе�
 magnet:?xt=urn:btih:86D8788B6537638678BC8CF03D81AAAF7CFAC419
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Vesley Serif Font, универсальный и стильный шрифт, с
 ```bash
 magnet:?xt=urn:btih:D52C101A2F5C8A61B2CB53FF558DDC1B6841AAC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

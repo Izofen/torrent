@@ -20,6 +20,8 @@ Linux Mint Debian Edition 7 (LMDE ) получил название "Gigi", ос
 magnet:?xt=urn:btih:864ACB15B81C720A3ABAA93224E21534A524A4DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Ctlos Linux — базируется на Arch Linux, iso образ собра�
 magnet:?xt=urn:btih:903D7F0C95BC8FEAA6CE0AEEE252855058F8801A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ DaVinci Resolve — единственное в мире решение для �
 magnet:?xt=urn:btih:1E63CFA05D14AE1DD9CF7709B385C0836CD76821
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ IDA Pro как дизассемблер способен создавать ка
 ```bash
 magnet:?xt=urn:btih:733A9365D45970146DA14226454CBD682431C699
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ VMware Workstation Pro™ позволяет техническим специа
 magnet:?xt=urn:btih:6A1FBD24467E4172B75013082CC7FB05C962CBEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Network Security Toolkit (NST) 30-11210 [x86_64] 1xDVD
 magnet:?xt=urn:btih:65293F81A700857712493BB845F75DCB02EF3132
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:65293F81A700857712493BB845F75DCB02EF3132
 ```bash
 magnet:?xt=urn:btih:3480C0530B9ABC01F2FA3E8D2012C219B1427806
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Sabayon 15.01 (KDE, XFCE, GNOME, SpinBase, Minimal) [amd64] 5xDVD
 magnet:?xt=urn:btih:1D769BDE43AEDF14E5B9F17EC42BC740148C38CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ Calculate Linux 17 [x86-64] 2xCD, 6xDVD
 magnet:?xt=urn:btih:2C0E0B576B301D5ADCD902926D452F866B1BA15F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ OpenMandriva Lx 3.01 PLASMA [x86-64] 1xDVD
 magnet:?xt=urn:btih:DD1AE29DD5945DFA05B44E26739C8278F877D597
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ Sabayon 17.01 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64
 ```bash
 magnet:?xt=urn:btih:22597236C99D5B343662309275CF9FB857148C4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ Calculate Linux 17 [i686] 2xCD, 6xDVD
 magnet:?xt=urn:btih:2FA18B8C44BAA024D02D73A17766DB13813A2576
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ BlackArch Linux 2020.01.01 [Хакинг, аудит, безопасность] 
 magnet:?xt=urn:btih:C1EB86A6F6C51C28B5AD9561C3C277F952B179A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:C1EB86A6F6C51C28B5AD9561C3C277F952B179A9
 ```bash
 magnet:?xt=urn:btih:21AE6B77668AC98895A1192B91F7DD1D6F2D26A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:21AE6B77668AC98895A1192B91F7DD1D6F2D26A9
 magnet:?xt=urn:btih:8B131E9A0D2915B166D30164A0BA11C2834388CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ Red Hat Enterprise Linux (Server, Workstation, Client) 7.2 [x86-64]
 magnet:?xt=urn:btih:C6961D166A4E7BF024FD63B1342897AE8A7BDD6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ Sabayon 16.01 (KDE, XFCE, GNOME, SpinBase, Minimal + теперь с MATE и ser
 ```bash
 magnet:?xt=urn:btih:E89314A189B2732BE160791E215D7289EB68A7E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ CentOS 7.6 (1810) [i386] 2xDVD, 1xCD
 magnet:?xt=urn:btih:961EE7368EFE3AAEFD320E97AB2DB54199E2B2B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ AV Linux имеет полностью настроенный Debian Linux с XF
 magnet:?xt=urn:btih:FE60BFC6817B52ED5B0D46DA6343D782278D96E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ KXStudio большая и часто обновляемая коллекция 
 ```bash
 magnet:?xt=urn:btih:B3D4AC820812E1A26153AD830CFE9148EF65B92D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +558,8 @@ magnet:?xt=urn:btih:B3D4AC820812E1A26153AD830CFE9148EF65B92D
 magnet:?xt=urn:btih:03A02445D1722016A6ADB54A1E9C60E3A47EAD72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ CentOS 7.6 (1810) [x86-64] 5xDVD, 1xCD
 magnet:?xt=urn:btih:2B773FF440F069EEA4BA55AFA932573EACF1DDDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ Univention Corporate Server 3.1 [i386 + amd64 +amd64 (U)EFI] (3xDVD)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +638,8 @@ elementary OS 6.1 Jolnir [x86-64] 1xDVD
 magnet:?xt=urn:btih:8AC8290650DB5AE9115C4B1640F312CA721F896E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ Debian GNU/Linux 11.2.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+2xCD
 magnet:?xt=urn:btih:C4F2253CD1E87286E1EDFE89540738FD96474131
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ Wowza Streaming Engine надежное, индивидуально настра
 ```bash
 magnet:?xt=urn:btih:8657B7568D4CB4E181F64E874CF1C4B60B684B48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

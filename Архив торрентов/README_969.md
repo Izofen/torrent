@@ -19,6 +19,8 @@ TunesKit Video Cutter 2.3.1 [Multi]
 magnet:?xt=urn:btih:E8970F77C2AD794CFCCCE01534D52F25A2982546
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:E8970F77C2AD794CFCCCE01534D52F25A2982546
 ```bash
 magnet:?xt=urn:btih:E7738BEBBBC791C607E9DB25BE9725A7963ED818
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Feeder - это полнофункциональное приложение дл
 magnet:?xt=urn:btih:14BD10166D6C280B2BE877E689A5A60ACA797E74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ MacClean360 - удобный и безопасный уборщик вашего
 ```bash
 magnet:?xt=urn:btih:096ECA82F61E1ABF39E1C6AD52502E333141DB7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:096ECA82F61E1ABF39E1C6AD52502E333141DB7D
 magnet:?xt=urn:btih:75BD00EE0C3FB03804FB01CBECB049F860418CA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ SideNotes - это боковая панель, которая заполнит 
 ```bash
 magnet:?xt=urn:btih:96642A5C26956C467144F195BA2C0C71D3964D70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ SnapMotion имеет два режима:
 ```bash
 magnet:?xt=urn:btih:2CC6529F57BE057EFB72B13C5664B5A851A177F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +217,8 @@ DJ Nike Twist - TranceWave 032 @ GTI Radio (26.04.2012) [MP3|320 кб/с]<Trance
 magnet:?xt=urn:btih:38B26417FE603AEB2ADD5C4CD7E4F4C82BEE68C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +245,8 @@ magnet:?xt=urn:btih:38B26417FE603AEB2ADD5C4CD7E4F4C82BEE68C1
 magnet:?xt=urn:btih:7771CCD20261DB2753BB853490237751E05A5652
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -254,6 +272,8 @@ Music Tag Editor - редактор музыкальных тегов помож
 ```bash
 magnet:?xt=urn:btih:3D926D1A97959E92EAE22AA66D74C85837277D3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -282,6 +302,8 @@ magnet:?xt=urn:btih:3D926D1A97959E92EAE22AA66D74C85837277D3E
 magnet:?xt=urn:btih:94541A3554A47985F8AD61358F800C2CC4F8ABB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +327,8 @@ Transfer - это надежное и полностью RFC-совместим�
 ```bash
 magnet:?xt=urn:btih:E7EF90D33CECB7F1EE802FF24DC0C038F8A43D2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -330,6 +354,8 @@ magnet:?xt=urn:btih:E7EF90D33CECB7F1EE802FF24DC0C038F8A43D2F
 magnet:?xt=urn:btih:98B3FCB344EFE40FA9C567D53851E40AA7C59DBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ ProFind 1.9.4 [En]
 magnet:?xt=urn:btih:8057C6C068F56876CF88E3E1DE68DD762DEF7F40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ magnet:?xt=urn:btih:8057C6C068F56876CF88E3E1DE68DD762DEF7F40
 ```bash
 magnet:?xt=urn:btih:524174C0CCDC969F8D82AFF0BB8A812153323AFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +436,8 @@ magnet:?xt=urn:btih:524174C0CCDC969F8D82AFF0BB8A812153323AFA
 magnet:?xt=urn:btih:C78B37F7530EF3773DF88297CF7B273B0309EEAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +466,8 @@ magnet:?xt=urn:btih:C78B37F7530EF3773DF88297CF7B273B0309EEAB
 ```bash
 magnet:?xt=urn:btih:12C37E23B9651FFF9C70F582B238DA5BB15D4F41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +502,8 @@ Excelsis - Kurt Of Koppigen (1998) [MP3|320 кб/с]<Dark Power Metal>
 magnet:?xt=urn:btih:2FEF820F27EB770EE70E0CC9BC2C6B8A51D4E34F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +527,8 @@ magnet:?xt=urn:btih:2FEF820F27EB770EE70E0CC9BC2C6B8A51D4E34F
 ```bash
 magnet:?xt=urn:btih:C9786C8273BA9F4E7823E0907734CA28EFE20160
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +554,8 @@ magnet:?xt=urn:btih:C9786C8273BA9F4E7823E0907734CA28EFE20160
 magnet:?xt=urn:btih:EB7D409F1DDC26FEA57BB345B7D1935A6F211AF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +579,8 @@ magnet:?xt=urn:btih:EB7D409F1DDC26FEA57BB345B7D1935A6F211AF4
 ```bash
 magnet:?xt=urn:btih:B693A7AF720CB65836512B9FE2D130AD9D3689C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +606,8 @@ PDF Reader Pro - это приложение для редактирования
 magnet:?xt=urn:btih:6635084D0A53077823CC143DCB6A8F0A2BA3EB6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +631,8 @@ magnet:?xt=urn:btih:6635084D0A53077823CC143DCB6A8F0A2BA3EB6B
 ```bash
 magnet:?xt=urn:btih:B50485FB1FC2F3083BE0F9DEB9CDE2C0D50A3613
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +658,8 @@ magnet:?xt=urn:btih:B50485FB1FC2F3083BE0F9DEB9CDE2C0D50A3613
 magnet:?xt=urn:btih:251D9B9282D320B93AF9DC325490FE99E7BD4026
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +684,8 @@ magnet:?xt=urn:btih:251D9B9282D320B93AF9DC325490FE99E7BD4026
 magnet:?xt=urn:btih:7BBA4BF230FCF8B1241D062C2DEFC484C7BC6F13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +709,8 @@ magnet:?xt=urn:btih:7BBA4BF230FCF8B1241D062C2DEFC484C7BC6F13
 ```bash
 magnet:?xt=urn:btih:13511D874525193F13BFE91E00D3C1C8D21463A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

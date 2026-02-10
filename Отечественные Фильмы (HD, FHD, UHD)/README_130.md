@@ -1,3 +1,30 @@
+###  Публикация: 1468550   (1016731) от 10.05.2021
+
+Свояки (2020) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016731.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм снят по мотивам одноименного рассказа Василя Быкова.
+1942 год, глухая деревня в тылу. Шестнадцатилетний Семка решает уйти добровольцем в партизаны. Ирина стремится удержать сына силой. Однако единственный, к кому она может обратиться за помощью – это ее племянник-полицай.Производство: РоссияЖанр: Военный, Драма, КороткометражкаРежиссер: Дмитрий КаргаполовАктеры: Нелли Попова, Прохор Гусев, Владимир Карпов, Евгений Халуев, Денис КозинецСубтитры: Английские (hardsub)Продолжительность: 00:17:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D40912F45FF12262C0735F2F79EDC03CB898B02A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224403   (1016811) от 09.05.2021
 
 Топор (2018) WEB-DL [H.264/1080p-LQ] (серии 1-2 из 2)
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:E75440DEC47F25FDA68D4B9826B193ABA6F6CD58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:E75440DEC47F25FDA68D4B9826B193ABA6F6CD58
 magnet:?xt=urn:btih:B40B516561EA9215B3CD818F6FD87E68DB282272
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +97,8 @@ magnet:?xt=urn:btih:B40B516561EA9215B3CD818F6FD87E68DB282272
 ```bash
 magnet:?xt=urn:btih:CCA8E37CBC0F84E9FA30FC8DC7BD7C874B367E5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +124,8 @@ magnet:?xt=urn:btih:CCA8E37CBC0F84E9FA30FC8DC7BD7C874B367E5F
 magnet:?xt=urn:btih:31D56102B813556FF73566BF12CB4660EA2A3FC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +149,8 @@ magnet:?xt=urn:btih:31D56102B813556FF73566BF12CB4660EA2A3FC7
 ```bash
 magnet:?xt=urn:btih:0492A8D113029A72821087F9FD4DF01CF201394C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +176,8 @@ magnet:?xt=urn:btih:0492A8D113029A72821087F9FD4DF01CF201394C
 magnet:?xt=urn:btih:E01AC621A2B0A74F92CCA4C026AE2829817D5E6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +201,8 @@ magnet:?xt=urn:btih:E01AC621A2B0A74F92CCA4C026AE2829817D5E6A
 ```bash
 magnet:?xt=urn:btih:39DE18F0BC236C2ED29FCE00ABF132D25D58FEE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +228,8 @@ magnet:?xt=urn:btih:39DE18F0BC236C2ED29FCE00ABF132D25D58FEE7
 magnet:?xt=urn:btih:DD432BCE1CDE5814FF7B2D201562837C17AB712A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +253,8 @@ magnet:?xt=urn:btih:DD432BCE1CDE5814FF7B2D201562837C17AB712A
 ```bash
 magnet:?xt=urn:btih:0336AE08E8BD926DD011BC87C85C4EA17C72E603
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +280,8 @@ magnet:?xt=urn:btih:0336AE08E8BD926DD011BC87C85C4EA17C72E603
 magnet:?xt=urn:btih:774DA3668943703153A2B5B8BB7D11BF420AE3C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +305,8 @@ magnet:?xt=urn:btih:774DA3668943703153A2B5B8BB7D11BF420AE3C2
 ```bash
 magnet:?xt=urn:btih:4AD0E78F0CDC245C71D633FA153CB73986F65219
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +332,8 @@ magnet:?xt=urn:btih:4AD0E78F0CDC245C71D633FA153CB73986F65219
 magnet:?xt=urn:btih:F2C455CE1D7B80B1CD4713A0368551502A9AC9CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +357,8 @@ magnet:?xt=urn:btih:F2C455CE1D7B80B1CD4713A0368551502A9AC9CD
 ```bash
 magnet:?xt=urn:btih:8BB0FA9AA7219900738718DFD202021D60DBCB49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +384,8 @@ magnet:?xt=urn:btih:8BB0FA9AA7219900738718DFD202021D60DBCB49
 magnet:?xt=urn:btih:970B5CF8C094CE66FBAC159DE3D44C1ECAD0AAA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +409,8 @@ magnet:?xt=urn:btih:970B5CF8C094CE66FBAC159DE3D44C1ECAD0AAA6
 ```bash
 magnet:?xt=urn:btih:CC8E60B73A117FCD03D739F3EF35FDB323944C88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +436,8 @@ magnet:?xt=urn:btih:CC8E60B73A117FCD03D739F3EF35FDB323944C88
 magnet:?xt=urn:btih:5DF6FE28F74ACEE78F407976EE814E67F8BFD24F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +461,8 @@ magnet:?xt=urn:btih:5DF6FE28F74ACEE78F407976EE814E67F8BFD24F
 ```bash
 magnet:?xt=urn:btih:C8652E180D9487CFC885AA2AE339BFC47A125160
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +488,8 @@ magnet:?xt=urn:btih:C8652E180D9487CFC885AA2AE339BFC47A125160
 magnet:?xt=urn:btih:48943AD05B64ECB5C0864034900150A563509722
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +513,8 @@ magnet:?xt=urn:btih:48943AD05B64ECB5C0864034900150A563509722
 ```bash
 magnet:?xt=urn:btih:925EA3F8A71F3FA92538B18EAE735045044B9446
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +540,8 @@ magnet:?xt=urn:btih:925EA3F8A71F3FA92538B18EAE735045044B9446
 magnet:?xt=urn:btih:2F2658D7271C887732FBA7FAB9E22FDFC4C5A62E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +565,8 @@ magnet:?xt=urn:btih:2F2658D7271C887732FBA7FAB9E22FDFC4C5A62E
 ```bash
 magnet:?xt=urn:btih:BE981D62764366D09C2DF2E1FD706FF8CD9F29EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +592,8 @@ magnet:?xt=urn:btih:BE981D62764366D09C2DF2E1FD706FF8CD9F29EC
 magnet:?xt=urn:btih:02CB2737B0AEA22F119A89EB6BE72C3DF0840E48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +617,8 @@ magnet:?xt=urn:btih:02CB2737B0AEA22F119A89EB6BE72C3DF0840E48
 ```bash
 magnet:?xt=urn:btih:124B79CA98B5EDC3E616424F92FAD8637CDC095B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +645,8 @@ magnet:?xt=urn:btih:124B79CA98B5EDC3E616424F92FAD8637CDC095B
 magnet:?xt=urn:btih:C0738F842DEA13D6462D3DF8D501C00CF8A8767A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,29 +671,7 @@ magnet:?xt=urn:btih:C0738F842DEA13D6462D3DF8D501C00CF8A8767A
 magnet:?xt=urn:btih:5930A98F4565A5B2396BDB302188F65D89C50D24
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463375   (1020387) от 18.04.2021
-
-Русский рейд (2019) BDRip [H.264/1080p-LQ] [US Transfer]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рейдеры подготовили идеальный план по захвату завода: инсайдеры, подробные чертежи территории, завязки на высшем уровне, компромат на собственников, хакерская поддержка. На их стороне внезапность и прекрасно подготовленная команда головорезов. Но захват оборачивается кровавой ловушкой, ведь банду нападающих ведет человек со своим представлением о целях рейда. Его (   Читать дальше...   )Производство: Россия / OKKO Studios, Radragon, SSB FilmsЖанр: Боевик, криминалРежиссер: Денис КрючковАктеры: Иван Котик, Александр Красовский, Илья Антоненко, Владимир Минеев, Никита Кологривый, Софья Озерова, Кирилл Сарычев, Дмитрий Кривочуров, Андрей Семенов, Алексей МаксименковПеревод: Не требуется (Русский) - Лицензия BD USAСубтитры: Английские (Full)Продолжительность: 01:43:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A758E255BAACF79BC3098815D6435BCE136C2FB
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ Might And Magic. Heroes 6 [Ru/En] (RePack/1.8.0/2 DLC) 2011 l R.G. Shift
 magnet:?xt=urn:btih:A0FF3D1F69CAD0F897B2851BF18D71A51ACB5166
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:A0FF3D1F69CAD0F897B2851BF18D71A51ACB5166
 magnet:?xt=urn:btih:584B064EEBDDA97885E9E90180BD4D68C7371B58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:584B064EEBDDA97885E9E90180BD4D68C7371B58
 ```bash
 magnet:?xt=urn:btih:ECE0276BD46AD7A04E1808FD7C4D12CD81501528
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:ECE0276BD46AD7A04E1808FD7C4D12CD81501528
 magnet:?xt=urn:btih:511F13D7B84A5AF2D5AACD595FB7942DA2DDB704
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:511F13D7B84A5AF2D5AACD595FB7942DA2DDB704
 ```bash
 magnet:?xt=urn:btih:E6B5D8F51A27D4F82773B4C98B82FF1E86F133D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:E6B5D8F51A27D4F82773B4C98B82FF1E86F133D7
 magnet:?xt=urn:btih:2548D849B08F2E02FC58E94697983CE92023C0B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:2548D849B08F2E02FC58E94697983CE92023C0B0
 ```bash
 magnet:?xt=urn:btih:2E9939CF1E8A0B676B0E1BD332DB7A65BF4B4DB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Q-Dir позволяет получать быстрый доступ к час�
 magnet:?xt=urn:btih:0A4B14C4BF54A961357E626532B67B682F1671D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ One Punch Man / Ванпанчмен [2015, TV, 12] HDTV 720p rus
 ```bash
 magnet:?xt=urn:btih:C331736C59F5C81510A4735F2CC8F9C77E9E7A3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:C331736C59F5C81510A4735F2CC8F9C77E9E7A3E
 magnet:?xt=urn:btih:4ACD5A842667DC7D7B3C7FF9F68D998891C5B239
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:4ACD5A842667DC7D7B3C7FF9F68D998891C5B239
 ```bash
 magnet:?xt=urn:btih:537F125DCBBF0CEEB920B70A1ACD57F878DA1900
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ Papik - Sounds For The Open Road Vol.2 (2020) 2CD [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:315AB24C9DD790BC244E964F37DC1BF5C5E1D80F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ JETE - Заживое (2021) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:B80F9B86448AA3C5B3A9F19A797824D2D6F41195
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ Laura Pausini - Laura Xmas (2016) [AAC|256 Kbps]<Christmas, Pop, Jazz, Easy List
 magnet:?xt=urn:btih:52FF1352AFD9FF1412420CB19DAF032A15D215F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ W.D.I | Веб-дизайн Интенсив (2015) PCRec [H.264]
 magnet:?xt=urn:btih:7642402BE5682C28554F0D5F286757739DA892D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:7642402BE5682C28554F0D5F286757739DA892D1
 ```bash
 magnet:?xt=urn:btih:B0414DF78A38D17E6885732715124D66E428B8C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:B0414DF78A38D17E6885732715124D66E428B8C6
 magnet:?xt=urn:btih:D082ECBED9368A24545D197BE7C2BDF62AEB3701
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ Leviathan: The Last Day of the Decade / Левиафан: Последний д�
 magnet:?xt=urn:btih:901BE513F31FD28DE41B3FF5E6BE89DBB3F5BB70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ magnet:?xt=urn:btih:901BE513F31FD28DE41B3FF5E6BE89DBB3F5BB70
 ```bash
 magnet:?xt=urn:btih:0CE45EF97326B85B7ADA61072A62D61D07D0C2B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +533,8 @@ Jeffery Liberman - Synergy
 magnet:?xt=urn:btih:14282B9AD73636E04E2FB004CD272F2B0166A626
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ Skillbox, Александр Доброкотов, Александр Жадан
 magnet:?xt=urn:btih:5CC954EC3CDE61B3C9B6AFD5FDF11A684E449ECF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ magnet:?xt=urn:btih:5CC954EC3CDE61B3C9B6AFD5FDF11A684E449ECF
 ```bash
 magnet:?xt=urn:btih:C386A7BD2232D5804F43F832BE545D8517FFF1DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +615,8 @@ VA - Options Remake Of Tracks December -B- (2018) [MP3|320 Kbps] <Electronic, Cl
 magnet:?xt=urn:btih:01B35E8E40C5026176A76C084A03198B29E60B8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +640,8 @@ Warcraft III - самая популярная стратегия в реаль�
 ```bash
 magnet:?xt=urn:btih:1C5CF697E9F27EAFAA9177F8A6851861528F9611
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +673,8 @@ magnet:?xt=urn:btih:1C5CF697E9F27EAFAA9177F8A6851861528F9611
 magnet:?xt=urn:btih:9AE4A2A4B3F74165C782534D2AFD1838894DEA9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +698,8 @@ magnet:?xt=urn:btih:9AE4A2A4B3F74165C782534D2AFD1838894DEA9C
 ```bash
 magnet:?xt=urn:btih:0D803BED1CDC616FA9130FEF4D5763FD62C30A84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

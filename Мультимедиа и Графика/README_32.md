@@ -20,6 +20,8 @@ FFmpeg Batch AV Converter - бесплатный универсальный ау
 magnet:?xt=urn:btih:1DF6E2F5C2D4E5E2E96E0B55F386DA18BE718418
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Axialis IconWorkshop - мощная программа для создания �
 ```bash
 magnet:?xt=urn:btih:87929BA94A8CB325322D0515592ACE3C9DCF3089
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Vip3D - это программа для 3D-проектирования отк�
 magnet:?xt=urn:btih:B337595949DA0C42F9E64C2AF1F80B3E09FD5902
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Cherry Audio - Trident 1.0.10 Standalone, VSTi, VSTi 3, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:8DC97771F1C381478780289B0AB5DF0CCE973A99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ UJAM - BEATMAKER 3 3.0.2 VSTi, VSTi 3, AAX (x64) RePack by TCD [En]
 magnet:?xt=urn:btih:DF20A164D9ADFC9897EA1B538B41D5DFF7DE9FCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ ON1 Photo RAW 2026 — лучший редактор фотографий в ф�
 magnet:?xt=urn:btih:6DD69BEEA1DB2DB59F378337E8814BEC217ECAB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Icecream Image Resizer - это программа, созданная для и
 ```bash
 magnet:?xt=urn:btih:F3D7BEF54276EEE4E10CC251B369155FD2913796
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Newfangled Audio - Recirculate 1.0.2 VST, VST 3, AAX (x64) RePack by R2R [En]
 magnet:?xt=urn:btih:4F98477352D60E2AEE70D9C522FE94FA76BFE91F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Native Instruments - Guitar Rig 7 v7.0.2 Standalone, VST 3, AAX (x64) [En]
 magnet:?xt=urn:btih:521B947D6E9E551D8943D503BDF86D2E0BB143F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Eventide - Blackhole Immersive 1.1.3 VST3, AAX (x64) RePack by R2R [En]
 ```bash
 magnet:?xt=urn:btih:3BCCD6CC591C9CCB79A46ECB7886E6B30C5DD41D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Sound Particles - это иммерсивное звуковое програм�
 magnet:?xt=urn:btih:FBC505E97F8E330F8FDFCBF618B527F887B6094D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ JMG Sound - это команда разработчиков из одного �
 ```bash
 magnet:?xt=urn:btih:6014A5E59A53C442352881793DC38017D25CE305
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ Strawberry - музыкальный плеер и органайзер музы�
 magnet:?xt=urn:btih:9689925EAEC52274DD05249C932E238D6E8C3723
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ PSPaudioware - PSP Plugins Bundle 01.2024 VST, VST3, AAX (x64) RePack by R2R [En
 ```bash
 magnet:?xt=urn:btih:AAF99B18BC51ADDE7FA8443E1284728B98F3BC7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ FormatFactory - многофункциональный конвертер раз
 magnet:?xt=urn:btih:FDC31B14F39E5FE0F8D3F7F8F4ADC5597E2DDB66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ Sonic Academy Plugins Bundle 2023.12 VST/VSTi, VST 3/VSTi 3, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:D310B6F204DDD7B1819953478B6D9304D48ED771
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ Fakin The Funk - это усовершенствованный инструме�
 magnet:?xt=urn:btih:BC2AD94B765A7AEBCD2452355B44F8570D4CEACF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ Spectrasonics Omnisphere Software 2.8.6c, Patch 2.8.2c, Soundsource 2.6.2c Libra
 ```bash
 magnet:?xt=urn:btih:C87E5AE65C0341FDA2929B757BE7A099B70291B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ RX уже давно является популярным пакетом для
 magnet:?xt=urn:btih:CCA592DE49CE96A60291E4EFD06FEA03BC7002A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ Mandelbulber- экспериментальное приложение, разр�
 ```bash
 magnet:?xt=urn:btih:CD8F5E22CC67ED9B2D09A7D8B4A3D4968842EDC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ Stemroller является полностью (   Читать дальше...
 magnet:?xt=urn:btih:013F58D6358B43D4D19A90DCAEBC5CE6AF533997
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ Xvox Pro поставляется с 6 плагинами для оптимиз�
 ```bash
 magnet:?xt=urn:btih:8A78B354831360BCBB0CD7E76C24BA68B61696F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ Nuro Audio - Xrider 1.0.1 VST 3 (x64) RePack by AstroNommy [En]
 magnet:?xt=urn:btih:CFDE90E41261223F6D6B803030C14640AF257FDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ Boilsoft Video Joiner -  простой и удобный в использов�
 ```bash
 magnet:?xt=urn:btih:884A5F0EBEBF97A5038501497EF341A452D2D5FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ Boilsoft Video Splitter - это мощный инструмент для обр
 magnet:?xt=urn:btih:FB235878A84D94A9B0CA89B2FEDD841CE751845B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ HitPaw Video Converter — это премиальный инструмент д
 ```bash
 magnet:?xt=urn:btih:CA08995CB2F9CBED881544EB1ED6E68197E8D4E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

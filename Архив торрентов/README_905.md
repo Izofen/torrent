@@ -19,6 +19,8 @@ Capture One - один из лучших профессиональных кон
 magnet:?xt=urn:btih:CACB7AB2E1907C248E280E9C27B2A5B337E8CC29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:CACB7AB2E1907C248E280E9C27B2A5B337E8CC29
 ```bash
 magnet:?xt=urn:btih:F5A812547213DC8628FDF2616D8BADEAA00D02EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ ES File Explorer (File Manager) — это полнофункциональны�
 magnet:?xt=urn:btih:A505A2191E2D5AAD5C8A1A60C320D4B949AB5AEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:0023374D295908195B9CE44467C9F4ACB825F99E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Winaero Tweaker - системная утилита для настройки в
 magnet:?xt=urn:btih:B71210841CD530A00F5073FF8468589DCBF45268
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ AVS Media Player - полнофункциональный программный
 ```bash
 magnet:?xt=urn:btih:CD7DACA9979BD50851854EEFF516D228D62F72A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Reg Organizer® - это многофункциональная программ
 magnet:?xt=urn:btih:21DD79A792F217BBD3B3292493C1FB9354C18B36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ WinNTSetup (Windows Setup Tool) – программа для создания �
 ```bash
 magnet:?xt=urn:btih:4CA1837A4A3A83F38A74F5A1EEC8252EDCB9ABBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ DxO PhotoLab Elite 7.4.0 build 151 RePack by KpoJIuK [Multi]
 magnet:?xt=urn:btih:06F00357F301C3C1A9D85B15E8B7891222057CBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Google Earth Pro 7.3.6.9750 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0474A7790E65839792A51E1E5C16D39110C60E4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Sandboxie - yтилита для контроля за работой разли
 magnet:?xt=urn:btih:5D09B9BC1FEEF50E8696D02280990100AC9E01C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Icecream Slideshow Maker - это приложение для создания �
 ```bash
 magnet:?xt=urn:btih:8365B6A8376E38A0DCF3D252E989F5A97385C8D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 magnet:?xt=urn:btih:B21240A39C5292AF3D70AD67A223E23DD0170D14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 magnet:?xt=urn:btih:64917104BC2A22BA2AC1E52FE607252EF1A386A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ IceCream Ebook Reader Pro 6.46 [Multi/Ru]
 magnet:?xt=urn:btih:0A8D21C0B231A7171DF6F70F3ADE936EBFDBD75A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Icecream Video Editor - простой редактор видео для Window
 ```bash
 magnet:?xt=urn:btih:C8440A0AFE2D2E65140A6F0A3FD043FBC196F154
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ XYplorer – удобный многовкладочный файловый ме
 magnet:?xt=urn:btih:6D8D8B7B5FCD3A1BE3D2169C39D714CA327925A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ QownNotes – менеджер заметок, позволяющий четко
 ```bash
 magnet:?xt=urn:btih:A3A1E41BB759B1D09CDFC6E1CEBCC25EF4354638
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Master PDF Editor — простая, но эффективная програм
 magnet:?xt=urn:btih:36FF217E72EF4AF26D66F5DDA53136A7764956B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ WinCatalog - это простая в использовании програм�
 ```bash
 magnet:?xt=urn:btih:C7DDDB02FAEDF61B9F2C8A8EBBC20B693C980B49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ KStars - бесплатное, с открытым исходным кодом, 
 magnet:?xt=urn:btih:F594066526AA75D02C83460B96DFAEF33B540148
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:935ACC91F1FC60F1E5057B617A17DE8F42CD8ED9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +590,8 @@ EF Commander  — замечательный двухпанельный файл
 ```bash
 magnet:?xt=urn:btih:5304A05117FA034990C9D1FB1696E2E9784D4A14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:1BE8D934C560BE760807E4B687FB541C0ED68909
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ WizTree - небольшая и полезная утилита для опре�
 magnet:?xt=urn:btih:5FC999C65325D2CC82C4EBC558C84B5E7ADAE3ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:7AA4EDB464589D530006441B5E0E928D6CC489CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@
 magnet:?xt=urn:btih:D07987C091DF178F56CEABC756EDE5BC6F887DDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:D07987C091DF178F56CEABC756EDE5BC6F887DDE
 ```bash
 magnet:?xt=urn:btih:26C68813A1268ECCA1F78149D6A55CB61B250690
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ Dave Hole - Outside Looking In (2001) [FLAC|Lossless|image + .cue] <Blues Rock, 
 magnet:?xt=urn:btih:88FDF6ACAC5BAE338B13EB4C99E68AFE0D932E67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:88FDF6ACAC5BAE338B13EB4C99E68AFE0D932E67
 ```bash
 magnet:?xt=urn:btih:DFF7FF045691987DB05C577417D78DD6FDC70ACA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ Rob Orlemans & Half Past Midnight - Libertyville (2007) [APE|Lossless|image + .c
 magnet:?xt=urn:btih:D593573B128F5C48791C74F8EC54FC537E9B3545
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:D593573B128F5C48791C74F8EC54FC537E9B3545
 magnet:?xt=urn:btih:0DB0A833330D506FFD3AA2AFD10B48C9B83C6CD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:0DB0A833330D506FFD3AA2AFD10B48C9B83C6CD9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ Autumn's Child - Angel's Gate (2020) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
 magnet:?xt=urn:btih:B27308700829081DD1E6B85798CFF510EF715901
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:B27308700829081DD1E6B85798CFF510EF715901
 ```bash
 magnet:?xt=urn:btih:686685FC31F2C21616C5F46693F473E0D046942C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:686685FC31F2C21616C5F46693F473E0D046942C
 magnet:?xt=urn:btih:9AD06810A1214DCBA30A157091CAB8D622CA2610
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ LaserPipe - робот-змея, который может сваривать т
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ LaserPipe - робот-змея, который может сваривать т
 magnet:?xt=urn:btih:E4E81D7D7FD42B1C84D22E4D512ADB6E79A50680
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:E4E81D7D7FD42B1C84D22E4D512ADB6E79A50680
 ```bash
 magnet:?xt=urn:btih:A49C7EF7D938998CD4A11928D766EB9F48C5A772
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ DigitalPuffy - Technology (2016) EP [MP3|320 Kbps] <Breaks>
 magnet:?xt=urn:btih:7A6A1821C2B6CE506671210A57B94FDF31A3E10D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:7A6A1821C2B6CE506671210A57B94FDF31A3E10D
 magnet:?xt=urn:btih:F1D97E74E2C2653F47C448A8A5C8AC92CAEBB149
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:F1D97E74E2C2653F47C448A8A5C8AC92CAEBB149
 ```bash
 magnet:?xt=urn:btih:AB93A24AA285A44E69151CF5363442BE64010BEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:AB93A24AA285A44E69151CF5363442BE64010BEA
 magnet:?xt=urn:btih:8650F82ED36E1AF02A899C19B4A88E77F5216571
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ magnet:?xt=urn:btih:8650F82ED36E1AF02A899C19B4A88E77F5216571
 ```bash
 magnet:?xt=urn:btih:37C5AB99D72128791BF03EB62699714E4534DEB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ Apparent Symmetry - Enveloping White Noise (2015) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:B198D00763BF7C44DA2DACB1AA278696D57BACF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:BA251483DB37009AD53AEFF0E5E439110A9146B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +591,8 @@ VA - Truly Passionate Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lo
 magnet:?xt=urn:btih:1DB0429E4DE80E3DCCFE6938CC6570DC7A8751B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +620,8 @@ VA - How Low Can You Go? (1993) Timeless Records[FLAC|Lossless|image + .cue] <Ma
 magnet:?xt=urn:btih:1149FA4B7DFC892CF0D40ECD3A0382420A5506DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +646,8 @@ magnet:?xt=urn:btih:1149FA4B7DFC892CF0D40ECD3A0382420A5506DC
 magnet:?xt=urn:btih:E4F80AF4130E30CBCB8F31B1C321B4DCD6DD63C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +671,8 @@ Yuki – Ad Blocker+ for YouTube - приложение для блокиров�
 ```bash
 magnet:?xt=urn:btih:B046FA119E2B6919E8C40363FBE9BCAA39651588
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +700,8 @@ J.J. Johnson - Quintergy: Live At The Village Vanguard (1988) 1991, Island Recor
 ```bash
 magnet:?xt=urn:btih:140290B57C816E6132254054342B70C18AE4A18F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

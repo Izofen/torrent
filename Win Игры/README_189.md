@@ -19,6 +19,8 @@ Ruindog переносит вас в причудливое будущее, гд
 magnet:?xt=urn:btih:00B026490656F6F6BA4B6B50202C4168885C5C83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Undead Inc. бросает вас в жестокий мир медицинск�
 ```bash
 magnet:?xt=urn:btih:09DCD09364C8C1283869362BC769E699FB899CDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ INDIKA - игра от третьего лица с историей о стра
 magnet:?xt=urn:btih:5FBD419F8957BBCF71D5F479AFBBC04E082DB499
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Bridge Curse 2: The Extrication - продолжение одноименн�
 ```bash
 magnet:?xt=urn:btih:05DA5E27C7E54993DB77116C1AFDF9F1724EEC6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Gift (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:F76D8329FFAEA9BEBE6BEA6E79E8EED39D992D12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Bloody Heaven 2 – в основе сюжета заложена популяр
 ```bash
 magnet:?xt=urn:btih:3E438D46EE3DE538CE3A52F863382D4818940D3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ King Arthur: Legion IX представляет собой сочетание п
 magnet:?xt=urn:btih:AF561542D9403438FDC58CBDE37E40F0C6F833D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Captain Goose (2023) [Ru/En] (1.0) Scene Razor1911
 ```bash
 magnet:?xt=urn:btih:D599B825FD5AE1426CBD02817C76C0C09BEB8803
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Legend of Heroes: Trails of Cold Steel 4 – продолжение леге
 magnet:?xt=urn:btih:60C3C8E81761D503E4EF1BAA3EE4EE4EA7763B3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Clive 'N' Wrench повествует о приключениях зайца К�
 ```bash
 magnet:?xt=urn:btih:084BFCAFAFDAC75904E5136B136FE1996094A5E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Mists of Noyah (2022) [Multi] (1.0.2) Scene Razor1911
 magnet:?xt=urn:btih:C6E08C87B0BAFBF185163BCB0DB6411FA4539F58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Savant - Ascent REMIX предлагает отправиться в захва�
 ```bash
 magnet:?xt=urn:btih:8851D3E8DFDE54F67A2EB2EAC78AE7E80FF50837
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Alba: A Wildlife Adventure (2020) [Ru/Multi] (0.90) License GOG
 magnet:?xt=urn:btih:011C415B8F7D0CD64479FFA3A4AD3E973E7D859B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Hand In Hand - 2D платформер-головоломка с разделе�
 ```bash
 magnet:?xt=urn:btih:A2E1A6B64DC501300CF547B15FC5411BBF9299C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ City Legends 4: The Witness in the Rye (2024) [Multi] (1.0) Unofficial [Collecto
 magnet:?xt=urn:btih:222B263E23A920BD246DE4BF6C4386002EF5AFB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Battle vs Chess (2011) [Ru/Multi] (1.2/dlc) License GOG [Grandmaster Premium Edi
 ```bash
 magnet:?xt=urn:btih:2A4A895A924FBA4A500C1AE3FA048C6DEE32C5AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ The Bridge Curse 2: The Extrication - продолжение одноименн�
 magnet:?xt=urn:btih:9935FD2DE7F428BC6C2F033DB993B8F6D506208B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Strongloween: The Escape (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:83D19EF4470A6BCF0B1F1E65A2E0F2F510A4CDF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Ira (2023) [Multi] (1.0.10) License GOG
 magnet:?xt=urn:btih:EA0EE169B8EB5C72B799D0A6D1F2AE3D5F9F3E86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Gone Home (2013) [Ru/Multi] (2020-01-28) License GOG
 ```bash
 magnet:?xt=urn:btih:7A72EE7523EB3D247E903AF4001F28C85ADDB86E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ MEGATON MUSASHI W: WIRED бросает вас в кабину гигантск�
 magnet:?xt=urn:btih:E06025633F0BAA990FF849EDEFF7AF9EDC04BB73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Phantom Fury (2024) [Ru/Multi] (17384) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:C7C5E0C36000CBA8A2C481B036107FDC4C21EAC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ The Dwarf погружает вас в мир, овеянный легендам
 magnet:?xt=urn:btih:468D120BF7A1F2629A2E22372731A285CF78B59C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Last Train Home - это интригующий тайтл, погружающи
 ```bash
 magnet:?xt=urn:btih:744AEF6879A5E5FFC795DC6D5012102811D14DD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ King Arthur: Legion IX представляет собой сочетание п
 magnet:?xt=urn:btih:A1C09EC51345F80516F8A31C1772811A21216D11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Gift (2024) [Ru/Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:FCC3233C25BD553AA6ABAE3495189EE10622F2A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

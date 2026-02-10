@@ -21,6 +21,8 @@ CD 02 - Out Of Water 2023Жанр: Progressive-Rock, Heavy-BluseПродолжи
 magnet:?xt=urn:btih:FFEA7AC89E16D3B9972A962200343E0622200F1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:FFEA7AC89E16D3B9972A962200343E0622200F1E
 magnet:?xt=urn:btih:5FF6044DA923EA112122584270317DEB78E43F64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:5FF6044DA923EA112122584270317DEB78E43F64
 magnet:?xt=urn:btih:386C40ABC70C406421A854D3D79E7EA00E3B9A26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:386C40ABC70C406421A854D3D79E7EA00E3B9A26
 ```bash
 magnet:?xt=urn:btih:B3CA0069B850DBFEBE46BE2279DE2540C95462E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Atack - Nine Lives (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Modern rock wit
 magnet:?xt=urn:btih:BFD9955AE5B62AFE0D03D8A72461770459808331
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ VA - De Top 100 Aller Tijden 1988 (RadioVeronica) (2017) [MP3|320 Kbps] <Electro
 magnet:?xt=urn:btih:785F2A0AF8E543215F3DEB087B4F6063288D992F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:785F2A0AF8E543215F3DEB087B4F6063288D992F
 magnet:?xt=urn:btih:A71154981C00D77112AB627C4E1841F844B95ED7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:A71154981C00D77112AB627C4E1841F844B95ED7
 ```bash
 magnet:?xt=urn:btih:9CFC4BCA3530F371F5378CC12CB7BE46425DD74C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:9CFC4BCA3530F371F5378CC12CB7BE46425DD74C
 magnet:?xt=urn:btih:AD7BFB5D928BC9DA3AB66072A841E61361FDF4D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ Red Faction (2001) [En/Ge] (1.21) License GOG
 ```bash
 magnet:?xt=urn:btih:7A9FA8137B4295CB6D13C654C83BC3B1B2B1B68A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:7A9FA8137B4295CB6D13C654C83BC3B1B2B1B68A
 magnet:?xt=urn:btih:B0605E85A21E329CD7FACCCDDDE9519197D8ADA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:B0605E85A21E329CD7FACCCDDDE9519197D8ADA6
 ```bash
 magnet:?xt=urn:btih:AA66C157C483E7868B0441D516C9E5A0FDB2F22F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ Lee Morgan - The Rumproller (1965) 1987, Blue Note [FLAC|Lossless|tracks + .cue]
 magnet:?xt=urn:btih:2508F50BE02F3BA1AF22EA390985433771D6BB58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:2508F50BE02F3BA1AF22EA390985433771D6BB58
 magnet:?xt=urn:btih:9802A1113898E907363C119A950D4071FE13C9B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:9802A1113898E907363C119A950D4071FE13C9B3
 ```bash
 magnet:?xt=urn:btih:7DCF61C9D4A1BFA054834CCF558B2E8BA164348A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ VA - Spotify – Top Tracks of 2017 [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:AD703D20ABF17EB721C71F021A220E9B9AECC796
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:AD703D20ABF17EB721C71F021A220E9B9AECC796
 ```bash
 magnet:?xt=urn:btih:C75F27500C1CF31B8F3EFE08919B4DE866D125A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +478,8 @@ magnet:?xt=urn:btih:C75F27500C1CF31B8F3EFE08919B4DE866D125A5
 magnet:?xt=urn:btih:A0B1DA5A0D99F6846E688CDFF13FC1EAA9355EC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:A0B1DA5A0D99F6846E688CDFF13FC1EAA9355EC1
 ```bash
 magnet:?xt=urn:btih:4DE95ECAA0B60E37E0C5B6FF97D07EA0B12524C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ NVIDIA GeForce Desktop 310.70 WHQL + For NotebooksПоддержка всех в
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ NVIDIA GeForce Desktop 310.70 WHQL + For NotebooksПоддержка всех в
 ```bash
 magnet:?xt=urn:btih:413F3098ED6DE31061ABD88C471396BE2AA47B18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +590,8 @@ magnet:?xt=urn:btih:413F3098ED6DE31061ABD88C471396BE2AA47B18
 magnet:?xt=urn:btih:033DEA8D4B23BAC7FEBD55081AFA847E33D91970
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ magnet:?xt=urn:btih:033DEA8D4B23BAC7FEBD55081AFA847E33D91970
 ```bash
 magnet:?xt=urn:btih:FCD86D0F8085CFC8CD50F107180AB62E45D53301
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +645,8 @@ Disc 01:
 magnet:?xt=urn:btih:73B565164419C27625E07D6AB47A1BD159E9811D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +671,8 @@ Tempomate - умный и красивый метроном.Тип издани�
 magnet:?xt=urn:btih:C5F8792AD118478DAB7E14FA85BD7F27FE5B0D6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +696,8 @@ magnet:?xt=urn:btih:C5F8792AD118478DAB7E14FA85BD7F27FE5B0D6A
 ```bash
 magnet:?xt=urn:btih:EAD32A6C9F98808A2884BA0DF63D7C7E1F99D70B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

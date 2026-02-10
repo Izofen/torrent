@@ -1,3 +1,32 @@
+###  Публикация: 1550815   (590666) от 14.05.2022
+
+VA - EDC Radio: Vanilla Disco (2022) [MP3|320 Kbps] <Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка, которая филигранно балансирует на границе двух музыкальных эпох и стилей, органично сочетая в себе две составляющие - современной клубной музыки и танцевального диско. Она сохраняет мелодию и атмосферу ретро диско, но при этом обладает современным звучанием за счёт использования востребованной и узнаваемой аранжировки.001. Ale G DJ & Davide Inserra - I Am The Fire
+002. Indicate - Cojeme
+003. Pete Le Freak Power - Five Six Seven Eight
+004. Humphrey Robertson - Touch Of Summer(   Читать дальше...   )Жанр: Disco, Dance, PopПродолжительность: 09:10:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2376CF2A4B786B16F25625F226DE7DAE07A2F378
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1550819   (590668) от 14.05.2022
 
 VA - Spring Clubbing EDM Party (2022) [MP3|320 Kbps] <Club, Dance, EDM>
@@ -21,6 +50,8 @@ VA - Spring Clubbing EDM Party (2022) [MP3|320 Kbps] <Club, Dance, EDM>
 ```bash
 magnet:?xt=urn:btih:423A849DCC325D92C21AA5A731FA631226752D70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ Sub Morphine - Long Drive (2022) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowa
 magnet:?xt=urn:btih:AA0B9D581125CBD7EE2AEE0E81B1F68F8D1EFA7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - NDH 7 (2022) [MP3|320 Kbps] <NDH, Industrial Metal, Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:C8DBBD41226469D1DB885E1E195BFF0E8DD1F937
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - The Best World Ballads-26 (2015) [MP3|320 кб/с]<Pop, Rock, Rap, R'n'B>
 magnet:?xt=urn:btih:F2A795A522CC4CEFEAE41E0518E97082B82C864D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Hot Dance Summer 2015 Vol.3 (2015) [MP3|96-320 кб/с]<Club , Dance , Hous
 ```bash
 magnet:?xt=urn:btih:188765418E3D548DB878F0133F397B9F51DF4032
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Музыкальный Сюрприз От Радио Шансон (2015) [
 magnet:?xt=urn:btih:79A6D17D339A4101C00FA79807FD26E7081957D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - 100 Волшебных треков Chillout (2015) [MP3|160-320 кб/с]<C
 ```bash
 magnet:?xt=urn:btih:AF36A7463C692042207FDD7DDF49CE8F5A326EAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Лирика Шансона: Озноб Души (2015) [MP3|256-320 кб/�
 magnet:?xt=urn:btih:AEBEE7577DCF6829AAC4FD2AEA2D373B09C5737C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Billboard Hot 100 Single Charts 11th July (2015) [MP3|320 кб/с]<Pop, Eur
 ```bash
 magnet:?xt=urn:btih:89C586889647FEDAE44E2C93E02DDE0443856C7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - German Top 50 Official Dance Charts (13.07.2015) [MP3|128-320 кб/с]<Danc
 magnet:?xt=urn:btih:B68687B40A06F1D1B0AE8638A4F14B9DCB5AFB5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +338,8 @@ VA - Beatport Indie Dance / Nu Disco Top 100 June (2015) [MP3|320 кб/с]<Indie
 ```bash
 magnet:?xt=urn:btih:7978BF10EBEBB5F8344796BFA37AE459546655A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +368,8 @@ VA - Rock 'n' Roll Reloaded (2015) [MP3|320 кб/с]<Rock 'n' Roll, Rock>
 magnet:?xt=urn:btih:CD82925944EA226C6CDDB4A9F192B2A24F2F744F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +396,8 @@ VA - Союз летних хитов от Европа Плюс. Часть 4 (
 ```bash
 magnet:?xt=urn:btih:DADF25A8E75B108B03AE38C27F12091C54224BD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +426,8 @@ VA - Car Audio. Великолепный замес. Sound Clinic - Special Edit
 magnet:?xt=urn:btih:CD1DD3421A98BC72978DE9A6952A4E281E541119
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +454,8 @@ VA - Сборник танцевальных хитов Оттопырься (20
 ```bash
 magnet:?xt=urn:btih:80973F7F6197B608DC8F80D1EFF203F70DBE7087
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +484,8 @@ VA - Summer Dance Party (2015) [MP3|320 кб/с]<Club, Dance, Hands Up>
 magnet:?xt=urn:btih:B66070F3A83895A0C2DABC456D44999122FD64AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +512,8 @@ VA - Vocal Trance Seduction Vol 5 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:ED1E1FA3FF9883D0AF7C221B2A95229B7668AC20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +542,8 @@ In-Grid - Место Встречи на HOROSHEE.FM с Валентином М�
 magnet:?xt=urn:btih:139967A2599A0AC4EFD0355D3D7AEB526D298BDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +570,8 @@ VA - Resident Advisor Top 50 Charted Tracks For June (2015) [MP3|320 кб/с]<Ho
 ```bash
 magnet:?xt=urn:btih:795F23B0378EE2634F14C2675AFAB209E3D4E375
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +600,8 @@ Leo Rojas - Compilation (2022) [MP3|320 Kbps] <Instrumental, New Age>
 magnet:?xt=urn:btih:519EE00EEEF9C5D43A6424C19907DDE768722C64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +628,8 @@ VA - 80's Synthpop Vol. 2 (2022) [MP3|320 Kbps] <Synthpop, New Wave>
 ```bash
 magnet:?xt=urn:btih:F053217B001BE935812178B9789C80C0D4192F9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +658,8 @@ VA - Record Super Chart 07.05.2022 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:ACFE6B872FE261418DF7826DD234DE8FBDE28DB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +686,8 @@ VA - Total Eclipse Of The Moon (Enigmatic) (2022) 7CD [MP3|320 Kbps] <Electronic
 ```bash
 magnet:?xt=urn:btih:AEE5A002CB83D88EF8D1EC736617C97BE351DA2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +716,8 @@ VA - Tech House: Mashup Urban Mix (2022) [MP3|320 Kbps] <Club, Tech House, Elect
 magnet:?xt=urn:btih:B13789E290801C96CBCFD78B5BED3A6A2B272023
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,32 +745,7 @@ VA - Overdose: Punk Rock Top 100 Songs (2022) [MP3|320 Kbps] <Punk Rock>
 magnet:?xt=urn:btih:B2F03A0A9721BE2EE47E2AD937A323DA740EE4D4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549660   (592790) от 08.05.2022
-
-VA - День Победы: Песни из советских фильмов (2022) [MP3|~245 Kbps (V0)] <Военная песня>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Нина Ургант - 10 наш десантный батальон (Из к.ф 'Белорусский вокзал') (3:54)
-02. Владимир Златоустовский - От героев былых времён (Из к/ф 'Офицеры') (2:46)
-03. Николай Крючков и Василий Меркурьев - Первым делом самолёты (Из к/ф 'Небесный тихоход') (2:15)
-04. Марк Бернес - Тёмная ночь (Из к/ф 'Два бойца') (3:25)(   Читать дальше...   )Жанр: Военная песняПродолжительность: 01:23:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C974F560792589ACA595F204347945F9552BE39F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

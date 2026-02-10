@@ -20,6 +20,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ BBC: Бессмертный Египет с Джоанн Флетчер / Immort
 ```bash
 magnet:?xt=urn:btih:4880387A8AEF51F35A6E26E43AB06CD989FA70EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:4880387A8AEF51F35A6E26E43AB06CD989FA70EC
 magnet:?xt=urn:btih:A55407AF02F2C5F05A24D4A94517F8BE96A58BA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:A55407AF02F2C5F05A24D4A94517F8BE96A58BA2
 magnet:?xt=urn:btih:C68E549D939899BB7435C6D29C61B9E2638BD355
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:C68E549D939899BB7435C6D29C61B9E2638BD355
 ```bash
 magnet:?xt=urn:btih:A436CA1E3CAD6529CBD552970F01D476B4712AC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:A436CA1E3CAD6529CBD552970F01D476B4712AC4
 magnet:?xt=urn:btih:59121EE0641560DF44091B4CBD87C9D7757033EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:59121EE0641560DF44091B4CBD87C9D7757033EC
 ```bash
 magnet:?xt=urn:btih:57DE78CE0F2AAD296C8EE2BE1EC9599575B8F01C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ PBS Nature. Бегемоты - жизнь в воде / Hippos: Africa's River G
 magnet:?xt=urn:btih:820573686FE072F5027E50FD2CA4DD64452DBB3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 5
 ```bash
 magnet:?xt=urn:btih:332CD5D68D90FBDAFFCBCBBFE070F2BF9323C904
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:332CD5D68D90FBDAFFCBCBBFE070F2BF9323C904
 magnet:?xt=urn:btih:3BF07F1E773B8B1D0318CDB81354CDC5FF0058A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ BBC: Саймон Шама о Рембрандте: Шедевры послед�
 ```bash
 magnet:?xt=urn:btih:8750EE553BF3295C86EA0210837F0C681D2FBACD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ BBC: Планеты. Сатурн / Nova: The Planets: Saturn (2019) IPTVRip [H.
 magnet:?xt=urn:btih:E88E4BA3B3E8B7C345DAE6872BFD46BD0C29637A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ NG. Дикие места Таиланда / Thailand's Wild Side (2019) HDTV [H
 ```bash
 magnet:?xt=urn:btih:9AB6B1CA865B08852FCE1033AA3FE12795991506
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ NGW. Дикая природа Португалии / Wild Portugal (2019) HDTV 
 magnet:?xt=urn:btih:ED8BBF9BB236371E26BE3EE583CC2D0CDD0203B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 1
 ```bash
 magnet:?xt=urn:btih:4A2541775BD5EAAB158BA8DA751350CA28822ED7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 4
 magnet:?xt=urn:btih:75DE97C2BBA6096819DB68E86BF7A8AC1EE61A0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 2
 ```bash
 magnet:?xt=urn:btih:9A8D709E0D987F228FB096B32F5D8A28F77CF144
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Discovery Channel приглашает совершить запредельно
 magnet:?xt=urn:btih:2E10EA3C6097CA775A7F14FCC0E10E2A451575C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 3
 ```bash
 magnet:?xt=urn:btih:EACC021F2BEDDE8CAB8E3EB068C05AB749D668C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:EACC021F2BEDDE8CAB8E3EB068C05AB749D668C7
 magnet:?xt=urn:btih:1B45792CB4B1BD9128E0B41DDE39FD2910A6C1C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ NG: Забытые персонажи Библии / Lost Face of the Bible (201
 ```bash
 magnet:?xt=urn:btih:93FDC1D3ED9B2E4D609E300DD6493DBF0444CAAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Discovery. Выжить любой ценой / Ultimate Survival (2006-2011) DV
 magnet:?xt=urn:btih:8791C36B89E9A4DFFC8D57E98512B51743060799
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ BBC: Чудо животного мира / Wonder of Animals (2014) HDTVRip [H.
 ```bash
 magnet:?xt=urn:btih:C9479B0C01A24F1957A304F1AC950D19D4CF834D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ Discovery. Река забвения / River of No Return (2019) HDTVRip [H.264/
 magnet:?xt=urn:btih:406C031D573681ABAA0FF26262D1CC288DCD9BD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ BBC: Планеты. Юпитер / Nova: The Planets: Jupiter (2019) IPTVRip [H
 ```bash
 magnet:?xt=urn:btih:5CDFF2444B15A4D5A954292D6FDCF7DCD8A3D22C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +676,8 @@ Discovery: 100 Величайших Открытий / Discovery: 100 Greatest D
 ```bash
 magnet:?xt=urn:btih:2023DA671D31382534F5A8BA56BD8B698C305EEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

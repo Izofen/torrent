@@ -1,3 +1,29 @@
+###  Публикация: 1321196   (463143) от 22.08.2019
+
+Суд над победой (2019) SATRip
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463143.jpg" />
+</div>
+
+
+###  Подробнее
+
+23 августа - 80 лет со дня подписания договора о ненападении между СССР и Германией. В проекте рассказаны неизвестные подробности лета 1939-го. Почему 22-го августа на берлинском аэродроме Темпельхоф команду «взлёт» ожидали два самолёта? Что там делал Сидней Коттон - прототип знаменитого Джеймса Бонда, и кого именно он должен был доставить 23 августа в Лондон? Зачем (   Читать дальше...   )Производство: Россия, ДИП АО «ТВ ЦЕНТР»Жанр: Документальный, война, историяРежиссер: Александр ГоряиновПродолжительность: 00:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13FB1451C33054CE1A0C8A5E73B1DB6CD38B3593
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159546   (463340) от 30.08.2017
 
 Мощь вулканов / The Power of Volcanos (2016) HDTVRip [H.264/720p-LQ] (Сезон 1, эпизоды 1-2 из 2)
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:32DA8FFDAA5851F543E4CA8491E7E82497AB1724
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:32DA8FFDAA5851F543E4CA8491E7E82497AB1724
 magnet:?xt=urn:btih:9D00017606E36CAFEB59596435CBF6C3C08094E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:9D00017606E36CAFEB59596435CBF6C3C08094E1
 ```bash
 magnet:?xt=urn:btih:77FCDC0081C18FC73D95D58222F8AA1EDB5659F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:77FCDC0081C18FC73D95D58222F8AA1EDB5659F5
 magnet:?xt=urn:btih:0472BAB75995151EAAA491CFF7A5FB67D7A2CE82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:0472BAB75995151EAAA491CFF7A5FB67D7A2CE82
 ```bash
 magnet:?xt=urn:btih:F77A39406E747BC357A5E48402B8F3367DFE277C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:F77A39406E747BC357A5E48402B8F3367DFE277C
 magnet:?xt=urn:btih:C8EF7F5FA5191E9D21EC6EFBA6969384931072B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:C8EF7F5FA5191E9D21EC6EFBA6969384931072B8
 ```bash
 magnet:?xt=urn:btih:F28A912A9CD71E516D92934A72130EB3C62BB3E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:F28A912A9CD71E516D92934A72130EB3C62BB3E8
 magnet:?xt=urn:btih:4CBC697F2516D948B7A6BA422CB3E6D4F62F179D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:4CBC697F2516D948B7A6BA422CB3E6D4F62F179D
 ```bash
 magnet:?xt=urn:btih:2CD94A4417FEC47C51981B683C2B6EEC6EA14F5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:2CD94A4417FEC47C51981B683C2B6EEC6EA14F5F
 magnet:?xt=urn:btih:7A4C08BC9DEE98C8D57FA3AA4D5378929BDD761C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:7A4C08BC9DEE98C8D57FA3AA4D5378929BDD761C
 ```bash
 magnet:?xt=urn:btih:A8F7B6D339CE471231F6262ADEFB271A69302EC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:A8F7B6D339CE471231F6262ADEFB271A69302EC8
 magnet:?xt=urn:btih:38620697342D84F5E356870185A8BCB144E29E40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +357,8 @@ magnet:?xt=urn:btih:38620697342D84F5E356870185A8BCB144E29E40
 ```bash
 magnet:?xt=urn:btih:B0E57A902D9C101D05A252F474E805A4265EE0EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:B0E57A902D9C101D05A252F474E805A4265EE0EC
 magnet:?xt=urn:btih:678B2E6C25911046A2FC20C0E497C5E13CCA7E52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +409,8 @@ magnet:?xt=urn:btih:678B2E6C25911046A2FC20C0E497C5E13CCA7E52
 ```bash
 magnet:?xt=urn:btih:8D349A15A31DEC3B271B8050057C500549F7C06C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:8D349A15A31DEC3B271B8050057C500549F7C06C
 magnet:?xt=urn:btih:F913F4A25710DFFC336B8BCCE15383752DFCAFFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +461,8 @@ magnet:?xt=urn:btih:F913F4A25710DFFC336B8BCCE15383752DFCAFFB
 ```bash
 magnet:?xt=urn:btih:BD6843BA5F154007107CEFA938F85F04184196EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:BD6843BA5F154007107CEFA938F85F04184196EC
 magnet:?xt=urn:btih:69C118DC13BBCA055D89A52B4B35A88728922633
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:69C118DC13BBCA055D89A52B4B35A88728922633
 ```bash
 magnet:?xt=urn:btih:D698D914E1847080D3EC47A51F87F614E7F9A44D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:D698D914E1847080D3EC47A51F87F614E7F9A44D
 magnet:?xt=urn:btih:8E45E5217A21CA7FE1C52CA4A7BCC3C8A574CDA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:8E45E5217A21CA7FE1C52CA4A7BCC3C8A574CDA4
 ```bash
 magnet:?xt=urn:btih:203BF4EF661CB3017262C5748A000225895AF915
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:203BF4EF661CB3017262C5748A000225895AF915
 magnet:?xt=urn:btih:395EA4D10AE65282C048059E8BFD035A31B3908A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +619,8 @@ magnet:?xt=urn:btih:395EA4D10AE65282C048059E8BFD035A31B3908A
 ```bash
 magnet:?xt=urn:btih:188A94D33A72C363FF094837E0D6DF6D0499F0C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:188A94D33A72C363FF094837E0D6DF6D0499F0C9
 magnet:?xt=urn:btih:17F073F468C813BBD784D073D138B352816418FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,29 +673,7 @@ magnet:?xt=urn:btih:17F073F468C813BBD784D073D138B352816418FA
 magnet:?xt=urn:btih:35D2376B2605BE99DC12424DB56787D9416C323E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940933   (464880) от 26.09.2015
-
-История голливудского кинематографа / The First 100 Years: A Celebration of American Movies (1995) HDTV [H.264/1080i-LQ]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Название ленты говорит само за себя. С огромной любовью к кинематографу снял Чак Уоркмэн этот фильм, чрезвычайно удачно подобрав сюжеты, кадры, отрывки из картин от немого кино до фильмов последних лет.Телекомпания: США, American Film Institute (AFI), Calliope Films, Home Box Office (HBO)Жанр: ДокументальныйПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:28:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6217A22425141664A500FD13A497136113770D66
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Nico Wayne Toussaint - With Love From Clarksdale (2024) [FLAC 24/88.2|Lossless|W
 magnet:?xt=urn:btih:2940DFBBCE1303E8C2C5C4BF7B519E1A92CE550D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:2940DFBBCE1303E8C2C5C4BF7B519E1A92CE550D
 ```bash
 magnet:?xt=urn:btih:9C64D0D37C7F36F1254E2CC4C5BDFD25F447D3CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:9C64D0D37C7F36F1254E2CC4C5BDFD25F447D3CA
 magnet:?xt=urn:btih:F88F8E654954C2C774C4A813B2DA0E7CAA7AC7D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Ulrich Ellison - Momentum (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:68B2E5348FB3EB6940C380584C5DAE90BDDAACF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Wehmut - Flüstern der Freiheit (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard
 magnet:?xt=urn:btih:99E4893A69080E837601A5AAE82D15B4D272A3DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ magnet:?xt=urn:btih:99E4893A69080E837601A5AAE82D15B4D272A3DE
 ```bash
 magnet:?xt=urn:btih:454D70974BEAB5288B4CFAAFC4D0163DE638B368
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -179,6 +191,8 @@ After Inc. v1.0.5 [En]
 magnet:?xt=urn:btih:C3D2A550A3A57618FB1BC4ECD3A3C07D3D278396
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ magnet:?xt=urn:btih:C3D2A550A3A57618FB1BC4ECD3A3C07D3D278396
 ```bash
 magnet:?xt=urn:btih:1D2BFB86277DB8B4D7CC182CA780A0443A795270
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -231,6 +247,8 @@ Stardew Valley 1.6.14.11 [Ru]
 magnet:?xt=urn:btih:F1ECEBFD2361BBB48BBA3897A6E5F8E91DA2D5B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +274,8 @@ PDF24 Creator - бесплатная программа, которая позв
 magnet:?xt=urn:btih:B6D9F04148D0FED070CA0E4DD1080AD84B5581B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ magnet:?xt=urn:btih:B6D9F04148D0FED070CA0E4DD1080AD84B5581B7
 magnet:?xt=urn:btih:A4D8239BF2E6CF6964B10D697F93F064EB243E2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ magnet:?xt=urn:btih:A4D8239BF2E6CF6964B10D697F93F064EB243E2B
 ```bash
 magnet:?xt=urn:btih:57FB0FECD653207A951252D8F3587D3646F53452
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -330,6 +354,8 @@ magnet:?xt=urn:btih:57FB0FECD653207A951252D8F3587D3646F53452
 magnet:?xt=urn:btih:09F206B895294706BFAA61518D8F4BDDF0F427B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +379,8 @@ magnet:?xt=urn:btih:09F206B895294706BFAA61518D8F4BDDF0F427B7
 ```bash
 magnet:?xt=urn:btih:DB2B93728F3749B398B8463040B271CDA6D83A2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +406,8 @@ magnet:?xt=urn:btih:DB2B93728F3749B398B8463040B271CDA6D83A2B
 magnet:?xt=urn:btih:334C1FDBCC5CE77AA485A128683B12F287E164F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ magnet:?xt=urn:btih:334C1FDBCC5CE77AA485A128683B12F287E164F7
 ```bash
 magnet:?xt=urn:btih:9B6E2C3A3677F6528DB5C2267981C1A745FDC96B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +460,8 @@ Tiny Room Stories Town Mystery v2.6.26 [Ru]
 magnet:?xt=urn:btih:E560D21B3664B03DCA7D100712D03913812C2FF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ magnet:?xt=urn:btih:E560D21B3664B03DCA7D100712D03913812C2FF4
 ```bash
 magnet:?xt=urn:btih:BFEB5361E6F3FFE95A664FFA53E39413C3D626BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +512,8 @@ magnet:?xt=urn:btih:BFEB5361E6F3FFE95A664FFA53E39413C3D626BE
 magnet:?xt=urn:btih:C75548FFBF8E233C884E32DC2A748A6301556313
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +537,8 @@ magnet:?xt=urn:btih:C75548FFBF8E233C884E32DC2A748A6301556313
 ```bash
 magnet:?xt=urn:btih:452AAA5F5ACDFD242D8026D7AFC9D480EF09A52C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +565,8 @@ magnet:?xt=urn:btih:452AAA5F5ACDFD242D8026D7AFC9D480EF09A52C
 magnet:?xt=urn:btih:9A8BC436A4E98C49DAFB05263869D2D1BB3D328B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ magnet:?xt=urn:btih:9A8BC436A4E98C49DAFB05263869D2D1BB3D328B
 ```bash
 magnet:?xt=urn:btih:9BF2E1609953FEF88E06764128A8EE506ABD793F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ Nazareth - Rampant (1974) SHM-CD, Japanese Edition, Reissue, Remastered, 2024, B
 magnet:?xt=urn:btih:920D44C4C35BB4422F31E0488A99006E202728E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:920D44C4C35BB4422F31E0488A99006E202728E6
 ```bash
 magnet:?xt=urn:btih:EB5AE9A8B8A305F0FE3529E741883F69BF3FF0F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +672,8 @@ Mystery Trackers 20: Reflections of the Past / Охотники за тайна�
 magnet:?xt=urn:btih:B1D8A08A5F3A1C366AC694F17285B88D7ABF7A38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:5C2860BA0E2C67D9970060F02D9AF7119B5DC6E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

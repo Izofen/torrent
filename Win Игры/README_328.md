@@ -19,6 +19,8 @@ Dreadful Tales 2: The Fire Within (2019) [En] (1.0) Unofficial [Collector's Edit
 magnet:?xt=urn:btih:3EA17DBF5B5B2FFDF456ADE436DEED42F19B473E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Curio Society. Eclipse Over Mesina (2015) [En] Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:D45BE03007E53DAE1EE4929132C7CDB2D57C6279
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:D45BE03007E53DAE1EE4929132C7CDB2D57C6279
 magnet:?xt=urn:btih:EAFCEB4F49534D1EAF15AF67030B119E3C974585
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Drift King это абсолютно крутой дрифт в режиме т�
 ```bash
 magnet:?xt=urn:btih:256FC3293248660C6132DA5753934B5DCDA175DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ AVA - Alliance of Valiant Arms (2016) [Ru] (6990.29284) License
 magnet:?xt=urn:btih:EF7C9795EA44F6B305A713C4ED98726F1DD57291
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Darksiders: Wrath of War (2010) [Ru/En] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:6ACE9AEE6A2DD74866995133E9D00311A376A61D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Production line - это новый экономический симулято�
 magnet:?xt=urn:btih:162C412ED03902D73E5483C74B421C6FC980594D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Rebel Cops — спин-офф This Is the Police, целиком посвяще
 ```bash
 magnet:?xt=urn:btih:E6ACF1A7BF9CC298CA774E7F38C04A875BA9BA40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Steel Rats (2018) [Ru/Multi] (1.0/dlc) Repack xatab
 magnet:?xt=urn:btih:718EA221A9B2E20D128AE6A1D632F61159329EED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Police Helicopter Simulator — симулятор, в котором у вас 
 ```bash
 magnet:?xt=urn:btih:DCA8E82CD54D58FFF180C76B94D437F3BD103ABA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ GRIP - это крутой высокооктановый боевой гоно�
 magnet:?xt=urn:btih:997DD77DFD4D7FE8672CD5EF77A0F1C79B3CF48E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Pure Pool - Snooker pack (2015) [Ru/Multi] (1.05) License POSTMORTEM
 ```bash
 magnet:?xt=urn:btih:DDDD77A61390226ACB2ED916EC9B904C8BD10245
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Tales from the Borderlands (2014-2015) [Ru] (1.0.1) Repack =nemos= [Episodes 1-5
 magnet:?xt=urn:btih:7C4463E351E56713238D22895525A4DB3FE09378
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Assassin’s Creed: Brotherhood (2011) [Ru] (1.03/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:9279EAE7FA8D2ABF536C6BBF40690886556E0BB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Space Pirates And Zombies 2 (2017) [Ru/Multi] (1.0) License PLAZA
 magnet:?xt=urn:btih:89603D37FE9F59DE03A936E2CAB4639CFD0C20AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ MadCaps [En] (P) 2004
 ```bash
 magnet:?xt=urn:btih:B57A92265A6EC22E8384F6EA3EB00991F4F3588B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Mystery Tales 10: The Reel Horror / Загадочные истории 10: Уж
 magnet:?xt=urn:btih:DF35B7D7A953575EDEFE58BFC329BD706FF96327
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Cyber-Chicken — бесшабашный 2.5D платформер с кибер
 ```bash
 magnet:?xt=urn:btih:FAC9C25A76E065AE0DAC3EB48CDDA08EEF637DED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Enchanted Kingdom 8: Master of Riddles (2020) [En] (1.0) Unofficial [Collector's
 magnet:?xt=urn:btih:27A8F0FE0406F5356CBDE9CA6938D626C02BDD40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Deliver Us The Moon — это научно-фантастический три�
 ```bash
 magnet:?xt=urn:btih:85B510F51CAB12E45B17836B99521748BEB49238
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Ice Age Scrats Nutty Adventure (2019) [Ru/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:863EA38827EEA4C3F0E99E4862C7F7CA15DAB51A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Football Manager 2019 — симулятор, доведенный до сове
 ```bash
 magnet:?xt=urn:btih:9F0321D39D247CFE76CD4696E536967DBE4C3D16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Rise: Race The Future — это мультиплатформенный арка
 magnet:?xt=urn:btih:E80AFC0643B3382BE307E247262F3179E8C11A6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ The Dark Occult (2018) [Ru/Multi] (1.0.8) License PLAZA
 ```bash
 magnet:?xt=urn:btih:56B93587F711C1D764439C58E18536242BECB7A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ MotoGP 18 (2018) [Multi] (1.0) Repack R.G. Catalyst
 magnet:?xt=urn:btih:B490E3135F30E95BF9179ACFDC8E9CC59EDC9A26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Templar Battleforce — пошаговая стратегия с элемент�
 ```bash
 magnet:?xt=urn:btih:63FABC9A14ADECE332DBE6949323DAADF69FBA75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

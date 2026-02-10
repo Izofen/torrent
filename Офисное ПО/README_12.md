@@ -19,6 +19,8 @@ AbleBits Ultimate Suite for Excel представляет собой компл
 magnet:?xt=urn:btih:042571D23608C35686EE0B01F111A9CBA80CC73F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ PDF Decrypter Pro 4.2.0 RePack (& Portable) by TryRooM [En]
 ```bash
 magnet:?xt=urn:btih:BA17ACBFBE8799C6C5F6FFF7DB07544CD7E2B060
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Microsoft Office 2007 предоставляет удобные и просты�
 magnet:?xt=urn:btih:AF308E2B8917E7C91EC4270DF772A134C3297D20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ PDF Eraser Pro - программа для редактирования файл
 ```bash
 magnet:?xt=urn:btih:46992A8677F39ECF49F6A0D4BAADF04B85D83308
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ WinCHM - небольшая утилита для создания файлов 
 magnet:?xt=urn:btih:32F84FF4ACFD9607DF6118736113923C9C4C16A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:32F84FF4ACFD9607DF6118736113923C9C4C16A8
 ```bash
 magnet:?xt=urn:btih:7C6FA625ECA28F1EC72E90AC2C6A91A500DD3201
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ CoolUtils Total Excel Converter 5.1.0.255 RePack by вовава [Ru/En]
 magnet:?xt=urn:btih:28BC35B56F672E04A34E0A4133BEA206CDD2D987
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ A-PDF To Black/White позволяет конвертировать цветн�
 magnet:?xt=urn:btih:14927467CCBC51C6436F10555EDC9615828505A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ IDM UltraEdit Professional Text and HEX Editor 22.10.0.10 [En]
 ```bash
 magnet:?xt=urn:btih:9F042C6A2D3655FDE54D46D142C2B4BC7BB53FD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Wondershare PDF Converter Pro включает в себя все особенн
 magnet:?xt=urn:btih:80568D3ADA907BD72197B333D415CF8FEC3D337A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ FreeOffice содержит полный набор офисных прилож�
 magnet:?xt=urn:btih:3EC3776689315753DA53F8C79EDF08F06D5A13EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ PDF Compressor — программа которая позволяет быст
 ```bash
 magnet:?xt=urn:btih:C24BFC832CBACB82B6EFDD0BE4BF7BB50FBB6C7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ PDF Combine - надежный инструмент и незаменимая п
 magnet:?xt=urn:btih:6423A31FC07EA4E8BD815510CF78B34B369E6D6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ CCCalc / Блокнот-калькулятор 2.4 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EA74DABD1089C56F20A571EA3C20BF8178CD01EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Total CSV Converter - прекрасный конвертер CSV файлов �
 magnet:?xt=urn:btih:11BD7FBCE655CCCF97A8C800DFC99590475B9688
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ FileSearchy это быстрая, мощная и простая в испол�
 ```bash
 magnet:?xt=urn:btih:0D91EE32320BD744C136DEC33A7BD1583AC64E85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ ASAP Utilities — мощнейшая надстройка для програм
 magnet:?xt=urn:btih:392F2347F82AC89E31E9623E5B2B17D481FEE907
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Total PDF Converter - преобразовывает PDF в RTF, Doc, Excel, HTM
 ```bash
 magnet:?xt=urn:btih:F1DB07E2398CAEA7D385943FECE48C9A1744100E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ Total Outlook Converter - удобный в применении инструм�
 magnet:?xt=urn:btih:54333DF425D1450FD51C3CC990BF43E2EEDC8AD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ CoolUtils Total Excel Converter 5.1.215 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DB9B40B4EE4B5EA5F0A46F47581E029CB9A5A258
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ ICE Book Reader - мощная читалка электронных текст�
 magnet:?xt=urn:btih:453A24AD3F02A3222738A75024F60D5BC23734EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ PDF-XChange Viewer - отличная программа для чтения и 
 magnet:?xt=urn:btih:489636B2F1DB2A717C106C9E4680FF3E8D0B783A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ Coolutils Tiff Combine - надёжная программа, с помощью 
 ```bash
 magnet:?xt=urn:btih:046901BFA920C72F2EEB086637CC409343295D24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ SPSS Statistics - это модульный, полностью интегрир
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ ABBYY FineReader 14 – универсальное решение для раб�
 magnet:?xt=urn:btih:695864C2FA6E876A910E277CE0A68548DDE0EAE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ NAPS2 позволяет быстро и легко сканировать бу�
 ```bash
 magnet:?xt=urn:btih:5D3D9FBFF06CD8EE127D35CE71993E6EA52CBB51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Lovecraft’s Untold Stories 2 – ролевой экшен с элемента
 magnet:?xt=urn:btih:329C3C79331B2BA90D8872D568261D0E86FC225C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Danger Forever (2022) [En] (845) License GOG
 ```bash
 magnet:?xt=urn:btih:DC260F068A5F08EDF4CDD632AC83D859A07CD2B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Tenebris Pictura (2023) [Ru/Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:BBB0A5F08CCFE26A4CAEB10B425D1393BCD8F76B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Starfield - первая более чем за 25 лет новая игров�
 ```bash
 magnet:?xt=urn:btih:4B551DA421222C619383A66F3A2755C4E6D8F14C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Shining Resonance Refrain - это ролевая игра в жанре экш�
 magnet:?xt=urn:btih:88E3EEAEF4CC57AF987B68DECAB7543D8709A2A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Dungeon 100 (2023) [Ru/Multi] (1.03) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:538D95182BC09476A82AA57DFF9CC7AE36279387
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Red Line - это сюжетная хоррор-игра с умеренными
 magnet:?xt=urn:btih:C7B429FA45A778B188A0EC7F56F0FC94606A076A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Yakuza: Like a Dragon рассказывает о парне по имени И�
 ```bash
 magnet:?xt=urn:btih:91BCE4783D0E9B3E2AF84A5BE8B104CA94419BCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Dragoness: Command of the Flame (2023) [Ru/Multi] (1.12) License GOG
 magnet:?xt=urn:btih:B66D3079D73761884A4CCB138AE40A5BC3A631CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Ash of Gods: The Way (2023) [Ru/Multi] (1.10.4)  License GOG
 ```bash
 magnet:?xt=urn:btih:2AD71A23D07DBD1BA6CD30C62E97D6A3DE300AF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Mato Anomalies - это пошаговая RPG, которая отправля�
 magnet:?xt=urn:btih:E10ED14303041E543DF4C8E6ACCDCD2A8193EC68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Wo Long: Fallen Dynasty – это ролевой экшен от третьег
 ```bash
 magnet:?xt=urn:btih:D96B3C2060131CB4FFD7A3816A7C4B945963B260
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Stillborn Slayer (2023) [Ru/En] (1.0) License GOG
 magnet:?xt=urn:btih:DD258E09D9F862D45FB433654553B46935B0D931
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Adore (2023) [Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:3457A604F4EB51AD8FA0DEAB534E976815B27008
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Oceanhorn 2: Knights of the Lost Realm / Оушенхорн 2: Рыцари за
 magnet:?xt=urn:btih:8540F5D5778D28C1A9E4576BF2EF50350822A742
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:B452C9DBBA80E321CDC0B5FBCE5E15308A930BD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Mythora / Изгнанник. Лезвие Смерти (2004) [Ru] (1.0) Licens
 magnet:?xt=urn:btih:519E01CB8B61CE3ABF2F528825E2A7F6F270539C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Remedium: Sentinels – это автошутер с элементами roguel
 ```bash
 magnet:?xt=urn:btih:0AC9A508EF96B327FCA74A20FE8871EA76E139CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Phoenix Point (2020) [Ru/Multi] (1.20.1/dlc) Repack dixen18 [Complete Edition]
 magnet:?xt=urn:btih:C743414B827D0EB8929ACFCB0433701A3CCF8532
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The Rule of Land: Pioneers - двухмерный выживастик, в ко�
 ```bash
 magnet:?xt=urn:btih:DA9FA5194C6FCDFBD6A191FF2EAAC1ADF52B23AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Atelier Marie Remake: The Alchemist of Salburg - это увлекательна
 magnet:?xt=urn:btih:47054E04A80B9FB445D5FBBD285C7BE87322A624
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Ravenbound - это оригинальный ролевой экшен с эле
 ```bash
 magnet:?xt=urn:btih:CC7683609AD8F3A3476C47E3D1E979A5EEDA59FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Styx: Master of Shadows – стелс-экшен с видом от треть�
 magnet:?xt=urn:btih:B5050A835C6803C323BF98146CF4290505B3B1EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ FRONT MISSION 1st: Remake - атмосферная тактическая пош
 ```bash
 magnet:?xt=urn:btih:B8223CBE7A91B96FAFDC447CF3E3DE6B5AB887B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ A Long Journey to an Uncertain End – смесь квеста и приключ
 magnet:?xt=urn:btih:196BA8773B6EAFA776E440ABA0D752A9BCB73D20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Spriters: Hopes Blooming Dawn - это игра в стиле RPG, в котор
 ```bash
 magnet:?xt=urn:btih:74B5823AD387E782623FFC35E4136D05A08DA147
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

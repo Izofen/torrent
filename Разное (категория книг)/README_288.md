@@ -1,3 +1,29 @@
+###  Публикация: 948168   (413633) от 19.10.2015
+
+Юлия Бразовская | Блины (2014) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_413633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что может быть вкуснее русских блинов! Кружевные, сдобные, с припёком, с яблоком, с капустой, с форелью – блины могут быть самые разные! Если вы хотите порадовать родных к Масленице или удивить своих домашних вкусным ужином – то эта книга для вас! В нашей книге эксперт и опытный кулинар Юлия Бразовская подготовила для вас рецепты традиционных и оригинальных блинов. (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EC5CDFBB02CAA92F1885446F6B5BB921C4A537D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066257   (413684) от 25.10.2016
 
 Сергей Змеев | Как принимать решения правильно и быстро. Решимость – твой Путь (2016) [FB2, RTF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:F9C49622C968E1822E5255E88EBF2368A7CC8D8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:F9C49622C968E1822E5255E88EBF2368A7CC8D8D
 magnet:?xt=urn:btih:1513B152F7929DD004E7A7EA59CD302F61CF0682
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:1513B152F7929DD004E7A7EA59CD302F61CF0682
 ```bash
 magnet:?xt=urn:btih:4B08B185BAF2EF42F4C8664907AD7F36CE3C16B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:4B08B185BAF2EF42F4C8664907AD7F36CE3C16B0
 magnet:?xt=urn:btih:1A88BFFB7819969EDFDC91F105CAF7809F90EAAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:1A88BFFB7819969EDFDC91F105CAF7809F90EAAE
 ```bash
 magnet:?xt=urn:btih:34910C1F17BBFA75070A79E880950CFBF93671DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:34910C1F17BBFA75070A79E880950CFBF93671DE
 magnet:?xt=urn:btih:A2BEF50F068702DDF9722ED5D466891EC21FC0B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:A2BEF50F068702DDF9722ED5D466891EC21FC0B5
 ```bash
 magnet:?xt=urn:btih:39B25B3ADFE0D76594E84D39953AF86C948DB14A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:39B25B3ADFE0D76594E84D39953AF86C948DB14A
 magnet:?xt=urn:btih:234D6316BA251F337B62FA06FDD295BDD9E493EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:234D6316BA251F337B62FA06FDD295BDD9E493EB
 ```bash
 magnet:?xt=urn:btih:497DEDAC2BBBDF76072D508645404A64932F213A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:497DEDAC2BBBDF76072D508645404A64932F213A
 magnet:?xt=urn:btih:6DA450A6452AB590BFF5D6625A24E78C854AF899
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:6DA450A6452AB590BFF5D6625A24E78C854AF899
 ```bash
 magnet:?xt=urn:btih:5B99EC374434DFC5475262BA2207FF19209A1804
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:5B99EC374434DFC5475262BA2207FF19209A1804
 magnet:?xt=urn:btih:436D5F41B0CBF73CB46C4C3838395F2B890C9B93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:436D5F41B0CBF73CB46C4C3838395F2B890C9B93
 ```bash
 magnet:?xt=urn:btih:584F73DBADBE9A7C2F189BCD4C2C3FD8484AECEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:584F73DBADBE9A7C2F189BCD4C2C3FD8484AECEE
 magnet:?xt=urn:btih:DBEC7DCBDD8F7325C790199D9ACB29BCF0BCA4A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:DBEC7DCBDD8F7325C790199D9ACB29BCF0BCA4A7
 ```bash
 magnet:?xt=urn:btih:741D201614BBF3E41E893C7DFB4D88D177507788
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:741D201614BBF3E41E893C7DFB4D88D177507788
 magnet:?xt=urn:btih:92ACD78C1D1AE9D676FB5B2FCE1F2B47E04336DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:92ACD78C1D1AE9D676FB5B2FCE1F2B47E04336DE
 magnet:?xt=urn:btih:758A6EDC7D46FDB6B63137BABAB02D4BEB81DD20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:758A6EDC7D46FDB6B63137BABAB02D4BEB81DD20
 ```bash
 magnet:?xt=urn:btih:DA0266F1668C7F0E7B5350274530861BA93FDEF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:DA0266F1668C7F0E7B5350274530861BA93FDEF4
 magnet:?xt=urn:btih:DA0F379184F1A5510E116900A6B9ACC7CA599FFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:DA0F379184F1A5510E116900A6B9ACC7CA599FFC
 magnet:?xt=urn:btih:E256ACE200819A0243DF3A78D67383DC82F7F770
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:E256ACE200819A0243DF3A78D67383DC82F7F770
 ```bash
 magnet:?xt=urn:btih:7E616AE7055F2DCCE1E94F1A9B6A2EBA5C00E11E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:7E616AE7055F2DCCE1E94F1A9B6A2EBA5C00E11E
 magnet:?xt=urn:btih:D1E0E3C90D4E347B0613F260317650E520CAD572
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:D1E0E3C90D4E347B0613F260317650E520CAD572
 ```bash
 magnet:?xt=urn:btih:10E559191F7BE7B0FBF13D834C8BD0E410343467
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:10E559191F7BE7B0FBF13D834C8BD0E410343467
 magnet:?xt=urn:btih:E53C7D9938286FF0855C7EC035737787DDAAC371
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,29 +680,7 @@ magnet:?xt=urn:btih:E53C7D9938286FF0855C7EC035737787DDAAC371
 magnet:?xt=urn:btih:2312167DE0E2228FA3C590EFFB5F619D98D3F613
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167612   (415182) от 21.09.2017
-
-Т. А. Жирмунская | "Ум ищет Божества". Библия и русская поэзия XVIII - XX веков (2006) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три века отечественной поэзии и Священное Писание... Вместе с автором, известным поэтом, читатели смогут проследить, как библейские откровения, сюжеты и образы, неожиданно и всякий раз по-новому, преломлялись в творчестве крупнейших поэтов, от Тредиаковского до Есенина. Взгляд автора сквозь боговдохновенную Книгу книг на стихи, порой хрестоматийные, порой малоизвестные, (   Читать дальше...   )Жанр: Литературоведение, христиннствоФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A4DD9C79891853E37B7DF09C8542FD5A90F9C8D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

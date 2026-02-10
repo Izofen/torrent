@@ -1,3 +1,29 @@
+###  Публикация: 1154551   (537144) от 01.08.2017
+
+Г. А. Гурев | Дарвинизм и религия. Из истории идеологической борьбы в биологии (1957) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_537144.jpg" />
+</div>
+
+
+###  Подробнее
+
+При всей важности для истории естествознания выступлений ранних натуралистов-эволюционистов только Чарлзу Роберту Дарвину (1809—1882) привелось дать вполне убедительные, неопровержимые доказательства существования органической эволюции, т.е. непостоянства, «текучести» видов и их преемственности, родственной связи, и создать строго научное учение об историческом развитии (   Читать дальше...   )Жанр: Политология, биология, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B9EF310944C66DD9F9CE03484C152E4FC135B85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1155007   (537148) от 01.08.2017
 
 Валерий Владимирович Лепахин | Значение и предназначение иконы (2003) [PDF]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:24B39683BA3489EDC0DA9AE3129FD008D87DE9FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:24B39683BA3489EDC0DA9AE3129FD008D87DE9FD
 magnet:?xt=urn:btih:E1137963B287300DDE92CB531673E9154DDAFEE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:E1137963B287300DDE92CB531673E9154DDAFEE1
 ```bash
 magnet:?xt=urn:btih:0023F6C84AC7D88A363BED28B9D47C05492AEB80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:0023F6C84AC7D88A363BED28B9D47C05492AEB80
 magnet:?xt=urn:btih:4439B705F43E3B82AA198FE620DBB75161C2354B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:4439B705F43E3B82AA198FE620DBB75161C2354B
 ```bash
 magnet:?xt=urn:btih:B22ABA3F24A38C1CC0280EC8C85CC9F2439B98EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +181,8 @@ magnet:?xt=urn:btih:B22ABA3F24A38C1CC0280EC8C85CC9F2439B98EA
 magnet:?xt=urn:btih:7806E2443B47C0B0D578EAD20460D0C43C7AE78E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:7806E2443B47C0B0D578EAD20460D0C43C7AE78E
 ```bash
 magnet:?xt=urn:btih:4845F39CF6D7ECCC723F26DDFD734ADAEF4BC07E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +233,8 @@ magnet:?xt=urn:btih:4845F39CF6D7ECCC723F26DDFD734ADAEF4BC07E
 magnet:?xt=urn:btih:5E6FF9FDBB42BB4B5B768C567769E641CB939D7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:5E6FF9FDBB42BB4B5B768C567769E641CB939D7D
 ```bash
 magnet:?xt=urn:btih:C21EFACC06E2082BF28F099CAC23ED08042292FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:C21EFACC06E2082BF28F099CAC23ED08042292FF
 magnet:?xt=urn:btih:A761E799DA7B3CD578ACEEB270D42757395AF85E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:A761E799DA7B3CD578ACEEB270D42757395AF85E
 ```bash
 magnet:?xt=urn:btih:E76AAA965816DC3E8BE0EFD76ABFBE6E941405B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:E76AAA965816DC3E8BE0EFD76ABFBE6E941405B7
 magnet:?xt=urn:btih:45945668A048DC05B786C616004F8630C0E1BD6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:45945668A048DC05B786C616004F8630C0E1BD6E
 ```bash
 magnet:?xt=urn:btih:A2CEF334408404E9B24C8CE9ED122139597956B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:A2CEF334408404E9B24C8CE9ED122139597956B0
 magnet:?xt=urn:btih:720B705D0C7437842CC1E4A60B152B50674ACCA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:720B705D0C7437842CC1E4A60B152B50674ACCA7
 ```bash
 magnet:?xt=urn:btih:47326EAEB7F20F3699B44CDB4A38044F72243311
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:47326EAEB7F20F3699B44CDB4A38044F72243311
 magnet:?xt=urn:btih:E75D53FE8446030DF42396BD721F220EF73FD04C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:E75D53FE8446030DF42396BD721F220EF73FD04C
 ```bash
 magnet:?xt=urn:btih:65B2427CBBE7BFE759CD7D31236B1AC9FDA65BA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:65B2427CBBE7BFE759CD7D31236B1AC9FDA65BA3
 magnet:?xt=urn:btih:86D952A1FB883E8176090E51C1B6B8FCECBBA543
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:86D952A1FB883E8176090E51C1B6B8FCECBBA543
 ```bash
 magnet:?xt=urn:btih:64B5C09B96342E373F11B8BFD52F2C0AE39C4CD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +549,8 @@ magnet:?xt=urn:btih:64B5C09B96342E373F11B8BFD52F2C0AE39C4CD8
 magnet:?xt=urn:btih:E5AD966150C8B45B0D4C73F493D2E0539AC69ACA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +574,8 @@ magnet:?xt=urn:btih:E5AD966150C8B45B0D4C73F493D2E0539AC69ACA
 ```bash
 magnet:?xt=urn:btih:71910E28E02E93F8BA230EAD6975273AAFD9EB04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:71910E28E02E93F8BA230EAD6975273AAFD9EB04
 magnet:?xt=urn:btih:DA5FEC4C42235A147EE6FD23C526C4FDB91AD82C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:DA5FEC4C42235A147EE6FD23C526C4FDB91AD82C
 ```bash
 magnet:?xt=urn:btih:35806FC85BA798368BDB1A8BA6E84CFC216554E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:35806FC85BA798368BDB1A8BA6E84CFC216554E9
 magnet:?xt=urn:btih:08EECECF913BD5D9D08546A20BE84C4B1DC5AEE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,29 +679,7 @@ magnet:?xt=urn:btih:08EECECF913BD5D9D08546A20BE84C4B1DC5AEE0
 magnet:?xt=urn:btih:D44023058F43A2C2ED49B23138942882EA07158A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925320   (539105) от 07.08.2015
-
-Людмила Волок | Афонская кухня (2015) [FB2]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539105.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Афонская кухня» – понятие несколько условное. На самой Святой Горе, конечно же, не задаются целью систематизировать и подогнать под некие каноны и правила местные кулинарные традиции. В основе этих традиций лежат, во-первых, православные принципы принятия пищи; а во-вторых – доступность продуктов, которыми богаты щедрые моря и земли Греции. Мы принимаем это условное (   Читать дальше...   )Жанр: КулинарияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A55A21235521A54FF60EC2F4E24F9821E3AD5DD8
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

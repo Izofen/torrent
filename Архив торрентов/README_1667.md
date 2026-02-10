@@ -19,6 +19,8 @@ Classic ROCK, легендарный английский журнал, став
 magnet:?xt=urn:btih:7AE2AF63EAC6D97E48FF4A039F2FBA43176601A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Smultron - простой и элегантный текстовый редак�
 magnet:?xt=urn:btih:71A4BE09D9C6DFE538CB1F709E7CA0B7B3262107
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Mimestream сочетает в себе мощь macOS с расширенным
 magnet:?xt=urn:btih:D668FA340AE4FD14E6FB626F09E10CBF0728BF1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Driver Reviver – это приложение, которое проскани�
 ```bash
 magnet:?xt=urn:btih:E5DD04CCDE98C808941EDDE888FC5F31718C19AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ DVDFab – многофункциональное приложение для к
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Zoc terminal - является довольно известным telnet/SSH/S
 ```bash
 magnet:?xt=urn:btih:354BF600AF368A350BBEB728787A59B87CEED459
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Music Tag Editor - редактор музыкальных тегов помож
 ```bash
 magnet:?xt=urn:btih:C70AC4BDD76D8B1612AE9E031BD1806A9D1D59AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ Koan Sound & Asa - Sanctuary EP (2014) [FLAC|Lossless|WEB-DL]<Downtempo, Drum & 
 magnet:?xt=urn:btih:C758038CDB59D26AC5FC76937A1D0013F187B123
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ Comic Life - великолепное приложение, с помощью к
 ```bash
 magnet:?xt=urn:btih:A152A05920E21FF7A93D56A4A57DC757C5F8B1CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ OPNSense 15.7.18-OpenSSL [i386, amd64] 2xCD, 6xIMG
 magnet:?xt=urn:btih:2523F9D56B6A9FC4B9B7480B3E7DA83BC59F9740
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:2523F9D56B6A9FC4B9B7480B3E7DA83BC59F9740
 ```bash
 magnet:?xt=urn:btih:4E61BC347B0853CA1F24E82C98CA78DFC8482A35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:4E61BC347B0853CA1F24E82C98CA78DFC8482A35
 magnet:?xt=urn:btih:CD4106DAC8FC8C2ABA64B5FDBEB0999B5448569C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ Darklands [En] (RePack) 1992 | RG Games/Pilotus
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ Dick Tracy Антология [En] (RePack) 1990-1991 | RG Games/Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ djay Pro обеспечивает полный инструментарий дл
 ```bash
 magnet:?xt=urn:btih:BB29FB082792C3C000A68019A2A14BDE005DD7C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:BB29FB082792C3C000A68019A2A14BDE005DD7C7
 ```bash
 magnet:?xt=urn:btih:916B6FD023DFB5F0FDA02FAB9E7EE67DF6F82BFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ Windows 7 Pro SP1 x64 JAWS15 для незрячих. 2015.12.3 [Ru]
 magnet:?xt=urn:btih:1E9CA7396C1E026EF8824EEFE4B86A897EF80747
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:1E9CA7396C1E026EF8824EEFE4B86A897EF80747
 magnet:?xt=urn:btih:BF29768DC47940E7CADC6D6786388CD92C35CCD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ ExamDiff - мощная и легкая в использовании прогр
 ```bash
 magnet:?xt=urn:btih:86B88061E52F9C5BAC439EC005E92FE47B252605
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ magnet:?xt=urn:btih:86B88061E52F9C5BAC439EC005E92FE47B252605
 magnet:?xt=urn:btih:EADC4F6F1FD27883FC88A97329A64AECA535905A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ magnet:?xt=urn:btih:EADC4F6F1FD27883FC88A97329A64AECA535905A
 ```bash
 magnet:?xt=urn:btih:1F853EE1F01C71C3031071528486E76AFEEBDDFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ Airtool 2 v.2.5.1 [En]
 magnet:?xt=urn:btih:11F0EA68774CA0D48B12A6E8A8542024B6D885EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ Discovery: Мега-стройки. Гонка к Играм / Mega Builders. Th
 ```bash
 magnet:?xt=urn:btih:F6E860652A1460027CBCB20EEF7404F9406FDF4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +639,8 @@ GlueMotion был создан, чтобы сэкономить время и п
 magnet:?xt=urn:btih:DEF292E649E072E6FD03A9A6166771CE06EBE8D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +666,8 @@ magnet:?xt=urn:btih:DEF292E649E072E6FD03A9A6166771CE06EBE8D5
 magnet:?xt=urn:btih:080B301586B0FBE321F5C84BA247521C540AC162
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ Bartender - утилита для простой организации икон
 ```bash
 magnet:?xt=urn:btih:9B5A340F1FDB04D00CF98C59798C544120928A9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

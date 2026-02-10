@@ -19,6 +19,8 @@ Udemy, Dmitry Zinoviev | Несложно о сложных сетях для п
 magnet:?xt=urn:btih:574E4A68C6663CEF51ADE01875484316180347B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ WordPress – одна из самых популярных CMS для созд�
 magnet:?xt=urn:btih:EA2F5DBF5B6ECD43D6E367EE8171E531184FAB8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Udemy, Skills Factory | Разработка сайтов на Wordpress с ну
 ```bash
 magnet:?xt=urn:btih:4D3686BC6D488C2E302DA3A79A62B8CDD3BD8512
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ MongoDB — документоориентированная СУБД с отк�
 magnet:?xt=urn:btih:1557EEC74867CCD7FF0FED9F1DE388AF9776A224
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Maher Haddad | MikroTik RouterOS Security Engineer with LABS (2019) PCRec [En /E
 ```bash
 magnet:?xt=urn:btih:F5E92FB55A16A5888251D08A66407D574DF4BCDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ Christoph Rumpel | Освоение PhpStorm / Mastering PhpStorm (2021) PCRec [
 magnet:?xt=urn:btih:F092D7AD39DB9DCC586971F270A62B6923F58ED8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ A Cloud Guru / Linux Academy, Scott Pletcher | AWS Certified Solutions Architect
 ```bash
 magnet:?xt=urn:btih:3DBB610AD472C70FAABAD6FEF1F5773C5A0F7A26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ Kubernetes предоставляет множество мощных инстр
 magnet:?xt=urn:btih:27D1374C40745AD2E44DEEA5D6434AA3CF03D379
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Udemy, Jason Xian | React & TypeScript Chrome Extension Development [2021] (2021
 ```bash
 magnet:?xt=urn:btih:613A3A2D3129D83174D442CA386B26A8433FFF51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ A Cloud Guru / Linux Academy, Ryan Kroonenburg | AWS Certified Security - Specia
 magnet:?xt=urn:btih:F3016B0A395434214466EAABD64A5F503A73DF92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ Udemy, Nathan Cope | How To Build a Computer: A Beginner's Guide   (2021) PCRec 
 magnet:?xt=urn:btih:5CB186E8161E4AEF27683877A2E642E752F36006
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ O'Reilly, Alistair Croll | Strata Data Superstream Series: Creating Data-Intensi
 magnet:?xt=urn:btih:D5845B6CEAAC26DADEF704D1366C365B8AF8B9B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ Udemy, Skills Factory | Разработка приложения на Android �
 ```bash
 magnet:?xt=urn:btih:0E4C997CE82F681C59BA33403FF4798CFE1963C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ Python - один из самых популярных языков програ
 magnet:?xt=urn:btih:62971A7C15EB9C3F4120D95235927BDD76452BDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ CASP School | Docker (2018) PCRec
 ```bash
 magnet:?xt=urn:btih:7FBE254FCDA17F09374F500933971DAA77C8C4E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ Devman | Командная строка (2021) PCRec
 magnet:?xt=urn:btih:C92C9C410CEE5543922223C9715BA5384CD1FEB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:C92C9C410CEE5543922223C9715BA5384CD1FEB7
 ```bash
 magnet:?xt=urn:btih:70977C410EC93BE5F93A4E4AA5117094E22F3611
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ Udemy, Prateek Narang и др. | Data Structures & Algorithms, Level-up Course (
 magnet:?xt=urn:btih:920EF767E43C325F67145B0436AF20FB4550DB11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ Linux Academy | Certified Kubernetes Administrator (CKA)  (2021) PCRec [En]
 ```bash
 magnet:?xt=urn:btih:85AEA3E7EA7D2C2960CF1F6187E7BA7C905CC83C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +533,8 @@ ITVDN,  Александр Бреславец | Web Testing (2021) PCRec
 magnet:?xt=urn:btih:2B2ACF249437B0BE8BED7DC4961C8E9590C32B86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ Udemy, Kane Ezki и др. | The Ultimate 2021 Fullstack Web Development Bootcamp
 ```bash
 magnet:?xt=urn:btih:87EC93A3BC8E6CEAD3A34D7D47B305C1F31A1E9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +587,8 @@ AmigosCode, Nelson | Database Design & Implementation (2021) PCRec [En]
 ```bash
 magnet:?xt=urn:btih:C695D0B4947DD81D69FACC18FC13D902A6B608FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +617,8 @@ Skillbox | Профессия Frontend-разработчик PRO (2021) PCRec
 magnet:?xt=urn:btih:8DF592E81F220FF9037411E53DB552747DE8B724
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ Python — один из самых популярных инструменто�
 ```bash
 magnet:?xt=urn:btih:7AAFB8F77631EB6968306E75528276551DAE3F1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +671,8 @@ CSS Grid - это удобный механизм для настройки ра
 magnet:?xt=urn:btih:E468613C7EE2A2F53623618A0E03928D02FC65E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +698,8 @@ Udemy, Brad Schiff | React For The Rest Of Us (2021) PCRec [En / En Sub]
 ```bash
 magnet:?xt=urn:btih:068DC3B999273BF3A32A7EC07BC32BAFCCCC9F4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

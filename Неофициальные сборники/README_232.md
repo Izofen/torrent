@@ -1,3 +1,32 @@
+###  Публикация: 1174127   (387541) от 14.10.2017
+
+VA - Progressive House Vol.6 (Compiled by ZeByte) (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Biologik & K Nass - Corrupted (Biologik Remix)  7:17
+02.  Yunta - Revolution (Uvo Remix)  7:18
+03.  Desaturate - Inundate (Original Mix)  8:14
+04.  Rick Pier O'neil - Crystallized (Wes Straub Remix)  6:36(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:30:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F40842B62FD5B4A291F728A1D2CC90F1DFC3A979
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1067396   (387550) от 29.10.2016
 
 VA - German Top 100 Single Charts 07.11. (2016) [MP3|320 Kbps] <Pop>
@@ -21,6 +50,8 @@ VA - German Top 100 Single Charts 07.11. (2016) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:250947A41FC91F9D4CB37D49A37A881B7D118AE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - German Top 50 Official Dance Charts 07.11.(2016) [MP3|320 Kbps] <Pop, Dance
 magnet:?xt=urn:btih:B0D66F5B179FDDEFEC1045761D1D010598F63F10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Hip-Hop Contest (2018) [MP3|320 Kbps] <Hip-Hop, Rap>
 ```bash
 magnet:?xt=urn:btih:941F62C95820602B1F7D23AFAB04D37E95BB0361
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +144,8 @@ VA - Дорожное Авторадио. Лучшие песни (2012) [MP3|25
 magnet:?xt=urn:btih:E5442C7522ECE3415268C77B0F54E6FC4E1E4F35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +172,8 @@ VA - В машине с музыкой Vol.300 (2022) [MP3|320 Kbps] <Pop, Dance
 ```bash
 magnet:?xt=urn:btih:6AD83E62B56F53624342651FCCE90D05B6DE4F94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +208,8 @@ VA - In Colours (9CD) (2010-2012) [MP3|320 кб/с]<Chillout, Lounge, Ambient, D
 magnet:?xt=urn:btih:5CAF0572F487C930F7D2709BE88A9B9C9FDDDA69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +236,8 @@ VA - Turbo mix №8 (2016) [MP3|319-320 Kbps] <Dance, Club>
 ```bash
 magnet:?xt=urn:btih:A381C21BE5D01546CD533D58C4BD32A93F95DB08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +266,8 @@ VA - Beatport Trance Pack  (29.10.) (2016) [MP3|320 Kbps] <Trance, Melodic, Voca
 magnet:?xt=urn:btih:773AD99E2A56872F5003864F6A84DA7E1F6457A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +294,8 @@ VA - Record Super Chart 556 (2018) [MP3|320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:AF49C3C2A9A7A0A714E2C1B802C200BBAEA79BB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +330,8 @@ VA - Dream & Dance Часть 11 (2012) [MP3|128 кб/с]<Electronic>
 magnet:?xt=urn:btih:790CE1548F28C85C8656CBDDE4F947CEA8246889
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +364,8 @@ VA - Радио Record: Высшая лига 7 50/50 (2012) [MP3|256 кб/с]<P
 ```bash
 magnet:?xt=urn:btih:25946DF638C13F157794261703EB1B68A90574AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +400,8 @@ VA - Dub-Pack - Week 7 (2012) [MP3|320 кб/с]<Dub-Step>
 magnet:?xt=urn:btih:1CE51025DA376872D61360C9B50BE3EE2D19C8DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +434,8 @@ VA - Дискотека Best Hits (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:3A1BD03C2B0333720DDE4C202EA7FE0C6CE9D4FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +470,8 @@ VA - Recordная осень 2 50/50 (2012) [MP3|256 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:C8B0979533A5495D8388011E0CC1701BEF1EB6A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +498,8 @@ VA - Зайцев.Нет: Лучшие новинки октября (2017) [MP3
 ```bash
 magnet:?xt=urn:btih:C958E527EEFB29411DE69C3399D9178003E021DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +534,8 @@ VA - Танцевальный Extrim 50/50 (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:A6031B5B049CDC9BC777171E15FBF92AA939579A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +562,8 @@ VA - 100 Лучших хитов в стиле Европа Плюс (Часть
 ```bash
 magnet:?xt=urn:btih:D98AC7F220FA740A833AFDF7D92DE0527C621ED2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +592,8 @@ VA - Marvellous Electro Swing (2017) [MP3|192-320 Kbps] <Jazz, Electro Swing>
 magnet:?xt=urn:btih:48C89D1BC733FF587F5B0BF87736872ED54041F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +621,8 @@ CD 1:
 magnet:?xt=urn:btih:7E3B3358571DDD6E5C1BC915CB2B15A01F37B752
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +649,8 @@ VA - Private Lounge - Autumn Session Vol.3 (2017) [MP3|320 Kbps] <Lounge , Deep 
 ```bash
 magnet:?xt=urn:btih:F942F31B3614AB03E706CDCC88ED3C5D501D41B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +685,8 @@ VA - Хитовые песни от Радио Дача Vol.8 (2012) [MP3|256 к
 magnet:?xt=urn:btih:5108B5EB4CCA6032CEF896F0B89F2919FF5782CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +719,8 @@ VA - Mystic (2002) [MP3|320 кб/с]<New Age>
 ```bash
 magnet:?xt=urn:btih:E201A33D9D5BB4CEC034EEDDE4BFC2B38A3E80FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -682,6 +755,8 @@ VA - Заводной музон. Только лучшие треки (2012) [M
 magnet:?xt=urn:btih:707D732E83BBB748EA5E488E024FF064B470372A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -714,6 +789,8 @@ VA - Улетная 200ка: Самое лучшее! 7 (2012) [MP3|128 кб/с]
 ```bash
 magnet:?xt=urn:btih:6818029F27A5865AF1668283A7BD8207B55B629C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -748,32 +825,7 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #100 (2012) [MP3|320 кб/с]<Voc
 magnet:?xt=urn:btih:2836162CDA5924022704FA6610984A38DFF41908
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173499   (389634) от 12.10.2017
-
-VA - Empire Records - House Clinic 2 (2017) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TJR - Time To Jack (Original Mix)
-02. Patrick Hofmann - Noon (Paul Vinx Edit)
-03. Integral - Custom
-04. Azurio - 4.1 (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41DF10F025F4B7B09A13514F7759EFEB2F85B47B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

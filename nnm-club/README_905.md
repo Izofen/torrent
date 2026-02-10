@@ -19,6 +19,8 @@ Acrobat Pro — это полностью обновленная настоль�
 magnet:?xt=urn:btih:03DDB82B5B87D2FA70C03723C49BF2851AEA8D4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Kaiserpunk (2025) [Ru/Multi] (build 17798436) RePack seleZen
 ```bash
 magnet:?xt=urn:btih:933633A58C4897062A7D4C526CCE60B03B04B990
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:933633A58C4897062A7D4C526CCE60B03B04B990
 magnet:?xt=urn:btih:837B121C68FD3ED3527808747B5D7B170D7B6750
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ BLEACH Rebirth of Souls (2025) [Ru/Multi] (1.03/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:5E9C71676D95389F3D288AA693EFE688EE181E04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:5E9C71676D95389F3D288AA693EFE688EE181E04
 magnet:?xt=urn:btih:CBA767BF3381F9BE5ADDA4EB8703186D1721A18A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:CBA767BF3381F9BE5ADDA4EB8703186D1721A18A
 ```bash
 magnet:?xt=urn:btih:2EE683B1BFC8DFE6643B020A439F16DF4306D51B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (2.7.0w/dlc) Repack Wanterl
 magnet:?xt=urn:btih:34E620FDBD8FE5F911EA645D4BC4BA61D14DCEBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land (2025) [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:828523D309DE2BD938397AAE94D0751423F41387
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ MyLanViewer — программа для сканирования и монит
 magnet:?xt=urn:btih:85CB67E114DFC95896C20FDB42D33051E80285CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:85CB67E114DFC95896C20FDB42D33051E80285CC
 ```bash
 magnet:?xt=urn:btih:FD25BFE8BD5A4032F9BC0CE9AB8FDC36956084BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:FD25BFE8BD5A4032F9BC0CE9AB8FDC36956084BF
 magnet:?xt=urn:btih:BF344AA8927973D62F4CF6915FFFEFD2199FAC25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ Windows 10 x64 20in1 (incl. LTSC) +/- Office 2024 x64 by SmokieBlahBlah 2025.03.
 magnet:?xt=urn:btih:C87FAC5B699D581DCCACFFEADA1387435A8B5515
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:C87FAC5B699D581DCCACFFEADA1387435A8B5515
 ```bash
 magnet:?xt=urn:btih:6B77FC9AC4917228A48E735B7717EDDC1FB2380C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:6B77FC9AC4917228A48E735B7717EDDC1FB2380C
 magnet:?xt=urn:btih:EDC7B12DF748A9CB0B35B5EB2F4AFB233C529C24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:EDC7B12DF748A9CB0B35B5EB2F4AFB233C529C24
 ```bash
 magnet:?xt=urn:btih:5E4DCB0A7840199E8027526ED6F9E8A382C1E6C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:5E4DCB0A7840199E8027526ED6F9E8A382C1E6C9
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Vampire: The Masquerade - Redemption (2000) [Ru/En] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:1B672DE64497531BEF3D97E0F6A247CAE1F513C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:1B672DE64497531BEF3D97E0F6A247CAE1F513C2
 magnet:?xt=urn:btih:3BCCC4E2661E64A74417E5F9521629E055994466
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:3BCCC4E2661E64A74417E5F9521629E055994466
 ```bash
 magnet:?xt=urn:btih:5093DACC5AA7D2B038D530307656E08E6FE15388
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ Windows 11, 24H2 [26100.3476] 38in1 (x64) by adguard (v25.03.12) [Ru/En]
 magnet:?xt=urn:btih:16491A0D71A64C51A36D68491DF8479E3F47AEEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Girl Genius: Adventures In Castle Heterodyne, созданная по мотив
 ```bash
 magnet:?xt=urn:btih:D0D6649FC66D02E3A041C028660A2073840AAC68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ The Operator - это не типичная стрелялка или прикл
 magnet:?xt=urn:btih:C6BF81902B69850B72098E6545E6A167BD420BAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:C6BF81902B69850B72098E6545E6A167BD420BAF
 ```bash
 magnet:?xt=urn:btih:7E8181C8F4247235E9BD0BF650CD36F2C409470C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ Curse of the Sea Rats - двумерная метроидвания, расск�
 magnet:?xt=urn:btih:8DB01B57E3A4BEB8BC3E67946F286AFCF9CC9E31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:8DB01B57E3A4BEB8BC3E67946F286AFCF9CC9E31
 magnet:?xt=urn:btih:6418B5FA3395670D263FDFF5BF0130B2412F01DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ magnet:?xt=urn:btih:6418B5FA3395670D263FDFF5BF0130B2412F01DB
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

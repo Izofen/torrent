@@ -28,6 +28,8 @@
 magnet:?xt=urn:btih:90B0690FD19122BC4744DF23E2C2404DA4219DAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ magnet:?xt=urn:btih:90B0690FD19122BC4744DF23E2C2404DA4219DAE
 ```bash
 magnet:?xt=urn:btih:55017D8A6D54086FDB287D26BF0B89EE653B2C56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -85,6 +89,8 @@ Loch Vostok - Dystopium (2011) [MP3|320 кб/с]<Extreme Progressive Metal>
 magnet:?xt=urn:btih:4492300594FF6105714332CD189A4F3482716965
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -113,6 +119,8 @@ magnet:?xt=urn:btih:4492300594FF6105714332CD189A4F3482716965
 magnet:?xt=urn:btih:66A2F8AAF8A5A91C514410D186194807B3CD0823
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -136,6 +144,8 @@ magnet:?xt=urn:btih:66A2F8AAF8A5A91C514410D186194807B3CD0823
 ```bash
 magnet:?xt=urn:btih:E704D269E4DF0D9271DFAC551658FA6DED814DFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +178,8 @@ Askin Arsunan - One A Day (2004) [FLAC|Lossless]<Contemporary Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +207,8 @@ Askin Arsunan - One A Day (2004) [FLAC|Lossless]<Contemporary Jazz>
 ```bash
 magnet:?xt=urn:btih:FE15064016AD230B90691EB4BF29F45F427A07F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +238,8 @@ magnet:?xt=urn:btih:FE15064016AD230B90691EB4BF29F45F427A07F6
 magnet:?xt=urn:btih:90EB5A72A4F651001BCB4B81B2DFD9E11C2FA946
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +263,8 @@ magnet:?xt=urn:btih:90EB5A72A4F651001BCB4B81B2DFD9E11C2FA946
 ```bash
 magnet:?xt=urn:btih:1C2A490DFDCF9B7516E5242B2DE011716C704B5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +294,8 @@ magnet:?xt=urn:btih:1C2A490DFDCF9B7516E5242B2DE011716C704B5C
 magnet:?xt=urn:btih:C5BF045C17EC5A65DB26DF7331B89F1DDCBE6279
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +320,8 @@ magnet:?xt=urn:btih:C5BF045C17EC5A65DB26DF7331B89F1DDCBE6279
 magnet:?xt=urn:btih:F47148DF8F6FE6E2F5431916DB30DD0A58256B18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +345,8 @@ magnet:?xt=urn:btih:F47148DF8F6FE6E2F5431916DB30DD0A58256B18
 ```bash
 magnet:?xt=urn:btih:CC25C47534B82FD519EDB37BE0391049AC1E0FB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +376,8 @@ magnet:?xt=urn:btih:CC25C47534B82FD519EDB37BE0391049AC1E0FB1
 magnet:?xt=urn:btih:B4B638A7AE3BF697739193B480167AD2F9D599C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +401,8 @@ magnet:?xt=urn:btih:B4B638A7AE3BF697739193B480167AD2F9D599C0
 ```bash
 magnet:?xt=urn:btih:F87A5A8809F9B81BFCB2697E74BD533D2EF857D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ magnet:?xt=urn:btih:F87A5A8809F9B81BFCB2697E74BD533D2EF857D3
 magnet:?xt=urn:btih:636A19A0F60F8A1DDD7312AFAFA9B30E53CB986B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +453,8 @@ magnet:?xt=urn:btih:636A19A0F60F8A1DDD7312AFAFA9B30E53CB986B
 ```bash
 magnet:?xt=urn:btih:63355C8F1500072A50E36F2A17831DDF7E753A28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +480,8 @@ magnet:?xt=urn:btih:63355C8F1500072A50E36F2A17831DDF7E753A28
 magnet:?xt=urn:btih:7B49D8350B6D659AC2C29BAFDB2B7B0BE5C7E3D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +505,8 @@ magnet:?xt=urn:btih:7B49D8350B6D659AC2C29BAFDB2B7B0BE5C7E3D9
 ```bash
 magnet:?xt=urn:btih:D9E90EE34E90C1E5673CA079C47A582C0E50C2D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +536,8 @@ magnet:?xt=urn:btih:D9E90EE34E90C1E5673CA079C47A582C0E50C2D4
 magnet:?xt=urn:btih:969FBD4ED304DB8A977FB14B2C2ACA20D81D5106
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +561,8 @@ FAR Manager - мощнейший известный всем консольны�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +588,8 @@ FAR Manager - мощнейший известный всем консольны�
 magnet:?xt=urn:btih:02C48CADB8A6C5085734BC6810E0A3494F22BD9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +613,8 @@ Hatebeak - Дискография из 3х альбомов (2004-2007) [MP3|224
 ```bash
 magnet:?xt=urn:btih:2FD81ABDF278DC02C457509EBA42BCBAFBD9A716
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +644,8 @@ magnet:?xt=urn:btih:2FD81ABDF278DC02C457509EBA42BCBAFBD9A716
 magnet:?xt=urn:btih:09F5EA940645BF5640474BD1549A48DBFA23995B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +669,8 @@ magnet:?xt=urn:btih:09F5EA940645BF5640474BD1549A48DBFA23995B
 ```bash
 magnet:?xt=urn:btih:258DE891A7F19129F13434CEE3AA004E149624FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -648,6 +696,8 @@ magnet:?xt=urn:btih:258DE891A7F19129F13434CEE3AA004E149624FF
 magnet:?xt=urn:btih:B33FCDB8D99FB5C530EFD764B11280157F258762
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -671,6 +721,8 @@ magnet:?xt=urn:btih:B33FCDB8D99FB5C530EFD764B11280157F258762
 ```bash
 magnet:?xt=urn:btih:DF18CB34E5E9E7B45564405A4C4721F98FE102BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ Elmedia Player PRO (   Читать дальше...   )Тип издания: m
 magnet:?xt=urn:btih:9A5F0E83D7F3E521DFF1EE468D05A299F03F0982
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:9A5F0E83D7F3E521DFF1EE468D05A299F03F0982
 magnet:?xt=urn:btih:1354A45AAAAEDA74F90037847C4FCFAC36AE11E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Duplicate File Finder Pro 2315 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8696CDFB50D7898FA6498EACBC71277353F27EF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Viber, вне зависимости от того каким устройств
 magnet:?xt=urn:btih:D7749DE17DB7AF5C6CDF4E0DAE28A3A7041BE1B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ App Builder позволяет создавать приложения для с
 ```bash
 magnet:?xt=urn:btih:908FF19E9981F35B3887319A8C1B47914C4F6BB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ IceCream Ebook Reader Pro 6.33 RePack (& Portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:C9A201F546CFA9C082ACDC4CD4CE7B85DBA364C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ GOM Player Plus - мультимедийный плеер со множеств�
 ```bash
 magnet:?xt=urn:btih:71786720FE111B35C28C91F3BDFD69345B615313
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Optimizer рекомендуется использовать после све�
 magnet:?xt=urn:btih:F6E2A680D9E9746C4F7580D123520F104414596A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ CopyQ это легкий, но многофункциональный мене�
 ```bash
 magnet:?xt=urn:btih:4AB57A11AF07EF74525D283B738994718017E70F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:4AB57A11AF07EF74525D283B738994718017E70F
 magnet:?xt=urn:btih:6984B5BF9ED4B6A9D15D820710C7F2847A24EADE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ KiCad – уникальный в своем роде программный п�
 ```bash
 magnet:?xt=urn:btih:C1E98648414F69DCD73671596224035A505F7989
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Windows Update Viewer 0.5.16.0 + Portable [En]
 magnet:?xt=urn:btih:79BA5D545026C861047C9DC84E64709FF88806F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Vivaldi 6.1.3035.204 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EC5781B665E49D589E1865DA42E40F88099E6696
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Smart Launcher - лаунчер являющийся одним из самых 
 magnet:?xt=urn:btih:2E9548AD59F865ADDAE3ACD36074ADD9B47A2FAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ IceCream Ebook Reader Pro 6.33 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B515C7D2909FDAC95D8F5F01395534923CECEFFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ AOMEI Partition Assistant – мощная программа для работ�
 magnet:?xt=urn:btih:7C29FD1601D93CA59EB60D546B62C7B679D37059
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Total Commander 10.51 Final - Titan v27 Portable by pcDenPro [Ru]
 ```bash
 magnet:?xt=urn:btih:501438003F55800FFF39D9244E617AFEF236304C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ XnView MP - мощное многофункциональное приложен
 magnet:?xt=urn:btih:1C0EC46866BC143A4F67603435AD27E90B5B92EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Draw.io 21.6.5 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7EA985A827CBF12858B55255FD647DD7A7BE3386
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ FastStone Capture представляет собой довольно мощн�
 magnet:?xt=urn:btih:469DE445FDBD46568D30ECA5BD66922DDC474399
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:469DE445FDBD46568D30ECA5BD66922DDC474399
 magnet:?xt=urn:btih:A5B779368F99538ABF88F4AF9F7307CB42D0A1D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Kontakt позволяет вам воспроизводить и обрабат
 ```bash
 magnet:?xt=urn:btih:2DD014B95A709E1FB0081A8928FEA0CB169A3EBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ NIUBI Partition Editor – программа для простого и над�
 magnet:?xt=urn:btih:4BFD0FF7574BE2A76D7C622DF58FEF9B3F041A3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ CorelDRAW® Technical Suite 2022 — это универсальные инст�
 ```bash
 magnet:?xt=urn:btih:B5D68D6AF55F7CF0ECE82F77DD996A4E0C7221CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ MyRadar - симпатичное погодное приложение, что �
 magnet:?xt=urn:btih:39225870F72E8213B8220DAB17ACF15A1142E326
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ WaveEditor для Android™ — это профессиональный инс�
 ```bash
 magnet:?xt=urn:btih:8F9D14A8D07383874F13A7609D66EF1C3A458FF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

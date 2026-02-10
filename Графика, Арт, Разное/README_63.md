@@ -1,51 +1,3 @@
-###  Публикация: 942395   (455445) от 30.09.2015
-
-Обои - Beautiful Autumn HD Wallpapers Set 4 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенние обоиФормат: JPGРазрешение файлов: 1920x1200 - 2560x1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC0F36852B6EFAB8EB38139299F21E7824D1630B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942397   (455601) от 30.09.2015
-
-Обои - Коты и кошки 7 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои с котами и кошкамиФормат: JPGРазрешение файлов: 1680x1050 - 2560x1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C586A7F61B58068B9FCFFAEE3A5F07C9119E2349
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 942412   (455752) от 30.09.2015
 
 Обои - Природа 50. 1920x1080 [JPG]
@@ -66,6 +18,8 @@ magnet:?xt=urn:btih:C586A7F61B58068B9FCFFAEE3A5F07C9119E2349
 ```bash
 magnet:?xt=urn:btih:BD860682DE437549CF3CEE2CF4CCB3296AB760B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +45,8 @@ magnet:?xt=urn:btih:BD860682DE437549CF3CEE2CF4CCB3296AB760B1
 magnet:?xt=urn:btih:CDE5E63BFD6FF1C4F142EA30D463672A25464567
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +70,8 @@ magnet:?xt=urn:btih:CDE5E63BFD6FF1C4F142EA30D463672A25464567
 ```bash
 magnet:?xt=urn:btih:3C8A8E8009D2A615CA3BD6C4B8A3D8800F35E827
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +97,8 @@ magnet:?xt=urn:btih:3C8A8E8009D2A615CA3BD6C4B8A3D8800F35E827
 magnet:?xt=urn:btih:EA4986A499A68784473F1A9ABCDF1D42D8565569
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +122,8 @@ magnet:?xt=urn:btih:EA4986A499A68784473F1A9ABCDF1D42D8565569
 ```bash
 magnet:?xt=urn:btih:9952C9158C61B7DB362B471DA0E20D03503E976B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +149,8 @@ magnet:?xt=urn:btih:9952C9158C61B7DB362B471DA0E20D03503E976B
 magnet:?xt=urn:btih:0F409AFBCA15ABC35AC41F6D61B0F031AC693759
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +174,8 @@ magnet:?xt=urn:btih:0F409AFBCA15ABC35AC41F6D61B0F031AC693759
 ```bash
 magnet:?xt=urn:btih:8D9D7E3D07FBEF187A70D35448839F47047A1B2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +201,8 @@ magnet:?xt=urn:btih:8D9D7E3D07FBEF187A70D35448839F47047A1B2C
 magnet:?xt=urn:btih:A07734854BD280D7E84CCF1B35FC5F9322B96846
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +226,8 @@ magnet:?xt=urn:btih:A07734854BD280D7E84CCF1B35FC5F9322B96846
 ```bash
 magnet:?xt=urn:btih:881EB7642D0D5D3F349985514AA947425416B036
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +253,8 @@ magnet:?xt=urn:btih:881EB7642D0D5D3F349985514AA947425416B036
 magnet:?xt=urn:btih:0E83DCDB93D536F80F3F7863F5B7CDF592355657
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +278,8 @@ magnet:?xt=urn:btih:0E83DCDB93D536F80F3F7863F5B7CDF592355657
 ```bash
 magnet:?xt=urn:btih:F4C8EC1E897CFC54A0BD42BFF64741304711CF4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +305,8 @@ Peter Mohrbacher — американский художник — иллюст�
 magnet:?xt=urn:btih:7E36EFAEC75B11679641BBC43592C2E3F8CA6319
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +330,8 @@ magnet:?xt=urn:btih:7E36EFAEC75B11679641BBC43592C2E3F8CA6319
 ```bash
 magnet:?xt=urn:btih:6AF1AD4B6DF2E965CBDF1E5FCA37A3BD699D0FAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +357,8 @@ Artworks by Renato Guttuso
 magnet:?xt=urn:btih:BC24F07B06F4496999E90006458D557754AC21CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +382,8 @@ Hd mix wallpapers (22.09.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:68D931FEB84C825F970DF94CD813581B0FE1D7BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +411,8 @@ magnet:?xt=urn:btih:68D931FEB84C825F970DF94CD813581B0FE1D7BD
 magnet:?xt=urn:btih:A89E09CBA9DB83502E5AF350C8B95E7FCDC9EBB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +436,8 @@ magnet:?xt=urn:btih:A89E09CBA9DB83502E5AF350C8B95E7FCDC9EBB9
 ```bash
 magnet:?xt=urn:btih:E9127E3E3F7E171F04F7BAE8F235C7BEB419B3BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +463,8 @@ magnet:?xt=urn:btih:E9127E3E3F7E171F04F7BAE8F235C7BEB419B3BE
 magnet:?xt=urn:btih:FAC3A86F857BB7D5AEC31DBFA261D5CE2094F6BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +488,8 @@ magnet:?xt=urn:btih:FAC3A86F857BB7D5AEC31DBFA261D5CE2094F6BF
 ```bash
 magnet:?xt=urn:btih:2BB2E668B51BD6A19699FBD057A1C1B16E9534C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +515,8 @@ magnet:?xt=urn:btih:2BB2E668B51BD6A19699FBD057A1C1B16E9534C4
 magnet:?xt=urn:btih:FFEA8F40D8CBA76D21C5BA00C56F07513902BBED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +540,8 @@ Artworks by LUKYANOV
 ```bash
 magnet:?xt=urn:btih:141C28BFAC315B3EAC32213EF168E71343C9EBAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +568,8 @@ magnet:?xt=urn:btih:141C28BFAC315B3EAC32213EF168E71343C9EBAD
 magnet:?xt=urn:btih:FE93C988F02E321C4E324B93C26D48D6A268339D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +594,8 @@ magnet:?xt=urn:btih:FE93C988F02E321C4E324B93C26D48D6A268339D
 magnet:?xt=urn:btih:B5BA01E87F4192CAA1945CC612B5047FCE7E736A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +619,60 @@ magnet:?xt=urn:btih:B5BA01E87F4192CAA1945CC612B5047FCE7E736A
 ```bash
 magnet:?xt=urn:btih:F77D9DED4975AE71F82F02C77A5D6D4C3E7AE96A
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246535   (461410) от 11.09.2018
+
+Обои - Desktop Wallpapers 4K Ultra HD Part 23 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31B89B3FDB6FC1BD3E1251B121D173419AF09454
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246529   (461482) от 11.09.2018
+
+Обои - ЖИВОТНЫЕ. ЛЮБИМЫЕ ПИТОМЦЫ [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои с выразительными портретами собак. Они такие преданные, ласковые, доверчивые... Кто любит, тот оценит.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06B7A4223EAA46D47839EFA0F81E89B0EF3162A4
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

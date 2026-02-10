@@ -22,6 +22,8 @@ The United Jazz+Rock Ensemble - Highlights (1985) [FLAC|Lossless|image + .cue] <
 magnet:?xt=urn:btih:B99404706BBFD3D31F460419550A184772DAEE3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:B99404706BBFD3D31F460419550A184772DAEE3F
 ```bash
 magnet:?xt=urn:btih:2F77367C76B6AE1CB36DD863D3FE0CCBC9ABE79C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:2F77367C76B6AE1CB36DD863D3FE0CCBC9ABE79C
 magnet:?xt=urn:btih:681B0879F71E08F8DFCFD3FAEC4C73AAD9FB89A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Craft The World - 2D-сэндбокс стратегия, совмещающая
 ```bash
 magnet:?xt=urn:btih:25C41EE6F283DE2385E48A16F71D126A54660C7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Side A:
 magnet:?xt=urn:btih:BF24C3F763B23B3A0B790DF5625A8AAC862BEDB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:BF24C3F763B23B3A0B790DF5625A8AAC862BEDB0
 ```bash
 magnet:?xt=urn:btih:708AB69EB1204E728D94A3024BECA3BFC8FE46ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ VA - Connecting The Dots (Denis Stockhausen) (2021) [AAC|~297 Kbps] <House>
 magnet:?xt=urn:btih:7593988F3EDED27C522E14889DF4FB8F57717DE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:7593988F3EDED27C522E14889DF4FB8F57717DE7
 ```bash
 magnet:?xt=urn:btih:34421901244717EC87C2F395B3C579F360DA0EB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:34421901244717EC87C2F395B3C579F360DA0EB5
 magnet:?xt=urn:btih:6A88D5BD9161C9DD2D8BECF432AB6B3275C5EB03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:6A88D5BD9161C9DD2D8BECF432AB6B3275C5EB03
 ```bash
 magnet:?xt=urn:btih:B29A6D509A9DE8019FAB677ACA5C38E4C17595CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ IP-TV Player - это высококачественный проигрыват�
 magnet:?xt=urn:btih:1393C899EC56A81D9B0155149638C4F5962129DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:1393C899EC56A81D9B0155149638C4F5962129DB
 ```bash
 magnet:?xt=urn:btih:8391B78EC55FCDFA1A7F1B43874A94D4B9B15272
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:8391B78EC55FCDFA1A7F1B43874A94D4B9B15272
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:8391B78EC55FCDFA1A7F1B43874A94D4B9B15272
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:8391B78EC55FCDFA1A7F1B43874A94D4B9B15272
 magnet:?xt=urn:btih:5FF0F1FC6D6640E3CC9739CB49F3CBD3F869B9A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:5FF0F1FC6D6640E3CC9739CB49F3CBD3F869B9A6
 ```bash
 magnet:?xt=urn:btih:44EBFFD61AE4A2EC50960AD715B09607EB8DFD27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:44EBFFD61AE4A2EC50960AD715B09607EB8DFD27
 magnet:?xt=urn:btih:91F3D2BB123E88F7AD93964A747319353DD8D053
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +480,8 @@ Jeff Liberman - Celebrate the Day (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 magnet:?xt=urn:btih:82C8CB826DE657C5264675FC66E271B57A382888
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:82C8CB826DE657C5264675FC66E271B57A382888
 magnet:?xt=urn:btih:CBB8EF2DDCFB14AD3D96ACB4611C16F8C72B44F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ magnet:?xt=urn:btih:CBB8EF2DDCFB14AD3D96ACB4611C16F8C72B44F4
 ```bash
 magnet:?xt=urn:btih:95FF7611A74695481B8761CD14FE04EE93936849
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +564,8 @@ Skrizhali - Взгляд изнутри (2020) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:5DEF1FCF106D4E95263990BE09025FA5EFBD408F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:5DEF1FCF106D4E95263990BE09025FA5EFBD408F
 ```bash
 magnet:?xt=urn:btih:670A39F1D2796FF9CCDE2D820C754B0CB86E2DE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +619,8 @@ MonsterTools - Renegade (2019) [MP3|320 Kbps] <Darkwave, Electro Industrial rock
 magnet:?xt=urn:btih:19A9A53B13DF148B5360BFE67BFAB6053D13C518
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +648,8 @@ Europe - Best ballads (1995) Compilation [FLAC|Lossless|image + .cue] <Melodic H
 magnet:?xt=urn:btih:2F7562E223732074B69C3578CF7ABEE79A216A87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +673,8 @@ Magic Kaito / Волшебник Кайто [2010, Special, 12 из 12] BDRip 10
 ```bash
 magnet:?xt=urn:btih:E2A833806C81114EEB56711AAC1E83AA3AB45542
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -652,6 +702,8 @@ Hate Forest - Hour of the Centaur (2020) [MP3|320 Kbps] <Black Metal, Death Meta
 ```bash
 magnet:?xt=urn:btih:49EC3118847443FD1122CF2B2B34C94F4184E724
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

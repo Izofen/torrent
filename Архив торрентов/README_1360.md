@@ -21,6 +21,8 @@ FotoMagico – популярный пакет для создания слай�
 magnet:?xt=urn:btih:A3A7637E28D65BFEA9286044D7CD18510D297A93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Extreme Picture Finder - программа для автоматическог�
 ```bash
 magnet:?xt=urn:btih:FDBAB7AFEE1EC0D353313FD822D1A490425E89F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Clip Studio Paint EX (ранее Manga Studio EX) - это ведущее в м�
 magnet:?xt=urn:btih:F9296FA884D75F08E76AB236BCC1652871AF9890
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ FxSound (ранее DFX Audio Enhancer) - отличное приложение,
 ```bash
 magnet:?xt=urn:btih:6ABB0C5CD101ADFE2B30CF4E722080501EDE8C29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ CyberLink AudioDirector Ultra – мощный инструментарий дл
 magnet:?xt=urn:btih:D8A252246D6599164CDAEA533A498C0AFAB347FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Windows 11 Manager - это универсальная утилита специ
 ```bash
 magnet:?xt=urn:btih:C0D1C60FB8D78C45C3C514F1A9C13ACA7DCE88A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Tor Browser Bundle 12.5.5 [Multi/Ru]
 magnet:?xt=urn:btih:C7188221D600D34A83D05C7BEB26E18B0A3227C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Photo & Picture Resizer v1.0.278 [Ru/Multi] (обновляемая)
 ```bash
 magnet:?xt=urn:btih:F398FC2B20DA2923AE6337A92C37E666B9AB0407
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ PhotoResizerOK - это инструмент, позволяющий быстр�
 magnet:?xt=urn:btih:4ED19FEBE3671B0E10E45AC3B20BA29683316F92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Auslogics Duplicate File Finder поможет Вам избавиться от 
 ```bash
 magnet:?xt=urn:btih:EB885DB00D13319734D77786A5B3C6884ED64428
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Q-Dir позволяет получать быстрый доступ к час�
 magnet:?xt=urn:btih:8C9F44D071AC12C5011992F32535C27D3365C869
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ Viber для Windows позволяет бесплатно отправлять 
 ```bash
 magnet:?xt=urn:btih:3FE79B01A442DD3478A5BDA97A7D0F5169D31B48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Mac FoneLab for Android восстановление данных мобильн
 magnet:?xt=urn:btih:A051B0D0B9E7E86E4BD5827507E82552839ABA83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ GeoGebra — мультиплатформенная программное об�
 ```bash
 magnet:?xt=urn:btih:F7CDE32B03F026A56E64A571B4DEE5D7DEC3EA19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:F7CDE32B03F026A56E64A571B4DEE5D7DEC3EA19
 magnet:?xt=urn:btih:6CA913410461CAAD0D8B6E356AAD8AE2444ED02C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Volume² — альтернативный регулятор громкости,
 magnet:?xt=urn:btih:3D0BD6C783E4F20CB5AFDC4B6750B2E7D2725587
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Auslogics Disk Defrag Pro - это профессиональная версия
 ```bash
 magnet:?xt=urn:btih:AA6C581FFF1091C2A41BFA94CB86EB0D7D19A408
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ DxO PureRAW 3.6.0 build 22 RePack by KpoJIuK [Multi]
 magnet:?xt=urn:btih:C27F08CC400FE78B82F154F4D125FD1ACC6A2987
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ CodeRunner - отличный редактор для программиста �
 ```bash
 magnet:?xt=urn:btih:C03DA6234432ECF88D290BADEF11FDA81E2785C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ TG Pro — контроль температуры и вентиляторов �
 magnet:?xt=urn:btih:ABF0A2E2CAC785F0006CB8D363585B9B76D8F901
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ LibreOffice - офисный пакет с открытым исходным к�
 ```bash
 magnet:?xt=urn:btih:2AF02F4798788BD008DE18CEBC07C77CA9DB231B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Alfa eBooks Manager - одна из самых популярных програ
 magnet:?xt=urn:btih:0AF1A19CA8D929C04804CAF2245CE8F06674C36B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Auslogics File Recovery® - легкая и эффективная в испол
 ```bash
 magnet:?xt=urn:btih:3BA216103043E67B82FD901956B7B3670CB3D203
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ Magic Hider 1.4.2 [Multi/Ru]
 magnet:?xt=urn:btih:96B1802928BED0DE8A54A2AA5215EB5AC985B28E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ Auslogics Registry Cleaner - поможет вам избавиться от о�
 ```bash
 magnet:?xt=urn:btih:71EBEA7742FFD2480A21B141C580EBB035850EDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +681,8 @@ Blender - бесплатный редактор трехмерной графи�
 ```bash
 magnet:?xt=urn:btih:4570E0E9E323F48CE5FAE7AC729267A3542AE3B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

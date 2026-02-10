@@ -1,3 +1,31 @@
+###  Публикация: 1383131   (813752) от 14.05.2020
+
+Протоиерей Павел Великанов и др. | В поисках любви. Беседы о браке и семейной жизни (2020) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813752.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге «В поисках любви» собраны статьи о браке и семейной жизни авторства протоиерея Павла Великанова, епископа Пантелеимона (Шатова), протоиерея Фёдора Бородина, протоиерея Александра Никольского, протоиерея Андрея Ткачёва и протоиерея Алексия Уминского.
+
+Как преодолеть одиночество? Что такое православный брак? Как научиться решать проблемы и не допускать конфликта (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9CEEBDC83395FB55F9AE271F2756151920D87CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197627   (813779) от 08.01.2018
 
 Е. М. Ярославский | Что должен знать пионер о Рождестве (1926) [PDF]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:53CDCC457BF202EE43712F0E1C46ACC8F6969DBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +73,8 @@ magnet:?xt=urn:btih:53CDCC457BF202EE43712F0E1C46ACC8F6969DBA
 magnet:?xt=urn:btih:C27B21FCD7BF444A69C747B9AF662F786884D4B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +98,8 @@ magnet:?xt=urn:btih:C27B21FCD7BF444A69C747B9AF662F786884D4B5
 ```bash
 magnet:?xt=urn:btih:1379C02E5342A1940DD2B14394B08A4E26E5BB61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +127,8 @@ magnet:?xt=urn:btih:1379C02E5342A1940DD2B14394B08A4E26E5BB61
 magnet:?xt=urn:btih:3438311225DB5E69F1B7A198FA329854418953E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +152,8 @@ magnet:?xt=urn:btih:3438311225DB5E69F1B7A198FA329854418953E3
 ```bash
 magnet:?xt=urn:btih:CA49D21CF6441A162D535CF2C56AD4D486A382C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +179,8 @@ magnet:?xt=urn:btih:CA49D21CF6441A162D535CF2C56AD4D486A382C5
 magnet:?xt=urn:btih:636D93E118D86233C24FEE502558789D5BB36D2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +204,8 @@ magnet:?xt=urn:btih:636D93E118D86233C24FEE502558789D5BB36D2D
 ```bash
 magnet:?xt=urn:btih:AEDC7249D474FCB3B76BE417BC541A3A56988087
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +231,8 @@ magnet:?xt=urn:btih:AEDC7249D474FCB3B76BE417BC541A3A56988087
 magnet:?xt=urn:btih:3E09FCB29770B371EAF8A81FFEECA0CBF7969E2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +256,8 @@ magnet:?xt=urn:btih:3E09FCB29770B371EAF8A81FFEECA0CBF7969E2B
 ```bash
 magnet:?xt=urn:btih:DFCCB93EB56BA6E38A558A2DE1D079D6D59EB01C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +284,8 @@ magnet:?xt=urn:btih:DFCCB93EB56BA6E38A558A2DE1D079D6D59EB01C
 magnet:?xt=urn:btih:BAC762CFA3D3D608938CBDA85B6BBD3A06315452
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +309,8 @@ magnet:?xt=urn:btih:BAC762CFA3D3D608938CBDA85B6BBD3A06315452
 ```bash
 magnet:?xt=urn:btih:023D1D8570CE6871524F1FF07260D1506B691FF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +336,8 @@ magnet:?xt=urn:btih:023D1D8570CE6871524F1FF07260D1506B691FF3
 magnet:?xt=urn:btih:65311B81CB11DFAE2C58288FF6DA6CF8B83FE914
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +361,8 @@ magnet:?xt=urn:btih:65311B81CB11DFAE2C58288FF6DA6CF8B83FE914
 ```bash
 magnet:?xt=urn:btih:B4188F528D759101FC0B22FFB6B30D24F71A7764
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +388,8 @@ magnet:?xt=urn:btih:B4188F528D759101FC0B22FFB6B30D24F71A7764
 magnet:?xt=urn:btih:B95D07899FC6D54C0529785EBDE224472E1C44C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +413,8 @@ magnet:?xt=urn:btih:B95D07899FC6D54C0529785EBDE224472E1C44C0
 ```bash
 magnet:?xt=urn:btih:D81BA674F9E8AFB748C5BB631AA963BD3A2B4308
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +442,8 @@ magnet:?xt=urn:btih:D81BA674F9E8AFB748C5BB631AA963BD3A2B4308
 magnet:?xt=urn:btih:A1DC814EC3FE94F3261EA3AF94DEE290994BE836
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +467,8 @@ magnet:?xt=urn:btih:A1DC814EC3FE94F3261EA3AF94DEE290994BE836
 ```bash
 magnet:?xt=urn:btih:F50F2124F74903C4A22FD8DB9AAC36405C82BC40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +496,8 @@ magnet:?xt=urn:btih:F50F2124F74903C4A22FD8DB9AAC36405C82BC40
 magnet:?xt=urn:btih:2D977B4F3F415536FEFC73042D66491A803BE169
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +523,8 @@ magnet:?xt=urn:btih:2D977B4F3F415536FEFC73042D66491A803BE169
 magnet:?xt=urn:btih:53447044CD75B8C2952104FBA712F85EA59EB67D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +548,8 @@ magnet:?xt=urn:btih:53447044CD75B8C2952104FBA712F85EA59EB67D
 ```bash
 magnet:?xt=urn:btih:5BD1FB12CEA212E4D901CFBD5C203396BDE6A644
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +575,8 @@ magnet:?xt=urn:btih:5BD1FB12CEA212E4D901CFBD5C203396BDE6A644
 magnet:?xt=urn:btih:0080766FCC27814CFD0CF7AD8F867E62CC5513EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +600,8 @@ magnet:?xt=urn:btih:0080766FCC27814CFD0CF7AD8F867E62CC5513EA
 ```bash
 magnet:?xt=urn:btih:CD955842670F9963A401204FDE07CE2ADDF8EACC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +628,8 @@ magnet:?xt=urn:btih:CD955842670F9963A401204FDE07CE2ADDF8EACC
 magnet:?xt=urn:btih:60F01C754F82AA2D0E1DEB65C75283D0C4AD0EFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +653,8 @@ magnet:?xt=urn:btih:60F01C754F82AA2D0E1DEB65C75283D0C4AD0EFC
 ```bash
 magnet:?xt=urn:btih:C1340901EF9A395AA34DDAD46FE5C1C69B7625A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,31 +680,7 @@ magnet:?xt=urn:btih:C1340901EF9A395AA34DDAD46FE5C1C69B7625A5
 magnet:?xt=urn:btih:4377144CEF9DDFDE3FEF0897A794C11FEA8D30A6
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382873   (815576) от 13.05.2020
-
-Святитель Игнатий (Брянчанинов) | Слово о человеке. О чудесах и знамениях (2018) [EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815576.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу вошли работы епископа Игнатия (в миру Дмитрий Александрович Брянчанинов, 1807–1867) – известного проповедника, канонизированного Русской Православной Церковью в 1988 году, автора духовных трудов – «Слово о человеке», «Понятие о ереси и расколе», «О чудесах и знамениях», «Будущее России в руках Божественного промысла» и другие.
-
-«Ищите всюду Духа, а не буквы» (   Читать дальше...   )Жанр: ПравославиеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:705C5F39C8B7575EDAD65D2C87516BA052C0ECB8
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

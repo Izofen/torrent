@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C0B0CC80083B847AA0FCC9822AED5E283EF00E12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:C0B0CC80083B847AA0FCC9822AED5E283EF00E12
 ```bash
 magnet:?xt=urn:btih:448763E549A9DE2D34E3BA6D631567D633C47207
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:448763E549A9DE2D34E3BA6D631567D633C47207
 magnet:?xt=urn:btih:CB7B36577DCAD18F2D365466E591EFCBACB15CAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:CB7B36577DCAD18F2D365466E591EFCBACB15CAE
 ```bash
 magnet:?xt=urn:btih:A3D08B8C5F3693AB6CEE3A0A9A5F605B2EA26EA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:A3D08B8C5F3693AB6CEE3A0A9A5F605B2EA26EA3
 magnet:?xt=urn:btih:2857CF4615406643494B78BFF7EBE31688B34798
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:2857CF4615406643494B78BFF7EBE31688B34798
 ```bash
 magnet:?xt=urn:btih:50FEC4C6F1C55533348F177923B7E082ECFE86F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:50FEC4C6F1C55533348F177923B7E082ECFE86F6
 magnet:?xt=urn:btih:12D4C94CAF917FC717F3F6C3C908D3F6CE3CAA0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:12D4C94CAF917FC717F3F6C3C908D3F6CE3CAA0C
 ```bash
 magnet:?xt=urn:btih:BCA18179DD2FCB5ED181F3181E39C051C1BDDA39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:BCA18179DD2FCB5ED181F3181E39C051C1BDDA39
 magnet:?xt=urn:btih:6937DB2DF100A5C25FCD8A7FF1681EC22C63150D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:6937DB2DF100A5C25FCD8A7FF1681EC22C63150D
 magnet:?xt=urn:btih:3FF6910B54DF8E9E133ABD8B81C35CE9B94CF7E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:3FF6910B54DF8E9E133ABD8B81C35CE9B94CF7E9
 ```bash
 magnet:?xt=urn:btih:ED309F338B73555927B1EC47EFA3CC25A2FB9F6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:ED309F338B73555927B1EC47EFA3CC25A2FB9F6B
 magnet:?xt=urn:btih:4AD96CB92840FD65D149C9181FA16DBA37C3D36F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:4AD96CB92840FD65D149C9181FA16DBA37C3D36F
 ```bash
 magnet:?xt=urn:btih:2231182F36058AD0BEB72BDC2D6BE12F33A77747
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,29 +362,7 @@ magnet:?xt=urn:btih:2231182F36058AD0BEB72BDC2D6BE12F33A77747
 magnet:?xt=urn:btih:2146A44F363FAAC3B74EB9B87EECA6529B968058
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 756899   (919058) от 15.02.2014
-
-Телекинез / Carrie (2013) BDRip [Extended Cut]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Невзрачная старшеклассница по имени Кэрри с рождения обладает способностями телекинеза. Давление со стороны фанатично религиозной мамочки и постоянные издевки сверстников лишь способствует развитию ее сверхъестественных способностей. На выпускном одноклассники решают жестоко подшутить над ней, что приводит к фатальным последствиям.Производство: США / Metro-Goldwyn-Mayer, Screen Gems, Misher FilmsЖанр: Триллер, Ужасы, ДрамаРежиссер: Кимберли ПирсАктеры: Хлоя Грейс Морец, Джулианна Мур, Джуди Грир, Энсел Эльгорт, Портия Даблдэй, Габриэлла Уайлд, Коннор Прайс, Алекс Расселл, Мишель Нолден, Макс Топплин, Синтия ПрестонПеревод: ДублированныйСубтитры: Отдельным файломЯзык субтитров: Английский, Украинский. Русский / Forced (на не переведенные диалоги)Продолжительность: 01:40:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A30607E28019724DE27ADB61F29B1F9B0C4E77B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +390,8 @@ magnet:?xt=urn:btih:4A30607E28019724DE27ADB61F29B1F9B0C4E77B
 magnet:?xt=urn:btih:E1F93F235CD1A9E27B5EB72C6454673FDABD47A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +415,8 @@ magnet:?xt=urn:btih:E1F93F235CD1A9E27B5EB72C6454673FDABD47A7
 ```bash
 magnet:?xt=urn:btih:4E336E52159AABBB59A21625C78C18B0A4BAE73C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +442,8 @@ magnet:?xt=urn:btih:4E336E52159AABBB59A21625C78C18B0A4BAE73C
 magnet:?xt=urn:btih:BD6D1D34D134F391F23D9149FA3F36E5A9250FB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +467,8 @@ magnet:?xt=urn:btih:BD6D1D34D134F391F23D9149FA3F36E5A9250FB0
 ```bash
 magnet:?xt=urn:btih:5817CE6558C7A5BCE08FA378272BE7E6C2A44A02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +494,8 @@ magnet:?xt=urn:btih:5817CE6558C7A5BCE08FA378272BE7E6C2A44A02
 magnet:?xt=urn:btih:34FB40457B930A627B0F19ED11F903B0725BE88F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +519,8 @@ magnet:?xt=urn:btih:34FB40457B930A627B0F19ED11F903B0725BE88F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +546,8 @@ magnet:?xt=urn:btih:34FB40457B930A627B0F19ED11F903B0725BE88F
 ```bash
 magnet:?xt=urn:btih:450AFB75527E77B1B01795334F6576B6EC31BF12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +575,8 @@ magnet:?xt=urn:btih:450AFB75527E77B1B01795334F6576B6EC31BF12
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +600,8 @@ magnet:?xt=urn:btih:450AFB75527E77B1B01795334F6576B6EC31BF12
 ```bash
 magnet:?xt=urn:btih:3751085E6809338B4BA4E1510C86F563480EEBCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +627,8 @@ magnet:?xt=urn:btih:3751085E6809338B4BA4E1510C86F563480EEBCD
 magnet:?xt=urn:btih:CE14CC7992ADB3922EC93155023F510A15EEDE53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +653,34 @@ magnet:?xt=urn:btih:CE14CC7992ADB3922EC93155023F510A15EEDE53
 ```bash
 magnet:?xt=urn:btih:FE7D9D765DD943EF6DE1668D8BDBF142652B832C
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 864467   (919590) от 29.01.2015
+
+Убить гонца / Kill the Messenger (2014) HDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Репортер, собирая материал для статьи, попадает в нестандартную ситуацию: он находит секретные файлы ЦРУ, в которых четко прописано причастие госорганов к транспортировке кокаина в особо крупных размерах в Калифорнию. Несмотря на все неприятности, последующие за разоблачением, публикация выходит в одном из самых известных журналов США. Существование репортера становится (   Читать дальше...   )Производство: СШАЖанр: Триллер, Криминал, ДрамаРежиссер: Майкл КуэстаАктеры: Джереми Реннер, Роберт Патрик, Роберт Пралго, Хаджи Голайтли, Тед Хукаби, Мэри Элизабет Уинстэд, Лукас Хеджес, Розмари ДеУитт, Мэттью Линтц, Паркер ДугласПеревод: Двуголосый закадровый, любительский (R.A.I.M & GUGU)Субтитры: ОтсутствуютПродолжительность: 01:51:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AD78FB76C433A24C52F777610EC7AA36BD139AA
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

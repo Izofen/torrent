@@ -1,3 +1,55 @@
+###  Публикация: 1110959   (849780) от 04.03.2017
+
+Пассажиры / Passengers (2016) BDRip [H.264/1080p-LQ] [handmade 16:9]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_849780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Космический корабль с 5 000 пассажирами на борту, погруженными на время полета в искусственный сон, держит курс на планету, которая станет для них новым домом. Всё идет по плану, но по определенным причинам двое пассажиров неожиданно просыпаются и понимают, что до конечного пункта путешествия 90 лет пути, и им суждено остаток жизни провести вдвоем в роскошных интерьерах (   Читать дальше...   )Производство: США / Columbia Pictures, Company Films, LStar Capital, Original FilmЖанр: Фантастика, Драма, ПриключенияРежиссер: Мортен ТильдумАктеры: Дженнифер Лоуренс, Крис Пратт, Майкл Шин, Лоренс Фишбёрн, Энди Гарсиа, Винс Фостер, Кара Мишель Уайлдер, Конор Брофи, Джули Серда, Аврора Перрино, Лорен ФармерПеревод: ДублированныйЯзык субтитров: русский (форсированные, полные), английский (полные)Продолжительность: 01:56:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B3B92CC88CA9DE1814A9756DC33157A77B76A31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377953   (849803) от 23.04.2020
+
+Тайна 101: Слова могут убить / Mystery 101: Words Can Kill (2019) HDTVRip [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_849803.jpg" />
+</div>
+
+
+###  Подробнее
+
+После убийства на книжном фестивале, Эми недовольна тем, кого Трэвис подозревает в убийстве. Она стремится доказать, что за решеткой сидит не тот человек.Производство: СШАЖанр: Криминал, детективРежиссер: Энди МикитаАктеры: Джилл Вагнер, Кристоффер Полаха, Робин Томас, Престон Вандерслайс, Сара Дагдэйл, Amanda Wong, Лоссен Чэмберс, Натали Болтт, Эрик Кинлисайд, Марси Т. ХаусПеревод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:24:32Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C5530519E88762E818AC0A76D7F6D5ACA02168A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377952   (849821) от 23.04.2020
 
 Тайна 101: Убийственное заявление / Mystery 101: Dead Talk (2019) HDTVRip [MVO] [AD]
@@ -18,6 +70,8 @@
 ```bash
 magnet:?xt=urn:btih:35C04281862097CA422D03B09CBFE4202341C7BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +98,8 @@ magnet:?xt=urn:btih:35C04281862097CA422D03B09CBFE4202341C7BB
 magnet:?xt=urn:btih:AD4FEDD841B6F9D8FEE343182AB8C6ABC5FD2E21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +123,8 @@ magnet:?xt=urn:btih:AD4FEDD841B6F9D8FEE343182AB8C6ABC5FD2E21
 ```bash
 magnet:?xt=urn:btih:AA9AB233C7A7BBE666C90530F23718B5886ED7D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +150,8 @@ magnet:?xt=urn:btih:AA9AB233C7A7BBE666C90530F23718B5886ED7D8
 magnet:?xt=urn:btih:A6366CE2C39D25E340520CD19F761ECA57CE2B9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +176,8 @@ magnet:?xt=urn:btih:A6366CE2C39D25E340520CD19F761ECA57CE2B9A
 magnet:?xt=urn:btih:8AAA0A1AEDB566ECC56D4E02AD70C6B7DAF8CA8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +201,8 @@ magnet:?xt=urn:btih:8AAA0A1AEDB566ECC56D4E02AD70C6B7DAF8CA8B
 ```bash
 magnet:?xt=urn:btih:B5B978793A7118392A0AB811E306079681D0E9A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +237,8 @@ magnet:?xt=urn:btih:B5B978793A7118392A0AB811E306079681D0E9A5
 magnet:?xt=urn:btih:F25A21FB2459C7F611B8351FCEF08746D01256B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +262,8 @@ magnet:?xt=urn:btih:F25A21FB2459C7F611B8351FCEF08746D01256B9
 ```bash
 magnet:?xt=urn:btih:ED30EB6ADCD8FFC74025DF443E619F6E925DE706
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +289,8 @@ magnet:?xt=urn:btih:ED30EB6ADCD8FFC74025DF443E619F6E925DE706
 magnet:?xt=urn:btih:81C1899765E6A4F56212366C8F470D7E8F1F2E54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +314,8 @@ magnet:?xt=urn:btih:81C1899765E6A4F56212366C8F470D7E8F1F2E54
 ```bash
 magnet:?xt=urn:btih:93328818ED0555E015ACD4C1A5FE4E64FABB02B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +341,8 @@ magnet:?xt=urn:btih:93328818ED0555E015ACD4C1A5FE4E64FABB02B6
 magnet:?xt=urn:btih:BC01E0E0E9412D49E91904FEC4F648E542D8DA66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +366,8 @@ magnet:?xt=urn:btih:BC01E0E0E9412D49E91904FEC4F648E542D8DA66
 ```bash
 magnet:?xt=urn:btih:0039252E244FE00590E11310E83F30E45F0E471A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +393,8 @@ magnet:?xt=urn:btih:0039252E244FE00590E11310E83F30E45F0E471A
 magnet:?xt=urn:btih:301D823B5D5CD1DC0131A9929CD688997CB38A5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +419,8 @@ magnet:?xt=urn:btih:301D823B5D5CD1DC0131A9929CD688997CB38A5B
 magnet:?xt=urn:btih:1F975B72168E5DD564BBEA042591F2D5F23586A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +444,8 @@ magnet:?xt=urn:btih:1F975B72168E5DD564BBEA042591F2D5F23586A5
 ```bash
 magnet:?xt=urn:btih:9028FD6A45B24E65384A767F4673C5CD86350697
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +472,8 @@ magnet:?xt=urn:btih:9028FD6A45B24E65384A767F4673C5CD86350697
 magnet:?xt=urn:btih:28DA68A98163FBDB527FA3A66A83D1F095137F7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +497,8 @@ magnet:?xt=urn:btih:28DA68A98163FBDB527FA3A66A83D1F095137F7E
 ```bash
 magnet:?xt=urn:btih:1E540BE8F5E4EFB9BA5B96E5B089E27498F6A730
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +524,8 @@ magnet:?xt=urn:btih:1E540BE8F5E4EFB9BA5B96E5B089E27498F6A730
 magnet:?xt=urn:btih:692E6981CDF717E1B54CB399D3EDA29E83CE2A78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +550,8 @@ magnet:?xt=urn:btih:692E6981CDF717E1B54CB399D3EDA29E83CE2A78
 magnet:?xt=urn:btih:85ECCF89757B3F3FA7161080ABB753EED87E55A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +575,8 @@ magnet:?xt=urn:btih:85ECCF89757B3F3FA7161080ABB753EED87E55A0
 ```bash
 magnet:?xt=urn:btih:57B945B26B7AE5F5855E7C38593F2BE85FF130DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +603,8 @@ magnet:?xt=urn:btih:57B945B26B7AE5F5855E7C38593F2BE85FF130DB
 magnet:?xt=urn:btih:47389279A353F7F76407F3915926AF51E3A5FD31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +628,8 @@ magnet:?xt=urn:btih:47389279A353F7F76407F3915926AF51E3A5FD31
 ```bash
 magnet:?xt=urn:btih:AE201B15B3B8A8053A5CF31925E758B257FDB0E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +655,8 @@ magnet:?xt=urn:btih:AE201B15B3B8A8053A5CF31925E758B257FDB0E9
 magnet:?xt=urn:btih:A8C847674E63369D0E0740E7A2FBD588A09CEA45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,56 +681,7 @@ magnet:?xt=urn:btih:A8C847674E63369D0E0740E7A2FBD588A09CEA45
 magnet:?xt=urn:btih:70A7BD8A74F5AD266B448CDA1B7886908866FC0B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375749   (860158) от 17.04.2020
-
-Army Of Lovers - The Day The Gods Help Us All (Life After People) (2020) [H.264/1080p]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Army Of Lovers - The Day The Gods Help Us All (Life After People)
-Human Population: Zero
-Audio: CDA Army Of Lovers - The Day The Gods Help Us All (1993)
-+(   Читать дальше...   )Жанр: PopПродолжительность: 00:02:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A868FA3C580171A773870B9C51D28E938CB3AAF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108867   (860441) от 26.02.2017
-
-Фантастические твари и где они обитают / Fantastic Beasts and Where to Find Them (2016) BDRip [H.264/1080p] [handmade 16:9]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поиск и изучение необычайных волшебных существ приводят магозоолога Ньюта Саламандера в Нью-Йорк. Скорее всего, он отбыл бы на поезде дальше, если бы не маг (так в Америке называют магглов) по имени Якоб, оставленный в неположенном месте магический чемодан и побег из него фантастических животных Ньюта.Производство: Великобритания, США, Cinesite, Double Negative, FramestoreЖанр: Приключения, Фэнтези, СемейныйРежиссер: Дэвид ЙэтсАктеры: Эдди Редмэйн, Эзра Миллер, Колин Фаррелл, Кэтрин Уотерстон, Рон Перлман, Саманта Мортон, Джон Войт, Дэн Фоглер, Кармен Эджого, Элисон Судол, Кристин МардзаноПеревод: ДублированныйЯзык субтитров: русские (форсированные, полные), английские (полные)Продолжительность: 02:12:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BE68E0FE869855A81A48AD15856D46C89CD1739
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

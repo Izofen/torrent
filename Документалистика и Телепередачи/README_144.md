@@ -19,6 +19,8 @@ Throbbing Gristle: Такой же другой, как я / Other, Like Me (202
 magnet:?xt=urn:btih:5F232FC55BD84E78C4B781B94C0F8D40933576F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:5F232FC55BD84E78C4B781B94C0F8D40933576F5
 ```bash
 magnet:?xt=urn:btih:AD5624C2AF913A0457CAD219A1B67C4A7FDDBC3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Discovery: Махинаторы / Wheeler Dealers (2020-2021) WEBRip [H.264/1080
 magnet:?xt=urn:btih:DD1410E7493B041573D595C9D0509130EF939748
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Discovery: Махинаторы / Wheeler Dealers (2021-2022) WEBRip [H.264/1080
 magnet:?xt=urn:btih:F99F829CD84A8B63D7CD74C4BAD2B344232D1ED0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:F99F829CD84A8B63D7CD74C4BAD2B344232D1ED0
 ```bash
 magnet:?xt=urn:btih:A24BD2662B6145D20AAAD4C56E927C69C0761E75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:A24BD2662B6145D20AAAD4C56E927C69C0761E75
 magnet:?xt=urn:btih:8C607D9628F9DD8CB93D2D5B1F3A7DE6F6054DA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:8C607D9628F9DD8CB93D2D5B1F3A7DE6F6054DA0
 ```bash
 magnet:?xt=urn:btih:18709ECABF1E624BFE7BB8415EB540DF1CA5D6DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:18709ECABF1E624BFE7BB8415EB540DF1CA5D6DA
 magnet:?xt=urn:btih:CE144735119BF0A653AE3DB4864C4AEFE4BD8FFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:CE144735119BF0A653AE3DB4864C4AEFE4BD8FFB
 ```bash
 magnet:?xt=urn:btih:37E637AA21BEF5606A487299839E3391314BD5DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:37E637AA21BEF5606A487299839E3391314BD5DD
 magnet:?xt=urn:btih:FAA59AD1FBE660FFA6F08C7C02EA854AF2109149
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:FAA59AD1FBE660FFA6F08C7C02EA854AF2109149
 ```bash
 magnet:?xt=urn:btih:6C546174778EC4E8D32F2772ECA9473EDF13AF54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:6C546174778EC4E8D32F2772ECA9473EDF13AF54
 magnet:?xt=urn:btih:AB86CD93E8D4621EE352508DB64F63669C5E5EAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ RTG. Путешествие по Валдайскому краю (2014) HDTV [H.
 ```bash
 magnet:?xt=urn:btih:B2F65DA8B4902F06B0C90897BD19AA253B74875E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:B2F65DA8B4902F06B0C90897BD19AA253B74875E
 ```bash
 magnet:?xt=urn:btih:060C7A7A520A578EDA74E59D6079389F572F562E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:060C7A7A520A578EDA74E59D6079389F572F562E
 magnet:?xt=urn:btih:4DEC2241DAC6E17AF96F1645ACCC366CE6E3E043
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:4DEC2241DAC6E17AF96F1645ACCC366CE6E3E043
 ```bash
 magnet:?xt=urn:btih:23F748555CEF938AEBF05497055C6C6AA359CC80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:23F748555CEF938AEBF05497055C6C6AA359CC80
 magnet:?xt=urn:btih:668152DAC3781196A3EBA9E559F18D49EA5E01B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:668152DAC3781196A3EBA9E559F18D49EA5E01B1
 ```bash
 magnet:?xt=urn:btih:994F043FC1D8555C6B49A377FF8C1BDE892D9AF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:994F043FC1D8555C6B49A377FF8C1BDE892D9AF1
 magnet:?xt=urn:btih:69F15F418CC6D17005ED645A8C8E9EF903A4AA21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:69F15F418CC6D17005ED645A8C8E9EF903A4AA21
 ```bash
 magnet:?xt=urn:btih:D26C35F42FF5962EF0583D3C6C11EFA27472FED7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:D26C35F42FF5962EF0583D3C6C11EFA27472FED7
 magnet:?xt=urn:btih:B1E51938610075EBFE013EB86694A995C9A24069
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:B1E51938610075EBFE013EB86694A995C9A24069
 ```bash
 magnet:?xt=urn:btih:99562ABB2B6FBAB6F9C598159749AC0E17B7C2C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:99562ABB2B6FBAB6F9C598159749AC0E17B7C2C5
 magnet:?xt=urn:btih:677264A86087A40B1763B4CA3DF268F235560BAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ RTG. Музей истории религии. Древние цивилизац
 ```bash
 magnet:?xt=urn:btih:94E1245479A6ADCC190E341AF050CC060A698AA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:94E1245479A6ADCC190E341AF050CC060A698AA0
 magnet:?xt=urn:btih:32C6749B234CFB0F2CBB55F3304C42111FBC22EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:32C6749B234CFB0F2CBB55F3304C42111FBC22EB
 ```bash
 magnet:?xt=urn:btih:2D1787E732FB461D7BD8188E76AEC53548AB8EDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

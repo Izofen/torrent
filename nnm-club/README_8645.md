@@ -22,6 +22,8 @@ VA - Deep Value, Vol. 2 (Mixed By Pornbugs) (2017) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:DEFE897CBD8022123B506FD924F38CC257BC52E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:DEFE897CBD8022123B506FD924F38CC257BC52E8
 ```bash
 magnet:?xt=urn:btih:CBEC7118B7E306DE721FC3FBED4D7E9CD4B7E89F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Eric Alexander - Summit Meeting (2002) Milestone Records [FLAC|Lossless|tracks +
 magnet:?xt=urn:btih:23FF4E5682B818EE2B8D8C33DB31DBA7BE1DF543
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Benny Goodman - Benny In Brussels (1958) 1989, CBS [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:684332BE3E6D7CCFBC6D332D93A474233CE1A66D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Yuji KONDO - Faces Past (2017) 10 Label [FLAC|Lossless|WEB-DL|tracks] <Techno, E
 magnet:?xt=urn:btih:46AD6AD4428AFD23C37F81E4F47CF8FD1B2A4F27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:46AD6AD4428AFD23C37F81E4F47CF8FD1B2A4F27
 ```bash
 magnet:?xt=urn:btih:065A14050303E6CAB51027C67B92061429111AEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Best Of Vandit (Mixed by Jardin) (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:A56F98F32F81F107D734EC1FAB63A38595DB3B65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Buddy Tate - Swinging Like Tate (1959) 1988, Decca Records [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:4922FD0EBEA78A315CAAD7A9178CA26D874EACF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Clark Terry & Bob Brookmeyer Quintet - Gingerbread Men (1966) 1991, Mainstream R
 magnet:?xt=urn:btih:7AFC2BFA20250AE041B9EF60AD6F977C3E198EC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Eric Alexander & Vincent Herring - Friendly Fire: Live At Smoke (2012) HighNote 
 ```bash
 magnet:?xt=urn:btih:6AB5765B92D1579AEF5DEA25FA23635B6D6E1B0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Lewis Nash - Rhythm Is My Business (1993) Evidence Records [FLAC|Lossless|tracks
 magnet:?xt=urn:btih:C6E15D3322AE5BDC8622CCA09DEC3492B0AF285F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +341,8 @@ Harry James - Things Ain't What They Used To Be (1948, 1949) 1989, Object Enterp
 magnet:?xt=urn:btih:32C673B5829CB64C7E0D5C80378378CBC2676067
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +366,8 @@ magnet:?xt=urn:btih:32C673B5829CB64C7E0D5C80378378CBC2676067
 ```bash
 magnet:?xt=urn:btih:5D49124CA555083DCF53F07DAA58A9F9E5DA0EA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +393,8 @@ Enmusubi no Youko-chan / Сводники Духов: Лисьи Свахи [201
 magnet:?xt=urn:btih:29F1E08B18093A587B5D6DCB48453FFBC2A9B233
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +418,8 @@ magnet:?xt=urn:btih:29F1E08B18093A587B5D6DCB48453FFBC2A9B233
 ```bash
 magnet:?xt=urn:btih:2849F8A6D4D42FD9981D4FAC7EF9D6903AAFAEE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +445,8 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.12.21 [Ru]
 magnet:?xt=urn:btih:1AF9D74A9DDCD19EA1AC3AE7147C4AD1DCFF709D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +470,8 @@ LEGO Marvel Super Heroes 2 (2017) [Ru/Multi] (1.0.0.13948/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:BE2B94C9BA2CC06D446341EB79BFF049939A65FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +497,8 @@ magnet:?xt=urn:btih:BE2B94C9BA2CC06D446341EB79BFF049939A65FD
 magnet:?xt=urn:btih:45D5FD61E07A464ACFB98702A6CB96E623B47186
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +522,8 @@ Tor Browser Bundle 7.0.11 Final [Ru/En]
 ```bash
 magnet:?xt=urn:btih:06A10A60499EE9FCA8E4F4C69FA953AC39862CD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +549,8 @@ FL Studio — популярный редактор-секвенсор для н
 magnet:?xt=urn:btih:4F557B2A303C250BFECF8090934677EB1E2638EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +574,8 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0) Repack xatab [Episode
 ```bash
 magnet:?xt=urn:btih:8A27A59BDEC7C35DAA72C64618C01CA981A89FC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +601,8 @@ magnet:?xt=urn:btih:8A27A59BDEC7C35DAA72C64618C01CA981A89FC8
 magnet:?xt=urn:btih:10C89448E726129A35EBE280992B7D012671A587
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +626,8 @@ magnet:?xt=urn:btih:10C89448E726129A35EBE280992B7D012671A587
 ```bash
 magnet:?xt=urn:btih:13D04390DA051AB10E7AEDA50865EF481962FF0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +653,8 @@ magnet:?xt=urn:btih:13D04390DA051AB10E7AEDA50865EF481962FF0A
 magnet:?xt=urn:btih:08E7A9503AB41D76982BBD3F55F62D6269731F1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +679,8 @@ magnet:?xt=urn:btih:08E7A9503AB41D76982BBD3F55F62D6269731F1E
 magnet:?xt=urn:btih:3026EC58903D925DBD833DC07657D0A235ECFAE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +704,8 @@ magnet:?xt=urn:btih:3026EC58903D925DBD833DC07657D0A235ECFAE3
 ```bash
 magnet:?xt=urn:btih:82630DBCB96CBCC03DB7B1CEE78D44DD9CE715B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

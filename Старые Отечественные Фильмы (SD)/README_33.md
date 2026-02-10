@@ -1,3 +1,29 @@
+###  Публикация: 722957   (355321) от 18.11.2013
+
+Клад (1988) DVDRip [H.264] [Hi10P]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_355321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время полевых работ шоферы находят клад из золотых монет. Они хотят сдать клад государству, но все должностные лица, к которым обращаются герои фильма, не желают брать на себя ответственность за его сохранность…Производство: СССРЖанр: Боевик, ДрамаРежиссер: Виктор СергеевАктеры: Лев Дуров, Сергей Паршин, Дмитрий Харатьян, Михаил Глузский, Лидия Федосеева-Шукшина, Михаил Васьков, Георгий Шахет, Борис КлюевПеревод: Не требуетсяСубтитры: ОтсуствуютПродолжительность: 01:15:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDED29986D19D3A39C689665EF2613EFF92FEBA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 722956   (355403) от 18.11.2013
 
 Клад (1988) DVDRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:0BD7DE11DF70733DDF057B58ACCB49907AB34F36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:0BD7DE11DF70733DDF057B58ACCB49907AB34F36
 ```bash
 magnet:?xt=urn:btih:695921EBCAFBA1087ACD7F805F961693D87C0C8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:695921EBCAFBA1087ACD7F805F961693D87C0C8F
 magnet:?xt=urn:btih:28399BE3BB629AC5A2C48DF5C364B02DE389585D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:28399BE3BB629AC5A2C48DF5C364B02DE389585D
 ```bash
 magnet:?xt=urn:btih:57AE060CAB200DACF876E7360FCF01EDD3D665DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:57AE060CAB200DACF876E7360FCF01EDD3D665DA
 magnet:?xt=urn:btih:09E375A3BE8DBEEB9EE0EFF30A6F7DAB19C83ED5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:09E375A3BE8DBEEB9EE0EFF30A6F7DAB19C83ED5
 ```bash
 magnet:?xt=urn:btih:E29FCEDE41D6F09BDF478A439EB9AF5CD77F69E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:E29FCEDE41D6F09BDF478A439EB9AF5CD77F69E9
 magnet:?xt=urn:btih:1B4EA35647BDE6CC07A76E4EA2663E26FCB28887
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:1B4EA35647BDE6CC07A76E4EA2663E26FCB28887
 ```bash
 magnet:?xt=urn:btih:9EFCB9E227DF0F4305ECC4383416379A340A6A88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:9EFCB9E227DF0F4305ECC4383416379A340A6A88
 magnet:?xt=urn:btih:F8BC95F745B504E2304ABFE27EB56AB5890D174F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:F8BC95F745B504E2304ABFE27EB56AB5890D174F
 ```bash
 magnet:?xt=urn:btih:7F88790F8FCDA6430DAC2B10370082831D2967E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:7F88790F8FCDA6430DAC2B10370082831D2967E3
 magnet:?xt=urn:btih:DE2C93D11605BD2C6E3C98E14ED34C6498CD6183
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:DE2C93D11605BD2C6E3C98E14ED34C6498CD6183
 magnet:?xt=urn:btih:1CBBB64FF5703C5C6A4F0F9FDC8528A1B246C095
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:1CBBB64FF5703C5C6A4F0F9FDC8528A1B246C095
 ```bash
 magnet:?xt=urn:btih:A647063413CB2E07237B49CDFFFF2FC4BA24E2CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:A647063413CB2E07237B49CDFFFF2FC4BA24E2CA
 magnet:?xt=urn:btih:9A340FA7A4D3EEE6CB12B3DE73EEA1BFB759B397
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:9A340FA7A4D3EEE6CB12B3DE73EEA1BFB759B397
 magnet:?xt=urn:btih:7A580379780354320F8D477D1316248952EFAF41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:7A580379780354320F8D477D1316248952EFAF41
 ```bash
 magnet:?xt=urn:btih:DDEAE2A390164E789A1638FD151A7317727E28F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:DDEAE2A390164E789A1638FD151A7317727E28F6
 magnet:?xt=urn:btih:FD0B5BB7A7DD6AD3F9F64AC416155028FB42C3B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:FD0B5BB7A7DD6AD3F9F64AC416155028FB42C3B3
 ```bash
 magnet:?xt=urn:btih:8F8627EFBC3BCAC4906BEEB408D4DB89F238B641
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:8F8627EFBC3BCAC4906BEEB408D4DB89F238B641
 ```bash
 magnet:?xt=urn:btih:EA5F5F6CE6129B8BA033CC7B8CF90EC86824B6DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +549,8 @@ magnet:?xt=urn:btih:EA5F5F6CE6129B8BA033CC7B8CF90EC86824B6DF
 magnet:?xt=urn:btih:C63F85854ABC77089B5110860FE2628F176AC69E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +574,8 @@ magnet:?xt=urn:btih:C63F85854ABC77089B5110860FE2628F176AC69E
 ```bash
 magnet:?xt=urn:btih:4BA132E8E0EFFE4BBA1084A9418F84A7E2B15F63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:4BA132E8E0EFFE4BBA1084A9418F84A7E2B15F63
 magnet:?xt=urn:btih:8C976DAC1E4A29ECB9F3DF806E52AF33EFE95AD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:8C976DAC1E4A29ECB9F3DF806E52AF33EFE95AD8
 magnet:?xt=urn:btih:57905E87416F9BA918718A9D57DE527E4E1E75A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:57905E87416F9BA918718A9D57DE527E4E1E75A9
 ```bash
 magnet:?xt=urn:btih:728CBFD32FB55CF9A158BCB7508DBA2686B2F2FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,31 +681,7 @@ magnet:?xt=urn:btih:728CBFD32FB55CF9A158BCB7508DBA2686B2F2FD
 magnet:?xt=urn:btih:1D841EE87FBF5C0D1DEAA3E098944A1F5F55DAD6
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 183462   (363985) от 08.11.2016
-
-Без свидетелей (1983) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_363985.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам пьесы С. Прокофьевой «Беседа без свидетелей». Прийдя однажды к бывшей жене, Он узнает, что она собирается выйти замуж за его старого друга, крупного ученого, на которого Он в свое время написал анонимку.
-
-Из страха разоблачения он требует, чтобы она изменила свое решение. Главным его «козырем» становится сын Дима, который не знает, что она не родная его (   Читать дальше...   )Жанр: ДрамаРежиссер: Никита МихалковАктеры: Ирина Купченко, Михаил УльяновПродолжительность: 01:29:44
-
-## Скачать торент
-```bash
-нет
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

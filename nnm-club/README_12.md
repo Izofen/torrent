@@ -22,6 +22,8 @@ Kuptsov GameDev Academy, Данил Купцов | Industry Entry for 3D Artist 
 magnet:?xt=urn:btih:3444F46A470BA00AF0477ED971E457079117DF58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ NG: Выживание в северных лесах / Northwoods Survival (202
 ```bash
 magnet:?xt=urn:btih:88B2E5F7748D60AAF708311FDD338FB4226947B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Agisoft Metashape Professional - это передовое программно�
 magnet:?xt=urn:btih:9A071778FCAD7FF02975800C9CD5D9C411ADDD85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Microsoft exFAT/NTFS for USB by Paragon Pro v5.0.1.2 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A3C915FA054CECA8B08FEB5E2F52A464E08C61A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:A3C915FA054CECA8B08FEB5E2F52A464E08C61A0
 magnet:?xt=urn:btih:DEDF1611FBA37B533E48F5299CD0E1D595CF5709
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:DEDF1611FBA37B533E48F5299CD0E1D595CF5709
 ```bash
 magnet:?xt=urn:btih:C211FF24075C3DE0D96F3F842A923F46919623AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:C211FF24075C3DE0D96F3F842A923F46919623AC
 magnet:?xt=urn:btih:BBB42EB59261913A1454807E52B5E21BC68809DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:BBB42EB59261913A1454807E52B5E21BC68809DE
 ```bash
 magnet:?xt=urn:btih:68E917CD0BB8438EDDBFB116C5683B34E6FC0DBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:68E917CD0BB8438EDDBFB116C5683B34E6FC0DBA
 magnet:?xt=urn:btih:86AE6C1CC0C2CBF73E8140489C0A675E07EDA71B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:86AE6C1CC0C2CBF73E8140489C0A675E07EDA71B
 ```bash
 magnet:?xt=urn:btih:F2825686E6714C98EF58CFCB7F076E4CE4D78177
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:F2825686E6714C98EF58CFCB7F076E4CE4D78177
 magnet:?xt=urn:btih:48C9E01EDC662DF42C1BC6140F40C87072D1475D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ FBReader Premium v3.8.18 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:684F0C67C8B85C5BEE8C5807035726B3571A0251
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ PAC-MAN WORLD 2 Re-PAC (2025) [Ru/Multi] (1.0) Repack seleZen
 magnet:?xt=urn:btih:4188C95DAA0B0BFBEF92612C609DA33B8BE34883
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Kotlin – простой и высокопроизводительный язы
 magnet:?xt=urn:btih:3C8E88A925628182A6B0D993C4283F269895EFED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:3C8E88A925628182A6B0D993C4283F269895EFED
 ```bash
 magnet:?xt=urn:btih:13449A90F69F7CED7EF25E5EC7955DE581E8A563
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:13449A90F69F7CED7EF25E5EC7955DE581E8A563
 magnet:?xt=urn:btih:6E5CFF4A61939E06702C98DE5C7EB60582F4D7F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Topaz Gigapixel – это ведущий в отрасли, ИИ-усилите
 ```bash
 magnet:?xt=urn:btih:09A51B99CF1D167A6F51D038EA83CD2ED888350E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Cronos: The New Dawn - это новое слово в жанре survival horro
 magnet:?xt=urn:btih:5B232C45F5B20079F051C7CB25574D21FD765435
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:5B232C45F5B20079F051C7CB25574D21FD765435
 ```bash
 magnet:?xt=urn:btih:CAA59567AC5DC496F686EBB04D3E574FFB08CBFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:CAA59567AC5DC496F686EBB04D3E574FFB08CBFF
 magnet:?xt=urn:btih:0F7A9C829B42BFE993ED487F34A5332F22A4984F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ SOMA - научно-фантастический хоррор от Frictional Ga
 ```bash
 magnet:?xt=urn:btih:785FFBE1D772E6931C8092855053138E4888335F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:785FFBE1D772E6931C8092855053138E4888335F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:785FFBE1D772E6931C8092855053138E4888335F
 magnet:?xt=urn:btih:A67EBADEEF625549FC143C8B0C6ACBB1DDF71105
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ Driver Easy Professional — профессиональная и в тоже в�
 ```bash
 magnet:?xt=urn:btih:33C2BF9FB284DC5759035ABD378F8FF1DC807A14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:33C2BF9FB284DC5759035ABD378F8FF1DC807A14
 magnet:?xt=urn:btih:0A733C9280B7BC6564ED53A507AC3B4BAA1A72FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:0A733C9280B7BC6564ED53A507AC3B4BAA1A72FC
 ```bash
 magnet:?xt=urn:btih:1DF4C621CA74A848313E863B4C17A4CFE2E543BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

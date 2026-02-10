@@ -22,6 +22,8 @@ VA - Compilation part 137 Electronic (2024) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:BF3E812221387897177E57E74E534262827B6C4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:BF3E812221387897177E57E74E534262827B6C4C
 ```bash
 magnet:?xt=urn:btih:82DA7A9DF302221128541A109EC3035CE7A15DEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Spectacular Sparky (2021) [Ru/Multi] (1.0.1) Repack Let'sРlay
 magnet:?xt=urn:btih:538CD4ACFB0E73116F0E57671C8BAE16951D0363
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ FolderSync обеспечивает простую синхронизацию ф
 ```bash
 magnet:?xt=urn:btih:B322ABCA2FEC395441B38FD89BAF72F8BA5523A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:B322ABCA2FEC395441B38FD89BAF72F8BA5523A5
 magnet:?xt=urn:btih:5B4722CD6F6AD8BA62BA1AD016279B69F6125714
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Nelly Cootalot: Spoonbeaks Ahoy! HD – переиздание оригинал�
 ```bash
 magnet:?xt=urn:btih:92B1C8242A7EFCE000FC089AF95FB8AFD4461AA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:92B1C8242A7EFCE000FC089AF95FB8AFD4461AA7
 ```bash
 magnet:?xt=urn:btih:E26A41CD8B6AE3EC4BC8122E2F640839BE3E7896
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ VA - This Is Bass 2024 (2024) [MP3|320 Kbps] <Breaks, Breakbeat>
 magnet:?xt=urn:btih:860963A2A700C19A9CED00FD3AB09E09367CAC29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:860963A2A700C19A9CED00FD3AB09E09367CAC29
 ```bash
 magnet:?xt=urn:btih:6A2BC02C25C8F19402E2254C0B6E399336E1B490
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ VA - The Best Of Italo Disco Vol. 11 (1988) [OGG Vorbis|480 Kbps] <Electronic, I
 magnet:?xt=urn:btih:7AF97FCE48186473ACE073E5B32447209447DDCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ Slay the Princess — это психологический хоррор с вы
 ```bash
 magnet:?xt=urn:btih:F256B0986AFBE86B7644C414F2DAEBE250D98B0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:F256B0986AFBE86B7644C414F2DAEBE250D98B0E
 magnet:?xt=urn:btih:A5311B35A9DA8F235B809CAC7C495DBC89ABBFF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:A5311B35A9DA8F235B809CAC7C495DBC89ABBFF1
 magnet:?xt=urn:btih:7FC6C110ACDE474E127085D04B667A96B2AB310C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:7FC6C110ACDE474E127085D04B667A96B2AB310C
 ```bash
 magnet:?xt=urn:btih:EFFADF5A4FBA7EFB145FD327B923C80EB018DC49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:EFFADF5A4FBA7EFB145FD327B923C80EB018DC49
 magnet:?xt=urn:btih:B3091185DD3810AD8589E1508435E942F5FCF2A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ Nelly Cootalot: The Fowl Fleet - приключенческий квест, в �
 ```bash
 magnet:?xt=urn:btih:7F82ABB3792A091191631E643E7F80EB28064216
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ VA - Dancefloor Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
 magnet:?xt=urn:btih:361FBFA75BC2C9A9C0EBF97213BFF104C0F9E9F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:361FBFA75BC2C9A9C0EBF97213BFF104C0F9E9F6
 ```bash
 magnet:?xt=urn:btih:0A088DDE03A9A9BDAD54E52A72FFFBE97F7E973C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ The Smoothies - January Cozy Nights (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:3DF41C209702CEB3D7CC641171BAA7A1B7BDC0CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ Patriarkh (ex- Batushka) - Prophet Ilja (2025) [FLAC 24/44.1|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:134776AD9072BDB422D0ADC1F057C2A212EC878D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +564,8 @@ magnet:?xt=urn:btih:134776AD9072BDB422D0ADC1F057C2A212EC878D
 magnet:?xt=urn:btih:047E52013BA0C9469957DC4B01F4C4AFB2E6D735
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:047E52013BA0C9469957DC4B01F4C4AFB2E6D735
 ```bash
 magnet:?xt=urn:btih:9076E1C06CA824FB2FC18D58387AE410D3CB3912
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +616,8 @@ magnet:?xt=urn:btih:9076E1C06CA824FB2FC18D58387AE410D3CB3912
 magnet:?xt=urn:btih:CB110B52AEFD6F310079D2547AA2ECB67A28747B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +641,8 @@ magnet:?xt=urn:btih:CB110B52AEFD6F310079D2547AA2ECB67A28747B
 ```bash
 magnet:?xt=urn:btih:D8B946247B2D8D9DBE7D748CCC76F2273CFE048F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +668,8 @@ magnet:?xt=urn:btih:D8B946247B2D8D9DBE7D748CCC76F2273CFE048F
 magnet:?xt=urn:btih:1BD6C01EAAFBB89A406862A5F5F269249DF3AF65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ magnet:?xt=urn:btih:1BD6C01EAAFBB89A406862A5F5F269249DF3AF65
 ```bash
 magnet:?xt=urn:btih:E96E3D0909146DD7CCAE6A27B2A005A962B4AA4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

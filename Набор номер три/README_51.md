@@ -19,6 +19,8 @@ YouTube препятствует массовому переносу видео 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Linux набирает популярность
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Linux набирает популярность
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Linux набирает популярность
 magnet:?xt=urn:btih:25FEB8B1C94A3270DDB63E20E480C631E5BFAF4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:25FEB8B1C94A3270DDB63E20E480C631E5BFAF4B
 ```bash
 magnet:?xt=urn:btih:D18D00E19EA89ACE15EB758188BA6E26B9CB0FB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ GoodbyeDPI 0.2.3rc1 Launcher 8.4 [Ru/En] (Разблокировка YouTube)
 magnet:?xt=urn:btih:059AD24238DFC38FC0B8ED474EB0453CA541D06E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ True Phone - отличная за счёт своих свойств замен
 ```bash
 magnet:?xt=urn:btih:EC56D64C9EFCF276959EE517D9069F6DC022BF15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:EC56D64C9EFCF276959EE517D9069F6DC022BF15
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:EC56D64C9EFCF276959EE517D9069F6DC022BF15
 ```bash
 magnet:?xt=urn:btih:24B85E9B89102AFD33E352EC6137C9F051C39712
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:24B85E9B89102AFD33E352EC6137C9F051C39712
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:24B85E9B89102AFD33E352EC6137C9F051C39712
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:24B85E9B89102AFD33E352EC6137C9F051C39712
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:24B85E9B89102AFD33E352EC6137C9F051C39712
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:24B85E9B89102AFD33E352EC6137C9F051C39712
 ```bash
 magnet:?xt=urn:btih:B3931514F8FBEF0A1AF3E2B9F280A92C027DA46A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:B3931514F8FBEF0A1AF3E2B9F280A92C027DA46A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:B3931514F8FBEF0A1AF3E2B9F280A92C027DA46A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:B3931514F8FBEF0A1AF3E2B9F280A92C027DA46A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2024.08.21 [Ru]
 ```bash
 magnet:?xt=urn:btih:FD977414AA5CE3E94F6DD06E6F2F8597F471C22A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:FD977414AA5CE3E94F6DD06E6F2F8597F471C22A
 magnet:?xt=urn:btih:2F66CBA2F89330268DF055CC5F9BAED1296788CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:2F66CBA2F89330268DF055CC5F9BAED1296788CE
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ Flashr – это небольшая, но очень полезная прог�
 magnet:?xt=urn:btih:86A3B8E1F25345D0A8B05B6E3C45BD54470F4ECB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:86A3B8E1F25345D0A8B05B6E3C45BD54470F4ECB
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:86A3B8E1F25345D0A8B05B6E3C45BD54470F4ECB
 magnet:?xt=urn:btih:03A564F4B8AC168F8A6CE18FE8E22A668DBA9652
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:03A564F4B8AC168F8A6CE18FE8E22A668DBA9652
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:03A564F4B8AC168F8A6CE18FE8E22A668DBA9652
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Plants vs. Zombies / Растения против Зомби (2009) [Ru] (1.2.0
 ```bash
 magnet:?xt=urn:btih:F6E0522DA9CB3D1EEEE804C98E1D558DF5C6F28E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

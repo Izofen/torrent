@@ -22,6 +22,8 @@ VA - 60 minutes. Old School Dance Music vol.26 (mixed by Dj V) (2024) [MP3|320 K
 magnet:?xt=urn:btih:D5B668ED6481C7B0CDA1B532D8B6A4FDE5DE43B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:D5B668ED6481C7B0CDA1B532D8B6A4FDE5DE43B6
 ```bash
 magnet:?xt=urn:btih:1260A2B8013772BD4087C547FB936477D2D8D5ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:1260A2B8013772BD4087C547FB936477D2D8D5ED
 magnet:?xt=urn:btih:71322010CD20D46548FB179730D8662B23ACB171
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:71322010CD20D46548FB179730D8662B23ACB171
 ```bash
 magnet:?xt=urn:btih:631102059ABB2BBA6F88D6134EE298BFE9FC7E43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:631102059ABB2BBA6F88D6134EE298BFE9FC7E43
 magnet:?xt=urn:btih:4139DFD15D2CE4A42DB0F44EBF4EE5B39DA781EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:4139DFD15D2CE4A42DB0F44EBF4EE5B39DA781EB
 magnet:?xt=urn:btih:A2F629BC6CCC9ABB52DABA6C818DF9C859CEA578
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:A2F629BC6CCC9ABB52DABA6C818DF9C859CEA578
 magnet:?xt=urn:btih:9A8D6DDDFDD3725A5B48C25CB7888EE650EF9E16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:9A8D6DDDFDD3725A5B48C25CB7888EE650EF9E16
 ```bash
 magnet:?xt=urn:btih:2F9B82E9457C5149AF399231639AC5134DF9D0C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:2F9B82E9457C5149AF399231639AC5134DF9D0C8
 magnet:?xt=urn:btih:D5EFEDF29E4E066720FADFD7CBF991A941C8FA7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:D5EFEDF29E4E066720FADFD7CBF991A941C8FA7F
 ```bash
 magnet:?xt=urn:btih:761B3F054E3A294000C4338DB87EE87B2841CE34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:761B3F054E3A294000C4338DB87EE87B2841CE34
 magnet:?xt=urn:btih:278A940A2300711DFC7E8C2472EA3CDE441CFB05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:278A940A2300711DFC7E8C2472EA3CDE441CFB05
 ```bash
 magnet:?xt=urn:btih:A1990A4B0F1332786711C8E2E8B1D583E5FA240B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:A1990A4B0F1332786711C8E2E8B1D583E5FA240B
 magnet:?xt=urn:btih:C1FDB45F11CAF38285812AD0B4268FE85C70E68F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:C1FDB45F11CAF38285812AD0B4268FE85C70E68F
 ```bash
 magnet:?xt=urn:btih:A0F086508541115D49CC3920DF2EA8E631418B80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +397,8 @@ magnet:?xt=urn:btih:A0F086508541115D49CC3920DF2EA8E631418B80
 magnet:?xt=urn:btih:7DF35B8B78BADF9C57AE0B979C5A29244B6263A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:7DF35B8B78BADF9C57AE0B979C5A29244B6263A0
 ```bash
 magnet:?xt=urn:btih:35C5ED1F16B1740571702EEF4A6BBC598CF7D715
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ Gypsy's Kiss - Piece By Piece (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:98E808D8B5014D35A4CB9C700679948798D1B202
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:98E808D8B5014D35A4CB9C700679948798D1B202
 magnet:?xt=urn:btih:AF208B1D07BE90338C5479F300B9A9B2562952CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:AF208B1D07BE90338C5479F300B9A9B2562952CD
 ```bash
 magnet:?xt=urn:btih:80011197F609855C8EF330908CCEA0573E6BCFA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ magnet:?xt=urn:btih:80011197F609855C8EF330908CCEA0573E6BCFA7
 magnet:?xt=urn:btih:1175D12EA09B597DFB43C9B6D41250540560265C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:1175D12EA09B597DFB43C9B6D41250540560265C
 ```bash
 magnet:?xt=urn:btih:039DD0F916A124BA9C9A1630017FE952F605E82B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack Other s [Ultimate Bundle]
 magnet:?xt=urn:btih:DA707B903BEDCC2DCF2D793AF88D36A59AD3F21F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:DA707B903BEDCC2DCF2D793AF88D36A59AD3F21F
 magnet:?xt=urn:btih:B2A79208901B3C1F016EF72410110578EEEF5FF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ magnet:?xt=urn:btih:B2A79208901B3C1F016EF72410110578EEEF5FF5
 ```bash
 magnet:?xt=urn:btih:D8656F69B92AF12E83840A70F40C5F96AD9A1EB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +669,8 @@ VA - Best Piano Sonatas (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 magnet:?xt=urn:btih:5CD8033DEFFA9A48761FC36BB90E7CA1CAFCC98D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ magnet:?xt=urn:btih:5CD8033DEFFA9A48761FC36BB90E7CA1CAFCC98D
 ```bash
 magnet:?xt=urn:btih:4A3A97C5E8A89187310EFEA9267A706AEE2004AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

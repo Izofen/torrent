@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:389BBDB6B18A9834CFFC802B5AD52CC11F768FD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:389BBDB6B18A9834CFFC802B5AD52CC11F768FD1
 ```bash
 magnet:?xt=urn:btih:EA32AEB59B42433FDC5F7BACEF9E39BFDA838691
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Media Player Classic - BE – универсальный проигрывате�
 magnet:?xt=urn:btih:33829809860CFF224B6771C10163FA6F34D4D825
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:33829809860CFF224B6771C10163FA6F34D4D825
 ```bash
 magnet:?xt=urn:btih:8323AFB51CDE9C6CEC4FC2868C1400648A162900
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ FBReader Premium v3.8.17 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:6A8737FD613A25A0C8128AD2AF1EAE09AD3D567E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Aiseesoft FoneLab for Android — это популярный инструмен
 ```bash
 magnet:?xt=urn:btih:214D4B059A83F2FB69934F83086FB64F80DF7C65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ RIPOUT - это хоррор-шутер с режимом совместной �
 magnet:?xt=urn:btih:63FEBF0E1DC63CF223A7EC1A1860AE512C1ED9D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:63FEBF0E1DC63CF223A7EC1A1860AE512C1ED9D3
 ```bash
 magnet:?xt=urn:btih:0487115E4A80CE8150197F8A85283A405FE2E5B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:0487115E4A80CE8150197F8A85283A405FE2E5B0
 magnet:?xt=urn:btih:A39B41460EBFD4605EB016B0BD7B08857EB069C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:A39B41460EBFD4605EB016B0BD7B08857EB069C0
 ```bash
 magnet:?xt=urn:btih:4A2423E2FC2337E1D13803C2FE8B776ED2F06FF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:4A2423E2FC2337E1D13803C2FE8B776ED2F06FF9
 magnet:?xt=urn:btih:375C9FC20AFA0852383EE57B28642EBA17C1911B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Yomi 2 - это файтинг в карточной форме. Изучайт�
 ```bash
 magnet:?xt=urn:btih:9E3B68DFC2418F1EE61D20FBEEFB0A1F5D7610D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:9E3B68DFC2418F1EE61D20FBEEFB0A1F5D7610D7
 magnet:?xt=urn:btih:C900A8C774C8E3CA4F9D706DF594991847BBF1C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ NewPipe v0.28.0 Free + Mod by Alex.Strannik  [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:00911223E329E1814D863B4BCE595CA695F53B03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ MediaHuman YouTube Downloader 3.9.16 (0708) RePack (& Portable) by elchupacabra 
 magnet:?xt=urn:btih:47FF2DE43FA420C6D1E6F4DEDF17E1F430275EB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ The Count of Monte Clicker - это игровой проект, повеств�
 magnet:?xt=urn:btih:F3E9B99B32A50D54BCA0A542AAB46A68BCD6A125
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:F3E9B99B32A50D54BCA0A542AAB46A68BCD6A125
 ```bash
 magnet:?xt=urn:btih:32D19CE350C79E32A19D9D99BE09231D44DDD2D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:32D19CE350C79E32A19D9D99BE09231D44DDD2D3
 magnet:?xt=urn:btih:228366AE54DA91F0BE28EEBC72E645A12288FD77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:228366AE54DA91F0BE28EEBC72E645A12288FD77
 ```bash
 magnet:?xt=urn:btih:54FE45165136399C2786050D69584C4D17E12D95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:54FE45165136399C2786050D69584C4D17E12D95
 magnet:?xt=urn:btih:87EFC6499F03C05FDC9F4F24C673264009502748
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ Digger: Galactic Treasures - атмосферная космическая иг�
 ```bash
 magnet:?xt=urn:btih:0D76201C8CE03820331F7F1110ED5D1F8E390BB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ Le Mans Ultimate - официальная игра FIA World Endurance Champions
 magnet:?xt=urn:btih:5F2F54CAB57C510543D0EF774C93C538B718E65A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ Iron Core: Mech Survivor - это однопользовательская ро�
 ```bash
 magnet:?xt=urn:btih:89FF6A68033D5954508EA5E9B2CF7C099D708C16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:89FF6A68033D5954508EA5E9B2CF7C099D708C16
 magnet:?xt=urn:btih:53E4EF6CD01242CD7BD1507215B2ED9AC5A338E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:53E4EF6CD01242CD7BD1507215B2ED9AC5A338E1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ magnet:?xt=urn:btih:53E4EF6CD01242CD7BD1507215B2ED9AC5A338E1
 ```bash
 magnet:?xt=urn:btih:C55BA4DB5716A5A444B9E38516C47947DCAA6BA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

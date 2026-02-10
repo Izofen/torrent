@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:48367BBA5579A50FA4C9E966C31E18AC7D030180
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:48367BBA5579A50FA4C9E966C31E18AC7D030180
 ```bash
 magnet:?xt=urn:btih:61A56A3F4EC8E1862568DFB80839628C0A9972C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Adventures & Quests: The Black Crystal (2025) [En] (1.0) Unofficial [Collector's
 magnet:?xt=urn:btih:CC0EAA1D140F39F185E70621BE3D258EAE745974
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:CC0EAA1D140F39F185E70621BE3D258EAE745974
 ```bash
 magnet:?xt=urn:btih:CA8F7A892971D372C0EEAF6D69107A680CDE3630
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Suit for Hire - захватывающий экшн с видом сверху, 
 magnet:?xt=urn:btih:8FEC18E09B6B093DF526586654DA3F633198F611
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:8FEC18E09B6B093DF526586654DA3F633198F611
 ```bash
 magnet:?xt=urn:btih:4B1CE1F77A62FFA19C805EF19ACA2678DB78202C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:4B1CE1F77A62FFA19C805EF19ACA2678DB78202C
 magnet:?xt=urn:btih:8C04C6344AB78B01EFFA36FF9B74255126C24F58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ EOBD Facile - автосканер обд2 последнего поколени
 ```bash
 magnet:?xt=urn:btih:DBF23D5E88F3EDD70934876ABDE726047D7607CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:DBF23D5E88F3EDD70934876ABDE726047D7607CF
 magnet:?xt=urn:btih:6D00D4F47AC5D8EE236F5FBB410AAFD7C8A57160
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ theHunter: Call of the Wild – наиболее реалистичный на �
 ```bash
 magnet:?xt=urn:btih:C4B508A2DE7F33605AC1343AF262BAA51AB65457
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Soulstone Survivors - это динамичный экшен-рогалик, г�
 magnet:?xt=urn:btih:7063C0A3EADC8EC6CFD0A2C25339B885C0B7ADA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Revo Registry Cleaner Pro - это мощное и эффективное про
 ```bash
 magnet:?xt=urn:btih:768A453B5BFF9E4BAF6EDC2565DF5D3726DA9FD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Black Sabbath - Greatest Hits Broadcast Collection: Black Sabbath (2025) [MP3|32
 magnet:?xt=urn:btih:B2180B416EC1B631E74CE2F05A4F09C9F09A7FFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:B2180B416EC1B631E74CE2F05A4F09C9F09A7FFD
 ```bash
 magnet:?xt=urn:btih:B3FCF7B2D8805AC8A3C1F41953EF404289787AC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ NG: Аутсайдеры / Underdogs (2025) WEBRip [H.264/1080p] (сезон 1, 
 magnet:?xt=urn:btih:C90E705ADC2EEB110D6CD70D732FC7DDF82728F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Chinese Frontiers (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:03159A0BC80606FAC8400D7336C2C1BC2D4E5218
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:03159A0BC80606FAC8400D7336C2C1BC2D4E5218
 magnet:?xt=urn:btih:330586D5CA7D29F482F0622BAAD6F4C87E8D0070
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:330586D5CA7D29F482F0622BAAD6F4C87E8D0070
 ```bash
 magnet:?xt=urn:btih:1BB0091DE7D190A6D4817989C5096B24A0C1A967
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ Offline Translator - это автономный переводчик
 magnet:?xt=urn:btih:C390466945D06EC505A9EA4AD1CEACF51C281F3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ Empire of Sin - стратегическая игра от Romero Games и Parad
 ```bash
 magnet:?xt=urn:btih:CE82CCDC140552713DCEBEBC0FEAFDEEC8F8648B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ CD1:
 magnet:?xt=urn:btih:FEB5871F1F1D4E7FA82C3A89529D008F16CA1BB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ magnet:?xt=urn:btih:FEB5871F1F1D4E7FA82C3A89529D008F16CA1BB4
 magnet:?xt=urn:btih:4D7F637611BE3E0FFB00A816E27B719E2230B142
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ magnet:?xt=urn:btih:4D7F637611BE3E0FFB00A816E27B719E2230B142
 ```bash
 magnet:?xt=urn:btih:10D0D241BCA4282A84F74E4B2F85A9FF14650432
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +634,8 @@ theHunter: Call of the Wild – наиболее реалистичный на �
 magnet:?xt=urn:btih:791EE4BE9504A9F2F3F6A660B2EF28D73B107164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ Cryptmaster – здесь вы сможете говорить что угод�
 magnet:?xt=urn:btih:FA54719C156117C1B1E26C609F0A41AC442D43B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ magnet:?xt=urn:btih:FA54719C156117C1B1E26C609F0A41AC442D43B9
 ```bash
 magnet:?xt=urn:btih:F263C8968E18ED30736C9589C10F98F62FF608F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

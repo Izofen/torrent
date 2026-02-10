@@ -20,6 +20,8 @@ AllDup - бесплатный инструмент для поиска и уда
 magnet:?xt=urn:btih:095B15B9598E6C32462C3BC00F72F63D2B752C53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ O&O ShutUp10 позволяет получить полный контроль �
 ```bash
 magnet:?xt=urn:btih:E711A427FECF87964FB2EA94635A2468E74CA2C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ System software for Windows v.3.6.6 by CUTA [Ru]
 magnet:?xt=urn:btih:4A1409A1E7F576549BBBDAB2AACFB6D39C022067
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Wise Auto Shutdown позволяет Вам отключать компьюте
 ```bash
 magnet:?xt=urn:btih:9560DD8F51C1AEF6B876275297F432A3DBDDE5F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Movavi Screen Recorder - программа для захвата видео с 
 magnet:?xt=urn:btih:357075DD2525F09C703EC9E873F2D983C6349334
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Movavi Screen Recorder - программа для захвата видео с 
 ```bash
 magnet:?xt=urn:btih:9D17422B07C56A2F53D52B6C6960E4184D00E2CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Movavi Screen Recorder - программа для захвата видео с 
 magnet:?xt=urn:btih:0C5A71636E05D42678DFC9F345A000CCF80CAE02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Epic Pen – настольная программа для Windows, позво�
 ```bash
 magnet:?xt=urn:btih:81C892C8EB2FD0C24F874663F729596031CC291C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ ClipAngel 2.17 & portable [Multi/Ru]
 magnet:?xt=urn:btih:2ECEB89CBAE09A0C536DB6324307ED5EFE1EA699
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ TweakNow WinSecret Plus! - позволяет пользователям исс�
 magnet:?xt=urn:btih:E29D7A22DD0E9558A955B053FEF2922FA0F36A61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ ASCOMP KeyCtrl - это приложение для управления гор�
 ```bash
 magnet:?xt=urn:btih:D0C5160DB8FC20A8C05014D9024D3CBFF97B97F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Screenpresso - легкий в использовании инструмент �
 magnet:?xt=urn:btih:F7FC1CF96DC6C34694F41330E7228A74CA22BA47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Aiseesoft Screen Recorder 3.1.36 RePack (& Portable) by elchupacabra (x64) [Mult
 ```bash
 magnet:?xt=urn:btih:8AECC1AD2213F8DC4014C44974175EC146E02A87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ DisplayFusion - программа для управления обоями ра
 magnet:?xt=urn:btih:8A4A4C7B52C942E3899158CF3A5C5B358E51D4ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Directory List & Print – менеджер каталогов, предназн
 magnet:?xt=urn:btih:6B403B159F1952B2F676EEB14BBC0FEBE394C86D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Clipboard Master — удобный и всеобъемлющий инструм
 ```bash
 magnet:?xt=urn:btih:12A662226DFA468F84D6EA152EE0CAA7E301819A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ Windows Vista, 7, Windows 8, 8.1, 10, 11 Server 2008, 2008 R2, 2012, 2012 R2, 20
 magnet:?xt=urn:btih:F11522BF4A51CFC6D1F8123F6E67DC2F08E3DFCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ GadgetPack (ex 8GadgetPack) 38.0 [Multi/Ru]
 magnet:?xt=urn:btih:BD2F089A9A1AA84578571553BCB13181E63E67C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ Defender Tools — это небольшая утилита от Ratiborus, ко
 ```bash
 magnet:?xt=urn:btih:1290562C87E05D9D1A5DA04D76B42C825B3BEB49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ FileSeek использует один и тот же установщик ка�
 magnet:?xt=urn:btih:340B2DBF0EABE02271FFB81CAFD1018D53ABD694
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ ClipboardFusion - утилита для настройки и удобной р�
 magnet:?xt=urn:btih:F5AF80DA5ACDFCD9BAB5D3BFEDC054D7FE595649
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ Run-Command - небольшая программа, которая создан
 ```bash
 magnet:?xt=urn:btih:B1229F331AFA374CE9F219DC1B6355EBC6BA6FBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ ClipClip - это программа, которая намерена решит
 magnet:?xt=urn:btih:EB71E21C9EEA1ADBE5E514A2F359B3A389300CF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ CMWTAT Digital Edition 2.7.2.0 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CA3F0E6725D760ECDF74D0189FDBC74A0ACF1389
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ magnet:?xt=urn:btih:CA3F0E6725D760ECDF74D0189FDBC74A0ACF1389
 magnet:?xt=urn:btih:ED9687217AB8C3E761E2B3D73E9ABD7120F12F53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:ED9687217AB8C3E761E2B3D73E9ABD7120F12F53
 ```bash
 magnet:?xt=urn:btih:8B793EA757220B7B3E859F4F8B6F6DAE0FDB31A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

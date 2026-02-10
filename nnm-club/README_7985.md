@@ -22,6 +22,8 @@ VA - Союз 17. 2 Альбома (1996) 3 CD [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:216C7F6127371E667F751EF7C627AC3B486C4520
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Pistol Kixx - Pistol Kixx (2018) [FLAC|Lossless|WEB-DL|tracks] <Punk-Rock>
 magnet:?xt=urn:btih:2048449E1A53B4767DB0C2CF3F3B919639B00A58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:2048449E1A53B4767DB0C2CF3F3B919639B00A58
 ```bash
 magnet:?xt=urn:btih:3A1B20177AAFA8A5554F5400DC1C5133A5EC2A88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:3A1B20177AAFA8A5554F5400DC1C5133A5EC2A88
 magnet:?xt=urn:btih:F3DFAC6492B325D5E9BE4E6361CA992D9A490AE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Batteries 2.1.1 [En]
 magnet:?xt=urn:btih:003992B2E87509ED1E62ED7F50EDA27FBEAD1C84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Opera 99.0.4788.47 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:E1FCFD0FDADD90034904840E29272C0875E482BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ Luteoks - Barely True Norwegian Black Metal (2023) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:4A596DE8C6C3239F766608F66058481492A1F186
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ Ubuntu*Pack 22.04 GNOME (март 2023) [amd64] 1xDVD
 magnet:?xt=urn:btih:379F648E336676D9C0CF5200F29E84F0CB21CA49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ PullTube 1.5.7 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4FCCF5707D2C8B00EC59C0FAC85324BBFC397A2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ AYVY 1.12.1 [Multi]
 magnet:?xt=urn:btih:2D21CF8F7979B3CFF85C7EB14D954428AFE76C13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:2D21CF8F7979B3CFF85C7EB14D954428AFE76C13
 ```bash
 magnet:?xt=urn:btih:A5EF003D62189CA4347CBB96B586F6E4C291CA5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:A5EF003D62189CA4347CBB96B586F6E4C291CA5E
 magnet:?xt=urn:btih:F28E2E5D5E79FE53C8B3DD1835B58311600147D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ CD-03 - Satellites (Deluxe Edition)Жанр: Industrial Metal, Electronic RockП
 ```bash
 magnet:?xt=urn:btih:07DB96125DB20FF1E8476F514651D8E5EB86F226
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ Lust Witch - Hands Of Filth (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Death, Doom
 magnet:?xt=urn:btih:9897D1DC412F81F10C271D1BEDAD8AECC1E1E1A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ Billie Eilish - hotline (edit) (2023) Single [FLAC 24/44.1|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:4E0B3EA2037AE04A22D96CC31D3CD02997616311
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ The Great Unfinished... - Malcontent (2018) [FLAC|Lossless|WEB-DL|tracks] <Glasg
 magnet:?xt=urn:btih:0EE0A0B8885E9773CFB59F9E6D00765D6036151D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +457,8 @@ Ubuntu*Pack 22.04 LikeWin (март 2023) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:717D30226237ACB2382273AA3FC536104B2C9AC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ Wondershare UniConverter - это полный набор инструменто
 magnet:?xt=urn:btih:80CD8C0C526DAD49C58FE5B36E1E9206A565BE68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ magnet:?xt=urn:btih:80CD8C0C526DAD49C58FE5B36E1E9206A565BE68
 magnet:?xt=urn:btih:DF5D5EDDD5582B8370A8516F542806856704B462
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +536,8 @@ magnet:?xt=urn:btih:DF5D5EDDD5582B8370A8516F542806856704B462
 ```bash
 magnet:?xt=urn:btih:19D7D4B9D227427172653887805D5F1EB8B128E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +566,8 @@ Qvintessence - Qvintessence (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:17AD2F5A88F4A3AEA9A889050EE2C4283D5A8406
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +595,8 @@ Various Artists - Flower Power - Best Of Love, Peace and Happiness (2023) [FLAC|
 magnet:?xt=urn:btih:E02248EF75E6C157EBC57610851D91DCE822EEF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +620,8 @@ magnet:?xt=urn:btih:E02248EF75E6C157EBC57610851D91DCE822EEF3
 ```bash
 magnet:?xt=urn:btih:513560CD86ACC729F29216F4693A0A89A234D790
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +650,8 @@ Azeroth - II (2008) [FLAC|Lossless|image + .cue] <Power Metal>
 magnet:?xt=urn:btih:486974D655A9B19E38D247BC11D67A6AF37A02BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +679,8 @@ VA - Dead Don’t Die - Rock Anthems (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:08ADA1F8C742BFEED569B37DF01346F030EB2B34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +707,8 @@ A4	Локомотив ГТ -	На Релси(   Читать дальше...   )
 ```bash
 magnet:?xt=urn:btih:478255D319B255DD31D6D6CFAE804A56040F0228
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

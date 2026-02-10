@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:A8B09D6C1DF1E45D3A66D5129B47B551725C20A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:A8B09D6C1DF1E45D3A66D5129B47B551725C20A6
 magnet:?xt=urn:btih:F4F0ACE482A04428F035060ED51B78F7DB85E737
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:F4F0ACE482A04428F035060ED51B78F7DB85E737
 magnet:?xt=urn:btih:159E304160DA79A19F7EF60FF6B570227B7B3079
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ S.T.A.L.K.E.R. Call of Pripyat Mobile v0.06 [Ru]
 ```bash
 magnet:?xt=urn:btih:254394E3821538C350B7D867B075DDBB1A2369CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Knights & Dragons - игра, созданная автором "Pierwolf" с и
 magnet:?xt=urn:btih:D2D88327D36DA1F16DA146444F0FAAAEE457C2D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Teenage Mutant Ninja Turtles - Recolored (8-Bit) 1.0 [En]
 magnet:?xt=urn:btih:098930FD2CD43FA2E924940E87A2F56B20610762
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Landstalker - The Treasures Of King Nole 1.1.1 (SEGA Genesis Game) [Ru/En]
 ```bash
 magnet:?xt=urn:btih:27A19F82552CE8B4E2A527E59BEED35EF96FD881
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ SEGA MEGA DRIVE - игровая приставка четвертого пок�
 magnet:?xt=urn:btih:0A8B15D413CE4B8862EE4CD293F37ACCFDC51228
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:0A8B15D413CE4B8862EE4CD293F37ACCFDC51228
 magnet:?xt=urn:btih:168B7AD5EA637B5A41177B786DED25136F9E14E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:168B7AD5EA637B5A41177B786DED25136F9E14E0
 ```bash
 magnet:?xt=urn:btih:9F61B069F1AD28B6D6287302EF17B2B171FBED11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:9F61B069F1AD28B6D6287302EF17B2B171FBED11
 magnet:?xt=urn:btih:A624B553D6AFFAECEAA523C0F876A933073CD0BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:A624B553D6AFFAECEAA523C0F876A933073CD0BC
 ```bash
 magnet:?xt=urn:btih:77F1C3D1116B95DC4D15B873C78FDB2EBF15D337
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:77F1C3D1116B95DC4D15B873C78FDB2EBF15D337
 magnet:?xt=urn:btih:C4791867C42790484DE92CF564DD883D9B613CA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:C4791867C42790484DE92CF564DD883D9B613CA1
 ```bash
 magnet:?xt=urn:btih:2682FAF192A40F47F7459C7FC627E5BEF6DF9F92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ Angry Birds Fight! 2.4.1 [Ru]
 magnet:?xt=urn:btih:3081B23E64AC36622CEFFEC0A00485C41EC98630
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:3081B23E64AC36622CEFFEC0A00485C41EC98630
 ```bash
 magnet:?xt=urn:btih:F4AFEC8541925C9F5328006ABD77AA1BA7CED84C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:F4AFEC8541925C9F5328006ABD77AA1BA7CED84C
 magnet:?xt=urn:btih:5844FAB12308933C1CD8ECC55A4005718DC60E02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:5844FAB12308933C1CD8ECC55A4005718DC60E02
 ```bash
 magnet:?xt=urn:btih:A46D9DB03FF8E5F0F9E6940A2B293312B97EB9C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ magnet:?xt=urn:btih:A46D9DB03FF8E5F0F9E6940A2B293312B97EB9C5
 magnet:?xt=urn:btih:11FAA06C56EFE838F56A53DBC5368594518CB845
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ Golden Axe. Golden Axe 2. Golden Axe 3. Антология (SEGA Genesis Game) [
 ```bash
 magnet:?xt=urn:btih:BCFDB5A73145C7891746AFAF2614635DF3015B06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ Battletoads. Battletoads And Double Dragon. Антология (SEGA Genesis Gam
 magnet:?xt=urn:btih:43673841C956483A31E2B70D057E76DE691E58A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ Worms 3 v.2.04 + mod [Ru/Multi]
 magnet:?xt=urn:btih:E768375F30FC64C22A0BBD819361C5EF32FB39B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ Comix Zone 1.1.1 (SEGA Genesis Game) [Ru/En]
 ```bash
 magnet:?xt=urn:btih:8B0EAACC42B4A777E61173EB7F64547D905105BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ Pool Break Pro - один из самых лучших симуляторов с
 magnet:?xt=urn:btih:C7D0491E41E737323D2C07FDE162A75BE3308563
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ Perfect Angle v1.6 [Ru/Multi]
 magnet:?xt=urn:btih:5BF5CFEA5C1E288973826A032E2EA01DDA6C7DB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:5BF5CFEA5C1E288973826A032E2EA01DDA6C7DB5
 ```bash
 magnet:?xt=urn:btih:BF2D75C5FC03D07EBAC42102F34392110CFA957A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

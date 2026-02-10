@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:C904A6758AF782D322B08D61E2D40BB8E44FDED8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:C904A6758AF782D322B08D61E2D40BB8E44FDED8
 ```bash
 magnet:?xt=urn:btih:F3129A18ABAB925952C3B1E90EAED506C61D97B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Jimi Hendrix - BBC Sessions 1967 (2025) Remastered, Live On Broadcasting [MP3|32
 magnet:?xt=urn:btih:9AAB90877564DF154E055347EFD2E969F486F7FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ Animalyze - Powerhouse (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Roc
 ```bash
 magnet:?xt=urn:btih:16CC1240269F95F6590280E34550191A0877F154
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ Shirley Bassey - The Singer: Classic and Undiscovered Gems 1962-79 (2025) [MP3|3
 magnet:?xt=urn:btih:C21F9301EE0905D014EDD6ADB750557B5CD05470
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:C21F9301EE0905D014EDD6ADB750557B5CD05470
 ```bash
 magnet:?xt=urn:btih:6A6E90BBBA447ED2055F72E9E6F63D9BF6E505A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -179,6 +191,8 @@ Ella Fitzgerald - Golden Legends (2006) CD, Compilation [FLAC|Lossless|tracks + 
 magnet:?xt=urn:btih:C858F4A38F980D51964371EA15D4E08FDACC3337
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ Caught In Action - Out Of The Cold (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 ```bash
 magnet:?xt=urn:btih:FFA0EC88F83A968F7D564C2F176CF04837BAD839
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -233,6 +249,8 @@ magnet:?xt=urn:btih:FFA0EC88F83A968F7D564C2F176CF04837BAD839
 magnet:?xt=urn:btih:CF87313253A7B1A0F4198302B38B1D28D5E8457C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +277,8 @@ Lil Wayne - Tha Carter VI (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rap, Hip
 ```bash
 magnet:?xt=urn:btih:8EE49CCBCE44980D9565B003E24BA5F4AB119C22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +307,8 @@ Tim Hardin Trio - Light Intelligence Series 5 (1992) Golden Penguin [FLAC|Lossle
 magnet:?xt=urn:btih:71B0A32664346C4ADB844936A674942F785E4684
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +335,8 @@ Branford Marsalis Quartet - Belonging (2025) Blue Note [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:4FFDE7C4B121D23B4D5FF0D6DBB8020D9BB6A369
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +365,8 @@ Räum (Raum) - Emperor of the Sun (2025) [MP3|320 Kbps] <Black Metal>
 magnet:?xt=urn:btih:407FEF99DAC85B9595FF1C8D606B387CB65A729D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +393,8 @@ B1 Winter Solstice(   Читать дальше...   )Жанр: Black Metal, Ele
 ```bash
 magnet:?xt=urn:btih:DA43A92C43CA1A82120FB316C36DD3497DAD6A60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +423,8 @@ Mesmur - S (2017) [FLAC|Lossless|image + .cue] <Funeral Doom, Death Metal>
 magnet:?xt=urn:btih:E533F4B9DF5F3295778D5744A392D773B9D4202C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +452,8 @@ King 810 - Rustbelt Numetal (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu-Met
 magnet:?xt=urn:btih:F3E4E25E7CB8F362153742FCE27DDFE8F9D40428
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +478,8 @@ magnet:?xt=urn:btih:F3E4E25E7CB8F362153742FCE27DDFE8F9D40428
 ```bash
 magnet:?xt=urn:btih:9FE1770F88B866A477CB81C878EAAB685846832F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +506,8 @@ Ginga Tetsudou no Yoru | Night on the Galactic Railroad | Ночь на Гала
 magnet:?xt=urn:btih:BF74E0373A547F2B335F2E8D539AE5A2737E781A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +531,8 @@ magnet:?xt=urn:btih:BF74E0373A547F2B335F2E8D539AE5A2737E781A
 ```bash
 magnet:?xt=urn:btih:585FC522934F1BDABD5DD1F24FBB9033634E6A63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +558,8 @@ magnet:?xt=urn:btih:585FC522934F1BDABD5DD1F24FBB9033634E6A63
 magnet:?xt=urn:btih:6BF1451DBE04FFEA8C64556B484A753191235D4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +583,8 @@ magnet:?xt=urn:btih:6BF1451DBE04FFEA8C64556B484A753191235D4C
 ```bash
 magnet:?xt=urn:btih:9C27A6D1AB544ADE704CF917BE1D4EA7A4174900
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +610,8 @@ Stone Voices - Ambient Reverb 7 7.1.7 VST, VST 3 [En]
 ```bash
 magnet:?xt=urn:btih:46E2C439DC56E640134536698C3AE246572B2A7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +639,8 @@ magnet:?xt=urn:btih:46E2C439DC56E640134536698C3AE246572B2A7C
 magnet:?xt=urn:btih:77F6C3FEAB4D2E56C0C3715C3E5CB6049EC3527E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +667,8 @@ AIR Sub Factory для тех продюсеров, которые понима�
 magnet:?xt=urn:btih:D803AD960845F54ADB9C20F8C6AEFE7E59BB9C1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +693,8 @@ magnet:?xt=urn:btih:D803AD960845F54ADB9C20F8C6AEFE7E59BB9C1C
 magnet:?xt=urn:btih:AA6856D04C8231EE4413A511DA7D91076CEF131F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +718,8 @@ magnet:?xt=urn:btih:AA6856D04C8231EE4413A511DA7D91076CEF131F
 ```bash
 magnet:?xt=urn:btih:407D44ACBBC93E6BC7860824C754453849E1E6A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

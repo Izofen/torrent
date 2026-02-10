@@ -22,6 +22,8 @@ Al Thompson Jr - It's Time (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemp
 magnet:?xt=urn:btih:65FACEDA8995EA28FED5F2BC83B4ADFE02593792
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Jutesets - Spring Planet (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 ```bash
 magnet:?xt=urn:btih:F6B3166E0EB7AD153662AE80ED59AD500D7DE58F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Naima Farao - Dots (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Ja
 magnet:?xt=urn:btih:27A70D9E429059AD556BC80D01497B23807F0878
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ A4 Slottet I Det Fjerne(   Читать дальше...   )Жанр: Death Metal
 ```bash
 magnet:?xt=urn:btih:D7828B4BE5FD1DE746465EF40AC59AB90AB54DD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ The Black Crowes - Happiness Bastards (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:E646FCD3071F6AB0136C1443C54751CEFFC6C035
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Marco Castelletti - Sonic Sketches (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:CBAC70FFA6A2909DA7782F2F959383D7339845F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Aloboi - Urban Hermit (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <house, downt
 magnet:?xt=urn:btih:5E26B848546AC63B626E4190893DA83AAF36DB5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Lipz - Changing The Melody (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Glam ro
 ```bash
 magnet:?xt=urn:btih:224E64D3BD481C5570A1CCEE7EACC02E4CD302F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Harlem Jazz Guitar Quartet - Rock Jazz Fusion (2024) [FLAC 24/44.1|Lossless|WEB-
 magnet:?xt=urn:btih:6142661168A7AE09CCF312343CB49AEC2CE45122
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Cornelia Nilsson - Where Do You Go (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:EFE696FD2A52A11186C617D3026432376B98A215
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Manntra - Live in Leipzig (2024) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Metal
 magnet:?xt=urn:btih:3E854EF4B870409038FF7D8045981394023CF884
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +341,8 @@ Lead Vocals – Andy McCluskey(   Читать дальше...   )Жанр: Elec
 magnet:?xt=urn:btih:3AABAFE58EC8827D6C617A7E76DF01D18450D4CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +368,8 @@ Forsaken - Isolated from the Birthland (2023) EP [FLAC 24/44.1|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:4D7009FDEF7C096CDFD46894932055EF775C138D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +398,8 @@ magnet:?xt=urn:btih:4D7009FDEF7C096CDFD46894932055EF775C138D
 magnet:?xt=urn:btih:AD602B5F184342A6225B180F9A1D1D34D8AE5EEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +426,8 @@ Bossa Cafe en Ibiza, Bossanova, Instrumental Jazz School, Marco Rinaldo - Sensua
 ```bash
 magnet:?xt=urn:btih:DFFA9B72FF95C7731A9293A49E53F5A2561E0657
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +456,8 @@ magnet:?xt=urn:btih:DFFA9B72FF95C7731A9293A49E53F5A2561E0657
 magnet:?xt=urn:btih:41C5A92C810EFB082E0C0779B98530F1E9DB149E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +484,8 @@ A4-Life Can Be Some Better(   Читать дальше...   )Жанр: Pop, Ele
 ```bash
 magnet:?xt=urn:btih:00CF73F01D3BF8E68D8E947EF532B60781A05216
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +514,8 @@ magnet:?xt=urn:btih:00CF73F01D3BF8E68D8E947EF532B60781A05216
 magnet:?xt=urn:btih:49E9EBCEB4D4A64833AD73429976DD3369389460
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +542,8 @@ magnet:?xt=urn:btih:49E9EBCEB4D4A64833AD73429976DD3369389460
 ```bash
 magnet:?xt=urn:btih:F71F79F5739AE2FBB65E834F0709359F539181A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +572,8 @@ magnet:?xt=urn:btih:F71F79F5739AE2FBB65E834F0709359F539181A8
 magnet:?xt=urn:btih:75090211A0F7566C92B566FC3D3FB67DB392F90D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +600,8 @@ VA - От мелодии к мелодии (5 серия) - Концерт ит�
 ```bash
 magnet:?xt=urn:btih:FEACDB4145B524CA3CB294A092BD2825C47152FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +630,8 @@ Les rois mages (L. Stott, G. Capuano, M. Capuano – C. Carrere, J. Schmitt) —
 magnet:?xt=urn:btih:A39791309F904E0D8D047E95DAFCD43EF6E69010
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +658,8 @@ VA - Музыкальный телетайп 2 (1987) [FLAC 24/192|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:2BD7B0717C88D51D53C900667CA0D6A8730BF198
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +688,8 @@ VA - Парад ансамблей (3) (1985) [FLAC 24/192|Lossless|tracks] <Pop
 magnet:?xt=urn:btih:362FEC8518B298EFCCBD0863A8736D22758C888E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +717,8 @@ VA - Мелодии в танцевальных ритмах (1972) [FLAC 24/192
 magnet:?xt=urn:btih:6B39B57FA8CCA2C0FF097955D5144BD84C4A91B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +745,8 @@ DISC 03(   Читать дальше...   )Жанр: Experimental, Industrial, A
 ```bash
 magnet:?xt=urn:btih:193A2D8F3029CDD2BC8589E2E830388FDEB792A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

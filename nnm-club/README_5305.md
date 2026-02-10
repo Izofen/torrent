@@ -20,6 +20,8 @@ BetterZip 5 v5.2 [Multi]
 magnet:?xt=urn:btih:B9E39116A8D2082C346B89D5EA1A85C11B965DB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ VA - Новый год 2021 №2 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:BBA3B397D2AA46287DF968C6686D4729B7CABA08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Hieroglyphic Being - There Is No Acid in This House (2022) [FLAC|Lossless|tracks
 magnet:?xt=urn:btih:2FC3619EBA601A62D817992A4E936C369F817345
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ Skype - бесплатная программа для текстового, г�
 ```bash
 magnet:?xt=urn:btih:EEA2ED5C75DA984F8809569145F9F02EF3C5D5DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Microsoft Windows 10.0.17763.914 Version 1809 (December 2019 Update) - Ориг�
 ```bash
 magnet:?xt=urn:btih:E80ABCD98028F9C2E1279941B3FEB974F34D085E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ Skillbox, Дарья Макарова и др. | Скетчинг на план�
 magnet:?xt=urn:btih:4C6DBA7439AE167EB11356B4296F15315782F7CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +189,8 @@ Omen - 7851A9 (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Alternativ
 magnet:?xt=urn:btih:D4A8E2337F3D36BE1626C538EC6CD4B0FE5105B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:D4A8E2337F3D36BE1626C538EC6CD4B0FE5105B6
 ```bash
 magnet:?xt=urn:btih:1E0F59386618A6ADE78D99FAFA22C0C309E903C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -228,6 +244,8 @@ The Zapoy! - 5 Albums (2015-2022) [MP3|320 Kbps] <Street Punk>
 magnet:?xt=urn:btih:F0ADAFED247DA1C059D9D7CCDEC75BA6E00A409C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ magnet:?xt=urn:btih:F0ADAFED247DA1C059D9D7CCDEC75BA6E00A409C
 ```bash
 magnet:?xt=urn:btih:D099DA02D0FB67D04F720BF9BF2D740237C14064
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:D099DA02D0FB67D04F720BF9BF2D740237C14064
 magnet:?xt=urn:btih:6464FCED11C589F50AEC9E80A72FF851244656A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ BioShock Infinite (2013) [Ru/Multi] (1.0.1643565/dlc) License GOG [The Complete 
 ```bash
 magnet:?xt=urn:btih:79370CE7EECD7D827200356D64B90FB0178086FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ magnet:?xt=urn:btih:79370CE7EECD7D827200356D64B90FB0178086FB
 ```bash
 magnet:?xt=urn:btih:3C7D62FA8E22C654F74F1EF0C3D4349C99DF3953
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ Skillbox, Анна Марчук и др. | Запуск подкаста с ну
 magnet:?xt=urn:btih:CC58AF3609938CEFF89765FC3DDEE006635B4D58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ Supermode - Tell Me Why [MeduZa remix] (2022) [FLAC|Lossless|WEB-DL|tracks] <Tra
 magnet:?xt=urn:btih:78CD44DFC82A4AAB1E0D3A0723C27D642E2D5B99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ magnet:?xt=urn:btih:78CD44DFC82A4AAB1E0D3A0723C27D642E2D5B99
 ```bash
 magnet:?xt=urn:btih:30BB6D21DB19978CD6C165F7042137182C51FC41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +456,8 @@ Skillbox, Вадим Михалев и др. | Мастер презентаци
 magnet:?xt=urn:btih:68142CB68EDD66EE5C44FBDC3A3AD1BCB7297673
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +481,8 @@ Vivaldi 6.4.3160.41 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6DFD570A2B40DE0947EF1D6F94505D11782B0ABB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +510,8 @@ magnet:?xt=urn:btih:6DFD570A2B40DE0947EF1D6F94505D11782B0ABB
 magnet:?xt=urn:btih:F1850D269B4EA5AE9BF6F14B5EE8FA97D3599FF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ magnet:?xt=urn:btih:F1850D269B4EA5AE9BF6F14B5EE8FA97D3599FF7
 ```bash
 magnet:?xt=urn:btih:C60EE58D7D33B45B416B498DC9EA022E4CC285CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +562,8 @@ Windows Server SAC - канал Semi-Annual Channel идеально подхо�
 magnet:?xt=urn:btih:3DAA77CC17112FC9B633C7F8AB60994EEDAF77FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +587,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 ```bash
 magnet:?xt=urn:btih:7E9F4F3D4E448FEB47470158884F90C624AEFE3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ BioShock Infinite (2013) [Ru] (1.0) Unofficial [Русификатор]
 magnet:?xt=urn:btih:497457ACAD67A5355CC7CC313CE0793F6D26E580
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 ```bash
 magnet:?xt=urn:btih:D2F818B837B33F4C18992B4C0D1AC581164B985E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ magnet:?xt=urn:btih:D2F818B837B33F4C18992B4C0D1AC581164B985E
 magnet:?xt=urn:btih:B4B47458D7CF9B3D0E980FEE65E0D215C2D7AD0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ magnet:?xt=urn:btih:B4B47458D7CF9B3D0E980FEE65E0D215C2D7AD0A
 ```bash
 magnet:?xt=urn:btih:7489C83219131A41BBE178883859AE3AA5C83387
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

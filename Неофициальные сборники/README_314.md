@@ -1,3 +1,38 @@
+###  Публикация: 533484   (532745) от 10.08.2012
+
+VA - Guitar Classics-The Best Singer Songwriters (2010) [MP3|320 кб/с]<Guitar, Acoustic>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_532745.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bruce Springsteen - Straight Time (3:26)
+ 2. Bob Dylan - You're a Big Girl Now (4:22)
+ 3. James Taylor - Walking Man (4:08)
+ 4. Simon & Garfunkel - The Boxer (5:08)
+ 5. John Mayer - Your Body is a Wonderland (4:08)
+ 6. Lou Reed - Walk on the Wild Side (4:12)
+ 7. Shawn Colvin - Sunny Came Home (4:24)
+ 8. Jakob Dylan - All Day and All Night (3:28)
+ 9. Jeff Buckley - Lover, You Should've Come Over (6:43)
+ 10. Tim Hardin - Simple Song of Freedom (3:52)(   Читать дальше...   )Жанр: Guitar, AcousticПродолжительность: 01:04:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B13A0A33AC8D4B02A937ABD01A72F240F6F0A6A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1051585   (532797) от 11.09.2016
 
 VA - 100 Workout Energy Hits Stars (2016) [MP3|209~320 Kbps] <House, Future House, Bigroom, Reggaeton, Progressive, Club>
@@ -21,6 +56,8 @@ VA - 100 Workout Energy Hits Stars (2016) [MP3|209~320 Kbps] <House, Future Hous
 ```bash
 magnet:?xt=urn:btih:96B3040DA68C10073CD5B813F2E27F1E7B9C11F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +86,8 @@ VA - 100 Drum & Bass Workout Music (2014) [MP3|320 Kbps] <Drum & Bass, Electroni
 magnet:?xt=urn:btih:FD42AE0098E6D7C7DE4692086F5EAEF877FE564F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +114,8 @@ VA - Perfect Coffee: Lounge and Chillout Relaxation Moments (2016) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:F971198ACE4BB927BEDC419924F0531CC21B25FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +144,8 @@ VA - Passion 4 Fashion: Lounge and Chillout Sexy Milk Cafe and Buddha Lounge Tra
 magnet:?xt=urn:btih:AFAD31774DAFA799AD6313122AA3690CD41A708D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +172,8 @@ VA - Musical Weekend Electro House Set (2016) [MP3|320 Kbps] <Club, Electro, Pro
 ```bash
 magnet:?xt=urn:btih:01E446102AE9815F7C45863175FB50670FE5697D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +202,8 @@ VA - Night To Night (2017) [MP3|320 Kbps] <Synthwave, Outrun, Electronic>
 magnet:?xt=urn:btih:D440EAC1C8878992EE0F2D6BDC9778A46721CD67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +230,8 @@ VA - Psychedelic Euphoria: Infinite Realites Future Trance (2017) [MP3|257-320 K
 ```bash
 magnet:?xt=urn:btih:DF6EE6D2E2460B12D489283679B6631870C527F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +260,8 @@ Otta-Orchestra - Compilation (2022) [MP3|320 Kbps] <Instrumental>
 magnet:?xt=urn:btih:7681310D198134B5539AF2D2C2610A546177CC51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +288,8 @@ VA - Deep House and Techno - Dream Selection 2010-2015 vol.4 (2017) [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:7C0621FD2B5ED79904031B3B10AE8316CB22CD2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +318,8 @@ VA - ЕвроХит Топ 40 Europa Plus 17.06.2022 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:32713F04D76ADA6CB4704896B2A8373C842E9F9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +346,8 @@ VA - Extendet Mix Club House (2022) [MP3|320 Kbps] <Club, Progressive House>
 ```bash
 magnet:?xt=urn:btih:C166AE0354ECA9B6AB3139F1F9E3401DB4DF01A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +376,8 @@ VA - Original Sun Mix (2015) [MP3|320 кб/с]<Vocal, Uplifting Trance>
 magnet:?xt=urn:btih:6AD95B002974AC7D5010A9168724DEF79B8529EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +404,8 @@ VA - Infinity Lounge Pool Cool and Sexy Ambient Bar Downbeat Chill Music (2015) 
 ```bash
 magnet:?xt=urn:btih:69E7D03EA54568477628BFF7E4AD933F196D3172
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +434,8 @@ VA - В машине с музыкой Vol.270 (2022) [MP3|320 Kbps] <Pop, Dance
 magnet:?xt=urn:btih:EE8021F3B852CA452F771DEAC8D64E7C16ABABA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +462,8 @@ VA - HarDD NRG OverDoZZe 7 (2022) Mixed by aQuaLuna [MP3|320 Kbps] <Trance, Hard
 ```bash
 magnet:?xt=urn:btih:2289474AB75AC265DD689F1F9868E630BEA6A833
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +492,8 @@ VA - Urban City Lounge Sexy Ambient Music and Cool Summer Chillout Tunes (2015) 
 magnet:?xt=urn:btih:34D4FC89898AFD86E68C42657691E0C9426274C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +520,8 @@ VA - Retribution Therapy: Hard Rock Aggregation (2019) [MP3|320 Kbps] <Hard Rock
 ```bash
 magnet:?xt=urn:btih:1885AB7B836B7652137DB0BF2DADB37A62C9CACD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +550,8 @@ CD 01:
 magnet:?xt=urn:btih:773F4A39DD32FA328CF62B22491EEAEB7864C570
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +578,8 @@ VA - House Garden Music (2019) [MP3|320 Kbps] <Electro House>
 ```bash
 magnet:?xt=urn:btih:E98F54C11541EF06FCA888470DC6B7883C8A2D00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +608,8 @@ VA - Мега хиты хорошего настроения 6 (2016) [MP3|256 K
 magnet:?xt=urn:btih:4DAE5C412B761429FF52E333AF2EA081C552E479
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +636,8 @@ VA - Beatport Top 100 Indie Dance / Nu Disco August (2016) [MP3|320 Kbps] <Indie
 ```bash
 magnet:?xt=urn:btih:04ACE1A20E6B5163628CA7D084B226890382E76C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +672,8 @@ VA - Mega Dance Party Summer Vol.8 (2012) [MP3|320 кб/с]<Dance, Club>
 magnet:?xt=urn:btih:3549D513FC31535D6CEAF1231AF7ED718E47EBB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +700,8 @@ VA - Музыкальное Наслаждение Радио Шансон (2016
 ```bash
 magnet:?xt=urn:btih:842F6BFCB8465849AF06AEAC7AA8B02CBC1A6A1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +730,8 @@ VA - Танцевальная хитовая дискотека. Зарубеж�
 magnet:?xt=urn:btih:9DD15A628B7771F51BD2DB582ABED4AFC595CAFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -676,32 +759,7 @@ VA - Звездный Хит - Парад. Русский Выпуск (2016) [M
 magnet:?xt=urn:btih:CDA7C8BE776CFA7F517DD39EA08A498D9C0C68B8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155145   (534732) от 02.08.2017
-
-VA - DEEP'КАЧ 90-х Vol.2 (2017) [MP3|320 Kbps] <Deep House, Nu Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534732.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Ace of Base - Cruel Summer (Mr.Nu & Deepjack Remix)  5:30
-002.  Ennio Morricone - Chi Mai (Micheletto Remix) (Deep Immersion)  6:26
-003.  Lika Morgan - Hit Me (Original Mix)  6:08
-004.  Sash! - Ecuador (DJ Sharapoff & Dmitriy RS Remix Radio Mix)  3:31(   Читать дальше...   )Жанр: Deep House, Nu DiscoПродолжительность: 08:27:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B48BFB880DEC05B6A4C2DC242E20545CE08FA6C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

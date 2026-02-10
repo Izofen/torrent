@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:18709ECABF1E624BFE7BB8415EB540DF1CA5D6DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:18709ECABF1E624BFE7BB8415EB540DF1CA5D6DA
 magnet:?xt=urn:btih:42FBF44151EF60321C3A3B4E665478BFE6981A87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:42FBF44151EF60321C3A3B4E665478BFE6981A87
 ```bash
 magnet:?xt=urn:btih:723AAAF0D03495A374DF51905423BEE684E83E6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ VA - Keep It Trance Vol. 12 (2023) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:4A9EB05290C1A2906EC57AA892F70F0654C6FE4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Video Enhancer - лучший редактор видео в линейке пр
 magnet:?xt=urn:btih:5FE6096E3CB291F94E2ECBAE1579042B8BEDEB35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:5FE6096E3CB291F94E2ECBAE1579042B8BEDEB35
 ```bash
 magnet:?xt=urn:btih:6F1DD8A330112EF48E8189807B6AA43BA9DECC2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Ppc.world, Никита Кравченко и др. | Специалист по 
 ```bash
 magnet:?xt=urn:btih:DE19C836E48A702E50D8D4A669BCC0355E321CC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ VA - Blues & Jazz 101 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 magnet:?xt=urn:btih:819229C53FDB59A62B969ACD48AD5A70FA948F99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Bсe звери в лесу счастливы - родился олененок
 ```bash
 magnet:?xt=urn:btih:8A2D1CD2BE7A36F3F9517995488BC9FFCE8917D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:8A2D1CD2BE7A36F3F9517995488BC9FFCE8917D5
 magnet:?xt=urn:btih:A6F485BA07FE898F009EB6803F3EBE44124D5377
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:A6F485BA07FE898F009EB6803F3EBE44124D5377
 magnet:?xt=urn:btih:CE144735119BF0A653AE3DB4864C4AEFE4BD8FFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ Gloomy Tales: Horrific Show / Мрачные Истории: Кошмарное 
 ```bash
 magnet:?xt=urn:btih:9E9CAABC692DC6536B4CC0D569F1E46AF82E33FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ Ventoy - это инструмент с открытым исходным код
 ```bash
 magnet:?xt=urn:btih:850247873717EE56A002054B5F2D5A25CFA1A25F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ VA - Ultimate Jazz Chillout Sweet Instrumentals on the Beach (2023) [FLAC|Lossle
 magnet:?xt=urn:btih:B7CBABD0C244752B65A75BBCC4DF8FB05C9727E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ magnet:?xt=urn:btih:B7CBABD0C244752B65A75BBCC4DF8FB05C9727E1
 magnet:?xt=urn:btih:77D8195BD172A3FD9BC6684F15E088234F69B806
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ Ms. Holmes 4: The Case of the Dancing Men (2023) [En] (1.0) Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:55F012333560900D87C2ED79576145A2567D3D00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ Joanna Connor - Best of Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:1BEC7B9F8BA7AAEF19E61DD7138F9C6393CF07A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ art of rally - раллийная игра от создателя игры Abso
 ```bash
 magnet:?xt=urn:btih:529D243E6DB46CFD697E30548238C1E57B6366B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:529D243E6DB46CFD697E30548238C1E57B6366B4
 magnet:?xt=urn:btih:0D8EAEC7D54DE634D4421FA368C67CD7F24EA1B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:0D8EAEC7D54DE634D4421FA368C67CD7F24EA1B4
 ```bash
 magnet:?xt=urn:btih:AA58E6035D845418E20F32EBFB8A7F0E90A08B64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:AA58E6035D845418E20F32EBFB8A7F0E90A08B64
 ```bash
 magnet:?xt=urn:btih:E641D2ECF692147CADD23E18F3F738726AD843FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +587,8 @@ VA - Hit - List Vol 7 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 magnet:?xt=urn:btih:D20AAB1A247B6BE6C2B16D96484431026CB3F530
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ Dr. Nilesh Bhaskarrao Bahadure | Python for Everyone: Learn and polish your codi
 ```bash
 magnet:?xt=urn:btih:2CD78FAD090862F95405B447485A7D8B7BB9025E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +641,8 @@ magnet:?xt=urn:btih:2CD78FAD090862F95405B447485A7D8B7BB9025E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +666,8 @@ magnet:?xt=urn:btih:2CD78FAD090862F95405B447485A7D8B7BB9025E
 ```bash
 magnet:?xt=urn:btih:4A263F9DF0256FDE8A95D7949969440544EE3CA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -645,6 +695,8 @@ Zоряна - Play (2012) [FLAC|lossless|tracks + .cue] <Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:C545CB92F319A9C66F50370EABDBDFCC45737FB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

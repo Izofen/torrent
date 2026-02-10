@@ -1,3 +1,29 @@
+###  Публикация: 1026592   (701834) от 16.06.2016
+
+Немецкие эсминцы второй мировой войны / German Destroyers of the Second World War (1993) DVDRip (Серии 1-2 из 2)
+
+>>Документалистика и Телепередачи
+>>Флот
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный видео-фильм является рассказом о строительстве и боевой эксплуатации немецких эсминцев, включая подробное описание каждого судна и сотни их редких фотографий. Сюда включены статистическая информация и полные технические характеристики каждого корабля. Вы ознакомитесь со множеством технических планов, чертежей, методов маскировки и карт. Эсминцы Германии (   Читать дальше...   )Телекомпания: Великобритания, ГерманияЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 2 x ~01:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83D0A99ADDD7DB2655D1FA717ACE77E992AA8D87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025472   (701837) от 16.06.2016
 
 Хакерские войны / The Hacker Wars (2014) WEB-DLRip
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:424B14B15D7C45CE48695BA5D00B35DA25869114
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:424B14B15D7C45CE48695BA5D00B35DA25869114
 magnet:?xt=urn:btih:772370C03F12653672844E053AB2F1C2948E2B12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:772370C03F12653672844E053AB2F1C2948E2B12
 ```bash
 magnet:?xt=urn:btih:2A783B432B4582C609020A02C27AE80AD030A3DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:2A783B432B4582C609020A02C27AE80AD030A3DB
 magnet:?xt=urn:btih:B7687D739B165DA470BBC560310FCA87EC76B6CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:B7687D739B165DA470BBC560310FCA87EC76B6CB
 ```bash
 magnet:?xt=urn:btih:DD56E771D4827D9454B7F64C1F3580F7F3A6D36D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:DD56E771D4827D9454B7F64C1F3580F7F3A6D36D
 magnet:?xt=urn:btih:98A0F06E7563FDA421797D8B4649F1DE0AD062AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:98A0F06E7563FDA421797D8B4649F1DE0AD062AE
 ```bash
 magnet:?xt=urn:btih:1C00C136D9B5A142F3926BC6F36CC1FBF23BBA42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:1C00C136D9B5A142F3926BC6F36CC1FBF23BBA42
 magnet:?xt=urn:btih:5CA762ED83C353F36A8B2F38620A09BC712531CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:5CA762ED83C353F36A8B2F38620A09BC712531CF
 ```bash
 magnet:?xt=urn:btih:A61EE7285BFA256E8E288744401255527EAB985D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:A61EE7285BFA256E8E288744401255527EAB985D
 magnet:?xt=urn:btih:225C32B50E2C33D380DD2F86FA3F4541DF87AD72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:225C32B50E2C33D380DD2F86FA3F4541DF87AD72
 ```bash
 magnet:?xt=urn:btih:E075831D629F472FC06063EFB2613580A22DFD9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:E075831D629F472FC06063EFB2613580A22DFD9C
 magnet:?xt=urn:btih:D233FD40DD4EC26DA507E95F20F61DDBE5380C5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +357,8 @@ magnet:?xt=urn:btih:D233FD40DD4EC26DA507E95F20F61DDBE5380C5F
 ```bash
 magnet:?xt=urn:btih:8E9A124217D12194A2C9DE6060E80AE60C353032
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:8E9A124217D12194A2C9DE6060E80AE60C353032
 magnet:?xt=urn:btih:7F7F3464C0800413694A45F031D1AA592F6D40F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +409,8 @@ magnet:?xt=urn:btih:7F7F3464C0800413694A45F031D1AA592F6D40F3
 ```bash
 magnet:?xt=urn:btih:3F4983D93FEDB6654D28CA34A926365E97D5125F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:3F4983D93FEDB6654D28CA34A926365E97D5125F
 magnet:?xt=urn:btih:EA4CE1CD650092D50C9EFD7ECE92B82C2BDDCC5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +461,8 @@ magnet:?xt=urn:btih:EA4CE1CD650092D50C9EFD7ECE92B82C2BDDCC5B
 ```bash
 magnet:?xt=urn:btih:706A729D0516C16967E2B2C72E5F9BFCF3E6E3E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:706A729D0516C16967E2B2C72E5F9BFCF3E6E3E9
 magnet:?xt=urn:btih:02A79668B3EE678E62D211C24F0EFE474904746E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:02A79668B3EE678E62D211C24F0EFE474904746E
 ```bash
 magnet:?xt=urn:btih:D711BC3862584C7CBB717ACAD1200C2A3A5E7E84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:D711BC3862584C7CBB717ACAD1200C2A3A5E7E84
 magnet:?xt=urn:btih:2CF4A2D72ABFA46A887C8420676F78DBD0536426
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:2CF4A2D72ABFA46A887C8420676F78DBD0536426
 ```bash
 magnet:?xt=urn:btih:245474D00AD6C58977633EC8076BD8CCE0631544
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:245474D00AD6C58977633EC8076BD8CCE0631544
 magnet:?xt=urn:btih:AB380599D415F52B525D729C26451A9803374C6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +619,8 @@ magnet:?xt=urn:btih:AB380599D415F52B525D729C26451A9803374C6C
 magnet:?xt=urn:btih:9CA0A9478D671C03301971B7DFC471BF1DF3E108
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +644,8 @@ magnet:?xt=urn:btih:9CA0A9478D671C03301971B7DFC471BF1DF3E108
 ```bash
 magnet:?xt=urn:btih:B40289E42CC6FBF6F10978C694D12B26DDE72324
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,29 +673,7 @@ magnet:?xt=urn:btih:B40289E42CC6FBF6F10978C694D12B26DDE72324
 magnet:?xt=urn:btih:F96C9DC56F9D9A13AB1245B38E9D6F1F5F082449
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131922   (704597) от 07.05.2017
-
-Первая передача на НТВ. Автомобильная передача (2017.05.07) SATRip (выпуск 291)
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704597.jpg" />
-</div>
-
-
-###  Подробнее
-
-« Первая передача» — новый проект для автомобилистов и про автомобилистов. Ведущий «Первой передачи» — Виктор Травин, президент Коллегии правовой защиты автовладельцев. Уже много лет этот известный журналист защищает права автолюбителей. В автомире для него нет секретов и закрытых дверей. Всех, кто не представляет своей жизни без автомобиля, и тех, кто только задумывается (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаРежиссер: Роман ИовицаСубтитры: ОтсутствуютПродолжительность: ~ 00:34:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:134516281DD6CD11464B30DA23D9D6DA547BC65D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

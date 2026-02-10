@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:DC4E99EEF9401D34170CD3F28EF81D5A9F9C77AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:DC4E99EEF9401D34170CD3F28EF81D5A9F9C77AD
 ```bash
 magnet:?xt=urn:btih:B2D394438B568CBD0C01D65C5A45560E03642649
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:B2D394438B568CBD0C01D65C5A45560E03642649
 magnet:?xt=urn:btih:CCC00D6D84376A6A688141408FAC59B25F8B12BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:CCC00D6D84376A6A688141408FAC59B25F8B12BD
 ```bash
 magnet:?xt=urn:btih:88EDFA1E7E0C86F4835360D533007019115A3AB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:88EDFA1E7E0C86F4835360D533007019115A3AB9
 magnet:?xt=urn:btih:E82F5FDA23DE26FAC412814DF5169FBB52061A39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:E82F5FDA23DE26FAC412814DF5169FBB52061A39
 magnet:?xt=urn:btih:76D7996C4A0499358CF309D61E7144209974BEE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:76D7996C4A0499358CF309D61E7144209974BEE1
 ```bash
 magnet:?xt=urn:btih:C1D307011613D2AC0E796E92D8494E97C19CFD20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ The core content (   Читать дальше...   )Жанр: Компьюте
 magnet:?xt=urn:btih:FAF4B14E4D154C08EF63C5D7B0155D63148A0DF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Lauded for avoiding the typical vague, high-level survey approach found in many 
 magnet:?xt=urn:btih:E0F03FDDCEA668CE2C55AA14FD8352E7526B78B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:E0F03FDDCEA668CE2C55AA14FD8352E7526B78B2
 ```bash
 magnet:?xt=urn:btih:0821C1FD2DEA24D1C1E6CBC853E37FB4B23603E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Whether you're a newcomer or looking to expand your expertise, this concise hand
 ```bash
 magnet:?xt=urn:btih:9631F196DC93856ADC142B4514BC9E58CF809A2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ Effective Conversational AI teaches you how to build great chatbots that perform
 magnet:?xt=urn:btih:B2C83143DFCF161688D3A4E13189D78ED60E5CDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ ChatGPT: Principles and Architecture bridges the knowledge gap between theoretic
 magnet:?xt=urn:btih:8D125F8121B6A7BA65CD7FF1527EB26431C43B6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:8D125F8121B6A7BA65CD7FF1527EB26431C43B6B
 ```bash
 magnet:?xt=urn:btih:29E3B29CB5B3843F694F3A100A7211251359E503
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ As embedded Linux systems power countless devices in our daily lives, they’ve 
 magnet:?xt=urn:btih:278AA5E498FB0EB3C283020FC2BEB969AE560731
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:278AA5E498FB0EB3C283020FC2BEB969AE560731
 ```bash
 magnet:?xt=urn:btih:FCD15098988A502CB55F0F71B9E0B71725EB8A18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ Beyond the modules, Mastering Python prepares readers for broader opportunities.
 ```bash
 magnet:?xt=urn:btih:01061A4C6F339E78548037FCBE292BF620936628
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +478,8 @@ Implement real-world applications of LLMs (   Читать дальше...   )�
 magnet:?xt=urn:btih:E5955F4F72D443514972BFB8651B54E1AA0830D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:E5955F4F72D443514972BFB8651B54E1AA0830D1
 magnet:?xt=urn:btih:473EB23F839FD36B7E151F25EE212F55DF15AACD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:473EB23F839FD36B7E151F25EE212F55DF15AACD
 ```bash
 magnet:?xt=urn:btih:66FD548D2AF616281C9B9D161DF646CB296C1A8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +558,8 @@ magnet:?xt=urn:btih:66FD548D2AF616281C9B9D161DF646CB296C1A8E
 magnet:?xt=urn:btih:9866325E911B8F124A5CAB34408EB07ADF7A4534
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:9866325E911B8F124A5CAB34408EB07ADF7A4534
 magnet:?xt=urn:btih:E2E8594BBC78D74C3B406E762370E4F3F5B6D0C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:E2E8594BBC78D74C3B406E762370E4F3F5B6D0C0
 ```bash
 magnet:?xt=urn:btih:88264BF421A3EF0BE09E34698A2D24AB4B9A7BCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +637,8 @@ magnet:?xt=urn:btih:88264BF421A3EF0BE09E34698A2D24AB4B9A7BCC
 magnet:?xt=urn:btih:07AFC2BAA5BF69631C350720FB610D529DB4AC32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +663,8 @@ magnet:?xt=urn:btih:07AFC2BAA5BF69631C350720FB610D529DB4AC32
 magnet:?xt=urn:btih:63D87B863FF8C14A87F8734E71A7AC1EBF39F271
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ magnet:?xt=urn:btih:63D87B863FF8C14A87F8734E71A7AC1EBF39F271
 ```bash
 magnet:?xt=urn:btih:B023314DAA8C3D64254E11D74979FFD18E8C6F95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

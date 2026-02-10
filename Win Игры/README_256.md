@@ -19,6 +19,8 @@ Last Lesson - жуткий психологический хоррор от пе
 magnet:?xt=urn:btih:E2B3932DFF814039149EE444329989C2C3AF82AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Haunted House (2023) [Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:96A6B672A8167B20D1EE59E9C461AE0E63D89DDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Monolith (2023) [Multi] (1.0.1.3) Scene Rune
 magnet:?xt=urn:btih:6C04506F6978C8AEB676518B7B56D02FD9A9D4D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Asterigos: Curse of the Stars (2022) [Ru/Multi] (01.08.0000/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:2F4DEC8A7447E653004FA618D14179D6DD849D20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Blade of Immortality (2023) [Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:4A0D7BA723FAB178FD81C6949CEF1A4844B8F4B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Autobahn Police Simulator 3 позволяет вам играть за офиц
 ```bash
 magnet:?xt=urn:btih:BEDBFACB79626649BAA7B5D096A2F6173E642DC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Torn Away (2023) [Ru/Multi] (12315550) Scene Tenoke
 magnet:?xt=urn:btih:EB7F789992A95BC712EA84BAA12D39CD977B41C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Storyteller – это необычная головоломка, в котор�
 ```bash
 magnet:?xt=urn:btih:4862752B0D217EDD6DDABAD83227614249439BA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Paleo Pines (2023) [Ru/Multi] (1.1.26) Scene Rune
 magnet:?xt=urn:btih:18EB708DBC60A42C7932E4808EB0D6A09A333DBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Gloomy Tales 2: One-Way Ticket (2023) [En] (1.0) Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:8D91D58115A0F4213BAD942BE28E08E59444550D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Train Sim World 6 предлагает освоить три уникальны�
 magnet:?xt=urn:btih:CBC337DA4BB19A08155D3D2984C6ED1D8C982987
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Enchanted Stories 2: PAWisoned Kingdom / Зачарованные Истории
 ```bash
 magnet:?xt=urn:btih:B18C5F6E2DC5112C2C2A1CE51EEDF94DD8053745
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Icebound Secrets 2: Soul Hunter / Тайны ледяного мира 2: Охо
 magnet:?xt=urn:btih:49B29CF23BA1C4DF1DF1DF4767003116BC05C03A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ ABRISS - это атмосферная игра с механикой на ос�
 ```bash
 magnet:?xt=urn:btih:F7D7DA4A55828A7E1CE9EB93EFB43470EB371B4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Supper - приключенческая игра, раскрывающая �
 magnet:?xt=urn:btih:EC1AAFC091C609B98374C397EE46EDB1A195B990
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Supper: New Blood повествует о Стюи С. Эпплтоне, е�
 ```bash
 magnet:?xt=urn:btih:0FCEDFB69A488C2CE3071C2DD7FCF1D12214C4A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Cat Quest III - продолжение популярной ролевой се�
 magnet:?xt=urn:btih:39D199EE0243FE0EAAB0DC6C3A6990D58FAB24EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Industry Giant 4.0 (2024) [Ru/Multi] (1.0.0-s.45+15021/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:1CEE5A6B74ECA4CBE5258761926DF9AAC0FF518B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Plants vs. Zombies 2 - продолжение забавной аркадной 
 magnet:?xt=urn:btih:2DBD0CA2E3AEE6C679ABEE7D29C406175016A42C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6946847/dlc) Repack Wanterlude [D
 ```bash
 magnet:?xt=urn:btih:71411864770CD5E012EB34FF41E1FFACEDF74BEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ The Lamplighters League (2023) [Ru/Multi] (1.1.3-65316/dlc) Repack DjDI [Deluxe 
 magnet:?xt=urn:btih:D9B6AAE9F6CE074AAC8AD82D3576F41DB7EB4FE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Planet of Lana – это грандиозный квест-головоломк
 ```bash
 magnet:?xt=urn:btih:B6B206EEED043CB271A9AE0B1410F46CBFB49B1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Riot of Willy (2023) [Ru/Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:6F826FF93F6E6B66BEE147F389BFBF4D55F67315
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ OmniBus (2016) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:A8905952B3F890CD6EF417447EE308F93EB6760C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Christmas Wonderland 10 / Рождество. Страна Чудес 10 (2019) 
 magnet:?xt=urn:btih:D352F94D34F0A8CCD28B142BDD1617CA3F8DB088
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Silent Hope (2023) [Multi] (1.0/dlc) Scene Tenoke [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:1101079059577FC0C581BA1C43447583028FB116
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

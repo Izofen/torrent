@@ -28,6 +28,8 @@ VA - Bigroom Dance & House (2012) [MP3|320 кб/с]<Funky, Club House>
 magnet:?xt=urn:btih:D49207ADCCFB5FA395D37F4B0D82CDDFDFD032F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -61,6 +63,8 @@ VA - Cafe Bossa Brazil Vol. 1 - Bossa Nova Lounge Compilation (2012) [MP3|320 к
 magnet:?xt=urn:btih:D6D41B776E0E3501DF5C9AA1C0680F580E879328
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -87,6 +91,8 @@ Cathy Battistessa - Une Nouvelle Humanite (2012) [FLAC|Lossless]<Deep House>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -111,6 +117,8 @@ David West Feat. Andreas Hermansson - Larry Mountains 54 (2005) [FLAC|Lossless]<
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +153,8 @@ VA - Ministry Of Sound Pump It Up 2013 (2013) [MP3|320 kbps] <Club, House, Progr
 magnet:?xt=urn:btih:23B26D3305E562E13E1FC2B40B0D886A5FBE07E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +187,8 @@ Dusky - Stick By This (2011) [FLAC|Lossless]<Progressive House, House, Downtempo
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +223,8 @@ VA - Clubbers Night Vol.2 - 50 Essential House Tunes (2012) [MP3|320 kbps] <Hous
 magnet:?xt=urn:btih:DFB18251CF19BEA0361426C7F888F2F1A6B5B91E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +257,8 @@ Lemongrass - Discography (1998-2012) [MP3|320 кб/с]<Electronic, Downtempo, Ch
 ```bash
 magnet:?xt=urn:btih:95E3206C58968C8E9F81B88F87C41961294BAF45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +293,8 @@ VA - Electro House 2012 Best Of (2012) [MP3|320 kbps] <House>
 magnet:?xt=urn:btih:18CA835113468D3B5C285DF205A0B71088B7BA98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +319,8 @@ Will.I.Am & Britney Spears - Scream & Shout (CD Single) (2013) [FLAC|Lossless]<H
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +355,8 @@ Savant - Alchemist (2012) [FLAC|Lossless]<Dubstep, Electro House>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +389,8 @@ VA - Best Of Electronique 2012 (2013) [MP3|320 кб/с]<Deep House, Nu Disco>
 ```bash
 magnet:?xt=urn:btih:F8B33CBB03148513BB0B72D066ABDB2FDB299430
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +425,8 @@ VA - The Art Of Fighting! Vol.1 (2013) [MP3|320 кб/с]<Deep House, Nu Disco, I
 magnet:?xt=urn:btih:81FD7811558D52CF9A9F15154A0356D1FCD65583
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +459,8 @@ VA - Deep In My Soul (2013) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:15222102C1CE14B00FA80163BE2E4FAF9F3AF670
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +495,8 @@ VA - Electro House Winter (2012) [MP3|320 кб/с]<House, Trance>
 magnet:?xt=urn:btih:7EBFD8603D2F5CC2349AB7DD4B52142DDE6DB569
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +529,8 @@ VA - Ultra Dubstep (2012) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:2524A5AB073DC8807BA45185483ED0B90220168F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +565,8 @@ VA - Dances Dream Lights (2013) (07.01.2013) [MP3|320 кб/с]<Club, Dance>
 magnet:?xt=urn:btih:EE8CCF6F649EABD1F4141006CA7C68FD0D6FB892
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +599,8 @@ CD1: 01:07:54
 ```bash
 magnet:?xt=urn:btih:0B6D8C9F0410048246899678903047BB15086B10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +635,8 @@ VA - N.Y.C Fashion Night: Selected Deep House Tracks (2012) [MP3|320 кб/с]<De
 magnet:?xt=urn:btih:71391CC9C03E68277439F949920B306D3065C06B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +660,8 @@ VA - Zirkus Zirkus: Elektronische Tanzmusik Vol.1 (2013) [FLAC|Lossless]<Tech Ho
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -656,6 +696,8 @@ PROMID - Sound Of Worship (2012) [MP3|320 кб/с]<Lounge, ChillOut>
 magnet:?xt=urn:btih:FFBFA10D49CA66F6128059A8E07B4EF5B0DD2710
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -689,6 +731,8 @@ VA - Dance Decades - A Compete History Of Dance 1989-2004 (2004) [FLAC|Lossless]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -713,6 +757,8 @@ Brooklyn Bounce (рус. «Бруклин Баунс») - немецкая му�
 magnet:?xt=urn:btih:64D797157C55F5500617F2A4F2964721EBDD57EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -736,6 +782,8 @@ VA - Parquet Goodies (2019) - 2020 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Pr
 ```bash
 magnet:?xt=urn:btih:EA3D71D1C10E0CCC7E40C0B39848C75D08F36B5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -764,6 +812,8 @@ Aidan Baker & Gareth Davis - Invisible Cities (2018) [FLAC|Lossless|Web-DL|track
 magnet:?xt=urn:btih:9ACE3CCA55D929E380056EDA8A50EB012C3A0BB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -790,6 +840,8 @@ Love Theme - Love Theme (2017) Alter [FLAC|Lossless|Web-DL|tracks] <Dark Ambient
 ```bash
 magnet:?xt=urn:btih:46550176F12B5EA636B95348866039741CEC8EA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

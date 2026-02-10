@@ -19,6 +19,8 @@ CG Cookie, Jonathan Lampel | Учебный лагерь по моделиров
 magnet:?xt=urn:btih:2715CF73AAB698DDF7F3D3F587709F530AD6951C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Udemy| Создание административной панели на React
 magnet:?xt=urn:btih:1249BB4F73B2E93F4115091E7187DB4D7CBAA4B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Photocasa, Татьяна Малышева | Портрет со всех сто
 ```bash
 magnet:?xt=urn:btih:784AD758DB357C1F6D6889A79AB00545C8E53FF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:784AD758DB357C1F6D6889A79AB00545C8E53FF8
 magnet:?xt=urn:btih:2E718E83F2E3B6FFA198794D6413E34AEF4306C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ MonsterLessons | React Hooks - Пишем Реальный Проект с Ну�
 ```bash
 magnet:?xt=urn:btih:2AEECF73B4DCE647308913BB94DC1ECE3CDF97B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ itgid | React. Lite Level (2019) PCRec [H.264/1080p-LQ]
 magnet:?xt=urn:btih:34E436276CB2AB2C46257887DC7C40D1C418B060
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Swiftbook, Кирилл Леонов | Профессия Middle iOS-разра�
 ```bash
 magnet:?xt=urn:btih:979009BC775CA686C42F7A6D1AEED9463B4AA586
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Michael Pavlovich | Intro To ZBrush 4R7 Part 2 (2015) PCRec
 magnet:?xt=urn:btih:99DC736B204B108E79C8A8041809CDFD25108790
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:99DC736B204B108E79C8A8041809CDFD25108790
 magnet:?xt=urn:btih:E043EDE8BFB3DC262863804228CF0283E82C3F60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Linux — наиболее широко используемая и самая �
 ```bash
 magnet:?xt=urn:btih:2584540CC19419226D1C0BB8883A5EF2E8E29337
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:2584540CC19419226D1C0BB8883A5EF2E8E29337
 magnet:?xt=urn:btih:08747FC5BC9C9261E9CB7DEC8BED8FB97BABC220
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ htmx — одно из самых популярных свойств 🔥 в в
 magnet:?xt=urn:btih:17DBEB9D8D23E424781DDA897730909A68C703FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:17DBEB9D8D23E424781DDA897730909A68C703FA
 ```bash
 magnet:?xt=urn:btih:2B5447A7B47CBA078F879517503BB4B72AD49248
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:2B5447A7B47CBA078F879517503BB4B72AD49248
 magnet:?xt=urn:btih:2B63FAF4301DC87F59F5FB517D37CA91A1CE5A83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:2B63FAF4301DC87F59F5FB517D37CA91A1CE5A83
 ```bash
 magnet:?xt=urn:btih:D8CC61AF1C99CE7FD3F31F544F4E0ADBADA46945
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ Arma Gray Photographer | Arma Gray - Шоколад и кофе (2019) PCRec [RU
 magnet:?xt=urn:btih:F67544B38F91A04A396AC510652FBE4EBEF19071
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ INFOSTART EVENT 2023 - 13-я конференция по управлению и
 magnet:?xt=urn:btih:2AD5FDA682FF522DC486415D193049EADB1B5D2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ JUG Ru Group | VideoTech 2023. Конференция по технология�
 ```bash
 magnet:?xt=urn:btih:B23A3CBF2882C392F1D42C99B5507B1AA1BD01E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ Udemy, Hussein Nasser | Discovering Backend Bottlenecks: Unlocking Peak Performa
 magnet:?xt=urn:btih:0E79D52B1091C24C682CF7B5145F8979B980969C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:0E79D52B1091C24C682CF7B5145F8979B980969C
 ```bash
 magnet:?xt=urn:btih:05F1D32CD0DAECED5487A125FD14CF93DA38137D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ Digital-Tutors | Introduction to Houdini 15 (2015) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:920419E162FBABA9C528CA6DF2F243E038A11841
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ FrontendMasters, Erik Reinert | Enterprise Cloud Infrastructure (2023) WEB-DL [E
 magnet:?xt=urn:btih:62BC8258F03AF3AA2DEB64B70392593F53AB5FA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ OTUS, Алексей Воронец | Scala-разработчик (2021) WEB-DL
 ```bash
 magnet:?xt=urn:btih:AF4BBBBB3BE75E0A30CA9D9EBB635848E5F985DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +644,8 @@ Python используется такими крупными компаниям
 ```bash
 magnet:?xt=urn:btih:B0F7B4C409BB422C2A08F306C69B8AE954C553E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +674,8 @@ magnet:?xt=urn:btih:B0F7B4C409BB422C2A08F306C69B8AE954C553E0
 magnet:?xt=urn:btih:5744BDB2DB8CAA85A8D76E8BF199427C6774DD94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ magnet:?xt=urn:btih:5744BDB2DB8CAA85A8D76E8BF199427C6774DD94
 ```bash
 magnet:?xt=urn:btih:D6D6BBE3E4456AE8691A30905B0F440737CB88C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

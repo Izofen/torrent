@@ -1,3 +1,32 @@
+###  Публикация: 1361384   (955734) от 19.02.2020
+
+VA - Soft Winter Ambient Music (2020) [MP3|320 Kbps] <Ambient, New Age, Downtempo, Relax>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chronos - Diacronity
+02. Jepe & Takumi Motokawa - Unfolded
+03. Point - Amonit Gate (Original Mix)
+04. Buddha-Bar - Tritone(   Читать дальше...   )Жанр: Ambient, New Age, Downtempo, RelaxПродолжительность: 06:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87897A405C44430E6D5F2B25FB19DA1748AD8DFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1361386   (955742) от 19.02.2020
 
 VA - Reggae On The Roof Vol.07 (2020) [MP3|320 Kbps] <Reggae, Dancehall, Riddim>
@@ -21,6 +50,8 @@ VA - Reggae On The Roof Vol.07 (2020) [MP3|320 Kbps] <Reggae, Dancehall, Riddim>
 ```bash
 magnet:?xt=urn:btih:C0A1C5000FC87D9364B79EE81D228B6DBB0BB6B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - EDM Resources: Techno Dance Set (2020) [MP3|320 Kbps] <Techno, Dance, Club,
 magnet:?xt=urn:btih:22D1454DF961B484ECA0E857E82C4C080F44D81A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ The Eagles - Edgy and Heavy (2016) (3CD)[MP3|210-320 кб/с] <Rock, Folk-rock>
 ```bash
 magnet:?xt=urn:btih:CA6A0160CCBBC7BACF07EB4509AEF42800876148
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - 50 Jump Blues Classics (2015) [MP3|320 кб/с] <Blues, Rock, Soul>
 magnet:?xt=urn:btih:6EAC56E52BCA25E46C4C9E1F7E900DF050495189
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Instrumental Piano Lyric (2016) [MP3|320 кб/с] <Instrumental>
 ```bash
 magnet:?xt=urn:btih:C1B281D26FBBBF8C336875CCC06C3248D345FEA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Блатная музыка на любимой волне (2016) [MP3|256 
 magnet:?xt=urn:btih:E488FE5425E003179AF0243857539ECD5C3D9607
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Extra Latin Sensation (2016) [MP3|320 кб/с] <Latin, Dance, Pop, House>
 ```bash
 magnet:?xt=urn:btih:061223C2772071BC657B556A7F6BF7063F3F48FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ The Grid - Collection (1990-2008) [OGG|438-522 кб/с] <Downtempo, Ambient, Tec
 magnet:?xt=urn:btih:160E64B8A1F98DA7B139558A76F0CDDF27B66696
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Christmas Chillout Gift 2015 (2016) [MP3|320 кб/с] <Downtempo, Chillout,
 ```bash
 magnet:?xt=urn:btih:D2326B4F93241A5387BD237EB3CEA00DA4F3F19C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ magnet:?xt=urn:btih:D2326B4F93241A5387BD237EB3CEA00DA4F3F19C
 magnet:?xt=urn:btih:57B6C21CF2CE8627E8140996C3730C2D3F2A8392
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - After Work Lounge, Vol. 5 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lo
 ```bash
 magnet:?xt=urn:btih:CE106F3B003F397AD113A38234871C77CFE92F8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ magnet:?xt=urn:btih:CE106F3B003F397AD113A38234871C77CFE92F8A
 magnet:?xt=urn:btih:9F6688CB35440EE35B54D40735C257D5F14A0D35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ Enigma - 25 Best Songs (2012) [MP3|~245 кб/с]<New Age>
 ```bash
 magnet:?xt=urn:btih:96E00A2F80E31B4553774D3FCA823C4B8E006A51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ Deep Forest - 25 Best Songs (2012) [MP3|~245 кб/с]<New Age>
 magnet:?xt=urn:btih:8842E904E2FEC459004E1D7F267E291CB9FE2C0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +456,8 @@ VA - Space And Time (2016) [MP3|320 кб/с] <Disco, Electonic, Space rock>
 ```bash
 magnet:?xt=urn:btih:E41394E2B7E762DC3403BFC5FF633E5194E2E3F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +486,8 @@ Joy - 25 Best Songs (2012) [MP3|~245 кб/с]<Eurodance>
 magnet:?xt=urn:btih:8F60504DAB09BB21822101AAF338805C608E0BC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +514,8 @@ VA - Atmosphere Bliss: Vocal And Uplifting Trance (2016) [MP3|320 кб/с] <Voca
 ```bash
 magnet:?xt=urn:btih:6943F56C88933278292C7A6FC9D5E7734B8CED82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +544,8 @@ VA - Sexy Deep House Session (2016) [MP3|320 кб/с] <Deep House>
 magnet:?xt=urn:btih:6FB6D06F6E8E08B5CF344F5EC1D51E76AB68F42D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +572,8 @@ VA - Colibri Trance Pack (2016) [MP3|320 кб/с] <Progressive, Uplifting, Vocal
 ```bash
 magnet:?xt=urn:btih:E63193418FA958C1AD09C9B2935351C4105511C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +604,8 @@ VA - The Official UK Top 40 Singles Chart (04-01-2015) [MP3|320 кб/с]<Pop, Da
 magnet:?xt=urn:btih:066C24ABB9D11C5587701F3841365B9C8C992B37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +632,8 @@ VA - Зимняя свежая 30-тка Vol.4 (2020) [MP3|320 Kbps] <Pop, Dance
 ```bash
 magnet:?xt=urn:btih:B4D92F62ABCC0318416552ED6FCD5BE1F68F8D5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +662,8 @@ Ace Of Base - Super Hits Collection (2015) [MP3|320 кб/с] <Disco , Eurodance>
 magnet:?xt=urn:btih:1E2DE72C3CC466BC8B7EF4033B98C33D58BB744D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +690,8 @@ VA - The Eurodance Evolution 2016 (2016) [MP3|320 кб/с] <Pop, Euro, Indie, Fo
 ```bash
 magnet:?xt=urn:btih:0668CD3F90102E813D953D89FEBF77FBE40D6026
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -645,6 +720,8 @@ VA - The Official UK Top 40 Singles Chart 14.02.2020 [MP3|320 Kbps] <Pop, Dance,
 magnet:?xt=urn:btih:96937A1A7AC7866257DE1CD1B0A2E6D151B8F9A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,32 +749,7 @@ VA - Blues Forever vol.05 - vol.08 (2015) [MP3|320 кб/с] <Blues>
 magnet:?xt=urn:btih:F794C561B12A3D4152EF4DB08BCB2F35441ADCFE
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978287   (959599) от 26.01.2016
-
-VA - Blues Forever vol.01 - vol.04 (2015) [MP3|320 кб/с] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Red Rooster - Little Darling
-02. Anni Piper - Untrue
-03. Steve Pryor Band - Moving Me
-04. Big Bad Voodoo Daddy - Maddest Kind Of Love(   Читать дальше...   )Жанр: BluesПродолжительность: 05:13:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F45D8E95C8C5A7355E1E886E5C3B23B916DAFE0
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

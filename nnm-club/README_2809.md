@@ -19,6 +19,8 @@ G-Player - проигрыватель инструментов в формате
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ Alphaville - 18 Legendary Hits (2003) [MP3|320 кб/с]<Pop, Disco>
 ```bash
 magnet:?xt=urn:btih:AC3E4B25582975BFEAE1004EC74D695B4E997765
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -85,6 +89,8 @@ Total Commander SE v.8 (portable) [Русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ Total Commander SE v.8 (portable) [Русский]
 ```bash
 magnet:?xt=urn:btih:F370ECD561C23B857EB5D9165B5C35666AD7EFE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -134,6 +142,8 @@ magnet:?xt=urn:btih:F370ECD561C23B857EB5D9165B5C35666AD7EFE9
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -158,6 +168,8 @@ magnet:?xt=urn:btih:F370ECD561C23B857EB5D9165B5C35666AD7EFE9
 ```bash
 magnet:?xt=urn:btih:07866BF59B3080291AA27ECF2E77104C6AEDF83F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +204,8 @@ Sabrina - Golden. Disco. Hits (2003) [MP3|320 кб/с]<Disco, Pop>
 magnet:?xt=urn:btih:2A24FB0A60704D29CC1CBA0FE483A74DAB4EB837
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +231,8 @@ magnet:?xt=urn:btih:2A24FB0A60704D29CC1CBA0FE483A74DAB4EB837
 ```bash
 magnet:?xt=urn:btih:B4953D6802F7B97D07D628221EDF39F65DE009B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +261,8 @@ Sweet (The sweet) - 4 альбома (1974-1982) [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -279,6 +297,8 @@ Ice MC - Disco Collection (2001) [MP3|320 кб/с]<Eurodance>
 magnet:?xt=urn:btih:C66687A10653F15C2EEEB30C4398E8C1ED4F03B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +324,8 @@ magnet:?xt=urn:btih:C66687A10653F15C2EEEB30C4398E8C1ED4F03B1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +349,8 @@ magnet:?xt=urn:btih:C66687A10653F15C2EEEB30C4398E8C1ED4F03B1
 ```bash
 magnet:?xt=urn:btih:5FD88078756394974B0C506553C637370989989A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -354,6 +378,8 @@ magnet:?xt=urn:btih:5FD88078756394974B0C506553C637370989989A
 magnet:?xt=urn:btih:691200FD2ACAC6D34F4885B2317CEB7082C5AE2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +403,8 @@ Katty and Bob: Tropical Rush / Кэти и Боб. Вперед домой (P) [
 ```bash
 magnet:?xt=urn:btih:E41CA8FBA400B50864F8E2DFD2C825A2FAAE2EB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +432,8 @@ magnet:?xt=urn:btih:E41CA8FBA400B50864F8E2DFD2C825A2FAAE2EB5
 magnet:?xt=urn:btih:0AF3D7D0190BD26D61AC452150903ECEB1AC18A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +458,8 @@ magnet:?xt=urn:btih:0AF3D7D0190BD26D61AC452150903ECEB1AC18A1
 magnet:?xt=urn:btih:068157EA0D105E9CC72A8D055D4436F4E374E8A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +483,8 @@ magnet:?xt=urn:btih:068157EA0D105E9CC72A8D055D4436F4E374E8A2
 ```bash
 magnet:?xt=urn:btih:5302889A129300BA5B7A58DDC307BBF7C53E6A54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +512,8 @@ magnet:?xt=urn:btih:5302889A129300BA5B7A58DDC307BBF7C53E6A54
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +537,8 @@ magnet:?xt=urn:btih:5302889A129300BA5B7A58DDC307BBF7C53E6A54
 ```bash
 magnet:?xt=urn:btih:3EFA66E2AB57DBCC12A2418C4E368C791799A524
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +568,8 @@ magnet:?xt=urn:btih:3EFA66E2AB57DBCC12A2418C4E368C791799A524
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +593,8 @@ magnet:?xt=urn:btih:3EFA66E2AB57DBCC12A2418C4E368C791799A524
 ```bash
 magnet:?xt=urn:btih:5D429A6D03869B7B3112F020184EDC1F70314DD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +620,8 @@ magnet:?xt=urn:btih:5D429A6D03869B7B3112F020184EDC1F70314DD9
 magnet:?xt=urn:btih:DD7D1D5FA3135CB41264CB50F58B575159B74524
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +645,8 @@ magnet:?xt=urn:btih:DD7D1D5FA3135CB41264CB50F58B575159B74524
 ```bash
 magnet:?xt=urn:btih:F768A8115339F4489824B3EF9F8EAAB7F3255D57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +673,8 @@ CyberLink PowerDVD Ultra 11.0.2608.53 [Мульти, Русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +699,8 @@ Major League Baseball 2K12 – новая игра в серии симулят�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -674,6 +724,8 @@ Major League Baseball 2K12 – новая игра в серии симулят�
 ```bash
 magnet:?xt=urn:btih:7120FB4136D9E559E3B4F7DA56C5BB4D72121D4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

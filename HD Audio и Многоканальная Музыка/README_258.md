@@ -1,3 +1,30 @@
+###  Публикация: 972986   (978123) от 10.01.2016
+
+Ансамбль (Вокальный квартет) Аккорд (1964) [FLAC 2.0 24/96|tracks (Vinyl-Rip)] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В дороге
+02. МустафаЖанр: PopПродолжительность: 00:04:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB6D34B1A3435F6784CDD64BB3529566B1AE85D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973397   (978125) от 10.01.2016
 
 Dana International - The Album (1998) [FLAC 2.0|16/44,1 |image+.cue (Vinyl-Rip)] <Euro House>
@@ -21,6 +48,8 @@ Dana International - The Album (1998) [FLAC 2.0|16/44,1 |image+.cue (Vinyl-Rip)]
 ```bash
 magnet:?xt=urn:btih:EF85AAC73B9E8EDFB901EAB0191411010D3F11DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +77,8 @@ VA - Blues & Ballads 2 (1996) [FLAC 2.0|16/44,1|image+.cue (MC-Rip)] <Pop, Cover
 ```bash
 magnet:?xt=urn:btih:C8FC4B473CF5E93F11827BE9F0B3A10C63FA29A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -80,6 +111,8 @@ B5. Wicked Ways 6:32Жанр: RockПродолжительность: 00:46:53
 ```bash
 magnet:?xt=urn:btih:A46BFC05513E57F36CC3C67C285C0D88061F7D6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -114,6 +147,8 @@ C4. Damaged People 3:30(   Читать дальше...   )Жанр: Synth-popП
 magnet:?xt=urn:btih:0043B9363B5FB929FAFA7DCD46C7259F88EF7598
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +181,8 @@ Electric Light Orchestra - Discovery (1979) [FLAC 2.0 24/192|traks(Vinil-Rip)]<P
 ```bash
 magnet:?xt=urn:btih:397EC607483D91CDA4647D23B7448F3D62F88C11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -180,6 +217,8 @@ magnet:?xt=urn:btih:397EC607483D91CDA4647D23B7448F3D62F88C11
 magnet:?xt=urn:btih:788853C62705A6DB44C7F01C393D0462E8AF84EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -206,6 +245,8 @@ magnet:?xt=urn:btih:788853C62705A6DB44C7F01C393D0462E8AF84EC
 ```bash
 magnet:?xt=urn:btih:F0CC07C4374A94223E87EBE50F15DBE08B142442
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -234,6 +275,8 @@ Amadeus Veberzinke/Амадеус Веберзинке - J. S. Bach/И. С. Ба
 magnet:?xt=urn:btih:E524E0F0CA3702DC2C129FFD097E0E153AC9E7A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +304,8 @@ VA - Место встречи - Выпуск 4 (1988) [FLAC 2.0 24/192] image+.
 magnet:?xt=urn:btih:455619579D282BF72742EB0247C87405ACDD2B3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +332,8 @@ Yovanna/Иованна - 3xEP: Песни Д. Плессаса и К. Капни
 ```bash
 magnet:?xt=urn:btih:E4AC16232D0088A43E407C9B5CFDF33F03C30B62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +367,8 @@ B4. Clean 5:29Жанр: Synth-popПродолжительность: 00:46:30
 magnet:?xt=urn:btih:AFE98CDF9D88713EFFB06255062F95905FC51DB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +397,8 @@ VA - Кубинская эстрадная оркестровая музыка 6
 magnet:?xt=urn:btih:80A1C7680908B3B23444F48E7FC6B6274AC089F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +425,8 @@ A4. Top Of The World [4:33](   Читать дальше...   )Жанр: Progres
 ```bash
 magnet:?xt=urn:btih:ED5AB61891CAA9D775D72B75817588B02CE65779
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +461,8 @@ B5. Heart Of Gold [04:07]Жанр: Pop, DiscoПродолжительность:
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +489,8 @@ A4. То, Чего Больше Нет [4:55](   Читать дальше...   
 ```bash
 magnet:?xt=urn:btih:566AC8209A8F3F4C4E24E6FF3FA2C67015900D6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +519,8 @@ Guns N' Roses – 9 Альбомов (1986-2008) [FLAC 2.0 24/96|tracks (Vinyl-R
 magnet:?xt=urn:btih:993453754ABF40BD554628D4FE192E72A1E62189
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +547,8 @@ A4. С кем ты? [4:42](   Читать дальше...   )Жанр: Heavy Me
 ```bash
 magnet:?xt=urn:btih:900CE1073B6C42AFB874206A2E8975FC574932F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +577,8 @@ A4. Rough Boy [4:52](   Читать дальше...   )Жанр: Blues Rock, Bo
 magnet:?xt=urn:btih:20862BD072C598941E34C51F827EE8A3B26CF3AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +605,8 @@ A4. I Need You Tonight [6:19](   Читать дальше...   )Жанр: Blues
 ```bash
 magnet:?xt=urn:btih:649A4065E96CA76523E5EF416037BDAB6447A3E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +635,8 @@ A4. It's A Tragedy [3:46](   Читать дальше...   )Жанр: Pop Rock�
 magnet:?xt=urn:btih:9111109BDBD0C64D61B0893E97538FC6A70C4DFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +664,8 @@ A4. Sleepwalker [3:59](   Читать дальше...   )Жанр: Classic Rock
 magnet:?xt=urn:btih:9376BEAE5A29C18B47CE25A6EFCFE5EABF9CD87B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +689,8 @@ Ganymed - Takes You Higher (1978) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Space Disc
 ```bash
 magnet:?xt=urn:btih:1CD221706D5CE2DBD3A7C14822756D2C650B7812
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -654,6 +725,8 @@ B4. Alive [04:54](   Читать дальше...   )Жанр: Rock, Heavy Metal
 magnet:?xt=urn:btih:F38DFD1F80C422A7348C4BA05E17948BE0E20998
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -687,6 +760,8 @@ B3. Plateau 3:38(   Читать дальше...   )Жанр: GrungeПродол
 magnet:?xt=urn:btih:60606D67144207DB7E92DDB1A76DB43F321DC14A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -711,36 +786,7 @@ Mylene Farmer - Monkey me (2012) [LPCM 2.0 24/96 |Blu-ray] <Pop>
 magnet:?xt=urn:btih:F982FDF929B743B82BDEF607D190D7F91334B550
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607563   (993977) от 24.01.2013
-
-ДДТ - Актриса Весна (1992) [FLAC 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993977.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Дождь 5:16
-A2. В Последнюю Осень 5:02
-A3. Фома 7:02
-A4. Родина 4:44
-B1. Храм 5:23
-B2. Что Такое Осень 4:58
-B3. Ночь 5:16
-B4. Актриса Весна 5:46Жанр: RockПродолжительность: 00:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EAF502A58B10900F96ACBAC8C0CE6A03C7720AB
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

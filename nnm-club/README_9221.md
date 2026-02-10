@@ -22,6 +22,8 @@ VA - Музыкальные Новинки 50x50 (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:F1EBEF12EFE1FDBA301BEC06C6F26E7950941002
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ VA - Русские Свежаки Радиостанций (2016) [MP3|256 Kbps
 magnet:?xt=urn:btih:4D76E71AC60EB69E8BE112C98C4BB9AE60FA5869
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ Reflect Studio - новый фото редактор от создателей 
 ```bash
 magnet:?xt=urn:btih:BCD3DAEC018776248377E87B3DF2CDDE06D067C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -108,6 +114,8 @@ VA - Music paradise from Sander (11.12.10) [MP3|320 kbps]<Electro House>
 magnet:?xt=urn:btih:0BFA2F247EF2FA8FBB02B145CB2C8D6E3760347A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -132,6 +140,8 @@ magnet:?xt=urn:btih:0BFA2F247EF2FA8FBB02B145CB2C8D6E3760347A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +165,8 @@ magnet:?xt=urn:btih:0BFA2F247EF2FA8FBB02B145CB2C8D6E3760347A
 ```bash
 magnet:?xt=urn:btih:14983281CBE97706BA66E656F1DD954424233D7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ magnet:?xt=urn:btih:14983281CBE97706BA66E656F1DD954424233D7B
 ```bash
 magnet:?xt=urn:btih:9A792A55E260973BF8312DF84D4C3DE4F01C42A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -209,6 +223,8 @@ VA - A Guy In Buenos Aires (Mixed by Guy Mantzur) - 2016 [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:415EF435B207A5C89773AA648685097430C5226C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +250,8 @@ Folx Pro 5.1.13639 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:79D3931B3C91AEF6C4BADC43A16851793DE56722
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +280,8 @@ VA - Осенняя дискотека по-русски. Выпуск 7 (2016) 
 magnet:?xt=urn:btih:67540C716631CD49E71776F89FC1C669A6C3A1A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +308,8 @@ VA - Club Hits Special Authors (2016) [MP3|320 Kbps] <House, Electro, Hands Up, 
 ```bash
 magnet:?xt=urn:btih:11334AD60C9480790CD730358D723D4B648B0479
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +338,8 @@ VA - Взрывной хит-парад. Версия 2 (2016) [MP3|256 Kbps] <P
 magnet:?xt=urn:btih:35375BBD5879E68C6F093D7B908931A181EA8422
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +363,8 @@ magnet:?xt=urn:btih:35375BBD5879E68C6F093D7B908931A181EA8422
 ```bash
 magnet:?xt=urn:btih:BAE13DB7333FD9F611CCFC0A9122DCD1073F531A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +393,8 @@ VA - Радио Шансон. Высшая Лига Хитов Версия №8
 magnet:?xt=urn:btih:F22860EDF37E970850A148F7279785ADCD4A2656
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +421,8 @@ VA - Club Hits (2016) [MP3|204-320 Kbps] <Club, Vocal, Commercial, Progressive, 
 ```bash
 magnet:?xt=urn:btih:33C3B71CC9253277A12E83D4A15CF9E9AE46FDE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +451,8 @@ VA - Масть крестовая. Зима на радио Шансон. Вы�
 magnet:?xt=urn:btih:7B655FF594BB6416180AA278AA52136402B21026
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +480,8 @@ magnet:?xt=urn:btih:7B655FF594BB6416180AA278AA52136402B21026
 magnet:?xt=urn:btih:9C0E445145BA9985BFB32486C0DAC5675A9DFDD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +507,8 @@ magnet:?xt=urn:btih:9C0E445145BA9985BFB32486C0DAC5675A9DFDD3
 magnet:?xt=urn:btih:591E312866D68BDCF0F98EF10E5CB9FF7DF959CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +532,8 @@ magnet:?xt=urn:btih:591E312866D68BDCF0F98EF10E5CB9FF7DF959CE
 ```bash
 magnet:?xt=urn:btih:15F1729B19F5EEB1691ECBA5831A77BAF0C6AF55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +562,8 @@ VA - Deep House Ibiza Chart Best of 2016 (2016) [MP3|320 Kbps] <Deep House>
 magnet:?xt=urn:btih:6E0143BE768C62BF2FD77B8AF819F7F85822CE5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +588,8 @@ magnet:?xt=urn:btih:6E0143BE768C62BF2FD77B8AF819F7F85822CE5D
 ```bash
 magnet:?xt=urn:btih:88336A6953FCC73A72888225001300226179DD52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +618,8 @@ VA - Музыкальные новинки mp3. Часть 5 (2016) [MP3|256 Kbp
 magnet:?xt=urn:btih:9F56500BBCA936FD8176C35B5F17A3166619C77A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +646,8 @@ Kenny Wheeler, Peter O' Mara, Wayne Darling, Bill Elgart (1991) Koala Records [F
 ```bash
 magnet:?xt=urn:btih:23CEF76A0DE8FD0E7239DB1C87D4B61F32488023
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +676,8 @@ VA - Попсовая соточка от Хит fm 8 (2016) [MP3|256 Kbps] <Pop
 magnet:?xt=urn:btih:08A5D051F4DE618C551DAD8CBE2DE6C178047936
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +705,8 @@ VA - Specialist Galactic Trance (2016) [MP3|320 Kbps] <Trance, Tech Trance, Melo
 magnet:?xt=urn:btih:782DA475382EB7B87266D10F4B6FA6BB9938BFB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -683,6 +733,8 @@ iambic (iambic2, iambic²) - Discography - 6 Releases (2007-2010) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:785FF461CE6BA5EB9590FF54A7B9801C457C37EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

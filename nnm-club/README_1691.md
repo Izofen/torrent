@@ -19,6 +19,8 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 magnet:?xt=urn:btih:23129808BF641EF61BD1DC2FBEE82215A800AA73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:23129808BF641EF61BD1DC2FBEE82215A800AA73
 ```bash
 magnet:?xt=urn:btih:17072C27058D59DE7BC8408A18BA992ABED7469E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:17072C27058D59DE7BC8408A18BA992ABED7469E
 magnet:?xt=urn:btih:464A80C064E8DA3F1A4E576E8F1751CAFBD91209
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:464A80C064E8DA3F1A4E576E8F1751CAFBD91209
 ```bash
 magnet:?xt=urn:btih:840C3955519EF8BFF97ED8D61796C6BB7144E809
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:840C3955519EF8BFF97ED8D61796C6BB7144E809
 ```bash
 magnet:?xt=urn:btih:C4D49C733C2A427EEBE8C7BEEFA111165503D0FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ GoodbyeDPI 0.2.3rc1 Launcher 8.5 [Ru/En]
 magnet:?xt=urn:btih:38819E40021639EEBDE807EE7C73BF4A2ADCA077
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:38819E40021639EEBDE807EE7C73BF4A2ADCA077
 ```bash
 magnet:?xt=urn:btih:AF3235298472B2BBD1817C4B78CACA07181B00F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Punch Club 2: Fast Forward - это двухмерный экшен-файтин
 magnet:?xt=urn:btih:E0F3A174FB429639E4D089A9D2A7FE8995506BFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ YouTube препятствует массовому переносу видео 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ YouTube препятствует массовому переносу видео 
 magnet:?xt=urn:btih:391F487DDA8E02E99ABD2719E990C53FE253AFFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:391F487DDA8E02E99ABD2719E990C53FE253AFFF
 ```bash
 magnet:?xt=urn:btih:1AA432D84D6DB71B5E02D0006676DF9AFAAA9525
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:1AA432D84D6DB71B5E02D0006676DF9AFAAA9525
 magnet:?xt=urn:btih:FC1B639A6A7D86054F953781A8E094A739020C65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:FC1B639A6A7D86054F953781A8E094A739020C65
 ```bash
 magnet:?xt=urn:btih:ECB76C82157F59567937C4BF327B6E78DFFE1BA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:ECB76C82157F59567937C4BF327B6E78DFFE1BA2
 magnet:?xt=urn:btih:02DC5D64A5F3E8E8A6A703DD3397ADA495044C54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:02DC5D64A5F3E8E8A6A703DD3397ADA495044C54
 ```bash
 magnet:?xt=urn:btih:BF633336E2E82A5D40C6605FD8265A6D36BA295E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:BF633336E2E82A5D40C6605FD8265A6D36BA295E
 magnet:?xt=urn:btih:D4CE8D20D16370E06CC70A2A0855EEB745A6D545
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ CorelDRAW Graphics Suite 2024 25.2.0.301 (x64) RePack by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:451F1F7236F46EF84DA065589FD6872A832B0204
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (Build 15521170/dlc) Repack D
 magnet:?xt=urn:btih:C2CC3E0B7C3A0245337C755F3AEE525BF56E1845
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ SolidWorks 2024 Premium — система автоматизированног�
 magnet:?xt=urn:btih:7891E21CBE0AECC9D4263468B4B145DACDF75F13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Tor Browser Bundle 13.5.3 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:10198DA25BD402BA86DA2B9BD9E18C71F175683C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:10198DA25BD402BA86DA2B9BD9E18C71F175683C
 magnet:?xt=urn:btih:197ABB105CA82D5B8C58EE2EC659A105B3D0FC3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:197ABB105CA82D5B8C58EE2EC659A105B3D0FC3E
 ```bash
 magnet:?xt=urn:btih:8985BA409FA6B8016F164B13B4A067AB6ACAFD81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ Chornobyl Liquidators - симулятор ликвидатора Чернобы
 magnet:?xt=urn:btih:DCD8B7849C7BE87674191D5F01E3338C50E4542F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:DCD8B7849C7BE87674191D5F01E3338C50E4542F
 magnet:?xt=urn:btih:BEA9472F8021931E57FD88924565E51D5A2681A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:BEA9472F8021931E57FD88924565E51D5A2681A1
 ```bash
 magnet:?xt=urn:btih:3289684A4A4B44346D67C234D617BC3CB6FE485F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:3289684A4A4B44346D67C234D617BC3CB6FE485F
 ```bash
 magnet:?xt=urn:btih:BE30E9C38A86F18BC30E971B6A0EDEA9584F8E37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

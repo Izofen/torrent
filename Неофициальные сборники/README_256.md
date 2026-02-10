@@ -1,3 +1,32 @@
+###  Публикация: 1411002   (429736) от 24.09.2020
+
+VA - R&B Soul Classics Songs (2020) [MP3|320 Kbps] <R&B, Rap, Hip Soul>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429736.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zayn - Fresh Air
+002. Jor'dan Armstrong - Lose My Number
+003. Bigg Robb - Take It Off
+004. The Boys Choir Of Harlem - Interlude Don't Compare My Singin'(   Читать дальше...   )Жанр: R&B, Rap, Hip SoulПродолжительность: 07:13:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F6F183623D5F8D661B16974A8B3CDBD8B47A2A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411218   (429737) от 24.09.2020
 
 VA - Indigo Trance Set (2020) [MP3|320 Kbps] <Trance, Electro, Progressive>
@@ -21,6 +50,8 @@ VA - Indigo Trance Set (2020) [MP3|320 Kbps] <Trance, Electro, Progressive>
 ```bash
 magnet:?xt=urn:btih:D0124699A2AB66031B35BA94E00F72E29D0CB0E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Shell: Indie Rockstar (2020) [MP3|320 Kbps] <Indie, Alternative, Rock>
 magnet:?xt=urn:btih:D2430B81522DF52FD26E1A6A7944360010319386
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Enjoy The Groove: Clubbing Techno Set (2020) [MP3|320 Kbps] <Techno, Club, 
 ```bash
 magnet:?xt=urn:btih:A3557E79C4DDD75C3D5B04961DCD1F6343AC973D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Melody Therapy: Relax Compilation (2016) [MP3|320 Kbps] <Chillout, Lounge, 
 magnet:?xt=urn:btih:CC1FA3DFB4142D2E7F5437192E02200CC1420879
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - 100 Хитов Популярной Музыки Русский выпус�
 ```bash
 magnet:?xt=urn:btih:C1B8817076A027A8D7762D3C9F5F49CAE94CB412
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Music for Your Car Vol.6 (2017) [MP3|256-320 Kbps] <Club, Dance>
 magnet:?xt=urn:btih:5D60D79D40FEE20A54E77D7DA39D02CC63E0C906
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Billboard Hot 100 Singles Chart 23.09. (2017) [MP3|320 Kbps] <Pop, Dance, E
 ```bash
 magnet:?xt=urn:btih:0C7652348CE0905BCBC067BBC29B422AF8691BF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Progressive Trap House: October Mix (2016) [MP3|320 Kbps] <Progressive Hous
 magnet:?xt=urn:btih:3988CE8FB580F07F62E5E33F804EC735EB523996
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +279,8 @@ VA - Beatport Techno September (2016) [MP3|320 Kbps] <Techno>
 ```bash
 magnet:?xt=urn:btih:631913E3613090E1EB94B067C591776F92F4B44B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +309,8 @@ VA - Late Night Worries: Luxury Lounge and Chill Out Series Vol.1 (2016) [MP3|32
 magnet:?xt=urn:btih:2A404F5D10EA3245F4BB9C30C0A8BCF0EAD30770
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +337,8 @@ VA - Club Dance Ambience Vol.163 (2018) [MP3|320 Kbps] <Dance, Club, House>
 ```bash
 magnet:?xt=urn:btih:90445D4C253F0802AE26FEE320500E46931471F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +382,8 @@ Vol 1
 magnet:?xt=urn:btih:553FE4AFD72ECC894BCEC2ADA59CD1C7954EF119
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +416,8 @@ VA - Инструментальная музыка (2012) vol. № 97 [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:1502525D10693CF84110C9D48514082FDC3A2BE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +452,8 @@ VA - Самые Лучшие Хиты Осени 50/50 (2012) [MP3|256 кб/с]<
 magnet:?xt=urn:btih:1867FE7CFE11DFD2F3F696FE07A753A16F61498D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +481,8 @@ Zivert - Crazy (2019) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:38639E070BC8A51E808191F53B14F600B89BA0B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +509,8 @@ VA - Ремиксы от MGDC FM Vol 7 (2020) [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:50F938EDDC2437948263D73C5E781459E581CFFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +545,8 @@ VA - Инструментальная музыка (2012) vol. № 96 [MP3|320 �
 magnet:?xt=urn:btih:5A335F284B05B1C712AB61C9ABDEE49ABED995CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +580,8 @@ VA - Инструментальная музыка (2012) vol. № 95 [MP3|320 �
 magnet:?xt=urn:btih:1CF02C7FEC5BD1DF5E9F9705C69F76BFEF1704B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +608,8 @@ VA - New Age Style - Enigmatic 31 (2020) [MP3|320 Kbps] <Electronic, New age, En
 ```bash
 magnet:?xt=urn:btih:D76593168DAD8969AB00EB4A7F0EC38B8E273E42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +638,8 @@ VA - Осенняя свежая 30-тка (2019) [MP3|320 Kbps] <Pop, Dance, Ot
 magnet:?xt=urn:btih:8F9B3783F2C9C8F5F73AAACB61388091E00D3AD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +667,8 @@ VA - Cocktail new music №9 (2015) [MP3|256-320 кб/с]<Pop, Dance, Eurodance>
 magnet:?xt=urn:btih:4961805E96C8AE09B2209854E0C92CF7ED41CE72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +695,8 @@ VA - Музыкальное свежье русский выпуск 2 (2015) [M
 ```bash
 magnet:?xt=urn:btih:A4E62C08B72516ADF4AFEB8D48ED2D3E575D99D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -657,6 +730,8 @@ VA - Эксклюзив осенних хитов (2012) [MP3|128-320 кб/с]<P
 ```bash
 magnet:?xt=urn:btih:F7AA23FF39274F91D56C4CAF4AEAF44154923BC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -700,6 +775,8 @@ CD 1
 magnet:?xt=urn:btih:CD013EEDDDF975699BD6599243D4C159A6AFE5A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -726,32 +803,7 @@ VA - Megadance 2015.3 (2015) [MP3|320 кб/с]<House, Club, Dance>
 magnet:?xt=urn:btih:1F24DA2BE980228EE1E24537DE137A27B675D0EF
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571483   (431673) от 22.08.2022
-
-VA - Music News vol.210 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431673.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 5Утра - Бросила (03:18)
- 002. 1minute - Love You From The Start (03:24)
- 003. 42 Dugg - IDGAF (02:19)
- 004. Aem - На Твоих Окнах (03:09)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:551DA9B5F80C5132B9CA5E947B044483449ABC98
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

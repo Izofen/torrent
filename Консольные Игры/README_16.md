@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:38F0EF982F92F56D3A5086B15B58B7170BA5AB0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Tekken 6 [PSP] [RUS] (Не требует хакерской прошивки) (
 ```bash
 magnet:?xt=urn:btih:FF0144956AD562B9074FF4F12C6A25E3CA20016F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Assassin’s Creed III Essentials отсылает главного героя �
 magnet:?xt=urn:btih:AF992922496026D4086302BAB9F808A8686C6920
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Dead Island 2 — ролевой экшен с видом от первого л
 ```bash
 magnet:?xt=urn:btih:362A213BC0EEFC633DA56CA24D8E22040AD0EF3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Teenage Mutant Ninja Turtles: Mutants in Manhattan - это классическ
 magnet:?xt=urn:btih:A7EA00454C920D9598DD3EA121293069265C041B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Dead Space 3 отправляет Айзека Кларка и незнающе�
 magnet:?xt=urn:btih:3BC3A34A39F16C35599F5C19C7EDC56ABDEC8FA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ Transformers: Devastation (2015) [PS3] [EUR] 4.75 [Cobra ODE / E3 ODE PRO ISO] [
 ```bash
 magnet:?xt=urn:btih:47E9C0B94183A0F5C03FF6C2B2B2CF450C2D82A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Summer Challenge: Athletics Tournament - спортивный симулятор
 magnet:?xt=urn:btih:E513C1073C3908E68B6AF24E73705F53BFC03A3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:E513C1073C3908E68B6AF24E73705F53BFC03A3B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Men in Black: Alien Crisis [Wii] [NTSC] [ENG] (2012)
 magnet:?xt=urn:btih:AA87B0D5AC4405BA1BEF2D8806C20AA71A899715
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:AA87B0D5AC4405BA1BEF2D8806C20AA71A899715
 ```bash
 magnet:?xt=urn:btih:D2D958A7DC389A2CD4C74527A284DE349CF76966
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Petz Catz 2 [Wii] [NTSC] [ENG] (2007)
 magnet:?xt=urn:btih:97A0A1489C4A127399A578A2AB3FCCA208BCD7EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:97A0A1489C4A127399A578A2AB3FCCA208BCD7EF
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ Crash Commando - крайне увлекательная игра с масшт�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ Star Wars Jedi: Survivor / Звёздные войны Джедаи: Выжив�
 magnet:?xt=urn:btih:7A7E1DE5AAA6FA1AA160EFC5815A4FB8E5CA542E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Bleach: Shattered Blade [Wii] [PAL] [Multi 3] (2007)
 ```bash
 magnet:?xt=urn:btih:234CE89868CCAF390F4C880138CC8C48EA86525C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ FIFA Street 3 (2008) [PS3] [EUR] 2.01 [Cobra ODE / E3 ODE PRO ISO] [License] [En
 magnet:?xt=urn:btih:54D7D4707EFECD69725DBE25BB3A0BB4C90EFB15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Bee Simulator (2019) [Switch] [EUR] 9.0.1 [NSP] [License / 0.2] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3370C20535FD497D409F387B1C8A675042DF4BB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ South Park: The Fractured but Whole, сиквел знаменитой игры 
 magnet:?xt=urn:btih:ED9595E4388F999DCF986E397997B8FBDD75C8A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ South Park: The Stick of Truth (2018) [Switch] [USA] 8.1.0 [NSZ] [License / 1.0.
 magnet:?xt=urn:btih:97D5D83DEA5644B6A37C1619132F6EF4B6FC99D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Valkyria Chronicles (2018) [Switch] [USA] 8.1.0 [NSZ] [Unofficial] [Ru/En]
 ```bash
 magnet:?xt=urn:btih:5F36373642354324BA68BF333A0BA549B9FDC360
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Narcos Rise of the Cartels (2019) [Switch] [USA] 9.0.1 [NSP] [License / 1.0.3] [
 magnet:?xt=urn:btih:7EF1D8A38B5F6D9BAFD86F986BC83817F2CDCF22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Nintendo 3DS ROMPack (2011-2017) [3DS] [ALL] [Decrypted] [Unofficial] [Multi] (1
 ```bash
 magnet:?xt=urn:btih:761A9CF9697DF3E7F24E030DFA6E9731A37CCC19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ Blade Arcus from Shining EX- аркадный файтинг, вышедший �
 magnet:?xt=urn:btih:0D91E274E1302F8BE806A11CAF608F115BB3BC10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ Monster Boy and the Cursed Kingdom (2018) [Switch] [USA] 9.0.1 [NSZ / 1.0.5] [Li
 ```bash
 magnet:?xt=urn:btih:88A817B3BDF54694D1F20C08688DB046FC9637D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +680,8 @@ Final Fantasy Fables: Chocobo's Dungeon [Wii] [PAL] [ENG] (2008)
 ```bash
 magnet:?xt=urn:btih:5226DF21D488CE83C82F301B3E9F58F639884802
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

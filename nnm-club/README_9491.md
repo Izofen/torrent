@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:BB0D720E0B466F42163E40C2458D7221DF0AA53B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:BB0D720E0B466F42163E40C2458D7221DF0AA53B
 magnet:?xt=urn:btih:56C84C2EC2A683B057C94B733CDF2E829835C82C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Whispered Secrets 6: Song of Sorrow / Нашептанные секреты 6: �
 magnet:?xt=urn:btih:1911912B77093CA586A522EF4F0011E2BE336841
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Sand Writer - песчаные рисунки, экшен для Вашего т
 ```bash
 magnet:?xt=urn:btih:35F7BD4D996B51E25C19D2B4CEEC95D23F988B3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ VA - My Favourite Hits of 1967 (8CD) (2016) [MP3|320 Kbps] <Psychedelic Rock, Bl
 magnet:?xt=urn:btih:2BD15973BF971FEDFDB203A40B9C1468B6D5EA85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 magnet:?xt=urn:btih:91CBA28F866F99025B7AF4BB5304424FC9C36C6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:91CBA28F866F99025B7AF4BB5304424FC9C36C6C
 ```bash
 magnet:?xt=urn:btih:3C5A1883134DC36F25E84CB39C1007031977B022
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ VA - 80s Hard Rock Anthems (2016) [MP3|320 Kbps] <Hard Rock, Heavy Metal, Soft R
 magnet:?xt=urn:btih:2360D2A589D45B61900DFA52F6BF83D0A1CB21B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 ```bash
 magnet:?xt=urn:btih:EC9313E9C3DAAD2676A853543D2DC77059E4314E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ U.D.O. – Steelhammer: Live from Moscow (2014) Blu-ray [H.264/1080i]
 magnet:?xt=urn:btih:D3AE0D7D2001FA39E8AABDD61E9DD0BA39FF37C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ VA - touched two (2014) [FLAC|Lossless|WEB-DL]<IDM, Electro, Ambient, Experiment
 magnet:?xt=urn:btih:4C7896EDCE20C39D9385B8930CE236D308F42C12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ Gorky 17 / Горький-18: Мужская работа (1999) [Ru] (1.0) Unof
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ Gorky 17 / Горький-18: Мужская работа (1999) [Ru] (1.0) Unof
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ Gorky 17 / Горький-18: Мужская работа (1999) [Ru] (1.0) Unof
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ Monster Collection / Коллекция монстров (1998) [1-33 гл.] [М
 magnet:?xt=urn:btih:D92C82D6A5E629E7C0E92F090C10CD660AC90025
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:D92C82D6A5E629E7C0E92F090C10CD660AC90025
 magnet:?xt=urn:btih:C92690588C9287E7DEA8FFFFD47FFB90D0CE45FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:C92690588C9287E7DEA8FFFFD47FFB90D0CE45FE
 ```bash
 magnet:?xt=urn:btih:A13E11C00EFA0360B713E7F45C4B3D4965493C5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ Treeboga - Circle of Unity (2020) Merkaba Music [FLAC|Lossless|WEB-DL|tracks] <T
 magnet:?xt=urn:btih:A8EE0660EAA8F1A102E8F86CB8C24E9E9C99749A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ VA - Steyoyoke Paradigm, Vol. 01-08 (2017-2020) Steyoyoke Recordings [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:1D7B2CA366196E24C3AD326BA1680C4F56525F16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +538,8 @@ magnet:?xt=urn:btih:1D7B2CA366196E24C3AD326BA1680C4F56525F16
 magnet:?xt=urn:btih:5C19AE6CB5ACEE4F9546E3BB499363437CD2D320
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ magnet:?xt=urn:btih:5C19AE6CB5ACEE4F9546E3BB499363437CD2D320
 ```bash
 magnet:?xt=urn:btih:BA1E4BC45A215C5E54818947064387033EAE1937
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +593,8 @@ Mirko Hirsch - Lost In Alphaville (2018) LP [MP3|320 Kbps] <Electronic, New Ital
 magnet:?xt=urn:btih:E54D978EBFBD9FA630082DDF89755693FB6E4075
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +622,8 @@ Ana Roxanne - Because Of A Flower (2020) Kranky [FLAC|Lossless|WEB-DL|tracks] <A
 magnet:?xt=urn:btih:F637F25A8DC01BEAD84F4D19E4865897B0CEE32F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +648,8 @@ Kinza Browser - японский браузер на базе Chromium с доп
 ```bash
 magnet:?xt=urn:btih:3941ADAA2A398519CF2C90EA7FB13E512ED2FE7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +678,8 @@ Kizaru - BORN TO TRAP (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:466D1A4886409A33B22684BBD13106BF7E51C9CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ The Bat! – общепризнанная система обработки эл
 ```bash
 magnet:?xt=urn:btih:A67D26733792F716CBA15F7AB6AE0B98927BA464
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ BabyBus Kids: Мир видео и игр v3.1.10.0 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:E2B0C49AFCDD68837B9700B60626362498DAB73B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:E2B0C49AFCDD68837B9700B60626362498DAB73B
 ```bash
 magnet:?xt=urn:btih:28C8665D584599291AD2D60A114C2D1AD1FBDC73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ VA - Yoga Breath - Relaxing Moments (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge
 magnet:?xt=urn:btih:2A1AA705E31AE8F3F257014D21867F17B86CCC88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:2A1AA705E31AE8F3F257014D21867F17B86CCC88
 magnet:?xt=urn:btih:A0C18C6EF104F66DDC8D893FC2C8EC1215431E4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:A0C18C6EF104F66DDC8D893FC2C8EC1215431E4B
 ```bash
 magnet:?xt=urn:btih:3A23DD6E89A14EEA76B346DD65EF73BDCFEADA47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ Linda Jo Rizzo - Best Of (1999) [FLAC|Lossless]<Italo-Disco>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ Linda Jo Rizzo - Best Of (1999) [FLAC|Lossless]<Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:EA9A3A6A2F9BD19620608D1B52E113E8E648089E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ Words of Wonders: Игра в слова v5.3.0 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:FE1F97FCF48820F636C9375049C9FF90EB620302
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ BZ Напоминания и Дни Рождения PRO v3.10.2 Mod by vadj [Ru
 ```bash
 magnet:?xt=urn:btih:E59C94798D01A1E92E6A2E44FFDA47EA8F47BAB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ Photo Sherlock v1.130 Mod by Mixroot  [Ru/Multi]
 magnet:?xt=urn:btih:E4E7201DF2C247BB2C39250C7D62E2D01B8E8CC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:E4E7201DF2C247BB2C39250C7D62E2D01B8E8CC1
 ```bash
 magnet:?xt=urn:btih:6878BA439DF4D6B7FEA9836619BB81B94F6AC642
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ FastStone Capture представляет собой довольно мощн�
 magnet:?xt=urn:btih:C059DD3D7B0D7ACEFC13474E7CCAB6C9E6D16904
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:C059DD3D7B0D7ACEFC13474E7CCAB6C9E6D16904
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:C059DD3D7B0D7ACEFC13474E7CCAB6C9E6D16904
 magnet:?xt=urn:btih:6939AD6FF443C97B88904F8DEE6382CD68594391
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:6939AD6FF443C97B88904F8DEE6382CD68594391
 ```bash
 magnet:?xt=urn:btih:F294A3EFD8272BFC813FC91D4A5814587FC7CBE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:F294A3EFD8272BFC813FC91D4A5814587FC7CBE6
 magnet:?xt=urn:btih:3AE379630365A2AE70617D3373AA162DDDC32CE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:3AE379630365A2AE70617D3373AA162DDDC32CE3
 ```bash
 magnet:?xt=urn:btih:0074F63A948B3797F2ED96554075269C9C893D26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +477,8 @@ VA - Sirup Amsterdam 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic Hous
 magnet:?xt=urn:btih:6F2D67CC7D2BBB0BB10196845C2E8384DE7369F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ VA - Magic Deep-House, Vol. 4 (2025) [MP3|320 Kbps] <House, Deep House, Dance, C
 magnet:?xt=urn:btih:8368E75B6AB3F19983E8C1A129F75142418323BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ magnet:?xt=urn:btih:8368E75B6AB3F19983E8C1A129F75142418323BB
 ```bash
 magnet:?xt=urn:btih:D8355A24202CFEA69970268DF18D0B528F398F7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +558,8 @@ magnet:?xt=urn:btih:D8355A24202CFEA69970268DF18D0B528F398F7D
 magnet:?xt=urn:btih:BF288F5DE3A5C0E4759B5028056B771DF14DF1AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:BF288F5DE3A5C0E4759B5028056B771DF14DF1AA
 magnet:?xt=urn:btih:F4EDC7BEB33C3D0D42DF376669CC39D1541C6FDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:F4EDC7BEB33C3D0D42DF376669CC39D1541C6FDD
 ```bash
 magnet:?xt=urn:btih:1BCA0DCDC77EBD4EA5DCA348B8C8A8E909C902AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +638,8 @@ PhotoCASA, Сергей Парышков | Креативные приемы в 
 magnet:?xt=urn:btih:E72C212152F63BA105643CB5CE657D601756FA61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +663,8 @@ magnet:?xt=urn:btih:E72C212152F63BA105643CB5CE657D601756FA61
 ```bash
 magnet:?xt=urn:btih:A643F818A247ABB990E3A72551F17DAD0273CA8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +692,8 @@ Class101, Inhyuk Lee | The Ultimate Guide to Illustration - From Beginner to Int
 ```bash
 magnet:?xt=urn:btih:C36BD15D52D09A9A7A0B28E1FD7B2B9EC66D07EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

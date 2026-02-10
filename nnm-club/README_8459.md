@@ -22,6 +22,8 @@ Interio - Чёрт в зеркале (2023) [MP3|320 Kbps] <Gothic Metal>
 magnet:?xt=urn:btih:2D998D3AE48B88CBC42C5F05BE52F6E90AF3EF0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:2D998D3AE48B88CBC42C5F05BE52F6E90AF3EF0B
 ```bash
 magnet:?xt=urn:btih:FD5FAD32EB014170C33436FF86349246D704BE6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Kim Carnes - Barking At Airplanes (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip
 magnet:?xt=urn:btih:33F2D73C8105AB49777FA2DB41F1DEDDD619A1B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:33F2D73C8105AB49777FA2DB41F1DEDDD619A1B9
 ```bash
 magnet:?xt=urn:btih:66727D93E1122020CD0B0086A8D3B292A90802BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 magnet:?xt=urn:btih:641BEC8D8E562347EFB3C9A9359C8CC33C94D106
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:641BEC8D8E562347EFB3C9A9359C8CC33C94D106
 ```bash
 magnet:?xt=urn:btih:4FC57A4B5F18828CBD1DA35433D0A278EC3D1C80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:4FC57A4B5F18828CBD1DA35433D0A278EC3D1C80
 magnet:?xt=urn:btih:B11A75295CF2F3A230ADF5226F70675F06CEE2FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:B11A75295CF2F3A230ADF5226F70675F06CEE2FF
 ```bash
 magnet:?xt=urn:btih:2BA4FC6ECB243C4ED352FC36DA373FB9394B461C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:2BA4FC6ECB243C4ED352FC36DA373FB9394B461C
 magnet:?xt=urn:btih:ABFF1E8EF728AB55AE138FC8E63D4925FEB0F6FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:ABFF1E8EF728AB55AE138FC8E63D4925FEB0F6FD
 ```bash
 magnet:?xt=urn:btih:D537A04D3E9555AA3D73187368AD3C142482801B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:D537A04D3E9555AA3D73187368AD3C142482801B
 magnet:?xt=urn:btih:BAEC4F50968DAF019F0A3D289BC74C6BEF3F492D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:BAEC4F50968DAF019F0A3D289BC74C6BEF3F492D
 ```bash
 magnet:?xt=urn:btih:0F2D0A868DFB740819AD32880EBB5164A4042B4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Windows 10 v22H2 19045.2846 и Windows 10 Корпоративная LTSC v21H2 
 magnet:?xt=urn:btih:1720747DEEE2C6AC4B045FE1A117593EC38B2016
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Tiny Tina's Wonderlands (2022) [Ru/Multi] (10922058/dlc) Repack DjDI [Chaotic Gr
 ```bash
 magnet:?xt=urn:btih:ACCA20DABDA663A20185FAF5A8DA14C676A83018
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:ACCA20DABDA663A20185FAF5A8DA14C676A83018
 magnet:?xt=urn:btih:87367E115A7957AD69FD666B72686385EE87FB30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:87367E115A7957AD69FD666B72686385EE87FB30
 ```bash
 magnet:?xt=urn:btih:D173EF3956382F82B0F4BB81D2210BE2A7A62588
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:D173EF3956382F82B0F4BB81D2210BE2A7A62588
 magnet:?xt=urn:btih:BF7A1BBD5ED7F3CFB71DA817BA0EA9616ADD52BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Mokoko X (2023) [Ru/Multi] (1.03/dlc) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:AACBAE8D8C7C4EAA562AB3CB089DB9C26384D970
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:AACBAE8D8C7C4EAA562AB3CB089DB9C26384D970
 magnet:?xt=urn:btih:48EAABA1337C03DEEF5CDD1908C208D65F6C35D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Square Enix и Tri-Ace представляют последнюю часть с
 ```bash
 magnet:?xt=urn:btih:EDC7C6E4172B79E04A25BF657E75365AC9367F40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:EDC7C6E4172B79E04A25BF657E75365AC9367F40
 magnet:?xt=urn:btih:88F8623197EF0E9BAC1CB003D85328B5FC52EE96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:88F8623197EF0E9BAC1CB003D85328B5FC52EE96
 ```bash
 magnet:?xt=urn:btih:A71D018A68B520D2B1E555AB84B8A3C417D1ED5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:A71D018A68B520D2B1E555AB84B8A3C417D1ED5C
 magnet:?xt=urn:btih:D2F74825354A74DCF93467655125FCC0A91FCF84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:D2F74825354A74DCF93467655125FCC0A91FCF84
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:D2F74825354A74DCF93467655125FCC0A91FCF84
 magnet:?xt=urn:btih:ABA87075B204648888A4E28E8146606ECA430013
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:ABA87075B204648888A4E28E8146606ECA430013
 ```bash
 magnet:?xt=urn:btih:2690A9C3974868595C4EE2F5CFE6F8CA3CC9B802
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

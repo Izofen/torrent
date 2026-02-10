@@ -1,27 +1,3 @@
-###  Публикация: 1361118   (956601) от 18.02.2020
-
-Полный расколбас / Sausage Party (2016) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая анимационная комедия для взрослых о невероятных приключениях еды из супермаркета. Съедобным друзьям предстоит получить ответ на главный вопрос: есть ли жизнь за стенами супермаркета, и что же происходит с продуктами после того, как они попадают к людям домой?Производство: США / Annapurna Pictures, Columbia Pictures, Point Grey PicturesЖанр: мультфильм, фэнтези, комедия, приключенияРежиссер: Грег Тирнан, Конрад ВернонПеревод: Дублированный, авторскийСубтитры: русские, английскиеПродолжительность: 01:28:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E1C20E4A8D3E95EDCE67C5773475BC0B44D9F0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1361290   (956608) от 18.02.2020
 
 Корпорация монстров / Monsters, Inc. (2001) BDRip [H.265/1080p] [10-bit] [Локализованная версия]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:0E1C20E4A8D3E95EDCE67C5773475BC0B44D9F0C
 ```bash
 magnet:?xt=urn:btih:5B5C7A9A3BA5DCE36B1DF39924935B996F922EB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:5B5C7A9A3BA5DCE36B1DF39924935B996F922EB9
 magnet:?xt=urn:btih:037457B47801E667EE41976192304D726D3C80D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:037457B47801E667EE41976192304D726D3C80D4
 ```bash
 magnet:?xt=urn:btih:B9D0834D91F5277ED1BA9D71E716524EACFCE121
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:B9D0834D91F5277ED1BA9D71E716524EACFCE121
 magnet:?xt=urn:btih:BEC1680AF46994167DCA2AA18C1C67255ACA23E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:BEC1680AF46994167DCA2AA18C1C67255ACA23E2
 ```bash
 magnet:?xt=urn:btih:F68F75069F65DFBB4B728429367042EC7E5E3E7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:F68F75069F65DFBB4B728429367042EC7E5E3E7E
 magnet:?xt=urn:btih:2A5811796D67C5BB80A4FBD5984F6418068A8D59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:2A5811796D67C5BB80A4FBD5984F6418068A8D59
 ```bash
 magnet:?xt=urn:btih:E3D102BA54659C6E1EDB05AAF2D7FD6CB122FC2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:E3D102BA54659C6E1EDB05AAF2D7FD6CB122FC2E
 magnet:?xt=urn:btih:F7492634FF666DB299E405296732246E93E46225
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ magnet:?xt=urn:btih:F7492634FF666DB299E405296732246E93E46225
 ```bash
 magnet:?xt=urn:btih:3C6E16DC3C24CFCAC57C1937B3A6FC01E348F127
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:3C6E16DC3C24CFCAC57C1937B3A6FC01E348F127
 magnet:?xt=urn:btih:39619FDC627569836FF0D4B2E894AA8AC6EA3E54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ magnet:?xt=urn:btih:39619FDC627569836FF0D4B2E894AA8AC6EA3E54
 ```bash
 magnet:?xt=urn:btih:5738BE8361083F5FBB90FDC938F3B52305B65E9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:5738BE8361083F5FBB90FDC938F3B52305B65E9D
 magnet:?xt=urn:btih:F7B25EE19BE37CC4F66A15F656E7F0C623F987E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ magnet:?xt=urn:btih:F7B25EE19BE37CC4F66A15F656E7F0C623F987E3
 ```bash
 magnet:?xt=urn:btih:5E9D74E66502C707E13268F566BCE643DDD3F61F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +359,8 @@ magnet:?xt=urn:btih:5E9D74E66502C707E13268F566BCE643DDD3F61F
 magnet:?xt=urn:btih:BDCFCBD3589AB439F62D2AE1EAC10A752C9DDAF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +384,8 @@ magnet:?xt=urn:btih:BDCFCBD3589AB439F62D2AE1EAC10A752C9DDAF2
 ```bash
 magnet:?xt=urn:btih:6BE324CAC7EEAFAA9E9922729BC6A42516D8F566
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +411,8 @@ magnet:?xt=urn:btih:6BE324CAC7EEAFAA9E9922729BC6A42516D8F566
 magnet:?xt=urn:btih:923AC52FD6CE463D698DBA3CB052F6A4AFC16A56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +436,8 @@ magnet:?xt=urn:btih:923AC52FD6CE463D698DBA3CB052F6A4AFC16A56
 ```bash
 magnet:?xt=urn:btih:49466FF0E75D97600A70146D739CEBB556B3B6F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +463,8 @@ magnet:?xt=urn:btih:49466FF0E75D97600A70146D739CEBB556B3B6F2
 magnet:?xt=urn:btih:4F58598414C3FF7DD19E023962D695313ADDA19D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +488,8 @@ magnet:?xt=urn:btih:4F58598414C3FF7DD19E023962D695313ADDA19D
 ```bash
 magnet:?xt=urn:btih:BECD79BA481E2047046B3E23591DEF2D9CE2B9C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +515,8 @@ magnet:?xt=urn:btih:BECD79BA481E2047046B3E23591DEF2D9CE2B9C1
 magnet:?xt=urn:btih:D1182AAEED640B88FAA649A27E67B4326886B856
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +540,8 @@ magnet:?xt=urn:btih:D1182AAEED640B88FAA649A27E67B4326886B856
 ```bash
 magnet:?xt=urn:btih:9E9A81C5C2E297B6FFDDADFC9764A5107C7FEA74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +567,8 @@ magnet:?xt=urn:btih:9E9A81C5C2E297B6FFDDADFC9764A5107C7FEA74
 magnet:?xt=urn:btih:B939860CFC5D236E44819CE98D8CA89AF7BA0D7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +592,8 @@ magnet:?xt=urn:btih:B939860CFC5D236E44819CE98D8CA89AF7BA0D7D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +619,8 @@ magnet:?xt=urn:btih:B939860CFC5D236E44819CE98D8CA89AF7BA0D7D
 magnet:?xt=urn:btih:45E496FC2629A511D15E063B7E4DB76F4AEE8839
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +644,35 @@ magnet:?xt=urn:btih:45E496FC2629A511D15E063B7E4DB76F4AEE8839
 ```bash
 magnet:?xt=urn:btih:BEBC45D586B3F06B0DB7DAD6DB2BFD260A4DF1C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 620767   (961194) от 21.02.2013
+
+Уоллес и Громит [Полное коллекционное издание] / Wallace & Gromit [The Complete Collection] (2009) [1080p] Blu-Ray
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961194.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Великий выходной"
+Вот незадача - у Уоллеса закончился сыр. В поисках своего любимого лакомства неугомонный изобретатель решает отправиться на Луну. Уоллес хочет узнать - не сделана ли Луна из этого чудесного продукта. Для этого Уоллес смастерил ракету. Придется и Громиту лететь. Ведь должен же кто-то присмотреть за этим непоседой Уоллесом.Жанр: Пластилиновая анимацияРежиссер: Ник Парк (Nick Park)Перевод: Многоголосый закадровыйСубтитры: английскиеФормат: BDMVПродолжительность: 01:55:56 (основные мультики)+00:44:48 (допы)+00:25:21(бонусы из короткометражек)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AA719C9FBD5EE2AFB88137394C33C50B1EBB2D5
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

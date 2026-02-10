@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:16B93ACE1604EF997435EB8521E873027C15BAC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Udemy, Maximilian Schwarzmüller | Angular - Полное Руководство
 ```bash
 magnet:?xt=urn:btih:061410172DC38FBAC7373CBD75F44786F99010F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ Blender Fundamentals Vol. 3 - Texturing and Shading - текстурирован
 magnet:?xt=urn:btih:1BCF168AF256811FE6F8D2A9A96E9AC8281F259A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:1BCF168AF256811FE6F8D2A9A96E9AC8281F259A
 ```bash
 magnet:?xt=urn:btih:0652FCB45BFA44BE123A41539FFBCE01B51548D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Udemy, Development Island (UK) | The Complete 2020 Web Development Course - Buil
 ```bash
 magnet:?xt=urn:btih:B2AB0748FD4696990C3784576FAA2E9CA928DC6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:B2AB0748FD4696990C3784576FAA2E9CA928DC6D
 magnet:?xt=urn:btih:A59835EFAE213AA02AF3E35F5BBA4099C29A4060
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ CG Cookie, Chunck Trafagander | Давайте создадим снеговик
 ```bash
 magnet:?xt=urn:btih:7B0BF87DC98D783C71F0D4A40E0AF70858B779EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:7B0BF87DC98D783C71F0D4A40E0AF70858B779EC
 magnet:?xt=urn:btih:73271184A20C4DF659C1C061C11948A01A64A4BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:73271184A20C4DF659C1C061C11948A01A64A4BC
 ```bash
 magnet:?xt=urn:btih:D8CA819E36BCC703B7B591C5EEDF3958FF83DD32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ Digital Business: Start. Пакет VIP (2017) Видеокурс
 magnet:?xt=urn:btih:87FA48BCC2B529F5A7D92434590EF96942D77AF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:87FA48BCC2B529F5A7D92434590EF96942D77AF4
 ```bash
 magnet:?xt=urn:btih:8604CC2178C688F91412DA28AD96551F36957949
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ Masterclass | Кевин Спейси учит актерскому мастер
 magnet:?xt=urn:btih:05E33C5B8C4C10B294232BADDE68AB941D3F4EBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ Chess.com | Achieving Full Board Awareness and Nirvana / Шахматы всле
 magnet:?xt=urn:btih:29535ED4B49AC255DD331C139C68402F247C7AF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ Bravo Chef! Суши, роллы и сашими [2012] DVDRip
 ```bash
 magnet:?xt=urn:btih:B55AD588CA5A0B0495DBB6AAC4BFF701B47ECD95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +405,8 @@ Laravel стал одним из самых популярных, если не 
 magnet:?xt=urn:btih:EC16782D22E51FA2E3E5637CA6F5E9057E28E830
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ Udemy, Edwin Diaz и др. | PHP for Beginners - Become a PHP Master - CMS Proje
 magnet:?xt=urn:btih:B5B0A37E8A5D417F1A787C0FD019D3EEDB195482
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ Nicolas Garilhe | Armor Creation in ZBrush (2015) PCRec
 ```bash
 magnet:?xt=urn:btih:6B22BABB481903E1370FB62317142EC819D16A8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ magnet:?xt=urn:btih:6B22BABB481903E1370FB62317142EC819D16A8E
 magnet:?xt=urn:btih:C19A3EE8E1E23EB4C9677DE8EF46FEF4FB8832BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +512,8 @@ Delano Athias | Getting Started with MEL in Maya (2014) PCRec
 ```bash
 magnet:?xt=urn:btih:95C6FB6AAE8F7B7988BA573A6F531CC660A67F82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +541,8 @@ magnet:?xt=urn:btih:95C6FB6AAE8F7B7988BA573A6F531CC660A67F82
 magnet:?xt=urn:btih:B6547FE720F38F1291F9DB794020DA7036DFB864
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +567,8 @@ magnet:?xt=urn:btih:B6547FE720F38F1291F9DB794020DA7036DFB864
 ```bash
 magnet:?xt=urn:btih:9DEEE2C06BC3E993F79C3A661A09D7FCF40E6DBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +597,8 @@ magnet:?xt=urn:btih:9DEEE2C06BC3E993F79C3A661A09D7FCF40E6DBC
 magnet:?xt=urn:btih:D334A2768DE2962D7353A5E8AC768D6E2128CB45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +624,8 @@ magnet:?xt=urn:btih:D334A2768DE2962D7353A5E8AC768D6E2128CB45
 magnet:?xt=urn:btih:9112E51B7B0684BD262A9B388BDC6794EB22BB13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ magnet:?xt=urn:btih:9112E51B7B0684BD262A9B388BDC6794EB22BB13
 ```bash
 magnet:?xt=urn:btih:F0B2005609645738FFF925BE8A1F7E3D38685943
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +679,8 @@ magnet:?xt=urn:btih:F0B2005609645738FFF925BE8A1F7E3D38685943
 magnet:?xt=urn:btih:E3C86111AFBB7A2A70692E1892475C6E43802040
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +707,8 @@ Udemy, Srinivas Vanamala | The Complete 2020 PHP Full Stack Web Developer Bootca
 ```bash
 magnet:?xt=urn:btih:61D5A6DAAA0C7264652F36D0FA580065C24C25A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

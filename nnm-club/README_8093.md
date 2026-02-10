@@ -22,6 +22,8 @@ VA - Vibes Of Lounge Remixes 2020 Session (2020) [AAC|~332 Kbps] <Lounge, Chill 
 magnet:?xt=urn:btih:C4846A01C0B1D66AE87F20DCAA1229A7A5483430
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:C4846A01C0B1D66AE87F20DCAA1229A7A5483430
 magnet:?xt=urn:btih:F8A366F82CC53AC6DE6D57C9E66567981C3E3834
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:F8A366F82CC53AC6DE6D57C9E66567981C3E3834
 ```bash
 magnet:?xt=urn:btih:BA757168A218C0BF283A1F7C378E1E981C18B021
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Charles Mingus - Jazz Composers Workshop (1954, 1955) 1992, Savoy Jazz [FLAC|Los
 magnet:?xt=urn:btih:7100B4387379065F9D333C2D4764FF190F2DA196
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ Arjen Lucassen's Supersonic Revolution - Golden Age Of Music (2023) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:3009376D275C5656CFA7410E7DDC4CCB3E1448E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ VA - Immersive Landscapes (2022) [AAC|~308 Kbps] <Lounge, Chill Out, Downtempo>
 magnet:?xt=urn:btih:2BF8540867EB8ABB508D600E6EFEB08DC5277B20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ Angellore - Premieres Liturgies - Soupirs D'Aurore (2012) Compilation, Limited E
 magnet:?xt=urn:btih:513E6DC22BF33B5411E9599F76FA07AA6514268A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ TweakPower – представляет собой единый графичес
 magnet:?xt=urn:btih:732F7B75B1465F82F9362B9F4CFCFF31C769ADA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:732F7B75B1465F82F9362B9F4CFCFF31C769ADA7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ A4  Наваждение 3:32(   Читать дальше...   )Жанр: Ambie
 magnet:?xt=urn:btih:4A9514D5598BBA53B05794638FFB68692CA58A6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ BELOFF [dp] 2022.04.1
 ```bash
 magnet:?xt=urn:btih:4A6F94F58E88E17827AC6EB10D42EED42770CF0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -306,6 +328,8 @@ Esse - Letanias al Verdugo (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black M
 magnet:?xt=urn:btih:60FAE865CB3080DD01CCC50F6FD64F3F728801A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +357,8 @@ VA - Vibes Of Lounge Remixes 2019 Session (2019) [AAC|~322 Kbps] <Lounge, Chill 
 magnet:?xt=urn:btih:30BA79D8A387C44350D384844A1D26B2000798DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +382,8 @@ magnet:?xt=urn:btih:30BA79D8A387C44350D384844A1D26B2000798DF
 ```bash
 magnet:?xt=urn:btih:B9503E4B3672F48C374F5CB24BE645F2E71A5D86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +409,8 @@ magnet:?xt=urn:btih:B9503E4B3672F48C374F5CB24BE645F2E71A5D86
 magnet:?xt=urn:btih:738DABB43818F8041914DA33BB5D5038ED2FDB4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +434,8 @@ magnet:?xt=urn:btih:738DABB43818F8041914DA33BB5D5038ED2FDB4A
 ```bash
 magnet:?xt=urn:btih:C294F80013B9B4F66246D98FEE6E5E5C0C90EF62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +461,8 @@ magnet:?xt=urn:btih:C294F80013B9B4F66246D98FEE6E5E5C0C90EF62
 magnet:?xt=urn:btih:4B54AE811FDF2F80988C7994AE3867D818FD33AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ magnet:?xt=urn:btih:4B54AE811FDF2F80988C7994AE3867D818FD33AE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +512,8 @@ magnet:?xt=urn:btih:4B54AE811FDF2F80988C7994AE3867D818FD33AE
 ```bash
 magnet:?xt=urn:btih:E19AFC57721C859F79666598A5A47D34100739E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +542,8 @@ Esoctrilihum - Consecration of the Spiritus Flesh (2022) [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:EFF4287457A2B6A4CD3286EA1BB4256BA70C3B7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +569,8 @@ magnet:?xt=urn:btih:EFF4287457A2B6A4CD3286EA1BB4256BA70C3B7B
 ```bash
 magnet:?xt=urn:btih:8EF435EE11BAE607ED85ED67D128363F0EDBAA95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +599,8 @@ Jason Bieler And The Baron Von Bielski Orchestra - Postcards from the Asylum (20
 magnet:?xt=urn:btih:7862076949F5DA2926909A56433DA85BC43C0347
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ magnet:?xt=urn:btih:7862076949F5DA2926909A56433DA85BC43C0347
 magnet:?xt=urn:btih:05DCA0979EC2A1A56580DFB7A1AEA05B60273390
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ Artstudio Pro 4.0.9 [En]
 ```bash
 magnet:?xt=urn:btih:1EB223F5352F39853535C130C2834044FBA73E65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +678,8 @@ BusyCal - программа на Mac OS X, которая поможет вам
 magnet:?xt=urn:btih:2286DCC1AE2BABC927FCDA31215CD57989823AE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ magnet:?xt=urn:btih:2286DCC1AE2BABC927FCDA31215CD57989823AE9
 ```bash
 magnet:?xt=urn:btih:F863C8EC17C637A2DB0F2449E1FF92EB5BBB1706
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

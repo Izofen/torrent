@@ -22,6 +22,8 @@ The Power Quintet - High Art (2016) HighNote [FLAC|Lossless|tracks + .cue] <Post
 magnet:?xt=urn:btih:1993CA63539ED7CFA90B4FE7A372A422F33CA340
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:1993CA63539ED7CFA90B4FE7A372A422F33CA340
 ```bash
 magnet:?xt=urn:btih:32D33AAE21EDACB90B03EF86B93B641B8734F6DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ NF - The Search (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:34EF3BCD8D8A10343EDD849F677276BFA1F31D78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:34EF3BCD8D8A10343EDD849F677276BFA1F31D78
 ```bash
 magnet:?xt=urn:btih:5AD976251B9C4DF74C93C3684BAE99553718307F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:5AD976251B9C4DF74C93C3684BAE99553718307F
 magnet:?xt=urn:btih:88C43EA3CCD171AB36F7903B5249664E8E1CBECA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:88C43EA3CCD171AB36F7903B5249664E8E1CBECA
 ```bash
 magnet:?xt=urn:btih:CA51188C5BAFEE1C46689D16E1D5058B0583FC67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ Circus Of Dead Squirrels - Operation Satan (2010) [FLAC|Lossless]<Industrial Met
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ Circus Of Dead Squirrels - Operation Satan (2010) [FLAC|Lossless]<Industrial Met
 magnet:?xt=urn:btih:E2306438AF58AC8F7A4B45ABDE1D0FFC6CA8E4F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ magnet:?xt=urn:btih:E2306438AF58AC8F7A4B45ABDE1D0FFC6CA8E4F7
 ```bash
 magnet:?xt=urn:btih:A8D2FD3BF2CA12578984A91185ED9B8411DD0B8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +274,8 @@ Morpheus - Духи Чумы (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Bla
 magnet:?xt=urn:btih:BA398527868F4648612B3A891424F99F80D3D381
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +303,8 @@ Frank Beard - ударныеПродолжительность: 01:25:36
 magnet:?xt=urn:btih:8D21CCDEA5246079790CA7D9A88016CFBB876495
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +329,8 @@ magnet:?xt=urn:btih:8D21CCDEA5246079790CA7D9A88016CFBB876495
 magnet:?xt=urn:btih:44ACE2C6E4773832879731FC27334A7CC8700B52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +354,8 @@ magnet:?xt=urn:btih:44ACE2C6E4773832879731FC27334A7CC8700B52
 ```bash
 magnet:?xt=urn:btih:182164A2897523F210C0B521F31A28BB2565D0CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +384,8 @@ magnet:?xt=urn:btih:182164A2897523F210C0B521F31A28BB2565D0CB
 magnet:?xt=urn:btih:DD535381B46CFAC1BCAA08E0FC95D31C5D36B671
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +410,8 @@ magnet:?xt=urn:btih:DD535381B46CFAC1BCAA08E0FC95D31C5D36B671
 magnet:?xt=urn:btih:FA3E5339ADB0E001994E4338E5D85E18D9AB69C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +435,8 @@ magnet:?xt=urn:btih:FA3E5339ADB0E001994E4338E5D85E18D9AB69C2
 ```bash
 magnet:?xt=urn:btih:52E5EBC89707A9C7C758BC6A8290B30BD33C110C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +465,8 @@ Paul Simon - Greatest Hits - Shining Like A National Guitar (2000) [FLAC|Lossles
 magnet:?xt=urn:btih:E297A93551A31E987AD096A92A6505A3FB4441E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +490,8 @@ magnet:?xt=urn:btih:E297A93551A31E987AD096A92A6505A3FB4441E1
 ```bash
 magnet:?xt=urn:btih:AC186CD9393570EB9D01C8FFDC26F1DBCA0DBAE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +520,8 @@ Chris Rea - Hofner Blue Notes (2003) Reissue 2019 [FLAC|Lossless|tracks + .cue] 
 magnet:?xt=urn:btih:1A651E15D42FAB096C5606DBC0705712583430DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +547,8 @@ magnet:?xt=urn:btih:1A651E15D42FAB096C5606DBC0705712583430DD
 magnet:?xt=urn:btih:F883D4D7C32D7DEB7BC54B644C2A4A3696CCDB4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ magnet:?xt=urn:btih:F883D4D7C32D7DEB7BC54B644C2A4A3696CCDB4F
 ```bash
 magnet:?xt=urn:btih:088A9BCE0B8D0F4DA2A3545ADC788209F83C0DBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +599,8 @@ magnet:?xt=urn:btih:088A9BCE0B8D0F4DA2A3545ADC788209F83C0DBC
 magnet:?xt=urn:btih:5F4A7A6740A8021F215BFC270FCF9565E26BFED1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ Ultra Adware Killer 4.6.0.0 [En]
 magnet:?xt=urn:btih:C6E6DDED7CD47155F4CB527125EFFCB824277A26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ magnet:?xt=urn:btih:C6E6DDED7CD47155F4CB527125EFFCB824277A26
 ```bash
 magnet:?xt=urn:btih:D50D93F3AFF117B048F8D2FDE02B7E9EE82552B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +680,8 @@ VA - 538 Hitzone: Best Of 2019 (2019) Box Set, 2CD [FLAC|Lossless|tracks + .cue]
 magnet:?xt=urn:btih:9FF6428AE81DA948A3EF667991C54F5E646BAF31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +708,8 @@ Amarionette - Gemini (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Progre
 ```bash
 magnet:?xt=urn:btih:A3E52EBD64AC2229E36C8954E78B9DB99120D6A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

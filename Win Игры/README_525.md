@@ -1,27 +1,3 @@
-###  Публикация: 986303   (931584) от 13.02.2016
-
-Subject 13 (2015) [Ru/Multi] (1.2) Repack R.G. Механики
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Subject 13 – классическая приключенческая игра, которая отправит вас в мир, полный загадок и странных механизмов. Главным героем повествования выступает профессор физики Франклин Фарго, который после трагической смерти невесты отдалился от общества. Однажды утром он просыпается не у себя дома, а посреди заброшенной научной лаборатории. Все, что теперь связывает профессора (   Читать дальше...   )Тип издания: RepackРазработчик: Paul Cuisset, MicroidsЖанр: Adventure, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76A5A95002A996377691E2338EB755AE242E9746
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 985938   (931588) от 13.02.2016
 
 Brave: The Video Game / Храбрая сердцем (2012) [Ru/Multi] (1.0.0.3) SteamRip Let'sРlay
@@ -42,6 +18,8 @@ Brave: The Video Game / Храбрая сердцем (2012) [Ru/Multi] (1.0.0.3
 ```bash
 magnet:?xt=urn:btih:0405524A5EFCC59398E279D2FEC735CD2F48DD59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Fantastic Fishing – бесплатный, виртуальный онлайн 
 magnet:?xt=urn:btih:0D2A4C2F76B240780BB0A7EE76E7AF5C9294CBBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ F.E.A.R. 3 (2011) [Ru/Multi] (16.0.20.1060) License PROPHET
 ```bash
 magnet:?xt=urn:btih:7C3DFB6AF52DBE57FEE772C1F306E62451AE2C8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Subject 13 (2015) [Ru/Multi] (1.2) SteamRip  Let'sРlay
 magnet:?xt=urn:btih:E28B736C7109CB9B67B4338EA7120669FBDE609F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Mystery Trackers 12: Queen Of Hearts / Охотники за тайнами 12: 
 ```bash
 magnet:?xt=urn:btih:B04CC08A5DE6C719BC1DA8E65AFA4CFC4C3DF221
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Legend of Merchant – симулятор торговца небольшой л
 magnet:?xt=urn:btih:F1F0227B418C0C161023A587636ABFF35E31FB95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Professional Farmer 2017 (2016) [Multi] (1.3) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:6A92C784A00C28817FBB701716E7AE91A70B16E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Mindframe: The Secret Design (2020) [En] (1.0) Unofficial [Collector's Edition]
 magnet:?xt=urn:btih:37E733F31E74419EF0F7DB3A88DD44B445533A2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ Rite of Passage 5: Heart of the Storm (2016) [En] Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:14F07D1181B8DBDA3C607DCB343CAD5CA0BBC4F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ Reflections of Life 3: Dark Architect (2016) [En] Unofficial [Collector's Editio
 magnet:?xt=urn:btih:027BF25BC5060990861BC05E0B0B420C70842E1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ Parallels Cross (2016) [En] (1.0.0c) Unofficial
 ```bash
 magnet:?xt=urn:btih:EBDC65562AF431488F69C39B16E1B4667FE77109
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ Weakless – красивая 3D-головоломка с невероятны�
 magnet:?xt=urn:btih:C7F88E268155B2FC187CAB5523EC273EFC93A4EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ Rise & Shine совмещает в себе аркадный шутер с ис�
 ```bash
 magnet:?xt=urn:btih:E69823D24BC049416EE442C67ED4FA7D6FA9043B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ Disney Infinity 3.0 Edition - это аркадная песочница, пос
 magnet:?xt=urn:btih:D1754D51C467F14D9B4CBBB9B81BC7B04EE81F53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ The Admin - совсем не динамичный шутер от третье�
 ```bash
 magnet:?xt=urn:btih:9DCC568BE85AA5821A65460E23F375DEE3F73FC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ Toricky (2017) [Ru/Multi] (1.0) License PLAZA
 magnet:?xt=urn:btih:349075E39C9355618B7D474C8F68B4EABDAC34FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ Skyhill – игра на выживание, главным героем кот
 ```bash
 magnet:?xt=urn:btih:9266BCB40DE290D65E4946595488CF8213A744D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ Agent Walker: Secret Journey / Агент Уолкер: Таинственное
 magnet:?xt=urn:btih:78195FDD66618EEC262CC7E266CB69F7239FF9A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ Endless Fables: The Minotaur's Curse / Сказки без конца: Прок�
 ```bash
 magnet:?xt=urn:btih:B6495A4FC5EF1C9DE7D665DFBA62DA2F5EECB157
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ Season Match 2 / Времена года 2 (2008) [Ru] (1.0) Unofficial
 magnet:?xt=urn:btih:02E8416039138433A9CE76CF22FEC0E451B2219B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ DmC: Devil May Cry [Ru] (Repack/1.0u2/4 DLC) 2013 | Fenixx
 ```bash
 magnet:?xt=urn:btih:AD644F96C0F0004F9D41BC23FDB005AA041EDBC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +566,8 @@ Worms Revolution + 4 DLC [Ru/En/Multi8] (Repack/0124) 2012 | R.G. Origami
 ```bash
 magnet:?xt=urn:btih:1E73ABC4A85DB144FEDB199DAF7A9041D0AA8348
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +596,8 @@ TВьетнамская война — один из самых неоднозн
 magnet:?xt=urn:btih:F58FEA8F04DD9AE565DDA8BED764283A20A24D87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +622,8 @@ Virtual Families 2 – Our Dream House (2013) [En] Unofficial
 magnet:?xt=urn:btih:F4E4CE0DAA2AAD517615E3E4B8AD4BE72854C01E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +647,34 @@ Strange Discoveries: Aurora Peak / Странные открытия: Пик А�
 ```bash
 magnet:?xt=urn:btih:B97BE7F332E741A15F9B0B1394776F85A99C955D
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 175913   (934523) от 18.02.2010
+
+Звездные волки 2: Гражданская война (L) [Ru] 2009
+
+>>Win Игры
+>>Patch/Tweak/Trainer/Other для Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_934523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Strategy (Real-time / Tactical) / 3D
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

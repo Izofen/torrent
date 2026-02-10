@@ -19,6 +19,8 @@ Chi. Chikyuu no Undou ni Tsuite | Orb: On the Movements of the Earth | О дви
 magnet:?xt=urn:btih:A63C0901D31790A9164FE626A020C6E6848C941B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Oshi no Ko 2 | Ребёнок идола | Звёздное дитя [ТВ-2] [2
 magnet:?xt=urn:btih:4F8C868E58C55AC436E5A43FBC2964B0A11A5C3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Ares изображает альтернативный канон после с�
 ```bash
 magnet:?xt=urn:btih:29C96F522C8868EF6A1B66B86B57F6B3141CA4ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:29C96F522C8868EF6A1B66B86B57F6B3141CA4ED
 magnet:?xt=urn:btih:94B8E0EDEB52A9B2939A553C50B515A1D855D460
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Inazuma Eleven GO | Одиннадцать молний: Только вперё
 ```bash
 magnet:?xt=urn:btih:4BEAB3A839A82B22EB22683C5E6EECFE7997B242
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Houkago Shounen Hanako-kun | After-School Hanako-kun | Ханако после �
 magnet:?xt=urn:btih:7F38DF1C2B8CE5619B89F2C248287816DE2A6A14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Houkago Shounen Hanako-kun II | After-School Hanako-kun II | Ханако пос
 ```bash
 magnet:?xt=urn:btih:270996B755A343CEE59699354D968B3324CFE765
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Kono Subarashii Sekai ni Shukufuku wo! 3 Bonus Stage | Да благословя
 magnet:?xt=urn:btih:DC9E0FEDC46486F0A8E9A7AEE122BADD070CAE5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:DC9E0FEDC46486F0A8E9A7AEE122BADD070CAE5E
 ```bash
 magnet:?xt=urn:btih:3D95626B19F157FE145FB15B262FF384DB9C0CB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Super Lovers | Больше, чем возлюбленные [2016, TV, 10 из 
 magnet:?xt=urn:btih:7CA01836A7817144D3100B832A0996012C8D019F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:7CA01836A7817144D3100B832A0996012C8D019F
 ```bash
 magnet:?xt=urn:btih:6020371DB0B7F57517AD5CFC209E6C7FE9D2B2C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:6020371DB0B7F57517AD5CFC209E6C7FE9D2B2C0
 magnet:?xt=urn:btih:2A0885EB28C211E4E348C6C2E51B41F367BE79D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ NieR:Automata Ver1.1a 2 | Ниер: Автомата [ТВ-2] [2024, TV, 12 из
 magnet:?xt=urn:btih:9CF0A7B1343899A6F1E540339C30BC3120D00F55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:9CF0A7B1343899A6F1E540339C30BC3120D00F55
 ```bash
 magnet:?xt=urn:btih:68C67BBDB59F3E8B55291FB879DA60EC14AD80F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:68C67BBDB59F3E8B55291FB879DA60EC14AD80F9
 magnet:?xt=urn:btih:4FF969FB39FCB6014FD8C6B9139A2D3C98365EA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Nageki no Bourei wa Intai Shitai | Let This Grieving Soul Retire! | Плачущ
 ```bash
 magnet:?xt=urn:btih:F510045FC8C03F98AEE4D9127A7167717CF49A8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Re:Zero kara Hajimeru Isekai Seikatsu 3 | Жизнь в альтернативн
 magnet:?xt=urn:btih:DD25B6FBF2D1CFB64C0BB703B6BE444E9277B8E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Ore dake Level Up na Ken: Arise from the Shadow | Solo Leveling: Arise from the 
 ```bash
 magnet:?xt=urn:btih:4F68687E8550B191E397A24E071278675E7B04BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:4F68687E8550B191E397A24E071278675E7B04BF
 magnet:?xt=urn:btih:27CECACBAFFEEE3F4CFD101D637190CC51BBD069
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ Arafou Otoko no Isekai Tsuuhan | The Daily Life of a Middle-Aged Online Shopper 
 ```bash
 magnet:?xt=urn:btih:EDE2A1D95D3084126F9EBE58D6BBC86B3BF6928F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ Juusenki L-Gaim | Heavy Metal L-Gaim | Тяжёлая артиллерия Л-Г
 magnet:?xt=urn:btih:25462E739AD02ECD2142D6C627499B6E96CE535B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Kimi no Koto ga Dai Dai Dai Dai Daisuki na 100 Nin no Kanojo 2 | Сто деву
 magnet:?xt=urn:btih:DC9F91217906BD97B9FA1C99DD26504C75970F2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Tearmoon Teikoku Monogatari: Dantoudai kara Hajimaru, Hime no Tensei Gyakuten St
 ```bash
 magnet:?xt=urn:btih:D120B57DD277BFF1CC3C27E851B844FEAF1BD2D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:D120B57DD277BFF1CC3C27E851B844FEAF1BD2D6
 magnet:?xt=urn:btih:D696428915823E102C39D15D225BF71CAFACAFB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Youkai Gakkou no Sensei Hajimemashita! | A Terrified Teacher at Ghoul School! | 
 magnet:?xt=urn:btih:14B8279012D9BC022E6E9CF7758C0555D00441F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Sentai Red Isekai de Boukensha ni Naru | Крaсный рeйнджeр стaнoв
 ```bash
 magnet:?xt=urn:btih:5B2FD066AE7AA9AFD2284D258BBF4EB76D11AA05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

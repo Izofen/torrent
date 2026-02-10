@@ -19,6 +19,8 @@ Sonic Dash 2 - невероятное продолжение ранее попу
 magnet:?xt=urn:btih:7AA5AFFC5888CAEA672EB142B44C2AEA922DAB12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Play Magnus — проверь свои шахматные навыки в пр�
 ```bash
 magnet:?xt=urn:btih:FAA10368A7CD460D90EB5AEBAEB91DA0ECA8A81B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:FAA10368A7CD460D90EB5AEBAEB91DA0ECA8A81B
 magnet:?xt=urn:btih:CEEAF7C04119C5CB83E5FD92C4FD4B35916E568F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Piano Kids - Music & Songs - познавательно-развлекатель
 ```bash
 magnet:?xt=urn:btih:730BE5D256B22DD30213CCE0329AA937846CE791
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ SKETCHAR это новая ступень развития для креатор
 magnet:?xt=urn:btih:81BF9BF091BC2C5A6126065AF2E4F26060ADC747
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Resize Me! v2.01.2 [Ru/Multi] - изменение размера изображ
 ```bash
 magnet:?xt=urn:btih:9B2124C4744DFB67265B49CA4E7CFBB450FEF210
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:9B2124C4744DFB67265B49CA4E7CFBB450FEF210
 magnet:?xt=urn:btih:B55AAE17D9247202A6A6A45A7853C5654010068C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ AirReceiver - это универсальный сервер ChromeCast, AirPlay
 ```bash
 magnet:?xt=urn:btih:2D898BD6C8E73EFA53FEB50CF22DFE50043093EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Bubble Shooter Royal Pop / Шарики Игры Королевские v2.3.2.2
 magnet:?xt=urn:btih:87A6E6BD9A4E69B8BEFD74289E32D351ABF7A695
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:87A6E6BD9A4E69B8BEFD74289E32D351ABF7A695
 ```bash
 magnet:?xt=urn:btih:0CC6A5861B392FDFA7FC02232528F963E533F2E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:0CC6A5861B392FDFA7FC02232528F963E533F2E8
 magnet:?xt=urn:btih:9C11BF181B26A530CADCA5AD221863E548584A2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Very Little Nightmares - Девочка проснулась в неизвест
 ```bash
 magnet:?xt=urn:btih:3E5A518C601D135EA37A562AE280612899E6CB97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Call Blocker / Блокировщик звонков v4.5.9 [Ru/Multi]
 magnet:?xt=urn:btih:9D1F6C61CFDF763A440FD48BD1292A96AED8265D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:9D1F6C61CFDF763A440FD48BD1292A96AED8265D
 ```bash
 magnet:?xt=urn:btih:0399222FE84DA19780BF12D0CAF744A57705DBC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ VLC для Android - мобильная версия популярного де
 ```bash
 magnet:?xt=urn:btih:DF183764F5B59F6C856253232318A3EC86D870D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:DF183764F5B59F6C856253232318A3EC86D870D6
 magnet:?xt=urn:btih:15C9AC7320BE2CA8929510FDEA92EE0E49EA8D45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Avito автопоиск с оповещениями v1.15.1 [Ru]
 magnet:?xt=urn:btih:25F412F68AFFA6AD25BA59D0EE54EDE2B7492E82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:25F412F68AFFA6AD25BA59D0EE54EDE2B7492E82
 ```bash
 magnet:?xt=urn:btih:9C9764C0B68A6AEF1F6C3AF373E00E4C1615DF8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ Olympia Pro v21.2.1 [En] - Gym Workout & Fitness Trainer
 ```bash
 magnet:?xt=urn:btih:1D8C321991AEE2004035F75151CEF896B4094839
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ Sun Locator предсказывает положение Солнца и Лун
 magnet:?xt=urn:btih:AE2719FD3C04F4EBDED87C5AC6B3E0ED63AD4E45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ NUM - No UI Movies v1.0.60 [Ru]
 magnet:?xt=urn:btih:438FC75F30D1460B6710199A7BCD077435A155AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:438FC75F30D1460B6710199A7BCD077435A155AA
 ```bash
 magnet:?xt=urn:btih:D3445006AC3E152C812032A033383B32F4B84779
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:D3445006AC3E152C812032A033383B32F4B84779
 magnet:?xt=urn:btih:5AC2D721AA716CCDBAD510E6E3B9F2BF13AB15F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ Battle of Warships: Морской бой - Отличная игра для л�
 ```bash
 magnet:?xt=urn:btih:D3B7AD5B2C3C134B96E6325FE7D24F23ABF26CCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +659,8 @@ AudioBooks. Аудиокниги бесплатно v4.0.8 [Ru]
 magnet:?xt=urn:btih:A53A5015AD4C666B8F3984FD1A989EB38364BD50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ Kingdom Rush Vengeance v1.9.10 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:8650A1143B0C4E0A9D682F64C235E29B11A03499
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

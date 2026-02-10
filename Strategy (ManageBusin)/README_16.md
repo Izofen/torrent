@@ -19,6 +19,8 @@ Gangland (2004) [Ru/En] (1.4.0) License GOG
 magnet:?xt=urn:btih:993F4C9FACAC44FDCF297024009CE4DD84530B68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Tropico Anthology (2001-2014) [Ru/Multi] Repack/Rip R.G. Механики
 ```bash
 magnet:?xt=urn:btih:71297483BECCDD8828732C2A1FC5030B9ECCAA4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Rise of Venice (2013) [Ru/En] (1.1.2.4789/3dlc) Repack z10yded
 magnet:?xt=urn:btih:819CAAA4F9145BB795365C9D772B4C14651205D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Planet Coaster представляет собой реалистичный си
 ```bash
 magnet:?xt=urn:btih:41E894F468CE04A534D1FFF82953CBB67D89AE27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Industry Manager: Future Technologies (2016) [Ru/Multi] (1.0.9) License HI2U
 magnet:?xt=urn:btih:263E6C9BE0263E4EACAABBC02585A9F1E7D1DC6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Caravan (2016) [Ru/Multi] (1.0.16891) License GOG
 ```bash
 magnet:?xt=urn:btih:37CDA9BD2571F9EE5B0F2EE9CB4895CC3DDFAF2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ City of Gangsters (2021) [Ru/Multi] (1.4.4/dlc) License GOG [Deluxe Edition]
 magnet:?xt=urn:btih:87995D7CD2CD6080F7F956C746F168D4B7757FDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Endzone — градостроительный симулятор о возро�
 ```bash
 magnet:?xt=urn:btih:72129A27A174B556F49469DC0276EBB9E618E6A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Traffic Giant - продолжение серии GIANT, благодаря ко
 magnet:?xt=urn:btih:5C3F6E9189B4ACF8315814C51AC63CFA135795BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Theme Park (1994) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:07E04C595FF2C62AB7A140419A7DD7F1E94DF02E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Project Highrise - является игрой в жанре "симулятор
 magnet:?xt=urn:btih:122D1BE00C3F3A32F1C3A706175BBF9AF3F80C29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ TransRoad: USA (2017) [Ru/Multi] (1.2.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:7261A7ED76314A7A92B5C281520762051E6B86FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ TransRoad: USA (2017) [En] (1.2.1) License SKIDROW
 magnet:?xt=urn:btih:E8FFA9B9C35AE99A18CDBE2533CA3E143D81CB8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Transport Giant - компьютерная игра, экономическая 
 ```bash
 magnet:?xt=urn:btih:869A0434665E34568287E48A9D097074760EFB80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Airlines 2 [Ru] (RePack) 2002 | RG Games\Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Blood Bowl 2 (2015) [Ru/Multi] (2.3.17.1/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:2BC8324FAE0392D2D9B3B106400858A1C3C61178
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Halcyon 6: Starbase Commander – это космическая RPG страте
 magnet:?xt=urn:btih:417FED0F6C22485250531AE02007F774F124D8EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ China: Mao's legacy (2019) [Ru/En] (1.0.2) Repack Other s
 ```bash
 magnet:?xt=urn:btih:34E824391BD34FCBB3D0D1E87239C68B7F81E33A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ Traffic Manager / Verkehrsplaner: Die Simulation [Ge\En] (L) 2011
 magnet:?xt=urn:btih:1D1F257E5AE72B8C4BED9E2AF112E2243DD40420
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Aven Colony (2017) [Ru/Multi] (1.0) Repack Covfefe
 ```bash
 magnet:?xt=urn:btih:FC5D68DE696B3B6AABF55B6B954E7E4D3AECF2F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ RollerCoaster Tycoon World™ - это современное воплощени
 magnet:?xt=urn:btih:850C0C8EFEACEE01CBE848652840C5D52D428B9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ The Guild 2: Renaissance [En] (RePack) 2010 | Ultra
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ Despotism 3k (2018) [Ru/En] (1.2.6) Repack Fenias2011
 magnet:?xt=urn:btih:02D0E702FB0ACCA2191D461092E44A0ECCE27D18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ Banished – городской симулятор, в котором вы уп�
 ```bash
 magnet:?xt=urn:btih:5196273F172F74B43C38F653353F1742F9424CE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ Trevor Chan's Capitalism II / Капитализм 2 (P) [Ru] 2001
 magnet:?xt=urn:btih:D4A1E33F8D74CAA1C2037D20AE8AD29EFED8EFD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Hospital Tycoon — незаурядное учреждение. Здесь не
 ```bash
 magnet:?xt=urn:btih:5E11B506A5A415EE7997C1274BDAD80757D3C6E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

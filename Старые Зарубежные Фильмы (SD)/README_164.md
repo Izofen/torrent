@@ -1,27 +1,3 @@
-###  Публикация: 798509   (669428) от 22.06.2014
-
-Сумасшедший пляж / La Playa Loca (1989) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двух веселых друзей Эмилио и Гильермо, которые работали в спортивном клубе, уволили из-за их некомпетентности на работе. Они узнают, что девушки, на которых они засматриваются, едут на каникулы в Мар-дель-Плату, и они также решают поехать туда. Как только друзья приезжают на место, они идут в казино и спускают все свои деньги. Теперь они должны найти работу. Эмилио (   Читать дальше...   )Производство: Аргентина / Argentina Sono Film S.A.C.I.Жанр: КомедияРежиссер: Карлос ГальетиниАктеры: Эмилио Дизи, Гильермо Франселла, Луи Кордара, Моника Гонзага, Джино Рени, Джо Риголи, Патрисия Саран, Хкан-Мануэль ТенутаПеревод: Многоголосый, закадровыйПродолжительность: 01:16:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC213EB14A7C19F65F62A0394ABC400FA1835B1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 900084   (669455) от 21.05.2015
 
 Бестселлер / Best Seller (1987) WEB-DLRip [H.264]
@@ -43,6 +19,8 @@ magnet:?xt=urn:btih:DC213EB14A7C19F65F62A0394ABC400FA1835B1E
 ```bash
 magnet:?xt=urn:btih:33D732D1E2538DA950C6D0A0B97F63BFAF3C4706
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +47,8 @@ magnet:?xt=urn:btih:33D732D1E2538DA950C6D0A0B97F63BFAF3C4706
 magnet:?xt=urn:btih:F28365D1A870E952D962DD669C759926D8F093AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +74,8 @@ magnet:?xt=urn:btih:F28365D1A870E952D962DD669C759926D8F093AA
 magnet:?xt=urn:btih:DC5EA7670684C18C3D94F5352A06CEDC5E7B54BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +99,8 @@ magnet:?xt=urn:btih:DC5EA7670684C18C3D94F5352A06CEDC5E7B54BE
 ```bash
 magnet:?xt=urn:btih:2C1B381F5220E67350105B8321130063C5CF4695
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +126,8 @@ magnet:?xt=urn:btih:2C1B381F5220E67350105B8321130063C5CF4695
 magnet:?xt=urn:btih:A41E304E4ECC469A857BB4C02CEE0FC025A8F509
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +151,8 @@ magnet:?xt=urn:btih:A41E304E4ECC469A857BB4C02CEE0FC025A8F509
 ```bash
 magnet:?xt=urn:btih:DC97C49CC0BB432C3F98DC67D93EBACC96F90047
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +178,8 @@ magnet:?xt=urn:btih:DC97C49CC0BB432C3F98DC67D93EBACC96F90047
 magnet:?xt=urn:btih:CB2E18BE48E26853BE2EFCE27B6999D0154D8BD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +203,8 @@ magnet:?xt=urn:btih:CB2E18BE48E26853BE2EFCE27B6999D0154D8BD3
 ```bash
 magnet:?xt=urn:btih:C1E742C04B0FCF041256784B1F8608D083D9955E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +230,8 @@ magnet:?xt=urn:btih:C1E742C04B0FCF041256784B1F8608D083D9955E
 magnet:?xt=urn:btih:FCE0808312CE349264E5801FB58B8B03298CB7D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +256,8 @@ magnet:?xt=urn:btih:FCE0808312CE349264E5801FB58B8B03298CB7D9
 magnet:?xt=urn:btih:A8C698511C00CCBBD4441AE8DA8E80C9D82576EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +281,8 @@ magnet:?xt=urn:btih:A8C698511C00CCBBD4441AE8DA8E80C9D82576EF
 ```bash
 magnet:?xt=urn:btih:A4C4705D6B66FA4E0700EC8776191FE95364869A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +309,8 @@ magnet:?xt=urn:btih:A4C4705D6B66FA4E0700EC8776191FE95364869A
 magnet:?xt=urn:btih:12F19AFD8CD69FB648F7F18C9C1D2506DF584C90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +334,8 @@ magnet:?xt=urn:btih:12F19AFD8CD69FB648F7F18C9C1D2506DF584C90
 ```bash
 magnet:?xt=urn:btih:E21B779C0160B4E5A460919F7F3B622B9C634CE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +361,8 @@ magnet:?xt=urn:btih:E21B779C0160B4E5A460919F7F3B622B9C634CE4
 magnet:?xt=urn:btih:8F59502DBD00E53D6960E3F02EE4066C5CEB586C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +386,8 @@ magnet:?xt=urn:btih:8F59502DBD00E53D6960E3F02EE4066C5CEB586C
 ```bash
 magnet:?xt=urn:btih:C55B9ABBEBB8A6F4BB3565C5B51343C762C5F6BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +413,8 @@ magnet:?xt=urn:btih:C55B9ABBEBB8A6F4BB3565C5B51343C762C5F6BD
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +438,8 @@ magnet:?xt=urn:btih:C55B9ABBEBB8A6F4BB3565C5B51343C762C5F6BD
 ```bash
 magnet:?xt=urn:btih:EFA6C55119472D36B17FB354AE8C1FD531F22FDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +465,8 @@ magnet:?xt=urn:btih:EFA6C55119472D36B17FB354AE8C1FD531F22FDA
 magnet:?xt=urn:btih:0029AAE20D2B4F0335C316E5172D74B584B2F3B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +490,8 @@ magnet:?xt=urn:btih:0029AAE20D2B4F0335C316E5172D74B584B2F3B0
 ```bash
 magnet:?xt=urn:btih:B40128A6D9839F98DCD7B5200A148381962C60E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +517,8 @@ magnet:?xt=urn:btih:B40128A6D9839F98DCD7B5200A148381962C60E6
 magnet:?xt=urn:btih:C98AD4B7CA4F8A4508F7F912DE380876D48442C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +542,8 @@ magnet:?xt=urn:btih:C98AD4B7CA4F8A4508F7F912DE380876D48442C1
 ```bash
 magnet:?xt=urn:btih:E97650F525A72276A58E54BD968A743156ED7885
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +569,8 @@ magnet:?xt=urn:btih:E97650F525A72276A58E54BD968A743156ED7885
 magnet:?xt=urn:btih:637EAE6A4C6A5764F1472ECDA3EB48E2B10CE253
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +594,8 @@ magnet:?xt=urn:btih:637EAE6A4C6A5764F1472ECDA3EB48E2B10CE253
 ```bash
 magnet:?xt=urn:btih:6EEC7A3529BF55504DAF590605F3D9491DF1F796
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +622,8 @@ magnet:?xt=urn:btih:6EEC7A3529BF55504DAF590605F3D9491DF1F796
 magnet:?xt=urn:btih:BECE7FA31A14CE8CBFF0DB6AAF7AF8CA5B0FC263
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +648,34 @@ magnet:?xt=urn:btih:BECE7FA31A14CE8CBFF0DB6AAF7AF8CA5B0FC263
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135537   (678957) от 20.05.2017
+
+Готовь могилу, друг мой – Сабата идет... / Abre tu fosa amigo... llega Sabata (1971) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стив МакГоун возвращается с гражданской войны и узнает, что его отца убил алчный землевладелец. МакГоун клянется отомстить, но влюбляется в невесту землевладельца…Производство: Испания, Италия / Devon Film, IFI Producción S.A.Жанр: ВестернРежиссер: Хуан БошАктеры: Ричард Харрисон, Фернандо Санчо, Раф Бальдассарре, Алехандро Уллоа, Гаспар «Индио» Гонсалес, Луис Индуни, Густаво Ре, Таня Альварадо, Фернандо Рубио, Франсиско ХаркеПеревод: Авторский (А.Алексеев)Субтитры: ОтсутствуютПродолжительность: 01:18:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C414830F920C7F90A086F1A0A1CF1F61BFEDAB4C
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

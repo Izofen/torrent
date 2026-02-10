@@ -19,6 +19,8 @@ NG. Тайны истории. Леонардо да Винчи / Mystery Files.
 magnet:?xt=urn:btih:40CC02385BC442FB6D89C4A5745AD592E0C53682
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NG. Тайны истории. Человек в железной маске / M
 ```bash
 magnet:?xt=urn:btih:11589A41A0BA5BE1FECA72F357CD6E4B1363E096
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 magnet:?xt=urn:btih:BE7DB240B04A3ABA87C71238D9181FCF1C7B54D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip [H.2
 ```bash
 magnet:?xt=urn:btih:344117395E57AB2592C9F0794A1F5C14DE51DD36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 magnet:?xt=urn:btih:55B254CDDE817F43E9B4EA14B5E1048EA6BECDA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ NG. Фри-соло / Free Solo (2018) HDTV [H.264/1080i-LQ] [MVO]
 ```bash
 magnet:?xt=urn:btih:EF070221DA5DDB186789A0D0675BFEE13F073B1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ NGW: Прекрасная Америка: На границе с дикой пр
 magnet:?xt=urn:btih:8AD574FFC6DEEAE4B657D16AFBCFCF0E83F28859
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ History Channel.  History: Эволюция. Битва за жизнь /  Evolv
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Discovery. Вселенная Ultra HD / Space's Deepest Secrets (2016) HDTVRip 
 magnet:?xt=urn:btih:C8447A3743F5BAE8B9E15AB810DA09E9D915445B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Discovery: Утраченный символ. Секреты тайного бр
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ BBC: Солнечные бури: угроза планете Земля? / Sola
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 ```bash
 magnet:?xt=urn:btih:DE9FFE7676E08283A9F5C8A2D7B4C6F5C7F081DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 magnet:?xt=urn:btih:0A638A0C53E37199245C0AA73F96A35D2E21306A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:0A638A0C53E37199245C0AA73F96A35D2E21306A
 ```bash
 magnet:?xt=urn:btih:4B101E96350CCDD43FF8FCF83A705106489BEF70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ BBC: Viasat History. Бразды правления. Балет на лошад
 magnet:?xt=urn:btih:75EEBF1642C2990F6BAB6902C56E7044A6EA4C67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Animal Planet: Cинее царство (Лазурная страна). Лам�
 ```bash
 magnet:?xt=urn:btih:8BB419C7949FC7EAB388A7F5D8C0A6BD091D3951
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Discovery: Через магию к звёздам / The Pop Illusionist (El Mag
 magnet:?xt=urn:btih:75830E16FF7253E5E1E02F0DE4471AD9D41A5AFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Discovery: Через магию к звёздам / The Pop Illusionist (El Mag
 ```bash
 magnet:?xt=urn:btih:47246F277B70A8776E59BA5AA06982F526D11204
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ NG. Удивительная планета / Amazing Planet (2006) BDRip [H.264
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ NG. Следствие по делам хищников / Predator CSI (2007) HD
 ```bash
 magnet:?xt=urn:btih:BBB507B5BAE976DD07F51D3C15E9DB011ECEB248
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ BBC. Заснеженный птенец или История одного пи
 magnet:?xt=urn:btih:A7D0C8A2D84A98701DB14E85A07B003C6626131A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ DV: Невероятное вокруг нас. Вторжение вирусо�
 magnet:?xt=urn:btih:2086A23B7135570802691F321FB9ECD7441B0EA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ DV: Невероятное вокруг нас. Спутник указывае�
 ```bash
 magnet:?xt=urn:btih:756777D31EF9816AC4A894138FF6A99C09AC4A55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ NG: Испытайте свой мозг / Test Your Brain (2011) DVDRip
 magnet:?xt=urn:btih:182008BF939A49D32B32D948E57974B065FCBCAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ BBC: Магия грибов (Тайная жизнь грибов) / The Magic 
 magnet:?xt=urn:btih:6C9BEE8E591F8DC9D090AF50EF9261483E23F5F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ magnet:?xt=urn:btih:6C9BEE8E591F8DC9D090AF50EF9261483E23F5F2
 ```bash
 magnet:?xt=urn:btih:FAE3834723D4C1FBA05870F8EB9674119A2C0A14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

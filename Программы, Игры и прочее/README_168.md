@@ -22,6 +22,8 @@ Solid Explorer - это приложение для управления фай�
 magnet:?xt=urn:btih:291F6F2699E4BDAC2C887B6A7B4D2E88992F1854
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Eatr・Здоровые рецепты v2.11.0 Mod by vadj [Ru]
 ```bash
 magnet:?xt=urn:btih:52EEE7F7241B3CA965BD6EFFCE8DA00883388DA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ AyuGram - это клиент телеграмма, основанный на ex
 magnet:?xt=urn:btih:0DEB9379451D355C41AF93EC5BBC2C90CA338172
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ LazyMedia Deluxe это Android TV приложение, которое можн
 ```bash
 magnet:?xt=urn:btih:E7F3F720F6A4B16F70A846E470E141EFC04860C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Win 11 Launcher v9.32 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:74B48B9C9B5384C5434222A668899737CD970CDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Vanced — это модифицированная версия YT, котора
 ```bash
 magnet:?xt=urn:btih:2E967961C0405DED21098FFB16D65B2D42327A86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Tricky Words / Хитрое слово: слова из букв v10.2.0 Mod by 
 magnet:?xt=urn:btih:19AACEBE29F2CC0C8F4F2F8CBF6D6CC5656B5459
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:19AACEBE29F2CC0C8F4F2F8CBF6D6CC5656B5459
 ```bash
 magnet:?xt=urn:btih:8FD07B7A908A5227E0655D3588FB9D7DF9B5EE6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ Solid Explorer - это приложение для управления фай�
 magnet:?xt=urn:btih:6D304AC690C1ABE1B5478B60278044A6D7A12361
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Night clock / Ночные часы v2.11.21 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8767D17649F042FBBC2C856F1BF66346B3D79646
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Quotes+ — Твой карманный источник ежедневного 
 magnet:?xt=urn:btih:70281E9C275DE8C55047FD12862DF7C19BB9BE54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ Talksy: Навык общения v0.4.1 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F99CD951A7FDE9505F9B298A300E5F4FF1A389F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ Auto Reply: автоответчик v6.4 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:D4532F7DAB2870667120D3FB86D3C0FFAE59A3A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Cozy Timer - Sleep timer v4.0.13 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:CE2D612124749B361A294ED6BBC602946BEA5FBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ Taskito - это приложение для управления задачам
 magnet:?xt=urn:btih:C664381B791620C1BD6146F88BE29EE8DD6149A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Photo Editor - уникальная программа для обработки
 ```bash
 magnet:?xt=urn:btih:65E950A71F534074543A080877CB5E7E469E61EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Folder Player Pro - это ориентированный на каталоги 
 magnet:?xt=urn:btih:E075D36BA71B6C0849348491E04B561559987B08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Photo Studio — не просто приложение для редактир�
 magnet:?xt=urn:btih:318FB0BEB46823349D9CB559EC9C165F4D16A8C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Mary’s recipes: рецепты, меню v7.0.1 Mod by Alex.Strannik [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:5B3F22667BAAC95AEF960A507A6DC61DB4DF6088
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ NokoPrint v5.26.0 Mod by derrin [Ru/Multi]
 magnet:?xt=urn:btih:55EC620DAA6C430B215A82EA7198B0F0080F52B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ PowerDirector – Video Editor v15.9.2 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9A1A3AA865C515D46EDA4E50C6E474C4378267A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:9A1A3AA865C515D46EDA4E50C6E474C4378267A8
 magnet:?xt=urn:btih:D562A9E9CFB229F08C8E4B2BE311F1D59C50DAB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Truecaller: AI Call Blocker / Oпределитель номера v16.11.5 Mod 
 ```bash
 magnet:?xt=urn:btih:749D67CF12CF03AFAEFC0A75AE8A775FA9480AE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:749D67CF12CF03AFAEFC0A75AE8A775FA9480AE1
 magnet:?xt=urn:btih:CEE3CA7D4CA698CD18736D853263116E334EC090
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ RAR компании RARLAB способен создавать RAR и ZIP и р
 ```bash
 magnet:?xt=urn:btih:84C939869FB516F4706144CA0F9BC0D1A319E14B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +676,8 @@ OTT Navigator IPTV v1.7.4.1 Mod by TryRoom [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D019C4CFC6DB710F3363DD9E82C7669B0AE03197
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

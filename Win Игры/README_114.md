@@ -19,6 +19,8 @@ Follow the Meaning - приключение в жанре point-and-click с г�
 magnet:?xt=urn:btih:C66A861373460E316CD2F05771D274D5868B2FA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Anima Flux - это кооперативная метроидвания про �
 ```bash
 magnet:?xt=urn:btih:483C6E0AAC5DB653D3EDEF99FC6DA2FE3D9AAB65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Strange City (2024) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:5333D60DBABF65303DEE77730204CBA923DB209D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Ink Inside (2024) [Multi] (1.0.2) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:C464D2471E35C9EE617D006F8C37D7D04AF6CF96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Locked In Mind (2023) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:CF98DB02B5EB18CFE15895D112092974B30CF6DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Trade Conquest (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:35B1B82B20519E1786D76FE7138FEF6B24418EE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Dog Man: Mission Impawsible воплощает любимую серию кни�
 magnet:?xt=urn:btih:434CB3D59FD6CB353682AAED79FE5A4B5F8E4D3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Star Wars Jedi: Survivor (2023) [Ru/Multi] (1.0.0.11/dlc) Repack Let'sРlay [Del
 ```bash
 magnet:?xt=urn:btih:BA416A4CA71F5C1C94B3E6A54B4106AAFB73205B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Free Durov (2024) [Ru/Multi] (1.0) Repack seleZen
 magnet:?xt=urn:btih:F044D28B173DBA52563BFDA42E5D067E8A85AE58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Pyramids and Aliens: Escape Room (2024) [Multi] (1.0.6) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:2AC39E353B6B352913987DF334A428E36C084183
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Dustborn - дорожное приключение, вдохновленное �
 magnet:?xt=urn:btih:3FD638EED20A91DD861E6F64E2CAA82462393696
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Vincemus - Air Combat переносит игрока во времена Вто
 ```bash
 magnet:?xt=urn:btih:725BE1F9CC869C16B15CF28377A994093A439DEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Architect Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:0DFCCEF952758171BAF55A6359FEF6086C51EBEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Men of War II (2024) [Ru/Multi] (1.041/dlc) Repack Let'sРlay [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:7BAE598D5B0C1302B7C7978E9E87B9A764F76BFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Recycling Center Simulator - это бизнес-симулятор с видо�
 magnet:?xt=urn:btih:042FAE14F3CD724B84E6C1FF274274B4221995C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Machinika Museum (2021) [Ru/Multi] (1.24050201) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:FA9C310774AF6A82602E9316E3FC548EAAEC789D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Caribbean Legend - пиратская РПГ с открытым миром по
 magnet:?xt=urn:btih:C0FB7F430DC518E093A06562A03A752B780B4C2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Warhammer 40,000: Mechanicus (2018) [Ru/Multi] (1.4.11/dlc) Repack Let'sРlay [C
 ```bash
 magnet:?xt=urn:btih:512FE30E5B0BDBABD5F9A987710315EF80B543E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Machinika: Atlas (2024) [Ru/Multi] (1.1.28.2) Repack Let'sРlay
 magnet:?xt=urn:btih:9AB74394C9C67D08D1A04F36C5A9947B626A7A71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Stray Blade (2023) [Ru/Multi] (1.8/dlc) Repack Let'sРlay [Ultimate Bundle]
 ```bash
 magnet:?xt=urn:btih:0AA10E0E57C7712F68D596F8A9947526C46FB6CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Deck of Souls (2024) [Multi] (1.0.6) License GOG
 magnet:?xt=urn:btih:B0FCE6834F16194B2E08AC041CFD3E9B2C0861B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ TRAIL OUT (2022) [Ru/Multi] (3.1/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:D29B72F21A69A3FB12B5DCE56190E85065AE2E8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Sin Slayers возвращается на Steam спустя некоторое 
 magnet:?xt=urn:btih:36F10546C87F27B755F6C65A978E1AE9E6F4B887
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Transport Fever 2 – классический симулятор транспо
 ```bash
 magnet:?xt=urn:btih:F039D84C029D02D9A633EFE630A94B249E489A54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Wild West Dynasty (2023) [Ru/Multi] (1.0.9129) License GOG
 magnet:?xt=urn:btih:210D6340F253199EBCFFF963208D628971A47476
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Cataclismo вводит игроков в роль лидера, ответст�
 ```bash
 magnet:?xt=urn:btih:7D4723DFFA27F834FD4DC81BACD9399492290B93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

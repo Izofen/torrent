@@ -1,3 +1,38 @@
+###  Публикация: 551989   (451268) от 25.09.2012
+
+VA - Автозвук Осень Зарубежный (2012) [MP3|160-256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 DJane Housekat feat. Rameez - My party (Groove Coverage remix)
+02 Tom Boxer - Deep in love (DJ Nejtrino & DJ Baur radio mix)
+03 Will.I.Am feat. Jennifer Lopez - T.H.E. (DJ Rich-Art & DJ Kirillich remix)
+04 Jeffree Star - Blow me
+05 Mandinga - Zaleilah (Hanter Remix 2k12 edit)
+06 Sheikh & Nicco - Hold tight (Radio mix)
+07 Connect-R - Take it slow (DJ Bonne remix)
+08 Far East Movement feat. Kay - Flossy
+09 Marlon Roudette - Anti hero
+10 K'naan feat. Nelly Furtado - Is anybody out there(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:59:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94632BF2121EC1578D66B1903AEDFE7C4B5259AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1061124   (451279) от 09.10.2016
 
 VA - Lullaby For The Sun (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Baleric>
@@ -21,6 +56,8 @@ VA - Lullaby For The Sun (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Bal
 ```bash
 magnet:?xt=urn:btih:43841B6245261C2480FE72F9B08E8A511C987E17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +86,8 @@ VA - Hot Sex Songs (2022) [MP3|320 Kbps] <Pop, House, Other>
 magnet:?xt=urn:btih:05778CC0CD752527FCDC5EE6AD8E65EF9A29E178
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +115,8 @@ VA - 100 Популярных хитов: Золото Шансона (2015) [MP
 magnet:?xt=urn:btih:DE4DD35A1DDF764CD192417CA7688EB74A3057E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +143,8 @@ VA - Papeete Weekend (2018) [MP3|320 Kbps] <Pop, House, Trance>
 ```bash
 magnet:?xt=urn:btih:FA39BBDA4AB5FCB28E719E6C9AB61EFB7BC04320
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +179,8 @@ VA - XXXL Включи Хиты. Зарубежный (2012) [MP3|256 кб/с]<D
 magnet:?xt=urn:btih:CD784E0DBBBB49FBE8F3CE102302210525EF8D44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +214,8 @@ VA - The Chillout Lounge Mix (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOu
 magnet:?xt=urn:btih:8E82C14D94CACF7E989DF854230EAFA03A866D5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +242,8 @@ VA - Car Audio. Music Road Vol.2 (2015) [MP3|320 кб/с]<Club , Dance , House>
 ```bash
 magnet:?xt=urn:btih:FF9A0EE53C8A8C7878247FB2B6AD8B4522FA81B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +272,8 @@ Samantha Fox - Good Songs (2015) [MP3|256 кб/с]<Pop, Disco>
 magnet:?xt=urn:btih:D92F005A68AFACC0BA09F88B4E0A456B149F4F9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +300,8 @@ VA - Another 100 Melodic Rock Anthems (2015) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:F82162326FA97E110DE72095A54A8F3E47F35B95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +330,8 @@ Vanessa Paradis - Good Songs (2015) [MP3|320 кб/с]<Pop, Dance pop>
 magnet:?xt=urn:btih:A11AD88B5F129545A48631B86CE2B2B1F2D9DEBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +359,8 @@ Lara Fabian - Good Songs (2015) [MP3|160 кб/с]<Pop, Female vocalists>
 magnet:?xt=urn:btih:8C4D1FC49A4C2510761201A0996EC86CBEACD9BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +387,8 @@ VA - В машине с музыкой Vol.295 (2022) [MP3|320 Kbps] <Pop, Dance
 ```bash
 magnet:?xt=urn:btih:6863FBDC8B1640F1910A7434C11B3E575CD5FBDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +423,8 @@ VA - Super Best-Of-Ka Русского радио 7 (2012) [MP3|128-256 кб/с]
 magnet:?xt=urn:btih:A1C907C9D7DDDD973D4F84FF859CD125466224AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +451,8 @@ VA - Summer Time Relax Zone (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, 
 ```bash
 magnet:?xt=urn:btih:F5B62816467F61F5D6A1F147E1E25C89EBB91ECC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +481,8 @@ VA - TOP Non-Stop 2010-2019 - Lounge & Chillout (2020) [MP3|192-320 Kbps] <Chill
 magnet:?xt=urn:btih:E9BF53505A4FCF5606F980A054C526A1960C784E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +510,8 @@ VA - Клубная Супер Дискотека (2015) [MP3|96-320 кб/с]<Cl
 magnet:?xt=urn:btih:5FAE28D6B98DF2F093B052205FB5DE0C4028649F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +538,8 @@ VA - Impressive Sound 2022.1: Volume VI (2022) Compilation [MP3|320 Kbps] <Metal
 ```bash
 magnet:?xt=urn:btih:B6F5724B5C228B504311ABD72F47211908A90ECB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +574,8 @@ VA - Автохит 50/50 (2012) [MP3|256 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:B2CC3663100C0241A09A7BE79F16AC2DA173A019
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +609,8 @@ VA - Sudden Def - Digital Volume 1 (2011) [MP3|320 кб/с]<Drum and Bass>
 magnet:?xt=urn:btih:F3730504FDDDAD7C986FF8D4DA535ABCE22D4FA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +637,8 @@ VA - Autumn Hits (2015) [MP3|320 кб/с]<Club , Dance , House>
 ```bash
 magnet:?xt=urn:btih:53F72E73A2C298D7E8659181B40D4B9BA80E322E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +667,8 @@ VA - Acoustic Lounge (2015) [MP3|320 кб/с]<Chillout, Lounge>
 magnet:?xt=urn:btih:9838E4C7A2E880EF500F57401EFBB75BD67A7E79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +695,8 @@ VA - Trance Traveling 69 (2015) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:FB1D3E601C0142EFFD5CB4659FD861C29D19FEDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +725,8 @@ VA - Absolutely Techhouse (2015) [MP3|320 кб/с]<Tech House>
 magnet:?xt=urn:btih:998240F02D5141074BDB0635EAEE70007126D3E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,6 +753,8 @@ VA - Shazam Хит-парад Russia Top 100 Август (2019) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:B6E6C77AD7B8DDA609F2ED0BF019379E224D61F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -700,32 +783,7 @@ VA - Rhythm Of My Song (2019) [MP3|320 Kbps] <Pop, RnB>
 magnet:?xt=urn:btih:E3CF4E483AA0165E20C6388ADE1DB12E78832466
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322109   (452486) от 27.08.2019
-
-VA - не Громкие новинки недели 32 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452486.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Al Fakher - Хулиганка (2:16)
-2.AMPATI - Замолчи (3:22)
-3.Andro - 7:00 (3:01)
-4.Andro - Болен Твоей Улыбкой (2:46)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:45:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0DF813E6EC20EE66645FE85F853516E25595FB4
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1613647   (1039314) от 19.02.2023
+
+Конфетка (2023) WEBRip [H.264/1080p] (сезон 1, выпуск 4)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шоу «Конфетка» соберёт непрофессиональных музыкантов и поможет их пока ещё не признанным шедеврам по-настоящему зазвучать. Новое музыкальное сопровождение, профессиональная запись и звёздные исполнители превратят любую песню  в настоящую «конфетку». Участниками программы станут музыканты-любители, которые мечтают о большой сцене, но пока известны только в узких интернет-кругах. (   Читать дальше...   )Производство: Россия | Вайт МедиаЖанр: ТВ-шоу, юмор, музыкаРежиссер: Анатолий Шпульников, Кристина ФедотоваЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:18:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E120E9FD0FDBF129916357E7AB22C1BB887245ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439859   (1039330) от 15.01.2021
 
 Форт Читторгарх / Chittorgarh Fort (2018) WEBRip [VP9/2160p]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:C5E695FB9FEC993970E133047B2DB020C5AB11BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:C5E695FB9FEC993970E133047B2DB020C5AB11BA
 magnet:?xt=urn:btih:5CC6684CC991039DA3484559AE76DC883B1B52FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:5CC6684CC991039DA3484559AE76DC883B1B52FB
 ```bash
 magnet:?xt=urn:btih:0E08354A84AA56D9576C71737EDCD913BC6A0203
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:0E08354A84AA56D9576C71737EDCD913BC6A0203
 magnet:?xt=urn:btih:8928253096DCB42A54A4F429697008E172BF0E3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ BBC. Искусство стран Бенилюкса / The High Art of the Low 
 ```bash
 magnet:?xt=urn:btih:C163A5B7D464731289759FB6E0D3AADB33BB2249
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:C163A5B7D464731289759FB6E0D3AADB33BB2249
 magnet:?xt=urn:btih:4C7E202A9881DFECB935FC1D2D92E0C5BFC40E54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:4C7E202A9881DFECB935FC1D2D92E0C5BFC40E54
 ```bash
 magnet:?xt=urn:btih:EAD9B4D1205885B27E358FFCB1E68F067E991B49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:EAD9B4D1205885B27E358FFCB1E68F067E991B49
 magnet:?xt=urn:btih:CB4E2175A594E5B535D59BB9BAF1A4691E6F0319
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:CB4E2175A594E5B535D59BB9BAF1A4691E6F0319
 ```bash
 magnet:?xt=urn:btih:1FF6D17F12A315595147AA8DA4D0C6D205BCA8FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:1FF6D17F12A315595147AA8DA4D0C6D205BCA8FE
 magnet:?xt=urn:btih:FABA70577592A575E117A9049A219709A6BAB9BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:FABA70577592A575E117A9049A219709A6BAB9BC
 ```bash
 magnet:?xt=urn:btih:1FEBEEE6ECF0B1BD105798EACD8A80408C776BE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:1FEBEEE6ECF0B1BD105798EACD8A80408C776BE6
 magnet:?xt=urn:btih:EC1839C701B953F521CD6882F3D6F59989F10A7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:EC1839C701B953F521CD6882F3D6F59989F10A7F
 ```bash
 magnet:?xt=urn:btih:38BA3D3BAB7F16FC913166156F97C1E229CF3707
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:38BA3D3BAB7F16FC913166156F97C1E229CF3707
 magnet:?xt=urn:btih:7EB4CBD5B0B4DABB1F246F9E173080D59AB1510E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:7EB4CBD5B0B4DABB1F246F9E173080D59AB1510E
 ```bash
 magnet:?xt=urn:btih:2190ED7D1EB6DD9FC045D9117A081FDF573BA9B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:2190ED7D1EB6DD9FC045D9117A081FDF573BA9B2
 magnet:?xt=urn:btih:06EFB5313E750705EBF4886B8A64563F0B1C8428
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:06EFB5313E750705EBF4886B8A64563F0B1C8428
 ```bash
 magnet:?xt=urn:btih:8DAB67F12AD34C027BBEDBDE15F0AA88223E28B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:8DAB67F12AD34C027BBEDBDE15F0AA88223E28B4
 magnet:?xt=urn:btih:BAB9A954876DA4235B3B271048CE62B4830272C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +515,8 @@ magnet:?xt=urn:btih:BAB9A954876DA4235B3B271048CE62B4830272C8
 ```bash
 magnet:?xt=urn:btih:94D2B52AB1C223F02189826DB1A196CAADFE6312
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:94D2B52AB1C223F02189826DB1A196CAADFE6312
 magnet:?xt=urn:btih:6B2254AF786CC65DE73AAA4FD05B8DA8AC970516
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +567,8 @@ magnet:?xt=urn:btih:6B2254AF786CC65DE73AAA4FD05B8DA8AC970516
 ```bash
 magnet:?xt=urn:btih:D5806DADF5F4CBC7578F23D84D0AC4AB34623AFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:D5806DADF5F4CBC7578F23D84D0AC4AB34623AFC
 magnet:?xt=urn:btih:7C6A2CFDE5114ACBE23E8D142D243BD1D9EA18BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +619,8 @@ magnet:?xt=urn:btih:7C6A2CFDE5114ACBE23E8D142D243BD1D9EA18BD
 ```bash
 magnet:?xt=urn:btih:E179AFC714200A69E261CCA52BCC8E5649F8768A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +646,8 @@ magnet:?xt=urn:btih:E179AFC714200A69E261CCA52BCC8E5649F8768A
 magnet:?xt=urn:btih:6FE2D14C592ABA2DB1EB75914B7F2952D4C9630B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,29 +672,7 @@ magnet:?xt=urn:btih:6FE2D14C592ABA2DB1EB75914B7F2952D4C9630B
 magnet:?xt=urn:btih:EF5C77FBC751F55CECD7A1DE29AE3181307A977B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613255   (1039661) от 18.02.2023
-
-Главная дорога (18.02.2023) SATRip [H.264]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откуда берется жажда скорости и как ее уталить никого не убив? Жажда стресса! Именно это, по словам врачей, заставляет нас нарушать правила, пусть и немного. Ведь каждый любитель погонять — своего рода наркоман, только адреналиновый. Но можно ли на спорткаре ехать с разрешённой скоростью, не мешая другим, и получать удовольствие? Андрей Федорцов и Денис Юченков проверят, (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:25:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7242572E456D9077BBF24D6110FD0006DF06BFA9
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

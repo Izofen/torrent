@@ -20,6 +20,8 @@ EmEditor Professional - профессиональная версия мощно
 magnet:?xt=urn:btih:D385BC31667EDD604F501490007E53350A936544
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ EmEditor Professional - профессиональная версия мощно
 magnet:?xt=urn:btih:F8EA32E5E913AD3BD028221CD8D935C78CD87594
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ AIDA64 - является мощным средством для идентиф�
 ```bash
 magnet:?xt=urn:btih:F1675E9A397552A3C2CA6EFC604608704171BAD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:F1675E9A397552A3C2CA6EFC604608704171BAD6
 magnet:?xt=urn:btih:78D184BEEC2D5EEE594F8E70CF4FBBEECA126DE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Pixologic ZBrush - программа для трёхмерного модели
 ```bash
 magnet:?xt=urn:btih:8FCBD553489124BFAE2D96744B0AE02530AEDDB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Audacity - свободный, простой в использовании зв
 magnet:?xt=urn:btih:390D7AD7B595227683681AE867E38C2DCCB23F45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ IObit Uninstaller Pro представляет собой удобный инс�
 ```bash
 magnet:?xt=urn:btih:63BDA8B4B8A747ED6EBF65D011514508BF7460B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ WSCC (Windows System Control Center) - портативная программа
 magnet:?xt=urn:btih:FDFD1CFBA99F6C9C45247F45998A9A436A03ED89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Total Commander 11.02 (17.11.2023) Portable by MiG [Ru/En]
 magnet:?xt=urn:btih:785203983D5061A6C95DFB2C33865E3E971B4EC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:DA4192045488A9A4884DEC8C5904B42954F8EEBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ Luminar Neo – это отдельный редактор, который вк�
 magnet:?xt=urn:btih:7AEC241463E2E761A3AE44B3E719188E2D10FD02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Audacity - свободный, простой в использовании зв
 ```bash
 magnet:?xt=urn:btih:36D76A60ED08AE28D30A20758C71C78FC7AC6EC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ Ventusky: Прогноз погоды v29.0 (b2901) Mod by Alex.Strannik [Ru/Mul
 magnet:?xt=urn:btih:26D844149699B190CE5D822BFC18B79EE75F4478
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ HandBrake - бесплатный видео конвертер с открыты
 ```bash
 magnet:?xt=urn:btih:CC95D7D5321850A39E2CF29F0211600A75BDFD4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ EssentialPIM - это отмеченное различными наградам
 magnet:?xt=urn:btih:A43AD275ED92C18F0BA4D192A1844655990E8970
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:763F0C908539F6C06531AFAA67B549E136258286
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Busuu - популярный и востребованный проект для
 magnet:?xt=urn:btih:E27237F5D44560E0A84A5D274AE14EB0825646B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 ```bash
 magnet:?xt=urn:btih:4222D5E5522D828E7E6500AE9FBD30C3C8D52395
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ Aomei Partition Assistant – мощная программа для работ�
 magnet:?xt=urn:btih:8074A0EB29B673FB72E6FB5791859C1658F02A0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ Movavi Video Editor Plus 2022 v22.1.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4FCF3508EE6EFB0B154EFF7346AA593B4D2D26D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ One Commander V3 — это современный файловый менедж
 ```bash
 magnet:?xt=urn:btih:A762D039FD163B31B5D34AFB47F96F0A22A6F08F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:A762D039FD163B31B5D34AFB47F96F0A22A6F08F
 magnet:?xt=urn:btih:08C415191F76C4A0FAA896D8B5C9E254DDF6C3D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ Wondershare UniConverter - простой в использовании виде
 magnet:?xt=urn:btih:6CF8ED6E8434EF5983A63B3E914E9C78BD08EB45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ EssentialPIM - высокофункциональный менеджер пер�
 ```bash
 magnet:?xt=urn:btih:8A8EA8D9D51F5856AF7E69D71D9278C621CBE2A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ Macrium Reflect обладает интуитивно понятным поль�
 magnet:?xt=urn:btih:61B2600E08AD5E2548947EB98751544D3BD7BC8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ magnet:?xt=urn:btih:61B2600E08AD5E2548947EB98751544D3BD7BC8D
 ```bash
 magnet:?xt=urn:btih:AA06302EB85F978D9189CEB0065F27DCF9B491DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:6BED2CE23DD41EE8244512518BF07FC778CFE763
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:6BED2CE23DD41EE8244512518BF07FC778CFE763
 ```bash
 magnet:?xt=urn:btih:5DFE84F586FDFC0AD5C63B5BBBEE7EC591758459
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ DetectX Swift 1.0982 [En]
 magnet:?xt=urn:btih:CF38D281863A304F9A07D6AE093E03F785989870
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:CF38D281863A304F9A07D6AE093E03F785989870
 ```bash
 magnet:?xt=urn:btih:839CF668A143D83B5B0AAB38A910A4AC577B9BBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Microsoft Windows 10.0.18363.1198 Version 1909 (Updated November 2020) - Ори�
 magnet:?xt=urn:btih:09DF7E227E26A5B476B8F963624FC847C9626320
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Path Finder - один из лучших файловых менеджеров, 
 ```bash
 magnet:?xt=urn:btih:9A6BF18FE9B4DCC092409A3EB18EFCB0B414D020
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Mario + Rabbids - Sparks of Hope (2022) [Switch] [EUR] 14.1.2 [eShop] [Ru/Multi]
 magnet:?xt=urn:btih:7A4093D6100A33CE484EE314C6FD179F39C58B79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:7A4093D6100A33CE484EE314C6FD179F39C58B79
 magnet:?xt=urn:btih:F1A6F47EAEFA832027E80D39337525B11DDF4F8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ N5 – Аромат вечности / N5 un parfum d'eternite (2011) DVB [FR / 
 ```bash
 magnet:?xt=urn:btih:C7242A367E343F5CCBF63396ABFFAF8C7367E8D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Microsoft Windows 10.0.17763.1577 Version 1809 (Updated November 2020) - Ори�
 magnet:?xt=urn:btih:DA6CCF0F4ADED33562FE9F2C48781B21E89A8DBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ DirPrintOK 6.88 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:5300134321434C79C94653491C3D14F14B209459
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Eastward (2021) [Multi] (1.1.5) License GOG
 ```bash
 magnet:?xt=urn:btih:645C47F384309EF033F9A1F5722C76D5B10D08D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:645C47F384309EF033F9A1F5722C76D5B10D08D3
 magnet:?xt=urn:btih:D257FF4B1A3EE490E6DD6DA2D01ABB3563988101
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:D257FF4B1A3EE490E6DD6DA2D01ABB3563988101
 magnet:?xt=urn:btih:237013A867ECCE9873B949B613625EA9DE2905D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:237013A867ECCE9873B949B613625EA9DE2905D0
 ```bash
 magnet:?xt=urn:btih:31F6C82CBB570BF6E8B184C72B3F7DF60D30D184
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ VA - Santorini: Relaxing Chill-Out Luxury Lounge (2019) [MP3|320 Kbps] <Electron
 magnet:?xt=urn:btih:6E0DA783FD7EEACAF7F4D49EBB634196EEDFE8E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ VA - Music for Mindfulness, vol. 4 (2020) [AAC|~323 Kbps] <Downtempo, Chill Out>
 magnet:?xt=urn:btih:BADE6DAD1590FFE18E91897D6E710F8C2DBAD616
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:BADE6DAD1590FFE18E91897D6E710F8C2DBAD616
 magnet:?xt=urn:btih:ABDFAFEA06C2C1631D9E41A228B5C83E725A27BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ magnet:?xt=urn:btih:ABDFAFEA06C2C1631D9E41A228B5C83E725A27BC
 ```bash
 magnet:?xt=urn:btih:9C288B0493733D64CFCC668C5A0FB162B7E5AC54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:9C288B0493733D64CFCC668C5A0FB162B7E5AC54
 magnet:?xt=urn:btih:ACBAAED8EA5A179B05F6E3B907991E2A7F959005
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ magnet:?xt=urn:btih:ACBAAED8EA5A179B05F6E3B907991E2A7F959005
 ```bash
 magnet:?xt=urn:btih:AB348C3FC2F3893311C84EAA99DB1AB93F317327
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +582,8 @@ OnyX 4.1.3 for macOS Monterey 12 [Multi/Ru]
 magnet:?xt=urn:btih:0504FFCE2ACA7A74F3F7D173DD6876394AF9EC4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ magnet:?xt=urn:btih:0504FFCE2ACA7A74F3F7D173DD6876394AF9EC4F
 ```bash
 magnet:?xt=urn:btih:89258A60D8421892E9CA714D9C7B6D0ED6C6914E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +637,8 @@ VA - The French Touch Connection - Mysterious Lane - Face B (2013) [FLAC|Lossles
 magnet:?xt=urn:btih:F66A6A15CD995F7DF15A44D8C72FECC089F4F875
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:F66A6A15CD995F7DF15A44D8C72FECC089F4F875
 ```bash
 magnet:?xt=urn:btih:BCE9F67E306996D30341D370168FFB70BCEDD5DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +689,8 @@ magnet:?xt=urn:btih:BCE9F67E306996D30341D370168FFB70BCEDD5DC
 ```bash
 magnet:?xt=urn:btih:CC8D36678EAC2A9D98F85CE3DF33D355BF8B2FD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

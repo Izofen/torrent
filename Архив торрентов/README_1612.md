@@ -28,6 +28,8 @@ Ben Lukas Boysen (Hecq) - Restive (2012) [FLAC|Lossless|Web]<Modern Classical, A
 magnet:?xt=urn:btih:CB7030D2B6D288752D157C13D44AE442D20EF71F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -53,6 +55,8 @@ Downie поддерживает более 1,000 популярных сайто
 ```bash
 magnet:?xt=urn:btih:63684D5D75C33F68A3E3531F23DB30FB9E653FAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -80,6 +84,8 @@ Kane & Lynch 2: Dog Days [Ru/En] (L) 2010 2xDVD5
 magnet:?xt=urn:btih:705126E5B2E5F7A2398C5112CA71BC136A55ECDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -106,6 +112,8 @@ Movist является простым в использовании и мощн
 magnet:?xt=urn:btih:CD84560EC738EF61868E4E103EE66C6C37216779
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +138,8 @@ RPG Knight of the Earthends [Игра] (Android)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -162,6 +172,8 @@ SentinHell - The Advent of Shadows (2013) [MP3|320 кб/с]<Heavy Metal>
 magnet:?xt=urn:btih:F9CC8D4D0F7DB1845E4A5C1A49425726E775F5E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -185,6 +197,8 @@ Stand Up. Выпуск №44 (2014.12.21) SATRip
 ```bash
 magnet:?xt=urn:btih:4FAD4DA5BB4DFD2065D9C773C0AC1E133E501CF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -210,6 +224,8 @@ DiskCatalogMaker  - простая утилита для управления и
 magnet:?xt=urn:btih:7AD5DAA7F3766A4FBD947763CACCCEDC4839882B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -233,6 +249,8 @@ magnet:?xt=urn:btih:7AD5DAA7F3766A4FBD947763CACCCEDC4839882B
 ```bash
 magnet:?xt=urn:btih:C0E4A0E91ED3C4B75F28617D0B34BCE20BE6310E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +278,8 @@ Application Wizard позволит запускать, завершать и а
 magnet:?xt=urn:btih:C54789F7BE144732B7B574B27F285F1F41A72D76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +303,8 @@ magnet:?xt=urn:btih:C54789F7BE144732B7B574B27F285F1F41A72D76
 ```bash
 magnet:?xt=urn:btih:C213523F313BF99A66AABE2C79183E0C1FDBBA51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +330,8 @@ magnet:?xt=urn:btih:C213523F313BF99A66AABE2C79183E0C1FDBBA51
 magnet:?xt=urn:btih:9B68361AAF4177C0DA60A094B0CAEDB80A61B8DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +355,8 @@ magnet:?xt=urn:btih:9B68361AAF4177C0DA60A094B0CAEDB80A61B8DA
 ```bash
 magnet:?xt=urn:btih:A635E7B8D925AD0DC052577DBABF2AC224AAF5EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +385,8 @@ Jay-Z - Reasonable Doubt (1996) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:E379766416400E66343B4B285F0C9F16E391BCC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +414,8 @@ SYC 2 устанавливает совершенно новый уровень 
 magnet:?xt=urn:btih:8A1AC06C65EBDA7613CCFE5094D63E3BB4D2224F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +439,8 @@ NetWorker - это приложение, которое удобно отобр�
 ```bash
 magnet:?xt=urn:btih:59A7347FEF56D6DF4315669BDB1DBB5BF52A04D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +466,8 @@ magnet:?xt=urn:btih:59A7347FEF56D6DF4315669BDB1DBB5BF52A04D6
 magnet:?xt=urn:btih:FE0B20F1C864BF5CAA216796C3E7D4766D1CA44D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +492,8 @@ Stats - это приложение с открытым исходным код�
 magnet:?xt=urn:btih:EABEDA476038AF103B8D9D22975F82C253A0CFC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +517,8 @@ magnet:?xt=urn:btih:EABEDA476038AF103B8D9D22975F82C253A0CFC3
 ```bash
 magnet:?xt=urn:btih:403B1A77E9A45C1A6946C3327FEDE13D1A1E19DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +547,8 @@ Crunkz - Best Future & Electro House Mix (Live Set) #2 (2020-11-15) [MP3|320 Kbp
 magnet:?xt=urn:btih:BEA5E55C1C5D2A8D40981FFC6E280AD6A748F70C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ magnet:?xt=urn:btih:BEA5E55C1C5D2A8D40981FFC6E280AD6A748F70C
 ```bash
 magnet:?xt=urn:btih:4D1D5174D51FB92D4A324BC513BF57FD73FC6EE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +599,8 @@ Puppy Games Ultra Bundle [En] (RePack) 2012 | NSIS
 magnet:?xt=urn:btih:C84DBBCCC93801660A3824FDE7FFE0B1331F6B46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +624,8 @@ Permute - очень простой видео конвертер с миним�
 ```bash
 magnet:?xt=urn:btih:6EBF02EEDE611C86F1E9D14EBAD8A0382E362204
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +652,8 @@ Posterino – программа, ориентированная на созда
 magnet:?xt=urn:btih:6909494A171FEC1B6D8A455F99842C1D87B86763
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +678,8 @@ magnet:?xt=urn:btih:6909494A171FEC1B6D8A455F99842C1D87B86763
 magnet:?xt=urn:btih:CA6EE3762329F23D02C4A350050738029C410BA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ iCollections 6 v6.0  [Multi]
 ```bash
 magnet:?xt=urn:btih:C7BE162977B87FC584721EE5F03BFBA1E325B7D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

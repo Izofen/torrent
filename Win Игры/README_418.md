@@ -1,27 +1,3 @@
-###  Публикация: 1295482   (620220) от 12.04.2019
-
-Deck of Ashes (2019) [Ru/Multi] (1016730) Repack xatab
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620220.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deck of Ashes — это приключенческая игра с тактическими карточными боями. Одного за другим, ведите банду антигероев по пути искупления. Исследуйте мрачный фантастический мир и собирайте карты в уникальную боевую колоду.Тип издания: RepackРазработчик: AYGamesЖанр: 3D, StrategyЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4AB2A073B4BA79647C4F0A7989DC4420B1ACF7E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910753   (620242) от 21.06.2015
 
 Grim Facade 6: Hidden Sins (2015) [En] Unofficial [Collector's Edition / Коллекционное издание]
@@ -42,6 +18,8 @@ Grim Facade 6: Hidden Sins (2015) [En] Unofficial [Collector's Edition / Кол�
 ```bash
 magnet:?xt=urn:btih:9067704F1ADE79CA6F3E0B64C76571F99B5FB2DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Aliens: Colonial Marines (2013) [Ru/En] (1.0.210.751923/upd1.4.0/dlc) Repack nem
 magnet:?xt=urn:btih:30DA84B441B81E0DF04BC0B804C06307CB45369B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ I Am Setsuna расскажет трогательную и печальную �
 ```bash
 magnet:?xt=urn:btih:7EB933831524A1D21311CC4F6ED0D64BB13E5B42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ The Assembly (2016) [Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:D6B2F06C24F4B020FCA0C2BDD41935D58F4FE55A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Mugen Souls (2015) [Ru] (1.03/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:81576D840CF4722E3C634129BDF80AB15A9078E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Halloween Chronicles: Monsters Among Us / Хроники Хэллоуина: М�
 magnet:?xt=urn:btih:29BBAF532A19FFF6F615ACDD38F04825185C25B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ State of Decay (2015) [Ru/Multi] (1.0/dlc) Repack xatab [Year One Survival Editi
 ```bash
 magnet:?xt=urn:btih:9263EE3E5BBA676EDB9B04B895777F8685DD6BCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ The Forest (2018) [Ru/Multi] (1.08) Repack xatab
 magnet:?xt=urn:btih:F47C716F0FBAA71B0A9C6D5CBB864F7D56AD2BAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ The Assembly (2016) [En/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:0D2F5BE5B1DEEA8D228CC74A3A8426D177DC1DDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ We are the Dwarves (2016) [Ru/Multi] (1.0/upd8/hf) License GOG
 magnet:?xt=urn:btih:AD37CA8EE1E7468175B2482DB44A4CFCF2CF490D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ The Last Stand: Aftermath — это новейшая игра от опытны
 ```bash
 magnet:?xt=urn:btih:BE8FADBE2D21DBE9E77711663461AEF2533B3D23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ Aqua Moto Racing Utopia (2016) [Ru/Multi] (5.5.6) Repack Other s
 magnet:?xt=urn:btih:DCD4787F59D2F4F1AB4FE21E134B257C0F6F15FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ Phoenix Wright: Ace Attorney Trilogy (2019) [En/Jp] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:2134FF807504386237EAA9EE110687E25A736FF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ Dance of Death: Du Lac & Fey - это приключенческая истор�
 magnet:?xt=urn:btih:969821AA261B991743A937A336F043C4909A7AEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ Grimshade — это история компании героев, волею с
 ```bash
 magnet:?xt=urn:btih:BFCF8795814C76B0C66DBEB51891DB461AC4D061
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ Earth Defense Force 4.1: The Shadow of New Despair – новая игра в с
 magnet:?xt=urn:btih:C825DBA561BAFC538142AA6DD3B93AF936916720
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +435,8 @@ Car Mechanic Simulator 2015 (2015) [Ru/Multi] (1.0.7.5/dlc) Repack Other s [Gold
 magnet:?xt=urn:btih:10B1AE0E36970AC26BDA088568D544C99CF7BEA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +460,8 @@ Aqua Moto Racing Utopia (2016) [Ru/Multi] (5.5.6) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:F591BA276FB9989D4289898178E44BA2E04EDD71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +489,8 @@ Ice Age: Continental Drift - Arctic Games / Ледниковый период 4:
 magnet:?xt=urn:btih:0E9A6F80E2F9210281A3262E16A49505EABB7B29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +516,8 @@ Shank - Дилогия [Ru/En] (RePack) 2010-2012 l R.G. Механики
 magnet:?xt=urn:btih:867F623F349F575CCA7537AB6C94F7C3E702E755
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +541,8 @@ Finding Paradise — игра, рассказывающая историю о д
 ```bash
 magnet:?xt=urn:btih:9A90AE6B87292FB08FEF0904F99CE745B866098B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +568,8 @@ Earth Defense Force 4.1: The Shadow of New Despair – новая игра в с
 magnet:?xt=urn:btih:6342A2DD121933DD799F17EF739B66AEEC70D4F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +594,8 @@ Raw Data — это аркадный шутер для VR-шлемов и очк
 magnet:?xt=urn:btih:BDAB56CAE73D31EC2B842D47075531D7B96D62FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +619,8 @@ Rocket League - это аркадный проект, который сочет�
 ```bash
 magnet:?xt=urn:btih:852737F770939349C604DEEC28676633FC714169
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +648,34 @@ Panzer Tactics HD (2014) [Ru/Multi] (1.0.2) Repack xGhost
 ```bash
 magnet:?xt=urn:btih:D2A609F2F465807CA853FF3989C5A81134C06D63
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295220   (622380) от 11.04.2019
+
+Edge of Reality 5: Great Deeds (2019) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622380.jpg" />
+</div>
+
+
+###  Подробнее
+
+После открытия нового приюта для животных ваша дочь была номинирована на премию «Человек года»! Вы рады присоединиться к ней в Исландии, чтобы отпраздновать. Но ваша радость обрывается, когда вы обнаруживаете, что она пропала! С местным вулканом, который угрожает извергаться, и слухи об опасной легенде оживают, можете ли вы выяснить, кто стоит за исчезновением вашей (   Читать дальше...   )Тип издания: UnofficialРазработчик: 4 Friends GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C69A7BB0D564907BF7DA3099C1B96FB7013171D
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

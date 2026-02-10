@@ -21,6 +21,8 @@ Django 4 Masterclass 2022: от разработки до развертыван
 magnet:?xt=urn:btih:A7D115A49E11BA6B9B66CFEAA5623C2DEC7DF387
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Udemy, Catalin Stefan | Complete FastAPI masterclass from scratch (2022) WEB-DL 
 magnet:?xt=urn:btih:C2C452129FF1AAC2C84DAB10756533D6D104AD9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ FastAPI — The Complete Course 2022 (Beginner + Advanced) — это учебн
 ```bash
 magnet:?xt=urn:btih:66E726FFD172A32204283A23E94E85DEFB27F52E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ Thinknetica Pro, Максим Данилов | Возможности Django Adm
 magnet:?xt=urn:btih:ECD8FFBA8A4EBA223442D016C18D186D9E380BA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ The next time your resume is on someone's desk—be it a promotion at work or a 
 ```bash
 magnet:?xt=urn:btih:24B019EC9FB6F1C58A050826472296DF10BD0060
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ Infostart, Николай Бондаренко | Базовый курс по р
 magnet:?xt=urn:btih:6A54B88DBCCDFB8720E015FF2CBE36A5CB354175
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ Angular 13 simply - это последняя версия Angular 2, в это�
 ```bash
 magnet:?xt=urn:btih:81F2992BD28160710124D0E3CBC73569287ACD82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ The AWS Certified Cloud Practitioner certification is a great entry-level certif
 magnet:?xt=urn:btih:7922665083A9EE667AA8EC06946D366365ACF696
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ Udemy, Maximilian Schwarzmüller, Manuel Lorenz | 100 Days Of Code - 2021 Web De
 ```bash
 magnet:?xt=urn:btih:702B27BE10580A0ABFBCED9D845055BDC0E1169D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +274,8 @@ Profbuh8.ru, Елена Грянина | ЗУП 3.1 кадровый и зарп
 magnet:?xt=urn:btih:392DF23B1099B36FF04D4B301CC4B4E1CB4753BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ Udemy, Awesome Tuts | The Most Comprehensive Guide To Unity Game Development Vol
 magnet:?xt=urn:btih:110EFAAD9C7CBDDB003D3077C6A08BCDACD4BFAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ Udemy, Bogdan Stashchuk | The Complete Apache Kafka Practical Guide (2022) WEB-D
 ```bash
 magnet:?xt=urn:btih:DED6BABB0032931A3E1D3965738BA61C49D9ACBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +355,8 @@ range слайдеры для выбора стоимости(   Читать д
 magnet:?xt=urn:btih:4BFA95FFE51A246BE154087AA5DF1846720B7968
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ Profit | Современные фреймворки на PHP (2022) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:750633171D2DFBAC44100C5937185F295560C824
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +408,8 @@ Udemy, Denis Panjuta | The Complete Android 12 & Kotlin Development Masterclass 
 ```bash
 magnet:?xt=urn:btih:6D40BEC0FCEB15E2C97C0A27D3FF4361A967EE6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +438,8 @@ Slurm (Слёрм), Всеволод Севостьянов | Ansible: Infrastru
 magnet:?xt=urn:btih:6ABE78AA2B5887B05A10F4C849B468E2B9954FE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +463,8 @@ Slurm (Слёрм), Марсель Ибраев, Павел Селиванов |
 ```bash
 magnet:?xt=urn:btih:2654C90A513F90EF7B5B72FF48B5EDFC43B6F2AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +490,8 @@ magnet:?xt=urn:btih:2654C90A513F90EF7B5B72FF48B5EDFC43B6F2AB
 magnet:?xt=urn:btih:3EF31D4C5EE3C295E46741B2B50D3814DEBCB4A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +515,8 @@ Udemy, Alexander Batashov | Ruby on Rails - 2020. Создание Интерн�
 ```bash
 magnet:?xt=urn:btih:2F9B30B09B800E87376723CDCE1E9C21B87C899B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +544,8 @@ Optionally, you'll be able to run the final system in a real cloud environment (
 magnet:?xt=urn:btih:8B72605F7BAC552065BD57A8B2322F77E518E751
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ JPoint 2022 — международная Java-конференция. Спик
 magnet:?xt=urn:btih:33D086436B4F2086D410CAE2242D616CFBA81411
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +599,8 @@ Udemy, Klimentij Bulygin | UX c нуля: как стать проектиров
 ```bash
 magnet:?xt=urn:btih:6F97619D118A30B235AEAB5C7AD7AB8E887D8D41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +629,8 @@ Have you been wondering how modern companies
 magnet:?xt=urn:btih:E432E435FB075BEFBE8B0B049243465F19E0B469
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +654,8 @@ Mobius 2023 Spring - конференция для мобильных разра
 ```bash
 magnet:?xt=urn:btih:93C38EB34A82C06377FFA964A4A66D75BD1F38F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +683,8 @@ Do you want to masterПроизводство: UdemyЖанр: Программи
 magnet:?xt=urn:btih:9A12256A94A48B3AAB7111608DEF7059A45B5822
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +710,8 @@ Today every computer and phone comes with immense computing power and multiple c
 ```bash
 magnet:?xt=urn:btih:03B2281746F44E4663EB4A6E6AF239E0585CBBCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

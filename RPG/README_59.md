@@ -19,6 +19,8 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru/Mu
 magnet:?xt=urn:btih:769EAD775F8650A7143B6E937AF0A323E389EE36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Zenith (2016) [Ru/Multi] (1.0) License GOG
 magnet:?xt=urn:btih:1331B056025807CC3BCADD90233A75D621EF5445
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Divinity: Original Sin 2 / Divinity: Original Sin II (2017) [Ru/En] (3.6.69.4648
 ```bash
 magnet:?xt=urn:btih:3B39B233D77EA06190E52B3F9E7015CA53DD911D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Dark Souls: Prepare To Die Edition [En/Ru/Multi9] (Repack/1.0.0.1+FIX 0.8) 2012 
 magnet:?xt=urn:btih:A9B5C697D8A7652CAA43280072ED3B11BF71D339
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Frozen State (2016) [Ru/Multi] (1.00.271) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:BA01354A884C5D6054DA86BAAF9689A3E32D5524
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Shadowrun: Dragonfall - Director’s Cut – самостоятельный ре
 magnet:?xt=urn:btih:E504264BFA36665A445E6BFABC1E9B696574D39A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Dragon Forge (2022) [En] (1.0.8224) License FLT
 ```bash
 magnet:?xt=urn:btih:51E6FA5D9393B1560C53469B27719122BE605196
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Risen: Дилогия / Risen: Dilogy [Ru] (Repack) 2009 - 2012 | {AVG}
 magnet:?xt=urn:btih:2370B878596E204A938C14245354E52427F21E0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Immortal: Unchained — новое слово в жанре хардкорных
 ```bash
 magnet:?xt=urn:btih:686381EB94321FEB5221A752A31C9CED7A2E0C63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ I Shall Remain это постапокалиптический ролевой э
 magnet:?xt=urn:btih:79007BEFCC23B1C56ADA71728C3A73E6625E88F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Gothic 3: Forsaken Gods / Gothic 3: Отвергнутые боги (2011) [Mult
 ```bash
 magnet:?xt=urn:btih:18E785E4A9451CC32A2D68A667F61A353125B33D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Pesterquest (2019) [En] (1.0) License GOG
 magnet:?xt=urn:btih:4057DFBF84F200F53DC1706866011E1ED1BF7F91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Kyn – ролевая игра, действия которой развора�
 ```bash
 magnet:?xt=urn:btih:F54CD2B66C4501210420015FB3DA10CF192E2522
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Disgaea 6: Defiance of Destiny (2022) [Multi] (8848380/dlc) License SKIDROW [Com
 magnet:?xt=urn:btih:0124530D1D4A792D0EAEB95A7B7DBF3AD776DA76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ COPS 2170: The Power of Law / Власть Закона: Золотая колл
 ```bash
 magnet:?xt=urn:btih:96A9EB05B49EBE8F9973F9560AF7ABE62208FD24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Dungeon Siege 3 Limited Edition + 5 DLC [Ru] (Repack/Upd2) 2011 | R.G. Packers
 magnet:?xt=urn:btih:274C365260EBB42B90E7C4029C2987B550460FF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ Gothic 3 - продолжение серии классических ролев
 ```bash
 magnet:?xt=urn:btih:05172F55C251AE6959C9EF24108D15199964FDE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ The Broken Land / Заброшенные земли [Ru] (RePack) 2000 | RG game
 magnet:?xt=urn:btih:826A0E4E894AD737394999FBE4BDB030EE2F5F4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Iron Danger - игра, в основе которой лежат тактиче
 ```bash
 magnet:?xt=urn:btih:97143FAA93061D48EE9B8B88E43D620BCA2FEE8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ Rebel Galaxy это лихое приключение, наполненное с
 magnet:?xt=urn:btih:326D786CF4082DBDAA0FB8030EFC59748B35CB7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Torchlight II, предательски увлекательное продол�
 ```bash
 magnet:?xt=urn:btih:201FB2E11F1363A29824DCC32F8984F65E70175D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ Overlord: Fellowship of Evil (2015) [Ru/Multi] (1.0) Repack R.G. Catalyst
 magnet:?xt=urn:btih:1DC6FB90F0F577A712D306A21B1C2228E11DC31E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ Risen 3 Titan Lords (2014) [Ru/Multi] (1.?0/dlc) SteamRip Let'sPlay [Enhanced Ed
 ```bash
 magnet:?xt=urn:btih:7288A3FF8C17E8939DD864F0FA1783D9AA4A00BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ Final Fantasy Type-0 HD (2015) [En/Multi] (1.0/upd1) License CODEX
 magnet:?xt=urn:btih:4E714519F8F7B1A1FFE7CF3FC11A363917E984FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Might and Magic / Меч и Магия (1998-2002) [Ru/En] Repack nelex [Classic
 magnet:?xt=urn:btih:E43BA5F210111EC0D1A4701116456B834E40CEB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ The Incredible Adventures of Van Helsing III (2015) [En/Multi] (1.0.6) Repack R.
 ```bash
 magnet:?xt=urn:btih:FD90F5F2AC34BD6195C2F8E663AAD2CE04B23810
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

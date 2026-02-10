@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:C51203E6177AF5D8B655E9E069AA187DE090B5AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:C51203E6177AF5D8B655E9E069AA187DE090B5AB
 ```bash
 magnet:?xt=urn:btih:5B9805817F4A5AEC34FDCB0482677E5E70D351BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:5B9805817F4A5AEC34FDCB0482677E5E70D351BE
 magnet:?xt=urn:btih:93ED8721B1F4C84E5BD13571D778B38B6EFB8778
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:93ED8721B1F4C84E5BD13571D778B38B6EFB8778
 ```bash
 magnet:?xt=urn:btih:3132F245344C7A0D86B04B02C9CC9E48BEFEEF69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Ambient Loft — цветной растровый шрифт.
 magnet:?xt=urn:btih:97BAD697D5D5CBDB96E24E11E84EF45DF11C32F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Sharf — редакционная шрифтовая семья с экспер
 ```bash
 magnet:?xt=urn:btih:F64E4DD9B6E4EE50D006D81BCAF69621B798881B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Interstate начинался как личный вызов, чтобы соз�
 magnet:?xt=urn:btih:EE3E8FE7DFFD93499D2269A45F8D8924540A58C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Tomkin — это очень большое суперсемейство из 54
 ```bash
 magnet:?xt=urn:btih:D95F789449BF0B9615C04E1156AA5DB0AE94B5A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Panton был расширен за счет Panton Narrow! Он имеет 9 п
 magnet:?xt=urn:btih:B3404D03C41E9E90D31B8E2E0BA6B4EEA25C2762
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Gimlet черпает свое вдохновение из шрифта Schadow,
 ```bash
 magnet:?xt=urn:btih:E60DA9E70A594E4E11AC1E34AEB5FDBFC2B739DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ Romantic Juliette — реалистичный каллиграфический 
 magnet:?xt=urn:btih:4D84F30B9C612A60EB7B2D85CE246234E3BE8CD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:4D84F30B9C612A60EB7B2D85CE246234E3BE8CD7
 ```bash
 magnet:?xt=urn:btih:5E64B2DFD5F3AE24C67270BF5144B0D2F470BAEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Champilon — современный шрифт без засечек с чис�
 magnet:?xt=urn:btih:9BB4D42C0CF564E768521F6498DCCE923C224ECA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ Franca — это неогротескное семейство в девяти 
 ```bash
 magnet:?xt=urn:btih:B877B75FC139832030B55AEBA208DF98A43887F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ Valentine Bellia - красивый и элегантный рукописный
 magnet:?xt=urn:btih:8065016EA233078A4CEAA328D914F620A6965144
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:8065016EA233078A4CEAA328D914F620A6965144
 ```bash
 magnet:?xt=urn:btih:7A01BCC12FC1B7376B73ADDBA359BDBD0BA300A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ Gilam — шрифт без засечек с полусжатыми пропо�
 magnet:?xt=urn:btih:4F60CA1DE32FA01260901376C70BAC8280F45042
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:4F60CA1DE32FA01260901376C70BAC8280F45042
 ```bash
 magnet:?xt=urn:btih:64F47C8593BF57943ABECF4834197EBA0E82201E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ Jackman — это шрифт кистью свободного стиля с е
 magnet:?xt=urn:btih:B97B842436A16669237CB9796F8675E8F634D82C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:B97B842436A16669237CB9796F8675E8F634D82C
 magnet:?xt=urn:btih:05491B916FF60AFD9922B459487CA6C46FCFA611
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:05491B916FF60AFD9922B459487CA6C46FCFA611
 ```bash
 magnet:?xt=urn:btih:D57691B7B970BB62DA271387AF938BFE3951EF6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ Salina — современный, высококонтрастный перех
 magnet:?xt=urn:btih:CC8458E7D6C87E0DE60E1DCBE697D9136508F3F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ magnet:?xt=urn:btih:CC8458E7D6C87E0DE60E1DCBE697D9136508F3F3
 magnet:?xt=urn:btih:EF07CD7D79FD204E0F486F6D7C3FB0F04CBF1C5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ Havering — еще одно дополнение к семействам шри
 ```bash
 magnet:?xt=urn:btih:4B0E17FF16A1EA5D63F51F23110C9F978A5A6D0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +661,8 @@ magnet:?xt=urn:btih:4B0E17FF16A1EA5D63F51F23110C9F978A5A6D0A
 magnet:?xt=urn:btih:58807363D26662263CDACB8FB82E4FBA7B63E8BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ Mercury Script — это семейство шрифтов с тремя нас
 ```bash
 magnet:?xt=urn:btih:465F3ACD7D92C2D9A501AC1DBB8661D9646C9C52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

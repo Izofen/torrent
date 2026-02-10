@@ -1,3 +1,29 @@
+###  Публикация: 1217251   (744520) от 03.04.2018
+
+Надежда Мамаева | Академия темных властелинов (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ты сумела переубедить саму госпожу Смерть, и она дала тебе второй шанс, пусть и в новом мире, в ином теле. Думаешь, на этом твои беды закончились? Как бы не так. Оказаться без гроша за душой, когда по пятам идут родственнички, желающие упрятать тебя в сумасшедший дом, – то еще счастье. А довеском к нему – знакомство с безжалостным главой внешней разведки, который (   Читать дальше...   )Жанр: Городское фэнтези, ПопаданцыПродолжительность: 10:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45E03FBF182E404428F5094E6F8DECAFEDE547DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217173   (744529) от 03.04.2018
 
 Андрей Мелехов | Mon Agent (2018) [MP3]
@@ -22,6 +48,8 @@
 magnet:?xt=urn:btih:928C568C34B1B28807C72FB18BBFF4C49333EAE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:928C568C34B1B28807C72FB18BBFF4C49333EAE9
 ```bash
 magnet:?xt=urn:btih:C870DD54733217B259DC9DDBBB6676BFE4A4BAFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +101,8 @@ magnet:?xt=urn:btih:C870DD54733217B259DC9DDBBB6676BFE4A4BAFC
 magnet:?xt=urn:btih:D738AD0EC40F670BFC996B08C9C4016B6B56D899
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:D738AD0EC40F670BFC996B08C9C4016B6B56D899
 magnet:?xt=urn:btih:0D23D13B0EE8721392A8FF291BD0398C0D559858
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:0D23D13B0EE8721392A8FF291BD0398C0D559858
 ```bash
 magnet:?xt=urn:btih:03CDD74FA174D677FA49AC5158A8DE6C6F1453D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:03CDD74FA174D677FA49AC5158A8DE6C6F1453D5
 magnet:?xt=urn:btih:91140B1F1672670F80DBE1B107CBC93E25E49B33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:91140B1F1672670F80DBE1B107CBC93E25E49B33
 ```bash
 magnet:?xt=urn:btih:954FDB72238D383CC575B26B2411E430583371A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:954FDB72238D383CC575B26B2411E430583371A7
 ```bash
 magnet:?xt=urn:btih:D54C3B15B513A570495388050A644D668079F6FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +261,8 @@ magnet:?xt=urn:btih:D54C3B15B513A570495388050A644D668079F6FC
 magnet:?xt=urn:btih:43A212F92E5B50A1A22D0AA27265D28DA2009355
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +286,8 @@ magnet:?xt=urn:btih:43A212F92E5B50A1A22D0AA27265D28DA2009355
 ```bash
 magnet:?xt=urn:btih:F4BF1CAFAC559BD13469A845E02755B2337B3701
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +313,8 @@ magnet:?xt=urn:btih:F4BF1CAFAC559BD13469A845E02755B2337B3701
 magnet:?xt=urn:btih:F2FFFF21F20512E740CAE3423AB85E1C3FC214E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +339,8 @@ magnet:?xt=urn:btih:F2FFFF21F20512E740CAE3423AB85E1C3FC214E2
 magnet:?xt=urn:btih:ED108D84DF2127CB71BF3F5D70DC7044100CFF70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:ED108D84DF2127CB71BF3F5D70DC7044100CFF70
 ```bash
 magnet:?xt=urn:btih:DAD33CC3D4CA3CEF5A6D1876D5963C36FC67C436
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +392,8 @@ magnet:?xt=urn:btih:DAD33CC3D4CA3CEF5A6D1876D5963C36FC67C436
 magnet:?xt=urn:btih:95CF99E526F575DF97E18C98C2D2BBF27434AF51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:95CF99E526F575DF97E18C98C2D2BBF27434AF51
 ```bash
 magnet:?xt=urn:btih:9D6319D6465835D251F9B62F1BCE745FE9CE1C7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:9D6319D6465835D251F9B62F1BCE745FE9CE1C7A
 magnet:?xt=urn:btih:D29A98C2C5BBFC12E1683B61B2896C4E642AF4DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:D29A98C2C5BBFC12E1683B61B2896C4E642AF4DA
 magnet:?xt=urn:btih:908AE333A48043C2BD7346A7B4F212B45ECA83F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:908AE333A48043C2BD7346A7B4F212B45ECA83F1
 ```bash
 magnet:?xt=urn:btih:346D90E42D0C6EA8A384977020C551243CBFE092
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:346D90E42D0C6EA8A384977020C551243CBFE092
 magnet:?xt=urn:btih:584AA7C36DBE73B92568D41AD0205861C1842490
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:584AA7C36DBE73B92568D41AD0205861C1842490
 ```bash
 magnet:?xt=urn:btih:C479287B4B7C1C617EC2FCB8E6565A7E106C40DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +576,8 @@ magnet:?xt=urn:btih:C479287B4B7C1C617EC2FCB8E6565A7E106C40DD
 magnet:?xt=urn:btih:D1C1E9665EED5FC9B6EA20E29F5AE067AA43997D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:D1C1E9665EED5FC9B6EA20E29F5AE067AA43997D
 ```bash
 magnet:?xt=urn:btih:83F518D0B17532B98ED475C9F5E23CB674657BE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:83F518D0B17532B98ED475C9F5E23CB674657BE7
 magnet:?xt=urn:btih:9726E731EA75EB55683FA6A314FA73EEA3A3D57A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:9726E731EA75EB55683FA6A314FA73EEA3A3D57A
 ```bash
 magnet:?xt=urn:btih:EBF5072AD910EB750040A742FBBA891536BAE04F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,29 +680,7 @@ magnet:?xt=urn:btih:EBF5072AD910EB750040A742FBBA891536BAE04F
 magnet:?xt=urn:btih:6D3AB7CD0261755C153A58E3FAF69D4BE35864E8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524174   (746361) от 14.01.2022
-
-Владислав Хапров | Чёрный космос – чёрный флаг (2021) [MP3, Игорь Князев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Через тысячу лет наше время и даже наше ближайшее будущее будет для людей такой же туманной историей как для нас морские походы викингов, кругосветное плавание Френсиса Дрейка или пиратские набеги на Маракайбо и Панаму Генри Моргана. И через тысячу лет наверняка учёные будут так же изучать первые космические полёты, первые полёты к планетам Солнечной системы и первые (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 15:10:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B578ADBF8EB9A307DB206B4F9576CDEEABBEEB0
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ NetLimiter - программа, решающая проблему контро�
 magnet:?xt=urn:btih:5BFF7591E8FD3DCEB20B6E5AA29B14D94C599A3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ XYplorer – удобный многовкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:D2224C3238D736BB0F679CC5BBB6946B12FC9395
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ VA - The Orient Collective: Golden Sand (2024) [FLAC|Lossless|WEB-DL|tracks] <Wo
 magnet:?xt=urn:btih:93C3B433B52B9E44F5E6365A3423626D087E1D71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ VA - Fulltime Production Italo Disco, Vol. 1 (2013) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:AD689B2A13214865CE0D359AE15BF99A1B048CA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:AD689B2A13214865CE0D359AE15BF99A1B048CA4
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ VA - Русская 30-ка хитов 2 (Новые русские песни) 
 magnet:?xt=urn:btih:981C993E25319C090C88DFBAD7CE2DE664BDF6A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:981C993E25319C090C88DFBAD7CE2DE664BDF6A2
 magnet:?xt=urn:btih:C33D859AE4C267BEC7919E070017B5B4A6578AFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:C33D859AE4C267BEC7919E070017B5B4A6578AFD
 ```bash
 magnet:?xt=urn:btih:3FA4C60088BA182CBE9996E6B5F33EA7B966C1F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ Green Grey - The Best (2024) Remastered 2024 [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:7C5A871AC7DA9A9FB6E6015FE8008A10C5F4EFE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:7C5A871AC7DA9A9FB6E6015FE8008A10C5F4EFE5
 magnet:?xt=urn:btih:15004D17621FAD0D52E3524F2F1DD8BF1A66D8B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ Vivaldi 6.7.3329.35 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2E7297CCEC65AA3F3DDABAE3D8226FB026D4CCC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ Mary Gu - luvcore (deluxe) (2024) [FLAC|Lossless|WEB-DL|tracks] <Поп>
 ```bash
 magnet:?xt=urn:btih:1B7168E9A4C2DA27DAFDD8811E7CC88F3A1A1119
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:1B7168E9A4C2DA27DAFDD8811E7CC88F3A1A1119
 magnet:?xt=urn:btih:FD76800EE895F872776FB86706BB1A07849C170F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ Sumatra PDF — мощная, небольшая программа с прос�
 ```bash
 magnet:?xt=urn:btih:76372944BA85D22ADF74AED8439A8CFB4987DC2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +405,8 @@ Q-Dir позволяет получать быстрый доступ к час�
 magnet:?xt=urn:btih:CC68CB02D2CBC38EA1674F976538B857AF64773B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:CC68CB02D2CBC38EA1674F976538B857AF64773B
 ```bash
 magnet:?xt=urn:btih:BC8789E5AAE37B04EA5715BD56D2BCCEC99506E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +460,8 @@ VA - Fulltime Production Italo Disco, Vol. 3 (2013) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:D44ECB26E2EB57409B7F3E27716353A444C7C7E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ FastStone Capture - мощная и многофункциональная пр
 magnet:?xt=urn:btih:65175C7F12F451B865E67AB4DAA019BF72DE8551
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ magnet:?xt=urn:btih:65175C7F12F451B865E67AB4DAA019BF72DE8551
 ```bash
 magnet:?xt=urn:btih:4A21C3A3238AE106FE9BF19692FB5197A1728F22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ Black Sabbath - Evil Eye, Get a Grip (2024) Single [FLAC 24/44.1|Lossless|WEB-DL
 magnet:?xt=urn:btih:3AC602C66E29DE9545E035F48A8FCF32B0A3D7D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ NetLimiter - программа, решающая проблему контро�
 ```bash
 magnet:?xt=urn:btih:E917037FA7CA63F26B016F79C9036869BF79B667
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ Joplin - это бесплатное приложение для создани�
 magnet:?xt=urn:btih:9FF80FA7186C4E6ACCCD91551826FDF82BDD2316
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ magnet:?xt=urn:btih:9FF80FA7186C4E6ACCCD91551826FDF82BDD2316
 ```bash
 magnet:?xt=urn:btih:A4B14BE6C7550020E9D37823627AEFD9F6CD5FFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +644,8 @@ magnet:?xt=urn:btih:A4B14BE6C7550020E9D37823627AEFD9F6CD5FFD
 magnet:?xt=urn:btih:6889383A1747551B2D8D7977EBFCB3A3D57E1556
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:6889383A1747551B2D8D7977EBFCB3A3D57E1556
 magnet:?xt=urn:btih:AF9241EE0131A2F7EEFA7193E71F115EFDFA5FE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ Affinity Publisher - программное обеспечение нового 
 ```bash
 magnet:?xt=urn:btih:F6C94AE4448E70957CBDC908918CB9EADE9E37C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

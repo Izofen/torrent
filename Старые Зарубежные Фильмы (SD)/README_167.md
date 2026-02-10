@@ -1,27 +1,3 @@
-###  Публикация: 1534788   (692464) от 03.03.2022
-
-Дама и её горничная / A Lady and Her Maid (1913) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бог (или природа, кому как нравится) сотворил нас разными. И внешностью в том числе. Кто-то отменно красив, кто-то так себе, ну а кому-то и совсем не повезло. Но женщины в этих вопросах никогда не полагались на случай. Они всегда хотели и умели исправить то, что природа сотворила слишком небрежно. Хоть сейчас, хоть сто лет назад, хоть тысячу. И есть у них замечательное (   Читать дальше...   )Производство: США, Vitagraph Company of AmericaЖанр: Комедия, короткометражный, немое киноРежиссер: Берт АнджелесАктеры: Норма Толмедж, Florence Radinoff, Джеймс Моррисон, Лиллиан Уолкер, Хьюи Мак, Кейт Прайс, Флора ФинчПеревод: Немой с интертитрамиСубтитры: Голландские интертитры, русские отдельным файломПродолжительность: 00:12:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92E580FA8847719636967539DD5AAB6F5A7F9E31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 674344   (692504) от 30.06.2013
 
 Безумный Макс 2: Воин дороги / Mad Max 2: The Road Warrior (1981) BDRip
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:92E580FA8847719636967539DD5AAB6F5A7F9E31
 ```bash
 magnet:?xt=urn:btih:2C593C4391218DBCE3A3089AFA05E68A56362C2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -66,6 +44,8 @@ magnet:?xt=urn:btih:2C593C4391218DBCE3A3089AFA05E68A56362C2D
 ```bash
 magnet:?xt=urn:btih:DC1487EB172BFB3E78A2C3CBD14CAB4EAF2763FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +72,8 @@ magnet:?xt=urn:btih:DC1487EB172BFB3E78A2C3CBD14CAB4EAF2763FC
 magnet:?xt=urn:btih:995A5CC3737D77E41FC567C24B77F882C336A0F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:995A5CC3737D77E41FC567C24B77F882C336A0F7
 ```bash
 magnet:?xt=urn:btih:2FE1A3083016A0D3F6506B55CD30D3895281B605
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +124,8 @@ magnet:?xt=urn:btih:2FE1A3083016A0D3F6506B55CD30D3895281B605
 magnet:?xt=urn:btih:5A5C73663D4797095D5FD38AE92FB455A69BE266
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:5A5C73663D4797095D5FD38AE92FB455A69BE266
 ```bash
 magnet:?xt=urn:btih:35D1564C4A102BD21E0EEFAF886447ED2F8B0B4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +176,8 @@ magnet:?xt=urn:btih:35D1564C4A102BD21E0EEFAF886447ED2F8B0B4B
 magnet:?xt=urn:btih:74A5D1CF748C0CA1A04FEA44014842556790BBB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:74A5D1CF748C0CA1A04FEA44014842556790BBB9
 ```bash
 magnet:?xt=urn:btih:B55E401C0A1D6BF956F2D3F81DB2044A93F2F38C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +228,8 @@ magnet:?xt=urn:btih:B55E401C0A1D6BF956F2D3F81DB2044A93F2F38C
 magnet:?xt=urn:btih:A604F08EC424D9905BB56C1D080AB160566C0C9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:A604F08EC424D9905BB56C1D080AB160566C0C9E
 ```bash
 magnet:?xt=urn:btih:90B56B3C4F86B6F3C34609A70158CE7CB8EFB38F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +280,8 @@ magnet:?xt=urn:btih:90B56B3C4F86B6F3C34609A70158CE7CB8EFB38F
 magnet:?xt=urn:btih:3857BA99A534975C42D8BA1B8D4875FCC1A18FE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:3857BA99A534975C42D8BA1B8D4875FCC1A18FE9
 ```bash
 magnet:?xt=urn:btih:0AA75362B6A98624F370E922C6541349FD51AFED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +333,8 @@ magnet:?xt=urn:btih:0AA75362B6A98624F370E922C6541349FD51AFED
 magnet:?xt=urn:btih:B545F0342A166AF432835742D806EFD447A44903
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +360,8 @@ magnet:?xt=urn:btih:B545F0342A166AF432835742D806EFD447A44903
 magnet:?xt=urn:btih:844195C43913773FD22168B81687315DA929190A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +386,8 @@ magnet:?xt=urn:btih:844195C43913773FD22168B81687315DA929190A
 magnet:?xt=urn:btih:BB5F60E4651AD40C118F4D364365E26D42515457
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +411,8 @@ magnet:?xt=urn:btih:BB5F60E4651AD40C118F4D364365E26D42515457
 ```bash
 magnet:?xt=urn:btih:FE7978ADF21EB5609F824CBB9B07CE94C355DA0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +439,8 @@ magnet:?xt=urn:btih:FE7978ADF21EB5609F824CBB9B07CE94C355DA0B
 magnet:?xt=urn:btih:9FE322583A1185A393E76DFD931EB73E4B4137EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +464,8 @@ magnet:?xt=urn:btih:9FE322583A1185A393E76DFD931EB73E4B4137EA
 ```bash
 magnet:?xt=urn:btih:25B08087012D73BFC0DE548643FF3EBCBCD0BC4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +491,8 @@ magnet:?xt=urn:btih:25B08087012D73BFC0DE548643FF3EBCBCD0BC4B
 magnet:?xt=urn:btih:68BC814B350ED38655FB3C91F825184C992E5B34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +516,8 @@ magnet:?xt=urn:btih:68BC814B350ED38655FB3C91F825184C992E5B34
 ```bash
 magnet:?xt=urn:btih:9B56CE125F8C8EC3C0DDE96934EF9B051C4E4B4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +543,8 @@ magnet:?xt=urn:btih:9B56CE125F8C8EC3C0DDE96934EF9B051C4E4B4C
 magnet:?xt=urn:btih:7DF89C95AC9DB04026FFD04221A5F2D527B6C77B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +568,8 @@ magnet:?xt=urn:btih:7DF89C95AC9DB04026FFD04221A5F2D527B6C77B
 ```bash
 magnet:?xt=urn:btih:54CC9C002DC5EDE8B8826266954EF3FF40E78451
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +595,8 @@ magnet:?xt=urn:btih:54CC9C002DC5EDE8B8826266954EF3FF40E78451
 magnet:?xt=urn:btih:5F035D065130A4B874FC4BD1445B698D758F565A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +621,8 @@ magnet:?xt=urn:btih:5F035D065130A4B874FC4BD1445B698D758F565A
 magnet:?xt=urn:btih:02432624E428BAC4D257535D70BFEF4D4E7847B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +646,34 @@ magnet:?xt=urn:btih:02432624E428BAC4D257535D70BFEF4D4E7847B5
 ```bash
 magnet:?xt=urn:btih:C48084B63F29BB0A43D227D1A5F00B89F5017D2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534218   (697403) от 28.02.2022
+
+Мазурка барона, святой девы и фигового дерева / La mazurka del barone, della santa e del fico fiorone (1975) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Барон Антео Пеллакани возвращается в семейное поместье, чтобы вступить в права наследника. В саду, примыкающем к старинному особняку, растет фиговое дерево, которое, согласно легенде, обладает чудодейственными свойствами. Более того, некоторым даже удавалось увидеть Святую Деву после того, как они прикасались к дереву. Но у барона свои воспоминания: он в юном возрасте (   Читать дальше...   )Производство: Италия / Euro International Film (EIA)Жанр: Драма, КомедияРежиссер: Пупи АватиАктеры: Уго Тоньяцци, Паоло Вилладжо, Делия Боккардо, Джанни Кавина, Джулио Пиццирани, Джанфранко Барра, Люсьенн Камилль, Андреа Маттеуцци, Боб Тонелли, Пина Борионе, Лучио Далла, Патриция Де КлараПеревод: Одноголосый любительский, Н. ЗолотухинСубтитры: ОтсутствуютПродолжительность: 01:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6034B54258EAFF34E397543462893413EB07EF9D
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

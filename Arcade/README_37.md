@@ -19,6 +19,8 @@ MachiaVillain (2018) [Ru/Multi] (1.5) License GOG
 magnet:?xt=urn:btih:76261E75120841875835959842468B655C64E98A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ A Story About My Uncle - это приключенческий платформ�
 ```bash
 magnet:?xt=urn:btih:BE0558EEE4650C149FBA01812D1CA633AC54CF04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:BE0558EEE4650C149FBA01812D1CA633AC54CF04
 magnet:?xt=urn:btih:667305B362F1F1214BEB4CDAEFC3A7F09B15F3F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ One Piece Burning Blood - яркий и динамичный файтинг о �
 ```bash
 magnet:?xt=urn:btih:72665B2A74548F6532173816D92FA9A7BDA41648
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Prehistorik - компьютерная игра компании Titus Interacti
 magnet:?xt=urn:btih:12B914EAF0BA74BCF5858034B08CDD1253F6E26E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Prehistorik 2 - компьютерная игра компании Titus Interac
 ```bash
 magnet:?xt=urn:btih:80BD401D5E05E12F201EE9BF1484B9D39F05B077
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Brigador: Up-Armored Edition (2017) [Ru/Multi] (1.4) Repack Other s
 magnet:?xt=urn:btih:EEC3C7FC69E3FCE8EF10648055B849F9AD3DCDF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Brigador: Up-Armored Edition (2017) [Ru/Multi] (1.4/dlc) License RELOADED
 ```bash
 magnet:?xt=urn:btih:D095EB22C183AA8CD9A1E607A455FF0E382E4565
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ My Friend Pedro (2019) [Ru/Multi] Repack xatab
 magnet:?xt=urn:btih:46C2D0157F6DA03EB8122CD35110E70096DA40C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ One Piece Burning Blood (2016) [Ru/Multi] (1.06) License CODEX
 ```bash
 magnet:?xt=urn:btih:B4789CE9B1074C0A0923A86F66B3A8780D10FEC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Pan-Pan, чудесный пример свободной истории в от
 magnet:?xt=urn:btih:D47B697D89A7C26EB89C9EEE4B2CF9CC0128372F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Shiny (2016) [Ru/Multi] (1.0.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:67459AD930CCDD7E38FC2863EC5A892EC3EE284F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Mega Man X возвращается! Вы Мегамен Икс, преемни�
 magnet:?xt=urn:btih:3EDB3118821C51205770EA2F7727DFF217166024
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Super Bomberman R (2018) [Ru/Multi] (1.1) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:70BABA594DBB1AB2CB7D425F55B2CD4F048B741F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Final Station - увлекательное сочетание аркадно
 magnet:?xt=urn:btih:564355C22CB414DB3C79E1B87249AF77FE2D55A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Blamdown: Udder Fury - это безумный шутер про корову с
 ```bash
 magnet:?xt=urn:btih:901A5289462CB065772DFC4C3702FB028AC2216D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Assault Suit Leynos (2016) [En/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:DB1279159CED232C9E294DBA55B3CCD7D0811C3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Assault Suit Leynos (2016) [En/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:16657242BE6475DF6C3A0C04D8CC48DED465D38D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Worms Anthology (1996-2016) [Ru/Multi] Repack R.G. Механики
 magnet:?xt=urn:btih:BE0C4AFA201A5DD70DF0FB03C25CD089289C2230
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Marvel Ultimate Alliance 2 - это сиквел Marvel Ultimate Alliance. В н
 ```bash
 magnet:?xt=urn:btih:1037C3091703EB4587D5292B6223697A19C45220
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Marvel: Ultimate Alliance (2016) [En] (1.0/upd20160804) License CODEX
 magnet:?xt=urn:btih:75C3BD7B8A541B227EDE39FC979EB8E065A50D88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Cosmo's Cosmic Adventure (1992) [En] (1.20) License GOG
 ```bash
 magnet:?xt=urn:btih:59C151339DAECF402A200B8C8CB61AA625C93A1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Inside - это новая приключенческая хоррор игра 
 magnet:?xt=urn:btih:C036D6F1B077C9CA9C9C94518E2D2D04297AFC92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Inside - это новая приключенческая хоррор игра 
 ```bash
 magnet:?xt=urn:btih:B692DDF7B437EFC0E9C64625E21EFE7A37A55D74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Ultra Street Fighter IV (2014) [Ru/En] (1.05/dlc) Repack Mizantrop1337 [Arcade E
 magnet:?xt=urn:btih:BDACCFCA39D62C94DBD7D04B5EF554D01E1171C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Figment (2017) [Ru/Multi] (1.1.5) License GOG
 ```bash
 magnet:?xt=urn:btih:1E3BF1146E19B1C0BBFEE8FF6EDE3394C55695CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

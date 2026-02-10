@@ -20,6 +20,8 @@ ThisIsMyFile — это небольшая, но эффективная прог
 magnet:?xt=urn:btih:EF2F357C9BC9107DF522BA835309EF120EC11CB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ MX Player Pro v1.63.5 Mod by Balatan, OsitKP [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A3F6CFD7E97440C062AEAA1E8D68E25B99472AFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Corona Renderer - это популярный визуализатор для р
 magnet:?xt=urn:btih:45C03F7894C0CF667D8A750CCECCB81679114234
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ AVS Video Software представляет собой комплект из т�
 magnet:?xt=urn:btih:774B2A898922E971ED7D81C47E038005A53D70D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ ES Проводник (ES File Explorer File Manager) - это очень удо
 ```bash
 magnet:?xt=urn:btih:15732A6DAE6E0D717831948F22056DA343FD66E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ DAEMON Tools Lite - программа для работы с образами �
 magnet:?xt=urn:btih:D46574A422C14B19C06610A06F5250F72F328AAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ R-Studio Network 9.2 Build 191153 RePack (& portable) by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:9247D609270BA09F750C3B36B71AE87D542434CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Wondershare UniConverter - простой в использовании виде
 ```bash
 magnet:?xt=urn:btih:D699E3524A0A96D53F09F1A542A93A2F59937476
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Spotify имеет громадный каталог музыки, поддер�
 magnet:?xt=urn:btih:01B344C43C2876ED9AAEE46FE8C97EA98AFB736C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ MAGIX Vegas PRO — профессиональная программа для �
 ```bash
 magnet:?xt=urn:btih:CF4E8E6E8AE4687CC2B0617D4F18E929C99DD2C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:CF4E8E6E8AE4687CC2B0617D4F18E929C99DD2C4
 magnet:?xt=urn:btih:E7EC2B67BDBCE40EACCD0B7C83E9E8D5D6AB7349
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ R-Studio Technician 9.2 Build 191153 RePack (& portable) by Dodakaedr [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E4FEAE1C17B9975B491A707A3565E9C4658D8996
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ Balabolka 2.15.0.847 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:F95F30C22F20AF430AED427551577A2853E10427
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Ungoogled Chromium - версия веб-браузера Chromium без инт
 magnet:?xt=urn:btih:2447FA4FA5152BEE90E8D1F44FBA63C24079A243
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ MediaHuman YouTube Downloader 3.9.9.82 (1905) RePack (& Portable) by TryRooM [Mu
 ```bash
 magnet:?xt=urn:btih:03D0B49996DC79A22F3BF0B76B8822C25A0D1DFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ ASUS GPU Tweak II - программа для пользователей вид�
 magnet:?xt=urn:btih:4C2C1EAC6DC6B6E7C08D70FC61FF5358F9CAA3CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ WPS Office (Kingsoft Office) Совместим с форматами MS office,
 ```bash
 magnet:?xt=urn:btih:8CA0E08EE088780BD063ECD37B0B9CCC6E3D06A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Bulk Crap Uninstaller (BCUninstaller) - деинсталлятор програ�
 magnet:?xt=urn:btih:C81E3C3065851F1CF20B06CADD2D9BFC82734255
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:2C82A4FBC9FAA19B2AE39A7069CFAA88227B93CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ AOMEI Backupper – программа для создания резервно�
 magnet:?xt=urn:btih:CE5412F8DB0F8021DD55EFC6AEB5157E3F4967EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:1D9990FBC0A5E8E6C722F9A4712DB4A2534E0036
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ DxO PhotoLab Elite 6.6.1 build 199 RePack by KpoJIuK [Multi]
 magnet:?xt=urn:btih:8F7DD51A76D2CE3702A5CBE0080CD708454E4A63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:8F7DD51A76D2CE3702A5CBE0080CD708454E4A63
 ```bash
 magnet:?xt=urn:btih:A5ED48110764D38484E2F8FA615382C042C36B01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:A5ED48110764D38484E2F8FA615382C042C36B01
 magnet:?xt=urn:btih:5F2E0DBF3B7F9AE23D9447D49014FB7DEE79A164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ CCleaner - утилита для чистки мусора в операцион
 magnet:?xt=urn:btih:060CA15E0523F0608606499699F67DB3E882633D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ The KMPlayer – это мощный мультимедиа проигрыват
 ```bash
 magnet:?xt=urn:btih:8FF8899CBF51B2BC6EDB10A7ECB18159BEC844A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

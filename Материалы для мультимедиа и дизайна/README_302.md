@@ -1,3 +1,139 @@
+###  Публикация: 1287463   (703477) от 07.03.2019
+
+Стили  - DeviantArt - Marble styles 3 - 272131360 [ASL]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные стили для Photoshop.
+Автор:LyottaФормат: ASL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86EF9AB97CAE26789D4ECEC74846408F933115C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287442   (703478) от 07.03.2019
+
+Орнаменты - DeviantArt - Marble B Patterns - 105490582 [PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные бесшовные орнаменты.
+Автор: silver-Формат: PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2CEEB32455100CBD5CCAC4B83FCD5CB58DABE69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402098   (703524) от 13.08.2020
+
+Растровый клипарт - The Hungry JPEG - Halloween overlay & Pumpkin clipart - 3812257 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хэллоуин клипарт, Наложение для Фотошопа, кошки, черепа, тыквы.Формат: PNGРазрешение файлов: 480x2554-4700x2594
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28DCB86CCD0A4F4BADBFB4F886471A7F7EE0064B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402183   (703529) от 13.08.2020
+
+Векторный клипарт - Super dinosaur and other heroes funny cartoon illustration [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Супер динозавры и другие герои
+9 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D3C05E5FFB7B83952E92D1A1195B9AE4211EC5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402171   (703532) от 13.08.2020
+
+Векторный клипарт - Dinosaur by car and airplane watercolor illustrations [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Мультяшные динозавры
+9 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F92C497A962F2673D949431119F6AA761A5B7ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402139   (703537) от 13.08.2020
 
 Растровый клипарт - Crystal & Gemstone Scene Creator [PNG, JPG]
@@ -18,6 +154,8 @@
 ```bash
 magnet:?xt=urn:btih:1AE29C8D46F3311B18F0CD8B8FF08942C9BAE242
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +182,8 @@ magnet:?xt=urn:btih:1AE29C8D46F3311B18F0CD8B8FF08942C9BAE242
 magnet:?xt=urn:btih:77E9085409F6AD2EF8C50223C5117D31B699BFBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +209,8 @@ magnet:?xt=urn:btih:77E9085409F6AD2EF8C50223C5117D31B699BFBC
 magnet:?xt=urn:btih:F2F0CAC208F9E44A7B8564AB612C29A49EF5FCB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +235,8 @@ magnet:?xt=urn:btih:F2F0CAC208F9E44A7B8564AB612C29A49EF5FCB9
 ```bash
 magnet:?xt=urn:btih:73DC555665816B5E035DBFF9401140ADD7A66E0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +264,8 @@ magnet:?xt=urn:btih:73DC555665816B5E035DBFF9401140ADD7A66E0B
 magnet:?xt=urn:btih:CBAE6A6A19886C9F202284B50584AEF0D5892982
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +291,8 @@ magnet:?xt=urn:btih:CBAE6A6A19886C9F202284B50584AEF0D5892982
 ```bash
 magnet:?xt=urn:btih:6E7B6328EB45B9CBEF5788F90312EF8D66FBF0DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +320,8 @@ magnet:?xt=urn:btih:6E7B6328EB45B9CBEF5788F90312EF8D66FBF0DE
 magnet:?xt=urn:btih:8397372FF3F85CFFBB1DD21BBCEEBE4CFFE5F008
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +348,8 @@ magnet:?xt=urn:btih:8397372FF3F85CFFBB1DD21BBCEEBE4CFFE5F008
 magnet:?xt=urn:btih:8A1E60B815264D9641B14773003EC0E2E8A7936A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +373,8 @@ magnet:?xt=urn:btih:8A1E60B815264D9641B14773003EC0E2E8A7936A
 ```bash
 magnet:?xt=urn:btih:38B88149AFF6EE33732D7A0AF75771A181E29A8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +400,8 @@ BOOM Library Guns Construction Kit представляет первую в ми
 magnet:?xt=urn:btih:2378F8D646F8E335C4C127DBC5564F8ECEBA156C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +425,8 @@ Boom Library - CREATURES [WAV]
 ```bash
 magnet:?xt=urn:btih:25E9639EB4BBDE8E74AA69378DC60962A7F9695B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +454,8 @@ magnet:?xt=urn:btih:25E9639EB4BBDE8E74AA69378DC60962A7F9695B
 magnet:?xt=urn:btih:0AD8E05EE1773F86EF8A38FF917044336F983C54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +479,8 @@ Eclipse - экшен для Вашего творчества.Формат: ATN,
 ```bash
 magnet:?xt=urn:btih:A883741F979966C3B089FBB3D06698EF80CDA33A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +506,8 @@ Dark Gothic - экшен для Вашего творчества.Формат: 
 magnet:?xt=urn:btih:8C6F22B8317ABD8C202AD2F0DF005E54BB4F1472
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +531,8 @@ magnet:?xt=urn:btih:8C6F22B8317ABD8C202AD2F0DF005E54BB4F1472
 ```bash
 magnet:?xt=urn:btih:F81FFD51850082EAD12C461AB68846E30A94F96F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +558,8 @@ magnet:?xt=urn:btih:F81FFD51850082EAD12C461AB68846E30A94F96F
 magnet:?xt=urn:btih:98E7468FDDDBBC1197D1239D94C0F2244110A05B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +583,8 @@ magnet:?xt=urn:btih:98E7468FDDDBBC1197D1239D94C0F2244110A05B
 ```bash
 magnet:?xt=urn:btih:4F62E0837F5A850387F90E70308F10A43DAEB6E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +612,8 @@ magnet:?xt=urn:btih:4F62E0837F5A850387F90E70308F10A43DAEB6E6
 magnet:?xt=urn:btih:41C45C9D983E686F38E3E2142E8FC755FEC4D5CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +639,8 @@ magnet:?xt=urn:btih:41C45C9D983E686F38E3E2142E8FC755FEC4D5CC
 ```bash
 magnet:?xt=urn:btih:3BDC761CF0CF8622A388E6BAFA216BE3C79FA424
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +668,8 @@ magnet:?xt=urn:btih:3BDC761CF0CF8622A388E6BAFA216BE3C79FA424
 magnet:?xt=urn:btih:71397EF5DBFEF234EBBAD770786308BF60280AC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,127 +696,7 @@ magnet:?xt=urn:btih:71397EF5DBFEF234EBBAD770786308BF60280AC8
 magnet:?xt=urn:btih:B3080920D9C4714A6267F5687F067C997EC3C066
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220396   (704409) от 19.04.2018
-
-Векторный клипарт - Vector Money Collection #2 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Деньги
-25 AI + previewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51D1B72CAD04010185E4E4EF7792E69F59B21CF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026244   (705479) от 14.06.2016
-
-Экшены - GraphicRiver - Caricature Photoshop Action [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экшн для создания карикатур в программе фотошоп.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56E6EAB5663EF7B366826C8DD816A3C3394B3844
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026287   (705763) от 14.06.2016
-
-Экшены - GraphicRiver - Clean Sketch - Sketch Photoshop Action [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чистый эскиз - набросок - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B149589DBA0FD9F56EF10C091B94B35A90F4CB87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026298   (705862) от 14.06.2016
-
-Экшены - GraphicRiver - Gorgeous Grunge Photoshop Action [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gorgeous Grunge - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42CE0D72CA4EC7E9A985C1AFE47915F391FBF5E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 894362   (706500) от 02.05.2015
-
-Растровый клипарт - Image Source (282 диска) [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из самых крупных производителей фотостоков. В его коллекции огромное количество дисков. В этой раздаче представлены 40 дисков из серии Electra Vision и 242 диска из основной серии Image Source.Формат: JPGРазрешение файлов: 3476x5400 – 4353x5700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD385DB1A9806AAD73E12207795B54C8208C5A7D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

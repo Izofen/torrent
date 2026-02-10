@@ -19,6 +19,8 @@ Jusant (2023) [Ru/Multi] (1.02.1431188) Repack Other s
 magnet:?xt=urn:btih:B284EE092B52193C5543365AD9F194371EF7DA39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ AirportSim - это передовой симулятор, который поз
 ```bash
 magnet:?xt=urn:btih:0AB7F8E8C3723736C7F7DBF252CFD3E8095B2226
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Hamster on Rails – приключение с хомяком-строителе
 magnet:?xt=urn:btih:664307A4AB81DBA4DECE9B459D4118ACEEF45B9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Mysterium: Lake Bliss / Мистериум: Озеро счастья (2013) [Ru
 ```bash
 magnet:?xt=urn:btih:22BE352FD420DF7A01564559334C8CC9E0AEE0DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Timelie (2020) [Ru/Multi] (1.2.4/dlc) License GOG
 magnet:?xt=urn:btih:4F5ACF8DBE88C6CEDEC397B3EC2610C9CCB9AE0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Arkanoid - Eternal Battle (2022) [Ru/Multi] (1.1.24/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:852DEF8F740FED2D750E822974A8E90ABF649AFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Oaken (2023) [Multi] (1.1.2/dlc) Scene Tenoke
 magnet:?xt=urn:btih:B2672BAF5E386E3A01F8788846C69F25C7B94C4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Christmas Fables: Holiday Guardians (2022) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:28B324D36FED180AFEC899C90DDADD6A22C6F91C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Christmas Wonderland 11 (2020) [En] (1.0) Unofficial [Collector's Edition]
 magnet:?xt=urn:btih:693FD5C0CDDBF6157BCDCE34BF69DDD415842F70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Vladimir Putin Style (2019) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:1E9E9535D2C39CE5D3FDE5C943FBAAEA9142F177
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Gamedec – изометрическая RPG в жанре киберпанк д
 magnet:?xt=urn:btih:04B328485534B59648222997FE0F410641E20FEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Terminator: Resistance – шутер от первого лица во врем
 ```bash
 magnet:?xt=urn:btih:DBFA32DA11DBFEF83A4A67F6EDFA7CA4E359B380
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Book Travelers: A Victorian Story / Книжные Странники: Викт�
 magnet:?xt=urn:btih:76BECA7FEF45B19056E30CBD795BA567B8B4E3CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Ghostrunner 2 (2023) [Ru/Multi] (39734.9/dlc) Repack Other s [Brutal Edition]
 ```bash
 magnet:?xt=urn:btih:B4AE18A6EDF0D39655A3763803D78DBE527295C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ INMOST от литовской инди-студии Hidden Layer Games – эт
 magnet:?xt=urn:btih:98D5E1C69335A52C4ED145CD10140542D20F68C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Laika: Aged Through Blood – вдохновлённая вестернами р
 ```bash
 magnet:?xt=urn:btih:FEB7B5E799038C5185B5ADBF86539AA2A53A4879
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Legacy: Witch Island 4 Last Bastion (2022) [En] (1.0) Unofficial
 magnet:?xt=urn:btih:11721DDB4B45F506237190DCFAED6DE0A117D45D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Faraday Protocol (2021) [Ru/Multi] (1.0.2) License GOG
 ```bash
 magnet:?xt=urn:btih:7943967A00D1155E4F6912C4D0F62EB5B55C5AAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ The Beast Inside (2019) [Ru/Multi] (1.03) Repack xatab
 magnet:?xt=urn:btih:8B69BB2A1F2347C3306D61B25CA6807C234DA31A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Ashen – это кооперативный экшн-RPG c открытым ми
 ```bash
 magnet:?xt=urn:btih:46797F44210A6E39E3EFF7980DE56A5BE9856892
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Wavetale (2022) [Ru/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:B55C637DE12F3FFFD0B9981ABC3EC30FB9AF6253
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Choo-Choo Charles (2022) [Ru/Multi] (1.0.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:DB184BDC433544F7B5260D15A253BB4EA14208CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Wavetale (2022) [Ru/Multi] (1.0) License GOG
 magnet:?xt=urn:btih:AF0369654758B2A4C1E3C9DC0A7C7F4322A6A987
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Out Of Time (2022) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:2A0262DD30A93B65CBFFC5F329356D2590AD064D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Yesterday Origins (2016) [Ru/Multi] (1.0) License GOG
 magnet:?xt=urn:btih:A2CC0913CCE3E9C425F189AF3CE2D602616DCDC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Haunted Legends 15: The Scars of Lamia / Легенды о призраках 15
 ```bash
 magnet:?xt=urn:btih:87E7BE57538296B497E0994BE2E7560815D3E369
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

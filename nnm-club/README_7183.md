@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:1C601B6D864FB981D0FD3F34E860042F8DA80AD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Heaven's Edge - Get It Right (2023) Japanese Edition [FLAC|Lossless|image + .cue
 magnet:?xt=urn:btih:3F122570A918775B9CC2096C27CC68AE54924689
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ SnippetsLab 1.8.2 [En]
 ```bash
 magnet:?xt=urn:btih:4903E74CEC7412B80EFD68403DCB8179CE4066C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:4903E74CEC7412B80EFD68403DCB8179CE4066C5
 magnet:?xt=urn:btih:C0F5B10D00FB9B1FD7023D29E4DD6DE158E43880
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ VA - Simply the Best 80's (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, Other
 magnet:?xt=urn:btih:019C2B8684985180A66CD006A3B081EF067EBF39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:019C2B8684985180A66CD006A3B081EF067EBF39
 magnet:?xt=urn:btih:B70A7057FDE2E55621287ABEF7FCE4F8CAF5DC47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ SRWare Iron 78.0.4050.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2441AE2E767161B22C4FCA3542F2EA203EBC758F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ VA - New Music Releases Week 49 of 2018 (2018) [MP3|320 Kbps] <Electro>
 magnet:?xt=urn:btih:2BD76E284411EA3FCF5CBE12D6BAC3C64382AFE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:2BD76E284411EA3FCF5CBE12D6BAC3C64382AFE4
 ```bash
 magnet:?xt=urn:btih:1618D6AB78B64541F196A3451F8E158AA1B02AF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ Vypera - Race Of Time (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 magnet:?xt=urn:btih:5DEAF814D5166A6CB5FA1A548E6A850F88C322BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:5DEAF814D5166A6CB5FA1A548E6A850F88C322BD
 ```bash
 magnet:?xt=urn:btih:88032E37BC7EA1F4BF13A0D489E5A36BBADDA27C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:88032E37BC7EA1F4BF13A0D489E5A36BBADDA27C
 magnet:?xt=urn:btih:AAD7789729B52D71D750F3433CD66CEF4A806F10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ VA - Psytrance 2020: Top 100 Hits DJ Mix (2019) [MP3|320 Kbps] <PsyTrance, Psych
 ```bash
 magnet:?xt=urn:btih:84731215B6662AEC1766FA397C0D017203CCFADE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +382,8 @@ VA - German Top 50 Party Schlager Charts 17.12.2018 (2018) [MP3|320 Kbps] <Pop, 
 magnet:?xt=urn:btih:9E72306227100739DFC04072B1A73EF608C9CC3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ magnet:?xt=urn:btih:9E72306227100739DFC04072B1A73EF608C9CC3C
 ```bash
 magnet:?xt=urn:btih:03797F8F30F8477FBC209978C9A0130932CBB471
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +434,8 @@ magnet:?xt=urn:btih:03797F8F30F8477FBC209978C9A0130932CBB471
 magnet:?xt=urn:btih:66DECC61499556D0F305E78317865F520A0552E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +460,8 @@ magnet:?xt=urn:btih:66DECC61499556D0F305E78317865F520A0552E2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ magnet:?xt=urn:btih:66DECC61499556D0F305E78317865F520A0552E2
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ GNP - Safety Zone (1989) Reissue, Remastered, 2023, MelodicRock Classics [FLAC|L
 magnet:?xt=urn:btih:FAC62E14C8D8D51CDB281981FC2A33D1490EA90A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ magnet:?xt=urn:btih:FAC62E14C8D8D51CDB281981FC2A33D1490EA90A
 ```bash
 magnet:?xt=urn:btih:386922EAEF6433BC9BE0D9A337E8AE5640317F71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +567,8 @@ magnet:?xt=urn:btih:386922EAEF6433BC9BE0D9A337E8AE5640317F71
 magnet:?xt=urn:btih:552A8EB4F8CF5BE0976D5012B877D6208FD2255B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +592,8 @@ magnet:?xt=urn:btih:552A8EB4F8CF5BE0976D5012B877D6208FD2255B
 ```bash
 magnet:?xt=urn:btih:AA5630E1107F3770690FCEB0A25930924E6BFC2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +622,8 @@ Brzzvll - Waiho (2018) Sdban Records [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz
 magnet:?xt=urn:btih:3DF5F68ADE05F8690D3390E6C99977070344BD3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +651,8 @@ Later Sons - Rise Up (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR
 magnet:?xt=urn:btih:7E62BC8525D8E61131BCED2C1B33EA5E1D191359
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +677,8 @@ magnet:?xt=urn:btih:7E62BC8525D8E61131BCED2C1B33EA5E1D191359
 ```bash
 magnet:?xt=urn:btih:2C67E3A5B74D17DBC5C6B8DF31C999747B4784AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -656,6 +706,8 @@ Naono - Discography 5 Releases + Оutside & Remixes (2008-5015) [MP3|192-320 к�
 ```bash
 magnet:?xt=urn:btih:A9F831FE5901838109ADDC5B7D8B3A21D33D1043
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Valfaris: Mecha Therion является продолжением игры Ва�
 magnet:?xt=urn:btih:0917BEC435B81EB3C5FAFD47D7CA8B1E4E9C9C56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Daylight (2014) [Ru/Multi] (Build 432586/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:0A1C5F49A5A0CF74DA66F2833BBE4AF2367FBEDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Zuma Star Wars / Зума: Звездные войны (2007) [En] (1.0) Unoffic
 magnet:?xt=urn:btih:850A1D796FD8FE87941384955037B58BC47FC593
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Sine Mora – инновационный шутер, совмещающий в �
 ```bash
 magnet:?xt=urn:btih:3332292996884AE0F42F435F83B4DC7568692D45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Alien Shooter 2 - Reloaded - это полномасштабное продол�
 magnet:?xt=urn:btih:050CF2FDB7416AE1D45EEA1A740905E6143279C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Knights of Honor 2: Sovereign – стратегия в реальном вре�
 ```bash
 magnet:?xt=urn:btih:B2013CB94011E497A73044E0E74D7C13B67C2AFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Dungeon Golf, объединяющая мини-гольф и подземель
 magnet:?xt=urn:btih:BDA18E6BB32E2DCFE5D3778F5A5D39DB9B216740
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Cat Quest - замуррчательная РПГ, чье действие пр�
 ```bash
 magnet:?xt=urn:btih:726FF8BBBCDD463C613E002F1498249F407EA1FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ TE120 – короткая одиночная игра во вселенной H
 magnet:?xt=urn:btih:3CF346437590212AD714F29D08F9034E07E5691A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Mystery Trackers 17: The Secret of Watch Hill (2019) [En] (1.0) Unofficial [Coll
 ```bash
 magnet:?xt=urn:btih:ECD0240A8C4AB39BCB047F546154CD95DFE2DB39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Livelock — многопользовательский аркадный шут�
 magnet:?xt=urn:btih:27B16EB63E9A9EED86D926628E45A32E32CADFD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Bladed Fury (2018) [En/Ch/Jp] (1.0.1819) License CODEX
 ```bash
 magnet:?xt=urn:btih:959FB1D151D945A8BA623BB30DF46522297D6B28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Amnesia: The Dark Descent – приключенческая игра с вид�
 magnet:?xt=urn:btih:77D47375934E28A3BDFBCC83A4A67B27C1E1ECE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Aven Colony (2017) [Ru/Multi] (1.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:2FE558665AD414F209AA91EB4EF8E15C31865A4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Cave — новая приключенческая игра от автор�
 magnet:?xt=urn:btih:49DFD9D150F94660AEEEC8065FDDC8B2CA999952
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Elven Legacy / Кодекс войны: Высшая раса (2009) [En] (1.0.9
 ```bash
 magnet:?xt=urn:btih:B1744F3CA45C1052370AED98C6DAF29D0C6CEB50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Californium (2016) [Multi] (1.04) License GOG
 magnet:?xt=urn:btih:0FB07B2E44F9E87A2EE12525F840576753F49FB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ NotGTAV это самая настоящая покадровая змейка. 
 ```bash
 magnet:?xt=urn:btih:611548D639A38B0A161DDE7B97FA1530238C4570
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Lost Grimoires: Stolen Kingdom / Утерянные Гримуары: Краде
 magnet:?xt=urn:btih:FD29B5C05ED3E64C43F06A76C43091C7526D7B14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Chimeras 3: Cursed and Forgotten / Химеры 3: Проклятые и заб�
 ```bash
 magnet:?xt=urn:btih:25C9A4CC8229ABF51054B724A7F93847B69FBF61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Monster Jam Steel Titans (2019) [Ru/Multi] (1.4.0/dlc) Repack Mr_Weegley
 magnet:?xt=urn:btih:5C7A301B78E67FAAE587925ED98C5F5E2C73CC37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ The Secret Order 8: Return to the Buried Kingdom (2018) [En] (Beta) Unofficial
 ```bash
 magnet:?xt=urn:btih:936F18E20DA28F33375B1157366359E8CA694A2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Nerved – игровой проект, представленный в стил
 magnet:?xt=urn:btih:22EA8B1F30CA6F12722E91B032597E14A657BC4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ The Kindeman Remedy (2023) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:9B52E3EE1656F103C86B306A19366EEA505EC273
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Kerbal Space Program (2015) [Ru] (1.11.0.03045/dlc) Repack xatab (обновля
 magnet:?xt=urn:btih:F18B36125C3D150487E74DE4DE5AB52E5C83B04A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Asterix & Obelix XXL 2 (2018) [Ru/Multi] (0.43) License GOG
 ```bash
 magnet:?xt=urn:btih:53EDDA158A8AC3BB2431B7435B827CE7020F62F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

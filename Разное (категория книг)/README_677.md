@@ -1,3 +1,29 @@
+###  Публикация: 985709   (933980) от 12.02.2016
+
+Сергей Кашин | Фермерское хозяйство. Доступное и успешное (2015) [FB2]
+
+>>Разное (категория книг)
+>>Сад, огород, животноводство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_933980.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие из нас задумываются о том, чтобы перебраться из шумного города на загородные просторы. Но как в максимально короткие сроки обустроить участок и начать получать прибыль? В этой книге мы расскажем вам как быстро и без лишних затрат стать успешным фермером!Жанр: Сад и Огород, Дом и СемьяФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52AB7030396081125FBFDDC138B55B97544A0DBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 285235   (933984) от 22.01.2011
 
 сост. С. И. Сулькевич | Весь мир в цифрах на карточках. Основные социально-экономические показатели для всех стран мира [1931] [JPEG, DJVU]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:B4AD24195A0F2762AB363C810A2A67DF8058F9A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:B4AD24195A0F2762AB363C810A2A67DF8058F9A2
 magnet:?xt=urn:btih:CB31DF9F99E3AF0D06478B02A81F43F91136D362
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:CB31DF9F99E3AF0D06478B02A81F43F91136D362
 ```bash
 magnet:?xt=urn:btih:7578D0DF2C861B1D8388829EF7ADCDB082B86648
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:7578D0DF2C861B1D8388829EF7ADCDB082B86648
 magnet:?xt=urn:btih:75C71F3FF883399981D70C6812B6BDE97933828C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:75C71F3FF883399981D70C6812B6BDE97933828C
 magnet:?xt=urn:btih:F9FD7405B418A18337F384AC0BBC6170DF2833D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:F9FD7405B418A18337F384AC0BBC6170DF2833D4
 ```bash
 magnet:?xt=urn:btih:8D061B1AB3C7F31F3486287CA84FF320278A714D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +207,8 @@ magnet:?xt=urn:btih:8D061B1AB3C7F31F3486287CA84FF320278A714D
 magnet:?xt=urn:btih:68CDBB220673B5570EDB0FBD31C4E5B505D58FBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +234,8 @@ magnet:?xt=urn:btih:68CDBB220673B5570EDB0FBD31C4E5B505D58FBD
 magnet:?xt=urn:btih:A3E2ED171DC578090DAD13BE7D28F52737640D7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +259,8 @@ magnet:?xt=urn:btih:A3E2ED171DC578090DAD13BE7D28F52737640D7E
 ```bash
 magnet:?xt=urn:btih:2072C1DB7E105D5B5F6142CD3A71483E6EDD2059
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +286,8 @@ magnet:?xt=urn:btih:2072C1DB7E105D5B5F6142CD3A71483E6EDD2059
 magnet:?xt=urn:btih:3A9F2144A0AC06CB8EE827D1E74CA50FDD383A28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:3A9F2144A0AC06CB8EE827D1E74CA50FDD383A28
 magnet:?xt=urn:btih:B0FAE8F5EE88251EA1E77ACB1F936A9A973EA551
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:B0FAE8F5EE88251EA1E77ACB1F936A9A973EA551
 ```bash
 magnet:?xt=urn:btih:E5C612A13D910855B93305F2BDE31A93006C8390
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:E5C612A13D910855B93305F2BDE31A93006C8390
 magnet:?xt=urn:btih:A7BFCC755C2082C315A00F4EBB7E11601EB89074
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:A7BFCC755C2082C315A00F4EBB7E11601EB89074
 ```bash
 magnet:?xt=urn:btih:DAD69FC8D0829E26157841AA75A6F32A9C63EDF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +420,8 @@ magnet:?xt=urn:btih:DAD69FC8D0829E26157841AA75A6F32A9C63EDF9
 magnet:?xt=urn:btih:CFB36057946481AED09CC550A67F4643D58453DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +445,8 @@ magnet:?xt=urn:btih:CFB36057946481AED09CC550A67F4643D58453DD
 ```bash
 magnet:?xt=urn:btih:BA3705B8AF889180C9C76424910DD0445E1F9BD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +472,8 @@ magnet:?xt=urn:btih:BA3705B8AF889180C9C76424910DD0445E1F9BD4
 magnet:?xt=urn:btih:0C177D774F665D3B49A47DC2FCD38D37215101C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:0C177D774F665D3B49A47DC2FCD38D37215101C9
 ```bash
 magnet:?xt=urn:btih:04E9F59EDDCAD1761076AAF991F6C732B9AE1423
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +526,8 @@ magnet:?xt=urn:btih:04E9F59EDDCAD1761076AAF991F6C732B9AE1423
 magnet:?xt=urn:btih:5076843F9D80EB4A664977C6428E52E2DC910472
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +553,8 @@ magnet:?xt=urn:btih:5076843F9D80EB4A664977C6428E52E2DC910472
 magnet:?xt=urn:btih:B758D555594CAD98FED6075807470258E4E022D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +578,8 @@ magnet:?xt=urn:btih:B758D555594CAD98FED6075807470258E4E022D9
 ```bash
 magnet:?xt=urn:btih:6F837CA6BB1A5367417E1F01B43BBB56733397E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +606,8 @@ magnet:?xt=urn:btih:6F837CA6BB1A5367417E1F01B43BBB56733397E3
 magnet:?xt=urn:btih:6CC8C4FD074CCB8999E2612BB4648CC61103203A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +633,8 @@ magnet:?xt=urn:btih:6CC8C4FD074CCB8999E2612BB4648CC61103203A
 ```bash
 magnet:?xt=urn:btih:7C65E310C8B4BD89A77AD7584D34D09C126F89A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +663,8 @@ magnet:?xt=urn:btih:7C65E310C8B4BD89A77AD7584D34D09C126F89A4
 magnet:?xt=urn:btih:3BFF9DEFB17BDD401564E5357DBD3C363015C247
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,29 +689,7 @@ magnet:?xt=urn:btih:3BFF9DEFB17BDD401564E5357DBD3C363015C247
 magnet:?xt=urn:btih:899A612DDD110A1860F44473A37258B59E1B6C8B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364630   (934654) от 04.03.2020
-
-А. Братушева (ред.) | Рецепты на каждый день за 10, 20, 30 минут (2014) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встать пораньше, чтобы перед уходом на работу мужа, детей в школу успеть сообразить им быстрый завтрак. Приготовить обед для тех, кто питается дома. А вечером – успеть накрыть стол для уставших, проголодавшихся членов семьи. Что приготовить завтра? Что купить сегодня? Как успеть вовремя приготовить вкусный завтрак, обед или ужин? Наша книга облегчит вам решение этих (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99EA421EAEDF276457167E33F7F592AAA15666DC
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

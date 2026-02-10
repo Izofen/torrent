@@ -1,51 +1,3 @@
-###  Публикация: 358504   (583647) от 04.07.2011
-
-[Картинки] Позитивные фотографии животных )))
-
->>Графика, Арт, Разное
->>Интернет-творчество
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очень позитивные фотографии животных-сборник ))
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8E96E407F37C3157055465B63C987B454AC9D9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358479   (583786) от 04.07.2011
-
-[Картинки] Демотиваторы "100" №8
-
->>Графика, Арт, Разное
->>Интернет-творчество
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая подборка прикольных демотиваторов поднимет вам настроение.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FDA196EE0F61EAD498939ED6E070DF0361295F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1301712   (584070) от 12.05.2019
 
 Картинки - Computer Desktop Wallpapers Collection 2085 [JPG]
@@ -66,6 +18,8 @@ magnet:?xt=urn:btih:8FDA196EE0F61EAD498939ED6E070DF0361295F4
 ```bash
 magnet:?xt=urn:btih:D9EC981B987A4F4D045DB36C88FF72F54A3E246D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +45,8 @@ magnet:?xt=urn:btih:D9EC981B987A4F4D045DB36C88FF72F54A3E246D
 magnet:?xt=urn:btih:7BA5A31852DFEAB7E0D181A784C84A43FAB6E1E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +70,8 @@ magnet:?xt=urn:btih:7BA5A31852DFEAB7E0D181A784C84A43FAB6E1E7
 ```bash
 magnet:?xt=urn:btih:19B64A0B083DF8B4B38FDFEE822D1E1A799B4BAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +97,8 @@ magnet:?xt=urn:btih:19B64A0B083DF8B4B38FDFEE822D1E1A799B4BAA
 magnet:?xt=urn:btih:F437F9398100E3BCA3749A4CBC5FE2CA1BB7FF28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +123,8 @@ magnet:?xt=urn:btih:F437F9398100E3BCA3749A4CBC5FE2CA1BB7FF28
 magnet:?xt=urn:btih:7C44C61CAE1E8511622906630131C14309DDCFDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +148,8 @@ magnet:?xt=urn:btih:7C44C61CAE1E8511622906630131C14309DDCFDD
 ```bash
 magnet:?xt=urn:btih:5ADB7C1AA551D2BDD7D85C9E1ED1220FC3FBCB09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +176,8 @@ magnet:?xt=urn:btih:5ADB7C1AA551D2BDD7D85C9E1ED1220FC3FBCB09
 magnet:?xt=urn:btih:C789DFC036577F74ECCECE716611F90078B174E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +201,8 @@ magnet:?xt=urn:btih:C789DFC036577F74ECCECE716611F90078B174E2
 ```bash
 magnet:?xt=urn:btih:F581A01BC62250557F4DA7CB238361CFB6CDA732
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +228,8 @@ magnet:?xt=urn:btih:F581A01BC62250557F4DA7CB238361CFB6CDA732
 magnet:?xt=urn:btih:18137624C239CDE6157148811C652EF935B12EC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +253,8 @@ magnet:?xt=urn:btih:18137624C239CDE6157148811C652EF935B12EC1
 ```bash
 magnet:?xt=urn:btih:D768E08A659052D11BC129D46ACF02127BE47FC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +280,8 @@ magnet:?xt=urn:btih:D768E08A659052D11BC129D46ACF02127BE47FC8
 magnet:?xt=urn:btih:97ECB38EE86BE00945BA9899F01FD8F0BB1AB522
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +305,8 @@ magnet:?xt=urn:btih:97ECB38EE86BE00945BA9899F01FD8F0BB1AB522
 ```bash
 magnet:?xt=urn:btih:B78F4DFBB97A738F6A1F0F977E75291F4B511BE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +332,8 @@ magnet:?xt=urn:btih:B78F4DFBB97A738F6A1F0F977E75291F4B511BE2
 magnet:?xt=urn:btih:3BB55373A1946570C2779B5EA494F320D639076D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +357,8 @@ magnet:?xt=urn:btih:3BB55373A1946570C2779B5EA494F320D639076D
 ```bash
 magnet:?xt=urn:btih:4D2C303E2410562D2DC570066D4AD3362C0852E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +385,8 @@ magnet:?xt=urn:btih:4D2C303E2410562D2DC570066D4AD3362C0852E8
 magnet:?xt=urn:btih:AB0D88EE936B2BCE6554A53DD144BC97E6A901D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +412,8 @@ magnet:?xt=urn:btih:AB0D88EE936B2BCE6554A53DD144BC97E6A901D4
 magnet:?xt=urn:btih:6509E9C7ED3DE4191E5039D10BB6D0CA2F1E1339
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +437,8 @@ Wallpapers - Ретро автомобили 1920-1970 [JPEG]
 ```bash
 magnet:?xt=urn:btih:ABDBD1C84641ADC8075C830E908F5F832245E50C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +464,8 @@ magnet:?xt=urn:btih:ABDBD1C84641ADC8075C830E908F5F832245E50C
 magnet:?xt=urn:btih:A0FA28B9F65DCD02C0B4B9396231D51027350E7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +489,8 @@ magnet:?xt=urn:btih:A0FA28B9F65DCD02C0B4B9396231D51027350E7B
 ```bash
 magnet:?xt=urn:btih:34A045EC87C85E6E55ECBB08A1E1155AC0AB13E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +516,8 @@ magnet:?xt=urn:btih:34A045EC87C85E6E55ECBB08A1E1155AC0AB13E9
 magnet:?xt=urn:btih:0758D598DF62943803ADC2D89E99D236AE39A6C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +542,8 @@ magnet:?xt=urn:btih:0758D598DF62943803ADC2D89E99D236AE39A6C1
 magnet:?xt=urn:btih:0401238251B43250C9484C26C3EA882F7E4176C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +567,8 @@ magnet:?xt=urn:btih:0401238251B43250C9484C26C3EA882F7E4176C4
 ```bash
 magnet:?xt=urn:btih:F1AD3D744D13DE219588A08383FB63A9AFFE2837
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +597,8 @@ magnet:?xt=urn:btih:F1AD3D744D13DE219588A08383FB63A9AFFE2837
 magnet:?xt=urn:btih:73BF6F7DEC9E0792AEBB1C8A459B8CE22791E7ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +624,60 @@ magnet:?xt=urn:btih:73BF6F7DEC9E0792AEBB1C8A459B8CE22791E7ED
 ```bash
 magnet:?xt=urn:btih:C9EAC52C3CE3A1578CF42D09160EAF7DE457FFD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917879   (588543) от 13.07.2015
+
+Обои - Сибирский хаски. 100 обоев 4К [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великолепные собаки и щенки хаски в не менее великолепном исполнении.Формат: JPGРазрешение файлов: 3840х2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C2AF867487C1C90A99C65B180AA357445D01570
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917961   (588547) от 13.07.2015
+
+Фотография - Кэндис Свейнпол_2 / Candice Swanepoel_2 [JPG]
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая подборка фотографий модели из ЮАРФормат: JPGРазрешение файлов: 900х1200—900х1212
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BA6E6C563B9CA7B0B33427BAE0045946ABC9FFF
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

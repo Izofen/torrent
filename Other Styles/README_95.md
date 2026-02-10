@@ -22,6 +22,8 @@ Satyaa & Pari - New Year Celebrations (Live) (2020) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:5AFAF70C77645553366D609ABB4B05A29260065B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Henry Jackman - Pokémon: Detective Pikachu / Покемон. Детектив �
 ```bash
 magnet:?xt=urn:btih:E6F4036E52366E3583C93BBFB022DFD4DCB2B284
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Henry Jackman - Pokémon: Detective Pikachu / Покемон. Детектив �
 magnet:?xt=urn:btih:BECF53F865F012399DE549A3C298E5F751902E8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Emir Kusturica and the No Smoking Orchestra - Corps Diplomatique (2018) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:808D5613F1AD22FD480FCF6D97CB1E44D36D332B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Joy Williams - Front Porch (2019) [FLAC|Lossless|tracks + .cue] <Folk, Country, 
 magnet:?xt=urn:btih:0D5B4ECCAAB8A56C04F8AAF764CDA989E9EEA9BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:0D5B4ECCAAB8A56C04F8AAF764CDA989E9EEA9BE
 ```bash
 magnet:?xt=urn:btih:E20AD6701DCDF7E8BCC3D4E2E5867561A1967EE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Vartra - Basma (2022) [MP3|320 Kbps] <Dark Folk, Ethereal, Doom>
 magnet:?xt=urn:btih:7685465CE31A0CD2D20AFDE06D8061925AF92845
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Robin Spielberg - On the Edge of a Dream (2018) [FLAC|Lossless|WEB-DL|tracks] <N
 ```bash
 magnet:?xt=urn:btih:6BA7DEF5E1822B743D56607C60057DAE782014F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Patrick Doyle - Игорь / Igor (2008) [MP3|320 Kbps] <Score>
 magnet:?xt=urn:btih:CD166E2862EE403277058EB6FCCBA9B9F41BC5BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Paddy and the Rats - From Wasteland to Wonderland (2022) [MP3|320 Kbps] <Folk Pu
 ```bash
 magnet:?xt=urn:btih:24F1EE339740FB671B46B4DBB47D271B2E777197
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +318,8 @@ Andres Segovia - Collections 2 альбома - 6CD (1994 - 1998) [APE|Lossless]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +349,8 @@ Enigma Club - Утро Тибета (2002) [MP3|320 кб/с]<New Age, Ethnic Fus
 ```bash
 magnet:?xt=urn:btih:6A78C7192C6E047FDCDF81A9CDFC5C8BE10CC354
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +385,8 @@ VA - 100 Hits The Midnight Special (2004) [MP3|256 кб/с]<Country, Folk , West
 magnet:?xt=urn:btih:A41A1831152DF7EBD04AB82E4C1F573F210FA36B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +413,8 @@ Young Summer - Siren (2014) [MP3|320 Kbps] <Indie pop, Alternative>
 ```bash
 magnet:?xt=urn:btih:B0C46530BAE9FDF2BD0109426A1BF59DF67CC077
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +443,8 @@ Shine Dion - два альбома (1998, 2002) [MP3|192 Kbps, 320 kbps] <folk r
 magnet:?xt=urn:btih:3C3A5A57A66CB39854319B018BD0BC8931786A76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +471,8 @@ Muddy Waters - Folk Singer (2013) 1964 [FLAC 2.0|192/24|tracks|WEB-DL]<Blues, Fo
 ```bash
 magnet:?xt=urn:btih:0C396E9651DC6F6ED9077152974C3415E17E7766
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +501,8 @@ Kimberly Haynes - In Dreams (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Folk>
 magnet:?xt=urn:btih:E6FAF7E8D4F2C3E25085F403D7AF8E359B9D9B20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +529,8 @@ Amure - 8 albums (2010-2015) [FLAC|Lossless|WEB|tracks] <New Age, Enigmatic>
 ```bash
 magnet:?xt=urn:btih:CF9457DDB75FF68260C5032791FB70B5CC036EEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +565,8 @@ magnet:?xt=urn:btih:CF9457DDB75FF68260C5032791FB70B5CC036EEC
 magnet:?xt=urn:btih:BC7532414615CB5F716678BF17EAC613E09409CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +593,8 @@ Fausto Papetti - Collections (2009) [FLAC|Lossless|image + .cue] <Instrumental>
 ```bash
 magnet:?xt=urn:btih:5F2C98A51133311804F932601852933260C0FF95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +623,8 @@ Ewan Dobson - 2 Альбома (2008, 2010) [FLAC|Lossless|tracks + .cue] <Acous
 magnet:?xt=urn:btih:F8324EBC58AC27B0CD74D78C967F7B0D8A696108
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +651,8 @@ Levin Minnemann Rudess - From the Law Offices Of (2016) [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:02E4CDEBC6A01F69440238CA4E19AAE6100EE935
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +681,8 @@ Craig Padilla - Heaven Condensed (2016) [MP3|320 Kbps] <Ambient, New Age>
 magnet:?xt=urn:btih:1CF2073A8958CA56B9CC95AAFABD00381BDEA3C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +709,8 @@ Mark Pinkus - Deep Diving (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Pi
 ```bash
 magnet:?xt=urn:btih:8CF962DB175B1ABAF4258843BF0DF398E5863422
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -697,6 +745,8 @@ Blue Medicine Music - Indian Groove (2005) [MP3|320 кб/с]<New Age, Native Ame
 magnet:?xt=urn:btih:2692E68222BD91D60820C1E3DC50472D2D71EE94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -729,6 +779,8 @@ VA-Enigmatica - 50 Tracks (2005) [MP3|320 кб/с]<New age, Meditative, Relax, F
 ```bash
 magnet:?xt=urn:btih:D4A2F2B12C840CA2CAB142EBBC474A594C3D89F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

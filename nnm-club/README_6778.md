@@ -19,6 +19,8 @@ As Dusk Falls — это оригинальная интерактивная д�
 magnet:?xt=urn:btih:AB13018EE0FCEB293F75C57B7975690AAAC1397B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Hyperdontia - A Vessel Forlorn (2019) Compilation [FLAC|Lossless|tracks + .cue] 
 magnet:?xt=urn:btih:245E0C877489D0047DC3D06F092DF5066C3BA2B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:245E0C877489D0047DC3D06F092DF5066C3BA2B2
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ An Autumn For Crippled Children - Closure (2023) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:CF5B24F8E86061BB0A8790363A6DA80FF20A105D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:CF5B24F8E86061BB0A8790363A6DA80FF20A105D
 ```bash
 magnet:?xt=urn:btih:35AA29087CBDB9F9F217AA5E2417A4B559447956
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ Uncaved - Dogmatorraistes (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 magnet:?xt=urn:btih:6CA03F6E096F06523295804B5D3D6313C0B29E83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:6CA03F6E096F06523295804B5D3D6313C0B29E83
 ```bash
 magnet:?xt=urn:btih:50D2B15570BAF4D509C1CAE9CF1FA4D201E3EB7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +215,8 @@ Iratus Vir - Under a Midnight Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 magnet:?xt=urn:btih:561FBD790A5807ED679E7C0332DD2E9BD59D617E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:561FBD790A5807ED679E7C0332DD2E9BD59D617E
 ```bash
 magnet:?xt=urn:btih:CAA26BFB6E7D253FB028D1A120EE66D5939403E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ Hyades - And the Worst is Yet to Come (2007) [FLAC|Lossless|image + .cue] <Thras
 magnet:?xt=urn:btih:300DBEF84036001664BDB0F293DAF0056BC7AC3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:300DBEF84036001664BDB0F293DAF0056BC7AC3E
 ```bash
 magnet:?xt=urn:btih:685D4ED84A5C510717898E09E155D14FF53D3C82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ SiteSucker умеет загружать (   Читать дальше...   )Т
 magnet:?xt=urn:btih:9E98BF4DDD50626218F8352FBD0DABBC33E084EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ magnet:?xt=urn:btih:9E98BF4DDD50626218F8352FBD0DABBC33E084EF
 ```bash
 magnet:?xt=urn:btih:6DF2246516D5A0B5273AF494C09E5120CB4E3FD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ Skill Cup, Максим Ильяхов, Родион Скрябин | Бренд
 magnet:?xt=urn:btih:C8CFC65F20DB2991880B4372DC3F566D4DD0A790
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:C8CFC65F20DB2991880B4372DC3F566D4DD0A790
 ```bash
 magnet:?xt=urn:btih:06F3B5F942CD91E1707548192EED8D620CCB790C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:06F3B5F942CD91E1707548192EED8D620CCB790C
 magnet:?xt=urn:btih:73EEC61FA88514893933B5860EE1F43EF0316322
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ magnet:?xt=urn:btih:73EEC61FA88514893933B5860EE1F43EF0316322
 ```bash
 magnet:?xt=urn:btih:C66B9CC06703C33A1BFE066EEA955C1C4FBAA249
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +482,8 @@ KCNcrew Pack - это огромнейший сборник серийников
 magnet:?xt=urn:btih:3703AE842FE92C3570E4D8CF7A86E2BAE55C19BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:3703AE842FE92C3570E4D8CF7A86E2BAE55C19BA
 magnet:?xt=urn:btih:21DD13E819B4940ECAF0E8FCCB518D6CBDCD2F47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:21DD13E819B4940ECAF0E8FCCB518D6CBDCD2F47
 ```bash
 magnet:?xt=urn:btih:DC9645D0B538C5CB580976A39AFCE023E711C5FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ Dr. John - The Montreux Years (2023) [FLAC|Lossless|tracks + .cue] <Jazz, Funk, 
 magnet:?xt=urn:btih:5D0EA995F4B012EFE1EBE72DF319285686768F2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +592,8 @@ Dr. John - Things Happen That Way (2022) [FLAC|Lossless|tracks + .cue] <Blues, P
 magnet:?xt=urn:btih:2E4F90ED9A230A3A33045B325F6E73E337A6F14F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ magnet:?xt=urn:btih:2E4F90ED9A230A3A33045B325F6E73E337A6F14F
 magnet:?xt=urn:btih:169FB899D985283D8CB6C65AA5C26976C1BFBB15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ magnet:?xt=urn:btih:169FB899D985283D8CB6C65AA5C26976C1BFBB15
 ```bash
 magnet:?xt=urn:btih:42A6AACC3E3FB97B14E880A1B696B5029980FD35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +673,8 @@ Blutgott - Respawned In Heavy Metal (2023) [MP3|320 Kbps] <Heavy Metal, Death 'n
 magnet:?xt=urn:btih:FB4075A4CF9440354DC4B7CFE41B9B9EA2422D11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ Sea of Dreams - Land of Flames (1998) [MP3|320 Kbps] <Melodic Progressive, Power
 ```bash
 magnet:?xt=urn:btih:51A78722B7B0FC996872305896AA7EAA82052752
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

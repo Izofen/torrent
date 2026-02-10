@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:D2D0354853A6A9CD6C6A40EAC5EC344A493ED280
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:D2D0354853A6A9CD6C6A40EAC5EC344A493ED280
 ```bash
 magnet:?xt=urn:btih:3030226F53EF896221280D027184A4625E25DEEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:3030226F53EF896221280D027184A4625E25DEEE
 magnet:?xt=urn:btih:04C6193AF718A7149F9B0A28CB71DD335B007078
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:04C6193AF718A7149F9B0A28CB71DD335B007078
 ```bash
 magnet:?xt=urn:btih:1A75C0D0F4E7FA4134882F3917712B99F5E87A77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:1A75C0D0F4E7FA4134882F3917712B99F5E87A77
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:1A75C0D0F4E7FA4134882F3917712B99F5E87A77
 ```bash
 magnet:?xt=urn:btih:AA0E3968B61D8A04D508A4B05DE283467B0C0CCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:AA0E3968B61D8A04D508A4B05DE283467B0C0CCA
 magnet:?xt=urn:btih:1ED7CA24F3B413FBB2678C0D970C37FEB61BB77C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ SAS.Планета / SAS.Planet / SASPlanet – свободная програ�
 ```bash
 magnet:?xt=urn:btih:B9BBF756AB33E6B5E1AC0EF432CEE439F81F8749
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Planet VPN 1.4.02.08 [Multi/Ru]
 magnet:?xt=urn:btih:ABBAA086788A9DCF832BFD0C10903BDE3A24DB77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Bonnie & Slide, Егор Мараев | Убойная анимация 2.0 (202
 magnet:?xt=urn:btih:E19AAA08CADD1641BAA01A5CA6A4C87F913F468E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:E19AAA08CADD1641BAA01A5CA6A4C87F913F468E
 ```bash
 magnet:?xt=urn:btih:59CB2AC3C6D5CFEA66411F09D287CA1D8097F13B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ The Shore - приключенческий хоррор от первого ли
 magnet:?xt=urn:btih:542727FA9D1B7C8AA27F29F4190829879364EFCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:542727FA9D1B7C8AA27F29F4190829879364EFCE
 ```bash
 magnet:?xt=urn:btih:5A0CCE35DD2E9065B67A5F8DE4ED4EB9BF807C47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:5A0CCE35DD2E9065B67A5F8DE4ED4EB9BF807C47
 magnet:?xt=urn:btih:107E3A6662D125C92D0AD9FB18CE014DCD348A7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:107E3A6662D125C92D0AD9FB18CE014DCD348A7C
 ```bash
 magnet:?xt=urn:btih:A13C5D5F11FE34C75B64CDD86E17D40510116006
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ Stepik, Evgeniy Lestopadov | Регулярные выражения на при
 magnet:?xt=urn:btih:9C1404B9151F943CF69767249F4203B7460456DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:9C1404B9151F943CF69767249F4203B7460456DC
 ```bash
 magnet:?xt=urn:btih:ABF939C660899E6019CB3C8A04C94A0FD9F85F1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:ABF939C660899E6019CB3C8A04C94A0FD9F85F1F
 magnet:?xt=urn:btih:D130A13B5C07B7610AAB0376C8CB06F85E1B6E1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Icewind Dale 2 (2002) [Ru/Multi] (2.1.0.13/dlc) License GOG [Complete]
 ```bash
 magnet:?xt=urn:btih:DCF88B60B35E991AD819C038760CFCE32D786BAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:DCF88B60B35E991AD819C038760CFCE32D786BAB
 magnet:?xt=urn:btih:F577A8E4C4C7D57707B823C6A25CDE92F8C042A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:F577A8E4C4C7D57707B823C6A25CDE92F8C042A5
 ```bash
 magnet:?xt=urn:btih:0974CE9E2198086D2F6E500E9DA0F22DF61B475C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:0974CE9E2198086D2F6E500E9DA0F22DF61B475C
 magnet:?xt=urn:btih:F339736546107EF4E4C0A5D7261BB172149FD176
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:F339736546107EF4E4C0A5D7261BB172149FD176
 ```bash
 magnet:?xt=urn:btih:0E05285852FA5ED839F8A51A5BA56CF02A9F02D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:0E05285852FA5ED839F8A51A5BA56CF02A9F02D1
 magnet:?xt=urn:btih:A03C4052A1D91F3D057F9AAE7AF1D2B8BCF2CE53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ JETT: The Far Shore (2023) [Multi] (2.1.7.r24099/dlc) Scene Tenoke
 magnet:?xt=urn:btih:E4008866E1DE9BF02579DB56224CD1FB213C09B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ BBC. Замёрзшая планета 2 / Frozen Planet II (2022) WEB-DL [H.265
 ```bash
 magnet:?xt=urn:btih:1BCE1D387D45BD49B6EB610D8DEC8EB2188CD641
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Temp Monitor 1.2.2 [Multi]
 magnet:?xt=urn:btih:3EA8A24391DE1973EC91D3E84F4112CFC4D6A2F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Logoist  - Мощный графический редактор, который 
 magnet:?xt=urn:btih:E32E03FA54F0A0BE959A59581AA12C5CF6A49A49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Image-Line FL Studio Producer Edition — это полноценное реше
 ```bash
 magnet:?xt=urn:btih:E70DF1FAD919FFD859048C08D89705B2ECAE7AE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ MenuTab Pro для Facebook является невероятно ловким �
 magnet:?xt=urn:btih:3761B1CBD3B0260ACF7D1A8856D64F143A7B0465
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ IconBox — полезный инструмент для работы с ико�
 ```bash
 magnet:?xt=urn:btih:1A1543298F53BA903B97F40DA5B711861FF87F7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ MailTab Pro for Gmail - это полнофункциональная верси
 magnet:?xt=urn:btih:4EA5DB3508238FFDB43B7212CFF354114107F432
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ The KMPlayer – мультиформатный плеер, способный �
 ```bash
 magnet:?xt=urn:btih:4E0516282B31FAB340F5EB51EC7F882B2F03CDDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Templates for MS Word by GN 4.0 [En]
 magnet:?xt=urn:btih:2E8DFFB404B933CF68DD587C5961EE7C9E25C2DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Digital Clock 3D 1.1.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EF0CE4256EE9C523AA47C39B52F10B7130A48A75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Coolmuster Android Assistant — приложение для резервног�
 magnet:?xt=urn:btih:4EE157EEDA179CF8E2554A5F90033445B9BABBB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ AudioSwitcher - небольшая утилита, которая находит
 ```bash
 magnet:?xt=urn:btih:9F08E206364C7A5270B313F19128E53D181483EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ PhotoSweeper 3.5.0 [En]
 magnet:?xt=urn:btih:667514B88CAAD861AE98BA275A8647DD832F2422
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Espionage - приложение, которое позволяет шифров
 ```bash
 magnet:?xt=urn:btih:F835AE0BE188DC13557EC41C51B93F852A9E8AE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ Grabber : Screenshot Master позволяет захватывать экран
 magnet:?xt=urn:btih:AF6BF04817EA71EB5D808DB4603B44068C25EAED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ iNet показывает устройства, подключенные к ва
 magnet:?xt=urn:btih:0A6CD029360D979677B50173B3B2E83741DDFE53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ Video Repair Software 2.0.0.1 [Multi]
 ```bash
 magnet:?xt=urn:btih:62EAC581EA074F929C00D50BBE79145CD9063F8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ PDF Plus - это мощный PDF-процессор, который помож
 magnet:?xt=urn:btih:93E69DCAD4776A85AB71598B2CB0B93503FD15B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ AirPlayer Pro - используйте возможности AirPlay для о�
 ```bash
 magnet:?xt=urn:btih:BECF61352A17F5CEFCCBAD037695E855127FBD5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ Paperless - поможет создать базу данных эллектро
 magnet:?xt=urn:btih:CC3C76CEA0205AAB749A755E23EB7B5D2DDEDB98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ WidsMob Viewer 2.8 (1259) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:388108FCB37578D8F216AA0B8CA3253CC94C55F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ WidesMob Montage должен быть отличным производител
 ```bash
 magnet:?xt=urn:btih:8989F404A3579C5DB6C1FE2A462F983A3E2E6F6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +580,8 @@ M4VGear перенимает инновационную технику деши�
 magnet:?xt=urn:btih:0D7745CB7633AF9CBD96A12C7C316C6BEC3077F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +608,8 @@ Graphic Styles  содержит набор высококачественных
 magnet:?xt=urn:btih:3B08CB0369F2A49D71AC4EE3E23F3C95084FF19C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ Tweetbot - клиент Twitter для Mac. Этот полнофункцион�
 ```bash
 magnet:?xt=urn:btih:8814FA838077B64A3D10AF49C4BA55B43F1E4EA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +665,8 @@ Remotix - быстрое и мощное приложение для удале�
 magnet:?xt=urn:btih:42D475A0F70739703C5C453F8ECC3F1DBD99A4FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ Screenflick  - Приложение для захвата и записи вид
 ```bash
 magnet:?xt=urn:btih:2B6837CA4BB9F900A69592B23E3DAB85A585D9CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Mike Oldfield - Light + Shade (2005) [FLAC|Lossless|image + .cue] <New Age>
 magnet:?xt=urn:btih:B5F78596288676D705A97157328687751BBD025F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ VA - Fetenhits - Latin (2017) [MP3|320 Kbps] <Kuduro, Bolero, Soca>
 ```bash
 magnet:?xt=urn:btih:44AB1261140ECF281492C51BF824229919BB3EE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ David Hollandsworth - Voices of Peace (2018) [MP3|320 Kbps] <New Age, Ambient, M
 magnet:?xt=urn:btih:527B61F4D9590DDA26252CCE18B18F31A1B8B9FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Yanni - Ultimate Yanni (2003) 2CD [FLAC|Lossless]<New Age>
 ```bash
 magnet:?xt=urn:btih:CFD92B6398A4EC2661F19627324BAD3D3071AECA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Irari (Irina Mikhailova, Ira Stein) - Esquisses (2004) [FLAC|Lossless|tracks + .
 magnet:?xt=urn:btih:F805F232CA01F18D608B5CE95214991780477FA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ VA - Horizon Zero Dawn (Original Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack
 ```bash
 magnet:?xt=urn:btih:3529BF234314CEA4A2E74057835E2844736A868F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ magnet:?xt=urn:btih:3529BF234314CEA4A2E74057835E2844736A868F
 magnet:?xt=urn:btih:DE02EB91B8CAB9809CF0DF0876AD913888B08E82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ John Paesano - Mass Effect: Andromeda (Original Score) (2017) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:DADB9DBF2A198AED276EF022B8293D3CADD8B25C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ Danny Elfman, VA - Fifty Shades Darker / На пятьдесят оттенко�
 magnet:?xt=urn:btih:43505F62FFCA6131AFEA8929485DA3614260B866
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +280,8 @@ Danny Elfman, VA - Fifty Shades Darker / На пятьдесят оттенко�
 magnet:?xt=urn:btih:F5D273C273679A882E8B6B8D271451FE88823BFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +305,8 @@ Martian Love - You, Never Sleep (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic
 ```bash
 magnet:?xt=urn:btih:D474B80A90C85A7A200DE904C3D56DBACEFA1EFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +335,8 @@ Mark Knopfler & Evelyn Glennie - Altamira (2016) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:EF6B2EA78E3938E49323F05A4A129F023F5A2219
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +363,8 @@ Rejean Paquin - Erotic Music (2006) [MP3|320 Kbps] <New Age, Enigmatic, Erotic>
 ```bash
 magnet:?xt=urn:btih:E9ED2A7BDA9B3D2DD98A4939F0EC40E764DEBF49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +393,8 @@ Richard Clayderman - Zeit Zum Traumen (1984) [FLAC|Lossless|image + .cue]<Pop, C
 magnet:?xt=urn:btih:D70B3326D56FBDD06007108ECB89780A7A74D7EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +421,8 @@ VA - Cocktail Piano Romance (1999) [FLAC|Lossless|image + .cue] <Instrumental, E
 ```bash
 magnet:?xt=urn:btih:B46E42ACE253A17C7DF41CD4FF707C5D02DAECA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +451,8 @@ VA - Los clasicos argentinos Tango - Vol.10  - Alfredo De Angelis: El tango aleg
 magnet:?xt=urn:btih:7E40CB4E360653BEC60386CACF5B55F78766BF56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +479,8 @@ VA - Peaceful Night Instrumental Music (2021) [FLAC|Lossless|WEB-DL|tracks] <Ins
 ```bash
 magnet:?xt=urn:btih:36026D76084CDEF2205226031308E64CB2DA2958
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +509,8 @@ Jon Henrik Fjallgren - Goeksegh - Jag ar fri (2015) [FLAC|Lossless|tracks] <Ethn
 magnet:?xt=urn:btih:85A0B3766C19E0729833DA6CF185251E3C62610D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +537,8 @@ VA - Dream Therapy (Top Deep Sleep Music, Dream Meditation, Sleep Yoga Nature Mu
 ```bash
 magnet:?xt=urn:btih:C6A6DA01FCBA1A03D4893C366C8DD82CE4401B04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +567,8 @@ VA - Tibetan Waves: Asian Ambient Relaxing Spirit, Deep Focus, Meditation Tibeta
 magnet:?xt=urn:btih:82BF060626922089ADC721683DA781E2FEC746E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +593,8 @@ Gomer Edwin Evans - Music for Lovers (1992) [FLAC|Lossless|tracks + .cue] <New A
 ```bash
 magnet:?xt=urn:btih:C3D9A2FC426E32972F4BA97FCB162E2538859C25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +623,8 @@ Shinnobu - Libertus (2017) [MP3|320 Kbps] <Neo-Classical, Ambient, New Age>
 magnet:?xt=urn:btih:9A7DF5EFDB3C02B3D7F549FD46E36E9335FA84EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +651,8 @@ Asian Zen - Ambient Meditative Experience (2020) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:6407700E55FF17CE8FC531330C3EB9E5398006EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +681,8 @@ magnet:?xt=urn:btih:6407700E55FF17CE8FC531330C3EB9E5398006EB
 magnet:?xt=urn:btih:6795E6C5005A672D2896524B71E13FBAFE5AED59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -662,6 +710,8 @@ Back to Earth - The Journey to the Inner Island (2018) [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:677C2A0C389AC8009E370F1298F2395EFF58B6D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -688,6 +738,8 @@ Flaer Smin - 2 альбома (2014-2015) [MP3|320 кб/с] <New Age, Enigmatic,
 ```bash
 magnet:?xt=urn:btih:72318EA5D111E35904174FE35DF2C3D211DE108D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

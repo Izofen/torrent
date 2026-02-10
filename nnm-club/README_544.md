@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:9A3DCA987150CCFA83849F02A11946C075E4FDF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:9A3DCA987150CCFA83849F02A11946C075E4FDF7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:9A3DCA987150CCFA83849F02A11946C075E4FDF7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:9A3DCA987150CCFA83849F02A11946C075E4FDF7
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Suzerain (2020) [En] (3.1.0.1.137/dlc) License GOG [Expanded Edition]
 ```bash
 magnet:?xt=urn:btih:0015FC3DAE9089EA98E2824CEF35AE8D88F19508
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:0015FC3DAE9089EA98E2824CEF35AE8D88F19508
 magnet:?xt=urn:btih:8F248281D5C4A48E2D46741C4B8917F694469C6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:8F248281D5C4A48E2D46741C4B8917F694469C6A
 ```bash
 magnet:?xt=urn:btih:5C0D8684A6B3155EC40180FB9FE5A7D4C7C12A97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ Heading Out - A Narrative Road Movie Racing Game представляет соб
 magnet:?xt=urn:btih:42B10020269B57303B9FF0D9761E294320D6CFD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:42B10020269B57303B9FF0D9761E294320D6CFD8
 ```bash
 magnet:?xt=urn:btih:CF6A085D3D8BDEC2BF51B07D7BCDAF59AD222E73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:CF6A085D3D8BDEC2BF51B07D7BCDAF59AD222E73
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (1.3.1/dlc) Scene Rune [Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:8E7FE3986C37A7BF792AF2A89CE224A84669F368
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:8E7FE3986C37A7BF792AF2A89CE224A84669F368
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:8E7FE3986C37A7BF792AF2A89CE224A84669F368
 ```bash
 magnet:?xt=urn:btih:CB7FAE65FB26C2B9245CAE0C1F5809E3339869D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:CB7FAE65FB26C2B9245CAE0C1F5809E3339869D6
 magnet:?xt=urn:btih:D4F38E500A01B5101A6F9115762B06BDBEDCBE77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:D4F38E500A01B5101A6F9115762B06BDBEDCBE77
 ```bash
 magnet:?xt=urn:btih:1974978DD63053ADAFE871D7EB1DC64DF4C39390
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:1974978DD63053ADAFE871D7EB1DC64DF4C39390
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:1974978DD63053ADAFE871D7EB1DC64DF4C39390
 ```bash
 magnet:?xt=urn:btih:4C79C82E0D7B8D75ED751130B2EFDF96F9A26EBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:4C79C82E0D7B8D75ED751130B2EFDF96F9A26EBE
 magnet:?xt=urn:btih:C14C919E881C4DFB329DC5037E612D480923B374
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ Beyblade Burst QuadStrike | Бейблэйд Взрыв — Квадроудар
 ```bash
 magnet:?xt=urn:btih:783E08BE99D262B21D783CA20734CD8B3A6ED275
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:783E08BE99D262B21D783CA20734CD8B3A6ED275
 magnet:?xt=urn:btih:DEEC409E88720FB849CC7D3D976FB312FDEB710F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:DEEC409E88720FB849CC7D3D976FB312FDEB710F
 ```bash
 magnet:?xt=urn:btih:5674DB91991DC9B8FCA1BEFB0F9331F4A3591A1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ VA - Some Great 90s Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:5DB00A67CA451A8808BB3670007D3C4A46892883
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:5DB00A67CA451A8808BB3670007D3C4A46892883
 ```bash
 magnet:?xt=urn:btih:F31A7B8F9DB481C7EA7C692B4F669DE8689DBDFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ BBC. Легендарные тигры Индии / Легендарні тиг�
 magnet:?xt=urn:btih:E8650D07EBEA78A24D5BFFEAD2D7A1A57BFEBA36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:568C7028D96AF2B1A10225088B4C6BDCC070333D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:568C7028D96AF2B1A10225088B4C6BDCC070333D
 ```bash
 magnet:?xt=urn:btih:8A5F302E30B95B6A3389E294038696A6343FF6EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

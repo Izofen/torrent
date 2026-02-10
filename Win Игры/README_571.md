@@ -1,27 +1,3 @@
-###  Публикация: 1844673   (1050304) от 27.12.2025
-
-Heading Out (2024) [Ru/Multi] (1.047) Repack Other s
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Heading Out - A Narrative Road Movie Racing Game представляет собой атмосферное путешествие через западные регионы США в 70-х годах. Игроки сядут за руль маслкара, на котором выйдет прокатиться по трассам, выполненным в стилистике комикса. Сюжетное повествование сделано в виде роуд-муви, по типу "Исчезающая точка", "Двухполюсное шоссе" или "Тельма (   Читать дальше...   )Тип издания: RepackРазработчик: Serious SimЖанр: Приключенческие игры, Инди, Гонки, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D45C75A546A26D218A5B445027AE9900AB549B3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1845044   (1050326) от 29.12.2025
 
 Trinity Fusion (2023) [Ru/Multi] (2.8/dlc) Repack Let'sРlay
@@ -42,6 +18,8 @@ Trinity Fusion (2023) [Ru/Multi] (2.8/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:12F750702569A35276B423EF66423A330348F9F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ ENDER LILIES: Quietus of the Knights (2021) [Ru/Multi] (1.1.6_13932) Repack Let'
 magnet:?xt=urn:btih:38BFBC840416F17DD077849A3666D62488F69A7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Suikoden I & II HD Remaster: Gate Rune and Dunan Unification Wars (2025) [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:E995F4FF67F432A5D46E951F0425E3C085A27773
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Mai: Child of Ages (2025) [Ru/Multi] (1.09) License GOG
 magnet:?xt=urn:btih:6A73F61F5ADD09F19C2A63DB77191C9505494579
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Happy Holidays 5: Christmas Never Ends / Счастливые праздники
 ```bash
 magnet:?xt=urn:btih:03FE50642E470461F63DE130BF496FBF0DAE890E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Braid (2024) [Ru/Multi] (0.444 revision 15517 M) Repack Let'sРlay [Anniversary 
 magnet:?xt=urn:btih:4B94898B2418BFD6B1D30D9BBC67A64526D5853F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Sonic Colors: Ultimate (2021) [Ru/Multi] (10078994/dlc) Scene voices38 [Digital 
 ```bash
 magnet:?xt=urn:btih:3ABA9E7390BBAD2DDC7C3C9B0B1EE533CE15D74C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Sonic Colors: Ultimate (2021) [Ru/Multi] (10078994/dlc) Repack FitGirl [Digital 
 magnet:?xt=urn:btih:20345305B2511503642029FCC8362CD674FBBD6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ Bendy and the Dark Revival - это хоррор на выживание от п
 ```bash
 magnet:?xt=urn:btih:54D1956A9B869D9EF1961C53F566148D791D5DCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ SKALD: Against the Black Priory - игра, вдохновлённая роле�
 magnet:?xt=urn:btih:339B93CB7E9CB3C69E7C83A36F7648BC2BD74B2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ Senua's Saga: Hellblade 2 - продолжение ролевого экшена
 ```bash
 magnet:?xt=urn:btih:38F5FB7A716725C5F9D490001A75EB841F318028
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ Of Ash and Steel (2025) [Ru/Multi] (1.05b) Repack Wanterlude
 magnet:?xt=urn:btih:196EC2F222BF876EB87011E2A04F9812B11863F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ BioMenace Remastered - это переосмысление классическ�
 ```bash
 magnet:?xt=urn:btih:AF871BB5CD92FE5F95BC1A80B0528567926C562A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ Ranch Farm and Store Simulator (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 magnet:?xt=urn:btih:9BC4F7BBCAE58B9BF60911B576C90640DD65B16A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ F1 2021 (2021) [Ru/Multi] (1.18.1/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:76555CCF25A3CC5EE8910877EB9AC423D4FDFAE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ Star Ocean: The Divine Force - это JRPG с элементами экшена 
 magnet:?xt=urn:btih:3C0519A0F3650773299F58A2EC198A617E48CB45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ Netherworld Covenant - это тёмная фэнтези 3D изометрич�
 ```bash
 magnet:?xt=urn:btih:447D62AA5081A7EC54A9D0CE6D297F9EED63C4DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ Discounty (2025) [Multi] (1.0.16/dlc) License GOG
 magnet:?xt=urn:btih:670D6BCEA2E9F456F1C1AE2FC4355DBA001F9199
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ The Cradle (2025) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:A4CE6A73439DE50350D7EF34A862F726686ECB77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ Blood: Refreshed Supply (2025) [Multi] (2.0.3116) License GOG
 magnet:?xt=urn:btih:E8289C0241D9F569EE4B338E3134D3591D5BD394
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ Star Fire: Eternal Cycle (2025) [Ru/Multi] (1.25.271) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:63A853B717D0E19B2A324AAD874D2A0D3EDCF48D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ Temple of the Green Moon / Храм Зеленой Луны (2025) [Ru/En] (1.0)
 magnet:?xt=urn:btih:FE02BADCE6AA7D00D985E48792EAE2D8A5A2C2A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ Temple of the Green Moon / Храм Зеленой Луны (2025) [Ru/En] (1.0)
 ```bash
 magnet:?xt=urn:btih:D551528952D99B1AEF28FB201E6AD33E1430BD01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +617,8 @@ Fi da Puti Samurai предлагает отправиться в увлекат
 magnet:?xt=urn:btih:AC73B6B2FAFDBAE33E296F97A11E963F1300BA7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +642,34 @@ Yakuza 0 (2018) [Ru/Multi] (build 4746539) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:4E54F893531F6D6F759A0464097B9C377DCE079E
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845746   (1050906) от 03.01.2026
+
+Lovely Lady RPG (2025) [En] (1.0) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lovely Lady RPG начинается с пробуждения героини по имени Призрак под пробитым потолком, с космической сферой в груди и полным отсутствием воспоминаний. События разворачиваются в альтернативной версии Первой мировой войны, где ее будни посвящены попыткам выстроить жизнь заново с этой странной отправной точки. Повествование следует за ней во время странствий и взаимодействия (   Читать дальше...   )Тип издания: SceneРазработчик: DAS POPPY UND MIA KUNSTKOLLEKTIVЖанр: Инди, Ролевые игрыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9122F261FAB1F002C3C2C79813B6B8E3C2F3397F
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

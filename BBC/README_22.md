@@ -19,6 +19,8 @@ BBC. Барокко! От собора св.Петра до собора св.П
 magnet:?xt=urn:btih:665ECD6CB6548E2B59B9048685FCADE93B7E5D47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ BBC. Horizon. Что же такое один градус? / Horizon. What is O
 magnet:?xt=urn:btih:2632688A51C28175FC1EB909E51B90D3C32A3F5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:2632688A51C28175FC1EB909E51B90D3C32A3F5A
 ```bash
 magnet:?xt=urn:btih:AB70F5FB7E6A48D38F81AD61D5DB1E1121E49EA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:AB70F5FB7E6A48D38F81AD61D5DB1E1121E49EA7
 magnet:?xt=urn:btih:1201AAEC87A2AC1FB9CF4FA99F3573E7D6FE6E13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ BBC: Цивилизации / Civilisations (2018) BDRemux [H.264/1080p] (сез
 ```bash
 magnet:?xt=urn:btih:1A3E96725E79EAA22C388244EA6C6C105069A4E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ BBC: Как строилась Британия / How We Built Britain (2007) HD
 magnet:?xt=urn:btih:BC39D88C9415E43C2BCFCCC7A0C6BD89C6A42C5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ BBC: Антарктическая полярная станция / Ice Station 
 ```bash
 magnet:?xt=urn:btih:B8CAD2008270D11D24F2802EAA6D34E7C02742C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ BBC: Живая Природа. Райские птицы / BBC: Natural World. 
 magnet:?xt=urn:btih:106CFC6005DF1C5B1282028A26325A758EE00BB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ BBC. Зелёная планета / The Green Planet (2022) WEB-DL [H.264/1080p
 ```bash
 magnet:?xt=urn:btih:567CFDCF151ADFB8F8C5A0173974B5C1C8FCCCB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ BBC: Удивительный мир крови / The Wonderful World of Blood w
 magnet:?xt=urn:btih:2CBE048DBC01A90215C9EF9EEC544B7F11BF3003
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ BBC. Horizon. Гибель океана / The Death of the Oceans (2010) HDTVRip
 ```bash
 magnet:?xt=urn:btih:BCD06A20A4E0B9FADC5C58E82DFF468D9C53FE44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ BBC: Да будет вода / There Will Be Water (2016) WEB-DLRip [H.264/1080
 magnet:?xt=urn:btih:80EEA734B98210F9EBC49D159038E7F6E7E86EC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ BBC. Брачная Игра / The Mating Game (2021) WEB-DL [H.265/2160p] [4K, 
 magnet:?xt=urn:btih:406C11BC59B634FBEB3F6B9018D8031279BF5074
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ BBC: Серенгети / Serengeti II (2021) WEB-DL [H.264/1080p] (сезон 2
 ```bash
 magnet:?xt=urn:btih:EEE22F84A64CAD6033B8D43975481B0CF3D13C1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ BBC: Horizon. Что было до Большого взрыва / What Happened
 magnet:?xt=urn:btih:5A8A1C1C92EA43A7DF08EA04A6B554655FD7072E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:5A8A1C1C92EA43A7DF08EA04A6B554655FD7072E
 ```bash
 magnet:?xt=urn:btih:47F8DEE9B7743DA82FD6A9EAB7C512ABB1C658FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ BBC: Живая Природа. Райские птицы / BBC: Natural World. 
 magnet:?xt=urn:btih:A55152C64EA8ABFE9F40AAC8F9853CD9ECC2B237
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ BBC: Мир природы - Горы тропических дождей  / Nat
 ```bash
 magnet:?xt=urn:btih:855D6705F76BE9571E582CFB15CF5D8543C2B3AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ BBC: Чудеса живой природы / Nature's Great Events (2005) DVDRi
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ BBC: Антарктическая полярная станция / Ice Station 
 ```bash
 magnet:?xt=urn:btih:6F4DBC23796B0699D8B72C9DD3DBA5311386F56A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ BBC: Тайны тёмной энергии / BBC: The Mysteries of Dark Energy 
 magnet:?xt=urn:btih:8E75E59DA36DF2A3E07F9055BB3A4EACB1D9ED8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:8E75E59DA36DF2A3E07F9055BB3A4EACB1D9ED8D
 magnet:?xt=urn:btih:8420FBEB7318CA458292E7AFDE3E24D75501ED0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ BBC: История возникновения лекарств / BBC: Pain, Pus
 ```bash
 magnet:?xt=urn:btih:C742FEB895914038720474F3EFB98AD4C9FEC8F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ BBC: Планеты / The Planets (1999) DVDRip (сезон 1, серии 1-8 и
 magnet:?xt=urn:btih:662B0336A701A79FE59E0BD8B49337C70F45398F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ BBC: Свет и Тьма / BBC: Light and Dark (2013) SATRip
 magnet:?xt=urn:btih:A9BC54ED3EE3F64B82EC478BC75983FBEF3EB6A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ magnet:?xt=urn:btih:A9BC54ED3EE3F64B82EC478BC75983FBEF3EB6A5
 ```bash
 magnet:?xt=urn:btih:2AA910DD5A770E9E19B20CED1A1A9C42F148ED02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

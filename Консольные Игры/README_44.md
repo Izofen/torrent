@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:779B6850B6BE3255BF20E1E1788349E6FEA17804
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ ExerBeat: Gym Class Workout [Wii] [PAL] [Multi 3] (2011)
 magnet:?xt=urn:btih:D222260814CB2348CAA8ACD173EB0E6085A4F301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:D222260814CB2348CAA8ACD173EB0E6085A4F301
 ```bash
 magnet:?xt=urn:btih:FCBA2A5770D98C4E5605D2D60F771997D1903B1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ LEGO Star Wars: The Force Awakens – экшен, основанный на ки
 magnet:?xt=urn:btih:687D6A10337E58EECFC5BA9B2D0DBB9FB03B8A25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Bassmaster Fishing 2022 (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.19] [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:6453D3F6B5A6FFAB96928252A008371719468CA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ Battlefield Hardline – это знаменитые сетевые режимы
 magnet:?xt=urn:btih:550BE1F99514A1AFB2FC93455C9E00953643DB16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Ice Age 4: Continental Drift - Artic Games [Wii] [PAL] [Multi 6] (2012)
 ```bash
 magnet:?xt=urn:btih:00AD28341E615B1547F4AF64E2EAD9727870DBF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ Batman: Arkham City Armoured Edition – обновленная и улучше�
 magnet:?xt=urn:btih:9AB74596730EB21AF0E542606A890CA4B33BB5EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ YouTube v.1.11 для PS3 (2015) [PS3] [Repack]
 magnet:?xt=urn:btih:7D86420EEF978AE881594B6CF32262E5F5E912DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ Test Drive Ferrari Racing Legends - различные типы гонок, та
 ```bash
 magnet:?xt=urn:btih:CB0C40DF85997D9042E6FE1620AC0740675C2E04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ Teenage Mutant Ninja Turtles: Mutants in Manhattan – динамичный beat
 magnet:?xt=urn:btih:EB34EE635A8DBF1C1703D71D4C8E9C69CFC3B63B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ LEGO Star Wars: The Force Awakens – экшен, основанный на ки
 ```bash
 magnet:?xt=urn:btih:55B5B74D2EF00B86A26FC7B3FE14265E7733FC8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ NASCAR The Game: 2011, также известная как NASCAR 2011 или N
 magnet:?xt=urn:btih:122DCFD7C9C3D9D1E81924A49EC7D2387450EDBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ Dead Nation + Road of Devastation DLC (2014) [PSVita] [EUR] 3.60 [HENkaku] [PSN]
 ```bash
 magnet:?xt=urn:btih:4F7B164FB370A1E05CF20C6A9C0C584153FDD0E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ DOOM Eternal (2020) [PS4] [EUR] 5.05 [HEN] [License / 1.23 / DLC] [Ru/Multi]
 magnet:?xt=urn:btih:A5D131C6E1295E7662C1F5E6330C95D6367EB65C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:A5D131C6E1295E7662C1F5E6330C95D6367EB65C
 ```bash
 magnet:?xt=urn:btih:BBF471AFE5D4448A6DFEECD37B1AAB8B873AF81A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ magnet:?xt=urn:btih:BBF471AFE5D4448A6DFEECD37B1AAB8B873AF81A
 magnet:?xt=urn:btih:E2C5532F7E482D229B971CF16F12886738C7182D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:E2C5532F7E482D229B971CF16F12886738C7182D
 ```bash
 magnet:?xt=urn:btih:86C3DF1F69C856E5339C5CF488AA95B0FC70FF5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ Project CARS 3 (2020) [PS4] [EUR] 5.05 [HEN] [License / 1.07] [Ru/Multi]
 magnet:?xt=urn:btih:FAE826EA05C68951FA061E642B7B64F1FE5224C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ My Friend Peppa Pig / Моя подружка Свинка Пеппа (2021) [PS
 ```bash
 magnet:?xt=urn:btih:C8420B47D53F2BDF77842E40DBD147C84545E549
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ Marsupilami Hoobadventure (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.01] [Ru/Mul
 magnet:?xt=urn:btih:2458F459236F04B6FD30F5C6F96F3B1D092F030B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ Castle Crashers — видеоигра в жанре Beat ’em up, разраб
 ```bash
 magnet:?xt=urn:btih:C76A78D3287FA859D8050963B783D017509BD031
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ Battleship: The Video Game (2012) [PS3] [EUR] 4.11 [Cobra ODE / E3 ODE PRO ISO] 
 magnet:?xt=urn:btih:310A569BC911BACD22B14573B0EA97460B99BB72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ Hungry Shark World (2018) [PS4] [EUR] 5.05 [HEN] [License / 1.01] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:4A7230EE0F63AB52B47C78F79069432B29261F37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ The Walking Dead: Survival Instinct (2013) [WiiU] [USA] 5.3.2 [Loadiine GX2] [Li
 magnet:?xt=urn:btih:46B66F2EFB338F4C9A08F73E11B8AF6AB054B42F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ Cabela's African Adventures – симулятор охоты в полност�
 ```bash
 magnet:?xt=urn:btih:22ABD2C634151E98C105912FF659EB42F6A317BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

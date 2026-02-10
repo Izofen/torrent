@@ -28,6 +28,8 @@ Soulfly - Enslaved (2012) [MP3|320 кб/с (CD Rip)]<Thrash Metal, Groove Metal>
 magnet:?xt=urn:btih:A63D29336D02447BF848C3B1D6ABFC879ADCB30B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ Suntree - Inside (2009) [FLAC (image+.cue)|Lossless]<Psy-Progressive>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -84,6 +88,8 @@ Suntree - Inside (2009) [FLAC (image+.cue)|Lossless]<Psy-Progressive>
 magnet:?xt=urn:btih:018818FA203CD5B4123309D87BCC164A1F942BCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -107,6 +113,8 @@ magnet:?xt=urn:btih:018818FA203CD5B4123309D87BCC164A1F942BCF
 ```bash
 magnet:?xt=urn:btih:41D6A20D2CEB72D8059747545B67C9583EB6B31E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +149,8 @@ Nedry - In A Dim Light (2012) [MP3|320 Kbps]<Dubstep, Electronic, IDM, Trip-Hop>
 magnet:?xt=urn:btih:8045D41A56C2B05204AADC1E2289C9A978E8B68E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +174,8 @@ magnet:?xt=urn:btih:8045D41A56C2B05204AADC1E2289C9A978E8B68E
 ```bash
 magnet:?xt=urn:btih:098E9027382CC0A86D055CCFD9A559044DC7710E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +201,8 @@ The Flower Kings Live in Concert Tilburg (2006) DVD5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +227,8 @@ The Flower Kings Live in Concert Tilburg (2006) DVD5
 magnet:?xt=urn:btih:5559948116A14BFC9D12DDF76EA845EE9D1A8CF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +252,8 @@ magnet:?xt=urn:btih:5559948116A14BFC9D12DDF76EA845EE9D1A8CF2
 ```bash
 magnet:?xt=urn:btih:FEAA9C08E548A7A8317EF610C1F00A5110C5FCB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +288,8 @@ magnet:?xt=urn:btih:FEAA9C08E548A7A8317EF610C1F00A5110C5FCB4
 magnet:?xt=urn:btih:E23EB2EAE7AC8664C8348F2A3EACC7D350BB582D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +315,8 @@ magnet:?xt=urn:btih:E23EB2EAE7AC8664C8348F2A3EACC7D350BB582D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +344,8 @@ magnet:?xt=urn:btih:E23EB2EAE7AC8664C8348F2A3EACC7D350BB582D
 magnet:?xt=urn:btih:EED1BE2D3B7B0E010DB11FB7EB9400ED06BC0E93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +372,8 @@ Visual Assist позволяет увеличить возможности ре�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +408,8 @@ Coolio - Forever The Best (2006) [MP3|320 кб/с]<Hip-Hop>
 magnet:?xt=urn:btih:749FB8913E6169D40B6F125DCE76AAAD245C8AB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +442,8 @@ Gormenghast - Resist Or Serve (2012) [MP3|320 кб/с]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:69C9A43C800207AEBFDDA463DCBD97A0A7C280CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +478,8 @@ VA - Абсолютный Свежачок Сезона (2012) [MP3|256 кб/с]
 magnet:?xt=urn:btih:EAA25AC519556AE7CD312906A75A67F107ACCC38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +507,8 @@ magnet:?xt=urn:btih:EAA25AC519556AE7CD312906A75A67F107ACCC38
 ```bash
 magnet:?xt=urn:btih:B7A9925C8B84EDE1FF46BC719BBB611B3487AA95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +539,8 @@ magnet:?xt=urn:btih:B7A9925C8B84EDE1FF46BC719BBB611B3487AA95
 magnet:?xt=urn:btih:D8D363C4DF68A3A21DEEE757B90E84AEA7E2FF1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +568,8 @@ magnet:?xt=urn:btih:D8D363C4DF68A3A21DEEE757B90E84AEA7E2FF1E
 ```bash
 magnet:?xt=urn:btih:1F5750B75A9D161AC6805109FD8C4DC758F877A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +599,8 @@ magnet:?xt=urn:btih:1F5750B75A9D161AC6805109FD8C4DC758F877A2
 magnet:?xt=urn:btih:404B3DD2670E38A77EDFD40144542E83B2A05817
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +624,8 @@ magnet:?xt=urn:btih:404B3DD2670E38A77EDFD40144542E83B2A05817
 ```bash
 magnet:?xt=urn:btih:3D2A8BD443F0C6E9A661731DF2D9E60CF3E4BE61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +657,8 @@ magnet:?xt=urn:btih:3D2A8BD443F0C6E9A661731DF2D9E60CF3E4BE61
 ```bash
 magnet:?xt=urn:btih:5FE8B35BF296FE0E580BB709E10FD30F359795DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +693,8 @@ magnet:?xt=urn:btih:5FE8B35BF296FE0E580BB709E10FD30F359795DE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -678,6 +724,8 @@ magnet:?xt=urn:btih:5FE8B35BF296FE0E580BB709E10FD30F359795DE
 ```bash
 magnet:?xt=urn:btih:B7B96CF5C9089034C9A407F5897773B0EBCA4A84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -711,6 +759,8 @@ Solar Kid - Sint Etik (2012) [MP3|~247 кб/с (V0)]<Psychill, Dub>
 magnet:?xt=urn:btih:4839B87962F1413EFB5A251F9F6D01F05EF722E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -742,6 +792,8 @@ VA - Black Flares Blue Noise vol.1 - compiled by DJ Mlf (2009) [FLAC|Lossless]<P
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

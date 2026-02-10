@@ -1,3 +1,29 @@
+###  Публикация: 1022671   (728596) от 02.06.2016
+
+Дневник адмирала Головко (2008) SATRip
+
+>>Документалистика и Телепередачи
+>>Флот
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он был один из немногих, кто ослушался Сталина и ударил по немецким самолетам-разведчикам за 6 дней до начала войны, и если бы Гитлер не напал на СССР, Головко был бы расстрелян. В годы репрессий страх перед органами НКВД был огромен, но Головко, не испугавшись Берии, освободил заключенных, дал им оружие и послал на передовую. Он стал командующим северным флотом (   Читать дальше...   )Телекомпания: Россия, ООО "Фарватер фильм"Жанр: Документально-постановочный, биография, историяПродолжительность: 00:38:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E29755850493A561FCFEB0B753B84C85DAA1AB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284498   (728644) от 21.02.2019
 
 Колеса Страны Советов. Были и небылицы (3 выпуск: 1-4 серии из 4) (2014) WEB-DL [H.264/720p-LQ] (4 серии из 4)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:7E7A9004A0CD73AD72A36D125090EDD415F8459A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:7E7A9004A0CD73AD72A36D125090EDD415F8459A
 magnet:?xt=urn:btih:917A6D1B38D700C0BC5B66290422504021AAB343
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:917A6D1B38D700C0BC5B66290422504021AAB343
 ```bash
 magnet:?xt=urn:btih:BD480BF50DB26E1557E5F5897FB835C4B4B9B452
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:BD480BF50DB26E1557E5F5897FB835C4B4B9B452
 magnet:?xt=urn:btih:C1BAC02C13A68CF31AD8415A03EB6CBF928EC835
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:C1BAC02C13A68CF31AD8415A03EB6CBF928EC835
 ```bash
 magnet:?xt=urn:btih:17AD219B3AC78E2A4722856F1F58D58A435DA028
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:17AD219B3AC78E2A4722856F1F58D58A435DA028
 magnet:?xt=urn:btih:061A8740E4FF873A6BFD5B3B1629098593D2F0E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:061A8740E4FF873A6BFD5B3B1629098593D2F0E7
 ```bash
 magnet:?xt=urn:btih:B4C85A8489DB3384BA89E542A56D5C338B02409A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:B4C85A8489DB3384BA89E542A56D5C338B02409A
 magnet:?xt=urn:btih:4CDBE9594E523F748F212B24CE6673147E306C98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:4CDBE9594E523F748F212B24CE6673147E306C98
 ```bash
 magnet:?xt=urn:btih:D5F8D2283DDCC06DAACA44D6A17A9193D439F04B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:D5F8D2283DDCC06DAACA44D6A17A9193D439F04B
 magnet:?xt=urn:btih:1F93BB5548D5743EA39D2C2E93B1A22FA27161D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:1F93BB5548D5743EA39D2C2E93B1A22FA27161D8
 ```bash
 magnet:?xt=urn:btih:18C2790C953F3757760B1EED8E15CA99C437B317
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:18C2790C953F3757760B1EED8E15CA99C437B317
 magnet:?xt=urn:btih:B4DFA8CE7904761EA7AB84400BB01968BD9BC8AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +356,8 @@ magnet:?xt=urn:btih:B4DFA8CE7904761EA7AB84400BB01968BD9BC8AD
 ```bash
 magnet:?xt=urn:btih:ABCA5C341E8E166A8349416A8206D2FA6234EC13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:ABCA5C341E8E166A8349416A8206D2FA6234EC13
 magnet:?xt=urn:btih:D98F816C6144D51CEA5FC175F176E5FF9BDAACC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +408,8 @@ magnet:?xt=urn:btih:D98F816C6144D51CEA5FC175F176E5FF9BDAACC1
 ```bash
 magnet:?xt=urn:btih:8E98DB84C33A053EF60B04388C198296980861B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:8E98DB84C33A053EF60B04388C198296980861B8
 magnet:?xt=urn:btih:C2E7CA64D6E722FEE8492B30BDA65B959FF628B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +460,8 @@ magnet:?xt=urn:btih:C2E7CA64D6E722FEE8492B30BDA65B959FF628B2
 ```bash
 magnet:?xt=urn:btih:4A592F869C113DDD3050AE52F40B7F21DE309B4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:4A592F869C113DDD3050AE52F40B7F21DE309B4E
 magnet:?xt=urn:btih:8901BA716DD545024BE49B8FA4E4BD541BE30EC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:8901BA716DD545024BE49B8FA4E4BD541BE30EC6
 ```bash
 magnet:?xt=urn:btih:6A7753C9BEAA3E2E602678F83DE3616A7F927030
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:6A7753C9BEAA3E2E602678F83DE3616A7F927030
 magnet:?xt=urn:btih:864E9F207A0A294E3C3DFAAB1EE0D5F52541B93A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:864E9F207A0A294E3C3DFAAB1EE0D5F52541B93A
 ```bash
 magnet:?xt=urn:btih:832691003C7F01E0B213F72987BFA39B24E28714
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:832691003C7F01E0B213F72987BFA39B24E28714
 magnet:?xt=urn:btih:5DF3E2B05142A6AC27AF34B46ACFD02D11CA601B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +619,8 @@ magnet:?xt=urn:btih:5DF3E2B05142A6AC27AF34B46ACFD02D11CA601B
 ```bash
 magnet:?xt=urn:btih:828FB19C2D2A2EEE99532CC65D064479026D8915
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:828FB19C2D2A2EEE99532CC65D064479026D8915
 magnet:?xt=urn:btih:BE7E880AE149D5AA3E0E02B958DFDBCBEFBBFED0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,29 +674,7 @@ magnet:?xt=urn:btih:BE7E880AE149D5AA3E0E02B958DFDBCBEFBBFED0
 magnet:?xt=urn:btih:78219471CF7E2D1DFFE9ACFAD44B3784EEB548F1
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530184   (729804) от 10.02.2022
-
-Водаабе - пастухи солнца / Wodaabe - Die Hirten der Sonne (1989) DVDRip
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о племени кочевников водаабе с южного края пустыни Сахары. У водаабе почти нет материальных ценностей, кроме коров, коз и вьючных животных. В прошлом яркий и самобытный народ ныне ведет практически нищенское существование, перебиваясь случайными заработками и выживая за счет разведения домашнего скота. Но даже такой низкий уровень жизни не смог разрушить культуру (   Читать дальше...   )Производство: Германия, Франция, Arion Productions, Canal+, France 2, Les Films Ariane, Süddeutscher Rundfunk (SDR), Werner Herzog FilmproduktionЖанр: документальный, познавательныйРежиссер: Вернер ХерцогПеревод: одноголосый авторский (Антон Алексеев)Субтитры: русские, английскиеПродолжительность: 00:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE368FF023180C2590E4A3E44F0BBA59CE9720AF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

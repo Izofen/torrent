@@ -19,6 +19,8 @@ South of Midnight (2025) [Ru/Multi] (1.3.0 186489) Repack Let'sРlay [Premium Ed
 magnet:?xt=urn:btih:FE7B8B4533CF64043695CBA68DA78AA50389C63B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Microsoft® Windows® 10 Enterprise x64 LTSC 2021 21H2 RU by OVGorskiy 06.2025
 ```bash
 magnet:?xt=urn:btih:8FF178F08BB9D81607F06AC0FD99D5CC550CF571
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:8FF178F08BB9D81607F06AC0FD99D5CC550CF571
 magnet:?xt=urn:btih:6EFBB3C7AD3C9E2D1893803E7FA7FABCC4597323
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Rufus - небольшая утилита помогает отформатир�
 magnet:?xt=urn:btih:AD4E7598C231D1EB94D97135EEBAE300390BEFC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Windows 11 24H2 (26100.4351) x64 by Bruxer [Ru]
 ```bash
 magnet:?xt=urn:btih:A7050411756F6D053F25C3728A1AA68B8E213584
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:A7050411756F6D053F25C3728A1AA68B8E213584
 magnet:?xt=urn:btih:F154DE1C75F3DDC078F59CDE3D237BC9DBECAD4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ The Long Dark (2017) [Ru/Multi] (Build 2.44 157357 S/dlc) Repack Let'sРlay [Qui
 ```bash
 magnet:?xt=urn:btih:2AD9E1E8FDC4DA6D187793CFBECFA1E19EE1C931
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ CorelDRAW Graphics Suite 2025 26.1.0.143 (x64) RePack by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:C5E47D3AFA715F6BDEB85A902F8E44992E318581
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:C5E47D3AFA715F6BDEB85A902F8E44992E318581
 ```bash
 magnet:?xt=urn:btih:31D737463906E15EDE305A000F1DDCCEE73D4C58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Hero of the Kingdom: The Lost Tales 3 / Герой Королевства: Ут�
 magnet:?xt=urn:btih:B11ACFA0426540894DB3D05E4428266B0CF7AAA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:B11ACFA0426540894DB3D05E4428266B0CF7AAA7
 magnet:?xt=urn:btih:808B7EF882581A51029F8B24474991171AF658A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:808B7EF882581A51029F8B24474991171AF658A2
 ```bash
 magnet:?xt=urn:btih:0C7A13AEAF188C53F3A0A8D76FC33F76736A0E9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7
 magnet:?xt=urn:btih:023B1B19729EAEFA78E3D27E42A96B70BC5D54CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:023B1B19729EAEFA78E3D27E42A96B70BC5D54CE
 ```bash
 magnet:?xt=urn:btih:A242DC1B590190A7446711F1F9E3D8D53FA26FA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Acrobat Pro — это полностью обновленная настоль�
 magnet:?xt=urn:btih:15821E724E4892A7399425B1480083681D2D191E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Mindseye (2025) [Ru/Multi] (4598223) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:5564DB41CD11D1616141BD37A3A81A2BD8D1D469
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:5564DB41CD11D1616141BD37A3A81A2BD8D1D469
 magnet:?xt=urn:btih:FF20C60789D8F8349B6BF8C29C87D40D37A1F47E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:FF20C60789D8F8349B6BF8C29C87D40D37A1F47E
 ```bash
 magnet:?xt=urn:btih:A048AA8DAF456FAFB6A640F1A4AC247E8B7F30CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ VA - Black Hole Trance Music 06-25 (2025) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:26328EE99AF25863827F9F376EF31AB481E82122
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:26328EE99AF25863827F9F376EF31AB481E82122
 magnet:?xt=urn:btih:8F46F2993A72BCD8E6A5DC5606F13CFC25621766
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:8F46F2993A72BCD8E6A5DC5606F13CFC25621766
 ```bash
 magnet:?xt=urn:btih:D5DFA18AED36DAD9AE1FF720C2BEEE6B808DF435
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ Disc 1 (00:59:35)
 magnet:?xt=urn:btih:67AAE0B4E6F1AB81944E6A05EB5A9DA8C324F2A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ VA - Black Hole House Music 06-25 (2025) [MP3|320 Kbps] <House, Progressive Hous
 ```bash
 magnet:?xt=urn:btih:A2AE5C0F3548BA9A651ED76B178F848B3B6D7144
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +634,8 @@ The Blue Stones - METRO (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Blue
 magnet:?xt=urn:btih:AFFC9E5DFFC23A1526E7D651A0A4A6A8A0D6B8EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +663,8 @@ Kris Cayden - Stranger Than Fiction (2025) [FLAC|Lossless|WEB-DL|tracks] <Electr
 magnet:?xt=urn:btih:BD03E61DD9C470987F30293922A9B964E82A1221
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ VA - Dancefloor Sessions, Vol. 01 (2025) [MP3|320 Kbps] <Dance, Club, House, Ele
 ```bash
 magnet:?xt=urn:btih:919E0E623357EAE3E42CAC60D321E2B7FBE0D42B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

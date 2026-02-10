@@ -1,3 +1,73 @@
+###  Публикация: 765445   (874840) от 12.03.2014
+
+VA - Butchering The Beatles (2006) [FLAC|Lossless]<Hard'n'Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.  Hey Bulldog [04:11]
+02.  Back In The USSR [03:30]
+03.  Lucy In The Sky With Diamonds [04:05]
+04.  Tomorrow Never Knows [04:04]
+05.  Magical Mystery Tour [04:30]
+06.  Revolution [05:01]
+07.  Day Tripper [03:45]
+08.  I Feel Fine [03:39]
+09.  Taxman [03:49]
+10.  I Saw Her Standing There [03:58](   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 00:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2E2D2D5EB1436ACFD34A537FA16679995683969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 765567   (874977) от 12.03.2014
+
+Destrage - Are You Kidding Me? No. (2014) [FLAC|Lossless]<Thrash/Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Destroy Create Transform Sublimate
+02. Purania
+03. My Green Neighbour
+04. Hosts, Rifles & Coke
+05. G.O.D.
+06. Where the Things Have No Colour
+07. Waterpark Bachelorette
+08. Before, After and All Around
+09. - (Obedience)
+10. Are You Kidding Me? No.Жанр: Thrash/Death MetalПродолжительность: 00:49:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27FCA704F4A848077FF82C3AF4B5FB9A66B8EA58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105506   (875061) от 18.02.2017
 
 Edenbridge - The Great Momentum (2017) 2CD, Album, Digipack [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
@@ -20,6 +90,8 @@ CD2 - Instrumental VersionЖанр: Symphonic Power MetalПродолжител�
 ```bash
 magnet:?xt=urn:btih:CCEB75802A043948078C68C53622EA598735FA78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +120,8 @@ Doro - Love Me In Black (1998) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard R
 magnet:?xt=urn:btih:BA8E56335ED0C86386C0A266D552EA4B3BD32191
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +148,8 @@ Lords Of Black - II (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy,
 ```bash
 magnet:?xt=urn:btih:79C9CF984FEC858631EDE106D0C8DC89C068627A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -102,6 +178,8 @@ Entombed A.D. - Dead Dawn (2016) Japanese Edition [FLAC|Lossless|image + .cue] <
 magnet:?xt=urn:btih:1E5594B7B55C9FFCF96D3CA6101259CD7D2E2DEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +206,8 @@ Destoyer 666 - Wildfire (2016) [FLAC|Lossless|image + .cue] <Black, Thrash Metal
 ```bash
 magnet:?xt=urn:btih:67CB3F361106D9D56AC470D3D0BE01600CAB9C55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -156,6 +236,8 @@ Blazon Stone - Damnation (2021) [FLAC|Lossless|WEB-DL|tracks] <Power, Speed Meta
 magnet:?xt=urn:btih:F59292B9D3476F305BD3C9A773167748DC69CB7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -182,6 +264,8 @@ Metalsteel - Forsaken By The Gods (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 ```bash
 magnet:?xt=urn:btih:17F61D0E73BBC2CF04B365F0D7A235ED78476EF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -210,6 +294,8 @@ Tower - Uriel (2021) [FLAC|Lossless|image + .cue] <Gothic Metal, Melodic Death M
 magnet:?xt=urn:btih:336AF2F13D8887BE6D09C3B3A675A10587D67381
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +322,8 @@ Thundermaker - The Road (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:C75EAA76BA250D91B9F124C7773B207B112E0BCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +352,8 @@ Bon Scropion - Winds Of The Unseen Sun (2021) [FLAC|Lossless|WEB-DL|tracks] <Hea
 magnet:?xt=urn:btih:64C1986A4C47AAF4A4079FCCDBEF7034DBF41123
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +380,8 @@ Cronopolis - Cronopolis (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal
 ```bash
 magnet:?xt=urn:btih:EE0625AF3267BD8B6EE9D48101C4169326F0D96E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +416,8 @@ Annodomini - Sixtrinity Secret (2008) [FLAC|Lossless]<Gothic Metal>
 magnet:?xt=urn:btih:11C6B624433334CB9623B4765AE6800B739420DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +444,8 @@ Witchery - In His Infernal Majesty's Service (2016) Japanese Edition [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:D48B718513607770C63947766CCACBB1A2B6C074
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +474,8 @@ Planet Alliance - Planet Alliance (2006) Japanese Edition, 2007 [FLAC|Lossless|i
 magnet:?xt=urn:btih:42964A0775DE62556687A823B1714E62087747FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +502,8 @@ Hevidence - Nobody's Fault (2016) Japanese Edition [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:AE9148AED73B13104A2D23A55967B7DD2EA30032
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +532,8 @@ Stonelight - Into the Unknown (2016) [FLAC|Lossless|image + .cue] <Symphonic Hea
 magnet:?xt=urn:btih:438612D224265A72DA5D19356765A76D96E24C75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +561,8 @@ In Aeternum - The Blasphemy Returns (2016) [FLAC|Lossless|image + .cue] <Back, D
 magnet:?xt=urn:btih:45122E3E251B341AA8C4433987C7ED45F59ACF14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +588,8 @@ Dirkschneider & The Old Gang - Arising (2021) EP [FLAC|Lossless|image + .cue] <H
 ```bash
 magnet:?xt=urn:btih:07C6521A7C2DA137F666A206DCD75B67DFCF3B78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +618,8 @@ Ancient Empire - Priest Of Stygia (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 magnet:?xt=urn:btih:A8D75DC070ACD880207EDA8E15B00FA770D0429D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +645,8 @@ Mechina - Andromeda (2016) Single [FLAC|tracks|WEB-DL]<Industrial, Symphonic Dea
 ```bash
 magnet:?xt=urn:btih:3244731935D1D1E96985C4EBA402B6B0129F848B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +678,8 @@ Black Sabbath - Dehumanizer (1992) 2CD Deluxe Expanded Edition, Remastered 2011 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +714,8 @@ Feed Her to the Sharks - The Beauty Of Falling (2010) [FLAC|Lossless]<Metalcore>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +749,8 @@ Narwhal Tusk - In Despair (2010) [FLAC|Lossless]<Symphonic Power Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -662,63 +778,7 @@ Solution .45 - Nightmares in the Waking State- Pt.I (2015) [FLAC|Lossless|image 
 magnet:?xt=urn:btih:B6A57848E1903031BA0F9F2F1016CA93E70FEB68
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104930   (878297) от 16.02.2017
-
-Pantaculo Mistico - Hermetico (Hermético) (2016) [FLAC|Lossless|image + .cue] <Pagan, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Onde os Extremos se Tocam (3:51)
-02. Viagem Astral (11:33)
-03. Vagando por Caminhos Desconhecidos (9:25)
-04. 666 + 777 - A Uniao do Treze (6:05)(   Читать дальше...   )Жанр: Pagan, Doom MetalПродолжительность: 00:54:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89A2AB6052625ADB4B714047E47ABE16B99F7173
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 764953   (878322) от 10.03.2014
-
-Mount Salem - Endless (2014) [FLAC|Lossless]<Stoner/Doom/Psychedelic>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Good Times (5:01)
-02. The Tower (5:52)
-03. Lucid (4:55)
-04. Full Moon (6:28)
-05. Mescaline (2:43)
-06. Mescaline II (3:44)
-07. Hysteria (7:29)
-08. The End (6:17)Жанр: Stoner/Doom/PsychedelicПродолжительность: 00:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55F4C2631CE4217AA5FD516264D2D987B41F25F7
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

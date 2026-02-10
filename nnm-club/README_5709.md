@@ -19,6 +19,8 @@ DVD-Cloner - это небольшая утилита, при помощи ко�
 magnet:?xt=urn:btih:D6BDD2BA44ADBB297D9E300FB04CA38965860F04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:D6BDD2BA44ADBB297D9E300FB04CA38965860F04
 ```bash
 magnet:?xt=urn:btih:EBEFF9ED9B5877669ACE27788CB6BE45445DA174
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ John Lennon - Imagine (1971) The Elements Mixes, 2023, UMC [FLAC 24/96|Lossless|
 magnet:?xt=urn:btih:48B5383F6E86C8D4C7AB8884962048B1C04B4D31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ OneCommander V3 — это современный файловый менедж�
 magnet:?xt=urn:btih:0C86828CB0909E35E902130456F0418A139D5E90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ USBclean 3.5 [Multi]
 ```bash
 magnet:?xt=urn:btih:BA1A8E58CC9DC1AA99855F4C6624C25E6056EE26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ NIUBI Partition Editor – программа для простого и над�
 magnet:?xt=urn:btih:A27BB43594A8748ABBC37573158B2385C679330E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Perfect Horizon Full 1.1 [En]
 magnet:?xt=urn:btih:7FA6ABA740D84571DE745CCF54F85A2710F1CB4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:7FA6ABA740D84571DE745CCF54F85A2710F1CB4D
 ```bash
 magnet:?xt=urn:btih:A455227C3AA6DB9C7D085BECD9FBD4D6BDB4D001
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:A455227C3AA6DB9C7D085BECD9FBD4D6BDB4D001
 magnet:?xt=urn:btih:844101FED97CBF5072D1B0EDC03F8CF98DB38CEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ EditPlus – это компактный текстовый редактор д�
 ```bash
 magnet:?xt=urn:btih:1C288B94399F71FDCF57746B09398E3538BEF605
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:38F25D16B808AEDF648C8EB3CB716F2A59C60325
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:38F25D16B808AEDF648C8EB3CB716F2A59C60325
 ```bash
 magnet:?xt=urn:btih:BDED8ACB6C692A5D404B9C9E4F4F889879B9DC5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ Sammy Davis, Jr. - Starring Sammy Davis, Jr. (1955) 2007, Collectors' Choice Mus
 magnet:?xt=urn:btih:897EBEC67CDA30BB08920464D79ACE4A7240B8BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ Frowning - Death Requiem (2020) [FLAC|Lossless|image + .cue] <Funeral Doom Metal
 magnet:?xt=urn:btih:25DD4F5DA6BDAC79D0F013F154374C6D2E4D930D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:25DD4F5DA6BDAC79D0F013F154374C6D2E4D930D
 ```bash
 magnet:?xt=urn:btih:A92485F03C66DFEE66CD7C664F09DF0C36DDF062
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ John Lennon - Imagine (1971) The Raw Studio Mixes, 2023, UMC [FLAC 24/96|Lossles
 magnet:?xt=urn:btih:8A348C11DC79094EEEDC9EE0B6648E8279737794
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:8A348C11DC79094EEEDC9EE0B6648E8279737794
 magnet:?xt=urn:btih:83DFB0D2BB65F064ABEEEEEED9C0806CA08FE4C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:83DFB0D2BB65F064ABEEEEEED9C0806CA08FE4C6
 ```bash
 magnet:?xt=urn:btih:5044400C05F3E693C9CE2E8856541EE66434E86A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ magnet:?xt=urn:btih:5044400C05F3E693C9CE2E8856541EE66434E86A
 magnet:?xt=urn:btih:44DC3B31DC584D082F5DD1E39FA971852AA2B45E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ FlippedNormals, David Saiz | Hard Surface Modeling for Games (2023) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:A69BF726C84F924179F42000EE86903E4801990B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +558,8 @@ magnet:?xt=urn:btih:A69BF726C84F924179F42000EE86903E4801990B
 magnet:?xt=urn:btih:79BDD4D82C352176DE847C53EAF4F0C48E128BA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:79BDD4D82C352176DE847C53EAF4F0C48E128BA1
 magnet:?xt=urn:btih:12ADBE203C654B5EA71DB75CD51393CFE5569D15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ Icecream Screen Recorder - программа, позволяющая вести
 ```bash
 magnet:?xt=urn:btih:455F0226C093C0F4F3FBC504DF08CF2057C1EA6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +639,8 @@ Piezo не требует никаких настроек, достаточно 
 magnet:?xt=urn:btih:8F8D5FD1C7945628BCCC0DBAF41FAB9792130CEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +665,8 @@ magnet:?xt=urn:btih:8F8D5FD1C7945628BCCC0DBAF41FAB9792130CEE
 magnet:?xt=urn:btih:242273C94BD26E0F021564A6E2370C85E4F29100
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ File List Export (бывший File list to Excel) - простое в испо�
 ```bash
 magnet:?xt=urn:btih:6760A7F973491C0F28685142687DC7F8B19B12EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

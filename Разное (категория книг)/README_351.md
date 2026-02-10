@@ -1,3 +1,30 @@
+###  Публикация: 928705   (521703) от 17.08.2015
+
+Ирина Телегина | Большая психологическая игра, или Игра не в тренинге (2013) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521703.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ситуациях, когда нужны концептуальные изменения, достойная альтернатива тренинговому методу – это Большая психологическая игра (БПИ).
+В книге представлен авторский подход к пониманию Большой психологической игры, ее специфики, структуры. Даны методические рекомендации по организации, проведению и созданию такого рода игр. Особое внимание уделено описанию собственного (   Читать дальше...   )Жанр: Личностный ростФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1A28336B38E885F5404AC15C6D7EBB4E5C87B03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 928681   (521708) от 17.08.2015
 
 Виктория Карпухина | Как заботиться о себе, если тебе за 40. Здоровье, красота, стройность, энергичность (2012) [FB2, EPUB]
@@ -19,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:EDAB962437AAC6DE1A4A8F6D88C6AEAB15A86FFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:EDAB962437AAC6DE1A4A8F6D88C6AEAB15A86FFE
 ```bash
 magnet:?xt=urn:btih:93346D64CEA4FD83AF14AA944FC377868F110293
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +101,8 @@ magnet:?xt=urn:btih:93346D64CEA4FD83AF14AA944FC377868F110293
 magnet:?xt=urn:btih:210A89387D84B543D97260CEB4253E5D5807E98F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +129,8 @@ magnet:?xt=urn:btih:210A89387D84B543D97260CEB4253E5D5807E98F
 magnet:?xt=urn:btih:73D5BB38716D1B775B0F0F22868EF3E232A71401
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +155,8 @@ magnet:?xt=urn:btih:73D5BB38716D1B775B0F0F22868EF3E232A71401
 magnet:?xt=urn:btih:47E073DEE5D9AC4B942D79478CA17E0EDF28A7DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +180,8 @@ magnet:?xt=urn:btih:47E073DEE5D9AC4B942D79478CA17E0EDF28A7DE
 ```bash
 magnet:?xt=urn:btih:698BF557E84F63F83C6E893E6F7E1B6C4CFA0322
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +208,8 @@ magnet:?xt=urn:btih:698BF557E84F63F83C6E893E6F7E1B6C4CFA0322
 ```bash
 magnet:?xt=urn:btih:00E1B2032BCA7FEC3B310CD705DF13F8940B9DBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +238,8 @@ magnet:?xt=urn:btih:00E1B2032BCA7FEC3B310CD705DF13F8940B9DBD
 magnet:?xt=urn:btih:6F008A631CC2D5CEC15EF919E585F03FA5E62867
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +265,8 @@ magnet:?xt=urn:btih:6F008A631CC2D5CEC15EF919E585F03FA5E62867
 magnet:?xt=urn:btih:6E62C534A3FA60EC2D0C6692365CF91563DD399C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +291,8 @@ magnet:?xt=urn:btih:6E62C534A3FA60EC2D0C6692365CF91563DD399C
 magnet:?xt=urn:btih:43F8210601C2CF84ED2EA29F24E5780859CA5082
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +316,8 @@ magnet:?xt=urn:btih:43F8210601C2CF84ED2EA29F24E5780859CA5082
 ```bash
 magnet:?xt=urn:btih:07FE7AC817D4E4711F2E8A3520A8E46426290852
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +345,8 @@ magnet:?xt=urn:btih:07FE7AC817D4E4711F2E8A3520A8E46426290852
 magnet:?xt=urn:btih:F26EC69B4776DF9BA785D461409BFC2E1C6AB038
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +370,8 @@ magnet:?xt=urn:btih:F26EC69B4776DF9BA785D461409BFC2E1C6AB038
 ```bash
 magnet:?xt=urn:btih:70BA9F0553F993D713622FC3D481E2F411D721A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +397,8 @@ magnet:?xt=urn:btih:70BA9F0553F993D713622FC3D481E2F411D721A4
 magnet:?xt=urn:btih:AA6B9B2CC123838C66771C85D284F16171A4CBB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +422,8 @@ magnet:?xt=urn:btih:AA6B9B2CC123838C66771C85D284F16171A4CBB0
 ```bash
 magnet:?xt=urn:btih:E6E2BBAABE0941E01EB7507953F9812B5C1D36F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +449,8 @@ magnet:?xt=urn:btih:E6E2BBAABE0941E01EB7507953F9812B5C1D36F0
 magnet:?xt=urn:btih:6A7B9D2C22557C70AD267566FBD3EC172024BBBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +474,8 @@ magnet:?xt=urn:btih:6A7B9D2C22557C70AD267566FBD3EC172024BBBC
 ```bash
 magnet:?xt=urn:btih:F4FB108D8F9674E9825452D38A15AEFC87DE6B73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +501,8 @@ magnet:?xt=urn:btih:F4FB108D8F9674E9825452D38A15AEFC87DE6B73
 magnet:?xt=urn:btih:CA4F4C880F120E0D08E415920070A694BDD7B96F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +526,8 @@ magnet:?xt=urn:btih:CA4F4C880F120E0D08E415920070A694BDD7B96F
 ```bash
 magnet:?xt=urn:btih:CC46BC8FB7B4B351D7528022799480A5C9E5AC7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +553,8 @@ magnet:?xt=urn:btih:CC46BC8FB7B4B351D7528022799480A5C9E5AC7F
 magnet:?xt=urn:btih:529C22065597F2E256E8C8DFCEB26ABCBDE20611
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +578,8 @@ magnet:?xt=urn:btih:529C22065597F2E256E8C8DFCEB26ABCBDE20611
 ```bash
 magnet:?xt=urn:btih:BAA2F03F8D9804C65EAB4C7CB3A7B42C6FEAA304
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +605,8 @@ magnet:?xt=urn:btih:BAA2F03F8D9804C65EAB4C7CB3A7B42C6FEAA304
 magnet:?xt=urn:btih:2ACF09E05723AEE73FA2A88B310CC443B962D64B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +630,8 @@ magnet:?xt=urn:btih:2ACF09E05723AEE73FA2A88B310CC443B962D64B
 ```bash
 magnet:?xt=urn:btih:52D76A5258DF6B0150344D3D8ABC5FA056C192A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +659,8 @@ magnet:?xt=urn:btih:52D76A5258DF6B0150344D3D8ABC5FA056C192A7
 magnet:?xt=urn:btih:7C24844A78E14DD01D68D50A102936F3714296D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,29 +687,7 @@ magnet:?xt=urn:btih:7C24844A78E14DD01D68D50A102936F3714296D3
 magnet:?xt=urn:btih:67CE5A0C4B8259A13C1CDF057F63D357431E5585
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240847   (522955) от 14.08.2018
-
-Святой Иоанн Кронштадтский | Сердце говорит о Боге [Бальзам для души] (2013) [FB2, PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из литературного наследия св. Иоанна Кронштадтского для настоящего издания выбраны и систематизированы слова, посвященные трезвению, или хранению сердца. Это духовное делание позволяло о. Иоанну сохранять молитвенный настрой в суете мира и возвело его на высоты святости. Отец Иоанн объясняет роль сердца в духовной жизни, учит понимать его язык и отличать сердцем (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:628C8160CDA4B9C68CF39FF56170728CF92916D0
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

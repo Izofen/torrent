@@ -19,6 +19,8 @@ Lost Eidolons: Veil of the Witch (2024) [Ru/Multi] (1.0.6) Scene Rune
 magnet:?xt=urn:btih:91CD082FF552A1B59C7A3F44580F68D1DD5081AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:91CD082FF552A1B59C7A3F44580F68D1DD5081AD
 ```bash
 magnet:?xt=urn:btih:6636A5BDE7A1B70E82FE68B152203CACA20CF259
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:6636A5BDE7A1B70E82FE68B152203CACA20CF259
 magnet:?xt=urn:btih:96BB2528AE73992E29CFBF75EA367D7EDC5080E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:96BB2528AE73992E29CFBF75EA367D7EDC5080E3
 ```bash
 magnet:?xt=urn:btih:A4B549942E0583A2E4B1DD54064AE13936E94208
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:A4B549942E0583A2E4B1DD54064AE13936E94208
 magnet:?xt=urn:btih:E12579E568B41D5C5569B2A415D0C880BAF69BA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ The Universim, симулятор бога, в котором успех ваш�
 ```bash
 magnet:?xt=urn:btih:B4524A0ABFD497C9F7194BAB4980A1F95051B97B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:B4524A0ABFD497C9F7194BAB4980A1F95051B97B
 magnet:?xt=urn:btih:4610112752F4DA5A7B69831ED9D3B6A8F2B6B529
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:4610112752F4DA5A7B69831ED9D3B6A8F2B6B529
 ```bash
 magnet:?xt=urn:btih:5E81F2FDD4E72C04F56CF82CCABD6D601E8479D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:5E81F2FDD4E72C04F56CF82CCABD6D601E8479D0
 magnet:?xt=urn:btih:1A6F907DB7B738875B06602044C461AD3119DF43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ MATLAB – это интерактивная среда программиров
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ MATLAB – это интерактивная среда программиров
 ```bash
 magnet:?xt=urn:btih:EA8C8AF9156EF9C79122CD91EF4D664FDB2DAB20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:EA8C8AF9156EF9C79122CD91EF4D664FDB2DAB20
 magnet:?xt=urn:btih:FDD70B22CDD648F30988D1E9333D4D5C7428567E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:198543A75A0E04D8E90D1CCD660748C7426931B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 ```bash
 magnet:?xt=urn:btih:7283489011938FEA5BDB688B94A0EE5A359229C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:A936EB5857441AB8BDFA57CDCBADC8F95F3CFE4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:A936EB5857441AB8BDFA57CDCBADC8F95F3CFE4D
 ```bash
 magnet:?xt=urn:btih:D930A37375A820D5B2A2AFD10CE8F406BE191AA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ O&O Defrag Professional – инструмент дефрагментации д
 magnet:?xt=urn:btih:EB99B9DF7A1B30339AFC9700881645D2426D0BE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ MediaHuman YouTube Downloader 3.9.17 (1010) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:C29FE3FEFB4A23B7A134FAF8B4584560351F7AC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ PIDKey Lite предназначена для просмотра, обновле
 magnet:?xt=urn:btih:7E1411D37D58F125E356E2ED4A8F6A1C880B4608
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:7E1411D37D58F125E356E2ED4A8F6A1C880B4608
 ```bash
 magnet:?xt=urn:btih:D0C3AE363F52DC3819FE236CB917C9FC42432E0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ magnet:?xt=urn:btih:D0C3AE363F52DC3819FE236CB917C9FC42432E0D
 magnet:?xt=urn:btih:4272C395463FE32ED1B778575B902414CD494458
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:4272C395463FE32ED1B778575B902414CD494458
 magnet:?xt=urn:btih:3019A6869A3D970E57D7B2FF62DAE127AC63D2B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ TrashMe — мощный деинсталлятор с другими замеч
 ```bash
 magnet:?xt=urn:btih:794ECF041FF71789BF664C3396ABACDFBCD7C87E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +633,8 @@ magnet:?xt=urn:btih:794ECF041FF71789BF664C3396ABACDFBCD7C87E
 magnet:?xt=urn:btih:E4D74A9FF6F52054524DF23D60B3710CAA2F5C65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ Purple Hearts - Extraordinary Sensations: Studio & Live 1979-1986 (2024) [MP3|32
 magnet:?xt=urn:btih:E0CEC56465AA0E5AEA6733F7CAE4FF024486261F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ Lazarus Dream - Lifeline (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock
 ```bash
 magnet:?xt=urn:btih:C07E85A422C89CD70D5DEDF451A7402C4E65CCE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

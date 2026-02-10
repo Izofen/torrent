@@ -19,6 +19,8 @@ Far Cry 4 - игра в жанре action и открытый мир, разра
 magnet:?xt=urn:btih:5E7FB173606E524070CA314A0EBEDF0AB249CE4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Trinity Fusion – это выполненный в 2.5D научно-фанта
 ```bash
 magnet:?xt=urn:btih:E3E84573A98DD1364521F5952DCDE68B3745968D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ C.A.R.D.S. RPG: The Misty Battlefield объединяет в себе карт�
 magnet:?xt=urn:btih:DC1F34C5743179DEFA7BCAD864362B3344331F32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Far Cry Primal (2016) [Ru/Multi] (1.3.3/dlc) Repack FitGirl [Apex Edition]
 ```bash
 magnet:?xt=urn:btih:5148FF0778F9FBA422445670B26041CBADB5CEBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ RoboCop: Rogue City (2023) [Ru/Multi] (1.6.0.0/dlc) Scene Tenoke [Alex Murphy Ed
 magnet:?xt=urn:btih:05E8DEFFD987BEB93766406AC9B4C3473FFE3D7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Phantom Fury (2024) [Ru/Multi] (17384) License GOG
 ```bash
 magnet:?xt=urn:btih:9472EF6A8D2FEB620B227C0BD4BB45D327B2CD8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Vendir: Plague of Lies погружает игроков в мир, наполн
 magnet:?xt=urn:btih:DD64C591A7BBBD425A5E2E4D73DD2B86C009FD60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Taboo Trial погружает в мир норвежской мифологии
 ```bash
 magnet:?xt=urn:btih:A634E5C0770DF75C8F8C64801273A1CF541FAB15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Chernobylite (2019) [Ru/Multi] (49411/dlc) Scene Rune [Complete Edition]
 magnet:?xt=urn:btih:9D0C460B45D1F36DCB4B9BA3EEC9AA2827903EE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Granblue Fantasy: Relink - приключение в просторах Небе
 ```bash
 magnet:?xt=urn:btih:4D11C8456E042AE78FCDC1D71B885CC18038CE56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Call of Duty: Modern Warfare 3 (2011) [Ru/En] (1.9.461/dlc) Repack FitGirl
 magnet:?xt=urn:btih:998E514892E9B383346CB65756E561625B94CF7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Call of Duty: Modern Warfare 2 (2009) [Ru/En] (1.2.208) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C4B2161C4A59EFD340209D562E299FD40CE9D1E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ The Elder Scrolls V: Skyrim (2016-2021) [Ru/Multi] (1.6.318.0.8/dlc) Repack FitG
 magnet:?xt=urn:btih:79F64FD1D5FD91A86845B265626290FB67D58943
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Tennis Manager 2024 – как насчет того, чтобы покорит�
 ```bash
 magnet:?xt=urn:btih:07A0B5FC5CC024EFD0CB560D6EE1991E0AF613E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Astor: Blade of the Monolith вставьте себя на место Асто�
 magnet:?xt=urn:btih:11A941594FB4B81535508D33726FCD921F0E139C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Astor: Blade of the Monolith вставьте себя на место Асто�
 ```bash
 magnet:?xt=urn:btih:15E98CF7575988F476DE94F213CA490672ED8F5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ KARM (2024) [Multi] (1.0.1) Repack FitGirl [Headbang Edition]
 magnet:?xt=urn:btih:AE53C60F97ACFB2A20EF8050AED5494BBE935CD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Capes (2024) [Ru/Multi] (1.0.0.0/dlc) Repack FitGirl [King City Edition]
 ```bash
 magnet:?xt=urn:btih:9367A0AA280030460A5BAABEB0E01E99C43724A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Night of the Dead - выживастик от третьего лица в от�
 magnet:?xt=urn:btih:84CBB966995B5BF3F1D00D821487BB2D08AC1579
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Aliens vs. Predator (2010) [Ru] (2.27/dlc) Rip xatab
 ```bash
 magnet:?xt=urn:btih:4D85593F9C6D4AE62BA6C83FE3A58162D70A99C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Creeper World 4 (2020) [En] (2.5.1) License GOG
 magnet:?xt=urn:btih:32238F47206211C9DA974BD69601B15387FDE7F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Starstruck Vagabond начинается с рассказа о том, как �
 ```bash
 magnet:?xt=urn:btih:DED1F5C293D6E91C376F0CD0991E1429BB6EE339
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ The Mageseeker: A League of Legends Story (2023) [Ru/Multi] (1.0.0/dlc) Repack F
 magnet:?xt=urn:btih:AA64FA6A84A72A75705B0359C66A60F122208B48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ BioShock 2 (2010) [Multi] (1.5.0.019) License GOG
 ```bash
 magnet:?xt=urn:btih:82F53B5AFFCF5816924DA54CA6394202B736DDB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ StarCraft 2: Legacy of the Void - это третья, и заключитель
 magnet:?xt=urn:btih:63E2F0592176358D3F2A45F78C1CE6A881BEA739
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ SpellForce 3: Soul Harvest (2019) [Ru/Multi] (163238.365571) License GOG
 ```bash
 magnet:?xt=urn:btih:A8E555CB965EA4839DF49A02F16E301BABEF4E5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

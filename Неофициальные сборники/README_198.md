@@ -22,6 +22,8 @@ VA - Only Best Hits. Зажигательная дискотека (2015) [MP3|2
 magnet:?xt=urn:btih:75B3C82F8113B5CAD2C2ED3C8E6807124E580B8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Erotic Swings (Chilled Jazz Ensembles) (2015) [MP3|320 кб/с]<Jazz>
 ```bash
 magnet:?xt=urn:btih:DB5303255945EAD43F60B1C8D507DBBC7BA6BDC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Sound Velvet Corduroy (2015) [MP3|320 кб/с]<Jazz, Blues>
 magnet:?xt=urn:btih:082205D0BCD3B325B72EB42D8D59DE415255638E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - По волне моей памяти P.S (Постскриптум) дис
 ```bash
 magnet:?xt=urn:btih:BD52FFF45A854BDB1996F75A2B4065EB1AAB5404
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Pure Emotions (Piano and Strings) (2015) [MP3|320 кб/с]<Instrumental, Ea
 magnet:?xt=urn:btih:AF285A5517A3E751174A96F19BE29DFFC8952E2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Beatport Top 100 Deep House September (2017) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:EC1092067C173768593594564034D8CEAC324C31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - По волне моей памяти P.S (Постскриптум ) ди�
 magnet:?xt=urn:btih:56EB4D5B98DB1E00947C0F003C7B87158F11C3FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - 120 Beatport EDM (2017) [MP3|320 Kbps] <House, Techno, Trance, Electro>
 ```bash
 magnet:?xt=urn:btih:B24F4C5007F1C3A9CD1A0369BA441EBCABEB551F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Rock Homily (2017) [MP3|192-320 Kbps] <Alternative, Hard Rock>
 magnet:?xt=urn:btih:5466B77B52539A9A173BAC34BA8F917908B473AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Pop Sampler Chart: November Hits Collection (2017) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:3BFF3785237BA5E3D30018966F9C4A38245A6ABF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Record Super Chart #510 (2017) [MP3|320 Kbps] <House, Club, Dance>
 magnet:?xt=urn:btih:DBB2058CEDE99976E4AA0A034277BC337C7DA703
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +341,8 @@ VA - Deep House Collection Vol.141 (2017) [MP3|320 Kbps] <Deep House, Club House
 magnet:?xt=urn:btih:2E6412181D0D34D15B63078334B5496049CFB2E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +366,8 @@ Teriyaki Boyz - Tokyo Drift (2017) Remix [MP3|320 Kbps] <Club, Dance>
 ```bash
 magnet:?xt=urn:btih:82DA801B435704DAEB825F221F501A62975D2D2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +402,8 @@ VA - DeepEmotions - Car Dubstep Vol.8 (2011) [MP3|320 кб/с]<Dubstep>
 magnet:?xt=urn:btih:AF7280D95ECF73B48E7B3F072496C407C805FD94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +436,8 @@ VA - Chilling With the Stars: The Ultimate Chillout and Lounge Collection (2012)
 ```bash
 magnet:?xt=urn:btih:C94655A7FB06D320034A7441FAF4E344D5842ACB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +472,8 @@ MiaS - Dubstep music (2012) [MP3|320 кб/с]<Dubstep>
 magnet:?xt=urn:btih:F2F250123FAE5248293D1414164C910363D52214
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +500,8 @@ VA - Blues Way vol.1 (1995) [MP3|320 Kbps] <Blues>
 ```bash
 magnet:?xt=urn:btih:80EF4AF0DEDF437467C64DA299CFFC78E57A3958
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +530,8 @@ VA - Бомба года от Хит FM (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:7DD8D53400E8B15C1E33B34D658D36387F80CA72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +558,8 @@ VA - Boost Balance and Stability: 50 Top Yoga Music, Calming Healing Songs (2016
 ```bash
 magnet:?xt=urn:btih:3B16759A5526616E54BEFF43BB5E942F858CB38B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +588,8 @@ VA - Record Super Chart 24.09.2022 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:3A88C42A17C6FEEBCC24280398B54BF0FC49D4CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +616,8 @@ VA - O3 Greatest Christmas Hits (2016) [MP3|320 Kbps] <Glam Rock, Synthpop, Chri
 ```bash
 magnet:?xt=urn:btih:D00A73D7C2321C124E22FA0B3C87D4FA5E2F2FA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +646,8 @@ VA - German Top 100 Single Charts 18.11. (2016) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:241053F9EACEAB860B5CBD72C356B334DEC91EBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +674,8 @@ VA - Блатной шансон на любимой волне. Выпуск 2 
 ```bash
 magnet:?xt=urn:btih:29B3FEF21A3E0FEEFAA5EB0FAC71C40C2513D56E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -658,6 +704,8 @@ VA - Dance Hits Romanian Style 2016 (Extended Versions) (2015) [MP3|320 кб/с]
 magnet:?xt=urn:btih:A93E757530DA0B39B822987C7F1C23425AFB24B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -685,6 +733,8 @@ VA - Осенняя свежая 30-тка Vol 2 (2019) [MP3|320 Kbps] <Pop, Dan
 magnet:?xt=urn:btih:751E6621F1103C54DFD4BD1632B77A58E6645BBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -711,6 +761,8 @@ VA - Top 100 Зайцев.Нет Октябрь (2017) [MP3|320 Kbps] <Pop, Rap,
 ```bash
 magnet:?xt=urn:btih:48039C8382494B45D5E7BEADA15F602913449718
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.01/dlc) Repack FitGirl [Deluxe Editio
 magnet:?xt=urn:btih:9B4FC9B1C394D680EE3F08CF846184C357D875D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Panzer Corps 2 - лучшая стратегическая игра о Втор�
 ```bash
 magnet:?xt=urn:btih:68C9189EF9FC1D63BF6A6877EC2A008C75087ACF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Megaquarium (2018) [Ru/Multi] (4.2.5g/dlc) License GOG
 magnet:?xt=urn:btih:3496A9ECEE838CA4956641F45A103D74C953EAB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Gunsmith Simulator, как понятно из названия, являетс�
 ```bash
 magnet:?xt=urn:btih:DA88929708977E48913B9502E788AA543739E87A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:DA88929708977E48913B9502E788AA543739E87A
 magnet:?xt=urn:btih:608F5663B2A1C685BF5D5A72055EE9596898A9F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ World of Goo 2 (2024) [Ru/Multi] (13205W) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:91C70A133CDCAB676E04985991647B22A76B0E7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Artifact Seeker - это 3D-игра в жанре Roguelike Survivor. Игра 
 magnet:?xt=urn:btih:E11FD1B2E8C82187CE38CC82D21E2DA04798CE2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Frozenheim – сага о викингах, в которой главного 
 ```bash
 magnet:?xt=urn:btih:3DE839CC61B5E154CDC084AEA8C1F91EEF1AD886
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Memoriapolis приглашает вас построить город, охва
 magnet:?xt=urn:btih:9E7902AAB5DBB8BD9B30006031874D723554B9B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (7.2.0.1/dlc) Repack seleZen 
 ```bash
 magnet:?xt=urn:btih:209F3C04DEA2C9B34089F0EDFD411CD9A23ED16E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ ENDLESS Dungeon - это уникальный тактический roguelite-�
 magnet:?xt=urn:btih:BC66A4A7C77378BC44CA8FAD23609B2434842F47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ The Little Brave это захватывающая, приключенческа
 ```bash
 magnet:?xt=urn:btih:AE37D7A537D1DE5298D0CAE80C8DB45BD4C44A12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Vampire Survivors — казуальная игра в стиле готичес
 magnet:?xt=urn:btih:69C6DF5822A417D25EB7662B6C78F50C4748C5D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Workers & Resources: Soviet Republic / Workers and Resources: Soviet Republic (2
 ```bash
 magnet:?xt=urn:btih:DCCB22D9A5246DCD06FBFE1C8ECA61E278BE558F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Guilty Gear Strive – новая глава знаменитой франшиз
 magnet:?xt=urn:btih:E9AC66D03F530A683487A6DF1724A069DBA1B9F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Atomic Heart – это приключенческий экшен боевик, 
 ```bash
 magnet:?xt=urn:btih:D909235129ACA66A9694C3D312998444D9EEE7F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Pacific Drive - это атмосферное автомобильное при�
 magnet:?xt=urn:btih:4498A1BE81B5DF00A8B47EED9F16E354A6A3F240
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Tennis Manager 25 ставит геймера во главе теннисной
 ```bash
 magnet:?xt=urn:btih:D9E5321998BA9C37C4393726192D5E457A124932
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Fuga: Melodies of Steel 3 разворачивает историю отчаян
 magnet:?xt=urn:btih:DE7F5A5F453B6FC6E9042C13C8D07BEFC81BF29D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Section 13 (2023) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5EA5ACDA14926BDBA8C01FE6E469E70CBB3C8A35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Dragon Ball Xenoverse 2 – это приключенческий экшен в 
 magnet:?xt=urn:btih:D1C3E3FBACCDED995B012F9C321D0455C75F2733
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Immortal Hunters (2025) [Ru/Multi] (0.1.1681.9f4ce919) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:3D1730940511A7FD96473F90BD73CCB6C84BEF75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Farming Simulator 25 (2024) [Ru/Multi] (1.9.0.1/dlc) Repack Pioneer
 magnet:?xt=urn:btih:8A0D6837D9C0DA7074A782C42C2A1A2FD3E135AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Occupy Mars: The Game (2023) [Ru/Multi] (0.199.7) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:B5F5CA75BD2BB2ECF1F8F9E73A76ED4B6BB9CB39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ HUMANKIND – историческая пошаговая стратегия, в
 magnet:?xt=urn:btih:6B0E05851D46CD4B480D7BD8FA9DEF5B554934FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Dark Souls II (2): Scholar of the First Sin (2015) [Ru/Multi] (1.03/dlc) Repack 
 ```bash
 magnet:?xt=urn:btih:3B851B4FEE4F628A8524A6B8B90A8511AFBAA9E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

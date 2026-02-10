@@ -19,6 +19,8 @@ Interstellar Space: Genesis (2019) [En] (1.6.3/dlc) License GOG
 magnet:?xt=urn:btih:118E4AB0DEADDEACA42BD587B8EB9A52E3F3EACA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Star Mission: Remote Sectors (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:AEC65CAE55AC28AF2163E95AEFE964C344B16346
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ AirportSim - это передовой симулятор, который поз
 magnet:?xt=urn:btih:17408E1D2C98B51E6069C8769B6CDF33C5632A93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ A Year Of Springs (2021) [Multi] (1.07) License GOG
 ```bash
 magnet:?xt=urn:btih:9172FD0C1B9E87863701C97D3A6EECDB35A3742F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Twilight Wars (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 magnet:?xt=urn:btih:68CE83F7E217596589F181AE100F86939E0A7C50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Spectator 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FB41BCACDB8766B071DB152EBC35F7AEBCE6DC66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Farm Together 2 (2024) [Ru/Multi] (Build 18675684/dlc) Repack FitGirl [Soundtrac
 magnet:?xt=urn:btih:29287000301395EFF351CA078213B21F0E60F69C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Pieces of me / Кусочки меня (2025) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:14C153662468831E1532897AE00AD553F30FF8B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Pieces of me / Кусочки меня (2025) [Ru/Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:ECF6F49EA916737F1004146BD3FF959E4B7B962B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Danger Zone - постапокалиптический 2.5D шутер с в
 ```bash
 magnet:?xt=urn:btih:EB5E5611ED2DD206A695C9A24D459BA3082C3808
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.01/dlc) Repack Other s [Deluxe Editio
 magnet:?xt=urn:btih:4965F17604BCF06FEBD925DE5880F200D193A858
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Pieces of me / Кусочки меня (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:82A1DEFC8686DA7CE0DCC4305D4665D73D036F31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ World of Goo 2 (2024) [Ru/Multi] (1.0.13211) License GOG
 magnet:?xt=urn:btih:F9764980F4FEABC2352EB031A186F0F7D5F43836
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Iron Meat - это динамичный шутер в жанре "беги и с
 ```bash
 magnet:?xt=urn:btih:35D4488BFCDF83236264BEAA5618ED4E3BC80DED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Forza Horizon 5 – продолжение популярной гоночной
 magnet:?xt=urn:btih:2788F2F0D914927EC02579213E685BCC7CA6EAA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Car Dealer Simulator открывает путь в сферу торговли 
 ```bash
 magnet:?xt=urn:btih:7FF59C3806629A0E314E33EA8F9CE7BFE925965D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Wayfinder (2023) [Ru/Multi] (211130/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:50FFA7E4ED254390DAA2BE7571AB647024502CDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Disney Illusion Island - это двухмерное приключение дл
 ```bash
 magnet:?xt=urn:btih:7AAD11B013AC83E8CE54E197B8B127C02BBBF959
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Grim Tales 26: Prisoners of the Past / Страшные сказки 26: Узн�
 magnet:?xt=urn:btih:248CF86FBD4DEB2C114117FEAF02D6D89CCD0D5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Disney Illusion Island - это двухмерное приключение дл
 ```bash
 magnet:?xt=urn:btih:AF32846399DC5B7F04107E980A7134371E0064B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ MindKatt: First Strike (2025) [Multi] (Build 18559755) Repack Let'sРlay
 magnet:?xt=urn:btih:51F08526AD3CCADF749BF329314D2906B934A5AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Brassheart - приключенческая игра, действие кото�
 ```bash
 magnet:?xt=urn:btih:5A264437ED3D1A8546549BEDFB98C708BB1EF772
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Flashing Lights: Police, Firefighting, Emergency Services Simulator – это �
 magnet:?xt=urn:btih:DC9C0B6DD33998C065DA04B41BD9033D9B17717A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Car Dealer Simulator открывает путь в сферу торговли 
 ```bash
 magnet:?xt=urn:btih:6CF045369685242FF2B2316F31A8F8723911725D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Cataclismo вводит игроков в роль лидера, ответст�
 magnet:?xt=urn:btih:2B9CB855E5EC2A79344D211EEC881B7D54E3C5C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ True Fear: Forsaken Souls Part 3 - заключительная глава тр�
 ```bash
 magnet:?xt=urn:btih:1CEB4C0B5A07B17342C0A50CABE665217860A1C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

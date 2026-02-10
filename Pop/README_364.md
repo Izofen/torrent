@@ -1,3 +1,148 @@
+###  Публикация: 1609969   (1042856) от 05.02.2023
+
+Chilly - Devils Dance (1983) 2023 Reissue, Remastered, Unofficial [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Devils Dance
+02. One Moment One Second
+03. Love On The Rebound
+04. Peep Peep(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:832898A3436C54DA7F7C8E77C85C6DA7416DE163
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609818   (1042859) от 05.02.2023
+
+VA - Romantic Collection. Volume 3 (1997) [OGG Vorbis|480 Kbps] <Pop Rock, Swing, Blues Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beatles — Yesterday
+02. The Platters — Only You
+03. Lois Armstrong — Go Down Moses
+04. Frank Sinatra — Stranges In The Night(   Читать дальше...   )Жанр: Pop Rock, Swing, Blues RockПродолжительность: 01:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6B5B88A948D89085D94500A19B024CD07E3E8E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610046   (1042868) от 05.02.2023
+
+VA - Romantic Collection. Golden (1995) [OGG Vorbis|480 Kbps] <Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Just Called To Say I Love You
+02. Don't Stop The Dance
+03. Shape Of My Heart
+04. Blessed(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 02:24:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD76047B251E8E250C35E77C4BBD7DA742121861
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610065   (1042899) от 05.02.2023
+
+Bryan Adams - Cuts Like A Knife - 40th Anniversary, Live From The Royal Albert Hall (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Only One (Live at The Royal Albert Hall) [00:03:00]
+02. Take Me Back (Live at The Royal Albert Hall) [00:04:20]
+03. This Time (Live at The Royal Albert Hall) [00:03:23]
+04. I'm Ready (Live At The Royal Albert Hall) [00:04:02](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:144F9DAB9A630E425CB4C96F34D8A20E82D2A6D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609612   (1043144) от 04.02.2023
+
+VA - timeless pop songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duran Duran - Girls on Film (2010 Remaster) (3:32)
+02. James Blunt - You're Beautiful (3:29)
+03. Bruno Mars - Just the Way You Are (3:40)
+04. Ava Max - Kings & Queens (2:42)(   Читать дальше...   )Жанр: PopПродолжительность: 02:48:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F06A75D6A00FE3944E9F6679753C97B53215F58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609766   (1043151) от 04.02.2023
 
 VA - Ciao Italia (1997) 3CD Box Set (1997) [MP3|320 Kbps] <Рор>
@@ -21,6 +166,8 @@ VA - Ciao Italia (1997) 3CD Box Set (1997) [MP3|320 Kbps] <Рор>
 ```bash
 magnet:?xt=urn:btih:D091D9F48D34FB9F9767BE5343438CB163A451A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +196,8 @@ Shania Twain - Queen Of Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Country>
 magnet:?xt=urn:btih:B1AFF50B5B8958B1031FCE9994CEBE603ED91966
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +224,8 @@ Illona Staller (Cicciolina) - Illona Staller (1979) Reissue CD, 2000, Sequel Rec
 ```bash
 magnet:?xt=urn:btih:1A4B640E14028FFAFE5F1145754188C918829C72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -105,6 +256,8 @@ Sarah McCoy провела большую часть своей жизни, иг
 magnet:?xt=urn:btih:7C648377C9FE1ED6DCDA179A2758C6A380D08EE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -131,6 +284,8 @@ magnet:?xt=urn:btih:7C648377C9FE1ED6DCDA179A2758C6A380D08EE7
 ```bash
 magnet:?xt=urn:btih:2C8E642515A93D51E08B1C746A220BEDBC640A00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -159,6 +314,8 @@ magnet:?xt=urn:btih:2C8E642515A93D51E08B1C746A220BEDBC640A00
 magnet:?xt=urn:btih:4CDDCC4A29E28DB2C3D1F8D58133D061168D6997
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -185,6 +342,8 @@ A-Teens - The ABBA Generation (Remix) (2001) Reissue, 2021, Universal Music AB [
 ```bash
 magnet:?xt=urn:btih:CFC44CDF3AC93EF871E88C25DBADB8B5D51B55F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +372,8 @@ magnet:?xt=urn:btih:CFC44CDF3AC93EF871E88C25DBADB8B5D51B55F3
 magnet:?xt=urn:btih:73BD607A5337DE325503C902E848FE9ADF1C847B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +400,8 @@ Pupo - Porno Contro Amore (2016) [FLAC|Lossless|image + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:97B0686FF798CDCE5BCA2BEE64A1267D04862EDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +430,8 @@ magnet:?xt=urn:btih:97B0686FF798CDCE5BCA2BEE64A1267D04862EDE
 magnet:?xt=urn:btih:7A936388BCCF485FB28C9C9CBC5C157A3E4E59FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +458,8 @@ Ricchi E Poveri - Mamma Maria (1986) [FLAC|Lossless|image + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:8746EC21512E8FB8C531B821AE84B317E1CBE342
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +488,8 @@ Gabriella Laberge - Etrangere (2019) [MP3|320 Kbps] <French Pop, Synthpop>
 magnet:?xt=urn:btih:36A22A3258008059B3EA0070F528118F5C9BADD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +516,8 @@ Mylene Farmer - Dance Remixes (1992) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Pop
 ```bash
 magnet:?xt=urn:btih:B8D632BFC67E3137B22E09D2CD36DFF727C09796
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +546,8 @@ VA - soft pop 2023 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:256B365434D9DE4038B0E9A85D3AEB1E74376F2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +574,8 @@ VA - А у нас во дворе... (2005) [MP3|320 Kbps] <Рор>
 ```bash
 magnet:?xt=urn:btih:3F2936C987A709B355913160228BFEE3F0999B58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +604,8 @@ magnet:?xt=urn:btih:3F2936C987A709B355913160228BFEE3F0999B58
 magnet:?xt=urn:btih:65B331CC9B50275D699C22B9B3E4C832831AF667
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +632,8 @@ VA - Best Of Nu Disco 2022, Vol. 1-2 (2022-2023) Disco Balls Records [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:D8996F95E23E6BE52327323C0C41F8727C0B7176
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +662,8 @@ VA - Старые песни о главном 2 (1996) [MP3|320 Kbps] <Рор>
 magnet:?xt=urn:btih:43B35BACC95B401A52AFA821CC462A16FDAC2BBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +690,8 @@ Patricia Kaas - Rien Ne S'Arrete (Best Of 1987 - 2001) (2001) [OGG Vorbis|500 Kb
 ```bash
 magnet:?xt=urn:btih:656C46090BF2EC0C768636C328C1DC7DD1C2F451
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +720,8 @@ The Cars - Candy-O (1979) Reissue, Remastered, 2012, Elektra [OGG Vorbis|480 Kbp
 magnet:?xt=urn:btih:DF7F23EFDC6D2AA0C15802899D74E190439E60C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,140 +749,7 @@ Steps - Platinum Collection (2022) 2xCD [FLAC|Lossless|image + .cue] <Pop, Dance
 magnet:?xt=urn:btih:5D3B864AE328165524CBCABA028FADBC5129C506
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607546   (1043952) от 27.01.2023
-
-Mylene Farmer - L'Autre... (1991) [OGG Vorbis|480 Kbps] <Electronic, Pop, Chanson>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agnus Dei
-02. Desenchantee
-03. L'autre
-04. Je t'aime melancolie(   Читать дальше...   )Жанр: Electronic, Pop, ChansonПродолжительность: 00:55:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1546CF45AAD106B6EAE7A755032BFDCE6A085704
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607465   (1044005) от 26.01.2023
-
-VA - GANGSTER MUSIC, Vol. 7 (2023) [MP3|320 Kbps] <Eurodance, Technopop>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044005.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Slider & Magnit - Stacked
-2. TRITICUM - Petrunko 2.0
-3. NVTION PVNIC/KDDK - Hypnotizes
-4. VUDOO/Kolya Funk - Kruzak (Kolya Funk Remix)(   Читать дальше...   )Жанр: Eurodance, TechnopopПродолжительность: 01:19:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70B4E7B8EC45290AB32D245096DFA0B70754761C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607058   (1044051) от 26.01.2023
-
-VA - Megahits 2023-die Erste [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044051.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Ed Sheeran - Celestial (3:29)
-02. Sam Smith - Unholy (2:36)
-03. Tiesto - 10 35 (2:52)(   Читать дальше...   )Жанр: PopПродолжительность: 02:24:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B67326D2044DE0C5E079DEB54759BD4E6D5FC16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607274   (1044055) от 26.01.2023
-
-Sting - Sacred Love (2003) [OGG Vorbis|450 Kbps] <Rock, Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inside
-02. Send Your Love
-03. Whenever I Say Your Name
-04. Dead Man's Rope(   Читать дальше...   )Жанр: Rock, Pop, Pop RockПродолжительность: 00:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B421B8124FF44FB62218E93C1A966E82C21354F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607029   (1044056) от 26.01.2023
-
-Adriano Celentano - Le Volte Che Celentano E'Stato 1 (2003) [OGG Vorbis|450 Kbps] <Rock, Pop, Chanson>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 24.000 baci
-02. Nata per me
-03. Si e'spento il sole
-04. Ciao ragazzi(   Читать дальше...   )Жанр: Rock, Pop, ChansonПродолжительность: 01:06:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B24FC88EEE19A8DFC1A3C3F9B9E93032C34F1BAF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

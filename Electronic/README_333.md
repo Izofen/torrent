@@ -22,6 +22,8 @@ VA - Kontor Sunset Chill 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, 
 magnet:?xt=urn:btih:3F449A94789DD8E4BBE087D7CC251B7FD4E20007
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -50,6 +52,8 @@ VA - Ibiza Deep House (2017) [MP3|320 Kbps] <Deep House>
 magnet:?xt=urn:btih:B520233F63051049E385528E04530AA3C7FF5602
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +80,8 @@ VA - Markus Schulz - Global DJ Broadcast: Top 20 May (2018) [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:1536A245C31EAE7F300BE9814731A8C95141E72B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -104,6 +110,8 @@ VA - Markus Schulz - Global DJ Broadcast: Top 20 May (2018) [MP3|320 Kbps] <Tran
 magnet:?xt=urn:btih:1F34666BE78A3B9CE88E3D21E65945AB77834E01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +138,8 @@ VA - Softly Best Lounge & Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillout,
 ```bash
 magnet:?xt=urn:btih:DE391E3B153284CAB388BF2749AE34A2A23C73FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -158,6 +168,8 @@ VA - Palm Garden Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:98F41DB2A23B6869BC0B9E076408BAE4CE02E309
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +196,8 @@ VA - Ufo Classics (2017) [MP3|320 Kbps] <Minimal, Tech House>
 ```bash
 magnet:?xt=urn:btih:1ED51907371FE178A5A8C02F8A6A8016F76137F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +226,8 @@ VA - Leisure Zone Vol.1 (The Beauty of Chill Out) (2017) [MP3|320 Kbps] <Downtem
 magnet:?xt=urn:btih:93369F38C932DE8B00B996E87B675C8DE35FA1BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +254,8 @@ VA - Best Of Atec - Summer (2017) [MP3|320 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:5497AACDFBEE1DD586BFAEE597AEF7C0669C54C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +284,8 @@ VA - Aly & Fila - Future Sound of Egypt 548 (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:58500E38A0E48EA2F73FD052C5BD124BF61C5897
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +310,8 @@ Markus Schulz:
 ```bash
 magnet:?xt=urn:btih:F08BB4C255A2EC360A8B4134D78EC849128027DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +340,8 @@ VA - Black Hole Trance Music 05-18 (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:32E061AB79944B5C43B1B1D972579699325C8A67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +368,8 @@ VA - Trance Favorites Episode 013 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:8EA8B6FFC69AB6353AE5A0278BF740CB261C5543
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +398,8 @@ Veselin Tasev - My Universe (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:89CBA2929E6B2083F8ECEFC8A837A7F45B15384B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +426,8 @@ DiNT - Hooker (2018) Horo [FLAC|Lossless|WEB-DL|tracks] <Techno, Industrial, Exp
 ```bash
 magnet:?xt=urn:btih:64D79D7E400EA573C843699C80341ABC12460D7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +456,8 @@ VA - Sports Megamix 2022 [MP3|320 Kbps] <House, Dance>
 magnet:?xt=urn:btih:13F0FFA7492D8E48A754C5C8C4E8321FCEEF3C80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +484,8 @@ VA - Vocal Trance Hits 2022 Vol 1 [MP3|320 Kbps] <Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:B4D5F6241DFAB7E124CF3CA6EF0A242CF880988F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +514,8 @@ Nickolay Fedorenko - Magic Multiverse: Best of 2011-2017 (2022) [MP3|320 Kbps] <
 magnet:?xt=urn:btih:5E75A725841827B87D82932E4C4A22E5B009AC42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +542,8 @@ Major Lazer - Peace Is the Mission (2015) [FLAC|Lossless|WEB-DL]<Trap, FutureBas
 ```bash
 magnet:?xt=urn:btih:72F0828A9AFDA09146783225408229C6509892DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +578,8 @@ Example - Playing In The Shadows (2011)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +606,8 @@ VA - Paul Oakenfold - DJ Box: June (2015) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:96DB7575D59F1C02A7DC2537D2F227D30501B231
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +636,8 @@ VA - Chill Bar Essential Lounge (2015) [MP3|320 кб/с]<Downtempo, Lounge, Chil
 magnet:?xt=urn:btih:A528F268292F1D7D87D2C3FA6885599525E93ADF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +665,8 @@ DAVI - Boarding Call (2018) Maxi Single & EP [FLAC|Lossless|WEB-DL|tracks] <Deep
 magnet:?xt=urn:btih:9FA1C2783B7D72E8BBC9DA0061C44FC4C70710A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +690,8 @@ Rodriguez Jr. - Baobab (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep Ho
 ```bash
 magnet:?xt=urn:btih:8686A6BB509BB95169946C6C7ACB349227AAC4CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -671,6 +719,8 @@ VA - Skullduggery Selection Vol. 001 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:92EA12BBB83B08FD46B72202E80C64A352BB1239
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -704,6 +754,8 @@ magnet:?xt=urn:btih:92EA12BBB83B08FD46B72202E80C64A352BB1239
 ```bash
 magnet:?xt=urn:btih:D2833FFD523CE2D5B566882CDD6286F463FBAC9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

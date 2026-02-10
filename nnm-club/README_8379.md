@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:E24EBDDF53FC650B98B12101C735DA71C21992E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Federico Kereki | Mastering JavaScript Functional Programming, 3rd Edition (2023
 ```bash
 magnet:?xt=urn:btih:1D60C7615AF2E2BE4B9020B609FE4A897AB40D95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:1D60C7615AF2E2BE4B9020B609FE4A897AB40D95
 magnet:?xt=urn:btih:D93BB5F593F50D94D448A087E3F72E7EDB5F2556
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:D93BB5F593F50D94D448A087E3F72E7EDB5F2556
 ```bash
 magnet:?xt=urn:btih:06AD4A8AE3A9906459DCC8E53A1A498D97E1F291
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 magnet:?xt=urn:btih:70776BE0D4CA7C4A29FDD14AE0E8CD65003210CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:70776BE0D4CA7C4A29FDD14AE0E8CD65003210CD
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Marten Deinum, и др. | Spring 6 Recipes: A Problem-Solution Approach to Sprin
 magnet:?xt=urn:btih:9EE4C63524B9BAD144E307373EBEA1637513077D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:9EE4C63524B9BAD144E307373EBEA1637513077D
 ```bash
 magnet:?xt=urn:btih:D99AC2AFEECC5C9D8FA9E1F8A5E4BCE8C3659DC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:D99AC2AFEECC5C9D8FA9E1F8A5E4BCE8C3659DC0
 magnet:?xt=urn:btih:117CFE50C050B763DB061C61C268013EDCF72B5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Windows 10 Enterprise LTSB v1607 14393.5921, включающая в себя 2 
 ```bash
 magnet:?xt=urn:btih:10502B356EC990D3C0294179FC5EFA91342D00F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:10502B356EC990D3C0294179FC5EFA91342D00F3
 magnet:?xt=urn:btih:E55A355AE8111FBD9062960507379A53B0FDFD55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:E55A355AE8111FBD9062960507379A53B0FDFD55
 magnet:?xt=urn:btih:ED1A201076ABCB3E8EAB5A1B9671F6811E8E20CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:ED1A201076ABCB3E8EAB5A1B9671F6811E8E20CD
 ```bash
 magnet:?xt=urn:btih:841699E7BDFD870D505275B3534AB52B5E9F9B40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:841699E7BDFD870D505275B3534AB52B5E9F9B40
 magnet:?xt=urn:btih:FDDB882B248784133731382A395E320ADA9E1993
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:FDDB882B248784133731382A395E320ADA9E1993
 magnet:?xt=urn:btih:E4D7B6A4245BCD238301542FDFC450EE8EA5B3D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:E4D7B6A4245BCD238301542FDFC450EE8EA5B3D2
 magnet:?xt=urn:btih:2C1E611311BC4E2008E31DE7E5361B29585C13EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:2C1E611311BC4E2008E31DE7E5361B29585C13EC
 ```bash
 magnet:?xt=urn:btih:3AF78BC0E56F0834C3F65A1E56D377E4AAE34566
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Udemy, Andrey Sobolev | Микросервисы на Python (asyncio, starlette
 magnet:?xt=urn:btih:743C6237D462A246D8D53E790531D3BC3F7A9867
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 magnet:?xt=urn:btih:634C3A6F777F52AB6B4BFC168AAC45BFED67E113
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:634C3A6F777F52AB6B4BFC168AAC45BFED67E113
 ```bash
 magnet:?xt=urn:btih:6DDC0E1CFF4BECB8E25A09B99791697E288E13B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ Ulbi TV, Тимур Ульби | Продвинутый Frontend. В Production 
 magnet:?xt=urn:btih:BC75303C93E330FDED975C090FB0FC4F9B80AF5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ Windows 10 Debloater – небольшая утилита для тонкой �
 magnet:?xt=urn:btih:D4D3489B89B5125F70886CE3346DDDE583203907
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ Debian — операционная система, состоящая из св
 ```bash
 magnet:?xt=urn:btih:74E89F15D0B41BC282A46BF2432CD5C50FEE76D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ Dave Matthews (род. 9 января 1967, Йоханнесбург) — южн
 magnet:?xt=urn:btih:9FCE0B0F531B03411FE10D221D07ABD1A9E4792E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ magnet:?xt=urn:btih:9FCE0B0F531B03411FE10D221D07ABD1A9E4792E
 magnet:?xt=urn:btih:044594B1C2826BC0876F3E7E26044B677383A511
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ Omega Infinity - The Anticurrent (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, De
 ```bash
 magnet:?xt=urn:btih:6D8ED293B033FFC8CB660BF307B3614680F8DEA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,27 +1,3 @@
-###  Публикация: 1296844   (607900) от 19.04.2019
-
-Helium Rain (2018) [Ru/Multi] (1.3.6) License GOG
-
->>Win Игры
->>Simulation (Flight/Space)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Helium Rain — это космический симулятор для одного игрока, который позволит вам почувствовать себя главой межзвездной компании. Торгуйте ресурсами и покупайте корабли и станции, чтобы выполнять контракты! Стыкуйтесь со станциями, чтобы покупать или продавать товары или модернизировать корабль, улучшайте свои технологии для повышения эффективности и вооружайте флот (   Читать дальше...   )Тип издания: LicenseРазработчик: Deimos GamesЖанр: Симулятор, Экономика, ФантастикаЯзык субтитров: Русский, Английский, ФранцузскийЯзык интерфейса: Русский, Английский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22D8238D2051C11C71B830332FABEA5BCF602510
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296875   (607906) от 19.04.2019
 
 Weedcraft (2019) [Ru/Multi] (1.01) Repack xatab
@@ -42,6 +18,8 @@ Weedcraft Inc изучает индустрию производства, выр
 ```bash
 magnet:?xt=urn:btih:8C6FCF5760EFC00C54EFB5D38EB9153B3B764560
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Haunted Legends 8: The Iron Mask / Легенды о призраках 8: Же�
 magnet:?xt=urn:btih:79317181DC08556DCE821C1A4C2E315069EFB0E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ The Hong Kong Massacre (2019) [En] (1.04) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:43F33A9051BAF79DCD4652A429DB3B5296B4A82D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ God's Trigger (2019) [Ru/Multi] (1.1.58505) License CODEX
 magnet:?xt=urn:btih:7DE85FA43B674A25A755D53B2C32417E46272886
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Dark Parables 10: Goldilocks and the Fallen Star / Темные Притчи 10:
 ```bash
 magnet:?xt=urn:btih:E653D32B8427B89A006DD2C80FCE53C9CF19E43D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Hidden Object Adventure: Captain Nemo / Hidden Object Adventure: Капитан 
 magnet:?xt=urn:btih:040C3B5D76634378CCB5CD5484A1CC96F46D7AB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Lucius II: The Prophecy является продолжением приключ
 ```bash
 magnet:?xt=urn:btih:574FC4C60C12FAB836E7547428A580860DF51832
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ LEGO The Incredibles (2018) [Ru/Multi] (1.0.0/dlc) License CODEX
 magnet:?xt=urn:btih:2895C9BA921B3B5D6CE651269B08A3B8C2ECC124
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ POSTAL Redux – римейк классической игры, где поль
 ```bash
 magnet:?xt=urn:btih:57914EFD9B9D564896486CC532FFCA565C1079D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ Lust for Darkness (2018) [Ru/Multi] (1.0) Repack R.G. Catalyst
 magnet:?xt=urn:btih:C34FC782341F094EBC63AE0B47B1DEC43793CD45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ Shantae Anthology (2014-2018) [En] (1.0.1.5/1.04g/1.0hf21245) License GOG
 ```bash
 magnet:?xt=urn:btih:5DDACD9AD30D5C7D2A42D3FF7932261DA8DF3306
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ Dark Parables 11: The Swan Princess And The Dire Tree (2016) [En] (1.0) Unoffici
 magnet:?xt=urn:btih:600B84927FDA89F8A68B81BCF87201FCE6DBBB92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ Haunted Legends 8: The Iron Mask (2016) [En] (1.0) Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:1743C589F04BE2A6192A04A2140D0C5EA8BCFC13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ Cursed Cases: Murder At The Maybard Estate (2016) [En] (1.0) Unofficial [Collect
 magnet:?xt=urn:btih:FF79A6191B6054002BDA197669307F8008A63279
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ Sister's Secrecy: Arcanum Bloodlines Collector's Edition / Сестры. Тай�
 ```bash
 magnet:?xt=urn:btih:1831218BC42E78456FF0D468EA1C3E90F4CA7B8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ Bastion — ролевая игра с принципиально новым в�
 magnet:?xt=urn:btih:6F385EDAB6F23D418D185051C20F0E7A4B9A43F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ Medieval Dynasty (2021) [Ru/Multi] (1.3.0.5) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A77206C31D7E4BA42A3B33727759CEB46D5C57EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ Echoes Of The Past 4: The Revenge Of The Witch Collector's Edition (P) [En] 2012
 magnet:?xt=urn:btih:3126F9A719366593E176397B315DF55A75C08AC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ Headlander (2016) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:A144A958B7981361E00303A50568A2752062D9AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ Headlander (2016) [Ru/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:F1F639400A58B6A1874389659845E923E7770129
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ Driftland: The Magic Revival – стратегия в реальном врем
 ```bash
 magnet:?xt=urn:btih:600908FCF483E1A4C9BC3155D9855E8FE9D7B02B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ League Of Light 4: The Gatherer / Лига Света 4: Стяжатель (201
 magnet:?xt=urn:btih:B741CEA68ABDD66EAE512F2F39A4D6E5BD37DDF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ Hidden Expedition 9: Dawn of Prosperity / Секретная экспедици�
 ```bash
 magnet:?xt=urn:btih:D86DC30C42D76597FCE1EDD575DB8F686A2EC08E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +617,8 @@ Memoirs of Murder 2: Resorting to Revenge / Воспоминание об уби
 magnet:?xt=urn:btih:CD56E1BE11E8A131869156E2FA10EBA7FBCC2ECB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +642,34 @@ League Of Light 4: The Gatherer (2016) [En] (1.0) Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:AD7F9A54B8D0866110B171DBC7A498C0898C2C29
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296629   (610133) от 18.04.2019
+
+Mystery Trackers 16: The Fall of Iron Rock (2019) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610133.jpg" />
+</div>
+
+
+###  Подробнее
+
+После пяти лет, тайна трекеры, наконец, имеют представление о том, где ваш потерянный коллега может быть! Но Iron Rock не тот город, который вы ожидали увидеть, когда вы приедете, его патрулируют роботы нового мэра, оставляя мало надежды для оставшихся жителей бежать! Можете ли вы использовать свои первоклассные навыки детектива, чтобы узнать, что на самом деле происходит, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B90199A4A1F4BC408A7A54F2A5C8CED256052A11
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

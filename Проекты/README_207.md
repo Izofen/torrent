@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:4E7206503F2FC1ED708E9215C24BB0608413BD5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Quick Clean Bling Logo 3 - чистая графика движения, кот�
 ```bash
 magnet:?xt=urn:btih:2F0ED0C59E57D7F6E4CEAA9E0A1BA50E6C4424CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Double Exposure Slideshow - проект слайд-шоу в стиле дво�
 magnet:?xt=urn:btih:3947DD542866497F240520FC15887ECDBD8013D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:3947DD542866497F240520FC15887ECDBD8013D6
 magnet:?xt=urn:btih:971D93BFBBFFC803C460E543CD5A3DA70F336F7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Glitch Pack - текстовая анимация с эффектами цифр
 ```bash
 magnet:?xt=urn:btih:57428D96866284C8D7ED30B31148570591D14A55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Happy Summer Opener - видео-заставка, которая идеальн
 magnet:?xt=urn:btih:DD0421259EA81C7B89178327AE50A773C2E93D98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:DD0421259EA81C7B89178327AE50A773C2E93D98
 ```bash
 magnet:?xt=urn:btih:03415E79DF5DB861BF769DAF6E4FA33E8EB9AA54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ LED Logo - яркая, цветная, плавная анимация для в
 magnet:?xt=urn:btih:CE3159EA9E41334C84B74D9657F0451A085A86D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Arcade Lights Logo - Три анимации логотипа с высокой 
 ```bash
 magnet:?xt=urn:btih:DC0AEF4490A2BADD2BB4EC518F1B43B9D0F44094
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Elegant Particles - элегантная анимация разноцветны
 magnet:?xt=urn:btih:5C39F4FD50C01E78E6AE30B1BE8AB395B6292674
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:5C39F4FD50C01E78E6AE30B1BE8AB395B6292674
 ```bash
 magnet:?xt=urn:btih:2D0FBC6DE67CA790BABE19E355A805D41E2CC7AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Sketchpad - является идеальным для показа логоти
 magnet:?xt=urn:btih:97FE0ABAD8359CCE5BADFCE6009CB07B060A1AC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:97FE0ABAD8359CCE5BADFCE6009CB07B060A1AC0
 ```bash
 magnet:?xt=urn:btih:592A136F03911C8C862A40908A492F6059DD4F8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ The Playbook - Сделайте свой бизнес-презентаций б�
 magnet:?xt=urn:btih:85BEF99364388526F7D86F91DAEF90C3F4D9785F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Form - проект для показа вашего логотипа. Прос�
 ```bash
 magnet:?xt=urn:btih:2E5823E97BA660A8A108FADA2D3EBB8611BFAD5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Socialite - это все графические элементы, что вам
 magnet:?xt=urn:btih:F834DCD15F3051467F3B022EA10D9E2651ED337F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ Bandline - нужна яркая видео-заставка ? Bandline отве
 ```bash
 magnet:?xt=urn:btih:04774B2E1A033181C3A8B722D76AF9E3DF84B524
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:04774B2E1A033181C3A8B722D76AF9E3DF84B524
 magnet:?xt=urn:btih:C45A474904C22B7F812BEC952F24B09853A69667
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ Shapeshifter(Имитатор) - нужна изюминка к новой ан�
 ```bash
 magnet:?xt=urn:btih:6B113AF81228D3F51DE800E66302D01FD0413751
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:6B113AF81228D3F51DE800E66302D01FD0413751
 magnet:?xt=urn:btih:27B07E3D7410F1423A6B391132DBE37732317DC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ Wedding Invitation - это красивый видео шаблон о ваше
 ```bash
 magnet:?xt=urn:btih:F344D21FD9AF9540C3E3C8CA990E59AE95089CF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ Ancient Battle Book - это потрясающий шаблон After Effects �
 magnet:?xt=urn:btih:970A78984A7D5521A38E0DA8197B38BD909017B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ magnet:?xt=urn:btih:970A78984A7D5521A38E0DA8197B38BD909017B5
 ```bash
 magnet:?xt=urn:btih:693D0E420C3F21B1595D6AEDF09BB4A4DAFE16FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ Dynamic Cartoon FX pack - After Effects CS5,5 - CC 2014 проект. Легко
 magnet:?xt=urn:btih:C1875F9EE1DC8AA4E9A61291493693341910E89D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ magnet:?xt=urn:btih:C1875F9EE1DC8AA4E9A61291493693341910E89D
 ```bash
 magnet:?xt=urn:btih:753C9CEE7A97C1AD39791DD7B4D7C2005B5828EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +672,8 @@ magnet:?xt=urn:btih:753C9CEE7A97C1AD39791DD7B4D7C2005B5828EB
 ```bash
 magnet:?xt=urn:btih:312034BC2C8C6D7067C6BED79B4AA29157EB64A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:C538E8E868E9E372EA4F92E43FA0912032C60351
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Hear Clear / Услышать на расстоянии v1.1.9.1 Mod by 0x7d [Ru
 ```bash
 magnet:?xt=urn:btih:616CD09CF7DB48238CDF72E7564A55939FFFBDF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ WPS Office - очень полезное, офисное приложение д
 magnet:?xt=urn:btih:9B68B58523B6F4554131A98133F2F1FF9E914D05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:9B68B58523B6F4554131A98133F2F1FF9E914D05
 ```bash
 magnet:?xt=urn:btih:55284C06E7B7964EDA9F3879A53F5A47EE8C3DE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Xcast.tv / Трансляция на телевизор v2.3.8.2 Mod by vadj [Ru
 magnet:?xt=urn:btih:6D971CCCCCC793CF3A2C825492E898DF4F580DCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ AI Chat Bot на базе ChatGPT, ChatGPT-4, GPT-4o и Gemini, лучший п�
 ```bash
 magnet:?xt=urn:btih:212AD244686F01ED9F2E5D30E6C9A64AE3029FB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ YTDLnis — это бесплатный загрузчик видео/аудио
 magnet:?xt=urn:btih:31837D0B64BAEC46D943DB2FD493713FABBB42F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Sleep as Android: отличный сон v20241122 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7E33C3063FAC00E1A64C6CDC5FC1113F502D37E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Electrical Calculations Pro / Электрические расчеты v10.2.1 
 magnet:?xt=urn:btih:8C5013BFB88D22A62871489DADCF9E5FC208CB12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ HiPER Calc Pro v10.5.6 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:739E400565908B3E2653B227E62199B50AFCBB1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Root Booster v4.0.9 Mod by Balatan [Ru]
 magnet:?xt=urn:btih:3B88C552674F358E8DD3AF463EF49B4B8FF134FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Alight Motion v5.0.271.1002592 Premium Mod by MustHave [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:4A6CB573E3063C0B708A4282C2655608E5238548
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Listonic / Список покупок v8.16.1 Mod by NURIK kz [Ru/Multi]
 magnet:?xt=urn:btih:D3AE9775A78C77798B02A76B6691A464F44AA79D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Words – это лучшее приложение для изучения сл�
 magnet:?xt=urn:btih:85DFC6410BFA22AB872D1FD82F10C1680C3F30DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ Words – это лучшее приложение для изучения сл�
 ```bash
 magnet:?xt=urn:btih:4C892D93DB0AE09F612041A84DB34B5D8484FAC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:8CCAB6DA0CA0DD05BCBAA3CED67A7E5BAE8E21CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ tinyCam Monitor PRO - удобное приложение для работы с
 ```bash
 magnet:?xt=urn:btih:19C43A5511635963C278EB11C6C4DAEE196FEEC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ Truecaller: AI Call Blocker / Oпределитель номера v14.32.8 Gold
 magnet:?xt=urn:btih:A9A6C99FBF04D3AF92BE632C9F96F8611C4268FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:A9A6C99FBF04D3AF92BE632C9F96F8611C4268FC
 magnet:?xt=urn:btih:FF5B29E0994429D83C88D29F432E28CFE866294A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ Periodic Table / Таблица Менделеева 2024 PRO v3.5.6 Mod by Bala
 ```bash
 magnet:?xt=urn:btih:C58B247921BA7B885FE04884DBBB4153107DEEBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ Sleep Cycle — это интеллектуальный будильник, ко
 magnet:?xt=urn:btih:FB3E7EA9DBAE6FC7330272D6E15DE9EC6DDA3E86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ AdGuard — уникальный блокировщик рекламы без ro
 magnet:?xt=urn:btih:B71011FADFD9E8B34A07C6E39B021F6BEB74C002
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ Torrent Pro - Torrent Download - приятное в использовании 
 ```bash
 magnet:?xt=urn:btih:BB953D8AE2A1E9E8F9775D028E97C592419D44A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ PowerDirector – Video Editor v14.6.1 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:8AAC0BE1790BED145D8B1094768CF5EEAE22DC56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Photo Sherlock v1.123 Mod by Mixroot  [Ru/Multi]
 magnet:?xt=urn:btih:21A2CBAA2CBEB635E6025C9AA7782AA49F9AD95F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ magnet:?xt=urn:btih:21A2CBAA2CBEB635E6025C9AA7782AA49F9AD95F
 ```bash
 magnet:?xt=urn:btih:D849F6C17D2537A6BC58CEB11B5213B039E5A41F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1479017   (1009901) от 21.06.2021
+
+Microsoft Windows 10.0.19043.1052, Version 21H1 (Updated June 2021) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 21H1 Build 19043.1052.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD075624D4171E000F2DFE0D2CA22204081CE790
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479008   (1009925) от 21.06.2021
 
 Microsoft Windows 10.0.17763.1999, Version 1809 (Updated June 2021) - Оригинальные образы от Microsoft MSDN [Ru]
@@ -19,6 +46,8 @@ Microsoft Windows 10.0.17763.1999, Version 1809 (Updated June 2021) - Ориги
 ```bash
 magnet:?xt=urn:btih:2A1ED79B26C3F477C34948CD2589A0C78510B836
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +74,8 @@ Microsoft Windows 10.0.17763.1999, Version 1809 (Updated June 2021) - Ориги
 magnet:?xt=urn:btih:28123FF9A55B7E1F54C79605CC02D5DC377E5BCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +101,8 @@ Microsoft Windows 10.0.19041.1052, Version 2004 (Updated June 2021) - Ориги
 magnet:?xt=urn:btih:A241209CB49CB9228D84D5B73DE6D8E0DB437110
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +126,8 @@ Windows Server SAC - канал Semi-Annual Channel идеально подхо�
 ```bash
 magnet:?xt=urn:btih:C9A3F0C879F4DBFCE7E09F5D4A2D9EF278358CA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +154,8 @@ Microsoft Windows 10.0.19042.985, Version 20H2 (Updated May 2021) - Оригин
 magnet:?xt=urn:btih:A0685DCFB50DC2DD9BC7CC728E40C3188ECCE21A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +180,8 @@ Microsoft Windows 10.0.18363.1556, Version 1909 (Updated May 2021) - Ориги�
 ```bash
 magnet:?xt=urn:btih:D92215C38DFC1E31BDE2FC6D29722BA80E44B227
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +208,8 @@ Microsoft Windows 10.0.17763.1935, Version 1809 (Updated May 2021) - Ориги�
 magnet:?xt=urn:btih:928BD5AA113224C939DD404537293FDBA39A5F00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +234,8 @@ Microsoft Windows 10.0.18363.1556, Version 1909 (Updated May 2021) - Ориги�
 ```bash
 magnet:?xt=urn:btih:A02198C6DF4D902360D2868F1AE40FED38FB1157
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +262,8 @@ Microsoft Windows 10.0.19041.985, Version 2004 (Updated May 2021) - Оригин
 magnet:?xt=urn:btih:E9AB58E616E227465F48455E988A13F20154613B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +288,8 @@ Microsoft Windows 10.0.19042.928 Version 20H2 (Updated April 2021) - Ориги�
 ```bash
 magnet:?xt=urn:btih:E063158AB1AE0963D5BF3C3EA126CC41143847F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +316,8 @@ Microsoft Windows 10.0.19042.928 Version 20H2 (Updated April 2021) - Ориги�
 magnet:?xt=urn:btih:F4DB97FE209CF1AE91D24F540FD2677B298C159A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +342,8 @@ Microsoft Windows 10.0.19041.928 Version 2004 (Updated April 2021) - Ориги�
 ```bash
 magnet:?xt=urn:btih:5D101E84A9737A56BC30BC86D73CE8448E7253D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ Microsoft Windows 10.0.17763.1879 Version 1809 (Updated April 2021) - Ориги
 magnet:?xt=urn:btih:569C03F1F8D0A53277D1B58D77F11CEA24F88055
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +396,8 @@ Microsoft Windows 10.0.18363.1500 Version 1909 (Updated April 2021) - Ориги
 ```bash
 magnet:?xt=urn:btih:37ABC8302D078C19E1CEA0DA1FDAFD893A20CADB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +424,8 @@ Microsoft Windows 10.0.17763.1879 Version 1809 (Updated April 2021) - Ориги
 magnet:?xt=urn:btih:073D263DCA00127714FC0ABC8510793B2662625B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +450,8 @@ Microsoft Windows 10.0.19041.928 Version 2004 (Updated April 2021) - Ориги�
 ```bash
 magnet:?xt=urn:btih:BE34C2DBFC49F3266CEF83C2189F53C5444057C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +478,8 @@ Microsoft Windows 10.0.18363.1500 Version 1909 (Updated April 2021) - Ориги
 magnet:?xt=urn:btih:3E53CF9C488A8EFD4C0BB6E21DAD41D9B12283E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +504,8 @@ Windows Server 2019 LTSC, Version 1809 Build 17763.1879 (Updated April 2021) О�
 magnet:?xt=urn:btih:E1743C8739D7E38D3E2C6E6123A7A49DA46D0ACB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +529,8 @@ Windows Server SAC - канал Semi-Annual Channel идеально подхо�
 ```bash
 magnet:?xt=urn:btih:173BEDDD40DB2709818A42961CEE0C343900267B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +559,8 @@ Windows 10 Pro x64 3in1 20H2.19042.867 March 2021 by Generation2 [Multi/Ru]
 magnet:?xt=urn:btih:F6F96368DAD13C590342B2D7463130CDF8C6A6C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +586,8 @@ Microsoft Windows 10.0.19042.867 Version 20H2 (Updated March 2021) - Ориги�
 magnet:?xt=urn:btih:BC34C8AD0C5FF3E96F780D0965F3032F5A6828EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +612,8 @@ Windows Server SAC - канал Semi-Annual Channel идеально подхо�
 magnet:?xt=urn:btih:35F3C89CAC4C1D79FEDB81F2895C2D055DE8A268
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +637,8 @@ Windows Server 2019 LTSC Version 1809 Build 17763.1817 (Updated March 2021) Ор
 ```bash
 magnet:?xt=urn:btih:43F85F21A8487D5A34F1AB0DDED4D5D2F37A5CC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +665,8 @@ Microsoft Windows 10.0.19042.867 Version 20H2 (Updated March 2021) - Ориги�
 magnet:?xt=urn:btih:8332AEC154866B59F31205065B680613E4D50567
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,30 +692,7 @@ Microsoft Windows 10.0.19041.867 Version 2004 (Updated March 2021) - Ориги�
 magnet:?xt=urn:btih:A3BD1230807A1221B41223932669D33C3A78B993
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455409   (1025559) от 19.03.2021
-
-Microsoft Windows 10.0.17763.1817 Version 1809 (Updated March 2021) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.1817.
-Оригинальные образы business_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ECB257251A01238D369A90CC0A78EBE4770299A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

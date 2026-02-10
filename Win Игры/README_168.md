@@ -19,6 +19,8 @@ Oxygen Not Included (2019) [Ru/Multi] (20240718/dlc) Scene TinyIso
 magnet:?xt=urn:btih:C1CE686103F52C5E1E70C0430F4E3CACB94CD882
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Only Up! (2023) [Ru/Multi] (1.0) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:7234B4D4C9A2004D09CD35D1147238983C501136
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Burnout Paradise – Remastered - аркадная гонка, главные о
 magnet:?xt=urn:btih:070697564728E4E289CF38AF5D8B74CCABE1C84D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Under the Waves – это повествовательная приключен
 ```bash
 magnet:?xt=urn:btih:016936C9B28DC0733EE066578917C03D3CF7AED2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Dragon Chronicles: Black Tears - это стратегическая ролев�
 magnet:?xt=urn:btih:64F747058441F305BEABA5AA9766FFEF8D3257DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Nobody Wants to Die с головой окунает вас в Нью-Йорк �
 ```bash
 magnet:?xt=urn:btih:5C03C5A0EBEB6938BFB6A4EB6CD32ED7EAD652BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Secrets of the Heartbeat (2024) [Multi] (20240712) Scene Tenoke
 magnet:?xt=urn:btih:5F835DB71C5C50DB870BF724F04C79869ECB6C0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Burnout Paradise – Remastered - аркадная гонка, главные о
 ```bash
 magnet:?xt=urn:btih:070BEAACEB642310F96BA584FDF4F158EF6B5491
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Pro Cycling Manager 2024 (2024) [Multi] (1.4.1.141/dlc) Scene Skidrow
 magnet:?xt=urn:btih:59C90D18895A9EE733B9D96447B775069EB80B79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Minecraft Dungeons (2020) [Ru/Multi] (1.17.0.0/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:792C4429EC23C73BC50E25AA594EEAECDCA7E08E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Call of Juarez The Cartel - игра-вестерн от первого лица
 magnet:?xt=urn:btih:F5384F20094FAAA66C79339D2715F144D2A89931
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Classified: France ‘44 - это пошаговая стратегическа�
 ```bash
 magnet:?xt=urn:btih:430E4B17CEE02C079E232A241E37DBDE4A958A13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Flintlock: The Siege of Dawn с головой окунает вас в огро
 magnet:?xt=urn:btih:EDB2919DF41F3C5B83729DB58EC49B78821C17BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Spirit of the Island (2022) [Ru/Multi] (3.0.5.2/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:3E9724334C6670B64399B9A4CCAA7DEC5CDDCF24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Asterix & Obelix Slap Them All! 2, захватывающее приключен
 magnet:?xt=urn:btih:1D359FA91A7CA142AAC9DC808C5712577F2B8BCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Suzerain (2020) [En] (3.0.9/dlc) Scene Tenoke [Supporter Edition]
 ```bash
 magnet:?xt=urn:btih:72278E4797E7BF50B444369DFFFAAF1976DC0943
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Nobody Wants to Die с головой окунает вас в Нью-Йорк �
 magnet:?xt=urn:btih:E01CCCA1B733BE851976B7F264B0ABAEAEDE6B75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ The Thaumaturge - изометрическая ролевая игра с глу
 ```bash
 magnet:?xt=urn:btih:F69CA39B82D4AC9D8282254E225A3C4F2B4932C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Crysis (2007) [Ru/En] (1.1.1.6156) Repack FitGirl
 magnet:?xt=urn:btih:5C03FB9EFF9E57CE635D2414B01EEF9E136A832A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ TeleMorpher (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:AE97129A141D899B9992FBE84851A4513D7C7125
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Grouls (2024) [En] (0.5) Repack FitGirl
 magnet:?xt=urn:btih:54E22F9DDABE903E479B87BAF0FC080F5DA551DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Ladder it Up! (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FBFB28B6674683741DC91B642C31B99348047CAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ TerraScape позволяет игрокам осуществить свою м�
 magnet:?xt=urn:btih:4494209D9561D2F9DA915B54A09767146C23B078
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Zero Division (2024) [Multi] (1.01f HotFix) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F45DCB626E7D42AA6720B4A79B259EBEFF98E7E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Butanooo! Simulator посадит вас за руль фургона для д
 magnet:?xt=urn:btih:F8E8C2D6EBF6EBC02FB61A898977069CC1ACDF9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Park Beyond (2023) [Ru/Multi] (4.0.0/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:7DB1F32E59DAE972B491E9B4B3BA10F7FA8B015D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:8D03D1079F11EF56A4F538DB5ED0CCB517FE5280
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Kendra M. L. Cooper, Antonio Bucchiarone | Software Engineering for Games in Ser
 ```bash
 magnet:?xt=urn:btih:1ACF25765E273EFB96931E15311AEF13BE3A5AD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ b]Формат:Перевод: В.С. ЯценковИздательство: �
 magnet:?xt=urn:btih:1CBE791DBC252318287A90F5EBD61DC337FDC6D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Chi Wang, Donald Szeto | Designing Deep Learning Systems (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:550C313147A54305819B3A3FAA8309CC5A023F4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Jonathan Bartlett | Programming for Absolute Beginners (2022) [PDF][EN]
 magnet:?xt=urn:btih:332CDD21EC4F523529794F1B9F66E75698D77E86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Alexander Shuiskov | Microservices with Go (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:ACF6D0F8C720CCC6F901D16FE9F97EB7C89C5CA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Frank Zammetti | Modern Full-Stack Development, 2nd Edition (2022) [PDF][EN]
 magnet:?xt=urn:btih:1D87D4419C11A89013D40371CCCDF42515C06E9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Andres Ibanez Kautsch | Modern Concurrency on Apple Platforms (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:08716DCE862C8919631E54BCEB0464B3AFB34BBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:08716DCE862C8919631E54BCEB0464B3AFB34BBE
 magnet:?xt=urn:btih:5A77B8F2BC404231D1F9BF067F92D5F1B9ED2563
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:5A77B8F2BC404231D1F9BF067F92D5F1B9ED2563
 ```bash
 magnet:?xt=urn:btih:E17C40EAEEED6BDB418E6F3210D694B08161F514
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:E17C40EAEEED6BDB418E6F3210D694B08161F514
 magnet:?xt=urn:btih:8D39A519A8BA0B58A94D472137E1C42A8A4F5A12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:8D39A519A8BA0B58A94D472137E1C42A8A4F5A12
 ```bash
 magnet:?xt=urn:btih:33D72F946225B4CE13060F4BB12CF13C90D8E7EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ Sufyan bin Uzayr | CSS Frameworks: The Ultimate Guide (2023) [PDF][EN]
 magnet:?xt=urn:btih:7A4018E30E50912CAACC96A32638D7DFED3EEF45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Stefan Baumgartner | TypeScript Cookbook (2023) [PDF][EN]
 magnet:?xt=urn:btih:BA596FA006C184DDC6904545868E51150DB6E3A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Pascal Thormeier | Mastering CSS Grid (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:95E18E96A1AA2A801190BAED3300746822E0AFDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ Marc Loy, Patrick Niemeyer, Daniel Leuck | Learning Java, 6th Edition (2023) [PD
 magnet:?xt=urn:btih:54E126227E2EFEEC3A28A27EE46CDB7B6D04F9AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:54E126227E2EFEEC3A28A27EE46CDB7B6D04F9AA
 ```bash
 magnet:?xt=urn:btih:11C015E22FEC92579BC9465F64E6984BAD55E77C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ Linux Kernel Programming - это исчерпывающее введение д
 magnet:?xt=urn:btih:69ED605DB6AFE4D56104CB24190B31D0E99FD222
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ Radu Nicoara | How to be a Web Developer (2023) [PDF][EN]
 magnet:?xt=urn:btih:8D94FD82408D9752FC714905274F13C09958AFDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ Vaskaran Sarcar | Introducing Functional Programming Using C# (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:FEE88DD53DE290E50ABDE390B8C1EEE03CD63E21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ Josh Goldberg | Learning TypeScript (2022) [PDF][EN]
 magnet:?xt=urn:btih:29D23088D8AE588DA4EF1B52533894573522DA49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ Anna Skoulikari | Learning Git (2023) [PDF][EN]
 magnet:?xt=urn:btih:D76A4C18C77BFA2CD06E14B615380979BFB1295C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ Peter Spath, Chris Schaefer, Iuliana Cosmina | Pro Spring 6 with Kotlin (2023) [
 ```bash
 magnet:?xt=urn:btih:C0C9317539282BE0F8E95DC4BF847043CF701DC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +632,8 @@ Maaike van Putten, Sean Kennedy | Java Memory Management (2022) [PDF][EN]
 magnet:?xt=urn:btih:5A54932283820A644645DCA2F431CD6BBB27E7BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ Ahmad Sahar, Craig Clayton | iOS 16 Programming for Beginners, 7th Edition (2022
 magnet:?xt=urn:btih:26A200EFE01DA4CC1A92C8C91FBDFB65558582FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ magnet:?xt=urn:btih:26A200EFE01DA4CC1A92C8C91FBDFB65558582FA
 ```bash
 magnet:?xt=urn:btih:6E76E01F9D98585E4352B5E332556EC918CD4D02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

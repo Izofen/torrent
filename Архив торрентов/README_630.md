@@ -19,6 +19,8 @@ IsoBuster - это программа для чтения и извлечени�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ VA - Dixlux Coolest Dubstep Grooves (2012) [MP3|320 kbps]<Dubstep, Drum & Bass>
 magnet:?xt=urn:btih:747B73D515620A61BC5BA4F7D4A0D1EB3963CEC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:747B73D515620A61BC5BA4F7D4A0D1EB3963CEC3
 ```bash
 magnet:?xt=urn:btih:AAAB3093CD6191C016E15D0ED7321FF75EE85786
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -107,6 +113,8 @@ Pat Martino - We'll Be Together Again (1998) [FLAC|Lossless]<Post-Bop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +138,8 @@ DVDFab – мощный, многофункциональный программ
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +167,8 @@ DVDFab – мощный, многофункциональный программ
 magnet:?xt=urn:btih:78632FFA7CD8DF5773910CB9FC7937F2E5FA5860
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +195,8 @@ magnet:?xt=urn:btih:78632FFA7CD8DF5773910CB9FC7937F2E5FA5860
 magnet:?xt=urn:btih:F4B9FDC1D7129FE4526E5BCE3D1C6F57D677AA1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -206,6 +220,8 @@ magnet:?xt=urn:btih:F4B9FDC1D7129FE4526E5BCE3D1C6F57D677AA1B
 ```bash
 magnet:?xt=urn:btih:9458AA3F829005B00CBA932646FE1F94154E51C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -233,6 +249,8 @@ magnet:?xt=urn:btih:9458AA3F829005B00CBA932646FE1F94154E51C4
 ```bash
 magnet:?xt=urn:btih:FA6C6B4C38ECC560EB43683E2FAC8DC81116F352
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +285,8 @@ Pharaoh - Bury The Light (2012) [MP3|320 kbps]<Power Metal>
 magnet:?xt=urn:btih:74D6D1A7B2596EFFF3E245D1538273B6DCF56153
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +320,8 @@ Deep Audio - Digital Poetry (2003) [FLAC|Lossless]<Downtempo, Ambient Chillout>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +345,8 @@ Deep Audio - Digital Poetry (2003) [FLAC|Lossless]<Downtempo, Ambient Chillout>
 ```bash
 magnet:?xt=urn:btih:1346E4B23CE1C6DFA2204438164CE80CAC00D0F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +381,8 @@ Undertow - Два альбома (2006,2009) [FLAC (image+cue)|Lossless]<Thrash 
 magnet:?xt=urn:btih:6B11EBFCA677CBC50602C79EB54DB56E8C165E5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +416,8 @@ Nasty Mane & Project Pat - Belly On Full (2012) [MP3|192 kbps]<Dirty South>
 magnet:?xt=urn:btih:5F52FD0967CC28A5CBFD5CE4D29935CDFA0E45BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +446,8 @@ DJ Hero - 20:ILLEVEN (2012) [MP3|320 kbps]<Breaks, Breakbeat>
 magnet:?xt=urn:btih:ACAB84E90DBF06144BE55EE4E20E06832EB2FE51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +471,8 @@ Anda Adam & Kourosh Tazmini - Can U Feel Love (2012) WEBRip 1080p
 ```bash
 magnet:?xt=urn:btih:768EF034FAE832DBB6C81C605395AF3792DA869A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +505,8 @@ magnet:?xt=urn:btih:768EF034FAE832DBB6C81C605395AF3792DA869A
 magnet:?xt=urn:btih:F55703D1C4744050F0F670FEE45E9DC7DB44BEAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +531,8 @@ R-Studio - лучшее на сегодняшний день программн�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +556,8 @@ R-Studio - лучшее на сегодняшний день программн�
 ```bash
 magnet:?xt=urn:btih:FA22F9887F8A04764427E8D7DE3E1292EC87A7BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +585,8 @@ magnet:?xt=urn:btih:FA22F9887F8A04764427E8D7DE3E1292EC87A7BA
 magnet:?xt=urn:btih:21FEF8BBD64C48F3596ADE4DF1FFD48E86F7DC88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +611,8 @@ magnet:?xt=urn:btih:21FEF8BBD64C48F3596ADE4DF1FFD48E86F7DC88
 magnet:?xt=urn:btih:1E3110BAF06A994F47564556111094E2567E2E04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +636,8 @@ magnet:?xt=urn:btih:1E3110BAF06A994F47564556111094E2567E2E04
 ```bash
 magnet:?xt=urn:btih:95B2DB4334375C1C83D9663727339AD3152F8415
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +672,8 @@ Ry Cooder & Manuel Galban - Mambo Sinuendo (2003) [FLAC 2.0 24/96 |tracks (Vinyl
 magnet:?xt=urn:btih:FF452AB5278D3A6768D8F58AAB82AE513E65E645
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +697,8 @@ Baby Jo in "Going Home" [En] (RePack) 1991 | Pilotus
 ```bash
 magnet:?xt=urn:btih:3F5DE26A2E235D82ED460BBA134DD042A51990D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -676,6 +724,8 @@ magnet:?xt=urn:btih:3F5DE26A2E235D82ED460BBA134DD042A51990D6
 magnet:?xt=urn:btih:710AFCFEEBEE35A7E19A4CEBF03293042B677BC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -699,6 +749,8 @@ magnet:?xt=urn:btih:710AFCFEEBEE35A7E19A4CEBF03293042B677BC2
 ```bash
 magnet:?xt=urn:btih:202B94CB09F15EB7C6E83852ED575E4839C4920E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:0A126203A582F20F2FA66EB15A6E2C1BEFBE4806
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:ACD69508B359E25F393A25AA4A90C9D0F3A9F94C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Total Commander 10.52 (17.01.2023) Portable by MiG [Ru/En]
 magnet:?xt=urn:btih:2FCDDC58A49A32446E5615CC6DDA62DC243B2DE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:2FCDDC58A49A32446E5615CC6DDA62DC243B2DE1
 ```bash
 magnet:?xt=urn:btih:E10C72DE09A38D0AD850718E810C5A59B76D9675
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:E10C72DE09A38D0AD850718E810C5A59B76D9675
 magnet:?xt=urn:btih:5260B1B14CA11B3508A62D24FDF649F5D632959F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:A4F09E35F8E3AEE1020C41A745C1BEBA6D7A2BFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Nmap — (Network Mapper) — мультиплатформенное прило�
 magnet:?xt=urn:btih:3CE4E82B46D6CAB87F064A5B75031C1EC05F598D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:3CE4E82B46D6CAB87F064A5B75031C1EC05F598D
 ```bash
 magnet:?xt=urn:btih:1D2423C739E59F67E0909FAC23AB83DBBD43EE4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:1D2423C739E59F67E0909FAC23AB83DBBD43EE4B
 magnet:?xt=urn:btih:5A830EB48E204869DB5CEC9AB7FD5BF3AC6FA082
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ NOAA Weather by RainViewer (RainViewer: Метеорадары, ДМРЛ) 3.0 Mo
 magnet:?xt=urn:btih:E206163DA7FA77879300E2291A450B8A70350585
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:E206163DA7FA77879300E2291A450B8A70350585
 ```bash
 magnet:?xt=urn:btih:154010F558B64571DF0D7D9EB815C8A66FB7112D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:154010F558B64571DF0D7D9EB815C8A66FB7112D
 magnet:?xt=urn:btih:D8BD2FA907BD7B20C7B6979F0ECC1FE9E65161AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:D8BD2FA907BD7B20C7B6979F0ECC1FE9E65161AB
 ```bash
 magnet:?xt=urn:btih:3E1D6F0E6D1FA952035FBBFD7FE691D2E87D9A8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:3E1D6F0E6D1FA952035FBBFD7FE691D2E87D9A8D
 magnet:?xt=urn:btih:61052AA2913E2230ACDDAB2A2A479C20C54DD6E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ EssentialPIM - это отмеченное различными наградам
 magnet:?xt=urn:btih:B5CC9032C7B0B0132160206A639474E07EB177CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:B5CC9032C7B0B0132160206A639474E07EB177CD
 ```bash
 magnet:?xt=urn:btih:A1797173A98926B80F5BB07D4E8553DB9B396984
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:A1797173A98926B80F5BB07D4E8553DB9B396984
 magnet:?xt=urn:btih:83FB02C008DD18C76D3544D98DDC81B0A8988A52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Topaz A.I. Gigapixel — это первое и единственное при�
 ```bash
 magnet:?xt=urn:btih:298D5E75CE4993D306218CF824DFAAF1ADAE128D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:298D5E75CE4993D306218CF824DFAAF1ADAE128D
 magnet:?xt=urn:btih:46EB63651E130B9A87705F52C5D97ADA811D074A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:3C4D7075A34DB13D73D8AC04BB2A5A91D3383CD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:3C4D7075A34DB13D73D8AC04BB2A5A91D3383CD1
 magnet:?xt=urn:btih:AD8EDF5D92C6350BEBC8BECC1779F531CF83C8E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:AD8EDF5D92C6350BEBC8BECC1779F531CF83C8E2
 magnet:?xt=urn:btih:644BF57A755E3EE2753434A98D85CBA2271C5F52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:644BF57A755E3EE2753434A98D85CBA2271C5F52
 ```bash
 magnet:?xt=urn:btih:1A9D4C301792AAD276C070753D595C93120C53B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ Java Runtime Environment (JRE) - программное обеспечение �
 magnet:?xt=urn:btih:966D93648BCF0B2EA38BF9D5261FC3F11A3E9A46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ magnet:?xt=urn:btih:966D93648BCF0B2EA38BF9D5261FC3F11A3E9A46
 ```bash
 magnet:?xt=urn:btih:AD6A2351AEC87621C8C120824A2CF16CBC41D6A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +681,8 @@ magnet:?xt=urn:btih:AD6A2351AEC87621C8C120824A2CF16CBC41D6A2
 ```bash
 magnet:?xt=urn:btih:E411D4B96C71D8FADF20144791B570CA8A321194
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

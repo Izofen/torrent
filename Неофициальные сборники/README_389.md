@@ -1,3 +1,38 @@
+###  Публикация: 518584   (640732) от 04.07.2012
+
+VA - Сборник медленных хитов Vol.8 (2012) [MP3|320 кб/с]<Pop | Rock | Blues>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_640732.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bryan Adams - I Think About You (3:36)
+2. Richard Marx - On The Inside (3:13)
+3. S Club 7 - Never Had A Dream Come True (4:00)
+4. Adriano Celentano - Conto Su Di Te (4:21)
+5. Sting Feat.Anouska Shankar - The Book Of My Life (6:16)
+6. Touch And Go - Tango In Harlem (3:23)
+7. Charice - Before It Explodes (4:01)
+8. Julio Iglesias Jr - Under My Eyes (4:26)
+9. Tiziano Ferro - L'ultima Notte Al Mondo (3:52)
+10. Michael Bolton - Go The Distance (4:41)Жанр: Pop | Rock | BluesПродолжительность: 06:58:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A827E6A22F09A7B73FC2AB441A0D2ABD448CCDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142572   (640799) от 15.06.2017
 
 VA - Новая Русская Дискотека Vol.9 (2017) [MP3|256-320 Kbps] <Pop, Dance>
@@ -21,6 +56,8 @@ VA - Новая Русская Дискотека Vol.9 (2017) [MP3|256-320 Kbps
 ```bash
 magnet:?xt=urn:btih:CC068B41BFEC0E9466E78154B1F1736AB664B0E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +86,8 @@ VA - Fest Rebel Rock Radio , Vol.1 (2022) [MP3|320 Kbps] <Alternative, Progressi
 magnet:?xt=urn:btih:F69ACFD86E6580A1E788643ECBC5A2BD962D9A37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +114,8 @@ VA - Рок впрок 12 (2019) [MP3|320 Kbps] <Рок, Поп-Рок>
 ```bash
 magnet:?xt=urn:btih:93FDEF0A418AC8DAD05720D03362AF6BB47F001D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +144,8 @@ VA - Red Sunset: Chillout Musical Set (2017) [MP3|320 Kbps] <Downtempo, Chillout
 magnet:?xt=urn:btih:65F36E75A8EA37EC0C52EEA9DA958E43DFEAD3F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +172,8 @@ VA - 100 Cardio Dance Control Hits (2017) [MP3|269-320 Kbps] <Funky, Tropical, P
 ```bash
 magnet:?xt=urn:btih:B5C3D079C38E1F0F98752094DDC00230F4467AD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +202,8 @@ VA - Trance Urban Party: Euphoric Mix (2022) [MP3|320 Kbps] <Trance, Progressive
 magnet:?xt=urn:btih:64105A5FC93AAB1099A9E4BF299A8B2A08270BFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +227,8 @@ VA - Time Life Music: Disco Fever 8CD Collection (2006) [MP3|320 кб/с]<Disco,
 ```bash
 magnet:?xt=urn:btih:D2918FFBD3F61042165698E4AED43A4F45E8D80F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +263,8 @@ VA - Рок в Авто (Полный привод - 50х50) (2012) [MP3|160-320
 magnet:?xt=urn:btih:230CE3D9DCA005EFD879F60086E37F6301800EBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +291,8 @@ VA - De Top 100 Aller Tijden 1989 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 ```bash
 magnet:?xt=urn:btih:05BA479790F26926B08BBCC85CAAE042AAF165E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +321,8 @@ VA - 130 Popular UK Chart (2018) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:5A29856B9A9B561DA307E684C44FCD9A46B96FEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +349,8 @@ VA - German Top 50 Party Schlager Charts 28.05.2018 (2018) [MP3|275-320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:1E2E9AAE921BB6C36DFBF435065D99C7847E3830
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +379,8 @@ VA - Urban Groundz (2018) [MP3|320 Kbps] <Club, Dance, House>
 magnet:?xt=urn:btih:2CB270A676CD4C0EA9B74215CC3610F49BA2B7A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +407,8 @@ VA - Deep House Superstyle (2018) [MP3|256-320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:484B5AA946F21884A16F7EEBB1B5638489379C8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +437,8 @@ Noetik - Shen Sessions (2018) [MP3|320 Kbps] <Trip-hop, Bass, Jungle>
 magnet:?xt=urn:btih:979F71ED3449BC7E96A316C95508EEFAFB03691F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +465,8 @@ VA - Terror Hippie - Terror Trip (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:75A1772AE86DFE8518263DB435FB01342C6C41D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +495,8 @@ VA - Color Club Life (2019) [MP3|320 Kbps] <Club, Dance, Electro House>
 magnet:?xt=urn:btih:E27B3B73E339FBF773476FC67D526937D0B4E239
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +523,8 @@ VA - Союз летних хитов на Europa Plus (2015) [MP3|256 кб/с]<
 ```bash
 magnet:?xt=urn:btih:0BE0A2EEA228C28782FAD0818287773E452200A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +553,8 @@ VA - Music Fop A Bright Dream (2019) [MP3|320 Kbps] <Psychedelic, Goa Trance>
 magnet:?xt=urn:btih:8A4B034A596F67B684BC7B9112F75C44B7C77981
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +581,8 @@ VA - Connection Through Sound (2019) [MP3|320 Kbps] <Vocal, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:A2728B88150318AFB41ECC5A8F6CE6B54D861634
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +611,8 @@ VA - Лирика по венам. Первая доза (2015) [MP3|320 кб/с
 magnet:?xt=urn:btih:0BAF0AAA443FEDEF1193EFE5AA6E1177490E9ACB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +639,8 @@ VA - My Favourite Hits of 1976 (14CD) (2015) [MP3|320 кб/с]<Electronic, Chans
 ```bash
 magnet:?xt=urn:btih:9F4E5C4E2E221B0483692EF12B9729246AE82465
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +675,8 @@ VA - Kiss FM - Top-40 (03.07.2012) [MP3|320 кб/с]<Dance>
 magnet:?xt=urn:btih:43BF4A59B414C480E05E06AC2A3002CF0F8F30B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +710,8 @@ VA - Союз Золотой 8 50/50 (2012) [MP3|256 кб/с]<Рор>
 magnet:?xt=urn:btih:DE8D75C8EA9E1B4556A8FA968C0FE4F032428015
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +738,8 @@ Space - Лучшие хиты (2014) [MP3|320 кб/с]<Electronic>
 ```bash
 magnet:?xt=urn:btih:1BF1C8E532599B07216D1EF0D54AAE0035569D68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -685,32 +768,7 @@ VA - Дискотека забытых хитов (зарубежная) - 12 (2
 magnet:?xt=urn:btih:449DBB197F54075AEEA7832E5B58A73E0DDCC631
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907093   (641513) от 10.06.2015
-
-VA - Car Audio. Ракетное топливо (Sound Clinic - Special Edition) (2015) [MP3|320 кб/с]<Deep, G-House, Trap, Drum & Bass, Electro, Trance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641513.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 3Lau, Nom De Strip, Estelle - The Night (Chris Bushnell Remix)
-2. Affect! - Akaria (Nick Devon Remix)
-3. Alok - Dance (Original Mix)
-4. Amado Olvera - Further (Original Mix)(   Читать дальше...   )Жанр: Deep, G-House, Trap, Drum & Bass, Electro, TranceПродолжительность: 11:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAE8556430385D19AB85663817163E6591A990F6
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

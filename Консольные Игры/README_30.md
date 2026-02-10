@@ -19,6 +19,8 @@ Max Payne 3 (2012) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
 magnet:?xt=urn:btih:192E5D436ED8FA9AF17F7B6CE055FF1E2B80D0B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Uncharted 2: Among Thieves [PS3] [EUR] [Ru] [2.80] [Cobra ODE / E3 ODE PRO ISO] 
 ```bash
 magnet:?xt=urn:btih:001C67DFAAC21F3A18903AE7B6EE1C7697EA17F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Uncharted: Drake's Fortune [PS3] [EUR] [En] [1.94] [Cobra ODE / E3 ODE PRO ISO] 
 magnet:?xt=urn:btih:300C0277232A4751509B6645B20AB26D2D495571
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ History Civil War: Secret Missions- это еще одна игра в сери�
 magnet:?xt=urn:btih:78C3EB7A347AED24331BB7B7F8FAAC10A74322AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Burnout Paradise Remastered (2018) [PS4] [EUR] 5.05 [HEN] [License / DLC] [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:172E8AA81A1FFD8203399B5E6BCED20107234FD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Othercide (2020) [Switch] [USA] 10.1.0 [NSZ] [License / 1.1.0.5] [Ru/En]
 magnet:?xt=urn:btih:9484843EBA2968B74575D618857C0B1A457D6A68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ One Piece: Unlimited Cruise 2 – это продолжение известно
 ```bash
 magnet:?xt=urn:btih:C63F69661C44212B84CBD7220F59B65782C88C07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Clash of the Titans  (2010) [PS3] [EUR] 3.21 [Cobra ODE / E3 ODE PRO ISO] [Unoff
 magnet:?xt=urn:btih:AE6B57967373C43A06BB67D8E46304FFB8EB0D14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Dead Space 3 + DLC (2013) [Xbox360] [RegionFree] [FreeBoot] [Repack] [Ru]
 ```bash
 magnet:?xt=urn:btih:3C17971B1F1BE6839D4D2218B82439131A062A57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Ragnarok Odyssey ACE основана на оригинальной игре с 
 magnet:?xt=urn:btih:99FD711BB8B5FA478AE20F6CA7D48CDF9C5E2C14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ LEGO Marvel Super Heroes 2 (2017) [PS4] [EUR] 5.05 [HEN] [License] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E3FF8CD7C6ACFC0DA1F444FE5D38F662E8A7086F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Operation Flashpoint: Dragon Rising (2009) [PS3] [EUR] 2.76 [Cobra ODE / E3 ODE 
 magnet:?xt=urn:btih:89C14D84023ADF3A26577E747228361C8A102DD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Damage Inc. Pacific Squadron WWII – аркадный симулятор пол
 ```bash
 magnet:?xt=urn:btih:9CA8A5C44AFBD4E68DE17343E3BF8AE305749B1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ Dead or Alive 5 станет двенадцатой игрой в серии и 
 magnet:?xt=urn:btih:66745ED0F18C34287BA4EAD700795008FDB4169D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ Vampyr (2018) [PS4] [EUR] 5.05 [HEN] [License / 1.07] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7F39AFAF592C04B2FF84E9F76BD42A200B2AED79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ Jurassic World: Evolution - игра в мире "Парка Юрского пе
 magnet:?xt=urn:btih:FEDFB077D4A8B3ED6D7E57198EA01D1A8DAC4F59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ Heavenly Sword (2007) [PS3] [EUR] 3.40 [Repack / 1.10] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7EBCCBB7944058A844656DC05D2A576421231740
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ Stray переносит игрока в далекое будущее, мир �
 magnet:?xt=urn:btih:87D36484A6988F40BCEB0CE6F5B4B1B595414C3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Martian Panic переносит жанр шутера Wii  из этого ми
 ```bash
 magnet:?xt=urn:btih:154E6C7D099C300713DECECA6801AA35B6567AC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ God of War II (2007) [PS2] [EUR] [License] [Ru/Multi]
 magnet:?xt=urn:btih:1843ADF8782885EA73E8E5F076A3A1033F4CAF6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Tom Clancy's Splinter Cell: Blacklist - Deluxe Edition (2013) [Xbox360] [RegionF
 ```bash
 magnet:?xt=urn:btih:3FFE81865499AE89A3A628BBDCA232AA137EEF19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Spore Hero (2009) [Wii] [PAL] [License] [En/Multi]
 magnet:?xt=urn:btih:E99F550334FB91A15F21BBF425CBB656F31C743A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ NBA 2K16 (2015) [Xbox360] [RegionFree] [FreeBoot] [License] [En]
 ```bash
 magnet:?xt=urn:btih:C2A3DBCEDEB1DB85975977A03AF5003BD845CAF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ magnet:?xt=urn:btih:C2A3DBCEDEB1DB85975977A03AF5003BD845CAF0
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ NBA 2K16 (2015) [Xbox360] [RegionFree] [LT+3.0] [License] [En]
 magnet:?xt=urn:btih:FB5DA396BB2C803694BB504422E3239AC6E76D21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Trinity: Souls of Zill O’ll (2010) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO IS
 ```bash
 magnet:?xt=urn:btih:790A59AB2452262F1AC61E858D9B5EAD9FE4CB77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Earthmark - Megafauna (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Progres
 magnet:?xt=urn:btih:7D6D601D5547141B1B977F26786155192A5224C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Chris Angels - Chaos (War of the Worlds) (2023) [FLAC|Lossless|WEB-DL|tracks] <P
 magnet:?xt=urn:btih:19E9104FDA290EE6F768AC071E94867537F2AC14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ RTG. Сад-гигант (2013) HDTV [H.264/1080i]
 magnet:?xt=urn:btih:3602E511FF61CACE3C15EB0327CA99527FE8E19C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Stats - это приложение с открытым исходным код�
 ```bash
 magnet:?xt=urn:btih:B37A6F8083E2F35B1A42C72D174049FEA915D4DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ HitPaw Video Converter for Mac 3.0.0 [Multi/Ru]
 magnet:?xt=urn:btih:2CE571B515F5737202DC3A398B20757F1D959562
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:2CE571B515F5737202DC3A398B20757F1D959562
 ```bash
 magnet:?xt=urn:btih:94EFBC4D5D27EC9E0998DE5F6FD2C44991AAFDB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ Art Text - красивое текстовое приложение под Mac O
 magnet:?xt=urn:btih:BFA8A20FC65E347367BA8BD620AEB4B968CFC9E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:BFA8A20FC65E347367BA8BD620AEB4B968CFC9E7
 magnet:?xt=urn:btih:73CBEE9EFB48AF5797B35270B7B4BDD2E04D4583
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:73CBEE9EFB48AF5797B35270B7B4BDD2E04D4583
 ```bash
 magnet:?xt=urn:btih:814FFF968CE2F134BC1F6EA8763D1A51AD938A74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 magnet:?xt=urn:btih:B745881BB488A9FBECBB5D9AE04812E9B5B952ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:B745881BB488A9FBECBB5D9AE04812E9B5B952ED
 ```bash
 magnet:?xt=urn:btih:FE4D10C9FBBBD736DC59FFF25CAC673B5C4F8FC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ VA - Громкие новинки Мая (2022) [MP3|320 Kbps] <Pop, Dance, Oth
 magnet:?xt=urn:btih:B7B78C1FBAD8F889ED38984037B9242011155B72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:B7B78C1FBAD8F889ED38984037B9242011155B72
 magnet:?xt=urn:btih:120FBBC106B847386D4F18FB266A81BA9DBDF5C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:120FBBC106B847386D4F18FB266A81BA9DBDF5C3
 ```bash
 magnet:?xt=urn:btih:026CFB1305BDF462D8A0D5C3B5C5C93E8B7A9762
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +397,8 @@ magnet:?xt=urn:btih:026CFB1305BDF462D8A0D5C3B5C5C93E8B7A9762
 magnet:?xt=urn:btih:F0C7FC86C80F0E0B77734665C2E526E7F9986E4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:89F427C34257F4C5E6ACEB5F9889F05003C3AEA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ Sugaray Rayford - In Too Deep (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul 
 magnet:?xt=urn:btih:425BDC112F0E7CB8B11294993870B36DE0EF61CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ magnet:?xt=urn:btih:425BDC112F0E7CB8B11294993870B36DE0EF61CF
 ```bash
 magnet:?xt=urn:btih:4EB68FB021C52D603DBD2054526D5F9C2CA784E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ VA - Black Hole Trance Music 05-23 (2023) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:001B598120ACAE1F376E8B7B99601B53C9CD4209
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ magnet:?xt=urn:btih:001B598120ACAE1F376E8B7B99601B53C9CD4209
 magnet:?xt=urn:btih:53493DD17B5E3E3C61FC8B4C75C328D94F5A6622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ magnet:?xt=urn:btih:53493DD17B5E3E3C61FC8B4C75C328D94F5A6622
 ```bash
 magnet:?xt=urn:btih:A17C3127C05E03E6310E52666141E35F6BA5F484
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +589,8 @@ Niccolo Paganini - Romantic Classic (1999) [FLAC|Lossless|tracks + .cue] <Classi
 magnet:?xt=urn:btih:D691D176B40D0A98B49515607849BE238C29A221
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:D691D176B40D0A98B49515607849BE238C29A221
 ```bash
 magnet:?xt=urn:btih:66472435F261175F2937BE584E440A86453F3C29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +644,8 @@ Saphath - Ascension of the Dark Prophet (2022) [FLAC|Lossless|WEB-DL|tracks] <Sy
 magnet:?xt=urn:btih:C94E469DFF30782BAFD1AF6F0B09F4893FF72496
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +671,8 @@ iScanner - Сканер Документов v3.68.3 [Ru]
 ```bash
 magnet:?xt=urn:btih:D4D4C0664A29AFD1ED34434E0268E2297DEA4274
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +700,8 @@ Averblack - Gaslighting Asylum (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hea
 ```bash
 magnet:?xt=urn:btih:DFF6C2F1F59068B7BBEAC773BED4FBC520620D08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

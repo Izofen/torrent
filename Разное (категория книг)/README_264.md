@@ -1,3 +1,29 @@
+###  Публикация: 950246   (369733) от 26.10.2015
+
+Давид Серван-Шрейбер | Антирак. Новый образ жизни (2014) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_369733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга написана доктором медицины, врачом нейропсихиатром и психологом, глубоко владеющим теорией и практикой своей специальности. Но перед нами тот редкий случай, когда читатель может полностью доверять автору, который в буквальном смысле ручается за написанное головой. Заболев одной из опасных форм рака — глиобластомой головного мозга и сделав свой выбор в пользу (   Читать дальше...   )Жанр: Популярная и нетрадиционная медицина, ракПеревод: О. С. Епимахов, О. Н. АгееваФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B51EAF44E5B6B3EE210B417D5A1753596C2F10E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950184   (369740) от 26.10.2015
 
 Александр Свияш | 90 шагов к счастливой семейной жизни (2015) [FB2]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:BE657B15F36EF2B83EA441BF676907A21DBD5BC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:BE657B15F36EF2B83EA441BF676907A21DBD5BC8
 magnet:?xt=urn:btih:83DB6F7137BC0E48DA84227936C4B352A8693D61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:83DB6F7137BC0E48DA84227936C4B352A8693D61
 ```bash
 magnet:?xt=urn:btih:F03F9B392A5DBB1A3E7B1E9B6EED6CA8C8FA93BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:F03F9B392A5DBB1A3E7B1E9B6EED6CA8C8FA93BE
 magnet:?xt=urn:btih:8EB3160713B1D9FDAE33062B9CFA0C4442C1FD96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:8EB3160713B1D9FDAE33062B9CFA0C4442C1FD96
 ```bash
 magnet:?xt=urn:btih:DD6464ACE52CDBFFDC311F24E99DA327D57F95EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:DD6464ACE52CDBFFDC311F24E99DA327D57F95EB
 magnet:?xt=urn:btih:7351F5844051562D835A9515DB33BF0C236FCEA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:7351F5844051562D835A9515DB33BF0C236FCEA2
 ```bash
 magnet:?xt=urn:btih:7AAB791FDB141ACB13628F0EF6520EE9710AA839
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:7AAB791FDB141ACB13628F0EF6520EE9710AA839
 magnet:?xt=urn:btih:1F640F09BA789AA80D96173FC7775D5EF95D7F8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:1F640F09BA789AA80D96173FC7775D5EF95D7F8F
 ```bash
 magnet:?xt=urn:btih:66C99B3A121178E8B7AF281959A317CE9289BED9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:66C99B3A121178E8B7AF281959A317CE9289BED9
 magnet:?xt=urn:btih:E412029A194457E0BDCF495E446AF6FA4D181A6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:E412029A194457E0BDCF495E446AF6FA4D181A6A
 ```bash
 magnet:?xt=urn:btih:323850344C6618A194B37BCEBBF4D6DFBDBFE5D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:323850344C6618A194B37BCEBBF4D6DFBDBFE5D4
 magnet:?xt=urn:btih:1E6008B78B6EDF6A08A7FC07AB77CC7904FBED72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:1E6008B78B6EDF6A08A7FC07AB77CC7904FBED72
 magnet:?xt=urn:btih:DD05A6BB77391778BC4E50A2D337E9A71603B655
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:DD05A6BB77391778BC4E50A2D337E9A71603B655
 ```bash
 magnet:?xt=urn:btih:84EB62B85B910E51F8916720B9375753D1CE1BBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:84EB62B85B910E51F8916720B9375753D1CE1BBB
 magnet:?xt=urn:btih:7CEF2AE2C32AA5C3112BA1849EE6E4B600BE512B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:7CEF2AE2C32AA5C3112BA1849EE6E4B600BE512B
 magnet:?xt=urn:btih:44717C9E4FD4F4F6851F7C0848085F0508C721D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:44717C9E4FD4F4F6851F7C0848085F0508C721D8
 ```bash
 magnet:?xt=urn:btih:5AE315103B0DAE44791AB1C5EEE84A2D4015D4EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:5AE315103B0DAE44791AB1C5EEE84A2D4015D4EE
 magnet:?xt=urn:btih:5C2ABDD800CFF2A2DC246F7CF0F05B2576E60E1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:5C2ABDD800CFF2A2DC246F7CF0F05B2576E60E1C
 ```bash
 magnet:?xt=urn:btih:21365858AC921B22DF25148241697214D54CB714
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:21365858AC921B22DF25148241697214D54CB714
 magnet:?xt=urn:btih:3D85BA73A4C00155901B0675DA798493A89A65A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:3D85BA73A4C00155901B0675DA798493A89A65A9
 ```bash
 magnet:?xt=urn:btih:CDF96E8D74E2812541ED3DFF2F640B5E98F48334
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +600,8 @@ magnet:?xt=urn:btih:CDF96E8D74E2812541ED3DFF2F640B5E98F48334
 magnet:?xt=urn:btih:32B865A0F5114D9181ABF31D2A10B780E08558F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:32B865A0F5114D9181ABF31D2A10B780E08558F7
 ```bash
 magnet:?xt=urn:btih:787E0B1DF77A8567B9F895A4260827D05DD950C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +655,8 @@ magnet:?xt=urn:btih:787E0B1DF77A8567B9F895A4260827D05DD950C5
 magnet:?xt=urn:btih:29821FD86AB9202A21164258EBB30EB0E0FC8125
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,31 +681,7 @@ magnet:?xt=urn:btih:29821FD86AB9202A21164258EBB30EB0E0FC8125
 magnet:?xt=urn:btih:AD7F4FA9729ED6426F0BF3D0E8218C31EBA7255A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068943   (371539) от 05.11.2016
-
-И. И. Жерневская, Л. В. Шарманова | Куда ведет аллея сфинксов (1990) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга рассказывает о земной основе религиозных представлений древности, о происхождении религиозных обрядов, праздников, о суевериях, бытующих до сих пор.
-
-Для широкого круга читателей.Жанр: История, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:549640176AEF392E1676155514E9D4ED0B1B9CB3
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

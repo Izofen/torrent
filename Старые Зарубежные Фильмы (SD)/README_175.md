@@ -1,27 +1,3 @@
-###  Публикация: 1126924   (740606) от 20.04.2017
-
-Истребитель / Destroyer (1988) DVDRip [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серийный убийца и насильник Иван Мозер приговорен к казни на электрическом стуле. Но прямо во время приведения приговора в исполнение в тюрьме вспыхивает сильный пожар. Предположительно, Мозер сгорает в огне пламени. Полтора года спустя съемочная бригада прибывает в заброшенную нынче тюрьму, где собирается снимать фильм о женщинах-преступницах. Вскоре актеров начинает (   Читать дальше...   )Производство: США, Back East Money, Skouras Pictures, Weskirk, Wind River ProductionsЖанр: Ужасы, ТриллерРежиссер: Роберт КиркАктеры: Дебора Формен, Клэйтон Ронер, Лайл Альзадо, Энтони Перкинс, Тобиаш Андерсон, Лэнни Гаррет, Джим Тернер, Пэт Махони, Дэвид Кристин, Ванесса Тоунселл, Стэнли Кирк, Берни Уэлш, Роберт Химбер, Эрик Мейер, Жак КлэйПеревод: Одноголосый закадровый (Сергей Кузнецов)Субтитры: ОтсутствуютПродолжительность: 01:37:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDD8A0746505B637AC39ACCA2D3C66BAE7BA3011
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021335   (740690) от 29.05.2016
 
 Кукла на цепи / Puppet on a Chain (1971) DVDRip [H.264] [АVO]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:CDD8A0746505B637AC39ACCA2D3C66BAE7BA3011
 ```bash
 magnet:?xt=urn:btih:841D29AF961E99A751ECF1B0E0371A0B5DF66701
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -66,6 +44,8 @@ magnet:?xt=urn:btih:841D29AF961E99A751ECF1B0E0371A0B5DF66701
 ```bash
 magnet:?xt=urn:btih:2A9093A9CD23C27A7B5FC43598201228E09FC59D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +72,8 @@ magnet:?xt=urn:btih:2A9093A9CD23C27A7B5FC43598201228E09FC59D
 magnet:?xt=urn:btih:D1BB9189E2AF1834BE057528CE8F41AFAA5C6F07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:D1BB9189E2AF1834BE057528CE8F41AFAA5C6F07
 ```bash
 magnet:?xt=urn:btih:907CB7C0F9B0AEBAE0039ACD98E7D6A254546033
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +124,8 @@ magnet:?xt=urn:btih:907CB7C0F9B0AEBAE0039ACD98E7D6A254546033
 magnet:?xt=urn:btih:291A2929588276285BA892CA770F6027E82ED178
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:291A2929588276285BA892CA770F6027E82ED178
 ```bash
 magnet:?xt=urn:btih:B48590D5F8542DF36E0300717407715F6A940088
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +178,8 @@ magnet:?xt=urn:btih:B48590D5F8542DF36E0300717407715F6A940088
 magnet:?xt=urn:btih:6BCF5689A89447308CB82D27BF21B7668B15D973
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +204,8 @@ magnet:?xt=urn:btih:6BCF5689A89447308CB82D27BF21B7668B15D973
 magnet:?xt=urn:btih:0A1672E24E82CC3F1458D1795A86DA793D725BAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +229,8 @@ magnet:?xt=urn:btih:0A1672E24E82CC3F1458D1795A86DA793D725BAB
 ```bash
 magnet:?xt=urn:btih:39DA480AF24A54076F90CB579F0CD0C3B87EAA97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +257,8 @@ magnet:?xt=urn:btih:39DA480AF24A54076F90CB579F0CD0C3B87EAA97
 magnet:?xt=urn:btih:F3EC30D532FC13A8D3FD27395FA76C4D7EBAA8E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +282,8 @@ magnet:?xt=urn:btih:F3EC30D532FC13A8D3FD27395FA76C4D7EBAA8E7
 ```bash
 magnet:?xt=urn:btih:F1A3CAAED753EE1FC44D575CD2125B57C61B186E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +309,8 @@ magnet:?xt=urn:btih:F1A3CAAED753EE1FC44D575CD2125B57C61B186E
 ```bash
 magnet:?xt=urn:btih:0D00D62E6E17294F56E5885ACC8E945EB62E3D02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +338,8 @@ magnet:?xt=urn:btih:0D00D62E6E17294F56E5885ACC8E945EB62E3D02
 magnet:?xt=urn:btih:7C30ED9A4DA754AA252F0C86200BC94F7DEF34EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +365,8 @@ magnet:?xt=urn:btih:7C30ED9A4DA754AA252F0C86200BC94F7DEF34EE
 magnet:?xt=urn:btih:BD151EFD2FD22A6106E6AB869F3F0D3C700FFA6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +390,8 @@ magnet:?xt=urn:btih:BD151EFD2FD22A6106E6AB869F3F0D3C700FFA6D
 ```bash
 magnet:?xt=urn:btih:726FF02A4CF418B8621AA2837BC734A572D93218
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +417,8 @@ magnet:?xt=urn:btih:726FF02A4CF418B8621AA2837BC734A572D93218
 magnet:?xt=urn:btih:CEF9B3DCD02E73AAAC6F1785D79B5EBD44C0A6B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +442,8 @@ magnet:?xt=urn:btih:CEF9B3DCD02E73AAAC6F1785D79B5EBD44C0A6B6
 ```bash
 magnet:?xt=urn:btih:EC21AD0A24DB9AEA559A63F883CD982959F42B49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +469,8 @@ magnet:?xt=urn:btih:EC21AD0A24DB9AEA559A63F883CD982959F42B49
 magnet:?xt=urn:btih:926E212CDEF04F06D22E6A3B91669BA0A43D55D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +494,8 @@ magnet:?xt=urn:btih:926E212CDEF04F06D22E6A3B91669BA0A43D55D6
 ```bash
 magnet:?xt=urn:btih:4E3B5C4A256FBBC47503112C635EEF524529237E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +521,8 @@ magnet:?xt=urn:btih:4E3B5C4A256FBBC47503112C635EEF524529237E
 magnet:?xt=urn:btih:D6D23945C0A77F0679362B6F674DD507D2AD5CEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +547,8 @@ magnet:?xt=urn:btih:D6D23945C0A77F0679362B6F674DD507D2AD5CEA
 magnet:?xt=urn:btih:1D3E88EF2A80291D8DF7709CC25A5673C520BCAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +572,8 @@ magnet:?xt=urn:btih:1D3E88EF2A80291D8DF7709CC25A5673C520BCAD
 ```bash
 magnet:?xt=urn:btih:3B7374931CBCB084D0324454183E8E443E07119A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +600,8 @@ magnet:?xt=urn:btih:3B7374931CBCB084D0324454183E8E443E07119A
 magnet:?xt=urn:btih:3E9D7D69980CE392C47099734BD77174AACFC3C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +627,8 @@ magnet:?xt=urn:btih:3E9D7D69980CE392C47099734BD77174AACFC3C4
 magnet:?xt=urn:btih:07EDF13FFF82CD852C1EB945C1D54497A2E792EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +653,34 @@ magnet:?xt=urn:btih:07EDF13FFF82CD852C1EB945C1D54497A2E792EF
 ```bash
 magnet:?xt=urn:btih:F6BB910EFA55F54CE27DFD859D43DEF39E4B73F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020206   (746055) от 25.05.2016
+
+Видеодром / Videodrome (1983) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телевизионный продюсер Макс Ренн, разыскивая свежее и оригинальное порно для своего кабельного канала, случайно натыкается на «Видеодром» — ведущуюся из ниоткуда передачу про секс и убийства, многократный просмотр которой разлагает не только психику, но и плоть человека…Производство: КанадаЖанр: Ужасы, фантастикаРежиссер: Дэвид КроненбергАктеры: Джеймс Вудс, Соня Смитс, Дебора Харри, Питер Дворски, Лесли Карлсон, Джек Крили, Линн Горман, Джули ХанерПеревод: Дублированный (СТС)Субтитры: ОтсутствуютПродолжительность: 01:28:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0661D1F77296729810F22D864995F08498F777CA
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

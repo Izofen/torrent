@@ -1,3 +1,29 @@
+###  Публикация: 1090085   (948726) от 05.01.2017
+
+Пророки. Даниил (2016) HDTVRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Религии и культы (Док/TV)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм с участием израильских и российских библеистов рассказывает о величайшем пророке Ветхого Завета Данииле, который стал духовным лидером своего народа в тяжелые времена изгнания. Как юноша из рабского племени, Даниил, попал в ряды "золотой молодежи" Вавилона? Почему царь назначил его своим главным советником? За что его бросили в ров со львами и как (   Читать дальше...   )Телекомпания: НеофитЖанр: ДокументальныйПродолжительность: 00:26:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:594DD04F495F81C927E5C6F87D305B4A9E69DCF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089528   (948727) от 05.01.2017
 
 Кевин Харт: Что теперь? / Kevin Hart: What Now?  (2016) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:B0CB000C4D7AC32EB9A11DB263E65F656B5B9011
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:B0CB000C4D7AC32EB9A11DB263E65F656B5B9011
 magnet:?xt=urn:btih:D19922F87770A7EDE901DD0B5A597A38E8DF789C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:D19922F87770A7EDE901DD0B5A597A38E8DF789C
 ```bash
 magnet:?xt=urn:btih:388AD0AB1DAA64EC1F318A460E1B175B7B932D64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:388AD0AB1DAA64EC1F318A460E1B175B7B932D64
 magnet:?xt=urn:btih:D1286163A020EA24069775F3DDF7BFD2E3F8AE8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:D1286163A020EA24069775F3DDF7BFD2E3F8AE8F
 ```bash
 magnet:?xt=urn:btih:ACCAB055E482292D1B5E60EBEE3A65A8F83F4847
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:ACCAB055E482292D1B5E60EBEE3A65A8F83F4847
 magnet:?xt=urn:btih:62D4BDB39716AC6D9F91BA4E9F3BE61F96B4162A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:62D4BDB39716AC6D9F91BA4E9F3BE61F96B4162A
 ```bash
 magnet:?xt=urn:btih:14AC1DA2640F98333D17E12CA29868FAFF5B850B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:14AC1DA2640F98333D17E12CA29868FAFF5B850B
 magnet:?xt=urn:btih:E75F99062ECCD425B9EECA64025306280F86369C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:E75F99062ECCD425B9EECA64025306280F86369C
 ```bash
 magnet:?xt=urn:btih:64C9A44D08BD4E4DB293CE1D67B90654E79BDAC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:64C9A44D08BD4E4DB293CE1D67B90654E79BDAC9
 magnet:?xt=urn:btih:8613493CED56426B6A08383B4A3EFF8CB5D6AE2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:8613493CED56426B6A08383B4A3EFF8CB5D6AE2B
 magnet:?xt=urn:btih:D7CB2C8D20D294DB86B13B72EAD413A0A60B9505
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:D7CB2C8D20D294DB86B13B72EAD413A0A60B9505
 ```bash
 magnet:?xt=urn:btih:00FC051AD23379551BA2CAF384D3E119EB4A8952
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:00FC051AD23379551BA2CAF384D3E119EB4A8952
 magnet:?xt=urn:btih:80E06566A0F038AF537C2E23A9A8BDEBEFDDBA1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:80E06566A0F038AF537C2E23A9A8BDEBEFDDBA1F
 ```bash
 magnet:?xt=urn:btih:8012F1CEEFCBC8FC310B51AACF7FA503369E0ECC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:8012F1CEEFCBC8FC310B51AACF7FA503369E0ECC
 magnet:?xt=urn:btih:B5A970FDCB63EFF187872C8AF0F0F77118F83DA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:B5A970FDCB63EFF187872C8AF0F0F77118F83DA6
 ```bash
 magnet:?xt=urn:btih:505EC75F7A2D9D853583064DAEF5EDBB26CF83AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:505EC75F7A2D9D853583064DAEF5EDBB26CF83AA
 magnet:?xt=urn:btih:4C4D16459656FD174BF6557D3B872B7F97A2322E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:4C4D16459656FD174BF6557D3B872B7F97A2322E
 ```bash
 magnet:?xt=urn:btih:1A12FA041A638DD812BE6C7C723A768E583A6F34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:1A12FA041A638DD812BE6C7C723A768E583A6F34
 magnet:?xt=urn:btih:259CAB91961A4047B0EDDD9515A624352AFE87FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:259CAB91961A4047B0EDDD9515A624352AFE87FC
 ```bash
 magnet:?xt=urn:btih:23A98D2C23362708E85CB78E60AB543DDAD9A8A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:23A98D2C23362708E85CB78E60AB543DDAD9A8A7
 magnet:?xt=urn:btih:CEC444AC73D656724A5F5F7C0208EB1E45B4F91E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:CEC444AC73D656724A5F5F7C0208EB1E45B4F91E
 ```bash
 magnet:?xt=urn:btih:C742D25ACC6E69FCDD9544CEC7D9AA7FBA758F72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +620,8 @@ magnet:?xt=urn:btih:C742D25ACC6E69FCDD9544CEC7D9AA7FBA758F72
 magnet:?xt=urn:btih:190E0041E35AFB4B283998C1E9FA5BC0D1214340
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +645,8 @@ magnet:?xt=urn:btih:190E0041E35AFB4B283998C1E9FA5BC0D1214340
 ```bash
 magnet:?xt=urn:btih:53D096019549BD4A2F4BEEFD219E21F3183773CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,29 +672,7 @@ magnet:?xt=urn:btih:53D096019549BD4A2F4BEEFD219E21F3183773CF
 magnet:?xt=urn:btih:9FFBE0D4CD5B8A2E33CD55FD6E5BD5E134019A9F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089791   (950235) от 04.01.2017
-
-Пророки. Соломон (2016) HDTVRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Религии и культы (Док/TV)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950235.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой серии из цикла фильмов о великих пророках Ветхого Завета с участием библеистов и историков идет повествование о великом и непревзойденном царе Израиля – Соломоне, которого в христианстве и исламе признают пророком. Почему именно царь Соломон построил для своего народа первый Храм Божий? В чем была легендарная мудрость царя Соломона? Мог ли он на самом деле (   Читать дальше...   )Телекомпания: НеофитЖанр: ДокументальныйПродолжительность: 00:26:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1FD3EB0B6D5099D9A4B0F45845FFBDBAF29553B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

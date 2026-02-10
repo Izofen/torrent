@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:2291A546698E17D32F9B5E0427EBCE362A28D4A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Stepik, Илья Перминов | Django 5 для начинающих & Пр�
 ```bash
 magnet:?xt=urn:btih:7E42BE381E088CEDB3579756968A8291C9F9C4FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:7E42BE381E088CEDB3579756968A8291C9F9C4FC
 magnet:?xt=urn:btih:1A081C4B01AFC1DB77E26E4CE016A48FF267B32B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ PassMark RAMMon - удобная и полезная утилита для по�
 ```bash
 magnet:?xt=urn:btih:6C5EB9955F92387FB40D8B1634BC18418EAD1785
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:6C5EB9955F92387FB40D8B1634BC18418EAD1785
 magnet:?xt=urn:btih:B1C3AA26BF46B2C7FF8A0BC4A4F8265802C66928
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:B1C3AA26BF46B2C7FF8A0BC4A4F8265802C66928
 ```bash
 magnet:?xt=urn:btih:289046637922EB6B5A07621896ECF1F92F27AC55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Scorpions - Fly To The Rainbow (1974) Remastered 2023 [FLAC 24/96|Lossless|WEB-D
 magnet:?xt=urn:btih:BB50A8CD2EA6E1B3FD333639814107B4F16A0865
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:BB50A8CD2EA6E1B3FD333639814107B4F16A0865
 magnet:?xt=urn:btih:F858E0590848220015C5910F16FBC472A4554D98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Benriya Saitou-san, Isekai ni Iku | Handyman Saitou in Another World | Разн�
 magnet:?xt=urn:btih:C324638D8182E7B0DAA066B6C45C6BCD26A3F9D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Atlantis Word Processor 4.3.9.4 Repack (& Portable) by elchupacabra [Ru/En]
 ```bash
 magnet:?xt=urn:btih:4A83F24ED30E80F5BB16A2DEF7D15BFF61193BCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Scorpions - In Trance (1975) Remastered 2023 [FLAC 24/96|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:A79CBDED38B9429478A18AE58D87942B24C06064
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ Suki na Ko ga Megane o Wasureta | The Girl I Like Forgot Her Glasses | Моя в
 magnet:?xt=urn:btih:EB9AC599CEEAB694141D6EDB3DE66845ABF9B293
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:EB9AC599CEEAB694141D6EDB3DE66845ABF9B293
 ```bash
 magnet:?xt=urn:btih:D4C81BEB0AA848342FF41D7FE0252FCC058A25A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:D4C81BEB0AA848342FF41D7FE0252FCC058A25A3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ TikTok - социальное приложение для тех кто пред
 ```bash
 magnet:?xt=urn:btih:772C47D4D4C3908F5CED3FCDEA2ADF1BAE310768
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:772C47D4D4C3908F5CED3FCDEA2ADF1BAE310768
 magnet:?xt=urn:btih:4E1760B7C19F6DF50224010AB211424F936BA6CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:4E1760B7C19F6DF50224010AB211424F936BA6CA
 ```bash
 magnet:?xt=urn:btih:9FEB4F245F794E3F35078E16EDA7F73C018761DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:9FEB4F245F794E3F35078E16EDA7F73C018761DD
 magnet:?xt=urn:btih:641CFD45D69951F53A47CD074B5AB753076E485A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:641CFD45D69951F53A47CD074B5AB753076E485A
 ```bash
 magnet:?xt=urn:btih:8C0C78E5A4F8516C1864608EDCA55135CAB72448
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:8C0C78E5A4F8516C1864608EDCA55135CAB72448
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Busuu - популярный и востребованный проект для
 ```bash
 magnet:?xt=urn:btih:C903A529B12A4D8B25BC3E482FB0857C4DF9EBC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ Hikikomari Kyuuketsuki no Monmon | The Vexations of a Shut-In Vampire Princess |
 magnet:?xt=urn:btih:BC19C1BAF815E1C0B4910E958F9B6C0D06DEF569
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:BC19C1BAF815E1C0B4910E958F9B6C0D06DEF569
 ```bash
 magnet:?xt=urn:btih:E35251F9A6CEA8C74D2174DA382E580FC36A0E49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:E35251F9A6CEA8C74D2174DA382E580FC36A0E49
 magnet:?xt=urn:btih:BDFA6C8F9AA830B57D475214B6350A14340285E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:BDFA6C8F9AA830B57D475214B6350A14340285E4
 ```bash
 magnet:?xt=urn:btih:9E52F3AEA3090AFFE29955AC6D1F2D7AE7F4F517
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +679,8 @@ VA - Electronic compilation part 76 (2024) [MP3|320 Kbps] <Electronic>
 ```bash
 magnet:?xt=urn:btih:2D4E81B3DFDC819E7D8A7CB80F341C60C23B5E48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,31 @@
+###  Публикация: 1522280   (759929) от 06.01.2022
+
+Андрей Ливадный | Экспансия. История Галактики (Книга 5). Зона Отчуждения (2021) [MP3, Максим Полтавский]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание: "Зона отчуждения" – фантастическая роман Андрея Ливадного, эпизод пятый, основное время действия 2608 год.
+Его сбили над Кьюигом спустя несколько дней после того, как начавшаяся в глубинах космоса война докатилась до родной планеты Вадима Нечаева.
+Прошитая снарядами рубка, выбитые приборы, оплавленные жгуты проводки, ватная тишина в коммуникаторе (   Читать дальше...   )Жанр: Боевая фантастика, Космическая фантастикаПродолжительность: 06:50:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DE4036BE1241B875077E37CE86F9C4B4392AAA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280226   (760190) от 03.02.2019
 
 Григорий Шаргородский | Противодраконья эскадрилья (2019) [MP3]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:FDBA14B871A0EF94173F2481D38AFEB99748562B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +73,8 @@ magnet:?xt=urn:btih:FDBA14B871A0EF94173F2481D38AFEB99748562B
 magnet:?xt=urn:btih:273D4B8C8D6CC6BA148FF504A59CFC0CC6A46292
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +98,8 @@ magnet:?xt=urn:btih:273D4B8C8D6CC6BA148FF504A59CFC0CC6A46292
 ```bash
 magnet:?xt=urn:btih:C53AAFD7FF116E9678815A9B9CAC8BA98B5DF593
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +126,8 @@ magnet:?xt=urn:btih:C53AAFD7FF116E9678815A9B9CAC8BA98B5DF593
 magnet:?xt=urn:btih:7DE65D4C68F372AC97AA7F13E8E88B5D1146F8C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +153,8 @@ magnet:?xt=urn:btih:7DE65D4C68F372AC97AA7F13E8E88B5D1146F8C1
 magnet:?xt=urn:btih:3537A7F8DFB04BCCB57CEFC4B8B9178CE6CCCE40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +178,8 @@ magnet:?xt=urn:btih:3537A7F8DFB04BCCB57CEFC4B8B9178CE6CCCE40
 ```bash
 magnet:?xt=urn:btih:39EE06502A9EBF5064C1D15962B7C88BC6CA31CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +205,8 @@ magnet:?xt=urn:btih:39EE06502A9EBF5064C1D15962B7C88BC6CA31CB
 magnet:?xt=urn:btih:7B7EA50B8044695B47F91689F24941CF340A1E65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +230,8 @@ magnet:?xt=urn:btih:7B7EA50B8044695B47F91689F24941CF340A1E65
 ```bash
 magnet:?xt=urn:btih:5E727BD7BA5EAC5F952F3CDCCFDD07ACB29458EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +257,8 @@ magnet:?xt=urn:btih:5E727BD7BA5EAC5F952F3CDCCFDD07ACB29458EE
 magnet:?xt=urn:btih:B30CAA5D99DD148886A6D9C33E0D0F2544756CDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +283,8 @@ magnet:?xt=urn:btih:B30CAA5D99DD148886A6D9C33E0D0F2544756CDA
 magnet:?xt=urn:btih:2D305DC6E671A7F2982CC519F87AB4A9E50B1DAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +308,8 @@ magnet:?xt=urn:btih:2D305DC6E671A7F2982CC519F87AB4A9E50B1DAE
 ```bash
 magnet:?xt=urn:btih:CCB20DF6A587F6E49BBD8CD1410E237CC2F84530
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +336,8 @@ magnet:?xt=urn:btih:CCB20DF6A587F6E49BBD8CD1410E237CC2F84530
 magnet:?xt=urn:btih:19173FCB02C1061E9473BDDDE8D102C59DB7833C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +361,8 @@ magnet:?xt=urn:btih:19173FCB02C1061E9473BDDDE8D102C59DB7833C
 ```bash
 magnet:?xt=urn:btih:3221693D9553AFAD6176DF0C709A3386C89792CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +388,8 @@ magnet:?xt=urn:btih:3221693D9553AFAD6176DF0C709A3386C89792CA
 magnet:?xt=urn:btih:878164EF7C266FFF5BBB540C65B7B2A5D3EE7440
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +414,8 @@ magnet:?xt=urn:btih:878164EF7C266FFF5BBB540C65B7B2A5D3EE7440
 magnet:?xt=urn:btih:DE3ABE62DA410595291B75D40E90F95D79B07238
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +439,8 @@ magnet:?xt=urn:btih:DE3ABE62DA410595291B75D40E90F95D79B07238
 ```bash
 magnet:?xt=urn:btih:E2ECDDCF1B4336A03CB1CB4E431EA1A33611C5EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +467,8 @@ magnet:?xt=urn:btih:E2ECDDCF1B4336A03CB1CB4E431EA1A33611C5EB
 ```bash
 magnet:?xt=urn:btih:984265B7660218128AA006BA8B8393273C5EF886
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +497,8 @@ magnet:?xt=urn:btih:984265B7660218128AA006BA8B8393273C5EF886
 magnet:?xt=urn:btih:1BCA4F6EF7D5BE11DC710CB8C6097F8152AC091F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +524,8 @@ magnet:?xt=urn:btih:1BCA4F6EF7D5BE11DC710CB8C6097F8152AC091F
 magnet:?xt=urn:btih:5B052EE030EBF589E888F77F826FD4D86A6C3E16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +549,8 @@ magnet:?xt=urn:btih:5B052EE030EBF589E888F77F826FD4D86A6C3E16
 ```bash
 magnet:?xt=urn:btih:3AB669EE692F488E80E0F738951BB2ED6DCC087C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +576,8 @@ magnet:?xt=urn:btih:3AB669EE692F488E80E0F738951BB2ED6DCC087C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +601,8 @@ magnet:?xt=urn:btih:3AB669EE692F488E80E0F738951BB2ED6DCC087C
 ```bash
 magnet:?xt=urn:btih:B9ED5836B4D2E82A850177101DA76C167EF6B345
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +629,8 @@ magnet:?xt=urn:btih:B9ED5836B4D2E82A850177101DA76C167EF6B345
 magnet:?xt=urn:btih:D158A7363DC812CAE471CFAD8841439EDFBC2386
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +655,8 @@ magnet:?xt=urn:btih:D158A7363DC812CAE471CFAD8841439EDFBC2386
 ```bash
 magnet:?xt=urn:btih:91C3F27EDC368C42FB631B1272B67CAE1FF88432
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,30 +683,7 @@ magnet:?xt=urn:btih:91C3F27EDC368C42FB631B1272B67CAE1FF88432
 magnet:?xt=urn:btih:CC2DF1F9634A5BB1816E880348517E25E23A76CA
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521656   (764257) от 03.01.2022
-
-Фрэнк Герберт | Хроники Дюны (Книга 4). Бог-император Дюны (2021) [MP3, Сергей Чонишвили]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение фантастической эпопеи, ставшей классикой!
-Много тысячелетий спустя археологи находят дневники Лето Атрейдеса II, сына Пола Атрейдеса и Чани, легендарного императора, правившего на протяжении трёх с половиной тысяч лет и за это время ставшим гибридом человека и песчаного червя. Жалкие остатки пряности находились под его тотальным контролем, и человечество (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 19:13:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A99189B2394A24D53A56FCF5A3A2D3466E8F89CC
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Lingua Mortis Orchestra - LMO (2013) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symph
 magnet:?xt=urn:btih:12C3A8194433F5153129A7C321C087E5142BB8CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ A4 Anniversary Song(   Читать дальше...   )Жанр: Pop, Easy Liste
 ```bash
 magnet:?xt=urn:btih:DF4D3D6A5EB5844DEC31847A3D5027AB20CE10B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Tankard — немецкая трэш-метал-группа из Франкф�
 magnet:?xt=urn:btih:A9EFD565F40230DE56F8740557B5F0D513260820
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ A-ha  -  норвежская музыкальная группа, создан�
 ```bash
 magnet:?xt=urn:btih:1C6E87A8C13DF60FD4F9A6F402FE1684CDF4C819
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -129,6 +137,8 @@ Ring of Fire — американская неоклассическая/про�
 magnet:?xt=urn:btih:E26EAF42EA1B40C0D8C30A20AB87DA11C1B6044D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +165,8 @@ A3 It'll Be Me(   Читать дальше...   )Жанр: Rock, Rock & RollП�
 ```bash
 magnet:?xt=urn:btih:8EBE27A6A2DED1915CCF33A93F067E2CA235F426
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -183,6 +195,8 @@ A4 Cielito Lindo(   Читать дальше...   )Жанр: Rock, Latin, Funk�
 magnet:?xt=urn:btih:C08B7EBC74F6486F0E2B35019F1290F198011AAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -209,6 +223,8 @@ A4 Halloween(   Читать дальше...   )Жанр: Power, Speed MetalПр
 ```bash
 magnet:?xt=urn:btih:9E9BCB9705C2EA1CE1E134C8A498F471C00136D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +253,8 @@ Electric Light Orchestra - Eldorado (1974) (2022) [DSD 128|image+.cue (Vinyl-Rip
 magnet:?xt=urn:btih:0C7274A0D8310CC1689F5E60331B3A2A35F21212
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +281,8 @@ Tiamat — шведская группа. Существует с 1989 года,
 ```bash
 magnet:?xt=urn:btih:25F942100F8234A7305D9FEF80789D38C2726AFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +311,8 @@ VA - Keep On Playing/Играй еще (1982) [FLAC 2.0|192/24|image +.cue|Vinyl
 magnet:?xt=urn:btih:858BFC12A76C6E60593D994E5AA0078D63576A17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +339,8 @@ Amorphis — финская англоязычная метал-группа. Г
 ```bash
 magnet:?xt=urn:btih:4A8F9435EBC069394420658E09378068B6A0A680
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +369,8 @@ Garmarna — шведская фолк-рок-группа, основанная
 magnet:?xt=urn:btih:3339C8A594217714A1D05338E25254EFEA462313
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +397,8 @@ Dee Snider — американский рок-музыкант. Наиболь�
 ```bash
 magnet:?xt=urn:btih:2F5808E14F07B33EA6095651708607AEE75A80E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +427,8 @@ Metallica - 72 Seasons (2023) [Vinyl Rip 24Bit/192kHz] (2LP, EU)  <Thrash Metal>
 magnet:?xt=urn:btih:4702DBA6FEF8CFC85A9CF4F0B95C5943E0D26A06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +455,8 @@ A1 Atomic
 ```bash
 magnet:?xt=urn:btih:D2E71AC9C5A5CD91CB152E3E12DF9D0CCE4B4095
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +485,8 @@ A3 Auberge(   Читать дальше...   )Жанр: Blues-RockПродолж
 magnet:?xt=urn:btih:6A58E6C29AC8EAFA9AB982DB1D4F85700DC5B32F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +513,8 @@ A4 Montego Bay(   Читать дальше...   )
 ```bash
 magnet:?xt=urn:btih:142276DB4C98E42D32D55206876FF2255603C103
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +543,8 @@ A4 Unknown Artist - Проверка Фазировки Громкоговори
 magnet:?xt=urn:btih:A9AEBBB675182BD613560CC91DA1226EA4FA1A9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +571,8 @@ A4 Попытай Счастья В Любви (Taking A Chance Of Love)(   Чи
 ```bash
 magnet:?xt=urn:btih:3F4910120AA499928A0AF10C8DFF008F5891F23D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +601,8 @@ Chris Norman - The Best 2001 (2001) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop Rock
 magnet:?xt=urn:btih:5CC2BE8BC77F0BD504B809849D51FC0C00234024
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +629,8 @@ Paul Mauriat/Оркестр Поля Мориа - Музыка из кинофи
 ```bash
 magnet:?xt=urn:btih:96368F347797398978C270F1DF0D328A7FA1B988
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +659,8 @@ A4 I Can't Live With You(   Читать дальше...   )Жанр: Pop Rock, 
 magnet:?xt=urn:btih:ADA16C759D651387337931A76B26DAACD737D873
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +687,8 @@ Overkill — американская трэш-метал-группа, осно
 ```bash
 magnet:?xt=urn:btih:DA79B0D8D4BF1B2D305537A46923BDBE826D231A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -669,6 +717,8 @@ A4. You Give Me All I Need(   Читать дальше...   )Жанр: Hard Roc
 magnet:?xt=urn:btih:C1D83B40EE1942AE7E89374231DC99BC6E5CB45C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +745,8 @@ A4		You And I	6:44(   Читать дальше...   )Жанр: PopПродол�
 ```bash
 magnet:?xt=urn:btih:F1658B77489D61A9EB9B53A0D0B3571339125FEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

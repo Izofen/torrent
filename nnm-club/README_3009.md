@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:7F01743E7B04BD40A0D79BC91471FAE32A0DEE61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Mary’s recipes: рецепты, меню v6.2.0 Mod by Alex.Strannik [Ru/Multi
 magnet:?xt=urn:btih:BAA9F295203AD72B28B4AAFFED75D1459BBDD627
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:BAA9F295203AD72B28B4AAFFED75D1459BBDD627
 ```bash
 magnet:?xt=urn:btih:2384571D6330FDC938C1CC0BB83D3AE48F6202B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:2384571D6330FDC938C1CC0BB83D3AE48F6202B2
 magnet:?xt=urn:btih:F75323F69154C619FDE4464417A2481E48CC94BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ MotoGP. Этап 18 из 22. Гран-при Индонезии. Спринт (0
 magnet:?xt=urn:btih:C58A403E09607948155F04C7D1643E12478A9885
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:C58A403E09607948155F04C7D1643E12478A9885
 ```bash
 magnet:?xt=urn:btih:80248430DAC9D3A3D90AE436BE329D17F61AAE47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:80248430DAC9D3A3D90AE436BE329D17F61AAE47
 magnet:?xt=urn:btih:E25F73F4D512F1F654F7124DF12164E88C61C853
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:E25F73F4D512F1F654F7124DF12164E88C61C853
 ```bash
 magnet:?xt=urn:btih:E43E5D4719D6D66C931A47A1E74E40B4ABB5ADB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:E43E5D4719D6D66C931A47A1E74E40B4ABB5ADB1
 magnet:?xt=urn:btih:AE5F0923829ADA52C4576844BA643DB39A6F46AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:AE5F0923829ADA52C4576844BA643DB39A6F46AF
 magnet:?xt=urn:btih:5DF88C2456A805267F8880BFBCF5EB9AB9890CB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:5DF88C2456A805267F8880BFBCF5EB9AB9890CB2
 ```bash
 magnet:?xt=urn:btih:E2095ED049514C6D0E72A56A4724BD3769A42392
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ CD1:
 magnet:?xt=urn:btih:D821735A8A5AC60DF98A3E482E8C4F17FA414B5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ Audified - MixChecker Ultra 1.0.2 VST 3, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:4D03B1652F05E8D28819753B92CE28BA22A51EEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ Loica Sans — это новая (да, ещё одна) интерпретац�
 magnet:?xt=urn:btih:BB7859C2A40207DC1A6A0DD89452B42142D5F193
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ Puzzle Quest: Immortal Edition (2025) [Ru/Multi] (1.0.0.3388) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A92BC2261FD810E6CCC78F880AD89905A2A3785F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ Wobbly Life - яркая и динамичная песочница, делаю�
 magnet:?xt=urn:btih:939476A43CFFE3629723D6A222B8B680955FD358
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Strange Antiquities (2025) [Ru/Multi] (1.0.29) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:DE3308C1DD552B3FEE899D8385B63AD2F66E3B5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:DE3308C1DD552B3FEE899D8385B63AD2F66E3B5C
 magnet:?xt=urn:btih:43932E61992EC1189C9BC351A521C5C142CC2D6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:43932E61992EC1189C9BC351A521C5C142CC2D6F
 ```bash
 magnet:?xt=urn:btih:FA8EADFFF99D8A34E51C662981311A8857D063C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ Buckingham Nicks - Buckingham Nicks (1973) Remastered, 2025, Rhino [MP3|320 Kbps
 magnet:?xt=urn:btih:6DFC9F2B89B46859E37D3870E92F4A509D75D98A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ Wellness — это набор из 20 ярких векторных иллюс�
 ```bash
 magnet:?xt=urn:btih:476420F9D8C3F9713F04EB54EB31D8E948CACD0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:476420F9D8C3F9713F04EB54EB31D8E948CACD0D
 magnet:?xt=urn:btih:71BDA8A3C29B6C0B0C754E8DBD4417701461AD9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:71BDA8A3C29B6C0B0C754E8DBD4417701461AD9F
 magnet:?xt=urn:btih:7307E8B933BBE02E8901B2CDC0EAD1E4C26F38C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:7307E8B933BBE02E8901B2CDC0EAD1E4C26F38C6
 ```bash
 magnet:?xt=urn:btih:E65F48CF4EEF906F9F1BDADFDB4A29A4ACAFDEF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ WeCare — это набор пользовательских интерфейс
 magnet:?xt=urn:btih:2465B2DA36389E4FA0D08FAEF427CE290F1B1616
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ Dawesome - Kontrast 1.01 VSTi 3 (x64) [En]
 ```bash
 magnet:?xt=urn:btih:3E3D7C9BAC0CED1838F9C04B3B0D8283C2C514E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

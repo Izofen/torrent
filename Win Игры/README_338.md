@@ -19,6 +19,8 @@ Domini Games предлагает вам новое волнующее прик�
 magnet:?xt=urn:btih:385A7961919AD466D295D301745C21B5D9D7ED8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Family Guy: Back to the Multiverse [En/Multi4] (Repack/1.0) 2012 | R.G. Catalyst
 magnet:?xt=urn:btih:FE7F15B1C35437BE7423E8B8FECDEE18800267C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Enchanted Kingdom 6: Arcadian Backwoods (2019) [En] (1.0) Unofficial [Collector'
 ```bash
 magnet:?xt=urn:btih:F31C03F907D7E66AF30E1EDF215C2C83EED5E420
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Party of Sin (2012) [Ru/Multi] (1.0.0.5766) License [indiegamestand]
 magnet:?xt=urn:btih:6FC102E2FFDDB5500A1DE33FC31E347F9DDE0E98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Toukiden Kiwami – это расширенная и дополненная ве
 ```bash
 magnet:?xt=urn:btih:2B820F6AE58398D06F8D010A4534E381D2F308D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Sonic Lost World (2015) [En/Multi] (2.0.0) License CODEX
 magnet:?xt=urn:btih:F27E82CA3FF256C7BD6AA195AEE60A0B72A4655B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Bulb Boy - увлекательный приключенческий ужаст�
 ```bash
 magnet:?xt=urn:btih:1049483F1A12F21FB27DDDD417962976E3206A2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ The Living Dungeon - это пошаговая тактическая насто
 magnet:?xt=urn:btih:21E9C02476B2288B05D7505DBCC86E4E437093E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ ScourgeBringer от создателей NeuroVoider – это динамичн
 ```bash
 magnet:?xt=urn:btih:B130565624A5C0C9614EA30268A0F7CF0731CC38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Elven Legend 5: The Fateful Tournament / Эльфийская легенда 5: 
 magnet:?xt=urn:btih:B5CF4BEC7DD2FE71AEF7976B38D481A8B0EC0ED7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Lost Island: Eternal Storm / Затерянный остров: Вечный ш�
 ```bash
 magnet:?xt=urn:btih:3B2101A62C2A510CD2051B93D34ECC99958A06ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Whispered Secrets 11: Morbid Obsession (2020) [En] (1.0) Unofficial [Collector's
 magnet:?xt=urn:btih:FCB60DFC33EEC65A49E948B878B71521271AFBDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Off the Record 5: The Final Interview (2015) [En] Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:19B6EA58A939A2A526A2634609020ACE3A9D919E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:19B6EA58A939A2A526A2634609020ACE3A9D919E
 magnet:?xt=urn:btih:C46AB87AE83D3F78ADD74D1356B28A449F32C0A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ God's Basement — это хоррор-игра, рассчитанная на �
 ```bash
 magnet:?xt=urn:btih:283E92E97014E3A77529A37093E5B3CC45245E81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Syrian Warfare (2017) [En] (1.3.0.19/dlc) License CODEX [Delux Edition]
 magnet:?xt=urn:btih:AD4F0C57061BD11F37B40275240D947CEC0A73AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Abyss Odyssey (2014) [Ru/En] (1.0.8767.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:2D87543A0DC0B842AA1D234117AE13C40DD8BA79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ Spintires®: The Original Game — уникальный симулятор от 
 magnet:?xt=urn:btih:919B9FD45222AB9EC35957A1C044E7727F039483
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:919B9FD45222AB9EC35957A1C044E7727F039483
 ```bash
 magnet:?xt=urn:btih:6F5B86FE8FA4584EA43E126ECBAE87676C9ED49A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ Omensight - это экшн игра-головоломка. Вы - Предве
 magnet:?xt=urn:btih:F0D3EE520A5EB87EE6F817EFF479F1D823B5A213
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ Kritika  - корейский слешер с non-target системой от �
 ```bash
 magnet:?xt=urn:btih:31050046D97D13F2085DB883307F8350788D5D68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ Mechanic Escape - красочный платформер события кот�
 magnet:?xt=urn:btih:1E363404A209AA33925EC07E7EE2C95B7FB7E336
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ Endless Fables 4: Shadow Within / Сказки без конца 4: Среди �
 ```bash
 magnet:?xt=urn:btih:9484C6EDAE8A109F1AD6443662CC59859FF1B030
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ Family Guy: Back to the Multiverse [En] (L) 2012 l SKiDROW
 ```bash
 magnet:?xt=urn:btih:65FE2DB9BF4F8495853FAC7DF761E3CF8AC6FD57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Spacebase DF-9 (2013) [En] (early access alpha 2 taste oddity) Repack Elektra
 magnet:?xt=urn:btih:9A453033B40924699C1870D99D7604FF726AC78C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ The Signifier (2020) [Ru/Multi] (1.0) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:A195ED2E98DD1305EC9CF79FB1AF28545019CEC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

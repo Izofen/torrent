@@ -19,6 +19,8 @@ Camelot 2: The Holy Grail / Камелот 2: Святой Грааль [Ru/En] 
 magnet:?xt=urn:btih:6FD1A763DF46FAE466218E5BCB1B326A997A6C8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ LEGO Star Wars: The Skywalker Saga (2022) [Ru/Multi] (1.0.0.27327/dlc) Repack De
 ```bash
 magnet:?xt=urn:btih:D32F883B206C0D85AA153112594DC132DC5C1DE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Chinatown Detective Agency (2022) [Multi] (1.0.17) License GOG
 magnet:?xt=urn:btih:1A0AE279CECDE138F261C1B99BA310D49D5BC348
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Blue Fire (2021) [Ru/Multi] (6.0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:2419A7A6743593099A04BF4203A1A7E5EB881A18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ orbit.industries (2022) [Ru/Multi] (1.1.9717.0) License GOG
 magnet:?xt=urn:btih:B7BA9440A42E4EB002DB303B3D50ED718B94FD3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Godlike Burger (2022) [Ru/Multi] (1.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:EF76CD91FC1840BDDD41D54DC21AD4216E772CE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Lumote: The Mastermote Chronicles (2022) [Ru/Multi] (1.5.3-rc5) License GOG [Dig
 magnet:?xt=urn:btih:96340663F4A5CB7D1626055A29EBBCC63509D63C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ SpaceEngine - бесплатный космический симулятор, к
 ```bash
 magnet:?xt=urn:btih:A7D372AD7B70484AEEB7E70CBDFCE71D0CAC383A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Magic City Detective 2: Secret Desire / Волшебный город 2: Тай�
 magnet:?xt=urn:btih:A3EDEE24C38BDE7CE396DF8EA288063E5753EC9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Eldest Souls (2021) [Ru/Multi] (1.1.23f2-master) License GOG
 ```bash
 magnet:?xt=urn:btih:BB7BD5DFAFFC53AF0E29F9AE6B1273671E8BA7D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ South of the Circle - эмоциональная игра с глубоким м
 magnet:?xt=urn:btih:922E4DD117BAC7C84E34E28422C989DAAA48978C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Glover (2022) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:5E6596A66C800141BD4EE10CF9180D0A4218D1BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Mists of Aiden — это сюжетный хоррор от первого ли
 magnet:?xt=urn:btih:B6135A93756DA8CE8547F041C5BEE886FDEE2A01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Warpips - стратегия в реальном времени с элемен�
 ```bash
 magnet:?xt=urn:btih:23EBCF21EAFDCD637B09C40D43BB2F140CF1ECBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Blast Brigade vs. The Evil Legion of Dr. Cread - двухмерная метро
 magnet:?xt=urn:btih:85A23ABE3E77C1195388788A2D0CF2CB82641F2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ X4: Foundations - это космический симулятор, продол
 ```bash
 magnet:?xt=urn:btih:3959276566D0B87535EF220785D29AA0CCFBAA67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Tacticool - это динамичные командные бои 5 на 5, с �
 magnet:?xt=urn:btih:D15B0F4B92F9FFA3318D77304256E2C120EE2F12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Kamikaze Veggies (2022) [Ru/Multi] (1.0) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:5928CB3481F5FF0DF750DE4E70B42DD38B453155
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Bridge To Another World 10: Cursed Clouds (2022) [En] (1.0) Unofficial [Collecto
 magnet:?xt=urn:btih:51FD93249E924A6412D3F30DB4A0AD290A66FDD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The Swindle – это игра в стиле стимпанк, в которо�
 ```bash
 magnet:?xt=urn:btih:FAE9BE56EA1517DD714C29536145FA88CBFA20D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Onde (2022) [En] (1.2) License GOG
 magnet:?xt=urn:btih:7FC170ABB90B8FF8A99D47DB0A2EF1CCD8723168
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ The Chronicle (2022) [En] (1.0) License TiNYiSO
 ```bash
 magnet:?xt=urn:btih:BB9A3AF1878A3BE4A292388DEF5B2F153019C14C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Dare to Stay (2022) [En] (1.0) License TiNYiSO
 magnet:?xt=urn:btih:822C9CBF36C2C34FAA185C32BA561E63D25502D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Noctem - это психологический хоррор от первого 
 ```bash
 magnet:?xt=urn:btih:966E456F94DE489BE6D25BB8207D250DBF16757E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Catie in MeowmeowLand - это классическая юмористическ
 magnet:?xt=urn:btih:163FEEC40A43AAB1912700A92A69987D8C26DFF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ In The Space - Escape Room (2022) [Ru/Multi] (1.0) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:6AFFE75CDBF14597BC8502879555B484D25F9297
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

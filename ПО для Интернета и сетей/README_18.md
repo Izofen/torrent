@@ -19,6 +19,8 @@ MassTube — очень простая в использовании прогр�
 magnet:?xt=urn:btih:C997F4B66AD49E0A9406945577946409F19F2157
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ AnyDesk 9.6.5 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:63B6A2F250CC3C55BC9BBDA783197794E9305045
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Throne – это программное обеспечение, которое 
 magnet:?xt=urn:btih:BBB7B242AF81CEFCF7A32E989D2F0002489C48A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:BBB7B242AF81CEFCF7A32E989D2F0002489C48A5
 ```bash
 magnet:?xt=urn:btih:A8CB1CEBDE3B0462A5756679E04946FAA1CB408C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:40404387138C92AA5A0F444682321356D038E16E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:40404387138C92AA5A0F444682321356D038E16E
 ```bash
 magnet:?xt=urn:btih:BCC396347E1193B602641407E3F715FADE58D4CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Psiphon - это новый инструмент обхода интернет-�
 magnet:?xt=urn:btih:3C24D23D05055BAF6FA79503AA979A28F23B90A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:D91E4AA5B367BC56A13F3859C8006B90A8FD5DAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Opera One 124.0.5705.15 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:8E91A9C2F5743391EC8D2F615F3DCA083124CC29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Vivaldi 7.7.3851.48 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:622E53DA34ED37038215638E19D9082A530CBA2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ r3dfox — это форк веб-браузера с открытым исхо�
 magnet:?xt=urn:btih:892FFF3E04B4E88E52CB22551595FF22F0EA12EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:892FFF3E04B4E88E52CB22551595FF22F0EA12EB
 ```bash
 magnet:?xt=urn:btih:DAB4C4804A782A6F88F41AA47EFC673A5147DBED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:EBE3A261735E57C0059E4ED2065621F7E305D9B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:A4D4FC600195AFE54269F9D8C991E3B7D8F1453E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:A4D4FC600195AFE54269F9D8C991E3B7D8F1453E
 magnet:?xt=urn:btih:AF855A37413D8734E81CB90375F1D9D5FDA034D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:AF855A37413D8734E81CB90375F1D9D5FDA034D7
 ```bash
 magnet:?xt=urn:btih:3353C7D4FBAFD19876F39552B87F65159DC1E5D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ MyLanViewer — программа для сканирования и монит
 magnet:?xt=urn:btih:655924C8D6B27E49FB744DA1032940902B0115D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Any Video Downloader Pro - это приложение для Windows, кото�
 magnet:?xt=urn:btih:BBCF304DC71B171E24FB287A170C0A97F53EDC94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:A9153BD04EA4F0F520637F3B8520CA87E000598D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ Vivaldi — это многофункциональный интернет-бр�
 magnet:?xt=urn:btih:3EC393072EBE61442FB1D65480D3D8E747B5A6BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:4DB156E0EC14E3B7EB12AC0F297E9BB80689FE9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ RustDesk Remote Desktop – программное обеспечение для
 magnet:?xt=urn:btih:9DB945DD9A736E41C2E9151EB046C0E26AF0C7EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:0634E24BA598A38A46BA8B0C345F4EE3AF834F0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ MassTube — очень простая в использовании прогр�
 magnet:?xt=urn:btih:DB6C13527CF4DE52A46137730500C52E2385A033
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ Allavsoft Video Downloader Converter - это мощный видео загру
 magnet:?xt=urn:btih:BD49B6BF36B2A44BA3AE4F03F8D6FFB34DC13F4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:C8F5336F49FF54506D41D966AB5BBC5E74613CAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

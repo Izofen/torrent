@@ -19,6 +19,8 @@ Medal of Honor (2010) [Ru] (1.0.75.0) Rip xatab [Limited Edition]
 magnet:?xt=urn:btih:6201D17BD4E68551CD08FB2D9ADF5C59962D26EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ AIRHEART - Tales of broken Wings - это история молодой деву
 ```bash
 magnet:?xt=urn:btih:12CB8CD33247F8890A06358EB0562540F4B15934
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:12CB8CD33247F8890A06358EB0562540F4B15934
 magnet:?xt=urn:btih:3E253C3E0E917A5EFBAECA4DAFFF07FBF9DEB0D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Shattering (2020) [Ru/Multi] (1.1.9/dlc) License GOG (обновляемая
 ```bash
 magnet:?xt=urn:btih:78DE382F74943BB2064173BB50774177A098ABF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Rabbit Hole (2022) [Ru/Multi] (Build 9481229) Repack Other s
 magnet:?xt=urn:btih:17D43B48A9D1B04FCEFE68EB0A6B5F331B1D134E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ MIAZMA or the Devil's Stone (2018) [En] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:4E0B5C8B0255C16BF190040A064ACB8276033C04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Virginia — триллер от первого лица про маленьки
 magnet:?xt=urn:btih:0CE0966F1632D81E4F7BA5312A66286BE72BB14E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Call of Duty: Modern Warfare Remastered & Call of Duty: Infinite Warfare (2016) 
 ```bash
 magnet:?xt=urn:btih:EAA8EC5674C3F50673030FDBFA28EE0FD7068BA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Eisenwald: Blood of November (2016) [Ru/Multi] (1.0) Repack Dok2
 magnet:?xt=urn:btih:37F1560425A86A0939EF4614A3DD0472ACE60677
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Dungeon Rats - это пошаговый партийный данжен кра�
 ```bash
 magnet:?xt=urn:btih:821015126DABB369372F9C4C4970C06135C5045F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ SolSuite Solitaire 2020 – высококачественная игра, ко�
 magnet:?xt=urn:btih:392277C2C9D5B3DE4E7ED983C9B0DBBE5335173A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ The Inner World - The Last Wind Monk (2017) [Ru/Multi] (96894D) License PLAZA
 ```bash
 magnet:?xt=urn:btih:DCBEB0FC3C382DF947736E44CAD2CC220292B2AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ DUMMY LIFE - игра-головоломка из научной фантаст�
 magnet:?xt=urn:btih:D8A6346DB892D0200C35EBA6FCEE158053298BDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Hitman (2016) [Ru/Multi] (1.12.2/dlc) Repack R.G. Catalyst [The Complete First S
 ```bash
 magnet:?xt=urn:btih:A992781643F771852F367183673B12ABCAEBC092
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Shadow Warrior 2, продолжение неординарного шутера
 magnet:?xt=urn:btih:C1BF67322B0DF9C975F026BE40D9B955C12F20FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Project Cars 2 – это вторая часть мегауспешного г�
 ```bash
 magnet:?xt=urn:btih:CAF7EA8D04B29C66EB9594040264C0CD11F37F5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Viscera Cleanup Detail - это симулятор... уборищика на к
 magnet:?xt=urn:btih:AC29AF6F3DA1A05B3CF5936ABD6D73B404C2D8D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Need to Know (2018) [En] (1.30.2) License GOG
 ```bash
 magnet:?xt=urn:btih:E53D2FD8D73B8829784A127C9F3A3D9CAEED689A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Iron Ladies 2048 (2018) [En] (1.0) Repack Other s
 magnet:?xt=urn:btih:A80DAAC31051FD8C523158581462CC435BC18EED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Endless Legend (2014) [Ru/Multi] (1.6.10 S3/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:71A34F6E2099FF89ACFF7F87613E42C497DEA89A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Farm Together — от создателей Avatar Farm. Начните с ну�
 magnet:?xt=urn:btih:FF02B2B740F04EE6282F3954B33F0CC01781183C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Paranormal Files 4: Hook Man's Legend (2019) [En] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:8E3DFDC71B27E44256511AAA510981498888291B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Baldur's Gate: Dark Alliance II (2022) [Multi] (1.0.4.1) License GOG
 magnet:?xt=urn:btih:5C9C9AF420B20B92CE308F4F88B9CE8FCFC067AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ The Imperial Gatekeeper (2022) [En] (2/dlc) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:84B71781FF65157571055093EC317D63A2D29712
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ The Last Remnant — ролевая игра, в которой вас ждет 
 magnet:?xt=urn:btih:1B989176BD1E6AEDD6FC372919A28B71B8D508AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Halloween Stories 2: Black Book / Хэллоуин 2. Проклятие чер�
 ```bash
 magnet:?xt=urn:btih:D543F274B9DB0D5399E531E957E9288FA73B9234
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

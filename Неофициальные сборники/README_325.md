@@ -1,3 +1,32 @@
+###  Публикация: 1237087   (552282) от 23.07.2018
+
+VA - Зайцев.нет: Лучшие новинки Июля 2018 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552282.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. GAZIROVKA - Яйца в кулак 2:49
+002. Эльбрус Джанмирзоев - Этой ночью 3:19
+003. RASA - Эликсир 3:40
+004. Хлеб - Шашлындос 2:58(   Читать дальше...   )Жанр: PopПродолжительность: 05:53:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1F731205C0C8E27798B79D6A629A4669260F0AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237135   (552296) от 23.07.2018
 
 VA - Kiss FM Top 40 21.07.2018 [MP3|320 Kbps] <Pop, Dance, Club>
@@ -21,6 +50,8 @@ VA - Kiss FM Top 40 21.07.2018 [MP3|320 Kbps] <Pop, Dance, Club>
 ```bash
 magnet:?xt=urn:btih:18AAB470831F6ADDF8A94C10F2376D10BE7E1051
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ Nigel Stanford - Automatica Reverse (2018) [MP3|320 Kbps] <Synthwave, New Age, A
 magnet:?xt=urn:btih:434B1A90B10A5B2FBB26875805CC7CECF417901C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Night Party Style Club (2018) [MP3|320 Kbps] <Uplifting, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:CFE95EDA9D220CA0D0F2363150EC6FB36B821D98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - German Top 100 Single Charts 20.07.2018 (2018) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:44A3864D5C8ECE82B1FE04BC473A26A218D746CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - The Official UK Top 40 Singles Chart 20.07.2018 [MP3|320 Kbps] <Pop, Dance,
 ```bash
 magnet:?xt=urn:btih:75F09231F48CC381E7E7FB6A6F9F7E1522E3C842
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +199,8 @@ Hits of My Soul - сборник электронной и инструмент�
 magnet:?xt=urn:btih:37035F5ACEFB8B2E1A3CED187A6A75D94B3F4E25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +227,8 @@ VA - Я Проткну Себе Ж_пу Ножом (2019) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:7E960D2F2E3CB3977F4523CCD9A2B2D3AFEAD165
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +257,8 @@ VA - Radio DFM Top D-Chart Июнь 2019 (2019) [MP3|320 Kbps] <Pop, House, Danc
 magnet:?xt=urn:btih:8E7F12AA20B3AFC8D1D437E15CB05619141C68B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +285,8 @@ VA - Caught In The Wind (2019) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:B93F30EF4C747F0F91F75B1A7DA481A99D57CEB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +315,8 @@ VA - TOP летние хиты на Русском радио. Сборник 9 
 magnet:?xt=urn:btih:F5AD7153003DF605BD960C75A55E740E1AEF4407
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +343,8 @@ VA - Хиты летние за рулем. Версия 8 (2016) [MP3|256 Kbps]
 ```bash
 magnet:?xt=urn:btih:66648C2E80C922F3F598D66037F0C07A093F2785
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +373,8 @@ VA - Ballads - Let Your Heart Sing (2016) [MP3|320 Kbps] <Gospel, R&B, Pop Rock,
 magnet:?xt=urn:btih:DE52BBE826EDD31A61178F5C0D6B41043509CB83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +401,8 @@ VA - Relax with Electro Jazz (2016) [MP3|320 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:8E6AB539377BDE70F72FC3A7689F6D27F213E600
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +431,8 @@ VA - The Untouchables: Punk Rock Meeting (2019) [MP3|320 Kbps] <Punk, Rock Punk>
 magnet:?xt=urn:btih:E7E9C302248BCAFE5395D911B8688F448811C30F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +459,8 @@ VA - Future Trance Vol.77 (2016) [MP3|320 Kbps] <Trance, House, Future Trance, P
 ```bash
 magnet:?xt=urn:btih:14F80B1DC7F4EAFB836D64326A7BCF94CA836AEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +489,8 @@ VA - Душевный сборник Шансона - 2 (2016) [MP3|256 Kbps] <�
 magnet:?xt=urn:btih:43AC9FB8F72977DD5E368822DF8CEC1F956BC8A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +517,8 @@ VA - Жаркие танцы. Сборник 6 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:57C20A64EB5507DD9BF44A7FC03EC8E72AF367AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +547,8 @@ VA - Зажги Под Летние Хиты 9 (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:02FA4FAD0BBBF684FF48774BE85AF61CA07872D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +575,8 @@ VA - Плохая примета. Блатной суперсборник (2016)
 ```bash
 magnet:?xt=urn:btih:14DDECA6DCC1BA0495705A8F71F4A9BA1B12A1C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +605,8 @@ VA - Super Dance Party Vol.6 (2016) [MP3|320 Kbps] <Dance, Club>
 magnet:?xt=urn:btih:35D3AE104CBAE37D138E207DF0FA397F5C9DC83E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +633,8 @@ VA - Шансон на лето. Версия 10 (2016) [MP3|256 Kbps] <Шанс
 ```bash
 magnet:?xt=urn:btih:F58455A483C906C745B219B8F4933295F71FCBB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +663,8 @@ VA - Летние хитовые песни 9 (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:92AECB8C9704F9B017D5C5608D71E9C01738A05E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +691,8 @@ VA - Летний заводной музон - 10 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:8D994492883F1339B46CC767DE10DBD4C1F19028
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +721,8 @@ VA - Лето в кайф. Версия 7 (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:B8C1D4EC3C4FED92A7821F0940790A403D0BB450
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -673,32 +750,7 @@ VA - ЕвроХит Топ 40 Europa Plus 20.07.2018 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:DC889F0900372C2E3D5ADFFB44A1DD7A0C281119
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236898   (553318) от 22.07.2018
-
-VA - Empire Records - Funky House (2018) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Caruso - Life Is Better With Sunshine (Radio Version)
-02. Me and My Toothbrush - Hands Off
-03. Lee Cabrera - Shake It (Dj Rabinu & MD Dj Remix)
-04. Quantek - Feeling (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:01:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:789AF29C7F43828F3A2E81825E443C3A998578F8
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

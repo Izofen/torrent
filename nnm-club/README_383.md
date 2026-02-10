@@ -22,6 +22,8 @@ Vue - это JS фреймворк для создания реактивных 
 magnet:?xt=urn:btih:DAC11588A75376559F383C4644937A054D730C1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:DAC11588A75376559F383C4644937A054D730C1B
 magnet:?xt=urn:btih:B980B483D8ED2B121DA74E671F4155611A982017
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:B980B483D8ED2B121DA74E671F4155611A982017
 ```bash
 magnet:?xt=urn:btih:8AE0E68821B08A8B2E5CD53C365EE80377880732
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:8AE0E68821B08A8B2E5CD53C365EE80377880732
 magnet:?xt=urn:btih:801A4DDD197FB9757403248E07D9B42DEAA560EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ Neuratron Photoscore Ultimate 6.1.0 Retail [Ru/En]
 magnet:?xt=urn:btih:F685099B47510B78097454643C3B5E7B50D0403C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:F685099B47510B78097454643C3B5E7B50D0403C
 magnet:?xt=urn:btih:3478CE468949074867748B4742D0D64C0B56DCDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:3478CE468949074867748B4742D0D64C0B56DCDD
 ```bash
 magnet:?xt=urn:btih:05041FD2635953AB7DEBB40329F12584D0CC66C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:05041FD2635953AB7DEBB40329F12584D0CC66C9
 magnet:?xt=urn:btih:BF9D26B949B6682A08C9EB9DB58374A100115FFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ The Planet Crafter (2022) [Ru/Multi] (1.526/dlc) Repack dixen18
 magnet:?xt=urn:btih:BD7C698AFE8C0027EA16D8114BB293B300840A64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Microsoft назвала Windows 11 24H2 самой надёжной сборк�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ Maptorium – свободная программа, предназначенн�
 magnet:?xt=urn:btih:A920D86D46F3E2F37A586E128C926002EA1BD86C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:A920D86D46F3E2F37A586E128C926002EA1BD86C
 ```bash
 magnet:?xt=urn:btih:4A3DC990AD6724CBB626D693DC78E8A2036BB7A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:4A3DC990AD6724CBB626D693DC78E8A2036BB7A4
 magnet:?xt=urn:btih:0B7677AB0D92FC6FD43F13BBEDBF9392E909277A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:0B7677AB0D92FC6FD43F13BBEDBF9392E909277A
 ```bash
 magnet:?xt=urn:btih:65CB438C437BD203D26790F2F207E1429BCB5B74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:65CB438C437BD203D26790F2F207E1429BCB5B74
 magnet:?xt=urn:btih:9C39D5C6BD31FA9BB17A08D6247C995D9E28070C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:9C39D5C6BD31FA9BB17A08D6247C995D9E28070C
 magnet:?xt=urn:btih:A9F7015C98DDC48635F79B95363CD770D886391F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ Cloudflare начал блокировать пиратские сайты дл�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ Cloudflare начал блокировать пиратские сайты дл�
 magnet:?xt=urn:btih:EEF19B26E5C2F50C883175EE367A382031E86340
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:EEF19B26E5C2F50C883175EE367A382031E86340
 ```bash
 magnet:?xt=urn:btih:7FA6B2F38E7C10FCF60EF8604877B9C79B92704A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:7FA6B2F38E7C10FCF60EF8604877B9C79B92704A
 magnet:?xt=urn:btih:63C6C324DAE7E59231649B8156693B4B7D20FB9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:63C6C324DAE7E59231649B8156693B4B7D20FB9F
 ```bash
 magnet:?xt=urn:btih:5D067FFBA58668094FC749343EB22564244B2F62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ Steep (2016) [Ru/Multi] (1.23.7640008/dlc) Repack FitGirl
 magnet:?xt=urn:btih:F51AAAEE2090816844F6CACDA47F94CF01A04B49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ Dark Resolve (2025) [Ru/En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C35B9A3D3ED0F379E5BD69AE95FAA51B2461FA3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:11A4608A230062F85A05F9A0F6343E1B9DF44E5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:11A4608A230062F85A05F9A0F6343E1B9DF44E5C
 magnet:?xt=urn:btih:5FCDC8863B4332B1F989D2ECDB27DDE7525F0D93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:5FCDC8863B4332B1F989D2ECDB27DDE7525F0D93
 ```bash
 magnet:?xt=urn:btih:705C8FCB5A59627205211DA8300027C9300B6DE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

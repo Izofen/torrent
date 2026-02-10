@@ -19,6 +19,8 @@ Paranormal Files 10: Counterpart (2023) [En] (1.0) Unofficial [Collector's Editi
 magnet:?xt=urn:btih:6A0F625667DC49B085B9B87F2957B84661572EF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Kona II: Brume (2023) [Ru/Multi] (Build 12466960) Repack Other s
 ```bash
 magnet:?xt=urn:btih:EB829315DCD4A947614D90CF3A9F457803FAE807
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Sniper Ghost Warrior Contracts 2 - самая сложная игра в про�
 magnet:?xt=urn:btih:2711F0A1DBC19F7B407904BE8B18093770ABB0A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Sniper Ghost Warrior Contracts (2019) [Ru/En] (7794846/dlc) Repack Decepticon [D
 ```bash
 magnet:?xt=urn:btih:713675CA577094D1927DCCC45228DABDAA01DEFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Tribe: Primitive Builder (2023) [Ru/Multi] (1.0.17) Scene Tenoke
 magnet:?xt=urn:btih:AC04E89A530727333A213C72F6A0561D1F16E30B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Bish Bash Bots - это уникальное сочетание жанров: з
 ```bash
 magnet:?xt=urn:btih:30A6FADAC0437B9E24757B9FE8CDCB7C4F691A50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Night Loops (2023) [En] (1.0) Scene Tenoke [Deluxe Edition]
 magnet:?xt=urn:btih:68646221C96A131B2B74F91A2E651003F5208CD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Paranormal Files: Silent Willow 9 / Паранормальные явления 
 ```bash
 magnet:?xt=urn:btih:5C68AF0E348EF8597B603BB87EFEC4EED4C51CBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Lost Eidolons (2022) [Ru/Multi] (3_29/dlc) License GOG
 magnet:?xt=urn:btih:3262E34105C19106DF1F83CB938E9C2B42EC842F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Transformers: Earthspark - Expedition (2023) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:A91911C59204E54B304CFF957B5DF076DD6254A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Growth (2023) [Ru/Multi] (1.0rc2) License GOG
 magnet:?xt=urn:btih:C934E2CF4F2DD05E6DFA0D8DF573E710F06F0C9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Knight vs Giant: The Broken Excalibur (2023) [En] (1.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:1C47FFEB3D84F4096B6AF79C49617034F119DE92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Windy Meadow - A Roadwarden Tale приглашает вас окунуться 
 magnet:?xt=urn:btih:DC5DF374F1C92B60B34809D5C7238C54F6903999
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Valor & Victory - это быстрая, легкая в изучении игр
 ```bash
 magnet:?xt=urn:btih:EC09B030CF5EECA99DB95361E4F72B4574123109
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Ocean Pressure - это однопользовательская игра, в к
 magnet:?xt=urn:btih:B5869E86C634A7938A061A63C28412FF91F3CD4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Yuki Onna (2020) [Multi] (1.0) Scene DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:D80145C8AECB9C07951ED9862A843214B0C41537
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Inunaki Tunnel (2019) [Multi] (1.0) Scene DARKSiDERS
 magnet:?xt=urn:btih:C625002E3379893960EFAC33F3DCD6F778744D67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Garden In! (2023) [Multi] (1.0.8) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:CE0812FE09D6A7ADB3603394F5E82739ED287D72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Stigmatized property - игра, вдохновленная японскими �
 magnet:?xt=urn:btih:7C141CDE7D686A36D8913B5D11620E3BF1E276C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Aka Manto предлагает пользователю увидеть инте�
 ```bash
 magnet:?xt=urn:btih:3A8A9836593F705341BD035CEB0C1E990E439C65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Land of the Vikings является градостроительным симо
 magnet:?xt=urn:btih:701AFEE4529261AF7312A450EFDEA0E637548235
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Vosphia - это однопользовательская ролевая игр�
 ```bash
 magnet:?xt=urn:btih:E10F7AF8DD106ADD4E4E2BCD919C7ECD8C6AA876
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ LIVE A LIVE (2023) [Multi] (1.0) Scene Rune
 magnet:?xt=urn:btih:C676DC5C4C10993C31A1D949C9581EA869E48C8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Star Trek: Infinite (2023) [Ru/Multi] (1.0.0.256/dlc) Repack DjDI [Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:F3EAA26E2ACC09A8921BAAF449B0ADEFF787898D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Star Trek: Infinite (2023) [Ru/Multi] (1.0.0.256/dlc) Scene Rune [Deluxe Edition
 magnet:?xt=urn:btih:DBC7DA5EC826276C9C597F149D200064201140C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ RAILGRADE (2023) [Ru/Multi] (4.7.42.1) Scene Rune
 ```bash
 magnet:?xt=urn:btih:EA1410E8F127F5726BE581BFFB313DB307E2CE9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

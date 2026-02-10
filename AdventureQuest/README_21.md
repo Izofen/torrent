@@ -19,6 +19,8 @@ Limoria (2025) [Ru/Multi] (build 16883517) Repack seleZen
 magnet:?xt=urn:btih:3244F6AE41A741AFE70202EEB3DC9C92291F5B1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Snufkin: Melody of Moominvalley - это приключенческая игра
 ```bash
 magnet:?xt=urn:btih:6FAB344E2AD011ABF4477A13D4E646D8982603CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Song of Farca (2021) [Ru/Multi] (1.0.2.25) License GOG
 magnet:?xt=urn:btih:739A3DF0518E07672C29BE884A9826E4567B5760
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Stars in the Trash - увлекательный платформер, вдохн
 ```bash
 magnet:?xt=urn:btih:22609BCFC7A0A82444FE7F5E5116F73AFE4DB11A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Follow the Meaning - приключение в жанре point-and-click с г�
 magnet:?xt=urn:btih:C66A861373460E316CD2F05771D274D5868B2FA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The Strange City (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5333D60DBABF65303DEE77730204CBA923DB209D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Locked In Mind (2023) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:CF98DB02B5EB18CFE15895D112092974B30CF6DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Free Durov (2024) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:F044D28B173DBA52563BFDA42E5D067E8A85AE58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Pyramids and Aliens: Escape Room (2024) [Multi] (1.0.6) Repack FitGirl
 magnet:?xt=urn:btih:2AC39E353B6B352913987DF334A428E36C084183
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Dustborn - дорожное приключение, вдохновленное �
 ```bash
 magnet:?xt=urn:btih:3FD638EED20A91DD861E6F64E2CAA82462393696
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Machinika Museum (2021) [Ru/Multi] (1.24050201) Repack Let'sРlay
 magnet:?xt=urn:btih:FA9C310774AF6A82602E9316E3FC548EAAEC789D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Machinika: Atlas (2024) [Ru/Multi] (1.1.28.2) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:9AB74394C9C67D08D1A04F36C5A9947B626A7A71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Wild West Dynasty (2023) [Ru/Multi] (1.0.9129) License GOG
 magnet:?xt=urn:btih:210D6340F253199EBCFFF963208D628971A47476
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ The Dark Eye: Chains of Satinav (2012) [Ru/Multi] (3.0.351.5498) Repack Let'sРl
 ```bash
 magnet:?xt=urn:btih:9125DD2AA1EDF4C109282583AAF5F20530E9B378
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Pools (Бассейны) – игра, разработанная в жанре 
 magnet:?xt=urn:btih:9D4A95EE880374C2F012E237A2C565F546290DFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Randal's Monday (2014) [Ru/Multi] (1.0.3) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:C36ED21EA3757257BB3824AF253371909F351849
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Dude, Where Is My Beer? (2020) [Ru/Multi] (11) License GOG
 magnet:?xt=urn:btih:CB7C59134D1676F9149FED208D279EC94947DBDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ The Many Pieces of Mr. Coo - это сюрреалистическое граф�
 ```bash
 magnet:?xt=urn:btih:EA9ABAF9C6D64C295D45C82DD91EA157E33E5285
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Jusant - увлекательная видеоигра, которая приг�
 magnet:?xt=urn:btih:8668677AA0CB2933A61D8061293C119D6FFB2EA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Doll Impostor погружает игрока в атмосферу страха
 ```bash
 magnet:?xt=urn:btih:A153CBA0593023E624F2BDBFFC91A29DD793F565
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Bendy and the Dark Revival - это хоррор-игра на выживани�
 magnet:?xt=urn:btih:7F1B049ED2FB3C02282A0122F41CFC4FEE566358
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Nine Sols (2024) [Ru/Multi] (202412161711.b1327bd4.0) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:688D8A4F61A79171242FA86C65D89803B8ECECEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Moon Mystery приглашает игроков в космическую од�
 magnet:?xt=urn:btih:DAE5FA53C6194BF678F90D5981223FC8485FBC55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Mouthwashing - хоррор от первого лица об умирающем
 ```bash
 magnet:?xt=urn:btih:088B2311F3461551DDA4D7DB2AA257D31A71E182
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Hollowbody бросает вас с головой в мрачный мир те
 magnet:?xt=urn:btih:F34963A582E0A7B3A31A52E60B6AC67485B5A00D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ magnet:?xt=urn:btih:F34963A582E0A7B3A31A52E60B6AC67485B5A00D
 ```bash
 magnet:?xt=urn:btih:DE845236FDD140C51C80AC7555321D141358BE95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

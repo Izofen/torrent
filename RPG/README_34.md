@@ -19,6 +19,8 @@ Sons of Valhalla - приключенческий сайд-скроллер с �
 magnet:?xt=urn:btih:E052A47EB3FC9EFE97ADC3B43E8CC7BE47EB64C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Crimson Tactics: The Rise of The White Banner - пошаговая тактич�
 ```bash
 magnet:?xt=urn:btih:F570AD3779FDCC39604C4CDAACEB19AB2C029720
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Life Eater - это симулятор культиста, сочетающий 
 magnet:?xt=urn:btih:4D8468084D3E2D60D31F59C495A3BB876DD774E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Eclipse: Echo of Dimension – отправьтесь навстречу нев�
 ```bash
 magnet:?xt=urn:btih:E62BBCCDB82AE7EABF03D3F2A4A1BB52F2D0EB9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Tamarak Trail - это увлекательное приключение, кот
 magnet:?xt=urn:btih:DD3B12E2E886F396C4186B34314F758339184BEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Eiyuden Chronicle: Hundred Heroes – это увлекательный фент
 ```bash
 magnet:?xt=urn:btih:74FD877770B74D87514C05F5D05FC23DEA4472F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Decision: Red Daze - уникальная вариация изометриче�
 magnet:?xt=urn:btih:71EF8F5B89E73F3489D04BD69EC9545A6F11B34F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Bloody Spell – это экшен слешер, который имеет ря�
 ```bash
 magnet:?xt=urn:btih:D8591B4DF6FF8BC51A01D679538D06BC92B4C90D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Kingsgrave манит вас в пустынный мир. Приключени�
 magnet:?xt=urn:btih:499DB8B743609D41BE25CA8FACA80F93AC65FE09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Fallout 3 - это сочетание шутера от первого лица,
 ```bash
 magnet:?xt=urn:btih:E9EE3F62AA93E1FED677682EBD91B672E5018D59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Demon Lord Reincarnation (2023) [En] (1.0.6.1/dlc) License GOG
 magnet:?xt=urn:btih:F61F3820B1E600DD60BC676CC81CBD1A37354FD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Mato Anomalies - это пошаговая RPG, которая отправля�
 ```bash
 magnet:?xt=urn:btih:12B72E33D69DE78A9AE8D41FDCEC4450CAC96704
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Eiyuden Chronicle: Hundred Heroes – это увлекательный фент
 magnet:?xt=urn:btih:4110159439AC7FB25C117909632797265C21A992
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Astria Ascending (2021) [Multi] (1.0.154/dlc) License GOG [Digital Collector's E
 ```bash
 magnet:?xt=urn:btih:0E5F8EA2BE35497EF7AACCCCAF6A625120C86CAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Legend of Heroes: Trails of Cold Steel III (2020) [Multi] (1.06/dlc) License
 magnet:?xt=urn:btih:325792F2A96FD0BCF9C014DA28C80EFB9E566F3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ otus Lantern: Rescue Mother - это игра-рогалик с видом св�
 ```bash
 magnet:?xt=urn:btih:0F7AD13DEA619E6D0A27C53CE0AB0C5B24CF5112
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Our Adventurer Guild - ролевая игра, где вы переместит
 magnet:?xt=urn:btih:D6DCB80BCA149D85D13C02B5E1F2C3C62FFA6BFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ SWORD ART ONLINE Last Recollection - это приключенческий ро�
 ```bash
 magnet:?xt=urn:btih:40757B8A5D0ECD5021743DA7778D85310F6DDA2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Jupiter Hell (2021) [En] (1.8h) License GOG
 magnet:?xt=urn:btih:178376877A3498A582A21A70A8117AF81BD1AF2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Sheba: A New Dawn повествует о мире, что переносит в
 ```bash
 magnet:?xt=urn:btih:8F05A048DEC954FE7ED5A8B2A293F83614D68E1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Shanghai Summer отправляет игроков в путешествие п
 magnet:?xt=urn:btih:C1D97E225CD0B836C6217E135F94E62F3C905276
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ INSPIRE - стильный RPG-шутер с видом сверху, событ
 ```bash
 magnet:?xt=urn:btih:3FC7687F8C2C5A082934ED0ECC1DB91515900EC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ otus Lantern: Rescue Mother - это игра-рогалик с видом св�
 magnet:?xt=urn:btih:51388FB4E3A02741D6401571E9DD88535D6636E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Acolyte of the Altar - это адвенчура в жанре roguelike deckbui
 ```bash
 magnet:?xt=urn:btih:A7CA43EC1CEC9F09A21FE3E6272B5951AA7793E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Pathfinder: Gallowspire Survivors, созданная по мотивам поп
 magnet:?xt=urn:btih:3A21DF9B461D6BE7CF6B502AD94C732055B3762F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ The Thaumaturge - изометрическая ролевая игра с глу
 ```bash
 magnet:?xt=urn:btih:0210DF705F642340EDB37A8AB4A81D7CBDC7273C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

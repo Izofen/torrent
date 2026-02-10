@@ -19,6 +19,8 @@ The Full Package Remastered - благодаря улучшенной графи
 magnet:?xt=urn:btih:406BFEA92A19DE62D16059C4900EF258E7C7C852
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ MassTube Ultra — очень простая в использовании пр�
 ```bash
 magnet:?xt=urn:btih:4689A9E2FB47A25F6C8345BA54B654883F514735
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Polarr Photo Editor Pro 5.11.10 Portable by FC Portables [Multi/Ru]
 magnet:?xt=urn:btih:A52E7C5859A3BE3A95253D6339F1370D9ED4044A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:A52E7C5859A3BE3A95253D6339F1370D9ED4044A
 ```bash
 magnet:?xt=urn:btih:AD661D27561EDF3EEA89FC0FC8C8662B11CE4D7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Poop Killer: Flush or Die (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:9B9F238CAFCDD18D026389707B329A4EA8779702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:9B9F238CAFCDD18D026389707B329A4EA8779702
 ```bash
 magnet:?xt=urn:btih:815E3BC5BBE895A658B1397878358F9D5CA57F57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:815E3BC5BBE895A658B1397878358F9D5CA57F57
 magnet:?xt=urn:btih:E8641E840C783E97B125470790ACEB1C1C151628
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:E8641E840C783E97B125470790ACEB1C1C151628
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ HeadUp Display (HUD) – это возможность использовать 
 magnet:?xt=urn:btih:DF6F9AAE6A654A5FA94E31F40BA66F62C6FB7748
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Crash Time - Undercover – отправьтесь навстречу безос
 ```bash
 magnet:?xt=urn:btih:880BD4297C4779E307C2C8A2BB87C896FE1C1980
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:880BD4297C4779E307C2C8A2BB87C896FE1C1980
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Control (2020) [Ru/Multi] (1.30/dlc) Repack Let'sРlay [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:34B8D3B65E03A709406BDEFFF18DE0D5CE880040
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Easy Red 2 - шутер от первого лица с элементами с�
 magnet:?xt=urn:btih:2991A2E009CE16E5C8E77980DB3857AE4575FCAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Adobe Photoshop 2025 - новая версия программы для обр�
 ```bash
 magnet:?xt=urn:btih:97450AF6BE95D1DBC85B5ACF745530EE645BA9F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:97450AF6BE95D1DBC85B5ACF745530EE645BA9F6
 magnet:?xt=urn:btih:3BEE3FBCCDE6E2C87C597C8E9117B40F0D797253
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ magnet:?xt=urn:btih:3BEE3FBCCDE6E2C87C597C8E9117B40F0D797253
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:3BEE3FBCCDE6E2C87C597C8E9117B40F0D797253
 magnet:?xt=urn:btih:EFA60ACE43BB75F41DEA58E9BA075D0C0D09F703
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:EFA60ACE43BB75F41DEA58E9BA075D0C0D09F703
 ```bash
 magnet:?xt=urn:btih:BA773B364BEE80FECE60E25C3356E3BD43B1D4B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ KARMA: The Dark World (2025) [Ru/Multi] (build 17844576) Repack FitGirl [Digital
 magnet:?xt=urn:btih:B22987C5F7522CB677E43AED5E50A55D5ECD66E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ magnet:?xt=urn:btih:B22987C5F7522CB677E43AED5E50A55D5ECD66E1
 ```bash
 magnet:?xt=urn:btih:103A367649C05CF7B9F3D97D46813FD7966396E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:95D81F6364CD2B0D70183F77C1651AE557C734C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ Ishura 2 | Исура [ТВ-2] [2025, TV, 12 эп.] WebRip 720p HEVC raw
 ```bash
 magnet:?xt=urn:btih:5C8EB0992A13C03C54810581F221BBD9C27F5FDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:5C8EB0992A13C03C54810581F221BBD9C27F5FDD
 magnet:?xt=urn:btih:8D36BC9B46021A9F462BE00846CB120B58767690
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ magnet:?xt=urn:btih:8D36BC9B46021A9F462BE00846CB120B58767690
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ VA - Cosmic Heaven (2025) [MP3|320 Kbps] <Synthpop, Pop, Dance>
 magnet:?xt=urn:btih:CBFF376EFDA5BFA669D6E181E5430BEAB78BA9B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Ai Limit (2025) [Ru/Multi] (Build 17884331/dlc) Repack Other s [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:2F26A1D293AB29229C80B323CD01D8402632D08D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

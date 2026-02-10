@@ -19,6 +19,8 @@ Picsart AI Photo Editor, Video v24.6.4 Final Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:3CF3C8866A480EC20B2B0FC64F36BB894C9A0D4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:3CF3C8866A480EC20B2B0FC64F36BB894C9A0D4E
 magnet:?xt=urn:btih:CD48546820508BE2DED9DD40EAA6502FEEC80E85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:CD48546820508BE2DED9DD40EAA6502FEEC80E85
 ```bash
 magnet:?xt=urn:btih:5DF01DA40BAEA025BBE1C651CED1A2AD743CFA55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ V.A. - 80's Essentials (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 magnet:?xt=urn:btih:524D1EFC80DDD68230DF09D6C1C8598E71A39B10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:524D1EFC80DDD68230DF09D6C1C8598E71A39B10
 ```bash
 magnet:?xt=urn:btih:9E79A6D40374ABED409BAAA2D733D9EA7C4358F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ VA - Record Super Chart 30.03.2024 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:7E0CA2294A930754FC90DD586FF3506985E54456
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:7E0CA2294A930754FC90DD586FF3506985E54456
 ```bash
 magnet:?xt=urn:btih:2D4388481BCA5F3B6B402666B05879C263FC746D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:2D4388481BCA5F3B6B402666B05879C263FC746D
 magnet:?xt=urn:btih:F90AFA8D15E5898A066B6805375988CB54D109CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Pepper Grinder - это ураганная двухмерная адвенчур
 magnet:?xt=urn:btih:A9229C8E427243D5AE340D9DB3B6BB33C6F474B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ There's Something In The Ice - хоррор с гнетущей атмосфер
 ```bash
 magnet:?xt=urn:btih:A517E6B73CA494CEC369B7EACC854190A9F7F517
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:A517E6B73CA494CEC369B7EACC854190A9F7F517
 magnet:?xt=urn:btih:8AD735A3CF3DA2EAF1DCD4C7A09624E2B43F3F0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:8AD735A3CF3DA2EAF1DCD4C7A09624E2B43F3F0C
 ```bash
 magnet:?xt=urn:btih:302C280FFADA4C57E8A5171669A47990DC3417D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:302C280FFADA4C57E8A5171669A47990DC3417D2
 magnet:?xt=urn:btih:A841B8D81A551F62915DC1F59890BC9F6DFD2549
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:A841B8D81A551F62915DC1F59890BC9F6DFD2549
 ```bash
 magnet:?xt=urn:btih:0CC41789F53D5433543E20ECBC372447BF2D7EB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:0CC41789F53D5433543E20ECBC372447BF2D7EB5
 magnet:?xt=urn:btih:A278CCF61033E88BAEAB9AEA828F4AF202B051E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:A278CCF61033E88BAEAB9AEA828F4AF202B051E1
 ```bash
 magnet:?xt=urn:btih:D1CE05F3FE7B315EA1153DE333DA122FB203424D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ magnet:?xt=urn:btih:D1CE05F3FE7B315EA1153DE333DA122FB203424D
 magnet:?xt=urn:btih:6918DE3D1F01DA22DEC5A90D49C9DBD8BD479FC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ Steve Maxwell | Отделка дерева для начинающих (2023) W
 magnet:?xt=urn:btih:83EEA1EB520318ACDDE630309142CDEE75EA6F1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ magnet:?xt=urn:btih:83EEA1EB520318ACDDE630309142CDEE75EA6F1C
 ```bash
 magnet:?xt=urn:btih:3203C12D1F683063F53A594C208CE551D2AC5328
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ Metal Unit повествует трагическую историю о буд�
 magnet:?xt=urn:btih:B53EC6A466A4A57420991BF1AFEFD5E2C6B975F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ Clash: Artifacts of Chaos – это уникальная по стилю игр
 magnet:?xt=urn:btih:68F759D206B3A4D2D74C342E8C15D5B45661BC91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ magnet:?xt=urn:btih:68F759D206B3A4D2D74C342E8C15D5B45661BC91
 ```bash
 magnet:?xt=urn:btih:1E9A99BDF6F768BF2E204E274CEA1B4F1E382406
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +609,8 @@ Mop Mop - Kiss Of Kali (2009) [FLAC|Lossless|image + .cue] <Electronic, Jazz>
 magnet:?xt=urn:btih:6FA032C292FF8CCCF782801A1B593B1BBF849AD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ magnet:?xt=urn:btih:6FA032C292FF8CCCF782801A1B593B1BBF849AD7
 magnet:?xt=urn:btih:BEDB2563AECDC89807020F62D461656A941D544D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ magnet:?xt=urn:btih:BEDB2563AECDC89807020F62D461656A941D544D
 ```bash
 magnet:?xt=urn:btih:21DA9B46676BBF32030B2E8D529FE2016C73E419
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +688,8 @@ magnet:?xt=urn:btih:21DA9B46676BBF32030B2E8D529FE2016C73E419
 ```bash
 magnet:?xt=urn:btih:818A30EC628ED21D5DB3933251765F6C95AB7DB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

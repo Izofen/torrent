@@ -22,6 +22,8 @@ CD - 1:
 magnet:?xt=urn:btih:9F1686C4DBB2B0F76FA82A7BBEF6B2506D48BFB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ The Piano Guys - 10 (2020) 2CD [FLAC|Lossless|tracks + .cue] <Classical Crossove
 ```bash
 magnet:?xt=urn:btih:1C360262D316D2682283F4670DC95F6A29601B81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ David Garrett - Alive - My Soundtrack (2020) 2CD Deluxe Edition [FLAC|Lossless|i
 magnet:?xt=urn:btih:508B6A0401072704F6544516E2014777E912FC85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Sonata No. 2 BWV 1003 In A Minor (21:17)
 magnet:?xt=urn:btih:30BA3BEF78651FFC44393AD7A44A1F8754331143
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ Joseph-Nicolas-Pancrace Royer
 ```bash
 magnet:?xt=urn:btih:061BD3D5E9319B6405B280E44BC833F0F2C5281C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -158,6 +168,8 @@ Max Richter's 2012 Recomposed album was an enormous success, topping charts in m
 magnet:?xt=urn:btih:87C31736CB71C4F595854FE692DDE071C8464D07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +196,8 @@ Andrea Balzani, Francesco Digilio - Wings of Wind (2022) [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:FE21B17A41F4ACD356F9C618DB38B85BA01A5F86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +226,8 @@ Andrea Bocelli - My Christmas (2022) Fireside Edition [FLAC|96/24|Lossless|WEB-D
 magnet:?xt=urn:btih:2EFEBCB504CDD78BBB26946712B41C5BC23B7932
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +254,8 @@ VA - Greatest Hits of Piano Music (2022) [FLAC|Lossless|WEB-DL|tracks] <Classica
 ```bash
 magnet:?xt=urn:btih:97F690C8233000EEDBFBD570AF2AF4DE2BB7B4F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +284,8 @@ André Rieu - Voila! The Music of André Rieu (2023) [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:ECBAB9316B1DDC665DCCF53CCE9E3DDBCED46E84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +312,8 @@ Borodin / А.Бородин - Prince Igor / Князь Игорь (2001) 3 CD, D
 ```bash
 magnet:?xt=urn:btih:EA090324A8504E5BD6A30E7021A9C5C0C663CBB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +342,8 @@ Sonata for keyboard 4-hands Op.4 in F
 magnet:?xt=urn:btih:F5463252875C3D8EA62F7C0721E7052CC7A9DA15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +370,8 @@ Symphony No. 5 in D minor, Op. 47
 ```bash
 magnet:?xt=urn:btih:6C94E9B0E138D068B7EA9C76C1C27A12AEACC844
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +400,8 @@ VA - Piano Black & White (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 magnet:?xt=urn:btih:1A05767C349530BDA2263C0FAD7B9DF709B6F2FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +428,8 @@ The WHOOP Group - Crimes II (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ```bash
 magnet:?xt=urn:btih:546D3EBC03E333A91A8612611BA95EF8FD188B21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +458,8 @@ I. Introduction:
 magnet:?xt=urn:btih:EF206D9BF5415A9D940EDDB559223F305936F8D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +486,8 @@ Johann Sebastian Bach, Phantasm - The Well-Tempered Consort-III (2022) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:E385CE0B3D75BD62DFCE0C2E29D35E8399491755
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +516,8 @@ CD1:
 magnet:?xt=urn:btih:414916EF4A1158204257D2153CBC2BB5919989B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +544,8 @@ The Piano Guys - The Piano Guys (2013) [FLAC|Lossless|WEB-DL|tracks] <Classical 
 ```bash
 magnet:?xt=urn:btih:E3C40C4786C00A855D0DD6FFA2F9DAFF0557129A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +574,8 @@ Piano Quintet 'Annunciation'
 magnet:?xt=urn:btih:E79B17515D7710713E4BC8173CB98425FC0EBB08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +601,8 @@ VA - The Classical Album (2016) 2CD [MP3|320 Kbps] <Classical, Orchestral, Symph
 ```bash
 magnet:?xt=urn:btih:55D53CDC0BDB6F79927A6E269644FD831258565B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +631,8 @@ Andrea Bocelli - Believe (2020) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Classical 
 magnet:?xt=urn:btih:572312E41F17FDE1BBD773D223C9594CF2030F25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +659,8 @@ Sonata for cello & piano in A minor, Op. 36
 ```bash
 magnet:?xt=urn:btih:652677B415D3CB2C99D4F027466E76EDCE164DB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +689,8 @@ J.S. Bach, F. Stiedry - The Art Of Fugue (orchestral version) - Hans Zender (200
 magnet:?xt=urn:btih:64D192D9B8CE5D32B4C7E1FBA4FECB7FCDC2C4CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,6 +718,8 @@ Trio, for violn, cello & piano in C minor (completed by Maximilian Steinberg)
 magnet:?xt=urn:btih:6CDA99B031C035ABCBA2A74E17156D7DDAD99F61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ VA - Morining Classic, Classical Music Anthology for Waking up Refreshed (2021) 
 ```bash
 magnet:?xt=urn:btih:5817A4480692CCE94B900D674BE98D9A6CBB9273
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Microsoft Office 2013 SP1 – лучший пакет прикладных пр�
 magnet:?xt=urn:btih:E5C9E7941170741D82E1F49B991483EDCC1D2918
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Windows 10 21H2 (19044.1826) x64 (6in1) by Brux [Ru]
 ```bash
 magnet:?xt=urn:btih:93576126B8984FD492817DCD3235E183CC24FE81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Aomei Partition Assistant – мощная программа для работ�
 magnet:?xt=urn:btih:E95741B04F8C8273BB2B7960149564026A363B2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Overlord IV | Повелитель [ТВ-4] [2022, TV, 2 из 12] WEBRip 1080p r
 ```bash
 magnet:?xt=urn:btih:D52F21B46140E69EBE91EBE6244B38E4ABDA3EA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Total Commander является самым мощным и стабильным
 magnet:?xt=urn:btih:C3F858C6429DE9E8C610FBDF975652A22EDB402B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:9B80F2C283684387056974AF8CE37C2326DA8A6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Office 2013-2021 C2R Install + Lite 7.4.3++ Portable by Ratiborus [Multi/Ru]
 magnet:?xt=urn:btih:11B78D541C82B2E20BCFDCCB75243332A3487650
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Bandicam позволяет записать определенную облас
 ```bash
 magnet:?xt=urn:btih:114B59A052C403F3606CAC5E7F41908B77780191
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Total Commander является самым мощным и стабильным
 magnet:?xt=urn:btih:D5E6F85447F959374C2474171FC434B47316DED5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ X-plore File Manager - продвинутый файловый менеджер 
 ```bash
 magnet:?xt=urn:btih:78715055C3CD2C9CBD92E00C945E540A1A6D22A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:E31A615C58EC9D2AC901446889445798AE4CD42B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:E31A615C58EC9D2AC901446889445798AE4CD42B
 ```bash
 magnet:?xt=urn:btih:57AE2D957F4FDFB43FD7C74FDFF43C7D6A82D002
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ SmartOffice Pro - View & Edit MS Office files & PDFs - это не просто 
 magnet:?xt=urn:btih:248B8EA30214C0D973F0F1EC33B7CAEC13CB10A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Microsoft Office 2013 – лучший пакет прикладных прог�
 ```bash
 magnet:?xt=urn:btih:CC7020FC7C915EC55C6276903366A456165E0F80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ CamScanner - Мощное приложение для санирования. О
 magnet:?xt=urn:btih:1D6D58F3075A745353E950D67A67D0EE7B277E13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ TrustViewer - это комплексное решение для удаленн
 magnet:?xt=urn:btih:3841CCA9E14DAE5C362BF0A5CA564F321476EC6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Casse-o-player 3.1.3 Mod by TryRoom [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:CDF50AC49804755FBD3E58A3CCFE538EEB443406
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ V-Ray — мощный инструмент визуализации, нацел
 magnet:?xt=urn:btih:D10C449A02F466832ECF7D5E953C3BAE50642809
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Adobe After Effects — одно из ведущих в отрасли прил�
 ```bash
 magnet:?xt=urn:btih:AE7731A44E6C8F3AD2AD154149CEFA3D6EC1A50E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ AmanVPN - качественное программное решение как 
 magnet:?xt=urn:btih:14022C53A367F2F4EEE2F61FAF6583CC18AE6780
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Inpaint позволяет умно удалять нежелательные э
 ```bash
 magnet:?xt=urn:btih:9D4C38FC01E8CE0BAF7740D420E6741E7CA92FC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ ZEDGE - приложение в котором вы сможете найти н
 magnet:?xt=urn:btih:43785DBE69D271CA25045FA96C14B1A765651D8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:43785DBE69D271CA25045FA96C14B1A765651D8E
 ```bash
 magnet:?xt=urn:btih:DEA27B6D20E4B404964B5CE3B9E85EE81D5B0415
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ MKVToolnix - функциональный набор инструментов д
 magnet:?xt=urn:btih:6960045B96AD92A240F5476ECCA90EB5CC5D7115
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ Machikado Mazoku 2-Choume | The Demon Girl Next Door 2 | Городская дь
 ```bash
 magnet:?xt=urn:btih:279A51E8D99973859E4EF8A4F26A6C7327B5BBD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +677,8 @@ Office 2013-2021 C2R Install + Lite 7.4.2.2 Portable by Ratiborus [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:631408FC53BCB414B5614B2BA6D4BE347DF649B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

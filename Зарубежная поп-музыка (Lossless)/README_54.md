@@ -22,6 +22,8 @@ CD1:
 magnet:?xt=urn:btih:ADB4C6EB22B1A865057A7753AE8AF51BC6532C02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -55,6 +57,8 @@ Melanie C - Northern Star (2000) [FLAC|Lossless]<Pop, Pop Rock, Dance Pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -82,6 +86,8 @@ Ed Sheeran - = (Tour Edition) (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Acousti
 magnet:?xt=urn:btih:F4DD0A8C4F41A367B65B81EF54C1B6EA12252869
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ Sandra Van Nieuwland - Breaking New Ground (2015) [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:0B843E40F23432B5AE673F4FD658837758DD74B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +150,8 @@ Zucchero - Spirito Di Vino (1995) [FLAC|Lossless]<Pop-Rock-Blues>
 magnet:?xt=urn:btih:73DFE1E2FA30B84A72E1670DE6ED2AE485D983FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +178,8 @@ VA - NRJ Total Hits 2015 (2CD)[FLAC|track+.cue]<Pop, Hip Hop, Eurodance, R&B>
 ```bash
 magnet:?xt=urn:btih:CC93371FF8CE22AF4D47DA381A10AD8BD2321444
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +208,8 @@ VA - Bravo Hits 117 (2022) Box Set, 2 CD [FLAC|Lossless|tracks + .cue] <Pop, Roc
 magnet:?xt=urn:btih:4BB034EE4EE275B66C0C8689FC83F3DA88C24FFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +236,8 @@ Carly Rae Jepsen - Dedicated (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:81A31C32E41B8420D2F9391F76D0F637DCD47DD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +266,8 @@ Chromeo - Head Over Heels (2018) [FLAC|Lossless|tracks + .cue] <Dance-pop, Nu-Di
 magnet:?xt=urn:btih:426A8CC6A7F7ED96D0913142314987FCD6E60965
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +294,8 @@ Rhye - Spirit (2019) [FLAC|Lossless|WEB-DL|tracks] <Sophisti-Pop, Indie-Pop, RnB
 ```bash
 magnet:?xt=urn:btih:1B8CB446A815156884A2DEAB54986BAFF16BAE44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +324,8 @@ Sindy - Selfie (2015) [FLAC|tracks+.cue]<Pop, R&B>
 magnet:?xt=urn:btih:88D5B9551B9485AB438D88165624828DFC8EDC72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +353,8 @@ Maarja - First In Line (1997) [FLAC|tracks+.cue]<Pop, Rock>
 magnet:?xt=urn:btih:F021985370D0D7D3E309F71BEF5DC66EE89EFE69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +381,8 @@ Chromeo - She's In Control (2004) [FLAC|Lossless|tracks + .cue] <Electro, Disco>
 ```bash
 magnet:?xt=urn:btih:65322763DE5908AEC8BE5A669CA67D24416B88AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +412,8 @@ CD2 - 00:40:10Треклист CD1:
 magnet:?xt=urn:btih:67EE4ECC94E9F516B6589854DB59DE0D32312DB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +440,8 @@ VA - Pure... Voices (2012) Box Set, 4CD [FLAC|Track+.cue]<Pop, Jazz, Rock>
 ```bash
 magnet:?xt=urn:btih:170007584FD28E72DE54F6D69074A265CC479EC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +470,8 @@ Duran Duran - Thank You (1995) [FLAC|image + .cue]<New Wave, Pop-Rock>
 magnet:?xt=urn:btih:24CADFDB977B89E1DA44B98FA0F34184A79CFD6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +498,8 @@ VA - Top 40 (Movies) (2014) 2CD[FLAC|tracks + .cue]<Pop, Soul, Rock>
 ```bash
 magnet:?xt=urn:btih:914E506DC87F1A2FB8FBE2D378C03FA9BDF06FBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +528,8 @@ Bleu Jeans Bleu - Perfecto (2019) [FLAC|Lossless|tracks + .cue] <French Pop, Cha
 magnet:?xt=urn:btih:C4465FE36F082A01DFBD8B7AAA0BD6BDFAB13732
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +556,8 @@ Gabrielle Aplin - English Rain (2013) [FLAC|Lossless]<Indie Pop, Folk, Country>
 ```bash
 magnet:?xt=urn:btih:AEF0FCE50189521AC91824EAC2F34E9D12850FB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +586,8 @@ VA - Romantic Worlds Vol.2 (2008) [FLAC|image + .cue]<Pop, New Age>
 magnet:?xt=urn:btih:C5F6FA1BB6E3B594D0AEC95DE199834E4E00A5A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +614,8 @@ VA - Romantic Worlds (2008) [FLAC|image + .cue]<Pop, Soul, Electronic>
 ```bash
 magnet:?xt=urn:btih:65476CBD99210A70F39F79C1E2098BE6650C474A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +644,8 @@ Newton Family - The Best Of Newton Family (1989) [FLAC|Lossless|image + .cue] <P
 magnet:?xt=urn:btih:2E723F6E584D8C55609616CBBC5C1C26A9CC36D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +672,8 @@ VA - Radio 538: Hitzone 74 (2015) 2CD [FLAC|image +.cue]<Pop, Dance, Top40>
 ```bash
 magnet:?xt=urn:btih:36056075898FE9B29049169DEB7854480A538610
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -656,6 +702,8 @@ Kim Wilde - Love Blonde - The Best Of (1993) Compilation [FLAC|image + .cue]<Pop
 magnet:?xt=urn:btih:92B5433ECFC5158D24B17124013891B3F38111E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -683,6 +731,8 @@ CD1
 magnet:?xt=urn:btih:F317E36127C418FC4C401BB5899FE67238918C97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -709,6 +759,8 @@ Lara Fabian - Mademoiselle Zhivago (2012) [FLAC|image + .cue]<Pop>
 ```bash
 magnet:?xt=urn:btih:8EF50C558C439ED14D5F0339D44CD4516A0D2644
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

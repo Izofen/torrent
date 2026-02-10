@@ -20,6 +20,8 @@ Gumroad, Pierrick Picaut| Фэнтезийная башня на скале - П
 magnet:?xt=urn:btih:39E0B84788C61343C68BD02CB37642C8A84FA200
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:39E0B84788C61343C68BD02CB37642C8A84FA200
 magnet:?xt=urn:btih:42EEFBBC23A789428A3DAF970069CC537EA28B96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:42EEFBBC23A789428A3DAF970069CC537EA28B96
 ```bash
 magnet:?xt=urn:btih:4346F809587393AFDC4018CC45233EE5F2ECB21D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Jan Urschel | Дизайн Sci-Fi окружения в Blender 2.82 / Sci-Fi En
 magnet:?xt=urn:btih:145F9403DB1DB3F00519CDD80DA7F3DB14E6D83C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Jan Urschel | Погодные эффекты в Blender 2.81 / Weather Effects 
 magnet:?xt=urn:btih:875775B041C544E19B1102716FCA8DA6C2459120
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Jan Urschel | Процедурные городские пейзажи в Blende
 ```bash
 magnet:?xt=urn:btih:62854ECBCFCD7BAC6B721A589285ABDBA758A537
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:62854ECBCFCD7BAC6B721A589285ABDBA758A537
 magnet:?xt=urn:btih:B92BAE19FE992908263F7EEF0B4DD4F869EED394
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:B92BAE19FE992908263F7EEF0B4DD4F869EED394
 magnet:?xt=urn:btih:D18FBACAEDC674176748A8C47C8DFE659A307DB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:D18FBACAEDC674176748A8C47C8DFE659A307DB0
 ```bash
 magnet:?xt=urn:btih:357B42962AE377276C7381C5DA739CBE4A400631
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:357B42962AE377276C7381C5DA739CBE4A400631
 magnet:?xt=urn:btih:FA7E7E3E205F7272565BE9B90904092502AD1F37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:FA7E7E3E205F7272565BE9B90904092502AD1F37
 magnet:?xt=urn:btih:FD4CAE772858192C2013DFB1D52907028AA140E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:FD4CAE772858192C2013DFB1D52907028AA140E9
 ```bash
 magnet:?xt=urn:btih:70C9D067D8873CAD3902364A1EA849DA2624B8C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ Flipped Normals | Creating a Full Character in Zbrush (2022) PCRec [EN]
 magnet:?xt=urn:btih:8A2D9C9722408096B15FD8F7EECD66EF55A2E8CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:8A2D9C9722408096B15FD8F7EECD66EF55A2E8CF
 ```bash
 magnet:?xt=urn:btih:042419BEB580248DF5E2531CFE9F3285498F4C77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:042419BEB580248DF5E2531CFE9F3285498F4C77
 ```bash
 magnet:?xt=urn:btih:EC5C4582D43BF0D403B426DEB7F6296EE62FAA7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:EC5C4582D43BF0D403B426DEB7F6296EE62FAA7F
 magnet:?xt=urn:btih:BEC9543601F1CEF22E2EEC4B731C6207D906E7EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ Sova Film | Дышите свободно. Перкуссионный масса
 ```bash
 magnet:?xt=urn:btih:2D1E42EFDC55706B2D88595977ED94439F615ED5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:2D1E42EFDC55706B2D88595977ED94439F615ED5
 magnet:?xt=urn:btih:E4016D2AC2A6F90C4679BA730B7E976F779E4B00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ Udemy, Elshad Karimov | Java Data Structures and Algorithms Masterclass (2022) W
 magnet:?xt=urn:btih:0C13BE093FD42F36D9491E2F1073B1645D55DA8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ Udemy, Mammoth Interactive, John Bura | The Complete Course To Advance Your Codi
 ```bash
 magnet:?xt=urn:btih:84F744E9E74998045A2E2C9D589E5923ACE8D64C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ magnet:?xt=urn:btih:84F744E9E74998045A2E2C9D589E5923ACE8D64C
 magnet:?xt=urn:btih:ABE8E455281235AF1A2A08398FC2886BC935B27A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ magnet:?xt=urn:btih:ABE8E455281235AF1A2A08398FC2886BC935B27A
 ```bash
 magnet:?xt=urn:btih:2FCCD41263851A4BDCE1AF3D74D934B66484BDB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +612,8 @@ magnet:?xt=urn:btih:2FCCD41263851A4BDCE1AF3D74D934B66484BDB2
 magnet:?xt=urn:btih:EE5B64F449F1353B94A79788A3C3D61020C3D781
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ Jan Urschel | Скалистые ландшафты в Blender 2.82 / Rocky Land
 ```bash
 magnet:?xt=urn:btih:EABD7D6A879E0A7B2AAFFAEF9556982701C53DAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +665,8 @@ magnet:?xt=urn:btih:EABD7D6A879E0A7B2AAFFAEF9556982701C53DAD
 magnet:?xt=urn:btih:334E1BA67C025C5229915347D5640FC25C6E4884
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ Jan Urschel | Процедурные ландшафты в Blender 2.80 / Proced
 ```bash
 magnet:?xt=urn:btih:E86D9492E64299088D362BDC4F210F10C01044C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:98B749BC7AA592EF639502570E63C262D8B8104E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:98B749BC7AA592EF639502570E63C262D8B8104E
 ```bash
 magnet:?xt=urn:btih:D20633EAB9C7216EC8FBEAE7BFCA3C317F224617
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:D20633EAB9C7216EC8FBEAE7BFCA3C317F224617
 magnet:?xt=urn:btih:E650D22971D86FC33B620D6B9573C2999BF3DDF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:E650D22971D86FC33B620D6B9573C2999BF3DDF7
 ```bash
 magnet:?xt=urn:btih:A27FE9D1A6E289D74A491A88DDE730F5E4DAC021
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Mahmoud Parsian | Data Algorithms with Spark: Recipes and Design Patterns for Sc
 magnet:?xt=urn:btih:C0CE7A85128779B47C100A57B74336E0072CDEF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Venkata Keerti Kotaru | Building Offline Applications with Angular (2022) [PDF][
 ```bash
 magnet:?xt=urn:btih:453F9C8F2B0611E3B6C5472684E4789AE9942CD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:453F9C8F2B0611E3B6C5472684E4789AE9942CD4
 magnet:?xt=urn:btih:0941186CED970CD685676DC10488DEC84C4F7863
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:0941186CED970CD685676DC10488DEC84C4F7863
 ```bash
 magnet:?xt=urn:btih:351C8B41929C0CC3014ED929597F34114340FF8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:351C8B41929C0CC3014ED929597F34114340FF8E
 magnet:?xt=urn:btih:6FE9A6540F6F465D461B87DA854DE3B980B9C8F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Nabendu Biswas | Beginning React and Firebase (2021) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:313B09DC5D2CB7282307E1B0BC340FE96658B6DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:313B09DC5D2CB7282307E1B0BC340FE96658B6DE
 magnet:?xt=urn:btih:BB7C02A313235D45E0C200FB27864964F0592E8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ M Rashid Raza | Getting Skilled with Java (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:B4A2F7B9C73B599107AE230944C5AEE956C24D36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Manfred Moser | Trino: The Definitive Guide. 2nd Edition (2022) [PDF][EN]
 magnet:?xt=urn:btih:A6E968376933A3026C823A8ECE64589D13B19CDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:A6E968376933A3026C823A8ECE64589D13B19CDC
 ```bash
 magnet:?xt=urn:btih:C4F9A653313473652D0A569BA402B4FA1A2B967C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Sufyan bin Uzayr | Mastering Unity: A Beginner’s Guide (2022) [PDF] [EN]
 magnet:?xt=urn:btih:674CF7DFEAD1515B3CA0254C798806D590B16E83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Eric Lengyel | Foundations of Game Engine Development, Volume 1: Mathematics, Vo
 ```bash
 magnet:?xt=urn:btih:24C461C10D1B5F5CC225D39289ACA30C7E3B6C66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Spiro Buzharovski | Introducing Blockchain with Java (2022) [PDF][EN]
 magnet:?xt=urn:btih:20F1DCF16EBC7850FC5FAB7CFEA25B2A7364FC15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:20F1DCF16EBC7850FC5FAB7CFEA25B2A7364FC15
 ```bash
 magnet:?xt=urn:btih:BFFF6BC49BF431E46003BE155707DB3152CAA9F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:BFFF6BC49BF431E46003BE155707DB3152CAA9F9
 magnet:?xt=urn:btih:386B9DBE6722DBFBCB8E5A863E443B759A4A86B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ Mike McShaffry, David Graham | Game Coding Complete (2012) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:8791DF0AF36D58B1ACC81DA51BB56181E03A90D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:8791DF0AF36D58B1ACC81DA51BB56181E03A90D9
 magnet:?xt=urn:btih:A50B4376086FD2399BB525A306322FFD5BC8B4F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Raúl Ferrer García | iOS Architecture Patterns: MVP, MVVM, VIPER, and VIP in S
 ```bash
 magnet:?xt=urn:btih:256B61230E8F455B0E8687F4D35A959700650290
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:256B61230E8F455B0E8687F4D35A959700650290
 magnet:?xt=urn:btih:AD5DCCC7EF8A110D8B6D57D6B029D080A2D8FFC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:AD5DCCC7EF8A110D8B6D57D6B029D080A2D8FFC9
 ```bash
 magnet:?xt=urn:btih:0B68A5CEA24316C10D0E789D543E2C70EB496395
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:0B68A5CEA24316C10D0E789D543E2C70EB496395
 magnet:?xt=urn:btih:2ACF96582E65E7BA9A0B0FCE7AAA49FF8BEB69BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:2ACF96582E65E7BA9A0B0FCE7AAA49FF8BEB69BA
 ```bash
 magnet:?xt=urn:btih:E7BA1768AE24F4C1803489EBC74D858F9379D567
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

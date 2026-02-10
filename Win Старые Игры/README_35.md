@@ -19,6 +19,8 @@ Deathtrap Dungeon (1998) [En] (1.0 it fix) License GOG
 magnet:?xt=urn:btih:AD121AF9EEA2F679A51EA1E89FCA5041EEBF1C41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Tomb Raider: The Angel of Darkness / Tomb Raider: Ангел Тьмы (2003) [En
 ```bash
 magnet:?xt=urn:btih:B9FC72ED31098CC2DA532ECA258D1DD510C77C96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Tzar: The Burden of the Crown / Огнем и мечом (2000) [Multi] (1.01) L
 magnet:?xt=urn:btih:17858DC033C1BABEBC7FCA15F4FBA21A62D80FD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Victoria (2003) [En] (2.0.0.1/dlc) License GOG [Complete]
 ```bash
 magnet:?xt=urn:btih:0FC62B34C64B366361151F740CF2E0B2EAEC41F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Lula: The Sexy Empire (1998) [En] (1.0) License GOG
 magnet:?xt=urn:btih:357F26480306AF2F4E4B16B951372D6D54826ECD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Blood Omen: Legacy of Kain (1996) [En] (1.0hf) License GOG
 ```bash
 magnet:?xt=urn:btih:5A833AB2AA4103E096C900ADD438DC6A4D31AEAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Battle Realms (2001) [Multi] (1.0/dlc) License GOG
 magnet:?xt=urn:btih:A1067E018080524C99B578EB992C1B790EDA698F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Shogo: Mobile Armor Division / Ярость: Восстание на Крону�
 ```bash
 magnet:?xt=urn:btih:F2C06CFD0A0F2ECB52ABAECA75D70FF9E085D46E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Overlord (2007) [Multi] (1.4/dlc) License GOG
 magnet:?xt=urn:btih:E2CF94D9F8FC680C702AD8065CC5B560351D0947
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Blade of Darkness это потрясающий своей графикой и �
 ```bash
 magnet:?xt=urn:btih:0113ABFFC7F1BBF779ABF443140699172A25B011
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Trine – динамичная игра с реалистичной физиче
 magnet:?xt=urn:btih:4CC18B8B15EFBB3F100AFF91B0AD77FC34C6C6FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Rally Trophy / Ралли Трофи (2001) [Ru] (1.01) License
 ```bash
 magnet:?xt=urn:btih:93A615E2DD18F732CB966FFB3CBDD3427BB39351
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Castlevania: Lords of Shadow (2013) [Ru] (1.0.2.9upd2) Repack xatab [Ultimate Ed
 magnet:?xt=urn:btih:65942604DB8A1EA85ABE91157E0B3E19126618C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ DX-Ball 2 [En] (L) 1998
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl / S.T.A.L.K.E.R.: Тень Чернобыл�
 magnet:?xt=urn:btih:FF4728F8D18D52629D6B7FD95DC05E3727EEB2F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Legacy of Kain: Blood Omen 2 (2002) [Multi] (1.0.2hf) License GOG
 ```bash
 magnet:?xt=urn:btih:DB908066AA61BCA24FA61E99EF0E3029D67224FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Gothic / Готика (2001) [Multi] (1.08j/1.08k) License PROPHET
 magnet:?xt=urn:btih:63400F18A4A42F1E8056B2446867E1708FCD13E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Ultima 9: Ascension (1999) [En] (1.00) License GOG
 ```bash
 magnet:?xt=urn:btih:D584E9D1C80FEAECA039682813D082DBEE052514
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ X-Com Classic Bundle (1994-2001) [En/Multi] (30.03.2016) License GOG
 magnet:?xt=urn:btih:1C6749218EB0E28B6666C3B4472BD1CD537B6EDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Konung Dilogy / Князь Дилогия (1999-2003) [Ru/En] (1.3/1.05) License
 ```bash
 magnet:?xt=urn:btih:4CE8008778C859E71E23978E557629C08F0C8B10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Baldur's Gate: The Original Saga (1999) [Ru/En] (1.1.4315/1.3.5508/dlc) License 
 magnet:?xt=urn:btih:833E747B6156F61C71AFFFE0B0372EF5419D61B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Biped — это динамичная приключенческая 3D-игра
 ```bash
 magnet:?xt=urn:btih:104E83CBC569D251953A47CF7DD549E21ABA5A76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Ultima™ 4: Quest of the Avatar (1985) [En] (1.0) License GOG
 magnet:?xt=urn:btih:FB967306260C4786D0C5C83F90FA7E11F4F29684
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Battle Engine Aquila (2003) [Multi] (0.9.0) License GOG
 ```bash
 magnet:?xt=urn:btih:99DE5FBFDF7DE1540A22C647258056701C5908F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Imperium Galactica 2: Alliances (2000) [Multi] (1.83) License GOG
 magnet:?xt=urn:btih:E1568098544E09409B9D978B1B18ED9D2C5E899E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Soldier of Fortune: Payback - пришло время снова вспомни�
 ```bash
 magnet:?xt=urn:btih:FE52BD2E14981474C908BF037A3B32DCD8C655EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

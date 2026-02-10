@@ -19,6 +19,8 @@ Next.js - это фреймворк для создания веб-сайтов 
 magnet:?xt=urn:btih:208B3D231AC3215C1A59BA8E10DD542801B64F6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Udemy, John s Curry | GraphQL Mastery: Getting started with and mastering GraphQ
 magnet:?xt=urn:btih:D5BD8AD3F6513E54CDFD287D81A2C78AC8AAE31F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Gumroad, Simon Fuchs | Создание дрона в Blender 2.9 и Substance P
 ```bash
 magnet:?xt=urn:btih:A76910CBA6FBC2155D157EC27A6D2E39026F0A92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:A76910CBA6FBC2155D157EC27A6D2E39026F0A92
 ```bash
 magnet:?xt=urn:btih:733D462D204C0C746470F7E8A05D8E3EB22CE5FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ Podlodka.io | Podlodka Frontend Crew, сезон #1 (2021) PCRec
 magnet:?xt=urn:btih:403AA44DF54DDDF9567484F55222A361E0F5FD76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Udemy, Joseph Delgadillo и др. | The Complete Full-Stack JavaScript Course!  
 ```bash
 magnet:?xt=urn:btih:404C2D7C4532C8A5535C2CC40E7C6E322B2B1DFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ Udemy, Den Lennie и др. | Drone Video Pro 2021 - Shoot Pro Video with Any Dro
 magnet:?xt=urn:btih:966B28AA06D757A996AEC5B0FC64B219E49BFF93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:966B28AA06D757A996AEC5B0FC64B219E49BFF93
 ```bash
 magnet:?xt=urn:btih:EBEC999D8FCFCFC5641052573A411EC30DA5A2C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ Udemy, Tannia Suárez | Advanced English Communication, Confidence, and Mindset 
 ```bash
 magnet:?xt=urn:btih:AEBE7E31BC3AEC04C5DAC2445B204A78A3DDCB42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ Hadoop (основные компоненты, дистрибутивы венд
 magnet:?xt=urn:btih:2D097D45CEFC4859E96A723F8E0D84A516387A07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ Rachel Andrew - CSS Grid(   Читать дальше...   )Жанр: Прогр
 ```bash
 magnet:?xt=urn:btih:0F6EBC55A510DC09E24F181C16068C0A29DFD8DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -306,6 +328,8 @@ Local Database Cache with REST API(   Читать дальше...   )Произ
 magnet:?xt=urn:btih:E67A4046143A9BBC62AFD0FF30F91F8E40A71298
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ Laravel предлагает несколько вариантов аутент�
 ```bash
 magnet:?xt=urn:btih:F007DC5646E59F4AEA6F9150FA073774DCDE10F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +383,8 @@ HTML & Pug
 magnet:?xt=urn:btih:AEE19D94BBEDC68E4EB05B24E5F1649BC522C1D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +410,8 @@ Schoolism, Justin Goby Fields | Введение в ZBrush с Justin Goby Fields
 magnet:?xt=urn:btih:C8ED596B2434EBA3504B9ABC9A3013C04F96FAE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +436,8 @@ Udemy, Robert (Bob) Steele и др. | Бухгалтерский учет - Фи
 ```bash
 magnet:?xt=urn:btih:F4BAB9C7B067CB07561FD09565AA0C80DFB59852
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +466,8 @@ Skillbox, Илья Мещеряков | SQL для анализа данных (
 magnet:?xt=urn:btih:5A95AFA062DBF6539903934CAA2B6F1755C996DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +491,8 @@ Skillbox | Интерьерная фотография (2020) PCRec
 ```bash
 magnet:?xt=urn:btih:A023B5DEB7E066B5F2DCFE3AC124A9D8B220B7E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +519,8 @@ Stepik, Глеб Кушедов и др. | Flask с нуля на практик
 magnet:?xt=urn:btih:A0406E85964AF3E3369F292D90F028615EBD5D72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ Udemy, Lev Gorfel | Java - учимся на практике (2021) PCRec
 ```bash
 magnet:?xt=urn:btih:B982B37C0E3CF1D81FE68A8BCEBC457BC8AA0BF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +572,8 @@ ITVDN, Владислав Шевченко | UX/UI Design мобильных п�
 magnet:?xt=urn:btih:95F89034E66DBB905F5E7A495B14AEAD9F4ABFE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +598,8 @@ ITDVN, Цыганков Никита | ASP.NET Core Web API. Практичес�
 ```bash
 magnet:?xt=urn:btih:F557E885605621120E63A316066C6B80A4217459
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +626,8 @@ ITVDN, Анна Маргина | Основы использования Git (20
 magnet:?xt=urn:btih:01D416D4D9FF7BC8EFEC870D0853FCA703FFC64A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +651,8 @@ Udemy, Kalyani Vallath | NET ENGLISH COMPLETE COURSE  (2020) PCRec [En / En Sub]
 ```bash
 magnet:?xt=urn:btih:2E7545D8B96785AA8C6DC5089015DD1DB9F0AE11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +679,8 @@ ITVDN, Лазорык Михаил | Django Базовый (2021) PCRec
 magnet:?xt=urn:btih:31D0EE41699D77CBE0D271EDA6FD462F2B85972C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +704,8 @@ ITVDN, Евгений Кушвид  | Ruby on Rails (2021) PCRec
 ```bash
 magnet:?xt=urn:btih:8E4B5E438672D30147EE19B1B74A07F99C8F74FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

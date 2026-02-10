@@ -28,6 +28,8 @@ Monster Mike Welch - Axe To Grind (1997) [FLAC|Lossless]<Modern Electric Blues, 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ Monster Mike Welch - Axe To Grind (1997) [FLAC|Lossless]<Modern Electric Blues, 
 magnet:?xt=urn:btih:9B3CBB267539E52B4E0CFDD82173918874BCA381
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ Sleek - Несколько Капель (премьера) (2012) WEBRip [H.264]
 ```bash
 magnet:?xt=urn:btih:A4D5E48E5FF807860CBB962107FB900C0F63B617
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -107,6 +113,8 @@ Gary Smulyan - Smul's Paradise (2012) [FLAC|Lossless]<Post-Bop, Mainstream Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -137,6 +145,8 @@ VA - Liquid Valentine's LP (2012) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:5E7912A41521593D3CC6F54E8421E24AB7C4C6BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +181,8 @@ VA - Самый, Самый! Русский (2012) [MP3|256 kbps]<Pop | Dance>
 magnet:?xt=urn:btih:BDF93365B1D159B2CAFC6813960642C857068B2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +216,8 @@ Abstract Ballet - MK Ultra (2012) [MP3|320 кб/с]<Dub Techno>
 magnet:?xt=urn:btih:CF293224E304FD26206D6DE8C0232F7DBFA9E38C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +241,8 @@ SeaMonkey — проект, основанный на добрых традиц�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +277,8 @@ VA - Горячий Автохит (2012) [MP3|256 kbps]<Club | Dance>
 magnet:?xt=urn:btih:CCF1FF0A5AA5D39CD9D4F15B6D9F1C432DD6AA97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +302,8 @@ magnet:?xt=urn:btih:CCF1FF0A5AA5D39CD9D4F15B6D9F1C432DD6AA97
 ```bash
 magnet:?xt=urn:btih:AAEAB4C48655FC6A67BFBECDABCB24C4D3D7DFCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +332,8 @@ Unisonic - Ignition [MCD] (2012) [FLAC|Lossless]<Power Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +360,8 @@ Unisonic - Ignition [MCD] (2012) [FLAC|Lossless]<Power Metal>
 magnet:?xt=urn:btih:C4036EECFECF2452AEE52081AFCB5C8D0FEFF9AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +385,8 @@ magnet:?xt=urn:btih:C4036EECFECF2452AEE52081AFCB5C8D0FEFF9AF
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +416,8 @@ magnet:?xt=urn:btih:C4036EECFECF2452AEE52081AFCB5C8D0FEFF9AF
 magnet:?xt=urn:btih:C4823FDA1FAFDF95A263606DCEBB68B1FC1AC98C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +441,8 @@ Media Player Classic HomeCinema - удобный во всех планах му
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +472,8 @@ Anodyne - We Decode The Future (EP) (2012) [FLAC|Lossless]<Electronic, IDM, Ambi
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +497,8 @@ Anodyne - We Decode The Future (EP) (2012) [FLAC|Lossless]<Electronic, IDM, Ambi
 ```bash
 magnet:?xt=urn:btih:73C5A3F90A7F5AF245D92B0A5473092FB9BEA697
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +533,8 @@ VA - Дискотека Русские Звезды (2012) [MP3|128 kbps]<Pop>
 magnet:?xt=urn:btih:885D505FAC580E02DB542CEA9EDDA405B3F47195
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +558,8 @@ Saline OS 1.6 [i386 + x86_64] (2xDVD)
 ```bash
 magnet:?xt=urn:btih:EB66D97D0040A159EC3474813671A3698170B243
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +589,8 @@ magnet:?xt=urn:btih:EB66D97D0040A159EC3474813671A3698170B243
 magnet:?xt=urn:btih:F159F0EEFEE7EAF130A91F9B23FAEC0B53226516
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +619,8 @@ magnet:?xt=urn:btih:F159F0EEFEE7EAF130A91F9B23FAEC0B53226516
 magnet:?xt=urn:btih:878E1794023CC17B55AD191E36F28AAD06DBD225
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +644,8 @@ magnet:?xt=urn:btih:878E1794023CC17B55AD191E36F28AAD06DBD225
 ```bash
 magnet:?xt=urn:btih:9858F2E8D81C12BD0132EEC7C525D0FA5B934F64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +680,8 @@ VA - XXXL Блатнячок радио Шансон 3 (2012) [MP3|256 kbps]<Ш�
 magnet:?xt=urn:btih:2A68AA2D2D0E1DAF272FF8024FEC0054282C02D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +709,8 @@ magnet:?xt=urn:btih:2A68AA2D2D0E1DAF272FF8024FEC0054282C02D0
 ```bash
 magnet:?xt=urn:btih:6874B086DDE83B1EB67368CDA3C26F34F77B002F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -692,6 +740,8 @@ magnet:?xt=urn:btih:6874B086DDE83B1EB67368CDA3C26F34F77B002F
 magnet:?xt=urn:btih:F77EEF73A9399DE19F4E546C7B14F313A71893C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -715,6 +765,8 @@ magnet:?xt=urn:btih:F77EEF73A9399DE19F4E546C7B14F313A71893C0
 ```bash
 magnet:?xt=urn:btih:111E4ADE6A8F5F7E9BC06545EBCFCC878BA495E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

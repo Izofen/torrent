@@ -19,6 +19,8 @@ Grim Guardians: Demon Purge (2023) [Multi] (1.0) Scene TiNYiSO
 magnet:?xt=urn:btih:EC7120948EB14037DB14B22050314D628AB50068
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:EC7120948EB14037DB14B22050314D628AB50068
 magnet:?xt=urn:btih:4E201C3C4E13B29BAA15674CFBF2AE479EDBC38E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:4E201C3C4E13B29BAA15674CFBF2AE479EDBC38E
 ```bash
 magnet:?xt=urn:btih:F84E601738DD3AE871D1DF904BB6FD22C40FD984
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Toto Cutugno - Maestro Collection (2012) [FLAC|Lossless|image + .cue] <Pop>
 magnet:?xt=urn:btih:18A0B8BC903C0C980318241D24947E7578764D45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Remorse: The List представляет собой мрачное прикл�
 ```bash
 magnet:?xt=urn:btih:263FE8C8B76D6A58A1A3B9AEF59C73A7AB1B379A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:263FE8C8B76D6A58A1A3B9AEF59C73A7AB1B379A
 magnet:?xt=urn:btih:1A89C8320329F1978349A19D3D44EC75AE7590C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:1A89C8320329F1978349A19D3D44EC75AE7590C2
 magnet:?xt=urn:btih:70A43F6EB0231182EDD102770A9248E84E1A25BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ TROUBLESHOOTER: Abandoned Children — это первый сезон пошаг
 ```bash
 magnet:?xt=urn:btih:58144E7313C0E9B178A172E4F3E4D7C54701CC21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:58144E7313C0E9B178A172E4F3E4D7C54701CC21
 ```bash
 magnet:?xt=urn:btih:B81B24ABBB82FD1CCE1AAB70296DA54882D9EE51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ HTML Academy | Протоколы и сети: веб-безопасность  
 magnet:?xt=urn:btih:F42B966006B76C97D277A2ECBA2F92C426852681
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:F42B966006B76C97D277A2ECBA2F92C426852681
 magnet:?xt=urn:btih:DDCFB30A43DC800E5E7232CC6E044357907983E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ ZTM Academy, Luis Ramirez Jr | Unity Bootcamp: 3D Game Development (2023) WEB-DL
 magnet:?xt=urn:btih:AFE5FFCEF3F80EC58F6416BB6B3923E444E2E46C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:AFE5FFCEF3F80EC58F6416BB6B3923E444E2E46C
 magnet:?xt=urn:btih:8367525FDBD6E78C5C946B53D4367F222E7E749E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:8367525FDBD6E78C5C946B53D4367F222E7E749E
 magnet:?xt=urn:btih:F917D04CD67F0D2975658A99CA0EB6849D1DB99A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ Fallout 4 - это продолжение знаменитой постапок�
 ```bash
 magnet:?xt=urn:btih:27D65C4BF4B8BCE9F3AA9B91D0A6D6F544E101CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ Podlodka Crew | Java Crew #1 (2022) WEB-DL [RU]
 magnet:?xt=urn:btih:7BF7F4A59FE5DC7D43BFD4B4187508CDD03446C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:7BF7F4A59FE5DC7D43BFD4B4187508CDD03446C6
 ```bash
 magnet:?xt=urn:btih:F3740C4EC2B764A1F1FD885C860572CDBD8127E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:F3740C4EC2B764A1F1FD885C860572CDBD8127E2
 magnet:?xt=urn:btih:3C5F019CEEE428577088BCC2006C166D383DFBB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ magnet:?xt=urn:btih:3C5F019CEEE428577088BCC2006C166D383DFBB5
 ```bash
 magnet:?xt=urn:btih:DEEB17A354AB46865324102477E2309943E8D385
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +535,8 @@ Podlodka Crew | Backend Crew #4 (2022) WEB-DL [RU]
 magnet:?xt=urn:btih:A233F63C0B9777B8B9585FCD9FFD26C0ADC752E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ magnet:?xt=urn:btih:A233F63C0B9777B8B9585FCD9FFD26C0ADC752E7
 ```bash
 magnet:?xt=urn:btih:7BC370E190B0446C9C964DDD933AFAA119063969
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +587,8 @@ Brad Traversy | Modern JavaScript From The Beginning 2.0 (2023) WEB-DL [EN]
 magnet:?xt=urn:btih:467C1A6CF71047620DA776DEEF9B83C41E8F890F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ magnet:?xt=urn:btih:467C1A6CF71047620DA776DEEF9B83C41E8F890F
 ```bash
 magnet:?xt=urn:btih:ADF098A90CCA022F0A9A7301FAAB7DFC6F3906D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +639,8 @@ magnet:?xt=urn:btih:ADF098A90CCA022F0A9A7301FAAB7DFC6F3906D3
 magnet:?xt=urn:btih:4D5D2AA0109194B4FD42206A7CE6729D60B9E9B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +665,8 @@ Sherlock Holmes and The Hound of the Baskervilles / Шерлок Холмс и �
 magnet:?xt=urn:btih:95D3B8DEB7B3A7C57E01199481B35038EC02E1D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ magnet:?xt=urn:btih:95D3B8DEB7B3A7C57E01199481B35038EC02E1D7
 ```bash
 magnet:?xt=urn:btih:E0B08B7BB0E2787E9285D17BCA4F095B250720EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

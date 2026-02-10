@@ -1,3 +1,29 @@
+###  Публикация: 320340   (759520) от 08.04.2011
+
+Плюмбум, или Опасная игра (1986) DVDRip (Реставрация КП)
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Плюмбум — в переводе с латыни свинец — кличка пятнадцатилетнего Руслана Чутко, решившего стать `санитаром общества`. Однако, увлекшись ролью борца со злом, он переступает границы дозволенного в детской игре, безжалостно вторгается в судьбы людей.Жанр: ДрамаРежиссер: Вадим АбдрашитовАктеры: Антон Андросов, Елена Дмитриева, Елена Яковлева, Зоя Лирова, Александр Пашутин, Александр Феклистов, Владимир Стеклов, Алексей Зайцев, Лариса Шинова, Сергей СеровПродолжительность: 01:31:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94CA317C0C036B4D55E4BDBBF0092F35692D69C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280422   (760313) от 03.02.2019
 
 Гамлет Щигровского уезда (1975) DVDRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:E75F9A186EF4E820668F7EC67287A56B9925A79D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:E75F9A186EF4E820668F7EC67287A56B9925A79D
 magnet:?xt=urn:btih:8518D0B483F7D81187425A3244F144822BCFB293
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:8518D0B483F7D81187425A3244F144822BCFB293
 ```bash
 magnet:?xt=urn:btih:CB5EE3A3E6D57BF3F55CEF33E713A1A70A7FE4AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:CB5EE3A3E6D57BF3F55CEF33E713A1A70A7FE4AD
 magnet:?xt=urn:btih:6C1B962DBA5B09BAD8ACBD1F66780C5E4F20423B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:6C1B962DBA5B09BAD8ACBD1F66780C5E4F20423B
 ```bash
 magnet:?xt=urn:btih:7F0DBD6BFEB14CECD0AE9D3782407C176E62756D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:7F0DBD6BFEB14CECD0AE9D3782407C176E62756D
 magnet:?xt=urn:btih:0A8D0E21CDBFBBFEC9D7664712D3EF9EC926C7B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:0A8D0E21CDBFBBFEC9D7664712D3EF9EC926C7B5
 ```bash
 magnet:?xt=urn:btih:95DB94E228C4D783C6AF563EAACA1C820959B795
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:95DB94E228C4D783C6AF563EAACA1C820959B795
 magnet:?xt=urn:btih:E9DEA96033F1F257738967248E2D3DC4D8734A52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:E9DEA96033F1F257738967248E2D3DC4D8734A52
 magnet:?xt=urn:btih:DA91D1859FA3B9ECD7E22E12E36DA82163D7E03B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +278,8 @@ magnet:?xt=urn:btih:DA91D1859FA3B9ECD7E22E12E36DA82163D7E03B
 ```bash
 magnet:?xt=urn:btih:F71FBAD8F7ADCA5C1863FE85D304EEA58DFB710F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:F71FBAD8F7ADCA5C1863FE85D304EEA58DFB710F
 magnet:?xt=urn:btih:4B62656F01650C5CA5BC6384EF6ABE3EBE74D59D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:4B62656F01650C5CA5BC6384EF6ABE3EBE74D59D
 magnet:?xt=urn:btih:E46493AEC89D9F7872DDB18BF5714A7F0E9CD6FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:E46493AEC89D9F7872DDB18BF5714A7F0E9CD6FF
 ```bash
 magnet:?xt=urn:btih:AB85FE3E79FA03C5E5DBAB0FFBB247CF03DB140C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:AB85FE3E79FA03C5E5DBAB0FFBB247CF03DB140C
 magnet:?xt=urn:btih:819D89D40E7E4BB803EC3FD6482CD33656DC32D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:819D89D40E7E4BB803EC3FD6482CD33656DC32D6
 magnet:?xt=urn:btih:6E8A47A3760D16F697A6F253A5D39F83CED508C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:6E8A47A3760D16F697A6F253A5D39F83CED508C2
 ```bash
 magnet:?xt=urn:btih:8D3D6317BEE572B440B4344EAA03A63EDE519DDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:8D3D6317BEE572B440B4344EAA03A63EDE519DDD
 magnet:?xt=urn:btih:ECA8D66A896D5DD4C4D7E213ED2887615FC7FE7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:ECA8D66A896D5DD4C4D7E213ED2887615FC7FE7F
 ```bash
 magnet:?xt=urn:btih:06C819D57649F4B907F6A615815ACF6E5D38AB44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:06C819D57649F4B907F6A615815ACF6E5D38AB44
 magnet:?xt=urn:btih:4F07F122790FED300C3B4D0945E4F0BE54EDDA0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:4F07F122790FED300C3B4D0945E4F0BE54EDDA0A
 magnet:?xt=urn:btih:048E71AD5217983188D7F8F3BB09D0A172BC707E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:048E71AD5217983188D7F8F3BB09D0A172BC707E
 ```bash
 magnet:?xt=urn:btih:EFCBF3D74EE938F6ADA8F3F76F62C50CD07B4D59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +596,8 @@ magnet:?xt=urn:btih:EFCBF3D74EE938F6ADA8F3F76F62C50CD07B4D59
 magnet:?xt=urn:btih:223EADB2343C82EDD526A1F735A95D00323D203C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +621,8 @@ magnet:?xt=urn:btih:223EADB2343C82EDD526A1F735A95D00323D203C
 ```bash
 magnet:?xt=urn:btih:B7E8F05A72FE88D8949040FB184965D0070361BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:B7E8F05A72FE88D8949040FB184965D0070361BF
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,30 +674,7 @@ magnet:?xt=urn:btih:B7E8F05A72FE88D8949040FB184965D0070361BF
 magnet:?xt=urn:btih:10942B19F8CF4D1F0FA5638669579A00073F4D99
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 779547   (771104) от 22.04.2014
-
-Из жизни Федора Кузькина (2 серии) (1989) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771104.jpg" />
-</div>
-
-
-###  Подробнее
-
-По повести Бориса Можаева "Живой".
-Федор Кузькин - крестьянин. Он один из тех, чья молодость пришлась на самые тяжелые годы - тридцатые и сороковые. И вот, старый Кузькин решает стать если не фермером, то уж во всяком случае - единоличником. Оказывается, что его настоящие беды еще впереди.Жанр: Драма, экранизацияРежиссер: Станислав РостоцкийАктеры: Александр Суснин, Фёдор Валиков, Владимир Сергиенко, Александр Лебедев, Юрий Сорокин, Сергей Быстрицкий, Николай Погодин, Александр Вдовин, Юрий Потёмкин, Виктор Мамаев, Татьяна Чернопятова, Александр Кудинов, Павел Винник, Михаил Кокшенов, Владимир Трещалов, Светлана Харитонова, Татьяна Бедова, Юрий Чернов, Валентина Ананьина, Михаил Жигалов, Пётр ЛюбешкинПродолжительность: 2 х ~ 01:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E922F722955A4C0B763AFB41EA0EEA7C57FB01B5
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

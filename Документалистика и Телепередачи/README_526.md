@@ -1,3 +1,30 @@
+###  Публикация: 1023154   (726703) от 04.06.2016
+
+Руссо туристо (2016.06.04) SATRip (выпуск 22. Гонконг)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726703.jpg" />
+</div>
+
+
+###  Подробнее
+
+Правда ли, что нашего человека без труда можно вычислить за границей?
+Новое тревел-шоу СТС «Руссо туристо» объявляет войну туристическим стереотипам, развенчивает мифы об отдыхе за границей и предлагает только оригинальные маршруты путешествий. Ведущие проводят выходные в другой стране, чтобы проверить, так ли хороши те местные красоты, о которых «кричат» все сайты (   Читать дальше...   )Телекомпания: СТСЖанр: ТВ-ШоуРежиссер: Артем ОськинПродолжительность: 00:23:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5A0F919616E00A29278EE20E6940AD00EB3A398
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023296   (726707) от 04.06.2016
 
 Салтыков-Щедринъ Шоу (04.06.2016) SATRip
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:AE7E37E90AF919A7DD4181F6B4F97ACC162AD713
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:AE7E37E90AF919A7DD4181F6B4F97ACC162AD713
 magnet:?xt=urn:btih:BFF9C8C392B48B058809442CEDB68815EFEDF950
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +97,8 @@ magnet:?xt=urn:btih:BFF9C8C392B48B058809442CEDB68815EFEDF950
 ```bash
 magnet:?xt=urn:btih:B8029BB8D59F48C63CF4A407B92E714E5366FA3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +124,8 @@ magnet:?xt=urn:btih:B8029BB8D59F48C63CF4A407B92E714E5366FA3C
 magnet:?xt=urn:btih:BC8C3BEF2DFBD0EF5251109809BBCFBA38777910
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +150,8 @@ magnet:?xt=urn:btih:BC8C3BEF2DFBD0EF5251109809BBCFBA38777910
 magnet:?xt=urn:btih:523422A3F7466366D92E65EB7EA7013B7AFE74C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +175,8 @@ magnet:?xt=urn:btih:523422A3F7466366D92E65EB7EA7013B7AFE74C0
 ```bash
 magnet:?xt=urn:btih:3E91E625701967CB3FF5A497EAEBFEF97C2EF880
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +203,8 @@ magnet:?xt=urn:btih:3E91E625701967CB3FF5A497EAEBFEF97C2EF880
 magnet:?xt=urn:btih:A90F640B8BF957DBDE792AD6BED6D752296208B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +230,8 @@ magnet:?xt=urn:btih:A90F640B8BF957DBDE792AD6BED6D752296208B9
 magnet:?xt=urn:btih:189C3B84E3E4DC331CEF06436EB3A99BF5645AB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +255,8 @@ magnet:?xt=urn:btih:189C3B84E3E4DC331CEF06436EB3A99BF5645AB2
 ```bash
 magnet:?xt=urn:btih:6EC32A241130FBA09C6F48261FA2549D47186119
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +282,8 @@ magnet:?xt=urn:btih:6EC32A241130FBA09C6F48261FA2549D47186119
 magnet:?xt=urn:btih:126AFBEC168D55288E53CC56D9B479D637CEACAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +307,8 @@ magnet:?xt=urn:btih:126AFBEC168D55288E53CC56D9B479D637CEACAE
 ```bash
 magnet:?xt=urn:btih:ECACEDB13E8D5E6CF79AD3FF5EDE6A9ED50A9C28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +334,8 @@ magnet:?xt=urn:btih:ECACEDB13E8D5E6CF79AD3FF5EDE6A9ED50A9C28
 magnet:?xt=urn:btih:4CE24147FBEA08C82ADC277A67E3F67A1ABB2F75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +359,8 @@ magnet:?xt=urn:btih:4CE24147FBEA08C82ADC277A67E3F67A1ABB2F75
 ```bash
 magnet:?xt=urn:btih:665E4FFEA4BBA907476D808635356CAF75D07ACF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +386,8 @@ magnet:?xt=urn:btih:665E4FFEA4BBA907476D808635356CAF75D07ACF
 magnet:?xt=urn:btih:F17F930F1C0A3498CD4F5F91C9BD921D57B243E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +411,8 @@ magnet:?xt=urn:btih:F17F930F1C0A3498CD4F5F91C9BD921D57B243E6
 ```bash
 magnet:?xt=urn:btih:44BDD199D2B0D847195B146D3D3E2B09B18E3BD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +438,8 @@ magnet:?xt=urn:btih:44BDD199D2B0D847195B146D3D3E2B09B18E3BD1
 magnet:?xt=urn:btih:4AE205975979EE4E56D024B899F818857554C50E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +463,8 @@ magnet:?xt=urn:btih:4AE205975979EE4E56D024B899F818857554C50E
 ```bash
 magnet:?xt=urn:btih:BCC9F3C5C728E31CB76A341873B4F21026D52274
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +490,8 @@ magnet:?xt=urn:btih:BCC9F3C5C728E31CB76A341873B4F21026D52274
 magnet:?xt=urn:btih:A284639D6A2CBB5A3EEEADF87D40E7BF93DEC660
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +515,8 @@ magnet:?xt=urn:btih:A284639D6A2CBB5A3EEEADF87D40E7BF93DEC660
 ```bash
 magnet:?xt=urn:btih:009FD03D53B1D04AB3647D5CBA57281DBF26EF83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +542,8 @@ magnet:?xt=urn:btih:009FD03D53B1D04AB3647D5CBA57281DBF26EF83
 magnet:?xt=urn:btih:94D2D86EEEAEDAA56BCAC19373DB854B3E97CA6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +567,8 @@ magnet:?xt=urn:btih:94D2D86EEEAEDAA56BCAC19373DB854B3E97CA6C
 ```bash
 magnet:?xt=urn:btih:2112FC404B69F547B209BB5C26ACF2F5EED45750
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +594,8 @@ magnet:?xt=urn:btih:2112FC404B69F547B209BB5C26ACF2F5EED45750
 magnet:?xt=urn:btih:F42F5AEEEE93639D11D31DE50BEC0A7744A69D87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +619,8 @@ magnet:?xt=urn:btih:F42F5AEEEE93639D11D31DE50BEC0A7744A69D87
 ```bash
 magnet:?xt=urn:btih:A7970B36B7A1AFECB094517EEEDE5E3106B1261D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +646,8 @@ magnet:?xt=urn:btih:A7970B36B7A1AFECB094517EEEDE5E3106B1261D
 magnet:?xt=urn:btih:B0E78E8EF215C33560C664531A7B858E97EAC009
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,29 +672,7 @@ magnet:?xt=urn:btih:B0E78E8EF215C33560C664531A7B858E97EAC009
 magnet:?xt=urn:btih:39D58129F0AF9C2378A5AD3898970F45C5DEC82B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022671   (728596) от 02.06.2016
-
-Дневник адмирала Головко (2008) SATRip
-
->>Документалистика и Телепередачи
->>Флот
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он был один из немногих, кто ослушался Сталина и ударил по немецким самолетам-разведчикам за 6 дней до начала войны, и если бы Гитлер не напал на СССР, Головко был бы расстрелян. В годы репрессий страх перед органами НКВД был огромен, но Головко, не испугавшись Берии, освободил заключенных, дал им оружие и послал на передовую. Он стал командующим северным флотом (   Читать дальше...   )Телекомпания: Россия, ООО "Фарватер фильм"Жанр: Документально-постановочный, биография, историяПродолжительность: 00:38:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E29755850493A561FCFEB0B753B84C85DAA1AB3
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

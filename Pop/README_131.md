@@ -22,6 +22,8 @@ Workout Music Tv - Best Happy Pop Hits 2020 For Jogging [MP3|320 Kbps] <Pop, Dan
 magnet:?xt=urn:btih:3F8D5C274CF2E4C2A8440F9ABA55CAAD4EC27C79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Незабытые танго (2010) [MP3|320 Kbps] <Эстрада, сов
 ```bash
 magnet:?xt=urn:btih:50FAD3551006A55812596BE523F84410B9C04914
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:50FAD3551006A55812596BE523F84410B9C04914
 magnet:?xt=urn:btih:450350F774961EC792416442C5728E0BA431FDF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Blue System - Magic Symphonies (The Very Best Of Blue System) (2009) 3CD, BoxSet
 ```bash
 magnet:?xt=urn:btih:01C395F5AACF544DD7C6093B410189784C503E17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:01C395F5AACF544DD7C6093B410189784C503E17
 magnet:?xt=urn:btih:5BDFDC78EF03DDA9F33AFE1A9A994473898F7EDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:5BDFDC78EF03DDA9F33AFE1A9A994473898F7EDA
 ```bash
 magnet:?xt=urn:btih:69E7391FBE20D79083EA4C203ACBD31548F973EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Danny Fervent - Beautiful Life (2019) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:CB3DE3E548E3AD17599AB3210484C4FDA33BE20D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:CB3DE3E548E3AD17599AB3210484C4FDA33BE20D
 ```bash
 magnet:?xt=urn:btih:B23097A0C2D2C17118462215AA91595302D8BDF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ magnet:?xt=urn:btih:B23097A0C2D2C17118462215AA91595302D8BDF8
 magnet:?xt=urn:btih:25834F3B166B5F461DD41D94EC80CFA7CCCD1735
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ magnet:?xt=urn:btih:25834F3B166B5F461DD41D94EC80CFA7CCCD1735
 ```bash
 magnet:?xt=urn:btih:CEA375B8FDA7E2F9AF0C86C8FAC79F0F1E4FBC9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ magnet:?xt=urn:btih:CEA375B8FDA7E2F9AF0C86C8FAC79F0F1E4FBC9D
 magnet:?xt=urn:btih:06FD8F336A06CDB0363514A16F09525EE6D5B4BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ CD01:
 ```bash
 magnet:?xt=urn:btih:3EF55D5D879DE6ED5772E6D12DD0F54CBFF21D9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - A Playlist of Love Songs (2018) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:489F8DD71DC90ABD3D1E4E533B16485F6CF2215C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Gloria Estefan - Cuts Both Ways (1989) [FLAC|tracks+.cue]<Latin, Cubano, Synth-p
 ```bash
 magnet:?xt=urn:btih:3458215BF5695D68DF84D844BBB5384C3CB8D83A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +434,8 @@ PUPO - 1996 (1996) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:A974FC78418F4FB09F5C387C496796048ECF36CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +462,8 @@ Ane Brun - After The Great Storm (2020) [FLAC|Lossless|WEB-DL|tracks] <Art-Pop, 
 ```bash
 magnet:?xt=urn:btih:6C2551FB90695BCBE52DDD2B56303E6E3133DE28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +492,8 @@ magnet:?xt=urn:btih:6C2551FB90695BCBE52DDD2B56303E6E3133DE28
 magnet:?xt=urn:btih:597302675C068D453608162C419E5AC0FC7549C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +521,8 @@ Amy Sky, Olivia Newton-John, Beth Nielsen Chapman - Liv On (2016) [FLAC|Lossless
 magnet:?xt=urn:btih:65A48535C1D809C629D670A38687238BB7FAB439
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +548,8 @@ The Hardkiss - 2 альбома, 1ЕР, 21 сингл (2011-2017) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:A5FE08BA5FB36B38DFA6B2A0EFF3A4FF7613527E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +578,8 @@ VA - Future Disco Vol.10 - Complete. Repeat. A Disco Drama (2016) [MP3|320 Kbps]
 magnet:?xt=urn:btih:906D8BF4FC4258FC81BF7303B0C976345F8DCD3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +606,8 @@ Rumer (Sarah Joyce) - This Girl's In Love: a Bacharach and David Songbook (2016)
 ```bash
 magnet:?xt=urn:btih:7C1DBCF3D47F682462265DFC9B57FEFE330F5A4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +636,8 @@ The Millionaires - The Millionaires (1980) LP [MP3|320 Kbps] <Electronic, Disco,
 magnet:?xt=urn:btih:9316EAD580FFA2955EA99F44C196EDF5623B7D98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +665,8 @@ magnet:?xt=urn:btih:9316EAD580FFA2955EA99F44C196EDF5623B7D98
 magnet:?xt=urn:btih:8C31FBCF8F198C0E4D1C72D13A81E7C926D5B55C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +693,8 @@ magnet:?xt=urn:btih:8C31FBCF8F198C0E4D1C72D13A81E7C926D5B55C
 ```bash
 magnet:?xt=urn:btih:8678C5B3166DAC7F68311A1E0409D6AB03D11A76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -681,6 +729,8 @@ Mylène Farmer - Monkey Me (2012) [MP3|320 kbps] <Pop>
 magnet:?xt=urn:btih:0D90B6361795CEBCA7BF32CC291296BE6E74E7A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -706,6 +756,8 @@ VERA - Полускромная; Слабая; Название альбома (
 ```bash
 magnet:?xt=urn:btih:372188506D84981A6DA6C8E906A044D6CCEF3907
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

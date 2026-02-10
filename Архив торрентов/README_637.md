@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:9E8C76C5B79E1DB5718DB36226C906A6F46851CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:9E8C76C5B79E1DB5718DB36226C906A6F46851CD
 magnet:?xt=urn:btih:C9AEB544167FA17B9E701BF3B621B300FDA85D61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ DVJ Bazuka - Sexy Party (Uncensored) (2011) WEBRip 720p (H264)
 ```bash
 magnet:?xt=urn:btih:9A467307C022B467C3290356286BEB00E3DB61C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:9A467307C022B467C3290356286BEB00E3DB61C2
 magnet:?xt=urn:btih:B479EE6995BD2666D8046E47D5CA207BD808DF51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ DVJ Bazuka - Ass Up (Uncensored) (2011) DVDRip
 ```bash
 magnet:?xt=urn:btih:5D24F1DC97EFFF005081F9C0064353AF0B6F26B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ DVJ Bazuka - Sexy Disco (Uncensored) (2011) DVDRip
 magnet:?xt=urn:btih:DCF6B083AE61C11BD5CEA5B464865F7A3E578D75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:DCF6B083AE61C11BD5CEA5B464865F7A3E578D75
 ```bash
 magnet:?xt=urn:btih:FFDC1A09DC864EBFC7C0F8AF0C577912C082D26E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ VA - Танцевальная империя 2 50/50 (2012) [MP3|160-320 kbps]<P
 magnet:?xt=urn:btih:F4EDC48667628D35BA0D1A3C3088C1DDC7886990
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:F4EDC48667628D35BA0D1A3C3088C1DDC7886990
 ```bash
 magnet:?xt=urn:btih:3DB60936C4672131C26B67CCE6DB0A1C04C76FC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ Hollow - Between The Lines (2012) [MP3|320 kbps]<Heavy Metal/Groove>
 magnet:?xt=urn:btih:B6D3BB6065F030B9CE7544B57644DF2DEAD209A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +299,8 @@ magnet:?xt=urn:btih:B6D3BB6065F030B9CE7544B57644DF2DEAD209A6
 ```bash
 magnet:?xt=urn:btih:7D872D12F355E62C0195C2610228A3523CAC18D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +335,8 @@ Maudlin Of The Well - 2 альбома (1999-2001) [FLAC|Lossless]<Avant-Garde P
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +360,8 @@ Maudlin Of The Well - 2 альбома (1999-2001) [FLAC|Lossless]<Avant-Garde P
 ```bash
 magnet:?xt=urn:btih:C1BA295D116BF681DCC34D010A2FE4D11111C1D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +396,8 @@ Ascoil Sun - Emergence (2012) [MP3|192-320 kbps]<Psychedelic / Psybient, Dub, Do
 magnet:?xt=urn:btih:AFC0A5A6BDDB756074F5114C62366A801A6201EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +426,8 @@ magnet:?xt=urn:btih:AFC0A5A6BDDB756074F5114C62366A801A6201EA
 magnet:?xt=urn:btih:7300DA10070401B608D2E6AA620F92916511339D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +451,8 @@ magnet:?xt=urn:btih:7300DA10070401B608D2E6AA620F92916511339D
 ```bash
 magnet:?xt=urn:btih:AED44119BEEE92877B8465A4375444E17A71145D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +478,8 @@ magnet:?xt=urn:btih:AED44119BEEE92877B8465A4375444E17A71145D
 magnet:?xt=urn:btih:661281F19D2E3F509E9076776B5ECDB8E39453D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +503,8 @@ magnet:?xt=urn:btih:661281F19D2E3F509E9076776B5ECDB8E39453D7
 ```bash
 magnet:?xt=urn:btih:19A417948831AF45DD377629E515FF5620E5DCE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +534,8 @@ magnet:?xt=urn:btih:19A417948831AF45DD377629E515FF5620E5DCE2
 magnet:?xt=urn:btih:9FAF767E07FBC9BFEA7C0D786B685311CD55221D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +559,8 @@ magnet:?xt=urn:btih:9FAF767E07FBC9BFEA7C0D786B685311CD55221D
 ```bash
 magnet:?xt=urn:btih:844033578C410D64DA410584BA578F02ECAF39F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +586,8 @@ magnet:?xt=urn:btih:844033578C410D64DA410584BA578F02ECAF39F3
 magnet:?xt=urn:btih:63AA85244664692FB3B58E415CE5C1CBB65255DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +611,8 @@ magnet:?xt=urn:btih:63AA85244664692FB3B58E415CE5C1CBB65255DF
 ```bash
 magnet:?xt=urn:btih:4EC7B3063B710F28E8D140FDCDD5DF028007C54B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +640,8 @@ DJ Polovka - House Outbreak Mix (09.02.2012) [MP3|256 kbps]<House, Club House>
 magnet:?xt=urn:btih:A8F53076D083FD1A1E59C4923CEC1A8A8D3E0130
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +666,8 @@ magnet:?xt=urn:btih:A8F53076D083FD1A1E59C4923CEC1A8A8D3E0130
 magnet:?xt=urn:btih:65B326712EFBF8BFC107E63745AC6689D7D92D7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +691,8 @@ magnet:?xt=urn:btih:65B326712EFBF8BFC107E63745AC6689D7D92D7B
 ```bash
 magnet:?xt=urn:btih:C42F149EB99D795E2A6DABC938DE3B149687D815
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -676,6 +726,8 @@ VA - Colors of Sounds (2012) [MP3|320 kbps]<Psychedelic / Progressive>
 ```bash
 magnet:?xt=urn:btih:D84956709E6980D8305AA93F3594491B25557D48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

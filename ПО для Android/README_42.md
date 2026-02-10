@@ -19,6 +19,8 @@ Soul Browser - добротный браузер, что несмотря на �
 magnet:?xt=urn:btih:3944B4E0A48994CD4D3F1CA354B4411D4181388C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ QuickEdit Text Editor Pro - полноценный и многофункцион
 ```bash
 magnet:?xt=urn:btih:5AB20C08DD28E95456F5B350CB8E4A40A00BB0AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ QuickEdit Text Editor Pro - полноценный и многофункцион
 magnet:?xt=urn:btih:83DF1C4FE2BE41F73C04F14525F24CD35439CAF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ PhotoRoom v4.9.6 b1399 Mod by RBMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:75D53AE3CA1221C97D50604393CF3CCCE52E21BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ QuickEdit Text Editor Pro - полноценный и многофункцион
 magnet:?xt=urn:btih:2D57C26735EF6B137AAD9130A9875F8A3B32FAC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ PowerDirector – Video Editor v14.0.0 b2405101 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:16EE3FEE85FBDDF44C8A1FDAB8DC553FF78FC67F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Abstruct - это официальное приложение для обоев,
 magnet:?xt=urn:btih:0AA0C8932B047B3535A671956955AB4B6BBA1209
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Busuu - популярный и востребованный проект для
 ```bash
 magnet:?xt=urn:btih:2396262A5DB4B52C73DD64B912959950C0C9406C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Strava: бег, велоезда, хайкинг v359.19 Mod by ReVanced Team [R
 magnet:?xt=urn:btih:14AF7295CDFBDD8B2D515966C242A8743258946C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Video Converter Pro - стильное и функциональное прил�
 ```bash
 magnet:?xt=urn:btih:1441704C499D70D3EFD51C618732D6EC3C53B447
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ AirBrush: ИИ Фоторедактор v6.5.3 Mod by PieMods [Ru/Multi]
 magnet:?xt=urn:btih:64B9A049B70567BAA66515D29639C78086C4FA47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Video Converter Pro - стильное и функциональное прил�
 ```bash
 magnet:?xt=urn:btih:3A974458D5565F0754FF0DBA1B55A0E4A6037A39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Pixolor - удобная цветовая пипетка с ручным кон�
 magnet:?xt=urn:btih:86AC0AE9B25C82AC025DA1EE512179678F59A7B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:86AC0AE9B25C82AC025DA1EE512179678F59A7B3
 ```bash
 magnet:?xt=urn:btih:FCE0C511C2E07F27B2C45A66DF37C9450CA7D730
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Fishing Knots Pro / Рыбацкие узлы Pro v8.6.38 Paid [Ru/Multi]
 magnet:?xt=urn:btih:C0F785CEF7BEFF47E9324882A8790D2C2FC2B753
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ PhotoDirector - функциональный, но весьма простой �
 ```bash
 magnet:?xt=urn:btih:A90F7B982229C705B034BF4EA19F884C2F3A2A60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ OfficeSuite Pro + PDF - это полнофункциональный офисн
 magnet:?xt=urn:btih:3B2D792AA35A2A76A14D562221EC45590055449A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Fitify: Фитнес тренировки дома 1.71.1 Mod by Balatan [Ru/En]
 ```bash
 magnet:?xt=urn:btih:126FC88CAF16D78CDCFF07CA2194A5A53EBB1489
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ dict.cc+ Wörterbuch 12.0.6 [Multi]
 magnet:?xt=urn:btih:CA4448FF2223601921EA81D6F31FB5AFF2F6965C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Speedtest - это приложение предназначено для опр
 ```bash
 magnet:?xt=urn:btih:998AE7BF9914CF56746C57B1F5457DEA5AFFE41B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ ProShot v8.25.0.1 Paid [Ru/Multi]
 magnet:?xt=urn:btih:0232CCEEE96AFA22C411DA3A65FA0AB11B1F2363
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ magnet:?xt=urn:btih:0232CCEEE96AFA22C411DA3A65FA0AB11B1F2363
 ```bash
 magnet:?xt=urn:btih:00E291BA786E8734C1F615E7423877DFC20FBA8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ magnet:?xt=urn:btih:00E291BA786E8734C1F615E7423877DFC20FBA8E
 magnet:?xt=urn:btih:ACD3B0095303D2129E59C3889420DDA52B4FC9F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ KineMaster - Video Editor & Maker v7.4.9.32405.GP Mod by youarefinished [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:CBADF9721EB3CBD468885BE39F53FD22F4365AF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ AirBrush: ИИ Фоторедактор v6.5.0 Mod by ImanAlien [Ru/Multi]
 magnet:?xt=urn:btih:9161CC1088F4870CAAEE7D4FB50616293C682924
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Gradient - это передовое приложение с лучшими AI-�
 ```bash
 magnet:?xt=urn:btih:A7D5D177F32BF2188DF53EB6CE7CC7DA9A315D23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

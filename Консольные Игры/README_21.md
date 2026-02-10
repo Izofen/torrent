@@ -19,6 +19,8 @@ Rodea: The Sky Soldier - это аркадный аэро-экшн с привл
 magnet:?xt=urn:btih:0DA5FAAE36BA0ABB77F324D58CAE685F8DA6AFEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Pikmin 3 Deluxe (2020) [Switch] [USA] 10.2.0  [NSZ] [License] [En]
 magnet:?xt=urn:btih:95D5C02709B7902F9CA6053EE9931A76631710B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ BDSM («Большая Пьяная Сатанинская Резня») — с�
 magnet:?xt=urn:btih:C05F8CB415CE4DDAA392AAB47F238EB1BFD4E0CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ HITMAN 3 — эффектное завершение трилогии «Мир �
 ```bash
 magnet:?xt=urn:btih:720909FBC76646413B5FF25CD84C266AA2EA909B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ TrueAncestor BACKUP Retailer - это приложение, которое ба�
 magnet:?xt=urn:btih:8A61F6B63E145CAB7447FBC5FE3FC97F168341BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Tales from the Borderlands – эпизодическое приключение
 ```bash
 magnet:?xt=urn:btih:51798FE002C6366783E8A9B42AFC08C69F7D46BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Unreal Tournament 3 продолжает культовую серию муль�
 magnet:?xt=urn:btih:F0E10C3E16FD394363A6379643BCD685F6935FD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Monster Hunter Tri [Wii] [NTSC] [ENG/ESP] (2010)
 ```bash
 magnet:?xt=urn:btih:83A18982C2D2363730A2A4EDCCE2AFA38AFE9129
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Cuphead — классический экшен-платформер, в кот�
 magnet:?xt=urn:btih:60EA8459FBF30CCD112C495F89D43142E3A2F200
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ Disney Tangled [Wii] [NTSC2PAL] [Multi 3] (2010)
 magnet:?xt=urn:btih:A7659C9DC9288D2CB9DCC96D9FCBB9760C0C03D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ Surf's Up / Лови волну! (2007) [PS3] [EUR] 1.80 [Cobra ODE / E3 ODE PRO
 ```bash
 magnet:?xt=urn:btih:30B117234EDDCA93293F178A8511EDC2CFE7AC5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ Zipper Interactive создали немало хороших игр, среди
 magnet:?xt=urn:btih:F91639F4DE0C26FFB455FE3767D01A329D07CAAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ Minecraft: Story Mode предлагает отправиться в попул�
 ```bash
 magnet:?xt=urn:btih:7642D95A0475FF8E93FE93DAAAEBA00B075659A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ Game of Thrones: A Telltale Games Series – эпизодическая игра
 magnet:?xt=urn:btih:A39CFB98C86E9CA6A4A8FBFD3C68C00798567640
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ Kororinpa [WII] [PAL] [Multi 5] (2008)
 magnet:?xt=urn:btih:B0E84A588E35E2E593800E326DFF50C78C3AAA70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ Bionic Commando (2009) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
 ```bash
 magnet:?xt=urn:btih:0277F2818D1BEFA1E69C83F6DC1486383407D57E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ Far Cry 4 [Region Free] [Eng] [LT+3.0] (XGD3 / 16537) (2014) [XBox360]
 magnet:?xt=urn:btih:E75002991526CFCC86B992D1D3A5CA446E1347E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ Resident Evil 6 (2012) [Xbox360] [Region Free] [FreeBoot] [Unofficial] [Ru] | R.
 ```bash
 magnet:?xt=urn:btih:9B2A001AA0D063880CE2053310BB4A7F9F834329
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ Wolfenstein (2009) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
 magnet:?xt=urn:btih:2A111C3B1EF3619136D86E265BD33A3B599998F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ Kung Fu Panda 2: The Videogame (2011) [PS3] [USA] 3.60 [Cobra ODE / E3 ODE PRO I
 ```bash
 magnet:?xt=urn:btih:11960951485ED38D54062AEC6F661BB7642175A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ ATOM RPG это пост-апокалиптическая инди-игра вд
 magnet:?xt=urn:btih:F510923A1D3EB38478A044A6ADAA228F3EBD81E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ Monster Jam: Path of Destruction – веселая гонка, в которо�
 ```bash
 magnet:?xt=urn:btih:0EC0F4976CEDD10FA5AEAD91B5698C888787CB2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ DOOM (2017) [Switch] [EUR] 8.1.0 [NSP] [License] [Ru/En]
 magnet:?xt=urn:btih:1AE2346341029AB9CFD7DA52E0469D0B905265EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ FAR: Lone Sails – это приключенческая игра про пут
 ```bash
 magnet:?xt=urn:btih:E0E3060DB97359F0B3F05F220CA606B739482B2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ Borderlands (2009) [Xbox360] [Region Free] [FreeBoot] [Unofficial] [Ru]
 magnet:?xt=urn:btih:CA1D7F095F222053F6ADD7F8702EE346920FD4C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Devil May Cry 4 (2008) [PS3] [EUR] 2.01 [Cobra ODE / E3 ODE PRO ISO] [Repack] [R
 ```bash
 magnet:?xt=urn:btih:720E2C9DA839DB97123F44746D8AB366B3FE38EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

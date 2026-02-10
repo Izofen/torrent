@@ -1,3 +1,31 @@
+###  Публикация: 1487927   (1002858) от 08.08.2021
+
+Джо Хилл | Странная погода (Сборник) (2019) [MP3, Дмитрий Рыбин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что окружает нас в повседневной жизни? Семья, работа, обязанности?
+Повести Джо Хилла заставят вас взглянуть на мир иначе.
+Вместе с его героями вы будете молиться о спасении. Вам придется переосмыслить жизнь, как ставшему взрослым мальчишке – свои воспоминания о больной деменцией няне. Осознать глубину одиночества чужеродного разума. Замереть от ужаса под прицелом (   Читать дальше...   )Жанр: Хоррор, мистикаПродолжительность: 14:55:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85B99740C3CA4A5F7B40CFE9A06288408DAAE869
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350845   (1002882) от 07.01.2020
 
 Андрей Ливадный | Взвод (2019) [MP3]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:18114CB810C6BB1537CDC7F0DF10A8DA6AB7A551
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +73,8 @@ magnet:?xt=urn:btih:18114CB810C6BB1537CDC7F0DF10A8DA6AB7A551
 magnet:?xt=urn:btih:F9F29D84CAC6743A5994A9BE9F34E693886C2CAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +99,8 @@ magnet:?xt=urn:btih:F9F29D84CAC6743A5994A9BE9F34E693886C2CAB
 magnet:?xt=urn:btih:4DC9A09A052D4C9A92928220BD0942537364ED55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +124,8 @@ magnet:?xt=urn:btih:4DC9A09A052D4C9A92928220BD0942537364ED55
 ```bash
 magnet:?xt=urn:btih:BCE1AA616D2C4E164641B2BD40E475805CCCF56C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +154,8 @@ magnet:?xt=urn:btih:BCE1AA616D2C4E164641B2BD40E475805CCCF56C
 magnet:?xt=urn:btih:32BE6FBBED6A01171EA585EEE264D19817D1548D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +180,8 @@ magnet:?xt=urn:btih:32BE6FBBED6A01171EA585EEE264D19817D1548D
 magnet:?xt=urn:btih:D7E7B6D72307F3B7D5DFE012F1024E6307FA4080
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +205,8 @@ magnet:?xt=urn:btih:D7E7B6D72307F3B7D5DFE012F1024E6307FA4080
 ```bash
 magnet:?xt=urn:btih:BEC953B9D1518DAF9AA42612E0E4147CA95384C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +235,8 @@ magnet:?xt=urn:btih:BEC953B9D1518DAF9AA42612E0E4147CA95384C1
 magnet:?xt=urn:btih:BA9A7BD8D3B02A2DC217D3BCB4771DED2103C96F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +260,8 @@ magnet:?xt=urn:btih:BA9A7BD8D3B02A2DC217D3BCB4771DED2103C96F
 ```bash
 magnet:?xt=urn:btih:214D09A29272B475BC8867663ADBE11A04721408
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +287,8 @@ magnet:?xt=urn:btih:214D09A29272B475BC8867663ADBE11A04721408
 magnet:?xt=urn:btih:A9426F7508B5471C2F51573AC3CD88BDBB15E944
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +312,8 @@ magnet:?xt=urn:btih:A9426F7508B5471C2F51573AC3CD88BDBB15E944
 ```bash
 magnet:?xt=urn:btih:B017656D0394171C2581B5BB261D8539B70B1676
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +339,8 @@ magnet:?xt=urn:btih:B017656D0394171C2581B5BB261D8539B70B1676
 magnet:?xt=urn:btih:5A04149DAE53F6FC531B0E41EB4CD1330F76E2E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +364,8 @@ magnet:?xt=urn:btih:5A04149DAE53F6FC531B0E41EB4CD1330F76E2E3
 ```bash
 magnet:?xt=urn:btih:88BC65665724C62A15F19E280CBBC405EA32DCA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +391,8 @@ magnet:?xt=urn:btih:88BC65665724C62A15F19E280CBBC405EA32DCA6
 magnet:?xt=urn:btih:1ED87C929A642DD148100C98607DAA01C24E64A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +416,8 @@ magnet:?xt=urn:btih:1ED87C929A642DD148100C98607DAA01C24E64A7
 ```bash
 magnet:?xt=urn:btih:8771C0F379D6D548E4D983B3896C221FD0DE855E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +443,8 @@ magnet:?xt=urn:btih:8771C0F379D6D548E4D983B3896C221FD0DE855E
 magnet:?xt=urn:btih:AE21A1800E69C49FFD30F4EB73FE823FD147780A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +468,8 @@ magnet:?xt=urn:btih:AE21A1800E69C49FFD30F4EB73FE823FD147780A
 ```bash
 magnet:?xt=urn:btih:EDD3B92B39BFB347E25B0F497F92C64794A3C347
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +497,8 @@ magnet:?xt=urn:btih:EDD3B92B39BFB347E25B0F497F92C64794A3C347
 magnet:?xt=urn:btih:472E17E92F5441AAC5FFB6AD7EA2C5B09720A924
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +522,8 @@ magnet:?xt=urn:btih:472E17E92F5441AAC5FFB6AD7EA2C5B09720A924
 ```bash
 magnet:?xt=urn:btih:933BE22E256CCD7426B0E0CD1F0DFA3ABC3CD85B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +549,8 @@ magnet:?xt=urn:btih:933BE22E256CCD7426B0E0CD1F0DFA3ABC3CD85B
 magnet:?xt=urn:btih:B3F9CD4E195E811894F45D2DE11237FE2C7D9E52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +574,8 @@ magnet:?xt=urn:btih:B3F9CD4E195E811894F45D2DE11237FE2C7D9E52
 ```bash
 magnet:?xt=urn:btih:A0226ACA3A1D7F477B597C0A1F4F34ECB4952604
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +601,8 @@ magnet:?xt=urn:btih:A0226ACA3A1D7F477B597C0A1F4F34ECB4952604
 magnet:?xt=urn:btih:173C4648E127755DFE5560127C790426246D4FC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +626,8 @@ magnet:?xt=urn:btih:173C4648E127755DFE5560127C790426246D4FC0
 ```bash
 magnet:?xt=urn:btih:F17A1770504B6E62FA33649F53E893F4BF09CC4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +653,8 @@ magnet:?xt=urn:btih:F17A1770504B6E62FA33649F53E893F4BF09CC4F
 magnet:?xt=urn:btih:213B1DAF352BAA95FE07DFCFCEA0FC7C0E419E41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,30 +679,7 @@ magnet:?xt=urn:btih:213B1DAF352BAA95FE07DFCFCEA0FC7C0E419E41
 magnet:?xt=urn:btih:84ACECCBD9819005F32719A9EC98B832CF65F38C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487362   (1003867) от 04.08.2021
-
-Саймон Рич | Чудотворцы (2021) [MP3, Геннадий Смирнов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003867.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Небеса Инкорпорейтед» – чрезвычайно плохо управляемая корпорация на небесах. Ее основатель и генеральный директор (известный в некоторых кругах как Бог) проводит большую часть своего времени на поле для гольфа.
-Он не решает мировых проблем, вместо этого он гуглит самого себя и постоянно сидит в различных блогах, чтобы узнать, что о нем думают люди.Жанр: Зарубежное фэнтези, Юмористическое фэнтезиПродолжительность: 05:33:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEA7C4144DE8FD38E334CF90B0893C94E0ADC3A3
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

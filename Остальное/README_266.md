@@ -1,3 +1,58 @@
+###  Публикация: 1375749   (860158) от 17.04.2020
+
+Army Of Lovers - The Day The Gods Help Us All (Life After People) (2020) [H.264/1080p]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Army Of Lovers - The Day The Gods Help Us All (Life After People)
+Human Population: Zero
+Audio: CDA Army Of Lovers - The Day The Gods Help Us All (1993)
++(   Читать дальше...   )Жанр: PopПродолжительность: 00:02:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A868FA3C580171A773870B9C51D28E938CB3AAF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108867   (860441) от 26.02.2017
+
+Фантастические твари и где они обитают / Fantastic Beasts and Where to Find Them (2016) BDRip [H.264/1080p] [handmade 16:9]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поиск и изучение необычайных волшебных существ приводят магозоолога Ньюта Саламандера в Нью-Йорк. Скорее всего, он отбыл бы на поезде дальше, если бы не маг (так в Америке называют магглов) по имени Якоб, оставленный в неположенном месте магический чемодан и побег из него фантастических животных Ньюта.Производство: Великобритания, США, Cinesite, Double Negative, FramestoreЖанр: Приключения, Фэнтези, СемейныйРежиссер: Дэвид ЙэтсАктеры: Эдди Редмэйн, Эзра Миллер, Колин Фаррелл, Кэтрин Уотерстон, Рон Перлман, Саманта Мортон, Джон Войт, Дэн Фоглер, Кармен Эджого, Элисон Судол, Кристин МардзаноПеревод: ДублированныйЯзык субтитров: русские (форсированные, полные), английские (полные)Продолжительность: 02:12:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BE68E0FE869855A81A48AD15856D46C89CD1739
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108936   (860566) от 26.02.2017
 
 Плата за проезд / Fare (2016) WEB-DLRip [AD]
@@ -18,6 +73,8 @@
 ```bash
 magnet:?xt=urn:btih:0FE4B110E0091947BE907EBD6B5C738FC792A44D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +100,8 @@ magnet:?xt=urn:btih:0FE4B110E0091947BE907EBD6B5C738FC792A44D
 magnet:?xt=urn:btih:0A4F43622CFF8E32CE4CEA5F391D4FFFF21B211A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +125,8 @@ magnet:?xt=urn:btih:0A4F43622CFF8E32CE4CEA5F391D4FFFF21B211A
 ```bash
 magnet:?xt=urn:btih:C880E0C27175B5A777F35324DBBBE5A283CAB7FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +152,8 @@ magnet:?xt=urn:btih:C880E0C27175B5A777F35324DBBBE5A283CAB7FA
 magnet:?xt=urn:btih:D2DD2F36B0C137C3DC0775208615B8A709F30FA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +177,8 @@ magnet:?xt=urn:btih:D2DD2F36B0C137C3DC0775208615B8A709F30FA2
 ```bash
 magnet:?xt=urn:btih:51C61A86948E830C46DDBAFDDF8DAB70E54654C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +204,8 @@ magnet:?xt=urn:btih:51C61A86948E830C46DDBAFDDF8DAB70E54654C9
 magnet:?xt=urn:btih:2FCDA9672F47A655BCB453E8AE0B4B3F0E4E1849
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +229,8 @@ magnet:?xt=urn:btih:2FCDA9672F47A655BCB453E8AE0B4B3F0E4E1849
 ```bash
 magnet:?xt=urn:btih:27B47C5D6815171E0DC1490F78E7761A076FB668
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +256,8 @@ magnet:?xt=urn:btih:27B47C5D6815171E0DC1490F78E7761A076FB668
 magnet:?xt=urn:btih:55CDD4F886F49EFE5F8A5D5E2643EEC68297785B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +281,8 @@ magnet:?xt=urn:btih:55CDD4F886F49EFE5F8A5D5E2643EEC68297785B
 ```bash
 magnet:?xt=urn:btih:714B72172AE79759AAA11E3D661A5658D6149C5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +308,8 @@ magnet:?xt=urn:btih:714B72172AE79759AAA11E3D661A5658D6149C5B
 magnet:?xt=urn:btih:9CAA4035FF625A064966EB38E5750B83FAEA27C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +333,8 @@ magnet:?xt=urn:btih:9CAA4035FF625A064966EB38E5750B83FAEA27C4
 ```bash
 magnet:?xt=urn:btih:F192325AD1C132E7EFE081D9488FEA7B0FFE0803
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +361,8 @@ magnet:?xt=urn:btih:F192325AD1C132E7EFE081D9488FEA7B0FFE0803
 magnet:?xt=urn:btih:49A1CB7BD4E84A67FD6BB6363C5EBA6E2A69FB49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +386,8 @@ magnet:?xt=urn:btih:49A1CB7BD4E84A67FD6BB6363C5EBA6E2A69FB49
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +413,8 @@ magnet:?xt=urn:btih:49A1CB7BD4E84A67FD6BB6363C5EBA6E2A69FB49
 magnet:?xt=urn:btih:AD9984E4D6127DEB98B79820066330002CB8DE4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +439,8 @@ magnet:?xt=urn:btih:AD9984E4D6127DEB98B79820066330002CB8DE4E
 magnet:?xt=urn:btih:01D0AFEC5C5C230D27073233D5D3808472E4F2D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +464,8 @@ magnet:?xt=urn:btih:01D0AFEC5C5C230D27073233D5D3808472E4F2D2
 ```bash
 magnet:?xt=urn:btih:20BA91B0EAEF1EFA557A6BA5B86E441E2C60AFA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +492,8 @@ magnet:?xt=urn:btih:20BA91B0EAEF1EFA557A6BA5B86E441E2C60AFA7
 magnet:?xt=urn:btih:470CE969C64467D4EFF6B6710B9B1A67E9E4DA61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +517,8 @@ magnet:?xt=urn:btih:470CE969C64467D4EFF6B6710B9B1A67E9E4DA61
 ```bash
 magnet:?xt=urn:btih:FE04AE67E150A69EBDF2E4F4509AAAA2F1DF73E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +544,8 @@ magnet:?xt=urn:btih:FE04AE67E150A69EBDF2E4F4509AAAA2F1DF73E7
 magnet:?xt=urn:btih:9E0B6D3651A4F4F27B1B9F1CAC01802D09FECB2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +570,8 @@ magnet:?xt=urn:btih:9E0B6D3651A4F4F27B1B9F1CAC01802D09FECB2D
 magnet:?xt=urn:btih:5ACCA7DB5E23938B5717D8BEC4D252067C874ED8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +595,8 @@ magnet:?xt=urn:btih:5ACCA7DB5E23938B5717D8BEC4D252067C874ED8
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +623,8 @@ magnet:?xt=urn:btih:5ACCA7DB5E23938B5717D8BEC4D252067C874ED8
 magnet:?xt=urn:btih:CE6927F388933A2692C425571E3C2BBA1F642358
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +648,8 @@ magnet:?xt=urn:btih:CE6927F388933A2692C425571E3C2BBA1F642358
 ```bash
 magnet:?xt=urn:btih:DB0E691DDAEAA60A2044679452921FF2C0B44B1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,53 +676,7 @@ magnet:?xt=urn:btih:DB0E691DDAEAA60A2044679452921FF2C0B44B1D
 magnet:?xt=urn:btih:8A75379BC61E3025296ACDC11E4ABA6519D747C8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374952   (868459) от 12.04.2020
-
-Порно / Porno (2019) WEBRip [H.264/1080p-LQ] [DVO, AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда пятеро подростков, сотрудников местного кинотеатра в маленьком христианском городке, обнаруживают таинственный старый фильм, спрятанный в подвале, они выпускают на волю суккуба-обольстителя, который преподаст им урок... написанный кровью.Производство: США, EvokeЖанр: Ужасы, комедияРежиссер: Кеола РаселаАктеры: Дэвид Эрроу, Ивэн Дэйвс, Блейк Френч, Джиллиан Мюллер, Эмбер Пол, Кэтлин Пирс, Уильям Филлипс, Питер Резников, Ларри Саперштейн, Гленн СтоттПеревод: Двуголосый любительский (LakeFilms)Субтитры: отсутствуютПродолжительность: 01:39:24Реклама: присутствуют видео, аудио, текстовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83D0C14DFD47C662DC212E04AEF02D045279AAF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496815   (869509) от 19.09.2021
-
-Чёрная Вдова / Black Widow (2021) BDRip [H.264/1080p-LQ] [hand made 16:9]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наташе Романофф предстоит лицом к лицу встретиться со своим прошлым. Чёрной Вдове придется вспомнить о том, что было в её жизни задолго до присоединения к команде Мстителей, и узнать об опасном заговоре, в который оказываются втянуты её старые знакомые — Елена, Алексей, также известный как Красный Страж, и Мелина.Производство: США / Marvel Studios, Truenorth ProductionsЖанр: Фантастика, Боевик, ПриключенияРежиссер: Кейт ШортландАктеры: Скарлетт Йоханссон, Флоренс Пью, Дэвид Харбор, О. Т. Фагбенли, Ольга Куриленко, Уильям Хёрт, Рэй Уинстон, Рэйчел Вайс, Эвер Андерсон, Виолет МакгроуПеревод: ДублированныйСубтитры: Русские (форс., полные), английские (полные)Продолжительность: 02:13:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19966E5FEEF4B3B707C01FD7584BA5887B169750
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Circus of Pain (2025) [Ru/Multi] (1.02) Repack FitGirl
 magnet:?xt=urn:btih:48A0F81D511507A1433CB16E6D8AF4E2ACD949A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:48A0F81D511507A1433CB16E6D8AF4E2ACD949A4
 ```bash
 magnet:?xt=urn:btih:C0EF55D404B0FF95AF84E3E41135B7AD58363AF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:C0EF55D404B0FF95AF84E3E41135B7AD58363AF8
 magnet:?xt=urn:btih:BC6E492D38E7E6BEC9F3BEA006B4B3AAB3479138
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:BC6E492D38E7E6BEC9F3BEA006B4B3AAB3479138
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:BC6E492D38E7E6BEC9F3BEA006B4B3AAB3479138
 magnet:?xt=urn:btih:20AFF6714F58AF19A5CD726409CDFF27FB663A00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:20AFF6714F58AF19A5CD726409CDFF27FB663A00
 ```bash
 magnet:?xt=urn:btih:236504E2649A163FC73EEDE2F1487FA06FE89F98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:236504E2649A163FC73EEDE2F1487FA06FE89F98
 magnet:?xt=urn:btih:3AF8FC4507791E42C955D3E89E887D72783FE18E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Kaijuu 8 Gou (2025) | Kaiju No. 8 (2025) | Кайдзю номер 8 [ТВ-2] [2
 ```bash
 magnet:?xt=urn:btih:77597E3D537C95142B6CD97B427BE0AD7B4CFC6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:77597E3D537C95142B6CD97B427BE0AD7B4CFC6D
 magnet:?xt=urn:btih:72481BE0FD1341D2F9DDE87C62915AB9234F4314
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:72481BE0FD1341D2F9DDE87C62915AB9234F4314
 ```bash
 magnet:?xt=urn:btih:69B8F69C5466994DEDB308559D77992491F28181
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:69B8F69C5466994DEDB308559D77992491F28181
 magnet:?xt=urn:btih:A1FACC4B499813A47CA17B01167240D5A89887C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:A1FACC4B499813A47CA17B01167240D5A89887C9
 magnet:?xt=urn:btih:2402594A78A336E85CE105243F73EF569FA525E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +330,8 @@ Fights in Tight Spaces (2021) [Ru/Multi] (1.2.11564 HF2)/dlc) Repack Let'sРlay 
 ```bash
 magnet:?xt=urn:btih:0E870A851AB1CD52B3AC6144ED5635DA511C2648
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:0E870A851AB1CD52B3AC6144ED5635DA511C2648
 magnet:?xt=urn:btih:D69ECCCE841CACB0398A7EC6E61B43EDEF33FCAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:D69ECCCE841CACB0398A7EC6E61B43EDEF33FCAA
 ```bash
 magnet:?xt=urn:btih:C200DCA44E5B5249A5AB1D210C9B42A7EC8C645C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:C200DCA44E5B5249A5AB1D210C9B42A7EC8C645C
 magnet:?xt=urn:btih:3F9481B6FBA1A69C53FB0F9A31F0A1DFE0DAB923
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:3F9481B6FBA1A69C53FB0F9A31F0A1DFE0DAB923
 ```bash
 magnet:?xt=urn:btih:0B09F1855AB8733DFC867712C8B1046F6816B34A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:0B09F1855AB8733DFC867712C8B1046F6816B34A
 magnet:?xt=urn:btih:2598CCE78A28CECC8B12E0A61F1BC18B3247F58B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Hades II (2024) [Ru/Multi] (1.131346) Repack Let'sРlay
 magnet:?xt=urn:btih:35D863CA2364F103478223D4A13F3853AA448BE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:35D863CA2364F103478223D4A13F3853AA448BE0
 ```bash
 magnet:?xt=urn:btih:AE87ACFC45840D543DD83B89E00015185E3EB194
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:AE87ACFC45840D543DD83B89E00015185E3EB194
 magnet:?xt=urn:btih:E037A27D8442175D6985A1E76A9E4A6F77586355
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ Ruri no Houseki / Ruri Rocks / Рури любит камни [2025, TV, 13] WEB
 ```bash
 magnet:?xt=urn:btih:6603BF775B7715A5D2628073AF3049303EC54ACC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:6603BF775B7715A5D2628073AF3049303EC54ACC
 magnet:?xt=urn:btih:73E258DD6BAA6762C55A0A785340A41BD953E4EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:73E258DD6BAA6762C55A0A785340A41BD953E4EC
 ```bash
 magnet:?xt=urn:btih:4DD04199E115324FDFBA889C85B62496D98F1AD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:4DD04199E115324FDFBA889C85B62496D98F1AD0
 magnet:?xt=urn:btih:B67CFC617A670858A56E0A98FC899E4EEB0D004D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Windows 11 Pro х64 Version 24H2 Build 26100.6584 by Igors_VL [RU]
 ```bash
 magnet:?xt=urn:btih:67327CEBF4D8A676DC30F665B57832FF62E9D4E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

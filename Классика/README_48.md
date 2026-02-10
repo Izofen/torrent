@@ -22,6 +22,8 @@ Piano Sonata no. 2 in D minor, op. 14
 magnet:?xt=urn:btih:2D947701729F5EB845557FB14147BD9DF7629A48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Hindemith - Octet
 ```bash
 magnet:?xt=urn:btih:CEE5FC57DADEFEDFA50FD7FE60555810B5D3CE8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Grieg - Piano Concerto in A minor, op. 16
 magnet:?xt=urn:btih:FD112E95373548B2D4EF8A0351C3E79A029AA665
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Палитра Классики (2003) S&V #12/2003 [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:8706293DCDBBEE1BCFD57332CA3095DFB0617886
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Piano Concerto no. 3 in C major, op. 26
 magnet:?xt=urn:btih:7499CA0D5D3F96DAFE9A21D3BEFF97E513F1DE36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Classical 2008 (2007) compilation, CDx2 [FLAC|Lossless|image + .cue] <Class
 ```bash
 magnet:?xt=urn:btih:1CD12FD85EFC495BE19EAD94D7812A598C91CD72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Montserrat Caballe - Caballe and Friends (1997) [FLAC|Lossless|image + .cue] <Cl
 magnet:?xt=urn:btih:35897A2798BB4141522F2542559C74C728BDFAE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ Jennifer Thomas - Winter Symphony (2015) [FLAC|Lossless|tracks] <Instrumental, C
 magnet:?xt=urn:btih:563E2E08A4C3041E4387B647FF1C4278341CBFDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +253,8 @@ Emika - Melanfonie (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Electronic, Clas
 ```bash
 magnet:?xt=urn:btih:1373B8E2569E7750FB416BE70093F923E10B3B66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +284,8 @@ The Suite bergamasque, состоящая из четырех частей, яв
 magnet:?xt=urn:btih:D1DDF113A246D0FF840258BDC8D950ADB611CD4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +312,8 @@ Piano Sonata No. 18 in G Major, D. 894, "Fantasie"
 ```bash
 magnet:?xt=urn:btih:C3E4B71D31F62FED8A7093960A3329026E7AF00A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +342,8 @@ Grieg - Piano Concerto in A minor, op. 16
 magnet:?xt=urn:btih:0A0A5D2AD82DD833657FD43194708D95593D2516
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +370,8 @@ Fabio Biondi, Europa Galante - Vivaldi - La Stravaganza (2011) [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:97374CAB3E32E3A495B37E30B0AF3C7919B0895F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +400,8 @@ Vivaldi - II Pomo d'Oro, Riccardo Minasi, Dmitry Sinkovsky - Concerti Per Due Vi
 magnet:?xt=urn:btih:C72952E88035ABB71C34E467094FA0272755232C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +428,8 @@ Alexis Ffrench - Dreamland (2020) Sony Classical [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:B44AAEE4B20C2A7F650EB48F2A819B8418F725DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +463,8 @@ CD1Жанр: ClassicalПродолжительность: 01:12:32
 magnet:?xt=urn:btih:AF90990D559A3EE313020A2067E051931C258190
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +491,8 @@ Piano Sonata no. 2 in D minor, op. 14
 ```bash
 magnet:?xt=urn:btih:0CE49BF7553D266B6C819E31B83CDF2398DD9172
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +521,8 @@ CD 15 RACHMANINOFF – PIANO CONCERTO NO. 2 ~ RUBINSTEIN • NBC SYMPHONY ORCHES
 magnet:?xt=urn:btih:E202B22968D1A97B01A419C792F84E4B2CA960DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +549,8 @@ Zodiac - Ars Nova and Ars Subtilior in the Low Countries and Europe - Capilla Fl
 ```bash
 magnet:?xt=urn:btih:8609F9B0B658E8DAEEFD584F472F692A81E059F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +580,8 @@ The Royal Philharmonic Orchestra - Plays The Music Of Rush (2012) [MP3|320 Kbps]
 magnet:?xt=urn:btih:EA66CD1AEC07836FBD61E9CE2E3A1C52163DC08C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +608,8 @@ Holly Bowling - Better Left Unsung (2016) [FLAC|Lossless|tracks] <Piano, Classic
 ```bash
 magnet:?xt=urn:btih:683F191AE300523031C51E5D83F89ED3562E065D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +638,8 @@ Edward Elgar - Variations on an Original Theme, Op.36 "Enigma"
 magnet:?xt=urn:btih:E0AFCE10A71BA9AA6FB5E20129633A535A6A3285
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +666,8 @@ Russian National Orchestra, Mikhail Pletnev - Russian Overtures (1994) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:820814DC0DC119F027D950D2BEBA5E693764EFD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +696,8 @@ magnet:?xt=urn:btih:820814DC0DC119F027D950D2BEBA5E693764EFD4
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -677,6 +725,8 @@ VA - 100 Classical Music for Babies (2015) [MP3|320 кб/с]<Classic>
 magnet:?xt=urn:btih:2B47FF4FBD3FA9BA2519A23039337BACD2680D3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -703,6 +753,8 @@ Richard Wagner - Neuschwanstein (2001) [FLAC|Lossless|image + .cue] <Opera>
 ```bash
 magnet:?xt=urn:btih:330532E10EC1D30BB6A8B076F111AD8105906912
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

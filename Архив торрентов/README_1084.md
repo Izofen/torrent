@@ -19,6 +19,8 @@ SamDrivers 18.19 LAN [Multi/Ru]
 magnet:?xt=urn:btih:DB70A09ACA927C4C20D033015A6B465990C3D55C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Vidmore Video Fix for Mac 1.0.6 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6CB43F00B0AF6C79CFD65E156860935698FC9517
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ AutoMapa является лидером на рынке инновационн�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ TrustViewer - это комплексное решение для удаленн
 magnet:?xt=urn:btih:BB3B7D8E48536FFE1121D7BB8B3EAA78E4E85801
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Finder Windows — это плавающая панель, которая дае
 ```bash
 magnet:?xt=urn:btih:4188B2ED8ED9C0A509F51E6F0189392FCAC466E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ PC-BSD 9.1 [x86 + x64] (2xDVD)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ HaoZip - бесплатный архиватор китайского произ
 ```bash
 magnet:?xt=urn:btih:B959EAEAD08942EBA23DD0EDFC4D6F29758F303A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:B959EAEAD08942EBA23DD0EDFC4D6F29758F303A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:B959EAEAD08942EBA23DD0EDFC4D6F29758F303A
 ```bash
 magnet:?xt=urn:btih:1BE8BCC2EEADACD3F689990EE55E64B52EEC1937
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ TweakPower представляет собой единый графически
 magnet:?xt=urn:btih:3D87ADF95B27A8628B1D85C9F870640E6C22A723
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ PullTube 1.8.5.20 [Multi/Ru]
 magnet:?xt=urn:btih:6333DAC9DC9AFACAC97F0E7DE9B5A84DDFCEF8FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Hides 5.6.0.1 [En]
 ```bash
 magnet:?xt=urn:btih:F0E6835F760826D07E086F721B5B2EFB618487A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ Adguard — это лучший способ избавиться от разд�
 magnet:?xt=urn:btih:3FA54C14709E8318FC4036C746BFFA3267E4F831
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Rebel Cops v1.6 + Mod [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B2D2712DF77454C1647F6C6BB9FFEF9EBB920E26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ KOMPLETE KONTROL — это простой в использовании инс�
 magnet:?xt=urn:btih:641F8E7B0ABB33C507F3B5CBC7F3F660FF44124C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ SyncTime - самое простое решение для синхрониза�
 magnet:?xt=urn:btih:0469ED26C22C781BCB105D97903D8E0FDE0581D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:893CEB55590A4A1F45869D0FEE5C5EEA38B8A69A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Invisible является простым в использовании и оч�
 magnet:?xt=urn:btih:8738AB854CE3F626B922313344CADE5B363E3D6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ Xliff Editor- предоставляет простой способ редак�
 magnet:?xt=urn:btih:67BA72955B66BAE634D072EC740566961701F498
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ ColorWell обеспечивает мгновенный доступ к стан
 ```bash
 magnet:?xt=urn:btih:1ABB32EB8FAD9779B4536830EBCE15E82A0ABA23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:1ABB32EB8FAD9779B4536830EBCE15E82A0ABA23
 magnet:?xt=urn:btih:4ADE3A3EB8ABD6F7678B87D0C1F8CE49063D6EB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ Bulletstorm [Ru/En/Multi7] (L/1.0.7111.0) 2011 2xDVD5
 magnet:?xt=urn:btih:38372B13E2436A3C5CD8CF6174B74F4364C42B5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ TG Pro — контроль температуры и вентиляторов �
 magnet:?xt=urn:btih:5D8F3D8FFB5F05B5BDB687E8CC8BE4402BFEE7FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ magnet:?xt=urn:btih:5D8F3D8FFB5F05B5BDB687E8CC8BE4402BFEE7FE
 ```bash
 magnet:?xt=urn:btih:9FED3A827C7D97DD357F58CB7E7A81A86B06F878
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ magnet:?xt=urn:btih:9FED3A827C7D97DD357F58CB7E7A81A86B06F878
 magnet:?xt=urn:btih:B4D01AC1496DFFD02B9A9CCDE6451F46A2511905
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ magnet:?xt=urn:btih:B4D01AC1496DFFD02B9A9CCDE6451F46A2511905
 ```bash
 magnet:?xt=urn:btih:61DBCCBFC74E54C96033ED399B15E91BADDA7F6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

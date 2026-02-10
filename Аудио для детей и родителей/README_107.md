@@ -22,6 +22,8 @@ VA - Детская супер дискотека (2011) [MP3|256 kbps]<Детс
 magnet:?xt=urn:btih:CD50351392D78FD9BC67CD842C3CB8E66B0D0963
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ Laura Omloop - Verliefd (2010) [MP3|320 кб/с]<POP (для детей)>
 ```bash
 magnet:?xt=urn:btih:09D9264EACC1D31C137E98D3CC464A3B5B5EECEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -88,6 +92,8 @@ Laura Omloop - KLAAR VOOR (2012) [MP3|~225 кб/с (V1)]<POP (для детей)
 magnet:?xt=urn:btih:E833AF230894B24DEC76F22D6CDF9C0A631A7444
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +127,8 @@ Laura Omloop - Wereld Vol Kleuren (2011) [MP3|192 кб/с]<POP (для дете�
 magnet:?xt=urn:btih:EC0A969FE7D717A7050A039B10E52CCE75BFDEF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +153,8 @@ magnet:?xt=urn:btih:EC0A969FE7D717A7050A039B10E52CCE75BFDEF5
 magnet:?xt=urn:btih:2B13384E052BDF3E725C7DCE55DBC1D30B7AE72C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +178,8 @@ magnet:?xt=urn:btih:2B13384E052BDF3E725C7DCE55DBC1D30B7AE72C
 ```bash
 magnet:?xt=urn:btih:5879BCB4947C71A2A594A980DCF10CA8E5024BC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +208,8 @@ VA - Детские песенки. Из мультфильмов и детск�
 magnet:?xt=urn:btih:1912E2187BD89E51B564838B2C8330A0BEDAD880
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +237,8 @@ VA - Колыбельные природы (2009) [FLAC|tracks]<Детская �
 magnet:?xt=urn:btih:38429C4C5844ABE783776F9A6B10DA09DD1497DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +263,8 @@ magnet:?xt=urn:btih:38429C4C5844ABE783776F9A6B10DA09DD1497DC
 ```bash
 magnet:?xt=urn:btih:950A20494123C65F527FC5E6A9C1AE02765181FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +291,8 @@ magnet:?xt=urn:btih:950A20494123C65F527FC5E6A9C1AE02765181FE
 magnet:?xt=urn:btih:6E7C909E3F20036D27B39EC2BD9ACFE9D1F231FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +316,8 @@ VA - 50 классических произведений для детей (200
 ```bash
 magnet:?xt=urn:btih:17604739A39FF9A5D2B02F0090BECFAEF26A142F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +346,8 @@ magnet:?xt=urn:btih:17604739A39FF9A5D2B02F0090BECFAEF26A142F
 magnet:?xt=urn:btih:32DEA266E3EB71E460A7A47D086C7BDDC2556D65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +374,8 @@ Julio Kladniew - Babies Go Bach (2003) [MP3|192 kbps]<Классика для д
 ```bash
 magnet:?xt=urn:btih:4AF8DCCB6617C82E334010B348CE574F07D2C465
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +404,8 @@ VA - Планета хитов. Детям. Природа. (2006) [MP3|320 kbps
 magnet:?xt=urn:btih:FB2E17EA245022BBBE27433ECC0FB1AE05877C2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +430,8 @@ magnet:?xt=urn:btih:FB2E17EA245022BBBE27433ECC0FB1AE05877C2D
 magnet:?xt=urn:btih:16C429F5C9F7A061537E9542FD5CE422714FE49A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +455,8 @@ magnet:?xt=urn:btih:16C429F5C9F7A061537E9542FD5CE422714FE49A
 ```bash
 magnet:?xt=urn:btih:9F3E8698A7ED1501DE7184455265DD01C9705BE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +484,8 @@ magnet:?xt=urn:btih:9F3E8698A7ED1501DE7184455265DD01C9705BE2
 magnet:?xt=urn:btih:32A018A8C7248A9CD830D19D54F7E7EF03FDE93A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +509,8 @@ magnet:?xt=urn:btih:32A018A8C7248A9CD830D19D54F7E7EF03FDE93A
 ```bash
 magnet:?xt=urn:btih:43F88A38D0813FF7BE6FE64A4199B6FB78905AF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +537,8 @@ magnet:?xt=urn:btih:43F88A38D0813FF7BE6FE64A4199B6FB78905AF2
 magnet:?xt=urn:btih:AD890566117F61F7135A2C1169A91E758E1F51EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +562,8 @@ magnet:?xt=urn:btih:AD890566117F61F7135A2C1169A91E758E1F51EE
 ```bash
 magnet:?xt=urn:btih:7C012CFBE8A7DBFE254EE54C4F01C7E9D508DBC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +589,8 @@ magnet:?xt=urn:btih:7C012CFBE8A7DBFE254EE54C4F01C7E9D508DBC8
 magnet:?xt=urn:btih:7BD38DE2C5BCA5EE9BAE62D1ACCF068714893E87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +614,8 @@ magnet:?xt=urn:btih:7BD38DE2C5BCA5EE9BAE62D1ACCF068714893E87
 ```bash
 magnet:?xt=urn:btih:B236B42E93B25380B19830E6577540D75C9FD9E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +641,8 @@ magnet:?xt=urn:btih:B236B42E93B25380B19830E6577540D75C9FD9E3
 magnet:?xt=urn:btih:E0AE8E9A7062843468A870914FC643A34677BCEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +667,8 @@ magnet:?xt=urn:btih:E0AE8E9A7062843468A870914FC643A34677BCEC
 ```bash
 magnet:?xt=urn:btih:6D2785BB7D8E7761921261123D3D3D19DB057B11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +697,8 @@ VA - Under Green Corn Moon: Native American Lullabies - Индейские ко�
 magnet:?xt=urn:btih:5D486994E417AD2A09DB0B95172821DE6174684F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,6 +722,8 @@ magnet:?xt=urn:btih:5D486994E417AD2A09DB0B95172821DE6174684F
 ```bash
 magnet:?xt=urn:btih:1D0990131ED7A70C8A5CA49EE64CBE8EA287FF77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

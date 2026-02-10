@@ -1,669 +1,728 @@
-###  Публикация: 1135233   (683050) от 18.05.2017
+###  Публикация: 1290059   (682070) от 18.03.2019
 
-VA - The House Meloman Collection (2017) [MP3|320 Kbps] <House, Progressive, Future House>
+Журнал | Приусадебное хозяйство №3 [+ Приложения] (март 2019) [PDF, DJVU]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал знакомит садоводов, огородников, цветоводов с современными технологиями и народным опытом возделывания овощных, плодовых, ягодных и лекарственных культур, с огромным разнообразием садовых и комнатных цветов, с новыми и незаслуженно забытыми сортами. Не обойдены вниманием и владельцы домашних ферм — здесь они находят ответы на многие вопросы по содержанию животных (   Читать дальше...   )Жанр: Дача, сад, огородФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DF99D16DEB08F44704CB7107491E7EA917A4883
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289922   (682071) от 18.03.2019
+
+Karen O & Danger Mouse - Lux Prima (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Art Rock, Trip Hop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682071.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Lux Prima (09:02)
+2. Ministry (05:06)
+3. Turn the Light (03:19)
+4. Woman (02:54)(   Читать дальше...   )Жанр: Electronic, Art Rock, Trip HopПродолжительность: 00:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDF5A8814D8EA38B2921822BD3D1B067690AEF8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290089   (682072) от 18.03.2019
+
+Журнал | Дорога к православному храму №3 (8) (2019) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если в доме то и дело происходит что-то неприятное, сама собой возникает мысль: надо его освятить. Сказано - сделано! Берем крещенскую воду и начинаем кропить углы. Как? Да как «знающие» люди из числа знакомых или соседей подскажут.
+А во благо ли такие манипуляции? И вообще что за ритуал мы производим? Имеет ли он какое-то отношение к православию?
+Об этом здесь пойдет (   Читать дальше...   )Жанр: популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:780B1508FC53EF7AA5B849D5891ACF52140A9896
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290015   (682073) от 18.03.2019
+
+VA - Cr2 Miami 2019 (3 CD) (2019) [MP3|320 Kbps] <House, Electro House, Progressive House>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683050.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682073.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Audiorock - Party People  4:15
-02.  Dimaro & Pegasus - Last Night (On Earth) (Dimaro Club Mix)  5:39
-03.  DJs From Mars & Luca Testa feat. Becko - Stronger  4:20
-04.  Eskai & SNR feat. Jhana - Find Yourself (Original Mix)  5:02(   Читать дальше...   )Жанр: House, Progressive, Future HouseПродолжительность: 04:55:46
+Disc 1:
+01. Nervo & Lux - Why Do I (Stash Konig Remix) (03:42)
+02. 3LAU Ft. Carly Paige - Would You Understand (Original Mix) (03:30)
+03. Virtual Self - Ghost Voices (Original Mix) (04:27)(   Читать дальше...   )Жанр: House, Electro House, Progressive HouseПродолжительность: 05:47:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A786F46CD7D87F8B6FB9F7B17AB9A0F2B8FBB599
+magnet:?xt=urn:btih:BBC7CDBF9C6AA40D7387602A2706922809687E26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135221   (683051) от 18.05.2017
+###  Публикация: 1290144   (682074) от 18.03.2019
 
-The Bitzpan - More Than Cotton (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Dub>
+Elysian Fields - The Afterlife (2009) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Dark Jazz, Noir Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683051.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682074.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Sad Affair Indeed (05:18)
- 02. Boom Boo Life (08:06)
- 03. Pensive Ramble (07:32)Жанр: Downtempo, DubПродолжительность: 00:20:56
+01. How We Die (5:22)
+02. Where Can We Go But Nowhere (4:46)
+03. Drown Those Days (4:04)
+04. Turns Me On (3:57)(   Читать дальше...   )Производство: Vicious Circle – Reverb 103Жанр: Alternative Rock, Dark Jazz, Noir Rock, Dream PopПродолжительность: 00:43:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC8B4493F666EEF9C7B966823B9E55DB1D3F64E5
+magnet:?xt=urn:btih:99EC4C7728498DAB546D688C169E938B7C3A5B41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135285   (683052) от 18.05.2017
+###  Публикация: 1289679   (682075) от 18.03.2019
 
-Лидия Грибова (сост.) | Птичка-пуночка (1980) [DJVU]
+The Young Gods - Data Mirage Tangram (2019) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock, Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682075.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Entre En Matière (07:11)
+2. Tear up the Red Sky (07:28)
+3. Figure Sans Nom (06:08)
+4. Moon Above (06:01)(   Читать дальше...   )Жанр: Rock, Alternative Rock, IndustrialПродолжительность: 00:53:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:758D5299BDD7440BE22C6A8A2109614D3156F0FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290117   (682076) от 18.03.2019
+
+øjeRum (ojeRum) - Nattesne (Eilean 85) (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Ambient, Neofolk>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	I 	(4:45)
+02. 	II 	(2:42)
+03. 	III 	(4:42)
+04. 	IV 	(2:19)(   Читать дальше...   )Жанр: Electronic, Ambient, NeofolkПродолжительность: 00:58:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCCEA44D23036558E181C79D0EDD3F07492CCFE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289983   (682077) от 18.03.2019
+
+VA - Latin Fit 2019-Latin Hits For Aerobic Exercises and Fitness Activities (2019) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luka J Master; Carlo M - El Numerado (Radio Mix)
+02. The Maximum - La Fuerza (Extended Mix)
+03. Alain Deejay - La Isla (feat. Flores Del Sol)
+04. Luka J Master - Conmigo (feat. Mairon Rodriguez & Xent) (Carlo M Extended)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:12:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BEDF086105CE94AEA4B7BC14EF481BE11C65C5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289938   (682078) от 18.03.2019
+
+Le Butcherettes - bi/MENTAL (2019) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. spider/WAVES (feat. Jello Biafra) (05:47)
+02. give/UP (03:40)
+03. strong/ENOUGH (04:20)
+04. father/ELOHIM (02:19)(   Читать дальше...   )Жанр: Rock, Alternative Rock, IndieПродолжительность: 00:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BCFBC3490B4BAECDC1D467587FFCA6E89E0FD4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289996   (682079) от 18.03.2019
+
+Лобату Монтейру | Сказки тётушки Настасии (1958) [FB2]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683052.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682079.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Давным-давно, а когда именно, никто и не знает, стали рассказывать сказки. Каждым народом свои сказки сложены, каждый народ любит, помнит и бережёт свои сказки. Те, что собраны в этой книге, — придуманы чукчами и эскимосами.
-
-Живут чукчи и эскимосы в тундре, на Крайнем Севере нашей страны, на Чукотском полуострове, у холодных морей.
-(   Читать дальше...   )Жанр: Детская проза, СказкаФормат: DJVU
+Рассказы для младшего и среднего школьного возраста.Жанр: Детская прозаПеревод: В. А.Низский, С. М.ГилановФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD4961004D81D67134CC9F80C4A21E1A2E9A9D88
+magnet:?xt=urn:btih:A89797ACF9EE684E10910ADE1D22BE82EC364674
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135244   (683053) от 18.05.2017
+###  Публикация: 1289824   (682080) от 18.03.2019
 
-Duke Ellington - The Best of Duke Ellington (1991) Pablo [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bateau [05:27]
-02. Sophisticated Lady [05:02]
-03. Goof [03:16]
-04. Black Butterfly [03:44](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DABE563DC666929257B19494C197C55B60BA4B12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135197   (683054) от 18.05.2017
-
-И. Гроссман-Рощин | Художник и эпоха (1928) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемый вниманию читателей сборник статей почти целиком посвящен проблеме связи художника с революционной эпохой.
-
-Мы полагаем, что тщательное уяснение характера связи художника с нашей эпохой важно не только в смысле идеологическом, но и литературоведческом.Жанр: История, политология, искусство, литературоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C2E1FAA6DB49CACFBAC7D1B8B8B0DE138373CE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135126   (683055) от 18.05.2017
-
-VA - Deep Diving In The Sea With Music (2017) [MP3|320 Kbps] <Trance>
+AnyTrans for Android 7 v7.0.0 (build 20190314) [Multi]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683055.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682080.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Topmodel - Within (02:56)
-2. Troy Mandalon - Listed (02:56)
-3. Tabish Green - Patch (03:03)
-4. Roy Nelson - Types (03:03)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:28:59
+AnyTrans for Android - предназначен для быстрой и удобной передачи файлов с компьютера на android девайс и наоборот. Музыку, фото, видео, приложения, книги, контакты, sms и другие данные можно добавить в ваш android девайс буквально в два счета и так же просто вытащить их оттуда.Тип издания: macOS SoftwareРелиз состоялся: 14.03.2019Разработчик: iMobie Inc.Поддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:89E67ECC2591103B255112BD7221D8566FDA0C25
+magnet:?xt=urn:btih:007B00EB3B8043221F08C7C4DD9D13C3FB807C7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135078   (683056) от 18.05.2017
+###  Публикация: 1290114   (682081) от 18.03.2019
 
-VA - Electro Lounge Dinner Party (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+VA - Schlager Total - Die Hits aus den Discotheken 2019 DJ Dance Mixe (2019) [MP3|320 Kbps] <Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682081.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Angelique - Lieder der Nacht (Price Tunes Extended DJ Mix)
+002. Pat - Dieser eine Augenblick (DJ Tanz Mix)
+003. Lyane Hegemann - Halt mich fest (Wetcat EDM Mix)
+004. Connor Meister - Liebesvisionen (Price Tunes DJ Mix)(   Читать дальше...   )Жанр: SchlagerПродолжительность: 06:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4FF211D33A0E3ADC7E599011103D2A854E8ED08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290075   (682082) от 18.03.2019
+
+Valverde Brothers - After Midnight (1978) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. After Midnight (7:51)
+02. Standing In The Shadow Of Love (6:06)
+03. Living A Lie (6:03)
+04. Mexican Taxi Man (4:34)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:28:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57BAB83B1F6EC00A7D727F475237E2396556DD35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290118   (682083) от 18.03.2019
+
+VA - New Music Releases Week 10 (2019) [MP3|320 Kbps] <Pop, Hip Hop, Alternative>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682083.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 13 - Oath
+002. 88GLAM, Lil Yachty, David Charles Marshall Biral, Denzel Michael-Akil Baptiste, Russell Chell - Lil Boat (Remix)
+003. Above & Beyond, Zoë Johnston - Sahara Love (Seven Lions Remix)
+004. AC Slater, Young Lyxx - Free Your Soul(   Читать дальше...   )Жанр: Pop, Hip Hop, AlternativeПродолжительность: 12:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9878D5747AD0852F05AE09F1D7DF570544D0BEE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289760   (682084) от 18.03.2019
+
+Curtis Salgado & Alan Hager - Rough Cut (2018) [FLAC|Lossless|tracks + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Will Not Surrender  4:58
+02. So Near To Nowhere  3:57
+03. One Night Only  2:50
+04. I Want My Dog To Live Longer  2:47(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBEFD0364DC11914C821D6CBD0D3EFF37ED0B2FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289933   (682085) от 18.03.2019
+
+Darkwater - Human (2019) [FLAC|Lossless|tracks + .cue] <Rock, Progressive Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A New Beginning (6:20)
+02. In Front of You (7:28)
+03. Alive (Pt. I) (1:26)
+04. Alive (Pt. II) (7:22)(   Читать дальше...   )Жанр: Rock, Progressive Metal, Power MetalПродолжительность: 01:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F56567C3A0C10E0D890E5B0EE28C0721058B46C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290019   (682086) от 18.03.2019
+
+VA - Cr2 Records Presents Miami Underground (2 CD) (2019) [MP3|320 Kbps] <House, Tech House, Techno>
 
 >>Electronic
->>Easy listening
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683056.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682086.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. GYSNOIZE - Horizon of Love
-02. Antonio Arena - Renewal
-03. Wolf Colony - Youth
-04. J-Tizzle - Transparent Odyssey(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:57:29
+Disc 1:
+01. Roger That (UK) - How Does It Feel (Extended Mix) (07:02)
+02. Piem - You Better (Original Mix) (08:08)
+03. Julie McDermott - Don't Go (Ejeca Remix) (06:22)(   Читать дальше...   )Жанр: House, Tech House, TechnoПродолжительность: 03:24:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:33FEB2BE4A00144247E912B4B669651E88E38353
+magnet:?xt=urn:btih:1860032621BD2149B9F1F5F4DDE1D9729F59B89A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135179   (683057) от 18.05.2017
+###  Публикация: 1289666   (682087) от 18.03.2019
 
-VA - Summer Vibes Vol.2 (2017) [MP3|320 Kbps] <Trance>
+The Fall - Bend Sinister | The Domesday Pay-Off Triad Plus! (2019) RM. [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Punk Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683057.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682087.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Claudio Diva/Smorphya - Arkadia (05:38)
-02. Daniele Mondello - Earthquake (07:01)
-03. Soul Downloaders - Nevermind (feat Pablo B) (05:16)
-04. Maurel Del Principo - One Evening (feat Adam Clay) (09:03)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:36:50
+01/18. R.O.D. (Remastered) (4:33)
+ 02/18. DKTR. Faustus (Remastered) (5:34)
+ 03/18. Shoulder Pads 1# (Remastered) (2:56)
+ 04/18. Mr. Pharmacist (Remastered) (2:20)(   Читать дальше...   )Жанр: Alternative Rock, Punk RockПродолжительность: 01:20:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD02947412ABA2C301AE9E89F6C8673537DB07BC
+magnet:?xt=urn:btih:14FDF635675A3F98F4BC26BE4C8B805B95671930
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135276   (683058) от 18.05.2017
+###  Публикация: 1289677   (682088) от 18.03.2019
 
-Steve Kuhn Trio - At This Time... (2017) Sunnyside [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+Bona Fide - The Soul Movers (2019) [FLAC|Lossless|WEB-DL|tracks] <Soul>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683058.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682088.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. My Shining Hour [06:33]
-02. Ah Moore [09:20]
-03. The Pawnbroker [06:10]
-04. All the Rest is the Same [07:34](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:58:51
+01. Snippet 1
+02. If I Could Ever
+03. What Good Is Your Love
+04. Snippet 2(   Читать дальше...   )Жанр: SoulПродолжительность: 00:53:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:599DACBBEA1602BA9A14BE57AE001F089420C584
+magnet:?xt=urn:btih:0778CE02BA1611F0F5F55E563CCF1410505F9BA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135252   (683059) от 18.05.2017
+###  Публикация: 1290011   (682089) от 18.03.2019
 
-Duke Ellington - The Duke Ellington Collection: 40 Great Tracks (1999) 2CD, Musicworld [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683059.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Take the 'A' Train [02:56]
-02. Washington Wobble [03:04]
-03. The Mooche [03:19](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:08:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA8E42D81955E56DF1C1898D16AD1E58CFFAE943
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135236   (683060) от 18.05.2017
-
-Duke Ellington - Compact Jazz: Duke Ellington & Friends (1987) Verve [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take the 'A' Train [06:41]
-02. Caravan [05:59]
-03. Cottontail [03:23]
-04. Mood Indigo [06:20](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:56:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBBBBED6A2270350012213322BDE90D5B195071A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135210   (683061) от 18.05.2017
-
-Duke Ellington - Jazz Masters 1953-1955 (1997) EMI Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Satin Doll [02:58]
-02. Flamingo [03:43]
-03. Liza [03:15]
-04. In the Mood [06:00](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:19:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E91EC9091DF0D27BF7D99D6727471952F914F2D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 335966   (683066) от 12.05.2011
-
-Смертельные узы / Wedlock (1991) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фрэнк Уоррен, его любовница Ноэл и лучший друг Сэм совершают дерзкое, но тщательно продуманное ограбление Всемирного торгового центра, похитив бриллианты на многие миллионы долларов. При уходе с места ограбления Фрэнк был ранен своими же подельниками и попал в руки полиции, но «камушки» успел спрятать.
-
-Фрэнка помещают в тюрьму, где нет ни стен, ни решеток, но на (   Читать дальше...   )Жанр: Боевик, Криминал, ФантастикаРежиссер: Льюис ТигАктеры: Рутгер Хауэр, Джеймс Римар, Мими Роджерс, Джоан Чэнь, Стивен Тоболовски, Бейзил Уоллес, Гранд Л. Буш, Дэнис Форест, Гленн Пламмер, Белль ЭйвериПеревод: Одноголосый закадровыйПродолжительность: 01:38:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44EDBC3F75A908F30F7CCCC352F002A0057AB67B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 213329   (683069) от 26.06.2010
-
-Евгений Борисович Пастернак | Двенадцать вечеров с Пастернаком [2010] [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь каждого переплетена теми или иными событиями. Но иногда случается так, что Судьба или Провидение мановением перста вселяют человека в такую гущу событий, которых хватило бы на десять жизней.
-
-Евгений Пастернак является именно таким свидетелем эпохи, очевидцем уникальных событий по праву рождения. Судьба маленького Жени, сына Бориса Пастернака, была предопределена (   Читать дальше...   )Жанр: мемуары
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C710D9D889FF74AE7FCFEB2F5F9D3183361EFFA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 898003   (683102) от 14.05.2015
-
-Uniblue SpeedUpMyPC 2015 6.0.9.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683102.jpg" />
-</div>
-
-
-###  Подробнее
-
-SpeedUpMyPC является удобным настройщиком вашей операционной системы и обеспечивает для нее более устойчивую и быструю работу. Программа позволяет освобождать память и другие системные ресурсы, предотвращать фатальные сбои, уменьшать время загрузки и делать более эффективной связь с интернетом. Утилита также позволяет проводить мониторинг системы и дает рекомендации по ускорению запуска программ. Хотя скорость работы процессора и не изменяется, но, определив критические приложения, можно увеличить число циклов (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:592413B9E84452895C200252AC9BA8D358B31DE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 885969   (683103) от 14.05.2015
-
-Живая мертвая девушка / La morte vivante / The Living Dead Girl (1982) BDRip [H.264/720p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683103.jpg" />
-</div>
-
-
-###  Подробнее
-
-Какие-то умники вздумали прятать бочки с токсичными отходами в подвале старого особняка, рядом со склепом, где покоились тела хозяйки и ее дочери Кэтрин. Гадость протекла и оживила девушку. Почему-то тление не тронуло тело похороненной два года назад Кэтрин, но, как и полагается настоящему зомби, она испытывала непреодолимые каннибальские инстинкты. Хелен, подруга детства живой мертвой девушки, случайно обнаружила ее, и решила выступить в качестве поставщика «пищи» для страдающей от голода Кэтрин.Производство: ФранцияЖанр: УжасыРежиссер: Жан РолленАктеры: Марина Пьерро, Франсуаза Бланчард, Майк Маршалл, Карина Бароне, Fanny Magier, Patricia Besnard-Rousseau, Jean Berel, Жан-Пьер Буксоу, Вероника Карпентье, Жан ШерлианПеревод: Одноголосый закадровыйЯзык субтитров: Русский, АнглийскийПродолжительность: 01:29:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AE31AF6961DD6BC67475212402A7E95EBEF0992
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 896560   (683104) от 14.05.2015
-
-Военный парад, посвященный 70-й годовщине Победы в ВОВ 1941-1945г. Москва + Шествие Бессмертный полк (2015.05.09) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Отечественная история
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый год 9 мая во многих странах мира отмечают День Победы над немецко-фашистскими захватчиками. Но нигде этот праздник не празднуют с таким размахом, как в России. В 2015 году на 70-летие Дня Победы в Москве планируется самый масштабный и запоминающийся военный парад. Безусловно, каждый хотел бы увидеть это мероприятие своими глазами, однако не у всех есть возможность. (   Читать дальше...   )Производство: Первый каналЖанр: Документальный, ТелепередачаПродолжительность: 01:57:00 и 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BF0C68A667F5B51E41BF34338B98130F34D2800
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 897752   (683105) от 14.05.2015
-
-VirtualBox 4.3.28.100309 Final + Extension Pack [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683105.jpg" />
-</div>
-
-
-###  Подробнее
-
-VirtualBox - специальная программа для создания в памяти ПК виртуальных компьютеров. Каждый виртуальный компьютер может содержать произвольный набор виртуальных устройств и отдельную операционную систему. Область применения виртуальных компьютеров очень широка - от выполнения функций по тестированию ПО до создания целых сетей, которые легко масштабировать, распределять (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F9B320081875157F16BF81CF489DB95A35A8B6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 897968   (683106) от 14.05.2015
-
-Lost Trails / Остров: Затерянные судьбы (2015) [Ru] Unofficial
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Две сироты, Мэгги и Элисон, росли без родителей. Из детских воспоминаний у девушек остались только обрывочные моменты из жизни на острове, который семья по какой-то причине покидала в спешке. Однажды Мэгги решает вернуться на этот остров и совершенно неожиданно исчезает бесследно. Ее сестра вынуждена отправиться на таинственный остров, чтобы раскрыть тайны древнего зла и найти Мэгги. Смогут ли храбрые сестры преодолеть все трудности и предотвратить надвигающуюся угрозу?Тип издания: Неофициальное изданиеРазработчик: Cariboo GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: n/a (отсутствует)Язык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A98C84EA618A6868D0AAE854D42C8C6DABE3609
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 897917   (683107) от 14.05.2015
-
-Книжная серия | Психология для всех [5 книг] (2014-2015) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эффективные упражнения помогают быстро научиться применять советы психолога в реальной жизни! Будьте успешны и счастливы в общении – будьте успешны и счастливы во всем! Станьте мастером успеха во всех своих делах!
-
-Нейролингвистическое программирование часто называют магией. Возможности преображения себя и мира, которые дает эта дисциплина, - поистине магические. Только эта магия -- без мистики и тайн. Это магия, которую может творить каждый человек при помощи собственного мозга! Книга Алекса Нарбута содержит (   Читать дальше...   )Жанр: ПсихологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEEC491C5F4DA35CA7DC9E6718DBB2521B78F477
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 897982   (683108) от 14.05.2015
-
-Lost Lands: The Four Horsemen / Затерянные Земли. Четыре Всадника (2015) [Ru] Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Со времен последнего кризиса в Затерянных Землях прошло много лет. Но древнее Зло возродилось вновь! Со всех поселений начали приходить тревожные вести о четырёх Черных Всадниках, которые выжигают целые деревни, сеют смерть и проклятия, замораживают водоемы. Они стремятся завладеть порталом в параллельные миры и ищут магический ключ к порталу, уничтожая все на своем пути. Мудрые жители Земель вспомнили о смелой воительнице из другого мира и снова призвали ее спасти мир от сил Зла...Тип издания: Неофициальное изданиеРазработчик: 5BN GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:925D932C72DFF3E3AE38C990B5C36C7B181AE506
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 896481   (683112) от 14.05.2015
-
-Машина времени в джакузи 2 / Hot Tub Time Machine 2 (2015) BDRip [H.264/1080p] [UNRATED] [Line]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда Лу попадает в беду, Ник и Джейкоб решают воспользоваться машиной времени в джакузи, чтобы вернуться в прошлое, но неожиданно оказываются в будущем с Адамом младшим. Теперь им придется изменить будущее, чтобы исправить события в прошлом.Производство: СШАЖанр: Фантастика, КомедияРежиссер: Стив ПинкАктеры: Роб Кордри, Крэйг Робинсон, Кларк Дьюк, Адам Скотт, Гиллиан Джейкобс, Чеви Чейз, Коллетт Вульф, Бьянка Хаазе, Джейсон Джонс, Кумэйл Нанджиани, Келли Стюарт, Джош ХилдПеревод: Дублированный (Чистый звук)Продолжительность: 01:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:371564D949F9C26D4452210CAFF1AAEE46BBCE34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 897784   (683116) от 14.05.2015
-
-Сарила - Затерянная земля / The Legend of Sarila (2013) DVD9 [BD - DVD9]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Далеко на севере лагерь эскимосов-кочевников находится под угрозой голода и вымирания. Шаман племени, Крулик, не в силах помочь, и людей охватывает отчаяние. Некоторые из них обретают надежду в древней легенде о далёкой Сариле — земле, спрятанной среди ледников, в которой не существует холода и голода. Легенда гласит, что только те, кто чист сердцем, могут попасть (   Читать дальше...   )Производство: Канада, Cinema Management Group, Alliance Films, Telefilm CanadaЖанр: Компьютерная анимация, ПриключенияРежиссер: Нэнси СевардПерсонажи: Кристофер Пламмер (Croolik, озвучка), Дастин Миллиган (Markussi, озвучка), Рашель Лефевр (Apik, озвучка), Тим Розон (Poutulik, озвучка), Женевьев Бюжо (Saya, озвучка), Анджела Галуппо (Mipoulok, озвучка), Тайрон Бенскин (Itak, озвучка), Роберт Хигден (Arlok, озвучка), Илайс Туфексис (Kauji, озвучка), Холли О’Брайэн (Jiniak, озвучка), Джеймс Кидни (Kwatak, озвучка), (   Читать дальше...   )Перевод: ДублированныйПродолжительность: 01:17:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE233D247DF48AC7187590E13B4D29A4800207A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222648   (683122) от 30.04.2018
-
-Лаврентий Берия | Победа ленинско-сталинской национальной политики (1936) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683122.jpg" />
-</div>
-
-
-###  Подробнее
-
-К 15-летию советской власти в Грузии. Статья, опубликованная в "Правде" от 25 февраля 1936 года.
-
-Только беспощадно разгромив национал-уклонизм, коммунистическая партия Грузии обеспечила успешное осуществление ленинско-сталинской национальной политики, руководя делом социалистического строительства в Грузии и проводя интернациональное воспитание масс.
-(   Читать дальше...   )Жанр: История, политология, экономика, правоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02A7FE003F1A63B3FC0142C650DF5DE90ECE5F13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222593   (683123) от 30.04.2018
-
-Е. Поселянин | Русские подвижники 19-го века (1910) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683123.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данной книге представлена обширная галерея портретов русских подвижников христианской веры и церковной деятельности XIX века от таких широко прославленных, как преподобный Серафим Саровский, оптинский духовидец старец Макарий или святитель Филарет, до менее известных - Ивана Яковлевича Корейша и Задонского юродивого Антония Алексеевича. Сочинение содержит 45 жизнеописаний (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EF86272A0608A48802898C058F9631B94CE3842
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222690   (683124) от 30.04.2018
-
-Moonbootica - Future (2018) [FLAC|Lossless|WEB-DL|tracks] <Club House>
+VA - Simma Black Presents Miami 2019 (2 CD) (2019) [MP3|320 Kbps] <House, Tech House>
 
 >>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683124.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682089.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Moonbootica & BONDI - Lost & Found (4:28)
-02. Moonbootica & Jack Beauregard - Covered in Gold (6:12)
-03. Moonbootica & BONDI - Trippin' (4:17)
-04. Moonbootica feat. Nneka - Do Not Do Me (Like Dis) (4:11)(   Читать дальше...   )Жанр: Club HouseПродолжительность: 01:08:23
+Disc 1:
+01. Endor - Metronome (Original Mix) (04:49)
+02. Leon Benesty, Benny Royal & Shermanology - I Can't Take (Original Mix) (05:49)
+03. Javi Bora, Iban Montoro & Jazzman Wax - Go To Miami (Original Mix) (06:35)(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 03:03:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1E3511CFF0448D16A3D68EF49B24BBB551CF03E4
+magnet:?xt=urn:btih:B76B3E07B218E66AC6FD0BD67BBE6C5F79FBEF6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528869   (682095) от 08.03.2022
+
+Засуха / Sequia (2022) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Засуха осушила водохранилище Кампомедиано, и на поверхности оказалось преступление двадцатилетней давности. Два трупа с огнестрельными ранениями, найденные на дне, всколыхнут тихий городок на границе Испании и Португалии. Инспектору Даниэле Янес предстоит выяснить подробности случившегося и вытащить на свет еще не один «скелет из шкафа» ...Производство: Португалия, Испания / Atlantia Media, Coral Europa, Radio Televisión Española (RTVE)Жанр: триллер, криминалРежиссер: Хоакин Льямас, Ориоль ФеррерАктеры: Елена Ривера, Родольфо Санчо, Марко Де Альмейда, Мирйам Гальего, Мигель Анхель Муньос, Гильерме Филипе, Маргарида Маринью, Сорая Чавес, Хуан Хеа, Beatriz Frazão и др.Перевод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, испанскийСубтитры: РусскиеПродолжительность: ~01:00:00 серияРеклама: Присутствует реклама - аудио+видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42C90932F716D3F121A4122807B2BC549DCFD750
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535823   (682097) от 08.03.2022
+
+3D print - Artisan Guild - Welcome Box - DnD Miniatures [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начальный набор моделей для игры в DnD от Artisan Guild (дается при покупке любого из наборов, или подписки на patreon). Содержит базовых героев и врагов, несколько элементов интерьера, а также несколько бюстов. В комплекте вы найдете:
+- все вышеперечисленные файлы для печати
+- аналогичные файлы, но с поддержками
+- последнюю версию настольной системы GUILD, которая (   Читать дальше...   )Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:619C4103A24E0AC55F66BF1A26C6D6D40B2D7C20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535535   (682098) от 08.03.2022
+
+Король-львенок / King (2022) CamRip [H.264/720p-LQ] [MVO, AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_682098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Львёнок по кличке Кинг сбегает из клетки при перевозке в аэропорту и прячется в доме 12-летней Инес и 15-летнего Алекса. Брат и сестра решают вернуть короля-львёнка в Африку и сбегают из дома, считая себя уже достаточно взрослыми для невероятного путешествия на край света.Производство: Франция, Бельгия / Full House, Maneki Films, Borsalino Productions, Pathé, Bellini Films, France 2 Cinéma, Auvergne Rhône-Alpes Cinéma, Scope PicturesЖанр: Комедия, семейныйРежиссер: Давид МороАктеры: Жерар Дармон, Лу Ламбрехт, Лео Лорлеак, Тибо де Монталембер, Клементин Баэр, Арту, Мариус Бливе, Лоран Бато, Ванесса Дэвид, Мари-Сона КондеПеревод: Профессиональный многоголосый (Синема УС)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:32:42Реклама: Присутствует баннер!
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532630   (682099) от 08.03.2022
+
+«V» значит Вендетта / V for Vendetta (2005) BDRip [H.265/1080p-LQ] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альтернативное будущее. В Англии после страшной эпидемии неизвестного вируса повергшей страну в хаос, устанавливается жестокая диктатура властного канцлера со всеми сопутствующими прелестями: комендантский час, всевластие членов партии над простыми людьми и, конечно, сотни тайных стукачей-осведомителей. Однажды ночью в Лондоне появляется борец за свободу, известный (   Читать дальше...   )Производство: Великобритания, Германия / Anarchos Productions Inc., DC Comics, Fuenfte Babelsberg Film, Medienboard Berlin-Brandenburg, Silver Pictures, Virtual Studios, Warner Bros.Жанр: фантастика, боевик, триллер, драмаРежиссер: Джеймс МакТигАктеры: Натали Портман, Хьюго Уивинг, Стивен Ри, Стивен Фрай, Джон Хёрт, Тим Пиготт-Смит, Руперт Грейвз, Роджер Аллам, Бен Майлз, Шинед КьюсакПеревод: дублированный, двухголосый профессиональный, авторскийЯзык озвучки: русский, украинский, английскийСубтитры: русские, английские (SDH)Продолжительность: 02:12:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:664D8D3879367466CF1A5212A29A9507D786142F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535916   (682100) от 08.03.2022
+
+Удовольствие / Pleasure (2021) BDRemux [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682100.jpg" />
+</div>
+
+
+###  Подробнее
+
+19-летняя Линнея решает покинуть родной шведский городок и переехать в Лос-Анджелес. Там она намеревается сменить имя и стать порно-звездой. Но ее путь к успеху оказывается не таким, как она предполагала.Производство: Швеция, Нидерланды, Франция / Plattform Produktion, Film i Väst, Sveriges Television (SVT)Жанр: ДрамаРежиссер: Нинья ТюбергАктеры: София Каппель, Зельда Моррисон, Эвелин Клэр, Крис Кок, Дэна ДеАрмонд, Кендра Спейд, Джейсон Толер, Марк Шпиглер, Лэнс Харт, Джон СтронгПеревод: Профессиональный многоголосый (КиноПоиск HD)Субтитры: Русские, английскиеПродолжительность: 01:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFB9D3F8E34815BFCB690898C72409D617BAC566
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535739   (682101) от 08.03.2022
+
+Искушение / Benedetta (2021) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Италия эпохи Возрождения. Место, где великая красота хладела в руках инквизиторов. Терзаемая эротическими видениями монахиня Бенедетта Карлини влюбляется в новую послушницу, пылкую и безрассудную. Вскоре об их запретной страсти узнают за пределами монастыря.Производство: Франция, Бельгия, Нидерланды / SBS Productions, Pathe, France 2 CinemaЖанр: драма, мелодрама, биография, историяРежиссер: Пол ВерховенАктеры: Виржини Эфира, Шарлотта Рэмплинг, Дафна Патакия, Ламбер Вильсон, Оливье Рабурден, Луиз Шевильот, Эрве Пьер, Клотильда Куро, Давид Клавель, Гилен ЛондезПеревод: дублированный, многоголосый профессиональный (Jaskier)Язык озвучки: русский, французскийСубтитры: русские, английские, французскиеПродолжительность: 02:11:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9544DDF0B34885068C2DE5E7D45E2AAC6EB42F8B
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

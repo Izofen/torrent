@@ -1,3 +1,30 @@
+###  Публикация: 565628   (398116) от 28.10.2012
+
+Как он лгал её мужу (1956) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_398116.jpg" />
+</div>
+
+
+###  Подробнее
+
+По пьесе Бернарда Шоу.
+Аврора Бомпас теряет тетрадь стихов, посвященных ей возлюбленным Генри. Тетрадь находит ее муж Тедди Бомпас. Генри и Аврора, что только не предпринимают, чтобы скрыть от Тедди, кому посвящены эти стихи. Но развязка непредсказуема. Оказывается, что муж, намеревается опубликовать стихи - пусть все знают, что его жена самая очаровательная и обольстительная женщина на свете...Жанр: КомедияРежиссер: Татьяна БерезанцеваАктеры: Елена Кузьмина, Иннокентий Смоктуновский, Аркадий ЦинманПродолжительность: 00:26:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B65AF044A70006B8E4A1BC3D1CB8F4EF0B319ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 565125   (400901) от 25.10.2012
 
 Чёрный капитан (1973) SATRip
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:5F73A3F474837CDDB2B20A81E50E59D5A8C1EBCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:5F73A3F474837CDDB2B20A81E50E59D5A8C1EBCD
 magnet:?xt=urn:btih:95AD30E799CF0CA3059A0478E2992AA548D9E534
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +97,8 @@ magnet:?xt=urn:btih:95AD30E799CF0CA3059A0478E2992AA548D9E534
 ```bash
 magnet:?xt=urn:btih:F01E315904B2EE81F1B2EBD4CCBAEA2FC933E472
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +124,8 @@ magnet:?xt=urn:btih:F01E315904B2EE81F1B2EBD4CCBAEA2FC933E472
 magnet:?xt=urn:btih:212D2AAAAF8D1C9642E3785654C6801A11108DAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +149,8 @@ magnet:?xt=urn:btih:212D2AAAAF8D1C9642E3785654C6801A11108DAF
 ```bash
 magnet:?xt=urn:btih:CF0CA365001BEF32767F04D2ECE03AC0AFB08575
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +176,8 @@ magnet:?xt=urn:btih:CF0CA365001BEF32767F04D2ECE03AC0AFB08575
 magnet:?xt=urn:btih:0A8F714A8F4E1AC26E207C8F333FF47C703EDD51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +202,8 @@ magnet:?xt=urn:btih:0A8F714A8F4E1AC26E207C8F333FF47C703EDD51
 magnet:?xt=urn:btih:F91E8A97AF724333D19C27192ED101D42F0CEAC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +227,8 @@ magnet:?xt=urn:btih:F91E8A97AF724333D19C27192ED101D42F0CEAC5
 ```bash
 magnet:?xt=urn:btih:C1CB27B7F5D3CF0201938396386D9B231E0F9320
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +256,8 @@ magnet:?xt=urn:btih:C1CB27B7F5D3CF0201938396386D9B231E0F9320
 magnet:?xt=urn:btih:88FFC699E7C5698A5681A91F83C755EFA8CEE468
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +284,8 @@ magnet:?xt=urn:btih:88FFC699E7C5698A5681A91F83C755EFA8CEE468
 magnet:?xt=urn:btih:8D4F2E75F7A1782913F61D88083966F735640CDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +311,8 @@ magnet:?xt=urn:btih:8D4F2E75F7A1782913F61D88083966F735640CDD
 magnet:?xt=urn:btih:EAAFA6C33DDDDD9A704E8E8078DA9443AAA86773
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +336,8 @@ magnet:?xt=urn:btih:EAAFA6C33DDDDD9A704E8E8078DA9443AAA86773
 ```bash
 magnet:?xt=urn:btih:0BC7781B2F74CE5834495E6378F036A0ECC9BD38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +363,8 @@ magnet:?xt=urn:btih:0BC7781B2F74CE5834495E6378F036A0ECC9BD38
 magnet:?xt=urn:btih:71AAFB5105EE440DBCCDFBCC9F480F82335300AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +389,8 @@ magnet:?xt=urn:btih:71AAFB5105EE440DBCCDFBCC9F480F82335300AC
 magnet:?xt=urn:btih:2DF650ED7E3C281238B6EEDFD26CFCC60647A4E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +414,8 @@ magnet:?xt=urn:btih:2DF650ED7E3C281238B6EEDFD26CFCC60647A4E1
 ```bash
 magnet:?xt=urn:btih:8D22CA9100DD14E8740977F820C69009E107A4FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +442,8 @@ magnet:?xt=urn:btih:8D22CA9100DD14E8740977F820C69009E107A4FA
 magnet:?xt=urn:btih:5967515AFD071F530FB603B372FCC19F01D789A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +467,8 @@ magnet:?xt=urn:btih:5967515AFD071F530FB603B372FCC19F01D789A2
 ```bash
 magnet:?xt=urn:btih:7F49AA3BD6AC164C7B81C20C4C10E5DAE7D9477A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +502,8 @@ magnet:?xt=urn:btih:7F49AA3BD6AC164C7B81C20C4C10E5DAE7D9477A
 magnet:?xt=urn:btih:49E2622CE539E4F9A1C485F7847EFA290F0A2FE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +527,8 @@ magnet:?xt=urn:btih:49E2622CE539E4F9A1C485F7847EFA290F0A2FE2
 ```bash
 magnet:?xt=urn:btih:1F611F8F3981D881E11AF73084BE3E87E3E0C625
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +554,8 @@ magnet:?xt=urn:btih:1F611F8F3981D881E11AF73084BE3E87E3E0C625
 magnet:?xt=urn:btih:3AFA98FA6C460393D7A77CED770FA43F2E52EC71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +579,8 @@ magnet:?xt=urn:btih:3AFA98FA6C460393D7A77CED770FA43F2E52EC71
 ```bash
 magnet:?xt=urn:btih:B71256F463940340A336EE3FCDB07BF0715BBCCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +607,8 @@ magnet:?xt=urn:btih:B71256F463940340A336EE3FCDB07BF0715BBCCF
 magnet:?xt=urn:btih:99D97EAA41E8F6D8FF7D15329AFC96659A5AEA3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +632,8 @@ magnet:?xt=urn:btih:99D97EAA41E8F6D8FF7D15329AFC96659A5AEA3D
 ```bash
 magnet:?xt=urn:btih:7AFE1188D23B2CAFE2207F8C145E4E752563E1A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +660,8 @@ magnet:?xt=urn:btih:7AFE1188D23B2CAFE2207F8C145E4E752563E1A2
 magnet:?xt=urn:btih:A1AC8E9710DADFE63CE1905919EA5796DD102C36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,29 +687,7 @@ magnet:?xt=urn:btih:A1AC8E9710DADFE63CE1905919EA5796DD102C36
 нет
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252296   (410968) от 04.10.2018
-
-Дом напротив (1958) SATRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шофер Вася, лежащий в больнице с тяжелыми переломами, не верит в возможность выздоровления. Особую тоску наводит на него полуразвалившийся дом напротив. Но вот однажды приходят рабочие, разбирают развалины и начинают строить новый дом. Переговариваясь со строителями и наблюдая за их работой, Вася начинает оживать. Особенно этому помогают шутки молодой каменщицы Таси. (   Читать дальше...   )Производство: СССР / ЛенфильмЖанр: Короткометражный, драмаРежиссер: Аян ШахмалиеваАктеры: Глеб Селянин, Галина Дунаева, Людмила Касьянова, Степан Крылов, Ольга Аверичева, Александр Орлов, Николай Кузьмин, Виктор ТереховСубтитры: ОтсутствуютПродолжительность: 00:29:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2109A54BEEDB4266072624E12345B14E8C9D386
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

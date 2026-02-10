@@ -19,6 +19,8 @@ Dead Age 2 – это продолжение успешной инди-игры 
 magnet:?xt=urn:btih:EE1B1464A0218E7991C7D98C87EA92FF76BCBA67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Witcher 2: Assassins of Kings / Ведьмак 2: Убийцы короле�
 ```bash
 magnet:?xt=urn:btih:D9A993B78C0F6A178DA3AD7DF7257ACE1609ABC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Ruined King: A League of Legends Story (2021) [Ru/Multi] (60323/dlc) License GOG
 magnet:?xt=urn:btih:999D6AFAC3365A595A8AF2F95C17F87C6A0A6854
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Baldo: The Guardian Owls (2021) [Ru/Multi] (1.03) License GOG
 ```bash
 magnet:?xt=urn:btih:8A8C8EB96791EA7DE6F9262BA2EBBDCF5EB34FEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Disco Elysium — это новаторская смесь из сваренно
 magnet:?xt=urn:btih:275D9CB66E70527C03D17B5894FF2FD611911B12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Immortals: Fenyx Rising – приключение в вымышленном м�
 ```bash
 magnet:?xt=urn:btih:BE66367D4D2FD9BAC045F5E38D0472956C4CCA4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Chronos: Before the Ashes (2020) [Ru/Multi] (1.1) License GOG
 magnet:?xt=urn:btih:5B614786EE7F1EF3643E71034679396BF5E783AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Wild Hearts - кооперативное приключение, в которо
 ```bash
 magnet:?xt=urn:btih:EC8A4D860B9F4AB6EB69D83A35E671482BD04F98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Wizards & Warriors (2000) [En] (1.0b HotFix2) License GOG
 magnet:?xt=urn:btih:461E970C51BF4C8688C3C0842FB6AC7B4DBC895B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Windbound – ролевая игра в открытом мире с элеме
 ```bash
 magnet:?xt=urn:btih:89DFFAD3C197B600F0A04DA37F262C5921054B8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Kingdoms of Amalur: Re-Reckoning (2020) [Ru/Multi] (1.10/dlc) License GOG
 magnet:?xt=urn:btih:ABEFFE6F6B2AA025DC66BF5D43C114BE6BD5F500
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Empire of Sin — новая стратегическая игра от Romero G
 ```bash
 magnet:?xt=urn:btih:790E001AC161250436CA3C018CDB8CFD67F043FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Vampire: Masquerade - Coteries of New York представляет конфли
 magnet:?xt=urn:btih:1AEB68439652F4D8BC11BB0B65EF4C75DE99DE6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Sunrider 4: The Captain's Return (2023) [En] (1.2.0.2) License GOG
 ```bash
 magnet:?xt=urn:btih:7FABD1B3DEC92AF51B45C5B649A68EB7B9213361
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Wasteland 2: Director's Cut (2014) [Ru/Multi] (2.3.0.5(a)) License GOG [Digital 
 magnet:?xt=urn:btih:27772993A21743609950C2ABF3F2AB135C574ADA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Battle Brothers пошаговая стратегия-рпг в которой �
 ```bash
 magnet:?xt=urn:btih:87BFC5A15E78E30FFFCE572B22BAC5119B71A99E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Outward – приключенческая РПГ, события которой
 magnet:?xt=urn:btih:EC64485564124A3CB293BF55EE74CBDFCECEC596
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Disjunction (2021) [Ru/Multi] (1.03) License GOG
 ```bash
 magnet:?xt=urn:btih:B60607A5C6E0EF6DB6D9A407C0BBAE395796F4D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Weird West (2022) [Ru/Multi] (1.78819/dlc) License GOG
 magnet:?xt=urn:btih:ECC6785AE40C0B888B96F971C29FFB465302EBA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Wo Long: Fallen Dynasty – это ролевой экшен от третьег
 ```bash
 magnet:?xt=urn:btih:265F530BFF285754364D3DF365F6E4D4BB9C2FF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Minecraft Dungeons (2020) [Ru/Multi] (1.7.3.0.5135400/dlc) Repack xatab
 magnet:?xt=urn:btih:F04E1BFBDEEB0AA030AFFBA4558EEF15818939F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Rebel Galaxy Outlaw (2020) [Ru/Multi] (1.18d) License GOG
 ```bash
 magnet:?xt=urn:btih:F3EB873A17E30BB239DCE3AAED7A4A9805BC9BB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ SpellForce 3: Fallen God (2020) [Ru/Multi] (1.4) Repack xatab
 magnet:?xt=urn:btih:756C94F22FE56957E2358B65037055CA5960906A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Vampires Dawn 3 - The Crimson Realm погружает пользователя 
 ```bash
 magnet:?xt=urn:btih:1B3F35C1C481A425581257F2664C1518E7501C9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Redemption Reapers - приключенческое фэнтези, в кото�
 magnet:?xt=urn:btih:B322FAA3A4F840BA6A38DD95CB2D06906C661E41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Owlcat Games, 18 000 спонсоров с Kickstarter, дизайнер пов�
 ```bash
 magnet:?xt=urn:btih:680DE9708FC986EE71C98F7BDF9CCC76F4DC2FF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ NG: Самые опасные животные. Стайные охотники 
 magnet:?xt=urn:btih:AA69CA4090C16A309809862901532061F3BCD039
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NG: Самые опасные животные. Суперспособности
 ```bash
 magnet:?xt=urn:btih:B278E3D9154F26FBA2BCB3DC38DD52CF342549FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:B278E3D9154F26FBA2BCB3DC38DD52CF342549FC
 magnet:?xt=urn:btih:FD8F842B01DAFD1AFCBA12F36170FAF78A272BAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:FD8F842B01DAFD1AFCBA12F36170FAF78A272BAC
 ```bash
 magnet:?xt=urn:btih:7F4FEE2CE0577B9151C0C120BA92644AAD76EBF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:7F4FEE2CE0577B9151C0C120BA92644AAD76EBF5
 magnet:?xt=urn:btih:B22148538E3F5CB23A7FBBD5C13E6B36B32A03BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ BBC: После заката. Мир ночной природы. Серия №
 ```bash
 magnet:?xt=urn:btih:91D72BF876EB99DE9FE200AC22BF0BA62E58E1D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ BBC: Дикая Аравия. Серия №2 / Wild Arabia (2013) HDTVRip
 magnet:?xt=urn:btih:1587A3A3103EF3DBDBB4DD79134C3A0F8D5540AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:1587A3A3103EF3DBDBB4DD79134C3A0F8D5540AB
 ```bash
 magnet:?xt=urn:btih:526D4CA2382862169237CA54276FEF9362953DC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:526D4CA2382862169237CA54276FEF9362953DC6
 magnet:?xt=urn:btih:6581F63810C1D0A36EC04BD6532FEEEDA6C29214
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:6581F63810C1D0A36EC04BD6532FEEEDA6C29214
 ```bash
 magnet:?xt=urn:btih:06CC8F9DEE37250DA3A0CE95FB5363FCEB025CA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:06CC8F9DEE37250DA3A0CE95FB5363FCEB025CA9
 magnet:?xt=urn:btih:1D2D529F3212ABFE8AE2561B3C96BC6ADD2BF879
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:1D2D529F3212ABFE8AE2561B3C96BC6ADD2BF879
 ```bash
 magnet:?xt=urn:btih:0DF481A36CB769E5F74761AF0AF8846A4B87416C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:0DF481A36CB769E5F74761AF0AF8846A4B87416C
 magnet:?xt=urn:btih:3AED11E313946CBAFB54BBC6DA4A929424EB888F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:3AED11E313946CBAFB54BBC6DA4A929424EB888F
 ```bash
 magnet:?xt=urn:btih:A41D0647CFC763183A62C71BDB3F956E4B971849
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ BBC: Дикая Аравия. Серия №1 / Wild Arabia (2013) HDTVRip
 magnet:?xt=urn:btih:85763393FFC2F8E087333B3F5354336C94CD27B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ magnet:?xt=urn:btih:85763393FFC2F8E087333B3F5354336C94CD27B7
 ```bash
 magnet:?xt=urn:btih:A14EB64D64BC0CA6113EC139F87AD18FAFEFFE36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:A14EB64D64BC0CA6113EC139F87AD18FAFEFFE36
 magnet:?xt=urn:btih:07FAA7FB203C2A3CDF464211B824335E878E91C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ BBC: Борьба за выживание (Испытания Жизни). Бр�
 ```bash
 magnet:?xt=urn:btih:3F3E878420E56F0C2678CDA571F9786AEDB93754
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ BBC: Борьба за выживание (Испытания Жизни). Пр�
 magnet:?xt=urn:btih:345B652B6BF565E603E795DBD09848E4DD791571
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ magnet:?xt=urn:btih:345B652B6BF565E603E795DBD09848E4DD791571
 ```bash
 magnet:?xt=urn:btih:5574281A7638B36B130305A48DBE7A365DE610D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ magnet:?xt=urn:btih:5574281A7638B36B130305A48DBE7A365DE610D1
 magnet:?xt=urn:btih:F6C71CDB28D8D63E3D37BD98BB6E18211E3F69C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ magnet:?xt=urn:btih:F6C71CDB28D8D63E3D37BD98BB6E18211E3F69C2
 ```bash
 magnet:?xt=urn:btih:5CCE635C5D010E46EBE8B9EFCBB3ADB1225DF96D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ magnet:?xt=urn:btih:5CCE635C5D010E46EBE8B9EFCBB3ADB1225DF96D
 magnet:?xt=urn:btih:E65B50825228BC550BCC111D67892636BD55E9CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ BBC: Борьба за выживание (Испытания Жизни). Сх�
 ```bash
 magnet:?xt=urn:btih:64DD5404F05B04B863330A5A74EA2AC5243093C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ magnet:?xt=urn:btih:64DD5404F05B04B863330A5A74EA2AC5243093C3
 magnet:?xt=urn:btih:030A738DBF443BE1FCC5848119ACC66940016B86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ magnet:?xt=urn:btih:030A738DBF443BE1FCC5848119ACC66940016B86
 ```bash
 magnet:?xt=urn:btih:B5EF81E25E27BDDBBA973EA77DCC59B9A4D51266
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

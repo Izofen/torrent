@@ -1,3 +1,29 @@
+###  Публикация: 1209035   (779589) от 24.02.2018
+
+Тацунари Иота | Она не объясняет, он не догадывается. Японское искусство диалога без ссор (2018) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Впервые в России! Японский бестселлер по отношениям. Все любовные истории уникальны, но ругаемся мы по одним и тем же причинам. Эксперт по коммуникации Тацунари Иота решил проблему непонимания между полами. Он выявил 36 основных источников конфликта полов, объяснил их с научной точки зрения и сформулировал фразы для мужчин и женщин, которые мгновенно решают эти конфликты. (   Читать дальше...   )Жанр: Зарубежная психология, Семейная психология, Социальная психологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6613C384B05D8AB71F6E3B3F9F48F5EACD52E1C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209033   (779593) от 24.02.2018
 
 Игорь Прокопенко | Тайны пророчеств и предсказаний (2018) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:20F5800A5AF27E5C43C21F4E8CEDD9AA52B2BC5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:20F5800A5AF27E5C43C21F4E8CEDD9AA52B2BC5E
 ```bash
 magnet:?xt=urn:btih:B0944F12726801A6EEC3F990F2A9C7D26064AC09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:B0944F12726801A6EEC3F990F2A9C7D26064AC09
 magnet:?xt=urn:btih:A8A94CCD27F7568F1BF49F7DF353A7300FA66540
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:A8A94CCD27F7568F1BF49F7DF353A7300FA66540
 ```bash
 magnet:?xt=urn:btih:B535ED43495E2C7D280A326D84B741DDE1D83F4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:B535ED43495E2C7D280A326D84B741DDE1D83F4A
 magnet:?xt=urn:btih:CEF31D36C34C733DD160E5144144608B8D446E73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:CEF31D36C34C733DD160E5144144608B8D446E73
 ```bash
 magnet:?xt=urn:btih:E711D05A854854D2BD1852F8E0CC07E91F68B740
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +207,8 @@ magnet:?xt=urn:btih:E711D05A854854D2BD1852F8E0CC07E91F68B740
 magnet:?xt=urn:btih:39E031F0449D3E12119DF3B9161E45A842A51292
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +235,8 @@ magnet:?xt=urn:btih:39E031F0449D3E12119DF3B9161E45A842A51292
 magnet:?xt=urn:btih:C46CAF54FA11D43025A8E6A11DF07996A0EB0CCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:C46CAF54FA11D43025A8E6A11DF07996A0EB0CCB
 ```bash
 magnet:?xt=urn:btih:036FE914DA1195B1F27BBBBAB24E96F3D9750BC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +288,8 @@ magnet:?xt=urn:btih:036FE914DA1195B1F27BBBBAB24E96F3D9750BC6
 ```bash
 magnet:?xt=urn:btih:E270A3CED4DBD8837FE0AC4F58766F55B9F02EB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +318,8 @@ magnet:?xt=urn:btih:E270A3CED4DBD8837FE0AC4F58766F55B9F02EB2
 magnet:?xt=urn:btih:61C2C412D209F02A334E8E32C34AE37C7822A73F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +345,8 @@ magnet:?xt=urn:btih:61C2C412D209F02A334E8E32C34AE37C7822A73F
 ```bash
 magnet:?xt=urn:btih:2E33DE5B04E1AD85D8C688946079276A5FF5417B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +374,8 @@ magnet:?xt=urn:btih:2E33DE5B04E1AD85D8C688946079276A5FF5417B
 magnet:?xt=urn:btih:884E90DD6C18C9C4688DB66637A0B08A30EE0A7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +399,8 @@ magnet:?xt=urn:btih:884E90DD6C18C9C4688DB66637A0B08A30EE0A7F
 ```bash
 magnet:?xt=urn:btih:0E74A3DEDB922692152EADF82BCCF68C803320FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +427,8 @@ magnet:?xt=urn:btih:0E74A3DEDB922692152EADF82BCCF68C803320FC
 magnet:?xt=urn:btih:B605B63968728C166CADA9A50E954280DF5A6588
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +452,8 @@ magnet:?xt=urn:btih:B605B63968728C166CADA9A50E954280DF5A6588
 ```bash
 magnet:?xt=urn:btih:F1F4EA19452347DA5FCAB20B6E04A812D37B22E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +479,8 @@ magnet:?xt=urn:btih:F1F4EA19452347DA5FCAB20B6E04A812D37B22E8
 magnet:?xt=urn:btih:3B8A9BCA8241D37C3C8990288C78D1E36091C49B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +504,8 @@ magnet:?xt=urn:btih:3B8A9BCA8241D37C3C8990288C78D1E36091C49B
 ```bash
 magnet:?xt=urn:btih:513A6210A0D8657E2D556008755571000343906C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +534,8 @@ magnet:?xt=urn:btih:513A6210A0D8657E2D556008755571000343906C
 magnet:?xt=urn:btih:F15FAACF983E8A60279D91C935BF783E8F426A0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +559,8 @@ magnet:?xt=urn:btih:F15FAACF983E8A60279D91C935BF783E8F426A0C
 ```bash
 magnet:?xt=urn:btih:39F6848B188E9F1CBD0B7E60400526E4B1E12658
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +586,8 @@ magnet:?xt=urn:btih:39F6848B188E9F1CBD0B7E60400526E4B1E12658
 magnet:?xt=urn:btih:00E03D71B5A10C9349D8B64309F4255ED84796FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +612,8 @@ magnet:?xt=urn:btih:00E03D71B5A10C9349D8B64309F4255ED84796FE
 ```bash
 magnet:?xt=urn:btih:C8A06AA882E8A6B54C8E9B5877F59A5FC69DAB25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +641,8 @@ magnet:?xt=urn:btih:C8A06AA882E8A6B54C8E9B5877F59A5FC69DAB25
 magnet:?xt=urn:btih:AB729898DE9FA766322FAD7D61630C1BA26CB409
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +666,8 @@ magnet:?xt=urn:btih:AB729898DE9FA766322FAD7D61630C1BA26CB409
 ```bash
 magnet:?xt=urn:btih:172FF70C2B66C0B09F1EA85FF1A24CA7A1FAD27D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,29 +693,7 @@ magnet:?xt=urn:btih:172FF70C2B66C0B09F1EA85FF1A24CA7A1FAD27D
 magnet:?xt=urn:btih:69F10F38CDADAD79433E300ED5093FD42AC6744F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207409   (780412) от 19.02.2018
-
-А. Древс | Происхождение христианства из гностицизма (1930) [DJVU, PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Древс ведет длительную и настойчивую борьбу за доказательство мифологичности Иисуса Христа. Эта научная истина не новая, но она встретила ожесточенное сопротивление со стороны всех церковников и подавляющего большинства буржуазных ученых. В течение четверти века Артур Древс ведет в Германии настойчивую пропаганду мифологичности Иисуса, поддерживая взгляд, высказанный (   Читать дальше...   )Жанр: История, политология, религиоведение, мифологияФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BACDAA3A5E1D2F60BD2F4B4293A3EC2FF7BBECC8
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

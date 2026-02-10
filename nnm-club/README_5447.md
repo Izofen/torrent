@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C10270B2EDB7F18FC9D855955E8C48210F2CC4FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Zelbo - In My Dreams (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 magnet:?xt=urn:btih:2D3B64CCBB20EAF13BC7A6A41D5A04F8F8A003DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:2D3B64CCBB20EAF13BC7A6A41D5A04F8F8A003DE
 ```bash
 magnet:?xt=urn:btih:E4B4E3FDE8B83D51A31C90ADE245238D9DB11A5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ VA - Новый год 2021 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:C9F3EEDD892749FFAE23DE6095E3B73E534641AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:C9F3EEDD892749FFAE23DE6095E3B73E534641AB
 ```bash
 magnet:?xt=urn:btih:344DEAD4DC084C655D96CF68A7BB41120A6A7C3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Cap Outrun - High On Deception (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Roc
 magnet:?xt=urn:btih:415A343FEFC53F7D300DA92FAB73169A77E7F170
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:415A343FEFC53F7D300DA92FAB73169A77E7F170
 magnet:?xt=urn:btih:F63E162AD38929C286222ECB99EE7E9B05868ACB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:F63E162AD38929C286222ECB99EE7E9B05868ACB
 ```bash
 magnet:?xt=urn:btih:1F5078A7C8A370C7E49AD12C8629CA3EFF8B4B30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ VA - 90's Best Eurodance: New Years Edition 2021 (2020) [MP3|320 Kbps] <Eurodanc
 magnet:?xt=urn:btih:7C15D5D8F4C62A328721660879687D37144BCEAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:7C15D5D8F4C62A328721660879687D37144BCEAD
 magnet:?xt=urn:btih:69FFBC959EB50DC4E835017926A4A4064285586F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:B1BF9C54784C650E4537D9C505938BC5E048B543
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ VA - Defected Presents Most Rated Summer 2021 (2021) [AAC|~318 Kbps] <House, Dis
 magnet:?xt=urn:btih:4BEBDD2EB9B0B491539A3B918C641D2899043664
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 ```bash
 magnet:?xt=urn:btih:DC802C2FF92B46C8A5B0E239F1BE52CFA60B55ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:DC802C2FF92B46C8A5B0E239F1BE52CFA60B55ED
 magnet:?xt=urn:btih:A888ACECB445065FF8CC8E5D92D401586E15F431
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ magnet:?xt=urn:btih:A888ACECB445065FF8CC8E5D92D401586E15F431
 ```bash
 magnet:?xt=urn:btih:97912A9553D2E6D4CE7BA8A6CB6B44DAE2A946A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ VA - Defected Presents Most Rated 2021 (2020) [AAC|~322 Kbps] <House, Nu Disco>
 magnet:?xt=urn:btih:87021E3A19FE92C8B1CC5D3C557FBAA63D1D5B62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:87021E3A19FE92C8B1CC5D3C557FBAA63D1D5B62
 ```bash
 magnet:?xt=urn:btih:79B4CCEBF51A437242646279AF74CFED278D7B05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:79B4CCEBF51A437242646279AF74CFED278D7B05
 magnet:?xt=urn:btih:2C9178B6FDC2F6802411E4B6B7BC7C66D24C9C7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ Dead Space жива! Автор хоррора анонсировал идейн
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ Dead Space жива! Автор хоррора анонсировал идейн
 ```bash
 magnet:?xt=urn:btih:A6BD5AA47FEFE0408506967FBB1C2AA59731C25C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ Racecorner - Radiostation (2021) [AAC|~365 Kbps] <Dub Techno, Deep Techno>
 magnet:?xt=urn:btih:DCD64FBAFA72718A0443D66DE0DE7EDC23838760
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:DCD64FBAFA72718A0443D66DE0DE7EDC23838760
 magnet:?xt=urn:btih:3FFE767CA1E5BE1E29CBBA57849C4C07D2115F0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ magnet:?xt=urn:btih:3FFE767CA1E5BE1E29CBBA57849C4C07D2115F0E
 ```bash
 magnet:?xt=urn:btih:3311847B278D24847A24DC20D3C4264C181DB880
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +641,8 @@ VA - Caravan 3 (2020) [AAC|~321 Kbps] <Chill Out, Downtempo, Organic House, Ethn
 magnet:?xt=urn:btih:41EE50EB424272EBD3996C850A87A7746E946933
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +667,8 @@ Seal 1.10.0 [Ru/Multi]
 magnet:?xt=urn:btih:E7C4FF9F6DF8F917EB0B2A7D9937600480568439
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ magnet:?xt=urn:btih:E7C4FF9F6DF8F917EB0B2A7D9937600480568439
 ```bash
 magnet:?xt=urn:btih:CFEAC7E7A0557C322A6F42B4401BDC0E627B0774
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

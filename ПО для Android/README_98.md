@@ -19,6 +19,8 @@ vRGB - LED ИК Пульт Управления v4.5 [Ru]
 magnet:?xt=urn:btih:6DA49B7F6752942D89A5C006F719012102BEEA2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Perfectly Clear позволяет создать идеальную фотог�
 magnet:?xt=urn:btih:28F2BCCF3249ED77B6A72CE9EFB6BC8184B6C806
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ HelloChinese 5.0.6 [Ru/Multi] - Учим китайский
 ```bash
 magnet:?xt=urn:btih:51AAFE219904B38973FC3D9F3A6A964DEB3DB75F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Power Shortcuts - весьма полезное приложение для по
 magnet:?xt=urn:btih:D4D27FCB80F7E2FEE287E20D74F1064769AF6250
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:D4D27FCB80F7E2FEE287E20D74F1064769AF6250
 ```bash
 magnet:?xt=urn:btih:345AA45E30EDBA2290506ED08567561C8315271D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Viber – эта программа позволяет делать беспла
 magnet:?xt=urn:btih:951ECB250EE3409EFAC6B253571499EA5E425254
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:951ECB250EE3409EFAC6B253571499EA5E425254
 magnet:?xt=urn:btih:BE039F1A42E77B8B6A361A59689D3FCACDD94273
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ File Explorer (Plus Add-On) — очередной файловый менедж
 ```bash
 magnet:?xt=urn:btih:4FC526BBDB6B0D33DE6BDC8597A8E09980744807
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ RunKeeper 5.8.3 [Multi]
 magnet:?xt=urn:btih:9AAEDA72C0A7DE108EAA39DCD73DA41CF0970BFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:9AAEDA72C0A7DE108EAA39DCD73DA41CF0970BFD
 ```bash
 magnet:?xt=urn:btih:6C78B788E5D8E056E28171B3EC4EB796AA9D087E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:6C78B788E5D8E056E28171B3EC4EB796AA9D087E
 magnet:?xt=urn:btih:C458592FA897EB0680AD1CE960A9D175630D20E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Screen Translator Plus v3.2.1 [Ru/Multi] - Переводчик буфера о�
 ```bash
 magnet:?xt=urn:btih:11535DB5AF08E6D00A3BAC2CD066438412A0E6DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:11535DB5AF08E6D00A3BAC2CD066438412A0E6DA
 magnet:?xt=urn:btih:3A03617318740200B0DEF0321B7CF24152523A80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Cloud Radio Pro - это онлайн радио для устройств по�
 ```bash
 magnet:?xt=urn:btih:A69ABE694F4E88E80631307247D3B59C62BD51CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:A69ABE694F4E88E80631307247D3B59C62BD51CE
 magnet:?xt=urn:btih:BCF1EAD6F58965ED0E81286BB4A42025C473E335
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ VidTrim Pro является редактором видео. Она включ�
 ```bash
 magnet:?xt=urn:btih:B84E76270F2829DF57B7E6432CBDA606B7A73DF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:B84E76270F2829DF57B7E6432CBDA606B7A73DF4
 magnet:?xt=urn:btih:83C326322BCAB79F32F7E3BBD04A1D0EA3E73E4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:83C326322BCAB79F32F7E3BBD04A1D0EA3E73E4A
 magnet:?xt=urn:btih:B61EA5788C595E0993B8123597C8EA05FC7EC0D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:B61EA5788C595E0993B8123597C8EA05FC7EC0D2
 ```bash
 magnet:?xt=urn:btih:042680F1AABF50F368656FB78931BDB4401F1ED6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:042680F1AABF50F368656FB78931BDB4401F1ED6
 magnet:?xt=urn:btih:67439492B802D1037DE88833D41188B69365CE50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ Text Scanner [OCR] v9.3.9 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:6C5271FC7CD30355903A9D5D8917B0DA52EC932E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Adguard предназначен для блокировки абсолютно 
 magnet:?xt=urn:btih:749D6960474FE7F67199BCF631A9F1BB5E1C70EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ FaceLab редактор лица - лучшее приложение для с�
 ```bash
 magnet:?xt=urn:btih:2C379DE3B0C2996B874826E9F2CB549F4E4DD391
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ Learn English - Listening and Speaking v6.3.2 [Ru/Multi]
 magnet:?xt=urn:btih:7B6FFF70F66C747301AEA127CB28939AACFF6989
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:7B6FFF70F66C747301AEA127CB28939AACFF6989
 ```bash
 magnet:?xt=urn:btih:13CB3FE37D3A112200D7E6899D4B67428AAEAE0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +681,8 @@ magnet:?xt=urn:btih:13CB3FE37D3A112200D7E6899D4B67428AAEAE0A
 ```bash
 magnet:?xt=urn:btih:8D776F0FBA7DD0D958A1C24CD5EE07BB25C8054C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

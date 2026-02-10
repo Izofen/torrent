@@ -1,3 +1,29 @@
+###  Публикация: 831876   (695024) от 24.04.2018
+
+Василий Акимович Никифоров-Волгин | Заутреня святителей (2003) [PDF, FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказы Василия Никифорова-Волгина — любимое чтение православной семьи. Его книга — поистине народная книга! В настоящем сборнике все тексты выверены по первоизданиям, включены ранее неизвестные произведения. Рассказы расположены согласно литургическому году, в порядке следования праздников. Впервые представлены литературные оценки душеполезных рассказов писателя, (   Читать дальше...   )Жанр: Православная прозаФормат: PDF, FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF4992F7359871D1186004F9AB36643AB135FB7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133273   (695042) от 12.05.2017
 
 И. М. Концевич | Стяжание Духа Святого в путях Древней Руси (1990) [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:6FEEDEA48E21A88347EC85E5BAAB3BB7CA62D104
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:6FEEDEA48E21A88347EC85E5BAAB3BB7CA62D104
 magnet:?xt=urn:btih:22F6289FC5ECE18400EED6528089005B2DED9895
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:22F6289FC5ECE18400EED6528089005B2DED9895
 ```bash
 magnet:?xt=urn:btih:F6B6DE73D5D32D167C67F5BDE2F6FFEE8E782A46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:F6B6DE73D5D32D167C67F5BDE2F6FFEE8E782A46
 magnet:?xt=urn:btih:CEC7689EE0BCD0D537073E059113932E30E3AF83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:CEC7689EE0BCD0D537073E059113932E30E3AF83
 ```bash
 magnet:?xt=urn:btih:541E02879EB4F17597EBBD285AA1579BBAA1DC63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:541E02879EB4F17597EBBD285AA1579BBAA1DC63
 magnet:?xt=urn:btih:343BFD097FD5F5E99E8949DB1CE0AF967E3BC250
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:343BFD097FD5F5E99E8949DB1CE0AF967E3BC250
 magnet:?xt=urn:btih:FE26AF1CF986F112E0495AB0BC96B0DC1C9F18EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +226,8 @@ magnet:?xt=urn:btih:FE26AF1CF986F112E0495AB0BC96B0DC1C9F18EA
 ```bash
 magnet:?xt=urn:btih:873324D3AA45C76931F76E88375BD5F664AECFCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:873324D3AA45C76931F76E88375BD5F664AECFCA
 magnet:?xt=urn:btih:044CC41A257D3EAB1D59E0BC6BDE9472EAE10E63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:044CC41A257D3EAB1D59E0BC6BDE9472EAE10E63
 ```bash
 magnet:?xt=urn:btih:BE83CB75809378768DEF4A9E69F5868F5DF075ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:BE83CB75809378768DEF4A9E69F5868F5DF075ED
 magnet:?xt=urn:btih:5429F44FFFC75E9F38DB53BC3B420ED9E2787F3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:5429F44FFFC75E9F38DB53BC3B420ED9E2787F3C
 ```bash
 magnet:?xt=urn:btih:339A3022770E73D177EC364803A5131B4995B862
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:339A3022770E73D177EC364803A5131B4995B862
 magnet:?xt=urn:btih:1903C6837EECACA4B12570DD9F59ECA96F470E68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:1903C6837EECACA4B12570DD9F59ECA96F470E68
 ```bash
 magnet:?xt=urn:btih:E61B7016E806A1E779486008F21C444E420D82AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:E61B7016E806A1E779486008F21C444E420D82AC
 magnet:?xt=urn:btih:0B72F44A3C6BAFCE5C7D6099781126B092970203
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:0B72F44A3C6BAFCE5C7D6099781126B092970203
 ```bash
 magnet:?xt=urn:btih:2A1C55B9938EBDF8D0DBCB31610D826A66BB292A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:2A1C55B9938EBDF8D0DBCB31610D826A66BB292A
 magnet:?xt=urn:btih:E43041B9F8E7BF4B372F1BFDD479A669B1202AD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:E43041B9F8E7BF4B372F1BFDD479A669B1202AD8
 ```bash
 magnet:?xt=urn:btih:F1D57149B86EA3628640D74695F0ED97D4D5A730
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:F1D57149B86EA3628640D74695F0ED97D4D5A730
 magnet:?xt=urn:btih:A003DB8199C23A59F4086B49C1D60AABCA16F4D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:A003DB8199C23A59F4086B49C1D60AABCA16F4D0
 magnet:?xt=urn:btih:5CEFCC0003F911FD51F9AD11EA4F8E6BCD7E74B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:5CEFCC0003F911FD51F9AD11EA4F8E6BCD7E74B3
 ```bash
 magnet:?xt=urn:btih:C87C4BB9AF524B604E68B11C4E7FE33F2D27FA84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:C87C4BB9AF524B604E68B11C4E7FE33F2D27FA84
 magnet:?xt=urn:btih:304C733E1162F6730E3AF00B18D87627A53F88F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:304C733E1162F6730E3AF00B18D87627A53F88F9
 ```bash
 magnet:?xt=urn:btih:C925C3BF2E3211273181BCC46D515C37F45F4399
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:C925C3BF2E3211273181BCC46D515C37F45F4399
 magnet:?xt=urn:btih:C8441D974D57F125F5D6BB6DDC6970D0EB0A36D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,29 +680,7 @@ magnet:?xt=urn:btih:C8441D974D57F125F5D6BB6DDC6970D0EB0A36D9
 magnet:?xt=urn:btih:34FB65515855FF55D11C583538D2917328225A86
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288136   (697270) от 10.03.2019
-
-Джеффри Лайкер, Йорго Трахилис | Лидерство на всех уровнях бережливого производства. Практическое руководство (2018) [FB2, EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания может расти и развиваться ровно настолько, насколько она развивает своих лидеров. Времена, когда организациям нужны были только грамотные исполнители, остались в прошлом. Сегодня развитие невозможно без личного участия каждого. Именно так выглядит настоящее лидерство: руководитель, который побуждает коллег постоянно совершенствоваться. Каждый процесс должен (   Читать дальше...   )Жанр: МенеджментПеревод: Ю. СеменихинаФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1198683CDADA4074D83EDB69BB089A525998502
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

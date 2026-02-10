@@ -22,6 +22,8 @@ Udemy, Musab Zayadneh | Python For Ethical Hackers 2021 (2020) PCRec [En / En Su
 magnet:?xt=urn:btih:FBC1931E7B6690086B50FD8ECA8A69EACD47FE5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Udemy, Tim Buchalka's Learn Programming Academy и др. | Освойте CI/CD 
 ```bash
 magnet:?xt=urn:btih:14594FD5AE5F0359A384915584AA861EC9652DC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Udemy, Colt Steele | The Modern Python 3 Bootcamp (2020) PCRec [En / En Sub]
 magnet:?xt=urn:btih:ADBE392E4559CF57BC5D9E940FDFD6A97C2A1A08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Udemy, John Dunning | Python MultiTrack - beginners and professionals - zero to 
 magnet:?xt=urn:btih:104D397C19AE6AE4DA992E3174BA065DF4CDCB86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Udemy, YouAccel Training | Internet and Web Development Fundamentals (2019) PCRe
 ```bash
 magnet:?xt=urn:btih:4FDA0BEEF57D7E5CC7CC24B55334545EE2266C2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:4FDA0BEEF57D7E5CC7CC24B55334545EE2266C2B
 magnet:?xt=urn:btih:4563495305896DBD70996988691D74ECAF55ACDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ SkillFactory | Deep Learning и Нейронные сети (2019) WEB-DL
 ```bash
 magnet:?xt=urn:btih:35B7306AE40FC9443616B57CB2124BC87E42F956
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Udemy, Samuel Girma | Программирование на Go (Golang): Bootcam
 magnet:?xt=urn:btih:1071A5F27EB4D81E47D5AB9A51B0FD1511501F95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Python-разработчик создаёт бэкенд сайтов: мозг
 ```bash
 magnet:?xt=urn:btih:55D9C69AD116D3D5503B5923FE0AAD62DCD4EF07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Udemy, Brad Traversy | 20 веб-проектов с использование�
 magnet:?xt=urn:btih:28FD456CC791B05D1C95FCD272ADDDC6DACA20C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Udemy, Михаил Савчук | ИТ под контролем: как не �
 ```bash
 magnet:?xt=urn:btih:CA14652056DB9269C07796BBACA715E0AE2261DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ Udemy, Andrew Mead | Полный курс веб-разработчика React
 magnet:?xt=urn:btih:7753EEF89F2A073001780C1A56CF99FE4B0EB7A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ Udemy, Brad Traversy | Materialize CSS с нуля + 5 проектов в ку�
 ```bash
 magnet:?xt=urn:btih:A1AAA978FD055FAE73A947B854005E49F2EF110E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ SWIFTBOOK | Подборка платных курсов на русском я�
 magnet:?xt=urn:btih:E22623E4BB24C5AA48C7BDA565D0D3435C7834CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ Udemy, Brad Traversy | Bootstrap 4 с нуля с 5 проектами / Bootstr
 ```bash
 magnet:?xt=urn:btih:D98FE15F89B6FC41A08AD2C03AC963BF465A94B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ Udemy, Brad Traversy | MERN Stack Front To Back: Full Stack React, Redux & Node.
 magnet:?xt=urn:btih:E636BFFAFC4EE952163D42B846DFF588104DD118
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ Udemy, Brad Traversy | Современный HTML и CSS с самого нач
 ```bash
 magnet:?xt=urn:btih:5A5B1D7CA9146D35F020C6A2E9BA8660ED134E6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ Udemy, JuanD MeGon | Освойте Laravel и создавайте прилож
 magnet:?xt=urn:btih:B1C1D4A5ADD53CB2A1A2F81CF14F6A6D3316F503
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ Udemy, Brad Traversy | Python Django Dev To Deployment (2020) PCRec [En / En Sub
 magnet:?xt=urn:btih:A47951E578D9C98D1274A3C78A3C40D32CDB2E65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ Udemy, Brad Traversy | Современный JavaScript с самого нач�
 ```bash
 magnet:?xt=urn:btih:81066C86E0F3792A1CC48E0A04FFECCCDFE433D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +556,8 @@ RESTful API(   Читать дальше...   )Производство: UdemyЖ
 magnet:?xt=urn:btih:2894F3858647BD0876F1DD0FAABD655DEFE00761
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +581,8 @@ Udemy, Brad Traversy | React Front To Back (Hooks, Context, MERN и Redux) / Rea
 ```bash
 magnet:?xt=urn:btih:41E0D14B4B131D64C6A61E471C0B758ABA126FED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,32 +609,7 @@ Packt, Pavlos Vinieratos | React Native: Советы, Подсказки и Т�
 magnet:?xt=urn:btih:4058599C52BA6BCD9441109A1A7494F35678E4D1
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436997   (1042637) от 02.01.2021
-
-Udemy, Antonio Papa | React и Laravel: От Монолита к Микросервисам / React and Laravel: Breaking a Monolith to Microservices (2020) PCRec [En / En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Микросервисная архитектура, React, Next.js, Laravel, Docker, RabbitMQ, микросервисы управляемые событиями, внутренние API, Redis. Узнайте, как создать монолит с помощью React и Laravel, а затем, как перейти на микросервисы.
-
-В этом руководстве:
-Создайте SPA с React, Next.js и Laravel;(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 15:07:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EDD60E1E00AEA10574049D2008891C08DFC3829
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +637,8 @@ HTML Academy | Интерактивные тренажёры HTML Academy (2020)
 magnet:?xt=urn:btih:8D35B7FB594F2C8098B09623CBF0AE56250F600D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +663,35 @@ Academind Pro, Maximilian Schwarzmüller | Чистый код / Clean Code (202
 ```bash
 magnet:?xt=urn:btih:B761DE864D8F844BA850E5557660427918463047
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436799   (1042712) от 02.01.2021
+
+Frontendmasters, Nina Zakharenko | Практическое руководство по Python /  A Practical Guide to Python (2020) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практическое руководство по Python использует ваш опыт программирования, чтобы быстро научиться писать эффективный Python. В этом однодневном воркшопе мы рассмотрим все, что вам нужно знать, чтобы писать и читать программы на Python. Этот практический семинар даст вам более глубокое понимание того, как работает Python, вместо простого запоминания синтаксиса.
+Погрузитесь (   Читать дальше...   )Производство: FrontendmastersЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 05:54:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78DD6DE463CF78CF9AB497CC28E337E4B2CCD095
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

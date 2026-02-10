@@ -19,6 +19,8 @@ Solasta: Crown of the Magister (2021) [Ru/Multi] (1.2.9/dlc) License CODEX [Comp
 magnet:?xt=urn:btih:F79760322FD24F07F9BAAE8632B863AEFD73EC66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Dwarves (2016) [Ru/Multi] (1.2.1) License GOG [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:8728371CC29057E092A089A5DCB649B98DAE02F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Dungeon No Dungeon (2021) [Multi] (2.0) License PLAZA
 magnet:?xt=urn:btih:F9265A8C8247799C3F063F14295B98D9C06CBF10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Ruined King: A League of Legends Story (2021) [Ru/Multi] (57824) License FAIRLIG
 ```bash
 magnet:?xt=urn:btih:D8CA4059E46AC2750047C42C5CBDF2FC7D2D4B06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Guild of Dungeoneering Ultimate Edition - это полностью перест
 magnet:?xt=urn:btih:0681E5AC7C54168ADDB08459B5A5783BCFA50825
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Titan Quest (2006) [Ru] (1.20) License
 ```bash
 magnet:?xt=urn:btih:827AF2593CFFB71AEAC4C616FAE452B64597D597
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Tales of Vesperia (2019) [Ru/Multi] (1.0/dlc) License CODEX [Definitive Edition]
 magnet:?xt=urn:btih:DAA6373C52E9DFF4C8E56AD25710FAFF11739E1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Anachronox (2001) [En] (1.02) License GOG
 ```bash
 magnet:?xt=urn:btih:14934E84843336DBB315A278B8B14ABCBEDC1183
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ STAR OCEAN - THE LAST HOPE - 4K & Full HD Remaster (2017) [Multi] (1.0) License 
 magnet:?xt=urn:btih:4A6AD85E6DBBC12240630B4EDE1BB1A867468F90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Divinity: Original Sin – это новая RPG в духе старой шко
 ```bash
 magnet:?xt=urn:btih:F3BE674AACA8FB3D426F76B1152521FA06B16DE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Dragon's Dogma: Dark Arisen (2016) [En] (1.0.0.18) License GOG
 magnet:?xt=urn:btih:BF39C1497FEB7E9148A10ED3691ABEEA5EBC390E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Battle Chasers: Nightwar — это ролевая игра в духе лучш
 ```bash
 magnet:?xt=urn:btih:14C5DC3EF0A976AD0874DCF4BCFA3D13349696F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ LEGRAND LEGACY: Tale of the Fatebounds (2018) [En/Ch] (1.0) License CODEX
 magnet:?xt=urn:btih:8752702971FDA1047316A96A2CAED0749E65FE15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Zwei: The Arges Adventure (2018) [En/Jp] (1.0.3) License GOG
 ```bash
 magnet:?xt=urn:btih:7E9613ED2ECAB58FF48BDF7380B2A39308241074
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Wasteland 2 является прямым продолжением игры 1988
 magnet:?xt=urn:btih:9A080D023A3A47E62D15E19052C38F2D04AE0E7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Warhammer: Chaosbane (2019) [Ru/Multi] (28.05.2020/dlc) Repack xatab [Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:38CB0391AF603D7C6733CFBB0959D320DDC4502C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ King's Bounty: The Legend / King's Bounty: Легенда о рыцаре (2008)
 magnet:?xt=urn:btih:3C964855215711A010D98625B6A46FFCA9360F58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Krai Mira - пост-апокалиптическая РПГ игра в сти�
 ```bash
 magnet:?xt=urn:btih:C15F9AB9C46706E33765C05D32BEB217B556A069
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Yaga (2021) [Ru/Multi] (1.3.23/dlc) License GOG [Armful Edition]
 magnet:?xt=urn:btih:EA2D3AF283F3048FCB12C9079C200FAB78164E4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Shadows: Awakening — это продолжение знаменитой сер
 ```bash
 magnet:?xt=urn:btih:82B5EE4873FA363E55F82D2E3B13645303B6216F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ King's Bounty: Armored Princess / King's Bounty: Принцесса в досп�
 magnet:?xt=urn:btih:FB81A68CA1E73611B287D5CB6C58D6912E4EA392
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Tale of Wuxia - это переделанная Legends of the Wulin. Это к�
 ```bash
 magnet:?xt=urn:btih:0FAA92295854BFBD80A2213458A8B3CEFF6F2484
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ magnet:?xt=urn:btih:0FAA92295854BFBD80A2213458A8B3CEFF6F2484
 magnet:?xt=urn:btih:47D5E1B5398AF951BFCAA95AE6417116320F9A68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Celestian Tales: Realms Beyond (2020) [En] (1.0.14) License GOG
 ```bash
 magnet:?xt=urn:btih:751214E8F91FBE1D59C9E3C8F9DCE43AF32C7410
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Hyperdevotion Noire: Goddess Black Heart – первая игра в серии
 magnet:?xt=urn:btih:8A1D58A6CB119F18E96E0EC3AFE5B2AD7DD9C56A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ The Elder Scrolls III: Morrowind (2002) [Ru] (1.6.1820/dlc) License [Game of the
 ```bash
 magnet:?xt=urn:btih:95BBEAC824AD11846238CE5B4EF0795D8556533F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

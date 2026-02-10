@@ -20,6 +20,8 @@ BBC: Исаак Ньютон: Последний чародей (Последн�
 magnet:?xt=urn:btih:F3482D5066CD1F485E2392B7EF43203C910937E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -53,6 +55,8 @@ magnet:?xt=urn:btih:F3482D5066CD1F485E2392B7EF43203C910937E1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +80,8 @@ BBC: Тайны Тихого океана (6 серий из 6) / BBC: South Pac
 ```bash
 magnet:?xt=urn:btih:1C773CCF669ADEB2296A72FDEBFF9F9E8231621E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +107,8 @@ BBC: Рождение человечества. Битва за планету �
 magnet:?xt=urn:btih:0B5170ED8A4815732F2E25D042B665A6EE51EFCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ BBC Horizon: Остановить мужские самоубийства / Stop
 ```bash
 magnet:?xt=urn:btih:44DC450ECBC73F7238815D24F6CC604F55380E88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ BBC. Древний Египет: Жизнь и смерть в Долине Ц�
 magnet:?xt=urn:btih:032D62E8938FDD784226CA55A69CF01F997C0CD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ BBC: Утерянные города Египта / Egypt's Lost Cities (2011) [
 ```bash
 magnet:?xt=urn:btih:A85A05B362521CB7C81E30B9603334FFEE61CE29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ BBC. Все о космосе / The Complete Cosmos (1998) DVDRip [1, 2 сери
 magnet:?xt=urn:btih:007A8EF5FC1DF8F3B66571B3AA5496167EE80DD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:007A8EF5FC1DF8F3B66571B3AA5496167EE80DD0
 ```bash
 magnet:?xt=urn:btih:6A85AE877DD412511B40B964907320EC6D295177
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ BBC. Horizon. Как развить творческие способности?
 magnet:?xt=urn:btih:4025330FD53D925B40CBC6CE55798259E5C3A44D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ BBC. Horizon: Возможно ли создать звезду на Земле?
 ```bash
 magnet:?xt=urn:btih:E6A818C8B2F579CEDC1144AC58DC43555D4502DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ BBC. Викинги / Vikings (2012) BDRip [H.264/720p-LQ] [Серия 1-3 из 
 magnet:?xt=urn:btih:A0E0E7DD68DBE82A546EF42522129F3F3D13CCF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ BBC. Порядок и беспорядок / Order and Disorder (2012) BDRip [H
 magnet:?xt=urn:btih:BB0DED5391A737ABEF1D55B9838DE4230A78D937
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ BBC. Наука и ислам / Science and Islam (2009) HDTVRip [H.264/720p] [3
 ```bash
 magnet:?xt=urn:btih:72AB3DC73CD98C72111F1FB3FBA2082ED70F4D79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ BBC. Планета муравьёв: Взгляд изнутри / Planet Ant: 
 magnet:?xt=urn:btih:58E51AAA1E9D05370CC211F14B327DABCC625041
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ BBC: Да Винчи: Утерянное сокровище / Da Vinci: The Lost
 ```bash
 magnet:?xt=urn:btih:72B6B149F9AA6CB347F9EFBDA1DBD2FE48B2E933
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:72B6B149F9AA6CB347F9EFBDA1DBD2FE48B2E933
 magnet:?xt=urn:btih:AFB7F09CE7426DBEC36E69C5491E6A9B3DCBE9BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:AFB7F09CE7426DBEC36E69C5491E6A9B3DCBE9BC
 ```bash
 magnet:?xt=urn:btih:C3AABA2A46DE0232B60117D8674E13B5CCAEC160
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ BBC: Венера без прикрас / Venus Uncovered: Ancient Goddess of Lo
 magnet:?xt=urn:btih:D72EF6A1F7472CEB72371959AE71844BE86D6440
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ BBC. Сокровища Инда / Treasures of the Indus (2014) HDTV  [H.264/10
 ```bash
 magnet:?xt=urn:btih:C7F6A07CC962962C6E922369776D0E48F3C46A38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ BBC: Как найти любовь по интернету / How to Find Love O
 magnet:?xt=urn:btih:654ABD4B0A176B11B3430FAF5617D2B475314059
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ BBC: Краш-диета: Большой эксперимент / The Big Crash 
 magnet:?xt=urn:btih:1D7C6E8A7577D436E22BACE18DCCBAD23F510260
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:1D7C6E8A7577D436E22BACE18DCCBAD23F510260
 ```bash
 magnet:?xt=urn:btih:04A4269F9734AC9016969378F0703201280A5A49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ BBC: Шпионы в дикой природе / Spy in the Wild (2017) BDRip [H
 magnet:?xt=urn:btih:7EF70199B157A1ED9A55D49D4FF1A649A4C316EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ BBC: Вулканы Солнечной системы (Космические В
 magnet:?xt=urn:btih:15FD28DABCB6409F63E943F38FE78AE6E4409665
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ BBC. Живая природа Японии / Japan: Earth's Enchanted Islands (
 ```bash
 magnet:?xt=urn:btih:46CE009673688AB5B0C747F2791DE43E4804C9BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Suki demo Kirai na Amanojaku | My Oni Girl | Моя подруга — демо�
 magnet:?xt=urn:btih:07FF7573FCA82EB09D7ECB7BB873268435FE54AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Grimm Kumikyoku | The Grimm Variations | Вариации Гриммов [2024, 
 ```bash
 magnet:?xt=urn:btih:DE43B8DEF2F0F2358AF9CE2DC7B257011D947095
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Touken Ranbu Kai: Kyoden Moyuru Honnouji | Танец мечей: Лабирин
 magnet:?xt=urn:btih:FF536D49023B3673259AB16B68932275C6BD9C0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Campione! Matsurowanu Kamigami to Kami Koroshi no Maou | Чемпион! ~Шко
 ```bash
 magnet:?xt=urn:btih:222605C4F2E70A37FC2DF7D32AD5E20399B19078
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Kuroi Ame ni Utarete | Жертвы чёрного дождя [1984, Movie] DVDR
 magnet:?xt=urn:btih:287810B73C2C470A3AD52FB19B50AF935E06AE8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Kurokami The Animation / Темная богиня [2009, TV,   23 серий] B
 ```bash
 magnet:?xt=urn:btih:4E8502C9E2123FE7352BF65CD3FDF9B53851D0FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ TWD EXPRESS — компания по высокоскоростным межз�
 magnet:?xt=urn:btih:67BCB2BA48C529D6F2345189A7F2DD936C9E246F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Gekijouban Servamp: Alice in the Garden | Сервамп (фильм) [2018, Mov
 ```bash
 magnet:?xt=urn:btih:4A2E43C0E577707F44A4A3BAA92D6AC8978449A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Mother: Saigo no Shoujo Eve | Глаза Марса [1993, Movie] VHSRip 480p ra
 magnet:?xt=urn:btih:F5F0B44E9C2447A6871DCBD02BF00C6C24428797
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Tokubetsu Hen Hibike! Euphonium: Ensemble Contest Hen | Sound! Euphonium: Specia
 magnet:?xt=urn:btih:73EE85E09EF38F9E01FFAA3D4460BD932E1E55EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ Gekijouban Hibike! Euphonium: Chikai no Finale | Sound! Euphonium: The Movie - O
 ```bash
 magnet:?xt=urn:btih:8DA40B4A7199E206CEF7794349B74336E9E3306A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Gekijouban Hibike! Euphonium: Todoketai Melody | Играй, эуфониум! �
 magnet:?xt=urn:btih:6B26AB1EFE3266204B586C525E05802C7783CDB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Benriya Saitou-san, Isekai ni Iku | Handyman Saitou in Another World | Разн�
 ```bash
 magnet:?xt=urn:btih:C324638D8182E7B0DAA066B6C45C6BCD26A3F9D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Suki na Ko ga Megane o Wasureta | The Girl I Like Forgot Her Glasses | Моя в
 magnet:?xt=urn:btih:EB9AC599CEEAB694141D6EDB3DE66845ABF9B293
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Hikikomari Kyuuketsuki no Monmon | The Vexations of a Shut-In Vampire Princess |
 ```bash
 magnet:?xt=urn:btih:BC19C1BAF815E1C0B4910E958F9B6C0D06DEF569
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Ayakashi Triangle | Треугольник аякаси [2023, TV, 12 эп.] BDR
 magnet:?xt=urn:btih:7BAA2B7B8E98B9222AD6D8EEDF2A73C73B5F95D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ Mugen Shinshi: Bouken Katsugeki Hen | Джентльмен из грёз: Ска
 ```bash
 magnet:?xt=urn:btih:9CA222044AD0528620895CDAF7E45DD6784B02E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ Nanatsu no Taizai: Mokushiroku no Yonkishi | The Seven Deadly Sins: Four Knights
 magnet:?xt=urn:btih:01E97729C7DFC1DD1E2A65DD53083E6FE6F783F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ Kuramerukagari | Ослепляющая Кагари [2024, Movie] WEBRip 544p r
 ```bash
 magnet:?xt=urn:btih:8CAEDFDB03D5C992C1398A15154EC573B9B65128
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ Bucchigiri?! | Буттигири [2024, TV, 12 эп.] WEBRip 720p raw
 magnet:?xt=urn:btih:EA459A742A42D1F1E83E91F73425807A689B6C3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ Majo to Yajuu | The Witch and the Beast | Ведьма и зверь [2024, TV, 
 ```bash
 magnet:?xt=urn:btih:8053880F11EBC024C08DA0E7047353616984400B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ Metallic Rouge | Металлическая Руж [2024, TV, 13 эп.] WebRip 7
 ```bash
 magnet:?xt=urn:btih:C7B64B8F7B4C4466D204C8D550A844B634889F00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Alice to Therese no Maboroshi Koujou | Фабрика иллюзий Алисы 
 magnet:?xt=urn:btih:ADEFFC985E27D58F777C6E652A6B3198D74D0D8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Mashle: Kami Shinkakusha Kouho Senbatsu Shiken Hen | Mashle: Magic and Muscles -
 magnet:?xt=urn:btih:75E64D316117C24BC1DDC6E961003014F94C8C0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Synduality: Noir | Синдуальность: Нуар [2023, TV, 24 эп.] Web
 magnet:?xt=urn:btih:D468F040F96329ECD6395C867073A1E6E298C455
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Mahou Shoujo ni Akogarete / Gushing over Magical Girls / Восхищаясь д
 ```bash
 magnet:?xt=urn:btih:2AE962C4BD95F8A830130E9EA46E3E30DAB9912A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

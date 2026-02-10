@@ -1,51 +1,3 @@
-###  Публикация: 956621   (327606) от 17.11.2015
-
-В. Э. Молодяков | Несостоявшаяся ось: Берлин - Москва - Токио (2004) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга историка В.Э. Молодякова— первое большое исследование по истории концепции «континентального блока» Германии, СССР и Японии и усилий по ее реализации. На рубеже 1940—1941 гг. «континентальный блок», каким он рисовался Хаусхоферу, Риббентропу и Сиратори, был возможен. Причем возможен в силу не «сговора диктаторов» и тем более не «единства тоталитарных идеологий», (   Читать дальше...   )Жанр: ПолитологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9D22DA703DC8A66EDD3C888460B226A757114D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957349   (327607) от 17.11.2015
-
-Citrio 45.0.2454.266 (5381.1) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Citrio — это быстрый, простой и безопасный браузер, созданный на основе интернет-обозревателя Chromium и дополнительно оснащённый собственным торрент-клиентом, продвинутым менеджером закачек и функциональным виджетом для использования прокси-серверов.Язык интерфейса: Русский, Английский и Другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4717975C377E6C5C648580590006BF73ABB9A9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957319   (327608) от 17.11.2015
 
 Solarstone & Giuseppe Ottaviani pres. PureNRG - Era (2015) Single [MP3|320 кб/с]<Trance>
@@ -66,6 +18,8 @@ Solarstone & Giuseppe Ottaviani pres. PureNRG - Era (2015) Single [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:5111A77901445A52FEB5E8B72911FCBC45A28AD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -90,6 +44,8 @@ magnet:?xt=urn:btih:5111A77901445A52FEB5E8B72911FCBC45A28AD6
 ```bash
 magnet:?xt=urn:btih:9DF955EE5FF83E22324F508CA35D0FF5E23E84CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +74,8 @@ VA - Blue Note 75 (2014) [MP3|320 кб/с]<Jazz>
 magnet:?xt=urn:btih:CC215AA57D630701F67432B49227D50F17930E16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +100,8 @@ magnet:?xt=urn:btih:CC215AA57D630701F67432B49227D50F17930E16
 ```bash
 magnet:?xt=urn:btih:E16CED3BB96A2AE2B878EAACFD1AE100BE2425A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +130,8 @@ Black Oak Arkansas - Original Album Series (2013) 5CD Box Set [MP3|320 кб/с]<
 magnet:?xt=urn:btih:5986049DEF4B8B7E52C1383FAA8242080F082D34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +155,8 @@ Baidu Browser – довольно симпатичный и удобный бр
 ```bash
 magnet:?xt=urn:btih:F7D32869890220ECAE9A67341C224676FFA3613E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +185,8 @@ Eddie Manion - Nightlife (2015) [OGG|429-491 кб/с]<Smooth Jazz, Blues, Instru
 magnet:?xt=urn:btih:5FD3B1DD8A67AE79F3F608E154E49D5A74AB18ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +211,8 @@ magnet:?xt=urn:btih:5FD3B1DD8A67AE79F3F608E154E49D5A74AB18ED
 magnet:?xt=urn:btih:AC8A7E80C2CA9D904ACF8D9A5CCB245067E1E5E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +236,8 @@ KakaoTalk – это быстрое и многогранное приложен
 ```bash
 magnet:?xt=urn:btih:959AA8CBD4E6D22FF6127D224676CB8119B12406
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +266,8 @@ VA - Music For Everyone - Deep House & Nu Disco Vol.4 (2015) [MP3|320 кб/с]<D
 magnet:?xt=urn:btih:27598493167E63712B91275310DEDBE85224961D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +292,8 @@ QQ Browser 9.0 версии - это современный и удобный б
 magnet:?xt=urn:btih:C3BCA820BB47B127A742F4E67979F087CDEFD3DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +317,8 @@ Firefox - очень интересный продукт, который при�
 ```bash
 magnet:?xt=urn:btih:50C032FD52CB59A2F68348A0EE89D07B046EA0EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +347,8 @@ VA - Epic & Uplifting Trance Euphoria (2015) [MP3|320 кб/с]<Trance, Uplifting
 magnet:?xt=urn:btih:A98B1AD05F296B00C7AA6D68FC8220067C2089D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +376,8 @@ VA - Weird & Naked (Essential Classics) (2015) [MP3|320 кб/с]<Chillout, Loung
 magnet:?xt=urn:btih:3200E3BA0321BEFF076B0A961B9BAF551D83E83F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +401,8 @@ magnet:?xt=urn:btih:3200E3BA0321BEFF076B0A961B9BAF551D83E83F
 ```bash
 magnet:?xt=urn:btih:9B1A201C7C5C343DFE00986EAE633EE9699853DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +428,8 @@ magnet:?xt=urn:btih:9B1A201C7C5C343DFE00986EAE633EE9699853DE
 ```bash
 magnet:?xt=urn:btih:CF57288BA9E731EC252855E8355F7076222F1618
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +458,8 @@ VA - Club Dance Ambience vol.45 (2015) [MP3|320 кб/с]<House, Progressive Hous
 magnet:?xt=urn:btih:9B7DBCE3463B29AE154A8DF9B0DD87DDEA9A1243
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +486,8 @@ VA - Chillout for Good Times (2015) [MP3|320 кб/с]<Downtempo, Chillout, Loung
 ```bash
 magnet:?xt=urn:btih:05B8BB56AA22B34D9656485A73A302DF35ED0EEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +516,8 @@ VA - Детская площадка №1 (2011) [MP3|320 kbps]<Детские �
 magnet:?xt=urn:btih:8FE62A66E89FE09C40BBDE397A26D673E1654E53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +541,8 @@ magnet:?xt=urn:btih:8FE62A66E89FE09C40BBDE397A26D673E1654E53
 ```bash
 magnet:?xt=urn:btih:DF8CD1ACB46E776AE715E40306F75ADC525CCF0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +568,8 @@ magnet:?xt=urn:btih:DF8CD1ACB46E776AE715E40306F75ADC525CCF0E
 magnet:?xt=urn:btih:3124F8835F350EF92511A562DDBA9C12651C8244
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +594,8 @@ Ultimate & Irina Makosh - Something Going On (Pure Mix) Single (2015) [MP3|320 �
 magnet:?xt=urn:btih:36943076A223AEC44852AF916A5D2091928150D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +619,8 @@ TrancEye pres. Skull Crusher - Acidland (2015) Single [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:FB2C97C925E70737DBA2990276CFC66204519BC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +648,66 @@ Leather Heart - Comeback (2015) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:BB50DE303899C4AAB6D3D5155FA085A869CD5FAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957434   (327651) от 17.11.2015
+
+Phildel - The Glass Ghost (2013) EP [MP3|320 кб/с]<Alternative Pop, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heaven: An Introduction
+02. The Glass Ghost
+03. Comfort Me
+04. Celestial(   Читать дальше...   )Жанр: Alternative Pop, Indie PopПродолжительность: 00:23:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CBA7F987C43F9E8562505B780C15674D417847A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957069   (327652) от 17.11.2015
+
+VA - Clifford Brown Brownie Speaks: The Complete Blue Note Recordings (2014) [MP3|320 кб/с]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327652.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  Get Happy (4:53)
+02.  Lover Man (3:56)
+03.  Capri (3:42)(   Читать дальше...   )Жанр: JazzПродолжительность: 03:33:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A119843155468409FBAB718086823B4D21F8085F
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

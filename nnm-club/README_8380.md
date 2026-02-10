@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C4C99143A519B78F9720EE2A47D578BD9974FD75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:C4C99143A519B78F9720EE2A47D578BD9974FD75
 ```bash
 magnet:?xt=urn:btih:CABA379E370E43E067BEF63C920D41DC15253BEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Quake 4 (2005) [Multi] (1.4.3) License GOG
 magnet:?xt=urn:btih:11B59BFC1C311D0B1B5B4EBCC80BCDC0AE9F98E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:11B59BFC1C311D0B1B5B4EBCC80BCDC0AE9F98E8
 ```bash
 magnet:?xt=urn:btih:C12056BC8442132C2E64DF9E3133CD2918654F97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:C12056BC8442132C2E64DF9E3133CD2918654F97
 magnet:?xt=urn:btih:FB36EBDE7645790596FFB0FAAD74226C8B18022C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:FB36EBDE7645790596FFB0FAAD74226C8B18022C
 ```bash
 magnet:?xt=urn:btih:D3E0E8EBF18E326F39BBE018768A6D05EEFD3D68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Crysis 2 Remastered (2022) [Ru/En] (1.0) Repack Decepticon
 magnet:?xt=urn:btih:707063806EE941636D1E7F64733A11916A653EA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:707063806EE941636D1E7F64733A11916A653EA5
 ```bash
 magnet:?xt=urn:btih:B1035CF480AC0DCB339ACCADF0DCC72D17447368
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:B1035CF480AC0DCB339ACCADF0DCC72D17447368
 magnet:?xt=urn:btih:D08F3DD1365E721CCF2420C0E0EF90A2DA5328CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Javascript.ninja, Илья Климов | Зимняя школа по Typescrip
 magnet:?xt=urn:btih:5125A3734BCBA24066E3FA8B924CE73C1DD6142D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ CSI: Вегас / CSI: Vegas (2022-2023) WEB-DL [H.264/1080p] (сезон 2, с�
 ```bash
 magnet:?xt=urn:btih:E9998DFF05AB13C914A14DE37BF923814A7C1C27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Junghyun Seok, он же Стоунхаус, написал это очень п
 magnet:?xt=urn:btih:FB54E28FB81B73C500224967C3165C633894F6BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:FB54E28FB81B73C500224967C3165C633894F6BB
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ Stereophonics - британская рок-группа. Основана в 19
 magnet:?xt=urn:btih:C32AFFA22C94489D2191DC0102B7F033A537A354
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:C32AFFA22C94489D2191DC0102B7F033A537A354
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:C32AFFA22C94489D2191DC0102B7F033A537A354
 magnet:?xt=urn:btih:618339E52EFAE2AA10075E69C0B32F86B44349F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:618339E52EFAE2AA10075E69C0B32F86B44349F6
 ```bash
 magnet:?xt=urn:btih:66676FFB7018C29739429F4FE4AFF672F7D107F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:66676FFB7018C29739429F4FE4AFF672F7D107F1
 magnet:?xt=urn:btih:42061B8B1CF66DB1686B4CBC41D338E63C9084E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:42061B8B1CF66DB1686B4CBC41D338E63C9084E3
 ```bash
 magnet:?xt=urn:btih:91D8D0E2379F217E26D8140E1A8E95391AAF6ABB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:91D8D0E2379F217E26D8140E1A8E95391AAF6ABB
 magnet:?xt=urn:btih:BECC9F9D424C00A5A9E20DDDF540C2888F73BD9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:BECC9F9D424C00A5A9E20DDDF540C2888F73BD9C
 ```bash
 magnet:?xt=urn:btih:C474F80C961C26D7857A89F8E9B112C1237E2471
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:C474F80C961C26D7857A89F8E9B112C1237E2471
 magnet:?xt=urn:btih:CCB543360B4ACFCDC12E0EE8FBB13F7EF67AF3C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:CCB543360B4ACFCDC12E0EE8FBB13F7EF67AF3C7
 ```bash
 magnet:?xt=urn:btih:9736AE8FBCEAC0D3A53F48552B49E57CC9407BB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:9736AE8FBCEAC0D3A53F48552B49E57CC9407BB5
 magnet:?xt=urn:btih:E266841D700D00B454492C32D0EDCEA795238110
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ magnet:?xt=urn:btih:E266841D700D00B454492C32D0EDCEA795238110
 magnet:?xt=urn:btih:348D3F22BCA2D9C252A89B14A91C466C334840AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:348D3F22BCA2D9C252A89B14A91C466C334840AA
 ```bash
 magnet:?xt=urn:btih:0814D5DB8D95D7DC2DD2E0ECC2D6D20B0719BB75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1381534   (825823) от 07.05.2020
+
+VA - Super Hits 100 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825823.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Dua Lipa - Don't Start Now (3:03)
+2.The Weeknd - Blinding Lights (3:21)
+3.Topic - Breaking Me (2:46)
+4.Tones and I - Dance Monkey (3:29)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:21:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BD1ECC123918B2A4728713056B3928122FD2C16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196221   (825901) от 01.01.2018
 
 VA - Хайп на Новый год (2017) [MP3|320 Kbps] <Pop>
@@ -21,6 +50,8 @@ VA - Хайп на Новый год (2017) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:AE1973379EBABE3CA3620FD013A651BF1971979F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ Lightnin' Hopkins - 30 most slow Blues (2017) 2CD [MP3|320 Kbps] <Blues, Cantry 
 magnet:?xt=urn:btih:C3602FD926895743A9A3CB106875CAF37F84E7C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +105,8 @@ VA - Vintage Nu Swing Desert (2020) [MP3|320 Kbps] <Nu Jazz, Electro Swing, EDM>
 ```bash
 magnet:?xt=urn:btih:BE34A7AC6656C2047E86036EB7BC9E1FD94653E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +135,8 @@ VA - не Громкие новинки недели 66 (2020) [MP3|320 Kbps] <P
 magnet:?xt=urn:btih:97837F27C704728D2253B01375CCDD27CBF2241F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +163,8 @@ VA - Soft & Chill (2020) [MP3|320 Kbps] <Acoustic, Chill Pop, Soft Rock, Easy Li
 ```bash
 magnet:?xt=urn:btih:C16FA666BA85A49E658AE608F7BD35E3F093728D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +193,8 @@ VA - Хиты в тачку. Версия № 7 (2017) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:4B87371CEEADABBB23CE8D80FC3F3004A3F3AC4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +221,8 @@ VA - Только хиты. Русский сборник. Выпуск № 6 (2
 ```bash
 magnet:?xt=urn:btih:81BC443C199ECA57C868D0FB7C2FDB3929060DB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +251,8 @@ VA - Я слушаю шансон. Реальный блатняк выпуск 
 magnet:?xt=urn:btih:4A769CC46B303C1A716922D378EA6B31F26B21F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +279,8 @@ VA - Шальной шансон в дорогу (2017) [MP3|256 Kbps] <Шанс
 ```bash
 magnet:?xt=urn:btih:DA095D05E784C7404CF0ED1EBFB162D21FF7DF5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +309,8 @@ VA - Весна пришла. Лучшие хиты. Часть №12 (2017) [MP
 magnet:?xt=urn:btih:0D73BCCB0C1423A4A2CCD896F9E054D8A852299F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +337,8 @@ VA - Козырная песня на радио Шансон выпуск №4 
 ```bash
 magnet:?xt=urn:btih:4EB36AC687C002B7A0D69550DE98DF381ACC6EE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +367,8 @@ VA - New Age Style - Enigmatic 24 (2016) [MP3|320 кб/с] <New Age, Enigmatic, 
 magnet:?xt=urn:btih:F7410D268BE017CFE32CB08C88CC1CDF2B0CE304
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +395,8 @@ VA - Лучший русский шансон. Версия № 5 (2017) [MP3|25
 ```bash
 magnet:?xt=urn:btih:C4DE7DDAF49D16FD9F82668622065F54F22C58F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +425,8 @@ VA - Молодежный хитовый бум. Версия №7 (2017) [MP3|2
 magnet:?xt=urn:btih:3AB5AB482FD496230B64FB90AA2FE38D22786559
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +453,8 @@ VA - Electro Swing of Berlin (2016) [MP3|320 Kbps] <Electro Swing, House, Nu Jaz
 ```bash
 magnet:?xt=urn:btih:BD0F9589B0C8927510480EB8CB9BDA666A37F2AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +483,8 @@ VA - Танцевальная вечеринка на Hit FM. Выпуск №4 
 magnet:?xt=urn:btih:8D9F10DB5FDEC7DA32BACE3D59A3A2144087DEDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +511,8 @@ VA - Ресторан Кураж на радио Шансон. Выпуск №8
 ```bash
 magnet:?xt=urn:btih:8E53FE8F86B6A1458D43C9BE3F3E443799C6891B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +541,8 @@ VA - Touch You Dream: Relax Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout,
 magnet:?xt=urn:btih:5D8E45B45C6345160EF892E14D58A3913D2D8B12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +569,8 @@ VA - Отдыхаем с лучшими хитами. Звездная тусо�
 ```bash
 magnet:?xt=urn:btih:34C6B66E56B1AC8029192543F96D564ADF9CF2E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +599,8 @@ VA - Положительный заряд отличного настроени
 magnet:?xt=urn:btih:52B0033A5472EE26178597ECD3D1FD4998D20EAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +627,8 @@ VA - Beatport Trance Pack (18.03.) (2017) [MP3|320 Kbps] <Trance, Uplifting Tran
 ```bash
 magnet:?xt=urn:btih:F73B7A8D5DC87B787CDD3FA89FE98D34AF2DA744
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +657,8 @@ VA - 100 Пудовый Auto hit №2 (2016) [MP3|128-320 кб/с] <Рор>
 magnet:?xt=urn:btih:E9BE4FD6BEDAFDAAD17720733DE525FE2F2F7420
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +685,8 @@ VA - Огонь и лед. Золотые хиты 3 (2016) [MP3|256 кб/с] <S
 ```bash
 magnet:?xt=urn:btih:1570219D1DB3D5BE8F0FA860D99C691C0B7585E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +715,8 @@ VA - Trance Collection Vol.41 (2016) [MP3|320 кб/с] <Trance>
 magnet:?xt=urn:btih:A6FF6A632A998721EB0D5B05C409228A3A15A8FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,32 +744,7 @@ magnet:?xt=urn:btih:A6FF6A632A998721EB0D5B05C409228A3A15A8FF
 magnet:?xt=urn:btih:43A61EEFCC3B3F553D6CF879A791C222F850F4AC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006494   (827256) от 12.04.2016
-
-VA - Misha Dance Party Vol.1 (2016) [MP3|320 кб/с] <House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AronChupa - Im an albatraoz 02:47
-02. Bazuka - Sml 03:32
-03. Bazzbusterz - Bomb The Bass 05:07
-04. Dj Antonio Vs. Feder - Goodbye 03:19(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 02:25:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:593566D1A65097D2B760BBF983533B1A2B830EA6
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,38 @@
+###  Публикация: 538183   (510573) от 22.08.2012
+
+VA - In Da Club Vol.65 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_510573.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Reverse - Endless Journey (Original Mix)
+002. Moonbeam feat. Avis Vox - Star Way (Big Room Original Mix)
+003. Markus Schulz Presents Dakota - Katowice (Mr Pit Remix)
+004. Rex Mundi - Valley Of Dreams (Original mix)
+005. Norin & Rad vs. Recurve - The Gift (Original mix)
+006. Myon feat. Shane 54 & Carrie Skipper - Vampire (Club Mix)
+007. Orjan Nilsen - Between The Rays (Original)
+008. Miroslav Vrlik feat. Martin Jurenka - Join Together (Hoyaa Rising Remix)
+009. Rainbow Addict - Solar Spin (Not Okay Mix)
+010. Nash & Pepper - Aftersun (Mike Foyle Full Moon Remix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, Classic TranceПродолжительность: 01:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BF3AE7E6E17E643DFF44CDB154D1D5BA551DAB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 870120   (510717) от 27.08.2015
 
 VA - The Best Of Ambient Vol 1-5 [Compiled by Zebyte] (2015) [MP3|224-320 кб/с]<Ambient>
@@ -21,6 +56,8 @@ Vol 1
 ```bash
 magnet:?xt=urn:btih:A98602D450777B2432216EB81FC7B37C1F40B4EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +86,8 @@ VA - Soft Rock Ballad (2019) [MP3|320 Kbps] <Rock, Alternative>
 magnet:?xt=urn:btih:00786195C183BD05A6368051A407642C93ECBB4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +114,8 @@ Electro House
 ```bash
 magnet:?xt=urn:btih:A7F433FEFB34BF2C41D39DB6228B49CCC26B4E64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +144,8 @@ VA - Sexy Massage (65 Tracks For Erotic Massage) (2015) [MP3|320 кб/с]<Downte
 magnet:?xt=urn:btih:BBD6025D42F9E4ED5A2FB00DEFE25ABCC415BA6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +172,8 @@ VA - Acid Maschine: Hard Techno Compilation (2019) [MP3|320 Kbps] <Techno>
 ```bash
 magnet:?xt=urn:btih:13ED877B9F570F62B521D7CEA0E326AF9844CE4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +202,8 @@ VA - German Top 100 Single Charts 26.07.2019 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:7ACC659BEF60012FCF6F657C2480E6CE6577E46B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +230,8 @@ VA - Summer Chill Lounge (50 Selected Chillout Grooves For Love, Sex And Relax) 
 ```bash
 magnet:?xt=urn:btih:923331CC58D8E09A08D92FC29101FF101CF02B1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +260,8 @@ VA - The Official UK Top 40 Singles Chart 19.07.2019 [MP3|320 Kbps] <Pop, Dance,
 magnet:?xt=urn:btih:68B6AFC95791AE419930CFDAADEAB19D6C5034EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +288,8 @@ VA - Dancehall And Reggae Party (2019) [MP3|320 Kbps] <Reggae, Dancehall>
 ```bash
 magnet:?xt=urn:btih:2B4BAA9AAF524566872745939E9BD6E52D1D3AC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +318,8 @@ VA - Beatport Trance Top 100 August [edited by ZIMIANDR] (2015) [MP3|320 кб/с
 magnet:?xt=urn:btih:3298C13D21DC0ECB397DF648FAAFA18EF3632C03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +346,8 @@ VA - HGM International House Departures (2019) [MP3|320 Kbps] <Electro, Dance, C
 ```bash
 magnet:?xt=urn:btih:CD7EEB7819A026736B7CC86BC2BB8ABE913C6B1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +376,8 @@ VA - Playlist: Best Of Lounge & Chillout Playlists (2015) [MP3|320 кб/с]<Down
 magnet:?xt=urn:btih:4B85CFA30BC10B84C39FDBE5633230E367ADB542
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +404,8 @@ VA - A Chill House Affair Vol. 1 (60 Fantastic Summer Tunes) (2015) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:A4B1C3193CD42D24602EC85C8BF3A8D1FDC88928
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +434,8 @@ VA - Lounge Deluxe Collection [Cane Garden Bay Records] (2015) [MP3|320 кб/с]
 magnet:?xt=urn:btih:595E1E94A0EAD9A8ACEBCD5CC36C4153D0D0F75A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +462,8 @@ VA - Carnaval House (2015) [MP3|320 кб/с]<Progressive House, Tech House>
 ```bash
 magnet:?xt=urn:btih:F8622BC0910E40EADDA286B1D7D7A1FC878B7461
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +498,8 @@ VA Радио 7. Tоп 100 (2011) [MP3|320 кб/с]<Pop, Rock, Jazz>
 magnet:?xt=urn:btih:9A4C1A256707134BCD693E59AB9716018B80B8A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +530,8 @@ VA - Pumping Storm - 11 (Back to Underground) (2012)
 ```bash
 magnet:?xt=urn:btih:1D27E37FE12DC304B8E32D305949278D5283F8BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +566,8 @@ VA - eXXXplicit chill (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
 magnet:?xt=urn:btih:32BDC5B38245994264696ECE853BB42AD479B52E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +594,8 @@ VA - Acoustic Chill Songs (2015) [MP3|320 кб/с]<Instrumental, Acoustic, Guita
 ```bash
 magnet:?xt=urn:btih:A4EDDCE3591DC64FF33AC6CC28E07F642DF1B53B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +630,8 @@ VA - Наше радио - Чартова дюжина ТОП-13  (24.08.2010)  
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +658,8 @@ VA - Fifty Shades Of Lounge (50 Smooth & Sexy Chill Tunes 4 Erotic Moments) (201
 ```bash
 magnet:?xt=urn:btih:C251C3CBDFA9E8695A067654DDF93758E7BF9443
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +688,8 @@ VA - Lounge Music Cafe - Cafe IBIZA (2015) [MP3|320 кб/с]<Downtempo, Chillout
 magnet:?xt=urn:btih:5794472432C9335BDFA0CB97DDA8E13A4E39CA13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +716,8 @@ VA - Hot And Sexy Lounge Grooves Vol. 1 (2015) [MP3|320 кб/с]<Downtempo, Chil
 ```bash
 magnet:?xt=urn:btih:DA2D901EBAF15138F3AEC7DE25939DC1C1E838B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -665,6 +746,8 @@ VA - Club Hits 2k15 (2015) [MP3|320 кб/с]<Trance, Uplifting Trance>
 magnet:?xt=urn:btih:081E81800A16BDFD2544B7F3226B265305EB0317
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -689,32 +772,7 @@ VA - Rock instrumental classics (2008) [MP3|160-320 кб/с]<Rock/Instrumental>
 magnet:?xt=urn:btih:DB10A0912D95B5116B970574DB9ABC9F98D3D5C9
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931227   (512667) от 25.08.2015
-
-VA - Зайцев нет. Лучшие новинки августа (2015) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512667.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Varien feat. Veela - Supercell (03:35)
-002. Chris Lake & Anna Lunoe - Stomper (03:34)
-003. Tchami feat. AC Slater & Kaleem Taylo - Missing You (05:14)
-004. Koven - From The Start (04:30)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, RapПродолжительность: 04:00:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1088B4FCD4F641522D6543E9BC2556DD7191BEC9
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

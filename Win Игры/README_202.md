@@ -19,6 +19,8 @@ WRATH: Aeon of Ruin – шутер от первого лица, созданн�
 magnet:?xt=urn:btih:081EC79B4418D486886529F388237C55E10D3D9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Tchia сама по себе воспринимается как легкая п
 ```bash
 magnet:?xt=urn:btih:DC56CA515BE5AAC4F54C92C161F88E917500BA61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Phantom Tides (2024) [Ru/Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:35E604D5C09D7DA9D55BBABAC901534A6149CB42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Cats Hidden in Georgia - не только поиск кошачьих друз�
 ```bash
 magnet:?xt=urn:btih:9A590550137681AA479149D8756A97E404725814
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ WW2 Rebuilder - симулятор от первого лица, дающий о
 magnet:?xt=urn:btih:B024F6B18D4F2A4B25937981C8C4552B1EFC0168
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Vampires' Melody 2 - история о двух вампирах, Рейлане
 ```bash
 magnet:?xt=urn:btih:18626E8AB5591D5C558AE0F44A9EB30F4419ED9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Alpha Protocol - приключенческая экшен/РПГ с видом 
 magnet:?xt=urn:btih:AD9EB8F4662FA22D74DC760F945859A972C2FB7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Reverse Collapse: Code Name Bakery - тактическая RPG, события 
 ```bash
 magnet:?xt=urn:btih:B2E7C68C1D8066F8FDBC36B65886DF52334C3A0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Real Estate Simulator ставит вас на место начинающего
 magnet:?xt=urn:btih:AB8ED00A3929D94CDA7710202B2DB1A9050A9F02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Jusant - увлекательная видеоигра, которая приг�
 ```bash
 magnet:?xt=urn:btih:F01F44C018E4E9548F7BE60CA56CBE4CE7E08594
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ As Dusk Falls - это оригинальная интерактивная др�
 magnet:?xt=urn:btih:52FD6600DD7EC189F444207144A9349A2D4A1FAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ REVEIL (2024) [Ru/Multi] (1.0.3f4/dlc) License GOG [Funhouse Edition]
 ```bash
 magnet:?xt=urn:btih:03E71EE8EF80318784B94EAAA980523C30F0EC77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Book of Demons это гибрид Hack & slash и карточной игры, 
 magnet:?xt=urn:btih:EAA9E99984B494A58E2B2C29B22D9BA4F2073605
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Sands of Aura (2021) [Ru/Multi] (1.01.25) License GOG
 ```bash
 magnet:?xt=urn:btih:2BA8A4D4BB822C523B40896865A4D51CCFB35D2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Knight Witch скрещивает метроидванию с экшеном
 magnet:?xt=urn:btih:B7A7F7BA6981212B71B6DB2742FC382894B38803
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Bloody Ink - это психологическая хоррор-игра от п
 ```bash
 magnet:?xt=urn:btih:B9EB367C1D1EC68343A0B69D2D384FAE43DB0A0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Between the Stars (2019) [Ru/Multi] (1.0.0.2) Repack FitGirl
 magnet:?xt=urn:btih:681BB7A7A43FD523A0D33E1192E6C8B8B6477135
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Outcast - A New Beginning – это продолжение знаменитог
 ```bash
 magnet:?xt=urn:btih:27AB00B72E518764253B404A57D075E3782DD45E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Between the Stars (2019) [Ru/Multi] (1.0.0.2) Scene Rune
 magnet:?xt=urn:btih:3388EA28D7F0A7B5AED9620455C8FB6734E01F4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ United Penguin Kingdom приглашает вас отправиться в у�
 ```bash
 magnet:?xt=urn:btih:23175E9606B99E8269A4F7B9058D38B3318068A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ We Are Football 2024 (2024) [Multi] (3.00hf) Repack FitGirl
 magnet:?xt=urn:btih:72A8F378E196CD3211F29DC693AFBD06148BB5D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Manic Mechanics - восхитительный кооперативный гей
 ```bash
 magnet:?xt=urn:btih:F3ABD52E51CA18ADD498964F2E02B0627E759207
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Corbid! A Colorful Adventure - приключенческая игра для в
 magnet:?xt=urn:btih:53C6F81B4311E3089C623BCBFCF6F6E080899A90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Hex Gambit: Respawned – многопользовательская аркад�
 ```bash
 magnet:?xt=urn:btih:36BDF43A6D7806ED715F4A07C345DFC5C8CEE66E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Out of the Park Baseball 25 празднует четверть века сов�
 magnet:?xt=urn:btih:39FEF56C2BACD151BA3EDD0521F7D9D28398D180
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Deep in the Woods / Глубоко в лесу (2024) [Ru/Multi] (1.0) Scene Ten
 ```bash
 magnet:?xt=urn:btih:BF3721ED8E24B2C11A9C54B3D932E25C79F21083
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

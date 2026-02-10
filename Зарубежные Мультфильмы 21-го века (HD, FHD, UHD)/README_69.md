@@ -1,27 +1,3 @@
-###  Публикация: 713110   (402249) от 20.10.2013
-
-Гадкий я 2 / Despicable Me 2 (2013) Blu-Ray [1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402249.jpg" />
-</div>
-
-
-###  Подробнее
-
-В то время как Грю, бывший суперзлодей, приспосабливается к семейной жизни и пытается честным трудом зарабатывать в сфере бизнеса, тайные лаборатории Арктики оказываются украденными. Анти-Злодейская лига решает, что она нуждается в помощи Грю и его новобранцев в расследовании.Производство: США / Illumination Entertainment, Universal PicturesЖанр: Мультфильм, Фантастика, Комедия, Криминал, Приключения, СемейныйРежиссер: Пьер Соффин / Pierre Coffin, Крис Рено / Chris RenaudАктеры: Стив Карелл, Кристен Уиг, Бенджамин Брэтт, Миранда Косгров, Расселл Брэнд, Кен Жонг, Стив Куган, Элси Фишер, Дэна Гайер, Мойзес АриасПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русский, английский, португальский, испанский, тайский, китайский, эстонский, латышский, литовскийПродолжительность: 01:37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4289EEC9B57EF879F4984D25C115B5EFB3345AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 564123   (402653) от 23.10.2012
 
 Феи. Тайна зимнего леса / Secret of the Wings (2012) BDRip [720p]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:D4289EEC9B57EF879F4984D25C115B5EFB3345AC
 ```bash
 magnet:?xt=urn:btih:481D929FB9C17FD6624D4A11C5215C055A212EDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -66,6 +44,8 @@ magnet:?xt=urn:btih:481D929FB9C17FD6624D4A11C5215C055A212EDF
 ```bash
 magnet:?xt=urn:btih:B8612ABFEB116385F4FEE2699951E03FD82216F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +72,8 @@ magnet:?xt=urn:btih:B8612ABFEB116385F4FEE2699951E03FD82216F1
 magnet:?xt=urn:btih:AEED2AB223395FFEAC0BAE95F8E201CC9CCF6D8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +99,8 @@ magnet:?xt=urn:btih:AEED2AB223395FFEAC0BAE95F8E201CC9CCF6D8A
 magnet:?xt=urn:btih:54584B7E2051B560EE5332941A70EEE94A93BB37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +124,8 @@ magnet:?xt=urn:btih:54584B7E2051B560EE5332941A70EEE94A93BB37
 ```bash
 magnet:?xt=urn:btih:B7458D2F2375E5EA6B746D417F2CD42B3CE59FAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +151,8 @@ magnet:?xt=urn:btih:B7458D2F2375E5EA6B746D417F2CD42B3CE59FAC
 magnet:?xt=urn:btih:005B5471AE1D12AECAD3ECF831599DB210922B5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +176,8 @@ magnet:?xt=urn:btih:005B5471AE1D12AECAD3ECF831599DB210922B5E
 ```bash
 magnet:?xt=urn:btih:2C825D8745F6C187411DEA12AE3ED88199E1AFC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +203,8 @@ magnet:?xt=urn:btih:2C825D8745F6C187411DEA12AE3ED88199E1AFC2
 magnet:?xt=urn:btih:7F9AC94E6E97464982963C26D69FD693468028E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +228,8 @@ magnet:?xt=urn:btih:7F9AC94E6E97464982963C26D69FD693468028E9
 ```bash
 magnet:?xt=urn:btih:F21A1EBBEFACA1C5679AC314013D1BE3E8064221
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +255,8 @@ magnet:?xt=urn:btih:F21A1EBBEFACA1C5679AC314013D1BE3E8064221
 magnet:?xt=urn:btih:4C3109DEE8AEB3EEC7D4CB111CCFC1BE236BDE63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +280,8 @@ magnet:?xt=urn:btih:4C3109DEE8AEB3EEC7D4CB111CCFC1BE236BDE63
 ```bash
 magnet:?xt=urn:btih:A172038CA3D76B1134A90C9E2DE99BA6342847E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +307,8 @@ magnet:?xt=urn:btih:A172038CA3D76B1134A90C9E2DE99BA6342847E9
 magnet:?xt=urn:btih:B59CDE043B291B8E542C4925E98DDB72A0434395
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +332,8 @@ magnet:?xt=urn:btih:B59CDE043B291B8E542C4925E98DDB72A0434395
 ```bash
 magnet:?xt=urn:btih:FB97B92EE94714B12B5A42177776158FAC35DC02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +359,8 @@ magnet:?xt=urn:btih:FB97B92EE94714B12B5A42177776158FAC35DC02
 magnet:?xt=urn:btih:67A36C034984A5A141D1C99A448DA013661179E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +384,8 @@ magnet:?xt=urn:btih:67A36C034984A5A141D1C99A448DA013661179E2
 ```bash
 magnet:?xt=urn:btih:52EDC5391B5FFAB9DD7AF912AD2CE0D59E4CD22A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +411,8 @@ magnet:?xt=urn:btih:52EDC5391B5FFAB9DD7AF912AD2CE0D59E4CD22A
 magnet:?xt=urn:btih:DED4AD57A1268359D756DED5E3C9F77D3AF8A883
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +436,8 @@ magnet:?xt=urn:btih:DED4AD57A1268359D756DED5E3C9F77D3AF8A883
 ```bash
 magnet:?xt=urn:btih:6DA8FD8FBB3A432F09565EDAC5B650BF757F74E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +463,8 @@ magnet:?xt=urn:btih:6DA8FD8FBB3A432F09565EDAC5B650BF757F74E2
 magnet:?xt=urn:btih:7A5B1D1EFFF8005999D59D928B89857470846532
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +488,8 @@ magnet:?xt=urn:btih:7A5B1D1EFFF8005999D59D928B89857470846532
 ```bash
 magnet:?xt=urn:btih:303BC589BDEF8378A627BFA557CF2F7380CFDD98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +515,8 @@ magnet:?xt=urn:btih:303BC589BDEF8378A627BFA557CF2F7380CFDD98
 magnet:?xt=urn:btih:703934641768CE93E34FD6F1A046129D7FFD56FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +540,8 @@ magnet:?xt=urn:btih:703934641768CE93E34FD6F1A046129D7FFD56FD
 ```bash
 magnet:?xt=urn:btih:FC6567D84F18DB96C1761FF22DD12DDBF74DEB35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +567,8 @@ magnet:?xt=urn:btih:FC6567D84F18DB96C1761FF22DD12DDBF74DEB35
 magnet:?xt=urn:btih:B8E8AF267F02152AA594970AE96F83CF7D1D8645
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +592,8 @@ magnet:?xt=urn:btih:B8E8AF267F02152AA594970AE96F83CF7D1D8645
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +619,8 @@ magnet:?xt=urn:btih:B8E8AF267F02152AA594970AE96F83CF7D1D8645
 magnet:?xt=urn:btih:FAE27CB3A2E0D09836D985749B06C75974463EAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +644,34 @@ magnet:?xt=urn:btih:FAE27CB3A2E0D09836D985749B06C75974463EAF
 ```bash
 magnet:?xt=urn:btih:E0031667AE43CAD60F29B0C81C441CAC9AF50088
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 832438   (409702) от 19.10.2014
+
+Как приручить дракона 2 / How to Train Your Dragon 2 (2014) BDRip [1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409702.jpg" />
+</div>
+
+
+###  Подробнее
+
+С момента примирения викингов и драконов прошло пять лет. Пока Астрид, Сморкала и остальные ребята проводят время, соревнуясь друг с другом в популярных на острове драконьих гонках, Иккинг и Беззубик путешествуют по небу, составляя карту неизвестных мест. Когда одно из их приключений приводит к открытию тайной ледяной пещеры, которая является домом для сотен ранее (   Читать дальше...   )Производство: США / DreamWorks Animation, Mad Hatter EntertainmentЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Дин ДеБлуа / Dean DeBloisАктеры: Джей Барушель, Кейт Бланшетт, Джерард Батлер, Крэйг Фергюсон, Америка Феррера, Джона Хилл, Кристофер Минц-Плассе, ТиДжей Миллер, Кристен Уиг, Джимон ХонсуПеревод: ДублированныйЯзык субтитров: Русский, украинский, английский (full, SDH)Продолжительность: 01:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3528F204D9937CD9C5083561062F98D9D8377817
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

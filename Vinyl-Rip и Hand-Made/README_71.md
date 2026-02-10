@@ -22,6 +22,8 @@ B1. No Tourists (4:18)(   Читать дальше...   )Жанр: Drum & Bass,
 magnet:?xt=urn:btih:DC0828362A46276D448EBE5A112DF8077F3ED08F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Jive Bunny And The Mastermixers - два магнитоальбома (1989,1990
 ```bash
 magnet:?xt=urn:btih:8DBD1AB79BEA880E157D518356111B05C2833737
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Yujiro Mabuchi '68 All Stars - Attractive Tenor-Sax Mood Best 16 (1973) [FLAC 2.
 magnet:?xt=urn:btih:1BFCF68DFA330C20F90284DE40338B5615755663
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Teruo Yoda & Dreamy Mood Orchestra - The Enchanted (1967) [FLAC 2.0|44,1/16|trac
 ```bash
 magnet:?xt=urn:btih:345B0C02C05BE67D1FDB3FD9EE5CDDBFDF3062D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ A4. Diamonds Never Made A Lady (4.40)(   Читать дальше...   )Жан�
 magnet:?xt=urn:btih:82EF9B7D2F0635157555C873D48345536816A334
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ B1 Ганга = Ganga(   Читать дальше...   )Жанр: Fusion, Conte
 ```bash
 magnet:?xt=urn:btih:96CB03520E81C42643907E2D5BF7B2060C838DF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ A4. Hypnotic Reality (3:51)(   Читать дальше...   )Производ�
 magnet:?xt=urn:btih:28A04B4CBBA2C61FA374EF435B0324396B7E4409
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ A4. Twentieth Century Fox (2:32)(   Читать дальше...   )Произв
 magnet:?xt=urn:btih:4EE4C3463260518783618A23B2960ECA6298FDE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +250,8 @@ This Mortal Coil - It'll End In Tears (1984) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]
 ```bash
 magnet:?xt=urn:btih:F6AA6D921F9BA64051DF912A12BAD6695F30985B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +279,8 @@ Dan Spătaru/Дан Спатару – Песни Из Кинофильма «П
 ```bash
 magnet:?xt=urn:btih:9CD317CEB5BC8B3619D40C2771E4BFFB989D7CDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +310,8 @@ Concerto in C minor BWV1062
 magnet:?xt=urn:btih:555FE2D2DDD5ECA2E2A1567AFBA20AFE89DDC569
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +338,8 @@ magnet:?xt=urn:btih:555FE2D2DDD5ECA2E2A1567AFBA20AFE89DDC569
 ```bash
 magnet:?xt=urn:btih:B0B9EE225700663909ADEA543A1933DE4975754B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +368,8 @@ VA - Шедевры инструментальной музыки части 1 -
 magnet:?xt=urn:btih:D73A71FB3328BCB5F9E052B853B1ECA49C126D6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +396,8 @@ VA - Бумер - 2 (2006) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)]<Original Sound
 ```bash
 magnet:?xt=urn:btih:CAF1630512B22B5A3B0C4375BBA87CB05F14185F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +426,8 @@ magnet:?xt=urn:btih:CAF1630512B22B5A3B0C4375BBA87CB05F14185F
 magnet:?xt=urn:btih:ACC1CB55A6EA91B7A9FFFE0CE3183EA54990A86B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +454,8 @@ A4 Ва-Банк - Максималист = Maximalist(   Читать даль�
 ```bash
 magnet:?xt=urn:btih:FB40DB677524F1F1F8DAA0B20AE52A8BAE3F0F2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +484,8 @@ Mr. Tambourine Man
 magnet:?xt=urn:btih:358880C8009362C10586FE4DC93E1E5826FA08BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +512,8 @@ magnet:?xt=urn:btih:358880C8009362C10586FE4DC93E1E5826FA08BA
 ```bash
 magnet:?xt=urn:btih:58B6824B5AE132B1C5DE346D91FA0155CDD32013
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +542,8 @@ A4. Азбука Морзе (4:20)(   Читать дальше...   )Жанр: 
 magnet:?xt=urn:btih:8C17B31487749AA733E92EA929CC704A65804826
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +570,8 @@ magnet:?xt=urn:btih:8C17B31487749AA733E92EA929CC704A65804826
 ```bash
 magnet:?xt=urn:btih:F09940735D84F1A49E0FD1EF3951DC9C9BA281A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +600,8 @@ A1 Ai No Banka
 magnet:?xt=urn:btih:62046206D8BC624EE55326F6E99665A95C91B372
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +628,8 @@ A4.  Ленинградский Рок-Н-Ролл (Leningradskij RockNroll)  ::
 ```bash
 magnet:?xt=urn:btih:8A015A8DC2FDC08ED779210622225416EDA39B69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +664,8 @@ magnet:?xt=urn:btih:8A015A8DC2FDC08ED779210622225416EDA39B69
 magnet:?xt=urn:btih:7C3EBEB566ACF8D405EDC9AB8F7D625BB4B35E5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +692,8 @@ magnet:?xt=urn:btih:7C3EBEB566ACF8D405EDC9AB8F7D625BB4B35E5F
 magnet:?xt=urn:btih:95712713C652BEE36B456A6A73544FE6606AD37B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +717,8 @@ magnet:?xt=urn:btih:95712713C652BEE36B456A6A73544FE6606AD37B
 ```bash
 magnet:?xt=urn:btih:39D7C3E023985F76D2240913DBAECCF95754B19D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -696,6 +746,8 @@ B1. Paranoiac Personality (3:10)(   Читать дальше...   )Произв
 ```bash
 magnet:?xt=urn:btih:3A58D410D05CBE2CF1B8A0E4EF6494B9482A7CB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

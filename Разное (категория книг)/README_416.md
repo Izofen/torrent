@@ -1,3 +1,29 @@
+###  Публикация: 1037372   (613248) от 24.07.2016
+
+Андрей Глазков | Одно дыхание. Медитация для занятых людей (2016) [FB2, RTF]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613248.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издателя: Умение правильно расслабляться и восстанавливаться – это великое мастерство, которое помогает отдыхать душой и телом и набираться сил. Работа, тренировки, бытовые хлопоты, даже общение – все это пусть незаметно, но утомляет, забирает энергию. Техника «Одно дыхание», разработанная Андреем Глазковым – специалистом по медитации, – создана для тех, кто не (   Читать дальше...   )Жанр: Эзотерика. МедитацияФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E4A0B71E96F00879F01FCFA2C0265D712277F86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037478   (613255) от 24.07.2016
 
 Ирина Пескова | Растения России. Определитель (2015) [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:91BB99DC61103CE5F7F16FB655F3C85C516161D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:91BB99DC61103CE5F7F16FB655F3C85C516161D4
 magnet:?xt=urn:btih:0F00C2A76A2FBB49407BC5AFD6C0D9A9CB47724B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:0F00C2A76A2FBB49407BC5AFD6C0D9A9CB47724B
 ```bash
 magnet:?xt=urn:btih:DA42AE1EBF16824455F78EF4BAC36E2BFD236038
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:DA42AE1EBF16824455F78EF4BAC36E2BFD236038
 magnet:?xt=urn:btih:A5CBCD748AD2C933D4B86AE23BF577793F20E9C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:A5CBCD748AD2C933D4B86AE23BF577793F20E9C0
 ```bash
 magnet:?xt=urn:btih:D7018EAF74A5E552CE8D973A12C4B96BB7DA0156
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:D7018EAF74A5E552CE8D973A12C4B96BB7DA0156
 magnet:?xt=urn:btih:03CBA5DBB5A86B7773B02026A4CC78FF61E711EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:03CBA5DBB5A86B7773B02026A4CC78FF61E711EB
 ```bash
 magnet:?xt=urn:btih:D200AFD3B678B493B16CB402C11559207F357E9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:D200AFD3B678B493B16CB402C11559207F357E9B
 magnet:?xt=urn:btih:66B987D22DC82C8AA01F1B44EAE78E47AA60AA6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:66B987D22DC82C8AA01F1B44EAE78E47AA60AA6B
 ```bash
 magnet:?xt=urn:btih:1EEB6789D7C78E5222AD7C2B859453F0834CBEEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:1EEB6789D7C78E5222AD7C2B859453F0834CBEEB
 magnet:?xt=urn:btih:E5022784803233539B2AF06A09A360CDCEB1B118
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:E5022784803233539B2AF06A09A360CDCEB1B118
 ```bash
 magnet:?xt=urn:btih:7D105452D7D80CD68A6341CEBB350A0EEDAF9AEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:7D105452D7D80CD68A6341CEBB350A0EEDAF9AEE
 magnet:?xt=urn:btih:3054F9FFE734B31DC37BDFAE19A5E081235939D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:3054F9FFE734B31DC37BDFAE19A5E081235939D1
 ```bash
 magnet:?xt=urn:btih:D6E544224EF66A8BE5E9C6D0AEDDB049A748689C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:D6E544224EF66A8BE5E9C6D0AEDDB049A748689C
 magnet:?xt=urn:btih:3187ED59A7F76DC9E53E745BA1A21B394E88AF5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:3187ED59A7F76DC9E53E745BA1A21B394E88AF5C
 magnet:?xt=urn:btih:D8C46638CF5451CB551C9C69CD9391A40A42DF57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:D8C46638CF5451CB551C9C69CD9391A40A42DF57
 ```bash
 magnet:?xt=urn:btih:298C37E84987EBECE78F50ADCD48293415FD0F8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:298C37E84987EBECE78F50ADCD48293415FD0F8F
 magnet:?xt=urn:btih:162D690D407D4C61F1458C001554521266AA61CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:162D690D407D4C61F1458C001554521266AA61CC
 ```bash
 magnet:?xt=urn:btih:F7174CF0C572B125EAB98FA6E0FEE438499BCAED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:F7174CF0C572B125EAB98FA6E0FEE438499BCAED
 magnet:?xt=urn:btih:5D909FFCF629FA0D01ED48D6B2C37206C9BD7BA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:5D909FFCF629FA0D01ED48D6B2C37206C9BD7BA7
 ```bash
 magnet:?xt=urn:btih:FC476D854988B6D2F12DF84F69CAF48987B8547F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:FC476D854988B6D2F12DF84F69CAF48987B8547F
 magnet:?xt=urn:btih:2D409D3D68CC679DA359D4F3B34D75B669A6F140
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:2D409D3D68CC679DA359D4F3B34D75B669A6F140
 ```bash
 magnet:?xt=urn:btih:48994DDB3616D3F338451CC94FCA8E0ED35C0B2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:48994DDB3616D3F338451CC94FCA8E0ED35C0B2E
 magnet:?xt=urn:btih:4E3BA8FF973A6684009E94DBBF780676ECC80797
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:4E3BA8FF973A6684009E94DBBF780676ECC80797
 ```bash
 magnet:?xt=urn:btih:5C5F8007044E84E69308AA80FA319B861756AC32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,32 +674,7 @@ magnet:?xt=urn:btih:5C5F8007044E84E69308AA80FA319B861756AC32
 magnet:?xt=urn:btih:9ACCA55F6D3B2E6D51009DC1828608B718D4EEA3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912061   (614243) от 24.06.2015
-
-Фолио | Даосские притчи (2014) [FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вся мудрость даосизма сосредоточена в притчах. Они помогают человеку приблизиться к пониманию Природы и самого себя.
-
-Верно говорят старые люди:
-– У каждого свой путь и своя правда, и если не видишь короткого пути к цели, иди длинным, но даже если нет цели, то все равно иди, ибо порою в пути обретаешь цель.Жанр: Мифы. Легенды. Эпос, Афоризмы и цитатыФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE1A457B9AE3C36AF1005CD9EAF4F5C4BD340A99
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

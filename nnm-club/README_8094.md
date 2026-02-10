@@ -22,6 +22,8 @@ Mystic Prophecy - Hellriot (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:A63DD4380B7CD8CEAFA6A57192A6C2CBB64FABFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ VA - Beatport Electro House: Sound Pack #259 (2021) [MP3|320 Kbps] <Electro, Dan
 magnet:?xt=urn:btih:21BC8787B22583578F1EB37E93794B7ABF20C1EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Fate/Grand Carnival | Судьба: Великий карнавал [2021, OVA, 
 ```bash
 magnet:?xt=urn:btih:F7AEC86EF43FCDB7D087888F3682C43D47A1F23B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ VA - Chilling Atmosphere (2020) [AAC|~335 Kbps] <Lounge, Chill Out, Downtempo>
 magnet:?xt=urn:btih:53C6B4914A85E8835A2E9852A702173153F4C1F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:53C6B4914A85E8835A2E9852A702173153F4C1F6
 magnet:?xt=urn:btih:2CBB5C00F95C40B3728C65D64F3632604D24D396
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ UniBook - Аудиокниги v0.5.6 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:2A3F8C0C4047C25913FBB15D0747515EDCD554F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ A4 Moving In The Midnight 5:50(   Читать дальше...   )Жанр: Synt
 magnet:?xt=urn:btih:100367999221F87BB153636235C47021470FC9AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:100367999221F87BB153636235C47021470FC9AF
 magnet:?xt=urn:btih:8F6755BF9335A88A1CAD5391DFAA3C2B24B80D4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:8F6755BF9335A88A1CAD5391DFAA3C2B24B80D4E
 ```bash
 magnet:?xt=urn:btih:C6385ADC82BF815491969F21F9F0A7433AFF1714
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ Misery - Risk It All (1992) Reissue, 2023, Eonian Records [FLAC|Lossless|WEB-DL|
 magnet:?xt=urn:btih:1AEDE7CD0E1C7BE20F57D6EE612155A2DF58D1C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ Alfred 4 Powerpack 4.3.3 [En]
 ```bash
 magnet:?xt=urn:btih:CEE38C099669F06092C11259A55FAC922E9C908D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ GoodNotes 5 v5.8.12 [Multi/Ru]
 magnet:?xt=urn:btih:B86CC33CBB869D7591C99BD1CE44CD978F52BB41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ AquaSoft Stages представляет собой мощный инструм�
 magnet:?xt=urn:btih:FE761D0A9D1409FB5716C03DEAF0E246C53499B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:FE761D0A9D1409FB5716C03DEAF0E246C53499B1
 ```bash
 magnet:?xt=urn:btih:C41F25EE62328A3A27D4FC75EA2C6B8F492295A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ Mike Tramp - Songs of White Lion (2023) [MP3|320 Kbps] <Hard Rock>
 magnet:?xt=urn:btih:00BC79FE6C2A03AE45D0F1D79B4DF35CB22B10B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:00BC79FE6C2A03AE45D0F1D79B4DF35CB22B10B8
 ```bash
 magnet:?xt=urn:btih:376D2415C968C0141FC5DED6D524B442112C669D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ VA - 2Rock Club Hits Vol. 3 (2023) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:DFD2EECAD14AE00DC230B8D4D05D903F0182F2F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ Sensei - это приложение, которое охватывает как
 ```bash
 magnet:?xt=urn:btih:AEEFC764ADA4D1118C1C2D5D169E244C6AEF4E5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +511,8 @@ PDFpen Pro - Программа для создания и редактиров�
 ```bash
 magnet:?xt=urn:btih:BEDBAC7CE27592BD1BACF2CDDEC56749F7D2ED5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +541,8 @@ Udemy, Ken Zhuang | Master Houdini FX: Art Directing Magic Smoke Explosion (2022
 magnet:?xt=urn:btih:7F0F634D95585E7471603A4C7A32FAA195D62983
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +570,8 @@ Outpost 11 - 4 Albums (2018-2023) [MP3|320 Kbps] <electro-industrial, EBM>
 magnet:?xt=urn:btih:FA12CC3A00FE5B8D118DA77CC6D28E66117A47E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +596,8 @@ magnet:?xt=urn:btih:FA12CC3A00FE5B8D118DA77CC6D28E66117A47E0
 ```bash
 magnet:?xt=urn:btih:9EC4619AEE78FD0C032B51022CF4DA5EC7187A6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +626,8 @@ Aviator - Aviator (1986) Reissue, 1997, Escape [MP3|320 Kbps] <Melodic Hard Rock
 magnet:?xt=urn:btih:9C3B4B6F764818FBE8EE33AA3939597C86037A53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +655,8 @@ Lostly - Trance Academy: Acid Revolution (Mixed By Lostly) (2015) [FLAC|Lossless
 magnet:?xt=urn:btih:037D1D80A5070B93A39BEE4D736FEFF669D3AB8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +680,8 @@ magnet:?xt=urn:btih:037D1D80A5070B93A39BEE4D736FEFF669D3AB8B
 ```bash
 magnet:?xt=urn:btih:130B95FB8A8D4BD8AC56DE270876AC6CA1793FB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -659,6 +709,8 @@ VA - Beatport Clubbing Techno: Electro Sound Pack #260 (2021) [MP3|320 Kbps] <Cl
 ```bash
 magnet:?xt=urn:btih:A2E00D5F6BA17B3FF2F5B059673589697FE09C6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

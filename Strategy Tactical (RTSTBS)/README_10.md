@@ -19,6 +19,8 @@ Intravenous 2 - это уникальное сочетание тактичес�
 magnet:?xt=urn:btih:3FF3502A601EBE0EA4719C2CD972239F7C41093C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Grotesque Tactics 2: Dungeons & Donuts – увлекательная весьм
 ```bash
 magnet:?xt=urn:btih:31DF2C5E54FE247DF93C228C404F04204FFDD1CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Renowned Explorers: International Society – это стратегическа�
 magnet:?xt=urn:btih:282903C536BBBB555CF516AC600F36D67202E2B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Narcos: Rise of the Cartels — жестокий боевик с элемент�
 ```bash
 magnet:?xt=urn:btih:41800F197BE04263060AD8FCA3625FEA6CAF6CD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Narcos: Rise of the Cartels (2019) [Ru/Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:9ADFFB1DEF21ED8E7B3062E79D0B4B74C9283EBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Formata (2017) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:50DA8AA54FABEE12E1C784B7AE6A087A301BB5F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ This War of Mine - первая игра, которая позволяет ув
 magnet:?xt=urn:btih:D6DFB4DD1EC00C7A6B981497E947C7DEF636D5AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Super Dungeon Tactics – тактическая пошаговая страте
 ```bash
 magnet:?xt=urn:btih:433B0BD5944409C6314F890A4C8597C0539AC827
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Warlock: Master of the Arcane - новая стратегическая игра
 magnet:?xt=urn:btih:61925F511A2F2433FC483A9019B460AC24715458
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Warhammer 40,000: Mechanicus (2018) [Ru/Multi] (1.0.6/dlc) Repack Covfefe
 ```bash
 magnet:?xt=urn:btih:CEE829379EB2A396A3F2CFD505754FFE056549B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Warhammer 40,000: Dawn of War II - Retribution - второе отдельное
 magnet:?xt=urn:btih:8F66A64272B0971D8928E46644758A9C1BC4DE3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ UFO: Afterlight / UFO: Прозрение (2007) [Ru/En] (1.7) License GOG
 ```bash
 magnet:?xt=urn:btih:7BC271DEC07DCB6494F335B7E32E8616F35243E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ The Banner Saga (2014) [Ru/Multi] (2.36.03/dlc) Repack R.G. Catalyst
 magnet:?xt=urn:btih:6471FC9700D8C6F65088C5222651FBEB8317E269
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Strategic Mind: The Pacific - пошаговая стратегия, событ�
 ```bash
 magnet:?xt=urn:btih:39A85FB63D2C4CF6FF1CBB238A9295843740AA5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Wargame: Red Dragon – первый выпуск популярной сери�
 magnet:?xt=urn:btih:CBE97126E0C8AD725A7AB43AED5861E22D23E875
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Warhammer 40,000: Mechanicus (2018) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:9A61D7BF0095C5BBDF6C590BE77CD4D9199C42C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Battlefleet Gothic: Armada - адаптация классической нас�
 magnet:?xt=urn:btih:89D0AFE5C3366E4FCC6AD14563702C36E498E24D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Order of Battle – военная пошаговая стратегия, соб
 ```bash
 magnet:?xt=urn:btih:00B0B189E8762E1E553C5561BF9C2C64ABAF6C8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Breach & Clear: Deadline Rebirth (2015) [Ru/Multi] (1.23) License GOG
 magnet:?xt=urn:btih:4B83A53C80B73AC04D5A3529170F222484428CC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Abandon Ship (2019) [Ru/Milti] (1.0.13298) Repack xatab
 ```bash
 magnet:?xt=urn:btih:D9F2D38D42A4DD047A4C3D018152CCD6FE1EEBB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ Age of Empires — серия исторических стратегий в р�
 magnet:?xt=urn:btih:35884047653ECC4C3E8A215766EE5077B492A2C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Rebel Cops — спин-офф This Is the Police, целиком посвяще
 ```bash
 magnet:?xt=urn:btih:E6ACF1A7BF9CC298CA774E7F38C04A875BA9BA40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ Templar Battleforce — пошаговая стратегия с элемент�
 magnet:?xt=urn:btih:63FABC9A14ADECE332DBE6949323DAADF69FBA75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ The Banner Saga 2 – продолжение захватывающей The Bann
 ```bash
 magnet:?xt=urn:btih:311E1558F5FD698D14E68A3523BF1726D4434C33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ Frontline Zed (2019) [Ru/Multi] (1.00) Repack xatab
 magnet:?xt=urn:btih:3D4B97ED5D3D0DA491009181FD9939CF374B2B6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Banner Saga 3 - грандиозное завершение захватываю
 ```bash
 magnet:?xt=urn:btih:017CA043775E15E556606093474FA4CF7A8F6036
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

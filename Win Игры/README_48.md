@@ -19,6 +19,8 @@ Near-Mage - нарративное приключение со щепоткой 
 magnet:?xt=urn:btih:545980482DB498A1033D20C84C224F267E50BC56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Far Cry 2 (2008) [Ru] (1.03) Repack EXROW [Fortune's Edition]
 ```bash
 magnet:?xt=urn:btih:ECACFE75BB4265B5C85F1EEDC100EF5EA8D6B719
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Lamplight City (2018) [Multi] (1.13.1) License GOG
 magnet:?xt=urn:btih:1E65BC402B0C6D6D12821F6DBE32E19DB2FCA57C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Planet Crafter (2022) [Ru/Multi] (1.524/dlc) Repack FitGirl [The Galactic Te
 ```bash
 magnet:?xt=urn:btih:16CA7B90C4AC483F796DDD049D05BED1B2631345
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Way of the Hunter (2022) [Ru/Multi] (1.27/dlc) Scene Rune [Elite Edition]
 magnet:?xt=urn:btih:69FE0A0486CF0BA65F9647B461A3684014BA788D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Hero of the Kingdom / Герой Королевства (2012) [Ru/Multi] (1.6.1
 ```bash
 magnet:?xt=urn:btih:C8DC9CC1D4315EB011BBA3F741E3786743DB34B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ STONKS-9800: Stock Market Simulator (2023) [Multi] (0.6.2.19) License GOG [Early
 magnet:?xt=urn:btih:D6DDD369302BE97FAF91CC9285E131B018D293C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Long Dark (2017) [Ru/Multi] (Build 2.44 157357 S/dlc) Repack Let'sРlay [Qui
 ```bash
 magnet:?xt=urn:btih:2AD9E1E8FDC4DA6D187793CFBECFA1E19EE1C931
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Hero of the Kingdom: The Lost Tales 3 / Герой Королевства: Ут�
 magnet:?xt=urn:btih:B11ACFA0426540894DB3D05E4428266B0CF7AAA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Mindseye (2025) [Ru/Multi] (4598223) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:5564DB41CD11D1616141BD37A3A81A2BD8D1D469
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Crow Country (2024) [Multi] (1.0.7) License GOG
 magnet:?xt=urn:btih:67A3F887ACD03DF9C62EAB87699FCEB52077F3E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ The Alters (2025) [Ru/Multi] (1.0.1.46/dlc) Repack Other s [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:3A592098B91E51F1EAEA0FCE702C601225AE275C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ BallisticNG – динамичный гоночный симулятор в се
 magnet:?xt=urn:btih:24E0E93CA678DFA4275779FD347A8798C210143C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ An Amazing Wizard - это 2D-рогалик с быстрым темпом иг
 ```bash
 magnet:?xt=urn:btih:1ACAB41628DF07BEC7BA181D1A87897785FB5ADF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Caribbean Legend - пиратская РПГ с открытым миром по
 magnet:?xt=urn:btih:953EF09CDF5EA1AC73E46E14B0961FDDD215CB9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Suzerain (2020) [En] (3.1.0.1.137/dlc) License GOG [Expanded Edition]
 ```bash
 magnet:?xt=urn:btih:0015FC3DAE9089EA98E2824CEF35AE8D88F19508
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Heading Out - A Narrative Road Movie Racing Game представляет соб
 magnet:?xt=urn:btih:42B10020269B57303B9FF0D9761E294320D6CFD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (1.3.1/dlc) Scene Rune [Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:8E7FE3986C37A7BF792AF2A89CE224A84669F368
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Rift of the NecroDancer (2025) [Ru/Multi] (1.5.0/dlc) Repack FitGirl [Ultimate P
 magnet:?xt=urn:btih:26E890450D06627E801ECDE466BAD99305DFF002
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Kitty Collapse (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7BD28956170A02876869B1ADE47FED15AE2B02CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Lost in Random: The Eternal Die объединила динамичный экш
 magnet:?xt=urn:btih:948E9B7E64FCD724A9A64614DE2B6F1200770EA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Downward - это живописная приключенческая игра �
 ```bash
 magnet:?xt=urn:btih:595DBCEF5ACA1B1927355395EDBE712179CDCADB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Cuphead – это в прямом смысле слова "классическ
 magnet:?xt=urn:btih:190258A7EE3D95A98DF3D10483C2565E15BAF701
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Five Nights at Freddy's: Secret of the Mimic погружает игроков �
 ```bash
 magnet:?xt=urn:btih:33935076178044F6CBE40964436048ADD261C27E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ MechWarrior 5: Clans (2024) [Ru/Multi] (1.0.109/dlc) Repack Other s [Digital Col
 magnet:?xt=urn:btih:A541D4AF38108676510CB02D546059E140C928B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Carrier Command 2 – стратегический игровой проект, 
 ```bash
 magnet:?xt=urn:btih:231C42F23A0B9E93023F38366748D1B02D8B347B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

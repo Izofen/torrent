@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:47417B4120F3B86F4CDB030D13CAD1C571F85B14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:47417B4120F3B86F4CDB030D13CAD1C571F85B14
 ```bash
 magnet:?xt=urn:btih:C24A288D952A73D5D7F5B02A0E68EA423B1B9CBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ VA - Balkan Connection: Winter 2021 (2021) [AAC|~334 Kbps] <Progressive House, D
 magnet:?xt=urn:btih:6245B83A2F643BAE8648EAA6FF11730149796B66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Apple снова обвиняют в практике запланированн
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Apple снова обвиняют в практике запланированн
 magnet:?xt=urn:btih:DD56981C351EC80F2CA8E4BEC9EDA14B8C6CF8EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:1D28CB563BB13316C2AF46D93E3A2E5BA1539B2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Bradley Edgeworth и др. | CCNP and CCIE Enterprise Core ENCOR 350-401 Officia
 magnet:?xt=urn:btih:495C0C7C55381B5209075F546FFE2ED7A3C5F3A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Permute - очень простой видео конвертер с миним�
 ```bash
 magnet:?xt=urn:btih:FA8C1D4FA31A79F1E0B626E021C902DDC2B3F086
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Hot Wheels Unleashed (2021) [Ru/Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:684381E5C45B99C6433F84E544D92435579733A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ UBOAT (2019) [Ru/En] (b128hf4) Repack xatab [Early Access]
 ```bash
 magnet:?xt=urn:btih:A4AC52850D66E511048DA129F2476C207E3D3638
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:A4AC52850D66E511048DA129F2476C207E3D3638
 ```bash
 magnet:?xt=urn:btih:5FB8899F6C18D58CB5D5539F9EF228587C05F45C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Harry James - Compact Jazz (1987) Verve Records [FLAC|Lossless|tracks + .cue] <S
 magnet:?xt=urn:btih:58F4A3262F2AE3808DC0DAB8201CCD0A17AF652C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:58F4A3262F2AE3808DC0DAB8201CCD0A17AF652C
 magnet:?xt=urn:btih:987BFFB79FDEBDC574DFBE13D4AFEB14C4EFFEC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Google объявила, что общедоступная версия брау
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ Arete Hime | The Adventure of Princess Arete | Принцесса Аритэ [20
 magnet:?xt=urn:btih:D9586A743715D6FAD48962109249412038057BCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:D9586A743715D6FAD48962109249412038057BCB
 ```bash
 magnet:?xt=urn:btih:2BEA69348655A01C20F09ACEDA94A4D4467D2F8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ Animal Drive - Bite! (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy
 magnet:?xt=urn:btih:16CFF4FD82B1D2E58B37676C04970C94FC7FA072
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:16CFF4FD82B1D2E58B37676C04970C94FC7FA072
 ```bash
 magnet:?xt=urn:btih:044D9FAEED1DA7DCE965668D278328A8F9483739
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:044D9FAEED1DA7DCE965668D278328A8F9483739
 magnet:?xt=urn:btih:084F264616A63926C21BF0155091F60F5E907D9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ magnet:?xt=urn:btih:084F264616A63926C21BF0155091F60F5E907D9E
 ```bash
 magnet:?xt=urn:btih:E1DF2E3E1FC1B731A184A87C707BC947E8967685
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +556,8 @@ VA - A Strangely Isolated Place | 2021 (mixed by todos) (2021) [AAC|~304 Kbps] <
 magnet:?xt=urn:btih:60C96A96562B6979901336180AC8830E22420DEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +581,8 @@ magnet:?xt=urn:btih:60C96A96562B6979901336180AC8830E22420DEB
 ```bash
 magnet:?xt=urn:btih:7CBFA3752373B557235C5C4D78B43637AEBC1F8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +608,8 @@ Zombie Army 4: Dead War (2020) [Ru/Multi] (1.06/dlc) License EMPRESS [Super Delu
 magnet:?xt=urn:btih:4F5D20E05F4320A4A9F4CFE305060E81AE91983C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +633,8 @@ Haunted Legends 15: The Scars of Lamia / Легенды о призраках 15
 ```bash
 magnet:?xt=urn:btih:87E7BE57538296B497E0994BE2E7560815D3E369
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +663,8 @@ VA - Jazz & Soul: Urban Chillout Music (2021) [AAC|~305 Kbps] <Chill Out, Nu Jaz
 magnet:?xt=urn:btih:AB39E78007681FA7688A2027C9CF6B2F34B165F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ magnet:?xt=urn:btih:AB39E78007681FA7688A2027C9CF6B2F34B165F4
 ```bash
 magnet:?xt=urn:btih:A5FED45E1E94A5EABB6F19889BDC8B6364165CB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

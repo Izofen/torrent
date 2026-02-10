@@ -22,6 +22,8 @@ Dario Marianelli - Pride & Prejudice (2005) [MP3|320 Kbps] <Soundtrack, Score>
 magnet:?xt=urn:btih:7F7C1FFECC3918145C38EF003F02284A27343A55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:7F7C1FFECC3918145C38EF003F02284A27343A55
 ```bash
 magnet:?xt=urn:btih:F4C15BF47E78B73975060C5B8F4FD62E150DDAE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Sherry Finzer & Mark Holland - Somewhere New (2018) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:F928D2F21C8CF95E866E9CBE38332F3AB2893A27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Deuter - Sрасе (2017) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:D2D66320DFF05E7BE9FE935B2C59A419395371BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Richard Evans - Breathe (2006) [FLAC|Lossless|WEB-DL|tracks] <New Age, Solo Pian
 magnet:?xt=urn:btih:23EFE1B756A010D50F3C76A26E2F26A7198DBDD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Wasabi (2001) [MP3|320 Kbps] <Soundtrack, Score>
 ```bash
 magnet:?xt=urn:btih:9BF8734348D4A06FEB5105F69BA129CA1B84A738
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Buddha Lounge Ensemble - Renditions Of Led Zeppelin (2008) [MP3|320 Kbps] <Elect
 magnet:?xt=urn:btih:D033AC75CC6719B4CD61A48B799C5ADEE813DD79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Autumn Piano Bar Music Emotional Piano Bar Music Collection Liquid and Sens
 ```bash
 magnet:?xt=urn:btih:A938A342182109ECB7FD900D687EC679155BA445
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Eric Clapton - Music From The Motion Picture Soundtrack RUSH (1992) [FLAC|image+
 magnet:?xt=urn:btih:A847B5198B971615E705045411051B472D50F3AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Bernward Koch - Remembering (2015) [MP3|320 кб/с]<New Age, Piano>
 ```bash
 magnet:?xt=urn:btih:8C508E49CF2331B7668B3D9382775A7132EAE785
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Michael Giacchino - Doctor Strange / Доктор Стрэндж (Original Motio
 magnet:?xt=urn:btih:BA85F395227F64A1CE16591D078F66F0171343BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Michael Giacchino - Doctor Strange / Доктор Стрэндж (Original Motio
 ```bash
 magnet:?xt=urn:btih:84E24A4D5AE5CEC33B60C97626B3451F5D019999
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +376,8 @@ Jesse Cook - 2 альбома (2005 & 2012) [FLAC|Lossless]<Jazz, Flamenco, Guit
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +410,8 @@ Jesse Cook - 2 альбома (2005 & 2012) [FLAC|Lossless]<Jazz, Flamenco, Guit
 magnet:?xt=urn:btih:4A3A7A2DBD3A63D77173AAB6E4E00CFAB28234CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +438,8 @@ VA - The Thomas Crown Affair (1999) [MP3|320 Kbps] <Soundtrack, Score>
 ```bash
 magnet:?xt=urn:btih:01EF50755B9552AB12D0D6DF8E01A0928ECEDC4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +468,8 @@ Michel Pepe - La Foret d'Eden (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 magnet:?xt=urn:btih:43D15FC960965B58D14663D9267C06EEDDB97E20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +496,8 @@ VA - Snatch (Expanded) (2000) [MP3|320 Kbps] <Soundtrack, Score>
 ```bash
 magnet:?xt=urn:btih:24D8B16561AECC8963BC98F6AE68929533BDD7A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +526,8 @@ VA - About Time (2013) [MP3|320 Kbps] <Soundtrack>
 magnet:?xt=urn:btih:192326670E5D27B0D124FFDB7462202186700B39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +554,8 @@ Trevor Rabin & Harry Gregson-Williams - Enemy of the State (1998) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:661AE7CF4250A577D87F9FC3ED328A19611140C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +584,8 @@ The Romantic Strings Orchestra - Night And Day: The Great Songs Of Cole Porter (
 magnet:?xt=urn:btih:3354E572FE7764ADE25FBA7D33A80D6A90B78C48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +612,8 @@ Fleur (Flёur) - Штормовое предупреждение (2014) [FLAC|tr
 ```bash
 magnet:?xt=urn:btih:7DBDDD1CFE636B65577FDC38785FAE01ED68FC3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +642,8 @@ Leonard Cohen - You Want It Darker (2016) [FLAC|Lossless|image + .cue] <Folk, Ro
 magnet:?xt=urn:btih:33840A26661750E9F575B4A9B1CD63A672BD26E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +670,8 @@ VA - Classic Film Music For The Millennium (2000) [MP3|320 Kbps] <Instrumental, 
 ```bash
 magnet:?xt=urn:btih:AB4B4C7C8DFCCB3B888A8C4B4C4D5CE10EC82F0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -660,6 +706,8 @@ Amer-Inkas - 3 albums (2010-2012) [MP3|320 кб/с]<Instrumental, Native america
 magnet:?xt=urn:btih:F81AFE4022F69EB46D836BA0C6EACCF1FC89416F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -686,6 +734,8 @@ Deosil - A Drop of Eternity (2017) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:E193ADF877FD577442851B2CDFBADB23927C3DAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -714,6 +764,8 @@ Nicolas de Angelis является ярким представителем фр
 ```bash
 magnet:?xt=urn:btih:4FECD77F2AF1AD87D2A7BD73C214BFE39F9F9398
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ VA - Greatest Rock Ballads (2025) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:BFBACEE77304D441D6248C1C14CF13730AF2F183
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Flyoobe (Ранее назывался Flyby11) — это простой пат
 magnet:?xt=urn:btih:BD99438E3E3E8D3EDAA81848F31BBEADAA17623E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Drill Core (2025) [Ru/Multi] (1.199.5.7.17.49506e6/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:86347225F152D9B97937061797AD1745D8323566
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ XIX век. 11-летний Джордж Вашингтон Блэк живет 
 magnet:?xt=urn:btih:9B44CFCCD7280B93F39A9232ADD75262FD858F54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:9B44CFCCD7280B93F39A9232ADD75262FD858F54
 ```bash
 magnet:?xt=urn:btih:15F570D24D6DD31DC1276CCAAF60B5D42473170F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:15F570D24D6DD31DC1276CCAAF60B5D42473170F
 magnet:?xt=urn:btih:FE65B7C19CC438F8DA4431C19588DED30E053BFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:FE65B7C19CC438F8DA4431C19588DED30E053BFA
 ```bash
 magnet:?xt=urn:btih:7B648170B0A8C3830905350597BD841B5BDB6924
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:7B648170B0A8C3830905350597BD841B5BDB6924
 magnet:?xt=urn:btih:C804FF6539EE2888022CC50308460CE1E04D3BBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:C804FF6539EE2888022CC50308460CE1E04D3BBC
 ```bash
 magnet:?xt=urn:btih:60D3DB073E110EA6C97850DEEAFFD6976906C3DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:60D3DB073E110EA6C97850DEEAFFD6976906C3DA
 magnet:?xt=urn:btih:BA9E9158B85AB6296DD89B97AC09E358E2E52EE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:BA9E9158B85AB6296DD89B97AC09E358E2E52EE2
 magnet:?xt=urn:btih:318915C6A9170194E36718C718F30B1D7B180B04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:318915C6A9170194E36718C718F30B1D7B180B04
 ```bash
 magnet:?xt=urn:btih:E4D95D8BDD730D8F6D58BC1D9908DB786341C590
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Balun.Courses, Сергей Венецкий | Глубокий Git (2025) WEB-D
 magnet:?xt=urn:btih:DC69F7F04EFA7943D06140811220D44B4F0CE9B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:DC69F7F04EFA7943D06140811220D44B4F0CE9B8
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Red Dead Redemption 2 – приключенческий шутер от тре�
 ```bash
 magnet:?xt=urn:btih:2803B9DF72AB8E1F39EF160FC2ECB8236F6DC140
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:2803B9DF72AB8E1F39EF160FC2ECB8236F6DC140
 magnet:?xt=urn:btih:C95C3838F8CF4A6BE4A3E63F0740B22E2AC27F3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:C95C3838F8CF4A6BE4A3E63F0740B22E2AC27F3A
 ```bash
 magnet:?xt=urn:btih:217657DEE59F202F9CE3EEB14CCCFE4CBCB9AA86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:217657DEE59F202F9CE3EEB14CCCFE4CBCB9AA86
 magnet:?xt=urn:btih:A1DB6923932615F546028DFFE5F5DC89C25D447C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ No Plan B – это тактическая стратегия и по совм�
 ```bash
 magnet:?xt=urn:btih:EE4DA457040A72CC6BB1EF684BFC330AB897A754
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ Call Of Duty: Black Ops 6 (2024) [Ru/Multi] (11.1) Repack FitGirl
 magnet:?xt=urn:btih:A5CFB2408965EA7D1C21321045A6643D4CEDC11D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Cent Browser является усовершенствованной верси�
 ```bash
 magnet:?xt=urn:btih:6AA4A41140B2CB164707BEA4A56AF40C65D9A0CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ Craft The World – уникальная стратегия-песочница, 
 magnet:?xt=urn:btih:1D1555E3961C4783A42E213ACAE63B90ED8BB78A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:1D1555E3961C4783A42E213ACAE63B90ED8BB78A
 ```bash
 magnet:?xt=urn:btih:655C43D5802FC9179FDAE3BA1A54D2919D576B81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:655C43D5802FC9179FDAE3BA1A54D2919D576B81
 magnet:?xt=urn:btih:5B0CF6F5C3C6FB96B74A363518FA598CDD50E5F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ Call Of Duty: Black Ops 6 (2024) [Ru/Multi] (11.1) Repack seleZen
 magnet:?xt=urn:btih:B523D720BDAB1F3F1FC75E258F2EFED58D0F2272
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:B523D720BDAB1F3F1FC75E258F2EFED58D0F2272
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

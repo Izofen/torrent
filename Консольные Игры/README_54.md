@@ -19,6 +19,8 @@ Duck Dynasty - охоться, катайся и веселись, в игре-�
 magnet:?xt=urn:btih:D8B47B834067D65938092FBAE4CCE7857C2DB634
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Ripened Tingle's Balloon Trip of Love (2009) [NDS] [JPN] [Unofficial] [En]
 ```bash
 magnet:?xt=urn:btih:1862F0D89FB968E3BE21936D78A0FA33E4C87FBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ One Piece: Unlimited Cruise 1: The Treasure Beneath the Waves - это нове�
 magnet:?xt=urn:btih:17BECAB326C74481297BF478A157F065CD85CD6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Jeep Thrills [Wii] [NTSC] [Eng] (2008)
 ```bash
 magnet:?xt=urn:btih:8B2958751B6ACD72B97AE38A514C7445B14617AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Bladestorm: Nightmare - это римейк стратегического эк�
 magnet:?xt=urn:btih:FBEEBC845F29A50A6A767F6CAB73F14316141B18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Trine 2 / Trine 2. Триединство (2011) [PS3] [USA] 3.55 [Cobra ODE / E
 magnet:?xt=urn:btih:01E4EE11292EE7E66A7FC3D6B13E691D3FC177BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Smart as... / Умник?!  (2012) [PSVita] [EUR] 3.60 [NoNpDrm] [License] [Ru/E
 ```bash
 magnet:?xt=urn:btih:FE808DAAE242B590D1C3E9846B752BFB8FDF67ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ SBK Generations - очередная часть мотоциклетных го�
 magnet:?xt=urn:btih:F9B0E67F76F3C01AE19CCAC920DA56D0D7D9C278
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Need for Speed: ProStreet (2007) [PS3] [EUR] 1.93 [Cobra ODE / E3 ODE PRO ISO] [
 magnet:?xt=urn:btih:CF58BD5A36688C3C7337BFA22B0C04863F37C618
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ The LEGO Movie Videogame (2014) [PSVita] [EUR] 3.60 [NoNpDrm] [License] [Ru/En]
 ```bash
 magnet:?xt=urn:btih:DD6D90ACECF6A35EDB80795E06025C2D15A6967B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:DD6D90ACECF6A35EDB80795E06025C2D15A6967B
 magnet:?xt=urn:btih:2D2CC193DA617FB4D9106B1089F23EB3178668B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ UFC Personal Trainer дарит вам возможность заниматьс
 magnet:?xt=urn:btih:A164ABA059FF4EF9ECDF22EB624B2B6CE396B937
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ FAST Racing Neo (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop] [En]
 ```bash
 magnet:?xt=urn:btih:219725398B9BBF88D06A701101793662842DE3BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ Aliens vs. Predator / Чужие против Хищника [PS3] [EUR] [Ru] [3
 magnet:?xt=urn:btih:176599D316206BD125F825B82A836FCD5682E4FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ Nintendo 3DS ROMPack (2011-2017) [3DS] [ALL] [Decrypted] [Unofficial] [Multi] (1
 ```bash
 magnet:?xt=urn:btih:C984FEADEC98FA82DCCAD482BB41FD585C2E1EFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ Resident Evil - Обитель зла, в Японии известная как
 magnet:?xt=urn:btih:6FEFAF6ED6AD020BB541574C3D53C7531AC2374C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ Wolf of the Battlefield: Commando 3 (2008) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE 
 ```bash
 magnet:?xt=urn:btih:990F09E247501DD25212DA0C9AB2C1AD70A565EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +477,8 @@ Malicious (2012) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN] [En]
 magnet:?xt=urn:btih:9352BB6707B67292593173D1295E90AAD43CBF3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +502,8 @@ NBA Ballers: Chosen One является продолжением аркадно
 ```bash
 magnet:?xt=urn:btih:92E51876F68931EB78812BFB3667B921A72804D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +529,8 @@ Rayman Legends (2013) [PS3] [EUR] 4.46 [Cobra ODE / E3 ODE PRO ISO] [License] [R
 magnet:?xt=urn:btih:BFB49C10A7BED20C8FF4EE2DE68D9B34D0F1380B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ Cars 3: Driven to Win / Тачки 3: Навстречу победе (2017) [PS
 ```bash
 magnet:?xt=urn:btih:A9D6636EC9F465022369DB818DA742D59B61813B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ NHL 16: Legacy Edition (2015) [PS3] [EUR] 4.75 [Cobra ODE / E3 ODE PRO] [License
 magnet:?xt=urn:btih:78F06DE4B6BD36814172877D5D01B4AE6CC00CEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ Michael Jackson: The Experience (2011) [PS3] [EUR] 3.56 [Cobra ODE / E3 ODE PRO 
 magnet:?xt=urn:btih:68D52A976DC256F2CF93A6005A3ED8900FBB7516
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ Yoru No Nai Kuni (2015) [PS3] [JAP] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficia
 ```bash
 magnet:?xt=urn:btih:CAC6419DB65FC9C9E336760CC795DD14C6340867
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +661,8 @@ Wii Fit U (2013) [WiiU] [USA] 5.3.2 [Loadiine GX2] [License] [En]
 magnet:?xt=urn:btih:E322A243960DB25D3156C50A7925F67DB957C61E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ Just Dance 2017 (2016) [PS3] [USA] 4.80 [Cobra ODE / E3 ODE PRO ISO] [License] [
 ```bash
 magnet:?xt=urn:btih:02E8B87BE0F8D32D69146EC8D73C492BD42382E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

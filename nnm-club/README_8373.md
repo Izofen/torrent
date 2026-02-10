@@ -19,6 +19,8 @@ Remini / Улучшение Фото v3.7.246.202202009 [Ru/En]
 magnet:?xt=urn:btih:9BD6EEEA43804C1E5CA0E89DCBB229C521BFA470
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:9BD6EEEA43804C1E5CA0E89DCBB229C521BFA470
 magnet:?xt=urn:btih:0B053213209A7ECA270C3F58EF4AEC2F243421D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Rise Eterna II (2) (2025) [Multi] (20251003) License GOG
 ```bash
 magnet:?xt=urn:btih:4233A59D34626AB330D26ED06D18765296B781F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Yahari Ore no Seishun LoveCome wa Machigatte Iru. Kan | OreGairu 3 | Как и �
 magnet:?xt=urn:btih:73258F4E0BA872AD93A9A5BD048968F47836F593
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ PDF-XChange Editor — программа для просмотра, редак�
 ```bash
 magnet:?xt=urn:btih:6B5E80D43D095D7509931DEEDDED52A7292179E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:6B5E80D43D095D7509931DEEDDED52A7292179E2
 magnet:?xt=urn:btih:3FCD8C3EB769301912588B01315F0BC16B41E130
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ True Fear: Forsaken Souls Part 3 - заключительная глава тр�
 ```bash
 magnet:?xt=urn:btih:C60B567EBAAEBB102CED4850178D84BCEDFCD294
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Portrait Painter - является профессиональным инстр�
 magnet:?xt=urn:btih:AF72BD12A97313E10F41FB404E7880F3363E1F5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Metal: Hellsinger (2022) [Ru/Multi] (rc2/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:9141B31944885233CE72E278923E39C743B06681
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Warhammer 40,000: Boltgun (2023) [Ru/Multi] (1.17.38829.471) Scene FAIRLIGHT
 magnet:?xt=urn:btih:7BFA5F3F55C9AA457BA60879EE092DBE9B1CA5BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Homefront (2011) [Ru/Multi] (1.5.500001.0/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:3D2ED90D7E2A8CDD4D26F278A0365BC3E9D289AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:3D2ED90D7E2A8CDD4D26F278A0365BC3E9D289AC
 magnet:?xt=urn:btih:CA7DFDE170FF6E64DC6D31577FCBEBB1544B131F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Syberia - Remastered (2025) [Ru/Multi] (Build 20668622) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F86766D85D2A2A5BCFCBC2B0ED8DD95EC766C479
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:F86766D85D2A2A5BCFCBC2B0ED8DD95EC766C479
 magnet:?xt=urn:btih:65DD7574088AF33A62628125F58CCEB07CF73F8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ PDF-XChange Pro — универсальное решение для работ�
 ```bash
 magnet:?xt=urn:btih:8172E8C735759662D3B34D26D6F6E7A2EBA45B65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:8172E8C735759662D3B34D26D6F6E7A2EBA45B65
 magnet:?xt=urn:btih:845D712A4EF0524A24859DC5B8B0D64EB666C5FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Artista Impresso v1.3.58 [En]
 ```bash
 magnet:?xt=urn:btih:7ABDC19EF6C58B060403E4FE4D695E8B1F8C72D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:7ABDC19EF6C58B060403E4FE4D695E8B1F8C72D3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:7ABDC19EF6C58B060403E4FE4D695E8B1F8C72D3
 ```bash
 magnet:?xt=urn:btih:445950F491749F962BCD32152D25BB36A9E3CB4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:445950F491749F962BCD32152D25BB36A9E3CB4C
 magnet:?xt=urn:btih:81DBC74968961FB2B09100673461D8FF267FA7CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:81DBC74968961FB2B09100673461D8FF267FA7CF
 ```bash
 magnet:?xt=urn:btih:92CF7D4F5A354250C1E3D9AF14FC673D8D1F32DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:92CF7D4F5A354250C1E3D9AF14FC673D8D1F32DB
 magnet:?xt=urn:btih:424501B8B5D5AA754E85049409FCBF8450CE2A01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ magnet:?xt=urn:btih:424501B8B5D5AA754E85049409FCBF8450CE2A01
 ```bash
 magnet:?xt=urn:btih:1E30E7C741D600B79A0E1AE79A31B846FEB1D98E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:1E30E7C741D600B79A0E1AE79A31B846FEB1D98E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Skillbox, Е. Брызгалина, А. Кузнецов, Н. Клюева | Ф�
 ```bash
 magnet:?xt=urn:btih:481E1D866819532E3AD4C93DB875F0AC54501583
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +676,8 @@ Dmitry Spirin (ex-Тараканы) - Live in Belgrade (2025) [MP3|320 Kbps] <Ro
 ```bash
 magnet:?xt=urn:btih:A8F6DBE4C255F5D9034D31FF57AD730840B6673E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

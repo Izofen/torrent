@@ -22,6 +22,8 @@ Stephen Wells | Polypainting in ZBrush Volume 1-3 (2015) PCRec
 magnet:?xt=urn:btih:8AF20C4372319787A81672DC3227307CAB17ED27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:8AF20C4372319787A81672DC3227307CAB17ED27
 ```bash
 magnet:?xt=urn:btih:BDCEA07D39ED2B66AD14E258E460DBF47AEE1BCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:BDCEA07D39ED2B66AD14E258E460DBF47AEE1BCE
 magnet:?xt=urn:btih:DE86A0026E082821D2D7444D6A6CF3A3B2A7C162
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Python-разработчик создаёт бэкенд сайтов: мозг
 ```bash
 magnet:?xt=urn:btih:55D9C69AD116D3D5503B5923FE0AAD62DCD4EF07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ Udemy, Rocket Kids Tech education | 3D моделирование в Autodesk Ma
 magnet:?xt=urn:btih:63E46082B7A808ABF0B00BF69416DEF20DE85F90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ Udemy, Brad Traversy | 20 веб-проектов с использование�
 ```bash
 magnet:?xt=urn:btih:28FD456CC791B05D1C95FCD272ADDDC6DACA20C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +189,8 @@ magnet:?xt=urn:btih:28FD456CC791B05D1C95FCD272ADDDC6DACA20C6
 magnet:?xt=urn:btih:7DEC8E4AE0C227539C1E4176B62346BE1E5C6723
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ Udemy, Михаил Савчук | ИТ под контролем: как не �
 ```bash
 magnet:?xt=urn:btih:CA14652056DB9269C07796BBACA715E0AE2261DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ Udemy, Andrew Mead | Полный курс веб-разработчика React
 magnet:?xt=urn:btih:7753EEF89F2A073001780C1A56CF99FE4B0EB7A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ Jonathan Rush | Photogrammetry for Games (2016) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:1CE4D36C9495B32F00989E201ADEFD48289875F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ Udemy, Brad Traversy | Materialize CSS с нуля + 5 проектов в ку�
 magnet:?xt=urn:btih:A1AAA978FD055FAE73A947B854005E49F2EF110E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ Gumroad, Josh Gambrell, Ponte Ryuurui | The Hard Surface Handbook for Blender (2
 magnet:?xt=urn:btih:5BA3632267D88CD4A87AA5DBFA6117C8696A59D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ Simon Fuchs | Military Radio Tutorial Part 1-3 (2018) PCRec
 ```bash
 magnet:?xt=urn:btih:31DFE275B72EF29C207F3F0FBF7B16A944E57094
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +373,8 @@ Udemy, Brad Traversy | Bootstrap 4 с нуля с 5 проектами / Bootstr
 magnet:?xt=urn:btih:D98FE15F89B6FC41A08AD2C03AC963BF465A94B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ Udemy, Brad Traversy | MERN Stack Front To Back: Full Stack React, Redux & Node.
 ```bash
 magnet:?xt=urn:btih:E636BFFAFC4EE952163D42B846DFF588104DD118
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:E636BFFAFC4EE952163D42B846DFF588104DD118
 magnet:?xt=urn:btih:7981E5A7A9AB55A7A8E6D60793B1EDF460074B4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ Carlo Sansonetti | Character Rigging Production Techniques (2016) PCRec
 ```bash
 magnet:?xt=urn:btih:5C33BF27F4971C5BC18BF7B6E12053BD70657B63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ magnet:?xt=urn:btih:5C33BF27F4971C5BC18BF7B6E12053BD70657B63
 magnet:?xt=urn:btih:9C3E3B65565F41778C9A41F0B3D87116CE116E38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ Udemy, CG Masters, Chris Plush, Lee Salvemini | The Blender 2.8 Encyclopedia [Ch
 ```bash
 magnet:?xt=urn:btih:61C32B2032671AE2E273D0CC53F9A3B71A163DBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +538,8 @@ Photofox, Ростислав Литвицкий | Illustrator PRO (2023) WEB-DL 
 magnet:?xt=urn:btih:A39819A3D8215F4F42C545487096665D091DF08C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ Udemy, Brad Traversy | Современный HTML и CSS с самого нач
 ```bash
 magnet:?xt=urn:btih:5A5B1D7CA9146D35F020C6A2E9BA8660ED134E6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ magnet:?xt=urn:btih:5A5B1D7CA9146D35F020C6A2E9BA8660ED134E6C
 magnet:?xt=urn:btih:5ACBFB3A1BCD08CE87A7DE7C398BC506D3D9E9FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ Udemy, JuanD MeGon | Освойте Laravel и создавайте прилож
 ```bash
 magnet:?xt=urn:btih:B1C1D4A5ADD53CB2A1A2F81CF14F6A6D3316F503
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +648,8 @@ Lee | Мгновенная материализация (2017) CamRip
 magnet:?xt=urn:btih:9FAA98A1F39DD9DB223EF12E58A5836D22F874E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +677,8 @@ magnet:?xt=urn:btih:9FAA98A1F39DD9DB223EF12E58A5836D22F874E5
 magnet:?xt=urn:btih:834DF84FA8B0CD728026ADA3CA81DA70F2A207BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ Udemy, Brad Traversy | Python Django Dev To Deployment (2020) PCRec [En / En Sub
 ```bash
 magnet:?xt=urn:btih:A47951E578D9C98D1274A3C78A3C40D32CDB2E65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

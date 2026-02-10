@@ -22,6 +22,8 @@ Slurm (Слёрм), Марсель Ибраев, Павел Селиванов, 
 magnet:?xt=urn:btih:F60C38D5173A543F1730B5F6A42CDECB5E12FED5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Udemy | Библиотека курсов по Ansys (2018-2023) WEB-DLRip [EN /
 ```bash
 magnet:?xt=urn:btih:9B9591B85B2CDB0EE5D0774A2C84BC4982C7F6BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ Skillbox, М. Овчинников, С. Корниенко и др. | Веб-в�
 ```bash
 magnet:?xt=urn:btih:A95721B00D0CC2AB7BEDEC4D7D4A657BD2121F10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ Discover the secrets of ethical hacking and network discovery, using Nmap on thi
 magnet:?xt=urn:btih:CF81F86AA71E71D4AE71A0C0ABFB14D79C05A2F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ Udemy | Библиотека курсов по Matlab (2022) [EN]
 ```bash
 magnet:?xt=urn:btih:BA4AC2D91B6D5436AC71AA3AC36BF1237B11F9B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -152,6 +162,8 @@ pixel.one | Создание 2D игр в Unity (2019) WEB-DL [RU]
 magnet:?xt=urn:btih:0A690CCFE3BBC8FAAF52A035D08DBEE244923B57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ Heisenbug — большая техническая конференция, ко
 magnet:?xt=urn:btih:7ABA9AE48B933B6D79EA641D00ED9E054162C290
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ FrontendMasters, Lydia Hallie | Advanced Front-End & JavaScript Questions (2023)
 ```bash
 magnet:?xt=urn:btih:171E2ADD6B4F0614DF37BEEB63D1D18E68995D44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ FrontendMasters, Ben Callahan | Enterprise Design Systems Thinking (2023) WEB-DL
 magnet:?xt=urn:btih:8878E46CA0F6331DF47CFA05809BC0423EE41A73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ Productuniversity, Яна Чаруйская и др. | ИИ и для гене�
 ```bash
 magnet:?xt=urn:btih:7B5A2E5CEC9CCCDD02109F77DEA8B7828F49B40A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -281,6 +301,8 @@ Udemy, Web Oral | ChatGPT: Earning Money With ChatGPT - Easy Way For Beginners (
 magnet:?xt=urn:btih:34F064B966277F031A071EE0A67DBBCA937842E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +328,8 @@ Udemy, Serge Lansiquot | Game Dev Math Ultimate guide to polishing your game! (2
 ```bash
 magnet:?xt=urn:btih:83E532CDAAD1DE8DF81E47C191FC112169756686
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +357,8 @@ Udemy, Lincoln Margison | Procedural animation for humans in Unreal Engine 5 (20
 magnet:?xt=urn:btih:B8855EBBD53F2BB2B445D8643B67F632637F8280
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +385,8 @@ Pandas — одна из самых мощных библиотек для на�
 magnet:?xt=urn:btih:16E286811917EB7A601C6B39EFEC040D0006C04B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +412,8 @@ Maven Analytics, John Pauler | MySQL Specialist (2021) PCRec [En]
 magnet:?xt=urn:btih:C7BB24AC1CF902A7112BBA9024CE11D4813BE5B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +437,8 @@ Udemy, Serge Lansiquot | Learn C++ Programming By Making Games Volume 2 (2022) W
 ```bash
 magnet:?xt=urn:btih:74BB2771CB9B41B0F18CEB9541FAA74C5E0D8F9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +466,8 @@ Udemy, Uisco Dev | How To Make A Doom Clone In Unreal Engine 5 (2023) WEB-DL [EN
 magnet:?xt=urn:btih:68DFF8843B6E51D471535D0DB6F7F26ABF7C286D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +493,8 @@ The course uses (   Читать дальше...   )Производство: A
 ```bash
 magnet:?xt=urn:btih:8C81B2E2B741E9DF753F3985AEC718AD6425AF8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +523,8 @@ Udemy, Jose Portilla | OpenAI Python API Bootcamp: Learn to use AI, GPT3, and mo
 magnet:?xt=urn:btih:BD720A68D316C7FF804565A376EAA7E055992E73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +552,8 @@ Thinknetica Pro, Артем Нистратов | Метапрограммиро�
 magnet:?xt=urn:btih:4C24992B886C910504A7FB9A9560B9F2F5C43858
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +577,8 @@ Pikuma, Gustavo Pezzi | Raycasting Game Development with JavaScript SDL & C (202
 ```bash
 magnet:?xt=urn:btih:7FBC39D0F260ECC89F50DB0D4DB999CEE2C21326
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +607,8 @@ Udemy, Muhamed Khalid | Modern OpenGL 3.3 with C++ GLSL for beginners (2021) WEB
 magnet:?xt=urn:btih:7101BF629C6E7F91D48352840E8487D89DF2F680
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +635,8 @@ Pikuma, Gustavo Pezzi | Fundamentals of 2D Game Engines with C++ SDL and Lua (20
 magnet:?xt=urn:btih:D6221DB0247BA0E301FA0C603B25054ED8B8E1BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +661,8 @@ Udemy, Serge Lansiquot | Learn C++ Programming by Making Games, Volume 1 (2022) 
 magnet:?xt=urn:btih:9A43ED77A44E5DE22D2F18DB473BAAFE310B4B10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +686,8 @@ Udemy, John Thompson | Spring Framework 6: Beginner to Guru (2023) WEB-DL [EN / 
 ```bash
 magnet:?xt=urn:btih:57503DEAE407F06579C577A98CD44E9B78B33BF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -665,6 +715,8 @@ Udemy, Peter A | Password Cracking: Brute Forcing (2022) WEB-DL [EN / EN Sub]
 ```bash
 magnet:?xt=urn:btih:55BC5FA4E7AB1C3652454392968F39DFE3B258F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ VA - Hit Mania: Special Edition 2015 (2015) 2CD [FLAC|Lossless|tracks + .cue] <P
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Keyboard Maestro: Минимум времени, максимум эффекти
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Keyboard Maestro: Минимум времени, максимум эффекти
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ VA - TOP December (2015) [MP3|320 кб/с] <Electronic, Lounge, Pop, Deep>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ VA - Anjunadeep 07 (Mixed by Jody Wisternoff & James Grant) (2015) [FLAC|Lossles
 magnet:?xt=urn:btih:60A0503A116BB07ECABEA41DFB295FB9252B2697
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ magnet:?xt=urn:btih:60A0503A116BB07ECABEA41DFB295FB9252B2697
 magnet:?xt=urn:btih:3B31BE221AA99BE10570DE8CA691BA954AA3DDA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:3B31BE221AA99BE10570DE8CA691BA954AA3DDA1
 ```bash
 magnet:?xt=urn:btih:AC0090501327B463115EBB3D8B5F0C211D0E1C0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ magnet:?xt=urn:btih:AC0090501327B463115EBB3D8B5F0C211D0E1C0D
 magnet:?xt=urn:btih:54C7DD016AB44D734AC8525519ABEFEF185A0FD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:54C7DD016AB44D734AC8525519ABEFEF185A0FD1
 ```bash
 magnet:?xt=urn:btih:C183D8364C004BF439B08EBC63A8B555E85D17D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ magnet:?xt=urn:btih:C183D8364C004BF439B08EBC63A8B555E85D17D1
 magnet:?xt=urn:btih:62F6648794B8637F9170D05E954A93584D8B712A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:62F6648794B8637F9170D05E954A93584D8B712A
 magnet:?xt=urn:btih:99C98E58D1A71459D9A93BEBF71866DB48F17A75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ magnet:?xt=urn:btih:99C98E58D1A71459D9A93BEBF71866DB48F17A75
 ```bash
 magnet:?xt=urn:btih:73A35F8969569B9C6D944A0F83380F6A3BE4045D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:73A35F8969569B9C6D944A0F83380F6A3BE4045D
 magnet:?xt=urn:btih:DB82AFC410C2861F4D79D60C685359487CD3AC81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:DB82AFC410C2861F4D79D60C685359487CD3AC81
 ```bash
 magnet:?xt=urn:btih:688B403B54FC0A256B74C35135E82B58780EE53F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +406,8 @@ magnet:?xt=urn:btih:688B403B54FC0A256B74C35135E82B58780EE53F
 magnet:?xt=urn:btih:EA1FD6C0DAC056070199D2D1D894A9B9DB87EF3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ Free Studio 6.6.0.1224 [Multi/Ru]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +461,8 @@ VA - Шатун Новинки русского шансона (2015) [MP3|256-3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ VA - Шатун Новинки русского шансона (2015) [MP3|256-3
 ```bash
 magnet:?xt=urn:btih:AA40635859B7B89748456F7B8AC94DE3527D44AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +516,8 @@ Bananarama - Megarama: The Mixes (2015) 3CD, Compilation [FLAC|Lossless|tracks +
 magnet:?xt=urn:btih:59E893A243DF3556EADD4B3974EFD4AFAE686679
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ magnet:?xt=urn:btih:59E893A243DF3556EADD4B3974EFD4AFAE686679
 ```bash
 magnet:?xt=urn:btih:1FEB5B13B6BEF3A3EFF75097F7344C09B83066B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +570,8 @@ magnet:?xt=urn:btih:1FEB5B13B6BEF3A3EFF75097F7344C09B83066B9
 magnet:?xt=urn:btih:96E5A699EF290AB8B60EF961AFA3D68C789F4E8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +595,8 @@ magnet:?xt=urn:btih:96E5A699EF290AB8B60EF961AFA3D68C789F4E8A
 ```bash
 magnet:?xt=urn:btih:B2049DFD13B42FFF1C8230B5834BDE849BE52985
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +622,8 @@ Minimal Christmas Logo (   Читать дальше...   )Формат: AEP
 ```bash
 magnet:?xt=urn:btih:FAF7632046DD1D84642AE706D5E2EA872B8AD8AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +651,8 @@ magnet:?xt=urn:btih:FAF7632046DD1D84642AE706D5E2EA872B8AD8AE
 magnet:?xt=urn:btih:B53F6E046262BFE3113BAD464448C07FC423AD0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +677,8 @@ magnet:?xt=urn:btih:B53F6E046262BFE3113BAD464448C07FC423AD0F
 magnet:?xt=urn:btih:46FC6F7AB403B2FBEFF4BA9CB961BC87D0BB894C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ magnet:?xt=urn:btih:46FC6F7AB403B2FBEFF4BA9CB961BC87D0BB894C
 ```bash
 magnet:?xt=urn:btih:8E656922EED07C5607580EDA9DBC18AF0D341C36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

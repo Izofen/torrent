@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:DB0AF543429FF74138FAEA4126A5B8F947F73E4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:DB0AF543429FF74138FAEA4126A5B8F947F73E4B
 ```bash
 magnet:?xt=urn:btih:92B4154EE1F18B06657027FFECF4EBE8CE7BFCB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ React Query помогает избежать технического долг�
 ```bash
 magnet:?xt=urn:btih:71DB1EFE7B70B04A56A80A785169DF434C30859C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ Advanced Training, Иннокентий Солнцев | Курс «Cisco SPCORE
 magnet:?xt=urn:btih:41C7E860F9A0A8E8E4A3ABED9E444D157E01878F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ SQL - это САМЫЙ важный язык запросов, который �
 ```bash
 magnet:?xt=urn:btih:E984DB9B54D316CCC944E6C784EAE34E5BEC3BC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ Udemy, Stephen Grider | The Complete React Native + Hooks Course (2021) WEB-DL [
 magnet:?xt=urn:btih:837DDA877AFF27195946F6E2146B2655CE346BE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ Udemy, Titanforged Entertainment | Unreal Engine 5 Blueprints: Develop Your Firs
 ```bash
 magnet:?xt=urn:btih:3CF9D997DAB65A041E49D1E9271E346853ED99E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ ituroki.info, Jamalov Elchin | IP телефония 3CX (2022) WEB-DL [AD] [RU]
 magnet:?xt=urn:btih:CD9DD1C9ED96915F46DAA9DDEB943212E2BBADC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ Udemy, Pikuma.com, Gustavo Pezzi | Learn Assembly Language by Making Games for t
 ```bash
 magnet:?xt=urn:btih:86FCE2F67C5943BBE4CCC8A5C906D10E517E8838
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ Profit, Степанцев Альберт | Вебинар «Асинхронн�
 magnet:?xt=urn:btih:72B1AF16D9B245D911AE90C9F0190B6F7CDDF157
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ Udemy, Dzianis Matveyenka | Gradle (2022) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:611B5B5D2DF0F7A15FE62EC81CD5200DCDA0BDB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ Selenium - это веб-инструмент для тестирования а
 ```bash
 magnet:?xt=urn:btih:57F848ECFAB0909F288E262D3A9983A8CD4A7A92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -330,6 +354,8 @@ Udemy, Denis Astahov | Terraform с Нуля до Профессионала (20
 magnet:?xt=urn:btih:88A0C0E6EC18759F97779AC0B0F473DBD1B70FE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +379,8 @@ Techworld with Nana, Nana Janashia | GitLab CI/CD - From Zero To Hero (2022) WEB
 ```bash
 magnet:?xt=urn:btih:C8266842EEEEE5C0DCD509A000DF54FC3F2B4B8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +406,8 @@ Udemy, Dr. Angela Yu | The Complete 2021 Web Development Bootcamp (2021) WEB-DL 
 ```bash
 magnet:?xt=urn:btih:4D32FEE4B90582AC92CC56C36F6AB024D51D9F3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +436,8 @@ Thinknetica Pro, Артем Кривоножко | Объектно-ориент
 magnet:?xt=urn:btih:0E2DC1F33CD068CE6D31629F6C2C9C11EB692466
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ Udemy, Roman Dushkin | Перцептроны (2022) WEB-DL [AD] [RU]
 ```bash
 magnet:?xt=urn:btih:FFAE97FD25876E6B7E2165F698EB77A52680A6C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ Thinknetica Pro, Евгений Фатеев | Подготовка к собе�
 magnet:?xt=urn:btih:A7418DEED7ED831DC871FE07537A00A05C458F9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +515,8 @@ The Complete Cybersecurity Bootcamp, 2nd Edition - это ваше полное 
 magnet:?xt=urn:btih:47F7B3C87B0D6C45AF4B7F0D0C9E60BD2CED097C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ Udemy, Anthony Alicea | Understanding HTML and CSS (2022) WEB-DL [EN / EN Sub]
 ```bash
 magnet:?xt=urn:btih:9C9A5737EF49FFD3BE86D602AF59DA640AE9D29A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +570,8 @@ Udemy, Maximilian Schwarzmüller | JavaScript Unit Testing - The Practical Guide
 magnet:?xt=urn:btih:17E103ADD63B72D84F8B954A17DC8C6A62206018
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +595,8 @@ EC-Council, Greg Hirsch | Certified Ethical Hacker CEH v11 (2021) PCRec [AD] [EN
 ```bash
 magnet:?xt=urn:btih:B38A5DFE0BDEB46DB2D12B1FBA6D181313790C41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +623,8 @@ Udemy, Greg Wondra | Unreal Engine: Create an Arcade Classic! (2021) PCRec [EN /
 magnet:?xt=urn:btih:FCE3962C285C3306B39A42CCACD2EC18710D822D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +648,8 @@ Udemy, Colt Steele | Mastering TypeScript - 2022 Edition (2022) WEB-DL [EN / EN 
 ```bash
 magnet:?xt=urn:btih:153F5A916A863D9606BB60365E6FE011E4EFCDDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +677,8 @@ Udemy, Ivan Yosifov | Unreal Engine 5 - Create Zombie Survivor FPS Game (2022) P
 magnet:?xt=urn:btih:2CFE12FF3166CE2223BD5A7164346AF40ADF9B3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ Udemy, Ivan Yosifov | Unreal Engine 5 - Make AAA Game Vehicles (2022) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:EA503C3B4AA8DCE7BC7A4A26BAF81488CC0BA851
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

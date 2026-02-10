@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:02DC5172C92E38A41A262F6F56C7784874F9A578
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ VA - Chris Coco - Lazy Summer Vol. 2 (2011) [MP3|320 кб/с]<Electronic, Deep H
 ```bash
 magnet:?xt=urn:btih:4B4A38A3E0B794E52BB86CC92B795E17E12F2DC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -85,6 +89,8 @@ VA - Русский Avto Club (2012) [MP3|320 kbps]<Club | Dance>
 magnet:?xt=urn:btih:983D5821EC0A81428488866F108B21D8C884A998
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -111,6 +117,8 @@ magnet:?xt=urn:btih:983D5821EC0A81428488866F108B21D8C884A998
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +143,8 @@ N\A2012Жанр: PsychedelicПродолжительность: 01:12:38
 magnet:?xt=urn:btih:58A3A96094E1222DC004A0F856EAEDCDDC180484
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -158,6 +168,8 @@ magnet:?xt=urn:btih:58A3A96094E1222DC004A0F856EAEDCDDC180484
 ```bash
 magnet:?xt=urn:btih:9BC301109226C97B667226B216F38774E95FF7A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +204,8 @@ Primal Rock Rebellion - Awoken Broken (2012) [FLAC|Lossless]<Heavy Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +231,8 @@ Primal Rock Rebellion - Awoken Broken (2012) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:A08C5AEBC15C331ABF6E6F65389A931F8E253CB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +267,8 @@ VA - Водочку пьём! Баллады любимому напитку (20
 magnet:?xt=urn:btih:608900861502653C66BD9640AAF1ECB47783D763
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +293,8 @@ magnet:?xt=urn:btih:608900861502653C66BD9640AAF1ECB47783D763
 magnet:?xt=urn:btih:CC3F6704F32E7040313544152116ADC44169B37A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +318,8 @@ magnet:?xt=urn:btih:CC3F6704F32E7040313544152116ADC44169B37A
 ```bash
 magnet:?xt=urn:btih:EB9ADB8938F01091850A2AD71227556EBF316957
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +354,8 @@ DJ Premier & Bumpy Knuckles - Kolexxxion (2012) [MP3|320 кб/с]<Underground Hi
 magnet:?xt=urn:btih:498F547A58AF235BE496C76AE90C0923E372FAE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +388,8 @@ VA - Танцевальный Рай Русский №33 (2012) [MP3|256 kbps]<
 ```bash
 magnet:?xt=urn:btih:2655F84ADCAAF92B8AD9B084C9717821F1B81A11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +424,8 @@ I Diggidy - Made in Russia (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
 magnet:?xt=urn:btih:7DD817B38511E8F1A583C76C6854AB18EA6C90CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +458,8 @@ VA - Songs Of Protest (1987) [MP3|320 кб/с]<Psychedelic Pop/Rock>
 ```bash
 magnet:?xt=urn:btih:70FA0C3E9AD2DAC0B9E7871A8F26A5BA8BDA3CD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +494,8 @@ VA - Party Hits (2012) [MP3|320 кб/с]<Dance>
 magnet:?xt=urn:btih:4DEA5E2110D1AD576EBEFCBB6152F2814022EEC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +519,8 @@ magnet:?xt=urn:btih:4DEA5E2110D1AD576EBEFCBB6152F2814022EEC1
 ```bash
 magnet:?xt=urn:btih:28BCAB6D2CD34522AA82B155581F59EDE5E402D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +555,8 @@ VA - Сборник лучших REMIXов - Mix рандеву 2CD (2012) [MP3|
 magnet:?xt=urn:btih:981DC1BD50036B8A53FF3DF840CC728C75696D78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +580,8 @@ magnet:?xt=urn:btih:981DC1BD50036B8A53FF3DF840CC728C75696D78
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +610,8 @@ magnet:?xt=urn:btih:981DC1BD50036B8A53FF3DF840CC728C75696D78
 ```bash
 magnet:?xt=urn:btih:7D4C5BC66FEE86201E48E1969FEF9E1EA7192066
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +646,8 @@ Joan Osborne - Bring It On Home (Deluxe Version) (2012) [m4a|256 кб/с]<Blues,
 magnet:?xt=urn:btih:C0E3E0B1F4EB20C4A95CCAF2AEC8DB58F7EF2A68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +671,8 @@ Roller Rush (P) [En] 2005
 ```bash
 magnet:?xt=urn:btih:A55C0D92323E65B611E0340AF689AA5C4488C32F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -654,6 +698,8 @@ magnet:?xt=urn:btih:A55C0D92323E65B611E0340AF689AA5C4488C32F
 magnet:?xt=urn:btih:E5250045F449696C7907FA0BF3E90BDDEBE50683
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -677,6 +723,8 @@ magnet:?xt=urn:btih:E5250045F449696C7907FA0BF3E90BDDEBE50683
 ```bash
 magnet:?xt=urn:btih:2731F7956093328E679B0CE8686FAB6C31078F77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -702,6 +750,8 @@ Mythbuntu - это основанный на Ubuntu дистрибутив, це
 magnet:?xt=urn:btih:4A30121F0B845DB8004FB2297ABBCBD1789AF2CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -725,6 +775,8 @@ magnet:?xt=urn:btih:4A30121F0B845DB8004FB2297ABBCBD1789AF2CD
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1443052   (1035974) от 27.01.2021
+
+Иду на Неву (2018) WEB-DLRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Авиация
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летом 1963 года в Северной столице могла произойти одна из страшнейших катастроф века. Пассажирский лайнер Ту-124 терпел крушение прямо над городом, но рискованные и героические действия пилотов спасли сотни жизней. Как лётчикам удалось совершить посадку? И почему впоследствии самолёты этой серии стали хитом советского авиастроения?Производство: Россия / Санкт-Петербургский филиал МТРК "Мир"Жанр: ДокументальныйРежиссер: Мария СмелковаЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5465AB77553D478E20DD7B6A62B7DC6F2A885F66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443198   (1035987) от 27.01.2021
 
 Борис Березовский. Бешеные деньги (2019) WEB-DLRip [H.264/720p-LQ] (серии 1-2 из 2)
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:A68A079357767402BEDEE4CB2F136160365F1437
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:A68A079357767402BEDEE4CB2F136160365F1437
 magnet:?xt=urn:btih:D2DA87AF888744EE527D4D8799B6389B2FD54041
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:D2DA87AF888744EE527D4D8799B6389B2FD54041
 ```bash
 magnet:?xt=urn:btih:661F7A6F4BC83D7112A15FF295FBA13F351ECB55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:661F7A6F4BC83D7112A15FF295FBA13F351ECB55
 magnet:?xt=urn:btih:4FDFD64C0B08943464CB2EAC6C7DE14913357C87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:4FDFD64C0B08943464CB2EAC6C7DE14913357C87
 ```bash
 magnet:?xt=urn:btih:C177BD703E12BDAB11C9BC5FDBAF98EBCB4203F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:C177BD703E12BDAB11C9BC5FDBAF98EBCB4203F4
 magnet:?xt=urn:btih:28F8A31C50D41BE15B90B81D955BC470C23F69B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:28F8A31C50D41BE15B90B81D955BC470C23F69B0
 ```bash
 magnet:?xt=urn:btih:809212FAA7E6E382DE910183B33F904F0A4A8166
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:809212FAA7E6E382DE910183B33F904F0A4A8166
 magnet:?xt=urn:btih:9444D49EAA84892D3DAA65C7FEA49E37F2C15DF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:9444D49EAA84892D3DAA65C7FEA49E37F2C15DF6
 magnet:?xt=urn:btih:62EE99112484BCAA77A51832236031AA00587D29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:62EE99112484BCAA77A51832236031AA00587D29
 ```bash
 magnet:?xt=urn:btih:CBB71D906E35488AD256B227DFF016F76B31CF7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:CBB71D906E35488AD256B227DFF016F76B31CF7C
 magnet:?xt=urn:btih:6CD1083D8EB739C01D8D2C4AADE14EF2F9BBB8F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:6CD1083D8EB739C01D8D2C4AADE14EF2F9BBB8F8
 magnet:?xt=urn:btih:998F8196B60BDF5BDA1678A7A90B5100B6C94776
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:998F8196B60BDF5BDA1678A7A90B5100B6C94776
 ```bash
 magnet:?xt=urn:btih:4B7EAB7F1D58E654C61441DBFB787E812F77250F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:4B7EAB7F1D58E654C61441DBFB787E812F77250F
 magnet:?xt=urn:btih:4AB4B8B0AB8E8EACDE299B1D2E1B26393168246F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:4AB4B8B0AB8E8EACDE299B1D2E1B26393168246F
 ```bash
 magnet:?xt=urn:btih:6574661657AA699502AA4EB8A7617B0B09875F27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:6574661657AA699502AA4EB8A7617B0B09875F27
 magnet:?xt=urn:btih:9D8C1F91C2AADFBAE8422CCEEE1D154641BE4311
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:9D8C1F91C2AADFBAE8422CCEEE1D154641BE4311
 ```bash
 magnet:?xt=urn:btih:0236EC35F82BDA9CCF570F72A534642A832BF303
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:0236EC35F82BDA9CCF570F72A534642A832BF303
 magnet:?xt=urn:btih:98BD7D141C7C1B5021694C9422816E796E156574
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:98BD7D141C7C1B5021694C9422816E796E156574
 ```bash
 magnet:?xt=urn:btih:10E43CC3676FE34B34001DEFE139D9AF4C33AD06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:10E43CC3676FE34B34001DEFE139D9AF4C33AD06
 magnet:?xt=urn:btih:CA322EA58A76E53469F7074C342D55F4D09E56CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:CA322EA58A76E53469F7074C342D55F4D09E56CE
 ```bash
 magnet:?xt=urn:btih:4845FB9A4AC1BA7F991BEB74C79FAD06797CDF83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +596,8 @@ magnet:?xt=urn:btih:4845FB9A4AC1BA7F991BEB74C79FAD06797CDF83
 magnet:?xt=urn:btih:FBC64584FDD8979F15DF0D0C0D227C358CC26751
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +621,8 @@ magnet:?xt=urn:btih:FBC64584FDD8979F15DF0D0C0D227C358CC26751
 ```bash
 magnet:?xt=urn:btih:4F1A5DAB72C4008B4811EAEF53ACDE05E1E8D788
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:4F1A5DAB72C4008B4811EAEF53ACDE05E1E8D788
 magnet:?xt=urn:btih:6F7CA4E4996A8909B3855DEE4BF89C9E2B5FD99E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,29 +674,7 @@ magnet:?xt=urn:btih:6F7CA4E4996A8909B3855DEE4BF89C9E2B5FD99E
 magnet:?xt=urn:btih:0DCD11E6921FD1FF4FB247AF3876E112E7AC2498
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616483   (1036402) от 02.03.2023
-
-Человек и природа: роман длиною в жизнь / A Natural Affair. The Human / Nature Connection (2019) HDTVRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036402.jpg" />
-</div>
-
-
-###  Подробнее
-
-На протяжении тысячелетий люди чувствовали своё превосходство над растениями и животными Земли. Концепция доминирования и эксплуатации окружающей среды проходит через многие культуры. В наши дни, однако, растёт понимание того, что большинство других форм жизни на планете существуют гораздо дольше, чем мы. Чему мы можем научиться у природы?Производство: Австрия, Terra Mater Factual StudiosЖанр: документальный, познавательныйРежиссер: Сюзанна ЛюммерПеревод: двуголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:50:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB910C4BB942AA1E3B0ED607A8041EAD00337CFD
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

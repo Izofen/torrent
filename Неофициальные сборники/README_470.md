@@ -1,3 +1,29 @@
+###  Публикация: 783349   (744054) от 05.05.2014
+
+VA - Alterportal HITS 14 Vol. 68  - April (2014) [MP3|128-320 кб/с] <Alternative, Metal, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Alternative, Metal, RockПродолжительность: 02:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC102DE24102E57BEE9E52964EAE243ECD76DCBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396843   (744076) от 17.07.2020
 
 VA - EDC Clubbing House (2020) [MP3|320 Kbps] <Club House>
@@ -21,6 +47,8 @@ VA - EDC Clubbing House (2020) [MP3|320 Kbps] <Club House>
 ```bash
 magnet:?xt=urn:btih:46D5F7224089470895B964C51AE90161066A5381
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -47,6 +75,8 @@ Scooter - The Logical Song (2017) Remix [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:29BF77559B54DEF0A494BA3B22A1E4C78A86FA3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +105,8 @@ magnet:?xt=urn:btih:29BF77559B54DEF0A494BA3B22A1E4C78A86FA3C
 magnet:?xt=urn:btih:2A65DDD83FA7BD3C24B71AAA3E603F03D7FB0E25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +130,8 @@ magnet:?xt=urn:btih:2A65DDD83FA7BD3C24B71AAA3E603F03D7FB0E25
 ```bash
 magnet:?xt=urn:btih:04D1097483D89CDF483ACE6093D2E1E1C52CF75C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +160,8 @@ VA - New Music Releases Week 6 of 2019 (2019) [MP3|320 Kbps] <Pop, Hip Hop, Alte
 magnet:?xt=urn:btih:024CA3DB244E912DBE29ED80B24A9C4098AC1CA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +188,8 @@ Various Artists - Compilation (2022) [MP3|320 Kbps] <Electronic, Spacesynth>
 ```bash
 magnet:?xt=urn:btih:B788633CEFBBF6329B51264A470929D2514FBBC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -180,6 +218,8 @@ Galactic Warriors - Compilation (2022) [MP3|320 Kbps] <Electronic, Spacesynth>
 magnet:?xt=urn:btih:D1087799CF53D940784A44121CE5190276B32978
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -206,6 +246,8 @@ SuperVox - Compilation (2022) [MP3|320 Kbps] <Electronic, Spacesynth>
 ```bash
 magnet:?xt=urn:btih:F49A487AE4667A5A344B0067B1DA6781E359E9D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -234,6 +276,8 @@ VA - Кавер Rock (2015) [MP3|128-320 кб/с] <Rock>
 magnet:?xt=urn:btih:821636FA8B7C24C1E58121B70B2971571040334D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +304,8 @@ VA - 100% Clubland X-Treme (4CD) (2018) [MP3|320 Kbps] <Electronic, Dance>
 ```bash
 magnet:?xt=urn:btih:8092D92162A857A8131D433D327E3D99DC345FE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +334,8 @@ VA - Romantic Souls (2018) [MP3|320 Kbps] <Pop Rock, RnB, Soul>
 magnet:?xt=urn:btih:44815474FDC571CF465D48C79E91F71E4B20D050
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +362,8 @@ VA - Schlager-Marathon 2018 (2018) [MP3|320 Kbps] <Pop, Schlager>
 ```bash
 magnet:?xt=urn:btih:D56EDD7384E0AD451087D9A8E6FF3890D2A619E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +392,8 @@ VA - Dj World All 2018 Nice Day (2018) [MP3|320 Kbps] <Dubstep>
 magnet:?xt=urn:btih:D962B1967AC869072E48C8A4FFDA92E1C7BAC9E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +420,8 @@ VA - Kiss FM Top 100: The Best Tracks Of 2021 (2022) [MP3|320 Kbps] <Progressive
 ```bash
 magnet:?xt=urn:btih:E7C371F9B6E75579ACE4E15499E9C01F6C0C7E5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +450,8 @@ VA - Shazam: Хит-парад Russia Top 100 Февраль (2019) [MP3|320 Kbp
 magnet:?xt=urn:btih:1B335BEB33A60935DFAF9F1F8BE026FBF13B3962
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +478,8 @@ VA - Улетай. Русский сборник попмузыки (2016) [MP3|
 ```bash
 magnet:?xt=urn:btih:8E104BB67CEC3DC47D68336EB0EC034B830D709E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +508,8 @@ VA - Deep House: Soulful Party (2019) [MP3|320 Kbps] <Deep House>
 magnet:?xt=urn:btih:533DB6BB7A75DFE07F8D99520CE5706049CE6C16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +536,8 @@ VA - Зарубежная Дискотека ХХ Века - 11 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:2154B47D8B4829DE108A94EA1F414FF6615190C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +566,8 @@ VA - Chill Lounge Selecta: Tropical Edition (2019) [MP3|320 Kbps] <Chillout, Lou
 magnet:?xt=urn:btih:789423FE5647BCF96DEC6F28470F6065EA6EBB8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +594,8 @@ VA - German Top 50 Party Schlager Charts 11.02.2019 (2019) [MP3|320 Kbps] <Pop, 
 ```bash
 magnet:?xt=urn:btih:F2A627907922B5E857E1F31EDA75BA611552C0D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +624,8 @@ Dread Zeppelin - The Song Remains  (2020) Compilation [MP3|320 Kbps] <Reggae, Ro
 magnet:?xt=urn:btih:6C912FE830929D53C79CB9083ECD2E47717B89D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +652,8 @@ VA - Summer Throwback Spotify (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:956BE7BDE5864FF2DA8E45ABC79C7919C9484719
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +682,8 @@ VA - Treasure Driving Melodic Uplifting (2016) [MP3|320 кб/с] <Uplifting Tran
 magnet:?xt=urn:btih:0884CCCD834AC8138CB77327C4E7EC51B81F1C77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +710,8 @@ VA - Professional Dj Proud Radio (2016) [MP3|247-320 кб/с] <Club, Hands Up, D
 ```bash
 magnet:?xt=urn:btih:4420FC4E7CC27701DA89BBFC98CE46FB7110A1DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -666,32 +740,7 @@ VA - Top 50: Зайцев FM - Март (2018) [MP3|320 Kbps] <Pop,  Dance>
 magnet:?xt=urn:btih:A6D74972691CACEAAB169E05CD222F5F5A2FA16D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216922   (745840) от 02.04.2018
-
-VA - Перфоратор 2: Русский Рок (2018) [MP3|320 Kbps] <Рок, Альтернатива>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745840.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Твёрдый ЗнакЪ - День
-002. Воздухоплавательный парк - Звезда по имени солнце
-003. Зоопарк - Позвони мне рано утром
-004. Инкогнито - Небо и трава(   Читать дальше...   )Жанр: Рок, АльтернативаПродолжительность: 07:45:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37DE6BAB4EDB045695D9CF8E939851DABA03C7F2
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

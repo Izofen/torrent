@@ -19,6 +19,8 @@ theHunter: Call of the Wild – наиболее реалистичный на �
 magnet:?xt=urn:btih:1DAC00276500C866CEE81FA8EBA1ED96F9E6EEE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Cursed to Golf (2022) [Ru/Multi] (1.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:62DC30646A1E4BF112783789F25246DF3F626C51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Reverie: Sweet As Edition (2023) [Multi] (1.0.0) License GOG
 magnet:?xt=urn:btih:4B90539EEF6F59DBF676D3AE195625141CFF639F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Best Forklift Operator — уникальная игра про управлен
 ```bash
 magnet:?xt=urn:btih:043FEE171342CA6C676DCA8A6BBF337ABEE687E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ My Destiny - это одиночная игра о медвежонке, кот�
 magnet:?xt=urn:btih:B1CAF71EA800DB61CD8016C0AC8FA6D140018E13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Dr. Chatelet: Faith 神医 (2022) [Multi] (1.0.25) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:5E5C3404C9DA6D9EA7B378D88A555B7FC552FBF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Remains (2021) [Ru/Multi] (0.50x0297a) License GOG [Early Access]
 magnet:?xt=urn:btih:13D1428A5BC2F7D746351E0BCAB5E537C6625C0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ MY LITTLE PONY: A Maretime Bay Adventure (2022) [Multi] (1.0.1_003) Scene Fairli
 ```bash
 magnet:?xt=urn:btih:B46C55F1E3AAE43EF546EB183D0F74ECDFA8737F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Royal Romances 3: The Power of Chosen One / Королевские романы 
 magnet:?xt=urn:btih:27C759C3DCEC4F2EC3AFF01FD572364A02DCFAF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ No Longer Home (2021) [Multi] (1.3.3) License GOG [Farewell Edition]
 ```bash
 magnet:?xt=urn:btih:F29ED144C6A367545A67FBBCDEB1333884E95CB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ NeverHome - Hall of Apathy (2023) [En] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:ADCAE19CB3C9748F7C52E3A569586F261A5C65AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Bridge to Another World 11: A Trail of Breadcrumbs / Мост в другой м
 ```bash
 magnet:?xt=urn:btih:A99A350E849F1D4ADEAD7D1DB47484B66B11882B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Nightmare Reaper - шутер от первого лица, отличающий
 magnet:?xt=urn:btih:FD22232A6B89F4CDBC8F1BB7A35FFF185E55E218
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ How to Say Goodbye (2022) [Multi] (1.0.7) License GOG
 ```bash
 magnet:?xt=urn:btih:8D3BC59149320B71C0E3F0613AA63A8A1E4C48E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Night of Horror (2023) [Ru/En] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:4C3C622B1F639C84C531D3F51579CAB97161413D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ South of the Circle — эмоциональная игра с глубоким 
 ```bash
 magnet:?xt=urn:btih:4D50DE574219A198DA0A03D4B28B9088EF4127A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Cat Cafe Manager игрока ожидает жизнь владельца ко�
 magnet:?xt=urn:btih:5D6EE70AEA946BC15594E1BACDADEC530F57ACE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ The Hotel — психологический хоррор-триллер, в к�
 ```bash
 magnet:?xt=urn:btih:C4E6C4211ECE2B6C790C4F697F85730F5D6DE708
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Drunken Fist 2: Zombie Hangover (2022) [Ru/Multi] (1.0) License TiNYiSO
 magnet:?xt=urn:btih:8BC5278F060EA35AFC689D38E8A94086CB7D2603
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Unsolved Case 3: The Scarlet Hyacinth (2023) [En] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:F69A99F5E5930180E7482776F4F77935D46745E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Golden Rails 4: Worlds Fair / Золотые рельсы 4: Всемирная 
 magnet:?xt=urn:btih:CE9C3BB63F4E7AA5764FACEB9F0F2B7461492915
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Unsolved Case 2: Murderous Script / Нераскрытое дело 2: Сцен�
 ```bash
 magnet:?xt=urn:btih:76F804706BC8267BCB996BD5E4A8B09A58DEBE1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Death Trash - изометрическая RPG в мире постапокал�
 magnet:?xt=urn:btih:9BE60E6B26399BE8E7C3E5164A2873DD98AFF312
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Automachef (2019) [Multi] (33) License GOG
 ```bash
 magnet:?xt=urn:btih:DEE4E48C2DD2F066F85D931C5187FF818977A8C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ World of Haiku (2022) [En] (1.0.0f5) License TiNYiSO
 magnet:?xt=urn:btih:28D6B5139DF3F2F2E27070CDB0340B4AA335491E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ PARANECRO (2022) [Multi] (1.0) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:BC7B0C4CF04E4E1D14752D87F1BA46AD038E91D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

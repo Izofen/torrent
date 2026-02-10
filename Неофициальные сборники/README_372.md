@@ -1,3 +1,32 @@
+###  Публикация: 1037136   (615741) от 23.07.2016
+
+VA - Love, Sunshine & Happiness (2016) [MP3|320 Kbps] <Minimal, Deep, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solee - Sommerliebe 08:27
+02. Juno6 - Seq02 06:17
+03. Kusha - Ich Bin Weil Wir Sind (Mikech Remix) 07:05
+04. Casper Nielsen - Le Twist Retro 05:22(   Читать дальше...   )Жанр: Minimal, Deep, Tech HouseПродолжительность: 02:59:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61246134C779F9C98FF21ED4F34565DA0CAA42D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911517   (615841) от 23.06.2015
 
 VA - 100 хитов Москва FM (2015) [MP3|256 кб/с]<Pop>
@@ -21,6 +50,8 @@ VA - 100 хитов Москва FM (2015) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:C50EFA53494DBF50690CB4D37B55A5655D9F44DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Car Audio. Полный улет. (Sound Clinic - Special Edition) (2015) [
 magnet:?xt=urn:btih:21CE54144DE4AEECBE30238DD85BADDA84E74F26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Club Dance Ambience Vol.174 (2019) [MP3|320 Kbps] <Dance, Club, House>
 ```bash
 magnet:?xt=urn:btih:8F68469931800C69DD90796D258E70DDC93AE535
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +153,8 @@ VA - Лучшая русская попса (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:282F95FEE0C3D7750643D6498403C3D0434DEABF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +188,8 @@ VA - 1000% Gold Ballads (2012) [MP3|256 кб/с]<Pop, Rock>
 magnet:?xt=urn:btih:40B7B663439FF76D15D1569BEBC80BCEAC82274B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +216,8 @@ VA - Radio DFM Top D-Chart Апрель 2019 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:BD44EB99CE110E030805DC255695E07BAC7F525A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +252,8 @@ VA - Музыка.ру 19 (2012) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:3D0A149BA31018E0CCE7098B211B134D3BF05F4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +280,8 @@ VA - Seashore Desire #24 (20.03.2012) [MP3|320 кб/с]<Uplifting Trance, Dream 
 ```bash
 magnet:?xt=urn:btih:57B56FD3C5AC53CE74060273B6117A5412EC4BE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +310,8 @@ VA - не Громкие новинки недели 11 (2019) [MP3|320 Kbps] <P
 magnet:?xt=urn:btih:3BD0F1DDAA3D75ECCEB6830A07CDE211F1E21629
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +338,8 @@ VA - Record Super Chart 582 (2019) [MP3|320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:25DB0748B9907EEB4184EA583D3C4E18CFCD8DE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +374,8 @@ VA - Жаркий Хит-Парад MTV (2012) [MP3|256 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:59F4629A99FF959D521DC8DEC88C154F3EE4DC60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +402,8 @@ Janis Joplin - Greatest Hits (2018) [MP3|320 Kbps] <Blues, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:4F690E55FAE28CB6BC6B172B9F97042F5D360A41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +432,8 @@ VA - Oriental Blues Vol.02 (2018) [MP3|320 Kbps] <Blues, Rock Blues>
 magnet:?xt=urn:btih:BAB667955B04B0A734BD8F18B9CFFF18F7AEB127
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +460,8 @@ VA - Popular Superstar (2018) [MP3|320 Kbps] <Pop, Dance, RnB, Rap>
 ```bash
 magnet:?xt=urn:btih:D63F3969F97F1827D158112B7DB6A0ED939A34A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +496,8 @@ VA - Знойный летний хит (2012) [MP3|256-320 кб/с]<Pop>
 magnet:?xt=urn:btih:DC64C79F849B0E749D82D48DFC1B2DFD5468C3D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +530,8 @@ VA - Esthetics Lounge Vol. 5 (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillou
 ```bash
 magnet:?xt=urn:btih:1A087943FC6526F4D3BCCEB163ED4778998D23E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +566,8 @@ VA - Esthetics Lounge Vol. 4 (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillou
 magnet:?xt=urn:btih:6522DEF48932186DA9CF80F914BA1D657336D46B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +594,8 @@ VA - Kamasutra Erotic Chillout Vol.3: Sounds of Love (2016) [MP3|320 Kbps] <Down
 ```bash
 magnet:?xt=urn:btih:54D45633EFD74E04D6AA021D239567944E719940
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +624,8 @@ VA - Evangelion: Metall Collection (2018) [MP3|320 Kbps] <Metall>
 magnet:?xt=urn:btih:CED6667A45C26F00B0D99E59A9C45B72716F6B3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +653,8 @@ VA - Italo & Dance: Summer Sale (2018) [MP3|320 Kbps] <Italo-Disco, SpaceSynth>
 magnet:?xt=urn:btih:80B70BFCB257E4B0CC079064E9EAAA4A4A21D978
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +681,8 @@ VA - Theme Of The Streets (2018) [MP3|320 Kbps] <Chillout, Lounge, LO-Fi>
 ```bash
 magnet:?xt=urn:btih:EFEF183F9B8EBF56CD8ED3EE5405EE3E83D360A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +717,8 @@ VA - Mega Dance Party Summer Vol.3 (2012) [MP3|320 кб/с]<Dance, Club>
 magnet:?xt=urn:btih:7CBBE07E68F36AB25D9F40796ABD9699CBF33EB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -679,6 +752,8 @@ VA - АвтоRecordный 2 50/50 (2012) [MP3|320 кб/с]<Club>
 magnet:?xt=urn:btih:EBB1431C956CDF00613AE386F73B3C5135153F0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -705,6 +780,8 @@ VA - Kamasutra Erotic Chillout Vol.2 - Love Making Soundscapes (2014) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:DB02F0D0539038D9D67F8D9887C7EB2CE54FFA4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -733,32 +810,7 @@ VA - Dance Palette 100 Summer Hit House (2016) [MP3|320 Kbps] <House, Electro Ho
 magnet:?xt=urn:btih:44DC08528A7F3D551F2A70F1D5525915709DB80C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036893   (617407) от 22.07.2016
-
-VA - Gathering Sound 100 Tendence (2016) [MP3|320 Kbps] <House, Electro House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617407.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Firebeatz -  Tornado (Extended Mix) 4:02
-002. Clubhunter -  Pump It! (Turbotronic Radio Edit) 2:56
-003. Hardwell & W&W feat. Fatman Scoop -  Don't Stop The Madness (Original Mix) 4:59
-004. Armin Van Buuren, W&W -  If It Ain't Dutch 2:54(   Читать дальше...   )Жанр: House, Electro House, Progressive HouseПродолжительность: 07:42:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:942878A718E20FB50B955D10E50B84F776283E4A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

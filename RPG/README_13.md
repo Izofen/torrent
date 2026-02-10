@@ -19,6 +19,8 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.2.4.2147/dlc) Repack
 magnet:?xt=urn:btih:60FAD9DABBED086083FEF37CEC74A1C9F12C118E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ AI Limit (2025) [Ru/Multi] (1.0.022/dlc) Repack Wanterlude [Deluxe Edition]
 magnet:?xt=urn:btih:68BC4526F8AD2683A8F77004DD49FB130B59B7EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Reignbreaker - динамичный roguelike, действие которого
 ```bash
 magnet:?xt=urn:btih:27EE9A85DF7C21C2AB6D2C38FA1C898C38821DB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Tower of Time — удивительная игра со множеством п
 magnet:?xt=urn:btih:F5D4B998F129B5CDB5EC6956C89C5CC902DECD3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Dead Age 2 – это продолжение успешной инди-игры 
 ```bash
 magnet:?xt=urn:btih:72E1D7A49F9D10E7825B7A8B9E93B828DB20E3DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Rise of the Ronin - динамичная ролевая игра, в котор�
 magnet:?xt=urn:btih:A19562375A92C8A37DA2FFC87B4EB9B947FE7AD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Tails of Iron 2: Whiskers of Winter (2025) [Ru/Multi] (1.14932/dlc) Repack Let's
 ```bash
 magnet:?xt=urn:btih:47C917C46F930CB7BF83A4820EB1896BAB94E1D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Into the Necrovale (2024) [En] (1.0.1) License GOG
 magnet:?xt=urn:btih:D0AD3F3539189CC05D74718E3ABCC276B94DB20E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Sandwalkers – это пошаговый «рогалик», где главн�
 ```bash
 magnet:?xt=urn:btih:342B6B4E5FFAA85EAC841A2B40A079EC82479BFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ PROGRESS ORDERS (2025) [Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:F751596FA2970DDAB64649F1DCD3BF30619097C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Fate: Reawakened - это сборник из четырёх экшен-РПГ, 
 ```bash
 magnet:?xt=urn:btih:4603B9E589CD3E3ED09A21DBF9E7BBD6F65F48AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Rogue Loops представляет собой экшен, посвященны
 magnet:?xt=urn:btih:F45F6422F16F4915EB0D9835A7AC0D467FA0E6C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Wigmund - изометрическое приключение, выполнен�
 ```bash
 magnet:?xt=urn:btih:44EF8A15CD35AECD11ED45E46345831B6EDFDD14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Driftmoon (2013) [En] (2.0.2) License GOG [Enhanced Edition]
 magnet:?xt=urn:btih:9A9909CA94281F11F9B01D5C4BA462D49A7262EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ Knock on the Coffin Lid - ролевая игра с элементами стр
 ```bash
 magnet:?xt=urn:btih:5E1ACEE511B41606223F8CBB499F8AF651423F6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ Middle-earth: Shadow of War / Средиземье: Тени войны (2017) [
 magnet:?xt=urn:btih:8A5041FC6ABC3A2B129958C9BB90747E70837F34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ Middle-earth: Shadow of Mordor / Средиземье: Тени Мордора (
 ```bash
 magnet:?xt=urn:btih:76B4601062233F9A2C237D20A9F5D20238CE63C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ Bleak Faith: Forsaken - ролевой экшн в духе соулс-сери�
 magnet:?xt=urn:btih:194AEC673F7A9DE9559961AC2EAD0EEC0F8B6E91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ DeTechtive 2112 (2025) [Ru/Multi] (1.1.2) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:D7B1A2FA4A451A478179B6CADA736DC382CC8CFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ Rise of the Ronin - динамичная ролевая игра, в котор�
 magnet:?xt=urn:btih:22CC3BA77B466BA85E012E66D627C5E89E40DB31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ Skulltide (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E9C2981A923147811577A050B213EFE28F06D4DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ Mass Effect (2021) [Ru/En] (2.0.0.48602/dlc) Repack Wanterlude [Legendary Editio
 magnet:?xt=urn:btih:37707820E3B3D3C6DA8BE227952293352B70F815
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ Mass Effect: Andromeda (2017) [Ru/Multi] (1.10) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:FCD06403B87B9EC8E25498AA17F588DCAB2BBC49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ Banishers: Ghosts of New Eden - это увлекательная Action-RPG, к
 magnet:?xt=urn:btih:4EBADE11EC5988E81A8A89DCB49D49763E3CC551
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ Action-RPG нового поколения, созданная на новейш
 magnet:?xt=urn:btih:15E8F710FB0FE74A68ECB6AD23C3E8416802A6C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Vagrus - The Riven Realms – ролевая игра с элементами с
 ```bash
 magnet:?xt=urn:btih:F06E03DB1008DFEEDA1EB54BB4BBFC352890E60A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5215F97D984B6666B25155E10D975A26A5377A8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Dalton Trance Teleport - Trianta (2024) [FLAC|Lossless|WEB-DL|tracks] <Chillout,
 magnet:?xt=urn:btih:86B1AE415B5B62D5A86E0A2D4709C7A8D3150773
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:86B1AE415B5B62D5A86E0A2D4709C7A8D3150773
 ```bash
 magnet:?xt=urn:btih:866BD9CF911C9DAE5D2493C4BBDDE1A18FCAF463
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Michael Quatro - Bottom Line (1981) LP [MP3|320 Kbps] <Pop Rock, Disco>
 magnet:?xt=urn:btih:6329108BAFC51C5BB7DC9E8ECFE3A24B9A284D93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:6329108BAFC51C5BB7DC9E8ECFE3A24B9A284D93
 magnet:?xt=urn:btih:FECECA0EC26C529486BF23FCC02289603498273E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:FECECA0EC26C529486BF23FCC02289603498273E
 ```bash
 magnet:?xt=urn:btih:777B4A233F2C2D05064157B143FF5848EF27BFFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ VA - Dance Playlist Spring 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Elect
 magnet:?xt=urn:btih:A2478C9CC3FA296D86EF48CF5EC39165ACE1794A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ VA - Trance Spring 2024 [MP3|320 Kbps] <Uplifting Trance>
 magnet:?xt=urn:btih:7CEC758601778673F34D85A87C34F958E88EB47F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ Acode - весьма и весьма удобный в контроле и ра�
 ```bash
 magnet:?xt=urn:btih:22D37DEF13B1F0FDCF22E689EAC44C8474A13B05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:22D37DEF13B1F0FDCF22E689EAC44C8474A13B05
 magnet:?xt=urn:btih:6DE37CE2DCDA9A9997D0ABDD38BD8561E3C51C3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:6DE37CE2DCDA9A9997D0ABDD38BD8561E3C51C3A
 magnet:?xt=urn:btih:2E5291DAC3A37F16AC05CDCC37357BB15ED66895
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:2E5291DAC3A37F16AC05CDCC37357BB15ED66895
 ```bash
 magnet:?xt=urn:btih:9A3D888B207738F008FD3F5966D49D972876A05B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ Prong — американская грув-метал-группа, образ�
 magnet:?xt=urn:btih:A121860FEDB92B93B2FE2D84776AFA9CF1425DD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ Cthulhuss - Obliteration of Souls (2022) [FLAC|Lossless|image + .cue] <Death, Do
 magnet:?xt=urn:btih:64B9BED4CBA2DCA5B4C52752624426E3F86EF78D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ PhotoRoom - приложение, что будет одинаково поле�
 ```bash
 magnet:?xt=urn:btih:F3231328CA65219D3586C41FF60589FDBDF79452
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ VA - Best of Autumn, vol. 1 (2021) [FLAC|Lossless|tracks] <Techno>
 magnet:?xt=urn:btih:1EECE7CEA2641591617730B75F87A0D9E9CC16F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +457,8 @@ magnet:?xt=urn:btih:1EECE7CEA2641591617730B75F87A0D9E9CC16F9
 ```bash
 magnet:?xt=urn:btih:4B2F678AE621615BE30DCF112DDE0C3A82FD25B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +487,8 @@ A4 Papa Was A Rolling Stone(   Читать дальше...   )Жанр: Reggae,
 magnet:?xt=urn:btih:DD509BA9E5922A29369568083E5D855111810324
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +512,8 @@ magnet:?xt=urn:btih:DD509BA9E5922A29369568083E5D855111810324
 ```bash
 magnet:?xt=urn:btih:BAD928AEF12E2BD316D6E8B09887A08F6358059E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ RAM Saver Pro - инструмент для профессионального �
 magnet:?xt=urn:btih:C7B24A6538A7660722481ADDA6F9233201BD85DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ magnet:?xt=urn:btih:C7B24A6538A7660722481ADDA6F9233201BD85DD
 ```bash
 magnet:?xt=urn:btih:EB96598A6D31E8BF9FB4916541A03598F30C8997
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +594,8 @@ VA - Electronica Confessions, Vol. 1 (2014) [MP3|320 Kbps] <Electro, House>
 magnet:?xt=urn:btih:065816AD6EABC9F3DE8EBBFE2FE7EEDA8F61F211
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +619,8 @@ PhotoDirector - функциональный, но весьма простой �
 ```bash
 magnet:?xt=urn:btih:F0669689673B227135391741C87498C815E67D6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +649,8 @@ VA - Electronica Confessions, Vol. 4 (2014) [MP3|320 Kbps] <Electro, House>
 magnet:?xt=urn:btih:5070D76DC33F2CA731D10F5609C18FEB627E0433
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +676,8 @@ magnet:?xt=urn:btih:5070D76DC33F2CA731D10F5609C18FEB627E0433
 magnet:?xt=urn:btih:FE91A4942FA404DEA9090219936B255B94E43D96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ magnet:?xt=urn:btih:FE91A4942FA404DEA9090219936B255B94E43D96
 ```bash
 magnet:?xt=urn:btih:0F9534353F26733618CAC573319637A43188EA28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

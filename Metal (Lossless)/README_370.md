@@ -1,3 +1,67 @@
+###  Публикация: 1363662   (940928) от 29.02.2020
+
+Ozzy Osbourne - No More Tears (1991) X-Cellent only for sale in CIS [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Tinkertrain 5:57
+02. I Don't Want To Change The World 4:06
+03. Mama, I'm Coming Home 4:12
+04. Desire 5:45(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:871B7A3DB1E29761A066A9E53265E944EE720A62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 752510   (940999) от 02.02.2014
+
+Within Temptation - Hydra (2014) [FLAC|Lossless]<Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Let Us Burn (5:31)
+02. Dangerous (feat. Howard Jones) (4:53)
+03. And We Run (feat. Xzibit) (3:50)
+04. Paradise (What About Us?) (feat. Tarja) (5:20)
+05. Edge Of The World (4:55)
+06. Silver Moonlight (5:17)
+07. Covered By Roses (4:48)
+08. Dog Days (4:47)
+09. Tell Me Why (6:12)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:49:37+00:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2408B8D5BF6CC49808204083A9B70F922944BCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363652   (941005) от 29.02.2020
 
 Ozzy Osbourne - No Rest For The Wicked (1988) X-Cellent only for sale in CIS, 1995 [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
@@ -21,6 +85,8 @@ Ozzy Osbourne - No Rest For The Wicked (1988) X-Cellent only for sale in CIS, 19
 ```bash
 magnet:?xt=urn:btih:6E1E13D5E0F98C3E5CB579ADDADF901F07A7DCAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +114,8 @@ Ozzy Osbourne - Diary Of A Madman (1981) X-Cellent only for sale in CIS, 1995 [F
 ```bash
 magnet:?xt=urn:btih:8B2DAA30D474AF0AE6FB1803DA91B21678F62DAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +150,8 @@ Iron Maiden - Fear of the Dark (1992) Japanese Edition [FLAC|Lossless]<Heavy Met
 magnet:?xt=urn:btih:594D3ACB5374A0D99748354919E40ABE15FC67FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +184,8 @@ Dreaming Dead - Midnightmares (2012) [WavPack|lossless] <Melodic Death Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +210,8 @@ Bong - Stoner Rock (2014) [FLAC|Lossless]<Dark Ambient, Drone, Metal>
 ```bash
 magnet:?xt=urn:btih:63315DDD5B330A3D6C92D078CA70D707E951620F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +246,8 @@ Grand Magus - Triumph And Power (2014) [FLAC|Lossless]<Heavy Metal/Doom Metal>
 magnet:?xt=urn:btih:C5B7F83AEB297123039358C06812C4AF33F482F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +279,8 @@ Yggdrasil - Kvallningsvindar Over Nordront Land (2007) [FLAC|Lossless]<Folk Meta
 ```bash
 magnet:?xt=urn:btih:6B1FF8A2D46D53154789340F895C0DD9552182FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +315,8 @@ Ariadna Project - Mundos Paralelos (2005) [FLAC|Lossless]<Power Metal>
 magnet:?xt=urn:btih:383848C9C356039BCFC97FB763950F3B47785290
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +346,8 @@ Kopecky - 4CD (1999 - 2006) Discography [FLAC|Lossless]<Progressive Metal / Prog
 ```bash
 magnet:?xt=urn:btih:F8377F18F17BAB86BE046A0A13BD94638AA4BB0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +382,8 @@ Raintime - 2CD (2005 - 2007) [WavPack|Lossless|.iso.wv]<Melodic Death Metal / Po
 magnet:?xt=urn:btih:4207F247403BEDAB03E7A760E5224716627E3447
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +417,8 @@ De La Tierra - De La Tierra (2014) [FLAC|Lossless]<Groove Metal>
 magnet:?xt=urn:btih:A096DCD74851DFD8A8385E170BB156E6E55CD50F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +449,8 @@ Lyfthrasyr - The Recent Foresight (2007) [FLAC|Lossless]<Symphonic Black Metal>
 ```bash
 magnet:?xt=urn:btih:CD0A9153093BF94498B11572BF4301EEC0690FCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +485,8 @@ Yaotl Mictlan - Guerreros De La Tierra De Los Muertos (2006) [APE|Lossless]<Preh
 magnet:?xt=urn:btih:CB0BCF3EA89D9062651F65AB3FB624A948A060E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +513,8 @@ Die Krupps - V-Metal Machine Music (2015) 2CD [FLAC|Lossless|image + .cue] <Indu
 ```bash
 magnet:?xt=urn:btih:B98B90FB51581FC0924EDE3157092949401A4492
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +543,8 @@ Exumer - The Raging Tides (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
 magnet:?xt=urn:btih:860EC96EB294C0ECB2F5D794C476F81164BAC48F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +571,8 @@ Five Finger Death Punch - F8 (2020) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:333A1DFD18EACD643830AFBF1BBE09F52F903B9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +607,8 @@ MaYaN - Antagonise (2014) Limited Edition Digipack [FLAC|Lossless]<Progressive M
 magnet:?xt=urn:btih:307658F1C2A49FE338A365D665F4C5C52C82FD83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +635,8 @@ Happy Days - Save Yourself (2016) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:5941787C3C4465790E4727E14D5B34F30BDCC3B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +671,8 @@ Empyrium - Into The Pantheon (2013) [FLAC|Lossless]<Dark Symphonic Folk>
 magnet:?xt=urn:btih:1FEBD6C6545991C6CA1135CBDC7168DBEE8A53F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +706,8 @@ Manowar - Battle Hymns MMXI(2010) [APE|Lossless]<Heavy Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +734,8 @@ Disc 1:
 ```bash
 magnet:?xt=urn:btih:ED5B852230F7CD409F13BC1D6AD2724E9DFB566F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -664,6 +770,8 @@ Yngwie J. Malmsteen - Spellbound: Live in Tampa (2014) [FLAC|Lossless]<Neoclassi
 magnet:?xt=urn:btih:F4930072F517F40CCAB2348299D863C346E9F8E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -690,6 +798,8 @@ Megadeth - Dystopia (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Thrash
 ```bash
 magnet:?xt=urn:btih:9E26C50FD6B47204CF47512BD3D9A4E356E9C5D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -718,56 +828,7 @@ Demons & Wizards - III (2020) 2CD, Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:2EA0DFDC6EA0C49D3942EF4AC0E50FE9774CF44D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363199   (945368) от 26.02.2020
-
-Kvelertak - Splid (2020) [FLAC|Lossless|tracks + .cue] <Stoner Rock, Hardcore, Rock & Roll, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rogaland (05:23)
-02. Crack Of Doom (feat. Troy Sanders) (03:54)
-03. Necrosoft (03:00)
-04. Discord (feat. Nate Newton) (04:14)(   Читать дальше...   )Жанр: Stoner Rock, Hardcore, Rock & Roll, PunkПродолжительность: 00:58:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB721B2256203030B2575DCE0C1ECF5228B71F48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 652316   (946576) от 25.02.2020
-
-Those Endless Eyes - Awaits Behind (2006) [FLAC|Lossless]<Gothic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946576.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Gothic Black MetalПродолжительность: 00:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECC3A7A63079E38F815923B6E4146072E391D70B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

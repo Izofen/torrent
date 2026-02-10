@@ -22,6 +22,8 @@ Jake Butineau - Dune Sea (Original Game Soundtrack) (2019) [FLAC|Lossless|WEB-DL
 magnet:?xt=urn:btih:0004D8AB9BF66D8E626CD04F6F2B1B37594E034C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:0004D8AB9BF66D8E626CD04F6F2B1B37594E034C
 ```bash
 magnet:?xt=urn:btih:B4D20A62ACB8FA78C4C5A92B2548084357D88B80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:B4D20A62ACB8FA78C4C5A92B2548084357D88B80
 magnet:?xt=urn:btih:368B7D3AC31600E87E0D0FE955409769D1DEDD78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:368B7D3AC31600E87E0D0FE955409769D1DEDD78
 ```bash
 magnet:?xt=urn:btih:84B204759DEE2F6C17814834B028CB3C8F555255
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:84B204759DEE2F6C17814834B028CB3C8F555255
 magnet:?xt=urn:btih:4E594108990E82B32474AB3D11671A9A45188733
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:4E594108990E82B32474AB3D11671A9A45188733
 ```bash
 magnet:?xt=urn:btih:09A7BE32DAF96AD6F6FC86A2AEFDF9EB85A7DA7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ VA - Lemongrassmusic Episode 200 (2015) [MP3|320 кб/с]<Downtempo, Chillout, L
 magnet:?xt=urn:btih:A818D17350437D46E7FC6886B4411399EEDA26EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:A818D17350437D46E7FC6886B4411399EEDA26EB
 ```bash
 magnet:?xt=urn:btih:112EA613E28DD376C2E69150E68FB833CB9181B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:112EA613E28DD376C2E69150E68FB833CB9181B6
 magnet:?xt=urn:btih:B897D25327F5DE36A0F925794B751238D3C04C79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:B897D25327F5DE36A0F925794B751238D3C04C79
 ```bash
 magnet:?xt=urn:btih:DDE7A448DB3965BFAA619064C3B970AC0C31A29C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:DDE7A448DB3965BFAA619064C3B970AC0C31A29C
 magnet:?xt=urn:btih:0C0ECBB337DC7737E411DF50A0B747FB9FC50254
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:0C0ECBB337DC7737E411DF50A0B747FB9FC50254
 ```bash
 magnet:?xt=urn:btih:9955B73C01F62FDDB15093021C4E6616B4FCBC76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:9955B73C01F62FDDB15093021C4E6616B4FCBC76
 magnet:?xt=urn:btih:297172C893449C4299939990F07DC5A7539D1F37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:297172C893449C4299939990F07DC5A7539D1F37
 magnet:?xt=urn:btih:354033FD3314360F8E601BE9E8F8A2C9348D11C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:354033FD3314360F8E601BE9E8F8A2C9348D11C5
 ```bash
 magnet:?xt=urn:btih:B21734803084011D7EB5C1FF8ECF8381DCC36C95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:B21734803084011D7EB5C1FF8ECF8381DCC36C95
 magnet:?xt=urn:btih:21D5B062612C4205C3D7933EC11CBB21010393C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:21D5B062612C4205C3D7933EC11CBB21010393C2
 ```bash
 magnet:?xt=urn:btih:977D8C78C377A4719B95EB52B072E980991C04B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ Art Blakey - Drums Around The Corner (1959) 2014, Universal[FLAC|tracks+.cue]<Ha
 magnet:?xt=urn:btih:FD49171CC79251F1EDBF20945F4AA3C47A3A3DCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:FD49171CC79251F1EDBF20945F4AA3C47A3A3DCE
 magnet:?xt=urn:btih:2B90BA1EBAFC6A5662659382FAD435B82BF6924A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ magnet:?xt=urn:btih:2B90BA1EBAFC6A5662659382FAD435B82BF6924A
 magnet:?xt=urn:btih:79112811A985D4C09DAC7807B59FAB6DF8ADDB10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +556,8 @@ magnet:?xt=urn:btih:79112811A985D4C09DAC7807B59FAB6DF8ADDB10
 ```bash
 magnet:?xt=urn:btih:F7B8EFF8E92CF7652AF2F3F45D00201750D3B921
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ Cecil Taylor - The Great Paris Concert (1966) 1999, Black Lion[FLAC|tracks+.cue]
 magnet:?xt=urn:btih:D5224CC170F638C791BD6B09671EF6B18DDD5EBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ magnet:?xt=urn:btih:D5224CC170F638C791BD6B09671EF6B18DDD5EBE
 ```bash
 magnet:?xt=urn:btih:4BC06D347486E49B6BCAF5EC1C0970B3BFF9C33E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +638,8 @@ magnet:?xt=urn:btih:4BC06D347486E49B6BCAF5EC1C0970B3BFF9C33E
 magnet:?xt=urn:btih:E59DDC0EE99200EAE49456B0F207EFF2B5C56EC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:E59DDC0EE99200EAE49456B0F207EFF2B5C56EC8
 magnet:?xt=urn:btih:0B9C93D7A543689BEFB087929B5B693A4C8CA099
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ magnet:?xt=urn:btih:0B9C93D7A543689BEFB087929B5B693A4C8CA099
 ```bash
 magnet:?xt=urn:btih:A428977E0B6122C907F0510064E2425B2BDD4A01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

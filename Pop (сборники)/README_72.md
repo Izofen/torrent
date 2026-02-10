@@ -1,3 +1,38 @@
+###  Публикация: 518711   (641437) от 04.07.2012
+
+VA - Союз Золотой 8 50/50 (2012) [MP3|256 кб/с]<Рор>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641437.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Анна Семенович - Июльское Лето
+002 Dr. Alban - Loverboy
+003 Инь-Ян - Инопланетянин
+004 Rihanna feat. Calvin Harris - We found love
+005 Маша Вебер - Всё Для Тебя
+006 Rico Bernasconi & Freeze - Hit the dust (Video mix)
+007 Алабама - Испанское Лето
+008 Ivan Gough & Feenixpawl feat. Georgi Kay - In my mind (Radio mix)
+009 Reflex - Я буду небом твоим
+010 Basto! feat. Yves V - Cloud breaker (Basto radio edit)(   Читать дальше...   )Жанр: РорПродолжительность: 05:54:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE8D75C8EA9E1B4556A8FA968C0FE4F032428015
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906848   (641480) от 10.06.2015
 
 VA - Дискотека забытых хитов (зарубежная) - 12 (2015) [MP3|247 - 290 кб/с]<Pop, Disco>
@@ -21,6 +56,8 @@ VA - Дискотека забытых хитов (зарубежная) - 12 (2
 ```bash
 magnet:?xt=urn:btih:449DBB197F54075AEEA7832E5B58A73E0DDCC631
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +86,8 @@ VA - Ballermann Mega Party (2016) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:DBB85922EE2392D1B3345823B4E2B39768DFCF32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +114,8 @@ magnet:?xt=urn:btih:DBB85922EE2392D1B3345823B4E2B39768DFCF32
 ```bash
 magnet:?xt=urn:btih:5650AD8644DC110B0EB777609FB2A46A9338446A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +150,8 @@ VA - Дискотека Руки Вверх 18 (2012) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:FE6916DA4F0FEF1B072B4013A39FDA3D5525D0EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +178,8 @@ VA - Stars Dance 2 (2018) [MP3|320 Kbps] <Pop, Dance, Euro>
 ```bash
 magnet:?xt=urn:btih:4AA5E5C9CE79EA527A8872D84558D9098656D29D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +208,8 @@ VA - Top 50 Party Schlager Charts 01.04.2019 (2019) [MP3|320 Kbps] <Pop, Schlage
 magnet:?xt=urn:btih:F539AB26A3921B207B2FE4477C91AE05AB1BF57F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +236,8 @@ Kylie Minogue - Super Hits Collection (2015) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:3AA4CD021E43388FF5C95B838720929059F763F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +272,8 @@ VA - Звездные хиты от Europa plus (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:FB76FA309D663DA702DF7E5F165AA4B46CF67924
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +307,8 @@ VA - Летний Хитовый Бум (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:68A839C055457F6D96D01075BE67FB9FBAE55027
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +336,8 @@ VA - Первый молниеносный (2017) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:84E2606E03ACD2D185D0F6C4CC62C4D5FC7F0D84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +364,8 @@ VA - Summer All Stars NRJ Mix (2017) [MP3|241-320 Kbps] <Pop, Dance, RnB>
 ```bash
 magnet:?xt=urn:btih:C7C96343504B101CD630CC185ED7E1F2D83760FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +409,8 @@ VA - MAXI. Лучшие медленные хиты 3CD (2012) [MP3|320 кб/с]
 magnet:?xt=urn:btih:BC4753ECCEB95CE2A0924CDE9034BEAFC3F4A1CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +438,8 @@ VA - Дискотека забытых хитов (зарубежная) - 11 (2
 magnet:?xt=urn:btih:251F9C8A0A08527B47B9AEF64EF020DA8C4298EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +466,8 @@ VA - Зарубежная Дискотека ХХ Века - 80 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:A73671C1F25CB5CA290183BEBA8B84CF4691D585
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +502,8 @@ CD-1
 magnet:?xt=urn:btih:19FEE756DD475AFA92D0854361FE1546DF02A8FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +537,8 @@ VA - Летний Кураж Европы Плюс (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:161F2775A4B6FFD9A643DE5161E38A48CBF189C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +566,8 @@ VA - Самый Хитовый Сборник (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:C17511ED9F43DCAD7EB44F7F8F7C05C8D0BC3560
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +594,8 @@ VA - Dance Leto (2016) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:92A7D3A97430C34833A7086B5BE44F77E611EB32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +630,8 @@ VA - Горячая Дискотека 50/50 (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:CBBE79549129E34B3BBE6AA98EE6A7F7D7322493
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +665,8 @@ VA - Попсовый Драйв Летний (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:8762031193D9C7011F4D9DEB4D31D4EA9AA5F2E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +693,8 @@ VA - Пляжный Союз (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:7976D90384BD531E27EC103A0168CEEEEB5D39C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +723,8 @@ VA - Зарубежная Дискотека ХХ Века - 79 (2016) [MP3|320 
 magnet:?xt=urn:btih:DBB0BB63D5B51CF47837FB95FFC902C2D1024A3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,6 +751,8 @@ VA - Зарубежная Дискотека ХХ Века - 72 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:23025483C437DCF4E6EE3288A27D8929A8A3E5CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -700,6 +781,8 @@ VA - Зарубежная Дискотека ХХ Века - 76 (2016) [MP3|320 
 magnet:?xt=urn:btih:B58983F750AB8A924F8C443C9AEF7B445EBBE527
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -727,32 +810,7 @@ VA - Зарубежная Дискотека ХХ Века - 77 (2016) [MP3|320 
 magnet:?xt=urn:btih:D6F14B35652BCD3675E697A95B603D97C94BCB3B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032212   (646058) от 07.07.2016
-
-VA - Зарубежная Дискотека ХХ Века - 73 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vanilla - Bamboleo ( 1988 )
-02. Lala - Johny Johny ( 1987 )
-03. Lena - Run To Me ( 1987 )
-04. Joe Maran - Give Me A Break ( 1983 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3FA10FE537A23B2D0D8B1DEC970F8F0219B9669
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

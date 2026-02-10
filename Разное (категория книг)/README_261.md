@@ -1,3 +1,29 @@
+###  Публикация: 1255363   (365710) от 17.10.2018
+
+Робин Дрик, Кэмерон Стаут | Строим доверие по методикам спецслужб (2018) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как показывает Робин Дрик, специальный агент ФБР и большой знаток тонкостей человеческого поведения, всё в нашей жизни зиждется на доверии. Без него отношения между людьми легко рушатся. Автор призывает всех лидеров следовать пяти принципам кода доверия — не быть высокомерным, не судить никого, признавать значимость других, иметь здравый смысл и проявлять великодушие (   Читать дальше...   )Жанр: ПсихологияПеревод: Людмила ГоловинаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:491EF2602818E6808A0A845CE278CBB3A1C7DB6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255210   (365719) от 17.10.2018
 
 Анна Спектор | Лошади. Иллюстрированный гид (2018) [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:A089843F2D4C139263580E1A7DC67746F673C39C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:A089843F2D4C139263580E1A7DC67746F673C39C
 magnet:?xt=urn:btih:F8B4EADB4813CCD07E2A490AB35CB4E3483A8ECE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:F8B4EADB4813CCD07E2A490AB35CB4E3483A8ECE
 magnet:?xt=urn:btih:CCD3127BE6B43DFF949676BA9A1F8D33DEB68605
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:CCD3127BE6B43DFF949676BA9A1F8D33DEB68605
 ```bash
 magnet:?xt=urn:btih:DCA359981E2CD8384179F4A017B807010DD13FB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:DCA359981E2CD8384179F4A017B807010DD13FB9
 magnet:?xt=urn:btih:9FCF019FF378102A094B6598505ADFD1E653AE63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:9FCF019FF378102A094B6598505ADFD1E653AE63
 ```bash
 magnet:?xt=urn:btih:12B63FB960A464C51EB9173C1DD553E78B187F4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:12B63FB960A464C51EB9173C1DD553E78B187F4F
 magnet:?xt=urn:btih:2B020B6692B2D7BE94BCF418279322092F0F8BD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:2B020B6692B2D7BE94BCF418279322092F0F8BD5
 magnet:?xt=urn:btih:FEE1B24968D000A501E36AD08801D76FD1D8AA90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:FEE1B24968D000A501E36AD08801D76FD1D8AA90
 ```bash
 magnet:?xt=urn:btih:84ED8A693BB39BB052A558771FF43EF1E2DEF45C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:84ED8A693BB39BB052A558771FF43EF1E2DEF45C
 magnet:?xt=urn:btih:9C1B5FE4ECBC0AA8E4780C57A34BCD3173031741
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:9C1B5FE4ECBC0AA8E4780C57A34BCD3173031741
 ```bash
 magnet:?xt=urn:btih:69CB9F79249DEC633999DFB74A96BC886E27CBC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:69CB9F79249DEC633999DFB74A96BC886E27CBC7
 magnet:?xt=urn:btih:240062CB413086ACDBBCD9717ACABCDC29E87CEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:240062CB413086ACDBBCD9717ACABCDC29E87CEF
 ```bash
 magnet:?xt=urn:btih:FFEF1017203D8A92334EBC77445E61D5FD5CFC60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:FFEF1017203D8A92334EBC77445E61D5FD5CFC60
 magnet:?xt=urn:btih:D84DE7D7E2D758FBD47B613337CFAE8BC4AA10E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:D84DE7D7E2D758FBD47B613337CFAE8BC4AA10E0
 ```bash
 magnet:?xt=urn:btih:D82E2D9FD07419F8CF38709D3D99A96C6F2F38E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:D82E2D9FD07419F8CF38709D3D99A96C6F2F38E1
 magnet:?xt=urn:btih:32BC35B8C4B56D240E8AED01869241FA69BA80F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:32BC35B8C4B56D240E8AED01869241FA69BA80F9
 magnet:?xt=urn:btih:3B4C615A924077A4C7AD063769A0BC5160D9C9E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:3B4C615A924077A4C7AD063769A0BC5160D9C9E9
 ```bash
 magnet:?xt=urn:btih:F27F2928C62DC60DCB56D1421FE4361959DA195B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +524,8 @@ magnet:?xt=urn:btih:F27F2928C62DC60DCB56D1421FE4361959DA195B
 magnet:?xt=urn:btih:2418BEC674A2651CCE999892FAE3A0C994BD9490
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +549,8 @@ magnet:?xt=urn:btih:2418BEC674A2651CCE999892FAE3A0C994BD9490
 ```bash
 magnet:?xt=urn:btih:F460B013424D04A7AEA818D212980C4FC8DE70EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +576,8 @@ magnet:?xt=urn:btih:F460B013424D04A7AEA818D212980C4FC8DE70EC
 magnet:?xt=urn:btih:80F51DFD3B42E318F2A6B659A0973AF51EA57EDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:80F51DFD3B42E318F2A6B659A0973AF51EA57EDA
 ```bash
 magnet:?xt=urn:btih:F8737238C588AC8B72DDFCFF02B130A61123BE00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:F8737238C588AC8B72DDFCFF02B130A61123BE00
 magnet:?xt=urn:btih:F22A308E965CBC7EC264D2BCBDC4C4D53FFA1DEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +656,8 @@ magnet:?xt=urn:btih:F22A308E965CBC7EC264D2BCBDC4C4D53FFA1DEC
 ```bash
 magnet:?xt=urn:btih:3B699CAD29AD152990A1B223F8F2DFE88E794EAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,29 +686,7 @@ magnet:?xt=urn:btih:3B699CAD29AD152990A1B223F8F2DFE88E794EAE
 magnet:?xt=urn:btih:9BB3380D66DF13766C41297A89C73C363A4A433F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950899   (367409) от 27.10.2015
-
-Александр Сосновский | Кабинет доктора Либидо. Том I (А – Б) (2015) [FB2]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книжная серия из девяти томов. Уникальное собрание более четырехсот биографий замечательных любовников всех времен и народов. Только проверенные факты, без нравоучений и художественного вымысла. С приложением иллюстраций и списков использованной литературы. Персоналии, которые имеют собственное описание, в тексте других статей выделены полужирным шрифтом. В оформлении (   Читать дальше...   )Жанр: Биографии и мемуары, историяФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED0972CDD13A091F8CD08A35457EE071EF2EF8D3
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

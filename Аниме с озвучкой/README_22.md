@@ -19,6 +19,8 @@ Hanma Baki: Son of Ogre 2nd Season | Baki Hanma 2nd Season | Баки — сын
 magnet:?xt=urn:btih:42CD5E9C938F488493DF080F25C1B095AADC8CA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Paprika | Паприка [2006, Movie] BDRip 1080p raw+rus
 ```bash
 magnet:?xt=urn:btih:8C0AB746752F0300BF544C8002AA73C730B9A197
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Rozen Maiden | Девы Розена [ТВ-1] [2004, TV, 12 эп.] BDRip 1080p 1
 magnet:?xt=urn:btih:FDB99E47BF17AD6ED652A9030148A6B4821E4FD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Ookami Kodomo no Ame to Yuki | Wolf Children | Волчьи дети Амэ и �
 ```bash
 magnet:?xt=urn:btih:9816DF7384DFA32FDADA107ECE741FF97D07C837
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Douluo Dalu | Dou Luo Da Lu | Soul Land | Боевой континент [2018-
 magnet:?xt=urn:btih:102EF3EBAA91788757A65E71E2C159B71518A209
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Gekijouban Sword Art Online: Progressive - Kuraki Yuuyami no Scherzo | Маст�
 ```bash
 magnet:?xt=urn:btih:2EBE7CADC74E9911253CBA3B00EEA8E4C8C1E29B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:2EBE7CADC74E9911253CBA3B00EEA8E4C8C1E29B
 magnet:?xt=urn:btih:6DC01EED7318BAEDE0EBD089FAB104A356880048
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:6DC01EED7318BAEDE0EBD089FAB104A356880048
 ```bash
 magnet:?xt=urn:btih:BAE0FF5F6FED325EE70317DA530E7ACCF892FC25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:BAE0FF5F6FED325EE70317DA530E7ACCF892FC25
 magnet:?xt=urn:btih:82193E21171B5410644D308A378F9AFF5E52FAC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:82193E21171B5410644D308A378F9AFF5E52FAC8
 ```bash
 magnet:?xt=urn:btih:80B5FB37335D3DF22909A1C9711951CEBABCF2D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:80B5FB37335D3DF22909A1C9711951CEBABCF2D0
 magnet:?xt=urn:btih:8162C76B3E63EAC1C3EF4B9AE90CC9BB719443FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ Kawaisugi Crisis | Too Cute Crisis | Слишком милый кризис [202
 ```bash
 magnet:?xt=urn:btih:B088F00816FB799EECE152E1A4F7A05C6391C10E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:B088F00816FB799EECE152E1A4F7A05C6391C10E
 magnet:?xt=urn:btih:D1162060EC618CD05C4F096448EFAFB6601F648A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Bakuman | Бакуман [ТВ-1] [2010, TV, 25] BDRip HEVC 1080p 10-bit raw+rus
 ```bash
 magnet:?xt=urn:btih:181E8C3E7A9C83C0AC690D0C2A70EBBDF4A4712D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ Tsugumomo | Цугумомо [2017, TV, 12 эп.] BDRip HEVC 10-bit raw+eng+rus
 magnet:?xt=urn:btih:A88EC1C6BC142FBA37A6263B27149A452EE4D56A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:A88EC1C6BC142FBA37A6263B27149A452EE4D56A
 magnet:?xt=urn:btih:E5C7C26C40021C9CAB72EEA3DF85C417E42034E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ Black Clover: Mahou Tei no Ken | Black Clover: Sword of the Wizard King | Чёр
 ```bash
 magnet:?xt=urn:btih:15D1685BC15D60C4B7381AB10B5048A9F261D53B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka IV | DanMachi IV | В п
 magnet:?xt=urn:btih:2C5B5FFB4ACCE54A2B209AD0F0F022F34A380AC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +502,8 @@ Ghost in the Shell 2: Innocence | Призрак в доспехах 2: Неви
 ```bash
 magnet:?xt=urn:btih:B4E51330011EB64263F67B9FD71F17662C22BC40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e 2nd Season | Classroom of the El
 magnet:?xt=urn:btih:9AC629D1D6DC8B27215BE596A6AE11C6686924D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ magnet:?xt=urn:btih:9AC629D1D6DC8B27215BE596A6AE11C6686924D0
 magnet:?xt=urn:btih:ABE6DCB9FADD1A1DB6904B3011A609E4C4947E36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +583,8 @@ Chainsaw Man | Человек-бензопила [2022, TV, 12 из 12] BDRip 10
 ```bash
 magnet:?xt=urn:btih:8F70AA8F86427262DA976C3E6D19F1D311460C76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +611,8 @@ Megaton-kyuu Musashi 2nd Season | Мегатон 2 [2022, TV, 15 эп.] HDTVRip 
 magnet:?xt=urn:btih:F7E770DB6755AB3A09440CAA072CEF5E16F41379
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ Schwarzesmarken | Schwarzes Marken | Чёрные метки [2016, TV, 12 из 
 magnet:?xt=urn:btih:B8FEF5A124C96DCEC4D9BBA52BF7BF1857104204
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:B8FEF5A124C96DCEC4D9BBA52BF7BF1857104204
 magnet:?xt=urn:btih:B0996C70E173334AD8D66FBBEB78DA12283C5A82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ magnet:?xt=urn:btih:B0996C70E173334AD8D66FBBEB78DA12283C5A82
 ```bash
 magnet:?xt=urn:btih:3DF4E3B9E9B7DFC3F223F9B244E41F5890DACB43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

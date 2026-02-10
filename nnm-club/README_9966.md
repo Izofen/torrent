@@ -1,55 +1,3 @@
-###  Публикация: 958215   (323246) от 21.11.2015
-
-Roger Waters - The Wall (2015) [H.264] BDRip [H.264/1080p]
-
->>След.
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создателям фильма удалось сделать действительно потрясающее и интересное зрелище. Один из самых искусно поставленных театральных постановок в истории музыки - альбом фронтмена PINK FLOYD Роджера Уотерса "The Wall" в полном объеме. Это уникальный сплав реставрированных концертных съемок, документальной хроники, анимационных фрагментов и самых передовых технологий (   Читать дальше...   )01. Missing Presumed Dead
-02. On The Road
-03. In The Flesh?
-04. The Thin Ice(   Читать дальше...   )Производство: Великобритания|Rue 21 ProductionsЖанр: Концерт, ДокументальныйРежиссер: Sean Evans, Roger WatersАктеры: Roger Waters, Dave Kilminster, Snowy WhiteПеревод: ОтсутствуетЯзык субтитров: Русские, английские, немецкие, французские, итальянские, испанские, португальские, нидерландские, финские, шведские, датские, норвежские, греческие, польские, болгарские, венгерские, чешские, турецкиеПродолжительность: 02:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5714A05A9B8274BC5B08B7E8BEB0C022A6F018D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259180   (323247) от 02.11.2018
-
-Разведка боем. Секретное оружие Виктора Леонова (2018) SATRip
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виктор Николаевич Леонов (1916-2003) - советский моряк, дважды Герой Советского Союза, командир отдельных разведывательных отрядов Северного и Тихоокеанского флотов.
-Его называли «советским Джеймсом Бондом». Виктор Леонов - мировая легенда разведывательных и десантных операций. Гитлер считал его своим личным врагом. За голову легендарного разведчика была объявлена (   Читать дальше...   )Производство: Россия, ООО «ГПЦ Продакшн», по заказу ОАО «ТРК ВС РФ «ЗВЕЗДА»Жанр: Документальный, война, биография, спецподразделения, историяПродолжительность: 00:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DEA7AE01F4449B5CB0B56BBE22AD8F647C05E8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958346   (323248) от 21.11.2015
 
 Акулье озеро / Shark Lake (2015) WEB-DL[H.264/720p-LQ]
@@ -70,6 +18,8 @@ magnet:?xt=urn:btih:1DEA7AE01F4449B5CB0B56BBE22AD8F647C05E8B
 ```bash
 magnet:?xt=urn:btih:9F0A77E06C3E571D5A41297AF85D31252896CF63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +48,8 @@ Hi-Fi - Хорошие песни. Неизданный альбом (2018) [MP3
 magnet:?xt=urn:btih:893701A617E21B04D3A3DC109214E677F4EC0F30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +76,8 @@ magnet:?xt=urn:btih:893701A617E21B04D3A3DC109214E677F4EC0F30
 magnet:?xt=urn:btih:B695397905ABBDD3472D23404257F28AF834FC99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +101,8 @@ magnet:?xt=urn:btih:B695397905ABBDD3472D23404257F28AF834FC99
 ```bash
 magnet:?xt=urn:btih:B5AB1CB7FCA5FAE7A7CE2582525423AB6F201601
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +128,8 @@ magnet:?xt=urn:btih:B5AB1CB7FCA5FAE7A7CE2582525423AB6F201601
 magnet:?xt=urn:btih:5FA4B2DCD8F0888835787948F86276D71A413CB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +153,8 @@ magnet:?xt=urn:btih:5FA4B2DCD8F0888835787948F86276D71A413CB6
 ```bash
 magnet:?xt=urn:btih:84BFE1DF537256ACC35A694CB5C619B3933B4A3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +180,8 @@ magnet:?xt=urn:btih:84BFE1DF537256ACC35A694CB5C619B3933B4A3D
 magnet:?xt=urn:btih:4B79601A11DF9F629560642624D55FC19367DA97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +206,8 @@ BBC: Уникальные способности животных / Super Senses
 magnet:?xt=urn:btih:EC81E685453C9C6FD0F5D2169DC34B1E667E5285
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +231,8 @@ magnet:?xt=urn:btih:EC81E685453C9C6FD0F5D2169DC34B1E667E5285
 ```bash
 magnet:?xt=urn:btih:7EAA330B1943F9A5D5916ACFE4BAA4EE42018E23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +261,8 @@ VA - Love Is Endless: Blues Rock Collection (2018) [MP3|320 Kbps] <Blues, Rock B
 magnet:?xt=urn:btih:9C696C9D45930F656DD07B25A507B61F1F506D74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +290,8 @@ VA - Great Overtures (1989) [FLAC|Lossless|tracks + .cue] <Classical>
 magnet:?xt=urn:btih:48A77ED8276DBC712B5A1EAA9224D92CFC4DEC65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +315,8 @@ magnet:?xt=urn:btih:48A77ED8276DBC712B5A1EAA9224D92CFC4DEC65
 ```bash
 magnet:?xt=urn:btih:5B3213E89E1718D15D7F3DBA13DAC55032F9C67B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +342,8 @@ magnet:?xt=urn:btih:5B3213E89E1718D15D7F3DBA13DAC55032F9C67B
 magnet:?xt=urn:btih:E9B64A967BCD3E171DBFFBC134BA5248837C3AF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +367,8 @@ magnet:?xt=urn:btih:E9B64A967BCD3E171DBFFBC134BA5248837C3AF3
 ```bash
 magnet:?xt=urn:btih:484C5E29FB339B12DA939AE61EC0CE847D76174B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +394,8 @@ magnet:?xt=urn:btih:484C5E29FB339B12DA939AE61EC0CE847D76174B
 magnet:?xt=urn:btih:D8BEBE0E2C8ED82EC06FADD799537E1A05193C4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +419,8 @@ magnet:?xt=urn:btih:D8BEBE0E2C8ED82EC06FADD799537E1A05193C4D
 ```bash
 magnet:?xt=urn:btih:F0E39F22E6A6A5A18DB66BBCF43438FE68516EFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +446,8 @@ magnet:?xt=urn:btih:F0E39F22E6A6A5A18DB66BBCF43438FE68516EFA
 magnet:?xt=urn:btih:C3A18E4CEE2E458B20B98868529AA9728929F15C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +471,8 @@ magnet:?xt=urn:btih:C3A18E4CEE2E458B20B98868529AA9728929F15C
 ```bash
 magnet:?xt=urn:btih:59DD5B3101492C0155C59F3DE511EE66BD5990C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +498,8 @@ magnet:?xt=urn:btih:59DD5B3101492C0155C59F3DE511EE66BD5990C7
 magnet:?xt=urn:btih:AD0470570860B11EF81A10B7C581FAD94AE206F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +523,8 @@ magnet:?xt=urn:btih:AD0470570860B11EF81A10B7C581FAD94AE206F3
 ```bash
 magnet:?xt=urn:btih:B5F2E66D80950DC821F9D53A0A840A196D1C26E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +551,8 @@ Dead Can Dance - Dionysus (2018) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical
 magnet:?xt=urn:btih:FA0CCB81ABE7369BC52D4A0B44E5D3BE8D295910
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +577,8 @@ magnet:?xt=urn:btih:FA0CCB81ABE7369BC52D4A0B44E5D3BE8D295910
 magnet:?xt=urn:btih:4DF4281B4FEA3F41F0A67DCF7CE488EC2C7804E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +602,8 @@ magnet:?xt=urn:btih:4DF4281B4FEA3F41F0A67DCF7CE488EC2C7804E3
 ```bash
 magnet:?xt=urn:btih:AA31312E40C76399B04396EC24AC56957FE1BF44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +631,63 @@ Steven Wilson - Home Invasion: In Concert at the Royal Albert Hall (2018) [MP3|3
 ```bash
 magnet:?xt=urn:btih:2DB72C975854705A13EA4BA27AAF70D65EFD4F9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259122   (323281) от 02.11.2018
+
+Обои - Desktop Wallpapers (4K) Ultra HD. Part (153) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в (4K) Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EEAE384512638587A5ACD2958D42EF7DF00670D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259040   (323283) от 02.11.2018
+
+Johnny Hates Jazz - Turn Back The Clock (2018) 30th Anniversary Edition, 3CD, RE. RM. [FLAC|Lossless|tracks + .cue] <Electronic, Pop, New Wave, 80s>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/15. Shattered Dreams – 12” Extended Mix (5:12)
+02/15. I Don’t Want to Be A Hero – 12” Extended Mix (6:37)
+03/15. Turn Back The Clock – 12” Extended Mix (7:05)
+04/15. Heart of Gold – 12” Extended Mix (6:44)(   Читать дальше...   )Жанр: Electronic, Pop, New Wave, 80s |Продолжительность: 01:10:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC508C6830F76398E0EF0BA00C4FFB87807E9DB4
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

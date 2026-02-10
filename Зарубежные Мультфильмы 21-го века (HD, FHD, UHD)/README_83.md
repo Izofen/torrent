@@ -1,28 +1,3 @@
-###  Публикация: 222976   (575818) от 02.08.2010
-
-Мадагаскар / Madagascar (2005) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четверо изнеженных животных из Центрального зоопарка в Нью-Йорке — лев Алекс, зебра Марти, жираф Мелман и гиппопотамиха Глория — решаются на побег. Оказавшись после кораблекрушения на экзотическом острове Мадагаскар, населенном лемурами и поедающими их фоссами, путешественники с ужасом понимают, что с городскими привычками им придется распрощаться.
-Здесь нет людей, (   Читать дальше...   )Производство: США / DreamWorks SKG, Pacific Data Images (PDI), DreamWorks AnimationЖанр: Анимация, приключения, мультфильмРежиссер: Эрик ДарнеллПеревод: Профессиональный (полный дубляж), Оригинал (английский)Субтитры: Русские, АнглийскиеПродолжительность: 01:25:54
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042429   (575845) от 14.08.2016
 
 Зверополис / Zootopia (2016) BDRemux [H.264/1080p]
@@ -43,6 +18,8 @@
 ```bash
 magnet:?xt=urn:btih:8662257C5B0B05917B290F6E13B4769C4F53F85E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +45,8 @@ magnet:?xt=urn:btih:8662257C5B0B05917B290F6E13B4769C4F53F85E
 magnet:?xt=urn:btih:62FE2A49DE5A5A5700C9772964F2384D32D4E0AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +70,8 @@ magnet:?xt=urn:btih:62FE2A49DE5A5A5700C9772964F2384D32D4E0AF
 ```bash
 magnet:?xt=urn:btih:33FD8AF5C531C1EB163E70D98A45F9CFB2DA5CE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +97,8 @@ magnet:?xt=urn:btih:33FD8AF5C531C1EB163E70D98A45F9CFB2DA5CE4
 magnet:?xt=urn:btih:88D306BF1697518A852F962752964B10BFA70554
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +123,8 @@ magnet:?xt=urn:btih:88D306BF1697518A852F962752964B10BFA70554
 magnet:?xt=urn:btih:6AEF464D0B3D147C80F8E5C644A3E8D96B38D0C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +148,8 @@ magnet:?xt=urn:btih:6AEF464D0B3D147C80F8E5C644A3E8D96B38D0C5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +176,8 @@ magnet:?xt=urn:btih:6AEF464D0B3D147C80F8E5C644A3E8D96B38D0C5
 magnet:?xt=urn:btih:872803B1E5CE549538AD4CAE4CE88FC11B046FEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +201,8 @@ magnet:?xt=urn:btih:872803B1E5CE549538AD4CAE4CE88FC11B046FEA
 ```bash
 magnet:?xt=urn:btih:0088913165E1F11CAB31E5B433DCDB411E1AE661
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +228,8 @@ magnet:?xt=urn:btih:0088913165E1F11CAB31E5B433DCDB411E1AE661
 magnet:?xt=urn:btih:E9D9940F9D9F7B61BDF5505C0670391408EAA8C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +253,8 @@ magnet:?xt=urn:btih:E9D9940F9D9F7B61BDF5505C0670391408EAA8C9
 ```bash
 magnet:?xt=urn:btih:7DD47E1D8DB7E6D6C65FA65E046B7B4FECE6E59B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +280,8 @@ magnet:?xt=urn:btih:7DD47E1D8DB7E6D6C65FA65E046B7B4FECE6E59B
 magnet:?xt=urn:btih:21F0E5FBC4D99A0901A7793B19E33EDB8FD8D0A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +305,8 @@ magnet:?xt=urn:btih:21F0E5FBC4D99A0901A7793B19E33EDB8FD8D0A2
 ```bash
 magnet:?xt=urn:btih:97B6D775A9F1914FFA438528340E98C18E746D2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +334,8 @@ magnet:?xt=urn:btih:97B6D775A9F1914FFA438528340E98C18E746D2D
 magnet:?xt=urn:btih:BDAAC6678D26038E411506D58CE1C18ACC3EDF60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +359,8 @@ magnet:?xt=urn:btih:BDAAC6678D26038E411506D58CE1C18ACC3EDF60
 ```bash
 magnet:?xt=urn:btih:7D4CAD71836B43CA89321CE008C5358D8DDF31F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +386,8 @@ magnet:?xt=urn:btih:7D4CAD71836B43CA89321CE008C5358D8DDF31F0
 magnet:?xt=urn:btih:0AA2F33CFF6589D0D48CA7A31DC8FF7343F3BAFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +411,8 @@ magnet:?xt=urn:btih:0AA2F33CFF6589D0D48CA7A31DC8FF7343F3BAFF
 ```bash
 magnet:?xt=urn:btih:6C2F5B697631BC4D375D2EDC8E0BF323DBE3C439
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +438,8 @@ magnet:?xt=urn:btih:6C2F5B697631BC4D375D2EDC8E0BF323DBE3C439
 magnet:?xt=urn:btih:D4A349BFEBFD5FB0F173C08FED04EB13C7124423
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +463,8 @@ magnet:?xt=urn:btih:D4A349BFEBFD5FB0F173C08FED04EB13C7124423
 ```bash
 magnet:?xt=urn:btih:63B3A64FD8DDB162F5C679392F3CF45D63EF669A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +490,8 @@ magnet:?xt=urn:btih:63B3A64FD8DDB162F5C679392F3CF45D63EF669A
 magnet:?xt=urn:btih:8E08C5E7EB2BA060720B6E4599D4702B2B215D7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +516,8 @@ magnet:?xt=urn:btih:8E08C5E7EB2BA060720B6E4599D4702B2B215D7D
 magnet:?xt=urn:btih:1B7CB95424374D9E2D76F63F47DA117C486F5477
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +541,8 @@ magnet:?xt=urn:btih:1B7CB95424374D9E2D76F63F47DA117C486F5477
 ```bash
 magnet:?xt=urn:btih:23ED772CF0BE6E2C38F4937751E9AE4EDDA9FF3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +570,8 @@ magnet:?xt=urn:btih:23ED772CF0BE6E2C38F4937751E9AE4EDDA9FF3B
 magnet:?xt=urn:btih:EA2042298E94DC4B6E57B77B3AF4766DB93923F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +595,8 @@ magnet:?xt=urn:btih:EA2042298E94DC4B6E57B77B3AF4766DB93923F2
 ```bash
 magnet:?xt=urn:btih:9CB0B3E522496FE6FA0998ED54D44F1654621545
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +622,8 @@ magnet:?xt=urn:btih:9CB0B3E522496FE6FA0998ED54D44F1654621545
 magnet:?xt=urn:btih:398FF2E05CF3779B31158D9F41B0A6042BED93B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +647,35 @@ magnet:?xt=urn:btih:398FF2E05CF3779B31158D9F41B0A6042BED93B2
 ```bash
 magnet:?xt=urn:btih:4ABB8662D4C18E095C5F7F769481D7B556AB299F
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919206   (583686) от 18.07.2015
+
+Лига справедливости: Боги и монстры / Justice League: Gods and Monsters (2015) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_583686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знакомый многим мир комиксов DC изменился… В нарисованном городке все так же обитают знаменитые герои - Бэтмен, Чудо-Женщина и Супермен, вот только жители больше не любят фантастических персонажей. И, по правде сказать, есть за что.
+В этой версии реальности Супермен является отпрыском Генерала Зода, поэтому он отличается особой жестокостью и имеет психически неуравновешенный (   Читать дальше...   )Производство: США |  DC Entertainment, Warner Bros. Animation, Warner PremiereЖанр: Рисованная анимация, боевик, фантастикаРежиссер: Сэм ЛьюПеревод: Любительский многоголосый, закадровый (ZM-SHOW)Субтитры: Английские (вшитые отключаемые)Продолжительность: 01:15:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E39C135A8924CCC065ACAFD06466E7B60EEC705
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

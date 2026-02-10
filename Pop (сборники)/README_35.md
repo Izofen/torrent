@@ -1,3 +1,32 @@
+###  Публикация: 950669   (368032) от 27.10.2015
+
+September - Dancing In Orbit (2008) [MP3|~225 кб/с (V1)]<Pop, Dance, Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_368032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cry For You
+02. Looking For Love
+03. Can't Get Over
+04. Midnight Heartache(   Читать дальше...   )Жанр: Pop, Dance, EurodanceПродолжительность: 01:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1E6DCCDCBB87BEE0047AA8E746B93AAA64C527B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 575302   (368277) от 15.11.2012
 
 VA - Лучшие Хиты Радио DFm Часть 10 (2012) [MP3|256 кб/с]<Pop, Dance>
@@ -28,6 +57,8 @@ VA - Лучшие Хиты Радио DFm Часть 10 (2012) [MP3|256 кб/с]
 magnet:?xt=urn:btih:89616D160E7428BE0D94EDBC6BEAB1CDBF393AFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -55,6 +86,8 @@ magnet:?xt=urn:btih:89616D160E7428BE0D94EDBC6BEAB1CDBF393AFC
 magnet:?xt=urn:btih:E3CB6CA566EE1BA24B1819F4ACB0AD704384BE47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,6 +114,8 @@ VA - Super Дискотека 80х-90х В Новом Звучании (2016) [M
 ```bash
 magnet:?xt=urn:btih:5696EBAF734BF20FAB4B5B49D34CF9BE10A0CBF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +150,8 @@ VA - Лучшие хиты осени (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:E81305E548FD046CBD662DBE11E570404090D992
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +178,8 @@ VA - Горячий Музон (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:38E212804B2AEF72EBA02241E1AEB1E2B6F2E1A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +208,8 @@ VA - Заключительная осенняя дискотека. Часть 
 magnet:?xt=urn:btih:50CF2E8EB56EEA88AAB8F1F706D9A2BC0C9C4CAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +236,8 @@ VA - Музыкальный адреналин. Сборник 10 (2016) [MP3|25
 ```bash
 magnet:?xt=urn:btih:65A15074E91C6630D85C86C724E91F279ECC5ABD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +266,8 @@ VA - Осенняя позитивная 100-ка. Выпуск 7 (2016) [MP3|25
 magnet:?xt=urn:btih:BB5103E957074E18456F9936A93812888C6058BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +294,8 @@ VA - Горячий хитовый драйв. Выпуск 5 (2016) [MP3|256 Kb
 ```bash
 magnet:?xt=urn:btih:50E1F8AC4EF14223E6F3D10F60F545499DFD99D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +324,8 @@ VA - Сборник - 78 оборотов (Эстрада 1940-1960-х годо�
 magnet:?xt=urn:btih:BA34CDEEE00730D5E10F05AF5C5663EB1D1FD7BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +352,8 @@ magnet:?xt=urn:btih:BA34CDEEE00730D5E10F05AF5C5663EB1D1FD7BE
 ```bash
 magnet:?xt=urn:btih:1C124E51E0A71C0B5A8CC349CB9A54879A96C217
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +382,8 @@ VA - Love Lyrics Songs (2020) [MP3|320 Kbps] <Pop, Rock, Lyric>
 magnet:?xt=urn:btih:6BC794D7A6D0597D337DB2D9F0D022789BA3DA67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +410,8 @@ VA - Популярный драйвовый хитовичок. Версия 9 
 ```bash
 magnet:?xt=urn:btih:5A453C9E1BBE9DB7707121080F2405D6779D0F33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +440,8 @@ VA - Любимая волна. Версия 7 (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:8F95C45292CF75B3FF966DAD9C5CF6CFC2A4CF5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +468,8 @@ VA - Начнем сначала. Русский сборник попмузык
 ```bash
 magnet:?xt=urn:btih:AC3B8B3CFDFDA80513AE85B8200CB23A0EC666A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +498,8 @@ VA - Русское радио: Хит-парад 'Золотой Граммоф
 magnet:?xt=urn:btih:E8D358ED718B2B8776B1C7673B88E93E6983E7D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +526,8 @@ VA - Дискотека забытых хитов (зарубежная) - 17 (2
 ```bash
 magnet:?xt=urn:btih:5A994037C934057FAFCB8446068EA90F40702FDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +556,8 @@ VA - Autumn Dance Hits Vol.1 (2015) [MP3|320 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:86B770A538496C9D77BF318227EFEA2348AC68AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +585,8 @@ VA - Play Exclusive Cloud October 2018 (2018) [MP3|320 Kbps] <Dance>
 magnet:?xt=urn:btih:767DE11EEDC6924C55A1878FDF4C466C89AF1C68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +613,8 @@ VA - German Top 100 Single Charts 15.10.2018 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:C774185DD51A49BA7139488910FC25BEB225E563
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +646,8 @@ CD 01:
 magnet:?xt=urn:btih:961934F4105A7C57AEDB18E952FCA305D5A569CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +674,8 @@ Teddybears (Teddybears STHLM) - Collection (2000 - 2016) [MP3|320 Kbps] <Alterna
 ```bash
 magnet:?xt=urn:btih:032C69E2233443302C1141C6CFC4AEF52D4F8DEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +704,8 @@ VA - Осенняя хит-атака на Europa Plus. Русский сбор�
 magnet:?xt=urn:btih:143AD3F48CC24F1A2BEC55E608B87DC87D1B7571
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +732,8 @@ Frank Duval - 25 Best Songs (2012) [MP3|~245 кб/с (V0)]<Instrumental Pop>
 ```bash
 magnet:?xt=urn:btih:A8A215A6AE0C41C8D48E0A636CA23344F3485CCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -685,32 +762,7 @@ VA - Зайцев.нет Лучшие новинки Октября 2018 [MP3|32
 magnet:?xt=urn:btih:3B4674FD02A309C8B56D4477C8DEBD282796553F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 572725   (377396) от 11.11.2012
-
-VA - Most Wanted - Digital Dancefloor - Chapter 01-12 (2011) [MP3|320 кб/с]<Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Sleep - Moonlight Shadow (DJ's Master Mix) (6:13)
-02. Clueless - Don't Speak (Extended Version 1) (6:10)
-03. Ritmo Ritmo feat. Ricardo DC - Matador (Maxi Edit) (5:17)
-04. 2Hot4You - Can't Take My Eyes Off You (Club Rap-Mix) (6:01)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 00:75:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27629BCA229CE7FC08C2C15DF9DD9CEA76D8C736
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

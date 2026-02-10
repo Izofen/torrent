@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Shaman King Flowers | Король-шаман: Цветы [2024, TV, 13 эп.] W
 ```bash
 magnet:?xt=urn:btih:F81ECE6D96F0EB9E36335DA97D30206E15CE3D8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:F81ECE6D96F0EB9E36335DA97D30206E15CE3D8B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ SpaceX запустила две ракеты Falcon 9 менее чем за ч
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ SpaceX запустила две ракеты Falcon 9 менее чем за ч
 magnet:?xt=urn:btih:3F4070E736E4B316263D83E15F050CA88137069C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:3F4070E736E4B316263D83E15F050CA88137069C
 ```bash
 magnet:?xt=urn:btih:9A01182F3CDD69D55148E5C6FA62EBA0672EED83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Autodesk 3ds Max предоставляет все необходимые инс
 magnet:?xt=urn:btih:AD729F95E483AC6B24D1434753EBCFCDA5F401D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:AD729F95E483AC6B24D1434753EBCFCDA5F401D5
 ```bash
 magnet:?xt=urn:btih:76B1EF4123C884A62C54E131656B6DE5567674F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:76B1EF4123C884A62C54E131656B6DE5567674F5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:76B1EF4123C884A62C54E131656B6DE5567674F5
 ```bash
 magnet:?xt=urn:btih:1F05C7F00523F0BD48485D57AAA39E48F9381530
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:1F05C7F00523F0BD48485D57AAA39E48F9381530
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:1F05C7F00523F0BD48485D57AAA39E48F9381530
 ```bash
 magnet:?xt=urn:btih:558133AFE2A4ECB3D437EE3EC35CFF9C0674F25E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Shangri-La Frontier: Kusogee Hunter, Kamige ni Idoman to Su | Фронтир Ш�
 magnet:?xt=urn:btih:D993A6A3A57DD2E3D0F77F458D554A48AB522716
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:D993A6A3A57DD2E3D0F77F458D554A48AB522716
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:D993A6A3A57DD2E3D0F77F458D554A48AB522716
 magnet:?xt=urn:btih:45AF8DF5E3A1932D9860E31331B4B26692D85483
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Mahou Shoujo ni Akogarete | Вoсхищaясь дeвушкaми-вoлшeбниц
 ```bash
 magnet:?xt=urn:btih:8DA174B8A14E4A3888D0841E2B3921A99CF5A38D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Saijaku Tamer wa Gomi Hiroi no Tabi o Hajimemashita. / The Weakest Tamer Began a
 magnet:?xt=urn:btih:59F7DB9821DE74F72FBB1222A0B6756118A87FB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ The KMPlayer – это мощный мультимедиа проигрыват
 ```bash
 magnet:?xt=urn:btih:0DB8CAF0B93AE995AD0A89813A0090B31E0E8478
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ F-Secure Freedome VPN - надежное и эффективное решени�
 magnet:?xt=urn:btih:8DBD7B14B677DB453F2053A414E75B8F424CADDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ magnet:?xt=urn:btih:8DBD7B14B677DB453F2053A414E75B8F424CADDA
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ F-Secure Freedome VPN - надежное и эффективное решени�
 magnet:?xt=urn:btih:06DBE11179E7BF4D26BE1D0518B892FC06064EE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ magnet:?xt=urn:btih:06DBE11179E7BF4D26BE1D0518B892FC06064EE5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ magnet:?xt=urn:btih:06DBE11179E7BF4D26BE1D0518B892FC06064EE5
 magnet:?xt=urn:btih:14D9A730EB80D13F86BFA15A3F1B5A273E965F6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Akuyaku Reijou Level 99: Watashi wa Ura Boss Desu ga Maou de wa Arimasen / Зл�
 ```bash
 magnet:?xt=urn:btih:C82CE976FBAA18F855F22CF60947662056E39864
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ magnet:?xt=urn:btih:C82CE976FBAA18F855F22CF60947662056E39864
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Microsoft Office предоставляет удобные и простые с�
 ```bash
 magnet:?xt=urn:btih:4C7B194C456AA83D4996FD96020C1C66999A22EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

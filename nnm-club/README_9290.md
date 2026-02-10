@@ -19,6 +19,8 @@ TagScanner - мощная программа для организации и у
 magnet:?xt=urn:btih:7512603C1277D843E6592A057C80634B2CA368E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ VA - German Top 100 Single Charts 24.11.2017 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:3ACA53BA3576D6FFDA93A03761DF2AF0D999ECFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ TextSoap  для Mac OS - Поможет подчистить текстовые
 magnet:?xt=urn:btih:138437DEAA7180D0DFCBCA305C95AD888CF53D40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:138437DEAA7180D0DFCBCA305C95AD888CF53D40
 ```bash
 magnet:?xt=urn:btih:EA6FEDDBBBF1B90FF5FD9D79B96361C46882C5DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Karushanti - Celtic Traces (2017) [MP3|320 Kbps] <New Age, Celtic>
 magnet:?xt=urn:btih:2EFDB2173AE41472B0FA48F2EA9662856037EE38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Slimjet 16.0.8.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:71026284B9D0EA85C32DFE67546010D4D214F8D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:71026284B9D0EA85C32DFE67546010D4D214F8D0
 magnet:?xt=urn:btih:AA79AFC80E73F516E5911AEE6291BE6ECDBF768B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:AA79AFC80E73F516E5911AEE6291BE6ECDBF768B
 ```bash
 magnet:?xt=urn:btih:AAAEC1DDF856C32863B653B341ACF10EF999C5C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:AAAEC1DDF856C32863B653B341ACF10EF999C5C2
 magnet:?xt=urn:btih:B58AF1A934E749CB2B5A39682E13EC5A11DF2BF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:B58AF1A934E749CB2B5A39682E13EC5A11DF2BF0
 ```bash
 magnet:?xt=urn:btih:404E0A724E25B649486BA0600C1C213EE29F92E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ VA - A State of Trance: Future Favorite - Best of (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:E3D0568CEE064A7657EF575DFA8D8DB1A43E7E3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ HyperSnap — инструмент для захвата изображения,
 ```bash
 magnet:?xt=urn:btih:8260A2B3F84229C16219305C01629419A69458DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ VA - Ahmed Romel - Orchestrance 215 (2017) [MP3|320 Kbps] <Trance, Uplifting Tra
 magnet:?xt=urn:btih:8A7F6AEE9F835105224BE43DB2888F39E7FC64B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:8A7F6AEE9F835105224BE43DB2888F39E7FC64B7
 ```bash
 magnet:?xt=urn:btih:B2A8624785FC269CDFA108B201125E5EBC082116
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:B2A8624785FC269CDFA108B201125E5EBC082116
 magnet:?xt=urn:btih:DFA65FAC9C3AB47FDE8C7F8D0CF528D164F0C6BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:DFA65FAC9C3AB47FDE8C7F8D0CF528D164F0C6BF
 magnet:?xt=urn:btih:5328FFABE8DF2627C17BE61204CCA6F75BD06752
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:5328FFABE8DF2627C17BE61204CCA6F75BD06752
 ```bash
 magnet:?xt=urn:btih:378A014303F4E527C8DC0DC1D7CD98E70ED8BCD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +478,8 @@ VA - 538 Dance Smash Hits Of The Year (2014) 3CD[FLAC|Lossless]<House,  Dance, T
 magnet:?xt=urn:btih:02A5AB498E8FE09308DCE34EEBD8E7DE39DD6F15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ magnet:?xt=urn:btih:02A5AB498E8FE09308DCE34EEBD8E7DE39DD6F15
 ```bash
 magnet:?xt=urn:btih:5319B62F2446720154A79621564C5601B0FE9B0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +533,8 @@ Jessica Mauboy - HILDA (2019) [MP3|320 Kbps] <Pop, R&B>
 magnet:?xt=urn:btih:C797C3F8849BDAFD0BF55CE16D217BDE5E8E43EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ The Plastic Waste Band - Crushed (2019) [FLAC|Lossless|tracks + .cue] <Fusion / 
 magnet:?xt=urn:btih:2AB6A58CF635C7E5A2A6D98FC584E9608257A555
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +587,8 @@ Paperless - поможет создать базу данных эллектро
 ```bash
 magnet:?xt=urn:btih:CC3C76CEA0205AAB749A755E23EB7B5D2DDEDB98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +616,8 @@ Tagr поможет вам организовать свои MP3 / M4A (MP4) и 
 magnet:?xt=urn:btih:46FA74B406949B4A5131A5BEAC20ADDB77128D5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +641,8 @@ Cisdem PDFCompressor является программным обеспечен�
 ```bash
 magnet:?xt=urn:btih:589E2DC2C0A838F5D5582E5AB98E26BF31934E77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +671,8 @@ VA - Dance Anthems 2019.03 (2019) [MP3|320 Kbps] <Euro Dance, Pop Dance>
 magnet:?xt=urn:btih:160C95047AEBA946C6632B3A73C2DC6B12E26306
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:CF5AC04A6F71F4827613DB7AB7D714512ED10E5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

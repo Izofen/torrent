@@ -22,6 +22,8 @@ Daemon Grey - Daemonic (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Indus
 magnet:?xt=urn:btih:840CE3E0A7D31B1AFAA9F3B878868336F5748D9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ magnet:?xt=urn:btih:840CE3E0A7D31B1AFAA9F3B878868336F5748D9B
 magnet:?xt=urn:btih:C50077569E6A72F20BE673B5C2E5A18F12BE9B6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -77,6 +81,8 @@ Old Ruins - Always Heading East (2023) [MP3|320 Kbps] <Heavy, Post-Black Metal>
 ```bash
 magnet:?xt=urn:btih:465A75F61A7ADAFC17563C7BD74CA3021416B584
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -105,6 +111,8 @@ Tom MacLear - The Big Blue Mac (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:3E7BF0C51B063E97E36B83BD106D0D658A906FC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +136,8 @@ magnet:?xt=urn:btih:3E7BF0C51B063E97E36B83BD106D0D658A906FC4
 ```bash
 magnet:?xt=urn:btih:4C0E05018B5EA70E2AE213FD89DFA3F22E187B7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -155,6 +165,8 @@ magnet:?xt=urn:btih:4C0E05018B5EA70E2AE213FD89DFA3F22E187B7E
 magnet:?xt=urn:btih:BD9165BB6F418E586BB618F454E0B841382F0A5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ magnet:?xt=urn:btih:BD9165BB6F418E586BB618F454E0B841382F0A5F
 ```bash
 magnet:?xt=urn:btih:64B242F2E010C994B0C2C56FE1E0F5DF07960DF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -207,6 +221,8 @@ Holly Becker, Joanna Copestick | Decorate. 1,000 Design Ideas for Every Room in 
 magnet:?xt=urn:btih:AF74D4E46FD8ED010E3AF2B44ADD0483A9683268
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -233,6 +249,8 @@ We Are Perspectives - Heritage (Album) (2023) [FLAC|Lossless|WEB-DL|tracks] <Met
 ```bash
 magnet:?xt=urn:btih:C6D61EB52563879E8BEDC0463AD6283FA77E15D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +285,8 @@ VA - Заряд Новогодних Русских Хитов (2012) [MP3|256 �
 magnet:?xt=urn:btih:B17397500130EC75D7A6EFEBAB12742C9BA36C61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +310,8 @@ magnet:?xt=urn:btih:B17397500130EC75D7A6EFEBAB12742C9BA36C61
 ```bash
 magnet:?xt=urn:btih:370F93B379E2DB9E6467EE8DD1016FC0228AB2AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +346,8 @@ Radioactive Man - Waits and Measures (2012) [MP3|320 kbps] < Electronic, Electro
 magnet:?xt=urn:btih:2388677C06642CAEF846302D864754733D9A2EA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +371,8 @@ magnet:?xt=urn:btih:2388677C06642CAEF846302D864754733D9A2EA1
 ```bash
 magnet:?xt=urn:btih:C8A77596E4C263F0F52EBAE9E6CDAD259223C4C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +399,8 @@ Windows 11 16in1 +/- Office 2019 x86 by SmokieBlahBlah 2023.12.02 [Ru/En]
 magnet:?xt=urn:btih:F0439140B4F04684C34320F9632DF8A8682B2CF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +424,8 @@ magnet:?xt=urn:btih:F0439140B4F04684C34320F9632DF8A8682B2CF6
 ```bash
 magnet:?xt=urn:btih:79CC1CAAC5A6B60D19D1137EEE96E41696E2BC55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +451,8 @@ SteamWorld Dig 2 (2017) [Ru/Multi] (1.1) License GOG
 magnet:?xt=urn:btih:9CA33C9E76B4A5BFFA306D9AD98802112CEE354B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +477,8 @@ Devil's Hunt (2019) [Ru/Milti] (1.5.0) License GOG
 magnet:?xt=urn:btih:9D974B6C415756863BF52EE7DFB193D0AFBB24CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +502,8 @@ magnet:?xt=urn:btih:9D974B6C415756863BF52EE7DFB193D0AFBB24CC
 ```bash
 magnet:?xt=urn:btih:2D53FD4014FF3C45B873B775C3351EF7E2849681
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +530,8 @@ magnet:?xt=urn:btih:2D53FD4014FF3C45B873B775C3351EF7E2849681
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +557,8 @@ magnet:?xt=urn:btih:2D53FD4014FF3C45B873B775C3351EF7E2849681
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +582,8 @@ magnet:?xt=urn:btih:2D53FD4014FF3C45B873B775C3351EF7E2849681
 ```bash
 magnet:?xt=urn:btih:648041F7DEA85D4FC01D85F8D47F80C4E9C614A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +609,8 @@ magnet:?xt=urn:btih:648041F7DEA85D4FC01D85F8D47F80C4E9C614A1
 magnet:?xt=urn:btih:1346F7A039CA0918866E1BF16F30903A6F6CAF6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +634,8 @@ magnet:?xt=urn:btih:1346F7A039CA0918866E1BF16F30903A6F6CAF6B
 ```bash
 magnet:?xt=urn:btih:4B84F102E2A025228F1F25D3282ADE2A759FEF40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +670,8 @@ VA - JazzCD.no - Jazz From Norway 5th set (2012) 3CD[FLAC|Lossless]<Abstract, Co
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +695,8 @@ Adobe Illustrator 2024 28.1.0.141 RePack by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3C5EE604CCD90DF93BAB8C0D1AB696CDF4B35E31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -672,6 +722,8 @@ magnet:?xt=urn:btih:3C5EE604CCD90DF93BAB8C0D1AB696CDF4B35E31
 ```bash
 magnet:?xt=urn:btih:2E8A20F71818922F882FEB1791CBBF4C4C1DC334
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

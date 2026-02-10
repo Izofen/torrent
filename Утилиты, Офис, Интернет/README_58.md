@@ -19,6 +19,8 @@ R-Studio Network 9.2 Build 191126 Portable by 7997 [Multi/Ru]
 magnet:?xt=urn:btih:5980246C72F7FAF3E2471D05692B76B42D6F7423
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Magic Uneraser от East Imperial Soft предлагает восстановл
 ```bash
 magnet:?xt=urn:btih:F2F9A659B1463F2522C3682AC6F38991F60F4E27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Kate - это кроссплатформенный текстовый редак
 magnet:?xt=urn:btih:C09C1926F3892A1FB65FD78062F2B6C2A8DA6846
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ iSpy - программа, которая с помощью микрофона �
 ```bash
 magnet:?xt=urn:btih:6AF47057D88825F56BD5EB61A1B001C893DD0CE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Hetman Internet Spy Unlimited Edition 3.8 RePack (& Portable) by elchupacabra [M
 magnet:?xt=urn:btih:D750F0215CD1EF3D8F9A1BB167F4F6BA04D87E12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ AeroAdmin программа удаленного доступа, работаю
 magnet:?xt=urn:btih:2E401B688D55FDFF4DCFA4A6A2325B225DBAA797
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ Sidebar Diagnostics – простая боковая панель для раб
 ```bash
 magnet:?xt=urn:btih:A43219229F149F47EAFB0F1B40A6763226F3B09C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Switch Off - простая в использовании системная у�
 magnet:?xt=urn:btih:EB33A708BFD29238BA800748170F636F758CF01E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Google Earth Pro 7.3.6.9345 RePack (& Portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:FE619F2A38397A750FB8A5D857AF423B3DE5DB7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ PerigeeCopy 1.7 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:F57A41AE45276DDAD111B0FE1E1D615688BF0A1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ DesktopImages3D 2.29 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:D979353002BE1890AF844F39B6A1676C281B3CBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Smart Defrag - дефрагментатор, позволяющий довест
 ```bash
 magnet:?xt=urn:btih:DED3EFAAED1FE1C8EFC89964940413B4FE322510
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ IObit Uninstaller Pro представляет собой удобный инс�
 magnet:?xt=urn:btih:D2F8B5BCD44E406AC8F033453529E2011E2E6DF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:ACE7A26F98664F899494950709E7531F15FAAAFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ MAX Desktop 25.14.1 [Ru]
 magnet:?xt=urn:btih:023B4028FA57C402F308F1D340F22B81B38128EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Psiphon - это новый инструмент обхода интернет-�
 magnet:?xt=urn:btih:4BF6521A7BA764333277C8370BAD3B361791A03C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Advanced SystemCare Pro - это мощный пакет для оптимиза
 ```bash
 magnet:?xt=urn:btih:E8B0065211451C6ECFBCFA989E63AFCE84B97A88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ DesktopNoteOK – простая портативная программа дл�
 magnet:?xt=urn:btih:2681327CCA654C2098FCDB30A067F40996C72FB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ WorldWide Telescope - уникальная программа от корпор�
 magnet:?xt=urn:btih:B08EB25ABC11C7B32A4CB3389C86F8ADBF1492D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ EaseUS DriverHandy - это инструмент для сканирования
 ```bash
 magnet:?xt=urn:btih:2552A066F7C042390E70E18D85C5B87EE664C606
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ WirelessConnectionInfo (Portable) — утилита, которая Отобр�
 magnet:?xt=urn:btih:2EFC097C96D2B638EDDADB92553EBC35119F6F02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Interactive Calendar - удобная программа-календарь, и�
 ```bash
 magnet:?xt=urn:btih:25896245A7DE77933F13062692784B1E4B381EAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ CLCL - утилита кеширования буфера обмена. Прог
 magnet:?xt=urn:btih:48E6A231E184C9205BE26EC11945011148633444
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ ScreenHunter Pro – программа для получения снимков
 ```bash
 magnet:?xt=urn:btih:7826424463AAC1156C23003212E5743DBC1BA938
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Family Tree Builder 8.0.0.8625 [Multi/Ru]
 magnet:?xt=urn:btih:69D5B8D79DFB4D2B47B1C2FA233810B7584E9856
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Document Express Editor - популярная программа для ред�
 ```bash
 magnet:?xt=urn:btih:BC23D8BB0794706EE0BF0695555BAB5172146C9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

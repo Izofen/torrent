@@ -19,6 +19,8 @@ KIBORG (2025) [Ru/Multi] (2025.11.05:1:83) Repack Necros
 magnet:?xt=urn:btih:D3E41A192FD8345F8716A443761D2834A2ACAC2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Shotgun Cop Man (2025) [Ru/Multi] (20251028_1119) Repack Necros
 ```bash
 magnet:?xt=urn:btih:FE426234169D233260B8462BADD1036C7B6B8B0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Syberia - Remastered (2025) [Ru/Multi] (32111015) Scene FairLight
 magnet:?xt=urn:btih:D2EE68CB3B7D253883668749E521BC2C5187FADE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Stormworks: Build and Rescue (2020) [Ru/En] (1.15.5/dlc) Repack Necros
 ```bash
 magnet:?xt=urn:btih:DEA5F01B530CD0B797788372C4D2A7BF198CF8FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ The Falconeer Revolution Remaster (2025) [Ru/Multi] (32096228) Scene Rune
 magnet:?xt=urn:btih:76A59826D889C5E6676D55DC6AC778444226FFE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Metal Garden - это короткий атмосферный шутер от п
 ```bash
 magnet:?xt=urn:btih:B6F66440F592B93C6424F8F805FC5460FD3D2FF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Cats & Cups (2025) [Ru/Multi] (1.0.5) Repack Necros
 magnet:?xt=urn:btih:944A66950EB8F8C4363C064F1B20893722A804D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ BALL x PIT — рогалик на выживание с разбиванием 
 ```bash
 magnet:?xt=urn:btih:82F506E5EB51A8A6A7117A74BCA581290EA0D3A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Snark Busters: High Society / Охотники за Снарком. Высшее
 magnet:?xt=urn:btih:1DDE43BC4F3957E5397B2F234C0BC2B8BCA47B0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:1DDE43BC4F3957E5397B2F234C0BC2B8BCA47B0A
 ```bash
 magnet:?xt=urn:btih:97C2CE89D6D1E4B91D2198FE1C76BEE09D00BCD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Lego Indiana Jones 2: The Adventure Continues / LEGO Indiana Jones 2: Прикл
 magnet:?xt=urn:btih:615A6E99038440E59F1EC1418695C358A5BA32D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ The Sojourn (2020) [Ru/Multi] (1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:FDF703D1CB8981087661C75E3E484E795824D6E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Syberia - Remastered (2025) [Ru/Multi] (Build 20668622) Repack Let'sРlay
 magnet:?xt=urn:btih:9D573A1637EB3897CCDEE3A477C2011F770388D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Need for Speed Heat - это гоночная игра в открытом ми�
 ```bash
 magnet:?xt=urn:btih:0404DE8BBFDECCAC979230CE1AA95A03EB71C237
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Snark Busters: High Society / Охотники за Снарком 3. Высше
 magnet:?xt=urn:btih:414365290C5FF231EC94557269C8EC827D8CAD8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Live Novels. Jane Austen's: Pride And Prejudice / Джейн Остин. Гор�
 ```bash
 magnet:?xt=urn:btih:79E298C2D7CA6C063B2C4F0861BFE66C93884DDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Mystery Case Files: Return to Ravenhearst / За семью печатями. В
 magnet:?xt=urn:btih:22FC71CD21FBB4E7A6EBD41E216E221D68BD5BDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Living Legends 13: Haunting Melody (2025) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:033E75EDFBE81296D9DB84E9B75050F61AF039FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ True Fear: Forsaken Souls (2016) [Ru/Multi] (2.0.10) License GOG [Part 1]
 magnet:?xt=urn:btih:FC69C3F0FD4DC12F3BDAE0AD5DDB4D86857DAAB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Biped 2 – это продолжение увлекательной игры о
 ```bash
 magnet:?xt=urn:btih:19C8FFEA2530CB2F829829BD2E8141C22AE933B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Deltarune - это пошаговая ролевая игра от Тоби Фо
 magnet:?xt=urn:btih:DDE74123D282FE23182721E6A2489B688F32658B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Secrets of Salem 2: The Phantom Cab / Секреты Салема 2: Призр�
 ```bash
 magnet:?xt=urn:btih:419AB5D7F59E5A8C9937543587DBBEF51A3604F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Second Sun (2025) [En] (1.0.5b) Repack Necros
 magnet:?xt=urn:btih:C99A68CB5D35018C1C29A15E930BF82E141972A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Syberia - Remastered (2025) [Ru/Multi] (Build 20668622) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:164128E204CEFE4B2C8839B0A8746858A948C2D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ No Players Online (2025) [Ru/Multi] (6000.024f1) Repack Necros
 magnet:?xt=urn:btih:C1DAB4F39A6B276FBD70E0B7A6B16F7AD486D728
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Planet of Lana прекрасная и цветущая планета, что �
 ```bash
 magnet:?xt=urn:btih:935DE20435779DAB6B49052BC81813D667A96531
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

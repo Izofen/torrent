@@ -1,3 +1,29 @@
+###  Публикация: 1396590   (745439) от 16.07.2020
+
+Морской круиз. Обратно в Средиземноморье / The Cruise. Return to The Mediterranean (2018) HDTVRip [H.264/1080i] (серии 1-3)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каково это - путешествовать на одном из самых шикарных круизных лайнеров? А сколько усилий нужно приложить команде судна, чтобы 4000 пассажиров были всем довольны? Авторы сериала попытаются приоткрыть завесу тайны.Производство: EU, Wild pictures limitedЖанр: Документальный, путешествияРежиссер: С. Льюис, Р. МакдоналдПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 3 x ~00:42:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0803EC517E0AC854050D0678ED01B66093C7792
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396545   (745449) от 16.07.2020
 
 Астротуризм. Небо аборигенов в Австралии / The Borderless Sky. The Aboriginal Sky of Australia (Sternenjager - Abenteuer Nachthimmel) (2017) HDTV [H.264/1080i]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:8BB8EFD671E26047CC16010F8B4B5EEE962B4E44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:8BB8EFD671E26047CC16010F8B4B5EEE962B4E44
 magnet:?xt=urn:btih:83A924C3EE90A661CD1C2E342AA7A9A5BE3AD43B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:83A924C3EE90A661CD1C2E342AA7A9A5BE3AD43B
 ```bash
 magnet:?xt=urn:btih:5D6E04D64BB7EA8F1373E55D93D5A59F4241C748
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:5D6E04D64BB7EA8F1373E55D93D5A59F4241C748
 magnet:?xt=urn:btih:163B19B00DBA60C2F061740A1BD09E62C5513393
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:163B19B00DBA60C2F061740A1BD09E62C5513393
 ```bash
 magnet:?xt=urn:btih:A3F72DA617BC5095FF49B6A31F27CB44E0CBDB4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:A3F72DA617BC5095FF49B6A31F27CB44E0CBDB4C
 magnet:?xt=urn:btih:2456776899D998523326BCAA288D6E4EC8C5ABF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:2456776899D998523326BCAA288D6E4EC8C5ABF2
 ```bash
 magnet:?xt=urn:btih:2FEB62D502319B6165A2C8BA138BFFCAF65407C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:2FEB62D502319B6165A2C8BA138BFFCAF65407C2
 magnet:?xt=urn:btih:8FD64F964C185F36338551515620517E615AB742
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:8FD64F964C185F36338551515620517E615AB742
 ```bash
 magnet:?xt=urn:btih:B46F49978DBF3D02E042CAF072EBB46966196459
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:B46F49978DBF3D02E042CAF072EBB46966196459
 magnet:?xt=urn:btih:D0775D4D352A63B32B4C2DBE67454571D1086FCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:D0775D4D352A63B32B4C2DBE67454571D1086FCC
 ```bash
 magnet:?xt=urn:btih:49A60202448425AA3683D7602BED670822020E04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:49A60202448425AA3683D7602BED670822020E04
 magnet:?xt=urn:btih:5CC56098A4E926972666EB6FBC5AC352B0A4E412
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:5CC56098A4E926972666EB6FBC5AC352B0A4E412
 magnet:?xt=urn:btih:45D2C52D368C6491194AAA42106340409EBEBCB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:45D2C52D368C6491194AAA42106340409EBEBCB8
 ```bash
 magnet:?xt=urn:btih:4680CBD985BCB817C55C69E356B6B748AF84C62B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:4680CBD985BCB817C55C69E356B6B748AF84C62B
 magnet:?xt=urn:btih:DEFB451B6809BD59BBCA921B8E181297DDF33446
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:DEFB451B6809BD59BBCA921B8E181297DDF33446
 ```bash
 magnet:?xt=urn:btih:1750059460E9D3DEDF8A520404A1D68758C81A29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:1750059460E9D3DEDF8A520404A1D68758C81A29
 magnet:?xt=urn:btih:0D7354C83F96DFF05958EE866BAA58654F1ABEEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:0D7354C83F96DFF05958EE866BAA58654F1ABEEE
 ```bash
 magnet:?xt=urn:btih:1024887661A84BC03C964AACA9ACA62EBC779B03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +515,8 @@ magnet:?xt=urn:btih:1024887661A84BC03C964AACA9ACA62EBC779B03
 magnet:?xt=urn:btih:B7E5CC91360B97A7FB176075BF9C80283D14A068
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +540,8 @@ magnet:?xt=urn:btih:B7E5CC91360B97A7FB176075BF9C80283D14A068
 ```bash
 magnet:?xt=urn:btih:C7927D426C3469D61FF78240BAC4299D378606A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +567,8 @@ magnet:?xt=urn:btih:C7927D426C3469D61FF78240BAC4299D378606A3
 magnet:?xt=urn:btih:B622F9F4975C323E041A5C7244CDA4C12C912172
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +592,8 @@ magnet:?xt=urn:btih:B622F9F4975C323E041A5C7244CDA4C12C912172
 ```bash
 magnet:?xt=urn:btih:668825D9266F69310276F1543D472EA84A5E9169
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +619,8 @@ magnet:?xt=urn:btih:668825D9266F69310276F1543D472EA84A5E9169
 magnet:?xt=urn:btih:1D2AD9C859629073C2AA12F64A4D94A7A5DD506B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +644,8 @@ magnet:?xt=urn:btih:1D2AD9C859629073C2AA12F64A4D94A7A5DD506B
 ```bash
 magnet:?xt=urn:btih:5A991E7CD832D2089C37FDE14DBB59966490CAD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,29 +671,7 @@ magnet:?xt=urn:btih:5A991E7CD832D2089C37FDE14DBB59966490CAD0
 magnet:?xt=urn:btih:079E9CF1C7635F0F68A038D0D8C5FE4F76B4A078
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282143   (746554) от 11.02.2019
-
-Казуары / Cassowaries (2008) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746554.jpg" />
-</div>
-
-
-###  Подробнее
-
-В тропических джунглях Австралии живет одно из последних доисторических существ. Казуар! Нелетающая птица ростом с человека, с мощными лапами и когтями-кинжалами. Как и многие другие виды, казуар под угрозой исчезновения. Виной этому изменение климата и, увы, человек.Производство: Австралия, Великобритания, BKFilms, BBC, National GeographicЖанр: Документальный, природа, флора, фаунаРежиссер: Дэвид Райт, Бьянка КилиПеревод: Одноголосый закадровый, профессиональный (Первый ТВЧ)Субтитры: отсутствуютПродолжительность: 00:51:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FD6ED33BC11351A125398C77BBF849DB8055616
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

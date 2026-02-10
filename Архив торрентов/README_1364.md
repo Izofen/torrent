@@ -19,6 +19,8 @@ WinToUSB - позволяет устанавливать и запускать �
 magnet:?xt=urn:btih:DD46983990F4BF5647D417BB8209584AA1EF26E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ updated_sep_2023_x64_dvd_4cde879b.iso
 magnet:?xt=urn:btih:0514698161B91DCCE44527DB0DC926375AE8563A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ TweakPower – представляет собой единый графичес
 magnet:?xt=urn:btih:98BA807F375518CF5393B133B871C90784FFA748
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ LosslessCut — простой видеоредактор для нарезки 
 ```bash
 magnet:?xt=urn:btih:20B7269B2683EE15D76D574FB665E5CA37BE4B70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Insofta 3D Text Commander 5.7.0 RePack (& Portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:000E52E8BE7E77FCB6A2648D963A325AB1CEC046
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ FanControl – свободно распространяемый продукт,
 magnet:?xt=urn:btih:AEB362D4042966CBFD823F74495D5B83AFBB9638
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Aurora HDR, идеально подходит для фотографов все
 ```bash
 magnet:?xt=urn:btih:5840FD8CE954F65A377E6FB9C2C44F29C24B871F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Mate Translate обладает невероятно полной базой д�
 magnet:?xt=urn:btih:ADDB8937AB75C73DBE1A7603929207C239767146
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:C47D1DE10EB222BF85D2A7A59DED1E4E47F36A15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ Audiobook Builder 2.1.2 [Multi/Ru]
 magnet:?xt=urn:btih:39D9F6B4265BB5FC282482BB6016B3EF7771DCB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ WiFi Explorer Pro берет базу кода Wi-Fi Explorer и добавля�
 ```bash
 magnet:?xt=urn:btih:87C8C1FDF437C1AD19E6120D388CDD438185FAFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ Office.Files.Images 2.45 Portable [Multi/Ru]
 magnet:?xt=urn:btih:F95704472CDEEFA1AB47634BCEFAA695BEE1BD21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 ```bash
 magnet:?xt=urn:btih:04C258684442B59103DDF70E0494F14801B55DD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ Room Arranger - программа специально предназначен
 magnet:?xt=urn:btih:829C24E0796D71EF62B7A716C12D8911B9552336
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ LibreOffice - офисный пакет с открытым исходным к�
 ```bash
 magnet:?xt=urn:btih:188597E1ADFE2AC5363BD4365F5AE430567F83AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ Stellarium – бесплатный эмулятор звездного неба
 magnet:?xt=urn:btih:7CB9C3CCE6E062AABBCC2E921484A0A3A41AC27E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ Windows 11 Manager - это универсальная утилита специ
 ```bash
 magnet:?xt=urn:btih:8C87EB5516BFFA4812B7D3842709DD54ED61F540
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ Keka — это теперь уже платный архиватор для mac
 magnet:?xt=urn:btih:4CE72CD35C20EA10B3D7DF40426906048F392F45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ FastCopy - инструмент для быстрого копирования/�
 ```bash
 magnet:?xt=urn:btih:AB6BA4D3C5E3E2FE905664A13049D33C70728D6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:B7696E2C8FDBF7A8E700927566FE54F18FB9F576
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ FBackup — это свободно распространяемое прогр�
 ```bash
 magnet:?xt=urn:btih:A8710E751583F0981122A19795D0F33A200883E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:41DC874A9A26664A14F1D126E8A14F5649EC63EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ Vov Sticky Notes 8.5 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CF6269948D273387D616ED02127744328334ED7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ OCCT 12.1.7 Final Portable [En]
 magnet:?xt=urn:btih:4CF51F78292CBB92E98F2D7676EEC3C2BAEBEBD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ MediaHuman YouTube Downloader 3.9.9.77 (1911) RePack (& Portable) by Dodakaedr [
 ```bash
 magnet:?xt=urn:btih:FCCC1B4CD0E96BD39964C1D56EAF964DA0E182F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +681,8 @@ CudaText — абсолютно бесплатный мультиплатфор�
 ```bash
 magnet:?xt=urn:btih:B29AAE23ED4B67813A715607D2AE04FF295766E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

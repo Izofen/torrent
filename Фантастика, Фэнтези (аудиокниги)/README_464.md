@@ -1,3 +1,29 @@
+###  Публикация: 1010776   (802116) от 25.04.2016
+
+Василий Маханенко | Гамбит Картоса (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новейшие технологии позволили создать Барлиону – виртуальный мир развлечений, отдыха и общения. Правительство выступило гарантом легитимности игровых денег и их свободного обмена на реальные кредиты. Население почувствовало «халяву» и хлынуло в Барлиону. И кто-то, разумеется, додумался превратить Барлиону в место наказания преступников. Тело осужденного помещали (   Читать дальше...   )Жанр: Фэнтези. LitRPGПродолжительность: 12:50:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E4D1FE729FFB8715FB4E6455994E91B9A577350
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010675   (802247) от 25.04.2016
 
 Роберт Шекли | Девушки и Наджент Миллер (2016) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:4231B3CC3388DDDF61A1BBD343EC7DE702BBD055
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:4231B3CC3388DDDF61A1BBD343EC7DE702BBD055
 magnet:?xt=urn:btih:CF34E840EFE1195F7654EE99A550BD57C4267900
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:CF34E840EFE1195F7654EE99A550BD57C4267900
 ```bash
 magnet:?xt=urn:btih:6615321020020BB6B0674470F5952E9757D17D13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:6615321020020BB6B0674470F5952E9757D17D13
 magnet:?xt=urn:btih:611BE7F364B8D8748BC3406349CDDD83A773B624
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:611BE7F364B8D8748BC3406349CDDD83A773B624
 magnet:?xt=urn:btih:7B27BD5C684D5D02CFC7454C7B6C864DFB2C7049
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:7B27BD5C684D5D02CFC7454C7B6C864DFB2C7049
 ```bash
 magnet:?xt=urn:btih:D896282AE8E453C6B0EB556D284B05C9D5426FBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +207,8 @@ magnet:?xt=urn:btih:D896282AE8E453C6B0EB556D284B05C9D5426FBB
 magnet:?xt=urn:btih:AB63417112EEA0F8E15A403948897B7DDF42D6CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:AB63417112EEA0F8E15A403948897B7DDF42D6CA
 ```bash
 magnet:?xt=urn:btih:AC9B677EE491C26C5580BD4F54205CD3A11E7501
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +259,8 @@ magnet:?xt=urn:btih:AC9B677EE491C26C5580BD4F54205CD3A11E7501
 magnet:?xt=urn:btih:0CA949085C7743D1925C57C342F84070E2972266
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:0CA949085C7743D1925C57C342F84070E2972266
 ```bash
 magnet:?xt=urn:btih:A545AF77A2687DFAC62726B1E3E52D90C21684E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:A545AF77A2687DFAC62726B1E3E52D90C21684E7
 magnet:?xt=urn:btih:75417FACD5B9E3AAE00BD2D197C5C2B06DF7F19D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:75417FACD5B9E3AAE00BD2D197C5C2B06DF7F19D
 ```bash
 magnet:?xt=urn:btih:5D02722A648B68C7451D51CB648A0FCAA169E7D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:5D02722A648B68C7451D51CB648A0FCAA169E7D0
 magnet:?xt=urn:btih:1044BDF62FFF85105A43027582B4401F805E54BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:1044BDF62FFF85105A43027582B4401F805E54BB
 ```bash
 magnet:?xt=urn:btih:C7C7FE5A2964E37DBA839EDE1FFAFF847F66D817
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:C7C7FE5A2964E37DBA839EDE1FFAFF847F66D817
 magnet:?xt=urn:btih:B43ADFB49267398BA840B1972C3DAC41867A7008
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:B43ADFB49267398BA840B1972C3DAC41867A7008
 ```bash
 magnet:?xt=urn:btih:045145B7C84BF2AC06BCBEC3BEE4D1384D697DF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:045145B7C84BF2AC06BCBEC3BEE4D1384D697DF2
 magnet:?xt=urn:btih:0A5F2B732AEF939E27C86DA18CA999571B3A2F3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:0A5F2B732AEF939E27C86DA18CA999571B3A2F3B
 ```bash
 magnet:?xt=urn:btih:C59771BC38892643A6A6C101387A9EB9E20C3020
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:C59771BC38892643A6A6C101387A9EB9E20C3020
 magnet:?xt=urn:btih:2064D45C8AD97C6FC53F21FE9A5A02D1CE5CE1BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:2064D45C8AD97C6FC53F21FE9A5A02D1CE5CE1BE
 ```bash
 magnet:?xt=urn:btih:FEDED766C2828D5D1D04D541B055BA08E1549D9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:FEDED766C2828D5D1D04D541B055BA08E1549D9B
 magnet:?xt=urn:btih:AA0463B3F424EBDD4F64D14398A983F5A81A5664
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:AA0463B3F424EBDD4F64D14398A983F5A81A5664
 magnet:?xt=urn:btih:E860966E6C182E409C3E12410550F593FB4EDCF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:E860966E6C182E409C3E12410550F593FB4EDCF9
 ```bash
 magnet:?xt=urn:btih:F4E2D00CE2953A7473063313E6664B26A687738B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:F4E2D00CE2953A7473063313E6664B26A687738B
 magnet:?xt=urn:btih:AAA745E6F8FB558CE78F1CCDB23D2C43E339ECD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,29 +676,7 @@ magnet:?xt=urn:btih:AAA745E6F8FB558CE78F1CCDB23D2C43E339ECD4
 magnet:?xt=urn:btih:F0E7ACA097C181F93DC4EA593BE1021000BD76B5
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198726   (804330) от 13.01.2018
-
-Петр Блэк | Тайны Эльфигории (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полагаете, что в мире меча и магии, нет места обычным смертным? Нет? Спешу вас разубедить… Это не так!!! Олег никогда не думал, что однажды открыв портал в незнакомый мир Саннариас, его жизнь окончательно и бесповоротно изменится. Теперь ему придется понять, кто он есть. И принять решение, кем он станет. Зло не дремлет… Проникая во все миры и господствуя там, оно (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 05:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93E4FA44ED6E90E3AE6D070FDD759924605B45E5
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

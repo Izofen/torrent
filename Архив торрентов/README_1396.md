@@ -19,6 +19,8 @@ ExperienceIndexOK - небольшая утилита от разработчи�
 magnet:?xt=urn:btih:11FADB7D7FA5028B5A21281A3A475F6E1824A9FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ QownNotes – менеджер заметок, позволяющий четко
 magnet:?xt=urn:btih:9610B56E6C6C66BD13CC9AED0FB0490E90FED7F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:9610B56E6C6C66BD13CC9AED0FB0490E90FED7F3
 ```bash
 magnet:?xt=urn:btih:9191830D90D2AB70E4080C2981E9D66312634A23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ BELOFF [dp] 2022.11.1
 magnet:?xt=urn:btih:FC133D2E790FC474F77D53748446B14D1DEB2F0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ FontCreator - Редактор шрифтов FontCreator может созда�
 ```bash
 magnet:?xt=urn:btih:0DDCE991A046894052306D7310A610FAEFEEA700
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Radeon Software Slimmer - портативная утилита для удал�
 magnet:?xt=urn:btih:6A1573077C84562CE25371F3FDCD5E94EB8E8C60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Sandboxie - yтилита для контроля за работой разли
 ```bash
 magnet:?xt=urn:btih:877EA115BF6583E87D7D659E270B8E82A081DB15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ TrafficMonitor - портативная утилита с минималисти
 magnet:?xt=urn:btih:311B7DA1A48EB3D7F48233038DBA6FFA77693157
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Google Earth Pro 7.3.6.9277 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:E81A97A8F78AF0F889511C0F2CB51404F7BF349A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ DP Animation Maker 3.5.12 RePack (& Portable) by elchupacabra [Ru/En]
 ```bash
 magnet:?xt=urn:btih:52728AD43499D6F45DB90B0B3B5C1BA3356B3BFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ ThisIsMyFile — это небольшая, но эффективная прог
 magnet:?xt=urn:btih:6BC409514A70DE82831EF17957FAA972AE4FCD79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ MediaHuman YouTube Downloader 3.9.9.76 (2410) RePack (& Portable) by TryRooM [Mu
 ```bash
 magnet:?xt=urn:btih:B311CE618089BAD48FA00678209DDC29E03FA253
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ CD-03Жанр: Rock, New Wave, Post-PunkПродолжительность: 3 CD
 magnet:?xt=urn:btih:0C73AE7F9C18BFFF00F141A565F27E0C19CED6F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ R-Wipe & Clean - программа от разработчика популяр
 magnet:?xt=urn:btih:6923C4965BB83B77F260ABD549E53EDD23A991DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Phase One Capture One - один из лучших профессиональн�
 ```bash
 magnet:?xt=urn:btih:AD6CE6C400706396D572FB7A0935934BE4DC2E14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:4F8C39DBEA79FA3A3B215D5A7F008D39BEE9DFE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ AnyDesk 7.1.16 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5A0AD9BE64A828C4198C0BADFF5A714AD56E172F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:8C2D5F53EFC40742220ECD0649D86D44A3A6EE3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ LibreWolf как раз решает (   Читать дальше...   )Язы
 magnet:?xt=urn:btih:72597E28024FEB1DE4ACD988F67C5CF3210F823B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ Registry Finder - простая в использовании утилита д
 ```bash
 magnet:?xt=urn:btih:8D4DA95F129B6D077508411B8856F10CFF965974
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ Things — приятный и простой ежедневник. Это ид�
 magnet:?xt=urn:btih:E3B9C355CBF4F69EFDC11DD675B140E3AA020253
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ Kaspersky Small Office Security – Антивирус Касперского д
 magnet:?xt=urn:btih:A82F38537A083C295B2F1F7706EE884C8DC762B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:B16A66D9A5D75E1010B66D38798DE38E47D404A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:4DDE01279AC25C913701D3DAE054578F6D892A44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ CCleaner - утилита для чистки мусора в операцион
 magnet:?xt=urn:btih:EDE1901B1E460109A08249CECBEA4466995F6E84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ Notepad++ - бесплатный редактор текстовых файло�
 ```bash
 magnet:?xt=urn:btih:C9140AA87385215B9CC623C5CF929446E5DC1AE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

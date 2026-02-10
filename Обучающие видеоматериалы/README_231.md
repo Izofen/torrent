@@ -22,6 +22,8 @@ C# Уровень 2. Продвинутый курс(   Читать дальш�
 magnet:?xt=urn:btih:D9D9016771BCFD0E20BED9E4E6C08DAC0EEE3585
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Unity3DSchool | Комплексное обучение созданию игр 
 ```bash
 magnet:?xt=urn:btih:83DB73A4052EB7EDBA5D949CFB9C1FAA790D4261
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ unity 3d уровень 1(   Читать дальше...   )Производс�
 magnet:?xt=urn:btih:8505032EE544CA717C6E19D2ACDEBF72ABAB34D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ kalachevaschool, Дарьей Остапенко | Эстетика обнаже
 ```bash
 magnet:?xt=urn:btih:F3BE59E5E82C971D1DE42525C814011BEBAE1AE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:F3BE59E5E82C971D1DE42525C814011BEBAE1AE2
 magnet:?xt=urn:btih:C7E1372DCA8C17C8CFC7E02040EBA056C30B3C40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ kalachevaschool, Дарьей Остапенко | Рисуем человека
 magnet:?xt=urn:btih:65CD11DF5120CA181EF38225E88C32CDD8A4219A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ kalachevaschool, Евгения Мельникова | Скетчи разным
 ```bash
 magnet:?xt=urn:btih:517BD2DAB13613868BEF9F5594B193B33771DDEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -206,6 +220,8 @@ kalachevaschool, Дарья Остапенко | Построение прост
 magnet:?xt=urn:btih:062E4D47E471C59539D432E5A9D31E523A34F401
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +247,8 @@ magnet:?xt=urn:btih:062E4D47E471C59539D432E5A9D31E523A34F401
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -254,6 +272,8 @@ magnet:?xt=urn:btih:062E4D47E471C59539D432E5A9D31E523A34F401
 ```bash
 magnet:?xt=urn:btih:C1C9ADCF683C7434C63F799258C8FB4C230AF98A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -279,6 +299,8 @@ magnet:?xt=urn:btih:C1C9ADCF683C7434C63F799258C8FB4C230AF98A
 magnet:?xt=urn:btih:BE064C6B66AF24C80A1059EF7A0C852B3E6AB55A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ magnet:?xt=urn:btih:BE064C6B66AF24C80A1059EF7A0C852B3E6AB55A
 magnet:?xt=urn:btih:E54C3AF667E2DC3C02D9DE0EC0F3781A2B07A907
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:E54C3AF667E2DC3C02D9DE0EC0F3781A2B07A907
 ```bash
 magnet:?xt=urn:btih:196B6252FB41319915AAF12F00327EB4E99CE1C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ magnet:?xt=urn:btih:196B6252FB41319915AAF12F00327EB4E99CE1C9
 magnet:?xt=urn:btih:54144839C63EFBD3FB7717E98118C664CA6649B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ Lectrum | Продвинутый курс по Redis (2019) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:7879A75F337D308C86D3A488EF386190F271AF05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ Lectrum | Продвинутый курс по Webpack v4, с чистого л�
 magnet:?xt=urn:btih:4477ABB948BE549ACD61A15F3CCE8443D7275952
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +457,8 @@ magnet:?xt=urn:btih:4477ABB948BE549ACD61A15F3CCE8443D7275952
 magnet:?xt=urn:btih:6234F35208DD6962C8FFDA45BC0806C699D82C00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ magnet:?xt=urn:btih:6234F35208DD6962C8FFDA45BC0806C699D82C00
 ```bash
 magnet:?xt=urn:btih:7DD944F18F9F91FB8AF8CEE0164D83792D8BF940
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +511,8 @@ magnet:?xt=urn:btih:7DD944F18F9F91FB8AF8CEE0164D83792D8BF940
 magnet:?xt=urn:btih:EADECAB6E055C959C5FA4FC24726458AE4B9FAB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +536,8 @@ Lectrum | Продвинутый курс по Docker, полное погруж
 ```bash
 magnet:?xt=urn:btih:07E1A4D5F213B7A02C5CE54F95F602365DED93A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ magnet:?xt=urn:btih:07E1A4D5F213B7A02C5CE54F95F602365DED93A4
 magnet:?xt=urn:btih:2CE5CD186D93C8DEA084066E173D64FDDEFB68F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ Lectrum | Введение в веб-разработку JavaScript, c глуб
 ```bash
 magnet:?xt=urn:btih:9A48D6D665BD6DED96D551DD0D86CF1DB5A38669
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +615,8 @@ Lectrum | Видеокурс по GraphQL (2019) PCRec [H.264]
 magnet:?xt=urn:btih:2BB8AF57CF485FA34B4535767E4A7CE8DE365BBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +640,8 @@ Lectrum | Видеокурс по TypeScript (2020) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:75720BCA7E8AC7DD9E59711D276E7F739ED8E64E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +667,8 @@ Lectrum | Продвинутый видеокурс по Redux, с фундам�
 magnet:?xt=urn:btih:0BF1A32EB4B4F7246E067C61440E088ECD26DB13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ magnet:?xt=urn:btih:0BF1A32EB4B4F7246E067C61440E088ECD26DB13
 ```bash
 magnet:?xt=urn:btih:EB4546F492BA77A9CC4A16D6169010A916E692E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

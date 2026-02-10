@@ -1,3 +1,29 @@
+###  Публикация: 1048635   (546584) от 02.09.2016
+
+Большинство (02.09.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_546584.jpg" />
+</div>
+
+
+###  Подробнее
+
+В каждом выпуске – обсуждение актуальной темы недели с участием политиков, чиновников, представителей бизнеса и экспертов, а также тех, кто представляет «большинство» – жителей страны, неравнодушных к тому, что происходит, и готовых задавать неудобные и острые вопросы.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:59:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:366D03BE5E0513F097A77D01DD877581257AB2C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048610   (546586) от 02.09.2016
 
 Право голоса. Китайская двадцатка (02.09.2016) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:AEB8B8E431584918BC0135E432185B29DCCB1729
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:AEB8B8E431584918BC0135E432185B29DCCB1729
 magnet:?xt=urn:btih:345F019C4B85331FC4B4F1E3061A12E3DEC83B45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:345F019C4B85331FC4B4F1E3061A12E3DEC83B45
 ```bash
 magnet:?xt=urn:btih:118FF9C67F6C625A071B014F3F566BC6DA7F62F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:118FF9C67F6C625A071B014F3F566BC6DA7F62F3
 magnet:?xt=urn:btih:33516AB2E9D5826075E196D8464C861515D4CC72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:33516AB2E9D5826075E196D8464C861515D4CC72
 ```bash
 magnet:?xt=urn:btih:E17C951A7C3D9D2BC22EAF2BF44B23666B9D0F13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:E17C951A7C3D9D2BC22EAF2BF44B23666B9D0F13
 magnet:?xt=urn:btih:2A9BC949C1EC79683C4846BB8B83A4E50DDC8D9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:2A9BC949C1EC79683C4846BB8B83A4E50DDC8D9C
 ```bash
 magnet:?xt=urn:btih:EBC16667A9951680E53487333E0754F3209D0E84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ Discovery: Братья Дизель / Diesel Brothers (2016) HDTV [H.264/1080i-
 magnet:?xt=urn:btih:48D0F82BE95672FAABF39729A80C366943B45AE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:48D0F82BE95672FAABF39729A80C366943B45AE7
 ```bash
 magnet:?xt=urn:btih:94CAA2A7E2B42937CAF007F629BDF556FCF9EA44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:94CAA2A7E2B42937CAF007F629BDF556FCF9EA44
 magnet:?xt=urn:btih:0EE9CB12C4D94E437678E4CCBBEFAFF91E086DB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:0EE9CB12C4D94E437678E4CCBBEFAFF91E086DB6
 ```bash
 magnet:?xt=urn:btih:DA304B7021F6B34EDF4F53B4AD4DC1F3A23ED933
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:DA304B7021F6B34EDF4F53B4AD4DC1F3A23ED933
 magnet:?xt=urn:btih:957F93611F55900D4C29ADC608A30C470F22DCAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +356,8 @@ magnet:?xt=urn:btih:957F93611F55900D4C29ADC608A30C470F22DCAF
 ```bash
 magnet:?xt=urn:btih:05AE2DD5A2A0126B63546B533E06B524AA559F18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:05AE2DD5A2A0126B63546B533E06B524AA559F18
 magnet:?xt=urn:btih:FC154D99E52689F7705EA4CC16909C80FEACE174
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +408,8 @@ magnet:?xt=urn:btih:FC154D99E52689F7705EA4CC16909C80FEACE174
 ```bash
 magnet:?xt=urn:btih:BAF70AAFE28A42827AC11F095B739463201E677A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:BAF70AAFE28A42827AC11F095B739463201E677A
 magnet:?xt=urn:btih:3BE7E69801053DF5F767DC85C202DEE81D0A79BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +461,8 @@ magnet:?xt=urn:btih:3BE7E69801053DF5F767DC85C202DEE81D0A79BA
 ```bash
 magnet:?xt=urn:btih:ACFD9F07A977EF304A20762D3E771C5B5E557DE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:ACFD9F07A977EF304A20762D3E771C5B5E557DE0
 magnet:?xt=urn:btih:7FD64E9AA80B890D1711C9EC53D1074CE4D13719
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +515,8 @@ magnet:?xt=urn:btih:7FD64E9AA80B890D1711C9EC53D1074CE4D13719
 ```bash
 magnet:?xt=urn:btih:AAFA2153380FAD3C8E03B9ACC550CC556851FFC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:AAFA2153380FAD3C8E03B9ACC550CC556851FFC4
 magnet:?xt=urn:btih:B3CE33C04E70C09797A064FCF395D70CF4E33414
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +567,8 @@ magnet:?xt=urn:btih:B3CE33C04E70C09797A064FCF395D70CF4E33414
 ```bash
 magnet:?xt=urn:btih:A126E6FB1E5BE22B870316CD7FEFE8D880E39144
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:A126E6FB1E5BE22B870316CD7FEFE8D880E39144
 magnet:?xt=urn:btih:49B0677517F5831FFBF54F50742EDFB6319FF38B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +620,8 @@ magnet:?xt=urn:btih:49B0677517F5831FFBF54F50742EDFB6319FF38B
 ```bash
 magnet:?xt=urn:btih:71B35F26A7B63D5CB67306FBCD2977F645D1DC52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:71B35F26A7B63D5CB67306FBCD2977F645D1DC52
 magnet:?xt=urn:btih:F69AD8EFA075626818BA2C2E74EBD37A4F5BC1B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,29 +673,7 @@ magnet:?xt=urn:btih:F69AD8EFA075626818BA2C2E74EBD37A4F5BC1B7
 magnet:?xt=urn:btih:F79BF58C170E81DE6E51BE58AD7449E5F99FE4D8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047983   (548426) от 31.08.2016
-
-Время покажет (31.08.2016) SATRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Закон — один для всех? В студии программы «Время покажет» обсуждают резонансное дело о гонках на Gelandewagen и говорят о социальном неравенстве, которое разделило общество на богатых и бедных. Громкие аварии с участием супердорогих автомобилей все чаще мелькают в прессе, вызывая негодование общества. Эксперты программы пытаются понять, что нужно сделать, чтобы все (   Читать дальше...   )Телекомпания: Первый каналЖанр: Тв-ШоуПродолжительность: 01:33:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFB19CB0DCAA1294089E1B3AB80A786880340657
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Linux Mint 13 (MATE, Cinnamon) RC [32bit, 64bit] (4xDVD)
 magnet:?xt=urn:btih:3DDF94C7EB81DCB50940373F71B824A5F3DBAA92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:3DDF94C7EB81DCB50940373F71B824A5F3DBAA92
 magnet:?xt=urn:btih:64F3AD60B8DC9AD05966FD0580D1E8CA54768DAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Game of Thrones / Игра престолов [En] (L) 2012
 ```bash
 magnet:?xt=urn:btih:CBFC72C411B83710DF7AC64396D9342FA30728CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:CBFC72C411B83710DF7AC64396D9342FA30728CF
 ```bash
 magnet:?xt=urn:btih:D042B9B22FB233E1550B39FDFA31746C616FBE77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -132,6 +140,8 @@ Reefer Decree - Out Of Bounds (2012) [MP3|~250 кб/с (V0)]<Psychedelic / Progr
 magnet:?xt=urn:btih:1618D860D8F99B4918FCBD335781BA03873CDF6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +174,8 @@ Shiva Chandra - The Beauty of Noise (2012) [MP3|320 кб/с]<Psychedelic / Progr
 magnet:?xt=urn:btih:835B15A24E85FAE0D58CBA98647420C9D4DAAB9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +201,8 @@ magnet:?xt=urn:btih:835B15A24E85FAE0D58CBA98647420C9D4DAAB9A
 magnet:?xt=urn:btih:6896892E2FCE91FD07B852158C88786A11519DA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +226,8 @@ magnet:?xt=urn:btih:6896892E2FCE91FD07B852158C88786A11519DA2
 ```bash
 magnet:?xt=urn:btih:40DEAFB25A0AA9DC1E542277000524671A019A52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +253,8 @@ magnet:?xt=urn:btih:40DEAFB25A0AA9DC1E542277000524671A019A52
 ```bash
 magnet:?xt=urn:btih:F3E338E83BCEB9DFF43BE3496262DCCC267370E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +289,8 @@ VA - Trance Tattoe #12 (15.05.2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Tr
 magnet:?xt=urn:btih:489104C1E1770E497A4BAAFDFD56AE26B1E0584D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +314,8 @@ magnet:?xt=urn:btih:489104C1E1770E497A4BAAFDFD56AE26B1E0584D
 ```bash
 magnet:?xt=urn:btih:62AE8A0AEC305F84C90531D8BEEDE24D5E634E9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +350,8 @@ VA - Энергия Мега Dance (2012) [MP3|256 кб/с]<Pop,Dance>
 magnet:?xt=urn:btih:F486A592AFCD5D9525B823392DD5F71AA0E4411B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +384,8 @@ Double Click - Limited Edition (2012) [MP3|~252 кб/с (V0)]<Psychedelic / Prog
 magnet:?xt=urn:btih:16D9368CB98C6DD1CC135921A1A30F0E6920D0E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +413,8 @@ magnet:?xt=urn:btih:16D9368CB98C6DD1CC135921A1A30F0E6920D0E8
 ```bash
 magnet:?xt=urn:btih:F48DC44FC4C769E9B9A80DA8D4809627E9DA175A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +448,8 @@ magnet:?xt=urn:btih:F48DC44FC4C769E9B9A80DA8D4809627E9DA175A
 magnet:?xt=urn:btih:7D32122BBE7DB147BD0D8424912FFAAC6605B5E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +478,8 @@ magnet:?xt=urn:btih:7D32122BBE7DB147BD0D8424912FFAAC6605B5E4
 magnet:?xt=urn:btih:45940554EABDB4419F0AC1193EF1A0E7E0960573
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +503,8 @@ magnet:?xt=urn:btih:45940554EABDB4419F0AC1193EF1A0E7E0960573
 ```bash
 magnet:?xt=urn:btih:5FC86D896BC9CB84B395F77D27B8BA1A666C92E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +534,8 @@ magnet:?xt=urn:btih:5FC86D896BC9CB84B395F77D27B8BA1A666C92E3
 magnet:?xt=urn:btih:46108F4CD4A8BC5584C2CF2CBB16A23211073EE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +559,8 @@ magnet:?xt=urn:btih:46108F4CD4A8BC5584C2CF2CBB16A23211073EE3
 ```bash
 magnet:?xt=urn:btih:EA71C18D0C1B5FF1E10DB711EF965D84E054C784
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +595,8 @@ DJ Nike Twist - TranceWave 034 @ GTI Radio (17.05.2012) [MP3|320 кб/с]<Trance
 magnet:?xt=urn:btih:51F64831715F0B873EF2153D4F7229D3FACE4AFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +620,8 @@ magnet:?xt=urn:btih:51F64831715F0B873EF2153D4F7229D3FACE4AFB
 ```bash
 magnet:?xt=urn:btih:75EF42220CD11CF43A6CB5FC35C09E6316A6F91F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +656,8 @@ magnet:?xt=urn:btih:75EF42220CD11CF43A6CB5FC35C09E6316A6F91F
 magnet:?xt=urn:btih:E58A7FE1824223EB5828CF1D2EC89ADAF9371C5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +691,8 @@ VA - Trance Central 003 (2012) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:F61299A396B9867C750D113F349D15A2FC63117D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -674,6 +720,8 @@ magnet:?xt=urn:btih:F61299A396B9867C750D113F349D15A2FC63117D
 ```bash
 magnet:?xt=urn:btih:8B0AA6661BF7ED223DA4790925D672511B370214
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -708,6 +756,8 @@ Oomph! - Des Wahnsinns Fette Beute (2012) [MP3|192 кб/с]<Industrial Metal>
 magnet:?xt=urn:btih:91824379F77F18EE539AC87B5E1129016BB65EB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -740,6 +790,8 @@ VA - Trance Formula Vol.1 (2012) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:AD589E4CC05B11CFC7641D7CAC1F8E868B3AC36A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

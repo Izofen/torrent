@@ -20,6 +20,8 @@ The Hu - монгольская фолк-метал группа, образов
 magnet:?xt=urn:btih:6553A1F79AA5D7DA718EBF8E489A346E4646314B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ SPINDLE — это классический приключенческий бо�
 ```bash
 magnet:?xt=urn:btih:DE7759C66696F5B2166DD89495E2B8BA094E0A22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Microsoft Office 2021 — новый офисный пакет от корпор
 magnet:?xt=urn:btih:8D67E2835EB1EBE58D6E642F45C44D795E0D2618
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:8D67E2835EB1EBE58D6E642F45C44D795E0D2618
 ```bash
 magnet:?xt=urn:btih:26C0B18CA2046A908506A0DDD1B697286C978552
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Croc: Legend of the Gobbos (2025) [Multi] (1.04) Repack Necros
 magnet:?xt=urn:btih:B82B739A5AE0FF458D4BFDBD1749A1D98C89245C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Bye Sweet Carole - это уникальная хоррор-игра, сочет
 magnet:?xt=urn:btih:578E4826F574196CA6E59D6A2219235ACB84CAF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Sato — универсальный и удобный шрифт без засе
 ```bash
 magnet:?xt=urn:btih:EBA8C87D07232885AE0A1A9767A479FCBA95A89A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7.iso
 magnet:?xt=urn:btih:EF9C392A6BA0D14D30FD960E16B6C0CB2AB779F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Dirkschneider & The Old Gang - Babylon (2025) [FLAC|Lossless|image + .cue] <Heav
 magnet:?xt=urn:btih:86C0D2DD3240EA3341032B4DC7A0F2C39F0E762F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ FoliBuddy — это суперсовременный ресурс из 18 по�
 magnet:?xt=urn:btih:3C46AF2C1FE31DEA08947CFBA0CCB86B22741C23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:3C46AF2C1FE31DEA08947CFBA0CCB86B22741C23
 ```bash
 magnet:?xt=urn:btih:CE01D227396582707562D25F03636B8484A183A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ Kinland Station - LoFi (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:C571034ECB54161E5CC8564A913E2F1F5F64D195
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:C571034ECB54161E5CC8564A913E2F1F5F64D195
 ```bash
 magnet:?xt=urn:btih:DDD3499970FD0E282B4D6FCA51B6BC231D887FE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ Jon Hines - Memphis Sun (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:8F96597F8167CE711D5732D00C3439C793125B0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:8F96597F8167CE711D5732D00C3439C793125B0C
 magnet:?xt=urn:btih:6B8837065B38077E5C0A85B3A22F1109663516B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:6B8837065B38077E5C0A85B3A22F1109663516B7
 ```bash
 magnet:?xt=urn:btih:631B8F8889FD1C4060BFC018C8BD604F28CE444C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:631B8F8889FD1C4060BFC018C8BD604F28CE444C
 magnet:?xt=urn:btih:A324965C1974F6F5BBAAB295E41AD13A95D1E720
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:A324965C1974F6F5BBAAB295E41AD13A95D1E720
 ```bash
 magnet:?xt=urn:btih:C57A67EEE03E845E866414B945EEC976BB1F02CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ Windows Manager - это универсальная утилита для Micros
 magnet:?xt=urn:btih:C12C75AAC296F690F52E4ACE505407911A7C0D6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ ChatGPT-4. (М.Р. Брослав, О.А. Яблокова. сост.) | Авт�
 ```bash
 magnet:?xt=urn:btih:9387026E6AD268C326AFD1082016133A696B77D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:9387026E6AD268C326AFD1082016133A696B77D1
 magnet:?xt=urn:btih:AD7E0081492111F1D071C54BB79142B1573F605E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:AD7E0081492111F1D071C54BB79142B1573F605E
 ```bash
 magnet:?xt=urn:btih:37EBA393D7448B04FAF92CABE794ABDFDF5E837A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +613,8 @@ magnet:?xt=urn:btih:37EBA393D7448B04FAF92CABE794ABDFDF5E837A
 magnet:?xt=urn:btih:EE503C32A7EF338030661F47455D925AFDE4065F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ magnet:?xt=urn:btih:EE503C32A7EF338030661F47455D925AFDE4065F
 ```bash
 magnet:?xt=urn:btih:9217B2B2F93D9B5F74A84C67BC7D90EF86E4A7F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +665,8 @@ magnet:?xt=urn:btih:9217B2B2F93D9B5F74A84C67BC7D90EF86E4A7F5
 magnet:?xt=urn:btih:5E25031406DA55B218EC84D58439E19CDED306D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ magnet:?xt=urn:btih:5E25031406DA55B218EC84D58439E19CDED306D1
 ```bash
 magnet:?xt=urn:btih:C4E5F857C8A0597AEBE64D8FE50E0185BA9E3EEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

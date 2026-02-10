@@ -22,6 +22,8 @@ VA - Ministry of Sound - The Annual 2023 (2022) [MP3|320 Kbps] <Dance>
 magnet:?xt=urn:btih:5979E3DCC7BEC52200AFC1179076425E88B20E1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:5979E3DCC7BEC52200AFC1179076425E88B20E1F
 magnet:?xt=urn:btih:BA4CB53ED5DE4959E70190FF17CEE2A658EA9004
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:BA4CB53ED5DE4959E70190FF17CEE2A658EA9004
 ```bash
 magnet:?xt=urn:btih:575CC946E13D6B0196E5C307A7FB9F1182A09118
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Asia - Alpha (1983) Japanese Edition, Reissue, 2022, Universal [FLAC|Lossless|im
 magnet:?xt=urn:btih:FFE5567ABACC40E1625DE9EEA3A7B69054F7712B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:FFE5567ABACC40E1625DE9EEA3A7B69054F7712B
 ```bash
 magnet:?xt=urn:btih:D0FFDAF3AF7AD1DFE13A6176118839C0594A1EBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:D0FFDAF3AF7AD1DFE13A6176118839C0594A1EBB
 magnet:?xt=urn:btih:514B7BF9E3865E612AFAA9A102470E04914CDD1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:514B7BF9E3865E612AFAA9A102470E04914CDD1A
 ```bash
 magnet:?xt=urn:btih:85C2CFEE7B074D3BC1C8AFB4E4A1483C657E7DC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:85C2CFEE7B074D3BC1C8AFB4E4A1483C657E7DC3
 magnet:?xt=urn:btih:31807251100D39903964515A3B8C62C0455B9587
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:31807251100D39903964515A3B8C62C0455B9587
 ```bash
 magnet:?xt=urn:btih:352543CE7B038F5A92ACD786296C4CBD3D90F287
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ VA - 100% Club Hits 2023 (2022) [MP3|320 Kbps] <Electro, House>
 magnet:?xt=urn:btih:C0656E69ED4AEA4B14E3BAD915E9511E8CA70E3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:C0656E69ED4AEA4B14E3BAD915E9511E8CA70E3C
 ```bash
 magnet:?xt=urn:btih:C4C2D2CAC23174E791368639DDAB2BEBCA38F9A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:C4C2D2CAC23174E791368639DDAB2BEBCA38F9A7
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:C4C2D2CAC23174E791368639DDAB2BEBCA38F9A7
 ```bash
 magnet:?xt=urn:btih:670E08EEB239036E9B0A6811AFF978D018B2F02B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ Various - Pure... 70s (2013) 4 CD [OGG Vorbis|480 Kbps] <Rock, Pop>
 magnet:?xt=urn:btih:62C9E8FCBCD03F70AA1C77E9D085EE56B9579256
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ Edens Zero 2 | Нулевой Эдем [ТВ-2] [2023, TV, 25 из 25] WEBRip 72
 magnet:?xt=urn:btih:0A8DCB0672A760656B2BA8DE31D692494645DDB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:0A8DCB0672A760656B2BA8DE31D692494645DDB8
 ```bash
 magnet:?xt=urn:btih:8C367EC669C0A4E55E1323AB302C72C94B1D4C70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ Papik - Enjoy The Ride (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Pop Jazz>
 magnet:?xt=urn:btih:20EF923E39A312306451A60FACE3F33AB0F583BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ Gilles Peterson & Lionel Loueke - HH Reimagined (2022) [FLAC 2.0|44/24|tracks|WE
 magnet:?xt=urn:btih:67A4998E8D6ABE9DC8EF37D7D55DA4186F64BBA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ NASCAR Arcade Rush (2023) [En] (1.0.0.2/dlc) Scene Tenoke [Project-X Edition]
 ```bash
 magnet:?xt=urn:btih:2BD98B2BDC9A4889B1BEBC8D4A87C96B2CFCC18E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ Candlemass - Sweet Evil Sun (2022) [FLAC|Lossless|image + .cue] <Epic Doom Metal
 magnet:?xt=urn:btih:C26AD9950F5BF5FADBBB79ED51250102E42BF007
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ magnet:?xt=urn:btih:C26AD9950F5BF5FADBBB79ED51250102E42BF007
 ```bash
 magnet:?xt=urn:btih:430F31E6B87602FE830142EF68FCFAE5A3CD14F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:430F31E6B87602FE830142EF68FCFAE5A3CD14F2
 magnet:?xt=urn:btih:E9465C3E20F724CE0F78DBA38C3D5F151A3335BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ magnet:?xt=urn:btih:E9465C3E20F724CE0F78DBA38C3D5F151A3335BA
 magnet:?xt=urn:btih:048E2D0F5DE1F4388F209896760BFADBFC784A31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +640,8 @@ magnet:?xt=urn:btih:048E2D0F5DE1F4388F209896760BFADBFC784A31
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +670,8 @@ Sunny Bleau & The Moons - Breakfast Served Cold (2021) [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:C3D3B0D33E0557673B30FD29E0C2A44AC535751D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ Ismail Mahmudov | Пошаговая установка Arch Linux (2016) PCRec
 ```bash
 magnet:?xt=urn:btih:6C81E1CECC5780FC40A662BB5BD861D79C350C0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

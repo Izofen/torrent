@@ -19,6 +19,8 @@ Mobius 2024 Autumn - конференция для мобильных разра
 magnet:?xt=urn:btih:CC8E44B93CAA82DD34C77D504ED27D4C009A73E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:CC8E44B93CAA82DD34C77D504ED27D4C009A73E4
 ```bash
 magnet:?xt=urn:btih:0D04267CBA7E5A60F35AA23C7D6667D2730A7572
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ PowerShell — это мощное средство работы со сцена
 magnet:?xt=urn:btih:C6D1DDF418D61FFE1B00D5FE683ED38CAF54AF8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:C6D1DDF418D61FFE1B00D5FE683ED38CAF54AF8A
 magnet:?xt=urn:btih:1140044ADBD08CDA45928ADAF8016A59C7E4D7AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ hochuchu | Использование функции ReWire в Adobe Audition 3.
 ```bash
 magnet:?xt=urn:btih:E5865EB7CE043464A05E1FDC5CE409E7A42778B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:E5865EB7CE043464A05E1FDC5CE409E7A42778B0
 magnet:?xt=urn:btih:7664F5A5C5E22A6FB5F6C2AF2B44FCD9C62D3D03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -185,6 +197,8 @@ magnet:?xt=urn:btih:7664F5A5C5E22A6FB5F6C2AF2B44FCD9C62D3D03
 ```bash
 magnet:?xt=urn:btih:0497A069DE7607093FFE5124AD978A6B1A164496
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +230,8 @@ magnet:?xt=urn:btih:0497A069DE7607093FFE5124AD978A6B1A164496
 magnet:?xt=urn:btih:F1DD268BF93ABF360D15728BCAB4A2E699C1794B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +262,8 @@ magnet:?xt=urn:btih:F1DD268BF93ABF360D15728BCAB4A2E699C1794B
 magnet:?xt=urn:btih:514967078600F02F05D8731B23A715E9D3494BBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +287,8 @@ magnet:?xt=urn:btih:514967078600F02F05D8731B23A715E9D3494BBC
 ```bash
 magnet:?xt=urn:btih:69649CDC369D99269DCFB87D8933B55B4D70AD8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +314,8 @@ Slurm (Слёрм), Виталий Лихачев | Golang-разработчи�
 magnet:?xt=urn:btih:5D4AB79DA4620AD6ADEA4F4B089A11F8ADEEB062
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +339,8 @@ CyberYozh Academy, Евгений Ивченков, Павел Хавский | 
 ```bash
 magnet:?xt=urn:btih:7F142C0FE06FE1C37F6C0EDA29FDCA98D5B84712
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +368,8 @@ magnet:?xt=urn:btih:7F142C0FE06FE1C37F6C0EDA29FDCA98D5B84712
 magnet:?xt=urn:btih:0871FE9052B6B6B7804CA75C466FA2B37979E01A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +394,8 @@ magnet:?xt=urn:btih:0871FE9052B6B6B7804CA75C466FA2B37979E01A
 magnet:?xt=urn:btih:E58750BE7A63C31EC6813C04A25A8AAB23D6F242
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +419,8 @@ Skill Issue, Skill Issue | Подготовка к Golang собеседован
 ```bash
 magnet:?xt=urn:btih:A66903871E671AC298B7072CA74B7581166F44BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +449,8 @@ Kobezzza, Дмитрий Холстинин | Сборка во Frontend (2025) 
 magnet:?xt=urn:btih:69C524F5E907151B8EC12AFF06D4A7E15088FD12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +474,8 @@ TeachVideo | Всё о Windows® 8. Обучающий видеокурс [2012]
 ```bash
 magnet:?xt=urn:btih:3DFED575C52DDA9713F46DA47471ED62A4634931
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +503,8 @@ Windows 7 Вы можете использовать как на домашне�
 magnet:?xt=urn:btih:A5B05B5E5A36BF2464D07A4E05B273EE3401CD1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +528,8 @@ karpov.courses, Виктор Кузнецов | Инженер данных (202
 ```bash
 magnet:?xt=urn:btih:A3691110C672514378FC929056562FD022B395EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +556,8 @@ Hard ML - это не стандартный курс по машинному о
 ```bash
 magnet:?xt=urn:btih:B7DEEBC4E47CAF07821E6284F60F23570C6E0611
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +586,8 @@ magnet:?xt=urn:btih:B7DEEBC4E47CAF07821E6284F60F23570C6E0611
 magnet:?xt=urn:btih:45841B71233CCCB46F94A66EFFD572B6AC1F457F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +611,8 @@ magnet:?xt=urn:btih:45841B71233CCCB46F94A66EFFD572B6AC1F457F
 ```bash
 magnet:?xt=urn:btih:57EE3802ADB239169880AC6D65753A7B29450FBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +639,8 @@ ML-инженер - это специалист, который находитс
 ```bash
 magnet:?xt=urn:btih:2BAB2EA79A752FE3473EA18E685C2FDCC3F8A9E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +669,8 @@ Udemy, Brad Traversy | Next.js From Scratch 2024 (2024) WEB-DL [EN]
 magnet:?xt=urn:btih:0C566BB65854A36B9D0C128CDFEF45634BE125DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +698,8 @@ Podlodka | Podlodka PHP Crew #3 (2023) WEB-DL [RU]
 magnet:?xt=urn:btih:CBABB533A335350096CE213C4A199D5736A6A56F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -674,6 +724,8 @@ AlgoExpert | Become an Algorithms Expert (2024) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:853A3F5B97E75EB383631FC6073821EA9D5FDA42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

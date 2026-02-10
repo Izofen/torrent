@@ -22,6 +22,8 @@ VA - German Top 100 Single Charts 19.01.2024 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:56432D811AC03F5FCA272F60931C4716B7A49403
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Лучшие песни Love Radio за 2023 год (2024) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:277A7B756BB80E53F75D779F02FAABE81E6EECDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Disco Holiday 70-80's (2024) [MP3|320 Kbps] <Electronic, Pop, Rock, Disco>
 magnet:?xt=urn:btih:95430BE12AAA2ACA05B4FC563E0101D919C3FA84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Vocal Morning Lounge Mix (2025) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:5134912E43DA3AD2BC99554B07D6CC328E54B79C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Музыка для машины Vol.60 (2023) [MP3|320 Kbps] <Pop, Dance, 
 magnet:?xt=urn:btih:3031C35057197BD4C36570067FA50C7AAFF96D6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Свежий Русский Хит от ALEXnROCK часть 14 (2023) [MP3
 ```bash
 magnet:?xt=urn:btih:83B119465197F0628749DF523492FBCE84905399
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Музыка для машины Vol.58 (2023) [MP3|320 Kbps] <Pop, Dance, 
 magnet:?xt=urn:btih:536470030D4B013B6E266A2EFBA30F652BAEB7E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Elyanna - Compilation (2023) [MP3|320 Kbps] <Pop, Alternative Pop>
 ```bash
 magnet:?xt=urn:btih:978367F42AEEDD7CE3B938FE4B2192B5DADD1C5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Emma Peters - Compilation (2023) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:8818A3920999E942A3E2AF80ED906B0AEC5A7810
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Музыка для машины Vol.54 (2023) [MP3|320 Kbps] <Pop, Dance, 
 ```bash
 magnet:?xt=urn:btih:ED604AEC421FAE7AC4F5A5CDD1E09B241586BD3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Музыка для машины Vol.52 (2023) [MP3|320 Kbps] <Pop, Dance, 
 magnet:?xt=urn:btih:4B49E8366E176ACAB44549115404E3729D00ED07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Музыка для машины Vol.53 (2023) [MP3|320 Kbps] <Pop, Dance, 
 ```bash
 magnet:?xt=urn:btih:45B8675E2A68F4550527BE7AA67752B0F4786B4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ LOBODA - This is LOBODA (2023) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:1241258453065AE5DB9D3242170245E6BE45860A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - German Top 100 Single Charts 08.12.2023 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:C996DE0F9A46FB3709901F2BF225162D2C97784C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +434,8 @@ VA - Весенняя волна хитов к празднику (2012) [MP3|25
 magnet:?xt=urn:btih:28C2E87A4A1D8A4A77DA8B655C7CBDAB14F0A473
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +469,8 @@ VA - Моя Прекрасная Леди (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:764562329C13134AB7EC28B98D67B144DED5852B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +497,8 @@ VA - Fresh & Chill (2022) [MP3|320 Kbps] <Pop, Chillout>
 ```bash
 magnet:?xt=urn:btih:F3EB8DFB4E417C328FE501F0AD88BF8DDEFCFFDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +533,8 @@ VA - Офигенное Радио (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:895CDA71D4DCCA649394CA92CDC7624D4949F515
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +568,8 @@ VA - Лучший Top-чарт (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:8923AD2F0B746E79CB97C62BBD6B942A89087B98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +597,8 @@ VA - The Top 100 Most Played꞉ Pop (2022) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:001C231E7CECF8FA3311CA65109B110BF0211375
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +625,8 @@ VA - Музыка для машины Vol.50 (2023) [MP3|320 Kbps] <Pop, Dance, 
 ```bash
 magnet:?xt=urn:btih:A25B1ECC75FC58BF8CA91FB8B00504FA03E4A87F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +661,8 @@ VA - Союз Зимний (2012) [MP3|256 кб/с]<Рор>
 magnet:?xt=urn:btih:78951DB74AE1B9309128417F54281637F3232E58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +695,8 @@ VA - Заряд Новогодних Русских Хитов (2012) [MP3|256 �
 ```bash
 magnet:?xt=urn:btih:B17397500130EC75D7A6EFEBAB12742C9BA36C61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -685,6 +731,8 @@ VA - Christmas Party Lights (2012) [MP3|256 кб/с]<Pop, Vocal, Dance>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -709,6 +757,8 @@ VA - Радио Шторм - NeРусский Шторм - 84 (2012) [MP3|128-32
 ```bash
 magnet:?xt=urn:btih:5042476ED01B6ADED632E5C07B1FCA0AC846B3B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -736,6 +786,8 @@ Subbota - This Is Subbota (2023) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:AEAA8CE4A4AE332E509450B122CBDA8A923EE24B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

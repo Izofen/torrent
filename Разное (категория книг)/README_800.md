@@ -1,3 +1,30 @@
+###  Публикация: 1842896   (1049068) от 17.12.2025
+
+Людмила Мартьянова | Профайлинг  в действии. Характеристика собеседника за 10 минут (2023) [EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1049068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Существуют различные типы людей, и важно научиться их распознавать. Шаг за шагом анализируя тех, кто встречается на вашем пути, вы сможете защитить себя и извлечь выгоду из любой ситуации. Книга, которую вы держите в руках, поможет прокачать навыки в общении, разобраться в ролях и личностях, исследовать мотивы и даст эффективные инструменты для работы с людьми.
+ (   Читать дальше...   )Жанр: Саморазвитие / личностный ростИздательство: АСТФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A3FE62FE2DEEBB0CD57F5566CEDA870D20C38EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1843085   (1049172) от 18.12.2025
 
 Марк Солмз, Оливер Тёрнбулл | Мозг и внутренний мир. Введение в нейробиологию субъективного переживания (2023) [PDF]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:8B8AA8A6335E2B2A25F23F411B24E8A711F62249
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:8B8AA8A6335E2B2A25F23F411B24E8A711F62249
 magnet:?xt=urn:btih:EEE0C5B02854B84CFCC69B57686F5EC690C59B81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +98,8 @@ magnet:?xt=urn:btih:EEE0C5B02854B84CFCC69B57686F5EC690C59B81
 ```bash
 magnet:?xt=urn:btih:9ACA2A8203DE1679D94DA064127B74C42AAF5361
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +127,8 @@ magnet:?xt=urn:btih:9ACA2A8203DE1679D94DA064127B74C42AAF5361
 magnet:?xt=urn:btih:13B025C2BDEEC8937226BCDBCF34931942DFEA9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +152,8 @@ magnet:?xt=urn:btih:13B025C2BDEEC8937226BCDBCF34931942DFEA9A
 ```bash
 magnet:?xt=urn:btih:1665EC1BE8B0A558838491A90A7E8DEF393E9497
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +179,8 @@ magnet:?xt=urn:btih:1665EC1BE8B0A558838491A90A7E8DEF393E9497
 magnet:?xt=urn:btih:1FAE5058317A4AF7ECDBD483A1659C4A11A4CCBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +204,8 @@ magnet:?xt=urn:btih:1FAE5058317A4AF7ECDBD483A1659C4A11A4CCBB
 ```bash
 magnet:?xt=urn:btih:2646AD64BB1E56AF82B3234246D07D5405B050B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +233,8 @@ magnet:?xt=urn:btih:2646AD64BB1E56AF82B3234246D07D5405B050B2
 magnet:?xt=urn:btih:41273867895D33877993DD73EACA50695954CE26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +258,8 @@ magnet:?xt=urn:btih:41273867895D33877993DD73EACA50695954CE26
 ```bash
 magnet:?xt=urn:btih:CC76A87C1B9F3AF9F8EBE149AED315BE73BC0DC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +286,8 @@ magnet:?xt=urn:btih:CC76A87C1B9F3AF9F8EBE149AED315BE73BC0DC8
 magnet:?xt=urn:btih:D2EA31895D74C0A26ADC4E528B72BACC3B019B76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +311,8 @@ magnet:?xt=urn:btih:D2EA31895D74C0A26ADC4E528B72BACC3B019B76
 ```bash
 magnet:?xt=urn:btih:C0557183A41FA144708763656B955A4E65228DD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +339,8 @@ magnet:?xt=urn:btih:C0557183A41FA144708763656B955A4E65228DD9
 magnet:?xt=urn:btih:53B65C2633EAA201FF92E9FAFC0C2D618A562908
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +364,8 @@ magnet:?xt=urn:btih:53B65C2633EAA201FF92E9FAFC0C2D618A562908
 ```bash
 magnet:?xt=urn:btih:5420E4A6E68F686988116AB142D8C3CBBE59D2FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +391,8 @@ My.mission | Книга рецептов к Новому году (2025) [PDF]
 magnet:?xt=urn:btih:2E8A92024BA21BEEF7734A3A5F18887FB7A17B7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +416,8 @@ magnet:?xt=urn:btih:2E8A92024BA21BEEF7734A3A5F18887FB7A17B7F
 ```bash
 magnet:?xt=urn:btih:0481BB7F24EE1727C5F9B6A4CA4F417ABCFD3659
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +443,8 @@ magnet:?xt=urn:btih:0481BB7F24EE1727C5F9B6A4CA4F417ABCFD3659
 magnet:?xt=urn:btih:6A6B19F78A5A4E8B3E9A14AAAAE94743284CAC0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +468,8 @@ magnet:?xt=urn:btih:6A6B19F78A5A4E8B3E9A14AAAAE94743284CAC0A
 ```bash
 magnet:?xt=urn:btih:9F2ED2A237C28EA0888E4C556FC907D28A88FB93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +496,8 @@ magnet:?xt=urn:btih:9F2ED2A237C28EA0888E4C556FC907D28A88FB93
 magnet:?xt=urn:btih:D0A022337949EC6AB83AA2FA0D6500DB0A8474DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +521,8 @@ magnet:?xt=urn:btih:D0A022337949EC6AB83AA2FA0D6500DB0A8474DE
 ```bash
 magnet:?xt=urn:btih:8055009FB06FE2B3EDAFF22A0AB1DB1B2970A4C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +548,8 @@ magnet:?xt=urn:btih:8055009FB06FE2B3EDAFF22A0AB1DB1B2970A4C5
 magnet:?xt=urn:btih:72B611B869674BFCE169C0831BC6A8EFEDBA112C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +573,8 @@ magnet:?xt=urn:btih:72B611B869674BFCE169C0831BC6A8EFEDBA112C
 ```bash
 magnet:?xt=urn:btih:343A750E89549DB251EE153F1D483AE9F8F5F92E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +600,8 @@ magnet:?xt=urn:btih:343A750E89549DB251EE153F1D483AE9F8F5F92E
 magnet:?xt=urn:btih:21E2826A8647F682295FD322A6A84AF8B74DC08C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +625,8 @@ magnet:?xt=urn:btih:21E2826A8647F682295FD322A6A84AF8B74DC08C
 ```bash
 magnet:?xt=urn:btih:ADA6AF2A989A284B4016D6386D92F329739050BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +652,8 @@ magnet:?xt=urn:btih:ADA6AF2A989A284B4016D6386D92F329739050BD
 ```bash
 magnet:?xt=urn:btih:6E2D11B7C289C2C2A673C7A5D1F09D89F7005877
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,30 +681,7 @@ magnet:?xt=urn:btih:6E2D11B7C289C2C2A673C7A5D1F09D89F7005877
 magnet:?xt=urn:btih:FD9C00EBAE44B834DAEA860A206749051B1365FF
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845190   (1050550) от 31.12.2025
-
-Мария Макаренко | Путь императрицы. Как получать желаемое и позволить себе роскошную жизнь (2025) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему одни девушки купаются в роскоши и внимании, могут с удовольствием жить за чужой счет, принимая дорогие подарки, а другим даже в праздники не дарят цветы? Как стать той самой, незабываемой женщиной, ради которой он готов на все?
-В своей дерзкой и провокационной книге психолог Мария Макаренко делится секретами построения отношений, о которых мечтает каждая. (   Читать дальше...   )Жанр: Саморазвитие, личностный ростИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CBA10F494F96D798B8CC62399CF6BB56C3AA2A8
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

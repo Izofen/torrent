@@ -21,6 +21,8 @@ Udemy, Yasar VURDEM | The Ultimate Digital Drawing Class: Portrait Paintings (20
 magnet:?xt=urn:btih:9DA51F48B50D224C788356211FD4ECF6BCBD1EA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:9DA51F48B50D224C788356211FD4ECF6BCBD1EA5
 ```bash
 magnet:?xt=urn:btih:852F9A325834BB64965F739C893AE30F4A4147C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ ByClick Downloader (бывший YouTube By Click) - отличный и удо�
 magnet:?xt=urn:btih:BAE4570D92191DE725BEDA3D76D4288EF85A1BC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ American Truck Simulator (2016) [Ru/Multi] (1.55.2.1/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:0894E408FD69F37B10B4B83CAC50AF9B3A95A60B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ AnyDesk 9.5.8 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:52DD55988166AE8C5F2096F2A13E96ADF5A0FCEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:52DD55988166AE8C5F2096F2A13E96ADF5A0FCEE
 ```bash
 magnet:?xt=urn:btih:132C5F15CD8EA309CBD5988878769D32E629F8B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Udemy, Marco Paoletta | Godot 4 Fast Lane: Game Development for Absolute Beginne
 magnet:?xt=urn:btih:9A48B196619BB1690EE678A036E4D532AEA59565
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:9A48B196619BB1690EE678A036E4D532AEA59565
 ```bash
 magnet:?xt=urn:btih:E111BB093A0B63B523FE7083B4AED688BC0C51D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Olive Yong | Kawaii Kitties - Learn How to Draw 75 Cats in All Their Glory (Volu
 magnet:?xt=urn:btih:F6B645DE9DF9D5B4E3F9E4127AD4E3E6695B3810
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:F6B645DE9DF9D5B4E3F9E4127AD4E3E6695B3810
 ```bash
 magnet:?xt=urn:btih:0CE4ECB84A88A69F67E01C2FD2CAD9C8F1E46C08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:0CE4ECB84A88A69F67E01C2FD2CAD9C8F1E46C08
 magnet:?xt=urn:btih:12EDB52E313E47D486D17E730EB7201029AC043B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:12EDB52E313E47D486D17E730EB7201029AC043B
 ```bash
 magnet:?xt=urn:btih:5E2E0A18FDD1CC99418CBB713C6E4EDBD2F56D42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:5E2E0A18FDD1CC99418CBB713C6E4EDBD2F56D42
 magnet:?xt=urn:btih:181A98AE16F31D7338712A935B30A89C8D66C796
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:181A98AE16F31D7338712A935B30A89C8D66C796
 magnet:?xt=urn:btih:88DAED8FB564F0B943B2F2F245488CAFDD308CC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ Union of Gnomes погружает вас в причудливую револю
 ```bash
 magnet:?xt=urn:btih:1185E36E390604E2D4E21095F0079B6945284F18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:1185E36E390604E2D4E21095F0079B6945284F18
 magnet:?xt=urn:btih:1943C4BD7745C895A817E05F8EB46F3EB16D3E1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:1943C4BD7745C895A817E05F8EB46F3EB16D3E1D
 ```bash
 magnet:?xt=urn:btih:46C48395B6BD5C4AFE3C2CDAC8C0FAF53B123BF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:46C48395B6BD5C4AFE3C2CDAC8C0FAF53B123BF2
 magnet:?xt=urn:btih:9BCA6CA0200502585CB9F1D7D65E8249C66055EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ Everdeep Aurora (2025) [Ru/Multi] (1.1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:143935606AC8FAF6D8CD85A62EDDADBFECDA0F28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:143935606AC8FAF6D8CD85A62EDDADBFECDA0F28
 magnet:?xt=urn:btih:ECB44A7DEA38348778A0B523FC1BF23C91F518D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:ECB44A7DEA38348778A0B523FC1BF23C91F518D5
 ```bash
 magnet:?xt=urn:btih:998E17E0A53CF7AB5078D02F20FE8A4E01E0B6F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:998E17E0A53CF7AB5078D02F20FE8A4E01E0B6F9
 magnet:?xt=urn:btih:3EE69649893B09C0C848295BA6220E9AF474AE5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:3EE69649893B09C0C848295BA6220E9AF474AE5A
 ```bash
 magnet:?xt=urn:btih:81E2C73D18E2A869778D96D7EA502F20F5C98413
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:81E2C73D18E2A869778D96D7EA502F20F5C98413
 magnet:?xt=urn:btih:03AAF4ED4B20FD8FCC9DC6EA943CE0FA9710F6FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ Acrobat Pro — это полностью обновленная настоль�
 magnet:?xt=urn:btih:27AC0B6B4322428F0E6CFE87AB81C71AA7F01536
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Blacksmith Master (2025) [Ru/Multi] (0.8.147) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:E92800A221450F2D27C202E6E966B610F3BD5873
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

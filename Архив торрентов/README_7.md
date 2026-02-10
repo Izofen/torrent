@@ -19,6 +19,8 @@ SoftMaker Office Professional 2024 rev. S1226.0817 RePack (& portable) by KpoJIu
 magnet:?xt=urn:btih:8DD37F800EA9EC35825F6173D7EC1620E2885BE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:8DD37F800EA9EC35825F6173D7EC1620E2885BE3
 ```bash
 magnet:?xt=urn:btih:7956962771706E3CCB81080316B55D9608AEAA81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ AnyDesk 9.6.0 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:D0EA020567CED6DA18B9347EDFF5F58525F41746
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:D0EA020567CED6DA18B9347EDFF5F58525F41746
 ```bash
 magnet:?xt=urn:btih:C7E7D12A60C0A01FCA0D8E1F5B836A9A77D5BD22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:C7E7D12A60C0A01FCA0D8E1F5B836A9A77D5BD22
 magnet:?xt=urn:btih:B4A377444C91439495C942CB0DBB4A3B373DA267
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Macrorit Partition Expert Unlimited Edition – предоставляет мо�
 magnet:?xt=urn:btih:405C81715F9EB1824B6A569A92A5DF98B998A813
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:B9D3FB9757001CC245FBD6727591478D614A7B7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Purvpn 8.9 [En/Farsi]
 magnet:?xt=urn:btih:F9C607A09B2DBD8B96127FBEBBE477B548252AE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:F9C607A09B2DBD8B96127FBEBBE477B548252AE9
 ```bash
 magnet:?xt=urn:btih:0343597BDE672CAFC7F87D1A6481F25641CD5C48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:0343597BDE672CAFC7F87D1A6481F25641CD5C48
 magnet:?xt=urn:btih:F3A558641ED4BE997D3E841F198003DCDCEFBC49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ IsMyLcdOK - небольшая бесплатная программа для о
 ```bash
 magnet:?xt=urn:btih:396D2D9BB0D9EB7259E3AAF829EC9ACCDD7B307F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ VueScan - программа предназначена для замены ст
 magnet:?xt=urn:btih:A74BCEE874CA6DB482F7C6A247EDC24529624D37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Download Master эффективно решает 3 главных пробле�
 ```bash
 magnet:?xt=urn:btih:427127D7786AB960E71C4A89A6F58EEF9541E2B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ VIMAGE - AI Photo Animation v5.1.10 Mod by PieMods [En]
 magnet:?xt=urn:btih:E47FD0C2A345C54CD4C9626E2BA36AB1961B9D02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ FacePic — приложение AI Face, приложение для легко
 magnet:?xt=urn:btih:BD86BCB8B9D47AA0E107CA07FF2F8B96E50FC795
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Hard Disk Sentinel Pro — отличная программа для монит
 ```bash
 magnet:?xt=urn:btih:0A587C8606D420F0B1D01318AC221279D2BABAC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ iTubeGo YouTube Downloader 10.8.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:285500CF11984CCBD0EAF2AF6BC2035C4A4C11A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ PDF-XChange Pro — универсальное решение для работ�
 ```bash
 magnet:?xt=urn:btih:2305EA59FB550BF4F4C742A7213B88145C999249
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ Bandicam поможет вам сделать запись игры с высо�
 magnet:?xt=urn:btih:B0A9955613E413AAF3472D14E38403AE43E18D29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ PDF-XChange Editor — программа для просмотра, редак�
 ```bash
 magnet:?xt=urn:btih:C4F41A4435E04073C21B193E3EDD68CCED8898C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ StartAllBack - привычная для нас программа, котора
 magnet:?xt=urn:btih:B48D1C86BD7999853640D1A009A9446F83CDDF48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ magnet:?xt=urn:btih:B48D1C86BD7999853640D1A009A9446F83CDDF48
 ```bash
 magnet:?xt=urn:btih:2C73E06E14B44A2CCD5D72599BCB79569CFFB1F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ iDownerGo – это приложение для загрузки мультим
 magnet:?xt=urn:btih:51EDE70249010AEAE5EBB10BC9E13AE897F95875
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:37A44A255F98D40E751131F7D6F34E6E41D4ADF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ MyLanViewer — программа для сканирования и монит
 magnet:?xt=urn:btih:362CC813372C7E6A0327F3EB41B00C1200E9D799
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Imagine - это бесплатный просмотрщик изображен�
 ```bash
 magnet:?xt=urn:btih:99DF891F26D249A1C88971B68B7F1809328644D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

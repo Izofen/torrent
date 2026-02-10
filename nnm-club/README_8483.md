@@ -22,6 +22,8 @@ Dan Wande - Highway 45 (2023) [MP3|320 Kbps] <Hard'n'Heavy>
 magnet:?xt=urn:btih:4C563F5B9983FB19511C4EBA6332A323BFB80104
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:4C563F5B9983FB19511C4EBA6332A323BFB80104
 ```bash
 magnet:?xt=urn:btih:3F4EC9921B3F8025EB6CCD4BF06324F3A41655D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Ghostmeat - Witch's Familiar (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, P
 magnet:?xt=urn:btih:931D6DF4E8A2A543D9B3386201BDB283047FD87F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Viikate - Askel (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:A244FB4D32DEF3E3E7E5CA1D73CE23CD2AA67BF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Isaak - Hey (2023) [MP3|320 Kbps] <Stoner Metal, Rock>
 magnet:?xt=urn:btih:BE4527828C7B5EC83170B249DECC6D84311EE17C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ Solstafir - Kold (2009) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:0C6620016D5B6D3C5D76A81A39745505693EE64C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ Vatican Spectrum - Ave Satan (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 magnet:?xt=urn:btih:C10C502A487EAE3DF71C7E357745AD93BF56FDBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ Weedzard - Weedzard (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Sludge, Doom M
 ```bash
 magnet:?xt=urn:btih:2763AF82541D4D7B83CA18B958EE022292EC0E18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ Tytus - Roaming In Despair (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy, Speed
 magnet:?xt=urn:btih:4EA1DBF085CDD11C377EB19F65976ED1A0CB36C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ Korova - A Kiss in the Charnel Fields (1995) [FLAC|Lossless|image + .cue] <Avant
 ```bash
 magnet:?xt=urn:btih:251725A6540DD3342FAE4C4CF4F978B90164DDC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ Kambrium - Dawn of the Five Suns (2018) [FLAC|Lossless|image + .cue] <Symphonic 
 magnet:?xt=urn:btih:A4014FF4F444595F1EF54A7A4F27830875C1280A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +334,8 @@ magnet:?xt=urn:btih:A4014FF4F444595F1EF54A7A4F27830875C1280A
 ```bash
 magnet:?xt=urn:btih:06F51ABA9C80AE4DB2F0CB2AB3590AAEBD7E8E7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +361,8 @@ magnet:?xt=urn:btih:06F51ABA9C80AE4DB2F0CB2AB3590AAEBD7E8E7A
 magnet:?xt=urn:btih:0C91EF18F96BA9527EB033394EA04D32EB1C3F48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +386,8 @@ magnet:?xt=urn:btih:0C91EF18F96BA9527EB033394EA04D32EB1C3F48
 ```bash
 magnet:?xt=urn:btih:848C6581F625044A2260AA114B43F1D3529AD06E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +413,8 @@ magnet:?xt=urn:btih:848C6581F625044A2260AA114B43F1D3529AD06E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +438,8 @@ magnet:?xt=urn:btih:848C6581F625044A2260AA114B43F1D3529AD06E
 ```bash
 magnet:?xt=urn:btih:239BDD4FAD862E969D8EC2D15EF2F836C848BC4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +465,8 @@ magnet:?xt=urn:btih:239BDD4FAD862E969D8EC2D15EF2F836C848BC4F
 magnet:?xt=urn:btih:F6CA5920CB45B6609756F50DC7A3881764A7E355
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +491,8 @@ magnet:?xt=urn:btih:F6CA5920CB45B6609756F50DC7A3881764A7E355
 ```bash
 magnet:?xt=urn:btih:19EED7AF237AF5A6C318E95791B4CC12E1625A47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +520,8 @@ Stepik, Руслан Шишмарев | C# WPF. Создание оконног�
 magnet:?xt=urn:btih:80B490536FE8BC8EF6F62CE75BB5BC808426869B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +545,8 @@ magnet:?xt=urn:btih:80B490536FE8BC8EF6F62CE75BB5BC808426869B
 ```bash
 magnet:?xt=urn:btih:D1AB93BD7E680E1AC4C2C3B71B415283C9DEB32B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +572,8 @@ magnet:?xt=urn:btih:D1AB93BD7E680E1AC4C2C3B71B415283C9DEB32B
 magnet:?xt=urn:btih:682666B4D70C4FEF9522AF580B206A62C980043F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +597,8 @@ magnet:?xt=urn:btih:682666B4D70C4FEF9522AF580B206A62C980043F
 ```bash
 magnet:?xt=urn:btih:57096A59340C5AFE12B70E33E7FBB3C4B4885B18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +624,8 @@ Road 96: Mile  (приквел к Road 96) — это сюжетная игра 
 magnet:?xt=urn:btih:ED80CA3831A59F5063847AA2552400501A4C9375
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ magnet:?xt=urn:btih:ED80CA3831A59F5063847AA2552400501A4C9375
 magnet:?xt=urn:btih:BC98285826C4E6F0F67F4FF1AED7DD97C6E42A95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ magnet:?xt=urn:btih:BC98285826C4E6F0F67F4FF1AED7DD97C6E42A95
 ```bash
 magnet:?xt=urn:btih:78CF4236F3CCA7272F7F8DC02A89E61426E8E694
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -654,6 +704,8 @@ DaSchool, Анна Данилова | English start. Интенсив англи
 ```bash
 magnet:?xt=urn:btih:0937A11D8B3A02B28D2069993974DE035EC5971C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

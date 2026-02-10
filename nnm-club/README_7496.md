@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:BED1ADBED61D3D7091799C042C47C17FD132BCE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:BED1ADBED61D3D7091799C042C47C17FD132BCE2
 ```bash
 magnet:?xt=urn:btih:006DC300F698256D31A12B07E2D85C9AC7D5342C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Windows 10 (v20h2) x64 PRO by KulHunter v1.3 (esd) [En]
 magnet:?xt=urn:btih:0B2EBA157133638D7CFAB1AE6B866704B73F70A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ Fun Girl - The Album (2022) [FLAC|Lossless|image + .cue] <Italo-Disco>
 magnet:?xt=urn:btih:0C3735B8EFF3826820D83C2E2B0947C22789A407
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:0C3735B8EFF3826820D83C2E2B0947C22789A407
 ```bash
 magnet:?xt=urn:btih:6F047E2361CD26219F707D2C9827CACDA22EF6A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ TwistedBrush Pro Studio - программа для художников. Она
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ TwistedBrush Pro Studio - программа для художников. Она
 ```bash
 magnet:?xt=urn:btih:6D229CA1F7B26F61C333CEC02738665F18666D59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ Livio & Roby - Phantom Circle (2016) Desolat [FLAC|Lossless|WEB-DL|tracks] <Tech
 magnet:?xt=urn:btih:E067B77E0E24E868E4A838CA988323A592AF01F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:E067B77E0E24E868E4A838CA988323A592AF01F9
 ```bash
 magnet:?xt=urn:btih:2635091CF71B96639BFA25F081821AFC2D1FE34B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:2635091CF71B96639BFA25F081821AFC2D1FE34B
 magnet:?xt=urn:btih:CE759A41C6E11818A1B01F232B5EB2E2797B72AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:CE759A41C6E11818A1B01F232B5EB2E2797B72AA
 magnet:?xt=urn:btih:695562E4E438D4FF20838FA6450C649B73F1C9A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:695562E4E438D4FF20838FA6450C649B73F1C9A2
 magnet:?xt=urn:btih:D4F1A75A46D4C44EB46B586401FE33B926A1511A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:D4F1A75A46D4C44EB46B586401FE33B926A1511A
 ```bash
 magnet:?xt=urn:btih:3FE8BAFDF50E09B7CF43D97038C268D64A17618E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ Oscar Pettiford - Lost Tapes: Germany 1958/1959 (2013) SWR Music [FLAC|Lossless|
 magnet:?xt=urn:btih:3E00F1FAE8847837AA1111A29EFB0CC538B708AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ magnet:?xt=urn:btih:3E00F1FAE8847837AA1111A29EFB0CC538B708AC
 magnet:?xt=urn:btih:B5E3B36378FB068BC1FC771E7CC7BBC2D94368A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ Dispatcher (2015) [Ru/En] (1.00/upd2) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:1A40149FFBFD020C3209101C9B8F2A439D6CD28D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +456,8 @@ magnet:?xt=urn:btih:1A40149FFBFD020C3209101C9B8F2A439D6CD28D
 magnet:?xt=urn:btih:1824FAE48D68B825B3D80F5FD41F2621B5F79F2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ magnet:?xt=urn:btih:1824FAE48D68B825B3D80F5FD41F2621B5F79F2B
 magnet:?xt=urn:btih:AF346D12BBE5BDDBF027AC4C500DA2DB3127BF63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:AF346D12BBE5BDDBF027AC4C500DA2DB3127BF63
 ```bash
 magnet:?xt=urn:btih:4120282576EEB505573F909B14EC1D50E5A22C60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ Ryan Kisor - Battle Cry (1998) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <P
 ```bash
 magnet:?xt=urn:btih:6DAA067743C3349A2921BCAAEFE05AF653CFDDDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +569,8 @@ magnet:?xt=urn:btih:6DAA067743C3349A2921BCAAEFE05AF653CFDDDD
 magnet:?xt=urn:btih:C4564FCC73D0056AA767194FB3376CB9E0359302
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +594,8 @@ Windows 7 SP1 x86 x64 USB-DVD StartSoft 88-91 2015 Final [Ru]
 ```bash
 magnet:?xt=urn:btih:519ACD3A23E69BFF0C161E805A8C67837DCD291F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +621,8 @@ magnet:?xt=urn:btih:519ACD3A23E69BFF0C161E805A8C67837DCD291F
 magnet:?xt=urn:btih:DC90E246523E3D8B2ABD13BA9FF1807974A38B08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +647,8 @@ Tornado Outbreak (2009) [PS3] [EUR] 2.76 [Cobra ODE / E3 ODE PRO ISO] [License] 
 magnet:?xt=urn:btih:8DFCF164FC09EA048EDBC469E2C2561AC953B3CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +672,8 @@ magnet:?xt=urn:btih:8DFCF164FC09EA048EDBC469E2C2561AC953B3CE
 ```bash
 magnet:?xt=urn:btih:3CEA1438AC93C60A22CE4B5F7ED581889B09F1D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -651,6 +701,8 @@ Captain Black Beard - 6 Albums (2011-2022) [MP3|320 Kbps] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:597ACE382BD1973123CDA4DFB769B5FFBE864779
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

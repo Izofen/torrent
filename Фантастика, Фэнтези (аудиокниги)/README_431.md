@@ -1,3 +1,31 @@
+###  Публикация: 1400146   (720922) от 04.08.2020
+
+Роман Злотников, Даниил Калинин | Ярость обреченных (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Армия Рогоры уничтожена, Когорд мертв, а его наследники скрестили клинки в споре, кому выжить и повести горстку уцелевших…
+Республика победила?
+Но все меняется в одночасье: в Рогору вторгается огромный корпус Заурского султаната – грозного хищника Востока. Смертельная опасность нависла не только над разбитым королевством, но и над Республикой, и вчерашние враги вынуждены (   Читать дальше...   )Жанр: Боевая фантастика, Героическая фантастикаПродолжительность: 08:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA5CBA553EDD77F0877EA3628D709ABE5D2C72D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218674   (721149) от 10.04.2018
 
 Вадим Панов | Зеленый гамбит (2018) [MP3]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:A338AF82792D3E8FA1B6652F37882250D2B75731
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +73,8 @@ magnet:?xt=urn:btih:A338AF82792D3E8FA1B6652F37882250D2B75731
 magnet:?xt=urn:btih:295401707530CBBA8FD6C71D88703A9C1349A305
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +98,8 @@ magnet:?xt=urn:btih:295401707530CBBA8FD6C71D88703A9C1349A305
 ```bash
 magnet:?xt=urn:btih:3D351900FB67ADBC790DA5C5A3AEDE19988C2B90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +125,8 @@ magnet:?xt=urn:btih:3D351900FB67ADBC790DA5C5A3AEDE19988C2B90
 magnet:?xt=urn:btih:FE743005F85C7CF642ADC8261930C02DBD264F80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +150,8 @@ magnet:?xt=urn:btih:FE743005F85C7CF642ADC8261930C02DBD264F80
 ```bash
 magnet:?xt=urn:btih:F9330FC68296362C2BFEA09E10A85810CA38B74B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +177,8 @@ magnet:?xt=urn:btih:F9330FC68296362C2BFEA09E10A85810CA38B74B
 magnet:?xt=urn:btih:2E7EE46709F0E50DE6882C61697CBED43B0E038B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +202,8 @@ magnet:?xt=urn:btih:2E7EE46709F0E50DE6882C61697CBED43B0E038B
 ```bash
 magnet:?xt=urn:btih:20C2E2FF73972ED59A4FA83FC22BCAAD8A9B3CEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +229,8 @@ magnet:?xt=urn:btih:20C2E2FF73972ED59A4FA83FC22BCAAD8A9B3CEB
 magnet:?xt=urn:btih:BE9DA636A34FF6CBCCD690D4FA20F1A59A196849
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +254,8 @@ magnet:?xt=urn:btih:BE9DA636A34FF6CBCCD690D4FA20F1A59A196849
 ```bash
 magnet:?xt=urn:btih:79C65F5E492B93D893CBDF4BE69B02BCEC2184A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +281,8 @@ magnet:?xt=urn:btih:79C65F5E492B93D893CBDF4BE69B02BCEC2184A1
 magnet:?xt=urn:btih:28AC419E6F5EC92BAA627F68A34F0341F1B0C14F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +306,8 @@ magnet:?xt=urn:btih:28AC419E6F5EC92BAA627F68A34F0341F1B0C14F
 ```bash
 magnet:?xt=urn:btih:6838400CDE746787A3D1CAEBE0CC00F9F0DE38CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +333,8 @@ magnet:?xt=urn:btih:6838400CDE746787A3D1CAEBE0CC00F9F0DE38CC
 magnet:?xt=urn:btih:789A7FD22191986A2143FA00668C3A519D431C52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +358,8 @@ magnet:?xt=urn:btih:789A7FD22191986A2143FA00668C3A519D431C52
 ```bash
 magnet:?xt=urn:btih:3F6D46CD910F2F3FFED54623D935012C89F50837
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +388,8 @@ magnet:?xt=urn:btih:3F6D46CD910F2F3FFED54623D935012C89F50837
 magnet:?xt=urn:btih:52217ED37ACD2A625B95A99D2D6BE1445C4ED249
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +415,8 @@ magnet:?xt=urn:btih:52217ED37ACD2A625B95A99D2D6BE1445C4ED249
 magnet:?xt=urn:btih:4E6354C67CAD239A484684B90397BEDB1A4629C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +441,8 @@ magnet:?xt=urn:btih:4E6354C67CAD239A484684B90397BEDB1A4629C1
 magnet:?xt=urn:btih:8DE8C394D68EFF7B2799781A0FFE0E768E178C03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +466,8 @@ magnet:?xt=urn:btih:8DE8C394D68EFF7B2799781A0FFE0E768E178C03
 ```bash
 magnet:?xt=urn:btih:4E52F955016C4E781C95197F750125567064948D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +495,8 @@ magnet:?xt=urn:btih:4E52F955016C4E781C95197F750125567064948D
 magnet:?xt=urn:btih:466FDBCA6C7F4CBCA7E1BCB93E72AAD078876FBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +520,8 @@ magnet:?xt=urn:btih:466FDBCA6C7F4CBCA7E1BCB93E72AAD078876FBD
 ```bash
 magnet:?xt=urn:btih:DC5825D85BEE142DE5C692783125BA12F343FCB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +548,8 @@ magnet:?xt=urn:btih:DC5825D85BEE142DE5C692783125BA12F343FCB5
 magnet:?xt=urn:btih:4CCBA1815581907A13CFCAEABF2F1D863D12DEC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +573,8 @@ magnet:?xt=urn:btih:4CCBA1815581907A13CFCAEABF2F1D863D12DEC8
 ```bash
 magnet:?xt=urn:btih:02216C6AE9FD5409C4976541249AC3596487A2EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +600,8 @@ magnet:?xt=urn:btih:02216C6AE9FD5409C4976541249AC3596487A2EA
 magnet:?xt=urn:btih:35249D3AD642C6D029A7A76831040D31C46056F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +625,8 @@ magnet:?xt=urn:btih:35249D3AD642C6D029A7A76831040D31C46056F5
 ```bash
 magnet:?xt=urn:btih:01EC199EF985695D66FFFE5FE3A01976525B0E20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +652,8 @@ magnet:?xt=urn:btih:01EC199EF985695D66FFFE5FE3A01976525B0E20
 magnet:?xt=urn:btih:EFC8ED9B13CB3916C08919A80A3DEB156191528F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,29 +678,7 @@ magnet:?xt=urn:btih:EFC8ED9B13CB3916C08919A80A3DEB156191528F
 magnet:?xt=urn:btih:1EBB76EF1F6F217167D4D1323B02A579640FA820
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 788045   (723695) от 26.05.2014
-
-Стивен Кинг | Под куполом (2014) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычным, пригожим осенним днем, город Честерс Миллз, штат Мэн, был внезапно отрезан от остального мира невидимым силовым барьером. Самолеты врезаются в купол и падают, пылая, с небес; жене фермера отрезает силовым полем руку; люди, выехавшие в соседний город по делам, не могут вернуться к своим близким; автомобили взрываются от столкновения с куполом. Никто не понимает, (   Читать дальше...   )Жанр: фантастика, роман-катастрофаПеревод: с англ. ВебераПродолжительность: 36:50:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E14A1A8AB793A089DC5566200DF96053F888CD7
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

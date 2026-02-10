@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:CDBF4AA01AED6ED2E70DC8DBD52CA7C3AAD52F05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:CDBF4AA01AED6ED2E70DC8DBD52CA7C3AAD52F05
 ```bash
 magnet:?xt=urn:btih:C3E5A0F0E6A65C0D74970403D2F461EFCF1242E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:C3E5A0F0E6A65C0D74970403D2F461EFCF1242E8
 magnet:?xt=urn:btih:3C6EB77ED009084AD9921D35D0069AE57E277FE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:3C6EB77ED009084AD9921D35D0069AE57E277FE6
 magnet:?xt=urn:btih:B7B917F980F6023AF7CC91AFCAE22A1668B4C98A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:B7B917F980F6023AF7CC91AFCAE22A1668B4C98A
 ```bash
 magnet:?xt=urn:btih:3EF5BBDE64B9B20CF8FC3B53515D35BDB8FF4894
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Javascript является языком Web-программирования и
 magnet:?xt=urn:btih:D8C38F4AB440A742D9BDD9AFBC70760298DE7E17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:D8C38F4AB440A742D9BDD9AFBC70760298DE7E17
 magnet:?xt=urn:btih:AD15DE4C3A524BBA4B8DDB34FF49351E56EA72C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:AD15DE4C3A524BBA4B8DDB34FF49351E56EA72C3
 ```bash
 magnet:?xt=urn:btih:024BA6BAC793FBFB11F0DE1AA38D69CC05FBE9F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:024BA6BAC793FBFB11F0DE1AA38D69CC05FBE9F0
 magnet:?xt=urn:btih:193437D300C970F06E3534019917419F683A74ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Google Inc. | Android 5.0 Lollipop: Краткое руководство (2014)
 ```bash
 magnet:?xt=urn:btih:28A2A4ACCAB337AB59A6177C892B369F9A87DF64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:28A2A4ACCAB337AB59A6177C892B369F9A87DF64
 magnet:?xt=urn:btih:8D7BD434D38F1ED912E2D1C3AF490AE3E2C04A1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:8D7BD434D38F1ED912E2D1C3AF490AE3E2C04A1D
 ```bash
 magnet:?xt=urn:btih:B005694ED17A0761E482F8D43C5CE66522F95C1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:B005694ED17A0761E482F8D43C5CE66522F95C1F
 ```bash
 magnet:?xt=urn:btih:FB3E4CD16649CBA675D8BE988497C8D928B79C73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:FB3E4CD16649CBA675D8BE988497C8D928B79C73
 magnet:?xt=urn:btih:9C6BFE569E2B7678F40F0FE3129C5742C6622992
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Git в настоящее время нужен практически всем 
 magnet:?xt=urn:btih:06BA359EAC24765F5F16800CA10D646E4F127267
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:06BA359EAC24765F5F16800CA10D646E4F127267
 ```bash
 magnet:?xt=urn:btih:4F1C674ED5BC2DE440BD96B1C9964F2DF6B62640
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:4F1C674ED5BC2DE440BD96B1C9964F2DF6B62640
 magnet:?xt=urn:btih:C9B7D26873310AD1EA5DF248A316874B3971A1B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ ReactJS выделяется из массы прочих веб-фреймво�
 ```bash
 magnet:?xt=urn:btih:E320E334163BC7AA39A8461E19CF7833A9DE07F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Stoyan Stefanov | React: Up & Running: Building Web Applications (2016) [PDF] [E
 magnet:?xt=urn:btih:28041FE3C0E1AABA8D0AC3CD221AC71185C1557D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Seo-Study | Базовый курс поисковой оптимизации (2
 ```bash
 magnet:?xt=urn:btih:396C9ABB6CE2832B36146EC5A2410B9AB6A8A824
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:396C9ABB6CE2832B36146EC5A2410B9AB6A8A824
 magnet:?xt=urn:btih:944C16A6BA6F85B5B276EF3334C72E5D3F83AE72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Magnus Lie Hetland | Beginning Python: From Novice to Professional (2017) [PDF] 
 ```bash
 magnet:?xt=urn:btih:8BB3E1BAFDC614AE769686DC567FB2E3C0A57463
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ Kristian Rother | Pro Python Best Practices: Debugging, Testing and Maintenance 
 magnet:?xt=urn:btih:D175D97A1C6632105E070DE34B71D47D418B78D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:D175D97A1C6632105E070DE34B71D47D418B78D1
 ```bash
 magnet:?xt=urn:btih:4A2C147B0765AEBF63D6AB2B7C9636C602958AFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ H. P. Langtangen | A Primer on Scientific Programming with Python [+ Code] (2016
 magnet:?xt=urn:btih:99C2B7FA300DF2ED4FBB89C00D5EDA0C622DE74D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ AutoCAD 2017 and AutoCAD LT 2017 Essentials уникальное учебное 
 ```bash
 magnet:?xt=urn:btih:3F38C2B5B5790F8BAF8D59FAB3F448B23446F279
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

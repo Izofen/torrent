@@ -1,3 +1,29 @@
+###  Публикация: 1042834   (576441) от 14.08.2016
+
+Несостоявшийся вождь. Георгий Маленков (2005) DVB
+
+>>Документалистика и Телепередачи
+>>Личности в истории
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Долгие годы Георгия Маленкова и Никиту Хрущева связывала дружба, причем "небожители" общались не только лично. Довольно часто виделись и их семьи, чему способствовало то обстоятельство, что они жили в одном доме на улице Грановского, а их дачи разделял всего лишь невысокий забор. После смерти Сталина Маленкову досталось правительство, а Хрущеву - партия. (   Читать дальше...   )Телекомпания: Россия, Студия "Вертов и Ко"Жанр: ДокументальныйПродолжительность: 00:45:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB40108668E838599A59D5851FDDA013E6B0ADCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042842   (576445) от 14.08.2016
 
 Олимпийское спокойствие. Секреты безопасности (2004) DVB
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:CBB525A295757DAB3FF210DA87F2D84D1B22023D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:CBB525A295757DAB3FF210DA87F2D84D1B22023D
 magnet:?xt=urn:btih:3253AB38CAC6942A60FAA6D17E28D194F00EAD55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:3253AB38CAC6942A60FAA6D17E28D194F00EAD55
 ```bash
 magnet:?xt=urn:btih:9EFA371DC65DF3D210824772A83A93905C75B9BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:9EFA371DC65DF3D210824772A83A93905C75B9BA
 magnet:?xt=urn:btih:65D505FF501C1A8A4DE03D8AD61884399368CB68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:65D505FF501C1A8A4DE03D8AD61884399368CB68
 ```bash
 magnet:?xt=urn:btih:FA9E5F7D5E49B38D962F5F55EF97831EF4E38D54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:FA9E5F7D5E49B38D962F5F55EF97831EF4E38D54
 magnet:?xt=urn:btih:B78D651178C95D627A6C1665A21B3A49D542D172
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:B78D651178C95D627A6C1665A21B3A49D542D172
 ```bash
 magnet:?xt=urn:btih:5521DA760A60E44EB6227C130BBEC2948D4C2F72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:5521DA760A60E44EB6227C130BBEC2948D4C2F72
 magnet:?xt=urn:btih:09C623E3466715605EBDFCCF2B560A434741FF82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:09C623E3466715605EBDFCCF2B560A434741FF82
 magnet:?xt=urn:btih:7FF07703802BEAC908C9B7DCF58B899868B455FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:7FF07703802BEAC908C9B7DCF58B899868B455FF
 ```bash
 magnet:?xt=urn:btih:E1E529487716388847D2F7ACFAEAE72AD085B08C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:E1E529487716388847D2F7ACFAEAE72AD085B08C
 magnet:?xt=urn:btih:D4B6B92418A5006669D35BDB41533B9E7E50E3B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:D4B6B92418A5006669D35BDB41533B9E7E50E3B7
 ```bash
 magnet:?xt=urn:btih:05C71BFEFAD7411C274391347606CC104F9446C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:05C71BFEFAD7411C274391347606CC104F9446C3
 magnet:?xt=urn:btih:11FBD549FB267DDD69B9260C4E109668242FB764
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:11FBD549FB267DDD69B9260C4E109668242FB764
 ```bash
 magnet:?xt=urn:btih:E86DF7102679B258F22282C5E387AA0257518C86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:E86DF7102679B258F22282C5E387AA0257518C86
 magnet:?xt=urn:btih:1ACF6272BAD107313B82A8237294C47ACE8B821B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:1ACF6272BAD107313B82A8237294C47ACE8B821B
 ```bash
 magnet:?xt=urn:btih:B404AE52B35D8CC2EA8BB5416F2ADA781CBD4EBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:B404AE52B35D8CC2EA8BB5416F2ADA781CBD4EBF
 magnet:?xt=urn:btih:396A022E84BE733318C9168C528E3360397FDF25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:396A022E84BE733318C9168C528E3360397FDF25
 ```bash
 magnet:?xt=urn:btih:3A8CB643BF85294DC05241F2095076DE9151D2A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +515,8 @@ magnet:?xt=urn:btih:3A8CB643BF85294DC05241F2095076DE9151D2A5
 magnet:?xt=urn:btih:D4B5654F632C2982BB6CD1209350E33B766F9C6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +540,8 @@ magnet:?xt=urn:btih:D4B5654F632C2982BB6CD1209350E33B766F9C6C
 ```bash
 magnet:?xt=urn:btih:CDC774398C9D4C1E7A83068AA1415AB05B127B23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +567,8 @@ magnet:?xt=urn:btih:CDC774398C9D4C1E7A83068AA1415AB05B127B23
 magnet:?xt=urn:btih:8C4D9FC3553D770C96E00BE72F7B4355ABA83F2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +592,8 @@ magnet:?xt=urn:btih:8C4D9FC3553D770C96E00BE72F7B4355ABA83F2C
 ```bash
 magnet:?xt=urn:btih:1512838690A31FE84B3F7B42165A3B36221BE125
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +619,8 @@ magnet:?xt=urn:btih:1512838690A31FE84B3F7B42165A3B36221BE125
 magnet:?xt=urn:btih:22666C1CA17428624C98EB76A5259C1F06A240D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +644,8 @@ magnet:?xt=urn:btih:22666C1CA17428624C98EB76A5259C1F06A240D9
 ```bash
 magnet:?xt=urn:btih:5175AE9019C6A780B721C7634D732C242C036CE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,29 +671,7 @@ magnet:?xt=urn:btih:5175AE9019C6A780B721C7634D732C242C036CE8
 magnet:?xt=urn:btih:9F97ACC33F3BF2A89F7397F8AB354A599FA623EC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494818   (577372) от 30.05.2022
-
-ENIGMA (Энигма) / Тайнопись войны / И немного про кино (2021) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Enigma. Шифровальная машина Третьего Рейха, над взломом которой бились задолго до начала Второй мировой войны. О самой машине, о первых ученых, что пытались разгадать ее секрет (и о которых постоянно забывают). О подводных лодках, о историческом контексте, и немного о кинолентах, что затронули данную тему.Производство: Сурен ЦормудянЖанр: Документальный, ИсторияПродолжительность: 03:07:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:330A5B12CD3A66BBD6C504BB4BD454D97C957A54
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

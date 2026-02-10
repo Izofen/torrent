@@ -1,3 +1,31 @@
+###  Публикация: 1381767   (824479) от 08.05.2020
+
+Прогулки по Санкт-Петербургу / Saint Petersburg (2020) CamRip [H.264/1080p] [PR]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Культурный центр России - Санкт-Петербург, основанный в 1703 году Петром Великим, пользуется огромной популярностью у туристов со всего мира.
+Город Санкт-Петербург представляет собой удивительное сочетание культур и традиций России и Европы.
+Кинематограф позволяет побывать в этом прекрасном городе не выходя из дома уже прямо сейчас.Производство: Россия, Санкт-ПетербургЖанр: видовой, короткометражный, документальныйРежиссер: Денис ВарламовПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: АнглийскиеПродолжительность: 00:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4648C24BB3BBBCC959078B18FA2D62B1F9972F5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380905   (824480) от 08.05.2020
 
 Эрмитаж, Санкт-Петербург / The Hermitage, St. Petersburg (2020) CamRip [H.264/1080p] [PR]
@@ -20,6 +48,8 @@
 ```bash
 magnet:?xt=urn:btih:8AA42466C18EC3B19435D9697E677F46DAE96043
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -47,6 +77,8 @@ magnet:?xt=urn:btih:8AA42466C18EC3B19435D9697E677F46DAE96043
 magnet:?xt=urn:btih:F4F4E20BA02F7D6DC7574F21B2FA471D7FEED15B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +104,8 @@ magnet:?xt=urn:btih:F4F4E20BA02F7D6DC7574F21B2FA471D7FEED15B
 magnet:?xt=urn:btih:2F78F37E63ABEB16ADA67E41413F6FB487895498
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +130,8 @@ magnet:?xt=urn:btih:2F78F37E63ABEB16ADA67E41413F6FB487895498
 magnet:?xt=urn:btih:CB2F965E2E1EC77483CF6DAF715728E96D73E2E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +155,8 @@ magnet:?xt=urn:btih:CB2F965E2E1EC77483CF6DAF715728E96D73E2E2
 ```bash
 magnet:?xt=urn:btih:A683B199C22F909C86E181828C6066BD270F54C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +184,8 @@ Ein Kurzfilm über die Hauptattraktionen der Stadt Dresden in Deutschland.Про
 magnet:?xt=urn:btih:C091C183ECE78412B345314B267BE832010AE8E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +209,8 @@ magnet:?xt=urn:btih:C091C183ECE78412B345314B267BE832010AE8E2
 ```bash
 magnet:?xt=urn:btih:A6FAB2358300573040C3CE4511069082CF447A57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +237,8 @@ magnet:?xt=urn:btih:A6FAB2358300573040C3CE4511069082CF447A57
 magnet:?xt=urn:btih:E8C344554553D10177321F95FBE6F41CB3190AED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +264,8 @@ magnet:?xt=urn:btih:E8C344554553D10177321F95FBE6F41CB3190AED
 magnet:?xt=urn:btih:8CD8EEF5FBAB084489DABFFB469E41318428B2FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +289,8 @@ magnet:?xt=urn:btih:8CD8EEF5FBAB084489DABFFB469E41318428B2FD
 ```bash
 magnet:?xt=urn:btih:4F12F1F0BCA9D7118A1B179B006D1E4972DEA27D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +317,8 @@ magnet:?xt=urn:btih:4F12F1F0BCA9D7118A1B179B006D1E4972DEA27D
 magnet:?xt=urn:btih:5B7ACE0BE28511048E236033DE5461E29C9DAEC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +343,8 @@ magnet:?xt=urn:btih:5B7ACE0BE28511048E236033DE5461E29C9DAEC3
 ```bash
 magnet:?xt=urn:btih:5B21936C3E3A4307207384A564B8B8F79BE0ED81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +371,8 @@ magnet:?xt=urn:btih:5B21936C3E3A4307207384A564B8B8F79BE0ED81
 magnet:?xt=urn:btih:FAC97A90E2EFBB6DF85A2DE5A8C9096C4719A443
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +397,8 @@ magnet:?xt=urn:btih:FAC97A90E2EFBB6DF85A2DE5A8C9096C4719A443
 magnet:?xt=urn:btih:B39530528DC490CCAF742502533EF44466626E72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +422,8 @@ magnet:?xt=urn:btih:B39530528DC490CCAF742502533EF44466626E72
 ```bash
 magnet:?xt=urn:btih:8B79AE22098B6BE0275D33B11C5D2A5B1FDF3B87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +451,8 @@ magnet:?xt=urn:btih:8B79AE22098B6BE0275D33B11C5D2A5B1FDF3B87
 magnet:?xt=urn:btih:B2AB2BDFE6C31AE27EBF626D0DA4582A09A05560
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +476,8 @@ magnet:?xt=urn:btih:B2AB2BDFE6C31AE27EBF626D0DA4582A09A05560
 ```bash
 magnet:?xt=urn:btih:435ECE89804109B971718CE9339688F556E2F4F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +503,8 @@ magnet:?xt=urn:btih:435ECE89804109B971718CE9339688F556E2F4F2
 magnet:?xt=urn:btih:999765036040583FFB9455A19B2D16712B63E69D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +528,8 @@ magnet:?xt=urn:btih:999765036040583FFB9455A19B2D16712B63E69D
 ```bash
 magnet:?xt=urn:btih:58A6ECC09800772EA56A762DB7DB17A4091B5CAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +555,8 @@ magnet:?xt=urn:btih:58A6ECC09800772EA56A762DB7DB17A4091B5CAB
 magnet:?xt=urn:btih:0A746B23A1AB20488474642530E10E196A64A694
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +580,8 @@ magnet:?xt=urn:btih:0A746B23A1AB20488474642530E10E196A64A694
 ```bash
 magnet:?xt=urn:btih:87E65D4132720A1D15A6AA08B9A84D7CBE2F191E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +608,8 @@ magnet:?xt=urn:btih:87E65D4132720A1D15A6AA08B9A84D7CBE2F191E
 magnet:?xt=urn:btih:C8F305BE7D5D7CCF844AEC488349A76F212DD593
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +633,8 @@ magnet:?xt=urn:btih:C8F305BE7D5D7CCF844AEC488349A76F212DD593
 ```bash
 magnet:?xt=urn:btih:A834B1BFB98A2F692560B0211A380AC900847706
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +660,8 @@ magnet:?xt=urn:btih:A834B1BFB98A2F692560B0211A380AC900847706
 magnet:?xt=urn:btih:E5CF7078FF90526AD5AE4C7CBE7EB12A275DFE4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,29 +686,7 @@ magnet:?xt=urn:btih:E5CF7078FF90526AD5AE4C7CBE7EB12A275DFE4E
 magnet:?xt=urn:btih:9014633043EA06853501855D64B446FBB7B8B7E1
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502803   (825042) от 16.10.2021
-
-Живая еда с Сергеем Малозёмовым (16.10.2021) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Брусника: как эту кислую ягоду используют для лечения зубов, почек и других органов? Есть ли польза от карпа? Как его приготовить так, чтобы не мучиться с костями, и за что эту рыбу особенно ценят в Японии?Насколько полезен йогурт и творог на домашних заквасках?«Рецепт недели» – венгерский яблочный пирог.Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:42:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CED67AF416756C8063D7F9C42065216CB350BD7
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

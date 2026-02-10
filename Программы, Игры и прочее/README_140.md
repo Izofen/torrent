@@ -19,6 +19,8 @@ NotifyBuddy - AMOLED Notification Light v1.50 [En]
 magnet:?xt=urn:btih:F678B571A005197AE97EDEA95A22C673D48A8B75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Time Calculator Cardamon v1.0.9 [En]
 ```bash
 magnet:?xt=urn:btih:834401410EF993FB9DC27802DA02F1630725FA34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Files v1.0.1 [En]
 magnet:?xt=urn:btih:407AB97BBAFDEB8EBB0C9C6CBA06874013E7E9C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Easy Music — лучший способ погрузиться в мир муз
 ```bash
 magnet:?xt=urn:btih:DDBA08909D79CFAFC65B76E5B5C57E00C0C76978
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Dr.Web на Android – скачать антивирус Dr.Web можно бе
 magnet:?xt=urn:btih:EE58EE8BD24F76F262691921E950BA7FE5F6AF3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ VK mp3 mod - Уникальная модификация оригинально�
 ```bash
 magnet:?xt=urn:btih:0DC79F08E6C18187A99D44DE2721A2260C4E779A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Pedometer - GPS Tracker v1.0 [Ru/En]
 magnet:?xt=urn:btih:99FCF5AC1D049272F792C9FA2B38939B8AF9A3C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ iGO Primo NextGen 9.18.40.671989 (WinCE) [Ru/Multi]
 magnet:?xt=urn:btih:8814D13FB574F691B714754B4AAE59D703014DA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ iGO Primo NextGen 9.18.27.681657 (Android) [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:DE28692C08EB85E6A73770DA20DA2F7269BB1435
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Garmin: City Navigator Australia & New Zealand NT HERE 2017.10 [En]
 magnet:?xt=urn:btih:2DFD2CAD543CCA8D8BA5EDD8DA49D0D5DB6E100B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Blend Photo Editor Pro 2.5 [En]
 ```bash
 magnet:?xt=urn:btih:AD9628D76618EFB3E9CA69BFD3E4EFE12A9B8840
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Garmin: City Navigator Argentina NT 2017.10 Proyecto [Es]
 magnet:?xt=urn:btih:CB162C77DCAACCF7BB3D92E9D9C0927292C9C6A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ TinyCam Monitor PRO – это программа позволяющая вес�
 magnet:?xt=urn:btih:FB35CA5A9ED02984DD0642F6E479D3E22D5F8994
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ SEN: Seven Eight Nine -  интересная многоуровневая иг�
 ```bash
 magnet:?xt=urn:btih:B8C8BB11EEB6803F287D40D553D89BED450BE689
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ P4P 7 Minute Workout PRO 1.3.8 [Ru]
 magnet:?xt=urn:btih:B30306A8B80E7ABDEC3A6885563F80370DD9BE70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Paint Free 3.5.4 [Ru] - Рисовалка
 magnet:?xt=urn:btih:8001DD4A7DCEE031A041CB4397E536181F8CE3E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Garmin: City Navigator Chile NT 2017.10 [En]
 ```bash
 magnet:?xt=urn:btih:75B50BFBE5763D41EE543CCFBDC57C442AA73137
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ Garmin: NaviGuide Hungary v2016.01 NT Final [Hu]
 magnet:?xt=urn:btih:815FE284A36F5FAA7C6FE74A19DDC465FEDABF33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:815FE284A36F5FAA7C6FE74A19DDC465FEDABF33
 ```bash
 magnet:?xt=urn:btih:0FF6DB4F342FF186FCFEC9662AB2F9321ADFA503
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ KitchenTimer 4.2.1 [Ru] - Кухонный таймер
 magnet:?xt=urn:btih:BF16750CA12232E14E67CFF436F0156025AD0C34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ Hungry Shark Evolution на Андроид - новая страница в иг
 ```bash
 magnet:?xt=urn:btih:516138937FC7D8E39CDC58FB97A67B53A772D881
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ magnet:?xt=urn:btih:516138937FC7D8E39CDC58FB97A67B53A772D881
 magnet:?xt=urn:btih:12439A9A1F7100EBD1C42BFFA951F29ECF869831
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ Stepik (Стэпик) — это платформа с бесплатными о
 ```bash
 magnet:?xt=urn:btih:B47CB67F3D89955D2C1A9BC6BC1A2A9FCBE50E75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ Cписок покупок v2.1.1 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:5CB62057A97F83268D2DB9FD4A05036F4141A243
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:5CB62057A97F83268D2DB9FD4A05036F4141A243
 magnet:?xt=urn:btih:620465318F528D1B791DFCAAEDB500BC1A8F97D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:620465318F528D1B791DFCAAEDB500BC1A8F97D3
 ```bash
 magnet:?xt=urn:btih:AD89566D6E157F2FD51164B16769907DA57A0311
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1306745   (555415) от 06.06.2019
+
+Дэвид Брэйд | Классическая гитара. Справочник-самоучитель (2009) [PDF, MP3]
+
+>>Разное (категория книг)
+>>Ноты и обучение музыке
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это всеобъемлющее учебное пособие построено таким образом, чтобы им можно было пользоваться при самостоятельном обучении игре на гитаре, так и на занятиях с педагогом, причем независимо от вашего стиля игры или опыта, которым вы обладаете. В нем вы найдете все существующие техники для левой и правой руки - от базовых движений каждого пальца и арпеджио до приемов (   Читать дальше...   )Жанр: Обучение игре на музыкальных инструментахПеревод: А.В. КурчаковФормат: PDF, MP3Продолжительность: 00:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41E6E1147721E122AB19AF1174D76A0C1D9717BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1306421   (555431) от 06.06.2019
 
 Даша Пахтусова | Можно всё (2019) [PDF, FB2]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:16CD14E52E071F276C4ACC0B795EF2DEE3303F2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:16CD14E52E071F276C4ACC0B795EF2DEE3303F2E
 ```bash
 magnet:?xt=urn:btih:431E612E2DCB30FCCF990BBD8713AA84C33D85E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:431E612E2DCB30FCCF990BBD8713AA84C33D85E4
 magnet:?xt=urn:btih:1DBBEAB68F402306FCF282D1EDC49C74A253BE70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:1DBBEAB68F402306FCF282D1EDC49C74A253BE70
 ```bash
 magnet:?xt=urn:btih:1CD6751424B27FC7B381EBD05D00FBF333276E45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:1CD6751424B27FC7B381EBD05D00FBF333276E45
 magnet:?xt=urn:btih:70056CD72E9762B19F2BB44AD3A7E8C0614E0816
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:70056CD72E9762B19F2BB44AD3A7E8C0614E0816
 ```bash
 magnet:?xt=urn:btih:573515CAAAA6C44603E765C4D1EC884241AD1A14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:573515CAAAA6C44603E765C4D1EC884241AD1A14
 magnet:?xt=urn:btih:B6A199394AE0916CC4CBB6B356787FB8331FC16A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:B6A199394AE0916CC4CBB6B356787FB8331FC16A
 ```bash
 magnet:?xt=urn:btih:DD9ECA242B3BA17A73AA499C426DF25A192FB3F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:DD9ECA242B3BA17A73AA499C426DF25A192FB3F6
 magnet:?xt=urn:btih:5F472553616DE67A0A0457FD126823077AFB25EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:5F472553616DE67A0A0457FD126823077AFB25EB
 ```bash
 magnet:?xt=urn:btih:DEDE687C263FFCFF81863FB92E7A518AF3948CE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:DEDE687C263FFCFF81863FB92E7A518AF3948CE1
 magnet:?xt=urn:btih:536C6CBCA1BD4D593CEB1AC4C3DF1068602E0B74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:536C6CBCA1BD4D593CEB1AC4C3DF1068602E0B74
 ```bash
 magnet:?xt=urn:btih:848DABD210607700172ECDB56B9442D4BA6E5142
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:848DABD210607700172ECDB56B9442D4BA6E5142
 magnet:?xt=urn:btih:CA658EB9FFD98E5C28F0DD90C51ADB63CB0F434B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:CA658EB9FFD98E5C28F0DD90C51ADB63CB0F434B
 ```bash
 magnet:?xt=urn:btih:77DC63906873A458673F94DC4A666202E80671BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:77DC63906873A458673F94DC4A666202E80671BC
 magnet:?xt=urn:btih:87320FE42780E0CC50DB3D1DDF68BBC74189D979
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:87320FE42780E0CC50DB3D1DDF68BBC74189D979
 ```bash
 magnet:?xt=urn:btih:F181639DCCF725BEF0A09176C35D3288D29A445A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:F181639DCCF725BEF0A09176C35D3288D29A445A
 magnet:?xt=urn:btih:BD88BCEB537A750441E5EFECF9234F308517EEB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +498,8 @@ magnet:?xt=urn:btih:BD88BCEB537A750441E5EFECF9234F308517EEB9
 ```bash
 magnet:?xt=urn:btih:184E56F599B47E42C6E6712F65D06CD20B00F65F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +528,8 @@ magnet:?xt=urn:btih:184E56F599B47E42C6E6712F65D06CD20B00F65F
 magnet:?xt=urn:btih:7AAD5541B51B7688711D46F1F7BFD8810BA1776E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +555,8 @@ magnet:?xt=urn:btih:7AAD5541B51B7688711D46F1F7BFD8810BA1776E
 magnet:?xt=urn:btih:5084E052266C3610AF856BBC0AAF134D4B8E29AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +580,8 @@ magnet:?xt=urn:btih:5084E052266C3610AF856BBC0AAF134D4B8E29AA
 ```bash
 magnet:?xt=urn:btih:7918047EAA2C64F2C740B08817B91D76504037A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +607,8 @@ magnet:?xt=urn:btih:7918047EAA2C64F2C740B08817B91D76504037A5
 magnet:?xt=urn:btih:196C002363EF922B18B64BED05B3234EF6CC4AAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +632,8 @@ magnet:?xt=urn:btih:196C002363EF922B18B64BED05B3234EF6CC4AAF
 ```bash
 magnet:?xt=urn:btih:F70C5A2D8D0FD5E9FB3D99C9E6CABB36014FCB11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +659,8 @@ magnet:?xt=urn:btih:F70C5A2D8D0FD5E9FB3D99C9E6CABB36014FCB11
 magnet:?xt=urn:btih:417C00430E0E047D9657CD839A0D8B5D4893BAAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,30 +685,7 @@ magnet:?xt=urn:btih:417C00430E0E047D9657CD839A0D8B5D4893BAAA
 magnet:?xt=urn:btih:04CB024063D4D4BAA8ECDB6BD8742A3334A4B1A0
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153650   (556740) от 28.07.2017
-
-А. Колпакиди, Г. Потапов | Николай II. Святой или кровавый? (2017) [FB2, EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556740.jpg" />
-</div>
-
-
-###  Подробнее
-
-О Николае II изданы сотни книг, тысячи статей, сняты десятки художественных и документальных фильмов. В большинстве из них повествуется о семейной идиллии и трагической гибели последнего самодержца, при котором экономика России процветала и росла самыми быстрыми темпами в мире.
-Такой книги, как эта, ещё не было ни в наше, ни в советское время. В ней рассказывается (   Читать дальше...   )Жанр: История, ПублицистикаФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7B4DA03A2F4AEBDB2FBE889F1D09D68A40615B4
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Overpass 2 - это захватывающий дух внедорожный с�
 magnet:?xt=urn:btih:902D6A34B128300858D39B730811EE3A69D187A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Noch (2023) [Ru/Multi] (1.0.0.12532) Scene Rune
 ```bash
 magnet:?xt=urn:btih:82EE1434E56B6992AACC78FCC8F665E8F40002D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Demonologist — это кооперативная игра ужасов, в к�
 magnet:?xt=urn:btih:3601B015B51810F957D5D30D1457698E650A0D92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Halloween Stories 4: Defying Death / Хеллоуинские истории 4: 
 ```bash
 magnet:?xt=urn:btih:C77423DA9BF708D942463471DD391834D416F2F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ NOCH — зловещее сюрреалистическое приключен�
 magnet:?xt=urn:btih:4B3183A7B79636D2EE8CFFD70A075B251683EAFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Abomi Nation (2021) [Multi] (1.3.1) License GOG
 ```bash
 magnet:?xt=urn:btih:5F7492251E13097DFC634EF654CB2E8DA0EBE81B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Unsolved Case 4: Above the Law / Нераскрытое дело 4: Вне за�
 magnet:?xt=urn:btih:2DDFC07069B3FEC63E9C53746857850317E31244
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Fobia - St. Dinfna Hotel погружает игроков в мрачные у�
 ```bash
 magnet:?xt=urn:btih:382DFCB2538B0A5085FE1898934128D0C3C109B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ ZED – это история стареющего художника, поте�
 magnet:?xt=urn:btih:B2C56D0B623DD3C9EB69927ADD47762A8C7AA78B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Mesmer (2020) [Multi] (1.0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:24A5C553CFF9D424AB1CAA51E612DC0C05F2F394
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Torn Away — интерактивная история, собранная из
 magnet:?xt=urn:btih:B5B0352DA63C7C55B42FCD5B69F0D0616CC85349
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ No Sun To Worship (2023) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:BFA2D2AD339B10F90990F3E5A018C2DF761D91CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ AMID EVIL выполнена в духе прародителей жанра FPS
 magnet:?xt=urn:btih:4F759E776541926C5868F61449F63E668294F6E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Backbone – это постнуарная детективная RPG, где в
 ```bash
 magnet:?xt=urn:btih:CE9D0FC9B368826F112A5C1450BE0569A778DFEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Tails Noir Preludes (2023) [En] (11891862/dlc) Scene Tenoke [Deluxe Edition]
 magnet:?xt=urn:btih:4363A7E36BFB58E833586F7B2FB9050CCB870DFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Warhammer 40000: Shootas Blood & Teef (2022) [Ru/Multi] (1.0.23) License GOG
 ```bash
 magnet:?xt=urn:btih:EA806A7167E3A5465119B0A2BB6EFC27901F09DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Mystery Case Files 22: Crossfade / За семью печатями 22: Изло
 magnet:?xt=urn:btih:AD4AD89DBC0CBCF7181518D4376210DFE6538FC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Paranormal Files 6: The Trap of Truth / Паранормальные явлен�
 ```bash
 magnet:?xt=urn:btih:C6500C6F5AE0473A2351E014D84FAAE9E02D2771
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Bound By Blades сочетает в себе элементы RPG и рогал�
 magnet:?xt=urn:btih:63423784FDB69841C2A1A3747D88C7065B2C5475
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Christmas Wonderland 13 (2022) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:7B225F06DA72C98D9C5415DB71D23CD53BFCE1DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Earthlock - приключенческая ролевая инди-игра с �
 magnet:?xt=urn:btih:470B103CCCB9A3AF6DD5C0B4D1EA6C12B6FAD999
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Little Hope – вторая игра в антологии The Dark Pictures. �
 ```bash
 magnet:?xt=urn:btih:028A40B4236C929747CEF111B907CA0B9512FAC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ NASCAR Arcade Rush (2023) [En] (1.0.0.2/dlc) Scene Tenoke [Project-X Edition]
 magnet:?xt=urn:btih:2BD98B2BDC9A4889B1BEBC8D4A87C96B2CFCC18E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ God's Trigger (2019) [Ru/Multi] (1.2.58760) License GOG
 ```bash
 magnet:?xt=urn:btih:B7069B15B8E98461C2370451FEFE32334B5B37E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ BIT.TRIP RERUNNER (2023) [Multi] (20230927) Scene Tenoke
 magnet:?xt=urn:btih:32F69DE315A08896E0C6D26737C74E8A6FF83E1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ magnet:?xt=urn:btih:32F69DE315A08896E0C6D26737C74E8A6FF83E1D
 ```bash
 magnet:?xt=urn:btih:D4B04F59F562FF501466CA2E0E0C32689C5003C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

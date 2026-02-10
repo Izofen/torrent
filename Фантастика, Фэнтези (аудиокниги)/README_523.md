@@ -1,3 +1,29 @@
+###  Публикация: 1483688   (1006605) от 15.07.2021
+
+Модель для сборки | Подкасты для SoundStream (2021) [MP3, Влад Копп, Татьяна Бондаренко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006605.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Модель для сборки» – культовая российская передача, выходящая с 1995 года. МДС представляет собой литературно-музыкальный симбиоз, состоящий из прочтения лучших произведений современной фантастики мастерски поставленным голосом Влада Коппа в сопровождении чарующих звуков trance, downtempo, ambient и trip-hop (за вертушками DJ's Михаил Габович и Андрей Эдисон). С (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 14:58:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63AE5636AC3D6AF6B736C1408184C02245E61B1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483721   (1006624) от 15.07.2021
 
 Владимир Ильин | Напряжение (Книга 4). Напряжение сходится (2019) [MP3, Вадим Пугачев]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:8DFEDFA8F31D576E1BF8931522566E2D01C49AA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:8DFEDFA8F31D576E1BF8931522566E2D01C49AA4
 magnet:?xt=urn:btih:57BE43242949196D0A0CF0BA8DE1472D05379680
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:57BE43242949196D0A0CF0BA8DE1472D05379680
 ```bash
 magnet:?xt=urn:btih:5667D4F33B01F1A4C985A5A8F0283BD1AA77272D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:5667D4F33B01F1A4C985A5A8F0283BD1AA77272D
 magnet:?xt=urn:btih:B85D23372211EEAE31B39BC75B34789B12FA93AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:B85D23372211EEAE31B39BC75B34789B12FA93AD
 ```bash
 magnet:?xt=urn:btih:6F30BFB952A8CB1C653E508B262CD18EABF4D0CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:6F30BFB952A8CB1C653E508B262CD18EABF4D0CC
 magnet:?xt=urn:btih:D05731D8601459E0E460B2C8162FAED077DD8B55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:D05731D8601459E0E460B2C8162FAED077DD8B55
 ```bash
 magnet:?xt=urn:btih:6A9D989C77389ACA7D9767D18DCCDDB772BF1BC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:6A9D989C77389ACA7D9767D18DCCDDB772BF1BC2
 magnet:?xt=urn:btih:789C9754F7C0BF07510F47F180C67777C21DA9F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:789C9754F7C0BF07510F47F180C67777C21DA9F2
 ```bash
 magnet:?xt=urn:btih:49586871C9DF137E64FB4645A69FE7FEB67335EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:49586871C9DF137E64FB4645A69FE7FEB67335EA
 magnet:?xt=urn:btih:6A3A57F6EE9CFB33DCAA5696F4FE5810C622287E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:6A3A57F6EE9CFB33DCAA5696F4FE5810C622287E
 ```bash
 magnet:?xt=urn:btih:BA99A40A419E7C63282C742A09C95164581F9DFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:BA99A40A419E7C63282C742A09C95164581F9DFB
 ```bash
 magnet:?xt=urn:btih:8CBD1E757AED8CC86119219D800FE21DD6F30BB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:8CBD1E757AED8CC86119219D800FE21DD6F30BB7
 magnet:?xt=urn:btih:5E19B2A52EE56028B0FBEDCB6BB983F9502BEB1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +395,8 @@ magnet:?xt=urn:btih:5E19B2A52EE56028B0FBEDCB6BB983F9502BEB1B
 magnet:?xt=urn:btih:7626CBD24D7DBA4BA35314050E002D2AFC6FD0FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +420,8 @@ magnet:?xt=urn:btih:7626CBD24D7DBA4BA35314050E002D2AFC6FD0FA
 ```bash
 magnet:?xt=urn:btih:38A81843E77578E6558C6F5FFDAD95B1CF8066AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +447,8 @@ magnet:?xt=urn:btih:38A81843E77578E6558C6F5FFDAD95B1CF8066AD
 magnet:?xt=urn:btih:F8F4344AD04859C3FE34E8D865D8851583C6E0FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +472,8 @@ magnet:?xt=urn:btih:F8F4344AD04859C3FE34E8D865D8851583C6E0FE
 ```bash
 magnet:?xt=urn:btih:A98E2BE6469D665FAEBDA4FFE96245A477B7350A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +499,8 @@ magnet:?xt=urn:btih:A98E2BE6469D665FAEBDA4FFE96245A477B7350A
 magnet:?xt=urn:btih:C230A5C6F961EEEDE5418FF5F2221BB09A6E5ED1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +525,8 @@ magnet:?xt=urn:btih:C230A5C6F961EEEDE5418FF5F2221BB09A6E5ED1
 magnet:?xt=urn:btih:C228F7D4F4356AECB88E3C2016EFEB4AEB6ED6A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:C228F7D4F4356AECB88E3C2016EFEB4AEB6ED6A0
 ```bash
 magnet:?xt=urn:btih:E6F7F5A4351A852B736FF30127F1EBDAA77199F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +578,8 @@ magnet:?xt=urn:btih:E6F7F5A4351A852B736FF30127F1EBDAA77199F0
 magnet:?xt=urn:btih:F1023074DBCC6CD698DEA5A2718EB1950D4F6911
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:F1023074DBCC6CD698DEA5A2718EB1950D4F6911
 ```bash
 magnet:?xt=urn:btih:FD495DBF21F60C8DFE56D870F238B81098174BE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:FD495DBF21F60C8DFE56D870F238B81098174BE4
 magnet:?xt=urn:btih:2E152C999FA6C277C882E00D93DABAD4E0B71E21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +656,8 @@ magnet:?xt=urn:btih:2E152C999FA6C277C882E00D93DABAD4E0B71E21
 ```bash
 magnet:?xt=urn:btih:1C62FC3EC019AD1E78BBEFDFA210F9BBBEA21D71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,29 +683,7 @@ magnet:?xt=urn:btih:1C62FC3EC019AD1E78BBEFDFA210F9BBBEA21D71
 magnet:?xt=urn:btih:0DD423BDC7A3065431E388A8F89D9117594E1AD9
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482242   (1007769) от 07.07.2021
-
-Андрей Ливадный | Экспансия. История Галактики: Запрещенный контакт (2020) [MP3, Александр Чайцын]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошлое древнейшей цивилизации нашей галактики хранит тайны, способные уничтожить все живое. Происходящие в системе Ожерелье загадочные события роковым образом могут отразиться не только на судьбе человечества, но и иных космических рас. Команда Дениела Райбека, крупнейшего космического археолога, рискуя собой, высаживается на изувеченную катаклизмами поверхность (   Читать дальше...   )Жанр: Боевая фантастика, Космическая фантастикаПродолжительность: 11:13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85D5B4EC3C2F33FA01B8A5E03B8FBFFD5AF5F38F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

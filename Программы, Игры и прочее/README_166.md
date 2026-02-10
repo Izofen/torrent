@@ -21,6 +21,8 @@ Slender Threads v1.5 [Ru]
 magnet:?xt=urn:btih:B1350C7CBA09500E0BC300A21823B1176BE50C08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Red Dead Redemption v1.53.61003005 [Ru]
 magnet:?xt=urn:btih:E2CBADE372B6CEEF6654A1EF8D4095C0C2F8729B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Bendy and the Dark Revival® («Бенди и темное возрождени�
 ```bash
 magnet:?xt=urn:btih:47AEAECDD47AAE0DFF19A61B02CBDC6460D1A4A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ AdGuard — уникальный блокировщик рекламы без п
 magnet:?xt=urn:btih:F507FAF2DC751CD3B9357DB7BA0036FDD06B9F98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:F507FAF2DC751CD3B9357DB7BA0036FDD06B9F98
 ```bash
 magnet:?xt=urn:btih:7334279E79C0A771A691D3BFBF53432AED035E81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ ReadEra Premium — уникальный инструмент для поиск�
 magnet:?xt=urn:btih:69229800FCFF2AD8B9EF22AB7B7ADC649930E15E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ FacePic — приложение AI Face, приложение для легко
 ```bash
 magnet:?xt=urn:btih:E694902EE6A34556826E3F2DE20AD2E804E9DCE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Remini / Улучшение Фото v3.7.1225.202518451 Mod by Mixroot [Ru/Mult
 magnet:?xt=urn:btih:1AACE17800A50D03C57F10521046A02572C052F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Dub Premium музыкальный плеер - потрясающий прои�
 ```bash
 magnet:?xt=urn:btih:F017F9EE309D32BC5C5077C347282FA96D2B26F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:F017F9EE309D32BC5C5077C347282FA96D2B26F0
 magnet:?xt=urn:btih:C0083E97B70C1AEBCF409BFAF055DB084FD38753
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 magnet:?xt=urn:btih:ECD8A904E26A41A47DE19E6EF9569440F08E9939
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 ```bash
 magnet:?xt=urn:btih:9798B4168FA59C6E419B68BBADB011563C040BBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:9798B4168FA59C6E419B68BBADB011563C040BBD
 magnet:?xt=urn:btih:32741738CCF32A9BADFD10CDAEDEAAE781625E3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Quotes+ — Твой карманный источник ежедневного 
 ```bash
 magnet:?xt=urn:btih:0CB7672C6C5AC5D7403B934BA2EC35A9EEFE9E54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:0CB7672C6C5AC5D7403B934BA2EC35A9EEFE9E54
 magnet:?xt=urn:btih:1E38E8ED3D0446FA217874DEFABD1C1A8DFF271B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ ToonApp карикатура фоторедактор лучшее прилож�
 ```bash
 magnet:?xt=urn:btih:65A51A9AAF8FBD1967E5A170838B35DFF58F254D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ Photo Studio — не просто приложение для редактир�
 magnet:?xt=urn:btih:165A6131E43DCE19981D7566DFD027CB6FE50382
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:165A6131E43DCE19981D7566DFD027CB6FE50382
 magnet:?xt=urn:btih:1F38106834C61E05730415AEF5CFD561CCC6B828
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ PhotoDirector v20.8.8 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F26867FAFCD46B42FB63990DBF8E7DA893E96818
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:F26867FAFCD46B42FB63990DBF8E7DA893E96818
 magnet:?xt=urn:btih:6614358C0BE3A5F09B9A49C3C846D52F159BEA82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:6614358C0BE3A5F09B9A49C3C846D52F159BEA82
 magnet:?xt=urn:btih:D9523C553A3BA6761897D87076808386C23D40E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ Auto Reply: автоответчик v6.3 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5E11866B78E9380BF0CF289D61C1377279B12147
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ TV+: Бесплатное Онлайн Телевидение
 magnet:?xt=urn:btih:FC7707479177083E886B3DC96E9A4A101A100838
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Red Dead Redemption NETFLIX v1.53.61003005 [Ru]
 ```bash
 magnet:?xt=urn:btih:6843E1D01525C6E443DBA7B40547EB9A926AC6EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ Red Dead Redemption v1.53.61003005 [Ru]
 magnet:?xt=urn:btih:0C0CDB1F31ED338AB50FC18D6F59505C2825D8EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Red Dead Redemption NETFLIX v1.53.61003005 [Ru]
 ```bash
 magnet:?xt=urn:btih:C68AECA8F70BE38E9FBA3E693A7CE586CCA9EC53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

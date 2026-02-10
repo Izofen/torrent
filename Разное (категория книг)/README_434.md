@@ -1,3 +1,31 @@
+###  Публикация: 1292972   (637573) от 03.04.2019
+
+О.Л. Есаянц (сост.) | О крестном знамении (2016) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая брошюра рассказывает о сути, силе и значении крестного знамения для каждого православного христианина. Отдельное место в издании уделено формам крестного знамения в истории Церкви, а также правилам и порядку наложения крестного знамения во время разных богослужений в храме и во внебогослужебное время.
+
+Издание рассчитано на широкий круг православных читателей. (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB7D38971A8EC24A8D685680BB8BBEB028AE2E79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907514   (637621) от 12.06.2015
 
 Николай Непомнящий | Карлос Кастанеда. Путь мага и воина духа (2014) [FB2]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:5A23E56CF12A48658A9B3305524EDFFE16D92204
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +73,8 @@ magnet:?xt=urn:btih:5A23E56CF12A48658A9B3305524EDFFE16D92204
 ```bash
 magnet:?xt=urn:btih:BF4254598B75FE3A380689EF5E08DC0B5DD0133A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +102,8 @@ magnet:?xt=urn:btih:BF4254598B75FE3A380689EF5E08DC0B5DD0133A
 magnet:?xt=urn:btih:C39205D45C182D749C20990E9784DE138C94B556
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +127,8 @@ magnet:?xt=urn:btih:C39205D45C182D749C20990E9784DE138C94B556
 ```bash
 magnet:?xt=urn:btih:39297F97824CDF2C97B08CC9A5A213EB68F4E13C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +154,8 @@ magnet:?xt=urn:btih:39297F97824CDF2C97B08CC9A5A213EB68F4E13C
 magnet:?xt=urn:btih:125B39B9497F2631F1A37035439F87BC01FA5231
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +179,8 @@ magnet:?xt=urn:btih:125B39B9497F2631F1A37035439F87BC01FA5231
 ```bash
 magnet:?xt=urn:btih:9114BB10C9DBD99E700524D394E6EFECB80F101C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +206,8 @@ magnet:?xt=urn:btih:9114BB10C9DBD99E700524D394E6EFECB80F101C
 magnet:?xt=urn:btih:67BB9241660A92A03E35EB95AD48662D70CA997E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +231,8 @@ magnet:?xt=urn:btih:67BB9241660A92A03E35EB95AD48662D70CA997E
 ```bash
 magnet:?xt=urn:btih:3363EEB96094D0CBCCE2B97013AD899BF3EC752A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +258,8 @@ magnet:?xt=urn:btih:3363EEB96094D0CBCCE2B97013AD899BF3EC752A
 magnet:?xt=urn:btih:FFE25C374D868080603F998F27F3DCB80219EBE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +283,8 @@ magnet:?xt=urn:btih:FFE25C374D868080603F998F27F3DCB80219EBE8
 ```bash
 magnet:?xt=urn:btih:B4E81ABFF2DCF998DC2840AFFBBBACCFF8B81D14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +312,8 @@ magnet:?xt=urn:btih:B4E81ABFF2DCF998DC2840AFFBBBACCFF8B81D14
 magnet:?xt=urn:btih:4F12C258F3914E62BCD874B5B0651C74265F1A08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +337,8 @@ magnet:?xt=urn:btih:4F12C258F3914E62BCD874B5B0651C74265F1A08
 ```bash
 magnet:?xt=urn:btih:496F20A9CAEC3917524FBF1A840F840B3ADEB448
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +365,8 @@ magnet:?xt=urn:btih:496F20A9CAEC3917524FBF1A840F840B3ADEB448
 magnet:?xt=urn:btih:ABD1DDEFF541F1BA427E5F49F25F33546436CE23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +390,8 @@ magnet:?xt=urn:btih:ABD1DDEFF541F1BA427E5F49F25F33546436CE23
 ```bash
 magnet:?xt=urn:btih:5115D18226C19752FBFD39C04F840D390158EB36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +417,8 @@ magnet:?xt=urn:btih:5115D18226C19752FBFD39C04F840D390158EB36
 magnet:?xt=urn:btih:F61690B600CC580B5A0537A70B3359F7553D4077
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +443,8 @@ magnet:?xt=urn:btih:F61690B600CC580B5A0537A70B3359F7553D4077
 magnet:?xt=urn:btih:6EC8D4CC14F48EE6BE12A99DF1C2B1100686C2E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +468,8 @@ magnet:?xt=urn:btih:6EC8D4CC14F48EE6BE12A99DF1C2B1100686C2E7
 ```bash
 magnet:?xt=urn:btih:F4B83F997F59CB4D14EC10D99526D566B4FCB438
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +498,8 @@ magnet:?xt=urn:btih:F4B83F997F59CB4D14EC10D99526D566B4FCB438
 magnet:?xt=urn:btih:96FD8AA9C8157F5A340DF9B9209D1CE12E16F7C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +523,8 @@ Joel Snape, Jon Lipsey | Ultimate Training Bible (2016) [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:73223314AD19B43EBDA0C758E38C337F3F104A61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +552,8 @@ magnet:?xt=urn:btih:73223314AD19B43EBDA0C758E38C337F3F104A61
 magnet:?xt=urn:btih:AA84498AFC6654F6A649A8B7A3F227E8180D31C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +577,8 @@ magnet:?xt=urn:btih:AA84498AFC6654F6A649A8B7A3F227E8180D31C8
 ```bash
 magnet:?xt=urn:btih:AF835A65F19B6BACAA92EA59B4FAF16BE1ED491C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +606,8 @@ magnet:?xt=urn:btih:AF835A65F19B6BACAA92EA59B4FAF16BE1ED491C
 magnet:?xt=urn:btih:56F19AFE2ED4FE946F1C0C25D90DDB1FD2F0FF19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +633,8 @@ magnet:?xt=urn:btih:56F19AFE2ED4FE946F1C0C25D90DDB1FD2F0FF19
 magnet:?xt=urn:btih:BE634FB66E9259536905733179583374F635D1FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +658,8 @@ magnet:?xt=urn:btih:BE634FB66E9259536905733179583374F635D1FB
 ```bash
 magnet:?xt=urn:btih:9E94CEDF5B950F0760E4F7F5855C133AD7B7149E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,29 +685,7 @@ magnet:?xt=urn:btih:9E94CEDF5B950F0760E4F7F5855C133AD7B7149E
 magnet:?xt=urn:btih:AB05C82DB5F403E2CCCA86703A4695334C42497A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033337   (639487) от 10.07.2016
-
-Дэвид Хорсагер | Час тишины. И еще 34 инструмента, которые сохранят ваше время и энергию (2016) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга для тех, кому не помешал бы дополнительный день в неделе, чтобы все успевать. Дэвид Хорсагер собрал великолепную коллекцию из 35 простых стратегий, которые позволят любому человеку взять свою жизнь под контроль. Каждый прием можно сразу применять на практике, и в итоге больше успевать как на работе, так и дома, при этом существенно экономить время и силы. (   Читать дальше...   )Жанр: Самосовершенствование, личностный рост, практическая психологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CC10BF8B266DC791B30C8D1DC842EE87C429480
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

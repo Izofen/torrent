@@ -19,6 +19,8 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (57069/dlc) Repack seleZen [Deluxe
 magnet:?xt=urn:btih:F971F959213A6C7BE4DC79ACFE073093735EFFC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Warhammer 40,000: Space Marine (2025) [Multi] (1.0.1038.3669/dlc) Scene Rune [Ma
 ```bash
 magnet:?xt=urn:btih:6CA61B66139E3C6DD43F04A70ABEE055D38C8404
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Lies Of P была вдохновлена знаменитой историей 
 magnet:?xt=urn:btih:33554350970772CE8DE6849C87FC3D14BFF25EA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Lies Of P была вдохновлена знаменитой историей 
 ```bash
 magnet:?xt=urn:btih:4FD9F1175B9C959ACD9B6D9FE1F023AE409F37C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Deltarune - спин-офф головоломки Undertale, о чем гово
 magnet:?xt=urn:btih:5FA65E4D88DDE34DC710EEB1E6116FFB165CD4BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Dark Souls III продолжит испытывать игроков на пр�
 ```bash
 magnet:?xt=urn:btih:CA17364E31E0C17407711C9493EFEDC3B6C48C1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Rune Factory: Guardians of Azuma представляет восточную н�
 magnet:?xt=urn:btih:CD9D8EF7B2ED58D202F358752CE2630BAF6ECC7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Felvidek – события этой JRPG-игры разворачиваютс�
 ```bash
 magnet:?xt=urn:btih:2EDF8EE1A42DE073CC97AFCB5759CC7924182137
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.03/dlc) Repack Other s [S
 magnet:?xt=urn:btih:61958DD977126516A081180A5DF20D6F2EEA7FCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Hellslave (2022) [Multi] (1.46) License GOG
 ```bash
 magnet:?xt=urn:btih:C4AA3975327B37B4714B7F2A5EC907617C70D90C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Mirthwood (2024) [Ru/Multi] (1.0.66) Repack Let'sРlay
 magnet:?xt=urn:btih:96B50DFC9BB5F99F19807372777CC52F3711E291
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Lies Of P была вдохновлена знаменитой историей 
 ```bash
 magnet:?xt=urn:btih:777CAD81DF0964C44E747C76FCE5EB5CE7E4F5FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Starcom: Unknown Space - это увлекательное сочетание к
 magnet:?xt=urn:btih:2E3D22C2885BF84057B494A5E420BDC83A9E782F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Lies Of P была вдохновлена знаменитой историей 
 ```bash
 magnet:?xt=urn:btih:0EED785EEF35C7A80D0AF0061E8BF02CC20E19F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Yog-Sothoth's Yard - это ролевой симулятор строитель
 magnet:?xt=urn:btih:A7152A8520D54A466085A6592610E1015E2F4469
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Shardpunk: Verminfall - изометрическая игра, геймплей 
 ```bash
 magnet:?xt=urn:btih:357F21369E8671885063C7889F0A5931E1B9479B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Archons - это Roguelite, Survivor-игра, в которой вы управ
 magnet:?xt=urn:btih:D0BAA443D6BB82A5156A3A33633D165BEC32A0B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Of Blades & Tails (2022) [Ru/Multi] (1.1.5) License GOG
 ```bash
 magnet:?xt=urn:btih:B4E08E35403674119B54A2F68C0B0F6CC19CCCEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ SpellForce: Conquest of Eo (2023) [Ru/Multi] (01.10.31971/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:7455CF4A0F00A6563783437E38872F946583C244
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Twilight Wars (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:68CE83F7E217596589F181AE100F86939E0A7C50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.01/dlc) Repack Other s [Deluxe Editio
 magnet:?xt=urn:btih:4965F17604BCF06FEBD925DE5880F200D193A858
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Wayfinder (2023) [Ru/Multi] (211130/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:50FFA7E4ED254390DAA2BE7571AB647024502CDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Twilight Wars - dungeon crawler в киберпанк-сеттинге, где �
 magnet:?xt=urn:btih:672EE013CC9A5EA69DD27A640C4A9435CC7DE246
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ FANTASY LIFE i: The Girl Who Steals Time (2025) [Multi] (Build 29056319) Scene T
 ```bash
 magnet:?xt=urn:btih:177B70A23FAED87B78DD3D0747DA59E436E97DE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ FANTASY LIFE i: The Girl Who Steals Time (2025) [Multi] (1.1.1/dlc) Repack FitGi
 magnet:?xt=urn:btih:5A426AA436B7E11BDDBBEBB4E5923B402397CB3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.01/dlc) Repack seleZen [Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:2547194C44DC9A51118855B93F44D296FF21DAD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

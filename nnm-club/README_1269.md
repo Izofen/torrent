@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:CED461F7EBDDEC2DDC8504CB0437C32ED8CD84B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Ao no Exorcist: Yuki no Hate Hen | Blue Exorcist: Beyond the Snow Saga | Син�
 magnet:?xt=urn:btih:41D18BECB171BAC80785A963AB2A016DD9F63821
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:41D18BECB171BAC80785A963AB2A016DD9F63821
 ```bash
 magnet:?xt=urn:btih:FC91A5566B01A4C713D591079FC69D0FD4AE2A64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:FC91A5566B01A4C713D591079FC69D0FD4AE2A64
 magnet:?xt=urn:btih:91EA9041A68A5E01C900762590B3DB7A4835D811
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Notepad3 - удобный текстовый редактор на базе Scin
 ```bash
 magnet:?xt=urn:btih:A6BCC6131D03FF121E1E859891E6A992E3BDBD85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:A6BCC6131D03FF121E1E859891E6A992E3BDBD85
 magnet:?xt=urn:btih:C27AD671C9714F6E47F2AE65DFC3C1BFA4D799B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:C27AD671C9714F6E47F2AE65DFC3C1BFA4D799B0
 ```bash
 magnet:?xt=urn:btih:23666A6140D1168C7018F2C2B74DEB561FF34ADF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:23666A6140D1168C7018F2C2B74DEB561FF34ADF
 magnet:?xt=urn:btih:D48CFC455432E38189518FDC3F601A49EDADAD5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Stuart Butler, Tom Oliver | Game Development Patterns with Unreal Engine 5 (2023
 ```bash
 magnet:?xt=urn:btih:249FF069CE629A392456C022C1F9C1A8F2161DC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Atelier Ryza 3: Alchemist of the End & the Secret Key (2023) [Multi] (1.7.0.0/dl
 magnet:?xt=urn:btih:236F4AC50CD51B549E126C6771F75CF44BC2A0E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Truecaller: AI Call Blocker / Oпределитель номера v14.35.8 Gold
 ```bash
 magnet:?xt=urn:btih:158F6EC64F1C4B9F9FCA3F921FB6074BE69DE953
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:158F6EC64F1C4B9F9FCA3F921FB6074BE69DE953
 magnet:?xt=urn:btih:281E18C08732479345C5A2D2EEA3DE550F88A950
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Image Uploader - бесплатная программа для Windows c отк
 ```bash
 magnet:?xt=urn:btih:B9321DE3908BB0F5D35C703B8D7F8C81643F6D6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:B9321DE3908BB0F5D35C703B8D7F8C81643F6D6E
 magnet:?xt=urn:btih:7859E5600AC94A7165EEDCA626F4537072C48DC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:7859E5600AC94A7165EEDCA626F4537072C48DC8
 ```bash
 magnet:?xt=urn:btih:E10C1A22E8696E900DF525261A57AEC7B3DB7EE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ PIDKey Lite предназначена для просмотра, обновле
 magnet:?xt=urn:btih:257157B6ECB045D2724A9FA80DDF48F78E70C516
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:257157B6ECB045D2724A9FA80DDF48F78E70C516
 ```bash
 magnet:?xt=urn:btih:5FAD5AD63FA0B02180188DCFEFD1B3568019F88B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Folder Player Pro - это ориентированный на каталоги 
 magnet:?xt=urn:btih:544A6A1BFD2B5C83E7C16011FFBD42CE48B1870D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Party kara Tsuihou Sareta Sono Chiyushi, Jitsu wa Saikyou ni Tsuki / Целит�
 magnet:?xt=urn:btih:8B01F5B1A9ED8B4C02DE026265D20C81B8CCF94A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:8B01F5B1A9ED8B4C02DE026265D20C81B8CCF94A
 ```bash
 magnet:?xt=urn:btih:E46F3D01EAAAC2D20C460290A7C5287720F48BD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:E46F3D01EAAAC2D20C460290A7C5287720F48BD5
 magnet:?xt=urn:btih:A8CD058D45D5EAA8E6FAA393E35006289145388C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:A8CD058D45D5EAA8E6FAA393E35006289145388C
 ```bash
 magnet:?xt=urn:btih:C63F5C25AB64E0261047326ED0FEC589810BEA08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Kimi wa Meido-sama. / You Are Ms. Servant. / Ты — горничная [2024, 
 magnet:?xt=urn:btih:7045060FFB506CE79D4B345C5F9104FF16B8B735
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ DETECTIVE - The Motel (2024) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:E3748EF9CA7B64F67393A85AC88F99F390974972
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ Tensei Kizoku, Kantei Skill de Nariagaru 2 / Переродившись арис
 magnet:?xt=urn:btih:BD978F4B93C8C24A0F5F2CEAE565B6BF59C28B5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ magnet:?xt=urn:btih:BD978F4B93C8C24A0F5F2CEAE565B6BF59C28B5C
 ```bash
 magnet:?xt=urn:btih:A74984B0851D1A8A7821EFEB1E2214D3813BC237
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

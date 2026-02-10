@@ -1,3 +1,67 @@
+###  Публикация: 643427   (872756) от 14.04.2013
+
+Motorhead - 11 альбомов (1979 - 2004) Japan Edition [FLAC|Lossless]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.Terminal Show [03:45]
+02.Killers [04:14]
+03.In The Name Of Tragedy [03:03]
+04.Suicide [05:07]
+05.Life's A Bitch [04:13]
+06.Down On Me [04:12]
+07.In The Black [04:31]
+08.Fight [03:42]
+09.In The Year Of The Wolf [04:17]
+10.Keys To The Kingdom [04:46](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496395   (872857) от 17.09.2021
+
+Eternal Flight - SurVive (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Will We Rise Again
+02. Hear The Call
+03. Legions
+04. The Promise(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BCEDA4FF28BA02FA3B3F02948823B4BB30D92AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 300975   (872934) от 26.02.2011
 
 Die Apokalyptischen Reiter - Moral & Wahnsinn (2011) [FLAC|Lossless]<Folk / Melodic Death Metal>
@@ -28,6 +92,8 @@ Die Apokalyptischen Reiter - Moral & Wahnsinn (2011) [FLAC|Lossless]<Folk / Melo
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +120,8 @@ Sodom - M-16 (2001) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:8BDE6E6519B56A3D78B6A7D8E2B60DBCDE100B86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +150,8 @@ Lamori - Neo Noir (2020) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
 magnet:?xt=urn:btih:3B9B4D69B876B0D815E80C3AE685B0044CB5AAB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +178,8 @@ By the Thousands - Dead Matter (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 ```bash
 magnet:?xt=urn:btih:07E724E6E4100F052D3F08692B26A517A68073B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +208,8 @@ Tales Of The Old - The Book Of Chaos (2021) [FLAC|Lossless|WEB-DL|tracks] <Symph
 magnet:?xt=urn:btih:1B0BCF2A91D52C2472752FB451C0BC0286B67930
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +236,8 @@ Van Canto - Voices Of Fire (2016) Limited Edition [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:86D4B3F8C15B72D17EDE5D0AFB41257C3DBAFCD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +266,8 @@ Carcass - Torn Arteries (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 magnet:?xt=urn:btih:21B5CD62ACD01D43CB2663D3A0824E62BE64F80F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +294,8 @@ Rage - Resurrection Day (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Speed
 ```bash
 magnet:?xt=urn:btih:C459BDF94CF47A8C9D8D8CC9F20A2FED35ACEF7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +324,8 @@ Edge Of Paradise - The Unknown (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic M
 magnet:?xt=urn:btih:18B2188EECE8219BB30383AF3B52961C21D820BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +352,8 @@ Apostolica - Haeretica Ecclesia (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic 
 ```bash
 magnet:?xt=urn:btih:E3A34A488E2F63992C3C08E60459FC4B52EABD45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +382,8 @@ Robledo - Wanted Man (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:AAA6722750F01B420A8BFCD46270989A27C8FCAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +410,8 @@ Criminal - Sacrificio (2021) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:80B7E3C543CA313CB03F1C8C3BFA8A24EC60A4E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +440,8 @@ Thomsen - Let's Get Ruthless (2009) [FLAC|Lossless|image + .cue] <Heavy Metal, P
 magnet:?xt=urn:btih:325F6853195F72DD9FE6F6A441F233F16BEBAA7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +468,8 @@ Eden's Curse - The Second Coming (2008) Limited Edition [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:7C9E58887DF9419E81A96F36516730EA0A77ABB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +498,8 @@ Urgehal - Aeons in Sodom (2016) [FLAC|Lossless|image + .cue] <Black Metal>
 magnet:?xt=urn:btih:8D643E6C9FDB07BABAABA5AC8809050EB72459D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +526,8 @@ Augrimmer - Moth and the Moon (2016) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:5197F5F78DB9BE9B234F3FB7CEAD14A145636535
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +557,8 @@ Tanzwut - Freitag Der 13. (2015) [FLAC|Lossless]<Folk Metal / NDH>
 magnet:?xt=urn:btih:E8716B1B0634A5C21B6CAACE3325C7F15982CD48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +585,8 @@ Black Label Society - Hangover Music vol. VI (2004) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:83046DE0FD9ACE5FFD4A167A3081A7372D2EC6A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +615,8 @@ Mr. Bungle выпустили специальный хэллоуинский в
 ```bash
 magnet:?xt=urn:btih:7DD7BC5B187947F2DD1C38456A5735A4854FD547
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +651,8 @@ Sonic Syndicate - Дискография(2005-2010) [APE/PLAC|Lossless]<Modern /
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +679,8 @@ Blackguard - Profugus Mortis (2009) [FLAC|Lossless]<Folk Black Metal>
 ```bash
 magnet:?xt=urn:btih:5DBA1C657CDBE4D5B8ADDE138DAADF137D360D03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +709,8 @@ Imperia - Queen Of Light (2007) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 magnet:?xt=urn:btih:19CF1CBE9C2992F31C6E0BA5ADE869A47F7C7702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +737,8 @@ Barren Earth - Curse Of The Red River (2010) [FLAC|Lossless|image + .cue] <Progr
 ```bash
 magnet:?xt=urn:btih:4F70757798FCED54655C29D9DBF68352C39D6BFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -657,71 +767,7 @@ Merciless Death - Realm Of Terror (2008) [FLAC|Lossless|image + .cue] <Thrash Me
 magnet:?xt=urn:btih:FB5AC5123B7B9FE26CA99D6C198250E94118CAF5
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 765445   (874840) от 12.03.2014
-
-VA - Butchering The Beatles (2006) [FLAC|Lossless]<Hard'n'Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.  Hey Bulldog [04:11]
-02.  Back In The USSR [03:30]
-03.  Lucy In The Sky With Diamonds [04:05]
-04.  Tomorrow Never Knows [04:04]
-05.  Magical Mystery Tour [04:30]
-06.  Revolution [05:01]
-07.  Day Tripper [03:45]
-08.  I Feel Fine [03:39]
-09.  Taxman [03:49]
-10.  I Saw Her Standing There [03:58](   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2E2D2D5EB1436ACFD34A537FA16679995683969
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 765567   (874977) от 12.03.2014
-
-Destrage - Are You Kidding Me? No. (2014) [FLAC|Lossless]<Thrash/Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Destroy Create Transform Sublimate
-02. Purania
-03. My Green Neighbour
-04. Hosts, Rifles & Coke
-05. G.O.D.
-06. Where the Things Have No Colour
-07. Waterpark Bachelorette
-08. Before, After and All Around
-09. - (Obedience)
-10. Are You Kidding Me? No.Жанр: Thrash/Death MetalПродолжительность: 00:49:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27FCA704F4A848077FF82C3AF4B5FB9A66B8EA58
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

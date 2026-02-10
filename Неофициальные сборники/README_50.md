@@ -28,6 +28,8 @@ VA - 100% Хиты DFm 50/50 (2012) [MP3|256 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:A2BC26729AE1DBC26D6D96FE4E36FB2BD718CFBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #78  (2012) [MP3|320 кб/с]<Tra
 ```bash
 magnet:?xt=urn:btih:559B9FD65AD9103D539AF0B126983EE0DB5D1DE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ VA - House Vip (13.03.12) [MP3|320 кб/с]<Electro House>
 magnet:?xt=urn:btih:228C956A58DC6D71D109DAC7FE0E58EF52750B7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +132,8 @@ VA - HouseVip  (16.03.2012) [MP3|320 кб/с]<Electro house>
 ```bash
 magnet:?xt=urn:btih:DB6EC0CDE769A1E6CF7A5C3CE07563E686CB7540
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +168,8 @@ VA - Весенний музыкальный бум 50/50 (2012) [MP3|256 кб/�
 magnet:?xt=urn:btih:B80B9414FC94009F019523E9042E02418F9DF75E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +202,8 @@ VA - MAXI. Electro Тебе в тачку (2012) [MP3|320 кб/с]<Club, Electro
 ```bash
 magnet:?xt=urn:btih:3953D8FC1D88BBB8F7F150D4978F750BBAF4ED52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +238,8 @@ VA - Бездна Party (2012) [MP3|256 кб/с]<Шансон>
 magnet:?xt=urn:btih:87D38AA9215E76613ED82ABF825261485C4DB7AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +272,8 @@ VA - Вечеринка Love Radio (2012) [MP3|256 кб/с]<Pop,Dance>
 ```bash
 magnet:?xt=urn:btih:C983255EEE76F991DA31AAA1619F223B7E59D7F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +308,8 @@ VA - Муз-треки Блатного радио Vol-2 (2012) [MP3|256 кб/с
 magnet:?xt=urn:btih:B1B70553C22BBD1A641B61FB815B3684C3BC080B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +340,8 @@ VA - Trancern 33.4: Official Compilation (25.03.2012)
 ```bash
 magnet:?xt=urn:btih:EAD886DAAB1D7FF788EB4A8E1713922F2C10DB0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +376,8 @@ VA - XXXL Продвинутый Русский Весна (2012) [MP3|256 kbps]
 magnet:?xt=urn:btih:E602F64EF90E7615876BFACC525E86315BB9BAD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +410,8 @@ VA - XXXL Максимальный Хит 50/50 (2012) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:4EDC50467600868ABEA3F6D3C4B8F3C83EBF1E95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +446,8 @@ VA - Зажги танцпол 50/50 (2012) [MP3|256 кб/с]<Рор>
 magnet:?xt=urn:btih:8CF9A82495397E01D94151FE807908835FE286BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +480,8 @@ VA - Русское Радио. Фестиваль Хитов (2012) [MP3|128 kb
 ```bash
 magnet:?xt=urn:btih:442D725C26A95E335C7FBD6294A1198F20F55B0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +516,8 @@ VA - Deep Line. Best Of ChillOut & Lounge (2012) [MP3|320 кб/с]<Downtempo, Lo
 magnet:?xt=urn:btih:60F99F9EE824F28A401A74F120117407A90B590A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +550,8 @@ VA - Гуляй братан! Песни шансона (2012) [MP3|256 кб/с]
 ```bash
 magnet:?xt=urn:btih:D4A8006F4B75D9E463658E927CB8DB8DBE797D17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +586,8 @@ VA - RU Dj's vol.2 (2012) [MP3|192 kbps]<Club | Dance | House>
 magnet:?xt=urn:btih:00D133CFD4D6151BBB92E57E5618F5DC869FEAA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +620,8 @@ VA - V2-GD [by Pack Master Ex.Mu.] (22.03.2012) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:200B867ADB20DE10B184ACA27BF01B8AF9949D98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +656,8 @@ VA - VA - RU Dj's vol.3 (2012) [MP3|192 kbps]<Club | Dance | House>
 magnet:?xt=urn:btih:FCF29869A5DF0D8A04A53900A4AAD30A4ADDC87F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +690,8 @@ VA - Orchid Lounge (2012) [MP3|320 kbps]<Lounge | Сhillout>
 ```bash
 magnet:?xt=urn:btih:D45645DB30383B4327F03E103DAA037E3F78589D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -686,6 +726,8 @@ VA - Dub Step vol.6 from AGR (2012) [MP3|256 kbps]<Dub Step>
 magnet:?xt=urn:btih:6785C069099DA21E9C529BEE66F557A30C8D6037
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -718,6 +760,8 @@ VA - Dub Step vol.7 from AGR (2012) [MP3|256 kbps]<Dub Step>
 ```bash
 magnet:?xt=urn:btih:3231220E6F4DB728207741F4B7849A6D930A17C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -752,6 +796,8 @@ VA - Лучший клубный драйв (2012) [MP3|192-256 kbps]<Club>
 magnet:?xt=urn:btih:6ECE1CBE7F29B29361B00D59E8F53AA805047850
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -784,6 +830,8 @@ CD1 Время звучания 01:15:59
 ```bash
 magnet:?xt=urn:btih:8724F6E6CD66CA971F4D0FB5B9B913F69406CD52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -818,6 +866,8 @@ VA - Слушай Электронный Рок Maximum (2012) [MP3|256 kbps]<Р
 magnet:?xt=urn:btih:01A75450200A63E789812EF1AB8B289A0A4A1B52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -850,6 +900,8 @@ VA - Absolute Dance Hits (2012) [MP3|256 кб/с]<Dance, Рор>
 ```bash
 magnet:?xt=urn:btih:CCA869585816232DE00124A7E5CE45ACB657BB2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

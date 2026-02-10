@@ -19,6 +19,8 @@ Wise Care 365 – программный пакет, предназначенн�
 magnet:?xt=urn:btih:8996A0EC0A0C0AC5C1944E5508FEFEED25596E87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BitComet - это функциональный, быстрый и простой
 ```bash
 magnet:?xt=urn:btih:CE84842F6C9CEA03FA7606E975A0DF665029C4EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Freeplane – создание ментальных карт в настояще
 magnet:?xt=urn:btih:A039B2979917965217A868E493808B1E8C03BAE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Opera One 102.0.4880.56 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:487014C2A37AC7D7BAFE5D36D8174F322AB62322
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Opera 92.0.4561.61 Portable by Cento8 [Ru/En]
 magnet:?xt=urn:btih:B9873D463B520DEA6023C35973E6476DFE60E442
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ AOMEI Partition Assistant Standard Edition бесплатный многофун
 ```bash
 magnet:?xt=urn:btih:513916FC3D56E6D69C552F09BA5DF024CC6D4213
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Extreme Picture Finder - программа для автоматическог�
 magnet:?xt=urn:btih:236ABFAAA01C9F4F6706244B7000344EE33CC5C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ PDF-XChange Editor — программа для просмотра, редак�
 ```bash
 magnet:?xt=urn:btih:D6C125851B280EC706152718263AA22FCA77AEBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ AIMP 5.10 Build 2414 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:7C5B96854E15769179B9E7169EC3738D3F7FC4C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ RarmaRadio - программа для прослушивания и запис�
 ```bash
 magnet:?xt=urn:btih:A738509A5C4D214A27AE7FC0509E45D7CFFDD05F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Sketch - это инструмент для векторного дизайна 
 magnet:?xt=urn:btih:ED09C6896743A2117B5E6C0C3D07A156B0088530
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ EF Commander  — замечательный двухпанельный файл
 ```bash
 magnet:?xt=urn:btih:A92BBBAFB769F4A7CEC2F4A32612B8DDD7CFF394
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Waterfox — это браузер, основанный на исходном �
 magnet:?xt=urn:btih:383496E74E21C04B75B0DDCAB9CD46698197DE05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ D16 Group - Effects Plugins 11.2022 VST, VST3, AAX (X86/X64) [En]
 magnet:?xt=urn:btih:B0F4E93E94676C150B6DEC860267C47DCA1271DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ Icecream Screen Recorder - программа, позволяющая вести
 ```bash
 magnet:?xt=urn:btih:4AFE3B95A67223B0709DF69DDE6236F88C01F179
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ LibreWolf как раз решает (   Читать дальше...   )Язы
 magnet:?xt=urn:btih:B563488250865F660F81A56055E11E8D38DB7105
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:D9AC2E6574D8603D92D41DDF9F95EAF54022996D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ XY VPN — это абсолютно бесплатный VPN! Быстрое и
 magnet:?xt=urn:btih:A0B08BF6C7548EFB42C4468D05FA09F7741871F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ FileMenu Tools настраивает пункты контекстного ме
 ```bash
 magnet:?xt=urn:btih:693E5E8423738456AB0E9BD19F3D6EC1F9D145F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ Universal USB Installer – портативная программа для с�
 magnet:?xt=urn:btih:BD9ECF8B1B94DCE5576C3EEDCA3CCAC7F763E785
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ Draw.io 21.7.5 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:431416F8B7B0A82AD50B83F00A4B290764A5146E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ Mullvad Browser подойдет для пользователей, которы
 magnet:?xt=urn:btih:19A41569971ED937323288EE289D67EF9502BD84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ digiKam — фото-менеджер для Windows — программа дл
 ```bash
 magnet:?xt=urn:btih:9257D305FF4EE5DFD97BAA0FEDE2DC57E0C5E5B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ Opera 92.0.4561.61 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:CF65F08C3C2D14D9C568F8094FE0A153D49F29E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ PDF Extra - универсальное приложение, что обеспе
 magnet:?xt=urn:btih:6057304ED2B11ECA3A192C5F9D9C2D7DBFCF88BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Icecream Screen Recorder - программа, позволяющая вести
 ```bash
 magnet:?xt=urn:btih:7B189E0ED9C57F1C2FA379A8A97F399FA921ECB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

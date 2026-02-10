@@ -19,6 +19,8 @@ Learn Squared, Philipp Kruse | Character Illustration (2020) WEB-DLRip [RU, EN]
 magnet:?xt=urn:btih:3F0D5B4BE539B829FC67B88BA719C6CF914EF589
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Udemy, Roman Dushkin | Блокчейн и атаки на него (2022) WEB-D
 ```bash
 magnet:?xt=urn:btih:C065FAF958884B61F384993B1E492846C01EAEEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Gumroad, Cedric Lepiller | Sony BSP10 - Non-Destructive workfow on Blender 2.8 (
 magnet:?xt=urn:btih:2B5404092968618413FD888318BCABAF49109D99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:2B5404092968618413FD888318BCABAF49109D99
 ```bash
 magnet:?xt=urn:btih:0EB6051E946F9E105B96AE50F64AC49BD035CF7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Cubebrush, Marc Brunet | Character Concept for Video Games (2014) PCRec [En, Ru]
 magnet:?xt=urn:btih:C2871F94A73C90F900B671375416359FF7389242
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ New Masters Academy, Erik Olson | Perspective 17: Drawing the Figure in Perspect
 ```bash
 magnet:?xt=urn:btih:D3CEB84C42A1944BCDA90AC2A8141190D1E7BD80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Learn Squared, Paul Chadeisson | World Building (2018) WEB-DLRip [RU, EN]
 magnet:?xt=urn:btih:D991654BC8BB332E210DFBB3E55C76726F465D56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Grant Warwick | Mastering Lighting Lessons 5 (2017) PCRec
 magnet:?xt=urn:btih:AC14B7387C6F4F721C9A8EC939CF8CE3A292A892
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Grant Warwick, Grant Warwick | Mastering Lighting Lessons 5 (2016) PCRec [Час
 ```bash
 magnet:?xt=urn:btih:7504E0464F82A8E2666C5EA1DAF4C515FD8A40D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:7504E0464F82A8E2666C5EA1DAF4C515FD8A40D0
 magnet:?xt=urn:btih:C23B030BB182D22676F85DB5E18AE81989D21DBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Hudozhnik Online, Настасья Кучинская | Рисование те�
 ```bash
 magnet:?xt=urn:btih:6DC72E5D31A2D499DE6A4FCEDB9490C84CC2C4E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ Udemy, Alex Hanneman | Introduction to Nuke VFX Compositing: The Essentials - NK
 ```bash
 magnet:?xt=urn:btih:0F355534343DD7A614CABCC27D210DFF14386BF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ English For IT, Анна Гандрабура | Английский для те
 magnet:?xt=urn:btih:CC6EA9F8A44D05A780EBFA9DF2C662F97069EFD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ Udemy, Harsh Gupta | Paint and prep training in Nuke: fundamental – NK101 (202
 ```bash
 magnet:?xt=urn:btih:98CE5CE0BBDC2811959ABCFAE8A0143F0CE02515
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ Domestika, Trini Guzmán | Interior Mural Painting (2023) WEB-DL [AD] [ES / EN, 
 magnet:?xt=urn:btih:95257CCAB476285907E39B256A78B4434C0019D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:95257CCAB476285907E39B256A78B4434C0019D6
 ```bash
 magnet:?xt=urn:btih:49F1CEF1702BF9A7D51D0E769FAEC559E5761CED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +464,8 @@ Yandex.ru | Курсы информационных технологий, Тре
 magnet:?xt=urn:btih:A08B19CD2523FE00FB4EC63F22E4943B7304FF33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +491,8 @@ Liveclasses, Антон Мартынов | Нейросети для генер�
 ```bash
 magnet:?xt=urn:btih:DDA5C4EB3059830474E8F54E1910152960ABB2F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +521,8 @@ Udemy, Vyara Georgieva | The Complete English Grammar Course - from A1 to C1 lev
 magnet:?xt=urn:btih:FB34BA964660668B46F2403A8185BD7090F72246
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +546,8 @@ magnet:?xt=urn:btih:FB34BA964660668B46F2403A8185BD7090F72246
 ```bash
 magnet:?xt=urn:btih:872E34EBD169CA0DB537220D4364DFED51C2FE47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +576,8 @@ BigData Team, Алексей Драль, Артём Выборнов, Павел
 magnet:?xt=urn:btih:DBFEF4409E0AA782D650A01577AC8D121BEA34EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +604,8 @@ Slurm (Слёрм), Виталий Филиппов и др. | Ceph (2022) WEB-D
 ```bash
 magnet:?xt=urn:btih:0B63B9A14AB7CDEE0CB2AB72741B373602E843FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +634,8 @@ Voitixler, Екатерина Векслер | Практический онла
 magnet:?xt=urn:btih:33ED0F88E24568963FDB4DC26BA000D788E084F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +661,8 @@ Skillbox, Алина Гончаренко, Александр Чайка | Ос�
 ```bash
 magnet:?xt=urn:btih:45A49448FA5F45024AD0A19AB29146BF0ED512E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +691,8 @@ Skillbox, Дмитрий Бородин и др. | Финансовое моде
 magnet:?xt=urn:btih:94E139E2E0AE7A852631E3BD542F7F0F511CC41E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +719,8 @@ WPCourses, Алейников Сергей | Как быстро и правил
 ```bash
 magnet:?xt=urn:btih:0416793041E8E8917CAEAB5922F411B899277492
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

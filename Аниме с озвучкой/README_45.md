@@ -19,6 +19,8 @@ Mirai no Mirai | Mirai of the Future | Мирай из будущего [2018, M
 magnet:?xt=urn:btih:EA27DFAE07447D43A739F0D9D21E386473A066B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Nakitai Watashi wa Neko wo Kaburu | Сквозь Слёзы я Притворя�
 ```bash
 magnet:?xt=urn:btih:4DCE0BAF380FCBBF9E59566E20962AC51B819383
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:4DCE0BAF380FCBBF9E59566E20962AC51B819383
 magnet:?xt=urn:btih:E573B09B02C501CB0D3A800486B179ED94C0801E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:E573B09B02C501CB0D3A800486B179ED94C0801E
 ```bash
 magnet:?xt=urn:btih:4B368189683765F2BF2259C3C99CB420DE4690D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Shingeki no Kyojin / Attack on Titan / Атака титанов / Вторже�
 magnet:?xt=urn:btih:71D2C9A8A50406C3D1EC4212F25629BD8AB6D4F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:71D2C9A8A50406C3D1EC4212F25629BD8AB6D4F4
 magnet:?xt=urn:btih:F53D19B3AABCDCE1E4E1B4C67E034216DEB310C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ magnet:?xt=urn:btih:F53D19B3AABCDCE1E4E1B4C67E034216DEB310C5
 ```bash
 magnet:?xt=urn:btih:9CE7DE38D3B3B58E5F860530F385C942BD92CAD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Coppelion / Коппелион [2013, TV, 13 ep] BDRip Hi10p 720p Raw+Rus
 magnet:?xt=urn:btih:9E1AA005D973D3D5C5A9B8D9020D401F80661933
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Tokyo Ravens / Токийские вороны [2013, TV, 24 эп. + SP] BDRip 1
 magnet:?xt=urn:btih:C1E6DC13C9F11B0013EBC9F6A08253E76A5A1881
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:C1E6DC13C9F11B0013EBC9F6A08253E76A5A1881
 ```bash
 magnet:?xt=urn:btih:D5F8AC368B6D90D58F3CEFDE948337D983552B5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ LiteSun, AkiraПродолжительность: 13 серий по 25 мин.
 magnet:?xt=urn:btih:1DB39D03E68D0DE8ED5759395518281F156DA84F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Ore ga Suki na no wa Imouto Dakedo Imouto ja Nai / My Sister, My Writer / Моя
 ```bash
 magnet:?xt=urn:btih:98B73E998782EDF88369AFB499D75FF5E726F74F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ Omoide no Marnie / When Marnie Was There / Воспоминания о Марн�
 magnet:?xt=urn:btih:19D59994E30E9E0D4706C6059E6C4F7EFDA6AE82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:19D59994E30E9E0D4706C6059E6C4F7EFDA6AE82
 ```bash
 magnet:?xt=urn:btih:81A2A6DB56034A6CA03FC6C020DC78B9E249F5C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Junketsu no Maria / Maria the Virgin Witch / Непорочная Мария [20
 magnet:?xt=urn:btih:B38130CDDCBEA12AB31C8CE346D19E62309D2E98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Saijaku Muhai no Bahamut / Undefeated Bahamut Chronicle / Хроники неп�
 ```bash
 magnet:?xt=urn:btih:3971161D253A0ED25046DA235742FDE228BEB4FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Gakkou Gurashi! / School-Live! / Школьная жизнь! [2015, TV, 12] HDT
 magnet:?xt=urn:btih:23786B4E08539BA65FD6B33ADEC31B4013137AC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Hugtto! Pretty Cure | Хорошенькое лекарство: Объятия 
 magnet:?xt=urn:btih:C0DE6ADE85D96CCF3F32EA8F721A4298DAF64213
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Freezing / Заморозка [2011, TV, 12 из 12 серий] SDTV 720p raw + 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ TV-1 (Anilibria), (Persona99), (SHIZA Project), (SovetRomantica), - внешни
 magnet:?xt=urn:btih:63B27FA1659944C1964199F411EB12CD283E0496
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Youjuu Toshi | Wicked City | Город чудищ [1987, Movie] BDRip 1080p raw
 magnet:?xt=urn:btih:DB8170B7D28F14A7C8B8BC28704A830439EB6F13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Beastars | Выдающиеся звери [ТВ-1] [2019, TV, 12 эп.] BDRip 1
 ```bash
 magnet:?xt=urn:btih:AEA8AC1FABB87A205B361079D4FF048D2677110A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ Brave Witches | Храбрые Ведьмы [2016, TV, 12 ep + OVA] BDRip 1080p 
 magnet:?xt=urn:btih:6BFD99C44AFC81D6C1E9D1DAC150985392BE6FF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:6BFD99C44AFC81D6C1E9D1DAC150985392BE6FF5
 ```bash
 magnet:?xt=urn:btih:4B9AE6A6FD7EA7A52201A94929897B35D6C1F42C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:4B9AE6A6FD7EA7A52201A94929897B35D6C1F42C
 magnet:?xt=urn:btih:A656E56A01A04A9C95356F1C8620BB2CA813690D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Lie Huo Jiao Chou | Drowning Sorrows in Raging Fire | Топить печаль 
 ```bash
 magnet:?xt=urn:btih:AFABB0F8A0E6C5262F6937AF125C6724E10678D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

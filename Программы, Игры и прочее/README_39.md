@@ -19,6 +19,8 @@ Malwarebytes Mobile Security – это антивирусное приложе�
 magnet:?xt=urn:btih:56D3AD582B0DA6D18D8BB48AFA1A853F3323C062
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Malwarebytes Mobile Security – это антивирусное приложе�
 magnet:?xt=urn:btih:F191F29940D89B8F543905535A09BF6254F1C89B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ ToonMe v0.7.7 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:26E72F203E8E793C24503793E16FBA8898912727
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:26E72F203E8E793C24503793E16FBA8898912727
 magnet:?xt=urn:btih:2ED408CE2B6F2B75756349D6F73C10FD930943D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Listen Audiobook Player v5.2.7 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5C1CE0C6C367593BBD03957AF443136E6B12C746
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Gaia GPS (Topo Maps) v2024.4 b7878 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:741FF448532AE88EAD0F4DD511197AC7FD0993FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ vpnify: лучший БЕСПЛАТНЫЙ, БЕЗЛИМИТНЫЙ и высок�
 ```bash
 magnet:?xt=urn:btih:1D71C785FDAEAEDBC259DA42CA04105EB17B6C5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ vpnify: лучший БЕСПЛАТНЫЙ, БЕЗЛИМИТНЫЙ и высок�
 magnet:?xt=urn:btih:4F4E7697F58216831C09462B05AC61E6A919DF44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:4F4E7697F58216831C09462B05AC61E6A919DF44
 ```bash
 magnet:?xt=urn:btih:1761AE4BB7CDB0D6B51BC47B571B70D904EA7811
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Enhance it v4.1.8 Mod by srajawwal09 [Ru/Multi]
 magnet:?xt=urn:btih:7A8B0A8C8B8871A1DEE5C89A0147F001430191DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ FBReader Premium v3.6.6 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E0167622F99E122C9B98EC904B5D3B58DBDC99E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Carista — мобильное приложение, с помощью кото�
 magnet:?xt=urn:btih:9AE3A751F38541095901354EB0E72A99230D4209
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Patephone / Патефон v10.11.17 Mod by vl80k747 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A4072E1FB44D7F861D4FC88450B66EB40A0D4CB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Words – это лучшее приложение для изучения сл�
 magnet:?xt=urn:btih:293393AD68F896EF20A9F5BEE1727701FFACD402
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:293393AD68F896EF20A9F5BEE1727701FFACD402
 magnet:?xt=urn:btih:39DBA4B1A80B7617695406620A8BD7F2DFC596CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ MiXplorer Silver - ещё один файловый менеджер для вз
 ```bash
 magnet:?xt=urn:btih:DC1B90E0DCD010E3EF80F0DD1CFDBCA593BDECBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ App Manager обладает красивым пользовательским �
 magnet:?xt=urn:btih:95FDA371CA84D8D298E02F9F88B86E2F55C5C25F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Easy Notes - записная книжка, блокнот бесплатно, �
 ```bash
 magnet:?xt=urn:btih:233B3A7654F30F35A5E65501BBD27524BB4640DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Grab Photos From Videos / Фото из видео v11.1.9 Mod by derrin [Ru/Mul
 magnet:?xt=urn:btih:5052A58D543A4C2B9B31D168F9867187932E2E25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ AIDA64 2.01 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C4597C168C3356F4D327F35165986C7B83F36122
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ Square Home - красивый, стильный и функциональный
 magnet:?xt=urn:btih:5559A5F3B6D7232F2551D86DB8B4B8DD2238A5C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ WPS Office - очень полезное, офисное приложение д
 ```bash
 magnet:?xt=urn:btih:CDE367AA7145D1B281A82FF616B268DBA190EC1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ TuneIn объединяет спортивные события, музыку, �
 magnet:?xt=urn:btih:9BE1035ED40C4A4A394565EAF71F4DD8A3A3EC82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:9BE1035ED40C4A4A394565EAF71F4DD8A3A3EC82
 ```bash
 magnet:?xt=urn:btih:758C0696D72A8C5A8BDB1403C128387454AED85C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ PDF Extra PDF Editor & Scanner v10.13.2479 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:BBA4B28FC5AE2D00AB60528F2537E74C6677875C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ tTorrent - удобный, функциональный и из-за прочи�
 ```bash
 magnet:?xt=urn:btih:91F4BC9ED9DB6AB295DC6578280F35761D41F2EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

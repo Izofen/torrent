@@ -19,6 +19,8 @@ BBC: Суперстая / Swarm: Nature's Incredible Invasions (Megaschwaerme. D
 magnet:?xt=urn:btih:AACFACAEF60DA77CFB46E911A734FA1CE454C22E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Discovery. Рыбацкие легенды Якуба Вагнера / Rybi Lege
 ```bash
 magnet:?xt=urn:btih:6557068DBED73B063D99335183F7FD7654282765
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Discovery. Техногеника. Ту-144. Первый пассажирски
 magnet:?xt=urn:btih:70C3AD6F5A8145D3B40A404C1D314C6B44FEFF66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ BBC: Величайшие явления природы (эпизоды 1-6 из
 ```bash
 magnet:?xt=urn:btih:E9B17640DFCDC43F15D322EA84D0B40BD28910C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ BBC. Horizon: Война против науки / A War On Science (2006) DVBRi
 magnet:?xt=urn:btih:6635A6AC3419A9C55B316DBC320AC9097F4E9559
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:6635A6AC3419A9C55B316DBC320AC9097F4E9559
 ```bash
 magnet:?xt=urn:btih:8C8DB1CCBD48DBD67741CFB7BA90DE135C590B13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ NG: Войны насекомых / Insect wars (2005) HDTVRip [H.264/1080p-LQ]
 magnet:?xt=urn:btih:6B83ED02C8FFF7F5697D0BD74949B6ADE739738B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Animal Planet: Дом для рептилий. Террариум юрского
 ```bash
 magnet:?xt=urn:btih:DD6FED649EDCD0A754A9ECC9975926693B9BDA8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Discovery. Чужая планета  / Alien Planet (2005) HDTVRip [H.264/720p-
 magnet:?xt=urn:btih:550A6BAE500F3627E9DFDE16AB2F5FD62C6005E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:550A6BAE500F3627E9DFDE16AB2F5FD62C6005E3
 magnet:?xt=urn:btih:E4DB58C78D899FF687538D67764A103064100F52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:E4DB58C78D899FF687538D67764A103064100F52
 ```bash
 magnet:?xt=urn:btih:B3944437FC03EFEF98F2E965093F007576DCA1F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:B3944437FC03EFEF98F2E965093F007576DCA1F3
 magnet:?xt=urn:btih:E6E5FD1CA0342D3CCD46931CA2C58A935E166E2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:E6E5FD1CA0342D3CCD46931CA2C58A935E166E2B
 ```bash
 magnet:?xt=urn:btih:74A538A794BE6A1748C59AC85C5DCA401233603A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ NG. Реальность или фантастика? Привидения / Is 
 magnet:?xt=urn:btih:6BB40E797F6EF04A58BE4AD44F6B681C72EA6E2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ BBC: Невидимые миры / Richard Hammond's Invisible Worlds (2010) BDR
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ BBC: Невидимые миры / Richard Hammond's Invisible Worlds (2010) BDR
 magnet:?xt=urn:btih:B07FF47F1CD40C4D32A5DC73078B349AD103E78B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ BBC: Вырастая во Вселенной [5 из 5] / Growing Up in the Uni
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/720p] 
 ```bash
 magnet:?xt=urn:btih:220B437298945A1DE45A8D7E37F64B8F67D30668
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ NG. С точки зрения науки. Морские чудовища др�
 magnet:?xt=urn:btih:48D219B48B59BDA086EFB3E0F384DC107DB8E255
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:48D219B48B59BDA086EFB3E0F384DC107DB8E255
 ```bash
 magnet:?xt=urn:btih:BF0AE136BEA44CF1BFAF93A256BA733F2A3FA775
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ magnet:?xt=urn:btih:BF0AE136BEA44CF1BFAF93A256BA733F2A3FA775
 magnet:?xt=urn:btih:634911D644C72C080431846C0BFB96D60D6969C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:634911D644C72C080431846C0BFB96D60D6969C8
 magnet:?xt=urn:btih:13C25BDB48699FD3A95F6003CF1DAAC3B0C870F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ BBC. Как устроены шикарные отели. Marina Bay Sands (Си
 ```bash
 magnet:?xt=urn:btih:CBC807B57F084F635A68605E8A234FD591B9D030
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:CBC807B57F084F635A68605E8A234FD591B9D030
 magnet:?xt=urn:btih:339CD68798CA6CF6D71902ED2A6A9B1FA5862B14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:339CD68798CA6CF6D71902ED2A6A9B1FA5862B14
 magnet:?xt=urn:btih:5AD2A148493622D8E0B9CE328DBB26C64E826597
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:5AD2A148493622D8E0B9CE328DBB26C64E826597
 ```bash
 magnet:?xt=urn:btih:426852E1FF56506F4418CF6C70430A1B7AC22069
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

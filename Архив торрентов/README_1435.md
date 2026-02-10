@@ -19,6 +19,8 @@ Foxit Reader - профессиональное приложение для чт
 magnet:?xt=urn:btih:72B96C8A4E6ECA339C4B616710D682014D713AE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:72B96C8A4E6ECA339C4B616710D682014D713AE6
 ```bash
 magnet:?xt=urn:btih:24D3BFFC122E78A6B6D6CBF8A629421A3968E5CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ CCleaner - утилита для чистки мусора в операцион
 magnet:?xt=urn:btih:EC4DF0EB1CDC4D58F25EDB606068B260FC062D6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ SamDrivers 23.5 Expert [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DC717652D744081C0FBFEFB5D87BFF30398EC78F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ CCleaner - утилита для чистки мусора в операцион
 magnet:?xt=urn:btih:BDD04BE0C4EEFE7223553B42497130DF3A6B1AB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ PortScan & Stuff - бесплатная утилита, которая дает 
 ```bash
 magnet:?xt=urn:btih:62C7BC635BEB5E1EA9EEF2AA5B51829991F5F5E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ ZBrush - программа для трёхмерного моделирован
 magnet:?xt=urn:btih:949798CE267288760EC96F8D0A1437F5AC64F923
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Adguard – интернет-фильтр для защиты пользоват
 magnet:?xt=urn:btih:AC7AB877ED58AAB7C4E9380EA485DAE28F794EA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ Celestia - бесплатная трёхмерная астрономическ�
 ```bash
 magnet:?xt=urn:btih:3248D20934202C265CA5F734D13B5ABB802AFB89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ DAEMON Tools Lite - программа для работы с образами �
 magnet:?xt=urn:btih:126DB81382A01A803F907338A6229F9A9511280E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Revo Uninstaller Pro 5.1.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:1C7C47CEE82F462E16EC42C804F98AC4F66F8951
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ QuickMemoryTestOK 4.55 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EA2DFA621038061EF47A9BA727F71A14E6B0F553
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Folder Marker - помощник, который может маркироват
 magnet:?xt=urn:btih:9DB1125C3DEB86BF9D4D35F5DB67DFA89B3653A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Windows Update Viewer 0.5.5.0 + Portable [En]
 ```bash
 magnet:?xt=urn:btih:03DDA55CFA9BA8784CEEE1902E91CBFD163E6FDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Visual Studio Enterprise 2022 - Интегрированное комплекс�
 magnet:?xt=urn:btih:D581836C304A065E32E5F443B8A8EFD15ACCDD3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:D1C1CE65B7A052F2EDAE29AD39FB2D31DDE456FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ MAGIX Vegas PRO — профессиональная программа для �
 magnet:?xt=urn:btih:387491F910817A412595DAC27CD06E241B2B3CD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:120900BBC6D905A0616AFC038FDB1AF27B63DD12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ Total Commander является самым мощным и стабильным
 magnet:?xt=urn:btih:166A5C8AC85266813364358FAFE8D9C806B3E536
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:6DF50E57B1DCA7D4B7FB0A8F02C538EF68CAE2EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ Adobe Media Encoder 2023 - это программа кодирования, к�
 ```bash
 magnet:?xt=urn:btih:5162DB7960F96BCA82DD8761AC25B42763B39A85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ LDPlayer 9 — мощный бесплатный эмулятор устройс
 magnet:?xt=urn:btih:A1903776455AB6B4CA40A5132D3A979EC4D1E8D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:A0EBA6A9ED58038A7649864671CF7C11F53A502B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ Defender Remover Portable 12.4.2 [En]
 magnet:?xt=urn:btih:F75147F9D4FF20BA2044289A60928344A1234A3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ Opera 99.0.4788.9 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:953A9CD29A7E8AF9B9CF907120DE4F65D0BA80DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:B261198913975B8D9181C8D605CCF2F6E84A4EA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

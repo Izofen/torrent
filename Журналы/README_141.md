@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:AFB5EB0992FED2183C5ADAB1805E15221B245770
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Russian Traveler — новый российский журнал о путеш�
 ```bash
 magnet:?xt=urn:btih:E4BA1ABAA219B080EE4B3274A760216CFD86A6FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:E4BA1ABAA219B080EE4B3274A760216CFD86A6FA
 magnet:?xt=urn:btih:4F99051AF43812B1EB10F501435463DF2878134F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:4F99051AF43812B1EB10F501435463DF2878134F
 ```bash
 magnet:?xt=urn:btih:F53625DF8505127AE80CD4B4F47F09958581F272
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:F53625DF8505127AE80CD4B4F47F09958581F272
 magnet:?xt=urn:btih:4B1D77308D4D95584BEE52BEE2BDFE150CD5C937
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ UPgrade – журнал о компьютерах и компьютерных �
 ```bash
 magnet:?xt=urn:btih:AFF849027F8F31355991D434314F421293092E2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:AFF849027F8F31355991D434314F421293092E2A
 magnet:?xt=urn:btih:20FA3FED2A8F01FD8EE6AB518BFFBA52C573FC02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:20FA3FED2A8F01FD8EE6AB518BFFBA52C573FC02
 magnet:?xt=urn:btih:78CDF076056B0FCBB42310E8B11D06EACA7374B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ magnet:?xt=urn:btih:78CDF076056B0FCBB42310E8B11D06EACA7374B9
 ```bash
 magnet:?xt=urn:btih:497A14B50756A9B0E79DAED836A518670A6169B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ ISSN:Формат: PDFКачество: Изначально электронн�
 magnet:?xt=urn:btih:C884FFDCC99BF7E4607548C4AF44D592D6BDFB7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Linux Magazine - журнал, целиком посвященный опера�
 ```bash
 magnet:?xt=urn:btih:54AAF172600DECF03319FF0F9486DBCFE2477B19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:54AAF172600DECF03319FF0F9486DBCFE2477B19
 magnet:?xt=urn:btih:A84814C75F26EEEB6D3905091D1259CC06833BBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:A84814C75F26EEEB6D3905091D1259CC06833BBB
 ```bash
 magnet:?xt=urn:btih:35E9C1CA926D26A8C74F74CF6478412AFB2A5D7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:35E9C1CA926D26A8C74F74CF6478412AFB2A5D7B
 magnet:?xt=urn:btih:0747B9D7877D6E7F50F1223B0A7E856FD79ED0D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:0747B9D7877D6E7F50F1223B0A7E856FD79ED0D4
 ```bash
 magnet:?xt=urn:btih:90A86CDA67756C06346F19005D54C468FDF40C9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Woodcraft - издание, целиком посвященное столярн
 magnet:?xt=urn:btih:03C87B93C19305783289F84AE661B437BA1DF351
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:03C87B93C19305783289F84AE661B437BA1DF351
 ```bash
 magnet:?xt=urn:btih:4C24B7F67D794240EACBB767C59457C501E7D01E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ Woodsmith — журнал по столярному делу представл
 magnet:?xt=urn:btih:47016731140726581E0F8AC0FC2D6EA7C66003DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:47016731140726581E0F8AC0FC2D6EA7C66003DA
 ```bash
 magnet:?xt=urn:btih:6D95A04214F06B0FEF01BFCEE4BFCAB123F7B83C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ Elektor - популярный журнал по электронным комп
 magnet:?xt=urn:btih:A1CF06397DAC5BD80EA1D5F6323AAE4AE5935DA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ Popular Mechanics - журнал о новинках в мире науки и �
 ```bash
 magnet:?xt=urn:btih:06840B867EFCAB819F467AFB6A90ECA0D1129323
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:06840B867EFCAB819F467AFB6A90ECA0D1129323
 magnet:?xt=urn:btih:31CE96AE1F96B57D5B1CA272ECC1890F78CAA84B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ magnet:?xt=urn:btih:31CE96AE1F96B57D5B1CA272ECC1890F78CAA84B
 ```bash
 magnet:?xt=urn:btih:C1043ADED40CA74721B6655777D62B5173E87E03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:C1043ADED40CA74721B6655777D62B5173E87E03
 magnet:?xt=urn:btih:E9ABA634A015CF7E1091DBE8AC1B811A900692BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:E9ABA634A015CF7E1091DBE8AC1B811A900692BB
 magnet:?xt=urn:btih:F76E8719B27A084E7CF6D659875E1D2DE63C3FE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:F76E8719B27A084E7CF6D659875E1D2DE63C3FE1
 ```bash
 magnet:?xt=urn:btih:492AE27478456C981037D11C1E147AE3A5084507
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

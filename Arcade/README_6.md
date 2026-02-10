@@ -19,6 +19,8 @@ Trailmakers (2019) [Ru/Multi] (2.0.1.65085/dlc) Scene Rune
 magnet:?xt=urn:btih:7B268ECAA57F0F909BDA3A88D9380150980FDB32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Trailmakers (2019) [Ru/Multi] (2.0.1.65085/dlc) Repack FitGirl [Ultimate Edition
 ```bash
 magnet:?xt=urn:btih:9C84E902CBE327095C9A4ABFE42B80C605372207
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ RRogue Samurai — это интенсивная roguelite игра в жанр�
 magnet:?xt=urn:btih:34D9BED74DC2B66D3C8B32189C6E97C19EDF287B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ RRogue Samurai - это интенсивная roguelite игра в жанре 
 ```bash
 magnet:?xt=urn:btih:9A6A177EE0A2AF240E0B97E32C2213A35E6E54FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Overcooked возвращается с новой порцией безумно�
 magnet:?xt=urn:btih:A32ADEB7F6E1519579FE674229DFFA0FFD066594
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Nunholy - это остросюжетная ролевая игра, в кото
 ```bash
 magnet:?xt=urn:btih:7C971525F7A5FE2A5A80B18AEB59B35F2F3791A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Vampire Survivors (2021) [Ru/Multi] (1.12.108/dlc) Repack FitGirl
 magnet:?xt=urn:btih:CDCABBB8D2D496A3CB858ACB604463538711C7D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Shumi Come Home - это очаровательная приключенческ
 ```bash
 magnet:?xt=urn:btih:CA7286260169FE27423F46E782153A2830AF54C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ WARRIORS: Abyss (2025) [Multi] (1.0) Scene Rune
 magnet:?xt=urn:btih:9C66BBDD44AA116D29652D29981DA771BC7BF9AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Warden's Will (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:14A03572254B835D1FB8B4B9FC127999C69EF84D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Spinch (2020) [Ru/Multi] (1.1) License GOG
 magnet:?xt=urn:btih:8BB60A44965393A85F6F398DD322695AD83D4D78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Plants vs. Zombies / Растения против Зомби (2009) [Ru] (1.2.0
 ```bash
 magnet:?xt=urn:btih:3E6CA95221A64505D18D5A7DB828FF011C9D4B24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Commando Hero 2: First Blood (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:E3E42BEB6C4C2DE7A36408D6C067CAF13379F11C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Get Tilted! :) (2025) [Ru/Multi] (1.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3AC0BEB9174A1BD0BB3DB49784E2815FC66BE0A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Clone Drone in the Danger Zone – увлекательная аркада, в �
 magnet:?xt=urn:btih:07AF15588EFD62EDD5461FC901AFB19E8DA72B33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Let's Cook Together 2 продолжает идею первой части - г
 ```bash
 magnet:?xt=urn:btih:07C647B4E00F3ECBFC82D71C4D7CCCD397C1702C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ The Smurfs - Dreams (2024) [Ru/Multi] (1.0.27/dlc) License GOG
 magnet:?xt=urn:btih:7D9652E44B5FCA5CB1F321169295BA5AD438D1B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Bore Blasters вводит высокооктановый экшн в класс
 ```bash
 magnet:?xt=urn:btih:334045C2E456EBB121C37D5E937EC36B69D2F00B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Guns, Gore & Cannoli (2015) [Ru/Multi] (1.2.21) Repack Let'sРlay
 magnet:?xt=urn:btih:344CC0CFC42E6A3794C34D28CD15150DFA26688A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Big Helmet Heroes (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B714C634AAEFF8C7E13F94E7D51994CEA1EDA311
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Warhammer 40,000: Shootas, Blood & Teef (2022) [Ru/Multi] (1.0.36) Repack Let's�
 magnet:?xt=urn:btih:5AF73424C4BAAE931FEC7F11174E0E089C1CBBCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Guns, Gore and Cannoli 2 (2018) [Ru/Multi] (1.0.8) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:09DDC2E94C95752B13DEC138B9458849F76FB363
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Big Helmet Heroes (2025) [Ru/Multi] (27289703) Scene FairLight
 magnet:?xt=urn:btih:05B70FA92090BDC6F0BBC7C47F07C819797BB6FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ River City Girls 2 (2022) [Ru/Multi] (1.1.3/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:6D678441EF4E29CCF79AEA4BD174E2787C00B86D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Big Helmet Heroes (2025) [Ru/Multi] (1.0.0) Repack seleZen
 magnet:?xt=urn:btih:69F485B81835F350D9F0492C6B921D2288C9B0AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ ReSetna (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FFD000817A10DFE1DCC8206DC636BB9E2DBEBE89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

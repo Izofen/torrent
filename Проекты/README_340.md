@@ -19,6 +19,8 @@ Christmas Tree Logo Reveal — тёплая, кинематографичная 
 magnet:?xt=urn:btih:1A455EBFD384882F70265ED6D7C6AC5FB1DE20C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Cinematic Film Reel Transitions – Old Movie Style FX — это носталь
 ```bash
 magnet:?xt=urn:btih:2686394396B7DD67C6134C8492F9C94C5050C8C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:2686394396B7DD67C6134C8492F9C94C5050C8C7
 magnet:?xt=urn:btih:991CD2E10784887D30E86CA1590DEB9E0D815203
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:991CD2E10784887D30E86CA1590DEB9E0D815203
 ```bash
 magnet:?xt=urn:btih:CFC5E2F42E67652DCA16AE31ABB5FE1A9B8AA406
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:CFC5E2F42E67652DCA16AE31ABB5FE1A9B8AA406
 magnet:?xt=urn:btih:43FA63C8CFABDFD326693164A13C2D022A88DE7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:43FA63C8CFABDFD326693164A13C2D022A88DE7F
 ```bash
 magnet:?xt=urn:btih:9FFE09DEE1FDDF16BEA59E606806F5F9D8C31DD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:9FFE09DEE1FDDF16BEA59E606806F5F9D8C31DD3
 magnet:?xt=urn:btih:082149A07B9A2401FAAEC99F440C1F1576B0DAAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Christmas Opener — это сказочный и вдохновляющий ш�
 ```bash
 magnet:?xt=urn:btih:6D84F6C8B744226FE0DC8F2A1F7A1AFB1F8CD52F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Slider Animation — это стильный и универсальный ша�
 magnet:?xt=urn:btih:61E5CA982DAB408534A9ADBECD6F5AF0BA7FB586
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Vertical Camera Viewfinder Transitions — это трендовый набор 
 ```bash
 magnet:?xt=urn:btih:C318E9F1CF1CB543A29E059FC7CA55E7F6DF6C62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:C318E9F1CF1CB543A29E059FC7CA55E7F6DF6C62
 magnet:?xt=urn:btih:159847DCA319C81F55C44F89F78DE5CB941E44D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:159847DCA319C81F55C44F89F78DE5CB941E44D4
 ```bash
 magnet:?xt=urn:btih:6B3B2963B74A8D765F86B9DDE7AE68F11F37800B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:6B3B2963B74A8D765F86B9DDE7AE68F11F37800B
 magnet:?xt=urn:btih:B69CB3FA849F46A53F19148886D97EF2B85BFD7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:B69CB3FA849F46A53F19148886D97EF2B85BFD7C
 magnet:?xt=urn:btih:C6B9DCAB1678FE3DC6304B13E126EA1538AE2899
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +382,8 @@ Glass Transitions — это изысканный и воздушный набо
 ```bash
 magnet:?xt=urn:btih:3BF8D12828A63A6F47048082381FC3A79296B8A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:3BF8D12828A63A6F47048082381FC3A79296B8A5
 magnet:?xt=urn:btih:89ED7EA92D10649DE793E1513C34BC00A0983794
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ Looping Text Animations Pack — это современная и функцио
 ```bash
 magnet:?xt=urn:btih:1D8CAD01EAB1A3BD9B15BE213425022718F1175D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:1D8CAD01EAB1A3BD9B15BE213425022718F1175D
 magnet:?xt=urn:btih:1EAA0FB3CA028E2B27F7E381CE7BA21D4FF29052
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:1EAA0FB3CA028E2B27F7E381CE7BA21D4FF29052
 ```bash
 magnet:?xt=urn:btih:EA75DD584EC7DAC54B161E2F1AF0199E2DDFA459
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ Rhythmic Opener — это взрывной и энергичный шаблон
 magnet:?xt=urn:btih:56432C8998E783F784F4CD8493319D8E7242882E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ Elegant Logo Intro — это утонченный и стильный шабл�
 ```bash
 magnet:?xt=urn:btih:AFA557FAD840B004A16E19503F98EF65B5F03A00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ Punch Hole Transitions — это стильный и энергичный на�
 magnet:?xt=urn:btih:41F12606D01E104BFC55735A2A4B8FBC7BCA7F34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:41F12606D01E104BFC55735A2A4B8FBC7BCA7F34
 ```bash
 magnet:?xt=urn:btih:1FF133C38F9EE59F368E26A639D8DC0EA9A90C31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ Glass Review Ratings — это современная и эстетичная �
 magnet:?xt=urn:btih:10882A2A8B7F12F61CFF50B513E936F393BF6F0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ Notification UI Liquid Glass — это ультра-современный и �
 magnet:?xt=urn:btih:F38E0D7703768F44522520887059EF64A51B0F58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ magnet:?xt=urn:btih:F38E0D7703768F44522520887059EF64A51B0F58
 ```bash
 magnet:?xt=urn:btih:3E20A76D66D166C7646A35713A72E30F4F8F1EB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

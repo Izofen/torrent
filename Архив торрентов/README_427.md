@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:72A54D3DD153132B6991D395EA8E6DEEF178752D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:72A54D3DD153132B6991D395EA8E6DEEF178752D
 ```bash
 magnet:?xt=urn:btih:AC861BA57D1803EF26833FD26F9520FAC103D7BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:AC861BA57D1803EF26833FD26F9520FAC103D7BE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:AC861BA57D1803EF26833FD26F9520FAC103D7BE
 ```bash
 magnet:?xt=urn:btih:159379FE9D918164E4AA3020A21A3076B1BDC14A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Scuba - Personality (2012) [FLAC|Lossless]<Dubstep, Breakbeat>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Scuba - Personality (2012) [FLAC|Lossless]<Dubstep, Breakbeat>
 ```bash
 magnet:?xt=urn:btih:27D5974B5BFD224DB79F293946660F0A6037613F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:27D5974B5BFD224DB79F293946660F0A6037613F
 magnet:?xt=urn:btih:35E83428ECB34CFF48B0CC54A744DC224A371CD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:35E83428ECB34CFF48B0CC54A744DC224A371CD7
 ```bash
 magnet:?xt=urn:btih:8E86C853101186CB3D88ACCEB768F5E8ADC06A47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ A-ha - Take on me (2011) [ BDRip 720р]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ A-ha - Take on me (2011) [ BDRip 720р]
 ```bash
 magnet:?xt=urn:btih:597E6800AB7E5E8B6E02BAF54CC64C7165745D07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ Visual Studio 11 Ultimate Beta [Eng] 11.0.50214.1 Beta [English]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ Visual Studio 11 Ultimate Beta [Eng] 11.0.50214.1 Beta [English]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ Screenshot UX - программа для снятия скриншотов на
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ Screenshot UX - программа для снятия скриншотов на
 magnet:?xt=urn:btih:C778BF29DA8C98723FF064D3331290ABB32D5724
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:C778BF29DA8C98723FF064D3331290ABB32D5724
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ magnet:?xt=urn:btih:C778BF29DA8C98723FF064D3331290ABB32D5724
 magnet:?xt=urn:btih:283A33AA21F35F4F07536BEB4E933E5A8BFDBFD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +457,8 @@ magnet:?xt=urn:btih:283A33AA21F35F4F07536BEB4E933E5A8BFDBFD0
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ magnet:?xt=urn:btih:283A33AA21F35F4F07536BEB4E933E5A8BFDBFD0
 ```bash
 magnet:?xt=urn:btih:C993A4A4991000B2A22118DE0732E40536945FE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +510,8 @@ Demolition Master 3D / Мастер разрушения (P) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:8613B762407EA39DA3F482E7C661BA0EE12E7E75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +546,8 @@ magnet:?xt=urn:btih:8613B762407EA39DA3F482E7C661BA0EE12E7E75
 magnet:?xt=urn:btih:0DF9310731B65A69A8A00336F4D5104A8BA0B202
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +571,8 @@ magnet:?xt=urn:btih:0DF9310731B65A69A8A00336F4D5104A8BA0B202
 ```bash
 magnet:?xt=urn:btih:12E1406D53687C6754062C2C50417489F72FC1D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +602,8 @@ magnet:?xt=urn:btih:12E1406D53687C6754062C2C50417489F72FC1D8
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +627,8 @@ The Bat — мощный и удобный клиент электронной �
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +654,8 @@ The Bat — мощный и удобный клиент электронной �
 magnet:?xt=urn:btih:5B6856DCD73FB3321C28A973DC3AD6A9D02DE21B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +680,8 @@ Chaos Legion / Рыцари Хаоса (RePack) [Ru] 2003 | Sash HD
 magnet:?xt=urn:btih:FC01507A879E9671A461EB0CD18B0E6D82211FAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ magnet:?xt=urn:btih:FC01507A879E9671A461EB0CD18B0E6D82211FAA
 ```bash
 magnet:?xt=urn:btih:595E89440E09BB9297F3E808A092B1C77411FC2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

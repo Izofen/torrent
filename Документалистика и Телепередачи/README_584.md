@@ -1,3 +1,29 @@
+###  Публикация: 1274884   (791683) от 09.01.2019
+
+Александр Абдулов. С любимыми не расставайтесь (2018) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александра Абдулова не стало 10 лет назад, а мифы и споры о его противоречивой натуре не утихают и сегодня! Считается, что Абдулов не оставил мемуаров, но актер собирался написать о себе книгу! Он делал очерки, заметки — просто не успел закончить эту книгу… После его смерти друзья Абдулова собрали все записи актера и издали их под названием «Хочу остаться легендой». (   Читать дальше...   )Производство: ООО "Контраст"Телекомпания: Первый каналЖанр: Документальный, биографияРежиссер: Ольга ИвановаСубтитры: ОтсутствуютПродолжительность: 00:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E1FB2B22EBB5F1A0348AE9F4BCBA2EF8FB0E269
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387177   (791747) от 01.06.2020
 
 Воскресный вечер с Владимиром Соловьевым (31.05.2020) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:CB7DBA407B29826D3FB20F5AC052F36854FE6832
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:CB7DBA407B29826D3FB20F5AC052F36854FE6832
 magnet:?xt=urn:btih:6D300715A4D69748BDCEB6234C22152A49080C51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:6D300715A4D69748BDCEB6234C22152A49080C51
 ```bash
 magnet:?xt=urn:btih:6A70615BDE428F9F792CF64D6882FAA44E8C0EE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:6A70615BDE428F9F792CF64D6882FAA44E8C0EE9
 magnet:?xt=urn:btih:80C67DE0D892BCE46E1A811587DCB54D8647AA18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:80C67DE0D892BCE46E1A811587DCB54D8647AA18
 ```bash
 magnet:?xt=urn:btih:47FFE8D531C741DB08CC0363EA7E04B277AE6A4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:47FFE8D531C741DB08CC0363EA7E04B277AE6A4A
 magnet:?xt=urn:btih:D6E978549398B148C8EE701432BC2530C4B61ACC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:D6E978549398B148C8EE701432BC2530C4B61ACC
 ```bash
 magnet:?xt=urn:btih:87DA044F4D1D59385556592A0E0BC009CD6EAF2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:87DA044F4D1D59385556592A0E0BC009CD6EAF2A
 magnet:?xt=urn:btih:C3604BF9C6892BBD85E546E08726765429632E06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:C3604BF9C6892BBD85E546E08726765429632E06
 ```bash
 magnet:?xt=urn:btih:3EA4B3375BAAB0501F0520483A23FB32ECA79B1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:3EA4B3375BAAB0501F0520483A23FB32ECA79B1F
 magnet:?xt=urn:btih:7F89308B7915B3FAE3960A1371DB8F6818322EAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:7F89308B7915B3FAE3960A1371DB8F6818322EAB
 ```bash
 magnet:?xt=urn:btih:6DC9E8AE424CCC782BE5C6EB5DA2FCDB63829209
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:6DC9E8AE424CCC782BE5C6EB5DA2FCDB63829209
 magnet:?xt=urn:btih:65DC84F09C272CDF86DE5A0AA736A8D14B6CF68B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +357,8 @@ magnet:?xt=urn:btih:65DC84F09C272CDF86DE5A0AA736A8D14B6CF68B
 ```bash
 magnet:?xt=urn:btih:968DAD2057650D3CEB1B48B8E33F252B766ECFFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:968DAD2057650D3CEB1B48B8E33F252B766ECFFB
 magnet:?xt=urn:btih:88EE813294CD9C625F1694F1DC0F8ECCFFBBC3F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:88EE813294CD9C625F1694F1DC0F8ECCFFBBC3F9
 ```bash
 magnet:?xt=urn:btih:1A5D95E41BEB34171FF858B69F9316B4FF18A2ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:1A5D95E41BEB34171FF858B69F9316B4FF18A2ED
 magnet:?xt=urn:btih:B374F63331CD32E4386D3F5ABE78EA10434441EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:B374F63331CD32E4386D3F5ABE78EA10434441EB
 ```bash
 magnet:?xt=urn:btih:A3F368DC441CF1EE8FB4B10A3718C2DDED13B44E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:A3F368DC441CF1EE8FB4B10A3718C2DDED13B44E
 magnet:?xt=urn:btih:CB689DD8F692930E253F4B4CFAFAA941437B79B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:CB689DD8F692930E253F4B4CFAFAA941437B79B6
 ```bash
 magnet:?xt=urn:btih:7489B2FC3664D0C20D11ACC5A4F83A8075761468
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:7489B2FC3664D0C20D11ACC5A4F83A8075761468
 magnet:?xt=urn:btih:AB753DAF84C995A96A02FC37C2803B195520BD88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:AB753DAF84C995A96A02FC37C2803B195520BD88
 ```bash
 magnet:?xt=urn:btih:0C938B8B0867B63E76D8D556C4BFFE6A55EBD1C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:0C938B8B0867B63E76D8D556C4BFFE6A55EBD1C6
 magnet:?xt=urn:btih:62140C923F560E335874F8F211217ACD4D7D093D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +618,8 @@ magnet:?xt=urn:btih:62140C923F560E335874F8F211217ACD4D7D093D
 ```bash
 magnet:?xt=urn:btih:5C73752BB66981B6A9E69DBF67359CC20780D345
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +645,8 @@ magnet:?xt=urn:btih:5C73752BB66981B6A9E69DBF67359CC20780D345
 magnet:?xt=urn:btih:5C3B293BE98B1C0CB8FD16D1C95956C538877224
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,30 +671,7 @@ magnet:?xt=urn:btih:5C3B293BE98B1C0CB8FD16D1C95956C538877224
 magnet:?xt=urn:btih:A358ED60DAA7FB071A6D04BB0A7909AB4901AEB4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387025   (792579) от 31.05.2020
-
-Первая передача на НТВ. Автомобильная передача (31.05.2020) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мелкое ДТП и съезд на обочину, а также — трюки и «крыша» автостопщицы на АЗС.
-«Первая передача» — это познавательный проект про автомобилистов и для автомобилистов — для тех, что хочет из простого автолюбителя стать автопрофессионалом!Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:26:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08B34F9B5D87966086D3F810DB55B6EDC23EFB0F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ VA - Sport Mixtape (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 magnet:?xt=urn:btih:9CD8A14746BD8CF58F8943DCFDA380D74502A940
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Photo Supreme — вспомогательная программа для вл�
 ```bash
 magnet:?xt=urn:btih:EF6FB12952185A34376F97ADF8738651BDFF72F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ TuneIn объединяет спортивные события, музыку, �
 magnet:?xt=urn:btih:4D4C0DA597F209D8232D5F9E2FCE10C15F61C012
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:4D4C0DA597F209D8232D5F9E2FCE10C15F61C012
 ```bash
 magnet:?xt=urn:btih:20A95EA747D3BDB4737F41893FC9DBEC87D3A71F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:20A95EA747D3BDB4737F41893FC9DBEC87D3A71F
 ```bash
 magnet:?xt=urn:btih:B515D512347A24C98EC2F68925CA784A0177F367
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:B515D512347A24C98EC2F68925CA784A0177F367
 magnet:?xt=urn:btih:6F928628E275E66712794B3F10099CA2C831D5A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:6F928628E275E66712794B3F10099CA2C831D5A4
 magnet:?xt=urn:btih:BE201A4980B5DC637798D87BFCCB69186FEBCE41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:BE201A4980B5DC637798D87BFCCB69186FEBCE41
 ```bash
 magnet:?xt=urn:btih:B1C9AC774E8F4A3C7182C60BB4B6AB3D375720F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ Houston Person & Ron Carter - Remember Love (2018) HighNote Records [FLAC|Lossle
 magnet:?xt=urn:btih:539A0977F273EA53242C280DFD3C5F563E46FBA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ Deathless Legacy - Damnatio Aeterna (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:5049631C7E44ACCE7AE4405957D6AA4612136BAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:5049631C7E44ACCE7AE4405957D6AA4612136BAA
 ```bash
 magnet:?xt=urn:btih:7FAEF2765C71D92D4F593A2CD9246727DB7990FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:7FAEF2765C71D92D4F593A2CD9246727DB7990FA
 ```bash
 magnet:?xt=urn:btih:038330157E89CCAB8BC43E0391B7F2D68D1B9AF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ Bud Powell - Live at the Blue Note Cafe, Paris (1961) 2007, ESP-Disk' [FLAC|Loss
 magnet:?xt=urn:btih:BAE43CE0E79E9AE422230767A111ED84FB047694
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ Art Pepper - Among Friends (1978) 1988, Discovery Records [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:C7C7B56C4CBF850B4C3D0865FB10421A99C041C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +407,8 @@ Bud Powell - At The Blue Note Cafe, Paris (1961) 1990, Magic Music [FLAC|Lossles
 magnet:?xt=urn:btih:B5644B09E4FC27B57F0434795BAB1310E06672F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +436,8 @@ Art Pepper - Living Legend (1975) 2006, Victor [FLAC|Lossless|tracks + .cue] <Co
 magnet:?xt=urn:btih:AB074277391160C5F8F90986B67DB0F16541EE85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +463,8 @@ magnet:?xt=urn:btih:AB074277391160C5F8F90986B67DB0F16541EE85
 magnet:?xt=urn:btih:344E6537A94D7579B8C1965F81AA3AE1812B2B41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +489,8 @@ magnet:?xt=urn:btih:344E6537A94D7579B8C1965F81AA3AE1812B2B41
 ```bash
 magnet:?xt=urn:btih:0D12DE59A5A1845BB3D1F47DA09BE8E50190561C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +519,8 @@ VA - City Skyline: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Bale
 magnet:?xt=urn:btih:4636CB6C06CFFD70B4AD0FD21BA3E3541ACE1623
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ magnet:?xt=urn:btih:4636CB6C06CFFD70B4AD0FD21BA3E3541ACE1623
 ```bash
 magnet:?xt=urn:btih:2CA624D26F56DE7ACE381FF185876403182D1A9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +571,8 @@ magnet:?xt=urn:btih:2CA624D26F56DE7ACE381FF185876403182D1A9E
 ```bash
 magnet:?xt=urn:btih:E1E7EC6A390596289FD37920348B150C909C6C30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +601,8 @@ CD1 - Breaking The Chains:
 magnet:?xt=urn:btih:20A25D6608682D61C2ED503BB6E213BE4AD69881
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +627,8 @@ Quadline — это жирный шрифт без засечек, создан�
 ```bash
 magnet:?xt=urn:btih:A5D3CEF3F021D0930A926A3D9C9F1C43BB13B5DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +657,8 @@ VA - Ease & Flow: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balea
 magnet:?xt=urn:btih:C8D95D4FF7A24A86097A92B1F416B954ABD68381
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +685,8 @@ Photo Mate предлагает библиотеку фотографий, в к
 magnet:?xt=urn:btih:654F0DA6C085D648B06F5903F1E7DBFE84E66594
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -662,6 +712,8 @@ Rocantic — это шрифт с засечками с элегантным и 
 ```bash
 magnet:?xt=urn:btih:5261177A0211C073C1604CA10088397463013D02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Chambers - захватывающий платформер-головоломк�
 magnet:?xt=urn:btih:34BDCF93EAC77C17D88C0F0839197F2A248AFFB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Cats Love Boxes - это восхитительная игра-головоло�
 ```bash
 magnet:?xt=urn:btih:0D83EF95CDFB5E8007261F3851227403FABE5EE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Unknown - психологический хоррор от первого л
 magnet:?xt=urn:btih:3F6E884CE917AAC675CC98A510F153DE981C0B12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Tank Operations: European Campaign ставит вас на место амер�
 ```bash
 magnet:?xt=urn:btih:D58E5A8A6995FE3EEB370C04454A9A52612B1190
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Rise of the Tomb Raider (2016) [Ru/Multi] (1.0.1027.0/dlc) Repack Decepticon [20
 magnet:?xt=urn:btih:A3344BAD665AF8D43A366A01886088377CA4906A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Welcome to ParadiZe - это увлекательная изометрическ
 ```bash
 magnet:?xt=urn:btih:0CB8888438A7DD9859FF0FA721CE19D3ECBF4ECA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Tomb Raider (2013) [Ru] (1.1.838.0/dlc) Repack Decepticon [Game of The Year Edit
 magnet:?xt=urn:btih:1FC625AF97D88A43E91FF67E1C0EFD853F0273A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Microcosmum 2 - стратегическая игра, основная цель
 ```bash
 magnet:?xt=urn:btih:4AA5F010FC128B192DC1FFA15D7FD75515D31CA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Thief Simulator 2 (2023) [Ru/Multi] (1.21) Repack Other s
 magnet:?xt=urn:btih:1CC05C371251799D40110533A27BEA1B5039EDE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Monuments Flipper – симулятор реставратора историч
 ```bash
 magnet:?xt=urn:btih:B38EB5F987AFBE08913ACA1BEAD2BF2375E19AB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Beneath the Mountain погружает пользователей в подзе
 magnet:?xt=urn:btih:FA636C8F2D65151F61372A815E70CFB9B8B2FECF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Somerville (2022) [Multi] (1.0) License Razor1911
 ```bash
 magnet:?xt=urn:btih:43FA6C448CA713BA8C5354579BA3B1CFE015BD54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ The Thaumaturge - изометрическая ролевая игра с глу
 magnet:?xt=urn:btih:5BE76C39E3A7FB289F6ECF3421A58280AE66D5BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Zoria: Age of Shattering – тактическая групповая стра�
 ```bash
 magnet:?xt=urn:btih:4CF0888BEB49E5A7029E6F2FC25E524D8408F127
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ House Flipper 2 (2023) [Ru/Multi] (13653866/dlc) Repack Other s [Digital Deluxe 
 magnet:?xt=urn:btih:75900349694C5786EAAE64150059B07B06230021
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ YOKO (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:BE94EB460429AA8E57B40EE2E651ECE4D97B63FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Zoonomaly - оригинальный хоррор от первого лица, 
 magnet:?xt=urn:btih:E6E3D571FB82DBD046294EB67CEB972A16ADE491
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Connected Hearts 4: Cost of Beauty / Связанные сердца 4: Цена
 ```bash
 magnet:?xt=urn:btih:2FE1FB59713659FF1A2AC6414A81E978588B1F3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Big Adventure: Trip to Europe 7 / Большое приключение: Пое�
 magnet:?xt=urn:btih:CA0E922378178FBDF7977A92FD5BC9B86940EF17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (1.0/dlc) Repack Other s [Suprem
 ```bash
 magnet:?xt=urn:btih:59E91B73BCE96B492FAB0BDD78457344B48990DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Taxi Life: A City Driving Simulator - симулятор такси, в кото
 magnet:?xt=urn:btih:000A5E911CF329DEA4455B708384F1FB0413AE37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Lucky Season: King of Fools (2024) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:4A8AE64755B8A519C5D745C39F0871E943FD60F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Crimzon Clover: World Ignition (2014) [Multi] (1.06) License GOG
 magnet:?xt=urn:btih:4FEF85F4E178D1FF0345F2DAB17E37A9D8B29B19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Russian Soul Simulator - это приключение, позволяющее �
 ```bash
 magnet:?xt=urn:btih:30D831FA9696D4D6702F9921FC931DDFEA5B2437
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Disco Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:0A5FA5497CF9652F3F48CEE1ABC78D20D6BD3723
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Stellar Ghosts Settlers - это научно-фантастический шу�
 ```bash
 magnet:?xt=urn:btih:9C4CDCCB74D285F79B27A2E2B94F3CC6117AC2F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

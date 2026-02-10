@@ -1,3 +1,30 @@
+###  Публикация: 992705   (898598) от 03.03.2016
+
+Игорь Лядов | Минимум работы, максимум урожая! Метод Игоря Лядова для любой почвы (2015) [FB2]
+
+>>Разное (категория книг)
+>>Сад, огород, животноводство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярность метода Игоря Лядова – очень большая. И растет день ото дня! Огородники по всей России сажают, удобряют, делают грядки «по Лядову». Ролик на Youtube Игоря Лядова набрал уже более 300 тысяч просмотров. В чем секрет?
+Игорь Лядов живет на Дальнем Востоке – местности с непредсказуемым климатом и скудными почвами, а выезжает на свои сотки только по выходным. (   Читать дальше...   )Жанр: Сад и огородФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37BDB345B5C44E48A1F98AB2E173E3736C24D3BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992727   (898636) от 03.03.2016
 
 Керри Паттерсон и др. | Трудные диалоги (2014) [EPUB]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:89334EE702DF1EFFDC139D9B6F463BF49972DBCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +74,8 @@ magnet:?xt=urn:btih:89334EE702DF1EFFDC139D9B6F463BF49972DBCB
 magnet:?xt=urn:btih:64E449C79BF9CD1AFB6ABFAA75567DB3B6F16220
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +99,8 @@ magnet:?xt=urn:btih:64E449C79BF9CD1AFB6ABFAA75567DB3B6F16220
 ```bash
 magnet:?xt=urn:btih:34F5C03C9604B6834CB4CC84D346B98E0FABEF46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +126,8 @@ magnet:?xt=urn:btih:34F5C03C9604B6834CB4CC84D346B98E0FABEF46
 magnet:?xt=urn:btih:675BB38687F07C6AD496F649B54E593CA2C72F64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +151,8 @@ magnet:?xt=urn:btih:675BB38687F07C6AD496F649B54E593CA2C72F64
 ```bash
 magnet:?xt=urn:btih:F6805FD05A5573A547A6F83C95152AB6E3F78B26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +179,8 @@ magnet:?xt=urn:btih:F6805FD05A5573A547A6F83C95152AB6E3F78B26
 magnet:?xt=urn:btih:5D035DA3ADFCDE08CF89B2DFC1251D93829C0D01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +204,8 @@ magnet:?xt=urn:btih:5D035DA3ADFCDE08CF89B2DFC1251D93829C0D01
 ```bash
 magnet:?xt=urn:btih:5E5CF323BB4225E3D4ABB4D7F2BA3359E1BFB507
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +231,8 @@ magnet:?xt=urn:btih:5E5CF323BB4225E3D4ABB4D7F2BA3359E1BFB507
 magnet:?xt=urn:btih:7E944036CF26D6203093A9E634E4380344655F04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +256,8 @@ magnet:?xt=urn:btih:7E944036CF26D6203093A9E634E4380344655F04
 ```bash
 magnet:?xt=urn:btih:61AA37AD6CAEF4A9BA846438D26852A02580654E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +283,8 @@ magnet:?xt=urn:btih:61AA37AD6CAEF4A9BA846438D26852A02580654E
 magnet:?xt=urn:btih:248B3514EDB3468E24A8E7C3C116AA1C1268EE80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +308,8 @@ magnet:?xt=urn:btih:248B3514EDB3468E24A8E7C3C116AA1C1268EE80
 ```bash
 magnet:?xt=urn:btih:A476C26C5FAB3B0A544F088C8DE1A8A9CDED2178
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +335,8 @@ magnet:?xt=urn:btih:A476C26C5FAB3B0A544F088C8DE1A8A9CDED2178
 magnet:?xt=urn:btih:FB497EF9D86BC6EC8F10AA0E3AD48DC081B50F75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +360,8 @@ magnet:?xt=urn:btih:FB497EF9D86BC6EC8F10AA0E3AD48DC081B50F75
 ```bash
 magnet:?xt=urn:btih:DFA6D3A8837DF45E9DCC1E17F7EA2F5C80ADE98F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +388,8 @@ magnet:?xt=urn:btih:DFA6D3A8837DF45E9DCC1E17F7EA2F5C80ADE98F
 magnet:?xt=urn:btih:7CE6531ED591FB8D44B1A926DA56FE58EE4CEC04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +414,8 @@ magnet:?xt=urn:btih:7CE6531ED591FB8D44B1A926DA56FE58EE4CEC04
 ```bash
 magnet:?xt=urn:btih:990CB6C6B445137907CD7F586DFBC6804DD19064
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +442,8 @@ magnet:?xt=urn:btih:990CB6C6B445137907CD7F586DFBC6804DD19064
 ```bash
 magnet:?xt=urn:btih:E92CDBBDC2DF3C514756097F0679ACC2B63B466E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +473,8 @@ magnet:?xt=urn:btih:E92CDBBDC2DF3C514756097F0679ACC2B63B466E
 magnet:?xt=urn:btih:648E1D7BE33F52E8DDAB28A0956EE03A66ADFBE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +498,8 @@ magnet:?xt=urn:btih:648E1D7BE33F52E8DDAB28A0956EE03A66ADFBE6
 ```bash
 magnet:?xt=urn:btih:B7B1DF507B96F26890A29574C0C13289725CBB77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +525,8 @@ magnet:?xt=urn:btih:B7B1DF507B96F26890A29574C0C13289725CBB77
 magnet:?xt=urn:btih:2D4C732BA147C0EA99E8C65BDF0D7BC950F65580
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +551,8 @@ magnet:?xt=urn:btih:2D4C732BA147C0EA99E8C65BDF0D7BC950F65580
 magnet:?xt=urn:btih:A4826AD713A2389B8C2AC328C9F4AE270562537C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +576,8 @@ magnet:?xt=urn:btih:A4826AD713A2389B8C2AC328C9F4AE270562537C
 ```bash
 magnet:?xt=urn:btih:538E57A25F62757EFD23EC4A12934238418324D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +611,8 @@ magnet:?xt=urn:btih:538E57A25F62757EFD23EC4A12934238418324D8
 magnet:?xt=urn:btih:3028085E4A1EC9779D09D61D243D8738A09538D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +636,8 @@ magnet:?xt=urn:btih:3028085E4A1EC9779D09D61D243D8738A09538D8
 ```bash
 magnet:?xt=urn:btih:951632792719C94908477F9FA98150A452E96E2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +663,8 @@ magnet:?xt=urn:btih:951632792719C94908477F9FA98150A452E96E2A
 magnet:?xt=urn:btih:111E87B56250ED7AE66DE446AB401DC7630C1E87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,32 +689,7 @@ magnet:?xt=urn:btih:111E87B56250ED7AE66DE446AB401DC7630C1E87
 magnet:?xt=urn:btih:7E3F5450E3D38E8271CB9B2690CEFD5F1F21A704
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 760196   (899544) от 26.02.2014
-
-Чудинова Елена, Ованесян Роберт (сост.) | Легенды Армении (1996) [PDF, FB2, DJVU, JPEG]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пересказ нескольких армянских легенд, выполненный Еленой Чудиновой и Робертом Ованесяном, сопровождаемый красочными иллюстрациями Ирины Волковой.
-На обороте титульной страницы указано: "Текст составлен по произведениям классиков армянской литературы, народного эпоса и фольклора".
-
-Основной сюжет книги - падение под натиском персидских захватчиков армянской (   Читать дальше...   )Формат: PDF, FB2, DJVU, JPEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28C14DE8C7F64A804B9D824E7AEB00F798D4ADDB
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Niagara Launcher - отличный проект по персонализаци
 magnet:?xt=urn:btih:AE7C7839B41AD9DA33C2892332BFB62B96D8C944
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:AE7C7839B41AD9DA33C2892332BFB62B96D8C944
 magnet:?xt=urn:btih:4718A165CF200EC10EE0BF60BE9D666C4C2C792D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:4718A165CF200EC10EE0BF60BE9D666C4C2C792D
 ```bash
 magnet:?xt=urn:btih:3FD37CA4BF76659FB6353C65C7022D51F7E61025
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ AR GPS Compass Map 3D Pro - 3D-компас дополненной реальн�
 magnet:?xt=urn:btih:67F9C68C84320CCEACC607F74F9F7311C19DFDA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:67F9C68C84320CCEACC607F74F9F7311C19DFDA7
 ```bash
 magnet:?xt=urn:btih:F116803B9120CD1D34B2A39797991E95DBEE3586
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ VTC Radio - настоящее виртуальное дорожное ради�
 magnet:?xt=urn:btih:A23446DBC3EDE31FED0717032C3EE3DC3D0C086B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Polarr v6.7.9 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9DFAE4BBF82A0DB0907BED27C24DB4F456A9F789
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:9DFAE4BBF82A0DB0907BED27C24DB4F456A9F789
 magnet:?xt=urn:btih:0FA560C4B44F4B09B79B90726A2F7CF83B911CFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Webcams 2.0.17 [En]
 ```bash
 magnet:?xt=urn:btih:B5BE4115E98123333E90F4B633BA460C054AA768
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Compass Level & GPS 2.4.13 [Ru]
 magnet:?xt=urn:btih:6DA6DAA51B82239074A5ED690B5BB9B5CEA8F45C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Car Radio Reloaded 1.45.0 [En]
 ```bash
 magnet:?xt=urn:btih:0927BA233E70D21904754E4FCCF91276103C19DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:0927BA233E70D21904754E4FCCF91276103C19DF
 magnet:?xt=urn:btih:8A9250A75402A65FB568F4C498952DF24675852A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ Radio Alarm Clock + 5.4.0 [Ru]
 magnet:?xt=urn:btih:EAD828CD644593D75D512A3E58BFA49AF5D045BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ ZaZa Remote v4.8.2 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B06F76FEA579D0E7DF801CC518BEFB5D31390702
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ TeacherApp Английский - Написано профессорами.
 magnet:?xt=urn:btih:88EBDE31D01EB817107BDE83E38871B5137BE522
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ Volume Panel - это улучшенная замена панели управ�
 ```bash
 magnet:?xt=urn:btih:CCCC6A3839F465BA69B1E74C6CFE928D33689899
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ Colorfy - это раскраска, призванная помочь вам у
 magnet:?xt=urn:btih:60322C50781BB3BDF33112E187982A04564BA181
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:60322C50781BB3BDF33112E187982A04564BA181
 magnet:?xt=urn:btih:9F9FE33E0A7FEB3374E9BCC03A32B0AF7F6C4379
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:9F9FE33E0A7FEB3374E9BCC03A32B0AF7F6C4379
 ```bash
 magnet:?xt=urn:btih:3C8BF7A2D8F2A911B93DFAF3B0AAA3B53A477C6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ Magnifier Plus with Flashlight 4.5.3 [En]
 magnet:?xt=urn:btih:878537276714A4C9D772A42D8D3A6E1DBDC0EE2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Garmin: City Navigator North America NT 2023.20 [En]
 ```bash
 magnet:?xt=urn:btih:7E23DC483F0CF3B76B04EF8CE0FED3B587F41EA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:7E23DC483F0CF3B76B04EF8CE0FED3B587F41EA4
 magnet:?xt=urn:btih:E426F9476B3CA168E35703CB16EE6B169E332080
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ AntiBAG Тахограф 2.0.108 [Ru]
 ```bash
 magnet:?xt=urn:btih:D841DC156CAE2B20CDAB042C59D4B585ECA18F89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ Learn English - 6000 Essential Words 4.1.1 [Ru]
 magnet:?xt=urn:btih:2042236FA0A9B200FC97B9F4CD86F9A255DDCCB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ CamSam PLUS - Система предупреждения о скорости и
 magnet:?xt=urn:btih:BA15C4C07452774F622D0A24F3F16AA4DF550FCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ ReVanced YouTube Music - мобильное приложение, в котор�
 ```bash
 magnet:?xt=urn:btih:E668C437F6098DF9D879089903FE482A9ED399EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

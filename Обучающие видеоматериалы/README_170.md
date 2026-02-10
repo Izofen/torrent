@@ -19,6 +19,8 @@ Django - это самый популярный фреймворк для раз
 magnet:?xt=urn:btih:990A80AB03534CC6F884BA2B75BB5BCE5174C0D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:990A80AB03534CC6F884BA2B75BB5BCE5174C0D5
 ```bash
 magnet:?xt=urn:btih:66A31EBC0E0A93AB80AA0A253E89A608C36AAE73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:66A31EBC0E0A93AB80AA0A253E89A608C36AAE73
 magnet:?xt=urn:btih:6B21FA09FEBFB898350E7DEB7C454C4ABDE7CD22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ CreativeLive.com | Съемка короткометражных докумен�
 magnet:?xt=urn:btih:2B9A32E2FF21D9BC7FC9564B1B93F8D9F4F3BA0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Allan McKay​ | FumeFX Essentials (2008) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:0E11084D5BAC77141DD264D0798142109EA7BC95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Jillian Michaels | Killer Buns and Thighs (2011) DVDRip [EN]
 magnet:?xt=urn:btih:A39C98A38C0C91269E7D343DFF957BF319EF4C4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Ido Portal | The Floreio Project (2014) WEBRip [H.264] [EN]
 ```bash
 magnet:?xt=urn:btih:9F1AAB20707DE040A434C12EDAE50EBA308CAE0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ BodyRock | HIITMAX 1-7 (2016) WEBRip [H.264/1080p-LQ] [EN]
 magnet:?xt=urn:btih:544408D2B9374CAB6594A809B5FA437E113BDCC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ BodyRock | HIITMAX 8-14 (2016) WEBRip [H.264/1080p-LQ] [EN]
 ```bash
 magnet:?xt=urn:btih:F6DA2423B182B31F96DBA5612A1A3FE3173FF9A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Performance-маркетолог управляет рекламными кам�
 magnet:?xt=urn:btih:EB0D80EFE06061C84FED3D1CF8367D55D3760B02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ ASP.NET Core SignalR - это библиотека с открытым исхо�
 ```bash
 magnet:?xt=urn:btih:A7EF556DEB5B697F8E28653638DE8CF2B4098003
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:A7EF556DEB5B697F8E28653638DE8CF2B4098003
 magnet:?xt=urn:btih:A564A1CA9148085829CD713B885578CDB484F218
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ ITVDN | SQL Essential (2019) PCRec
 ```bash
 magnet:?xt=urn:btih:C4F79F2A391BEA1DF8BDA090F199B218B3F066D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ Max Twain | Pro Retoucher Fatalism Start 2.0 (2019) PCRec
 magnet:?xt=urn:btih:F41A1A9A251E21A1CA3FCEBDC5256EF6023D76D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ STL (Стандартная библиотека шаблонов) - библи�
 ```bash
 magnet:?xt=urn:btih:18374BE2CD138D106AE82F5E722CA0B0392A781F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ NFP | Цикл вебинаров «Переход с 1С:УПП на 1С:ERP» 
 magnet:?xt=urn:btih:823465C764AFBAEB87B0F62058EC8CD54D3EC321
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ Lynda.com | Trapcode Particular Essential Training [Sep 27, 2012] PCRec [En]
 ```bash
 magnet:?xt=urn:btih:9C07F9EAB7F488EB72C4D5BD347582A32238960F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:9C07F9EAB7F488EB72C4D5BD347582A32238960F
 ```bash
 magnet:?xt=urn:btih:79CE0024A1A12BDA088B1DAEE07B07822BC838FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:79CE0024A1A12BDA088B1DAEE07B07822BC838FA
 magnet:?xt=urn:btih:79DB3A1DA511B01270E822EC9CC221A2D2C0C8D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ magnet:?xt=urn:btih:79DB3A1DA511B01270E822EC9CC221A2D2C0C8D5
 magnet:?xt=urn:btih:8682447F9B85E8CED82F09538A54FB5CC002C1DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ magnet:?xt=urn:btih:8682447F9B85E8CED82F09538A54FB5CC002C1DF
 ```bash
 magnet:?xt=urn:btih:0E85018283023E2D2C485D14DFF2200DADC2AF67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:0E85018283023E2D2C485D14DFF2200DADC2AF67
 ```bash
 magnet:?xt=urn:btih:4FE8BA6FE9B84551EF2C5B810505EBD7D1E47AAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +616,8 @@ magnet:?xt=urn:btih:4FE8BA6FE9B84551EF2C5B810505EBD7D1E47AAA
 magnet:?xt=urn:btih:644CDB85206D4B374C21ACDB46DE4B04F34CF7DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +641,8 @@ magnet:?xt=urn:btih:644CDB85206D4B374C21ACDB46DE4B04F34CF7DD
 ```bash
 magnet:?xt=urn:btih:FB889DBC46A27D85F92E8C7C40492EBBB1412C0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +669,8 @@ magnet:?xt=urn:btih:FB889DBC46A27D85F92E8C7C40492EBBB1412C0D
 magnet:?xt=urn:btih:594A33D28D4F05AC1DBB16E179A32C6A9F03721C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ magnet:?xt=urn:btih:594A33D28D4F05AC1DBB16E179A32C6A9F03721C
 ```bash
 magnet:?xt=urn:btih:D6BC7CD9EFB6F446CB336EBF467BB0AB4EA95011
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

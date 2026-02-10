@@ -1,60 +1,3 @@
-###  Публикация: 1259066   (323095) от 02.11.2018
-
-VA - Hits of My Soul Vol. 41 (2018) [MP3|320 кб/с]<Darkwave, Synthwave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
-Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
-Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
-Сборник вобрал в себя исключительно качественную музыку.01. DevilRazor - FutureHell (04:45)
-02. Elevn - Burn Alexandria, Burn (06:13)
-03. Matthew Bauer - Night Demons (06:25)
-04. Carpenter Brut - Roller Mobster (03:34)(   Читать дальше...   )Жанр: Darkwave, Synthwave, New WaveПродолжительность: 02:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:417A2C3F7F7D634DB82C4C9D41B685C94A31503D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259224   (323096) от 02.11.2018
-
-Metallica - Kill 'em All (1983) 1988, Reissue [FLAC|Lossless|tracks + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hit The Lights (4:17)
- 02. The Four Horsemen (7:13)
- 03. Motorbreath (3:08)
- 04. Jump In The Fire (4:42)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:218FCC220ABDB3CBE7994A10B0801BD7C856A5C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 581706   (323104) от 28.11.2012
 
 Фэт Сити, Новый Орлеан / Fat City, New Orleans (2011) SATRip
@@ -75,6 +18,8 @@ magnet:?xt=urn:btih:218FCC220ABDB3CBE7994A10B0801BD7C856A5C0
 ```bash
 magnet:?xt=urn:btih:37811DAC7C7E88C0F5FA6C717CA86F250016A197
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +45,8 @@ magnet:?xt=urn:btih:37811DAC7C7E88C0F5FA6C717CA86F250016A197
 magnet:?xt=urn:btih:F475D7B002527ACC38A3FEE24C29E59B2F677FC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +70,8 @@ Discovery. Дороги России: Трасса Лена (2016) HDTVRip [720p
 ```bash
 magnet:?xt=urn:btih:BB2C6CF9F1C0BBD856B1AB6307C8FCEFD2744399
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +97,8 @@ magnet:?xt=urn:btih:BB2C6CF9F1C0BBD856B1AB6307C8FCEFD2744399
 magnet:?xt=urn:btih:44299409200EF23CA91647BE42513A831D9EE8DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +122,8 @@ magnet:?xt=urn:btih:44299409200EF23CA91647BE42513A831D9EE8DE
 ```bash
 magnet:?xt=urn:btih:5365BE5BED3BE84C16DB3FA3760723533139F280
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +149,8 @@ magnet:?xt=urn:btih:5365BE5BED3BE84C16DB3FA3760723533139F280
 magnet:?xt=urn:btih:087446D79FD615470E37AE0DE7D3445154AEB469
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +174,8 @@ magnet:?xt=urn:btih:087446D79FD615470E37AE0DE7D3445154AEB469
 ```bash
 magnet:?xt=urn:btih:8B9C2FE6611DD9086416D0AA9DA4C76101F6D05B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +201,8 @@ magnet:?xt=urn:btih:8B9C2FE6611DD9086416D0AA9DA4C76101F6D05B
 magnet:?xt=urn:btih:EED309639C9C81A66C27AD0DA581E85A802363F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +226,8 @@ EagleGet - простой менеджер закачек, позволяющи�
 ```bash
 magnet:?xt=urn:btih:C43728D22494EFD3F73750725D1229EE040491EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +253,8 @@ magnet:?xt=urn:btih:C43728D22494EFD3F73750725D1229EE040491EA
 magnet:?xt=urn:btih:852FFE634CB0A007BA6A28C9ED8EE8862C67CCA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +278,8 @@ Notepad++ - бесплатный редактор текстовых файло�
 ```bash
 magnet:?xt=urn:btih:D1E3BEE845EC4DD0D84E0A8F157FC746DF169E92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +308,8 @@ The Man from RavCon - Strange Universe (2016) [FLAC|Lossless|image + .cue] <Inst
 magnet:?xt=urn:btih:10246C104BD129B20E2B06F7217C184AB2E655B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +334,8 @@ magnet:?xt=urn:btih:10246C104BD129B20E2B06F7217C184AB2E655B7
 magnet:?xt=urn:btih:7705230583114B022665DA0C5C8D39165836CE21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +359,8 @@ magnet:?xt=urn:btih:7705230583114B022665DA0C5C8D39165836CE21
 ```bash
 magnet:?xt=urn:btih:7F997943F5236E79110D48FABA770AC9EB501996
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +389,8 @@ The Human League - Anthology: A Very British Synthesizer Group (2CD) (2016) [FLA
 magnet:?xt=urn:btih:9818682C6A6FA8A055B3138E22080AF4A11734AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +417,8 @@ Armin van Buuren - A State of Trance 790 (2016) [MP3|320 Kbps|image + .cue] <pro
 ```bash
 magnet:?xt=urn:btih:A4C69D315C032739A90904F33ADC490A602F3EC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +447,8 @@ magnet:?xt=urn:btih:A4C69D315C032739A90904F33ADC490A602F3EC0
 magnet:?xt=urn:btih:0615AE2308668AA49C596D3A0EF4018CD2892EC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +475,8 @@ Magistarium - Дискография (2009 - 2022) [MP3|320 Kbps] <Symphonic Pow
 ```bash
 magnet:?xt=urn:btih:7C22E16F586EC3E0FAE91DA63D0B3DE3B64CA408
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +507,8 @@ ESSE - Рок-опера «Дорога без возврата» (2011) [MP3|32
 magnet:?xt=urn:btih:ACD5CE0B0AFD90C55C42A799AC272A7C6C07E852
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +534,8 @@ magnet:?xt=urn:btih:ACD5CE0B0AFD90C55C42A799AC272A7C6C07E852
 ```bash
 magnet:?xt=urn:btih:C0E7E586133CDD98B6E7EA29D874290CE5CEF85F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +564,8 @@ The Tangent - Songs from the hard shoulder (2022) [FLAC|Lossless|image + .cue] <
 magnet:?xt=urn:btih:74298DBDE756E7564DD6555E08A741EF8FDBAA6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +589,8 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:7C26CF64F87B1F83E5BD6DF2E34125E2FF852C83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +619,8 @@ VA - Disco Boogie Mood (2022) CD, Compilation [MP3|320 Kbps] <Synthpop, Disco, S
 magnet:?xt=urn:btih:30D8BC2A70EF754D15911BC82329E3F4CE6E592B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +644,63 @@ Tomie | Томиэ [2018, Special, 2 эп.] WEB-DL 720p raw
 ```bash
 magnet:?xt=urn:btih:3D7A7DFD4857877E8FFD146382A1964447A8BCFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582373   (323165) от 09.10.2022
+
+Футбол. Чемпионат Франции. Лига 1. 2022-2023. 10-й тур. Реймс - ПСЖ (08.10.2022) IPTV [H.264/1080p-LQ]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стадион: Огюст Делон II (Реймс, Франция), вместимость: 21684. Главный судья: Пьер Гайуст (Франция).Телекомпания: Setanta Sports 2 HDЖанр: Спорт. ФутболЯзык озвучки: РусскийСубтитры: отсутствуют
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DE6934DDC426297AFD364FF32EC986B5168B0B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582181   (323166) от 09.10.2022
+
+Eclesios - Halls of Salvation (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Halls of Salvation (09:13)
+02 - Eclesios (07:33)
+03 - N.O.S (08:41)
+04 - Death Chiming (05:52)(   Читать дальше...   )Жанр: Death, Black MetalПродолжительность: 00:36:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB7CE6D499B5271E54BD40E6210205DC172743F4
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

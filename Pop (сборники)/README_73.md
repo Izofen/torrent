@@ -1,3 +1,32 @@
+###  Публикация: 1032212   (646058) от 07.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 73 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vanilla - Bamboleo ( 1988 )
+02. Lala - Johny Johny ( 1987 )
+03. Lena - Run To Me ( 1987 )
+04. Joe Maran - Give Me A Break ( 1983 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3FA10FE537A23B2D0D8B1DEC970F8F0219B9669
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032219   (646060) от 07.07.2016
 
 VA - Зарубежная Дискотека ХХ Века - 75 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
@@ -21,6 +50,8 @@ VA - Зарубежная Дискотека ХХ Века - 75 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:A2DAD6AE33C6103281E23A042744ED748189A6FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ CD1 - NOW
 magnet:?xt=urn:btih:B1DB7FDA672D477FAD5925181BBE2B66E04CECB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Зарубежная Дискотека ХХ Века - 74 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:D8BD0F9A42B533128718C06BDBA1686A055FDB46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - 80s Music Hits (2019) [MP3|320 Kbps] <Disco, Pop>
 magnet:?xt=urn:btih:5B5C267BC671795B234827489FAE2A9CA920643C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Зарубежные Хиты-Май 2018 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:FEB8C69F87E13D4ACE52C5F7A30C3FD54247931F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Chill Hits (2022) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:99D07E08DBA0853BA32FEB5E20A9B1D77F243F3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +225,8 @@ VA - German Top 50 Official Dance Charts 25.05.2018 (2018) [MP3|320 Kbps] <Dance
 magnet:?xt=urn:btih:2F490D8AA231836D70CCD165C5102D15FCF38B38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +253,8 @@ VA - German Top 100 Single Charts 25.05.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:8C80C17CC7DF087A0699941A5180E9907B7D8445
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +289,8 @@ VA - ЕвроХит Топ-40 (30.06.2012) [MP3|320 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:58D3170FB9FF7F8410FB703F03B3C24F6863F733
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +314,8 @@ VA - Летний ливень хитов в ремиксах (2012) [MP3|256 к
 ```bash
 magnet:?xt=urn:btih:E02CAFC4897767A98A570AD4E7F28BBA63039BAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +350,8 @@ VA - XXXL Русское Радио. Выпуск 8 (2012) [MP3|256 kbps]<Pop|Da
 magnet:?xt=urn:btih:5737BC38C45112C76755E382614F2B4D5FBAE30A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +378,8 @@ VA - Золотая Песня Года (2015) [MP3|128-320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:CFCA8429B5AB201BED7CFA005CC00C6AFCB5250B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +414,8 @@ VA - На Природу Пикничёк (2012) [MP3|128 kbps]<Pop>
 magnet:?xt=urn:btih:DC50F5331610EDE1B7FE319E1D6BE60C288DC721
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +439,8 @@ VA - Сводный Чарт Европы Плюс 50x50 (2012) [MP3|256 кб/с
 ```bash
 magnet:?xt=urn:btih:2B26B49457613D201829215BBAB1C49833E0E020
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +469,8 @@ VA - Radio Record TOP 33 — июнь (4) (2016) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:38649206046FAB0F4AD11AB3F172AAB069901DBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +497,8 @@ VA - Жаркие танцы. Летние хиты (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:C521464D3E03EA58BB285BA89E30F7A193BCFC53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +527,8 @@ VA - Зарубежная Дискотека ХХ Века - 69 (2016) [MP3|320 
 magnet:?xt=urn:btih:6AE4F29000528C67198DA6A0DB0453DCC06E8577
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +555,8 @@ VA - Зарубежная Дискотека ХХ Века - 61 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:4F3E1122F472578C58A099B64FDC9625DF78C480
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +585,8 @@ VA - Зарубежная Дискотека ХХ Века - 68 (2016) [MP3|320 
 magnet:?xt=urn:btih:7B733B3B16BF899D5E851680682E58B159D4C162
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +613,8 @@ VA - Electrodance Latino (2016) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:1F480981038710B6C8290E6040A1773FE5F21E8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +643,8 @@ VA - Зарубежная Дискотека ХХ Века - 67 (2016) [MP3|320 
 magnet:?xt=urn:btih:C34B06630E52BEA727121214001067DDE09B4D17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +671,8 @@ VA - Зарубежная Дискотека ХХ Века - 63 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:80884B0885042FD44F31B9A6DF58930925887719
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +701,8 @@ VA - Зарубежная Дискотека ХХ Века - 62 (2016) [MP3|320 
 magnet:?xt=urn:btih:32800E9246D74225B8B01FFC51F1546111BA6A96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +729,8 @@ VA - Зарубежная Дискотека ХХ Века - 65 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:2ECB0B87A909F7320AE29307604DA31F3BFEC7ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -682,38 +759,7 @@ VA - Зарубежная Дискотека ХХ Века - 66 (2016) [MP3|320 
 magnet:?xt=urn:btih:1C929E1DE7CD09A6D9CDB2BC2D9C02332EEEAE04
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517354   (647913) от 01.07.2012
-
-VA - Самые сливки: Летний спецвыпуск (2012) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Ани Лорак - Обними Меня
-02 Маша Вебер - Всё Для Тебя
-03 Dj Riga & Mc Zali - Дяди И Тети
-04 Афродита - Освободи Свой Телефон
-05 Зэбосы - Загорелая Попка
-06 Наташа Королева - Голая
-07 Лана Ярич - А Ты Потанцуй
-08 Стая - Сердце (Cj Alexey Lavrentev Remix)
-09 Глюкоза - Выстрел В Спину
-10 Елена Терлеева - Боль(   Читать дальше...   )Жанр: PopПродолжительность: 06:09:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C226B342664260A0FB83CC27989A28B0494CD34
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

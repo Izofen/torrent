@@ -1,3 +1,29 @@
+###  Публикация: 1006107   (830823) от 10.04.2016
+
+Соль. «БАХ!(-ЫТ-)КОМПОТ» (10.04.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведущий шоу Захар Прилепин - человек с четко выраженной позицией, очевидно, что ему есть, что сказать людям. Каждая программа начинается с обозначения Прилепиным темы, которая для широкого зрителя является ключевой в текущем информационном поле. Ведущего и музыкальных гостей в студии, по словам самого Прилепина, объединит "яркость, талант, взрывоопасность в (   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 01:24:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFADF04E56F52E11F737A8216687FA6466AB198C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 653451   (830850) от 07.05.2013
 
 Атлантис. Создания моря / Atlantis. Le creature del mare (1991) BDRip [H.264/1080p] [FR]
@@ -18,6 +44,8 @@
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@
 magnet:?xt=urn:btih:E409703D23D0FEF7BE4FF1B3135680DAC887064E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:E409703D23D0FEF7BE4FF1B3135680DAC887064E
 magnet:?xt=urn:btih:8D6DEFF66315D92F7A0425ECED3697E369F12BBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:8D6DEFF66315D92F7A0425ECED3697E369F12BBB
 ```bash
 magnet:?xt=urn:btih:5A972C4A036DAAC4F16CBA8FA675510B22AA761A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:5A972C4A036DAAC4F16CBA8FA675510B22AA761A
 magnet:?xt=urn:btih:9D63BB24E614A3F9ABB8BA75BF4BDC508ECF28E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:9D63BB24E614A3F9ABB8BA75BF4BDC508ECF28E7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:9D63BB24E614A3F9ABB8BA75BF4BDC508ECF28E7
 magnet:?xt=urn:btih:283DDF23A749A33C59E8EADCF7D9B90F57F18B49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:283DDF23A749A33C59E8EADCF7D9B90F57F18B49
 ```bash
 magnet:?xt=urn:btih:2A2D09616ED3717D5748EE05F71F9117117ED164
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:2A2D09616ED3717D5748EE05F71F9117117ED164
 magnet:?xt=urn:btih:469EA72CBA34DE167B09EB856D6B47A513384423
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:469EA72CBA34DE167B09EB856D6B47A513384423
 ```bash
 magnet:?xt=urn:btih:E351067134F493209ECE1ED4B3510705CA57832D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:E351067134F493209ECE1ED4B3510705CA57832D
 magnet:?xt=urn:btih:86988802907BD049C1CB85B2150C7E8DAA3F91F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ Aнисса Науэй ведёт аналитическую программу 
 ```bash
 magnet:?xt=urn:btih:4E2FA0D5EFBB90EB9CCE8A60D2BB95C58F2E51DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:4E2FA0D5EFBB90EB9CCE8A60D2BB95C58F2E51DB
 magnet:?xt=urn:btih:C7560D2F8CA4AABAB48F2B86420018FF9575302B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:C7560D2F8CA4AABAB48F2B86420018FF9575302B
 magnet:?xt=urn:btih:3214DF404AE81544584078B00D89EA93BFA071F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:3214DF404AE81544584078B00D89EA93BFA071F0
 ```bash
 magnet:?xt=urn:btih:709BACFE96E274DC0438CDD7BB387A77A287E3A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:709BACFE96E274DC0438CDD7BB387A77A287E3A8
 magnet:?xt=urn:btih:C92D12DD3DC2D0320E86436F6ED26AFE080F1201
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:C92D12DD3DC2D0320E86436F6ED26AFE080F1201
 ```bash
 magnet:?xt=urn:btih:7054937FED0F8C426BE00B7B6C49A9E526CF4371
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:7054937FED0F8C426BE00B7B6C49A9E526CF4371
 magnet:?xt=urn:btih:5E47E7B8A6FBA64C89AB1A09F722774889FCC8BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:5E47E7B8A6FBA64C89AB1A09F722774889FCC8BB
 ```bash
 magnet:?xt=urn:btih:5E3B8E67776B40AE78A51C1D0ADACD5262C67B1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:5E3B8E67776B40AE78A51C1D0ADACD5262C67B1D
 magnet:?xt=urn:btih:4599E2B7D033E496959299E9DBCDEBD1260C29FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:4599E2B7D033E496959299E9DBCDEBD1260C29FF
 ```bash
 magnet:?xt=urn:btih:A5406D641BE7CDE6B708A40C4168466397343A80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +598,8 @@ magnet:?xt=urn:btih:A5406D641BE7CDE6B708A40C4168466397343A80
 magnet:?xt=urn:btih:ADDFB40FF2DA99AB54F9621495DADDAC410B50DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:ADDFB40FF2DA99AB54F9621495DADDAC410B50DE
 ```bash
 magnet:?xt=urn:btih:1B030C41697F42BD0A104367ED3BBFC639E66F4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:1B030C41697F42BD0A104367ED3BBFC639E66F4C
 magnet:?xt=urn:btih:8238AD062AC05415093DA7B8A1CF3DD4B4CA94CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,29 +676,7 @@ magnet:?xt=urn:btih:8238AD062AC05415093DA7B8A1CF3DD4B4CA94CF
 magnet:?xt=urn:btih:FCF32C9E476957C74D3BA92E994D8BBDD6447BF2
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 310989   (831796) от 21.03.2011
-
-Мастер и Маргарита (2005) DVDRip
-
->>Документалистика и Телепередачи
->>Религии и культы (Док/TV)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лекция диакона Андрея Кураева, посвященная знаменитому роману М. А. Булгакова "Мастер и Маргарита", в которой он (диакон) раскрывает загадки данного произведения.Жанр: ТелепередачаРежиссер: Алексей ЧирсковПродолжительность: 02:16:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:300B0F593E1C9935309D77350EEC58398644B9EC
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

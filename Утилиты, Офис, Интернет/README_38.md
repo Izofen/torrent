@@ -19,6 +19,8 @@ RAM Saver Pro - инструмент для профессионального �
 magnet:?xt=urn:btih:E35B1EDB7602ABF19E6C8EA329EAB99CB9C678F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BurnAware Free - бесплатная и простая в использова�
 ```bash
 magnet:?xt=urn:btih:7AE975D82F3F076CC97649BD55BC69782E8471BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ PortableApps.com Platform - это функциональная платформ
 magnet:?xt=urn:btih:C864A0A49E2F77B4A118E173367E821F66FFE19D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ IObit Uninstaller представляет собой удобный инстр�
 ```bash
 magnet:?xt=urn:btih:D5D79975459103806BD1DA32E28D3A3C69AB1467
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ VueScan - программа предназначена для замены ст
 magnet:?xt=urn:btih:DC36E8AA90E80BBF29F1839CF3AD91F49421B07F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ DesktopSnowOK 6.26 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:20973901C9E7CABD76D994F109E1247DF0AC2AB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Registry Finder - простая в использовании утилита д
 magnet:?xt=urn:btih:95E78BEA0D81C8E032D6F450120549E5D346C9BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ WinPaletter 1.0.9.3 Standalone [En]
 ```bash
 magnet:?xt=urn:btih:400AB55548A5E4C171D793F2817774ABDF2833F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Total Uninstall - утилита, предназначенная для корр
 magnet:?xt=urn:btih:64440C004A4875E5FB8B1EBB8B2553914F5EF36B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ DirPrintOK 6.96 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F94BC31F764F1E499261B0DAAE795BB782DADAF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Total Uninstall - утилита, предназначенная для корр
 magnet:?xt=urn:btih:74020997038ECF901B655A5DE191B31CE81636D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Macrorit Data Wiper – мощная утилита, которая поможе
 magnet:?xt=urn:btih:F83243943DF5E64F153FE219C7565E8A601062A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ StressMyPC - крошечная утилита, которая выполняе�
 ```bash
 magnet:?xt=urn:btih:59DC6FE71F7C8D8D4EAA84A2BCF1225957F33707
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ SoftPerfect Cache Relocator - портативная программа, с по
 magnet:?xt=urn:btih:54F12CE22189561BA09DB01193CDC9F07377D4FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Lacey -  простой инструмент для поиска и скачив
 ```bash
 magnet:?xt=urn:btih:B57E1901D16F94A585B4D3F9017CF03BA308E5A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Glary Disk Explorer - небольшая утилита, которая нагл
 ```bash
 magnet:?xt=urn:btih:E0709E0EC59381706EE1094AAAC9A6C7668368E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ Vivaldi — это многофункциональный интернет-бр�
 magnet:?xt=urn:btih:A7376D53A08D6A85FFD08C9923A0B2B48E36D070
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Wise Memory Optimizer 4.2.1.124 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:006638B17191ACE4FA0213C662A11A30078B56E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ Hasleo Backup Suite — это бесплатное программное об�
 magnet:?xt=urn:btih:F5CEE8B3789DA08011BB08437EB1BDFEABAD47CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ ReffPassGen - программа предназначенная для гене�
 ```bash
 magnet:?xt=urn:btih:6AA1749A38BEAE29093DA4B6CC3AFFDD82A1F8CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ ExamDiff - мощная и легкая в использовании прогр
 magnet:?xt=urn:btih:4ED56A211A378ED65CA0C77B128441E78B0D33AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ WizTree - небольшая и полезная утилита для опре�
 ```bash
 magnet:?xt=urn:btih:53BBF3032D966D12D961DCCF486404367A7C2F12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ MeinPlatz предлагает простой и быстрый способ с�
 magnet:?xt=urn:btih:1E24D3AF8B6135AC02EF54D99AA8A20C2F251385
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Smart Driver Manager - это быстрый, простой и безопасн
 ```bash
 magnet:?xt=urn:btih:93A7C3DA206AEB4E8194019F3C2C936EE3A0E6CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Stardock Start11 – новая версия приложения для нас�
 magnet:?xt=urn:btih:7B25339E1D5623462687741B47C5805175125FAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ DesktopClock3D - простые, но в то же время красивые 3
 ```bash
 magnet:?xt=urn:btih:468392C10DC548968B4AC644AE44A72D85BC3045
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

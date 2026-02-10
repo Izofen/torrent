@@ -22,6 +22,8 @@ Joep Beving - Solipsism (2015) [MP3|320 кб/с] <Modern Classical, Piano>
 magnet:?xt=urn:btih:8626F6EDF769E332B08409003CDAB8645924C0BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Schubert - Wanderer Fantasy in C Major, D.760
 ```bash
 magnet:?xt=urn:btih:C35D78EBD1D8444A724BF5251F10DE88676A0980
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Concerto for Harpsichord in E major, BWV 1053 by Johann Sebastian Bach
 magnet:?xt=urn:btih:042808C64DDB7D33CE11D614DB98E5E7766CCBBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ The Florestan Trio - Schubert. Piano Trio No 2 In E Flat Major, D929 (2002) [FLA
 magnet:?xt=urn:btih:123B84395BC0CB8B1582EDA38D08D3D5FC75DB9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ Concerto Grosso no. 4 = Symphony no. 5, 1988
 ```bash
 magnet:?xt=urn:btih:99831B0DA777CA943179BA8CB7197DEA69BE8461
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +170,8 @@ Gurre-Lieder: Part I
 magnet:?xt=urn:btih:6196C6EB15FF3A72B68145630DE42D361674AF0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +198,8 @@ New London Chorale - The Classic Christmas Collection (1998) [MP3|320 Kbps] <Сr
 ```bash
 magnet:?xt=urn:btih:1FE8BB8DBE8E017327D03BDE6F8E065ECE4B6D7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +228,8 @@ New London Chorale - Young Christmas (2001) [MP3|320 Kbps] <Crossover Classical,
 magnet:?xt=urn:btih:1EF8476FAB6F2B5FA8F7BA8331B30B641BB01867
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +256,8 @@ David Lanz - French Impressions (2017) [FLAC|Lossless|WEB-DL|tracks] <Piano, Cla
 ```bash
 magnet:?xt=urn:btih:65FC2691B9F041DB25F913B401C7599139542814
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +292,8 @@ magnet:?xt=urn:btih:65FC2691B9F041DB25F913B401C7599139542814
 magnet:?xt=urn:btih:36201740E449FA53B87A89E1EE7B8B0F764066A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +320,8 @@ VA - Essential Classical Piano (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ```bash
 magnet:?xt=urn:btih:CB6DE383589D15CA10FE881F9128D4720DFDB40C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +356,8 @@ Concerto in G minor per violino, 2 flauti dritti, 2 oboi, fagotto ed archi RV 57
 magnet:?xt=urn:btih:A7E0038B2BFE6B790A778ABD530F9ADE50E357E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +384,8 @@ magnet:?xt=urn:btih:A7E0038B2BFE6B790A778ABD530F9ADE50E357E6
 ```bash
 magnet:?xt=urn:btih:B68BC5AE6A5F62551B597244530AAEE9DB79BA7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +414,8 @@ VA - Chill Out Piano (2017) [MP3|320 Kbps] <Classical>
 magnet:?xt=urn:btih:FD73DE2EAC6D04FE8E7A28517A8BF8926D589B8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +442,8 @@ Antonio Nicolau (1858-1933)(   Читать дальше...   )Жанр: Classic
 ```bash
 magnet:?xt=urn:btih:5BAC67D73E83A3FB1B3FF7781633D871687511CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +472,8 @@ Andre Rieu - Romantique (1998) [FLAC|Lossless|tracks] <Classical>
 magnet:?xt=urn:btih:526A5E5AECAA2488D2B8BEB374BDE174AFA17250
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +500,8 @@ Valses nobles et sentementals, op. 61 (fragmentes)
 ```bash
 magnet:?xt=urn:btih:53E64E6242FDAD5B05A54C4675D98457E8C23FDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +530,8 @@ Han de Vries - Appassionato (1989) [FLAC|Lossless|tracks] <Classical, Romantic>
 magnet:?xt=urn:btih:9B032C3714CC038687E894C65A836AF5CA80B69D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +558,8 @@ magnet:?xt=urn:btih:9B032C3714CC038687E894C65A836AF5CA80B69D
 ```bash
 magnet:?xt=urn:btih:2C85EE451A718C4363F99F0FD4DA71D0D5073FFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +588,8 @@ Hornkonzert Nr. 2 Es-dur, KV 417(   Читать дальше...   )Жанр: Cl
 magnet:?xt=urn:btih:90F9213E134FFBB093A9A238B4B75AA4C046C066
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +616,8 @@ Valses nobles et sentementals, op. 61 (fragmentes)
 ```bash
 magnet:?xt=urn:btih:FB3E8B56F283892D6B1A20051346A551BB52E4B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +646,8 @@ Carlo Maria Giulini - Rossini: Stabat Mater (2006) [FLAC|Lossless|tracks] <Class
 magnet:?xt=urn:btih:A27290E4A750035692961E383FD992FD1D11BA39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +674,8 @@ Franz Anton Hoffmeister
 ```bash
 magnet:?xt=urn:btih:ADD719BE9110464A6DF3DFB89EA34B1B0BFA31E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -658,6 +704,8 @@ New London Chorale - Young Matthew Passion (1983) [FLAC|Lossless|WEB-DL|image + 
 magnet:?xt=urn:btih:76CF940EE9A8BD0522D6E3962367C6307BBA99BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -685,6 +733,8 @@ New London Chorale - Young Messiah (1979) [FLAC|Lossless|WEB-DL|image + .cue] <C
 magnet:?xt=urn:btih:31AA0BBA5361ADE34A7135AD6608E5A8755D0998
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -711,6 +761,8 @@ VA - Top 50 Most Popular Classical Piano (2014) [MP3|320 кб/с] <Classical, Pi
 ```bash
 magnet:?xt=urn:btih:9F27ACBB3C5621C7E8B955338EED3C35B2529F29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

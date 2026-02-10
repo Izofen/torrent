@@ -1,3 +1,29 @@
+###  Публикация: 845709   (656569) от 01.06.2015
+
+NG. Дикая Аляска / Wildes Alaska (2012) BDRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656569.jpg" />
+</div>
+
+
+###  Подробнее
+
+Путешествуйте с National Geographic в суровых условиях Аляски и посетите места обитания множество великолепных и разнообразных видов животных и растений, нашедших здесь свой дом.Жанр: Документальный, путешествия, природаПеревод: Одноголосый закадровый (профессиональный, Дмитрий Полиновский)Продолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31E24DD1DD598E2BAA43D78DA1BFA2232062D636
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 929992   (656583) от 05.06.2017
 
 Первая Мировая война в цвете / World War 1 in color (2003) DVDRip (7 серий из 7)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:BFAA52AE0A26F80B16A63CCF366CAF2CB581B67B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ Nat Geo Wild: Хищники Африки [3 из 3] / Africa’s Deadliest (201
 magnet:?xt=urn:btih:0EF3BAA92AFFF7B8F7CA7454CC1B94F5F7CC58AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:0EF3BAA92AFFF7B8F7CA7454CC1B94F5F7CC58AE
 ```bash
 magnet:?xt=urn:btih:49A900BC9DCB5F92659CC5ADC046A38FFCE754CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:49A900BC9DCB5F92659CC5ADC046A38FFCE754CD
 magnet:?xt=urn:btih:EBE4108CD1A0E70D7BD98E0C072AAE5BF5C24C43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:EBE4108CD1A0E70D7BD98E0C072AAE5BF5C24C43
 ```bash
 magnet:?xt=urn:btih:861B0C3E943CF9557165771BC830100F9A3DF78A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:861B0C3E943CF9557165771BC830100F9A3DF78A
 magnet:?xt=urn:btih:BDD2627BDE3BD86B786FBD8FCF853B8ADB543563
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:BDD2627BDE3BD86B786FBD8FCF853B8ADB543563
 magnet:?xt=urn:btih:C23C78D5A2188607BE0BF4BE5BD469CC72A1C1C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +226,8 @@ magnet:?xt=urn:btih:C23C78D5A2188607BE0BF4BE5BD469CC72A1C1C1
 ```bash
 magnet:?xt=urn:btih:33319C3A20EF60705B38ABDED0A071F921A90645
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:33319C3A20EF60705B38ABDED0A071F921A90645
 magnet:?xt=urn:btih:D452544CDCD871DE8FD2890C35455EAD65146284
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:D452544CDCD871DE8FD2890C35455EAD65146284
 ```bash
 magnet:?xt=urn:btih:F3D4EA24619ECD083E76A2F6D397F38F366C5F40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:F3D4EA24619ECD083E76A2F6D397F38F366C5F40
 magnet:?xt=urn:btih:DA3CF35A07F86D8A106A9118B2E834BFA4C616F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:DA3CF35A07F86D8A106A9118B2E834BFA4C616F5
 ```bash
 magnet:?xt=urn:btih:9DC52CD7780242509A92DA3F52590BAE76E624F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:9DC52CD7780242509A92DA3F52590BAE76E624F5
 magnet:?xt=urn:btih:FBF4D07C779DD715230446156E4438D6AD02BDCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +383,8 @@ Viasat Nature: Тайны заливного леса – национальны
 ```bash
 magnet:?xt=urn:btih:5A64E50A2E53973C882821B06FA03D06E63B24A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:5A64E50A2E53973C882821B06FA03D06E63B24A0
 magnet:?xt=urn:btih:67C6F39ECF028B8CB5D7DC011D7404625B72693F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:67C6F39ECF028B8CB5D7DC011D7404625B72693F
 ```bash
 magnet:?xt=urn:btih:C71DFA74F67119A88C3C0BC012E365EF1D2E95AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:C71DFA74F67119A88C3C0BC012E365EF1D2E95AE
 magnet:?xt=urn:btih:917AB69DACCA972DA575401573079EDE8C57D9F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:917AB69DACCA972DA575401573079EDE8C57D9F9
 ```bash
 magnet:?xt=urn:btih:F5175E8D6C63C10574A57665B96DAE9C076D3DC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:F5175E8D6C63C10574A57665B96DAE9C076D3DC1
 magnet:?xt=urn:btih:0AB543DCD68338172AEA4BD00DDFE199EA8CDE3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:0AB543DCD68338172AEA4BD00DDFE199EA8CDE3E
 magnet:?xt=urn:btih:805225AED0685D27B0EAFC4804FE086BE2AAD944
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:805225AED0685D27B0EAFC4804FE086BE2AAD944
 ```bash
 magnet:?xt=urn:btih:A249D8EF1969A192C316E64C282BDA510D754DFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +598,8 @@ magnet:?xt=urn:btih:A249D8EF1969A192C316E64C282BDA510D754DFF
 magnet:?xt=urn:btih:3CF177AD20634ADE1D55E358D3B9110B6EDD7544
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:3CF177AD20634ADE1D55E358D3B9110B6EDD7544
 ```bash
 magnet:?xt=urn:btih:4E7C5712535BD40038476138C11C877C0D2C4240
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:4E7C5712535BD40038476138C11C877C0D2C4240
 magnet:?xt=urn:btih:69F8E2317A8902EC82597E673F43C7529E90AC9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,29 +676,7 @@ magnet:?xt=urn:btih:69F8E2317A8902EC82597E673F43C7529E90AC9D
 magnet:?xt=urn:btih:81DDD6EBFDF01CAF202B6BD8253906FC9CB54F4A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903422   (657578) от 31.05.2015
-
-Холостяк. Сезон №3. Выпуск 13. Финал (2015.05.30) WEB-DL [H.264/720p]
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657578.jpg" />
-</div>
-
-
-###  Подробнее
-
-7 МАРТА В 21.30 ТНТ НАЧНЕТ ЖЕНИТЬ ПОСЛЕДНЕГО ХОЛОСТЯКА COMEDY CLUB – ТИМУРА БАТРУТДИНОВА. В новом сезоне шоу «Холостяк» девушкам предстоит превзойти самих себя, чтобы добиться внимания звездного героя. На что они готовы пойти ради любви самого завидного жениха страны? Создатели шоу приготовили для претенденток огонь, воду и медные трубы. Девушкам придется плавать (   Читать дальше...   )Производство: РоссияТелекомпания: ТНТЖанр: Реалити ШоуПродолжительность: ~ 01:13:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB7CBAD7E05C5A4D7E0D90EDB472E324B6CEB175
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

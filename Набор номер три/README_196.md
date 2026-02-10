@@ -22,6 +22,8 @@ Video: с поддержкой DirectX 9 и 128 МБ памяти (для тем
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ AE Face Tools - более 430 инструментов и пресетов дл
 magnet:?xt=urn:btih:334DE1B83C92BD0320EF7F9FCA03A53976851762
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Highlights School | МК Цветокоррекция и тонирование 
 ```bash
 magnet:?xt=urn:btih:E29F65DA3A367BF0B8B662FC4B0084AA6B4CA8A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ PHP+MySQL для начинающих. Все технические момен�
 magnet:?xt=urn:btih:183CFAB01A97FEDA8E5062339902EFD54489806C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:183CFAB01A97FEDA8E5062339902EFD54489806C
 magnet:?xt=urn:btih:FD7BE7D690050B7771EBB8BB30A86C4216A84477
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:FD7BE7D690050B7771EBB8BB30A86C4216A84477
 ```bash
 magnet:?xt=urn:btih:3FAE9744F674372A0C2E1DBCE608AEB1D979B798
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:3FAE9744F674372A0C2E1DBCE608AEB1D979B798
 magnet:?xt=urn:btih:57CD2FA03AD12CBB2CD6A5383E5B5C0312A3F5A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ BELOFF 2018.10 [Ru]
 ```bash
 magnet:?xt=urn:btih:ED69E75A9417E1271D4EDCFC881EB345B6DDCB2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:ED69E75A9417E1271D4EDCFC881EB345B6DDCB2B
 magnet:?xt=urn:btih:2D8A8F5A189B4D116B3158B8621190CB69CF0F9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:2D8A8F5A189B4D116B3158B8621190CB69CF0F9E
 ```bash
 magnet:?xt=urn:btih:EE496F176E1B6D536DBD91DF7D48E29F50973086
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ Dungeon Siege: Legends of Aranna / Dungeon Siege: Легенды Аранны (2
 magnet:?xt=urn:btih:0B06B67DE2A9F12894022A2FD88B6B60DE4DA622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ Total War: WARHAMMER II - это стратегическая игра поис�
 ```bash
 magnet:?xt=urn:btih:E66DDDBA0260732CE15A35446E1393B1EB31B355
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ Unlocker 1.8.7 [Multilang]
 magnet:?xt=urn:btih:5455636785FD7790C1CB5833D1E631884522703D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:5455636785FD7790C1CB5833D1E631884522703D
 ```bash
 magnet:?xt=urn:btih:9C399AA92F127A6B2E88F9BFF503415DACE7C05F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:9C399AA92F127A6B2E88F9BFF503415DACE7C05F
 magnet:?xt=urn:btih:DB925EAA223A10EC47A493E746DAC9EF0DCD90D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:DB925EAA223A10EC47A493E746DAC9EF0DCD90D0
 ```bash
 magnet:?xt=urn:btih:D98AFD117FEB4733F3397DC7B234A99753102BAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ Movavi Video Suite – это пакет программ на русском я
 magnet:?xt=urn:btih:66032665A356378A518F45C523A4144689571874
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:66032665A356378A518F45C523A4144689571874
 ```bash
 magnet:?xt=urn:btih:FD8482BF1F788E6EA2E1D143BC9980081E1A4720
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ BATMAN: Рыцарь Аркхема торжественно завершает 
 magnet:?xt=urn:btih:3C23E0C2E2D46948D0FBFF19C7916B70E108E67C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:3C23E0C2E2D46948D0FBFF19C7916B70E108E67C
 ```bash
 magnet:?xt=urn:btih:EC31E2F835A0FF0C025DE1B5847F005F92BDFF3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ magnet:?xt=urn:btih:EC31E2F835A0FF0C025DE1B5847F005F92BDFF3A
 magnet:?xt=urn:btih:CFDEBF3042C7D8EBF3EB065EFBDD95EAF2ACFDF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:CFDEBF3042C7D8EBF3EB065EFBDD95EAF2ACFDF2
 ```bash
 magnet:?xt=urn:btih:F028B7EF4D88DA115336C3B124A96E176665F978
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ magnet:?xt=urn:btih:F028B7EF4D88DA115336C3B124A96E176665F978
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ Mafia III / Мафия 3 (2016) [Ru/Multi] (1.09/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:80662C1B119050B35004EB0A37F2464EC11A75C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ Battlefield 1 (2016) [Ru/Multi] (1.0.47.30570) License CPY
 magnet:?xt=urn:btih:16438DF50D35918888B2A22B310218D05DF79325
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ Aki Sora / Аки и Сора [2009-2010, 3 эпизода OVA] DVDrip Raw
 ```bash
 magnet:?xt=urn:btih:F73B893B667E34BC5522AFEE24E1C0CE717BEF91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

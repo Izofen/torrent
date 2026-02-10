@@ -22,6 +22,8 @@ Gardenstyle, Ирина Пугачева | Создание собственно
 magnet:?xt=urn:btih:F9248E4D5B2B180B41B3720D681F1DC517FEAFCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:F9248E4D5B2B180B41B3720D681F1DC517FEAFCF
 ```bash
 magnet:?xt=urn:btih:1DAF52896D0467BBE0FD57AE9B78ADD56C5E5AE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:1DAF52896D0467BBE0FD57AE9B78ADD56C5E5AE9
 magnet:?xt=urn:btih:B4856E5C5B4A22255A3A789444BC2B12F46AFBD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Seller Insiders, Джозеф Кеш и др. | Пошаговый курс по
 ```bash
 magnet:?xt=urn:btih:79393FF7CA227CE399CEE08117A3E90E17B0F74C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:79393FF7CA227CE399CEE08117A3E90E17B0F74C
 magnet:?xt=urn:btih:F9127742654F52C09C788A68025823AFA8A32CAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:F9127742654F52C09C788A68025823AFA8A32CAC
 ```bash
 magnet:?xt=urn:btih:BBD3A698AAE8961B2BFFC2565E9CB772AF8B1062
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ Udemy, Исмаил Усеинов | jQuery для начинающих (2021) P
 ```bash
 magnet:?xt=urn:btih:1531F1677ED4D4A5EA45F827DEE732297474F40D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ RuFrame, Ленар Баширов | Командная строка Windows  (2
 magnet:?xt=urn:btih:A301F6E35CFB2ECEA14573456C06593FFB6D1201
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:A301F6E35CFB2ECEA14573456C06593FFB6D1201
 ```bash
 magnet:?xt=urn:btih:2F34E85043044E3873BD5506F36C5141D8B9E290
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ Infostart Event 2017-2019
 magnet:?xt=urn:btih:F5F615F646A0A0DBC3DBEA648F3BF87D844A615B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +299,8 @@ magnet:?xt=urn:btih:F5F615F646A0A0DBC3DBEA648F3BF87D844A615B
 magnet:?xt=urn:btih:BEF5865BCEA583A3F30521FAB757F416464BA74C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:BEF5865BCEA583A3F30521FAB757F416464BA74C
 ```bash
 magnet:?xt=urn:btih:0BAB53CE3EF371F21D0A75EBC18C76D39ADB5D6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +351,8 @@ James Paick | Environment Design for Games and Film Vol 1-2 (2014) PCRec [En, Ru
 magnet:?xt=urn:btih:FBF069E725F9AFFADF71B9678012A045E606A1B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ Jake Parker, Will Terry, Ty Carter | Painting Color and Light (2015) PCRec
 ```bash
 magnet:?xt=urn:btih:7D7F2D0BF54803F5A5DCEA4B0D596183453E1C3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ David Malan | Drawing a Portrait (2015) PCRec [En, Ru]
 magnet:?xt=urn:btih:2B7A3F80E6BAAB74AFD098BCAD32DBD5A761BF57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ Jake Parker | Light and Shadow (2015) PCRec [En, Ru]
 magnet:?xt=urn:btih:F1206912FC8038949EA610A0577B0D55E38CA040
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ Movie Park School | Монтаж и постпродакшн (2020) PCRec
 ```bash
 magnet:?xt=urn:btih:2D280803B6CCFC7794C58F5C7F2096F7DB95A8FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ A Cloud Guru / LinuxAcademy | LPIC-2: Linux Engineer Exam 201 [En] (2018) PCRec
 magnet:?xt=urn:btih:A9487D2E9B6FDE23ECE3911CE9C0749C9EECA586
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ Udemy, Trevor Sawler | Deploying a Secure Virtual Private Server with Ubuntu 20.
 ```bash
 magnet:?xt=urn:btih:5F9C072487B8D41D967026D4BC1FB6AAF111170D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ Edston, Николай Петров | Создание чат-ботов в What
 magnet:?xt=urn:btih:52651F8FBFC1399F27BDEF93E89A46A05AB77625
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ A Cloud Guru / LinuxAcademy | Red Hat Certified Specialist in Linux Diagnostics 
 ```bash
 magnet:?xt=urn:btih:5B18D91AECDA297A897E2CC9DB11FEF3D011BD47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +591,8 @@ Code4Startup, PythonYoga | Build Your Own On-demand Delivery System with Python 
 magnet:?xt=urn:btih:807D150AF4EC2BEFA663BC15539D361193157FE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +620,8 @@ magnet:?xt=urn:btih:807D150AF4EC2BEFA663BC15539D361193157FE8
 magnet:?xt=urn:btih:3B1E0CA7DDB18B9044A5D8493FBE53852EBF68E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +648,8 @@ EngExpert, Диана Семенычева | Всё, что вы хотели з
 magnet:?xt=urn:btih:6BDF7CCAC1C5FDE323319AF315B4219E2C574620
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +674,8 @@ Ghidra является сильным конкурентом IDA Pro и исп�
 ```bash
 magnet:?xt=urn:btih:A038013DB6E7BA895A40CEB9B50D6566D59C6397
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +703,8 @@ API на основе хуков
 ```bash
 magnet:?xt=urn:btih:F660E4F20E82B2373004C700D43117FB0B6B7ABE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

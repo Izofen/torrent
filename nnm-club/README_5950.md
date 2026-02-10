@@ -22,6 +22,8 @@ Code Orange - The Above (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metalcore, h
 magnet:?xt=urn:btih:0DE5141C4766D7D12FB9C4EAD4C5AB8F624CC4C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Stones Of Babylon - Ishtar Gate (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych Ston
 magnet:?xt=urn:btih:F16C72C9EDEE9529EF5AD9BF58F847FE23FD66A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:F16C72C9EDEE9529EF5AD9BF58F847FE23FD66A0
 ```bash
 magnet:?xt=urn:btih:9A1C829F4B121FC902931A376DA10042970681F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:9A1C829F4B121FC902931A376DA10042970681F5
 ```bash
 magnet:?xt=urn:btih:B853845ECFCAFB85AF43E99C076E052231FC9B2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:B853845ECFCAFB85AF43E99C076E052231FC9B2D
 magnet:?xt=urn:btih:ADFE715331C208A97494C10B6F1952ADFCEF3664
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ NirLauncher Package - универсальный пакет из более че
 magnet:?xt=urn:btih:595375DA006DCD3D9697C8B26F1466D94F581A49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:595375DA006DCD3D9697C8B26F1466D94F581A49
 ```bash
 magnet:?xt=urn:btih:96BB8F2982AE5F28BED76C6A329B071A1D92197A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ VA - Balearic Beats: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Ba
 magnet:?xt=urn:btih:6946B89D96E918FF4A37BE690FD28C748FE81F34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:6946B89D96E918FF4A37BE690FD28C748FE81F34
 ```bash
 magnet:?xt=urn:btih:896A5F6C1D34E9DB8190ADAE1C6B1B3FCF535B03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ Jimmy Buffett - Songs You Dont Know By Heart (2020) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:BDB2D6B3A7A0E9BC5BDBD1A4F44AA0A2FD98A836
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 ```bash
 magnet:?xt=urn:btih:7BB831F93BD13ABCDE6A02859CA74AF6980C74B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ Lane 8 - Fall 2023 Mixtape (2023-09-20) [MP3|320 Kbps] <Progressive House, Melod
 magnet:?xt=urn:btih:F6B8B961D2A62DB74014928C9FDCB06E74E4BE85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:F6B8B961D2A62DB74014928C9FDCB06E74E4BE85
 ```bash
 magnet:?xt=urn:btih:80674084063F375C7522DD4458A476DA4AAC249B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ Spellmaster - Unearthed Arcana (2020) [MP3|320 Kbps] <Heavy Metal>
 magnet:?xt=urn:btih:9851C354A8ADA35607238440810D8DD700C652CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +408,8 @@ magnet:?xt=urn:btih:9851C354A8ADA35607238440810D8DD700C652CF
 magnet:?xt=urn:btih:DE0758C5B51502F18882DD1917AB9C9FB3846B92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +434,8 @@ magnet:?xt=urn:btih:DE0758C5B51502F18882DD1917AB9C9FB3846B92
 magnet:?xt=urn:btih:D514D69CD8E51B9491CFF67C22F2241F0E997E0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ XYplorer - удобный мультивкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:8CC4C9AD6E5041E838CE07CCFDE2BD968D5FE534
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ VA - Winter Mix 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:6BE34847CC3026F2D3C24DB800185FCAE2BDD3F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +518,8 @@ VA - Southeast of Saturn (2020) [FLAC|Lossless|WEB-DL|tracks] <Shoegaze, Dream P
 magnet:?xt=urn:btih:792FD0E9E699D9BA65061DBD6DF2F61F66458217
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +543,8 @@ Keka 1.2.58 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:060B719908933E498216FC6102647BB476383BA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +573,8 @@ VA - Happy New Year 2023 (2022) [MP3|320 Kbps] <Pop, Rock, RnB>
 magnet:?xt=urn:btih:7EC4D7A771696913CCA3244424AD5A2973F3F6C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +599,8 @@ InnoExtractor - это мощное приложение, которое пом�
 ```bash
 magnet:?xt=urn:btih:91D9ED33B30C43884A1389365885138A15B7989A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +629,8 @@ CD - 1 - Missing Links Volume One: Finger Painting - A collection of library and
 magnet:?xt=urn:btih:5012BB9C93FEA1DE501EE026494237EDBD441F93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +655,8 @@ magnet:?xt=urn:btih:5012BB9C93FEA1DE501EE026494237EDBD441F93
 ```bash
 magnet:?xt=urn:btih:5CE861BCCA88B888E82DADDC73B05A46985B2473
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +685,8 @@ VA - Pop Ambient 2021 (2020) [AAC|~304 Kbps] <Electro, Ambient>
 magnet:?xt=urn:btih:6CDAAC263177780405272BF11C59AC7CA27C6B40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +711,8 @@ Audiobook Builder 2 2.2.6 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F6D3A2FF5FCAB73EB6B06505DACBB2A76F47E774
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

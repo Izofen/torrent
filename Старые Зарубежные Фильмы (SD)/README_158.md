@@ -1,28 +1,3 @@
-###  Публикация: 1542638   (637251) от 07.04.2022
-
-Аста Нильсен. Чужая птица / Der fremde Vogel (1911) TVRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637251.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет прост. Почтенный и состоятельный мистер Маннеринг из Нью-Йорка, с дочерью и племянником приехал на вакации в Германию, в Шпреевальде. Его молоденькая дочь Мэй умудрилась влюбиться в местного лодочника. Но папаша конечно же против. И уж коли в этом фильме снимается Аста Нильсен, то вы конечно же уже поняли, что ничем хорошим это все не закончится.
-Вот чем хорош (   Читать дальше...   )Производство: Германия, Deutsche Bioscop GmbH / Projektions-AG Union (PAGU)Жанр: Драма, мелодрама, немое киноРежиссер: Урбан ГадАктеры: Карл Клевинг, Аста Нильсен, Ханс Мирендорф, Евгения Вернер, Луис Ральф, Фрау Карстен, Ханнс Кралы, Агда НильсонПеревод: Немой с интертитрамиСубтитры: Немецкие интертитры, русские вшитые отключаемыеПродолжительность: 00:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D85EA547401A3DA83AE9C833042825114DE406C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143327   (637327) от 17.06.2017
 
 Личный ад 36 / Private Hell 36 (1954) DVDRip
@@ -43,6 +18,8 @@ magnet:?xt=urn:btih:9D85EA547401A3DA83AE9C833042825114DE406C
 ```bash
 magnet:?xt=urn:btih:ACD5E029912DD935D9AF08411F5ABC0142231478
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +45,8 @@ magnet:?xt=urn:btih:ACD5E029912DD935D9AF08411F5ABC0142231478
 magnet:?xt=urn:btih:3A453CC00A2B5D4AAF0A1DCEB56D73A5DEB1C576
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +70,8 @@ magnet:?xt=urn:btih:3A453CC00A2B5D4AAF0A1DCEB56D73A5DEB1C576
 ```bash
 magnet:?xt=urn:btih:5D3203EF693E73D290375D5ABE7DD464B631F415
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +98,8 @@ magnet:?xt=urn:btih:5D3203EF693E73D290375D5ABE7DD464B631F415
 magnet:?xt=urn:btih:3B376034431D1E1FA45B74C5CB2FA5F5FE478101
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +124,8 @@ magnet:?xt=urn:btih:3B376034431D1E1FA45B74C5CB2FA5F5FE478101
 magnet:?xt=urn:btih:94A967C5432750FD747A568A7E8A9105823A8707
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +149,8 @@ magnet:?xt=urn:btih:94A967C5432750FD747A568A7E8A9105823A8707
 ```bash
 magnet:?xt=urn:btih:2DCBEA119B44667F7464FD220CCFD7E7D8B45892
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +178,8 @@ magnet:?xt=urn:btih:2DCBEA119B44667F7464FD220CCFD7E7D8B45892
 magnet:?xt=urn:btih:05F5CCFC341DF06707CAF8209D22BD380CF26ABA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +203,8 @@ magnet:?xt=urn:btih:05F5CCFC341DF06707CAF8209D22BD380CF26ABA
 ```bash
 magnet:?xt=urn:btih:12D56EC5802F67C0EE495D79B88E9738D743173F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +231,8 @@ magnet:?xt=urn:btih:12D56EC5802F67C0EE495D79B88E9738D743173F
 magnet:?xt=urn:btih:B3840D91ED765F42D8250F92188D75282E2B5D6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +256,8 @@ magnet:?xt=urn:btih:B3840D91ED765F42D8250F92188D75282E2B5D6F
 ```bash
 magnet:?xt=urn:btih:19AC99FFCDCAF1B0F4E2F140669C518F0571DEEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +283,8 @@ magnet:?xt=urn:btih:19AC99FFCDCAF1B0F4E2F140669C518F0571DEEC
 magnet:?xt=urn:btih:25F3249B9D16B744EC331340E33C37677F080052
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +308,8 @@ magnet:?xt=urn:btih:25F3249B9D16B744EC331340E33C37677F080052
 ```bash
 magnet:?xt=urn:btih:C9B5FF86DE4D87C1F29D9283BE42A8DE754073B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +335,8 @@ magnet:?xt=urn:btih:C9B5FF86DE4D87C1F29D9283BE42A8DE754073B7
 magnet:?xt=urn:btih:A023BBC3A303276A5211BCAAAA6BDCFCA3F0AB9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +361,8 @@ magnet:?xt=urn:btih:A023BBC3A303276A5211BCAAAA6BDCFCA3F0AB9E
 magnet:?xt=urn:btih:21B52B91EAB4E5146B9A54D9DD0FA9A2734FE6DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +386,8 @@ magnet:?xt=urn:btih:21B52B91EAB4E5146B9A54D9DD0FA9A2734FE6DA
 ```bash
 magnet:?xt=urn:btih:A6486A04E9528B0A1CBC41611EEECD85265A926D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +414,8 @@ magnet:?xt=urn:btih:A6486A04E9528B0A1CBC41611EEECD85265A926D
 magnet:?xt=urn:btih:CFE757F3C375D131211EE6D09973C8807478002E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +439,8 @@ magnet:?xt=urn:btih:CFE757F3C375D131211EE6D09973C8807478002E
 ```bash
 magnet:?xt=urn:btih:6C86A9636A025EA540B3591D0F8974AFD78413C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +466,8 @@ magnet:?xt=urn:btih:6C86A9636A025EA540B3591D0F8974AFD78413C7
 magnet:?xt=urn:btih:D066F596258A729285BA9D9E7B0753DDB381346F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +491,8 @@ magnet:?xt=urn:btih:D066F596258A729285BA9D9E7B0753DDB381346F
 ```bash
 magnet:?xt=urn:btih:2D921E22F7EAC3C9A6D23FC98EFC848651E97285
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +518,8 @@ magnet:?xt=urn:btih:2D921E22F7EAC3C9A6D23FC98EFC848651E97285
 magnet:?xt=urn:btih:E15D654CC26AFD724EE7FDDF41FB39193FDACA09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +543,8 @@ magnet:?xt=urn:btih:E15D654CC26AFD724EE7FDDF41FB39193FDACA09
 ```bash
 magnet:?xt=urn:btih:B21E81F4FFCF17350259038DF02A15A88625A5C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +570,8 @@ magnet:?xt=urn:btih:B21E81F4FFCF17350259038DF02A15A88625A5C9
 magnet:?xt=urn:btih:354003403AA368D7E32454EEEC9B7509FA73C1C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +596,8 @@ magnet:?xt=urn:btih:354003403AA368D7E32454EEEC9B7509FA73C1C2
 ```bash
 magnet:?xt=urn:btih:2A6D517EB0E5E818374EB1BE20DFAB72CD315815
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +625,8 @@ magnet:?xt=urn:btih:2A6D517EB0E5E818374EB1BE20DFAB72CD315815
 magnet:?xt=urn:btih:459FD7396DEC9C0C3FD27EB941FD512473FCEFA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +650,34 @@ magnet:?xt=urn:btih:459FD7396DEC9C0C3FD27EB941FD512473FCEFA9
 ```bash
 magnet:?xt=urn:btih:8DF62134E9FA5FC0FD229BF27ACBC794DC5F4DC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 799861   (642285) от 28.06.2014
+
+Леди и разбойник / The Lady And The Highwayman (1989) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм снят по самому знаменитому из романов Барбары Картленд!!! История любви и опасных приключений леди Пантеи и ее спасителя и защитника - "благородного разбойника", готового пожертвовать ради своей возлюбленной жизнью... Затаите дыхание и погрузитесь в мир романтической любви и увлекательных приключений, в мир, где героиня чиста и прекрасна, герой силен (   Читать дальше...   )Производство: Великобритания / Gainsborough PicturesЖанр: Мелодрама, Приключения, ИсторическийРежиссер: Джон ХьюАктеры: Эмма Сэммс, Хью Грант, Клер Блум, Лизетт Энтони, Майкл Йорк, Джон Миллз, Йен Бэннен, Оливер Рид, Кристофер Кейзнов, Роберт Морли, Бернард Майлз, Гордон Джексон, Гарет Хант, Стефани Питт, Флойд Беван, Вейн Майклс, Ламья Дерваль, Форбс Коллинз, Лиз Фрайзер, Джеймс Бут, Томми Дагган, Джон Баскомб, Джулия Вердин, Дженнифер Крокстон, Рой БойдПеревод: Многоголосый закадровыйПродолжительность: 01:29:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54B4EBE340ECA88CAEB91D2059F540E6CCEC91D7
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

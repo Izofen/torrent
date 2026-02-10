@@ -22,6 +22,8 @@ Depeche Mode - Sounds Of The Universe (2009) CD+DVD [FLAC|Lossless|tracks + .cue
 magnet:?xt=urn:btih:B8B8029EF38E3A14CFC1606AC2E7CA79231DC23C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Depeche Mode - Black Celebration (1986) [FLAC|Lossless|tracks + .cue] <Synth-pop
 ```bash
 magnet:?xt=urn:btih:312171C9C8C141AF15298CD29F3FBF7FF689F986
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Depeche Mode - Exciter (2001) [FLAC|Lossless|image + .cue] <Leftfield, Downtempo
 magnet:?xt=urn:btih:290D8C9224129B2536D7DAC8586DE4B3E75C5109
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Santorini: Relaxing Chill-Out Luxury Lounge (2019) [MP3|320 Kbps] <Electron
 ```bash
 magnet:?xt=urn:btih:6E0DA783FD7EEACAF7F4D49EBB634196EEDFE8E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Infected Mushroom - Head of NASA and the 2 Amish Boys (2018) [MP3|320 Kbps] <Psy
 magnet:?xt=urn:btih:31C3C70FF85A564B3C758629AF74DA213B9F75FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Mellow Moments: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Ba
 ```bash
 magnet:?xt=urn:btih:FBAFB52E441D61D4E58661D172F26300024CB6F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ V.A. - Chill Out IBIZA 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Tri
 magnet:?xt=urn:btih:06DC58DE477D90D62DBCD16B4E186096846DC532
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Trance 4 Friends - Best Of 2023 [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:FD1951BB5E15FBCFB402077B0B2F0466B21056EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Infrasonic Summer Selection (2023) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:30EED3690CBF99D3E4764F010F21C0F4FDCC0444
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +283,8 @@ V.A. - Buddha-Bar - Best Of 2 by Ravin (2022) [FLAC|Lossless|WEB-DL|tracks] <Tri
 magnet:?xt=urn:btih:36B3EFED08494F190F556D742BA37BEF86B86524
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +311,8 @@ Croatian Amor & Varg2™ - Body Of Lila (2020) Posh Isolation [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:AFC5D14504C659D061D4A76F4A483CB55E28B6B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +347,8 @@ VA - Milano Fashion Nights: House Music Compilation (2012) [MP3|320 кб/с]<Dee
 magnet:?xt=urn:btih:7A805FB7862434F40A399CEEB32D8FF17C8DB4A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +376,8 @@ VA - A Sexy New Year - Chillout Gems (2015) [MP3|320 кб/с] <Chillout, Lounge>
 magnet:?xt=urn:btih:E69A36DF5045BB171EAB5512B8E981C0324C429A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +403,8 @@ VA - Best Of Massive EDM Party (2015) [MP3|320 кб/с] <House, Progressive Hous
 ```bash
 magnet:?xt=urn:btih:DC14A040E1448E40F88B805608B0CB174670712E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +433,8 @@ Yota - Room 412 (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Nu-Di
 magnet:?xt=urn:btih:B5C18B470C915099A46DA1D7D521DDAA8098AC9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +461,8 @@ VA - Best Of Vocal Trance 2023 [MP3|320 Kbps] <Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:278CB88F2905E204D1EB96ABF0926FB02892E35E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +497,8 @@ VA - Deep Winter Chill (2012) [MP3|320 кб/с]<Deep House, Chill House>
 magnet:?xt=urn:btih:AFE747A5C41CB9C479946B47B0374CED6963733F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +525,8 @@ VA - IBIZA 2023 (Deluxe Version) (2023) [MP3|320 Kbps] <House, Deep House, Dance
 ```bash
 magnet:?xt=urn:btih:18A67E3D2B0BC655B2D93571C4319A4E1D172AFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +555,8 @@ VA - Anniversary Remixes: The Complete Full Length Collection (2023) [MP3|320 Kb
 magnet:?xt=urn:btih:440AD5F557E66866A82456B3145A956A450A6ECC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +581,8 @@ magnet:?xt=urn:btih:440AD5F557E66866A82456B3145A956A450A6ECC
 ```bash
 magnet:?xt=urn:btih:0C1926BE65993AB3C12F7F537B12E84CCBB6BB4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +611,8 @@ Pete Namlook & Tetsu Inoue (2350 Broadway, Shades Of Orion, 62 Eulengasse, Time�
 magnet:?xt=urn:btih:FE0AA964379204E680EB4FC4B1AEF40136D45CDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +639,8 @@ Reid Willis - Discography 13 Releases (2007-2020) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:36C3BDC49B01C53C5C751EAD9A9046C9D1D8F5D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +669,8 @@ VA - Chill Out Empire (25 Smooth Anthems), Vol. 4 (2018) [MP3|320 Kbps] <Chill O
 magnet:?xt=urn:btih:CB860DE69DF5B9451F9D49F42D6B48BFB851EB64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +697,8 @@ VA - Chill Out Empire (25 Smooth Anthems) Vol. 3 (2018) [MP3|320 Kbps] <Chill Ou
 ```bash
 magnet:?xt=urn:btih:44F4719CDFE860B1724E6C62B1C5944D2FC66E12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -679,6 +727,8 @@ VA - Suanda Music Radio Top 20 (December ) (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:76F1564E33093CA71726F34A0022818F1958CAD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -705,6 +755,8 @@ VA - Ori Uplift & Tycoos - Uplifting Only 304 (2018) [MP3|320 Kbps] <Trance, Voc
 ```bash
 magnet:?xt=urn:btih:686B43C34812AA8078E28F50AC8B219DEA21C85A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

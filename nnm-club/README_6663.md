@@ -19,6 +19,8 @@ Modartt - Pianoteq 8.4.3 Pro STANDALONE, VSTi, VSTi 3, AAX RePack (& Portable) b
 magnet:?xt=urn:btih:5F1BF8624B1CC5983EB2A34D47E8F7EFEFA92176
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Hybrid - это синтез следующего поколения. Этот �
 ```bash
 magnet:?xt=urn:btih:18BE3B162614C53D06A02558162C485066F13387
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Smooth Operator Pro - Спектральный балансировщик сиг
 magnet:?xt=urn:btih:5B8556A66E37604D0F888A348E697A6CB2A9360D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ U-he - Uhbik 2.0.0 VST 3, CLAP, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:57A1144E9B1B43D34854B7EC5B3DCAFF4C34C48A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Synapse Audio - DUNE 3 3.6.5 VSTi, VSTi 3, AAX (x64) [En]
 magnet:?xt=urn:btih:2CDFAFE8E2F56D2EE7763807139A753D38721DA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:2CDFAFE8E2F56D2EE7763807139A753D38721DA5
 magnet:?xt=urn:btih:EE164586B3FCD1CCE2F1826F92158A39E3C890B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:EE164586B3FCD1CCE2F1826F92158A39E3C890B3
 ```bash
 magnet:?xt=urn:btih:FF789DDED19B34C73D6586F0B26F2698CD435A9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:FF789DDED19B34C73D6586F0B26F2698CD435A9C
 magnet:?xt=urn:btih:52CCEFFBF5B922D09870FB689CFA9048E2995CC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:52CCEFFBF5B922D09870FB689CFA9048E2995CC1
 ```bash
 magnet:?xt=urn:btih:19AE471BD505009E3CE89DE214A6721FA2E38559
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:19AE471BD505009E3CE89DE214A6721FA2E38559
 magnet:?xt=urn:btih:264CBF38123DA5F1986A6B7E7B7490C8DB0A1191
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:264CBF38123DA5F1986A6B7E7B7490C8DB0A1191
 magnet:?xt=urn:btih:72AF467407B00179EC200210CBD6720C60FCE60C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:72AF467407B00179EC200210CBD6720C60FCE60C
 ```bash
 magnet:?xt=urn:btih:7CD74B76BB68A22F681DBF8CF37441704D6ABC1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ CWT (Clockwork Times) - CWT (2025) [FLAC|Lossless|WEB-DL|tracks] <Punk, Ska>
 magnet:?xt=urn:btih:146C3D95D9B61664F98658C2C1CBEA77701AE1CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:146C3D95D9B61664F98658C2C1CBEA77701AE1CB
 magnet:?xt=urn:btih:DDF8F7C74DD94314C6129C3C01EB8A9D6EBFDE41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:DDF8F7C74DD94314C6129C3C01EB8A9D6EBFDE41
 ```bash
 magnet:?xt=urn:btih:3DF7A83B0DD5AA54F140A32E0C78FFD334DA016F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ VA - Deep Relax - Yoga & Chillout Grooves (2025) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:7019ACF8ADD0E36F971743CFA317C5B714814C29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ The Crew 2 (2018) [Ru/Multi] (4060652/dlc) Repack FitGirl [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:7B107EF2D0E05CC1E9FE21F1A9410C24D903F110
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ One Hand Clapping – это двухмерный платформер, кото
 magnet:?xt=urn:btih:CA0CE135618D78551489D07DAF1E72336DC46513
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ Jenny LeClue - это увлекательный приключенческий 
 ```bash
 magnet:?xt=urn:btih:076E1C71A2123DA22E0E630A43930910E245F6F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ Truberbrook / Trüberbrook: A Nerd Saves the World (2019) [Ru/Multi] (1.6-fix) L
 magnet:?xt=urn:btih:163363C20EFA22622CB94B141D426B901178CF02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ Labyrinthine - кооперативная хоррор игра, которая 
 magnet:?xt=urn:btih:EC684EECD2CF30F242858785E3E5BE92290B0CBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:EC684EECD2CF30F242858785E3E5BE92290B0CBD
 ```bash
 magnet:?xt=urn:btih:2154E72CD7EF7CE124F341CF6A3C4C63579E50D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ ru_windows_7_professional_with_sp1_x64_dvd_621772.iso(   Читать дальш
 magnet:?xt=urn:btih:A896C1986D67CE147E7E4C85C6163B47DD505EAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:A896C1986D67CE147E7E4C85C6163B47DD505EAF
 ```bash
 magnet:?xt=urn:btih:1B1A087C32DB3352F9C870A7D07055A52A6DB26A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +661,8 @@ magnet:?xt=urn:btih:1B1A087C32DB3352F9C870A7D07055A52A6DB26A
 magnet:?xt=urn:btih:3C6A57082F2287415D58DE4846D9FEAB3E13C74F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ magnet:?xt=urn:btih:3C6A57082F2287415D58DE4846D9FEAB3E13C74F
 ```bash
 magnet:?xt=urn:btih:794CAE2FE18A36E4DA7495B26FBE40A92B3F102F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

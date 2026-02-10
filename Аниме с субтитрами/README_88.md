@@ -1,3 +1,29 @@
+###  Публикация: 1395225   (757018) от 09.07.2020
+
+Sora no Aosa o Shiru Hito yo | Her Blue Sky | Она видела небо [2019, Movie] BDRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_757018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Родители Аои и Аканэ погибли 13 лет назад, и, чтобы заботиться о младшей сестре, Аканэ пришлось отказаться от планов переехать в Токио вместе со своим парнем Синносукэ. С тех пор Аои чувствует себя в долгу перед сестрой. Однажды известный исполнитель песен в жанре энка по имени Данкити приглашает Аои, только делающую первые шаги на музыкальном поприще, выступить (   Читать дальше...   )Производство: студия CloverWorksЖанр: драмаРежиссер: Нагай ТацуюкиПеревод: NaikōSub ProjectЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 110 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED14CA795FF25EBD2A4BF8CF9CDABE032B92B1F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395221   (757192) от 09.07.2020
 
 Osake wa Fuufu ni Natte kara | Love is Like a Cocktail | Любовь похожа на коктейль [2017, TV, 14 эп.] BDRip 1080p raw
@@ -18,6 +44,8 @@ Osake wa Fuufu ni Natte kara | Love is Like a Cocktail | Любовь похож
 ```bash
 magnet:?xt=urn:btih:47E4D3091AAC9FAC1AB86461C15164C8AAB33C99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ Kokkoku | Миг за мигом [2018, TV, 12 эп.] WEB-DL 720p raw
 magnet:?xt=urn:btih:84E383BD3A765DEF6F4B280F68676ACA9F2C2F1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ Beastars 2nd Season | Выдающиеся звери [ТВ-2] [2021, TV, 12 э�
 magnet:?xt=urn:btih:9D68FD34C08EA63EAD7512CE071B83D77199EE65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ Eiga Daisuki Pompo-san | Pompo: The Cinephile | Киноманка Помпо [2
 ```bash
 magnet:?xt=urn:btih:C8D4933845074F45D0DEEE863D402C44CD36904D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ Inuyasha | Инуяся [2000, TV, 167 из 167] BDRip 1080p 10-bit raw
 magnet:?xt=urn:btih:D1B5F666A5261137B112ECAA88CDF8E50A306F77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ Kyattou Ninden Teyandee | Cat Ninden Teyandee | Samurai Pizza Cats | Коты-с
 ```bash
 magnet:?xt=urn:btih:2B2F8589C9C878D1A325A6CCC382642D32C81ACF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ Inuyasha: Kagami no Naka no Mugenjou | Inuyasha the Movie: The Castle Beyond the
 magnet:?xt=urn:btih:E08F08DD0B7D40FC55A69ABFA0CBB83024E2FBF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ Inuyasha: Tenka Hadou no Ken | Inuyasha the Movie: Swords of an Honorable Ruler 
 ```bash
 magnet:?xt=urn:btih:5B10F07FC35D62C990D35F46972D9782BFB25FFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +257,8 @@ Fate/kaleid liner Prisma Illya 3rei!! | Fate/Kaleid Liner Prisma Illya Drei!! | 
 magnet:?xt=urn:btih:506F18AAC812C5A488CFDBE11161082B7DA31451
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +284,8 @@ Gekijouban Fate/Kaleid Liner Prisma Illya: Sekka no Chikai | Судьба: Де�
 magnet:?xt=urn:btih:72593D246E886C5FB918ABF9433FD22E2B9082E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ Deep Insanity: The Lost Child | Глубинное безумие: Потеря�
 ```bash
 magnet:?xt=urn:btih:E946F92F60E8DFCD755E7D64FB09789C27988212
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ Luck and Logic + Watashitachi, Luck Logic Bu! | Удача и логика [2016
 magnet:?xt=urn:btih:82747C24D68EF65879996AB576BB73142847768A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +362,8 @@ Nana Maru San Batsu | Nanamaru Sanbatsu | Fastest Finger First | Семь - ве
 ```bash
 magnet:?xt=urn:btih:D491AF4366CA8498699AA4F7AAFAE38EE162AAE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +391,8 @@ Tamayomi | Tamayomi: The Baseball Girls | Тамаёми [2020, TV, 12 эп.] WE
 magnet:?xt=urn:btih:4062B0D1CA06F71D3655EADA0DEC050358D5AF06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ Hamefura 2 | Bakarina 2 | Otome Game no Hametsu Flag shika Nai Akuyaku Reijou ni
 ```bash
 magnet:?xt=urn:btih:8E18BE3330610B2A09E17C7954B4889EDE9544F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +443,8 @@ Hamefura 2 | Bakarina 2 | Otome Game no Hametsu Flag shika Nai Akuyaku Reijou ni
 magnet:?xt=urn:btih:8F76E4F2CF40087C2070E556644451C094D6E5B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +468,8 @@ Urara Meirochou / Предсказательница из Мейрочо [2017, 
 ```bash
 magnet:?xt=urn:btih:9C93D755E2C112544BF1B854E38B9952103C61CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +495,8 @@ New Game! | Новая Игра! [2016, TV, 12] BDRip 1080p raw
 magnet:?xt=urn:btih:E60767E3F1C6FFB821E524B459969B1D9614A239
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +521,8 @@ Dual! Parallel Runrun Monogatari / Опасные приключения в па
 magnet:?xt=urn:btih:F5C268737DF0448546D103D8599431F7B66EE837
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +546,8 @@ Endride / Эндрайд [2016, TV, 24] HDTV 720p raw
 ```bash
 magnet:?xt=urn:btih:2244671B426B28CF83DBF7E2E38E0CC2EF09CD6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +574,8 @@ Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen | Asc
 ```bash
 magnet:?xt=urn:btih:9303D4EC34AAD1C0BAF6CCA3A8CC3139158DCEFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +604,8 @@ Kitsutsuki Tanteidokoro | Woodpecker Detective's Office | Детективное
 magnet:?xt=urn:btih:9F348545F65D236D78053644DE99594C5A46067E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +630,8 @@ Shachou, Battle no Jikan Desu! | Shachibato! President, It's Time for Battle! | 
 magnet:?xt=urn:btih:04703C36E6BBF2801C7FD083DE684029473570DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +655,8 @@ Singles | Незамужние девушки [1993, OVA, 1 эп.] VHSRip 480p r
 ```bash
 magnet:?xt=urn:btih:7C6EB313D532E31929B719D6970132DC68AD246D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,29 +683,7 @@ Oedo wa Nemurenai! | Эдо никогда не спит [1993, OVA, 1 эп.] VH
 magnet:?xt=urn:btih:DECA3586201166377DA076AE725BD43932268FB5
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061127   (768396) от 14.04.2017
-
-Nanbaka / The numbers / Номера [2016, TV, 25] HDTVRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет рассказывает о буднях четырёх зэков. Дзюго когда-то неудачно предпринял побег и получил в наказание ещё больший срок; Уно — любитель «играть с женщинами»; Рокку склонен ввязываться в драки; Нико — просто поклонник аниме (за это уже сажают?). Сторожит преступную четвёрку суровый надзиратель Хадзиме.Производство: Студия Satelight /Жанр: приключенияРежиссер: Такамацу СиндзиЯзык субтитров: Русский (отключаемый), Английский (отключаемый)Продолжительность: 25 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:025302EFF28D83A5CDBC600ACF6FB506A86C1B65
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

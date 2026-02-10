@@ -1,3 +1,32 @@
+###  Публикация: 1131284   (708791) от 05.05.2017
+
+VA - Шальной шансон в дорогу выпуск № 9 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708791.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Смирнов & Компания - Разлука 3:45
+002. Рома Рязанский - Это Было Давно 4:05
+003. Валерий Курас - Мамины Подружки 4:01
+004. Виталий Теринг - В Осколках Зеркал 4:03(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32008E6889467D00323E198B054D739AFFF2C05B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401567   (708814) от 10.08.2020
 
 VA - Жара 2 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -21,6 +50,8 @@ VA - Жара 2 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:210B778F927C99D6CE1BF84F2870F3C2189FCEC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ Almunia - Compilation (2022) [MP3|320 Kbps] <Space Age / Balearic / Nu Disco>
 magnet:?xt=urn:btih:1A69353739592B7B2FD797AD225147991FD7F76A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Dance Shape Workout Hits (2017) [MP3|320 Kbps] <Moombahton, Trap, Twerk, Bi
 ```bash
 magnet:?xt=urn:btih:9F231A569CAD809E84BEB994F9911108EAE5B5B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Private Lounge – Spring Session Vol.2 (2017) [MP3|320 Kbps] <Lounge, Deep
 magnet:?xt=urn:btih:262F98B5483441C1C71F1FC3D309473E3A8494DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Козырная песня от радио Шансон. Сборник �
 ```bash
 magnet:?xt=urn:btih:037AF0D629D71E54F40F7D14F423C79F54B7CB49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Весенние заводные хиты выпуск № 8 (2017) [MP3|2
 magnet:?xt=urn:btih:B65F2C8DBCCB0F1E4CE37F8D2E399521885F516F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Лучший русский шансон выпуск № 12 (2017) [MP3|25
 ```bash
 magnet:?xt=urn:btih:00DE6CBD19569F5EE8798201766C17CF331F9FEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Зажигай вместе с Европа Плюс выпуск № 2 (20
 magnet:?xt=urn:btih:9C1756608DF3055364C1F863BCD39065F57EB93B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Топовая сотня весенняя от Хит FM выпуск № 
 ```bash
 magnet:?xt=urn:btih:375D9033E0F2D84287F171F96DD040C364039F05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - NEW  1 от Виталия 72 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:8E08E59851E3412355FBCFEDA0643BE7796A88BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - Хитовая весна на Europa Plus (2017) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:2BDCAAE56A74EDF69701BCBEA661163EF74279AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - Best-of-ka на радио Шансон. Часть № 3 (2017) [MP3|256 K
 magnet:?xt=urn:btih:4F808FFD0724E0BAACF6F5A2C0E547A84FAEBBAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ VA - Любимые песни шансона. Версия № 10 (2017) [MP3|2
 ```bash
 magnet:?xt=urn:btih:CD956D6DBBD6750EBC42633DAB2FF5D68744CB52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ VA - Beatport Trance  Pack (05.05.) (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:CE905F478F7F6E533E6BEC0B12CCB9250561A0BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +453,8 @@ VA - Лирика шансона (2013) [MP3|320 кб/с]<Шансон>
 ```bash
 magnet:?xt=urn:btih:2CF5AA972CE76BBD98CA4C4AABB98865157C9960
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +483,8 @@ Gigi D'Agostino & Friends - The UltraTraxx Remixe 1-3 (2009) [MP3|192 Kbps] <Ita
 magnet:?xt=urn:btih:E8246DCD214CFA065325D7978FE2CB1F99A9BA03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +511,8 @@ VA - German Top 100 Single Charts 11.03.2019 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:85275DBA902421778C1C3C73ECDF66A2DB58D0A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +541,8 @@ VA - German Top 50 Party Schlager Charts 04.03.2019 (2019) [MP3|320 Kbps] <Pop, 
 magnet:?xt=urn:btih:75B6E6B788BF2E6E4A04FA9957F6254C21029A9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +569,8 @@ VA - Высшая лига. Весна. Часть № 6 (2017) [MP3|256 Kbps] <
 ```bash
 magnet:?xt=urn:btih:EFEC65221C6CC8CBE8A8F68D266F1AFA749B55D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +599,8 @@ VA - Pop Dance Foam Party (2020) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:C2ADA57ACF7D2BC9C0F6FC99D6AF1797F9472915
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +627,8 @@ VA - Deep House Background Sound (2020) [MP3|320 Kbps] <Deep House, Electro, Clu
 ```bash
 magnet:?xt=urn:btih:4D357FB293FD5463D0A8DA62A091339AAEA94FD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +657,8 @@ VA - Get The Indie Music (2020) [MP3|320 Kbps] <Indie Pop-Rock>
 magnet:?xt=urn:btih:0D9F9233979A6F954A42954A104E7DA8339FD068
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +685,8 @@ VA - Summer Magic Morning: Chillout Party (2020) [MP3|320 Kbps] <Chillout, Loung
 ```bash
 magnet:?xt=urn:btih:82C3C9839585C1D4591A7437CEF141B17650477B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +715,8 @@ VA - Экспресс русских хитов на Hit FM (8) (2018) [MP3|256 
 magnet:?xt=urn:btih:B405A1080AC23D087B4ACF232EDA48A9EC7DB978
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,32 +744,7 @@ VA - Душевный шансон в хорошей компании (9) (2018)
 magnet:?xt=urn:btih:4E00DEBA0DBBB39C92D6E26DBF8640D2082C180D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025568   (709836) от 12.06.2016
-
-VA - 40 Best of 60s 70s 80s 90s Remixes (2016) [MP3|320 кб/с] <Electro, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunset Blvd. - Light My Fire (Percussion Remix) (4:21)
-02. The Voice - My Way (Eternity Mix) (4:12)
-03. Funky Sisters - Dancing in the Street (Piano Funky Mix) (3:47)
-04. DJ Hush - California Dreaming (Alternative Sound Planet) (5:15)(   Читать дальше...   )Жанр: Electro, DanceПродолжительность: 03:16:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:341143E8B93BAE12B9041F6BB45D48D76D679A45
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

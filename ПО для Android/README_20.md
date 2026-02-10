@@ -19,6 +19,8 @@ Reface: Face Swap AI Generator v4.25 Mod by Mixroot [Multi]
 magnet:?xt=urn:btih:7D43A86415D64F9DC23968E75D836A3B3E83C56A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ EOBD Facile - автосканер обд2 последнего поколени
 ```bash
 magnet:?xt=urn:btih:98927626830923A6C04AABD235A733803D9A85AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Background Video Recorder Pro — это приложение, которое п
 magnet:?xt=urn:btih:044011AFFB1117D2E768508FD608D309E99E6574
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:044011AFFB1117D2E768508FD608D309E99E6574
 ```bash
 magnet:?xt=urn:btih:33377EA0A43263EC89D79FD5500C72404F389058
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Periodic Table / Таблица Менделеева 2024 PRO v3.5.5 Mod by Bala
 magnet:?xt=urn:btih:9327DEF1219AD9EA8AF69A5456A0DB31E104F733
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ ActionDirector- это единственный 📹 видеоредактор,
 ```bash
 magnet:?xt=urn:btih:1609B5792B80E2F791533CEDD5F8A9E89AB6BB5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ IPTV Pro v8.2.2 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:59C73BB2E4457167D5C0025383A9F3D769CF41E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ PhotoRoom v5.4.7 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F455F2D1B920626A18E1B8DA4ACFB39C2545BB68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Folder Player Pro - это ориентированный на каталоги 
 magnet:?xt=urn:btih:0F53793535AA597CB2D1D60EA16355FF3270D8B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ PictureThis - Plant Identification v4.4.2 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C53AA4BBB133ED43B8B03A03A1C5F6BD91CD43BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ WPS Office - очень полезное, офисное приложение д
 magnet:?xt=urn:btih:56734FE190584A8634B0E69CAEBB098625BC857C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Magic Eraser - это революционное приложение для р�
 ```bash
 magnet:?xt=urn:btih:7BF1E81469A03DD917FE358C96FF19898FAE5668
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ SnapEdit — одно из лучших приложений для редакт
 magnet:?xt=urn:btih:F5F04A6B2B594178ECF9F5FAEB8041AB1E7284FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Bria Mobile: VoIP Softphone v6.17.3 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A971CE86A0BA9A2D08916E7E869DDCA92824AE3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ SnapEdit — одно из лучших приложений для редакт
 magnet:?xt=urn:btih:3B104415E9DC70D9421D3901EE56D81AB03509BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Citrus AI - Photo Enhancer — это специальное маленькое 
 ```bash
 magnet:?xt=urn:btih:29F9C4971DC8C684301B12458C0F33A370B0ACD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ AirBrush: ИИ Фоторедактор v7.4.0 Mod by MustHave [Ru/Multi]
 magnet:?xt=urn:btih:20C26DF4ED7EBF16C2351C368EE3CA057D10627F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Picsart AI Photo Editor, Video v25.9.6 Final Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2296F260574AA75BD8FD26AD7E71A0D26CFC593D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:2296F260574AA75BD8FD26AD7E71A0D26CFC593D
 magnet:?xt=urn:btih:1848216932EFE76C8BE19643D1064054956E90E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ ViewBox - приложение для Android устройств (в том чи
 ```bash
 magnet:?xt=urn:btih:53F43784A92BD5D973991BAF234BDE29483A940C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ Picture Mushroom — распознавайте грибы мгновенно. �
 magnet:?xt=urn:btih:CE2E7ECBFEC55CB3D8F09A48D6050683C18DF80E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ ES File Explorer (File Manager) — это полнофункциональны�
 ```bash
 magnet:?xt=urn:btih:5406808FAB868BBE8A10879578F4E570348EA3FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ MiHome v9.8.700 Mod by Vevs [Ru]
 magnet:?xt=urn:btih:D5F66F57F76194DBA72CAB73E4CBFA4548980D88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ IPTV Pro v8.2.1 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8D43B9E45DCAED5879EDCBE81BC16066015BA276
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:8D43B9E45DCAED5879EDCBE81BC16066015BA276
 magnet:?xt=urn:btih:325EB6DC1C835F2CBA6A78BCEDB88BAD1AD44591
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:325EB6DC1C835F2CBA6A78BCEDB88BAD1AD44591
 ```bash
 magnet:?xt=urn:btih:63B0E79AE257FABEFAFD3C7E4F7CC2CAC8FF8A6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ GPU-Z - бесплатная программа от TechPowerUp для отоб
 magnet:?xt=urn:btih:7C26429622F8825C1C29EC10D930280E31ADE167
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ OfficeSuite Pro + PDF - полнофункциональный офисный п
 ```bash
 magnet:?xt=urn:btih:EEB389C6FAE155EA0D92034291F27748666A7BDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Nik Complete 5 Collection by DxO v5.0.2 U2B [Multi/Ru]
 magnet:?xt=urn:btih:25A85AD24328B46620D5C8AFEE3D25AF519CFA1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ FiLMiC Pro - функциональное приложения для веден
 ```bash
 magnet:?xt=urn:btih:8CC9A5701E3EE5177A8A159424CAFF501D6959B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ NetLimiter - программа, решающая проблему контро�
 magnet:?xt=urn:btih:867982C9A54A03A452FFABBBE7C7C019A8A8363D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:867982C9A54A03A452FFABBBE7C7C019A8A8363D
 magnet:?xt=urn:btih:4737133090388377D13997E4212E1409B2BC8B43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ RegCool 1.330 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9E7EEC7DBF3461FC85271F80EE9BB090F55A62F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:005BE700E16F7A387BA1C1CDFC42361209EEEE92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Aomei Partition Assistant – мощная программа для работ�
 ```bash
 magnet:?xt=urn:btih:1D26B31C52EEC6DCC997A5F28312ABCFFBC435D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:8F176324D1DEC696C23DFE9A8ECED852116777C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Windows 11 Manager - это универсальная утилита специ
 ```bash
 magnet:?xt=urn:btih:5DDA372ED471528E82BF11480AC2E76875AE3447
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ AllDup - бесплатный инструмент для поиска и уда
 magnet:?xt=urn:btih:AC4306061A64AD09C3643AA0C0D49950FDEA59DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:8CD27994CF2D7C0C381E9EDE2B791448D82D82BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Process Monitor 3.93 [En]
 magnet:?xt=urn:btih:52EE6AB67033ABCB3D0D4F4CECE49CD3CC9780F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Viber для Windows позволяет бесплатно отправлять 
 ```bash
 magnet:?xt=urn:btih:F0B5FCF59D24DF0ED1C840C0339F696C9EF8AA92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Opera - установите лучший мобильный веб-браузе
 magnet:?xt=urn:btih:8CDFEFD06F8C8C25E8F79C83603E30213FCF392B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 ```bash
 magnet:?xt=urn:btih:9BE574B43AC04311C257FE4BE6779F7C6FEB241F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ VueScan - программа для работы со сканерами HP, Min
 magnet:?xt=urn:btih:466BBFF55D7F256C5DAF586D9E70B763068ED0C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ R-Studio 9.1 Build 191020 Technician RePack (& portable) by Dodakaedr [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DEE26A30DA002FE38B4662F414570F570F32AEF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ Vivaldi 5.7.2921.63 include standalone [Multi/Ru]
 magnet:?xt=urn:btih:1B805ACEADF5A9604A67062067E7AABF0B58320C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ uTorrent - официальное приложение на Андроид. Бл
 magnet:?xt=urn:btih:AB1F37E07CDD29696A67A58C06EE4B2500ED3577
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ Camera FV-5 — Камера с удобным интерфейсом и рас�
 ```bash
 magnet:?xt=urn:btih:E27A194279E1B08D3709A9824B8BBF1D5D420497
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Microsoft .NET 6.0.7 Runtime [Ru/En]
 magnet:?xt=urn:btih:EE2F872BFA2B81A73FE3D61EB929AFD7AFBD37C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ R-Drive Image — является эффективной утилитой дл�
 ```bash
 magnet:?xt=urn:btih:C7B9FA5881CC7BF6D78EB39B5E1A7B659A578081
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:C7B9FA5881CC7BF6D78EB39B5E1A7B659A578081
 magnet:?xt=urn:btih:8CCCAF4A870E663BF087FB884175486307A50730
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ DxO ViewPoint – это новое программное решение пос
 ```bash
 magnet:?xt=urn:btih:8D156957580C0BAD9E13EDA3196DDA563677259B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

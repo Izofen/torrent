@@ -20,6 +20,8 @@ InnoExtractor - это мощное приложение, которое пом�
 magnet:?xt=urn:btih:BC660D873BE76D1C490B8DE2F3165DA83544F590
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:BC660D873BE76D1C490B8DE2F3165DA83544F590
 ```bash
 magnet:?xt=urn:btih:E1A983D5960362CAA67BAF26F4ED332A2D346DD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:E1A983D5960362CAA67BAF26F4ED332A2D346DD2
 magnet:?xt=urn:btih:B7BD7F5D061535D8E3BE0E1E2D2540E049FC8143
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:B7BD7F5D061535D8E3BE0E1E2D2540E049FC8143
 magnet:?xt=urn:btih:9FDA312E80C748AB0DE1C371CEE3B4C0D62D2F8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:9FDA312E80C748AB0DE1C371CEE3B4C0D62D2F8B
 ```bash
 magnet:?xt=urn:btih:2780E8D4B5FCAD7C2933C803B33609EDA0011614
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:2780E8D4B5FCAD7C2933C803B33609EDA0011614
 magnet:?xt=urn:btih:D2CD39A889E534A1E8ECBD35FE009ABC8E6B6920
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Black Geyser: Couriers of Darkness (2021) [Ru/Multi] (1.2.64) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:125C84678784D9E843CFDAA61A9824ACF4D4CFFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:125C84678784D9E843CFDAA61A9824ACF4D4CFFF
 magnet:?xt=urn:btih:D5C1F34CC8D9C6E76CA2922AA73F19C618E5D6D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Ninja Gaiden: Ragebound - совершенно новая игра с боков
 ```bash
 magnet:?xt=urn:btih:12E67FDF89F4D86ADF4A4BA9005F0EC6C90BFBCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:12E67FDF89F4D86ADF4A4BA9005F0EC6C90BFBCC
 magnet:?xt=urn:btih:A68C02D311D3B6748986883D27F182F24B5279D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:A68C02D311D3B6748986883D27F182F24B5279D6
 ```bash
 magnet:?xt=urn:btih:79FFFBCA58A2F7D59A29A2353EEC116E506D69D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:79FFFBCA58A2F7D59A29A2353EEC116E506D69D7
 magnet:?xt=urn:btih:D83569FF1BA3C105361024B2A3B4204B68FEC947
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:D83569FF1BA3C105361024B2A3B4204B68FEC947
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:D83569FF1BA3C105361024B2A3B4204B68FEC947
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ House Flipper 2 (2023) [Ru/Multi] (1.9.3.0/dlc) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:B268012280AF655BACA9CC940035C194567961C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Element X — это приложение для обмена сообщения
 magnet:?xt=urn:btih:1F078993A4A94830E009E5DD557F785B557B9000
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Vlad Circus: Curse of Asmodeus (2025) [Ru/Multi] (1.6.1) License GOG
 ```bash
 magnet:?xt=urn:btih:5B099136617A556E1A305A29E8DF106534E0ED95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:5B099136617A556E1A305A29E8DF106534E0ED95
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Firehawk FPV: Drone Warfare Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:178A61B20F9FA02D9CD4C5A6E7F0B970780A66F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ Purvpn 8.8 [En/Farsi]
 magnet:?xt=urn:btih:0D627A9B1E5686AC0E0EA63EEFEC9CF5CFD77455
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:49EC25739A7AE63B9A73C7B63F2E9370DE2C3982
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ Becastled – инди-стратегия в реальном времени, ч
 magnet:?xt=urn:btih:FAECF7F69348ACB84B45C9B71DD3D57E8D3CC326
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ Proton VPN — это единственное в мире бесплатное 
 ```bash
 magnet:?xt=urn:btih:BF8F2AFEBA142037E98180A742F468DFC265EB92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:BF8F2AFEBA142037E98180A742F468DFC265EB92
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:BF8F2AFEBA142037E98180A742F468DFC265EB92
 magnet:?xt=urn:btih:8347D5716581B5445DE055CF35DD13C36D7C4455
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Yield! Fall of Rome (2025) [Ru/Multi] (1.0.2.0) Repack Let'sРlay [Supporter Bun
 ```bash
 magnet:?xt=urn:btih:2F8213373EC9595836255774B4FF0EE207405B37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

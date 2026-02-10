@@ -1,3 +1,30 @@
+###  Публикация: 1521656   (764257) от 03.01.2022
+
+Фрэнк Герберт | Хроники Дюны (Книга 4). Бог-император Дюны (2021) [MP3, Сергей Чонишвили]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение фантастической эпопеи, ставшей классикой!
+Много тысячелетий спустя археологи находят дневники Лето Атрейдеса II, сына Пола Атрейдеса и Чани, легендарного императора, правившего на протяжении трёх с половиной тысяч лет и за это время ставшим гибридом человека и песчаного червя. Жалкие остатки пряности находились под его тотальным контролем, и человечество (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 19:13:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A99189B2394A24D53A56FCF5A3A2D3466E8F89CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1521668   (764258) от 03.01.2022
 
 Владимир Василенко | Наследие странников (Книга 2). Статус С (2021) [MP3, Дмитрий Чепусов]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:1A316759100CE4E5B3B6D234A532A6C8E14FD44A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:1A316759100CE4E5B3B6D234A532A6C8E14FD44A
 magnet:?xt=urn:btih:CC7F8FA17BD31BA75718F295C926C0C65BDB3D70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +98,8 @@ magnet:?xt=urn:btih:CC7F8FA17BD31BA75718F295C926C0C65BDB3D70
 ```bash
 magnet:?xt=urn:btih:3E674F581668CDEAE34909CF69132A958FAA64CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +127,8 @@ magnet:?xt=urn:btih:3E674F581668CDEAE34909CF69132A958FAA64CA
 magnet:?xt=urn:btih:ECD5A37E19A1F28447C8D7C2E2A7C62E295A3AF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +152,8 @@ magnet:?xt=urn:btih:ECD5A37E19A1F28447C8D7C2E2A7C62E295A3AF1
 ```bash
 magnet:?xt=urn:btih:4E83B86F7B08CD852D0C42E85DAA8A11A70D6DEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +179,8 @@ magnet:?xt=urn:btih:4E83B86F7B08CD852D0C42E85DAA8A11A70D6DEC
 magnet:?xt=urn:btih:E3A93AB0730710F112B6256BA52F71653C28A12C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +204,8 @@ magnet:?xt=urn:btih:E3A93AB0730710F112B6256BA52F71653C28A12C
 ```bash
 magnet:?xt=urn:btih:1D3DA0E7C74D00147991E592C7433069BC114CF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +232,8 @@ magnet:?xt=urn:btih:1D3DA0E7C74D00147991E592C7433069BC114CF8
 magnet:?xt=urn:btih:BCD602DD9627E150C3779F9C9AC55A0A1CB01BC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +258,8 @@ magnet:?xt=urn:btih:BCD602DD9627E150C3779F9C9AC55A0A1CB01BC9
 magnet:?xt=urn:btih:2FF1EEFB14D36CA2DD4F8678560BF577C5EF7C4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +283,8 @@ magnet:?xt=urn:btih:2FF1EEFB14D36CA2DD4F8678560BF577C5EF7C4A
 ```bash
 magnet:?xt=urn:btih:31B913414920CC8359FA351BA474DEAAC3B7B5CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ magnet:?xt=urn:btih:31B913414920CC8359FA351BA474DEAAC3B7B5CD
 magnet:?xt=urn:btih:B44EA741E92F778DCD298C34567F717F287A71AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ magnet:?xt=urn:btih:B44EA741E92F778DCD298C34567F717F287A71AE
 magnet:?xt=urn:btih:B38028EF3C81A86F865FCC4EC478B490C1EBFCE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +365,8 @@ magnet:?xt=urn:btih:B38028EF3C81A86F865FCC4EC478B490C1EBFCE7
 ```bash
 magnet:?xt=urn:btih:DA2DFE32FC6AB488194050D798EFE85C87DDAAF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +392,8 @@ magnet:?xt=urn:btih:DA2DFE32FC6AB488194050D798EFE85C87DDAAF1
 magnet:?xt=urn:btih:76EB465F36F8675C46ADDEDADBB0A031A9F07A7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +417,8 @@ magnet:?xt=urn:btih:76EB465F36F8675C46ADDEDADBB0A031A9F07A7F
 ```bash
 magnet:?xt=urn:btih:BDAC16FBFE63B43ED4B321C55466230D21913405
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +446,8 @@ magnet:?xt=urn:btih:BDAC16FBFE63B43ED4B321C55466230D21913405
 magnet:?xt=urn:btih:203628E638658736B0466EDB320F986C53076B48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +471,8 @@ magnet:?xt=urn:btih:203628E638658736B0466EDB320F986C53076B48
 ```bash
 magnet:?xt=urn:btih:B38C621FF79C5A8B3A63C639BDFBCFFB47350899
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +499,8 @@ magnet:?xt=urn:btih:B38C621FF79C5A8B3A63C639BDFBCFFB47350899
 magnet:?xt=urn:btih:057CAB82791E99EC3DFA25367B3D7422FC359BE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +524,8 @@ magnet:?xt=urn:btih:057CAB82791E99EC3DFA25367B3D7422FC359BE2
 ```bash
 magnet:?xt=urn:btih:D7D782E53A64231849D6B6C4E1145128DAD28366
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +554,8 @@ magnet:?xt=urn:btih:D7D782E53A64231849D6B6C4E1145128DAD28366
 magnet:?xt=urn:btih:5C4C66102FB6D71A4DB74165D39E81484CC688F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +579,8 @@ magnet:?xt=urn:btih:5C4C66102FB6D71A4DB74165D39E81484CC688F3
 ```bash
 magnet:?xt=urn:btih:39F6430BD4CC81D08CD6973ED2485DFA5E35AA1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +607,8 @@ magnet:?xt=urn:btih:39F6430BD4CC81D08CD6973ED2485DFA5E35AA1F
 magnet:?xt=urn:btih:8A696CD28024F3354F15C6F6996FA79FAE48C64C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +632,8 @@ magnet:?xt=urn:btih:8A696CD28024F3354F15C6F6996FA79FAE48C64C
 ```bash
 magnet:?xt=urn:btih:83661DB97F10995574843E1268EA5B9C151CAFD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +660,8 @@ magnet:?xt=urn:btih:83661DB97F10995574843E1268EA5B9C151CAFD3
 magnet:?xt=urn:btih:572D2BCD990CD1C7D41ABEB4F6089D2E6C3AB5F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,30 +686,7 @@ magnet:?xt=urn:btih:572D2BCD990CD1C7D41ABEB4F6089D2E6C3AB5F8
 magnet:?xt=urn:btih:49AD89113D1AA3C861B34BCA77CBA93AA76E795C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126155   (766086) от 17.04.2017
-
-Роман Глушков | Найти и обезглавить! (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свирепое, черное фэнтези, где всех единорогов отправили на убой, гламурных принцесс изнасиловали и угнали в рабство, а правда всегда остается за тем, кто ударит первым.
-Никто не должен был уцелеть во время резни, устроенной во дворце гранд-канцлера города-республики Дорхейвена. Однако его единственному сыну Шону повезло – он сбежал от убийц и унес с собой печать, (   Читать дальше...   )Жанр: Боевое фэнтези, Героическая фантастикаПродолжительность: 11:57:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36C5B4DD3774E7F8A13BFE60DBBA7373C65CFCED
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

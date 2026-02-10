@@ -22,6 +22,8 @@ Native American Music Consort - The Calling of the Wolf (2025) [FLAC 24/44.1|Los
 magnet:?xt=urn:btih:7FD5DB64ABB0A8812A030137A7D900CAD7D5DE4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Yasmine Hamdan - I remember I forget (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:0C2AC27BB059D0ADA03C5B85AB1A6159D4C6827E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Black Satellite - Aftermath (2025) [MP3|320 Kbps] <Alternative Metal, Industrial
 magnet:?xt=urn:btih:7F17E7B60DB0D60FEB2AE83887FCFCDEF2882E71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Paradise Lost - Ascension (2025) [MP3|320 Kbps] <Doom Metal, Death Metal, Gothic
 magnet:?xt=urn:btih:56B097A2B0A9E1AC2CEB88341C1FD5A2FEE5FF58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ Werkdruck — это шрифт с засечками из старых добр
 magnet:?xt=urn:btih:4F49459064DE5692B1A6D32456EE244065CA918B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ Toki o Kakeru Shoujo | The Girl Who Leapt Through Time | Девочка, пок�
 ```bash
 magnet:?xt=urn:btih:222ACAEA0E1D5D66D14A241AE800EC44C4AFA200
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ Candice Ivory - New Southern Vintage (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 magnet:?xt=urn:btih:9E63374EE2EC2E1FC5EB62A5143F0C73C1069B26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +218,8 @@ Ward XVI - Identity (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Avant-Garde
 ```bash
 magnet:?xt=urn:btih:0C4044975EC07F012E93A0E8200817D3E514956D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -232,6 +248,8 @@ Grayceon - Then the Darkness (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive M
 magnet:?xt=urn:btih:8A1513613AA9F4A411A4F41ADB6D111CB3B91995
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +274,8 @@ magnet:?xt=urn:btih:8A1513613AA9F4A411A4F41ADB6D111CB3B91995
 magnet:?xt=urn:btih:0C741D1C383234F1614101264DAABB969A0DBD75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +299,8 @@ magnet:?xt=urn:btih:0C741D1C383234F1614101264DAABB969A0DBD75
 ```bash
 magnet:?xt=urn:btih:11C9619640D5BF7A55854268D4470ABD03D2BDCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +329,8 @@ Reyvi - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:F114EC9EB480812B3064191C71BC54FC3302A23B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +358,8 @@ Yenra - Compilation (2025) [MP3|320 Kbps] <Electronic, Vocal, Disco, Euro-Disco,
 magnet:?xt=urn:btih:4F6FFAEABD6E64CD0B74A10CA721F45A1FACC263
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +384,8 @@ Ui Kits - UI8 - Farmiant - Farming Assistant App UI Kit [FIG]
 magnet:?xt=urn:btih:2384005B9FF97E7C96D09CC7D672B56E17BE2CA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +409,8 @@ magnet:?xt=urn:btih:2384005B9FF97E7C96D09CC7D672B56E17BE2CA8
 ```bash
 magnet:?xt=urn:btih:9060BF6E1B1544059679ADFA8B315779C5210CAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +437,8 @@ magnet:?xt=urn:btih:9060BF6E1B1544059679ADFA8B315779C5210CAA
 magnet:?xt=urn:btih:3A2F029A709A38E661391773B5B2EA2F6520502E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ magnet:?xt=urn:btih:3A2F029A709A38E661391773B5B2EA2F6520502E
 ```bash
 magnet:?xt=urn:btih:22C33E6233967E51A414ACA37B575EB8BC9F565A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +492,8 @@ Byousoku 5 Centimeter | 5 сантиметров в секунду | 5 Centimete
 magnet:?xt=urn:btih:86626E664804D98098BF9B196503A2DB0ACF3279
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +521,8 @@ CHristina Crofts - Best Of Bottleneck (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 magnet:?xt=urn:btih:B9BF3892052EAFB42E7CBC2871DFBFC38598FFEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +546,8 @@ magnet:?xt=urn:btih:B9BF3892052EAFB42E7CBC2871DFBFC38598FFEE
 ```bash
 magnet:?xt=urn:btih:51518750CA6901AC30F506B0529204DD3B8C46DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +576,8 @@ Paradise Lost - Ascension (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Doom Metal
 magnet:?xt=urn:btih:F57F13431CD55E2D23B41969AAF3C15B8927FEE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +605,8 @@ Miley Cyrus - Something Beautiful (2025) Deluxe Edition, 2025, MCEO Inc. [FLAC|L
 magnet:?xt=urn:btih:8670E0FFE267A0E8B3E777863C293D63B5D9708D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +630,8 @@ magnet:?xt=urn:btih:8670E0FFE267A0E8B3E777863C293D63B5D9708D
 ```bash
 magnet:?xt=urn:btih:9A59B7329086107B6CA8654F36E2CE97289A8A5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +660,8 @@ Miley Cyrus - Something Beautiful (2025) Deluxe Edition, 2025, MCEO Inc. [MP3|32
 magnet:?xt=urn:btih:F0657D4092AFA431BC5E76162355842119E38A4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +686,8 @@ magnet:?xt=urn:btih:F0657D4092AFA431BC5E76162355842119E38A4C
 magnet:?xt=urn:btih:4C1E31FFA9EBB3F1C047901533C17EB9AA5D5609
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +711,8 @@ magnet:?xt=urn:btih:4C1E31FFA9EBB3F1C047901533C17EB9AA5D5609
 ```bash
 magnet:?xt=urn:btih:19BE7B9A524B4152A61088EA6FE226F3E840F0FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

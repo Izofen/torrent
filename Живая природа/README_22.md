@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:80F50A884EB317E0A536DA74AC21306873A6A6E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Nat Geo Wild: Тайны дикой природы / Secrets Of The Wild (2013) 
 ```bash
 magnet:?xt=urn:btih:F6632E5C7DD90314A0FAD91850674DC5C33C291B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:F6632E5C7DD90314A0FAD91850674DC5C33C291B
 magnet:?xt=urn:btih:CAC5E09B6F87788F4422F838A0B89A05B8074AED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:CAC5E09B6F87788F4422F838A0B89A05B8074AED
 ```bash
 magnet:?xt=urn:btih:16B446F8CEB033024E22E8B2BAC384DA682CCEBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:16B446F8CEB033024E22E8B2BAC384DA682CCEBC
 magnet:?xt=urn:btih:885C97686BA622EFF8BF722769ED58EDE2AE411E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:885C97686BA622EFF8BF722769ED58EDE2AE411E
 ```bash
 magnet:?xt=urn:btih:62C9BBEBE42DD3601C920407849772B2348B3363
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:62C9BBEBE42DD3601C920407849772B2348B3363
 magnet:?xt=urn:btih:B217FF8505D5577D5B5C1AFFB20AF41E1D7FB667
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:B217FF8505D5577D5B5C1AFFB20AF41E1D7FB667
 ```bash
 magnet:?xt=urn:btih:CD8F9F49B75858A15063D89024D15AF16965D8D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:CD8F9F49B75858A15063D89024D15AF16965D8D6
 magnet:?xt=urn:btih:5151FB824D347809584625D097D24E0BCBA6C3AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:5151FB824D347809584625D097D24E0BCBA6C3AE
 ```bash
 magnet:?xt=urn:btih:639E0AAC13D8F1280BEFD63EFD3BFFFAEC8D3E02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:639E0AAC13D8F1280BEFD63EFD3BFFFAEC8D3E02
 magnet:?xt=urn:btih:37894D1BEC80611EA5C4AC4F490FEAEB347A427C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:37894D1BEC80611EA5C4AC4F490FEAEB347A427C
 ```bash
 magnet:?xt=urn:btih:04FCF9FB34AA33CFC936A5A7EF56B3EEDC1AB91B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Viasat Nature: С водой и без воды / Life in the Great Wetlands [с
 magnet:?xt=urn:btih:9325974E695E8E70211B2199A15E1D27A5BC4CE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:9325974E695E8E70211B2199A15E1D27A5BC4CE2
 ```bash
 magnet:?xt=urn:btih:7EAEACDB37850B78775FF798DFE9D460B967142B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:7EAEACDB37850B78775FF798DFE9D460B967142B
 magnet:?xt=urn:btih:E2D4B109EAFAF9020CA5742858EDC63A92E18464
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:E2D4B109EAFAF9020CA5742858EDC63A92E18464
 ```bash
 magnet:?xt=urn:btih:335C2A13767BE6B92D8044649BAB4A96A4EB113B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:335C2A13767BE6B92D8044649BAB4A96A4EB113B
 magnet:?xt=urn:btih:A309D2AAF26CF1171F3457079CC3550598AA58B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ BBC. Зачарованное Королевство / Enchanted Kingdom (2013) 
 ```bash
 magnet:?xt=urn:btih:E1D23164479E185E497443E0CC2324F41535563C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ BBC. Восхождение животных. Триумф позвоночны�
 magnet:?xt=urn:btih:66292965062F4011F35F180385D247C843ACF417
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:66292965062F4011F35F180385D247C843ACF417
 ```bash
 magnet:?xt=urn:btih:C3E7945BED5C79CC24D8916908C4D9EA8FB713AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:C3E7945BED5C79CC24D8916908C4D9EA8FB713AC
 magnet:?xt=urn:btih:A5A09484C499C63AA6DC60B826A7EBD2C41BC741
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ NG: Дикая природа России / Россия от края до к�
 ```bash
 magnet:?xt=urn:btih:C7041BA9D844F682FEFAA5DB0DB78A4DB361D93F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:C7041BA9D844F682FEFAA5DB0DB78A4DB361D93F
 magnet:?xt=urn:btih:8ED3B0D39AD6AD945DC65F9BEEE745BF1FDE31DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:8ED3B0D39AD6AD945DC65F9BEEE745BF1FDE31DC
 ```bash
 magnet:?xt=urn:btih:EBE1A530DDE2393EF495AB3F6FAFF4F9CE54DE21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:EBE1A530DDE2393EF495AB3F6FAFF4F9CE54DE21
 magnet:?xt=urn:btih:A85E851C9DCAFA5D1C67EDC575DEF1739EB8A667
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:A85E851C9DCAFA5D1C67EDC575DEF1739EB8A667
 ```bash
 magnet:?xt=urn:btih:98C1FF6786295A54D9611FF49A7D4498054DFCC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

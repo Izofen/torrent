@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:1E61BA5E8B026524594F173D31D5112EBE1B035E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:1E61BA5E8B026524594F173D31D5112EBE1B035E
 ```bash
 magnet:?xt=urn:btih:FF7AB751AF2DCD1AC9CD02E17BC38D1D78A66731
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Dex - стильная 2D RPG с элементами стелса и экшен
 magnet:?xt=urn:btih:A73F04EA4E1496BA386BEC1803E3417B311246EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ The Book of Unwritten Tales 2 - продолжение комедийного п
 ```bash
 magnet:?xt=urn:btih:8601C3D39A4002D5E51442C659B787468945086E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Vector 36 - это sci-fi аркадный гоночный симулятор, 
 magnet:?xt=urn:btih:B2F05B1E4C006196C57BC28F2951C61B4733A66F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Shadow Tactics: Blades of the Shogun, основанная на скрытнос
 ```bash
 magnet:?xt=urn:btih:EB1714D2749671FC9C9B6278CCBF1C299181F886
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Monstrum - жуткий хоррор-экшен, где вам предстои�
 magnet:?xt=urn:btih:AEE21736B48841EE499DAD29D95EE9C8E0A31059
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:AEE21736B48841EE499DAD29D95EE9C8E0A31059
 ```bash
 magnet:?xt=urn:btih:6296B13934D860A05E54F043F2E242B29EF132A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:6296B13934D860A05E54F043F2E242B29EF132A3
 magnet:?xt=urn:btih:4171C9941AF1E60F1B3E6A9F16212099D759B76C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Trine перенесет вас в фэнтезийный мир, где хра�
 ```bash
 magnet:?xt=urn:btih:36D966B75804E6F79020DB09B68EE28B80570081
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:36D966B75804E6F79020DB09B68EE28B80570081
 magnet:?xt=urn:btih:8D6E7F8770B0FBE972C92589F74311FABC619106
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:8D6E7F8770B0FBE972C92589F74311FABC619106
 ```bash
 magnet:?xt=urn:btih:41402030A6265CC3690DC61E154BA46D817E83A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:41402030A6265CC3690DC61E154BA46D817E83A2
 magnet:?xt=urn:btih:3FDC3A8D01B203AB205FBF882DE8571B4C7B7C08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:3FDC3A8D01B203AB205FBF882DE8571B4C7B7C08
 magnet:?xt=urn:btih:108CFC234865F8C2A81A0A363D5B0D19D7ADF2D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Ignition это компьютерная игра, изданная в 1997 го
 ```bash
 magnet:?xt=urn:btih:8A0CA7DD6DA9AD43B281989BC4BF644C5C8AE150
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:8A0CA7DD6DA9AD43B281989BC4BF644C5C8AE150
 magnet:?xt=urn:btih:E67312DDC02E75F5D816C9C6688D76713902E06A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:E67312DDC02E75F5D816C9C6688D76713902E06A
 ```bash
 magnet:?xt=urn:btih:A9246A261C3862370FC2312899C2425DAA3656F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:A9246A261C3862370FC2312899C2425DAA3656F9
 magnet:?xt=urn:btih:F99F7901F908136846229073BFD09F64EB14F3CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ Neon Chrome - это жесткий двухджойстиковый шутер 
 ```bash
 magnet:?xt=urn:btih:1491F39DF0F02B4C69142791ED830921551FB45D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:1491F39DF0F02B4C69142791ED830921551FB45D
 magnet:?xt=urn:btih:C03524B614F72BB45E76810D7704A28AA68DE924
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ Lucius II: The Prophecy - трехмерная хоррор-адвенчура, 
 ```bash
 magnet:?xt=urn:btih:5FAC7D739AEC4730B36C594E4E0E8681D177BE54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:5FAC7D739AEC4730B36C594E4E0E8681D177BE54
 magnet:?xt=urn:btih:E05BCF8C2A5F5A1651F478A8996AA6EE7F4D1CBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:E05BCF8C2A5F5A1651F478A8996AA6EE7F4D1CBB
 ```bash
 magnet:?xt=urn:btih:A63E8C43ADF341247D1C7690EE9690C184957A42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ Blue Estate дарит уникальное погружение в мир ма�
 magnet:?xt=urn:btih:96691AAEAA8B36341104F1C7F9E343F4FD5C027E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:96691AAEAA8B36341104F1C7F9E343F4FD5C027E
 magnet:?xt=urn:btih:B69725F8DD4627C5421AB979E6214CE771319636
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Dreamfall Chapters — это сюжетно-ориентированная эп
 ```bash
 magnet:?xt=urn:btih:4D1AFDE2137111F053C09FDEA25C224F52A2D810
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

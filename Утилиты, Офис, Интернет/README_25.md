@@ -20,6 +20,8 @@ Mirillis Action! 4.41.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:C26E785B6EF3643E45D6F32A5F70A4C3EFE5EA75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ PDF Shaper Ultimate 14.5 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:01AC724D9D53B4CA2ACCCE57C9E51DA96C564FD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ BananaDefenderBlocker - программный продукт от BananaBrain, 
 magnet:?xt=urn:btih:2FD9F5508C6656A15CB572840FDD8D7A050B8328
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Rollback Rx Professional - программа предназначена для 
 ```bash
 magnet:?xt=urn:btih:9A138983AB76721E198BFDD1CF68FF44A925D3CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ WifiInfoView - небольшая бесплатная утилита, кото�
 magnet:?xt=urn:btih:4BABBCF94A8FE1A9A3FCE25A9300D9F7E648AE9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Stardock Start11 – новая версия приложения для нас�
 ```bash
 magnet:?xt=urn:btih:57C5BE550107E64BB38B7EC6B747BE61CBF7041E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Caramba Switcher - это новый, понятный автоматическ�
 magnet:?xt=urn:btih:795726C51C7A5642DAC542B2A9AE53224C048C59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Digital Clock - это внешне простые цифровые часы д�
 magnet:?xt=urn:btih:A1799283569221066827A6B626E486C049548F37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:A1799283569221066827A6B626E486C049548F37
 ```bash
 magnet:?xt=urn:btih:AB93825808EAED13F70E7D53B12DEB451736D48B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ DesktopOK - это небольшое, но эффективное решени�
 magnet:?xt=urn:btih:6C0B8F8A894A688CA2F9540AB4557FFC60925C77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Eassos DiskGenius - программа для управления раздел�
 ```bash
 magnet:?xt=urn:btih:808DA2575DBA01C7F92F176982BAE02BB6AF4501
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Wipe Pro - программное обеспечение удаляет врем
 magnet:?xt=urn:btih:46BE518DC1659FFB169C192B2CFECE7F9AF91EA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Colors Pro 3.2 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D47B5A841E68AFF2A4AA2B5965E7366054BD2B58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ HyperSnap 9 - это самый быстрый и простой способ д
 magnet:?xt=urn:btih:070BDF15227A551F37B059CDEC06F6E0B2130154
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Bulk Image Downloader – это программа для загрузки из
 ```bash
 magnet:?xt=urn:btih:064B5F187C38877A2BC46DE33A70C0EF088850A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Viber - десктопная версия популярного мобильн�
 magnet:?xt=urn:btih:92E97D90FA5D0256142FDD060EB426C81975A9F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ EssentialPIM - это отмеченное различными наградам
 magnet:?xt=urn:btih:4C1103EED0C8C9C59319C0372307F8CDA70DB078
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 magnet:?xt=urn:btih:07BF51744130F22C4FE9B1355242B251CC96DF7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ Extreme Picture Finder 3.66.9.0 RePack (& Portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:8E98E718E0E23FD1E679126E466E9B9F52390A22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ SRWare Iron 126.0.6400.0 [Multi/Ru]
 magnet:?xt=urn:btih:14842244CDD4E8FB9CA3B301232C36934C243594
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Mullvad Browser основан на движке Firefox ESR. Содержит �
 ```bash
 magnet:?xt=urn:btih:E0467CB8E0CD26EAFE3BBBE4D4FB9774E5C84131
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ Viber - десктопная версия популярного мобильн�
 magnet:?xt=urn:btih:4A4912A21B396662B213738A04100D1AE087E873
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ DefenderKiller - программа для удаления/восстановл
 ```bash
 magnet:?xt=urn:btih:1C55040AA145AE8F489F3993F253DF2FB57285C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ ApowerREC - это программа которая может записыва
 magnet:?xt=urn:btih:664B57523326DBF24EF06B1E4B5E20FC146D3514
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:D6CA96F0F2CDF432FA0194F3AF38F1DB93AAAD62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +674,8 @@ EssentialPIM - это отмеченное различными наградам
 ```bash
 magnet:?xt=urn:btih:7F98D49327E77CE8068A26D013BFA7D4DC4F1384
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

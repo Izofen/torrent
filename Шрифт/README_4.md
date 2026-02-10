@@ -19,6 +19,8 @@ Newsam родился в долине, которая находится меж�
 magnet:?xt=urn:btih:DCDBF7B2EA24EF5B88B396A69DE9E9F3582AECE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Veliora — изысканный шрифт с длинными засечкам
 magnet:?xt=urn:btih:B315DC1C914BA1F2146A10861D1119F494EF2CE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:B315DC1C914BA1F2146A10861D1119F494EF2CE8
 ```bash
 magnet:?xt=urn:btih:4C0222E134E239114301003E191717848EA12D88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:4C0222E134E239114301003E191717848EA12D88
 magnet:?xt=urn:btih:6FC20F183006143BDBDFF16D7E890BE62920FF4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:6FC20F183006143BDBDFF16D7E890BE62920FF4C
 ```bash
 magnet:?xt=urn:btih:7B7FB18E461FA683A257AE7351B8CE8C79744858
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Neue Machina. Созданный для постчеловеческого су�
 magnet:?xt=urn:btih:5FA79448198D9855420C74AAD0C5C52707535064
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Seconda Soft располагает шестнадцатью стилями, о�
 magnet:?xt=urn:btih:4AE0A011ED77FC38D9D22A30B8476AE159D0E034
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Stag сочетает в себе современный вкус к больш�
 ```bash
 magnet:?xt=urn:btih:8E2E8D03D7621FAEAFCDF23D396A7456CB90B39E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ Figo Shiftz — выдающийся редакционный шрифт с за
 magnet:?xt=urn:btih:282507F4DE706A6C2C5F76E3A8A26092F7265DB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:282507F4DE706A6C2C5F76E3A8A26092F7265DB0
 ```bash
 magnet:?xt=urn:btih:2DCA44A4B87903A0C631F7D45BEC9C8381945F3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:2DCA44A4B87903A0C631F7D45BEC9C8381945F3C
 magnet:?xt=urn:btih:2E7C2D4DBC11AA7628D1D2DA33CE5A917D8544AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:2E7C2D4DBC11AA7628D1D2DA33CE5A917D8544AC
 ```bash
 magnet:?xt=urn:btih:E0B900543746AE25C792F3209021CC420AE1B350
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ Gamola — это роскошный жирный корпоративный ш�
 magnet:?xt=urn:btih:61B99F7F0488C3F73A2DC777327E57A697B4031F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Miratrix - это геометрический гротеск в стиле бр
 ```bash
 magnet:?xt=urn:btih:D34448C3B3DFCD7A6F7EF495E1895CAC53770671
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:D34448C3B3DFCD7A6F7EF495E1895CAC53770671
 magnet:?xt=urn:btih:A7014A2D11FBFC87BEB463F3D877F0743CB9421C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ FN OCTAHEDRON — современный футуристический шриф
 magnet:?xt=urn:btih:F0FDC7D6AFB1557ABA2C6C1A6D8F6C0E5A70796A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:F0FDC7D6AFB1557ABA2C6C1A6D8F6C0E5A70796A
 ```bash
 magnet:?xt=urn:btih:45A97BB9EDF815D4C6D437AF03FF588022C123C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:45A97BB9EDF815D4C6D437AF03FF588022C123C0
 magnet:?xt=urn:btih:B3E1DE268C9F3FB839CF60F7363A5100FFA8F36C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Runiga — современный и стильный шрифт с засечк
 ```bash
 magnet:?xt=urn:btih:DCD37517B79984982D6D379B9DF7C7676BABC105
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ Porte Neue — элегантное семейство шрифтов в 6 на�
 magnet:?xt=urn:btih:9F97C87A09D792B00F91DE7015FC4C00F7C81585
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:9F97C87A09D792B00F91DE7015FC4C00F7C81585
 magnet:?xt=urn:btih:3E90681BB1E53B6F303D47D8AA90BF32B495AE7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:3E90681BB1E53B6F303D47D8AA90BF32B495AE7B
 ```bash
 magnet:?xt=urn:btih:4604B6323A4D8FAC091CCA6FBB3F8E809773B85C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:4604B6323A4D8FAC091CCA6FBB3F8E809773B85C
 magnet:?xt=urn:btih:000044FE6E551B5501452E2E3C1A9F498C90BEF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:000044FE6E551B5501452E2E3C1A9F498C90BEF4
 ```bash
 magnet:?xt=urn:btih:12EC5CB46083E1CD19E703E32512E361785693B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ Lowerflow идеально подходит для проектов, где ва
 magnet:?xt=urn:btih:DF7A4A50B64D5BD6CF112DB4D69AA6C41FB2C057
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Tortillez — акцидентный шрифт без засечек, вдох�
 ```bash
 magnet:?xt=urn:btih:31401764EEFAB53DB212198E5EEAD6861EAC6C3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

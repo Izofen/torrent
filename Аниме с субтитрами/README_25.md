@@ -19,6 +19,8 @@ Mob Psycho 100 III | Моб Психо 100 [ТВ-3] [2022, TV, 12 эп.] WEB-DL 
 magnet:?xt=urn:btih:6DA234F10E3AE33FA8F94CBEF464373ECF918ACB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Air Master | Воздушный мастер [2003, TV, 27] DVDRip 480p raw
 magnet:?xt=urn:btih:6242D97E1EA7585BC2E1FA6737E96AE8C329557F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Do It Yourself!! | Сделай сама! [2022, TV, 12 эп.] WEB-DL 720p raw
 ```bash
 magnet:?xt=urn:btih:002B55D41860F9832430E13CF883DA28B299F82F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Yuuki Yuuna wa Yuusha de Aru: Yuusha no Shou | Yuki Yuna Is a Hero: Hero Chapter
 magnet:?xt=urn:btih:B588C563E83F54708A0708B7ECD95FA06A6CF838
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Onimusha | Онимуся [2023, Web, 8 эп.] WEB-DL 1080p raw+eng
 ```bash
 magnet:?xt=urn:btih:208D5563F5B50BE88FB396EFCB03279C8C3DF0E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Yuuki Yuuna wa Yuusha de Aru: Washio Sumi no Shou | Yuki Yuna Is a Hero: The Was
 magnet:?xt=urn:btih:2B43823CAA461ADE6289F9A453EB2D77197B58A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Nanamaru Sanbatsu | Fastest Finger First | Семь – верно, три – �
 ```bash
 magnet:?xt=urn:btih:ADC95A7D8B5AFB3539E71BE30C06C1891DCC3483
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Tsurezure Children | Tsuredure Children | Малолетние бездельн�
 magnet:?xt=urn:btih:03C31D92FA656B6503941283708C3230F5B61B88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Shiroi Suna no Aquatope / Auatrope of White Sand / Акватоп белого �
 ```bash
 magnet:?xt=urn:btih:AF03B7C43BEAB69A61A7C8AE1A447C0714F5F4DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Shinobi no Ittoki | Время ниндзя [2022, TV, 12 эп.] WEBRip 720p raw
 magnet:?xt=urn:btih:273C0C1741834D611CE34CA5F141B2D7BE748D2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Yuragi-sou no Yuuna-san | Yuuna and the Haunted Hot Springs | Юна из гос
 ```bash
 magnet:?xt=urn:btih:D4DB81D9A33A64575CDFE64FAAB4FEC60D1F63F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Eiga K-On! / Кэйон! (фильм) [2011, MV] BDrip 1080p raw
 magnet:?xt=urn:btih:184E1070FD6642699F5DCC2E2351FF9A998C1AE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:184E1070FD6642699F5DCC2E2351FF9A998C1AE1
 ```bash
 magnet:?xt=urn:btih:B5BED0010E9FC5AF610193E210A41D67E79009CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Nagagutsu o Haita Neko: 80 Nichikan Sekai Isshuu | Puss 'n Boots: Travels Around
 magnet:?xt=urn:btih:D44B2FDBF327498F32846807DDCF154C78664CDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Nagagutsu o Haita Neko | The Wonderful World of Puss 'n Boots | Кот в сап
 ```bash
 magnet:?xt=urn:btih:16D65A8AEAD69D15420B94A64FF75F07AD8AA191
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Arknights: Reimei Zensou / Arknights: Prelude to Dawn / Рыцари ковче�
 magnet:?xt=urn:btih:FD2994878DEE6E4D194D1762422427E26583D7EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Yuragi-sou no Yuuna-san | Yuuna and the Haunted Hot Springs | Юна из гос
 magnet:?xt=urn:btih:F5EDD9D4C0DECFCBB995BC8958D532761A7D26BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Nagagutsu Sanjuushi | Return of Pero | Кот в сапогах на Диком 
 ```bash
 magnet:?xt=urn:btih:3ADB48C9EBC339E11EAE5611352E36DB31812D98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Pop Team Epic (2022) | Попсовый эпос [ТВ-2] [2022, TV, 12 эп.] W
 magnet:?xt=urn:btih:14D5B890DAA0710048CFB6B3E782EE69A152528E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Ie Naki Ko Remi | Remi, Nobody's Girl | Бездомная девочка Рем
 ```bash
 magnet:?xt=urn:btih:71E19D7358784554BF2E5A9E9718C598C393FF44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ Jaja-uma Quartet | Wild Cardz | Crown Knights | Дикие карты [1997, OVA
 magnet:?xt=urn:btih:E4F5413DA389A22DB01B3EFADFD8FD903E53FFC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ Nami yo Kiite Kure | Wave, Listen to Me! | Волна, слушай меня! | 
 magnet:?xt=urn:btih:59550C7A13535DBC191EC7ED072159350DE3CA8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Peach Boy Riverside | Персиковый мальчик с того берег
 ```bash
 magnet:?xt=urn:btih:059B2BD92FB2DA98695B048E4897D01D1423872F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ Getsuyoubi no Tawawa 2 | Tawawa on Monday 2 | Тавава по понедель
 magnet:?xt=urn:btih:84CA38792E0E78658AD4FEFB2FBAB8A9A3A9BD38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ Houkago Shounen Hanako-kun | After-School Hanako-kun | Ханако после �
 ```bash
 magnet:?xt=urn:btih:5D059FB45B67E29A82987B21C641ED727F172B52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +678,8 @@ Genjitsu Shugi Yuusha no Oukoku Saikenki | How a Realist Hero Rebuilt the Kingdo
 ```bash
 magnet:?xt=urn:btih:7E0BAD6CB759137D24048EA3406C8EF3EA8764C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

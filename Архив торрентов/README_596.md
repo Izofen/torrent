@@ -19,6 +19,8 @@ Sumatra PDF - легкий просмотрщик PDF, DjVu, XPS, CBR, CBZ -фа
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Sumatra PDF - легкий просмотрщик PDF, DjVu, XPS, CBR, CBZ -фа
 magnet:?xt=urn:btih:1C12C3B238497DB06035E09AB2B9426516587643
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:1C12C3B238497DB06035E09AB2B9426516587643
 ```bash
 magnet:?xt=urn:btih:C7BD88C4CA9ADAC8E8270ACADDAB983C173C6CEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:C7BD88C4CA9ADAC8E8270ACADDAB983C173C6CEF
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:C7BD88C4CA9ADAC8E8270ACADDAB983C173C6CEF
 ```bash
 magnet:?xt=urn:btih:773B84C79E23EA89B0B318142E664C14ABFB223D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:773B84C79E23EA89B0B318142E664C14ABFB223D
 magnet:?xt=urn:btih:F6F5767A8BDF2081138157DEA1C7C7C8EB20A54E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:F6F5767A8BDF2081138157DEA1C7C7C8EB20A54E
 ```bash
 magnet:?xt=urn:btih:AA26AEB1BF43D4B0A163A35B0A93B18E7F693050
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ VA - Global DJ Broadcast Top 20 January 2012 (2012) [MP3|320 kbps]<Trance>
 magnet:?xt=urn:btih:5981AE4749AE718C80096AB45C45C876F13E582F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:5981AE4749AE718C80096AB45C45C876F13E582F
 ```bash
 magnet:?xt=urn:btih:FE1B1D02EB8CC3B8C7D129A037E6AFAF8CC458F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ magnet:?xt=urn:btih:FE1B1D02EB8CC3B8C7D129A037E6AFAF8CC458F6
 ```bash
 magnet:?xt=urn:btih:B99C456DE6771404F9CA0C3171C71F5E60AEEE6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +305,8 @@ magnet:?xt=urn:btih:B99C456DE6771404F9CA0C3171C71F5E60AEEE6C
 magnet:?xt=urn:btih:72548F56F5ED9B02B6DCF48A68A33379EA84F79B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +331,8 @@ magnet:?xt=urn:btih:72548F56F5ED9B02B6DCF48A68A33379EA84F79B
 magnet:?xt=urn:btih:A31BC6AD027876FC8377A47B11359B886309C976
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +356,8 @@ TapinRadio - это простой и достаточно надежный ра
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +384,8 @@ VSO Media Player - бесплатный медиаплеер, с помощью 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +409,8 @@ BurnAware - простая в использовании программа дл
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +436,8 @@ RarmaRadio - программа для прослушивания и запис�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ RarmaRadio - программа для прослушивания и запис�
 ```bash
 magnet:?xt=urn:btih:F20F5817DE87F0DF9C6911ACB04AC091838D48E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +491,8 @@ magnet:?xt=urn:btih:F20F5817DE87F0DF9C6911ACB04AC091838D48E0
 ```bash
 magnet:?xt=urn:btih:C4670461EDCDD3F88AF937DCE2010E9C484A03BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +527,8 @@ CD1
 magnet:?xt=urn:btih:E2CDC6300B5EB6E8D17C9D360844A6095FB0496E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +562,8 @@ Tanzwut - Weiße Nächte (2011) [MP3|320 kbps]<Folk/Industrial Metal>
 magnet:?xt=urn:btih:409059B158D54F74F38DE3E682FEDF9B94410CB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +587,8 @@ magnet:?xt=urn:btih:409059B158D54F74F38DE3E682FEDF9B94410CB5
 ```bash
 magnet:?xt=urn:btih:90C0F502B5CA989FBA108EEF3AB60E12BDBBAD99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +614,8 @@ magnet:?xt=urn:btih:90C0F502B5CA989FBA108EEF3AB60E12BDBBAD99
 magnet:?xt=urn:btih:51BE37F89BF25DA021F1225398F00BE9EE8F19FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +640,8 @@ Delete Duplicate Files - мощный, высокоскоростной и пр�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +673,8 @@ Delete Duplicate Files - мощный, высокоскоростной и пр�
 magnet:?xt=urn:btih:7DA9EF54B7DC99B747209ADBC84116D534CC862C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +700,8 @@ magnet:?xt=urn:btih:7DA9EF54B7DC99B747209ADBC84116D534CC862C
 magnet:?xt=urn:btih:FEF54FDF3701EB2A48F8A24F2977C46D9401A599
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -675,6 +725,8 @@ magnet:?xt=urn:btih:FEF54FDF3701EB2A48F8A24F2977C46D9401A599
 ```bash
 magnet:?xt=urn:btih:B43F72EA94027E04E2F817A35290618F2C10D4A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

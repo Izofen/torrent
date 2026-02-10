@@ -1,27 +1,3 @@
-###  Публикация: 971337   (987391) от 02.01.2016
-
-Sable Maze 5: Soul Catcher (2015) [En] Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя 20 лет, вы, наконец смирились с тем, что ваш брат ушёл навсегда. Но, когда вы вернулись к тому месту, где он пропал без вести,чтобы оплатить последний долг, вы оказались втянуты в чужой лабиринт заполненный духами и тенями. Доказательства смерти вашего брата вызывают у вас сомнение, и вы начинаете задаваться вопросом...Тип издания: UnofficialРазработчик: Daily MagicЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCA845A71FF29312CF75E275EC71A0D9B4BFCF3B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971349   (987485) от 02.01.2016
 
 Dark Romance 3: The Swan Sonata (2015) [En] Unofficial [Collector's Edition / Коллекционное издание]
@@ -42,6 +18,8 @@ Dark Romance 3: The Swan Sonata (2015) [En] Unofficial [Collector's Edition / К
 ```bash
 magnet:?xt=urn:btih:72BB0830C6A6CC6C0E1C5D22BE82523084BF99F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Brothers - A Tale of Two Sons (2013) [Ru/Multi] (1.0/upd1) Repack Other s
 magnet:?xt=urn:btih:A7CF2B1194EE36CC40916035A7598ADDCE8D45C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Dungeonland – аркадный экшен, в котором группе иг
 ```bash
 magnet:?xt=urn:btih:8DF93C4E352B92D1B42ED889D4D1270651E17EBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +98,8 @@ Phineas and Ferb: New Inventions / Финес и Ферб. Новые изобр
 magnet:?xt=urn:btih:654F0F8D7B8892369D2CADA2718A0D410988008F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +123,8 @@ Unmechanical — приключенческая игра, сочетающая �
 ```bash
 magnet:?xt=urn:btih:E086E4DDF208C036A20E02FA38DF1A2CB9D5B617
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +150,8 @@ Cadenza 6: The Following / Каденция 6: Следуя за прошлым 
 magnet:?xt=urn:btih:55FE306143B37877024A69765FDE7A77D37DD96F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +175,8 @@ Last Day of June (2017) [Ru/Multi] (5.6.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:DDC8A9C31A694395E6F30D0E4690A7EEDBA9DD98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +202,8 @@ Cooking Simulator (2019) [Ru/Multi] (2.5.0/dlc) License GOG
 magnet:?xt=urn:btih:9603A0EB31B29469C3829A3CE08C6C587956AACC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +227,8 @@ TORMENTUM — это полная мрака приключенческая иг
 ```bash
 magnet:?xt=urn:btih:8666EF4ACB3E64B37C06B4CF9A3523059AD7BEEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +254,8 @@ Mystery Trackers 17: The Secret of Watch Hill / Охотники за тайна
 magnet:?xt=urn:btih:DFC76DA202C1B0B4A2929E01FB3CEF9B5B55431D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +279,8 @@ magnet:?xt=urn:btih:DFC76DA202C1B0B4A2929E01FB3CEF9B5B55431D
 ```bash
 magnet:?xt=urn:btih:EDF855CA823695170335B338266DD49A81A0C2D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +306,8 @@ Overland (2019) [Ru/Multi] (713) Repack Other s
 magnet:?xt=urn:btih:813D4D9439D7AE4079C6FB5774A159378485BE83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +331,8 @@ XVI век, Карибское море. Эскадры пиратских ко�
 ```bash
 magnet:?xt=urn:btih:8BDF775AEA0AE0FDE72241A0CF0AA84617E73FD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +358,8 @@ Ace Combat: Assault Horizon Enhanced Edition [Ru] (Repack/1.0.117.128) 2013 | Fe
 magnet:?xt=urn:btih:35B3D79A1889C1C94B1C1D1AE6571EE975BE8F75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +384,8 @@ iBomber Attack [En] (RePack) 2012 | TiNYiSO
 magnet:?xt=urn:btih:2A2DACD264C747C0D3C583FAFAC401ABA27E8C04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +409,8 @@ Forgotten Passages (2020) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:0636FAEA3C3A131AA19A8E6374EF6A848736ADA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +437,8 @@ Warlock: Master of the Arcane - это новая стратегическая �
 magnet:?xt=urn:btih:A529476614347EB52EC88597AB732CC8452EE107
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +462,8 @@ Wizard of Legend — игра о стремительных походах в п
 ```bash
 magnet:?xt=urn:btih:F01BAB200ABB397D2DFA85D25EF329A5AB2DAFA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +490,8 @@ Symphony [Ru/En] (Steam-Rip/1.3) 2012 | R.G. GameWorks
 magnet:?xt=urn:btih:932C8BD7F581D74478A3AD76E5B87D1B36F6C8F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +515,8 @@ Secret City 4: Chalk of Fate (2020) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:5781722331720D3E4A5FC491A1CDC8D96E8968EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +544,8 @@ Ace Combat: Assault Horizon. Enhanced Edition [Ru/En/Multi9] (Steam-Rip/1.0.117.
 magnet:?xt=urn:btih:18DC1DAF1B9B1139A7239CC3EF996C3A170A48AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +570,8 @@ Miner Wars 2081 [En] (P) 2012 | *FLT*
 magnet:?xt=urn:btih:97F1008C491BFB3A2C612ECB8C05061FFCBC2D7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +595,8 @@ Ace Combat: Assault Horizon Enhanced Edition [Ru/En] (L) 2013 | *FLT*
 ```bash
 magnet:?xt=urn:btih:08F58C1547E2E0FA11E16638C073BD3355069C52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +624,8 @@ Ace Combat: Assault Horizon - Enhanced Edition [Ru/En] (RePack/1.0.117.128) 2013
 magnet:?xt=urn:btih:DA2B7FE84037603AAC9DB490EF0CBAC79CAB14B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +649,36 @@ DmC: Devil May Cry [En/Ru] [Crack] 2013 | Reloaded
 ```bash
 magnet:?xt=urn:btih:4B26C1F9286AB03C6323B073BDBBAB3978478952
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608501   (993236) от 25.01.2013
+
+Max Payne 3 (Patch/NoDVD/1.0.0.113) 2012 | RELOADED
+
+>>Win Игры
+>>Patch/Tweak/Trainer/Other для Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_993236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет обновлений для игры Max Payne 3 + кряк...
+Приятной игры!
+(   Читать дальше...   )Тип издания: Официальный патч
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A03F64A39A709BE7A2EDDB7B84677210E310D81
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

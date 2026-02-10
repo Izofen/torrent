@@ -19,6 +19,8 @@ Udemy, Кирилл Несмелов | Создание сайта в Photoshop 
 magnet:?xt=urn:btih:0B21A6EDF1DA57A81B8C784CDBD3026211EAAF81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Liveclasses, Дмитрий Ларионов | Fusion в DaVinci Resolve: быс
 ```bash
 magnet:?xt=urn:btih:C46B090D407AA331D842BAC7F82D35A79695FEEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:C46B090D407AA331D842BAC7F82D35A79695FEEE
 magnet:?xt=urn:btih:1C75E2A92D08835C8F6441E00E8750CC421B8AC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:1C75E2A92D08835C8F6441E00E8750CC421B8AC7
 magnet:?xt=urn:btih:08C894B06340C6685F3573C34C47FB57D12B275F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ Udemy, Macheronte Courses | Изучите Python и создайте свой �
 magnet:?xt=urn:btih:2FB1482B6A0A334F4A4E00CF32777CB326278136
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ There is a lot of lighting knowledge that you cannot have access to in one organ
 ```bash
 magnet:?xt=urn:btih:B0B7D2612CD467D8872101E7A411AEC65C6331A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ MasterClass.com, Gordon Ramsay | Гордон Рамзи учит кулинар
 ```bash
 magnet:?xt=urn:btih:1A818758DF59CB23A0214105CEB1DF7DE58B631B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ Gumroad, Emilis Baltrusaitis | Monsoon – Tutorial Large Scale Environment Crea
 magnet:?xt=urn:btih:900F66D56112020508C534AFEE640927F544F672
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ MasterClass.com, Gordon Ramsay | Гордон Рамзи учит кулинар
 ```bash
 magnet:?xt=urn:btih:F8690A0252367972E6F78C9B00FE0CF83A4146AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ CGcircuit, Diogo Guerreiro | The Faroe Islands in Houdini (2021) WEB-DL [EN]
 magnet:?xt=urn:btih:142DE6E6E32C03E17FA4AFBE7610C7B32D9B5A7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ Photocollege, Николай Бирюков | The course. Тариф Лайт (2
 magnet:?xt=urn:btih:EE7F9810A7D9CCBBB5E17CE2B3A1F1642FEFBF9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ FlippedNormals, Chunck Trafagander | UV развёртка для игр в Blen
 magnet:?xt=urn:btih:7AD3975B80CD6C41362FB19D135B249249BB7FE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ VFX Grace | Houdini Tutorial Volcanic Eruption (2021) WEB-DL [EN / EN Sub]
 ```bash
 magnet:?xt=urn:btih:FF346A4227C19278CEF225F7593C06B16A364CB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:FF346A4227C19278CEF225F7593C06B16A364CB5
 magnet:?xt=urn:btih:697283FBC3A6E6D6A0420D296E78CC60162F428B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ Udemy, Artem Daysun | Create a 3D Game Asset in Blender & Substance Painter - Vi
 ```bash
 magnet:?xt=urn:btih:FD31BFDF52FC6BAEF0F3DA9F5C9039D05FEFE99A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +429,8 @@ magnet:?xt=urn:btih:FD31BFDF52FC6BAEF0F3DA9F5C9039D05FEFE99A
 magnet:?xt=urn:btih:1A8D6D6BCDF63A40FC22B2870A31C089AC49CF13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ FlippedNormals, Ben Erdt | Advanced Character Creation (2022) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:C6762B7C36CDA8019F7604A3AFA7F856E1052363
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ Domestika, Bruno Imbrizi | Creative Coding 2.0 in JS: Animation, Sound, & Color 
 magnet:?xt=urn:btih:68D95EEE58197D2E860B5881F7D50E1CF5C77033
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ Blender Studio, Simon Thommes | Geometry Nodes from Scratch (2022) PCRec [EN / E
 ```bash
 magnet:?xt=urn:btih:9B635FA3F75BCAEEA910B107CA6C8DFA56998BA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ Rebelway, Saber Jlassi | Introduction to Houdini For FX Weeks 1 – 6 (2018) WEB
 magnet:?xt=urn:btih:7BDA79C1A5085C04A663491A0906B32DFFB897E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +565,8 @@ Granich.Design, Алиса Брюква | Granich Midjourney (2023) WEB-DL [AD] 
 ```bash
 magnet:?xt=urn:btih:6D16BC8C4B3BD34B87CB66943CA4ACC74ED9726E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +593,8 @@ Liveclasses, Виталий Новиков | Клиентский сервис
 magnet:?xt=urn:btih:FA7265A030ED4540997EEA9DD4364EBFB9688516
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ LinguaTrip, Веня Пак и др. | Подборка курсов и мате
 ```bash
 magnet:?xt=urn:btih:6A6A644A00CC8F38C7990FF633E086491F696865
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +648,8 @@ LinguaTrip, Веня Пак и др. | Интенсив от Intermediate до A
 magnet:?xt=urn:btih:FB2D3A7DC66FC46869B8CA2D133E812973C2E6E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +677,8 @@ Udemy, Артем Баданов | Изучение C++ с нуля (2020) PCRec
 magnet:?xt=urn:btih:6D73FD5E44D39E7DEB0AB53AF6093F90F3E3E644
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ GeekBrains | Создатель игровой вселенной: геймди�
 ```bash
 magnet:?xt=urn:btih:BDE2C73412EF91B46E1807866F3F50B52E270C20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

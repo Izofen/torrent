@@ -1,3 +1,32 @@
+###  Публикация: 1021036   (742423) от 28.05.2016
+
+VA - Music For Everyone - Vocal Trance & Progressive Vol.5 (2016) [MP3|320 кб/с] <Trance, Vocal Trance, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742423.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ellie Lawson with Adrian&Raz - A New Moon (MozQe Bootleg)
+2. Gregory Esayan - Triumph (Original Mix)
+3. Johan Vilborg & Jeza - Sweet Disaster (Original Mix)
+4. Marsbeing feat. Matvey Emerson - With Me (Dub Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Progressive TranceПродолжительность: 02:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0039A0E37D6BFBB86F0BCB3947E0B75B9D867B79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282804   (742455) от 14.02.2019
 
 VA - Situations: Rap New Generation (2019) [MP3|320 Kbps] <Rap, Hip Hop>
@@ -21,6 +50,8 @@ VA - Situations: Rap New Generation (2019) [MP3|320 Kbps] <Rap, Hip Hop>
 ```bash
 magnet:?xt=urn:btih:9AD0A68B74CCAB3D8AF9F2C20A58F9B005CD350E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Songs Of Freedom (2019) [MP3|320 Kbps] <Reggae, Dub, Ska>
 magnet:?xt=urn:btih:D0C286CD8AC2DB388F7F37A9287454D8F5814BAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - The Audio Files: Chillout Music (2016) [MP3|320 кб/с] <Downtempo, Chillo
 ```bash
 magnet:?xt=urn:btih:681B3C69E95CC36FA2973A42B0B31F0C3D8825F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Techno Atmospheric (2019) [MP3|320 Kbps] <Techno, Minimal, Electronic>
 magnet:?xt=urn:btih:56F293826CB3BDA3C8B5D26F2B2ECFF00D493A3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Sense Of Exotic Trance (2019) [MP3|320 Kbps] <Psychedelic, Goa, Trance>
 ```bash
 magnet:?xt=urn:btih:0B72BDC869511987373D4D928A354376C40CD4B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -159,6 +198,8 @@ VA - The Official UK Top 40 Singles Chart (04-05-2014) [MP3|320 кб/с]<Pop, Da
 magnet:?xt=urn:btih:3E5E3708822A33C895B5C34B62F9FF786AD5F339
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -185,6 +226,8 @@ VA - Neon RetroSynth (2018) [MP3|320 Kbps] <Synthwave, Retrosynth, Dreamwave>
 ```bash
 magnet:?xt=urn:btih:F43AEC9AF527F7924B823AEEB83BDB384CC90279
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +256,8 @@ VA - Enigma Alive Vol.4 (2018) [MP3|320 Kbps] <New Age, Enigmatic>
 magnet:?xt=urn:btih:B97CA436C9E8C469FE65F2DAA367D04D34BCE1B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +284,8 @@ VA - Танцевальный Рай - The Best 90s (2018) [MP3|320 Kbps] <Dance
 ```bash
 magnet:?xt=urn:btih:D5753F6424787FA9C694283BF2B516CF57C4FB03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +314,8 @@ VA - Ancient Spell (2018) [MP3|320 Kbps] <Heavy, Power, Death Metal>
 magnet:?xt=urn:btih:7E147CDE1A037845A9BFF5DE42F248A9A58070BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +342,8 @@ VA - New Music Friday (2018) [MP3|320 Kbps] <Rap, Hip Hop, RnB>
 ```bash
 magnet:?xt=urn:btih:956A8DD7026C0E19542670280A3D5CCF0E873665
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +372,8 @@ Bellatrix - Compilation (2022) [MP3|320 Kbps] <Electronic, Spacesynth>
 magnet:?xt=urn:btih:5792A150C9E8D1D9C4B773372A25BCD9F6234D42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +400,8 @@ VA - Another Moon Song (2018) [MP3|320 Kbps] <Jazz, Blues>
 ```bash
 magnet:?xt=urn:btih:D746EE1ECBFF0EA9968103CCD0C6B3CF6E509EC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +430,8 @@ VA - Welcome To The 90s (Vol.2) (2018) [MP3|320 Kbps] <Eurodance>
 magnet:?xt=urn:btih:32BE036E8E3B9DA0EABE825DC45CBE9127F07AB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +458,8 @@ Pink Floyd - Pink Floyd Deep Cuts (2019) [MP3|320 Kbps] <Progressive & Art-Rock>
 ```bash
 magnet:?xt=urn:btih:423D91DFDD1FE56BE9E92AF0ED4D88C83BE9D6B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +488,8 @@ Oblivion - Compilation (2022) [MP3|320 Kbps] <Electronic, Spacesynth>
 magnet:?xt=urn:btih:38639E8EC540A95A08A6CF159E154D016B47EFFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +516,8 @@ VA - Зарубежная Дискотека ХХ Века - 21 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:8F3AC499072878207A29F038091DF35CC1FFAC95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +546,8 @@ VA - Chillout Hits - Spring Session (2018) [MP3|320 Kbps] <Chillout, Lounge>
 magnet:?xt=urn:btih:70AF55A811C229CC1053E3DCA6808B146E3E5EAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +574,8 @@ VA - Deep Inspirational Grooves (2018) [MP3|320 Kbps] <Deep House, Electro>
 ```bash
 magnet:?xt=urn:btih:9A09690B5EFEFE26FD8946F70F7B6A5A70E2A55F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +604,8 @@ VA - Зарубежная Дискотека ХХ Века - 16 (2016) [MP3|320 
 magnet:?xt=urn:btih:FBEB94CCB75DE5737647CC1E13B327083A19E2AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +632,8 @@ VA - Romantico Latino (2016) [MP3|320 кб/с] <Latin Pop, Dance, Bachata>
 ```bash
 magnet:?xt=urn:btih:76E4F1EC2837D418AF58DA8B6445948DF5F66106
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +662,8 @@ VA - Отдыхай на любимой волне (2016) [MP3|256-320 кб/с] 
 magnet:?xt=urn:btih:2A6390ACDDE7405FAC5D227370D3282392049849
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +690,8 @@ VA - Drum Star Bass (2019) [MP3|320 Kbps] <DnB, Dubstep, Bass Electronic>
 ```bash
 magnet:?xt=urn:btih:C0A5C3B80157CBFE10664123496E01026CCFC93E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -645,6 +720,8 @@ VA - Rock Blues Swacc Night (2019) [MP3|320 Kbps] <Blues, Rock Blues>
 magnet:?xt=urn:btih:E8C3AF58390B630D14103EFE642D27712FF34395
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,32 +749,7 @@ VA - Billboard Hot 100 Singles Chart 16.02.2019 (2019) [MP3|320 Kbps] <Pop, Danc
 magnet:?xt=urn:btih:AECC74432DC5988E40A720D2E7F39F34FDF3CF11
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524581   (743631) от 16.01.2022
-
-VA - Music News vol.160 (2022) [MP3|320 Kbps] <Pop, Rock, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743631.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. La La Life - My First Kiss (03:05)
- 002. Alex Hosking & Majestic - Need Your Love (Jonasu Remix) (02:14)
- 003. Alice Cooper - $1000 High Heel Shoes (03:25)
- 004. Alice Cooper - Drunk And In Love (03:50)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 13:25:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9746A97A313A53226E86FEAEF182FCBBDC7F6E26
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

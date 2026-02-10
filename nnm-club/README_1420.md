@@ -22,6 +22,8 @@ Billy Idol - Rebel Yell 2.0 - The Remixes (1983) Remixes, 2024, UME [FLAC|Lossle
 magnet:?xt=urn:btih:13A75E0A31CDFC4706D1B0AC6FA09EF2AD0747B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Pencil Photo Sketch - профессиональное приложение дл
 ```bash
 magnet:?xt=urn:btih:11265F99D8F4816C92E51B61D40A6FE2E0B4FEEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ MyFitnessPal не будет вас ограничивать в еде, ведь
 magnet:?xt=urn:btih:487F275B5ABDF531ED22C734F14E2000115EE1BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 ```bash
 magnet:?xt=urn:btih:AF05CD1EF8463FE14E66BEC709E32119E3DF1D5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ di liberta - Dictum (2020) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indi Folk, Dar
 magnet:?xt=urn:btih:619F0D5ABD43397EAA7174147D31EE054917444B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ The Black Keys - Ohio Players (Trophy Edition) (2024) [FLAC 24/96|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:4F530F520C45EB716478B5ACAB5D7D284352D11E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ VA - A State of Trance - Best Of 2024 (2024) [MP3|320 Kbps] <Trance, Progressive
 magnet:?xt=urn:btih:55A7A88DDE47451D1AB485118D3F97C4BA29FEF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ Abc - The Best On Abc (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 magnet:?xt=urn:btih:1696FDF576E3CD08C8788C65E6D81E532CC9B4A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:1696FDF576E3CD08C8788C65E6D81E532CC9B4A3
 ```bash
 magnet:?xt=urn:btih:F6B5665CD010C58EF8A57429771C19377361269E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ Little Big Adventure – Twinsen’s Quest (2024) [Switch] [USA] 18.1.0 [NSZ] [L
 magnet:?xt=urn:btih:69247DF3D78CA5BF7FEB5F17E9E9C87166757EFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:69247DF3D78CA5BF7FEB5F17E9E9C87166757EFB
 ```bash
 magnet:?xt=urn:btih:4BB3EF067B6E026450563E56BDF6C511C9BE87CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ magnet:?xt=urn:btih:4BB3EF067B6E026450563E56BDF6C511C9BE87CC
 magnet:?xt=urn:btih:F1207B8E5C07E297F96E9788A4EF87EAC534DAD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:F1207B8E5C07E297F96E9788A4EF87EAC534DAD7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:F1207B8E5C07E297F96E9788A4EF87EAC534DAD7
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ Dragonsphere (1994) [En] (1.01) License GOG
 ```bash
 magnet:?xt=urn:btih:74EAA125E5D6DD0D4D7EEAFD83BDF88A63C0442F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ Electrodoc - это новое имя приложения Electrodroid. То ж
 magnet:?xt=urn:btih:D07B5AED7487B5B62EDEF8DF7EE08D343DE188B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:D07B5AED7487B5B62EDEF8DF7EE08D343DE188B2
 ```bash
 magnet:?xt=urn:btih:BCE77795FA42FD567E71D797EEB17A2AC2A54A0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ Windows хороша, но всегда есть, что улучшить. Во�
 magnet:?xt=urn:btih:78A94EB6D3A388035BEC44D0201195AFD5B25A4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.06) Repack 
 ```bash
 magnet:?xt=urn:btih:CD98A1668E85AA627279BFDA453EACB944D05D06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:CD98A1668E85AA627279BFDA453EACB944D05D06
 magnet:?xt=urn:btih:3F27CD8B0566F6D748CB047EFC1CA0D5EC5C79CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:3F27CD8B0566F6D748CB047EFC1CA0D5EC5C79CC
 ```bash
 magnet:?xt=urn:btih:1C4BAC42FD0E02C17DC70E9C2E55C4CEA2430CD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +585,8 @@ magnet:?xt=urn:btih:1C4BAC42FD0E02C17DC70E9C2E55C4CEA2430CD1
 magnet:?xt=urn:btih:F331845874CCAADEE7A55560B0D5D45FDA0F07C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ Capture One - один из лучших профессиональных кон
 magnet:?xt=urn:btih:2FE165A773BAFE2537D81E41F703A8C4A5C0FEE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ magnet:?xt=urn:btih:2FE165A773BAFE2537D81E41F703A8C4A5C0FEE7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ Ahab - Collection (2006 - 2023) 6 CD [FLAC|Lossless|image + .cue] <Funeral Doom 
 magnet:?xt=urn:btih:E45F48333005152286159141D3BC5A9C64579C3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ magnet:?xt=urn:btih:E45F48333005152286159141D3BC5A9C64579C3C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

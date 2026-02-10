@@ -26,6 +26,8 @@
 magnet:?xt=urn:btih:8CA6910CE93D972AC2D8C5EA69A1952C945CA2E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -59,6 +61,8 @@ CD1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -82,6 +86,8 @@ CD1
 ```bash
 magnet:?xt=urn:btih:D3D12D7E189BBAE6808BF0F1168A266BD02B7627
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +115,8 @@ magnet:?xt=urn:btih:D3D12D7E189BBAE6808BF0F1168A266BD02B7627
 magnet:?xt=urn:btih:23A7DA0FE0BBC7B7B621B9DB662EB21C781302A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -132,6 +140,8 @@ magnet:?xt=urn:btih:23A7DA0FE0BBC7B7B621B9DB662EB21C781302A0
 ```bash
 magnet:?xt=urn:btih:820D3CDB72D4BE61B590F3F9C6F4B231A13DABC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +176,8 @@ Paul Weller - 17 Альбомов (1992-2010) Дискография [FLAC|Lossl
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +209,8 @@ Sunstryk - Pure Essence (2010) [FLAC|Lossless]<Psy-Progressive>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +237,8 @@ VueScan 9.0.86 + x64 [Multi/Rus]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +262,8 @@ Total Commander - популярный файловый менеджер с пр
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +289,8 @@ Total Commander - популярный файловый менеджер с пр
 magnet:?xt=urn:btih:96C941C64EC63949B7C0A17016BEE02317CB0E4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +314,8 @@ magnet:?xt=urn:btih:96C941C64EC63949B7C0A17016BEE02317CB0E4C
 ```bash
 magnet:?xt=urn:btih:2809DB296362BC87468798CA2E9E4E481323E58B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +341,8 @@ magnet:?xt=urn:btih:2809DB296362BC87468798CA2E9E4E481323E58B
 magnet:?xt=urn:btih:24EFC464B4E89A764B1CB416EB396A3C0A298DFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +366,8 @@ Total Commander - популярный файловый менеджер с пр
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +394,8 @@ Total Commander - популярный файловый менеджер с пр
 ```bash
 magnet:?xt=urn:btih:33A7E138D09A06FBDC07D418A7A9239F17259890
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +430,8 @@ VA - One Dub (2009) [MP3|320 Kbps]<Dub, Psy Dub>
 magnet:?xt=urn:btih:EFC5BFDD069FF3AE5E78009DD7A651128907E2BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +462,8 @@ Autopoiesis - Cytherean Dreams (2002) [MP3|192 Kbps] <Electronic, Berlin School,
 magnet:?xt=urn:btih:AD7028CD4C067E17FA43C1C78EE19F19997648E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +488,8 @@ magnet:?xt=urn:btih:AD7028CD4C067E17FA43C1C78EE19F19997648E6
 ```bash
 magnet:?xt=urn:btih:E35130B86648331B22AAB1D1BDD017A846B70F0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +516,8 @@ magnet:?xt=urn:btih:E35130B86648331B22AAB1D1BDD017A846B70F0B
 magnet:?xt=urn:btih:BEEAED880B992DDDE97EDB9B14803760A6A78DD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +541,8 @@ magnet:?xt=urn:btih:BEEAED880B992DDDE97EDB9B14803760A6A78DD8
 ```bash
 magnet:?xt=urn:btih:513BAF353D20A7042D9EB019FB03D7D4E16D8397
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +569,8 @@ magnet:?xt=urn:btih:513BAF353D20A7042D9EB019FB03D7D4E16D8397
 magnet:?xt=urn:btih:9985C5D1B1B441A2EAEC5028A63F77116327DF09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +594,8 @@ magnet:?xt=urn:btih:9985C5D1B1B441A2EAEC5028A63F77116327DF09
 ```bash
 magnet:?xt=urn:btih:79035B3F949B1D4DAE9965F81C78C7E12E90D608
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +627,8 @@ VA - Stop It 7 (2012) [MP3|320 кб/с]<Electro Breaks>
 ```bash
 magnet:?xt=urn:btih:48045B3A3C1F49499D3357B4EB3332C1A7E60C7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +663,8 @@ VA - Future Memories (2008) [MP3|320 Kbps]<Psy Chill, Psy Dub, Ambient, Downtemp
 magnet:?xt=urn:btih:8D01B80CFB1B80CD1D3FD2D620EE8C47957EF0CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +698,8 @@ Neptune (KDE версия) 2.0 Full
 magnet:?xt=urn:btih:AFD2E26DA365609FBA1277BD420102BCC065C072
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -682,6 +730,8 @@ The Dwindlers - Allegories (2012) [MP3|~245 Kbps (V0)]<Ambient,Female vocal, Ele
 magnet:?xt=urn:btih:AC9C5B5A95C6BFDC609114DCF23EA07CC580CABC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -705,6 +755,8 @@ DVJ Bazuka - Sintez (2012) [WMV] WEBRip
 ```bash
 magnet:?xt=urn:btih:7D7899606206BE8C2D49B855445C6D060BFEF9F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

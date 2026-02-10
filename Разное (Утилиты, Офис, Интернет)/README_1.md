@@ -19,6 +19,8 @@ WinCatalog - это простая в использовании програм�
 magnet:?xt=urn:btih:051F416D820137355585B2AB8689F71DD0DC32FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ MediaInfo — позволит узнать техническую информ�
 ```bash
 magnet:?xt=urn:btih:6471F7144617A2E53F7EF7E38BE2E6B0C268E461
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ SplitCam - бесплатная программа способная сущес
 magnet:?xt=urn:btih:679D682C788BF109B917A6B376237AB0F88B6142
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ FolderView позволяет сохранить или распечатать �
 ```bash
 magnet:?xt=urn:btih:8298429293C65305363EDD9D3AC25F600C1CD2FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Movavi Screen Recorder - программа для захвата видео с 
 magnet:?xt=urn:btih:A4049618C939BC271D74F6D7988A7954F62BFFF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ KMS Tools — облегченный вариант сборника прогр�
 ```bash
 magnet:?xt=urn:btih:CCBD3D52A9CD3F1F1CCD8A7E9FCA4204AA82827B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Fast Screen Recorder — это программное обеспечение д
 magnet:?xt=urn:btih:7CB4AB2E807BF3A62F8163EBE3881F206985621E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Everything – это поисковый движок для Windows. Everything
 ```bash
 magnet:?xt=urn:btih:B310892585CE11117783756B4E91C2C6A2FF95DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ MD5 Checksum Tool - небольшая утилита для рассчета MD
 magnet:?xt=urn:btih:402AD1CA65750CE4409594FE29731F6438C1F9B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Comfort Keys улучшает общее удобство Windows и помог�
 ```bash
 magnet:?xt=urn:btih:5842B42604D52AABB5A74A0C197F944E964353EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ iTop Easy Desktop позволяет вам гибко управлять эле
 magnet:?xt=urn:btih:F2E652D4439BB7C7E41CA4DB28410DFF83297795
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Defender Remover Portable 12.8.4 [En]
 ```bash
 magnet:?xt=urn:btih:2D2C438CCA86CBC2D6CF8528C5319870451FACEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ LogViewPlus значительно облегчает просмотр запи�
 magnet:?xt=urn:btih:358FCBAC355A8A4B4CE7503560540381226D82A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ FileMenu Tools настраивает пункты контекстного ме
 ```bash
 magnet:?xt=urn:btih:9B0F248795CCE7F0AE207BDB61710DA19B71B2B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Open-Shell Menu - замена утилиты Classic Shell, разработк�
 ```bash
 magnet:?xt=urn:btih:CEFABDEC49308C1C3348C44E9F58FA13A6F0EC88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Office 2013-2024 C2R Install + Lite 7.7.7.7 ++ r26 Portable by Ratiborus [Multi/
 magnet:?xt=urn:btih:E4566A894C3440F5E70DB41EEB9FC2390FC04CD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ Mirillis Action! 4.45.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:2653A312B1D8B5A36124CC52B612B9BCE110378E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Icecream Screen Recorder – простая программа для запис
 ```bash
 magnet:?xt=urn:btih:A2FAFCA23B484E3C5E40C58BC4E8816FF2CA5D47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ Text Edit Plus — это простой, но мощный текстовый �
 magnet:?xt=urn:btih:9BC3597214656E1D915B1471FEE3B81AE443BD73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ WinMerge является весьма полезной для определе�
 magnet:?xt=urn:btih:218DAD727C173F77DC3A1FA06835E3ADD2EC01E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ Alfa eBooks Manager - одна из самых популярных програ
 ```bash
 magnet:?xt=urn:btih:42464B7EE44E9462C37A4697DFE02BC859E11D0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ Enigma Virtual Box - бесплатная система виртуализац�
 magnet:?xt=urn:btih:23317768E2E394969A1A0B490F9EE46538C3086F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ ApowerREC - это программа которая может записыва
 ```bash
 magnet:?xt=urn:btih:72B7515BA9E15A41A0D8BECA2F540ADFAEF2B779
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ OpenNumismat является удобным и надежным приложе�
 ```bash
 magnet:?xt=urn:btih:0166626D6C73F9BFCC8A27CCC258BFF85CEB342C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ Timer by WolfEywa – таймер-часы.
 magnet:?xt=urn:btih:ABBD5060F676C4A56C5759A0A4735B150C283FF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ Rainmeter - утилита для мониторинга ресурсов ком
 ```bash
 magnet:?xt=urn:btih:1FBA28F91C0B8818EEAF783342EDED96D7403917
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

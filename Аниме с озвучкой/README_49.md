@@ -19,6 +19,8 @@ Human Lost: Ningen Shikkaku | No Longer Human | Human Lost: Исповедь н�
 magnet:?xt=urn:btih:C7378E743DDE3EBF0084434A72C892FDDA4F644C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Mujaki no Rakuen | Paradise of Innocence | Невинный рай [2014-2016, O
 ```bash
 magnet:?xt=urn:btih:83BAEAEB3860FD9B99A978150600BC00FACE8ACC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Kyou Kara Maou! | Kyo Kara Maoh! | God? Save Our King | King From Now On! | От
 magnet:?xt=urn:btih:3A5891FEB0905786D51E4B25BCBB235A6D362746
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Kyou Kara Maou! 3rd Series | Kyo Kara Maoh! 3rd Series | God? Save Our King 3rd 
 ```bash
 magnet:?xt=urn:btih:FF66BAC45377B22276C838D246BC2B017578DF94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Kyou Kara Maou! R | Kyo Kara Maoh! R | God? Save Our King R | King From Now On! 
 magnet:?xt=urn:btih:CCFD28C7C5681DF123F15533635A35B4BC960018
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Trickster / Обманщик [2016, TV, 24] HDTV 720p raw+rus
 ```bash
 magnet:?xt=urn:btih:1E9B5587DD8CB2649401A3A56C25BA6344C8A125
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Rewrite: Moon and Terra / Перезапись: Луна и Земля [2017, TV
 magnet:?xt=urn:btih:E5FEE2DE1601850E18D21EC8165F6F955D0B7F9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Mahoromatic: Automatic Maiden | Махороматик: Автоматическ
 ```bash
 magnet:?xt=urn:btih:980646BAFF00BC6142AB9123B4A5224564756326
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Mahoromatic Natsu no TV Special: Ecchi na no wa Ikenai to Omoimasu | Mahoromatic
 magnet:?xt=urn:btih:1B0E58183FD19C2684392C742AFA4BC940531820
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Mahoromatic: Tadaima Okaeri | Mahoromatic: I'm Home | Махороматик: С
 ```bash
 magnet:?xt=urn:btih:CBCAD14B115FE83E40F93D072F50E146D56AD25D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Mahoromatic: Motto Utsukushii Mono | Mahoromatic: Something More Beautiful | М�
 magnet:?xt=urn:btih:B62F04AA73BA339EBE38DB0080DAA1C35F19B95E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Idol Jihen / Idol Incidents / Проблемы идола [2017, TV, 12] WEBRip 
 ```bash
 magnet:?xt=urn:btih:E6DD69EAA773E26590EFD061538BF822059805D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Gokushufudou | Путь домохозяина [2021, Web, 10 из 10] WEB-DLRip
 magnet:?xt=urn:btih:8E92ABDED66150A82EBF45E704E8918A4B0ADF33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Jungle de Ikou! | В джунгли! [1997, OVA, 3 из 3] DVDRip 480p 10-bit ra
 ```bash
 magnet:?xt=urn:btih:0BCE124CA32692F5DFAF5DF68EDD70BA044A9D9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Honoo no Labyrinth | Labyrinth of Flames | Пламенный лабиринт [
 magnet:?xt=urn:btih:E9E5BAD9E27BCBBDB9DD935A02F1538EEB42622E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Tattoon Master | Мастер Таттун [1996, OVA, 2 из 2] DVDRip 480p 10-
 ```bash
 magnet:?xt=urn:btih:D08D34A77C9C563B7FAB8D78D20F572E4C48C66C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ BECK: Mongolian Chop Squad | БЕК: Восточная Ударная Груп�
 magnet:?xt=urn:btih:EDC58DA6F835CE2956667E20AA449DFF7AD50F88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Ookami Kodomo no Ame to Yuki / The Wolf Children Ame and Yuki / Волчьи д�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ Angel Beats! | Ангельские Ритмы! [2010, TV, 13 ep + 3 sp] BDRip 1
 magnet:?xt=urn:btih:CF5D1F1F3A8EBA963959FFF97B5DBC8BD1DC030C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ Toaru Majutsu no Index II | Некий Магический Индекс [TV-2] 
 ```bash
 magnet:?xt=urn:btih:A1CC80EE44100D6DFD394B21D1C02A43581FBAEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ Boku no Hero Academia | My Hero Academia | Моя геройская акаде�
 magnet:?xt=urn:btih:95953BD70E2C8628201C81EDD3BB79D6D3A5071A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ Eikyuu Kazoku | Eternal Family | Вечная семейка [1997, Movie] DVDRi
 ```bash
 magnet:?xt=urn:btih:9B31AD87753CCF90304C448C3955D8920E02E929
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ Boku no Hero Academia | Моя геройская академия OVA [2016-201
 magnet:?xt=urn:btih:00B69FCCC4ECD90845470F108ABFF90821322A66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ Konohana Kitan | Загадочная история Коноханы [2017, TV,
 ```bash
 magnet:?xt=urn:btih:56EBFF3A4AFD808F1AF7E1EA0985AEE65B8F9F16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ Nerawareta Gakuen | Psychic School Wars | Школа под прицелом [20
 magnet:?xt=urn:btih:4FF5EBA434BE1CABE98533B284A496D42FA5C1CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Hataage! Kemono Michi | За дело! «Звериная Тропа» [2019, TV
 ```bash
 magnet:?xt=urn:btih:B9BE72C279B8F560622480526DDC96884F240369
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

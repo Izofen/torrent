@@ -20,6 +20,8 @@ MediaInfoXP - это проект с открытым исходным кодо�
 magnet:?xt=urn:btih:3FD86D6E3B03E1B83FAC63A82596F55B5E60A34C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ XX век начинается. На просторы американских �
 magnet:?xt=urn:btih:66FB4D4D0EBAF861CB718C9BAF4CF084F1B95E82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:D2384AD2EBBB68F4EE9DDF915874EECDDD7F64A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Volume2 — альтернативный регулятор громкости, 
 magnet:?xt=urn:btih:8F8D05608FE39D21D0DCC423E2939942BCF9C8D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Wise Disk Cleaner 10.9.7.813 RePack (& portable) by Dodakaedr [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3F0E90305FD4D4492C1985FC0B7D7878AB1CA8CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:3F0E90305FD4D4492C1985FC0B7D7878AB1CA8CD
 magnet:?xt=urn:btih:CEE210CCF5BBCF83ECA9E12EED42CF48D053C909
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Wondershare Recoverit- мощная и простая в использован�
 magnet:?xt=urn:btih:62499AB7E91874CFD0ECEA780018000E829CD7BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:62499AB7E91874CFD0ECEA780018000E829CD7BE
 ```bash
 magnet:?xt=urn:btih:9B8AE58F71774CBA91C71B4FB60AD0E0B69D773C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ iToolab UnlockGo это - Универсальный инструмент дл
 magnet:?xt=urn:btih:4B04395E3ED7E03A23219F240C64BC1F16961A68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Telegram — это приложение для обмена сообщения�
 ```bash
 magnet:?xt=urn:btih:07311F94BBB928CD844438BCD8918D9F5E05B3B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ MultiTimer - это простое и универсальное таймер-п
 magnet:?xt=urn:btih:09D248F3D51786C80A019416FCCD98DCD9F2646C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ AVS Audio Converter - программа для преобразования а�
 magnet:?xt=urn:btih:D98D90C0A76C8B12F3D68413B3CCB9A384F23835
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:9F49464C0F052DA496B6A57DD72DCD7530407C6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ reaConverter Pro - мощный инструмент для тех, кто им�
 magnet:?xt=urn:btih:8C5B4ABD984A10F9AD8093A605506F9337E3AB66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:8C5B4ABD984A10F9AD8093A605506F9337E3AB66
 ```bash
 magnet:?xt=urn:btih:9AB8494967D7CDE5994AAB565B4416BDA2AD1D00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ Calibre - простая и удобная программа для управ�
 magnet:?xt=urn:btih:63D062ED2B9461A8CE497437ACEC73D64E156B62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ ABBYY Lingvo X6 Professional 16.1.3.70 Full RePack by FanIT [Multi/Ru]
 magnet:?xt=urn:btih:565FD2C35CE7ACDC39AC229D79C27E8CFA0813AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ XMind – это лучшее программное обеспечение дл
 ```bash
 magnet:?xt=urn:btih:8C9C56A2640621613073172CD81E0C85B8E2E871
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ Armada Music - Armada Night Radio 001-085 (2014-2015) [MP3|128 кб/с]<Trance, 
 magnet:?xt=urn:btih:B88D4B01D2EAE90EB01C05E6E14BB87786F72D3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ Telegram — это приложение для обмена сообщения�
 magnet:?xt=urn:btih:2F4C3454D5A79EBF7655C261CD8D48B83FFD11AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ XYplorer - удобный мультивкладочный файловый ме
 magnet:?xt=urn:btih:F9415A130F1A8C3F085EC8B3A37F8C68F3397F75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ Comedy Woman (31.12.2019) WEB-DLRip (сезон 9, выпуск 15)
 ```bash
 magnet:?xt=urn:btih:DFEBC29E74D51188D01BC886030F4B539D8E90C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ magnet:?xt=urn:btih:DFEBC29E74D51188D01BC886030F4B539D8E90C2
 magnet:?xt=urn:btih:DAA64F3D0D0C02025A5A41BA9F24BB2523EA7C3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ Recovery USB-flash for Acer Aspire E5-411 / Windows 8.1 (х64) [Ru]
 ```bash
 magnet:?xt=urn:btih:D82F7A64A251A3E5EB6B78DBD5C2206FFC0C1656
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ magnet:?xt=urn:btih:D82F7A64A251A3E5EB6B78DBD5C2206FFC0C1656
 magnet:?xt=urn:btih:DF1FCC8A2F37E2D1EFC6D6A239B46DB75C0D8835
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ magnet:?xt=urn:btih:DF1FCC8A2F37E2D1EFC6D6A239B46DB75C0D8835
 ```bash
 magnet:?xt=urn:btih:1882063B84F4F383720863C6AC84C98063E21041
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

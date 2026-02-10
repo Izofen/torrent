@@ -1,3 +1,31 @@
+###  Публикация: 932168   (509864) от 28.08.2015
+
+Алекс Виада | Гибридный Атлет (2015) [PDF]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новинка! Абсолютный эксклюзив! Одна из лучших книг по функциональному тренингу!
+Знаменитая в своих кругах команда Juggernaut советует эту книгу всем, кому интересен функциональный тренинг. В книге вы узнаете как подготовить себя к сложным испытаниям, о том как преуспеть в реакции, силе, выносливости и красоте тела.
+Сам автор Алекс Виада - это гуру разностороннего (   Читать дальше...   )Жанр: ФитнесФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70AC03C78AE4260FED698211DF068254CE564E03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 931958   (509873) от 28.08.2015
 
 Виктор Андреев (сост.) | Коптим, вялим, солим, маринуем мясо, рыбу, птицу, сало, сыр. 700 домашних рецептов (2015) [FB2, RTF]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:CFBDFED713D949645339FE7CA1A7F9F70FF80136
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +75,8 @@ magnet:?xt=urn:btih:CFBDFED713D949645339FE7CA1A7F9F70FF80136
 magnet:?xt=urn:btih:A9005CE75BE317F0143F49CB6C2133BC3252F5CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +102,8 @@ magnet:?xt=urn:btih:A9005CE75BE317F0143F49CB6C2133BC3252F5CF
 ```bash
 magnet:?xt=urn:btih:0D6B00FD27B8B5F58FA8E7E3EC510325ECFE4DA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +131,8 @@ magnet:?xt=urn:btih:0D6B00FD27B8B5F58FA8E7E3EC510325ECFE4DA8
 magnet:?xt=urn:btih:DBFBAEB26A609C6A6DADF0B66E754BE37ADB5055
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +156,8 @@ magnet:?xt=urn:btih:DBFBAEB26A609C6A6DADF0B66E754BE37ADB5055
 ```bash
 magnet:?xt=urn:btih:050CE3E699B596E57CB6F2F33CC98E1B660104FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +185,8 @@ magnet:?xt=urn:btih:050CE3E699B596E57CB6F2F33CC98E1B660104FB
 magnet:?xt=urn:btih:4108CA5F431E351E36F84820C90B29501B0ABCCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +210,8 @@ magnet:?xt=urn:btih:4108CA5F431E351E36F84820C90B29501B0ABCCC
 ```bash
 magnet:?xt=urn:btih:005008AB7DCDF5B76979907ADA49A31B932182D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +237,8 @@ magnet:?xt=urn:btih:005008AB7DCDF5B76979907ADA49A31B932182D8
 magnet:?xt=urn:btih:88CD84D270C979A971F742FB5D78D2893B7E32DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +262,8 @@ magnet:?xt=urn:btih:88CD84D270C979A971F742FB5D78D2893B7E32DB
 ```bash
 magnet:?xt=urn:btih:8BC39E062679347AC66DA85629D14CBF74F7410E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +289,8 @@ magnet:?xt=urn:btih:8BC39E062679347AC66DA85629D14CBF74F7410E
 magnet:?xt=urn:btih:BE55512645C24450AE2FBDECA6306DC6337EF4F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +314,8 @@ magnet:?xt=urn:btih:BE55512645C24450AE2FBDECA6306DC6337EF4F6
 ```bash
 magnet:?xt=urn:btih:942EE74CC6DD96D66854D111C1A65547224E80C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +341,8 @@ magnet:?xt=urn:btih:942EE74CC6DD96D66854D111C1A65547224E80C1
 magnet:?xt=urn:btih:7884FD65DB7F94582D77EC15F2312BC91BF0B810
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +366,8 @@ magnet:?xt=urn:btih:7884FD65DB7F94582D77EC15F2312BC91BF0B810
 ```bash
 magnet:?xt=urn:btih:5A7D456D5997C73E375588D5BE276A9BE308E3B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +393,8 @@ magnet:?xt=urn:btih:5A7D456D5997C73E375588D5BE276A9BE308E3B2
 magnet:?xt=urn:btih:07BAF21943F0A07C396AD4C06EDFAA7B232EEA8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +418,8 @@ magnet:?xt=urn:btih:07BAF21943F0A07C396AD4C06EDFAA7B232EEA8A
 ```bash
 magnet:?xt=urn:btih:93630AB8F7B5338A08087A3EC0FCDB7346727ACB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +446,8 @@ magnet:?xt=urn:btih:93630AB8F7B5338A08087A3EC0FCDB7346727ACB
 magnet:?xt=urn:btih:ED2EDD8198AB283BAF22506616745B120CC2878B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +473,8 @@ magnet:?xt=urn:btih:ED2EDD8198AB283BAF22506616745B120CC2878B
 magnet:?xt=urn:btih:4EEE445F2FF37D72E83FE4514FF9C8D49F4999C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +498,8 @@ magnet:?xt=urn:btih:4EEE445F2FF37D72E83FE4514FF9C8D49F4999C3
 ```bash
 magnet:?xt=urn:btih:2A06FC4D6D51BE206F3DE140980ADFB87C47C8CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +525,8 @@ magnet:?xt=urn:btih:2A06FC4D6D51BE206F3DE140980ADFB87C47C8CE
 magnet:?xt=urn:btih:6A35A4BD1A642E5AE2521E15192625167CAC161E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +550,8 @@ magnet:?xt=urn:btih:6A35A4BD1A642E5AE2521E15192625167CAC161E
 ```bash
 magnet:?xt=urn:btih:D6B7931DE67A9568E519BEE675CEA8DDDB652BC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +579,8 @@ magnet:?xt=urn:btih:D6B7931DE67A9568E519BEE675CEA8DDDB652BC2
 magnet:?xt=urn:btih:91F73E03E7FBEC83E9F15A1930FAA5C550385C3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +606,8 @@ magnet:?xt=urn:btih:91F73E03E7FBEC83E9F15A1930FAA5C550385C3A
 ```bash
 magnet:?xt=urn:btih:01BD059DDEB1A727E7844D3C25B1162D7710E890
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +635,8 @@ magnet:?xt=urn:btih:01BD059DDEB1A727E7844D3C25B1162D7710E890
 magnet:?xt=urn:btih:F17662BE0733FC46797029D368DCBEE8D92D3EC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +663,8 @@ magnet:?xt=urn:btih:F17662BE0733FC46797029D368DCBEE8D92D3EC7
 magnet:?xt=urn:btih:9407FBF5069D11E79FCAFA8275EFBEA2FBF03AF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,29 +689,7 @@ magnet:?xt=urn:btih:9407FBF5069D11E79FCAFA8275EFBEA2FBF03AF2
 magnet:?xt=urn:btih:AD65BB605EBDFB990C667DB3EE330B73E76C9BC8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931747   (511024) от 27.08.2015
-
-И. У. Будовниц | Монастыри на Руси и борьба с ними крестьян в XIV-XVI вв. [по "житиям святых"] (1966) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511024.jpg" />
-</div>
-
-
-###  Подробнее
-
-В монографии на основе изучения житий русских святых исследуется история русских монастырей, эволюция монастырских хозяйств, антицерковная и антимонастырская борьба русского средневекового крестьянства. Показана ценность житийной литературы как исторического источника.Жанр: История, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F83AE309E248AC02BACE398F01EB3B3C56D7A5F4
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

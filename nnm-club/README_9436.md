@@ -22,6 +22,8 @@ Tron Syversen - Piano Poems (2009) [FLAC|Lossless|tracks + .cue] <New Age, Relax
 magnet:?xt=urn:btih:B16A0134B501CBBD7428E769096345AA4AEAEC23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:BFF63D448BC47F0289387D1D3B17787B89EEFC7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ mindXpander - Triumphant Return (2012) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth
 magnet:?xt=urn:btih:FCDDE6E36EAC528E1D20855172F03402235884B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ CADintosh позволяет ускорить проектные работы и
 ```bash
 magnet:?xt=urn:btih:E5B8C312F6FCD770AAEE280114A765AB5D63739F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ ScreenFloat — приложение для создания висящих на
 magnet:?xt=urn:btih:B9F7C850AA693C5AE1AAAD205CDAC0ED40047972
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:7EEC319D4D3C67F1CC8B6EAE5F205BAB3B9BE6CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ VA - Best Hits Of Jerusalem Radio (2012) [FLAC|Lossless|image + .cue] <Pop>
 magnet:?xt=urn:btih:66DCB7FDA15ACF52B3D9700909B18FB0D6356715
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +218,8 @@ VA - Progressive Onrush III (2019) [FLAC|Lossless|WEB|tracks] <Progressive House
 ```bash
 magnet:?xt=urn:btih:38F530C9ECA0C939C6B04FF954404080DB74C951
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -232,6 +248,8 @@ Giorgio 'Fico' Piazza - Autumn Shades (2018) [FLAC|Lossless|image + .cue] <Progr
 magnet:?xt=urn:btih:1F62B51A500E176DB31530EB793A8496203AC489
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +276,8 @@ Posterino – программа, ориентированная на созда
 magnet:?xt=urn:btih:7A26300621499627340E4DEC8D075F2D94CAD764
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -281,6 +301,8 @@ PDFpen Pro - приложение для создания и редактиро�
 ```bash
 magnet:?xt=urn:btih:6D0D3D82465FE6BDF6E70D80E7E78456F191DCE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +330,8 @@ DxO PhotoLab 2 ELITE Edition 2.3.3 (build 47) CR2 [Multi]
 magnet:?xt=urn:btih:48CAF8F03C207FADCB39D619AB9A5069A47407F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +355,8 @@ Cisdem OCRWizard с улучшенным механизмом оптическо
 ```bash
 magnet:?xt=urn:btih:79FC6E228F5723B400B456C6942B5D7C855B9D96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +385,8 @@ Item - Outlife (2009) [FLAC|Lossless|image + .cue] <Metalcore>
 magnet:?xt=urn:btih:85D65EEA45C7637D07492FD7CC4E95E9C0C493EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +410,8 @@ Amadeus Pro - многотрековый музыкальный редактор
 ```bash
 magnet:?xt=urn:btih:02D6ED19E7505CBE27D3E75D9B93771ECC8BB5DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +437,8 @@ ReNamer - программа, позволяющая пакетно переим
 magnet:?xt=urn:btih:75F59031F62683A371D4DCA67EC8E596AE8757AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ Punto Switcher — автоматический переключатель ра�
 ```bash
 magnet:?xt=urn:btih:4940C96D724B45D8EC5331C8A0E6175CDA83043C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ magnet:?xt=urn:btih:4940C96D724B45D8EC5331C8A0E6175CDA83043C
 magnet:?xt=urn:btih:1FAE87F5ECF6AABC5BFF8133F787DC8E8E647DBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ Kingsman: Секретная служба / Kingsman: The Secret Service (2014) 
 ```bash
 magnet:?xt=urn:btih:F6C1772B72B1E7F35FE851C8424CB491294BBC42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +541,8 @@ magnet:?xt=urn:btih:F6C1772B72B1E7F35FE851C8424CB491294BBC42
 magnet:?xt=urn:btih:40AFF33382AC8F833650A29CD7C0B87E2A6BF83C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +567,8 @@ magnet:?xt=urn:btih:40AFF33382AC8F833650A29CD7C0B87E2A6BF83C
 magnet:?xt=urn:btih:0508C6A970153E76FA127673AE2508E3C166BF65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +592,8 @@ VA - The Mystic Art Of Chill Vol.1-2 (2004-2005) [FLAC|Lossless]<Chillout, Loung
 ```bash
 magnet:?xt=urn:btih:C1F0148D689887E4D0D9B934E971B1579FF4E275
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +622,8 @@ magnet:?xt=urn:btih:C1F0148D689887E4D0D9B934E971B1579FF4E275
 magnet:?xt=urn:btih:AAB81AC541393D0D626E66420C9DECE5AAAF8F2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +651,8 @@ Sia - Everyday Is Christmas (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:BBBF6C670B874C324D7C25A3D9167757F9C99D00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +677,8 @@ AIMP – проигрыватель, включающий в себя множе
 magnet:?xt=urn:btih:CDA9D7D344C07710FA2B7944BFFA506562123B80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ magnet:?xt=urn:btih:CDA9D7D344C07710FA2B7944BFFA506562123B80
 ```bash
 magnet:?xt=urn:btih:692D649428914DF91267349D528298980FD342AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:4EC00D40D57FA4CACCD3B75BC33F7830A43B4314
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:4EC00D40D57FA4CACCD3B75BC33F7830A43B4314
 magnet:?xt=urn:btih:22CD75826911DA5191D18BC55D25AEB65866741B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Cliff Sharif | Game Development with Unreal Engine 5 (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:A38774838214CC324FFEB5CEBF19BAC7A5EEAC7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:A38774838214CC324FFEB5CEBF19BAC7A5EEAC7B
 magnet:?xt=urn:btih:B27E4B6916532CAE595E47E4D65D7572109EDC97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:B27E4B6916532CAE595E47E4D65D7572109EDC97
 ```bash
 magnet:?xt=urn:btih:870725DC2ED372E6322B4BA0962A68EEEBDE45D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:870725DC2ED372E6322B4BA0962A68EEEBDE45D5
 magnet:?xt=urn:btih:5AE6168571F9FB4EA0E7A7D16832C0DEB35A57E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Qaifi Khan | ReactJS for Jobseekers: The Only Guide You Need to Learn React and 
 magnet:?xt=urn:btih:A3634F509F99B686630FC1EBC946E92425330E55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Sulekha AloorRavi | Metaprogramming with Python (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:B0AC413B13B1FFCF5287130AFF7F9C3A32C48531
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:B0AC413B13B1FFCF5287130AFF7F9C3A32C48531
 magnet:?xt=urn:btih:2F66D802B0A10421E90AE56ECCCD236C2B014693
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ David Tschumperle, и др. | Digital Image Processing with C++ (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:82013087BFBA75C1A63D569140BFAF55FB3E3EE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:82013087BFBA75C1A63D569140BFAF55FB3E3EE6
 magnet:?xt=urn:btih:DB9472180C44B200B82261162759F68CA94DF9AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:DB9472180C44B200B82261162759F68CA94DF9AE
 ```bash
 magnet:?xt=urn:btih:63EDF5DE624D917E5A845C4F7889029912521833
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:63EDF5DE624D917E5A845C4F7889029912521833
 magnet:?xt=urn:btih:BF59ADF521C43E04645289BC36A90B48F9DD05BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:BF59ADF521C43E04645289BC36A90B48F9DD05BB
 ```bash
 magnet:?xt=urn:btih:2E60BFD9B13718A59E5EBB459367BA803BDBB807
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:2E60BFD9B13718A59E5EBB459367BA803BDBB807
 magnet:?xt=urn:btih:632E2FE5A8CFE2299B56A299E73939A6B5255A38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Hand anyone a pencil and paper and they can start drawing, but it's just as easy
 ```bash
 magnet:?xt=urn:btih:D2DFFD3D2BAFC0F3C2E3CDCF4A9BE3039C1C4DD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:D2DFFD3D2BAFC0F3C2E3CDCF4A9BE3039C1C4DD8
 magnet:?xt=urn:btih:2417DF53AC387AF48C878539A4EC863D6F2F4B4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:2417DF53AC387AF48C878539A4EC863D6F2F4B4F
 magnet:?xt=urn:btih:1CC9011010113C039657405D2E8E83A42BC1A066
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ Kenneth Hess | Practical Linux System Administration: A Guide to Installation, C
 ```bash
 magnet:?xt=urn:btih:3D1BC6FB57914483EF81ED360B12DD899177BF67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ Andreas Wittig | Amazon Web Services in Action, Third Edition: An in-depth guide
 magnet:?xt=urn:btih:FCF5204FFA2D15A2C326236AE1E28E64F26666D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ C++ - это язык, не похожий ни на один другой, уд
 magnet:?xt=urn:btih:4B5E581CAC4FD31ED3A92449737A9DA8433BC831
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ Valerio De Sanctis | ASP.NET Core 6 and Angular: Full-stack web development with
 magnet:?xt=urn:btih:E9D37564DF0FD86970A609702331A66498A805BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ An Atypical ASP.NET Core 6 Design Patterns Guide, Second Edition подходи�
 ```bash
 magnet:?xt=urn:btih:91C58A08E72A441F1CC69ED4C578BD5F42FA2EDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ Trevoir Williams | Microservices Design Patterns in .NET: Making sense of micros
 magnet:?xt=urn:btih:33C7BE9595D8B452282B1DB306037122DA7B1F9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ Malhar Lathkar | High-Performance Web Apps with FastAPI (2023) [PDF] [EN]
 magnet:?xt=urn:btih:8B970F942688D37BA3FBBA4BEB203B2A3D7DE639
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Blazor - это незаменимый инструмент, если вы хо�
 ```bash
 magnet:?xt=urn:btih:5201FC0A76EF47A6B440B2B2C9347E66FDAD67D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

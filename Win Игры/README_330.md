@@ -19,6 +19,8 @@ World Keepers: Last Resort / Хранители Мира: Последняя Н�
 magnet:?xt=urn:btih:245BB020C628A1C42CB5A28D17DC622A7A323DA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ DeathSpank: Thongs of Virtue [En] (L) 2010 l SKIDROW
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Way of the Red - пиксельный экшен-платформер о при�
 magnet:?xt=urn:btih:DB7F91F4469C480400E0EEBF0E5B24E0C7114D83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Adam Wolfe - Flames of Time / Адам Вулф: Пламя времен (2016) 
 ```bash
 magnet:?xt=urn:btih:CAA696D213AE5A16813FAFB30A91CE76E990F486
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ PuppetShow 10: Bloody Rosie / Шоу марионеток 10. Кровавая �
 magnet:?xt=urn:btih:37C3B76642D07CA99274DC847F3B7EF62E658AC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Myths of the World: Born of Clay and Fire / Мифы народов мира. Р
 ```bash
 magnet:?xt=urn:btih:E33FC74D7E533E6A9B738DA589CB0C9A476C9B0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Ice Age Scrat's Nutty Adventure (2019) [Ru/Multi] (1.0) Repack xatab
 magnet:?xt=urn:btih:8E2D50833B36E32DA190398FE29CD6343C2EFFB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ X4: Foundations - это космический симулятор, продол
 ```bash
 magnet:?xt=urn:btih:6003A7F578E77FEC223DFF2534FD85749C09866E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ WORLD OF FINAL FANTASY (2017) [Multi] (1.0.0.0/dlc) License CODEX
 magnet:?xt=urn:btih:3A00CCC663E099A13104477405C29CED1DFD1591
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Banner Saga 2 – продолжение захватывающей The Bann
 ```bash
 magnet:?xt=urn:btih:311E1558F5FD698D14E68A3523BF1726D4434C33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ In Sound Mind (2021) [Ru/Multi] (1.016) License GOG [Deluxe Edition]
 magnet:?xt=urn:btih:E2A645408AECC50B73BEFF22DFBB67E83ACE6FF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Mystery Case Files 19: Moths to a Flame / За семью печатями 19: �
 ```bash
 magnet:?xt=urn:btih:7E0BC55FA7371DE96C97611E42920534C8E62C70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Crimson Earth 2 (2017) [En] (2.0) License PLAZA
 magnet:?xt=urn:btih:0BF03FC59FA47714420A91C42D254010989060DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Syberia 3 / Сибирь 3 (2017) [Ru/Multi] (3.0/dlc) License RELOADED [Deluxe 
 ```bash
 magnet:?xt=urn:btih:E3851B127BF079D2EB65033DFE7A0C94283FA9F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Link me / Собери меня (2015) [Ru] Repack Armeniac
 magnet:?xt=urn:btih:7687D02C1224072FAE29A5AB33F2E6EEC62A17AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Forgotten Places: Regained Castle / Покинутые места: Обрете�
 ```bash
 magnet:?xt=urn:btih:A1AB9C763124CEC216EF8F8894A50654DE144ECE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ PositronX — это футуристичный роуглайт-шутер со
 magnet:?xt=urn:btih:9D6527E2F2602069934508D30F0D085C0BD28901
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Carto - это милое рукотворное приключение в ми�
 ```bash
 magnet:?xt=urn:btih:D5A45F1A76617016B1F62B1D2FD80BF24B2B8F21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Dark Asylum: Mystery Adventure (2015) [En] Unofficial
 magnet:?xt=urn:btih:3E20C499B0A726CF5E0E0B7702B7D3BF80DAFF6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Escape The Museum / Побег из Музея (2008) [Ru] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:2BFE2703BD0B50BF242F650FE2B6EEAA8195A630
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Whispered Secrets: Morbid Obsession / Нашептанные секреты 11: 
 magnet:?xt=urn:btih:D01919B3B3A2F26377D6D7936D44D63C342D1913
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ The Wild Eight (2019) [Ru/Multi] (1.0.12) Repack Other s
 ```bash
 magnet:?xt=urn:btih:683CADFFEC8747C15172BB5447CB96FFED7BECA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Frontline Zed (2019) [Ru/Multi] (1.00) Repack xatab
 magnet:?xt=urn:btih:3D4B97ED5D3D0DA491009181FD9939CF374B2B6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ State of Mind (2018) [Ru/Multi] (1.2) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:70B83E4DC8BA46D79401F3745069FE1674F91476
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Thronebreaker: The Witcher Tales / Кровная вражда: Ведьмак. 
 magnet:?xt=urn:btih:C0B70E4590872F3BE7C6436608F52655A832AE51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Storm Chasers: Tornado Islands / Охотники за штормом: Остр�
 ```bash
 magnet:?xt=urn:btih:94DA8A9B7BC94AFFE43C28C77FF49764B7E2F54F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ WinContig - простая в использовании автономная п
 magnet:?xt=urn:btih:CBA3D823E0140A26048A74330EF294B59F491D5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:CBA3D823E0140A26048A74330EF294B59F491D5F
 ```bash
 magnet:?xt=urn:btih:778A8DB99217581448D5D6150EC026F6B577166C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ George Tsalikis - Return To Power (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 magnet:?xt=urn:btih:A3D2265B1970785FA318CF514D74F6EE193D86FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Sonia Aimy - Nigerian Spirit (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Afro-Ja
 ```bash
 magnet:?xt=urn:btih:F502733366DA4BFA54B97E14EA3A0E633DC32BE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ VA - ZYX Italo Disco New Generation Vol. 4 (2014) 2 CD [OGG Vorbis|480 Kbps] <It
 magnet:?xt=urn:btih:F2B68510E50E2D7E187EB59194ED367B510E5758
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:F2B68510E50E2D7E187EB59194ED367B510E5758
 ```bash
 magnet:?xt=urn:btih:995C8BC3018C0A00A5AD4EFE8528CEE2BBF190BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ A4 Манана(   Читать дальше...   )Жанр: Jazz, PopПродо
 magnet:?xt=urn:btih:8B81F9591649B7234310FAA2F989D966510BBA32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:8B81F9591649B7234310FAA2F989D966510BBA32
 ```bash
 magnet:?xt=urn:btih:ED51B7A0E40E907EDF06C33356007665CE9BDF06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:ED51B7A0E40E907EDF06C33356007665CE9BDF06
 ```bash
 magnet:?xt=urn:btih:9928AFD0F52607E06AAA0DF89CEB3DF8902E6DE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ Chico Freeman And Brainstorm - Sweet Explosion (1990) In + Out Records[FLAC|Loss
 magnet:?xt=urn:btih:37EA4B9F9CD03A544D3BF934771CD9CD8DF605A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:37EA4B9F9CD03A544D3BF934771CD9CD8DF605A4
 ```bash
 magnet:?xt=urn:btih:B01C241E76A8072726DF2E78D69EF8589C0CE301
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +325,8 @@ Wythersake - Antiquity (2021) [MP3|320 Kbps] <Symphonic Black, Melodic Death>
 magnet:?xt=urn:btih:EB85A5D0B6A064972DDF48F9548FA9B35717F4A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:EB85A5D0B6A064972DDF48F9548FA9B35717F4A2
 magnet:?xt=urn:btih:0ABA3FE8E6AAA8AF78B7A2510F169CE96D113EBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:0ABA3FE8E6AAA8AF78B7A2510F169CE96D113EBE
 ```bash
 magnet:?xt=urn:btih:99B7A0542B6659D6DA9B6DBC5103BDFD4E0680A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +406,8 @@ VA - The Sound Of 2023 Mix: 4 Kuala Lumpur (2023) [MP3|320 Kbps] <Trance, Progre
 magnet:?xt=urn:btih:00CF4A341E55C795BAD2AD38DFE73A1A00CEBFEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ magnet:?xt=urn:btih:00CF4A341E55C795BAD2AD38DFE73A1A00CEBFEA
 ```bash
 magnet:?xt=urn:btih:E0E3581FB4A8CFA74769A54D895E530364317394
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +461,8 @@ VA - The Best 50 of Beautiful Piano Music (2023) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:427F42B2A12035E8A71306C9E36BD9578C0FACE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ magnet:?xt=urn:btih:427F42B2A12035E8A71306C9E36BD9578C0FACE8
 ```bash
 magnet:?xt=urn:btih:135421BB3F227E69E331EDB41F84BD9AE0206714
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +516,8 @@ Kurt Rosenwinkel - Deep Song (2005) Verve[FLAC|Lossless|tracks + .cue] <Post-Bop
 magnet:?xt=urn:btih:4136B01E5AF1D34D2A5A0AE9178E2638FB812AF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ Wheel - Resident Human (2021) [MP3|320 Kbps] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:3C6E9CDF0D3795D1B45F5DF0825AF907562FF69C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +574,8 @@ A4	Hi Hi Hi (Vtip)(   Читать дальше...   )Жанр: Blues Rock, Prog
 magnet:?xt=urn:btih:48B383381F211F2600167B9E196651428328B42B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +603,8 @@ Tanzwut - Silberne Hochzeit (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Neue Deutsche
 magnet:?xt=urn:btih:D9C4E84DB129BD9D42065EE252044169333985E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +628,8 @@ magnet:?xt=urn:btih:D9C4E84DB129BD9D42065EE252044169333985E9
 ```bash
 magnet:?xt=urn:btih:538E3CD43B27DC9AE65802E37545A8B82C9F1519
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +656,8 @@ reaConverter Pro - мощный инструмент для тех, кто им�
 magnet:?xt=urn:btih:D949F295F06A01BAD2B7BDF276749F30C0C753A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +681,8 @@ Viber для Windows позволяет бесплатно отправлять 
 ```bash
 magnet:?xt=urn:btih:9F286F788D36BF3D463E1367F2E91518CAD53602
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -660,6 +710,8 @@ VA - Moods: A World Of Emotions (2014) 2CD, Compilation [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:7CE657B56AE25E4C9E354515B8637D40E5E1E251
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

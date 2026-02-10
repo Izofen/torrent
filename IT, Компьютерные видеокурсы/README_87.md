@@ -19,6 +19,8 @@ OTUS | Machine learning (2020) PCRec [H.264]
 magnet:?xt=urn:btih:0E545CA115E1FB0BB1C162BA6A5C596C3E7630E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Bang Bang Education | Вечера с Arduino. Базовый курс (2020) PC
 ```bash
 magnet:?xt=urn:btih:433A72A6F15B49DA22B6A9E3DD17E7F884924E6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ CyberBionic | Практикум по алгоритмам (2020) PCRec [H.264]
 magnet:?xt=urn:btih:45B21526EDF0977AE7C8D4B57B96C4E88352E243
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ ITVDN | SPRING (2020) PCRec [H.264/1080p-LQ]
 ```bash
 magnet:?xt=urn:btih:12631AB40F58808186AD91D0531FC876C01FF2DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Udemy, Nicholas Lever | The Beginners Guide to 3D Web Game Development with Thre
 magnet:?xt=urn:btih:46CFC677FDCFDE69B89E036FBC36589D5B54963F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:46CFC677FDCFDE69B89E036FBC36589D5B54963F
 ```bash
 magnet:?xt=urn:btih:9F5CACAAF114BF20162274881DC84D0738C33334
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Typescript - это «супернабор» Javascript. (   Читать да�
 magnet:?xt=urn:btih:A7F223712F85E82BE96DB2F8BD4CE1EE5DD36FB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Stepik, Андрей Бойко, Анастасия Заречнева | Авт�
 ```bash
 magnet:?xt=urn:btih:06E253922579BB14FF6503E763556191F3B8BB35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Foxford, Юлия Глухих  | Основы программирования 
 magnet:?xt=urn:btih:E970B5F679334A25344BE70F742C927976454A22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ ItGid, Александр Лущенко | Функции в JavaScript 2021 (20
 ```bash
 magnet:?xt=urn:btih:B246EE19E410566757B63C105B944163C6ADD9CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ Udemy, Юрий Бошников | Как самому сделать сайт, 
 magnet:?xt=urn:btih:02DEAF039D14023C973625B2A6A58252E1DDF7C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ OTUS, Дмитрий Еремин | Ручное тестирование (2020)
 magnet:?xt=urn:btih:009AB00EABA7679A64F8DA8FD4D4DBB246B4CEE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ InfiniteSkills | Профессиональное руководство по в
 magnet:?xt=urn:btih:2EB5F2020246EC6B20B212D698EBFA52A41639F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ OTUS | C++ для начинающих программистов (2020) PCRec [
 ```bash
 magnet:?xt=urn:btih:93468E78584707EC089BDC8E369D1D02A376D4E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ Udemy, Stephen Ulibarri | Unreal Engine C++ The Ultimate Shooter Course (2021) P
 magnet:?xt=urn:btih:BC33C076A36A35DE30E76D15476B39C5778E90D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:BC33C076A36A35DE30E76D15476B39C5778E90D3
 ```bash
 magnet:?xt=urn:btih:22436425BEEBCFA90028D68607D9A28D865400A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ Udemy, Tim Lash | Unreal Engine 4: Create Your Own First-Person Shooter (2021) P
 magnet:?xt=urn:btih:8F2EFF84977FFB828B285648FDBD97059CCD714A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ magnet:?xt=urn:btih:8F2EFF84977FFB828B285648FDBD97059CCD714A
 ```bash
 magnet:?xt=urn:btih:F48F0970CBD646C1593A6983EF97871234E71E77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +508,8 @@ Udemy, Stephen Grider | Advanced React and Redux  (2021) WEB-DL [En / En Sub]
 magnet:?xt=urn:btih:3E8DC533220DAFAB18CB740D4BD2A56284B0E103
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +536,8 @@ Udemy, Filip Jerga | Next JS & Typescript with Shopify Integration - Full Guide 
 magnet:?xt=urn:btih:8C38BA02598607BDD33CE91FC62D4E9C8BA32632
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ OTUS | Разработчик C++ (2020) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:A668AF8BE5D92DAC248B8AAEBA31AFA26737E019
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ Udemy | Практический JavaScript (Продвинутый уровен
 magnet:?xt=urn:btih:48A18EE8B082E6F7DB9285A64CB412308C3934C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ OTUS | Инфраструктурная платформа на основе Kub
 magnet:?xt=urn:btih:34DAB4AC51B97EED864B506BED4341E551830FCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ OTUS | Облачные сервисы (2020) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:566BF5B6E7577F85C7F8D5FA04BAF04A4A8A2CF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +668,8 @@ Udemy, GameDev.tv Team м др.| C++ Fundamentals: Game Programming For Beginner
 magnet:?xt=urn:btih:F05A0ADE9087FE475C483406A9C05D364730BC23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ Udemy, Coding Revolution | React practice course, learn by practicing ( 2021 edi
 ```bash
 magnet:?xt=urn:btih:D64678DFAFB6021BCD7A3FADC9BE6DB6C4F5D6AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Need for Speed Heat - это гоночная игра в открытом ми�
 magnet:?xt=urn:btih:85BCE8729A21B11DE40F5B7C385ED7D24CD463B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Subnautica - это подводная приключенческая игра �
 ```bash
 magnet:?xt=urn:btih:FA5208EBB6AC6C430678F774A345B49E01768272
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Tormented Souls 2 (2025) [Ru/Multi] (1.2.0/dlc) Repack FitGirl [Digital Deluxe E
 magnet:?xt=urn:btih:92085450D16543F469B457B231EE4EDB3830077A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Outer Worlds 2 - долгожданное продолжение титул�
 ```bash
 magnet:?xt=urn:btih:FF8813B846E4BECC24ED1263B79D383729B26EF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Maze Of Realities: Flower Of Discord / Лабиринт Реальностей: 
 magnet:?xt=urn:btih:3F53396627A6A7AC1C7E51DD8E7FDA8EE11CB2A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Super Mario Bros. Remastered (2025) [Ru/Multi] (1.0.1) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:6450F61335414FA1B2EE364793A6AA37C3015CD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Knightica - сочетает в себе жанры стратегии и сим
 magnet:?xt=urn:btih:4B9CD71B895BBA2444B1A68F040B9DC683B6CD66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Trailer Park Tycoon: Raccoon Ranch (2025) [Ru/En ] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:1D5A921F0A77734C6101B271DFD054318E4BD487
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Roman Triumph объединяет самые лучшие черты градо
 magnet:?xt=urn:btih:F9D2FCAEE63CE537632DB3B3E2D4AAE6D0C26B85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Those Who Rule (2025) [En] (1.4.2) License GOG
 ```bash
 magnet:?xt=urn:btih:B5E9941ADC84A27E6BCD8D13EE5CF87E0022E8A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Outer Worlds 2 - долгожданное продолжение титул�
 magnet:?xt=urn:btih:BCB465E6C97AE8ADA6E7B1C6A911592A88C66566
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Thief's Shelter - это игра, где мир отражает разруша
 ```bash
 magnet:?xt=urn:btih:A4ADFB0E095048AB6814F7F6493E8DD3DA1C2C8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ PowerWash Simulator возвращается! Красота в чистоте! 
 magnet:?xt=urn:btih:2159983C66D1512551C14AD043B28EB7CBB21743
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Little Nightmares III - это новая часть серии, предста�
 ```bash
 magnet:?xt=urn:btih:25B7A235C0D2DD618AB1AB913B10D981CCD1CCB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Plus Ultra: Legado - это 2D-метроидвания, основанная н
 magnet:?xt=urn:btih:8E94AC97F24104BB1E5AB8F13B0638B24DB5C5C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Scouring - это стратегия в реальном времени, в 
 ```bash
 magnet:?xt=urn:btih:4F207C9EF6CC028697227AE95901D0B7AEA70E24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Painkiller - это современное переосмысление куль
 magnet:?xt=urn:btih:C49C86871E3EAA1B604C854B22C7003ED50DEB99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Need for Speed Heat - это гоночная игра в открытом ми�
 ```bash
 magnet:?xt=urn:btih:78EB2156E55099013BE37F20C748ED90A1870C1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ House Flipper 2 / Хаус Флиппер 2 (2023) [Ru/Multi] (1.10.2/dlc) Repac
 magnet:?xt=urn:btih:66309ED7F9B2AA89F13BF804C8C6415800C8B8E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The Bench (2025) [Ru/Multi] (Build 20633602) Repack Necros
 ```bash
 magnet:?xt=urn:btih:E0B38BDA573842AAEB6A6757C5175394A94266FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ The Remains and The Residue — линейная приключенческая 
 magnet:?xt=urn:btih:F653E020EB3880386B56C63CEA12AB4A04529349
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Asterix & Obelix - Mission Babylon (2025) [Ru/Multi] (Build 20404417) Repack Let
 ```bash
 magnet:?xt=urn:btih:1DCB53ED285AE0B6F40B1BA10F9C2185D48C1E84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Need for Speed Heat - это гоночная игра в открытом ми�
 magnet:?xt=urn:btih:6D2FD4F66078FC015924BC581A7E82708231A515
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Dementium: The Ward (2025) [Multi] (1.1.5) Repack Necros
 ```bash
 magnet:?xt=urn:btih:53F34414309EA92031E60B52E17BB87E276D172D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Shrine's Legacy - это ролевая игра, вдохновленная л�
 magnet:?xt=urn:btih:109F6C9F6F7B34624406C82862AF0372C888EAB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Earth vs Mars (2025) [Ru/Multi] (001.000.4207100) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:87181E689595E50829953ED33FEBC11AA5C28A84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

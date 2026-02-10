@@ -22,6 +22,8 @@ Skul — это динамичный экшен с элементами rogue-li
 magnet:?xt=urn:btih:AB2960341B6393FA82221166AAA6B071CAC467EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ CARRION — хоррор, в котором вам предстоит оказа
 ```bash
 magnet:?xt=urn:btih:835B107DA44A61D7D5C87700F3AA62B7112B6BCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Endling *Extinction is Forever 1.3.2 [En]
 magnet:?xt=urn:btih:97CAA9AFE58816CCDF1F7C337AA6D79C0FF2FCE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Gomorrah v1.0.4 [En]
 magnet:?xt=urn:btih:9DDB93201ED0B95AE5132A013EB8A9B84F9F441B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ GRIS — медитативная и умная игра, (   Читать да
 magnet:?xt=urn:btih:5409832A24B7AB226B2AEE794988583E81EBBC35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ Conquistadorio v25 [Ru]
 magnet:?xt=urn:btih:072DAE0E54978C03D81BC07C70738D36BF6DB33B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ Forgotten Memories: Remastered 1.9.102 [Ru]
 ```bash
 magnet:?xt=urn:btih:04F7BD126D48613B37179EB0A4A285D68562BAFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ Trudograd 1.0.75 [Ru]
 magnet:?xt=urn:btih:45C31398A4C3BB0DAF2FC8014B7BE3D3761CA21B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ Dead Cells: Netflix Edition v3.3.25 [En]
 ```bash
 magnet:?xt=urn:btih:A36F828CF9BB651714CF31989727AEE57F8F6BCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ Balatro — это захватывающая и увлекательная иг
 magnet:?xt=urn:btih:6C380B01AD9672328021703448FB1032503F3F67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ Dune: Imperium Digital 2.1.5 [En]
 magnet:?xt=urn:btih:5E6FB274E7614C9887E2718C1329E24F8E2942A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +327,8 @@ Civilization легендарного дизайнера Сида Мейера �
 ```bash
 magnet:?xt=urn:btih:3F41EC9981760196AEAB732DF1C8EBC3B4B1D0D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +357,8 @@ Death’s Door v1.2.5 [Ru]
 magnet:?xt=urn:btih:17D3F2DC0262F45ACDDFD5CF18DBD871E7FADDB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +384,8 @@ The Rise of the Golden Idol v1.2 [En]
 ```bash
 magnet:?xt=urn:btih:6EB8CC057790FDFCF331C8AE5549A31946E2D743
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +413,8 @@ The Abandoned Planet v1.2.5 [Ru]
 magnet:?xt=urn:btih:3EFB613970A6A6E8E0E168972D6133785772C630
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +440,8 @@ Meadowfell v1 [En]
 ```bash
 magnet:?xt=urn:btih:DFC24C860840DC5B9AA9C1447404C729C134BD77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +470,8 @@ Pine – это короткая интерактивная зарисовка �
 magnet:?xt=urn:btih:D34C0A18EC6A0A3963B9F4B8D2E2E184C1288D3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +497,8 @@ Very Little Nightmares 1.2.4 [Ru]
 ```bash
 magnet:?xt=urn:btih:F8664B54FC31E13E1ADB98F5DBA0B1AFD4F6CB82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +527,8 @@ Age of History 3 1.035 [Ru]
 magnet:?xt=urn:btih:D1065F4E011FDFD6BE7FA6FC6AD66CF5D268065E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +556,8 @@ Little Nightmares 124 [Ru]
 magnet:?xt=urn:btih:9EEE66ECE1919B7D3B8D69C7F85D83EB08866C1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +582,8 @@ Kovoclak 1.12 [En]
 magnet:?xt=urn:btih:2F02FE521AB14188E7C16C5CC1A1848E503CFBC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +607,8 @@ Machinarium 3.1.8 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:6AC53199E342FACB8CCC0CD7D7878F982045C0AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +635,8 @@ Monument Valley 3 v1.0.14999 [Ru]
 ```bash
 magnet:?xt=urn:btih:6711DABF7332F3C0E81015C2880DF40A7756EB7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +665,8 @@ Blasphemous 1.0.0 [Ru]
 magnet:?xt=urn:btih:BA9ACDE0ED30A0DBA2BDDCA2F3EAFFE61C319450
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +694,8 @@ SHINE – уникальное путешествие в мир особого �
 magnet:?xt=urn:btih:470C749D03FCBE604168349282DF5E80D5DB66B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +719,8 @@ The Elder Scrolls: Blades 1.31.0.3481802 (ARM64) [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:85115C6D264904DF1187E208EC0DF051F012E076
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

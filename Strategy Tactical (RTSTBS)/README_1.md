@@ -19,6 +19,8 @@ Songs of Conquest (2022) [Ru/Multi] (1.6.3/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:FA2CAA35993590DA3458F7B38B73E763426CCBD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Knights in Tight Spaces (2025) [Ru/Multi] (1.2.19225) License GOG
 ```bash
 magnet:?xt=urn:btih:78D0997D00634B089C40FC257281C62ED1EC95BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Victoria 3 - прямой сиквел одноименной игры, где �
 magnet:?xt=urn:btih:95071C041798D361873C473CBFAD1FD22BF743B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Chains of Freedom (2025) [Ru/Multi] (1.0.3) License GOG
 ```bash
 magnet:?xt=urn:btih:8FDA2474B249F690B8920D85B7F43E33D2BD5CEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Victoria 3 - прямой сиквел одноименной игры, где �
 magnet:?xt=urn:btih:BC159551C16B9DF3959FD6DCA9C4256079CBFB4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Songs of Conquest - пошаговая стратегия, вдохновлен�
 ```bash
 magnet:?xt=urn:btih:D319B12190A25F48ECD600D801EAB8150798F3BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Broken Arrow (2025) [Ru/Multi] (1.0.6.p/dlc) Repack FitGirl [Vanguard Edition]
 magnet:?xt=urn:btih:B0F4D314D244CD4182A436FC5C1458FA07ABECC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Lysfanga: The Time Shift Warrior бросает вас в битву, котор
 ```bash
 magnet:?xt=urn:btih:E8F9A0C89480813D577B1A4061397A2B86507FEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Symphony of War: The Nephilim Saga повествует о событиях, к�
 magnet:?xt=urn:btih:5923444DA56DAC8B5FE681B0E53BFB26DE890A17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Last Train Home (2023) [Ru/Multi] (1.0.0.32413/dlc) Repack Let'sРlay [Digital D
 ```bash
 magnet:?xt=urn:btih:128E1615247F19E867A08023B1BB3A24326843F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Revival: Recolonization – 4X стратегия, события которой
 magnet:?xt=urn:btih:5A9F25B6A42E25A609DF38CDF8F4CDF465B899B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Panzer Corps 2 - лучшая стратегическая игра о Втор�
 ```bash
 magnet:?xt=urn:btih:68C9189EF9FC1D63BF6A6877EC2A008C75087ACF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Into the Breach - компьютерная игра в жанре пошагов
 magnet:?xt=urn:btih:EC152EA6D2305DFE4453175711B17C66DF0D3DEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ FTL: Faster Than Light (2012) [Ru/Multi] (1.6.14/dlc) Repack Let'sРlay [Advance
 ```bash
 magnet:?xt=urn:btih:42429F8360D38D6230FCF870F39D91C2D7B3874C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Warhammer 40,000: Gladius (2018) [Ru/Multi] (1.16.0/dlc) Repack FitGirl [Complet
 magnet:?xt=urn:btih:7909A7785A1B0D619E047335457D25E7A2BDA0CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Tactical Warfare (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:056DDA4907AC5BDEA89CCF65C85E882A3CA73D07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Ratopia - это оригинальная стратегия, которая б�
 magnet:?xt=urn:btih:149A7C43420B1C0C27C95EC4D9AAB6CDF910D773
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ TROUBLESHOOTER: Abandoned Children (2020) [Ru/Multi] (Build 18318222/dlc) Repack
 ```bash
 magnet:?xt=urn:btih:72F71503EAE4A7F17D7844523DD434E0A8C02FBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Age of Empires II: Definitive Edition (2019) [Ru/Multi] (101.103.12349.0/dlc) Re
 magnet:?xt=urn:btih:04A4870DF95FB48860140CA86AE17D5F115F2436
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Terminator: Dark Fate – Defiance позволяет окунуться в су
 ```bash
 magnet:?xt=urn:btih:5BF9DA3034B8A3D68BFF5BB26ADE3C7F911C5691
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Age of Empires II: Definitive Edition (2019) [Ru/Multi] (143421/dlc) Scene Rune
 magnet:?xt=urn:btih:5A5E09B2631B9E63F1679D86C016ACA07FE2220D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Vestiges: Fallen Tribes - это уникальное сочетание стр�
 ```bash
 magnet:?xt=urn:btih:317C331810CDC9C261AFBAC66E1EE5F40C9276CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Phantom Brigade - это пошаговая тактическая ролева�
 magnet:?xt=urn:btih:B8579B2FE58D3522B3DFF87462F05DE08C9ABF24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Solium Infernum (2024) [Ru/Multi] (1.1.3p1_85049/dlc) Repack Let'sРlay [Collect
 ```bash
 magnet:?xt=urn:btih:B7CEE7E9230413D698A0BBE501B1B48A9E2ADD77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ None Shall Intrude приглашает вас ощутить несравнен
 magnet:?xt=urn:btih:FD5906AD3DA3F1B5D851A50509F7939D950904A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Tempest Rising (2025) [Ru/Multi] (1.0.0+43454/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E82D36712E0DA25140ADF4EFBB141BD6746465E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

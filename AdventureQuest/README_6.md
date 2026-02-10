@@ -19,6 +19,8 @@ Little Nightmares: Enhanced Edition (2025) [Ru/Multi] (BuildID 18639334) Repack 
 magnet:?xt=urn:btih:165A25884F2ED24C1CE6851457CE086C7981D329
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Dustborn - дорожное приключение, вдохновленное �
 ```bash
 magnet:?xt=urn:btih:261381B904000F00D1DBBFAB77B95E74BE0403C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Afterlove EP рассказывает драматичную историю лю
 magnet:?xt=urn:btih:B8963FDBD29C78CA043B0F1325242CA75AE65CD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Breach : 83 (2025) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:D50BED21DFED1790440A38F026B9604DE21E946E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Near-Mage (2025) [Ru/Multi] (1.1.4/dlc) License GOG [Deluxe Edition]
 magnet:?xt=urn:btih:7CBE3C59B3D3B4A7B79FCDDB64E82BFB8C476D5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Sorry We're Closed - это напряженный хоррор на выжив�
 ```bash
 magnet:?xt=urn:btih:832503F7D2855989E95B880F3E1B10C6C711C541
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Downfall: A Horror Adventure Game / Downfall: История в стиле хо�
 magnet:?xt=urn:btih:E8A8CDE6733E6D05A6F8C7670D42CDE1650A7825
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Burnhouse Lane (2022) [Ru/Multi] (1.4.7) License GOG
 ```bash
 magnet:?xt=urn:btih:6A11A0776BF81023E7453C74453B926359C3FA8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Once Upon A Puppet (2025) [Ru/Multi] (2.14.4.1/dlc) License GOG
 magnet:?xt=urn:btih:7B4FCBAAF3DF5F6E8F6F1B8E5354634A9F21FBF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Five Nights at Freddy's: Secret of the Mimic (2025) [Ru/Multi] (1.0.20250616_210
 ```bash
 magnet:?xt=urn:btih:995D436E5886B536A62510E8960E257CDA9F2773
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Post Trauma (2025) [Multi] (1.04) Repack FitGirl
 magnet:?xt=urn:btih:F718F74EF79594F27777BE005CF23ABF5B0503D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Castle of Secrets - это мрачное психологическое при�
 ```bash
 magnet:?xt=urn:btih:B5DC456B96F20DC1E3AF354BA4B9BC6E051E61F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Brownie's Adventure (2024) [En] (8.0) License GOG
 magnet:?xt=urn:btih:3F7B69F20531923D36290AF69DC98B6DC59951F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Pools (Бассейны) – игра, разработанная в жанре 
 ```bash
 magnet:?xt=urn:btih:10057239DD0FD115FB4CE5390014B30F48607E4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Voyage: Journey to the Moon (2005) [Multi] (1.04) License GOG
 magnet:?xt=urn:btih:8013ECEEB0A740CC90371D15FEC2A0C1E507342C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Nine Sols - это насыщенная сюжетом двухмерная иг
 ```bash
 magnet:?xt=urn:btih:18B29F52B208C00A7BE56E57548E908F23D52701
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Cultist Simulator - настольная игра о нелёгкой и пол�
 magnet:?xt=urn:btih:E4F9B56CA1154ACF575838C88792AF7708A315FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Firmament - это повествовательная пазл-адвенчур�
 ```bash
 magnet:?xt=urn:btih:5F4B2E94605B3E360773C72AC704D69F0FBF1C82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Monster Prom 3: Monster Roadtrip (2022) [En] (2.17.a/dlc) License GOG
 magnet:?xt=urn:btih:98EB0D8B69FB65891203816B19DA9E6FFCC1E394
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Riven (2024) [Ru/Multi] (1.7.4) License GOG [The Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:8D30A6E82E052A94E33C545ACFC384D67E41652E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Dreams in the Witch House (2023) [En] (1.08) License GOG
 magnet:?xt=urn:btih:C9D5F00B3D68DBBA829278406B7CE1FFC24C44A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.5/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:61C3758BF8F1249E149473641FFE20FF03302ED0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Kulebra and the Souls of Limbo (2025) [Multi] (1.0.13) Repack FitGirl [Deluxe Ed
 magnet:?xt=urn:btih:3265880E3D17B742EE4A5486EBE1F51DC08832DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Gloom: System Breach (2025) [Multi] (1.0.7) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C084FE962E78D86502A7A7BAF4E374DA61AE82D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Labyrinth of the Demon King - это вызывающе сложный данж�
 magnet:?xt=urn:btih:AEB5BD7E773E8EB78DBD0535D792015A887D7DAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ At Dead Of Night (2020) [Ru/Multi] (Build 14844637) Repack EXROW
 ```bash
 magnet:?xt=urn:btih:C5507E60C851DDE6417A960BA6346034387AB974
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

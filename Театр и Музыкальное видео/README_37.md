@@ -22,6 +22,8 @@ Keane – Glastonbury (2024) HDTVRip [H.264/1080p]
 magnet:?xt=urn:btih:0DF7AC50027CD44D288154167207A614A326591B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:0DF7AC50027CD44D288154167207A614A326591B
 magnet:?xt=urn:btih:D3B961F77B04B8559EB5440B62051D94F14AEDFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:D3B961F77B04B8559EB5440B62051D94F14AEDFE
 ```bash
 magnet:?xt=urn:btih:CAD243919078A9965DB97853F78B6FA134308199
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ BAND-MAID — японская хард-рок-группа, сформиров�
 magnet:?xt=urn:btih:E85226131D511E0F8CF4DABFC439049E9546C892
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ BAND-MAID — японская хард-рок-группа, сформиров�
 magnet:?xt=urn:btih:8A8496D052DA780307DAB37ED07C42D9F851F231
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:8A8496D052DA780307DAB37ED07C42D9F851F231
 ```bash
 magnet:?xt=urn:btih:45BA6CCA0C2DA261379CB9C8FA53725813C91A8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ Recorded live at EX-Theater Roppongi, Tokyo, Japan on March 11, 2023.Произ�
 magnet:?xt=urn:btih:449FA62745FEACD2F18D4531B8CEE3B6AF704521
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:449FA62745FEACD2F18D4531B8CEE3B6AF704521
 ```bash
 magnet:?xt=urn:btih:9907E6FF9FD3EB36852A8CD0862B1024726140B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ Dessar - Кошмар (посв. студентам РГГУ) (2024) WEBRip [H.2
 magnet:?xt=urn:btih:F253215582C5B3E2E3F86DF10D23968F790605F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:F253215582C5B3E2E3F86DF10D23968F790605F7
 ```bash
 magnet:?xt=urn:btih:FF6122D6C9323F2FFE0D9E82EF386EB6AE90115D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +298,8 @@ magnet:?xt=urn:btih:FF6122D6C9323F2FFE0D9E82EF386EB6AE90115D
 magnet:?xt=urn:btih:DBC7993ACB8D7042AE929B18DCA1A0CCBFBFC3D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +327,8 @@ magnet:?xt=urn:btih:DBC7993ACB8D7042AE929B18DCA1A0CCBFBFC3D1
 magnet:?xt=urn:btih:21172242694CD6E268FCCB9FD7C28DCA89BF5244
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ magnet:?xt=urn:btih:21172242694CD6E268FCCB9FD7C28DCA89BF5244
 ```bash
 magnet:?xt=urn:btih:203FFD6364A78ACADDD02FD609AB58F0C97F6F28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -354,6 +380,8 @@ magnet:?xt=urn:btih:203FFD6364A78ACADDD02FD609AB58F0C97F6F28
 magnet:?xt=urn:btih:EA5D7348C1020CFDBC0F1E02A7C054CD191FD106
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ Arcade Fire - Lollapalooza (2024) HDTV [H.264/1080i]
 ```bash
 magnet:?xt=urn:btih:BC61D778F82D96C6341330D2445F64656ED883F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +434,8 @@ magnet:?xt=urn:btih:BC61D778F82D96C6341330D2445F64656ED883F3
 magnet:?xt=urn:btih:450A21E8A67DC87C9F6B6B7B886E252A1E1F96EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ magnet:?xt=urn:btih:450A21E8A67DC87C9F6B6B7B886E252A1E1F96EF
 ```bash
 magnet:?xt=urn:btih:E1B07314425DFC9DB7C32E8245D2AF4530A6EC05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +486,8 @@ Live at Zepp DiverCity Tokyo, Japan February 21, 2020Производство: �
 magnet:?xt=urn:btih:35019408864125B8788AC8A329FF07C1BBD5786D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ Live at Mynavi Blitz Akasaka, Tokyo, Japan January 27, 2019.Производст
 ```bash
 magnet:?xt=urn:btih:2E96CA168F9C10E983A345C7C1E9F8D3C74BF0FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +538,8 @@ Scooter - Video collection - Chapter 4 (2007-2012) DVDRip, WEBRip [H.264/1080p-L
 magnet:?xt=urn:btih:01F71C88FC8A694E2C97172741D32DE9DE0FE25C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ LOVEBITES to release a greatest hits album with songs selected based on a fan vo
 ```bash
 magnet:?xt=urn:btih:4A250993885860BC41371DE64210B5DD4970F145
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +590,8 @@ Scooter - Video collection - Chapter 2 (1998 - 2002) DVDRip [H.264/1080p-LQ] [ha
 magnet:?xt=urn:btih:C2309B4AB907C105C065C499149623CF5BDDB6EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ magnet:?xt=urn:btih:C2309B4AB907C105C065C499149623CF5BDDB6EE
 ```bash
 magnet:?xt=urn:btih:467B0C56A9006487C2ADE7559A08E5F5D8F99A61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +642,8 @@ magnet:?xt=urn:btih:467B0C56A9006487C2ADE7559A08E5F5D8F99A61
 magnet:?xt=urn:btih:44D1E4A05367E3B9EF8ABB9778209F3C1D28AE4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +668,8 @@ magnet:?xt=urn:btih:44D1E4A05367E3B9EF8ABB9778209F3C1D28AE4B
 magnet:?xt=urn:btih:E801E4D52877DED495BB896519BC0C403F996E1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ magnet:?xt=urn:btih:E801E4D52877DED495BB896519BC0C403F996E1E
 ```bash
 magnet:?xt=urn:btih:8661E53B5F727683C8EB52B6C30570B64891C8BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

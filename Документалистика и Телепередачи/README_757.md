@@ -1,3 +1,29 @@
+###  Публикация: 1621206   (1031440) от 23.03.2023
+
+Ким Филби. Моя Прохоровка (2018) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ким Филби – английский аристократ, ставший советским разведчиком. Только за годы войны Ким Филби передал Москве 914 совершенно секретных документа. Филби и его друзья из знаменитой агентурной группы "Кембриджская пятерка" посылали сообщения стратегического характера. Они первыми сообщили в Москву о начале форсированных работ по созданию атомной бомбы в (   Читать дальше...   )Производство: Россия, НП Формат, ВГТРК, Телеканал РоссияЖанр: документальный, история, биографияРежиссер: Екатерина Китайцева, Андрей КуренковЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64C6DB16BA029BDAB227432375FA979B7000187C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620978   (1031637) от 22.03.2023
 
 Алексей Смирнов. Клоун с разбитым сердцем (2015) WEBRip [H.264/1080p]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:1CB37571D8E671742200C75D2CB065F9BAAE5DAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:1CB37571D8E671742200C75D2CB065F9BAAE5DAF
 magnet:?xt=urn:btih:120041C4AAF9D0A4702AA757B0687335892298FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:120041C4AAF9D0A4702AA757B0687335892298FE
 ```bash
 magnet:?xt=urn:btih:5F295290D8D4F6135A9818A2ED44D8DE2F7CEF4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:5F295290D8D4F6135A9818A2ED44D8DE2F7CEF4F
 magnet:?xt=urn:btih:64D26EF0BD52C70E28C2B9646E4A35646C419A41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:64D26EF0BD52C70E28C2B9646E4A35646C419A41
 ```bash
 magnet:?xt=urn:btih:C38073782397736233306E1A5A2B162C67E5ED7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:C38073782397736233306E1A5A2B162C67E5ED7D
 magnet:?xt=urn:btih:84286FAF049830A24A48AE4B233ECFFAABEA6FDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:84286FAF049830A24A48AE4B233ECFFAABEA6FDA
 ```bash
 magnet:?xt=urn:btih:D75171FC0498A045EDEAE91B0532EDC662B5570F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:D75171FC0498A045EDEAE91B0532EDC662B5570F
 magnet:?xt=urn:btih:DA068F53C3CE291493AF802F9CE3E8155F60CE22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:DA068F53C3CE291493AF802F9CE3E8155F60CE22
 ```bash
 magnet:?xt=urn:btih:039C0E4B524BA5BD7B9E3DDBB54A6A3C6AB3E8DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:039C0E4B524BA5BD7B9E3DDBB54A6A3C6AB3E8DC
 magnet:?xt=urn:btih:40F0CDDBE8EC72AA012E054657948E630D4F1E50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:40F0CDDBE8EC72AA012E054657948E630D4F1E50
 ```bash
 magnet:?xt=urn:btih:73CB9921D936488E523A598F3FCC5204A2B48EB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:73CB9921D936488E523A598F3FCC5204A2B48EB6
 magnet:?xt=urn:btih:ED95ACA176603FD8E16AC10A8EA17AE0590BBF63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:ED95ACA176603FD8E16AC10A8EA17AE0590BBF63
 ```bash
 magnet:?xt=urn:btih:9292CE781A931895A01755E1EA2E29F50F617B6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:9292CE781A931895A01755E1EA2E29F50F617B6A
 magnet:?xt=urn:btih:2D77388240C89C42FDB9DB695DB0018DC2E6749F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:2D77388240C89C42FDB9DB695DB0018DC2E6749F
 ```bash
 magnet:?xt=urn:btih:D43D1A4A231E4996BF35EDBB2AA6BF8302C67421
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:D43D1A4A231E4996BF35EDBB2AA6BF8302C67421
 magnet:?xt=urn:btih:AE16A5DB943E820B79C6D492D61665124DEA9B1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:AE16A5DB943E820B79C6D492D61665124DEA9B1B
 ```bash
 magnet:?xt=urn:btih:F8A2CDF664E4A35F1947DFD576F0692C472D99F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +489,8 @@ Tiny World - это невероятной красоты документаль
 magnet:?xt=urn:btih:1E10D3E66E8DB05B35032D372A600E1380075FD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +514,8 @@ Tiny World - это невероятной красоты документаль
 ```bash
 magnet:?xt=urn:btih:83F3F61D282EB3FF9FD0DDDB6C5ED4C734259524
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:83F3F61D282EB3FF9FD0DDDB6C5ED4C734259524
 magnet:?xt=urn:btih:AF68E7713C87E6C85B0F225AD8B9D5E01A9CE862
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:AF68E7713C87E6C85B0F225AD8B9D5E01A9CE862
 ```bash
 magnet:?xt=urn:btih:8222211836E2F779316230CCD621CC1CCFC00940
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:8222211836E2F779316230CCD621CC1CCFC00940
 magnet:?xt=urn:btih:1BB5D30C0107C398616FBEE28092D5E2300E8431
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +618,8 @@ magnet:?xt=urn:btih:1BB5D30C0107C398616FBEE28092D5E2300E8431
 ```bash
 magnet:?xt=urn:btih:72F52BE0DEC996E3BE4A329E7F42FA2A46721312
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +645,8 @@ magnet:?xt=urn:btih:72F52BE0DEC996E3BE4A329E7F42FA2A46721312
 magnet:?xt=urn:btih:53092E0685C51691DBEA07100AB3053AA1B54AE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,29 +671,7 @@ magnet:?xt=urn:btih:53092E0685C51691DBEA07100AB3053AA1B54AE9
 magnet:?xt=urn:btih:8196B7E221D9B7229894814C23890BC4119CB224
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619890   (1032563) от 18.03.2023
-
-Вячеслав Невинный. Талант и 33 несчастья (2018) WEBRip [H.264]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роли второго плана, которые сыграл Вячеслав Невинный, были настолько яркими, что затмевали главных героев картин. Каждое появление этого фонтанирующего жизнью человека на экране было сюрпризом для зрителей и вызывало ощущение детской радости. Но судьба будто взимала за это плату с артиста. Как он расплачивался за успех?...Производство: Россия, ООО "Вива-Вита Фильм"Жанр: документальный, биография, история, кинематографРежиссер: Марина ИсаеваЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0D540F0A4347016D5EB132C4064CDFE8B8D46C1
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

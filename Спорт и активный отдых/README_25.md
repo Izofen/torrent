@@ -19,6 +19,8 @@ MotoGP. Этап 19 из 20. Гран-при Малайзии. Квалифик�
 magnet:?xt=urn:btih:E69B62FF7DA86FDC7284B77075914FF5C76F80AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:E69B62FF7DA86FDC7284B77075914FF5C76F80AD
 ```bash
 magnet:?xt=urn:btih:2F7623F7E6E5C7D5884893644ACFD29331FB61A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:2F7623F7E6E5C7D5884893644ACFD29331FB61A1
 magnet:?xt=urn:btih:B9B37AFB943BB9CB7771CCC2FEA39957F11B8220
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:B9B37AFB943BB9CB7771CCC2FEA39957F11B8220
 ```bash
 magnet:?xt=urn:btih:1F994D6D08BD9D89B5FB97FE4CEFAA4D6D10EB7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:1F994D6D08BD9D89B5FB97FE4CEFAA4D6D10EB7E
 magnet:?xt=urn:btih:E5798EB5E0ABEF3A89A11ACC004044AED62A6CA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ MotoGP. Этап 18 из 20. Гран-при Таиланда. Квалифик�
 ```bash
 magnet:?xt=urn:btih:583416CEE56183B6631D3CDDF064C5A93F8A5D33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:583416CEE56183B6631D3CDDF064C5A93F8A5D33
 magnet:?xt=urn:btih:5F9E69B1F44C0A1B747DDA89884D9BA48CCFFED0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ MotoGP. Этап 18 из 20. Гран-при Таиланда. Гонка (27.10
 magnet:?xt=urn:btih:5BB7E3405C8B54DD2E29AFE4E3035E4C2F722F32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ MotoGP. Этап 18 из 20. Гран-при Таиланда. Спринт (26.
 ```bash
 magnet:?xt=urn:btih:23A7F3C42E4EEA42BDDBCD2ABDD5DBE8F94FAF6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:23A7F3C42E4EEA42BDDBCD2ABDD5DBE8F94FAF6F
 magnet:?xt=urn:btih:3DD1DB69EDFA3A3DF6CBF164449A1F2264C4F5D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:3DD1DB69EDFA3A3DF6CBF164449A1F2264C4F5D0
 ```bash
 magnet:?xt=urn:btih:AB1A6229C9E663F82FE7E5B5C03E04F84622C285
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:AB1A6229C9E663F82FE7E5B5C03E04F84622C285
 magnet:?xt=urn:btih:584B572231904307816558210DD8437F75D5F229
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:584B572231904307816558210DD8437F75D5F229
 magnet:?xt=urn:btih:151F1A180957D03281724AB8519D804650BA3B02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ MotoGP. Этап 17 из 20. Гран-при Австралии. Спринт (1
 magnet:?xt=urn:btih:5A1EC427074336E9F8C23B4C7FB0E4A74E0FECF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ MotoGP. Этап 17 из 20. Гран-при Австралии. Квалифи�
 ```bash
 magnet:?xt=urn:btih:2352B1BF336309C753F8A987448EE6702B35DF08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:2352B1BF336309C753F8A987448EE6702B35DF08
 magnet:?xt=urn:btih:E6E4027FB327C55FD66034C5BA396515744B12DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:E6E4027FB327C55FD66034C5BA396515744B12DB
 ```bash
 magnet:?xt=urn:btih:C72B9FA4EFC5529B9B56D5F2702C98AD61C71270
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:C72B9FA4EFC5529B9B56D5F2702C98AD61C71270
 magnet:?xt=urn:btih:D24062E2C30F5B894491D78D02E2D884E97ACA10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ magnet:?xt=urn:btih:D24062E2C30F5B894491D78D02E2D884E97ACA10
 ```bash
 magnet:?xt=urn:btih:55D238C875DD42DCB7B91BEDF37F59D382BC0F91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:55D238C875DD42DCB7B91BEDF37F59D382BC0F91
 magnet:?xt=urn:btih:D19EFB770572D3AAE5156A4068E732910E38F097
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ magnet:?xt=urn:btih:D19EFB770572D3AAE5156A4068E732910E38F097
 magnet:?xt=urn:btih:A9DE08DBEDB533D6312B473539FFF190F418701A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:A9DE08DBEDB533D6312B473539FFF190F418701A
 ```bash
 magnet:?xt=urn:btih:D668E9940843205BC33471E0307A5E5A9E691192
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +612,8 @@ magnet:?xt=urn:btih:D668E9940843205BC33471E0307A5E5A9E691192
 ```bash
 magnet:?xt=urn:btih:11EBB2E858FD1559FBCADBE3075491D83CF3003F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +642,8 @@ magnet:?xt=urn:btih:11EBB2E858FD1559FBCADBE3075491D83CF3003F
 magnet:?xt=urn:btih:1C28A8B4E5AD1A6CA0BF57F6475E43646913B6A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +671,8 @@ magnet:?xt=urn:btih:1C28A8B4E5AD1A6CA0BF57F6475E43646913B6A6
 magnet:?xt=urn:btih:EF9563DB6D3ABACCBCB3C8335F097395D80E9AEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +698,8 @@ magnet:?xt=urn:btih:EF9563DB6D3ABACCBCB3C8335F097395D80E9AEF
 ```bash
 magnet:?xt=urn:btih:07ACF6420C1F8F9D32C83FAF4B9AA6A88759198E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

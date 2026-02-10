@@ -19,6 +19,8 @@ HWiNFO - программа, выдающая подробнейшую инфо�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ HWiNFO - программа, выдающая подробнейшую инфо�
 ```bash
 magnet:?xt=urn:btih:CDF7474E9C8AED98B104DCFB5CCC413FCC4D2490
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:CDF7474E9C8AED98B104DCFB5CCC413FCC4D2490
 magnet:?xt=urn:btih:D4A50B2700500B9B25B3297E29CFD49D90331085
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:D4A50B2700500B9B25B3297E29CFD49D90331085
 ```bash
 magnet:?xt=urn:btih:F7412B2E1A249C126790F61556B5DDEB742F4EEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:F7412B2E1A249C126790F61556B5DDEB742F4EEB
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Mobile Digital Magazine - самый популярный и авторитет�
 ```bash
 magnet:?xt=urn:btih:AC31C6739C182A68FE87019005FFEB5894F4E607
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Beta - версию стоит ставить только в экспериме
 magnet:?xt=urn:btih:FF52E249E4F5A55C5799E3274D4C5BCAFDCDB4FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:FF52E249E4F5A55C5799E3274D4C5BCAFDCDB4FE
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ Bear In Heaven - I Love You, It's Cool (2012) [FLAC|Lossless]<Psychodelic Rock, 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ Bear In Heaven - I Love You, It's Cool (2012) [FLAC|Lossless]<Psychodelic Rock, 
 magnet:?xt=urn:btih:3D724308DB949674C9A4879570E9A8DFA1F46E8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ Toolwiz Care - бесплатный набор инструментов, пре�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ Toolwiz Care - бесплатный набор инструментов, пре�
 magnet:?xt=urn:btih:B206E7AC953552A8A66E289EB99C38D309F89DA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:B206E7AC953552A8A66E289EB99C38D309F89DA7
 magnet:?xt=urn:btih:5CA7854737688DD42F689055C799B70D243ADD5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:5CA7854737688DD42F689055C799B70D243ADD5F
 ```bash
 magnet:?xt=urn:btih:FA6C3D2015FCE6414254B200136BC5799B3B5240
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +407,8 @@ Isgaard - Playing God (2012) [MP3|320 кб/с]<New Age>
 magnet:?xt=urn:btih:B8F57FA8854DEAADFF2016F0FFB1FA420EA59449
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +436,8 @@ Beta - версию стоит ставить только в экспериме
 ```bash
 magnet:?xt=urn:btih:037E1A2683F1D65EC08825F337F7BE0D50D39B37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +467,8 @@ magnet:?xt=urn:btih:037E1A2683F1D65EC08825F337F7BE0D50D39B37
 magnet:?xt=urn:btih:551548FEB913A9C3651FAA065312A6B414B4D8F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +492,8 @@ KMPlayer - это универсальный проигрыватель, кот�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +528,8 @@ KMPlayer - это универсальный проигрыватель, кот�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +553,8 @@ KMPlayer - это универсальный проигрыватель, кот�
 ```bash
 magnet:?xt=urn:btih:B9125AA0F77CBF89A668C98D279DC7490726E89E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +589,8 @@ VA - Клубные Новинки Vol.56 from AGR (2012) [MP3|320 кб/с]<Club
 magnet:?xt=urn:btih:A9AF18F6C7E334F90AFA2D331DEC8C1F8F007BC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +616,8 @@ magnet:?xt=urn:btih:A9AF18F6C7E334F90AFA2D331DEC8C1F8F007BC3
 magnet:?xt=urn:btih:B1694B9A50B5D49F96E0DC98E126C94DEF197E73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +642,8 @@ magnet:?xt=urn:btih:B1694B9A50B5D49F96E0DC98E126C94DEF197E73
 ```bash
 magnet:?xt=urn:btih:FC25B838426F567FEB4C8B819F6FF10BDF466D79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +678,8 @@ VA - Территория Звезд (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:773951AC3F540158A7A7533FB51D46F116F5931C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +713,8 @@ Spectro Senses - Power Core (2012) [MP3|320 кб/с]<Psychedelic / Full On>
 magnet:?xt=urn:btih:F41B48E1BD2E7C8A25EDF5B20EE8EB4543065FB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -697,6 +747,8 @@ VNP - Trance Traveling 24 (2012) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:41839DF44E411AC820C8F819B6AC956FFD49AB97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

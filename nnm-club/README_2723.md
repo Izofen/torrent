@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3D607807A0E3593B1048C537C232DD2795083401
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:3D607807A0E3593B1048C537C232DD2795083401
 ```bash
 magnet:?xt=urn:btih:073201FC9AAF45BFA0B18A1AC51189EBFF11C938
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:073201FC9AAF45BFA0B18A1AC51189EBFF11C938
 magnet:?xt=urn:btih:E0673705D6E78C42A69222EC3DAFD4EC05999998
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:E0673705D6E78C42A69222EC3DAFD4EC05999998
 ```bash
 magnet:?xt=urn:btih:EC6086A791280A1A8ECA82EDDB95141D1CEA9183
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Accept - Death Row (1994) Remaster, 2025, Silver Lining Music [FLAC|Lossless|WEB
 magnet:?xt=urn:btih:751A826628F31E8B0F86C70C62E42B71D17B33B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Rigor Samsa - Severance (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressiv
 ```bash
 magnet:?xt=urn:btih:F4DEFABB2C48F1DC48DC98E85E19DA45660D236D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ TesseracT - War Of Being (2025) Tour Edition [FLAC 24/44.1|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:939864962B4E97F61659670A28C62A3DD3B135B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ VA - More Blue Notes, Vol.2: Milestones of Jazz Legends (1948 - 1962) 10CD, 2018
 magnet:?xt=urn:btih:3D2F6D2A691A4BDFAF057940B51B0EEDA7476CD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:3D2F6D2A691A4BDFAF057940B51B0EEDA7476CD8
 ```bash
 magnet:?xt=urn:btih:960C127AE1807E32B57F0EDDB749BE8DBAF52EFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ Landfall - Wide Open Sky (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock
 magnet:?xt=urn:btih:0689CF8B2A750C9216937647CE429DCF6363D839
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ Osvaldo Di Dio - Blues For Pino (2025) [FLAC 24-Bit/44.1 kHz|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:E2F7196389D94F5200B17F3C3F66E8BE8C0721B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +326,8 @@ Accept - Objection Overruled (1993) Remaster, 2025, Silver Lining Music [FLAC|Lo
 magnet:?xt=urn:btih:C4EAEC59F6A74B16266940EB878742D6DFE55FBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:C4EAEC59F6A74B16266940EB878742D6DFE55FBE
 ```bash
 magnet:?xt=urn:btih:11EE7C3D8720EAE1801A3E0F26272A94EBDF8625
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ magnet:?xt=urn:btih:11EE7C3D8720EAE1801A3E0F26272A94EBDF8625
 magnet:?xt=urn:btih:196F1595C4359BA6E950C4352E53831CC1D5C1B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ magnet:?xt=urn:btih:196F1595C4359BA6E950C4352E53831CC1D5C1B7
 ```bash
 magnet:?xt=urn:btih:6B2EFE2B3D6A7911EADC67948A6222F3607F44D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +434,8 @@ VA - Good Whiskey Blues vol.4 (2002) [FLAC|Lossless|image + .cue] <Blues>
 magnet:?xt=urn:btih:C58A93176582C235D3E9989E80BCED6495ECEEAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +460,8 @@ XYplorer – удобный многовкладочный файловый ме
 magnet:?xt=urn:btih:9E090939EC32BC0C6C44EF5E2A12A1366DDDB224
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ magnet:?xt=urn:btih:9E090939EC32BC0C6C44EF5E2A12A1366DDDB224
 ```bash
 magnet:?xt=urn:btih:F453AB55F209249B2F18B50A5AFBB302C95C409B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ magnet:?xt=urn:btih:F453AB55F209249B2F18B50A5AFBB302C95C409B
 magnet:?xt=urn:btih:ABF2B83C52D1FF3FE6CB66A334CF392929DB25DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ magnet:?xt=urn:btih:ABF2B83C52D1FF3FE6CB66A334CF392929DB25DC
 ```bash
 magnet:?xt=urn:btih:17DEE44214D70A091D9661EF612BBEAB56CD9A9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +570,8 @@ Cock Robin - американская поп-рок-группа, наиболе
 magnet:?xt=urn:btih:9746079D70220EF1CF3637AF4AA0C872A928546D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +595,8 @@ magnet:?xt=urn:btih:9746079D70220EF1CF3637AF4AA0C872A928546D
 ```bash
 magnet:?xt=urn:btih:2899D856C24796DD8F639950663C234A6CE41C92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +623,8 @@ magnet:?xt=urn:btih:2899D856C24796DD8F639950663C234A6CE41C92
 magnet:?xt=urn:btih:E9D437B213285B4E8B650EF3403997DD2AC64F8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +648,8 @@ magnet:?xt=urn:btih:E9D437B213285B4E8B650EF3403997DD2AC64F8D
 ```bash
 magnet:?xt=urn:btih:0D752880C868D8E31F79C89E62AB1F8EE8D793DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +678,8 @@ magnet:?xt=urn:btih:0D752880C868D8E31F79C89E62AB1F8EE8D793DD
 magnet:?xt=urn:btih:245517C6E633255ABC3DC171213F6A9BFCB5771D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ magnet:?xt=urn:btih:245517C6E633255ABC3DC171213F6A9BFCB5771D
 ```bash
 magnet:?xt=urn:btih:413ACDA9FC549FAD3AC262D4408383809A6ABED4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

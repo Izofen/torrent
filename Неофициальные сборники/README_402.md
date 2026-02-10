@@ -1,3 +1,29 @@
+###  Публикация: 516125   (654346) от 27.06.2012
+
+VA - Новинки русского Рэпа. Музыкальный Каприз (2012) [MP3|192 кб/с]<Rap, Hip-hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Rap, Hip-hopПродолжительность: 08:18:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4934CF6D8D181BB6AE1BF7937B5722EED27DF103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904602   (654380) от 03.06.2015
 
 VA - Extra House (episode 2) (2015) [MP3|320 кб/с]<House, Deep House, Club House>
@@ -21,6 +47,8 @@ VA - Extra House (episode 2) (2015) [MP3|320 кб/с]<House, Deep House, Club Ho
 ```bash
 magnet:?xt=urn:btih:10FA7C417C4A49F3DAA0649F66AF574C045E76CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -55,6 +83,8 @@ VA - Шоферской Хит 8 (2012) [MP3|128 kbps]<Шансон>
 magnet:?xt=urn:btih:A31F1C992D8C32FBB2D7978F68A921A1FADFF024
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -82,6 +112,8 @@ VA - Club Dance Ambience Vol.148 (2018) [MP3|320 Kbps] <Dance, Club House, Elect
 magnet:?xt=urn:btih:736FC9A96C6C318908550D5916D0198D4CAC5FCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -105,6 +137,8 @@ VA - Хит парад Союз лето (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:5DC11E924E81E44D58488E6E865B79D184D8FBDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -132,6 +166,8 @@ VA - Зарубежный Хит В Машину Выпуск 2 (2018) [MP3|256-
 ```bash
 magnet:?xt=urn:btih:8CE79BEE935F7A6DD39D45A48C1EE5120EBC360E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +202,8 @@ VA - Курортный Хит (2012) [MP3|128 kbps]<Pop>
 magnet:?xt=urn:btih:8388D650DFAA88A0145B9B9978B6FDA9AC10665E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +237,8 @@ VA - XXXL Music Box. Выпуск 8 (2012) [MP3|256 kbps]<Pop|Dance>
 magnet:?xt=urn:btih:0E04BB0C74D7E734F903495FFC926B3B5C050161
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +262,8 @@ VA - Летняя Туса 4 на Радио Record 50/50 (2012) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:240C0494AD3547883C6E2A1ACB5586390A6D5150
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +294,8 @@ Hits of My Soul - сборник электронной и инструмент�
 ```bash
 magnet:?xt=urn:btih:82A90E43D793B6FC142A4002FD9626667CDB16CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +330,8 @@ VA - Sexy Trance #40 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance, Vocal Tr
 magnet:?xt=urn:btih:D5C2A9A751C7885DD8D5471D32D8A5F6CC40591D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +358,8 @@ VA - Hits Cocktail Vol.8 (2017) [MP3|320 Kbps] <Club, Dance>
 ```bash
 magnet:?xt=urn:btih:A4AEE631C6FDBC0A5BDC7E2EFF30F4E5B5481AD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +388,8 @@ VA - Deep House Collection Vol.171 (2018) [MP3|320 Kbps] <Deep House, Club House
 magnet:?xt=urn:btih:3025C281AB38E6DFBF287376A722870E548BA958
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +417,8 @@ VA - Synthetic Prototype (2018) [MP3|320 Kbps] <Synthpop, Synthwave>
 magnet:?xt=urn:btih:05A9CE943B33732D1858097B50A4136684563D53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +445,8 @@ VA - Music Live (2018) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:2DBFB630F52015E3461A4DAF2D04207871DC4895
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +481,8 @@ VA - Союз Клубный. Выпуск 8 (2012) [MP3|256 kbps]<Club>
 magnet:?xt=urn:btih:69B837E6F86D5FDF25ED5A178A242B53F55765D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +515,8 @@ VA - Самый Взрывной Летний МIX (2012) [MP3|128-320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:2322F56466008AB16D1EC64A526DA618BE13D551
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +551,8 @@ VA - Trance. Vocal Fascination 26 (2012) [MP3|320 кб/с]<Uplifting Trance, Voc
 magnet:?xt=urn:btih:5813435640D7A7656F09514047DB221B7B30566C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +581,8 @@ VA - Танцевальный рай 24 (2009) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:E84FCA50286ABECB0B78814ABA467C5904E46845
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +609,8 @@ VA - Vocal Deep House Vol.29 (Russian Version) (Compiled by Zebyte) (2017) [MP3|
 ```bash
 magnet:?xt=urn:btih:0920C97AC607A21EA76E3B73041642879D3A77BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +639,8 @@ VA - Eli's Tears (2018) [MP3|320 Kbps] <Heavy, Death Metall>
 magnet:?xt=urn:btih:CDDB5C8C3871E8CC003B323A7DF2908DD4ED7C55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +667,8 @@ Fly Above (DJ Dark and Mentol Remix) (2:49)
 ```bash
 magnet:?xt=urn:btih:FA32B3EFFB64C4BBF1A266D5C8473DFE57843E72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +697,8 @@ VA - Новички в попсе Vol 11 (2022) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:A69237EB89FDA664876A617D8ABEF5D4B49BD825
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +725,8 @@ VA - Progressive Generation: Trance Party (2018) [MP3|320 Kbps] <Trance, Progres
 ```bash
 magnet:?xt=urn:btih:22DC2941EE94A9CDF8341F7B00BD5F617A9AEF79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -683,6 +755,8 @@ VA - SpaceSynth & ItaloDisco Hits Vol.27 (2017) [MP3|320 Kbps] <Italo Disco, Spa
 magnet:?xt=urn:btih:5C7432A4C8D5A0810661FE3DA27E294F40BD477C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -710,32 +784,7 @@ Beatport продолжает знакомить нас с новинками э
 magnet:?xt=urn:btih:74F86E5B6B29C8BBC8BA36FEAE4E264AF705A545
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539540   (654960) от 28.03.2022
-
-VA - Angel In Zion (2022) [MP3|320 Kbps] <Reggae, Dub, Riddim, Reggaeton>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Теперь любовь, о которой поется в современном Reggae, это не просто романтическая любовь двух человек, а космическая, духовная любовь, любовь к ближнему и к Богу. И когда певцы регги не поют о любви, они поют о восстании и революции против сил, препятствующих этой любви, таких как насилие, нищета, расизм и угнетении правительствами, которые они наблюдали или испытывали (   Читать дальше...   )001. Gary Clail - Beef
-002. Hr With The Scotch Bonnets - H.R. Psalm
-003. Zion Head - This Time So Hard
-004. The Great Zeee - Big Joy Riddim(   Читать дальше...   )Жанр: Reggae, Dub, Riddim, ReggaetonПродолжительность: 08:22:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:478B3B69041DC03FD24A48012A98C6FC19D61F78
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

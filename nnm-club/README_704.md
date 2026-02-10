@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:FDD4D605499DA8D25BE4BFE178CDA88EF81E2D99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Laundry & Supermarket Simulator / Laundry Simulator: PowerWash It! (2025) [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:0B69D766A44B5E7FD0E8EB258B63564F721F84DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:0B69D766A44B5E7FD0E8EB258B63564F721F84DB
 magnet:?xt=urn:btih:94CD8F1E607819E42AABC5FDCC220B1950123F23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:94CD8F1E607819E42AABC5FDCC220B1950123F23
 magnet:?xt=urn:btih:C0AABADEC985CF0EC9CA7107AE7F3256542C5083
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:C0AABADEC985CF0EC9CA7107AE7F3256542C5083
 ```bash
 magnet:?xt=urn:btih:9252AB848E1382EA0C74943C1F6190A3F93A0C0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:9252AB848E1382EA0C74943C1F6190A3F93A0C0E
 magnet:?xt=urn:btih:F3940587FE99A143D8B6F0B919BE1E4185539CF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:F3940587FE99A143D8B6F0B919BE1E4185539CF0
 ```bash
 magnet:?xt=urn:btih:4E7DC06E7FD28105C59A421435168A75CC6C1F36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:4E7DC06E7FD28105C59A421435168A75CC6C1F36
 magnet:?xt=urn:btih:FA3FF55311234ED938490DC170E85FC68DBD94EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:FA3FF55311234ED938490DC170E85FC68DBD94EF
 ```bash
 magnet:?xt=urn:btih:3D2932EC26F43903B57F32C65C80E12D71A3A2D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Nik Collection by DxO 8.0.12 Portable by 7997 [Multi/Ru]
 magnet:?xt=urn:btih:55D08C215068E8043629DF2022733371F797FD21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:55D08C215068E8043629DF2022733371F797FD21
 ```bash
 magnet:?xt=urn:btih:C4193039F51F95CFFC3032383BD2A8CD55259CF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:C4193039F51F95CFFC3032383BD2A8CD55259CF0
 magnet:?xt=urn:btih:5DA9762869B4CF62ED58324BDE0E496878997EDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:5DA9762869B4CF62ED58324BDE0E496878997EDC
 ```bash
 magnet:?xt=urn:btih:E528E8A9F1BCBFA4D514C316DC42A340BA7AEBD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Cash Cleaner Simulator (2025) [Ru/Multi] (1.0.1/dlc) Repack FitGirl
 magnet:?xt=urn:btih:6AFA8BCE0DC81612422B9BA14662F326D0E6BA54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:6AFA8BCE0DC81612422B9BA14662F326D0E6BA54
 magnet:?xt=urn:btih:1FB9D01F8D5F606164408DAE99B2146E90CE0195
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:E6C6D72F2BA2D91646165D280B4487DE8E1EB907
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:E6C6D72F2BA2D91646165D280B4487DE8E1EB907
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Blaze - Виртуальный Камин 4K v1.8.0 Mod by SurvivalHorror [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:979D59AF02D4422EE5C241C5FCC60103C0EBE220
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:979D59AF02D4422EE5C241C5FCC60103C0EBE220
 magnet:?xt=urn:btih:CBEA6007CE2258D8DE85418E0B8A7FB17B8E164E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:CBEA6007CE2258D8DE85418E0B8A7FB17B8E164E
 ```bash
 magnet:?xt=urn:btih:4FCADD7EFA85CC85D4C314BE10394FDAF0F0B957
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ Oil Refinery - The Simulation (2025) [Ru/Multi] (1.1.5) Repack FitGirl
 magnet:?xt=urn:btih:35ED2DF2F9BDDB3799A5FEB511CA49B0BE03BB42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ SlitterHead (2024) [Ru/Multi] (1.02.2-r00065826) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:19A7D6B59C6335FE22DF5ADFDF9FCBC3CDDAB1B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ LibreOffice - офисный пакет с открытым исходным к�
 magnet:?xt=urn:btih:A47A27FDDA94C7C804E69B560B4FB3916ADB4913
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Ultimate Fishing Simulator 2 (2022) [Ru/Multi] (1.25.05.09.3975) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C271550D6AC189B74B42D94AFF1BD930C3A7C89D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ Hotel Owner Simulator (2025) [Ru/Multi] (1.0.5.5) Repack FitGirl
 magnet:?xt=urn:btih:D4D87102E37AFDCAAA7C9B3E7102A797FC386017
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Spyro Reignited Trilogy (2019) [Ru/En] (Build 3849171) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:5A33A6C683200B6A5FE323EA20BD8BB12DE1661D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

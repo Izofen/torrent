@@ -21,6 +21,8 @@ Luttrell - Into Clouds (2019) 2CD, Anjunadeep [FLAC|Lossless|WEB-DL|tracks] <Dee
 magnet:?xt=urn:btih:B2ABACC0CFFC4B2D1FEEACB197BF5B6C29BE4540
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ VA - In The Blink Of An Eye (2018) Disco Gecko [FLAC|Lossless|WEB-DL|tracks] <Ps
 ```bash
 magnet:?xt=urn:btih:05141A751E96D5274DA04790D4A9E2BE5C7A4816
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ Chicane - The Place You Can't Remember, The Place You Can't Forget (2018) [MP3|3
 magnet:?xt=urn:btih:3A8420A8AE022A2FB2E1E8EDFA2A8AEAFCE43FD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ VA - Trance Runner - Episode Seven (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:E71CE6C50A3EE7D627B81C526D5BFB802D5D6561
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -133,6 +141,8 @@ VA - Urban House: Deep House Elements For Urban People (06-July-2012) [MP3|320 �
 magnet:?xt=urn:btih:6DD440D247F42CBA6639FB3D3C018130BC99DD8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -159,6 +169,8 @@ Talamasca - A Brief History of Goa-Trance (2017) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:7A598A9759022A05B66EA413B303CCB73000CEA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +199,8 @@ Alizee Moreau - Sexy Relaxing Lounge And Chill Out Music (2017) [MP3|320 Kbps] <
 magnet:?xt=urn:btih:E1503FD3C5E9342570C8B2A6230839540919D814
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +227,8 @@ VA - Ibiza Night Affairs The Very Best Of Chill House (2015) [MP3|320 кб/с]<D
 ```bash
 magnet:?xt=urn:btih:F24546BBBE5D7D9671A5EDE683DE90988342122E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +257,8 @@ VA - Chill Out Ibiza: The Best Of 50 Tracks (2017) [MP3|320 Kbps] <Downtempo, Ch
 magnet:?xt=urn:btih:3723DA40230650CF14531DBE547C62C90C66C07F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +285,8 @@ Bjm Mario Bajardi - Schengen (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:1A2D2FB198C805ABE5E909C4206EF3F4F0A1361C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +315,8 @@ VA - Clubbers Culture: Chill Out At Sunset Beach (2017) [MP3|320 Kbps] <Downtemp
 magnet:?xt=urn:btih:0DAAD07C907C8354C703F6B95EAFB3B363DDD839
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +343,8 @@ Space - Magic Fly (1977) Reissue, 2010, Repertoire Records [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:A30745E474FDC26A90807F95656C32BDAA442207
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +373,8 @@ Syrian - Death Of A Sun (2013) European Edition [FLAC|Lossless]<Synthpop>
 magnet:?xt=urn:btih:9B92110DE0A345716AB17AB6F16CA34CB48EFE06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +401,8 @@ The Chemical Brothers - No Geography (2019) [MP3|320 Kbps] <Electronic, Breakbea
 ```bash
 magnet:?xt=urn:btih:E867949920CD601D5FDEFA1FDA8A72364C21E01F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +431,8 @@ Blutengel - Erlosung - The Victory of Light (2021) Deluxe Edition, 2CD Box Set [
 magnet:?xt=urn:btih:160B98B1E0FDA1460866E5B675AF02B2E77233F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +459,8 @@ Third ≡ Party - Tomorrowland Friendship Mix (2022-04-14) [MP3|320 Kbps] <Progr
 ```bash
 magnet:?xt=urn:btih:9C14DE89A07F394BAE594DA3BB1E8F505FB71E76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +489,8 @@ The Chemical Brothers - No Geography (2019) [FLAC|Lossless|WEB-DL|tracks] <Elect
 magnet:?xt=urn:btih:674F5CDBB913EBB0C59F4F6CBF514B572C55F62E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +517,8 @@ Blutengel - Labyrinth (2007) Limited Edition, 2CD Box Set [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:703649BFCCA26699FD68F23CDBBE9CFF40F48E1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +547,8 @@ VA - Future 80's Records Compilation Vol. I (2013) [FLAC 2.0|44.1/16, 24|tracks|
 magnet:?xt=urn:btih:72D6AED76EF60010C156EC556CE6648B76FD441E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +575,8 @@ MORTEN - Miami Rooftop Sessions, Miami Music Week, United States (2022-03-23) [M
 ```bash
 magnet:?xt=urn:btih:D99A01AE9B4B7CBDC4A09754792E2F18254DB216
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +605,8 @@ GROUND a.k.a Gr◯un土 - WAKUSEI -惑星- (2018) Chill Mountain Rec [FLAC|Lossl
 magnet:?xt=urn:btih:A9C69728E8F9F59EEEA99EB832F63F061C6C3298
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +633,8 @@ VA - Future 80's Records Compilation Vol. III (2015) [FLAC 2.0|44.1/16, 24|track
 ```bash
 magnet:?xt=urn:btih:CF9F71A09F26051193AD12857DA4C04F554A9A82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +663,8 @@ VA - Future 80's Records Compilation Vol. II (2014) [FLAC 2.0|44.1/16, 24|tracks
 magnet:?xt=urn:btih:BB9287CD9938070D599C64360AF3D317CD4C0EF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +691,8 @@ Above & Beyond - Common Ground Companion (2019) EP [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:1856575909CD0FEE5FD5E11B60A3787033DE3292
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -673,6 +721,8 @@ Robert Parker - Crystal City (2016) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, Ne
 magnet:?xt=urn:btih:E883D174028B8C43AFDB1EEEB42B93183BBFE33E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -699,6 +749,8 @@ ScAnDroid Experiment's - Nature Reviving (Single) (2018) [MP3|320 Kbps] <Atmosph
 ```bash
 magnet:?xt=urn:btih:82B6BEA2931FD9FFD5ED91AB6733C82B1CE4CC41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

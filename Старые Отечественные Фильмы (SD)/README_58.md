@@ -1,3 +1,29 @@
+###  Публикация: 697706   (700620) от 09.05.2017
+
+Только ты (1972) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот искрящийся оптимизмом и жизнелюбием фильм снят по мотивам оперетты Исаака Дунаевского «Белая акация». Героиня этой истории — простая одесская девчонка Тоня Чумакова мечтает о море. И вот ее берут радистом на один из кораблей Черноморской китобойной флотилии…Жанр: Музыкальная комедияРежиссер: Евгений ШерстобитовАктеры: Ирина Борисова, Николай Соловьев, Спартак Мишулин, Сергей Сибель, Юрий Рудченко, Галина Нехаевская, Галина СтеценкоПродолжительность: 01:23:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A12C4EDF931C36F8B396C2528581E963A334D16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 567990   (700623) от 09.05.2017
 
 Черноморочка (1959) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:21DCD05C2CF2E77B5B7F01FA8BC4E3DE333FC046
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:21DCD05C2CF2E77B5B7F01FA8BC4E3DE333FC046
 magnet:?xt=urn:btih:87235A3B777EF02030FE8E19AC1C5A3342F41C32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:87235A3B777EF02030FE8E19AC1C5A3342F41C32
 magnet:?xt=urn:btih:5E68F8B41AD0B6BA48B45F03A984C843A9F7752B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:5E68F8B41AD0B6BA48B45F03A984C843A9F7752B
 ```bash
 magnet:?xt=urn:btih:AE3F0CEACBA8A7E6CC9414CDE88AF57639873471
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:AE3F0CEACBA8A7E6CC9414CDE88AF57639873471
 magnet:?xt=urn:btih:BD61CC001431A51CA08E1B417705AA5D05A78220
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:BD61CC001431A51CA08E1B417705AA5D05A78220
 magnet:?xt=urn:btih:FD745D5826A4172133738E9E516D6AB771B223CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:FD745D5826A4172133738E9E516D6AB771B223CF
 ```bash
 magnet:?xt=urn:btih:C6273FB187FA798DE4870FEA8181861F723EF421
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:C6273FB187FA798DE4870FEA8181861F723EF421
 magnet:?xt=urn:btih:E3CD3E9FFC0FE481CC3581DE4A4D56ED79FD6EF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:E3CD3E9FFC0FE481CC3581DE4A4D56ED79FD6EF6
 magnet:?xt=urn:btih:2BA1E64D583D1D33B281C484960565399A139B5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:2BA1E64D583D1D33B281C484960565399A139B5D
 ```bash
 magnet:?xt=urn:btih:2EB027553DD5DFF4531DD58E6C6D1C33144C3DC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:2EB027553DD5DFF4531DD58E6C6D1C33144C3DC8
 magnet:?xt=urn:btih:613FDEB1BDA7F6EC69450BF6558B10A79E13DD7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:613FDEB1BDA7F6EC69450BF6558B10A79E13DD7E
 magnet:?xt=urn:btih:30EFE36762C2B15303C88D4E79E55EE390AF5FD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:30EFE36762C2B15303C88D4E79E55EE390AF5FD9
 magnet:?xt=urn:btih:8387A3D0C40CAFA0D59C6F27274D36A0A85BE1B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:8387A3D0C40CAFA0D59C6F27274D36A0A85BE1B7
 ```bash
 magnet:?xt=urn:btih:03720FFAEFCE36881EEAE14CC8FC41F44464A806
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:03720FFAEFCE36881EEAE14CC8FC41F44464A806
 magnet:?xt=urn:btih:3C41B3F9BAB4C68C8B2C21E8CB39005557DCAEF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:3C41B3F9BAB4C68C8B2C21E8CB39005557DCAEF2
 ```bash
 magnet:?xt=urn:btih:D91E43EE6D5E61BB888FC82C4B5A11549E59B43E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:D91E43EE6D5E61BB888FC82C4B5A11549E59B43E
 magnet:?xt=urn:btih:4FDD6ECDB6756424FE0FA3EA51EA2CCD20970C04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:4FDD6ECDB6756424FE0FA3EA51EA2CCD20970C04
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:4FDD6ECDB6756424FE0FA3EA51EA2CCD20970C04
 ```bash
 magnet:?xt=urn:btih:EA081E34FB3F5D2359DA58AAAED5EFC5C582482B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:EA081E34FB3F5D2359DA58AAAED5EFC5C582482B
 magnet:?xt=urn:btih:7870002D665681B84E51A1E6CC46B7465BF50ECC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:7870002D665681B84E51A1E6CC46B7465BF50ECC
 ```bash
 magnet:?xt=urn:btih:D96EB1C0A0AF860DE92C1A7429A751C0690A8B99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:D96EB1C0A0AF860DE92C1A7429A751C0690A8B99
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:D96EB1C0A0AF860DE92C1A7429A751C0690A8B99
 ```bash
 magnet:?xt=urn:btih:CA478A9FD773BFA3BD735E5BD5FDC340DF2A9509
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:CA478A9FD773BFA3BD735E5BD5FDC340DF2A9509
 magnet:?xt=urn:btih:2FBF1BAAAB801BE28A317DE14CA8233BE5ACDC62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,30 +679,7 @@ magnet:?xt=urn:btih:2FBF1BAAAB801BE28A317DE14CA8233BE5ACDC62
 magnet:?xt=urn:btih:E86518500241D6FAD412F7BCD2FA90A62D6DBEC4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286150   (712867) от 02.03.2019
-
-Сестра моя, Люся (1985) TVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм-воспоминание взрослого человека о незабываемых днях первого послевоенного года.
-Клава, потерявшая мужа на фронте, с 12-летней дочерью Люсей приютила в своем доме Айгуль с семилетнем мальчиком. Сын Айгуль — главный герой, ныне ставший летчиком, вспоминает свое детство в небольшой казахском городе, выпавшее на трудное послевоенное время. Пролетая высоко над Землей, (   Читать дальше...   )Производство: СССР / Казахфильм по заказу Гостелерадио СССРЖанр: МелодрамаРежиссер: Ермек ШинарбаевАктеры: Хамар Адамбаева, Ольга Остроумова, Лариса Великоцкая, Маулен Халыков, Николай Гринько, Ануарбек Молдабеков, Валентина Теличкина, Любовь Германова, Олеся Иванова, Раиса МухамедьяроваСубтитры: ОтсутствуютПродолжительность: 01:27:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3661C6B0A66528B7600A9A42C141C7B2DBD50AC
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

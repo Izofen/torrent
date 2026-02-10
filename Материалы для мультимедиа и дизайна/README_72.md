@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:BBD04895356396C6681D0BEF508AEF586E1CDE03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Valentine Romantic — это веселый, милый и невероятно
 ```bash
 magnet:?xt=urn:btih:4AE0AA120BEDA871CCF7D43317F3DF60C5837AEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:4AE0AA120BEDA871CCF7D43317F3DF60C5837AEA
 magnet:?xt=urn:btih:62243AAEDA861E600951D828231498EA753D5938
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Row Vaticano — чистый и минималистичный шрифт бе�
 magnet:?xt=urn:btih:E79310F897B9C74BCACD795C2AD0A47FF5C99759
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:E79310F897B9C74BCACD795C2AD0A47FF5C99759
 ```bash
 magnet:?xt=urn:btih:277216046B02BDE09F3A83A3FD637D3913AD87EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -152,6 +162,8 @@ magnet:?xt=urn:btih:277216046B02BDE09F3A83A3FD637D3913AD87EE
 magnet:?xt=urn:btih:A39AF00B4D85CD695535B9FC796625CE81449C0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ Qualion Round™ — мягкий геометрический шрифт без
 magnet:?xt=urn:btih:F0FFFBA77C856E55DE8145E61691383908153621
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ magnet:?xt=urn:btih:F0FFFBA77C856E55DE8145E61691383908153621
 ```bash
 magnet:?xt=urn:btih:3C965F8641B90B9971F63590E299C263C1ADA481
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:3C965F8641B90B9971F63590E299C263C1ADA481
 magnet:?xt=urn:btih:C523BB8F335EF0C77DA5A4A666845EC6DA27C95A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:C523BB8F335EF0C77DA5A4A666845EC6DA27C95A
 ```bash
 magnet:?xt=urn:btih:F68C9E707B704FA94C99782514E1531537C9ADED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:F68C9E707B704FA94C99782514E1531537C9ADED
 magnet:?xt=urn:btih:B3546B6E4D469B153614D49B24F6EA3F1FF5B3E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:B3546B6E4D469B153614D49B24F6EA3F1FF5B3E1
 ```bash
 magnet:?xt=urn:btih:CC21D265C6A5448812775F9A484247351C226A6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ DeMonte — это шрифт без засечек поколения милл�
 magnet:?xt=urn:btih:ED335F88550D0045A96F2BAD3C0AB65829189601
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:ED335F88550D0045A96F2BAD3C0AB65829189601
 ```bash
 magnet:?xt=urn:btih:4206959F9D0436951B2E896E09D06E672F66C485
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ Damirone — элегантный дисплейный шрифт. Футури�
 magnet:?xt=urn:btih:D5E81531208DAC949D44A100D9F4323FA51F31E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ magnet:?xt=urn:btih:D5E81531208DAC949D44A100D9F4323FA51F31E0
 ```bash
 magnet:?xt=urn:btih:E19EA7D680319B133235EF20FF9D7D91A1A9F00E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ magnet:?xt=urn:btih:E19EA7D680319B133235EF20FF9D7D91A1A9F00E
 magnet:?xt=urn:btih:ED6316FC7E356B9ED14953849174EDC8E0E4FDB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ magnet:?xt=urn:btih:ED6316FC7E356B9ED14953849174EDC8E0E4FDB4
 magnet:?xt=urn:btih:E9242A74FFA92411DC9D1635A8FAA2C5CD1D26D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ magnet:?xt=urn:btih:E9242A74FFA92411DC9D1635A8FAA2C5CD1D26D7
 ```bash
 magnet:?xt=urn:btih:0623C658E8A84464CAA1E6043D9723431CEE91EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +538,8 @@ Bw Fusiona привносит особый подход к контрасту с
 magnet:?xt=urn:btih:AC1BBAC3CEAEC70D4AFA45D5127695A25373D98A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ magnet:?xt=urn:btih:AC1BBAC3CEAEC70D4AFA45D5127695A25373D98A
 ```bash
 magnet:?xt=urn:btih:8BBCCFA53124331C8220CDFAB06BEEFC12EF2C55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +590,8 @@ magnet:?xt=urn:btih:8BBCCFA53124331C8220CDFAB06BEEFC12EF2C55
 magnet:?xt=urn:btih:974671B65E4ABDC1B52C0B75042E172C1283F9CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ magnet:?xt=urn:btih:974671B65E4ABDC1B52C0B75042E172C1283F9CD
 magnet:?xt=urn:btih:26D4D009994FCF8632673AA0EC36905B02A796FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +641,8 @@ Pack 5 попадает во все нужные места с ярким цве
 ```bash
 magnet:?xt=urn:btih:065BBCF64EFD2827FBC6939CC6D41293B26E477F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +670,8 @@ FLEURS COLOR это 7 пресетов для коррекции зеленых 
 magnet:?xt=urn:btih:02652D1B2BD6BA496F70C6422E6947C2C475B20D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ magnet:?xt=urn:btih:02652D1B2BD6BA496F70C6422E6947C2C475B20D
 ```bash
 magnet:?xt=urn:btih:20A95EA747D3BDB4737F41893FC9DBEC87D3A71F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

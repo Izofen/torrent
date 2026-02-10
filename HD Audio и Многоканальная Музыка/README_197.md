@@ -22,6 +22,8 @@ The Rolling Stones - Hackney Diamonds (2023) [FLAC 24/96|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:BFD85A2ED0AAAF7EAC1EF57BEDDBB3722300EF13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Romy - Mid Air (2023) [FLAC|Lossless|tracks] hand made [restored, declipped] <Ho
 ```bash
 magnet:?xt=urn:btih:A5A29B53BACA6D81B5E0D1A6CAA16759F87F2DF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Ice Nine Kills - Welcome To Horrorwood: Under Fire (2023) [FLAC 24/44.1|Lossless
 magnet:?xt=urn:btih:C9695C2B35A8B9D12E9FAC332AA04EAB001F39A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Guns N’ Roses — американская хард-рок-группа, сф�
 ```bash
 magnet:?xt=urn:btih:B782358CD196C28E1086295ACB91B7C98B18E967
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Ronnie Atkins (Pretty Maids) - Studio Albums (4 releases) (2021-2023) hand made 
 magnet:?xt=urn:btih:7D67D9705AEE695FE8DEBAE596892AD2401AAE73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Babe Corner - Crybaby  [FLAC 24/48|Lossless|tracks] hand made [restored, declipp
 ```bash
 magnet:?xt=urn:btih:8A0EF62DE8E88FA13753CA465DF20F32333DA12F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ A4 The Roads To Iliad (Instrumental)(   Читать дальше...   )Жанр
 magnet:?xt=urn:btih:7C9ECF181107B420F04BB08026294B065A36FCAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ A3 Ut I Vannets Dyp Hvor Morket Hviler(   Читать дальше...   )Жан
 magnet:?xt=urn:btih:CEB7A67230D97F07FF5E23B6F1CAC4671B51BD22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +251,8 @@ B1 The FrightЖанр: Black Folk MetalПродолжительность: 00:10
 ```bash
 magnet:?xt=urn:btih:A886DDBFF03D3C7ECFAC8C49F90F5501A1DFB3C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +281,8 @@ A1d Seasons Of Seclusion (The Prison)(   Читать дальше...   )Жан�
 magnet:?xt=urn:btih:8923432A52D32990EDE7E67455F82C62975E5B62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +309,8 @@ A4 I Ei Gran Borti Nordre Asen(   Читать дальше...   )Жанр: Blac
 ```bash
 magnet:?xt=urn:btih:66A7C03D6F8C5E8D7848014A49042F67B3AA0911
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +339,8 @@ A2 Машина Времени - Путь
 magnet:?xt=urn:btih:AFA2192E2F02FFA62F1DCFADE4DF814872045F2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +366,8 @@ CD-02 - MEDUZAЖанр: Electronic, Dance, EDM, HouseПродолжительн�
 ```bash
 magnet:?xt=urn:btih:D979D041939552D4B7BF05ADA9582EAA061ED578
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +396,8 @@ The Who - Who’s Next (1971) Steven Wilson remix, 2023, UMC [FLAC 24/96|Lossles
 magnet:?xt=urn:btih:E46A71DF904B1B41813B31AF1CEF6D758105F421
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +425,8 @@ Bullet - шведская хэви-метал группа, основанная
 magnet:?xt=urn:btih:C661170641C51765D8D63B43D70D698525AF3E1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +451,8 @@ magnet:?xt=urn:btih:C661170641C51765D8D63B43D70D698525AF3E1A
 ```bash
 magnet:?xt=urn:btih:B3EE7A2312B8522ADCE2EFF8C00475B892F02A8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +481,8 @@ Whitesnake - The Purple Album (2015) Special Gold Edition, Remix, 2023, Rhino [F
 magnet:?xt=urn:btih:24A7B38F884D21695EACE52DFBE691A239AEA3CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +508,8 @@ magnet:?xt=urn:btih:24A7B38F884D21695EACE52DFBE691A239AEA3CE
 ```bash
 magnet:?xt=urn:btih:3C993F2084E2006770EA7E423BC355B6E739C876
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +538,8 @@ Black Sabbath - Reunion (1998) 25th Anniversary Expanded Edition, 2023, Epic [FL
 magnet:?xt=urn:btih:357D79819C7C6A9C23A0092302C366720AC4D00A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +566,8 @@ Golden Earring - Cut (1982) Remastered & Expanded, 2023, Red Bullet [FLAC 24/192
 ```bash
 magnet:?xt=urn:btih:2613E07577393947DD90B07A07C6BAEC4F5A879F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +596,8 @@ Nitrate - Feel The Heat (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:15CAD70D20BF1C3ECA961CA9B537495AD3299BFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +624,8 @@ magnet:?xt=urn:btih:15CAD70D20BF1C3ECA961CA9B537495AD3299BFC
 ```bash
 magnet:?xt=urn:btih:1D3F5C439398DFF496F128706EA3E069895A84D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +654,8 @@ Noumena — мелодик-дэт-метал группа из Эхтяри, Ф�
 magnet:?xt=urn:btih:02B8130AB524ACE1B3C6914CD77226239A1A1653
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +682,8 @@ Kings Crown - Closer To The Truth (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:F288C977AC0E946251FD00DAC8A5A81ECEC485FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -664,6 +712,8 @@ Holly Humberstone - Paint My Bedroom Black (2023) [FLAC 24/96|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:FCF81A9F77C95B33B85662C7856153B47B5D2C8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -690,6 +740,8 @@ Eucharist — шведская метал-группа, основанная в 
 ```bash
 magnet:?xt=urn:btih:B58C92B655A0974235EF4E4CA06AA1FAD14BC230
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Italian Best Shorts 6: Дом, милый дом / Italian Best Shorts 6 (2023) 
 magnet:?xt=urn:btih:517DB70D8A3E1295442D9C1243E2EE8DD17F9D43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:517DB70D8A3E1295442D9C1243E2EE8DD17F9D43
 magnet:?xt=urn:btih:B63A2855EA8B825E34E676B604E694157C6D5D30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:B63A2855EA8B825E34E676B604E694157C6D5D30
 ```bash
 magnet:?xt=urn:btih:7C390E8BB620449AA1A10F1DCBE3949BB94F4121
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ R-Studio Network 9.2 Build 191166 RePack (& portable) by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:17A36A9D868AE4DB6B7145895CB300CA67A954C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ UltraISO - одна из лучших программ для работы с о
 ```bash
 magnet:?xt=urn:btih:6383E252E8AA8F3C2F360E6DD58D0FE119ABCB34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ UltraISO - одна из лучших программ для работы с о
 magnet:?xt=urn:btih:604599E25F63D20E00FAA484E347BB936108313F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:604599E25F63D20E00FAA484E347BB936108313F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Fedora может получить встроенные механизмы сб�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Fedora может получить встроенные механизмы сб�
 ```bash
 magnet:?xt=urn:btih:44020FCE91E1A6DD8F0D78371F20BAE668EB2755
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Udemy, Rob Tuytel | Creating a fir and pine forest in Blender (2023) PCRec [EN]
 magnet:?xt=urn:btih:4BE187F167F83811782C4B28195D5ECC9C7BD7CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:4BE187F167F83811782C4B28195D5ECC9C7BD7CA
 ```bash
 magnet:?xt=urn:btih:A829FE04E9DE55638EC3D85D7DF42AF6220D8875
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 magnet:?xt=urn:btih:0C97463772CD9466971CF33ABC7CFB947FC7A685
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:0C97463772CD9466971CF33ABC7CFB947FC7A685
 ```bash
 magnet:?xt=urn:btih:2B3016B8333BACA53C5AD666B5768AFF7FEDBCA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:2B3016B8333BACA53C5AD666B5768AFF7FEDBCA6
 magnet:?xt=urn:btih:06FEB60134F2E4FEDE4089FDC0A1503A791F81CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2023.07.05 [Ru]
 magnet:?xt=urn:btih:1FF5D46040A408161C9D839D94E0AB1FAD304FCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Smart Tools это набор инструментов состоящий из 5
 ```bash
 magnet:?xt=urn:btih:16A82EE0802C45A58BEDD3124F78C4EC6B968C5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:16A82EE0802C45A58BEDD3124F78C4EC6B968C5A
 magnet:?xt=urn:btih:7FA1079F4AC44BA2BC769FA837E21DE4C9E307F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:7FA1079F4AC44BA2BC769FA837E21DE4C9E307F1
 ```bash
 magnet:?xt=urn:btih:2F95F6A80FCF7988D6518C4BA4FB2A8FB6F6AAEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ I Am Alive (2012) [Ru] (1.01/dlc/tr) Repack Other s
 magnet:?xt=urn:btih:FD0AAE6D9CE9F2DDDC51DCF4BB0CEAAEE193FDF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ jetAudio это музыкальный проигрыватель с 10/20 по�
 ```bash
 magnet:?xt=urn:btih:E35C35BADD6837B56E1496812C405E808676E5F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ magnet:?xt=urn:btih:E35C35BADD6837B56E1496812C405E808676E5F3
 magnet:?xt=urn:btih:20C95BD02A5481C0736A2371E043A5D53D8F3DC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:20C95BD02A5481C0736A2371E043A5D53D8F3DC6
 magnet:?xt=urn:btih:FA52EEA58F38E4D2650E2D7A1EA28BCBCDB2FEAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:FA52EEA58F38E4D2650E2D7A1EA28BCBCDB2FEAD
 ```bash
 magnet:?xt=urn:btih:E0C3658E89BD5A60130B0CCC02FEB7637602081B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ magnet:?xt=urn:btih:E0C3658E89BD5A60130B0CCC02FEB7637602081B
 magnet:?xt=urn:btih:45C3E921061012AC190D4693AE329E42E3454FAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ magnet:?xt=urn:btih:45C3E921061012AC190D4693AE329E42E3454FAB
 magnet:?xt=urn:btih:7A1508E9FC61443DB4AE1D73F5EC90F9223528A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ magnet:?xt=urn:btih:7A1508E9FC61443DB4AE1D73F5EC90F9223528A6
 ```bash
 magnet:?xt=urn:btih:006337D06BE80B04D7242FA09A97595307A8E92F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

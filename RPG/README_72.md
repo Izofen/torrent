@@ -19,6 +19,8 @@ Arcania: Fall of Setarrif / Аркания: Падение Сетаррифа (2
 magnet:?xt=urn:btih:EDBD639B12AA8A289324F95B9866291D3286D19F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Legend of Tianding (2021) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:6281D68CFC8440EF1BFF934DBAA04EE0474D7F9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Vigil: The Longest Night - это 2D-платформер с боево�
 magnet:?xt=urn:btih:EFFA007D6C420A69156B92A23FBEB78D9D633BD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Vampire: The Masquerade - Shadows of New York (2020) [En] (1.0.1) License GOG [D
 ```bash
 magnet:?xt=urn:btih:795EB5F31667E9F1232D2538C2C8D6F8010416D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Dungeon Souls (2016) [En] (1.0.5.5) License GOG
 magnet:?xt=urn:btih:A68F6BC27D7DC36E89762FA887BEF11CF7D78C89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Prison Simulator (2021) [Ru/Multi] (1.0.1.1v04.11) License CODEX
 ```bash
 magnet:?xt=urn:btih:FFED73BDE8544682B64438CC36A60EF4F460B8DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Sword and Fairy 7 - китайская приключенческая ролев
 magnet:?xt=urn:btih:265143D812DE59B79008873B53B309E043EB9E3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Eschalon: Book III - последняя книга трилогии, в кото
 ```bash
 magnet:?xt=urn:btih:1AA02F69988934376269421C3C49C6B8FAB93A89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Final Fantasy XIII / Final Fantasy 13 (2014) [Ru/En] (1.0.0.0/upd3) SteamRip Let
 magnet:?xt=urn:btih:22443D0EB24908B0786256AD2DD0E937265260CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Tower of Time — удивительная игра со множеством п
 ```bash
 magnet:?xt=urn:btih:ADB5D4755E47521DB1E3112D5E71E0C39BF6E8EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Defend the Rook (2021) [Ru/Multi] (1.062) License GOG
 magnet:?xt=urn:btih:92181F563E6312C5252C89FF0E7CEC5D913111AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ The Bard's Tale IV: Barrows Deep (2018) [Ru/Multi] (4.18.3-109511/dlc) Repack R.
 ```bash
 magnet:?xt=urn:btih:94D7503C81F612AE802F6B187840015A36A740D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Avenging Angel (2018) [En] (1.0.5) License DARKSiDERS
 magnet:?xt=urn:btih:AFFA196CD4535123FBC2A41AB1DB9E97C1EAFBFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Risen 3 (2014) [Ru/En/Ge] (3.0.30/dlc) Repack R.G. Механики [Complete Ed
 ```bash
 magnet:?xt=urn:btih:72E65FC557E1FE4F79EADADBCB8FBE524A180BBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Pillars of Eternity (2015) [Ru/Multi] (3.07.0.1318/dlc) Repack xatab [Definitive
 magnet:?xt=urn:btih:0F7A8D59A0BFFA7F97AA983C47518B03709F5306
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Might and Magic 7: For Blood and Honor / Меч и магия 7 (1999) [Multi] (
 ```bash
 magnet:?xt=urn:btih:12857B0E1BC9434BD789A682B7D6CA830C92AC57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ NieR Replicant ver.1.22474487139... – обновленная версия NieR
 magnet:?xt=urn:btih:40DBD8473618153C4F38BB67E75BC9C3426E4F5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Moonglow Bay (2021) [Multi] (1.0rls) License CODEX
 ```bash
 magnet:?xt=urn:btih:E16583DE206B3F08906612B82999D5E8D68A2BB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Nioh: Complete Edition — полное издание приключенчес�
 magnet:?xt=urn:btih:79438DCC222B2051B4DC973ED24FD9FD589BF4C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Risen 3: Titan Lords (2014) [Ru/Multi] (3.0.30.0/dlc) Repack =nemos= [Enhanced E
 ```bash
 magnet:?xt=urn:btih:316A0BF4275C1227250DF95B0C80080798F908F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ I am Setsuna (2016) [Ru/Multi] (1.0) SteamRip Let'sPlay [Collector's Edition]
 magnet:?xt=urn:btih:1FC3EDC74AEF66392D061CBCB5414E22FF72238E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Operation Abyss: New Tokyo Legacy (2017) [En/Ja] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:CE6F166CA005A409541E5FCDF991D0CF1F5B8352
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Overfall (2016) [En] (03/22/2017) License GOG
 magnet:?xt=urn:btih:2080CEAB21220ACAC2D69A9D18AF7EA7D0720C24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Titan Quest (2006) [Ru/Multi] (1.42) Repack R.G. Revenants [Anniversary Edition]
 ```bash
 magnet:?xt=urn:btih:4847C0AB09AE9B9D6824DB7C7DCAE6082A5992B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Alchemist Adventure (2021) [Ru/Multi] (1.211021/dlc) License GOG
 magnet:?xt=urn:btih:752DFB154CEF87966BE4174B4F3718AE1786D71D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Shadowrun Returns (2013) [Ru/Multi] (1.2.7 (A)) License GOG [Deluxe]
 ```bash
 magnet:?xt=urn:btih:A5AF6BD4BDB9E5EB7C312ED2D0A4DF92F09E5304
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

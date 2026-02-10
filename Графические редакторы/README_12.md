@@ -19,6 +19,8 @@ ON1 HDR 2023 создает безупречные, естественные HDR
 magnet:?xt=urn:btih:0FF7070E334EF70FA030976185D0254D3EA84692
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Stepok Recomposit — это современное программное об�
 magnet:?xt=urn:btih:E60BBCB7BAAADC27F07580F259B1B7296A860569
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Capture One - один из лучших профессиональных кон
 ```bash
 magnet:?xt=urn:btih:0F069CDDF9505B739D04B3BB4FBB1B1E9BC6176E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ ACDSee Photo Studio Ultimate сочетает в себе поддержку с�
 magnet:?xt=urn:btih:B8A5CFACD7C2DA8CE99EF8BC57236CF2C8B5B85E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ MediBang Paint Pro 29.1 [Multi/Ru]
 magnet:?xt=urn:btih:AD740EFB8B4F1FC34B6A2EECACC3918EA87328DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ ACDSee Photo Studio Ultimate сочетает в себе поддержку с�
 ```bash
 magnet:?xt=urn:btih:4EBDC759B0399A16198BCDEA37B302C832F86C6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ AliveColors — графический редактор, созданный ро
 magnet:?xt=urn:btih:699E69DCE9FA2B59D67013E48519083F231836F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Sketch Drawer – это инструмент редактирования из�
 ```bash
 magnet:?xt=urn:btih:13FB9FACB62DD2EA3140EED6B8606B0AE868609E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Green Screen Wizard - это автономная программа для ра
 magnet:?xt=urn:btih:8769B8061DF783E63DCEA84E6C4C5596529428B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ PhotoInstrument - мощный и лёгкий в использовании р�
 ```bash
 magnet:?xt=urn:btih:E3CDE75F37339E393321C2BF3C9A985CDA7DEB77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ PhotoDiva - программа для ретуши портретных фото
 magnet:?xt=urn:btih:DA4B756E2C89AB863D91535E657ADD3F2C768BA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ PhotoDiva - программа для ретуши портретных фото
 magnet:?xt=urn:btih:BA9CDA49E0C47AC4B7B4D33E56208C23CD90D318
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ PT Portrait - это графический редактор, предназна
 ```bash
 magnet:?xt=urn:btih:3608FA0CC70088BBC61AD19B7CCFBDA54976B7F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ PhotoDiva — одна из лучших программ для ретуши п
 magnet:?xt=urn:btih:F10623276068A9EF1E7828C20472BC126A3CC228
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:F10623276068A9EF1E7828C20472BC126A3CC228
 ```bash
 magnet:?xt=urn:btih:B15F2286D581DCA3502FCFD3C42544C70950EC91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Adobe Animate, пришедший на смену Flash Professional - это м
 magnet:?xt=urn:btih:96AD873424442C14725C8CCA245794844E94986A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Franzis SHARPEN projects гарантирует чёткие фотографи�
 ```bash
 magnet:?xt=urn:btih:2FB29E102F8D4B3814E6BFDB5A45D13E784CD5B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Cyberlink PhotoDirector Ultra — многофункциональный ред�
 magnet:?xt=urn:btih:0C82D8C18AA0D15CC43D58BBEB53020F8E9E6FBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ PhotoEQ - программное обеспечение для улучшени�
 ```bash
 magnet:?xt=urn:btih:CEEDE03D477CC735BB1C86378C632BC05ADE3115
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Filter Forge – это отдельное приложение и высоко�
 magnet:?xt=urn:btih:0AD87E42DB3C1B5A6E70D92C5DCCCAF073204DCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:0AD87E42DB3C1B5A6E70D92C5DCCCAF073204DCD
 ```bash
 magnet:?xt=urn:btih:B5A19A2DEE03EBF507626A3AB0D4CEB04928BE4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ reaConverter Pro - мощный инструмент для тех, кто им�
 magnet:?xt=urn:btih:643035AFC88B5F525265E3D8414FFB16F748F076
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ Ashampoo Photo Commander 17 - это мощное решение для прос
 ```bash
 magnet:?xt=urn:btih:1AA8207EB351315CF6E6A2CDD65A45D27AFF06B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ Ashampoo Photo Commander 17 - это мощное решение для прос
 magnet:?xt=urn:btih:902084D7BEF9710C9D6E426C9E27F1563C38A500
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ Topaz DeNoise AI 3.7.2 RePack (& Portable) by TryRooM [En]
 magnet:?xt=urn:btih:9DDAEC8FDC437E73C5D2455CE8BD93641D435EB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ FireAlpaca — это достаточно простой, но удобный �
 ```bash
 magnet:?xt=urn:btih:2F82CB4D3B98ED60C214F753F0E1853D50E3FE5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Doro - Warriors Of The Sea (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Ro
 magnet:?xt=urn:btih:B09747B96EFCFB7A68A2914D834E54D1B185D039
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:B09747B96EFCFB7A68A2914D834E54D1B185D039
 ```bash
 magnet:?xt=urn:btih:1ED6E92683D52F42587B9BF873CB3F11C8243323
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ CorelDRAW Graphics Suite 2025 26.2.0.170 [Multi/Ru]
 magnet:?xt=urn:btih:FA2D084F5198CE4A5739A9B593A88E3624647BF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:FA2D084F5198CE4A5739A9B593A88E3624647BF4
 ```bash
 magnet:?xt=urn:btih:3B5384E6C692A5E846D5588426BE73D4C0DE939F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Vol.1:
 magnet:?xt=urn:btih:BE0952DE778488A53381527D4573E0FE64CB0183
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:BE0952DE778488A53381527D4573E0FE64CB0183
 ```bash
 magnet:?xt=urn:btih:84B40A60E237129EE7C10C6B8E276883C562A1A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ ImagineFX — это международный журнал о цифровом
 magnet:?xt=urn:btih:DEA7A5F158F10DDC6CADF1A9978AA12D6AAFEE07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:DEA7A5F158F10DDC6CADF1A9978AA12D6AAFEE07
 ```bash
 magnet:?xt=urn:btih:0A98A21D7F88FDCECD5649978DC299F992FEB3F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:0A98A21D7F88FDCECD5649978DC299F992FEB3F1
 magnet:?xt=urn:btih:86096714D57AEE9A86FB1E6AB636D463A62C55C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:86096714D57AEE9A86FB1E6AB636D463A62C55C1
 ```bash
 magnet:?xt=urn:btih:69560A690D99C34BE1DA734CA8D22F5449261F35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Intel, это фиаско. Рост производительности про
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ Intel, это фиаско. Рост производительности про
 magnet:?xt=urn:btih:5F0F8F5310A9BE1DAFD3D441FF20CCC89935DE4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:5F0F8F5310A9BE1DAFD3D441FF20CCC89935DE4D
 ```bash
 magnet:?xt=urn:btih:0100B0D0DA17EF280FF157D3F8ED76F47055B298
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ VA - Виниловый бублик (1901-2019) [MP3|128-320 Kbps] <Classic, Po
 magnet:?xt=urn:btih:423AAD3102B5930012DEFE0E74B28EF5F71EDD62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:423AAD3102B5930012DEFE0E74B28EF5F71EDD62
 magnet:?xt=urn:btih:5F5017628ED1977A6A655E6E5412F3E4791D2FA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ Carlos Santana Roldan | React 18 Design Patterns and Best Practices, 4th Edition
 ```bash
 magnet:?xt=urn:btih:9F9A1DB8ECDEF050ACFD9A8FAB534C94D2AAEAB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:9F9A1DB8ECDEF050ACFD9A8FAB534C94D2AAEAB2
 magnet:?xt=urn:btih:0F40D5F0E8097415626F37984A6E3CE8875026AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:0F40D5F0E8097415626F37984A6E3CE8875026AD
 ```bash
 magnet:?xt=urn:btih:C5BC2EBDD4AACD605FFE2960E49D7A21030E37DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:C5BC2EBDD4AACD605FFE2960E49D7A21030E37DF
 magnet:?xt=urn:btih:F12916B5135A1872E16A3C948340C9269D9075AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ Ajay Reddy Yeruva, Vivek Basavegowda Ramu | End-to-End Observability with Grafan
 ```bash
 magnet:?xt=urn:btih:AE114AAA614611F9500BD195A0A6A1C80DB03AC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +555,8 @@ CD1 - 3 Shadow People 5:45(   Читать дальше...   )Жанр: Thrash M
 magnet:?xt=urn:btih:F047FFB052A314FE386BDAC9138BB1458A24E70F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +580,8 @@ magnet:?xt=urn:btih:F047FFB052A314FE386BDAC9138BB1458A24E70F
 ```bash
 magnet:?xt=urn:btih:91EE3A852ED2A5647F98E0A6B981ACDA5FB69DCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +607,8 @@ magnet:?xt=urn:btih:91EE3A852ED2A5647F98E0A6B981ACDA5FB69DCC
 magnet:?xt=urn:btih:4B7FC707B60FA5E4E3F29C5DD133228F15BFA826
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:4B7FC707B60FA5E4E3F29C5DD133228F15BFA826
 ```bash
 magnet:?xt=urn:btih:EFD5DA3BC109F3EDCDE11371E6958F38AAAC72CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +659,8 @@ Fedor G. Pikus | Hands-On Design Patterns with C++, 2nd Edition (2023) [PDF][EN]
 magnet:?xt=urn:btih:519AF27A7BE4B2BF2EC456D33823728FFB248D84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ magnet:?xt=urn:btih:519AF27A7BE4B2BF2EC456D33823728FFB248D84
 ```bash
 magnet:?xt=urn:btih:1090BD6909F296D77096FBA8AAB3596B5929EE07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

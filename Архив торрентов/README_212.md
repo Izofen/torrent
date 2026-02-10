@@ -19,6 +19,8 @@ Wondershare PDFelement - программа для общего редактир
 magnet:?xt=urn:btih:5291B8DA163282079CC28FB048481F8F09BC9874
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ TikTok - социальное приложение для тех кто пред
 ```bash
 magnet:?xt=urn:btih:2433FE902DBB8AB61C7123B69F48B435FA8826AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 magnet:?xt=urn:btih:4E5E553641698FD246FF21F6B2D3A285F70CC0D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Microsoft PowerToys – это набор утилит, позволяющих �
 ```bash
 magnet:?xt=urn:btih:7610F095DF337C3844B5CF564D1F71FE5EAF9E88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Xara Web Designer+ 24.2.1.69884 [Multi]
 magnet:?xt=urn:btih:A025FEA3B710FF0BC3C30766F0D8AF70F1FFFAD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:A025FEA3B710FF0BC3C30766F0D8AF70F1FFFAD5
 ```bash
 magnet:?xt=urn:btih:8A9C17557837F7E260FA3B2C34B9F2E827A91277
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:8A9C17557837F7E260FA3B2C34B9F2E827A91277
 magnet:?xt=urn:btih:0567C1992FED7F74A9107DD2E6173FA54EFDD9CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:D7910CDCF8F18B9CE7A5CC954046E29B8D7D2316
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Psiphon - это новый инструмент обхода интернет-�
 magnet:?xt=urn:btih:08967CD780E0CFF207B1D4C0AEBCFC713D6AF623
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:08967CD780E0CFF207B1D4C0AEBCFC713D6AF623
 ```bash
 magnet:?xt=urn:btih:1C52E26C76F2BCCC1DBA6E59827790384B007972
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Atlantis Word Processor 4.4.0.4 Repack (& Portable) by elchupacabra [Ru/En]
 magnet:?xt=urn:btih:7B81EF9C0D7FFFBCED76F412C5310F5D628DE85C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:7B81EF9C0D7FFFBCED76F412C5310F5D628DE85C
 magnet:?xt=urn:btih:4F9A9B8BF1EEA99828F7608F57AD329CEC3E6314
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +330,8 @@ DVDFab StreamFab — это удобный и мощный инструмент 
 ```bash
 magnet:?xt=urn:btih:8DD56AA52EB768584E95A80ACE7824FD2DEB3A01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ DVDFab – мощный, многофункциональный программ
 magnet:?xt=urn:btih:4376FB5E33C9A25763A44CC62948477EAC52F578
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Glary Utilities - комплексный набор инструментов д�
 ```bash
 magnet:?xt=urn:btih:CAB421A27DBDAB699E9E32DA69FB4D0060916E28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Xara Photo & Graphic Designer+ 24.2.0.69846 [Multi]
 magnet:?xt=urn:btih:C9252330B9D53FA26409F5998846713FD06AAF60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ DiskDigger - маленькая утилита, с которой можно в�
 ```bash
 magnet:?xt=urn:btih:01719C18F6EC10D0D28D0EC2D13E37CA1B4CE108
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ UniFab (Repack & Portable) - этот комплексный медиа-инст
 magnet:?xt=urn:btih:591DAE767E4E96250044FA72639BE8748FBB7CB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ MediaHuman YouTube to MP3 Converter 3.9.9.94 (0727) RePack (& Portable) by elchu
 ```bash
 magnet:?xt=urn:btih:741317723CB02F53D87DB53E0E911E569C2F3EA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ R-Wipe & Clean - программа для невосстановимого уд
 magnet:?xt=urn:btih:6FF5E5851829C668673E4C806892AC1750D24DB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ MediaHuman YouTube Downloader 3.9.9.94 (0727) RePack (& Portable) by elchupacabr
 ```bash
 magnet:?xt=urn:btih:74E92271BEB5225A8643C7A15219978A0B4AD07C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ OCCT 13.1.4 Final Portable [En]
 magnet:?xt=urn:btih:99AFF70C20ABB2CA8578EF48705F85CE8360D3EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ Xara Designer Pro — это мощный графический инструм�
 ```bash
 magnet:?xt=urn:btih:971CD7235C5B4461D5DBCDDE6883D717008EB735
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ DefenderKiller - программа для удаления/восстановл
 magnet:?xt=urn:btih:08FEC0E0EB21CF92266E3E652247611DB15C2C3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ CyberLink PowerDVD - один из самых мощных на данный м�
 ```bash
 magnet:?xt=urn:btih:C8B130B4B5A7FC425D6F0E39957FA9760CF57268
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +672,8 @@ Balabolka 2.15.0.876 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:65ADF945349A07F6A510D55F337A6279A3A5EDEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Icecream Video Converter 1.30 [Multi/Ru]
 magnet:?xt=urn:btih:54B3B531A5BD3A8E1A0527CFFC847F02B7437D84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:54B3B531A5BD3A8E1A0527CFFC847F02B7437D84
 magnet:?xt=urn:btih:A5BCF64F187E9424E02013C5E4DCCF575996E7C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:0B465EEBF65B99D4A501311E95B14F33BA79725E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ VA - Музыка для машины Vol.19 (2023) [MP3|320 Kbps] <Pop, Dance, 
 magnet:?xt=urn:btih:D80861A7C12400E77261A91B01643D36B14C1CF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ VA - Sweet Morning (Chill out and Lounge Collection), Vol. 2 (2021) [AAC|~311 Kb
 ```bash
 magnet:?xt=urn:btih:60B9B1E166BAE41F6A291F53F05B3F1F9B0835F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Sidney Bechet - 1949, Vol. 3 (2002) Classics [FLAC|Lossless|tracks + .cue] <Dixi
 magnet:?xt=urn:btih:AF9033F28ECAC0BD1427025B6BA117687A64E017
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ QownNotes – менеджер заметок, позволяющий четко
 ```bash
 magnet:?xt=urn:btih:DEE0F0EFF8AF94ECD1354B714E1C7E437B01AE5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ VA - Марш ВДВ. Часть 1 (2007) [FLAC|Lossless|tracks + .cue] <Шан�
 magnet:?xt=urn:btih:66EDC968292E562D08E476B4B7AC5A2AA21BE518
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:66EDC968292E562D08E476B4B7AC5A2AA21BE518
 ```bash
 magnet:?xt=urn:btih:B3A00951E2F06AC870F33FF8D7BEF3B6D5EEB231
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 ```bash
 magnet:?xt=urn:btih:5975803A48FBD6BAC8FF84559031D5DBC63C9F2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ Repression - Prevalence of Pain (1992) [FLAC|Lossless|image + .cue] <Heavy, Powe
 magnet:?xt=urn:btih:68D54AECFBB8E2BDC6C4221658A9C7DBA80451B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ magnet:?xt=urn:btih:68D54AECFBB8E2BDC6C4221658A9C7DBA80451B3
 ```bash
 magnet:?xt=urn:btih:0428DB587A448F27046007A2EDA2A2B377CE64CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ Speech объединяет все функции синтезатора реч�
 magnet:?xt=urn:btih:998632DDE58A3CD89FCBBBFF31B47F2E24C7CC30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 ```bash
 magnet:?xt=urn:btih:9657726DF03B26E9FBEFD20000DE78566FC31858
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:9657726DF03B26E9FBEFD20000DE78566FC31858
 magnet:?xt=urn:btih:0D56D40F9D88D648911D78B8FC26837DBF1C396D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:0D56D40F9D88D648911D78B8FC26837DBF1C396D
 ```bash
 magnet:?xt=urn:btih:FAAC5777C4D1FE4ACB5C196D8DD5B279E79F4F99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +455,8 @@ magnet:?xt=urn:btih:FAAC5777C4D1FE4ACB5C196D8DD5B279E79F4F99
 magnet:?xt=urn:btih:6BD2BAE06E24CF762F6A0B227F5E9981AA89D6E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:6BD2BAE06E24CF762F6A0B227F5E9981AA89D6E0
 ```bash
 magnet:?xt=urn:btih:43D401376ABCCD135FA113FACED01C765C2F3DB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +510,8 @@ magnet:?xt=urn:btih:43D401376ABCCD135FA113FACED01C765C2F3DB3
 magnet:?xt=urn:btih:2DFA088B109A124D741B28CC5290C462034817AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ magnet:?xt=urn:btih:2DFA088B109A124D741B28CC5290C462034817AB
 ```bash
 magnet:?xt=urn:btih:77BB20E69CE92E37D610BF6D8E716BF12726AEC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +565,8 @@ Tri-Fi - 3 (2010) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano J
 magnet:?xt=urn:btih:C9E6607A8C1875F1B61E5009C1EC0F8E90A5E61C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ Lucky Patcher (Лаки патчер) – отличное решение есл
 ```bash
 magnet:?xt=urn:btih:6A25CF59C8746DB65D1645604BA45CF0944D0FA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +618,8 @@ magnet:?xt=urn:btih:6A25CF59C8746DB65D1645604BA45CF0944D0FA3
 magnet:?xt=urn:btih:53BAC9139949F259A2BA3386C7F47CCD9BC6ED8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ Text Editor Pro 27.4.0 + Portable + Bonus [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3A67F801E03A4A7220007511F911395BBCFBF8A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +673,8 @@ VA - Vanlife Moods, Vol. 3 (2022) [AAC|~312 Kbps] <Lounge, Chill Out, Downtempo>
 magnet:?xt=urn:btih:2D957EBE906A57566C4F1F800D85E28F9FABC84D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ magnet:?xt=urn:btih:2D957EBE906A57566C4F1F800D85E28F9FABC84D
 ```bash
 magnet:?xt=urn:btih:5D78A8AC10BD546CEAF866CDD39EDAB8F7A9D68F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

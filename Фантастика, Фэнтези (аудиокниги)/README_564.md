@@ -1,3 +1,29 @@
+###  Публикация: 1842853   (1048797) от 17.12.2025
+
+Олег Дмитриев | Воин-Врач (Книга 4) (2025) [MP3, Сергей Ермилов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший хирург-травматолог в далёком прошлом, в теле одного из самых загадочных героев Древней Руси – Всеслава Чародея, князя Полоцкого. Уже удалось сделать некоторые инструменты, с лекарствами помогают знахари и монахи, есть даже анестезиолог, родной человек! Но проблем у Воина снова больше, чем у Врача. Как они будут их решать? Или найдут новые?Жанр: Альтернативная история, Исторические приключения, Исторические события, Историческое фэнтезиИздательство: ЛитРесПродолжительность: 07:46:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:207046CB63043EA4920F8A91FCC3C2399BD80921
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1842851   (1048798) от 17.12.2025
 
 Олег Дмитриев | Воин-Врач (Книга 3) (2025) [MP3, Михаил Обухов]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:8E85D103F9D60429B6CA8ABB08F2530E30BBC05E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:8E85D103F9D60429B6CA8ABB08F2530E30BBC05E
 magnet:?xt=urn:btih:98BCA158DA21C487E81831EB00610F08249D4F4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:98BCA158DA21C487E81831EB00610F08249D4F4A
 magnet:?xt=urn:btih:197ED2809C6F415E3F54236321BD331F84905E7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:197ED2809C6F415E3F54236321BD331F84905E7E
 ```bash
 magnet:?xt=urn:btih:C70E14E483E9ED18CB5C2153479C824A19E81E1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:C70E14E483E9ED18CB5C2153479C824A19E81E1B
 magnet:?xt=urn:btih:708FC01C27099F68BB57A7F5E61AD5C18FEA7055
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:708FC01C27099F68BB57A7F5E61AD5C18FEA7055
 ```bash
 magnet:?xt=urn:btih:12FD4C89E79B5519D961F1241DC045BB47B6AB48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:12FD4C89E79B5519D961F1241DC045BB47B6AB48
 magnet:?xt=urn:btih:A005826B7E352ED456109B19B8C4ADAB79035495
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:A005826B7E352ED456109B19B8C4ADAB79035495
 ```bash
 magnet:?xt=urn:btih:393DC877994ED2D39DF2B20C0300F49EE3D7B70A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:393DC877994ED2D39DF2B20C0300F49EE3D7B70A
 magnet:?xt=urn:btih:42A5F5EBF02F3CF8249C00C9659093DA3FD00EF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:42A5F5EBF02F3CF8249C00C9659093DA3FD00EF7
 ```bash
 magnet:?xt=urn:btih:50A84E58950639318AA89BBB0B80431D30C61A5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:50A84E58950639318AA89BBB0B80431D30C61A5C
 magnet:?xt=urn:btih:FDC87F965F47EB06882E85A69B55C3864C0F8C64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:FDC87F965F47EB06882E85A69B55C3864C0F8C64
 magnet:?xt=urn:btih:F0DA54AB6693FEE5AAC10862994CE1039CBE698E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:F0DA54AB6693FEE5AAC10862994CE1039CBE698E
 magnet:?xt=urn:btih:803C8325144FDE00B7204A0110585B1FAB31AE53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:803C8325144FDE00B7204A0110585B1FAB31AE53
 ```bash
 magnet:?xt=urn:btih:5C26AFABD1EEDF61A34A0865378123CA6C6E0298
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:5C26AFABD1EEDF61A34A0865378123CA6C6E0298
 magnet:?xt=urn:btih:E6787F0F99FF95CCFE2C1C9D91FBAAFDCC3A3CA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:E6787F0F99FF95CCFE2C1C9D91FBAAFDCC3A3CA0
 ```bash
 magnet:?xt=urn:btih:A5F8E78015E51B53861EA7C8CCBB0BAD164832BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:A5F8E78015E51B53861EA7C8CCBB0BAD164832BA
 magnet:?xt=urn:btih:CD0A3164E27709CC2EDBFB020C1B71C6C061998B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:CD0A3164E27709CC2EDBFB020C1B71C6C061998B
 ```bash
 magnet:?xt=urn:btih:70342AF94FF935181316DF9F643066855AC90A3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:70342AF94FF935181316DF9F643066855AC90A3A
 magnet:?xt=urn:btih:D96AC298D3351E91251C46913D1A919AB513E5C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:D96AC298D3351E91251C46913D1A919AB513E5C5
 ```bash
 magnet:?xt=urn:btih:B42E00C0B604F769DFFBA2D25A71503B44737713
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:B42E00C0B604F769DFFBA2D25A71503B44737713
 magnet:?xt=urn:btih:347D6C53D5B767914B3446E4DB13227B07472BAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +598,8 @@ magnet:?xt=urn:btih:347D6C53D5B767914B3446E4DB13227B07472BAB
 ```bash
 magnet:?xt=urn:btih:5772984A54F717684A7DC98F5C1BD99BDA9AD48F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:5772984A54F717684A7DC98F5C1BD99BDA9AD48F
 magnet:?xt=urn:btih:6E5B9A257FFDA1D511FB27654ADCA95C64B230E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:6E5B9A257FFDA1D511FB27654ADCA95C64B230E1
 ```bash
 magnet:?xt=urn:btih:B0F9EB9A4B606DE05F22D6C89A31EDFB3328062A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,29 +677,7 @@ magnet:?xt=urn:btih:B0F9EB9A4B606DE05F22D6C89A31EDFB3328062A
 magnet:?xt=urn:btih:80944FE6FACA4706FFA9570F8CE374049C8D9EDF
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843169   (1049122) от 19.12.2025
-
-Мария Руднева | Стеклянный город (2023) [MP3, Галина Щукина]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начинающая журналистка Меган, отправляясь по заданию студенческой газеты, и предположить не могла, что попадает в таинственный город, где не работает телефонная связь, а вместо денег – бусины из стекла. Здесь фонарщик зажигает фонари по старинке, самая уважаемая профессия – стекольщик, а управляет городом мэр Дроссельфлауэр, играющий по вечерам на скрипке для своих (   Читать дальше...   )Жанр: Фэнтези, Книги о приключениях, Магические способности, Магическое фэнтези, Опасные приключенияИздательство: ЭксмоПродолжительность: 11:16:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15F9D51013FD8086CC38AE2AC94BD33D9FBFA6FF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

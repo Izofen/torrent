@@ -1,55 +1,3 @@
-###  Публикация: 958377   (323641) от 21.11.2015
-
-Проекты - VideoHive - Rose Petals Heart - Photo Gallery - 5315746 [AEP]
-
->>Проекты
->>Свадебные и романтические (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания романтического слайдшоу.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43FA473B67E77D2F3F5C398D2D1CF03F54AE4543
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958435   (323642) от 21.11.2015
-
-VA - Beatport Top 100 20.11.2015 (2015) [MP3|320 кб/с]<House, Electro, Progressive, Deep House, Tech House, Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323642.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Shaun Frank & KSHMR - Heaven (feat. Delaney Jane) (Extended Mix)
-002. Hot Since 82 - Veins (Original Mix)
-003. R3hab & Headhunterz - Won't Stop Rocking (Extended Mix)
-004. Joe Stone and Daser - Freak (And You Know It) (Extended Mix)(   Читать дальше...   )Жанр: House, Electro, Progressive, Deep House, Tech House, TechnoПродолжительность: 10:09:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:168213731E1F41CB19C7459FE1A77FA02A49B65F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958358   (323643) от 21.11.2015
 
 Бегущий в лабиринте: Дилогия / Maze Runner: Duologue (2014, 2015) HDRip [H.264] [MP4|960х400]
@@ -71,6 +19,8 @@ magnet:?xt=urn:btih:168213731E1F41CB19C7459FE1A77FA02A49B65F
 ```bash
 magnet:?xt=urn:btih:73DC1E343A5E349D18DB7C02C14658989157A29F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +46,8 @@ magnet:?xt=urn:btih:73DC1E343A5E349D18DB7C02C14658989157A29F
 magnet:?xt=urn:btih:CAD16D0031E43FD539077B5A432E34F9B38B2AEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +72,8 @@ magnet:?xt=urn:btih:CAD16D0031E43FD539077B5A432E34F9B38B2AEA
 magnet:?xt=urn:btih:556D3C1BB165545B7CC4FB10CA50154E2B334F6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +97,8 @@ DriverPack Solution Online - облегченная версия самого м
 ```bash
 magnet:?xt=urn:btih:EF063230F37CFFC7AC3C115B2A25D03C2DF8ED71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +125,8 @@ magnet:?xt=urn:btih:EF063230F37CFFC7AC3C115B2A25D03C2DF8ED71
 magnet:?xt=urn:btih:76940C22E0B3BB91729F5EB8080AF90BD50615A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +150,8 @@ magnet:?xt=urn:btih:76940C22E0B3BB91729F5EB8080AF90BD50615A1
 ```bash
 magnet:?xt=urn:btih:B1DF3ACD9E104B978E64EA5FC678D39D49EB2074
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +177,8 @@ magnet:?xt=urn:btih:B1DF3ACD9E104B978E64EA5FC678D39D49EB2074
 ```bash
 magnet:?xt=urn:btih:6B69481C067E0D13A772EBC542F0383AD829BCE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +207,8 @@ magnet:?xt=urn:btih:6B69481C067E0D13A772EBC542F0383AD829BCE3
 magnet:?xt=urn:btih:60CD72E5E4BDB5E21BC32C55558FD868DB7D1A2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +233,8 @@ magnet:?xt=urn:btih:60CD72E5E4BDB5E21BC32C55558FD868DB7D1A2E
 ```bash
 magnet:?xt=urn:btih:40A3E6AB12F6DF11C5EA6D03AE1A9814538288B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +263,8 @@ magnet:?xt=urn:btih:40A3E6AB12F6DF11C5EA6D03AE1A9814538288B4
 magnet:?xt=urn:btih:BBCFF28EC269F5494BD15DD932D0AA5EC8A1DA9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +288,8 @@ magnet:?xt=urn:btih:BBCFF28EC269F5494BD15DD932D0AA5EC8A1DA9B
 ```bash
 magnet:?xt=urn:btih:68825D2D05C06278FBD0E8B257CE94425CF33B88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +316,8 @@ magnet:?xt=urn:btih:68825D2D05C06278FBD0E8B257CE94425CF33B88
 magnet:?xt=urn:btih:85C38C688704381F59DCF7577929886EF9EE9901
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +341,8 @@ Raid Reconstructor 4.32 [En]
 ```bash
 magnet:?xt=urn:btih:076A4379C32A567B2335C13ADCAE4FCF4FAD896B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +368,8 @@ magnet:?xt=urn:btih:076A4379C32A567B2335C13ADCAE4FCF4FAD896B
 magnet:?xt=urn:btih:332B59407A874E577C638FA738C0ED9ABD9829B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +394,8 @@ magnet:?xt=urn:btih:332B59407A874E577C638FA738C0ED9ABD9829B5
 magnet:?xt=urn:btih:357B42962AE377276C7381C5DA739CBE4A400631
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +419,8 @@ magnet:?xt=urn:btih:357B42962AE377276C7381C5DA739CBE4A400631
 ```bash
 magnet:?xt=urn:btih:63A8E4DAF2D537DFE486B0018C488C6292BD7DC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +447,8 @@ magnet:?xt=urn:btih:63A8E4DAF2D537DFE486B0018C488C6292BD7DC0
 magnet:?xt=urn:btih:041FB59131BA205926BAF359C6C8269DD9C950AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +472,8 @@ magnet:?xt=urn:btih:041FB59131BA205926BAF359C6C8269DD9C950AA
 ```bash
 magnet:?xt=urn:btih:7E20E9C4A23D197ECDAE032E4E441FFC6873D061
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +499,8 @@ magnet:?xt=urn:btih:7E20E9C4A23D197ECDAE032E4E441FFC6873D061
 magnet:?xt=urn:btih:EC07B595A8F2576A79C57CBA65B75F8344403AAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +525,8 @@ magnet:?xt=urn:btih:EC07B595A8F2576A79C57CBA65B75F8344403AAE
 magnet:?xt=urn:btih:E47678A74EC7D11FC06DE51A960F49089C330D11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +550,8 @@ magnet:?xt=urn:btih:E47678A74EC7D11FC06DE51A960F49089C330D11
 ```bash
 magnet:?xt=urn:btih:35F8601AE493A6F60C1C2D6815CDC41F84897140
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +578,8 @@ iMazing - отличная альтернатива iTunes
 magnet:?xt=urn:btih:0D43EEB09BA1359B52F476C5AE255AC6F1866426
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +604,8 @@ Leisure Suit Larry - Wet Dreams Dry Twice (2020) [Ru/Multi] (1.0.1.54) License G
 magnet:?xt=urn:btih:833FD8027D3ADF535F2F405B5B28581F23F0F1AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +629,60 @@ Windows Excel – это программа для работы со всеми 
 ```bash
 magnet:?xt=urn:btih:5B227BB450EBAE6DF51DD1A3480D98EC5A442630
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420848   (323688) от 02.11.2020
+
+Windows Word 2020.10.0 [Ru]
+
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Word - бесплатный и удобный в эксплуатации офисный редактор для работы со всеми форматами текстовых документов. Присутствует возможность открывать и конвертировать PDF документы, имеется функция проверки правописания текста на русском языке и многое другое.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BD38040959D6857AFA098FD6106252B8F315143
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420534   (323689) от 02.11.2020
+
+Бессмертная битва. Код / Wu Xia 2 the Code (2019) WEB-DL [H.264/1080p-LQ] [MVO]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323689.jpg" />
+</div>
+
+
+###  Подробнее
+
+В недалёком будущем человечество начинает умирать от нехватки воздуха. В лаборатории медицинской корпорации создаётся таинственный код, который поможет спасти людей, но за ним ведут охоту разные кланы, их цель - управление миром. Спасти код и вернуть жизнь людям сможет только один человек.Производство: США / Media Design ImagingЖанр: Фантастика, боевикРежиссер: Джонни ВуАктеры: Ben Zgorecki, Crystle Paynther Collins, Keith Collins II, Matt Kane, Джерри Сур, Бен Гартон, Y. Chan, Leland Leger, Лиза Й. Вонг, Wayne WongПеревод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: АнглийскиеПродолжительность: 01:18:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6321FFEAFBB722EA6AC751A303029E81F52779CC
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

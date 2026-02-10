@@ -1,27 +1,3 @@
-###  Публикация: 1440189   (1039120) от 16.01.2021
-
-Ларри Симон. Её друг / Her Boy Friend (1924) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039120.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом фильме Ларри и Оливер играют полицейских под прикрытием. Нужно сказать, что прикрытие у них получилось очень оригинальное. Ларри выслеживает шайку контрабандистов спиртным, попутно спасает девушку.Производство: США / Chadwick Pictures CorporationЖанр: Комедия, короткометражный, немое киноРежиссер: Ларри Симон, Ноэль М. СмитАктеры: Ларри Симон, Дороти Дван, Альма Беннетт, Оливер Харди, Фред Спенсер, Фрэнк Александр, Спенсер Белл, Уильям ХауберЯзык озвучки: НемойСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:13:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F92E145001344077D5CC08C216F1321A9EA104F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440180   (1039149) от 16.01.2021
 
 Сверчок за очагом (Каминный сверчок) / The Cricket on the Hearth (1909) DVDRip
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:4F92E145001344077D5CC08C216F1321A9EA104F
 ```bash
 magnet:?xt=urn:btih:4D76CCD0B1D352F35EAABCF1F54B2CF8585D0221
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +46,8 @@ magnet:?xt=urn:btih:4D76CCD0B1D352F35EAABCF1F54B2CF8585D0221
 magnet:?xt=urn:btih:ABDE91E8905B39EE0F75B110D031AE9B4F3E5EC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +71,8 @@ magnet:?xt=urn:btih:ABDE91E8905B39EE0F75B110D031AE9B4F3E5EC9
 ```bash
 magnet:?xt=urn:btih:E4E0B69073C180A33B57E0BAD3041D72151B1FFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +98,8 @@ magnet:?xt=urn:btih:E4E0B69073C180A33B57E0BAD3041D72151B1FFF
 magnet:?xt=urn:btih:8F7290FE95D355B65A5855DFAB95A18238637208
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +123,8 @@ magnet:?xt=urn:btih:8F7290FE95D355B65A5855DFAB95A18238637208
 ```bash
 magnet:?xt=urn:btih:9BB9FF5039D4AFA9D280DB65E09D40C940523FA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:9BB9FF5039D4AFA9D280DB65E09D40C940523FA7
 magnet:?xt=urn:btih:7511837C15A4FD141C4153631A1E926D153D66F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +175,8 @@ magnet:?xt=urn:btih:7511837C15A4FD141C4153631A1E926D153D66F7
 ```bash
 magnet:?xt=urn:btih:AF78AE13338498318FA8B3980D7B9BF421C99470
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +202,8 @@ magnet:?xt=urn:btih:AF78AE13338498318FA8B3980D7B9BF421C99470
 magnet:?xt=urn:btih:C0B2A18782347E493E110DE563CDD07024CC6F0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +227,8 @@ magnet:?xt=urn:btih:C0B2A18782347E493E110DE563CDD07024CC6F0D
 ```bash
 magnet:?xt=urn:btih:AEF235FF5497F044588A52524AE1E8A958479F51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +254,8 @@ magnet:?xt=urn:btih:AEF235FF5497F044588A52524AE1E8A958479F51
 magnet:?xt=urn:btih:0C34BB6F10B9CE47F7867A9DF5193EA6BF3EAA44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +279,8 @@ magnet:?xt=urn:btih:0C34BB6F10B9CE47F7867A9DF5193EA6BF3EAA44
 ```bash
 magnet:?xt=urn:btih:D7F9FF1111EB6D95F4A7724D3F0E2A499D83F28B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +306,8 @@ magnet:?xt=urn:btih:D7F9FF1111EB6D95F4A7724D3F0E2A499D83F28B
 magnet:?xt=urn:btih:52533F3662B4696CB28028DF1B9EF1FC9ADA794A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +331,8 @@ magnet:?xt=urn:btih:52533F3662B4696CB28028DF1B9EF1FC9ADA794A
 ```bash
 magnet:?xt=urn:btih:9BCC00A532F4B96C12BE68B08191A7632AD6DADC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +358,8 @@ magnet:?xt=urn:btih:9BCC00A532F4B96C12BE68B08191A7632AD6DADC
 magnet:?xt=urn:btih:09149A410BFA9725EC6B7D0F1CAD7EE487071E96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +383,8 @@ magnet:?xt=urn:btih:09149A410BFA9725EC6B7D0F1CAD7EE487071E96
 ```bash
 magnet:?xt=urn:btih:149473B4D94113A2C63C34B3154328D9EC139E9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +410,8 @@ magnet:?xt=urn:btih:149473B4D94113A2C63C34B3154328D9EC139E9C
 magnet:?xt=urn:btih:C660AC7717809839528D1B78E698A8C19520C64C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +436,8 @@ magnet:?xt=urn:btih:C660AC7717809839528D1B78E698A8C19520C64C
 magnet:?xt=urn:btih:BF852DD736702F9E52F9A401475671E143B65E7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +461,8 @@ magnet:?xt=urn:btih:BF852DD736702F9E52F9A401475671E143B65E7C
 ```bash
 magnet:?xt=urn:btih:AF6D6907DC2B4A6EB3E3A1565EC897DF6DB34AD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +489,8 @@ magnet:?xt=urn:btih:AF6D6907DC2B4A6EB3E3A1565EC897DF6DB34AD1
 magnet:?xt=urn:btih:F70F2043241FEB9E1A8938FF8E8A3097450CC45F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +514,8 @@ magnet:?xt=urn:btih:F70F2043241FEB9E1A8938FF8E8A3097450CC45F
 ```bash
 magnet:?xt=urn:btih:ADC72F482DF448775227AAA0C431EA868BA9E0F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +541,8 @@ magnet:?xt=urn:btih:ADC72F482DF448775227AAA0C431EA868BA9E0F1
 magnet:?xt=urn:btih:449D32D6267399C49C8D592F6869B45C2808DBE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +566,8 @@ magnet:?xt=urn:btih:449D32D6267399C49C8D592F6869B45C2808DBE2
 ```bash
 magnet:?xt=urn:btih:343697ADD60F7D0DD5865028E1D74935E2AC5B64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +593,8 @@ magnet:?xt=urn:btih:343697ADD60F7D0DD5865028E1D74935E2AC5B64
 magnet:?xt=urn:btih:0A39605BC3A5D631124AFA4A295F3E0D6FCE47C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +619,8 @@ magnet:?xt=urn:btih:0A39605BC3A5D631124AFA4A295F3E0D6FCE47C3
 magnet:?xt=urn:btih:5ECB82517CDA846FD7253DACE867DD7A1F0B9CE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +644,35 @@ magnet:?xt=urn:btih:5ECB82517CDA846FD7253DACE867DD7A1F0B9CE8
 ```bash
 magnet:?xt=urn:btih:4E20D7A2113679EAB9EFAAF2ADB59144365CAFFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438914   (1040612) от 10.01.2021
+
+Крутой маршрут / The Great Locomotive Chase (1956) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040612.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 апреля 1862 года, утро. Отряд спецназа из 22 разведчиков времен Гражданской войны в Америке из-под самого носа войск конфедератов, базирующихся около Атланты, угоняет поезд. Кажется невероятным, но они хотят разрушить рельсы и мосты на всей Западной дороге.
+Это должна быть высококлассная операция. Если они справятся - то выиграют войну, если нет - проиграют все... (   Читать дальше...   )Производство: США / Walt Disney ProductionsЖанр: Боевик, Приключения, Семейный, Вестерн, ВоенныйРежиссер: Френсис Д. ЛионАктеры: Фесс Паркер, Джеффри Хантер, Джефф Йорк, Джон Луптон, Эдди Файрстоун, Кеннет Тоби, Дон Мегован, Клод Джармен мл., Гарри Кэри мл., Леонард П. ГирПеревод: Многоголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 01:27:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17CA1C08C32363E06B8E0295781C18871726B1BD
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

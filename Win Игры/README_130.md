@@ -19,6 +19,8 @@ Gori: Cuddly Carnage - динамичный экшен с элементами �
 magnet:?xt=urn:btih:265CB5E2FDEE2A406F587D8B12652860E5BCD12B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Tetris Forever посвящён сорокалетию не имеющей се�
 ```bash
 magnet:?xt=urn:btih:420867558D58BEB2728F1741CDF0BB4276AB365F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Tavern Talk бросает вас в самое сердце фэнтезийн�
 magnet:?xt=urn:btih:768D6A8F65BC12F29CCC821A91A2C8301689B6C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Black Book / Черная Книга (2021) [Ru/Multi] (build 12000953) Repack d
 ```bash
 magnet:?xt=urn:btih:0FF7D5DDF79435AB4DE543A59317D1885A2C554D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Sker Ritual – фантастический боевик, который мож
 magnet:?xt=urn:btih:6AB717BC8EF36A9134CE538A8103807377B6BA36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ art of rally - раллийная игра от создателя игры Abso
 ```bash
 magnet:?xt=urn:btih:A7A7D5B3064CF05A1FAAC0665B9BABC3629D085D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Millennia - пошаговая стратегическая игра, охват
 magnet:?xt=urn:btih:1737E74368D90E375814B2A13DD825C01B741935
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.06) Repack 
 ```bash
 magnet:?xt=urn:btih:CD98A1668E85AA627279BFDA453EACB944D05D06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Ultimate Admiral: Dreadnoughts предлагает уникальную воз�
 magnet:?xt=urn:btih:9175C41C068368B43B3F0752E044EAC2F8A2EB59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Destiny Star Girlfriend (2023) [Multi] (1.0.2/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:8FAD6106D2180D2B2835BC76299297EF0A7B9049
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Destiny Star Girlfriend 2 (2024) [Multi] (1.0.0/dlc) License GOG
 magnet:?xt=urn:btih:6AEC986FCD4B13DE5EFA7F0AD34D06B6F2CC8416
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Farming Simulator 25 (2024) [Ru/Multi] (1.2.1.0/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E3E77B0D6FCE31334C6CE3DB2886F243B3B2FB7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Dawn of the Ashen Queen - классический dungeon crawler на осно
 magnet:?xt=urn:btih:F92394CDB861014A8EA8D4401176337AEA026B23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Dead Season (2024) [Ru/Multi] (1.0.0.7) License GOG
 ```bash
 magnet:?xt=urn:btih:CBD0B13C38EDD0B161D1392E6F1D8DBBDBF35CF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Chains of Fury (2024) [Ru/Multi] (1.0.1.6) License GOG
 magnet:?xt=urn:btih:37DC5F979DD6723B389014B5390178AAD57ABF6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Warhammer 40,000: Inquisitor - Martyr (2018) [Ru/Multi] (2.9.4/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:D15FDAE953F28074CEDA215A18D51AB32E0F9AFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Flotsam (2019) [Ru/Multi] (0.8.5f1) License GOG [Early Access]
 magnet:?xt=urn:btih:AF3111CC7F7FFE432BEFBE317779A68DDC433B8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Forza Horizon 3 (2016) [Ru/Multi] (1.0.125.2/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:A392D1DB791B2FE705882C4978C7B86E7641CF31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Craftomation 101: Programming and Craft предлагает геймерам о
 magnet:?xt=urn:btih:E1114BE6DF9CEC7628B72AF9348783D0D12E7D06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Cult of the Lamb (2022) [Ru/Multi] (1.4.5.593/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:A7F738EE5B341FAF1658066C7536820979F932F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Valley Peaks - это превосходный симулятор скалола
 magnet:?xt=urn:btih:C46CB9951E36F3DFD318663A5DC6BD140EFBD0BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Lunacy: Saint Rhodes - хоррор на выживание от первого 
 ```bash
 magnet:?xt=urn:btih:44C871C243F5B9908D03497257C8A0190F609BDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Warm Snow (2022) [Ru/Multi] (3.1.0.1/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:87D669B563EAC6E16F1888DA27D6F62390565B65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Farming Simulator 25 (2024) [En] (1.2.1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:6A379D5206E22099BEF47A4B17CB4F19C25F0A36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Wall World сочетает в себе несколько жанров. В эт
 magnet:?xt=urn:btih:1914C198556ECFB4B91714AD16938029E168666F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Hello Neighbor 2 создана в мультяшном стиле, а вы ис
 ```bash
 magnet:?xt=urn:btih:D9652C0B124A59ABCCD1826D85E3F18A997CC8E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

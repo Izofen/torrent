@@ -1,3 +1,29 @@
+###  Публикация: 1528449   (734403) от 02.02.2022
+
+Я вешу 300 кг  / My 600-lb Life (2021) WEBRip [H.264/720p] (сезон 10, выпуск 1-3 из 14) [AVO]
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа рассказывает о людях, страдающих лишним весом. Но это не просто парочка лишний килограммов, здесь речь идет от нескольких десятков до сотен килограмм. Каждая история уникальна и заслуживает того, чтобы ее рассказали.Производство: США, MegalomediaЖанр: документальный, реальное ТВРежиссер: Джонатан Назардан, Конор МакЭнэллиПеревод: одноголосый авторский (Vlad Dorf)Субтитры: отсутствуютПродолжительность: серии x ~01:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:381815C19EBC0F84D78E625321D70A6FEA57D2C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1528638   (734428) от 02.02.2022
 
 Во сне и наяву / Faut Pas Rever (2012-2014) DVB (часть 1, эпизоды 1-20 из 20) [FR / RU Sub]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:D19C91CD4EC1635A8D18EBE58967AD29F0911BCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:D19C91CD4EC1635A8D18EBE58967AD29F0911BCA
 magnet:?xt=urn:btih:64A0BCC0665176EF31BFD37B53B0886B1333400D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:64A0BCC0665176EF31BFD37B53B0886B1333400D
 magnet:?xt=urn:btih:BC5967B3B78B617A6A7E6BD1C093651AD84A5CCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:BC5967B3B78B617A6A7E6BD1C093651AD84A5CCA
 ```bash
 magnet:?xt=urn:btih:CCC3F0C627156C6BCA1B332CE3AF7FDFF48062B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:CCC3F0C627156C6BCA1B332CE3AF7FDFF48062B0
 magnet:?xt=urn:btih:E1811769D731769666AF5C77A4757C7295DAE837
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:E1811769D731769666AF5C77A4757C7295DAE837
 ```bash
 magnet:?xt=urn:btih:9333D7064992650FD17A5DF2B15A90C80BD3285C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:9333D7064992650FD17A5DF2B15A90C80BD3285C
 magnet:?xt=urn:btih:F0A4F78E4C152FCED5BE1E37F0A859BF402B93C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:F0A4F78E4C152FCED5BE1E37F0A859BF402B93C4
 ```bash
 magnet:?xt=urn:btih:0628DDE08A9773380F1C3414FE32005831C15746
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:0628DDE08A9773380F1C3414FE32005831C15746
 magnet:?xt=urn:btih:28CCB481A1305D0EEFD73B0E164B9A950DF2D11E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:28CCB481A1305D0EEFD73B0E164B9A950DF2D11E
 magnet:?xt=urn:btih:BA7ECB4790553ECD57AC8EB4307470457FB2D39B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:BA7ECB4790553ECD57AC8EB4307470457FB2D39B
 ```bash
 magnet:?xt=urn:btih:D5B33D10B3E7ED18572D1C01899BB70170B5C5A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:D5B33D10B3E7ED18572D1C01899BB70170B5C5A9
 magnet:?xt=urn:btih:B17055D68550C700DADCA3A2E760085B152543CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:B17055D68550C700DADCA3A2E760085B152543CD
 magnet:?xt=urn:btih:2FE0C27C482C2A54F3D474E47AA17115319B5D01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:2FE0C27C482C2A54F3D474E47AA17115319B5D01
 ```bash
 magnet:?xt=urn:btih:B0EC821AD7B6749FBD8FA4850421B1E641139B2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:B0EC821AD7B6749FBD8FA4850421B1E641139B2B
 magnet:?xt=urn:btih:72FAAAA87BBD536106F14D48E640F031BDB63156
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:72FAAAA87BBD536106F14D48E640F031BDB63156
 ```bash
 magnet:?xt=urn:btih:CE9965ABDB985A66C478DD5CD7780B74EE32B732
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:CE9965ABDB985A66C478DD5CD7780B74EE32B732
 magnet:?xt=urn:btih:B25A24B6FF2175775AAAC060258A9A2084482E35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:B25A24B6FF2175775AAAC060258A9A2084482E35
 ```bash
 magnet:?xt=urn:btih:1C3FD7D3D26059AF89768D9ECA25B617724C45F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:1C3FD7D3D26059AF89768D9ECA25B617724C45F4
 magnet:?xt=urn:btih:FB744ACE06DA70416335F9A0AF27C75BB2D3B2B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:FB744ACE06DA70416335F9A0AF27C75BB2D3B2B3
 ```bash
 magnet:?xt=urn:btih:F4C91B898A56CBBFCABDC019A1E78A0F3E0547C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:F4C91B898A56CBBFCABDC019A1E78A0F3E0547C5
 magnet:?xt=urn:btih:065A2CB5733378B89B6B72D342A4AA83B5E16C4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +598,8 @@ magnet:?xt=urn:btih:065A2CB5733378B89B6B72D342A4AA83B5E16C4C
 ```bash
 magnet:?xt=urn:btih:6A35A2D32BA8842348D0B4D30B719C49843CB94E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:6A35A2D32BA8842348D0B4D30B719C49843CB94E
 magnet:?xt=urn:btih:176FCD1FE72E09AAF8D550704A76988A07BAD448
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:176FCD1FE72E09AAF8D550704A76988A07BAD448
 ```bash
 magnet:?xt=urn:btih:F1D0E821507A308492C66E4DA000E82A988F0B15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,29 +677,7 @@ magnet:?xt=urn:btih:F1D0E821507A308492C66E4DA000E82A988F0B15
 magnet:?xt=urn:btih:FC9F4365B10D5184E31C6D36EDBF22F5B54BD8EA
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527934   (735877) от 30.01.2022
-
-Своя игра (30.01.2022) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Телекомпания: «НТВ»Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:496F01670B75EBFDA0B5785AF1A526A7F0BB09DE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

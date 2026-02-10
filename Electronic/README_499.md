@@ -19,6 +19,8 @@ Richie Hawtin (Plastikman, F.U.S.E., Concept 1, Circuit Breaker, Forcept 1, Robo
 magnet:?xt=urn:btih:C3CFEED4F9111D1097B5705D4C47102EEEB469B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Bloko Ono - Kev’s Dead (2021) Detroit Underground [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:089E855D8EB924BC8923A7C59FB81B1DE25C34E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Lucrecia Dalt - Discography 19 Releases (2011-2021) Human Ear Music, Pruna Recor
 magnet:?xt=urn:btih:19C131861BF60020F6A08A46B1446A3A3B43EED6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Jim Brickman - Jim Brickman’s Piano Bar: 30 Love Songs Of The 50s and 60s (202
 ```bash
 magnet:?xt=urn:btih:E57299D978E0A6380EDC584CA03902243B5E165D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Dewtone Recordings - Label-Pack 56 Releases (2011-2021) [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:27F65ADCE10CF1AF62A057C70B0A965AE8FAA43D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ Yimino - Discography 13 Releases (2003-2021) Ominim Records [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:4C4C261441856897BBC4F3199621A2FCC5BDE8AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ VA - Retro Active 1-7 (Rare & Remixed) (2004-2010) [FLAC|Lossless|image + .cue] 
 magnet:?xt=urn:btih:5A1D28402F84C643B0D5531576729A265B78B85B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ Dev Sk - This is my [peE]P (2015) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 magnet:?xt=urn:btih:23B533D022AE090C9046B89081C12A388CF5979B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -233,6 +249,8 @@ Baba Gnohm - Forgotten Stories (2021) [FLAC|Lossless|WEB-DL|tracks] <Downtempo>
 ```bash
 magnet:?xt=urn:btih:963FEFA4382D69DB970457B3313BB105C45DFBAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +279,8 @@ Airto - Eighteen Things I've Never Imagined (2018) Monumental Netlabel [FLAC|Los
 magnet:?xt=urn:btih:2C81D6B8543D71879663A899887ADAC6F5E1DF10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +308,8 @@ CD1 The First Cycle: Nezeru Enti Sebauem Neterxertet
 magnet:?xt=urn:btih:E4C8EF6AE18BD924912B51E51B211027625E04B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +333,8 @@ Wil Bolton (aka CHEjU) - Discography 30 Releases (2010-2021) [FLAC|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:2E60FAC594D1AC86D924D65C3E15A489631BFA21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +360,8 @@ The Tin Box - Discography 14 Releases (2015-2021) Audiobulb Records, Hibernate R
 ```bash
 magnet:?xt=urn:btih:BB92D0C2DF56E6E3501F9B917E5C522384252802
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +390,8 @@ magnet:?xt=urn:btih:BB92D0C2DF56E6E3501F9B917E5C522384252802
 magnet:?xt=urn:btih:7000A642B608FB53D5D993CCC443165E57156E11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +418,8 @@ VA - Vocal Bliss Lounge (2021) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 ```bash
 magnet:?xt=urn:btih:4D8D8B8F9C8805319ED198D65CE89778164BFB5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +448,8 @@ Fractal - Human Error (2021) Aliens Production [FLAC 2.0|44.1/24|tracks|WEB-DL] 
 magnet:?xt=urn:btih:2078D57643853F8971DEC507FB6736B4F9812AFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +476,8 @@ Fractal - A Unique Hybrid (2021) Aliens Production [FLAC 2.0|44.1/24|tracks|WEB-
 ```bash
 magnet:?xt=urn:btih:263492B53F42724241442CA7296E6C37CB25DC61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +506,8 @@ Robert Hood - The Blueprint EP (2021) Rekids [FLAC|Lossless|WEB-DL|tracks] <Tech
 magnet:?xt=urn:btih:AAAE47ECF8DF873716C03AADB60F081327315C09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +534,8 @@ Chase Dobson - perpetual motion (2021) c.db.sn [FLAC 2.0|48/24|tracks|WEB-DL] <D
 ```bash
 magnet:?xt=urn:btih:A4F25A8F7343CB697268669980A6DD519D832EF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +564,8 @@ Eluvium - For Thousands Of Miles (2021) [FLAC 2.0|48/24|tracks|WEB-DL] <Ambient,
 magnet:?xt=urn:btih:247A035CDC591A7D47D8AD15805E7357240C42F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +592,8 @@ VA - Genome (2021) Point Source Electronic Arts [FLAC 2.0|48/24|tracks|WEB-DL] <
 ```bash
 magnet:?xt=urn:btih:DA6A39640AE41ABE99F11CF495D87E9E08A70C97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +622,8 @@ VA - Genome (2021) Point Source Electronic Arts [FLAC|Lossless|WEB-DL|tracks] <I
 magnet:?xt=urn:btih:C7163435D89E2533850D4862526CC7D41B676F0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +647,8 @@ Julia Kent - Discography 22 Releases (2007-2021) Leaf Records [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:B7BA6AEAD795061D97D3E18330810BDA129F7160
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +677,8 @@ VA - Watching the Sunset: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:2416BC9860BF003EBB16DF1FA6B99F8E61D53358
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +706,8 @@ Sound Quelle - Trait (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive Hous
 magnet:?xt=urn:btih:F43961E2B41AAB61EB6D34EADBA6FE3C8FBB1AEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -684,6 +734,8 @@ iTAL tEK - Discography 27 Releases (2007-2020) Planet Mu [FLAC|Lossless|tracks+.
 ```bash
 magnet:?xt=urn:btih:44D8A5EF7B3607FE4D626A00479ED66324C8C8EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

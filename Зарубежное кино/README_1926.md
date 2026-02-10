@@ -1,27 +1,3 @@
-###  Публикация: 1096056   (921935) от 22.01.2017
-
-День независимости: Возрождение / Independence Day: Resurgence (2016) BDRip [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Используя инопланетные технологии, жители Земли создали специальную программу по защите планеты. Но ничего не может нас спасти от нового, еще более разрушительного и масштабного инопланетного вторжения — только смелость нескольких героев, которые единственные могут спасти наш мир от уничтожения.Производство: СШАЖанр: Фантастика, Боевик, ПриключенияРежиссер: Роланд ЭммерихАктеры: Лиам Хемсворт, Джефф Голдблюм, Джесси Ашер, Билл Пуллман, Майка Монро, Села Уорд, Уильям Фихтнер, Джадд Хёрш, Брент Спайнер, Патрик Ст. Эсприт.Перевод: Авторский (одноголосый закадровый) Андрей ГавриловПродолжительность: 01:59:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E021E11923ECACD8E111E18E266426C2F8CF92DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095726   (921938) от 22.01.2017
 
 Бен-Гур / Ben-Hur (2016) BDRip
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:E021E11923ECACD8E111E18E266426C2F8CF92DC
 ```bash
 magnet:?xt=urn:btih:123BD4B392F32BCC8ED2345208FF2BBD660B4306
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:123BD4B392F32BCC8ED2345208FF2BBD660B4306
 magnet:?xt=urn:btih:7AEA04B7DA963983BA7FEDDBECFABA1A993F7AB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:7AEA04B7DA963983BA7FEDDBECFABA1A993F7AB6
 ```bash
 magnet:?xt=urn:btih:BD378A4DB2521FB632C1310B03A6518CF95A2765
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:BD378A4DB2521FB632C1310B03A6518CF95A2765
 magnet:?xt=urn:btih:3840C54D23E286A5537DA2FFEB37FFE9B59E4BCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:3840C54D23E286A5537DA2FFEB37FFE9B59E4BCC
 ```bash
 magnet:?xt=urn:btih:0F14F0EEE7EDAD25B0E8DA43376144DDB1833431
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:0F14F0EEE7EDAD25B0E8DA43376144DDB1833431
 magnet:?xt=urn:btih:EAAED7B3ABCD492DF9EF6543617FD035CE228696
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:EAAED7B3ABCD492DF9EF6543617FD035CE228696
 ```bash
 magnet:?xt=urn:btih:135D33C3780C5A09C7CA888262A8A22C21512788
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:135D33C3780C5A09C7CA888262A8A22C21512788
 magnet:?xt=urn:btih:A6D1F9B419F7500340B8DE0361998F4A4C0D08FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ magnet:?xt=urn:btih:A6D1F9B419F7500340B8DE0361998F4A4C0D08FB
 ```bash
 magnet:?xt=urn:btih:0EC883BD9F055114D2910BABE5D29061508C7E26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:0EC883BD9F055114D2910BABE5D29061508C7E26
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ magnet:?xt=urn:btih:0EC883BD9F055114D2910BABE5D29061508C7E26
 ```bash
 magnet:?xt=urn:btih:541A88E6012A477E8F197FB8F580CBFDB1187176
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:541A88E6012A477E8F197FB8F580CBFDB1187176
 magnet:?xt=urn:btih:34C1E6E87EEA0150673BE7A01C7D7634CC384BA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ magnet:?xt=urn:btih:34C1E6E87EEA0150673BE7A01C7D7634CC384BA9
 ```bash
 magnet:?xt=urn:btih:F1D3E266D467668F3F77F712CD9D0D53BBF1D178
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ magnet:?xt=urn:btih:F1D3E266D467668F3F77F712CD9D0D53BBF1D178
 magnet:?xt=urn:btih:3C8E095FCC4B7A8CEED407C7CEB0250F3068C4B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ magnet:?xt=urn:btih:3C8E095FCC4B7A8CEED407C7CEB0250F3068C4B7
 ```bash
 magnet:?xt=urn:btih:88BFC54864C1F4D9FB37A9DDCAF1B9775272CAE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ magnet:?xt=urn:btih:88BFC54864C1F4D9FB37A9DDCAF1B9775272CAE8
 magnet:?xt=urn:btih:12EA6F548155E60D9A1159FD16B2EC8A80A49EF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ magnet:?xt=urn:btih:12EA6F548155E60D9A1159FD16B2EC8A80A49EF6
 ```bash
 magnet:?xt=urn:btih:D55D17F7C0D932FBE68ECABDB8FC21BD4F6EDDA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ magnet:?xt=urn:btih:D55D17F7C0D932FBE68ECABDB8FC21BD4F6EDDA8
 magnet:?xt=urn:btih:DF552F73CF6D519D2FC723D301F3C85A6FA8F4EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ magnet:?xt=urn:btih:DF552F73CF6D519D2FC723D301F3C85A6FA8F4EC
 ```bash
 magnet:?xt=urn:btih:0E789FECF3C886554E2595A61D9110E17AEE842F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +514,8 @@ magnet:?xt=urn:btih:0E789FECF3C886554E2595A61D9110E17AEE842F
 magnet:?xt=urn:btih:8AA3AE21CE75643AFCE5E2D3A3D163D436AFF284
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +540,8 @@ magnet:?xt=urn:btih:8AA3AE21CE75643AFCE5E2D3A3D163D436AFF284
 ```bash
 magnet:?xt=urn:btih:A9FDBEC2C90ED86B8ABD2CD6149305144FCCF825
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +568,8 @@ magnet:?xt=urn:btih:A9FDBEC2C90ED86B8ABD2CD6149305144FCCF825
 magnet:?xt=urn:btih:0DE90EC3E13097C1EFD5B74FC6688E231F177023
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +593,8 @@ magnet:?xt=urn:btih:0DE90EC3E13097C1EFD5B74FC6688E231F177023
 ```bash
 magnet:?xt=urn:btih:F014FA3E584ACE63859E324C8FC8DF973692EE41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +620,8 @@ magnet:?xt=urn:btih:F014FA3E584ACE63859E324C8FC8DF973692EE41
 magnet:?xt=urn:btih:A6ED3B809BFF5EB0E8E6C8D3975597BE1B8033E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +645,34 @@ magnet:?xt=urn:btih:A6ED3B809BFF5EB0E8E6C8D3975597BE1B8033E9
 ```bash
 magnet:?xt=urn:btih:38A32201970E7A247106CAEEDEBAAAE6A160FCE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988258   (922338) от 19.02.2016
+
+По ту сторону убийства / Murder on the Home Front (2013) BDRip [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922338.jpg" />
+</div>
+
+
+###  Подробнее
+
+После совершенного во время бомбежки убийства Молли Купер становится незаменимым помощником патологоанатома Леннокса Коллинза, не слишком хорошо знакомого с делами об убийствах, но одержимого в достижении правды. Новый подход к сохранению места преступления в неприкосновенности, скрупулезное исследование каждой детали путем химического анализа и других доступных (   Читать дальше...   )Производство: ВеликобританияЖанр: Детектив, ТриллерРежиссер: Джеффри СаксАктеры: Джеймс Флит, Аманда Фейрбэнк-Хайнс, Холли Аткинс, Патрик Кеннеди, Айэйн МакКи, Джон Боуи, Томми МакДоннел, Крис Коулин, Джэйк Каррен, Тэмзин Мёрчант, Марк Флиттон, Гай УильямсПеревод: Одноголосый закадровый, любительскийПродолжительность: 01:33:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED18AC26710E17618EEC526B3F8980AFD51731C5
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:65D659003B4AC979D3C514613559B7939B2208E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:65D659003B4AC979D3C514613559B7939B2208E2
 ```bash
 magnet:?xt=urn:btih:F50031E2D691587882E8FA60BC2B9696B0F0B925
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Call Filter / Фильтр Звонков v1.30.5 Mod by Viktor245 [Ru/En]
 magnet:?xt=urn:btih:B1A824C2F5746D9F9C0BFD2A0942F73CC5852701
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Mi Home - это приложение для управления умным д�
 ```bash
 magnet:?xt=urn:btih:4D909ECC7CCA9BBA59571BB3C9DA9A4E0D0F2137
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ AIDA64 v2.17 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:47CE1E049C3302AA2F227F0E7A728FF9BC87231B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:47CE1E049C3302AA2F227F0E7A728FF9BC87231B
 ```bash
 magnet:?xt=urn:btih:8971DEE2B0980782FE4510FED4243B15B9D054DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:8971DEE2B0980782FE4510FED4243B15B9D054DD
 magnet:?xt=urn:btih:4B59F6D947B3D77B175928458DD6B1D5D3A43C21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ WaveEditor для Android™ — это профессиональный инс�
 ```bash
 magnet:?xt=urn:btih:7F4BFFB32CE4B8D1D9FF09C336936DCE71F06598
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Jewel Legend: игра три в ряд v3.21.1 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:398703D2A0402ECE3A5AFC5FC0A39DCBD836CDC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ OTT Онлайн прямое телевидение, в котором вы н�
 ```bash
 magnet:?xt=urn:btih:3ED9BE5C246B65567FD0076A7A8DF8B067D2F22B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ Simple PDF Reader \ Простой PDF Reader v1.0.98 Mod by Alex.Strannik [Ru/E
 magnet:?xt=urn:btih:2405C08B287689EC00D0867764BEA86AD880668C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ English Galaxy - уникальное приложение для тех, кто
 ```bash
 magnet:?xt=urn:btih:DE1DF96F45FECE2298587CE3EDFEFB57EB16E62E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:DE1DF96F45FECE2298587CE3EDFEFB57EB16E62E
 magnet:?xt=urn:btih:8197AD53A1F3FF202B53EC8C455F77278A1DFA8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Truecaller: AI Call Blocker / Oпределитель номера v26.3.5 Mod b
 ```bash
 magnet:?xt=urn:btih:DC9AD2397AAEC5D79C61B8B0F269AEE1468C1E60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:DC9AD2397AAEC5D79C61B8B0F269AEE1468C1E60
 magnet:?xt=urn:btih:9EAC6078051FFA9D97F0780B82379854DE931A7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Jigsawscapes® - Пазлы v5.0.2 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:4FDA1FEA2F4DA7FDB3E586C8829F38CE55BE62EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:4FDA1FEA2F4DA7FDB3E586C8829F38CE55BE62EE
 magnet:?xt=urn:btih:F3AA5286B90F85321C3C7DBBF171F424027713ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Happy Color — самая популярная и излюбленная бес
 ```bash
 magnet:?xt=urn:btih:9DA4D87984992CB2CCA437AF87C438397A8322B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ MiX Camera вдохновлена ​​камерой Mi, но добавляе
 magnet:?xt=urn:btih:67376E04E79DA1BD54F2CA6810418EF4924F78AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:67376E04E79DA1BD54F2CA6810418EF4924F78AE
 ```bash
 magnet:?xt=urn:btih:C5B61759D578D2F59C9117AF569A0D206328824F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:C5B61759D578D2F59C9117AF569A0D206328824F
 magnet:?xt=urn:btih:F5EF8DCA6A9122F175D645836D314F5AB57E6BA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ Ventusky: Прогноз погоды v50.3 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E294BEC0FCF913F83D33C572E9C153C08EE6A166
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 magnet:?xt=urn:btih:9600E75A20D3138D304492EA9BFCADB27D5A55E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ Taskito - это приложение для управления задачам
 ```bash
 magnet:?xt=urn:btih:2D2C6378B3A156EDCC8DD125D337D67C0E69B1BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ Auto Reply: автоответчик v6.5 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:FCD20C955626114A3922640A6ADA8B08ED92FC6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ EOBD Facile - автосканер обд2 последнего поколени
 ```bash
 magnet:?xt=urn:btih:ED11F43EAC7F68053E0DE9FB7D8EF51654E30150
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

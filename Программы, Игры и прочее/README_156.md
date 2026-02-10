@@ -19,6 +19,8 @@ Floor Plan Creator v3.6.2 [Ru/En]
 magnet:?xt=urn:btih:B5AC32E72186846914FC374B9B33597B208BA136
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Monect PC Remote - это бесплатное приложение, котор�
 magnet:?xt=urn:btih:EA839F0A89E711A8EB047C5320310234FBCA4131
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Engineering Tools : Mechanical v206 [Ru/En]
 magnet:?xt=urn:btih:84FE0419DA9D2AD0D913CC1DC961177BEFDD4128
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Paranoia: Родительский контроль v1.0.7.1 Premium [Ru]
 ```bash
 magnet:?xt=urn:btih:E405928A3138DADDD0ED6A4645384EE118ED8120
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Film Maker - лучший редактор видео и бесплатный в
 magnet:?xt=urn:btih:EE6C17E1689912FE7B433722E3CB9A90F1A55032
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ Fuelio— простое и удобное в использовании при�
 magnet:?xt=urn:btih:1FD034CD086453A67F2EF55D2A92EDBFB6901730
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Drops Learning Languages v35.47 [Ru/Multi] - Изучение иностранн
 ```bash
 magnet:?xt=urn:btih:18C5C3B861BD433CFDFB9934FAE0B2437CB1DB83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ WEATHER NOW v0.3.40 Premium [Ru] - прогноз погоды, метео-ра�
 magnet:?xt=urn:btih:EC63931746780D7533FEB5F39D5922F1D16710A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Fake GPS Joystick & Routes Go v1.6.1 [En]
 ```bash
 magnet:?xt=urn:btih:46E3521785368D61F0C5E19EEAC97929A179D9E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ PortraitAI - Аватар эпохи Ренессанса v1.3.11 [En]
 magnet:?xt=urn:btih:F2E83A00EC1B77A671E59AB0569CC76B4AB9F3CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ LibriVox AudioBooks v2.7.0 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B87F50D397C234A847F36D7FA0578CBEB8634886
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:B87F50D397C234A847F36D7FA0578CBEB8634886
 magnet:?xt=urn:btih:5B1F20C7B4612B7D32A81F89CDB8CCA03234888E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ Point Blur) – простое в использовании приложени�
 ```bash
 magnet:?xt=urn:btih:755EB28BB84734E9611A37ECAE7B9DFD9626D1AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ Photo Grid - Collage Maker Premium v7.90 [Ru/Multi]
 magnet:?xt=urn:btih:FF44D1FD61742333AEA8A6D22FE9B84068DA5095
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:FF44D1FD61742333AEA8A6D22FE9B84068DA5095
 ```bash
 magnet:?xt=urn:btih:F382B0086DAFF8CA2C1BF667D90F38218ED00A73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ Plague M.D. - Вам предстоит превратиться из сумас
 magnet:?xt=urn:btih:C360DA977ACB73DB858D851D02CEEF7946C8A6FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ Family Island – Приключения на ферме – захватыва�
 ```bash
 magnet:?xt=urn:btih:8E25364D54E354B226F3FBD6781B62007F3436FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ Hockey All Stars – игра, которая станет пропуском в
 magnet:?xt=urn:btih:820522AA0AAD0C34F89679C3AFFC500BA99D35CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ Cut Paste Photos v9.10.3 Pro [Ru/En] (обновляемая)
 ```bash
 magnet:?xt=urn:btih:B978FAFE69D887DCA7F41C72FDBAE45C16E44336
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ Brain Test 2: Хитрые рассказы v0.155 [Ru/Multi] (обновляе�
 magnet:?xt=urn:btih:79D607D6B2272CD6CF0B77D56B9D25510A434B11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ Solid Explorer - это приложение для управления фай�
 ```bash
 magnet:?xt=urn:btih:68B5E89A94FA809C19E9818F2FE551679C4BF230
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +585,8 @@ Voice Training / Голосовая тренировка ver.Autoscroll Fix (120
 magnet:?xt=urn:btih:DD15E02C6AFCFC96910192A013B95A0054D9BF3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +610,8 @@ Selena v0.2.18 [Ru/Multi] (обновляемая)
 ```bash
 magnet:?xt=urn:btih:D6C8EA09D0A12D62D7C6B85FC2D309564D82F826
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +638,8 @@ magnet:?xt=urn:btih:D6C8EA09D0A12D62D7C6B85FC2D309564D82F826
 magnet:?xt=urn:btih:F3753978D219D4413C04FCD361A554C9F244129A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ DailyArt - Daily Dose of Art v2.9.1 [Ru/Multi]
 magnet:?xt=urn:btih:9933FC393240613CD76AF66D93794D67429373BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ Mindustry – захватывающая игра на андроид, где в
 ```bash
 magnet:?xt=urn:btih:661A2AE7621519890E3B47864AEE9FD110DD3229
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

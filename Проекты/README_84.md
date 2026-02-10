@@ -19,6 +19,8 @@ VideoHive - 4TV Broadcast Package - 5869372 [AEP]
 magnet:?xt=urn:btih:FF877F89D55A2300598D910F1FD719CD0A467BC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ VideoHive - Animated Party Flyers 2.0 - 24684641 [AEP]
 ```bash
 magnet:?xt=urn:btih:DF4132F14E32788FE7F6CFB57547DF5922C5C265
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Photographer Portfolio - это динамичный, стильный и про
 magnet:?xt=urn:btih:4449B37D44A217300B5F3FDCA27E4EE4BA93CC13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ ProShow Producer - Happy Fall Y'all [PSH]
 ```bash
 magnet:?xt=urn:btih:31A25089CFDFA5F8317F0AB3D8896A306CA91204
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ New Year Countdown 2019 - это 60 секунд обратного отсчет
 magnet:?xt=urn:btih:BB100B5933F1900A5C10DEA85EDE45270921F8C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ VideoHive - Motorcycle Reveal - 24634902 [AEP]
 ```bash
 magnet:?xt=urn:btih:1B1588310D5FBE78DFC4C7C90DADBAD7E3E1E7AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:1B1588310D5FBE78DFC4C7C90DADBAD7E3E1E7AB
 magnet:?xt=urn:btih:518743FCF205D532FE0BC13EE5BFF20278FE93C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:518743FCF205D532FE0BC13EE5BFF20278FE93C4
 ```bash
 magnet:?xt=urn:btih:5E1561EDC5116FC92F7C2F7477CB5DD5521D5C4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:5E1561EDC5116FC92F7C2F7477CB5DD5521D5C4E
 magnet:?xt=urn:btih:F35E8E8C618B2689B9EF9F8EF1A053AE41B51D49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:F35E8E8C618B2689B9EF9F8EF1A053AE41B51D49
 ```bash
 magnet:?xt=urn:btih:26B005A5AF263168BB0938F62055DF2C96FBC7D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Pop Dreams - это современный, свежий и красочный �
 magnet:?xt=urn:btih:565A707F5E5E1026109B5A26037D1683516A6D46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Photo Gallery A Perfect Day - Это элегантная и современн�
 magnet:?xt=urn:btih:A1A941BC35D50AA1341EB8D8959BFDAFD363C1AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ News Plus - Complete Broadcast Package - пакет графики для нов
 ```bash
 magnet:?xt=urn:btih:844F1F8CD265E1CEE561920D912485C53EB02A84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ VideoHive - 10 Film Credits - 770597 [AEP]
 magnet:?xt=urn:btih:C93F19593EF9BDC182BBCD62187553C92DB3D9CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:C93F19593EF9BDC182BBCD62187553C92DB3D9CD
 ```bash
 magnet:?xt=urn:btih:031709F16DE997D3B6CE0095D60A6209A6D3691F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:031709F16DE997D3B6CE0095D60A6209A6D3691F
 magnet:?xt=urn:btih:70B3401A5F0B537F3323F0B9DEC0449ACC619189
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Broadcast TV Graphic Package - пакет графических элемент�
 ```bash
 magnet:?xt=urn:btih:4AFF2E1B0DD09058CADBEC36A0555E6ADF271E8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:4AFF2E1B0DD09058CADBEC36A0555E6ADF271E8B
 magnet:?xt=urn:btih:DB0F0313AD349F57E84B241CBD5D89052578B97F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ Human Scan V2 - красивая имитация сканера человеч�
 ```bash
 magnet:?xt=urn:btih:61E40AE98D40894EEE741EDA642846C92EF6F2FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ Watercolor Parallax Opener - имеет вид настоящего кинема
 magnet:?xt=urn:btih:1434DAFF9B1ED5640FB4407E105F1C0F78B92B75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:1434DAFF9B1ED5640FB4407E105F1C0F78B92B75
 magnet:?xt=urn:btih:FCA7874D66A6E087F987530473205CB8CF70FB75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ Conflict - Opening Titles - еще один проект из кинематог
 ```bash
 magnet:?xt=urn:btih:4BABE5E209E29145FC6D649F4E4B8590F36B79EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:4BABE5E209E29145FC6D649F4E4B8590F36B79EF
 magnet:?xt=urn:btih:93014C01ED2EC38187AF7A3C89FD910BFC05012C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ VideoHive - Traveler's Sketchbook - Instagram Stories Pack -  24352947 [AEP]
 ```bash
 magnet:?xt=urn:btih:0A3B80E6EA611F122B892D8D796077068A42934D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ VideoHive - Infinity Tool - The Biggest Pack for Video Creators - 23736432 [AEP,
 magnet:?xt=urn:btih:223822E29471CBE85332CDB0DCC45473A351A7B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ VideoHive - Sport Broadcast Opener - 22354686 [AEP]
 ```bash
 magnet:?xt=urn:btih:F81EEF4B82F44C2AA2D4BADDDA6B0C19B7C77B50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

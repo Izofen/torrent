@@ -19,6 +19,8 @@ Tempest Rising (2025) [Ru/Multi] (1.0.0+43454/dlc) Repack seleZen
 magnet:?xt=urn:btih:7639CE8EC54D490C5A33DCA7A0BB1DE050FA2F95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Commandos: Origins (2025) [Ru/Multi] (1.0.2.75454/dlc) Repack Decepticon [Deluxe
 ```bash
 magnet:?xt=urn:btih:857A05B1FD79B4A873266AA26BA874373288B967
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Frontline: Assault Corps WW2 (2025) [Ru/Multi] (1.0.24L) Repack Let'sРlay
 magnet:?xt=urn:btih:0D00C887AA30F2887A2B8DEC9D7E5079DE4DFD21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Field of Glory 2: Medieval - пошаговая стратегия, перено
 ```bash
 magnet:?xt=urn:btih:5B71A45A229AC32C547F53A48FF8A11E404EA299
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Front Mission 2: Remake - обновленная версия классичес
 magnet:?xt=urn:btih:A16BCF82D9CF7CC0A2DEC542CE88568EE4C1455E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Astrea - игра c уникальными особенностями: здес�
 ```bash
 magnet:?xt=urn:btih:DF63198E3494FDE76647983BC4ED91F80E7C6636
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ FRONT MISSION 2: Remake (2024) [Ru/Multi] (1.0.9) Repack Let'sРlay
 magnet:?xt=urn:btih:49D26C80E2F75E3772B92EC773CABF564A47E164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Monaco 2 (2025) [Ru/Multi] (1.0.0+18962) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:8E4073D1F66158D83F197F8407CB69C9ECDCACF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Monaco 2 (2025) [Ru/Multi] (1.0.0+18962) Repack Pioneer
 magnet:?xt=urn:btih:FB286CBE54663A906D7CC64D47325AD9F752D52C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Commandos: Origins (2025) [Ru/Multi] (1.0.0.74101/dlc) Repack FitGirl [Deluxe Ed
 ```bash
 magnet:?xt=urn:btih:6A190BD36CB3EC977A9B9A459A68FEE4CD18B4D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Commandos: Origins (2025) [Ru/Multi] (1.0.0.74101/dlc) Repack seleZen [Deluxe Ed
 magnet:?xt=urn:btih:C1433C2B4A9C6307149CA3011195C083206B6502
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Commandos: Origins (2025) [Ru/Multi] (1.0.0.74101/dlc) Scene FAiRLiGHT [Deluxe E
 ```bash
 magnet:?xt=urn:btih:DF5FC1442730D9F356FE97892B59E98D20586B07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Astrea Six-Sided Oracles (2023) [Ru/Multi] (1.2.313) Repack Let'sРlay
 magnet:?xt=urn:btih:0E2347AD339587FA407BEE4A87D229C2C146F63D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Songs of Conquest - пошаговая стратегия, вдохновлен�
 ```bash
 magnet:?xt=urn:btih:BD787EBF5AE5DCB44BB160317852E5486BC6950F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Grit and Valor - 1949 (2025) [Ru/Multi] (1.0.120/dlc) Repack FitGirl [Resistance
 magnet:?xt=urn:btih:31558EC268AD493A6CC754AC00A57AD1FA98BDD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Nordhold - это захватывающая Tower Defense игра, идеал�
 ```bash
 magnet:?xt=urn:btih:59613E8A9C1236DC072DB1EF3BBB291FE0BCD921
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (1.40.14/dlc) Scene Rune
 magnet:?xt=urn:btih:E734B0654F09CD45A087E7000BE1D2144C3E366F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Jagged Alliance 3 (2023) [Ru/Multi] (1.5.1.366685) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:E16C1069AE504D3620B6D0B0C21B1AB5F2C13CF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Eldrador Creatures Shadowfall (2025) [Multi] (20250131) Repack FitGirl
 magnet:?xt=urn:btih:25BD6498B510F0A7BFA8CE67B463A3A6CAE5C132
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Jagged Alliance 3 (2023) [Ru/Multi] (1.5.1.366685) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:E3090BA32262EF07C764E78B0B2A581BED644169
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Frontline: Assault Corps WW2 (2025) [Ru/Multi] (1.0.20) Repack FitGirl
 magnet:?xt=urn:btih:732644725CAC1A946053F78083681AD339AAD56B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Combat Mission: Fortress Italy предлагает детальный и зах
 ```bash
 magnet:?xt=urn:btih:659C84A5DFF650BB34D9F5303F421CE67357FE5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Combat Mission Cold War - пошаговая стратегия, действи�
 magnet:?xt=urn:btih:8FA3CA63AACB4ECC9BB0469818989A528418A54D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Combat Mission: Final Blitzkrieg погружает вас в заключите
 ```bash
 magnet:?xt=urn:btih:A3648A7BF0BEBDEF02FD4D661E842C621C638574
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Panzer Corps 2 - Field Marshal Edition - ультимативное люксов
 magnet:?xt=urn:btih:ECB123E257A49E29F7D736412D2E0837B43A46B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Combat Mission: Black Sea (2021) [Multi] (2.18.01/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:14F37C98412EF2B59F3EB6A713B1E0EED59685F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

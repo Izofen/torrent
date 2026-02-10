@@ -1,3 +1,29 @@
+###  Публикация: 1279168   (766855) от 28.01.2019
+
+Планета кошек (2015) HDTV [H.264/1080i-LQ] (серии 1-8)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они есть везде: от Шпицбергена до Антарктиды. Они без борьбы победили социальные сети. И люди косятся на того, кто признается в нелюбви к ним. Кошки! Они очень-очень разные. Но автор программы Виктор Логинов обошел весь свет, чтобы познакомить зрителя с самыми-самыми. Каждый выпуск программы – одна порода. Откуда взялась шотландская вислоухая и почему ей не выжить (   Читать дальше...   )Производство: РоссияЖанр: Документальный, познавательный, кошкиРежиссер: Виктор ЛогиновЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 8 х ~00:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD09F90153DBFAA1179B49689BD62FC60676D559
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279148   (766857) от 28.01.2019
 
 Внутренняя Монголия / Neimenggu (2017) WEBRip [H.264/720p-LQ]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:31493719481DF423CDEE2376CA2411265869BBAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:31493719481DF423CDEE2376CA2411265869BBAF
 magnet:?xt=urn:btih:2F78F1C4C805FD5129C1B4A0CF8619898FA0486B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:2F78F1C4C805FD5129C1B4A0CF8619898FA0486B
 ```bash
 magnet:?xt=urn:btih:63A0B97E6F89604C8C28696DE28CD1B1B0CD7EC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:63A0B97E6F89604C8C28696DE28CD1B1B0CD7EC3
 magnet:?xt=urn:btih:3B3C3130F755478BFD6D53F6FEDB01A8B4753C2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:3B3C3130F755478BFD6D53F6FEDB01A8B4753C2D
 ```bash
 magnet:?xt=urn:btih:FBF72B4E382A8FD43545486C7B2B360EF905D8E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:FBF72B4E382A8FD43545486C7B2B360EF905D8E4
 magnet:?xt=urn:btih:2C2282EAF0E3668025E56E9B215728526DF31F50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:2C2282EAF0E3668025E56E9B215728526DF31F50
 ```bash
 magnet:?xt=urn:btih:281B3876AB2439A8B51D3DBD18CB395492DA5C54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:281B3876AB2439A8B51D3DBD18CB395492DA5C54
 ```bash
 magnet:?xt=urn:btih:B0FE4F6EAFCD0A0222DE9C192D115BC5EBC5BD2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:B0FE4F6EAFCD0A0222DE9C192D115BC5EBC5BD2D
 magnet:?xt=urn:btih:C5A1095DB1F16528CB873C7959168135A0B03601
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:C5A1095DB1F16528CB873C7959168135A0B03601
 magnet:?xt=urn:btih:CFC5E60056BBAFB819B804A13B0CDC5B4485EAC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:CFC5E60056BBAFB819B804A13B0CDC5B4485EAC5
 magnet:?xt=urn:btih:60AB259B05A5B47A462A406B3FD2DFF545F216A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:60AB259B05A5B47A462A406B3FD2DFF545F216A3
 ```bash
 magnet:?xt=urn:btih:4F6D70C09C13B697150196F6350CFF99E7031D49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:4F6D70C09C13B697150196F6350CFF99E7031D49
 magnet:?xt=urn:btih:A8E3C1B5A7AFA639000B34171915DFFFF0CF130E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:A8E3C1B5A7AFA639000B34171915DFFFF0CF130E
 ```bash
 magnet:?xt=urn:btih:883F67AD4D6177D6ADDF8EB973E83A616FE9CC4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:883F67AD4D6177D6ADDF8EB973E83A616FE9CC4E
 magnet:?xt=urn:btih:EF011A8DCFE113D2EB3FFE5EB5D11E8FBD3424E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:EF011A8DCFE113D2EB3FFE5EB5D11E8FBD3424E8
 ```bash
 magnet:?xt=urn:btih:5D18AEF71A0C998CE4BF546D284475ECCC0585E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:5D18AEF71A0C998CE4BF546D284475ECCC0585E4
 magnet:?xt=urn:btih:6F824CA3694592FFF52FE822E8A8BA4028547D8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:6F824CA3694592FFF52FE822E8A8BA4028547D8A
 ```bash
 magnet:?xt=urn:btih:640CD5B801FFB3A35101E2B11E3906E04B3B02BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:640CD5B801FFB3A35101E2B11E3906E04B3B02BB
 magnet:?xt=urn:btih:811C289D81C29ED4861F9C6C3F3C52E0599053ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:811C289D81C29ED4861F9C6C3F3C52E0599053ED
 ```bash
 magnet:?xt=urn:btih:CC74F8036A397DA2C06E665A302E2EDE2F045EEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +577,8 @@ magnet:?xt=urn:btih:CC74F8036A397DA2C06E665A302E2EDE2F045EEF
 magnet:?xt=urn:btih:90E69B1F60FB4E4E797B366FFA815F8158FCFF50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:90E69B1F60FB4E4E797B366FFA815F8158FCFF50
 magnet:?xt=urn:btih:32EFA42D9CE0A686CDDE0F1F93C7FAA2661CBDB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:32EFA42D9CE0A686CDDE0F1F93C7FAA2661CBDB9
 ```bash
 magnet:?xt=urn:btih:78DFBD9A159C4AFAF0663B8519D62FD720C2C288
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +656,8 @@ magnet:?xt=urn:btih:78DFBD9A159C4AFAF0663B8519D62FD720C2C288
 magnet:?xt=urn:btih:DCB2384141E986F3EF8E54463796AA7042FAAF70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,31 +682,7 @@ magnet:?xt=urn:btih:DCB2384141E986F3EF8E54463796AA7042FAAF70
 magnet:?xt=urn:btih:9103C5A9F5141D48967C7A989762277AB49C74F0
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213486   (767300) от 18.03.2018
-
-Новая русская философия Ивана Охлобыстина (05.03.2018) WEBRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767300.jpg" />
-</div>
-
-
-###  Подробнее
-
-В своей авторской программе известный актер, кинорежиссер, сценарист, писатель Иван Охлобыстин отвечает на вопросы зрителей со всего света. Это вопросы о любви, об империи, вере, об искусстве и о личном-житейском. Нестандартные ответы на самые неожиданные вопросы. Выходит несколько раз в месяц.
-
-В этом выпуске программы  ее ведущий  Иван Охлобыстин поучаствовал в выборе (   Читать дальше...   )Производство: Россия, НАО «Царьград медиа»Жанр: Телепередача, авторская передачаСубтитры: ОтсутствуютПродолжительность: 00:31:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B245A794A48B43F9E933D89EB5DBFD8CFC9D7FE4
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

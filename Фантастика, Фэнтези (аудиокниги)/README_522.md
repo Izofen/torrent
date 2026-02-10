@@ -1,3 +1,31 @@
+###  Публикация: 1485202   (1005623) от 24.07.2021
+
+Маргарита Ардо | Дракон на передержке (2021) [MP3, Екатерина Хлыстова]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005623.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Не ходите за белым кроликом. И за пестрым тоже. Это ловушка!
+
+Но моя любовь к животным сыграла со мной злую шутку. Я очутилась в другом мире, и там мне придется разгадывать секрет одного дракона, влезть в магические интриги и, возможно, найти настоящую любовь! Сказка для взрослых девочек».Жанр: Любовное фэнтези, ПопаданцыПродолжительность: 14:01:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7B4419D8BBCF3CD4D09DF9DA960C6AB714FDF09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1485055   (1005679) от 23.07.2021
 
 Александр Сапаров | Назад в юность (Книга 1) (2021) [MP3, Дмитрий Хазанович]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:1D2001AA165E22CAF4BAF6068EB5A230FF5E3448
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +73,8 @@ magnet:?xt=urn:btih:1D2001AA165E22CAF4BAF6068EB5A230FF5E3448
 magnet:?xt=urn:btih:4A9906C91EE73A85BBB2080B2D649ED53EF52F65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +98,8 @@ magnet:?xt=urn:btih:4A9906C91EE73A85BBB2080B2D649ED53EF52F65
 ```bash
 magnet:?xt=urn:btih:6699C2D6587F09ACA4D4E10EAE0CA0171249A690
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +125,8 @@ magnet:?xt=urn:btih:6699C2D6587F09ACA4D4E10EAE0CA0171249A690
 magnet:?xt=urn:btih:F179DF19304D2C833336D6E3EC429F79BB7E2B4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +150,8 @@ magnet:?xt=urn:btih:F179DF19304D2C833336D6E3EC429F79BB7E2B4B
 ```bash
 magnet:?xt=urn:btih:CA77E39B9E9AA5E91D6C57AB4FDC25D4530C3199
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +177,8 @@ magnet:?xt=urn:btih:CA77E39B9E9AA5E91D6C57AB4FDC25D4530C3199
 magnet:?xt=urn:btih:98284CFE479FE4AF974938FDF6E7E8FC089695DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +202,8 @@ magnet:?xt=urn:btih:98284CFE479FE4AF974938FDF6E7E8FC089695DE
 ```bash
 magnet:?xt=urn:btih:5F193849110F3A5DE031A22CCAC0EF88379E61BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +229,8 @@ magnet:?xt=urn:btih:5F193849110F3A5DE031A22CCAC0EF88379E61BD
 magnet:?xt=urn:btih:BE69A006BC38F88CF33DE6FAD431623D96713DF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +254,8 @@ magnet:?xt=urn:btih:BE69A006BC38F88CF33DE6FAD431623D96713DF3
 ```bash
 magnet:?xt=urn:btih:6791593808543C406EE25017437C0D4FD8816EFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +282,8 @@ magnet:?xt=urn:btih:6791593808543C406EE25017437C0D4FD8816EFD
 magnet:?xt=urn:btih:7328BD2E71176F0FB6927BAC62F390E89086760A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +309,8 @@ magnet:?xt=urn:btih:7328BD2E71176F0FB6927BAC62F390E89086760A
 magnet:?xt=urn:btih:4D6F5DCE676E6AFC484505C7BD70D0674A88D2BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +334,8 @@ magnet:?xt=urn:btih:4D6F5DCE676E6AFC484505C7BD70D0674A88D2BB
 ```bash
 magnet:?xt=urn:btih:6B0AFBC76570C11F02EB80E64E57813062AE2A8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +361,8 @@ Alex Andr | S-T-I-K-S. Грибы с зубами (2021) [MP3, Дмитрий С
 magnet:?xt=urn:btih:ADBCEDFCACD704506BCF0AAC28C90630CE23ADD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +386,8 @@ magnet:?xt=urn:btih:ADBCEDFCACD704506BCF0AAC28C90630CE23ADD9
 ```bash
 magnet:?xt=urn:btih:8CBF578154012E8D4CCAA59762A1EB21D21C6351
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +413,8 @@ magnet:?xt=urn:btih:8CBF578154012E8D4CCAA59762A1EB21D21C6351
 magnet:?xt=urn:btih:818585A7DA962F1CBCCA425942A9EED118282C5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +438,8 @@ magnet:?xt=urn:btih:818585A7DA962F1CBCCA425942A9EED118282C5E
 ```bash
 magnet:?xt=urn:btih:1C9FC864F25E8520184132364B9E9DD910DFB3A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +465,8 @@ magnet:?xt=urn:btih:1C9FC864F25E8520184132364B9E9DD910DFB3A0
 magnet:?xt=urn:btih:ABE6D00F74FAE7BE64A695D00D3FABE8E554D92D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +490,8 @@ magnet:?xt=urn:btih:ABE6D00F74FAE7BE64A695D00D3FABE8E554D92D
 ```bash
 magnet:?xt=urn:btih:917D1750484426DDC0F5110D14E5272568216292
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +519,8 @@ magnet:?xt=urn:btih:917D1750484426DDC0F5110D14E5272568216292
 magnet:?xt=urn:btih:E334CD6306997902A8F46765669F939476CA37DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +544,8 @@ magnet:?xt=urn:btih:E334CD6306997902A8F46765669F939476CA37DA
 ```bash
 magnet:?xt=urn:btih:484C923A919D636C9A57AB572E8B0F28BF5CFF2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +573,8 @@ magnet:?xt=urn:btih:484C923A919D636C9A57AB572E8B0F28BF5CFF2F
 magnet:?xt=urn:btih:A2E651D424FD9D563E50A4AFAE868E6AF3381425
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +600,8 @@ magnet:?xt=urn:btih:A2E651D424FD9D563E50A4AFAE868E6AF3381425
 magnet:?xt=urn:btih:95DFA6F3FC4043D1A7F6171A751EF3081279F22F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +625,8 @@ magnet:?xt=urn:btih:95DFA6F3FC4043D1A7F6171A751EF3081279F22F
 ```bash
 magnet:?xt=urn:btih:D5EE070E90FA8F0A0BD53A07DA54186D3632485A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +653,8 @@ magnet:?xt=urn:btih:D5EE070E90FA8F0A0BD53A07DA54186D3632485A
 magnet:?xt=urn:btih:899134CE3D3D299B5D13501800C92E1B22C7990B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,29 +680,7 @@ magnet:?xt=urn:btih:899134CE3D3D299B5D13501800C92E1B22C7990B
 magnet:?xt=urn:btih:EAD16B7161D9958E65A2400AD1F672EDA316E64A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483688   (1006605) от 15.07.2021
-
-Модель для сборки | Подкасты для SoundStream (2021) [MP3, Влад Копп, Татьяна Бондаренко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006605.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Модель для сборки» – культовая российская передача, выходящая с 1995 года. МДС представляет собой литературно-музыкальный симбиоз, состоящий из прочтения лучших произведений современной фантастики мастерски поставленным голосом Влада Коппа в сопровождении чарующих звуков trance, downtempo, ambient и trip-hop (за вертушками DJ's Михаил Габович и Андрей Эдисон). С (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 14:58:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63AE5636AC3D6AF6B736C1408184C02245E61B1E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ Hex Editor Neo - мощный Редактор Шестнадцатеричны�
 magnet:?xt=urn:btih:D01A19DCD71E646673CF43BB364E2BC2A9437A3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:D01A19DCD71E646673CF43BB364E2BC2A9437A3D
 magnet:?xt=urn:btih:6C79F260349CED6DE2111FFFA6F36848DBF41C1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:6C79F260349CED6DE2111FFFA6F36848DBF41C1A
 ```bash
 magnet:?xt=urn:btih:902D04658918996CDE93D050303ABD219E64ADF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:902D04658918996CDE93D050303ABD219E64ADF2
 magnet:?xt=urn:btih:81D55ECF8E9EFA7E0BCF3B303310327C7E3681B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:81D55ECF8E9EFA7E0BCF3B303310327C7E3681B1
 magnet:?xt=urn:btih:20CBFFED257E3EFE8F271E21B5419C5F4BF69069
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:20CBFFED257E3EFE8F271E21B5419C5F4BF69069
 ```bash
 magnet:?xt=urn:btih:FC35EF6A1D9C92F034632063FAC0DF8B13B9CE80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ VA - Winter Chillout Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:5F6BF3BFCA195644B4D5BDC746BD37E6B8FE94EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ Duplicate Files Search & Link (Duplicate Searcher) - это приложение
 magnet:?xt=urn:btih:BE56423426AD30E296C3B7AE496FC1F5273C5653
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:BE56423426AD30E296C3B7AE496FC1F5273C5653
 ```bash
 magnet:?xt=urn:btih:162D7B9520981B128E9E0931658C0002F65F09C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ The Vision Mastermixers - The Immaculate Mix (1997) [FLAC|Lossless|image + .cue]
 magnet:?xt=urn:btih:38226C571C61ECC217A2C40B6AF1F34CF6480D57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:38226C571C61ECC217A2C40B6AF1F34CF6480D57
 magnet:?xt=urn:btih:2432AE0AB9310B131720CC8D32D628740FF49FE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:2432AE0AB9310B131720CC8D32D628740FF49FE8
 ```bash
 magnet:?xt=urn:btih:99C32AE4EA5F3EC5070DD853292B5953757B67F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:99C32AE4EA5F3EC5070DD853292B5953757B67F4
 magnet:?xt=urn:btih:A96CBBA0E7D8677865C5BB1B0160B17C119CB281
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:A96CBBA0E7D8677865C5BB1B0160B17C119CB281
 magnet:?xt=urn:btih:372A01D7341E5B58FB47A1996E81D3503D2A0762
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ MultiMode - это приложение, которое позволяет ва�
 ```bash
 magnet:?xt=urn:btih:8B6AD77A3A3A7BF5975BB2CB567A20300746BFBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ Wondershare UniConverter - это полный набор инструменто
 magnet:?xt=urn:btih:CDB13490A84C4BF83029CEE06B4C9357BC751664
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:CDB13490A84C4BF83029CEE06B4C9357BC751664
 magnet:?xt=urn:btih:31DE608AB254AC744BD400DEC351B74C0199DEA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ magnet:?xt=urn:btih:31DE608AB254AC744BD400DEC351B74C0199DEA5
 ```bash
 magnet:?xt=urn:btih:B2F4A315314711E69C410D501B5BBB6CBBB1F484
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +508,8 @@ Trallery - Catalepsy (2013) [FLAC|Lossless|image + .cue] <Thrash Metal>
 magnet:?xt=urn:btih:16426253974182C674CDAA4F75BE73B93F4A0A63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:16426253974182C674CDAA4F75BE73B93F4A0A63
 ```bash
 magnet:?xt=urn:btih:07292002736B4B62D3E74CC72ACEA8ED2A2B08C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ VA - ZYX Italo Disco New Generation Vol. 2 (2013) 2 CD [OGG Vorbis|480 Kbps] <It
 magnet:?xt=urn:btih:37B5DE2AAC0BEC207AE15EE300A3EF2DCC1EB6A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +592,8 @@ VA - The Synthpop Disco (2022) [MP3|320 Kbps] <Synthpop, Electronic, Electro Pop
 magnet:?xt=urn:btih:D889B543F621E8D26DEE1690C948C74B97CAE693
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +620,8 @@ magnet:?xt=urn:btih:D889B543F621E8D26DEE1690C948C74B97CAE693
 magnet:?xt=urn:btih:CFCA853FF8A1C7BB8D3C8C6B8314A9434D6BEA18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ Disk Graph - инструмент, который позволяет прове�
 ```bash
 magnet:?xt=urn:btih:19A1D35E88A0195789412D17B6EFDE4CAE08CE1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +672,8 @@ magnet:?xt=urn:btih:19A1D35E88A0195789412D17B6EFDE4CAE08CE1C
 magnet:?xt=urn:btih:9B4B682DBDE105A8E1BA52CDE0E83BDCD1A7229B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ MKVToolnix - функциональный набор инструментов д
 ```bash
 magnet:?xt=urn:btih:386F76E5FF53FC3197DA1EB42AC537E43DED0008
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

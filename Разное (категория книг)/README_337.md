@@ -1,3 +1,31 @@
+###  Публикация: 1317898   (498624) от 03.08.2019
+
+И. К. Сурский | Отец Иоанн Кронштадтский (В 2-х томах) (2011) [FB2, EPUB, RTF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498624.jpg" />
+</div>
+
+
+###  Подробнее
+
+К 100-летней годовщине блаженной кончины и 180-летию со дня рождения святого праведного Иоанна Кронштадтского мы рады предложить нашему читателю эту замечательную книгу о Всероссийском пастыре, в которую вошли его житие, поучения, пророчества, свидетельства очевидцев о чудесах и исцелениях по молитвенному предстательству отца Иоанна.
+
+Впервые этот труд в двух томах (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B63AF2160E678BB42C49EE715BF485F07F17107C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 542177   (498897) от 02.09.2012
 
 Н.Мрочковский, С.Сташков | 99 инструментов продаж. Эффективные методы получения прибыли [2012] [FB2]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:148E3D648A65FCF074365FDD7CD86EF9E66692D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +74,8 @@ magnet:?xt=urn:btih:148E3D648A65FCF074365FDD7CD86EF9E66692D1
 magnet:?xt=urn:btih:7561B85EB298789A97C0615F2B118B32E5D72C37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +100,8 @@ magnet:?xt=urn:btih:7561B85EB298789A97C0615F2B118B32E5D72C37
 ```bash
 magnet:?xt=urn:btih:15D9FE2BC63374E5CB1382EA1E0016A101FAA17D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +129,8 @@ magnet:?xt=urn:btih:15D9FE2BC63374E5CB1382EA1E0016A101FAA17D
 magnet:?xt=urn:btih:926ED3D68E4CC6140303917D5D32E9946A92E973
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +154,8 @@ magnet:?xt=urn:btih:926ED3D68E4CC6140303917D5D32E9946A92E973
 ```bash
 magnet:?xt=urn:btih:06994CD4CC5DA2B6821D05370BE2D0FB1EE03509
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +181,8 @@ magnet:?xt=urn:btih:06994CD4CC5DA2B6821D05370BE2D0FB1EE03509
 magnet:?xt=urn:btih:75977CE3F9BE0841F3DD7BFAE7A5C3329CC87B13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +206,8 @@ magnet:?xt=urn:btih:75977CE3F9BE0841F3DD7BFAE7A5C3329CC87B13
 ```bash
 magnet:?xt=urn:btih:F1538691D2F3C94E9EA1093B72A0C9715F630A04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +233,8 @@ magnet:?xt=urn:btih:F1538691D2F3C94E9EA1093B72A0C9715F630A04
 magnet:?xt=urn:btih:3E169EA3E4F9BF70152EA089B9DD9C28C1DB0DD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +259,8 @@ magnet:?xt=urn:btih:3E169EA3E4F9BF70152EA089B9DD9C28C1DB0DD4
 magnet:?xt=urn:btih:7E31A1868A37069A8C45E9976B59BF9BA537D012
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +284,8 @@ magnet:?xt=urn:btih:7E31A1868A37069A8C45E9976B59BF9BA537D012
 ```bash
 magnet:?xt=urn:btih:A130761514A594DB0DD2ADE02D7B4D7DA6EF3FFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +313,8 @@ magnet:?xt=urn:btih:A130761514A594DB0DD2ADE02D7B4D7DA6EF3FFB
 magnet:?xt=urn:btih:7495AF9AEADE21300A7DDCAD36BAB22E061AE6EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +341,8 @@ magnet:?xt=urn:btih:7495AF9AEADE21300A7DDCAD36BAB22E061AE6EE
 magnet:?xt=urn:btih:B4D9504DA05560A57A6746A2B1A35B08030F54C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +366,8 @@ magnet:?xt=urn:btih:B4D9504DA05560A57A6746A2B1A35B08030F54C0
 ```bash
 magnet:?xt=urn:btih:EEEEF5ABAFC7652F10172C558109346FFAD93259
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +393,8 @@ magnet:?xt=urn:btih:EEEEF5ABAFC7652F10172C558109346FFAD93259
 magnet:?xt=urn:btih:070FAEA040D9497DAD8F6303CDF806830AF3843D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +418,8 @@ magnet:?xt=urn:btih:070FAEA040D9497DAD8F6303CDF806830AF3843D
 ```bash
 magnet:?xt=urn:btih:C4569A42AF1A5D6DE6261F2738BAF0A63F2B6A99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +445,8 @@ magnet:?xt=urn:btih:C4569A42AF1A5D6DE6261F2738BAF0A63F2B6A99
 magnet:?xt=urn:btih:5FE64C1E9AFE6A8370BE8869BB35D5AC15EA0C79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +470,8 @@ magnet:?xt=urn:btih:5FE64C1E9AFE6A8370BE8869BB35D5AC15EA0C79
 ```bash
 magnet:?xt=urn:btih:A79FA0663295A47F5150D47C04E158D72B58013D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +499,8 @@ magnet:?xt=urn:btih:A79FA0663295A47F5150D47C04E158D72B58013D
 magnet:?xt=urn:btih:F62D08CBE337B2B2868BE08C4843759569DFF871
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +527,8 @@ magnet:?xt=urn:btih:F62D08CBE337B2B2868BE08C4843759569DFF871
 magnet:?xt=urn:btih:8ADE3EE89720925A492B70E1727D9E38FD8DA267
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +552,8 @@ magnet:?xt=urn:btih:8ADE3EE89720925A492B70E1727D9E38FD8DA267
 ```bash
 magnet:?xt=urn:btih:2308F3715E6C0806F6C0815773C25F370466D382
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +579,8 @@ magnet:?xt=urn:btih:2308F3715E6C0806F6C0815773C25F370466D382
 ```bash
 magnet:?xt=urn:btih:9C20A508723567B45A3547B6D39420441F81E65B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +608,8 @@ magnet:?xt=urn:btih:9C20A508723567B45A3547B6D39420441F81E65B
 magnet:?xt=urn:btih:D21776801D120FD96E41A39C59CD288B71C69420
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +636,8 @@ magnet:?xt=urn:btih:D21776801D120FD96E41A39C59CD288B71C69420
 magnet:?xt=urn:btih:44F8E543C5409B23F30D9550903AC52E653BD3A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +661,8 @@ magnet:?xt=urn:btih:44F8E543C5409B23F30D9550903AC52E653BD3A2
 ```bash
 magnet:?xt=urn:btih:2AB4DAF0F1650245903E1D5E1B002C9AA1C452CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,29 +688,7 @@ magnet:?xt=urn:btih:2AB4DAF0F1650245903E1D5E1B002C9AA1C452CD
 magnet:?xt=urn:btih:FDD25B5F766C9E6C0B7AE15DFE571C22F86CCE9A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935117   (500543) от 07.09.2015
-
-Людмила Поликовская | Есенин. Русский поэт и хулиган (2014) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если попытаться назвать «самого русского», «самого крестьянского», «самого бесшабашного» поэта, то имя Сергея Есенина всплывает само собой. Его жизнь была короткой и яркой; его смерть до сих пор вызывает ожесточенные споры. В личности Есенина, пожалуй, как ни в ком другом, нашли отражения все противоречия эпохи, в которую он жил. Может быть, именно поэтому, по словам (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DEC85CAD792704B105C43CB5EB7FD400BBC317C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

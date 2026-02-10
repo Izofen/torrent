@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:7984F78E65ADD977F62ADE16C3C408ADE4D7F389
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Urbana — современный, естественно сжатый шриф�
 magnet:?xt=urn:btih:6344F0B2ED8C7B1CCBC53958FE3F49A4D5BAAA3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:6344F0B2ED8C7B1CCBC53958FE3F49A4D5BAAA3D
 ```bash
 magnet:?xt=urn:btih:D7C64BBA02841E060ED27C1BF00F7ED6B0ECB72E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:D7C64BBA02841E060ED27C1BF00F7ED6B0ECB72E
 magnet:?xt=urn:btih:A459FD397BCF240C4345A270D3A126131A97D276
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:A459FD397BCF240C4345A270D3A126131A97D276
 ```bash
 magnet:?xt=urn:btih:9F20C5A2B10254EFE96B7A6CF02E600CD8405E07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:9F20C5A2B10254EFE96B7A6CF02E600CD8405E07
 magnet:?xt=urn:btih:28C339DDDE4536E4CBFB6F50468B084900275178
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:28C339DDDE4536E4CBFB6F50468B084900275178
 ```bash
 magnet:?xt=urn:btih:949B5975928D77DC2FEA805C645C7880E1DA0708
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Victualia — простой, нарисованный от руки (Wacom, Ill
 magnet:?xt=urn:btih:4E82497B7F4D565D8216F6AE67F07EF38FBE30BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:4E82497B7F4D565D8216F6AE67F07EF38FBE30BE
 magnet:?xt=urn:btih:60D9B66A07B0FE56F2DBC303C9D795F9FB748278
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:60D9B66A07B0FE56F2DBC303C9D795F9FB748278
 ```bash
 magnet:?xt=urn:btih:47E9E3E91A79ED41B141860A93F5869FE3D488AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:47E9E3E91A79ED41B141860A93F5869FE3D488AF
 magnet:?xt=urn:btih:364D2E8B03BFB228B66E56793376403AFD4EC0BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:364D2E8B03BFB228B66E56793376403AFD4EC0BA
 ```bash
 magnet:?xt=urn:btih:303EE9D8B489E11110E132393A4AEEE3D2EB5EC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:303EE9D8B489E11110E132393A4AEEE3D2EB5EC9
 magnet:?xt=urn:btih:E7BEB0402C74B51285EC597EBAA6BC417E4815FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:E7BEB0402C74B51285EC597EBAA6BC417E4815FC
 ```bash
 magnet:?xt=urn:btih:617AEC98F7683F200CB1E40C5A7612CA83C7C835
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:617AEC98F7683F200CB1E40C5A7612CA83C7C835
 ```bash
 magnet:?xt=urn:btih:FA0D4C13B0B9C70B6A71A13A62AE8A91FB9C55FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:FA0D4C13B0B9C70B6A71A13A62AE8A91FB9C55FA
 magnet:?xt=urn:btih:5EE5EC01F006B36238FC5B943650D990121209F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ Alena Lovely — это рукописный каллиграфический ш
 ```bash
 magnet:?xt=urn:btih:53BA5E6C91B8569AD93C12F0B647C6A7846E5B9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:53BA5E6C91B8569AD93C12F0B647C6A7846E5B9C
 magnet:?xt=urn:btih:4B43729A4398BAE511C0DCBB15C350C6C793C457
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ Fautive — динамичный и живой шрифт с засечками,
 ```bash
 magnet:?xt=urn:btih:23D6CB060BC713F375817DC8E788301AD067B24F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +533,8 @@ Reina Pro — так я называю этот проект. Reina — испа
 magnet:?xt=urn:btih:8933E4ACBC29ED2A57075E408AD47E323FD73812
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ Greyblock — смелый и динамичный трафаретный шри
 ```bash
 magnet:?xt=urn:btih:22B06533643735760B7BBFF8487C07D54574BF6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:22B06533643735760B7BBFF8487C07D54574BF6A
 magnet:?xt=urn:btih:B2BDAE3A7B25105FE9DDEAD6D879470BFCFE2080
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ magnet:?xt=urn:btih:B2BDAE3A7B25105FE9DDEAD6D879470BFCFE2080
 ```bash
 magnet:?xt=urn:btih:D624677395BC6D3E948A3F583EBBC14CED3FA0E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +645,8 @@ Solomon — стильный минималистский закругленны
 magnet:?xt=urn:btih:6E137817FCA028D3B7E0927F851163B70C20FAF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +673,8 @@ magnet:?xt=urn:btih:6E137817FCA028D3B7E0927F851163B70C20FAF5
 magnet:?xt=urn:btih:3B23A07D36EFD8AB1209F3E04855446F106AADEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ Bitterking — смелый шрифт, который идеально вопл
 ```bash
 magnet:?xt=urn:btih:4C123438E6153E4794D3B22022BCF5295E794EF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

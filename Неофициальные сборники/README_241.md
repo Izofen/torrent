@@ -1,3 +1,32 @@
+###  Публикация: 1414038   (406730) от 06.10.2020
+
+VA - Клубный хит (2020) [MP3|320 Kbps] <Dance, Club, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406730.jpg" />
+</div>
+
+
+###  Подробнее
+
+0001. Stefre Roland, Quba - Come To Nignt
+0002. Anton Ishutin feat. Ange - Let You Go (A-Mase Remix)
+0003. Brad Rock - Wazzup (M.O.O.N. Pro Remix)
+0004. Sasha PRimitive - Magic(   Читать дальше...   )Жанр: Dance, Club, House, Trance, ClubПродолжительность: 09:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDCB193D734F4A9D129AE6B046BEA9B1F223D5ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414024   (406769) от 06.10.2020
 
 VA - Громкие новинки Октября (2020) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -21,6 +50,8 @@ VA - Громкие новинки Октября (2020) [MP3|320 Kbps] <Pop, Da
 ```bash
 magnet:?xt=urn:btih:726FF64D47FBF15B9E17D8D38F6068C671B667B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Top50: Tracks Deep House Ver.22 (2020) [MP3|320 Kbps] <Deep-House, Electron
 magnet:?xt=urn:btih:2EFDAA38623D0726B8BCB3D6A1BCE726FE070D60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +109,8 @@ VA - September Hardcore Review (2020) [MP3|320 Kbps] <Hardcore, Hard Rock, Metal
 magnet:?xt=urn:btih:CC07ED411AFC28BDB98042EEFF0D8D8098F738E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +137,8 @@ VA - The Key To Your Joy (2020) [MP3|320 Kbps] <R&B, Soul>
 ```bash
 magnet:?xt=urn:btih:070FE780B7688657E1338994CAD32399FFB7FFA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +173,8 @@ VA - D-скач 90-х Russian Dance Mix (2012) [MP3|256 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:3DFFCB696CD2E5D29768C433DDFA397F82F8F71F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +204,8 @@ ATB - All the Best (2012)
 magnet:?xt=urn:btih:4D736A4472946AD7759410350DDEE68F9A9F2616
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +232,8 @@ VA - 100 Самых Красивых Песен (2018) [MP3|320 Kbps] <Pop, Soul
 ```bash
 magnet:?xt=urn:btih:6C42C42D2F7586DEF370BA3E5CD74B5CCB4CBB62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +268,8 @@ VA - Enigmatic Best Hits (2012) [MP3|320 кб/с]<New Age, Mediative, Downtempo,
 magnet:?xt=urn:btih:089ADDAE179CFBE9B9B0A47371220EA9B3090D9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +296,8 @@ VA - Лучшие из лучших: Top 100 хитов радиостанций
 ```bash
 magnet:?xt=urn:btih:1B7444FC8623E807A68AA0E8F144E642F2987DBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +332,8 @@ VA - Рок в Авто (Power Metal) (2012) [MP3|320 кб/с]<Power Metal, Spee
 magnet:?xt=urn:btih:54FB931C36A01FDAE767655FB85CB53C0BBA890F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +361,8 @@ VA - Beatport Drum And Bass: Electro Sound Pack #184 (2020) [MP3|320 Kbps] <Drum
 magnet:?xt=urn:btih:73053C8AB029F5C467182372321923A10B210E99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +389,8 @@ VA - Beatport Psy Trance: Electro Sound Pack #183 (2020) [MP3|320 Kbps] <Psy, Go
 ```bash
 magnet:?xt=urn:btih:A2E2ABB05712D6741C781897332D2010376D241F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +425,8 @@ VA - German TOP100 Single Charts (13.10.2012) [MP3|192-320 кб/с]<Pop>
 magnet:?xt=urn:btih:C0F0CE1A78D795FE9238ECB6FCA9D4CA974B0E14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +453,8 @@ VA - Rock Concept: Euro Edition (2019) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:0B5F897A2525126B7F935508A9A86C133194A924
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +483,8 @@ Dance:
 magnet:?xt=urn:btih:BA5F7D65B4B8811BE51C9866210DF86AAAC51AC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +511,8 @@ VA - Music News vol.213 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:62C45FD809D61E0101702515460289F2388991F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +547,8 @@ VA - Радио Шторм - NeРусский Шторм - 74 (2012) [MP3|320 к
 magnet:?xt=urn:btih:4B571A746264B41731D8C53B7E6F8A173F9FD34E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +581,8 @@ VA - MAXI. Танцевальный Non-Stop до утра (2012) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:BB803C0BDEADFB42E214A1BAECE310452DF9D562
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +617,8 @@ VA - Зарубежный Non-Stop (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:040335EEEAA2F8FE1F57FD8641E5BAEC094BAC97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +645,8 @@ VA - Seclusion: Techno Electronic Party (2019) [MP3|320 Kbps] <Techno>
 ```bash
 magnet:?xt=urn:btih:8101031C7F024C18C50EC77ADC2995219A5AC92F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +675,8 @@ Dance:
 magnet:?xt=urn:btih:7FAEB91A02F9C3C0F37B79287AC9DCC266A6D756
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +704,8 @@ VA - В машине с музыкой Vol.299 (2022) [MP3|320 Kbps] <Pop, Dance
 magnet:?xt=urn:btih:1775E968B287B2609E036D9DC296CEFDE2B7F704
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +732,8 @@ Theory Of A Deadman - Compilation (2022) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:53F02D66919CCE832D0970DD2A42C3C596C2FE9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -693,6 +768,8 @@ VA - CrazyDance Потанцуем?! (2012) [MP3|320 кб/с]<Dance , Club>
 magnet:?xt=urn:btih:78F0CEEBBF91B4A824B68C0963109E01361E3E6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -726,32 +803,7 @@ VA - Dubstepium vol. 4 (2012) [MP3|320 кб/с]<Dubstep>
 magnet:?xt=urn:btih:6274EE89B051271CEA1C5CD628BE59FE7DABB8DC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574159   (407479) от 03.09.2022
-
-VA - Remixes Box The Saved: The Perfect (2022) CD, Compilation [MP3|320 Kbps] <Club, Progressive, Hardstyle, Dubstep>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taylor Swift - willow (dancing witch version) (Elvira Remix) (Clean Short Edit)
-02. Saint JHN ft Imanbek - Roses (Loudar Hardstyle Bootleg) (Clean Radio Edit)
-03. Taylor Swift - willow (dancing witch version) (Elvira Remix) (Clean Radio Edit)
-04. Fat Ass Friction - Fat Beat (Richard Fraioli Remix) (Dirty Radio Edit)(   Читать дальше...   )Жанр: Club, Progressive, Hardstyle, DubstepПродолжительность: 02:16:37 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0281787B82709D74282E68A7BF19FDA86057CA8B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ Minimal Firewall — это портативный интерфейс бранд
 magnet:?xt=urn:btih:792CFBAC163F4906DFB3E609A8F7E87CE6392791
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ MinerSearch — программа предназначенная для уда�
 ```bash
 magnet:?xt=urn:btih:A8F9777E6FE37E4A4368064ED67A02F52BDE1D28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ ESET NOD32 Internet Security - комплексное антивирусное �
 magnet:?xt=urn:btih:E4C7BADA0799539A71881EDBD0FF5A2C8F84069F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Auslogics Anti-Malware предлагает дополнительную защ�
 ```bash
 magnet:?xt=urn:btih:E15693A65378E59BFA3EBD938125F3D01F528B03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Antivirus Removal Tool - портативный набор официальны�
 magnet:?xt=urn:btih:345C151E887AD6BEA71F8BAF1BB5D2B3B1DFA0A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Fort Firewall - простой и бесплатный брандмауэр дл
 ```bash
 magnet:?xt=urn:btih:1C1DBB42503AA6BEE520CF1D24B5B51020EEAA35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Auslogics Anti-Malware предлагает дополнительную защ�
 magnet:?xt=urn:btih:3DA1842B42F78F0BB554E760E17E65C113A4E00A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Folder Guard - программа для защиты информации, хр
 ```bash
 magnet:?xt=urn:btih:ADFF07C6A02E9289F2F638592AD994B98D768865
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Adguard – интернет-фильтр для защиты пользоват
 magnet:?xt=urn:btih:EB0D7F3AD240A0EE878BB415882CCC8552F4F729
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ ESET Endpoint Security — это комплексное решение для �
 ```bash
 magnet:?xt=urn:btih:1495DC26F57217453939F98C74DEF5A466D650C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ RegRun Secuirity Suite — отличный набор инструментов 
 magnet:?xt=urn:btih:7F8B382C7A68F91EBE8D267CE87E7D4CF6201F66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ AdwCleaner - программа, которая ищет и удаляет ре�
 ```bash
 magnet:?xt=urn:btih:B1F2C698A158E9425BD58724CA34163D4E3BC846
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Minimal Firewall — это портативный интерфейс бранд
 magnet:?xt=urn:btih:48B65B6798798F1FF7FA37A74F852E02C67126F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Kaspersky Free | Standard | Plus | Premium – новые редакции ан�
 ```bash
 magnet:?xt=urn:btih:63C50A92100041C45478D9B6172DF9B663C38165
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ simplewall 3.8.6.1 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:03FB78389977D75EA4DB73C7D2D72D9CF4F53D9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Sandboxie - yтилита для контроля за работой разли
 ```bash
 magnet:?xt=urn:btih:AEEB1E158632FAD843D9AB8831E6C0DDD9200350
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 magnet:?xt=urn:btih:4FFF255E838B2D85C46D52B39B7B2024C578B4FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Cryptomator представляет собой программу для мно
 ```bash
 magnet:?xt=urn:btih:3D2AF3FAD37FB7862DED0ED9B55EFABB3BCCE25B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ Malware Hunter - отмеченный наградами продукт, кот�
 magnet:?xt=urn:btih:9268B7D73E65C25A2E3F6867B05A5D5D68259569
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Kaspersky Secure Connection 21.20.8.505 [Ru]
 ```bash
 magnet:?xt=urn:btih:4216DF878510FFA743CF71041C27A70756312D6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ Security Task Manager отображает расширенную информа
 magnet:?xt=urn:btih:3DE2DF984E43588E887CBA9852589E0AD6B4C821
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ Kaspersky Password Manager — мультиплатформенный менед
 ```bash
 magnet:?xt=urn:btih:595E8D098F291127FB9C3454F1F0E3252753B73D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Kaspersky Small Office Security обеспечивает комплексную 
 magnet:?xt=urn:btih:CD1B81FE8FC0EAAE7C81CA603098750F58396448
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ Sticky Password Premium – менеджер паролей, который по
 ```bash
 magnet:?xt=urn:btih:E2E2ED24C3B21AE36B3FB6440F6F879F49384853
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ Kaspersky Rescue Disk 2024 Beta [03.11.2024] [Ru/En]
 magnet:?xt=urn:btih:7BA3116AE96984BD6FECDAA96E9F7379897817AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Gpg4win - бесплатный набор инструментов, предна
 ```bash
 magnet:?xt=urn:btih:DE3C4EF0B9B3317707FE71FFBD14B9A41F13C75E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:BC4CB36B5F7311BCEDAAA4703AE2640C03D6E982
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:BC4CB36B5F7311BCEDAAA4703AE2640C03D6E982
 ```bash
 magnet:?xt=urn:btih:1E7373E1E416780EAA78293A104CBAA233709B74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:1E7373E1E416780EAA78293A104CBAA233709B74
 magnet:?xt=urn:btih:B9EBC2029514DB1C139937FB010200B495EDE181
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:B9EBC2029514DB1C139937FB010200B495EDE181
 magnet:?xt=urn:btih:3C417AB210DF3E9C81095EE15AC9D1FB5EB93A6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Jigsawscapes® - Пазлы v3.6.2 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:54C5A6247587C8D46FCE03EB8528F3DA6BA8E157
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:54C5A6247587C8D46FCE03EB8528F3DA6BA8E157
 magnet:?xt=urn:btih:A6D61D8C4FD3AA09C47E1211C6E8F0DC8DA420A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Icarus (2021) [Ru/Multi] (2.2.31.130582/dlc) Repack seleZen [Complete the Set]
 ```bash
 magnet:?xt=urn:btih:C2D6235744E81E61896124FC81932262BEE50573
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ AnyDesk 9.0.0 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:26220954886ED4E8B1A57C26F2FE5B648FCDB53C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ JetBrains CLion — интеллектуальная среда разработ
 ```bash
 magnet:?xt=urn:btih:BC9D9337FA2B40D17DF7D8247ACEEE1430E92675
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:BC9D9337FA2B40D17DF7D8247ACEEE1430E92675
 magnet:?xt=urn:btih:99EB96B4DB5A3BF1B98CD3A300EA907DF20A8A16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:99EB96B4DB5A3BF1B98CD3A300EA907DF20A8A16
 ```bash
 magnet:?xt=urn:btih:C2F6A4133FFFD80951CE0F3F4667D43AA7222F43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:C2F6A4133FFFD80951CE0F3F4667D43AA7222F43
 magnet:?xt=urn:btih:94124FFC3621083FD4704CE20C43192BEF4BEACC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Gas Station Simulator – симулятор владения собственн
 ```bash
 magnet:?xt=urn:btih:1D12527A910C8F48E550BB20DC6A7F658CAD5E7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ Clannad (Кла́ннад) — ирландская музыкальная гр�
 magnet:?xt=urn:btih:B227BB4338E6CF9319159AECEF5262600484B444
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:B227BB4338E6CF9319159AECEF5262600484B444
 magnet:?xt=urn:btih:307B9300B08D859D2057B54299C0F890EF44CD93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:353D822FBD8FFB76831A855FD0E9724757C4196D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:353D822FBD8FFB76831A855FD0E9724757C4196D
 magnet:?xt=urn:btih:9545675A7C8BE9A6D837CEE7D6023A2F76152B1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:9545675A7C8BE9A6D837CEE7D6023A2F76152B1B
 magnet:?xt=urn:btih:4C4DA024CEA7EA40417287239C8F7C30E13FD27E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1128.ffO6.pc/dlc) Repack Let'sРl
 ```bash
 magnet:?xt=urn:btih:5E87BA1D959E5DC631B83D63F121CA997684FD9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ magnet:?xt=urn:btih:5E87BA1D959E5DC631B83D63F121CA997684FD9D
 magnet:?xt=urn:btih:642FB74E2AAC43F74A0D59FFF4F2123AA8CAEE15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:642FB74E2AAC43F74A0D59FFF4F2123AA8CAEE15
 ```bash
 magnet:?xt=urn:btih:9ABDC3D1E98444D1A6B104094067B05DF0FD7322
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:9ABDC3D1E98444D1A6B104094067B05DF0FD7322
 magnet:?xt=urn:btih:73A9BF93CB3E1DC98498512952F7C04F195F90C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ Visual Studio Enterprise 2022 - Интегрированное комплекс�
 ```bash
 magnet:?xt=urn:btih:E8E301E5971CD8D0383AFFBB138993439FF7E1F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ Digiarty AIArty Image Matting — это инновационное програ
 magnet:?xt=urn:btih:5AF9B4325C746B6A1D2D2F1150F60AD5CB5B9520
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ magnet:?xt=urn:btih:5AF9B4325C746B6A1D2D2F1150F60AD5CB5B9520
 magnet:?xt=urn:btih:674CC8D6B9C851BCFD11171A348502C3E0219269
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Left 4 Dead - это классический survival-horror, действие 
 ```bash
 magnet:?xt=urn:btih:785A9ED4ED832E7600D751407A9E3C073DA6C89D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

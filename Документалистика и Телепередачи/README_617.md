@@ -1,3 +1,29 @@
+###  Публикация: 1365339   (829302) от 05.05.2020
+
+Африканские охотники / Africa's Hunters (2016-2017) UHDTV [H.265/2160p] [4K, 10-bit, 50fps] (сезоны 1-2, серии 1-12 из 12)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дикая природа, которая заставляет своих детищ сражаться за выживание, использует самые жестокие методы. Пищевая цепочка на Африканском континенте весьма запутана. Здесь животные одновременно могут быть как хищниками, так и жертвами. Сложно сказать, кто именно занимает вершину этой сложнейшей цепи. Здесь есть место и диким кошкам, и медведям, и псам и многим другим (   Читать дальше...   )Производство: Канада, Plimsoll Productions for Blue Ant Media InternationalЖанр: Документальный, природа, флора, фаунаРежиссер: Ханна ХоарПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:196AA02DF103C5CF6A226DDE204506F0B5DFBE6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337710   (829309) от 05.05.2020
 
 Русский самородок. К 100-летию Михаила Калашникова (2019) HDTVRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:437D6F2129B8DDD19020D5E7501D4EE8C594FDD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:437D6F2129B8DDD19020D5E7501D4EE8C594FDD5
 ```bash
 magnet:?xt=urn:btih:E9011F1E04D011A5391771C814AF05EF69AF6E87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:E9011F1E04D011A5391771C814AF05EF69AF6E87
 magnet:?xt=urn:btih:D4081F57C921B614CE9AFC8A31C88D3DB98F6F1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:D4081F57C921B614CE9AFC8A31C88D3DB98F6F1A
 ```bash
 magnet:?xt=urn:btih:ADF0FA96696707C6A5CEA2D5D2CC5F6627E9CA69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:ADF0FA96696707C6A5CEA2D5D2CC5F6627E9CA69
 magnet:?xt=urn:btih:20BE161043155B4527E7E99A24C4DA564F63F11A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:20BE161043155B4527E7E99A24C4DA564F63F11A
 ```bash
 magnet:?xt=urn:btih:EB8534D5013070BAD0AD090FDE220CD01FADDC01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:EB8534D5013070BAD0AD090FDE220CD01FADDC01
 magnet:?xt=urn:btih:B6B9F39A6BC417C5D22D76AE7F46768BEB31622F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:B6B9F39A6BC417C5D22D76AE7F46768BEB31622F
 magnet:?xt=urn:btih:5632DB64433595525A667CE0AF0763BBB380B94D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:5632DB64433595525A667CE0AF0763BBB380B94D
 ```bash
 magnet:?xt=urn:btih:61B6B602B9DC309B861ACA44D74684B1ED6114B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:61B6B602B9DC309B861ACA44D74684B1ED6114B0
 magnet:?xt=urn:btih:733D25EA3A74EA78CCFDED02A4D9E1E0B5D52A29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:733D25EA3A74EA78CCFDED02A4D9E1E0B5D52A29
 magnet:?xt=urn:btih:4E00D6BBB887CF6791E3CA19D676A4EC06D57654
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:4E00D6BBB887CF6791E3CA19D676A4EC06D57654
 ```bash
 magnet:?xt=urn:btih:9895FF321071C3674F4CE45D21A4342A199C2B81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:9895FF321071C3674F4CE45D21A4342A199C2B81
 magnet:?xt=urn:btih:1DCFF5CADD8279B6A51F8F712F49606CDB51DABD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:1DCFF5CADD8279B6A51F8F712F49606CDB51DABD
 magnet:?xt=urn:btih:876455016500E77690476950933E9F46EC3DFC41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:876455016500E77690476950933E9F46EC3DFC41
 ```bash
 magnet:?xt=urn:btih:4A9FA20A62635C2C35755F2C826DE27A3AAC1073
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:4A9FA20A62635C2C35755F2C826DE27A3AAC1073
 magnet:?xt=urn:btih:AC8DEB6C296B7EBC89ADD27198AAD9C687BF2E56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:AC8DEB6C296B7EBC89ADD27198AAD9C687BF2E56
 magnet:?xt=urn:btih:3E2DCB4F5BFA9507C6FEE40A55949AA2DA4F2592
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:3E2DCB4F5BFA9507C6FEE40A55949AA2DA4F2592
 ```bash
 magnet:?xt=urn:btih:8A29E79CE939100C60992E196E26D717789AD98D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:8A29E79CE939100C60992E196E26D717789AD98D
 magnet:?xt=urn:btih:64F8A5D5D6AB1926C7211C261207F8A340C07C4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:64F8A5D5D6AB1926C7211C261207F8A340C07C4E
 ```bash
 magnet:?xt=urn:btih:73D66D45AB233176D3DD8F308E864FF7D588BAE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:73D66D45AB233176D3DD8F308E864FF7D588BAE5
 magnet:?xt=urn:btih:E73A30894DCB8A6FF8EF9FA7D16E2962C07787B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +596,8 @@ magnet:?xt=urn:btih:E73A30894DCB8A6FF8EF9FA7D16E2962C07787B3
 ```bash
 magnet:?xt=urn:btih:3C0C9D52C2C8B3B299121F86A4CC1A4AB72EB393
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:3C0C9D52C2C8B3B299121F86A4CC1A4AB72EB393
 magnet:?xt=urn:btih:B57BCB6D376E457C6D63EF8378FAECC1D24DB3F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:B57BCB6D376E457C6D63EF8378FAECC1D24DB3F6
 ```bash
 magnet:?xt=urn:btih:E539CCD15B6E82D9964583E1482809E8E8035206
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,29 +675,7 @@ magnet:?xt=urn:btih:E539CCD15B6E82D9964583E1482809E8E8035206
 magnet:?xt=urn:btih:2820DF4562D634E2AAD57B9EE12854226BB276FE
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006107   (830823) от 10.04.2016
-
-Соль. «БАХ!(-ЫТ-)КОМПОТ» (10.04.2016) SATRip
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведущий шоу Захар Прилепин - человек с четко выраженной позицией, очевидно, что ему есть, что сказать людям. Каждая программа начинается с обозначения Прилепиным темы, которая для широкого зрителя является ключевой в текущем информационном поле. Ведущего и музыкальных гостей в студии, по словам самого Прилепина, объединит "яркость, талант, взрывоопасность в (   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 01:24:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFADF04E56F52E11F737A8216687FA6466AB198C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

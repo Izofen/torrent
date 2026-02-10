@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:2E3F615BF88EE54BC0A1DE30170026503C3D0942
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:2E3F615BF88EE54BC0A1DE30170026503C3D0942
 magnet:?xt=urn:btih:F6747745FDC274B5C493A68203E6A5A81DFA9CBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ Ocean Match / Рыбки: Три в ряд v3.0.3 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:AF0F128A303791E6B7464A8A2D436B2DEEA87521
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ NirLauncher Package - универсальный пакет из более че
 ```bash
 magnet:?xt=urn:btih:BB9388243A8AFF54284368576B8F001A92B8203C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ CCleaner - один из самых известных и популярных �
 magnet:?xt=urn:btih:6E954A7709C14E4C5B42F1A56C66C8CDB847C7BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ FolderSync обеспечивает простую синхронизацию ф
 ```bash
 magnet:?xt=urn:btih:B322ABCA2FEC395441B38FD89BAF72F8BA5523A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Photo Sherlock v1.125 Mod by Mixroot  [Ru/Multi]
 magnet:?xt=urn:btih:53AC974FAEE590306F375E260D30524882798E58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:53AC974FAEE590306F375E260D30524882798E58
 ```bash
 magnet:?xt=urn:btih:32CB8094C7C61C2AB1252E385D5BD1D12834B5D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ WinCatalog - это простая в использовании програм�
 magnet:?xt=urn:btih:259A68472B33D1F2EFF03B73C319D23F24701D72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:0529A8BA4E24336EDE047271CD7E3C3B252C40A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:0529A8BA4E24336EDE047271CD7E3C3B252C40A1
 magnet:?xt=urn:btih:4F8F70F9267AE9B30A93A152364273B4D23B715D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:4F8F70F9267AE9B30A93A152364273B4D23B715D
 ```bash
 magnet:?xt=urn:btih:D624243BD4B3E6398B9D6883373BA1C5E6374E35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Happy Color — самая популярная и излюбленная бес
 magnet:?xt=urn:btih:E036E027615F101006BD172A57E0EAB7BD242F53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ FacePic — приложение AI Face, приложение для легко
 ```bash
 magnet:?xt=urn:btih:CAF8A7C9C73D9FE921201A4AF0673597917DF9F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:CAF8A7C9C73D9FE921201A4AF0673597917DF9F2
 magnet:?xt=urn:btih:D3ECE502689BBDFD1C481E1D36FB2919168C04FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ ExtraDisks - это набор инструментов для создания 
 ```bash
 magnet:?xt=urn:btih:EB442665E492DADAD3098458A0E4B40F85CCF3B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:680C798A7CC4C422A0DB238ABD0B0E5CB9A39F13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Jigsawscapes® - Пазлы v3.6.10 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:76CA9C144B13059EB1D1EA61B69729A102DEBEE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ IPTV Pro v9.0.1 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:5144C3B312806210A1CB9CA49A42943D14A0C773
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:B2F40B91C4E3E6269808E456A9B9B6F59ADF35BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ TikTok - социальное приложение для тех кто пред
 magnet:?xt=urn:btih:1E69BBEB498C0BF8A9129EF327696BEFAB9BA0B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ PeaZip — бесплатный архиватор и графическая о�
 ```bash
 magnet:?xt=urn:btih:661C3ADC48CBEB692A816E970FD3289926C07F36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ Files Inspector Pro 4.20 [Multi/Ru]
 magnet:?xt=urn:btih:C3EA6D02380D6EA63D07961696300030820D6A38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Slimjet 45.0.1.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3030B7BEE15AF24FA2E7EDC1CCC9940DFE2471F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ TikTok - социальное приложение для тех кто пред
 magnet:?xt=urn:btih:F95055961C07C0E0ABFFC959620611C3AEF62DD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:3ED05921AB88D8D68F2B697C65B07511F7035DC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

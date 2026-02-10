@@ -19,6 +19,8 @@ Daemon X Machina - это постапокалиптический экшен-ш
 magnet:?xt=urn:btih:73D604FE1B392B6268841E20851D457F82A6361D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Formula Legends отправляет вас в увлекательное пут
 ```bash
 magnet:?xt=urn:btih:C110701B42F338263A4BE8B715D8A1D0097D01C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NODE: The Last Favor of the Antarii (2025) [Ru/Multi] (1.0.7) Repack Let'sРlay
 magnet:?xt=urn:btih:8C13D32F151DEDD9B7B4370B4AA35C5F7AD59F2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ S.T.A.L.K.E.R.: Clear Sky (2008) [Ru/Multi] (1.10.0.26261) Repack Let'sРlay [En
 ```bash
 magnet:?xt=urn:btih:14A8F607C4345C35BB733D1BE83369A2748364C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Shape of Dreams (2025) [Ru/Multi] (r.1.0.6.2_s) Repack Let'sРlay
 magnet:?xt=urn:btih:52313D83A070DCDDDFA83B5A9ACB7E8A05EE7CCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Rising Lords представляет смесь стратегии с карт�
 ```bash
 magnet:?xt=urn:btih:16F344194D18E1F980BB2F66EBC3520841138B7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ The Precursors / Предтечи (2009) [Ru] (2.2) Repack Foxx [ReBuild]
 magnet:?xt=urn:btih:8A4F7C6025735FCC8BF3B7493BF7090B6AFAFF87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Plucky Squire - это очаровательная экшен-адвенч�
 ```bash
 magnet:?xt=urn:btih:D4C652D975A8D1BE3A8A7B8B9E4E5E67055D9859
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Ammo and Oxygen (2025) [Ru/Multi] (1.2) Repack Let'sРlay
 magnet:?xt=urn:btih:EE558C27DEA3CD930E8E18DCB7CAA9DD1491B702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Stronghold Crusader: Definitive Edition (2025) [Ru/Multi] (1.05) Repack Let'sРl
 ```bash
 magnet:?xt=urn:btih:9664D6A6DA305E06AD54EC0F04CECB290CBFC06B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ TerraScape позволяет игрокам осуществить свою м�
 magnet:?xt=urn:btih:7E21C6459A2C7C126CF4DF82F0C1410A76818CB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Terra Nil – градостроительный симулятор-песочн
 ```bash
 magnet:?xt=urn:btih:E901C8009950C4616AEA01E94145FAF9F233FD5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Door Kickers 2: Task Force North (2025) [Ru/Multi] (1.12) Repack Let'sРlay
 magnet:?xt=urn:btih:2DF8A782E6602DA35353EE5DE336F0AF77D5FEB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Shadow Empire (2020) [En] (1.27.00/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:A8F26532B5278F7C9116ADDBD96C5916DD5CD1D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Frostpunk 2 открывает новые грани жанра выживани
 magnet:?xt=urn:btih:AEBC9CF86F851755BA395E7D02421892B27A9566
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Songs of Silence погружает игроков в фантастически
 ```bash
 magnet:?xt=urn:btih:E701B6C0CE92F0AEBFBB2849CCAEAD32A9BE97B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Hordes of Hel - захватывающая игра-рогалик с элеме
 magnet:?xt=urn:btih:0DE0248C292D805EC4457569610E13A2886F207D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ The Witch's Cauldron - это мрачная история, в которой �
 ```bash
 magnet:?xt=urn:btih:78F85A66E7241DBEB6088C3790D00A6E870B22BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ S.T.A.L.K.E.R.: Зов Припяти – прямой сиквел к S.T.A.L.K
 magnet:?xt=urn:btih:69943F308EB968677BC1853D94BDDB548C409CE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ RoadCraft (2025) [Ru/Multi] (4.0/dlc) Repack seleZen [Rebuild Edition]
 ```bash
 magnet:?xt=urn:btih:01FAEACB0C5FF97765523C3958138702702F4948
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Cat Quest - замуррчательная РПГ, чье действие пр�
 magnet:?xt=urn:btih:A9350F22F508A0177B6ABBF2FFA05120243ECD95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ X4: Foundations - долгожданное продолжение успешно
 ```bash
 magnet:?xt=urn:btih:F6EA63B84CE8FED2A2766C3E32677E42D05F0F0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Steel Division 2 (2019) [Ru/Multi] (165547/dlc) Repack FitGirl [Total Conflict E
 magnet:?xt=urn:btih:A8D28CB7C6D48828840262318743A7CCAE5BB1DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Hordes of Hel - захватывающая игра-рогалик на выжи
 ```bash
 magnet:?xt=urn:btih:A9AC4E01564E85BEA69BC94494A01C720C3BAE5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Cronos: The New Dawn - это новое слово в жанре survival horro
 magnet:?xt=urn:btih:6C13C9ADC50015E41983227235D2A7BBFEAF8ECD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ American Truck Simulator (2016) [Ru/Multi] (1.56.1.0s/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:1ABA0B86C5EEA37384E7F30513BF389468327746
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Jens Buchert - Elevation (2016) [FLAC|Lossless|WEB-DL|tracks] <Chill House, Loun
 magnet:?xt=urn:btih:E79A25E75A533219059989012E1785D5CC16DFB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Jon Hassell - Listening To Pictures (Pentimento Volume One) (2018) Ndeya [FLAC|L
 ```bash
 magnet:?xt=urn:btih:F72C9904A13BDA39CEAAF22D6E41F5E64690E949
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Black Hole Trance Music 06-18 (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:886CF1A7095A2C97FC7C1ACF975FDC86C850212D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Dream Dance Vol.83 (2017) 3CD [MP3|320 Kbps] <Trance, House>
 ```bash
 magnet:?xt=urn:btih:9B0D1E33542CE5A77ADE3CD6AA785051E1E7BCFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Northern Lite - Hollywood Girl (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Electron
 magnet:?xt=urn:btih:433E07C6FEE042D44427818F58B3E117B24B3CC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ IC3PEAK - Kiss Of Death (2022) [FLAC|Lossless|WEB-DL|tracks] <Coldwave, Darkwave
 ```bash
 magnet:?xt=urn:btih:AF765348653BB3572BB5C22F421361E0BBD2EA81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Death Loves Veronica - Corruption for the Insidious (2022) [FLAC|Lossless|WEB-DL
 magnet:?xt=urn:btih:6BA8D04D09BBB678277EEEA1AE9A3D6BC6360AF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ VA - Armada Ibiza (2017) [MP3|320 Kbps] <Progressive House, Progressive Trance>
 magnet:?xt=urn:btih:BEE7070C427A455814F86D04FBF792F1F4B22D6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +250,8 @@ VA - InFine Pres: Tomorrow Sounds Better With You (2017) [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:58C1AF786F6C75795809C406DC658A07E3903C12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +280,8 @@ VA - Top Cocktail Music: From Lounge to Deep House Beats (2017) [MP3|320 Kbps] <
 magnet:?xt=urn:btih:51F7CC7D1DD645B952834812200295945DBDD896
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +308,8 @@ VA - Summer Music Lounge. Selection for Dj and Clubs (2017) [MP3|320 Kbps] <Bale
 ```bash
 magnet:?xt=urn:btih:AC4E3ECB4CA3C5ADFC0CF51075CCBF0B8DC1E976
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +338,8 @@ VA - 538 Dance Smash 2016 Festival Edition (2016)2CD [FLAC|Lossless|image + .cue
 magnet:?xt=urn:btih:A5443F9182DCA43E92DC594090543B2A62459B1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +366,8 @@ VA - Sonic Alchemy (Mixed by Chris Hampshire) (2019) [MP3|320 Kbps] <Techno>
 ```bash
 magnet:?xt=urn:btih:39F7522ABDC926040E1B14B1748D6A79894DB37B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +396,8 @@ Jens Buchert - Exoplanet (2019) Dimension Music [FLAC|Lossless|WEB-DL|tracks] <E
 magnet:?xt=urn:btih:EED06C8982471AD8E69AA470E61460E836C0F8A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +424,8 @@ VA - Made In Germany Vol. 1 - A German Synthwave Compilation (2017) [FLAC 2.0|44
 ```bash
 magnet:?xt=urn:btih:9CA346CACB71C4933C688E95D01C3C10C030F1D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +454,8 @@ TEVOL - Label-Pack 4 Releases (2016-2017) [FLAC|Lossless|tracks] <Dub Techno, Mi
 magnet:?xt=urn:btih:F10C1D197D8071CD87C77FE8B7A6AE8E038405D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +482,8 @@ VA - Synthwave, Vol. 4 (2016) [MP3|320 Kbps] <Synthwave, Retrowave>
 ```bash
 magnet:?xt=urn:btih:0E5A94C72FF45BD732868EEC69F37463E7D52C97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +512,8 @@ VA - Synthwave, Vol. 3 (2016) [MP3|320 Kbps] <Synthwave, Retrowave>
 magnet:?xt=urn:btih:7BD5B0A92E62170B5AF01D10F0F075F1E633EEAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +540,8 @@ VA - Re:Commended - Deep House Edition, Vol.7 (2016) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:DE1FD5609ED60275C64F859C88CEE9F4B888EB9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +570,8 @@ VA - Vocal Anthems Ibiza (2016) [MP3|320 Kbps] <Trance, Vocal Trance>
 magnet:?xt=urn:btih:92A3E10946E03B931722B8A0D2FFEC2EB01BDDC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +598,8 @@ VA - Paradise Lovers.St Valentines Day Edition (2016) [MP3|320 Kbps] <Downtempo,
 ```bash
 magnet:?xt=urn:btih:1743C6629BAB1F935F7F8546C6B6144E0898D654
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +628,8 @@ VA - It's Simple: This Is 100 Deep House Tracks of 2019! (2019) [MP3|320 Kbps] <
 magnet:?xt=urn:btih:C0C43F75A105F5C11B23BAFFCD15FAF14B2819A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +656,8 @@ Headstrong feat. Tiff Lacey - The Truth: 2019 Remake (2019) [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:6DB75B1EA33AE324116B236C2CA1E5C3437278F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +686,8 @@ Dance With The Dead - Near Dark (2014) [MP3|320 кб/с]<Electronic, Retro Wave,
 magnet:?xt=urn:btih:8558DDAB95132B39F4932D7ED3F8BF6507BA43AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +715,8 @@ Markus Schulz:
 magnet:?xt=urn:btih:26DC0E00217721BDBB1AB7A5CA101CE93F4DE495
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ VA - Markus Schulz - Global DJ Broadcast Top 20 June (2018) [MP3|320 Kbps] <Tran
 ```bash
 magnet:?xt=urn:btih:922CC90DCC584B3E46F90373954CA7F17DA0676B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

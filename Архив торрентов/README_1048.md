@@ -20,6 +20,8 @@ Permute: Универсальный конвертер видео, аудио и
 magnet:?xt=urn:btih:DB33BA464490D8E9BA179ED9E20C7FDD2C88A9E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:DB33BA464490D8E9BA179ED9E20C7FDD2C88A9E0
 magnet:?xt=urn:btih:BA9411675B7AC2CC75D7E775ACC0EDC1D75B99EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ MediaHuman YouTube Downloader - удобное приложение с помо�
 ```bash
 magnet:?xt=urn:btih:C5A3FE40B0E9B4D476BEB6F5052B926DDF7C86EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:C5A3FE40B0E9B4D476BEB6F5052B926DDF7C86EE
 magnet:?xt=urn:btih:5009E24C27B3959A158214BC66904F78E59B4870
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Slimjet 21.0.8.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7B11C28B99CB61179E0AFCB0929D038065EB6195
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ IsoBuster может работать с образами дисков, конв
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Vuze (старое название- Azureus) - свободное кроссп�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ DxO PhotoLab Elite 7.1.0 build 94 RePack by KpoJIuK [Multi]
 ```bash
 magnet:?xt=urn:btih:91A71F23FEBF0D12FF5BD1A6EC8301D72A714011
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ Aerosmith - Music from Another Dimension! (2012) [FLAC 2.0 24/192|image (Vinyl-R
 magnet:?xt=urn:btih:6636ECE68EDF1D3DA538DA125CE51F4CEDA0C43A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ The KMPlayer – это мощный мультимедиа проигрыват
 magnet:?xt=urn:btih:94C249BDB8A2E1B9F32A3516BBEDE4FF3AB7DE63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ ClipGrab - программа для скачивания и конвертир�
 ```bash
 magnet:?xt=urn:btih:E64DF1063477EFC86D2252088FED32E9E126C70E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ ConvertXtoDVD способна автоматически создавать ф�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ Wallpapers - Разное 12 [JPEG]
 ```bash
 magnet:?xt=urn:btih:84DD3B707451BAD9D4DC648D7835CAEBC1E66A9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ VA - Enhanced Best Of 2012 (mixed by Will Holland) (2012) [FLAC|Lossless|WEB-DL]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ VA - Enhanced Best Of 2012 (mixed by Will Holland) (2012) [FLAC|Lossless|WEB-DL]
 magnet:?xt=urn:btih:02B10A93F060ADB0B367E6D956232B5B6CE945F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ EssentialPIM - менеджер персональной информации, �
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ EssentialPIM - менеджер персональной информации, �
 magnet:?xt=urn:btih:E31BC64A887583001BC65CCEAE8592A300D1005B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ magnet:?xt=urn:btih:E31BC64A887583001BC65CCEAE8592A300D1005B
 ```bash
 magnet:?xt=urn:btih:717008ACD9EE74B13BF396EFCC7460790AACED53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +511,8 @@ Amadine - это программное обеспечение для векто
 magnet:?xt=urn:btih:4A1EC9735B06F23F5120AE115741439AB1A8E0E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +537,8 @@ magnet:?xt=urn:btih:4A1EC9735B06F23F5120AE115741439AB1A8E0E1
 magnet:?xt=urn:btih:BF2EF19DF262234F798EC74FA29C9F66F9483E65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ magnet:?xt=urn:btih:BF2EF19DF262234F798EC74FA29C9F66F9483E65
 ```bash
 magnet:?xt=urn:btih:160B57FD08292191E112E9AE91EA79CEBD254FF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ John Todd - бывший сатанист, в 1973 стал христианин
 magnet:?xt=urn:btih:FB6D63B1295751A1B0DF3FDC8705978797CE59A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ magnet:?xt=urn:btih:FB6D63B1295751A1B0DF3FDC8705978797CE59A5
 magnet:?xt=urn:btih:6C8D574D54620F7B589771DF234B567CC2F5DC07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ magnet:?xt=urn:btih:6C8D574D54620F7B589771DF234B567CC2F5DC07
 ```bash
 magnet:?xt=urn:btih:CD366499CD81A50B4E83095F7B232F228F0C2F0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +677,8 @@ B4. Million Dollar Girl :: 04:23Жанр: Synth-pop, DiscoФормат: Vinyl, L
 magnet:?xt=urn:btih:5C0DFE61A77E087318B07211FEB11A2A384D5B4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ Soulver предназначен для «быстрой математики» 
 ```bash
 magnet:?xt=urn:btih:96444516F5C1ABC16444D69909BC275A8393801F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

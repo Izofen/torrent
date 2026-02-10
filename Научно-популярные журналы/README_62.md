@@ -1,27 +1,3 @@
-###  Публикация: 597888   (1000231) от 03.01.2013
-
-Журнал | Открытия и гипотезы №12 [декабрь 2012] [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Научно-популярный журнал представляет свежий взгляд на самые главные загадки вселенной и человечества, его проблемы и открытия. Представлены теоретические и практические материалы. Никогда еще наука не была такой интересной.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37C24196A50FF324E09C33098CEBA7E9CD303ECF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349800   (1004076) от 03.01.2020
 
 Журнал | Московский журнал №12 (2019) [PDF]
@@ -45,6 +21,8 @@ magnet:?xt=urn:btih:37C24196A50FF324E09C33098CEBA7E9CD303ECF
 ```bash
 magnet:?xt=urn:btih:D2960B62128AFA725882A8CDB5E5FE578D0CADA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +51,8 @@ magnet:?xt=urn:btih:D2960B62128AFA725882A8CDB5E5FE578D0CADA9
 magnet:?xt=urn:btih:4D6B46D26DEF3A94A2877017A8CC5021B59374DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +79,8 @@ magnet:?xt=urn:btih:4D6B46D26DEF3A94A2877017A8CC5021B59374DC
 ```bash
 magnet:?xt=urn:btih:0AB02B93BBFA02E355ADCBF3D14F652AE40C23BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +109,8 @@ magnet:?xt=urn:btih:0AB02B93BBFA02E355ADCBF3D14F652AE40C23BF
 magnet:?xt=urn:btih:D00D8652AAAF19A151E82839FCEBBA5EA3C5D0A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +137,8 @@ magnet:?xt=urn:btih:D00D8652AAAF19A151E82839FCEBBA5EA3C5D0A9
 ```bash
 magnet:?xt=urn:btih:D52F097254745DE4B5156DE9CBD2B6AA7A31DA31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +167,8 @@ magnet:?xt=urn:btih:D52F097254745DE4B5156DE9CBD2B6AA7A31DA31
 magnet:?xt=urn:btih:2392F9556A382F664D4AD87C18F4CEAFA4657F39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +192,8 @@ magnet:?xt=urn:btih:2392F9556A382F664D4AD87C18F4CEAFA4657F39
 ```bash
 magnet:?xt=urn:btih:9AE7EFE2E32E0ABAB9EAFAD4EC233244CB3D3112
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +219,8 @@ magnet:?xt=urn:btih:9AE7EFE2E32E0ABAB9EAFAD4EC233244CB3D3112
 magnet:?xt=urn:btih:3C53DA9BEBD1C3725E6E3BD168CCDAA966D12A65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +244,8 @@ magnet:?xt=urn:btih:3C53DA9BEBD1C3725E6E3BD168CCDAA966D12A65
 ```bash
 magnet:?xt=urn:btih:87A97DB5D2FC11D8224B7186B2C00E7FCF058BDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +271,8 @@ magnet:?xt=urn:btih:87A97DB5D2FC11D8224B7186B2C00E7FCF058BDA
 magnet:?xt=urn:btih:D5ED71E5DCA0DA6A9D163AD9E7B31511430C224A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +296,8 @@ magnet:?xt=urn:btih:D5ED71E5DCA0DA6A9D163AD9E7B31511430C224A
 ```bash
 magnet:?xt=urn:btih:D9F37C6B3166CE45E44D61C30E24CFFF6A908C88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +323,8 @@ magnet:?xt=urn:btih:D9F37C6B3166CE45E44D61C30E24CFFF6A908C88
 magnet:?xt=urn:btih:6848F9A7812727363B2EA240A43339ED232ADFBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +348,8 @@ magnet:?xt=urn:btih:6848F9A7812727363B2EA240A43339ED232ADFBE
 ```bash
 magnet:?xt=urn:btih:28127B44303A15D7DBFB2F4F279AD5187D1D3A40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +375,8 @@ magnet:?xt=urn:btih:28127B44303A15D7DBFB2F4F279AD5187D1D3A40
 magnet:?xt=urn:btih:BFFFC5E246B8DA94CD9B5F4CCE6A5EC9F2DD6F15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +400,8 @@ magnet:?xt=urn:btih:BFFFC5E246B8DA94CD9B5F4CCE6A5EC9F2DD6F15
 ```bash
 magnet:?xt=urn:btih:6AA4E7E1EE6CDAC01AC0656BD42BEED9FA294F78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +427,8 @@ magnet:?xt=urn:btih:6AA4E7E1EE6CDAC01AC0656BD42BEED9FA294F78
 magnet:?xt=urn:btih:B64DC3F179A3230FF4BC0D1940A647EE530A0CCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +452,8 @@ magnet:?xt=urn:btih:B64DC3F179A3230FF4BC0D1940A647EE530A0CCF
 ```bash
 magnet:?xt=urn:btih:BD914073D320B5A50258CF93AADD000667C1C841
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +479,8 @@ magnet:?xt=urn:btih:BD914073D320B5A50258CF93AADD000667C1C841
 magnet:?xt=urn:btih:DCD9BCF3FF5030E84EEF61AD71F049952532182B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +504,8 @@ magnet:?xt=urn:btih:DCD9BCF3FF5030E84EEF61AD71F049952532182B
 ```bash
 magnet:?xt=urn:btih:3EEEA323796A3925A202B856200EDEBB6221E350
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +531,8 @@ magnet:?xt=urn:btih:3EEEA323796A3925A202B856200EDEBB6221E350
 magnet:?xt=urn:btih:3C4FE13A140983977603AC49C2F9DED8BEC0C35F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +556,8 @@ magnet:?xt=urn:btih:3C4FE13A140983977603AC49C2F9DED8BEC0C35F
 ```bash
 magnet:?xt=urn:btih:6F1619D7A983B42C7BF625E143BB6ABE4F899EEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +583,8 @@ magnet:?xt=urn:btih:6F1619D7A983B42C7BF625E143BB6ABE4F899EEA
 magnet:?xt=urn:btih:92FC0FCA5B32C3E5928F24D570B3335FF2AEE610
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +608,8 @@ magnet:?xt=urn:btih:92FC0FCA5B32C3E5928F24D570B3335FF2AEE610
 ```bash
 magnet:?xt=urn:btih:C6E4A9DCC6C97B2E4C0BBA5A6ABFA1B2E16DAB0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +635,8 @@ magnet:?xt=urn:btih:C6E4A9DCC6C97B2E4C0BBA5A6ABFA1B2E16DAB0D
 magnet:?xt=urn:btih:4EE5D2D821B34F55641AC50B5F8BE85EF3E5E5FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +660,34 @@ magnet:?xt=urn:btih:4EE5D2D821B34F55641AC50B5F8BE85EF3E5E5FB
 ```bash
 magnet:?xt=urn:btih:41EB08CF9CEE29173E00DCBACCA570AF8F9E7ABB
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360554   (1036762) от 24.01.2021
+
+Подшивка журналов | Домашняя лаборатория (2020) [DJVU]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036762.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Домашняя лаборатория» - это весьма большой и увлекательный, научно-прикладной и образовательный, но некоммерческий интернет-журнал, созданный группой энтузиастов. Интернет-журнал содержит материалы, найденные в Интернет или написанные для Интернет. Основная тематика статей - то, что можно сделать самому, от садовых поделок до сверхпроводников, но есть и просто полезные (   Читать дальше...   )Жанр: Научно-популярный журналФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CCEEF8C6093E8C99BFA695AD769AF684C921CA3
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 929944   (516198) от 22.08.2015
+
+Владимир Миркин | Как похудеть? Легко! 5 размеров за 5 месяцев (2011) [FB2, RTF]
+
+>>Разное (категория книг)
+>>Нетрадиционная медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_516198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем вам экспресс-курс доктора Миркина. Впервые уникальная система снижения веса изложена просто и доступно, с ее помощью вы сможете похудеть быстро и без особых усилий. Секрет доктора Миркина – в несложных психологических приемах, позволяющих снизить пагубное влечение к запретным продуктам и снять эмоциональное напряжение, вызванное ограничениями в еде. (   Читать дальше...   )Жанр: Здоровье и красотаФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D6555EDF329072C0413A05E742B668C711B6EDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 929380   (516199) от 22.08.2015
 
 Филип Котлер, Нэнси Ли | Маркетинг для государственных и общественных организаций (2008) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:413F9A0D3FF258CAA23300D3C8063F11330574DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:413F9A0D3FF258CAA23300D3C8063F11330574DF
 magnet:?xt=urn:btih:BAEB38200B9345AAB0D31D897D5ED9FFBBE51DC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +101,8 @@ magnet:?xt=urn:btih:BAEB38200B9345AAB0D31D897D5ED9FFBBE51DC4
 magnet:?xt=urn:btih:9450670A1A6B0870E5F186A45540CE859EDFE759
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:9450670A1A6B0870E5F186A45540CE859EDFE759
 ```bash
 magnet:?xt=urn:btih:74F22594E97A0E6033030764FB461488CCCC80AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +154,8 @@ magnet:?xt=urn:btih:74F22594E97A0E6033030764FB461488CCCC80AB
 magnet:?xt=urn:btih:1C44794BA6F0CE92C829CBA7D5D8804B07BBC337
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:1C44794BA6F0CE92C829CBA7D5D8804B07BBC337
 ```bash
 magnet:?xt=urn:btih:6B1485442EB612F68FD2405D522998D92D78C82C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +208,8 @@ magnet:?xt=urn:btih:6B1485442EB612F68FD2405D522998D92D78C82C
 magnet:?xt=urn:btih:494003330DA792B9DC57CB44B09EB7152491FD8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +236,8 @@ magnet:?xt=urn:btih:494003330DA792B9DC57CB44B09EB7152491FD8A
 magnet:?xt=urn:btih:4D62DCA87E3FEC6217BCFEC21563E863C65920D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +261,8 @@ magnet:?xt=urn:btih:4D62DCA87E3FEC6217BCFEC21563E863C65920D9
 ```bash
 magnet:?xt=urn:btih:248904449182A84381F4ACB5C981BE9F672F176B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +288,8 @@ magnet:?xt=urn:btih:248904449182A84381F4ACB5C981BE9F672F176B
 magnet:?xt=urn:btih:71C586DED1420C1EE9B093168FA1192A2E99FB75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +313,8 @@ magnet:?xt=urn:btih:71C586DED1420C1EE9B093168FA1192A2E99FB75
 ```bash
 magnet:?xt=urn:btih:A4D546B462FFB03A0F98028C27489BCCDDE9E67F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +340,8 @@ magnet:?xt=urn:btih:A4D546B462FFB03A0F98028C27489BCCDDE9E67F
 magnet:?xt=urn:btih:D89E83DD19DB1CD8CE409074DE2FB0453278F4BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:D89E83DD19DB1CD8CE409074DE2FB0453278F4BF
 ```bash
 magnet:?xt=urn:btih:B70C84B59C65407AA2E6F0D434035093F360F4EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +392,8 @@ magnet:?xt=urn:btih:B70C84B59C65407AA2E6F0D434035093F360F4EA
 magnet:?xt=urn:btih:EC5669662A008D6BDAC8FC9E544C04A7E0E084E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:EC5669662A008D6BDAC8FC9E544C04A7E0E084E9
 ```bash
 magnet:?xt=urn:btih:9B0A7CD69D6E162FE510DFD4693CE6D92B2DAD76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +446,8 @@ magnet:?xt=urn:btih:9B0A7CD69D6E162FE510DFD4693CE6D92B2DAD76
 magnet:?xt=urn:btih:85FA58004E0E0F9D417BDCFC037E823F4AE61E9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +474,8 @@ magnet:?xt=urn:btih:85FA58004E0E0F9D417BDCFC037E823F4AE61E9E
 magnet:?xt=urn:btih:6A7ED3E6F72CEEB4713BB0AE31E6BC8D0124DC6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +499,8 @@ magnet:?xt=urn:btih:6A7ED3E6F72CEEB4713BB0AE31E6BC8D0124DC6A
 ```bash
 magnet:?xt=urn:btih:E8DE26E9DC4417E6E45C887759611CC4382C006A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +528,8 @@ magnet:?xt=urn:btih:E8DE26E9DC4417E6E45C887759611CC4382C006A
 magnet:?xt=urn:btih:0C42B4447AF50DAA86CBA5DD66A2BDD9ED16D785
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +554,8 @@ magnet:?xt=urn:btih:0C42B4447AF50DAA86CBA5DD66A2BDD9ED16D785
 ```bash
 magnet:?xt=urn:btih:FB0B3B0F12BA8CD2E5B77183CA9538083D24D1C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +583,8 @@ magnet:?xt=urn:btih:FB0B3B0F12BA8CD2E5B77183CA9538083D24D1C2
 magnet:?xt=urn:btih:12599E22F86C092F0187B102B4ED72322A8F7098
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +609,8 @@ magnet:?xt=urn:btih:12599E22F86C092F0187B102B4ED72322A8F7098
 magnet:?xt=urn:btih:041978396772D509AC3D876D095C3CB2CDBAD529
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +634,8 @@ magnet:?xt=urn:btih:041978396772D509AC3D876D095C3CB2CDBAD529
 ```bash
 magnet:?xt=urn:btih:0DB8FD9F092CE3C0EAD39991B6CF0BD797DA4CF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +663,8 @@ magnet:?xt=urn:btih:0DB8FD9F092CE3C0EAD39991B6CF0BD797DA4CF9
 magnet:?xt=urn:btih:3E2CF89DE2964D0D99268E12863CAB5EA2BA64B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,29 +689,7 @@ magnet:?xt=urn:btih:3E2CF89DE2964D0D99268E12863CAB5EA2BA64B9
 magnet:?xt=urn:btih:82133D3404B2BBA6144574980D77CC49B548BD35
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 535218   (517525) от 15.08.2012
-
-А.Доминэ | Вино. Самая полная иллюстрированная энциклопедия [2010] [DJVU]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга вмещает в себя все, что необходимо знать о вине. Атлас, справочник и путеводитель, книга "Вино" проведет вас по всему мира, знакомя со странами и регионами, занимающимися виноделием. "Вино" также подойдет вам, если вы собираетесь заниматься покупкой вина. Желающие получить более подробные знания о вине найдут в книге исчерпывающую информацию (   Читать дальше...   )Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA5C1A6011DF5390549D4371ABE1230EA2A2FA32
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

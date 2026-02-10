@@ -1,3 +1,32 @@
+###  Публикация: 572725   (377396) от 11.11.2012
+
+VA - Most Wanted - Digital Dancefloor - Chapter 01-12 (2011) [MP3|320 кб/с]<Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Sleep - Moonlight Shadow (DJ's Master Mix) (6:13)
+02. Clueless - Don't Speak (Extended Version 1) (6:10)
+03. Ritmo Ritmo feat. Ricardo DC - Matador (Maxi Edit) (5:17)
+04. 2Hot4You - Can't Take My Eyes Off You (Club Rap-Mix) (6:01)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 00:75:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27629BCA229CE7FC08C2C15DF9DD9CEA76D8C736
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175244   (378176) от 18.10.2017
 
 Олег Винник - Музыкальная коллекция (2016) [MP3|320 Kbps] <Pop>
@@ -21,6 +50,8 @@
 ```bash
 magnet:?xt=urn:btih:3AC95297A5B9163760A4629940F09457B5621BF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Осенняя Дискотека По-Русски (2016) [MP3|256 Kbps] <
 magnet:?xt=urn:btih:8EE5DDC32C45DFF2B41F75DFCBC4558D72F911C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Музыкальный Адреналин. Top Hits 9 (2016) [MP3|256 Kbps]
 ```bash
 magnet:?xt=urn:btih:F0523863F6F9A89BC7990377583872DEAFE24A9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +144,8 @@ VA - Русский Шторм - 80 (2012) [MP3|112-320 кб/с]<Pop>
 magnet:?xt=urn:btih:DAE10E779996EA02A6F3A419E6D42117654D5D16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +178,8 @@ VA - Радио Шторм - NeРусский Шторм - 79 (2012) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:4FD4B1BDB1ECB4A6648F5A55654AFB5D5AEB5220
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +214,8 @@ VA - Лучшая молодёжная 100-ка. Русская версия (20
 magnet:?xt=urn:btih:B6B1DF566439F028C2A7356AAE43D25060EC4351
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +248,8 @@ VA - Супер Танцевальный Музон (2012) [MP3|256 кб/с]<Pop
 ```bash
 magnet:?xt=urn:btih:B6E415BD5FCB890A58FA5EE34AA03BC19E2D3651
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +284,8 @@ VA - Осенний Клубный (2012) [MP3|320 кб/с]<Club,Dance>
 magnet:?xt=urn:btih:70D4A5C8F376571865A0D16553E3AAF26A640A56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +318,8 @@ VA - Coca-Cola Hit Осень (2012) [MP3|128 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:0599880F84B41DD879A26C50FB4CF058045D92C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +354,8 @@ VA - Самая звездная дискотека 2 (2012) [MP3|256 кб/с]<P
 magnet:?xt=urn:btih:B0C21D25D0302085D102624A4C0ACD40D19FCB5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +388,8 @@ VA - Союз Подарочный Русский Выпуск (2012) [MP3|256 �
 ```bash
 magnet:?xt=urn:btih:35AD6698334197DE0E8C983F90A78245CF8F72FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +424,8 @@ VA - Русский Улетный Hit-Прорыв (2012) [MP3|256 кб/с]<Pop
 magnet:?xt=urn:btih:AEA29636CD824BA2D442C128553D9675D3B0D993
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +459,8 @@ VA - Новая коллекция 71 (2012) [MP3 |256 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:7E31D8CB59AADF9303D24F8B168B832FE55619FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +488,8 @@ magnet:?xt=urn:btih:7E31D8CB59AADF9303D24F8B168B832FE55619FC
 magnet:?xt=urn:btih:23F65F398F1EC98B90F547AFDE49933CD2DEA9E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +516,8 @@ VA - German Top 100 Single Charts 20.09.2019 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:6D9DE87E6E80C1433B8966C415165B97F10D5249
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +552,8 @@ VA - LUX music клубный. Сборник русских хитов (2012) [
 magnet:?xt=urn:btih:A580C79BB7E09BD04EFCD0F9964A2B9FAE9AB615
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +580,8 @@ VA - Pop Panorama: October Set (2018) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:60A2FA2E37A6B65390194441E66D644247F4A845
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +616,8 @@ VA - Осенняя хитовая двухсотка 50/50 (2012) [MP3|128 кб
 magnet:?xt=urn:btih:52E66EB3854E48BEB180831DFE6E67AF7951CC9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +644,8 @@ VA - XXXL Радио Хиты 50х50 (2016) [MP3|320 Kbps] <Поп, Dance, Ро�
 ```bash
 magnet:?xt=urn:btih:96D9EE1F749884D0B1D264AA04F7ABD32255ED98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +674,8 @@ CD1:
 magnet:?xt=urn:btih:1AB8E32DDDCEEC3123324251FB4DAF91B528E2C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +702,8 @@ VA - Mega сборник Europa Plus №2 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:1FBF7A3B383EB2731633939359790A0AB72BEBA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -661,6 +732,8 @@ VA - Необыкновенная. Топ новинок поп музыки (20
 magnet:?xt=urn:btih:3F6795A58862E14DA056046FB2304EAAB5582F25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -687,6 +760,8 @@ VA - Mega chart №15 (2016) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:9C1088F9D7421A616BBC5CE43CB5B93458765291
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -715,6 +790,8 @@ VA - Музыкальный заряд  #2 (2016) [MP3|256~320 Kbps] <Pop>
 magnet:?xt=urn:btih:9CA04E9875667BB0F3C62E7C6E1E97EB31BA1DB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -742,32 +819,7 @@ VA - Горячий хитовый драйв. Часть 4 (2016) [MP3|256 Kbps
 magnet:?xt=urn:btih:3EC4701E884B0B4DAE0E5F3C71B0E93B4E5A2F80
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326582   (383375) от 21.09.2019
-
-VA - Empire Records - Acapella (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Juan Wauters - El Hombre de la Calle
-02. Natasha Barnes - Dollar Signs
-03. Zigmaester - Zombie Luv
-04. James Blake - Mulholland(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:501AE5C410042B97A62CE448BAC9A508794F9994
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

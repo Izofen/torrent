@@ -19,6 +19,8 @@ BBC: Гений Марии Кюри: женщина, осветившая мир
 magnet:?xt=urn:btih:9918F5438031E3EAB747A1A47C26716FE36CC6D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ NGW. Рождение прайда / Birth of the pride (2018) HDTV [H.264/1080i
 magnet:?xt=urn:btih:FCF8287BFD36BC1BE76D9750CEAEE1AB9E5164FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Nat Geo Wild: Землеройка-убийца / Killer Shrew (2014) HDTVRip [H
 ```bash
 magnet:?xt=urn:btih:E44B19A631B5C6EEEFB9A26B44991803479F35B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:E44B19A631B5C6EEEFB9A26B44991803479F35B6
 magnet:?xt=urn:btih:E5B4267F84DECCF45A46E53A240F204A854EE09B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ BBC: Невидимые миры. Вне поля зрения / Invisible World
 magnet:?xt=urn:btih:D990F155D8E8CA36C9CA97951C7591EA3B03E16F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ BBC: Секреты устройства античных городов. Рим
 ```bash
 magnet:?xt=urn:btih:F1476B77E10324E189883B95D8FAB85DC69C06C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Discovery. COVID-19: Китай против вируса / COVID-19: Battling t
 magnet:?xt=urn:btih:11DA33D8C84A8EAF71045AF087C0C48236CC507C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:11DA33D8C84A8EAF71045AF087C0C48236CC507C
 ```bash
 magnet:?xt=urn:btih:9EE298F2A7E215345976005CBEBEFDC131BBDE6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:9EE298F2A7E215345976005CBEBEFDC131BBDE6D
 magnet:?xt=urn:btih:0A20516ECEBD7B709DD07C433BE85B9E64DC0EA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ BBC: Королевские дворцы / The Queen's Palaces (2011) HDTVRip [H
 ```bash
 magnet:?xt=urn:btih:DA711CBD0180EA831A2BAEE77F1A7C03824762D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:DA711CBD0180EA831A2BAEE77F1A7C03824762D9
 magnet:?xt=urn:btih:526B74C93D839179EE1EC6349A5E330D8070C03E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 ```bash
 magnet:?xt=urn:btih:D9BBB4DC6B95B3F614B61865BA44B6759ECEFFEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ NG: Спасение старейшей пирамиды Египта / Saving E
 magnet:?xt=urn:btih:F668AF378FD82E9FDE31D3663000CDF9A0EE0888
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:F668AF378FD82E9FDE31D3663000CDF9A0EE0888
 magnet:?xt=urn:btih:0691A8C769ACCD86631F24140118F2D6F3D770C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ NG: Спасти Титаник: сокровища с глубины / Save the
 ```bash
 magnet:?xt=urn:btih:9F0FDAD63A6C4A733A3F3DFBF017DF816B13C2D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Discovery. Как устроена Вселенная / Discovery. How the Unive
 magnet:?xt=urn:btih:560CC95B1AB627B4BAD5C9188D00FDC5CF523CB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ BBC: Секреты устройства античных городов. Афи
 ```bash
 magnet:?xt=urn:btih:B725C25FE83F26D3233BB4AA3904CE95555BB12D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Discovery: 100 Величайших Открытий / 100 Greatest Discoveries 
 magnet:?xt=urn:btih:B42AD6B11AFCF4AD3D8EDF56887C740F7FA10606
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ NGW. Болотный отряд (Павианы Окаванго) / Swamp Troop
 ```bash
 magnet:?xt=urn:btih:07259D5AD0699ADF40ABC794683412666E2B394D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ BBC: Мир природы. Каланы. Малышка на миллион / N
 magnet:?xt=urn:btih:81F2A3FC8D0DDE237F24457AE760564540903EAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:81F2A3FC8D0DDE237F24457AE760564540903EAF
 ```bash
 magnet:?xt=urn:btih:A714A6D19D87AF249B5EA539F8E9D701D555A208
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:A714A6D19D87AF249B5EA539F8E9D701D555A208
 magnet:?xt=urn:btih:D94C6A99D6280D6C80570554647F772EC15F6FFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ BBC: Внутри человеческого тела / BBC: Inside the Human Bo
 ```bash
 magnet:?xt=urn:btih:09A610CC646B8C6D4915FFF6BBE5FA1B943D6B0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:09A610CC646B8C6D4915FFF6BBE5FA1B943D6B0C
 magnet:?xt=urn:btih:4CC02D37EA4669E901348DBE52D9328460C58FAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:4CC02D37EA4669E901348DBE52D9328460C58FAC
 magnet:?xt=urn:btih:2B794966FAA038EA178A63CB23F4954B1006A4B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:2B794966FAA038EA178A63CB23F4954B1006A4B3
 ```bash
 magnet:?xt=urn:btih:A7F648BBB668006BEA155AC0CCB8B3F505F93462
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

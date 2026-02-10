@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:EA0863F46B2A420C5DE764AD9C76C855AF84D715
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ lingua franconia, Катерина Томилина | Правила чтени�
 magnet:?xt=urn:btih:43EB9D8EC69A7E9687CE33E05513B7884218EAA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:43EB9D8EC69A7E9687CE33E05513B7884218EAA3
 ```bash
 magnet:?xt=urn:btih:80A4D1C6D2615EB7AC26611A54BDDB954C70EE7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:80A4D1C6D2615EB7AC26611A54BDDB954C70EE7C
 magnet:?xt=urn:btih:616F81BD815195845A3BDAD70A07523BCF6D91DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ Udemy, CG Boost, Zach Reinhardt | Mastering Sculpting in Blender 2.79 (2018) PCR
 magnet:?xt=urn:btih:6865AD2BB5CFACD201D9EEE6C8C4354C56E94CBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Skillshare, Greg Wondra | Unreal Engine 4: Character UI Creation (2020) PCRec [E
 ```bash
 magnet:?xt=urn:btih:7C438CB0956389278517AFC44C83889CE97A6CD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ Stepik | Основы программирования на Python (2020) PCRec 
 magnet:?xt=urn:btih:E913D3E31558A948F859BF73922D4ED991831B39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:E913D3E31558A948F859BF73922D4ED991831B39
 ```bash
 magnet:?xt=urn:btih:D1A5EE4198752347BE700006D9AA7C891B21802E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ Shaun T | CIZE - The End of Exercize Deluxe (2015) HDTVRip [H.264/720p-LQ] [EN]
 magnet:?xt=urn:btih:602AD9EF391C8675E592D31C9186D6289913F672
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ Schoolism, Sonja Christoph | Introduction to Blender 2.9 [Low Quality] (2021) PC
 ```bash
 magnet:?xt=urn:btih:F9CC14FE7EB7680362CBA9B624E5A2D457D9FA30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ Udemy, Connor Gerber | Game Ready Triple Barrel Hand Cannon [Blender 2.93, Subst
 magnet:?xt=urn:btih:43F44D3F18FC3FF1B2123617B75E463436615701
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ ArtStation, Tautvydas Kazlauskas | Modeling in Blender 2.83 (2020) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:FF4982C0A6C9089EE766D473380C9CDBE2B90FA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:FF4982C0A6C9089EE766D473380C9CDBE2B90FA5
 ```bash
 magnet:?xt=urn:btih:5CCA87747BA7C532E6C99220EB4DE1D1B202AD59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:5CCA87747BA7C532E6C99220EB4DE1D1B202AD59
 magnet:?xt=urn:btih:83D1C4442616728888190B1C204D94B44471C279
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:83D1C4442616728888190B1C204D94B44471C279
 ```bash
 magnet:?xt=urn:btih:30A2650DDB50BFFCF049BECB326FEC346E2F1E8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:30A2650DDB50BFFCF049BECB326FEC346E2F1E8D
 magnet:?xt=urn:btih:4DA45CD09BA1372515656931A5A63DB30402B9CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ magnet:?xt=urn:btih:4DA45CD09BA1372515656931A5A63DB30402B9CB
 magnet:?xt=urn:btih:960C825B525A30A57806E87AC200FD30DD8E3BBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:960C825B525A30A57806E87AC200FD30DD8E3BBD
 ```bash
 magnet:?xt=urn:btih:D8CCA634879565547C19081DC83E5377A16CC550
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +510,8 @@ magnet:?xt=urn:btih:D8CCA634879565547C19081DC83E5377A16CC550
 magnet:?xt=urn:btih:A478E1CC0BFBD52975E85EEBAA6368CB4E08DD31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +537,8 @@ FlippedNormals, Maria Puchkova | Real-Time Hair Tutorial (2021) PCRec [EN]
 magnet:?xt=urn:btih:B0B9C315ADDDF5A97EB09F1B2A7DB3C7C8A8FEEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ magnet:?xt=urn:btih:B0B9C315ADDDF5A97EB09F1B2A7DB3C7C8A8FEEB
 ```bash
 magnet:?xt=urn:btih:0DFDAA15A32592DED881B7D3D751E9052AF4BBDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ Flutter - фреймворк, разработанный Google - позволя
 magnet:?xt=urn:btih:DAA265B14285989104111FB8D8448AEFBDD0518E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ magnet:?xt=urn:btih:DAA265B14285989104111FB8D8448AEFBDD0518E
 magnet:?xt=urn:btih:F850E2FBE4E434D066E7B727748F200967A18E5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ CGMA, Niels Prayer | Organic Design in Houdini (2018) PCRec
 ```bash
 magnet:?xt=urn:btih:AF3E73FB35E6DC9D1A58BB21088510FC560C4F91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +678,8 @@ magnet:?xt=urn:btih:AF3E73FB35E6DC9D1A58BB21088510FC560C4F91
 magnet:?xt=urn:btih:34A6CCC08D7E329330B5AEAD9146FA159034E07C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ magnet:?xt=urn:btih:34A6CCC08D7E329330B5AEAD9146FA159034E07C
 ```bash
 magnet:?xt=urn:btih:FF63A09F974BD9B947C32E025162E283B19438B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

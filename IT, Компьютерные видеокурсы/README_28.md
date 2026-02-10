@@ -19,6 +19,8 @@ Udemy, Lucy Iterman | Postman по полочкам + практика (2022) WE
 magnet:?xt=urn:btih:503496AF7B01FDA978197EADB8C3EBFD309F45AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Udemy, Никита Сергеев | Power Point: от новичка до ув�
 magnet:?xt=urn:btih:D70CDA81431FB987FB2D2C623BFCD8B8DAB622FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Udemy, Sergey Dragunov | Room Persistance Librar - Приложение Shopping
 ```bash
 magnet:?xt=urn:btih:85B72D5013C3277DF6772599DD0B3C37E28EE3A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:85B72D5013C3277DF6772599DD0B3C37E28EE3A5
 magnet:?xt=urn:btih:FE4072367B8F2E1592D6828E485D01D9591C44FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ Udemy, Dharmanandana Reddy Pothula | Advanced Ethical Hacking : Mastery AI & Cha
 magnet:?xt=urn:btih:8CF9C58AD46C15BD000C4424C7523321B90286D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Udemy, Martin Yanev | ChatGPT Software Mastery: Build, Deploy & Sell AI Apps (20
 ```bash
 magnet:?xt=urn:btih:A59DD259ADEDB7470C92EFB6AEF3AFD8C5ED9C1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ Thinknetica Pro, Кирилл Храпков  | Проектирование Б�
 ```bash
 magnet:?xt=urn:btih:6CA6912EAECB072CAB9396315C79DB6D152A2066
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ Udemy, Василий Швалев | Ultimate QGIS: с нуля до экспе�
 magnet:?xt=urn:btih:49D8DE7BA3958BCA45E12FE4A94757672FF60D81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ DevOops - конференция от JUG Ru Group, посвященная пр�
 ```bash
 magnet:?xt=urn:btih:DF2378802B114DC8286341596EC24AAAF5C00345
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ DotNext — крупнейшая и старейшая конференция д
 magnet:?xt=urn:btih:71E0003217E1431090616AB082042D83B2ACB37E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ Systems.Education, babok-school.ru, Зоя Степчева, Анна Вичуг
 ```bash
 magnet:?xt=urn:btih:F3BA27119C83976930A5C30550A0C38EA20FACC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ Event-sourcing. Этот подход является особенно попу
 ```bash
 magnet:?xt=urn:btih:DCAF07C765D5A23F5864F65F2336DDF4F8F137F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ Systems.Education, babok-school.ru, Дарья Колесова, Анна Вич
 magnet:?xt=urn:btih:51AF2272C82665C3E5DA420C04AE646511FFCF0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ Udemy, Nikita Sergeev | Управление проектами: полное п
 magnet:?xt=urn:btih:03B57453212A89BC882BFDB5AC5E3205DCB84B80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ Anthony GG | Full Time Go Dev (2023) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:33AECEA920CF00EC1BA3F90141C8B94531FF0C60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ Slurm (Слёрм), Егор Лукьянов, Александр Вагнер |
 magnet:?xt=urn:btih:C5F74A8CC7362CBEF0B2AAE62BEE3CC2C3016605
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ Thinknetica Pro, Алексей Наумов | Под капотом Ruby on Rai
 magnet:?xt=urn:btih:F833D74FB458A1421EC1B408895AC81BA9CB28F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ Deworker Pro, Дмитрий Елисеев | Использование HTTP з
 ```bash
 magnet:?xt=urn:btih:EC2560F385E4410A5F1A851E4CAE388238196885
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +513,8 @@ Deworker Pro, Дмитрий Елисеев | Устройство HTTP-фрей
 magnet:?xt=urn:btih:E1C670097D00B51C3194BAC41CA8080DE11D67B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +538,8 @@ Deworker Pro, Дмитрий Елисеев | Модульное разделе�
 ```bash
 magnet:?xt=urn:btih:321B597FC8B15282DB625FB1DF309570088775BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +567,8 @@ Deworker Pro, Дмитрий Елисеев | Практический рефа�
 magnet:?xt=urn:btih:1FA8F923F6F24459C64CA7962867CEF69FA83AD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +592,8 @@ Deworker Pro, Дмитрий Елисеев | Техзадание и дизай
 ```bash
 magnet:?xt=urn:btih:F406BFED6E4FD6837B1AF5AEA61CAF2DF7CD5DB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +619,8 @@ Deworker Pro, Дмитрий Елисеев | Доменная модель и E
 magnet:?xt=urn:btih:8CFAFAC123C160998835DD9D27AC26D8D6FE4107
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +644,8 @@ Traversymedia | MERN From Scratch (2023) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:094C9638D06A0EEECCC08985715B6A35D839EFB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +672,8 @@ Udemy, Eincode by Filip Jerga, Filip Jerga | Svelte and Firebase: The Full Cours
 magnet:?xt=urn:btih:1710377EEE16CCBF62C51CE044EFED19F9172743
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +698,8 @@ Python - это самый простой язык программирован�
 ```bash
 magnet:?xt=urn:btih:EC402067C6172C9595E4E3D8C242FF137264410F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

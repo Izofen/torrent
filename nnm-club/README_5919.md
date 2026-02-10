@@ -19,6 +19,8 @@ Tails Noir Preludes (2023) [En] (11891862/dlc) Scene Tenoke [Deluxe Edition]
 magnet:?xt=urn:btih:4363A7E36BFB58E833586F7B2FB9050CCB870DFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:4363A7E36BFB58E833586F7B2FB9050CCB870DFD
 ```bash
 magnet:?xt=urn:btih:4449CFD8055E1D7884EBEBD3274EA1E74606A0B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ realMyst: Masterpiece Edition – это красивая обновлённая
 magnet:?xt=urn:btih:554C599D9F16F07B7CAEEA9D310CCAD57B95D8C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:554C599D9F16F07B7CAEEA9D310CCAD57B95D8C2
 ```bash
 magnet:?xt=urn:btih:BFCA06904B9634B051E5018132918C72735C16B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ WITCHROT - Live In The Hammer (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, 
 magnet:?xt=urn:btih:E38D019A78857442E04870168E6FC62CE0029DE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:E38D019A78857442E04870168E6FC62CE0029DE6
 ```bash
 magnet:?xt=urn:btih:9CD38CE7543FB9FA8E9CBD5DDF686571AFFDA24F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:9CD38CE7543FB9FA8E9CBD5DDF686571AFFDA24F
 ```bash
 magnet:?xt=urn:btih:6D93665973079792E4B78262FA1415FE3F25B698
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ Judicator - The Majesty Of Decay (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Met
 magnet:?xt=urn:btih:9791350246456FAE10006590E24479B7F8015544
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:9791350246456FAE10006590E24479B7F8015544
 magnet:?xt=urn:btih:3877B50E584D7A96C6F6381127ADCB2599332237
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:3877B50E584D7A96C6F6381127ADCB2599332237
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:3877B50E584D7A96C6F6381127ADCB2599332237
 ```bash
 magnet:?xt=urn:btih:0C8D3916F73D537CA00505648D75F0AE3D3AEE42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:0C8D3916F73D537CA00505648D75F0AE3D3AEE42
 magnet:?xt=urn:btih:0CB8845BCA2E7D30F9A35E3624E70DE8C1896AA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ Moderna Records - Label-Pack 61 Releases (2015-2020) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:2F490E527B94FCFF0DF7AEED088ECF7B1A846FE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ Ciminero - Shadows Digging the Grave (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom 
 magnet:?xt=urn:btih:439E4313003709EE2AC4E065E2CC815D45336D56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:439E4313003709EE2AC4E065E2CC815D45336D56
 ```bash
 magnet:?xt=urn:btih:8B2048C1B2EDC75C52B21D05FC4117E489621F25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +429,8 @@ Sword - III (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:0F6A6D39E09A1728466E1CC100CDDEC1067AB3D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:0F6A6D39E09A1728466E1CC100CDDEC1067AB3D7
 ```bash
 magnet:?xt=urn:btih:51E328051ECFD89F1F732F0261925097862D9624
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +482,8 @@ magnet:?xt=urn:btih:51E328051ECFD89F1F732F0261925097862D9624
 magnet:?xt=urn:btih:3E03C4094AA876EE70656F175081153106AEB85D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:3E03C4094AA876EE70656F175081153106AEB85D
 ```bash
 magnet:?xt=urn:btih:7B7E662309E642093E48F564B1397E0215FA1B5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ magnet:?xt=urn:btih:7B7E662309E642093E48F564B1397E0215FA1B5D
 magnet:?xt=urn:btih:4D80E18FC459A6EFA37816FB96912A27D335EF5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ magnet:?xt=urn:btih:4D80E18FC459A6EFA37816FB96912A27D335EF5A
 ```bash
 magnet:?xt=urn:btih:E9BCB0D9F3A335682AC05DA0C05CD667B86B6EAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:E9BCB0D9F3A335682AC05DA0C05CD667B86B6EAE
 magnet:?xt=urn:btih:B986B61D68BA64C3D4E7FAC3427A1D3468D22476
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ Seven / 7 Минут Упражнение v9.19.04 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:BE3042F4376A035271BD5779A84F4F9EE9E22A5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +640,8 @@ magnet:?xt=urn:btih:BE3042F4376A035271BD5779A84F4F9EE9E22A5A
 ```bash
 magnet:?xt=urn:btih:AD92F9A21688C26E8E5965362CBF05EE26204DFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +668,8 @@ magnet:?xt=urn:btih:AD92F9A21688C26E8E5965362CBF05EE26204DFB
 magnet:?xt=urn:btih:A83A258237103C89DE29D2C9625A7BDD4150FDC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ magnet:?xt=urn:btih:A83A258237103C89DE29D2C9625A7BDD4150FDC1
 ```bash
 magnet:?xt=urn:btih:2E43DB112FF9A2047C09A8B0798EBC464EB34D99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Billy Idol - Billy Idol (1982) 2CD, Expanded Edition, 2023, Capitol Catalog MKT 
 magnet:?xt=urn:btih:533D7A6039BD547C692499C72D896E1A367FB8CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:533D7A6039BD547C692499C72D896E1A367FB8CD
 ```bash
 magnet:?xt=urn:btih:D134FCF5FC7539C7B451A86C6BE89B5363CA4B8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - German Top 100 Single Charts 29.11.2019 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:2DC035975D126B716F9CEEF96995ED905848AA3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ Radio Silence 3.0 beta [En]
 magnet:?xt=urn:btih:3F1183960BE945385671A40993D26515E1596A73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:3F1183960BE945385671A40993D26515E1596A73
 ```bash
 magnet:?xt=urn:btih:28EE5EB1B8A490EE981F3112291AC3FC20D94768
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:28EE5EB1B8A490EE981F3112291AC3FC20D94768
 magnet:?xt=urn:btih:7EA1126C5A156D8AAC371CFFC213E281C0D03F52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:7EA1126C5A156D8AAC371CFFC213E281C0D03F52
 ```bash
 magnet:?xt=urn:btih:AC0C88EFAF94C37A92743AB1D50EDAEB35C21972
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:AC0C88EFAF94C37A92743AB1D50EDAEB35C21972
 magnet:?xt=urn:btih:97778736F8378E82FB4424DF06D172B0FB182E42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ ProcessKO 3.88 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D4B207FE67605876143BDB9B7AF79C22808BBEBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ Q-Dir позволяет получать быстрый доступ к час�
 magnet:?xt=urn:btih:20F6E683DABAA6812FF9ADCA5AC55A8AE7A6D617
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:20F6E683DABAA6812FF9ADCA5AC55A8AE7A6D617
 ```bash
 magnet:?xt=urn:btih:0D329CB3A7081B414CC8CAFD5CA85EEFEDFD6020
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ VA - Club Sunday Superfunk (09.12.2012) [MP3|320 кб/с]<Club, Progressive, Hou
 magnet:?xt=urn:btih:DEE8A0A27A9B926021CD94A280409AC5E9C6BFCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:DEE8A0A27A9B926021CD94A280409AC5E9C6BFCA
 ```bash
 magnet:?xt=urn:btih:E77FD24D51B8D5AB14B9D68B65F92C1F34C3F1D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:E77FD24D51B8D5AB14B9D68B65F92C1F34C3F1D6
 magnet:?xt=urn:btih:7F028BD239B74A71B70A0946FAD7D39074FE63DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:7F028BD239B74A71B70A0946FAD7D39074FE63DF
 ```bash
 magnet:?xt=urn:btih:2C488E6E233D9264F2558A44878B4B97EC775878
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ Balthazar - Thin Walls (2015) 2 CD Limited Edition [FLAC|Lossless|tracks + .cue]
 magnet:?xt=urn:btih:123CD0D7A01CE7DEDA7BCD9D7E5B9A1C58896DED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ magnet:?xt=urn:btih:123CD0D7A01CE7DEDA7BCD9D7E5B9A1C58896DED
 ```bash
 magnet:?xt=urn:btih:C12B61143057DFCC91CD28CE3B6C3012357E2EDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ Q-Dir позволяет получать быстрый доступ к час�
 ```bash
 magnet:?xt=urn:btih:4C419124F00BDD27A2FB4EF67F00420F6301E18B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +512,8 @@ magnet:?xt=urn:btih:4C419124F00BDD27A2FB4EF67F00420F6301E18B
 magnet:?xt=urn:btih:1C85412B86A899264295ECC72B3F56635EA15E7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +538,8 @@ VueScan - программа для работы со сканерами HP, Min
 magnet:?xt=urn:btih:C718D600BE8C7DD4A918D7AC2B68EE8268FBB616
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ magnet:?xt=urn:btih:C718D600BE8C7DD4A918D7AC2B68EE8268FBB616
 ```bash
 magnet:?xt=urn:btih:B4FAFFE3F530054469E60793FFEFC9E8083CB37B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +593,8 @@ VA - Record Super Chart 615 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 magnet:?xt=urn:btih:23AFAC4178C9809578564F492D2E78A0D0CE2422
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ magnet:?xt=urn:btih:23AFAC4178C9809578564F492D2E78A0D0CE2422
 ```bash
 magnet:?xt=urn:btih:26C23483A46044FD0EAF8347F837AA2D0FA542E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +653,8 @@ magnet:?xt=urn:btih:26C23483A46044FD0EAF8347F837AA2D0FA542E8
 magnet:?xt=urn:btih:2E69C8DC567F483226958865F5546D1B03AF28F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +682,8 @@ VA - Clubbing Electro House: E-Dance Mix (Vol.06) (2021) [MP3|320 Kbps] <Club, D
 magnet:?xt=urn:btih:D927981D54F561A2E9B9EA7A9882361879C772F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +707,8 @@ magnet:?xt=urn:btih:D927981D54F561A2E9B9EA7A9882361879C772F0
 ```bash
 magnet:?xt=urn:btih:7CCB17D6914A7A4BA4E3A8CEAB78737894EDC73A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

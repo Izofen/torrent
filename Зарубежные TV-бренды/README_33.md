@@ -19,6 +19,8 @@ Discovery: Инородные тела / Body Invaders (2014) HDTVRip (Сери�
 magnet:?xt=urn:btih:51845883CCB3107F108452190EBD64DE92A5D71C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:51845883CCB3107F108452190EBD64DE92A5D71C
 ```bash
 magnet:?xt=urn:btih:A5B14431FE04EC23A34A07A770DEDD98A28BDCD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NG. Открытие потерянной могилы Ирода / Uncovering H
 magnet:?xt=urn:btih:951F216581E7C46A8BCF33B77276806460E356AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ PBS Nature: Гималаи / PBS Nature: The Himalayas (2011) [H.264/1080p-LQ] B
 magnet:?xt=urn:btih:027495C97FDFA83389F98E17D040368C7A5F05FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ NG: Международный аэропорт Дубай. Серия 5 / Ultim
 ```bash
 magnet:?xt=urn:btih:947A19C9EB2DF8DD77D5752299020529343B79A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ NGW: Дикая природа Перу: арена боев – Анды. Ди�
 magnet:?xt=urn:btih:FC3942291BC90FE6A517414B747F7686F703BCF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ NG: Международный аэропорт Дубай. Серия 4 / Ultim
 ```bash
 magnet:?xt=urn:btih:338C549865281DC77A0455F43EC001015D3A0C43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:338C549865281DC77A0455F43EC001015D3A0C43
 magnet:?xt=urn:btih:D94C50199463BDA2D7B7AD89FC1B6505B72ECB38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ NGW: Акулы на охоте / Shark The Hunt. Kill Zone (2018) HDTV [H.264/1
 ```bash
 magnet:?xt=urn:btih:4EC7EA7AB4F3DB588D9BA00D2C2298335720BF99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ NG. Осушить океан / Drain the Oceans (2018) WEB-DLRip (1 сезон:
 magnet:?xt=urn:btih:B67627DA5530BDFDD626E515479D32F92C432215
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ NGW: Сексуальное рабство 21 века / 21st Century Sex Slaves
 ```bash
 magnet:?xt=urn:btih:85BDD99CA160A3FDA9A538B3BB5A86A0D8A4CF03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ BBC: Невидимый Рим / Rome's Invisible City (2015) HDTV [H.264/1080i-
 magnet:?xt=urn:btih:9ECDB1A03B708D6EA778F11392674D2321AD1B1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Discovery: Вот это странно / Williams Shatner's Weird or What (2012
 ```bash
 magnet:?xt=urn:btih:33CE39FC7AB57C1968B7BAFEC6516C513A1AB296
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Discovery: Смертоносные эпидемии / Killer outbreaks (2011) H
 magnet:?xt=urn:btih:27C6071F46767B59D4E05DC7C3D4FF32B48E80A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ NG. Экстремальный Китай. Хайнань / Extreme China. Haina
 ```bash
 magnet:?xt=urn:btih:FFF3990FFF9D8ABBC80988364A46AF76C3B222A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ NG: Человек против youtube / Man v. Viral (2015) HDTVRip [H.264/108
 magnet:?xt=urn:btih:CBBACA2458FFB33FE7DC3C2B24400668166356F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ National Geographic: Острова Фиджи / Islands Fiji (2011) HDTVRip
 ```bash
 magnet:?xt=urn:btih:251140B945850FD3533478B54C5BA69B1076F8A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:251140B945850FD3533478B54C5BA69B1076F8A4
 magnet:?xt=urn:btih:250402D2313EA54A70EB395E3FB90F3FDE0CAF1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:250402D2313EA54A70EB395E3FB90F3FDE0CAF1E
 magnet:?xt=urn:btih:1FA6C6A045A69BE8FCEC5A55F592F15A01D0B6D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ magnet:?xt=urn:btih:1FA6C6A045A69BE8FCEC5A55F592F15A01D0B6D7
 ```bash
 magnet:?xt=urn:btih:12C44656CC1A264E9EC020CD7B36CF76776A87DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ N.G. Большие кошки. Удивительная семья / Big Cats: 
 magnet:?xt=urn:btih:E1D76F55F09764F0A77D63B2FF5155D994AFAB04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 ```bash
 magnet:?xt=urn:btih:54888C9B9EC83326143BD29892876D72C3319118
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ NGW: На защите носорогов / Chasing Rhinos (2013) HDTV [H.264/10
 magnet:?xt=urn:btih:69089C4F566FE48DB31670D374DC4492CD0337CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ magnet:?xt=urn:btih:69089C4F566FE48DB31670D374DC4492CD0337CD
 ```bash
 magnet:?xt=urn:btih:A500D85A5506A5522CFA0704C5CC9943AA4A5E23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ Discovery: Разрушители легенд. Звёздные войны: О�
 magnet:?xt=urn:btih:ED567D52C8069BB2952DD62FFC3581AA1BEFCFA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Discovery: Инородные тела / Body Invaders (2014) HDTVRip (Сери�
 ```bash
 magnet:?xt=urn:btih:1B48A275EECC3AE7F11BC506F9FB4A1C7065E783
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

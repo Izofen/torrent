@@ -19,6 +19,8 @@ The Last Spell (2023) [Ru/Multi] (1.2.18.3.s.de/dlc) Repack FitGirl [Complete Th
 magnet:?xt=urn:btih:6BF314FF18C1B6E6C1FA97E9DEF4CC85D7103EF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Firewatch (2016) [Ru/Multi] (1.12) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:F1686744D6D2E8AE082D9461AC918989B7057C33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Empty Desk - первая глава серии Detective Bennett: Solved Ca
 magnet:?xt=urn:btih:819BA89678AB9BEB31F58C39A1A6940B581028B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Sker Ritual – фантастический боевик, который мож
 ```bash
 magnet:?xt=urn:btih:9CB2214B1BA0300CFF07BA8CEFAA5B7789B89539
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Imperator: Rome - новая грандиозная стратегия от Para
 magnet:?xt=urn:btih:35BCE3A0850AFD3EE322DBAEDB0C3CCB42B564DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Days Gone (2021) [Ru/Multi] (1.08/dlc) Repack seleZen [Remastered]
 ```bash
 magnet:?xt=urn:btih:74AB2D8805347DC73F494F1C924CF326BBDC15D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ South of Midnight (2025) [Ru/Multi] (1.2.0 185 531) Repack Decepticon
 magnet:?xt=urn:btih:42065530C951CAE36AEBB9D594A57D22257726C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (1.37915) License GOG [Digita
 ```bash
 magnet:?xt=urn:btih:5B4BD5622E5A88BEEB05D13BE8A544A7955CBC80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ BIOMORPH (2024) [Ru/Multi] (2.0.27583) Repack Let'sРlay
 magnet:?xt=urn:btih:2DD8391894EC20890AD25142FFC00562D98CB609
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Imperator: Rome - новейшая масштабная стратегия от 
 ```bash
 magnet:?xt=urn:btih:82D03DC0D76851C4FAD81EA2405E4CA873B6D253
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Everdream Valley (2023) [Multi] (5.0423.1455/dlc) License GOG
 magnet:?xt=urn:btih:75111A58333DA219AFFDEE2812B57D87AF3D2AA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ It Happened Here 4: If Walls Could Talk / Это случилось здесь 4
 ```bash
 magnet:?xt=urn:btih:A0278008E9BC2A245E021F325D501A0FA00A2977
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Onimusha: Warlords (2019) [Ru/Multi] (Build 17777991) Repack Let'sРlay
 magnet:?xt=urn:btih:DB84C1A8C906AB86E31E75BB00E8BD81DE2069E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2013) [Ru/Multi] (
 ```bash
 magnet:?xt=urn:btih:5AF50E4EE5DCEDC59E0472BB4C164008FDA57A94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Sunset Motel (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:AFFC08F3498947D4BC921B54C2D487D36E4E2D89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Lords of the Fallen приглашает игроков в мрачный мир
 ```bash
 magnet:?xt=urn:btih:FEAA69C9C15941282DBA3E1967B11D566A1D4F02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ The Shivah - нуарный квест про Рассела Стоуна - ев
 magnet:?xt=urn:btih:70E29387A51231FA3B2283EE03AB62A1E8CA800F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Steel Seed - захватывающая приключенческая экше�
 ```bash
 magnet:?xt=urn:btih:C4F5DAB110BD98C315A862C2D995ECB7B038EE09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Fort Solis - сюжетный триллер от третьего лица, р�
 magnet:?xt=urn:btih:AD0EF3612E6B00A3B0F8D95BEBAAEE983E8162EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Hyperviolent (2023) [En] (0.9.0.6) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:4A55173BDE5ABB217CAE7C05D1311DE344F40AB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ PowerWash Simulator (2022) [Ru/Multi] (1.10.0/dlc) Repack Pioneer
 magnet:?xt=urn:btih:A9D5CC1A6FB12DF99E7409D17F48EFE5D6B4E70E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Steel Seed - захватывающая приключенческая экше�
 magnet:?xt=urn:btih:88A335F7F3C8124441DB851690640B6FB0FF81D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +590,8 @@ Brassheart - это приключенческая игра в жанре кве
 ```bash
 magnet:?xt=urn:btih:62873C2BF6CEA5B5526D4423A8369432AC27ED7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ b]Системные требования:Разработчик: Hildring Studi
 magnet:?xt=urn:btih:4DEBCA37ABC7BFC94D398B39FD6B8DA1E03810B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ Pecker (2024) [Ru/Multi] (1.0.2) Repack FitGirl
 magnet:?xt=urn:btih:FE123E32571ADEC436BBB269358AF22577578B79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Lushfoil Photography Sim – это невероятно красивая и р�
 ```bash
 magnet:?xt=urn:btih:108964DE9465E4BA96CA1A94F9E4E8D75A47A7E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

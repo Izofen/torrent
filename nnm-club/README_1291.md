@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:32A13E379FE49E113C3CD0258FC8E10F44107456
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:32A13E379FE49E113C3CD0258FC8E10F44107456
 ```bash
 magnet:?xt=urn:btih:6777D1A42EF293A18C83E81AD54AF19BBCD984F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:6777D1A42EF293A18C83E81AD54AF19BBCD984F4
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Google Earth Pro 7.3.6.10155 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:561EDCBA699143A2431C27AA0AA79F6F474066D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:561EDCBA699143A2431C27AA0AA79F6F474066D1
 magnet:?xt=urn:btih:61E1273E737959631CDC95CF11305D021705A2D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:61E1273E737959631CDC95CF11305D021705A2D6
 ```bash
 magnet:?xt=urn:btih:A8721F9B4A288E09922E8AF71EEF3D8F3311CB1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:A8721F9B4A288E09922E8AF71EEF3D8F3311CB1F
 magnet:?xt=urn:btih:793E06D0C1BAEEAB49DF25C0E3F8F6392B9201DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Rogue Citadel (2024) [En] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:AF9D7739FC7163B1298D2A6BD52382B645B321F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ magnet:?xt=urn:btih:AF9D7739FC7163B1298D2A6BD52382B645B321F2
 ```bash
 magnet:?xt=urn:btih:45811670DE309B7F67774A3706B75D9F32141992
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Enya - And Winter Came... (2008) [FLAC|Lossless|WEB-DL|tracks] <Celtic New Age>
 magnet:?xt=urn:btih:CDF992A38D6CE714A62F16A8C0FC21A7AA1E9861
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ VA - Любимые песни года (2024-2025) (2024) [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:8D855307C1BDDAC0D02ECDDC70F047054CAE44F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ VA - Шансон премьера 2024 декабрь (Новые песни. �
 magnet:?xt=urn:btih:3E724E6E9E0E1432F7E035FA2753D2F958395C46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:3E724E6E9E0E1432F7E035FA2753D2F958395C46
 magnet:?xt=urn:btih:A631DDE28196C6526AD2C224E8DFE7F0973845E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ VA - Lump Records Greatest Hits (2024) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:67B10D4502124E1EDC3D8CAA7748736C3A31F335
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ Splav - Сверхновая (2011) [FLAC|Lossless|tracks] <Gothic Metal>
 magnet:?xt=urn:btih:D2101FD5B8B201B92B10475AC2C697C8CF3827A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:D2101FD5B8B201B92B10475AC2C697C8CF3827A3
 magnet:?xt=urn:btih:0EA9C356701000D3D29953B7A1E81F5DC6C0CE4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:0EA9C356701000D3D29953B7A1E81F5DC6C0CE4C
 ```bash
 magnet:?xt=urn:btih:58545B65C4A4B90D86770FFB7A231FEA237360EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:58545B65C4A4B90D86770FFB7A231FEA237360EB
 ```bash
 magnet:?xt=urn:btih:D3B9B52BBB7BDD1051377102C0F1A59D42E0294B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +504,8 @@ Whigfield - Whigfield Christmas (2024) [FLAC|Lossless|WEB-DL|tracks] <Eurodance,
 magnet:?xt=urn:btih:DEF955A754A9761B98A375D753479544064B1F24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:DEF955A754A9761B98A375D753479544064B1F24
 ```bash
 magnet:?xt=urn:btih:2919162B68300AFFF15F823362C52DA5A7857B54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +559,8 @@ The Smoothies - Let's Make Love (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blue
 magnet:?xt=urn:btih:43066ED62A76950E2AB2A6DEEBD614F6A5856F22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +587,8 @@ magnet:?xt=urn:btih:43066ED62A76950E2AB2A6DEEBD614F6A5856F22
 ```bash
 magnet:?xt=urn:btih:4F511CD110D670F31F23FD3BC2E7277E62DBBCEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +617,8 @@ magnet:?xt=urn:btih:4F511CD110D670F31F23FD3BC2E7277E62DBBCEE
 magnet:?xt=urn:btih:E27AF41202533FF7FA664D8FD5BAB2CDE93E961A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +646,8 @@ VA - Alfredo Golino & Collettivo 112 (Classe Pop Rock) (2024) [FLAC 24/48|Lossle
 magnet:?xt=urn:btih:7C21257560CD3F569CD992FFDF71D66F78D8780E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +672,8 @@ Dark Lightning - симфоник-метал группа из Германии 
 ```bash
 magnet:?xt=urn:btih:2E513BB817D2B95CF188871173FEB94C778BDE54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -651,6 +701,8 @@ Kai Strauss - Wailin' In Vienna (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 ```bash
 magnet:?xt=urn:btih:4379C10B14255A3D79F533AF32A5A5E2E1085D93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

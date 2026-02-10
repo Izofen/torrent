@@ -19,6 +19,8 @@ Das Geheimnis des Korsaren (L) [Ge] 2012
 magnet:?xt=urn:btih:82B9346A2196437830665FB79FD2CE2FDBF5A6F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Shiver 2: Poltergeist Collector's Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:3BC6075E783EF395D8B0E4471AA3225D344F6477
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Surprising Adventures of Munchausen / Невероятные Приключ�
 magnet:?xt=urn:btih:10D005C56EC5DB0E9C9779695FCEEF0EDBE3A59F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Flux Family Secrets: The Ripple Effect / Секреты семьи Флакс. �
 ```bash
 magnet:?xt=urn:btih:BB95D07500AF8B14DEF7DEC07A8F8437F1B0B1E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Hidden Mysteries: Royal Family Secrets (P) [En] 2012
 magnet:?xt=urn:btih:F3870514D1F6001E6B220D21945303EEDBDA9AA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Tropico 4
 ```bash
 magnet:?xt=urn:btih:E0AB3A14C9F9D9F9A4597FC917770C022C397FA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ East India Company Gold Edition / Ост-Индская компания Зол�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Gemini Rue - приключенческая инди-игра, разработ�
 magnet:?xt=urn:btih:5BD9371CFD84479BD375C454BF16DE4ECDD3E3D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Criminal Minds / Мыслить как преступник (P) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:02EC1949F35ECD71F030C05DEE30E1F17BA2B61D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ Rabbids Go Home / Бешеные Кролики [Ru] (RePack) 2010 l UltraISO
 magnet:?xt=urn:btih:53D9BCACD4FB338EC4CCD6D55ED4916B0EF18A25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ School house Shuffle (P) [En] 2008
 ```bash
 magnet:?xt=urn:btih:74C365F4C6A5EE4DD73DB0B5745369273ACB6613
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ Sters - некие существа, обитающие в домах с при�
 magnet:?xt=urn:btih:80286F92F0B8D4DB85244C310000D3665432AD17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ Party Planner (P) [En] 2009
 ```bash
 magnet:?xt=urn:btih:0601F50D0F7707DF2C11C502453BD127F5B3B6B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ Lone Survivor [En] (L) 2012
 ```bash
 magnet:?xt=urn:btih:89BB6F83E08D7F342066444A098615EFE9301AF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ Yesterday / Yesterday: Печать Люцифера [Ru/En] (RePack) 2012 | R.G
 magnet:?xt=urn:btih:C0EFDEA25DBAE35AC689D2EEBE36E9EC3CA50F00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ Shannon Tweeds: Attack of the Groupies (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:66220782226DDBC75B36B39BD3D6CA71203914E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ Legends of Atlantis: Exodus (P) [En] 2012
 magnet:?xt=urn:btih:AD524E05600F1F0FE161295F8CF20BB7DF39633F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ Warp [Ru] (RePack) 2012 | Fenixx
 ```bash
 magnet:?xt=urn:btih:F41D6426F165EB4DBB2915E5B027C25DB210CD9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ Clones / Клоны (2010) [Ru/Multi] (1.32) RePack Fenixx
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ F1 Challenge 99-02  F1 SMT 2012[Ru] (P/Mod) 2003/2012
 ```bash
 magnet:?xt=urn:btih:AE5D837B2258057133C1A537CF9062EC63EAA004
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +558,8 @@ Warp [Ru/En] (RePack) 2012 | R.G. Catalyst
 magnet:?xt=urn:btih:B814937AC71AD22CC14D8B876EF95A3E1BCBB62E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ Gobs of Fobs (P) [En] 2006
 magnet:?xt=urn:btih:0D7699F8BEE7CB81FAB401E75E4A0862DE206111
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ Twisted Lands: Insomniac. Collector's Edition / Гиблые земли. Бес�
 ```bash
 magnet:?xt=urn:btih:03252C93A7F282DBECB83BBEBBD8395EA1E2BC81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +638,8 @@ Manhunt Дилогия (P) [Ru] 2004-2009
 magnet:?xt=urn:btih:AD576220CFD04FED20F30B817683EB99D6AFFC13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ Medal of Honor. Limited Edition / Medal of Honor. Расширенное изд�
 magnet:?xt=urn:btih:3E91764784632E72EA9E66AD064B4F18F2908DA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ King's Bounty Platinum Edition [Ru/En] (RePack) 2008-2010 | Seraph1
 ```bash
 magnet:?xt=urn:btih:8B38D071BC90649323BAA2C21056D3B24A0BFD94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

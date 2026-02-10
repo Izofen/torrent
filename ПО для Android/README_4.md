@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:509BD31305D0055A37163057298F3CD6A655485F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ eWeather HDF - это точный прогноз погоды от двух м�
 magnet:?xt=urn:btih:1B15D6EBEB389FB6D5118D4AA5CB09C74AD2DE93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Polarr v6.11.6 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A8BB10216ABC024637C498DBD290B735A93D7361
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ NewPipe x SponsorBlock x Return YouTube Dislike v0.28.0 Mod by baalajimaestro  [
 magnet:?xt=urn:btih:69DB33752A5353000BE913F066B96700B46DB13D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Magic Eraser - это революционное приложение для р�
 ```bash
 magnet:?xt=urn:btih:998B710C85B96E5D0F454841CC739AAEF37B2B5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ STEEZY - танцевальная студия №1 на вашем устрой
 magnet:?xt=urn:btih:7FA650BFBD4BA67F76A41FC7DFD6F549C9820C41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Parrot Timer / Кухонный таймер v2.10.0 Mod by Alex.Strannik [Multi
 ```bash
 magnet:?xt=urn:btih:76922B090ABCEFC10ADE59ED168604B7FAB5EAF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Taskito - это приложение для управления задачам
 magnet:?xt=urn:btih:0D57177042E450BDD18227F515E47C558EDCC137
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Squid - рукописные заметки v4.4.1 Mod by Alex.Strannik [Ru/Mult
 magnet:?xt=urn:btih:E11AB09DF754CA02ACBDD92458379F4DB8522BAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ VRadio - Online Radio App v2.8.7 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:251B4C14765852FD650D651FA4592DC2EF441D5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:251B4C14765852FD650D651FA4592DC2EF441D5C
 magnet:?xt=urn:btih:967152A8663FF92DC65E28932A4BCD32EBE0DFC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Ventusky: Прогноз погоды v47.0 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C202E279CA0D7BF5CA60B58C12474629BCD27D65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Purvpn 9.7 [En/Farsi]
 magnet:?xt=urn:btih:1B39AA50469CF4EAA831F7DBEC1E9F9747EEAD61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ SnapEdit — одно из лучших приложений для редакт
 magnet:?xt=urn:btih:82FD460DD761AA652F22EAAE6B4E7A5A4CC245F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:82FD460DD761AA652F22EAAE6B4E7A5A4CC245F4
 ```bash
 magnet:?xt=urn:btih:C1663D5FBC8AE73D2FD53B15F8020DA9C8AA59C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ Blur Text App - Преобразуйте свои скриншоты с помо
 magnet:?xt=urn:btih:599D2CD97DC01EDB508641759AA4D6BBD25CD85E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:4EE14D7C629AC54A08F8BAEED03CA9F9FC8D62A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ PPlayer v1.32 [Ru/En]
 magnet:?xt=urn:btih:1B3A43646409E1F14EA8B48054AE136641AF9B75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:1B3A43646409E1F14EA8B48054AE136641AF9B75
 ```bash
 magnet:?xt=urn:btih:4A2423E2FC2337E1D13803C2FE8B776ED2F06FF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ NewPipe v0.28.0 Free + Mod by Alex.Strannik  [Ru/Multi]
 magnet:?xt=urn:btih:00911223E329E1814D863B4BCE595CA695F53B03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:00911223E329E1814D863B4BCE595CA695F53B03
 ```bash
 magnet:?xt=urn:btih:53E4EF6CD01242CD7BD1507215B2ED9AC5A338E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ Proton VPN — это единственное в мире бесплатное 
 magnet:?xt=urn:btih:D74BAEB00336FDB7EFB1FFC9A909AA4DD8C8F3CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ Heart Rate Plus: Pulse Monitor v2.9.5 Mod by FeralFox [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A13DC8FE4654EB59B1D11173EA3303BC0A7C7663
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ Face Swap - AI Photo Editor v1.4.7 Mod by Balatan [Multi]
 magnet:?xt=urn:btih:ACAF6C3176AD7F6F8DD10459C897BD4E5E8E1420
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ AI Photo Editor Pro - Polish v1.662.224 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:197EB5E599222134604A969F424EE32A81381B73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:197EB5E599222134604A969F424EE32A81381B73
 ```bash
 magnet:?xt=urn:btih:204F9ABC2B5614C8400356AC5874BB1C7F12A4FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

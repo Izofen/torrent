@@ -1,3 +1,150 @@
+###  Публикация: 1095571   (924392) от 21.01.2017
+
+Emma King - Emma King (2016) [FLAC|Lossless|tracks + .cue] <Pop, Soul, Folk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Devil City  (03:16) 
+02|  All The Other Fools  (03:16) 
+03|  Keep It Coming  (04:17) 
+04|  Rollin' In  (03:59) (   Читать дальше...   )Жанр: Pop, Soul, FolkПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5372D88602A614DA1EE0893862C56B900EE3766F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987916   (924494) от 18.02.2016
+
+VA - Sugar Mambo - Heat Express (2000) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jon Secada - Stop (4:16)
+02. Shaft - Mambo Italiano (2:48)
+03. Los Del Duego - Cabello VleJo (3:25)
+04. Jennifer Lopez - Let,s Get Loud (3:58)(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B58BA8A5266CC60F7E9A7F125F36105CB33C19A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366085   (925169) от 10.03.2020
+
+Dimash Kudaibergen (Димаш Кудайберген) - ID - 1st digital album (2019) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SOS d'un terrien en detresse
+02. The Crown
+03. Screaming
+04. If I Never Breathe Again(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89ED41DD3C772DDB4E8A06665336EFD0C8040762
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 863592   (925448) от 26.01.2015
+
+VA - Pure... latin dance (2012) Box Set, 4CD [FLAC|Lossless]<Latin, Pop, Rock, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Признаюсь, подзабросил я свою серию Pure... в клубе, пока товарищи по клубу настойчиво не стали напоминать в ЛС об обещании продолжать её.
+Ну вот и представляю очередной сборник из собственной фонотеки. На этот раз горячие латиноамериканские ритмы. Здесь Вы найдете и тех, кто традиционно выступает в этом жанре и тех, для кого это разовое действие. Так что если Вам (   Читать дальше...   )CD2:
+01. Pitbull - Hotel Room Service  (4:00)
+02. Celia Cruz - Yo Vivire (I Will Survive) (Album Version)  (4:33)
+03. Ciara ft. Justin Timberlake - Love Sex Magic (Main Version)  (3:42)(   Читать дальше...   )Жанр: Latin, Pop, Rock, Pop-RockПродолжительность: 04:13:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0FDDF7B8258C4B6EFC5F73BBC136BAB89B45280
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366242   (925492) от 10.03.2020
+
+VA - 2020 Grammy Nominees (2020) [FLAC|Lossless|tracks] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Много лет подряд церемония вручения наград «Грэмми» проводилась в феврале (за исключением зимних Олимпийских игр). В этом же году церемония 62-й премии Грэмми была перенесена на январь (видимо устроители догадывались о приближающейся эпидемии).
+26 января в Стэйплс-центре (Лос-Анджелес, США) наибольшее число наград (по 5) получили брат и сестра Finneas O'Connell и (   Читать дальше...   )01. Billie Eilish - bad guy  (3:14)
+02. Ariana Grande - 7 rings  (2:59)
+03. Lil Nas X feat. Billy Ray Cyrus - Old Town Road (Remix)  (2:37)
+04. Lizzo - Truth Hurts  (2:53)(   Читать дальше...   )Релиз состоялся: 17 января 2020 годаЖанр: Pop, Rock, DanceПродолжительность: 01:12:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B660C11AAC89CEAE5A7CE00EA394A8964BB27C56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366083   (925742) от 10.03.2020
 
 VA - I Love German Pop (2020) [MP3|320 Kbps] <Pop>
@@ -21,6 +168,8 @@ VA - I Love German Pop (2020) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:002D32582ADC030C52F775C3C29580E088570AC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +198,8 @@ magnet:?xt=urn:btih:002D32582ADC030C52F775C3C29580E088570AC4
 magnet:?xt=urn:btih:5F4C3EE4A78805604D35F23460BED1F48E8B7981
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +226,8 @@ EMIN - LOVE IS (2021) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:174BB26462EA0034E74543F267FDAEAF1422CF54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +256,8 @@ magnet:?xt=urn:btih:174BB26462EA0034E74543F267FDAEAF1422CF54
 magnet:?xt=urn:btih:4BED94E266801A5D5EC53BE23BC445B27FACBC19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +285,8 @@ magnet:?xt=urn:btih:4BED94E266801A5D5EC53BE23BC445B27FACBC19
 magnet:?xt=urn:btih:2E261D4240B135A66977031AFF5CC69736B2231E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +310,8 @@ magnet:?xt=urn:btih:2E261D4240B135A66977031AFF5CC69736B2231E
 ```bash
 magnet:?xt=urn:btih:0FEDE1A14B22EAAAE90EBFAD73869FF8946D613E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +340,8 @@ Animal Collective - Painting With (2016) [MP3|320 кб/с] <Psychedelic pop, Ind
 magnet:?xt=urn:btih:6F7B224475E34C1232CB23C6C915C832497F1535
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +368,8 @@ Bad Boys Blue - Bad Boys Best (2007) [FLAC|Lossless|image + .cue]<Synth-pop, Dis
 ```bash
 magnet:?xt=urn:btih:ED72348D9F811BFDECB80559DC09CCE2A9534C7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +398,8 @@ VA - KuschelRock: Lovesongs Of The 90's (2016) Special Edition [FLAC|Lossless|WE
 magnet:?xt=urn:btih:332159396F66FCD27B14BDADCC1634994B8AA624
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +426,8 @@ VA - Новые хиты (Зима 2019) (2019) [FLAC|Lossless|WEB-DL|tracks] <P
 ```bash
 magnet:?xt=urn:btih:C4811EEE39DC17CA5D91B4DBBC6A324CF973D42A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +456,8 @@ VA - MegaHits 2016 (2015) [FLAC|Lossless|image + .cue] <Top 40, Pop, Electronic>
 magnet:?xt=urn:btih:B355D66BE50C601662CBE406BC90A903E9495506
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +484,8 @@ VA - Italo Disco (2017) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:0B45682AE1CC5144D8B3824A2D36C11B43930C2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +514,8 @@ VA - Italo Disco Vol. 2 (2017) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
 magnet:?xt=urn:btih:BC5AFEC123CFA0D20A1BE2D569484CB71845AFFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +542,8 @@ magnet:?xt=urn:btih:BC5AFEC123CFA0D20A1BE2D569484CB71845AFFD
 ```bash
 magnet:?xt=urn:btih:A9077220E195C18DC953D49F8121AD86820B0722
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +572,8 @@ VA - Radio 538 Hitzone 76 (2016) [FLAC|Lossless|image + .cue] <Top 40, Pop, Rock
 magnet:?xt=urn:btih:C8130C562489909069FD946FB8D3752196A05BC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +600,8 @@ Afric Simone - 6 Albums (1974-1990) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Di
 ```bash
 magnet:?xt=urn:btih:BAD50855584FB3474C11EFC7AEB1DDB2522E407A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +630,8 @@ magnet:?xt=urn:btih:BAD50855584FB3474C11EFC7AEB1DDB2522E407A
 magnet:?xt=urn:btih:BD5420E42ACD82E49B6F590768832CE381CCB893
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +658,8 @@ A-ha - Greatest Hits: Japanese Single Collection (2020) [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:5E43263AD7C065B3623C5100A882C82DBD81FD65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +688,8 @@ George Michael - Older (1996) [FLAC|Lossless|image + .cue] <Electronic, Jazz, Po
 magnet:?xt=urn:btih:97FDCC2B052D49CE437FB33C14E33C36B4D6D51C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +716,8 @@ magnet:?xt=urn:btih:97FDCC2B052D49CE437FB33C14E33C36B4D6D51C
 ```bash
 magnet:?xt=urn:btih:47763B0F6D9E9EF63829C9006D4488FE8E1059A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,140 +746,7 @@ VA - BRAVO Hits 92 (2016) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Pop Rock>
 magnet:?xt=urn:btih:DD81590EEA6F234EBE31FA5654F8DA7302BAF630
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365415   (930571) от 07.03.2020
-
-Dreamcatcher (드림캐쳐) - Dystopia : The Tree of Language (2020) [FLAC|Lossless|tracks + .cue] <KPop, KRock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (01:20)
-02. Scream (03:24)
-03. Tension (03:11)
-04. Red Sun (03:05)(   Читать дальше...   )Жанр: KPop, KRockПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB2F9A5767AAE1C6E7630AB8178B771E22FD2FFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094006   (930619) от 17.01.2017
-
-Linda Jo Rizzo - Fly Me High (The Album) (2015) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Fly Me High  (07:20) 
-02|  There's A Fire  (05:37) 
-03|  Only One Night  (07:34) 
-04|  Heartflash  (05:58) (   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:14:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD1CF64748983CD8E367B585E5EAF38C78F11A39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986677   (930626) от 14.02.2016
-
-VA - The Best Of The 80's Volume II (1998) [FLAC|Lossless|tracks + .cue] <Pop Rock, Disco, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adamski - Killer (4:10)
-02. Haircut One Hundred - Love Plus One (3:36)
-03. Fairground Attraction - Perfect (3:36)
-04. Hall & Oates - Maneater (4:28)(   Читать дальше...   )Жанр: Folk Rock, Pop Rock, House, Disco, New Wave, Soft Rock, Synth-popПродолжительность: 01:18:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3782C86B0E5E7ABFB4398F90C1F3E34D0A65303E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986127   (930711) от 14.02.2016
-
-Vengaboys - The Platinum Album (2000) [MP3|320 кб/с] <Europop, Euro House, Ballad>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shalala Lala 03:33
-02. 24-7 In My 911 03:10
-03. Kiss (When The Sun Don't Shine) 03:30
-04. Uncle John From Jamaica 03:06(   Читать дальше...   )Жанр: Europop, Euro House, BalladПродолжительность: 00:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21F7F115B4EEE1B87CD53E9F174FA48E6A40BCF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986352   (930872) от 14.02.2016
-
-Whitney - The Greatest Hits (2000) 2CD [FLAC|Lossless|tracks + .cue] <Soul, Disco, RnB/Swing>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whitney Houston & George Michael - If I Told You That (4:32)
-02. Fine (3:34)
-03. My Love Is Your Love (4:18)
-04. It's Not Right but It's Okay (4:49)(   Читать дальше...   )Жанр: Soul, Disco, RnB/Swing, Downtempo, Synth-pop, BalladПродолжительность: 02:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D97A02BA4BFEC2F6500DA81C3E3A170BF0CE3B7
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

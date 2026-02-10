@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:D2E258F8DD1E41A832E62638EEDFF2E6D516AD2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Grant Geissman - Bop! Bang! Boom! (2012) Futurism Records [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:D13B7FC983DA578968B98A8D8421818D627C4845
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Eric Dolphy - Muses (2013) [FLAC|Lossless|tracks + .cue] <Free Jazz>
 magnet:?xt=urn:btih:E986F4FE9EED5177617B4C940BEDCBB252734B5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:E986F4FE9EED5177617B4C940BEDCBB252734B5F
 ```bash
 magnet:?xt=urn:btih:99FBB4CB528D5438A3864364C8BC97F518929283
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ Sinistrum - Infernal Dawn (2024) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Me
 magnet:?xt=urn:btih:AD4B93A2C49E48244B3FEDB11271CD5D8E57D96B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:AD4B93A2C49E48244B3FEDB11271CD5D8E57D96B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +189,8 @@ Pain - Coming Home (2016) [FLAC|Lossless|image + .cue] <Industrial Metal>
 magnet:?xt=urn:btih:EA371DA09F7E151F3082121EB495DA6E15325758
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +218,8 @@ Laserdance - Fire On Earth (1994) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth,
 magnet:?xt=urn:btih:E2CE0468EDA280C6E5A63DD518DD4DD14B863133
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ magnet:?xt=urn:btih:E2CE0468EDA280C6E5A63DD518DD4DD14B863133
 ```bash
 magnet:?xt=urn:btih:EABFD36F060CA33372125122248A1A1730DDF05A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -255,6 +273,8 @@ VA - Chill Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:528073A525DD5CFE8924790E9605861785794498
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +299,8 @@ Sante DICOM Viewer Pro не является «еще одним средств�
 ```bash
 magnet:?xt=urn:btih:2609643B3C7BA79E9BD37DDCEED8504859D82839
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -305,6 +327,8 @@ magnet:?xt=urn:btih:2609643B3C7BA79E9BD37DDCEED8504859D82839
 magnet:?xt=urn:btih:C8665945452D5B39172F6AC72242B1709433012A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ magnet:?xt=urn:btih:C8665945452D5B39172F6AC72242B1709433012A
 ```bash
 magnet:?xt=urn:btih:76684D450351CF72456174EB1BCB5CCA33F9E70C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -354,6 +380,8 @@ magnet:?xt=urn:btih:76684D450351CF72456174EB1BCB5CCA33F9E70C
 magnet:?xt=urn:btih:00D74295798A88BE3ACED10827BE1C4B2B966619
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ Sante DICOM Editor — ведущее в отрасли приложение п�
 magnet:?xt=urn:btih:66F9A28EFFDEC449B4680C03EBBA9B5EBCF18CE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ magnet:?xt=urn:btih:66F9A28EFFDEC449B4680C03EBBA9B5EBCF18CE4
 ```bash
 magnet:?xt=urn:btih:F3F933B58F68057A0ABCEB2F6F6CA8B9BF443D8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +462,8 @@ Florence Black - Bed Of Nails (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 magnet:?xt=urn:btih:B0331BD5217FAA6F677823948556918B65C7806F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +490,8 @@ Chet Baker - Late Night Chet Baker (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ```bash
 magnet:?xt=urn:btih:CD8AB3F3EE3383FBA6F53F966E47FF039CE4CF81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +520,8 @@ Background Instrumental Music Collective - Joyful Jazz Session: Swingin' into Ha
 magnet:?xt=urn:btih:267E98D0937FEF630D7CE62979616B0BDF519613
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +545,8 @@ magnet:?xt=urn:btih:267E98D0937FEF630D7CE62979616B0BDF519613
 ```bash
 magnet:?xt=urn:btih:6DDC88F8388E32DF30CE05402F62FF69A6591B5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +574,8 @@ magnet:?xt=urn:btih:6DDC88F8388E32DF30CE05402F62FF69A6591B5B
 magnet:?xt=urn:btih:EE8E056681CA7AA22131CED1637CB615328D55FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +601,8 @@ magnet:?xt=urn:btih:EE8E056681CA7AA22131CED1637CB615328D55FB
 magnet:?xt=urn:btih:095B8F2E4EC7E9A051A81362581B1B006B622E95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +627,8 @@ magnet:?xt=urn:btih:095B8F2E4EC7E9A051A81362581B1B006B622E95
 magnet:?xt=urn:btih:C523FD46EA835A62221A14EAE582014EC8F54B15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +652,8 @@ magnet:?xt=urn:btih:C523FD46EA835A62221A14EAE582014EC8F54B15
 ```bash
 magnet:?xt=urn:btih:F81C2A16B7040BFB4685B9C950872EB92F1BEBCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +682,8 @@ VA - Best Groovy Smooth Jazz for Traveling and Vacation (2024) [FLAC|Lossless|WE
 magnet:?xt=urn:btih:0EB3F02305594EAF9BC2AB2899C7FDCEEE7547C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +709,8 @@ Opera GX - это специальная версия браузера Opera, с
 ```bash
 magnet:?xt=urn:btih:76E30B72B1BBAF563875C414CA736FB92B1F75BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

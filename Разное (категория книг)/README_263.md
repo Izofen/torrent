@@ -1,3 +1,29 @@
+###  Публикация: 1254757   (367937) от 16.10.2018
+
+Нора Гоан | Энциклопедия узоров. Косы, жгуты, араны. Вязание на спицах (2017) [PDF]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Впервые на русском языке революционное практическое руководство знаменитого во всем мире дизайнера Норы Гоан по вязанию потрясающих узоров и мотивов с косами, жгутами и аранами. Автор, известная разрушением всех стереотипов в подходе к современному вязанию, представляет свой уникальный авторский метод: наглядно и подробно показывает как не только использовать ее (   Читать дальше...   )Жанр: Домоводство; ЭнциклопедииФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FF39404A839B92C6244C3E1BD5C1AB5499628C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950737   (368026) от 27.10.2015
 
 Александр Проханов и др. | Антивоенный синдром или преданная армия?.. (1990) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:CEE3B881337E846A2BB68E8E87096F292D741D10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:CEE3B881337E846A2BB68E8E87096F292D741D10
 magnet:?xt=urn:btih:41EF6056C627081783DEA23B97E629DC20AA588F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +101,8 @@ magnet:?xt=urn:btih:41EF6056C627081783DEA23B97E629DC20AA588F
 magnet:?xt=urn:btih:DD8176C7959160A11CF8A69003927349CCA0D181
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:DD8176C7959160A11CF8A69003927349CCA0D181
 ```bash
 magnet:?xt=urn:btih:7B1A99612BDCE412FF31D047A650AAF0A1C9CA3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +154,8 @@ magnet:?xt=urn:btih:7B1A99612BDCE412FF31D047A650AAF0A1C9CA3A
 magnet:?xt=urn:btih:DDB5487459E7CF57FA3F6162A5751D213AD14708
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:DDB5487459E7CF57FA3F6162A5751D213AD14708
 ```bash
 magnet:?xt=urn:btih:608CCE25A3104E591404FFF81AF95DD696579E42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:608CCE25A3104E591404FFF81AF95DD696579E42
 magnet:?xt=urn:btih:CAB705169D4ADBAF7640E11FE886DDEA2637B01A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:CAB705169D4ADBAF7640E11FE886DDEA2637B01A
 ```bash
 magnet:?xt=urn:btih:9881E4820684A7BFF484F832251B846AAE9E7EAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:9881E4820684A7BFF484F832251B846AAE9E7EAD
 magnet:?xt=urn:btih:1EC265DF87B14ABA3E5E8C7D4B7BD69942801ECB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:1EC265DF87B14ABA3E5E8C7D4B7BD69942801ECB
 ```bash
 magnet:?xt=urn:btih:492BE8863262F621C7C74CFF72DEA25A1E29D59A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:492BE8863262F621C7C74CFF72DEA25A1E29D59A
 magnet:?xt=urn:btih:07B2ACB792A4F63C5850F88D654A7FBF5F4183D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +339,8 @@ magnet:?xt=urn:btih:07B2ACB792A4F63C5850F88D654A7FBF5F4183D1
 magnet:?xt=urn:btih:87C80F572AC01F1A9CEF737774904DC979B80B2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:87C80F572AC01F1A9CEF737774904DC979B80B2F
 ```bash
 magnet:?xt=urn:btih:35181158B023BA0D0BEF7CF74CA3CAD341629E2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:35181158B023BA0D0BEF7CF74CA3CAD341629E2B
 magnet:?xt=urn:btih:E0362D53C586D21D55B8BFB4AA7A99E6581C6C98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:E0362D53C586D21D55B8BFB4AA7A99E6581C6C98
 ```bash
 magnet:?xt=urn:btih:0BF062BB4CAD9845857C2F44434D731AC86AA9DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:0BF062BB4CAD9845857C2F44434D731AC86AA9DE
 magnet:?xt=urn:btih:A4AC9615E16D9B0EE35F45B51DC0691AC6CD072F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:A4AC9615E16D9B0EE35F45B51DC0691AC6CD072F
 ```bash
 magnet:?xt=urn:btih:6EC1026BC218FBACB57101A96EC68578A296B5C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:6EC1026BC218FBACB57101A96EC68578A296B5C5
 magnet:?xt=urn:btih:AD7370A4C34CF0DBC86ECBDECEE7D4675B85C357
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:AD7370A4C34CF0DBC86ECBDECEE7D4675B85C357
 ```bash
 magnet:?xt=urn:btih:E285AA1E5AC13B0AE7058EF73CDF27DEC23387C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:E285AA1E5AC13B0AE7058EF73CDF27DEC23387C8
 magnet:?xt=urn:btih:9064245EF3C5A31C25E704D37968B52B89CF4E38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +574,8 @@ magnet:?xt=urn:btih:9064245EF3C5A31C25E704D37968B52B89CF4E38
 magnet:?xt=urn:btih:AC951267B0C840123AFFF917310D42DC418BBE20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:AC951267B0C840123AFFF917310D42DC418BBE20
 ```bash
 magnet:?xt=urn:btih:C2EFAAE54D71137E56053C115292DE231ABE5326
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:C2EFAAE54D71137E56053C115292DE231ABE5326
 magnet:?xt=urn:btih:5F928F94439A14985D0908BCC4829C10188A7EE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +655,8 @@ magnet:?xt=urn:btih:5F928F94439A14985D0908BCC4829C10188A7EE6
 magnet:?xt=urn:btih:9481E1BF1268BC8C6919588AE543C3098329BAD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,29 +681,7 @@ magnet:?xt=urn:btih:9481E1BF1268BC8C6919588AE543C3098329BAD5
 magnet:?xt=urn:btih:C2151F14494A048B2054099DE639A048D3B050F2
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950246   (369733) от 26.10.2015
-
-Давид Серван-Шрейбер | Антирак. Новый образ жизни (2014) [PDF, DJVU]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369733.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга написана доктором медицины, врачом нейропсихиатром и психологом, глубоко владеющим теорией и практикой своей специальности. Но перед нами тот редкий случай, когда читатель может полностью доверять автору, который в буквальном смысле ручается за написанное головой. Заболев одной из опасных форм рака — глиобластомой головного мозга и сделав свой выбор в пользу (   Читать дальше...   )Жанр: Популярная и нетрадиционная медицина, ракПеревод: О. С. Епимахов, О. Н. АгееваФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B51EAF44E5B6B3EE210B417D5A1753596C2F10E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

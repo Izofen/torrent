@@ -1,3 +1,32 @@
+###  Публикация: 995246   (884796) от 11.03.2016
+
+VA - Soulful Nights-The Dance Music Playlist (2016) [MP3|320 кб/с] <Nu Disco, Funky, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roberto Conrado - 2 Lovers (Vocal).mp3
+02. Roberto Conrado - Choosy (Vocal).mp3
+03. Roberto Conrado - Freedom (Vocal).mp3
+04. Roberto Conrado - I Wanna (Vocal) .mp3(   Читать дальше...   )Жанр: Nu Disco, Funky, ClubПродолжительность: 00:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F52C637515FA43381DA666D2F71663F6AAF4F1A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 640515   (884842) от 08.04.2013
 
 VA - Electro Life 24 (by ZiP)(2013) [MP3|320 kbps]<Electro House, Electro Progressive>
@@ -20,6 +49,8 @@ VA - Electro Life 24 (by ZiP)(2013) [MP3|320 kbps]<Electro House, Electro Progre
 ```bash
 magnet:?xt=urn:btih:5BF10FA8484633C86BB5943091BE22DD12DB2988
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -54,6 +85,8 @@ VA - Русский Рок На Все Времена (2010) [MP3|128-256 kbps]<
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -80,6 +113,8 @@ Tears For Fears - 25 Best Songs (2014) [MP3|~245 кб/с]<Synthpop>
 ```bash
 magnet:?xt=urn:btih:41F359E2B605681F212B7DB52D53AD3AF2AEB3EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -108,6 +143,8 @@ VA - Roller Disco: Remix And New Generation (2020) [MP3|320 Kbps] <Disco, Pop, R
 magnet:?xt=urn:btih:913D3F86E61203F4455183514DF3BD4BDC1305C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -134,6 +171,8 @@ Goombay Dance Band - The Best Of (Presents: Elgujakviso) (2017) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:F75252F7408830B880DDC36ABB35573C2FB3E8AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -162,6 +201,8 @@ VA - Trance Energy  Sounds (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Harm
 magnet:?xt=urn:btih:5BFE9AE6D58DB99889FF7D5482CAD245FB1F16FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +229,8 @@ VA - Empire Records - Chill Out 11 (2017) [MP3|320 Kbps] <Chillout, Lounge, Down
 ```bash
 magnet:?xt=urn:btih:7879D230FC3DDF06A39BCF6E7834FD3A1AFB52B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +259,8 @@ VA - Music News vol.130 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:5F06364A13B7386CD12C5F34EC819BD7FC95CCC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +287,8 @@ VA - Empire Records - Club Hit 9 (2017) [MP3|320 Kbps] <Club, Dance>
 ```bash
 magnet:?xt=urn:btih:F815DDA9BA132A35A52DD986518B76F17EE67BC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +317,8 @@ VA - Empire Records - Dancenudisco 8 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Dis
 magnet:?xt=urn:btih:DAD2FF81B7FEECD518AA52947103F839DC60CF01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +345,8 @@ VA - Planet of Chillout: Fifteen Organic Downtempo and Chillout Tracks (2017) [M
 ```bash
 magnet:?xt=urn:btih:3B251D2B090500BFDC1917607952893D05BC3425
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +375,8 @@ VA - Лучшие новинки. Non-Stop Весенний (2016) [MP3|256-320 
 magnet:?xt=urn:btih:FBE7909937C295DFE179001F441A27647B52AEDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +403,8 @@ Dance:
 ```bash
 magnet:?xt=urn:btih:A86B89B0E0929F2A52ECC7DEA2DF022BC75D4F6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +433,8 @@ VA - Top50: Tracks Deep House Ver.20 (2020) [MP3|320 Kbps] <House, Deep House, E
 magnet:?xt=urn:btih:37E0C71733AF90FE9DF58E0A6050C7205E7BE1F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +462,8 @@ magnet:?xt=urn:btih:37E0C71733AF90FE9DF58E0A6050C7205E7BE1F5
 magnet:?xt=urn:btih:13B5E90BC024DA90CD2A243599EC24C6655A7F48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +490,8 @@ magnet:?xt=urn:btih:13B5E90BC024DA90CD2A243599EC24C6655A7F48
 ```bash
 magnet:?xt=urn:btih:A05D40049A17CB22AAE1F57EC4D69C09E577081A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +526,8 @@ VA - Лучшая 100-ка Новинок Русского Шансона (2013)
 magnet:?xt=urn:btih:7BCDC3C2E07AD0FB7336DF3256554733AC45A66D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +554,8 @@ VA - Luxury Deep House: Beats Session (2020) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:4076AB2956CDCBE1691FE8F81255AD7E2DD564DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +584,8 @@ VA - Spring Holiday Party: Electro House Selections (2020) [MP3|320 Kbps] <House
 magnet:?xt=urn:btih:5EDB70160ABD5BF5EB9B672DC0943C63422C87A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +612,8 @@ VA - Indie Night: Pop Rock Season Alternative (2020) [MP3|320 Kbps] <Indie, Pop,
 ```bash
 magnet:?xt=urn:btih:02026F43B23409171126F54BB70D9EA3B2AB845B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +642,8 @@ VA - Beatport Funky House: Electro Sound #42 (2020) [MP3|320 Kbps] <Funky, Disco
 magnet:?xt=urn:btih:A5BB55FCD0FBEB88941A639D4547560D320A3CA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +670,8 @@ VA - Beatport Progressive House: Electro Sound Pack #40 (2020) [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:608DB1D56491792A24FB54EF88D9402E8E015D30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +700,8 @@ VA - Pandemic: Hardcore And Hard Rock Selection (2020) [MP3|320 Kbps] <Hardcore,
 magnet:?xt=urn:btih:E1750D4A82361BDC07FDF6FD344086FEAF476320
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +728,8 @@ Newton Family - The Best Of (Presents: Elgujakviso) (2017) [MP3|320 Kbps] <Disco
 ```bash
 magnet:?xt=urn:btih:46EE175E46A0086DAB998D62179A5E4AD1098BF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -681,32 +758,7 @@ VA - Beatport Psychedelic Trance: Electro Sound Pack #44 (2020) [MP3|320 Kbps] <
 magnet:?xt=urn:btih:8D46EEC4815D6656E9C9489C658B902B3D033136
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102658   (887330) от 11.02.2017
-
-VA - RADIO DED - Deep Space 1 - 17 (2010-2017) [MP3|320 Kbps] <Spacesynth, Spacedisco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Собрание миксов в Spacesynth, Spacedisco стиле созданных01 A.Vlasov & Magic Studio - Elusive Melody 00.00-03.36
-02 Electron - Dragons Dream 03.36-05.06
-03 Stive Morgan - Witch Dance 05.06-06.33
-04 Dreamtime - The Trial 06.32-08.15(   Читать дальше...   )Жанр: Spacesynth, SpacediscoПродолжительность: 09:29:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:467C422B215B96A80AB625B3EBF4333E6A2FBA00
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

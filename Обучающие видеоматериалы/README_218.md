@@ -20,6 +20,8 @@ CG Cookie | Создание воксельного арта в Blender 2.8 / Cr
 magnet:?xt=urn:btih:4D5026047F9412524D394F16055A6202BF37A9C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:4D5026047F9412524D394F16055A6202BF37A9C5
 magnet:?xt=urn:btih:3B14B4CF77167B9A08E8D7BFC7B1D3B475279830
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Lynda | Топ 10 проблем маркетинга (2016) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:8B0EAE99706C98EF78E6F99E394054666D301E35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ Metasploit был создан в июле 2003 года. Версия 1.0 бы�
 magnet:?xt=urn:btih:750C71A34C07DF9B4A67FD006B9FE8711707FA8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:750C71A34C07DF9B4A67FD006B9FE8711707FA8C
 magnet:?xt=urn:btih:EA96C6B09DB62AC12431BDF487FA73FF679FF6EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Laracasts | Extra Series (2013-2018) PCRec [H.264] [EN]
 ```bash
 magnet:?xt=urn:btih:DC648A3AEB5B689F062B8C6CD01CDEE35A6AE22F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ Laracasts | Skills (2014-2017) PCRec [H.264] [EN]
 magnet:?xt=urn:btih:AE9931ABD1BA7862D146E3620F6626013EF43E4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ Happy Hope | Simple System Start (2013) PCRec [H.264]
 magnet:?xt=urn:btih:C91FFE02F3056C858DCD12F6CD8BE44D919D42C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ Geekbrains | Node.js Серверное программирование на Ja
 ```bash
 magnet:?xt=urn:btih:CF14BFAA937DD43AA244961A7AEA2574BC9E954C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:CF14BFAA937DD43AA244961A7AEA2574BC9E954C
 magnet:?xt=urn:btih:9C4FDD30AD6B60EDEDDA3B72BB65EA38A4F30145
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ Unity3DSchool | Основы языка C# в unity3D для написания 
 ```bash
 magnet:?xt=urn:btih:50370A538FAE2F0B0BFFC60DAEA3706A8E642E75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ ProfIT | PHP Готовимся к собеседованию (2016) PCRec
 magnet:?xt=urn:btih:8E51FE5C5D2D00FE3754C9B2F5C42CA57BC44FB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ W.D.I | Типографика в веб (2015) PCRec
 magnet:?xt=urn:btih:C70B4DB6C45A49E785884874B6A0F7BD93FB1A5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ videosharp | Игра Сокобан на C# (2015) PCRec [H.264/720p]
 ```bash
 magnet:?xt=urn:btih:6DBAFA2C364E4F2482528C0E9065385BA209D0FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ ITVDN | Создание адаптивного сайта с Bootstrap 3 (2015)
 magnet:?xt=urn:btih:115F12371C7A4C02488641557E775545F034CCB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ C# Essential Express – курс второго уровня формата п�
 magnet:?xt=urn:btih:E1180257C7335068B9F5897DF81FE73D93B075AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ HTML5 Web Components - это видео курс, который будет п�
 ```bash
 magnet:?xt=urn:btih:A1FCC4A4A6131C12C41796EC81A78CC03DE6791C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +484,8 @@ magnet:?xt=urn:btih:A1FCC4A4A6131C12C41796EC81A78CC03DE6791C
 magnet:?xt=urn:btih:B43D07220B64C84A7CEC8C8338A6BCAC5A071FB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ SEO-Коучинг – профессиональный курс по обуче
 ```bash
 magnet:?xt=urn:btih:5B0C7BC53B49176CB3A42E387779890E59180BF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ ITVDN | Выполнение домашнего задания по курсу S
 magnet:?xt=urn:btih:9186EE8F4AA075E23CCF134DC85D18B567DE210F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ ITVDN | Видео курс Unity3D Essential (2015) PCRec [H.264/720p]
 ```bash
 magnet:?xt=urn:btih:9A093ACCD77D5C17012533F0AAAD7568842AA3E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ magnet:?xt=urn:btih:9A093ACCD77D5C17012533F0AAAD7568842AA3E0
 magnet:?xt=urn:btih:98E592186B4B88A2A679301998A4C259E6466B01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ magnet:?xt=urn:btih:98E592186B4B88A2A679301998A4C259E6466B01
 ```bash
 magnet:?xt=urn:btih:B57F6453C131F7C5116D254B77E192F3ACB2D265
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +642,8 @@ magnet:?xt=urn:btih:B57F6453C131F7C5116D254B77E192F3ACB2D265
 magnet:?xt=urn:btih:1A474B441DCE332D1F82835140769EFB204C9E9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +667,8 @@ magnet:?xt=urn:btih:1A474B441DCE332D1F82835140769EFB204C9E9C
 ```bash
 magnet:?xt=urn:btih:3C3179A963AA05E2EA4EFD8785C8B9A5028B226C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +696,8 @@ VUE – это автономная программа, которая може�
 ```bash
 magnet:?xt=urn:btih:5BC4BA03E1B649591E59EDDCBF1ED95699ECDE54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

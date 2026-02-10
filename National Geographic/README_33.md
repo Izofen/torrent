@@ -19,6 +19,8 @@ Nat Geo Wild: Фантастические существа Мадагаскар
 magnet:?xt=urn:btih:6A95141DA50B5BBDEA0465D6E78FB858A5663A21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NGW: Год диких животных: Сибирь / Siberia's wild year (201
 ```bash
 magnet:?xt=urn:btih:E1FA045C2CDDCEB0C9782F24C72050A644C4C145
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ NGW: Потерянные акулы острова Пасхи / Lost sharks of 
 magnet:?xt=urn:btih:91013222C0A9BD9385B8CDA2387BEC780BBF9FD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ NGW: Ужас тигровой акулы / Tiger shark terror (2017) HDTVRip
 ```bash
 magnet:?xt=urn:btih:0FC72BC48B91CE6C9DA877979814C0358B719EFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:0FC72BC48B91CE6C9DA877979814C0358B719EFF
 magnet:?xt=urn:btih:44C553BB75075E9A76547FF10E18573BD46FC81A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ NGW: Пингвинопалуза / Penguin palooza (2017) HDTVRip
 ```bash
 magnet:?xt=urn:btih:9F7173C0DB7D47EFD2548BA6FFC4F5EA0BBBA033
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ NGW: Чудо-гепард / The miracle cheetah (2017) HDTV [H.264/1080i-LQ]
 magnet:?xt=urn:btih:B068B6A12377BA0E99ADB44B9D15D007E1C88C79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ NGW: Самый знаменитый в мире тигр / The world's most fam
 ```bash
 magnet:?xt=urn:btih:94F516B290450C2AFB55E1BDEA847754A1888093
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ NGW: Человек среди гепардов / Man among cheetahs (2017) HDTV
 magnet:?xt=urn:btih:39FE441D3BEBD510F4AAA6F94F9518295EBC2CA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ NGW: Дикая природа Китая / China's wild side (2017) WEB-DLRip [
 ```bash
 magnet:?xt=urn:btih:7F9EC25293BD0731E19D78411764C334CE27C706
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ NG: Самурайский лук / Samurai Bow (2009) HDTVRip [H.264/720p-LQ]
 magnet:?xt=urn:btih:08E7397143E96BB7B4A7435EECEAFE9EB0B486AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:08E7397143E96BB7B4A7435EECEAFE9EB0B486AB
 ```bash
 magnet:?xt=urn:btih:776345BBD60079EFCBBFD89BCD8D45E8D52EED80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ NGW: Потерянные миры Индии / India's Lost Worlds (2015) HDTVR
 magnet:?xt=urn:btih:F56EB952FF2D2D87F9CA661E71D97DAB02EC5FAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:F56EB952FF2D2D87F9CA661E71D97DAB02EC5FAA
 ```bash
 magnet:?xt=urn:btih:9593E002D1198C767A5028CFEA7A066606B41D94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ NGW: Дикая Шотландия / Wild Scotland (2013-2016) HDTVRip [H.264/72
 magnet:?xt=urn:btih:0525AFB69C8D73D6D6C4F54B27FC2EAD597CA399
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ NGW: Королева скорости / Queen of the chase (2016) HDTVRip [H.26
 ```bash
 magnet:?xt=urn:btih:4439E44C33E73AACBC289570B19AECE7A9E2F5A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ NG: Тайна гималайских мумий / Mystery of the Himalayan Mumm
 magnet:?xt=urn:btih:CF7FF4CAEBEE985D434475F8F08E145A72A763D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ magnet:?xt=urn:btih:CF7FF4CAEBEE985D434475F8F08E145A72A763D8
 ```bash
 magnet:?xt=urn:btih:329BC20ED33F292CA14E3E886411053565B31628
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:329BC20ED33F292CA14E3E886411053565B31628
 magnet:?xt=urn:btih:40CADAD2EC3B8CBF61369C11BA73E1BBFAD59DDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ NG: От колыбели до могилы / Cradle to Grave (2016) SATRip
 ```bash
 magnet:?xt=urn:btih:6A7ED8C4DC888788431D5487C0F7CD8EEB104F15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Nat Geo Wild: Уцелевшая природа Европы / Europe's Last Wil
 magnet:?xt=urn:btih:837F1F4FA14220346328AF95E0ABDFDBAC308CC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ NG: Неизвестная планета Земля / One Strange Rock (2018) W
 ```bash
 magnet:?xt=urn:btih:65F95B271AE3374A0585F74EC66FEE42D95F3C0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ NG: Неизвестная планета Земля / One Strange Rock (2018) W
 magnet:?xt=urn:btih:52BCDB215C1333670B151734D48BFBAE361ECAC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ NGW: Пир гризли / Feast of the Grizzly (2016) HDTV [H.264/1080i-LQ]
 ```bash
 magnet:?xt=urn:btih:385807A1B814C071DF1934CDBAC8E40A0A7CD1FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ NG: Инстинкт выживания. Острова / Primal survivor. Islan
 magnet:?xt=urn:btih:458885A384EEE5A1A840687E807EDCB3263C533F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ NGW: Рожденные в Африке. Школа выживания / Born in
 ```bash
 magnet:?xt=urn:btih:3089EC0D2DFB34BF83CE477C3DFD4391474176FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,27 +1,3 @@
-###  Публикация: 1527057   (737298) от 27.01.2022
-
-Crossroads: On a Just Path / Перекресток: На верном пути (2021) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы потерялись? Растеряны? Не знаете, что делать дальше? Тогда вам прямая дорога в "Перекресток" - таинственный бар, который появляется только для тех, кому нужна помощь. Социальный работник Алекс Стейтон принял несколько неправильных решений и теперь пытается все исправить. Ему предстоит зайти в таинственный бар, где госпожа Ева проведет его через три истории, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5937F53CC42538B0EAF6D9B65E128EAEE7C6C04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526862   (737676) от 26.01.2022
 
 Expeditions: Rome (2022) [Ru/Multi] (1.1.26.58380) Repack Other s
@@ -42,6 +18,8 @@ Expeditions: Rome (2022) [Ru/Multi] (1.1.26.58380) Repack Other s
 ```bash
 magnet:?xt=urn:btih:9D29C313FD60B03E79BED31DF088CA825911DBF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ The Silent Age (2015) [Ru/Multi] (1.0) License GOG
 magnet:?xt=urn:btih:B30CD64E7E4E83836F7713815796A6A9790DAB68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Birthdays the Beginning - это "песочница", в которой объ�
 ```bash
 magnet:?xt=urn:btih:4F0A3F26F775EC035826E7A16B17EA62D59D195C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Terrain of Magical Expertise (2021) [Ru/Multi] (1.08) License GOG
 magnet:?xt=urn:btih:16EE93DBDC621A8378A0E50A361182DA2FC35B6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ LEGO Harry Potter: Years 1-4 (2010) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:7E09C5AD117C7038002FFD269BFC7BE126C4B60B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ LEGO Harry Potter: Years 5-7 (2012) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:4BA30F1A58412AF0B3491EA5EB4B618FF33F0122
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +175,8 @@ The Seventh Sign -Mr.Sister- (2019) [Multi] (1.2.03/dlc) License GOG [18+]
 magnet:?xt=urn:btih:D98E6C2089E155B1C231C4B11A3399BADC98E1FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +200,8 @@ Re;Lord 1 ~The witch of Herfort and stuffed animals~ (2018) [En] (1.00/dlc) Lice
 ```bash
 magnet:?xt=urn:btih:270406D76A354FD78C8227B524F231B6A1311245
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +230,8 @@ Hell Yeah! — это приключенческий экшен-платформ
 magnet:?xt=urn:btih:25E1DA55419035221892EF778109B66514DA70CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +255,8 @@ Witches' Legacy 10: Covered By The Night (2017) [En] (1.0) Unofficial [Collector
 ```bash
 magnet:?xt=urn:btih:C82EF63B2CDC54487D8C6B073893B16160E8469D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +282,8 @@ Love Chronicles 6: Deaths Embrace (2017) [En] (1.0) Unofficial [Collector's Edit
 magnet:?xt=urn:btih:0775219F4952539C0127972B13287561A0D442DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +307,8 @@ Mystery Tales 7: The House of Others (2017) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:B4F6FC0B3F32CDE6396D088775C23D7642357DC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +334,8 @@ Farm Manager 2018 (2018) [Ru/Multi] (1.0) Repack xatab
 magnet:?xt=urn:btih:9C180DF5EBFD264A3BCF6A3AEFD6BB27C2174912
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +359,8 @@ Macrotis: A Mother's Journey (2019) [Ru/Multi] (1.0.2) License CODEX
 ```bash
 magnet:?xt=urn:btih:7DCA4EBB811C720FBEB0F006A101D416B63BB256
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +386,8 @@ Mystery Tales 9: The Other Side / Загадочные истории 9: Дру�
 magnet:?xt=urn:btih:3D4EF6AAD0928C2DD63BA600E6100A6652779764
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +411,8 @@ Fatal Evidence: Cursed Island (2019) [En] (Beta) Unofficial
 ```bash
 magnet:?xt=urn:btih:905265C67AB9205225B325119204167EEA1C3576
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +438,8 @@ Fright Chasers 3: Directors Cut (2019) [En] (1.0) Unofficial [Collector's Editio
 magnet:?xt=urn:btih:B405D7788F42F872197DBB66C0FCA380663037C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +463,8 @@ Outer Wilds - приключения в открытом мире, попытк�
 ```bash
 magnet:?xt=urn:btih:3D4AB3C611BB0FB823B316E3CCF546ACC36687E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +490,8 @@ Paws & Soul — это приключенческая игра о перерож
 magnet:?xt=urn:btih:4A59C2802345E3E73641487D919FEB8164B2DE02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +515,8 @@ Dark Romance 12: Ashville / Роман тьмы 12: Эшвилль (2020) [Ru] (
 ```bash
 magnet:?xt=urn:btih:EAB2A0A3B86B29CF81DC04430EBBF753D8E8B654
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +542,8 @@ Shiness The Lightning Kingdom (2017) [Multi] (1.0.8767.0) License CODEX
 magnet:?xt=urn:btih:FE3D7B6AD67E642A65B5147B3F5C11DDDCE99F4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +567,8 @@ Late Shift – криминальный FMV-триллер, рассказыва
 ```bash
 magnet:?xt=urn:btih:C50B30A3BA33451360B3D7F04683A767527756BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +594,8 @@ Metal Gear Solid V: Ground Zeroes (2014) [Ru/Multi] (1.005) Repack xatab
 magnet:?xt=urn:btih:F865CCC3B0DE2C93B49B60BC3F1836522148A655
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +620,8 @@ Dawn of Andromeda (2017) [Ru/En/Ge] (1.096/dlc) License PLAZA
 magnet:?xt=urn:btih:AD0881F0F2EBD90928C507065084E42374C49D4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +645,34 @@ NARUTO SHIPPUDEN: Ultimate Ninja STORM Legacy (2016-2017) [Ru/En] Rip R.G. Reven
 ```bash
 magnet:?xt=urn:btih:42D526C09C588F127C21DADD5B4459167B55202F
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397215   (741104) от 19.07.2020
+
+Space Hulk: Deathwing (2018) [Ru/Multi] (2.44/dlc) Repack xatab [Enhanced Edition] (обновляемая)
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Space Hulk: Deathwing - Enhanced Edition - это шутер от первого лица, действия которого разворачиваются во вселенной Warhammer 40,000. Игра расширяет рамки оригинальной игры и включает большое количество нового контента. Примерьте на себя роль космодесантника из Крыла Смерти ― вселяющей ужас в сердца врагов 1-й роты таинственного ордена Темных Ангелов ― (   Читать дальше...   )Тип издания: RepackРазработчик: Streum On StudioЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A38306EC0E00A091AD3F666A3446ABC0EBFC2999
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

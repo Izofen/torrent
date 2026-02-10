@@ -22,6 +22,8 @@ Sengoku Basara 4: Sumeragi - 32 новые истории! Новые воена
 magnet:?xt=urn:btih:CEEF32C9088ECD953055BFEAB5AF890F2008C352
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Aliens: Colonial Marines (2013) [Xbox360] [RegionFree] [FreeBoot] [License] [En]
 ```bash
 magnet:?xt=urn:btih:6FAC9F486D6871F0766A186B9EAFE99DA3455119
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Battlefield 1 погружает вас в эпоху Первой мирово�
 magnet:?xt=urn:btih:EF993048864A2EDDC56BFF26BE0A721C80BD07C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Viking: Battle for Asgard переносит игрока в роль Скари
 ```bash
 magnet:?xt=urn:btih:A740F43635AC1A3FCCE466EDB7FD80DEE39F04D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Madagascar: Escape 2 Africa / Мадагаскар 2 (2008) [PS3] [EUR] 2.42 [Co
 magnet:?xt=urn:btih:ED15B60747BE84320FFD16380E8379B9D1CB4125
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Kane & Lynch 2: Dog Days (2010) [PS3] [EUR] 3.30 [Cobra ODE / E3 ODE PRO ISO] [U
 magnet:?xt=urn:btih:ED0A9DF1FADA70E3C00156932A355EF13E9CD43C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Star Wars: The Clone Wars — Republic Heroes (2009) [PS3] [USA] 2.76 [Cobra ODE
 ```bash
 magnet:?xt=urn:btih:4D3ECB197166DD66C6652A8A803AAE82F8CDF8F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ The Penguins of Madagascar: Dr. Blowhole Returns – Again! (2011) [PS3] [USA] 3
 magnet:?xt=urn:btih:156683AF215AE0BE01F63906855A8582F8254DB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Virtua Fighter 5: Final Showdown – расширенная версия фай�
 magnet:?xt=urn:btih:1C2F18695A1F6EDD082E8E9AC577F97E790108E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:1C2F18695A1F6EDD082E8E9AC577F97E790108E8
 ```bash
 magnet:?xt=urn:btih:44D75581FB504E6F2001325158A44E3CB85B1F73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Puss in Boots: The Video Game (2011) [PS3] [USA] 3.70 [Cobra ODE / E3 ODE PRO IS
 magnet:?xt=urn:btih:3496ACDCB5E1B48D02B073272583B602527B3CF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ Rise of the Guardians (2012) [PS3] [USA] 4.25 [Cobra ODE / E3 ODE PRO ISO] [Lice
 magnet:?xt=urn:btih:E55630406148FE7510F491AE441B542E91A598B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Minecraft: Story Mode предлагает отправиться в попул�
 ```bash
 magnet:?xt=urn:btih:CDE2AA54FED768D6AE325BCE406E6B91A87F4FEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ Skullgirls 2nd Encore+ (2017) [PS3] [USA] 4.50 [Repack / 1.08 / 7DLC] [Multi]
 magnet:?xt=urn:btih:39717F5AA4C4AC0ED1BADEB4A4D66299744D34C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ Animal Crossing - Let's Go to the City [Wii] [PAL] [MULTI 5] (2008)
 magnet:?xt=urn:btih:DADDAD08A33E639B5436D81A16908FE46C09BC8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Call of Duty, сверхпопулярный шутер от компании Ac
 ```bash
 magnet:?xt=urn:btih:7B1BACC90800BDA05781FDFDDC0A2F7DC45CE900
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ PlayStation All-Stars Battle Royale (2012) [PSVita] [EUR] 3.60 [HENkaku] [Repack
 magnet:?xt=urn:btih:545F42DAB4AE26DACBAF0BD7A37B9E806B7BCF66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Almost There / Почти у цели (2019) [PS4] [USA] 5.05 [HEN] [License / 1
 ```bash
 magnet:?xt=urn:btih:70858027B60C7951A8EB9B0ADF9069306BF51B25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ LEGO Indiana Jones 2: The Adventure Continues [Wii] [PAL] [Multi 6] (2009)
 magnet:?xt=urn:btih:62F92E27589818F3431AB6461E58F6F476909A11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ Pro Evolution Soccer 2017 – это возвращение легендарно
 ```bash
 magnet:?xt=urn:btih:71F6B5643AEE211FAC3C8613D9267CCE2106B990
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ Street Fighter X Tekken (2012) [PSVita] [EUR] 3.60 [HENkaku] [Repack / 1.08] [Ru
 magnet:?xt=urn:btih:F90C2E865633DEBA13D9B80F0358194800C4F8CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ Snark Busters: High Society (2014) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO]
 magnet:?xt=urn:btih:7F5DEE618351FC08F45D6CFE34BC8DFB4205458A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ Killzone: Mercenary /  Killzone: Наемник (2013) [PSVita] [EUR] 3.60 [HENk
 ```bash
 magnet:?xt=urn:btih:36E1E8701150148F559D7BCE01E681C62173E037
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ Velocity 2X - это динамичное продолжение (   Читат
 magnet:?xt=urn:btih:ED26897B18F7E63F68628191C0920014166D5A1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ Color Zen — новый вид головоломки, в которой вы �
 magnet:?xt=urn:btih:D0336FAD71AD5385D92B229FDFDA56F99E8DEE1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Nail’d (2010) [PS3] [EUR] 3.50 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
 ```bash
 magnet:?xt=urn:btih:875137C5E534E30A27A2176A524D2594938BE660
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

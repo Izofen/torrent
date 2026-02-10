@@ -19,6 +19,8 @@ Drill Core (2025) [Ru/Multi] (1.199.5.7.17.49506e6/dlc) Repack FitGirl
 magnet:?xt=urn:btih:86347225F152D9B97937061797AD1745D8323566
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Red Dead Redemption 2 – приключенческий шутер от тре�
 ```bash
 magnet:?xt=urn:btih:2803B9DF72AB8E1F39EF160FC2ECB8236F6DC140
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ No Plan B – это тактическая стратегия и по совм�
 magnet:?xt=urn:btih:EE4DA457040A72CC6BB1EF684BFC330AB897A754
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Call Of Duty: Black Ops 6 (2024) [Ru/Multi] (11.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A5CFB2408965EA7D1C21321045A6643D4CEDC11D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Craft The World – уникальная стратегия-песочница, 
 magnet:?xt=urn:btih:1D1555E3961C4783A42E213ACAE63B90ED8BB78A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Call Of Duty: Black Ops 6 (2024) [Ru/Multi] (11.1) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:B523D720BDAB1F3F1FC75E258F2EFED58D0F2272
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Call Of Duty: Black Ops 6 (2024) [Ru/En] (11.1) Repack Decepticon [Campaign]
 magnet:?xt=urn:btih:59D0143ED86D63EE53A21F99ECEEDA221FAB8685
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Cosmoteer Starship Architect & Commander – новая песочница на 
 ```bash
 magnet:?xt=urn:btih:16771DF67AABC98F270CC811D975C79BB4E61707
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Asylum (2025) [Ru/Multi] (1.3.3071) License GOG
 magnet:?xt=urn:btih:77F2D47C86267001A451237FDFC72D13DF8F09AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Call Of Duty: Black Ops 6 (2024) [Ru/En] (11.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:97A38DE5A22ABFA7177AB9C03C38E4265F4DA6BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ ARK: Survival Evolved (2017) [Ru/Multi] (360.1/dlc) Repack FitGirl [Ultimate Sur
 magnet:?xt=urn:btih:CC887AA7C9A5E4A1C720E8A2D966AF76A81F4E1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Call Of Duty: Black Ops 6 (2024) [Ru/En] (11.1) Repack Yaroslav98
 ```bash
 magnet:?xt=urn:btih:893840B60CB36C013F46CDD306EB6FFB7FA4D912
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ South of Midnight - новое приключение от Compulsion Games. П�
 magnet:?xt=urn:btih:7626BCD80209CDD9A6EDBDB4CDE722D4951CF980
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.6.2/dlc) Repack Want
 ```bash
 magnet:?xt=urn:btih:7EA37A93F35E00004271F08A08CAC4B8C2989078
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ One-Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19413365
 magnet:?xt=urn:btih:42C44E1450DE147E39151F4F9342D6BBBA0CEFA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ NINJA GAIDEN: Ragebound - совершенно новая игра с боков
 ```bash
 magnet:?xt=urn:btih:081AB5CC852A9F8CC70F38D80CD866A05F546AA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Achilles: Survivor (2025) [Ru/Multi] (1.0.9290) Repack FitGirl
 magnet:?xt=urn:btih:850F4E161BB83648307C82E3BF6837F3FED2BD5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ One-Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19413365
 ```bash
 magnet:?xt=urn:btih:3346DE88E8595B098D5EE0FA2CA06E68C4197CE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Against the Storm - это игра c элементами roguelite и стро
 magnet:?xt=urn:btih:25B5CF1417287F150DF98F4F0A14B430FA789589
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Killing Floor 3 (2025) [Ru/Multi] (Build 19273238/dlc) Repack Other s [Elite Nig
 ```bash
 magnet:?xt=urn:btih:68BFC8E8A9FF51F623F9B70ED549EF55AFE7F38B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.3) Repack Let'sРlay
 magnet:?xt=urn:btih:11D1F892F7ADC7369992E4EB2FFB4D481B9D7785
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Relaxing Time 2: Italy Tour / Время отдыха 2: Итальянское 
 ```bash
 magnet:?xt=urn:btih:27237B1DCDBBFEEE93D4EF51DB1AA2A85E670A70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Relaxing Time: Paradise Resort / Время отдыха: Райский кур�
 magnet:?xt=urn:btih:16442D7A9720A5F3B4A37A32BCD5DEBFAB4481A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Ninja Gaiden: Ragebound - совершенно новая игра с боков
 ```bash
 magnet:?xt=urn:btih:3BA024FFE9E885AB1265620F4C6A0D3C67F9B129
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Ninja Gaiden: Ragebound - совершенно новая игра с боков
 magnet:?xt=urn:btih:89CB1BD6FFA26A215DC3C87EA753861DA871BF49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Unravel Two – приключенческая адвенчура в стиле 
 ```bash
 magnet:?xt=urn:btih:09C254178D918227EF14E2ACB5A2F7B415203A5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

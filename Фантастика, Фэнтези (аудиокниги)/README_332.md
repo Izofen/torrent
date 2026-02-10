@@ -1,3 +1,30 @@
+###  Публикация: 1251990   (413082) от 03.10.2018
+
+Андрей Самусев | Игра как жизнь (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_413082.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это первый роман цикла «Грани игры», написанный Андреем Самусевым в жанре боевого фэнтези и LitRPG. На страницах книги воссоздан игровой мир, о котором в детстве мечтал главный герой Артем. Здесь все вопросы можно решить добрым словом. А если доброе слово оказалось бессильным, на помощь всегда придет холодная сталь.
+Полученный в сражениях урон Артем не только видит (   Читать дальше...   )Жанр: Боевое фэнтези, LitRPGПродолжительность: 13:13:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4653451C421B3DD1F10CB3D57427B6DB0A37CC98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 396811   (413101) от 06.10.2011
 
 Сергей Тармашев | Древний. Катастрофа [2011] [MP3]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:3EDF51DDA3AC90F20D7346C50BF6A606463015A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +73,8 @@ magnet:?xt=urn:btih:3EDF51DDA3AC90F20D7346C50BF6A606463015A0
 magnet:?xt=urn:btih:08D31A6DCA00221B61273120461D14524BA1D19E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +98,8 @@ magnet:?xt=urn:btih:08D31A6DCA00221B61273120461D14524BA1D19E
 ```bash
 magnet:?xt=urn:btih:EC30A67745F27584690A600B256B7E55413E77F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +125,8 @@ magnet:?xt=urn:btih:EC30A67745F27584690A600B256B7E55413E77F8
 magnet:?xt=urn:btih:D0730EB4B777F437E1487BE2A4D6CF9ACAE0A993
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +151,8 @@ magnet:?xt=urn:btih:D0730EB4B777F437E1487BE2A4D6CF9ACAE0A993
 magnet:?xt=urn:btih:79F8FDC42F06D04A64C1EE1D9107B0D7405A5F78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +176,8 @@ magnet:?xt=urn:btih:79F8FDC42F06D04A64C1EE1D9107B0D7405A5F78
 ```bash
 magnet:?xt=urn:btih:CB8546B479C79D7B620DD6DF2B73C720ACF95948
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +204,8 @@ magnet:?xt=urn:btih:CB8546B479C79D7B620DD6DF2B73C720ACF95948
 magnet:?xt=urn:btih:B4722BA69E54DC65A8368FE5E7B011E851E2A743
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +230,8 @@ magnet:?xt=urn:btih:B4722BA69E54DC65A8368FE5E7B011E851E2A743
 magnet:?xt=urn:btih:BECE5A6B0525F5754ECEAEB05C8C5ACCD1D5F0FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +255,8 @@ magnet:?xt=urn:btih:BECE5A6B0525F5754ECEAEB05C8C5ACCD1D5F0FE
 ```bash
 magnet:?xt=urn:btih:CDD62A0E26582DF09DF34B9F204D26FBEC509C00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +283,8 @@ magnet:?xt=urn:btih:CDD62A0E26582DF09DF34B9F204D26FBEC509C00
 magnet:?xt=urn:btih:29FD8899BF1BFAF316B43EBCD8704301D1D941AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +308,8 @@ magnet:?xt=urn:btih:29FD8899BF1BFAF316B43EBCD8704301D1D941AB
 ```bash
 magnet:?xt=urn:btih:2C5A97E6A721E2AB971AF673D9EA9CD98124D726
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +336,8 @@ magnet:?xt=urn:btih:2C5A97E6A721E2AB971AF673D9EA9CD98124D726
 magnet:?xt=urn:btih:1B0D45A4FDF6F98EB5F2040F1B5FF73B16CFBB2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +363,8 @@ magnet:?xt=urn:btih:1B0D45A4FDF6F98EB5F2040F1B5FF73B16CFBB2B
 magnet:?xt=urn:btih:8485A52402FFDAE94EDC7EFECFCD494AB13BF261
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +388,8 @@ magnet:?xt=urn:btih:8485A52402FFDAE94EDC7EFECFCD494AB13BF261
 ```bash
 magnet:?xt=urn:btih:C65B0B4CE335911F5614793F75BF183085D0A60A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +415,8 @@ magnet:?xt=urn:btih:C65B0B4CE335911F5614793F75BF183085D0A60A
 magnet:?xt=urn:btih:DF510A1B1A7EBBE2CABCED675E7898B4CF70F2DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +441,8 @@ magnet:?xt=urn:btih:DF510A1B1A7EBBE2CABCED675E7898B4CF70F2DE
 magnet:?xt=urn:btih:C314AC5AA906A60BF2D4D2C31AB2A1EBC896FB68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +466,8 @@ magnet:?xt=urn:btih:C314AC5AA906A60BF2D4D2C31AB2A1EBC896FB68
 ```bash
 magnet:?xt=urn:btih:789110DD5125B09D8BCACB5935EF645F82C5A208
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +495,8 @@ magnet:?xt=urn:btih:789110DD5125B09D8BCACB5935EF645F82C5A208
 magnet:?xt=urn:btih:A0456E04644050322EDADB6997C2ECB9FD23D1AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +520,8 @@ magnet:?xt=urn:btih:A0456E04644050322EDADB6997C2ECB9FD23D1AB
 ```bash
 magnet:?xt=urn:btih:15DFBDB615D7FD238D6C7D062C5B6F4B1F099F60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +547,8 @@ magnet:?xt=urn:btih:15DFBDB615D7FD238D6C7D062C5B6F4B1F099F60
 magnet:?xt=urn:btih:8AAD6321E179247CCBF2D980BC083A48268A4C46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +572,8 @@ magnet:?xt=urn:btih:8AAD6321E179247CCBF2D980BC083A48268A4C46
 ```bash
 magnet:?xt=urn:btih:F0C7A5BACF2C31D7895F162CA64483BE2EB69C6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +599,8 @@ magnet:?xt=urn:btih:F0C7A5BACF2C31D7895F162CA64483BE2EB69C6B
 magnet:?xt=urn:btih:A616E23EF38D755C7D5F39419F4E33929EE0777C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +625,8 @@ magnet:?xt=urn:btih:A616E23EF38D755C7D5F39419F4E33929EE0777C
 magnet:?xt=urn:btih:6EC2325B58570F2E011600194CB9A39086542E3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +650,8 @@ magnet:?xt=urn:btih:6EC2325B58570F2E011600194CB9A39086542E3E
 ```bash
 magnet:?xt=urn:btih:08776F0C47F2AD02DB2D624D2DC660C623C1C560
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,29 +678,7 @@ magnet:?xt=urn:btih:08776F0C47F2AD02DB2D624D2DC660C623C1C560
 magnet:?xt=urn:btih:1FA6B1BFEA11D728C0412E7869F11571B85F121D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412676   (415587) от 30.09.2020
-
-Алексей Калугин  | Там (Город крыс) (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гигантский город – замкнутый мир для всех его обитателей. Город невозможно покинуть, поскольку никто не знает, где проходит его граница. Всем заправляет Инфор – главный компьютер, созданный когда-то для обеспечения нужд горожан, но со временем ставший полновластным хозяином Города, управляющим жизнями людей по своему разумению. Созданные им условия настолько идеальны, (   Читать дальше...   )Жанр: Киберпанк, Социальная фантастикаПродолжительность: 11:26:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93F1C08A26E9820541BE44A54B2D85EA39A47975
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

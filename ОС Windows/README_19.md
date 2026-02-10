@@ -19,6 +19,8 @@ Recovery USB-flash for Acer Aspire V3-551G / Windows 8 (х64) [Русский]
 magnet:?xt=urn:btih:A47D1615C83E2504EA2E4A0899C01DA3BED5FD54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Microsoft Windows 10.0.17763.107 Version 1809 (October 2018 Updated) - Ориг�
 magnet:?xt=urn:btih:8644C3A423773C5EE8FFF6B2B632C3EE85B12744
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Windows Vista — операционная система семейства Mic
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Recovery USB-flash for Acer Aspire E5-573 / Windows 8.1 (х64) [Ru]
 magnet:?xt=urn:btih:225BA2F297F3A7C2075E243C0869785DBCAA63FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Windows Server 2019 LTSC 1809 (build 17763.805) updated_October_2019 - Ориг�
 ```bash
 magnet:?xt=urn:btih:59BD27F20619B853F7957752E8364C2431D9848D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Microsoft Windows 10.0.18362.418 Version 1903 (October 2019 Update) - Ориги
 magnet:?xt=urn:btih:E7A99E8DCDD5E95A3D099AA4E117BEE7C3652374
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Microsoft Windows 10.0.18362.418 Version 1903 (October 2019 Update) - Ориги
 ```bash
 magnet:?xt=urn:btih:20533C084E758F0F1CBC1B777CFD1244B0C9DF97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Microsoft Windows 10.0.17763.805 Version 1809 (October 2019 Update) - Ориги
 magnet:?xt=urn:btih:80C2E9F0AD3768F42570E51AEEC824787356638F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Windows 10 v20H2 plus v2004 by StartSoft Modernization 08-2020 [Ru/En]
 magnet:?xt=urn:btih:69544147684F771D43C3F792597F60A5F29E16C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Windows Vista — операционная система семейства Mic
 ```bash
 magnet:?xt=urn:btih:F641B12F59D04049D27237919F01B57117EA573D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Microsoft Windows 10.0.17763.805 Version 1809 (October 2019 Update) - Ориги
 magnet:?xt=urn:btih:72B26E6DCBD9E16596DFE0C4E536972DDA6A2B28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ Microsoft Windows 10 Professional 10586 TH2, Release 1511 - Оригинальн
 ```bash
 magnet:?xt=urn:btih:F3753E18CC078DB5FD7AD3723E8AF380177F9E8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ Microsoft Windows 10.0.18363.418 Version 1909 (November 2019 Update) - Ориг�
 magnet:?xt=urn:btih:C9037EC7033309A1E445FEE392071C135456F6CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ Microsoft Windows 10.0.18363.418 Version 1909 (November 2019 Update) - Ориг�
 magnet:?xt=urn:btih:16B95E634C0449BA23B2DBBE0CABA70554B34A32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ Windows Server SAC - канал Semi-Annual Channel идеально подхо�
 ```bash
 magnet:?xt=urn:btih:64A4EE7340388FD5F241D220BF0191CB61A26D8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ Recovery Partition for Samsung RV515 / Windows 7 Home Basic (х64) SP1 [Ru]
 magnet:?xt=urn:btih:5005ABA925D13E6DFD4D190B162C45A2A4FB2DAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ Microsoft Windows 10 Professional,Enterprise 10586 TH2, Release 1511 - Ориг�
 ```bash
 magnet:?xt=urn:btih:7D034B970917772FB2B1C541616A9395476EEAD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ Microsoft Windows 10 Education 10.0.10586 Version 1511 - Оригинальны�
 magnet:?xt=urn:btih:B7A1D927E54B1C94B95E7C1A4BAB02930FAABF4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Microsoft Windows 10 Pro-Home | Single Language 10.0.10586 Version 1511 - Ори
 ```bash
 magnet:?xt=urn:btih:E146E96131826C10D4949E03D028F53035C91F45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ Microsoft Windows 10 Enterprise 10.0.10586 Version 1511 - Оригинальны
 magnet:?xt=urn:btih:DB68B191B9DCB6B32EFD9C8290593779F850D9C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Windows 11 - это серия операционных систем, разра
 ```bash
 magnet:?xt=urn:btih:6A154655425DB006EFF8E1CBC97DF8B1988FE352
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Recovery DVD for Lenovo IdeaPad S10-3S / Windows 7 Starter (х32) [Ru]
 magnet:?xt=urn:btih:5EB69397F8AFEF36B4BD06309EC1C24CCEE674B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,35 @@ magnet:?xt=urn:btih:5EB69397F8AFEF36B4BD06309EC1C24CCEE674B7
 magnet:?xt=urn:btih:287E7CE882F3A6C1671618E931B2B3ABFFE8CDF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580723   (341906) от 25.11.2012
+
+Recovery USB HDD (FLASH) ISO for HP Pavilion dv6-6b63er / Windows 7 Home Basic 64-bit [Русский]
+
+>>ОС Windows
+>>Windows OEM Recovery СD/DVD
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_341906.jpg" />
+</div>
+
+
+###  Подробнее
+
+ISO-образ диска восстановления системы для записи на загрузочные USB HDD, FLASH объемом не менее 16GB (возможно BD)
+Для восстановления необходимо при помощи любого набора инструментов (например из данной раздачи MultiBoot USB - Мультизагрузочная флешка v11.12.10 Final (Полная версия)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +653,8 @@ Windows 11 - это серия операционных систем, разра
 ```bash
 magnet:?xt=urn:btih:E43E154C7197060DEB8841624877D95DF046989D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,30 +683,7 @@ updated_sep_2022_x64_dvd_6a39c6aa.iso
 magnet:?xt=urn:btih:2B44F5433630643CB656413E60CBB9BB0D79BACB
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418302   (345973) от 25.10.2020
-
-Microsoft Windows 10.0.19041.572 Version 2004 (Updated Oct 2020) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 2004 Build 19041.572.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82E071558DC1478285D788A9D2A01C7ED61082EC
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

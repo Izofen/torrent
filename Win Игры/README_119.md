@@ -19,6 +19,8 @@ Generation Zero (2019) [Ru/Multi] (2901094/dlc) Repack FitGirl [Ultimate Bundle]
 magnet:?xt=urn:btih:EFD8E8E8F2B609D36BB639DCEB8C7A50259B47E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:EFD8E8E8F2B609D36BB639DCEB8C7A50259B47E9
 ```bash
 magnet:?xt=urn:btih:A8721F9B4A288E09922E8AF71EEF3D8F3311CB1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Rogue Citadel (2024) [En] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:AF9D7739FC7163B1298D2A6BD52382B645B321F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Mystery Trackers 20: Reflections of the Past / Охотники за тайна�
 ```bash
 magnet:?xt=urn:btih:B1D8A08A5F3A1C366AC694F17285B88D7ABF7A38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Scrap Mechanic – креативный симулятор выживания, �
 magnet:?xt=urn:btih:8C1B56E7108C37B8C29930B0814F045068BDCB5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Autopsy Simulator – симулятор с элементами хоррора,
 ```bash
 magnet:?xt=urn:btih:AE17CA869376ACD5AE4AC48C4AA85064423D4045
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Generation Zero (2019) [Ru/Multi] (2901094/dlc) Repack seleZen
 magnet:?xt=urn:btih:EBA3D95BC01EA9C7750AD3C4D624CD5AB566624B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Dungeons 4 - это фэнтезийная стратегия в реально�
 ```bash
 magnet:?xt=urn:btih:A74439A95938BE54FA6D3C766038491E13FB89C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Hairdresser Simulator (2024) [Ru/Multi] (1.030/dlc) Repack FitGirl
 magnet:?xt=urn:btih:894A609F6D3D35405321431E24C32022B1AAFAB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Forbidden Fantasy - визуальная новелла для взрослых,
 ```bash
 magnet:?xt=urn:btih:E940C24BFF1D10933757D1335E10FAAB30C228DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Battle Shapers - это молниеносный фантастический ш
 magnet:?xt=urn:btih:035EFE2F34D32F3A7A7B1941A89CFD0102F5D26D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Trepang2, сумасшедший кровавый шутер от первого
 ```bash
 magnet:?xt=urn:btih:5B2D412C16B42AF348E2EE2B3CC70F857A619C06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.06) Repack 
 magnet:?xt=urn:btih:6D7EE3860C4044D654630355B870C8B432496FEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Laser Tanks (2024) [Ru/Multi] (Build 16740402) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:0BF69CAFB043B7D80CC9B6FE521DF668FF02F21F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Keylocker | Turn Based Cyberpunk Action (2024) [Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:4690AB34541C5A7A8B517D3413C3CBED829890A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ TRANSFORMERS: Galactic Trials (2024) [Multi] (1.0) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:68B0F0191BB1DE4B45ACFE5ACABDD77C33FA99F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Baby Blues Nightmares - Toddler Horror Game - это игра-ужастик н�
 magnet:?xt=urn:btih:E12A4EBEFCEB186951F24BE5789D95E9A5A73A0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ The Painscreek Killings (2017) [Ru/Multi] (1.1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:25542B38EA56E8F5F6D785F376F53858287F5D50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Hot Wheels Monster Trucks: Stunt Mayhem погружает игроков в м�
 magnet:?xt=urn:btih:744F51F73429FCFF3705BE3BA994E6C268C7FE4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ State of Decay 2 - игра-антиутопия про выживание в о
 ```bash
 magnet:?xt=urn:btih:2B1EFC1374C0A4FEB667D2582F2B00DF2DE0FC94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Tetris® Effect: Connected — это такой Tetris, какой вам ещ�
 magnet:?xt=urn:btih:525D638A791B72441368AD3044586D88BCD6C8AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ LEGO Horizon Adventures (2024) [Ru/Multi] (1.3.0.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:80D9EB67B6A2BB775366A659BF12A20F81FF8B6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Ready or Not (2023) [Ru/Multi] (66884/dlc) Repack FitGirl [LSPD Bundle]
 magnet:?xt=urn:btih:7FBF03CCC9115260DC50102E5A31E83E91422A79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Sir Whoopass: Immortal Death (2022) [En] (1334) License GOG
 ```bash
 magnet:?xt=urn:btih:371F15DB3399467D37F2AA9C487731687847A538
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Caravan Sandwitch переносит на вымышленную пустынн�
 magnet:?xt=urn:btih:3434C661F441C52A45E9741065ABD7839E1377FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ The Spirit of the Samurai (2024) [Ru/Multi] (1.0.00) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:258E067AD262AAA5E49D96B37E2594E1F5BC7560
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Office Installer - программа предназначена для online �
 ```bash
 magnet:?xt=urn:btih:D78106684098C2CB785C474EAFC7651CE801C709
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:D78106684098C2CB785C474EAFC7651CE801C709
 magnet:?xt=urn:btih:58FD87E06719C2250A45724EF514818BA7AD6E3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Fall (2024) [Ru/Multi] (0.1.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:CE27F9DDB8E131E9AEC91ADF82763F05A9CCA163
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:CE27F9DDB8E131E9AEC91ADF82763F05A9CCA163
 magnet:?xt=urn:btih:1E8AC0318789C2E25207148024539123301F5124
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:1E8AC0318789C2E25207148024539123301F5124
 magnet:?xt=urn:btih:1169558D04FFE835F391922912E1FDCEA3343059
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Far Cry (2004) [Ru] (1.0) License
 ```bash
 magnet:?xt=urn:btih:4766A8B9CF1F304AA91074E97CEC0CAC7F275535
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Sid Meier’s Civilization® VI v.1.4.6 DLC (2016) [Multi/Ru] [macOS Native game
 magnet:?xt=urn:btih:105FDD3143CD89D92AC8C0C7697BD90B579EC4B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:105FDD3143CD89D92AC8C0C7697BD90B579EC4B6
 magnet:?xt=urn:btih:D64A760B7D32F245B44BB1E511E61A20F1B3FB58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:D64A760B7D32F245B44BB1E511E61A20F1B3FB58
 ```bash
 magnet:?xt=urn:btih:A479211E9FC6334740E2B7D436DE8AE1DCB54AB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Windows 10 2022 Update (под кодовым названием "22H2") это 
 magnet:?xt=urn:btih:D725582E9899B07288687809D584AA002942EABB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:D725582E9899B07288687809D584AA002942EABB
 magnet:?xt=urn:btih:906E6018184530F1D579F5F81B57FC86995E87B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ S.T.A.L.K.E.R. Trilogy (2007-2010) [Ru/Multi] (1.0006/1.5.10/1.6.02) Repack Dece
 ```bash
 magnet:?xt=urn:btih:1E83B090946F85F7617D81A61E21C5400651D45B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:1E83B090946F85F7617D81A61E21C5400651D45B
 magnet:?xt=urn:btih:9B0D212979D405CFD2EEB083E15A51B516822305
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:9B0D212979D405CFD2EEB083E15A51B516822305
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ Rainbow - Ballads & Instrumentals (1995) [Rem.2014] [FLAC|Lossless]<Hard Rock, H
 magnet:?xt=urn:btih:EB11DC68EB026A359382C7589BFE535A31E234D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ GoodbyeDPI 0.2.3rc3 Launcher 9.4 [Ru/En]
 magnet:?xt=urn:btih:064572126126E77D8BCCD48B3C05338202CABAA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:77DACB06BB83B0515506D66D961EA4CAC2F0BF1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ Victoria 3 - прямой сиквел одноименной игры, где �
 magnet:?xt=urn:btih:2A7568014F65E906719BF9BEB508BFB2292BD904
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:2A7568014F65E906719BF9BEB508BFB2292BD904
 ```bash
 magnet:?xt=urn:btih:D31A4A924D4B05DB5740ACF65A31FA678FD88765
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ magnet:?xt=urn:btih:D31A4A924D4B05DB5740ACF65A31FA678FD88765
 ```bash
 magnet:?xt=urn:btih:48805B9951D411ADABE4B9957FD74086818FBC2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +582,8 @@ Rainbow - Star Collection (2010) 4CD Boxset [FLAC|Lossless]<Hard Rock, Heavy Met
 magnet:?xt=urn:btih:D088D800FEE44A4807A1109DC171DC3CFA6FB6D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +608,8 @@ Tortuga - A Pirate's Tale (2023) [Multi] (1.2.0.62400) License GOG
 magnet:?xt=urn:btih:3EC9B3DC1C1A229E4281C6391CAD83442289B7FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +633,8 @@ Depersonalization (2022) [Multi] (2.0.30) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:3EC9C8E99D8C7920C15A4775FB0BA1ADB4E3E818
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +663,8 @@ CD1
 magnet:?xt=urn:btih:38D8F402A5EE2186D31587511702BEE12C33F837
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ Dan T. and the Crew - LEGACY (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 ```bash
 magnet:?xt=urn:btih:B9367CFFC58DD59873D1C6A9A710E3D7B0AAA055
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

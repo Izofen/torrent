@@ -20,6 +20,8 @@ Audiobook Builder 2 2.2.6 [Multi/Ru]
 magnet:?xt=urn:btih:F6D3A2FF5FCAB73EB6B06505DACBB2A76F47E774
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ StressMyPC - крошечная утилита, которая выполняе�
 ```bash
 magnet:?xt=urn:btih:EAE2B92A458AA0C8A5C29A59F2881B80B8991CBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Skype - бесплатная программа для текстового, г�
 magnet:?xt=urn:btih:14289547A826192B87CC5F52A09AD6B97556EA70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:2AEE97BE5EA45796DEDBCF7FBB1B0649B122952C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Mirror for Sony TV 3.6 [En]
 magnet:?xt=urn:btih:E51D5D7C38374330522C7A26A58ACAC35176F30C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:9989BE49A5821A01BF2965909C03FA152AE6A401
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:F53E6FF1D9C85C07544F0BFD71BAE250A8A6F491
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ Opera GX - это специальная версия браузера Opera, с
 magnet:?xt=urn:btih:58F1D7C67D66836774D052771CCD3D221E911BD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ EdgeView 2 - это новейший просмотрщик изображени
 ```bash
 magnet:?xt=urn:btih:455573049ADE47395EF8F9020E2707E0341838F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ Skype предназначен для личного и делового общ�
 magnet:?xt=urn:btih:4B5404F747E01FA610FFF7D697348512A26E6C30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ Sensei - это приложение, которое охватывает как
 ```bash
 magnet:?xt=urn:btih:DFA380212771B11A34105D41041180852FEE19C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ Downie поддерживает более 1,000 популярных сайто
 magnet:?xt=urn:btih:9C28AD386972D8BC6FA4FC4CC1EFC598845DA093
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 magnet:?xt=urn:btih:34A9B448A6B026BE8BF8E4303DF9A7E279FAA4A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2020.11.27 [En]
 ```bash
 magnet:?xt=urn:btih:17DF1FA5B63A0283C740D4B53957C3724603F0E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ FPS Monitor отслеживает состояние компонентов в�
 magnet:?xt=urn:btih:57CDDD07F796633BE6F99A5CF92D094E593AE089
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:57CDDD07F796633BE6F99A5CF92D094E593AE089
 ```bash
 magnet:?xt=urn:btih:1C5949AED2CB6C65B9E6A7DBA6D43372D3048C0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:1C5949AED2CB6C65B9E6A7DBA6D43372D3048C0B
 magnet:?xt=urn:btih:9F1FB58CD11862B366906BAA85E8A363F50AD464
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ Victoria 5.29 Portable [Multi/Ru]
 magnet:?xt=urn:btih:E5E16FB137404EE9948A77AC0DC68B9B4E01A502
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ Wallpaper Engine позволяет устанавливать живые обо
 ```bash
 magnet:?xt=urn:btih:A5B993888A3F0D79C9CBF9050384D4619BEB8BB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ Office 2013-2021 C2R Install + Lite 7.7.3 ++ Portable by Ratiborus [Multi/Ru]
 magnet:?xt=urn:btih:AC4942E7C8332374551FA73ACE616D61921787AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ Marmoset Toolbag 4.06 (4063) [En]
 ```bash
 magnet:?xt=urn:btih:DFE30838DF24FBEE2F58B2A43212FBE156E0B078
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +580,8 @@ FastStone Image Viewer - вьювер, редактор и конвертор г
 magnet:?xt=urn:btih:DF3AF54B89BA870FCD31BD9536881BAEC2E04A7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ SysAdmin Software Portable v.0.6.4.0 by rezorustavi (Update 05.09.2023) [Ru]
 ```bash
 magnet:?xt=urn:btih:D327EEC605C42DE702410ECB5E38F380C19BE0A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +633,8 @@ Total Commander Extended - это x86 и x64 версии Total Commander в о�
 magnet:?xt=urn:btih:C15C858E417100509BFB5D69C262DCE54B963537
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ DaVinci Resolve — единственное в мире решение для �
 magnet:?xt=urn:btih:6B507006B631FECF7625C0DDBF6E3F9EB033AB40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ FastStone Image Viewer - просмотровщик, редактор и кон�
 ```bash
 magnet:?xt=urn:btih:34DADC658B0D322FCDC62AF49AA8F4EB9293D4B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

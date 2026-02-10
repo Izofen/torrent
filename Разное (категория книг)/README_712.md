@@ -1,3 +1,29 @@
+###  Публикация: 617116   (971833) от 12.02.2013
+
+В.И. Рыженко (сост.) | Выпиливание лобзиком (1998) [DJVU]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+В данной книге приводятся сведения о материалах, инструментах, которые используются при выпиливании изделий лобзиком.Жанр: Умелые рукиФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EBC3EEB5D63E93A35C5DB3A4BCCFEBF44BB929F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975177   (971846) от 15.01.2016
 
 Дебора Шредер-Солнье | Сила парадокса: лучшие бизнес-решения на стыке противоречивых идей (2015) [FB2]
@@ -22,6 +48,8 @@
 magnet:?xt=urn:btih:FDA09CD74A4FF05DB79A6688FD0F1CD3BACA4DA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:FDA09CD74A4FF05DB79A6688FD0F1CD3BACA4DA0
 ```bash
 magnet:?xt=urn:btih:674EBD65A8096886539398B4E47904151C46F52B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +102,8 @@ magnet:?xt=urn:btih:674EBD65A8096886539398B4E47904151C46F52B
 magnet:?xt=urn:btih:F9DBE1AF4199D781100CAC7B7227FD03B73979E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:F9DBE1AF4199D781100CAC7B7227FD03B73979E7
 ```bash
 magnet:?xt=urn:btih:588B9B41C49A28FA30DE40AE2498C9BA942A7F5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +154,8 @@ magnet:?xt=urn:btih:588B9B41C49A28FA30DE40AE2498C9BA942A7F5E
 magnet:?xt=urn:btih:4E22EC82E94EAC917085FF78EF264233B8DE6F92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:4E22EC82E94EAC917085FF78EF264233B8DE6F92
 ```bash
 magnet:?xt=urn:btih:99774123396C03E6696D428415A51C0407B786C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:99774123396C03E6696D428415A51C0407B786C2
 magnet:?xt=urn:btih:FF7E1873DD6A72C73FB7B33B64726D63346AE186
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:FF7E1873DD6A72C73FB7B33B64726D63346AE186
 ```bash
 magnet:?xt=urn:btih:1A9AB11EF30CC1EFEC0188174CF101AD0ACED94C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:1A9AB11EF30CC1EFEC0188174CF101AD0ACED94C
 magnet:?xt=urn:btih:B1D3EFC98E599694F39824AE7B40ED202037D266
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +286,8 @@ magnet:?xt=urn:btih:B1D3EFC98E599694F39824AE7B40ED202037D266
 ```bash
 magnet:?xt=urn:btih:A72F00BBADB833940B3F96854FB19317305297B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +315,8 @@ magnet:?xt=urn:btih:A72F00BBADB833940B3F96854FB19317305297B9
 magnet:?xt=urn:btih:A1B1969BDA3206AD63D61F6C029990E242157532
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +341,8 @@ magnet:?xt=urn:btih:A1B1969BDA3206AD63D61F6C029990E242157532
 magnet:?xt=urn:btih:16CE46A689296A5B432F1D79600893C97707FC21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:16CE46A689296A5B432F1D79600893C97707FC21
 ```bash
 magnet:?xt=urn:btih:FA47B46F741D41E4478E4F987FEB0751AD1734AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +394,8 @@ magnet:?xt=urn:btih:FA47B46F741D41E4478E4F987FEB0751AD1734AB
 magnet:?xt=urn:btih:BBEA3043FB22FD47703EA8AA345265D1FE91A503
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +419,8 @@ magnet:?xt=urn:btih:BBEA3043FB22FD47703EA8AA345265D1FE91A503
 ```bash
 magnet:?xt=urn:btih:65F5202CD0E7D2B0149BDD98D02DB62E1A9EC9A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +448,8 @@ magnet:?xt=urn:btih:65F5202CD0E7D2B0149BDD98D02DB62E1A9EC9A2
 ```bash
 magnet:?xt=urn:btih:28C47B36D8CD8DBAF2638C087554CA630ECA347F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +479,8 @@ magnet:?xt=urn:btih:28C47B36D8CD8DBAF2638C087554CA630ECA347F
 magnet:?xt=urn:btih:157ADDCDDB4E6B63D03A8217E92FB1C7B20AEB3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +505,8 @@ magnet:?xt=urn:btih:157ADDCDDB4E6B63D03A8217E92FB1C7B20AEB3C
 magnet:?xt=urn:btih:9BA341457801AFF676509C1B61D9CAEF1BD607BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +530,8 @@ magnet:?xt=urn:btih:9BA341457801AFF676509C1B61D9CAEF1BD607BC
 ```bash
 magnet:?xt=urn:btih:46C59A3BEFBA9F508FEA1A9588E96314098C8FEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +559,8 @@ magnet:?xt=urn:btih:46C59A3BEFBA9F508FEA1A9588E96314098C8FEB
 magnet:?xt=urn:btih:576CADEAB87A3A3DC354066749AFCF97E5984B4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +585,8 @@ magnet:?xt=urn:btih:576CADEAB87A3A3DC354066749AFCF97E5984B4C
 magnet:?xt=urn:btih:CF94DEF076D2D0339AA71760C43BCEF5CC87F8ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +610,8 @@ magnet:?xt=urn:btih:CF94DEF076D2D0339AA71760C43BCEF5CC87F8ED
 ```bash
 magnet:?xt=urn:btih:5EA1BE08B2F39D5D76214C3B54445EAC3BF333FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +639,8 @@ magnet:?xt=urn:btih:5EA1BE08B2F39D5D76214C3B54445EAC3BF333FA
 magnet:?xt=urn:btih:0DC7E118171566276E3EA63D1EB59E52039D6E1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +665,8 @@ magnet:?xt=urn:btih:0DC7E118171566276E3EA63D1EB59E52039D6E1C
 ```bash
 magnet:?xt=urn:btih:B9B353FDC308E9F11ABF0A493CFF2C3CD71F2476
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,30 +694,7 @@ magnet:?xt=urn:btih:B9B353FDC308E9F11ABF0A493CFF2C3CD71F2476
 magnet:?xt=urn:btih:367F3EFF7A503EE4C8EEC88731FFBE2AB6DDD1BC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617685   (972330) от 12.02.2013
-
-Сергей Кашин | Соусы и подливы [2012] [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-В этой книге собраны лучшие рецепты со всего мира: классические французские и итальянские соусы, подливы к мясу и птице, легкие и пикантные заправки для салатов, консервированные приправы для первых и вторых блюд, маринады для шашлыка, блюд на гриле, овощных и грибных консервов, кляр и панировка для мяса, рыбы, морепродуктов, овощей и даже фруктов.
-Все перечисленное поможет хозяйкам без труда разнообразить меню своих близких и каждый день радовать их оригинальными и очень вкусными блюдами.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B836B7FB13287F2BDFA310F3CD09EDA09636DDE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

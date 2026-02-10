@@ -1,3 +1,29 @@
+###  Публикация: 155864   (345009) от 01.12.2009
+
+VA - Новогоднее настроение (2009) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_345009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257409   (345036) от 26.10.2018
 
 VA - Top50: Tracks Deep House Ver.5 (2018) [MP3|320 Kbps] <House, Deep House, Progressive>
@@ -21,6 +47,8 @@ VA - Top50: Tracks Deep House Ver.5 (2018) [MP3|320 Kbps] <House, Deep House, Pr
 ```bash
 magnet:?xt=urn:btih:8446426FFF8F495DB90DC199F859B2731F6AF7B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +77,8 @@ VA - Calypso Blues (2018) [MP3|320 Kbps] <Jazz, Blues>
 magnet:?xt=urn:btih:4792BFA31858CC40A2118B04E63E212A6129515E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +105,8 @@ VA - Old School Hits Collection от ALEXnROCK (2019) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:88BF0131EE2219B2E1269BEFA958AD92A157B956
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +135,8 @@ CD1:
 magnet:?xt=urn:btih:E52CA136FE2A8EDF5A23E9AA35AF7A1D38B652F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +163,8 @@ VA - 100 Rock Ballads Vol.1 (2019) [MP3|320 Kbps] <Rock, Ballads>
 ```bash
 magnet:?xt=urn:btih:596C1AC9B6F9D9E9CAE4B82EE86FBB05C0610BFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +193,8 @@ VA - Новинки С Разных Популярных MP3 Сайтов (16.11
 magnet:?xt=urn:btih:16A2876297350C2237F0BC4085E4A8943F3FF122
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +221,8 @@ VA - Рок впрок 13 (2019) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:E5EE0B2816E41BF7BC2FA2F7DBD7D9B793718C5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +251,8 @@ VA - Dance Hits Collection 90s Vol.6 (2019) [MP3|320 Kbps] <Euro-House, Eurodanc
 magnet:?xt=urn:btih:944C0B21FF22E7B9BD3FE9EFB9B28F25AF409089
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +279,8 @@ VA - Chill House: HedKandi October Set (2018) [MP3|320 Kbps] <Chill, Deep House>
 ```bash
 magnet:?xt=urn:btih:213A7085E2134C39F54BA085CCCCF7CCD35EE300
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +309,8 @@ VA - Убойные хиты на Шансоне (2016) [MP3|256 Kbps] <Шанс
 magnet:?xt=urn:btih:9E0629D0BA99D137BD8FEC2628D85C7AF5F3F7DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +337,8 @@ VA - Попсовая соточка от Хит fm 5 (2016) [MP3|256 Kbps] <Pop
 ```bash
 magnet:?xt=urn:btih:E23D32AD54AE487871B84B264F7C1EA6E2536D1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +367,8 @@ VA - Высшая лига хитов шансона - 5 (2016) [MP3|256 Kbps] <
 magnet:?xt=urn:btih:F85489C83A271469EEA51D5CB63B22D172088F08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +394,8 @@ VA - Dubstep 2012. - 20 Мегахитов (2012) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:A1406328E776F6CB0E0BB1B3D45BF28A7A7E450A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +430,8 @@ VA - R.G. DHT-Music - Dubstep Female Vocal (2012) [MP3|320 кб/с]<Dubstep>
 magnet:?xt=urn:btih:5EFE99656DC2E4795AD60F7D923118F55AB66996
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +461,8 @@ VA - Whisper of Consciousness Volume 32 (2012)
 ```bash
 magnet:?xt=urn:btih:D946E96AEAB8F1C222A455BA4AC4F92ACD4FB265
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +497,8 @@ VA - A State Of Vocal Trance Volume 11 (2012) [MP3|320 кб/с]<Vocal Trance>
 magnet:?xt=urn:btih:E8593B3BA61A70051F544EBD5EA2C51E6226594F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +532,8 @@ VA - New Blood Of Dubstep Vol. 3 (2012) [MP3|320 кб/с]<Dubstep>
 magnet:?xt=urn:btih:B1581C147C13858EFFA06A3DD346D79BA722159F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +560,8 @@ VA - 1000 Original Hits (Instrumental) (2004) [MP3|256 кб/с]<Instrumental>
 ```bash
 magnet:?xt=urn:btih:2D9E244000533E8E60948A805932EFB32261F3B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +596,8 @@ VA - DeepEmotions - Car Dubstep Vol.7 (2011) [MP3|320 кб/с]<Dubstep>
 magnet:?xt=urn:btih:D270674A94D0A043D5BE25C8A64B30D73ECD1D6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +624,8 @@ magnet:?xt=urn:btih:D270674A94D0A043D5BE25C8A64B30D73ECD1D6D
 ```bash
 magnet:?xt=urn:btih:A2545F7492CF725CCE3838B2D1C5402C30B9171A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +654,8 @@ VA - Осенний Русский Рок (2017) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:E68C3201900843137479238C0AC42E9ACFA24702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +682,8 @@ VA - Русские Диджеи & Дискотеки от Ovvod7 - 03 (2017) [M
 ```bash
 magnet:?xt=urn:btih:812E8655542B67B3E6750B34C72D5E0A8AF52DB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +713,8 @@ VA - Flesh & Blood Of Nu-Metal (2017) [MP3|320 кб/с]<Nu-Metal, Alternative, R
 magnet:?xt=urn:btih:8FFA29E86A4F9E80F915EA09A2B22D7D51CC1BF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +741,8 @@ VA - В Машине. Клубный Выпуск (2015) [MP3|320 кб/с]<Dance
 ```bash
 magnet:?xt=urn:btih:BF232E52F08D2DC844085A43E46A4C6726B8C2B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -697,32 +771,7 @@ VA - Мега-дискотека в стиле Руки вверх (1996-2016) [
 magnet:?xt=urn:btih:9EA58340B1A8A55C12CFBE427C7E1CC5BAF4293D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953735   (346835) от 05.11.2015
-
-VA - Extra House (episode 7) (2015) [MP3|320 кб/с]<Deep House, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blondee, Veselina Popova - 7 Hours (Love Mix) (05:20)
-02. Boral Kibil - Aurora (08:21)
-03. Manga - Cevapsiz Sorular (Mahmut Orhan Remix) (06:23)
-04. Martin Kremser - Pluviophile (Studio Deep Remix) (07:24)(   Читать дальше...   )Жанр: Deep House, Club HouseПродолжительность: 02:05:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C40CA95D4E8F8AF35AA1F3AB667B9B24187104E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

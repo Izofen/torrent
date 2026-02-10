@@ -22,6 +22,8 @@ Udemy, Семен Паничев | С++ GOF Паттерны проектиро�
 magnet:?xt=urn:btih:1A1C8002BD6BE1E98EE33065A9D53837FC3DAFB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Udemy, Дмитрий . | Java до уровня Junior Developer за 3 мес�
 ```bash
 magnet:?xt=urn:btih:5C5C0C608A18E6FBDD4A2C64E8560BA3FBB5F904
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ MINDMANAGER ИНТЕГРАЦИЯ MINDMANAGER 2019 С ЛИНЕЙКОЙ MICROSOFT 
 magnet:?xt=urn:btih:C52F63C3FF2579BA912C478A4F68821599D66728
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:C52F63C3FF2579BA912C478A4F68821599D66728
 ```bash
 magnet:?xt=urn:btih:C526116B3275CBC53E39B464D64905F56049B745
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:C526116B3275CBC53E39B464D64905F56049B745
 magnet:?xt=urn:btih:A8C3915B88E3F8C188473E3C450830A24AF7BCE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ MindManager 2020 предлагает несколько режимов для �
 ```bash
 magnet:?xt=urn:btih:14780D8A2C361B3031636674DE20DE8956E32D0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:14780D8A2C361B3031636674DE20DE8956E32D0E
 magnet:?xt=urn:btih:58046319FC7B42D0BC0DD726393CA9DF4B2C8F2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ Udemy, Михаил Чирков | Python: Быстрый старт (2020) PCRe
 ```bash
 magnet:?xt=urn:btih:613457287C8CCE1C8E997B313B52884AA1D399C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ Udemy, ZTM Academy, Andrei Neagoie | The Complete Web Developer in 2023: Zero to
 magnet:?xt=urn:btih:B5D15470F4A3875186142B41366BB7DD4ABA2EDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ Kafka — это сервис, позволяющий в реальном вре
 magnet:?xt=urn:btih:ABCB39DBBABB132DAD030260FDAE6D471F92299C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:ABCB39DBBABB132DAD030260FDAE6D471F92299C
 ```bash
 magnet:?xt=urn:btih:54B96E7962D767EF6E7CEBE5E481B3CE4C01A8E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ TeachMeSkills | Python разработчик (2021) WEB-DL
 ```bash
 magnet:?xt=urn:btih:2A1BF3AB80DBF3BD7EB63EC942ACD5E4CEE3D075
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ Udemy, Elchin Jamalov | VMware vSphere 6 - полный видеокурс (2021
 magnet:?xt=urn:btih:11AEDFC424F206EADA15DFEBBD22CAD8796A089A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:11AEDFC424F206EADA15DFEBBD22CAD8796A089A
 magnet:?xt=urn:btih:71C0086DDE9AE9DBEFD1303228F53054FE43D505
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:71C0086DDE9AE9DBEFD1303228F53054FE43D505
 ```bash
 magnet:?xt=urn:btih:A15751EE597BF7D9409837624A3DC10D66EB5A66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:A15751EE597BF7D9409837624A3DC10D66EB5A66
 magnet:?xt=urn:btih:393489682B56BB2485FDE42617CB18C4FF6D166A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:393489682B56BB2485FDE42617CB18C4FF6D166A
 ```bash
 magnet:?xt=urn:btih:8E511914587E0935854E38D173FFF03C00E543B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ MindManager сделает простыми важные для вас знан�
 magnet:?xt=urn:btih:7ECB669E218329FC95B302D1F6ABF71515352B2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:7ECB669E218329FC95B302D1F6ABF71515352B2C
 ```bash
 magnet:?xt=urn:btih:BE1BE9B3D3BE9EF75CC182C260F953B6A63C5201
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +533,8 @@ MindManager 2020 содержит функции и усовершенствов
 magnet:?xt=urn:btih:B2833A0AB2B373D4BF29F675820BD8E79AA58720
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:B2833A0AB2B373D4BF29F675820BD8E79AA58720
 magnet:?xt=urn:btih:A58F9DC0B3E3A5C4E5046BFEC4143E1E5B46E7EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:A58F9DC0B3E3A5C4E5046BFEC4143E1E5B46E7EB
 ```bash
 magnet:?xt=urn:btih:11895C937569AB3433E41E35B146762194BA554C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +613,8 @@ MindManager повышает производительность каждого
 magnet:?xt=urn:btih:614168F6D2CEB3128DA28B06E736A9B58D942550
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ magnet:?xt=urn:btih:614168F6D2CEB3128DA28B06E736A9B58D942550
 ```bash
 magnet:?xt=urn:btih:01B068E15D8136049BEC45D26E24B58FF03406B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +665,8 @@ magnet:?xt=urn:btih:01B068E15D8136049BEC45D26E24B58FF03406B2
 magnet:?xt=urn:btih:157A8CA99086374A1AC0413AC1F4DBEC0F4C4E28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ Python-разработчик создаёт бэкенд сайтов: мозг
 ```bash
 magnet:?xt=urn:btih:6C0ADDEB1AD719B962F81B28E3AA8C17C80BFFBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

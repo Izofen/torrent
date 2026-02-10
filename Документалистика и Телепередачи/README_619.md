@@ -1,3 +1,29 @@
+###  Публикация: 310989   (831796) от 21.03.2011
+
+Мастер и Маргарита (2005) DVDRip
+
+>>Документалистика и Телепередачи
+>>Религии и культы (Док/TV)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лекция диакона Андрея Кураева, посвященная знаменитому роману М. А. Булгакова "Мастер и Маргарита", в которой он (диакон) раскрывает загадки данного произведения.Жанр: ТелепередачаРежиссер: Алексей ЧирсковПродолжительность: 02:16:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:300B0F593E1C9935309D77350EEC58398644B9EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502042   (831818) от 12.10.2021
 
 Виновность доказана (2021) WEB-DL [H.264/1080p] (серии 1-2 из 2)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:E5AC24C5107B49472133EA05D92126BC429846A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:E5AC24C5107B49472133EA05D92126BC429846A5
 magnet:?xt=urn:btih:A667C2C4E65E76F5EEAEA71F20A6D94104A353D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:A667C2C4E65E76F5EEAEA71F20A6D94104A353D8
 ```bash
 magnet:?xt=urn:btih:9E06713DDE1D244AFB7E7A4269C855A2923205A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:9E06713DDE1D244AFB7E7A4269C855A2923205A5
 magnet:?xt=urn:btih:BA10350EAFB0E77AD394BF2CA7880DC2D898DA4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:BA10350EAFB0E77AD394BF2CA7880DC2D898DA4F
 ```bash
 magnet:?xt=urn:btih:BA0885CF70D923C1158F9E46BE25E9A034BE0917
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:BA0885CF70D923C1158F9E46BE25E9A034BE0917
 magnet:?xt=urn:btih:7AAFA8CE7380BC7208D0727849010C8537C53C0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:7AAFA8CE7380BC7208D0727849010C8537C53C0B
 ```bash
 magnet:?xt=urn:btih:12435E6A50E82E73118713A6F7565618B15DBD7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:12435E6A50E82E73118713A6F7565618B15DBD7E
 magnet:?xt=urn:btih:65DEEF246C5F678095FA939429C188B4E1D41BAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:65DEEF246C5F678095FA939429C188B4E1D41BAA
 ```bash
 magnet:?xt=urn:btih:B0345A1DB3846CC6412A9D7B1BAD9AEB28CD86D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:B0345A1DB3846CC6412A9D7B1BAD9AEB28CD86D4
 magnet:?xt=urn:btih:273AED06E3A7B824A02B8574163CE20C547FBE3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:273AED06E3A7B824A02B8574163CE20C547FBE3E
 magnet:?xt=urn:btih:76085555F89C193541B1DD4E237F14414DAED53E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +330,8 @@ magnet:?xt=urn:btih:76085555F89C193541B1DD4E237F14414DAED53E
 ```bash
 magnet:?xt=urn:btih:FCE730138578D36A8088C0ACEF3F8E4A5A5D7207
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:FCE730138578D36A8088C0ACEF3F8E4A5A5D7207
 magnet:?xt=urn:btih:0AB8F7FAA5BFEB8949B1B710A12D4B201F6185D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:0AB8F7FAA5BFEB8949B1B710A12D4B201F6185D1
 magnet:?xt=urn:btih:C5C3E2D29DDB9D28732383BC82B0E90E0537D04F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:C5C3E2D29DDB9D28732383BC82B0E90E0537D04F
 ```bash
 magnet:?xt=urn:btih:8666540EBAD81446DBB26FF503D2917BB9486690
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:8666540EBAD81446DBB26FF503D2917BB9486690
 magnet:?xt=urn:btih:819310F95D7204FB3D4F99FABAF3DE7BE1973B9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:819310F95D7204FB3D4F99FABAF3DE7BE1973B9D
 ```bash
 magnet:?xt=urn:btih:FAC3A903EE48979608BE72DDA092A9AE6C326CED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:FAC3A903EE48979608BE72DDA092A9AE6C326CED
 magnet:?xt=urn:btih:983C98F1FED2A79E4BFC00A59677A6823E2702AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +515,8 @@ magnet:?xt=urn:btih:983C98F1FED2A79E4BFC00A59677A6823E2702AE
 ```bash
 magnet:?xt=urn:btih:D8E13B8C055F163655E17248A62546A0C7187F85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:D8E13B8C055F163655E17248A62546A0C7187F85
 magnet:?xt=urn:btih:55DD0EE454E1BD94EA57C6626282C4B33E780E23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:55DD0EE454E1BD94EA57C6626282C4B33E780E23
 ```bash
 magnet:?xt=urn:btih:9D2EB1D7579E87F8643F764D48C354627404331D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:9D2EB1D7579E87F8643F764D48C354627404331D
 magnet:?xt=urn:btih:31296FF7364D4D439A1F14A3EC35B2405238D6A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +620,8 @@ magnet:?xt=urn:btih:31296FF7364D4D439A1F14A3EC35B2405238D6A7
 ```bash
 magnet:?xt=urn:btih:4FA72C17C0A1539913805FCF990D2DC3173A74E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:4FA72C17C0A1539913805FCF990D2DC3173A74E9
 magnet:?xt=urn:btih:545E124BF99FEBBB3FAA4DFA2F459ED3AF3C2C69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,29 +675,7 @@ magnet:?xt=urn:btih:545E124BF99FEBBB3FAA4DFA2F459ED3AF3C2C69
 magnet:?xt=urn:btih:2767E4D4BD2909BA1625E14DA1BF2D0557E9BC46
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005646   (832719) от 09.04.2016
-
-Процесс. Кто такой Эрдоган: политический авантюрист, марионетка Запада? (09.04.2016) SATRip
-
->>Документалистика и Телепередачи
->>Общественно-политические и пропагандистские ток-шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новое общественно-политическое ток-шоу "Процесс" посвящено важнейшим событиям в России и мире, и своей главной целью ставит определение вектора, по которому должна идти Россия, чтобы обеспечить достойную и безопасную жизнь своим гражданам. Ведущими еженедельной программы стали российский писатель Сергей Шаргунов и тележурналист Николай Петров. Особый интерес (   Читать дальше...   )Телекомпания: ОАО «ТРК ВС РФ «ЗВЕЗДАЖанр: Общественно-политическое ток-шоуПродолжительность: 00:40:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AF2B271F9BB0672A716D34F986906BAB6697CD7
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

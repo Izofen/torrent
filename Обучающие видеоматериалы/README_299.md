@@ -19,6 +19,8 @@ Feng Zhu | The Techniques of Feng Zhu Vol 1-3 (2015) PCRec [En, Ru]
 magnet:?xt=urn:btih:400BD68EA111A46475A00BD1EC4E179F27F9FB57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ SEMPRO 2017 — это специализированная конференци
 magnet:?xt=urn:btih:DD58C73DE8CC5AFE72ED762FB740C33827255D13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Syd Mead | Airship Arrival (2015) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:49C2BA3D68DCD0F7D2597BDB2A8DCE6616889C64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ The Gnomon Workshop, Pawel Margacz | Creating Stylized VFX in Unreal Engine 5 (2
 magnet:?xt=urn:btih:1E97E5B4A8768DD9643B50B37B52AD61F851C2F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Lectoroom, Мария Павлова | Старичок с воробьями (2
 ```bash
 magnet:?xt=urn:btih:6A930B5D69A045A46C1B33B9AA9891CEDACBFB89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ New Art School, Егор Гришин | Скетчинг (2019) PCRec
 magnet:?xt=urn:btih:2C93252BFC3EAF7392EF195220322DAABE44CE45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ New Art School ,Егор Гришин | База CG (2019) PCRec
 ```bash
 magnet:?xt=urn:btih:F24BE59A96A86801BF8CA29BF4046901B79A0002
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:F24BE59A96A86801BF8CA29BF4046901B79A0002
 magnet:?xt=urn:btih:A7EF5ACFBCD8DAE47C9325A27783DC63B7265307
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:A7EF5ACFBCD8DAE47C9325A27783DC63B7265307
 magnet:?xt=urn:btih:87F0482943D7D2E4C5C2AF9164D05126F43B9191
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:87F0482943D7D2E4C5C2AF9164D05126F43B9191
 ```bash
 magnet:?xt=urn:btih:FBED18701026256958307C476137D8DFA6D53CF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:FBED18701026256958307C476137D8DFA6D53CF1
 magnet:?xt=urn:btih:51F76B65A26DEFFF20F2DEFC16AEBF7B7F6D7031
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ Udemy, Dr. Angela Yu | iOS 13 и Swift 5 - Полное руководство �
 ```bash
 magnet:?xt=urn:btih:8C05D8D5AF7C11679F5DCAD442B4C4C12C066555
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ YouTube канал автора с примерами его работ и др�
 magnet:?xt=urn:btih:1C08406E6479D0DE6765DD04015E5168CC1C09EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ Trim sheet или «тримы» - это просто текстурные пл
 ```bash
 magnet:?xt=urn:btih:C0F1E23B2BA518184433560969AF8CD7EF599FC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ Marc Brunet | 3D Hand-painted Character For Games (2015) PCRec [En, Ru]
 magnet:?xt=urn:btih:A8F7B5868981DAB973C0D6446B7C733BFF518E33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ Aaron Sorkin | Уроки сценарного мастерства с Ааро�
 ```bash
 magnet:?xt=urn:btih:ABE4F7908D2AB4A1BB4FEF5C2955ACFCD5E8A73D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +459,8 @@ magnet:?xt=urn:btih:ABE4F7908D2AB4A1BB4FEF5C2955ACFCD5E8A73D
 magnet:?xt=urn:btih:419E06DC710E2A633F79D2B42F5CC193A55C66CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ magnet:?xt=urn:btih:419E06DC710E2A633F79D2B42F5CC193A55C66CA
 ```bash
 magnet:?xt=urn:btih:CD03B0198E0EF4D363B4ECB9A7B12A1CCA4943F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +511,8 @@ Marc Brunet | Painting Character Portraits (2015) PCRec [En, Ru]
 magnet:?xt=urn:btih:C0E1E655701E58E35EBB2DD860ECC9D28184506A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +536,8 @@ CartoonSmart | Tradigital Animation: 2D FX (2015) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:105AE91565740B69F2759E0ADC2131204859855F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +564,8 @@ Convertmonster | Seo-оптимизатор, специалист по рабо�
 magnet:?xt=urn:btih:2154157C8357FCA20F457C30C1005A7D028C6901
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ Udemy, Joseph Delgadillo и др. | The Complete Full-Stack JavaScript Course! (
 ```bash
 magnet:?xt=urn:btih:F86CB3119459B2C88DC68171142C1BC488CDFB09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ magnet:?xt=urn:btih:F86CB3119459B2C88DC68171142C1BC488CDFB09
 magnet:?xt=urn:btih:1E081444189A7A924745FE8AD64A23DEF3C2F6F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ Paris Christou | How to Draw Cartoon Animals (2013) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:E0B3150343DA43B2E60D225F7D76123BA0B69638
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +674,8 @@ magnet:?xt=urn:btih:E0B3150343DA43B2E60D225F7D76123BA0B69638
 magnet:?xt=urn:btih:84CCE2C75BB5DF0A1D30ABC23A5152E2DDB65B6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ magnet:?xt=urn:btih:84CCE2C75BB5DF0A1D30ABC23A5152E2DDB65B6E
 ```bash
 magnet:?xt=urn:btih:81783D6065E09E2F049C2E6212779642625724B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

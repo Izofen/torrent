@@ -28,6 +28,8 @@ Lisa Lynne & Aryeh Frankfurter - Weaving Worlds (2011) [MP3|320 кб/с]<Instrum
 magnet:?xt=urn:btih:64D253B30675658D7371375DF7D9232F81CD6BE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ Ernesto Cortazar - Paris by Night (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age,
 ```bash
 magnet:?xt=urn:btih:7B2853A1E5C9EE2FEC6CDB0B27E00C57410AAB4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ Kings of Convenience - Peace Or Love (2021) [FLAC|Lossless|tracks + .cue] <Indie
 magnet:?xt=urn:btih:F6C4C70E8C26218327A44E573A06522BF5A28D7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ Ernesto Cortazar - Piano & Strings (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age
 ```bash
 magnet:?xt=urn:btih:8BD1FBE80C273C0B96F2429D804E811E2E2F8D0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +150,8 @@ VA - Native American Sacred Waters (2011) [MP3|320 кб/с]<New Age, World, Nati
 magnet:?xt=urn:btih:01AE88646B9F9F09748AEC84C45C64B639D30E85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +185,8 @@ VA - 80's Club Classics Repress (2003) 2CD [FLAC|Lossless]<Hip Hop, Electro, Sou
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +213,8 @@ Deep Forest - Burning (2023) [MP3|320 Kbps] <New Age, Electro>
 ```bash
 magnet:?xt=urn:btih:7A68FB7B88E5B13268D8F48B0C25C4BEA3A18FC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +249,8 @@ Globus - Epicon (2006) [APE|Lossless]<New Age, Epic Music>
 magnet:?xt=urn:btih:BB572E4C948D53646BA995D80048E476B5E7A913
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +277,8 @@ Kitaro - Toyo's Camera (2009) [FLAC|Lossless|tracks + .cue] <Score, New Age>
 ```bash
 magnet:?xt=urn:btih:523B88FD73EB8E988AFE0B878D9D8818D050C599
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +307,8 @@ Wychazel - The Temple of Hathor (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 magnet:?xt=urn:btih:D105DD6AF02AC95796DE260F103CC6366D0583A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +335,8 @@ Wychazel - A Brighter Dawn (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ```bash
 magnet:?xt=urn:btih:457F339230B8E500DCDDB5189BA16F3DA453ADB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +371,8 @@ magnet:?xt=urn:btih:457F339230B8E500DCDDB5189BA16F3DA453ADB6
 magnet:?xt=urn:btih:9152263682CE0643A04018D3CCE95CEF3818E84B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +399,8 @@ CD 04 - Non Stop Dancing 1968 - 01:11:17(   Читать дальше...   )Жа
 ```bash
 magnet:?xt=urn:btih:C14E263208539F9CAE1C8C7115C5C5A52EB8B1B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +435,8 @@ magnet:?xt=urn:btih:C14E263208539F9CAE1C8C7115C5C5A52EB8B1B8
 magnet:?xt=urn:btih:0604024F0C7CC778A5785D21D684A4A56B4FA5B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +469,8 @@ magnet:?xt=urn:btih:0604024F0C7CC778A5785D21D684A4A56B4FA5B5
 ```bash
 magnet:?xt=urn:btih:FD030CA6D07E67C51D4FF420EEEE4DB857027B52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +505,8 @@ magnet:?xt=urn:btih:FD030CA6D07E67C51D4FF420EEEE4DB857027B52
 magnet:?xt=urn:btih:30C68D2F2AB15B2CC96019BEC4F628AF2DAF0D30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +539,8 @@ magnet:?xt=urn:btih:30C68D2F2AB15B2CC96019BEC4F628AF2DAF0D30
 ```bash
 magnet:?xt=urn:btih:FCD1DE88CF89DDE0D980953C6EF786D4C32891C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +575,8 @@ Terry Oldfield (Ft. Mike Oldfield) - Journey Into Space (2012) [FLAC|Lossless]<N
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +604,8 @@ VA - The Orient Collective - Ruh Al-Sahra (2023) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:8CC0EE13583F8B95524739AC73C5AF405FB7C6A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +629,8 @@ magnet:?xt=urn:btih:8CC0EE13583F8B95524739AC73C5AF405FB7C6A6
 ```bash
 magnet:?xt=urn:btih:9D52A62A0980E165F1CA75D955D5A2095221FBAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +665,8 @@ magnet:?xt=urn:btih:9D52A62A0980E165F1CA75D955D5A2095221FBAE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +693,8 @@ James Last - дискография (1966-2011) [AAC, 320kbps] <Instrumental>
 ```bash
 magnet:?xt=urn:btih:79BBAE1480D11A41C04CF9DCDCB42E6736B68081
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -679,6 +723,8 @@ Tantric Massage, Erotic Massage Music Ensemble - First Sexual Experience - New A
 magnet:?xt=urn:btih:7B5B014620C3D02477D356E96F72988179C758DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -705,6 +751,8 @@ Helen Jane Long - 3 albums (2007-2012) [MP3|320 kbps]<Instrumental, Solo Piano, 
 ```bash
 magnet:?xt=urn:btih:4AB50C20AB554DC32B23F80B621673481C1D8F12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -739,6 +787,8 @@ VA - Shower Songs (2012) [FLAC|Lossless]<Classical Songs>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -771,6 +821,8 @@ Noel Quinlan - 7 albums (1991-2004) [MP3|320 кб/с]<New Age, World, Instrument
 ```bash
 magnet:?xt=urn:btih:E23401DB621165DD9C05E42106C3812B14CBDF5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

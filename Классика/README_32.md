@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:79FF684696C6D9AD254FBBAFE9DF7F3765FC08A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ VA - (Hermann Max, Sir Neville Marriner) - J.S. Bach - Magnificat, A. Vivaldi - 
 ```bash
 magnet:?xt=urn:btih:7AF230557641E155C1C120597BD94E58ADA36ABA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ VA - 100 Piano Masterworks (2017) [MP3|320 Kbps] <Classical, Piano>
 magnet:?xt=urn:btih:2298694C836AEB3A537CEE52E0181D2119572672
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:2298694C836AEB3A537CEE52E0181D2119572672
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ VA - Piano Cloud Series - Volume Three (2017) [FLAC|Lossless|WEB-DL|tracks] <Mod
 magnet:?xt=urn:btih:6C0D3B38DA0E4C99E359EC68E7425E15F698B468
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ The New London Chorale - The Classic Christmas Collection (1998) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:D184D4673B5D3F88EE01323935D656A1281A890F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ VA - Angelica (1997) Compilation [FLAC|Lossless|image + .cue] <Rock, Crossover C
 magnet:?xt=urn:btih:B27C176A1C2C442C7A47A348E28ED8A385839E6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ New London Chorale - Young Christmas (2001) Reissue [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:0FE1A0D8E305A7E7C7C04B8372231FE3FD43B6BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -230,6 +246,8 @@ Grieg - Peer Gynt(Sir Neville Marriner & Academy of St. Martin In The Fields Orc
 magnet:?xt=urn:btih:79F7979713662D693A9C04157FC2FA8F803AC706
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +274,8 @@ Berdien Stenberg - Pirouette (1987) [FLAC|Lossless|tracks + .cue] <Classical-cro
 ```bash
 magnet:?xt=urn:btih:29948F4C1D98696B4EE36296ACAC39641A31B0BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +304,8 @@ Le nozze di Figaro, opera, K. 492
 magnet:?xt=urn:btih:BA5D385AF5384FD3AC291143AF0BE5FB3026D3C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +332,8 @@ Lise Davidsen, Leif Ove Andsnes, Edvard Grieg - Edvard Grieg (2022) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:76CA5B30A29537A57437A6DED50AF248701362F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +362,8 @@ The New London Chorale - Young Forever 15 Jaar Successen (1996) Compilation [FLA
 magnet:?xt=urn:btih:67DF8480D7F13F61A22B444F3723A555321F0A7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +390,8 @@ The New London Chorale - The Christmas Album (1989) Reissue [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:3311B14C303711B765CD5D199A09256C11A5D9C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +420,8 @@ Royal Philharmonic Orchestra - Symphonic Queen: The Greatest Hits (2016) [FLAC|L
 magnet:?xt=urn:btih:ED6E89EE892318AD810B93558DE0490871D96A6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +449,8 @@ Staatskapelle Berlin - Brahms: Symphonies (2018) [MP3|320 Kbps] <Classical>
 magnet:?xt=urn:btih:CABCF4D74D968772FC8589165043468488C8149A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +477,8 @@ The New London Chorale - The Young Verdi (1988) [FLAC|Lossless|image + .cue] <С
 ```bash
 magnet:?xt=urn:btih:55BBD8B78F21A1C75592143588860E104BF26B14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +513,8 @@ Alirio Diaz - Four centuries of the Spanish Guitar 2CD (1992) [FLAC|Lossless]<Cl
 magnet:?xt=urn:btih:7AFAEBA24AEA8B9EF61AAFC46F64A4CDF9831DDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +541,8 @@ Katherine Jenkins - Home Sweet Home (2014) [MP3|320 кб/с] <Classical Crossove
 ```bash
 magnet:?xt=urn:btih:7472867F3A9E28540ED5AEB13086AEE7EB36D7D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +577,8 @@ Hexperos - 2 albums (2007-2010) [FLAC/APE|Lossless] <Neoclassical, Ethereal, Med
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +605,8 @@ Hexperos - 2 albums (2007-2010) [FLAC/APE|Lossless] <Neoclassical, Ethereal, Med
 ```bash
 magnet:?xt=urn:btih:10120882287327E0CC45958226D7A7E5AB4680B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +635,8 @@ The New London Chorale - The Young Wolfgang Amadeus Mozart (1986) [FLAC|Lossless
 magnet:?xt=urn:btih:D2C237E9091DF8CE8AAD0222EBC20DF9AC42EA42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +663,8 @@ Annie Lennox - Lepidoptera (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Modern Class
 ```bash
 magnet:?xt=urn:btih:AFE90518BA2736E75FDAF412152BD12C44E1EFB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -647,6 +693,8 @@ The New London Chorale - It's For You (1999) CD Single [FLAC|Lossless|image + .c
 magnet:?xt=urn:btih:B4EF4490EB577C010C21FADCCFBDB9CDCB61BD0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -674,6 +722,8 @@ The New London Chorale - The Young Tchaikovsky (1993) [FLAC|Lossless|image + .cu
 magnet:?xt=urn:btih:5650DD687FF72BB21A46672B5C3B97E9B3E24CF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -699,6 +749,8 @@ Rondo Di Milano - Pop Opera (1998) [FLAC|Lossless|image + .cue] <Pop, Classical 
 ```bash
 magnet:?xt=urn:btih:987524CFDDB7AD0092519B660C61F3E83242EF67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

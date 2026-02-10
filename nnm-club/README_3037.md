@@ -28,6 +28,8 @@ Roy Roberts - Deeper Shade Of Blue (1999) [FLAC|Lossless]<Modern Electric Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ Roy Roberts - Deeper Shade Of Blue (1999) [FLAC|Lossless]<Modern Electric Blues>
 ```bash
 magnet:?xt=urn:btih:396958A8241203D1E3AAFB7E41F0E6378DBB1EA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -85,6 +89,8 @@ Bruce Springsteen - Wrecking Ball (Special Edition) (2012) [MP3|~245 кб/с (V0
 magnet:?xt=urn:btih:9C2126FDAAF22426B15653C62D71042919504A6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +124,8 @@ Gal Costa - Gal Costa (1969) [FLAC|Lossless]<Jazz, Folk>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +149,8 @@ Gal Costa - Gal Costa (1969) [FLAC|Lossless]<Jazz, Folk>
 ```bash
 magnet:?xt=urn:btih:D296F33128F371843759D6DF084188D8EE30B874
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +185,8 @@ VA - Smooth Jazz Fever (2002) [FLAC|Lossless]<Smooth Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +212,8 @@ VA - Smooth Jazz Fever (2002) [FLAC|Lossless]<Smooth Jazz>
 magnet:?xt=urn:btih:007D2F856557D8CBF7ABAD97B2B5A920538D6DA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +238,8 @@ magnet:?xt=urn:btih:007D2F856557D8CBF7ABAD97B2B5A920538D6DA5
 magnet:?xt=urn:btih:7C2F41BDD1E85D504CD282AE2D90D54A478AD17B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +263,8 @@ magnet:?xt=urn:btih:7C2F41BDD1E85D504CD282AE2D90D54A478AD17B
 ```bash
 magnet:?xt=urn:btih:CFB1F86744CA3C7D08793C820C31DC6DAD51EBAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -280,6 +298,8 @@ Spawn Of Possession - Incurso (2012) [FLAC|Lossless]<Technical Death Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +325,8 @@ Spawn Of Possession - Incurso (2012) [FLAC|Lossless]<Technical Death Metal>
 magnet:?xt=urn:btih:9294822F6EB49E8AE08F0BCBAC7C19630CB158C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +350,8 @@ magnet:?xt=urn:btih:9294822F6EB49E8AE08F0BCBAC7C19630CB158C9
 ```bash
 magnet:?xt=urn:btih:F3DA6BDFB6B77BEB00FE232ACAE14367018D1122
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +386,8 @@ magnet:?xt=urn:btih:F3DA6BDFB6B77BEB00FE232ACAE14367018D1122
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +421,8 @@ Roxy Music - The Best Of (2003) [FLAC|Lossless]<Rock, Glamour Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +447,8 @@ Kubuntu 12.04 LTS "Precise Pangolin" Beta 1 [i386 + x86_64] (2xCD)
 magnet:?xt=urn:btih:488C4B448A74B055BF0E118CC1263D1BCF8F4E06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +472,8 @@ magnet:?xt=urn:btih:488C4B448A74B055BF0E118CC1263D1BCF8F4E06
 ```bash
 magnet:?xt=urn:btih:4D30018C6FA2C6F6C62E3DE8DF440BAE9A186635
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +508,8 @@ Kaiser Chiefs - Start The Revolution Without Me (2012) [MP3|~245 кб/с (V0)]<I
 magnet:?xt=urn:btih:E6B982893C073C65FFB59F83CC91B212435BF29C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +535,8 @@ magnet:?xt=urn:btih:E6B982893C073C65FFB59F83CC91B212435BF29C
 magnet:?xt=urn:btih:34E3571061372F7E6ACD238D36FAE09D32E7247C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +560,8 @@ magnet:?xt=urn:btih:34E3571061372F7E6ACD238D36FAE09D32E7247C
 ```bash
 magnet:?xt=urn:btih:68E38813168A267D520B2FB5E0D6CA30EAA0AA16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +587,8 @@ magnet:?xt=urn:btih:68E38813168A267D520B2FB5E0D6CA30EAA0AA16
 magnet:?xt=urn:btih:AE8B3AA855AC665F4548F48A0269B9BBAC7EDA54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +612,8 @@ magnet:?xt=urn:btih:AE8B3AA855AC665F4548F48A0269B9BBAC7EDA54
 ```bash
 magnet:?xt=urn:btih:9AF9B53793F1F23B192A6C44E0E48ED2F837DB84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +648,8 @@ Double B - Мы Любим Власть (2012) [MP3|320 кб/с]<Rap>
 magnet:?xt=urn:btih:44C1FDC2AC4D6D7CDBAAC97015BE1DE352D81A84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +682,8 @@ VA - The Technosopher's Stone [WEB] (2011) [FLAC|Lossless]<Psychedelic>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -672,6 +718,8 @@ Yori Swart - Yori Swart (2012) [MP3|320 кб/с]<Pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -705,6 +753,8 @@ Earl Carter - My Paradise (2007) [FLAC|Lossless]<Smooth Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -737,6 +787,8 @@ VA - Timegate 2012 (2011) [MP3|~254 кб/с (V0)]<Psy-Progressive>
 ```bash
 magnet:?xt=urn:btih:B36F2E25555F2211C4E4EBBE667B76E1B5920A36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

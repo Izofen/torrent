@@ -19,6 +19,8 @@ Windows 10 Enterprise LTSC 2021 основана на Windows 10 Pro верси�
 magnet:?xt=urn:btih:6D4033AE458858FA422FCED1C82D53FADBEA7AA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Microsoft Windows 10.0.19044.1288, Version 21H2 - Оригинальные об�
 ```bash
 magnet:?xt=urn:btih:3EDB1B13111C6589D08C7CE24BDB9670F753BDA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Microsoft Windows 10.0.19041.208 Version 2004 - Оригинальные обр�
 magnet:?xt=urn:btih:0F49E6840F7C774E26C0102B60AA79FDC98E83A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:0F49E6840F7C774E26C0102B60AA79FDC98E83A2
 ```bash
 magnet:?xt=urn:btih:7682D32143702CF5E4D71EC825E8CD245B136286
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Microsoft Windows 10.0.19041.208 Version 2004 - Оригинальные обр�
 magnet:?xt=urn:btih:80A3E2EA946720222CEF94046513E96085C9E441
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Microsoft Windows 11 [10.0.22000.258], Version 21H2 (Updated October 2021) - О�
 ```bash
 magnet:?xt=urn:btih:5C2C8704AA282D23EAD3B5583DFE0BA387FFEF8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Microsoft Windows 10.0.19043.1288, Version 21H1 (Updated October 2021) - Ори�
 magnet:?xt=urn:btih:2D567D40EB579C8C6E8F608CEE899D228708F44D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Microsoft Windows 10.0.19043.1288, Version 21H1 (Updated October 2021) - Ори�
 ```bash
 magnet:?xt=urn:btih:02C1FB844EE97091A9CF9C0AB6B66AC929C6DA94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Microsoft Windows 10.0.19042.1288, Version 20H2 (Updated October 2021) - Ори�
 magnet:?xt=urn:btih:F4A9E42DAF4751ECCA98D4D1B60586D245C6B147
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Microsoft Windows 11 [10.0.22000.258], Version 21H2 (Updated October 2021) - О�
 ```bash
 magnet:?xt=urn:btih:5835DE13A01BE5D23413FA6764DDD72F53CB8ECF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ Microsoft Windows 10.0.19042.1288, Version 20H2 (Updated October 2021) - Ори�
 magnet:?xt=urn:btih:9668C76AB19F18EB3125BDA356EF7EB57A71BE01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ Microsoft Windows 10.0.19041.1288, Version 2004 (Updated October 2021) - Ори�
 ```bash
 magnet:?xt=urn:btih:3AF571EC6025910C5958993F0A0C86C144F4AAB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ Microsoft Windows 10.0.19041.1288, Version 2004 (Updated October 2021) - Ори�
 magnet:?xt=urn:btih:ACC35437942A49B58C71D3D0264FB9B36759598B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ Windows 7 с интегрированным пакетом обновления 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ Microsoft Windows 11 [10.0.22000.194] - Оригинальные образы о
 magnet:?xt=urn:btih:63DD5E5BF8A4802F8224A25DAC4C08B14414DEE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ Windows 8.1 (ранее известная как «Windows Blue») являет
 ```bash
 magnet:?xt=urn:btih:5356D672026189DCAEEDB18B1ECB1DF2EF4738DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ Windows 8.1 with Bing OEM (x86 x64) 6.3.9600 [En]
 magnet:?xt=urn:btih:83FBEDA79D6143E099463D1CE774BB326A8FA401
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ Windows 11 IoT Enterprise - это полная версия Windows 11, кот�
 ```bash
 magnet:?xt=urn:btih:432A5D312F3C960FA6016CB275A3C7433FD9EBD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ Microsoft Windows 11 [10.0.22000.194] - Оригинальные образы о
 magnet:?xt=urn:btih:4486AACD85D222740875F7A1031017BE7C0EE5BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ Microsoft Windows 10.0.19043.1237, Version 21H1 (Updated September 2021) - Ор�
 magnet:?xt=urn:btih:1D0468724FFBEE764520D44DE4A787B929105102
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ Windows 7 с интегрированным пакетом обновления 
 ```bash
 magnet:?xt=urn:btih:870DF4BF35A4210F259306BA18690685E4441EDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ Microsoft Windows 10.0.19043.1237, Version 21H1 (Updated September 2021) - Ор�
 magnet:?xt=urn:btih:9C874B86F73F4A0078C916F04D5EFC6A7C9EFBB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ Microsoft Windows 10.0.19042.1237, Version 20H2 (Updated September 2021) - Ор�
 ```bash
 magnet:?xt=urn:btih:60F097AE47259349E254986534E4BF7148002FC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +635,8 @@ Microsoft Windows 10.0.19041.1237, Version 2004 (Updated September 2021) - Ор�
 magnet:?xt=urn:btih:E0BFE3A177780F99F90EFF5E0F08B04E4632B6E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ Microsoft Windows 10.0.19042.1237, Version 20H2 (Updated September 2021) - Ор�
 magnet:?xt=urn:btih:642F559CAB2613F780FFAA661686DD9B3F2704B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ Microsoft Windows 10.0.19041.1237, Version 2004 (Updated September 2021) - Ор�
 ```bash
 magnet:?xt=urn:btih:2730915A193A4A66889679DB0912B585A01C733E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

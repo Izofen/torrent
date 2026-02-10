@@ -19,6 +19,8 @@ The Cave - стильный платформер, разработан Double Fi
 magnet:?xt=urn:btih:A41A7B87E70F3E9007F2C36650AFD025617B7DA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Fall of Porcupine (2023) [Multi] (1.1.12) License GOG
 ```bash
 magnet:?xt=urn:btih:935156280F2A072D214D3BDA311736CE2D64A33C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Battle Axe (2021) [Multi] (1.0.4) License GOG
 magnet:?xt=urn:btih:BFBD227FF293D734E48AA7665FC40FD0E083C095
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Guilty Gear -Strive- (2021) [Multi] (1.27/dlc) Scene SKiDROW
 ```bash
 magnet:?xt=urn:btih:E3C81D7F401B1EC03D3478FF21FDB3A8B06982FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Voodolls (2023) [Multi] (1.0.4) License GOG
 magnet:?xt=urn:btih:4E7407253CCC89E8BBC7D12A1F6BE212600C664F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Fireball Wizard - это приключения в Колдунии, волше�
 ```bash
 magnet:?xt=urn:btih:5BFCD6491EECAD4D5385ABD7CC719DB0F1493E16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ JYDGE (2017) [Ru/Multi] (1.2.1.4) License GOG
 magnet:?xt=urn:btih:EFE09F7AA01B3B386FE540C17676D9E2C767292E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Tesla vs Lovecraft (2018) [Ru/Multi] (1.0.7/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:C88295A086D94E99268C17A05580B81983827370
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ SpongeBob SquarePants: Battle for Bikini Bottom - Rehydrated (2020) [Ru/Multi] (
 magnet:?xt=urn:btih:AD2D4A5126D3014A3E5A67CAADA62AF4A5E5E3E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ SpongeBob SquarePants: The Cosmic Shake (2023) [Ru/Multi] (1.0.3.0) Repack dixen
 ```bash
 magnet:?xt=urn:btih:F4C0D0278BC1B630B714CD39685EA12D9F246229
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Chronicles of Galdurvale (2023) [Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:993948CEC6A16F7F6D61BCD4A23DBC4CAE83AB14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Contra Anniversary Collection (2019) [En] (1.1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:562C3A009E876CF8655B345D57EA321325B9E94F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Project Lazarus (2023) [Ru/Multi] (7.0) Scene DARKSIDERS
 magnet:?xt=urn:btih:A4248A534DE3DB94FF80AB23F887DD4B6308C504
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ We Love Katamari REROLL+ Royal Reverie - это обновленная верс�
 ```bash
 magnet:?xt=urn:btih:BD1FC9C434A3CC312B2EA914E77742D0C58A2CE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Batora: Lost Haven - это приключенческий ролевой экш
 magnet:?xt=urn:btih:F55FB6C714E340D4B24AD84B06BA9AA14606C2D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Kao the Kangaroo / Кенгуренок Као (2022) [Ru/Multi] (1.6.0/dlc) Lic
 ```bash
 magnet:?xt=urn:btih:5DA0056834857C73B18BEF057317BF8DC230F4F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Unalive 010 (2023) [Ru/Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:56907FF5833980D6BB1E1AFD64D1625A62074E46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Solomon Snow: First Contact - это научно-фантастический �
 ```bash
 magnet:?xt=urn:btih:36514BD3CB0792D7D60330C21F84B6F4C6E2FFDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Boom Blaster – двухмерный шутер с боковой прокру�
 magnet:?xt=urn:btih:E56661AFA1A5BE7F79B2A962E73F95514B7CA30B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Godstrike - топ-даун аркада, направленная на напр
 ```bash
 magnet:?xt=urn:btih:6C23024741DA3A121C05E8E5DAF7636B54A3AB33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Life of Delta - приключенческий поинт-н-клик, отпр�
 magnet:?xt=urn:btih:D9A57A03326AFCBCB37E5F5C5961766E10F5FBA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ LEGO Pirates of the Caribbean: The Video Game - это аркада от тре�
 ```bash
 magnet:?xt=urn:btih:E9B4509929576C3FFD9857D20FD28203A7AC0FD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Super Trunko Go - это сложный шутер с видом сверху, �
 magnet:?xt=urn:btih:A7940D7E6DAA49B68401DE27612119DA30195F23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Cult of the Lamb (2022) [Ru/Multi] (1.1.5.208/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:9651C20461CBF12453CFEB975702C25DC65A5E82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Funtasia погружает игрока в автомобильные поез�
 magnet:?xt=urn:btih:D9E1E5D7FB2099C9312C3EF91D57AC4295D8C8D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ RC Cars от Creat Studio - это гонки на радиоуправляем�
 ```bash
 magnet:?xt=urn:btih:AE54E91E272CF2C4F4B102423D012089F8B18B22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -28,6 +28,8 @@ Estrella - Come Out To Play (2012) [MP3|256 кб/с]<Hard Rock>
 magnet:?xt=urn:btih:7F6FBA213F57B7C875C9486B5315553DC8090FA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -53,6 +55,8 @@ magnet:?xt=urn:btih:7F6FBA213F57B7C875C9486B5315553DC8090FA6
 ```bash
 magnet:?xt=urn:btih:E1972DB99075E337C0E62B78669522041571EFC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -80,6 +84,8 @@ magnet:?xt=urn:btih:E1972DB99075E337C0E62B78669522041571EFC9
 ```bash
 magnet:?xt=urn:btih:3C94BB3D5963242DE1959158A9331F51ED7819E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -114,6 +120,8 @@ magnet:?xt=urn:btih:3C94BB3D5963242DE1959158A9331F51ED7819E5
 magnet:?xt=urn:btih:AF563057CF57F44C908F5E1F0E6E2666DCBB477F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +146,8 @@ magnet:?xt=urn:btih:AF563057CF57F44C908F5E1F0E6E2666DCBB477F
 magnet:?xt=urn:btih:A70042FF59CE12CE88834138B253436300DDE806
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -161,6 +171,8 @@ Bluestone ft Adi ft Skibadee - Bass Addict (2011) [H.264/720р] WEBRip
 ```bash
 magnet:?xt=urn:btih:30B0BE4370B918E9231AE07247C473940200020C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +207,8 @@ VA - Music my life (2011-2012) [MP3|320 кб/с]<Electro house, dubstep>
 magnet:?xt=urn:btih:0712CD467FC8AD5121DDB2D54CB755F93640DD6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +242,8 @@ VA - Celtic Spirit (2001) [MP3|320 кб/с]<New Age, Celtic Music, Ambient, Loun
 magnet:?xt=urn:btih:C10A0A42E50312BEB246EFFFA80775FEA5DBFC3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +268,8 @@ magnet:?xt=urn:btih:C10A0A42E50312BEB246EFFFA80775FEA5DBFC3A
 ```bash
 magnet:?xt=urn:btih:CD69156AFD94156B13CB6DB7BAD4886834C161D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +304,8 @@ Radio Moscow - 3 & 3 Quarters 2003 part 1 (2012) [MP3|320 кб/с]<blues rock, p
 magnet:?xt=urn:btih:1B26151D8D3D73E98466CB0A7A9AE8737D0DCF0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +330,8 @@ Vida Loca - La Chupadita (2012) [H.264/1080р] WEBRip
 magnet:?xt=urn:btih:31A163C70FE9A853F64705D6EBACAE04A5F4EC54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +355,8 @@ magnet:?xt=urn:btih:31A163C70FE9A853F64705D6EBACAE04A5F4EC54
 ```bash
 magnet:?xt=urn:btih:C2406C5CEC3740150C0BC39A12EFE10490417A5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +389,8 @@ Loud Sound - The Colored Stars Show LP (2012) [MP3|320 кб/с]<Drum & Bass, Har
 magnet:?xt=urn:btih:54A08678F6C1C7340D9ECE7939CB11FD36703AFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +415,8 @@ magnet:?xt=urn:btih:54A08678F6C1C7340D9ECE7939CB11FD36703AFA
 magnet:?xt=urn:btih:3C52E1841F7EFF97037C6292A9691E5A24FFF49D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +440,8 @@ magnet:?xt=urn:btih:3C52E1841F7EFF97037C6292A9691E5A24FFF49D
 ```bash
 magnet:?xt=urn:btih:751BF11E08C2AE9B98C3B36E16DD244A742ADFC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +476,8 @@ Armin Van Buuren - A State Of Trance 562 SBD (2012) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:9E3330DB873A4F786D4D891216E963E4EF9F1518
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +503,8 @@ magnet:?xt=urn:btih:9E3330DB873A4F786D4D891216E963E4EF9F1518
 magnet:?xt=urn:btih:40A89EBB072D190ACA8F673ECE669CCB4867D355
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +528,8 @@ magnet:?xt=urn:btih:40A89EBB072D190ACA8F673ECE669CCB4867D355
 ```bash
 magnet:?xt=urn:btih:98E87AB9D436394BB6BF4E72461F604A5D8D386C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +564,8 @@ Blind Guardian - Imaginations From The Other Side (Japanese Edition) (1995) [MP3
 magnet:?xt=urn:btih:D7DFE8661F44E3F2783476388F70FFD38E30CCC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +592,8 @@ magnet:?xt=urn:btih:D7DFE8661F44E3F2783476388F70FFD38E30CCC0
 magnet:?xt=urn:btih:088AEBB0DEA830352B9BAF7C7234DFF3A731DDD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +617,8 @@ Pokemon Fractals 000-493 + 4 Extra (2012)
 ```bash
 magnet:?xt=urn:btih:82EB975D9D9164E6A4C0D8332A39D6FC5F381A1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +644,8 @@ NG. Ангкор-Ват. Жемчужина Древней Азии / Glories Of
 magnet:?xt=urn:btih:A5D1129B9C98DDCEE8300332BF68C32DFE8FFC71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +669,8 @@ magnet:?xt=urn:btih:A5D1129B9C98DDCEE8300332BF68C32DFE8FFC71
 ```bash
 magnet:?xt=urn:btih:FDA5466A594A219BC503C877D4978BAC3D1302CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +696,8 @@ magnet:?xt=urn:btih:FDA5466A594A219BC503C877D4978BAC3D1302CF
 magnet:?xt=urn:btih:8D40B18AF88948D8431F94752B55F7449BA6848B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -673,6 +721,8 @@ magnet:?xt=urn:btih:8D40B18AF88948D8431F94752B55F7449BA6848B
 ```bash
 magnet:?xt=urn:btih:9C204E0BF36971F0B2E612809D72E9FD52B7185A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -698,6 +748,8 @@ magnet:?xt=urn:btih:9C204E0BF36971F0B2E612809D72E9FD52B7185A
 ```bash
 magnet:?xt=urn:btih:3A93EBD30A9C31DA2EE87E482E49757E7BB9E9F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

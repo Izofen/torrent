@@ -1,3 +1,29 @@
+###  Публикация: 948868   (409032) от 21.10.2015
+
+Брайан Трейси | Убеждение. Уверенное выступление в любой ситуации (2016) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Умение выступать уверенно и проводить убедительные презентации помогает быстрее развивать карьеру, завоевывать уважение и добиваться своих целей. Многие люди не осознают, что стать великолепным оратором может каждый – это такой же развиваемый навык, как вождение автомобиля или езда на велосипеде. Брайан Трейси провел очень серьезный анализ и подробно рассказал в (   Читать дальше...   )Жанр: Практическая психология, достижение успехаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFC6FE6F2D7257B13B23D0FBD549301F0AC2E52B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948915   (409043) от 21.10.2015
 
 Константин Бакшт | Построение отдела продаж. Ultimate Edition (2015) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:BB111D0D807B1DC5C4752E28493575884F6D1FC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:BB111D0D807B1DC5C4752E28493575884F6D1FC8
 ```bash
 magnet:?xt=urn:btih:1E5C7D6E8A6BE832B4C299E33373751748D6EB56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:1E5C7D6E8A6BE832B4C299E33373751748D6EB56
 magnet:?xt=urn:btih:A3034EFDA34A55D79092F98F5E0E373CFCDD0BA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:A3034EFDA34A55D79092F98F5E0E373CFCDD0BA2
 magnet:?xt=urn:btih:FB5821D7D9DF4A7BBEA97C6716E98136725F47B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:FB5821D7D9DF4A7BBEA97C6716E98136725F47B4
 ```bash
 magnet:?xt=urn:btih:92499805241392D6A61C8B52E670F6F09D80684E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:92499805241392D6A61C8B52E670F6F09D80684E
 magnet:?xt=urn:btih:8A93F77629104C32B37690239AD3AE1E27EF86D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:8A93F77629104C32B37690239AD3AE1E27EF86D8
 ```bash
 magnet:?xt=urn:btih:20F66CFAC5EF87C87DE0574F0A22AEC85739224C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:20F66CFAC5EF87C87DE0574F0A22AEC85739224C
 magnet:?xt=urn:btih:AC938A66AD7701B96950022443CB87344A596E5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +259,8 @@ magnet:?xt=urn:btih:AC938A66AD7701B96950022443CB87344A596E5C
 ```bash
 magnet:?xt=urn:btih:3DE522C675CC6F8C1197688C0FFCBB26179B3B32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +288,8 @@ magnet:?xt=urn:btih:3DE522C675CC6F8C1197688C0FFCBB26179B3B32
 magnet:?xt=urn:btih:A8DFDBC03BAFC7944659360715B25EB3EAAA96C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +314,8 @@ magnet:?xt=urn:btih:A8DFDBC03BAFC7944659360715B25EB3EAAA96C4
 magnet:?xt=urn:btih:FFF5795EF4ED0CF24AD3CBB01689810CAF1F53CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +339,8 @@ magnet:?xt=urn:btih:FFF5795EF4ED0CF24AD3CBB01689810CAF1F53CF
 ```bash
 magnet:?xt=urn:btih:48AEBBD059A631FF07FA35F27C4E926690AC872C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +368,8 @@ magnet:?xt=urn:btih:48AEBBD059A631FF07FA35F27C4E926690AC872C
 magnet:?xt=urn:btih:3AADA7D2B35E568D6648236A2E0A0277E59721DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +396,8 @@ magnet:?xt=urn:btih:3AADA7D2B35E568D6648236A2E0A0277E59721DC
 magnet:?xt=urn:btih:340A0C9978FC44ADBFC2D6925045E7303798FAD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +421,8 @@ magnet:?xt=urn:btih:340A0C9978FC44ADBFC2D6925045E7303798FAD3
 ```bash
 magnet:?xt=urn:btih:DD125C52537D59C649BDCD018F08E88DCF5A9524
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +448,8 @@ magnet:?xt=urn:btih:DD125C52537D59C649BDCD018F08E88DCF5A9524
 magnet:?xt=urn:btih:45214B91773D0224B41479BF0CA93D5D1BFDEF99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +473,8 @@ magnet:?xt=urn:btih:45214B91773D0224B41479BF0CA93D5D1BFDEF99
 ```bash
 magnet:?xt=urn:btih:549C544F61A849CC1168E6B72A41A4E8BA37EDBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +502,8 @@ magnet:?xt=urn:btih:549C544F61A849CC1168E6B72A41A4E8BA37EDBA
 magnet:?xt=urn:btih:CC227DF07DE62C690A57FCB24ED4B9C0383B0B96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +530,8 @@ magnet:?xt=urn:btih:CC227DF07DE62C690A57FCB24ED4B9C0383B0B96
 magnet:?xt=urn:btih:39FAFD005C71E18B5E3BD659F0B90E40291EE684
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +556,8 @@ magnet:?xt=urn:btih:39FAFD005C71E18B5E3BD659F0B90E40291EE684
 magnet:?xt=urn:btih:8E26F30BADD995559F5BA0945897674984524914
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +581,8 @@ magnet:?xt=urn:btih:8E26F30BADD995559F5BA0945897674984524914
 ```bash
 magnet:?xt=urn:btih:2D24F6DD4F84B7631DEA454C1AF7669B0F49C2E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +609,8 @@ magnet:?xt=urn:btih:2D24F6DD4F84B7631DEA454C1AF7669B0F49C2E2
 magnet:?xt=urn:btih:9F2DEFC8169C3D33DD247CFF44843E063A5BF775
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +635,8 @@ magnet:?xt=urn:btih:9F2DEFC8169C3D33DD247CFF44843E063A5BF775
 magnet:?xt=urn:btih:6C4A5E9EFFCD710B5B69264E4CBBE3051AB64D9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +660,8 @@ magnet:?xt=urn:btih:6C4A5E9EFFCD710B5B69264E4CBBE3051AB64D9D
 ```bash
 magnet:?xt=urn:btih:3898981CC5CE078313FD1A1605E94DB1A34C0DB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,30 +688,7 @@ magnet:?xt=urn:btih:3898981CC5CE078313FD1A1605E94DB1A34C0DB9
 magnet:?xt=urn:btih:888C035B55E957B5E8F3B6FD90A34C04FF0C8E34
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948443   (410807) от 20.10.2015
-
-Вадим Пономаренко | Строим дом из кирпича и блоков (2015) [PDF]
-
->>Разное (категория книг)
->>Строительство и ремонт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное издание раскрывает вопросы технологии строительства дома из кирпича и бетонных блоков, в том числе затрагиваются разработка проекта, закладка фундамента, возведение стен, кровельные работы, установка дверей и окон, прокладка инженерных коммуникаций и внутренняя отделка помещений.
-С помощью этой книги вы можете спроектировать и возвести дом в соответствии с (   Читать дальше...   )Жанр: Строительство, ремонтФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D67C50E2C8350A684A2D9933A598C66C48FF47F4
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

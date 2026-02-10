@@ -1,3 +1,29 @@
+###  Публикация: 1030237   (674149) от 30.06.2016
+
+Дорога (1955) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674149.jpg" />
+</div>
+
+
+###  Подробнее
+
+На одной из автостанций горной дороги Дальнего Востока из-за снегопадов застряли десятки машин с пассажирами и срочным грузом. Под вечер на станцию прибывают еще два пассажира - капитан госбезопасности и "иностранный турист". Утром, несмотря на пургу, автоколонна направляется на штурм перевала. Никто не подозревает, что капитан сопровождает диверсанта, (   Читать дальше...   )Производство: СССР / МосфильмЖанр: Боевик, ПриключенияРежиссер: Александр СтолперАктеры: Андрей Попов, Виталий Доронин, Николай Гриценко, Тамара Логинова, Лев Свердлин, Виктор Авдюшко, Евгений Матвеев, Евгений Леонов, Григорий Михайлов, Владимир Кенигсон, Тахир Сабиров, Павел Винников, Николай Сергеев, Борис Битюков, Николай Борисенко...Продолжительность: 01:36:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DACBA10E6B06DBB8E9CFD01DDF6766A58323FED4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029962   (674295) от 30.06.2016
 
 Княжна Мери (1955) SATRip [H.264]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:AD93C8275BB95EFC0F821D2690269833FE718CF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:AD93C8275BB95EFC0F821D2690269833FE718CF0
 magnet:?xt=urn:btih:6ABA65AF2FB1603C3D7D343CD916FBF5AF826D67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:6ABA65AF2FB1603C3D7D343CD916FBF5AF826D67
 magnet:?xt=urn:btih:9025C0974FE068E2384DFB8402B422C1CBFCF2D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:9025C0974FE068E2384DFB8402B422C1CBFCF2D8
 ```bash
 magnet:?xt=urn:btih:839CC9B58D14419B938391854D4B27B41F464C04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:839CC9B58D14419B938391854D4B27B41F464C04
 magnet:?xt=urn:btih:024F3CAA951A478BECB5367356A24814F614B922
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:024F3CAA951A478BECB5367356A24814F614B922
 ```bash
 magnet:?xt=urn:btih:AEAC8CC9F7EEB01674DD5499E41E095021174BA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:AEAC8CC9F7EEB01674DD5499E41E095021174BA2
 magnet:?xt=urn:btih:EC357C3A45B380FA7BD873B32443E86C7D4A4599
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:EC357C3A45B380FA7BD873B32443E86C7D4A4599
 ```bash
 magnet:?xt=urn:btih:1F6CBB71DAEA5D9D9D32F83F49B5C92BD8F8D7D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:1F6CBB71DAEA5D9D9D32F83F49B5C92BD8F8D7D0
 magnet:?xt=urn:btih:6F4FE600886C23C5F3388175A722AA7A5B6BBD71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:6F4FE600886C23C5F3388175A722AA7A5B6BBD71
 ```bash
 magnet:?xt=urn:btih:FEE0F70B86DF3DD1A67808C0EDA121C829F5FEF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:FEE0F70B86DF3DD1A67808C0EDA121C829F5FEF5
 magnet:?xt=urn:btih:E563E194EFEE2ABBE7D79CEA72B13C06B246D722
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:E563E194EFEE2ABBE7D79CEA72B13C06B246D722
 magnet:?xt=urn:btih:A3DF43F9294C0ABC690F8B830A3B5431BDDF26AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +357,8 @@ magnet:?xt=urn:btih:A3DF43F9294C0ABC690F8B830A3B5431BDDF26AD
 ```bash
 magnet:?xt=urn:btih:E6538E4B4AF2C58AE747187EC22A4E501672AFD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:E6538E4B4AF2C58AE747187EC22A4E501672AFD5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:E6538E4B4AF2C58AE747187EC22A4E501672AFD5
 ```bash
 magnet:?xt=urn:btih:FB2F004ECFB6CF1C28E1DCF0EA2E1189056F4751
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:FB2F004ECFB6CF1C28E1DCF0EA2E1189056F4751
 magnet:?xt=urn:btih:CF6F26001E506EA50793869E396735AC4031E936
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:CF6F26001E506EA50793869E396735AC4031E936
 ```bash
 magnet:?xt=urn:btih:831C4D2BC09F0EEA320BEA65804CF689753371E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:831C4D2BC09F0EEA320BEA65804CF689753371E0
 magnet:?xt=urn:btih:CC2F6240FBF3A3F4411FAB6745A6DB13DA1D7FA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:CC2F6240FBF3A3F4411FAB6745A6DB13DA1D7FA4
 ```bash
 magnet:?xt=urn:btih:907CFD63CAD05AAE45FC69E2D2CB09A48FDF144E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:907CFD63CAD05AAE45FC69E2D2CB09A48FDF144E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:907CFD63CAD05AAE45FC69E2D2CB09A48FDF144E
 ```bash
 magnet:?xt=urn:btih:663441DBDBEF1CF27015D55320D4503CABEAC20E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +598,8 @@ magnet:?xt=urn:btih:663441DBDBEF1CF27015D55320D4503CABEAC20E
 magnet:?xt=urn:btih:C7F644D44AABB9392D1DA5BBDD005CF4CC549A1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:C7F644D44AABB9392D1DA5BBDD005CF4CC549A1F
 ```bash
 magnet:?xt=urn:btih:C6947DD8526E11E169A2D98ACD246E89A5ED8230
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:C6947DD8526E11E169A2D98ACD246E89A5ED8230
 magnet:?xt=urn:btih:2AEA22EE1CD125D9B90FA186226C3CA20148F391
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,29 +676,7 @@ magnet:?xt=urn:btih:2AEA22EE1CD125D9B90FA186226C3CA20148F391
 magnet:?xt=urn:btih:01BDB12F862303622D84BBFBD4035B35D314AF41
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221485   (689431) от 27.04.2018
-
-Там, где небо лежит на земле (1989) VHSRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дед Самсон прожил интересную жизнь — и с турками воевал, и с фашистами. А сейчас, когда воевать не с кем и дети выросли, дела себе найти не смог и потребовал преждевременный памятник себе на могиле. Так извел внука, что тот прыгнул с крыши деревенской церкви.Производство: СССР / АрменфильмЖанр: ДрамаРежиссер: Борис АйрапетянАктеры: Азат Шеренц, Армен Хостикян, Ашот Едигарян, Светлана Киракосян, Александр Оганесян, Генрих Алавердян, Элеонора ПетросянСубтитры: ОтсутствуютПродолжительность: 01:14:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B85EC0E6B2A968381EAF1038785997BEE539FEA
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

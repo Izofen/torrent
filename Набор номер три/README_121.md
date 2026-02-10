@@ -19,6 +19,8 @@ Microsoft® Windows® 11 x64 Ru 23H2 4in1 Upd 11.2023 by OVGorskiy
 magnet:?xt=urn:btih:19E41CD9A1BDC66A0691A7880B6F8829B4930E47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ CleanMyMac X 4.12.3 U2B [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4ECD53B8C1F6A97660E9737231BB18CE4A921EE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ YouTube ужесточил борьбу с блокировщиками рекл
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ YouTube ужесточил борьбу с блокировщиками рекл
 ```bash
 magnet:?xt=urn:btih:05855EDA2D7E7654578D02A1710A97B3E229766D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:05855EDA2D7E7654578D02A1710A97B3E229766D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Yuusha Party wo Tsuihou Sareta Beast Tamer, Saikyoushu no Nekomimi Shoujo to Dea
 ```bash
 magnet:?xt=urn:btih:009B0A486AF04033C5447AB65FF280D6BB0A5887
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Uzaki-chan wa Asobitai! Double | Uzaki-chan Wants to Hang Out! W | Узаки х
 magnet:?xt=urn:btih:89735D7DAB2321C24C97812095D24E9601CB1E80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Samsung на 10 % подняла цены на свою флеш-памяти 3D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Samsung на 10 % подняла цены на свою флеш-памяти 3D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Spy x Family | Семья шпиона [2022, TV, 25 эп.] WEBRip 720p raw
 magnet:?xt=urn:btih:F39007FDBF29A7762245701599225150468E69C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:F39007FDBF29A7762245701599225150468E69C1
 ```bash
 magnet:?xt=urn:btih:0A0B96B1CAADCB56013A1A0450E13B750E482D7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Akiba Maid Sensou / Akiba Maid War / Война горничных Акибы [2
 magnet:?xt=urn:btih:B7F3B8CBCFF119002D40018BA8EE4DA8C9D991BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:B7F3B8CBCFF119002D40018BA8EE4DA8C9D991BA
 magnet:?xt=urn:btih:63D983539C799CA7B6AA6BABCF15139982168CDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ The Bat! – общепризнанная система обработки эл
 ```bash
 magnet:?xt=urn:btih:CE761E07048EC621AA4B63ED374C186784460FCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ Microsoft® Windows® 10 Enterprise LTSC 2021 x86-x64 21H2 RU by OVGorskiy 12.20
 magnet:?xt=urn:btih:C71D5CD8B46331E0776D3E6EECBD25B9B619A8D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ IXION (2022) [Ru/Multi] (1.0.2.3) Repack Other s
 ```bash
 magnet:?xt=urn:btih:2C111E74F49A4E03ED6547EB0D0472F581873028
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:2C111E74F49A4E03ED6547EB0D0472F581873028
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Google представила переводчик плохого почерка
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Google представила переводчик плохого почерка
 ```bash
 magnet:?xt=urn:btih:8A7C58325B5E69A9F6B3B4B12213B961F96CAFBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ SYMPHONY No. 1 in E flat major KV 16
 magnet:?xt=urn:btih:98E23D8DEEA06FE0A60AF77D0D745600E387C525
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:98E23D8DEEA06FE0A60AF77D0D745600E387C525
 ```bash
 magnet:?xt=urn:btih:3D6013B9B70B74B072292D7BF469305C813EF4CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Need for Speed: Most Wanted - девятая игра серии аркадны�
 magnet:?xt=urn:btih:54DA70252B5F0A9F5639B5695C41F847EDB61648
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:54DA70252B5F0A9F5639B5695C41F847EDB61648
 ```bash
 magnet:?xt=urn:btih:4C4FBA0F2D6C7E547061F308E7FEA80AA9860D9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ ESET Endpoint Security — это комплексное решение для �
 magnet:?xt=urn:btih:7F4FAB004BEA3E90E41C3630879E9322CF5C180C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:7F4FAB004BEA3E90E41C3630879E9322CF5C180C
 ```bash
 magnet:?xt=urn:btih:5594B37B02829414B30B73EDA67F94DA15D10CEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:5594B37B02829414B30B73EDA67F94DA15D10CEC
 ```bash
 magnet:?xt=urn:btih:1C79D66B90428A13E34E36348EB62871C9302248
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

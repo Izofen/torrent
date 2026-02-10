@@ -19,6 +19,8 @@ Of Ash and Steel - ролевая игра от третьего лица с о�
 magnet:?xt=urn:btih:63F738A6108A132615A0C847F7F2BB170C181502
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Speed Demons 2 - аркадная гоночная игра с уникальн�
 ```bash
 magnet:?xt=urn:btih:6B63048644A88B6AC2FDA56F10598C71641554B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Total Chaos (2025) [En] (1.035) Repack Necros
 magnet:?xt=urn:btih:3AB77DC5557878EC029CFE070A9037B1B9FA4B81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Of Ash and Steel - ролевая игра от третьего лица с о�
 ```bash
 magnet:?xt=urn:btih:C8658FE6481603430FF261C2094F1D6979C8511A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Winter Survival сочетает классические игровые мех�
 magnet:?xt=urn:btih:9F70EED26DA82A22D1B2D8F111BB1375D32F077F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ A.I.L.A — хоррор от первого лица в сеттинге нед
 ```bash
 magnet:?xt=urn:btih:E9D8170F5C5040039681E66EE49DBD248C10AABD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Of Ash and Steel (2025) [Ru/Multi] (1.04) Repack Necros
 magnet:?xt=urn:btih:735C0D5D0F4C30E2E3F3C3C981985871DA6993BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ GIGASWORD (2025) [Ru/Multi] (1.0.0) Repack Other s [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:9B5459D25D84DFDC604C500A9A87ACAFDB3FACE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Laundering Simulator! Управляйте собственной прачечн
 magnet:?xt=urn:btih:714D90F4A80CF5B23FFCCF7D0C6F725334250943
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ A.I.L.A - хоррор от первого лица в сеттинге неда
 ```bash
 magnet:?xt=urn:btih:397C457C5605F656F8056F5015763C3F834F03A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ A.I.L.A - хоррор от первого лица в сеттинге неда
 magnet:?xt=urn:btih:6BAC25D0DFBBA27827882841A97AC88709209231
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Hail to the Rainbow (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:684ABFB6A39D86B07BF63C95D26DB10E81AD4BBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ The Last Case of John Morley погружает игроков в роль де�
 magnet:?xt=urn:btih:4356AFF61B7A885B2AC96D4CE52194DF083CB879
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Lost Ember: Rekindled Edition (2025) [Ru/Multi] (1.0.4.20760/dlc) Repack Let'sР
 ```bash
 magnet:?xt=urn:btih:D1F250108C8E49234A4661ECD84C0E1EF9823106
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Bittersweet Birthday - это приключенческий боевик, со�
 magnet:?xt=urn:btih:E77C0E0AE7F4581EE6FF6A6E2933F9C60F7FCD2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Kentum (2025) [Ru/Multi] (1.0.b114.cl75908) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:65356A2B46E2680AB0E882815B8076B705DA0FA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Hail to the Rainbow (2025) [Ru/Multi] (Build 20964708) Repack Necros
 magnet:?xt=urn:btih:A8E81915905E856CFF3374598280EAF92FAD12F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Construction Simulator 4 (2025) [Ru/Multi] (1.0) License GOG [Pocket Edition]
 ```bash
 magnet:?xt=urn:btih:52A88D0D8C7E455B65A05117F8BD269625C00C1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Hunter’s Moon: A Sovereign Syndicate Adventure - это карточный rog
 magnet:?xt=urn:btih:631A0680FBF3F6E5A42ED66CEACE133A351992C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ VORON: Raven's Story (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:988ECF0726D01D506EB74A3467D6149AB375EC83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Ayasa: Shadows of Silence приглашает игроков в мир, где 
 magnet:?xt=urn:btih:DBC24D7F9CD957EEC5B5E069D03FCEBF59385E45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ The Falconeer: Revolution Remaster (2025) [Ru/Multi] (2.0.0.1/dlc) Repack FitGir
 ```bash
 magnet:?xt=urn:btih:987670493E3961D56686EA3A8970BB1279F92344
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Lost Paws (2023) [Ru/Multi] (1.0.5) Repack FitGirl
 magnet:?xt=urn:btih:C163339D2617363CCD77E31CC7114E460483E40D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Brew - это экшен роглайт, где важна быстрая реа
 ```bash
 magnet:?xt=urn:btih:E69003008846F29EC51A1D081029E39DD615E07A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ The Last Case of John Morley погружает игроков в роль де�
 magnet:?xt=urn:btih:8880521861BFF1F9F7B9228808029550BEE975D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ The Outer Worlds 2 - долгожданное продолжение титул�
 ```bash
 magnet:?xt=urn:btih:1A0E9C7EBFFCB5F5A23BC56B734B9E0665A538A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

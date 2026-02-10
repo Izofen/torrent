@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:C85AF7EA9C84EF46FDEB02CBDB073729939B2D0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 ```bash
 magnet:?xt=urn:btih:425D3764B494AB14D1CED9B2612C3DB868DF5EBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ STRADIE (STRΛDIE) - Кровоточие (2022) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:1B4080C3B02C7B4F0C037116B5543F354C7FC5E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ magnet:?xt=urn:btih:1B4080C3B02C7B4F0C037116B5543F354C7FC5E8
 magnet:?xt=urn:btih:E4B36E3F1481C7B89BB0D431E8A6EB2521277511
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:E4B36E3F1481C7B89BB0D431E8A6EB2521277511
 magnet:?xt=urn:btih:7DA85FE24558CC2228F27235BDBB6E5855A7875D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:7DA85FE24558CC2228F27235BDBB6E5855A7875D
 ```bash
 magnet:?xt=urn:btih:411758C46FE144498209EC840F055D9F0B926A2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +189,8 @@ Scuzzy Yeti - 2 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, S
 magnet:?xt=urn:btih:E3A5165339069664768952ABC56246E73A885C63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:E3A5165339069664768952ABC56246E73A885C63
 ```bash
 magnet:?xt=urn:btih:784B822417439631BD623B7D70FDA8FB79BD18B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -228,6 +244,8 @@ Witchcliff - 2 Albums, 2 Singles (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Slud
 magnet:?xt=urn:btih:E3C3923FDAC665AAD59405844099334BCB864025
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ Windows Server SAC - канал Semi-Annual Channel идеально подхо�
 ```bash
 magnet:?xt=urn:btih:EDE891B42963AEA5AB1EBC4D3EFCA8C7F9BD330C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +298,8 @@ magnet:?xt=urn:btih:EDE891B42963AEA5AB1EBC4D3EFCA8C7F9BD330C
 magnet:?xt=urn:btih:E631E1C369BFE4CB1DDE711BC50B6F8F1B92B9FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ TagScanner — это мощный инструмент для организа�
 ```bash
 magnet:?xt=urn:btih:D47F69A0C843DDA4D723F90F7352B18296386F50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +350,8 @@ Windows Server 2019 LTSC Version 1809 Build 17763.1637 (Updated December 2020) �
 magnet:?xt=urn:btih:E165A7CFA64C323E29C356386B37AFE187299DE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:47303C2CEF5E85E89AC0DDD9020A36BBDD4EB656
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:47303C2CEF5E85E89AC0DDD9020A36BBDD4EB656
 ```bash
 magnet:?xt=urn:btih:50F30B22B6473767F05702CD6DA0AC2F9658A6C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ Catastrophic - Born Into Bondage (2012) [APE|Lossless|image + .cue] <Death Metal
 magnet:?xt=urn:btih:3D630655553C41954292275BF47700B76E7A5D40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ magnet:?xt=urn:btih:3D630655553C41954292275BF47700B76E7A5D40
 ```bash
 magnet:?xt=urn:btih:0B41BFCC71E462F3007DEB6438ADBCC2F34710DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ magnet:?xt=urn:btih:0B41BFCC71E462F3007DEB6438ADBCC2F34710DA
 magnet:?xt=urn:btih:01F9551269A46A7BCA1C3431D14015774FFA0480
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:01F9551269A46A7BCA1C3431D14015774FFA0480
 ```bash
 magnet:?xt=urn:btih:A01853BFF0E3A577A0E5626CAD577DAFEF933C18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +538,8 @@ Pasquale Grasso - Pasquale Plays Duke (2021) Sony Music [FLAC|Lossless|tracks + 
 magnet:?xt=urn:btih:CA05C0F50CDD173B0BC9742E6B3CE1ACFBC0CFF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ Extreme Cold Winter - 2 Albums (2017-2021) [FLAC|Lossless|WEB-DL|tracks] <Death,
 ```bash
 magnet:?xt=urn:btih:0B1BC2BE85C6E46EF20F0E0788B0A9D34880CF36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +596,8 @@ VA - Первый танцевальный, Vol. 19 (2019) [MP3|320 Kbps] <Pop, 
 magnet:?xt=urn:btih:7ABCF85C7D99A0AEB58B42B68C0330DC182E488F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +622,8 @@ HD-Конвертер Видео Movavi – это многофункциона�
 magnet:?xt=urn:btih:EC7628C483AAF3F4514D1E67D65AF52B2FB3ECCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +647,8 @@ magnet:?xt=urn:btih:EC7628C483AAF3F4514D1E67D65AF52B2FB3ECCB
 ```bash
 magnet:?xt=urn:btih:D499126015C4097D6FF1EC6C7A99D3BCC8D0FA01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +676,8 @@ magnet:?xt=urn:btih:D499126015C4097D6FF1EC6C7A99D3BCC8D0FA01
 magnet:?xt=urn:btih:2482D5E958A2B42B959439E65863DB7B77C29E23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +704,8 @@ Abhorer - Unholy Blasphemer (2004) CD-Bootleg [FLAC|Lossless|image + .cue] <Blac
 ```bash
 magnet:?xt=urn:btih:4E0B0D13D18A78F4EDAD215EAA772D42A8DA799E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

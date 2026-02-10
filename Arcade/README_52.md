@@ -19,6 +19,8 @@ Trine – динамичная игра с реалистичной физиче
 magnet:?xt=urn:btih:4CC18B8B15EFBB3F100AFF91B0AD77FC34C6C6FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ ClusterTruck (2016) [En] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:D4A6E422A9E57A16F08801A5098FAB6BC9ECA76C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ The Treasures of Montezuma 4 / Сокровища Монтесумы 4 (2013) [R
 magnet:?xt=urn:btih:51F88B598C517744B3379B38742A964BC4130885
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ ULTIMATE MARVEL VS. CAPCOM 3: Marvel и Capcom объединились, что�
 ```bash
 magnet:?xt=urn:btih:2D79F0AB262BEDAD3147BBF59ACBE91BE7171871
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Pixel Privateers - тактическая ролевая игра, в котор
 magnet:?xt=urn:btih:B723E4706B56036DB14F5CDB83DDFDD12F860011
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Blue Sheep (2016) [En] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:958FA5B136A2F33315AB8463EF8A8B7F2DB88CF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ DX-Ball 2 [En] (L) 1998
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Blue Sheep (2016) [En] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:1F68C409E581CBE71CA65F21317EA819C9F42CA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Niffelheim (2018) [Ru/Multi] (1.3.001.31/dlc) License PLAZA
 magnet:?xt=urn:btih:1B4665F670C522402F4643768FDBAE2BBC2BA89D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Niffelheim (2018) [Ru/Multi] (1.0.011.1/1.2.010.1/1.3.001.31/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B2404AEC1084209984827301C7B6A6AFCC9DE305
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Ben and Ed: Bencalypse (2015) [En] (1.2.2) License HI2U
 magnet:?xt=urn:btih:C6C641824739973634B8676F9E2FC302F4972418
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ WWE 2k16 — Знаменитая серия симуляторов реслин
 magnet:?xt=urn:btih:240E7EA00F40A68424E86CC50A7279C229287C9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Subterrain – хардкорный экшен с видом сверху про
 ```bash
 magnet:?xt=urn:btih:EF84FE9ADB02CD3623B6B0FDE71145623BAEE899
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ Digger for Windows [En] (L) 1998
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Battle Engine Aquila (2003) [Multi] (0.9.0) License GOG
 ```bash
 magnet:?xt=urn:btih:99DE5FBFDF7DE1540A22C647258056701C5908F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ forma.8 — уникальная вариация на тему приключе
 magnet:?xt=urn:btih:B03FAA06CE7841D8AFEA91EA4911915A4F8FB427
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Orphan (2018) [Ru/Multi] (1.0.2.2) License GOG
 ```bash
 magnet:?xt=urn:btih:B0BE77FFD227709B72A723A172108B0301D52B7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ Subterrain (2015) [Ru/Multi] (1183) License GOG
 magnet:?xt=urn:btih:3B75099CC0F927234D4A28C45817589FDC3F5719
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Dead or Alive 6 - это новейший зрелищный трёхмерны�
 ```bash
 magnet:?xt=urn:btih:1131D60AF55F9820E5FAD1DFA7EFF79FB228AE98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ Sky Cannoneer - современное переосмысление культо
 magnet:?xt=urn:btih:B52B6448491461DDEA818A263B9FCAF202588F37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ Shift Happens игра о двух милых существах из желе, 
 ```bash
 magnet:?xt=urn:btih:789C45772718514F2685819B6C8DB0D2661E57B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ Xeno Crisis — это шутер на арене, где один или два
 magnet:?xt=urn:btih:2905BE298DDD47068E0F974D42B13F740A328133
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ Candlelight (2016) [En] (1.0) Rip R I T U E L
 ```bash
 magnet:?xt=urn:btih:0707C24B7D896DDEF2A24964124983CA211EBFC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ Crime Cities - это оригинальная комбинация шутера
 magnet:?xt=urn:btih:449C7072473AA644BDD849DF063467306584F21B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ Assassin's Creed Chronicles: Russia / Assassin's Creed Chronicles: Россия 
 magnet:?xt=urn:btih:24DE94A16C471AF19118AA34CF28352953B661F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ LEGO MARVEL's Avengers (2016) [Ru/Multi] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:14F32F52B40F1EC53AA65C27F62C8DBA762EF6C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

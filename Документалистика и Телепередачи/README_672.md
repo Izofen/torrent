@@ -1,3 +1,29 @@
+###  Публикация: 989301   (905792) от 28.02.2016
+
+Ревизорро-шоу (2016.02.10) SATRip (выпуск 1)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905792.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три сезона Лена Летучая проверяла отели и рестораны по всей стране. Не ради себя, а во имя высоких стандартов сервиса. Многие не прошли проверку. Есть те, кто не согласен с приговором "Ревизорро". Те, кто считает, что их наказали несправедливо. Теперь у владельцев заведений есть шанс защитить свою честь и бизнес! Прийти в студию и высказать свои претензии (   Читать дальше...   )Телекомпания: ПятницаЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 01:13:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBAD43EB0DA46E3C65E69D548F622DFCF7177653
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 853180   (905842) от 28.02.2016
 
 Прогулка по Баку (2013) HDTVRip [H.264/720p]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:5AF530B93A5FF595CF7F4BFD3FFFC5851EFEF848
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:5AF530B93A5FF595CF7F4BFD3FFFC5851EFEF848
 magnet:?xt=urn:btih:F5C3DC9AA82C4D32CCBF4864E763547C6CF8EE0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:F5C3DC9AA82C4D32CCBF4864E763547C6CF8EE0A
 ```bash
 magnet:?xt=urn:btih:4C721E3EB7DFA624413DB1B6999AB56321BF975C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:4C721E3EB7DFA624413DB1B6999AB56321BF975C
 magnet:?xt=urn:btih:B4FDFE3916050607D55D460AB76F05615B8AED9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:B4FDFE3916050607D55D460AB76F05615B8AED9E
 ```bash
 magnet:?xt=urn:btih:C66A65539BE8CC8B4095E1389BF80D69E07742CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:C66A65539BE8CC8B4095E1389BF80D69E07742CD
 magnet:?xt=urn:btih:33A405F5FBE71FF709DA1C0ABC7ED66D6B3C43B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:33A405F5FBE71FF709DA1C0ABC7ED66D6B3C43B3
 ```bash
 magnet:?xt=urn:btih:3021A18D1C19C6AAFA3DF3F12C244B21F6EAF155
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:3021A18D1C19C6AAFA3DF3F12C244B21F6EAF155
 magnet:?xt=urn:btih:95A6ECD536F781662B6E96E8E4CDCB1AB484CFCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:95A6ECD536F781662B6E96E8E4CDCB1AB484CFCC
 ```bash
 magnet:?xt=urn:btih:43D982592FCBA11638ED8DE6484391D392EF3DB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:43D982592FCBA11638ED8DE6484391D392EF3DB8
 magnet:?xt=urn:btih:B73DC330DF630A0020FA919889AC7705B620394C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:B73DC330DF630A0020FA919889AC7705B620394C
 ```bash
 magnet:?xt=urn:btih:08592EABAE51DF9534733B5B15DDC3FF43BF39DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:08592EABAE51DF9534733B5B15DDC3FF43BF39DF
 magnet:?xt=urn:btih:63EE75415794EA13C5B70E2F1940C0D5FDD4BABF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:63EE75415794EA13C5B70E2F1940C0D5FDD4BABF
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:63EE75415794EA13C5B70E2F1940C0D5FDD4BABF
 magnet:?xt=urn:btih:7BA2724E4FD1E6AE1BFC4D7620CCB59D4B6C01CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:7BA2724E4FD1E6AE1BFC4D7620CCB59D4B6C01CA
 ```bash
 magnet:?xt=urn:btih:BF452A33720C967FE8C68EDF13504FDA994B91AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:BF452A33720C967FE8C68EDF13504FDA994B91AE
 magnet:?xt=urn:btih:243AEF9F41094003F7564B99D504B8FB8C243619
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:243AEF9F41094003F7564B99D504B8FB8C243619
 ```bash
 magnet:?xt=urn:btih:0E2D9C68037AC1FC3196D01EDFF80CA6E1C49E34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:0E2D9C68037AC1FC3196D01EDFF80CA6E1C49E34
 magnet:?xt=urn:btih:556BEAB373DF64773522891094FB81EEC636335F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:556BEAB373DF64773522891094FB81EEC636335F
 ```bash
 magnet:?xt=urn:btih:5C808A76CC69FCEAAEE120015665FF75FBE4FE6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:5C808A76CC69FCEAAEE120015665FF75FBE4FE6F
 magnet:?xt=urn:btih:8FF05E48AE81FD26B3EE7C558B77AEF09F7BB205
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +567,8 @@ magnet:?xt=urn:btih:8FF05E48AE81FD26B3EE7C558B77AEF09F7BB205
 magnet:?xt=urn:btih:9CCC4E59AD71E5242C2C9365AA480D675F8EDB0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +592,8 @@ magnet:?xt=urn:btih:9CCC4E59AD71E5242C2C9365AA480D675F8EDB0D
 ```bash
 magnet:?xt=urn:btih:CAC65D777EEB49DB4D920370970C455BC80155DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +620,8 @@ magnet:?xt=urn:btih:CAC65D777EEB49DB4D920370970C455BC80155DD
 magnet:?xt=urn:btih:3976D8A70948C7E7E303F7348142782C2D524DE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +645,8 @@ magnet:?xt=urn:btih:3976D8A70948C7E7E303F7348142782C2D524DE6
 ```bash
 magnet:?xt=urn:btih:80760DF33BFB07ACBED360423ECA434B8E5CBBC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,29 +673,7 @@ magnet:?xt=urn:btih:80760DF33BFB07ACBED360423ECA434B8E5CBBC1
 magnet:?xt=urn:btih:CD16A8DA2C15DB99645C6C0D794BBAE4DA372545
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098854   (906628) от 31.01.2017
-
-Красная карточка №370 (2017) SATRip [H.264-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906628.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этой неделе жители Киева пребывают в настоящем шоке после получения квитанций за отопление, которые из-за новогодних праздников пришли с некоторым опозданием. Суммы в платежках за декабрь разные. Однако у многих киевлян они явно завышены и нередки случаи, когда в двух рядом стоящих одинаковых типовых домах, которые отапливаются фактически одной и той же трубой, (   Читать дальше...   )Телекомпания: Украина, News NetworkTVЖанр: ТелепередачаПродолжительность: 00:09:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DF5CEFFC8A38879F4130B574F2D4E6D4778B3C1
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

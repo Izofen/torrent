@@ -19,6 +19,8 @@ The Mortuary Assistant (2022) [Multi] (3.0.0) Repack Other s [Definitive Edition
 magnet:?xt=urn:btih:71FBFB36186CCA4E8EF7465DFA9D3287A894E057
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Blacklist Mafia (2024) [Ru/En] (Build 15226435) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:FBAA93A6DA539082E48CE60BBE51AD0C287EC8C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Back - это игра ужасов с полным движением и жив
 magnet:?xt=urn:btih:D37019452A240F21A36FD4F3CD9AAB4F7E319E3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Blacklist Mafia (2024) [Ru/En] (Build 15226435) Repack Other s
 ```bash
 magnet:?xt=urn:btih:45D7C4D4254334C792F08FF6F7512C89DC7D7F57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Brothers: A Tale of Two Sons Remake разворачивает эмоциона�
 magnet:?xt=urn:btih:A67E77AD3FA1413C0715E55794D79B637BD4ABF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:A67E77AD3FA1413C0715E55794D79B637BD4ABF0
 ```bash
 magnet:?xt=urn:btih:CCDAAB868A51E8E07EBFAE497ECD1E80F97F8C2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ The Backrooms: Survival сочетает в себе ужас выживания
 magnet:?xt=urn:btih:FCBD5E89580F100A64DCA52D3595836FB016F509
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Darkside Detective: A Fumble in the Dark (2021) [Multi] (2.32.2089.160d) Lic
 ```bash
 magnet:?xt=urn:btih:5C62178FC95EF51C17E3F0088565C29923B8A800
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ It Takes Two (2021) [Ru/Multi] (1.0.0.4) Repack dixen18
 magnet:?xt=urn:btih:4B0F575E5FBA59C0BCF4226A1DB2E4AA92CEDEAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Darkside Detective (2017) [Multi] (2.127.4.167d) License GOG
 ```bash
 magnet:?xt=urn:btih:6C690D20A8DA12E69B615F6AFAD22AEA5228FEA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Tales from the Borderlands (2014) [Ru/En] (1.0.1) Repack FitGirl [Episodes 1-5]
 magnet:?xt=urn:btih:5AEC15AC2057B8118B5A3E588CB76374F09F6277
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Abnormal1999:Sector 49 / Аномалия1999:Зона 49 (2024) [Ru/Multi] (1.0
 ```bash
 magnet:?xt=urn:btih:24B7E748286221F8D40627EE4D60FECC0C8ED505
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Nobody Wants to Die с головой окунает вас в Нью-Йорк �
 magnet:?xt=urn:btih:8729F48EBC860C4EE20554ADD5EDB9FED43E215F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Conscript (2024) [Ru/Multi] (1.0.0.2/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:E3E6180EC3E0A366FA41EE9600832E972A4CBC1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Renovator: Origins представляет собой инди-хоррор
 magnet:?xt=urn:btih:0B9BF7322C92A75C48EF443471ECF4B3ACC99B50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ THE ORIGIN: Blind Maid - хоррор-выживастик от первого �
 ```bash
 magnet:?xt=urn:btih:FE26C954738B1DD7BF14EE9EC2229E83C2F6AB47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Monolith (2023) [Multi] (1.1.7) License GOG
 magnet:?xt=urn:btih:EAD223C4EE7E9BC9759BD404BB074922C364EBF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Over Islands – помогите местным жителям мира, кот
 ```bash
 magnet:?xt=urn:btih:87EE24BCD02E4C4EFB102096A17EA56A9B079FEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Undying (2021) [Ru/Multi] (1.0.2.41413/dlc) Repack FitGirl [Premium Edition - Se
 magnet:?xt=urn:btih:7A8B2E8B2985570ABF0905C45CD77F5A57542FC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The Star Named EOS - не совсем обычная приключенческ
 ```bash
 magnet:?xt=urn:btih:96B91A9EFD4954053084821BAA0C5B79DEFA252A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Etera (2024) [En] (1.0.0) Scene SKIDROW
 magnet:?xt=urn:btih:4128250015C3F9D687A5FC518B9DD265E1F7C1EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ The Longing можно сразу назвать игрой уникальной
 ```bash
 magnet:?xt=urn:btih:10595FD892B054EF7C3CFEFB4C62B356599ABD1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Nine Sols (2024) [Multi] (b7ca1880) Scene Rune
 magnet:?xt=urn:btih:BCFB4E4471D173E8C276D49B7F162F9799261C94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Nobody Wants to Die с головой окунает вас в Нью-Йорк �
 ```bash
 magnet:?xt=urn:btih:54EA9AA81242A0CC7C38DA4CA25A8B7A11859073
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ ReThink 5 (2024) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:9126E3B9D70A64CD99314BF00130349F6D2D5EDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ SCHiM (2024) [Ru/Multi] (1.0) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:55C5E350C43E334F57FA7060EA8A4727CA545AD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

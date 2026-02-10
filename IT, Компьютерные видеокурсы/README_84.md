@@ -21,6 +21,8 @@ Python - это высокоуровневый язык программиров
 magnet:?xt=urn:btih:F12A52AA08255F72CF4F3D1460464910A5480C8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ ITVDN | Коллекция видеокурсов (2015-2020) PCRec [H.264/720p-
 magnet:?xt=urn:btih:2223012944B786E010E48A7B66F15567CC80863A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ PHP был создан как Personal Home Page Tools - инструмент �
 ```bash
 magnet:?xt=urn:btih:7E99B33E415677E1726FD1D1D1EC6225B8FEAE64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ ProfIT | Дао программиста. Путь к деньгам, свобо
 magnet:?xt=urn:btih:176C502272F510C60F696979818892547A06CBA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ VR-разработчик — это профессия будущего. Так
 ```bash
 magnet:?xt=urn:btih:22DA5C100830CABC7544394B3686D91F4A325FD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ PHP - один из лучших языков веб-программирова�
 magnet:?xt=urn:btih:C81C7ADE0909882735255B32E9410B2961506006
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:C81C7ADE0909882735255B32E9410B2961506006
 ```bash
 magnet:?xt=urn:btih:F80FE4D1169FF05BD9E8E1EE4D8EB35F957A99DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ Database Developer (разработчик баз данных) – специа
 magnet:?xt=urn:btih:791853324B5DBDD44885E208A1A08EF4906321BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ ITVDN | Видео курс Python Essential (2016) [H.264/720p]
 magnet:?xt=urn:btih:AB0AAF102F3F22DAE26A17B68CA5829587842B5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:AB0AAF102F3F22DAE26A17B68CA5829587842B5A
 ```bash
 magnet:?xt=urn:btih:5D734C590BFF79DC397516552C54AE3E986F1E97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ ProfIT | PHP. Уровень 2. Профессиональное програм�
 magnet:?xt=urn:btih:8F84535C963422496264CE306E85B60C0C13C219
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:8F84535C963422496264CE306E85B60C0C13C219
 ```bash
 magnet:?xt=urn:btih:ECD28783406C5617C4F6348364F31C18ABD143E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ Skillbox, Павел Елисеев | Профессия Архитектор П
 magnet:?xt=urn:btih:BC6537B567FC05BED5FB5A708AA7CA4D12D9E424
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ Udemy, Anna Kuzina | Парсинг сайтов. Scrapy, Splash, Selenium, requ
 ```bash
 magnet:?xt=urn:btih:FB077073DF7A5233EC6225FCDFE2215158F7A790
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ Jose Portilla | Complete Python Bootcamp: Go from zero to hero in Python 3 (2019
 magnet:?xt=urn:btih:A7E51382795BB216B67B775B0D56A56AFB6A7752
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ ITVDN | iOS Developer (2015-2020) PCRec [H.264/1080p,720p-LQ]
 magnet:?xt=urn:btih:775F703EA01E669E9C079453AFA451C8F1B7D092
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ Edwin Diaz, Coding Faculty Solutions | PHP for Beginners - Become a PHP Master -
 ```bash
 magnet:?xt=urn:btih:5132DB8740F86B063426AC45EFFE825F6DE014B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ Geekbrains | Java. Практическое применение (2015) PCRec [H
 magnet:?xt=urn:btih:845500A7F0F7EBD1D7AD3079DEE2853A657FFD14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:845500A7F0F7EBD1D7AD3079DEE2853A657FFD14
 ```bash
 magnet:?xt=urn:btih:13EA009B846FFD0758B9F4C40EC493D5F5EAC229
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +538,8 @@ magnet:?xt=urn:btih:13EA009B846FFD0758B9F4C40EC493D5F5EAC229
 magnet:?xt=urn:btih:BE211A7D1401EC92DD90264ADFBBDE074F183B3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ C# стабильно входит в ТОП-10 наиболее популяр�
 ```bash
 magnet:?xt=urn:btih:79BDD5A6423145B712B75B82918E6DFBDAE2AA92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ Pluralsight - это онлайн-платформа для обучения и 
 ```bash
 magnet:?xt=urn:btih:BC5F2375AB4E50ECABA69EE65D4DAEA3863C7EA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +622,8 @@ COVID-19
 magnet:?xt=urn:btih:4D875D744B9C784F30FB53F60F9D692CD6B79751
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +648,8 @@ magnet:?xt=urn:btih:4D875D744B9C784F30FB53F60F9D692CD6B79751
 ```bash
 magnet:?xt=urn:btih:0D3F8D1DC3F88AEA81FFB659A4B2CA411724FA77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +676,8 @@ Udemy, Manuel End | LPIC-1 - Linux System Administrator Masterclass (2021) WEB-D
 magnet:?xt=urn:btih:7D9317598A118E7D6864C6C0D5524BA71C58EEFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ Geekbrains | Wordpress для профессионалов. Разработка
 ```bash
 magnet:?xt=urn:btih:235043E922E80710C708D68ECC8770A977F97036
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ PhotoRoom v5.3.5 Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:B6DA2B0FBE898CEBC0A459C5E1D6424918F423D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Photo Studio — не просто приложение для редактир�
 magnet:?xt=urn:btih:1E0E2E9A6D74A785B692FF59703E2E50B1078431
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ PictureThis - Plant Identification v4.4.1 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:BC42E9D547632B598F600B334F018DB008F23E00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Picture Mushroom — распознавайте грибы мгновенно. �
 magnet:?xt=urn:btih:4BA9B8013DE886F6F57C30DD731109B5FB33BBEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:4BA9B8013DE886F6F57C30DD731109B5FB33BBEB
 magnet:?xt=urn:btih:51992AA3E4FB380DFF97E7287523D7745BA19C1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ AI ChatBot AI Friend Generator v3.0.8.1 Mod by 0x7d [Ru/Multi]
 magnet:?xt=urn:btih:8AA07C3374E9A19E3D3D0A8BA54C7D30CC4ECAC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Electrical Calculations Pro / Электрические расчеты v10.0.8 
 ```bash
 magnet:?xt=urn:btih:047453EE43ADE279F3EB5385B64B303961D66E0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:047453EE43ADE279F3EB5385B64B303961D66E0F
 magnet:?xt=urn:btih:DF7947B5B945A5C353F3354027024CC36C0B64C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ ReLens - отличная находка для любого поклонник�
 ```bash
 magnet:?xt=urn:btih:B322E5DB98D9B2D531811D34BA50DEAF8B6C309A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ HulaVPN - Fast Secure VPN 14.3.1 [En]
 magnet:?xt=urn:btih:18E097C11726B5E7B393BF1C086C88239E50682A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ Memento Database - это мощный и в то же время легкий �
 ```bash
 magnet:?xt=urn:btih:A1EB045A44EFA75BBD2823E4169CB75DAE5533A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ Memento Database - это мощный и в то же время легкий �
 magnet:?xt=urn:btih:F53C0A5001CAB5FDA5A9082EFA4AEA876C813A4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ Super 13 Launcher - это лаунчер для Android, имитирующий
 ```bash
 magnet:?xt=urn:btih:45E789BB9C2F8E515543657696F5E7C845E09916
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ Super S10 Launcher - проект, что заслуживает внимани�
 magnet:?xt=urn:btih:AE1FC3316DB7EF5D12D39FD1EA92D2DE9782A852
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ O Launcher - это альтернативный лаунчер для Android �
 ```bash
 magnet:?xt=urn:btih:602AEA5494CD8C200AEBEC7AA5802F6F1C439B78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ Lucky Patcher (Лаки патчер) – отличное решение есл
 magnet:?xt=urn:btih:6A6DE2CE1DF6C690EDB28B08191DB3C320C5F38D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ Picsart AI Photo Editor, Video v25.7.2 Final Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:81CA697A2DBDD65FD55DB289597E17187AE23598
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ Photo Studio — не просто приложение для редактир�
 magnet:?xt=urn:btih:D13A6FE4608F224538A13BEC3B99B07E5756048D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ OfficeSuite Pro + PDF - это полнофункциональный офисн
 ```bash
 magnet:?xt=urn:btih:1A20A38E9AC7AE10036FFA4EECAD6C28DDB49FCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ IPTV Pro v8.1.3 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:B14C5FD6DEDA78901DB20BE250F26DCEF85082E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:B14C5FD6DEDA78901DB20BE250F26DCEF85082E9
 ```bash
 magnet:?xt=urn:btih:BD82783D8D759815B5B6B1B935BBF3DFBB34474F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ Prisma Art Effect Photo Editor / Арт - Фото в Рисунок v4.6.2.618 
 magnet:?xt=urn:btih:CE71647611BC3146C7F1F8DE307273C50E861C9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ Ventusky: Прогноз погоды v36.2 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A76DB084DBB0C0DE72A4F6F1F0A3F6186BBD0455
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ Rock Identifier - Stone ID v2.3.39 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:3429505652FF73AB36E23BFF48CA90AC64745CE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ ToonMe v0.7.12 Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:B8BBE03842C3BCABB5BE66E9EB25DEF68E56E7D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Shazam (шазам) распознает любую песню за секунд
 ```bash
 magnet:?xt=urn:btih:E81931C410C6F434DFB7C338E91794D1B617ED63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

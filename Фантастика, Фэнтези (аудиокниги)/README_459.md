@@ -1,3 +1,29 @@
+###  Публикация: 1122615   (793247) от 06.04.2017
+
+Фотина Морозова | Северное бешенство (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конец 1990 года. Советский Союз движется к распаду, а в маленьком северном городке вспыхивает эпидемия неизвестной болезни. Победить её старается, приехавший из Москвы, доктор Подбельский. Вместе с ним слушателям предстоит раскрыть не одну тайну, связанную с «северным бешенством», а также ответить на сакраментальный вопрос «Кому выгодно?».Жанр: ФантастикаПродолжительность: 08:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0808105426AE5428482D66B2F271A77954ACA3F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386657   (793338) от 30.05.2020
 
 Антон Емельянов, Сергей Савинов | Последняя петля-7. Перековка (2020) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:92BA8AD45440027B59FD6A5F8274EE32C695B04B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:92BA8AD45440027B59FD6A5F8274EE32C695B04B
 ```bash
 magnet:?xt=urn:btih:D52A175B868C2AC9C99F2D7CADD71C776237F333
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:D52A175B868C2AC9C99F2D7CADD71C776237F333
 magnet:?xt=urn:btih:5ADAC9C4F86F559B7130BDE42B795C3ED0FF8333
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:5ADAC9C4F86F559B7130BDE42B795C3ED0FF8333
 ```bash
 magnet:?xt=urn:btih:888E1D8C2020B16C722C3DD392C5F5C0418CBB67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:888E1D8C2020B16C722C3DD392C5F5C0418CBB67
 magnet:?xt=urn:btih:CD317D1B75C5790BBFCB57FFABE410715CF4545E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:CD317D1B75C5790BBFCB57FFABE410715CF4545E
 ```bash
 magnet:?xt=urn:btih:ADD940068A251566A4C349773C85EF1E8E63A507
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:ADD940068A251566A4C349773C85EF1E8E63A507
 magnet:?xt=urn:btih:407A26D7E8C48D97BF659CF2CEB075F130BA9B2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:407A26D7E8C48D97BF659CF2CEB075F130BA9B2D
 ```bash
 magnet:?xt=urn:btih:35AFEE120E4EED057AFDC039C22FF12440C28C9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:35AFEE120E4EED057AFDC039C22FF12440C28C9D
 magnet:?xt=urn:btih:73455729343CBCE147AC15AE6D3DCEE09511405D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:73455729343CBCE147AC15AE6D3DCEE09511405D
 ```bash
 magnet:?xt=urn:btih:E00B4257676C39F0ED8D0337204A835813E8FB1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:E00B4257676C39F0ED8D0337204A835813E8FB1C
 magnet:?xt=urn:btih:289C3FE46A83399D0C57ED94EF009A7E8F5C36DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:289C3FE46A83399D0C57ED94EF009A7E8F5C36DA
 ```bash
 magnet:?xt=urn:btih:CB53FFC6C27B04C1660E5A581A4148D4EB30C265
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:CB53FFC6C27B04C1660E5A581A4148D4EB30C265
 magnet:?xt=urn:btih:E06E40E267DC7A57646CD4FBDF2846A19A95A5FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:E06E40E267DC7A57646CD4FBDF2846A19A95A5FB
 ```bash
 magnet:?xt=urn:btih:59C436DB9352A2C91065FB1179DED6BBE0E5A25E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:59C436DB9352A2C91065FB1179DED6BBE0E5A25E
 magnet:?xt=urn:btih:4C31FC9F45DF7700E43BC8CECEBBA847C036A36A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:4C31FC9F45DF7700E43BC8CECEBBA847C036A36A
 magnet:?xt=urn:btih:9048B8835897F8B0B62F63D9E90D8F8DFAAB4B76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +461,8 @@ magnet:?xt=urn:btih:9048B8835897F8B0B62F63D9E90D8F8DFAAB4B76
 ```bash
 magnet:?xt=urn:btih:D3791F6DDD4850EA57710E22CB15E542BA76AC98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:D3791F6DDD4850EA57710E22CB15E542BA76AC98
 magnet:?xt=urn:btih:26C3EB08F7216C71C5E05E117F8926EB56038647
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:26C3EB08F7216C71C5E05E117F8926EB56038647
 ```bash
 magnet:?xt=urn:btih:BA4A923209CF16B08AD8948DA807C36FD5D38B58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:BA4A923209CF16B08AD8948DA807C36FD5D38B58
 magnet:?xt=urn:btih:44F5630362B7ED84F730ADEDEF761821D2250E0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +567,8 @@ magnet:?xt=urn:btih:44F5630362B7ED84F730ADEDEF761821D2250E0B
 magnet:?xt=urn:btih:F918C148800B7629A7ED263187E115100E91DE2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +592,8 @@ magnet:?xt=urn:btih:F918C148800B7629A7ED263187E115100E91DE2C
 ```bash
 magnet:?xt=urn:btih:5ED8ED7D3B5F4F9E05F673ED750114E1F8338397
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +621,8 @@ magnet:?xt=urn:btih:5ED8ED7D3B5F4F9E05F673ED750114E1F8338397
 magnet:?xt=urn:btih:871CAB000D1818FA74DFBD543C96DDFCBE384C69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +646,8 @@ magnet:?xt=urn:btih:871CAB000D1818FA74DFBD543C96DDFCBE384C69
 ```bash
 magnet:?xt=urn:btih:2A6F8430473DFE396F95311DEA2F240B3430EA38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,29 +673,7 @@ magnet:?xt=urn:btih:2A6F8430473DFE396F95311DEA2F240B3430EA38
 magnet:?xt=urn:btih:24A91F0976A9ABF5C4B10203BB9178E0B3C47E04
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386092   (795799) от 27.05.2020
-
-Евгений Щепетнов | 1971. Агент влияния (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Михаил Карпов, оказавшись в прошлом, времени зря не терял. Семидесятые годы двадцатого века открыли для него много новых возможностей. Он наворотил немало дел, которые в итоге привели его на просторы Нью-Йорка. Улететь домой Михаил не может из-за расследования прокуратуры, а страна Советов не особенно-то и интересуется судьбой своего блудного сына, оказавшегося на (   Читать дальше...   )Жанр: Детективная фантастика, Историческая фантастика, ПопаданцыПродолжительность: 09:44:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:100F12662DEE720D50353F510F94CF01CE78529A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

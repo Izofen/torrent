@@ -22,6 +22,8 @@ Buffalo Featuring Peter Vee - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electroni
 magnet:?xt=urn:btih:6A06DAD7C35F0B96923214FAE7666E429CBD702D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ XS - Дефлорация  (2008) [FLAC|Lossless|tracks + .cue]<Pop>
 ```bash
 magnet:?xt=urn:btih:127430A4D846F6C83336A88C0A4AF232E08695C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - 100 Greatest Rock Anthems (2020) [MP3|320 Kbps] <Pop, Rock>
 magnet:?xt=urn:btih:1803EF91F5AD02EFA8A1BE401B40E293AC0C0822
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Roxette - Exclusive collection (2001) [FLAC|Lossless|image + .cue] <Pop Rock, Ba
 ```bash
 magnet:?xt=urn:btih:2EFEC8ADF2AAAA0E8968DE015F770FE7B0B6C42E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Queen Samantha (настоящее имя - Gloria Brooks) была диско-�
 magnet:?xt=urn:btih:71B93C8F505ED7EC99D3C481B9E6B4C07DF44E61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:71B93C8F505ED7EC99D3C481B9E6B4C07DF44E61
 ```bash
 magnet:?xt=urn:btih:04A3B8F31E6DA7F435734C8B8D0C1AACDBF77839
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:04A3B8F31E6DA7F435734C8B8D0C1AACDBF77839
 magnet:?xt=urn:btih:8BD0D0F6EE1C115E0135E886AD15F562A66DBB15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:8BD0D0F6EE1C115E0135E886AD15F562A66DBB15
 ```bash
 magnet:?xt=urn:btih:0D595A714DFDDF2A9B0EEE45F55A7C724D216EA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - 50 Hits Winter 2020 (2019) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:2C0B31A72F0A78AB7B911637994B6382D9E2E5A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Emin - Девочка моя (2019) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:17792139C2172D1A412E0E6F5FD3494F0DCD698B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ A'Studio - A’21 (2022) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:E8C13E092613446EE78E90BA20EB8AC55A3AA13E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Amanda Lear - The Sphinx•1976-1983 ( 2006 ) 3CD [MP3|320 Kbps] <Disco, Pop>
 ```bash
 magnet:?xt=urn:btih:CC99D9B306AEFBBB4EF5F846ED86FC99A4C3FF28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Duran Duran - Danse Macabre (2023) [MP3|320 Kbps] <Pop, Rock>
 magnet:?xt=urn:btih:0A9C58D8251B876B63FF46F30CC342A8A278D4C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Acoustic Christmas (2019) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:CA086D2A20EA38C341B64649530075046EA11629
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Taylor Swift - 1989 (2014) Taylor's Version, 2023, Taylor Swift [MP3|320 Kbps] <
 magnet:?xt=urn:btih:2FB0B5903C9933357B9E145866B3C8A36D48A43D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +457,8 @@ magnet:?xt=urn:btih:2FB0B5903C9933357B9E145866B3C8A36D48A43D
 magnet:?xt=urn:btih:60907A2933D44A11857B44A1EE790D5162A3265A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +484,8 @@ Blue System - Behind The Silence 2002 (2002) Unofficial Release [OGG Vorbis|480 
 ```bash
 magnet:?xt=urn:btih:7C797F7E56669E88656BF223D78EAAF9AFC9CA39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +514,8 @@ Disc - 1:
 magnet:?xt=urn:btih:60C0C3A34247C6E00E68D9F069CE7D1F87270398
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +542,8 @@ VA - Hit News Vol. 4 (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 ```bash
 magnet:?xt=urn:btih:7F48385D06E3AB26E5532BE6A7A55C1CF57D36DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +572,8 @@ Rainbow Train - Accompanied By (1978) LP [MP3|320 Kbps] <Pop, Pop Rock>
 magnet:?xt=urn:btih:D7880B704DACF44BA9C52DBCB8D127B7A1E62A97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +600,8 @@ Burito - Samskara (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:D2AA1C3118527E54CF61F00F63C3F994FC8B91E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +630,8 @@ Taylor Swift - evermore (2020) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:67547EF3E16CCF50A7AADB0005CB0F52D2036B53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +658,8 @@ magnet:?xt=urn:btih:67547EF3E16CCF50A7AADB0005CB0F52D2036B53
 ```bash
 magnet:?xt=urn:btih:FDF855925DA0C733EB603030B2F3F849F985477D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +688,8 @@ VA - A Very Cool Christmas (2019) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Po
 magnet:?xt=urn:btih:E892158051C2C1CE5D71933C473E8C896F0F5FF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +717,8 @@ MOZGI - kyivstyle (2020) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:2B9A16A46F4AE10461877BFF9B17D60D59BA27B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +745,8 @@ magnet:?xt=urn:btih:2B9A16A46F4AE10461877BFF9B17D60D59BA27B2
 ```bash
 magnet:?xt=urn:btih:D45E21EA2EC26551788F74D973790CA9DB30398A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

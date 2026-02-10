@@ -19,6 +19,8 @@ BBC. Тайные агенты Елизаветы I / Elizabeth I's Secret Agent
 magnet:?xt=urn:btih:5BA01DCFFA1B0B91AEF6CDBA394B8A4DE302DD22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NG: Возвращение на Титаник / Back to the Titanic (2020) WEB-
 ```bash
 magnet:?xt=urn:btih:6E772BAA39193F1081836B943AAD035B1359AF90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:6E772BAA39193F1081836B943AAD035B1359AF90
 magnet:?xt=urn:btih:44E3150C97DDDDFC306F23D69847546E28F8B3BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:44E3150C97DDDDFC306F23D69847546E28F8B3BD
 ```bash
 magnet:?xt=urn:btih:BBA9EFF7F8838D6344E76319D3FAC58AC2267F56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ NGW: Матриархат / Girl Power (2018) HDTV [H.264/1080i-LQ]
 magnet:?xt=urn:btih:CC4C6B52D860F53097C9339A4D4BF9530B8B00E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ BBC: Ада Лавлейс: первая леди программировани
 ```bash
 magnet:?xt=urn:btih:3DC2199743ECFEE6DA26DB9D319BB5F48F0E1376
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ NGW: Охота ягуара на побережье / Jaguar Beach Battle (2018
 magnet:?xt=urn:btih:72936119E8D82DE6A154B67EF2C9DF91C67DF8DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ NGW: Грозовые кошки / Storm Cats (2016) HDTVRip [H.264/1080p-LQ]
 magnet:?xt=urn:btih:B0B56EB7E33480E8181BFBAB9AB0DB615FC393C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ NG. Зеленоглазый леопард / Jade Eyed Leopard (2020) WEB-DL [H
 ```bash
 magnet:?xt=urn:btih:6E52A4E22A2C85B8E6FDB66B8675C90707EAD075
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ NGW: Вся правда о крокодилах / The whole truth about crocodi
 magnet:?xt=urn:btih:BA1C597F3D26FDEDE155E0A8653F578007C717B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ BBC. Horizon: Юпитер раскрывает свои тайны / Jupiter Re
 ```bash
 magnet:?xt=urn:btih:439CC8D54E5B807CC2386FE224F88CC07F954D92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ BBC. Земля: Один потрясающий день / Earth: One Amazing D
 magnet:?xt=urn:btih:BF14692A981EE7F528833468BFBFE8414A58523C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Discovery: Разрушители легенд. Спецвыпуск Симпс�
 ```bash
 magnet:?xt=urn:btih:5410D8C4634161C2B00C4498BB7A31E16C3C524A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Discovery: Разрушители легенд. Трансформеры / MythB
 magnet:?xt=urn:btih:A65D5F7A55578CCF490DD47A03CFC1544028F682
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ NG. Тайная семерка Африки / Africa's Secret Seven (2003) HDTV
 ```bash
 magnet:?xt=urn:btih:EC1148E20CE66F7A6B82DB4D79F3B71CFF3640A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ Discovery: Разрушители легенд. В поисках утрачен
 magnet:?xt=urn:btih:D31AC69B0E7F380348EBCB8CB3A9D3C4E71840CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ Discovery: Разрушители легенд. Спецвыпуск: Коман
 ```bash
 magnet:?xt=urn:btih:464704D34168A067258790252423C86FA05A68A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:464704D34168A067258790252423C86FA05A68A2
 magnet:?xt=urn:btih:83CAA96E3CF6297F34A66B1966521BD644FDB009
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ History Channel. Между молотом и наковальней / Forged in
 ```bash
 magnet:?xt=urn:btih:9BCC02395D0A5D31AF9011982C3AA3A1B0C0F571
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ Discovery: Ангелы и демоны. Факты или домыслы? / Ang
 magnet:?xt=urn:btih:C83792DD2A289C63851FB48E22A7AF1DBFF0EC5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ BBC: Двадцатка самых опасных наркотиков /BBC: The
 ```bash
 magnet:?xt=urn:btih:0DD32EF7AE85CD69ADB06D172F8FE4E734D424C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ BBC. Самые опасные дороги мира / World's Most Dangerous Ro
 magnet:?xt=urn:btih:DD377F74244B9B118773CAE32B070D70A171DF4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ Discovery: Америка: факты и домыслы / America: Facts vs. Fic
 ```bash
 magnet:?xt=urn:btih:C830AF87F7A61EE18EF75468AD9933F3E05E25E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ BBC: Каковы размеры Вселенной? / How Big is the Universe? 
 magnet:?xt=urn:btih:87B1475A2F1A61457E482D83F17B59C2ECE1138D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +643,8 @@ NGW: Национальные парки Америки / America's National Par
 ```bash
 magnet:?xt=urn:btih:54C5A33F6556B447B505BC8ABEEE082A85A45B56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +670,8 @@ NGW: Прекрасная Америка: Величественный Севе�
 ```bash
 magnet:?xt=urn:btih:5989C1C717F985506B6F782C41EA3A7DBC66797B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

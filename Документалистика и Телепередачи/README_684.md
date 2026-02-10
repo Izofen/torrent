@@ -1,3 +1,29 @@
+###  Публикация: 988379   (922894) от 19.02.2016
+
+Вести в 20-00. Большие Вести. Россия HD (19.02.2016) HDTVRip [720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922894.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вести» — информационная телевизионная программа Всероссийской государственной телерадиокомпании. Выходит в эфир на каналах «Россия-24», «Россия-1», «РТР-Планета» и «РТР-Беларусь». Производятся Дирекцией информационных программ Государственной телекомпании «Россия». Самые последние новости в России и в мире - смотрите в последних выпусках новостей телеканала «Россия».Телекомпания: Россия HDЖанр: ТелепередачаПродолжительность: 00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:577186EE345B688D1CB31DDE4FE80A10772A519A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366450   (923479) от 11.03.2020
 
 Жуткий монстр по имени мировая экономика / This Giant Beast That is the Global Economy (2019) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8) HDRezka Studio
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:18AE2E53920619A6B1B9E4152C0DA58C62E72519
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:18AE2E53920619A6B1B9E4152C0DA58C62E72519
 magnet:?xt=urn:btih:2E414901E28712C244A230C53EB19A0B530DAE96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ Tiny World - это невероятной красоты документаль
 ```bash
 magnet:?xt=urn:btih:2E68DE473F86D7647107CC20C82A4C3397488996
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:2E68DE473F86D7647107CC20C82A4C3397488996
 magnet:?xt=urn:btih:42EAB07EA4D50583FF60C4DD99BEFBFAC81BDD4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:42EAB07EA4D50583FF60C4DD99BEFBFAC81BDD4B
 magnet:?xt=urn:btih:D80D0C7B98AC644B8A7EE3104C13FDB15537BD85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:D80D0C7B98AC644B8A7EE3104C13FDB15537BD85
 ```bash
 magnet:?xt=urn:btih:415F587C899E27377E268FB84B8BA3302778D4B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:415F587C899E27377E268FB84B8BA3302778D4B2
 magnet:?xt=urn:btih:C1CECCA54E54A5B02C271F05C18D03F03BCB8F79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:C1CECCA54E54A5B02C271F05C18D03F03BCB8F79
 ```bash
 magnet:?xt=urn:btih:C5068C63F83A16124407600F7B5B5B968A990D75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:C5068C63F83A16124407600F7B5B5B968A990D75
 magnet:?xt=urn:btih:03F184EFEF65EF06E7E895EE2A9CE17D7910B853
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:03F184EFEF65EF06E7E895EE2A9CE17D7910B853
 ```bash
 magnet:?xt=urn:btih:768B52496AD11DFC9A3B39D9A08054A0FBD62CC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:768B52496AD11DFC9A3B39D9A08054A0FBD62CC1
 magnet:?xt=urn:btih:25C5A16D0C1F4E2FFA175C28BB3BA327720C12A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:25C5A16D0C1F4E2FFA175C28BB3BA327720C12A5
 ```bash
 magnet:?xt=urn:btih:09EC9559B6556BB5C162A094819E9852B53EA307
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:09EC9559B6556BB5C162A094819E9852B53EA307
 magnet:?xt=urn:btih:8C3B0D80AA949225E35858B6F0E81FA2E5EE7DDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:8C3B0D80AA949225E35858B6F0E81FA2E5EE7DDE
 ```bash
 magnet:?xt=urn:btih:8238CCC932D7ABFBB7F01E505D588254A0226DE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +418,8 @@ magnet:?xt=urn:btih:8238CCC932D7ABFBB7F01E505D588254A0226DE9
 magnet:?xt=urn:btih:EE1BC5175C58CD19A7D61BAB4F273CED66FC7454
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:EE1BC5175C58CD19A7D61BAB4F273CED66FC7454
 magnet:?xt=urn:btih:A869E4B20CEC7F39DB969DEB71ABB790E758E770
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:A869E4B20CEC7F39DB969DEB71ABB790E758E770
 ```bash
 magnet:?xt=urn:btih:908291C2C0F28F6DBE26E09D3FB191A397108E41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +499,8 @@ magnet:?xt=urn:btih:908291C2C0F28F6DBE26E09D3FB191A397108E41
 magnet:?xt=urn:btih:4F216AB1632FD777BC62DB88CD75FA1D7A5BB533
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +524,8 @@ magnet:?xt=urn:btih:4F216AB1632FD777BC62DB88CD75FA1D7A5BB533
 ```bash
 magnet:?xt=urn:btih:B21FB5BDF529E381781436E401A8AD637E5199BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +551,8 @@ magnet:?xt=urn:btih:B21FB5BDF529E381781436E401A8AD637E5199BA
 magnet:?xt=urn:btih:630B69452DEC90594DE8AAABD2F6BBE4781D08E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +576,8 @@ magnet:?xt=urn:btih:630B69452DEC90594DE8AAABD2F6BBE4781D08E1
 ```bash
 magnet:?xt=urn:btih:41CF329AD1DCEB585143B067677D896B71B663DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +605,8 @@ magnet:?xt=urn:btih:41CF329AD1DCEB585143B067677D896B71B663DB
 magnet:?xt=urn:btih:A7370A3F01CDEC78CA9DE7810D424AF584F58257
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +630,8 @@ magnet:?xt=urn:btih:A7370A3F01CDEC78CA9DE7810D424AF584F58257
 ```bash
 magnet:?xt=urn:btih:45C8BF427D25079339914E6A1745E85E07DE673E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:45C8BF427D25079339914E6A1745E85E07DE673E
 magnet:?xt=urn:btih:7F54ABDEAB338A9FC7FA31F1AC4F4451A6B4107C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,29 +683,7 @@ magnet:?xt=urn:btih:7F54ABDEAB338A9FC7FA31F1AC4F4451A6B4107C
 magnet:?xt=urn:btih:9B3EB30E3EEA50D7CB74E6E8352170868024CF2D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095749   (924337) от 21.01.2017
-
-Советские мафии. Пираты Южного порта (2017.01.18) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автомобиль в советское время был не средством передвижения, а социальной меткой. Есть "Москвич" - молодец! А если модные "Жигули" и дорогая "Волга", значит жизнь абсолютно удалась! Но машин на всех не хватало, и в стране процветали спекулянты, которые добывали дефицитные автомобили по сложным схемам и толкали за три цены. А в 70-е годы (   Читать дальше...   )Телекомпания: ТВЦЖанр: Документальный, расследование, криминалПродолжительность: 00:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B2959C9739845F2DBAEBCE57E9A85EFA134CDC2
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

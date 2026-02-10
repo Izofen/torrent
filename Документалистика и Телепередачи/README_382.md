@@ -1,3 +1,29 @@
+###  Публикация: 930686   (514996) от 23.08.2015
+
+Танцы. Сезон №2. Выпуск №1 (2015.08.22) WEB-DLRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514996.jpg" />
+</div>
+
+
+###  Подробнее
+
+22 августа на ТНТ стартует новый сезон самого масштабного танцевального шоу страны. Создатели обещают, что он будет еще круче, ярче и мощнее: больше городов, больше претендентов, больше чем просто танцы! Заявки на участие в предварительных кастингах прислали более 10 000 человек! Отсев в этот раз был гораздо жестче, однако на телевизионных кастингах будет представлено (   Читать дальше...   )Телекомпания: ТНТЖанр: ТелепередачаПродолжительность: 01:35:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D8491F5DB427F533022376462336459B894585E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1315117   (515008) от 18.07.2019
 
 National Geographic. Аполлон: Обратно к Луне / Apollo. Back to the Moon (2019) HDTVRip [H.264/720p-LQ] (1-2 серии из 2)
@@ -18,6 +44,8 @@ National Geographic. Аполлон: Обратно к Луне / Apollo. Back t
 ```bash
 magnet:?xt=urn:btih:0C6EB1642080B9554D1C88CC6B3E7CC01F540A67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ National Geographic. Аполлон: Обратно к Луне / Apollo. Back t
 ```bash
 magnet:?xt=urn:btih:136CB3A18FA871075BA09BF9F6016949D65BD121
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:136CB3A18FA871075BA09BF9F6016949D65BD121
 magnet:?xt=urn:btih:1DDB1E16CC88CAA57B92433BC8CA6C2A5DB6125D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ Nat Geo Wild: Дикая Тасмания. Страна Дьявола / Wild Ta
 magnet:?xt=urn:btih:4FBAA384ACF0A9B77E971200108842E1530C5B59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:4FBAA384ACF0A9B77E971200108842E1530C5B59
 ```bash
 magnet:?xt=urn:btih:0602FFC526C77A35B68A2883CBC55BE464DF6213
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:0602FFC526C77A35B68A2883CBC55BE464DF6213
 magnet:?xt=urn:btih:E29BC738A0F7404DDC1C7C8EB14151EC09D9AF62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:E29BC738A0F7404DDC1C7C8EB14151EC09D9AF62
 magnet:?xt=urn:btih:ED25F14EB0F99C438954610738866C7286A45AAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:ED25F14EB0F99C438954610738866C7286A45AAB
 ```bash
 magnet:?xt=urn:btih:504B1731762E25CD4CF9A9E3B680ED1C0A981CFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:504B1731762E25CD4CF9A9E3B680ED1C0A981CFD
 magnet:?xt=urn:btih:840C2C475805A66B32337F5FD314FABEE76BDEB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:840C2C475805A66B32337F5FD314FABEE76BDEB4
 ```bash
 magnet:?xt=urn:btih:7D15A79D11685B2B45AAAA52E1D4816B91703A5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:7D15A79D11685B2B45AAAA52E1D4816B91703A5F
 magnet:?xt=urn:btih:1FE7E8047CE370373CFBFA9DD312B57298141B00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:1FE7E8047CE370373CFBFA9DD312B57298141B00
 ```bash
 magnet:?xt=urn:btih:9E148EE0D082115B9972292BC0BA9DC444D69527
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:9E148EE0D082115B9972292BC0BA9DC444D69527
 magnet:?xt=urn:btih:E8ABA4AD86223BC937BB506C9CFDA9AC97C0C579
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:E8ABA4AD86223BC937BB506C9CFDA9AC97C0C579
 ```bash
 magnet:?xt=urn:btih:16D3E282DE758AE8102DEBD9F232DD646CDAD15A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:16D3E282DE758AE8102DEBD9F232DD646CDAD15A
 magnet:?xt=urn:btih:FA0BADFB811445D0E70D5A35305C6BEABFFDF22E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:FA0BADFB811445D0E70D5A35305C6BEABFFDF22E
 ```bash
 magnet:?xt=urn:btih:16BD1EC0C9F9BCF2518B5C046E1705BCCBFE5159
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:16BD1EC0C9F9BCF2518B5C046E1705BCCBFE5159
 magnet:?xt=urn:btih:05EBA580C3BE3BA3B3146808DACA3F1448536FCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:05EBA580C3BE3BA3B3146808DACA3F1448536FCC
 ```bash
 magnet:?xt=urn:btih:CCBEBD75571878361F69431936B051AA344B697B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:CCBEBD75571878361F69431936B051AA344B697B
 magnet:?xt=urn:btih:0F18A28312C56E55DEB1F01D2B4E342A21A60925
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:0F18A28312C56E55DEB1F01D2B4E342A21A60925
 ```bash
 magnet:?xt=urn:btih:1077225BF3E7B6831765C37AA07C3012A90EC92A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:1077225BF3E7B6831765C37AA07C3012A90EC92A
 magnet:?xt=urn:btih:9911E0C58A6A615235407AE6A836AED605BCB4CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:9911E0C58A6A615235407AE6A836AED605BCB4CB
 ```bash
 magnet:?xt=urn:btih:39DC4E6834D530B0F0012EF5F5BD68F1AB3B57C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:39DC4E6834D530B0F0012EF5F5BD68F1AB3B57C0
 magnet:?xt=urn:btih:B4DD99A365A5F39235384AF8A64B32CBF2955D8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:B4DD99A365A5F39235384AF8A64B32CBF2955D8B
 ```bash
 magnet:?xt=urn:btih:4912068F857D019BDDB1E565A8E99B338B87B17F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,29 +674,7 @@ NG: Аполлон 8. Миссия, которая изменила мир / Apo
 magnet:?xt=urn:btih:910A858523ADB5D8B93AE1C64F157D8EB772DD94
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930365   (515991) от 22.08.2015
-
-Танцы. Сезон №2. Выпуск №1 (2015) SATRip
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515991.jpg" />
-</div>
-
-
-###  Подробнее
-
-22 августа на ТНТ стартует новый сезон самого масштабного танцевального шоу страны. Создатели обещают, что он будет еще круче, ярче и мощнее: больше городов, больше претендентов, больше чем просто танцы! Заявки на участие в предварительных кастингах прислали более 10 000 человек! Отсев в этот раз был гораздо жестче, однако на телевизионных кастингах будет представлено (   Читать дальше...   )Телекомпания: ТНТЖанр: ТелепередачаПродолжительность: 01:35:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:602C77E2A3F8E1E7E4DCA8B4BB7D1D3B02399E51
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

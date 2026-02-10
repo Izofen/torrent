@@ -1,3 +1,147 @@
+###  Публикация: 1565552   (492601) от 24.07.2022
+
+Ren Woods - Out Of The Woods (1979) Remastered, 2013, Columbia [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hooked On A Love Groove (3:31)
+02. I Love The Way You Do It (4:40)
+03. I Need Someone To Touch Me (4:07)
+04. Sticks And Stones (3:19)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:50:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5B09B48F77CE289D1FDA23F1D2245D5C453128E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318788   (492621) от 07.08.2019
+
+VA - Italo Made In Spain (2017) CDr, Compilation, Partially Mixed [FLAC|Lossless|image + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Various (mixed By Juan Martinez & Toni Bafles) - Italo Made In Spain (Long Version) (15:45)
+02. Night In Wales - Sunday Night (5:09)
+03. Stylove feat. Naoky - Now Close Your Eyes (6:17)
+04. Laetitia - I Will Surrender (5:39)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:17:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9722448B77D10B29C7C56888D8A1761BFE1BB881
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318599   (492714) от 07.08.2019
+
+VA - Disco Fieber - 48 Super Disco Hits (1980) 3LP [MP3|320 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальный выпуск, объединивший трех германских гигантов-производителей дисков в одном издании суперсборника.01. Boney M. - Ribbons Of Blue (4:06)
+02. Linda Fletcher - Hush (2:47)
+03. Sarah Brightman & The Starship Troopers - The Adventures Of The Love Crusaders (4:02)
+04. Benelux & Nancy - Switch (3:51)(   Читать дальше...   )Жанр: DiscoПродолжительность: 02:55:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED7821A16177542659D66271E5D5EC2F85295BCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318781   (492730) от 07.08.2019
+
+VA - Italo Made In Spain (2017) [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Various (mixed By Juan Martinez & Toni Bafles) - Italo Made In Spain (Long Version) (15:45)
+02. Night In Wales - Sunday Night (5:09)
+03. Stylove feat. Naoky - Now Close Your Eyes (6:17)
+04. Laetitia - I Will Surrender (5:39)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:17:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDEA84943ED910EFC55A2E5EEAE349DC8988A0CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318784   (492838) от 07.08.2019
+
+VA - Italo Made In Spain 6 (2019) 2xCD, Mixed [MP3|~245 Kbps (V0)] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Various - Italo Made In Spain 6 (Megamix Long Version) (13:06)
+02. Various - Italo Made In Spain 6 (Mix Version) (41:24)
+03. Various - Italo Made In Spain 6 (Megamix Edit Version) (7:27)Жанр: Italo-DiscoПродолжительность: 02:05:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:127CDC767BB663729DD58685DF13713DCC160670
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318782   (492839) от 07.08.2019
 
 VA - Italo Made In Spain 5 (2018) 2xCD, Compilation [MP3|~245 Kbps (V0)] <Italo-Disco>
@@ -18,6 +162,8 @@ VA - Italo Made In Spain 5 (2018) 2xCD, Compilation [MP3|~245 Kbps (V0)] <Italo-
 ```bash
 magnet:?xt=urn:btih:CAF5A4D30065CC1D4DCBCA47C1128591BD561285
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +192,8 @@ Julio Iglesias Jr. - Por La Mitad (2008) Parlophone Spain [FLAC|Lossless|WEB-DL|
 magnet:?xt=urn:btih:C25C69503F93C4AB67F964A6FB39686952496E88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +217,8 @@ VA - Русская Коллекция. ХИТЫ 60-х Часть I, II (2009) [
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +253,8 @@ VA - Disco Discharge. Disco Boogie (2010) 2CD[FLAC|Lossless]<Disco, Pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +281,8 @@ VA - 90's Love Songs (2020) [MP3|320 Kbps] <Pop, Rock, Other>
 ```bash
 magnet:?xt=urn:btih:4849F3EF6EB03B096806F9350A41B85107B7D68C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +311,8 @@ Vanessa Mai - Regenbogen (2017) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:2CF08D98DECF4F080E8C81EF6AFA7278F6FA48ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +339,8 @@ JoJo - Good To Know (2020) [FLAC|Lossless|tracks + .cue] <Pop, R&B, Soul>
 ```bash
 magnet:?xt=urn:btih:4709FDCFBEF2134754CCA54B5CA62E7D03188A56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +375,8 @@ VA - Italo Dance Club (2005) 2CD[FLAC|Lossless]<Disc, Pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +403,8 @@ VA - Festivalbar '79 (1979) 2LP [MP3|320 Kbps] <Electronic, Disco, Pop Rock, Bal
 ```bash
 magnet:?xt=urn:btih:819CC9A47119FE4222E0351FCE66184B20FF85F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +433,8 @@ Arabesque - The Best - Легенды дискотек 80-х (2008) Compilation[
 magnet:?xt=urn:btih:C7EC65D7ED592B54C89F3C83632AE7C67080B946
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +461,8 @@ Baltimora - Tarzan Boy: The World Of Baltimora (2010) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:45C4A85665E1ABB127D1B25904BF016F9A2AF326
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +491,8 @@ CD 1:
 magnet:?xt=urn:btih:7B7BBB8174E20374038E5F62EC8044B5DE1EB1D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +519,8 @@ CD 01:
 ```bash
 magnet:?xt=urn:btih:BA18987F19070C25EC8DB08433A89E2B3AABE45D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +549,8 @@ Peter Wilson - The Passion and The Flame (2018) 2CD [MP3|320 Kbps] <Italo-Disco,
 magnet:?xt=urn:btih:C2DF9773F8F1DE1279026D1B9B8FE711F141B93D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +577,8 @@ CD 01:
 ```bash
 magnet:?xt=urn:btih:664C4F3B80D420FEE1EB01FE4E141534812AD26D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +608,8 @@ Boris Midney - Борис Мидный - американский диско-п�
 magnet:?xt=urn:btih:272283DBCD7C9D9FCDD57C9A01BF19801BDD1AE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +637,8 @@ VA - NOW That's What I Call Club Hits (2014) [MP3|320 кб/с]<Pop, Dance, Club>
 magnet:?xt=urn:btih:566D675AE5EE3AE4B03E83C1B84AC6050158EBDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +662,8 @@ Bad Boys Blue - 25-The Long Mixes (2022) [MP3|320 Kbps] <Disco, Dance, House>
 ```bash
 magnet:?xt=urn:btih:49108438C0B73AAA2A6D3C47862090D9218D7FE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +692,8 @@ Bananarama - Masquerade (2022) [MP3|320 Kbps] <Pop, Disco>
 magnet:?xt=urn:btih:3D8C751A4F15759B0AF8083A816910C28EA8B066
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +720,8 @@ Bananarama - Masquerade (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Pop, Disco>
 ```bash
 magnet:?xt=urn:btih:3694A79E62AEF26E88DB22920EF332FD50D4636B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,138 +750,7 @@ Berlin - Transcendance (2019) [MP3|320 Kbps] <Pop, Electronic>
 magnet:?xt=urn:btih:2535A88822287BD252AE7406D4329129D19C8E3B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565428   (494771) от 23.07.2022
-
-Billie Eilish - Guitar Songs (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Indie Pop, Alternative>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Билли Айлиш — американская певица и автор песен. 21 июля 2022 года она выпускает мини-альбом «Guitar Songs» с двумя треками-сюрпризами «TV» и «The 30th».01. TV
-02. The 30thЖанр: Pop, Indie Pop, AlternativeПродолжительность: 00:08:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CB5BBC19945B29AD2B2B6A8479A624E817F6B21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318348   (494816) от 06.08.2019
-
-Илья Гусев - Летим на Марс! (2019) [MP3|320 Kbps] <Pop, Neo-Disco>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Моё первое письмо (3:44)
-02. Щекой к щеке (3:53)
-03. Малиновый поцелуй (4:11)
-04. Заказывай желание (4:15)(   Читать дальше...   )Жанр: Pop, Neo-DiscoПродолжительность: 00:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FA747B5BFBA2F94C39BB700EA1813F20082F2F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158103   (495412) от 14.08.2017
-
-VA - 100 Hits Boogie Nights (2017) Box Set, 5CD [FLAC|Lossless|tracks + .cue] <Pop, Disco, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию представляется совсем свеженький (4 августа 2017 года) релиз от Demon Music Group. Серия 100 Hits довольно хорошо представлена на нашем трекере (ссылка как всегда внизу) и каких только соток не выходило за эти годы. Данный боксет отличает то, что из 60-70-80-х, т.е. за три десятилетия выбраны как известные исполнители, так и те, кто успел уже подзабыться, (   Читать дальше...   )CD1:
-01. Heatwave - Boogie Nights  (3:38)
-02. Wild Cherry - Play That Funky Music  (3:12)
-03. Baccara - Yes Sir, I Can Boogie  (3:17)(   Читать дальше...   )Жанр: Pop, Disco, SoulПродолжительность: 06:02:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92EA0D4F5BA3CDE0922ADCD964ECAE834F1C15C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158027   (495681) от 14.08.2017
-
-VA - Nrj Holiday Hits (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495681.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Jason Derulo – Swalla
-02. Luis Fonsi, Daddy Yankee – Despacito
-03. Louane – On Etait Beau(   Читать дальше...   )Жанр: PopПродолжительность: 03:22:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26A9B9EC885C84C78C17526F56600F24A5D96D8A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242849   (495733) от 25.08.2018
-
-Mylene Farmer - Anamorphosee (1995) France [FLAC|Lossless|image + .cue] <Rock, Funk, Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. California                   (4:58)
-02. Vertige                      (5:26)
-03. Mylene S'En Fout             (4:30)
-04. L'Instant X                  (4:45)(   Читать дальше...   )Жанр: Rock, Funk, Soul, PopПродолжительность: 00:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06D6508CCAB39769AAF9405DB3805629C49AEAEE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

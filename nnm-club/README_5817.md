@@ -22,6 +22,8 @@ Altar (Br) - Ancestral (2017) EP [FLAC|Lossless|Web-DL|tracks] <Ambient, Dark Am
 magnet:?xt=urn:btih:17338B85ED8CBABD26C685FBF610B88A58DC0A76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Gothminister - Gothic Electronic Anthems (2003) [FLAC|Lossless|image + .cue] <In
 magnet:?xt=urn:btih:041DCBC30FFE7C74F4C959369A95CF206AB36B5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:041DCBC30FFE7C74F4C959369A95CF206AB36B5C
 ```bash
 magnet:?xt=urn:btih:A2341228E0C0A323547E47837E796523BD664E70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ VA - Dirty House Winter '20 (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Electro H
 magnet:?xt=urn:btih:23194E457FAFDBFC6C5B7053F047EF31A19FCC8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:23194E457FAFDBFC6C5B7053F047EF31A19FCC8C
 ```bash
 magnet:?xt=urn:btih:4ABFA9D78B1961B79389656F12B0773FBD0D8CC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -152,6 +162,8 @@ The Enid - An Alternative History Volume One (1994) Remaster, Compilation, 2023,
 magnet:?xt=urn:btih:FC433673E61A872E82B56A12EC74478733440C55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:FC433673E61A872E82B56A12EC74478733440C55
 magnet:?xt=urn:btih:CD05C8087BE34CDC8B82DFCB1BC1F1DC3D91307A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:CD05C8087BE34CDC8B82DFCB1BC1F1DC3D91307A
 ```bash
 magnet:?xt=urn:btih:BAADF32782E383E9C9E9909AA6441B13028C9E90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ Dusk - Wheels of Twilight (2023) [FLAC|Lossless|WEB-DL|tracks] <heavy metal, har
 magnet:?xt=urn:btih:D6A71AAADF02B4256DEBC6A6D5A9F11B32F70B8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ VideoPad - это мощное программное обеспечение д�
 ```bash
 magnet:?xt=urn:btih:13F11618643B3ABB644D2BED5BA76C2D0918C5CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ PDF-XChange Editor — программа для просмотра, редак�
 magnet:?xt=urn:btih:D5692CCBBF923C5A4A78EFCAE7C759A0D7E33D26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:D5692CCBBF923C5A4A78EFCAE7C759A0D7E33D26
 ```bash
 magnet:?xt=urn:btih:CFE7B379A18F11E8D23231F716F8E7EE5D1CAFF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +350,8 @@ Lebowski - 2 Albums (2010-2019) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 magnet:?xt=urn:btih:7838E77768FA52531B8F2B4B09C13DDFA79B6600
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ SolNegre - The Spiral Labyrinth (2023) [FLAC|Lossless|WEB-DL|tracks] <doom death
 ```bash
 magnet:?xt=urn:btih:A2DEC75821EDECD96A0031CDFDCDD227C9BA71AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +408,8 @@ VA - All Night Jazz: Chillout Your Mind (2020) [AAC|~317 Kbps] <Lounge, Chillout
 magnet:?xt=urn:btih:595E479B65063043E9EEA229679F59D7F4443A77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +437,8 @@ The Keening - Little Bird (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 magnet:?xt=urn:btih:9709E80C32792C5075FEE3440CE3628950436539
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ magnet:?xt=urn:btih:9709E80C32792C5075FEE3440CE3628950436539
 ```bash
 magnet:?xt=urn:btih:E62884F7B7DCDAE488D0B80A8E0BA86E9320BA1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +490,8 @@ Audio Playr App может обрабатывать почти все, если 
 magnet:?xt=urn:btih:5323B5B692ABB0DA719D52481C3148785476B4E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +515,8 @@ magnet:?xt=urn:btih:5323B5B692ABB0DA719D52481C3148785476B4E3
 ```bash
 magnet:?xt=urn:btih:0F9F84D9F92FA071855BBA6490FF360608A523CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +545,8 @@ As The Structure Fails - In Vain (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore
 magnet:?xt=urn:btih:DC5838C2BD2379D0869DF5F048A4298272964EAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +570,8 @@ magnet:?xt=urn:btih:DC5838C2BD2379D0869DF5F048A4298272964EAE
 ```bash
 magnet:?xt=urn:btih:BD52324FFB128E98542425B78D84F7E7F6DC490E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +600,8 @@ magnet:?xt=urn:btih:BD52324FFB128E98542425B78D84F7E7F6DC490E
 magnet:?xt=urn:btih:F18166562F235BC9A09FBD1038C95123FF390448
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +629,8 @@ Primal Fear - Apocalypse (2018) Bonus Track Edition [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:83C9DE479D01BE8333E137BED4786AFC5E8BA238
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +655,8 @@ magnet:?xt=urn:btih:83C9DE479D01BE8333E137BED4786AFC5E8BA238
 magnet:?xt=urn:btih:E50CCEFA74A04954B602A4903DE725277971CAB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +680,8 @@ NewPipe – это клиент для Youtube, который не исполь
 ```bash
 magnet:?xt=urn:btih:9B8711ED7C604ADEA63D8D199B8FFDCAAB11A1DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -659,6 +709,8 @@ magnet:?xt=urn:btih:9B8711ED7C604ADEA63D8D199B8FFDCAAB11A1DA
 ```bash
 magnet:?xt=urn:btih:A99F5DA0FE1D8BEF6C94515C2CBD0D08934A3180
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

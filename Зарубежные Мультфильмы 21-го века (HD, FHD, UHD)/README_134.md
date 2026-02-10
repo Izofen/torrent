@@ -1,27 +1,3 @@
-###  Публикация: 1466905   (1018127) от 01.05.2021
-
-Митчеллы против машин / The Mitchells vs. the Machines (2021) WEB-DL [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Своеобразная семейка, которую едва ли можно назвать идеальной, отправляется в поездку на машине и оказывается посреди восстания роботов. Кто бы мог подумать: теперь они последняя надежда человечества на спасение!Производство: США, Канада, Франция / Sony Pictures Animation, Lord Miller, Columbia PicturesЖанр: Мультфильм, фантастика, комедия, приключения, семейныйРежиссер: Майкл Рианда, Джефф РоуАктеры: Эбби Джейкобсон, Дэнни Макбрайд, Майя Рудольф, Майкл Рианда, Эрик Андре, Оливия Колман, Фред Армисен, Бек Беннетт, Крисси Тиган, Джон ЛеджендПеревод: Дублированный (Пифагор)Субтитры: Русские (Forced, Full), Украинские (Forced, Full), Английские (Full)Продолжительность: 01:54:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D6F6D6B02F5E085B965B99F0BAC552760BE6E7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466764   (1018143) от 01.05.2021
 
 Том и Джерри / Tom and Jerry (2021) BDRip [H.264/1080p-LQ]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:2D6F6D6B02F5E085B965B99F0BAC552760BE6E7D
 ```bash
 magnet:?xt=urn:btih:65B701187DA420940C2A5C8BD0BDC579FCFAC944
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:65B701187DA420940C2A5C8BD0BDC579FCFAC944
 magnet:?xt=urn:btih:9AB10601C8F7F5EEFC12BE10F0E0E8B0DD51E963
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:9AB10601C8F7F5EEFC12BE10F0E0E8B0DD51E963
 ```bash
 magnet:?xt=urn:btih:B9FC6D7A4608BECA5C14CED312A8C392158F69E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:B9FC6D7A4608BECA5C14CED312A8C392158F69E4
 magnet:?xt=urn:btih:9F66795110AF47983ED38AB4410CFC1933B52851
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +123,8 @@ magnet:?xt=urn:btih:9F66795110AF47983ED38AB4410CFC1933B52851
 magnet:?xt=urn:btih:2ABB013F7A51D4295CCF0610DBDA67330B5EC6D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +148,8 @@ The Justice Society of America , a group of heroes aiding the allies in World Wa
 ```bash
 magnet:?xt=urn:btih:9927B0178745699DC40E3612A3F91D1CDCFED690
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +176,8 @@ magnet:?xt=urn:btih:9927B0178745699DC40E3612A3F91D1CDCFED690
 magnet:?xt=urn:btih:9CA038D7FA6360FB8CD50CF7CEDEEE50DAFA3114
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:9CA038D7FA6360FB8CD50CF7CEDEEE50DAFA3114
 ```bash
 magnet:?xt=urn:btih:FDE6BE458E43DCDDDBDC240498FA1D9ACCBADBE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +228,8 @@ magnet:?xt=urn:btih:FDE6BE458E43DCDDDBDC240498FA1D9ACCBADBE6
 magnet:?xt=urn:btih:61180B0A8BD6AEADA2E105585EC51D2C92954457
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:61180B0A8BD6AEADA2E105585EC51D2C92954457
 ```bash
 magnet:?xt=urn:btih:0F7CBDF6516BCA2D94D70715C52DF1BA6F4B5007
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +280,8 @@ magnet:?xt=urn:btih:0F7CBDF6516BCA2D94D70715C52DF1BA6F4B5007
 magnet:?xt=urn:btih:425A076CF763A75D7222A89F9400FE527543FAAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:425A076CF763A75D7222A89F9400FE527543FAAF
 ```bash
 magnet:?xt=urn:btih:72FD2EF63B6BFD6B5B2A3731244F3C3192A9FC49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +334,8 @@ magnet:?xt=urn:btih:72FD2EF63B6BFD6B5B2A3731244F3C3192A9FC49
 magnet:?xt=urn:btih:0344EAE0ABCDFABE92D1E71F7695D9B8CB5BD1E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +359,8 @@ magnet:?xt=urn:btih:0344EAE0ABCDFABE92D1E71F7695D9B8CB5BD1E4
 ```bash
 magnet:?xt=urn:btih:9646484412E94D1AB5BFD44CDC599DD55EE58376
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +388,8 @@ magnet:?xt=urn:btih:9646484412E94D1AB5BFD44CDC599DD55EE58376
 magnet:?xt=urn:btih:EC22FF4EE2A41AB2BE821B37251CDFCD9E676F98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +413,8 @@ magnet:?xt=urn:btih:EC22FF4EE2A41AB2BE821B37251CDFCD9E676F98
 ```bash
 magnet:?xt=urn:btih:69D3151F252EF1A8CBD919E52ACCAD03E753946A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +440,8 @@ magnet:?xt=urn:btih:69D3151F252EF1A8CBD919E52ACCAD03E753946A
 magnet:?xt=urn:btih:8CE3A6DB587E1106BADC522A225F89979107355D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +465,8 @@ magnet:?xt=urn:btih:8CE3A6DB587E1106BADC522A225F89979107355D
 ```bash
 magnet:?xt=urn:btih:0BAC4F7D2441C46EE9BFC98C97FE549C089F6048
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +492,8 @@ magnet:?xt=urn:btih:0BAC4F7D2441C46EE9BFC98C97FE549C089F6048
 magnet:?xt=urn:btih:ADBA9C3B65566D61B05B157FDDBAB766DA86E091
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +517,8 @@ magnet:?xt=urn:btih:ADBA9C3B65566D61B05B157FDDBAB766DA86E091
 ```bash
 magnet:?xt=urn:btih:535C11F53154877F83E857565505AAFEB0132992
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +544,8 @@ magnet:?xt=urn:btih:535C11F53154877F83E857565505AAFEB0132992
 magnet:?xt=urn:btih:B03A4D509B71E70957F5207E4665CCC5564E754F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +569,8 @@ magnet:?xt=urn:btih:B03A4D509B71E70957F5207E4665CCC5564E754F
 ```bash
 magnet:?xt=urn:btih:518C7ADF9E4721BBFDA5C4F76D08EBBDB0424151
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +596,8 @@ magnet:?xt=urn:btih:518C7ADF9E4721BBFDA5C4F76D08EBBDB0424151
 magnet:?xt=urn:btih:50CEDAD018AAD5533776E008C20C636C51EEF988
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +622,8 @@ magnet:?xt=urn:btih:50CEDAD018AAD5533776E008C20C636C51EEF988
 magnet:?xt=urn:btih:89050D3705850BFFF65871928C3A66CC6A5A5E77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +647,34 @@ magnet:?xt=urn:btih:89050D3705850BFFF65871928C3A66CC6A5A5E77
 ```bash
 magnet:?xt=urn:btih:692C3E2CB00FD18E212D28132AA147747C8BD7B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460486   (1022403) от 06.04.2021
+
+Свиная отбивная / Pork Chop (2020) WEBRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Свиная голова в мясной лавке рвется на свободу!Производство: США / Ringling College of Art and DesignЖанр: Короткометражный, комедия, ужасы, для взрослыхРежиссер: Katherine GuggenbergerПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: ОтсутствуютПродолжительность: 00:02:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECC3C092BA881AE2B6ACB427D57E573ACE8553C6
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Klaus Schonning - Kaleidoscope (2017) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:6368FD23C843FA5F5F38170818BFC9447C52F489
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Bernward Koch - Filled With Light (2017) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:23C9FB4D9394A7BF477964735423B32D783CB122
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Two Steps From Hell - Unleashed (2017) [MP3|320 Kbps] <Soundtrack, Instrumental,
 magnet:?xt=urn:btih:F3DCD735EA65BD086F5C246400152F1B9EDE0E92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Stephanie Quayle - Love The Way You See Me (2017) [FLAC|Lossless|tracks] <Countr
 ```bash
 magnet:?xt=urn:btih:FF94E6C0A558AAF9D0521FDDDAC31FDBA9B9AE7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Various Artists - Lock, Stock & Two Smoking Barrels (Expanded) (1999) [MP3|320 K
 magnet:?xt=urn:btih:4A5D69D0AEC8478570FE3D98138817750088CA7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ Rolfe Kent - Kate & Leopold (2001) [MP3|320 Kbps] <Score>
 magnet:?xt=urn:btih:034EAA79C1BAD3B3BF50B1ACFE40A180D1EE5738
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +195,8 @@ Various Artists - Pretty Woman (1990) [MP3|320 Kbps] <Soundtrack>
 ```bash
 magnet:?xt=urn:btih:2C210D2B00847842A8999B9F28F9A38AFCCDEA02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +231,8 @@ Manuel Granada - The Hi-Fi Sound of Spanish Guitar (2007) [FLAC|Lossless]<Guitar
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +265,8 @@ Lo Yan - Audiophile Latin Guitar (2010) [FLAC|Lossless]<Guitar, Instrumental>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +301,8 @@ Daridan - Listen To Beautiful Music II (2012) [MP3|320 кб/с]<New age, Instrum
 magnet:?xt=urn:btih:4D1558E7C3DA97311F2A48C9C8400BA4FFC43893
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +329,8 @@ Richard Evans - Seaside: Solo Piano (2008) [FLAC|Lossless|tracks] <New Age, Solo
 ```bash
 magnet:?xt=urn:btih:ED33C69ABC8A1A888FB44C081E7A7CCB49420068
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +359,8 @@ Ashla Taylor - Truth Is... (2017) EP [FLAC|Lossless|tracks] <Country>
 magnet:?xt=urn:btih:B875C20795F36DABEB22D98D06C7E87F7A73115E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +387,8 @@ Brian Tyler - Law Abiding Citizen (2009) [MP3|320 Kbps] <Score>
 ```bash
 magnet:?xt=urn:btih:2F674F5F0FDFA77B611E01F749A597675C96B14A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +423,8 @@ Trace Bundy - 4 albums (2000-2012) [MP3|320 kbps]<New age, Instrumental, Folk, A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +450,8 @@ Neil Young - Theme From Dead Man (1996) Single [FLAC|Lossless|tracks + .cue] <So
 ```bash
 magnet:?xt=urn:btih:B05BA5A6EA54B7EFAE336C6275A028395FE7441B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +479,8 @@ Stu Larsen - Marigold (2020) [FLAC|Lossless|tracks + .cue] <Folk>
 ```bash
 magnet:?xt=urn:btih:4AD76D7B7D6B7E2C46EAC58FE6A44C7D4044F93F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +515,8 @@ VA - Сборник Cаундтреков (1966-2012) [MP3|320 кб/с]<Soundtra
 magnet:?xt=urn:btih:C1D24FC1B3E2B5362FFCF225B6AA31D03F3D2A8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +543,8 @@ Enigma - The Screen Behind The Mirror (2000) [OGG Vorbis|485 Kbps] <New Age, Amb
 ```bash
 magnet:?xt=urn:btih:C8DB5775AC8178908C8165160739F7ED474F68B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +579,8 @@ Reservoir Dogs / Бешеные псы - OST (1992) [MP3|320 кб/с]<OST>
 magnet:?xt=urn:btih:845783EDBD4A0F79CD595893064A438E17790658
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +607,8 @@ Johan Soderqvist & Patrik Andren - Battlefield 1 (Original Soundtrack) (2016) [F
 ```bash
 magnet:?xt=urn:btih:59145CF947D3AF1A9A6FC56D5F02C637551BF707
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +637,8 @@ Guido Negraszus - Secret Paradise (Cafe Chillout & Dream Lounge) [FLAC|Lossless|
 magnet:?xt=urn:btih:7745146E14387B6B85F1824A99B37B890824D92A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +666,8 @@ Stephen Barton - Titanfall 2 (Original Soundtrack) (2016) [FLAC|Lossless|WEB-DL|
 magnet:?xt=urn:btih:D52E3FAB1F2BD29327AFF44C740E6A3E67A23340
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +694,8 @@ Johan Soderqvist & Patrik Andren - Battlefield 1 (Original Soundtrack) (2016) [M
 ```bash
 magnet:?xt=urn:btih:3D51C0E074BE2C870DF03CAE905405E40FD69BEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -679,6 +725,8 @@ Dark Souls II (рус. Тёмные души II) — видеоигра в жа�
 magnet:?xt=urn:btih:97F68FFF4E55E3CBDBF1B086EA2CCB815E218365
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -706,6 +754,8 @@ magnet:?xt=urn:btih:97F68FFF4E55E3CBDBF1B086EA2CCB815E218365
 magnet:?xt=urn:btih:BE0EA1D9AC58DCB102C4E2BE05B06BDF89FF6B4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -732,6 +782,8 @@ Abdulrahman Zaibak - The Current (Instrumental) (2017) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:D1EA071513857301A07846CE4E47F0645E91B6CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

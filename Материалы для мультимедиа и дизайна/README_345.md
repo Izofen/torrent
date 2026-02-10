@@ -1,3 +1,133 @@
+###  Публикация: 1275317   (790993) от 10.01.2019
+
+NNM-Club Sound Cleaner Collection from anopymous
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эксклюзивная коллекция музыкальных треков и звуковых эффектов AudioJungle к проектам After Effects от нашего одноклубника anopymous, идейного вдохновителя и организатора группы Sound cleaner.Формат: WAV, MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ECF5CC88731B6E84D66F3B90CF6903C66F4BEA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275320   (790999) от 10.01.2019
+
+NNM-Club Sound Cleaner Collection from Nataly11
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эксклюзивная коллекция музыкальных треков и звуковых эффектов AudioJungle к проектам After Effects от нашей одноклубницы Nataly11, стоявшей у истоков группы Sound cleaner.Формат: WAV, MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2829AB3E8BBC56A246986135B5F4DEB644ED511
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275085   (791000) от 10.01.2019
+
+Шаблоны - GraphicRiver - Kids Birthday Party - 20907262 [PSD, AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Яркий и красочный праздничный детский шаблон (флаер) для дня рождения.Формат: PSD, AIРазрешение файлов: 1875x2625
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78589E1A9BFB3A61FAACDCDD453FDDB1DCE201C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275148   (791038) от 10.01.2019
+
+Шрифты - Creative Market - SKATISTA 80% Greek+Cyrillic - 236715 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пять типов, которые сделают ваш дизайн более увлекательным, вдохновленным скейтбордингом и идеально подходящим для экстремальных видов спорта.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D01A97FC59204C05086465BFCA8F9A5FAB8D1D67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275145   (791042) от 10.01.2019
+
+Шрифты - Creative Market - Miletta typeface with ligatures - 313565 [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Miletta - красивый рукописный шрифт, написанный настоящей кистью и тушью. Отсканированный с любовью и адаптирован для использования в качестве шрифта. Автор делал много лигатур и альтернатив, поэтому Ваша творческая работа будет веселой и милой.Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3963C6A1736F9AAF2A803E432AFF9C638D55BDF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275144   (791043) от 10.01.2019
 
 Шрифты - Creative Market - Laqonic 4F Unicase (Family) - 526666 [TTF, OTF]
@@ -18,6 +148,8 @@ Laqonic 4F Unicase - Простой и в тоже время интересны
 ```bash
 magnet:?xt=urn:btih:CDA096B8286425B759547A348AADE2567BAA6758
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +175,8 @@ Gora - Многоязычный симпатичный, оригинальный
 magnet:?xt=urn:btih:BB286F04766C38B6F25CD7F6ED73DDEDA150B3A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +200,8 @@ Bubble Kids - Забавный улыбающийся шрифт, включае
 ```bash
 magnet:?xt=urn:btih:2776F9CF316326D2303946FB23607EBF3532C073
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +227,8 @@ magnet:?xt=urn:btih:2776F9CF316326D2303946FB23607EBF3532C073
 magnet:?xt=urn:btih:193DA934D4BB56C57DA667991558D26F5A6D0878
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +252,8 @@ Scrimshaw CPC - это шрифт, вдохновленный искусство
 ```bash
 magnet:?xt=urn:btih:BF93415628BCC6F0FBDBF26F820EEE16EDF32FD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +279,8 @@ magnet:?xt=urn:btih:BF93415628BCC6F0FBDBF26F820EEE16EDF32FD6
 magnet:?xt=urn:btih:6417CC32ED390D479BE8AB2E17A77E353B9D69AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +304,8 @@ magnet:?xt=urn:btih:6417CC32ED390D479BE8AB2E17A77E353B9D69AD
 ```bash
 magnet:?xt=urn:btih:43235AAAE3A59C30D59381B56B18BD8995E04BD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +331,8 @@ magnet:?xt=urn:btih:43235AAAE3A59C30D59381B56B18BD8995E04BD3
 magnet:?xt=urn:btih:0C4C22B54D1B82716C070BDFF3414006F153AFB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +356,8 @@ magnet:?xt=urn:btih:0C4C22B54D1B82716C070BDFF3414006F153AFB4
 ```bash
 magnet:?xt=urn:btih:DDF38BEE0AA3DAAB41F0A36F0AC5311E63037811
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +383,8 @@ magnet:?xt=urn:btih:DDF38BEE0AA3DAAB41F0A36F0AC5311E63037811
 magnet:?xt=urn:btih:2387AD0753F713957E060F5E793565C937A4773E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +408,8 @@ magnet:?xt=urn:btih:2387AD0753F713957E060F5E793565C937A4773E
 ```bash
 magnet:?xt=urn:btih:6B33CAB97F5D61B626AB05606E5C33FB43FE167C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +435,8 @@ magnet:?xt=urn:btih:6B33CAB97F5D61B626AB05606E5C33FB43FE167C
 magnet:?xt=urn:btih:16DE7E8D7384C100EF4EAF937B5D1A7B28495945
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +461,8 @@ magnet:?xt=urn:btih:16DE7E8D7384C100EF4EAF937B5D1A7B28495945
 magnet:?xt=urn:btih:8BCD1E3414DB9FFADA4B7D6D8EF2EBE5E0986B7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +486,8 @@ magnet:?xt=urn:btih:8BCD1E3414DB9FFADA4B7D6D8EF2EBE5E0986B7C
 ```bash
 magnet:?xt=urn:btih:28D32B2FCDCA30733715BC9AD48385E50C28F7EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +515,8 @@ magnet:?xt=urn:btih:28D32B2FCDCA30733715BC9AD48385E50C28F7EF
 magnet:?xt=urn:btih:46CFECC9C3663CC8090AECE9548F6465B622554C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +540,8 @@ magnet:?xt=urn:btih:46CFECC9C3663CC8090AECE9548F6465B622554C
 ```bash
 magnet:?xt=urn:btih:BE1D1672F659E4653618B5AA8415E74A87A45065
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +567,8 @@ magnet:?xt=urn:btih:BE1D1672F659E4653618B5AA8415E74A87A45065
 magnet:?xt=urn:btih:B58610AEBE81BF96D7A3752422D54B4DCDB74934
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +592,8 @@ magnet:?xt=urn:btih:B58610AEBE81BF96D7A3752422D54B4DCDB74934
 ```bash
 magnet:?xt=urn:btih:9E438DF933E385491980F109A9F2844381E7573C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +621,8 @@ magnet:?xt=urn:btih:9E438DF933E385491980F109A9F2844381E7573C
 magnet:?xt=urn:btih:A6430646DBC423E4C9FCB2C391BEE7588743F3D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +646,8 @@ magnet:?xt=urn:btih:A6430646DBC423E4C9FCB2C391BEE7588743F3D4
 ```bash
 magnet:?xt=urn:btih:CB3033AE1CD9B844C2644D17ED6156DDED15FDF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,127 +673,7 @@ magnet:?xt=urn:btih:CB3033AE1CD9B844C2644D17ED6156DDED15FDF1
 magnet:?xt=urn:btih:A7E6DC188BE608E7D793188945B91FA4975148D9
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201790   (791506) от 26.01.2018
-
-Векторный клипарт - Fotolia - Truck Vehicle Collection [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Коллекция грузовых автомобилей
-25 EPS + Jpeg PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF56CDCBA8E720C97DC75812AFA100744B7F3885
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274869   (791553) от 09.01.2019
-
-Фоны и наложения - Creative Market - Sunlight Photo Overlays - 2511525 [JPEG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sunlight - это прекрасный набор наложений для фотографий, который идеально подходит для мини-сессий, маркетинговых досок, портретных съемок. Они будут отлично работать со свадебными, портретными и пейзажными изображениями.Формат: JPEGРазрешение файлов: 3000x3000 & 4500x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E16825CF7A4B1246977970031114926935684FDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275057   (791554) от 09.01.2019
-
-Текстуры - GameTextures - PBR 2K Complete Library [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Потрясающая библиотека готовых текстур для видеоигр. Сжатый в JPG 5Gb от TGA 75GbФормат: JPGРазрешение файлов: 2048x2048
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D312D784856BF05DDEB2499C4F8541D7F6645362
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274868   (791555) от 09.01.2019
-
-Фоны и наложения - Creative Market - 200 Natural Sun Light Overlays - 3107185 [JPEG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Огромная библиотека реалистичных HD-фото наложений для Ваших фотографий, в которых вы найдете наложения на любимый вкус.Формат: JPEGРазрешение файлов: 5000x3500
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B13D655C317875EFF1F85AF16A9DA23A39711B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201782   (791561) от 26.01.2018
-
-Растровый клипарт - Fotolia - Backgrounds with palm trees [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фоны с пальмами с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3543x4724-7952x5304
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3614F426561EC222A896A0A778C6553BC158196C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

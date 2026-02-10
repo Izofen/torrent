@@ -19,6 +19,8 @@ MongoDB является СУБД типа NoSQL, а это значит что 
 magnet:?xt=urn:btih:747A1676450833ED022CE8DFC3B540063B87CF96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Udemy, Timur Mashnin | Распределенные и многопоточны�
 magnet:?xt=urn:btih:DD2C08877A7568AA1E405CD4FAC85290920673C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Udemy, Вадим Лобарев | IT рекрутинг: IT технологи�
 ```bash
 magnet:?xt=urn:btih:35CF190CC32D299F601CC305BE18B997DED69742
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Udemy, Robert Gioia | Complete C# Programming Course 2021 – Beginner to Expert
 magnet:?xt=urn:btih:8FAA3520E7F21404F63D76BB3045F0FCE15A2737
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ FREEMAX, Максим Русаков | Фотография: 4 в 1 (2018) PCRec
 magnet:?xt=urn:btih:0B667C3CCF7C369C12490D794261C377007008F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Udemy, Codestars by Rob Percival и др. | The Complete Mobile Ethical Hacking 
 ```bash
 magnet:?xt=urn:btih:C615B2DDB597919304A857ABEF2F801F521DE1B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ Udemy, Evgeniy Solovey | WORDPRESS: как сделать сайт (2017) PCRec
 magnet:?xt=urn:btih:5E7963B422AAC3014970D01B223D6E625AF70335
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ PythonYoga | Bonus Courses (2021) PCRec [En]
 ```bash
 magnet:?xt=urn:btih:8788B47570EDDC8A75959F2566C7D376F82C1C5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ Bootstrap Basics(   Читать дальше...   )Производство: Te
 magnet:?xt=urn:btih:99571142C2AA5C3B1D6D896D682BACE97884D8AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ CG Boost, Zach Reinhardt | Blender 2.8 Стартовая площадка / Ble
 ```bash
 magnet:?xt=urn:btih:B75051572C0E499385C5B362D8FFE06EDF9C8F13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ Udemy, Никита Хохлов | Парсинг сайтов PYTHON (2020) PCR
 magnet:?xt=urn:btih:C73620255A7C0E2E1CCD4AB53CBD2379764145B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ EngExpert, Диана Семенычева | Английская граммат
 magnet:?xt=urn:btih:541E4C4ABCCF66F4BF083B3DE704FE61AE555333
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ Liveclasses, Павел Лебедев | PowerPoint: расширенные во
 ```bash
 magnet:?xt=urn:btih:EB3601EB29C8FB17F16C404EB678B72E600A6F8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ Udemy, Lukman Hakim | SAP Workflow with Practise (2021) PCRec [En / En Sub]
 magnet:?xt=urn:btih:15E8B88A1BE7B4D068893C45228D495828C89C45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ ZTM, Andrea Bizzotto | Dart: The Complete Developer's Guide (2021) PCRec [EN]
 magnet:?xt=urn:btih:7F3BC7116B961C7F416A342E1521542CC1C831FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ SQL Server – это универсальная (   Читать дальше.
 ```bash
 magnet:?xt=urn:btih:CDD179572E4B8C931D7B3D7398BF994B8A2FE9A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +457,8 @@ magnet:?xt=urn:btih:CDD179572E4B8C931D7B3D7398BF994B8A2FE9A5
 magnet:?xt=urn:btih:5C59FC361A2451E367F6460E543649C13C24A463
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ SwiftBook, Иван Акулов и др. | SwiftBook (2016-2020) PCRec
 magnet:?xt=urn:btih:EF00B05C974916C877BDD68236C565E73814CAAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ Udemy, Alla Yurina | Английский язык для работы. Усто
 ```bash
 magnet:?xt=urn:btih:1FD829611D885034B4B538BDA38EC0E99B2B05BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +538,8 @@ magnet:?xt=urn:btih:1FD829611D885034B4B538BDA38EC0E99B2B05BD
 magnet:?xt=urn:btih:0A03C26F6D7B0E8FFDA959A9EA2C30D41E118161
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ magnet:?xt=urn:btih:0A03C26F6D7B0E8FFDA959A9EA2C30D41E118161
 ```bash
 magnet:?xt=urn:btih:738632ECBA3C8CA973DC7868304F7AAB037BA3B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +591,8 @@ Justin Marshall | Quick Start to Modeling in Maya.Volume 5 PCRec [EN, RU]
 magnet:?xt=urn:btih:520FA11F367F7597A10D0F761AA7940B9C0A2BC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ Gumroad, Olav3D Tutorials | Упрощённая разработка аддон
 ```bash
 magnet:?xt=urn:btih:F43B29BF2F306AB74BA78808F266738E1BE08511
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +644,8 @@ Justin Marshall | Quick Start to Modeling in Maya. Volume 4 PCRec [EN, RU]
 magnet:?xt=urn:btih:954CE5DA414636443E9467D1AB204274181EB355
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +671,8 @@ Udemy, Исмаил Усеинов | Язык программирования P
 magnet:?xt=urn:btih:63AD7DB1F8CA6CEFFE0D00FAAFEB5041DB4C4212
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +696,8 @@ Udemy, Антон Кучер | Как стать классным менедже
 ```bash
 magnet:?xt=urn:btih:33173545C19C9FBDDB62830F90937459D006A888
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

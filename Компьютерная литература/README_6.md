@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:449E690BF2BBFEC49EA71A10F00CCF8E0BA20714
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:449E690BF2BBFEC49EA71A10F00CCF8E0BA20714
 ```bash
 magnet:?xt=urn:btih:6D5B13B0574EAAB68BD79C03EB0D68BA2B86E784
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:6D5B13B0574EAAB68BD79C03EB0D68BA2B86E784
 magnet:?xt=urn:btih:A98EE6FC1B042108509539A4DE58673C25831B7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:A98EE6FC1B042108509539A4DE58673C25831B7F
 ```bash
 magnet:?xt=urn:btih:E20F961C47553EBD0328B44C4D2EF8E27AC36773
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:E20F961C47553EBD0328B44C4D2EF8E27AC36773
 magnet:?xt=urn:btih:967A54875F619326B61CC12D04FC76D4D636B9AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:967A54875F619326B61CC12D04FC76D4D636B9AE
 ```bash
 magnet:?xt=urn:btih:8C90C0E19708903D302408830570FFD1208B9594
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:8C90C0E19708903D302408830570FFD1208B9594
 magnet:?xt=urn:btih:806FE769820CB13510368CC8638E3DE9658A3497
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:806FE769820CB13510368CC8638E3DE9658A3497
 magnet:?xt=urn:btih:692BDDA7A88D7FD10367F9CA78720D270DAEF456
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ magnet:?xt=urn:btih:692BDDA7A88D7FD10367F9CA78720D270DAEF456
 ```bash
 magnet:?xt=urn:btih:9D5783997D9C226940B249C046496DFE689870B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:9D5783997D9C226940B249C046496DFE689870B9
 magnet:?xt=urn:btih:0231FE34698E270DE8BED0F741AE92021EC93FFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:0231FE34698E270DE8BED0F741AE92021EC93FFF
 ```bash
 magnet:?xt=urn:btih:763696892918A95052668513924EC2C3CD418AAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:763696892918A95052668513924EC2C3CD418AAC
 magnet:?xt=urn:btih:36EB503343F4FAEC063930D008DF0C6413F5C7BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:36EB503343F4FAEC063930D008DF0C6413F5C7BB
 magnet:?xt=urn:btih:85334D29DD664AB3154DE18C0C8CE295F40B776D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Yuval Noah Harari | Nexus. Краткая история информацион�
 ```bash
 magnet:?xt=urn:btih:7A31F8CB002EBD0CB976D6238E07D52DA3DF7E96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:7A31F8CB002EBD0CB976D6238E07D52DA3DF7E96
 magnet:?xt=urn:btih:85DE32BAE1FC8877E859D514FEC6996DD9FC3EB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:85DE32BAE1FC8877E859D514FEC6996DD9FC3EB4
 magnet:?xt=urn:btih:3FAB3A9928CD71A6D059ECA20E84472E41E31EF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:3FAB3A9928CD71A6D059ECA20E84472E41E31EF2
 ```bash
 magnet:?xt=urn:btih:7AEF65ED5AD7B2B85C372169975FD00B98206FCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:7AEF65ED5AD7B2B85C372169975FD00B98206FCD
 magnet:?xt=urn:btih:222D9AF80090ECC30E5D0631C7BEE6F046556F61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:222D9AF80090ECC30E5D0631C7BEE6F046556F61
 ```bash
 magnet:?xt=urn:btih:55183E97E24DE142D2F8761C3C65455EFDE511E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:55183E97E24DE142D2F8761C3C65455EFDE511E3
 magnet:?xt=urn:btih:58161BD804210D1A166D06B573D0E532DB1F0ADF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:58161BD804210D1A166D06B573D0E532DB1F0ADF
 ```bash
 magnet:?xt=urn:btih:348A090163C2CD3070363800C72D213D88289A9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:348A090163C2CD3070363800C72D213D88289A9B
 magnet:?xt=urn:btih:6E6005AF8C7130A5A9C1C5C3ECFBDBFF924C9B26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ Here is your in-depth guide to cryptography and cryptanalysis in Java. This book
 magnet:?xt=urn:btih:2657BB6B0AED36C5A1D06E542405BD6E804A44DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ In "Database Fundamentals: Strategies for Efficient Access to Information and En
 ```bash
 magnet:?xt=urn:btih:4ABFAD543054E35C2CDDFFD6FC5F763239507242
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ magnet:?xt=urn:btih:4ABFAD543054E35C2CDDFFD6FC5F763239507242
 magnet:?xt=urn:btih:B2D7A596422361ED19B118CA6FB390C569BEEF8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:B2D7A596422361ED19B118CA6FB390C569BEEF8A
 ```bash
 magnet:?xt=urn:btih:1BB8CD00A0FD80F3DAAD213B8162E778E7B6B0CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

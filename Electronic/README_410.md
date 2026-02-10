@@ -22,6 +22,8 @@ VA - FG Top 10: January (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:3EF8C76A06A2214B5597FC9FD12B829ED2BD48DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ AeTopus - TotemTotum (2018) [MP3|320 Kbps] <Ambient, New Age>
 ```bash
 magnet:?xt=urn:btih:1FB15E37ED6CB3485FE2D7F40D3367587C802C26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Neostatics Sounds Best Of 2017 (2018) [MP3|320 Kbps] <Trance ,House>
 magnet:?xt=urn:btih:63C60CD3CEB8B967B169FFB4C2BE77235EBD4352
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Dance Empire 11 (2018) [MP3|320 Kbps] <House, Progressive House, Vocal>
 ```bash
 magnet:?xt=urn:btih:210083E6A6C6F84DA51E2233239B3806A9622CE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Soundport Recordings. The Best Of 2016 (Mixed by Dr Riddle) (2018) [MP3|320
 magnet:?xt=urn:btih:AE2D1758A18CB665774A908266991FA9DE0BB2AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:AE2D1758A18CB665774A908266991FA9DE0BB2AC
 ```bash
 magnet:?xt=urn:btih:6BFEBB15265C2EC843E31B6F28E1EB7783492A7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Winter Collective 01 (2018) [MP3|320 Kbps] <Progressive House, Progressive 
 magnet:?xt=urn:btih:55430AF3B6F3330DEB460CECD42D284FA08D25F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Sextape 50 Chansons Pour le Sexe (2009) [FLAC|Lossless|tracks] <Electronic,
 ```bash
 magnet:?xt=urn:btih:6685F94938A296704A5B145CBFDAAE039D6F2951
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Cigar Lounge Series: A Premium Collection Of Chill-Out & Lounge Sounds - 5 
 magnet:?xt=urn:btih:2583C3576AF0551B1C8682229DEE23180FBD852C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - EDM Workout (2019) [MP3|320 Kbps] <Progressive House, Dance>
 ```bash
 magnet:?xt=urn:btih:991E8CC5F1FD66539B925CE24005BA2252ECE2EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Ahmed Romel - Orchestrance 218 (2018) [MP3|320 Kbps] <Trance,Uplifting Tran
 magnet:?xt=urn:btih:EC7DFFF39736249A28AB16552D8BE3E2DCA1C454
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Hed Kandi Ibiza (2016) [FLAC|Lossless|tracks] <Deep House, Disco, Tropical 
 ```bash
 magnet:?xt=urn:btih:77FBF7F933FAE72C2C5590E620D175FD227A984F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Richard Bone - Nibiru Drones From The 12Th Planet (2018) [MP3|320 Kbps] <Ambient
 magnet:?xt=urn:btih:36664EFDAE8592FCF5381B42D357B840E2963A79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Dreamline 6 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Ambient>
 ```bash
 magnet:?xt=urn:btih:2649145F191942BBA6D69669496DBD63D5CD16E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Progressive Trance Selections Vol.02 (2018) [MP3|320 Kbps] <Trance, Progres
 magnet:?xt=urn:btih:4F962340BA39335081797FD17D6EB56B5A891146
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Pessimist - Pessimist (2017) Blackest Ever Black [FLAC|Lossless|tracks+.cue] <Te
 ```bash
 magnet:?xt=urn:btih:995C07861E681600096399875847787D0E740D06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - Uplift Underground (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
 magnet:?xt=urn:btih:E662381405887B23CCE16D6148E3E5B9B6C34FB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Gerard Hanson (Convextion, E.R.P., Time Light Curve, T/O/L) - Discography 33 Rel
 ```bash
 magnet:?xt=urn:btih:65D7F18F09560CF3DF950C69FABFE963D37B7BBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ Zandoz Corp. - Personal Apocalypse (2013) Signifier [Lossless|WEB-DL|tracks]<Rhy
 magnet:?xt=urn:btih:057FBCD0C42AA18EB86D398BC14331EA2F59C3FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ CD1
 ```bash
 magnet:?xt=urn:btih:754623B59EDA27DDD421FE21FBC7A276783146A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ Vangarde feat. XXL - The Best Of Lounge: Buddha Lounge (2001) [MP3|320 Kbps] <Ch
 magnet:?xt=urn:btih:BE741F8E06916A15B79E7775E5E650693081D9D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ Vangarde & Louis Sandoro - The Best Of Lounge: Jazz Lounge (2001) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:C2EBA22FAF96F2089C46AF13024036BF0392EF96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ D.M.T. Records - 23 Releases (2014-2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, 
 magnet:?xt=urn:btih:E0585FA247A089221BFA5EA45A6259E3D67E554C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +685,8 @@ VA - Peaceful Piano (2017) Decca [FLAC|Lossless|WEB-DL|tracks] <Modern Classical
 ```bash
 magnet:?xt=urn:btih:33F448A714171B0C84226E91AB10FA776D7E906F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +715,8 @@ Above & Beyond - Group Therapy 300 Live from Hong Kong - Deep Set (2018) DJ Mix 
 magnet:?xt=urn:btih:2A4C9B8FF6CE56818949D7133E4C40F10D37E44B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ Marnie - Strange Words and Weird Wars (2017) [MP3|320 Kbps] <Electronic, Synthpo
 ```bash
 magnet:?xt=urn:btih:8B94A2C7EBAF7ADC19EF62B389B5F080DADA676F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

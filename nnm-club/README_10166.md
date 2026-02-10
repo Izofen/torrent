@@ -1,165 +1,3 @@
-###  Публикация: 1420054   (334700) от 30.10.2020
-
-Zewski - Classic on the rocks (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Intro (Eichler)		01:30
-02.	Te Deum (Charpentier)		01:53
-03.	Sonata Facile (Mozart)		03:38
-04.	Siciliano  (Bach)		04:15(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2658541BFD4673DF095EE17F96F09286F52D4D1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579028   (334701) от 28.09.2022
-
-Infected Rain - Ecdysis (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Postmortem Pt. 1 [00:04:59]
-02. Fighter [00:05:05]
-03. Longing [00:05:14]
-04. Goodbye [00:05:28](   Читать дальше...   )Жанр: Metalcore, Female VocalПродолжительность: 01:49:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:265F69DF1ED136F720E55A8169B49C04B5FB7209
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258684   (334702) от 31.10.2018
-
-Phineas Newborn, Jr. - The Classic Albums 1956-1962 (2015) 5CD, Enlightenment [FLAC|Lossless|image + .cue] <Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334702.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Barbados [4:00]
-02. All The Thigs You Are [7:20]
-03. The More I See You [3:59](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 06:28:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:289429FBB4C2B223ED63C2A45C9F7ED6143EF293
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419537   (334703) от 30.10.2020
-
-VA - Ремиксы 2К20 6 (2020) [MP3|320 Kbps] <Pop, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. #2Маши - Босая 2020 (Alex Shik Radio Edit) (2:52)
-02. 5sta Family - Один на один (ASPARAGUSproject Remix) (3:59)
-03. Agunda - Ну почему (Mixtrell & DJ Alex Ezhov Remix radio) (1:58)
-04. Artik &Asti&Dirt Cheap - Один на Миллион (DJ STROBB Mash up) (4:27)(   Читать дальше...   )Жанр: Pop, Club, DanceПродолжительность: 05:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:563E11A856DF5729229D7ECC896C129537675553
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579700   (334704) от 28.09.2022
-
-Battlesword - Towards the Unknown (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Departure (00:51)
-02 - The Awakening (05:35)
-03 - To Become the Wolf (04:26)
-04 - Terra Combusta (05:36)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35E92D22F9043186A5F7B3348D8B82A1690F98B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579659   (334705) от 28.09.2022
-
-Autopsy - Morbidity Triumphant (2022) [MP3|320 Kbps] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stab the Brain [00:03:15]
-02. Final Frost [00:04:09]
-03. The Voracious One [00:04:26]
-04. Born in Blood [00:03:47](   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:41:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08D27859F952CCB4682EBDB2153681CC8AFDF525
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579672   (334706) от 28.09.2022
 
 Wolf On Fire - 2 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -183,6 +21,8 @@ Wolf On Fire - 2 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:CF59D82A9520620E6FAE14CACA3AB2A846C7F8C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +48,8 @@ magnet:?xt=urn:btih:CF59D82A9520620E6FAE14CACA3AB2A846C7F8C2
 magnet:?xt=urn:btih:7B9EF7C3C44C9172D6481EF6FBD073652F0BDA59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -232,6 +74,8 @@ magnet:?xt=urn:btih:7B9EF7C3C44C9172D6481EF6FBD073652F0BDA59
 ```bash
 magnet:?xt=urn:btih:E95CED6A7734DD36B9A9057135CF1568428DD0C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +104,8 @@ Psycada - Hiking Lung (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Space R
 magnet:?xt=urn:btih:02F34E3F0EF3B9D7F4ABD59B34049275EE1A296D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +129,8 @@ Magic Bullet Suite представляет собой набор из вось�
 ```bash
 magnet:?xt=urn:btih:0F69B130CCFC0733141F12CF117510DDCE934CA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +157,8 @@ SpamSieve 2.9.34 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:04332B3EE0FB7024203E6C0965B5DBD8A4D4EB1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +187,8 @@ We are Legend - 3 Albums (2012-2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 magnet:?xt=urn:btih:8FD1D76BF8976E6022DCABCCD9203D3C730ED012
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +215,8 @@ Roxy Coss - The Future Is Female (2018) Posi-Tone [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:4DFA50F9A71F317A5C18E0BF20B8B4E3C7C34D5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +245,8 @@ magnet:?xt=urn:btih:4DFA50F9A71F317A5C18E0BF20B8B4E3C7C34D5E
 magnet:?xt=urn:btih:E5752BCD11A01CB7FE90D6EDA5A33E6B804E4234
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +270,8 @@ magnet:?xt=urn:btih:E5752BCD11A01CB7FE90D6EDA5A33E6B804E4234
 ```bash
 magnet:?xt=urn:btih:6B6F47009F67AA4CA335EBE532F14A78FDD07988
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +300,8 @@ Zumpano - Goin' Through Changes (1996) [FLAC|Lossless|tracks + .cue] <Indie Rock
 magnet:?xt=urn:btih:3C1863206B0B038E52B83E4255F7CD853E6F0A23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +326,8 @@ magnet:?xt=urn:btih:3C1863206B0B038E52B83E4255F7CD853E6F0A23
 magnet:?xt=urn:btih:07D56C69C9E817F82450F99B33F450AF2179F745
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +351,8 @@ magnet:?xt=urn:btih:07D56C69C9E817F82450F99B33F450AF2179F745
 ```bash
 magnet:?xt=urn:btih:924AF03EE88BC23FF5C83D519D02786440F9E9E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +381,8 @@ Colour Haze - Temple (2006) Remastered, 2022, Electrohasch [FLAC|Lossless|WEB-DL
 magnet:?xt=urn:btih:0F1C40B0B128DBEB74ACFC6C3A171AB784051721
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +406,8 @@ magnet:?xt=urn:btih:0F1C40B0B128DBEB74ACFC6C3A171AB784051721
 ```bash
 magnet:?xt=urn:btih:3B44ECEBC24C876698C62E12C5011E21C3F6D54B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +436,8 @@ Saints’ Anger - Danger Metal (1985) [FLAC|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:00320B596F2CBA2863EB1262D637901CF84F6FDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +462,8 @@ Alwa's Legacy - современная игра в стиле ретро, пол
 magnet:?xt=urn:btih:DF3490BFB1632179203B0BF4798676FF1237ED10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +487,8 @@ magnet:?xt=urn:btih:DF3490BFB1632179203B0BF4798676FF1237ED10
 ```bash
 magnet:?xt=urn:btih:8A2B07D9877FAEAF227E5D26839995A11F192754
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +517,8 @@ Chaosbay - 2222 (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Progressive Metal>
 magnet:?xt=urn:btih:A3B31CC8D4177E97E4050F1D071D340BC10FCEE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +542,176 @@ Block auto-update 1.0 Portable [En]
 ```bash
 magnet:?xt=urn:btih:E40C54D46ABECBA56B9B26929508168D03651364
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579725   (334726) от 28.09.2022
+
+Certa Mortis - Ab Inferno Ad Astra (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Castle of Damnation (05:06)
+02 - Under a Silence of Ice and Snow (05:09)
+03 - Bloodstained Banner (04:49)
+04 - Ab Inferno Ad Astra (07:25)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:47:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93CD40CA9649C95FD13D6B4BC9CDFE7CF6E791BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327525   (334727) от 30.10.2020
+
+Пенниуорт / Pennyworth (2019) WEBRip [H.264] (сезон 1, серии 1-10 из 10) Кубик в Кубе
+
+>>Зарубежные сериалы
+>>Сериалы DC Comics
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альфред Пенниуорт — отставной офицер британского спецназа, который создаёт в Лондоне собственное охранное предприятие. Одним из его первых клиентов становится миллионер Томас Уэйн, отец будущего Бэтмена.Производство: США / Warner Horizon TelevisionЖанр: боевик, драма, криминалРежиссер: Роб Бэйли, Билл Иглз, Дэнни КэннонАктеры: Джек Бэннон, Палома Фэйт, Бен Элдридж, Джейсон Флеминг, Хэйнсли Ллойд Беннетт, Дороти Эткинсон, Эмма Коррин, Райан Флетчер, Иан Палстон-Дэвис, Ники Виккери и др.Перевод: Двухголосый профессиональный (Кубик в Кубе)Субтитры: русские, английские
+
+Внимание! Присутствует ненормативная лексика.Продолжительность: ~00:55:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41D2FE4F724E621CD2B3E6B4F2FE6717AF40E31B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579590   (334728) от 28.09.2022
+
+Legion - Labyrinth Of Problems (1992) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Beyond Betrayal	[04:51]
+02.	Route To Madness [03:38]
+03.	A Matter Of Greed [05:18]
+04.	Bag Full Of Meat [02:53](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:35:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA6B70F884E3A43D43A3319D68EB31771E873787
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 20730   (334729) от 30.10.2020
+
+Дикий, дикий Запад / Дикий, дикий Вест / Wild Wild West (1999) HDTVRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спецагенту Джеймсу Весту поручено найти и обезвредить злого гения изобретателя Арлиса Лавлеса. Когда-то он стал жертвой своего собственного неудачного эксперимента и лишился нижней половины тела. В этом он винит президента Соединенных Штатов и весь мир. Месть становится смыслом его жизни. Спасти президента - нелегкая задача. На помощь отважному Весту приходит спецагент (   Читать дальше...   )Жанр: Боевик, ПриключенияРежиссер: Барри Зонненфельд /Barry Sonnenfeld/Актеры: Уилл Смит /Will Smith/, Кевин Клайн /Kevin Kline/, Кеннет Брана /Kenneth Branagh/, Селма Хайек /Salma Hayek/, М. Эммет Уолш /M. Emmet Walsh/, Тед Ливайн /Ted Levine/Перевод: Русский профессиональный дубляжПродолжительность: 01:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFC39A8784EBDF7024026DFB221C52E28A161B70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955171   (334730) от 10.11.2015
+
+Л.Д. Ландау , Е.М. Лифшиц  | Теоретическая физика. [В 10 томах] (1973-1979) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс теоретической физики — цикл учебников по теоретической физике, написаных в соавторстве Ландау, Лифшицем и другими авторами. Основные тома написаны Л. Д. Ландау и Е. М. Лифшицем.
+Наибольшие издаваемость и востребованность в студенческих массах — у томов I—III, V, VIII—X. Том IV в своём первом издании публиковался в двух частях под названием «Релятивистская квантовая (   Читать дальше...   )Жанр: Теоретическая физикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:007DE48F35ECEF9AA5B18F92C61BA05BB37EABD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579471   (334731) от 28.09.2022
+
+H-Bomb - Attaque (1984) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Attaque 0:32
+02. Exterminateurs 3:56
+03. Dressé À Tuer 3:13
+04. Gwendoline 4:46(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F24B34F7CE9CF866AC073ECD97E84F8FDC2A6EE
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

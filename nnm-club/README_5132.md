@@ -22,6 +22,8 @@ CD1:
 magnet:?xt=urn:btih:222C34D95C8016D7B178CC708D8DE656EDE65284
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:222C34D95C8016D7B178CC708D8DE656EDE65284
 magnet:?xt=urn:btih:D8CE3EC48562D8DE8AC4E908BED27CDF690247C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:D8CE3EC48562D8DE8AC4E908BED27CDF690247C2
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ WidsMob AI Retoucher 2.3.0.112 [Multi/Ru]
 magnet:?xt=urn:btih:10A7A769161F5D2190F383DD2D1F6243836622BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Smart Defrag - дефрагментатор, позволяющий довест
 ```bash
 magnet:?xt=urn:btih:B9579A8589598E1B6B8CC0FA1E044F498BDB7386
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Sweet Home 3D это приложение для дизайна интерьер
 magnet:?xt=urn:btih:55E8851E44D68E21B43219694011EAC3B3C8CC0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Rainmeter - утилита для мониторинга ресурсов ком
 ```bash
 magnet:?xt=urn:btih:AFC015C5803EE44A78655957B08887437185948C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:AFC015C5803EE44A78655957B08887437185948C
 magnet:?xt=urn:btih:ADCB0D4EABEA040DA1E4CCF23C26F860890C3CCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 ```bash
 magnet:?xt=urn:btih:6A6223AA22585454BECD00F543162109051D55DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Nitro Pro – программа, которая является альтерн
 magnet:?xt=urn:btih:344BC90CE2891070F99593718F49672974ECC703
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:344BC90CE2891070F99593718F49672974ECC703
 ```bash
 magnet:?xt=urn:btih:D0481D80651644FE0E273135F1FEABCAC9E29677
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:D0481D80651644FE0E273135F1FEABCAC9E29677
 magnet:?xt=urn:btih:8B1CB44E76C4322A0649D4B8B89F3D060C8F08C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:8B1CB44E76C4322A0649D4B8B89F3D060C8F08C3
 ```bash
 magnet:?xt=urn:btih:25532CC40656754DCF16A69351E11486A0F0D58E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ JUG Ru Group | FrontendConf 2022 - Профессиональная конфер
 ```bash
 magnet:?xt=urn:btih:5BA9F6CA5B9A1F4DA733BAC9D386CB3D0819E7BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ Melon VPN - это быстрый, неограниченный, стабиль�
 magnet:?xt=urn:btih:E9B7989995127244626EC59F0240E2E4A68A08AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:E9B7989995127244626EC59F0240E2E4A68A08AD
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:E9B7989995127244626EC59F0240E2E4A68A08AD
 magnet:?xt=urn:btih:E7038F5F3AD89523430D7D108F73FD3A19632019
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:E7038F5F3AD89523430D7D108F73FD3A19632019
 ```bash
 magnet:?xt=urn:btih:34E70678D82C9027EBDF1D477D5668CC87D79868
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ magnet:?xt=urn:btih:34E70678D82C9027EBDF1D477D5668CC87D79868
 magnet:?xt=urn:btih:F2AD91B743C6BB816998909D1ABC3FE9518C460B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ Selenium WebDriver is a popular browser automation framework. Testers or develop
 magnet:?xt=urn:btih:2B30ED60890E73CD7628CABF39347E736A4E4A43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ magnet:?xt=urn:btih:2B30ED60890E73CD7628CABF39347E736A4E4A43
 magnet:?xt=urn:btih:341A2735601B609B8B9EFB01D4AB11129E455101
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +580,8 @@ magnet:?xt=urn:btih:341A2735601B609B8B9EFB01D4AB11129E455101
 ```bash
 magnet:?xt=urn:btih:D0311BC72226DF00049C12E417426219B5A290D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +610,8 @@ Jared James Nichols - 3 Albums (2014-2023) [FLAC|Lossless|image + .cue|tracks + 
 magnet:?xt=urn:btih:010D5A62BD6D65171CEB40EA82498984669C412E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ magnet:?xt=urn:btih:010D5A62BD6D65171CEB40EA82498984669C412E
 ```bash
 magnet:?xt=urn:btih:26D29BEA2CD105080866211958A4156F1571C110
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:26D29BEA2CD105080866211958A4156F1571C110
 magnet:?xt=urn:btih:3DAB142C723EC837880705CBB64818F4DC71E7F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ magnet:?xt=urn:btih:3DAB142C723EC837880705CBB64818F4DC71E7F8
 ```bash
 magnet:?xt=urn:btih:4977378F56411B8E21E6D4401DE6265E96BC3739
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

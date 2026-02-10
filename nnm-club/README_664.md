@@ -19,6 +19,8 @@ AOMEI Backupper – программа для создания резервно�
 magnet:?xt=urn:btih:BCF980D844AF429D78ADAD66B0CB43DED64D71BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ RoadCraft (2025) [Ru/Multi] (0.1.D1.1.429865/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:017BC23877FDE36ACBF45255A2D63503E114861E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ ON1 Photo RAW MAX 2025 — лучший редактор фотографий в
 magnet:?xt=urn:btih:C9F823220A297FAAE8949F316D4D91D38FA91D97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NEET Kunoichi to Nazeka Dousei Hajimemashita | Somehow, I Started Living With a 
 ```bash
 magnet:?xt=urn:btih:F7E1D93D86A55F84132060C5E5119C721DC10408
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ DaVinci Resolve — единственное в мире решение для �
 magnet:?xt=urn:btih:3FF3EAC921BC7126BD7FAF3F6D57FBE8D980C800
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Tales & Tactics – перед вами классический автобат�
 ```bash
 magnet:?xt=urn:btih:B0871D60435E24B839519C118156A3303FA799E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Capture One - один из лучших профессиональных кон
 magnet:?xt=urn:btih:462364619BC55F9D426AA482E1D3160C9FB15A70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Paint.NET - Простой, но мощный и удобный редактор
 ```bash
 magnet:?xt=urn:btih:0812328B2182FB54B35C7D6D56BDC3466A527C9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Mononoke Hime | Принцесса Мононокэ | Princess Mononoke | При
 magnet:?xt=urn:btih:5441BF6CAC12AB7D9B501364CED2F91AF7E9F8A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Tenkuu no Shiro Laputa | Laputa: Castle in the Sky | Небесный замок
 magnet:?xt=urn:btih:9BB8AA00006B216697859FB78741D3C62D472D1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ House Flipper 2 (2023) [Ru/Multi] (1.8/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:16ED5F90F5C09DEFA09C8AEE6611EDC88A1BC524
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ VA - Mixed by DJ Юrkanik (2025) [MP3|320 Kbps] <Progressive House, Trance, Drum
 magnet:?xt=urn:btih:886F9F101D0CD4E9FC1E915606A5878FCFADFF70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Zoria: Age of Shattering (2024) [Ru/Multi] (1.1.8/dlc) Repack Let'sРlay [Deluxe
 ```bash
 magnet:?xt=urn:btih:528C4582D97165D570896D6A8BCF1FF978997037
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:528C4582D97165D570896D6A8BCF1FF978997037
 magnet:?xt=urn:btih:9C1E6BC14A898A98EEA9CC0B9181CA53AE7ACCE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:9C1E6BC14A898A98EEA9CC0B9181CA53AE7ACCE3
 ```bash
 magnet:?xt=urn:btih:1E2A1978B22C4660B6B8F34827B905BE3FF8A760
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Disc 1:
 magnet:?xt=urn:btih:26A841D85E098C141F550C5C34760F1AD5AABF06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:26A841D85E098C141F550C5C34760F1AD5AABF06
 ```bash
 magnet:?xt=urn:btih:F0BBF9976A06A3DFA640CE8EDA051DDA74B4AEC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:F0BBF9976A06A3DFA640CE8EDA051DDA74B4AEC4
 magnet:?xt=urn:btih:27409691DE18ECC73D851CE7DAB2039DB65137C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:27409691DE18ECC73D851CE7DAB2039DB65137C7
 ```bash
 magnet:?xt=urn:btih:65E0A34E132B172444CB331ACD03A3238A1E13FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:65E0A34E132B172444CB331ACD03A3238A1E13FD
 magnet:?xt=urn:btih:C3DED04EF1F7F8C7C29BCB3E7A0F0B79F6BE9FF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:C3DED04EF1F7F8C7C29BCB3E7A0F0B79F6BE9FF1
 ```bash
 magnet:?xt=urn:btih:C7652FED12222E288118AD0C60829AEBA130CC25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:C7652FED12222E288118AD0C60829AEBA130CC25
 magnet:?xt=urn:btih:9F218921207E4DF2433FD2807D78F74812046F5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:9F218921207E4DF2433FD2807D78F74812046F5F
 magnet:?xt=urn:btih:6E2991903991F314F2B8F8C5B6BC797D2FD734DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:6E2991903991F314F2B8F8C5B6BC797D2FD734DB
 ```bash
 magnet:?xt=urn:btih:D6D0838A4ADB6723D23225B65CB844200EC846E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:D6D0838A4ADB6723D23225B65CB844200EC846E5
 magnet:?xt=urn:btih:F08B976FABFE6FC77374992582870FF595726839
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ N/A | WIFI антенна за 15 минут своими руками PCRec
 ```bash
 magnet:?xt=urn:btih:1C42C6835FC50B895AB2A41716BEA1316E174383
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

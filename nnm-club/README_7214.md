@@ -19,6 +19,8 @@ PullTube 1.8.5.16 [Multi/Ru]
 magnet:?xt=urn:btih:D037B9B0D803971044C9ED0BDE846C06842524AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Microsoft Edge – кроссплатформенный веб-браузер н
 ```bash
 magnet:?xt=urn:btih:8BBB9343C0A6F0D9B39EE4518AA196C1F101C6B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Billy Truitt - Abstract Truth (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Count
 magnet:?xt=urn:btih:2EF6142FBF45ED78C8560C08D47E2A2AE349F135
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:2EF6142FBF45ED78C8560C08D47E2A2AE349F135
 magnet:?xt=urn:btih:A9A0FEFB2200EEDB839F8B52E27EF62BDEDEEBA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:A9A0FEFB2200EEDB839F8B52E27EF62BDEDEEBA8
 ```bash
 magnet:?xt=urn:btih:CD91F4852957F54B0F5147FC239FECE4C7E77A7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:CD91F4852957F54B0F5147FC239FECE4C7E77A7D
 magnet:?xt=urn:btih:4D2E0863080B6E6D2F96E77F9051BD6AA0D44069
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:4D2E0863080B6E6D2F96E77F9051BD6AA0D44069
 ```bash
 magnet:?xt=urn:btih:7A199BA5F142EFA2855BE43912E61877F296B164
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:7A199BA5F142EFA2855BE43912E61877F296B164
 magnet:?xt=urn:btih:581D7388578F1CA056BA8C65422DBF88E1C9A80F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Twin Mind 2: Power of Love / Близнецы-детективы 2: Сила л�
 ```bash
 magnet:?xt=urn:btih:1839EFF98CE9C14A2D080F655C22F7211F1C14BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:1839EFF98CE9C14A2D080F655C22F7211F1C14BD
 magnet:?xt=urn:btih:E49D5679413A95AD2FA92ABE62DC4433597BA4A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:E49D5679413A95AD2FA92ABE62DC4433597BA4A8
 ```bash
 magnet:?xt=urn:btih:95A28C95796BB0D459547BAB13E6360F37A06878
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:95A28C95796BB0D459547BAB13E6360F37A06878
 magnet:?xt=urn:btih:929580445640191AC9CBCC506488526966F7197B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ History Channel: Древние пришельцы / Ancient Aliens (2015) HDTV 
 ```bash
 magnet:?xt=urn:btih:E5141CA02B6A87953A30FD72BD5E4AE35325EEDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:E5141CA02B6A87953A30FD72BD5E4AE35325EEDC
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:E5141CA02B6A87953A30FD72BD5E4AE35325EEDC
 magnet:?xt=urn:btih:F81393167AA8C0E834B6B90B72B1FCCF394A3BFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:F81393167AA8C0E834B6B90B72B1FCCF394A3BFA
 ```bash
 magnet:?xt=urn:btih:30F22C73962011B15C53018EB7DC0C30A972C41C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ Jim Preen - Midnight Kitchen (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:55ED638825EFD5A3410547C6C3F667E8AEEAEA22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ SketchUP Pro - является профессиональной версией 
 ```bash
 magnet:?xt=urn:btih:7C3C3AF830DD5C7AFB7F7036CC2C16B2158DB89E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:7C3C3AF830DD5C7AFB7F7036CC2C16B2158DB89E
 magnet:?xt=urn:btih:6119E85B8C3FEB9028E98B479D15C274D29D79FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:6119E85B8C3FEB9028E98B479D15C274D29D79FF
 magnet:?xt=urn:btih:A5181BB5BED5D396BA107EED9F04A55A89E51B2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ MultiMan Singstar X-Mas Edition (2015) [PS3] 4.xx [Repack] [Ru/En]
 magnet:?xt=urn:btih:4B7E70FD35FF58BE4AC77A35E72E605E0AB55DDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +583,8 @@ magnet:?xt=urn:btih:4B7E70FD35FF58BE4AC77A35E72E605E0AB55DDB
 ```bash
 magnet:?xt=urn:btih:88AB4B8A0F533E7BAE897B5C977D6E0C21E7751C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +611,8 @@ magnet:?xt=urn:btih:88AB4B8A0F533E7BAE897B5C977D6E0C21E7751C
 magnet:?xt=urn:btih:817BEC964644319B38DCF12A5E23192837DAB9B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ ARAYA (2016) [En/Th] (1.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:EBD3C47F4EF3D8371482A846E1E9BBA6BAE4F0C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +665,8 @@ SolveigMM Video Splitter – редактор для MPEG-2, AVI, WMV, ASF, MP3,
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ Descent - Order of Chaos (2022) [FLAC|Lossless|tracks + .cue] <Death, Black Meta
 ```bash
 magnet:?xt=urn:btih:5441139FD8792767A162BCCAC1D515641DD3955A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

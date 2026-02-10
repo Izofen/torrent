@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5A86B13220917C497543CA796B61ABD2B343D99B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Röyksopp (Royksopp) - Profound Mysteries II (2022) [FLAC|Lossless|tracks + .cue
 magnet:?xt=urn:btih:3AFA076A5B53FB0B703D6A2B484E07DEF0B1F3F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:3AFA076A5B53FB0B703D6A2B484E07DEF0B1F3F6
 ```bash
 magnet:?xt=urn:btih:D94E9FEF6A9D774CF1E10E7F2825A051F2828485
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Terence Blanchard - Terence Blanchard (1991) Columbia [FLAC|Lossless|tracks + .c
 magnet:?xt=urn:btih:068729168D780F391DE4706DC5B53257D52DA9FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:068729168D780F391DE4706DC5B53257D52DA9FD
 ```bash
 magnet:?xt=urn:btih:1F8863D6782C4457BE4B46750C85D5215BAEFD97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Max Roach - Deeds, Not Words (1958) 1987, Original Jazz Classics [FLAC|Lossless|
 magnet:?xt=urn:btih:2B1659B165DE88CACB900E2896229964103A00E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:2B1659B165DE88CACB900E2896229964103A00E8
 ```bash
 magnet:?xt=urn:btih:E9AF09D94A0B967364089D33F63FFB3A6802FC93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:E9AF09D94A0B967364089D33F63FFB3A6802FC93
 magnet:?xt=urn:btih:C7C62EBFD7484F4EB849B0A08B35D179DA633CEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:C7C62EBFD7484F4EB849B0A08B35D179DA633CEE
 ```bash
 magnet:?xt=urn:btih:D1F0CDA0DECFE1662CF5C2419ABEA2F1256E2987
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ Bai Bang - Sha Na Na Na (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam Rock>
 magnet:?xt=urn:btih:D051D833F1C11C29170C1864410BE09628552EC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ Dorothy - Gifts From The Holy Ghost (2022) [FLAC|Lossless|tracks + .cue] <Classi
 magnet:?xt=urn:btih:DCA272841C9628E624B7198642ECD5876D910C6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:DCA272841C9628E624B7198642ECD5876D910C6A
 ```bash
 magnet:?xt=urn:btih:F7C14193C72C3900E2B6A52B7F2AB23B74641E2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ Resistance - Skulls Of My Enemy (2022) [MP3|320 Kbps] <Power, Thrash Metal>
 magnet:?xt=urn:btih:B5F0D6AD79F33BA2AD7521F4A02103C634673414
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:B901FEE9DA020114F0501B232D78659D4E86F55F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ Imperium - Never Surrender (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Roc
 magnet:?xt=urn:btih:69805CC727CF34981E96D282E07593366E20A0A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ magnet:?xt=urn:btih:69805CC727CF34981E96D282E07593366E20A0A4
 ```bash
 magnet:?xt=urn:btih:3A495E0E1760C2BDF866894BA1B4C06A4055E9B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +457,8 @@ magnet:?xt=urn:btih:3A495E0E1760C2BDF866894BA1B4C06A4055E9B9
 ```bash
 magnet:?xt=urn:btih:280F5E6DA4E91F2C3D72D37A3CB39B62B717EA0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +487,8 @@ Ne Obliviscaris - Collection (2012 - 2017) 5 CD [FLAC|Lossless|tracks + .cue] <P
 magnet:?xt=urn:btih:5D2C6C7A9B3881E129A0C4A30518BA2151793DC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +512,8 @@ iCompta - простое и мощное приложение для управ�
 ```bash
 magnet:?xt=urn:btih:60EDB83FA0B4FE4D3AD59BC5177E732C4249BD1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +542,8 @@ Vandhali - Fever Dream (2022) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner>
 magnet:?xt=urn:btih:748F8A70535D5392C6AA00D1C8273BE40B331B3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +571,8 @@ Jason Marsalis - Live (2017) 2020, Basin Street Records [FLAC|Lossless|tracks + 
 magnet:?xt=urn:btih:51394BA44D2FAE50ADE249BD4118A825ACA241E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +596,8 @@ magnet:?xt=urn:btih:51394BA44D2FAE50ADE249BD4118A825ACA241E5
 ```bash
 magnet:?xt=urn:btih:B96EBE19778B1C6D117CE26E18AE31E74E9304BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +623,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:7203AF5A4722C89393FD744CC6668E5A2B9FC77C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +648,8 @@ RTG. Подземный мир хребта Азиш-Тау (2013) HDTV [H.264/1
 ```bash
 magnet:?xt=urn:btih:067703E5590AC366C31410140D2FCCE77EEA029A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +678,8 @@ VA - Rock Classics (2022) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:C2363F2FABA2011B76C14268387BF671B9C0D0A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ MotoGP. Этап 01. Гран-при Португалии. Квалификац�
 ```bash
 magnet:?xt=urn:btih:6A9F815104D02D2EC0AB747E9B8F6BBB99951F64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ The Rolling Stones - Sticky Fingers Live At The Fonda Theatre 2015 (2017) [MP3|3
 magnet:?xt=urn:btih:9A5552307144A0B6DB24B324096B9867029EF7FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Fernando Noronha & Black Soul - Bring It (2006) [MP3|320 кб/с]<Rock, Blues-Ro
 ```bash
 magnet:?xt=urn:btih:DF96BB5C943D484F5B13EA1162DABB17A45A26BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -80,6 +84,8 @@ Skanskа Mоrd - Pаths Tо Chаron (2012) [MP3|320 кб/с]<Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:222D5623E6167796930F4DEB1918D52B7E7FEFA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -114,6 +120,8 @@ Niagara - 5 альбомов (1986-2002) [MP3|256 кб/с]<Rock, Poprock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +154,8 @@ Karma To Burn - Slight Reprise (2012) [MP3|320 кб/с]<Stoner Rock>
 magnet:?xt=urn:btih:9BB038CBB51816DA3B72BFA56AC37584D774AC82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +182,8 @@ Kitty, Daisy & Lewis - Superscope (2017) [MP3|320 Kbps] <Rockabilly, Rock & Roll
 ```bash
 magnet:?xt=urn:btih:ECAC1706858DDCEBD594AC49FF509BD47ECE8B8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +212,8 @@ Miriam Hobbs - Can't Stop The Girl (2017) [MP3|320 Kbps] <Rock, Contemporary Blu
 magnet:?xt=urn:btih:A2BDF0ADF5627D8A95A9D7BB5B2CAE8E8CB66B0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +240,8 @@ Sweet Crisis - Live At The Junction Cambridge (2017) [MP3|320 Kbps] <Classic Roc
 ```bash
 magnet:?xt=urn:btih:E1661D4A1220A267F6E8EFEC28AB134053BBFC60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +270,8 @@ Chris Rea - Road Songs For Lovers (2017) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:60641BCFBBB6DC8E979FCEE06BFA42D90A3AD2EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +298,8 @@ VA - Rock Classics - The Collection: The Ultimate Rock Anthems (2017) 4CD [MP3|3
 ```bash
 magnet:?xt=urn:btih:B0066A5EFF02AC7B58E713B32F961315056C9408
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +334,8 @@ South Of Georgia - S.O.G. (2005) [MP3|320 кб/с]<Alternative Country Rock, Sou
 magnet:?xt=urn:btih:F428A1214B0A1B3B7840D71CC2AC489210438A61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +359,8 @@ Moody Blues - Collected [3 CD] (2007) [MP3|320 кб/с]<Progressive Rock | Psych
 ```bash
 magnet:?xt=urn:btih:3A5ADBDB15DE86FE0368ABCE5897D3B5B5ACC913
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +395,8 @@ Part A: Original "Traces Of Sadness" (2004 album) ---
 magnet:?xt=urn:btih:822A6FF94C6A9E0201461CE23AF926D648DAB95E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +423,8 @@ magnet:?xt=urn:btih:822A6FF94C6A9E0201461CE23AF926D648DAB95E
 ```bash
 magnet:?xt=urn:btih:E4BC3FBFFA09ECB06619C152C5C6F8FC7C7DAA1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +453,8 @@ VA - 100 Hits. Driving Rock 5 СD (2012) [MP3|320 кб/с]<Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +482,8 @@ Trilogy - Here It Is (1980) Reissue CD, 2009, MALS [MP3|320 Kbps] <Electronic, P
 magnet:?xt=urn:btih:8723FF8AD72AEBCD7D833DBEA9CB5D1FEC3ED161
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +510,8 @@ Freddie Mercury and Montserrat Caballe - Barcelona [Japanese Edition] (1988) [MP
 ```bash
 magnet:?xt=urn:btih:9A2BFDDF029189F7CC6352BD7F769603D8E44E38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +546,8 @@ Chris Rea - Auberge (1991) [MP3|320 кб/с]<Blues Rock>
 magnet:?xt=urn:btih:9224B9C62F37F58495E5E14AB9EB31653615F5D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +574,8 @@ Slade - Cum On Feel The Hitz - The Best Of Slade (2020) Compilation [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:0706AB9A9C85EC6CF71C1C6853490C13ED969E5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +607,8 @@ Lost in Kiev - Motions (2012) [MP3|320 кб/с]<Post-Rock / Post-Metal>
 magnet:?xt=urn:btih:AC1E28DAD9CC11BD13CC33AB39B4B8D9C05B3E49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +635,8 @@ Albert Hammond - In Symphony (2016) [MP3|320 Kbps] <Pop Rock, Soft Rock>
 ```bash
 magnet:?xt=urn:btih:4455E472A61D72C09BD22F36AEA106DF5D622976
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +667,8 @@ Genesis - Radio Sessions 1970-1972 (2020) Live, Compilation [MP3|320 Kbps] <Prog
 magnet:?xt=urn:btih:BAD6562AD12FCE5C13D2EB2B49E803F40863BD6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +695,8 @@ Flash And The Pan - 6 Albums (1978-1992) CD Collection [MP3|320 Kbps] <Electroni
 ```bash
 magnet:?xt=urn:btih:3164E6D6F2F9B3FA71F4B99ADDE8752AD3AD7C29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -679,6 +725,8 @@ Klaatu - Klaatu / Hope (1976-77) Reissue, 2000, BGO Records [MP3|320 Kbps] <Art,
 magnet:?xt=urn:btih:818FF94C56C7A775DEF4A1DA67586246A95F7E36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -706,6 +754,8 @@ Feather Mountain - To Exit a Maelstrom (2022) [MP3|320 Kbps] <Progressive Rock, 
 magnet:?xt=urn:btih:167EDDB939C518378EB355D247D511D6D44F85F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -732,6 +782,8 @@ Versa - A Voyage / A Destination (2022) [MP3|320 Kbps] <Progressive Rock, Crosso
 ```bash
 magnet:?xt=urn:btih:331B15E794C9625919E2EBB21E7F7F7F47CB6EDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

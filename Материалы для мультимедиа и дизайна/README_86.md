@@ -19,6 +19,8 @@ Humant — геометрический шрифт, вдохновлённый �
 magnet:?xt=urn:btih:F29AF5DD01177A5A2522A850E262BA74D5A5B95F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:F29AF5DD01177A5A2522A850E262BA74D5A5B95F
 ```bash
 magnet:?xt=urn:btih:9B25BEB3A7E11BC976C068131EF7487B48EB77DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:9B25BEB3A7E11BC976C068131EF7487B48EB77DA
 magnet:?xt=urn:btih:B1EDD1F2C792CF6EDAA79900AE80534A2BADA99F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:B1EDD1F2C792CF6EDAA79900AE80534A2BADA99F
 ```bash
 magnet:?xt=urn:btih:4F17E959D364E8B709567FD03DE414BCC8A5FE34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:4F17E959D364E8B709567FD03DE414BCC8A5FE34
 magnet:?xt=urn:btih:062E752B741A81597950CD1F3B7D93AF3E46900E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:062E752B741A81597950CD1F3B7D93AF3E46900E
 ```bash
 magnet:?xt=urn:btih:55D035E4D6E96999F09530BB670E9413A96AB79F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Analogy — это современная интерпретация непре�
 magnet:?xt=urn:btih:4969622E2D096192E3F716DD4EC54344DF7CB91A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:4969622E2D096192E3F716DD4EC54344DF7CB91A
 magnet:?xt=urn:btih:45D373085B36BD548FEB6CEE8AD7BE7ED4E252D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ magnet:?xt=urn:btih:45D373085B36BD548FEB6CEE8AD7BE7ED4E252D6
 ```bash
 magnet:?xt=urn:btih:5F0B98023449EE2512E36A7BB9C865531C369594
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:5F0B98023449EE2512E36A7BB9C865531C369594
 magnet:?xt=urn:btih:56B5BE88785236255651ECE971ED92198CCC02A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:56B5BE88785236255651ECE971ED92198CCC02A3
 ```bash
 magnet:?xt=urn:btih:2096C9C39F903C651F7C2F9FCA4FCF899C798816
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:2096C9C39F903C651F7C2F9FCA4FCF899C798816
 magnet:?xt=urn:btih:4E2C9DB4ACCF7BA36D3150284B18A210B78478F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:4E2C9DB4ACCF7BA36D3150284B18A210B78478F0
 magnet:?xt=urn:btih:4484ED3AAA3D64EB9A7F6CD7E23F58C8227298DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:4484ED3AAA3D64EB9A7F6CD7E23F58C8227298DE
 ```bash
 magnet:?xt=urn:btih:36F8E532BD206FE89C7B38C0F645DFEC546A5C95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:36F8E532BD206FE89C7B38C0F645DFEC546A5C95
 magnet:?xt=urn:btih:59293E164EE9D9C737E5518290D9C0DB02ADC6BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Typolio — универсальный и эффектный акцидентн�
 ```bash
 magnet:?xt=urn:btih:897C027C4E786CC46CDC0109B6F3BD86C034140E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:897C027C4E786CC46CDC0109B6F3BD86C034140E
 magnet:?xt=urn:btih:292CE449A42EA8FE46C8AB9F811A3C083F1DD04A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Beware - это роскошный шрифт с засечками от соз�
 ```bash
 magnet:?xt=urn:btih:FD102C550DB115B5350387F9E3E459FF92117D23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ Sempione — это совершенно новое семейство грот�
 magnet:?xt=urn:btih:72AA8D27B8E1F638C386FB00BED4E024BAB51755
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:72AA8D27B8E1F638C386FB00BED4E024BAB51755
 ```bash
 magnet:?xt=urn:btih:0BF37D1B0A66F61FFEC1E50B2B2348AB847094FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ Secca — это новая и универсальная серия шрифт�
 magnet:?xt=urn:btih:76449F861A2B8683E93DDD5A06E756E635D3BB08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ Ui Kits - UI8 -   Painted Style Landscapes - Set of 20 [PNG, PSD]
 ```bash
 magnet:?xt=urn:btih:30D0CBB16A56B90FDFD189312406343F9F43065A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:30D0CBB16A56B90FDFD189312406343F9F43065A
 magnet:?xt=urn:btih:D62F61FEEA1EF387BF52F2EF4A4701FABDE7D42F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:D62F61FEEA1EF387BF52F2EF4A4701FABDE7D42F
 ```bash
 magnet:?xt=urn:btih:1DBF68E544C7A06DA67779B11EE6EBACA856A0D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ Paquero — современный геометрический гротескн
 magnet:?xt=urn:btih:F856C29C03FC7B47AB33EBCEE2B8868532EFF21C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:F856C29C03FC7B47AB33EBCEE2B8868532EFF21C
 ```bash
 magnet:?xt=urn:btih:E747480B0FC955F1CED6122A3201B1C951A5E854
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

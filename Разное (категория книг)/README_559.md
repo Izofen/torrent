@@ -1,3 +1,32 @@
+###  Публикация: 1004738   (836044) от 07.04.2016
+
+Рохит Бхаргава | Не очевидно. Как выявлять тренды раньше других (2016) [EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга, которая научит вас определять тренды, значимые для вашего бизнеса, и расскажет о самых новых существующих трендах.
+Как может вендинговый автомат вдохновлять на мир во всем мире? Как можно добиться большего успеха, сделав ваш бизнес неидеальным? Может ли зависимость быть хорошей?
+Ответы на такие вопросы могут быть совсем не очевидными.
+На протяжении четырех (   Читать дальше...   )Жанр: Бизнес, ПсихологияФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD3E19816F7EFA28D1A2FCFC396109FCF591ACBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113757   (836053) от 12.03.2017
 
 Алексей Тихомиров | Приемы рукопашной борьбы (2016) [PDF]
@@ -18,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:70971989BBD6BEAAC0012D77564DEEA182804F04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +74,8 @@ magnet:?xt=urn:btih:70971989BBD6BEAAC0012D77564DEEA182804F04
 magnet:?xt=urn:btih:7922E87706D30FF46ED4F8E34D6FA1B7A043ACFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +99,8 @@ magnet:?xt=urn:btih:7922E87706D30FF46ED4F8E34D6FA1B7A043ACFE
 ```bash
 magnet:?xt=urn:btih:9B9CC2DF622FDCAB23DDB6ECE7EB72E7B6103577
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +126,8 @@ magnet:?xt=urn:btih:9B9CC2DF622FDCAB23DDB6ECE7EB72E7B6103577
 ```bash
 magnet:?xt=urn:btih:7580BD2EE980CE47A0554A9922255796E218FD58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +155,8 @@ magnet:?xt=urn:btih:7580BD2EE980CE47A0554A9922255796E218FD58
 magnet:?xt=urn:btih:B2C85E48DBEA8BC52A60E210499050CC49893FE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +180,8 @@ Chris and Kelly ScottHanson | Кохаузинг. Руководство по с
 ```bash
 magnet:?xt=urn:btih:D15A6E09B979A0BD493ECC74768EFF0859E6CC70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +210,8 @@ magnet:?xt=urn:btih:D15A6E09B979A0BD493ECC74768EFF0859E6CC70
 magnet:?xt=urn:btih:7AC2CCC9CCDD387447CF4C3AF6333C03FC23FB41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +237,8 @@ magnet:?xt=urn:btih:7AC2CCC9CCDD387447CF4C3AF6333C03FC23FB41
 magnet:?xt=urn:btih:77DF4D8E8726A95F82661A6500F65B37BCCC85D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +262,8 @@ magnet:?xt=urn:btih:77DF4D8E8726A95F82661A6500F65B37BCCC85D3
 ```bash
 magnet:?xt=urn:btih:8CE7DA651EC18E324B953D288610404DA633ACD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +289,8 @@ magnet:?xt=urn:btih:8CE7DA651EC18E324B953D288610404DA633ACD4
 magnet:?xt=urn:btih:DBB5102D9541A58547A3F9B9FB70C36B6C813AC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +315,8 @@ magnet:?xt=urn:btih:DBB5102D9541A58547A3F9B9FB70C36B6C813AC1
 ```bash
 magnet:?xt=urn:btih:090B2D229182DF6FAF68DC6E62073C37F710C42E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +344,8 @@ magnet:?xt=urn:btih:090B2D229182DF6FAF68DC6E62073C37F710C42E
 magnet:?xt=urn:btih:B1A283A48C48C3A975FC4FB6BCCEACC052AD51F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +371,8 @@ magnet:?xt=urn:btih:B1A283A48C48C3A975FC4FB6BCCEACC052AD51F3
 magnet:?xt=urn:btih:1CAD07CE3534C1855F5870F8A366281CC0A64AD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +397,8 @@ magnet:?xt=urn:btih:1CAD07CE3534C1855F5870F8A366281CC0A64AD5
 magnet:?xt=urn:btih:DB626675E799068B7999001F9604F66F971B4A29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +422,8 @@ magnet:?xt=urn:btih:DB626675E799068B7999001F9604F66F971B4A29
 ```bash
 magnet:?xt=urn:btih:7B1DA62C331070D2C3194FD063AB679C808FF576
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +452,8 @@ magnet:?xt=urn:btih:7B1DA62C331070D2C3194FD063AB679C808FF576
 magnet:?xt=urn:btih:D4C0B932E806468398131B28B1B020F806713535
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +477,8 @@ magnet:?xt=urn:btih:D4C0B932E806468398131B28B1B020F806713535
 ```bash
 magnet:?xt=urn:btih:89A779F5F4B18D03822F6EF068210F0D195643E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +506,8 @@ magnet:?xt=urn:btih:89A779F5F4B18D03822F6EF068210F0D195643E1
 magnet:?xt=urn:btih:8BCEDB05D92C03E9989F7B072BEF1DF750F1C525
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +531,8 @@ magnet:?xt=urn:btih:8BCEDB05D92C03E9989F7B072BEF1DF750F1C525
 ```bash
 magnet:?xt=urn:btih:9BA080B30B01D9374B99CFCE880EE8ACCE27542B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +561,8 @@ magnet:?xt=urn:btih:9BA080B30B01D9374B99CFCE880EE8ACCE27542B
 magnet:?xt=urn:btih:6522E2FDBB8943A3E054B80E2D5FC2A8A64623D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +586,8 @@ magnet:?xt=urn:btih:6522E2FDBB8943A3E054B80E2D5FC2A8A64623D7
 ```bash
 magnet:?xt=urn:btih:292EA03579E459478AB9CB6F9231C8956344C92A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +613,8 @@ magnet:?xt=urn:btih:292EA03579E459478AB9CB6F9231C8956344C92A
 magnet:?xt=urn:btih:19970D6C7422CC761520F33043282244D877B9A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +639,8 @@ magnet:?xt=urn:btih:19970D6C7422CC761520F33043282244D877B9A5
 magnet:?xt=urn:btih:956931A6B281A15B3A7AE56E76977732262DDF0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +664,8 @@ magnet:?xt=urn:btih:956931A6B281A15B3A7AE56E76977732262DDF0A
 ```bash
 magnet:?xt=urn:btih:36F5999AC14E17D58C5150575AE35B0FC995BAB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,29 +693,7 @@ magnet:?xt=urn:btih:36F5999AC14E17D58C5150575AE35B0FC995BAB0
 magnet:?xt=urn:btih:0B15C6BFF977EBA57FB176AB190C51659F4FA5C3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004253   (836787) от 07.04.2016
-
-Максим Федоров | Дамочный эндшпиль (1996) [DJVU]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена нормальным н этюдным окончаниям в русских шашках. Наряду с работами выдающихся мастеров прошлого обобщен богатый опыт соревнований последних лет. Книга предназначена квалифицированным спортсменам, хотя отдельные главы и позиции будут полезны для шашистов первого-второго разряда. Предлагаемая работа может стать хорошим подспорьем в работе тренеров (   Читать дальше...   )Жанр: Русские ШашкиФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F50B16B16CCD0169CB7BD1F0D7222CFDCF4467C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

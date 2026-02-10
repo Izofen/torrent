@@ -19,6 +19,8 @@ Microsoft прекратит поддержку Windows 10 в октябре 202
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Microsoft прекратит поддержку Windows 10 в октябре 202
 ```bash
 magnet:?xt=urn:btih:EB969FD5B1205989A65602F96F72FD9B82998DB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:EB969FD5B1205989A65602F96F72FD9B82998DB2
 magnet:?xt=urn:btih:8150B9E9ED79395116DFDE232F6262CDCAC4E9A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:8150B9E9ED79395116DFDE232F6262CDCAC4E9A0
 ```bash
 magnet:?xt=urn:btih:3D2206EC1397C2A63FD7AFABA6FF73A684E52588
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Beat Hazard 3 (2024) [Ru/Multi] (1.028) License GOG
 magnet:?xt=urn:btih:E9FE939E27A59F0604E718B8C75C6716B1E16557
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Potion Tycoon / Магнат зельеварения (2023) [Ru/Multi] (1.0.8/d
 ```bash
 magnet:?xt=urn:btih:5737D5CCC6A250264C7757AADBD7B9762C59E8EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:5737D5CCC6A250264C7757AADBD7B9762C59E8EE
 magnet:?xt=urn:btih:92E5C663EC1EEF104D144A7DCCB63CA5C9C845F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:24758A43D40DFB84A432C749EF279BA412144953
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:24758A43D40DFB84A432C749EF279BA412144953
 magnet:?xt=urn:btih:0FEE3B08D6D4207F54E8335D54A1421C4B97F0FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:0FEE3B08D6D4207F54E8335D54A1421C4B97F0FB
 ```bash
 magnet:?xt=urn:btih:1B4497FE25B31EC241231712ECCB98ADAC8BB495
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:1B4497FE25B31EC241231712ECCB98ADAC8BB495
 magnet:?xt=urn:btih:73905C0CD34F9D80F9D01D10B0200F1D1DD0977C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:73905C0CD34F9D80F9D01D10B0200F1D1DD0977C
 ```bash
 magnet:?xt=urn:btih:2057B05B7D3C454848ACE8D7FD3946937A2F291C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:2057B05B7D3C454848ACE8D7FD3946937A2F291C
 magnet:?xt=urn:btih:EA47656C2777717E62348D4EA036BA04A3B3AE9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Heart of Darkness (1998) [Ru/En] (1.1) Repack Ma2012ks
 ```bash
 magnet:?xt=urn:btih:24A7585F14383153D29CF7A254598BEFD54D3F83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:24A7585F14383153D29CF7A254598BEFD54D3F83
 magnet:?xt=urn:btih:53C05835923FECAEFA8D4628E49CEC26380DE0BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ magnet:?xt=urn:btih:53C05835923FECAEFA8D4628E49CEC26380DE0BE
 ```bash
 magnet:?xt=urn:btih:1B8755A05EB6D9821B7FF9B376466346D7BE214C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:1B8755A05EB6D9821B7FF9B376466346D7BE214C
 magnet:?xt=urn:btih:AFE2C4756C285B66C53F1A8250593E2A37215AB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Metro Awakening - это разработанный специально для 
 ```bash
 magnet:?xt=urn:btih:35AE6C782D42F18EE9DA041E46F9E81C46FD03BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:35AE6C782D42F18EE9DA041E46F9E81C46FD03BF
 magnet:?xt=urn:btih:E5DD9703F86F90C4CBCE60F92E18DF996E86C732
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ magnet:?xt=urn:btih:E5DD9703F86F90C4CBCE60F92E18DF996E86C732
 ```bash
 magnet:?xt=urn:btih:FF3B1C8DFFE1F78EB99D06C6B1C57DEB93CD4672
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:FF3B1C8DFFE1F78EB99D06C6B1C57DEB93CD4672
 magnet:?xt=urn:btih:F816309D0B1BC104212FE6153129BF52AC1A9BE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (Build 16212297 Patch 1/dlc) Repack 
 ```bash
 magnet:?xt=urn:btih:6A287A5FE70668B0F6B6D271847C844E64193DC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:6A287A5FE70668B0F6B6D271847C844E64193DC1
 magnet:?xt=urn:btih:080DD562272E14FA50570C2C4DC10BC91CACA9C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ magnet:?xt=urn:btih:080DD562272E14FA50570C2C4DC10BC91CACA9C3
 ```bash
 magnet:?xt=urn:btih:6958E2E3FE8A459EC6010E6B59D948BE3E4647FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.1.42.0) Repack Decepticon
 magnet:?xt=urn:btih:95CFC178FBC3A6A935F5D0DD55253850B6F35095
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ magnet:?xt=urn:btih:95CFC178FBC3A6A935F5D0DD55253850B6F35095
 ```bash
 magnet:?xt=urn:btih:F46C2FAD5D6CCFDFA9E5C19AC8F9C7C57EEC1046
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Undertale (2015) [Ru/En] (1.08) Repack Necros
 magnet:?xt=urn:btih:34F9776C25EFAEFEBADEB8579E5641E4EBCCE06F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ GRID - это уникальная гоночная игра. Неповтори
 ```bash
 magnet:?xt=urn:btih:8961575F9E624A66EB11ECFB8F948DD9D821875F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Citizen Sleeper 2: Starward Vector - это научно-фантастичес�
 magnet:?xt=urn:btih:F2123525EB66D4F48B0B1BE6A86FDE97AC6F3633
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Fear for Sale 2: Sunnyvale Story Collectors Edition / Страх на прода
 ```bash
 magnet:?xt=urn:btih:61AB73BA16E33C22DBAA6695CDAB25D4C638DEC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Beyond the Kingdom 2 / За пределами королевства 2 (2025) [
 magnet:?xt=urn:btih:00326E6D2C96BFC682F897236AA0181681E5D11D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Insanely Twisted Shadow Planet [Ru] (RePack/1.0r9) 2012 l Fenixx
 ```bash
 magnet:?xt=urn:btih:B61DDA272B1843F26CCB1F06B8BB7C812ADCCDDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Street Fighter x Tekken [Ru/En] (RePack) 2012 | R.G. Origami
 magnet:?xt=urn:btih:29B1435AA311C6AAA0774EBB713D113BCF5DF026
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:29B1435AA311C6AAA0774EBB713D113BCF5DF026
 magnet:?xt=urn:btih:88819692A604AD90D636AC201D539A46AF24994D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ Garden Defense / Огородные войны. Атака жуков (P) [Ru] 2
 ```bash
 magnet:?xt=urn:btih:369E714EAE0DE6DE5716E24086DDA1A1E96946EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Cisco Aspire — это потрясающая обучающая игра, ос
 magnet:?xt=urn:btih:40604C31FDE23E800A1B15A1F6DCBDA0A5DF37D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Orion: Dino Beatdown - кооперативный экшен от первого
 ```bash
 magnet:?xt=urn:btih:DB928B70EDC89A0D3902286E5630F88223963AE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Wreckage - финальная часть истории, которая бере
 magnet:?xt=urn:btih:4B99B2F6D7BEAD2EF4F4FF191AE46D492F45F049
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ The Lonesome Guild - это одиночный ролевой боевик с в
 ```bash
 magnet:?xt=urn:btih:49421E085A9EF6E4475AC6C723FFF42C022EE4C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Other s [Ultimate Edi
 magnet:?xt=urn:btih:09E98B6CD85DC99E014D30FB6120449952B284D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Ninja Gaiden 4 (2025) [Ru/Multi] (1.0.2.0/dlc) Repack Decepticon [Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:52FCC8892101DCF1540940D5EC2CEB7CF720EAEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack seleZen [Ultimate Edi
 magnet:?xt=urn:btih:F1265A75BF25EE9F32EAA69C5E178DA2D6122DC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Decepticon [Ultimate 
 ```bash
 magnet:?xt=urn:btih:E8B1047DD5742147C9A3660F61D6EA8D1A22B62E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack FitGirl [Ultimate Edi
 magnet:?xt=urn:btih:511C42B1172B834DBAE7FE8705FF6C472785CA73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ The Outer Worlds 2 - долгожданное продолжение титул�
 ```bash
 magnet:?xt=urn:btih:6F44F165E62CD9E8A535287AE1AC6C82FBBDC009
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Myths and Legends - торговая стратегия в реальном вр
 magnet:?xt=urn:btih:BB7F0D34090D7E4A42D12D13D984F34EFD5677EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ BALL x PIT - динамичный фэнтезийный рогалик, где 
 ```bash
 magnet:?xt=urn:btih:A0AB72E493A3CFA9390F2C551DDFD5BB85B3F16F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Orbyss - головоломка, построенная на логике и о�
 magnet:?xt=urn:btih:485AC8CF8F49BDA8E72213946F1ABC51490A1F3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Rebuild the History (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:9658BDFE3CB17AD07EC8446D72D8127026BE854F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ Bubblenauts: The Hunt for Jolly Rogers Treasure (P) [En] 2012
 magnet:?xt=urn:btih:71DCCEE8EE7B49F9151A053682C45F24E875FF52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Need for Speed Heat - это гоночная игра в открытом ми�
 magnet:?xt=urn:btih:B767FC22BFECF067554DB3FDFA4C0B0ACB6069B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Hoomanz! — это милое и забавное стелс-приключен
 ```bash
 magnet:?xt=urn:btih:C708DC3B7D49ACA661DCA5C8AF51770CB53BB1A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

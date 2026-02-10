@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:72E88A39570BED4C608471BB0847803ED9049817
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ VA - A State of Trance: Future Favorite - 2025 (2025) [MP3|320 Kbps] <Trance, Pr
 ```bash
 magnet:?xt=urn:btih:11C33E3B1F34B79EFF9A48BE03C4DAFF58E80E66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:11C33E3B1F34B79EFF9A48BE03C4DAFF58E80E66
 magnet:?xt=urn:btih:777165CA9148AC113A215B5E55F20BDF1141DF07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:777165CA9148AC113A215B5E55F20BDF1141DF07
 magnet:?xt=urn:btih:562478522480AA5040161C79044F6D4C61B06A23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:562478522480AA5040161C79044F6D4C61B06A23
 ```bash
 magnet:?xt=urn:btih:718E42CA439A7A20736ADC1BBB50021ABC183F5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:718E42CA439A7A20736ADC1BBB50021ABC183F5F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ Fallout 4 (2015) [Ru/Multi] (1.11.137.0.0/dlc) Repack Wanterlude [Anniversary Ed
 ```bash
 magnet:?xt=urn:btih:0AD9D6E2796840F184C0A0294338D97E01BDC5D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:0AD9D6E2796840F184C0A0294338D97E01BDC5D2
 magnet:?xt=urn:btih:86626645010CC615CEAFF58EB55407F93144EA4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:86626645010CC615CEAFF58EB55407F93144EA4D
 ```bash
 magnet:?xt=urn:btih:CAC01DC8E68BD9CFA06CBBA148728F2ED54A2BDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ Michael Schenker Group - Don't Sell Your Soul (2025) Japanese Edition [FLAC|Loss
 magnet:?xt=urn:btih:D50893FD1F414FA328CDA2086DF129E96AA012E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:D50893FD1F414FA328CDA2086DF129E96AA012E3
 ```bash
 magnet:?xt=urn:btih:E14608136586AA0A68527D1FD142811882165566
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ Windows 11 Pro/Ent by OneSmiLe 25H2 build 26200.7171 [Ru]
 magnet:?xt=urn:btih:3742D72737AFD242FEF0F9FA06AF043ACC9212D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ VA - Uplifting Classical Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 magnet:?xt=urn:btih:F515D6742016B4222E32B45A493475D91214740B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ magnet:?xt=urn:btih:F515D6742016B4222E32B45A493475D91214740B
 ```bash
 magnet:?xt=urn:btih:968FD2C1B7E9E0A3691C8E33512EA9CEE6F205B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ magnet:?xt=urn:btih:968FD2C1B7E9E0A3691C8E33512EA9CEE6F205B0
 magnet:?xt=urn:btih:7729D94DF5E2E2467A4EC06ADA4F532CCCB1DB38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ magnet:?xt=urn:btih:7729D94DF5E2E2467A4EC06ADA4F532CCCB1DB38
 ```bash
 magnet:?xt=urn:btih:6CFD740096C925722C7488982CE9CAADD966D158
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +459,8 @@ Discobonus - Different Shores (2020) [FLAC|Lossless|tracks + .cue] <Italo-Disco>
 magnet:?xt=urn:btih:1817EF17FD5F1FC7814854FB3EBE21082FF1BC02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ magnet:?xt=urn:btih:1817EF17FD5F1FC7814854FB3EBE21082FF1BC02
 magnet:?xt=urn:btih:1A317D469AFADC8D4E4E5347E4304423AA7820D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ magnet:?xt=urn:btih:1A317D469AFADC8D4E4E5347E4304423AA7820D0
 ```bash
 magnet:?xt=urn:btih:D56E756D5D28AFE51DEAFC24BA0049E8F08F8515
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:D56E756D5D28AFE51DEAFC24BA0049E8F08F8515
 magnet:?xt=urn:btih:D990265DA148432A2D416DC3C58E7321793A69D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ magnet:?xt=urn:btih:D990265DA148432A2D416DC3C58E7321793A69D1
 ```bash
 magnet:?xt=urn:btih:94E5E70ED6F640E756AFBADCD00CC24C444E1BFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +593,8 @@ magnet:?xt=urn:btih:94E5E70ED6F640E756AFBADCD00CC24C444E1BFC
 magnet:?xt=urn:btih:96F11774D6DA922090A95501C31652009B213BDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +619,8 @@ VanSans - это семейство гуманистических гротес�
 magnet:?xt=urn:btih:DB0FAFFF6DDEC658B3B315A222DB53E55420332B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +644,8 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:D91E4AA5B367BC56A13F3859C8006B90A8FD5DAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +674,8 @@ Before Doom - Noir (2025) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, J
 magnet:?xt=urn:btih:4C74DA6C2BECD247A880F9C82E713BB49DEFFA6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ Windows 7 SP1 7601.28021 x64 3in1 by OneSmiLe [12.11.2025] [Ru]
 ```bash
 magnet:?xt=urn:btih:0428A4A081EC85DDF272310F1BBB1BD6828D2854
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

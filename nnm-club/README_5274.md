@@ -19,6 +19,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:CACD05F4619AD08F2B394ABEE5DDDDB73DBD0989
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:CACD05F4619AD08F2B394ABEE5DDDDB73DBD0989
 ```bash
 magnet:?xt=urn:btih:11B5C2B7BE6C9F6BD3104A60037B22B9DB29CB3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Adobe Photoshop Lightroom - незаменимая программа при р�
 magnet:?xt=urn:btih:2BF1EB86DD7F7B63374CC2B4C42A4C3E6693E760
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:2BF1EB86DD7F7B63374CC2B4C42A4C3E6693E760
 ```bash
 magnet:?xt=urn:btih:C8652E4B376BE232ACBC68CC58115379A1219205
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:C8652E4B376BE232ACBC68CC58115379A1219205
 magnet:?xt=urn:btih:84F78BC2BCD7FB7B57D3DB0F2B31E95CC1E50D27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Grant Green & Ike Quebec - Complete Instrumental Session (1961, 1962) 2CD, 2013,
 magnet:?xt=urn:btih:FF5A0BE0E35F3B159680880A4C534CC5B515DC05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:FF5A0BE0E35F3B159680880A4C534CC5B515DC05
 magnet:?xt=urn:btih:5EDE40345EE4D5309EC7F80174C572F97C085CF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:5EDE40345EE4D5309EC7F80174C572F97C085CF1
 ```bash
 magnet:?xt=urn:btih:064F26DD319F39567F15AC8E5AAA5123A3381D64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:064F26DD319F39567F15AC8E5AAA5123A3381D64
 magnet:?xt=urn:btih:E05AE2D51B2662CD19D6B0D9C7A654BD6E82FDCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:E05AE2D51B2662CD19D6B0D9C7A654BD6E82FDCB
 magnet:?xt=urn:btih:AE80E36B403D0DD2DA531DC6DCED56CBD2F98262
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:AE80E36B403D0DD2DA531DC6DCED56CBD2F98262
 ```bash
 magnet:?xt=urn:btih:7217A5257810593B997736312FC472F3A5F4DF01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:7217A5257810593B997736312FC472F3A5F4DF01
 magnet:?xt=urn:btih:7219B71ECBEDB42E0516BA0A79213FFF0F06D4BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ Bad Montana - Rock City (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:DC2B66FD842E3859EEC0EDC3852610A1969856A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:DC2B66FD842E3859EEC0EDC3852610A1969856A3
 magnet:?xt=urn:btih:F1DA9DAA360E416E9660BC391C39DAEE3A953150
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:F1DA9DAA360E416E9660BC391C39DAEE3A953150
 ```bash
 magnet:?xt=urn:btih:5C4160EEB1DF314859B1183AE34AEEDCD7A5F78C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ Clayton Doley - Optimistic (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:DAA753AED082B4ACB30FDD473B76946BCCD1E2D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:DAA753AED082B4ACB30FDD473B76946BCCD1E2D1
 ```bash
 magnet:?xt=urn:btih:105C82790963D84A38DFE58558AF9E4480ED4E8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ Ennio Morricone: Peace Notes - Live in Venice (2008) BDRip [H.264/720p]
 magnet:?xt=urn:btih:32248B8601BE2C56E830979D84BE853DCF392DBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ magnet:?xt=urn:btih:32248B8601BE2C56E830979D84BE853DCF392DBD
 magnet:?xt=urn:btih:60C6B114DE0FAFD11067B1324D1B445FFB4E3C04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ magnet:?xt=urn:btih:60C6B114DE0FAFD11067B1324D1B445FFB4E3C04
 ```bash
 magnet:?xt=urn:btih:887AB8215A75EE503A0AB9D5A6ED47E063EA2673
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +561,8 @@ Badery - Reminiscence (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:E38865EC4DA28983DAD6704265029DD4E9CEC52B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ magnet:?xt=urn:btih:E38865EC4DA28983DAD6704265029DD4E9CEC52B
 ```bash
 magnet:?xt=urn:btih:3BE0CA91EAF01D032F0DC44BB731378169CF4F04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +618,8 @@ Angel Tyrs - Lost (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
 magnet:?xt=urn:btih:34DFBE4F8B716BEEF1E2AA500597245E99B127FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ magnet:?xt=urn:btih:34DFBE4F8B716BEEF1E2AA500597245E99B127FC
 ```bash
 magnet:?xt=urn:btih:9089278E0A61753C90A7CC3EB3216D2C6CA067E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:9089278E0A61753C90A7CC3EB3216D2C6CA067E2
 magnet:?xt=urn:btih:7F9F8E4719EC6B2E14D6B24F99A4FF982B57328C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ Speedtest - это приложение предназначено для опр
 ```bash
 magnet:?xt=urn:btih:5961172A83FE498296979F0395C0DDC59B9B519B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Lempo – это психологический хоррор, вдохновле
 magnet:?xt=urn:btih:C32CB1AB6037CBF125E71F85537D433500978A9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Alfred Hitchcock: Vertigo (2021) [Ru/Multi] (2022093001/dlc) License GOG [Digita
 ```bash
 magnet:?xt=urn:btih:66F07DE408657593D2B3BE324E3E1613EB7EDC93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Sumatra: Fate of Yandi (2019) [Multi] (1.2) License GOG [Collector's Edition]
 magnet:?xt=urn:btih:D337000F742F5CEC8D2F6698C05FA52AE8AF8963
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Under the Waves (В глубинах океана) – это повествов
 ```bash
 magnet:?xt=urn:btih:DC35B8CC0E033B58D432B729072AE4C9768875B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Fort Solis - сюжетный триллер от третьего лица, р�
 magnet:?xt=urn:btih:8256B51C502069F6C1BC3769C85CE7F315A67B89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Great North Shelter 2 — приключение от первого лица, �
 ```bash
 magnet:?xt=urn:btih:8A743144728CFE87B16E842230C15CC56483D2C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Great North Shelter - это самый странный Национальны�
 magnet:?xt=urn:btih:88A6D976A927510E910A93646D06D179F887F402
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Behind the Frame: The Finest Scenery (2021) [Ru/Multi] (2.0.4_01) License GOG
 ```bash
 magnet:?xt=urn:btih:BF5813EBD16EF0EF5BF84785F9F69EC0D6141107
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Murder Is Game Over выглядит как японская ролевая иг
 magnet:?xt=urn:btih:F962D5F900529EF867E0D7A9C53E5EA109224E95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ FAITH: The Unholy Trinity (2022) [En] (1.00) License GOG
 ```bash
 magnet:?xt=urn:btih:EC0C27F8D508A35EA89BA9CD619E35DA93E84D73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ HeadHorse - ваш похититель, и у вас есть единстве�
 magnet:?xt=urn:btih:0D68528F02DA967CB9EC7759219DB473A00E8EF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ KAGITORI -BIRD IN THE CAGE HIDING THE KEY- (2023) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:4E53B0299167D0B41D0B10CB1C3A6C5623409F10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Paper Cut Mansion - хоррор в жанре roguelite, действие ко�
 magnet:?xt=urn:btih:0EFFE97E19B67AB6878FAA4495E0C707C3FACB8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Agatha Christie - Hercule Poirot: The London Case (2023) [Ru/Multi] (1.0) Scene 
 ```bash
 magnet:?xt=urn:btih:7C7AFE3D789B8AC18BCFCB67CE613DFE84A60A26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Apartament 1406: Horror — это напряженная игра ужасов,
 magnet:?xt=urn:btih:C315DFFABF3C0D4EB713369108D2E01D36B802F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Last Labyrinth (2019) [Ru/Multi] (1.0.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:C819792C193CF5A4DA4113414397B4E662B7A37D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Orbo's Odyssey (2023) [En] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:E43689F76137817DCA4840557795D39FB1017E76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Frank and Drake (2023) [Multi] (1.0.1) Scene Tenoke [Special Edition]
 ```bash
 magnet:?xt=urn:btih:7DE066518432FF2869D12769AFCAAD6AA4D26D89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Trek to Yomi (2022) [Ru/Multi] (build 10443135) Repack dixen18
 magnet:?xt=urn:btih:47A70BE383996C256E1C6F079AEB7D88758E4CCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Clover Day's Plus (2023) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:3FCFA0042E5ED5BE2E515677FE9CC2E438E8A87E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Labyrinthine — кооперативная хоррор-игра с одино�
 magnet:?xt=urn:btih:EC71D978090BF7CE08C2AF2B7C858B0C8178BE73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Verne: The Shape of Fantasy (2023) [Multi] (1.4) License GOG
 ```bash
 magnet:?xt=urn:btih:01C1D29C3F2DFF2922CF89A38F526B46D1956612
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Nightmare Manor (2023) [Ru/Multi] (Build 11921472) Repack Other s
 magnet:?xt=urn:btih:29D1D9DFDB484734851009AE0F009EF0509C5475
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Cat's Request (2023) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:E2A9088A66AAB55F313DAD8B5725F76635993143
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Greyhill Incident – проект, разработанный в жанре х�
 magnet:?xt=urn:btih:80D80D2C5FDEE8DD0A012643B190515F5E827078
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Nightmare Manor (2023) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:BA5E2041FFA6DBB6AB99B651833EEC15EEA396B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

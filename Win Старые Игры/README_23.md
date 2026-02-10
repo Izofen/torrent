@@ -19,6 +19,8 @@ Simon the Sorcerer 3D (также известна как Simon 3D) - компь
 magnet:?xt=urn:btih:61361A9BA6D129FB106ED62D4358E2F5654D5DD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Second Sight [Ru/En] (RePack) 2005 | R.G. Механики
 ```bash
 magnet:?xt=urn:btih:D2D814AA575BF54797FCB377889ECE7D3B213CFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Psi-Ops: The Mindgate Conspiracy / Psi-Ops: Врата разума [Ru/En] (ReP
 magnet:?xt=urn:btih:67A3C320C2A01D302C74C83CDC31D262FB6AA56B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Kingdom Hearts [En] [RePack/Emul] 2002 | MoveXX
 ```bash
 magnet:?xt=urn:btih:9317AEF6E78E65A40888E5941446EA3174437FBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Star Wars: Battlefront (2004) [En] (1.3.7.4) License GOG
 magnet:?xt=urn:btih:02C8F8641FA3BEFD88243B0BF74E9A0E592D0826
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Konami Collector's Series: Castlevania & Contra (2002) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:592978909D7CE473B97A71A0EEC153999F8CA242
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Big Buck Hunter Arcade (2016) [En] (5.3.6) License PLAZA
 magnet:?xt=urn:btih:686E1863F9729F11B12A73E19641CD7F0FACB1E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Pendragon (2020) [En] (1.2.13) License GOG
 ```bash
 magnet:?xt=urn:btih:BA339AC5CB21D254D996B9E4BF300549106AB50A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Call of Juarez: Bound in Blood (2009) [Multi] (1.1.0.0) License GOG
 magnet:?xt=urn:btih:CADADFA6B8ADAB4817B3F050EF26303F8A622C72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Moto Racer 2 (1998) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:CB593E2C20E7FFE3656B9C3CA38AAF89A9EEDA78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Sky Break (2016) [Ru/Multi] (1.0) License HI2U
 magnet:?xt=urn:btih:1AE187BC25BC25D362204A53F281DBE29E2A0382
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ MegaRace 3 (2001) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:A1067A22101B036A860355F9E0DEF7731CDB6152
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Moto Racer (1997) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:9B17649A009E7BDF9D48F4BD84CF2523B9D238C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Painkiller Overdose, самостоятельное дополнение к во
 ```bash
 magnet:?xt=urn:btih:EFE9E0AF10617B0E7723612A240BFE47CBE09D60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Overclocked: A History of Violence / Overclocked. Оправданная жес�
 magnet:?xt=urn:btih:33B212E60F3D143B7B63935D1439026CB4FE1575
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Albion (1995) [Ru/En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:E717A72C93AA988B0CE6D7DD42F1C467D319DD75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ Icewind Dale / Долина Ледяного Ветра (2001) [Ru/En] (1.42/dlc
 magnet:?xt=urn:btih:920BDF608B5273A8CC08A136335DB630B5861282
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Jagged Alliance 2 / Jagged Alliance 2: Агония власти (1999) [En] (1.
 ```bash
 magnet:?xt=urn:btih:DBF8E9A431120073CB5CAB720A301E1FDA02F591
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ Warlords: BattleCry 3 (2004) [Ru/En] (1.0.3) License GOG
 magnet:?xt=urn:btih:76E6082DDC293DACA78BFAE411D938A91CBB84BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ The Suffering: Ties That Bind (2005) [Ru/En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:E5400102AD2493FF799B71160C8591ADD1340B2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ MDK 2 (2000) [Ru/En] (1.003) License GOG
 magnet:?xt=urn:btih:C399C537B634D6D93F72984C9B5BCB4213795729
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ Titus the Fox: To Marrakech and Back (1992) [En/Fr] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:08E1469A3413EAC3815ED14EFE622BF56155D0DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ Privateer 2: The Darkening (1996) [En/Ge] (17.0e) License GOG
 magnet:?xt=urn:btih:2A3DA6F1DBF98DA42C5F7EF1B509FEC9C9CDEF10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ Shadow Man (1999) [En/Fr] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:44825B4D52D005EA05A190B66033AC286E9B228F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ Chaos Legion / Рыцари Хаоса [En/Ru] (RePack/1.1.0) 2003 | R.G. Cataly
 magnet:?xt=urn:btih:44C7FB2B2C7E0DC73D314E0D39DD55085AF07DB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Gangland (2004) [Ru/En] (1.4.0) License GOG
 ```bash
 magnet:?xt=urn:btih:993F4C9FACAC44FDCF297024009CE4DD84530B68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

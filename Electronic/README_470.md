@@ -22,6 +22,8 @@ Infected Mushroom - Return To The Sauce (2017) [MP3|320 Kbps] <Psy-Trance, Dubst
 magnet:?xt=urn:btih:715016810CCDD423F90B4D56C9E44E4553E0D541
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Black Hole Trance Music 08-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Tran
 ```bash
 magnet:?xt=urn:btih:59F76DD3DF86696FD9537E7C3E405DA026D56CB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Buddha-Bar XXII (by Ravin) (2020) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Ch
 magnet:?xt=urn:btih:9D7462D5D92EDB2F59A7C3BEFD207A1523A68860
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Samsara Beats Presents: Detonation (2020) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:CF6BF945C9651AB0882A7082413125401CDEB956
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Propaganda - 1234 (1990) [APE|Lossless|image + .cue] <Synthpop, New Wave>
 magnet:?xt=urn:btih:364840D17E9124535650FEBD04BD8D99D31D6B84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ David Arkenstone & Seth Osburn - Italian Nights (2017) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:01CC20E9E51DD84E18FEDEA50AF4445BEF793CDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Sweet Vocal Lounge (Chillout Your Mind) (2017) [MP3|320 Kbps] <Chillout, Lo
 magnet:?xt=urn:btih:6E1CB073CCBF94619657165D8F57771970A897C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Best Of 2016 (2017) [MP3|320 Kbps] <Tech House>
 ```bash
 magnet:?xt=urn:btih:30D696DDE97C3A2350A9063EB6FAF988ED93EE2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Chillout Fantasies (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 magnet:?xt=urn:btih:86A68134E7C3ABC84947DA5C59445FAD8BB6BC9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - River's Lounge: Stage Selection (2016) [MP3|320 Kbps] <Chillout, Lounge, Do
 ```bash
 magnet:?xt=urn:btih:CEBEFA8C1A8608CA79E32523615047CFBB5C9724
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Conforce - Kinetic Image (2013) Delsin [FLAC|Lossless]<Techno, Experimental>
 magnet:?xt=urn:btih:12F5AE66EFC36171275BC1D5B4828A4DE70FEE17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Muhr - Depersonalization (2013) [FLAC|Lossless|WEB-DL|24Bit]<Ambient, Modern Cla
 ```bash
 magnet:?xt=urn:btih:31D706B45499AA87E6B059E902E21713BCE4E724
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ KiloWatts (Invisible Allies, Skeetaz, Super Galactic Expansive) - Discography 42
 magnet:?xt=urn:btih:87DC07B0A0B09E3A77810E2A40CF0BB7145EFD53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Scatman John - Scatman's World (1995) [FLAC|Lossless|image + .cue] <Euro House>
 ```bash
 magnet:?xt=urn:btih:EB42BCBDEEB53DD33490F6C9DEF1D26BF6DDFB28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ The Pixel Door - Discography 13 Releases (2013-2020) [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:6046B20A09045B836BFA8883A0DEC9A9059D630A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - Uplifting Only - Orchestral Trance Year Mix 2015 (Mixed by Ori Uplift) (201
 ```bash
 magnet:?xt=urn:btih:04199D11A3B388191728E9CC17129939F80BB65F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - Hotel Bar Lounge Music (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge
 magnet:?xt=urn:btih:CDED9923F33E8CB4347E7704A25C74D225B5B939
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Dance With the Dead - B-Sides: Vol. 1 (2017) [MP3|320 Kbps] <Synthwave, Synthpop
 ```bash
 magnet:?xt=urn:btih:B57F5EEF333E3118CD3284A014CC696B0BE21A0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ Cosmic Gate - Live @ New York City Sunset Set (2021-08-18) [MP3|320 Kbps] <Progr
 magnet:?xt=urn:btih:C50E8984F3064274334780B438E78ADC5053A540
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ VA - RLX 10: The Chill out Collection (2016) [MP3|320 кб/с] <Downtempo, Chill
 ```bash
 magnet:?xt=urn:btih:D394672BE16F23ECD2507680C1CA371141FEACC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ VA - RLX 9: The Chill out Collection (2015) [MP3|128-320 кб/с] <Downtempo, Ch
 magnet:?xt=urn:btih:A1135E26586784265EE17E1F1900304E39CD867A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ Nervenbeisser - Collection (2 Albums: Geschlechterschlacht, Zeitwandel) (2015 - 
 ```bash
 magnet:?xt=urn:btih:E81B958FDDC680B928564D71475C1A246B8531A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ VA - Revealed Recordings presents Miami Festival 2020 (2020) [MP3|320 Kbps] <Hou
 magnet:?xt=urn:btih:F47B6663F3F21FD75E4E976BDB0363241815F215
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:B370310C31B8841A73524293FED92939DBAAB114
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ Tiesto - Club Life 750 (Top 50 Fan Favorites) (2021-08-13) [MP3|192 Kbps] <Elect
 magnet:?xt=urn:btih:520BC37CEB315392D449FBC816A6BD7374049366
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ Leaving Laurel - Leaving Laurel (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep House
 ```bash
 magnet:?xt=urn:btih:AA1E0745986B31210F15989AF2206F47E6C656A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

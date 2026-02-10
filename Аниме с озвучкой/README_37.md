@@ -19,6 +19,8 @@ Taboo-Tattoo / Запретная татуировка [2016, TV, 12] HDTV 720p 
 magnet:?xt=urn:btih:32E2EC8F4134E60F7712F5A678C82B20148274BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Gekijouban Blood-C: The Last Dark | Кровь-С: Последняя тьма [
 magnet:?xt=urn:btih:31402473DFF712BBD1AF1FC8C7E4A672FD6B5365
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Shigatsu wa Kimi no Uso / Your Lie in April / Твоя апрельская ло
 ```bash
 magnet:?xt=urn:btih:8F17031F3FE53D42481537DB6F39BBDCD8DA038A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Suzumiya Haruhi no Shoushitsu / The Disappearance of Haruhi Suzumiya / Исче�
 magnet:?xt=urn:btih:A66CECC5652E8CCA10BED048738D5DC294F77322
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Toji no Miko / Katana Maidens / Жрицы с мечами [2018, TV, 24 ep] WEB
 ```bash
 magnet:?xt=urn:btih:184DAC8B2A7ADA1D83369AA15B4D5590AC97DC3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Taifuu no Noruda / Typhoon no Noruda / Тайфун Норды [2015, Movie] BDr
 magnet:?xt=urn:btih:90DFC01F5DF75A8D3FFFD9756BDBF14C475E98E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Asa Made Jugyo Chu! / С утра и до заката мы учимся раз�
 ```bash
 magnet:?xt=urn:btih:EB4F5E0FF68A093D7B7E11E5C93A9742925B0899
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Odin: Koushi Hansen Starlight / Odin: Photon Space Sailer Starlight / Один: 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Vampire Hunter D / Ди - охотник на вампиров [1985, Movie] BDr
 magnet:?xt=urn:btih:B9256D189D8BBC70907C123B658031F8CF0D728F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Vampire Hunter D / Ди - охотник на вампиров [1985, Movie] BDr
 ```bash
 magnet:?xt=urn:btih:3ADC79FCC28BBB84166424F998C6086F76440A27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ world-art.....Перевод: Многоголосый любительский 
 magnet:?xt=urn:btih:EFB2B680EE02451E5FC46429C01BBD28B04E91EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:EFB2B680EE02451E5FC46429C01BBD28B04E91EA
 magnet:?xt=urn:btih:7CEFE0B8AF1C568DB4D24BF8F092FC1C871FD10C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Hoshi o ou kodomo / Children Who Chase Lost Voices from Deep Below / Ловцы 
 ```bash
 magnet:?xt=urn:btih:08E45C2F9E93BADE1A63DA246F7DAABC1731BDD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Momo e no Tegami / A Letter to Momo / Письмо для Момо [2011, Movie]
 magnet:?xt=urn:btih:0DC19EA5C7DA2018F07F18D87ACAFCA6BAA12F2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Momo e no Tegami / A Letter to Momo / Письмо для Момо [2011, Movie]
 ```bash
 magnet:?xt=urn:btih:D1290B0D8DB4CDAB8C775D79C2FC0D1B2AA61719
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Soredemo Sekai wa Utsukushii / SoreSeka / И всё-таки мир прекра
 ```bash
 magnet:?xt=urn:btih:78B095DA536D886E992405E2954A9A784E8E4547
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ Gekijouban Trigun: Badlands Rumble / Trigun the Movie / Триган: Переп
 magnet:?xt=urn:btih:6EA816548A3C285DB89B0247D5B5B8E2BB28C236
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ Aldnoah.Zero / Алдноа.Зеро (ТВ-2) [2015, TV, 12 ep] BDRip Hi10p 720p
 magnet:?xt=urn:btih:AE6BE7B7F74EB688D040DF0F1B21B730EC4B67BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ Durarara!!x2 Shou / Дюрарара!! 2 (сезон первый) [2015, TV, 12
 ```bash
 magnet:?xt=urn:btih:B5E7D2C0068F12BC3D51FEB474D035B6C5AFC390
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:B5E7D2C0068F12BC3D51FEB474D035B6C5AFC390
 magnet:?xt=urn:btih:C99DDFAA6DD7FA97533291DA8FE86ACCA812FBE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Boku no Hero Academia the Movie: Futari no Hero | My Hero Academia the Movie: Th
 ```bash
 magnet:?xt=urn:btih:72977EA68C479B7F924D6641404BDB09E2C47D91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Yowamushi Pedal: Glory Line / Трусливый велосипедист: Че�
 magnet:?xt=urn:btih:BC9D5234E436DF1A86E6CEC0306EB626C91B8AB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Kono Healer, Mendokusai | Don't Hurt Me, My Healer! | Этот хилер мен
 ```bash
 magnet:?xt=urn:btih:8E282CCCA3513E39D178FBF319ED8109D326B5AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:8E282CCCA3513E39D178FBF319ED8109D326B5AC
 magnet:?xt=urn:btih:B94EC43B0E3D192FCCAB7A00C3F1B624F50CCCA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ Kaguya-sama wa Kokurasetai: Ultra Romantic | Kaguya-sama: Love is War Ultra Roma
 magnet:?xt=urn:btih:1F3446C9BF3722C3561CA45B0D9A20088DBA29AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:1F3446C9BF3722C3561CA45B0D9A20088DBA29AE
 ```bash
 magnet:?xt=urn:btih:A1190DC18A5FC33B671AAB563190A3504533DE7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

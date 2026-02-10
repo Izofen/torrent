@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:356BB683D0206ABBF05674CB9CC7140D5EE55283
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:356BB683D0206ABBF05674CB9CC7140D5EE55283
 ```bash
 magnet:?xt=urn:btih:959FBDFFCE78B352A87982DA362A4B7BCE15FFEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Eisfabrik - Gotter in Weiss (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Futu
 magnet:?xt=urn:btih:2D19C70C50E84D40B37984A791A45F50582B7B10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:2D19C70C50E84D40B37984A791A45F50582B7B10
 ```bash
 magnet:?xt=urn:btih:42C1E7102A3880B7F8A4F6B52D68905B53102085
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ Public Memory - Elegiac Beat (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Left
 magnet:?xt=urn:btih:62D53255D8D3C1931ACDC5EE5A4AE2CBBE024201
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:62D53255D8D3C1931ACDC5EE5A4AE2CBBE024201
 ```bash
 magnet:?xt=urn:btih:CE22196E630A01FFB870F7FB1E1EB294BE009594
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:CE22196E630A01FFB870F7FB1E1EB294BE009594
 magnet:?xt=urn:btih:FB36C8C937B2A33F911A741D25EBBFDAA8758D38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:FB36C8C937B2A33F911A741D25EBBFDAA8758D38
 ```bash
 magnet:?xt=urn:btih:86697D5B577492D931BEAB300BCE13EF5CF4ED02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:86697D5B577492D931BEAB300BCE13EF5CF4ED02
 magnet:?xt=urn:btih:EAA125CDBAB91F0B2C0980CC709EC87AC7FE3636
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:EAA125CDBAB91F0B2C0980CC709EC87AC7FE3636
 ```bash
 magnet:?xt=urn:btih:513514D0F94A114C226DCCF6D1CF4BA737598746
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:513514D0F94A114C226DCCF6D1CF4BA737598746
 magnet:?xt=urn:btih:9EFF5F218497CDC72E81AA00AF53CEC61A61CD55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ Todd Grubbs - Inside Your Brain (2024) [MP3|320 Kbps] <Heavy Metal>
 magnet:?xt=urn:btih:D22364CA61E8E725149F1EBC59284A0A9A4EF6A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:D22364CA61E8E725149F1EBC59284A0A9A4EF6A3
 ```bash
 magnet:?xt=urn:btih:A8E7FBFF97E7E5244D0DEA05C2D64576A38FF011
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ magnet:?xt=urn:btih:A8E7FBFF97E7E5244D0DEA05C2D64576A38FF011
 magnet:?xt=urn:btih:6A21AF08DCDD44523F52C434564859231120949B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:6A21AF08DCDD44523F52C434564859231120949B
 ```bash
 magnet:?xt=urn:btih:A63E3CAF1815DEE55CDC70302F29464A2EE56E41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ Chase The Bear - Honey (2023) [FLAC|Lossless|WEB-DL|tracks] <Glam Rock>
 magnet:?xt=urn:btih:631DF6C1A632B07CF8837191EBA55C7BED0D8E16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ Public Memory - Elegiac Beat (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trip 
 magnet:?xt=urn:btih:349B1C177947457DABD2FAF057DD487F795833E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ magnet:?xt=urn:btih:349B1C177947457DABD2FAF057DD487F795833E8
 ```bash
 magnet:?xt=urn:btih:667F320F1E9359C1941AB65854EEBD0D91E43272
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ magnet:?xt=urn:btih:667F320F1E9359C1941AB65854EEBD0D91E43272
 magnet:?xt=urn:btih:DD7324833F28C3911C34B3DDD7F29F8CF8DF23BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ magnet:?xt=urn:btih:DD7324833F28C3911C34B3DDD7F29F8CF8DF23BD
 ```bash
 magnet:?xt=urn:btih:89F476118443DF228E44CA664946B1240BABB081
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +567,8 @@ magnet:?xt=urn:btih:89F476118443DF228E44CA664946B1240BABB081
 magnet:?xt=urn:btih:18CB2CBA68D9B45CEA7A2BB2FA52B2D0C77EFD30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +592,8 @@ magnet:?xt=urn:btih:18CB2CBA68D9B45CEA7A2BB2FA52B2D0C77EFD30
 ```bash
 magnet:?xt=urn:btih:487BA7D8A7319ED3E55301048634CB38E6E961D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +619,8 @@ magnet:?xt=urn:btih:487BA7D8A7319ED3E55301048634CB38E6E961D1
 magnet:?xt=urn:btih:EB0AE73715BFCF5D4314740ADB0F77A3A6FB628F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ ToonMe 0.6.102 Mod by maxi123444 [Ru/Multi]
 magnet:?xt=urn:btih:3217B5DE6BC2EBC024120DF7860A66E44E276ED6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ Lakeview Cabin 2 – хоррор-приключение в открытом и�
 ```bash
 magnet:?xt=urn:btih:42190DEA1D53EA95C37AF31AF3D371D57943313C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +699,8 @@ magnet:?xt=urn:btih:42190DEA1D53EA95C37AF31AF3D371D57943313C
 ```bash
 magnet:?xt=urn:btih:8B7EBCCF50B4E013F5CBAD05B072D692D61D2471
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

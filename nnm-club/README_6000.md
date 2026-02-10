@@ -19,6 +19,8 @@ Notebooks является единственным блокнотом, кото
 magnet:?xt=urn:btih:9A40A9EBB5FC95A9C35CE0C1C95E094808D71ADB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Them - Return To Hemmersmoor (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, 
 magnet:?xt=urn:btih:1AD34CE8B8735752255102FE68816946E638932A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ start - это уникальный лаунчер для macOS, позволя�
 ```bash
 magnet:?xt=urn:btih:45280C61981FF4405CD452AAE8EEA31085A6391C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:45280C61981FF4405CD452AAE8EEA31085A6391C
 magnet:?xt=urn:btih:970BEAA5EDC8E5701F0B6E41C8A7EEC5D3D93B91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ Koan - Munchausen Trilemma (Side A) (2020) [AAC|~325 Kbps] <Ambient, Chillout, D
 magnet:?xt=urn:btih:7B9B1CD05E5E178632536185FFDE1EBAA856D17C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ SSH Config Editor Pro 2.1 [En]
 ```bash
 magnet:?xt=urn:btih:DC0209B2E4A1EBF5BB518F095E88226205BA241F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ Novembers Doom - Nephilim Grove (2019) [FLAC|Lossless|image + .cue] <Melodic Doo
 magnet:?xt=urn:btih:8EE878073F5464EE98EBD65ED32E3EC426B9F55C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:2A28D9E56A0F427FA99686CDA8494F6EADD4E493
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ Clipboard Booster - очень простое и легкое приложени
 ```bash
 magnet:?xt=urn:btih:6C579890E3965FC9AFA0AD370BACD83E032E9DC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ Metalite - A Virtual World (2021) Japanese Edition [FLAC|Lossless|image + .cue] 
 magnet:?xt=urn:btih:69255E2A07100A7D83B2AB54BD10BC35C81ED6B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:69255E2A07100A7D83B2AB54BD10BC35C81ED6B9
 ```bash
 magnet:?xt=urn:btih:24956BED56C335828B3604D15FC288931C811C7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +325,8 @@ Metalite - Biomechanicals (2019) Japanese Edition [FLAC|Lossless|image + .cue] <
 magnet:?xt=urn:btih:64C629D97D36006D93E5481453E9BB048C71EFAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ Hidden Object Secrets: Family Revenge (2023) [En] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:3427B204CA86177358F9C8132C9FD61A20A0CDE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:EB15B5F8DFA67E387C3EAB2D03341656646B15D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:EB15B5F8DFA67E387C3EAB2D03341656646B15D0
 ```bash
 magnet:?xt=urn:btih:AE0B8B1A81DBC6EB19FE3D89CF8132943F3276D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ Chez Kane - Powerzone (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melo
 magnet:?xt=urn:btih:29C7208DF89E74010EE06AADC96832E9F78B1B1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +457,8 @@ magnet:?xt=urn:btih:29C7208DF89E74010EE06AADC96832E9F78B1B1E
 ```bash
 magnet:?xt=urn:btih:C20222DEFF3C8552E7010721AA86D450820329A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +484,8 @@ EZ CD Audio Converter - утилита для преобразования ау�
 magnet:?xt=urn:btih:6EB52D7FBFC317EF31F985E5003D96720DE1073C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ magnet:?xt=urn:btih:6EB52D7FBFC317EF31F985E5003D96720DE1073C
 ```bash
 magnet:?xt=urn:btih:09A4C68258041A4B6FC1B46A1ACD25850987BFBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ CPU-Z способен показать различную информацию 
 magnet:?xt=urn:btih:75BDE8418FD53444212011086A1AA89E1936C753
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ Principle — приложение для Mac OS, которое позволя�
 ```bash
 magnet:?xt=urn:btih:7C3B4869A764C4F70E8CF200AF200C75F68456D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +591,8 @@ The Jokers - Rock And Roll Bones (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic H
 magnet:?xt=urn:btih:EAFD0825D8FF1514D7EC8A3859E52ECF2D66851E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +620,8 @@ Toxik - Dis Morta (2022) [FLAC|Lossless|image + .cue] <Technical Speed Metal, Th
 magnet:?xt=urn:btih:1F227B4C7F19DCB93C6E8A454736BE619537BB81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +648,8 @@ GlueMotion был создан, чтобы сэкономить время и п
 magnet:?xt=urn:btih:6774BBFD920122967E3FD9F9D3163BA3597DF455
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +674,8 @@ DesktopClock3D - простые, но в то же время красивые 3
 magnet:?xt=urn:btih:F0D148B6F36E1350E2770F87BDC93CF71F61146A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ HyperDither использует элегантную процедуру уме�
 ```bash
 magnet:?xt=urn:btih:228D671D1540D6570866B6378C521D3F7EE501CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

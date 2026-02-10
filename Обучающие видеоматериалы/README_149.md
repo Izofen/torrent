@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:7F14ED64011E96525F688CA8F5AFF88555594CBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Lynda.com | Работа с Nikon D3200 и D3300 (2016) HDRip [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:A2626BBA75EED53032611D356A39C8B680480763
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Master-CSS | One Page Scroll сайт (2015) PCRec [H.264/720p]
 magnet:?xt=urn:btih:BA279CBF0613F56A7685AB2376EBB70D750DAAE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:BA279CBF0613F56A7685AB2376EBB70D750DAAE7
 magnet:?xt=urn:btih:296B8A3F09E98D64D1328DA4C919D56061088A80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ Udemy, Denis Astahov | Kubernetes с Нуля для DevOps Инженеров (
 magnet:?xt=urn:btih:A731A2BD3ACAFB071A641748E43809497B00793F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ Apache ActiveMQ - это брокер сообщений с открытым и�
 ```bash
 magnet:?xt=urn:btih:B62237069F64AB6DA580D778FD7A5B11C135FCA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ Docker и Kubernetes - одни из самых востребованных т�
 magnet:?xt=urn:btih:D95B964AA869E2D8FD13E56B55ECFC308E1B12E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ magnet:?xt=urn:btih:D95B964AA869E2D8FD13E56B55ECFC308E1B12E2
 ```bash
 magnet:?xt=urn:btih:EDA60ED53EEBC01A0B14199F597BBBD9D4D419F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -231,6 +247,8 @@ magnet:?xt=urn:btih:EDA60ED53EEBC01A0B14199F597BBBD9D4D419F5
 magnet:?xt=urn:btih:2D5D4214DF30B74DA08894FECA19EF1A9B7768F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +273,8 @@ magnet:?xt=urn:btih:2D5D4214DF30B74DA08894FECA19EF1A9B7768F7
 ```bash
 magnet:?xt=urn:btih:5C6E16C1E2F31666C4F8679FA70125DA59B3590D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -281,6 +301,8 @@ Udemy, Mrawan Hussain | Создание Молота Тора в Blender 2.90 �
 magnet:?xt=urn:btih:11FEDC7ABF10E7F20F346AFCB1041D294423C4AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +327,8 @@ magnet:?xt=urn:btih:11FEDC7ABF10E7F20F346AFCB1041D294423C4AF
 ```bash
 magnet:?xt=urn:btih:2AED8E783F0380A9C032DAC59A7022482D9A742D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +357,8 @@ Render.ru | Интерактивная Архитектура (2014) PCRec
 magnet:?xt=urn:btih:528FB66B45B2B2E2FF7E517AE397BC72A11D09D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +383,8 @@ magnet:?xt=urn:btih:528FB66B45B2B2E2FF7E517AE397BC72A11D09D3
 magnet:?xt=urn:btih:6E2BE1601CB8745BADAA94624D93BAD35C811929
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +408,8 @@ Ultimate Courses, Todd Motto | Angular Basics (v14) (2022) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:F9B9E47CCBF1D7D056B15DC1E15A476C28342FC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +436,8 @@ Blender Cloud | Фабрика существ 2 - Создание персон�
 magnet:?xt=urn:btih:076853135D4C1EEFBCE75ED6A54A8C169F1BFBCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ Blender Cloud | Написание скриптов для художников 
 ```bash
 magnet:?xt=urn:btih:1113CACB810A5CBA6D164D5A25F09593EC25129A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +492,8 @@ magnet:?xt=urn:btih:1113CACB810A5CBA6D164D5A25F09593EC25129A
 magnet:?xt=urn:btih:7937DE33451693B66BEE5F738E4E6124CD4104D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +521,8 @@ magnet:?xt=urn:btih:7937DE33451693B66BEE5F738E4E6124CD4104D3
 magnet:?xt=urn:btih:727E434FED010DD45E57E60EE89BE2977A21631E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +548,8 @@ ES6 Javascript с нуля. Ознакомьтесь с практическим
 magnet:?xt=urn:btih:657755E67952DE6461C5DCBD209A73F2BD34A041
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +573,8 @@ Jan Urschel | Улицы мегаполиса - Китбаш, дизайн и п
 ```bash
 magnet:?xt=urn:btih:9048675408FD5356C723D5012779BFB8ACAB3E00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +600,8 @@ Jan Urschel | Движки рендеринга - Небольшой обзор 
 magnet:?xt=urn:btih:6285CFE5B5E7A0061181E833F772F130FB3A17B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +626,8 @@ magnet:?xt=urn:btih:6285CFE5B5E7A0061181E833F772F130FB3A17B4
 magnet:?xt=urn:btih:72CB4E8947F28ECF0F0D84014EFC739B021CA31A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +651,8 @@ magnet:?xt=urn:btih:72CB4E8947F28ECF0F0D84014EFC739B021CA31A
 ```bash
 magnet:?xt=urn:btih:239A6676317567B495597C1023BF749EA6EFCFDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +681,8 @@ magnet:?xt=urn:btih:239A6676317567B495597C1023BF749EA6EFCFDA
 magnet:?xt=urn:btih:53EF9DA40639E40E0454DB52B3BE6D816C883F7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +708,8 @@ Udemy, Nikolay Naydenov | Lobo - 3D character in Blender course (2022) PCRec [EN
 ```bash
 magnet:?xt=urn:btih:74245F32900DD3798EDF156BEBD466DF2A692FEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

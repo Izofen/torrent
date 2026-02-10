@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:B15CEED4CE00153258F2B6BFCAAC74FDF2F61373
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Package Disabler Pro 6.6 [Ru]
 ```bash
 magnet:?xt=urn:btih:2D29CB93FD39FDB52A0538996684E8638AA6BA69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:2D29CB93FD39FDB52A0538996684E8638AA6BA69
 magnet:?xt=urn:btih:AC50C878A3B7A4FE656C493BF6820A88998E820E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Vpn Украина это Быстрый и бесплатный VPN-серви�
 ```bash
 magnet:?xt=urn:btih:6242A1BDBF67C61525D26C10AF03EAB4BEAE1B39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Assassin's Creed Pirates – игра на андроид, которая пос
 magnet:?xt=urn:btih:C286B5F8DEC8D38A68484ACE22453720E6E9CA40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ XCOM: Enemy Unknown - Легендарная Стратегия серии XCOM 
 ```bash
 magnet:?xt=urn:btih:19C039FA2571DC9D638EABE64A2EA4929832235F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Doom: 1 и 2 части [En]
 magnet:?xt=urn:btih:ABBB3C805440CE430FD1A70D80BA02D32C7C31B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Garmin: City Navigator East & West Africa NT 2016.20 [En]
 ```bash
 magnet:?xt=urn:btih:656C83341D559CBED3DDCB7471E9C4CAD97B6DDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ ADV Screen Recorder v4.3.1 [Ru/En]
 magnet:?xt=urn:btih:756713FBB2BCD5C49A4171D85B3EE7907B1C3463
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Car Eats Car 3 v2.4 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:0C143ABC1E2573C101F7941D6AA60A48BEFB988A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Microsoft Word 16.0.7426.1015 [Ru]
 magnet:?xt=urn:btih:F3710E9FCDAE0FC2E4E23B5F5A53F26E9D6AFB20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ ABBYY Lingvo Dictionaries 4.6.6 [Ru/Multi] - Оффлайн словарь
 ```bash
 magnet:?xt=urn:btih:05B1BDEB0F6861A550A7312CD7E64348A9BBB831
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ Android Auto 2.0.642308 [En]
 magnet:?xt=urn:btih:7802BFDF0F6297E2011CE7A54145D74712997FD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ ActionDirector Video Editor v6.0.1 [En/Ru]
 ```bash
 magnet:?xt=urn:btih:EDDE321F7AA9F49CD929B1AB7FEBB27C90C29A30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Osmos HD 2.3.1 [RU/Multi]
 magnet:?xt=urn:btih:AE1FB84FD9625F30DAAFCDDD82555ADFCAFFEA25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ GPS Up v1.7.1 [En] (обновляемая)
 ```bash
 magnet:?xt=urn:btih:8DBA881E9C535E6B57860FB3406F49E48EABA75C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Stellarium Mobile PLUS - Star Map – отличное приложение на
 magnet:?xt=urn:btih:B636516112FE72477C98F733090EDB9EFA9F6F26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:B636516112FE72477C98F733090EDB9EFA9F6F26
 ```bash
 magnet:?xt=urn:btih:D9FB2BA68AB3E69B161ADC6DC51BBB3E29D2C160
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ Sixaxis Controller позволяет вам использовать ваши S
 magnet:?xt=urn:btih:FA12371D5A4BCA5DCE42B413530A6C42C2F452F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ Hungry Shark Evolution v8.0.6 [Ru]
 magnet:?xt=urn:btih:08A713AB6EE4DBBB247AB7BD3F2D1B15E4E12DF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:08A713AB6EE4DBBB247AB7BD3F2D1B15E4E12DF8
 ```bash
 magnet:?xt=urn:btih:D0EB0CD32C9433467D3E15E069CA6298447F8998
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ Terra Genesis Mod v5.13 [Ru]
 magnet:?xt=urn:btih:5DA4381430B78053D0FEBF5AFB2C990B1B510EF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ Checkers Elite 2.0.4.2 [Ru]
 magnet:?xt=urn:btih:0FEA1448249CA6F4D90A63FC17D032A0B42E1096
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ ElLi (free) - Расчет проводки v1.3.35 AdFree [Ru]
 ```bash
 magnet:?xt=urn:btih:8BF4F78B00A24916C961B5A6676BAD19C3866CD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ Indigo Kids представляет новинку! Сборник мини-и�
 magnet:?xt=urn:btih:AA4794AF511398282D21A8ABEAE49C299C31FDEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:AA4794AF511398282D21A8ABEAE49C299C31FDEE
 ```bash
 magnet:?xt=urn:btih:5C253FB37A79BABBD4AC791F5AD33356E782DB48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

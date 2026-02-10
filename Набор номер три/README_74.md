@@ -22,6 +22,8 @@ Windows 11 PRO 23H2 22631.2861 Update 4 by Ghost Spectre x64 [Multi/Ru]
 magnet:?xt=urn:btih:39D117F6B13AF7891BA1B08B358C558F02605E76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:39D117F6B13AF7891BA1B08B358C558F02605E76
 ```bash
 magnet:?xt=urn:btih:C8BF4D62B9407537AEEBE54127928789D63C3AED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:C8BF4D62B9407537AEEBE54127928789D63C3AED
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ LightLib  1.8.4 [Ru] (авторская раздача)
 magnet:?xt=urn:btih:69A0824807BD0A2CBD9E07D7A7434C50BE49CCB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:69A0824807BD0A2CBD9E07D7A7434C50BE49CCB1
 magnet:?xt=urn:btih:45C7A5738942BD796BB05D498CE44E502A6CC3AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:45C7A5738942BD796BB05D498CE44E502A6CC3AE
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Alive! Это самый обширный курс анимации Blender, в�
 magnet:?xt=urn:btih:28AB88A0001F64095CE82E003B614E70596510CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:28AB88A0001F64095CE82E003B614E70596510CD
 ```bash
 magnet:?xt=urn:btih:D679AE58856ABC93007E0A6DF22FA0E0BD98E6DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:D679AE58856ABC93007E0A6DF22FA0E0BD98E6DA
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ SpaceX занимается строительством масштабного 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ SpaceX занимается строительством масштабного 
 ```bash
 magnet:?xt=urn:btih:04C94C1EEC127EC604EDF657808565DF11FB9E98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Need For Speed Коллекция  [Ru/En] (Lossless Repack) 1996-2011 | R.G. Ca
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ Need For Speed Коллекция  [Ru/En] (Lossless Repack) 1996-2011 | R.G. Ca
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Need For Speed Коллекция  [Ru/En] (Lossless Repack) 1996-2011 | R.G. Ca
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ Need For Speed Коллекция  [Ru/En] (Lossless Repack) 1996-2011 | R.G. Ca
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ NNM-Club в социальных сетях - присоединяйтесь!
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ NNM-Club в социальных сетях - присоединяйтесь!
 ```bash
 magnet:?xt=urn:btih:995D0B5DCDA901248009EE661C2BE7A18A112260
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ Need for Speed: Carbon Collector's Edition / Need for Speed: Carbon Коллек
 magnet:?xt=urn:btih:AE246416C9E7D415FCA884C73CA5A9B7B1E09493
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ magnet:?xt=urn:btih:AE246416C9E7D415FCA884C73CA5A9B7B1E09493
 ```bash
 magnet:?xt=urn:btih:6895F3E6B86DE4E1E452F57D9D79C0DFC5491115
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ magnet:?xt=urn:btih:6895F3E6B86DE4E1E452F57D9D79C0DFC5491115
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ Imperium Galactica [Ru] (RePack) 1997 | Pilotus
 ```bash
 magnet:?xt=urn:btih:EA711EB470BED667773F9CE73531EF43559798DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ magnet:?xt=urn:btih:EA711EB470BED667773F9CE73531EF43559798DF
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:EA711EB470BED667773F9CE73531EF43559798DF
 ```bash
 magnet:?xt=urn:btih:3BF2B2260EFCA4858E2E884A672DFCCFA575F142
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:3BF2B2260EFCA4858E2E884A672DFCCFA575F142
 magnet:?xt=urn:btih:878BC72E994ABCAE3D733E34C055D23207A8B076
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ magnet:?xt=urn:btih:878BC72E994ABCAE3D733E34C055D23207A8B076
 ```bash
 magnet:?xt=urn:btih:63256B2A675BE42E36E3D2049FA1EFA72400D03C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +686,8 @@ magnet:?xt=urn:btih:63256B2A675BE42E36E3D2049FA1EFA72400D03C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

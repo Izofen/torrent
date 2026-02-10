@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:73358D139B6E3C418A4742CFE3D1709236BF60ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:73358D139B6E3C418A4742CFE3D1709236BF60ED
 ```bash
 magnet:?xt=urn:btih:251C499CF48B43284EB32C8005EF10A3160AE5C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:251C499CF48B43284EB32C8005EF10A3160AE5C7
 magnet:?xt=urn:btih:1F2CF48B3AD1CF907D76A37326F64247B1CE6249
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Realpolitiks 3: Earth and Beyond (2024) [Ru/Multi] (1.250900) License GOG
 ```bash
 magnet:?xt=urn:btih:39D517A934E48FE51670AE516E9D5F374EF8ECD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ uTorrent Pack 1.2.3.98 Repack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:ED54DE69E76E9B55005FCE5BC235D51A627080CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Revenge of the Savage Planet - это оптимистичный, сатирич
 ```bash
 magnet:?xt=urn:btih:AEFC2F63D40E9DB3625CAFCD8B2AC052AD6B7DB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:AEFC2F63D40E9DB3625CAFCD8B2AC052AD6B7DB5
 magnet:?xt=urn:btih:A920FC9A61824ACEDEF20F727D9F6DA98E3CF9D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:A920FC9A61824ACEDEF20F727D9F6DA98E3CF9D2
 ```bash
 magnet:?xt=urn:btih:54BD50F15E4C35176934559B3E22CE29CDB3D601
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ X4: Foundations - долгожданное продолжение успешно
 magnet:?xt=urn:btih:7B7E986CF7BF45A186814BFA9DB26D316ED16A61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.6.0/dlc) Repack Let's�
 ```bash
 magnet:?xt=urn:btih:65E97C86C6BCAAAABFBEF7C8B53FAFB92B83B893
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Wartales - ролевое приключение в открытом мире, �
 magnet:?xt=urn:btih:C04329D79F92EC2A4D57975CECE2C0CE2809FFB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Starship Troopers: Terran Command - это захватывающая страт
 ```bash
 magnet:?xt=urn:btih:2C9990FEE7007B2B67ADC681A78C115D62AACAA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Severed Steel - это шутер от первого лица для одног
 magnet:?xt=urn:btih:78FBA3B4B57B9DF4A1AB3BFE73DE1D46473FE6D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Tainted Grail: The Fall of Avalon – мрачная фэнтезийная ро
 ```bash
 magnet:?xt=urn:btih:795F9B2B37E78AF091D8E2624BADFA5B1208A257
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:795F9B2B37E78AF091D8E2624BADFA5B1208A257
 magnet:?xt=urn:btih:62CC2156856C865CD62B4BE5E9884D4B16637B81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Frostpunk 2 открывает новые грани жанра выживани
 ```bash
 magnet:?xt=urn:btih:F968D852388637B3878428D5620971CF8E473E1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:F968D852388637B3878428D5620971CF8E473E1B
 magnet:?xt=urn:btih:EC1FCCB9C6FC51D472D80D05C7A6E8E9C231A843
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:EC1FCCB9C6FC51D472D80D05C7A6E8E9C231A843
 ```bash
 magnet:?xt=urn:btih:8EAE9A6124FC1A3FFEEBF5C37447B174B04DF777
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Core Keeper (2022) [Ru/Multi] (1.1.2.4-fb3f) License GOG
 magnet:?xt=urn:btih:D4660E277FB2B46330B2FAC4DA65A303E5C74DA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:D4660E277FB2B46330B2FAC4DA65A303E5C74DA6
 ```bash
 magnet:?xt=urn:btih:0731218BBA6C8F85284BEFF516835A03CDC7C0DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:0731218BBA6C8F85284BEFF516835A03CDC7C0DD
 magnet:?xt=urn:btih:DDED72B4D1F3139802EC73CE547A36C77DAC00AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ magnet:?xt=urn:btih:DDED72B4D1F3139802EC73CE547A36C77DAC00AE
 magnet:?xt=urn:btih:CDAE067F55EF27B57116FD4F9FE5ED9C4C81A2F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ Ara: History Untold - это эволюция жанра глобальной и
 ```bash
 magnet:?xt=urn:btih:D25017218BBDF6ADF8A69D17FD936C312527B438
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ Windows 10 Pro 22H2 19045.6332 x64 by SanLex [Lightweight] [Ru-En] (2025.09.25)
 magnet:?xt=urn:btih:1B18925852D7EE198DC26865A199E5928E4DA3C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Hades II (2) (2024) [Ru/Multi] (1.131346) Repack Wanterlude
 magnet:?xt=urn:btih:9B64D36B530C95931F03426507430B1A986CE5A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ magnet:?xt=urn:btih:9B64D36B530C95931F03426507430B1A986CE5A1
 ```bash
 magnet:?xt=urn:btih:EE1E42819125FF0668F303B3E7240CEC796F474A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

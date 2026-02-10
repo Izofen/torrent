@@ -19,6 +19,8 @@ Olatunde Adedeji | Full-Stack Flask and React (2023) [PDF][EN]
 magnet:?xt=urn:btih:72A2743692B15FBCABFD075148D9F511339EF90C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:72A2743692B15FBCABFD075148D9F511339EF90C
 ```bash
 magnet:?xt=urn:btih:F8AF4CD3AC091E56A454DB55741E58E5BE89200B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:F8AF4CD3AC091E56A454DB55741E58E5BE89200B
 magnet:?xt=urn:btih:CEB4DEDB79D1E76EC2940424C394957E8A51CBC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:CEB4DEDB79D1E76EC2940424C394957E8A51CBC5
 magnet:?xt=urn:btih:5DB0D772C6F83B37372406DBFDCFF733F9DDE415
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:5DB0D772C6F83B37372406DBFDCFF733F9DDE415
 ```bash
 magnet:?xt=urn:btih:20382AA0A4E00C74A0853A102D71BFDFD0F1C04C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:20382AA0A4E00C74A0853A102D71BFDFD0F1C04C
 magnet:?xt=urn:btih:A3429EBF33269BF605B3D8F30371BEA3597728CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:A3429EBF33269BF605B3D8F30371BEA3597728CA
 ```bash
 magnet:?xt=urn:btih:0762CC029943EBADD062E1D28FC49CF52E81D992
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:0762CC029943EBADD062E1D28FC49CF52E81D992
 magnet:?xt=urn:btih:FAC181D6C2799E1EEE963940B938267A02B47933
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Mark Simon | Leveling Up with SQL (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:76F5A6B0B58F0B50989ECEEB80D9A5549C78A98C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Jeffrey L. Brewer, Kevin C. Dittman | Methods of IT Project Management, 4th Edit
 magnet:?xt=urn:btih:F2744E0C690224BA290DF9723CFEF374469EF13D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Hans-Georg Schumann | Python für Kids: Programmieren lernen ohne Vorkenntnisse 
 ```bash
 magnet:?xt=urn:btih:E863188E394CE81050A35BD6132CB2B4C843785D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:E863188E394CE81050A35BD6132CB2B4C843785D
 magnet:?xt=urn:btih:D21D7026D62F2129DCA27529BDE20714FC0BFCB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:D21D7026D62F2129DCA27529BDE20714FC0BFCB8
 ```bash
 magnet:?xt=urn:btih:1E80AAAF31A9697E47DC7ACB807C0927521CA5CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:1E80AAAF31A9697E47DC7ACB807C0927521CA5CA
 magnet:?xt=urn:btih:140835B434B410221A9D1BD51C14B767C9767A67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:140835B434B410221A9D1BD51C14B767C9767A67
 ```bash
 magnet:?xt=urn:btih:62817E1A552838AC005C32B1265E7B15B8BD5067
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:62817E1A552838AC005C32B1265E7B15B8BD5067
 magnet:?xt=urn:btih:B8EF76E7AE98BFBD947B3EC02C64954F1AE74FEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Marco Secchi | Multiplayer Game Development with Unreal Engine 5 (2023) [PDF][EN
 ```bash
 magnet:?xt=urn:btih:9122A4A2778D1FFD565EDF30B8002000747FC9D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Daniel Kusswurm | Modern X86 Assembly Language Programming, 3rd Edition (2023) [
 magnet:?xt=urn:btih:97567A957ED33DD5BC847DEF7ED6C399B2148747
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Scott Empson | CCNA 200-301 Portable Command Guide Fifth Edition / Сокращ�
 ```bash
 magnet:?xt=urn:btih:D90BCEAF7220B9C1095820AD6F43866599931CC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:D90BCEAF7220B9C1095820AD6F43866599931CC0
 magnet:?xt=urn:btih:F9CFD8182C59A9C696C57260D00BDD4936A8642C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Bradley Edgeworth и др. | CCNP and CCIE Enterprise Core ENCOR 350-401 Officia
 ```bash
 magnet:?xt=urn:btih:495C0C7C55381B5209075F546FFE2ED7A3C5F3A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:495C0C7C55381B5209075F546FFE2ED7A3C5F3A1
 magnet:?xt=urn:btih:CADB6B856AF4485178393C43DA1D63DB65F0D3B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:CADB6B856AF4485178393C43DA1D63DB65F0D3B7
 magnet:?xt=urn:btih:20E839F76D1B9CD59E63C5A6EF25A7492A8F02AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:20E839F76D1B9CD59E63C5A6EF25A7492A8F02AC
 ```bash
 magnet:?xt=urn:btih:FC7CEF840E30E25ECF2ED05C0C5A979CD7C1DBB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:FC7CEF840E30E25ECF2ED05C0C5A979CD7C1DBB7
 magnet:?xt=urn:btih:C11D8514D2057FDDD2CDF97169151DB6ECE9189E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Pablo David Garaguso | Vue.js 3 Design Patterns and Best Practices (2023) [PDF][
 ```bash
 magnet:?xt=urn:btih:230E3B5F1F46D10524F7B2CE6A47CFF9F62FAD28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

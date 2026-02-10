@@ -1,3 +1,35 @@
+###  Публикация: 1221491   (692775) от 25.04.2018
+
+VA - Дискотека 2018 Dance Club Vol. 178 от NNNB (2018) [MP3|320 Kbps] <Club, Deep House, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1 (Discoteka)
+Продолжительность: 12:16:26
+
+001. Sean Paul & Major Lazer - Tip Pon It(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 01:34:43
+
+01. K.Melody - Не Зови
+02. Plu-Ton - Harmony Of Silence (Original Mix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36212E8E078FE17CF6A7E1430B8FACF4C423A246
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221451   (692778) от 25.04.2018
 
 Сектор Газа - Лучшее от ALEXnROCK (2018) [MP3|320 Kbps] <Rock>
@@ -22,6 +54,8 @@
 ```bash
 magnet:?xt=urn:btih:26FBD0D02826F9277C5B323985A9090207E8CB5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -50,6 +84,8 @@ Corr Sharon - Дискография (2010-2013) [MP3|320 кб/с] <Pop>
 magnet:?xt=urn:btih:5343DC7C4AC40DB1D46DDC64F4FE0F60FDA055E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +112,8 @@ VA - Chilling with Endless Nights (2016) [MP3|320 кб/с] <Downtempo, Chillout,
 ```bash
 magnet:?xt=urn:btih:86AF8EE77138F89E792808B4E40CA3EDC7ECE543
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -104,6 +142,8 @@ VA - 125 Keep World DJ Loaded (2018) [MP3|256-320 Kbps] <Progressive, Future Hou
 magnet:?xt=urn:btih:86BE422766167CF3CCFEFBD9B8A17E542E26FD72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +170,8 @@ VA - Night Dreamer: Chill Deep House (2018) [MP3|320 Kbps] <Deep House, Chill Ho
 ```bash
 magnet:?xt=urn:btih:E8CA7BDBE327D0F6CF7143647760EA071DA753D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -158,6 +200,8 @@ VA - DNA Injection: Techno Party (2018) [MP3|192-320 Kbps] <Techno, Minimal, Tec
 magnet:?xt=urn:btih:35BC624160FB35CE6FD3B762088E9404C0768A0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +228,8 @@ VA - German Top 50 Party Schlager Charts (23.04.2018) (2018) [MP3|266-320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:82FCDB3C386B762512E9464C10370E0EBD88416D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +258,8 @@ VA - Synthetic  vol.3 - Electropop Edition (2017) [MP3|320 Kbps] <Electropop, Sy
 magnet:?xt=urn:btih:29EBE7DAABB7023AB978AB0BCFFB002262DEF59B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +287,8 @@ VA - Club Dance Ambience Vol.173 (2019) [MP3|320 Kbps] <Dance, Club, House>
 magnet:?xt=urn:btih:BC09F257508FE4811228E9C01CF0BBC074ECDB8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +312,8 @@ Buzzy Bus - You Don't Stop (2018) Remix [MP3|320 Kbps] <Club, Dance>
 ```bash
 magnet:?xt=urn:btih:8F2D01718E1E665E5447AF006C8BEFF53B8D9B83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +342,8 @@ VA - World Wide Trance # 01 (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:0D4FFCFF75566AFA76519BD4554FAF82A7C7FC84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +370,8 @@ VA - Hare Krishna (Life is in your Hands 2CD) (2020) [MP3|320 Kbps] <Pop, Rock, 
 ```bash
 magnet:?xt=urn:btih:E0168120C110578AB342B2E85FB75C1341D9276F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +400,8 @@ VA - не Громкие новинки недели 4 (2019) [MP3|320 Kbps] <Po
 magnet:?xt=urn:btih:084EFCB4686097419E52725CD79E1392DDE22313
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +428,8 @@ CD1
 ```bash
 magnet:?xt=urn:btih:1570D481C44EC78708DF8CA20C2EF41ABE9F1B19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +458,8 @@ VA - Beatport Progressive House: Electro Sound Pack #145 (2020) [MP3|320 Kbps] <
 magnet:?xt=urn:btih:40759B8694B3119153E1F7BF8F179BF658B18897
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +486,8 @@ VA - German Top 100 Single Charts 18.03.2019 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:1B51B266A6856A3EF620FD9F27308BE087C47B47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +516,8 @@ CD1
 magnet:?xt=urn:btih:A56FDB39E1F4709ED67B34C8B18B8A3C68B92AB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +544,8 @@ CD1
 ```bash
 magnet:?xt=urn:btih:33A5CCFABBCAAFCC6CA62412357BD82C6FC975D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +574,8 @@ VA - A State Of Trance Classics Vol.14 (The Full Unmixed Versions) (2020) [MP3|3
 magnet:?xt=urn:btih:EB348DFD1BAF23FE7FC1B2348102EB333F8B16C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +602,8 @@ VA - Лето солнце жара. Популярный сборник (2016) 
 ```bash
 magnet:?xt=urn:btih:6FC0E6790C585CB966E52B1941110FB3F6311EF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +632,8 @@ VA - German Top 50 Party Schlager Charts 11.03.2019 (2019) [MP3|320 Kbps] <Pop, 
 magnet:?xt=urn:btih:BB105CA128060AB281513FD89A12295D9F46CCA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +660,8 @@ VA - Planet Pop Vol. 05: Lolipop Version (2016) [MP3|192-320 кб/с] <Pop>
 ```bash
 magnet:?xt=urn:btih:E63F0D3EFDD671A76B8FAF4128F1E8B208FC15EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +690,8 @@ VA - Chillout Classical Study (2016) [MP3|320 кб/с] <Downtempo, Chillout, Ins
 magnet:?xt=urn:btih:24AC1CF8BB95361E416D138D5FB9CD09BB9D08F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +718,8 @@ VA - Extra Trance: Bonus [07] (2016) [MP3|320 кб/с] <Trance>
 ```bash
 magnet:?xt=urn:btih:1FE5DB7488C0FB37893AD3742AA6BB865A46C2C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -668,32 +748,7 @@ VA - Lobby Bar Lounge Vol.4: 20 Midnight Lounge Tunes (2016) [MP3|320 кб/с] <
 magnet:?xt=urn:btih:D70952BCFA1FD25C19F640D50C6CEE2300742F6C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221392   (695016) от 24.04.2018
-
-VA - Весеннее созвездие хитов (3) (2018) [MP3|256 Kbps] <Поп>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695016.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ася Пивоварова - Океаны
-002. Арбат New - Ангелом-Хранителем
-003. Оля Краснова - Та Самая Лов
-004. Серы - Патриаршие Пруды(   Читать дальше...   )Жанр: ПопПродолжительность: 06:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64188E704B5959C7B40063917ABF6784AADA543E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Skype предназначен для личного и делового общ�
 magnet:?xt=urn:btih:C925F618CC195B7607FB84BAF1F6385B292718FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Phase One Capture One - один из лучших профессиональн�
 ```bash
 magnet:?xt=urn:btih:1F3E7F4BD8273536311544E8DFDC59D6A56E3348
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Affinity Photo — обеспечивает более высокую скоро
 magnet:?xt=urn:btih:F2848D894FFFFDA14D84227C410344121BEDC464
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ CPUID HWMonitor - утилита предназначена для монито�
 ```bash
 magnet:?xt=urn:btih:E0A8B8593A9D52ECC5FE1FB7DB726F361A98AD95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Spotify имеет громадный каталог музыки, поддер�
 magnet:?xt=urn:btih:D34EC9DFD41BEED08078B688DDFDF5ED07B6775F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Aiseesoft Mac FoneTrans 9.2.6 [En]
 magnet:?xt=urn:btih:1C1AEF96222DA4B5556911F756CC121B90D419EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:1BF7D2E550226D765D443CAE842594E01F9EF160
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:1BF7D2E550226D765D443CAE842594E01F9EF160
 magnet:?xt=urn:btih:AFEFC4E9C379CB8E19CB4D6DA42544D46C02356C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ O&O DiskImage позволяет создавать резервные копи�
 ```bash
 magnet:?xt=urn:btih:2A0C8E4E5D7B8AEC48CB6E02F923F3CD95233AB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ NirLauncher Package - универсальный пакет из более че
 magnet:?xt=urn:btih:9BA81A7F045AB81D578D42AC0B3A09A6A76D4487
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ EZ CD Audio Converter - утилита для преобразования ау�
 magnet:?xt=urn:btih:ADC7D8E95A4416587DECE44547628572835AD67C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:ADC7D8E95A4416587DECE44547628572835AD67C
 ```bash
 magnet:?xt=urn:btih:DC05CE56EF4DBD184FDF168CF6F1839078945DF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ Planet VPN 1.3.5.11 [Multi/Ru]
 magnet:?xt=urn:btih:87F76E309E25051D46CA59EB310B87CD927BE44F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Ungoogled Chromium - версия веб-браузера Chromium без инт
 ```bash
 magnet:?xt=urn:btih:AE2467ABF035241F5202F1B54EB281F99F20A877
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Truecaller - представляет собой электронную теле
 magnet:?xt=urn:btih:DB9C195AAFB97DC86B0153442D298E4D7F87B457
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Sketch - это инструмент для векторного дизайна 
 ```bash
 magnet:?xt=urn:btih:77DDE7E21C406DFDC11D0E0024652F2E4222383D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ KLS Backup - мощная программа, предназначенная д�
 magnet:?xt=urn:btih:3ADE69A22A749BA0B0FE8392935AC21AC7D53304
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Advanced SystemCare PRO - это мощный пакет для оптимиза
 ```bash
 magnet:?xt=urn:btih:551760542C46A680BD2F0D32C5BEB8B6D615BA52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:F2266A523672C569FB89B97E6F108DCD246D0A49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ macOS 14 Sonoma Beta 1 (Installer) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6AD552FDEBBB59C91814D745DBA83EB192C7D241
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:01BC0D741D1111E28C924458D5F9D42A144D0421
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ TreeSize Professional - мощное и гибкое средство визуа
 ```bash
 magnet:?xt=urn:btih:FD268B61DF5D7C2BAC1650517D2930AA0CF616BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ TweakPower – представляет собой единый графичес
 magnet:?xt=urn:btih:84B40F4C22379FAB3D0CFA0C88113E4FDFC70B6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ Sprint-Layout 6.0 - это легендарная (быстрая и прост�
 ```bash
 magnet:?xt=urn:btih:F43B0C18D6AE3DCCBA75B8DC3B996B8B000660B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ PointerStick 6.26 Portable [Multi/Ru]
 magnet:?xt=urn:btih:E655CFF4AA18AE4D115403B3E50B3C2638065C04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:E655CFF4AA18AE4D115403B3E50B3C2638065C04
 ```bash
 magnet:?xt=urn:btih:97A8FE4D31356ECB689FD9170D692F611FB56DEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

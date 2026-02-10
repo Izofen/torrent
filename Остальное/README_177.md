@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:0EA6921D5A29D99407C3C7047547754AF47DB817
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:0EA6921D5A29D99407C3C7047547754AF47DB817
 magnet:?xt=urn:btih:7D62C8131F4F2938B67EEE564DD23149A5904274
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Crysis 3 продолжает знаменитую серию шутеров о�
 ```bash
 magnet:?xt=urn:btih:62B3E2EC8FDCF7ACECEF8158177097D71A8E777D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ South Park - The Stick of Truth (2014) WEBRip [H.264/1080p-LQ]
 magnet:?xt=urn:btih:9D1DEBED1538672E85C083B96D0E5E31F5A610AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Watch Dogs (2014) WEBRip [H.264/1080p-LQ]
 ```bash
 magnet:?xt=urn:btih:62A69A8AEAA1FBA41CFC86C84943CAADC87A8CE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Battlefield Hardline (2015) WEBRip [H.264/720p-LQ]
 magnet:?xt=urn:btih:30F476B5FE23E2152C52ADF24325AB424698C479
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Assassin's Creed Syndicate (2015) WEBRip [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:0410C93825EDF1DA5DD767280DCAA9291C66E478
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Uncharted 3: Иллюзии Дрейка (2012) WEBRip [H.264/1080p-LQ]
 ```bash
 magnet:?xt=urn:btih:B6A9B38F7A5364209C4B455DAB78618EDFB8CFB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:B6A9B38F7A5364209C4B455DAB78618EDFB8CFB4
 magnet:?xt=urn:btih:3645104AEDDCC8358FD5A33F30A17F98FF72955A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:3645104AEDDCC8358FD5A33F30A17F98FF72955A
 magnet:?xt=urn:btih:A62D8F3FFA31C5D8C18C22A3369CD1CA7B2AD233
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Assassin’s Creed Единство - приключенческий экшн, �
 ```bash
 magnet:?xt=urn:btih:984330CC8B1A4D7CA40BD2DF51DA8B9CBE76B9A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Assassin’s Creed IV Black Flag (2015) WEBRip [H.264/720p-LQ]
 magnet:?xt=urn:btih:8F1B96AC167A7CF9EEE9C86EDD410270EEC05156
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ God of War Ascension (2013) WEBRip [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:43748BB5AB686347E3FBAE6A61F314E583B0122D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:43748BB5AB686347E3FBAE6A61F314E583B0122D
 magnet:?xt=urn:btih:46324E6E5DEE72C6B76D08C15A2A1644FE6CB8D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:46324E6E5DEE72C6B76D08C15A2A1644FE6CB8D1
 ```bash
 magnet:?xt=urn:btih:81F3C86D73C7F658045C1BA7B8C06E957AD45805
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:81F3C86D73C7F658045C1BA7B8C06E957AD45805
 magnet:?xt=urn:btih:E7916C0A2515FA759315580821835F52701DBB0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:E7916C0A2515FA759315580821835F52701DBB0C
 ```bash
 magnet:?xt=urn:btih:9A6BC7E0EDA7D3B06FFC6C803A48AEB9E8399ED7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:9A6BC7E0EDA7D3B06FFC6C803A48AEB9E8399ED7
 magnet:?xt=urn:btih:222322C0CA0DAAAB10C144DEC86040F500018E65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:222322C0CA0DAAAB10C144DEC86040F500018E65
 ```bash
 magnet:?xt=urn:btih:4DB178567821364FB6B5FE95ED6F3E7C44B28A20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:4DB178567821364FB6B5FE95ED6F3E7C44B28A20
 magnet:?xt=urn:btih:94A84925F3EB584F97EC87030B8F8CE68DDDED10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:94A84925F3EB584F97EC87030B8F8CE68DDDED10
 ```bash
 magnet:?xt=urn:btih:F64B7C1C0AB6DD75AB3B745DFCB6A5E864180EC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:F64B7C1C0AB6DD75AB3B745DFCB6A5E864180EC0
 magnet:?xt=urn:btih:36CAABCD90D7E1971219A46B307E2147F9747B92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:36CAABCD90D7E1971219A46B307E2147F9747B92
 ```bash
 magnet:?xt=urn:btih:680CA4A8841146B2EB8CF1196F0A018B3CEDCCFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:680CA4A8841146B2EB8CF1196F0A018B3CEDCCFD
 magnet:?xt=urn:btih:CA713480F777723B837166444B0F574802D21DBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:CA713480F777723B837166444B0F574802D21DBF
 magnet:?xt=urn:btih:3FADA87846EC2B94EB4F7309BE9A9F8D78B03FB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ magnet:?xt=urn:btih:3FADA87846EC2B94EB4F7309BE9A9F8D78B03FB8
 ```bash
 magnet:?xt=urn:btih:20EF52A0BAF4478051CA74F5513186AB19CF0C12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

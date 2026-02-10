@@ -1,3 +1,29 @@
+###  Публикация: 1318844   (484789) от 11.08.2019
+
+Диакон Георгий Максимов | Святоотеческое понимание миссии (2014) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_484789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное издание, представляющее запись лекций автора, читанных в Сретенской духовной семинарии и в Школе Православного Миссионера при Синодальном миссионерском отделе, впервые систематически излагает святоотеческий взгляд на миссионерское служение. Автор — глава сектора апологетической миссии Синодального Миссионерского отдела, член комиссии по миссионерской деятельности (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E97B075AEA0FCDFA3C6DEE461B696FF8D9A8FD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405306   (484816) от 29.08.2020
 
 Джудит Гризел | Без дна. Зависимости и как их победить (2020) [EPUB]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:B426DF14BCDF1F69185EF34C2DC6F1B0A4337DFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:B426DF14BCDF1F69185EF34C2DC6F1B0A4337DFD
 ```bash
 magnet:?xt=urn:btih:7FF3EA33CB591FFD90B37D699F1997FB5AE3317C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +106,8 @@ magnet:?xt=urn:btih:7FF3EA33CB591FFD90B37D699F1997FB5AE3317C
 magnet:?xt=urn:btih:FC2ABCE0D4174196D87EED6C49503323FCD3B6BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +131,8 @@ magnet:?xt=urn:btih:FC2ABCE0D4174196D87EED6C49503323FCD3B6BB
 ```bash
 magnet:?xt=urn:btih:702FAD41D996A9391EAF571FE9F90279BE227B95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +159,8 @@ magnet:?xt=urn:btih:702FAD41D996A9391EAF571FE9F90279BE227B95
 magnet:?xt=urn:btih:52CF0F2B71091475BBB59E0FF688E431414B906C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +185,8 @@ magnet:?xt=urn:btih:52CF0F2B71091475BBB59E0FF688E431414B906C
 ```bash
 magnet:?xt=urn:btih:4E9AC5963698AA72E51940413B6831EF9004F46B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +213,8 @@ magnet:?xt=urn:btih:4E9AC5963698AA72E51940413B6831EF9004F46B
 magnet:?xt=urn:btih:79279C8B0D93A31A9339839CF173E20D0A2D5898
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +238,8 @@ magnet:?xt=urn:btih:79279C8B0D93A31A9339839CF173E20D0A2D5898
 ```bash
 magnet:?xt=urn:btih:A49AA9B254BB997FC95537DA099F331FF864B99E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +266,8 @@ magnet:?xt=urn:btih:A49AA9B254BB997FC95537DA099F331FF864B99E
 magnet:?xt=urn:btih:92FFA3A5A1DA20C7334421E497728EFD23A39D0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +291,8 @@ magnet:?xt=urn:btih:92FFA3A5A1DA20C7334421E497728EFD23A39D0A
 ```bash
 magnet:?xt=urn:btih:8C5DFC8CDAF01A298E62C231AF8C62142D8846E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +318,8 @@ magnet:?xt=urn:btih:8C5DFC8CDAF01A298E62C231AF8C62142D8846E9
 magnet:?xt=urn:btih:652359A3F5BA4FA9E965DD96BB311184FF0CA86D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +343,8 @@ magnet:?xt=urn:btih:652359A3F5BA4FA9E965DD96BB311184FF0CA86D
 ```bash
 magnet:?xt=urn:btih:1FFD9856336CEFA40627B7F96101C4D3C4A1D733
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +371,8 @@ magnet:?xt=urn:btih:1FFD9856336CEFA40627B7F96101C4D3C4A1D733
 magnet:?xt=urn:btih:7292524F682263E58EF7121273B19C85C761B22C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +397,8 @@ magnet:?xt=urn:btih:7292524F682263E58EF7121273B19C85C761B22C
 magnet:?xt=urn:btih:AA929B782A9A9B0639F15B55929D7F4465815E26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +422,8 @@ magnet:?xt=urn:btih:AA929B782A9A9B0639F15B55929D7F4465815E26
 ```bash
 magnet:?xt=urn:btih:896423E090FD21A36DA8284623360981831564A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +451,8 @@ magnet:?xt=urn:btih:896423E090FD21A36DA8284623360981831564A9
 magnet:?xt=urn:btih:A8C6BF0887793DE89862A156F75AFD7CD1C8B212
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +476,8 @@ magnet:?xt=urn:btih:A8C6BF0887793DE89862A156F75AFD7CD1C8B212
 ```bash
 magnet:?xt=urn:btih:00A4E1805BB6EEBB16DE13B1332F9200A47CB386
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +503,8 @@ magnet:?xt=urn:btih:00A4E1805BB6EEBB16DE13B1332F9200A47CB386
 ```bash
 magnet:?xt=urn:btih:51CBF5C8EC69DF42306B06EB78CBCF979F440615
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +532,8 @@ magnet:?xt=urn:btih:51CBF5C8EC69DF42306B06EB78CBCF979F440615
 magnet:?xt=urn:btih:CC21CAE965A975D4E29FCC76390CD64F370AD402
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +560,8 @@ magnet:?xt=urn:btih:CC21CAE965A975D4E29FCC76390CD64F370AD402
 magnet:?xt=urn:btih:289CA310BA5482E64F5A932E18B44692ED172B42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +585,8 @@ magnet:?xt=urn:btih:289CA310BA5482E64F5A932E18B44692ED172B42
 ```bash
 magnet:?xt=urn:btih:BF41A6805D44E2B629E61193154EC8CFA5D31060
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +613,8 @@ magnet:?xt=urn:btih:BF41A6805D44E2B629E61193154EC8CFA5D31060
 magnet:?xt=urn:btih:561ECAA57744B72872EF0005586733CA8E1DC441
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +638,8 @@ magnet:?xt=urn:btih:561ECAA57744B72872EF0005586733CA8E1DC441
 ```bash
 magnet:?xt=urn:btih:BF66D9A3A72E654F78346F9F309E285EF760EEA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +666,8 @@ magnet:?xt=urn:btih:BF66D9A3A72E654F78346F9F309E285EF760EEA7
 magnet:?xt=urn:btih:B68BC23AABC453CAE31C3B7F23346C33A554979C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,30 +693,7 @@ magnet:?xt=urn:btih:B68BC23AABC453CAE31C3B7F23346C33A554979C
 magnet:?xt=urn:btih:7D250A95988EAB2C6E5C7DA57AF697A23EECE113
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159118   (485689) от 19.08.2017
-
-А.А. Кадочников | Русский рукопашный бой по системе выживания (2004) [FB2, EPUB]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое рукопашный бой? В каких условиях обстановки он необходим, а при каких обстоятельствах он неизбежен? На каких дистанциях ведется? Каково психическое состояние человека в таком бою? Какие требования следует предъявлять к психологической подготовке воина? Наконец, кто же он — настоящий рукопашник?
-Ответы на поставленные вопросы читатель найдет в этой книге.Жанр: Спорт. СамооборонаФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D60AF4567F119E95957BFF43F8D1A37A97AB2404
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

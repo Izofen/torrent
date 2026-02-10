@@ -22,6 +22,8 @@ CD 1:
 magnet:?xt=urn:btih:EEF576935C865701746E52E364B4B7A12A400C0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Dieter Geike (Blonker) - Indigo (2013) [FLAC|Lossless|tracks + .cue] <New Age, A
 ```bash
 magnet:?xt=urn:btih:B229932EF88A73E945D15179BF6D00B7E6EA5383
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Steve Jablonsky - Deepwater Horizon / Глубоководный горизон�
 magnet:?xt=urn:btih:CD557C61DCCB515B714E2AEAD1F76920E4BB7843
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Roque Banos - Don’t Breathe / Не дыши (Original Motion Picture Soundtrac
 ```bash
 magnet:?xt=urn:btih:845A8107B06EA528F8546D8A044D896433BDAD54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Armik - La Vida (2015) [MP3|320 кб/с]<Instrumental, Nuevo Flamenco, New Age>
 magnet:?xt=urn:btih:12FFC3A0A15762F69950DCDAC37B1ED002C60CE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ The Smooth Ballroom Band - All Time Favorites: Saxophone Lounge (2015) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:5A06A8592371B8EDF0E84F599C958F6E0318B0AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Armik - La Vida (2015) [FLAC|Lossless|WEB-DL]<Instrumental, Nuevo Flamenco, New 
 magnet:?xt=urn:btih:00F12B8FE323B475DD07C0E16AB0C926DB101470
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ Garden Of Delight - Back in Ireland (2015) [OGG| 482-555 кб/с]<Alternative, I
 magnet:?xt=urn:btih:A6E516B82FA41A5A1FF822563946B5AD15806C8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +253,8 @@ VA - Still Like a Stone Structure: Meditation (2020) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:B782E63589E489AA02C6C82583C31B3D63E9F424
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +289,8 @@ Blonker - Wellness (Musik Fur Die Seele) (1990) [FLAC|Lossless]<Instrumental, Ne
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +317,8 @@ Hans Zimmer - Inferno / Инферно (Original Motion Picture Soundtrack) (201
 ```bash
 magnet:?xt=urn:btih:1DBECEF838F5DACCE1FE811C420C9E2E55BAF499
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +347,8 @@ Hans Zimmer - Inferno / Инферно (Original Motion Picture Soundtrack) (201
 magnet:?xt=urn:btih:D2964D54A43DAD3E9B01D83AE4560B9EF69BD01A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +375,8 @@ Anthony Ventura - Je t'aime - Traum-Melodien  (1973-1982) 10 CD [FLAC|Lossless] 
 ```bash
 magnet:?xt=urn:btih:767C8424EBE3154DECCC8FB7F55B004C9BCF949C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +405,8 @@ Golana - Feather on the Wind (2000) [MP3|320 кб/с]<Instrumental, New age, Nat
 magnet:?xt=urn:btih:D9CC3A940031C0FF313B02D894E1B75C984F1AE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +433,8 @@ David Wahler - Two Hearts (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ```bash
 magnet:?xt=urn:btih:181C04C98465329557E0A7E2DBFF952ACE531D79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +463,8 @@ Wychazel - White Wolf Spirit 2 (2015) [MP3|320 кб/с]<New Age, World, Meditati
 magnet:?xt=urn:btih:18B47EF7A919B521229429B5392E441E377E6719
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +492,8 @@ magnet:?xt=urn:btih:18B47EF7A919B521229429B5392E441E377E6719
 magnet:?xt=urn:btih:4E6EC68889CD857F03042C49E18A9ADA428ADD8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +517,8 @@ VA - The Best Of Native Indians (2CD) (1999) [MP3|320 кб/с]<Native American E
 ```bash
 magnet:?xt=urn:btih:46A2D7FB14F2C40D7BBE0DE28428F20D7DA85427
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +547,8 @@ Benjamin Wallfisch - It / Оно (Original Motion Picture Soundtrack) (2017) [FL
 magnet:?xt=urn:btih:190FDEE1ED9B9FF48B78CD119D29B3CD6F4F9171
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +575,8 @@ VA - Ayurveda Lounge - Relaxation & Meditation, Vol. 4 (2014) [MP3|320 Kbps] <Ne
 ```bash
 magnet:?xt=urn:btih:969161975199A14D500F4B4A758B25D047658B84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +605,8 @@ Jim Brickman - Pure Carpenters (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Pi
 magnet:?xt=urn:btih:D4780D741385CAEF80F9BF92A9D587BA0E2E4E09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +633,8 @@ magnet:?xt=urn:btih:D4780D741385CAEF80F9BF92A9D587BA0E2E4E09
 ```bash
 magnet:?xt=urn:btih:1CE5991AF1851EF8CCFE178D76C3044D45A7671E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +669,8 @@ magnet:?xt=urn:btih:1CE5991AF1851EF8CCFE178D76C3044D45A7671E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +698,8 @@ magnet:?xt=urn:btih:1CE5991AF1851EF8CCFE178D76C3044D45A7671E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -678,6 +726,8 @@ Age Of Echoes - Beyond the Farthest Shore (2015) [MP3|320 кб/с]<New Age, Rela
 ```bash
 magnet:?xt=urn:btih:F5693CB7BF5F2E526A10245B743D5A9CE93EE394
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -711,6 +761,8 @@ VAD - Заря (2011) [MP3|320 кб/с]<New Age, Ethnic , Folk>
 ```bash
 magnet:?xt=urn:btih:3F8978BAAA0A6722C5839F301629458037CDAC39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

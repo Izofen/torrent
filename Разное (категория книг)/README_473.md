@@ -1,3 +1,30 @@
+###  Публикация: 1533554   (703216) от 25.02.2022
+
+Николай Беляев| Идеология римского католицизма (2014) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник исследовательских работ русского православного богослова Николая Яковлевича Беляева (1В43-1894) — доктора богословия и профессора Казанской Духовной академии.
+Будучи специалистом в сравнительном богословии профессор Н.Я. Беляев был одним из крупнейших знатоков истории западных вероисповеданий, в особенности римского католицизма. Работы, помещенные в сборнике, (   Читать дальше...   )Жанр: сборник, религиоведение, политология, философияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:983995F549FFEF8E95E2659E5CE93146D1CC3AF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 895184   (703299) от 04.05.2015
 
 Голиб Саидов | Магия Востока. Кухни народов мира (2015) [FB2]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:40862E19483721DD06357B75422E982CB6D007DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +74,8 @@ magnet:?xt=urn:btih:40862E19483721DD06357B75422E982CB6D007DD
 magnet:?xt=urn:btih:AB8ABD5EE467209EDD8750E2D4D33EFD285B928A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +99,8 @@ magnet:?xt=urn:btih:AB8ABD5EE467209EDD8750E2D4D33EFD285B928A
 ```bash
 magnet:?xt=urn:btih:2C5B93279ABD3B1AF47DB01FC23BABAF6E75D0AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +128,8 @@ magnet:?xt=urn:btih:2C5B93279ABD3B1AF47DB01FC23BABAF6E75D0AF
 magnet:?xt=urn:btih:2D9A40E9FDD194F0492737B6EFFA1EBA63EEB7E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +155,8 @@ magnet:?xt=urn:btih:2D9A40E9FDD194F0492737B6EFFA1EBA63EEB7E8
 magnet:?xt=urn:btih:1EEB6495CAE4264AE9ADCB1E2C9DD101A316489F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +181,8 @@ magnet:?xt=urn:btih:1EEB6495CAE4264AE9ADCB1E2C9DD101A316489F
 ```bash
 magnet:?xt=urn:btih:40B34CE2CFD1F2A5DDE846E7AE19A06662CEDA71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +210,8 @@ magnet:?xt=urn:btih:40B34CE2CFD1F2A5DDE846E7AE19A06662CEDA71
 magnet:?xt=urn:btih:71ECF4B16812BD4BAA8D3E053DE79ADA9630D5F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +235,8 @@ magnet:?xt=urn:btih:71ECF4B16812BD4BAA8D3E053DE79ADA9630D5F9
 ```bash
 magnet:?xt=urn:btih:CE6B371AA6181DBF6779EA040CDB54BDDBAF50DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +262,8 @@ magnet:?xt=urn:btih:CE6B371AA6181DBF6779EA040CDB54BDDBAF50DE
 magnet:?xt=urn:btih:F652D1AE8A4635F20C344E49140ECFF7F4579DC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +288,8 @@ magnet:?xt=urn:btih:F652D1AE8A4635F20C344E49140ECFF7F4579DC3
 ```bash
 magnet:?xt=urn:btih:E1E2638BB12FB1479B6B126D455363CAB2E0EDA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +317,8 @@ magnet:?xt=urn:btih:E1E2638BB12FB1479B6B126D455363CAB2E0EDA9
 magnet:?xt=urn:btih:CE02691BFB3C00A639F86692A29B58DA45AA1630
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +342,8 @@ magnet:?xt=urn:btih:CE02691BFB3C00A639F86692A29B58DA45AA1630
 ```bash
 magnet:?xt=urn:btih:E3F76B4206D0B6E2877F65428A1AA40F7F5968EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +371,8 @@ magnet:?xt=urn:btih:E3F76B4206D0B6E2877F65428A1AA40F7F5968EC
 magnet:?xt=urn:btih:4A4FE2D9DE2BCAD185E569FB9926B3FEBF476204
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +396,8 @@ magnet:?xt=urn:btih:4A4FE2D9DE2BCAD185E569FB9926B3FEBF476204
 ```bash
 magnet:?xt=urn:btih:941DF1D9DEE8C202354A12DB93C6785A4DE94E69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +423,8 @@ magnet:?xt=urn:btih:941DF1D9DEE8C202354A12DB93C6785A4DE94E69
 magnet:?xt=urn:btih:5E59EDD9B955C6BBC7822D0DA92AA80E548D7B5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +448,8 @@ magnet:?xt=urn:btih:5E59EDD9B955C6BBC7822D0DA92AA80E548D7B5B
 ```bash
 magnet:?xt=urn:btih:A08EF825CADB251D799EB3CB5F7833D549826AC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +475,8 @@ magnet:?xt=urn:btih:A08EF825CADB251D799EB3CB5F7833D549826AC7
 magnet:?xt=urn:btih:187D03FBBAF03C35B59F8910E281EF1F3A8E9812
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +500,8 @@ magnet:?xt=urn:btih:187D03FBBAF03C35B59F8910E281EF1F3A8E9812
 ```bash
 magnet:?xt=urn:btih:07EF9DDBD2CB26CFC48C51B7CECB6472426C5ADF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +530,8 @@ magnet:?xt=urn:btih:07EF9DDBD2CB26CFC48C51B7CECB6472426C5ADF
 magnet:?xt=urn:btih:6E5DF7200BF67BAEE6F146FC763836C64102DE37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +558,8 @@ magnet:?xt=urn:btih:6E5DF7200BF67BAEE6F146FC763836C64102DE37
 magnet:?xt=urn:btih:5A8D1FD863F6565261D6C9626BF42F22243FD2C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +583,8 @@ magnet:?xt=urn:btih:5A8D1FD863F6565261D6C9626BF42F22243FD2C5
 ```bash
 magnet:?xt=urn:btih:E3E7A935CAA7A747AD0FC153ED2978F32DD033A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +610,8 @@ magnet:?xt=urn:btih:E3E7A935CAA7A747AD0FC153ED2978F32DD033A1
 magnet:?xt=urn:btih:6BAB11E7CB6B8A8231F38F2F2A703BF3C1CEB351
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +635,8 @@ magnet:?xt=urn:btih:6BAB11E7CB6B8A8231F38F2F2A703BF3C1CEB351
 ```bash
 magnet:?xt=urn:btih:C1EF23D9DEAE7EE28BE64055A5119D3374902EB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +662,8 @@ magnet:?xt=urn:btih:C1EF23D9DEAE7EE28BE64055A5119D3374902EB4
 magnet:?xt=urn:btih:432677B56A0C8D7F2A794B7EF3901039AF44112D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,29 +688,7 @@ magnet:?xt=urn:btih:432677B56A0C8D7F2A794B7EF3901039AF44112D
 magnet:?xt=urn:btih:9387D8A542C4DF955F57466B96FB30CC4CE94B2B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 204167   (704789) от 06.03.2019
-
-Валентина Рыженко | Выбор систем водяного отопления для загородного дома (2007) [PDF, DOC]
-
->>Разное (категория книг)
->>Строительство и ремонт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга предназначена не только для домашнего мастера, но и для тех, кто хочет установить в своем доме систему водяного отопления. Сведения, приведенные в ней, ознакомят вас с различными видами водяного отопления, их преимуществами и недостатками, что поможет вам принять оптимальное решение по обустройству своего дома.Жанр: Ремонт, СтроительствоФормат: PDF, DOC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FE8D640845CFCD18805365BC77202BCEC7E1EDB
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

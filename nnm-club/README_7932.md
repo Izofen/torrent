@@ -22,6 +22,8 @@ Skinner - The Dark Design (2023) [MP3|320 Kbps] <Heavy Metal, Power Metal, Thras
 magnet:?xt=urn:btih:304982E563AD3025FA384020205E6D7D2D857706
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Ghosther - Immersion (2022) [FLAC|Lossless|WEB-DL|tracks] <Epic Metal, Modern Me
 ```bash
 magnet:?xt=urn:btih:C3DDE3E9953DA1215202BAE41A5F9966C64F92B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:C3DDE3E9953DA1215202BAE41A5F9966C64F92B9
 magnet:?xt=urn:btih:FDAB66455A477C43A8B9A6F743A0EFE656FE01BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:FDAB66455A477C43A8B9A6F743A0EFE656FE01BB
 ```bash
 magnet:?xt=urn:btih:B19C1FCFBBC3002FDEF648B93FA5516B968A9E22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:B19C1FCFBBC3002FDEF648B93FA5516B968A9E22
 magnet:?xt=urn:btih:81AE1EECB178B2C91858083605D08BE16C8DEBA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ AntiBAG Тахограф 2.0.108 [Ru]
 ```bash
 magnet:?xt=urn:btih:D841DC156CAE2B20CDAB042C59D4B585ECA18F89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -180,6 +192,8 @@ Balabolka 2.15.0.845 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:D310486189E0883EFA5603F8F66E7C0547E61DB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ magnet:?xt=urn:btih:D310486189E0883EFA5603F8F66E7C0547E61DB0
 ```bash
 magnet:?xt=urn:btih:945D2E79B9DE45D5A6E455D34D720E1638F60FE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -231,6 +247,8 @@ James - Be Opened By The Wonderful (2023) 2CD, 40 Years Orchestrated [FLAC|Lossl
 magnet:?xt=urn:btih:AB98656E2BE814904DDE5B6C70833C824E0D2C94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -254,6 +272,8 @@ magnet:?xt=urn:btih:AB98656E2BE814904DDE5B6C70833C824E0D2C94
 ```bash
 magnet:?xt=urn:btih:58FF47B6A86D67F392C980677008F658C7A3F063
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -279,6 +299,8 @@ DJ Mix Pads 2 - Remix Version - это уникальное приложение
 magnet:?xt=urn:btih:45BCED2299B837987937FA9A5411CF9BA6EB3742
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:45BCED2299B837987937FA9A5411CF9BA6EB3742
 ```bash
 magnet:?xt=urn:btih:A551A65EF98EBDBDC0590EFA87CA2BB39D0F0088
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:A551A65EF98EBDBDC0590EFA87CA2BB39D0F0088
 magnet:?xt=urn:btih:5B1732C30389E1CFED1C09FEB6759A8D825ED2D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:5B1732C30389E1CFED1C09FEB6759A8D825ED2D4
 ```bash
 magnet:?xt=urn:btih:986B1DD91C229B0A5065E9C4E37A112596D9F7C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ Ant Download Manager - отличный менеджер загрузки сам
 magnet:?xt=urn:btih:B76571808AFEC06BAE91A1584E3C291805F0D9CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ magnet:?xt=urn:btih:B76571808AFEC06BAE91A1584E3C291805F0D9CC
 magnet:?xt=urn:btih:C00D07AC56EDAF89149CD5356DF71F6EE621ABED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ RTG. Озеро Ильмень (2013) HDTV [H.264/1080i]
 ```bash
 magnet:?xt=urn:btih:6B854C4F357C6A1DB72A88EB4B3725C70C8AC51E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +484,8 @@ Planetariet - Deluxe (2020) [FLAC|Lossless|Web-DL|tracks] <Post Rock>
 magnet:?xt=urn:btih:FEA0478BEB202B1E706D3F0EB4C91A56F0462990
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ getIRC - IRC Client 1.4 [Multi]
 ```bash
 magnet:?xt=urn:btih:3184E6043E8728A7348E897A4D81C0FBC247C4A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ magnet:?xt=urn:btih:3184E6043E8728A7348E897A4D81C0FBC247C4A6
 magnet:?xt=urn:btih:62E7A5A48BAE5745ACADC202E265E8CB85C27D3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:62E7A5A48BAE5745ACADC202E265E8CB85C27D3E
 ```bash
 magnet:?xt=urn:btih:EAE1DC52FB3BFDE9D0B7F2A4AD75CE959AD0F946
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +591,8 @@ Vortex - The Future Remains In Oblivion (2023) [FLAC|Lossless|WEB-DL|tracks] <Sy
 magnet:?xt=urn:btih:547299BE73812323F2755CC593782FA386C59ABD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +620,8 @@ magnet:?xt=urn:btih:547299BE73812323F2755CC593782FA386C59ABD
 magnet:?xt=urn:btih:143B435C9E008B3458CDA6B6D55C680742ADAEEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ X4: Foundations - это космический симулятор, продол
 ```bash
 magnet:?xt=urn:btih:3959276566D0B87535EF220785D29AA0CCFBAA67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +675,8 @@ The Flower Kings - Adam & Eve (2004) InsideOutMusic, Remaster,2023 [FLAC 24/96|L
 magnet:?xt=urn:btih:8363256FB92BA5BCF46A0141FFCE83F78C1909F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ magnet:?xt=urn:btih:8363256FB92BA5BCF46A0141FFCE83F78C1909F5
 ```bash
 magnet:?xt=urn:btih:A72B9ACC633B9FE14B1E6F7744C52BA7A266BA0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

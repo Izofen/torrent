@@ -22,6 +22,8 @@ Paul Quinichette - Basie Reunion (1958) 2000, Original Jazz Classics [APE|Lossle
 magnet:?xt=urn:btih:EE1C21031F4AED23B4D28836D9CE4F942419454C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ PixelLab - отличный фоторедактор, в котором все �
 magnet:?xt=urn:btih:15010CFB307F61373378704A15FB1A4930CA711D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ CGMA, Pete Zoppi | Создание персонажа для фильмов/с�
 ```bash
 magnet:?xt=urn:btih:65F0350B89F2A16A37FCE7F00B3E8683451A2414
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ A4. Give Me Something (1:35)(   Читать дальше...   )Производ
 ```bash
 magnet:?xt=urn:btih:3EB95406EDB5EC49270208A11177AFDD1E23A082
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -129,6 +137,8 @@ Abazagorath - Sacraments Of The Final Atrocity (2004) [WavPack|Lossless]<Black M
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Sven Erik Lundeqvist Trio - First & Foremost (2018) Storyville Records [FLAC|Los
 magnet:?xt=urn:btih:5A42D03C12CB340C9400E38F6C7BC65A80C36F04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -179,6 +191,8 @@ magnet:?xt=urn:btih:5A42D03C12CB340C9400E38F6C7BC65A80C36F04
 ```bash
 magnet:?xt=urn:btih:2B603C2F71913812C785CD6CDBF0BFDB2D8EFB8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -207,6 +221,8 @@ Gregorian - Holy Chants (2017) [FLAC|Lossless|tracks + .cue] <New Age, Electroni
 magnet:?xt=urn:btih:06983BA2DF9330B979F489ECE883B6F49F2B9769
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -230,6 +246,8 @@ magnet:?xt=urn:btih:06983BA2DF9330B979F489ECE883B6F49F2B9769
 ```bash
 magnet:?xt=urn:btih:6A59F2110886C0A6959B0086985C1448E9B6F4D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +282,8 @@ Acrophet - Faded Glory (1990) [WavPack|Lossless]<Thrash Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +310,8 @@ Acrophet - Faded Glory (1990) [WavPack|Lossless]<Thrash Metal>
 magnet:?xt=urn:btih:7D3ED4705446CAD272E7D083B3D2ABAD4040DCC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +336,8 @@ magnet:?xt=urn:btih:7D3ED4705446CAD272E7D083B3D2ABAD4040DCC8
 magnet:?xt=urn:btih:6E02E1363EB2D37C9BB3282DC8452B9B2814A9DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +361,8 @@ magnet:?xt=urn:btih:6E02E1363EB2D37C9BB3282DC8452B9B2814A9DF
 ```bash
 magnet:?xt=urn:btih:84F76BF510E3A213E0819C40F85D2413D8D4488B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +391,8 @@ VA - Organica - Sound Tales 1 (2021) [AAC|~305 Kbps] <Deep House, Dub Techno>
 magnet:?xt=urn:btih:D5CD5DA15D19DB7AD7E0817A47A97C683A4702EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +419,8 @@ magnet:?xt=urn:btih:D5CD5DA15D19DB7AD7E0817A47A97C683A4702EE
 magnet:?xt=urn:btih:AFC1EE8BF27CF71F45ABC21734A9893E122661D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +446,8 @@ TablePlus 5.6.2 [En]
 magnet:?xt=urn:btih:8E8213E29C396DAA4E6CCE828BE9CE4ECFC466F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +472,8 @@ magnet:?xt=urn:btih:8E8213E29C396DAA4E6CCE828BE9CE4ECFC466F2
 ```bash
 magnet:?xt=urn:btih:306AB12056575B4BD0EBA83EEC413E8B4CF68860
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +502,8 @@ magnet:?xt=urn:btih:306AB12056575B4BD0EBA83EEC413E8B4CF68860
 magnet:?xt=urn:btih:7C4F143EC4DE56B6C5A7AA88C47126674B02D5C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +527,8 @@ magnet:?xt=urn:btih:7C4F143EC4DE56B6C5A7AA88C47126674B02D5C6
 ```bash
 magnet:?xt=urn:btih:2FD09D97F3035EA0D01F3C08FC8B442870B87784
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +554,8 @@ magnet:?xt=urn:btih:2FD09D97F3035EA0D01F3C08FC8B442870B87784
 magnet:?xt=urn:btih:3B676CDE3753C3B17F18A8D7CEEE15B9D5E8AD70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +579,8 @@ Sandboxie - yтилита для контроля за работой разли
 ```bash
 magnet:?xt=urn:btih:C5C7838C70E16045B2F1C7AFDA5E502461F2CDB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +608,8 @@ magnet:?xt=urn:btih:C5C7838C70E16045B2F1C7AFDA5E502461F2CDB7
 magnet:?xt=urn:btih:48B9278B23BC6F58C5803D6C025C0E80306F5EF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +633,8 @@ magnet:?xt=urn:btih:48B9278B23BC6F58C5803D6C025C0E80306F5EF1
 ```bash
 magnet:?xt=urn:btih:8D6383288EC9D1E662DA580D4AFA842A442F7508
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +663,8 @@ VA - Best Of Piston Recordings 2021 (2021) [AAC|~308 Kbps] <Deep House>
 magnet:?xt=urn:btih:6C346221D00658F6C8378B8ABEB79765E59AFB61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +692,8 @@ Noblesse | Дворянство [2020, TV, 13] WEBRip 720p raw
 magnet:?xt=urn:btih:4F39CD3715B7958A3821400AA0B844088944A3ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +719,8 @@ Old Gods of Asgard feat. Alan Wake & Mr. Door - Herald of Darkness (2023) Single
 ```bash
 magnet:?xt=urn:btih:4D98D321DFE4B900D86604718F346467064EBAEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

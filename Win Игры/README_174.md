@@ -19,6 +19,8 @@ Messy Up погружает в мир восхитительного столп�
 magnet:?xt=urn:btih:A1555CF15CEECD58347E339936AEC8886A3791C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Fae Farm - симулятор фермы с элементами ролевог�
 ```bash
 magnet:?xt=urn:btih:E5F0379AC4FF7FF1293D0C432FBE89C88A64D9D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Dystopika, градостроитель, разработанный студие
 magnet:?xt=urn:btih:E09A02A0557FB92878563242645E01F975D12A0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Chocolate Factory - это не обычный симулятор магната
 ```bash
 magnet:?xt=urn:btih:C03665AAD8C994555AF27784C38FA622EE1EC313
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ SPY×ANYA: Operation Memories ставит вас на место очарова
 magnet:?xt=urn:btih:9CF00E107CA5D56B41A8A695EE4B555235BDFEC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Fix it - The Handyman Simulator сделает вас мастером, кото
 ```bash
 magnet:?xt=urn:btih:49F4246A2222FAC4E87FA3AA9F91FA205BDA36CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ The Day Of Survival (2024) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:16C44F3364B9F3608BAAE708AA11B9BAECD06718
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Republic of Pirates - это не типичная градостроитель�
 ```bash
 magnet:?xt=urn:btih:F635755688C788C12B0B43B58E37DB834358B16E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Dead War: Rise of Zombies снова покажет вам постапокал�
 magnet:?xt=urn:btih:A515625CFF869A1A5F8C1608007832001D13F579
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ My Museum Prologue: Treasure Hunter понравится всем любител
 ```bash
 magnet:?xt=urn:btih:433916FE4D40641F2FD6D3020A2B5A70D585210F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Senua's Saga: Hellblade 2 - продолжение ролевого экшена
 magnet:?xt=urn:btih:9E84744027E470C9890BDFEE81B4CD6C268517E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Hunt the Night – приключение в стиле ретро, включа
 ```bash
 magnet:?xt=urn:btih:67DA7C80B86A6AD82C04D1B98B046461A9BA1C5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Garden Life: A Cozy Simulator - не просто песочница, а еще 
 magnet:?xt=urn:btih:C6AD3FDEC1DA87FFB3F0E6417A3F154AA5177BC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Backpack Hero переносит игроков в фэнтезийную все
 ```bash
 magnet:?xt=urn:btih:03E8F272571614DC2DF14B97E8BD6AF9D540628B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Doom 3: BFG Edition - это переиздание Doom 3. Жанр и смыс
 magnet:?xt=urn:btih:BAC92894D236577BE9B17EC3FD7A3E1C135E3280
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Curious Expedition 2 – это пошаговый нарративный рог
 magnet:?xt=urn:btih:CA175BFBC8920F75C3F3DCD129B56D7C455F9EFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +434,8 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (2.618.0.0/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:835EB7AF379CE10B8B05115E89C7EFBDA388F52C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ CRYMACHINA - это ролевая игра, в которой механиче�
 magnet:?xt=urn:btih:A0A0053083FB3083EC44969C3F368DA1D51068E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ Mystery Detective Adventure / Мистическое детективное пр
 ```bash
 magnet:?xt=urn:btih:6F1DAF122E5D3B58F0E1831E6361D272B89D0F48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ Resident Evil 6 / Biohazard 6 (2013) [Ru/En] (1.1.0/dlc) Repack Decepticon
 magnet:?xt=urn:btih:DBDDEBFA0114D85FF30D02307E4A523AAA6F05FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ My Museum Prologue: Treasure Hunter понравится всем любител
 ```bash
 magnet:?xt=urn:btih:1C3699B25B3BEC510B705815AAAFC89EE0DE20D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ Sunless Skies - это готическая ролевая игра с элем�
 magnet:?xt=urn:btih:F63858D2E55CB7A64D7ADBA9868747F335C5A638
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ Riven (2024) [Ru/Multi] (build 1294) Repack FitGirl [VR]
 ```bash
 magnet:?xt=urn:btih:0100D26290ED67F1AB7D97B6944FE2CB099D4A95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ Ghostboy – хотите открыть для себя мир психичес
 magnet:?xt=urn:btih:97B212B26C99D608A17F15366538FB944E1CAE25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ COCOON (2023) [Ru/Multi] (20240222) Scene Tenoke
 magnet:?xt=urn:btih:9BA3221EAF4FF78D5E92C518383DF585C52336B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Deathbulge: Battle of the Bands (2023) [En] (1.1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:8586C2EC7FDF1CE7C25343A7C94EC6FC322E9235
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

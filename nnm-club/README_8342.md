@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:8E38BA4123AF6EFFC1A8FA390259241AD82E8A29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:8E38BA4123AF6EFFC1A8FA390259241AD82E8A29
 ```bash
 magnet:?xt=urn:btih:F0A1E7F086CA3B14B502426973A652D302F81C1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Dx Rigraf - новый, свежий и современный гротеск с
 magnet:?xt=urn:btih:249C2855066086FA6980222DB78FE74B64262F1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:249C2855066086FA6980222DB78FE74B64262F1E
 ```bash
 magnet:?xt=urn:btih:2D1E44C9C6D10C1EFA5A52F7FD5FCC7369A76182
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Greycliff CF — универсальное семейство шрифтов: �
 magnet:?xt=urn:btih:4AA22E7EC0DC1496966210526B2056C6BE3A38F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ O&O Defrag Professional – инструмент дефрагментации д
 ```bash
 magnet:?xt=urn:btih:55EBACFAB61DAF5A68588614B67EBB7A3C73BA39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ White Lies - Night Light (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative
 magnet:?xt=urn:btih:15B1BC394974E23E151769019B4827CD0CFFE623
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:15B1BC394974E23E151769019B4827CD0CFFE623
 magnet:?xt=urn:btih:D2F355EF3DEF60424DBA91AB3BB9050558E133A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Spectrasonics - Omnisphere 3.0.0d STANDALONE, VST / VSTi, VST 3 / VSTi 3, AAX (x
 ```bash
 magnet:?xt=urn:btih:A783E96C137F12A3A3085A47624356096563E063
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:A783E96C137F12A3A3085A47624356096563E063
 magnet:?xt=urn:btih:C01A51F886503E9A58275C8BDFDF451B54524622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:C01A51F886503E9A58275C8BDFDF451B54524622
 magnet:?xt=urn:btih:6D5BD0ED220C5C67DE02CFCEBAA58E9419807E14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:6D5BD0ED220C5C67DE02CFCEBAA58E9419807E14
 ```bash
 magnet:?xt=urn:btih:5A52183898746481D3C57BA3C2E0D7C03DF4104B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ GUMBLI - это пузырчатый, пухлый, игривый шрифт, �
 magnet:?xt=urn:btih:AB9E690CF2009691C99915045D5C147FA189349E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:AB9E690CF2009691C99915045D5C147FA189349E
 ```bash
 magnet:?xt=urn:btih:4BE4D0B22D1D1E37DBCEEE3A8D9B29A641A65CD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:4BE4D0B22D1D1E37DBCEEE3A8D9B29A641A65CD4
 magnet:?xt=urn:btih:0EBF0FD8300293582D3D3E3E8E6058B8DA96015E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:0EBF0FD8300293582D3D3E3E8E6058B8DA96015E
 ```bash
 magnet:?xt=urn:btih:E2009660373C484D9873D20E4F6A4D5831F9B332
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:E2009660373C484D9873D20E4F6A4D5831F9B332
 magnet:?xt=urn:btih:A01118ACE735C3090000CD7F56AFB9B40D565841
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ Sneaky Sasquatch 2.1.4 (2019) [Multi/Ru] [macOS Native game]
 magnet:?xt=urn:btih:CD034443FACFC2EA2AB4EBCC55AE882759EF9231
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:CD034443FACFC2EA2AB4EBCC55AE882759EF9231
 ```bash
 magnet:?xt=urn:btih:1AB8D21C68A4A02AB465DD5B983F23637A5ADD26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ magnet:?xt=urn:btih:1AB8D21C68A4A02AB465DD5B983F23637A5ADD26
 magnet:?xt=urn:btih:5A9B892BD189102F93BB758581ED0E2ED9F5D702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ magnet:?xt=urn:btih:5A9B892BD189102F93BB758581ED0E2ED9F5D702
 ```bash
 magnet:?xt=urn:btih:61F4AE392EEB518D81FAB02F58F784C02408F459
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ magnet:?xt=urn:btih:61F4AE392EEB518D81FAB02F58F784C02408F459
 magnet:?xt=urn:btih:1F44EC51817FB7787A72EA0DB9D247DB673C9DC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ magnet:?xt=urn:btih:1F44EC51817FB7787A72EA0DB9D247DB673C9DC7
 magnet:?xt=urn:btih:C2EBD06E006AE52AFA4E408D7124C68A1FC1D356
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ magnet:?xt=urn:btih:C2EBD06E006AE52AFA4E408D7124C68A1FC1D356
 ```bash
 magnet:?xt=urn:btih:AC71326BB49422B163DD8B796182C188013B79D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +660,8 @@ magnet:?xt=urn:btih:AC71326BB49422B163DD8B796182C188013B79D2
 magnet:?xt=urn:btih:3360FEC250985F9B713AB3D71EF343E76AF258CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ magnet:?xt=urn:btih:3360FEC250985F9B713AB3D71EF343E76AF258CF
 ```bash
 magnet:?xt=urn:btih:4C4575058B9BF8BEF2DF89671B8289A2A1372310
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

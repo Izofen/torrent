@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:9F4877E564EB1B820F5452C5E1226566BDF5E1E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:9F4877E564EB1B820F5452C5E1226566BDF5E1E3
 magnet:?xt=urn:btih:DA29191D7D7B374D09BEC840F4FBB2AB63E0F824
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:DA29191D7D7B374D09BEC840F4FBB2AB63E0F824
 ```bash
 magnet:?xt=urn:btih:0D2A5F89AA78B94EE19E2E98288FB62D82AF2C6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ Blinded Colony - Bedtime Prayers (2007) [WavPack|Lossless]<Melodic Death Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ Blinded Colony - Bedtime Prayers (2007) [WavPack|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:5B68A248F0387C4803EA133CFA17C23E2420184E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ SQLiteFlow 6.2.1 [Multi]
 magnet:?xt=urn:btih:5A53D6133FCC6B839A40C7820D5190332AA4F611
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:5A53D6133FCC6B839A40C7820D5190332AA4F611
 ```bash
 magnet:?xt=urn:btih:4FD6121370A3A730BC7FF48C1EABE616A45A8B0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -205,6 +219,8 @@ Billy Price & Fred Chapellier - Night Work (2009) [WavPack|Lossless]<Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -232,6 +248,8 @@ Billy Price & Fred Chapellier - Night Work (2009) [WavPack|Lossless]<Blues>
 magnet:?xt=urn:btih:999AFAD6724824029261CFC1755D803E0A488DEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +274,8 @@ magnet:?xt=urn:btih:999AFAD6724824029261CFC1755D803E0A488DEF
 magnet:?xt=urn:btih:F2F4AB81E3B4DB91AABD08468E8B0F6389589102
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +299,8 @@ magnet:?xt=urn:btih:F2F4AB81E3B4DB91AABD08468E8B0F6389589102
 ```bash
 magnet:?xt=urn:btih:FAD0C4105DFE077812782B8109435CD0EF081669
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -305,6 +327,8 @@ magnet:?xt=urn:btih:FAD0C4105DFE077812782B8109435CD0EF081669
 magnet:?xt=urn:btih:22D24D295895ED168F8256106AF51CC6813F5B1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ magnet:?xt=urn:btih:22D24D295895ED168F8256106AF51CC6813F5B1E
 ```bash
 magnet:?xt=urn:btih:092F7C218C3F5B434DD11CC57F0E89A3C7BD1F1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ CGMA, Clinton Crumpler | 3D UE4 Modular Environments - Модульные окр
 magnet:?xt=urn:btih:C23F62C5AC272DF38A22FB5168FC22CB378A02FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ magnet:?xt=urn:btih:C23F62C5AC272DF38A22FB5168FC22CB378A02FC
 ```bash
 magnet:?xt=urn:btih:B7A6416E1C16EF9BFEDCEF4EE421081F9688EB9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +440,8 @@ Troglodyte - Don't Go In The Woods (2012) [MP3|320 кб/с]<Death Metal>
 magnet:?xt=urn:btih:DDE39873CBE670EC9D4C2E62252BFEA5F60CC479
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +465,8 @@ Timemator 3.0.4 [En]
 ```bash
 magnet:?xt=urn:btih:DA909C416CF24B87DCEC03BF220FDBDF7C151347
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +492,8 @@ magnet:?xt=urn:btih:DA909C416CF24B87DCEC03BF220FDBDF7C151347
 magnet:?xt=urn:btih:43F8F2CB5226E6D5AFE6877566B004EE175078E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +517,8 @@ magnet:?xt=urn:btih:43F8F2CB5226E6D5AFE6877566B004EE175078E7
 ```bash
 magnet:?xt=urn:btih:A2CF28E1FC5FC2610F303DFE4A6CAEC8B1F0553E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +544,8 @@ magnet:?xt=urn:btih:A2CF28E1FC5FC2610F303DFE4A6CAEC8B1F0553E
 magnet:?xt=urn:btih:CAC345BD46AFF2C2DBD7F29AA8AC529E02218288
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +570,8 @@ magnet:?xt=urn:btih:CAC345BD46AFF2C2DBD7F29AA8AC529E02218288
 magnet:?xt=urn:btih:59F9AAE3A2A3FDA198E04A6E287702D4D90FE865
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +595,8 @@ Liveclasses, Дмитрий Шатров | Affinity Photo: быстрый ста
 ```bash
 magnet:?xt=urn:btih:9BB3CDBF720D92F443122E13CE380CFD609F2C0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +625,8 @@ Just Before Dawn - Precis innan gryningen (2013) [FLAC|Lossless|image + .cue] <D
 magnet:?xt=urn:btih:C093D59B938DC9861905EE739FD9BACCDE80CDC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +651,8 @@ Ford против Ferrari / Ford v Ferrari (2019) WEBRip [Line, AD]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +676,8 @@ Comedy Woman. 10 лет (2017.12.29) HDTV [H.264/1080i]
 ```bash
 magnet:?xt=urn:btih:DBDD479B7DD7D8977C7A5337F7CE7F12F8CF4FAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -654,6 +704,8 @@ magnet:?xt=urn:btih:DBDD479B7DD7D8977C7A5337F7CE7F12F8CF4FAF
 ```bash
 magnet:?xt=urn:btih:32729143E35A249A0739799EDED8A1E2718F316A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

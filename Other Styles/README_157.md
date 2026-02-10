@@ -22,6 +22,8 @@ Slow Leaves - Shelf Life (2020) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
 magnet:?xt=urn:btih:77398BD83DFFAC315766AFA86980FC5E27BECCE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ Guy Sweens - Legend Of Ganesha (2009) [MP3|320 кб/с]<New Age, Spiritual, Ethn
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -84,6 +88,8 @@ Cell - Phonic Peace (2005) [MP3|320 kbps]<Dub, Downtempo, Ambient>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -110,6 +116,8 @@ Various artists - Mulheres apaixonadas [Internacional] (2003) [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:4C5F47818A4B62017C4038A9E73894B0637A446F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +152,8 @@ Ryan Farish - 8 albums (2000-2009) [MP3|192-320 kbps]<New Age, Ambient, Relax, M
 magnet:?xt=urn:btih:AE99963CB9BBB355721019DF4C26A628A10F9CF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +185,8 @@ Celtic Woman - 8 альбомов (2005-2014) [MP3|112-320 кб/с]<Celtic folk,
 ```bash
 magnet:?xt=urn:btih:4CA04E31BAFC848F2BBE94514EF69EC16DB94DE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -209,6 +221,8 @@ Mario Suzuki - Touching Folklore Music. Masterpiece (2007) [MP3|320 кб/с]<Ins
 magnet:?xt=urn:btih:2EFFDE3858B13F4E0A9AA3570D60762532BEF8F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +256,8 @@ Various Artists - Lounge Del Mare Vol. 2 (Chillout Cafe Pearls) (2008) [MP3|192-
 magnet:?xt=urn:btih:236621D98F0D217F847E33539344C9A9AAA91FC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +287,8 @@ Ecuador Manta - 5 альбомов (1998-2008) [MP3|128-320 кб/с]<Native Amer
 magnet:?xt=urn:btih:E625E76B1636D0EBEACC5AB5DD7217C01A74A509
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +315,8 @@ Cusco - Essential Cusco: The Journey (2005) [FLAC|Lossless|image + .cue] <New Ag
 ```bash
 magnet:?xt=urn:btih:CA47FF17862CEF17F818B31EA8540EB1018AD01C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +345,8 @@ Vangelis - Voices (1995) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Ambient>
 magnet:?xt=urn:btih:1DA2D113DF2D65BCF1FB450F3E077F41058F796B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +370,8 @@ V.A. - The Matrix (Full OST Collection) (1999..2004) [MP3|192, 320 kbps]<Soundtr
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +399,8 @@ Hans Zimmer & Junkie XL - Batman v Superman: Dawn of Justice (Original Motion Pi
 ```bash
 magnet:?xt=urn:btih:1B8196549792A5932D30BF855D84B46F10788612
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +435,8 @@ CD1:
 magnet:?xt=urn:btih:0CF434F48FB287DC64F36D15F09AA2552A652DD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +460,8 @@ Various Artists - Music For Cocktails: Beach Life (2CD) (2008) [MP3|160-224 kbps
 ```bash
 magnet:?xt=urn:btih:F87F4874F691D047E3BFE1490A977E8EE4AFCBE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +496,8 @@ Alison Krauss & Union Station - Paper Airplane (2011) [FLAC|Lossless]<Country, B
 magnet:?xt=urn:btih:2ECE13F4EA9EE9A9A39E1E84CF608699D5B3EAE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +521,8 @@ Various Artists - Lounge & The City (3CD) (2009) [MP3|160-256 kbps]<Lounge, Lo-F
 ```bash
 magnet:?xt=urn:btih:9357542A7D61467D9CFC2335C1A7BCB5D74F07BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +551,8 @@ Sulton Ali - Legend (2002), Мирзакарим Норбеков [FLAC|Lossless
 magnet:?xt=urn:btih:15D563EAE72E75702DDCDE25F575FA2285FAD5FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +579,8 @@ VA, Lorne Balfe - The LEGO Batman Movie / Лего Фильм: Бэтмен (Ori
 ```bash
 magnet:?xt=urn:btih:0FFD882BF64A9B0B081C21C93249A235652CC560
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +615,8 @@ VA - Lounge Coffee, Vol. 1 - Vol. 4 (2014) [MP3|320 кб/с]<Downtempo, Lounge, 
 magnet:?xt=urn:btih:5FA4FDF131B5FAAA2AAE9A868DE28A390160D120
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +641,8 @@ Dr. Jeffrey Thompson - Natural Music For Sleep (2001) [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:C6B47954BBE1A0FED73FAB5C4D9DD68B3B964E38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +677,8 @@ VA - Lounge Coffee, Vol. 5 - Vol. 8 (2014) [MP3|320 кб/с]<Downtempo, Lounge, 
 magnet:?xt=urn:btih:2C3AABC209083BB3D098603028DB5DD7C9227F7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +711,8 @@ Zack Parrish - Valdis Story: Abyssal City (2013) [MP3|~225 кб/с (V1)]<Soundtr
 ```bash
 magnet:?xt=urn:btih:03AC28935282435007D4619C4D39DDA6F09F4340
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -701,6 +747,8 @@ David Hoffman - The Tree and Other Stories (2012) [MP3|320 кб/с]<New age, Ins
 magnet:?xt=urn:btih:7229D9747BE2F097F6742CB2075BA9F4C4F02DF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -734,6 +782,8 @@ Gary Girouard - The Naked Piano. Elements (2014) [MP3|320 кб/с]<New Age, Inst
 magnet:?xt=urn:btih:F10C54CF9E9925CB4B652603187CCFFC5BECEED5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -763,6 +813,8 @@ Sacred Earth - Breathing Space (2014) [MP3|320 кб/с]<New ega, Meditative>
 ```bash
 magnet:?xt=urn:btih:AD383D5CC8D84BBA7687AE152106CD1F538B08E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

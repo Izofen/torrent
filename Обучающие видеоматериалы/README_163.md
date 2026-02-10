@@ -19,6 +19,8 @@ ArtistHunt School | 25 курсов по рисованию (2020) TVRip
 magnet:?xt=urn:btih:F017A941FE927A3BA352742E58AE6171B5BB08A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:F017A941FE927A3BA352742E58AE6171B5BB08A2
 ```bash
 magnet:?xt=urn:btih:549D7B086D1D2F9EF84A662AE279CDF4DCE6596B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ ES6(   Читать дальше...   )Производство: HarvardX (Harva
 magnet:?xt=urn:btih:458C9B93C02F16A94E3FF19211C3D1322A432FF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:458C9B93C02F16A94E3FF19211C3D1322A432FF8
 ```bash
 magnet:?xt=urn:btih:D41CFE956C9716DF05FE5FCE14A7ECBD83B94E52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Illumination Cinematography Workshop научит вас основным сос
 magnet:?xt=urn:btih:5CBE367DE6F1ACE422B069BFBBFDFDDE047D4C9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:5CBE367DE6F1ACE422B069BFBBFDFDDE047D4C9F
 magnet:?xt=urn:btih:A3C2169C4476478E5726AFCA8D40CFEEF3B9E41F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Alkis Escobedo | Освещение и рендеринг с помощью V-Ra
 ```bash
 magnet:?xt=urn:btih:E03B99C4FE3A97AC8EB64CE0C4366559AF9D3F44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ Skillbox | Таргетолог от А до Я (2020) PCRec
 magnet:?xt=urn:btih:A4BACB40EF152CA9262A7C460068824895DEF392
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ PRO Ретушер — это революционные алгоритмы ар
 magnet:?xt=urn:btih:852F2A2AC0EF6EAB9C4A96086947B96BCD7EECCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ Max Twain | Fatalism ART (2019) PCRec
 magnet:?xt=urn:btih:4F0BA45B10DDB49453DCA2E9C54A59942786CCF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ Max Twain | Pro Retoucher. Fatalism NEON (2019) PCRec
 ```bash
 magnet:?xt=urn:btih:40DCEAF224A70AB74D9BBEBFB83C437FA470424C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ Max Twain | Daz3D (2020) PCRec
 magnet:?xt=urn:btih:B60C082F8D5B1CCE6F0873551F38DAC6B211C479
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ Max Twain | Workshop (2020) PCRec
 ```bash
 magnet:?xt=urn:btih:2C63F400BD17A7669283A143DA94CE6B68056690
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ Max Twain | Джоконда (2020) PCRec
 magnet:?xt=urn:btih:EBFC804A705B62E79057C97D36AFC322665BA4A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ Max Twain | Global Wedding (2020) PCRec
 magnet:?xt=urn:btih:AEFD78F204D3AA440D8D8CD7BC6378C04F839D6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ Max Twain | Mystic (2020) PCRec
 ```bash
 magnet:?xt=urn:btih:F47E30502241368BEBA2E805E18764328FCB4BFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ Max Twain | NOIRE (2019) PCRec
 magnet:?xt=urn:btih:ECC1ACC49C6C2E672695F9705458D4828E193ABA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ Max Twain | Bad Cat (2019) PCRec
 ```bash
 magnet:?xt=urn:btih:7FDD9511DDA5F77A1B95C59617A20ED024804B35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ Rock the JVM | Cats (2020) PCRec [En]
 magnet:?xt=urn:btih:FAC1EBB125925951E55A69607C1EFE20A55C14AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ CreativeLive | Лучшее освещение & Свадебный реквиз
 ```bash
 magnet:?xt=urn:btih:813AE9FD64E423E8D5BF67DF9228336B42D4E1B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +557,8 @@ Jesse Pitela | Курс по созданию продвинутых крупн�
 magnet:?xt=urn:btih:25C3764A80A6C6E591B49AD8834A546C8A5EDC07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ Jesse Pitela сертифицированный инструктор Phoenix FD,
 ```bash
 magnet:?xt=urn:btih:D28DD18758E6E78CE61C1ECB1FB9D123427A1BEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +609,8 @@ Jesse Pitela | Курс Для Начинающих по Симуляции Жи
 magnet:?xt=urn:btih:4C9284156D2F2F33FFB30E2426123809435BC0B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ Jesse Pitela | Курс по созданию огня и дыма с плаги
 magnet:?xt=urn:btih:D68340CAEB4FC0D0ED350D8F182D49D5698BCE03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ Eduard Mykhailov | Rich Glitch (2019) PCRec [En]
 ```bash
 magnet:?xt=urn:btih:703FD4E82C109A8503212770EEDD70176D609AB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +689,8 @@ Gameinstitute, Dojn | Game Mathematics (2017) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:F929E6DF64BDCA3C522E022A3A9EB59ABB1C9998
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

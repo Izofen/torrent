@@ -19,6 +19,8 @@ BBC. Белая королева и ее соперницы / The Real White Que
 magnet:?xt=urn:btih:83EB21A1D24EB3BE249CF2C22013B734BA1F8CDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:83EB21A1D24EB3BE249CF2C22013B734BA1F8CDE
 ```bash
 magnet:?xt=urn:btih:15644F761783080282B13C7A594F2F046DDC254B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NG. Настоящая чёрная пантера / The Real Black Panther (202
 magnet:?xt=urn:btih:CB1B6E9EEFD97D8DA38CED378D2A07CBAE30EEAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ NG. Путь гепарда / The Way Of the Cheetah (2022) WEB-DL [H.264/1080p]
 magnet:?xt=urn:btih:9D17FB7259752012B28CF527A558A5848391D728
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:9D17FB7259752012B28CF527A558A5848391D728
 ```bash
 magnet:?xt=urn:btih:7035A14073363FB49767E06835784DE6C71F5C04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:7035A14073363FB49767E06835784DE6C71F5C04
 magnet:?xt=urn:btih:8C4C8C49F0129746EE47E964476B044630C1ED5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:8C4C8C49F0129746EE47E964476B044630C1ED5D
 ```bash
 magnet:?xt=urn:btih:315C0ACAA378F610BFF5CBEDBC4826803D7C1A0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:315C0ACAA378F610BFF5CBEDBC4826803D7C1A0B
 magnet:?xt=urn:btih:366B7B78ADF3E73329F9E97779E93F9F6C20BE59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ NG. В поисках динозавров на Аляске / Hunting Alaskan D
 ```bash
 magnet:?xt=urn:btih:90057373122054702579C6EC0BFDEF56C648D5AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:90057373122054702579C6EC0BFDEF56C648D5AD
 magnet:?xt=urn:btih:F70164C432993A9D07581B528044293520F98D6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ NG. Затонувшие сокровища нубийских фараонов 
 magnet:?xt=urn:btih:99C8FA97B6F650175B0263CF178BCB7B85BFA89C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ PBS: Nature - Отважный Ирак / Braving Iraq (2010) BDRip [H.264/1080p
 ```bash
 magnet:?xt=urn:btih:E39573D6463FBA2220D2512EDFDEEF7163C3C96B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ BBC: Инстинкт человека (Человеческие инстинк�
 magnet:?xt=urn:btih:2E8CE6E72E8C4779EB68F25D4A5F83EC8A634467
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ History Channel. В изоляции (Арктика) / Alone (2021) WEB-DL [H.2
 ```bash
 magnet:?xt=urn:btih:A1C70B15A94A22FED6A988F98E7F1E161529273B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:A1C70B15A94A22FED6A988F98E7F1E161529273B
 magnet:?xt=urn:btih:D73ADD187EDB90C1E2E34019D89D07583AB60003
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ History Channel. В изоляции (Лабрадор) / Alone (2022) WEB-DL [H
 ```bash
 magnet:?xt=urn:btih:B5E22CE84202002F58399FCE9F1A47B8C08AD4E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ NG. Разрушительный ураган Сэнди / Superstorm New York: 
 magnet:?xt=urn:btih:36395BA542F813A521C5DB2C18029907F6518A62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ NG. Прекрасная Америка / America the Beautiful (2022) WEB-DL [H
 ```bash
 magnet:?xt=urn:btih:5CE43980BC97B24ADDDC29D5B2434848792629F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:5CE43980BC97B24ADDDC29D5B2434848792629F3
 magnet:?xt=urn:btih:F13533DAAEC2809EF168299CB072B98458460A1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Discovery. Как устроена Вселенная / How the Universe Works (
 ```bash
 magnet:?xt=urn:btih:700A0E68B7AC0F5BD5A85080751C0EFE4D6A26E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ Discovery. Люди, которые продали Кубок Мира / The Men
 magnet:?xt=urn:btih:0A4CF988AA2E052A765701FB478C15850FB910AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:0A4CF988AA2E052A765701FB478C15850FB910AB
 ```bash
 magnet:?xt=urn:btih:061A2F9C4EA7182138D2B6B11AA0585373BAA56E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ NGW: Вдоль по Окаванго / Into the Okavango (2018) HDTV [H.264/108
 magnet:?xt=urn:btih:9F9A6CC618EB1FB5D9BE043CF0C9B45E906C83EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ Discovery. История Пластика / The Story of Plastic (2019) HDTV [H
 ```bash
 magnet:?xt=urn:btih:D5AA702C7CDB540138A5F5E6BE07023DD9CC754D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ magnet:?xt=urn:btih:D5AA702C7CDB540138A5F5E6BE07023DD9CC754D
 magnet:?xt=urn:btih:BD4CA1D9CCB2F8C17A1D0AE4F1E615338C62EBA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ National Geographic. Взлом системы / Hacking the System (2014) IPTVR
 ```bash
 magnet:?xt=urn:btih:14A1D981E9377CED3DEEEE83E50EBCA219355623
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

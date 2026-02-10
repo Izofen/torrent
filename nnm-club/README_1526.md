@@ -22,6 +22,8 @@ Widespread Panic - Warfield 2000 #4 (2024) [MP3|320 Kbps] <Southern Rock, Altern
 magnet:?xt=urn:btih:D09EDE222BC966CA7C8B1D5F47FC355ECD871C1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:D09EDE222BC966CA7C8B1D5F47FC355ECD871C1D
 ```bash
 magnet:?xt=urn:btih:2ADE87F5F13758B3FE720A6B7CC1E423AE92823B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ The Chesterfield Kings - We're Still All The Same (2024) [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:A66622D09815BD6ACCEE0262E850C18165511445
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Tom Mansi & the Icebreakers - Eyeball (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 ```bash
 magnet:?xt=urn:btih:02051B4939F9A0934281C22573A8CB30AACC374F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ Mike Campbell & The Dirty Knobs - Vagabonds, Virgins & Misfits (2024) [FLAC|Loss
 magnet:?xt=urn:btih:7EBD935C5F7C0789DAE80C3E805B0B38CD2FAA46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ Ellen Edwards - A Beautiful World (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:09E666E6BB52FD089857FCA8FE6B12A183E8B257
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -182,6 +194,8 @@ Swallow The Sun - Shining (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic-Doom Meta
 magnet:?xt=urn:btih:8B7FF517A68FBC37EDDAF3A1573D084DA6E3EF06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ Swallow The Sun - Shining (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Gothic-Doo
 ```bash
 magnet:?xt=urn:btih:C2F9704DF508EB68451F118DD7AB5688536331AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +252,8 @@ Airborne Blues Virus - Minnie Water Music (2024) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:1C23B4DEF683BC880C533231DF1E12FD1B45C1B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +281,8 @@ Delta Generators - The Lost Years (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 magnet:?xt=urn:btih:56C71508591FE7551420F7F98BB3A8EBF8743A11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +308,8 @@ magnet:?xt=urn:btih:56C71508591FE7551420F7F98BB3A8EBF8743A11
 magnet:?xt=urn:btih:5FC1272ADF091E149AF286D8AE6C228133C22FA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +334,8 @@ Process Lasso позволяет вручную или автоматическ�
 magnet:?xt=urn:btih:52C57147DCB225E7B5A8A3B29F1E37438BFBEC0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +359,8 @@ magnet:?xt=urn:btih:52C57147DCB225E7B5A8A3B29F1E37438BFBEC0D
 ```bash
 magnet:?xt=urn:btih:B668A3DD39064900FD2E8252EC7FE57272A69E02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +388,8 @@ magnet:?xt=urn:btih:B668A3DD39064900FD2E8252EC7FE57272A69E02
 magnet:?xt=urn:btih:A32024B3220020B7C165F55B2573A3F0911AA956
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +413,8 @@ magnet:?xt=urn:btih:A32024B3220020B7C165F55B2573A3F0911AA956
 ```bash
 magnet:?xt=urn:btih:6C27A1A7E7F6CEB9A89850715042E508DC5709E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +440,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:2A66C2EE9CF3E68BC8675E8421DF11060DAC3BE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +465,8 @@ magnet:?xt=urn:btih:2A66C2EE9CF3E68BC8675E8421DF11060DAC3BE6
 ```bash
 magnet:?xt=urn:btih:40A3BE0C7B5360D42FCB1FC7DEDE595DA79D096E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +495,8 @@ VA - Summer's End Autumn blues (2024) [MP3|320 Kbps] <Blues, Blues Rock, Pop>
 magnet:?xt=urn:btih:221555D84FE8F9956FD390C74D9716ABA98B122A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +521,8 @@ SpinTracer обеспечивает управление звуком в реж�
 magnet:?xt=urn:btih:18FCCCC5958A5014602DD610349335ECBA69961C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +546,8 @@ Periodic Table / Таблица Менделеева 2024 PRO v3.5.5 Mod by Bala
 ```bash
 magnet:?xt=urn:btih:9327DEF1219AD9EA8AF69A5456A0DB31E104F733
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +574,8 @@ magnet:?xt=urn:btih:9327DEF1219AD9EA8AF69A5456A0DB31E104F733
 magnet:?xt=urn:btih:A81B48603699D6FA41DFC0FD800D2134246179CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +599,8 @@ Helck | Хельк [2023, TV, 24 из 24] BDRip 1080p HEVC 10-bit raw+rus
 ```bash
 magnet:?xt=urn:btih:F9F08797F82D7A3EC2A5099FBAC45EC219BC2693
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +626,8 @@ magnet:?xt=urn:btih:F9F08797F82D7A3EC2A5099FBAC45EC219BC2693
 magnet:?xt=urn:btih:FC409CC786F5F9A37B6D8F075E66D5B16337D61F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +651,8 @@ ActionDirector- это единственный 📹 видеоредактор,
 ```bash
 magnet:?xt=urn:btih:1609B5792B80E2F791533CEDD5F8A9E89AB6BB5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +681,8 @@ Lusa - The Colour Of Space (2024) [MP3|320 Kbps] <Electronic, Synthpop, Pop>
 magnet:?xt=urn:btih:9A5F840C059C2FF1B34DE68265A10EC9447D2191
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +709,8 @@ VA - Cocinando Con Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:8DA7B1717FF3B1B625D8718B578722BB05FB87A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:175E7E187AABF9BF5CD44DB42074259FD969164C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Roadkill - Insanity Inside (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Heavy M
 magnet:?xt=urn:btih:D8DEA6F24673496F97A9999FFB99D4283266D122
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:D8DEA6F24673496F97A9999FFB99D4283266D122
 ```bash
 magnet:?xt=urn:btih:801DC52FDF93189B09D75E3917704F4907E1A000
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ Just Before Dawn - Tides of Blood (2018) [FLAC|Lossless|image + .cue] <Death Met
 magnet:?xt=urn:btih:8EBD16DC7DF6CFCF7C5EE75AC2793CC93CD8C745
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:8EBD16DC7DF6CFCF7C5EE75AC2793CC93CD8C745
 ```bash
 magnet:?xt=urn:btih:095C160CE02D0BF10663BD888BDD92A51012BAD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:095C160CE02D0BF10663BD888BDD92A51012BAD2
 magnet:?xt=urn:btih:E5E8F1AB188BE0346E28F657FA510BB0B92EA4D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:E5E8F1AB188BE0346E28F657FA510BB0B92EA4D7
 ```bash
 magnet:?xt=urn:btih:AADC770C47D50E9C0F8878186279D5B1B32ADB60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ Plies - Hunna (2012) WEBRip
 magnet:?xt=urn:btih:84F3107DC72C81785EC63F27D00C336F9D12268D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ iCompta - простое, но мощное приложение для упра
 ```bash
 magnet:?xt=urn:btih:8F3D670245E27F469EB3E497A907C7683D6E574B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ VA - DubStep Pro V.9 (2012) [MP3|320 кб/с]<DubStep>
 magnet:?xt=urn:btih:BE01CE8DE485381BFF5BAC1C0EDFCA34F86E334C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ PrintLab Studio - это легкое и простое в использова�
 ```bash
 magnet:?xt=urn:btih:7B03E3DFE8545F74AFAF8607801CA5200FDFA8C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -306,6 +328,8 @@ Zora Young - 4 Альбома (2000 - 2009) [MP3|320 кб/с]<Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +356,8 @@ Memorial Day - Embark Hades (1995) [FLAC|Lossless|tracks] <Gothic, Doom, Death M
 ```bash
 magnet:?xt=urn:btih:009ED584D7CB230E755BF3EED1DB0B392B97A27A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +392,8 @@ magnet:?xt=urn:btih:009ED584D7CB230E755BF3EED1DB0B392B97A27A
 magnet:?xt=urn:btih:8AAA8D6E96789388F4530E0E633F8916789E9567
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +417,8 @@ magnet:?xt=urn:btih:8AAA8D6E96789388F4530E0E633F8916789E9567
 ```bash
 magnet:?xt=urn:btih:8C4A7CE13AF4042CD9E6939C3BF0985F4D6A7685
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +453,8 @@ VA - Cafe La Guitarra Vol.1 (La Seleccion Musica Balearica - The Best In Guitar 
 magnet:?xt=urn:btih:EDFE9BCBFF97553B6883A16B8BA153C110875418
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +488,8 @@ VA - Rocks Off - 16 Tracks Of The Best New Music (2012) [FLAC|Lossless]<Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ VA - Rocks Off - 16 Tracks Of The Best New Music (2012) [FLAC|Lossless]<Rock>
 magnet:?xt=urn:btih:1F5F89338544B860A5518F604109F38931ABDDAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +539,8 @@ magnet:?xt=urn:btih:1F5F89338544B860A5518F604109F38931ABDDAE
 ```bash
 magnet:?xt=urn:btih:C2070C374CFAB4CACEC216064D389E099F0BD9EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +575,8 @@ Noel Quinlan - 7 albums (1991-2004) [MP3|320 кб/с]<New Age, World, Instrument
 magnet:?xt=urn:btih:E23401DB621165DD9C05E42106C3812B14CBDF5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +600,8 @@ magnet:?xt=urn:btih:E23401DB621165DD9C05E42106C3812B14CBDF5C
 ```bash
 magnet:?xt=urn:btih:82D225A0F1E950D3C5F0E4F78225E330A1D0F572
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +636,8 @@ Don Grusin & Bill Sharpe - Trans Atlantica (2012) [FLAC|Lossless]<Smooth Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +661,8 @@ Xenia - Understand (2012) [H.264/720p] WEBRip
 ```bash
 magnet:?xt=urn:btih:36D9426D83129B4234424D10CD28090FAF6D54A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +695,8 @@ Planet X - Quantum (2007) [MP3|320 кб/с]<Progressive Fusion Rock>
 ```bash
 magnet:?xt=urn:btih:43FF798163B7C3B3F4B16009854F22135D220A0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -683,6 +731,8 @@ Pulp - Different Class (1995) [MP3|320 кб/с]<BritPop>
 magnet:?xt=urn:btih:DFB7B331C4B9A3385BE8DF411ED59FB1A7EA1B1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -706,6 +756,8 @@ magnet:?xt=urn:btih:DFB7B331C4B9A3385BE8DF411ED59FB1A7EA1B1F
 ```bash
 magnet:?xt=urn:btih:E05EE687D45A2CD068FA711013A6B465B9E7EA9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

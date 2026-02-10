@@ -1,27 +1,3 @@
-###  Публикация: 804446   (611712) от 14.07.2014
-
-Легенды ночных стражей / Legend of the Guardians: The Owls of Ga’Hoole (2010) BDRip [720p] [Hand Made 60fps] [UKR]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миром, в котором уже не осталось людей, правят совы… добрые… злые… как и всегда! В волшебном лесу — королевстве сов Тито — на Великом Дереве Га`Хуул, где разумные совы живут в гармонии, наступают мрачные времена. Королевство подвергается страшной опасности со стороны соседних жестоких правителей, и эта опасность грозит уничтожить привычное мироздание.Жанр: Фэнтези, ПриключенияРежиссер: Зак Снайдер / Zack SnyderПерсонажи: Джим Стёрджесс / Jim Sturgess, Райан Квантен / Ryan Kwanten, Джоэл Эдгертон / Joel Edgerton, Хелен Миррен /  Helen Mirren, Джеффри Раш / Geoffrey Rush, Эдриэнн ДеФариа / Adrienne DeFaria, Сэм Нил / Sam Neill, Эмили Барклай / Emily Barclay, Энтони ЛаПалья / Anthony LaPaglia, Дэвид Уэнэм / David Wenham, и др.Перевод: ДублированныйЯзык субтитров: Русские, АнглийскиеПродолжительность: 1:37:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9975576B253B721DFB6287DCDC82C9E118AE32B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 348175   (611910) от 22.06.2011
 
 Делай ноги / Happy Feet (2006) [1080p] BDRip
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:9975576B253B721DFB6287DCDC82C9E118AE32B2
 ```bash
 magnet:?xt=urn:btih:4C7F6AC070B448C32004F72238A080FA3532E6F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -66,6 +44,8 @@ magnet:?xt=urn:btih:4C7F6AC070B448C32004F72238A080FA3532E6F4
 ```bash
 magnet:?xt=urn:btih:D46D4C92DFD655792664229BDF77792F204662EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +72,8 @@ magnet:?xt=urn:btih:D46D4C92DFD655792664229BDF77792F204662EF
 magnet:?xt=urn:btih:1425F64540E8EC5ADFBF3D2CF1D1DD2436BFE5A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:1425F64540E8EC5ADFBF3D2CF1D1DD2436BFE5A1
 ```bash
 magnet:?xt=urn:btih:50988A972FC6738141E7A6A6923784FD2C3CC354
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +124,8 @@ magnet:?xt=urn:btih:50988A972FC6738141E7A6A6923784FD2C3CC354
 magnet:?xt=urn:btih:A1E15D440C390414FE4356A2449492D0CDDC4A1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:A1E15D440C390414FE4356A2449492D0CDDC4A1D
 ```bash
 magnet:?xt=urn:btih:7E9B5958ADFBE129194C91643A10BE0FC7C335EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +177,8 @@ magnet:?xt=urn:btih:7E9B5958ADFBE129194C91643A10BE0FC7C335EA
 magnet:?xt=urn:btih:055D82E28C111D5DFD4B1F4005225A40ADF6E785
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +204,8 @@ magnet:?xt=urn:btih:055D82E28C111D5DFD4B1F4005225A40ADF6E785
 magnet:?xt=urn:btih:4A0127A9C6CA687E53D0B88B0910FF56D28EFDE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +229,8 @@ magnet:?xt=urn:btih:4A0127A9C6CA687E53D0B88B0910FF56D28EFDE0
 ```bash
 magnet:?xt=urn:btih:EED45C2E85CCF28F7305F8996A51F90EED3E1CC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +256,8 @@ magnet:?xt=urn:btih:EED45C2E85CCF28F7305F8996A51F90EED3E1CC0
 magnet:?xt=urn:btih:CF76E89EFCBD62C5F02B5966915E54A7C2BF08E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +281,8 @@ magnet:?xt=urn:btih:CF76E89EFCBD62C5F02B5966915E54A7C2BF08E8
 ```bash
 magnet:?xt=urn:btih:A7118D1EE861E89A5775685E61B16FA41104F1FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +308,8 @@ magnet:?xt=urn:btih:A7118D1EE861E89A5775685E61B16FA41104F1FC
 magnet:?xt=urn:btih:A6E782806F84D7EAE8AC744022FA9DFA90B452DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +333,8 @@ magnet:?xt=urn:btih:A6E782806F84D7EAE8AC744022FA9DFA90B452DC
 ```bash
 magnet:?xt=urn:btih:5090EFBE32039499402F6C00C67D7A85C1E9567E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +360,8 @@ magnet:?xt=urn:btih:5090EFBE32039499402F6C00C67D7A85C1E9567E
 magnet:?xt=urn:btih:91AAAEF6D31F435B1E5725F5143241ADF6869C65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +385,8 @@ magnet:?xt=urn:btih:91AAAEF6D31F435B1E5725F5143241ADF6869C65
 ```bash
 magnet:?xt=urn:btih:8190BE494B202FC643CADEB0CFF917A7DCA01CD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +412,8 @@ magnet:?xt=urn:btih:8190BE494B202FC643CADEB0CFF917A7DCA01CD2
 magnet:?xt=urn:btih:1F914FED6EDE9FF455B2B08A201A384047E04D6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +437,8 @@ magnet:?xt=urn:btih:1F914FED6EDE9FF455B2B08A201A384047E04D6A
 ```bash
 magnet:?xt=urn:btih:AE7DC61D6D21178691070D2DF7CA1A17C941BB35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +466,8 @@ magnet:?xt=urn:btih:AE7DC61D6D21178691070D2DF7CA1A17C941BB35
 magnet:?xt=urn:btih:B7F48F6E63F4582CE6150CFDCE2DCEFB9975AC31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +491,8 @@ magnet:?xt=urn:btih:B7F48F6E63F4582CE6150CFDCE2DCEFB9975AC31
 ```bash
 magnet:?xt=urn:btih:A580B1DB922EF46825ED997824309A64E2CE5C99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +518,8 @@ magnet:?xt=urn:btih:A580B1DB922EF46825ED997824309A64E2CE5C99
 magnet:?xt=urn:btih:1CEF9B691D08D062121F8BFBAA263E5F878FBBBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +544,8 @@ magnet:?xt=urn:btih:1CEF9B691D08D062121F8BFBAA263E5F878FBBBD
 magnet:?xt=urn:btih:F12BF3C8DFCDA7D7AF859674725570E4E749C821
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +569,8 @@ magnet:?xt=urn:btih:F12BF3C8DFCDA7D7AF859674725570E4E749C821
 ```bash
 magnet:?xt=urn:btih:373F32A2BAA89BE296B2E96C3FA1303E4F666F87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +597,8 @@ magnet:?xt=urn:btih:373F32A2BAA89BE296B2E96C3FA1303E4F666F87
 magnet:?xt=urn:btih:003A4F9488BD8ADDFB9A502E0340904A180E1491
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +623,8 @@ magnet:?xt=urn:btih:003A4F9488BD8ADDFB9A502E0340904A180E1491
 magnet:?xt=urn:btih:913BFD45923C21A1EE20FDAEE8A5330C8F761904
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +648,34 @@ magnet:?xt=urn:btih:913BFD45923C21A1EE20FDAEE8A5330C8F761904
 ```bash
 magnet:?xt=urn:btih:A0C6D9CE3117764008BFF895CA1C1ED70ED27B7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909109   (625293) от 18.06.2015
+
+Лига Справедливости: Боги и Монстры - Хроники / Justice League: Gods and Monsters Chronicles (2015) WEB-DLRip  [H.264/1080p] [EN]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал состоит из трех миниэпизодов, посвященных Чудо-Женщине, Супермену и Бэтмену и служит предысторией полнометражного мультфильма "Justice League: Gods and Monsters", который выйдет 28 июля. Всё действие происходит в альтернативной вселенной.Производство: США, DC Comics, Machinima, Warner Bros. AnimationЖанр: Рисованная анимация, Минисериал, Короткометражный, ПриключенияРежиссер: Брюс Тимм, Алан БернеттПерсонажи: Супермен, Бэтмен, Чудо-женщинаПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 3 фильма по ~00:05:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9ED859C230F745A701F4E92FDEBF6150635D8C7
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

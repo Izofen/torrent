@@ -1,3 +1,29 @@
+###  Публикация: 1391739   (745090) от 16.07.2020
+
+Роберт Мартин | Чистый Agile. Основы гибкости (2020) [PDF, EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошло почти двадцать лет с тех пор как появился Манифест Agile. Легендарный Роберт Мартин (Дядя Боб) понял, что пора стряхнуть пыль с принципов Agile, и заново рассказать о гибком подходе не только новому поколению программистов, но и специалистам из других отраслей. Автор полюбившихся айтишникам книг «Чистый код», «Идеальный программист», «Чистая архитектура» стоял (   Читать дальше...   )Жанр: Организационный менеджмент, Управление проектамиФормат: PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC21BD9FF8A5D2C94580C28F83C1DBB2567475A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020349   (745143) от 26.05.2016
 
 Удо Ульфкотте | Продажные журналисты. Любая правда за ваши деньги (2015) [FB2, MOBI, EPUB]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:858FCA73DA4FD670D6C9472DD2F26F666310E4A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:858FCA73DA4FD670D6C9472DD2F26F666310E4A3
 ```bash
 magnet:?xt=urn:btih:E0B3512473B27F24D2F12C8A295EDAFBA5217C1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:E0B3512473B27F24D2F12C8A295EDAFBA5217C1E
 magnet:?xt=urn:btih:354753C4DF4295CD032864214FCA52A8D3F814EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:354753C4DF4295CD032864214FCA52A8D3F814EB
 magnet:?xt=urn:btih:FE00157F0DF5476BB601E459BEE457D7413C02A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:FE00157F0DF5476BB601E459BEE457D7413C02A0
 ```bash
 magnet:?xt=urn:btih:70FE4385AD4B68089A1F8BEB9CC89BD72F71C9CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:70FE4385AD4B68089A1F8BEB9CC89BD72F71C9CB
 magnet:?xt=urn:btih:9F12954B51F5BB151EA3931FAEAEF6046084D256
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:9F12954B51F5BB151EA3931FAEAEF6046084D256
 ```bash
 magnet:?xt=urn:btih:00B82F2D7535D1C441A76C42509B2CABED45FAD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:00B82F2D7535D1C441A76C42509B2CABED45FAD6
 magnet:?xt=urn:btih:A9B462287C745D3415C083ED81BF95E185D927A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:A9B462287C745D3415C083ED81BF95E185D927A1
 ```bash
 magnet:?xt=urn:btih:87B6D5EC0247A3951A802B104A1742FEA7957241
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:87B6D5EC0247A3951A802B104A1742FEA7957241
 magnet:?xt=urn:btih:4676A020C3CAB829636AF9AA6EB3205BAEA6DF83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:4676A020C3CAB829636AF9AA6EB3205BAEA6DF83
 ```bash
 magnet:?xt=urn:btih:0E44B007E5009165C112B68F11C343266A5B986C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:0E44B007E5009165C112B68F11C343266A5B986C
 magnet:?xt=urn:btih:751B321A8291EE608B42B8CA58B5CC1F38061B5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:751B321A8291EE608B42B8CA58B5CC1F38061B5D
 ```bash
 magnet:?xt=urn:btih:7BDA0D2FC2C47D0884AAAA81382FF127445849D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:7BDA0D2FC2C47D0884AAAA81382FF127445849D3
 magnet:?xt=urn:btih:6DC1C4E9A4620D955D64814D3EADFA19FE34E8DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:6DC1C4E9A4620D955D64814D3EADFA19FE34E8DB
 magnet:?xt=urn:btih:309BA7DCA52E8C9C23CEDFBF80B6A5759C9CA232
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:309BA7DCA52E8C9C23CEDFBF80B6A5759C9CA232
 ```bash
 magnet:?xt=urn:btih:36F79D86829994BDD349698D12C6CF76F4229A5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:36F79D86829994BDD349698D12C6CF76F4229A5C
 magnet:?xt=urn:btih:CEFCA1D7373A14C75548FC3E6DC1544F0D86D577
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:CEFCA1D7373A14C75548FC3E6DC1544F0D86D577
 magnet:?xt=urn:btih:C049F552BFCE74859CF3FF8FB78A77BD47C60897
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:C049F552BFCE74859CF3FF8FB78A77BD47C60897
 magnet:?xt=urn:btih:51397DB8D8FF44510CD2970707435C6943C85DBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:51397DB8D8FF44510CD2970707435C6943C85DBA
 ```bash
 magnet:?xt=urn:btih:EAE6841BF38244217E6B64930173E19C9201D576
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +574,8 @@ magnet:?xt=urn:btih:EAE6841BF38244217E6B64930173E19C9201D576
 magnet:?xt=urn:btih:2D1DEE5F8A37DF7A5284B45EC372F28C526661F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:2D1DEE5F8A37DF7A5284B45EC372F28C526661F2
 ```bash
 magnet:?xt=urn:btih:C795BE8E389C25390059349E02102F308A0933CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:C795BE8E389C25390059349E02102F308A0933CF
 magnet:?xt=urn:btih:1D588470EE4F841990B67FE875883146AC9557D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +651,8 @@ magnet:?xt=urn:btih:1D588470EE4F841990B67FE875883146AC9557D0
 ```bash
 magnet:?xt=urn:btih:342B13E1EC32E16A08DA3335D0F4B7B978EBA62C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,29 +679,7 @@ magnet:?xt=urn:btih:342B13E1EC32E16A08DA3335D0F4B7B978EBA62C
 magnet:?xt=urn:btih:9597794B4CD53651A7D8C044A88BBC48E01214A3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282145   (746547) от 11.02.2019
-
-Свято-Смоленская Зосимова мужская пустынь (изд.) | Православный календарь на 2019 год. Икона на каждый день (2018) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иллюстрированный иконами на каждый день православный календарь на 2019 год с указанием (и пояснением) двунадесятых и великих праздников, cплошных седмиц, дней особого поминовения усопших, многодневных и однодневных постов.Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB89BBB4EE391935AAB54199436E8C6890F4CEEC
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

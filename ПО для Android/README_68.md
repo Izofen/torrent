@@ -19,6 +19,8 @@ Imagine : AI Art Generator v2.9.1 [Ru/Multi]
 magnet:?xt=urn:btih:FBC5F0FF58269B8F4946F6FA1863FDD65BCEF0EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:FBC5F0FF58269B8F4946F6FA1863FDD65BCEF0EF
 magnet:?xt=urn:btih:59224123A5573F303C5AE7E4C23463ED8E174699
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Screenshot Touch – это удобное и простое приложени�
 ```bash
 magnet:?xt=urn:btih:0AA9F0B0899825E4CE4EB0884B5F38C7614FE5E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ HeadUp Display (HUD) – это возможность использовать 
 magnet:?xt=urn:btih:D170A650F5593A4838B3C57A660A8A90A6DB8C56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ PictureThis - Plant Identification v3.58 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1A2D27CA69D5C6825ECB13EEA15ADFB447499C04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:1A2D27CA69D5C6825ECB13EEA15ADFB447499C04
 magnet:?xt=urn:btih:A088AAE5E90A6FA8AB0B16E36ABEF4D91301CF39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Chronus Home & Lock Widget - отличное приложение, что яв�
 ```bash
 magnet:?xt=urn:btih:19C575F589B673514A3204A2214CF4F51C0BEBA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:19C575F589B673514A3204A2214CF4F51C0BEBA7
 magnet:?xt=urn:btih:2F8FAF13DC9DBDDD8607022797470EC544D370A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Picsart Photo & Video Editor v22.7.4 Mod by KirillCXV [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2ED3C5343A9C952BE1D0BCB15E9D4752E2886775
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ AGAMA Car Launcher 3.3.1 [Ru]
 magnet:?xt=urn:btih:E4F92CB45EAFD6D83F76934F148F8D840AAF481D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Opera - это один из самых быстрых, безопасных и 
 ```bash
 magnet:?xt=urn:btih:9DE16FA0697CE20CA510288CB47083D422D689DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Moon+reader относится к категории универсальных 
 magnet:?xt=urn:btih:413C740CDADE7668EF3F28BC112E937055E45F03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:413C740CDADE7668EF3F28BC112E937055E45F03
 magnet:?xt=urn:btih:C4BAE2B9139D486BBB4A5CD2159B32DFBBD3540F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Tone Generator PRO v3.36 [En/Ru]
 ```bash
 magnet:?xt=urn:btih:DEEA961C5D776488CE86E67B1A8867B59FA370DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ WiFi Analyzer предоставит вам самую полезную инфо
 magnet:?xt=urn:btih:819173BE9A4B958B335F005D5B2B51B41E1E63AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ ByVoice v3.7.0 [Ru/Multi]
 magnet:?xt=urn:btih:739ACD6DD1D37CA062DD945F93CF97FA09D0BF72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Call Recorder - SKVALEX - приложение предназначенное д
 ```bash
 magnet:?xt=urn:btih:8D137BB08832F8F5AEBBA8AE6635856EAAAE7874
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Kaspersky для Android (Free, Standard, Plus, Premium) – мобильный 
 magnet:?xt=urn:btih:C936A7380EE2AF012FB134F96957B530F71F14A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Cx Проводник - это мощное приложение с интуит
 ```bash
 magnet:?xt=urn:btih:6352B7D5837F0F25D758270041D5513A620084DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ Smart Driver – удобный радар камер и ДПС, а так же 
 magnet:?xt=urn:btih:C7266E510641DD5D1AC8A0BAE3257AEBFF19939A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ Adobe Acrobat Reader - знаменитое приложение названи�
 ```bash
 magnet:?xt=urn:btih:491E70B057DE2B3932C3B41620AAD240C164852C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ Reface v3.40.0 [Multi]
 magnet:?xt=urn:btih:795E59316363C262384A88F6EA7132CF8CD0D3DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Filmic Pro - функциональное приложения для веден
 magnet:?xt=urn:btih:AABD04097695BD1CAF55A5CB926F7C9BF9FA9EA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:1C798EDE6A6C2988511E29C7E4CF166839AB7B6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:1C798EDE6A6C2988511E29C7E4CF166839AB7B6C
 magnet:?xt=urn:btih:2A5C43CED2B6E5F35100202D2B6A032B01A57B0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Carista — мобильное приложение, с помощью кото�
 ```bash
 magnet:?xt=urn:btih:76FA508A5906A553CF01F52CB29C432C749C92CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

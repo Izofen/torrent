@@ -1,57 +1,3 @@
-###  Публикация: 1581845   (324690) от 08.10.2022
-
-Requiem - Collapse Into Chaos (2021) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fade Into Emptiness
-02. Collapse Into Chaos
-03. Mind Rape
-04. Down To Zero(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C610F213BCA0AB154DF163C6CF24868C55001C9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582243   (324691) от 08.10.2022
-
-Aenaon - Mnemosyne (2022) [MP3|320 Kbps] <Progressive Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Psyche (5:40)
-02. Cartesian Eye (6:01)
-03. Synastry of Hearbeats (7:56)
-04. Pleiades (2:48)(   Читать дальше...   )Жанр: Progressive Black MetalПродолжительность: 00:47:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F48EFC568DA2C516C4C2AA26E7935A0D435D900
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581440   (324692) от 08.10.2022
 
 The End Is Coming - Ультрадобро (2022) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Punk>
@@ -75,6 +21,8 @@ The End Is Coming - Ультрадобро (2022) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:53B214C65F22AAD9A84DABF73DB272B555F0901C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +51,8 @@ Parius - The Signal Heard Throughout Space (2022) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:13543DCF043B5DD6EDEC9B17974F4C149E7CEF1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +79,8 @@ Holocross - Holocross (1988) [FLAC|Lossless|image + .cue] <Thrash, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:CA117061350B526CFEBE873933DEBA33DD313FFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +109,8 @@ Zong - Astral Lore (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner, Sp
 magnet:?xt=urn:btih:13F776288EA69E87F5114BA474ACD8A2E37E2DE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +138,8 @@ Grums - 2 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Doom>
 magnet:?xt=urn:btih:8FDB8AE4BC8F174D6A657D2964CD7FE079D7864F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -209,6 +165,8 @@ magnet:?xt=urn:btih:8FDB8AE4BC8F174D6A657D2964CD7FE079D7864F
 magnet:?xt=urn:btih:9680659E27F722F75EDC7CC9977EF5DF3BD5137A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -233,6 +191,8 @@ magnet:?xt=urn:btih:9680659E27F722F75EDC7CC9977EF5DF3BD5137A
 ```bash
 magnet:?xt=urn:btih:9F26FEDBDCC8B14585FA5394A269A5CA274AFA32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +221,8 @@ CleanMyMac позволяет избавиться от разнообразно
 magnet:?xt=urn:btih:201C4423F9760214343ADB62A642CC019EB845F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +248,8 @@ magnet:?xt=urn:btih:201C4423F9760214343ADB62A642CC019EB845F9
 ```bash
 magnet:?xt=urn:btih:822AD8F3ECC89A2BA778FF4216A12ED152DDB094
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +278,8 @@ magnet:?xt=urn:btih:822AD8F3ECC89A2BA778FF4216A12ED152DDB094
 magnet:?xt=urn:btih:F389DCD0A4996AF23CB6734FC28710489B2E1539
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +305,8 @@ magnet:?xt=urn:btih:F389DCD0A4996AF23CB6734FC28710489B2E1539
 magnet:?xt=urn:btih:D121C8C6BD8729B13066AD4558DAD45DAF88B692
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +331,8 @@ magnet:?xt=urn:btih:D121C8C6BD8729B13066AD4558DAD45DAF88B692
 magnet:?xt=urn:btih:E4F9BCCC500D9E21C8CD6C870A9D19965BC8B542
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +356,8 @@ magnet:?xt=urn:btih:E4F9BCCC500D9E21C8CD6C870A9D19965BC8B542
 ```bash
 magnet:?xt=urn:btih:51B54CDB403542AE6410439BBADA24F968EDB61E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +386,8 @@ magnet:?xt=urn:btih:51B54CDB403542AE6410439BBADA24F968EDB61E
 magnet:?xt=urn:btih:2238C764F4B79563A4476E3170FE120A5DCC3687
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +414,8 @@ Roger Waters - The Wall (2015) 2CD Live [MP3|320 кб/с]<Soundtrack, Progressiv
 ```bash
 magnet:?xt=urn:btih:762FAF6AD3772EA045C38188F3B1A2D8F3C9BAA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +444,8 @@ Adele - 25 (2015) [FLAC|Tracks+cue]<Pop>
 magnet:?xt=urn:btih:0E7C36D8FF9D268A72AF189F309F24D774689121
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +470,8 @@ IsMyLcdOK - небольшая бесплатная программа для о
 magnet:?xt=urn:btih:E3017B0B0853685DAD7795338BD8153D16950C57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +495,8 @@ magnet:?xt=urn:btih:E3017B0B0853685DAD7795338BD8153D16950C57
 ```bash
 magnet:?xt=urn:btih:6EEEC352ECD9AA18C6B13800DE70AF153E3448C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +525,8 @@ magnet:?xt=urn:btih:6EEEC352ECD9AA18C6B13800DE70AF153E3448C5
 magnet:?xt=urn:btih:8497AFA11D92F8CF73B2D9518B7EC47C7323DDA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +550,8 @@ magnet:?xt=urn:btih:8497AFA11D92F8CF73B2D9518B7EC47C7323DDA2
 ```bash
 magnet:?xt=urn:btih:A81C5E4608519A6363C4284B4F83CCF77AB79908
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +578,8 @@ magnet:?xt=urn:btih:A81C5E4608519A6363C4284B4F83CCF77AB79908
 magnet:?xt=urn:btih:CA7A6AF1E9C0A81DD94C1F1E15443A1BC79627F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +603,8 @@ Room Arranger - программа специально предназначен
 ```bash
 magnet:?xt=urn:btih:9FB21C359B65B7A45B21349219ED2C7EBEE1A5C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +630,8 @@ magnet:?xt=urn:btih:9FB21C359B65B7A45B21349219ED2C7EBEE1A5C9
 magnet:?xt=urn:btih:E4ADE1AD2542A805D92C60CAB0A781ECD1F43E00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +655,60 @@ magnet:?xt=urn:btih:E4ADE1AD2542A805D92C60CAB0A781ECD1F43E00
 ```bash
 magnet:?xt=urn:btih:7C4BE87C13909648C3554998634FFF01FFD3AE31
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 416007   (324725) от 27.11.2011
+
+Дом (2011) DVD5
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_324725.jpg" />
+</div>
+
+
+###  Подробнее
+
+В большом доме, посреди донских степей, живёт семейство Шамановых. Всё есть в этом доме, — кроме покоя, любви и взаимопонимания. Отцы конфликтуют с детьми, дети с отцами и друг с другом. Старший сын, Виктор, возвращается в отчий дом после 25-летнего отсутствия. Пока еще он не знает, что по пятам за ним идёт группа профессиональных убийц…Производство: Россия / Централ Партнершип, Park Cinema ProductionЖанр: Драма, КриминалРежиссер: Олег ПогодинАктеры: Сергей Гармаш, Богдан Ступка, Екатерина Редникова, Владимир Епифанцев, Лариса Малеванная, Петр Зайченко, Иван Добронравов, Игорь Савочкин, Глеб Подгородинский, Владимир Бадов...Перевод: ОригинальныйСубтитры: ОтсутствуютПродолжительность: 02:07:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 415669   (324731) от 27.11.2011
+
+Морская бригада / SeeFood (2011) [1080p] BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_324731.jpg" />
+</div>
+
+
+###  Подробнее
+
+Две бамбуковые акулы — Пап и Джулиус — покидают свой родной риф и отправляются в рискованное и увлекательное приключение к берегам континента с целью спасти своих собратьев от распоясавшихся браконьеров.Жанр: МультфильмРежиссер: Аун Хое ГоПеревод: ДублированныйСубтитры: ОтсутствуютФормат: MKVПродолжительность: 01:32:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EAFDF8A080A8D88FC59DF12BCB625BCE900E23C
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

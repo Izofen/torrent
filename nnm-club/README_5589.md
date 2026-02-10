@@ -22,6 +22,8 @@ VA - The Forest Chill Lounge, Vol. 1 (2012) [AAC|~315 Kbps] <Chillout, Lounge, D
 magnet:?xt=urn:btih:FFD50B74D4EFF7EEF1F378F09FDC885A09456FF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ PDF-XChange Editor — программа для просмотра, редак�
 ```bash
 magnet:?xt=urn:btih:F4BF32B6C6743AAD8D97B7FE35A45B017B1E7BEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Logo Light 4K Opening - проект для демонстрации вашег�
 magnet:?xt=urn:btih:E87C1D4CDDB138CA31B1BDA65B63EE72B92C5468
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:E87C1D4CDDB138CA31B1BDA65B63EE72B92C5468
 magnet:?xt=urn:btih:9089CFFAC798ACCE1C154F81798A4612685A5250
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:9089CFFAC798ACCE1C154F81798A4612685A5250
 ```bash
 magnet:?xt=urn:btih:4935FA74E642200AAF9922F86072EF200EB67265
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:4935FA74E642200AAF9922F86072EF200EB67265
 magnet:?xt=urn:btih:00FB64528295A6046CFEDF36739AE9B1182CA1FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:00FB64528295A6046CFEDF36739AE9B1182CA1FD
 ```bash
 magnet:?xt=urn:btih:CECA162216A442C1F612E6070D4012191415DF80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Counter Terrorist Agency (2019) [Ru/Multi] (1.0.1) Repack R.G. Механики
 magnet:?xt=urn:btih:AECBF766D8593A96ADC1F6C2E7B0560B434C07DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:AECBF766D8593A96ADC1F6C2E7B0560B434C07DB
 ```bash
 magnet:?xt=urn:btih:7DE37BA2F3EAE976DECAA2B4814947EAA3545D1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ NVIDIA GeForce Driver — драйвера для видеокарт произ�
 magnet:?xt=urn:btih:867ECC2245F462DB134A3DCB85534F37C745234A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:867ECC2245F462DB134A3DCB85534F37C745234A
 ```bash
 magnet:?xt=urn:btih:0960600EE24E1E0FF4A238CCCA6B36B4B356F240
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ Mullvad Browser подойдет для пользователей, которы
 magnet:?xt=urn:btih:7110D735CC9B6B758C841CF7B158F859A7C7CCA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:7110D735CC9B6B758C841CF7B158F859A7C7CCA5
 ```bash
 magnet:?xt=urn:btih:E33F80EABE1E1984958C298F5D2596F04D0AFCDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ Optical Flares - инструмент создания и анимировани
 magnet:?xt=urn:btih:615300A784F642E722FFDBADF49780EFBBE22968
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:615300A784F642E722FFDBADF49780EFBBE22968
 ```bash
 magnet:?xt=urn:btih:C5273A4BD468019153F1D0B4A15AFA1635A5B5DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:C5273A4BD468019153F1D0B4A15AFA1635A5B5DD
 magnet:?xt=urn:btih:4E5929DD46329E5BC10E99081CE463908BFC4AE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Glitch Cube Logo 4k Intro - проект покажет ваш логотип в
 ```bash
 magnet:?xt=urn:btih:32346CF268D717AC91BBF7B93E3188C5D44A6146
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ Happy's Humble Burger Farm (2021) [Ru/Multi] (1.16.0) License GOG
 magnet:?xt=urn:btih:3F9354533CE2E09BFF3B987B367F08266D44BD7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Mustafif Khan | Rust for C++ Programmers (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:9D31BD1354CA9BCAE97DA238E9F60C343BF98B80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:9D31BD1354CA9BCAE97DA238E9F60C343BF98B80
 magnet:?xt=urn:btih:2C2B8399E5B12D8BC41B7D7D16DE5665651DAA23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:2C2B8399E5B12D8BC41B7D7D16DE5665651DAA23
 ```bash
 magnet:?xt=urn:btih:244517D4E6A13FE2279D98E52557088B449D2537
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:244517D4E6A13FE2279D98E52557088B449D2537
 magnet:?xt=urn:btih:60821BA78B120A7CF0E630A4A064D1F9060A6065
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:60821BA78B120A7CF0E630A4A064D1F9060A6065
 ```bash
 magnet:?xt=urn:btih:22E73481DBD2AA8E0809CC8CA32B892D386CA108
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ CCleaner - утилита для чистки мусора в операцион
 magnet:?xt=urn:btih:C860408B1FBE796AE0D4486E6A7E9F38ABF90A6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:C860408B1FBE796AE0D4486E6A7E9F38ABF90A6C
 magnet:?xt=urn:btih:BE06136BC8501411369F93D51EEBE9EB6003ED0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ magnet:?xt=urn:btih:BE06136BC8501411369F93D51EEBE9EB6003ED0D
 ```bash
 magnet:?xt=urn:btih:0C7FB4B14F80B97318791E4E05C2A9269A356822
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

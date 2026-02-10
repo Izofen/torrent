@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:9C05E4BFA2D827271EA35D599BF4CCFE7DBF4089
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ magnet:?xt=urn:btih:9C05E4BFA2D827271EA35D599BF4CCFE7DBF4089
 magnet:?xt=urn:btih:C58A3B566074B980E9B3A3985FF62FCA071B4258
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,6 +85,8 @@ magnet:?xt=urn:btih:C58A3B566074B980E9B3A3985FF62FCA071B4258
 magnet:?xt=urn:btih:E17FA6E59EACA22971673225E59F7B13C7A51AB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -106,6 +112,8 @@ magnet:?xt=urn:btih:E17FA6E59EACA22971673225E59F7B13C7A51AB5
 ```bash
 magnet:?xt=urn:btih:C8E48889CF79F9257E374F5F78F0239960AD7BF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -134,6 +142,8 @@ magnet:?xt=urn:btih:C8E48889CF79F9257E374F5F78F0239960AD7BF1
 magnet:?xt=urn:btih:0252C3EE8012186824CA8D9394AA7682D688BD89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -158,6 +168,8 @@ Motorhead - The World Is Ours Vol.1 (2011) BDRip[1080p]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +193,8 @@ The Beatles: Вечер трудного дня / A Hard Day's Night (1964) VHSR
 ```bash
 magnet:?xt=urn:btih:958AB6D21AEA49BD14CD378E219E04715E0E7129
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +229,8 @@ VA/Коктейль  Клипов (2012) HDTV[1080p]
 magnet:?xt=urn:btih:BEADA10DBB29361933E2282C4C125CD9827A07DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +254,8 @@ Leonard Cohen / Leonard Cohen: Songs from the Road (2009) BDRemux [1080i]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +290,8 @@ ZZ Top / ZZ Top: Live From Texas (2008) BDRip [1080p]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +316,8 @@ Mylene Farmer — Fuck Them All (2005) DVDRip
 magnet:?xt=urn:btih:FAA6D92DB5C33A0BEBB7722603C9A982635E8EA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +341,8 @@ magnet:?xt=urn:btih:FAA6D92DB5C33A0BEBB7722603C9A982635E8EA3
 ```bash
 magnet:?xt=urn:btih:3AA74B6C4B957C5920C7F6523E928D45A560A370
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +377,8 @@ magnet:?xt=urn:btih:3AA74B6C4B957C5920C7F6523E928D45A560A370
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +402,8 @@ ZZ Top - Live From Texas  (2008) [1080p] BDRip
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +432,8 @@ ZZ Top - Live From Texas  (2008) [1080p] BDRip
 magnet:?xt=urn:btih:13769DDD6C34AC5A2FB30ECA7805A58C00BAF8BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +459,8 @@ magnet:?xt=urn:btih:13769DDD6C34AC5A2FB30ECA7805A58C00BAF8BC
 ```bash
 magnet:?xt=urn:btih:4764F6590F2E4964CC9070415BB01FDEEF82884C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +488,8 @@ magnet:?xt=urn:btih:4764F6590F2E4964CC9070415BB01FDEEF82884C
 magnet:?xt=urn:btih:C5E5BF33D9ADD4DEE72934A8A2BC892B45E7A951
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +513,8 @@ Lordi - Клипы  (2002-2006) DVDRip,SATRip [ H264 ]
 ```bash
 magnet:?xt=urn:btih:E651E90936D2DE5C1982898CF6A4FB264E7D64A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +547,8 @@ magnet:?xt=urn:btih:E651E90936D2DE5C1982898CF6A4FB264E7D64A6
 ```bash
 magnet:?xt=urn:btih:C550E796B48AF28C4FB1F19E6007BFBAA4F4A5EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +583,8 @@ magnet:?xt=urn:btih:C550E796B48AF28C4FB1F19E6007BFBAA4F4A5EB
 magnet:?xt=urn:btih:61C73413EA33D70243D44C0C525D4ECF230E1AFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +617,8 @@ magnet:?xt=urn:btih:61C73413EA33D70243D44C0C525D4ECF230E1AFB
 ```bash
 magnet:?xt=urn:btih:585AFCE21A3E4EC26951760958A0C6876C1A8C5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +653,8 @@ Alice Cooper / Theatre of Death - Live At Hammersmith (2009) BDRip [1080p]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +678,8 @@ Alice Cooper / Theatre of Death - Live At Hammersmith (2009) BDRip [1080p]
 ```bash
 magnet:?xt=urn:btih:DD7D1D5FA3135CB41264CB50F58B575159B74524
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +716,8 @@ magnet:?xt=urn:btih:DD7D1D5FA3135CB41264CB50F58B575159B74524
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +741,8 @@ Yanni - Live At El Morro, Puerto Rico (2011) HDTV [1080i]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -721,6 +771,8 @@ Yanni - Live At El Morro, Puerto Rico (2011) HDTV [1080i]
 ```bash
 magnet:?xt=urn:btih:ACE7DE87DF4664E5E1F8B2A927AB0AE42D37FF8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

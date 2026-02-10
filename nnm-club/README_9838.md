@@ -1,52 +1,3 @@
-###  Публикация: 959390   (316809) от 24.11.2015
-
-Emsisoft Internet Security 11.0.0.5958 Final [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Emsisoft Internet Security - полностью интегрированный пакет безопасности "антивирус + фаервол", который сочетает в себе возможности Emsisoft Anti-Malware и совершенного нового ядра брандмауэра. По сравнению с ядром брандмауэра Online Armor, в Emsisoft Internet Security фаервол имеет полную поддержку IPv6, дифференциальные правила фильтрации пакетов, более (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B29EECAEDBA0B8B7F704F5177A60115F46A3D152
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959301   (316810) от 24.11.2015
-
-Проекты - Pond5 - Aggressive/power Intro [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Динамичный проект для создания слайдшоу.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FF90A223CA2A58B82633D17E8D0311B9EB58F8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959549   (316811) от 24.11.2015
 
 Интервью М.Ходорковского Deutsche Welle (23.11.2015) HDTVRip [720p-LQ]
@@ -67,6 +18,8 @@ magnet:?xt=urn:btih:6FF90A223CA2A58B82633D17E8D0311B9EB58F8E
 ```bash
 magnet:?xt=urn:btih:7C419349D48F79EF2BDEBC0909418A93F38B4D9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +44,8 @@ magnet:?xt=urn:btih:7C419349D48F79EF2BDEBC0909418A93F38B4D9D
 ```bash
 magnet:?xt=urn:btih:31FE7C97C05274A5A9697E8FDF7BAE2C557849F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +72,8 @@ magnet:?xt=urn:btih:31FE7C97C05274A5A9697E8FDF7BAE2C557849F5
 ```bash
 magnet:?xt=urn:btih:2EA0B7015249678C6A82075279832378C5C55396
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +102,8 @@ Julien Dore - Love  Live (2015) [FLAC|tracks|WEB-DL]<Pop, Chanson>
 magnet:?xt=urn:btih:C53C05C36EC88B7F9E8813DA82BFEBDFF64517CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +127,8 @@ magnet:?xt=urn:btih:C53C05C36EC88B7F9E8813DA82BFEBDFF64517CE
 ```bash
 magnet:?xt=urn:btih:A37CECC0ABCACA04DDC0811863D48034D549DC29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +157,8 @@ Erroll Garner - Feeling Is Believing (1970) 2020, Mack Avenue [FLAC|Lossless|tra
 magnet:?xt=urn:btih:B8A876F778EEE46080709109976B325642B0D00D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +182,8 @@ EZ CD Audio Converter - утилита для преобразования ау�
 ```bash
 magnet:?xt=urn:btih:80E7FF7EFAB3671DFA09BDC821B385B727337230
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +212,8 @@ Erroll Garner - Symphony Hall Concert (1959) 2021, Mack Avenue [FLAC|Lossless|tr
 magnet:?xt=urn:btih:74B0E0F1807210E1427A4E2E80A94F6167373A0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +238,8 @@ magnet:?xt=urn:btih:74B0E0F1807210E1427A4E2E80A94F6167373A0F
 magnet:?xt=urn:btih:D696EC8D32535FCCB60361FF1EBC19F3670C0392
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +263,8 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:BEFEF71DB0B746E63E4C121CB260AA37AB25D7FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +291,8 @@ magnet:?xt=urn:btih:BEFEF71DB0B746E63E4C121CB260AA37AB25D7FF
 magnet:?xt=urn:btih:2BD74EE619329DDAB7BF2243FD1A6E392A858265
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +316,8 @@ magnet:?xt=urn:btih:2BD74EE619329DDAB7BF2243FD1A6E392A858265
 ```bash
 magnet:?xt=urn:btih:EF09856DC1BA768231AC8133277FD86FC60533E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +343,8 @@ Process Lasso позволяет вручную или автоматическ�
 magnet:?xt=urn:btih:4EB5528BCA897C67BB959715EF4880D12CAE769B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +369,8 @@ magnet:?xt=urn:btih:4EB5528BCA897C67BB959715EF4880D12CAE769B
 ```bash
 magnet:?xt=urn:btih:1E639296BC951C72368A9E55E9917A1D8B727C1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +399,8 @@ Skid Row - The Gang's All Here (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <Hard Rock,
 magnet:?xt=urn:btih:72C0532E0C4A218B9EC2CC6AB85B4E90307A6C61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +425,8 @@ magnet:?xt=urn:btih:72C0532E0C4A218B9EC2CC6AB85B4E90307A6C61
 magnet:?xt=urn:btih:ACACFC5E3BBF721FCB984488775CC68E6BD93C16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +450,8 @@ Wise Registry Cleaner - утилита для безопасной чистки 
 ```bash
 magnet:?xt=urn:btih:461BFD2E0AAE4B13977550C3336ED97F2C9D12C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +480,8 @@ magnet:?xt=urn:btih:461BFD2E0AAE4B13977550C3336ED97F2C9D12C1
 magnet:?xt=urn:btih:BC7AA4FAE1607B7588816234F7219F50EBDC7297
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +505,8 @@ magnet:?xt=urn:btih:BC7AA4FAE1607B7588816234F7219F50EBDC7297
 ```bash
 magnet:?xt=urn:btih:29D0715D08AF231EF4A3980747F369BD9FB111C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +532,8 @@ Macrorit Data Wiper Unlimited Edition – мощная утилита, кото�
 magnet:?xt=urn:btih:750D9063D852D43B86E198C4579C4EDE10D199F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +557,8 @@ magnet:?xt=urn:btih:750D9063D852D43B86E198C4579C4EDE10D199F2
 ```bash
 magnet:?xt=urn:btih:1053579613B5825D4D2631BB818F31D65EE5F6AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +585,8 @@ magnet:?xt=urn:btih:1053579613B5825D4D2631BB818F31D65EE5F6AE
 magnet:?xt=urn:btih:432417CD55215993E35634E1C678CB3B4B242E23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +610,8 @@ magnet:?xt=urn:btih:432417CD55215993E35634E1C678CB3B4B242E23
 ```bash
 magnet:?xt=urn:btih:68D339AB20FC44596D5C6F8E0ED11DC00CB4CED7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +639,66 @@ Echelon - Secret Power (2022) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:0DC5E382DE6EF5B160DEF039816795C419F9C5E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332200   (316835) от 19.10.2019
+
+VA - Nothing But... Amsterdam Dance Essentials 2019 - Trance (2019) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_316835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ultimate - Ethereal (Mino Safy Extended Remix)
+02. Maratone feat. VIKA - Coming Home (Extended Mix)
+03. Danny Eaton - Kingdom Of Heaven (Original Mix)
+04. Daniel Perrelli - The Beginning (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:26:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A38983A26B6D8E7E9DA520FF5790CFD00150FC72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332296   (316836) от 19.10.2019
+
+Geekbench 5 v5.0.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_316836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Geekbench 5 – бенчмарк для измерения производительности в реальных задачах
+Когда мы покупаем Mac или когда мы хотим быть уверены, что все компоненты нашей системы работают хорошо, мы, как правило, используем программы для выполнения тестов.
+
+Geekbench 5 предлагает обновленный интерфейс и ряд новых бенчмарков, которые созданы специально для измерения быстродействия (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.10.2019Разработчик: Primate Labs Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C24F416B2AB5406CAF3E3F6633365161C35D9DFA
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

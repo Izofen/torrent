@@ -19,6 +19,8 @@ MKVToolnix - функциональный набор инструментов д
 magnet:?xt=urn:btih:7759E53ED05D154CCCBF85D274507066B6CCC6A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Driver Store Explorer — это легкий инструмент, которы
 ```bash
 magnet:?xt=urn:btih:E3147B1E363FD1090E264305DA33D13421B626EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:E3147B1E363FD1090E264305DA33D13421B626EE
 magnet:?xt=urn:btih:4842334E99735CCB705E257BBED287F523066574
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:E9F117D307BD09082358DAB177510F3AE64561EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Alfa eBooks Manager - одна из самых популярных програ
 magnet:?xt=urn:btih:F7B835B298E84041B4EF4E509058154AA0DBC63E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Light Image Resizer - программа для изменения размер�
 ```bash
 magnet:?xt=urn:btih:A3301226F77247F8C84D536DDCD43094C4B2C409
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ MediaHuman YouTube Downloader 3.9.10 (2404) RePack (& Portable) by Dodakaedr [Mu
 magnet:?xt=urn:btih:3BED8AB2FFD89DE516F0D2625C99A76F392CD8F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ O&O DiskImage Professional позволяет создавать резервн�
 magnet:?xt=urn:btih:227443B867526D5101BC35D2040E3ACEFC96E371
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ MediaHuman YouTube to MP3 Converter 3.9.10 (2404) RePack (& Portable) by elchupa
 ```bash
 magnet:?xt=urn:btih:8B0DD461BC075432914018F1BA6DB7F830441A4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ TapScanner — сканер документов, это простой скан
 magnet:?xt=urn:btih:15473C121C690A815041EC35B01F8EDDC5BC81ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:50D7E792650FE81DDE730F71A02B05060CF84B71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ MediaHuman YouTube Downloader 3.9.10.0 (2404) RePack (& Portable) by elchupacabr
 magnet:?xt=urn:btih:6D7A036206DDE0A5D4FC874E2F8F97E82AA0A691
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ TreeSize Professional - мощное и гибкое средство визуа
 ```bash
 magnet:?xt=urn:btih:7E26E93D0A9FF741228A8D8935761EC958C896C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ IPTV Pro v9.0.15 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:29A2FBF17CC348D6F1E00474B40766F1BB9A9FBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Capture One - один из лучших профессиональных кон
 ```bash
 magnet:?xt=urn:btih:819FA83DF644EDD515954647A45D32BCBDF625E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Activation Program 1.11 Portable by Ratiborus [En]
 magnet:?xt=urn:btih:06712C1C9182322DC86E23BE3EB0909008C00A8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:06712C1C9182322DC86E23BE3EB0909008C00A8A
 ```bash
 magnet:?xt=urn:btih:5EEADA8F539AA0D197565DA26E0066F38D321B06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Smart AudioBook Player Pro v11.2.8 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:BB531A2F027A5F673D17D4EFD6A4DA6C374B0447
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ PhotoDirector v20.1.2 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A93454F9BBBFF94D2233FD9DE150B4D4F280B3E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ Perfectly Clear — приложение, которое позволяет вс
 magnet:?xt=urn:btih:DB9BB9A797C382DB2FDAF79985D18834418400D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ OCCT 14.0.8 Portable [En]
 ```bash
 magnet:?xt=urn:btih:DCB69F11D6F456FCA50A2C7A77F7E2058B63779B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ Pro Pilkki 2 / Зимняя рыбалка v2.0.6 Mod by ShiroAndShuvi [Ru/Multi
 magnet:?xt=urn:btih:181B52CD25C05C2F04B24F9F1A6E97C3DC957784
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ XnView Shell Extension 4.1.14  + Standalone  [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FDD3CB0A1C62DC1C1E7EB4E64BF993B54648128C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:FDD3CB0A1C62DC1C1E7EB4E64BF993B54648128C
 magnet:?xt=urn:btih:609DAD05269AE44334646826E2FE17E0B2BF951B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ FBReader Premium v3.8.9 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:F9B64C98B61815D31026074D7015FBE44544490E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ v2rayN — это универсальный инструмент VPN и про�
 ```bash
 magnet:?xt=urn:btih:8B5129BFB2F971E2949A4C8D287E40FAF45E46EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

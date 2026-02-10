@@ -21,6 +21,8 @@ CCEnhancer использует встроенную в CCleaner систему 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ National Geographic: Перехват торнадо / Tornado Intercept (2005) 
 magnet:?xt=urn:btih:B236BAD6CD9AFB85720A9E81FE8087C8F6E93A87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:B236BAD6CD9AFB85720A9E81FE8087C8F6E93A87
 ```bash
 magnet:?xt=urn:btih:CB56E39382192235A9063EB1437E8399107E72D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -102,6 +108,8 @@ VA - Electro House. The Best World Club Music (2012) [MP3|192 kbps]<Electro Hous
 magnet:?xt=urn:btih:53D52D0484B8C9929B575BE852423FBA74537248
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ National Geographic: Профессия - разрушитель / National Geog
 ```bash
 magnet:?xt=urn:btih:BEE62E2D9EDB85FF649AF855CC600E22076966FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ The Bat! - общепризнанная система обработки эле
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ The Bat! - общепризнанная система обработки эле
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +217,8 @@ Fresh UI 8.81 [Multi + Русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ Fresh UI 8.81 [Multi + Русский]
 ```bash
 magnet:?xt=urn:btih:DB7ADD886B95BD0D5598047FFD8F639F98B9845C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ Opera 11.62 Build 1324 Snapshot [Multi + Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -281,6 +301,8 @@ Opera 11.62 Build 1324 Snapshot [Multi + Русский]
 ```bash
 magnet:?xt=urn:btih:126A9DBCFED53383D8FF20386BCF02EE8D616353
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +337,8 @@ VA - House Ravers (2012) [MP3|320 кб/с]<Electro House>
 magnet:?xt=urn:btih:634BF21B4CA8BCB329D66772D8EB9C3B8CD6A747
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +362,8 @@ magnet:?xt=urn:btih:634BF21B4CA8BCB329D66772D8EB9C3B8CD6A747
 ```bash
 magnet:?xt=urn:btih:C86809C9AD02379C9C1596A11385FDAC142F3AFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +398,8 @@ VA - Пошла Жара (2012) [MP3|320 кб/с]<Dance, Pop, House>
 magnet:?xt=urn:btih:633C29C0D5AF235847CDB620E7951E67BF8CA4B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +424,8 @@ magnet:?xt=urn:btih:633C29C0D5AF235847CDB620E7951E67BF8CA4B0
 ```bash
 magnet:?xt=urn:btih:886EE849F2BB8716B8A878300F3748BAC9587488
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +460,8 @@ Claire Denamur - Vagabonde (2011) [MP3|~245 кб/с (V0)]<French, Pop, Chanson, 
 magnet:?xt=urn:btih:B7E48A9B31A45F3FFB3BF4EF7369B82731FAE082
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +485,8 @@ magnet:?xt=urn:btih:B7E48A9B31A45F3FFB3BF4EF7369B82731FAE082
 ```bash
 magnet:?xt=urn:btih:03D01727E17E31BB66FFCB4465ED57E7C62CB031
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +512,8 @@ magnet:?xt=urn:btih:03D01727E17E31BB66FFCB4465ED57E7C62CB031
 magnet:?xt=urn:btih:EFD27474D816BD3E614BC93B6DA9FE40CAAE24E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +537,8 @@ magnet:?xt=urn:btih:EFD27474D816BD3E614BC93B6DA9FE40CAAE24E5
 ```bash
 magnet:?xt=urn:btih:61D17C4EF76AB9CCF2230EAF166DBB6A37E949AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +572,8 @@ Terry Brooks & Strange - 2 альбома (1976-1980) [MP3|320 kbps]<Heavy Psych
 magnet:?xt=urn:btih:8D25A87B0CD951132951CEAB60A549BA50A67305
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +597,8 @@ magnet:?xt=urn:btih:8D25A87B0CD951132951CEAB60A549BA50A67305
 ```bash
 magnet:?xt=urn:btih:EEEEB7261E2462241B8988ECC0D4B859F42F689A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +624,8 @@ Inpaint - позволяет умно удалять нежелательные 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +649,8 @@ Media Player Classic HomeCinema – удобный во всех планах м
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +685,8 @@ Victorio Chicano - Chicanoland (2012) [MP3|320 кб/с]<Rap>
 magnet:?xt=urn:btih:300CD17F7D3B24870B6B000DCBD80C53EC4DE4E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +711,8 @@ magnet:?xt=urn:btih:300CD17F7D3B24870B6B000DCBD80C53EC4DE4E9
 magnet:?xt=urn:btih:B5452078FB2807EB1A0B80B2CC92D5F50564044C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -686,6 +736,8 @@ magnet:?xt=urn:btih:B5452078FB2807EB1A0B80B2CC92D5F50564044C
 ```bash
 magnet:?xt=urn:btih:EFF1E1E2D3345A2212A8DA5EB0E276233CFA162D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 165152   (983889) от 09.01.2010
+
+Наталья Ирава | Сборник эротических рассказов [2009, эротика, Обычный текст, eBook (изначально компьютерное)]
+
+>>Разное (категория книг)
+>>
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Сборник эротических рассказов для любителей клубнички
+Все рассказы реальны, взяты с просторов Интернета, и собраны в удобную книгу для чтения. Горячие, нежные, страстные, и многие другие рассказы Вы найдете в этой книге!Формат: Обычный текст, eBook (изначально компьютерное)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 164871   (983977) от 09.01.2010
 
 Ж. Ю. Шквыря | Объемные цветы из шерстяных ниток. Новая техника [2009] [DJVU]
@@ -20,6 +47,8 @@
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +73,8 @@
 ```bash
 magnet:?xt=urn:btih:2A2AF811775919BED69CA1D0C480DC8F7DF33015
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +102,8 @@ magnet:?xt=urn:btih:2A2AF811775919BED69CA1D0C480DC8F7DF33015
 magnet:?xt=urn:btih:D879D10A1990412C8EEAA81480E085C11F83B643
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +129,8 @@ magnet:?xt=urn:btih:D879D10A1990412C8EEAA81480E085C11F83B643
 magnet:?xt=urn:btih:D32F91BC9A769CA6C571A908AE9FA471371BEC90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +154,8 @@ magnet:?xt=urn:btih:D32F91BC9A769CA6C571A908AE9FA471371BEC90
 ```bash
 magnet:?xt=urn:btih:B486BE384DB1F6B9480538E19389824C9F6A5699
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +181,8 @@ magnet:?xt=urn:btih:B486BE384DB1F6B9480538E19389824C9F6A5699
 magnet:?xt=urn:btih:A7490119C8A3A4220EC79A09E552E34A4837F040
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +206,8 @@ magnet:?xt=urn:btih:A7490119C8A3A4220EC79A09E552E34A4837F040
 ```bash
 magnet:?xt=urn:btih:C91941A425E9D3C4F60D2F351E7216E782D512E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +233,8 @@ magnet:?xt=urn:btih:C91941A425E9D3C4F60D2F351E7216E782D512E2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +258,8 @@ magnet:?xt=urn:btih:C91941A425E9D3C4F60D2F351E7216E782D512E2
 ```bash
 magnet:?xt=urn:btih:61FE8E634F1D891C0B5633682CCCA5F7C04FDF6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +285,8 @@ magnet:?xt=urn:btih:61FE8E634F1D891C0B5633682CCCA5F7C04FDF6B
 magnet:?xt=urn:btih:E0E8B7B2BB0ADFB275B4FE2C5981C33B7DEA4EBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +310,8 @@ magnet:?xt=urn:btih:E0E8B7B2BB0ADFB275B4FE2C5981C33B7DEA4EBB
 ```bash
 magnet:?xt=urn:btih:1EEC92CDD348CB26BE61E4EA7DEE7446506682F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +338,8 @@ magnet:?xt=urn:btih:1EEC92CDD348CB26BE61E4EA7DEE7446506682F6
 magnet:?xt=urn:btih:A03E670F51A00595EF21B1EF4D18D5C78D464CA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +363,8 @@ magnet:?xt=urn:btih:A03E670F51A00595EF21B1EF4D18D5C78D464CA3
 ```bash
 magnet:?xt=urn:btih:AA409E77014916B0B4CB14CFC556D172D14E7E85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +390,8 @@ magnet:?xt=urn:btih:AA409E77014916B0B4CB14CFC556D172D14E7E85
 magnet:?xt=urn:btih:3107321C719796351ADE37622DFA5B8D764C090E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +415,8 @@ magnet:?xt=urn:btih:3107321C719796351ADE37622DFA5B8D764C090E
 ```bash
 magnet:?xt=urn:btih:B66970E1DF632EE61A868544E916973FA7143D5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +442,8 @@ magnet:?xt=urn:btih:B66970E1DF632EE61A868544E916973FA7143D5A
 magnet:?xt=urn:btih:E40E9862D3FF3B49940EA417B98410F7E47D7DF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +468,8 @@ magnet:?xt=urn:btih:E40E9862D3FF3B49940EA417B98410F7E47D7DF1
 magnet:?xt=urn:btih:EE47B5929E822ACFFDDF530030ABA1BAA5B2C76D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +493,8 @@ Ingate(изд.) | Facebook для бизнеса: создаем и реклам
 ```bash
 magnet:?xt=urn:btih:97C246EA66A10EFA4489834A979CAD7D03329860
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +523,8 @@ magnet:?xt=urn:btih:97C246EA66A10EFA4489834A979CAD7D03329860
 magnet:?xt=urn:btih:D65C147C4334A7B57A518399B350DF7F69FDAC70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +549,8 @@ magnet:?xt=urn:btih:D65C147C4334A7B57A518399B350DF7F69FDAC70
 ```bash
 magnet:?xt=urn:btih:F32EAC298E172F3AAEB61D883F60AE8A68663C0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +578,8 @@ magnet:?xt=urn:btih:F32EAC298E172F3AAEB61D883F60AE8A68663C0A
 magnet:?xt=urn:btih:B339D5A0FFBCBC19DCE849F85D4AD03BA23D7ECC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +606,8 @@ magnet:?xt=urn:btih:B339D5A0FFBCBC19DCE849F85D4AD03BA23D7ECC
 magnet:?xt=urn:btih:134DF260DD1326B62701F0C5A8278D742A644430
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +631,8 @@ magnet:?xt=urn:btih:134DF260DD1326B62701F0C5A8278D742A644430
 ```bash
 magnet:?xt=urn:btih:C0A060B4CCD420EFCD825BED72C70A8B64BFA51B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +658,8 @@ magnet:?xt=urn:btih:C0A060B4CCD420EFCD825BED72C70A8B64BFA51B
 magnet:?xt=urn:btih:3BAC85E524C2198C13FAE93AD80793253E55276F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,29 +684,7 @@ magnet:?xt=urn:btih:3BAC85E524C2198C13FAE93AD80793253E55276F
 magnet:?xt=urn:btih:062ED2AEAFDC1B9CC8A490DE8F9A74EBA4D1625F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 740718   (984670) от 02.01.2014
-
-Николай Белов | Все секреты сильного пола (2014) [RTF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Поскольку женщины во взаимоотношениях с мужчинами повторяют одни и те же ошибки, автор этой книги предлагает своим читательницам стать на точку зрения мужчин и уже оттуда разобраться в причинах своих горестей и невзгод.Формат: RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E56584949BFA9E81158F0EC5B09786140E059939
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

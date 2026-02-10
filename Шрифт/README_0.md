@@ -21,6 +21,8 @@ Balhattan - бесплатный шрифт. Шрифт Balhattan содержи
 magnet:?xt=urn:btih:25ABA9983C907CA3273C838AB6319526CBA9757E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:25ABA9983C907CA3273C838AB6319526CBA9757E
 magnet:?xt=urn:btih:E6EF4B321E124C7FF274A1183B7A69BFDE82B204
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:E6EF4B321E124C7FF274A1183B7A69BFDE82B204
 ```bash
 magnet:?xt=urn:btih:B4EEA9D51DEBBBDD2AE44910019A0FB12DBBC713
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ Serati - бесплатный шрифт.
 magnet:?xt=urn:btih:11872B8FB2A3223CDFC591998DE64EC663592591
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ Aquavit — это высококонтрастный гротесковый ш�
 magnet:?xt=urn:btih:C99818EF60EF2C80ACB269E03121AE349594422A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:C99818EF60EF2C80ACB269E03121AE349594422A
 ```bash
 magnet:?xt=urn:btih:C550B412AFC158ADFE9BEF6D88FBD5C0E8CC2356
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:C550B412AFC158ADFE9BEF6D88FBD5C0E8CC2356
 magnet:?xt=urn:btih:8D334EE620BE9E35C08E3C19E8D3D5F0342117ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ magnet:?xt=urn:btih:8D334EE620BE9E35C08E3C19E8D3D5F0342117ED
 ```bash
 magnet:?xt=urn:btih:337FA643E8B4B5FD8F789AC494F1F46D6036EFDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -228,6 +244,8 @@ magnet:?xt=urn:btih:337FA643E8B4B5FD8F789AC494F1F46D6036EFDA
 magnet:?xt=urn:btih:249574B3998C71837FA8252EF2AFD0AE7F361D51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ Bubblez Graffiti Font содержит 2 стиля (курсив, обычны�
 ```bash
 magnet:?xt=urn:btih:D95863B9FB48C159CF14685FB4DFE4F30E6BF908
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -279,6 +299,8 @@ magnet:?xt=urn:btih:D95863B9FB48C159CF14685FB4DFE4F30E6BF908
 magnet:?xt=urn:btih:6C74BC38BA7E0AB47E98A4F5EDA70CFE0DE4D535
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:6C74BC38BA7E0AB47E98A4F5EDA70CFE0DE4D535
 ```bash
 magnet:?xt=urn:btih:9C7C67534962002319185340A45FAAEC146142B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:9C7C67534962002319185340A45FAAEC146142B8
 magnet:?xt=urn:btih:C82853C055BECB7AB7402677D4F03D2695B5D000
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:C82853C055BECB7AB7402677D4F03D2695B5D000
 ```bash
 magnet:?xt=urn:btih:1C22EC19A18BD3436170AFB650C27CD46ECA46B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +406,8 @@ Delta Block Font содержит 2 стиля (курсивный и обычн
 magnet:?xt=urn:btih:A896B7803AAA4E5DC74686928791A23A371374BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ Keratus — современный шрифт без засечек, сочет�
 ```bash
 magnet:?xt=urn:btih:3A72E527FA956349B3A84E323C697D6D1A2D0B08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +462,8 @@ magnet:?xt=urn:btih:3A72E527FA956349B3A84E323C697D6D1A2D0B08
 magnet:?xt=urn:btih:64C7370455132803F3DE2ACC22040BF10D3BC24D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +489,8 @@ magnet:?xt=urn:btih:64C7370455132803F3DE2ACC22040BF10D3BC24D
 magnet:?xt=urn:btih:EB82F7C3CF7A99F5915E5C755442D621FFE555ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ Alvera – Цифровой пульс типографики. Шагните в
 ```bash
 magnet:?xt=urn:btih:A7B2AF698BCA3E5F0557647BF087FFAC6579E2DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +543,8 @@ magnet:?xt=urn:btih:A7B2AF698BCA3E5F0557647BF087FFAC6579E2DC
 magnet:?xt=urn:btih:51780FD28BCE41A756FABD45DC2E9CD2CC0D4FB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +570,8 @@ magnet:?xt=urn:btih:51780FD28BCE41A756FABD45DC2E9CD2CC0D4FB5
 ```bash
 magnet:?xt=urn:btih:09BBF025D4EEEAF38FDFC02E0364F8A1AC5C488C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +599,8 @@ Sagewold - это современный геометрический шрифт
 magnet:?xt=urn:btih:1EA8D600414484A111281203802DBAED12AEB885
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ Audex - это смелый геометрический шрифт с плав�
 ```bash
 magnet:?xt=urn:btih:06721C4358950114EE1AF2E5471C9C4E65AE234C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +655,8 @@ magnet:?xt=urn:btih:06721C4358950114EE1AF2E5471C9C4E65AE234C
 magnet:?xt=urn:btih:2BA6A10421077C7712A7C6B0045FE287DB2E61A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +683,8 @@ magnet:?xt=urn:btih:2BA6A10421077C7712A7C6B0045FE287DB2E61A4
 magnet:?xt=urn:btih:E0416F8BABB94EB8C8504B1841E939FA528E6958
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +708,8 @@ OV Cotin — вневременной шрифт с засечками, имею
 ```bash
 magnet:?xt=urn:btih:9CC9A3D59728E0DF0D765BFB73DDF575BA70AB13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

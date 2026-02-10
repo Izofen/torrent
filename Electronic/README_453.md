@@ -22,6 +22,8 @@ Scooter - I Want You To Stream! (Live) (2020) [MP3|320 Kbps] <Techno, Trance, Ha
 magnet:?xt=urn:btih:F55A3D7CEB035082B2562F320FDD9E8657797D0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Aleph Zero Records presents: Compilations Collection - 6 Releases (2004-201
 ```bash
 magnet:?xt=urn:btih:33E1966AF8413DC52BD504C03B5379E1FA92E9F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ DJ Dado - DJ Dado (2020) [MP3|320 Kbps] <Trance, Classic Trance, Downtempo, Drea
 magnet:?xt=urn:btih:33D81AECA02C2CFEE7926883E942D96029093FE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Deep Wave - Chillout Piano (2020) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillou
 ```bash
 magnet:?xt=urn:btih:47E006C3B075827D84EB04E5EC01C6CED3AA44C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Ray Orion - Return To The Battle Line (2020) [FLAC|Lossless|WEB-DL|tracks] <Synt
 magnet:?xt=urn:btih:01A88FB75ED3BF2DF58E2177522DDB85E341D7BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Cyberman - Time Travelers (2013) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Space
 ```bash
 magnet:?xt=urn:btih:9453DFB1CB23BD331E22188ED33523F8E50C0D45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Deepsky - Back Catalog 1994-1998 (2006) [FLAC|Lossless|WEB-DL|tracks] <Trance, P
 magnet:?xt=urn:btih:D8E49FF20B55F3809598876FDAD15DE66CF0168C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - One Synth (2018) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Synth>
 ```bash
 magnet:?xt=urn:btih:1F1FD88B969EA587F8378EE04144D30ADCC4E963
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ David August - Times (2013) [FLAC|Lossless]<Tech House, Deep House>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Naked Lounge Vol.2: Erotic and Soulful Chill Out Music (2017) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:B3EA1CBC94651FB6686FC179A46E24FE9709F4EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Cappuccino Lounge Vol.2 (Relaxed Coffee Tunes) (2017) [MP3|320 Kbps] <Downt
 magnet:?xt=urn:btih:EEC6B480B3DB389347011F93E5E4BFAD907F9E5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Pet Shop Boys - The Pop Kids (Remixes) (2016) [FLAC|Lossless|WEB-DL|tracks] <Pro
 ```bash
 magnet:?xt=urn:btih:133D09C4277A7376E519EBFEF0AD33992EE55934
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Who Ha - Synthwave Belongs In A Museum (2016) EP [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:EAF9FA573B8C8F29A588C1B5F3C23D4416DDEBA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Forrest Fang - Following The Ether Sun (2017) [MP3|320 Kbps] <Ambient>
 ```bash
 magnet:?xt=urn:btih:99ACD1FA8ABDBBE4B87DDDD24241FCEDF086677E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Cruise & Chill Vol.1 (Summer Lounge Tunes) (2017) [MP3|320 Kbps] <Downtempo
 magnet:?xt=urn:btih:2F5181BC973CCE604002DBF8D7AA22B4E4236244
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - Mindfulness Answer Chilltime (Lounge Selection) (2016) [MP3|320 кб/с] <L
 ```bash
 magnet:?xt=urn:btih:FC6016AFB95573968F5FCCEA072202AEC2A181EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Andrea - Ritorno (2020) Ilian Tape [FLAC 2.0|44.1/24|tracks|WEB-DL] <Breakbeat, 
 magnet:?xt=urn:btih:AED406E89A68094026FEBF53DB339B2774209DBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +511,8 @@ Brainwaltzera - Discography 14 Releases (2016-2020) Analogical Force, Film, Furt
 ```bash
 magnet:?xt=urn:btih:6707BE2C41A306138017D65982D66255DC150F6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +541,8 @@ VA - Erotic Piano Music (2021) [FLAC|Lossless|WEB-DL|tracks] <House>
 magnet:?xt=urn:btih:E0C72653B544B6DC16CBAC6F54A22DDCDF20DB68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +570,8 @@ Robert Rich - Echo Of Small Things (2005) Soundscape [FLAC|Lossless|tracks+.cue]
 magnet:?xt=urn:btih:46ABF0A9A7E69AAF0C677D4C55F959871EBE95C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +598,8 @@ VA - Armin van Buuren: A State Of Trance 800 (2017) [FLAC|Lossless|tracks] <Tran
 ```bash
 magnet:?xt=urn:btih:8F12C6A77E7977812B0572EC41AB60B9F84334E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +629,8 @@ Tears For Fears - The Seeds Of Love (1989) [FLAC|Lossless|image + .cue] <New Wav
 magnet:?xt=urn:btih:4348B1D22E62D6C9F8E8083A787C02B59D3307CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +657,8 @@ Garrison - Unrealistic (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:843C6FD28B97AD4EE8AD40762C82F70A1DAE447F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +687,8 @@ VA - Psychedelic Goa Vol.2 (2017) [MP3|320 Kbps] <Psy Trance, Goa>
 magnet:?xt=urn:btih:0D20058F454C90F280DF3E0DF2FBC4909A59643E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +716,8 @@ Tantra Masters - Tantra Massage Sex Lounge - Chill Out Moaning Sounds Sexy Music
 magnet:?xt=urn:btih:AC0EE45F5A58B12A5E9B793DEE0EB33DE0712CAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,6 +744,8 @@ VA - Soft House Miami 2016 (15.03.2016) [MP3|320 кб/с] <Downtempo, Chillout, 
 ```bash
 magnet:?xt=urn:btih:F3C7EB7DF099BB3700E4B7F3C807A93C3863914D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

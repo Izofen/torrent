@@ -1,3 +1,29 @@
+###  Публикация: 949867   (981363) от 06.01.2016
+
+Без комплексов / Skin To The Max (2011) HDTV [H.264/1080i-LQ] (Сезон 1, серии: 1, 3-7 из 12, Сезон 2, серии 1-4 из ?) [обновляемая]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный сериал НВО о секс-клубах. Увлекательное путешествие в мир эротических фантазий, где нет запретных желаний, а любой каприз может исполниться.Телекомпания: США, Stick Figure Productions, HBOЖанр: Документальный, для взрослыхПеревод: Многоголосый закадровый, профессиональныйПродолжительность: ~ 00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:965B97C69C6ECE3D45382E2CCB66300FAF58348C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 857756   (981448) от 06.01.2016
 
 Счастливые люди. Поморы (2013) WEBRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:CFBEAB3F94FDF251951C31FB300C46EE278A07AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:CFBEAB3F94FDF251951C31FB300C46EE278A07AD
 magnet:?xt=urn:btih:54C1A5FD56FDC6F2E75B685A385231EA872C3277
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:54C1A5FD56FDC6F2E75B685A385231EA872C3277
 ```bash
 magnet:?xt=urn:btih:7E64273796416319273FCF0A6BB4495C804AA9D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:7E64273796416319273FCF0A6BB4495C804AA9D5
 magnet:?xt=urn:btih:7CB1E4FD7E5808B3E457B6B21BBB69C15091B3AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:7CB1E4FD7E5808B3E457B6B21BBB69C15091B3AE
 ```bash
 magnet:?xt=urn:btih:A991CC1D16CD9E8DF5D51E344D6501A1708988E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:A991CC1D16CD9E8DF5D51E344D6501A1708988E4
 ```bash
 magnet:?xt=urn:btih:9564218735F98C6BB1E726D23401FB8E55F17378
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +207,8 @@ magnet:?xt=urn:btih:9564218735F98C6BB1E726D23401FB8E55F17378
 magnet:?xt=urn:btih:C81ECE0BE13EC6873807B367C6B49B536F5A92B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +235,8 @@ magnet:?xt=urn:btih:C81ECE0BE13EC6873807B367C6B49B536F5A92B3
 magnet:?xt=urn:btih:0AAB1ABBB72DB26CB7BF2069D7DF3AF139616CCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +261,8 @@ magnet:?xt=urn:btih:0AAB1ABBB72DB26CB7BF2069D7DF3AF139616CCB
 ```bash
 magnet:?xt=urn:btih:7B11D4B9A6111729EE291C025E2B2D9CE4A745D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +289,8 @@ magnet:?xt=urn:btih:7B11D4B9A6111729EE291C025E2B2D9CE4A745D7
 magnet:?xt=urn:btih:E27C09B7D28873BCD74D151AEB3E6C2F670CAED2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +316,8 @@ magnet:?xt=urn:btih:E27C09B7D28873BCD74D151AEB3E6C2F670CAED2
 magnet:?xt=urn:btih:8E45592C1845B759412D0DD4A43F7458B7EB9809
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +341,8 @@ magnet:?xt=urn:btih:8E45592C1845B759412D0DD4A43F7458B7EB9809
 ```bash
 magnet:?xt=urn:btih:0A3EC6A0E10102E646A5F73D41EB0F2757E74848
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +368,8 @@ magnet:?xt=urn:btih:0A3EC6A0E10102E646A5F73D41EB0F2757E74848
 magnet:?xt=urn:btih:4872353E7033D74625FA4F9DB48D3CB0F74915BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +394,8 @@ magnet:?xt=urn:btih:4872353E7033D74625FA4F9DB48D3CB0F74915BF
 ```bash
 magnet:?xt=urn:btih:4991D827980A282E45127455B955B6C0319F66C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +426,8 @@ magnet:?xt=urn:btih:4991D827980A282E45127455B955B6C0319F66C6
 ```bash
 magnet:?xt=urn:btih:8276C9C04CDA2556FC5824E20D0F58520DDDC134
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +460,8 @@ magnet:?xt=urn:btih:8276C9C04CDA2556FC5824E20D0F58520DDDC134
 magnet:?xt=urn:btih:6F23C010036F4DE29D5C36CCDC6448B588D88616
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +485,8 @@ magnet:?xt=urn:btih:6F23C010036F4DE29D5C36CCDC6448B588D88616
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +512,8 @@ magnet:?xt=urn:btih:6F23C010036F4DE29D5C36CCDC6448B588D88616
 magnet:?xt=urn:btih:9C3D4189F40ADBC9D4AA1267772B1500D052CBB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +537,8 @@ magnet:?xt=urn:btih:9C3D4189F40ADBC9D4AA1267772B1500D052CBB7
 ```bash
 magnet:?xt=urn:btih:EBFCCE5A2FBCFEA13E36809FF7AD35BB11588DB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +566,8 @@ magnet:?xt=urn:btih:EBFCCE5A2FBCFEA13E36809FF7AD35BB11588DB5
 magnet:?xt=urn:btih:342490D8FA0B3A33B71427897008164E73A0C8DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +591,8 @@ magnet:?xt=urn:btih:342490D8FA0B3A33B71427897008164E73A0C8DA
 ```bash
 magnet:?xt=urn:btih:BD640CDCC3BC28504740D5ECA08D21C4DE72853E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +619,8 @@ magnet:?xt=urn:btih:BD640CDCC3BC28504740D5ECA08D21C4DE72853E
 magnet:?xt=urn:btih:682A2CA746456CC88DAD1D3A63717A47AAF401BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +645,8 @@ magnet:?xt=urn:btih:682A2CA746456CC88DAD1D3A63717A47AAF401BD
 ```bash
 magnet:?xt=urn:btih:F927D3AF05721EEFE090EEA9B211854C7B81C4E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +673,8 @@ magnet:?xt=urn:btih:F927D3AF05721EEFE090EEA9B211854C7B81C4E5
 magnet:?xt=urn:btih:AF65A4BA44ACC61BEDE282ED4232C689110FC6B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,30 +700,7 @@ magnet:?xt=urn:btih:AF65A4BA44ACC61BEDE282ED4232C689110FC6B0
 magnet:?xt=urn:btih:62D0096E68CC7424CDC612CABBB3CA00C2BDD480
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972470   (983210) от 05.01.2016
-
-День космических историй. Байки из склепа  (2016.01.05) SATRip
-
->>Документалистика и Телепередачи
->>Космос
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый день приносит научные сенсации. Порой они опровергают незыблемые истины. Или решают глобальные проблемы, над которыми столетиями бились ученые. Но однозначно - меняют будущее человечества.
-День космических историй - это хит-парад самых новых и интересных научно-популярных программ. Каждый фильм - это увлекательное путешествие в мир сенсационных открытий. Эксклюзивные (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйПродолжительность: 00:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:789948DC1FBC689DA479555D6974E69699F68E57
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

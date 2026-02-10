@@ -19,6 +19,8 @@ Sand Land (2024) [Multi] (1.0.5/dlc) Scene Tenoke [Deluxe Edition]
 magnet:?xt=urn:btih:89D52C76544B3EDD10CB8F50C9604BD02EAEE636
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Digimon Survive - тактическая JRPG, разработанная по �
 ```bash
 magnet:?xt=urn:btih:CE83DAA3B6244FFC51A39E4409557AC472D40C49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Drakkar Crew (2023) [Ru/En] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:969240A97A710B5C1CB49A03E0A93983D63FA5CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Legend of Nayuta: Boundless Trails (2021) [Multi] (1.0.7) License GOG
 ```bash
 magnet:?xt=urn:btih:F7FA3502B8D6EAB58704EFF4B8A1015F2D92D2F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Deepest Chamber: Resurrection (2021) [Multi] (1.08) Scene Tenoke
 magnet:?xt=urn:btih:F74A7C9D2C08F2FD586FF3D633F74493811257A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Scars of Mars (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4CF1148C3AD87BF188EF824B45A3D37689C3F751
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Astor: Blade of the Monolith вставьте себя на место Асто�
 magnet:?xt=urn:btih:1CE04665C7A07BACC713BA91521F20FD30649EAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Black Pool (2023) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D695F4F1AC396273946A3C766F677A3C32ECBA17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Stray Gods: The Roleplaying Musical (2023) [Multi] (8863.1/dlc) License GOG
 magnet:?xt=urn:btih:BCA8D94878C8CADBF47EF19DF8CB97031043B62C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Mushoku Tensei: Jobless Reincarnation Quest of Memories (2024) [Multi] (1.0.3) R
 ```bash
 magnet:?xt=urn:btih:02E3F13C0CF4E48D2D870B81853AE4731588BC63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Ludus Mortis переносит вас в мрачную фэнтезийную 
 magnet:?xt=urn:btih:12B5B21E9F9A4E2608FF4C9CCDF6C8CEF61D033C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Deathbulge: Battle of the Bands (2023) [En] (1.1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:8586C2EC7FDF1CE7C25343A7C94EC6FC322E9235
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Russian Village Simulator / Симулятор русской деревни (20
 magnet:?xt=urn:btih:F97D18E11C96B318CEFF729487ACB5E598AF80F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Dungeon Drafters – это пошаговый рогалик с видом св
 ```bash
 magnet:?xt=urn:btih:B233DF202F4116B0888FEC40B9576BCFC4CA8DA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Reverse Collapse: Code Name Bakery - тактическая RPG, события 
 magnet:?xt=urn:btih:62168075F11EAF25DAB8E76630921B4C3313F3E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Elden Ring – фэнтезийное экшен-РПГ приключение, 
 ```bash
 magnet:?xt=urn:btih:EF6AB86AFA86DCE8BE48FB37D5CED98E152E552E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Tower Song - это пошаговая ролевая игра, история �
 magnet:?xt=urn:btih:01CF92E249B73F4F731F3AC3159602DDA9C14002
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ magnet:?xt=urn:btih:01CF92E249B73F4F731F3AC3159602DDA9C14002
 ```bash
 magnet:?xt=urn:btih:00D71142EB93E6675756167CFBAF4C3DB7EB0CE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ DYSMANTLE (2021) [Ru/Multi] (1.4.0.41/dlc) License GOG
 magnet:?xt=urn:btih:97E54A9048A6B93445BEC51C8769E139B400DD71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The I of the Dragon / Глаз дракона (2002) [Multi] (1.02) License GOG
 ```bash
 magnet:?xt=urn:btih:F8078DCE1DF72D0B9BAD6837179FEF6E26B2C47B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Baten Kaitos: Eternal Wings and the Lost Ocean и Baten Kaitos Origins тепе�
 magnet:?xt=urn:btih:B7442F6B6477296502517E352F1B6825AEB1BFE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ magnet:?xt=urn:btih:B7442F6B6477296502517E352F1B6825AEB1BFE8
 ```bash
 magnet:?xt=urn:btih:B819061E046C6093AA8E32570A6DDC21EEE5441C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Fate/Samurai Remnant (2023) [Multi] (1.3.1/dlc) Scene Rune [Digital Deluxe Editi
 magnet:?xt=urn:btih:CFD84C9FB1AB92A234E7ED7216C325BDA716C573
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Freedom Force (2002) [En] (1.3) License GOG
 ```bash
 magnet:?xt=urn:btih:819EE5EB1E247D3DEC3246B5056CD35646D15DC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Freedom Force vs. the Third Reich – изометрическое ролево�
 magnet:?xt=urn:btih:7C82D9029B3C5FAA7E2D1D26456770DD8EBBCAF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Born of Bread (2023) [Multi] (r3.2.4d) License GOG
 ```bash
 magnet:?xt=urn:btih:C2DC0B9676F5FDC29AE748C44397D8BFB41C500C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:BB6E5A6DF5A903FF9639D0477C8A45C955D399A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:BB6E5A6DF5A903FF9639D0477C8A45C955D399A7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NG: Чудеса инженерии: Панамский канал / Big Bigger 
 magnet:?xt=urn:btih:6E4635C9C64BC10DFF58F04C5F3C9FC7021E238D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Discovery: Дерзкие проекты / Extreme Engineering (2003-2007) [SATR
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Discovery: Дерзкие проекты / Extreme Engineering (2003-2007) [SATR
 magnet:?xt=urn:btih:A37F90BBD65143087EE8FDF799115E4E3689C0D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ NG: Суперсооружения. Пальмовые острова в Дуб�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Discovery: Могучие корабли. Кентуки / Mighty Ships. USS Ken
 magnet:?xt=urn:btih:01CCAA03582E2B7B518DC227494754533AE504E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:01CCAA03582E2B7B518DC227494754533AE504E4
 ```bash
 magnet:?xt=urn:btih:38B527990FCA7FDECF96679134AA8E50BE80E90C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:38B527990FCA7FDECF96679134AA8E50BE80E90C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:38B527990FCA7FDECF96679134AA8E50BE80E90C
 magnet:?xt=urn:btih:5AF218A3D2A6546B4CB84C8BF5DE39A727B45647
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:5AF218A3D2A6546B4CB84C8BF5DE39A727B45647
 ```bash
 magnet:?xt=urn:btih:422B5E7900877842EAF693D4BE69612243C747B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

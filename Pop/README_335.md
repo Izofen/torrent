@@ -1,3 +1,154 @@
+###  Публикация: 615349   (971660) от 12.02.2013
+
+ВИА Веселые ребята - Антология 1969-1988 (6CD) (2010) [MP3|320 кб/с]<поп, ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Диск 11. Пришла пора (В.Добрынин - Л.Дербенёв)
+2. Треугольник (В.Добрынин - Л.Рубальская)
+3. Чашка чая (В.Добрынин - М.Рябинин)
+4. Солёное море (И.Словесник - И.Шаферан)
+5. Розовые розы (П.Слободкин - Н.Просторова)
+6. Девушка с обложки (П.Слободкин - Н.Просторова)
+7. На Канарских островах (Т.Ефимов - Д.Усманов)
+8. Пустыня (В.Добрынин - М.Рябинин)
+9. Прогноз погоды (В.Матецкий - И.Кохановский)
+10. Звездочёт (П.Слободкин - Н.Пляцковская)(   Читать дальше...   )Жанр: поп, ретроПродолжительность: 01:20:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:824FA7BAE7561546BC1C854B71CDD2BC898C9E67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617710   (971737) от 12.02.2013
+
+C.C. Catch - 25th Anniversary Box 5CD (1986-1990) /2011, Klub80 Records Remastered/ [FLAC|Lossless]<Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Disco, Euro-DiscoПродолжительность: 00:53:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975667   (971923) от 15.01.2016
+
+VA - Great Spanish Hits (1996) [FLAC|Lossless|tracks + .cue] <Pop, Folk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Juanito - Amor de mis amores (3:11)
+02. Juanito - Bamboleo (2:43)
+03. Olivia Valere - Cantinero de Cuba (4:15)
+04. Chico Fuente - La Paloma (3:00)(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EE91A54A61FCDF9A957ECB290A871E75EEF74A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975605   (971932) от 15.01.2016
+
+Dimitri From Paris - Night Dubbin' (2009) 3CD Compilation [FLAC|Lossless|tracks + .cue] <Dub, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Winans - Let My People Go (dub version) (6:38)
+02. Third World - One More Time (dub) (6:24)
+03. Wuf Ticket - The Key (dub) (8:34)
+04. Lenny White - My Turn to Love You (dub) (6:38)(   Читать дальше...   )Жанр: Dub, DiscoПродолжительность: 03:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD5FA72CE6ECC28F08CD5D5B629FC7CAEE8BB548
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975495   (971936) от 15.01.2016
+
+Mariah Carey - Forever Gold (1999) 2CD [FLAC|Lossless|tracks + .cue] <Pop, Blues>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжительность:01:12:34
+1.When You Believe (4:36)
+2.Sweetheart (4:22)
+3.I Still Believe (3:56)(   Читать дальше...   )Жанр: Pop, BluesПродолжительность: 01:09:28
+1.Fantasy (4:04)
+2.My all (3:52)
+3.Open arms (3:32)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70B5C28923527AB5672012F13010B5F4C73FFD40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975622   (971938) от 15.01.2016
 
 Vanessa Paradis - Variations sur le meme t aime (1990) Remastered, 1998, Polydor [FLAC|Lossless|tracks + .cue] <Pop, Rock, Chanson>
@@ -21,6 +172,8 @@ Vanessa Paradis - Variations sur le meme t aime (1990) Remastered, 1998, Polydor
 ```bash
 magnet:?xt=urn:btih:D27B0598E6942A0E1936675271842D666F3AF501
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +202,8 @@ Masterboy - Коллекция (7 Альбомов, 27 Синглов) (1990-200
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +231,8 @@ Julio Iglesias - A Mis 33 Anos (1978) [FLAC|Lossless|tracks + .cue] <Ballad, Cha
 magnet:?xt=urn:btih:A193680EB1F8F5D85482DAED1E01EBFD105E8461
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +259,8 @@ VA - All the Hits Now 2001 Italia (2001) [FLAC|Lossless|tracks + .cue] <Italian 
 ```bash
 magnet:?xt=urn:btih:7CAC25B9A6F561D5EAC0D2E96D7F8B6362ED0E10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +295,8 @@ VA - Greatest Ever - Memories - The Definitive Collection (2006) [MP3|320 кб/�
 magnet:?xt=urn:btih:DD975ED6B83FBF90B348E818B5683019DE4FCE76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +323,8 @@ Chris De Burgh - Now and Then (2008) Compilation [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:48A0B4C89FE7B1508A28536E43913100B305EEC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +353,8 @@ Julio Iglesias - Noche De Cuatro Lunas (2000) [FLAC|Lossless|tracks + .cue] <Bal
 magnet:?xt=urn:btih:97775E043B89A3203CC52BE28217F94292CB8C83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +381,8 @@ Kovacs - Cheap Smell (2018) [FLAC|Lossless|tracks + .cue] <Jazz, Pop>
 ```bash
 magnet:?xt=urn:btih:189D142B019EC26B579870EB2DBC3EB320FF6E93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +411,8 @@ London Boys - Playlist: The Best of London Boys (2016) Compilation [FLAC|Lossles
 magnet:?xt=urn:btih:2298AEC7F5D5BADC4C1DBEA288F06F5AF0EEBC5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +439,8 @@ Murray Head - Emotions (My Favourite Songs) (2005) Compilation [FLAC|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:F131268927C435D96FA2F9558BB393EFBC3C87F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +469,8 @@ Vanessa Paradis - M & J (1988) Japanese Edition [FLAC|Lossless|image + .cue] <Po
 magnet:?xt=urn:btih:EFA239F02B02D3C606120339963FE57E3A2F8E44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +497,8 @@ VA - All Woman - 18 Greatest Hits (1994) [FLAC|Lossless|tracks  + .cue]<Pop, Lov
 ```bash
 magnet:?xt=urn:btih:4BCE761637CF224D6A9FA1F7164BAEE67EBCA0E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +527,8 @@ East Coast - East Coast (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 magnet:?xt=urn:btih:4871CDC8D7545237F3BBB27BBA87D5F7D430E279
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +555,8 @@ Julio Iglesias - Tango (1996) [FLAC|Lossless|tracks + .cue] <Ballad, Vocal, Tang
 ```bash
 magnet:?xt=urn:btih:D5F4BD3A11BFD6348A0390CCB88271C1B36057DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +585,8 @@ Julio Iglesias - Crazy (1994) [FLAC|Lossless|tracks + .cue] <Soft Rock, Chanson,
 magnet:?xt=urn:btih:A035800CB88232DDBAA1B603AF6462CC6DB2F22D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +613,8 @@ Julio Iglesias - La Carretera (1995) [FLAC|Lossless|tracks + .cue] <Ballad>
 ```bash
 magnet:?xt=urn:btih:D909E52CBEF9BEA951870F33B5B1288D99D2AC96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +643,8 @@ Ronan Keating - Destination (2002) SACD [FLAC|Lossless|tracks + .cue] <Pop Rock>
 magnet:?xt=urn:btih:FCDA543A1BCF030E7D6ABE515B62821046CA92E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +671,8 @@ Reverend and The Makers - ThirtyTwo (2014) [FLAC|Lossless|WEB-DL|tracks] <Britpo
 ```bash
 magnet:?xt=urn:btih:E1D77365F7ADC74A69F980E51E2C05A846AE3217
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +707,8 @@ CD 1:01. Escucha Me
 magnet:?xt=urn:btih:5A1BE509804BEF7340766068776E1855FC43AA83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +742,8 @@ Talking System - In My Backstreet Heaven (2008) / 2009 [WavPack|Lossless]<Pop, S
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,158 +771,7 @@ Mike Mareen - Let's Start Now (Deluxe Edition) (2017) [FLAC|Lossless|image + .cu
 magnet:?xt=urn:btih:568360224F016BADFC091115FDFEB831AC6ED644
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357381   (974328) от 03.02.2020
-
-Okay - Bang! (2011) [FLAC|Lossless|image + .cue] <Synth-pop, New Beat>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974328.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 The Wild, Wild Western
-2 I Won't Forget
-3 Champagne For The Boy
-4 E.d.u.c.a.t.i.o.n(   Читать дальше...   )Жанр: Synth-pop, New BeatПродолжительность: 01:09:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4903FBD2F70F5A5C2C2D0DC0958161FADDC63844
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357393   (974331) от 03.02.2020
-
-Silver Pozzoli - Around My Dream (2011) [FLAC|Lossless|image + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974331.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Around My Dream (Extended Version) 5:39
-2 Step By Step 3:42
-3 Love Is Alive 3:49
-4 Pretty Baby 3:54(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B01F360828C7FD0801AE810D2E47FC7E24BC614
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616146   (974564) от 10.02.2013
-
-VA - Легенды советской эстрады 50-60гг. Коллекция от Ридерз Дайджест (5CD) (2011) [MP3|320 кб/с]<поп, ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974564.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 162. Течёт Волга (Л.Ошанин, М.Фрадкин) Л.Зыкина, академический хор русской песни
-63. Пора в путь - дорогу (С.Фогельсон, В.Соловьев-Седой) С.Яковенко, мужская группа хора Всесоюзного радио и телевидения
-64. Я люблю тебя, жизнь жизнь (К.Ваншенкин, Э.Колмановский] М.Бернес
-65. Подмосковные вечера (М.Матусовский, В.Соловьев-Седой) В.Трошин, женская группа Ансамбля песни Всесоюзного радио
-66. Когда весна придёт (А.Фатьянов, Б.Мокроусов) Н.Рыбников
-67. Весёлый марш высотников (В.Котов, Р.Щедрин) Н.Рыбников
-68. Когда поёт далёкий друг друг (Я.Хелемский, Б.Мокроусов) М.Бернес
-69. Вернулся на Родину (М.Матусовский, М.Фрадкин) Л.Кострица
-70. Огонёк (М.Исаковский) В.Нечаев
-71. Сядь со мною рядом (А.Коваленков, Д.Толмачев, С.Кац) В.Доронин(   Читать дальше...   )Жанр: поп, ретроПродолжительность: 00:52:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2D786866CB4F469D61B38B06787E82484C5CC86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616583   (974738) от 10.02.2013
-
-Mylene Farmer - Monkey Me (2012) [APE|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elle a dit (3:52)
-02. À l'ombre (4:51)
-03. Monkey Me (4:14)
-04. Tu ne le dis pas (4:22)
-05. Love Dance (4:06)
-06. Quand (4:08)
-07. J'Ai Essayé De Vivre... (4:40)
-08. Ici-bas (4:33)
-09. A-t-on jamais (3:47)
-10. Nuit d'hiver (5:24)(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:37
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 615840   (974804) от 10.02.2013
-
-Татьяна Буланова - Я не вернусь (2010) [MP3|320 кб/с]<pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974804.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Я не вернусь
-2. Любовь бывает разной
-3. Цветок (дуэт с Сергеем Любавиным)
-4. Он уехал
-5. Отцвели хризантемы
-6. По диким степям Забайкалья
-7. Только раз
-8. Скажите, почему
-9. Белой акации гроздья душистые
-10. Если можешь, прости(   Читать дальше...   )Жанр: popПродолжительность: 01:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0726C34DE5C2A56F46819E813295CB92CB2328A3
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

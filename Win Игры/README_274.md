@@ -19,6 +19,8 @@ Amnesia: The Bunker - хоррор от первого лица от созда�
 magnet:?xt=urn:btih:10BEBFED201B7CCB420FD7925E6806D0EBD0ADCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Tennis Manager 2023 - это проработанный спортивный с�
 ```bash
 magnet:?xt=urn:btih:0CDBD8DC649C35BA5BB0E2C68F041CB3C68282D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Summer Trip Cruise - это сложная аркада, где вам пред�
 magnet:?xt=urn:btih:628421328D169AEA5B510BC59FDB4D89166991A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Batora: Lost Haven - это приключенческий ролевой экш
 ```bash
 magnet:?xt=urn:btih:F55FB6C714E340D4B24AD84B06BA9AA14606C2D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Killer Frequency (2023) [Ru/Multi] (1.0) Scene Rune [VR]
 magnet:?xt=urn:btih:32C087BA5E4A9D65B42646FAB37F9211F7A1E567
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Fuga: Melodies of Steel 2 переносит в разрушенный войн�
 ```bash
 magnet:?xt=urn:btih:AF66E945CBBDC6AF1279BF16204C35ACDBD0B04F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Return (2023) [En] (1.0.0) License GOG
 magnet:?xt=urn:btih:841ABC44B556479F54766EE883F9A767813269DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Kao the Kangaroo / Кенгуренок Као (2022) [Ru/Multi] (1.6.0/dlc) Lic
 ```bash
 magnet:?xt=urn:btih:5DA0056834857C73B18BEF057317BF8DC230F4F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Hello Goodboy - это добрая и интересная история пр�
 magnet:?xt=urn:btih:9F72149902D08D8BDAE4DFC5D938DD552441D6BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Railway Empire 2 (2023) [Ru/Multi] (1.0.0.51915/dlc) Scene Razor1911 [Digital De
 ```bash
 magnet:?xt=urn:btih:0DC6E554DAC2460633B97306F28A1BF4DFF80D80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ DOOMBLADE (2023) [Ru/Multi] (0.9) License GOG
 magnet:?xt=urn:btih:824B5C418050A2C5D4B46565498F62C7CDBD69F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ System Shock 2023 - ремейк легендарного иммерсив-си�
 ```bash
 magnet:?xt=urn:btih:95149C9423C2A2CB6840743593EBF7A4A2556280
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Death or Treat рассказывает историю, в которой Хэл
 magnet:?xt=urn:btih:95828814305F5CEBD3C3FBE8DD0169A7AA9005D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Panzer Knights (2021) [Ru/Multi] (1.1.7/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:B7D0ECCEFDD26113A90CC7F5382A12B2D8F5D2DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Gone Rogue можно назвать иммерсивным симуляторо
 magnet:?xt=urn:btih:A8DE8A8A2195BEC16963C754B4838C51FD8B6C5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ We. The Refugees: Ticket to Europe (2023) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:62818A234B38A48D669EB027F2D9555EF5E4C4A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ HAAK (2022) [Ru/Multi] (1.3.1.17223) License GOG
 magnet:?xt=urn:btih:CCC0DB596D097DCAA99659E06AA466482A2E9EBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Bum Simulator предоставляет возможность игроку п�
 ```bash
 magnet:?xt=urn:btih:9CD492BBE4840432A2F95929475F56163D32105F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Elypse - атмосферная метроидвания, представляю
 magnet:?xt=urn:btih:B490DE99EAFA4F31E6F7203DA532A654630C9587
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Miasma Chronicles (2023) [Ru/Multi] (11294956) Repack DjDI
 ```bash
 magnet:?xt=urn:btih:75389AB34E04718D33DA849ECF22B0AA1A023323
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Monster Tribe предлагает игроку исследовать остр�
 magnet:?xt=urn:btih:EDFBEB596F925C72E03D0A10156384ACDC53C5BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Secrets of Worlds 2: Mystery Agency / Тайны миров 2: Детектив�
 ```bash
 magnet:?xt=urn:btih:4DF165D23D832101A3F78376F054026EF2478509
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Unalive 010 (2023) [Ru/Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:56907FF5833980D6BB1E1AFD64D1625A62074E46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ My Train Arrives – стратегический симулятор строи�
 ```bash
 magnet:?xt=urn:btih:49F73FB660D601D2192371B5ADDFA6E82758858C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Infliction – психологический хоррор с главным г�
 magnet:?xt=urn:btih:829B243370BA3A537A02E45C91572058BC093A7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Twin Mind 4: Nobody's Here / Двуединое Сознание 4: Здесь �
 ```bash
 magnet:?xt=urn:btih:3D08A0CD2E1DD6CECC76E51BFE95A8FAF7897908
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

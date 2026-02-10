@@ -20,6 +20,8 @@ Genius Art: Image AI Generator v1.4.3 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:2A8D0542F4A09B8CB7335C2A6A16EE86E76EE736
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Allavsoft Video Downloader Converter - это мощный видео загру
 ```bash
 magnet:?xt=urn:btih:43FBB9CEC7E9A88AB7759FAEEF63B9D31A6F9065
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ XYplorer – удобный многовкладочный файловый ме
 magnet:?xt=urn:btih:0BAAE191196FE81FE23588BDD2EBB91CD2CBF018
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Visual Studio — это мощное средство разработчика,
 ```bash
 magnet:?xt=urn:btih:27291F9D7B19841F4F9C6C44517260E56AA80773
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Visual Studio — это мощное средство разработчика,
 magnet:?xt=urn:btih:F9D9A75478D74462D5944FDA723290202E83E6C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:DB1CF61632F8F7F6F607639DC0DA447EF0640D7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:03408B2780E44269E347FA067714C47969CA222D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:988CBE5510AC0190CE5DF7BA6ABB133E2A8C9A2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Cat Scanner / Сканер породы кошек v18.8.0-G Mod by vadj [Ru/Mul
 magnet:?xt=urn:btih:B0748DFC62A769BA0F2F9ACBC97EE73533799D80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Visual Studio — это мощное средство разработчика,
 ```bash
 magnet:?xt=urn:btih:3EAA8E5F99A6E06A18FFCF6EBBB385E87A42A7C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ FireAlpaca — это достаточно простой, но удобный �
 magnet:?xt=urn:btih:CA004D21BC2DE76D793DA841207F544FFB85E889
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ MultiTimer - это простое и универсальное таймер-п
 ```bash
 magnet:?xt=urn:btih:7090F9A1E16E92A7E7D1B25A10D88AE2923199A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Magic Eraser - это революционное приложение для р�
 magnet:?xt=urn:btih:E414BD52BF0532B7D5855C461742C5B5C3C33446
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 ```bash
 magnet:?xt=urn:btih:E9657507FAF82AA19B2A11F84A0EFEFE3D86C3B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Magic Eraser - это революционное приложение для р�
 magnet:?xt=urn:btih:8CEEF0C34E7AD16A417A46DA0B315BF58BDB9179
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ AirBrush: ИИ Фоторедактор v7.11.0 Mod by PieMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:01CED62CB821E7C1993FDD5FFDC386B7A93B85A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Strava: бег, велоезда, хайкинг v420.11 Mod by PieMods [Ru/Mult
 magnet:?xt=urn:btih:D5F1A6F5D6BD3123BCD24CF9872DBD08F6530099
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:AE0E0A523C1D626F57CBE095BE9A25C8287EE248
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:ECC4370518B9A15DA1136D0B6C1287551B78B1C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ PicWish — фоторедактор с искусственным (   Чита
 magnet:?xt=urn:btih:4C8516344330DB22A15867F212CBC3F3E61B47E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ Lighting calculations / Расчеты освещения v6.1.6 Mod by Balatan 
 ```bash
 magnet:?xt=urn:btih:1A75396F8BE72FCD66DE1E6FE18E07F2EDDBF20D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ Jigsawscapes® - Пазлы v4.1.5 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:0AACD68730BFF679AF776D88A1DB335B21DDCE3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ PowerDirector – Video Editor v15.5.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D292CAB2428F2DFAD5CB16D423ACE8FF4B7AC269
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ TuneIn объединяет спортивные события, музыку, �
 magnet:?xt=urn:btih:C02E14D6EC99F47D625E0CE845B3D6405CCD301A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ Smart AudioBook Player Pro v11.5.1 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:0CD516CA1D127BC1B1625E0D9E415EF1721E478B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Mary’s recipes: рецепты, меню v6.1.0 Mod by Alex.Strannik [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:D466214840086DBED8B101ABBFCFD24472FF316E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

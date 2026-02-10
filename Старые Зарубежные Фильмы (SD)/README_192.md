@@ -1,28 +1,3 @@
-###  Публикация: 1113243   (837590) от 11.03.2017
-
-Венера в мехах / Le malizie di Venere / Devil in the Flesh (1969) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ее тело было создано для любви. Его мозг — для поисков извращенной страсти. Ей нравилось заниматься любовью. А ему — еще и подглядывать. Видение обнаженнойкрасавицы в роскошных мехах и внезапно вспыхнувшее воспоминание детства рождают бурю эмоций в душе молодого писателя Северина.
-Странная, неодолимая страсть влечет его к Ванде. «Ты станешь моим рабом, а я постараюсь (   Читать дальше...   )Производство: ФРГ, Швейцария, Италия, VIP Production, Roxy FilmsЖанр: ДрамаРежиссер: Массимо ДалламаноАктеры: Лаура Антонелли, Режис Валли, Лорен Юинг, Рената Каше, Вернер Похат, Мади Раль, Вольф Аква, Петер Хег, Йозиль Ракель, Майкл КроллПеревод: Авторский одноголосыйСубтитры: OтсутствуютПродолжительность: 01:22:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE5BB779142535D921664D5D1FD8C9A3BFF800CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501148   (837769) от 08.10.2021
 
 Южени (Евгения) / De Sade 70 / Eugenie (1970) BDRip [H.264] [AVO]
@@ -43,6 +18,8 @@ magnet:?xt=urn:btih:AE5BB779142535D921664D5D1FD8C9A3BFF800CB
 ```bash
 magnet:?xt=urn:btih:DFD8D544116F27B76FD5DE4738EEF583879CCC79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +44,8 @@ magnet:?xt=urn:btih:DFD8D544116F27B76FD5DE4738EEF583879CCC79
 ```bash
 magnet:?xt=urn:btih:136284FA5E9ED9ECAD92AA2B543411E384673A7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +72,8 @@ magnet:?xt=urn:btih:136284FA5E9ED9ECAD92AA2B543411E384673A7C
 magnet:?xt=urn:btih:B7B43276F6B219680899E61EBF5C06B4068994DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +97,8 @@ magnet:?xt=urn:btih:B7B43276F6B219680899E61EBF5C06B4068994DE
 ```bash
 magnet:?xt=urn:btih:4F47F800196A86C47639E61EE2E4FB77499C826E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +124,8 @@ magnet:?xt=urn:btih:4F47F800196A86C47639E61EE2E4FB77499C826E
 magnet:?xt=urn:btih:8DEAA4554B5B5931C5B892A9BFBCEEF3D5A5FEAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +149,8 @@ magnet:?xt=urn:btih:8DEAA4554B5B5931C5B892A9BFBCEEF3D5A5FEAE
 ```bash
 magnet:?xt=urn:btih:EC7A8F38308AA7C153F91D9D033E2558634339C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +176,8 @@ magnet:?xt=urn:btih:EC7A8F38308AA7C153F91D9D033E2558634339C9
 magnet:?xt=urn:btih:17F47C7E397DF6251F527C58D3D878B195ACBDE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +202,8 @@ magnet:?xt=urn:btih:17F47C7E397DF6251F527C58D3D878B195ACBDE3
 magnet:?xt=urn:btih:D0FDEB6944614D4DC630A3F297AB0AF833A21255
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +227,8 @@ magnet:?xt=urn:btih:D0FDEB6944614D4DC630A3F297AB0AF833A21255
 ```bash
 magnet:?xt=urn:btih:FA7A9DCB39B1014019095A9AEBC091DEAA7ECCEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +256,8 @@ magnet:?xt=urn:btih:FA7A9DCB39B1014019095A9AEBC091DEAA7ECCEE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +281,8 @@ magnet:?xt=urn:btih:FA7A9DCB39B1014019095A9AEBC091DEAA7ECCEE
 ```bash
 magnet:?xt=urn:btih:5E80A65EA05A08CA352E14CA13AFE820D830EE54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +308,8 @@ magnet:?xt=urn:btih:5E80A65EA05A08CA352E14CA13AFE820D830EE54
 magnet:?xt=urn:btih:F6C097E87EC6B541C49C6EB931174A652F52D217
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +333,8 @@ magnet:?xt=urn:btih:F6C097E87EC6B541C49C6EB931174A652F52D217
 ```bash
 magnet:?xt=urn:btih:E9096693BA3F2BCDE5545EF6A3920E0E0CFA9905
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +360,8 @@ magnet:?xt=urn:btih:E9096693BA3F2BCDE5545EF6A3920E0E0CFA9905
 magnet:?xt=urn:btih:627E9A19F69CBACF34F3C1ED9B3A32A3116497C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +385,8 @@ magnet:?xt=urn:btih:627E9A19F69CBACF34F3C1ED9B3A32A3116497C9
 ```bash
 magnet:?xt=urn:btih:B9F0B0068F4DA06F91CE7B696DC0D9AA6F38A127
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +412,8 @@ magnet:?xt=urn:btih:B9F0B0068F4DA06F91CE7B696DC0D9AA6F38A127
 magnet:?xt=urn:btih:2348BBF13EF04DEF29B63363D1867D875DEFB1E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +437,8 @@ magnet:?xt=urn:btih:2348BBF13EF04DEF29B63363D1867D875DEFB1E4
 ```bash
 magnet:?xt=urn:btih:4FC177E0ABD79D91C0ED8D99D87F5B5B4BC2A9D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +464,8 @@ magnet:?xt=urn:btih:4FC177E0ABD79D91C0ED8D99D87F5B5B4BC2A9D9
 magnet:?xt=urn:btih:70C8BEC03ED2E6D1AC08FD5E8ED060A03C7EC6AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +489,8 @@ magnet:?xt=urn:btih:70C8BEC03ED2E6D1AC08FD5E8ED060A03C7EC6AF
 ```bash
 magnet:?xt=urn:btih:5FA1F7127CFDC9BD1A7B07BE3F25244A40303B56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +516,8 @@ magnet:?xt=urn:btih:5FA1F7127CFDC9BD1A7B07BE3F25244A40303B56
 magnet:?xt=urn:btih:6F9FF068FDBA9A96F753C8DE6EBB6250E8E9B04C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +541,8 @@ magnet:?xt=urn:btih:6F9FF068FDBA9A96F753C8DE6EBB6250E8E9B04C
 ```bash
 magnet:?xt=urn:btih:768C200086CC9090F98C6AB6007E7DB4F47B9647
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +568,8 @@ magnet:?xt=urn:btih:768C200086CC9090F98C6AB6007E7DB4F47B9647
 magnet:?xt=urn:btih:8A91C7E522A502575A6D7FE711FDED599297EE76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +593,8 @@ magnet:?xt=urn:btih:8A91C7E522A502575A6D7FE711FDED599297EE76
 ```bash
 magnet:?xt=urn:btih:52E96F934F2556B79951EB8D5CA3627C7F2A02F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +621,8 @@ magnet:?xt=urn:btih:52E96F934F2556B79951EB8D5CA3627C7F2A02F1
 magnet:?xt=urn:btih:C51628196D8863D5C873D4C504A6166A87BB425D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +646,36 @@ magnet:?xt=urn:btih:C51628196D8863D5C873D4C504A6166A87BB425D
 ```bash
 magnet:?xt=urn:btih:1ADCD5168A8477F3242B9F3313869EC5E3B2E906
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001478   (844466) от 02.04.2016
+
+Батарейки не прилагаются (Батарейки в комплект не входят) / *batteries not included (1987) HDRip [H.264]
+
+>>След.
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_844466.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о любви, дружбе и семейке летающих тарелок.
+Дом, в котором живут наши герои, подлежит сносу, и горстка домочадцев — пожилая семейная пара Райли, бывший боксер Гарри, молодая пуэрториканка Мариса и художник Мэйсон — отчаянно борются за спасение милых сердцу трущоб.
+Беднягам остается надеяться только на чудо, и оно случается: помощь приходит от братьев по разуму. (   Читать дальше...   )Производство: США / Universal Pictures, Amblin EntertainmentЖанр: фантастика, фэнтези, комедия, семейныйРежиссер: Мэттью РоббинсАктеры: Хьюм Кронин, Джессика Тэнди, Фрэнк МакРей, Элизабет Пенья, Майкл Кармине, Деннис Буцикарис, Том Элдридж, Джейн Хоффман, Джон ДиСанти, Джон ПэнкоуПеревод: Профессиональный двухголосый, авторскийЯзык озвучки: русский, английскийСубтитры: Русские, английскиеПродолжительность: 01:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7773D47F34D259D5C53D44E3E843A0C568801AB8
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 509913   (885779) от 10.03.2016
+
+Дикий Китай / Wild China (2008) BDRip [H.264/720p] (6 серий из 6)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885779.jpg" />
+</div>
+
+
+###  Подробнее
+
+От восточного края Великой Стены простираются прибрежные земли Китая. Они охватывают четырнадцать тысяч километров и более пяти тысяч лет истории. Здесь особенно ощутим контраст между прошлым Китая и его будущим. Здесь, в современных городах-мегаполисах проживают семьсот миллионов человек. Теперь, когда древние традиции сочетаются с новыми устремлениями, найдется (   Читать дальше...   )Жанр: документальныйПеревод: профессиональный (одноголосый)Продолжительность: 00:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29A35FC5B8350A845DAECFDBC125CC8552D83E69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103295   (885780) от 12.02.2017
 
 Завоеватели мира животных / The Conquerors (2012) HDTVRip [H.264/720p] (серии 1-4 из 4)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:DCEE3C9ADFBEB473EAB98029223208458E04A981
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:DCEE3C9ADFBEB473EAB98029223208458E04A981
 magnet:?xt=urn:btih:F5ADD7C7977118748E3C25124F43CB6CC70233F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:F5ADD7C7977118748E3C25124F43CB6CC70233F0
 ```bash
 magnet:?xt=urn:btih:27F6F2AF3D0FA0B29FCE280F3B2E453C26AEA71D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:27F6F2AF3D0FA0B29FCE280F3B2E453C26AEA71D
 magnet:?xt=urn:btih:9A182FAA8E7108E5A4BA340761AAB9C26FF97FD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:9A182FAA8E7108E5A4BA340761AAB9C26FF97FD6
 ```bash
 magnet:?xt=urn:btih:B99BD3F236235D4941CC690BC756941C7991EC06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:B99BD3F236235D4941CC690BC756941C7991EC06
 magnet:?xt=urn:btih:4D4D5485383DB9ED1ECA732A75289EDAFA4ED8B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:4D4D5485383DB9ED1ECA732A75289EDAFA4ED8B0
 ```bash
 magnet:?xt=urn:btih:A9DEC1996112A7A8A58A2A0A8912A0B287B66572
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:A9DEC1996112A7A8A58A2A0A8912A0B287B66572
 magnet:?xt=urn:btih:A45B5971D61B56923300EFB44E548DBC7996404A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ Discovery. Внутри космической станции / Inside the space
 ```bash
 magnet:?xt=urn:btih:2234EC19448F83480E36A9D1D5A3AA44663200C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:2234EC19448F83480E36A9D1D5A3AA44663200C1
 magnet:?xt=urn:btih:6442ED5A0278263C0A3CC670AB46A3A9A342ACC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:6442ED5A0278263C0A3CC670AB46A3A9A342ACC6
 ```bash
 magnet:?xt=urn:btih:94DDE25CED6FFDFD34A331EE20F9F8BFCEEAEE7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:94DDE25CED6FFDFD34A331EE20F9F8BFCEEAEE7D
 magnet:?xt=urn:btih:934BBDDB194AA8A46202CC291B452946F2C4EA74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +357,8 @@ magnet:?xt=urn:btih:934BBDDB194AA8A46202CC291B452946F2C4EA74
 ```bash
 magnet:?xt=urn:btih:6E2715FCC0CFF73693F765BD46FF40AE94F7CFCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:6E2715FCC0CFF73693F765BD46FF40AE94F7CFCA
 magnet:?xt=urn:btih:077E52DBC4AD7C02C3F68C07FC0911D5C662741A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +409,8 @@ magnet:?xt=urn:btih:077E52DBC4AD7C02C3F68C07FC0911D5C662741A
 ```bash
 magnet:?xt=urn:btih:28EBD11CB3E81E85507C85A7CBF82FF4E30E1B83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:28EBD11CB3E81E85507C85A7CBF82FF4E30E1B83
 magnet:?xt=urn:btih:804A9768ADE68186A379E19F605AB41AAC104299
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +461,8 @@ magnet:?xt=urn:btih:804A9768ADE68186A379E19F605AB41AAC104299
 ```bash
 magnet:?xt=urn:btih:8494B0B868E4D01ED0C880150C764EFA56399F5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:8494B0B868E4D01ED0C880150C764EFA56399F5F
 magnet:?xt=urn:btih:29BEA2C3E2EE2DFD30CB847A842256CC1D1C6383
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +513,8 @@ magnet:?xt=urn:btih:29BEA2C3E2EE2DFD30CB847A842256CC1D1C6383
 ```bash
 magnet:?xt=urn:btih:A40DF34B2621292CBC2542874680C9149E408F87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +540,8 @@ Gimme Danger. История Игги и The Stooges / Gimme Danger (2016) BDRip
 magnet:?xt=urn:btih:4EEFA13C8F28FF71077E18930DF0280005948087
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +565,8 @@ magnet:?xt=urn:btih:4EEFA13C8F28FF71077E18930DF0280005948087
 ```bash
 magnet:?xt=urn:btih:BD3B4DFD1DDD5E9D1349DE767CC8C13BBB3C35D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +592,8 @@ magnet:?xt=urn:btih:BD3B4DFD1DDD5E9D1349DE767CC8C13BBB3C35D2
 magnet:?xt=urn:btih:C00210D38138C2853869CAF88DE47010BE42BEA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +617,8 @@ magnet:?xt=urn:btih:C00210D38138C2853869CAF88DE47010BE42BEA1
 ```bash
 magnet:?xt=urn:btih:BC9F9BDA29F59C239CEC55D80ADDF78B0DF7BF0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +644,8 @@ magnet:?xt=urn:btih:BC9F9BDA29F59C239CEC55D80ADDF78B0DF7BF0C
 magnet:?xt=urn:btih:81D15C45275AFE16F806DF10591250E01FF3F2A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,29 +670,7 @@ magnet:?xt=urn:btih:81D15C45275AFE16F806DF10591250E01FF3F2A3
 magnet:?xt=urn:btih:FBB456F0A3C08B08299E5FF61C0EA31B682EC6CB
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103177   (887487) от 11.02.2017
-
-Битва экстрасенсов (2017.02.11) SATRip  (сезон 17, выпуск 22)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887487.jpg" />
-</div>
-
-
-###  Подробнее
-
-С 3 сентября на ТНТ стартует долгожданный 17-й сезон «Битвы экстрасенсов» — самого мистического, непредсказуемого и загадочного проекта российского ТВ. Масштабный кастинг, новые яркие участники и высокие технологии в мире экстрасенсорики. Новый сезон обещает стать самым необычным и удивительным в истории шоу. «Мне бы очень хотелось, чтобы в новом сезоне экстрасенсы (   Читать дальше...   )Телекомпания: ТНТЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:21:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B429A4ADEF6C2307A4F575F10591B4A11FF7430
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Fall of Light (2017) [Ru/Multi] (1.50c) Repack Other s [Darkest Edition]
 magnet:?xt=urn:btih:42B9DE74391A7B27111682C1BBC8B290DE40BD90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ We are the Dwarves (2016) [Ru/Multi] (1.0/upd8/hf) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:84D12B47362DEDA3D0723A4FB0CA29AD18B77F8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Serpent Rogue — это приключенческий экшен, в ко�
 magnet:?xt=urn:btih:684860C6ADFC3036837623AF7E448436BE8DD50E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ For The King — это стратегическая RPG, которая соч�
 ```bash
 magnet:?xt=urn:btih:ADFC7C978AC5774366E039FB497C0F73CC72ACCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Grimshade — это история компании героев, волею с
 magnet:?xt=urn:btih:56B49C877C50A743CFE82C871AB73772B02E5A36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The Bard's Tale (2004) [Ru/Multi] (2.7.2.7) License GOG
 ```bash
 magnet:?xt=urn:btih:BB591CBE6BBE9E479B7B538251E989CA240A819E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Sudeki – это мир, разделенный на свет, тень и ть
 magnet:?xt=urn:btih:B2D5CAC3462D338D4B1E764A61D7CD61D377D067
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Shadowrun: Dragonfall - Director’s Cut - самостоятельный рел
 ```bash
 magnet:?xt=urn:btih:A95C0D95641AD6319161EF628D9809668213A4AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Bastion — ролевая игра с принципиально новым в�
 magnet:?xt=urn:btih:375083DFAF1C2589525602CB888C35FA8DB0A211
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Xanadu – это ещё одна древняя серия Action RPG от Falc
 ```bash
 magnet:?xt=urn:btih:A21A2C7117B444D167AE830E2AEDE81CD8BA497A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Ghost of a Tale рассказывает историю отважного мы�
 magnet:?xt=urn:btih:298A3AD619D872BE02CCD1908EA3B834FE0A1442
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Bastion — ролевая игра с принципиально новым в�
 ```bash
 magnet:?xt=urn:btih:0FAFF4C609BC881EA3751DB82A0A60C335B8CB5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Bastion — ролевая игра с принципиально новым в�
 magnet:?xt=urn:btih:6F385EDAB6F23D418D185051C20F0E7A4B9A43F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Medieval Dynasty (2021) [Ru/Multi] (1.3.0.5) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A77206C31D7E4BA42A3B33727759CEB46D5C57EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Forgotten Realms: The Archives - Collection Two (1988-1993) [En] (1.0/1.3/1.2/1.
 magnet:?xt=urn:btih:3FC95089AA3EB55A9B0866BD301DB84130E5D913
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Grim Dawn — духовный наследник Titan Quest, который с
 ```bash
 magnet:?xt=urn:btih:02DD866353FF3C9467E356E29C9A893AF8C07CD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ South Park: The Fractured but Whole, сиквел знаменитой игры 
 magnet:?xt=urn:btih:13B9B8D8BECF1A3609BB103C6742047D23C2C56B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Book of Demons — это гибрид Hack & slash и карточной игр
 ```bash
 magnet:?xt=urn:btih:B83EB58620349608821EA9D0C2D533680B4C2495
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Seven: The Days Long Gone - изометрическая ролевая игра
 magnet:?xt=urn:btih:397AF4015CEC14DBF671117A31E7E7DDE4939835
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Final Fantasy XV / Final Fantasy 15 (2018) [Ru/Multi] (1138403/dlc) Repack R.G. 
 ```bash
 magnet:?xt=urn:btih:0C282F34CA7D80D6EC9FB8A095BAF6A8B354810C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ I Am Setsuna расскажет трогательную и печальную �
 magnet:?xt=urn:btih:7EB933831524A1D21311CC4F6ED0D64BB13E5B42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ I am Setsuna (2016) [En/Ja] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:4E0AD321B402BA7EB9DE9123F5D93683111C1049
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Mugen Souls (2015) [Ru] (1.03/dlc) Repack Other s
 magnet:?xt=urn:btih:81576D840CF4722E3C634129BDF80AB15A9078E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ We are the Dwarves (2016) [Ru/Multi] (1.0/upd8/hf) License GOG
 ```bash
 magnet:?xt=urn:btih:AD37CA8EE1E7468175B2482DB44A4CFCF2CF490D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Grimshade — это история компании героев, волею с
 magnet:?xt=urn:btih:BFCF8795814C76B0C66DBEB51891DB461AC4D061
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ EARTHLOCK (2018) [Ru/Multi] (1.0.6) Repack Other s
 ```bash
 magnet:?xt=urn:btih:35C164327F18DA6D5EAEED712EE926CF6A04618D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

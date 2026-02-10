@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:727F43A5975C9AA4F3DDD912474E1AD4233885B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:727F43A5975C9AA4F3DDD912474E1AD4233885B0
 ```bash
 magnet:?xt=urn:btih:1524DF726967D0CCAD50BB3E580392E5FB932ABC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Prada и чувства / From Prada to Nada (2011) [1080p] BDRip
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Cleanse Uninstaller — системная утилита, разработан�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Cleanse Uninstaller — системная утилита, разработан�
 ```bash
 magnet:?xt=urn:btih:7B0F9BAA3DE010D0F7BFA2B2EA455BBE418ADD33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ TwistedBrush Open Studio - бесплатный графический реда�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ TwistedBrush Open Studio - бесплатный графический реда�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Vinux это ремастеринг версия дистрибутива Ubuntu
 magnet:?xt=urn:btih:70F279CE28DAB8EA33EFAC72BE1A4A96D1062CB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:70F279CE28DAB8EA33EFAC72BE1A4A96D1062CB2
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ VA - Cafe de Flore- Rendez-Vous a Saint-Germain-des-Pres (2003,2005) Volume 1 & 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ Zoom Player - мощный мультимедийный плеер, работа
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ Zoom Player - мощный мультимедийный плеер, работа
 magnet:?xt=urn:btih:9AA83F72B012DC7BE21BE90103CBCB972C07CEE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:9AA83F72B012DC7BE21BE90103CBCB972C07CEE0
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +373,8 @@ TwistedBrush Pro Studio - программа для художников. Она
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +409,8 @@ Pitbull - Original Hits (2012) [MP3|~245 кб/с ]<Rap, RnB, Hip-Hop>
 magnet:?xt=urn:btih:AD9C9D303CDF8DD2DC9425378541D27348801D06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +438,8 @@ Nick Menza -- drums & bkg vocalsПеревод: ОтсутствуетПродо
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +464,8 @@ Nick Menza -- drums & bkg vocalsПеревод: ОтсутствуетПродо
 ```bash
 magnet:?xt=urn:btih:B2381583524CD8484556A5AA36829E56155A3C3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +499,8 @@ CD1 - Evil: (01:17:42)
 magnet:?xt=urn:btih:D02C47CC545925BD301B9519835587013AE6787B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +531,8 @@ MAYWEATHER vs. COTTO / WBA SUPER WELTERWEIGHT TITLEПеревод: Одного�
 magnet:?xt=urn:btih:6B85856B8158984C9FEA5103F6C709D739CE0979
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +557,8 @@ magnet:?xt=urn:btih:6B85856B8158984C9FEA5103F6C709D739CE0979
 magnet:?xt=urn:btih:1082E3F64877FE974C2543B3BBD267FC8FD49DD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +582,8 @@ magnet:?xt=urn:btih:1082E3F64877FE974C2543B3BBD267FC8FD49DD2
 ```bash
 magnet:?xt=urn:btih:1FC4CC79579D2E6580E2A7637BE8FB84704B31F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +617,8 @@ Bastion — ролевая игра с принципиально новым в�
 magnet:?xt=urn:btih:9F7022BC7CDC3D4BB1AC28C4A3480E8F14D6E31B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +651,8 @@ Microsoft Process Monitor 3.01 [Eng & Rus]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +676,8 @@ Microsoft Process Monitor 3.01 [Eng & Rus]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -655,6 +703,8 @@ Crystal TV - программа для просмотра онлайн теле�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -679,6 +729,8 @@ Resident Evil: Operation Raccoon City — классический шутер о
 ```bash
 magnet:?xt=urn:btih:D2244B6BBF63A1C6E151AE82B580865CAC725294
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

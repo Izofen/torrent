@@ -19,6 +19,8 @@ Udemy | Парсеры, роботы, автоматизация, Selenium, Phan
 magnet:?xt=urn:btih:E903274B92FB88F88FB1F931C76788258DD7CA24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:E903274B92FB88F88FB1F931C76788258DD7CA24
 magnet:?xt=urn:btih:72683A4886971921F09AD328E065E42203CF372B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:72683A4886971921F09AD328E065E42203CF372B
 ```bash
 magnet:?xt=urn:btih:14C31C6A8AF4E7063307C269242598962ADA92C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ I. Musical Demonstration Section: Classical
 magnet:?xt=urn:btih:4B9FB46C50AC457080CCCE4DB3E0ADACE17AE624
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Depeche Mode - All That Glitters  (2008) [MP3|320 kbps]<Electronic>
 magnet:?xt=urn:btih:8482D13ACF88CED4F39B0C0CA594C2DCA301128B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:8482D13ACF88CED4F39B0C0CA594C2DCA301128B
 ```bash
 magnet:?xt=urn:btih:6C0B3698B2BA8A2B205D246C9442B8DAB8023072
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ Mozart - Classics London Symphony Orchestra (2005) [MLP 5.1 48/24 |DVD Audio]<cl
 magnet:?xt=urn:btih:F6B5ED2EFD2A7DDA37AEA36AF5E8E209F5CAAACD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:F6B5ED2EFD2A7DDA37AEA36AF5E8E209F5CAAACD
 magnet:?xt=urn:btih:AEA446ADE69F864E36E3B266FD80EB1B55250D24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:AEA446ADE69F864E36E3B266FD80EB1B55250D24
 ```bash
 magnet:?xt=urn:btih:5279BC429BF1C88B23E253F49BC10C403965C569
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:5279BC429BF1C88B23E253F49BC10C403965C569
 magnet:?xt=urn:btih:60705DB4AE8ED1F91A6F516086AAFD3B76AA4D6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:60705DB4AE8ED1F91A6F516086AAFD3B76AA4D6B
 ```bash
 magnet:?xt=urn:btih:5C6C1D4987F37C20C50B98AEDB04C9C6077202E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:5C6C1D4987F37C20C50B98AEDB04C9C6077202E3
 magnet:?xt=urn:btih:281AE9AD8391691CFE953C28AC4CA7BBFEC90141
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:281AE9AD8391691CFE953C28AC4CA7BBFEC90141
 magnet:?xt=urn:btih:042D54D04430E4B5CF16E989520F9C8535E4F000
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:042D54D04430E4B5CF16E989520F9C8535E4F000
 ```bash
 magnet:?xt=urn:btih:0EA1260276ADA09F26789339977C3E63A34B529B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ magnet:?xt=urn:btih:0EA1260276ADA09F26789339977C3E63A34B529B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:0EA1260276ADA09F26789339977C3E63A34B529B
 ```bash
 magnet:?xt=urn:btih:59DCA847E9F3421EAC69DD40E27D5B8AABBAAFB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +460,8 @@ Nine Inch Nails - The Downward Spiral (2004) [MLP 5.1, 2.0 48/24 |DVD-Audio]<Ind
 magnet:?xt=urn:btih:3B0E74282D3C580536BC6009D9EA1E0503D5EF00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ magnet:?xt=urn:btih:3B0E74282D3C580536BC6009D9EA1E0503D5EF00
 ```bash
 magnet:?xt=urn:btih:C8DF45624EE4743303E5252F5919B15008C02CEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +512,8 @@ ProfIT | PhpStorm для самых маленьких (2018) PCRec [H.264/720p-
 magnet:?xt=urn:btih:B8A2943696F5934635D6C416F0566DA1C3D5FB64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +538,8 @@ magnet:?xt=urn:btih:B8A2943696F5934635D6C416F0566DA1C3D5FB64
 magnet:?xt=urn:btih:7BF4AD361A6AE987905F9D205AA8253CF2BA32F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ The Council — ни на что не похожая эпизодическая 
 ```bash
 magnet:?xt=urn:btih:D43B35232C6003E9F07F80A7583DF116DCC6E64C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +593,8 @@ Gregorian - Best Of 1990-2010 (2011) [FLAC (Image+.CUE), lossless]<New Age>
 magnet:?xt=urn:btih:4EAC844C1BDF61496FB5426A2B382104CD888BB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ magnet:?xt=urn:btih:4EAC844C1BDF61496FB5426A2B382104CD888BB9
 ```bash
 magnet:?xt=urn:btih:7F9DB5388BE211BD17494ECDAE359F2DC52AE791
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:7F9DB5388BE211BD17494ECDAE359F2DC52AE791
 magnet:?xt=urn:btih:5748EE1A153F47F3C7C39913C5C9CA95C987FE5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:5748EE1A153F47F3C7C39913C5C9CA95C987FE5C
 ```bash
 magnet:?xt=urn:btih:93A1B8A2C03A0535585DCA3A12E02748161F619F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +699,8 @@ Kartsy Hatakka & Kimmo Kajasto - Max Payne 2: The Fall Of Max Payne (Original So
 ```bash
 magnet:?xt=urn:btih:09F6B104ABBD96124AA08870AA2E5FD9D63C703B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

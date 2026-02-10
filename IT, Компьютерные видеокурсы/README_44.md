@@ -20,6 +20,8 @@ Diodov.net, Дмитрий Забарило | Программирование �
 magnet:?xt=urn:btih:50700D3F5207B0767709F77504844C7C6C6BFBF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:50700D3F5207B0767709F77504844C7C6C6BFBF4
 ```bash
 magnet:?xt=urn:btih:3F81A2D33813ACA4BE8B6325257710D4E409C290
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ plc-edu, Дмитрий Громов | Прикладной курс по АСУ
 magnet:?xt=urn:btih:2FA0A88EDB903B8E27DC4210259611A3F035C9C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:2FA0A88EDB903B8E27DC4210259611A3F035C9C8
 magnet:?xt=urn:btih:F80E273CA37CE7AF0F9AAD2F05986D1B24B010CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:F80E273CA37CE7AF0F9AAD2F05986D1B24B010CA
 ```bash
 magnet:?xt=urn:btih:9CBAD098CAB8E32F66CCD0AC57531B38DF6001AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ n4e.ru | Docker (2023) WEB-DL [AD] [RU]
 magnet:?xt=urn:btih:F56D5BF56339C8749F12968769E82CDC212972AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Network for Everyone (NFE, N4E), Алексей Гусев | Подписка у
 magnet:?xt=urn:btih:D4C98CC94AF96CA52F07BC0D7D8B1C91EC6AFE30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Thinknetica, Роман Спиридонов | Асинхронный Python: к
 ```bash
 magnet:?xt=urn:btih:CA152BC1EE8137E0B46E50FEC7BCBCF5706AFAC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ Network for Everyone (NFE, N4E), Алексей Гусев | Подписка у
 magnet:?xt=urn:btih:DA724E1AC068A7699A0E3BF11C983A2496C6986C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ Node.js - это среда выполнения JavaScript, которая ис
 ```bash
 magnet:?xt=urn:btih:FE4DA4F2B7B4BD9E9569A9F26A27D5B8A385B7C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ Udemy, Mefodiy Kelevra | OSINT и профессиональное исполь�
 magnet:?xt=urn:btih:06CAC2342C53E5EBA2E84BE5D875B102F50E8A32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:06CAC2342C53E5EBA2E84BE5D875B102F50E8A32
 ```bash
 magnet:?xt=urn:btih:75986E3B7D0AC88F3CD416DA19CB2407DE1291BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +350,8 @@ Udemy, Иван Петриченко | WEB-разработчик (2023) WEB-DL 
 magnet:?xt=urn:btih:E3D90D86124101D58E33FCE824FE2423D0FD930E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ Udemy, Антон Ларичев | JavaScript Advanced - продвинутые 
 ```bash
 magnet:?xt=urn:btih:FA13C1E58ECB3646956648478387D0A8404EB5DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ IP-PBX Астериск совершила революцию в области 
 ```bash
 magnet:?xt=urn:btih:B41FB636268565111C8E807651DA22986D95B860
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ Excellentschool, Ольга Базалева | Интерактивные даш
 magnet:?xt=urn:btih:416DB42F6A06D92A683ECC7B14C97F7C8B6F868F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +457,8 @@ javascript.ru, Владимир Шевчук | Мастер-класс по ар
 ```bash
 magnet:?xt=urn:btih:FD9A66597A67EB3625A921F25AF1BD5DA9D9BDE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ Stepik, Руслан Шишмарев | C# WPF. Создание оконног�
 ```bash
 magnet:?xt=urn:btih:80B490536FE8BC8EF6F62CE75BB5BC808426869B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ Vlad Ten | System Design (2025) WEB-DL [RU]
 magnet:?xt=urn:btih:747A6FFA88ADD68A5D5FC0FD9BAB83A75558CCF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ ProFinansy, Наталья Котовская, Вероника Войнова |
 magnet:?xt=urn:btih:0258EFDC710B5AD9114320A9A61268616D2333CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ Stepik, Андрей Ловыгин | Планета ЧПУ (2020) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:3CDA3214485743E368B6FA456DDFE0B29CBEBCE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +595,8 @@ Orion Soft | Обучающий курс по ZVirt (2024) PCRec [RU]
 magnet:?xt=urn:btih:C759274E7E58613063B51D5F12C558BA6A1B4A02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +620,8 @@ ITVDN, Дмитрий Афанасьев | Разработка графичес
 ```bash
 magnet:?xt=urn:btih:98681F37520D2084E2AEA2E628CB585E17FFC8BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +648,8 @@ OTUS, Алексей Александров | Применение электр�
 magnet:?xt=urn:btih:45F6949787ABD78FF4D3615082C2B587612CFB0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +673,8 @@ magnet:?xt=urn:btih:45F6949787ABD78FF4D3615082C2B587612CFB0E
 ```bash
 magnet:?xt=urn:btih:C5DF0780F67FD3F01474A186D9467A5A59B76CD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -651,6 +701,8 @@ Udemy, Richard Wells | Unit Testing and Test Driven Development in Python (2019)
 ```bash
 magnet:?xt=urn:btih:8A153FE822E003087E430A35F7328C28DA0F251A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

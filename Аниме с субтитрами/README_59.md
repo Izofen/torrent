@@ -1,3 +1,29 @@
+###  Публикация: 942571   (453099) от 01.10.2015
+
+Okusama ga Seito Kaichou! / My Wife Is the Student Council President! / Моя жена – президент студсовета! [2015, TV, 12] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой – Идзуми Хаято, баллотировавшийся в президенты студсовета, но проигравший появившейся из ниоткуда красотке, которая кидала в аудитории презервативы и обещала свободную любовь. На первом же собрании обновлённого совета новоиспечённая президентша (её, кстати, зовут Уи Вакана) напрашивается в гости к Идзуми, который стал вице-президентом, и там немедленно (   Читать дальше...   )Производство: SevenЖанр: комедия, школа, эттиРежиссер: Фурукава ХироюкиЯзык субтитров: Русский (отключаемый)Продолжительность: 12 серий по 10 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E410381C5064241B54AFF3E75213ADD094DF4086
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 689916   (453213) от 28.09.2013
 
 Kami nomi zo Shiru Sekai: Megami Hen / The World God Only Knows: Goddesses Arc / Одному лишь Богу ведомый мир [ТВ-3] [2013, TV, 12 эп.] HDTV 720p raw
@@ -18,6 +44,8 @@ Kami nomi zo Shiru Sekai: Megami Hen / The World God Only Knows: Goddesses Arc /
 ```bash
 magnet:?xt=urn:btih:D773BEAEA2F366FE066B6E77D84E03D9C36761CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ Seisenshi Dunbine: New Story of Aura Battler Dunbine | Aura Battle Dunbine: The 
 magnet:?xt=urn:btih:19DD305451469AE48AEDECB591CA1B818FCF9069
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ Log Horizon | Лог Горизонтa [TV-1][2013, TV, 25 эп.] BDrip 1080p ra
 ```bash
 magnet:?xt=urn:btih:C30AB4EC50959BDA6A15FCABB4BC2690AD740AA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ Plunderer | Грабитель [2020, TV, 24 из 24] BDRip 1080p HEVC 10-bit ra
 magnet:?xt=urn:btih:7B80980384A0B638BB46C2D40DFEF59030212DEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ Neppu Kairiku Bushi Road | Neppuu Kairiku Bushi Road | Burning Wind Ocean Earth 
 magnet:?xt=urn:btih:F5A7BD861513A3175A8D32FF98725E51AE38F3F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +174,8 @@ Non Non Biyori Repeat / Прекрасные деньки [2015, TV, 12] HDTV 72
 ```bash
 magnet:?xt=urn:btih:67656294147C55FFB2E7C1A095A362BADADC5D5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ Watashi ga Motenai no wa Dou Kangaete mo Omaera ga Warui! / WataMote / Не мо
 magnet:?xt=urn:btih:7B19A44B25C7C2A08C5C8D2CABD335A891EB9FE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ Prison School / Школа-тюрьма [2015, TV, 12 из 12] HDTV 720p raw
 ```bash
 magnet:?xt=urn:btih:404F989591C338319BDC5B3A21CD42CCB3082B74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ Monster Musume no Iru Nichijou / Everyday Life with Monster Girls / Повсед
 magnet:?xt=urn:btih:47C9334BAC78BE4FAE8B0BE56197C03AC20F2B83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ Princess Tutu | Принцесса Тютю [2002, TV, 38 + 3] BDRip 1080p raw
 ```bash
 magnet:?xt=urn:btih:00B6F03E08EE91022AEC059C354AD55665D8A825
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ Garou Densetsu / Fatal Fury / Фатальная ярость [1992/1993/1994, M
 magnet:?xt=urn:btih:0DC8CB6CC6385D4201399F5F2A16906E446F4DD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ Mai-HiME / My-Hime / Май-Химэ TV [2004, TV, 26  эп. + 26 сп.] DVDRip 
 magnet:?xt=urn:btih:F317856279F98C43A2B4611E3139B92C25476B63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ Aa! Megami-sama! OVA / Ah! My Goddess! OVA / Моя богиня! OVA [1993, 5 �
 ```bash
 magnet:?xt=urn:btih:6EDC850A6B83D5A5D895C0973511C800FB5839D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ Gekijouban Hibike! Euphonium | Sound! Euphonium The Movie | Играй, эуфо
 magnet:?xt=urn:btih:3225873233E133E6E804AB8C89CF74D6B4550EDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +412,8 @@ Gundam G no Reconguista / Гандам: Возвращение на G [2014, TV,
 ```bash
 magnet:?xt=urn:btih:894412D588D50BFFDF658273C1EA63A063377F0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +439,8 @@ Akai Koudan Zillion: Utahime Yakyoku | Red Photon Zillion: Burning Night | Кр�
 magnet:?xt=urn:btih:F204E046514B3E7EF226FE6E18FE69419800B587
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +464,8 @@ Akai Koudan Zillion | Red Photon Zillion | Красный фотон Зилли�
 ```bash
 magnet:?xt=urn:btih:F870B75155CD59456707270FE5B6DD7DBDAC73C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +491,8 @@ Danchigai / Big Difference / Большая разница [2015, TV, 12 + OVA] 
 magnet:?xt=urn:btih:6614AC675FC5C819C8E6C52DB90C9D47634DA8AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +516,8 @@ Danganronpa 3 Zetsubou Hen | Danganronpa 3: The End of Hope's Peak High School -
 ```bash
 magnet:?xt=urn:btih:FACD350707B266CD3EA5D278B18B7B401ECADDCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +543,8 @@ Amon Devilman Mokushiroku / Amon: The Apocalypse of Devilman / Амон: Апо�
 magnet:?xt=urn:btih:1DA7084EFC7AE0DD368C3E81AB2771CC224CBB1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +568,8 @@ Devilman: Tanjou Hen / Devilman - The Birth / Человек-дьявол OVA-1 
 ```bash
 magnet:?xt=urn:btih:9A6AB9DDA6F38A44394A16B82C110FCCE0E385BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +595,8 @@ Nozo x Kimi | Нодзоми и Кимио [2014, OVA, 3 из 3] DVDRip 576p raw
 magnet:?xt=urn:btih:8C96B85AD9922B5DDAE1391D3AA257154A9F9306
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +620,8 @@ Ore ga Ojou-sama Gakkou ni "Shomin Sample" Toshite Gets-sareta Ken | Прост�
 ```bash
 magnet:?xt=urn:btih:01051F7F6E0CA7C1BBAB61E3CE2060B8EA66387B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +648,8 @@ Gekijouban Hibike! Euphonium / Sound! Euphonium The Movie / Играй, эуфо
 magnet:?xt=urn:btih:F0DC53DC8AA1DA0B248EDF1E4EDEA468BFD6CD64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,29 +674,7 @@ Kurokami The Animation | Black God | Тёмная богиня [2009, TV, 23 э�
 magnet:?xt=urn:btih:02D2BDCCED901D4FFFB5C078D002A23F587E957F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568333   (463950) от 07.08.2022
-
-Ore ga Ojou-sama Gakkou ni "Shomin Sample" Toshite Gets-sareta Ken | Простолюдин в школе благородных девиц [2015, TV, 12 эп.] BDRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женская школа Сэйкайн воспитывает дочерей японской элиты, да вот беда – жизнь и обучение там застряли в галантной эпохе Тайсё. Утонченные выпускницы не могут адаптироваться в реальности, полной непонятной техники и грубых невежд. Решение нашлось быстро – старшеклассника Кимито Кагурадзаку взяли под белы руки, привезли и объяснили, что отныне он – образец простолюдина, (   Читать дальше...   )Производство: Студия Silver LinkЖанр: комедия, романтика, эттиРежиссер: Дзимбо МасатоПеревод: Dreamers Team & Komugi-chan & GeraleЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин. + 6 SP по 4 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10187DDE0B5BBDDAD598FBBE3EB15EF4F7F4E230
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

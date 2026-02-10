@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:4F06008767E19BBB72183F039C48BF8C40E513D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:4F06008767E19BBB72183F039C48BF8C40E513D5
 ```bash
 magnet:?xt=urn:btih:82AC36EA9344D2CC0D47174D74F4994C91661A58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Under Ninja | Иные ниндзя [2023, TV, 12 эп.] WebRip 720p raw
 magnet:?xt=urn:btih:22057166577CD3408369FD6440D110AFF08EBFC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Tate no Yuusha no Nariagari Season 3 | The Rising of the Shield Hero Season 3 | 
 ```bash
 magnet:?xt=urn:btih:1A6B691B73B27EF173C14A874AD32063BF1DC30E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ WebStorm - Легкий, но мощный IDE, прекрасно оборуд�
 magnet:?xt=urn:btih:C2359CA5E47D858515900D0E67C6FB78CEFF4DCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:C2359CA5E47D858515900D0E67C6FB78CEFF4DCE
 ```bash
 magnet:?xt=urn:btih:4F34C30B9A10FCAEAB2B8E1062CE1A06FA3A12C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:4F34C30B9A10FCAEAB2B8E1062CE1A06FA3A12C1
 magnet:?xt=urn:btih:2E4602226F365EF3DDCFE87405EB05EF3229EDAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:2E4602226F365EF3DDCFE87405EB05EF3229EDAC
 ```bash
 magnet:?xt=urn:btih:0023DAC3696299E9F961C4BD16370929239A2D97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:0023DAC3696299E9F961C4BD16370929239A2D97
 magnet:?xt=urn:btih:526C4952633EC6C6CA788FA99916F78879FACA03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:526C4952633EC6C6CA788FA99916F78879FACA03
 ```bash
 magnet:?xt=urn:btih:BC8D8A4F5EA9ECFB97B4EB91CE57A4BE4D481420
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:BC8D8A4F5EA9ECFB97B4EB91CE57A4BE4D481420
 magnet:?xt=urn:btih:B62C5D6A077BBEB15DAFCD9AB6A101FF156E9C96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:B62C5D6A077BBEB15DAFCD9AB6A101FF156E9C96
 ```bash
 magnet:?xt=urn:btih:C94AB20B1A899DF3B9DD29DE54686CEF44BD738E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:C94AB20B1A899DF3B9DD29DE54686CEF44BD738E
 magnet:?xt=urn:btih:FD93DE917609FB212D93A5A28499619339289D15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:FD93DE917609FB212D93A5A28499619339289D15
 ```bash
 magnet:?xt=urn:btih:1F12DD62039F9B56EE6E2DC77D53BCA70DD41622
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:1F12DD62039F9B56EE6E2DC77D53BCA70DD41622
 magnet:?xt=urn:btih:4BB52F31E6C5FF156787313484E203AC45FA4870
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Hametsu no Oukoku | The Kingdoms of Ruin | Королевство руин [2023
 ```bash
 magnet:?xt=urn:btih:6A234CD6F695E758E0A62828BB60CF6A6C37BBB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:6A234CD6F695E758E0A62828BB60CF6A6C37BBB3
 magnet:?xt=urn:btih:33F4F2DCBC86FC82D56B5D8E1BA003FD3A12B69F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:33F4F2DCBC86FC82D56B5D8E1BA003FD3A12B69F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:33F4F2DCBC86FC82D56B5D8E1BA003FD3A12B69F
 magnet:?xt=urn:btih:1379B62CED554A7CDB76A05807FCD49169A5FDAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Need for Speed Hot Pursuit - это ваш пропуск в новый откр
 ```bash
 magnet:?xt=urn:btih:26C4CEB4778A8D511FF6F48D1868F37CFD44450A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:26C4CEB4778A8D511FF6F48D1868F37CFD44450A
 magnet:?xt=urn:btih:FA9B560FDC41EFEB4897BD49B3187BB3360B49F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ magnet:?xt=urn:btih:FA9B560FDC41EFEB4897BD49B3187BB3360B49F5
 ```bash
 magnet:?xt=urn:btih:61E619570338341CB1969F457E0A6E17625FF8C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:61E619570338341CB1969F457E0A6E17625FF8C0
 magnet:?xt=urn:btih:0081DE307DF4585351DE18BE86C498907BE8E599
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:0081DE307DF4585351DE18BE86C498907BE8E599
 magnet:?xt=urn:btih:F6643E69662A61E919369A0CB4760A2B2B94B7CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ magnet:?xt=urn:btih:F6643E69662A61E919369A0CB4760A2B2B94B7CF
 ```bash
 magnet:?xt=urn:btih:B8A833D48B7FD4CAC35AF06C93359BD26638C169
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:B8A833D48B7FD4CAC35AF06C93359BD26638C169
 ```bash
 magnet:?xt=urn:btih:A76D9E5E760340584356740C4F945956E8E0369F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

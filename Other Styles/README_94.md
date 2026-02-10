@@ -28,6 +28,8 @@ OST Трансформеры 3: Тёмная сторона Луны / Transform
 magnet:?xt=urn:btih:6E411B4BBE6E7F5515EF97792280D3175A4C0057
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ Tony Lasley - Native Soul (1995) [MP3|320 кб/с]<Native American, New Age, Wor
 ```bash
 magnet:?xt=urn:btih:0759E9671B259BCD86479CB8DE04C94740FCD079
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -88,6 +92,8 @@ Christopher Franke - Enchanting Nature (1994) [MP3|192 kbps]<Relax>
 magnet:?xt=urn:btih:DE57AD6B2E1DC86A789984355B5BF0EDE139EE59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +120,8 @@ Allegro Milano - Allegro Milano plays Simon and Garfunkel (1992) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:C14130395253D20C3ED7E41C05AE1BFF4B991311
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +150,8 @@ Allegro Milano - Allegro Milano Spielt Die Schönsten Weihnachtslieder (1993) [F
 magnet:?xt=urn:btih:0CDD4636421D921A1386DE514B2F06807E46703D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +178,8 @@ Henry Jackman - Ralph Breaks the Internet / Ральф против интерн
 ```bash
 magnet:?xt=urn:btih:C87F3F26C3DBFFD9A44F21C25464B7CBC0B1A814
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +208,8 @@ David Hicken - The Art of Piano (2016) [MP3|320 Kbps] <New age, Instrumental, Re
 magnet:?xt=urn:btih:8C605B6E8585DAADFD6773D928B2BC389285C549
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +236,8 @@ Kenio Fuke - Piano e Natureza, Vol. 1-5 (2005-2018) KF Music [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:FA5C02CC3C3D7BBB25D708B91B191D6FB7CACA87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +266,8 @@ Kayo Konishi & Yukio Kondo - Elfen Lied Original Soundtrack (2007) [FLAC|Lossles
 magnet:?xt=urn:btih:BE27D8C544503B0812F2D0BBE4C0EDFE800A36FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +294,8 @@ Vangelis - 11 альбомов (1971-2003) [FLAС|APE|Lossless|image, tracks + .
 ```bash
 magnet:?xt=urn:btih:56F22EFD9E261483613E0B2C2ECE5CD70243214F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +324,8 @@ Giovanni Marradi - The Best of Giovanni (2008) [FLAC|Lossless|WEB-DL|tracks] <Pi
 magnet:?xt=urn:btih:5FE0D41720921B531CEA789DDB8E45C0A59DDB3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +352,8 @@ Amaru Tribe - Between Two Worlds (2022) [MP3|320 Kbps] <Folktronica, World, Folk
 ```bash
 magnet:?xt=urn:btih:71F1D0E02C53A721BF92D4ABD633DE55AE74D803
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +382,8 @@ Allegro Milano - Plays The Hits Of Tina Turner In DDD (1993) [FLAC|Lossless|imag
 magnet:?xt=urn:btih:9C32FC86DF67B1C76E92F43F99776225C648C5EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +410,8 @@ Allegro Milano - Crocodile Rock - Allegro Milano plays Elton John (1992) [FLAC|L
 ```bash
 magnet:?xt=urn:btih:240EC1DC09DA88F5CABBC37C2C54E10898584F0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +440,8 @@ magnet:?xt=urn:btih:240EC1DC09DA88F5CABBC37C2C54E10898584F0C
 magnet:?xt=urn:btih:0B14CFD52EBD63B4D39834DECC4608134FCD4016
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +468,8 @@ Giovanni Marradi - The Best of Giovannii, Vol. 3 (2008) [FLAC|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:5B30AB7B3D77B64F3BD1CCC950D1535C57F37DBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +498,8 @@ Giovanni Marradi - Italian Love Songs (2006) [FLAC|Lossless|WEB-DL|tracks] <Pian
 magnet:?xt=urn:btih:7DAE8247AA1D4FEAE577CD4517BF7C02AF14BA12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +526,8 @@ Giovanni Marradi - The Best of Giovanni, Vol. 2 (2008) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:E12F10D214EB5499D759186E73A42773B3A3461D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +556,8 @@ Valeriy Dolgin - Erektogitara (2013) [MP3|320 Kbps] <Guitar, Instrumental>
 magnet:?xt=urn:btih:4E9493216742E4567BF948BC3A35548724A13133
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +584,8 @@ Evgeny Grinko - Orange Marmalade (2021) [MP3|320 Kbps] <Instrumental, Piano>
 ```bash
 magnet:?xt=urn:btih:4AF9F6C2B454113F08AFC9E79C854769B402D06C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +614,8 @@ Valentina Babor - Piano Princess (2015) [MP3|320 кб/с]<Instrumental, Classica
 magnet:?xt=urn:btih:FA2A43700A4B46CB02A06A1B7BFA1E30DDA65097
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +642,8 @@ Indios de America - Indios de America (2004) [MP3|160 кб/с]<Native american, 
 ```bash
 magnet:?xt=urn:btih:54E1862D0924C48D0D40C7A2D151202AE96613DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +672,8 @@ TYA - Echoes (2015) [MP3|320 кб/с]<New Age, Chillout, World, Tribal>
 magnet:?xt=urn:btih:204AB4D6C2B1A9F5BBA9D0B6D8DE18E7CA229246
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +700,8 @@ Giovanni Marradi - Feelings (1997) [FLAC|Lossless|image + .cue] <Piano, Instrume
 ```bash
 magnet:?xt=urn:btih:01CA82855CCEA686B2F3AD485C7253D1A7447C72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -682,6 +730,8 @@ Spiritu (986) - Spiritu (986) (2000) Legacy Recordings, 2021 Remastered [FLAC|Lo
 magnet:?xt=urn:btih:C21F90E561167B0B278C29E8637C1B4C3CFF80A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -708,6 +758,8 @@ Blackwater - Earth Rhythms Spirit Of The Drum (2006) [MP3|320 кб/с]<Native Am
 ```bash
 magnet:?xt=urn:btih:B15B4183D249E6C8220F50AF50A08DCC58351986
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

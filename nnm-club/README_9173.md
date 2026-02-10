@@ -22,6 +22,8 @@ The Delgados - Universal Audio (2004) [FLAC|tracks+.cue]<Indie Rock>
 magnet:?xt=urn:btih:C65888F2810C09F589304DA7E3EF28FFB30BAF9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ ICE Book Reader - мощная читалка электронных текст�
 ```bash
 magnet:?xt=urn:btih:32E8B84131B5908D49E9F551AA54C3B7B43282A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - Roman Messer Top 10 October - November (2015) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:CDF86958A44AF411D3424393D7AB6CDF1EFB33EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Form Pilot Office — программа для заполнения элект�
 ```bash
 magnet:?xt=urn:btih:3FE00A8A107BDC7C392A1F3C1D9FBFFBB544D612
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ VA - Christmas Escapades (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:5075540277EAD770656EBC118818D9E02417213D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:5075540277EAD770656EBC118818D9E02417213D
 ```bash
 magnet:?xt=urn:btih:341DAEA731F66F655F6B14E673AFB74A2E064910
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ Cachemire - Photochope-moi (2015) [FLAC|Lossless]<Pop-Rock, Hard-Rock>
 magnet:?xt=urn:btih:84055FE1C52D184777F76BD472E4335CE83EC963
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ Mark Cook - Rebel Blues (2015) [MP3|320 кб/с]<Blues Rock>
 magnet:?xt=urn:btih:0F3C6B89D8F4B75088DB07DFF90E6B69E9706B99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:0F3C6B89D8F4B75088DB07DFF90E6B69E9706B99
 ```bash
 magnet:?xt=urn:btih:60E1F4A1D5165C3685EA4B3267B19D8C045D82CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ Mortal Infinity - Final Death Denied (2015) [MP3|320 кб/с]<Thrash Metal>
 magnet:?xt=urn:btih:D552A728F5C6A5551247FFD47E7E58821312E2D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ VA - 10 Years of Nemesis (2015) [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:D3C2F04E44E9BD253063DD308AF4CF81381D9C65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ magnet:?xt=urn:btih:D3C2F04E44E9BD253063DD308AF4CF81381D9C65
 ```bash
 magnet:?xt=urn:btih:1FABEF6BC8B7D12E306F9F93077A1061890CA891
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +356,8 @@ Thomsen - Unbroken (2014) [FLAC|mage +.cue|Lossless]<Heavy, Power Metal>
 magnet:?xt=urn:btih:2A72FCE252AAC003DCFC67174ADD39523A737858
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +385,8 @@ Event Horizon - Naked On The Black Floor (2006) [FLAC|mage +.cue|Lossless]<Progr
 magnet:?xt=urn:btih:0F4FB7594963E3116D36B8A1279B3AE933EA16B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +413,8 @@ Lou Donaldson - Birdseed (1992) Milestone[FLAC|tracks+.cue]<Hard Bop, Soul Jazz>
 ```bash
 magnet:?xt=urn:btih:3610500CCB73FB3EED2C40E5A455ADEF54C04DEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +444,8 @@ magnet:?xt=urn:btih:3610500CCB73FB3EED2C40E5A455ADEF54C04DEF
 magnet:?xt=urn:btih:C7F428AD3E149ED441845C1C024A2B9A656C079C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +471,8 @@ magnet:?xt=urn:btih:C7F428AD3E149ED441845C1C024A2B9A656C079C
 magnet:?xt=urn:btih:507E2AC29659FAD783D81040F4ED0BA64991A74A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +497,8 @@ magnet:?xt=urn:btih:507E2AC29659FAD783D81040F4ED0BA64991A74A
 magnet:?xt=urn:btih:318E2D72FF45FF7118C075CDDBE99B9359559CE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +522,8 @@ magnet:?xt=urn:btih:318E2D72FF45FF7118C075CDDBE99B9359559CE5
 ```bash
 magnet:?xt=urn:btih:53079AE84E6F794E611489C100DB421541DE56C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +550,8 @@ magnet:?xt=urn:btih:53079AE84E6F794E611489C100DB421541DE56C1
 magnet:?xt=urn:btih:779A197CBBB47EC8563211D73D6CE11DC7884C49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +577,8 @@ magnet:?xt=urn:btih:779A197CBBB47EC8563211D73D6CE11DC7884C49
 magnet:?xt=urn:btih:96323D0DE225FFAFF585F53B11528983B8E28A5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +602,8 @@ magnet:?xt=urn:btih:96323D0DE225FFAFF585F53B11528983B8E28A5F
 ```bash
 magnet:?xt=urn:btih:BA732006B39F84264544F7A85EA54C4C1F874510
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +630,8 @@ magnet:?xt=urn:btih:BA732006B39F84264544F7A85EA54C4C1F874510
 magnet:?xt=urn:btih:B4F63E647ABAA1B06BD0FE9CE5AC89643F5D8BC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +655,8 @@ magnet:?xt=urn:btih:B4F63E647ABAA1B06BD0FE9CE5AC89643F5D8BC6
 ```bash
 magnet:?xt=urn:btih:67CE9EC6B013BF536E367D9BA0190694B6C046B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +683,8 @@ magnet:?xt=urn:btih:67CE9EC6B013BF536E367D9BA0190694B6C046B8
 magnet:?xt=urn:btih:EB22FC064B85D67009B8CC8BD36A49E4B2C74ECC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +708,8 @@ magnet:?xt=urn:btih:EB22FC064B85D67009B8CC8BD36A49E4B2C74ECC
 ```bash
 magnet:?xt=urn:btih:EAC73BE169997BEF6B4CFBEAC640FAFFB03ADCE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

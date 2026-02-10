@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:A0525FE60397D75B5CDA0D9A57F7A5517AD800D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:A0525FE60397D75B5CDA0D9A57F7A5517AD800D0
 ```bash
 magnet:?xt=urn:btih:70678A84B269EC7272A47587B19EC0488492CB09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Oracle – самая популярная база данных, которая
 magnet:?xt=urn:btih:98C2AB882D18B01A3096D4E8D1D23DF9B538951C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:98C2AB882D18B01A3096D4E8D1D23DF9B538951C
 ```bash
 magnet:?xt=urn:btih:FF28600CC29E252D63112150C12AF17874E5C127
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:FF28600CC29E252D63112150C12AF17874E5C127
 magnet:?xt=urn:btih:96CF8F4C29286D5F3C2A192A91303281C905581A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:96CF8F4C29286D5F3C2A192A91303281C905581A
 ```bash
 magnet:?xt=urn:btih:6691AF7E99E73651779732D4D6C14B984737CA7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Udemy, Scott Smith | Cisco CCIE Enterprise Infrastructure  (2021) WEB-DL [En / E
 magnet:?xt=urn:btih:589A000B6F5AB12C648626C4DB27D98383217ABA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ ReactJS — популярная JavaScript-библиотека с открыт
 ```bash
 magnet:?xt=urn:btih:2B1F149F662FF30781DB31F72514724725121531
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Kubernetes - самая популярная платформа для орке�
 magnet:?xt=urn:btih:9719E14220221690411B6DF4696CF97CED117A0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Udemy, David Bombal | The Complete Networking Fundamentals Course. Your CCNA sta
 ```bash
 magnet:?xt=urn:btih:8B00DFC3685B508467A756FC2431EDB45C34CE4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ Udemy, Andy Bek | The Ultimate Pandas Bootcamp: Advanced Python Data Analysis  (
 magnet:?xt=urn:btih:23B6FBB7D370EEC3D08860F29D9E9D4A7BDEC732
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:23B6FBB7D370EEC3D08860F29D9E9D4A7BDEC732
 ```bash
 magnet:?xt=urn:btih:6BB09731007C520F4EEF9DF3537D5E6AF410E9E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:6BB09731007C520F4EEF9DF3537D5E6AF410E9E4
 magnet:?xt=urn:btih:7483D7930A8CD45566D7B5755BDCE63A10C30179
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ KNOWLEDGE Syndicate | Архитектура мобильных игр на UNIT
 magnet:?xt=urn:btih:686A259BFCCC9ECA0EC3439B50427D7172F66D98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ Udemy, Stephen Ulibarri | Learn C++ for Game Development in Unreal Engine (2020)
 ```bash
 magnet:?xt=urn:btih:0F80FA7959D2EA3F915844BE595789808B42A0A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:0F80FA7959D2EA3F915844BE595789808B42A0A1
 magnet:?xt=urn:btih:E4074330EC4F899BF874C530AF308319A7939A69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:E4074330EC4F899BF874C530AF308319A7939A69
 ```bash
 magnet:?xt=urn:btih:4C3B857F8E721523030608415921A681A8D83677
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +478,8 @@ Udemy, Gabriel Aguiar | Unreal Engine 4 - VFX for Games - Beginner to Intermedia
 magnet:?xt=urn:btih:0A83EE88A0D2328D3A7D52E03F9096A543A59A4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ magnet:?xt=urn:btih:0A83EE88A0D2328D3A7D52E03F9096A543A59A4F
 ```bash
 magnet:?xt=urn:btih:2344062DB8B54214A1B5E4743EC682AECE8399B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:2344062DB8B54214A1B5E4743EC682AECE8399B2
 magnet:?xt=urn:btih:35BB9E01FD93236F66267252B89EDD0FB084A64F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +556,8 @@ Geekbrains | Blockchain (2017) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:3D43DAB9CF3EEEAE67AE32B5F855EDC10F9737CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +581,8 @@ Udemy, Stephen Ulibarri | Unreal Engine Blueprints - The Ultimate Developer Cour
 ```bash
 magnet:?xt=urn:btih:9E5609FCC5063E90A0448681E9E8CEBE42B8664F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +610,8 @@ HTML и CSS это два самых популярных языка для из
 magnet:?xt=urn:btih:B3187A544C45D835D040BD553D669F4D2A37BAAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ Zend Framework 2 – библиотека классов с открытым и�
 ```bash
 magnet:?xt=urn:btih:4B8903DCDED76A0A9F3C9AD9790F8FF5244847D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +665,8 @@ magnet:?xt=urn:btih:4B8903DCDED76A0A9F3C9AD9790F8FF5244847D8
 magnet:?xt=urn:btih:E94E0C1FDA69DAF2EDDB05FDCA643F30442C7CA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ C# Уровень 2. Продвинутый курс(   Читать дальш�
 ```bash
 magnet:?xt=urn:btih:D9D9016771BCFD0E20BED9E4E6C08DAC0EEE3585
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

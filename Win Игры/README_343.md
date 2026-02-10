@@ -19,6 +19,8 @@ Neptune: Arena FPS (2017) [En] (1.0) License HI2U
 magnet:?xt=urn:btih:DB4D2DCAD8FF7C06A5BA26CB86EBB87A6D8E1690
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Halloween Chronicles 3: Cursed Family (2020) [En] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:D6540B09126858B7CC3A61EDBECC47CA776502BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Maze 3: Nightmare Realm / Лабиринт 3: Царство кошмара (201
 magnet:?xt=urn:btih:5EB86E91E5E9D5440CD9D4C2E546614502B7A794
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Chimeras 6: Blinding Love / Химеры 6: Слепящая любовь (2017)
 ```bash
 magnet:?xt=urn:btih:7672C8AB02AB4D139297B02543CCC25B75DACE35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ European Mystery 3: Flowers of Death / Придворные тайны 3: Цве
 magnet:?xt=urn:btih:114C561C33398A33690A634FBA7FA989E17FBEC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ WARRIORS OROCHI 4 — продолжение серии захватывающи
 ```bash
 magnet:?xt=urn:btih:DDDEF4803A302F93127680F887D4CE94261C569A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ NBA 2K Playgrounds 2 (2018) [Ru/Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:2D8B6B87986CD23B3B1F0CB7EF2CCED74B47B2E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Commandos 3 - HD Remaster – переиздание одноименного и
 ```bash
 magnet:?xt=urn:btih:25A54612EAE5FB3131183BE070E7F8B3837831B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Cuphead – это в прямом смысле слова "классическ
 magnet:?xt=urn:btih:95D764C3060D22F06751096C062ADCEBE0DC0E1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Tinykin (2022) [Ru/Multi] (1.0.7) License GOG
 ```bash
 magnet:?xt=urn:btih:76951A5E4B3FB99AE60AB531046A4549BD270702
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Fahrenheit: Indigo Prophecy Remastered является переизданием
 magnet:?xt=urn:btih:6B21E53391B816B5B42BA38043DC9A10ED298F3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Hack_me – это игра про жизнь обычного хакера. Г�
 ```bash
 magnet:?xt=urn:btih:9898BDB1FE2B320E0F1E823B05BB732DBAD486C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Raiden IV продолжает серию аркадных леталок-стр
 magnet:?xt=urn:btih:C07B84031F9D3C27BEFFC993F898002B9FE2DF13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Ultimate Fishing Simulator (2018) [Ru/Multi] (2.20.9:500/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:358A2E88AC9261DF5D12BA6B1C22C0BC6BC128A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Overland (2019) [Ru/Multi] (840) License GOG
 magnet:?xt=urn:btih:110C08249EBC0A2F2BAE174D133F78924569B552
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Car Mechanic Simulator 2018 делает вызов игрокам. Управл
 ```bash
 magnet:?xt=urn:btih:4F386EC35EE3308EE743CD8FC18269B0195E1712
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Ikenfell (2020) [En] (1.0.1) License GOG
 magnet:?xt=urn:btih:C240E4C117DE1176EFB61C9D3957D26F2DA81E8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Castle Crashers – инди-проект, действие которого р�
 ```bash
 magnet:?xt=urn:btih:E08CA1B56FE0E2C02CB46846E540CF41D45E353C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ Car Mechanic Simulator 2015 — продолжение популярного с
 magnet:?xt=urn:btih:7F7755F3CFA9A52A65AE2191103F550D1668B95A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Grim Tales 19: Heritage / Страшные сказки 19: Наследие (20
 ```bash
 magnet:?xt=urn:btih:75BDEB2999F6ABCF04A729FE95E6DECFD101D46E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Blackguards 2 - это продолжение пошаговой стратег�
 magnet:?xt=urn:btih:027725436749FD70AD950A3ED33E9B7D85338074
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Car Mechanic Simulator 2014 - это, как не трудно догадать�
 ```bash
 magnet:?xt=urn:btih:60A93C799FE69F673E821346143B7BD2547160D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Dark Romance 13: Vampire Origins / Мрачная история 13: Приро�
 magnet:?xt=urn:btih:DDAED639E8B78DB1E209C34B4F07ACAA8B5B2951
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Intruders: Hide and Seek — игра в жанре стелс от первог
 ```bash
 magnet:?xt=urn:btih:B0F0244A4143A290C312E9584246432812EE23D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ Call Of Duty: Black Ops 2 [En/Ru] (CrackFix#2) 2012 | SKIDROW
 magnet:?xt=urn:btih:17A1E39DE88256F84EA4C37363A7994C1E20D2A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Medal of Honor Warfighter (2012) [Ru] (1.0.0.3/dlc) Repack xatab [Limited Editio
 ```bash
 magnet:?xt=urn:btih:25C99C34AE9B33FBDD484ED9B9475321110C9D71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

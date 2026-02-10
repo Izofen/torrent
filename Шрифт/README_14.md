@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:83219B7E4067D237C8C2638AE3EF33DF0F6EC066
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:83219B7E4067D237C8C2638AE3EF33DF0F6EC066
 ```bash
 magnet:?xt=urn:btih:2E2777484EC439558122B63A4DE629BEB21C6BE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Vidal — это широкий гротеск с низким контраст�
 magnet:?xt=urn:btih:C2333EEA67CEA162432312D9BC2B43512F238529
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:C2333EEA67CEA162432312D9BC2B43512F238529
 ```bash
 magnet:?xt=urn:btih:07540A91E98DADF9B8CAA4F14A2661AFF320812F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ VLNL Agitka придает этот крепкий, геометрический
 magnet:?xt=urn:btih:CC0548802F6502D68F10F747CEAA00DEA2FB6D77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:CC0548802F6502D68F10F747CEAA00DEA2FB6D77
 ```bash
 magnet:?xt=urn:btih:225AB1C239CD5FDD0B2E4B1BA1A230A8C32ABB01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Viva Beautiful Font Family — это прекрасный шрифт, нари�
 magnet:?xt=urn:btih:D94BF10ACCA95256E0FBE61F224278F5210A83AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:D94BF10ACCA95256E0FBE61F224278F5210A83AE
 ```bash
 magnet:?xt=urn:btih:ACA15E6BFAA07F3680C03A7143941BD11951BDB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:ACA15E6BFAA07F3680C03A7143941BD11951BDB7
 magnet:?xt=urn:btih:FC592020E247CFBF3077C7063B45A6A847266E99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:FC592020E247CFBF3077C7063B45A6A847266E99
 ```bash
 magnet:?xt=urn:btih:FC1427F52ED09E1B6B025063EB0FA353FBC5E118
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:FC1427F52ED09E1B6B025063EB0FA353FBC5E118
 magnet:?xt=urn:btih:29BB446FB92BD4408DE488CA76F47BF0638F851D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:29BB446FB92BD4408DE488CA76F47BF0638F851D
 ```bash
 magnet:?xt=urn:btih:3E1E91A651CDAD2C561E5C20852A1044C9A05181
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ Jacoma — минималистичный шрифт с засечками в ф
 magnet:?xt=urn:btih:955FDB6E4C0B690F41C4B16C176647B55364E959
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:955FDB6E4C0B690F41C4B16C176647B55364E959
 magnet:?xt=urn:btih:B3313A3101E144FCB693062A6B3E52DE61F8D198
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:B3313A3101E144FCB693062A6B3E52DE61F8D198
 magnet:?xt=urn:btih:493B9CCD3C6F656AFC212E8CD3F923559086B7C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ THANKS LAB — это футуристический, мягкий шрифт п
 ```bash
 magnet:?xt=urn:btih:1FAABDF1ED3901DCF704E62239CC517D9D7538A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ Tarif — это семейство шрифтов, вдохновленное �
 magnet:?xt=urn:btih:C7A31542FB825C6E46249E8590784FE6845FCB2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:C7A31542FB825C6E46249E8590784FE6845FCB2D
 ```bash
 magnet:?xt=urn:btih:72870D7929308517DED5BE77CAC51B1371C1ECB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:72870D7929308517DED5BE77CAC51B1371C1ECB8
 magnet:?xt=urn:btih:A5A2E4C382A4CBC4D3E8B882F8F0615BCC54D867
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:A5A2E4C382A4CBC4D3E8B882F8F0615BCC54D867
 ```bash
 magnet:?xt=urn:btih:938C2A9BC3408A0732FC6C51D5C6889EF7FFEC7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +558,8 @@ magnet:?xt=urn:btih:938C2A9BC3408A0732FC6C51D5C6889EF7FFEC7B
 magnet:?xt=urn:btih:C7D254CC10A00BD9F1A788653FA63720EE681740
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:C7D254CC10A00BD9F1A788653FA63720EE681740
 magnet:?xt=urn:btih:E26A41CD8B6AE3EC4BC8122E2F640839BE3E7896
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ magnet:?xt=urn:btih:E26A41CD8B6AE3EC4BC8122E2F640839BE3E7896
 ```bash
 magnet:?xt=urn:btih:CD089B390B8557F246E011730BB71FAB0D218864
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +638,8 @@ magnet:?xt=urn:btih:CD089B390B8557F246E011730BB71FAB0D218864
 magnet:?xt=urn:btih:C84761A3427A7211E9852A4F06E6B02BEE658856
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:C84761A3427A7211E9852A4F06E6B02BEE658856
 magnet:?xt=urn:btih:973500279E0F96C6AEE1A1A811F55BDE3039CC67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ magnet:?xt=urn:btih:973500279E0F96C6AEE1A1A811F55BDE3039CC67
 ```bash
 magnet:?xt=urn:btih:3190FF9EC2B5E29A8EF3F5F233BF39F296977F25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Frank Sinatra - Night And Day (1996) Golden Stars [FLAC|Lossless|tracks + .cue] 
 magnet:?xt=urn:btih:7CBBFF035E7B207D3709D4C30034FCEC6B2D39D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Hurricanes - Back to the Basement (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 ```bash
 magnet:?xt=urn:btih:1F542F33EDADCDF657235A6B9D9BA9FE28F09005
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Calliope Calliopeia Band - Long Distance You and Me (2024) [FLAC 24/44.1|Lossles
 magnet:?xt=urn:btih:E361F7A59A736C91D037E6AB3903BB4A985875A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:E361F7A59A736C91D037E6AB3903BB4A985875A7
 ```bash
 magnet:?xt=urn:btih:0D9A9D555D660B898F1CA54DCFBE866411CA5232
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ magnet:?xt=urn:btih:0D9A9D555D660B898F1CA54DCFBE866411CA5232
 magnet:?xt=urn:btih:0C17244623D0E488A3702B07E02E03C5F8B28DFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ magnet:?xt=urn:btih:0C17244623D0E488A3702B07E02E03C5F8B28DFE
 ```bash
 magnet:?xt=urn:btih:20F4051AA1A3371D3091BD8981CFF7951EB581F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -180,6 +192,8 @@ Different Image Project - Embers of Time (2024) [FLAC|Lossless|WEB-DL|tracks] <P
 magnet:?xt=urn:btih:8BAB691B67BAC84423B63ACB86B343D679B9BCE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +218,8 @@ PDF24 Creator - бесплатная программа, которая позв
 ```bash
 magnet:?xt=urn:btih:69CF62A4F122151DE7C7DCB2522797716A87ECED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -231,6 +247,8 @@ magnet:?xt=urn:btih:69CF62A4F122151DE7C7DCB2522797716A87ECED
 magnet:?xt=urn:btih:BB8A187942A49466E788D14DF3979FAFA0C462BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +274,8 @@ magnet:?xt=urn:btih:BB8A187942A49466E788D14DF3979FAFA0C462BA
 magnet:?xt=urn:btih:4C98DE430176B67BD522A4E7A2A11734C4C7E2EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +299,8 @@ RedNotebook - это простое GTK+ / Gnome приложение напис
 ```bash
 magnet:?xt=urn:btih:60450D39B2C743F872BB6F9B975C14F59B16EDC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +326,8 @@ Linux Magazine - журнал, целиком посвященный опера�
 magnet:?xt=urn:btih:C1759FE06A003681D73E985AC31FF2979243D61A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ LANDR - LANDR Guitar 1.1.5 VSTi 3, AAX (x64) RePack by R2R [En]
 ```bash
 magnet:?xt=urn:btih:563621EBFA75C4E8D8D6994EBEC86FAE05F6A849
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ Gas Station Simulator - это все о ремонте, развитии и э�
 magnet:?xt=urn:btih:9B5CC48BF80E0101468DB64C823797268871D2C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:9B5CC48BF80E0101468DB64C823797268871D2C6
 ```bash
 magnet:?xt=urn:btih:27972245F8A36963A00286C41FE370EF4F3138CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:27972245F8A36963A00286C41FE370EF4F3138CB
 magnet:?xt=urn:btih:453E0490395B94198710891A586CEB4E0CF9868E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ magnet:?xt=urn:btih:453E0490395B94198710891A586CEB4E0CF9868E
 magnet:?xt=urn:btih:12D25870C7F254D207711229BC82B8EEF93CADC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:12D25870C7F254D207711229BC82B8EEF93CADC5
 ```bash
 magnet:?xt=urn:btih:12B9F5D015FEF3593CD28F204996AA6BBFDD273E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +510,8 @@ magnet:?xt=urn:btih:12B9F5D015FEF3593CD28F204996AA6BBFDD273E
 magnet:?xt=urn:btih:FEAC6E5339DCEC6EF3B0BA50C4621187701BEBEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +538,8 @@ magnet:?xt=urn:btih:FEAC6E5339DCEC6EF3B0BA50C4621187701BEBEA
 magnet:?xt=urn:btih:DA4311D49A2190A6953168465F9FDEF9B0E61A7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ magnet:?xt=urn:btih:DA4311D49A2190A6953168465F9FDEF9B0E61A7C
 ```bash
 magnet:?xt=urn:btih:F76C6F5A2E48FA3417449BAB1771BECF896405F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +590,8 @@ magnet:?xt=urn:btih:F76C6F5A2E48FA3417449BAB1771BECF896405F6
 magnet:?xt=urn:btih:E51AE781E270AA89BB0A164A72CC26FC52B19EC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ magnet:?xt=urn:btih:E51AE781E270AA89BB0A164A72CC26FC52B19EC1
 magnet:?xt=urn:btih:507C3D0E0BF259A9F334DD5F1C2FFEABF6C6151F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +641,8 @@ Synchro Arts - RePitch 1.5.13 VST 3, AAX (x64) RePack by R2R [En]
 ```bash
 magnet:?xt=urn:btih:FF8035805D208D4A4D6FA79BCC2B84F53FC667DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:FF8035805D208D4A4D6FA79BCC2B84F53FC667DF
 magnet:?xt=urn:btih:38BC2FBD557B37FB0E050C18961BA44AB4748F07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ magnet:?xt=urn:btih:38BC2FBD557B37FB0E050C18961BA44AB4748F07
 ```bash
 magnet:?xt=urn:btih:B45FBC069F7B82C8057C98CBA84C544F1365E410
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1488445   (1001147) от 14.08.2021
+
+Крошечный мир / Tiny World (2021) WEB-DLRip (сезон 2, серии 1-6 из 6) ViruseProject
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tiny World - это невероятной красоты документальное шоу О крошечных существах различных экосистем, а также об их необычных навыках, помогающих им приспосабливаться к переменчивому и жестокому миру.Производство: США / Plimsoll ProductionsЖанр: документальный, природа, фаунаРежиссер: Alex Ranken, Эд Уоткинс, Lucy WellsПеревод: Одноголосый закадровый (ViruseProject)Язык озвучки: Русский, английскийСубтитры: Русские, украинские, английские, французские, испанские, немецкие и др. (отдельными файлами)Продолжительность: ~00:30:00 серияРеклама: Нет.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFB4920087FCFC1E2DE499B46C37EEA093985376
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1489141   (1001157) от 14.08.2021
 
 Дубай / Dubai (2021) WEBRip [VP9/4320p]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:C9456644082FA0BDF8FA750FC1A1B424BAEACBD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:C9456644082FA0BDF8FA750FC1A1B424BAEACBD8
 magnet:?xt=urn:btih:70B0E395611EA3FBB7ACDA67421833BF0A937FF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:70B0E395611EA3FBB7ACDA67421833BF0A937FF1
 ```bash
 magnet:?xt=urn:btih:91C9DA48E9CE2A4A574C5D4F3ADA8FDF73998F49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:91C9DA48E9CE2A4A574C5D4F3ADA8FDF73998F49
 magnet:?xt=urn:btih:F7D6D696964D76B881B61346DF3C15303FB7C139
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:F7D6D696964D76B881B61346DF3C15303FB7C139
 ```bash
 magnet:?xt=urn:btih:7EB5BBB7608FEC903C000E39365A3D7423D71306
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:7EB5BBB7608FEC903C000E39365A3D7423D71306
 magnet:?xt=urn:btih:B90925687275983FFD8957640D8D89B4A9A67356
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:B90925687275983FFD8957640D8D89B4A9A67356
 ```bash
 magnet:?xt=urn:btih:250941B5A34434785005F3BAA8BB35D6F07E2B01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ BBC. Мир Природы. Миниатюрные Чудеса / Nature's Minia
 magnet:?xt=urn:btih:E707057343BF7608ED8F4F31D5D0A44E93D2040F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:E707057343BF7608ED8F4F31D5D0A44E93D2040F
 ```bash
 magnet:?xt=urn:btih:1EBDE901811E957CC864514EA990EE57BC1334E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ BBC. Тигры: Охота на браконьеров / Tigers: Hunting the Tr
 magnet:?xt=urn:btih:D0B136C8512C9777107E1D239F4C3F42EAC4F8B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:D0B136C8512C9777107E1D239F4C3F42EAC4F8B4
 ```bash
 magnet:?xt=urn:btih:B235920445D428FB9B12F71DF5A46BB1D7CEC931
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:B235920445D428FB9B12F71DF5A46BB1D7CEC931
 magnet:?xt=urn:btih:5F73F03A9A3241A38AEAF47E579EECBEF9DA2C70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +357,8 @@ magnet:?xt=urn:btih:5F73F03A9A3241A38AEAF47E579EECBEF9DA2C70
 ```bash
 magnet:?xt=urn:btih:B011CFB837387B24DE630F9EDC1B0A52883B8F11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +384,8 @@ BBC. Звери в Миниатюре / Super Small Animals (2017) WEB-DL [H.264
 magnet:?xt=urn:btih:96706E00093285688D8CB393E0714BFF20688740
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +409,8 @@ BBC. Водопой: Африканский Оазис для Животных /
 ```bash
 magnet:?xt=urn:btih:7FF6585600D3C4C91017CFDEA8165FAB5D4EDD08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:7FF6585600D3C4C91017CFDEA8165FAB5D4EDD08
 magnet:?xt=urn:btih:3039C4FC978D1B2B2EBAD9765169320A74EA3324
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +461,8 @@ magnet:?xt=urn:btih:3039C4FC978D1B2B2EBAD9765169320A74EA3324
 ```bash
 magnet:?xt=urn:btih:048034626B8C9941D8A9548D50EA0944C9C57545
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:048034626B8C9941D8A9548D50EA0944C9C57545
 magnet:?xt=urn:btih:8E2B3AF7AF01E946065B1D6BA12AA25346DEED5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +513,8 @@ magnet:?xt=urn:btih:8E2B3AF7AF01E946065B1D6BA12AA25346DEED5E
 ```bash
 magnet:?xt=urn:btih:4C37123D4744DE450CC7260E6F68772D0A561A15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +540,8 @@ magnet:?xt=urn:btih:4C37123D4744DE450CC7260E6F68772D0A561A15
 magnet:?xt=urn:btih:615F05C5CE463162E71650116711F6D351335D7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +565,8 @@ magnet:?xt=urn:btih:615F05C5CE463162E71650116711F6D351335D7F
 ```bash
 magnet:?xt=urn:btih:455692C383663EC41BDD577234F0E97A39474A96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +592,8 @@ magnet:?xt=urn:btih:455692C383663EC41BDD577234F0E97A39474A96
 magnet:?xt=urn:btih:F0BD02CE1D68284B43C5730666F48A1E56872CA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +617,8 @@ magnet:?xt=urn:btih:F0BD02CE1D68284B43C5730666F48A1E56872CA5
 ```bash
 magnet:?xt=urn:btih:B4EA049CDFC9ED3ED609EC514093EF45A2C2E83C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +644,8 @@ magnet:?xt=urn:btih:B4EA049CDFC9ED3ED609EC514093EF45A2C2E83C
 magnet:?xt=urn:btih:1CF0E92A2CDD8EEC3BD02278D513F15F39DB5C3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,29 +670,7 @@ magnet:?xt=urn:btih:1CF0E92A2CDD8EEC3BD02278D513F15F39DB5C3B
 magnet:?xt=urn:btih:7F5A1F011D0F99B36DE1C6F2B2907FBB3913F925
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488121   (1002562) от 09.08.2021
-
-Игра окончена: Каспаров против машины / Game Over: Kasparov and the Machine (2003) WEBRip [EN/RU Sub]
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002562.jpg" />
-</div>
-
-
-###  Подробнее
-
-В фильме рассказывается история о знаменитой победе суперкомпьютера Deep Blue в шахматном матче 1997г., когда впервые в истории компьютер обыграл чемпиона в серии игр. Что это было? Торжество технологий, или грязная игра IBM, разработавшей компьютер, и взлетевшей в стоимости после победы. Ранее Каспаров обыграл Deep Blue, компьютер, специально разработанный для его (   Читать дальше...   )Производство: Канада, Великобритания, Alliance Atlantis Communications, National Film Board of CanadaЖанр: Документальный, спорт, шахматыРежиссер: Викрам ДжайантиПеревод: отсутствуетСубтитры: РусскиеПродолжительность: 01:24:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D248CCF24983A3FAF0171400577D3FDE6D41732
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

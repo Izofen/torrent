@@ -19,6 +19,8 @@ Laravelcreative.ru | Laravel 9: Базовый подробный курс (2023
 magnet:?xt=urn:btih:511A31B7D756E91D32217BD8804628F31834ACA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ The first module covers source control and project initiation, including creatin
 ```bash
 magnet:?xt=urn:btih:5223D6B5B6435B5C1AA18E2F4C3E6379CE4DE51A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Thinknetica Pro, Анна Буянова | Старый Добрый Код: к�
 magnet:?xt=urn:btih:AED485B8898C9924A138F58ADA0D46CB4E27987D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ All code examples in the course are written in Java but that's doesn't mean you 
 ```bash
 magnet:?xt=urn:btih:387B5DBA87FE8FD7D2F2107323922DA2D7494ED6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Yan Cui | AppSync Masterclass (Premium) (2023) WEB-DL [EN]
 magnet:?xt=urn:btih:FE322C8065D24696055EB3F6379B96C83E47059A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ FastAPI ворвался на веб-сцену Python. Фактически, о
 magnet:?xt=urn:btih:E68B0A20B381FA9C2F4829F104249245D83408B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Udemy, Ines Ivanova-Kenova | Complete FastAPI REST course + AWS + Emails + Payme
 ```bash
 magnet:?xt=urn:btih:99B45A6D449043A3FB96637D6C1CB7E52F219F0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ Amy Dutton | Everything Svelte (Complete package) (2023) WEB-DL [EN]
 magnet:?xt=urn:btih:B41723F6CC9E50E67777A9B2836835A3FEE9E543
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:B41723F6CC9E50E67777A9B2836835A3FEE9E543
 magnet:?xt=urn:btih:694DF19D5FC8F9EA9AC413BF4ACF0DD9F020B8BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ OTUS, Александр Ключев | C++ Developer. Professional. Углуб�
 ```bash
 magnet:?xt=urn:btih:F8F3ED3DD14335A4C91592BDD2D605A1F5D6C729
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ Fillthegaps, Яковлева Диана | Многопоточное прогр
 magnet:?xt=urn:btih:E3F6AFF12896568915C09D2135ADC3D2FE5AF48B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ QA.GURU, Артём Eрошенко, Aлексей Виноградов, Ром�
 magnet:?xt=urn:btih:B7478FC62D8B4A479E7B0E5946CD22261A68BFF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ Udemy, Dzianis Matveyenka (DMdev) | Computer Science on Java for Beginners (2023
 ```bash
 magnet:?xt=urn:btih:86A4B4590119969666ED6AE1D73C958A08537DB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:86A4B4590119969666ED6AE1D73C958A08537DB3
 ```bash
 magnet:?xt=urn:btih:49E83A3C3BC1597641D3F9267012F6342E00709A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +405,8 @@ Skillfactory, Михаил Королев | Data Engineering (2023) WEB-DL [RU]
 magnet:?xt=urn:btih:F171DFA5A0DC2A1797A807F02167108ED1A527FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ Udemy, Dzianis Matveyenka (DMdev) | Beginner's Guide to Groovy for Java Devs (20
 magnet:?xt=urn:btih:150C8F51AEA1D37E51CC30780C57E10357B0F450
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ Filab, Діма Малєєв, Кріс Косик | Engineering Management (2023
 ```bash
 magnet:?xt=urn:btih:28E6E6C14752940AF55F17B09F995F7D0809D5BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +488,8 @@ Udemy, Dzianis Matveyenka | JUnit 5 (2022) WEB-DL [RU]
 magnet:?xt=urn:btih:56B2881DDCCF90BC402D66D4FE6CB92CD9AA950F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +517,8 @@ THIS COURSE WAS DESIGNED FROM SCRATCH FOR THE CURRENT SOA-C02 EXAM VERSION - EVE
 magnet:?xt=urn:btih:A3C27599BDD1B1A3D705EFFCAFDD1A334D06A517
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ In order to handle growing development and code complexity and deploy applicatio
 ```bash
 magnet:?xt=urn:btih:8EFCD99CE0C43E77A5948D4870AF219B86CA2155
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +574,8 @@ The Network Specialty Exam has been updated to ANS-C01
 magnet:?xt=urn:btih:FDD63C232CF0B83BA17FD785DAB5A66BDB80DBF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +602,8 @@ magnet:?xt=urn:btih:FDD63C232CF0B83BA17FD785DAB5A66BDB80DBF0
 ```bash
 magnet:?xt=urn:btih:2BF7707CA7EF1448B80D47EDAA680CBEE216C8DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +632,8 @@ Udemy, Sebastian Glöckner | Der Komplette Excel Kurs - Vom Anfänger zum Profi 
 magnet:?xt=urn:btih:69363E8658B863ED5B82964F5EB8D215A2610F72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +660,8 @@ Stepik, Павел Коган | Google-таблицы. от А до Я (2023) WE
 ```bash
 magnet:?xt=urn:btih:B6273EA12166CAAA24B1446784C1CE34536ADC9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +690,8 @@ magnet:?xt=urn:btih:B6273EA12166CAAA24B1446784C1CE34536ADC9C
 magnet:?xt=urn:btih:869EF7441BC74166BBE895436617403EC15C4CB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +718,8 @@ Infostart, Николай Бондаренко | Видеокурс «1C - Пр�
 ```bash
 magnet:?xt=urn:btih:7E9C4E75ED51DC4724A3FDFBC17FA58079B9B588
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

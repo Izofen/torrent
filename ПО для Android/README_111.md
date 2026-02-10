@@ -19,6 +19,8 @@ PhotoMap Pro Gallery 9.4.9 (Paid) [Ru]
 magnet:?xt=urn:btih:9A17EA18CE7DB3D54D322837937A56F59CF452FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:9A17EA18CE7DB3D54D322837937A56F59CF452FB
 ```bash
 magnet:?xt=urn:btih:160ACABC1D2F4718ED6A1C97A8882AA22CC17EDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ HM Песенник v4.8 Ad-Free [Ru] - гитарный песенник для
 magnet:?xt=urn:btih:13A23797ED7DD78F84D900F8C91636B9CE4EDD5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Pilzlexikon 2 PRO 1.0.17 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:82A624C99FBF7D07F75874B5284F25D961A5A2F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Pocket Sense v1.0.16 Pro [Ru/En]
 magnet:?xt=urn:btih:F2AB285FBF1C0EA620008E4470C185FE61EAB55B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Pure Tuber (ex. Vanced Tuber) v3.1.8.101 + Mod [Ru/Multi] (обновляема�
 ```bash
 magnet:?xt=urn:btih:44C1363C37C06B4A683A9600612AACEC8CA9C1AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:44C1363C37C06B4A683A9600612AACEC8CA9C1AE
 magnet:?xt=urn:btih:20FF21750F3E6F17D588EB68FCD655A8AE66711D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Shortcut Maker - это приложение позволяющее создав
 ```bash
 magnet:?xt=urn:btih:404DBF108339E65993C016BA51D9952BCA1EAB4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Astrodox Astrology / Астродокс Астрология v1.5 [Ru/En]
 magnet:?xt=urn:btih:40C802984288FCAD8EBE1FA9F037A0B59ADACEAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Wifi WPS Plus v3.3.5 Ad-Free [Ru/Multi]
 magnet:?xt=urn:btih:A4B4048790DB0B16D4FEEC267F1F031AC5F409BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ magnet:?xt=urn:btih:A4B4048790DB0B16D4FEEC267F1F031AC5F409BD
 ```bash
 magnet:?xt=urn:btih:0F09199F0D065412618C0859854F01D8C40123AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Magic Intuition / Магия Интуиции v4.3.0_15 [Ru/En]
 magnet:?xt=urn:btih:FB5361D12B40D13897D0B55F50FFCF04F38CB8EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Fraction Calculator by Mathlab Pro v3.2.44 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:41F89BF642778A0E50B42A9AAB6AA1C257396D67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:41F89BF642778A0E50B42A9AAB6AA1C257396D67
 magnet:?xt=urn:btih:8DFC92CF110F5879FCA054CF807EB7B9CCCF068D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:8DFC92CF110F5879FCA054CF807EB7B9CCCF068D
 ```bash
 magnet:?xt=urn:btih:AF446A900D5AE3165476F75F41FE69A4F26CE9AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:AF446A900D5AE3165476F75F41FE69A4F26CE9AD
 magnet:?xt=urn:btih:4C6586B20FBCCEF0AC359768690AC949BA097628
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Open Camera 1.48.1 [Ru] - Фото и видеокамера
 ```bash
 magnet:?xt=urn:btih:335E1379CD786A2BF53ED109DCB8EB30CCE16B00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ WhatsTool App, специально разработанный набор инс
 magnet:?xt=urn:btih:FEAD4D2EFDFC80CCF2979D0E6FBF00B6456935CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:FEAD4D2EFDFC80CCF2979D0E6FBF00B6456935CC
 ```bash
 magnet:?xt=urn:btih:79A31F99FF2B66B3087B4E446FC55B0986B7FFD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:79A31F99FF2B66B3087B4E446FC55B0986B7FFD2
 magnet:?xt=urn:btih:2A05B50038CC71D66CBD4BD679C39F8B3A7CAB2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Maths Formulas 9.2 [Ru/Multi]
 magnet:?xt=urn:btih:E1F42795EFBE4BC4CDB6BCCAE4FFABB23BD86D13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ AppMgr Pro III v5.01 (Lite Mod) [Ru/En] - Перенос приложения н
 ```bash
 magnet:?xt=urn:btih:81DBE3C79ADED8BF1F192E4FB880AEE9AE06C375
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ Glitch Lab прост в использовании, но в то же врем�
 magnet:?xt=urn:btih:112998384CEC29C014874044D63B86887F06C07C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ magnet:?xt=urn:btih:112998384CEC29C014874044D63B86887F06C07C
 magnet:?xt=urn:btih:A5F627F172DFC5A32E2DDC018E9DCDE2B58381F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ Electrical cost - программа для расчета стоимости э
 ```bash
 magnet:?xt=urn:btih:8847FF954AA27E59B04142B2F586C0E18484F9F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +683,8 @@ Sobotta Anatomy Atlas 2.9.0 [En/Ge] - анатомический атлас че
 ```bash
 magnet:?xt=urn:btih:17A5F8A08E0580C1C56AF27751607440F8935B06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:99B50DA184AFA661AA1ED4BD3C5A4DB59BDCE639
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Maou no Musume wa Yasashi Sugiru!! | The Demon King`s Daughter Is Too Kind! | Ma
 magnet:?xt=urn:btih:ED30AE2A1F9697DD55D741141AC103A83EE31887
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Omae Gotoki ga Maou ni Kateru to Omou na | Roll Over and Die | Неужели т
 ```bash
 magnet:?xt=urn:btih:6B5B4175A32D82210A56D431F745A315BE79CA77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Mato Seihei no Slave 2 | Chained Soldier 2 | Раб спецотряда дем�
 magnet:?xt=urn:btih:DB0783A56342089FDE26CE0FDBFB182FB9EA5BCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Kaya-chan wa Kowakunai | Kaya-chan isn't Scary | Кае не страшно [202
 ```bash
 magnet:?xt=urn:btih:AD09DA885F588C9F71524DAFAFE1F9F175569CD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:AD09DA885F588C9F71524DAFAFE1F9F175569CD6
 magnet:?xt=urn:btih:67B23FAF83FD0ACB2F340CA216EB01B9DC0B951E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:67B23FAF83FD0ACB2F340CA216EB01B9DC0B951E
 ```bash
 magnet:?xt=urn:btih:01C570A288ECB4438058ABD2BE5FF979F4F32D42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:01C570A288ECB4438058ABD2BE5FF979F4F32D42
 magnet:?xt=urn:btih:034AABD4A544F3BB0FDA3EC745A8ED4F136DBDAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:034AABD4A544F3BB0FDA3EC745A8ED4F136DBDAD
 ```bash
 magnet:?xt=urn:btih:F5A3265205A88D3710734D9D255B853D97421075
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Hime-sama "Goumon" no Jikan Desu TV-2 | Время пытки, принцесс�
 magnet:?xt=urn:btih:6579B54825405C815BA43F9155E3B4092F949929
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:6579B54825405C815BA43F9155E3B4092F949929
 ```bash
 magnet:?xt=urn:btih:544F79960F3E599B4EA52C8C7A6D6986B8F027F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:544F79960F3E599B4EA52C8C7A6D6986B8F027F0
 magnet:?xt=urn:btih:A4B5F500C6CDBBBB9AD47F4B6012FE829F51014E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Sousou no Frieren TV-2 | Фрирен, провожающая в последн�
 ```bash
 magnet:?xt=urn:btih:04E50518496B407C03FC80A8B1202BD5008B6170
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

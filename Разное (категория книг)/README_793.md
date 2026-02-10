@@ -1,3 +1,29 @@
+###  Публикация: 1612523   (1040139) от 16.02.2023
+
+Алексей Фомин | Когда умершие приходят во сне (2013) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга о том, что происходит с человеком после того, как он умирает, и о том, как нужны ему наши молитвы.Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EABA1604CB74F97F7707A77FBCC3E8EBA6F669AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612545   (1040142) от 16.02.2023
 
 Святой праведный Иоанн Кронштадтский | Как правильно молиться (2014) [PDF, FB2, EPUB, MOBI]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:C4A3807E1EE1B2D509590378FACB0B42DCB73CA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:C4A3807E1EE1B2D509590378FACB0B42DCB73CA3
 magnet:?xt=urn:btih:7E61F39BED0B244D07DD32E1A3267CA68D1F12C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:7E61F39BED0B244D07DD32E1A3267CA68D1F12C7
 ```bash
 magnet:?xt=urn:btih:D7B58777152A7B8E4809CA2465CE111F3909B5D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:D7B58777152A7B8E4809CA2465CE111F3909B5D8
 magnet:?xt=urn:btih:408AE4A7154AC9B9661424B77984FE53702A3D3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:408AE4A7154AC9B9661424B77984FE53702A3D3E
 ```bash
 magnet:?xt=urn:btih:62E1E8C13D93DD6C4C11A77A8AAB85E109E9F41E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:62E1E8C13D93DD6C4C11A77A8AAB85E109E9F41E
 magnet:?xt=urn:btih:366AB05E52907F0C9F8BF41B7F6D4C0199495869
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:366AB05E52907F0C9F8BF41B7F6D4C0199495869
 magnet:?xt=urn:btih:959965D3891791D8176716965535057BE7084460
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:959965D3891791D8176716965535057BE7084460
 ```bash
 magnet:?xt=urn:btih:6845163F53A6D4D8DA17BF22FE8CEED884609B98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:6845163F53A6D4D8DA17BF22FE8CEED884609B98
 magnet:?xt=urn:btih:A1A9677F46B3D49FC4AE150A0CCA7301308D0A85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:A1A9677F46B3D49FC4AE150A0CCA7301308D0A85
 ```bash
 magnet:?xt=urn:btih:EE1C98755ECD3D36718520894F87AF05A50F5694
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:EE1C98755ECD3D36718520894F87AF05A50F5694
 magnet:?xt=urn:btih:9480C1B5B6AE6773B09E67B9D1ABB6FA3DC82762
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +340,8 @@ magnet:?xt=urn:btih:9480C1B5B6AE6773B09E67B9D1ABB6FA3DC82762
 magnet:?xt=urn:btih:04B346E706541483D2DE04E5A96B77567EC48D63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:04B346E706541483D2DE04E5A96B77567EC48D63
 magnet:?xt=urn:btih:13F11F734CF47B979923A1B19120A56DD034BC92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:13F11F734CF47B979923A1B19120A56DD034BC92
 ```bash
 magnet:?xt=urn:btih:955389BD31916A27A196BD88B56F9B1AEF69DC5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +419,8 @@ magnet:?xt=urn:btih:955389BD31916A27A196BD88B56F9B1AEF69DC5C
 magnet:?xt=urn:btih:B3C6EB1007ADAAB165364D446B04BE00B3E55CF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:B3C6EB1007ADAAB165364D446B04BE00B3E55CF3
 ```bash
 magnet:?xt=urn:btih:D8FBC852F02981141289C2A89BB471498F1E04CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +473,8 @@ magnet:?xt=urn:btih:D8FBC852F02981141289C2A89BB471498F1E04CF
 magnet:?xt=urn:btih:F7BC61EDDD531DC7E182E91F4477AD7EBDF34113
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +498,8 @@ magnet:?xt=urn:btih:F7BC61EDDD531DC7E182E91F4477AD7EBDF34113
 ```bash
 magnet:?xt=urn:btih:C5AB84FA3681352C26473BEB33B79AAE2FE40E93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +526,8 @@ magnet:?xt=urn:btih:C5AB84FA3681352C26473BEB33B79AAE2FE40E93
 magnet:?xt=urn:btih:CE205B67D6D68F354F2B709093989269FB25AFBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +552,8 @@ magnet:?xt=urn:btih:CE205B67D6D68F354F2B709093989269FB25AFBB
 magnet:?xt=urn:btih:BA79E95471521E1F6EE1D4AAD6169A4C9FF9D2D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +577,8 @@ magnet:?xt=urn:btih:BA79E95471521E1F6EE1D4AAD6169A4C9FF9D2D5
 ```bash
 magnet:?xt=urn:btih:CF06B776036130CC23F2A9D7DEC38C5397A9F384
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +605,8 @@ magnet:?xt=urn:btih:CF06B776036130CC23F2A9D7DEC38C5397A9F384
 magnet:?xt=urn:btih:4A7A123C3E185F3259F9F3B6ABADE31E23B18611
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:4A7A123C3E185F3259F9F3B6ABADE31E23B18611
 magnet:?xt=urn:btih:92FCEAC649CB44226516B08030284BFBCE00E061
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +656,8 @@ magnet:?xt=urn:btih:92FCEAC649CB44226516B08030284BFBCE00E061
 ```bash
 magnet:?xt=urn:btih:18A2375ABA9CC17745F497FCCC5A53D6834411A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,30 +685,7 @@ magnet:?xt=urn:btih:18A2375ABA9CC17745F497FCCC5A53D6834411A8
 magnet:?xt=urn:btih:8E9278A5622A3AA6578A9FC20472AD9CA1330A25
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438075   (1041351) от 07.01.2021
-
-Анастасия Веселко | Девушка с деньгами. Книга о финансах и здравом смысле (2020) [EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фраза «Я девочка, я не хочу ничего решать» совершенно не про современных девушек, которые хотят и умеют зарабатывать.
-Но почему-то все равно выходит так, что деньги вроде бы есть, но их не хватает на важное. На жизнь достаточно, но сбережений нет. Крупные покупки приходится делать в кредит. Про будущее вообще думать страшно. Дело усугубляют стереотипы: финансы – (   Читать дальше...   )Жанр: Личные финансы, ценные бумаги, инвестицииФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6823BD7531E1C1257A59F4D20DFE2B1BA6EE54D8
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

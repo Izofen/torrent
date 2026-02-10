@@ -19,6 +19,8 @@ Medal of Honor: Airborne [Ru/En] (Rip/1.3) 2007 | Naitro
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Medal of Honor: Airborne [Ru/En] (Rip/1.3) 2007 | Naitro
 ```bash
 magnet:?xt=urn:btih:3349368158CAC5783E3D114D597ECD005B00EBCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ UralSOFT | Курс по WPI [2011] [ISO]
 magnet:?xt=urn:btih:513274D6F2DF45125F570E292AAB48EEFADA1626
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:513274D6F2DF45125F570E292AAB48EEFADA1626
 ```bash
 magnet:?xt=urn:btih:30974E36731869454B386FF975D026588263BA54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:30974E36731869454B386FF975D026588263BA54
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Ace of Spades - это командный онлайн-шутер с воксе�
 ```bash
 magnet:?xt=urn:btih:996BEA39EFA70FBB1264CD1D683C4F1F478EF65D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Anonymous обещают отключить Интернет во всём ми�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Anonymous обещают отключить Интернет во всём ми�
 ```bash
 magnet:?xt=urn:btih:7762D08536875789D307C69AC4D0A1C11DACE6D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:7762D08536875789D307C69AC4D0A1C11DACE6D5
 magnet:?xt=urn:btih:67474EC678C94839F66739559E4CBD898C34554C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:67474EC678C94839F66739559E4CBD898C34554C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:67474EC678C94839F66739559E4CBD898C34554C
 magnet:?xt=urn:btih:A24B67910C98C218033AE907B34DB10BAEB00561
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ Windows 7 Ultimate SP1 х86 by Loginvovchyk с программами {Март 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ AntiSMS 1.8 [Rus] simplix Edition
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ AntiSMS 1.8 [Rus] simplix Edition
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ AntiSMS 1.8 [Rus] simplix Edition
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ Resident Evil: Operation Raccoon City — классический шутер о
 magnet:?xt=urn:btih:DB4D39D20AAEABAAA16D9E70AF67CBD9FB18DA09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:DB4D39D20AAEABAAA16D9E70AF67CBD9FB18DA09
 ```bash
 magnet:?xt=urn:btih:B1222CED7840BFF250CDF78D82DCA474CDC26215
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:B1222CED7840BFF250CDF78D82DCA474CDC26215
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ Resident Evil 4 HD: The Darkness World (RePack) [Ru] 2007 (2011) | Mr. Vansik
 ```bash
 magnet:?xt=urn:btih:E7084AD2C13FF8D1D6F08E5E0A360E52CB0C60FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ Windows 7x64 Ultimate UralSOFT v.3.4.12 ( 2012) [Rus]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ Need for Speed: The Run Limited Edition +DLC [Ru/En] (RePack/1.1) 2011 | Naitro
 magnet:?xt=urn:btih:8A874952F20DAFD3DA78AD023BE9258506DC78DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ Borland C++ Builder 6 Build 10.161 Enterprise Edition [Английский]
 ```bash
 magnet:?xt=urn:btih:76AD53CB3B7179D63C7028D983830AC17DA2F67A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ magnet:?xt=urn:btih:76AD53CB3B7179D63C7028D983830AC17DA2F67A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ USB universal FINAL [русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +659,8 @@ USB universal FINAL [русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ Retro Tape Deck Music Player - Реалистичный mp3 плеер аним�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

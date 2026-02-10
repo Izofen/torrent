@@ -22,6 +22,8 @@ Lord Belial - Kiss the Goat (1994) [WavPack|Lossless|image + .cue] <Black Metal>
 magnet:?xt=urn:btih:7B0C996AAE8592B5BECB80F9B03AA3440960B804
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ TV Players - Big City Visions (2022) [MP3|320 Kbps] <Synthwave, Retrowave>
 magnet:?xt=urn:btih:7A5716BC3270F298B0859E1FCA488A1734303763
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:7A5716BC3270F298B0859E1FCA488A1734303763
 ```bash
 magnet:?xt=urn:btih:3921DC2F9D0B22B5D0911AF91EC53B1FFEA0B462
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ Tom Raley - Day To Day (2023) [MP3|320 Kbps] <Classic Rock, Blues Rock>
 magnet:?xt=urn:btih:49CE7B18DFE0497C8467EFD8BBEFE8F6AD81FEF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ Home Business Card — это конструктор визитных карто
 ```bash
 magnet:?xt=urn:btih:E3E8C3E9E33A5D19F67D9ADBCED073192AD0AC59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -152,6 +162,8 @@ magnet:?xt=urn:btih:E3E8C3E9E33A5D19F67D9ADBCED073192AD0AC59
 magnet:?xt=urn:btih:30C094F4C9011BDBB7A6BB2B30AB9A7F1CB0FD44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:30C094F4C9011BDBB7A6BB2B30AB9A7F1CB0FD44
 ```bash
 magnet:?xt=urn:btih:902F09CCDEAFBA15921EBCB913BAC7CEA5D0ED4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -204,6 +218,8 @@ A Fragile Tomorrow - Generation Loss (2019) [FLAC|Lossless|tracks + .cue] <Rock,
 magnet:?xt=urn:btih:D41EF428A795B84ECAD7948702697223B217FDD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -230,6 +246,8 @@ Tal Babitzky - Internal Voice (2002) [FLAC|Lossless|tracks + .cue] <Fusion, Smoo
 ```bash
 magnet:?xt=urn:btih:AA135261EA77CC52C80E90511DBA3F9A010CE665
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -258,6 +276,8 @@ VA - Mystera III (1999) [OGG Vorbis|480 Kbps] <Electronic, Ambient, Meditative>
 magnet:?xt=urn:btih:33F8D128B65EA22EDECC526BFE24606694B9BE2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -281,6 +301,8 @@ magnet:?xt=urn:btih:33F8D128B65EA22EDECC526BFE24606694B9BE2C
 ```bash
 magnet:?xt=urn:btih:B05AF9B12396616ED3577E1E138728D585027873
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +331,8 @@ City Of Lights - Before the Sun Sets (2022) [FLAC|Lossless|WEB-DL|tracks] <Melod
 magnet:?xt=urn:btih:0FE1565413F5C51B7C2272C26BC5E1757E4D2C13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +356,8 @@ magnet:?xt=urn:btih:0FE1565413F5C51B7C2272C26BC5E1757E4D2C13
 ```bash
 magnet:?xt=urn:btih:7DE0B7188EB15C5A67A5B0ED5DF616F14EBCE1C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +383,8 @@ magnet:?xt=urn:btih:7DE0B7188EB15C5A67A5B0ED5DF616F14EBCE1C0
 magnet:?xt=urn:btih:EFB6F9F0F0F43F98BF762ACDBED2B81E196EA6BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +409,8 @@ Spotify имеет громадный каталог музыки, поддер�
 ```bash
 magnet:?xt=urn:btih:821218947E348DCB60DD713F45A246F2C10AB93B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +439,8 @@ magnet:?xt=urn:btih:821218947E348DCB60DD713F45A246F2C10AB93B
 magnet:?xt=urn:btih:85AB0DFF5D6C6473C5D254C7750D81BE83082459
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +464,8 @@ Eric Lengyel | Foundations of Game Engine Development, Volume 1: Mathematics, Vo
 ```bash
 magnet:?xt=urn:btih:24C461C10D1B5F5CC225D39289ACA30C7E3B6C66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +491,8 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 magnet:?xt=urn:btih:55967FB13FC81591393CF2CB83A3BCF942E8E088
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +516,8 @@ magnet:?xt=urn:btih:55967FB13FC81591393CF2CB83A3BCF942E8E088
 ```bash
 magnet:?xt=urn:btih:575FC72BD1413582C1EB1B6D16A2E8650CFABC45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +546,8 @@ Baest - Necro Sapiens (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 magnet:?xt=urn:btih:83F64F56207C7D435D9997B004715DD3F33ABFC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ BBC. Год, Изменивший Планету  / The Year Earth Changed (2021
 magnet:?xt=urn:btih:BD478607AD27D03F8A3C066D88814566D4AEB197
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +597,8 @@ magnet:?xt=urn:btih:BD478607AD27D03F8A3C066D88814566D4AEB197
 ```bash
 magnet:?xt=urn:btih:362771588209F61AC5C6FEC1CE277E7958E2ED05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +627,8 @@ magnet:?xt=urn:btih:362771588209F61AC5C6FEC1CE277E7958E2ED05
 magnet:?xt=urn:btih:8EEA790925CCCB5B910ABDC7555E023B200CF7AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +653,8 @@ Noctem - это психологический хоррор от первого 
 magnet:?xt=urn:btih:966E456F94DE489BE6D25BB8207D250DBF16757E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +678,8 @@ magnet:?xt=urn:btih:966E456F94DE489BE6D25BB8207D250DBF16757E
 ```bash
 magnet:?xt=urn:btih:40EEF06E63C90FF877F47635CC562A5A60875F20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -656,6 +706,8 @@ Psychological Conflict (EP 1990)
 ```bash
 magnet:?xt=urn:btih:E4587C2434728C903322150ADF3C020CE494E3DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1444609   (1034430) от 02.02.2021
+
+Обратные реакции (2018) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034430.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам рассказа Виктории Токаревой «Центр памяти».
+В квартире пожилой женщины, Варвары Тимофеевны, происходят странные, пугающие вещи - трясутся стены, посуда вываливается из кухонных шкафчиков, мебель сама передвигается вдоль стен. Хождения с жалобами по инстанциям для Варвары Тимофеевны не увенчались успехом. Женщина напугана и пытается выяснить, в чем же дело, (   Читать дальше...   )Производство: Россия / СПБГИКиТЖанр: Короткометражный, трагикомедия, экранизацияРежиссер: Борис АроновАктеры: Антонина Введенская, Ольга Белявская, Юлия Шубарева, Александр Муравицкий, Василий Гузов, Александр Андреев, Сергей Яценюк, Дарья ЦиберкинаСубтитры: ОтсутствуютПродолжительность: 00:29:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09736E6C87A037264B7AD9EA718A447F9A023EB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444415   (1034579) от 01.02.2021
 
 Менялы (1992) HDTV [H.264/1080i-LQ]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:27550F55BF39BDA1B66EA25BB03178DA95B63864
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +73,8 @@ magnet:?xt=urn:btih:27550F55BF39BDA1B66EA25BB03178DA95B63864
 magnet:?xt=urn:btih:C47612AEAF284C472014E053655B1D8B55EB229B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +98,8 @@ magnet:?xt=urn:btih:C47612AEAF284C472014E053655B1D8B55EB229B
 ```bash
 magnet:?xt=urn:btih:84958AA3277FEA5D21469AF8CF734906F4A722D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +126,8 @@ magnet:?xt=urn:btih:84958AA3277FEA5D21469AF8CF734906F4A722D0
 magnet:?xt=urn:btih:C3E17610ACBD2E5982A96B177876EAE95343DC12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +153,8 @@ magnet:?xt=urn:btih:C3E17610ACBD2E5982A96B177876EAE95343DC12
 magnet:?xt=urn:btih:5845356674540FE8BACAD0147624CBE95877DDEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +178,8 @@ magnet:?xt=urn:btih:5845356674540FE8BACAD0147624CBE95877DDEA
 ```bash
 magnet:?xt=urn:btih:8988EBED4958402805F3B0FD08DBED583D2FF632
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +205,8 @@ magnet:?xt=urn:btih:8988EBED4958402805F3B0FD08DBED583D2FF632
 magnet:?xt=urn:btih:034DFF86D25194C814A7C1A1A32908C624B6DD59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +230,8 @@ magnet:?xt=urn:btih:034DFF86D25194C814A7C1A1A32908C624B6DD59
 ```bash
 magnet:?xt=urn:btih:A0D7C9BF4672B8A97221F8BDECE21CDD0AEDB117
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +257,8 @@ magnet:?xt=urn:btih:A0D7C9BF4672B8A97221F8BDECE21CDD0AEDB117
 magnet:?xt=urn:btih:CEE87065CF65279508C9BC49E8C06F49C0522016
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ magnet:?xt=urn:btih:CEE87065CF65279508C9BC49E8C06F49C0522016
 ```bash
 magnet:?xt=urn:btih:997645BA3E7FC3F383F008A17735DC064D58B067
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +309,8 @@ magnet:?xt=urn:btih:997645BA3E7FC3F383F008A17735DC064D58B067
 magnet:?xt=urn:btih:DA316296857B3AD7534B429384B37EE81920C07D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +334,8 @@ magnet:?xt=urn:btih:DA316296857B3AD7534B429384B37EE81920C07D
 ```bash
 magnet:?xt=urn:btih:2170A3CC534B787F1BE1BEC666370520DFAC5D55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +361,8 @@ magnet:?xt=urn:btih:2170A3CC534B787F1BE1BEC666370520DFAC5D55
 magnet:?xt=urn:btih:1B3C07EEF0A1B51288DE913737CF6D613CE82300
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +386,8 @@ magnet:?xt=urn:btih:1B3C07EEF0A1B51288DE913737CF6D613CE82300
 ```bash
 magnet:?xt=urn:btih:45B57AA613AF7FEDAD006E93063D42DA1300C592
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +413,8 @@ magnet:?xt=urn:btih:45B57AA613AF7FEDAD006E93063D42DA1300C592
 magnet:?xt=urn:btih:C286CFA93761D70E619848FDD90C17E088757B13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +438,8 @@ magnet:?xt=urn:btih:C286CFA93761D70E619848FDD90C17E088757B13
 ```bash
 magnet:?xt=urn:btih:F47B609B94ADAEC81CF2A9F94186E85164A3C48C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +465,8 @@ magnet:?xt=urn:btih:F47B609B94ADAEC81CF2A9F94186E85164A3C48C
 magnet:?xt=urn:btih:4D1E813A28F9F96602FEF80ABCAA8E71DBD38FA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +490,8 @@ magnet:?xt=urn:btih:4D1E813A28F9F96602FEF80ABCAA8E71DBD38FA6
 ```bash
 magnet:?xt=urn:btih:9369A88AA8F791C3DC570CEFDB604BCA074D9166
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +517,8 @@ magnet:?xt=urn:btih:9369A88AA8F791C3DC570CEFDB604BCA074D9166
 magnet:?xt=urn:btih:EF86A7214D095C53E8B4874D0A582209240AFD93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +542,8 @@ magnet:?xt=urn:btih:EF86A7214D095C53E8B4874D0A582209240AFD93
 ```bash
 magnet:?xt=urn:btih:D8B1BA0030EC335A46560CB307F4C5A56F8D2A90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +569,8 @@ magnet:?xt=urn:btih:D8B1BA0030EC335A46560CB307F4C5A56F8D2A90
 magnet:?xt=urn:btih:90094F0CF46C270349EFA6A851789CBC8E23775D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +594,8 @@ magnet:?xt=urn:btih:90094F0CF46C270349EFA6A851789CBC8E23775D
 ```bash
 magnet:?xt=urn:btih:1BA35F404C0F994A9060E905EE0911C931ABEC3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +622,8 @@ magnet:?xt=urn:btih:1BA35F404C0F994A9060E905EE0911C931ABEC3E
 magnet:?xt=urn:btih:10BD805C3576CBD264636E98775BCB5B5E46ECC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +647,8 @@ magnet:?xt=urn:btih:10BD805C3576CBD264636E98775BCB5B5E46ECC0
 ```bash
 magnet:?xt=urn:btih:A11D1B582380FF0CA8A6AD1513ECAAB0F2CBB23D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,29 +674,7 @@ magnet:?xt=urn:btih:A11D1B582380FF0CA8A6AD1513ECAAB0F2CBB23D
 magnet:?xt=urn:btih:9DF9BD6F97AE6F211C82CEADB63BAC20B540E6DC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440713   (1038138) от 19.01.2021
-
-МиниМакс (Приключения чокнутого профессора) (2020) WEB-DL [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой и невероятно талантливый ученый Максим Минаев, который стоит на пороге грандиозного открытия, сулящего ему Нобелевскую премию. В погоне за славой и наградой Максим проводит рискованный эксперимент на самом себе и уменьшается до размеров обычной пробирки. Оказавшись в сложной ситуации, главный герой понимает, что остался один на один со своими проблемами – (   Читать дальше...   )Производство: Россия / Интерфест, Реал-ДакотаЖанр: Комедия, фантастикаРежиссер: Олег АсадулинАктеры: Пётр Фёдоров, Артем Фадеев, Марк Богатырев, Женя Малахова, Ирина Розанова, Юрий Стоянов, Ян Цапник, Ирина Медведева, Платон Каменев, Иван ТитяевПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:21:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70D51FF54246151FF3DBD87338A4C3630606673C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

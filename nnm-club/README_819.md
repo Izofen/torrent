@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:FC9B31C0F558B4C8499F02D3224B78007576F793
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ SnowRunner (2020) [Ru/Multi] (35.0/dlc) Repack Other s [4-Year Anniversary Editi
 magnet:?xt=urn:btih:3E7338EB5E44D8B5003DB60E595E7AA1EE98F59F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Monaco 2 (2025) [Ru/Multi] (1.0.0+18962) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:FB286CBE54663A906D7CC64D47325AD9F752D52C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:FB286CBE54663A906D7CC64D47325AD9F752D52C
 magnet:?xt=urn:btih:1A03699DF6C23809609179EEB44A8ABC8DB32117
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:1A03699DF6C23809609179EEB44A8ABC8DB32117
 ```bash
 magnet:?xt=urn:btih:892E136EE668EF10A6FAAF583248DFEA48C05FBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:892E136EE668EF10A6FAAF583248DFEA48C05FBA
 magnet:?xt=urn:btih:473A1F9D63BEC34260C48E9AD701B3FB5AA50BC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:473A1F9D63BEC34260C48E9AD701B3FB5AA50BC8
 ```bash
 magnet:?xt=urn:btih:CB39405A5EB381B9235F70D23EEC828A0C2ACB73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:CB39405A5EB381B9235F70D23EEC828A0C2ACB73
 magnet:?xt=urn:btih:40219F78221D5D69756578E76038F3997FE77854
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Linkin Park - Compilation (1999-2024)[MP3|320 Kbps] <Alternative, Nu metal>
 magnet:?xt=urn:btih:36174A32660F4DEAFF1E30208691C8B8C5492BB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:36174A32660F4DEAFF1E30208691C8B8C5492BB3
 ```bash
 magnet:?xt=urn:btih:9628DF1DA305C0AB6E5B8D793FC5E6FC5DC2FC90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:9628DF1DA305C0AB6E5B8D793FC5E6FC5DC2FC90
 magnet:?xt=urn:btih:67036E4BC04C16D7B2A5E0AA7D9035DB53037DD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:67036E4BC04C16D7B2A5E0AA7D9035DB53037DD8
 ```bash
 magnet:?xt=urn:btih:67BA4D4405E2D08D4C5A84E2C9EACF6F099477E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:67BA4D4405E2D08D4C5A84E2C9EACF6F099477E8
 magnet:?xt=urn:btih:285CD081670C9843D170D94A341368D54E7B18AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:285CD081670C9843D170D94A341368D54E7B18AC
 ```bash
 magnet:?xt=urn:btih:22DB37B24C0832F890DE02C1680D085F6F429C86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ IObit Uninstaller Pro представляет собой удобный инс�
 magnet:?xt=urn:btih:BFFD14EC2512D412B2F7FA7A0FB8BA7D74DB4490
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:BFFD14EC2512D412B2F7FA7A0FB8BA7D74DB4490
 ```bash
 magnet:?xt=urn:btih:ED99621C74DEEF212D0790B6F51936787EA06975
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ Eric Clapton - Compilation (1966-2024) [MP3|320 Kbps] <Rock, Blues>
 magnet:?xt=urn:btih:3AAC3494885BC95B056CAAB5BB650A3AC1EE0D20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:3AAC3494885BC95B056CAAB5BB650A3AC1EE0D20
 ```bash
 magnet:?xt=urn:btih:AC32ABAE68DBE0434DD37E572A195D5A0A33EAD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:AC32ABAE68DBE0434DD37E572A195D5A0A33EAD8
 magnet:?xt=urn:btih:28C1A0420A3504547034DA435FFC9B83CB4EF649
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:28C1A0420A3504547034DA435FFC9B83CB4EF649
 ```bash
 magnet:?xt=urn:btih:A46412779321D874896D0315ED44610BD845453D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ magnet:?xt=urn:btih:A46412779321D874896D0315ED44610BD845453D
 magnet:?xt=urn:btih:D28AB0F7BBB6F9CF682396F82D8A7F34074CE4F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ Dave the Diver - это казуальная приключенческая RPG 
 ```bash
 magnet:?xt=urn:btih:D05B1DB78FFD859F9535C8B790CF5A274E2DBF07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:D05B1DB78FFD859F9535C8B790CF5A274E2DBF07
 magnet:?xt=urn:btih:4D5F07495DFB7048EEB0D136457BAE42C3C2D7B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ magnet:?xt=urn:btih:4D5F07495DFB7048EEB0D136457BAE42C3C2D7B5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ magnet:?xt=urn:btih:4D5F07495DFB7048EEB0D136457BAE42C3C2D7B5
 magnet:?xt=urn:btih:3E368D56F4F733B72B2CC5A30851EC180555502E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ magnet:?xt=urn:btih:3E368D56F4F733B72B2CC5A30851EC180555502E
 ```bash
 magnet:?xt=urn:btih:77DFE242A64D7B91D1E35ADC0AF4DE0CFAD76D6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

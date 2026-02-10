@@ -21,6 +21,8 @@ Blender - бесплатный редактор трехмерной графи�
 magnet:?xt=urn:btih:F785A5E1EA3F9E85D3E88A794E3A868C093F0D9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Total Uninstall - утилита, предназначенная для корр
 ```bash
 magnet:?xt=urn:btih:4B0344995B74AE03578F13007448FDD5410D3FC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ AVZ - Бесплатная быстро работающая антивирус�
 magnet:?xt=urn:btih:2A1DFA1E9CFD89DAC6ABF36FF632BB7DA16120BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Adguard – интернет-фильтр для защиты пользоват
 magnet:?xt=urn:btih:6867B70051DEA234E79D49010A020241C18667FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ TikTok - социальное приложение для тех кто пред
 ```bash
 magnet:?xt=urn:btih:A7FB5BABEEDBFA2736E9CE636C9BEF27603E88FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:A7FB5BABEEDBFA2736E9CE636C9BEF27603E88FB
 magnet:?xt=urn:btih:089A57ACEA398A17055E1A9BBCD73868402E2329
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ AutoRuns - утилита для контроля автозагрузки пр�
 ```bash
 magnet:?xt=urn:btih:DBBE2C2D4A8FDC405B29F1FE9EF72DC499AE2193
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:4662EA96FD653E043E7DB8EE46A8093B9DBF9655
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 ```bash
 magnet:?xt=urn:btih:9384621E673F34D06DC42B27BAA21B448B3837CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ OnionFruit Connect 2023.626 [En]
 magnet:?xt=urn:btih:755BEF4E9DED12ED9D788514B9E9A3191AE16E9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ NoMachine – это средство доступа к удаленным ра�
 ```bash
 magnet:?xt=urn:btih:246E8821F4C761CABE54E94304D72A8363BB5283
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 magnet:?xt=urn:btih:E3D6AF3DC49DFE63EC9BAE31220D0D6910D1915B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Modern Tweaker - программная оболочка для твиков Win
 ```bash
 magnet:?xt=urn:btih:D4135B4E8C06ACD822B24986DC47700B9BF6AEF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ Sense V2 Flip Clock & Weather - одно из самых известных и �
 magnet:?xt=urn:btih:A5DFE2C0463224C873D4450E61175890C75847A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ FocusWriter 1.8.5 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D71735C4388FE984FB8552D94BAC6F27FF1DF7AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ uTorrent Pack 1.2.3.71 Repack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:4C3A61E87321C186F66381906AE1BC77946CA756
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Niagara Launcher - отличный проект по персонализаци
 ```bash
 magnet:?xt=urn:btih:E33EFFDF1B111DF84CE9C3373B3B1161ADC202D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Moon Reader - проект-читалка которая весьма извес
 magnet:?xt=urn:btih:4F4BBDB9490996A8161EB216393F7A1EC04FF407
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:4F4BBDB9490996A8161EB216393F7A1EC04FF407
 ```bash
 magnet:?xt=urn:btih:0F4E7739FD7675648D9ED3AEE1EE6830B6633F32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ Audio Hijack - отличное решение для аудио записи н
 magnet:?xt=urn:btih:D61DEC7CB50D17B3CF398696FBA3762D33993D10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Rosetta Stone - один из самых популярных, за счёт с�
 ```bash
 magnet:?xt=urn:btih:817598D9791DC67A0C5BE92124383904C6D726BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ Ventoy - это инструмент с открытым исходным код
 magnet:?xt=urn:btih:FE0705F39531C4A7669536F93E7DF720D66A19C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ One Turn Kill Nee-san: Ane Douhan no Isekai Seikatsu Hajimemashita | My One-Hit 
 magnet:?xt=urn:btih:F59BA26047D8B3A7EA17A1CA21DF64A5F1337824
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:F59BA26047D8B3A7EA17A1CA21DF64A5F1337824
 ```bash
 magnet:?xt=urn:btih:75F1E6F7BAB6E0ACEE65BA052A1998B582568295
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ MEmu позволит играть в любимые игры на персон�
 magnet:?xt=urn:btih:D904EAC6485EF6A06EAFDC93C33D2C0B89B3B454
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 ```bash
 magnet:?xt=urn:btih:5299F5B0D9FFCE2B78A1CDD8F0AAD80124AC23D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

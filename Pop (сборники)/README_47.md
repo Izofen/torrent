@@ -1,3 +1,38 @@
+###  Публикация: 551588   (450423) от 25.09.2012
+
+VA - Самые Горячие Хиты Авторадио 50/50 (2012) [MP3|224 кб/с]<Pop, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_450423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Digital emotion - Go go yellow screen
+02. Леди - На дискотеке
+03. Real McCoy - A noter night
+04. Божья коровка - Теплоход
+05. Vanessa Paradise - Joe le taxi
+06. И. Николаев - Поздравляю
+07. Ice MC - It's a rainy day
+08. А. Глызин - Зимний сад
+09. Fun factory - Doh Wah Diddy
+10. Форум - Белая ночь(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 07:01:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5413BAC436BDCD29A2C8260D42D73B204C999596
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1061138   (450493) от 09.10.2016
 
 Demis Roussos - Hits (2016) Presents: Elgujakviso [MP3|256 Kbps] <Pop>
@@ -21,6 +56,8 @@ Demis Roussos - Hits (2016) Presents: Elgujakviso [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:A24E65A1AE31CF2DF7ED87A1D37EB34767083721
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +86,8 @@ VA - Зайцев.нет. Осенний топ №8 (2016) [MP3|256~320 Kbps] <
 magnet:?xt=urn:btih:0916F2403526B3EA191C6FDA12678A5485597C9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +114,8 @@ VA - 80s Respect Magic Liberty (2016) [MP3|128-320 Kbps] <Electro Pop, Eurodance
 ```bash
 magnet:?xt=urn:btih:FD3A244C2E2388E2C802BF14EDD52330EF94F202
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +150,8 @@ VA - XXXL Клубничка MTV №30 50/50 (2012) [MP3|256 кб/с]<Pop, Dance
 magnet:?xt=urn:btih:99D92582B84FB6B3AB3E68BD8E7A9097A630EC02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +178,8 @@ VA - К чёрту любовь. Суперсборник хитов (2016) [MP3
 ```bash
 magnet:?xt=urn:btih:3F48F23D8136CDACE94F8B9992ED70E402CB05C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +208,8 @@ Modern Talking - Good Songs (2015) [MP3|160 кб/с]<Pop, Eurodance>
 magnet:?xt=urn:btih:D5C3308E41D747D073FCEE06C6509121F63818B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +236,8 @@ Samantha Fox - Good Songs (2015) [MP3|256 кб/с]<Pop, Disco>
 ```bash
 magnet:?xt=urn:btih:D92F005A68AFACC0BA09F88B4E0A456B149F4F9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +266,8 @@ Vanessa Paradis - Good Songs (2015) [MP3|320 кб/с]<Pop, Dance pop>
 magnet:?xt=urn:btih:A11AD88B5F129545A48631B86CE2B2B1F2D9DEBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +295,8 @@ Lara Fabian - Good Songs (2015) [MP3|160 кб/с]<Pop, Female vocalists>
 magnet:?xt=urn:btih:8C4D1FC49A4C2510761201A0996EC86CBEACD9BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +323,8 @@ VA - Shazam Хит-парад Russia Top 100 Август (2019) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:B6E6C77AD7B8DDA609F2ED0BF019379E224D61F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +359,8 @@ VA - Русский Свежачок Сезона (2012) [MP3|256 кб/с]<Pop, 
 magnet:?xt=urn:btih:A50DF825444E7CADE162133AA8889E7B4BD1DEFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +387,8 @@ Mylene Farmer - Good Songs (2015) [MP3|192 кб/с]<Pop, Shanson>
 ```bash
 magnet:?xt=urn:btih:134AEBD4837483CAEDF3FC6B1AE13E71F0B665CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +423,8 @@ VA - 100 пудовый хит. Выпуск 50/50 (2012) [MP3|256 кб/с]<Pop,
 magnet:?xt=urn:btih:FF93357F65295799EF057CA595C97BF2D452340B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +452,8 @@ Whitney Houston - Good Songs (2015) [MP3|224 кб/с]<Pop>
 magnet:?xt=urn:btih:673B48600F18C1ACA042A5C3D416D0E44C5E9464
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +480,8 @@ Patricia Kaas - Good Songs (2015) [MP3|192 кб/с]<Pop, Shanson>
 ```bash
 magnet:?xt=urn:btih:C6CF034964412AB6897885DB59130397ED483AE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +516,8 @@ VA - Самый Свежак DFM (2011) [MP3|128 kbps]<Pop>
 magnet:?xt=urn:btih:81E1E197BE617F2B1D849EA931D841F68F56A64E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +544,8 @@ VA - German Top 100 Single Charts 30.08.2019 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:30C051E31359068493617BCA7FBC928CAAE5F9B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +574,8 @@ VA - Мега хиты хорошего настроения. Сборник 10 
 magnet:?xt=urn:btih:03C7DA02D5658ABABDAFFCFD56B28DBF801FB4C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +602,8 @@ VA - Попсовая лихорадка осени. Сборник 10 (2016) [M
 ```bash
 magnet:?xt=urn:btih:171C0A277E72BB9952FEED3813F35BF6BFC5DC35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +632,8 @@ VA - Осенняя позитивная сотка - 3 (2016) [MP3|256 Kbps] <P
 magnet:?xt=urn:btih:507726E6FD76A382E173DB4CCB86D38BBBCB499C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +661,8 @@ VA - Заключительная осенняя дискотека (2016) [MP3|
 magnet:?xt=urn:btih:1316EDB7AD4E19C9CE08FBAEA08DCE27078FF441
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +689,8 @@ VA - German Top 100 Single Charts 11.09.2020 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:B962855A1F6FC0486A9E5A5C9C7BA70727A1A30B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +725,8 @@ VA - Улетное клубное DвиJение 6 50/50 (2012) [MP3|256 кб/�
 magnet:?xt=urn:btih:CE623DD62FA75E004896C95526AC018583E3A532
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,6 +753,8 @@ magnet:?xt=urn:btih:CE623DD62FA75E004896C95526AC018583E3A532
 ```bash
 magnet:?xt=urn:btih:BBC4BD18B142B40BB41C1E89962A961A19EDAA23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -700,32 +783,7 @@ VA - German Top 100 Single Charts 01.09.2017 (2017) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:C0AF96638CA369C9D45084BB536CE8DDA67B152C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246959   (456952) от 13.09.2018
-
-VA - BBQ Dinner: Ultimate Popular Dance Party (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456952.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jonas Blue - Eden Prince
-002. Alex Good - No (Original Mix)
-003. Dirty Fruit - Summer Love (Original Mix)
-004. Stephan F - Summer Time (Instrumental Mix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 09:18:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C02CC91E63301298E1A5632C18B4D9BB8580F0B4
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

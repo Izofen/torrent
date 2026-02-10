@@ -22,6 +22,8 @@ Manowar - 100% Manowar (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
 magnet:?xt=urn:btih:C6717DA211254BFE99F66662D96771C83371DA74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Robert Plant - 100% Robert Plant (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:906B32B664C89E33CEE4030046928EA3E17706DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Acoustic Rock vol.3 (2020) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:1199BDF5A56B472712B1349C871022942FB5CFBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Agialis - Компиляция (2016) [MP3|320 кб/с] <Metal>
 ```bash
 magnet:?xt=urn:btih:FAFE2989E5CE0AD452B86E76ABFEC4638CB6E44D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Joe Cocker - 100% Joe Cocker (2020) [MP3|320 Kbps] <Rock, Pop>
 magnet:?xt=urn:btih:5D663D90B844C1F16C559819BD6382388EBB7DA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Billy Idol - 100% Billy Idol (2020) 2CD [MP3|320 Kbps] <Rock, Glam Rock>
 ```bash
 magnet:?xt=urn:btih:5115A17D0842F8077608BB7B2A783343024536C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Acoustic Rock vol.4 (2020) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:82ADC00BEE2BE93793DC13BC56D09E5DFABBD9AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - The Blues For Yesterday (Vol.03) (2021) [MP3|320 Kbps] <Blues, Rock Blues, 
 ```bash
 magnet:?xt=urn:btih:04598ECED1AAB6FE65A847F9455434A378ECFA45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ J. R. Blackmore - Destructive Mania (2017) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:1269F0191DA039D8D349CAA3CBFC2F949FFE1773
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Hard Punk Review (2021) [MP3|320 Kbps] <Punk, Rock Punk, Alternative>
 ```bash
 magnet:?xt=urn:btih:413E5E3CB6C0E4CC08E1FE4C1E69FE012788A4E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Rock In The City (Vol.02) (2021) [MP3|320 Kbps] <Rock, Alternative>
 magnet:?xt=urn:btih:EC3A2341EBC2F690EB4CCEC3A80CB6520105B770
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Alterportal HITS 14 Vol. 66 - February (2014) [MP3|128-320 кб/с]<Alterna
 ```bash
 magnet:?xt=urn:btih:9B4079217F8F6798C1080F4E1C3D710CCA806A2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Advanced Rock (2020) [MP3|320 Kbps] <Rock, Punk, Alternative>
 magnet:?xt=urn:btih:AD4778B0B4752F386767CD33CCB73C6ADDBE2D24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Русский Рок ревью 2020 [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:33DF4EDEBCBA5494A7B0060FA412E7E7B2769A05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Acoustic Rock vol.1 (2020) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:291E6E5540B3997130829D391DEF216BB747F269
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - Perception: Indie Pop-Rock Compilation (2020) [MP3|320 Kbps] <Indie, Pop-Ro
 ```bash
 magnet:?xt=urn:btih:DDF686C978ECADC576736BB637837E27F95399D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - Nashville Indie Spotlight (2015) [MP3|192 кб/с] <Indie>
 magnet:?xt=urn:btih:58976F44DD6ED2DF76A0DA13311847822DC2237A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ VA - Now That's What I Call Power Ballads: Hits (2016) [MP3|320 кб/с] <Melodi
 ```bash
 magnet:?xt=urn:btih:9B86733E03F7FCFBD79FAF0912061A24ADDB9AD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ CD 1:
 magnet:?xt=urn:btih:B6DFE65D8C0CB901E45FABB4504A47DDD534EB00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:C1CE027E93EFC42968BEF87F85C1B8CF1B7E7F98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ CD 1:
 magnet:?xt=urn:btih:A8ED95AC05873E9268658D6567A799B9D7209D67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:425A83F74B6611B0D0DFB16BFAD3F92CE05D5AE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ VA - Get a Rock! (2021) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:78F5C0129143C381AB1D106F134375980E17F1F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +685,8 @@ magnet:?xt=urn:btih:78F5C0129143C381AB1D106F134375980E17F1F3
 ```bash
 magnet:?xt=urn:btih:182AAF0E1CE2E615A0FA322668AF3870EFC12FD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +715,8 @@ VA - Alterportal HITS 16 Vol. 90 - February (2016) [MP3|128-320 кб/с] <Altern
 magnet:?xt=urn:btih:603E9E84051D8EB13D1993C6D276A8F76D9F311D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ David Gilmour - 100% David Gilmour (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:64F716514F56C9394867173B25945F51A841E067
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

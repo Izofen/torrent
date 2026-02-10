@@ -1,3 +1,29 @@
+###  Публикация: 1038228   (608366) от 27.07.2016
+
+Владимир Тараненко | Почерк, портрет, характер. Скрытая психодиагностика в практическом изложении (2014) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор книги, уникальный специалист по почерковедению, физиогномике и психологии управления Владимир Тараненко, делится с читателем собственными, собранными за многолетнюю практику, сведениями, позволяющими сделать выводы только на основании почерка и внимательного изучения черт лица. Методики автора позволяют оценить степени надежности и искренности человека, его (   Читать дальше...   )Жанр: Самосовершенствование, личностный рост, практическая психологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAB5B09259499AF22EE0D440AB4BC5B7A45FEFDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912328   (608436) от 27.06.2015
 
 Леонид Гроховский, Иван Севостьянов | Продвижение порталов и интернет-магазинов (2014) [PDF, DOCX, EPUB]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:5C2AE2870F2680430F8548072DABB8B7EE12AD4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:5C2AE2870F2680430F8548072DABB8B7EE12AD4C
 magnet:?xt=urn:btih:2B44D67E17B44C09F0E5C7797DDA5CDA77EF102F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:2B44D67E17B44C09F0E5C7797DDA5CDA77EF102F
 ```bash
 magnet:?xt=urn:btih:D083DDA228847E1E8DB0A083228745F02C926016
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:D083DDA228847E1E8DB0A083228745F02C926016
 ```bash
 magnet:?xt=urn:btih:8DE59B120CB1324C78159639579FAA6147271973
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:8DE59B120CB1324C78159639579FAA6147271973
 magnet:?xt=urn:btih:541D6205301685ACD95437DAA1143E4382B31E5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:541D6205301685ACD95437DAA1143E4382B31E5D
 ```bash
 magnet:?xt=urn:btih:7E80B85AB6AB61417C87A1AD6F66D096207863C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:7E80B85AB6AB61417C87A1AD6F66D096207863C7
 magnet:?xt=urn:btih:7691962DC52935F445AE61C9B725017D589F0B4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:7691962DC52935F445AE61C9B725017D589F0B4C
 ```bash
 magnet:?xt=urn:btih:107579931F3157BFFEB0355545F0F787E5F2D74D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:107579931F3157BFFEB0355545F0F787E5F2D74D
 magnet:?xt=urn:btih:29A3578991206F9DB07D5CE94C29D98EFE46928F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:29A3578991206F9DB07D5CE94C29D98EFE46928F
 magnet:?xt=urn:btih:AB8DBDD7FE8FEDAEACDA079621BA1DB6BEBD98EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:AB8DBDD7FE8FEDAEACDA079621BA1DB6BEBD98EA
 ```bash
 magnet:?xt=urn:btih:6E8F9D60B4CF563D7FE1634AD9A4E29E9D760C91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:6E8F9D60B4CF563D7FE1634AD9A4E29E9D760C91
 magnet:?xt=urn:btih:40857F5648C4E9B6E91B0CB134A0B470255A0822
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:40857F5648C4E9B6E91B0CB134A0B470255A0822
 magnet:?xt=urn:btih:BB9017FBFEC12CA0924C78A71778B53571045444
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:BB9017FBFEC12CA0924C78A71778B53571045444
 magnet:?xt=urn:btih:07E2D97D52DC3A4553FF8A17DFFCB536C982747C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:07E2D97D52DC3A4553FF8A17DFFCB536C982747C
 ```bash
 magnet:?xt=urn:btih:83F795D475A499A7F80061DE06788F67568A1587
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:83F795D475A499A7F80061DE06788F67568A1587
 magnet:?xt=urn:btih:3BA63121FF145B1B64BDA1C4D770EE4BE71A6FB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:3BA63121FF145B1B64BDA1C4D770EE4BE71A6FB3
 ```bash
 magnet:?xt=urn:btih:051440F5C29BD27D0870EE56D1FB96690B7E9FF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:051440F5C29BD27D0870EE56D1FB96690B7E9FF6
 magnet:?xt=urn:btih:FA979DB4A4A9124355E4A8B3FAAF24878CB4D0AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +525,8 @@ magnet:?xt=urn:btih:FA979DB4A4A9124355E4A8B3FAAF24878CB4D0AB
 magnet:?xt=urn:btih:1C31971D835D5C32B7887CECDC866D1A627E368F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:1C31971D835D5C32B7887CECDC866D1A627E368F
 ```bash
 magnet:?xt=urn:btih:E791A4E93837F32A30677E90872118A691C463FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +577,8 @@ magnet:?xt=urn:btih:E791A4E93837F32A30677E90872118A691C463FE
 magnet:?xt=urn:btih:3AF7584DE6A84D602F4314E2CE1C09221F9E8A21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:3AF7584DE6A84D602F4314E2CE1C09221F9E8A21
 ```bash
 magnet:?xt=urn:btih:A07F5EF8A3DF3E3E0EB483C4D1464B26CD595081
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:A07F5EF8A3DF3E3E0EB483C4D1464B26CD595081
 magnet:?xt=urn:btih:DE3F32C0433326EE6360DE6285D0C2847E04B1A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +654,8 @@ magnet:?xt=urn:btih:DE3F32C0433326EE6360DE6285D0C2847E04B1A2
 ```bash
 magnet:?xt=urn:btih:B8119802BAA888E48FC3222E9A0D013E1D6BED9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,29 +681,7 @@ magnet:?xt=urn:btih:B8119802BAA888E48FC3222E9A0D013E1D6BED9B
 magnet:?xt=urn:btih:FC340FC2C7ACF39D2E245DB82C60FFB1CB6178B4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912975   (608917) от 27.06.2015
-
-Э.В. Штейнгольд | Охотничье ружье (1968) [PDF]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга написана мастером спорта по стрельбе - Эмилем Вольдемаровичем Штейнгольд, знакомит читателей с различными системами охотничьего ружья. Приводится техническая характеристика ружей и боеприпасов; рассказывается о факторах, влияющих на бой ружей, и о том, как правильно снаряжать патроны; объясняется методика доводки боя ружья по резкости и кучности. Содержатся (   Читать дальше...   )Жанр: ОхотаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:283FF61D7FAD3032BEB898F3E828E206D5361D1B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

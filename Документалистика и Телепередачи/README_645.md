@@ -1,3 +1,29 @@
+###  Публикация: 999584   (864725) от 22.03.2016
+
+Вести.Doc с Ольгой Скабеевой. Терракты в Брюсселе (22.03.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый информационно-документальный проект - это не просто политическое ток-шоу. "Вести.doc" - это возможность увидеть самые громкие документальные премьеры - в первую очередь качественный продукт. В программе сенсационные расследования и вдумчивый анализ событий.В этом выпуске: Продолжительность: 02:01:30Телекомпания: Россия 1Жанр: Телепередача
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF0508FF2CD9B1079E374A570C6F3EA40F2A220E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497575   (864778) от 22.09.2021
 
 Исландия с высоты / Iceland from Above (2021) WEBRip [VP9/2160p]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:2B224221FF9BD358B6CFC38DA28651E0AB0221B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:2B224221FF9BD358B6CFC38DA28651E0AB0221B1
 magnet:?xt=urn:btih:242EE7CDDF649EFABED31FA6675CED10B3489472
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:242EE7CDDF649EFABED31FA6675CED10B3489472
 ```bash
 magnet:?xt=urn:btih:CE9E3A84FFB8A12AAC505A077BE102409E7EDF06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:CE9E3A84FFB8A12AAC505A077BE102409E7EDF06
 magnet:?xt=urn:btih:E685F376D7EF19A90055B0126D67EE0739893D2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:E685F376D7EF19A90055B0126D67EE0739893D2B
 ```bash
 magnet:?xt=urn:btih:D4669BB3A1FE7E7AC6545E69EC2A9E905E76F413
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:D4669BB3A1FE7E7AC6545E69EC2A9E905E76F413
 magnet:?xt=urn:btih:E247EB1F5451498C21009144C7441384FD131F8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:E247EB1F5451498C21009144C7441384FD131F8D
 ```bash
 magnet:?xt=urn:btih:55637B988B4B5DE2BB5BC1CBC722C973EEEA3AE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:55637B988B4B5DE2BB5BC1CBC722C973EEEA3AE6
 magnet:?xt=urn:btih:2BE352D7EEA80C5E1B80BAE39737ABF591C6A62C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:2BE352D7EEA80C5E1B80BAE39737ABF591C6A62C
 ```bash
 magnet:?xt=urn:btih:499B3FC588DD7F1BC5E03B6FADDE590278C60137
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:499B3FC588DD7F1BC5E03B6FADDE590278C60137
 magnet:?xt=urn:btih:2FFC5E4541362648FC47B2125375FEE3DE4E5E60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:2FFC5E4541362648FC47B2125375FEE3DE4E5E60
 ```bash
 magnet:?xt=urn:btih:DD9410A718040D84F3D5D48A311088A59148B78E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:DD9410A718040D84F3D5D48A311088A59148B78E
 magnet:?xt=urn:btih:FC8F9A0778BCA46B6269665FE754DE0B2F4FD485
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +356,8 @@ magnet:?xt=urn:btih:FC8F9A0778BCA46B6269665FE754DE0B2F4FD485
 ```bash
 magnet:?xt=urn:btih:87C02C4025DF0BFE592B15A860B42BA5EB2B3E2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:87C02C4025DF0BFE592B15A860B42BA5EB2B3E2E
 magnet:?xt=urn:btih:1D436A1C894106B952F351E2434B49A4D76F6809
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +408,8 @@ magnet:?xt=urn:btih:1D436A1C894106B952F351E2434B49A4D76F6809
 ```bash
 magnet:?xt=urn:btih:B8E9008118D87F7F2F6BAE929312C723C84E64AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:B8E9008118D87F7F2F6BAE929312C723C84E64AC
 magnet:?xt=urn:btih:2DE8A777A04605C6E2AFDE364FAFFED4B0AF390D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +461,8 @@ magnet:?xt=urn:btih:2DE8A777A04605C6E2AFDE364FAFFED4B0AF390D
 ```bash
 magnet:?xt=urn:btih:FCAC0DC9C284962CA05ED97F13D29D42991E10C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:FCAC0DC9C284962CA05ED97F13D29D42991E10C4
 magnet:?xt=urn:btih:51DCD8E0FA366CCC71F4C47E33CF11FACC77E893
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +513,8 @@ magnet:?xt=urn:btih:51DCD8E0FA366CCC71F4C47E33CF11FACC77E893
 ```bash
 magnet:?xt=urn:btih:86BC13979A00C2CEE82260F5B3F175A6F8143497
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +540,8 @@ magnet:?xt=urn:btih:86BC13979A00C2CEE82260F5B3F175A6F8143497
 magnet:?xt=urn:btih:66CE7AD198DFB2EBCB5C8E4ECD95EB44613BE42B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +565,8 @@ magnet:?xt=urn:btih:66CE7AD198DFB2EBCB5C8E4ECD95EB44613BE42B
 ```bash
 magnet:?xt=urn:btih:74C9FC7246D7DD8DF16CB9243CB66B1F00446057
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +592,8 @@ magnet:?xt=urn:btih:74C9FC7246D7DD8DF16CB9243CB66B1F00446057
 magnet:?xt=urn:btih:A4BDF90F8E744C3AE52027B533897937A92A255D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +617,8 @@ Aнисса Науэй ведёт аналитическую программу 
 ```bash
 magnet:?xt=urn:btih:3F41D04B8383ACD140309045690DB299F331247D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +644,8 @@ magnet:?xt=urn:btih:3F41D04B8383ACD140309045690DB299F331247D
 magnet:?xt=urn:btih:82020C8776F0586A54EDDEB9CB5F033E7A7E176D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,33 +670,7 @@ magnet:?xt=urn:btih:82020C8776F0586A54EDDEB9CB5F033E7A7E176D
 magnet:?xt=urn:btih:7AD5CF4A0A9E36B523A5B600A4C0A84999602F14
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 873846   (866812) от 01.03.2015
-
-Чудо техники (2015.03.01) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866812.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Чудо техники» — это доходчивый и интересный рассказ о новейших научных разработках, которые способны поменять или уже меняют нашу повседневную жизнь. Автор проекта — Сергей Малозёмов — хорошо знаком зрителям НТВ по репортажам программы «Сегодня», касающимся новых технологий, гаджетов, медицины. Он в курсе последних научных разработок и одним из первых узнает о значимых изобретениях. Теперь обо всем, что происходит на передовой научно-технического прогресса, узнают и зрители НТВ. Новинки и открытия со всего (   Читать дальше...   )В выпуске: Из грязи в князи: какие средства спасут нашу обувь от капризов погоды?
-Ускорение — мать учения: можно ли выучить иностранный язык за месяц?
-Каждому овощу — свой контейнер: тестируем новейшие кухонные изобретения.
-А также — собачьи радости и собачьи гаджеты.
-Все самое интересное — в программе «Чудо техники».Телекомпания: НТВЖанр: ТелепередачаПродолжительность: ~ 00:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8786F1AD29F4F268721A0C962E50D52257ADB4D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

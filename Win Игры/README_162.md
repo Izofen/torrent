@@ -19,6 +19,8 @@ Thank Goodness You're Here! – перенесет вас в Англию, в г
 magnet:?xt=urn:btih:DCBCF56AC4FADDE8DD569E4E2B8198641A53AE1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Mecha Knights: Nightmare (2021) [En] (1.620/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:04730358D1232819340C85E7B73925096339CC90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Octopath Traveler II (2) (2023) [Multi] (1.1.0) Scene Rune
 magnet:?xt=urn:btih:40E01FF992D58C7402E4F120525C5DACBDA1451B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ UBOAT – уникальный симулятор управления подв�
 ```bash
 magnet:?xt=urn:btih:362DCE3A2A4F38B130E6218E3516D1F705AD7DBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Earl vs. the Mutants (2024) [Ru/Multi] (1.0) Scene Unleashed
 magnet:?xt=urn:btih:5CC614ED9AF99F67B57410087F344EEFE4EC0175
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:5CC614ED9AF99F67B57410087F344EEFE4EC0175
 ```bash
 magnet:?xt=urn:btih:413E8CBF368B8123556816F95C28FFB72B0A9BEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ POSTAL 4: No Regerts (2022) [Ru/Multi] (1.3.2) Repack Other s
 magnet:?xt=urn:btih:73197D95185AA2B958CAA1C317754EA68D828F12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Minecraft Dungeons. Новая приключенческая игра, вдох
 ```bash
 magnet:?xt=urn:btih:34088224FE640C455FEAE0AE2EA6091EED9FE890
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Trepang2 (2023) [Ru/Multi] (2471/dlc) Scene Rune
 magnet:?xt=urn:btih:12E97CC47BCD822C1F6AAB020B2DDBEFEF0DBA9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ S.T.A.R.W.I.E.L.D. (2024) [Ru/En] (1.04) Scene SKIDROW
 ```bash
 magnet:?xt=urn:btih:62D6870F253F33F7F89E0F26FB37358131B26AFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Sumerians (2020) [Multi] (1.0.7/dlc) Scene Tenoke
 magnet:?xt=urn:btih:889ABDC35F0E4AA3BBBCBB8540944F01766C3AF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Super Life (RPG) – казуальный симулятор прогресса.
 ```bash
 magnet:?xt=urn:btih:3E6A6057F9B1963BE656F1570B56B3630B1EC426
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Rising Star 2 - ролевая игра в сочетании с симулят�
 magnet:?xt=urn:btih:609C67D773650329442650ADF9934B333C7C656D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Ms. Holmes 6: Letter M / Мисс Холмс 6: Буква М (2024) [Ru] (1.0) 
 ```bash
 magnet:?xt=urn:btih:92A2E00F0A63BB312E79AC9C0D5D4C4515716F68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Fallen Leaf (2024) [En] (1.0.0.14) Repack FitGirl
 magnet:?xt=urn:btih:6176E6DEABB8FC3BFC38FA362B42AE02D080AF87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Shift 87 – самая необычная рабочая смена ждет в
 ```bash
 magnet:?xt=urn:btih:6636B88D5872F2392357860B7092BEAA5CF8A3AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ The Mortuary Assistant (2022) [Multi] (3.0.0) Repack Other s [Definitive Edition
 magnet:?xt=urn:btih:71FBFB36186CCA4E8EF7465DFA9D3287A894E057
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Chicken Game - это интерактивная история, что пока
 ```bash
 magnet:?xt=urn:btih:1F50E128D2938919A72A1C204C1109610276B261
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ DAISY THE SWIMMER переносит пользователей в яркое п
 magnet:?xt=urn:btih:3167047073CE5537A116927D6F89BD6675846471
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Batman: Arkham Knight торжественно завершает знамени
 ```bash
 magnet:?xt=urn:btih:81FBAB8B98BD9E3829B27DE48A02D5F61D0E72BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Into The Flames – симулятор профессии пожарного, к
 magnet:?xt=urn:btih:DF24CBA3E98DE6B79852C4A4EFD85698F034F64C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ STAR WARS: Bounty Hunter (2024) [Ru/Multi] (Build 15125379) Scene SKIDROW
 ```bash
 magnet:?xt=urn:btih:78A7F89042912ACA0BCF9274EE3F8FA7C5C12AEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ First Cut: Samurai Duel - это хардкорный пиксельный сл�
 magnet:?xt=urn:btih:786091EAAEBC1FA7D31564DB7F21129B93E8486A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Tomba! Special Edition предлагает ностальгический по�
 ```bash
 magnet:?xt=urn:btih:F98224BE2CACFD467C45A9EDF8B4C3BF501D2661
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Blacklist Mafia (2024) [Ru/En] (Build 15226435) Scene Tenoke
 magnet:?xt=urn:btih:FBAA93A6DA539082E48CE60BBE51AD0C287EC8C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Mini Airways (2024) [Ru/Multi] (0.8.1) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:A0BFDC5B98F5409EECB5CA70A2757C5833BBDF4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

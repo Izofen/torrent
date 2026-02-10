@@ -19,6 +19,8 @@ Black Dahlia Black Dahlia - так прозвали известную в 40-е 
 magnet:?xt=urn:btih:A783525B65C901EEAEF5A7C56DF9A3E10239B3D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Diggers 1 и Diggers 2: Extractors [En] (RePack) 1993-1995
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Doom — культовая компьютерная игра, выпущенн�
 magnet:?xt=urn:btih:5FD543CA19AB05398C56A00510FB9E17EC7BEF42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Alone in the Dark: The New Nightmare (2001) [En] (1.0) License GOG
 magnet:?xt=urn:btih:6377911158DF95D8DF144445AD838AF791292111
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ War Wind (1996) [En/Fr/Ge] (1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:0CCD5B0F13D7DDEF75FFB25B2AA1F39904537C1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Robot Wars: Arena of Destruction [Ru] (P) 2002
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ D: The Game (1996) [En/Fr/Ge] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:480893D5C21A90E59767C7D6CA252FA588B18C49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Guitar Hero 3: Legends Of Rock / Guitar Hero 3. Легенды рока (2008) [
 magnet:?xt=urn:btih:C2A7787708A430F2A31278D481F348F9D3F2F087
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Bio Menace (1993) [En] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:BD9A4066C8A3A242258F33369177D96700C1D87B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Wolfenstein 3D [En] (RePack) 1992 | RG Games (Pilotus)
 magnet:?xt=urn:btih:C1618ED1717C777CF152ACFF38FC590F0EF4E084
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Dangerous Dave Антология [En] (RePack) 1988-1993 | RG games (Pilotus)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Railroad Tycoon 2 (Rip) [En] 1999 | RG Games (Pilotus)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Action Legion - это аркадный шутер с видом сверху, �
 ```bash
 magnet:?xt=urn:btih:06240BDD925961374923449F2D6683FBA61DA63D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Tomb Raider: The Angel of Darkness / Tomb Raider: Ангел Тьмы [Ru/En] (R
 magnet:?xt=urn:btih:4E9FF964AB6C84D79787F1623CDB9979FD8B4598
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ Medicopter 117 / Альпийский патруль [Ru] (L) 2004
 ```bash
 magnet:?xt=urn:btih:CC6F69D2D0BD6D2AFA8C5B318DE1A6D26EC2F4F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ Psi-Ops: The Mindgate Conspiracy / Psi-Ops: Врата разума (2005) [Ru/E
 magnet:?xt=urn:btih:CE26ECB1AA1EDDEFB21669801E17AA6D7CFE85BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:CE26ECB1AA1EDDEFB21669801E17AA6D7CFE85BF
 ```bash
 magnet:?xt=urn:btih:E4FB42915DC0E0F22F531E2653C60188EB8DCA98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ Railroad Tycoon 2 + OST (Rip) [Ru] 1999 | RG Games (Pilotus)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ Gunship! / Gunship! Война в небе Война в небе (RePack) [Ru/E
 ```bash
 magnet:?xt=urn:btih:882F85882D4787EF0294711671461338832F6236
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ Animal paradise tycoon (Rip) [En] 2002 | RG Games (Pilotus)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ Animal paradise tycoon (Rip) [En] 2002 | RG Games (Pilotus)
 ```bash
 magnet:?xt=urn:btih:3936397A9113A2AD16BE24EA678C9ACEAA43BA29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ Helicopter's Flight Simulators Collection Vol.1 / Коллекция симул�
 magnet:?xt=urn:btih:18577C9CA2DB11E164CB28E3856DD32A9608E793
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ Armed and Dangerous (RePack) [Ru/En] 2003 | R.G. Origami
 ```bash
 magnet:?xt=urn:btih:6966A91FA90F0FB31DF497BA99DA11922A453C54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ Loom (1990) [En] (1.0) License GOG
 magnet:?xt=urn:btih:1D59A5A8DEAD20C8D1BF18128F6B29E9C9973C14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +643,8 @@ Another War / Другая Война (2002) [Ru] (2.48) Unofficial
 ```bash
 magnet:?xt=urn:btih:04F53B11F743DB7BA191FAF093662C8D89CA9110
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +671,8 @@ Theme Hospital / Частная клиника [En] 1997 | GOG
 ```bash
 magnet:?xt=urn:btih:A288DA378F3747891FA666B940D5DC7E05DE554E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

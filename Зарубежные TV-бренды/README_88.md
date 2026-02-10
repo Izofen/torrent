@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:2CEAE0D43367E5149C30281535C2840EB9E45830
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:2CEAE0D43367E5149C30281535C2840EB9E45830
 ```bash
 magnet:?xt=urn:btih:BF8C4E82B176D797D4C2DA5727CEDB2BB1B969D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:BF8C4E82B176D797D4C2DA5727CEDB2BB1B969D4
 magnet:?xt=urn:btih:4C3025AB67152754B9BC6419056B17849E414FDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NGW: Дикий Нил / Wild Nile (2014) HDTV [H.264/1080i-LQ] (Серии 1-3 
 ```bash
 magnet:?xt=urn:btih:9ABF3E0E98523C9D77C8A999B62CABA036A8EBBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ NGW: Апокалипсис животных / World's deadliest. Animal Apocaly
 magnet:?xt=urn:btih:BA5EA30EACFC3F3A61AC5A7ED2EAF0754C2A5CBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ NGW: Десять смертельно опасных змей / Ten deadliest s
 ```bash
 magnet:?xt=urn:btih:8F0F580398C12DB4A750950FBB9B7AEF6E5B1818
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ NGW: Птица-динозавр / Dino-Bird (2017) HDTVRip [H.264/1080p-LQ]
 magnet:?xt=urn:btih:432B7B85025E3299406D044A3E5FDBF8A38E8A49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ NGW: Последние дьяволы / Last Devils (2016) HDTVRip [H.264/1080p
 ```bash
 magnet:?xt=urn:btih:EE7001FF41D2F72F77DFAE53DD42E4208C6D9D50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ NGW: Неукротимая Южная Америка / South America Untamed (2
 magnet:?xt=urn:btih:62F87F10D6037D03CF0F5845E6E981E077B3A576
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ NGW: Дикая зима / Wild winter (2016) HDTV [H.264/1080i-LQ]
 ```bash
 magnet:?xt=urn:btih:496F193E1726E9735C7EE62206B141A24C09EC17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Discovery. Экстремальные боевые искусства / XMA: Xtr
 magnet:?xt=urn:btih:AB00C6681CF7F416207FF09C4073EF12338C51E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Discovery. Недружелюбная вселенная / Bad Universe (2010) H
 ```bash
 magnet:?xt=urn:btih:30DA5F42AA82A750022C3DA6E7ED2317FE69AE31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ History Channel: Жизнь и смерть в Древнем Риме / Life an
 magnet:?xt=urn:btih:6A519788B4B4769272A2EEC234DA67C7A5BE8A4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ NGW: Смертоносная Африка. Рифы / Africa's Deadly Kingdom (
 ```bash
 magnet:?xt=urn:btih:20DF2C194072BB89111B955D00D6E74C967A39E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:20DF2C194072BB89111B955D00D6E74C967A39E2
 magnet:?xt=urn:btih:35F48131FC6FC0FD4B6E0459D972FA7BA930D06D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ magnet:?xt=urn:btih:35F48131FC6FC0FD4B6E0459D972FA7BA930D06D
 ```bash
 magnet:?xt=urn:btih:A750F14B0D01E5C9D2FB45EB8672632E75C863CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ NGW: Ягуары против крокодилов / Jaguar vs. Croc (2017) HDT
 magnet:?xt=urn:btih:5458C3537BAD6F8769316C85BD6B018F3AC500A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ NG. Суперсооружения. Мегазаводы. Суперавтомо
 ```bash
 magnet:?xt=urn:btih:1550B174D0230502CDF2A72F21316C8087D9B190
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ NG. Взгляд изнутри: Секреты зоны 51 / Area 51 Declassifi
 magnet:?xt=urn:btih:966E6AEC4C8F20F73E4084C09EC5039014692B10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ BBC. Horizon. Откуда берутся гении? / Horizon. What Makes a Ge
 magnet:?xt=urn:btih:DEB63627133EA52E3E0575081E0F963140601C75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +538,8 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 ```bash
 magnet:?xt=urn:btih:65FB50183C724AD16348F05B480065F333DFD15D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ NG: Пчелы-Убийцы / Killer Bees (200?) SATRip
 magnet:?xt=urn:btih:D0C41EDFCA88EC2E77A47400CE8BDE4F37750A72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ BBC. Вся правда об акулах / Shark (2015) BDRip [H.264/1080p] (�
 ```bash
 magnet:?xt=urn:btih:AF539D7705749B8FB105CD17F406D1EFEE58E450
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ NG. Научные глупости / Science of stupid (2019) HDTVRip (сезо
 magnet:?xt=urn:btih:DFA5B3C1E00DF7AB3C2385F70026859329F17432
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ magnet:?xt=urn:btih:DFA5B3C1E00DF7AB3C2385F70026859329F17432
 magnet:?xt=urn:btih:C04E0D4E16AA87C476E2A49CB77FA7869731DCB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ magnet:?xt=urn:btih:C04E0D4E16AA87C476E2A49CB77FA7869731DCB7
 ```bash
 magnet:?xt=urn:btih:63B8F1DFA9749F46C86C4A4A112A0F6D710BF0A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ Udemy, Maher Haddad | BGP on MikroTik with LABS - From Entry to Intermediate lev
 magnet:?xt=urn:btih:4CE24E23DD40C98836C0716F8607A0699FD99AC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Udemy, Maher Haddad | Daily Bandwidth Quota on LTE using MikroTik  (2021) PCRec 
 magnet:?xt=urn:btih:CBA088D38F1AE1BA7260716897F2607F549C3F6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Camille Kleinman | Camille Bathing Robe Workshop (2016) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:FC13FFB57CF59C807113C57F895BAAB096F61801
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Udemy, YouAccel Training | HTML & CSS - Certification Course for Beginners  (201
 magnet:?xt=urn:btih:83B7BB0F7CCAC7849C763E04A48AF59994F56BCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Udemy, Creative Online School | Practical Web Development: 22 Courses in 1  (202
 ```bash
 magnet:?xt=urn:btih:A8FDBBA4319D888D5D46E35F1441381A81E454E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ Udemy, YouAccel Training | Learn HTML - For Beginners  (2019) PCRec [En / En Sub
 magnet:?xt=urn:btih:CD110ED1D52E8E75208D22DCD4C0BC0EDAB03285
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Udemy, Nikita Sergeev |  Power BI: от новичка до уверенного
 ```bash
 magnet:?xt=urn:btih:1ECDD9AC9E77165449E64991B4EBE8D6BB688270
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Spring Framework 5: изучение Spring Framework 5, Spring Boot 2, Spring M
 ```bash
 magnet:?xt=urn:btih:F72C6F4C4CB9B482BBFA3EAC74C1028CEA42AC7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ Procreate изменил правила игры для художников с�
 magnet:?xt=urn:btih:7BB5D2C48710B4A21F39DCCA6A54A55A001FB7E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:7BB5D2C48710B4A21F39DCCA6A54A55A001FB7E5
 ```bash
 magnet:?xt=urn:btih:3E173F97F3B4E378ACCEE95761ED7EF3CA1A4AB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ Lectoria, Артем Зернов | MODX: создание лендинга. Б�
 magnet:?xt=urn:btih:55AD336CB7E7EC265AA14AC157B441586FB5FE8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ Academind Pro, Maximilian Schwarzmüller  | Python Django - Практическ
 ```bash
 magnet:?xt=urn:btih:3A1E7F98D4D5482331F596C26A9BBCC616DAFDB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ Udemy, David Bombal | Wireshark: Packet Analysis and Ethical Hacking: Core Skill
 magnet:?xt=urn:btih:21A11425FA2374EDE2BB823D26328A1FFD0A8D97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ Gleb Alexandrov, Aidy Burrows | Space VFX Elements: Creating the Galaxy in Blend
 ```bash
 magnet:?xt=urn:btih:BE2741956083A6E9B7AB1D1D95CB81F6A8A07536
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ Udemy, Dmitri Nesteruk | Шаблоны проектирования в Go / Des
 magnet:?xt=urn:btih:81CB6E874F32A00EF3EC0EC146A8E128E0233E95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ Gleb Alexandrov, Aidy Burrows | Space VFX Elements: Creating the Galaxy in Blend
 ```bash
 magnet:?xt=urn:btih:DC9E0CD5D7178DCF757ECD21301D335DB0027419
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +456,8 @@ Main Axis / Cross Axis(   Читать дальше...   )Производств
 magnet:?xt=urn:btih:FE2B1348902FE29B763C8D59B85A43634641DE4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ Gleb Alexandrov, Aidy Burrows | Space VFX Elements: Creating the Galaxy in Blend
 ```bash
 magnet:?xt=urn:btih:889057884807FA122BD584FED12C4CA024C8F576
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +510,8 @@ Udemy, YouAccel Training | Web Development Masterclass - Complete Certificate Co
 magnet:?xt=urn:btih:4ED1D51727131809C7154472475CB90F8FB6AE0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ Tilda school | Научитесь создавать сайты, лендинг�
 ```bash
 magnet:?xt=urn:btih:474F993B54BFB77D0D327545259C6AF92ECF2E04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +562,8 @@ Udemy, Maximilian Schwarzmüller | NextJS и React - Полное Руковод
 magnet:?xt=urn:btih:C48FE247C7B2849D2D20F1A9A3EDC1F839BEE616
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ Udemy, Antonio Papa | React и NestJS: Практическое Руководс
 magnet:?xt=urn:btih:F28097BC9FE1CE8E6C89D5C65404C246FBCFC32D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ magnet:?xt=urn:btih:F28097BC9FE1CE8E6C89D5C65404C246FBCFC32D
 ```bash
 magnet:?xt=urn:btih:78DF464912E1B6B1E955097C344C97084CC1ACB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +642,8 @@ Skillbox, Александр Амзин и др. | Копирайтинг от �
 magnet:?xt=urn:btih:7421E7CF801AB7E1821383C3D025D8D88C8C9985
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ Udemy, Rustam Kamalov | Python + Django: с нуля до коммерчески
 magnet:?xt=urn:btih:1CC1E41F6F685E44D267B0EFB8AA4D0F9A87F639
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ CG Boost, Martin Klekner | Мастер 3D окружения в Blender 2.9 / M
 ```bash
 magnet:?xt=urn:btih:301ED4B8A19E2854363E22EF47354E10D70FA621
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

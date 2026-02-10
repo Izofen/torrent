@@ -19,6 +19,8 @@ Earth vs Mars (2025) [Ru/Multi] (001.000.4207100) Repack Let'sРlay
 magnet:?xt=urn:btih:87181E689595E50829953ED33FEBC11AA5C28A84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Onirism (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D0A4B5C789A9B1D7897600D04D2056BFDE2B2C86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ GODBREAKERS (2025) [Ru/Multi] (1.0/dlc) Repack FitGirl [Juice Edition]
 magnet:?xt=urn:btih:B1B3069B29BC9E778C9E2980DE8142D445E1C566
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ ILA A Frosty Glide (2025) [Ru/Multi] (1.0.0.4) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:94F48039717AC8A6B860002BB0984CF1DE5165FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Escape Simulator 2 - это продолжение самого продавае
 magnet:?xt=urn:btih:E25CF56D9AE5DD77A628C70F9B985039DEEFC984
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Europa Universalis V (5) (2025) [Ru/Multi] (1.0.0/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:07C26DF26086B0B09DABE927A5132176282480F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Realms of Madness - это фэнтезийная игра в реальном �
 magnet:?xt=urn:btih:E2AC3BA22EB048268B55FF054133AD34A5B2CB61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:E2AC3BA22EB048268B55FF054133AD34A5B2CB61
 ```bash
 magnet:?xt=urn:btih:2A8CFF08C63CD6E6813692302487C9FED2280CD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Europa Universalis V (5) (2025) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 magnet:?xt=urn:btih:CF450D0F8C8C698C8756E6D12653FE12073C48A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:CF450D0F8C8C698C8756E6D12653FE12073C48A7
 ```bash
 magnet:?xt=urn:btih:F8FFB855A1C069CB3D87FC17E209E77FA8BFE86D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Europa Universalis V (5) (2025) [Ru/Multi] (1.0.0/dlc) Repack Pioneer
 magnet:?xt=urn:btih:2EF369930146EDDBA0B2CCA4140799E0436967C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Syberia - Remastered (2025) [Ru/Multi] (32111015) Scene FairLight
 ```bash
 magnet:?xt=urn:btih:D2EE68CB3B7D253883668749E521BC2C5187FADE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ The Falconeer Revolution Remaster (2025) [Ru/Multi] (32096228) Scene Rune
 magnet:?xt=urn:btih:76A59826D889C5E6676D55DC6AC778444226FFE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Syberia - Remastered (2025) [Ru/Multi] (Build 20668622) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:9D573A1637EB3897CCDEE3A477C2011F770388D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Biped 2 – это продолжение увлекательной игры о
 magnet:?xt=urn:btih:19C8FFEA2530CB2F829829BD2E8141C22AE933B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Second Sun (2025) [En] (1.0.5b) Repack Necros
 ```bash
 magnet:?xt=urn:btih:C99A68CB5D35018C1C29A15E930BF82E141972A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Syberia - Remastered (2025) [Ru/Multi] (Build 20668622) Repack FitGirl
 magnet:?xt=urn:btih:164128E204CEFE4B2C8839B0A8746858A948C2D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ No Players Online (2025) [Ru/Multi] (6000.024f1) Repack Necros
 ```bash
 magnet:?xt=urn:btih:C1DAB4F39A6B276FBD70E0B7A6B16F7AD486D728
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ Second Sun - путешествие по живописному миру, соз
 magnet:?xt=urn:btih:31CDCD64F7C0FFD8A6895FAF68BEC60C7B4AC983
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Syberia - Remastered (2025) [Ru/Multi] (Build 20668622) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F86766D85D2A2A5BCFCBC2B0ED8DD95EC766C479
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ SPARTA 2035 (2025) [Ru] (1.1.0(29)/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:1AB8419115AF4B5D2656A52DFB0C2B70BCF1B135
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Restaurats (2025) [Ru/Multi] (20727795) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:45C29F17F01FFC8C011D00BC14747A1F6BFB7023
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Voidtrain (2023) [Ru/Multi] (1.0/dlc) Repack Let'sРlay [Deluxe Edition]
 magnet:?xt=urn:btih:A981F5C121118ACCC0E8ACF41BE3DFFE26C13AB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Voidtrain (2023) [Ru/Multi] (1.0/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:51B3FDBB08EBAF04D388FE436681A9069E70A02F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Voidtrain (2023) [Ru/Multi] (1.0/dlc) Repack Pioneer [Deluxe Edition]
 magnet:?xt=urn:btih:61A178A7F3B0540705EE10B9F26CE45DE062D2C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ The Bench (2025) [Ru/Multi] (1.0.107) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:12CB9A5D463A6BF21CA20143254270883E2A8525
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

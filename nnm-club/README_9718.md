@@ -22,6 +22,8 @@ VA - Record Super Chart 661 (2020) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:600CD14D73EB16FE3AA31332C5652B57F9A54A2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ MediaHuman YouTube Downloader - удобное приложение с помо�
 magnet:?xt=urn:btih:6E7674225A8BF31C2825C13CD03DF3F186D3EDE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:6E7674225A8BF31C2825C13CD03DF3F186D3EDE2
 ```bash
 magnet:?xt=urn:btih:825C1766F1186FE8FD4526771E283181382627BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Alter Bridge - Walk the Sky 2.0 (2020) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Har
 magnet:?xt=urn:btih:D4D3CD0D6850619FC8685BEEAE4F690632638720
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:D4D3CD0D6850619FC8685BEEAE4F690632638720
 ```bash
 magnet:?xt=urn:btih:A29A441DD06E1EE91DF5FFF9913DDE73F5D8FC41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:A29A441DD06E1EE91DF5FFF9913DDE73F5D8FC41
 magnet:?xt=urn:btih:4D5DF506CCD19F438E77BFF089F866C775C51587
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Extreme Picture Finder - программа для автоматическог�
 ```bash
 magnet:?xt=urn:btih:D6E9E36DE30DE22004D1A5717865EFC1CA587684
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:D6E9E36DE30DE22004D1A5717865EFC1CA587684
 magnet:?xt=urn:btih:BFC9280984F76074043230AE9D02D18F26233981
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Snow Toolkit - в проект включено 26 предварительно 
 ```bash
 magnet:?xt=urn:btih:046EAAF11763C60BEC4E5D295D8537801095DB09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ CCleaner - утилита для чистки мусора в операцион
 magnet:?xt=urn:btih:60BFC4D50FD0C51DBF444854207BF908F13234FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:60BFC4D50FD0C51DBF444854207BF908F13234FB
 ```bash
 magnet:?xt=urn:btih:11F54C02CFA0391762A1D3371B3FC7CD563CD4D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:11F54C02CFA0391762A1D3371B3FC7CD563CD4D8
 magnet:?xt=urn:btih:F4D967FA01475F43BBEA723874373689DBB4102A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Awesome Text Effects Vol.2 - текстовые стили для Вашего �
 ```bash
 magnet:?xt=urn:btih:2D1F18E83A926BA8C715325FDFFC60B709A3C09F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:2D1F18E83A926BA8C715325FDFFC60B709A3C09F
 magnet:?xt=urn:btih:8DD68234845B03A32BD8DABBBAC7519269D8DB3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:8DD68234845B03A32BD8DABBBAC7519269D8DB3F
 magnet:?xt=urn:btih:8ED087D56CD45FA65AA0E96BF4533EEC7FFB6087
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ Vintage Art Grunge Photo Template - добавьте к вашей фотогр�
 ```bash
 magnet:?xt=urn:btih:D2D0F8B690B096AB6469F15CA7A3B57D0BFFB68E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ Tearaway / Сорванец (2013) [PSVita] [EUR] 3.60 [HENkaku] [PSN / 1.01] [R
 magnet:?xt=urn:btih:41EA0D522FA22D35D429C3797B816CD4E08546E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ Textify — это крошечная утилита, позволяющая с�
 ```bash
 magnet:?xt=urn:btih:10A74A9876CFE0FACC1DA92BEEA21974AFA40F27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:10A74A9876CFE0FACC1DA92BEEA21974AFA40F27
 magnet:?xt=urn:btih:9CB8D8BCB90E7FE482F87A02936BB65D08FA3789
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:9CB8D8BCB90E7FE482F87A02936BB65D08FA3789
 ```bash
 magnet:?xt=urn:btih:7685DA2DA1A6173ADF124E717303122972D54FCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +559,8 @@ VA - Битва DJ: Chief_MC vs. Бинокль (2004) [MP3|320 кб/с]<Progres
 magnet:?xt=urn:btih:AE84E6C93BDA36F388DDE8D68E890DC3DEC7B5C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:AE84E6C93BDA36F388DDE8D68E890DC3DEC7B5C0
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +611,8 @@ magnet:?xt=urn:btih:AE84E6C93BDA36F388DDE8D68E890DC3DEC7B5C0
 magnet:?xt=urn:btih:C7DD297A323B31F3D49D84BAF81499437554890C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ VideoHive - Business cards mock-up - 63932 [AEP]
 ```bash
 magnet:?xt=urn:btih:3698A7A30A2666922905CB47FC3D06E2C3C62E3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:3698A7A30A2666922905CB47FC3D06E2C3C62E3C
 magnet:?xt=urn:btih:096F5804502A4B24803F332A0F2B8CF52615E392
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ magnet:?xt=urn:btih:096F5804502A4B24803F332A0F2B8CF52615E392
 ```bash
 magnet:?xt=urn:btih:4E9B22B3795FA68C3E705B682B48E58EF0D2FC2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ Microsoft Project 2007 12.4.6423.1000 SP2 Pro Portable [RU]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ NXPowerLite Desktop 6.2.12 Portable by poni-koni [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:510A98F3C7CAE4F31A9187DE30254C6F6EBC5EDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ CoolUtils Total HTML Converter - программа для преобразов�
 magnet:?xt=urn:btih:69FA383F283227F126FBFAA25BC2A60030DF1AFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ SunsetsI ePixEditions - Wallpaper Calendar 6.6.9.701 [En]
 ```bash
 magnet:?xt=urn:btih:778FF0BAC4FEDB378676D7EC207612FD635E4890
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Readiris – это мощная система оптического расп�
 magnet:?xt=urn:btih:70B1299620D5EF67E149317A32EC3F8A1C913648
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Print To Word — печать из любого Windows приложения в
 ```bash
 magnet:?xt=urn:btih:4DDB98A14F8CC1ED4025610F95E4B3B00B88BEE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Client for Google Translate Pro 6.2.620 + Portable [En]
 magnet:?xt=urn:btih:E64A169C2346B1470C18BFBF2B69258830F1B943
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Microsoft Office 2016 хорошо демонстрирует, как сегод
 ```bash
 magnet:?xt=urn:btih:7FEE663B5F087EB995FE9BEEC816A633E3D70FDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Tipard PDF to Word Converter - это простой и быстрый спос�
 magnet:?xt=urn:btih:DB2750ECDA522602A0627BA58C1E7A51327A947C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ ScanPapyrus - программа для автоматического скан�
 ```bash
 magnet:?xt=urn:btih:CAC16BD101D2CF147EE85DD5084611E719D052D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Mgosoft PDF To Image Converter - быстрая программа, котора
 magnet:?xt=urn:btih:AD0512E8059E202EAFF5BF11B3CAE75E3CDD77B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ FileSearchEX это простая утилита поиска файлов дл
 ```bash
 magnet:?xt=urn:btih:D865C3A9FAC89D323810B6FFBB6F876910C83288
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ AVS Document Converter - предназначена для просмотра и
 magnet:?xt=urn:btih:5B2E56F18D35F1A15772CAE7515063424B9DB576
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ ExcelVBA - полезные надстройки для Excel, предназн�
 ```bash
 magnet:?xt=urn:btih:EB487DDFBAD5F2AD4D80DFCBF166FBB2BC9C7CD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ ExcelVBA - полезные надстройки для Excel, предназн�
 magnet:?xt=urn:btih:F29D3D22C57C17839E7B75D28BAB4CE07ACDB4BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ ABBYY FineReader 12 Professional – программа для распозна�
 ```bash
 magnet:?xt=urn:btih:3B20660A2FA714AAE33DFD1DA0D63278E943A8CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Nuance PaperPort Professional 14.5.15168.1450 [En]
 magnet:?xt=urn:btih:4998A3FEAB49E2467BCE0D46154647D9C6717BDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ PDF-XChange Editor - программа для просмотра, редакт�
 ```bash
 magnet:?xt=urn:btih:38E799D1293E56F670D1B07DC006B86E98F6D61A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ PDF-XChange Editor - программа для просмотра, редакт�
 magnet:?xt=urn:btih:08E62B8E65B39B31E3D2F666C594B4DBE0038D57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ CleverPrint 8.6.39690 [Multi]
 ```bash
 magnet:?xt=urn:btih:1381EECD0DC69696DDFC3BD664FE8D1E91318702
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Aiseesoft PDF to Word Converter - эта программа поможет Ва�
 magnet:?xt=urn:btih:2D008F15CBF7DC9FC034298514FC6B18D7908BA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Aiseesoft PDF to Excel Converter - с этой программой очень �
 ```bash
 magnet:?xt=urn:btih:0071348E39A46F3B02A6F7C2769D2902142599C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ AVS Document Converter - предназначена для просмотра и
 magnet:?xt=urn:btih:C73AB8D343429AB18EEF8E530604A78449B44464
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ AVS Document Converter - программа предназначена для п
 ```bash
 magnet:?xt=urn:btih:A36531FA8D8BD48A37A528E431FDE242146B8308
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ AnyMP4 PDF Converter Ultimate - программа, которая быстро 
 magnet:?xt=urn:btih:913A09F2F4C09BD99A86644AD6DBC2CA8BA589A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Microsoft Office Профессиональный 2007 — исчерпываю�
 ```bash
 magnet:?xt=urn:btih:20BAA65EF37BDE4DA648187DD5C0908077EFEB26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

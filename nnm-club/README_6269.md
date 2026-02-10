@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:4C7184098D65C4D81AB17F426008548749D1356E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ VA - Keep It Disco Vol. 05 (2022) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funk
 ```bash
 magnet:?xt=urn:btih:D97D7FFC94C56C4FA5A55AE32340B524AD9069D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Bad Wolves - Dear Monsters (2022) Deluxe [MP3|320 kbps] <Alternative Metal>
 magnet:?xt=urn:btih:A89525A6AB11C870814A739F5F7CAE74FC042F17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:A89525A6AB11C870814A739F5F7CAE74FC042F17
 magnet:?xt=urn:btih:537853DB30583BACB59365FD14CBC86BF530B78E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Imagine - это бесплатный просмотрщик изображен�
 ```bash
 magnet:?xt=urn:btih:24045C9B17C994FD175BC66910EF7F94DAC6871C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:24045C9B17C994FD175BC66910EF7F94DAC6871C
 magnet:?xt=urn:btih:C3E0DEA74943E1A0D7B714B5CAB33C778D22EC29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ TweakPower – представляет собой единый графичес
 ```bash
 magnet:?xt=urn:btih:F6654017AD60FA8639546BF88BFFEA480ECD6494
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:F6654017AD60FA8639546BF88BFFEA480ECD6494
 magnet:?xt=urn:btih:4152F1154950016D909568834A7D7AB8C7556955
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:4152F1154950016D909568834A7D7AB8C7556955
 ```bash
 magnet:?xt=urn:btih:954721D29B7D4E9A872B63D4290403BBE4845293
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ Annika Andersson & the Boiling Blues - Playing in a Rock'n Roll Band (2022) [FLA
 magnet:?xt=urn:btih:8E5CC7B1CDF0FE0AE1D7AEB6653F693D714B0B47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ Scream in Darkness - Судный день (2023) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:46B0F422AFAF31E35D71B9A31BD1E4D6DA522E44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:46B0F422AFAF31E35D71B9A31BD1E4D6DA522E44
 ```bash
 magnet:?xt=urn:btih:F200543DB7E58FF8B45C4637B8D7483C4ED188DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:F200543DB7E58FF8B45C4637B8D7483C4ED188DB
 magnet:?xt=urn:btih:420AC38ADB394E5D99C6D603D1B007FD8E7005B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ Hans Zimmer, Lebo M, Elton John - Король Лев / The Lion King (2017-2019
 ```bash
 magnet:?xt=urn:btih:2C71CCD83D0F5C23B0777A11F91DC21361D200C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ Kunio Kishida - 10 (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:E61B4316B9D42618832C735ACA0D12D376E0039D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ SupRemo  4.10.3.2151 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:058D92A3588CDC19FA96C8B696B8F1887B4B84A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +456,8 @@ Lemuria - Chanson de la Croisade (2010) [FLAC|Lossless|image + .cue] <Symphonic 
 magnet:?xt=urn:btih:499242E282917C9F2C314D0251341A24E8BA3CF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ FileSeek использует один и тот же установщик ка�
 ```bash
 magnet:?xt=urn:btih:C849DBD5DAB2C480FCCF50318C54140C8142C5F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +512,8 @@ Melon VPN - это быстрый, неограниченный, стабиль�
 magnet:?xt=urn:btih:A4AC1A272B823143AE5F30AF1EDD3A2C181AF9B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ Jed Potts & the Hillman Hunters - Swashbucklin' (2022) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:A0F353F929A29B1EF5796AE453016250B790792B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +570,8 @@ magnet:?xt=urn:btih:A0F353F929A29B1EF5796AE453016250B790792B
 magnet:?xt=urn:btih:4B853BBE5016845E044B3A0AD4F5CDEA57C8B83A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +595,8 @@ Opera One 102.0.4880.33 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:8BB7E12CD80A87A7965DDDB90777A03DC20BCE24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +625,8 @@ Dead Cross - II (2022) [FLAC|Lossless|tracks + .cue] <Thrash Metal, Crossover, H
 magnet:?xt=urn:btih:1BB6609E05B05EA152446FD077FAE875CA42115A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +652,8 @@ magnet:?xt=urn:btih:1BB6609E05B05EA152446FD077FAE875CA42115A
 ```bash
 magnet:?xt=urn:btih:D90945B1346055F10AB9FA16AFBF2F8B54C87A2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +682,8 @@ Biters - The Future Ain't What It Used To Be (2017) [FLAC|Lossless|image + .cue]
 magnet:?xt=urn:btih:663CB9B9CDDFB6C11DAF07592006DEC0F7AC4800
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +708,8 @@ Duplicate Cleaner выполнит глубокое сканирование в�
 ```bash
 magnet:?xt=urn:btih:237CFC50B7EDB4CFFE47D99D240E2FD9EDCC642A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1539053   (660075) от 23.03.2022
+
+Юрий Корчевский | Золото (Книга 2). Взорвать царя! Кромешник из будущего (2022) [MP3, Дмитрий Поляков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660075.jpg" />
+</div>
+
+
+###  Подробнее
+
+В кровавое царствование Ивана Грозного опричников в народе прозвали кромешниками – такой кромешный ужас они наводили на страну.
+Но наш современник, заброшенный в эту беспощадную эпоху, сам устроит царским карателям кромешный ад!
+Он будет отстреливать опричников как бешеных собак.
+Он станет тайным агентом архиепископа, дабы спасти Новгород от царского погрома.(   Читать дальше...   )Жанр: Боевая фантастика, Историческая фантастика, ПопаданцыПродолжительность: 09:21:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA54CAC97B6A2091FCD29D843EE396561FE1332C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539100   (660082) от 23.03.2022
 
 Василий Звягинцев | «Одиссей покидает Итаку» Книга 6. Бои местного значения (2021) [MP3, Максим Ладин]
@@ -18,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:35EF36502580C28E3EA65C89EDB5F5035B00BD8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +74,8 @@ magnet:?xt=urn:btih:35EF36502580C28E3EA65C89EDB5F5035B00BD8D
 magnet:?xt=urn:btih:5986B6CB3FD4B6189F6944E788162BEA71C89DEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +99,8 @@ magnet:?xt=urn:btih:5986B6CB3FD4B6189F6944E788162BEA71C89DEB
 ```bash
 magnet:?xt=urn:btih:23FC489A61991D9131CCFC2A4D3EDE4EBCCE3E7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +128,8 @@ magnet:?xt=urn:btih:23FC489A61991D9131CCFC2A4D3EDE4EBCCE3E7F
 magnet:?xt=urn:btih:093B603EF57B7F0D7F9346154BE690CB8FA21CFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +153,8 @@ magnet:?xt=urn:btih:093B603EF57B7F0D7F9346154BE690CB8FA21CFC
 ```bash
 magnet:?xt=urn:btih:921F1A1FC2AC8DAE416423A95E189C264D52C3C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +180,8 @@ magnet:?xt=urn:btih:921F1A1FC2AC8DAE416423A95E189C264D52C3C5
 magnet:?xt=urn:btih:42156256BD8DC97D59514382F2E939B47E8301F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +205,8 @@ magnet:?xt=urn:btih:42156256BD8DC97D59514382F2E939B47E8301F7
 ```bash
 magnet:?xt=urn:btih:56474880A4BCCA72D4D59F6C87FC9EEE67A78848
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +232,8 @@ magnet:?xt=urn:btih:56474880A4BCCA72D4D59F6C87FC9EEE67A78848
 ```bash
 magnet:?xt=urn:btih:A1740936B3338799BBA748A343F66A185E9C04A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +262,8 @@ magnet:?xt=urn:btih:A1740936B3338799BBA748A343F66A185E9C04A6
 magnet:?xt=urn:btih:22105D4E8DA70864E075924CE54F64504BC46E9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +287,8 @@ magnet:?xt=urn:btih:22105D4E8DA70864E075924CE54F64504BC46E9F
 ```bash
 magnet:?xt=urn:btih:ECC237063628037C5FD1B62FA971D2C44EE2F71E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +315,8 @@ magnet:?xt=urn:btih:ECC237063628037C5FD1B62FA971D2C44EE2F71E
 magnet:?xt=urn:btih:C4EE7EEDA9FEF75BD8528A5D5E1EE0E12F3F1CA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +340,8 @@ magnet:?xt=urn:btih:C4EE7EEDA9FEF75BD8528A5D5E1EE0E12F3F1CA4
 ```bash
 magnet:?xt=urn:btih:CDC32786327820713F1E8FE17F424ABE0A364BF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +367,8 @@ magnet:?xt=urn:btih:CDC32786327820713F1E8FE17F424ABE0A364BF0
 magnet:?xt=urn:btih:D05C797F5354524BD5640D0FE655ABF6280179BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +392,8 @@ magnet:?xt=urn:btih:D05C797F5354524BD5640D0FE655ABF6280179BC
 ```bash
 magnet:?xt=urn:btih:6587FB70213BD5C48135FDC3DB77F3431D8DF52E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +419,8 @@ magnet:?xt=urn:btih:6587FB70213BD5C48135FDC3DB77F3431D8DF52E
 magnet:?xt=urn:btih:C8CC9ACB54225A22A6F6C188AAED5D1FD906BE78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +444,8 @@ magnet:?xt=urn:btih:C8CC9ACB54225A22A6F6C188AAED5D1FD906BE78
 ```bash
 magnet:?xt=urn:btih:1329CA408D23BAF9CCB46C6905AB9A1B43597718
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +471,8 @@ magnet:?xt=urn:btih:1329CA408D23BAF9CCB46C6905AB9A1B43597718
 ```bash
 magnet:?xt=urn:btih:DFC7CAB2F3CA8FA05A7F68A4212C0763CD33D383
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +501,8 @@ magnet:?xt=urn:btih:DFC7CAB2F3CA8FA05A7F68A4212C0763CD33D383
 magnet:?xt=urn:btih:33959E90D67BB348CAC55038910C93AE0EB13798
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +529,8 @@ magnet:?xt=urn:btih:33959E90D67BB348CAC55038910C93AE0EB13798
 magnet:?xt=urn:btih:6A455E855E56AD448E69843D469557C035213A4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +556,8 @@ magnet:?xt=urn:btih:6A455E855E56AD448E69843D469557C035213A4D
 magnet:?xt=urn:btih:F4D69B174B7D7A1E5B92CCC08D68CCC16E452975
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +581,8 @@ magnet:?xt=urn:btih:F4D69B174B7D7A1E5B92CCC08D68CCC16E452975
 ```bash
 magnet:?xt=urn:btih:3E24528553521F58266F9AD029C6413967937AFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +608,8 @@ magnet:?xt=urn:btih:3E24528553521F58266F9AD029C6413967937AFA
 magnet:?xt=urn:btih:6EE97C00FB9F917E7B2D4108A440A81B35FF6298
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +633,8 @@ magnet:?xt=urn:btih:6EE97C00FB9F917E7B2D4108A440A81B35FF6298
 ```bash
 magnet:?xt=urn:btih:08CC2AB435014E6FFDAE39C0238FB207E8865E05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +660,8 @@ magnet:?xt=urn:btih:08CC2AB435014E6FFDAE39C0238FB207E8865E05
 magnet:?xt=urn:btih:BB1FA447658587EE4EF6282F1A11E655DBD9FBB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,31 +686,7 @@ magnet:?xt=urn:btih:BB1FA447658587EE4EF6282F1A11E655DBD9FBB2
 magnet:?xt=urn:btih:EB751F0A78211FA9289BEF0BE2231EB207BDD9CC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538067   (664229) от 19.03.2022
-
-Пётр Жгулёв | Город гоблинов (Книга 5). Возвращение (Часть 2) (2022) [MP3, Амир Шакиров]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664229.jpg" />
-</div>
-
-
-###  Подробнее
-
-В наш мир пришла Великая Игра, принёсшая с собой бесчисленное количество миров. Герой книги – один из игроков. Игрок получает шанс на обретение богатства и власти, однако при этом рискует сложить голову. Игрок – лишь пешка в руках богов. Но любая пешка мечтает стать ферзём. Почему бы не попытаться?
-
-К сожалению, поставленная задача – уничтожить армию нежити – оказалась (   Читать дальше...   )Жанр: Боевое фэнтези, Попаданцы, LitRPGПродолжительность: 09:26:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9AE5A1F32622D1B246EA706A1135B19864F5591
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

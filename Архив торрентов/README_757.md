@@ -28,6 +28,8 @@ VA - Танцевальный Рай Русский №33 (2012) [MP3|256 kbps]<
 magnet:?xt=urn:btih:2655F84ADCAAF92B8AD9B084C9717821F1B81A11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -61,6 +63,8 @@ I Diggidy - Made in Russia (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
 magnet:?xt=urn:btih:7DD817B38511E8F1A583C76C6854AB18EA6C90CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +94,8 @@ Axi - Viking (2012) [MP3|320 кб/с]<Drum And Bass>
 ```bash
 magnet:?xt=urn:btih:FCA897BC15B35FFE725EEBB8BFE78D45332BFB60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +128,8 @@ magnet:?xt=urn:btih:FCA897BC15B35FFE725EEBB8BFE78D45332BFB60
 magnet:?xt=urn:btih:64144DE0881D140196971D23DD4D6889F880181E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +154,8 @@ magnet:?xt=urn:btih:64144DE0881D140196971D23DD4D6889F880181E
 ```bash
 magnet:?xt=urn:btih:0F8B88917528BF8747AB190F6ECB05A0F0130D29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +183,8 @@ magnet:?xt=urn:btih:0F8B88917528BF8747AB190F6ECB05A0F0130D29
 magnet:?xt=urn:btih:930FE162D50A6AA9E303015A617F80E3BC97C011
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +208,8 @@ magnet:?xt=urn:btih:930FE162D50A6AA9E303015A617F80E3BC97C011
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +239,8 @@ magnet:?xt=urn:btih:930FE162D50A6AA9E303015A617F80E3BC97C011
 magnet:?xt=urn:btih:7D4C5BC66FEE86201E48E1969FEF9E1EA7192066
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +265,8 @@ MKVToolnix - специальный аудио/видео контейнер, п
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +301,8 @@ VA - Miaminimal (2012) [MP3|320 кб/с]<Techno, Minimal>
 magnet:?xt=urn:btih:A94AEA79D0394AE255C1BD3A2F14BA0F9842C9E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +336,8 @@ Joan Osborne - Bring It On Home (Deluxe Version) (2012) [m4a|256 кб/с]<Blues,
 magnet:?xt=urn:btih:C0E3E0B1F4EB20C4A95CCAF2AEC8DB58F7EF2A68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +361,8 @@ magnet:?xt=urn:btih:C0E3E0B1F4EB20C4A95CCAF2AEC8DB58F7EF2A68
 ```bash
 magnet:?xt=urn:btih:1E1DF485D2E1C35A2612A12CD251139E734EDB08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +388,8 @@ magnet:?xt=urn:btih:1E1DF485D2E1C35A2612A12CD251139E734EDB08
 magnet:?xt=urn:btih:E5250045F449696C7907FA0BF3E90BDDEBE50683
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +413,8 @@ magnet:?xt=urn:btih:E5250045F449696C7907FA0BF3E90BDDEBE50683
 ```bash
 magnet:?xt=urn:btih:2731F7956093328E679B0CE8686FAB6C31078F77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +440,8 @@ RapidTyping Tutor – профессиональная программа-тре
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +465,8 @@ Mythbuntu - это основанный на Ubuntu дистрибутив, це
 ```bash
 magnet:?xt=urn:btih:4A30121F0B845DB8004FB2297ABBCBD1789AF2CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +501,8 @@ VA - Ska Madness 2 - Another 20 Reggae Classics Which Inspired A Generation (201
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +526,8 @@ VA - Ska Madness 2 - Another 20 Reggae Classics Which Inspired A Generation (201
 ```bash
 magnet:?xt=urn:btih:BD33D48107070F566F119B1971E4FCD04F33F4FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +562,8 @@ Los Angeles Negros - 20 Grandes Exitos (1996) [MP3|320 кб/с]<Pop, Latin, Ball
 magnet:?xt=urn:btih:BF4F334F08F8AFEE183262A0214CDABB5E0B3FD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +591,8 @@ magnet:?xt=urn:btih:BF4F334F08F8AFEE183262A0214CDABB5E0B3FD3
 ```bash
 magnet:?xt=urn:btih:A4F4321CBA63AC1E1D20E5DB90B2E595C681A64F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +625,8 @@ Various - Altering Illusions (2012)
 magnet:?xt=urn:btih:39FAD75CE4A83CBF004498517DCD87C60098EB30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +654,8 @@ magnet:?xt=urn:btih:39FAD75CE4A83CBF004498517DCD87C60098EB30
 ```bash
 magnet:?xt=urn:btih:F533B9EE9B120EBAC91FB3699EEB377948B4D40C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +690,8 @@ VA - Nassau Beach Palma de Mallorca pres. Balearic Moods Chopin In My Mind (2011
 magnet:?xt=urn:btih:FD2D3FA2EFB50A24C6604A99DDD52CA43B9592DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,6 +716,8 @@ magnet:?xt=urn:btih:FD2D3FA2EFB50A24C6604A99DDD52CA43B9592DF
 magnet:?xt=urn:btih:113B7AC06CEDBC14430B4D75B43000238946CEE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +741,8 @@ magnet:?xt=urn:btih:113B7AC06CEDBC14430B4D75B43000238946CEE2
 ```bash
 magnet:?xt=urn:btih:5DBE93863A542178394971A58AB22B85953254F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -721,6 +771,8 @@ magnet:?xt=urn:btih:5DBE93863A542178394971A58AB22B85953254F9
 ```bash
 magnet:?xt=urn:btih:BF8E5257C0B724D19F74516BD0301BA3B5F735E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

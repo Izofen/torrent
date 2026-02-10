@@ -1,3 +1,38 @@
+###  Публикация: 553406   (438485) от 30.09.2012
+
+VA - TOP 100 Зайцев.нет (04.09.2012) [MP3|128 - 320 кб/с]<Pop, Chanson, Rock, Dance, Club, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438485.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Alexey Romeo & Smoky Mo aka Mozi - На своей волне (Radio mix) (3:42)
+2. Skrillex feat. Sirah - Bangarang (3:35)
+3. Loreen - Euphoria (3:01)
+4. Семен Слепаков - Чисто гипотетически (5:10)
+5. Подиум - Танцуй пока молодая девочка Рая (3:30)
+6. Oceana - Endless Summer (hymn Euro) (3:15)
+7. Clara Lago - La cama (OST Три метра над уровнем неба 2: Я тебя хочу) (2:53)
+8. Fly Project - Musica (Radio Edit) (3:39)
+9. 5sta Family - Вместе Мы (Prod by T.Y.) (3:40)
+10. Нюша - Воспоминание (3:39)(   Читать дальше...   )Жанр: Pop, Chanson, Rock, Dance, Club, RapПродолжительность: 08:08:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6146FBF6C7C33060DFA09F66B63458305938C6FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 553841   (438499) от 30.09.2012
 
 VA - Сборник медленных хитов Vol.13 (2012) [MP3|96-320 кб/с]<Rock, Pop>
@@ -27,6 +62,8 @@ VA - Сборник медленных хитов Vol.13 (2012) [MP3|96-320 кб
 ```bash
 magnet:?xt=urn:btih:8CD7CE692F22D54D7F27420280F4F4124DE3EF71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -61,6 +98,8 @@ VA - Рок в Авто (Symphonic Metal) (2012) [MP3|320 кб/с]<Sympho Metal,
 magnet:?xt=urn:btih:62D9691CCCDDEBFEACC2BDA1564B96ABD328CEF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +132,8 @@ Va - Deep+   Vol. 2 (2012) [MP3|320 кб/с]<Deep House,Tech House,Vocal House>
 ```bash
 magnet:?xt=urn:btih:A1BD83D4B523E60066FE1B0B60F794F684DFCFF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +168,8 @@ VA - Осенний TOP-лист радио Record №7 50/50 (2012) [MP3|256 к
 magnet:?xt=urn:btih:7256DFB079BEFA0E4BF65497B6FE3F57251E46C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -159,6 +202,8 @@ VA - Simply Dubstep September 2012 (2012) [MP3|320 кб/с]<Dubstep, Bass, Grime
 ```bash
 magnet:?xt=urn:btih:BDD010A5D9272C80BF761F30D74E41A47E75CA67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +238,8 @@ VA - German Fashion Week (2012) [MP3|320 кб/с]<Club, Pop, Dance>
 magnet:?xt=urn:btih:B3683006BC202F498E774D8225F8CF6008FBCFDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +273,8 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #99 (2012) [MP3|320 кб/с]<Voca
 magnet:?xt=urn:btih:F0163266CA6D14E284A3AAF212ACAA11BC40FC21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +301,8 @@ VA - Для Тех, Кто Помнит! Русский Рок Vol.3 от Ovvod7
 ```bash
 magnet:?xt=urn:btih:3B0E19FCEB3A0965C99C5827E637A5C3FAFAE7F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +337,8 @@ VA - Progressive Music (30.09.2012) [MP3|320 кб/с]<Progressive House>
 magnet:?xt=urn:btih:53D01303BACA1C15F8724F5D1D8A7C1B63492B05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +366,8 @@ VA - Asylum Of Soul: Hard Rock Collection (2017) [MP3|320 Kbps] <Rock, Hard Rock
 magnet:?xt=urn:btih:F8E8517332833B1A5B19EC0D7AC8D731402E4613
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +394,8 @@ VA - Клубная Вечеринка Vol.3 (2018) [MP3|320 Kbps] <Trance, Hous
 ```bash
 magnet:?xt=urn:btih:06BB29783C21D885D07C174E78CEB6C4991976AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +427,8 @@ Hits of My Soul - сборник электронной и инструмент�
 magnet:?xt=urn:btih:D809825B42C5E8A1CF4563878A37D750CEF931A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +455,8 @@ VA - Record Super Chart #502 (2017) [MP3|320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:CE27415A0183EFAC5FBFF3A1BD8696F0A3A08896
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +485,8 @@ VA - Авто Дискотека Клубная (2017) [MP3|320 Kbps] <House, Ma
 magnet:?xt=urn:btih:1053AB64FCC4830234E1F5E675B08AEEAEA34C79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +513,8 @@ VA - Любимая Музыка ВКонтакте Октябрь (2016) [MP3|1
 ```bash
 magnet:?xt=urn:btih:9964D3B33CD018D2DC303BC5E470F773A0323E49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +543,8 @@ VA - Живи стильно! Наслаждайся музыкой с Hit Fm. �
 magnet:?xt=urn:btih:59A74378AC6B0FEC5594DDAC439E3213639E1E1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +571,8 @@ VA - Empire Records – Disco Club (2017) [MP3|320 Kbps] <Deep House, Nu-Disco>
 ```bash
 magnet:?xt=urn:btih:9D4A38E7CC8A8DC6FC8D351C9C88D9527AF72FC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +601,8 @@ VA - Empire Records - Chill Out 13 (2017) [MP3|320 Kbps] <Chillout, Lounge, Down
 magnet:?xt=urn:btih:B870DD7870E1F49904868642CF9215DBE84B5502
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +629,8 @@ VA - Empire Records – Kiddy House (2017) [MP3|287-320 Kbps] <Electro House>
 ```bash
 magnet:?xt=urn:btih:45BA717CFCC5008DF97AA0BBDA12F54F21BD3BFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +659,8 @@ VA - Ascension: Selection Of Melodic Hard Rock (2018) [MP3|320 Kbps] <Hard Rock>
 magnet:?xt=urn:btih:ABE580A21C814A56B238029E8754ED79243F7CB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +687,8 @@ VA - Now Electronic (2018) [MP3|320 Kbps] <Electronic, Synthetic, New Wave>
 ```bash
 magnet:?xt=urn:btih:72D0F218FF5D419C52392DF670437D4E0C7369D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +717,8 @@ VA - Quality Dance Selector (2018) [MP3|320 Kbps] <Hard House, Club, Eurodance>
 magnet:?xt=urn:btih:27A9009D0B744906E5274DD869031C3C7CA6FE9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +745,8 @@ Toto Cutugno - Good Songs (2015) [MP3|128 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:A0C1F682F4ECC1BD2C3443C949AA214A18157D55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -694,6 +775,8 @@ VA - Calming Piano Music The Best Relaxing Instrumental Songs Easy Listening Mel
 magnet:?xt=urn:btih:4C60366C94B1B0017D2B1DA2AC93D51445090C96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -721,32 +804,7 @@ VA - Recognition Of The Heart (2015) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:1A8AD17E1D81D2AACD617DB96FE011EEA02E5633
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409762   (440591) от 19.09.2020
-
-VA - TOP Non-Stop - House Music Before 2000 (2020) [MP3|192-320 Kbps] <Deep House, Funky House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ron Trent - Altered States (Light City mix, 1992) (3:44)
-02. Ron Trent - Poetry (15:00)
-03. Fortran 5 - Look to the Future (Start the Dance mix, 1992) (7:19)
-04. Brian Transeau - The Moment of Truth (The Blue Note dub, 1993) (5:49)(   Читать дальше...   )Жанр: Deep House, Funky House, Progressive HouseПродолжительность: 10:07:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D82905A36AB3026931148BA3DF53AF408AF8952
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:09514B0F9A5C1DBF520080BAD43847C37E29F0EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Slade - 70's Hits (2023) [MP3|320 Kbps] <Rock, Glam Rock>
 magnet:?xt=urn:btih:89538C0F989B3F2EFD04BE67E0902E0A20C0519B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:89538C0F989B3F2EFD04BE67E0902E0A20C0519B
 ```bash
 magnet:?xt=urn:btih:DC249423F0F005C2CD19DB393ACB95FD47651AB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ Till Lindemann - Zunge (2023) Single [MP3|320 Kbps] <Industrial metal>
 magnet:?xt=urn:btih:8916CD1B0DED16B458677B3AA5289464DB7F03E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:8916CD1B0DED16B458677B3AA5289464DB7F03E1
 magnet:?xt=urn:btih:27AF9767ABF0E134CFC91880EA0D2FCC140FBA82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:27AF9767ABF0E134CFC91880EA0D2FCC140FBA82
 ```bash
 magnet:?xt=urn:btih:0733DF169C5CBDE1C03547730F1874FCAB743F3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ Dead Addiction - ...of Vice and Men (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 magnet:?xt=urn:btih:DDC369E71C2F9CE7DCA7A49BE611FE8279A3B831
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ Slurm (Слёрм), Кирилл Борисов | Jenkins: СI/CD для DevOps 
 ```bash
 magnet:?xt=urn:btih:D8506594F65FC69671E82782D0FEBE14EE0AFFCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:D8506594F65FC69671E82782D0FEBE14EE0AFFCF
 magnet:?xt=urn:btih:627F728A5D56C8201C249920E50CA8EFACFE64FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:627F728A5D56C8201C249920E50CA8EFACFE64FF
 ```bash
 magnet:?xt=urn:btih:0439AA489D54958AD75322CBA0BE8BC54088FA7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:0439AA489D54958AD75322CBA0BE8BC54088FA7D
 magnet:?xt=urn:btih:755569178A6D0F5BB78AE09A50F74E65D45A1F3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:755569178A6D0F5BB78AE09A50F74E65D45A1F3E
 ```bash
 magnet:?xt=urn:btih:D55D745FE3A8BCD3702EB4399564EE206348C317
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:D55D745FE3A8BCD3702EB4399564EE206348C317
 magnet:?xt=urn:btih:DBE3F0C477B2C5E9775C7D6E4B38E54B91BB6277
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:DBE3F0C477B2C5E9775C7D6E4B38E54B91BB6277
 ```bash
 magnet:?xt=urn:btih:837E20128C663E9E320A8EB812F3EB544E4C0041
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:837E20128C663E9E320A8EB812F3EB544E4C0041
 magnet:?xt=urn:btih:D8B25D65DF87264EAB1539E73454ED07E675F24A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:D8B25D65DF87264EAB1539E73454ED07E675F24A
 ```bash
 magnet:?xt=urn:btih:72CA1FF04D8208493DDF4BEEEE09AF670E4CD361
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ YouTube ReVanced - это реинкарнация проекта YouTube Vanced
 magnet:?xt=urn:btih:9E05301B00214419BF3866BE6B2DCD2975BA3FAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:9E05301B00214419BF3866BE6B2DCD2975BA3FAE
 magnet:?xt=urn:btih:337103D49FA785E28BACB1899FA8680E8F13098D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ App Builder позволяет создавать приложения для с
 ```bash
 magnet:?xt=urn:btih:56086E44DDAFF237AE0F169C82A59AF61E485A14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ Slurm (Слёрм), Иван Чувашов | Оптимизация запро�
 ```bash
 magnet:?xt=urn:btih:65FB9F8A4B156EF26B89291EB15C7D6BCBFF2E0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +556,8 @@ Stalker - Tales From Heaven (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy 
 magnet:?xt=urn:btih:2C737EB73F6AA841E761195E8D16872DC88756DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ magnet:?xt=urn:btih:2C737EB73F6AA841E761195E8D16872DC88756DB
 magnet:?xt=urn:btih:3AF8BC61C9351CBD75006876DB99B8714815BE9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ Bound By Blades сочетает в себе элементы RPG и рогал�
 ```bash
 magnet:?xt=urn:btih:63423784FDB69841C2A1A3747D88C7065B2C5475
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +636,8 @@ magnet:?xt=urn:btih:63423784FDB69841C2A1A3747D88C7065B2C5475
 magnet:?xt=urn:btih:6F70F8196141B9DF76252C5F7B0E36CD3368D402
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ ScreenHunter Pro – программа для получения снимков
 ```bash
 magnet:?xt=urn:btih:CA99E595257EDDB60E12D5FB521D5D8CB8E3E8CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +688,8 @@ WinMerge является весьма полезной для определе�
 ```bash
 magnet:?xt=urn:btih:4C63089CE8E038C883DDE2FEA335F8BB9F5B22EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

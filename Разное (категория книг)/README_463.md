@@ -1,3 +1,29 @@
+###  Публикация: 1403870   (686045) от 22.08.2020
+
+Урсула Ким | Марафон: 21 день без сахара (2020) [FB2]
+
+>>Разное (категория книг)
+>>Нетрадиционная медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстрое старение, лишний вес, проблемы с кожей, слабоумие, болезни сердца и сосудов – это еще далеко не все, на что мы обрекаем себя, годами находясь в сахарной зависимости. Но книга модели и блогера Урсулы Ким «Марафон: 21 день без сахара» поможет обрести долгожданную свободу от сахара, а вместе с ней – красоту и здоровье. Это не просто очередной проект о правильном (   Читать дальше...   )Жанр: Здоровое и правильное питание, Здоровье, Похудение и диетыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79FB743B78B485592DA88A2DC6B7DE263540433F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028754   (686088) от 24.06.2016
 
 Тит Нат Хан | Как есть осознанно (2016) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:14A401356D4A58DFD54D3A025692DF1E9789F903
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:14A401356D4A58DFD54D3A025692DF1E9789F903
 ```bash
 magnet:?xt=urn:btih:5DF014108ECCC13D82561E5F5866C093D5FA31F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:5DF014108ECCC13D82561E5F5866C093D5FA31F2
 magnet:?xt=urn:btih:A5D669B5F6B1A3BF77ED86F6B73A05BA1FCF9C6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:A5D669B5F6B1A3BF77ED86F6B73A05BA1FCF9C6A
 ```bash
 magnet:?xt=urn:btih:F971EC81941071D41863AC2436E7701603D9D193
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:F971EC81941071D41863AC2436E7701603D9D193
 magnet:?xt=urn:btih:F138F92E214278B39EEC807357D25EA4E40A3FB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:F138F92E214278B39EEC807357D25EA4E40A3FB0
 ```bash
 magnet:?xt=urn:btih:30163C34E128D92880264C582C1CACE29EEE6B8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:30163C34E128D92880264C582C1CACE29EEE6B8C
 magnet:?xt=urn:btih:3E3C25360B58F4B0450820FCD58CDBC3226F3354
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:3E3C25360B58F4B0450820FCD58CDBC3226F3354
 magnet:?xt=urn:btih:A41180879E187A4E68E5CAFDDF2071D041E7BDE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:A41180879E187A4E68E5CAFDDF2071D041E7BDE8
 ```bash
 magnet:?xt=urn:btih:2FEBC3F34723DB885C656080F0D1863AA3585C40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:2FEBC3F34723DB885C656080F0D1863AA3585C40
 magnet:?xt=urn:btih:ABD5DE48D3C72AAF3476FE73E75ABC0710837D76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:ABD5DE48D3C72AAF3476FE73E75ABC0710837D76
 ```bash
 magnet:?xt=urn:btih:57A20A47623B5BBCF33584AB2CA8735AF1B8FBD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:57A20A47623B5BBCF33584AB2CA8735AF1B8FBD4
 magnet:?xt=urn:btih:B52A6012E25D9708B70BEC2BB1C2FC865F121032
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:B52A6012E25D9708B70BEC2BB1C2FC865F121032
 magnet:?xt=urn:btih:DDDD2530E5B3CABFCD86175C87BB982C19E09AFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:DDDD2530E5B3CABFCD86175C87BB982C19E09AFC
 magnet:?xt=urn:btih:ECA66530D5E0D45A65970349065A5EA799D6649F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:ECA66530D5E0D45A65970349065A5EA799D6649F
 ```bash
 magnet:?xt=urn:btih:B9957A151CD0E380EB1CAFEEA847F5ABA61F7C89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:B9957A151CD0E380EB1CAFEEA847F5ABA61F7C89
 magnet:?xt=urn:btih:DAE2E070CB4AFB0A0DC95389BF9E68088397ADF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:DAE2E070CB4AFB0A0DC95389BF9E68088397ADF1
 magnet:?xt=urn:btih:A3AD2D46DFBAF914A9C9C76075922DAA04322E48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:A3AD2D46DFBAF914A9C9C76075922DAA04322E48
 ```bash
 magnet:?xt=urn:btih:568F069E0376E6AB7A4B253FD7ED9F5657AB87DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:568F069E0376E6AB7A4B253FD7ED9F5657AB87DF
 magnet:?xt=urn:btih:2F6523EF1B636F18416EDA8A7AFAC47DDD15A837
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +549,8 @@ magnet:?xt=urn:btih:2F6523EF1B636F18416EDA8A7AFAC47DDD15A837
 magnet:?xt=urn:btih:CC00100D9DEFE71F560B8C2AB93DF2F7244241E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +574,8 @@ magnet:?xt=urn:btih:CC00100D9DEFE71F560B8C2AB93DF2F7244241E2
 ```bash
 magnet:?xt=urn:btih:87C183F048F90E8972BE76171A6CEDF25EBDE340
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +602,8 @@ Daniel Mills | Kama Sutra Step By Step - The Ultimate Guide To Ancient Art Of Se
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +627,8 @@ Daniel Mills | Kama Sutra Step By Step - The Ultimate Guide To Ancient Art Of Se
 ```bash
 magnet:?xt=urn:btih:4B50FEFE5F9DEC5FB5474FFB04AAFDD40DBD0444
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:4B50FEFE5F9DEC5FB5474FFB04AAFDD40DBD0444
 magnet:?xt=urn:btih:7CA78D575829CF2A5F0489ABC1D46030620B231E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,29 +685,7 @@ magnet:?xt=urn:btih:7CA78D575829CF2A5F0489ABC1D46030620B231E
 magnet:?xt=urn:btih:DCF5BC265454A54A2343256F754FA182B1B46F87
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222136   (687489) от 28.04.2018
-
-Монахиня Серафима (Иванова) (сост.) | Учащим и учащимся. Из трудов святого праведного Иоанна Кронштадтского (2013) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее издание содержит выдержки из дневниковых тетрадей святого праведного Иоанна Кронштадтского, посвящённые теме образования и просвещения юношества в духе православной веры. Книга включает как методический материал, адресованный учителям — «учащим», так и катехизические и нравоучительные беседы, обращённые к ученикам — «учащимся».Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35C9EE1A77E9A0193A2E27928AD7EF1F7A86465E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

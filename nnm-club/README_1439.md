@@ -19,6 +19,8 @@ Pine Harbor - мрачная игра в жанре экшен-хоррора, �
 magnet:?xt=urn:btih:948D2732BB94E4CCC84FFA68B1943E4094020BF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:948D2732BB94E4CCC84FFA68B1943E4094020BF8
 magnet:?xt=urn:btih:4683A5BFD0055A5BFBBDE2F1476A72794FE67FF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:4683A5BFD0055A5BFBBDE2F1476A72794FE67FF5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Benriya Saitou-san, Isekai ni Iku | Handyman Saitou in Another World | Маст�
 magnet:?xt=urn:btih:EB6B9C8590B40F27D3924158E8601EFB9E0D3A92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Chicken Police: Into the HIVE! - увлекательное детективно
 ```bash
 magnet:?xt=urn:btih:BFA450AA4A302FFF1344209A93647DEBF647EEF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:BFA450AA4A302FFF1344209A93647DEBF647EEF6
 magnet:?xt=urn:btih:31B052B44A80AC88715B723621B4D9F4761195C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:31B052B44A80AC88715B723621B4D9F4761195C8
 ```bash
 magnet:?xt=urn:btih:14C98918E1C79915F98BDA4592543780E3E7E73F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Auslogics Disk Defrag Pro - это профессиональная версия
 magnet:?xt=urn:btih:15E9844EF0D3FC8E66E0431CE2C3F03B01EDEA03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:15E9844EF0D3FC8E66E0431CE2C3F03B01EDEA03
 magnet:?xt=urn:btih:C3983A78064F230C0E388EC95F5A7A61256BEC10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Goat Simulator: Remastered предлагает игрокам необычны�
 ```bash
 magnet:?xt=urn:btih:02F40C3EA2F2BB8EE37E2701AFE0B426F0DBDA3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:02F40C3EA2F2BB8EE37E2701AFE0B426F0DBDA3D
 magnet:?xt=urn:btih:5ACC8448021A00E30CB14C91D57EF293BE9D5C2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Morten Barklund | React in Depth (2024) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:EDFD7686A79B207DDC154BF0009D10A0ADA5DD4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:EDFD7686A79B207DDC154BF0009D10A0ADA5DD4A
 magnet:?xt=urn:btih:4025EA4CF5FF0EAF0289B49566DFE113B6314CA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ PicPick - приложение, объединяющее в себе возмо�
 ```bash
 magnet:?xt=urn:btih:605C80D38EB8BE4CA5C7F2DB5FEF5D84104A678E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Pariah / Изгой (2005) [Ru/En] (1.03) Repack 1nomok
 magnet:?xt=urn:btih:3D54975929A3ABB51BB0FBD86A1C74780E4DF447
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:3D54975929A3ABB51BB0FBD86A1C74780E4DF447
 ```bash
 magnet:?xt=urn:btih:3F040E5A272EA67C44E8A8BD058819286A4AA638
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:3F040E5A272EA67C44E8A8BD058819286A4AA638
 magnet:?xt=urn:btih:4FF60DD40D923B667F31CCCBCE40B01D23C5BC18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:4FF60DD40D923B667F31CCCBCE40B01D23C5BC18
 ```bash
 magnet:?xt=urn:btih:AE5F66FE689A52888FEE0A9BA9B15E0AEA4DB30E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:AE5F66FE689A52888FEE0A9BA9B15E0AEA4DB30E
 magnet:?xt=urn:btih:494BAA8FD426DD743677D04599FD0687E9D49A3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Auslogics SSD Optimizer - специальный инструмент, разр�
 ```bash
 magnet:?xt=urn:btih:721BCE8BE07E8B92B54323A93C550654208C1932
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ City Car Driving – реалистичный симулятор вождени�
 magnet:?xt=urn:btih:FC51BE3ECD91BEA950434C475B08A49A9C68C165
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ magnet:?xt=urn:btih:FC51BE3ECD91BEA950434C475B08A49A9C68C165
 ```bash
 magnet:?xt=urn:btih:AD048AE2F84DE5CB7315B1C505EA27E11D3A8D16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ Mers Academy, Владислав Казмирук  | Работа с ручны�
 magnet:?xt=urn:btih:C6377CD64E3FCB522AA7768BB33496D65D4C5648
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Lula 3D (2006) [Ru/En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:9FB68820365CAD2FEE1AF166D5939D3D0DDA6763
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:9FB68820365CAD2FEE1AF166D5939D3D0DDA6763
 magnet:?xt=urn:btih:E6CE0A2C01104E460B82296926C81363337FC6BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:E6CE0A2C01104E460B82296926C81363337FC6BD
 ```bash
 magnet:?xt=urn:btih:0A5FEA016CB92F80C278731E1935F612354071EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

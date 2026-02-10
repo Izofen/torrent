@@ -19,6 +19,8 @@ Baldur's Gate: Dark Alliance II (2022) [Multi] (1.0.4.1) License GOG
 magnet:?xt=urn:btih:5C9C9AF420B20B92CE308F4F88B9CE8FCFC067AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Imperial Gatekeeper (2022) [En] (2/dlc) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:84B71781FF65157571055093EC317D63A2D29712
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Last Remnant — ролевая игра, в которой вас ждет 
 magnet:?xt=urn:btih:1B989176BD1E6AEDD6FC372919A28B71B8D508AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Legends of Dawn Reborn приглашает игроков в жестокий �
 ```bash
 magnet:?xt=urn:btih:66BB9113152084130EA7EC2EF7D0908EEA04D8C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ The Dwarf Run - старомодный RPG с элементами point-n-click
 magnet:?xt=urn:btih:AB80BBB449C129FFD37A991D8B6E93F324587C6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ South Park: Stick of Truth (2014) [Ru] (1.0.138083) Repack xatab
 ```bash
 magnet:?xt=urn:btih:E3B6187BAF3A054C0EE059EB26E4EA73C3D114E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Divinity: Original Sin 2 – является продолжением леге�
 magnet:?xt=urn:btih:4C722FAC11988C62C974BB1CDC58593F9918621F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Darkstone (1999) [En/Ge/Fr] (1.0.5b) License GOG
 ```bash
 magnet:?xt=urn:btih:7ED7C79A13BB9675DC96A0C03B7AE71136CEDA87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Dungeon of the Endless - это приключенческий "рогалик" 
 magnet:?xt=urn:btih:9772C7A60E68F2139DCF549AFB0F109611F40BA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Swag and Sorcery (2019) [Ru/Multi] (1.52) License GOG
 magnet:?xt=urn:btih:3A7357B19AE4BD9E0BE3918F08F8A17EB0349E30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ Chroma Squad – тактическая ролевая игра о пяти тр
 ```bash
 magnet:?xt=urn:btih:FDA1C259B6555B0A75A541C79D3EE1065C77F4B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Dawn of Magic 2 / Магия крови: Время Теней [Ru/En] (Repack) 
 magnet:?xt=urn:btih:9AD33F1BCB3AD48B9EB5A5A301C0567E7D35D51B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Beltion: Beyond Ritual / Бельтион: Свод Равновесия (2009) 
 ```bash
 magnet:?xt=urn:btih:5F826CB9FDEC5BD78F6979242B8C2A8C9F5BF050
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Mass Effect (2008) [Ru] (1.2/dlc) Repack xatab
 magnet:?xt=urn:btih:2F32ECD6FAA16027CD066A6D48E967F0700AF902
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Hero Defense - Haunted Island приглашает всех любителей M
 ```bash
 magnet:?xt=urn:btih:383F4C7424E1B9CF11746DC414A2FA02212BB7FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Of Orcs and Men [Ru/En] (RePack/1.0) 2012 | R.G. Механики
 magnet:?xt=urn:btih:AEDC73765C8A226FF6747955630DC2765A120FF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ The Harvest (2013) [Multi] (1.0) Unofficial ALiAS
 magnet:?xt=urn:btih:A39A608B7A3ED54FBD2392807BD9E2BF3A69F00D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ Divinity: Original Sin II — долгожданное продолжение з
 ```bash
 magnet:?xt=urn:btih:7A86CB3CB61A7F5D2D745036069CF324A9C870B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ Dragon's Dogma: Dark Arisen (2016) [Ru/En] (1.0.0.18) Repack R.G. Catalyst
 magnet:?xt=urn:btih:4B522C4702CAFDD410486CE9F4522490D15A6B11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ Battle Chasers: Nightwar — это ролевая игра в духе лучш
 ```bash
 magnet:?xt=urn:btih:E81A10DC1BB6C36A891CBC33BC96B1AC7EB1ABCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ Darkspyre [En] (RePack) 1990 | RG Games/Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ Battle Chasers: Nightwar — это ролевая игра в духе лучш
 ```bash
 magnet:?xt=urn:btih:DBF45A392A65595DDC58F65F9604A17F2335CEB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ Dark Heart of Uukrul [En] (RePack) 1989 | RG games/Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Spirit of Excalibur [En] (RePack) 1990 | RG Games/Pilotus
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ Risen 2: Dark Waters [Ru/En] (RePack/1.1.0.0/3 DLC) 2012 | R.G. Revenants
 magnet:?xt=urn:btih:9B347F49CA5C3C1E18319BD6892CE1521D1660DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ Risen 2. Dark Waters / Risen 2. Тёмные воды [Ru/En/Gr] (RePack/1.0.121
 ```bash
 magnet:?xt=urn:btih:9C5DB89B40CCC9D9BF35754251BE7BC823044A1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

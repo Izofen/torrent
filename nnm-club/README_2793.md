@@ -28,6 +28,8 @@ George Michael - 5 Студийных альбомов (1987 - 2004) /Japan/ [FL
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ Black Lagoon The Second Barrage / Пираты «Черной лагуны» (в
 ```bash
 magnet:?xt=urn:btih:F3E11A2DA6257102288690B7A53D844BC84F83BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:F3E11A2DA6257102288690B7A53D844BC84F83BF
 magnet:?xt=urn:btih:3588D48995F513015E80188183CCF95F250F7F4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:3588D48995F513015E80188183CCF95F250F7F4E
 magnet:?xt=urn:btih:AF33C4B577BD64177CD6F5BE736AF35DA2889CAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:AF33C4B577BD64177CD6F5BE736AF35DA2889CAC
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:AF33C4B577BD64177CD6F5BE736AF35DA2889CAC
 ```bash
 magnet:?xt=urn:btih:DA9A1ECD249DF5AF6FFB6DEFE8F1D5E99493A87A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +189,8 @@ Kerish Doctor 2012 4.35 [Мульти, есть русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ CD1
 magnet:?xt=urn:btih:9283A3DB4C0CD0194245BAA896B09964697CAB0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +247,8 @@ magnet:?xt=urn:btih:9283A3DB4C0CD0194245BAA896B09964697CAB0E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +274,8 @@ magnet:?xt=urn:btih:9283A3DB4C0CD0194245BAA896B09964697CAB0E
 magnet:?xt=urn:btih:BC127DA67DBB4FE0029903C11EF794E98BA137E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +299,8 @@ magnet:?xt=urn:btih:BC127DA67DBB4FE0029903C11EF794E98BA137E7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +335,8 @@ Windows 7 SP1 x64 Ultimate Standart by keglit 29.02.2012 [Английский,�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +363,8 @@ PowerUp Heroes – файтинг, управление в котором осу
 magnet:?xt=urn:btih:F6FF9F02CC5D70DC8748A3335CC6C79711E8FC79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +388,8 @@ Nero 11.2.00400 Full RePack + Toolkit by Vahe-91 [RUS / ENG]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +417,8 @@ Rovio представила очередную версию Angry Birds Seasons
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +445,8 @@ PostScript Anarchy в отличии от своих "родственников
 magnet:?xt=urn:btih:B0067CA4A350C390BA764DCB8C6F106E275441DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +471,8 @@ magnet:?xt=urn:btih:B0067CA4A350C390BA764DCB8C6F106E275441DC
 magnet:?xt=urn:btih:0A49352834B7C6DAF3D8ED45D9073048CB7E27DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +496,8 @@ magnet:?xt=urn:btih:0A49352834B7C6DAF3D8ED45D9073048CB7E27DE
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +525,8 @@ Alkid Live CD&USB 29-02-2012 [русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +550,8 @@ Need for Speed: Most Wanted [Ru] (P/1.3) 2005
 ```bash
 magnet:?xt=urn:btih:4DB5DBBCB0756152282E40798598C445F7B380C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +577,8 @@ Microsoft Windows Preinstallation Environment (WinPE) представляет �
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +602,8 @@ Exaella / Эксэлла [2011, OVA, 4] DVDRip 480p raw + eng + rus
 ```bash
 magnet:?xt=urn:btih:F432DB591B184431041E136FF27EC4EC7531B8FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +638,8 @@ Edius. Эта программа популярна как среди нович
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +663,8 @@ Edius. Эта программа популярна как среди нович
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +690,8 @@ Edius. Эта программа популярна как среди нович
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +716,8 @@ Edius. Эта программа популярна как среди нович
 ```bash
 magnet:?xt=urn:btih:C527179184BF2CAB2ADB1185EEB6AD32AEB325BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

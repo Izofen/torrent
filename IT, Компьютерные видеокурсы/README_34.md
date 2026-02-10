@@ -22,6 +22,8 @@ In this course we will learn FastAPI right from scratch and by then end of the c
 magnet:?xt=urn:btih:AEE88421AF186664B45512D25A69B29EC14866FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ e-Business | Webflow intensive 2.0 (2022) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:FD31C231B863DD516C944917F9EB9E5792B0BC97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:FD31C231B863DD516C944917F9EB9E5792B0BC97
 magnet:?xt=urn:btih:572985A62F88231D848A93B41B1ED813967B8CD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:572985A62F88231D848A93B41B1ED813967B8CD0
 ```bash
 magnet:?xt=urn:btih:060524CFC44D5B2AAE16E77506DE73C300242BE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ Podlodka Crew | PHP Crew #1 (2022) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:DF1C05C51697898B9530773D357D553841C095AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ Dmitri Nesteruk | Паттерны проектирования C# и .NET (2021
 magnet:?xt=urn:btih:83727D4CD2183719B81BD19334D5C2605DCBA328
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -179,6 +191,8 @@ Ryan Laley (Райан Лейли) - разработчик, консульта�
 ```bash
 magnet:?xt=urn:btih:CF29963902A8CEEEADF1EB8343460E299714324B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -206,6 +220,8 @@ Udemy, AR Shankar | Valaxy Technologies | DevOps Project - 2022: CI/CD with Jenk
 magnet:?xt=urn:btih:BA9AC0FD05CF20C64106D5526BE2F626B0C104DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +247,8 @@ Docker — это инструмент для упаковки и разверт
 magnet:?xt=urn:btih:09C572BD3795D777B9A99AAC3DC3ACC19BE52F27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -254,6 +272,8 @@ Udemy, Laith Harb | Docker and Kubernetes - The Complete Developers Guide (2022)
 ```bash
 magnet:?xt=urn:btih:DA9E8FF1403C3B7392C1D07189F6D20A3FE963C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -280,6 +300,8 @@ Udemy, iwayQ Technology | Project in DevOps: Jenkins CI/CD for Kubernetes Deploy
 magnet:?xt=urn:btih:28B8854AB06A28E983DF0483921601BF9AB6C896
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ ardanlabs.com, Miki Tebeka | Practical Go Foundations (2022) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:91DB653AEAE59000FE0E053FE8534DF31AF33BA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +352,8 @@ React это быстро! Да. Но любое приложение, кото�
 magnet:?xt=urn:btih:FAB753EF5AC50FAE99C99F2A250DDB5B61965FFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ NestJS — один из самых современных фреймворко�
 ```bash
 magnet:?xt=urn:btih:50B3994C30B4A7DF88766AB3876BD8A1C334BB1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +405,8 @@ Udemy, Kevin Nguyen | JavaScript & LeetCode | The Interview Bootcamp (2019) WEB-
 magnet:?xt=urn:btih:E7FB767921E81525773C87307F2958364E7A7CBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ In this course we're focusing on the core of any great RPG, giving your players 
 ```bash
 magnet:?xt=urn:btih:EC902ECD449B3DFBBE4D6C009AEE94735F5B6EF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +460,8 @@ Enhance your skills - become a professional level Solutions Architect and pass t
 magnet:?xt=urn:btih:E7CA89025EC1FA045C8C382AC621CB430A91C09F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ Deep dive into the architecture view for each AWS (   Читать дальше
 magnet:?xt=urn:btih:61C37122F281E64030D6A13C68278683624268A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ Learn PyTorch. Become a Deep Learning Engineer. (   Читать дальше..
 ```bash
 magnet:?xt=urn:btih:6D12CEFDAE34EA79162B9012763E0B0CEE59C431
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +544,8 @@ Udemy, Grim Future Studio | Unreal Engine - базовый курс №2. От �
 magnet:?xt=urn:btih:4DC0D9D8BB6A47FECFFCA808C2FE690270ADB496
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +571,8 @@ Udemy, Ben Tristem, Sam Pattuzzi | Unreal Engine Blueprint Game Developer: Learn
 ```bash
 magnet:?xt=urn:btih:68842553E74FB7D3E3CDA1FFC1494C846699637C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +601,8 @@ GlobalDigitalSpace запускает цикл лекций с Алексеем 
 magnet:?xt=urn:btih:54C501CF18048539EDA5EEA98306FF986A543C76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +630,8 @@ The problem is: (   Читать дальше...   )Производство: C
 magnet:?xt=urn:btih:BC601F83F64FD93C23EB91F6D14767D901CE3413
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +655,8 @@ Udemy, Bo Andersen | Complete Guide to Elasticsearch (2022) WEB-DL [EN / EN Sub]
 ```bash
 magnet:?xt=urn:btih:342807D948147E95564C4B70F63B25C2743C187D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +682,8 @@ Udemy, StudyEasy Organisation, Chaand Sheikh | Full Stack Java-разработ�
 magnet:?xt=urn:btih:89D084154BD5E673243B548181122CA6589A3924
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +707,8 @@ Udemy, Imran Teli | DevOps Beginners to Advanced | Decoding DevOps with Projects
 ```bash
 magnet:?xt=urn:btih:B230A916D1C5CAB086944842895EC36320C72E70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

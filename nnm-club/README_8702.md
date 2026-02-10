@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:1B933486671B1D0A3136BC77366DE78FCA3B56F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Masters of Anima - это оригинальная приключенческа�
 ```bash
 magnet:?xt=urn:btih:33702B2C42355E934E5A6CD964BD8CC012E4A043
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Bee Simulator (2019) [Switch] [EUR] 9.0.1 [NSP] [License / 0.2] [Ru/Multi]
 magnet:?xt=urn:btih:3370C20535FD497D409F387B1C8A675042DF4BB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Nox App Player - мощный эмулятор операционной сист
 ```bash
 magnet:?xt=urn:btih:039096BEA7B94272F82A2AAFD1C6F66A29221770
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:039096BEA7B94272F82A2AAFD1C6F66A29221770
 magnet:?xt=urn:btih:103CC775048FE0F3BBEBCA4379C778F0B4C455AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ George Benson - Pacific Fire (1983) Japan, 2017 [FLAC|Lossless|tracks + .cue] <J
 ```bash
 magnet:?xt=urn:btih:D59546D2895ECB63331596F9EBEB0F41DAFD5194
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ Alexandroid - Discography 5 Releases (2001-2004) [FLAC|Lossless|tracks+.cue, tra
 magnet:?xt=urn:btih:29A888511EA072EC448F3F2F9D509E0A02F2614E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:29A888511EA072EC448F3F2F9D509E0A02F2614E
 ```bash
 magnet:?xt=urn:btih:FD673F8FFC4FB9D4ACA589FFA496F2F99833D408
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ Mate Translate обладает невероятно полной (   Чита�
 magnet:?xt=urn:btih:7DB8BDA4C74EDE94774BF9ED12AC986A2508AF19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:7DB8BDA4C74EDE94774BF9ED12AC986A2508AF19
 ```bash
 magnet:?xt=urn:btih:6B270F5DD36370A51137A9065DC1F85BC10222AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.11 (Compiled by Викто
 magnet:?xt=urn:btih:4AABB4C9FD1E8616F402BCFB8D276D7C5A0442E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.12 (Compiled by Викто
 ```bash
 magnet:?xt=urn:btih:D3BFCA24DDA1335523B79833554124BE318324A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +351,8 @@ Taproban - Per Aspera Ad Astra (2017) [FLAC|Lossless|image + .cue] <Progressive 
 magnet:?xt=urn:btih:B0C1A1ACFB710957E71AA0759A0A31713F2680F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ KCNcrew Pack - это огромнейший сборник серийников
 ```bash
 magnet:?xt=urn:btih:F5A05949D510FCEE55E607F4D86CCC95A2F1EB08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +408,8 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.8 (Compiled by Викто�
 magnet:?xt=urn:btih:6968402D26981E32A864B847E08D29F5AF7D5796
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +436,8 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.9 (Compiled by Викто�
 ```bash
 magnet:?xt=urn:btih:7F63EBFE0324797E9E6C035BA2D5085E0B9DE2C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +466,8 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.10 (Compiled by Викто
 magnet:?xt=urn:btih:CB8CA1132983A184D267B48BCB807CA7375A3EDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +493,8 @@ magnet:?xt=urn:btih:CB8CA1132983A184D267B48BCB807CA7375A3EDB
 magnet:?xt=urn:btih:12B877012EB2B487517B6F3E64D07CA294058C78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +519,8 @@ Romanysoft Speed Test -  проверить скорость интернет. �
 ```bash
 magnet:?xt=urn:btih:5E4AE9E121BCF14094248D200F91C76D27647C6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +549,8 @@ VA - Winter Chillout Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:3271C3034F808FF7EE0CF96D9DEE7C9EC9A1FC10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +578,8 @@ magnet:?xt=urn:btih:3271C3034F808FF7EE0CF96D9DEE7C9EC9A1FC10
 magnet:?xt=urn:btih:70D79C8E20B7F66C60762837E26A519BEE5E9AE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +603,8 @@ magnet:?xt=urn:btih:70D79C8E20B7F66C60762837E26A519BEE5E9AE3
 ```bash
 magnet:?xt=urn:btih:B2333B97AE2840ECCBD9344B7C8AA43C1E556082
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +630,8 @@ magnet:?xt=urn:btih:B2333B97AE2840ECCBD9344B7C8AA43C1E556082
 magnet:?xt=urn:btih:6DBEED1BD45BBCC7C5A26B4482A0AE7593EE29A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +655,8 @@ magnet:?xt=urn:btih:6DBEED1BD45BBCC7C5A26B4482A0AE7593EE29A6
 ```bash
 magnet:?xt=urn:btih:68C96D992AEA44D0D7DFAC0B65EA3D6060815C52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +685,8 @@ VA - Electro Rhythms Funky Disco House (2017) [MP3|320 Kbps] <Dance, Funky, Disc
 magnet:?xt=urn:btih:96916A3D1020FA8AF20EA8F6741C9735869BD8D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -662,6 +712,8 @@ magnet:?xt=urn:btih:96916A3D1020FA8AF20EA8F6741C9735869BD8D8
 ```bash
 magnet:?xt=urn:btih:F578B7FD1B32F735A497899C147778B4F63BE8FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

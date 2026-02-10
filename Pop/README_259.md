@@ -1,3 +1,147 @@
+###  Публикация: 1104482   (723978) от 14.02.2022
+
+Cerrone - 32 Albums (1976-2021) Collection [MP3|320 Kbps] <Electronic, Funk-Soul, House, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jean-Marc Cerrone, больше известный как Cerrone, родился в 1952 году в Париже. Вместе с Giorgio Moroder, внес наибольший вклад в развитие европейского диско, практически, они стали родоначальниками ранней house-музыки.Список альбомов:
+1976 - Love In C Minor
+1977 - Cerrone's Paradise
+1977 - Supernature(   Читать дальше...   )Жанр: Electronic, Funk-Soul, House, DiscoПродолжительность: 01:00:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BE4702E3ED67BBE0E8623D42FC998651DD599EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128990   (724228) от 27.04.2017
+
+Nu Virgos (ВИА Гра) - Stop! Stop! Stop! (single) (2003) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stop! Stop! Stop! (Original Version) (3:48)
+02. Stop! Stop! Stop! (Upbeat Version) (3:48)Жанр: PopПродолжительность: 00:07:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63AEDB788CAED5B7CA433285B263B660EB3332AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129189   (724362) от 27.04.2017
+
+Fun Fun - 2 Albums (1984, 1987) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девичий Italo-Disco дуэт "Fun Fun"  был образован в 1983 году, и в его первоначальный состав вошли две симпатичные девушки-модели: Франческа Мерола (Francesca Merola) и Роберта Сервелли (Roberta Servelli), которую позже заменила Элена (Elena). Однако реальными же вокалистками проекта были Antonelle Pepe, Angela Parisi и популярная певица Ivana Spagna, позднее (   Читать дальше...   )01. Give Me Your Love (5:32)
+02. Sing Another Song (5:06)
+03. Tell Me (4:57)
+04. Living In Japan (5:18)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 01:17:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3795E5F28A7FAD6C7E19047AC121A90B1192515
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023558   (724399) от 05.06.2016
+
+Orax - 2 Albums (2012, 2016) [MP3|320 кб/с] <Electronic, Synthwave, Italo-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Итальянский музыкант и продюсер. С 1995 года по 2003 год  был гитаристом и композитором итальянской электрогруппы Xilema.
+В 2010 году Orax начал работу над своим сольным проектом.01. Betray ( 1:32)
+02. Rockers ( 3:58)
+03. Stars ( 3:06)
+04. D.A.D.O.E.S. ( 5:10)(   Читать дальше...   )Жанр: Electronic, Synthwave, Italo-DiscoПродолжительность: 01:40:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2259F7F26A958B8DFFFFD54EC7747D45F05B946E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023421   (724403) от 05.06.2016
+
+Bottle Of Moonshine - Believe The Numbers (2015) [FLAC|Lossless|tracks] <60's-70's Retro Pop, Female Vocal Jazz>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stand Your Ground
+02. Centerfold
+03. Happiness In Boxes
+04. To The Lighthouse(   Читать дальше...   )Жанр: 60's-70's Retro Pop, Female Vocal JazzПродолжительность: 00:46:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37B02C40B6F7B4D978788F5DFD9C3DFA3E17652F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023559   (724414) от 05.06.2016
 
 The Golden Filter - Voluspa (2010) [FLAC|Lossless|tracks + .cue] <Nu-Disco, Indietronica, Synth Pop>
@@ -21,6 +165,8 @@ The Golden Filter - Voluspa (2010) [FLAC|Lossless|tracks + .cue] <Nu-Disco, Indi
 ```bash
 magnet:?xt=urn:btih:B6CB7FF4D889BC57A4148DA5A392B66CB374EB2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +195,8 @@ Blue System - The UltraTraxx Remixe 1-2 (2009) [MP3|320 Kbps] <Disco>
 magnet:?xt=urn:btih:8A80A8F01563CCA2F717E2D2EDE1D3ABBF72BF5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +223,8 @@ Shannon - Let The Music Play (1984) LP [MP3|320 Kbps] <Electronic, Freestyle, Di
 ```bash
 magnet:?xt=urn:btih:872E881E89D739233DD7427AF69C44FA63802D2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +253,8 @@ Superbus - Sixtape (2016) [MP3|320 кб/с] <French Pop>
 magnet:?xt=urn:btih:A934043CD568EB9D2DF47D386F8ED98BD985D887
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +281,8 @@ Babette - Gypsy (1979) LP [MP3|320 Kbps] <Electronic, Pop, Chanson, Disco>
 ```bash
 magnet:?xt=urn:btih:46F42E489671894D11DC429699D316169B34F8F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +311,8 @@ Vera Lynn - Something To Remember - Wartime Memories (1995) Mono [FLAC|Lossless|
 magnet:?xt=urn:btih:EA55B983594AC6245942BF59FC8CA98DACB6C8EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +339,8 @@ Bodies Without Organs - Prototype (2005) [FLAC|Lossless|image + .cue] <Europop, 
 ```bash
 magnet:?xt=urn:btih:84761A5DA64E33581E95CBE082136D319FB6F951
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +369,8 @@ Adriano Celentano - Antologia (Remastered) (2020) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:E23309354231F5948D0A65071F0A8784B249E928
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +397,8 @@ Earphones - This Is Pop? (2004) [MP3|320 Kbps] <Eurodance, Italodance>
 ```bash
 magnet:?xt=urn:btih:89FE4B5B84DCACFC98155F68BC1981FAF16D3846
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +427,8 @@ VA - Claw Collection, Vol. 1 (Essential Dance Tunes Only for Dj's) (2013) [FLAC|
 magnet:?xt=urn:btih:EEDCFB4318FA33F05B8A7A69B6BC7D149A071DAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +455,8 @@ Fancy - 30 Years - The New Best Of (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Di
 ```bash
 magnet:?xt=urn:btih:58D68B39220C5637901C5AD484699E9B2B267D0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +485,8 @@ Beyoncé - The Lion King: The Gift (2020) Deluxe Edition [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:389F95BF754872AE1A3890B74B3984F759A915A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +513,8 @@ Dario Silver (Mirko Hirsch) - Electric Heartbeat (2017) [FLAC|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:B756B5044504A829CFECBAA409A97FC57C9B5D30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +543,8 @@ Blue Talking - Forever Fantasy (2019) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco,
 magnet:?xt=urn:btih:61C96F3B8493C782A2D7E4B06EDF3FFE7984D738
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +571,8 @@ Modern Talking - The Final Album (The Ultimate Best Of) (2003) [FLAC|Lossless]<E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +601,8 @@ Modern Talking - The Final Album (The Ultimate Best Of) (2003) [FLAC|Lossless]<E
 magnet:?xt=urn:btih:76CD6688C3E3D153F13888BCBFDB0E55951862D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +629,8 @@ magnet:?xt=urn:btih:76CD6688C3E3D153F13888BCBFDB0E55951862D6
 ```bash
 magnet:?xt=urn:btih:FC6E27B3218F3278BC6D198E1D2BE4E11194DA59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +659,8 @@ Voggue - 2 Albums (1981, 1983) LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
 magnet:?xt=urn:btih:D8C4947C85C2F0F0189270D060A2E911113B7538
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +688,8 @@ magnet:?xt=urn:btih:D8C4947C85C2F0F0189270D060A2E911113B7538
 magnet:?xt=urn:btih:7A6F4A5B58D7D07EB51EB93C449AFAA1F0DBB67C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +716,8 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:F4BEB32427C2E53382A61BA6CD79B5DD9E3AE27A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,140 +748,7 @@ The Crosslines - Singles Collection (2013) [MP3|320 кб/с]<ItaloDisco, EuroDis
 magnet:?xt=urn:btih:6C7BC629F93031BE2FE8379DDF45A05A226A743E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128923   (726367) от 26.04.2017
-
-Филипп Киркоров - For You ... (2007) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я эту жизнь тебе отдам 03:31
-02. Полетели 03:56
-03. Холодно в городе (дуэт с Аллой Пугачёвой) 03:40
-04. История 03:37(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94F13FA8D486461B07141F364B07AE3F302DD9E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128984   (726447) от 26.04.2017
-
-VA - New Italian Disco (1984) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sandy Marton - People From Ibiza (4:17)
-02. Rofo - You've Got To Move It On (4:11)
-03. Savage - Don't Cry Tonight (3:58)
-04. Carmelo La Bionda - I Love You (3:17)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 00:56:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B19F69F5267C0D80A5BA5CD9264F4D91DDE2B419
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284650   (726542) от 23.02.2019
-
-Mariah Carey - MTV Unplugged (1992) EP [FLAC|Lossless|image + .cue] <Hip Hop, Soul, RnB>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emotions
-02. If It's Over
-03. Someday
-04. Vision Of Love(   Читать дальше...   )Жанр: Hip Hop, Soul, RnBПродолжительность: 00:28:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C757F38E77B4A7C634FCECE83DADD99C9C32B28D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128928   (726555) от 26.04.2017
-
-The Splash Band - The Music Of John Carpenter (1984) Reissue CD, 2015, ZYX Music [MP3|320 Kbps] <Electronic, Experimental, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The End (Disco) (5:14)
-02. Unheimliche Schattenlichter (4:00)
-03. Das Ding (4:18)
-04. The Fog (3:34)(   Читать дальше...   )Жанр: Electronic, Experimental, Synth-pop, DiscoПродолжительность: 01:11:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34B0CEA3E79D62C366E3B2ABE1166B1CD06AF8BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284545   (726576) от 23.02.2019
-
-VA - The Partytime-Singers - Party-Time (1997) Box Set  3CD [MP3|320 Kbps] <Pop, Cover>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726576.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01
-01. Y.M.C.A.
-02. Aber Bitte Mit Sahne
-03. Centerfould(   Читать дальше...   )Жанр: Pop, CoverПродолжительность: 02:51:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B0F4A22A3561D1827A352261F8E6154AC50E6B2
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

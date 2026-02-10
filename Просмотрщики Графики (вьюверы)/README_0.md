@@ -19,6 +19,8 @@ Capture One - один из лучших профессиональных кон
 magnet:?xt=urn:btih:B6F097CDF617C398530B0A9FDBB7CC36B11274AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ FastStone MaxView - быстрый и компактный просмотрщи�
 ```bash
 magnet:?xt=urn:btih:5EFEAE0AAFC3324506E8255EC99C9D936C197A1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ SlowView пожалуй один из самых быстрых в мире пр
 magnet:?xt=urn:btih:EB60DBBC2306C8B303DFA2E7007B340F2149086F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ FastStone Photo Resizer - программа для различных мани�
 ```bash
 magnet:?xt=urn:btih:8D43C7509DB8114592EDA64F1B295415BF451E80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Adobe Bridge предоставит вам централизованный до
 magnet:?xt=urn:btih:09F19D3D0AC99FD919EBA16CFADDC82798C16B9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ IrfanView - компактная и в то же время мощная про�
 ```bash
 magnet:?xt=urn:btih:06A04254EE75A87CF140D8C9A7010482BAE774B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ FastStone Image Viewer - просмотровщик, редактор и кон�
 magnet:?xt=urn:btih:9EF146AC4DBB70F28314999DB7137E63F254CF92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ FastStone Image Viewer - просмотровщик, редактор и кон�
 ```bash
 magnet:?xt=urn:btih:D7E62E81CE70633D7902272736EE7DA98658C7DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ FastStone Image Viewer - просмотровщик, редактор и кон�
 magnet:?xt=urn:btih:F899DC98E72890F8FFE4AF972F84553DF99E548F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Bridge — это мощное средство управления ресур�
 ```bash
 magnet:?xt=urn:btih:C6EDF1FBCAE7E8E50BAB85EDB8B7056B7F34C9E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Movavi Photo Manager 2.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:951229134F58FD47CAFFE4D4EBB3EBAAEE1AFEA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ ACDSee Pro - профессиональная программа для рабо
 ```bash
 magnet:?xt=urn:btih:90105DCBCF487415C0A87DF6EA187600DF62F5BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Adobe Bridge CC предоставит вам централизованный �
 magnet:?xt=urn:btih:B3B2A616690AD24BFF3F6980B4DDD6231CF4716C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ OpenText Brava! DWG Viewer - бесплатный просмотрщик CAD-ф�
 ```bash
 magnet:?xt=urn:btih:81815476FAF724F36F7FC4062738E85826C00356
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Picasa — программа-органайзер ваших фотографи
 magnet:?xt=urn:btih:CE4C7B0DBDFFBE77B83A29C88666F09BC0CED4CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Universal Viewer – универсальный файловый просмот�
 ```bash
 magnet:?xt=urn:btih:C911DBA697B7307E1B22B4C720831A603BC36B1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ Picasa 3.9.140 Build 248 Portable by PortableAppZ [Multi/Ru]
 magnet:?xt=urn:btih:F83B7F101D524B015CD6F514FB44726C38457F0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ FastStone Photo Resizer - программа для различных мани�
 ```bash
 magnet:?xt=urn:btih:8A903EAFCD1AEF6040A0FBA7FBC447BED362F2FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ FastStone MaxView - быстрый и компактный просмотрщи�
 magnet:?xt=urn:btih:9FC7F8F78DB5FF2CE7883C6470A97CDCAE6BA361
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ ACDSee Pro - профессиональная программа для рабо
 ```bash
 magnet:?xt=urn:btih:CE4774844AE213E9A94AE46A7ED099F566521D71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ ACDSee Ultimate 10 сочетает в себе поддержку слоев, �
 magnet:?xt=urn:btih:99098B25C0FBAD14CEC34844796C24E8C97910FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ ACDSee 20 — программа представляет собой много�
 ```bash
 magnet:?xt=urn:btih:CCC744F00E2EC1BB1549A4343C9D4AAD0956C3DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ Nomacs имеет около двух десятком языков в спис�
 magnet:?xt=urn:btih:7BB4C80F82C5C42E33C1FA708DBC92C1EB91F5B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ Alternate Pic View - бесплатная программа, с открыты�
 ```bash
 magnet:?xt=urn:btih:FFDF6475254B7C428F517CD9E4CABC86D50F2B90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ ACDSee Photo Studio - функциональная программа, расс�
 magnet:?xt=urn:btih:B30E476E8C17EDB08B447BCEE489958D85113F7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ JPEGView - это быстрый и настраиваемый просмотр�
 ```bash
 magnet:?xt=urn:btih:7EC95E4C365E22444C6769A3A26098EA458ADF73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

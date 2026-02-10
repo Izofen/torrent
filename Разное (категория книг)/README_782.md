@@ -1,3 +1,29 @@
+###  Публикация: 1448642   (1030662) от 18.02.2021
+
+Елена Синякова | Мастер обратной связи. В бизнесе и в жизни (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обратная связь, или фидбэк, – одна из важнейших составляющих общения между людьми. В то же время именно здесь кроется очень много недопонимания, разочарования, раздражения и других далеко не самых приятных эмоций и ощущений. И ладно, если это были бы только эмоции и ощущения! На кону часто стоит успех в выполнении работы, отношения с руководством, родственниками (   Читать дальше...   )Жанр: Психология, Саморазвитие, Личностный ростФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CB1C1D9C77F49B73FDAA9016CB400E38FBB16B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448662   (1030681) от 18.02.2021
 
 Владимир Гиляровский | Москва и москвичи. Репортажи из прошлого (2018) [EPUB]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:B5DEF889C854418353C88155D2B53C3DABD83903
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:B5DEF889C854418353C88155D2B53C3DABD83903
 ```bash
 magnet:?xt=urn:btih:5570FEE1A9250B32A9B56DA0C37E9025D52372D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +100,8 @@ YouTube дает возможность одним поделиться инфо
 magnet:?xt=urn:btih:FE88C2606C61FC6ACF18745E2D97F4B194594D1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:FE88C2606C61FC6ACF18745E2D97F4B194594D1E
 ```bash
 magnet:?xt=urn:btih:7D279E2F0099F4607AFCF42324F45676982BA28C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +154,8 @@ magnet:?xt=urn:btih:7D279E2F0099F4607AFCF42324F45676982BA28C
 magnet:?xt=urn:btih:649D6D53E57E43E4C07F2A68BFB18AD5580246B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +181,8 @@ magnet:?xt=urn:btih:649D6D53E57E43E4C07F2A68BFB18AD5580246B5
 magnet:?xt=urn:btih:22FE6D849DD9B5191DFC60A6B3B28886ADFA61A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +207,8 @@ magnet:?xt=urn:btih:22FE6D849DD9B5191DFC60A6B3B28886ADFA61A2
 magnet:?xt=urn:btih:AC552445D0472BBC9FA1CC0812E83A012DFD05F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:AC552445D0472BBC9FA1CC0812E83A012DFD05F7
 ```bash
 magnet:?xt=urn:btih:F39E5801EFB6BAEB09E12BF2B5B4823DC2F6F6B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +261,8 @@ magnet:?xt=urn:btih:F39E5801EFB6BAEB09E12BF2B5B4823DC2F6F6B0
 magnet:?xt=urn:btih:23301517046468F1A04DA1186C9B795A149E5943
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +289,8 @@ magnet:?xt=urn:btih:23301517046468F1A04DA1186C9B795A149E5943
 magnet:?xt=urn:btih:B510C0C0EE3B6B0A61CB09F4AF1841141DB61FF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +316,8 @@ magnet:?xt=urn:btih:B510C0C0EE3B6B0A61CB09F4AF1841141DB61FF1
 magnet:?xt=urn:btih:7E1DEA67E610EEDB2E6A16270FA2718A1EB8606C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +342,8 @@ magnet:?xt=urn:btih:7E1DEA67E610EEDB2E6A16270FA2718A1EB8606C
 magnet:?xt=urn:btih:73E58029E86AF5A0E4B928FC536126085D155EF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +367,8 @@ magnet:?xt=urn:btih:73E58029E86AF5A0E4B928FC536126085D155EF7
 ```bash
 magnet:?xt=urn:btih:CE725C180930F39B6EC97C6CE337FED0112A08B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +395,8 @@ magnet:?xt=urn:btih:CE725C180930F39B6EC97C6CE337FED0112A08B6
 magnet:?xt=urn:btih:318445FC0D4E12498EE20AE02DF1CFEB8B97BDF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +421,8 @@ magnet:?xt=urn:btih:318445FC0D4E12498EE20AE02DF1CFEB8B97BDF5
 magnet:?xt=urn:btih:53541A6BD2AFD012B3F0A7CCFFE89D490F743079
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +446,8 @@ magnet:?xt=urn:btih:53541A6BD2AFD012B3F0A7CCFFE89D490F743079
 ```bash
 magnet:?xt=urn:btih:910980A42821850FC551E55CD7EFE570FD3F2121
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +474,8 @@ magnet:?xt=urn:btih:910980A42821850FC551E55CD7EFE570FD3F2121
 magnet:?xt=urn:btih:A6D7C199C384E628123B04A5756AF571F09AAB19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +499,8 @@ magnet:?xt=urn:btih:A6D7C199C384E628123B04A5756AF571F09AAB19
 ```bash
 magnet:?xt=urn:btih:7DE01FD00BEF8DB160A5C3E76A7FCC3FA50BD05B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +527,8 @@ magnet:?xt=urn:btih:7DE01FD00BEF8DB160A5C3E76A7FCC3FA50BD05B
 magnet:?xt=urn:btih:DB5224EC220BAA7A77C75D600E31A5A2EBA1C392
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +552,8 @@ magnet:?xt=urn:btih:DB5224EC220BAA7A77C75D600E31A5A2EBA1C392
 ```bash
 magnet:?xt=urn:btih:72994A8B90114C8EA091C6B7D4D03C229260254D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +579,8 @@ magnet:?xt=urn:btih:72994A8B90114C8EA091C6B7D4D03C229260254D
 magnet:?xt=urn:btih:A83967E231C8BA437CBED6D57C8A5F0D2A15AA76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +605,8 @@ magnet:?xt=urn:btih:A83967E231C8BA437CBED6D57C8A5F0D2A15AA76
 magnet:?xt=urn:btih:B627ED1BC203857C0A65B967B4FCCF37E5FDC37A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +630,8 @@ magnet:?xt=urn:btih:B627ED1BC203857C0A65B967B4FCCF37E5FDC37A
 ```bash
 magnet:?xt=urn:btih:7FCF12C6DC66819EC823E36878E0F39FE23A0D50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +659,8 @@ magnet:?xt=urn:btih:7FCF12C6DC66819EC823E36878E0F39FE23A0D50
 magnet:?xt=urn:btih:E802817186801E72EE4463F14757F65CA12C58B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,29 +685,7 @@ magnet:?xt=urn:btih:E802817186801E72EE4463F14757F65CA12C58B7
 magnet:?xt=urn:btih:6FEEFEB9CF8B28FEA5740C9967C654894391443E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447127   (1032032) от 12.02.2021
-
-Инна Метельская-Шереметьева | Галопом по вкусным Европам. Большое кулинарное путешествие (2020) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая книга известного блогера, кулинара и путешественницы Инны Метельской-Шереметьевой посвящена рецептам европейской кухни. Представьте себе праздничные европейские улицы в гирляндах фонарей и неоновых букетов, красочные ярмарки, волшебные ароматы, кружащие уже у входов в маленькие кондитерские или кафешки. Для вас приготовлены самые лучшие угощения, те, что жители (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:117EB96F9354ED70F1BED45F4F2F3A84C0FD6B55
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ DesktopDigitalClock - простые и красивые цифровые час
 magnet:?xt=urn:btih:2BA73F0699D45A27FD43EAC7D8959105D708AC70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Udemy, Eincode by Filip Jerga, Filip Jerga | Svelte and Firebase: The Full Cours
 ```bash
 magnet:?xt=urn:btih:1710377EEE16CCBF62C51CE044EFED19F9172743
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:1710377EEE16CCBF62C51CE044EFED19F9172743
 magnet:?xt=urn:btih:2D4A121EB80273AD0B7D47296CC190AC2B1ABC80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:2D4A121EB80273AD0B7D47296CC190AC2B1ABC80
 ```bash
 magnet:?xt=urn:btih:D8EC620D57CD8839F8D38E2B967876BFFA7E4091
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:D8EC620D57CD8839F8D38E2B967876BFFA7E4091
 magnet:?xt=urn:btih:E3AD5560699110BCF36633E047D3635D7A9B00A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Mp3tag предоставляет пользователям мощный и п�
 ```bash
 magnet:?xt=urn:btih:D5A9F76BC8834A99BE6CBE8DB6B48829AD428049
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Dictionary 15.2 [Ru/Multi]
 magnet:?xt=urn:btih:4874B2D902C9FE3C79AF0ABE8AFD9DDEFA595F5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:4874B2D902C9FE3C79AF0ABE8AFD9DDEFA595F5D
 ```bash
 magnet:?xt=urn:btih:C0E682CE7F1F29A987CF59863DCD2CD3E5540878
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ EZ CD Audio Converter - утилита для преобразования ау�
 magnet:?xt=urn:btih:FD2D2602558962B832E8F60BF694107B75E79089
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:FD2D2602558962B832E8F60BF694107B75E79089
 magnet:?xt=urn:btih:B497F4E7648D8D83EAABC4E2192B7583AD729FC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:B497F4E7648D8D83EAABC4E2192B7583AD729FC2
 ```bash
 magnet:?xt=urn:btih:A1E4F4037841E6EA324B115F7D42C32943DAAB0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:A1E4F4037841E6EA324B115F7D42C32943DAAB0C
 magnet:?xt=urn:btih:5D5F2E86FA625FFB7D0170E32E0F9ABC36F372D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:5D5F2E86FA625FFB7D0170E32E0F9ABC36F372D4
 magnet:?xt=urn:btih:AA3ED1CD0B622AA279CDD373EAC609D033896A56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:AA3ED1CD0B622AA279CDD373EAC609D033896A56
 ```bash
 magnet:?xt=urn:btih:EF601383558FEAD58BCE74065988D174E5611A26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:1A66D46CC5DA72AA7F07AB91E90F74DC6A155A53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:1A66D46CC5DA72AA7F07AB91E90F74DC6A155A53
 magnet:?xt=urn:btih:01CF1818A8A331E3D333DDBE09C7C75A20B20B9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:01CF1818A8A331E3D333DDBE09C7C75A20B20B9B
 ```bash
 magnet:?xt=urn:btih:A58B6176A94F9CE7D29887F837E4722072615A60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ VA - Rock Classics For Gaming (2023) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:5634007EA1DDCE303EF32B6D1F2C48D5025B95F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ Chaos Control - The Legacy Within (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, P
 magnet:?xt=urn:btih:8B222CDF4528A81637693F731EB3E665C55FB817
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:8B222CDF4528A81637693F731EB3E665C55FB817
 magnet:?xt=urn:btih:DBC8F33DF701EEBE2FD6C18E47164727EDA40D62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ MediaHuman YouTube Downloader 3.9.9.85 (1509) RePack (& Portable) by TryRooM [Mu
 ```bash
 magnet:?xt=urn:btih:F7FAA5EAC24832C5ACAAF027C248981DB23E2E52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +585,8 @@ Morbid Angel - Altars of Madness (1989) 1990 reissue [FLAC|Lossless|image + .cue
 magnet:?xt=urn:btih:DB0B23A26292146B2055A519290BF5AF406F8113
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +610,8 @@ OCCT 12.1.3 Final Portable [En]
 ```bash
 magnet:?xt=urn:btih:752AD59827A1F4A78A80EAA2B18572BC545CC48B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +637,8 @@ magnet:?xt=urn:btih:752AD59827A1F4A78A80EAA2B18572BC545CC48B
 magnet:?xt=urn:btih:913E1A953B0A98A29E24CD4741E26FA188704519
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ WinBin2Iso 6.19 Build 001 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8DF74BC9D5439F9821DD9F0D5AD46A7D36010DCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +689,8 @@ HiBit Uninstaller - идеальное решение для удаления п
 ```bash
 magnet:?xt=urn:btih:0C4F93C62EFF5A53AF31F18D535092ABCA9FED36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

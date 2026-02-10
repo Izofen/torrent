@@ -1,3 +1,29 @@
+###  Публикация: 1299066   (600745) от 30.04.2019
+
+Цвета Италии / The Colors of Italy (2018) WEBRip [H.264/2160p] [4K, UHD]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600745.jpg" />
+</div>
+
+
+###  Подробнее
+
+В глуши Италии с высоты птичьего полёта.Производство: ИталияЖанр: Документальный, видовойРежиссер: АтелланиПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:06:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:618DCF6D2BB5E3725B80E728C8DE78348856C71C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548228   (600804) от 01.05.2022
 
 Пьяная слава (2022) WEBRip [H.264/720p]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:D553C4C68EE8C488CC973A5300FF136822060EC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:D553C4C68EE8C488CC973A5300FF136822060EC1
 magnet:?xt=urn:btih:FEBE97DB343893FAA4A4E4C9CF1F40F4FDDA8D4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ Nat Geo Wild: Дикая Венеция / Wildes Venedig / Wild Venice (2014) HD
 ```bash
 magnet:?xt=urn:btih:89CBDF8C5565D7C8DCB99E35EA74C92C5DD42A3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:89CBDF8C5565D7C8DCB99E35EA74C92C5DD42A3E
 magnet:?xt=urn:btih:7B4B2BE1EDB96CF6DC91BE1059F125630CE96448
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:7B4B2BE1EDB96CF6DC91BE1059F125630CE96448
 ```bash
 magnet:?xt=urn:btih:8C64FFFAC49A1F8995FB313B2A172D8B3C525886
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:8C64FFFAC49A1F8995FB313B2A172D8B3C525886
 magnet:?xt=urn:btih:B8A7BCC5D91262C196DA8C95F0542B8F23C25CFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:B8A7BCC5D91262C196DA8C95F0542B8F23C25CFB
 ```bash
 magnet:?xt=urn:btih:357BEA355D7172FF225119DBEC05FE7E5530D7A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:357BEA355D7172FF225119DBEC05FE7E5530D7A3
 magnet:?xt=urn:btih:41A27A5FDB487277AD15C4929052FEEBF29D8A37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:41A27A5FDB487277AD15C4929052FEEBF29D8A37
 ```bash
 magnet:?xt=urn:btih:6394496312A213FBE7E121BAA91BA28838771B84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:6394496312A213FBE7E121BAA91BA28838771B84
 magnet:?xt=urn:btih:FB20CEF6B2116808BB0CC7E1510D2841614CB638
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:FB20CEF6B2116808BB0CC7E1510D2841614CB638
 magnet:?xt=urn:btih:713D65E6585870C90F87A32F5783D7393F6165F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:713D65E6585870C90F87A32F5783D7393F6165F7
 ```bash
 magnet:?xt=urn:btih:95E650B253F271084F2ADEA95208F428EBFC3414
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:95E650B253F271084F2ADEA95208F428EBFC3414
 magnet:?xt=urn:btih:4977F130017A4A368B69BA20C539EF8EEEF3E3C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:4977F130017A4A368B69BA20C539EF8EEEF3E3C1
 ```bash
 magnet:?xt=urn:btih:803C54B9A21B1F82DA16DB5CED97F4A6D713D916
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:803C54B9A21B1F82DA16DB5CED97F4A6D713D916
 magnet:?xt=urn:btih:444B3506D3C9A286381ED5BD414B8DC7FEE92560
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:444B3506D3C9A286381ED5BD414B8DC7FEE92560
 magnet:?xt=urn:btih:F33DDE8B6A6CE047A849C2FBCA94FB899512D3A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:F33DDE8B6A6CE047A849C2FBCA94FB899512D3A2
 ```bash
 magnet:?xt=urn:btih:D9BB88F5AD8DF1CC6DEFE41F3B1B73B460FF800E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:D9BB88F5AD8DF1CC6DEFE41F3B1B73B460FF800E
 magnet:?xt=urn:btih:4560C5408FCDA0DE10BAC1A1923FED47351618B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:4560C5408FCDA0DE10BAC1A1923FED47351618B9
 ```bash
 magnet:?xt=urn:btih:805E7F01E91E53A9805E99553C158B9CA6D3DD50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:805E7F01E91E53A9805E99553C158B9CA6D3DD50
 magnet:?xt=urn:btih:36FBC85A6FD4E67743A54CB0FF631F9E5CE87D17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:36FBC85A6FD4E67743A54CB0FF631F9E5CE87D17
 ```bash
 magnet:?xt=urn:btih:4904B3A71E2E055A5A1857CEF8EC79DF88CFFD6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +598,8 @@ C 15 февраля в шоу Голос дети новые наставник�
 magnet:?xt=urn:btih:80DA0D505D28CACFDC7B1243272C0767238DE56B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:80DA0D505D28CACFDC7B1243272C0767238DE56B
 ```bash
 magnet:?xt=urn:btih:FC6702D20CA9E45770257322BC145BF66E87C847
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:FC6702D20CA9E45770257322BC145BF66E87C847
 magnet:?xt=urn:btih:C9665D113C79538ED30F3F8B24F77EC1C0E8A2F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,29 +676,7 @@ magnet:?xt=urn:btih:C9665D113C79538ED30F3F8B24F77EC1C0E8A2F3
 magnet:?xt=urn:btih:70D55439407AB085C41D1D991126189762D8C1B8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298741   (601722) от 28.04.2019
-
-BBC: Япония / Japan (2006) HDTV [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Качественный и красивый ролик показывающий Японию во всей своей красе, замечателен ролик еще и тем, что охватывает практически все виды деятельности людей и животных, населяющих эту страну.Производство: BBCЖанр: Документальный, видовой, природа, флора, фаунаПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:04:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EFB4150615B57244F9F4D36DDE7922EA83141FF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

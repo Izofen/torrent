@@ -19,6 +19,8 @@ Cloud Meadow (2020) [En] (0.1.4.2a2) License GOG [Early Access] [18+]
 magnet:?xt=urn:btih:017CC0841222D627967677C143073DCFD4278F32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Kerbal Space Program 2 — продолжение полюбившегося п�
 ```bash
 magnet:?xt=urn:btih:C36A550579A2D5EFC34AECECC459AB193A719C49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Phasmophobia — это совместная онлайн-игра в жанре
 magnet:?xt=urn:btih:3CD6EDF06A56E11E3C3EE156D441D22A0655507D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Split (2022) [Ru/Multi] (0.9.20) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:CF5241622F35A4D57542086D68721DD323777B09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Dr. Chatelet: Faith 神医 (2022) [Multi] (1.0.25) License GOG [Early Access]
 magnet:?xt=urn:btih:5E5C3404C9DA6D9EA7B378D88A555B7FC552FBF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Remains (2021) [Ru/Multi] (0.50x0297a) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:13D1428A5BC2F7D746351E0BCAB5E537C6625C0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Death Trash - изометрическая RPG в мире постапокал�
 magnet:?xt=urn:btih:9BE60E6B26399BE8E7C3E5164A2873DD98AFF312
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Black Ice (2025) [Ru/Multi] (1.0) Repack Other s [Early Access]
 ```bash
 magnet:?xt=urn:btih:55C6D8473A1B0E204DD818098CFFEEB236DAFB9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Forest — это необычный survival horror с открытым м�
 magnet:?xt=urn:btih:561BEDB93B8D76DD44CF8CB5715AD08448D5E7CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Exoplanet: First Contact — это Action RPG от третьего лица в
 ```bash
 magnet:?xt=urn:btih:3BD7041EA60F01AFC8D5D8E4E8F174A6910BFF54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Darkest Dungeon – хардкорная ролевая игра, действи
 magnet:?xt=urn:btih:E53635BE96AAACE43BB31B59E9433B76C8AB31B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ RICE Repetitive Indie Combat Experience (2023) [En] (24) License GOG [Early Acce
 magnet:?xt=urn:btih:CE599B0DE02FB8B8C72FA4396BBAB5A7B372F988
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +330,8 @@ Outbreak Island (2025) [Ru/Multi] (Build 20575035/dlc) Repack Other s [Supporter
 ```bash
 magnet:?xt=urn:btih:008AAFAE4A8C1534D5C5C66D0BBF878E003E218B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Cisco Aspire — это потрясающая обучающая игра, ос
 magnet:?xt=urn:btih:40604C31FDE23E800A1B15A1F6DCBDA0A5DF37D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ The Scouring - это стратегия в реальном времени, в 
 ```bash
 magnet:?xt=urn:btih:4F207C9EF6CC028697227AE95901D0B7AEA70E24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ PARANOIA PLACE — это совместная онлайн-игра (с оди�
 magnet:?xt=urn:btih:8E8C74777224EA3617A370CF1F14EF5C0D4FB114
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ The Last Caretaker (2025) [Ru/Multi] (0.5.0.581804) Repack Other s [Early Access
 ```bash
 magnet:?xt=urn:btih:B5BD24DFC83EE728D7D0575222E2258C52CDA831
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ The Last Starship - это двухмерный симулятор космич�
 magnet:?xt=urn:btih:491C3C00F805E0090A3C9E8AC610E4DF54328ADA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Fatal Claw (2025) [Ru/Multi] (0.9.81) Repack Let'sРlay [Early Access]
 ```bash
 magnet:?xt=urn:btih:90099B1B71227569EEAC10E3D6FDBBC543C90571
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ Critter Cove (2024) [Ru/Multi] (0.6 build 269) License GOG [Early Access]
 magnet:?xt=urn:btih:00E4E5D6DF4FFAD047C84CE00F38E6FCF21B35E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Kingdoms Reborn – увлекательный градостроительны�
 ```bash
 magnet:?xt=urn:btih:2804851A833E14155A41F50C6FFE18A7AE076F58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ Tiny Bunny / Зайчик (2021) [Ru/Multi] (19835777) Repack Necros [Early Acce
 magnet:?xt=urn:btih:AB9FAA5E1EA6D289880C8CB4263979C2EE4A306C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ BIOS (2016) [Ru/Multi] (0.32) Repack Other s
 ```bash
 magnet:?xt=urn:btih:AE1C19E95C1008EBD743CB577BB19DB472F15D6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ The Coma 2: Vicious Sisters — атмосферная сюжетная игра
 magnet:?xt=urn:btih:073CE5938EEAFB1EFAE8AD8B7823A755720B4F99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Off-Road Paradise: Trial 4x4 - автотриал по живописным уг
 magnet:?xt=urn:btih:FED46F92CF78CCA973385F98A2A4A4010EF08972
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Visage (2018) [Ru/Multi] (2.2) Repack Other s
 ```bash
 magnet:?xt=urn:btih:9207B24ACDE2ABC137639E511D63EDF612CCC57D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

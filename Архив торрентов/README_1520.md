@@ -19,6 +19,8 @@ WinTools.net – набор инструментов для оптимизаци
 magnet:?xt=urn:btih:2241EAB97B041BE6F6EE251A977E41DFEE9FDC37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Windows 11 Manager - это универсальная утилита специ
 ```bash
 magnet:?xt=urn:btih:443CFA9F40DC0CCD35103F294C7B0E38FBB93EC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Adobe InDesign — профессиональный продукт для про
 magnet:?xt=urn:btih:B86986715346653635429E12651E8D4315178D45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ FastStone Capture представляет собой довольно мощн�
 ```bash
 magnet:?xt=urn:btih:321DF4BD231FADC0648509A061334FAB65494236
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Music Folder Player - аудиоплеер, что не может похвас�
 magnet:?xt=urn:btih:C2D7B39D7A7AD37EA64C96FF7FA13942D5717762
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Wise Program Uninstaller 3.1.4.256 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B927576DF6D7553CA110C37C7DA8A12AA9E2FD74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Total Commander является самым мощным и стабильным
 magnet:?xt=urn:btih:ACD69508B359E25F393A25AA4A90C9D0F3A9F94C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Total Commander 10.52 (17.01.2023) Portable by MiG [Ru/En]
 magnet:?xt=urn:btih:2FCDDC58A49A32446E5615CC6DDA62DC243B2DE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:A4F09E35F8E3AEE1020C41A745C1BEBA6D7A2BFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Nmap — (Network Mapper) — мультиплатформенное прило�
 magnet:?xt=urn:btih:3CE4E82B46D6CAB87F064A5B75031C1EC05F598D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ NOAA Weather by RainViewer (RainViewer: Метеорадары, ДМРЛ) 3.0 Mo
 ```bash
 magnet:?xt=urn:btih:E206163DA7FA77879300E2291A450B8A70350585
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ EssentialPIM - это отмеченное различными наградам
 magnet:?xt=urn:btih:B5CC9032C7B0B0132160206A639474E07EB177CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Topaz A.I. Gigapixel — это первое и единственное при�
 ```bash
 magnet:?xt=urn:btih:298D5E75CE4993D306218CF824DFAAF1ADAE128D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:3C4D7075A34DB13D73D8AC04BB2A5A91D3383CD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Java Runtime Environment (JRE) - программное обеспечение �
 ```bash
 magnet:?xt=urn:btih:966D93648BCF0B2EA38BF9D5261FC3F11A3E9A46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ _aug_2022_x64_dvd_d49e4a04.iso
 magnet:?xt=urn:btih:4D1CAD0568A25633F2390690705B46376DFDC179
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 ```bash
 magnet:?xt=urn:btih:7ECBA7094B859CF9D4AB2F843CDCAC65B637694F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Bandicam позволяет записать определенную облас
 magnet:?xt=urn:btih:46446FA2723120F93B7D079E08884C49CAAA78B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ FastStone Image Viewer - вьювер, редактор и конвертор г
 ```bash
 magnet:?xt=urn:btih:DBEEBD7F031E09AF6AEF59489B9557BCED36F39F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:DF63459DB48643DF629E74F713E85587D1317E0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:DF63459DB48643DF629E74F713E85587D1317E0C
 ```bash
 magnet:?xt=urn:btih:7A148C968C7B4316ADA51FE96F2923400718BAAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ AOA: Always on Display - проект по персонализации, что 
 magnet:?xt=urn:btih:1E6A93B6EBC5DFB8F6466AC9FE78445C250D4075
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ VueScan - программа для работы со сканерами HP, Min
 ```bash
 magnet:?xt=urn:btih:F1AF7FCE8AEC1AA3221993E14E2A4DE36CE06D37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ OneCommander V3 — это современный файловый менедж�
 magnet:?xt=urn:btih:F5D07BB6A7EC18161A9ADEB0A96C538388D4FC90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ Spotify имеет громадный каталог музыки, поддер�
 ```bash
 magnet:?xt=urn:btih:A36B6877999E8A02F1E99EEEF1CE49D188A4E9F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +680,8 @@ _updated_aug_2022_x64_dvd_1ab37ead.iso
 ```bash
 magnet:?xt=urn:btih:3AA0DEF0C55A9FA8267174A5F24F9B5814C8F7E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -24,6 +24,8 @@ Dj VoJo - STYLE vol.2:  В Ж...ПУ ПАФОС (07.04.2012)Год: 07.04.2012
 magnet:?xt=urn:btih:C9DC9375B29EA3DE59B9AB659E2C5E9E3E67ED8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -57,6 +59,8 @@ The Cardigans - Life (2005) /2008 Japan SHM-CD Edition/ [FLAC|Lossless]<Pop Rock
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -80,6 +84,8 @@ Crime City [En] (RePack) 1992 | Pilotus
 ```bash
 magnet:?xt=urn:btih:791977B82598FABEF3B910186C2F6751FDAB1DB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -105,6 +111,8 @@ magnet:?xt=urn:btih:791977B82598FABEF3B910186C2F6751FDAB1DB9
 magnet:?xt=urn:btih:D22ED87B38CE754111DEF9CEE51C199092D5B8C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ magnet:?xt=urn:btih:D22ED87B38CE754111DEF9CEE51C199092D5B8C6
 magnet:?xt=urn:btih:46F36852AF17C7DF1D8B29391D8BD69F3AE41ADA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ magnet:?xt=urn:btih:46F36852AF17C7DF1D8B29391D8BD69F3AE41ADA
 ```bash
 magnet:?xt=urn:btih:B0AE82633B8FB8974FF641E574A61515B7E1212E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -186,6 +198,8 @@ A Million Dead Birds Laughing - Force Fed Enlightenment (2011) [MP3|~275 кб/с
 magnet:?xt=urn:btih:94391266783DF4CDCBE7FFA59D272B091153A0E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +228,8 @@ magnet:?xt=urn:btih:94391266783DF4CDCBE7FFA59D272B091153A0E8
 magnet:?xt=urn:btih:B66138BEE571E35D2AFAB63B79A06E2E57169096
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +254,8 @@ Infestdead - 3 альбома - Discography (1995 - 1999) [MP3|320 кб/с]<Deat
 magnet:?xt=urn:btih:0EFDAAC34B836075448B536C1791C2288F56A74C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ magnet:?xt=urn:btih:0EFDAAC34B836075448B536C1791C2288F56A74C
 ```bash
 magnet:?xt=urn:btih:A39A7C28B2DFCC1C692CA45DA6FA8EA45D830864
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +308,8 @@ Houwitser - Bestial Atrocity (2010) [MP3|320 кб/с]<Brutal Death>
 ```bash
 magnet:?xt=urn:btih:3FF001D60C3F28A1D410DA06E0DF700F7D7417C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +343,8 @@ I’ll Eat Your Face - Hot Brains Terror (2011) [MP3|320 кб/с]<Death Metal / 
 magnet:?xt=urn:btih:8C4EB3D02112D6B7D1A2F1C97CA45B961EE5024C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +369,8 @@ magnet:?xt=urn:btih:8C4EB3D02112D6B7D1A2F1C97CA45B961EE5024C
 ```bash
 magnet:?xt=urn:btih:81F917D5E82631ECE50EF24E5A238475E6106305
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +401,8 @@ WeTeR - Обыватель ЕР (2012) [MP3|320 кб/с]<Underground RAP>
 magnet:?xt=urn:btih:FB2CB480FDB5011F358F7A7FD566B9669B762DAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +428,8 @@ Slaughtery - Path-(t)o-Logic (2011) [MP3|320 кб/с]<Technical Brutal Death>
 ```bash
 magnet:?xt=urn:btih:4656A388980D46F1F1DC4C1747CCD252BA52CC5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +464,8 @@ Taenya - Contaminate [EP] (2011) [MP3|~275 кб/с (V0)]<Slamming Brutal Death>
 magnet:?xt=urn:btih:7894AFF7D4032B8A3A08EDB6BDDF2295546FA6D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +489,8 @@ magnet:?xt=urn:btih:7894AFF7D4032B8A3A08EDB6BDDF2295546FA6D6
 ```bash
 magnet:?xt=urn:btih:2A31BA41CBC9A62F26FA06C518F54E09F16D623D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +516,8 @@ magnet:?xt=urn:btih:2A31BA41CBC9A62F26FA06C518F54E09F16D623D
 magnet:?xt=urn:btih:5E308BB5B9E1E119EB2B872DF9445FD064ACB77C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +541,8 @@ magnet:?xt=urn:btih:5E308BB5B9E1E119EB2B872DF9445FD064ACB77C
 ```bash
 magnet:?xt=urn:btih:1DA6B8FF9EDAD852F29BD1DEC825B758C7C2C1A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +571,8 @@ magnet:?xt=urn:btih:1DA6B8FF9EDAD852F29BD1DEC825B758C7C2C1A6
 ```bash
 magnet:?xt=urn:btih:72ED6EFC203C01ADF00E1A5C77911BCF8D1D6B8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +607,8 @@ Derelict - Perpetuation (2012) [MP3|~295 кб/с]<Technical Progressive Death>
 magnet:?xt=urn:btih:8E182DD163A8DBAA74A81BC0736B98A107DA8F60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +633,8 @@ FAR Manager - мощнейший известный всем консольны�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +658,8 @@ Sumatra PDF - легкий просмотрщик PDF, DjVu, XPS, CBR, CBZ -фа
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +689,8 @@ Jeff Hughell (ex-Brain Drill) - I Came To Hate [EP] (2009) [MP3|320 кб/с]<Tec
 magnet:?xt=urn:btih:498971FAC13080EF6ACEF2D0839969C2A376225C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +714,8 @@ magnet:?xt=urn:btih:498971FAC13080EF6ACEF2D0839969C2A376225C
 ```bash
 magnet:?xt=urn:btih:8D0218E03CEC70AA6E93CF0E98708E2E4435F46E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -699,6 +749,8 @@ My Remorse - My Remorse (2012) [MP3|320 кб/с]<Progressive Electronic / Post-H
 ```bash
 magnet:?xt=urn:btih:B81DC11905D5562730A676F3FE3DBCC8C3776AFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

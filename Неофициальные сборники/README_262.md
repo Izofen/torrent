@@ -1,3 +1,32 @@
+###  Публикация: 1409762   (440591) от 19.09.2020
+
+VA - TOP Non-Stop - House Music Before 2000 (2020) [MP3|192-320 Kbps] <Deep House, Funky House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ron Trent - Altered States (Light City mix, 1992) (3:44)
+02. Ron Trent - Poetry (15:00)
+03. Fortran 5 - Look to the Future (Start the Dance mix, 1992) (7:19)
+04. Brian Transeau - The Moment of Truth (The Blue Note dub, 1993) (5:49)(   Читать дальше...   )Жанр: Deep House, Funky House, Progressive HouseПродолжительность: 10:07:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D82905A36AB3026931148BA3DF53AF408AF8952
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409790   (440592) от 19.09.2020
 
 VA - ЕвроХит Топ 40 Europa Plus 18.09.2020 [MP3|320 Kbps] <Pop, Dance>
@@ -21,6 +50,8 @@ VA - ЕвроХит Топ 40 Europa Plus 18.09.2020 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:B3F2BF43FAD4E98D17BBB05DA5BC800678E17A14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Disco, Club & Dance (2022) [MP3|320 Kbps] <Nu Funky, Indie Dance, Disco, So
 magnet:?xt=urn:btih:B4753B2FC1C791082D8D9F2E744AE1500462D4B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Pina Colada Records Summer Party (2022) [MP3|320 Kbps] <Nu Disco, Soulful, 
 ```bash
 magnet:?xt=urn:btih:62CFA4C74640BE0601FD104F3998C58B4CEABFAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Whore House The House, Funk Disco Summer Jam (2022) [MP3|320 Kbps] <Nu Disc
 magnet:?xt=urn:btih:595CCA6663BFD2E3409CA198A2892876BD2FD21B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - crazyДвиж number dva (2020) [MP3|320 Kbps] <Club, Dance>
 ```bash
 magnet:?xt=urn:btih:CD78644BB1952A535950EF181DDAEA14EA7ADEFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - The Official UK Top 40 Singles Chart 18.09.2020 [MP3|320 Kbps] <Pop, Dance,
 magnet:?xt=urn:btih:7F5FE175A4E7C06A6643DF08D170187D4EE7915E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Mixed Feelings: Love Rnb (2020) [MP3|320 Kbps] <R&B, Soul, Trip, Hop Soul>
 ```bash
 magnet:?xt=urn:btih:DD6DEEE7404F9829707A4760DA25D136DA6C0B58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - German Top 100 Single Charts 18.09.2020 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:D3B1E26B9BA36C325828E64B020691DBFFE11448
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ Cборник собранный из оригинального Flac01. Drownin
 ```bash
 magnet:?xt=urn:btih:7AB93F76D31F2CD03A6A43FA1190D7151462C6C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +318,8 @@ VA - Deep+   Vol. 1 (2012) [MP3|320 кб/с]<Deep House,Tech House,NuDisco,Vocal
 magnet:?xt=urn:btih:D0FE0A858D29BA6EB04E71442FC59987BF889D42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +346,8 @@ Dance:
 ```bash
 magnet:?xt=urn:btih:AC17FE59BB1421B2EE507FC2E369C3B6C7356500
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +376,8 @@ VA - Dance Summer Party Generation (2019) [MP3|320 Kbps] <Dance>
 magnet:?xt=urn:btih:4DC665C86E5A924D11319D24C937942B40637BF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +404,8 @@ VA - Billboard Hot 100 Singles Chart (16.09.2017) [MP3|192-320 Kbps] <Pop, Dance
 ```bash
 magnet:?xt=urn:btih:6D317EF6398FA1F31FA377ACF2D37711D48C80DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +440,8 @@ VA - Спорт FM (26.09.2012) [MP3|320 кб/с]<Pop, Rock, Retro>
 magnet:?xt=urn:btih:2B27885B9ADA6272EC507851F54B72B68BDDEC3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +468,8 @@ VA - Record Russian Mix Top 100 Октябрь (2016) [MP3|319-320 Kbps] <Club H
 ```bash
 magnet:?xt=urn:btih:A21741F562E90C5F4975BEA87C95C3A39678F3C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +504,8 @@ VA - Top Dance Music (2012) [MP3|320 кб/с]<Electro House, Dance, Club>
 magnet:?xt=urn:btih:EF7E895A92C914D1B89C175DC51BF8A4204119D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +532,8 @@ VA - Любимая волна от Европы Плюс. Сборник 4 (201
 ```bash
 magnet:?xt=urn:btih:E4789585EB0790484174CDD243C8B6F7262AE83D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +562,8 @@ VA - Billboard Hot 100 Singles Chart 22.10. (2016) [MP3|128-320 Kbps] <Pop, Danc
 magnet:?xt=urn:btih:CF9CA255BE875A936DE174BEEFFE035E1530C8BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +590,8 @@ VA - Best Chillout Vol.17 (2016) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
 ```bash
 magnet:?xt=urn:btih:E7E19CC45E3EFB7060EF44AA0C3AAA12A509B0FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +620,8 @@ VA - Best Of Lounge Ambient and Chill Out Vol.5 (2016) [MP3|320 Kbps] <Downtempo
 magnet:?xt=urn:btih:24F560D73CB2187DDB13B3A9D97907391667FA01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +648,8 @@ VA - Indie Pop Rock: Select Party Essentials (2018) [MP3|320 Kbps] <Pop, Rock, I
 ```bash
 magnet:?xt=urn:btih:22553EE40520F58E9AD00075AED83C357BA1EA9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +678,8 @@ VA - Record Super Chart 602 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 magnet:?xt=urn:btih:3E2285841C68772561C8C50208A6AB4EAF464D89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +703,8 @@ VA - Lucid Moments Vol 7 (2016) [MP3|320 Kbps] <Chillout, Downtempo, Trip-Hop>
 ```bash
 magnet:?xt=urn:btih:62B2C818B2F552C7A1402F401B844D6E3822D2C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -658,6 +733,8 @@ Joe Dassin - Good Songs (2015) [MP3|320 кб/с]<Pop, Shanson>
 magnet:?xt=urn:btih:72BD5904E9515AD11B3F8BD6D7596A4F932EE243
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -685,32 +762,7 @@ VA - Latin Beats Funky Mix (2018) [MP3|320 Kbps] <Latin, Pop, Dance>
 magnet:?xt=urn:btih:08202298BCF1B846BEE9596D97737D873706D528
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944122   (442762) от 06.10.2015
-
-VA - Carefree Lounge (Laidback Chillout Music) (2015) [MP3|320 кб/с]<Jazz, Lounge>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everything I Want - Jive Ass Sleepers
-02. Light of Day - Jive Ass Sleepers
-03. Smooth Talking - Jive Ass Sleepers
-04. Just Steam (Guitar Lead Version) - Adagio Music(   Читать дальше...   )Жанр: Jazz, LoungeПродолжительность: 00:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D532497DB5148FE2AC888C2D8233F0ED3B4E4C74
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

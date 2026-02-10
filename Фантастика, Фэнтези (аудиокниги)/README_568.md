@@ -1,3 +1,29 @@
+###  Публикация: 1845853   (1050978) от 04.01.2026
+
+Андрей Прокофьев | Хоббиты у наклонной горы (Достоевский) (2025) [MP3, Андрей Прокофьев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уже в какой раз всё перепуталось местами. Знатные эльфы, в числе которых Баймен, Шольце, Макрин, Стармес. В их же компании господин Зелендей. Над ними всеми сам черный маг Толкиен. Но ведь эльфы хорошие, добрые... или не так, или что-то пошло непривычным для меня образом... или всё это господин Экзорцим, или сам Федор Михайлович, загадочное Средиземье, до которого (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: Аудиокнига своими рукамиПродолжительность: 12:11:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51AF25AC14092304C35840A65F6B788A1D4BF744
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1845852   (1050979) от 04.01.2026
 
 Евгений Фоменко | Сумрачный Пояс (Книга 1) (2025) [MP3, Колай Злостов]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:C3FB9FD0AA8E6BC780C3A54461B405B9B1AFF2A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:C3FB9FD0AA8E6BC780C3A54461B405B9B1AFF2A0
 magnet:?xt=urn:btih:F327E169161818AE079BFC04B4AE48C2F7BF41B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:F327E169161818AE079BFC04B4AE48C2F7BF41B3
 ```bash
 magnet:?xt=urn:btih:F0783CBCCBA1C3B8C39BFF918A9FA94C11182261
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:F0783CBCCBA1C3B8C39BFF918A9FA94C11182261
 magnet:?xt=urn:btih:753372206AB2957E1ABE3D2E92687BD10A92D15D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:753372206AB2957E1ABE3D2E92687BD10A92D15D
 ```bash
 magnet:?xt=urn:btih:B49364C8784B1D2E12B34842D5B64EE72AB0AC66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:B49364C8784B1D2E12B34842D5B64EE72AB0AC66
 magnet:?xt=urn:btih:F087368735EECD6CBBB70E761A74B10567E679D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:F087368735EECD6CBBB70E761A74B10567E679D4
 magnet:?xt=urn:btih:EBFE4740056B84690773A05137CEBC30BE9F88AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:EBFE4740056B84690773A05137CEBC30BE9F88AE
 ```bash
 magnet:?xt=urn:btih:002F6A5E23AF8EDB9FB1FEED55EE75886C93B3F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:002F6A5E23AF8EDB9FB1FEED55EE75886C93B3F4
 magnet:?xt=urn:btih:745738C23805A515C82D03982A1D4B987EA5FEC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:745738C23805A515C82D03982A1D4B987EA5FEC9
 ```bash
 magnet:?xt=urn:btih:0EF7A2A0CBD3F4BD7E5A8000044051225AEEA812
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:0EF7A2A0CBD3F4BD7E5A8000044051225AEEA812
 magnet:?xt=urn:btih:4167D17A37AEE513E2D4ACC641F5491E78729A91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:4167D17A37AEE513E2D4ACC641F5491E78729A91
 magnet:?xt=urn:btih:218868ACC90D02DDB0C676F8A392E8C31C6D4946
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:218868ACC90D02DDB0C676F8A392E8C31C6D4946
 ```bash
 magnet:?xt=urn:btih:5D1AE1C553B08C5FB426F861CDBF434E13D8C7DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:5D1AE1C553B08C5FB426F861CDBF434E13D8C7DF
 magnet:?xt=urn:btih:691839A55FD285CF7290D238AE906998D1A8889E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:691839A55FD285CF7290D238AE906998D1A8889E
 magnet:?xt=urn:btih:29C44C9BAB916B1472DF47EDF36CF08FD3963B74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:29C44C9BAB916B1472DF47EDF36CF08FD3963B74
 ```bash
 magnet:?xt=urn:btih:0CE4889A32CF2315054586F835D5682E22656B3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:0CE4889A32CF2315054586F835D5682E22656B3D
 magnet:?xt=urn:btih:14B518F5B989F0528B557D3FF24D5377CB655805
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:14B518F5B989F0528B557D3FF24D5377CB655805
 ```bash
 magnet:?xt=urn:btih:06E72D70798303328547EE0AD9E3D1BDDD8088FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:06E72D70798303328547EE0AD9E3D1BDDD8088FD
 magnet:?xt=urn:btih:357AF0BAA98DEEFBBD00D85A9E57A29945C49B3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:357AF0BAA98DEEFBBD00D85A9E57A29945C49B3F
 magnet:?xt=urn:btih:B92837D509FE5CF691B9C4ED278AAC5730F71FFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:B92837D509FE5CF691B9C4ED278AAC5730F71FFB
 ```bash
 magnet:?xt=urn:btih:3DE984160C99E18045D5638C6CFC833ED6778CBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:3DE984160C99E18045D5638C6CFC833ED6778CBB
 magnet:?xt=urn:btih:65BF1407011DAD3DEF7EC8FB304F8F1FF44AE249
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +627,8 @@ magnet:?xt=urn:btih:65BF1407011DAD3DEF7EC8FB304F8F1FF44AE249
 ```bash
 magnet:?xt=urn:btih:5DE2A8E0FAAF0F95CB427F28070E40718582DA7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:5DE2A8E0FAAF0F95CB427F28070E40718582DA7F
 magnet:?xt=urn:btih:56CEA219732A2B97EA9F6BAA9292DA634744CA4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,29 +684,7 @@ magnet:?xt=urn:btih:56CEA219732A2B97EA9F6BAA9292DA634744CA4B
 magnet:?xt=urn:btih:70F6904F7AD137D276921E6CC3E9DEC40EED4B2F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846466   (1051502) от 08.01.2026
-
-Ария Атлас | Совет тёмных домов (Книга 2). Верховенство мёртвых теней (2025) [MP3, Марина Тропина]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Захватывающее окончание дилогии Арии Атлас! Внутри книги вас ждут: соулмейты, некромантия, путешествие между мирами, темная магия и тайное магическое общество! Мора Эрналин скрывает правду ото всех, даже от своего возлюбленного Ратбоуна. Она продолжает слышать Империальную звезду. Ответив однажды на ее зов, Мора встречает мага, который предлагает вернуть мать девушки (   Читать дальше...   )Жанр: Фэнтези, МистикаИздательство: FreedomПродолжительность: 12:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32ADEB87344479D82492FA39BF8D7D9990948F51
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

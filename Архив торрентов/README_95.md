@@ -19,6 +19,8 @@ AnyDesk 9.0.5 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:C7D673E1A17EEB5048FC996E42240CCFDDFF50D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Topaz Gigapixel AI — это приложение, использующее с�
 ```bash
 magnet:?xt=urn:btih:F2D8975CDB4643BDE96C09DF4EC88A0D347654E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:F2D8975CDB4643BDE96C09DF4EC88A0D347654E2
 magnet:?xt=urn:btih:ACEA1EB9269DD7A0706BBB389432094106407314
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:C19D996632340B7A0371CC5995E73B23D328FCEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ PDF Combine Pro — это настоящая находка для тех, ко
 magnet:?xt=urn:btih:EC1DFFC26B2E13741DB202C1722FE1D3BAFDFA67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Fort Firewall - простой и бесплатный брандмауэр дл
 ```bash
 magnet:?xt=urn:btih:4589F2C1558FF087620E1516EF5A76A4AF521CEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:4589F2C1558FF087620E1516EF5A76A4AF521CEB
 magnet:?xt=urn:btih:9B183B5E065382957EC69C6B1EB375B820E69700
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Adobe Bridge предоставит вам централизованный до
 ```bash
 magnet:?xt=urn:btih:32B3A47D399FC8C95419B0D4F2A17A704F66E5A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ OneCommander V3 — это современный файловый менедж�
 magnet:?xt=urn:btih:F7F93C0F91396DB38F4E6FC2AD1FA9EBD8E2E80C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Atlantis Word Processor 4.4.4.6 Repack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:29022E1E56495B564A05B1ACB064DBC58EC61161
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Psiphon - это новый инструмент обхода интернет-�
 magnet:?xt=urn:btih:FE68CEAEDEBA7579109971B5CB7F537D8BA9026A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Glary Utilities - функциональный набор системных т�
 magnet:?xt=urn:btih:272690C75812321787AB676BA269C323B18F7494
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ VCap Downloader (VCapDL) – это универсальное программ�
 ```bash
 magnet:?xt=urn:btih:5969FA030923AD02877D2F15D9198AC17F2DEF67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ TV+: Бесплатное Онлайн Телевидение
 magnet:?xt=urn:btih:68914ECDDDE4F3FE104D37067CE5E9818C8F71F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ CCleaner - утилита для чистки мусора в операцион
 magnet:?xt=urn:btih:C4F6B7D8D68F5DE8DA4DB7CBFEC9320668E2B2C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Visual Studio Enterprise 2022 - Интегрированное комплекс�
 ```bash
 magnet:?xt=urn:btih:4FB122E5E2A1D90902FFCB266667190ED35E959E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ TikTok - социальное приложение для тех кто пред
 magnet:?xt=urn:btih:13A25CF3AA4433D2AB6901D35059478570742E39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ InShot - Мощный видеоредактор и фоторедактор н�
 ```bash
 magnet:?xt=urn:btih:4D34E08FED45CAC6FD588AA4668C365FDD9EB531
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:9F759D3C0187D1533DE1C447C136A8CFED83BC9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Vivaldi 7.2.3621.67 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BA7C38F43416DD1BE8CE6125AD68881F70B2B2D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ Electrical Cost / Стоимость электроэнергии v6.1.1 Mod by 
 magnet:?xt=urn:btih:21E793D2F0DDDDF4E66AA26DDE47371E3DE48BCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ FastFlix - это простой и дружественный графичес�
 ```bash
 magnet:?xt=urn:btih:C00349E0CC6697341F94F24DED514E39F1BC2D1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ UltraSearch Professional находит файлы и папки на локал
 magnet:?xt=urn:btih:8B9954AF95387F1327FDABD413F4C272A3427AFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ Skype - бесплатная программа для текстового, г�
 ```bash
 magnet:?xt=urn:btih:ACA8E2C493A2034D51FB6A62022F8F33E430CD29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ Alfa eBooks Manager - одна из самых популярных програ
 magnet:?xt=urn:btih:BA05470D5E412E8B6978614A340016FEE264A81D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ XtraTools — это универсальный инструмент для оп
 ```bash
 magnet:?xt=urn:btih:E4FD6BD2A8D3DEDB6E4297F4D3E3D90F2C553390
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

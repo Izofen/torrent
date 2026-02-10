@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:B272E4211F7511A778C56EC61EA50029DE732BF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Liberte - это коллекционная карточная rogue-lite игр
 ```bash
 magnet:?xt=urn:btih:B5A98C2A8829B56EA443265A5C01262648613C51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:B5A98C2A8829B56EA443265A5C01262648613C51
 magnet:?xt=urn:btih:0ACE85B44CA8947288F5E8E45FE9DDC02C929442
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:0ACE85B44CA8947288F5E8E45FE9DDC02C929442
 ```bash
 magnet:?xt=urn:btih:A5A2D3F49474BDCFB33E601860CF5B1DA52AD006
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:A5A2D3F49474BDCFB33E601860CF5B1DA52AD006
 magnet:?xt=urn:btih:4275C3EE7C8364EF1B138D39BCF4E40F9CC5B38D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:4275C3EE7C8364EF1B138D39BCF4E40F9CC5B38D
 ```bash
 magnet:?xt=urn:btih:C5A8F301029C589B9B0D0B1032043D2DBE070386
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:A780013D84CBDADB114E89AC931DDD29B4AD4AA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:A780013D84CBDADB114E89AC931DDD29B4AD4AA3
 ```bash
 magnet:?xt=urn:btih:7BF606573928A48F49ADE97EA04095CC104A6AA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:7BF606573928A48F49ADE97EA04095CC104A6AA3
 magnet:?xt=urn:btih:ECFC72749A5B8898FEE4CC085BB58D11B144FEF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:ECFC72749A5B8898FEE4CC085BB58D11B144FEF9
 ```bash
 magnet:?xt=urn:btih:2E6B9BBA842A5DCA78CECDFBB8D1D4776C0FB6EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:2E6B9BBA842A5DCA78CECDFBB8D1D4776C0FB6EF
 magnet:?xt=urn:btih:82CDFD64A339C74C4E610223E6BD52A74CFF6EF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:82CDFD64A339C74C4E610223E6BD52A74CFF6EF1
 ```bash
 magnet:?xt=urn:btih:AB995325AA369FC54050FA264690086CD27B1819
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:AB995325AA369FC54050FA264690086CD27B1819
 magnet:?xt=urn:btih:7D228CCF6E4F48B40C04C9ED92C5CE3EEB777BD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:7D228CCF6E4F48B40C04C9ED92C5CE3EEB777BD6
 ```bash
 magnet:?xt=urn:btih:31D2334BE99A3F0646C9132C7A3E89634585BCE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ NonVisual Desktop Access (NVDA) — свободная с открытым ис�
 magnet:?xt=urn:btih:3C4558C0A6181D6FE34D327516A5471A31BB43D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:3C4558C0A6181D6FE34D327516A5471A31BB43D3
 ```bash
 magnet:?xt=urn:btih:D38FCDB03CF8E3FD48D0B1235AFFF799FC305F88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:D38FCDB03CF8E3FD48D0B1235AFFF799FC305F88
 magnet:?xt=urn:btih:4EE5B3FC14D44F48513E599EC67F5F194C2A3E23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 magnet:?xt=urn:btih:7A0559CCC33529A50395E7DA934C70381FE13642
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ magnet:?xt=urn:btih:7A0559CCC33529A50395E7DA934C70381FE13642
 magnet:?xt=urn:btih:4D6DF444055363226A5B0E4FB3C754F7E9190305
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ HitPaw Photo Enhancer - это наиболее полный инструмен�
 ```bash
 magnet:?xt=urn:btih:014D3313DF13C2498A781F8D61DD7C6B3D2FD442
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:014D3313DF13C2498A781F8D61DD7C6B3D2FD442
 magnet:?xt=urn:btih:2C9CD029CFDA123EEA1B3AFAAE9086EA777678B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:2C9CD029CFDA123EEA1B3AFAAE9086EA777678B4
 ```bash
 magnet:?xt=urn:btih:3799C18C44EDF7506E56EA33D2CEF7BA8606596B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ Radio Tapok - 7 Singles (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Metal>
 magnet:?xt=urn:btih:6E370BE09A63198FCF3DE33609D9B5177A77BD91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:6E370BE09A63198FCF3DE33609D9B5177A77BD91
 ```bash
 magnet:?xt=urn:btih:13628E659B23CAA7B02D608C39F17AD2A9CCDE42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:13628E659B23CAA7B02D608C39F17AD2A9CCDE42
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Firewall App Blocker - простая в использовании утилит
 ```bash
 magnet:?xt=urn:btih:10B5054DA04B738AFDF42A00D9B91B8FDA819746
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

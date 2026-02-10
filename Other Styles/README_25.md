@@ -22,6 +22,8 @@ Christopher Willis - Смерть Сталина / The Death Of Stalin (2017) [M
 magnet:?xt=urn:btih:F26CC3837CA36368041BF955CEA565D79404567E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Adult Smooth Jazz: Sax for Sex, Erotic Music, Ultra Sensual Mind (2023) [FL
 ```bash
 magnet:?xt=urn:btih:AB862E95747568141240AA09369D386B93F92E08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Cliff Martinez & VA - Drive (Original Motion Picture Soundtrack) (2011) [FLAC 24
 magnet:?xt=urn:btih:64E583AC922663CEB8771458702EB4A95E10CD73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Gregorian - Pure Chants II (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambien
 ```bash
 magnet:?xt=urn:btih:FAC6DF126F401814A8B3E30E84E2A2E462030EA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Oduchu - Road to Home (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
 magnet:?xt=urn:btih:D1A0680C44101DC515E109F8FF0E39B0165D4937
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Stephen Parsons & Francis Haines - Считанные секунды / Split Sec
 ```bash
 magnet:?xt=urn:btih:BB12A986E4123935F1BBC153447518555762324E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Enigma - Love Sensuality Devotion: Greatest Hits & Remixes (2001) 2CD, Remastere
 magnet:?xt=urn:btih:4CAFBCC78E106DE596BC1FDB673259766EC611ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Laibach - Iron Sky: The Coming Race (The Original Soundtrack) (2023) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:18DBD59FADC28A70FF0ADF8C44372DAE9B16004B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ magnet:?xt=urn:btih:18DBD59FADC28A70FF0ADF8C44372DAE9B16004B
 magnet:?xt=urn:btih:2D4E09451D2FD088FE1437231D57DA479C21AD80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ James Last - Ocean Drive (Easy Living) (2001) [FLAC|Lossless|image + .cue] <Inst
 ```bash
 magnet:?xt=urn:btih:3172019C98896181DCB48F576BED5D1A4CC76596
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Ambient for Relaxation & Meditation Vol. 2 (2022) [MP3|320 Kbps] < Meditati
 magnet:?xt=urn:btih:85235082E5D274F0ED26F89021D386E9EC64EACF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Knockin' on Heaven's Door (1997) [FLAC|Lossless|image + .cue] <Soundtrack, 
 ```bash
 magnet:?xt=urn:btih:B43F4DF302B64818B4141733306852335C9B1785
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Atomic Heart, Vol. 3 (Original Game Soundtrack) (2023) [FLAC 24/48|Lossless
 magnet:?xt=urn:btih:116DDB3353491E7E849328DCDBDF8E39DACCAAEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +399,8 @@ Anuvida & Nik Tyndall - 3CD (1995-2005) [FLAC|Lossless|tracks +.cue] <New Age, M
 magnet:?xt=urn:btih:70F21BECA983230409AA300718D9144176120E00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +426,8 @@ The Monks of Sherab Ling Monastery - Sacred Tibetan Chant (2003) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:614CDD87C2DFF684A7E996135C0129F015CC9EE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +456,8 @@ VA - Nature's Magic The Voyage of the Whale (1996) [FLAC|Lossless|image + .cue] 
 magnet:?xt=urn:btih:B06002A6E98EA672B1706D40316D0C20BCF84E48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +481,8 @@ Hans Zimmer, Lebo M, Elton John - Король Лев / The Lion King (2017-2019
 ```bash
 magnet:?xt=urn:btih:2C71CCD83D0F5C23B0777A11F91DC21361D200C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +511,8 @@ Sinoia Caves - Beyond The Black Rainbow (2014) [FLAC|Lossless|tracks + .cue] <So
 magnet:?xt=urn:btih:8993DCB5EAFEBB9285DFBF50C288056FB88EBB6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +539,8 @@ Meldis - Цветок омелы (2010) [FLAC|Lossless|image + .cue] <Folk, Celt
 ```bash
 magnet:?xt=urn:btih:97367E6E64C47119D6D4680DF362A5C95992BE7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +569,8 @@ Vevaki (Vévaki) - Fórnspeki (2022) [FLAC|Lossless|WEB-DL|tracks] <Neo Folk>
 magnet:?xt=urn:btih:5968EC2AA145B589BF407FE0C37E75F50BB45071
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +597,8 @@ magnet:?xt=urn:btih:5968EC2AA145B589BF407FE0C37E75F50BB45071
 ```bash
 magnet:?xt=urn:btih:B94D03F56256AC7BCA8BEE0A06926FE8CD62D18A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +627,8 @@ Armik - Romantic Spanish Guitar, Vol. 1 (2014) [FLAC 24/96|Lossless|WEB-DL] <Ins
 magnet:?xt=urn:btih:4524BBBAF1D010F92F762D8AF533DE88F31D22A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +655,8 @@ Vol.1:
 ```bash
 magnet:?xt=urn:btih:BE0952DE778488A53381527D4573E0FE64CB0183
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +685,8 @@ Armik - Romantic Spanish Guitar, Vol. 2 (2015) [FLAC 24/96|Lossless|WEB-DL] <Ins
 magnet:?xt=urn:btih:9E96796425674DC2F3C4A0F85FEC97C91E9914EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +714,8 @@ VA - The Orient Collective: Mystica (2023) [FLAC|Lossless|WEB-DL|tracks] <World,
 magnet:?xt=urn:btih:75B3D37036B4F383BC22BC0214D61F8C8744C0FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -692,6 +742,8 @@ VA - The Orient Collective: Mystical Sounds of the East (2023) [FLAC|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:01F8506D7B2AD693180ADB2778A61988272525B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -21,6 +21,8 @@ Hollywood Camera Works: Visual Effects For Directors - эти видео-уро�
 magnet:?xt=urn:btih:956C0EAE59D4312805148AC69ACD634D307C1B22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:956C0EAE59D4312805148AC69ACD634D307C1B22
 magnet:?xt=urn:btih:56E9BE87FDA7FCE190FAFCE89E313259D7707F55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ SmartMe Алексей Коваленко | Функциональное про�
 ```bash
 magnet:?xt=urn:btih:FB85F86F962C7FF1A7E613320C1D34B102BAEA27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Skillbox | Excel c 0 до PRO (2015-2016) PCRec
 magnet:?xt=urn:btih:E5BAA50CCC87F88B090D65DCB854281654F6EF5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ ProfIT | Redis - основы и практическое использован
 ```bash
 magnet:?xt=urn:btih:F45ADD364031415F783A5D827E892A66255495FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Git – распределенная система управления вер�
 magnet:?xt=urn:btih:5AD584595369BC409BC642A0DE4D20F66204008F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ GeekUniversity | Четвертая четверть. Разработка Highl
 magnet:?xt=urn:btih:0FC8BB015D11CF7E4E91ADA6AB96579F498DA861
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ GeekUniversity | Третья четверть. Социальная сеть и
 ```bash
 magnet:?xt=urn:btih:F75C2647BED4EE9390FA273AD511FDE83850257C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:F75C2647BED4EE9390FA273AD511FDE83850257C
 magnet:?xt=urn:btih:DE3978E4A6D4359D2E4832D78B6C4C2F4C5A8C2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ OTUS | Подготовительный курс «Разработчик Java»
 magnet:?xt=urn:btih:73C9234C297457BA8656A5E02C950820D2381ACA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ JavaBegin | Hibernate (2017) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:E500A2554638D940EFB8E7FD21B37A6F6471E1B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Lynda.com | Working with Data on the Web (2013) PCRec [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:A0153CC605CDF892A6A2BEBCF9C7A5BE144AE642
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ Python - это отличный динамический язык для веб
 magnet:?xt=urn:btih:EDCD93E04ED61CE18D9C7B2AC57B6CA3C437A8E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ Geekbrains | PHP. Быстрый старт Личный блог на PHP с н
 ```bash
 magnet:?xt=urn:btih:1D88C8145BD7C994680FE1EAE0D641D482092B37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ Lynda.com | WordPress (2010-2014) [PCRec] [EN]
 magnet:?xt=urn:btih:1818DD97B37D26EC574073EE72B3FDAD767499FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ JavaBegin | Spring (2014-2017) PCRec [H.264]
 magnet:?xt=urn:btih:E194F3489B396141F9EA142E794E5DD16A54A8FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:E194F3489B396141F9EA142E794E5DD16A54A8FD
 ```bash
 magnet:?xt=urn:btih:AE674D93598F79258D63D49BF565D99B2F45AA82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ Udemy, GameDev.tv Team, Stephen Ulibarri | Unreal Engine 5 Blueprints - First Pe
 magnet:?xt=urn:btih:33C444BBFDCF29FB7741EEAB6D95D9244A6B391A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ Geekbrains | PHP. Уровень 2 Профессиональная веб-ра�
 ```bash
 magnet:?xt=urn:btih:C172C87406830F26A6E8C0FCE1452F95515B6A66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ magnet:?xt=urn:btih:C172C87406830F26A6E8C0FCE1452F95515B6A66
 magnet:?xt=urn:btih:4391EB3BE1AC17CCC4DB525662BC497B77E244FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +556,8 @@ nastroika-pc.ru | Конфигурации компьютеров [2012] SATRip
 ```bash
 magnet:?xt=urn:btih:540DA8C421576E6CD66565ADB3D9E23B3C82CEA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +583,8 @@ magnet:?xt=urn:btih:540DA8C421576E6CD66565ADB3D9E23B3C82CEA7
 ```bash
 magnet:?xt=urn:btih:D7ED440226A8BBD6A522C5CCB2C369AAC6FC57F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +613,8 @@ magnet:?xt=urn:btih:D7ED440226A8BBD6A522C5CCB2C369AAC6FC57F9
 magnet:?xt=urn:btih:541266EB59B857FB1A6942B65273D807D0BF13D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +641,8 @@ magnet:?xt=urn:btih:541266EB59B857FB1A6942B65273D807D0BF13D3
 ```bash
 magnet:?xt=urn:btih:4FEF1D7592B20AE662074935F6CAF59CDE7E7B66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +671,8 @@ magnet:?xt=urn:btih:4FEF1D7592B20AE662074935F6CAF59CDE7E7B66
 magnet:?xt=urn:btih:D68A5C3E9E64D2F7B549C297BA46FF3054E43469
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +696,8 @@ Profileschool | Маски. Практика применения (2014) [PCRec]
 ```bash
 magnet:?xt=urn:btih:9203838C102D47052015B61C15D2C47AC6649B87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

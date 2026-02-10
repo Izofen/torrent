@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:42F1AD7919CB39212796537D8D2DCEE286861433
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:42F1AD7919CB39212796537D8D2DCEE286861433
 ```bash
 magnet:?xt=urn:btih:4703470864003C694A8139CBB48C8BEE02C166EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ VA - German Top 40 DBC Deutsche Black Charts 07.12.2018 (2018) [MP3|320 Kbps] <H
 magnet:?xt=urn:btih:1FAE2B332FC7F34614010B9D5BAF9BA02845029E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ VA - German Top 100 Single Charts 07.12.2018 (2018) [MP3|320 Kbps] <Pop, Rap, Hi
 magnet:?xt=urn:btih:7964A4D6DC10E3C7CD5699EC75F41F004679A3CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Macgo Mac Blu-ray Player - это один из лучших (если не ск
 ```bash
 magnet:?xt=urn:btih:0D4D0B220E827CD3CAE9831129BBFAD8C2EFAD1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:0D4D0B220E827CD3CAE9831129BBFAD8C2EFAD1F
 ```bash
 magnet:?xt=urn:btih:7BA5A50E042E4D59CB5F7847FE2B42E8840D35FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ Josh Roseman Unit - Cherry (2000) Enja Records [FLAC|Lossless|tracks + .cue] <Bi
 magnet:?xt=urn:btih:AAAAA593D8F4A1ADFEEB62F5648DB803321843E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ PaintCode является отличным приложением для соз
 magnet:?xt=urn:btih:8511308034EA15A466D276FF3CBDDDFF2BA3396C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:8511308034EA15A466D276FF3CBDDDFF2BA3396C
 ```bash
 magnet:?xt=urn:btih:90E3B92E8C00BE4DFC6BE88FDA31255DDAF1134F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ Floating Machine - Nowhere (2017) Arctic Dub Records [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:7E89A52D417C246F31B50FE3C5D24429508F8FDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ Jimmy Smith - Dot Com Blues (2000) Verve [FLAC|Lossless|image + .cue] <Organ Jaz
 ```bash
 magnet:?xt=urn:btih:8CF388C5DE7CB2FCA11844DCE1B29434EBAE2C00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +325,8 @@ Phaeleh - Clarity (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtempo>
 magnet:?xt=urn:btih:2E734C39C85C05FCD0C20722BAB16088328838B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:6AE118D6D58999FB712917F8B4157103DB5C5B6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +383,8 @@ Ahmad Jamal - At The Pershing: But Not for Me (1958) 1997, MCA Records [FLAC|Los
 magnet:?xt=urn:btih:236B8998A0BAEDDB6F5012C8DF255B3AC9ABD771
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +412,8 @@ Clifton Anderson - Decade (2008) Doxy Records [FLAC|Lossless|tracks + .cue] <Pos
 magnet:?xt=urn:btih:3D28B3796EF159CF6E750E8BEEDEFFDB8BCEEA0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +438,8 @@ magnet:?xt=urn:btih:3D28B3796EF159CF6E750E8BEEDEFFDB8BCEEA0E
 magnet:?xt=urn:btih:1B8A903B67F836E1342F010C0BE6B4507FCBF8E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +463,8 @@ magnet:?xt=urn:btih:1B8A903B67F836E1342F010C0BE6B4507FCBF8E6
 ```bash
 magnet:?xt=urn:btih:81B5CAE511058B8B34B9865BB559B1737C4EB252
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +493,8 @@ Brutto - Live Minsk - Arena 08.03.2017 (2017) [MP3|320 Kbps] <Punk Rock>
 magnet:?xt=urn:btih:5A4988C218DFF50B1FAF93E2E4EB7B6A87320224
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +519,8 @@ iDatabase - это самый простой способ организоват
 magnet:?xt=urn:btih:B3D80B1E044262AB99363060CD2E5E0C3FE8E3F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ magnet:?xt=urn:btih:B3D80B1E044262AB99363060CD2E5E0C3FE8E3F8
 ```bash
 magnet:?xt=urn:btih:09F98AD67381AE14C8A23DBF0819A3B253D528BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +574,8 @@ magnet:?xt=urn:btih:09F98AD67381AE14C8A23DBF0819A3B253D528BF
 magnet:?xt=urn:btih:337CB8729EC4DD871C7051DC76BC30592978139D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +599,8 @@ magnet:?xt=urn:btih:337CB8729EC4DD871C7051DC76BC30592978139D
 ```bash
 magnet:?xt=urn:btih:165485AF870336FD6EEB3FA6FD9F08413CCD1766
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +627,8 @@ Makesoft DuplicateFinder - приложение, которое будет ос�
 magnet:?xt=urn:btih:DE1C6877EFF8145A9DCC310F8C512508DC2B89D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +652,8 @@ magnet:?xt=urn:btih:DE1C6877EFF8145A9DCC310F8C512508DC2B89D7
 ```bash
 magnet:?xt=urn:btih:E4D8C1D8215FBB53A6E0E0D43949CAD73AE44371
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +682,8 @@ Henry Jackman and Matthew Margeson - Kingsman: The Golden Circle Soundtrack (201
 magnet:?xt=urn:btih:9E68AC170F30E767E728EB4B7D488093821D19B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +707,8 @@ magnet:?xt=urn:btih:9E68AC170F30E767E728EB4B7D488093821D19B2
 ```bash
 magnet:?xt=urn:btih:B833E62FDA55A6C20FAE99E687201EC2B0C92592
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

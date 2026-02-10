@@ -19,6 +19,8 @@ Grit and Valor - 1949 (2025) [Ru/Multi] (1.4.0/dlc) Repack Let'sРlay [Resistanc
 magnet:?xt=urn:btih:CC5C05BC1FCD18D7CA8FC6942EEF363D70CA0697
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ A Fistful Of Yankees (2025) [Ru/Multi] (1.42) Repack AIexandro
 ```bash
 magnet:?xt=urn:btih:8F0CD666EC8FE87882B129FCEC382795A30AC03E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Shields of Loyalty - это пошаговая стратегия в мире т
 magnet:?xt=urn:btih:DA12F107E42090495C1191C17B2CCB59B4430D07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Age of Wonders 4 - пошаговая стратегия с тактически
 ```bash
 magnet:?xt=urn:btih:159ECD04D01A025F12293C7B028B2F59A79A8C12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Intravenous 2 погружает вас в мир жестоких интриг 
 magnet:?xt=urn:btih:8FBE319A63AEA37133B7D26858419CA3B6D8ADC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Strategic Command WWII: War in the Pacific с головой окунает ва
 ```bash
 magnet:?xt=urn:btih:3105EC381E969296F50B7EFED21FF51B17FA16C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (1.43.11/dlc) Repack Wanterlude
 magnet:?xt=urn:btih:EEB98B2FD50DF2A703EA69F9BBFEFE0E2519C555
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Guards II – это тактическая пошаговая стратеги�
 ```bash
 magnet:?xt=urn:btih:453446BAA4153712D7EE4E11CD9BDA48D50B62C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Field of Glory: Kingdoms - это необычная стратегия, поз�
 magnet:?xt=urn:btih:CF3A74F5C6B1D4596599403163E417DD866A8EB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Age of Wonders 4 - пошаговая стратегия с тактически
 ```bash
 magnet:?xt=urn:btih:6B4C712800FBAC03F07222F5688DF419E5511BB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Shields of Loyalty - это пошаговая стратегия в мире т
 magnet:?xt=urn:btih:D27D5E6B96B9548F349EEEF60BB25B68B9CDAEE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Shields of Loyalty - это пошаговая стратегия в мире т
 ```bash
 magnet:?xt=urn:btih:D0D1EF058C13597D1D7CA6320DC2A4E1C8DFAEBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Age of Wonders 4 - пошаговая стратегия с тактически
 magnet:?xt=urn:btih:A7F007022DC9C2E4A91EC8FF18ED7D13F115BDD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Shields of Loyalty - это пошаговая стратегия в мире т
 ```bash
 magnet:?xt=urn:btih:9364FF40F7D542FE78762011BC533B91E813E06F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Shields of Loyalty - это пошаговая стратегия в мире т
 magnet:?xt=urn:btih:B8F577578499571DDBEEF6C8A6F920FCB84DDC82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Crossfire: Legion - тактическая стратегия в реально�
 ```bash
 magnet:?xt=urn:btih:3EC346A0418EE5EFFE0496024C6F848453BB8005
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ No Plan B – это тактическая стратегия и по совм�
 magnet:?xt=urn:btih:EE4DA457040A72CC6BB1EF684BFC330AB897A754
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Day of the Shell – это динамичная тактическая игра
 ```bash
 magnet:?xt=urn:btih:7AC61B0C5F16975728E66B4397EE568FE5C99D36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Knights in Tight Spaces (2025) [Ru/Multi] (1.2.19328) Repack Let'sРlay [Collect
 magnet:?xt=urn:btih:8940A6E9DBE2B495ADCD996A99EC8A2622C2B698
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.05.297/dlc) Repack Let'sРla
 ```bash
 magnet:?xt=urn:btih:87F089919308B0F103E4A1499881222FA11CFA24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.16.2/dlc) Repack 
 magnet:?xt=urn:btih:08F424FCA439450ED8201A37DEB9060A9938A731
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ SGS Spain at War (2025) [Ru/Multi] (25.06.11) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3298262E4066316DEA29C7CF83666444ED80979C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Sears: The Sky Frontier - это красивая и эпичная страте
 magnet:?xt=urn:btih:6BAE6198873A9489EF9F42C03896CB05607D860E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Solium Infernum - увлекательная пошаговая стратеги
 ```bash
 magnet:?xt=urn:btih:410327EEA79DEAD0833808776F7B1E00778AC517
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Kingdom Ascension - это средневековая военная страт�
 magnet:?xt=urn:btih:AF95FFD0AE10EA4AF09A457575BFFFEC1A0C4944
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Ratten Reich (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:6D0D4B30E27D2250D62957F401326230DFE330AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,38 @@
+###  Публикация: 542848   (497484) от 04.09.2012
+
+VA - Зарубежный Парад Музон В Кайф (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_497484.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fonzerelli - Moonlight party
+002. Calvin Harris feat. Ne-Yo - Let's Go (Radio Edit)
+003. Michael Calfan - Resurrection
+004. Sway feat. Kelsey McHugh - Level up (Cahill radio edit)
+005. Shakira feat. El Cata - Addicted to you
+006. Justin Timberlake - Cry Me a River
+007. Kelly Clarkson - Stronger
+008. T-Moor Rodriguez - Welcome to the night
+009. Britney Spears - Look Who's Talking Now
+010. Chicks N Fire - Price tag (Bbop & Roksteadi mix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:282A25E9C1BFB59371E0FC28B4B3E11DA9719BE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318042   (497803) от 04.08.2019
 
 VA - German Top 100 Single Charts 09.08.2019 [MP3|320 Kbps] <Pop>
@@ -20,6 +55,8 @@ VA - German Top 100 Single Charts 09.08.2019 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:68517B8307C2A83C819B3EB00AAEC5034B68AF7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -54,6 +91,8 @@ VA - German TOP100 Single Charts (03-09-2012) [MP3|~186~299 кб/с]<Pop>
 magnet:?xt=urn:btih:47C5F6092A58D2F0D58A2FF77A5796EE4812C2B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,6 +120,8 @@ Ten Sharp - Compilation (2022) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:189AAFD3EE7AEFF27661A12C18636BA922D35BA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -107,6 +148,8 @@ VA - Empire Records - Church 3 (2019) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:3BB812BF21588831F62E1AA29178AAA641E41096
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +184,8 @@ VA - Золотая 200-ка Дорожное Радио (2012) [MP3|128 кб/с
 magnet:?xt=urn:btih:2B8943F56CA6DFBBD3DF614D1D456FE7BCD2900E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +218,8 @@ VA - Подарок любимой женщине / Подарунок коха�
 ```bash
 magnet:?xt=urn:btih:5D044D677F54F9B262E263925CAA4826AB93BF5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -207,6 +254,8 @@ VA - US Top 40 Single Charts (01-09-2012) [MP3|96-320 кб/с]<Pop>
 magnet:?xt=urn:btih:9367E8344CBD2FE934DC5A53164AC7E9A241193E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +289,8 @@ VA - 100 Canzonissime Italiane (2000) BoxSet 7CD [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:85DC5468A706E6FB272107F7BBC84CE88A96F547
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +318,8 @@ Jennifer Paige - Compilation (2022) [MP3|320 Kbps] <Pop, R&B>
 magnet:?xt=urn:btih:FCB386579D5AD0CFB0D3B52FB46F9DB90AC8EB9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +346,8 @@ Lily Allen - Compilation (2022) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:9EDEE7FB784DCB05496181FAA49E951C50932752
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +382,8 @@ VA - Дискотека Бездна Русская Vol. 7 (2012) [MP3|128 kbps]
 magnet:?xt=urn:btih:85981C9A7F4AB2BABC7B5FBFA682DBFB8EB9B63B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +416,8 @@ VA - Радио Новинки Проверенные Качеством 50/50 (
 ```bash
 magnet:?xt=urn:btih:BAAA9009799EA1A4B5A8E421BF281558CACCFCE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +452,8 @@ VA - Ночной эфир - Выпуск 50/50 (2012) [MP3|320 kbps]<Pop, Dance
 magnet:?xt=urn:btih:FEC4A34633C4E8FDFE090DC382449230301A4E7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +487,8 @@ VA - 150 хитов в машине (2012) [MP3|128-192 кб/с]<Pop>
 magnet:?xt=urn:btih:EC0B23A801DEC886444D07339EF0840F3E3478D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +516,8 @@ VA - Летние super новинки. Часть 7. 50/50 (2015) [MP3|256 кб
 magnet:?xt=urn:btih:35FC2D17A0872BDB04CA0D774CB18B20C3F68F13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +544,8 @@ VA - Попсовая соточка MTV. Сборник 3 (2015) [MP3|256 кб/
 ```bash
 magnet:?xt=urn:btih:1F05723B95EFE72A48815F5694ED9117B3051946
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +580,8 @@ VA - Самые Лучшие Хиты радио DFM 50+50 (2012) [MP3|256 кб/
 magnet:?xt=urn:btih:73275144C7214E42B0A323357D9FF3E450EA0EB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +614,8 @@ VA - Молодежный хит осенний. Top 100 (2012) [MP3|256 кб/с
 ```bash
 magnet:?xt=urn:btih:B091A15C2643239F2403D0297518BFFFB23BDCCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +650,8 @@ VA - Ночная хитовая дискотека (2012) [MP3|256 кб/с]<Pop
 magnet:?xt=urn:btih:9FF4F66AA7359D1204C60AAD2B7E60636A6B1979
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +678,8 @@ VA - Сто Хитов Из Прошлого: Дискотека 80х (2015) [MP
 ```bash
 magnet:?xt=urn:btih:56302A9C780F906C8BD5288BB2107CCF3831839E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +708,8 @@ VA - German Top 100 Single Charts 02.08.2019 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:6914AC6700224E3E461E81E987C792977853D560
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +737,8 @@ VA - Billboard Hot 100 Singles Chart (12-09-2015) [MP3|320 кб/с]<Pop, Euro, I
 ```bash
 magnet:?xt=urn:btih:AD75DB4BC4BE0FBB7EA59F5D564EDAC0D4F5C789
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -694,6 +773,8 @@ CD 1(One) Продолжительность 01:05:45
 magnet:?xt=urn:btih:F1689E68C71DC983D7A04D06360C4DAD93F93BA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -720,6 +801,8 @@ Kim Wilde - Compilation (2022) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:211D2EC75EA19C438F050DF48C39531EA267B6C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -748,32 +831,7 @@ VA - Shazam Хит-парад Russia Top 100 Июль (2019) [MP3|320 Kbps] <Pop
 magnet:?xt=urn:btih:1F3CDA1E97C57B780D3BA44DD7052498C48C7CEF
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933156   (507166) от 31.08.2015
-
-VA - New Italo Disco (2015) [MP3|320 кб/с]<Synth-pop, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Brando - Love Is A Fantasy (Radio Remix)
-02. Boris Zhivago - Love In Russia (Radio Remix)
-03. Birizdo I Am - Maybe Baby (Radio Edit)
-04. Casanova - Angel Eyes (Short Version)(   Читать дальше...   )Жанр: Synth-pop, DiscoПродолжительность: 04:36:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C72B41D258492CDE415580840B399EE16A194A33
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

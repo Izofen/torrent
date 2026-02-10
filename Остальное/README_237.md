@@ -1,3 +1,55 @@
+###  Публикация: 1397781   (737461) от 22.07.2020
+
+Отчаянная / Desperados (2020) WEB-DLRip [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неудачница Уэсли наконец-то встретила идеального парня. Но после приятной ночи Джаред внезапно пропадает и уже пять дней не отвечает ни на звонки, ни на сообщения. Хорошенько приняв на грудь в компании подруг, девушка отправляет парню ругательный e-mail, а потом выясняет, он попал в аварию в Мексике, только что вышел из комы и лежит в больнице. Прихватив тех самых (   Читать дальше...   )Производство: Аргентина, США / Good Universe, Lost City, MXN EntertainmentЖанр: Мелодрама, комедияРежиссер: Лорен ПальмиджаноАктеры: Назим Педрад, Анна Кэмп, Сара Бёрнс, Ламорн Моррис, Робби Амелл, Хизер Грэм, Джессика Чаффин, Иззи Диаз, Родриго Франко, Скотт РоджерсПеревод: Многоголосый закадровый, любительский (MUZOBOZ)Субтитры: ОтсутствуютПродолжительность: 01:46:40Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A7EB35D1A876E5D2ADEF519AA725AAECB10FCFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397824   (737465) от 22.07.2020
+
+Под солнцем Риччоне / Sotto il sole di Riccione (2020) WEB-DLRip [H.264/1080p-LQ] [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сколько вещей может произойти за одно итальянское лето? На самом деле очень много. Мара, Томми, Гуэнда, Марко, Эмма, Сиро, Фурио, Камилла, Беа и Гуальтьеро полностью изменятся к концу лета. Возможно не все из них... но просто подождите и убедитесь сами.Производство: Италия / Lucky Red, Mediaset, New InternationalЖанр: Комедия, мелодрамаРежиссер: YounutsАктеры: Изабелла Феррари, Лоренцо Цурцоло, Людовика Мартино, Cristiano Caccamo, Сол Нанни, Fotinì Peluso, Андреа Ронкато, Люка Уорд, Claudia Tranchese, Rosanna SapiaПеревод: Многоголосый закадровый, любительский (MUZOBOZ)Субтитры: ОтсутствуютПродолжительность: 01:41:20Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8604464BC277D41A1147D30B75A1D81358A3FF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 786223   (737860) от 14.05.2014
 
 Помпеи / Pompeii (2014) BDRip [1080p] 3D [Вертикальная анаморфная стереопара] [Hand Made 16:9]
@@ -18,6 +70,8 @@
 ```bash
 magnet:?xt=urn:btih:DB6DEFCE6102F7CB168E39D77AB1171668F06826
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +96,8 @@ magnet:?xt=urn:btih:DB6DEFCE6102F7CB168E39D77AB1171668F06826
 ```bash
 magnet:?xt=urn:btih:43BE18389F396B8C34C60811C6F623559E43F48F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +124,8 @@ magnet:?xt=urn:btih:43BE18389F396B8C34C60811C6F623559E43F48F
 magnet:?xt=urn:btih:59977BE1B31048D343647791AE512BF9CAEE5F46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +149,8 @@ magnet:?xt=urn:btih:59977BE1B31048D343647791AE512BF9CAEE5F46
 ```bash
 magnet:?xt=urn:btih:A42C259EFEE04EFC1F347B04E1D04C9B1DC29130
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +176,8 @@ magnet:?xt=urn:btih:A42C259EFEE04EFC1F347B04E1D04C9B1DC29130
 magnet:?xt=urn:btih:53C9039357A971DAF66A19A2A5FE067F6EDD55F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +201,8 @@ magnet:?xt=urn:btih:53C9039357A971DAF66A19A2A5FE067F6EDD55F1
 ```bash
 magnet:?xt=urn:btih:15A6C9FAECACE6FE24697BC4F3FBA130D8B76931
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +228,8 @@ magnet:?xt=urn:btih:15A6C9FAECACE6FE24697BC4F3FBA130D8B76931
 magnet:?xt=urn:btih:B7A9EAF75FC1F1E1558613315F29979AE2E848DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +253,8 @@ magnet:?xt=urn:btih:B7A9EAF75FC1F1E1558613315F29979AE2E848DD
 ```bash
 magnet:?xt=urn:btih:B0231BA350B297677A2048D46C5F456B7A309837
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +283,8 @@ magnet:?xt=urn:btih:B0231BA350B297677A2048D46C5F456B7A309837
 magnet:?xt=urn:btih:6D1C414CED5F5073FBBB562B24E876B33C45DFF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +308,8 @@ magnet:?xt=urn:btih:6D1C414CED5F5073FBBB562B24E876B33C45DFF0
 ```bash
 magnet:?xt=urn:btih:F1C78BE96324D6CECA17C491D0BAB363FB9AC281
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +335,8 @@ magnet:?xt=urn:btih:F1C78BE96324D6CECA17C491D0BAB363FB9AC281
 magnet:?xt=urn:btih:43007CDEC593F8ECE4E46408A4E7D25F22DEE327
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +361,8 @@ magnet:?xt=urn:btih:43007CDEC593F8ECE4E46408A4E7D25F22DEE327
 magnet:?xt=urn:btih:2FD5E9A2127A72A79FC8A57E39D1AEAB2E60EBE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +386,8 @@ magnet:?xt=urn:btih:2FD5E9A2127A72A79FC8A57E39D1AEAB2E60EBE7
 ```bash
 magnet:?xt=urn:btih:5156686C82AFFDBFD5D4F4799FF97578C805F684
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +416,8 @@ Europe - Almost Unplugged (live) от ALEXnROCK (2008) WEBRip [H.264/1080p-LQ] [
 magnet:?xt=urn:btih:BD54558390BA74F9E831D93BFE32487FCD31BDA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +441,8 @@ magnet:?xt=urn:btih:BD54558390BA74F9E831D93BFE32487FCD31BDA9
 ```bash
 magnet:?xt=urn:btih:F38247108329EFEA3940CDE564414F5619AF5F3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +468,8 @@ magnet:?xt=urn:btih:F38247108329EFEA3940CDE564414F5619AF5F3B
 magnet:?xt=urn:btih:B2019F1F98B55882FE6AD5ABA167C6FCB9C48543
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +493,8 @@ magnet:?xt=urn:btih:B2019F1F98B55882FE6AD5ABA167C6FCB9C48543
 ```bash
 magnet:?xt=urn:btih:CE96891DDE49264D9ED2F9B5E95F69401F32FDBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +523,8 @@ magnet:?xt=urn:btih:CE96891DDE49264D9ED2F9B5E95F69401F32FDBA
 magnet:?xt=urn:btih:8202A2F4FAB1F94445AFE1D0812687C4AEB03BCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +550,8 @@ magnet:?xt=urn:btih:8202A2F4FAB1F94445AFE1D0812687C4AEB03BCC
 ```bash
 magnet:?xt=urn:btih:C1DC5281E8B0E3704FC9F07F7F300E503927E9D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +579,8 @@ magnet:?xt=urn:btih:C1DC5281E8B0E3704FC9F07F7F300E503927E9D5
 magnet:?xt=urn:btih:706C741534B9565E6B31D3F0A5EE5D046E3FCC6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +604,8 @@ magnet:?xt=urn:btih:706C741534B9565E6B31D3F0A5EE5D046E3FCC6A
 ```bash
 magnet:?xt=urn:btih:044E1012C309380929F78029CD3BF5911C7FB91D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +633,8 @@ magnet:?xt=urn:btih:044E1012C309380929F78029CD3BF5911C7FB91D
 magnet:?xt=urn:btih:71EB53EE2CC86FD4D00AD4B0DBD8C9FB7DD91750
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +658,8 @@ magnet:?xt=urn:btih:71EB53EE2CC86FD4D00AD4B0DBD8C9FB7DD91750
 ```bash
 magnet:?xt=urn:btih:9EAE88C570718A124C6E184CB234BC7336CE62D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,58 +685,7 @@ magnet:?xt=urn:btih:9EAE88C570718A124C6E184CB234BC7336CE62D9
 magnet:?xt=urn:btih:80E7059CCA03FF74053A592C389A919B9C2C059C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282901   (741056) от 15.02.2019
-
-Winger - Live (2007) от ALEXnROCK WEBRip
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный концерт, исполнено здоровски! Любителям крутого хард рока рекомендую. Рип делал с фирменного двд, ничего не вырезал. Звук поставил с CD. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK01 Blind Revolution Mad
-02 Loosen Up
-03 Easy Come Easy Go
-04 Your Great Escape(   Читать дальше...   )Жанр: RockПродолжительность: 01:36:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DC4FC0416A27118FFBED6306736BC470DC91C02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397196   (741101) от 19.07.2020
-
-Страх и ненависть в Лас-Вегасе / Fear and Loathing in Las Vegas (1998) AC3 5.1 AVO Д. Пучков (Гоблин) [hand made]
-
->>Остальное
->>Звуковые дорожки и субтитры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Внимание! в этой раздаче только аудиодорожка к фильму.
-
-Два приятеля едут в Лас-Вегас. Спортивный обозреватель Рауль Дьюк едет, чтобы осветить знаменитую «Минт 400». Его спутника зовут Доктор Гонзо, и он адвокат. Обзор «Минт 400» из-за непогоды и отсутствия интереса у рецензента оборачивается полным провалом, и Дьюк и Гонзо отправляются в казино.Производство: США / Fear and Loathing LLC, Rhino Films, Shark ProductionsЖанр: Драма, КомедияРежиссер: Терри ГиллиамАктеры: Джонни Депп, Бенисио Дель Торо, Тоби Магуайр, Кристина Риччи, Майкл Джитер, Гэри Бьюзи, Эллен Баркин, Марк Хэрмон, Крэйг Бирко, Кэтрин ХелмондПеревод: Авторский, Д. Пучков (Гоблин) (ненормативная лексика)Язык озвучки: РусскийПродолжительность: 01:58:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8562C046B57C8D158AC62F73B0A61D09F394FC91
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

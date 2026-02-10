@@ -19,6 +19,8 @@ Motesolo (2021) [Ru/Multi] (1.0) License GOG
 magnet:?xt=urn:btih:0F66AFBC23A7D28F75C15FA75C11A93E16321140
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Spider Fox - это однопользовательская игра о без�
 ```bash
 magnet:?xt=urn:btih:959FF9CE25315A3F99744A9EA6D37E536C332C64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Open Roads (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:D3AA18199231ABB8D06A06E67C3F01FB252C6BF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ DYSCHRONIA: Chronos Alternate (2024) [Multi] (1.0) Scene Tenoke [Dual Edition] [
 ```bash
 magnet:?xt=urn:btih:59EA8F0E91EC3604BBB13902910694E8395C1E14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Syberia / Сибирь (2002) [Ru/Multi] (1.0.0.11) Repack Cheshire28 [Multilang
 magnet:?xt=urn:btih:D1452549CC32AB60034A8881C42A3CC1C9A7F48A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Holy Maid Academy (2024) [Multi] (1.0.0a/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:CFD64D7FBC96DD5E833CF9107C303F626C07022E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Bloody Ink - это психологическая хоррор-игра от п
 magnet:?xt=urn:btih:38820575289B1959F172669D06A18D4A1D50F4B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Gore Doctor - мрачный хоррор на выживание с давящ�
 ```bash
 magnet:?xt=urn:btih:45790AA9220DA0F2D3A003F00E987A8D2AA42435
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Between Horizons - это крутой 2.5D приключенческий де�
 magnet:?xt=urn:btih:B3E91B82F0376EE9AB547D469560B5290A39AD62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Distant Bloom – постарайтесь восстановить некогд
 ```bash
 magnet:?xt=urn:btih:B66A6433020D37EA88A5AD6876B07911C18E2727
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ A Divine Guide To Puzzle Solving - это повествовательное п�
 magnet:?xt=urn:btih:0E9CA05EFD72226B54680BF25939400EA7AA10CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ There's Something In The Ice - хоррор с гнетущей атмосфер
 ```bash
 magnet:?xt=urn:btih:A517E6B73CA494CEC369B7EACC854190A9F7F517
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Clash: Artifacts of Chaos – это уникальная по стилю игр
 magnet:?xt=urn:btih:68F759D206B3A4D2D74C342E8C15D5B45661BC91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Open Roads (2024) [Ru/Multi] (1.0) Scene SKIDROW
 ```bash
 magnet:?xt=urn:btih:3DE910330D67C883EDF9A3C846E815C8989317A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Goodbye Volcano High (2023) [Ru/Multi] (1.06) Scene Tenoke
 magnet:?xt=urn:btih:97D45D3F5EBD933CDCE581742D5E8CD85E17574F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Kona II: Brume (2023) [Ru/Multi] (20240222) Scene Rune
 ```bash
 magnet:?xt=urn:btih:477E4BF248C084D4B910AF0E265B6C486A8E7C55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Alone in the Dark (2024) [Ru/Multi] (1.02/dlc) Repack DjDI [Digital Deluxe Editi
 magnet:?xt=urn:btih:ED86AC60DE2A1170DFCD06ECEC5B50BDEE9D6C6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Distant Bloom – постарайтесь восстановить некогд
 ```bash
 magnet:?xt=urn:btih:218C89C574E24F2EF8CA2702ACE7D569A2BF975A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Bloody Ink - это психологическая хоррор-игра от п
 magnet:?xt=urn:btih:DAE2F13B09456064B93ABFA673E7BC4DF09DC7E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Between Horizons - это крутой 2.5D приключенческий де�
 ```bash
 magnet:?xt=urn:btih:60770B373DD42F21A395FB8FFAADB42B349FC0B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Cats Hidden in Georgia - не только поиск кошачьих друз�
 magnet:?xt=urn:btih:9A590550137681AA479149D8756A97E404725814
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Vampires' Melody 2 - история о двух вампирах, Рейлане
 ```bash
 magnet:?xt=urn:btih:18626E8AB5591D5C558AE0F44A9EB30F4419ED9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Jusant - увлекательная видеоигра, которая приг�
 magnet:?xt=urn:btih:F01F44C018E4E9548F7BE60CA56CBE4CE7E08594
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ As Dusk Falls - это оригинальная интерактивная др�
 ```bash
 magnet:?xt=urn:btih:52FD6600DD7EC189F444207144A9349A2D4A1FAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ REVEIL (2024) [Ru/Multi] (1.0.3f4/dlc) License GOG [Funhouse Edition]
 magnet:?xt=urn:btih:03E71EE8EF80318784B94EAAA980523C30F0EC77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Bloody Ink - это психологическая хоррор-игра от п
 ```bash
 magnet:?xt=urn:btih:B9EB367C1D1EC68343A0B69D2D384FAE43DB0A0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

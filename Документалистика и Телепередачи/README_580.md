@@ -1,3 +1,29 @@
+###  Публикация: 1203842   (787558) от 03.02.2018
+
+Экстрасенсы ведут расследование (Битва сильнейших) (2018.02.03) SATRip (сезон 9, выпуск 05)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный триллер-детектив с участием самых загадочных экстрасенсов России! Это не шоу, а демонстрация реальной мощи ясновидения. Участники и победители нескольких сезонов «Битвы экстрасенсов» приводят документальные доказательства того, как паранормальные способности способны помочь людям. В этом цикле экстрасенсы находят пропавших родственников и угнанные (   Читать дальше...   )Телекомпания: ТНТЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:10:00Реклама: Присутствуют вставки текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEEA85B77F612066CBFABEB911ECC1B71009A21D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276699   (787582) от 17.01.2019
 
 Пейзажи: Том 4 / Landscapes: Volume 4 (2015) WEBRip [H.264/2160p] [4K, UHD]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:067D0DF20910EB4E3AF618DDFA88AFC90AFA7EAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:067D0DF20910EB4E3AF618DDFA88AFC90AFA7EAB
 magnet:?xt=urn:btih:B43448F350FA42A665EC37383F9B681C1646A8B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:B43448F350FA42A665EC37383F9B681C1646A8B4
 ```bash
 magnet:?xt=urn:btih:D433938618149F93F0789540E1C729BFBB938A8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:D433938618149F93F0789540E1C729BFBB938A8D
 magnet:?xt=urn:btih:554F4C66BD5EC86786CE2AAFA75B54F2EACC083C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:554F4C66BD5EC86786CE2AAFA75B54F2EACC083C
 ```bash
 magnet:?xt=urn:btih:2817A4F48B26FEFE65D102EDAD2B17645216F53E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:2817A4F48B26FEFE65D102EDAD2B17645216F53E
 magnet:?xt=urn:btih:26E937791B1951FC9CA49A7E01CFAB3441DDE553
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:26E937791B1951FC9CA49A7E01CFAB3441DDE553
 ```bash
 magnet:?xt=urn:btih:11CE69B073E4FE4FF2036FA82C1D3A74E1EA69D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:11CE69B073E4FE4FF2036FA82C1D3A74E1EA69D5
 magnet:?xt=urn:btih:A6602F119780AA62CAB416C102F08560812D09AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:A6602F119780AA62CAB416C102F08560812D09AE
 magnet:?xt=urn:btih:B3F7504C7AAFDB6C68099765075528E2EFFC7109
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:B3F7504C7AAFDB6C68099765075528E2EFFC7109
 ```bash
 magnet:?xt=urn:btih:7D1F1F802D06F79695CC500917CAF644ED1839E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:7D1F1F802D06F79695CC500917CAF644ED1839E1
 magnet:?xt=urn:btih:70D4518FFB532654AD53F88D33024E66B7F858EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:70D4518FFB532654AD53F88D33024E66B7F858EE
 ```bash
 magnet:?xt=urn:btih:E973FD462079F123CD3D2DA501E34F7D0D926EDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:E973FD462079F123CD3D2DA501E34F7D0D926EDF
 magnet:?xt=urn:btih:71D15DAF08C0B41DC1050FBEE62AF3502D1D14B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:71D15DAF08C0B41DC1050FBEE62AF3502D1D14B9
 ```bash
 magnet:?xt=urn:btih:F9FD7B385297C75930B7DE7B1C71F85F46B10C0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:F9FD7B385297C75930B7DE7B1C71F85F46B10C0A
 magnet:?xt=urn:btih:BE88388F83A6929C626D96E976A614933BB5DD0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:BE88388F83A6929C626D96E976A614933BB5DD0C
 magnet:?xt=urn:btih:CED9FEE80A2DD366E5096B30985B4E519546C3AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:CED9FEE80A2DD366E5096B30985B4E519546C3AE
 ```bash
 magnet:?xt=urn:btih:B1679D1BB7ED0B152F28447C3E837F43277DB876
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:B1679D1BB7ED0B152F28447C3E837F43277DB876
 magnet:?xt=urn:btih:B5B6F90E18EB669895BA061CBDDD641769C7113A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:B5B6F90E18EB669895BA061CBDDD641769C7113A
 ```bash
 magnet:?xt=urn:btih:4723327C7DDA434B52907AB3E04683ED5C775038
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:4723327C7DDA434B52907AB3E04683ED5C775038
 magnet:?xt=urn:btih:DD79B09C691E6D0F9413D402386942C3594C165E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:DD79B09C691E6D0F9413D402386942C3594C165E
 ```bash
 magnet:?xt=urn:btih:E0F6A1D6672C56AC136CFEC7A23EC8B54BE5B832
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:E0F6A1D6672C56AC136CFEC7A23EC8B54BE5B832
 magnet:?xt=urn:btih:B793740F053AEEFFAD56CB625596504250D5DF35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:B793740F053AEEFFAD56CB625596504250D5DF35
 ```bash
 magnet:?xt=urn:btih:E8288C4956153893FD3BBDFADD3713ED51E0F5D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +651,8 @@ magnet:?xt=urn:btih:E8288C4956153893FD3BBDFADD3713ED51E0F5D6
 magnet:?xt=urn:btih:F8474FF31DFA95C28B1BF7D0B94B8289DB4EB020
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,29 +677,7 @@ magnet:?xt=urn:btih:F8474FF31DFA95C28B1BF7D0B94B8289DB4EB020
 magnet:?xt=urn:btih:2C14A6401B23DD592C398FC1B0FBD1ECC0EA4BA8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511482   (788797) от 21.11.2021
-
-ПараПод :Британские охотники на привидений / The ParaPod: A Very British Ghost Hunt (2020) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Йен Болдсуорт и Барри Доддс отправляются в тур с приведениями, в котором посещают самую населенную призраками деревню в мире, дом с жутким полтергейстом и подземные лабиринты Эдинбурга.Производство: Великобритания / Infinite HermitЖанр: Документальный, ужасы, комедияРежиссер: Йен БолдсуортПеревод: Многоголосый любительскийЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:47:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:731FDD6DA9E0E836080BA86B9E78C8B2562C2017
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

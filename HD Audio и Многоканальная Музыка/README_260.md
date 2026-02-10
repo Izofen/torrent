@@ -1,3 +1,32 @@
+###  Публикация: 1350668   (1002912) от 07.01.2020
+
+Ray Conniff - Laughter in the Rain & Love Will Keep Us Together (2017) 1975 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Laughter In The Rain (1975)
+
+01. Laughter in the Rain (Sedaka; Cody)
+02. I Honestly Love You (Allen; Barry)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:08:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5D9AE82F682A1C1D911C50097499386D40B139B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350156   (1003685) от 04.01.2020
 
 Ray Conniff - The Happy Sound Of Ray Conniff & Love Story (2019) 1974, 1971 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Easy Listening>
@@ -21,6 +50,8 @@ The Happy Sound Of Ray Conniff (1974)
 ```bash
 magnet:?xt=urn:btih:0AC8F321262E4702BDB4E58280921155B8EF7C54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ Fleetwood Mac – Rumours (1977) 2011 [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <P
 magnet:?xt=urn:btih:62870034883B1FB434C0A8758A3DDCB96D889423
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ Rachmaninov: Symphonic Dances 36:18
 ```bash
 magnet:?xt=urn:btih:B95B8F60C9ED9856554A025B1FB0C28FF5AF5937
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ A4 He's Coming(   Читать дальше...   )Жанр: Free Jazz, Contempor
 magnet:?xt=urn:btih:C0A8860950B8B00202F9E8DCB7B0A1BF801CC830
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ B1 Oxygene (Part 17)(   Читать дальше...   )Жанр: ElectronicПр
 ```bash
 magnet:?xt=urn:btih:465CCBC0CF458A6A011CEA5FC3FB0CCA22D1F5A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ A4. Good Night 6:08(   Читать дальше...   )Жанр: RockПродо�
 magnet:?xt=urn:btih:BF43C2C09D2D5DE4AE1B6045BDB9D3DD1740964C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +225,8 @@ A4 Люди Скажут, Что Мы Влюблены = People Will Say We're I
 magnet:?xt=urn:btih:5F12E1FE17E559E2B0A036339AC8F848B74453F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +251,8 @@ Late - Saw, Sine, Square / Voices From The Night (2009) Disfigured Dubz [FLAC 2.
 ```bash
 magnet:?xt=urn:btih:AA4EA71509EE4AD523827D514A747D8E284248C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +281,8 @@ A4 Freeze-out(   Читать дальше...   )Жанр: Folk Rock, Indie Rock
 magnet:?xt=urn:btih:70A368D7970F9441F2D9960A3C6F1EE279A0BB38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +309,8 @@ magnet:?xt=urn:btih:70A368D7970F9441F2D9960A3C6F1EE279A0BB38
 ```bash
 magnet:?xt=urn:btih:88C75194C4C43E1B67A1ECEC93AA87BFF5D0407E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +339,8 @@ A3 Contrapunctus 3 (No. 3)(   Читать дальше...   )Жанр: Classica
 magnet:?xt=urn:btih:2E03C8D4C8E31BD6103BB2013F47BB16FDB38C67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +367,8 @@ A2.1 Allegro(   Читать дальше...   )Жанр: Classical, BaroqueПр
 ```bash
 magnet:?xt=urn:btih:6F44E0BE346DD97196F02438510A01DA24385EE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +397,8 @@ A3 Танец Анитры / Anitras's Dance(   Читать дальше...   )
 magnet:?xt=urn:btih:13A67462BC9BE8EFDE94623495A684805E25CF81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +425,8 @@ A4 Прелюдия Из Сюиты №1 Для Виолончели(   Чита
 ```bash
 magnet:?xt=urn:btih:21480DE1E677ECB37545423534545BAA5F3B1E58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +455,8 @@ A3 Allegro(   Читать дальше...   )Жанр: Classical, BaroqueПро
 magnet:?xt=urn:btih:5236157746BB91CE3AFF3CE651C42D4B7DFA30AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +483,8 @@ A2 Adagio /  Allegro(   Читать дальше...   )Жанр: Classical, Bar
 ```bash
 magnet:?xt=urn:btih:4708F9F7766C376C67139FD645986D2FFE5259A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +516,8 @@ Metallica — пятый студийный альбом одноимённой 
 magnet:?xt=urn:btih:F54E3F5809281254BD0341139633C2B8BEB7C41B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +544,8 @@ Gary Moore - Greatest Hits 2CD (2010) [DTS 6.1, 44.1/16|tracks (upmix)]<Blues Ro
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +574,8 @@ Slade - Nobody's Fools (1976) [DTS 5.1|Tracks (Upmix)]<Glam rock, hard rock>
 magnet:?xt=urn:btih:329F801534021C32CD1C9D1D859E5BA766D1E22A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +599,8 @@ Manowar - 11 альбомов (1982-2012) (FLAC 2.0|96,192/24|FLAC|VinylRip] <He
 ```bash
 magnet:?xt=urn:btih:44CB4D5FCEF9FABD55633CC36D5E82B6B86BD0A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +629,8 @@ A4 They'll Get You Anyway = Z Blata Do Louze(   Читать дальше...   )
 magnet:?xt=urn:btih:21A076D554BE6AE5FAB761F7D08FE619BC73C6FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +657,8 @@ A4 MPO Blues(   Читать дальше...   )Жанр: Blues RockПродол
 ```bash
 magnet:?xt=urn:btih:BF8086AA473E2A386A93B4DAA40853E5D2DBEAC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +687,8 @@ A4. Lost In Paradise (Extended Version) 5:05(   Читать дальше...   )
 magnet:?xt=urn:btih:FD24E1CD66A198AF5A6AC49156FEE5D0C6E12513
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +715,8 @@ Sheavy — канадская группа, образованная в 1993 г�
 ```bash
 magnet:?xt=urn:btih:1E64BB1176D53B40C64F57A3C34A02AFBC73F9D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -668,32 +745,7 @@ Bob Catley - Studio Albums (6 releases) (1998-2008) hand made [restored, declipp
 magnet:?xt=urn:btih:9876342E36D4E11DFFDC08EB0B147A5D33EF14AC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620890   (1031642) от 22.03.2023
-
-Donny Osmond - Донни Осмонд (1976) Лицензия фирмы Polydor International GmbH (ФРГ) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031642.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Life Is Just What You Make It • Ты хозяин своей судьбы
-A2. The Twelfth Of Never • Буду любить тебя вечно
-A3. Sunshine Rose • Солнечная роза
-A4. Do You Want Me • Нужен ли я тебе(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8948462218AF8523624C54057C3BA079C5E73471
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

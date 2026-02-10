@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:E7FA17AEDA5F8F3938BA0DB8109C41894E737D71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Fox Girls Never Play Dirty – это японская ролевая игра �
 ```bash
 magnet:?xt=urn:btih:80823A2CBC4FD65813593D6369F953FD7696D859
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Monster Hunter Rise: Sunbreak (2022) [Ru/Multi] (13.0.0.1/dlc) Repack DjDI [Delu
 magnet:?xt=urn:btih:856DFB342704FD4DA257EA2D362D5E40D976F8C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Lust Academy Season 1 (2022) [Multi] (0.7.1f.002) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:09D4BB27AA6F119E6146B0BEAA215BD5809EFC3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Din's Legacy - изометрическая RPG, выполненная в ду�
 magnet:?xt=urn:btih:BA9B359DE31590165FD113C9C5B6F681862F6BD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ BorderZone / Пограничье (2005) [Ru/En] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:0E5345CAAFB3D97FBA5FEE09E010F6B583574017
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ A Legionary's Life – симулятор жизни римского легио
 magnet:?xt=urn:btih:544A227B78E4110DA41B55EC1CC3B72E2CA9D52E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Heroes of Hammerwatch II (2025) [Ru/Multi] (Build 20392961) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:9D8003D17848A2CF7D2323D690D532EF66606505
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Nicktoons & The Dice of Destiny - это яркое место, где встр�
 magnet:?xt=urn:btih:D5D9A1647E593369E55C66E7D74155A8726AA142
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Shadow Flare (2002) [En] (1.0) License
 ```bash
 magnet:?xt=urn:btih:FD1C346A347EEC60B0C11866B567FB307CFED840
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ False Myth представляет собой ролевую игру. Вмес
 magnet:?xt=urn:btih:1ED7ED6127E77C23C88AF8C89DCB2609FAD05654
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Liberte - это коллекционная карточная rogue-lite игр
 ```bash
 magnet:?xt=urn:btih:B5A98C2A8829B56EA443265A5C01262648613C51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Beacon Pines - это милое и одновременно жуткое при
 magnet:?xt=urn:btih:785150783A085CF294FE4B48D7B675B5BE8CFE69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Volcano Princess (2023) [Multi] (2.01.05) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:9DD946DC8742E009C09B1017D53D89CF58A539A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Class of '09 (2021) [En] (1.0) License GOG
 magnet:?xt=urn:btih:FC67D39779D86C935FE336970201BCE0E499A648
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Sylphy and the Sleepless Island повествует о приключениях
 ```bash
 magnet:?xt=urn:btih:28083C0D28A822EC37FC187425FF54F74F5E90C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ StarCrawlers (2017) [En] (1.1.4.1) License GOG
 magnet:?xt=urn:btih:8A61E48B8F3041946A4F128FCAAAD8597FAC500C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Spells of Gold - ролевое приключение, события кото�
 ```bash
 magnet:?xt=urn:btih:38ADF72C5A393CF4A0BE05C7F4D53A6905F9DC41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Legend of Grimrock – это ролевая игра об исследован�
 magnet:?xt=urn:btih:FF09BDE26DAE41C398A3F5970A373BC66CCC061A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Monster Hunter Rise (2022) [Ru/Multi] (13.0.0.1/dlc) License EMPRESS
 ```bash
 magnet:?xt=urn:btih:46EFC237920547F2844DBBF901ACB42866FF62B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ NeverHome - Hall of Apathy (2023) [En] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:ADCAE19CB3C9748F7C52E3A569586F261A5C65AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ World of Haiku (2022) [En] (1.0.0f5) License TiNYiSO
 ```bash
 magnet:?xt=urn:btih:28D6B5139DF3F2F2E27070CDB0340B4AA335491E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ The Triumphant Return of Diabolos (2022) [Multi] (3/dlc) License GOG [18+]
 magnet:?xt=urn:btih:55815F2FDE77EE387DDCA728657751A2BFC9DF69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Lightracer Spark - это приключенческая научно-фанта
 ```bash
 magnet:?xt=urn:btih:086FCEC459C24AAA4279AE2E9325FDD1510B9073
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Al-Qadim: The Genie's Curse (1994) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:74625168E0A03ABB8710E654EE5F7021A7A3AA33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ VIKINGS WOLVES OF MIDGARD™: Рагнарек. Легенда гласит, ч�
 ```bash
 magnet:?xt=urn:btih:5E8D4B9632D642B97EFAD802289615072ECB6568
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

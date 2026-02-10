@@ -19,6 +19,8 @@ Creative Minds — это стильный и вдохновляющий шаб�
 magnet:?xt=urn:btih:45E05A1ABB4992856150AB56BF54B81B28D3EC7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:45E05A1ABB4992856150AB56BF54B81B28D3EC7C
 ```bash
 magnet:?xt=urn:btih:F06D0C9436099BE1460E10057A66953FB280F3F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:F06D0C9436099BE1460E10057A66953FB280F3F0
 magnet:?xt=urn:btih:F86574F841A952007CDB75A66FA27CFDB2B93574
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Words Fusion Logo Reveal представляет собой динамичны�
 magnet:?xt=urn:btih:3BD71F76ADE2083BD2CF67901C99E5F760181C88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:3BD71F76ADE2083BD2CF67901C99E5F760181C88
 ```bash
 magnet:?xt=urn:btih:34845530817BBAC32B2C4D0A8953AAD3B89A059F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Jackdawg - Jackdawg (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:40EED1FEF77F8A827B9A4E560305914834A63640
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:40EED1FEF77F8A827B9A4E560305914834A63640
 ```bash
 magnet:?xt=urn:btih:DC39DA036C85CE8878493C82EEE2273C65069620
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ A-Train (RePack) [En] 1992 | RG Games (Pilotus)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Kingdoms Reborn – увлекательный градостроительны�
 ```bash
 magnet:?xt=urn:btih:2804851A833E14155A41F50C6FFE18A7AE076F58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ VA - Союз Летних Хитов Лучшая 200-ка 50/50 (2012) [MP3|12
 magnet:?xt=urn:btih:352DE84406CB3469EAE2C36DFFBD24D1A6E51963
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:352DE84406CB3469EAE2C36DFFBD24D1A6E51963
 ```bash
 magnet:?xt=urn:btih:82F8B6FCE4FB0C3BD5151B220714979D24741A99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +325,8 @@ CoDeC Pack содержит как декодеры для проигрыван�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +354,8 @@ Cotton Pickers - Pickin' Out Strong (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 magnet:?xt=urn:btih:B61864B96CFFC968EBD5A1551BB706BF1A358B77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ Freemake Video Converter – это бесплатное универсальн�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ Freemake Video Converter – это бесплатное универсальн�
 ```bash
 magnet:?xt=urn:btih:E6B970E26ADAA8746DC140AE988AE62F195642EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ magnet:?xt=urn:btih:E6B970E26ADAA8746DC140AE988AE62F195642EF
 ```bash
 magnet:?xt=urn:btih:131CAB2334889A84678D66D45F62436893220480
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +463,8 @@ Chasing Stars - Southbound (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:0FE377CBF6837F35F5254EFA0AF39A67F6CB5DA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +491,8 @@ Blues For Comfort - Blekingesalen - Scenkanalen - Musik i Blekinge (2025) [FLAC|
 ```bash
 magnet:?xt=urn:btih:E7F8486D84013FECC5C60FC98A9D762460018642
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +521,8 @@ Bill Blue - The Other Side Of Paradise (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 magnet:?xt=urn:btih:CC1962E74E7184C45A24F0941D71ACFF91A00DBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +546,8 @@ Demeo x Dungeons and Dragons Battlemarked предлагает погрузит�
 ```bash
 magnet:?xt=urn:btih:F219BBC17AEB42E5452E7D28F5C6FFF69DE7635F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +582,8 @@ Richard Marx - Inside My Head (Compilation 2CD) (2012) [MP3|256 кб/с]<Melodic
 magnet:?xt=urn:btih:8A2F7C602F298E84851AA2B456BD8A301350ECD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +607,8 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack Dec
 ```bash
 magnet:?xt=urn:btih:55600A84A461BE02C16A1EBC19C06DD5138FBD54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +634,8 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack Oth
 magnet:?xt=urn:btih:51FB124684ECF1FACCE1080377E4BF4A0D12406C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +659,8 @@ Strike Squad [En] (RePack) 1993 | RG Games (Pilotus)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +686,8 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack Fit
 magnet:?xt=urn:btih:EC5A8BCCFEB61D80AC7027CE9E19A86B7C457230
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +711,8 @@ OlliOlli World – это новый лихой экшен-платформер 
 ```bash
 magnet:?xt=urn:btih:D22A75A7E6D466286131B7B6793ABF356C2F61CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

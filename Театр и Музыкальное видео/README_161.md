@@ -1,3 +1,200 @@
+###  Публикация: 277969   (959978) от 03.01.2011
+
+Дискотека 80-х: 3D-Шоу. Авторадио представляет (2011.01.01) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959978.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Дискотека 80-х" стала дискотекой в полном смысле этого слова, где в одном непрерывном музыкальном ряду встали кумиры 80-х: C.С.Сatch, Alphaville, Secret Service, Ricchi e Poveri, Ottawan, Savage, Pupo, Barrabas, Олег Газманов, Стас Намин и группа "Цветы", Юрий Шатунов… В качестве специального гостя на фестиваль были приглашены музыканты легендарной (   Читать дальше...   )01. Юрий Шатунов - Белые розы
+02. Юрий Шатунов - Седая Ночь
+03. Ottawan - Hands Up
+04. Ottawan - D.I.S.C.O.(   Читать дальше...   )Жанр: КонцертПродолжительность: 01:35:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD3F4D7042BC1C0D3B89237139C1909A4977E191
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 622058   (960319) от 22.02.2013
+
+Diplo ft. Gent & Jawns - Butter's Theme (2013) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ElectronicПродолжительность: 00:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38EDAF4941AC802103734A7644B8B967ACB6A44F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 622299   (960464) от 22.02.2013
+
+"O2label"/Strannik (vol.1.) HDTV 720p (2013) HDTV
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Blue
+02. An Universe Is In A Pocket
+03. Autumn
+04. Out Of Mirror(About Love)(   Читать дальше...   )Жанр: Музыка, Electronic, Downtempo, ChilloutПродолжительность: 00:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D3ABF01FE6A40FB23B591A4E47EC9BB44CCA473
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 622268   (960469) от 22.02.2013
+
+"O2label"/Pulsar (vol.2.) HDTV 720p (2013) HDTV
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here I Am
+02. In Harmony With The World
+03. Mysteries Of Baikal
+04. Nomads Of The North(   Читать дальше...   )Жанр: Музыка, Electronic, Downtempo, ChilloutПродолжительность: 01:29:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BEA38059D829E2A862F34706F8C4776A9D62F52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360394   (960670) от 15.02.2020
+
+Квартирник НТВ у Маргулиса. Группа Альянс (14.02.2020) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960670.jpg" />
+</div>
+
+
+###  Подробнее
+
+В гости к Евгению Маргулису пришла российская рок-группа «Альянс». Группа была создана в 1981 году — именно в это время в СССР началась «новая волна» танцевальной музыки. Необычный и своеобразный стиль «Альянса» быстро нашел своего слушателя, а хиты «Дайте огня», «На заре» принесли им невероятный успех и всеобщую популярность. В атмосферной студии группа поделилась (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F30BB89780BEF1F2A8582EE4BAD756DF95B4DBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979135   (960807) от 25.01.2016
+
+VA - Зимний марафон № 221: Продвинутые Зимние Хиты (2015-2016) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зимние (25.01.2016) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. A.R.M.I.A - Independent (Official Video) (00:03:35)
+02. Alekseev - Пьяное солнце (Official Video) (00:04:02)
+03. Alvaro Soler ft. Jennifer Lopez - El Mismo Sol (Under The Same Sun) (B-Case Remix) (00:03:25)
+04. Burak Yeter ft. Delaney Jane - Reckless (Official Video) (00:03:40)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Reggaeton, House, TranceПродолжительность: 01:31:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0C061F440EB926B5F4D704230F34451CDDA0A18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 747628   (960853) от 20.01.2014
+
+Epica - Retrospect: 10th anniversary (2013) BDRip [1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шикарный трехчасовой сет, состоящий из "классики" группы, исполненный вместе с венгерским оркестром Reményi Ede Chamber Orchestra и хором Национального театра Мишкольца01. Introspect
+02. Monopoly On Truth
+03. Sensorium
+04. Unleashed(   Читать дальше...   )Жанр: Symphonic Metal, Gothic Metal, Progressive MetalПродолжительность: 02:59:05 + bonus (00:15:48 + 00:26:29)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:379164D294076BB0BD4712694CB66753871D4FBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 747483   (960857) от 20.01.2014
 
 Roxette - Live, Travelling the World (2013) BDRip [1080p]
@@ -21,6 +218,8 @@ Roxette - Live, Travelling the World (2013) BDRip [1080p]
 ```bash
 magnet:?xt=urn:btih:972185736CE2DB3CCEEC0DED4BAEE246A42A5BA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +248,8 @@ Michael Flatley - Gold (2000/2004) DVD9
 magnet:?xt=urn:btih:01831C0F356E27252447BD6F185BC606535E8BA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +276,8 @@ magnet:?xt=urn:btih:01831C0F356E27252447BD6F185BC606535E8BA6
 ```bash
 magnet:?xt=urn:btih:4925DAFE67F19949BEDE31482940670253B0753B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +306,8 @@ Scorpions - MTV Unplugged In Athens (2013) BDRemux [1080i]
 magnet:?xt=urn:btih:79423476BC20152C7763A7996B005629552FE9E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +331,8 @@ magnet:?xt=urn:btih:79423476BC20152C7763A7996B005629552FE9E6
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -152,6 +359,8 @@ magnet:?xt=urn:btih:79423476BC20152C7763A7996B005629552FE9E6
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -180,6 +389,8 @@ magnet:?xt=urn:btih:79423476BC20152C7763A7996B005629552FE9E6
 magnet:?xt=urn:btih:AFA88FECA02352DBDD5865E607C7D271FED8E6AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +415,8 @@ magnet:?xt=urn:btih:AFA88FECA02352DBDD5865E607C7D271FED8E6AC
 ```bash
 magnet:?xt=urn:btih:6B2EEFC736107AA8461D66B8FD7FBE5DA7874FF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -232,6 +445,8 @@ magnet:?xt=urn:btih:6B2EEFC736107AA8461D66B8FD7FBE5DA7874FF8
 magnet:?xt=urn:btih:A0AF0E25BFC78D4550DE811A3118158F7F00B7AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +470,8 @@ magnet:?xt=urn:btih:A0AF0E25BFC78D4550DE811A3118158F7F00B7AF
 ```bash
 magnet:?xt=urn:btih:74A00FCEEE1712ECAA13F63A0DD2F25A67D8F95E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +500,8 @@ Roxette - Live, Travelling the World (2013) Blu-Ray [1080i]
 magnet:?xt=urn:btih:1D8C790F72A8AF1326E7022611E5BBACE2B57C20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +529,8 @@ Roxette - Live, Travelling the World (2013) BDRemux [1080i]
 magnet:?xt=urn:btih:EDF991FC92B43C4166ED30BE6D0A2D05A0F8FBBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +557,8 @@ Tarja Turunen: 00:50:41
 ```bash
 magnet:?xt=urn:btih:83B6E747CB24313A683490D191598A31DF99EEEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +588,8 @@ magnet:?xt=urn:btih:83B6E747CB24313A683490D191598A31DF99EEEB
 magnet:?xt=urn:btih:E7E59BEFB253FD4101FBF84F7FDF2330CDFBE237
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +613,8 @@ James Last - Live at the Royal Albert Hall (2008) BDRip [1080p]
 ```bash
 magnet:?xt=urn:btih:48F96748B07CBB99CABE3838BCF03429515300DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +643,8 @@ Old Grey Whistle Test 1979 - 08:11        (Transmitted 16th January 1979)
 magnet:?xt=urn:btih:312123FFBD3B16279C04C5C110F1B1017EA742FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +672,8 @@ magnet:?xt=urn:btih:312123FFBD3B16279C04C5C110F1B1017EA742FA
 magnet:?xt=urn:btih:F9DA6B0B7BE3848C150851034293B197E4FB36BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +697,8 @@ BAZUKA - Make Your Move (2013) [H.264/720p] WEBRip
 ```bash
 magnet:?xt=urn:btih:C3E9C1F354FF00B031A155202E6931A3C14D141E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,200 +733,7 @@ Reggae Sunsplash 83/The Reggae Movie (1983) DVDRip
 magnet:?xt=urn:btih:0419FFF33425429EF060B2346FD9FEC9CBFC9951
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 620688   (964376) от 19.02.2013
-
-Black Uhuru. Live in Essen (1987) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Black Uhuru. Live in Essen - концерт группы В 1981 году для немецкого телевидения.01. Shine Eye Girl
-02. Plastic Smile
-03. Puff She Puff
-04. King Selassie
-05. Youth Of Eglington
-06. Push, Push
-07. General Penitentiary
-08. Happiness
-09. World Is Africa
-10. Sponji Reggae(   Читать дальше...   )Жанр: Концерт, ReggaeПродолжительность: 01:17:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C1E9E10A16D86DFD1C59FB23F254B46E0B53323
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 746255   (964828) от 17.01.2014
-
-Gregorian - Epic Chants Tour 2013 (2013) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964828.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Gregorian" проект знаменитого продюсера Франка Петерсона, среди подопечных которого Сара Брайтман, Офра Хаза, "Enigma". Название отражает суть, вернее, ее часть: в манере григорианского песнопения звучат отнюдь не молитвы, а знаменитые на весь мир поп и рок хиты! В раздаче находится бонусный DVD, вышедший в специализированном издании в Германии (   Читать дальше...   )01. Chariots Of Fire
-02. Conquest Of Paradise
-03. The Sound Of Silence
-04. The Rose(   Читать дальше...   )Производство: Nemo StudiosЖанр: New Age, Pop, Neo-Medieval, Symphonic Rock, Classical CrossoverСубтитры: НетПродолжительность: 01:57:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84DEAA392C173C2CD730B7CE5D8A80F2A67CD7E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359222   (964934) от 11.02.2020
-
-Сборник клипов 01 (02.2020) WEB-DLRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник зарубежных и отечественных видеоклипов за февраль 202001_Francesca Lombardo - Call Me Wrong
-02_Боронина - Малолетка
-03_Milk Sugar, Münchner Symphoniker, Euphonica - Right Here, Right Now
-04_МАЧЕТЕ - Никуда не смыться(   Читать дальше...   )Жанр: Dance, Pop, RnBПродолжительность: 02:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F264249F1B1E5C1F4405E7307086D3098D60C23F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359160   (964996) от 11.02.2020
-
-Новогодний концерт Венского филармонического оркестра / Neujahrskonzert der Wiener Philharmoniker (2020) BDRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новогодний концерт в Вене (нем. Das Neujahrskonzert der Wiener Philharmoniker) — традиционный ежегодный концерт Венского филармонического оркестра 1 января в столице Австрии. Концерты, которые Венский филармонический оркестр дает ежегодно, по праву считаются одним из крупнейших мировых музыкальных событий года. К этому концерту знаменитый симфонический оркестр долго (   Читать дальше...   )Carl Michael Ziehrer
-Overture to "Die Landstreicher (The Vagabonds)"
-Josef Strauss
-Liebesgrüße (Greetings of Love) Waltz, op. 56(   Читать дальше...   )Производство: Австрия/Sony Classical, ORFOЖанр: Музыкальный концерт, классическая музыкаРежиссер: Хеннинг КастенПеревод: Не требуется (нет диалогов и озвученных комментариев)Продолжительность: 01:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D87E2E5ADF82B96DE958966EA5BB86688E087AAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977762   (965409) от 21.01.2016
-
-Квартирник у Маргулиса. 10 выпуск. Варвара Визбор (2016) WEBRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Варвара Визбор — внучка известного советского барда Юрия Визбора. Талантливая девушка пробовала пройти «слепые» прослушивания шоу «Голос», но, несмотря на проникновенное исполнение, ни один из наставников к ней не повернулся. Зато Варвара обрела самое дорогое — зрительскую любовь. В теплой и душевной атмосфере Варвара Визбор исполнит песни, полюбившиеся слушателям. (   Читать дальше...   )01. Рассказ женщины
-02. Зима
-03. Осень
-04. Радуга(   Читать дальше...   )Производство: ЧеЖанр: КонцертПродолжительность: 0:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5D7A4C332DD59C2F78E6FB25F11329588151C36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977534   (965412) от 21.01.2016
-
-VA - Зимний марафон № 220: Зимний Снегопад Хитов (2016) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зимние (20.01.2016) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Alai Oli ― Тлен (Премьера!) (00:03:36)
-02. Alberto Ciccarini - Clorophilla (Official Video) (00:03:46)
-03. Alexander Project - Весь мир с тобой (Премьера!) (00:04:37)
-04. All Давай - Ай как больно (Премьера!) (00:04:09)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Reggaeton, House, Шансон, IndieПродолжительность: 01:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1655826636DC41B1D153115735325D22B451B364
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358677   (966128) от 10.02.2020
-
-Алексей Глухов (Лёша Закон) - Видеоархивы (2005 - 2012) (Remaster) (2020) DVD9 [Custom]
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966128.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Леша Закон. Песни.
-01 Здравствуй. г.Тверь. 2009 (00:01:32)
-02 Лучше меня нет. г.Тверь. 2006 (00:02:02)
-03 Провожала. г.Тверь. 2006 (00:02:47)(   Читать дальше...   )Производство: Zymotic Productions Ultra VideoЖанр: RockРежиссер: Алексей ГлуховАктеры: Алексей ГлуховФормат: DVD9-Video, CompilationПродолжительность: 01:24:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1702BD7BD9D8E1628B51B05DEEF085CC687057C2
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

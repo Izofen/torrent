@@ -1,3 +1,31 @@
+###  Публикация: 1400420   (719261) от 05.08.2020
+
+МАРКЕТИНГ - Из онлайна в сон (2020) [MP3|320 Kbps] <Rap, Hip-Hop, Drum 'n' Bass>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Зум [00:03:24]
+02. Башня Мегафона [00:02:46]
+03. Из онлайна в сон [00:03:08]Жанр: Rap, Hip-Hop, Drum 'n' BassПродолжительность: 00:09:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E143CD676A563AF4B1F4C05FC8B2283B8CEF0EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399972   (719262) от 05.08.2020
 
 Murda Killa x 13senpai - D.S.H.H. (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -21,6 +49,8 @@ Murda Killa x 13senpai - D.S.H.H. (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:1AC8AEB6AF639F2D620D1F149A82E2B005F5D74A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +79,8 @@ magnet:?xt=urn:btih:1AC8AEB6AF639F2D620D1F149A82E2B005F5D74A
 magnet:?xt=urn:btih:B7691DC6E4AF9E684F8287015E17B92A2CE60396
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +107,8 @@ Pastor Napas - Азъ есмь (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:0C62AC39913B76DD57FD4A4D23858DB41639E272
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +137,8 @@ Dr. Dre - 2001 (1999) [MP3|320 Kbps] <Hip-Hop, Rap>
 magnet:?xt=urn:btih:49776E1BB5B176F96A02BDD6ABC48148E56B85CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +165,8 @@ N.W.A. - Greatest Hits (1996) [MP3|320 Kbps] <Hip-Hop, Rap>
 ```bash
 magnet:?xt=urn:btih:0605574321170EFC7135D62B3A996A172FBF0103
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +195,8 @@ magnet:?xt=urn:btih:0605574321170EFC7135D62B3A996A172FBF0103
 magnet:?xt=urn:btih:93D214A478EE509A8E48F5E517B71F3F9A760BCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +223,8 @@ Nyctophiliac - Dark Side of the Mental (2016) [FLAC|Lossless|Web-DL|tracks] <Abs
 ```bash
 magnet:?xt=urn:btih:3E03F5CE5036B82B31A2DAA74AE6CD636F72D5BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +253,8 @@ UB40 - UB40 (1988) Reissue [FLAC|Lossless|image + .cue] <Electronic, Synth-pop>
 magnet:?xt=urn:btih:475252E1163360CA1BF8A05AB8753D24828D57FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:475252E1163360CA1BF8A05AB8753D24828D57FF
 ```bash
 magnet:?xt=urn:btih:7E26B44E4C391F29365F413952B9C28F3F465037
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +311,8 @@ VA - Pornhub Valentine's Day Album (2019) EP [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:10E1EF58F646ABAFDE0C231A38382FFC831B2545
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +339,8 @@ Miyagi & Andy Panda - YAMAKASI (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:0F6D19E15AA891771CE124FD66FD59364A29599F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +369,8 @@ Eminem & The Beatles - 8 Mile And Abbey: Eminem Meets The Beatles (2014) Mixtape
 magnet:?xt=urn:btih:9478B2492CFCF39958D62112A0CC08BCDEE30755
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +397,8 @@ Pappa Bear - What's My Name? (1998) [MP3|320 Kbps] <Rap>
 ```bash
 magnet:?xt=urn:btih:32CB73A8AFE59A530528EC3EB75ACE7C5B67BE5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +427,8 @@ Alai Oli - Alice (2018) [MP3|320 Kbps] <Reggae, Alternative Rock>
 magnet:?xt=urn:btih:BBD1D60513561401B1DE1E5171126F3B01783570
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +455,8 @@ Migos - Culture III (2021) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Trap>
 ```bash
 magnet:?xt=urn:btih:079ADC31656A941EAF2EB852C03A015B7FE4664C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +485,8 @@ FACE - SLIME (2019) [MP3|320 Kbps] <Hip-Hop>
 magnet:?xt=urn:btih:DC2D1B4AD9429F5C9067145C24B140BA92BD6DD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +513,8 @@ magnet:?xt=urn:btih:DC2D1B4AD9429F5C9067145C24B140BA92BD6DD2
 ```bash
 magnet:?xt=urn:btih:3382A82DAB07D383A33C39BBEDF4674714737FAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +543,8 @@ magnet:?xt=urn:btih:3382A82DAB07D383A33C39BBEDF4674714737FAC
 magnet:?xt=urn:btih:720EFF87DC73E60A680DFFD04B27469F16F6660C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +571,8 @@ magnet:?xt=urn:btih:720EFF87DC73E60A680DFFD04B27469F16F6660C
 ```bash
 magnet:?xt=urn:btih:E7E3BD07D80499942196F4FDFF3F88DEF7FD5BCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +601,8 @@ VA - 100 Hits The Best R&B Album (2018) [MP3|320 Kbps] <RnB, Soul>
 magnet:?xt=urn:btih:A2879CB34C7523986FBF7136DDB74854BB03703F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +629,8 @@ Die Antwoord - Suck on This (2016) [MP3|320 кб/с] <Hip-Hop, Electronic>
 ```bash
 magnet:?xt=urn:btih:2C5381BA3A2E85F8A57CF446857D6645F7ABA776
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +659,8 @@ The Weeknd - Dawn FM (Explicit) (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <R'n'B, Po
 magnet:?xt=urn:btih:BBCE7643140A65B3D3E172FF75ECAC8C78C7CD3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +688,8 @@ Toni Braxton - Sex & Cigarettes (2018) Target Exclusive Edition [MP3|320 Kbps] <
 magnet:?xt=urn:btih:3FE8B293118A9966BB4CF077E16B27DE94299093
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +714,8 @@ magnet:?xt=urn:btih:3FE8B293118A9966BB4CF077E16B27DE94299093
 ```bash
 magnet:?xt=urn:btih:DD33EBE34D5B5A2E0876FF704F0DAABCEBADF197
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -668,32 +744,7 @@ magnet:?xt=urn:btih:DD33EBE34D5B5A2E0876FF704F0DAABCEBADF197
 magnet:?xt=urn:btih:0F685A5D31881683BC81B5D38EAEF00409976DEB
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214858   (763069) от 23.03.2018
-
-Down Low - The 4th Level (2001) [MP3|320 Kbps] <Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro	(1:21)
-02. Wouldn't It Be Good	(3:53)
-03. Don't You	(3:30)
-04. La Serenissima	(3:35)(   Читать дальше...   )Жанр: RapПродолжительность: 01:01:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C47AACB02DDBA0CE5883DB3C0A88BAA09368552
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

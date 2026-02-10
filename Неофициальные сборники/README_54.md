@@ -28,6 +28,8 @@ VA - Моя ночная коллекция (2012) [MP3|192-320 kbps]<Pop | Rock
 magnet:?xt=urn:btih:E228165392CCB97D41ACBB4E8AD6B43DB5A1B8E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ VA-Trance Eve Volume 24 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:89DDAEAEB0D5D26C0276AE4B22E72F2F3C0F4DBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ VA - Easy Listening (2012) [MP3|320 кб/с]<Downtempo, Lounge>
 magnet:?xt=urn:btih:5D93689B17465657318F8E8508BBC6497CA81AB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +132,8 @@ VA - Trance Eve Volume 25 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Tranc
 ```bash
 magnet:?xt=urn:btih:F8807A4D60334DCA3804113C19084B4B482123BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +168,8 @@ VA - Dancefloor Fever Winter (2012) [MP3|320 kbps]<Club | Dance | House>
 magnet:?xt=urn:btih:825E1625A6C6B36836C4F9932A9CFBDA89E42A6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +202,8 @@ VA - Танцевальное Движжение 50/50 (2012) [MP3|224 kbps]<Clu
 ```bash
 magnet:?xt=urn:btih:157D2DD5DA748D386172462B7D5FF7E134736FC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +238,8 @@ VA - Wellness Hotels (2012) [MP3|320 кб/с]<Downtempo, ChillOut, Lounge>
 magnet:?xt=urn:btih:966B649CA72D5B46E331093F147A54FCD13CC923
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +272,8 @@ VA - С Нами Не Соскучишься 50/50 (2012) [MP3|256 kbps]<Pop | D
 ```bash
 magnet:?xt=urn:btih:131980E89AAA23C820A4A1BD415798AE3AA5C883
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +308,8 @@ VA - Солнечный музыкальный отрыв (2012) [MP3|256 кб/�
 magnet:?xt=urn:btih:574A99F2664FD0B874EE81A9CFEE313BC9EE0EF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +342,8 @@ VA - Хиты на радио клубнячек и попса vol.1 (2012) [MP3
 ```bash
 magnet:?xt=urn:btih:3638F770B800196BA1B9E6EAA09B1431778AE1DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +378,8 @@ VA - Dance Charts Арлекина. Часть 1 (2012) [MP3|256 kbps]<Dance>
 magnet:?xt=urn:btih:111D65FD74386165FCBD63EC1A9A52F9AE8E8DEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +412,8 @@ VA - US TOP 25 Rock Song Chart (2012) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:7D907500C819E091EC8AFE9F1692CDB235976262
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +448,8 @@ VA - In Da Club Vol.60 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting 
 magnet:?xt=urn:btih:6AB593E61996F2E170A1C6501DBDBB031BF40728
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +482,8 @@ VA - Только Хиты Хит FM 50/50 (2012) [MP3|256 kbps]<Pop | Dance>
 ```bash
 magnet:?xt=urn:btih:3B7F7D1057A924E11647C994EB434BD33B89D577
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +518,8 @@ VA - Авто Дискотека DFM (2012) [MP3|256 kbps]<Pop | Dance>
 magnet:?xt=urn:btih:7945DD771B8FAA3F9CFE08E4E078E0CFDB2E3BD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +552,8 @@ VA - В Машину! Русский (2012) [MP3|256 kbps]<Pop | Dance>
 ```bash
 magnet:?xt=urn:btih:7C90744FE29443684335751E21FBA2A4A4DE5116
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +588,8 @@ VA - 90's PartyMix (2009) [MP3|256 кб/с]<eurodance>
 magnet:?xt=urn:btih:E863C37C1FC750F479DB4784DFFA27EE0E8B5449
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +614,8 @@ VA - Хиты на радио клубнячек и попса vol.3 (2012) [MP3
 ```bash
 magnet:?xt=urn:btih:DE9011DDB762F9325AF8FA35383F3512BF9D70CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +650,8 @@ VA - Хиты на радио клубнячек и попса vol.4 (2012) [MP3
 magnet:?xt=urn:btih:96FC54D4FA477278E80AF18CD46A69DF3F264271
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +684,8 @@ VA - Звездный клубный драйв (2012) [MP3|160-256 кб/с]<Dan
 ```bash
 magnet:?xt=urn:btih:CD70FB350582EFDFDB0A23252ADB9851AE164058
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -680,6 +720,8 @@ Various Artists - Tranceffect 9 (2011) [MP3|320 кб/с]<Trance, Vocal Trance>
 magnet:?xt=urn:btih:D91C67319043AAC00491FC859A08AB2FD952FC00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -712,6 +754,8 @@ VA - Clubничка Хит FM 50\50 (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:595A3A717A6893B18509D48832B4F6FC33130B80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -746,6 +790,8 @@ VA - Out Of Body (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
 magnet:?xt=urn:btih:61545CA525958DE99FCAEB240036C82633874BEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -778,6 +824,8 @@ CD1
 ```bash
 magnet:?xt=urn:btih:7D5940FF58BB811BF30A044A3DF2FDC32D700D05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -812,6 +860,8 @@ VA - Клубные новинки Vol.65 from GvertO (2012) [MP3|320 кб/с]<C
 magnet:?xt=urn:btih:CFD146743A6D862E2F1D138A9C16EE73FA02ACE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -844,6 +894,8 @@ VA - Хиты на радио клубнячек и попса vol.5 (2012) [MP3
 ```bash
 magnet:?xt=urn:btih:97AE6747B968488E70D47D60B2BE2AB419681FAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

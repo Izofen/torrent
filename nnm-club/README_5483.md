@@ -22,6 +22,8 @@ KEVU - Live @ Rave Culture Liveset, Dr. Magalhães Pessoa Stadium, Portugal (202
 magnet:?xt=urn:btih:20E13540E87BCCD12775483D77ADB5466F1C8E88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Erroll Garner - 1944, Vol.3 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing
 ```bash
 magnet:?xt=urn:btih:30B3DFE227EF0FFDAF8EEB186629674CBBD85B54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ The Ocean Collective - Phanerozoic II - Mesozoic - Cenozoic (2020) [FLAC|Lossles
 magnet:?xt=urn:btih:BDAA840CFF11A317A04F1F58D13FAD27E9E28C61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ FastScripts - Утилита для быстрого запуска AppleScript-
 ```bash
 magnet:?xt=urn:btih:4B6E7756289F9B22BFC4BAB918F35F57C0576E16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ VA - Hit News Vol. 5 (1993) [OGG Vorbis|480 Kbps] <Electronic, Italodance, Euro 
 magnet:?xt=urn:btih:EFD7E132C9426C7704A345D7EBEC5143D9ADB4F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:EFD7E132C9426C7704A345D7EBEC5143D9ADB4F5
 ```bash
 magnet:?xt=urn:btih:03C150DC4064E7534AF8FCEE2397F9B2703A9FBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:03C150DC4064E7534AF8FCEE2397F9B2703A9FBF
 ```bash
 magnet:?xt=urn:btih:668A004453319C8714F3545796E2866498C634F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -204,6 +218,8 @@ Neverland In Ashes - 2 CD (2017-2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Meta
 magnet:?xt=urn:btih:E02B053A6E40526B2602E48B5EEF30CB9EFD675D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +245,8 @@ Invisible является простым в использовании и оч�
 ```bash
 magnet:?xt=urn:btih:75DBA8DA41A991DE1936450161172DDE02BD94F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -257,6 +275,8 @@ Fields Of The Nephilim - From Gehenna To Here (2001) [FLAC|Lossless|image + .cue
 magnet:?xt=urn:btih:044B2B2B77D3B637993CE610EA07D5AF8B4556FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ Media Player Classic - Black Edition (MPC-BE) – универсальный п�
 ```bash
 magnet:?xt=urn:btih:1F3265B1A3C9029D87A84382C1BC783BD30181B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -305,6 +327,8 @@ ImageRanger - программа позволит найти все нужные
 magnet:?xt=urn:btih:0602E06184179601B7004D2869E503CE66AB4EDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ magnet:?xt=urn:btih:0602E06184179601B7004D2869E503CE66AB4EDE
 magnet:?xt=urn:btih:18FB3292F18529E921499F8F192B562E388BE854
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ Thunder Tier One (2021) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:4E8E84D54268DE96F8AF2AAF6737459ECEEA6AEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +407,8 @@ Alarm Clock Pro представляет собой многофункциона
 magnet:?xt=urn:btih:C66FF0248879BEA2BFF7205E5537C4657AAAEF1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ magnet:?xt=urn:btih:C66FF0248879BEA2BFF7205E5537C4657AAAEF1C
 ```bash
 magnet:?xt=urn:btih:A554B795B2FD659427B554274B5DE3AACB026091
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +459,8 @@ Mad Max (2015) [Ru/Multi] (1.0.3.0/dlc) Repack Other s
 magnet:?xt=urn:btih:8FB5885F0F6EC1A00CBC8397B36668C066CE9FD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ Cisdem ContactsMate 5 v5.6.0 [En]
 ```bash
 magnet:?xt=urn:btih:E8AFB7A476F03390B3E8BF2CE9732E8714CB8167
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +514,8 @@ Mujuice - Regress (2019) [MP3|320 Kbps] <Electronic, IDM>
 magnet:?xt=urn:btih:42E1F9ACA3593EAFEBF4B236280F2BBD83C90838
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ Media Player Classic Home Cinema – удобный во всех планах �
 ```bash
 magnet:?xt=urn:btih:E08F644E01C817A4981812B5E4266C5BD17BBD28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +566,8 @@ Gear‧Club Unlimited 2 – аркадная гоночная игра с оче
 magnet:?xt=urn:btih:00C6C83F8BC4A56B26A6162D666EF8E9F5CDE9C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ Oracle Database 10g Enterprise Edition (EE) обеспечивает эффек�
 ```bash
 magnet:?xt=urn:btih:FA509C791D0C511567B6FE114B221524AA7CF92C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +618,8 @@ Calibre - простая и удобная программа для управ�
 magnet:?xt=urn:btih:06B6AE0D138DDC03DCB40ED7AC13FA53BC37D1E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ Data Guardian 6 v.6.0.2 [En]
 ```bash
 magnet:?xt=urn:btih:2E3471CF89A9EFD05223D59961A7240140C52258
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:2E3471CF89A9EFD05223D59961A7240140C52258
 magnet:?xt=urn:btih:8B12A50E99C569016D91594E73301241FB4CBA72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ Airtool 2 v2.0.1 [En]
 ```bash
 magnet:?xt=urn:btih:9B9BF60E6F3558BFBEC5D3D0379922670DA6E95E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Audirvana - мощный аудиофильский плеер с широчай
 magnet:?xt=urn:btih:B684F5B0AF39E0500C1B82C2A594028263975279
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ SILKYPIX Developer Studio Pro — мощная программа, котора�
 ```bash
 magnet:?xt=urn:btih:E0825053DB43D31CC7E4A4B6F4C6B46299201BA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ ScreenFlow - создаем свои скринкасты
 magnet:?xt=urn:btih:BE3DE008A44C658DA5F1CEEC58CBD9A44E561AFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Soulver 3 - это умный блокнот со встроенным каль�
 ```bash
 magnet:?xt=urn:btih:65F65059A94876219C91EE13D1FA0A64B85F5BE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ SpamSieve 2.9.38 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C498BCE102F77AF16356995BCCED62A5E5C176FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ IconJar 2.1.1 [En]
 magnet:?xt=urn:btih:8DD18C90B69AB425F36CFA5992896B3A0E7AA51A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ A Better Finder Rename является лучшим решением для а�
 magnet:?xt=urn:btih:9C8AA06F2DF77EEC9016FEE528D112AD9192F12B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:9C8AA06F2DF77EEC9016FEE528D112AD9192F12B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:9C8AA06F2DF77EEC9016FEE528D112AD9192F12B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ Hands Off! - контроль доступа в Интернет
 magnet:?xt=urn:btih:0E2CC7BA74F2FF1B747A26C3D5491D10C52BBCC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:0E2CC7BA74F2FF1B747A26C3D5491D10C52BBCC7
 ```bash
 magnet:?xt=urn:btih:01DCCD560C32327B5C21325E996254375506846F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ R-Drive Image является эффективной утилитой для с
 magnet:?xt=urn:btih:4EFDDEB1A8B851D3E9932EBA45ED8C4220DFCF74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ BELOFF 2018.12 Lite [Ru]
 magnet:?xt=urn:btih:66CDAC62B92200574AB380BD45DBB264CA44CBFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:66CDAC62B92200574AB380BD45DBB264CA44CBFF
 ```bash
 magnet:?xt=urn:btih:5627B6827F63743510EB39F82863CAA1A9458EFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ MainStage 3 позволит вам взять Mac с собой на сцену
 magnet:?xt=urn:btih:1526BCB5CAFA5D4DA67C655FA50DDB5AFD65A899
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:1526BCB5CAFA5D4DA67C655FA50DDB5AFD65A899
 ```bash
 magnet:?xt=urn:btih:2DD7D56003FCF77A5C18D58F3930E0FC99B208D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ ACDSee Photo Studio - функциональная программа, расс�
 magnet:?xt=urn:btih:6E50F02E42ADA41015185903790BA993EA366DCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:6E50F02E42ADA41015185903790BA993EA366DCC
 magnet:?xt=urn:btih:9F2A85C45473A621C5B919A8FEE84B4450A08673
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ R-Wipe & Clean это эффективная утилита компании R-T
 ```bash
 magnet:?xt=urn:btih:B0E635E19CA56D13A23AEAECF00F03CBD5127B16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +530,8 @@ MX5 развивает заложенную предшественником к�
 magnet:?xt=urn:btih:7E082B4DE18102A0C5031E0A0E14C5D5C5D5DD8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 ```bash
 magnet:?xt=urn:btih:91EB50D9E78B71464ED0F95E66F30305DF8235EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +582,8 @@ O&O DiskRecovery - мощный инструмент для восстановл
 magnet:?xt=urn:btih:E686C37C55299FFB3AC21849EAE6CB7B947EDF39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ Ocenaudio является простым в использовании, быс�
 ```bash
 magnet:?xt=urn:btih:CCDDF00A2BFA44861CF5B0F9FE3221C5EEBBFB25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +634,8 @@ Opera 57.0.3098.91 Portable by Cento8 [Ru/En]
 magnet:?xt=urn:btih:664FA7E3638E7AA1552FC96D4FEA70B0165D533E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ Pale Moon - веб-браузер, созданный на базе популя
 magnet:?xt=urn:btih:2C38190230872BF0F9C1B0CEADBCA7AA4AAECB21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ Minitube - приложение для рабочего стола от Youtube,
 ```bash
 magnet:?xt=urn:btih:B80463F2FA70D2A4C32CDFB14BC7A1B302958433
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

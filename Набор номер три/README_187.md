@@ -19,6 +19,8 @@ MInstAll v.02.11.2019 By Andreyonohov & Leha342 [Ru]
 magnet:?xt=urn:btih:EA17F2EA6CEE3CC19CECED03AE12A36654312E39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:EA17F2EA6CEE3CC19CECED03AE12A36654312E39
 ```bash
 magnet:?xt=urn:btih:CD15D001665AE968C0D96FA97C735110A7F464CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:CD15D001665AE968C0D96FA97C735110A7F464CB
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:CD15D001665AE968C0D96FA97C735110A7F464CB
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:CD15D001665AE968C0D96FA97C735110A7F464CB
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:CD15D001665AE968C0D96FA97C735110A7F464CB
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ Project Cars 2 – это вторая часть мегауспешного г�
 ```bash
 magnet:?xt=urn:btih:BD6B34C5BE4D85C99515060CA1E0C3147BA47B55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Total Commander PowerUser Portable by HA3APET v70 от 5.12.2018 [Ru/En]
 magnet:?xt=urn:btih:E53100C81CF070310688A6FE22945D64845FE562
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Constructor (2017) [Ru/Multi] (1.0/dlc) License PLAZA
 magnet:?xt=urn:btih:2875916EF76D3BFDBABED591B7CC5CFAA583046A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Shenmue I & II (2018) [Ru/Multi] (1.07) Repack West4it
 ```bash
 magnet:?xt=urn:btih:8F090B5E67A2D4A927A22B2BC6825F8DD618AC73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:8F090B5E67A2D4A927A22B2BC6825F8DD618AC73
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Microsoft не сдается: Windows Lite – «по-настоящему об
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Microsoft не сдается: Windows Lite – «по-настоящему об
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Microsoft не сдается: Windows Lite – «по-настоящему об
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Microsoft не сдается: Windows Lite – «по-настоящему об
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ The Legend of Zelda: Breath of the Wild (2017) [WiiU] [EUR] 5.5.1 [WUP Installer
 ```bash
 magnet:?xt=urn:btih:E5C73EF3B9A01255AF32D8EB53A059BC7B1498FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:E5C73EF3B9A01255AF32D8EB53A059BC7B1498FC
 magnet:?xt=urn:btih:DD39C9C66912283FC4E40A31C2D17DB8A6D2E159
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Adobe Photoshop CC 2018 - это комплексное решение для п
 ```bash
 magnet:?xt=urn:btih:32F0E8886F8CA768598410291EE8B32EED16E13F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ Adguard – интернет-фильтр для защиты пользоват
 magnet:?xt=urn:btih:866DF882D6DD9CC110EA1712583AD4507419CCD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:866DF882D6DD9CC110EA1712583AD4507419CCD3
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:866DF882D6DD9CC110EA1712583AD4507419CCD3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ magnet:?xt=urn:btih:866DF882D6DD9CC110EA1712583AD4507419CCD3
 ```bash
 magnet:?xt=urn:btih:71EC15720BA098EB35618C6FC519CF25C5289E6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:71EC15720BA098EB35618C6FC519CF25C5289E6D
 magnet:?xt=urn:btih:E2D7961AC16377A73C7CDAB46CE81C59A9D98836
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ Red Giant Trapcode Suite - это мощный набор из 11 плагино
 ```bash
 magnet:?xt=urn:btih:BCEAD2AC2AFE58FA5FB18DD624D6300630AE6F85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ Navitel / Навител Навигатор v9.11.780 WinCE [Ru]
 magnet:?xt=urn:btih:C64196B25941EA7F33706AF64A0C8363E0AA363B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Windows 10 1909 24in1 (x86/x64) +/- Office 2019 by Eagle123 (11.2019) [Ru/En]
 ```bash
 magnet:?xt=urn:btih:7FA32A8BB905ED34867B9EF32C48059437E20112
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

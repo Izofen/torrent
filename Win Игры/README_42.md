@@ -19,6 +19,8 @@ Dishonored - стэлс-экшен с видом от первого лица в
 magnet:?xt=urn:btih:D392D0E76AD10CE15FE7E14F92C50AB8BCF709F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Tobacco Shop Simulator дает побывать в роли владельца 
 ```bash
 magnet:?xt=urn:btih:8F4551C9B9FCEBECA30414532A794D61754074EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Entropy Survivors - «роглайк» со стрельбой, где вы уп
 magnet:?xt=urn:btih:77CC67299D38B5B39B45C6A541854A43662E4DA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Blood West – это максимально захватывающий экшн
 ```bash
 magnet:?xt=urn:btih:78123609B54DA32922C41672F10B099D78907B81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ PRIM (2024) [Ru/Multi] (1.3.27) License GOG
 magnet:?xt=urn:btih:86C9D6D1DFC44A438FC622BF7BF001E08256F76E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Until Then – после судьбоносной встречи жизнь М�
 ```bash
 magnet:?xt=urn:btih:32E060C558C1FEC535695765EC32D04C847FCDCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ All About Chopsticks / Все о палочках для еды (2025) [Ru/Multi
 magnet:?xt=urn:btih:A2FA7672E7E7A35F0CDBBE687C1134FA12371DE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ POPUCOM - кооперативный приключенческий платфо
 ```bash
 magnet:?xt=urn:btih:324AB8730F7D8B40A2887569CEF4077F9FF8E823
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Leftovers KO! (2025) [Multi] (1.5) License GOG
 magnet:?xt=urn:btih:DBE4E4015E19BBA82EE7A82F50D5C3C97E074613
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Boxville 2 от Triomatica Games - это следующая часть прик
 ```bash
 magnet:?xt=urn:btih:81DF80114D7F94F5026AE4D17745983D2F43BB4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Trident's Tale (2025) [Multi] (20250529 133011 79336) License GOG
 magnet:?xt=urn:btih:DB983BC1ABBAFA35B1CFF6531B59BE4FA54A2E78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ POPUCOM - кооперативный приключенческий платфо
 ```bash
 magnet:?xt=urn:btih:737126C3B3FC73627CFD8B03600C46F16D16215F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Control (2020) [Ru/Multi] (1.31 HotFix/dlc) License GOG [Ultimate Edition]
 magnet:?xt=urn:btih:FC4AD71E266BF4E009511F28E7022C09CE45FEFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Star Trucker (2024) [Ru/Multi] (1.0.64.0/dlc) Repack FitGirl [Deluxe Bundle]
 ```bash
 magnet:?xt=urn:btih:A88629C04A49B5958F3F9928BC6ADD667DE78A01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Dungeons 4 - это фэнтезийная стратегия в реально�
 magnet:?xt=urn:btih:471C0BA83C64A2924E516C2B7B91B8E6A65410FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Bygone Dreams (2025) [Ru/Multi] (1.0.0.4) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:174CB5E9D7051552AC4691A06D6FED149B7CE173
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Three Kingdoms: The Last Warlord - двумерная пошаговая стр�
 magnet:?xt=urn:btih:2AA89DD0D69F99252414DD942EE9CB3849A53EF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Architect Life: A House Design Simulator (2025) [Ru/Multi] (1.0/dlc) Repack FitG
 ```bash
 magnet:?xt=urn:btih:C41F6A8CECA675992151DC65C4D475057F0097F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Dungeons 4 - это фэнтезийная стратегия в реально�
 magnet:?xt=urn:btih:B3999851C444F1DF04F18C1E22ACEEC9BF3EC8BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Dragons Reef (2025) [Ru/Multi] (1.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:746F05A20A465170FF91545386325803EA03D006
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Deathless. Tales of Old Rus / Бессмертный. Сказки Старой 
 magnet:?xt=urn:btih:F545846F18D9430A038D4EF0BB42D8C1FC87119F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Taxi Life: A City Driving Simulator - симулятор такси, в кото
 ```bash
 magnet:?xt=urn:btih:A4C7939514B9443C6CB251A204AEB35219AB1D36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ THEMIS (2025) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:18CC08E43E7EC392EBD3A1FE81DF498360F12D33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Planetary Annihilation: TITANS (2015) [Ru/Multi] (124610) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:561B2EC17EE96F2E1AB0B13E9B82D0C470F824F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Boxville 2 от Triomatica Games - это следующая часть прик
 magnet:?xt=urn:btih:EC422683A9FEEADBE75566C0B0829BA86513CA69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ PC Tycoon 2 (2024) [Ru/Multi] (1.2.8) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:D23EBDD7D1CB7789F71927AAB9DA66E26EBB06AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

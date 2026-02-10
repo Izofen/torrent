@@ -19,6 +19,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:5EFB282CECED6B41B58F362D18C218D02E6E9DE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Realtek Ethernet Driver 11.25.014 | 10.65 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:F55D530F01C2B7784B0B1CFF83B7CAD7A5088FA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Folder Marker - помощник, который может маркироват
 magnet:?xt=urn:btih:569A3DC5FCE9F16A8D3E207A3A209AB055093ED2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ LDPlayer 9 — мощный бесплатный эмулятор устройс
 magnet:?xt=urn:btih:EC60D042D908C92B0E9C6AFC2A68A14441D5E593
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ AVS Media Player - полнофункциональный программный
 ```bash
 magnet:?xt=urn:btih:6781FBACEFE7BD9EF56F1CBEB0A07CD514EDEF41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ IDPhotoStudio - интересная программа для создания 
 magnet:?xt=urn:btih:5A022FDB380F4F80D35521CB500BF0400915C17F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ GIMP — это редактор, позволяющий работать со �
 ```bash
 magnet:?xt=urn:btih:3214F1A18A290AF75471F255C8A35923E5FBF566
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ SiSoftware Sandra Lite - бесплатная версия многофункц�
 magnet:?xt=urn:btih:89530D273287447ECADB1E0ECEEA390A1060559A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ DaVinci Resolve — единственное в мире решение для �
 ```bash
 magnet:?xt=urn:btih:B3C4039BFA4AA39754C66D5F9C0D8FC2155AC70C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ updated_jan_2023_x64_dvd_0b3d540e.iso
 magnet:?xt=urn:btih:BF93CF78E666760354756AE88DFDB85D3C27C84A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ Capture One Pro один из самых мощных профессиональ
 magnet:?xt=urn:btih:D1F7BCDD7E2CA096676A5C9C758189F550CA63D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ WinTools.net – набор инструментов для оптимизаци
 ```bash
 magnet:?xt=urn:btih:1176E9B8ACB080DD8EC11A9AC1A313EA38F0DC39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ GoldWave - звуковой редактор, предназначенный д�
 magnet:?xt=urn:btih:9A5AA81F752CAE79842DCDF216F46E6709C7754D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ SUMo (Software Update Monitor-монитор обновлений програм
 ```bash
 magnet:?xt=urn:btih:8E038E71234311B8F2D9A0F2BB18CDCB9147D0C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ NIUBI Partition Editor – программа для простого и над�
 magnet:?xt=urn:btih:BC85F6FEB0740EDF3D20ECA2DB05CAC7299E3F21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:BC85F6FEB0740EDF3D20ECA2DB05CAC7299E3F21
 ```bash
 magnet:?xt=urn:btih:F0F043DA2AEA25DBE51C1C4ED89A10CF581020D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ UsbTreeView маленькая утилита, реализующая больш
 magnet:?xt=urn:btih:BC0B8134D5F7B8D68D7C640F8C057ABF855E4BE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ AIMP – проигрыватель, включающий в себя множе
 magnet:?xt=urn:btih:FFFF16A6FBB9BC1ABC5571307399832C110BB994
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ AnyDesk 7.1.3 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5D76DC4BCC0A4627DAB8BED0C72AC27CA2D08E68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ Spotify имеет громадный каталог музыки, поддер�
 magnet:?xt=urn:btih:C147AAE3BF071E5A8EC7D4346A93E18457D7771C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ Defender Remover Portable 12.5.1 [En]
 ```bash
 magnet:?xt=urn:btih:EAA33F5DE5063CB4D753BC824B04372D21E23A56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ CareUEyes служит для изменения цветовой темпера
 magnet:?xt=urn:btih:A8A5B8E202B171A67FBC87411EE61F718D6F3989
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Windows 11 Manager - это универсальная утилита специ
 ```bash
 magnet:?xt=urn:btih:BD1CA9420F0E28B9BEA6E729D5B4B412AD22B795
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ Supermium форк Chromium для Windows - современный браузе
 magnet:?xt=urn:btih:41CF1A62B1ED33ED28C80290A42AE9DE7835A69D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ Rhinoceros 3D - профессиональная среда для модели�
 magnet:?xt=urn:btih:79CC7C5B864DAAB0BC731B7288C25B24DBFDDAE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ X-Mouse Button Control позволяет создавать профили уп
 ```bash
 magnet:?xt=urn:btih:E897B04CA9C3F5E1C709C0396CB433E1A306A6A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

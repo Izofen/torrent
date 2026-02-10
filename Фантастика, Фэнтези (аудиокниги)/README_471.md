@@ -1,3 +1,29 @@
+###  Публикация: 1381659   (824472) от 08.05.2020
+
+Алекс Орлов | Золотой пленник (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Питер Фонтен, племянник богатого купца, мечтает избавиться от дядиной опеки. Пока он учится, чтобы продолжить торговые традиции, но видит себя героем и путешественником. Ему семнадцать лет и он отправляется с торговым караваном, чтобы постичь тонкости торгового ремесла, однако его судьбу изменяет встреча с бандой головорезов – бой на дороге, плен и рабство. Перепродажа (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтезиПродолжительность: 11:33:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1552B5FB24E207E326FC8A9B8CA54F285CFF90E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006883   (824523) от 13.04.2016
 
 Артём Каменистый | Четвертый год (2016) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:C837504135E818747856AA9BDB8473DAB0BF4290
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:C837504135E818747856AA9BDB8473DAB0BF4290
 magnet:?xt=urn:btih:1934D5FC8DEE13EA091E6A0E4D41169A2AFA3333
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:1934D5FC8DEE13EA091E6A0E4D41169A2AFA3333
 ```bash
 magnet:?xt=urn:btih:BC663169C2375E5473A839FCB71377FFBB839A22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:BC663169C2375E5473A839FCB71377FFBB839A22
 magnet:?xt=urn:btih:99D46DF8651A203619CB48ECCEAD5C10B2C6945E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:99D46DF8651A203619CB48ECCEAD5C10B2C6945E
 ```bash
 magnet:?xt=urn:btih:020D40EC5839C12FD402C4414204847D5F213469
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:020D40EC5839C12FD402C4414204847D5F213469
 magnet:?xt=urn:btih:949E4FA61497728C2D88011C1E81558BA5EA709E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:949E4FA61497728C2D88011C1E81558BA5EA709E
 ```bash
 magnet:?xt=urn:btih:A5B60800A3AF0D52056B75087BC4374E48B86E2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:A5B60800A3AF0D52056B75087BC4374E48B86E2C
 magnet:?xt=urn:btih:B5509BC4CB921266F9FFFC29254F511B25430846
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:B5509BC4CB921266F9FFFC29254F511B25430846
 ```bash
 magnet:?xt=urn:btih:96E87E2FEBE94B9E9CCF116F81D987045B91C5CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:96E87E2FEBE94B9E9CCF116F81D987045B91C5CA
 magnet:?xt=urn:btih:BB8707D4C1A0FF9C804D02C8BA587372F31B29A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:BB8707D4C1A0FF9C804D02C8BA587372F31B29A7
 ```bash
 magnet:?xt=urn:btih:296749E1AFAD3A52C84775157433BE4B0DE0959D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:296749E1AFAD3A52C84775157433BE4B0DE0959D
 magnet:?xt=urn:btih:F35F002670BA9DF151A4127C64CC9EF9C322245D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:F35F002670BA9DF151A4127C64CC9EF9C322245D
 ```bash
 magnet:?xt=urn:btih:26A42520D932F5E7EA094AA76A4CB66BDD3FC10C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:26A42520D932F5E7EA094AA76A4CB66BDD3FC10C
 magnet:?xt=urn:btih:34A964E3483A16B117D5D97AC4C17CDA43A579F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:34A964E3483A16B117D5D97AC4C17CDA43A579F9
 ```bash
 magnet:?xt=urn:btih:A2491886A0AE6F5613FD46F912C5B5A36502250A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:A2491886A0AE6F5613FD46F912C5B5A36502250A
 magnet:?xt=urn:btih:3220A9D1A326E3C5F5FBC64F2B832E7DFFD27AA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:3220A9D1A326E3C5F5FBC64F2B832E7DFFD27AA3
 ```bash
 magnet:?xt=urn:btih:17CEBE69A6003224B64C9DC8EECF034F476DC58D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:17CEBE69A6003224B64C9DC8EECF034F476DC58D
 magnet:?xt=urn:btih:45C6D045EB32A6B01EEEAD75BEFAD125D5AA5D41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:45C6D045EB32A6B01EEEAD75BEFAD125D5AA5D41
 ```bash
 magnet:?xt=urn:btih:E57C325675BF880BE80BEDDE3550A2EE1F11D5D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:E57C325675BF880BE80BEDDE3550A2EE1F11D5D4
 magnet:?xt=urn:btih:C96460408B576BBC5B42192E24B4D5D5DB6B9029
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:C96460408B576BBC5B42192E24B4D5D5DB6B9029
 ```bash
 magnet:?xt=urn:btih:5461466F3D0A7A9518DC40099A82BA96D119FBAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:5461466F3D0A7A9518DC40099A82BA96D119FBAA
 magnet:?xt=urn:btih:C0C9958EA5BD671EAA3DCEA23B8136BFDDF06DA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:C0C9958EA5BD671EAA3DCEA23B8136BFDDF06DA5
 ```bash
 magnet:?xt=urn:btih:D710B45776E6B81D1F2581580D4603D22A9D86B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +651,8 @@ magnet:?xt=urn:btih:D710B45776E6B81D1F2581580D4603D22A9D86B9
 magnet:?xt=urn:btih:6FF18A1FC4D08720E7B2C13D13A08B75AEB82C01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,29 +677,7 @@ magnet:?xt=urn:btih:6FF18A1FC4D08720E7B2C13D13A08B75AEB82C01
 magnet:?xt=urn:btih:43F6A6CDF4729DB32B3B24DF3A07457F8B835F86
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502663   (826801) от 15.10.2021
-
-Лада Кутузова | «Младшие боги» Книга 2. Костяное царство (2021) [MP3, BrainDeLook]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Навья метка еще отравляет, хоть призрак быстрой смерти и отступает от Лады. А потому дорога девушки и ее спутников лежит дальше – в Серебряное царство. Впереди их ждет смертельная схватка с прислужниками темных богов, предательство и потери. И перед Ладой встает выбор: следует ли продолжать путь ценой жизни тех, кем она дорожит? Не слишком ли велика цена за ее спасение (   Читать дальше...   )Жанр: Героическое фэнтези, Русское фэнтезиПродолжительность: 07:20:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC64B2120ABF258601A889BC2B19E551606382D7
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

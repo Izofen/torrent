@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:85C783693AD17931E5C8AB34CE156275228A77A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ Blackmill - Reach for Glory (28/02/2011) [MP3|320 кб/с]<dubstep>
 ```bash
 magnet:?xt=urn:btih:8FBACAA9EAA818B59C45EBB03673B30B5C2364CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -85,6 +89,8 @@ Santigold - Master Of My Make-Believe (2012) [MP3|~245 кб/с (V0)]<New Wave, D
 magnet:?xt=urn:btih:372F0E769C1B2AFEF60696DA33E16251CE5C7822
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +124,8 @@ Tiger Milk - Supernatural (2012) [MP3|~245 кб/с (V0)]<Electronic, House, Synt
 magnet:?xt=urn:btih:03586EF4550C494B36D7EC0D5CBC79E22D292CEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +152,8 @@ magnet:?xt=urn:btih:03586EF4550C494B36D7EC0D5CBC79E22D292CEF
 magnet:?xt=urn:btih:DA930F0420AD846BFCF0E4654C1DD8E2649B9347
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +177,8 @@ magnet:?xt=urn:btih:DA930F0420AD846BFCF0E4654C1DD8E2649B9347
 ```bash
 magnet:?xt=urn:btih:8B72A27710F5DBCDFC0D4829958D756633536F77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +213,8 @@ Portion Control - Pure Form (2012) [MP3| ~251 кб/с ]<Industrial, EBM>
 magnet:?xt=urn:btih:E77EC64DF53D743B4A0D51B5D4276243588811E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +248,8 @@ Roger Meno - I Find The Way (2010) [MP3|320 кб/с]<Disco>
 magnet:?xt=urn:btih:05D1D450331800BE7BE18C4DD39B1791F7929A70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -257,6 +273,8 @@ magnet:?xt=urn:btih:05D1D450331800BE7BE18C4DD39B1791F7929A70
 ```bash
 magnet:?xt=urn:btih:CF64A436A7437E76ED6DA2CBCDA3324B3F100334
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +309,8 @@ magnet:?xt=urn:btih:CF64A436A7437E76ED6DA2CBCDA3324B3F100334
 magnet:?xt=urn:btih:05F8381B5831A8668BDB9A9399EA2A391C5348A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +334,8 @@ magnet:?xt=urn:btih:05F8381B5831A8668BDB9A9399EA2A391C5348A1
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +361,8 @@ magnet:?xt=urn:btih:05F8381B5831A8668BDB9A9399EA2A391C5348A1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +386,8 @@ magnet:?xt=urn:btih:05F8381B5831A8668BDB9A9399EA2A391C5348A1
 ```bash
 magnet:?xt=urn:btih:F126579860DF00BDDBE11CFB526A6C0267AD5566
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +413,8 @@ magnet:?xt=urn:btih:F126579860DF00BDDBE11CFB526A6C0267AD5566
 magnet:?xt=urn:btih:A920A2BDDF88D7459F19ABF3B37C43771D9EF263
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +438,8 @@ AI Roboform Pro - программа, являющаяся менеджером 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +465,8 @@ Bigasoft Total Video Converter - очень мощная программа, к�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +490,8 @@ Bigasoft Total Video Converter - очень мощная программа, к�
 ```bash
 magnet:?xt=urn:btih:577B90FD8528769DD4880B166217E52CD25E68F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +517,8 @@ Light Alloy - компактный мультимедийный плеер. По
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +542,8 @@ Super Hide IP - одна из лучших программ для автома�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +572,8 @@ Super Hide IP - одна из лучших программ для автома�
 ```bash
 magnet:?xt=urn:btih:54A36933587733FE4AF3144B8643387514BBF38C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +608,8 @@ Radiorama - Golden Hits (1996) [FLAC|Lossless]<Euro House, Hi NRG, Electronic>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +634,8 @@ FotoMix — многофункциональная программа, кото�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +659,8 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +695,8 @@ Yannic Noah - Charango (2006) [FLAC|Lossless]<french pop, chanson francaise, reg
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -673,6 +721,8 @@ PC Fresh - это мощный, уникальный инструмент для
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ SmackDown! — профессиональная рестлинг програм�
 ```bash
 magnet:?xt=urn:btih:FD28276791514F851A5F2330ACDB5422A091687B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

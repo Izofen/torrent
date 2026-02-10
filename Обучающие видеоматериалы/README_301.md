@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:16CC802B7EE262CAC6FA32F35D766277C8F96424
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Cайты для сбора мероприятий, бесплатных и пл
 ```bash
 magnet:?xt=urn:btih:112433D4A72CFD04DAB9939B78934FD82A4F1F4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ UltimateCourses, Todd Motto | Angular Pro (2020) PCRec [En]
 magnet:?xt=urn:btih:1F23402367EF9C536AA776E1F8DA2CFFD38FC830
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:1F23402367EF9C536AA776E1F8DA2CFFD38FC830
 ```bash
 magnet:?xt=urn:btih:9095DA55AAE31FE48BB98227A5D4B8C7297C50A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ XYZ School, Сергей Мингулин | Руки всему голова (20
 magnet:?xt=urn:btih:04CB59301F573746D5FFDE339B271EC10B3E3E41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ Skillbox, Дмитрий Крутов и др. | Продюсер онлайн-�
 magnet:?xt=urn:btih:96D0B4A9FEF8CAE2F4B8AD366EC4171D4DA381B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -182,6 +194,8 @@ magnet:?xt=urn:btih:96D0B4A9FEF8CAE2F4B8AD366EC4171D4DA381B9
 magnet:?xt=urn:btih:AE86AEFDF069642720EE456AFB8BAA4A5A39806F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -206,6 +220,8 @@ Udemy, Роман Сакутин | Создание игры 2D Minecraft на C
 magnet:?xt=urn:btih:09E4F1A41E50C62F63A347D11D0E50334B98F272
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +245,8 @@ magnet:?xt=urn:btih:09E4F1A41E50C62F63A347D11D0E50334B98F272
 ```bash
 magnet:?xt=urn:btih:EA57F27268D182EC2E69A5A674A1419C13795C2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -255,6 +273,8 @@ C # - один из самых универсальных языков прог�
 ```bash
 magnet:?xt=urn:btih:C5862DD81100C843A570AB2B02E3C6674DA2F93A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +303,8 @@ Udemy, Kirill Eremenko | Python A-Z™: Python For Data Science With Real Exerci
 magnet:?xt=urn:btih:A24D5CBF19B021CF240E9B712D6EDCA2D35D00DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +330,8 @@ Udemy, Frank Kane | Taming Big Data with Apache Spark and Python - Hands On! (20
 magnet:?xt=urn:btih:8D5A9EDD7E297F58ECFDE1978B51A98D5383D544
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +356,8 @@ Udemy, Lazy Programmer Inc. | Deep Learning Prerequisites: The Numpy Stack in Py
 ```bash
 magnet:?xt=urn:btih:081B6452AA3AA2678CCEC6158FDF7A1716E64CC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +386,8 @@ ihatetomatoes, Petr Tichy | GreenSock - Bella (2020) PCRec [En]
 magnet:?xt=urn:btih:E0C9CB518166AC0B28CB483859F451DC14D1FA35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +415,8 @@ Udemy, Henry Olsen | Ultimate Beginner Guitar Masterclass (2020 Update) CamRip [
 magnet:?xt=urn:btih:5DBC2252D88B11508CD551062A601421A0451BA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +440,8 @@ Udemy, Imtiaz Ahmad | The Complete Oracle SQL Certification Course (2020) PCRec 
 ```bash
 magnet:?xt=urn:btih:42B526DDC5499821D5169ECA85E70F0CFD783CB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +467,8 @@ magnet:?xt=urn:btih:42B526DDC5499821D5169ECA85E70F0CFD783CB4
 magnet:?xt=urn:btih:3973CDB1A2B11A0EF3B79C7F3EA9610002862C58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +492,8 @@ Usegolang, Jonathan Calhoun | Web Development with Go (2022-2023) WEB-DL [EN] [�
 ```bash
 magnet:?xt=urn:btih:54AE612371757D3C38A88632520869FC35601983
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +522,8 @@ Udemy, Rob Percival и др. | The Complete Digital Marketing Course - 12 Course
 magnet:?xt=urn:btih:76357C33C61D0EC439C23C455715060ED37BD057
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +550,8 @@ Udemy, Jose Portilla | The Complete SQL Bootcamp 2021: Go from Zero to Hero (202
 magnet:?xt=urn:btih:5E4F941E28228D74E3968198ADC60AF21A9FC2AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +575,8 @@ David Kahl | Houdini: VEX Fundamentals (2018) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:D0B712EA1228D3FBEDBCC74A4D9963C8A2E71430
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +602,8 @@ Udemy, Sergei Semenov | Автоматизация API: REST Assured + Java, п�
 magnet:?xt=urn:btih:E06447B1E8AA6F42078C8BF5932AE7607C919459
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +627,8 @@ Python стабильно входит в “топ -10 наиболее поп�
 ```bash
 magnet:?xt=urn:btih:F597F90BD01696A495CCAF70B73B485DC3590E10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +657,8 @@ Slurm (Слёрм) | Soft skills для каждого (2022) WEB-DL [Тариф
 magnet:?xt=urn:btih:0ED75B90AA7458CF9193EAF6A3C7C84EE8372B68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +683,8 @@ SOP Solver в Houdini это стандартный инструмент про�
 magnet:?xt=urn:btih:FA27853FF360760C5406DAC24F01CB0CD7A2BEF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +708,8 @@ highlights | Цифровой рисунок в Photoshop (2018)
 ```bash
 magnet:?xt=urn:btih:98F9BC94DEF23A9702908BA8F1F6CCC47802B57C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

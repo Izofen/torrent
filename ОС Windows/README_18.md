@@ -22,6 +22,8 @@ Windows 7 SP1 7601.28021 x64 3in1 by OneSmiLe [12.11.2025] [Ru]
 magnet:?xt=urn:btih:0428A4A081EC85DDF272310F1BBB1BD6828D2854
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ windows11_business_editions_version_23h2_updated_sep_2025_x64_dvd_59189188.iso.(
 ```bash
 magnet:?xt=urn:btih:A5E7889852C1858D68B2D47DF0B66E6D2E8406FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -81,6 +85,8 @@ Standard (   Читать дальше...   )Название программ�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -107,6 +113,8 @@ ru-ru_windows_11_enterprise_ltsc_2024_x64_dvd_f9af5773
 ```bash
 magnet:?xt=urn:btih:1FAA353FF9A23D0DABCD8B27E7D7067432366B5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -135,6 +143,8 @@ updated_oct_2025_x64_dvd_38efd00d.iso
 magnet:?xt=urn:btih:EE0C822568CE4CD5C660216C1A5557A30EA01A03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +172,8 @@ updated_oct_2025_x64_dvd_38efd00d.iso
 magnet:?xt=urn:btih:B5A2141408D13E64143B8F8ECA87AC6B3D4CA6B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -185,6 +197,8 @@ Windows 11 - это серия операционных систем, разра
 ```bash
 magnet:?xt=urn:btih:E1BEFD9DFA5C859714107756F071B08379B8D325
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -210,6 +224,8 @@ Windows 11 - это серия операционных систем, разра
 magnet:?xt=urn:btih:3711A3F09CAEA3AB063122385B58B741E12696E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -233,6 +249,8 @@ Windows Server, версия 23H2 - это первый выпуск ежего�
 ```bash
 magnet:?xt=urn:btih:1846074AD0419EA2CC296EC223B4D12C1F8C9F38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -258,6 +276,8 @@ Microsoft Windows Server 2025 поможет вам справиться с вы
 magnet:?xt=urn:btih:2DD1BFD96A67331B9C04EB6D57AE62D1FE4A129A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -281,6 +301,8 @@ Windows Server 2022 впервые обеспечивает расширенну
 ```bash
 magnet:?xt=urn:btih:67D4E5615C8BF59E90F0FE57E3263CF161E3AE58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -306,6 +328,8 @@ Windows 11 - это серия операционных систем, разра
 magnet:?xt=urn:btih:0061279BFFFF7944F5973A66DF10A552DB41A50D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +354,8 @@ Windows 11 - это серия операционных систем, разра
 magnet:?xt=urn:btih:9EB5CC36E22DB472AFB5CBF0B8D31458CAD8FCAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +379,8 @@ Microsoft® Windows® 10 Enterprise x64 LTSC 2021 21H2 RU by OVGorskiy 11.2025
 ```bash
 magnet:?xt=urn:btih:EC5D61E114DF4FE100023B1C3BED8F89B8D0A23A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +409,8 @@ Windows 11 PRO 25H2 26200.7171 Update 1.2 by Ghost Spectre [En]
 magnet:?xt=urn:btih:DA730FE7D93FB7616DB01F45E0582D8102BF480C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +435,8 @@ Microsoft Windows 10.0.18362.476 Version 1903 (November 2019 Update) - Ориг�
 ```bash
 magnet:?xt=urn:btih:3B3459FD2423CF6FEC485E5590E0BE2CD0D01569
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +463,8 @@ Microsoft Windows 10.0.17763.864 Version 1809 (November 2019 Update) - Ориг�
 magnet:?xt=urn:btih:B31BEADF5FE614E7280E1865F554BFD21061BD80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +489,8 @@ Microsoft Windows 10.0.18362.476 Version 1903 (November 2019 Update) - Ориг�
 ```bash
 magnet:?xt=urn:btih:FF37ECF7269704D132B819187FC62C9C00607DD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +517,8 @@ Microsoft Windows 10.0.17763.864 Version 1809 (November 2019 Update) - Ориг�
 magnet:?xt=urn:btih:069FB8302E8C0CB7165E0FC1FC05837987D30581
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +542,8 @@ magnet:?xt=urn:btih:069FB8302E8C0CB7165E0FC1FC05837987D30581
 ```bash
 magnet:?xt=urn:btih:0A192746401F709A644FBABFE3675F91DB8556E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +571,8 @@ Microsoft Windows 10 10.0.16299.64 Version 1709 (Updated Nov. 2017) - Ориги
 magnet:?xt=urn:btih:CA53E7BDF16F2A1564E64915C9B7D609B46D8F58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +598,8 @@ Microsoft Windows 10 10.0.16299.64 Version 1709 (Updated Nov. 2017) - Ориги
 ```bash
 magnet:?xt=urn:btih:540C017D5F74C638B1CAAF4EF13039B5002F297A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +627,8 @@ Microsoft Windows 10 10.0.16299.64 Version 1709 (Updated Nov. 2017) - Ориги
 magnet:?xt=urn:btih:2719F110CB0C9AC3DAE17DB1D82A5BB02232FC84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +652,8 @@ Microsoft Windows 10.0.17763.107 Version 1809 (October 2018 Updated) - Ориг�
 ```bash
 magnet:?xt=urn:btih:25E4A1323B0230A27D090202D254907753B297DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +681,8 @@ Windows 10 включает “универсальную” архитекту�
 magnet:?xt=urn:btih:BECB35A0B87CDE89F0575930CE38DF7B8638D335
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +708,8 @@ Windows 10 включает “универсальную” архитекту�
 ```bash
 magnet:?xt=urn:btih:C159CBB3E35B741A180C0A286991DE9E0B47C4AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

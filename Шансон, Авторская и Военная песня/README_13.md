@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ VA - Лучшая 200ка: Патриотическая (2012) [MP3|128 kbps]<Po
 magnet:?xt=urn:btih:4C35FBDEF9DE84BCC3C7C1FC4BA252A70AD2019F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ Dalida - 2 альбома (2010) [FLAC|Lossless]<Pop, Chanson>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +115,8 @@ VA - 23 Февраля Защитнику (2012) [MP3|224 кб/с]<Военна�
 magnet:?xt=urn:btih:911E03FB75EEDC443DFFB44BB96746A9CF376DE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -132,6 +140,8 @@ magnet:?xt=urn:btih:911E03FB75EEDC443DFFB44BB96746A9CF376DE3
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +176,8 @@ magnet:?xt=urn:btih:911E03FB75EEDC443DFFB44BB96746A9CF376DE3
 magnet:?xt=urn:btih:A12A0B13F12D69E50F1882CA76723D71272495D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +210,8 @@ CD1: (01:01:54)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -232,6 +246,8 @@ CD1: (01:01:54)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +280,8 @@ CD1: (01:01:54)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +316,8 @@ CD1: (01:01:54)
 magnet:?xt=urn:btih:27B943453A7CE7D13A25234A6F51E7B4AC98FC06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +350,8 @@ CD1: (01:15:41)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +386,8 @@ CD1: (01:15:32)
 magnet:?xt=urn:btih:EECCE559DC77A633EF7DA86DE4C83E07E4C02F52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +420,8 @@ magnet:?xt=urn:btih:EECCE559DC77A633EF7DA86DE4C83E07E4C02F52
 ```bash
 magnet:?xt=urn:btih:FA8A579262211CD17B30BD2FF8914259DAED8D13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +456,8 @@ magnet:?xt=urn:btih:FA8A579262211CD17B30BD2FF8914259DAED8D13
 magnet:?xt=urn:btih:C5386A055E1BB78C5DEAB275BB1F3A49B7205E46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +490,8 @@ magnet:?xt=urn:btih:C5386A055E1BB78C5DEAB275BB1F3A49B7205E46
 ```bash
 magnet:?xt=urn:btih:D2D1613701916B7C6EC3BAD62743932ECA88ED56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +526,8 @@ VA - Лучшие солдатские хиты ч.1-3 (2004-2006) [MP3|320 kbps
 magnet:?xt=urn:btih:BBC1A5F0282A87061306F6519B63ABF2A3469F66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +560,8 @@ magnet:?xt=urn:btih:BBC1A5F0282A87061306F6519B63ABF2A3469F66
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +596,8 @@ VA - Блатной рай - Легендарные хиты 90-х (2012) [MP3|3
 magnet:?xt=urn:btih:487EEBAA19C6693CC3C5069D33A3530B29AF1811
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +630,8 @@ CD1:
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +666,8 @@ VA - Созвездие Хитов - Солдатские песни (3CD) (2008
 magnet:?xt=urn:btih:85A7779911B82BDC603D517EDF033233C0F054E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +700,8 @@ magnet:?xt=urn:btih:85A7779911B82BDC603D517EDF033233C0F054E0
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -694,6 +736,8 @@ CD1: (01:19:15)
 magnet:?xt=urn:btih:265831BD60854AC87D90AA934AC993821F04287D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -717,6 +761,8 @@ magnet:?xt=urn:btih:265831BD60854AC87D90AA934AC993821F04287D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -751,6 +797,8 @@ magnet:?xt=urn:btih:265831BD60854AC87D90AA934AC993821F04287D
 magnet:?xt=urn:btih:F7F63283D66B0BC62E007D8984B72B4CE13DA176
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -774,6 +822,8 @@ magnet:?xt=urn:btih:F7F63283D66B0BC62E007D8984B72B4CE13DA176
 ```bash
 magnet:?xt=urn:btih:4DF8B7F208F718C171ACF21AF13386FC1B769349
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -805,6 +855,8 @@ magnet:?xt=urn:btih:4DF8B7F208F718C171ACF21AF13386FC1B769349
 ```bash
 magnet:?xt=urn:btih:C04D73694BA47DE925375806C158FDEBB25F75DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

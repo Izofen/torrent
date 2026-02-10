@@ -21,6 +21,8 @@ Ethernet / IP (промышленный протокол Ethernet) - это ст
 magnet:?xt=urn:btih:A85DD80A8161BC4B82287F91A6AD26E135020C99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Profibus DP - один из наиболее часто используемых
 ```bash
 magnet:?xt=urn:btih:06EFFF1E34A378F61A1091B9991F81104D66D649
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:06EFFF1E34A378F61A1091B9991F81104D66D649
 magnet:?xt=urn:btih:BF9C9850E82CB4609FD05215913EEDE0499D20A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:BF9C9850E82CB4609FD05215913EEDE0499D20A8
 magnet:?xt=urn:btih:61CECE323F6FFFB2AF37B2EDA0D5F9BC983F09B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Self-Learning, Виталий Трунин | Курс по T-SQL Путь про
 ```bash
 magnet:?xt=urn:btih:D67459801384F037AB3AD2D3B318F546ACF947AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ Udemy, Ryan Dhungel | React Node MERN Marketplace - Build A Hotel Booking App (2
 magnet:?xt=urn:btih:095748C925767E7C6915D1EF5B04C2B5940F27BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:095748C925767E7C6915D1EF5B04C2B5940F27BD
 ```bash
 magnet:?xt=urn:btih:DDBF7820D3D37B29E79979709984DA82342FDFEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ ITVDN, Роман Самчук и др. | Специальность Unity / Gam
 magnet:?xt=urn:btih:842C397869CCC1A8334DA0A56F5F5DB3FAC53C0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ Udemy, Frank Kane | Elasticsearch 7 and the Elastic Stack: In Depth and Hands On
 ```bash
 magnet:?xt=urn:btih:EB6EF2093E70F681FBD8FAE7BE705908B9EDE28A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ Blazor - это технология Microsoft, которая позволяе�
 magnet:?xt=urn:btih:7EB1B442A3EB30C31A2917EAFC6BED3257F768E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ Udemy, Andrei Dumitrescu | Linux Security: The Complete Iptables Firewall Guide 
 ```bash
 magnet:?xt=urn:btih:4ED87A5D2E931EA1ABFAB854435CF5FEDF9AC515
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ Udemy, Denis Panjuta | The Windows Presentation Foundation WPF Guide for beginne
 ```bash
 magnet:?xt=urn:btih:70D2EEC37BC15C8CB8289CA4030BB12DD36864A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +350,8 @@ Udemy, Ravinder Deol | The Complete 'No Code' Developer Course: Build 23 Project
 magnet:?xt=urn:btih:E2E66F7B333A1BACEA053888B6464FF7814046F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ Log2Base2 | Data Structure (2020) PCRec [En]
 magnet:?xt=urn:btih:748C1630D158315E586988BF5A6A342765911D7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ Manning, Reuven M. Lerner | Manning - Python Workout (video edition) (2020) PCRe
 ```bash
 magnet:?xt=urn:btih:71FFA65587DB3344BA6CF0A76749F29AA8012E13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ Udemy, Tim Buchalka и др. | The Advanced Xamarin Developer Masterclass  (2021
 magnet:?xt=urn:btih:2A64B5D79817E3A182115E312AD7904A0BFC6FBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ Log2Base2 | Algorithms (2020) PCRec [En]
 ```bash
 magnet:?xt=urn:btih:C5E74AA7749A1F44EA21AA9A61EA13CE6767C22B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ Udemy, Rahul Shetty | Selenium Design Patterns/Best Practices for Framework Desi
 magnet:?xt=urn:btih:5CD386AD3D98DC893D1CCEECD0B072D267D13BDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ Log2Base2 | Pointers In C (2020) PCRec [En]
 ```bash
 magnet:?xt=urn:btih:721E5B2F0A70C746DD3577499E4469F5D68CC93F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +537,8 @@ magnet:?xt=urn:btih:721E5B2F0A70C746DD3577499E4469F5D68CC93F
 magnet:?xt=urn:btih:48B71AF794A165B5BEC9434CC9B83F2B5D5C93C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ Udemy, Глеб Михайлов | Анализ Данных на Python с Гл
 ```bash
 magnet:?xt=urn:btih:1AAAEC0736995DD08E0F1715BCB6367D71609766
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +589,8 @@ Web Dev Simplified | Упрощенный JavaScript - Advanced (Beta) / JavaScr
 magnet:?xt=urn:btih:34B12E492AA1CC9EA45B347BA2CC9DE951FA2CBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ Udemy, Colt Steele | The Git & Github Bootcamp  (2021) PCRec [En / En Sub]
 ```bash
 magnet:?xt=urn:btih:669A0A5AB5FEFEAAFDAD03503F6A6F106B9BE6EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +641,8 @@ Udemy, Andrei Neagoie и др. | Complete React Native Developer in 2021: Zero t
 magnet:?xt=urn:btih:9A46C70DFF2DCB7DF978134F652D195F325FF182
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +667,8 @@ PyCharm - это лучшая Python IDE (интегрированная сре�
 magnet:?xt=urn:btih:150E834A8313173DB1E1ECB54E2675FAC174029C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ TalkPython, Chris Moffitt | Move from Excel to Python with Pandas Course (2020) 
 ```bash
 magnet:?xt=urn:btih:AE94CC2963575A18A51D2C632A1C24BFFFB03DF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

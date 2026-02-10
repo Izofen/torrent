@@ -19,6 +19,8 @@ BrokenLore: UNFOLLOW – это сюрреалистический хоррор 
 magnet:?xt=urn:btih:B765D7461D9CD958FD934EB7CE3821A89D59D786
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Solargene (2022) [Ru/Multi] (1.0.43) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:48CFC58F70D2F31813BB4369F8B275CCD25625C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ MIO Memories in Orbit (2026) [Ru/Multi] (r21606) Repack Let'sРlay
 magnet:?xt=urn:btih:43AC91BA7D28D3D43C8859C99783223420CB47D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ MIO Memories in Orbit (2026) [Ru/Multi] (r21606) Scene Rune
 ```bash
 magnet:?xt=urn:btih:64277C032D53F740D6F7C01ACF51A1549E433116
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Head's Adventures: chibichibi (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:B58A5B1FF647AC119848672A67F596BFEFED708C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Perpetuo (2025) [Ru/Multi] (2.0e) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:972D954BBBBE4427BEB89C18C53A68FF40985FBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Terra Invicta (2022) [Ru/Multi] (1.0.28) Repack Let'sРlay
 magnet:?xt=urn:btih:CF861282BB96E1A25701529BF3407474E8B354ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Legend of Heroes: Trails beyond the Horizon (2026) [Multi] (1.0.6/dlc) Licen
 ```bash
 magnet:?xt=urn:btih:33557D0301CF2B8BC050B1637F32FE6350E82562
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Loot & (and) Ledger (2026) [Ru/Multi] (1.0) Reack FitGirl
 magnet:?xt=urn:btih:1E393A0112051B2810BCDD6196F33C877B532877
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Legend of Heroes: Trails beyond the Horizon (2026) [Multi] (21493729/dlc) Sc
 ```bash
 magnet:?xt=urn:btih:6EF6CCEB3B922B5F4FF7E76FC5BED967637A422A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Tennis Elbow 4 - это продолжение Tennis Elbow 2013, признан
 magnet:?xt=urn:btih:67C691F4FEDE3B5D2ABC0D3761B7EF6ABDD4E5DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Tennis Elbow 4 - это продолжение Tennis Elbow 2013, признан
 ```bash
 magnet:?xt=urn:btih:90FCC8C35E0BE9AB9B934EE705FF1E30D7E6595B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ I Hate This Place [Ru/Multi] (1.0.13_15856) Repack Let'sРlay
 magnet:?xt=urn:btih:A97060A99895E955251ED88A95A3FB0B5554EE9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Cairn (2026) [Ru/Multi] (1.0.299s_1713/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:9E31AF2737ABF9DB3BB7270087800FC00DB6D96A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Cairn (2026) [Ru/Multi] (1.0.299s_1713/dlc) Repack Let'sРlay [Deluxe Edition]
 magnet:?xt=urn:btih:7A6646DFB8EDECCA18BA130AC61207B16BC1E064
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Occupy Mars это высокотехничный, открытый мир, пе
 ```bash
 magnet:?xt=urn:btih:EE0FD22731E94DB4FF8558099E8F7F37AA250796
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Cairn (2026) [Ru/Multi] (1.0.299s_1713/dlc) Repack Other s [Deluxe Edition]
 magnet:?xt=urn:btih:79F4DD40263199B56FD38B55DAAC72C99D793397
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Cairn (2026) [Ru/Multi] (1.0.299s_1713/dlc) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:BE5D373CD4ECC09FD778D3489EC4996EF6D1AF34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Cairn (2026) [Ru/Multi] (1.0.299s_1713) Repack seleZen
 magnet:?xt=urn:btih:F689C952B969FC126EBF149C2C7DE778E0D18F01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Cairn (2026) [Ru/Multi] (1.0.299/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:595DF638D8C20DB383FC92095E2A6F35D4BB83D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ I Hate This Place [Multi] (1.0.0.15852) License GOG
 magnet:?xt=urn:btih:04A68B2CBF44AF1A9C3060FDCF7F2BB34BB7B2B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Fear The Timeloop (2026) [Ru/Multi] (1.0.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:CD81D2AA7A7E00DDC330CB4380FB34E96AE5C849
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Super Woden: Rally Edge (2026) [Ru/Multi] (Build 21510214) Repack Other s
 magnet:?xt=urn:btih:02415AECCE96271BD6FD4CF2C865440E3DE46DC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Super Woden: Rally Edge (2026) [Ru/Multi] (Build 21510214) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:350ABD3933C4C6F50936C53D41CD3955D6F288F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ DeadCore Redux (2026) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:8CFAE09EE2FF9E1C86465E0AC6BCCAE0E54CC0F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ City Tales – симулятор строительства средневек�
 ```bash
 magnet:?xt=urn:btih:D6D8EA36F663050B6EB7998CF62CF10FF47D8087
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

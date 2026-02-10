@@ -1,27 +1,3 @@
-###  Публикация: 1501416   (836287) от 09.10.2021
-
-Маски для Николаса / Un Disfraz para Nicolas (2020) WEB-DL [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленький Николас переезжает к любящим бабушке, дедушке и кузену Дэвиду, который его не принимает. Николас берет с собой самое дорогое — сундук со сказочными костюмами, которые шила его мама. С ними Николас отправляется в путешествие, чтобы спасти Дэвида от ночных кошмаров, а вместе с ним — и целое волшебное королевство.Производство: Мексика, 	Fotosintesis MediaЖанр: Детский, ПриключенияРежиссер: Эдуардо РивероАктеры: Фран Фернандес, Патрисия Канту, Магда Хинер, Хосе Лават, Эмилиано Угарте, Эмилио Тревиньо, Кристина Эрнандес, Рауль Анайа, Карлос Сегундо, Эктор ЛиПеревод: Дублированный (iTunes)Язык озвучки: русскийСубтитры: английские (hardsub)Продолжительность: 01:23:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3B1235DECD7D0B1F35D491A71CE5DBCE4FD5C13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501338   (836551) от 09.10.2021
 
 Земля до начала времен 9: Путешествие к Большой Воде / The Land Before Time IX: Journey to Big Water (2002) WEBRip [H.264/1080p-LQ]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:D3B1235DECD7D0B1F35D491A71CE5DBCE4FD5C13
 ```bash
 magnet:?xt=urn:btih:C462728DFCFDA0C71F344B1B5F3C87DDD46EA753
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:C462728DFCFDA0C71F344B1B5F3C87DDD46EA753
 magnet:?xt=urn:btih:D528187D6DD0FD8E060C9FF8409D74AFA196369C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:D528187D6DD0FD8E060C9FF8409D74AFA196369C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:D528187D6DD0FD8E060C9FF8409D74AFA196369C
 magnet:?xt=urn:btih:8AFB4B99567C8CC0DF9171515D8564591518184A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:8AFB4B99567C8CC0DF9171515D8564591518184A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:8AFB4B99567C8CC0DF9171515D8564591518184A
 magnet:?xt=urn:btih:1827A8CF7F1E648931B296490F58BCA15A779EFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:1827A8CF7F1E648931B296490F58BCA15A779EFA
 ```bash
 magnet:?xt=urn:btih:82C8BC95B5AE86D60632071F2AF2DCEA4A52B293
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +203,8 @@ magnet:?xt=urn:btih:82C8BC95B5AE86D60632071F2AF2DCEA4A52B293
 magnet:?xt=urn:btih:351988CB9739C3A690B0F4924125B9B24AF7B62B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +228,8 @@ magnet:?xt=urn:btih:351988CB9739C3A690B0F4924125B9B24AF7B62B
 ```bash
 magnet:?xt=urn:btih:BF9C80AB3788E7225093218629C45801FEE78301
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +255,8 @@ magnet:?xt=urn:btih:BF9C80AB3788E7225093218629C45801FEE78301
 magnet:?xt=urn:btih:0A89D406C743792A7E90EA86065E46EF8EDE68E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +280,8 @@ magnet:?xt=urn:btih:0A89D406C743792A7E90EA86065E46EF8EDE68E8
 ```bash
 magnet:?xt=urn:btih:3C25F797367889E50492E8C131F79077A107E752
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +307,8 @@ magnet:?xt=urn:btih:3C25F797367889E50492E8C131F79077A107E752
 magnet:?xt=urn:btih:5E936340496E8A393707A097C3E943B4EC69E86E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +332,8 @@ magnet:?xt=urn:btih:5E936340496E8A393707A097C3E943B4EC69E86E
 ```bash
 magnet:?xt=urn:btih:E80ED80175DA2085D7DDC5B157CEFEA96719178C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +359,8 @@ magnet:?xt=urn:btih:E80ED80175DA2085D7DDC5B157CEFEA96719178C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +384,8 @@ magnet:?xt=urn:btih:E80ED80175DA2085D7DDC5B157CEFEA96719178C
 ```bash
 magnet:?xt=urn:btih:3722CD49A7265E10F5EE80E3644B8E8FD640D972
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +411,8 @@ magnet:?xt=urn:btih:3722CD49A7265E10F5EE80E3644B8E8FD640D972
 magnet:?xt=urn:btih:D083DC4D3D3B71732D1980D9D1BE0F486DD03FD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +436,8 @@ magnet:?xt=urn:btih:D083DC4D3D3B71732D1980D9D1BE0F486DD03FD8
 ```bash
 magnet:?xt=urn:btih:5F45B04822C2BA4CA9BD16F0E386E637DA4E4D99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +463,8 @@ magnet:?xt=urn:btih:5F45B04822C2BA4CA9BD16F0E386E637DA4E4D99
 magnet:?xt=urn:btih:4CA6FE4A991750A8B5310D05338847A6C7E7AAE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +488,8 @@ magnet:?xt=urn:btih:4CA6FE4A991750A8B5310D05338847A6C7E7AAE4
 ```bash
 magnet:?xt=urn:btih:65FA16E5B2DB8D037965DD30335B59A5AD10302F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +516,8 @@ magnet:?xt=urn:btih:65FA16E5B2DB8D037965DD30335B59A5AD10302F
 magnet:?xt=urn:btih:7A85D77D3E2B4332680A406C6B4AF808B17F98AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +541,8 @@ magnet:?xt=urn:btih:7A85D77D3E2B4332680A406C6B4AF808B17F98AD
 ```bash
 magnet:?xt=urn:btih:972F4FD4BC01BD91F59C32ABFBD851F33AB5300C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +568,8 @@ magnet:?xt=urn:btih:972F4FD4BC01BD91F59C32ABFBD851F33AB5300C
 magnet:?xt=urn:btih:330804A3F050075BCB7D639927DD4F51B7C38CA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +593,8 @@ magnet:?xt=urn:btih:330804A3F050075BCB7D639927DD4F51B7C38CA1
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +622,8 @@ magnet:?xt=urn:btih:330804A3F050075BCB7D639927DD4F51B7C38CA1
 magnet:?xt=urn:btih:1798800E094F4380AB2150A87B51B01B147B57ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +647,35 @@ magnet:?xt=urn:btih:1798800E094F4380AB2150A87B51B01B147B57ED
 ```bash
 magnet:?xt=urn:btih:27B11DBB53E4D14D4CE5DA944BC93C2D963C4700
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500059   (844311) от 04.10.2021
+
+7-ой гном / Der 7bte Zwerg (2014) BDRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_844311.jpg" />
+</div>
+
+
+###  Подробнее
+
+В замке Фантабулараса большой переполох: принцесса Роза празднует свой 18-й день рождения. Приняты самые строгие меры безопасности, ведь злобная Колдунья Делламорта, которая прокляла Розу на ее крестинах, не позволит проклятию раствориться в воздухе.
+Семеро гномов — Умник, Рыжик, Ворчун, Соня, Силач, Бодряк и Бобо — ничего не знают об этом, когда отправляются на (   Читать дальше...   )Производство: Германия / Animationsfabrik Hamburg, Erfttal FilmЖанр: Мультфильм, Приключения, СемейныйРежиссер: Борис АльиновичАктеры: Джошуа Грэхэм, Мэтт Гилберт, Эл Пэрриш, Джофф Мэй, Джо Март, Камерон Элвин, Дэниэл Велбат, Дов Грэй, Кевин Моррис, Криста КлэхейнПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:27:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DADE6A78EE6CF9E9038BD74D17C22F154022274
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

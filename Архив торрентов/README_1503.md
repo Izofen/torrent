@@ -19,6 +19,8 @@ SophiApp — это графический наследник Sophia Script for 
 magnet:?xt=urn:btih:8D59806DC02E6508FCB41AF08D4ED50122B32467
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ WinMerge является весьма полезной для определе�
 magnet:?xt=urn:btih:DA1AE4A6474443449BB199314F649D09C3F4572C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:08F537D4896C05045E799A0AB4CB04361421584B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Viber для Windows позволяет бесплатно отправлять 
 magnet:?xt=urn:btih:FDC0FB149F071B3E801DB0AB2AD83D39EA6971EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:A992AF26158E002967149A3873C35EBCD8F2F911
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Davinci Resolve Studio 18.0.3 [Multi/Rus]
 magnet:?xt=urn:btih:EDB300C76D1879E017A2761473BA6A6935FB70D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ DNS Changer - это интуитивно понятное и удобное п�
 magnet:?xt=urn:btih:C38EE5DA7E877B629CD8F46A56B0FF9AA820A713
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ QownNotes – менеджер заметок, позволяющий четко
 ```bash
 magnet:?xt=urn:btih:24B6EDC9319D566AE3F0B59EFA635701AE24A9C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:5C0FF821F482FDB34FD7704B7AA95185A5BC5F74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ uTorrent 3.5.5 Build 46514 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8CBC29FDB8D19A8AA7BC16C2554A9C78C173399E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ KeePass Password Safe - удобный менеджер паролей. Хран
 magnet:?xt=urn:btih:47993A8BC5223259DEC04CBA3B333EBF9EF73F28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ PC HelpSoft Driver Updater автоматически сканирует раз�
 ```bash
 magnet:?xt=urn:btih:3C05AF4944FCFC72AF16BF9BFC7AE26F9410E54E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ KeePassXC — программа для управления паролями. �
 magnet:?xt=urn:btih:535C07E4568864C24FA495EE4DE8FB8A28CEE327
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 ```bash
 magnet:?xt=urn:btih:A25DD4408A9876219118BBAAD934165AE03006B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ CCleaner Pro - один из самых известных и популярны
 magnet:?xt=urn:btih:4E31D3802CF4AD08E39D462CD86E7E88D38DED80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Aqua Mail – это почтовая программа для личной и 
 ```bash
 magnet:?xt=urn:btih:610566897D9C0677F794774478EF299917752EB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ simplewall 3.7 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:BF0B4E50544556F5EC59BC24CE5521A299D972FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 ```bash
 magnet:?xt=urn:btih:05E1DD309A7720CF5A3B3EF12F7CC86C1750C5A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:1749D6C80816382691AB7ECAB133E135A22A2C9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Navicat Premium представляет собой очень мощный ин
 ```bash
 magnet:?xt=urn:btih:802AE12F5D509CF3DEC621368ADE056F9B4923A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ FolderSizes 9.5.425 Enterprise [En]
 magnet:?xt=urn:btih:5597B5C53B83618396C01B4394879B85933197A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Pineapple Pictures - это легкая и не требующая устано
 ```bash
 magnet:?xt=urn:btih:1754BAE66E9D3FF935817FB81DF685110E433AE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ HomeBank можно настраивать полностью под себя, �
 magnet:?xt=urn:btih:F80B80B6EE9B6A6445841E3DF8439A4796107FAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:BB8D7508E2F630ACC328586E4F8E975C0EB61408
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ NVCleanstall - портативная утилита от интернет-по�
 magnet:?xt=urn:btih:B9A879BAF82EA55B8CDD8A4335D8CFEC5CA21CA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Visual Studio Enterprise 2022 - Интегрированное комплекс�
 ```bash
 magnet:?xt=urn:btih:5BB8BD18BDCD5B65F49232CF758360395A175190
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:1FC6F0AD8DD38FB30BEE08F8A21DC8D656F1291C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Менты-Песни за милицию и за жизнь (1998) [FLAC|L
 ```bash
 magnet:?xt=urn:btih:FB5D45541E5C9CF9424B01CAC6582E69D755E31A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:FB5D45541E5C9CF9424B01CAC6582E69D755E31A
 magnet:?xt=urn:btih:2FC08959285A9C9258E626580D171DD1C2492614
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Ништяк, браток! Лей и пей (1996) [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:05AFBFCAFC53C2F688A0B62E8FFBAC0592964C06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:05AFBFCAFC53C2F688A0B62E8FFBAC0592964C06
 magnet:?xt=urn:btih:A15ED4CD608059F049AB5A0F88F91487C9A64C38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:A15ED4CD608059F049AB5A0F88F91487C9A64C38
 ```bash
 magnet:?xt=urn:btih:C44250AD08C34915E7189FCAE32ED202CA8A3E01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:C44250AD08C34915E7189FCAE32ED202CA8A3E01
 magnet:?xt=urn:btih:585E7456DA728CB5E4DABCAEB04BA32F3FA63D67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:585E7456DA728CB5E4DABCAEB04BA32F3FA63D67
 ```bash
 magnet:?xt=urn:btih:B9F3631A04CF9A0D7E2FDF21AA38BEB8FD22E95F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - 50 песен радио шансон, Часть 7 (2025) [FLAC|Lossless|W
 magnet:?xt=urn:btih:4A29BC9516EE5C4A204911EE624955328D36C84B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - 25 лет радио шансон (2025) [FLAC|Lossless|WEB-DL|tracks] <Ш�
 ```bash
 magnet:?xt=urn:btih:CC1E3A10B610FB5EEF1E06B9061FD9621C56824E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Новогодняя шансонная-20...06 (2005) [FLAC|Lossless|track
 magnet:?xt=urn:btih:568572AE44686BB3E61677631D84DE44686B3A40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Автоклуб шансона. Хиты в дорогу. 100 (2025) [FLAC
 ```bash
 magnet:?xt=urn:btih:32D88F91631C3942384007E6F7B6AFCED73E9D00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Новые хитовые песни 2025, Часть 10 (2025) [FLAC|Lossl
 magnet:?xt=urn:btih:B580EDDCB14541C0CDECD151E2F6EA4420EAA105
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ magnet:?xt=urn:btih:B580EDDCB14541C0CDECD151E2F6EA4420EAA105
 ```bash
 magnet:?xt=urn:btih:006C969EE6634C8BEDF0DC5813B4CDEDAB0A5C4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Чёрный тюльпан 6 (2005) [FLAC|Lossless|tracks + .cue]<Шанс
 magnet:?xt=urn:btih:75EDC6AD09DEEFF330E12E70C0E4809A0082DF88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Emil Davor -  Une nuit a Moscou (1961) [FLAC|Lossless|WEB-DL|tracks] <Шансо
 ```bash
 magnet:?xt=urn:btih:952A2A12ED451D3E4B87DBB0CC1790641E8D0B93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ magnet:?xt=urn:btih:952A2A12ED451D3E4B87DBB0CC1790641E8D0B93
 magnet:?xt=urn:btih:578B6323ED38E74E2EA79BBC5490926A77DB8D5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ VA - Самые новые песни о любви 11 (2025) [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:32A38113DFC53E16C5E3BF161207E83EB6A1BB2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ VA - Самые новые песни о любви 10 (2025) [FLAC|Lossless|WEB
 magnet:?xt=urn:btih:B1644E00FD0A94D89CD435D3397D19398FC7853D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ magnet:?xt=urn:btih:B1644E00FD0A94D89CD435D3397D19398FC7853D
 ```bash
 magnet:?xt=urn:btih:72B3A21C4A5ABCAB6E8DF4430C1F7EE5C8580CBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ magnet:?xt=urn:btih:72B3A21C4A5ABCAB6E8DF4430C1F7EE5C8580CBC
 magnet:?xt=urn:btih:7B3F66254C740C393F98187D685801805C380C13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ VA - Пацанам городских окраин (2004) [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:31D1C75F530ACACE0AD75D2C406A347B7C9A48CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ magnet:?xt=urn:btih:31D1C75F530ACACE0AD75D2C406A347B7C9A48CD
 magnet:?xt=urn:btih:F6D5605AFE87591CC75FD1862C569012E9DFBC09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ magnet:?xt=urn:btih:F6D5605AFE87591CC75FD1862C569012E9DFBC09
 ```bash
 magnet:?xt=urn:btih:532D90032A4E05AA1A72DE628E0B8D41438E5665
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ magnet:?xt=urn:btih:532D90032A4E05AA1A72DE628E0B8D41438E5665
 magnet:?xt=urn:btih:6C41AD2569898CA7B7D9E63556012D121E56424D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ magnet:?xt=urn:btih:6C41AD2569898CA7B7D9E63556012D121E56424D
 ```bash
 magnet:?xt=urn:btih:4C887F40C6DB372B0476DC02F8B772CA663F6B3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

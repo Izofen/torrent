@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:BD88B3E74AEF668B217AE4FEC5427B44ECD69DE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Arielle - '73 (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:957679063C040A06B3F8668BD4212ACB3B66E50B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:957679063C040A06B3F8668BD4212ACB3B66E50B
 ```bash
 magnet:?xt=urn:btih:FD00FFE2FBFD54FAEC7883E65BB5713F333BB285
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ Vangelis - Compilation (2021) [MP3|320 Kbps] <Instrumental>
 magnet:?xt=urn:btih:B4106F4D0EF28A11634AB8B2D13307FA257D7679
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:B4106F4D0EF28A11634AB8B2D13307FA257D7679
 ```bash
 magnet:?xt=urn:btih:CCDAC85B1F6E6C60FE73086B769355292AB6151B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ AxeWitch - The Last of the Dying Breed - 40 Years in Metal (2023) Compilation [F
 magnet:?xt=urn:btih:BD4BA8E66C0B6147B40054C8C2709F947FFDFB5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:BD4BA8E66C0B6147B40054C8C2709F947FFDFB5E
 magnet:?xt=urn:btih:6E77D8C8079D6151502AED627AE837CA06A59174
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ Stellarium – бесплатный эмулятор звездного неба
 ```bash
 magnet:?xt=urn:btih:63F796A26179F86F2C46FF4A9F6EF15FF8F19743
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:A2EA797B64E9F27A3884BE2000F59624114E98BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:A2EA797B64E9F27A3884BE2000F59624114E98BE
 magnet:?xt=urn:btih:2A2276FEE20E3BA338CE1755CAFD4466AE84038E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:2A2276FEE20E3BA338CE1755CAFD4466AE84038E
 ```bash
 magnet:?xt=urn:btih:9F948FADBF4F53EDFDE66BB363498672ACA5E7AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ Joe Perry - Sweetzerland Manifesto MKII (2023) [FLAC|Lossless|WEB-DL|tracks] <Ha
 magnet:?xt=urn:btih:2BDB40386E79F884BD9343028B39680F0A1D006B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ Shotcut - мощное кроссплатформенное приложение
 ```bash
 magnet:?xt=urn:btih:6727B1E64FFBF0E212D01812857476A024B309F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ Librera PRO: Читалка для книг - это Удобное и легк�
 magnet:?xt=urn:btih:3D43BA2F6B908C004AA7136C025B4F70DE01A64B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:3D43BA2F6B908C004AA7136C025B4F70DE01A64B
 ```bash
 magnet:?xt=urn:btih:D91115B5F3BFDFF814C035CBF694B9FB69DC47EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ Spider God - Fly in the Trap (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black
 magnet:?xt=urn:btih:4883A0E9FB965F75065ECB03F8A7B1CD55FCFE5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ Revo Uninstaller Pro 5.1.4 RePack (& Portable) by Dodakaedr [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F8D57ADC8A69F5B0ABDB4280613299B494108FED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +478,8 @@ Ungoogled Chromium - версия веб-браузера Chromium без инт
 magnet:?xt=urn:btih:39C30BE1F3FBF3145040D2763540A4DF34E498FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ magnet:?xt=urn:btih:39C30BE1F3FBF3145040D2763540A4DF34E498FC
 ```bash
 magnet:?xt=urn:btih:D3B946193320C47A8F0C89C1CA8FB86EA759526D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +533,8 @@ Queens Of The Stone Age - In Times New Roman​.​.​. (2023) [FLAC|Lossless|W
 magnet:?xt=urn:btih:739387AEDD3620ADE4601CF87FAE7A4EB6D8EB37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ magnet:?xt=urn:btih:739387AEDD3620ADE4601CF87FAE7A4EB6D8EB37
 ```bash
 magnet:?xt=urn:btih:2FB5A7770EE26D3BBA2B763A9211DFE642CAC7A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +585,8 @@ RadioMaximus 2.31.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:DAA5EC1D40050258FCF639F2DF7F54EDE65F2FCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +610,8 @@ magnet:?xt=urn:btih:DAA5EC1D40050258FCF639F2DF7F54EDE65F2FCA
 ```bash
 magnet:?xt=urn:btih:62122C29D47CF2C338B3DFCFEA41092CF8F2DB80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +637,8 @@ magnet:?xt=urn:btih:62122C29D47CF2C338B3DFCFEA41092CF8F2DB80
 magnet:?xt=urn:btih:DE68D791FB7672F3D0355179E59FC465E17D24E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +663,8 @@ Athentech Perfectly Clear Video for Mac 4.3.0 [En]
 ```bash
 magnet:?xt=urn:btih:7B121B1C27761F6574EEAEC6A11F371371F0EB91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +692,8 @@ Koan - Don Quixote's Passion (Side C.D) (2023) [FLAC|Lossless|WEB-DL|tracks] <El
 ```bash
 magnet:?xt=urn:btih:8BFC6CD86B263074A36DA73F6A7B36929837B16C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

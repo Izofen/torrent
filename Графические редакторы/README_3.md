@@ -19,6 +19,8 @@ Chasys Draw IES — бесплатная программа, представл�
 magnet:?xt=urn:btih:3C8EC0834F789E32E0728389C9D42A718E131908
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ XnConvert - бесплатная кроссплатформенная утили
 ```bash
 magnet:?xt=urn:btih:89B4C5E9A3261043D4AA5CCFA301EF27779F955F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Topaz Photo AI использует передовые алгоритмы иск
 magnet:?xt=urn:btih:41569281C9E7E76168F778CADAB6B430069C00E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Affinity Photo — обеспечивает более высокую скоро
 ```bash
 magnet:?xt=urn:btih:62C63521100A08E02E3A34C88094C3CAD4EEC7C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ FotoSketcher поможет вам автоматически конвертир
 magnet:?xt=urn:btih:343516FF404D64FB531D92C4936C77E7D1216423
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Polarr Photo Editor Pro 5.11.10 Portable by FC Portables [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A52E7C5859A3BE3A95253D6339F1370D9ED4044A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Topaz Gigapixel AI — это приложение, использующее с�
 magnet:?xt=urn:btih:F9001DD8B3C2C2B31FFF607EBA0191A0967015B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ InPixio Photo Editor - редактор графики, который улуч�
 magnet:?xt=urn:btih:F080FCA9A3394719F5FA9063ABDF9B830A5D0E7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ ABViewer – программный продукт для просмотра г�
 ```bash
 magnet:?xt=urn:btih:348C2B2655AD2F3B3807F69EEB2BCBFDD6571928
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ InPixio Photo Focus предлагает особые инструменты, ч
 magnet:?xt=urn:btih:81CEEEDAA0FD7875061870715DF67C4B27A67A02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ InPixio Photo Maximizer - графическая утилита для увел�
 ```bash
 magnet:?xt=urn:btih:C821EEF00E0BC7A3AF4E89B1CF152E572D567BC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ InPixio Photo Editor - редактор графики, который улуч�
 magnet:?xt=urn:btih:E02F9930C0A6C4D1645EC0A2E163A83997480FC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ InPixio Photo Eraser - программа для удаления ненужны
 ```bash
 magnet:?xt=urn:btih:7A184668591DA31EE151A2AAB0192B174C4AA133
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ Photo Cutter — программа, при помощи которой вы с�
 magnet:?xt=urn:btih:93726217333B344B3A9962A665E58F22D4F2545E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ AVS Image Converter - лёгкая в использовании програм�
 magnet:?xt=urn:btih:9BAF14C8B670FA55D8090C77AE81D51F5F2C5E61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Icecream Slideshow Maker - это приложение для создания �
 ```bash
 magnet:?xt=urn:btih:3FA0EB2A1F168B318D4258F8FF4461F4B7962BED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ Aiarty Image Enhancer (с генеративным ИИ) — это соврем
 magnet:?xt=urn:btih:C450C0D0663E9D925685F5422C3D25D734020C54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ Digiarty AIArty Image Matting — это инновационное програ
 ```bash
 magnet:?xt=urn:btih:C1A30613679779C96B226018D8F616236E073F33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ Pipette — данный продукт пригодится дизайнера�
 magnet:?xt=urn:btih:649EECCDB60EBAF12B12C4332F61D2F4F98D16C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:649EECCDB60EBAF12B12C4332F61D2F4F98D16C4
 ```bash
 magnet:?xt=urn:btih:272C12854F057A516BC2AA19478D4C99FAC5B388
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ InPixio Photo Focus предлагает особые инструменты, ч
 magnet:?xt=urn:btih:482748C952FB7DE7FDFF1187628866A70422DD7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ InPixio Photo Maximizer - графическая утилита для увел�
 ```bash
 magnet:?xt=urn:btih:863A166D0E69EDAC20C097704C0452D6613D1B9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ Movavi Photo Editor – это простой фоторедактор для к
 magnet:?xt=urn:btih:0B9C4937C9712FAEDF92440E83FB214EBA63F058
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ Movavi Photo Editor – это простой фоторедактор для к
 ```bash
 magnet:?xt=urn:btih:2ED73C3AE35C9C92C147FC18BB977EB35244A2AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ DxO PhotoLab Elite 8.2.1.487 (x64) Portable by 7997 [Multi]
 magnet:?xt=urn:btih:E3AD9523AE75FF5E500ED629177BEC7B26CDEC60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:E3AD9523AE75FF5E500ED629177BEC7B26CDEC60
 ```bash
 magnet:?xt=urn:btih:E921A455705131C94D3A058BCCE2115D11854891
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

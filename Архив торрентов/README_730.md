@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:E486D498DE1C2CFB2D8EA3435D7B2948A54016C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Madmen & Poets - Scandinavian Sunday (2010) 2CD [MP3|320 kbps] <Drum & Bass>
 magnet:?xt=urn:btih:27D4F62670E3B99278D6B8A0FDE8C7915EFB2488
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Media Player Classic HomeCinema - удобный во всех планах му
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +109,8 @@ VA - Trance hits vol 2 (2012) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:8BE2A4D4B66CF7F6A5C0A4C355A83CE817A90E22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +143,8 @@ magnet:?xt=urn:btih:8BE2A4D4B66CF7F6A5C0A4C355A83CE817A90E22
 ```bash
 magnet:?xt=urn:btih:D42A09AC331D620A187D06702A63D1F31A5B9859
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +179,8 @@ Whisky Bar - Дура... (2008) [MP3|320 кб/с]<Funk, Punk, R&B>
 magnet:?xt=urn:btih:E4D74BF7E3BA3A9D1F7815FA848CB868188C45EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +207,8 @@ Braincell - Psychedelicious EP (2012) [MP3|320 кб/с]<Psy / Full On>
 magnet:?xt=urn:btih:D13BFF22A39680593AF72CC620A264C31A5FF82F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +232,8 @@ Don Trip ft. Wale, Starlito - I'm A Mess (2012) [H.264/1080р] WEBRip
 ```bash
 magnet:?xt=urn:btih:B49A5D510889102B7135A4E6A7FF100F23AD0467
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +262,8 @@ magnet:?xt=urn:btih:B49A5D510889102B7135A4E6A7FF100F23AD0467
 ```bash
 magnet:?xt=urn:btih:F9E6EA102F93A6B543F4513B001B81739DC53EB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -280,6 +298,8 @@ Dancing Astronaut Radio presents Axis - Episode 01-04 (2012) [MP3|320 кб/с]<E
 magnet:?xt=urn:btih:54451919754A8AE4510522E4153998D3282FE746
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +323,8 @@ magnet:?xt=urn:btih:54451919754A8AE4510522E4153998D3282FE746
 ```bash
 magnet:?xt=urn:btih:C922906EC6CD1AF3A8783B6243214B0DF381FCD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +357,8 @@ magnet:?xt=urn:btih:C922906EC6CD1AF3A8783B6243214B0DF381FCD1
 magnet:?xt=urn:btih:ACA12E8E7F033FF1054DB1DD65B4DF9564728C82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +382,8 @@ magnet:?xt=urn:btih:ACA12E8E7F033FF1054DB1DD65B4DF9564728C82
 ```bash
 magnet:?xt=urn:btih:9FF12C5473F7CD57BB51133F29F5E423553A6981
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +409,8 @@ magnet:?xt=urn:btih:9FF12C5473F7CD57BB51133F29F5E423553A6981
 magnet:?xt=urn:btih:AA6B102DE45EAA81BF6485A0577B961E6E33783E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +434,8 @@ Mike Diamondz - Reason To Feel Love (2012) [H.264/1080р] WEBRip
 ```bash
 magnet:?xt=urn:btih:2392A1B35BEEA1045F5586CC931B6A0EDB4F048E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +465,8 @@ magnet:?xt=urn:btih:2392A1B35BEEA1045F5586CC931B6A0EDB4F048E
 magnet:?xt=urn:btih:91BCF12C0259CD7E4D608C263E309883CBAA21F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +490,8 @@ magnet:?xt=urn:btih:91BCF12C0259CD7E4D608C263E309883CBAA21F3
 ```bash
 magnet:?xt=urn:btih:CBC1701A22C22EE7F66C1CC493D74EB25658E258
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +526,8 @@ VA - NeРусский Шторм - 54 (2012) [MP3|320 кб/с]<Pop,Dance>
 magnet:?xt=urn:btih:D5AFE4607B2B6DF7A80ECFE5C24CBF4A010AC9D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +553,8 @@ magnet:?xt=urn:btih:D5AFE4607B2B6DF7A80ECFE5C24CBF4A010AC9D8
 magnet:?xt=urn:btih:CB6242538174B493EE001108C0D35A4C5C2DF2A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +579,8 @@ MKVToolnix - специальный аудио/видео контейнер, п
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +609,8 @@ MKVToolnix - специальный аудио/видео контейнер, п
 ```bash
 magnet:?xt=urn:btih:35DD3E5D642158463733AFB373D6CA528772BE0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +645,8 @@ magnet:?xt=urn:btih:35DD3E5D642158463733AFB373D6CA528772BE0A
 magnet:?xt=urn:btih:81A9B0DEE539069A17A6E41BB3A877331878E908
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +671,8 @@ magnet:?xt=urn:btih:81A9B0DEE539069A17A6E41BB3A877331878E908
 magnet:?xt=urn:btih:C933FD3C8A89514536C99450A75F4F253FDC9FB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +696,8 @@ magnet:?xt=urn:btih:C933FD3C8A89514536C99450A75F4F253FDC9FB8
 ```bash
 magnet:?xt=urn:btih:30D2052DF62BDDB78BF110C897D8645ADF6B2EEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -678,6 +726,8 @@ magnet:?xt=urn:btih:30D2052DF62BDDB78BF110C897D8645ADF6B2EEF
 ```bash
 magnet:?xt=urn:btih:E49A970804687B3F2F25A89501AD7ACE26A45FA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -711,6 +761,8 @@ VA - Chris Liebing Presents Spinclub (Mixed By Chris Liebing) (2007) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:91F26CE132D67DEB38A6660456BD24FD306D71E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

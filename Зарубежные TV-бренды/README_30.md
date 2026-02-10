@@ -19,6 +19,8 @@ History. Кругосветное путешествие Оззи и Джека 
 magnet:?xt=urn:btih:43A9BDA17DB7126F223D26BAC78C920B8427DC86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NG: Древние греки / The Greeks (2016) HDTVRip (Серии 1-3 из 3
 ```bash
 magnet:?xt=urn:btih:92345A253777ED850EA45A1AA7307AC78754EC4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ BBC. Повседневные чудеса  / Everyday Miracles (2014) HDTVRip [
 magnet:?xt=urn:btih:83EE4D500172ECFA9A2BD1E33C9BBA959CB4A65A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Discovery: Опасная миссия: Хаббл / Mission Critical: Hubble (2
 ```bash
 magnet:?xt=urn:btih:A67F695CD867A78B5DC408FE99B66160432FE23F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:A67F695CD867A78B5DC408FE99B66160432FE23F
 magnet:?xt=urn:btih:C588AA506C2629A8EC807F36FC0F1F0E773EAA58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:C588AA506C2629A8EC807F36FC0F1F0E773EAA58
 ```bash
 magnet:?xt=urn:btih:EBEC5473352080A6F8888EFC36A9EB0BDE8D838E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Discovery. Стальные парни / Steel Buddies (2014) HDTV [H.264/720p] 
 magnet:?xt=urn:btih:8DA65403FEF0337785A101C253417DCC033B34DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:8DA65403FEF0337785A101C253417DCC033B34DE
 magnet:?xt=urn:btih:A28AF9F642F88E93A46F8A40044C9EDE6F6B6991
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ magnet:?xt=urn:btih:A28AF9F642F88E93A46F8A40044C9EDE6F6B6991
 ```bash
 magnet:?xt=urn:btih:8AE867D3899CB1CA6E4AEC5A10956EFAC840C635
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Discovery. Эффект Карбонаро / The Carbonaro effect (2014) HDTVRip
 magnet:?xt=urn:btih:F86E2B080CFBA606EAF2A0C931B7BC0840C4FD63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:F86E2B080CFBA606EAF2A0C931B7BC0840C4FD63
 ```bash
 magnet:?xt=urn:btih:CEE84759AF51A44CA08EE2E4E5CEE4A26367F796
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Discovery: Аляска: Семья из леса / Alaskan Bush People (2018) H
 magnet:?xt=urn:btih:09110E3650ABAA6F7A02AF55474B5FD5E1B43094
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ NGW. Выжить в дикой природе / Survive the Wild(2016) HDTV [H.
 ```bash
 magnet:?xt=urn:btih:5CC12A942B52FD0993B5AEE0064386232D407033
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:5CC12A942B52FD0993B5AEE0064386232D407033
 magnet:?xt=urn:btih:19269132F2F7DA152F79FBEF695A44AD2A9EC855
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:19269132F2F7DA152F79FBEF695A44AD2A9EC855
 magnet:?xt=urn:btih:DD3B6E574493D9AB2160A274FE88968A8CE0C7AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:DD3B6E574493D9AB2160A274FE88968A8CE0C7AD
 ```bash
 magnet:?xt=urn:btih:B5E6302297B59D927EED71B7F94D550A48C0EE9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ BBC: Дикие Карибы / Wild Caribbean (2007) DVDRip (сезон 1, се�
 magnet:?xt=urn:btih:B887F69188B84D24332E0D58166FC4E79292A9BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ NG. Ледяная дорога: Кошмар на дороге! / Ice Road Resc
 ```bash
 magnet:?xt=urn:btih:16CCDD88EAFC3170F1282FFE9324E77A7DC276CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ BBC. Великая битва Александра Македонского / A
 magnet:?xt=urn:btih:3FDEF1B07B49D1D5FE2F70E2974BDF7383D12343
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ BBC: Частная жизнь шедевров. "Свобода на барри
 ```bash
 magnet:?xt=urn:btih:CC2C56382B343F4C7F4253F73448A42B364F1114
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:CC2C56382B343F4C7F4253F73448A42B364F1114
 magnet:?xt=urn:btih:0078F3333113B661C0D42D3C5376AF53907D6007
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ Discovery Channel Россия. Техногеника. Русский колл�
 ```bash
 magnet:?xt=urn:btih:394531D116487A36D0828A0B46698D1E749842EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:394531D116487A36D0828A0B46698D1E749842EB
 magnet:?xt=urn:btih:EF3FF56D3D9256615C3A838F677A0BFB58EE683A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ BBC: Забытые британские рабовладельцы / Britain's 
 magnet:?xt=urn:btih:71F9B0E7338AFC9787CFEEBE710C8AD356ABEF90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ BBC. Российская империя: Династия Романовых / 
 ```bash
 magnet:?xt=urn:btih:4B3D40E64439CD0E6730BFC9D7553BFB2759ACF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +675,8 @@ Discovery: Невидимые миры. Вода / Invisible Worlds. Water (2010
 ```bash
 magnet:?xt=urn:btih:A3819D17F4CA5842C9EC1158FBC9569566FEB659
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

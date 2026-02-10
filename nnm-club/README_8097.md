@@ -19,6 +19,8 @@ Splash n Recolor позволяет преобразовывать ваши фо
 magnet:?xt=urn:btih:4B765BA1903282FC14878F775A76143667272F0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ VA - German Top 100 Single Charts 25.03.2022 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:0DC41C747129B1C8268D9E80D21F3555ADA04416
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Vivaldi 6.0.2979.11 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C3CE45E9840DAB8BBA4DB179D8C2AD26616D6A17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Mark Dwane - The Euphonic Collection (2016) [MP3|320 Kbps] <Chill out>
 magnet:?xt=urn:btih:8E95A1E1F73B7C3F6C2DC9F54B514015E4D18CBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ Metadatics предоставляет возможности поиска мет
 magnet:?xt=urn:btih:23FC3C97F01D06763F1110232E87C5CF5069FB8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:9BE1AB2B9E06BD1DBF742C2056C0ED5674BCC42E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ Topaz A.I. Gigapixel — это первое и единственное при�
 magnet:?xt=urn:btih:E57E515D5DB208563A6C2DAA2AC8B52DAB709796
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:E57E515D5DB208563A6C2DAA2AC8B52DAB709796
 ```bash
 magnet:?xt=urn:btih:FD6C79C71A088779E648B3086BC38D6400CF4B7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ Burning Shadows - Gather, Darkness! (2012) [FLAC|Lossless|image + .cue] <Heavy M
 magnet:?xt=urn:btih:F868220A6D5575125369F5D3E81DDC30891B0ADE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:F868220A6D5575125369F5D3E81DDC30891B0ADE
 ```bash
 magnet:?xt=urn:btih:642AFED8FB9D21B04BDFF170B8A0CC2A29664F38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ Maxthon Browser — многофункциональный браузер со �
 ```bash
 magnet:?xt=urn:btih:2FA3B80E8854FFA6EECC778CA8C098788DA7908F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ Bethlehem - Bethlehem (2016) [MP3|320 Kbps] <Black Metal, Dark Metal>
 magnet:?xt=urn:btih:FB69F7CA692724D2E68A097F13EE2971A069B0FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:FB69F7CA692724D2E68A097F13EE2971A069B0FA
 ```bash
 magnet:?xt=urn:btih:F0B11BB11C75172518D31BF6CB6FEDB9CF29E102
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:F0B11BB11C75172518D31BF6CB6FEDB9CF29E102
 magnet:?xt=urn:btih:58849D7A52C4320420060786424225082EF4A4C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:58849D7A52C4320420060786424225082EF4A4C4
 magnet:?xt=urn:btih:5F0DD811E77C4474C472D38F5F6E8BCF5C6E2769
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:5F0DD811E77C4474C472D38F5F6E8BCF5C6E2769
 magnet:?xt=urn:btih:F605F0FE06F48AD9204180179D5185B7543188B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:F605F0FE06F48AD9204180179D5185B7543188B3
 ```bash
 magnet:?xt=urn:btih:3800A6D9F8CD841C8B28B4DB712299129DD2AEF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ Hounds Of Bayanay (Псы Байаная) - Legends Of The North (2023) [FLAC|Lo
 magnet:?xt=urn:btih:3CDCEDDBF7ECBE02D99F77BB84C0D2B3E96FCE20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ Silence In Solitude - Resurgence (2016) [MP3|320 Kbps] <Melodic Death Metal, Met
 ```bash
 magnet:?xt=urn:btih:5CCDD8750F9E77163235C3BB62BA061C2D122ECE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +541,8 @@ Remedy - Something That Your Eyes Won't See (2022) [FLAC|Lossless|image + .cue] 
 magnet:?xt=urn:btih:5980C77903181D682891DC1D80CEDA46003FC6DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +568,8 @@ iFlicks — это метаданные к сериалам и фильмам. �
 ```bash
 magnet:?xt=urn:btih:FE53CD8205D183D55F2C74D513EA7764EC140A48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +598,8 @@ EVO (Eternal Voice of Orbits) - 3 Albums (2021-2022) [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:6C7CC3FB4B8C34C9DA0E9B872DE8557C9CA8FD81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +627,8 @@ A4 Little T & A(   Читать дальше...   )Жанр: Classic RockПро�
 magnet:?xt=urn:btih:B16E4AD61C6AD3EEEFF5F7BF3E6204BD4DD851EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +653,8 @@ magnet:?xt=urn:btih:B16E4AD61C6AD3EEEFF5F7BF3E6204BD4DD851EA
 ```bash
 magnet:?xt=urn:btih:9B13C4B4155ACA1FBA82561A3CE7B2E763D2508A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +683,8 @@ Jeremy Pelt - November (2008) MaxJazz [FLAC|Lossless|tracks + .cue] <Post-Bop, S
 magnet:?xt=urn:btih:6D9ED469781C739079E9D6D9FE84A93371092262
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +709,8 @@ magnet:?xt=urn:btih:6D9ED469781C739079E9D6D9FE84A93371092262
 ```bash
 magnet:?xt=urn:btih:302922084AC13A3E9B5DF7C5BFDF8672067349BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

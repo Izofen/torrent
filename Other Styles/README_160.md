@@ -22,6 +22,8 @@ Relax With... Ocean's Relaxing Surf (1996)(   Читать дальше...   )Ж
 magnet:?xt=urn:btih:7A5B2727FE8EEB37F5F098B0BDBA6D9ACE89E4FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Blue Seas Grand Orchestra - Poetry of The Natures (2013) 2CD Digipack Edition [F
 ```bash
 magnet:?xt=urn:btih:671E8570ABBB64C42B87FFB92B70D15275EB2DFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Sudha - Planet Love (2004) [APE|Lossless|image + .cue] <New Age, Meditative>
 magnet:?xt=urn:btih:825806DFE3E0E2675C809FE65ABB0029C0DB89FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Oystein Sevag - Space For A Crowded World (2012) [FLAC|Lossless|image + .cue] <N
 ```bash
 magnet:?xt=urn:btih:0ED63C4CA8FBB6F5D5AFD1408F8C0A661F66AEBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Satyaa & Pari - To the One (2010) [FLAC|Lossless|tracks + .cue] <Spiritual, New 
 magnet:?xt=urn:btih:1C60BCAA31ACC26F3A066BB60622CF974CBC02E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Art of Empathy - Posthuman Decadence (2012) [FLAC|Lossless|tracks + .cue] <Neofo
 ```bash
 magnet:?xt=urn:btih:9B1CD013437DCCA3B16E87F520C8976572FA0FDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +201,8 @@ Arktor - Cotton Mather Estates (2013) [FLAC|Lossless]<Ambient, Downtempo, Drone,
 magnet:?xt=urn:btih:C2A4B17C33DE489519E5C7E2E9888B2AF0B84C5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +231,8 @@ Danny Elfman & VA - Пятьдесят оттенков серого / Fifty Sha
 magnet:?xt=urn:btih:991545E92BE53016AB1E35AD7D039AEA0EDE968A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +260,8 @@ Tina Guo (28.10.1985) – американская виолончелистка 
 magnet:?xt=urn:btih:369B839FAA2B99FF840CB313750A924DD746D134
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +288,8 @@ Pravin (Правин, Павел Новиков) - Swarg Ashram (2008) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:D391C1117C620DEFA1D1121A202B1171D3F29E42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +324,8 @@ magnet:?xt=urn:btih:D391C1117C620DEFA1D1121A202B1171D3F29E42
 magnet:?xt=urn:btih:1AB4DD62D51068485D6649E9170DE2E73CF76B4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +350,8 @@ Donovan - Discography (30 albums) (1965-2007) [MP3|160-320 kbps] <Folk-Rock, Psy
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +386,8 @@ Donovan - Discography (30 albums) (1965-2007) [MP3|160-320 kbps] <Folk-Rock, Psy
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +416,8 @@ Enam - Voices We Were (2015) [FLAC|Lossless|WEB-DL] <New Age, Ethereal, Downtemp
 magnet:?xt=urn:btih:D5BF0EB57262F6D9345A96ED872CF6377BCD2D6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +441,8 @@ VA - The Full Moon Archive Music Collection (2010) [MP3|~181 кб/с (V2)]<Sound
 ```bash
 magnet:?xt=urn:btih:1D6C864A4F643FB92551373EE8738D2AB7DF7CDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +470,8 @@ VA - Ruhelounge Entspannungsraum (2016) [MP3|320 кб/с] <Chillout, Lounge, New
 ```bash
 magnet:?xt=urn:btih:E1008FB75798382675AFCBE853477B69C66DD21F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +506,8 @@ Bernward Koch - Day Of Life (2013) [FLAC|Lossless]<New age>
 magnet:?xt=urn:btih:862B1BDD8D7B3380C50D1AC2261D7C44A7E15021
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +541,8 @@ VA - Accordion Collection (2009) [MP3|320 kbps]<Instrumental | Accordion>
 magnet:?xt=urn:btih:B77CA45A5103D0B3BA1C18E6F6D20B17BA977655
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +569,8 @@ Tout Pour La Musique (1982)
 ```bash
 magnet:?xt=urn:btih:9BB60695DD88369EF16A698390B52F063C184DFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +605,8 @@ Martin Nemec - Angel Voices (1994) [FLAC|Lossless]<New ega, Meditative, Relax>
 magnet:?xt=urn:btih:E13CFA62B37A21DAF7EC83EC4B3E3BB9C5FA1158
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +639,8 @@ Waykey - Waykey (2007) [FLAC|Lossless]<New Age, Native American>
 ```bash
 magnet:?xt=urn:btih:E1E8AEB98A5AFC5CA0262F1F2966BCA06F9AD340
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +675,8 @@ Philip Wesley - Heart to Hands: A Solo Piano Retrospective 2002-2012 (2012) [MP3
 magnet:?xt=urn:btih:E6B0C1787B439BF75E2A66AB2E09329D6F812907
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +705,8 @@ John Frizzell - Лофт / The Loft (Original Motion Picture Soundtrack) (2015) 
 magnet:?xt=urn:btih:8C315127AB1BCAC9F03B749A9984431F295FDEE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -687,6 +733,8 @@ OLIGARKH - Анатолий (2016) [MP3|320 кб/с] <Folk, Hip-Hop, Electronic,
 ```bash
 magnet:?xt=urn:btih:617ABB2594A99B43D883AC540E20299711B626E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -715,6 +763,8 @@ magnet:?xt=urn:btih:617ABB2594A99B43D883AC540E20299711B626E0
 magnet:?xt=urn:btih:F103713C1019B82535EEBEBECB6758EDA0EB9522
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -741,6 +791,8 @@ Gomer Edwin Evans - Mystical Eastern Beauty (2016) [MP3|320 кб/с] <New Age, I
 ```bash
 magnet:?xt=urn:btih:8FA92468514816D0B6B410B9B032C5725E6168DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

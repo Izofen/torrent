@@ -20,6 +20,8 @@ Sumatra PDF — мощная, небольшая программа с прос�
 magnet:?xt=urn:btih:C84FC28212FA6014488BE5764DB4F98A038CBF82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:C84FC28212FA6014488BE5764DB4F98A038CBF82
 magnet:?xt=urn:btih:2D9F671359A9A30B54C6097FF8A82FABA7706880
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 ```bash
 magnet:?xt=urn:btih:402FCAE4801A9CCE9A9E7DDC8CE6E0A71AD33043
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:402FCAE4801A9CCE9A9E7DDC8CE6E0A71AD33043
 magnet:?xt=urn:btih:271F20DD81C94D1F4643E1E8845A2F81174EFBAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:271F20DD81C94D1F4643E1E8845A2F81174EFBAD
 magnet:?xt=urn:btih:AF97B13D052DCDC0B4643C0C1E04129D7F142CF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ WinCHM - небольшая утилита для создания файлов 
 ```bash
 magnet:?xt=urn:btih:1A39735497326727FC309B80D4B79BA02CFF08AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:1A39735497326727FC309B80D4B79BA02CFF08AD
 magnet:?xt=urn:btih:0F312A3A1928B77CDF52F13CCDC8D510B25E5D5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ Powerwolf - Missa Cantorem II (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 magnet:?xt=urn:btih:8E1B8CC9EE2CB29CC23F9415D32B53B338B3472B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:8E1B8CC9EE2CB29CC23F9415D32B53B338B3472B
 ```bash
 magnet:?xt=urn:btih:FA1C53CA59BE8395938D39EAB6A6460217093B28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:FA1C53CA59BE8395938D39EAB6A6460217093B28
 magnet:?xt=urn:btih:ECDB8CCDBC8855EB6A9874DBA90C24E1E1975126
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:ECDB8CCDBC8855EB6A9874DBA90C24E1E1975126
 magnet:?xt=urn:btih:C3440AB5A7D0A9B9615E568B11DF46BFD588896D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ World Barista Championship - кофейный чемпионат мира, пр�
 ```bash
 magnet:?xt=urn:btih:4862320C0170E7F304EC0476E8A798B8529CEEBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:4862320C0170E7F304EC0476E8A798B8529CEEBC
 magnet:?xt=urn:btih:9E5E6F288D00512375591C573EED39DA1C287F8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:9E5E6F288D00512375591C573EED39DA1C287F8E
 ```bash
 magnet:?xt=urn:btih:66C95B8E0517945CD904D32D8B78FA78DD4F28F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ Sodomy Down The Cross - 2 Albums (2021-2022) [MP3|320 Kbps] <Dark electro>
 magnet:?xt=urn:btih:58E0CA8BC76060ABCA607184BEA54E10AD2E1349
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:58E0CA8BC76060ABCA607184BEA54E10AD2E1349
 ```bash
 magnet:?xt=urn:btih:5A002FBCAE23F817D7B0E4AC1C90FC91EE88F1A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +456,8 @@ VA - Prog Rock For Rookies Vol.2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 magnet:?xt=urn:btih:AF71EA5C6125E638FDCF93A8B7E8952C68585AD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ Krik Band - Алиса. Безумие возвращается (2023) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:D7675148C9446625612F2D2958492E1B433A526F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +514,8 @@ VA - Chillout Autumn Gems 2022: Chillout Your Mind [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:EC6BD6A22D491D3378CFCB3C2D5CAE5A3F8F2FE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:A43DFFD59CA6965C25379D6223720C6EEE50E153
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +566,8 @@ doPDF — программа для преобразования докумен�
 ```bash
 magnet:?xt=urn:btih:F3D80611AFA6136690F55F278EA3C9B100F020C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +596,8 @@ Joe Lynn Turner - Belly Of The Beast (2022) [FLAC|Lossless|image + .cue] <Heavy 
 magnet:?xt=urn:btih:9173594AC0E50B01DC3202FDB7D33D81D98A449E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ VA - KuschelRock 11 (1997) 2CD [FLAC|Lossless|tracks + .cue]<Pop, Rock>
 magnet:?xt=urn:btih:019A7E3D2E23A3D94CCD1EEBBF7B250A874F98EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ magnet:?xt=urn:btih:019A7E3D2E23A3D94CCD1EEBBF7B250A874F98EA
 ```bash
 magnet:?xt=urn:btih:D2E046E2ECEADBF08316F7A9C2199DB09A14DC29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +677,8 @@ WPS Office - очень полезное, офисное приложение д
 magnet:?xt=urn:btih:F9B580888F1969513C4EC10F1CB4FCB6D2A58CB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ magnet:?xt=urn:btih:F9B580888F1969513C4EC10F1CB4FCB6D2A58CB4
 ```bash
 magnet:?xt=urn:btih:96D9DC44E559D4490689ECA2D3161A77620C4AD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Origen - 6 альбомов (1996-2009) [MP3|192-320]<new age, ambient, meditati
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ VA - Woman Trance Voices vol.12 (2015) [MP3|320 кб/с]<Trance, Progressive Tra
 ```bash
 magnet:?xt=urn:btih:4F8830E7CB1EFA80BC67ACB1956C0721135A97C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - The Very Best of Chill Out Vol 2 (2015) [MP3|320 кб/с]<Downtempo, Chillo
 magnet:?xt=urn:btih:E105BF2D83B585956415A73EFB1DCA78B31ADA86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Der Blaue Reiter - Discography 9 Releases (2006-2019) [MP3|320 Kbps] <Dark Ambie
 magnet:?xt=urn:btih:5015F9836F5F1964DD0EFCD8874FBCF7EDA96F8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ VA - Uplifting Only Top 15: July (2022) [MP3|320 Kbps] <Trance, Uplifting Trance
 ```bash
 magnet:?xt=urn:btih:C8896CC3370B0D8352C5813EC5E1A450E17925D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -159,6 +169,8 @@ The Cinematic Orchestra - Discography (1999-2010) 8 Альбомов [FLAC|Lossl
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +198,8 @@ Sexy Chillout Music Cafe, Chillout Music Ensemble - Sexy Exotic Music (2019) [MP
 magnet:?xt=urn:btih:7EE5B2585A2D2501897023421A39188E4C7FD022
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +226,8 @@ VA - Summertour (2019) [MP3|320 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:6DC943E4089A694A25AFE25E3C3D2BA2357681B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +262,8 @@ VA - Erotic Summer Chill House Vol. 2 (2012) [MP3|320 кб/с]<Deep House, Chill
 magnet:?xt=urn:btih:B3869387C770C56916E1028C12F69834ED74AD2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +291,8 @@ VA - Summer Gold Chill Out (Relaxing Music For A Wonderful Dawn On The Beach) (2
 magnet:?xt=urn:btih:FBAA16838AC9964F36265782B8292E766BF46E09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +319,8 @@ VA - Northern Summer (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive Hous
 ```bash
 magnet:?xt=urn:btih:AA38FCEA4F5C940C0C2D674F442B12E47FF1D30C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +353,8 @@ KDK Records - 72 Релиза
 magnet:?xt=urn:btih:00E3C543A8E68FC63E471D9345AD75DC56614848
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +380,8 @@ Julius Dobos | Forgotten Future - Discography 6 Releases (1998-2017) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:BB492F5B5EDB2E2B92075BFE9D9321B3CC07C934
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +410,8 @@ VA - Joey Negro presents Ibiza 2019 (2019) [FLAC|Lossless|WEB-DL|tracks] <Electr
 magnet:?xt=urn:btih:16D7A37B3445ABFC2E76C12D3A14F49EC41774F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +438,8 @@ Underworld - Drift Episode 3 "Heart" (2019) [FLAC|Lossless|WEB-DL|tracks] <Techn
 ```bash
 magnet:?xt=urn:btih:47121C860685707A227379F7C6F8E8A7A55D46B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +468,8 @@ A Hundred Birds - To The EdEN (2007) [MP3|320 Kbps] <Ambient, Jazzdance>
 magnet:?xt=urn:btih:B18B7221388303A74CD6CE170F45F396CDF5C0B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +497,8 @@ Tiesto - Big Beat Radio 200 (Hot In It Summer 2022 Mix) (2022-07-11) [MP3|320 Kb
 magnet:?xt=urn:btih:826EEE632556A5F14F897D4AB7EAD1D0F862974A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +525,8 @@ VA - Beatport Trance Top 100: June [Extended] (2022) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:6310B36FB08E33C04920AB7D63F4BB5A42C2C16E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +561,8 @@ VA - Messages Ibiza 2012 (compiled & mixed By Spiritchaser) (2012) [MP3|320 кб
 magnet:?xt=urn:btih:71B0280D48BCDF65630F285937483041527A23CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +596,8 @@ VA - London Chill House Night - Chilled Grooves Deluxe Selection (2012) [MP3|320
 magnet:?xt=urn:btih:0D23931980BEC2E6C4F37FDB9B4C0D94D5BBE4F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +624,8 @@ DubVision @ S2O Songkran Music Festival Korea, South Korea 2022-07-10:
 ```bash
 magnet:?xt=urn:btih:D404249E1B34B47FDF0964EA70AFCEAAF99300FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +660,8 @@ Depeche Mode - Playing the Angel (2005) [FLAC|Lossless]<Electronic / Synth-pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +687,8 @@ VA - Trance Nation: The 90s (2019) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:7C4A6426D0BBA63A1E5B735B4FD2C0B7FFFC8B25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +712,8 @@ VA - Buddha Deluxe Lounge Vol 4: Mystic Bar Sounds (2012) [MP3|320 кб/с]<Chil
 ```bash
 magnet:?xt=urn:btih:7138039212749935BD9C05681C0DCB5C048E42F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -694,6 +742,8 @@ SIM80 - Kinetic Origins (2019) Detroit Underground [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:BD1932F9E3E192B8C2323264082DBBFE079E82C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -720,6 +770,8 @@ VA - Big City Chillout Moments (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lou
 ```bash
 magnet:?xt=urn:btih:00E403269BEE9BAA41F675C8EF6D2FAE1ED86638
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

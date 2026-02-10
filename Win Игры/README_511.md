@@ -1,27 +1,3 @@
-###  Публикация: 1496159   (874323) от 16.09.2021
-
-Eastward (2021) [Multi] (1.0.5) License CODEX
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874323.jpg" />
-</div>
-
-
-###  Подробнее
-
-В не столь далёком будущем цивилизация начинает рушиться, и человечество оказывается на грани вымирания. Смертоносное вещество струится по земле, разрушая и искажая всё на своем пути. Те, кому посчастливилось избежать ядовитых испарений, пытаются наладить свою жизнь в подземных убежищах. Но один трудолюбивый шахтёр и его таинственная спутница покидают безопасное (   Читать дальше...   )Тип издания: LicenseРазработчик: PixpilЖанр: RPG, Action, AdventureЯзык субтитров: Английский, Японский, Французский и другиеЯзык интерфейса: Английский, Японский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B317810DC9854FDDB5800B7ACF76EEAADDB6CF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105948   (874513) от 18.02.2017
 
 Okhlos: Omega (2016) [Ru/Multi] (2.0.1) License GOG [Omega Olympus Edition]
@@ -42,6 +18,8 @@ Okhlos: Omega (2016) [Ru/Multi] (2.0.1) License GOG [Omega Olympus Edition]
 ```bash
 magnet:?xt=urn:btih:99310EF57B0A519068BE9369A07D6C71C379986A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Eventide: Slavic Fable / На закате. Предания славян (2015)
 magnet:?xt=urn:btih:EA8013A29527171F63BD8285C66BC52B2B3F807B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ The Others (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:E4460A176A14C9C3E3F05780CD308F1B3B1ABE0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Leeloo's Talent Agency / Агентство Талантов Лилу (2009) [Ru
 magnet:?xt=urn:btih:4243B436B9CE20E44E5A25654D85ABC1BD4156FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ ATOM RPG: Trudograd (2021) [Ru/En] (1.0/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:02ACEA84B6837FD88B972ED4AC99975232BBC6D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ X4: Foundations - это космический симулятор, продол
 magnet:?xt=urn:btih:0C8A8C072D2E99B3D66A0216EBDDBAE798BBE410
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ The Wardrobe - весьма занятный квест от студии C.I.N.
 ```bash
 magnet:?xt=urn:btih:9199B363061C13F5BEA437086328284EBD340447
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Space Legends: At the Edge of the Universe (2014) [En] Unofficial
 magnet:?xt=urn:btih:BFF829DD809A3B90F32C5C16689E182E95F572EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ Mind Snares: Alice's Journey (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:52D878397F2664493714766DCBE1098479C51EB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +256,8 @@ Unknown Battle (2016) [Ru/En] (1.0) License FANiSO
 magnet:?xt=urn:btih:46F3F7D7542EB2771672B0AD996E26BBB51062C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +281,8 @@ Farm to Fork  / С грядки на стол (2014) [Ru] Unofficial [Collector'
 ```bash
 magnet:?xt=urn:btih:1DE490948D108E167F18119FE52778F621711D32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +308,8 @@ Royal Envoy 3 (2014) [Ru] Unofficial [Collector's Edition / Коллекцион
 magnet:?xt=urn:btih:4C441EBEECE0FF5C03D256FCD8AB3ADEB20D4117
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +333,8 @@ Farming Simulator 17, разработанный компанией Giants Softw
 ```bash
 magnet:?xt=urn:btih:11FFA5843F19410446E046FBEA4ECD6459DD1A8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +360,8 @@ Drizzlepath: Glass (2017) [Ru/Multi] (1.0.0) License HI2U
 magnet:?xt=urn:btih:72469F599D2F01E2EB8CACD48E7DCC115A2119A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +385,8 @@ The Book of Unwritten Tales 2 (2015) [Multi] (4.6.1.182341/dlc) License GOG [Alm
 ```bash
 magnet:?xt=urn:btih:C518E28A53036C3A2083B548AD6EFBA29867C546
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +412,8 @@ Daemon X Machina (2020) [Multi] (1.0.1/dlc) License CODEX
 magnet:?xt=urn:btih:78900899E4290E742CF307BE51E15B05732C85EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +437,8 @@ Shadow Blade: Reload (2015) [Ru/Multi] (1.0/upd3) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:F10043C3D237CE9E1162EBB15942B2FCA918A77D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +464,8 @@ Global Ops: Commando Libya / Приказано уничтожить: Опера
 magnet:?xt=urn:btih:D91B74C60D9550D557A75C1B0015C2F6D02A18D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +489,8 @@ RISK™: Factions (2011) [En/Multi] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:31EB0146FD69D081AF661288F3DBE7E0DC205D35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +516,8 @@ RPG о выживании в городе. Человечество порази
 magnet:?xt=urn:btih:7AA101640C53BED50F14E16D24A7A2327338BAE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +542,8 @@ Shadow Blade: Reload (2015) [Ru/Multi] (1.0/upd 3) License POSTMORTEM
 magnet:?xt=urn:btih:F76EA75531015B53190983F09F6B8D37CA814073
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +567,8 @@ Blacklight: Retribution - бесплатный шутер от первого л
 ```bash
 magnet:?xt=urn:btih:16A2722CEE0FB902DBCFD8511C5457AAFABBDF0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +595,8 @@ MX Nitro (2017) [Ru/Multi] (5.4.4.14695) Repack R.G. Механики
 magnet:?xt=urn:btih:9226CB01989E3880888021565ADEDE179FF6BD23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +621,8 @@ magnet:?xt=urn:btih:9226CB01989E3880888021565ADEDE179FF6BD23
 magnet:?xt=urn:btih:F8F9F86344359CEFC54CFCCFAC3F84A987C4377D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +646,34 @@ Dear Esther: Landmark Edition - улучшенная версии популяр
 ```bash
 magnet:?xt=urn:btih:BC20C9DF4DDB6EE9707829A533B8BACFADFFF706
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104519   (879268) от 15.02.2017
+
+Halfway (2014) [En] (1.2.9) Repack R.G. Механики
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Halfway — это пошаговая RPG стратегия, события которой происходят через несколько сотен лет в будущем. Человечество развилось и начало колонизировать новые миры, и до сих пор они были одни. В игре вы берёте на себя управление небольшой командой выживших, которые столкнулись с жестоким вторжением на борт колониального судна Голиаф.Тип издания: RepackРазработчик: RobotalityЖанр: Tactical strategy (Turn-Based), RPGЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7976920D58344534D99FC18B8233A4A654D17B3A
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

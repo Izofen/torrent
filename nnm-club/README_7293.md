@@ -22,6 +22,8 @@ Outlaw Blood - Outlaw Blood (1991) [MP3|320 Kbps] <Hard Rock>
 magnet:?xt=urn:btih:A4B8CC5A38D259E50E750BCFB55F07713DFB7B95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:A4B8CC5A38D259E50E750BCFB55F07713DFB7B95
 magnet:?xt=urn:btih:44569E774037E2765BD718C91E5345CADD8958CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Opera 65.0.3467.62 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:422BB58B627F42813721A2313076194FE04BA2BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Stand Up (2016.12.18) SATRip (Концерт Стаса Старовойтова
 magnet:?xt=urn:btih:ACDE0489664292D0C8E3F443D2E16A61882A5966
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:ACDE0489664292D0C8E3F443D2E16A61882A5966
 ```bash
 magnet:?xt=urn:btih:16A0397896A8F9610899C492D4294EBB9748E177
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ The Who - WHO (2019) Deluxe Edition [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:7122B25EF2C6EE20D73B5680C40E4F9C3DAAB077
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:7122B25EF2C6EE20D73B5680C40E4F9C3DAAB077
 magnet:?xt=urn:btih:342B26CFCB1FF132D166070167286F49F5AB50C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:342B26CFCB1FF132D166070167286F49F5AB50C3
 ```bash
 magnet:?xt=urn:btih:3B7E51F7B48869F00D85A45E51BBE13BBE88AD9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ Capture One Pro один из самых мощных профессиональ
 magnet:?xt=urn:btih:FD90639B1632150C093E93F56C5B7D239D9C6C1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:FD90639B1632150C093E93F56C5B7D239D9C6C1C
 ```bash
 magnet:?xt=urn:btih:25FEB0652D7D870E4FBCE27F7839F75DE6466223
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Metallica - 10 альбомов (1983-2008) [FLAC 2.0 24/192 |image + .cue, trac
 magnet:?xt=urn:btih:F5EACFB4F24BFC2BE25D2EF825526C7A13236BB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:F5EACFB4F24BFC2BE25D2EF825526C7A13236BB8
 ```bash
 magnet:?xt=urn:btih:BACF876FD4200F06B5CFA32CDB4AA58B26560529
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:BACF876FD4200F06B5CFA32CDB4AA58B26560529
 magnet:?xt=urn:btih:681F1F19782D16B59C58EBD84D673B993E975B6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:681F1F19782D16B59C58EBD84D673B993E975B6D
 ```bash
 magnet:?xt=urn:btih:83A8FC4BFC0092F050D4356B6F74C93168042C69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:83A8FC4BFC0092F050D4356B6F74C93168042C69
 magnet:?xt=urn:btih:7539E61EFF812AAEA73561B62A942117D6FB274C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:7539E61EFF812AAEA73561B62A942117D6FB274C
 magnet:?xt=urn:btih:47983D8CC90F182483F1E67528ACC9BA32836D25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ Chess — одни из лучших шахмат для Android.
 ```bash
 magnet:?xt=urn:btih:F2839C2A2D44BAD8C3C4D143B41E4C659775B678
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +478,8 @@ Michael Jackson - Dangerous (1991) [FLAC|Lossless|tracks + .cue] <Soul, Ballad, 
 magnet:?xt=urn:btih:786CADE3A1935FF18688495D2272109A61D5ADC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ Elephant Games представляет новейшее увлекательн�
 ```bash
 magnet:?xt=urn:btih:AA5BAC53F4AFCAC69C0D80A3136BBA2B0130F46D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:AA5BAC53F4AFCAC69C0D80A3136BBA2B0130F46D
 magnet:?xt=urn:btih:D2E169F6A06E0C96DD8ECA5180CBD611494A7216
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ magnet:?xt=urn:btih:D2E169F6A06E0C96DD8ECA5180CBD611494A7216
 magnet:?xt=urn:btih:12C048632264C58680F3586C19D67922DE63AC65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +583,8 @@ magnet:?xt=urn:btih:12C048632264C58680F3586C19D67922DE63AC65
 ```bash
 magnet:?xt=urn:btih:87C6A518F5E55E2F5D845299E2B96CBEA986D73F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +613,8 @@ magnet:?xt=urn:btih:87C6A518F5E55E2F5D845299E2B96CBEA986D73F
 magnet:?xt=urn:btih:F5EC6EF31DE663AD75272A84269EEF538E870F91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ magnet:?xt=urn:btih:F5EC6EF31DE663AD75272A84269EEF538E870F91
 magnet:?xt=urn:btih:03A6D286FCE6E35968C037BF48CC2283556A51D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:03A6D286FCE6E35968C037BF48CC2283556A51D3
 ```bash
 magnet:?xt=urn:btih:9D12889EB3E14E94BF51235C1976A2CAE1A9B8A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +693,8 @@ VA - Deep House Collection Vol.101 (2016) [MP3|320 Kbps] <Deep House, Club House
 ```bash
 magnet:?xt=urn:btih:0819E5A46A5862B65FE60932DE6B365E9945028C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

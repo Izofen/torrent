@@ -28,6 +28,8 @@ Various Artists - Архив военной песни (2012) [MP3|320 кб/с]<
 magnet:?xt=urn:btih:50EA66EF269C877C92B7038C9353194CD52E0132
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ magnet:?xt=urn:btih:50EA66EF269C877C92B7038C9353194CD52E0132
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ magnet:?xt=urn:btih:50EA66EF269C877C92B7038C9353194CD52E0132
 magnet:?xt=urn:btih:9108E32041CA333CA593506EF8CBAC0A5081CC0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +132,8 @@ magnet:?xt=urn:btih:9108E32041CA333CA593506EF8CBAC0A5081CC0D
 ```bash
 magnet:?xt=urn:btih:A80BA72739D5A18EE2F3A10A9EEC755ECCB655C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +168,8 @@ magnet:?xt=urn:btih:A80BA72739D5A18EE2F3A10A9EEC755ECCB655C4
 magnet:?xt=urn:btih:58CF6BDA75E00491CFCD4AF8B8C70C5CC7A1464A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +196,8 @@ magnet:?xt=urn:btih:58CF6BDA75E00491CFCD4AF8B8C70C5CC7A1464A
 ```bash
 magnet:?xt=urn:btih:DBB5F319C699A8A84F7E05A9BEAEC12F01451056
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +226,8 @@ magnet:?xt=urn:btih:DBB5F319C699A8A84F7E05A9BEAEC12F01451056
 magnet:?xt=urn:btih:C02E34812AD096CF4423E0622B1CAC9D4F91EA8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +254,8 @@ magnet:?xt=urn:btih:C02E34812AD096CF4423E0622B1CAC9D4F91EA8D
 ```bash
 magnet:?xt=urn:btih:2529EE26B0CE425EDEE54F7032F80CA2BB32101B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +284,8 @@ magnet:?xt=urn:btih:2529EE26B0CE425EDEE54F7032F80CA2BB32101B
 magnet:?xt=urn:btih:8C99A6BAE8A78C82CBA3D9232ECA2D300138074B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +312,8 @@ magnet:?xt=urn:btih:8C99A6BAE8A78C82CBA3D9232ECA2D300138074B
 ```bash
 magnet:?xt=urn:btih:FA61EF63393C5081C69F1853A536692E84899B27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +342,8 @@ magnet:?xt=urn:btih:FA61EF63393C5081C69F1853A536692E84899B27
 magnet:?xt=urn:btih:9B04CE813BA9ABA4A2B12BFD37D343B70D9B57B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +370,8 @@ magnet:?xt=urn:btih:9B04CE813BA9ABA4A2B12BFD37D343B70D9B57B4
 ```bash
 magnet:?xt=urn:btih:38DFCCFDE8C65F11BB19BB67C6859847AFDEABBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +400,8 @@ magnet:?xt=urn:btih:38DFCCFDE8C65F11BB19BB67C6859847AFDEABBE
 magnet:?xt=urn:btih:CF4FF085D5FA76F03114D177821D4137620E8E08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +428,8 @@ magnet:?xt=urn:btih:CF4FF085D5FA76F03114D177821D4137620E8E08
 ```bash
 magnet:?xt=urn:btih:1CD6DACE33CFD0D769A1C45EC136C501C73AFAC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +458,8 @@ magnet:?xt=urn:btih:1CD6DACE33CFD0D769A1C45EC136C501C73AFAC0
 magnet:?xt=urn:btih:F7B10F399BD840A2BF171DB1DBB32E5FBB46DB90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +487,8 @@ magnet:?xt=urn:btih:F7B10F399BD840A2BF171DB1DBB32E5FBB46DB90
 magnet:?xt=urn:btih:1035C47F7A68C580189025E5B98062D7CD7990DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +515,8 @@ magnet:?xt=urn:btih:1035C47F7A68C580189025E5B98062D7CD7990DE
 ```bash
 magnet:?xt=urn:btih:B23D3E3799621FEDBD45909F7E188DF8C804605B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +551,8 @@ VA - Единственной и любимой (2007) [MP3|320 kbps]<Военн
 magnet:?xt=urn:btih:F4CE95657223FD65EF70F216609D2937E4546D81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +585,8 @@ VA - Дорожка фронтовая (2003) [MP3|320 kbps]<Военная пе
 ```bash
 magnet:?xt=urn:btih:265D13817418B65F7C37CC431F75D4CCB9ADEAFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +621,8 @@ VA - Песни нашей победы (2010) [MP3|320 kbps]<Военная п�
 magnet:?xt=urn:btih:36BDC8237F31A6A287FC6E8C398DE186B42FCFEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +655,8 @@ magnet:?xt=urn:btih:36BDC8237F31A6A287FC6E8C398DE186B42FCFEB
 ```bash
 magnet:?xt=urn:btih:874101BC0600A1F3658132538B85FC65AE6CCC38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +691,8 @@ VA - Давно мы дома не были (Песни военных лет 19
 magnet:?xt=urn:btih:1291001D60A2AF103C5372E2E88332FEE91A6325
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -681,6 +725,8 @@ magnet:?xt=urn:btih:1291001D60A2AF103C5372E2E88332FEE91A6325
 ```bash
 magnet:?xt=urn:btih:F06E364A137799EB8DB6DD961DB2BA9837631369
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -715,6 +761,8 @@ Charles Aznavour - 40 Chansons d'Or (1996) 2CD [FLAC|Lossless]<Chanson>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -748,6 +796,8 @@ Charles Aznavour - 40 Chansons d'Or (1996) 2CD [FLAC|Lossless]<Chanson>
 magnet:?xt=urn:btih:22019034E4B3A8367BCBDEAE413011DF8C4A9DC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -780,6 +830,8 @@ magnet:?xt=urn:btih:22019034E4B3A8367BCBDEAE413011DF8C4A9DC6
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

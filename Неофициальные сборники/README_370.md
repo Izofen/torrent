@@ -1,3 +1,32 @@
+###  Публикация: 912416   (612306) от 25.06.2015
+
+VA - Союз летних хитов от Европа Плюс. Часть 3 (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612306.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Britney Spears & Iggy Azalea - Pretty Girls
+002. Иван Дорн - Весна
+003. Guy Sebastian - Animal In Me
+004. Lx24 - Сегодня Пьяным Буду Вновь(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:300BE17B0CC8B2C01C5391EBB6BD708B9C7C78F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912220   (612395) от 25.06.2015
 
 VA - Лето в кайф. Часть 4 (2015) [MP3|256 кб/с]<Pop>
@@ -21,6 +50,8 @@ VA - Лето в кайф. Часть 4 (2015) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:3C4BEC8EB5D07118E986BD87E64B5DE446BB067D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +79,8 @@ VA - Шансон на лето. Часть 3 (2015) [MP3|256 кб/с]<Шанс�
 ```bash
 magnet:?xt=urn:btih:736E0FFF11979468D414A5D03B0D32C081EF18A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +115,8 @@ VA - Лучшие Рок - Дуэты (2012) [MP3|320 кб/с]<Rock>
 magnet:?xt=urn:btih:A9A5B40FCE05299516F6056CEACFFC9A9FCE6561
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +143,8 @@ VA - Spring Light Deep (2022) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:9522C776371DDC111D76F4376F4D751D6A427DE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +173,8 @@ magnet:?xt=urn:btih:9522C776371DDC111D76F4376F4D751D6A427DE7
 magnet:?xt=urn:btih:9451DFA163267FB346BEEA632F73C1584E7D423A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +201,8 @@ VA - The Legend Of The City: Club House Sounds (2017) [MP3|320 Kbps] <Club, Danc
 ```bash
 magnet:?xt=urn:btih:4095F6F062EFEB4FBB32877889D5B646E8957D4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +231,8 @@ VA - Дискотека 90-х. Зарубежный выпуск (2019) [MP3|320
 magnet:?xt=urn:btih:3814FD2DFDD863999D3C6FBE5D38923991F7E51D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +259,8 @@ VA - Pacific Trance Vol. 06 (2017) [MP3|256-320 Kbps] <Trance, Progressive Tranc
 ```bash
 magnet:?xt=urn:btih:0A9C08FCCDA05745D96F7A14A8ED4DF74CBC1B7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +295,8 @@ VA - Electro Life 18 (by ZiP) (2012) [MP3|320 kbps]<Electro House>
 magnet:?xt=urn:btih:907DCF8886F0864640FCEBB6567F8D919FD0CB21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +327,8 @@ Hits of My Soul - сборник электронной и инструмент�
 magnet:?xt=urn:btih:EE7B285E8C63D5658F9D84092A9AF70DB58519E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +355,8 @@ VA - Guitar Collection 6 (2016) [MP3|320 Kbps] <Instrumental, Acoustic, Rock>
 ```bash
 magnet:?xt=urn:btih:BD56B0A79B2BB39974C2FB64288F7588C448741B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +385,8 @@ VA - The Official UK Top 40 Singles Chart 12.04.2019 [MP3|320 Kbps] <Pop, Dance,
 magnet:?xt=urn:btih:6ECB3988E43E9D498DF115BE06F6D519DC65BEAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +413,8 @@ VA - German Top 100 Single Charts 22.04.2019 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:06C10ED4B3D30DE60C71C4434388421F6B6CE30C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +443,8 @@ VA - Радио Мелодия (январь-июнь) (2016) [MP3|320 Kbps] <П
 magnet:?xt=urn:btih:9CAD7D24EBFF31CA118B822993D1580B9E6EEA86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +471,8 @@ VA - Бомба Года Выпуск 50+50 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:75F781560F7B2F8C7139DB07FD7E8158BB6BA1EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +501,8 @@ VA - Ballads for Lovers Vol.1 (2016) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:28BC0FEF1684031557BDE7967E99C3E154AF6D58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +529,8 @@ VA - Дорожный шансон с любимой музыкой. Часть 
 ```bash
 magnet:?xt=urn:btih:0610C0D58573E4BFB2CA4AD7F08ED7DCEA134F5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +559,8 @@ VA - Фабрика Шансона (2016) [MP3|256 Kbps] <Шансон>
 magnet:?xt=urn:btih:7E571D1A130981CCD21BE2A8580A90AA5FAC8FD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +587,8 @@ VA - Coffe Table Jazz Lounge (2016) [MP3|320 Kbps] <Acid jazz, Lounge>
 ```bash
 magnet:?xt=urn:btih:398A140281BEE401F96FC51AC152DEFD818941DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +617,8 @@ VA - Русский Рэп Избранное (1998-2015) [MP3|96-320 кб/с]<R
 magnet:?xt=urn:btih:1867D0B01CF741CE8417B4E2F018FDAB86220A00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +645,8 @@ VA - Songs for Lovers Sexy and Erotic Chillout Compilation (2016) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:7C39A85545179BA14270508F6146462B22029868
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +675,8 @@ VA - Tragic Heroes: Hard Rock Legendary Sounds (2018) [MP3|320 Kbps] <Rock, Hard
 magnet:?xt=urn:btih:13832FB16407C67DE1C080A651AB9FDD7D54201D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +703,8 @@ VA - Summer Favorite Hits (2016) [MP3|270-320 Kbps] <Future House, Electro, Regg
 ```bash
 magnet:?xt=urn:btih:6F88C5D353492750637CCE53FF534946568CD452
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -658,6 +733,8 @@ VA - Club Dance Ambience Vol.79 (2016) [MP3|320 Kbps] <House, Electro House, Pro
 magnet:?xt=urn:btih:E50C7DEA8039071BCF6E2A9F764151A69C6EE5DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -685,32 +762,7 @@ VA - 45 Suntracks Sunday Music (2016) [MP3|320 Kbps] <House, Progressive, Club>
 magnet:?xt=urn:btih:DD0F33E8FA5218C7644BE39B5EAB87FF4F1A9A02
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911820   (614081) от 24.06.2015
-
-Madonna - Madonna's 40 Biggest Billboard Hits (2015) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Like a Virgin (Like a Virgin)
- 02. Vogue (I'm Breathless)
- 03. Crazy For You (Vision Quest)
- 04. Take a Bow (Bedtime Stories)(   Читать дальше...   )Жанр: PopПродолжительность: 03:04:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E333AD4035461ADAFD3387586605547AD81B0B8C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

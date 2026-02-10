@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:765A3BD2587A38743D8D9C20803A0300022A5B7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ VA - Psygressive Vol. 6 (2019) [MP3|320 Kbps] <Psy-Trance>
 magnet:?xt=urn:btih:2049ACDBE91DB0511C31972AD7A89A6126905A63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:2049ACDBE91DB0511C31972AD7A89A6126905A63
 ```bash
 magnet:?xt=urn:btih:39F5982AF2786F7F12CF7885F58BF15C62929DF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:39F5982AF2786F7F12CF7885F58BF15C62929DF6
 magnet:?xt=urn:btih:7F58B397B827FCBAD9A79CB0636582CA9CC025D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Topaz DeNoise AI 2.3.6 RePack (& Portable) by TryRooM [En]
 ```bash
 magnet:?xt=urn:btih:38C4C73908025B71E106283BE6B6C79D0140841D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:38C4C73908025B71E106283BE6B6C79D0140841D
 magnet:?xt=urn:btih:638776CBF136C9675B45C48DC17FFA1D2140D121
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:638776CBF136C9675B45C48DC17FFA1D2140D121
 ```bash
 magnet:?xt=urn:btih:422A90819E313DAE005E0B52D5C2D0A6BC0D47A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ VA - Workout 2  I Get Back In Shape (2019) [MP3|320 Kbps] <Hip-Hop, Rap, Other>
 magnet:?xt=urn:btih:310E04BCE5BC9F16E18512C8A633A48C4ED97E44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:310E04BCE5BC9F16E18512C8A633A48C4ED97E44
 magnet:?xt=urn:btih:6B31F52948336402C0DF324AB002BF64BB23921F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:6B31F52948336402C0DF324AB002BF64BB23921F
 ```bash
 magnet:?xt=urn:btih:C0AEC0D116090ACC995BCD68C66C105F29C35335
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ Hypocrisy - Worship (2021) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 magnet:?xt=urn:btih:2C4D60F3EA7250EBF14EA504723C156D77816AA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ BBEdit - популярный текстовый и HTML редактор. Эт�
 ```bash
 magnet:?xt=urn:btih:2C624D65F5C52E4C321D54EF828B5C8A78B89E70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:2C624D65F5C52E4C321D54EF828B5C8A78B89E70
 magnet:?xt=urn:btih:712A0B993487F4771C33F0234E78148D213F5FB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:712A0B993487F4771C33F0234E78148D213F5FB6
 ```bash
 magnet:?xt=urn:btih:4449EFD6F67522648566060AFFB59E01D8D64622
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ Shinnobu - The Trilogy (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Enigmatic,
 magnet:?xt=urn:btih:0EAD49E7D1BA747DDDE7A27B61DD0E57D24D2C80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ Download Shuttle Pro for Mac 1.9 [En]
 ```bash
 magnet:?xt=urn:btih:2A971EB3D68602CE8842BD714FD1DB62B6E62C33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ Deep Purple - Turning to Crime (2021) [AAC|~328 Kbps] <Rock>
 magnet:?xt=urn:btih:5F5B7046C4BCD49C2033E3B8CD16842396152C49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ magnet:?xt=urn:btih:5F5B7046C4BCD49C2033E3B8CD16842396152C49
 magnet:?xt=urn:btih:866D484BC5AF5D58766F53DB7A630107B198FCAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ magnet:?xt=urn:btih:866D484BC5AF5D58766F53DB7A630107B198FCAA
 ```bash
 magnet:?xt=urn:btih:42EF3F38C2BDF037976E58F1CC0D531F27F7BBCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +533,8 @@ VA - Disco House Party (2019) [MP3|320 Kbps] <Disco House, Funky House>
 magnet:?xt=urn:btih:4CD81EED97BFAE3E8718DB07BB3F7A15644340E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ Funke and The Two Tone Baby - Reacclimate (2023) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:0EA279EB7B71782BDCAA60A7A136D1E2042DBA94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +587,8 @@ magnet:?xt=urn:btih:0EA279EB7B71782BDCAA60A7A136D1E2042DBA94
 ```bash
 magnet:?xt=urn:btih:921ADDCD99A9756FCD4817B37F2DEDA608C7CC5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:921ADDCD99A9756FCD4817B37F2DEDA608C7CC5A
 magnet:?xt=urn:btih:30BC7BA0FB75785136E41382C06B8AD7E48FC4D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ magnet:?xt=urn:btih:30BC7BA0FB75785136E41382C06B8AD7E48FC4D5
 ```bash
 magnet:?xt=urn:btih:7B546A1B1776CE852D67081BBCF5D0842DE574EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +669,8 @@ David Knopfler - Shooting for the Moon (2021) [AAC|~306 Kbps] <Rock, Folk>
 magnet:?xt=urn:btih:AE6EB33ED445492998BBCF0B6F032E5FA9FA957D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ VA - Silent Shore Trance - Essential Classics Vol. 3 (2023) [MP3|320 Kbps] <Tran
 ```bash
 magnet:?xt=urn:btih:A4E265788EEAFBB08D7DAAB69FEF40D2A2B22739
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

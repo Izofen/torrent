@@ -19,6 +19,8 @@ Moonrise | Восход Луны [2025, Web, 18 эп.] WEBRip 720p raw
 magnet:?xt=urn:btih:8F8B3D8A4FFC5D96262089605C847B00E29663D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Dungeon no Naka no Hito | Dungeon People | Люди подземелья [2024, 
 ```bash
 magnet:?xt=urn:btih:C17CF108EE5157F2B9C6C63A2887FD4C9CA071CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Hataraku Saibou Black | Cells at Work! Code Black | Клетки за работ
 magnet:?xt=urn:btih:1EEE399E05F11DCCF7EF96F5CDD1FC2C1F79488A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Tsuki ga Michibiku Isekai Douchuu | Tsukimichi: Moonlit Fantasy | Лунное �
 magnet:?xt=urn:btih:DC47B88FF29C2D88E503F5505137B8F392FD1A55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Tearmoon Teikoku Monogatari: Dantoudai kara Hajimaru, Hime no Tensei Gyakuten St
 ```bash
 magnet:?xt=urn:btih:6E1875F75C876D4A4809D5747C5906ECFE330C9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ One Room, Hiatari Futsuu, Tenshi-tsuki. | Studio Apartment, Good Lighting, Angel
 magnet:?xt=urn:btih:C0E56C4A11A1887DE3E79E4A43F3386B71332D76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Shikanoko Nokonoko Koshitantan | My Deer Friend Nokotan | Моя подруга-
 magnet:?xt=urn:btih:BA237399C86138818405B8F34AB6D719A71D4558
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Tsuki ga Michibiku Isekai Douchuu Dai Ni Maku | Tsukimichi: Moonlit Fantasy 2 | 
 ```bash
 magnet:?xt=urn:btih:8417DB27E202FBDD45D7E6CD1331FA9AABACD1F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Katsute Mahou Shoujo to Aku wa Tekitai Shite Ita. | The Magical Girl and the Evi
 magnet:?xt=urn:btih:8BDA0BE2D976DDD564158B24809E6427C43EE79F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Hokkyoku Hyakkaten no Concierge-san | The Concierge at Hokkyoku Department Store
 ```bash
 magnet:?xt=urn:btih:FB065E5D480D01FD36883723D4BF75BC747014A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Tate no Yuusha no Nariagari Season 3 | The Rising of the Shield Hero Season 3 | 
 magnet:?xt=urn:btih:37981ABB2248A8ECA323E8F429996738DD53E535
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Isekai Shikkaku | No Longer Allowed in Another World | Дисквалифици�
 ```bash
 magnet:?xt=urn:btih:DC04EFE601FE3A27678A5FD0EBAECB3ED7A68894
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Hataraku Maou-sama!! | The Devil Is a Part-Timer! Season 2 | Повелител�
 magnet:?xt=urn:btih:B94A144F72A55797B2C1078C5DED90F85628EE43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Failure Frame | Hazure Waku no Joutai Ijou Skill de Saikyou ni Natta Ore ga Sube
 ```bash
 magnet:?xt=urn:btih:B3E56D6769C480794FFA0CAF1C057AC120AEBA58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Megami no Cafe Terrace (2024) | The Cafe Terrace and Its Goddesses (2024) | Бо
 magnet:?xt=urn:btih:C484341C31BDE56B366B846796A73EF5E3EE2D9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Kimi no Koto ga Dai Dai Dai Dai Daisuki na 100 Nin no Kanojo | The 100 Girlfrien
 ```bash
 magnet:?xt=urn:btih:870D838E1DE1725EFDD14B2EC75B3C097A0E91FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:870D838E1DE1725EFDD14B2EC75B3C097A0E91FC
 magnet:?xt=urn:btih:5F5887FDF201D2B07BAD42BAC05A6A8570536EF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Arifureta Shokugyou de Sekai Saikyou Season 3 | Arifureta: From Commonplace to W
 ```bash
 magnet:?xt=urn:btih:42D64A5AAFC51345757D07050A0BB8AFBFE6243A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ Gekijouban Overlord: Sei Oukoku Hen | Overlord: The Sacred Kingdom | Повел�
 magnet:?xt=urn:btih:399E719892E8F98B784AA22412493E1E01D5976C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Hamefura. Movie | Bakarina. Movie | Gekijouban Otome Game no Hametsu Flag shika 
 magnet:?xt=urn:btih:3BF0B438114159E47CBE646E61BFB2B7BE702459
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Hibike! Euphonium 3 | Sound! Euphonium 3 | Играй, эуфониум! [ТВ-3
 ```bash
 magnet:?xt=urn:btih:E99BC81D0D8EE624C5C8DAB31EC80F4E8180DEDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ Kaii to Otome to Kamikakushi | Mysterious Disappearances | Загадочные 
 magnet:?xt=urn:btih:82EF9D294A7AE54038B8EBF4166D67C3424F13B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ Watashi no Shiawase na Kekkon | My Happy Marriage | Мой счастливый 
 ```bash
 magnet:?xt=urn:btih:39684A59F4C78F778CFE06A65A920C4351DE3DA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ Garo: Honoo no Kokuin / Garo the Animation / Гаро: Печать пламен
 magnet:?xt=urn:btih:1AC84F2189034279750E15A94D9F0E9B966ACD04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ Dungeon Meshi | Delicious in Dungeon | Подземелье вкусностей
 magnet:?xt=urn:btih:5554BF67F213742D911832C90CE53FBBEE448ABE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Ore dake Level Up na Ken | Solo Leveling | Поднятие уровня в од
 ```bash
 magnet:?xt=urn:btih:BC555540821324A8F3946251174ACD56C6F216E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

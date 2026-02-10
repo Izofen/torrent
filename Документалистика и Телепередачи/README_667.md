@@ -1,3 +1,29 @@
+###  Публикация: 1100518   (899240) от 04.02.2017
+
+Своя игра (04.02.2017) SATRip
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899240.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре принимают участие 3 игрока. Их основная цель — отвечать на вопросы и зарабатывать как можно большее число очков. В начале игры у каждого из игроков на счету  очков. Каждое очко в игре равняется 1 рублю. Суть игры заключается в том, что три участника отвечают на вопросы различной стоимости, пытаясь опередить друг друга. игра состоит из четырёх раундов — трёх (   Читать дальше...   )Телекомпания: НТВЖанр: Интеллектуальное шоуПродолжительность: 00:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56A6CB26A13BED795332725E834E3D06C5E174B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100498   (899350) от 04.02.2017
 
 Умницы и умники.  (04.02.2017) SATRip
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:027D35E0BA2726EECC331C551527356B12AC2674
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:027D35E0BA2726EECC331C551527356B12AC2674
 magnet:?xt=urn:btih:D9D1C389A9C2122ECFA6DF008D3D9F3EEFD8B360
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:D9D1C389A9C2122ECFA6DF008D3D9F3EEFD8B360
 ```bash
 magnet:?xt=urn:btih:67B13AD710615D7E097B9F21AAB356FC133AD69A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:67B13AD710615D7E097B9F21AAB356FC133AD69A
 magnet:?xt=urn:btih:9A9733B4EBDEA9384CB16C5B70852CE6F5553276
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:9A9733B4EBDEA9384CB16C5B70852CE6F5553276
 ```bash
 magnet:?xt=urn:btih:25AE23453587CF7A20B867820EB36E1906F0066A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:25AE23453587CF7A20B867820EB36E1906F0066A
 magnet:?xt=urn:btih:D0D149F374A94AACCCC18A6841F2285CA75D62F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:D0D149F374A94AACCCC18A6841F2285CA75D62F3
 ```bash
 magnet:?xt=urn:btih:7FB81F8345A933BBDDA3F122760D285E4DA4443B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:7FB81F8345A933BBDDA3F122760D285E4DA4443B
 magnet:?xt=urn:btih:4DE7D51387ABE39C833ACC91708CC285160721C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:4DE7D51387ABE39C833ACC91708CC285160721C5
 ```bash
 magnet:?xt=urn:btih:D2A43E1F9AAA7EDC7692E1C68E9314CE649D4062
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:D2A43E1F9AAA7EDC7692E1C68E9314CE649D4062
 magnet:?xt=urn:btih:5447F164866AC94B0C5E282942F655E76D9781F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:5447F164866AC94B0C5E282942F655E76D9781F6
 ```bash
 magnet:?xt=urn:btih:7B617B0427ADF153EF83E9C4FBE79BC1C81DD0B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:7B617B0427ADF153EF83E9C4FBE79BC1C81DD0B5
 magnet:?xt=urn:btih:F45471D3CEFEDE1041CDC53BBF2BF17E45823AEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:F45471D3CEFEDE1041CDC53BBF2BF17E45823AEE
 ```bash
 magnet:?xt=urn:btih:CFE0DB0F31937E389642119CF9F341F0D3A659A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:CFE0DB0F31937E389642119CF9F341F0D3A659A9
 magnet:?xt=urn:btih:3AF082827A94904F7090A2626C83C485C0E002DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:3AF082827A94904F7090A2626C83C485C0E002DA
 ```bash
 magnet:?xt=urn:btih:00C2491EA57ABD343701ACC266DE4A0246D5136B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:00C2491EA57ABD343701ACC266DE4A0246D5136B
 magnet:?xt=urn:btih:D41681B70D4DAFD5C0E83521C066F81CC8C84352
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:D41681B70D4DAFD5C0E83521C066F81CC8C84352
 ```bash
 magnet:?xt=urn:btih:D442687D639F45498B930D9DC5A6D36CF1A1F370
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:D442687D639F45498B930D9DC5A6D36CF1A1F370
 magnet:?xt=urn:btih:08C1531683EC44595744FC150353E5DA32C4D620
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:08C1531683EC44595744FC150353E5DA32C4D620
 ```bash
 magnet:?xt=urn:btih:CE905D0C3C406C08D72CA5210B38C6352A377C2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:CE905D0C3C406C08D72CA5210B38C6352A377C2B
 magnet:?xt=urn:btih:5E06A4D5FC4A6985961D2861957898F86A8D60FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:5E06A4D5FC4A6985961D2861957898F86A8D60FA
 ```bash
 magnet:?xt=urn:btih:97691527177FC2E793435AF638D9D7EBEBC1A5DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:97691527177FC2E793435AF638D9D7EBEBC1A5DE
 magnet:?xt=urn:btih:F15BF326410A2D36EF3FEE0E977C233B971DAB4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +618,8 @@ magnet:?xt=urn:btih:F15BF326410A2D36EF3FEE0E977C233B971DAB4F
 ```bash
 magnet:?xt=urn:btih:BDFEA127E5579B478C71E4660D5E6428417BBCFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +645,8 @@ magnet:?xt=urn:btih:BDFEA127E5579B478C71E4660D5E6428417BBCFC
 magnet:?xt=urn:btih:371F3C38D396DCCAA5BC5363F27C204E487128CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,29 +671,7 @@ magnet:?xt=urn:btih:371F3C38D396DCCAA5BC5363F27C204E487128CC
 magnet:?xt=urn:btih:9B65C39E47A060A7AB64FF619BA2EF981D4D8AAC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992436   (900698) от 02.03.2016
-
-88-я церемония вручения премии «Оскар» / The 88th Annual Academy Awards (2016.02.28) DVB
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведущий 88-й церемонии "Оскар" - популярный американский комик Крис Рок. Фильм Алехандро Гонсалеса Иньярриту "Выживший" собрал максимальное количество номинаций на "Оскар"- 12. Следом за ним идет лента Джорджа Миллера "Безумный Макс: Дорога ярости" с десятью номинациями. Семь номинаций у ленты "Марсианин". Мультфильм (   Читать дальше...   )Телекомпания: США, Academy of Motion Picture Arts and Sciences (AMPAS)Жанр: ТелепередачаПеревод: Русско-украинский многоголосый закадровый (А.Винницкая, А.Скичко, Ю.Физир, Я.Лодыгин)Продолжительность: 05:05:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1045ED918AB697389E85F23EAC2000191A371311
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

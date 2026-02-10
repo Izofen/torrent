@@ -1,3 +1,30 @@
+###  Публикация: 768176   (862330) от 19.03.2014
+
+Анна Ахматова | Мой муж Гумилев, отец Гумилева (2014) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Перед вами дневники Анны Ахматовой – самой исстрадавшейся русской поэтессы. Чем была наполнена ее жизнь: раздутым драматизмом или искренними переживаниями? Книга раскроет все тайны ее отношений с сыном и мужем. И секреты ее многочисленных романов.
+Откровенные воспоминания Лидии Чуковской, Николая и Льва Гумилевых прольют свет на неоднозначную личность. И расскажут, какой ценой любимая всем миром поэтесса создавала себе биографию.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB3D01470DC31CB90252D9F5DBC1A7EFB2A76395
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 768180   (862334) от 19.03.2014
 
 Грег Кинг | Анастасия или Анна? Величайшая загадка дома Романовых (2014) [PDF]
@@ -19,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:A6B1D37C73ACA8DFD7786742194FD107784CF9A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +75,8 @@ magnet:?xt=urn:btih:A6B1D37C73ACA8DFD7786742194FD107784CF9A1
 magnet:?xt=urn:btih:E2F4EB5B665BC5670BFAD2714AFD95816358FD11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +101,8 @@ magnet:?xt=urn:btih:E2F4EB5B665BC5670BFAD2714AFD95816358FD11
 ```bash
 magnet:?xt=urn:btih:0BC240AEDB5AD661CE8965C69B80593EACFBE482
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +129,8 @@ magnet:?xt=urn:btih:0BC240AEDB5AD661CE8965C69B80593EACFBE482
 magnet:?xt=urn:btih:260B736FD4DA63D90B6D500410B236136B03565E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +154,8 @@ magnet:?xt=urn:btih:260B736FD4DA63D90B6D500410B236136B03565E
 ```bash
 magnet:?xt=urn:btih:86EAB4F6FA3A6FAD17317DB458A9F447FD7BA214
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +181,8 @@ magnet:?xt=urn:btih:86EAB4F6FA3A6FAD17317DB458A9F447FD7BA214
 magnet:?xt=urn:btih:393351AA40F898E18396697A0CB8031E0D0F1DF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +206,8 @@ magnet:?xt=urn:btih:393351AA40F898E18396697A0CB8031E0D0F1DF7
 ```bash
 magnet:?xt=urn:btih:545961FC1FFEC94CDD2952CB04E4652DAAC9FC52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +234,8 @@ magnet:?xt=urn:btih:545961FC1FFEC94CDD2952CB04E4652DAAC9FC52
 magnet:?xt=urn:btih:F81F4610B5C647D8FDD86BFB183FDB227D542CFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +259,8 @@ magnet:?xt=urn:btih:F81F4610B5C647D8FDD86BFB183FDB227D542CFB
 ```bash
 magnet:?xt=urn:btih:A717A9CBB23A4EF1097CF82D33FF9D9667F9BC15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +286,8 @@ magnet:?xt=urn:btih:A717A9CBB23A4EF1097CF82D33FF9D9667F9BC15
 magnet:?xt=urn:btih:00601EE5E147768E35A9591BA4056E70557C6917
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +311,8 @@ magnet:?xt=urn:btih:00601EE5E147768E35A9591BA4056E70557C6917
 ```bash
 magnet:?xt=urn:btih:62347C97A62CB3244AB195A1C9DF563DDEEF3794
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +339,8 @@ magnet:?xt=urn:btih:62347C97A62CB3244AB195A1C9DF563DDEEF3794
 ```bash
 magnet:?xt=urn:btih:26672DAAF4AE9AE15D945CE2B0EC77D2D4CE9CAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ magnet:?xt=urn:btih:26672DAAF4AE9AE15D945CE2B0EC77D2D4CE9CAA
 magnet:?xt=urn:btih:7A90BC9AE9CCF962A728C37BB0585FAF53A2BFD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +397,8 @@ magnet:?xt=urn:btih:7A90BC9AE9CCF962A728C37BB0585FAF53A2BFD7
 magnet:?xt=urn:btih:E9234CBCF615C66958CD12F7FD6029AD55CF931F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +422,8 @@ magnet:?xt=urn:btih:E9234CBCF615C66958CD12F7FD6029AD55CF931F
 ```bash
 magnet:?xt=urn:btih:0068698BD40065BCA3D44E481332E8B40FE489EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +449,8 @@ magnet:?xt=urn:btih:0068698BD40065BCA3D44E481332E8B40FE489EF
 ```bash
 magnet:?xt=urn:btih:9F3B1A3738CC9FB9F7DC1EE7B0D368EB1D26EF54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +478,8 @@ magnet:?xt=urn:btih:9F3B1A3738CC9FB9F7DC1EE7B0D368EB1D26EF54
 magnet:?xt=urn:btih:7450E81189A0946FAF16C4C98F6303866B1DF1C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +504,8 @@ magnet:?xt=urn:btih:7450E81189A0946FAF16C4C98F6303866B1DF1C5
 magnet:?xt=urn:btih:177446163BB4A563480E585F3504DCB045A6CE86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +529,8 @@ magnet:?xt=urn:btih:177446163BB4A563480E585F3504DCB045A6CE86
 ```bash
 magnet:?xt=urn:btih:964405EE32CF85C6B9E839750164482801CA416A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +557,8 @@ magnet:?xt=urn:btih:964405EE32CF85C6B9E839750164482801CA416A
 magnet:?xt=urn:btih:EA374478E91EA4EDA35672BB0443D05F01569CE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +582,8 @@ magnet:?xt=urn:btih:EA374478E91EA4EDA35672BB0443D05F01569CE7
 ```bash
 magnet:?xt=urn:btih:825F88525A54ECA0D758CF19115380071EFC998D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +611,8 @@ magnet:?xt=urn:btih:825F88525A54ECA0D758CF19115380071EFC998D
 magnet:?xt=urn:btih:8720E5F7EE0377D3D0B64B2CE9008B2D5C0D3BEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +639,8 @@ magnet:?xt=urn:btih:8720E5F7EE0377D3D0B64B2CE9008B2D5C0D3BEF
 magnet:?xt=urn:btih:7740674E1F1914A1287A783A2B0074BF647B83D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +664,8 @@ magnet:?xt=urn:btih:7740674E1F1914A1287A783A2B0074BF647B83D8
 ```bash
 magnet:?xt=urn:btih:05A5DA11682FFE79C0DB5FDAA0A6CEE5FEA5E5EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,29 +693,7 @@ magnet:?xt=urn:btih:05A5DA11682FFE79C0DB5FDAA0A6CEE5FEA5E5EE
 magnet:?xt=urn:btih:A417138EA0200C4AC40C60D5FAFA8534EB3655A3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108560   (862709) от 25.02.2017
-
-Наталия Попович | Улучшаем зрение народными средствами (2017) [FB2]
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проверенные веками средства народной медицины эффективны при лечении самых разных заболеваний! Рецепты целебных отваров и настоев для внутреннего и наружного применения, примочек, мазей на растительной основе и капель с медом избавят вас от многих недугов. Безопасные натуральные ингредиенты, возможность домашнего лечения, специально подобранные упражнения и лечебные (   Читать дальше...   )Жанр: Болезни глаз, Коррекция зрения, Народные средстваФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1409746D70DACFADEE0BA63744076FC8DED03EDB
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

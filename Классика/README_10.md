@@ -22,6 +22,8 @@ Dejan Lazic - Istrian Rhapsody (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Class
 magnet:?xt=urn:btih:80B042E7734A5644BB56A6F182AB321176A48E42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Steven Ang, Tatiana Konovalova, Francesca Lee - Highlights from Verdi's Macbeth 
 ```bash
 magnet:?xt=urn:btih:10055FF186D479A5EBBA443B04755F8C4D53FBBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Autumn Tears - Guardian Of The Pale (2023) [FLAC|Lossless|WEB-DL|tracks] <Neocla
 magnet:?xt=urn:btih:93F43F0E3A5504EFAFD0296CCD21AC652DB27937
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - The Best 50 of Beautiful Piano Music (2023) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:427F42B2A12035E8A71306C9E36BD9578C0FACE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Johann Strauss / Otto Schulhof
 magnet:?xt=urn:btih:BA3807B63FA63B67C2449A128D1180EE5E52659E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ Johann Sebastian Bach, Bernard Foccroulle - Toccaten & Passacaglia (2008) Reissu
 magnet:?xt=urn:btih:65088B1F1A337460445734F6BF09955F586B2456
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +195,8 @@ Violina Petrychenko - Mrii: Ukrainian Hope (2023) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:8F4FD26D431D7B81E97551F3F4F65FF690849973
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +231,8 @@ Svarrogh / Defile Des Ames / Arnica – South European Folk Compendium (2009) [F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +266,8 @@ Kammer Sieben – Unfinished Movies (2007) [FLAC|Lossless] <Apocalyptic Folk, Ne
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +294,8 @@ Armin van Buuren - Piano (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
 ```bash
 magnet:?xt=urn:btih:C9F4AC3FB16DCCBFDF1F7DB535A20A7C93E56A0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +330,8 @@ Of Cantata N. 35)(   Читать дальше...   )1991Жанр: ChamberПро
 magnet:?xt=urn:btih:B4F9F04F4E85D8701D2BCA0117E7A10851789A03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +364,8 @@ Quartet for oboe, violin, viola and cello in C major (Flute Quartet KV 285 in au
 ```bash
 magnet:?xt=urn:btih:FAD11F660DC651FC7E1E1AA0B8F87C125D9BE8C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +400,8 @@ Pink Floyd - Us And Them Symphonic Pink Floyd: The London Philharmonic Orchestra
 magnet:?xt=urn:btih:9B65005E960114BEDCA3C78909F70BB4601C75FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +426,8 @@ Concerto for Violin and Orchestra in A Minor BWV 1041:
 ```bash
 magnet:?xt=urn:btih:10063B931DA8E76025AC1B64A2A1A9F13B8230FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +462,8 @@ Concerto for 2 Violins in D minor, BWV 1043
 magnet:?xt=urn:btih:D37F50402228A509D3829093203D05FF9C70702C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +497,8 @@ for solo violin, strings and B.C.
 magnet:?xt=urn:btih:1678F1B788A2C9EEB0C67DE1DC986589CDDF7C58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +522,8 @@ VA - Niccolo PAGANINI - Complete Chamber Music (2007) [APE|Lossless]<Classical, 
 ```bash
 magnet:?xt=urn:btih:D2F7458E64AA4C0082CFD0BDA5EE7437962507E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +552,8 @@ Andre Rieu and his Johann Strauss Orchestra - Thank You, Johann Strauss! (2025) 
 magnet:?xt=urn:btih:ACC8DA9130D456D9F0AD51A2FD6BE9E6C52E67AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +581,8 @@ Rondo Best CD1
 magnet:?xt=urn:btih:38C12DFBE0A943259C543ACF5D98431E17E51334
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +609,8 @@ VA - Uplifting Classical Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ```bash
 magnet:?xt=urn:btih:F515D6742016B4222E32B45A493475D91214740B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +645,8 @@ Louisa John-Krol - 7 albums (1996-2008) [FLAC|Lossless] <Ethereal, Folk, Neoclas
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +680,8 @@ Daemonia Nymphe - 4 albums (2002-2007) [FLAC|Lossless] <Neofolk, Neoclassical, E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +705,8 @@ VA - The Classical Album (2011) 2CD [MP3|320 кб/с]<Classical, Vocal, Choral M
 ```bash
 magnet:?xt=urn:btih:A914B4200805807B78532F557E79C6B9A214F584
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -695,6 +741,8 @@ Grabesmond - 2 albums (1997-1999) [FLAC/APE|Lossless] <Medieval, Neoclassical, E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -728,6 +776,8 @@ Slava Romanchenko - Impressions (2012) [MP3|320 кб/с]<Neoclassic/ Instrumenta
 magnet:?xt=urn:btih:83CC5100397A33998F9B385817DF0285DFF31F6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -753,6 +803,8 @@ magnet:?xt=urn:btih:83CC5100397A33998F9B385817DF0285DFF31F6D
 ```bash
 magnet:?xt=urn:btih:24CD764A7BEB2E55BC3418BB5E4D2A6FDDDAEE18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

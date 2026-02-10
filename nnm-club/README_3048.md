@@ -22,6 +22,8 @@ Archie Shepp - I Know About The Life (1981) [FLAC|Lossless]<Free Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -55,6 +57,8 @@ Alexander Zonjic - Reach For The Sky (2001) [FLAC|Lossless]<Funk, Contemporary J
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -80,6 +84,8 @@ MKVToolnix - специальный аудио/видео контейнер, п
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ MKVToolnix - специальный аудио/видео контейнер, п
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -137,6 +145,8 @@ Thelonious Monk - The Essential (2003) [FLAC|Lossless]<Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +174,8 @@ Thelonious Monk - The Essential (2003) [FLAC|Lossless]<Jazz>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +210,8 @@ Alex Skolnick Trio - Veritas (2011) [FLAC|Lossless]<Modern Jazz, Fusion, Guitar 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -230,6 +244,8 @@ VA - Encoder Operations (2011) [FLAC|Lossless]<Psychedelic / Progressive>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +277,8 @@ Anugama - Healing (2000)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +302,8 @@ Big Shanty - Collection (2011) (2 Disc Set) [MP3|320 кб/с]<Blues, Rock>
 ```bash
 magnet:?xt=urn:btih:142BC65EC2930ECDDCEF32ED1C9D77DFD9622D3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +338,8 @@ Danny Thurmer & The Uptown Road House Devils - A Rockin Blues Album (2012) [MP3|
 magnet:?xt=urn:btih:9DCD4C7712CD4DE8E661B231BAD5EAC610D9F21F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +373,8 @@ Diabulus In Musica - Secrets (2010) [APE|Lossless]<Gothic Metal,Power Metal,Symp
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +399,8 @@ Diabulus In Musica - Secrets (2010) [APE|Lossless]<Gothic Metal,Power Metal,Symp
 magnet:?xt=urn:btih:A31D1E03A3F4592BF833D6D7D87552BE318474FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +424,8 @@ magnet:?xt=urn:btih:A31D1E03A3F4592BF833D6D7D87552BE318474FA
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +460,8 @@ CD 1:Жанр: Chillout / Downtempo / Lo-FiПродолжительность: 0
 magnet:?xt=urn:btih:B6FF1F43CC82BEB7DE1948647E991BEDDBDFB284
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +485,8 @@ FantaMorph - программа для создания анимированны
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +521,8 @@ Ravi Shankar - Bridges: The Best Of Ravi Shankar (2001) [MP3|128 кб/с]<Ethnic
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +556,8 @@ Carol Welsman - Memories Of You: Carol Welsman sings Benny Goodman and Peggy Lee
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +581,8 @@ Carol Welsman - Memories Of You: Carol Welsman sings Benny Goodman and Peggy Lee
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +617,8 @@ VA - Ibiza Chill Session (2011) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
 magnet:?xt=urn:btih:5177113EF7049B3D7349D80261EBD12C251BAF1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +652,8 @@ VA - 538 Dance Smash 2011 vol.1 (2011) [MP3|320 кб/с]<Dance>
 magnet:?xt=urn:btih:4C88FDCB9DB163D2B6A87A3E1C896001186F5652
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +677,8 @@ magnet:?xt=urn:btih:4C88FDCB9DB163D2B6A87A3E1C896001186F5652
 ```bash
 magnet:?xt=urn:btih:34B72FE1C89769E35D107E6E997F5F9CF211EBD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -661,6 +705,8 @@ CNews обнаружил на сервере Министерства оборо
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -693,6 +739,8 @@ Adam Nitti - Liquid Blue (1995) [FLAC|Lossless]<Fusion>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -727,6 +775,8 @@ UCS - No Rules (2012) [MP3|~205 кб/с (V1)]<Psychedelic / Full On>
 magnet:?xt=urn:btih:597178F996F0DA7DD7A60446E675DB56537C87F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -759,6 +809,8 @@ VA - White Night vol.1 (2012) [MP3|320 кб/с]<Electro-House, House>
 ```bash
 magnet:?xt=urn:btih:B4EFE1EE3434B69245629FED9DC985AA662A500B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

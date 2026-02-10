@@ -1,27 +1,3 @@
-###  Публикация: 1607702   (1043969) от 27.01.2023
-
-Чарли Чейз. Санта-Клауса нет / There Ain't No Santa Claus (1926) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043969.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ну вот как вам рассказать сюжет? Многие очень быстро поймут. Ипотека, кредит, долги...Но, Рождество и надо дарить подарки любимым. Денег нет совсем. Надо крутиться. Быстро крутиться.... Ну, и ещё везение...Производство: США, Hal Roach StudiosЖанр: комедия, короткометражный, немое киноРежиссер: Джеймс ПэрротАктеры: Чарли Чейз, Blanche Mehaffey, Ной Янг, Джек Гэвин, Эльмо Биллингс, Хелен ГилморПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:22:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB9DB03E9FE0D9567BAFBB21C12E91F0E10B8DA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607462   (1044081) от 26.01.2023
 
 Чарли Чейз. Всякому овощу своё время / Be Your Age (1926) WEBRip
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:CB9DB03E9FE0D9567BAFBB21C12E91F0E10B8DA9
 ```bash
 magnet:?xt=urn:btih:347D52262329AC19487DF357C1F2BB3AE663A863
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:347D52262329AC19487DF357C1F2BB3AE663A863
 magnet:?xt=urn:btih:D70DBC1C868357380207962B3E3B06B89116E9B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:D70DBC1C868357380207962B3E3B06B89116E9B7
 ```bash
 magnet:?xt=urn:btih:370783EBF5A643ADA877FDD0AFE45543AF572F6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:370783EBF5A643ADA877FDD0AFE45543AF572F6F
 magnet:?xt=urn:btih:2D9716F1AD5C1D891C450BA6FAE0F67E607D0484
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:2D9716F1AD5C1D891C450BA6FAE0F67E607D0484
 ```bash
 magnet:?xt=urn:btih:97E356924A0C124812F2B5ACD55DA46E658759FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:97E356924A0C124812F2B5ACD55DA46E658759FF
 magnet:?xt=urn:btih:073B245BC1AF77185ACAC7F8D32D1CCF1868CD8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +175,8 @@ magnet:?xt=urn:btih:073B245BC1AF77185ACAC7F8D32D1CCF1868CD8E
 magnet:?xt=urn:btih:88800E4059C7F90023D1BB4C97260F9C4212BD05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +200,8 @@ magnet:?xt=urn:btih:88800E4059C7F90023D1BB4C97260F9C4212BD05
 ```bash
 magnet:?xt=urn:btih:30119C8287D80A5B204C8504CF70912D4B9B3D6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +228,8 @@ magnet:?xt=urn:btih:30119C8287D80A5B204C8504CF70912D4B9B3D6D
 magnet:?xt=urn:btih:70D09E36A7E17A65B442C2C32183C48D3E01AD7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +254,8 @@ magnet:?xt=urn:btih:70D09E36A7E17A65B442C2C32183C48D3E01AD7D
 magnet:?xt=urn:btih:3B5F1DDCBD21C270F5C17600DAE122A8EA73B6DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +279,8 @@ magnet:?xt=urn:btih:3B5F1DDCBD21C270F5C17600DAE122A8EA73B6DC
 ```bash
 magnet:?xt=urn:btih:EA29F399C582AB92F3C9BAA845E87993C4662F8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +307,8 @@ magnet:?xt=urn:btih:EA29F399C582AB92F3C9BAA845E87993C4662F8C
 magnet:?xt=urn:btih:CF97063AE51A09D5A31DC9DC3D449EC66BCF8EE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +332,8 @@ magnet:?xt=urn:btih:CF97063AE51A09D5A31DC9DC3D449EC66BCF8EE8
 ```bash
 magnet:?xt=urn:btih:629616BDF9FFE9B60390FFEF0076E04FE3B9F9EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +359,8 @@ magnet:?xt=urn:btih:629616BDF9FFE9B60390FFEF0076E04FE3B9F9EA
 magnet:?xt=urn:btih:80E4FDBC1E0082E63C92B671475E12EC38BFDB9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +384,8 @@ magnet:?xt=urn:btih:80E4FDBC1E0082E63C92B671475E12EC38BFDB9C
 ```bash
 magnet:?xt=urn:btih:C7B02059FEE67C4CBC8E20BCFBDF3DFFAE7BAA42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +411,8 @@ magnet:?xt=urn:btih:C7B02059FEE67C4CBC8E20BCFBDF3DFFAE7BAA42
 magnet:?xt=urn:btih:2D6D6747E1616B09DE50A84066C804DEBA6DCDD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +436,8 @@ magnet:?xt=urn:btih:2D6D6747E1616B09DE50A84066C804DEBA6DCDD5
 ```bash
 magnet:?xt=urn:btih:232217C9CC1628FEDCB4732C357EFFD1B2E0B287
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +463,8 @@ magnet:?xt=urn:btih:232217C9CC1628FEDCB4732C357EFFD1B2E0B287
 magnet:?xt=urn:btih:B8E6636795DCC8E493B14B35A91D61E29BA9D161
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +489,8 @@ magnet:?xt=urn:btih:B8E6636795DCC8E493B14B35A91D61E29BA9D161
 magnet:?xt=urn:btih:4EC09BD491B9AA6CA0ECC11BD955286DE39895F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +514,8 @@ magnet:?xt=urn:btih:4EC09BD491B9AA6CA0ECC11BD955286DE39895F4
 ```bash
 magnet:?xt=urn:btih:5D45F2BC684AB272E18AB523A133076314CD60D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +542,8 @@ magnet:?xt=urn:btih:5D45F2BC684AB272E18AB523A133076314CD60D3
 magnet:?xt=urn:btih:A0A1FD69DDD7368F2C2832E3D364598FC63189C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +568,8 @@ magnet:?xt=urn:btih:A0A1FD69DDD7368F2C2832E3D364598FC63189C4
 magnet:?xt=urn:btih:1791B12EFD1FDB4CC9A7BF56E057FCB3B2DA974A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +593,8 @@ magnet:?xt=urn:btih:1791B12EFD1FDB4CC9A7BF56E057FCB3B2DA974A
 ```bash
 magnet:?xt=urn:btih:94C6E7D90BB2813C253E3B8911EC474205325741
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +622,8 @@ magnet:?xt=urn:btih:94C6E7D90BB2813C253E3B8911EC474205325741
 magnet:?xt=urn:btih:F48353388FDBF1DCB872528777327E2109AAB95E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +647,34 @@ magnet:?xt=urn:btih:F48353388FDBF1DCB872528777327E2109AAB95E
 ```bash
 magnet:?xt=urn:btih:F73842161C807AF2C9F2FD70DCDE0E561FFE6F99
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604741   (1045206) от 15.01.2023
+
+Кто была та леди? / Who Was That Lady? (1960) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Энн Уилсон застает своего мужа Дэвида, преподавателя химии в Колумбийском университете, целующимся со студенткой. Чтобы спасти брак, Дэвид просит друга, писателя Майкла, сочиняющего сценарии для телешоу, придумать и для его поступка оправдательную легенду. Майк предлагает Дэвиду признаться жене в том, что он агент ФБР под прикрытием...Производство: США, Ansark-SidneyЖанр: комедия, мелодрамаРежиссер: Джордж СидниАктеры: Тони Кёртис, Дин Мартин, Джанет Ли, Джеймс Уитмор, Джон МакИнтайр, Барбара Николс, Ларри Китинг, Ларри Сторч, Саймон Оукленд, Джои ЛэнсингПеревод: профессиональный многоголосый (1 канал)Субтитры: английскиеПродолжительность: 01:53:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C34AFA9A664F80012BD0D281009F7C482540CB61
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

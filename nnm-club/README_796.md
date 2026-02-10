@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:A401EAAA1FA9721581A8304CC4AC71D26BBEEDB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Mi Home - это приложение для управления умным д�
 ```bash
 magnet:?xt=urn:btih:F5F88F2DFD765C2BBD00962A3D1F38271E4B5AF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:F5F88F2DFD765C2BBD00962A3D1F38271E4B5AF9
 magnet:?xt=urn:btih:23FCE348BEE46D5595767B1BC9EBC301C48B6D8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ XnConvert - бесплатная кроссплатформенная утили
 magnet:?xt=urn:btih:89B4C5E9A3261043D4AA5CCFA301EF27779F955F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ OpenVPN – мощная программа для работы с частны�
 ```bash
 magnet:?xt=urn:btih:71A027030574B0C419BC8806DEA21D11EED37AB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:71A027030574B0C419BC8806DEA21D11EED37AB9
 magnet:?xt=urn:btih:D2A13E8F527BA6A99F9D2DDB14BFE23AB8D0E80E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:D2A13E8F527BA6A99F9D2DDB14BFE23AB8D0E80E
 ```bash
 magnet:?xt=urn:btih:D1B0BA159F441F4C7D538068068102A784C566B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ MAGIX Vegas PRO — профессиональная программа для �
 magnet:?xt=urn:btih:3836FAF47BB66CAC4C7062930695D4E0C11AC8E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:3836FAF47BB66CAC4C7062930695D4E0C11AC8E7
 ```bash
 magnet:?xt=urn:btih:BA0CCD812598AC93F42D6ECA527AB65159E5A4F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:BA0CCD812598AC93F42D6ECA527AB65159E5A4F2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Google.ru уйдёт в прошлое: поисковик переведёт п
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Soulslinger: Envoy of Death (2023) [Ru/Multi] (1.0) Repack seleZen
 magnet:?xt=urn:btih:E39FBD9F21097722BDB831D8875B4CC7747D12B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:923F7EC7B715984DCEF7B4A8A8A86FD9B8A612C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Slime Heroes (2025) [Ru/Multi] (1.0.0.5) Repack Let'sРlay
 magnet:?xt=urn:btih:5C884055847D1E80095B4E9614C14D642A8A61C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Tempest Rising (2025) [Ru/Multi] (1.0.0+43454/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:7639CE8EC54D490C5A33DCA7A0BB1DE050FA2F95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:7639CE8EC54D490C5A33DCA7A0BB1DE050FA2F95
 magnet:?xt=urn:btih:E150DA6D0AE6BF2AEE4488DC49117B2B3704ED2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:E150DA6D0AE6BF2AEE4488DC49117B2B3704ED2C
 ```bash
 magnet:?xt=urn:btih:7D84EB5B4D3C90054031D9D6EF767456BDE15C77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.265/2160p]
 magnet:?xt=urn:btih:A0BCF9C0FA77147DD238BDD3E522AE8EA2B98558
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ Coridden (2025) [Ru/Multi] (1.2.3/dlc) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:7B1FA102009D81B9AE225D2DD82062187FA94A4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:7B1FA102009D81B9AE225D2DD82062187FA94A4D
 magnet:?xt=urn:btih:18F7AC089B2C4C17B21171DDF51E63AC04161D70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:18F7AC089B2C4C17B21171DDF51E63AC04161D70
 magnet:?xt=urn:btih:EA87C37ECA631C124BD511496439735AC1238AAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ magnet:?xt=urn:btih:EA87C37ECA631C124BD511496439735AC1238AAA
 ```bash
 magnet:?xt=urn:btih:F6E0F311BE260F905FC26A7F1F6E537AF155A75A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ Sophie Zelmani - Best of (1995-2025) Compilation Album [MP3|320 Kbps] <Pop, Rock
 magnet:?xt=urn:btih:C65028FB04D15306E571E3AEC8B3774B1256CC86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ ArkCraft: The Rebirth of the World / ArkCraft: Возрождение мира (
 ```bash
 magnet:?xt=urn:btih:48644AA0C069D02BD9876E4034E219EB6D9FDA3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (7.0.0.1/dlc) Repack Deceptic
 magnet:?xt=urn:btih:FE90692C5CAF2B92E1002EF4F73BBEFE59CE3325
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Docker стал уже стандартом доставки приложени�
 ```bash
 magnet:?xt=urn:btih:8F831D44FCB252662B4097D1AF6C46038A50CBBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 766476   (871691) от 14.03.2014
+
+Татьяна Бобровникова | Цицерон (2006) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена Марку Туллию Цицерону (106—43 до и. э.), одному из наиболее выдающихся людей в истории Античности. Его имя давно уже стало нарицательным. Гениальный оратор и писатель, чьи произведения послужили образцом для всех последующих поколений, мыслитель и философ, государственный деятель, он был еще и удивительным человеком, готовым пожертвовать всем, в том числе и собственной жизнью, ради блага Римской республики. Автор книги с огромной любовью пишет о своем герое, представляя его в первую очередь творцом, интеллигентом в наиболее полном и глубоком смысле этого слова — интеллигентом, которому выпало жить в дни тяжелейших общественных потрясений, революции и гражданской войны.Жанр: Биографии и мемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:189CF9F6F444F72E9BD360A07E88EA79820E4083
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 766427   (871704) от 14.03.2014
 
 Р. Ю. Виппер | Возникновение христианской литературы (1946) [DJVU]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:8A8C70EF8C0722563862B3A15ECE53C87F625881
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:8A8C70EF8C0722563862B3A15ECE53C87F625881
 magnet:?xt=urn:btih:99A70B0AA2923983FA4D92B27EA5AAB812B11812
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:99A70B0AA2923983FA4D92B27EA5AAB812B11812
 ```bash
 magnet:?xt=urn:btih:55F2E333E474B2267771F589111390FED4E5E631
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:55F2E333E474B2267771F589111390FED4E5E631
 magnet:?xt=urn:btih:69D80F1EAE04D0F1B6CCD3F8DD6872CB98DDBD2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:69D80F1EAE04D0F1B6CCD3F8DD6872CB98DDBD2B
 ```bash
 magnet:?xt=urn:btih:473B7983B4F6E260C430084733401D4A7436BD92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:473B7983B4F6E260C430084733401D4A7436BD92
 magnet:?xt=urn:btih:36FFBC4D65FE1CE9803BFD67D68FDC98F40824EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:36FFBC4D65FE1CE9803BFD67D68FDC98F40824EA
 ```bash
 magnet:?xt=urn:btih:E3403256C84A7705BB58A61D5643F50E82645CAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:E3403256C84A7705BB58A61D5643F50E82645CAA
 magnet:?xt=urn:btih:3FE829B385D224D055F25C4AE2D56CD9BE144720
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:3FE829B385D224D055F25C4AE2D56CD9BE144720
 magnet:?xt=urn:btih:90508FCF9C748D360E1647E970D1D5436AC8DA56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +286,8 @@ magnet:?xt=urn:btih:90508FCF9C748D360E1647E970D1D5436AC8DA56
 magnet:?xt=urn:btih:743FDB23E43D9E9C6EB67DF9B2CC436B0420FF80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:743FDB23E43D9E9C6EB67DF9B2CC436B0420FF80
 ```bash
 magnet:?xt=urn:btih:DE470506657E0544BA834BD35BF0A0492BF310E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +340,8 @@ magnet:?xt=urn:btih:DE470506657E0544BA834BD35BF0A0492BF310E7
 magnet:?xt=urn:btih:BCDB7D46081AA1D7C1AE8623AD3BA8079694CEED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:BCDB7D46081AA1D7C1AE8623AD3BA8079694CEED
 magnet:?xt=urn:btih:E08FFF0F94C64173DB2FD1F1B92A8A3F6FC58377
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:E08FFF0F94C64173DB2FD1F1B92A8A3F6FC58377
 ```bash
 magnet:?xt=urn:btih:50DD6FD2A624CD34245AF67B85AF2573BAAED0BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +419,8 @@ magnet:?xt=urn:btih:50DD6FD2A624CD34245AF67B85AF2573BAAED0BE
 magnet:?xt=urn:btih:A0C5EC3EA73BAC21740AF714EA73994E420A91E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:A0C5EC3EA73BAC21740AF714EA73994E420A91E6
 ```bash
 magnet:?xt=urn:btih:B6508750F291BAE9E312489899CD1398AB59BE5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:B6508750F291BAE9E312489899CD1398AB59BE5F
 magnet:?xt=urn:btih:B69016033ADEFBCF72C80A3B9219A6CFF84FF106
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:B69016033ADEFBCF72C80A3B9219A6CFF84FF106
 magnet:?xt=urn:btih:44CC5D0738B42E4CC40FEA2BEF9E0B778F38ACAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:44CC5D0738B42E4CC40FEA2BEF9E0B778F38ACAD
 ```bash
 magnet:?xt=urn:btih:A2E0153344FE3EE07A5E0258FE4E3445F92DEC03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:A2E0153344FE3EE07A5E0258FE4E3445F92DEC03
 magnet:?xt=urn:btih:91A2E8E882AED3864496EE587B59C666D8CEB69C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:91A2E8E882AED3864496EE587B59C666D8CEB69C
 ```bash
 magnet:?xt=urn:btih:A7F1ADA19388D3BE879C2555EF2F731C7B468F9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +605,8 @@ magnet:?xt=urn:btih:A7F1ADA19388D3BE879C2555EF2F731C7B468F9F
 magnet:?xt=urn:btih:7A5BD1BB8212F918873BF23EA4D4EECFA3A1FEEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +632,8 @@ magnet:?xt=urn:btih:7A5BD1BB8212F918873BF23EA4D4EECFA3A1FEEC
 magnet:?xt=urn:btih:4A3B662E0C6274D80AB810AA9D3581E3E27D4574
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +657,8 @@ Black Dog Media Ltd. | The Complete Photography Manual / Полное руков
 ```bash
 magnet:?xt=urn:btih:8B5F885A08903DEDBC0D774D492273B5AE70FA02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,29 +684,7 @@ magnet:?xt=urn:btih:8B5F885A08903DEDBC0D774D492273B5AE70FA02
 magnet:?xt=urn:btih:34A79D9F5D2F9E0D89CE2D6BD8E9207C0A1DE11C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374448   (872452) от 10.04.2020
-
-В. Надеждина (сост.) | Вкусные блюда на каждый день (2012) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872452.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге собрано более 1000 кулинарных рецептов на любой вкус – и традиционно русские угощения, и оригинальные и экзотические блюда других стран и народов. Вы узнаете, как подготовить продукты для салатов, холодных и горячих закусок, чем и как украсить свои кулинарные шедевры, как правильно подать угощение. Эта книга станет вашим незаменимым другом и помощником на (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8D1B4E8FC8D8F460AE0DCFB269F502635F24192
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

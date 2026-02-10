@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:9F784DF0678DEC26DDA2D332C0EEF82D6117F2B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:9F784DF0678DEC26DDA2D332C0EEF82D6117F2B2
 ```bash
 magnet:?xt=urn:btih:FDDCC8839ED581879754BE2899F3FF871640F0E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Python — один из наиболее популярных современ�
 magnet:?xt=urn:btih:B2703D2BB8A77AD9E1E16F33772F9FE2DA260436
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Go – превосходный системный язык. Созданный 
 magnet:?xt=urn:btih:32C3C089DF2A447C2E0E7903830E07C9EFEFD3B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:32C3C089DF2A447C2E0E7903830E07C9EFEFD3B9
 ```bash
 magnet:?xt=urn:btih:73BE61230F2A1ED91F397C859FBB73F6D789F71E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:73BE61230F2A1ED91F397C859FBB73F6D789F71E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:73BE61230F2A1ED91F397C859FBB73F6D789F71E
 ```bash
 magnet:?xt=urn:btih:2268419860CAF0A6827FE5D80F31F2371704050F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:2268419860CAF0A6827FE5D80F31F2371704050F
 magnet:?xt=urn:btih:672AD41B07D720AB5563EBB957C97B63ADF30E4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:672AD41B07D720AB5563EBB957C97B63ADF30E4C
 ```bash
 magnet:?xt=urn:btih:CA320F672482FBB6335F53A9DBFFEA6E88FC6419
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:CA320F672482FBB6335F53A9DBFFEA6E88FC6419
 magnet:?xt=urn:btih:7FE8659C067D05869A266259181AF75FCEBEC91A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:7FE8659C067D05869A266259181AF75FCEBEC91A
 ```bash
 magnet:?xt=urn:btih:D364EBB036A46FA89E86617A30223D6D23CFAA74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:D364EBB036A46FA89E86617A30223D6D23CFAA74
 magnet:?xt=urn:btih:0898E3CCB7382BAB1870A0920003C989EBB0F24C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:0898E3CCB7382BAB1870A0920003C989EBB0F24C
 ```bash
 magnet:?xt=urn:btih:77ADF42898134A7B6F68FAEB421D011ED87F1224
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:77ADF42898134A7B6F68FAEB421D011ED87F1224
 magnet:?xt=urn:btih:CB19A6137936EF736D374B3805C1928EBD0063D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:CB19A6137936EF736D374B3805C1928EBD0063D3
 ```bash
 magnet:?xt=urn:btih:F377E3DB0647EDAE6366443B12FA2F7B1B532263
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:F377E3DB0647EDAE6366443B12FA2F7B1B532263
 magnet:?xt=urn:btih:E3B5D3588D79613CD1598D8FDC30638C0B2CA0A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:E3B5D3588D79613CD1598D8FDC30638C0B2CA0A9
 ```bash
 magnet:?xt=urn:btih:9E14C3482770DA1C21B94F1BD49BB7D2D3792A51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:9E14C3482770DA1C21B94F1BD49BB7D2D3792A51
 ```bash
 magnet:?xt=urn:btih:81AFBB92B72D938EAE1AD284C67B743F8F80E522
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:81AFBB92B72D938EAE1AD284C67B743F8F80E522
 magnet:?xt=urn:btih:6E195A74B711F583CBF8C0E42E48CCC1BFEA2D69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ C++ — универсальный язык программирования, п
 ```bash
 magnet:?xt=urn:btih:992EB0D095113E8716CA7DE41D95AFB509AD37C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:992EB0D095113E8716CA7DE41D95AFB509AD37C4
 magnet:?xt=urn:btih:6C727BFEC0C1E80CAC7F6B59603B751062E99716
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Yii — это высокопроизводительный фреймворк, 
 ```bash
 magnet:?xt=urn:btih:D689EE35E269074280CE001D8C23AFE5A8890D63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ Benoît Blanchon | The Ultimate Guide to Master ArduinoJson / Руководст
 magnet:?xt=urn:btih:8B31333D1F281F9520CB9B814924CBDCC1559456
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:8B31333D1F281F9520CB9B814924CBDCC1559456
 ```bash
 magnet:?xt=urn:btih:FDBBF1BC2DEFBB3C92781252A5C1FE41EC9C891B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:FDBBF1BC2DEFBB3C92781252A5C1FE41EC9C891B
 ```bash
 magnet:?xt=urn:btih:A0D2548FFDAC283D9A0D5889D5609A67B29D136E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +679,8 @@ ng-book 2. Углубленная, полная и обновленная кни
 ```bash
 magnet:?xt=urn:btih:42CB2D5B206674C5220BAD058D6DAB9BC9A758F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

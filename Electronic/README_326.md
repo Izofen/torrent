@@ -22,6 +22,8 @@ Terra Nine - Laniakea (2018) [MP3|320 Kbps] <Ambient, Chillout, Downtempo>
 magnet:?xt=urn:btih:D2E8A16369DBEEE448B00BB018DEFCC50A382732
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Hells Kitchen - The End of Us (2012) Aura Music [FLAC|Lossless|WEB-DL|tracks] <D
 ```bash
 magnet:?xt=urn:btih:9FC441BA2C872BCA74A33AECF05507B49CDC6AD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Inner Light: Music For Meditation Vol.03 (2018) [MP3|320 Kbps] <Downtempo, 
 magnet:?xt=urn:btih:651F9B1C50453D409ED52E4601C5759221919801
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - My Fitness Week Thursday: Swimming Chillout Playlist (2017) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:49326D58748A8FD785279245FC719B0579A149ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Argus - The Invisible Sun (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Psychil
 magnet:?xt=urn:btih:B7E64E2D2731EC2A08DF9A9E6B625F4D516D9139
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Chronos - Inner Darkness (2017) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psybien
 ```bash
 magnet:?xt=urn:btih:C7F0D1C08499F0F67BD5647F821F6E008B7D884F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Chris van Buren - Tierra Del Fuego (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthpo
 magnet:?xt=urn:btih:840D0E6868104B0A266ECD07F6BC90FC344984E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Wolf and Raven - Lair of the Dragon (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthp
 ```bash
 magnet:?xt=urn:btih:7DD6964D76CB771D20CE89CB0EB0B432984A1F6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Wolf and Raven - Renegades (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synth
 magnet:?xt=urn:btih:336AC9EFD3DB11DE2B4E5ADE6C54240925514374
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Wolf and Raven - Ace of Space (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Sy
 ```bash
 magnet:?xt=urn:btih:4C31D58105B29316BD1D49043630D3E7CD9890BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Chris van Buren - New Horizons (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, S
 magnet:?xt=urn:btih:BAA86315DE77D43AD30BB122D788B344A2662281
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ GusGus - Arabian Horse (2011) [FLAC|Lossless|tracks + .cue] <House, Downtempo, T
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Chris van Buren - Hope and Destiny (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthpo
 magnet:?xt=urn:btih:8DE6D258EF585C489944CCB75E581AE461C69BF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ H1987 - ODYSSEY (2018) [FLAC|Lossless|Web-DL|tracks] <Ambient, Downtempo, Trip H
 ```bash
 magnet:?xt=urn:btih:32FEF58E2C5985CC988F7294DC90A666B36B4802
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Ibiza Deep House Vol 1 (2015) [MP3|320 кб/с]<Deep House>
 magnet:?xt=urn:btih:9AE2B509E8B78F5FFB620D8D7FD9A09AD9E892DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Chiptune Radio - 8-bit tribute to The Offspring (2015) [FLAC|Lossless|tracks] <8
 ```bash
 magnet:?xt=urn:btih:E41AD4CD631AD0F2BE99EB8292F8A0914F87E558
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - Progressive Goa Trance Vol. 2 (2016) [MP3|320 Kbps] <Trance, Psy Trance, Go
 magnet:?xt=urn:btih:0DE7CB681515AE10F3AFB90A9F0929A3462A7CD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ VA - Wake up Tunes (2016) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:271601A87336B820570F192F58C01C90AE16C81E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ VA - Levitated Vol. 1 (Mixed by Manuel Rocca) (2016) [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:61BCF50F2C22967F266027ECE728EBF29F4577FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ VA - Ibiza 2016 - Hot Tunes Vol.1 (2016) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:E220743FC54FAFC7C9DC979255E784C3C5BDA2AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ VA - Masters of Chillhouse (2016) [MP3|320 Kbps] <House>
 magnet:?xt=urn:btih:5EABF4C01B803BD429EB2C2467F66A8A015B36C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ VA - Slow Down Ambient Relaxation Vol. 1 (2016) [MP3|320 Kbps] <Ambient>
 ```bash
 magnet:?xt=urn:btih:EC0B12502146B04C1CC53CD4D43948392D6F740A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ VA - Baila Verano (2016) [MP3|320 Kbps] <House>
 magnet:?xt=urn:btih:CDEC96670F0312E325D70106888D34428D3753F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ VA - Mykonos Summer Guide (2016) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:2433CC04F84D760723E59247C6E3F4AC8D6B7398
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ Actress x London Contemporary Orchestra - LAGEOS (2018) Ninja Tune [FLAC|Lossles
 magnet:?xt=urn:btih:CF2B7C61DCBC76AAD0C879639F79431F1CC1C60F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ Aesthetic Perfection - Discography 23 Releases (2005-2019) [MP3|320 Kbps] <EBM, 
 ```bash
 magnet:?xt=urn:btih:F508E5FFAF2303A47821468C307A2B6C9502B068
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Tom Holkenborg aka Junkie XL - Distance Between Dreams / Расстояние м
 magnet:?xt=urn:btih:0777982C371AA9710F74CE837D3038A827B1768B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Tom Holkenborg aka Junkie XL - Distance Between Dreams / Расстояние м
 ```bash
 magnet:?xt=urn:btih:292D554381620911379E748BEF4AB5E0A7ED6787
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Enigmatic I & II (2006) [FLAC (tracks+.cue)|Lossless]<New Age, Enigmatic>
 magnet:?xt=urn:btih:FE2581FBFF95E71FFED2791A5643424320D6A7A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Nanda Re - Shaman Earth Dance (2015) [MP3|320 Kbps] <New Age, Enigmatic, World>
 ```bash
 magnet:?xt=urn:btih:BF9C47C789897BB3819B30FDE88D75357A4617DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Jill Garcia - Shine (2016) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:A991FEEC3A2A591FBC5CEA4F76542B5BAD7E13C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Michael Heemskerk - Angels (2016) [MP3|320 Kbps] <New Age, Meditation>
 ```bash
 magnet:?xt=urn:btih:1BBFCCDEA7097349308F877A2E3BD34AA9C2D583
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Fridrik Karlsson - Total Chillout (2009) [APE|image+.cue]<New Age, Instrumental,
 magnet:?xt=urn:btih:153193FC0C8D320F1EF24066DEA6EAD0AE459F43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Guilhem Desq - Visions (2017) Les Jeudis Du Rock, 2018 [FLAC|Lossless|Web-DL|tra
 ```bash
 magnet:?xt=urn:btih:257EA170167EC721BAD64480689CBEA5F4D3CF03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Various Artists - Лондонские поля/ London Fields (Original Motion 
 magnet:?xt=urn:btih:8D25AC4B8394F82C550CEB2C2F130033FDA61EE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +283,8 @@ Kacey Musgraves - Pageant Material (2015) [FLAC|Lossless|tracks] <Country, Folk>
 magnet:?xt=urn:btih:D8EB0E3479949EA89C1630BDB200A121EF011C76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +308,8 @@ magnet:?xt=urn:btih:D8EB0E3479949EA89C1630BDB200A121EF011C76
 ```bash
 magnet:?xt=urn:btih:7F0816EEF795B6DE841DE791E1765C15F71CB329
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +338,8 @@ Tom Holkenborg aka Junkie XL - Terminator: Dark Fate / Терминатор: Т�
 magnet:?xt=urn:btih:C5D6939C7A2C0C3281DA792B93889F2C0226C079
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +366,8 @@ Tom Holkenborg aka Junkie XL - Terminator: Dark Fate / Терминатор: Т�
 ```bash
 magnet:?xt=urn:btih:9A0A635FF39633118FFB6279E7015B178C338D2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +396,8 @@ Two Steps From Hell - Vanquish (2016) [MP3|320 Kbps] <Soundtrack, Trailer music,
 magnet:?xt=urn:btih:57301EEFFD3DAE58624D9C831C4704431EBEF6C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +424,8 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:7FCCD485D04DEF1F05364B96BF67CDE481707D88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +459,8 @@ Karunesh - Revelation (2009) [MP3|320 kbps]<New Age/Meditative>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +487,8 @@ Achillea - The Nine Worlds (2005) [MP3|320 Kbps] <Enigmatic, New Age, Downtempo>
 ```bash
 magnet:?xt=urn:btih:0014E0F102C2A48BE91DD11070CCB0D03DEE64AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +517,8 @@ Thomas E Rouch - Портал/Alpha Gateway (Original Motion Picture Soundtrack)
 magnet:?xt=urn:btih:0D4CC01849FF9EDA479875E36D1FEB61D4E47A70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +546,8 @@ Musica Relajante - Power Yoga (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Med
 magnet:?xt=urn:btih:71A7590BBB305E2E156DBC86B9FFD6007FA919A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +574,8 @@ Meister der Entspannung und Meditation - Early Morning Yoga Music (2019) [FLAC|L
 ```bash
 magnet:?xt=urn:btih:ACCFDE2400DC4A514190FEF222812A62BF6DF9E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +609,8 @@ Hilary Stagg - 7 альбомов (1988-2001) [MP3|320 кб/с]<New Age, Neoclas
 magnet:?xt=urn:btih:7FF6F4EE09ADAEEA68C680C44FEFEDA094DEC998
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +637,8 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:44B014C9602F859E79B4BB15DA8FBE44AA539356
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +667,8 @@ Nikonn - Effrosyni (2016) [MP3|320 Kbps] <Ambient, Downtempo, Dream Pop>
 magnet:?xt=urn:btih:3EE7112861B055E63DCB0169E5BE9CB9B4FBFB03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +695,8 @@ magnet:?xt=urn:btih:3EE7112861B055E63DCB0169E5BE9CB9B4FBFB03
 ```bash
 magnet:?xt=urn:btih:2B0595115F3C91EF4795893475CEBCE007F7554C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -677,6 +725,8 @@ Tom Holkenborg - Терминатор: Темные судьбы / Terminator: D
 magnet:?xt=urn:btih:1E3B5717482CEC6AF6180EE4DAE8A8D7FE34064A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -703,6 +753,8 @@ Hans Zimmer, The Magnificent Six - The Amazing Spider-Man 2 / Новый Чел�
 ```bash
 magnet:?xt=urn:btih:E90DBE56D2D7B5442BE5963DA12CEF635B7BE0D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

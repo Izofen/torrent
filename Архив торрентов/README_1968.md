@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:00E43FD5B9FB37B09BD189EA07B2F241B93F7576
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ VirtualBox - специальная программа для создания �
 ```bash
 magnet:?xt=urn:btih:38D0B47FD1228C748DE49A9F40A11A177C892ED6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Jump Desktop (RDP & VNC) - программа, которая делает до�
 magnet:?xt=urn:btih:7C86170F729E766F88C1CF0A55D9E197EFE087A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ LibreOffice — мощный офисный пакет, полностью со�
 ```bash
 magnet:?xt=urn:btih:A42208A5C42C1995EDEA3B0DE3A9BAEC7FB5FD3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Logoist 3.0.4 [Multi/Ru]
 magnet:?xt=urn:btih:AE5753764777F01595111E16034435D513DDE72E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ qBittorrent — мощный, многофункциональный, графи
 ```bash
 magnet:?xt=urn:btih:CC1FCDDBFF61EE11BF54DF5C64FFDC5A832F7E9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Perfectly Clear - последняя версия программы, котор
 magnet:?xt=urn:btih:934EAF1333CC4A3E2BE5B2674FD913B165653591
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ UC Browser для Windows - современный веб-браузер, кот
 ```bash
 magnet:?xt=urn:btih:78B0343030E4572BCC8943B2AAF797F231406DA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ MX5 - новая версия веб-браузера от Maxthon для Window
 ```bash
 magnet:?xt=urn:btih:96701C9BB7FF83C22A1A9BC603421272CBF3E3F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ VA - Nuages Records - Midnight Music 3 (2017) [FLAC|Lossless|Web-DL|tracks] <Hip
 magnet:?xt=urn:btih:D37945374E821ACCE8A622C46B6BE29DB37743CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:D37945374E821ACCE8A622C46B6BE29DB37743CA
 magnet:?xt=urn:btih:79410FEF8282C06FC4283782C95DB9C50C16FC68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:79410FEF8282C06FC4283782C95DB9C50C16FC68
 ```bash
 magnet:?xt=urn:btih:9D8014C037B60051F383BDC25AE86B1F554ED4F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ MacFamilyTree (   Читать дальше...   )Тип издания: macOS 
 magnet:?xt=urn:btih:C6D2C00FF2188BD3070274AA26E097E15784BFFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:C6D2C00FF2188BD3070274AA26E097E15784BFFE
 ```bash
 magnet:?xt=urn:btih:91DC22224F19AE91336E9059527EE6861C9F0049
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ VA - Future Noir - A Collection - Beats For A New Dark Age (1998) Credo [FLAC|Lo
 magnet:?xt=urn:btih:9819B5CAC66D2F2BBE4D52BFD268AF5D1E1588D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ Audirvana Plus - мощный аудиофильский плеер с широ�
 magnet:?xt=urn:btih:AD048B3E1203FF949A5C8117A2C72B07B84B8D36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ Translatium - одно из самых мощных приложений пер�
 ```bash
 magnet:?xt=urn:btih:5DD4DCBF87B267A4D7E21943EFD356F994DAA74C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +477,8 @@ Burshtyn - Безвірник (2017) [MP3|320 Kbps] <Black Metal>
 magnet:?xt=urn:btih:EE88E7DF835F01AB401DBDF702180C15538D97C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.20 (Compiled by Викто
 ```bash
 magnet:?xt=urn:btih:716E32CB5DA71B78C3B35E67427B8842BC31643C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +535,8 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.19 (Compiled by Викто
 magnet:?xt=urn:btih:DCAF4268D6FE9FD0C310A8F71EB91F7909C4FD03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ Downie поддерживает более 1,100 популярных сайто
 ```bash
 magnet:?xt=urn:btih:D76BDB7E8DD462F796A56C9D3E61C36DFD333163
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +593,8 @@ Ziyal - Discography 6 Releases (2013-2017) [FLAC|Lossless|WEB-DL|tracks] <Drum n
 magnet:?xt=urn:btih:B0303A2F96945B08A5151F9B5BCBBF9B127A1016
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +621,8 @@ Second Storey - Lucid Locations (2017) Houndstooth [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:ED50ABBC21E2E91CCEE50D1D9F1DCE976EEA2342
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +651,8 @@ magnet:?xt=urn:btih:ED50ABBC21E2E91CCEE50D1D9F1DCE976EEA2342
 magnet:?xt=urn:btih:DAE32DB08F5F0A4BFBC5D87D3EF7AD66C424C052
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +680,8 @@ magnet:?xt=urn:btih:DAE32DB08F5F0A4BFBC5D87D3EF7AD66C424C052
 magnet:?xt=urn:btih:FE96A70501A36BD2E33E7A8E4C3E84476E48F15D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ Acon Digital - Verberate 2 2.1.1 VST, VST3, AAX (x86/x64) [En]
 ```bash
 magnet:?xt=urn:btih:4F5DAE6AC575D0416F9A11850282CDE16110DCBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

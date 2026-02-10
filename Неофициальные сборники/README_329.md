@@ -1,3 +1,32 @@
+###  Публикация: 924613   (557463) от 04.08.2015
+
+VA - Зарубежные Новинки Интернета (2015) [MP3|320 кб/с]<Pop, Dance, R&B, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Great Big World, Futuristic - Hold Each Other
+02. Eminem, Gwen Stefani - Kings Never Die
+03. Pharrell Williams - Freedom
+04. Duran Duran - Pressure Off (feat. Janelle Monae and Nile Rodgers)(   Читать дальше...   )Жанр: Pop, Dance, R&B, RapПродолжительность: 06:17:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7916F1609585609B9163C4158CC607611A458010
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924573   (557474) от 04.08.2015
 
 VA - The Official UK Top 40 Singles Chart (31.07.2015) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
@@ -23,6 +52,8 @@ VA - The Official UK Top 40 Singles Chart (31.07.2015) [MP3|320 кб/с]<Pop, Da
 ```bash
 magnet:?xt=urn:btih:9B845B0B6DC1AB828B75BF804D152537CEC97481
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -51,6 +82,8 @@ ABBA - The Best Songs (2016) [MP3|320 Kbps] <Pop, Disco, Dance>
 magnet:?xt=urn:btih:3A390C44AFB900362FC662851923F9A0D6092E04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -77,6 +110,8 @@ VA - Hits For Chill (2015) [MP3|320 кб/с]<Deep House, Chill House, Chill Out>
 ```bash
 magnet:?xt=urn:btih:4B2412020ECFBC537CBACE82E0B58098521594D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -105,6 +140,8 @@ VA - Hologram Sound (2015) [MP3|320 кб/с]<Progressive, Club House>
 magnet:?xt=urn:btih:E31D4D5A911054F266AED4C5762937989829C616
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -131,6 +168,8 @@ VA - Music For Everyone - Electro house & Progressive Vol.4 (2015) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:574AACCF03B235676EFAEE40FDAE3FCD277666E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -159,6 +198,8 @@ VA - Extra Lounge (episode 10) (2015) [MP3|320 кб/с]<Lounge, Chill Out, Easy 
 magnet:?xt=urn:btih:276D67EC522F8617BB460291FC129F104C7693A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -185,6 +226,8 @@ VA - Resident Advisor Top 50 Charted Tracks July (2015) [MP3|320 кб/с]<Techno
 ```bash
 magnet:?xt=urn:btih:32A6884FFBBE0B82582CB806EE4D40886377520C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +256,8 @@ VA - The Sounds Of The Underground 03 (DJ Mix By Deeper82) (2015) [MP3|320 кб/
 magnet:?xt=urn:btih:B85FFC9E9A848BB344394CBDB292C906920EC2AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +284,8 @@ VA - Sunset Beats - Ibiza Edition (2015) [MP3|320 кб/с]<Downtempo, Chillout, 
 ```bash
 magnet:?xt=urn:btih:889F3754D44011C41BDE1E6AA54F72C814BBA1FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +314,8 @@ VA - Ambient Lounge Lyric (2016) [MP3|320 Kbps] <Chillout, Lounge, Ambient Lyric
 magnet:?xt=urn:btih:14759DE157C9289DCCC5BD94C60938D467133D2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +342,8 @@ VA - Зарубежная Дискотека Восьмидесятые (2016) [
 ```bash
 magnet:?xt=urn:btih:E4335193551508ED774632B677F12A55F806600B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +372,8 @@ VA - Топ 100 Клубные Ремиксы Июль (2017) [MP3|320 Kbps] <Ho
 magnet:?xt=urn:btih:A172460EF56D4B6B397098FC1C416EBE0A6B7CF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +400,8 @@ VA - 80's Cardio Workout Playlist Vol.3 (2016) [MP3|112 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:B0663A46047744249C7A7DC3205948A9CB79AD1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +430,8 @@ VA - Летние новинки интернета 50+50 Август (2016) [M
 magnet:?xt=urn:btih:E9F8563DA6B55B229F5D84264C38F2EE68A1C18D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +458,8 @@ VA - Piano Chill (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
 ```bash
 magnet:?xt=urn:btih:EE28849E3177198FFDE82EE4E452C9E2B91AA622
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +488,8 @@ VA - Tokyo Filled Ride Bass (2016) [MP3|320 Kbps] <House, Progressive>
 magnet:?xt=urn:btih:F82EE740DB01A541552F66D8B460CB2C50E4F362
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +516,8 @@ VA - Ultra Seduction EDM Festival (2016) [MP3|320 Kbps] <House, Electro House, F
 ```bash
 magnet:?xt=urn:btih:DDE4B373976A87EC027B8474309E33F9F58037A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +546,8 @@ VA - Sound DJ  Mainstream Season (2016) [MP3|320 Kbps] <House, Electro House, Fu
 magnet:?xt=urn:btih:106CDE57B5827DA13F8034E28D88D09A5FAA79EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +574,8 @@ VA - United People Following (2016) [MP3|320 Kbps] <Tech House, Club, Funky>
 ```bash
 magnet:?xt=urn:btih:1C54B57FE7671D9E698C9C2BFB4799CA84484BE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +604,8 @@ VA - Beatport Trance Pack (23.08.) (2016) [MP3|320 Kbps] <Trance, Melodic, Energ
 magnet:?xt=urn:btih:B54B9E460008D7CAC393BF080F14BE7E95A3861E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +633,8 @@ VA - Фитнес 50 треков Vol.2 (2019) [MP3|320 Kbps] <Club, House, Othe
 magnet:?xt=urn:btih:78A87DEA6CC7BEB0FC1D5AC181C14086081B1259
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +661,8 @@ VA - Top Selection Trance Today (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:FEE88E5D08A052BA22FA203E634D09ABCA74BC36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +697,8 @@ VA-Сборник нашего радио 2012 (2012) [MP3|256 кб/с]<Rock>
 magnet:?xt=urn:btih:73F9BEDBCBE534FB2700BAF5CFE49BAE84CA7C89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +725,8 @@ VA - Courtesy Trance Euphoric (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:FDF61D96B94E231ECD79EE190C8198547F3C889E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -678,32 +755,7 @@ VA - 100 Хитов В Машине. Клубная музыка 2015 (2015) [MP
 magnet:?xt=urn:btih:1BFCCF620F3D7E829079D7B724F61FA6B3C93BBE
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924395   (558773) от 03.08.2015
-
-VA - Top 100 Самых Красивых Песен 2015 (2015) [MP3|320 кб/с]<Pop, Dance, Club, Blues, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558773.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. One Direction - Drag Me Down
-002. Mike Posner - I Took A Pill In Ibiza
-003. Turbotronic - Kick Some Ass
-004. Team BS - Case Depart(   Читать дальше...   )Жанр: Pop, Dance, Club, Blues, RockПродолжительность: 08:49:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B90D1D3EADBDAD5F4757AFBE25BE5D0B2C50A782
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

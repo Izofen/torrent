@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:1C9A424D0061D3723162B1EB5248075FB4D63B50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Urn - Demon Steel (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Thrash Meta
 ```bash
 magnet:?xt=urn:btih:BB63EF8C775CA00398411F77528AE80527F42EF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Daylight Dies — метал-группа из Северной Каролины
 magnet:?xt=urn:btih:48ADE40EF46ED9C820660A3636C36B9832B7D96A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ B2. To Become His Doorway (09:21)Жанр: Black MetalПродолжительн
 magnet:?xt=urn:btih:88DFAAF0107925A935B648E889FBF2946B2E1467
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:88DFAAF0107925A935B648E889FBF2946B2E1467
 magnet:?xt=urn:btih:E55D796542D41301D6C24FA4D7DAF39D43FE11E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ TuneIn объединяет спортивные события, музыку, �
 ```bash
 magnet:?xt=urn:btih:C54918EC2A17810926C91389A3D335B28155EB45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:C54918EC2A17810926C91389A3D335B28155EB45
 ```bash
 magnet:?xt=urn:btih:7EE59B94DCABB8561E1D2AEA8352C1157FB054C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +215,8 @@ Kidz Bop Kids - kidz bop 50 (2025) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:DE9311DC7E4F03013CB08E5BE31510356602F418
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ Alena Lovely — это рукописный каллиграфический ш
 magnet:?xt=urn:btih:53BA5E6C91B8569AD93C12F0B647C6A7846E5B9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ Aharen-san wa Hakarenai | Непостижимая Ахарэн [ТВ-1] [2022, 
 ```bash
 magnet:?xt=urn:btih:D2B505C2DF2DD24E6D6A84E64DDC684C85652CDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +298,8 @@ VA - Platin Vol. 7 (1999) 2 CD [OGG Vorbis|480 Kbps] <Hip Hop, Rock, Pop>
 magnet:?xt=urn:btih:4CC6ACF62E93B4C282CF5845A220E088B404BE3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ magnet:?xt=urn:btih:4CC6ACF62E93B4C282CF5845A220E088B404BE3E
 ```bash
 magnet:?xt=urn:btih:1976AFD4B5B2F41C3B38296BD827245E052F147B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +355,8 @@ Erasure - Breathe (2005) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
 magnet:?xt=urn:btih:988E52AEAC37FF1FBB3BB3174251C38D90E5FDC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ magnet:?xt=urn:btih:988E52AEAC37FF1FBB3BB3174251C38D90E5FDC3
 ```bash
 magnet:?xt=urn:btih:7DA1BFDF03B385AA502AB6279FDA7F0677752A9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +409,8 @@ magnet:?xt=urn:btih:7DA1BFDF03B385AA502AB6279FDA7F0677752A9C
 magnet:?xt=urn:btih:4B43729A4398BAE511C0DCBB15C350C6C793C457
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +436,8 @@ magnet:?xt=urn:btih:4B43729A4398BAE511C0DCBB15C350C6C793C457
 magnet:?xt=urn:btih:DE2D64F12A6FC37C5C21C206EF091C6AE29A80FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ magnet:?xt=urn:btih:DE2D64F12A6FC37C5C21C206EF091C6AE29A80FD
 ```bash
 magnet:?xt=urn:btih:614020824618DD81C3A97F82C77B25D000F73472
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +488,8 @@ magnet:?xt=urn:btih:614020824618DD81C3A97F82C77B25D000F73472
 magnet:?xt=urn:btih:2E51983D452390E6A329B45F2F2899FD331E538A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ FolderSizes 9.7.517 Enterprise [En]
 magnet:?xt=urn:btih:436CE26F23086FD85CF81EFC3A603681F9C320D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:436CE26F23086FD85CF81EFC3A603681F9C320D2
 ```bash
 magnet:?xt=urn:btih:8B7B4FA9EA5ED268B7A601D66947B39C0B60FCD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +569,8 @@ Arida Vortex - Hail to Rock (2014) [FLAC|Lossless|image + .cue] <Power Metal>
 magnet:?xt=urn:btih:061505904208390EC495AB518DD7B001B524F0DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +594,8 @@ magnet:?xt=urn:btih:061505904208390EC495AB518DD7B001B524F0DC
 ```bash
 magnet:?xt=urn:btih:E5547FF4841CD2940A4919BBBF48C953B182C6AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +624,8 @@ A4 Through My Words(   Читать дальше...   )Жанр: Progressive Met
 magnet:?xt=urn:btih:4C74B60F260D1526D8A489986E9C9D5FFA70DCA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +649,8 @@ magnet:?xt=urn:btih:4C74B60F260D1526D8A489986E9C9D5FFA70DCA1
 ```bash
 magnet:?xt=urn:btih:F30E600571A8FFABD79BD0899F131CB62EC54F0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +676,8 @@ magnet:?xt=urn:btih:F30E600571A8FFABD79BD0899F131CB62EC54F0C
 ```bash
 magnet:?xt=urn:btih:7C0E567F2F6D921369BC8F73883E5A58431D95D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -655,6 +705,8 @@ VA - Sports Club Charts 2025 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 ```bash
 magnet:?xt=urn:btih:02515E742B324C2FECC0194A317AC183222D2D41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

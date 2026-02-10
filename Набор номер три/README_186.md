@@ -22,6 +22,8 @@ ru_windows_7_ultimate_with_sp1_x86_dvd_u_677463
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Just Cause 4 (2018) [Ru/En] (1.0/dlc)  Repack xatab [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:23F0E7E13FAF3FBA8F1AD71EC63AC5A35C737F1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Jagged Alliance возвращается! Превосходное сочета�
 magnet:?xt=urn:btih:3D2CD0EE4816BCD741A151FAF88575188E6A80BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2018.12.03 [Ru]
 magnet:?xt=urn:btih:1680149819F0D96A42E9027C2344BB4A8AE9A44A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:1680149819F0D96A42E9027C2344BB4A8AE9A44A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:1680149819F0D96A42E9027C2344BB4A8AE9A44A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ S7 Space разрешили строить ракеты
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ S7 Space разрешили строить ракеты
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ STAR WARS Jedi: Fallen Order (2019) [Ru/Multi] (1.0) License CODEX [Deluxe Editi
 ```bash
 magnet:?xt=urn:btih:48698912DC3D64B1190854D5B860E2EA08738788
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:48698912DC3D64B1190854D5B860E2EA08738788
 magnet:?xt=urn:btih:43532F75D8B78C4CF7000749D1F8212D97B10213
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:43532F75D8B78C4CF7000749D1F8212D97B10213
 ```bash
 magnet:?xt=urn:btih:A2C7ECCD52F77DEEADD0160CA64D4C2C1403A901
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Windows 10 Pro 1909 (build 18363.476) x64 by SanLex [Ru]
 magnet:?xt=urn:btih:5E0195E1940726018E72A1B559AD32EC6A37083C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:5E0195E1940726018E72A1B559AD32EC6A37083C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:5E0195E1940726018E72A1B559AD32EC6A37083C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ ARMA 3 - это новый виток в жанре тактических во�
 ```bash
 magnet:?xt=urn:btih:C2F0E3DD83011203A805EE90E9E8DFB370BA01BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:C2F0E3DD83011203A805EE90E9E8DFB370BA01BA
 magnet:?xt=urn:btih:502706A82FCB71F238B0F155A816648672755047
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Just Cause 4 (2018) [Ru/Multi] (1.0/dlc) License CPY [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:34503BFC54ACFB93B76224810FF5064C20E72272
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ Trondheim Solistene (The Trondheim Soloists) - один из самых изве
 magnet:?xt=urn:btih:CE6058AF6C5C99858C9718BB3B9DCE7AEBB602ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ KMS Tools — сборник программ от Ratiborus в одной об�
 ```bash
 magnet:?xt=urn:btih:6ECBDE260241F91D3F13AAA2D8EB50AF291F857E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:6ECBDE260241F91D3F13AAA2D8EB50AF291F857E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:6ECBDE260241F91D3F13AAA2D8EB50AF291F857E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:6ECBDE260241F91D3F13AAA2D8EB50AF291F857E
 magnet:?xt=urn:btih:7F622F8C3944F52D4A27F72B5253423C9F9E3B78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:7F622F8C3944F52D4A27F72B5253423C9F9E3B78
 ```bash
 magnet:?xt=urn:btih:7A31EF34843AA40D37446BA7CADB4E8593EC7ACD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ Avira Phantom VPN — является новым эффективным при�
 magnet:?xt=urn:btih:267CA6FDC2D41321107EE4611F20997A375C678A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:267CA6FDC2D41321107EE4611F20997A375C678A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:267CA6FDC2D41321107EE4611F20997A375C678A
 ```bash
 magnet:?xt=urn:btih:E1D87D9A0305E4121A907B809C29CA2B08251306
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

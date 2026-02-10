@@ -19,6 +19,8 @@ Udemy | Изучаем React.js 16.7 & Redux (2019) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:6AFB0C77532A3F8E93EEEEEA7E33CCD0F647D892
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:6AFB0C77532A3F8E93EEEEEA7E33CCD0F647D892
 ```bash
 magnet:?xt=urn:btih:21B9FA4BA4A833507FE5DB90B739A925E878B22D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:21B9FA4BA4A833507FE5DB90B739A925E878B22D
 magnet:?xt=urn:btih:F5B39BE1C48A176F0C1723F60C7DC291FEA0B51D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:F5B39BE1C48A176F0C1723F60C7DC291FEA0B51D
 ```bash
 magnet:?xt=urn:btih:49EC1204D2C2F30C79036F031FD1CBE2E57460F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:49EC1204D2C2F30C79036F031FD1CBE2E57460F1
 magnet:?xt=urn:btih:9AF4F3E05D4C27B2834D0D5D411713FD83303C59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:9AF4F3E05D4C27B2834D0D5D411713FD83303C59
 ```bash
 magnet:?xt=urn:btih:2E2FA02D8BA14A802FCE002B85FD14FFDB322E20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:2E2FA02D8BA14A802FCE002B85FD14FFDB322E20
 magnet:?xt=urn:btih:D7ABAA68A2BD56AEA6EF4B49C4C399F26B308D4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ HTML Academy | Интенсивный онлайн‑курс  Професси�
 ```bash
 magnet:?xt=urn:btih:91E746401F9BC8768370A2EA1F279CD28D3F6709
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ jsexpert | Фундаментальный Node.js (2018) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:5FDCCA6B30B4172B3C54DF329235C6E4CEF4D832
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:5FDCCA6B30B4172B3C54DF329235C6E4CEF4D832
 magnet:?xt=urn:btih:BB5C277A26BEAD107CD5C4DDD0DFF4F42C1D897E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ Lisa Kinder | 10 Minute Solution - High Intensity Interval Training (2013) DVDRi
 magnet:?xt=urn:btih:96C03EAFF967660B7337691DB92711FDBAC58F50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:96C03EAFF967660B7337691DB92711FDBAC58F50
 magnet:?xt=urn:btih:AD39CDE71291C79FB16B1379530AA5650AECEA47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:AD39CDE71291C79FB16B1379530AA5650AECEA47
 ```bash
 magnet:?xt=urn:btih:818AE4805E3B3F99C7FC71C41C7824226B132354
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:818AE4805E3B3F99C7FC71C41C7824226B132354
 magnet:?xt=urn:btih:3F84132B0251323818A954091F6469B4898C78AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:3F84132B0251323818A954091F6469B4898C78AB
 magnet:?xt=urn:btih:1B9797EF91C4B0DC2B22A19B1B979DFAEF05A5C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ Lynda.com | Techniques and Concepts of Big Data (2014) PCRec [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:55705B2026A95BA4640B938BB760756AC8570AD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +456,8 @@ Drag and Drop – это техника, которая стала больше 
 magnet:?xt=urn:btih:BB744AC18C76798036E184BD9B22321E0223C58E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ HTML5: File API в подробностях.
 magnet:?xt=urn:btih:2BFD6A9E4F358A0131D2883DD4C32F6689202787
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ magnet:?xt=urn:btih:2BFD6A9E4F358A0131D2883DD4C32F6689202787
 ```bash
 magnet:?xt=urn:btih:A0429EC38057C86DBF8B6E86B5375C27EBB7655D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ Udemy | HTML5, CSS3, FlexBox верстка сайтов с нуля. Курс 2
 magnet:?xt=urn:btih:E6CF4D02575AC132571D38815E973089621D2D47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ Blender 2.8 имеет совершенно новый набор инструм
 ```bash
 magnet:?xt=urn:btih:26660C28A363FE14D016E7612C7F92B2BDB3F097
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ Blender Cloud | Основы Анимации в Blender 2.8 / Animation Fundame
 magnet:?xt=urn:btih:64D3B7E2F8A314FB9CF1638E1058FF8E807397E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ Blender Cloud | Спидскульптинг в Blender 2.8 / Speed Sculpting (2
 ```bash
 magnet:?xt=urn:btih:FEB81BAD34007DAEA8B7A07A1F055CDF08CBF16B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +645,8 @@ BlenRig 5 это система авто-риггинга и скиннинга 
 magnet:?xt=urn:btih:9621CDF277B453BBD20F103043F85BAF2F10F6DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +671,8 @@ ITVDN | SharePoint Администрирование (2015) PCRec
 magnet:?xt=urn:btih:C8389C06DF4CD317ABD8017D120AC0534271969C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +696,8 @@ magnet:?xt=urn:btih:C8389C06DF4CD317ABD8017D120AC0534271969C
 ```bash
 magnet:?xt=urn:btih:D267EF4EBF3A7C6315E7044F65EAA214D99E668B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:52AF38CEA89D79645263FE209B0A104B91D0BE1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:52AF38CEA89D79645263FE209B0A104B91D0BE1D
 ```bash
 magnet:?xt=urn:btih:676257CB18864580D8AE13417D810CBAE2C0A0CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Yakuro - Forward to the Past (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambi
 magnet:?xt=urn:btih:97FEB8D60DC3F02E5DD7946C3E158640CF88B549
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:97FEB8D60DC3F02E5DD7946C3E158640CF88B549
 ```bash
 magnet:?xt=urn:btih:827AC12A2F5AFF4FCF9EC513069EE29AB3A8D3B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ Stive Morgan - Philosophy of Life (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age,
 magnet:?xt=urn:btih:4D62B68094D7F6B4888E701D551E55F410429FC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:4D62B68094D7F6B4888E701D551E55F410429FC5
 magnet:?xt=urn:btih:2CADC7E9A83082E3406FC405B66D0E4EC55C7190
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:2CADC7E9A83082E3406FC405B66D0E4EC55C7190
 ```bash
 magnet:?xt=urn:btih:330906EEF846C43E7DE9F8C4009C3419D25CFF6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:330906EEF846C43E7DE9F8C4009C3419D25CFF6C
 magnet:?xt=urn:btih:6143D0B43C04CCD1D613299C5C6A856CC1C3BC22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:6143D0B43C04CCD1D613299C5C6A856CC1C3BC22
 ```bash
 magnet:?xt=urn:btih:93DCA25FBC01826EAA54C1BD784F85597632B285
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:93DCA25FBC01826EAA54C1BD784F85597632B285
 magnet:?xt=urn:btih:1F93B36AE6D41F311B1542BF68A310176D24185A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ RegCool 2.030 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:13F55144465BB3C19633C434E8A49E110441849F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:13F55144465BB3C19633C434E8A49E110441849F
 magnet:?xt=urn:btih:67791AF73E8F8413108623A1D35D5C5669952B02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:67791AF73E8F8413108623A1D35D5C5669952B02
 ```bash
 magnet:?xt=urn:btih:5E64B2DFD5F3AE24C67270BF5144B0D2F470BAEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ VA - Billboard Top Hits 1979 (1991) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock,
 magnet:?xt=urn:btih:18C2FF1F91F0D428FE80F0F4A47F95C934A330D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ Champilon — современный шрифт без засечек с чис�
 ```bash
 magnet:?xt=urn:btih:9BB4D42C0CF564E768521F6498DCCE923C224ECA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +429,8 @@ Ernestronix (Ernesto) - Synths Earth Orbit (Launch Ignition) (2025) [MP3|320 Kbp
 magnet:?xt=urn:btih:747F8E58E6ACBDE28E7D2C62B464E77B04EC95E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +457,8 @@ Franca — это неогротескное семейство в девяти 
 magnet:?xt=urn:btih:B877B75FC139832030B55AEBA208DF98A43887F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ magnet:?xt=urn:btih:B877B75FC139832030B55AEBA208DF98A43887F3
 ```bash
 magnet:?xt=urn:btih:F024B242398825399B90985AB1EEEFBAE392ABBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +512,8 @@ Blond:ish - Never Walk Alone (2025) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 magnet:?xt=urn:btih:3E4BDA5699778D916CEB88B7EA9E42774046F878
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +537,8 @@ magnet:?xt=urn:btih:3E4BDA5699778D916CEB88B7EA9E42774046F878
 ```bash
 magnet:?xt=urn:btih:AC25E9CA5FCC0FF1D3CF360CBF4367652EF5CB91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +567,8 @@ VA - Remixes Revisited, Vol. 1 (2025) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:1E4C2AC88201FB3059B775C3F4E1814CB3DCFEBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +596,8 @@ Torul - Superposition (2025) [FLAC|Lossless|WEB-DL|tracks] <Synth Pop>
 magnet:?xt=urn:btih:DA90F2C8BE99C3BFC0481870120125437B2F3D43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +623,8 @@ Valentine Bellia - красивый и элегантный рукописный
 ```bash
 magnet:?xt=urn:btih:8065016EA233078A4CEAA328D914F620A6965144
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +653,8 @@ Trautner & Becker - The Tunes & Blues Art Band (Dark Is the Night) (2025) [FLAC|
 magnet:?xt=urn:btih:F75874DEAA3378F530E26EBC4C1B6ED525C11641
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +678,8 @@ magnet:?xt=urn:btih:F75874DEAA3378F530E26EBC4C1B6ED525C11641
 ```bash
 magnet:?xt=urn:btih:F3D18421EA60478238E3BD058CEBF877722A3C9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -656,6 +706,8 @@ magnet:?xt=urn:btih:F3D18421EA60478238E3BD058CEBF877722A3C9D
 ```bash
 magnet:?xt=urn:btih:A771B7EA11912CA7DA6D37DBF4C96646795C2688
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

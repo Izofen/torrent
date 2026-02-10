@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:A19072CBECE3620B86B8083A510BF6DBB04B5B69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -55,6 +57,8 @@ Scorpions - MTV Unplugged In Athens (2013) Blu-ray  [1080i]
 magnet:?xt=urn:btih:9325AA272B55C6082720BFE53E510F492DDF88D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -82,6 +86,8 @@ ZZ Top - Live At Montreux 2013 (2014) BDRip [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:62DAF2787C5233D8A06BA67F95B28E81E705007E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +122,8 @@ Die ZDF-Kultnacht - Das Beste Aus Disco (Teil 2) (2003)[H.264] HDTVRip
 magnet:?xt=urn:btih:4D26B07B359BFB2FBDAF110EC4A5D3E25B978511
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +147,8 @@ Serebro - Мало тебя  (2013) HDTVRip [720p]
 ```bash
 magnet:?xt=urn:btih:044BEAEE3ED035F1EEBBA3D4AA99FF1B722BFDDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +177,8 @@ Bob Marley - Concert tribute to Bob Marley(+бонус) (1999) DVDRip
 magnet:?xt=urn:btih:A90C3BEDA923CCE74CB60AD17D1C8736A1BBAA84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +203,8 @@ DVJ Bazuka - Rock'n'Roll (2012) [H.264/720p] WEBRip
 magnet:?xt=urn:btih:B3CBEF1E1B6337D3B9E9436BAE2AEDCF045ED58E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +228,8 @@ magnet:?xt=urn:btih:B3CBEF1E1B6337D3B9E9436BAE2AEDCF045ED58E
 ```bash
 magnet:?xt=urn:btih:7A4D5DAFDE1D30F66A939C077DFB5F40276FE442
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +261,8 @@ Cradle of Filth - Nymphetamine (DVD Special edition) (2006) DVD5
 magnet:?xt=urn:btih:581063DFFC89A8F2B8402EDE6E06694F6E81852D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +290,8 @@ Radiohead - Live at Roseland Ballroom, New York City (2011) CamRip
 magnet:?xt=urn:btih:DC2CB77765BD00568B00417072C424BD8D77906A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +318,8 @@ Echoes - Barefoot To The Moon (An Acoustic Tribute To Pink Floyd) (2015) DVD9
 ```bash
 magnet:?xt=urn:btih:8B34ED98509E56F75702BBE06700DFF21A8B546B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +349,8 @@ DVD4 - 01:28:00
 magnet:?xt=urn:btih:CA41A15756909FFA239B02B393565BDBF3D35DCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +374,8 @@ magnet:?xt=urn:btih:CA41A15756909FFA239B02B393565BDBF3D35DCA
 ```bash
 magnet:?xt=urn:btih:9AB54AC0B572AA9F25C6166EEA41F3EB62397450
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +404,8 @@ magnet:?xt=urn:btih:9AB54AC0B572AA9F25C6166EEA41F3EB62397450
 magnet:?xt=urn:btih:8BB6B1FB7D97CE08A40D46677CD4341142DFDE1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +429,8 @@ ROCKPOP IN DORTMUND: Scorpions, Def Leppard, QuietRiot, Judas Priest, Ozzy Osbou
 ```bash
 magnet:?xt=urn:btih:7516901D81C08E22A252E4740231592F4B18E0C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +460,8 @@ Lita Ford-The Complete Video Collection (2003) DVD9
 magnet:?xt=urn:btih:CBE80D61B2C35E6C6D3B252031A4DF2B9EE84BFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +489,8 @@ Joe Bonamassa - An Acoustic Evening At The Vienna Opera House (2013) DVD9 + DVD5
 magnet:?xt=urn:btih:AB4EF765830CAD46B8E1B720E101E3CD7A14069D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Joe Bonamassa "Live at rock palast" DVD
 ```bash
 magnet:?xt=urn:btih:0D6C01494E6C460DC5203E77871815A6F4FB2751
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ magnet:?xt=urn:btih:0D6C01494E6C460DC5203E77871815A6F4FB2751
 magnet:?xt=urn:btih:5BCE5FB38E89AB9B294CDA51B80A727F5207EDEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +573,8 @@ ZZ TOP - Double Down Live 1980 * 2008 (2009) DVD9+DVD5
 magnet:?xt=urn:btih:47A978A0C429B4590E1724EC5326843AB854FDB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +599,8 @@ Joe Bonamassa - Live From The Royal Albert Hall (2009) DVD5 + DVD9
 ```bash
 magnet:?xt=urn:btih:B406996DF955A3CC55D6B7E7DA781BAC480AC735
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +629,8 @@ magnet:?xt=urn:btih:B406996DF955A3CC55D6B7E7DA781BAC480AC735
 magnet:?xt=urn:btih:48AC6B8A085D240D4EDA4BB3D1C2DB4689BB0FB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +654,8 @@ Depeche Mode: 101 (1989) BDRip [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:1FF43A074A6AA0A66E1A5133D9FB4D8D9442C0AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +684,8 @@ magnet:?xt=urn:btih:1FF43A074A6AA0A66E1A5133D9FB4D8D9442C0AB
 magnet:?xt=urn:btih:517A9D1E70DDE2477827CC60D295C981F514968E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +713,8 @@ magnet:?xt=urn:btih:517A9D1E70DDE2477827CC60D295C981F514968E
 magnet:?xt=urn:btih:B466947691D7736B0E29B3C9628BC7DC0F1268A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -688,6 +738,8 @@ magnet:?xt=urn:btih:B466947691D7736B0E29B3C9628BC7DC0F1268A1
 ```bash
 magnet:?xt=urn:btih:3147E247CA854D8708C13FA06E442B53AEB89C3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

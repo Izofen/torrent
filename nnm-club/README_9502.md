@@ -21,6 +21,8 @@ StereOMantra - One-Off Tracks (2016) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Do
 magnet:?xt=urn:btih:9D43F7D005E05A3A9219F8791C4D1057BC1F3BCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - November Planet Pop (2016) [MP3|192~320 Kbps] <Pop>
 magnet:?xt=urn:btih:E39B8960573BA1CBBA2E6858997C5CA70D922D4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:E39B8960573BA1CBBA2E6858997C5CA70D922D4C
 ```bash
 magnet:?xt=urn:btih:550CEB7CB3AC73656787575951C672052C90BC43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ VA - Mark Sixma presents M6 - Elements (2016) [FLAC|Lossless|WEB-DL|tracks] <Tra
 magnet:?xt=urn:btih:23AB9E981F1C10F0D662F22884C901424E2949C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ Firefox - очень интересный продукт, который при�
 ```bash
 magnet:?xt=urn:btih:F58E776992CD0035738BE03E8FD3F57AB77EA029
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ Grainne Duffy - Grainne Duffy Live (2015) Live[MP3|320 Kbps] <Blues Rock>
 magnet:?xt=urn:btih:C9C3650A8657125AC1DA7877FD8CBF8CA6485BCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +189,8 @@ Malcolm McLaren - Paris (1994) [FLAC|Lossless|image + .cue] <Future Jazz, Downte
 magnet:?xt=urn:btih:59B9C98E7C4F081A9A149DC0CA6512C036DA5CB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ magnet:?xt=urn:btih:59B9C98E7C4F081A9A149DC0CA6512C036DA5CB8
 magnet:?xt=urn:btih:F5444036D38227184BB6DB85A403D58CFE51A476
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ Cyberfox 50.0.2 for AMD + Portable [Ru/En]
 ```bash
 magnet:?xt=urn:btih:96EE562165F2A4676E829FEF78C11FD10DFC4DAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ Nighthawks - Citizen Wayne (1998) [FLAC|Lossless|tracks + .cue] <Nu Jazz, Acid J
 magnet:?xt=urn:btih:F9C0E1EA60345B24F8830C25E86BA8F11C7399EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:F9C0E1EA60345B24F8830C25E86BA8F11C7399EB
 ```bash
 magnet:?xt=urn:btih:BB06BA8CB1537C03D97A73C1372E8384BB53B530
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -305,6 +327,8 @@ Ellen McIlwaine - Women In (E)motion (1998) Live [MP3|320 Kbps] <Blues Rock, Reg
 magnet:?xt=urn:btih:778F375EB1694D4B4EC4610296D394BB9B4F8DAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ magnet:?xt=urn:btih:778F375EB1694D4B4EC4610296D394BB9B4F8DAB
 ```bash
 magnet:?xt=urn:btih:EEC8B21986F0C32E61902509C377204A1EC2F5F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ magnet:?xt=urn:btih:EEC8B21986F0C32E61902509C377204A1EC2F5F4
 magnet:?xt=urn:btih:AD13C6227DD6FDF2FCB3B08B6890D270A5F81A98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ magnet:?xt=urn:btih:AD13C6227DD6FDF2FCB3B08B6890D270A5F81A98
 ```bash
 magnet:?xt=urn:btih:C80958C04BCDBD527DA9BD3C0A8ADDF200D06C33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ magnet:?xt=urn:btih:C80958C04BCDBD527DA9BD3C0A8ADDF200D06C33
 magnet:?xt=urn:btih:F86528ABC95E60E492AA66268058C6AD0DBEF0BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ magnet:?xt=urn:btih:F86528ABC95E60E492AA66268058C6AD0DBEF0BE
 ```bash
 magnet:?xt=urn:btih:ECD5FE2B7A660113E180D5A0C5260D85B18F67BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ magnet:?xt=urn:btih:ECD5FE2B7A660113E180D5A0C5260D85B18F67BE
 magnet:?xt=urn:btih:609467BCFCE3D9AC033650DC880A9C8EA47CD6C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:609467BCFCE3D9AC033650DC880A9C8EA47CD6C0
 ```bash
 magnet:?xt=urn:btih:853CA6360C85F04CEB9C1084FA149F34E1B483D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +535,8 @@ magnet:?xt=urn:btih:853CA6360C85F04CEB9C1084FA149F34E1B483D0
 magnet:?xt=urn:btih:825C7D5A98CC7E184DEF4FBD17E0809DB8F634C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ magnet:?xt=urn:btih:825C7D5A98CC7E184DEF4FBD17E0809DB8F634C2
 ```bash
 magnet:?xt=urn:btih:B6A37B74815734BA75329B6026C939077250F990
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +587,8 @@ magnet:?xt=urn:btih:B6A37B74815734BA75329B6026C939077250F990
 magnet:?xt=urn:btih:F8EF4D0797C85FCD74D05FE6E2DB168EC1B90208
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ magnet:?xt=urn:btih:F8EF4D0797C85FCD74D05FE6E2DB168EC1B90208
 magnet:?xt=urn:btih:78E07564732EA582AC41BAE39F8A3362517D16F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ magnet:?xt=urn:btih:78E07564732EA582AC41BAE39F8A3362517D16F5
 ```bash
 magnet:?xt=urn:btih:52EBC559853BFE3C4515F384338CD05FE1B46001
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ magnet:?xt=urn:btih:52EBC559853BFE3C4515F384338CD05FE1B46001
 magnet:?xt=urn:btih:EC49A2D7D86271E6459B0728199F99018A6EFEE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ magnet:?xt=urn:btih:EC49A2D7D86271E6459B0728199F99018A6EFEE4
 ```bash
 magnet:?xt=urn:btih:8E45D925F957573BAE2F97CF743A9B3FCA9373C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

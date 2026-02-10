@@ -22,6 +22,8 @@ Leatherjacks - Surviving the Beginning of the End (2025) [FLAC 24/48|Lossless|WE
 magnet:?xt=urn:btih:1BCE42A9056C015220ABB58A7145C1C968D8A69E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:1BCE42A9056C015220ABB58A7145C1C968D8A69E
 magnet:?xt=urn:btih:4478FF564EDE104AB1BF6B84E542100106C91D43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:4478FF564EDE104AB1BF6B84E542100106C91D43
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:4478FF564EDE104AB1BF6B84E542100106C91D43
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:4478FF564EDE104AB1BF6B84E542100106C91D43
 ```bash
 magnet:?xt=urn:btih:123AE20B7336D98CB635A740DE694C31235B8455
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ Survive the Fall (2025) [Ru/Multi] (1.0.1.2364/dlc) Repack FitGirl [Ultimate Edi
 magnet:?xt=urn:btih:5748A060A6CE55DFD3B48168125A05B7143036FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Dragon Ball Xenoverse 2 (Драгон Болл Ксеаунтс 2) – это п
 ```bash
 magnet:?xt=urn:btih:2AE6DD72D5226C4610A457491B49B99DEDFBBFF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Deliver At All Costs - симулятор курьера, позволяющий
 magnet:?xt=urn:btih:CA75734BCC7A92A10E4DDDD965C4910AFF1DBE9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:CA75734BCC7A92A10E4DDDD965C4910AFF1DBE9F
 ```bash
 magnet:?xt=urn:btih:570DD22C781AFA17760886394235345F7584093F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:570DD22C781AFA17760886394235345F7584093F
 magnet:?xt=urn:btih:33D6012D6695532BC8A3EC7ACCE75E03567CE6CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ BitTorrent – программа-клиент пиринговой сети. П
 ```bash
 magnet:?xt=urn:btih:968FDB3B729324B7FE22DD3BB62C940551048B01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:968FDB3B729324B7FE22DD3BB62C940551048B01
 magnet:?xt=urn:btih:9273FBB61DAB4B7EB3845A02E248110834DED1D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:9273FBB61DAB4B7EB3845A02E248110834DED1D6
 ```bash
 magnet:?xt=urn:btih:7502E601EAF0F8B4C2A6B7186137882215ED97C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:7502E601EAF0F8B4C2A6B7186137882215ED97C1
 magnet:?xt=urn:btih:FD8A8279D924061DF1470BCFD1D133A7C34B5C44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ MediaHuman YouTube Downloader 3.9.12 (2405) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:EE2CF5DCE4D3682890A34E614FB532272336DD47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ Fable Anniversary - это ремейк одной из самых продав�
 magnet:?xt=urn:btih:FA1D1F0B9A6E946EE39B25F9A361763F97791DFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:FA1D1F0B9A6E946EE39B25F9A361763F97791DFC
 ```bash
 magnet:?xt=urn:btih:CD5EC5A36F14DFE79ED1DD080D8C5B661490CEE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Open-Shell Menu - замена утилиты Classic Shell, разработк�
 magnet:?xt=urn:btih:CEFABDEC49308C1C3348C44E9F58FA13A6F0EC88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:CEFABDEC49308C1C3348C44E9F58FA13A6F0EC88
 magnet:?xt=urn:btih:4D352B1747BABDB3570728F929B592B71945C00F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Twilight Wars (2025) [Ru/Multi] (1.0.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:593CCB3D36FBE01A065CB052A4F4E483D47ADDE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:593CCB3D36FBE01A065CB052A4F4E483D47ADDE0
 magnet:?xt=urn:btih:2AACF12EDDBE4147C5BD2C674DDE008A6A5091B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:2AACF12EDDBE4147C5BD2C674DDE008A6A5091B0
 ```bash
 magnet:?xt=urn:btih:E0CCA872FF91695FEF10679B9CF05AE7705AF0DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ Crystal Ice - In My Fantasy World (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco, D
 magnet:?xt=urn:btih:7485857C6C980039632527A12E0FB89FA0B0BD45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:7485857C6C980039632527A12E0FB89FA0B0BD45
 ```bash
 magnet:?xt=urn:btih:6E79224DC8E169E9D6AA8EBD612B4063B42E37EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ Dj Cult Music - Blues Dreams on the Horizon (2025) [FLAC 24/192|Lossless|WEB-DL|
 magnet:?xt=urn:btih:32158419B7C4D976FA8FC148F225BC56F3291013
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ Dead Romantic - Stay High (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:327A8742CB74AF438D22740AB6CC4250A11BBCA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

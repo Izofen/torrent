@@ -19,6 +19,8 @@ Fort Firewall - простой и бесплатный брандмауэр дл
 magnet:?xt=urn:btih:997DE3AA61D9D1D2776C996BECF91670D99016ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ IceCream Ebook Reader Pro 6.25 RePack (& Portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:46A037C22E6CA66CE882044BF34E8E20D4507DA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ FreeCAD – это очень мощный и серьезный продукт,
 ```bash
 magnet:?xt=urn:btih:5B28B9ED0C9B4D337532F0BA4FF1BF411E92EF71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Hallo Northern Sky (HNSKY) – профессиональный планетар
 magnet:?xt=urn:btih:A1C6787845CAFC6625582A9EC7CA7F238C89559E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ NVIDIA GeForce Driver — драйвера для видеокарт произ�
 ```bash
 magnet:?xt=urn:btih:BFEC0A7056380F0BBB151A7E4295F3181DEFACF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Auslogics Disk Defrag Pro - это профессиональная версия
 magnet:?xt=urn:btih:FF8F4B55F76765A6194C45A8205D8AD35B77F520
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:FF8F4B55F76765A6194C45A8205D8AD35B77F520
 ```bash
 magnet:?xt=urn:btih:C83862EC3D7ABA1DBD3667A15B27C864AAFDDFDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Just Color Picker — бесплатная программа, предназн�
 magnet:?xt=urn:btih:2EAD00503A5754DEAB83712ABC6B8583B2A80982
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ CPUID HWMonitor - утилита предназначена для монито�
 ```bash
 magnet:?xt=urn:btih:EAF7C0F1CA89918ED4ED840BDBBD3C31FEC679DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ SoundSwitch — легко переключаемся между звуковы�
 magnet:?xt=urn:btih:9FF0394493063090A54F26A2184916865063D0D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Transcend SSD Scope - удобное приложение для работы с
 magnet:?xt=urn:btih:520203D347BA1855803CD20936A3D7DCB34DE730
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Start Everywhere - это программное обеспечение с ме�
 ```bash
 magnet:?xt=urn:btih:76B37076146EB1A72506957DA21800E42C3B5E21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Mandelbulber- экспериментальное приложение, разр�
 magnet:?xt=urn:btih:2C262233873997C1418167D61440774EA7192033
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:B08877E3748906F85D443E9E30C74C6C7EEBBD17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Movavi Screen Recorder - программа для захвата видео с 
 magnet:?xt=urn:btih:3E7EAF1F35DC5837A60E4980B4B78D422C329471
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ SupRemo 4.10.0.2065 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B79794ED396D95C15FA7CE1FA951E6C1D4FE9DDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ Antivirus Removal Tool - портативный набор официальны�
 magnet:?xt=urn:btih:D2F96AD8B1E8B25EB2186532A5BF60F8DE3E4E4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:2B778289915CD5B7BECB225064E06A97DE0ABD40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ Microsoft .NET 7.0.9 Runtime [Ru/En]
 magnet:?xt=urn:btih:F82D118ABCB828DBB96817F59B454BB35E27A217
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ Mirillis Action! 4.35.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:33DD0B16987E00243898BACBD9E9A52A6597E466
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 ```bash
 magnet:?xt=urn:btih:AF54FEB3EABA868BC4B50D2D1160263C5132FA36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ HomeBank можно настраивать полностью под себя, �
 magnet:?xt=urn:btih:4FB44BE074BF8FBFD77620D894EF074BD5D01A82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:421CFF5FEFDC1FC87A88E01DAAC1DDED1F837E1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ EF Commander  — замечательный двухпанельный файл
 magnet:?xt=urn:btih:AE31491E79C0B5DF6310DA2DCD5DE15823A115EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ FileMenu Tools настраивает пункты контекстного ме
 magnet:?xt=urn:btih:23179303C2439A7A3C01523CAAC9A373A74B7EAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 ```bash
 magnet:?xt=urn:btih:E42D9B61755AEDAB2B323A69FE2A29E904EFBBDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

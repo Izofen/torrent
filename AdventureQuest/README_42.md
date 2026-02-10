@@ -19,6 +19,8 @@ Corbid! A Colorful Adventure - приключенческая игра для в
 magnet:?xt=urn:btih:53C6F81B4311E3089C623BCBFCF6F6E080899A90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Deep in the Woods / Глубоко в лесу (2024) [Ru/Multi] (1.0) Scene Ten
 ```bash
 magnet:?xt=urn:btih:BF3721ED8E24B2C11A9C54B3D932E25C79F21083
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Amygdala бросает вас в леденящую душу одиссею. А
 magnet:?xt=urn:btih:3D72FE6CD795B4B3CD3614DEEC3B852D9D17354F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ A Twisted Tale – приключение, игровой процесс кот�
 ```bash
 magnet:?xt=urn:btih:B9741FD60CE69451F8614EBA1BE674D24995B0D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Alone in the Dark (2024) [Ru/Multi] (1.02/dlc) Repack Other s
 magnet:?xt=urn:btih:9E888E4C7767B01133AE6E5ADDA562E5D2E6920A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The Cadet Files: Scene Unseen ставит вас на место агента-�
 ```bash
 magnet:?xt=urn:btih:896C3376A0195CA6DA5DBDFC063E3F48EBC3CEE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Highwater переносит игроков в недалекое и мрачн�
 magnet:?xt=urn:btih:85E8437B684A67773856773EFF31C6D2222D9DC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Unbearable – это хоррор на выживание с видом от т
 ```bash
 magnet:?xt=urn:btih:F91D21615A0F2EDB95342487A32923916191E692
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Alone in the Dark (2024) [Ru/Multi] (1.02/dlc) Repack FitGirl
 magnet:?xt=urn:btih:E05C1A25B4795EA5E4C29140712ADEF6079B31EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Beast Inside – психологический хоррор с соврем
 ```bash
 magnet:?xt=urn:btih:BAAF71586AFE101534E57D7F2342AA3FB8669651
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Left Behind (2024) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:62DBAE4226489125EBD92D94E9526F52E75F9171
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Death Trick: Double Blind - приключенческая игра в форм�
 ```bash
 magnet:?xt=urn:btih:2C10B5916FF5931347EFCB8A308653F479FFECDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ The Quarry - кинематографичный хоррор, в котором 
 magnet:?xt=urn:btih:B4AB794951BD77DC297276D08210B5232A542C81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Silent Cause - это однопользовательская игра в жа�
 ```bash
 magnet:?xt=urn:btih:8AF5B09C33FA8CE203EFA7A544EBB6D4FE57EF91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Unknown - психологический хоррор от первого л
 magnet:?xt=urn:btih:3F6E884CE917AAC675CC98A510F153DE981C0B12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Somerville (2022) [Multi] (1.0) License Razor1911
 ```bash
 magnet:?xt=urn:btih:43FA6C448CA713BA8C5354579BA3B1CFE015BD54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ YOKO (2024) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:BE94EB460429AA8E57B40EE2E651ECE4D97B63FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Zoonomaly - оригинальный хоррор от первого лица, 
 ```bash
 magnet:?xt=urn:btih:E6E3D571FB82DBD046294EB67CEB972A16ADE491
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Stellar Ghosts Settlers - это научно-фантастический шу�
 magnet:?xt=urn:btih:9C4CDCCB74D285F79B27A2E2B94F3CC6117AC2F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ IMMORTALITY (2022) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:ACDBE02A3E2C4EDF43B2C8E0A346466B8EAC1E65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ REVEIL (2024) [Ru/Multi] (1.0.3f4/dlc) Repack Other s
 magnet:?xt=urn:btih:A804BDCD072961732C1798DBD895A8E64EE92803
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Evil Nun: The Broken Mask (2023) [Ru/Multi] (1.671) Repack Other s
 ```bash
 magnet:?xt=urn:btih:FEFC0BC00D9530825EFE37B26985E06AA2BCDD35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ The Bunker 69 – приключенческая игра, что обладае
 magnet:?xt=urn:btih:3EC83A04B291508CE29E5AF5A2E7C21DDE1E8C10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Ever 17 - The Out of Infinity (2025) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:54AECE2A3A74F89F0C27842D655B059D563DE074
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ The Hungry Lamb: Traveling in the Late Ming Dynasty / Epiao: Ming Mo Qianli Xing
 magnet:?xt=urn:btih:4BC6FCF5ADC58BBD62193722CA74122DF2166E45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Tex Murphy: The Pandora Directive (1996) [Multi] (1.02) License GOG
 ```bash
 magnet:?xt=urn:btih:B97966C8E16FB10E2C11D11F6BF220FE7DEE7516
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

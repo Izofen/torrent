@@ -22,6 +22,8 @@ VA - Nahawand: Best of 2024 (2025) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:684C1BDE9E817A67D6ED4C0C887CEF5B0DF73D37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - SpaceSynth.Ru presents: Special New Year's Voyage 2025 (2025) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:DB8398D1FD5E70B415A62CC4179B8CC8A833825F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - A-Mase - Best of 2024 (2025) [MP3|320 Kbps] <Progressive House, Melodic Hou
 magnet:?xt=urn:btih:7EA6C3F6D1A56BB1C2BEFF006A2AFE34EC02D357
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Trance - Charted Only (Winter Edition), Vol. 1 (2025) [MP3|320 Kbps] <Tranc
 ```bash
 magnet:?xt=urn:btih:7FDA8ABB487F3250C879E8450E205A531BCEF5AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Armin van Buuren - A State Of Trance 1206 (2025) [MP3|320 Kbps] <Trance, Pr
 magnet:?xt=urn:btih:B516FA2642633636A8D571CD7DAEE44F7C4DE820
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Raw Deep Hypnotic Trance, Vol. 1 (2025) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:EE1E9F2BF005ACEB3253179D4B302296A0860414
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Ultima Audio: Essentials 2024 (2025) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:D1856D4023DD3EAB83E5EEA6CD384236563F31A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Spektra's History - 17th Anniversary (2025) [MP3|320 Kbps] <Breaks, Breakbe
 ```bash
 magnet:?xt=urn:btih:836D046696ED11D13593CDC6AEA10C8322DC1EAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Redux Selection, Vol. 1 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Tra
 magnet:?xt=urn:btih:E8E81F3B1271C9AE014072666F59636464487D9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Ablazing Winter Sessions 2025 (2025) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:5EE5292DA8C718CB110D2B80E1D2D5F88D22C55D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +314,8 @@ Didier Marouani & Space - JUST BLUE (2002) [MP3|320 kbps]<Electronic>
 ```bash
 magnet:?xt=urn:btih:2265D16A9B30AEC0DB96EB1A024EC05D02CFCD53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +350,8 @@ VA - More Than Miles: Dream House '96 (1996) [MP3|320 kbps]<Dream House>
 magnet:?xt=urn:btih:8FFCFEA3F9D35E6470F4E537963408761E252E1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +384,8 @@ CD1 Mixed by James Grant [01:16:31]
 ```bash
 magnet:?xt=urn:btih:B87646B79AA462D70BBDD7CDE0D43AB824B1FD87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +420,8 @@ Miike Snow - Miike Snow (2009) [MP3|320 кб/с]<Electro-pop>
 magnet:?xt=urn:btih:E51C742ABD9BF5DE14B347DEA735FB40ACB98096
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +445,8 @@ VA - Markus Schulz - Global DJ Broadcast Top 15 (2008-2011) [MP3|320 кб/с]<Tr
 ```bash
 magnet:?xt=urn:btih:0ED099B26C71241D66A596003CFE2F9A0DEEB512
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +477,8 @@ CD1
 ```bash
 magnet:?xt=urn:btih:9283A3DB4C0CD0194245BAA896B09964697CAB0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +513,8 @@ _________________________________________________
 magnet:?xt=urn:btih:5DD92B87347CB27048788572CEB0BA511E7AB0A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +548,8 @@ Disc one:
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +573,8 @@ Disc one:
 ```bash
 magnet:?xt=urn:btih:16D285917E7F692BF9A9C33ABC060F1D8FF40A69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +609,8 @@ DJ JIM - Spring Colors (2012) [MP3|320 кб/с] <Progressive House>
 magnet:?xt=urn:btih:05B2346876707875E86D7E55BFB0674AE2A32572
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +644,8 @@ The Internet - Purple Naked Ladies (2012) [FLAC|Lossless]<Electronic, Funk, Trip
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +669,8 @@ Triangle Sun - 3Albums (2007-2008-2009) [MP3|320 kbps]<Chillout / Downtempo>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -661,6 +705,8 @@ Bertine Zetlitz - Electric Feet (2012) [MP3|320 кб/с]<Synth-Pop, Acid Jazz, E
 magnet:?xt=urn:btih:F298D2BD57B278C6E162E36F6ED5237D78B67C8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -691,6 +737,8 @@ VA - 50 Miami Tunes 2012 WEB
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -725,6 +773,8 @@ VA - Best Of Chillout Ibiza - Sunset Lounge (2012) [FLAC|Lossless]<Lounge, Chill
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -757,6 +807,8 @@ Markus Schulz - Global DJ Broadcast Top 20 March (2012) [MP3|320 кб/с]<Trance
 ```bash
 magnet:?xt=urn:btih:8AC46EDCE0675C460D8788CF62904DC906CC5063
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

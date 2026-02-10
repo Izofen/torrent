@@ -19,6 +19,8 @@ Tales from the Borderlands (2014) [Ru/Multi] (build 6086951) Repack Necros
 magnet:?xt=urn:btih:2CABB4D38A7D31C9D029DD8F30B37CC9E5A221C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Kujlevka / Кужлевка (2023) [Ru/En] (20230620) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:EBD12F8E5FC98C1C84ED334ADBE3BA254B895090
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ A Plague Tale: Requiem (2022) [Ru/Multi] (1.6.0.0/dlc) Repack dixen18
 magnet:?xt=urn:btih:AB6E12AE29E1122ADB0CBFFEAFEB402B0166FBEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ GYLT (2023) [Ru/Multi] (1.1.1.5) Repack Other s
 ```bash
 magnet:?xt=urn:btih:880222474DE57AD3E208F0E557EBCF4D33D5C6EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ RiME (2017) [Ru/En] (1.04) Repack xatab
 magnet:?xt=urn:btih:B7EB8D2FC080FA12F5AAC371C2E1F1C9F5CAD12A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The Bookwalker - увлекательное приключение, где вы 
 ```bash
 magnet:?xt=urn:btih:E3068FFC1868BEF2DCB9F28A99EFC25AAD414441
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Dave the Diver - это казуальная приключенческая RPG 
 magnet:?xt=urn:btih:F5DEB4EBDCDB6ED76BE3033F274D654CFEB99487
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Layers of Fear (2023) [Ru/Multi] (1.2.2.rb95581) Repack Other s
 ```bash
 magnet:?xt=urn:btih:7BFD1350B98AC89AF05FDF5355CCDFD83F775A96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Daydream: Forgotten Sorrow (2023) [Ru/Multi] (1.2.6) License GOG
 magnet:?xt=urn:btih:BAF13A97A8450EBF5CB9E5C9F63327A79EC31DA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Uru: Ages Beyond Myst (2003) [Ru] (1.0) UInofficial
 ```bash
 magnet:?xt=urn:btih:24D92F7A47C51AA704EB5713FF3AB9207E954B60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Entropy Centre - умопомрачительное приключение �
 magnet:?xt=urn:btih:6686F0F6219BEA7E8B1A29762DF3A33F8A63F3D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ The Captain (2021) [Multi] (1.1.4) License GOG
 ```bash
 magnet:?xt=urn:btih:736CD9AA9AB64FA599DAD9EBF3FEB33FDE89D30F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ A Plague Tale: Innocence – это невероятный средневеко�
 magnet:?xt=urn:btih:794F5F6A64B006F1C174D9189B7F945C17DC8891
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Beautiful Desolation - это двухмерная изометрическая 
 ```bash
 magnet:?xt=urn:btih:C1B7B784AA1AE296A3A2AC5F43F11080A4A7CFCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ A Light in the Dark – это визуальная новелла с рисов
 magnet:?xt=urn:btih:E07775FDF426A47BBD35D695174F774F0C5DB65E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Morrok (2023) [Ru/Multi] (Build 11369620) Repack Other s
 ```bash
 magnet:?xt=urn:btih:321525062EBF52EE307A91225DEBA6CD80178367
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Subnautica - это подводная приключенческая игра �
 magnet:?xt=urn:btih:FA5208EBB6AC6C430678F774A345B49E01768272
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Nine Sols - это нарисованный от руки 2D экшен-плат
 ```bash
 magnet:?xt=urn:btih:C785BECFCF687CBA30485FB15FC846F32C26E3F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:C785BECFCF687CBA30485FB15FC846F32C26E3F7
 magnet:?xt=urn:btih:A162F77C2116F20B03C071DD3792CA245712FD65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The Sojourn (2020) [Ru/Multi] (1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:FDF703D1CB8981087661C75E3E484E795824D6E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ STASIS: BONE TOTEM (2023) [Ru/Multi] (1.0.1.1) Repack Other s
 magnet:?xt=urn:btih:FBAA2194B630820661096DC01F36D6AAD830B613
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ TUNIC (2022) [Ru/Multi] (1.0-t1513-b45) License GOG
 ```bash
 magnet:?xt=urn:btih:AF20BFD277730BAC8B881FB8E286154DC626ACD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Star Trek: Resurgence - интерактивная новелла, событи�
 magnet:?xt=urn:btih:AFEE4D098E120D5EAC70C04998A38039C1846D5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ The Quarry (2022) [Ru/Multi] (Build 11105655/dlc) Repack Other s [Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:1928C22940FEFB02FBB0B46A154EB5199D34F2CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Machinika Museum (2021) [Ru/Multi] (1.22051101) License GOG
 magnet:?xt=urn:btih:448167CACE4EFD7258CC0755AC9A25A7D79201CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Star Crafter (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FB2BA101318ADDEDFC9335D4FE081703771AE0D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

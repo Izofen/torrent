@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5A20058C8F8D3473A8A3C38D6D0FD546804DF76D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ Stars On 45' - Звёзды дискотек (2LP) (1983, 1984) [FLAC 2.0 24/96|
 magnet:?xt=urn:btih:728CC25AEF93BBB5964D3C2875ACBAA18C051813
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -78,6 +82,8 @@ Them - Manor of the Se7en Gables (2018) [FLAC|Lossless|image + .cue] <Heavy Meta
 ```bash
 magnet:?xt=urn:btih:FF2EADE2BDA5F1BD7136CA520DC53D3016DE275A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -106,6 +112,8 @@ VA - Nick Warren - The Soundgarden - Volume One (2014) Hope Recordings [FLAC|Los
 magnet:?xt=urn:btih:CAEA7ACC43FE4D04EAF0E8C553CFDD2758ECC7DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:CAEA7ACC43FE4D04EAF0E8C553CFDD2758ECC7DD
 magnet:?xt=urn:btih:5EDD62C4F2E5005AB3B275647C4645A89C50479D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ magnet:?xt=urn:btih:5EDD62C4F2E5005AB3B275647C4645A89C50479D
 ```bash
 magnet:?xt=urn:btih:1E8524494A0826690D05ED425CC490938C77AF70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ One Last Day - Прости, что так (2022) [MP3|320 Kbps] <Alternative Ro
 magnet:?xt=urn:btih:DC9079525652180A054C9D6BB392E6605767C38C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ Titiyo - Extended (1997) [MP3|320 Kbps] <Pop, Soul, R&B>
 magnet:?xt=urn:btih:B56F2588F8134E1443D76919023B69192D2873DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -233,6 +249,8 @@ Loopback 2.2.7 [En]
 magnet:?xt=urn:btih:8FEB08D478A25BC2564139D609D8BAAAAE61CF08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +274,8 @@ magnet:?xt=urn:btih:8FEB08D478A25BC2564139D609D8BAAAAE61CF08
 ```bash
 magnet:?xt=urn:btih:91C260F5C7AEEAFB06A1D37738F5BD4857553C46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +304,8 @@ Boston - Walk On (1994) [FLAC|Lossless|tracks + .cue] <Arena Rock, Rock>
 magnet:?xt=urn:btih:8DDF01C9FA12CCA9B136F65F0BE8709A2127AC69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +329,8 @@ magnet:?xt=urn:btih:8DDF01C9FA12CCA9B136F65F0BE8709A2127AC69
 ```bash
 magnet:?xt=urn:btih:AFB41EBED7EC0C5EF907A8F55917CA9E10BCDF0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +359,8 @@ magnet:?xt=urn:btih:AFB41EBED7EC0C5EF907A8F55917CA9E10BCDF0E
 magnet:?xt=urn:btih:D3086A7FF3E8603BB7B07C0C981ADFA1B5DE4EE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +385,8 @@ magnet:?xt=urn:btih:D3086A7FF3E8603BB7B07C0C981ADFA1B5DE4EE3
 magnet:?xt=urn:btih:21CD690FCDD31916192870131EA1FEFF877AC3A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +410,8 @@ magnet:?xt=urn:btih:21CD690FCDD31916192870131EA1FEFF877AC3A9
 ```bash
 magnet:?xt=urn:btih:2BED33723F280E425B69E20AECAEB2EA249B6770
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +440,8 @@ Folder scanner - визуально анализирует диск / папку
 magnet:?xt=urn:btih:A9AF2CC585AD1645818839F5C27B173948C165D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +465,8 @@ magnet:?xt=urn:btih:A9AF2CC585AD1645818839F5C27B173948C165D8
 ```bash
 magnet:?xt=urn:btih:21045F4026E0C744FDB44B726A988F0F257F4BB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +501,8 @@ Modern Talking - Поговорим о любви, Ready For Romance (1986, 1987
 magnet:?xt=urn:btih:0159D5A7AE17443E0DAE7B4D42D238F2A89D1A7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +529,8 @@ magnet:?xt=urn:btih:0159D5A7AE17443E0DAE7B4D42D238F2A89D1A7A
 ```bash
 magnet:?xt=urn:btih:B3140F4920A492B70A8561C5FC18A533380B59DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +559,8 @@ magnet:?xt=urn:btih:B3140F4920A492B70A8561C5FC18A533380B59DC
 magnet:?xt=urn:btih:D553AF496C9EA425BB8EF4BF07214A6727433C6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +584,8 @@ magnet:?xt=urn:btih:D553AF496C9EA425BB8EF4BF07214A6727433C6A
 ```bash
 magnet:?xt=urn:btih:5F2D627397D3F05E05BC25DCFC4F08A2D87F7363
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +614,8 @@ magnet:?xt=urn:btih:5F2D627397D3F05E05BC25DCFC4F08A2D87F7363
 magnet:?xt=urn:btih:2F17A5F0662D9010A60A95956FC5D60A31DADD9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +642,8 @@ VA - Christmas & Chill, Vol. 2 (Have Yourself A Little Deep House Hangout) (2018
 ```bash
 magnet:?xt=urn:btih:F54D5B1EB5748A2220A3B8DC3CB21F7D196A7BA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +672,8 @@ South of Reality - 4 Albums (2015-2022) [FLAC|Lossless|WEB-DL|tracks] <Southern 
 magnet:?xt=urn:btih:ED32C5DF50912B5F83BE83D12D8C344A59A2A157
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +697,8 @@ magnet:?xt=urn:btih:ED32C5DF50912B5F83BE83D12D8C344A59A2A157
 ```bash
 magnet:?xt=urn:btih:32DEF1EA874D2DCFA91F04AF493B79C271F96350
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -675,6 +725,8 @@ Live Home 3D, преемник Live Interior 3D, является мощным, 
 ```bash
 magnet:?xt=urn:btih:E8C219DEA4A773D460D30A2F1DBA2D023D50EA8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

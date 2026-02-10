@@ -1,27 +1,3 @@
-###  Публикация: 716045   (394426) от 28.10.2013
-
-Турбо / Turbo (2013) BDRip [720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ничто так не раздражает темпераментную, мечтающую о скорости улитку с говорящим именем Турбо, как неспешная жизнь, медленные разговоры, заторможенные соседи. Пусть наш герой выглядит большим чудаком в этом вялом, неторопливом мире, пусть он идёт вопреки закону природы о «рождённом ползать», но если в сердце горит «пламенный мотор», а душа верит в чудо, оно просто (   Читать дальше...   )Производство: США | DreamWorks AnimationЖанр: Мультфильм, , Комедия, Приключения, Семейный, СпортРежиссер: Дэвид Сорен ППеревод: Дублированный (Лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский, Украинский, Английский (Full, SDH, SDH-Colored), Французкий, Португальский, ИспанскийПродолжительность: 01:36:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F500069E87141B30B34734555708516FE5AE163F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 568247   (394557) от 31.10.2012
 
 Феи. Тайна зимнего леса / Secret of the Wings (2012) [1080p] BDRip
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:F500069E87141B30B34734555708516FE5AE163F
 ```bash
 magnet:?xt=urn:btih:061B2281F53A04930FD5D1DC273FD5892FDC9112
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:061B2281F53A04930FD5D1DC273FD5892FDC9112
 magnet:?xt=urn:btih:8A9C5763946D745C1BBF767B376B0B55FE8D6A54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:8A9C5763946D745C1BBF767B376B0B55FE8D6A54
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:8A9C5763946D745C1BBF767B376B0B55FE8D6A54
 magnet:?xt=urn:btih:DDE97079F35202A87288A2341F4217E196F0248F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:DDE97079F35202A87288A2341F4217E196F0248F
 ```bash
 magnet:?xt=urn:btih:5BF30EDA605B41C73241C444F503BA8283842694
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:5BF30EDA605B41C73241C444F503BA8283842694
 magnet:?xt=urn:btih:D5ECE27B14E09E21B2A02E72F49486871FF69356
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:D5ECE27B14E09E21B2A02E72F49486871FF69356
 ```bash
 magnet:?xt=urn:btih:32A89C44D184725CB2DDF1FC6C37FBA705E725BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:32A89C44D184725CB2DDF1FC6C37FBA705E725BC
 magnet:?xt=urn:btih:6FB87C74D3005D3640ED00B7F5411D3EC7633C00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ magnet:?xt=urn:btih:6FB87C74D3005D3640ED00B7F5411D3EC7633C00
 ```bash
 magnet:?xt=urn:btih:B1EA45A878AE1BA2E125F4B28B634CA6C5AACDE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:B1EA45A878AE1BA2E125F4B28B634CA6C5AACDE6
 magnet:?xt=urn:btih:73BB301C10C75D1B577152C453E07571DCF82CCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +279,8 @@ magnet:?xt=urn:btih:73BB301C10C75D1B577152C453E07571DCF82CCE
 magnet:?xt=urn:btih:FB3EDDDE59D49143D84C30AD1DFD75009A60D3A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +304,8 @@ magnet:?xt=urn:btih:FB3EDDDE59D49143D84C30AD1DFD75009A60D3A0
 ```bash
 magnet:?xt=urn:btih:D24361A98EFC6C3174787A19ED2FFDA117E471CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +332,8 @@ magnet:?xt=urn:btih:D24361A98EFC6C3174787A19ED2FFDA117E471CF
 magnet:?xt=urn:btih:468A651DC8E9EF45AB90B2FD14B68E9058EADD17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +357,8 @@ magnet:?xt=urn:btih:468A651DC8E9EF45AB90B2FD14B68E9058EADD17
 ```bash
 magnet:?xt=urn:btih:C8CF4536A48463A647C5E7C2FE8C2701CFF8F822
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +384,8 @@ Lego Звездные войны Поиск R2-D2 / Lego Star Wars The Quest for
 magnet:?xt=urn:btih:5AD5AF88506A7A62D2D00B1BEBD95EE0EF840A76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +409,8 @@ magnet:?xt=urn:btih:5AD5AF88506A7A62D2D00B1BEBD95EE0EF840A76
 ```bash
 magnet:?xt=urn:btih:3DC0A8C4288D7B10D5FB947FC43CD3ECF76A35E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +436,8 @@ magnet:?xt=urn:btih:3DC0A8C4288D7B10D5FB947FC43CD3ECF76A35E5
 magnet:?xt=urn:btih:D675BAC1C37FBAFD31386E161E25C0D97704CEDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +461,8 @@ magnet:?xt=urn:btih:D675BAC1C37FBAFD31386E161E25C0D97704CEDF
 ```bash
 magnet:?xt=urn:btih:FE57D8E97841531FDC5DA6E167EED71F255CACFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +488,8 @@ magnet:?xt=urn:btih:FE57D8E97841531FDC5DA6E167EED71F255CACFA
 magnet:?xt=urn:btih:F6ECBBAC4A194BD28D8D762B261A3402EB14E820
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +513,8 @@ magnet:?xt=urn:btih:F6ECBBAC4A194BD28D8D762B261A3402EB14E820
 ```bash
 magnet:?xt=urn:btih:C8FBDDD3E220A46BABAF93FF58562F22810ACDAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +540,8 @@ magnet:?xt=urn:btih:C8FBDDD3E220A46BABAF93FF58562F22810ACDAD
 magnet:?xt=urn:btih:957FC3BCB2BC6334BBFE2F23CC5CA6D7382DFF7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +566,8 @@ magnet:?xt=urn:btih:957FC3BCB2BC6334BBFE2F23CC5CA6D7382DFF7C
 magnet:?xt=urn:btih:35C7478BFF3467485FAF36A7665B41A16B991AE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +591,8 @@ magnet:?xt=urn:btih:35C7478BFF3467485FAF36A7665B41A16B991AE0
 ```bash
 magnet:?xt=urn:btih:C37FDB8C7433C4022AF00FDD4D0DC76CF85985B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +619,8 @@ magnet:?xt=urn:btih:C37FDB8C7433C4022AF00FDD4D0DC76CF85985B3
 magnet:?xt=urn:btih:EDF4398DF10440C823B1F53B75FC7BDFAD9A91B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +645,34 @@ magnet:?xt=urn:btih:EDF4398DF10440C823B1F53B75FC7BDFAD9A91B2
 ```bash
 magnet:?xt=urn:btih:EFAEACBF4AB9906100A0A786F00EB01E210F30FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 713110   (402249) от 20.10.2013
+
+Гадкий я 2 / Despicable Me 2 (2013) Blu-Ray [1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_402249.jpg" />
+</div>
+
+
+###  Подробнее
+
+В то время как Грю, бывший суперзлодей, приспосабливается к семейной жизни и пытается честным трудом зарабатывать в сфере бизнеса, тайные лаборатории Арктики оказываются украденными. Анти-Злодейская лига решает, что она нуждается в помощи Грю и его новобранцев в расследовании.Производство: США / Illumination Entertainment, Universal PicturesЖанр: Мультфильм, Фантастика, Комедия, Криминал, Приключения, СемейныйРежиссер: Пьер Соффин / Pierre Coffin, Крис Рено / Chris RenaudАктеры: Стив Карелл, Кристен Уиг, Бенджамин Брэтт, Миранда Косгров, Расселл Брэнд, Кен Жонг, Стив Куган, Элси Фишер, Дэна Гайер, Мойзес АриасПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русский, английский, португальский, испанский, тайский, китайский, эстонский, латышский, литовскийПродолжительность: 01:37:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4289EEC9B57EF879F4984D25C115B5EFB3345AC
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

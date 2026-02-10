@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:911E02517DFBA446488FF5731BBC6A7630037FE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Ozzy Osbourne - Compilation (1980-2025) [MP3|320 Kbps] <Heavy metal>
 magnet:?xt=urn:btih:8096581BB60C75562CA3288EC679FC41771BB2E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:8096581BB60C75562CA3288EC679FC41771BB2E8
 ```bash
 magnet:?xt=urn:btih:F45D072B4C7EB92E542F711436C90A8685348C0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:F45D072B4C7EB92E542F711436C90A8685348C0A
 magnet:?xt=urn:btih:13BF3BF7AAE53E26A9271EEABA45B946F655673A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:13BF3BF7AAE53E26A9271EEABA45B946F655673A
 ```bash
 magnet:?xt=urn:btih:D4C5C40F10D0546907393C35A3CCC0ADB3A3F5C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ The Last of Us Part II (2) (2025) [Ru/En] (1.6.10721.0105/dlc) Repack Other s [R
 magnet:?xt=urn:btih:E6848322E75ACA0C2B53419B65CACE65D81146D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:E6848322E75ACA0C2B53419B65CACE65D81146D1
 ```bash
 magnet:?xt=urn:btih:E92B3044A97EB2A64E22AC547D1B803A4FE935E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:E92B3044A97EB2A64E22AC547D1B803A4FE935E6
 magnet:?xt=urn:btih:EC70C625AD6658B806E8B740D20F04D34FCAC4B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:EC70C625AD6658B806E8B740D20F04D34FCAC4B2
 ```bash
 magnet:?xt=urn:btih:30C9900B8C9A366883B23AB13CD818CB0ADBB785
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:30C9900B8C9A366883B23AB13CD818CB0ADBB785
 magnet:?xt=urn:btih:2A11D5D471D54F1D47F9052D3D30BD8EBFE50CDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:2A11D5D471D54F1D47F9052D3D30BD8EBFE50CDD
 ```bash
 magnet:?xt=urn:btih:F4F383E4CF74E7BC53166FE4A37E1C484AEDE1C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Windows 11 home x64 24H2 DiskExpansion by Alexandr1235 07.2025 [Ru]
 magnet:?xt=urn:btih:8C87AB17D77A1CE9254FB758E8DF533169C8B512
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:8C87AB17D77A1CE9254FB758E8DF533169C8B512
 ```bash
 magnet:?xt=urn:btih:48DA9B6ABC6A9AA19870E6FC24203D3E2A076E21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:48DA9B6ABC6A9AA19870E6FC24203D3E2A076E21
 magnet:?xt=urn:btih:9DC8AE23261EBD600773AD22A45C32C03BAEB6E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:9DC8AE23261EBD600773AD22A45C32C03BAEB6E6
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:9DC8AE23261EBD600773AD22A45C32C03BAEB6E6
 magnet:?xt=urn:btih:447E1EF98116067C3B8E5FD54735D94C9E6A3CDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:447E1EF98116067C3B8E5FD54735D94C9E6A3CDD
 ```bash
 magnet:?xt=urn:btih:D87B5F297D841351652807631F84B77169982C00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:D87B5F297D841351652807631F84B77169982C00
 magnet:?xt=urn:btih:B974EB0AC93FED237A48DEB9C8974B4209F0CA4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ CCleaner - утилита для чистки мусора в операцион
 magnet:?xt=urn:btih:25AB43BB1929500A7A5038211E62B9B6F28CC085
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ Dust Raiders - это стратегия в декорациях суровой 
 ```bash
 magnet:?xt=urn:btih:072C486318BBA0BFA4AC9EAE04FBFE272CE3E429
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ Mustend - Люболь. Часть первая (2025) [MP3|320 Kbps] <Alternati
 magnet:?xt=urn:btih:CB59DF4BEE35755456498CAC99999616E7B59E79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:CB59DF4BEE35755456498CAC99999616E7B59E79
 ```bash
 magnet:?xt=urn:btih:EE2E5FEBC21EBF4489694F07ED7C2B7D1C626D5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ TuneIn объединяет спортивные события, музыку, �
 magnet:?xt=urn:btih:8F83843F482426C2F45765EFF4E95EEA23114DC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:8F83843F482426C2F45765EFF4E95EEA23114DC1
 ```bash
 magnet:?xt=urn:btih:5E6EC1A1ADC777694AB4470928A74007829B0EBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ magnet:?xt=urn:btih:5E6EC1A1ADC777694AB4470928A74007829B0EBE
 magnet:?xt=urn:btih:AE3F9B05890B574A4E992C40444607FE19DD9E99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:329D5E072E30FD6D32A56325ECBC6D14C961CDEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

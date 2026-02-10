@@ -19,6 +19,8 @@ Smart Text Animator Toolkit - это мощная коллекция полно�
 magnet:?xt=urn:btih:7F215B7136DEEAFC7572E57EF744FEBF8C5336C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Movies Opener — это атмосферный, эмоциональный и �
 magnet:?xt=urn:btih:2674560C8F397C9D5FE3564AB083AC3ED513B2AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Burn Opener — это экспрессивный, жаркий и визуал�
 ```bash
 magnet:?xt=urn:btih:B173F0BD5AC3F9E424930C6ECCFEBB728BAEF94D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Logo Opener — это лаконичный, стильный и професс�
 magnet:?xt=urn:btih:4E589A2262A37CED2BC68F4579DDF555D39A7A44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:4E589A2262A37CED2BC68F4579DDF555D39A7A44
 ```bash
 magnet:?xt=urn:btih:011B2AB74E4488B7D49FBE6539D87D9D7E1351D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:011B2AB74E4488B7D49FBE6539D87D9D7E1351D5
 magnet:?xt=urn:btih:B6B85F04948C32F2BE19F6177F44D5B6279006C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:B6B85F04948C32F2BE19F6177F44D5B6279006C9
 ```bash
 magnet:?xt=urn:btih:0D1B4B48620141169DA5167FF952BE9F9A324F99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Typo Stomp Opener — это взрывной, сверхдинамичный и
 magnet:?xt=urn:btih:2143CA163199ECCA3C3EE41F02C605FDE6A41C7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:2143CA163199ECCA3C3EE41F02C605FDE6A41C7C
 magnet:?xt=urn:btih:C6AA27298E1896481D80D7C0E707C24D4DF11F7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:C6AA27298E1896481D80D7C0E707C24D4DF11F7B
 magnet:?xt=urn:btih:89509B1ADF005E29D213435C05EA357DFDB09566
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:89509B1ADF005E29D213435C05EA357DFDB09566
 ```bash
 magnet:?xt=urn:btih:0683939FC9B512E9836E105D6061D2EA9CD5687B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:0683939FC9B512E9836E105D6061D2EA9CD5687B
 magnet:?xt=urn:btih:EF3F808B50A7C12FBB6AA39D96F766958DE80164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:EF3F808B50A7C12FBB6AA39D96F766958DE80164
 magnet:?xt=urn:btih:4C77E3CEC2B5EE7B17B37D37D107302ECA540508
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:4C77E3CEC2B5EE7B17B37D37D107302ECA540508
 ```bash
 magnet:?xt=urn:btih:E8A6734C929AADA6BCC79D5BE784F8DB4A641CEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:E8A6734C929AADA6BCC79D5BE784F8DB4A641CEC
 magnet:?xt=urn:btih:A5BB01E92400D3409D9E04AF27861BF122485BEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ Grunge Titles 03 — это коллекция дерзких, текстурн�
 ```bash
 magnet:?xt=urn:btih:642752F17A694CBD49B38115F83CB8FDB4DDA482
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ Digital Logo Reveal — это яркий, технологичный и эфф�
 magnet:?xt=urn:btih:24625F281E98193681D3E71302D997FCD3610106
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:24625F281E98193681D3E71302D997FCD3610106
 ```bash
 magnet:?xt=urn:btih:C644CD5B65ADDF91B225E9239FF1A80DF249173A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:C644CD5B65ADDF91B225E9239FF1A80DF249173A
 magnet:?xt=urn:btih:C655AC21D9CBE7B92F1BD5C6981D2CB7155A85CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ Clean Slideshow — это воплощение легкости, стиля и 
 ```bash
 magnet:?xt=urn:btih:EAF2A34D5EB17DC87E63A70C2A02B8A82FE38196
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ Action Intro Opener — это мощный, энергичный и техни�
 magnet:?xt=urn:btih:F99862E3B009AC1E5F13729B2FA6821673ABBADF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ Secret Files Slideshow — это захватывающий, мрачный и 
 ```bash
 magnet:?xt=urn:btih:70256D50FE805D4189E922CA314763387045C737
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ Shimmering Burst Logo Reveal — это яркий, сказочный и зах
 magnet:?xt=urn:btih:9047A054878393D6CC5780675D8F84205BB44675
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ magnet:?xt=urn:btih:9047A054878393D6CC5780675D8F84205BB44675
 ```bash
 magnet:?xt=urn:btih:D0DCFF809E42CB232C19377956F6C5074DF96A04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ magnet:?xt=urn:btih:D0DCFF809E42CB232C19377956F6C5074DF96A04
 magnet:?xt=urn:btih:E63E5567D9352B7B0D7D6D9271C0C5B2A303A059
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ magnet:?xt=urn:btih:E63E5567D9352B7B0D7D6D9271C0C5B2A303A059
 ```bash
 magnet:?xt=urn:btih:8B15C6AB657ECE7E8CD99BFF36D9302A808A0319
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

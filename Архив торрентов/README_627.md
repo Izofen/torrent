@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:494F9B75B4B1C006D37BCAD3A5A0742EDA01ACA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:494F9B75B4B1C006D37BCAD3A5A0742EDA01ACA5
 magnet:?xt=urn:btih:E2C578B2C842BEA6B9714A4468339C831651AEEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ magnet:?xt=urn:btih:E2C578B2C842BEA6B9714A4468339C831651AEEF
 ```bash
 magnet:?xt=urn:btih:9FFD9DF64BF052A60056B117E0A7B4E0417BAA85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -108,6 +114,8 @@ VA - The Rough Guide Off the Beaten Track (2006) [FLAC|Lossless] <Folk, World, C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +143,8 @@ VA - The Rough Guide Off the Beaten Track (2006) [FLAC|Lossless] <Folk, World, C
 ```bash
 magnet:?xt=urn:btih:56E9327AA3B95F08D2035215B51421B1C622BEB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +179,8 @@ magnet:?xt=urn:btih:56E9327AA3B95F08D2035215B51421B1C622BEB5
 magnet:?xt=urn:btih:482E9E8B097E88C2AF67E394457256C3FF1C9A22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +212,8 @@ magnet:?xt=urn:btih:482E9E8B097E88C2AF67E394457256C3FF1C9A22
 magnet:?xt=urn:btih:91967D5784849D4D2B899897C3C774FA4581FBF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +237,8 @@ magnet:?xt=urn:btih:91967D5784849D4D2B899897C3C774FA4581FBF1
 ```bash
 magnet:?xt=urn:btih:392873E83890427872120C6F5659552B59CC10A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -257,6 +273,8 @@ Kay Starr - Movin' On Broadway (1960) [MP3|320 kbps]<Vocal Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +298,8 @@ Kay Starr - Movin' On Broadway (1960) [MP3|320 kbps]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:29633E9B48D2DC45FB91E08ED362765A926B34D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +334,8 @@ VA - The Rough Guide To The Music Of Haiti (2002) [FLAC|Lossless] <world, ethnic
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +359,8 @@ VA - The Rough Guide To The Music Of Haiti (2002) [FLAC|Lossless] <world, ethnic
 ```bash
 magnet:?xt=urn:btih:959433E0147B14206AB382C17B843C0762A505FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +386,8 @@ magnet:?xt=urn:btih:959433E0147B14206AB382C17B843C0762A505FE
 ```bash
 magnet:?xt=urn:btih:72B331F16793DF4F68E4C4AF32AE1D41275DF979
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +420,8 @@ magnet:?xt=urn:btih:72B331F16793DF4F68E4C4AF32AE1D41275DF979
 magnet:?xt=urn:btih:4CC3242E431EF7A55AF390A3DCBAD145B9CCAB4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +446,8 @@ magnet:?xt=urn:btih:4CC3242E431EF7A55AF390A3DCBAD145B9CCAB4B
 magnet:?xt=urn:btih:AC1B20565632435E96931E70F0C4A254C38BE125
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +471,8 @@ magnet:?xt=urn:btih:AC1B20565632435E96931E70F0C4A254C38BE125
 ```bash
 magnet:?xt=urn:btih:7A0C38A03B8AA94BE93C8A47307858E308D6262F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +507,8 @@ Santelmo - El Alma Del Verdugo (2012) [MP3|320 kbps]<Heavy Metal>
 magnet:?xt=urn:btih:F401A422EA1A1E6B76071BE18CA9BBB4CD190A0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +540,8 @@ magnet:?xt=urn:btih:F401A422EA1A1E6B76071BE18CA9BBB4CD190A0B
 magnet:?xt=urn:btih:B4DA55FB519AABCA8C73AC19C57D9EB7992469D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +570,8 @@ magnet:?xt=urn:btih:B4DA55FB519AABCA8C73AC19C57D9EB7992469D1
 magnet:?xt=urn:btih:D25216B8FF18609DDCDC6C67CE20FAADFD7E5C63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +595,8 @@ magnet:?xt=urn:btih:D25216B8FF18609DDCDC6C67CE20FAADFD7E5C63
 ```bash
 magnet:?xt=urn:btih:A6240CBD2C4212563102C9AD2B23C3A0B8DBC9E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +631,8 @@ VA -  The Rough Guide to American Roots (2003) [FLAC|Lossless] <Blues, Folk, Wor
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +660,8 @@ VA -  The Rough Guide to American Roots (2003) [FLAC|Lossless] <Blues, Folk, Wor
 magnet:?xt=urn:btih:5BA06671570524F184BCE5302902D5DAA795CCD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +686,8 @@ magnet:?xt=urn:btih:5BA06671570524F184BCE5302902D5DAA795CCD4
 magnet:?xt=urn:btih:D48248F3DA4D7669AB09B60CC708D1DA859F4F07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +711,8 @@ magnet:?xt=urn:btih:D48248F3DA4D7669AB09B60CC708D1DA859F4F07
 ```bash
 magnet:?xt=urn:btih:027268819BE64C6352504D9F1417C36588C1F6F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -699,6 +747,8 @@ VA - The Rough Guide to African Music for Children (2005) [FLAC|Lossless] <Folk,
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -722,6 +772,8 @@ VA - The Rough Guide to African Music for Children (2005) [FLAC|Lossless] <Folk,
 ```bash
 magnet:?xt=urn:btih:63B132CF8A5CCC2323589BC23063AD8DC50B9C7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Lynda.com | Up and Running with Plant Factory (2015) PCRec [H.264/720p-LQ] [RU/E
 magnet:?xt=urn:btih:155C069A87EA8C11D9278860A887837C1D33A543
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:155C069A87EA8C11D9278860A887837C1D33A543
 magnet:?xt=urn:btih:4E1CE75890E3B9CED1F24AA9D275DDA941ED3BE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:4E1CE75890E3B9CED1F24AA9D275DDA941ED3BE6
 magnet:?xt=urn:btih:243153523E35A9AFACA2DA020D836C55500A94EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Udemy | Изучаем Социальную Инженерию с Нуля (2017
 ```bash
 magnet:?xt=urn:btih:CE4E1F09D3AEE89F8065146073A23DAF97DDAE27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Udemy | HTML + CSS с Нуля до Результата (2020) PCRec [H.264/720
 magnet:?xt=urn:btih:8C91F60A3D687DA5F3AB9DA6FEC430E61241376B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Nztcoder | ZennoPoster-Master #1: Становление - с нуля до ко
 ```bash
 magnet:?xt=urn:btih:BD5B23313642040D6B51E1A58A5C581FA1AB1940
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ TSLab 2.0 - это торговый терминал, в котором непр
 magnet:?xt=urn:btih:DA9576CA5208741919A12CB14413CFE823415288
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ magnet:?xt=urn:btih:DA9576CA5208741919A12CB14413CFE823415288
 ```bash
 magnet:?xt=urn:btih:795BC16120C13BFDB9F1D059C49E9BEC3B6A2A56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -230,6 +246,8 @@ Photography 101 - идеальное учебное пособие для все
 magnet:?xt=urn:btih:FADC2CF95BEB43F33D8B35C367E00CD46432F0DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +273,8 @@ magnet:?xt=urn:btih:FADC2CF95BEB43F33D8B35C367E00CD46432F0DD
 ```bash
 magnet:?xt=urn:btih:8F44613C17877888D9756B79E33DDD601E96B545
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -282,6 +302,8 @@ Foxminded | Инструментарий Java для новичка (2020) PCRec
 magnet:?xt=urn:btih:BE801B3A4D9C98B09DF41D8D37DDFF03B541EE38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +329,8 @@ Telegram — это мессенджер, позволяющий обменив�
 magnet:?xt=urn:btih:47B558BE4D496207382825A383A952A3CA267FB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +354,8 @@ Udemy | Азбука JavaScript (курс для начинающих) (2020) PC
 ```bash
 magnet:?xt=urn:btih:B22F89C1AA14AB18B1F69DBE8D2B97F37309F974
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +381,8 @@ Selenium WebDriver — это инструмент для автоматизац
 ```bash
 magnet:?xt=urn:btih:49D1E22C13053D13377A377D5A8787A1BC7C3517
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +411,8 @@ Udemy | Продвинутые навыки Python: станьте лучшим 
 magnet:?xt=urn:btih:3224FD5199A65B12406D727B773CF6F6D7ED09A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +438,8 @@ Udemy | Базовый Python (2020) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:F8CB4124763E49A89727388A88DC42DBE4A76AF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +464,8 @@ Jose Salvatierra | The Complete Python Course - Learn Python by Doing (2020) [H.
 ```bash
 magnet:?xt=urn:btih:675E64841D6031C0EFFBDF8D899C5BDA97954A7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +493,8 @@ Udemy | git. Контроль версий для разработчиков (20
 magnet:?xt=urn:btih:C4AC46729319353290C959BF6C66ADF3A5014BEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +519,8 @@ Blender Cloud | Создание фэнтезийного фургона в Blen
 magnet:?xt=urn:btih:5D44E7676837C3C68CA8720F478AC67CE618D114
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ magnet:?xt=urn:btih:5D44E7676837C3C68CA8720F478AC67CE618D114
 ```bash
 magnet:?xt=urn:btih:A186C0202745753FA54B88062CC8B45D83A80FB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +572,8 @@ magnet:?xt=urn:btih:A186C0202745753FA54B88062CC8B45D83A80FB0
 magnet:?xt=urn:btih:2CA2714A683B84E37A0073C5B32BFA40BF3073A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +597,8 @@ MonsterLessons, Александр Кочергин | Docker и Docker Compose -
 ```bash
 magnet:?xt=urn:btih:A28491778524C371EC3F94EE49624825CCB44989
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +624,8 @@ Bootstrap 4 – это HTML, CSS, JS фреймворк для разработ�
 magnet:?xt=urn:btih:38CD98ACC3AC1B877E4C9316D2233FFECE087A1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +649,8 @@ Jillian Michaels | Tone and Shred (2016) HDTVRip [H.264/720p-LQ] [EN]
 ```bash
 magnet:?xt=urn:btih:CB5B59422A90121573348D44512FB4900D6B976D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +676,8 @@ magnet:?xt=urn:btih:CB5B59422A90121573348D44512FB4900D6B976D
 magnet:?xt=urn:btih:4885D843C79EE77767C5EA8A14784BD95BF5803D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ magnet:?xt=urn:btih:4885D843C79EE77767C5EA8A14784BD95BF5803D
 ```bash
 magnet:?xt=urn:btih:0D044F4A7A01049FEE5B2A3AF72DCDB3BF3E89B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3F5AC5ECBF7142A7A9D2AB892B671A872FDC698A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:3F5AC5ECBF7142A7A9D2AB892B671A872FDC698A
 magnet:?xt=urn:btih:04E4B3E5479CD34599A9D4D4A629B1759147A5C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:04E4B3E5479CD34599A9D4D4A629B1759147A5C0
 ```bash
 magnet:?xt=urn:btih:EEFB5BFCB16D26C874A50D71234BD19A985C279E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:EEFB5BFCB16D26C874A50D71234BD19A985C279E
 magnet:?xt=urn:btih:3FFE3EBADC9E8D8733373C892CA8DE711F071EED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:3FFE3EBADC9E8D8733373C892CA8DE711F071EED
 ```bash
 magnet:?xt=urn:btih:4D444819660FE6DB366995FBC0EBC1F2843EF29D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ VK Музыка: песни и подкасты v8.0 Mod by VK Equals [Ru/En]
 magnet:?xt=urn:btih:163DEC0A24CD5907CA924C75FAF104AB8D38F492
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:163DEC0A24CD5907CA924C75FAF104AB8D38F492
 magnet:?xt=urn:btih:77BF27156B47BE811D7741D580C879702A7427A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ AIMP 5.40.2683 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1A9FBF0629C0ECD0AECF8A925D843C0323AD67A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:1A9FBF0629C0ECD0AECF8A925D843C0323AD67A4
 magnet:?xt=urn:btih:4CEBE83E421A948F1DC6B20B823EE5DAE265181D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Fast Video Cutter Joiner - программа 2-в-1 для быстрой ре�
 ```bash
 magnet:?xt=urn:btih:E37A5DA77F09247353107E8892ECA7155759C3FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:E37A5DA77F09247353107E8892ECA7155759C3FC
 magnet:?xt=urn:btih:DA0C749596D2E27AD52DB96193D083B9BA4CB163
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:DA0C749596D2E27AD52DB96193D083B9BA4CB163
 ```bash
 magnet:?xt=urn:btih:D299B473B197EC1C051CBA208337D7EF7FCE5F2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:D299B473B197EC1C051CBA208337D7EF7FCE5F2D
 magnet:?xt=urn:btih:B8723910CC1BE6709248A33F148E648157B92F69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ VIMAGE - AI Photo Animation v5.1.7 Mod by PieMods [En]
 ```bash
 magnet:?xt=urn:btih:889C67314704E0C9F370194A1B632B0B196403E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:889C67314704E0C9F370194A1B632B0B196403E9
 magnet:?xt=urn:btih:667B7108C6E1D000E125C6EB3A87D80F760569E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:667B7108C6E1D000E125C6EB3A87D80F760569E9
 ```bash
 magnet:?xt=urn:btih:A570ACE39511B2D7A4C33F7F1713B13FED039B5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:A570ACE39511B2D7A4C33F7F1713B13FED039B5F
 magnet:?xt=urn:btih:66329816F30746DAA1CE204A2125E007CB16BCDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:66329816F30746DAA1CE204A2125E007CB16BCDE
 ```bash
 magnet:?xt=urn:btih:BB024534A8248CD9279EFB0A273257BFCFF8F11A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ Jacksmith: Weapons and Warriors (2025) [En] (1.0.1) Repack Necros1404
 magnet:?xt=urn:btih:680474BF470120963F220468C0580E561D2B241F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:680474BF470120963F220468C0580E561D2B241F
 ```bash
 magnet:?xt=urn:btih:1BBFEF07D6CE4746BE65BC85F982F650C4076D71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:1BBFEF07D6CE4746BE65BC85F982F650C4076D71
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:1BBFEF07D6CE4746BE65BC85F982F650C4076D71
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:1BBFEF07D6CE4746BE65BC85F982F650C4076D71
 magnet:?xt=urn:btih:DB09C8AB66799CD05C97EF10789733ABB7744057
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:DB09C8AB66799CD05C97EF10789733ABB7744057
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:DB09C8AB66799CD05C97EF10789733ABB7744057
 magnet:?xt=urn:btih:D108EF49133CFE212BE8F0F3FF40DD9737740875
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:D108EF49133CFE212BE8F0F3FF40DD9737740875
 ```bash
 magnet:?xt=urn:btih:A2F69070D3DC29E28BBF5CD050A769FF1BD73B50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

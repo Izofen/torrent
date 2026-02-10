@@ -19,6 +19,8 @@ Download Master эффективно решает 3 главных пробле�
 magnet:?xt=urn:btih:6872D83CD085A4A163D44D1BF6D6EBA9B0D09FAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Media Player Classic - Black Edition (MPC-BE) – универсальный п�
 ```bash
 magnet:?xt=urn:btih:12E0F412387462DFD27D9473008F6E4C8534F582
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ R-Studio Network 9.3 Build 191230 (x64) RePack (& Portable) by TryRooM [Multi/Ru
 magnet:?xt=urn:btih:2C7275B7976315E84B23536BCAEC13A7DF41EB2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Master PDF Editor — простая, но эффективная програм
 ```bash
 magnet:?xt=urn:btih:75B68E77AC7506719453CA9E8FD2DD1A0ED9622A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ VueScan - программа для работы со сканерами HP, Min
 magnet:?xt=urn:btih:C4B4086974348D8DC1FFC6E08A94BE7ED2C4ABFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:C4B4086974348D8DC1FFC6E08A94BE7ED2C4ABFF
 ```bash
 magnet:?xt=urn:btih:53D07DA44EE9F1FC1BAE3A148C4F1F46234F2967
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ RustDesk Remote Desktop – программное обеспечение для
 magnet:?xt=urn:btih:0DDE9311A6DE6FDE3BF450BB28B55570956CC237
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ VPN Russia - VPN сервера в России 1.168 Mod by FreeApkexe [Ru/En]
 ```bash
 magnet:?xt=urn:btih:10DAB1E40DBF74F5D5ACCB9EE288A37869443C55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:631541BEC06678025C50245FBB28C96F3BB0FE7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ AMD Radeon Software Adrenalin Edition представляет собой нов
 ```bash
 magnet:?xt=urn:btih:824CFD1A82B1A23E9763EBC4C6661BD11C5AA44C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ ABBYY FineReader Pro для Mac распознает документы на ( 
 magnet:?xt=urn:btih:2AA29DE263476113217BD192B6A21E808B8D7460
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ TikTok - социальное приложение для тех кто пред
 ```bash
 magnet:?xt=urn:btih:50027783F4FFFC29B0835177938536133F79F211
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Office.Files.Images 2.44 Portable [Multi/Ru]
 magnet:?xt=urn:btih:8206625E55569FA47B8F89459BEEA480D80F1769
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ UsbTreeView маленькая утилита, реализующая больш
 ```bash
 magnet:?xt=urn:btih:0502048B22FC018B680C5C9447AC6DDB32C87C05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ FBReader - программа для чтения электронных кни�
 magnet:?xt=urn:btih:C413ED53AFA812A2BB818058C484654EA714DBD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Total Commander является самым мощным и стабильным
 magnet:?xt=urn:btih:85EF86E70352DAABC196DD2E85AA9A666F370C27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Live - это быстрое и гибкое программное обеспе
 ```bash
 magnet:?xt=urn:btih:2D44DE1D94D0BF38C9D6D72161DDB79B05F33840
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ uTorrent Pack 1.2.3.74 Repack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:805EBC868BB12CA6B799FF5F1A3B5FFC9B0F7D57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ MKVToolnix - функциональный набор инструментов д
 ```bash
 magnet:?xt=urn:btih:EEFC3EBD6684F1ABC4FE7B037A0E17003483E59B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ AIMP 5.11 Build 2435 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:98304B27F81DE403A6ED558322C320A0A131682D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Print Conductor автоматизирует массовую печать фа�
 magnet:?xt=urn:btih:10D97C09A62576C8141B69A76A5D99D318C5181C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ Any Burn - небольшая бесплатная утилита для раб�
 magnet:?xt=urn:btih:2749F4CB98985373C28DAC219DBA33CBCAAF7800
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ DesktopClock3D - простые, но в то же время красивые 3
 ```bash
 magnet:?xt=urn:btih:29D626042707574D6C1F59AB54A188D7457BD22F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ Sante DICOM Viewer Pro не является «еще одним средств�
 magnet:?xt=urn:btih:6CE96E222682B6737605531DB1B36CBCD21DD199
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ Total Commander 11.00 (19.08.2023) Portable by MiG [Ru/En]
 magnet:?xt=urn:btih:5AF1E20757FB6CC108E307001A81488FF89DD252
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ R-Studio Network 9.3 Build 191230 RePack (& portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E0909E9B9C43DF68C0D779F4083236CA0F88444B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

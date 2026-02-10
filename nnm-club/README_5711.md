@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:B6CB17745D2D6D807C3A631807E5BA3B23BDA89D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Windows 10 (60in2) Sergei Strelec x86/x64 20H2 (build 19042.685) [Ru]
 ```bash
 magnet:?xt=urn:btih:7F07F8B66894C46454D95BE7148A8B7BD7529C9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ VA - Electro Swing Disco of the Alps (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz,
 magnet:?xt=urn:btih:8134AE906353F767676E8D6EA097FEBBE8489E3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:8134AE906353F767676E8D6EA097FEBBE8489E3B
 magnet:?xt=urn:btih:9F7D42A119569372EEB74D510BE64DE7FE8BBCA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:9F7D42A119569372EEB74D510BE64DE7FE8BBCA9
 ```bash
 magnet:?xt=urn:btih:3D32CACCDAD5BEA4DFA316C4B33FF7967B9FFF1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ VA - DMC Essential Hits 2022 UK & USA Number Ones (2022) CD, Compilation [MP3|32
 magnet:?xt=urn:btih:14FFAF3C09D1579CBCB3B2CF689B2CDA280EE215
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:14FFAF3C09D1579CBCB3B2CF689B2CDA280EE215
 magnet:?xt=urn:btih:5854DBD4B4E09B5692D52747D90806E0C77FD272
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:5854DBD4B4E09B5692D52747D90806E0C77FD272
 ```bash
 magnet:?xt=urn:btih:B20687D974B95C9ACFB2A6A19A01D4DCD39F0DB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ CD1
 magnet:?xt=urn:btih:62401F00FE9F09E554BD6F438DBAA485F3A1D2E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:62401F00FE9F09E554BD6F438DBAA485F3A1D2E1
 ```bash
 magnet:?xt=urn:btih:74CE317C895D6CA270DABC7D64FF04CD3EAE5C84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:74CE317C895D6CA270DABC7D64FF04CD3EAE5C84
 magnet:?xt=urn:btih:3C11552658AC0F81489DB7A2FDD9CBFC45D13AC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:3C11552658AC0F81489DB7A2FDD9CBFC45D13AC8
 ```bash
 magnet:?xt=urn:btih:F856A08D2FC6627A232D035BCCB97CD5ECD7EACA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ DOOM Eternal (2020) [Switch] [EUR] 10.2.0 [NSP] [License / 1.2 / DLC] [Ru/Multi]
 magnet:?xt=urn:btih:BC00528A0BC5A874C2B03A791D6233BA59B4455A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ Photo Supreme — вспомогательная программа для вл�
 ```bash
 magnet:?xt=urn:btih:B1B7BD4E5CED43A99C122B2D4399DC253C520B2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ Fay Claassen, David Linx, WDR Big Band Cologne - And Still We Sing (2021) Jazzli
 magnet:?xt=urn:btih:D61DF372FDB0EB60894ACC426655D787276FCB20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ Foo Fighters - The Essential Foo Fighters (2022) Compilation [FLAC|Lossless|trac
 magnet:?xt=urn:btih:DCCE8080A2DD3D7EBBC9BE6E7A17204492438897
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ Microsoft добавила рекламу в настройки Windows 10
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ Microsoft добавила рекламу в настройки Windows 10
 magnet:?xt=urn:btih:DB0B8F9CC9F6C84E94CC9D5C6EC457F004CA2EBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ DxO FilmPack — это подключаемый модуль для Adobe Photo
 ```bash
 magnet:?xt=urn:btih:32FA2CAE8D6B375A16E03B46EBDBA593BCA2D0EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ magnet:?xt=urn:btih:32FA2CAE8D6B375A16E03B46EBDBA593BCA2D0EE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ magnet:?xt=urn:btih:32FA2CAE8D6B375A16E03B46EBDBA593BCA2D0EE
 magnet:?xt=urn:btih:FFBFCBB4AF131BB9D0F17932C5D2CC7E47B5C528
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +587,8 @@ Tell Me Why / Скажи мне, почему (2020) [Ru/Multi] (5510896) Repack
 ```bash
 magnet:?xt=urn:btih:82CD84F335CD536B29F2F8DA619569AB58371DE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +617,8 @@ VA - Summertime Rock Hits 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:018DA8E2B84ACCD93FC53DF1795D3E1CFB4F70D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ Icecream Screen Recorder - программа, позволяющая вести
 magnet:?xt=urn:btih:A48433B4D69822ED4177B0900C78B8D91EE3EF51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +668,8 @@ magnet:?xt=urn:btih:A48433B4D69822ED4177B0900C78B8D91EE3EF51
 ```bash
 magnet:?xt=urn:btih:405FD2F630A7865B439EE8C6C4796AC31ED3D6DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +696,8 @@ magnet:?xt=urn:btih:405FD2F630A7865B439EE8C6C4796AC31ED3D6DF
 ```bash
 magnet:?xt=urn:btih:CDC4AC2940EA59E0B7E08DF840BB99AC2A87562F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

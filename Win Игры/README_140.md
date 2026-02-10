@@ -19,6 +19,8 @@ DATE A LIVE: Ren Dystopia (2024) [Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:94471CB41F586849DFD598F0E5180C125CFFE11F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Bloomtown: A Different Story - это сюжетная JRPG про Америк�
 ```bash
 magnet:?xt=urn:btih:307C5AE26CE634BF0DBFEB748093486305C072D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Will of Arthur Flabbington – игра в жанре головоломок
 magnet:?xt=urn:btih:C97507A1D3CB1C77345F15A439AEB3BC8AA5E506
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Kvark - это шутер от первого лица события котор
 ```bash
 magnet:?xt=urn:btih:49FCC59EE34B753BACCE73BB4BAD146F1EFFFCDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Master Detective Archives: RAIN CODE Plus (2024) [Multi] (1.0) Scene Rune
 magnet:?xt=urn:btih:423361B80EBA0035A50C28A67B1B193A49A07FA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ EARTH DEFENSE FORCE: WORLD BROTHERS 2 (2024) [Multi] (1.0/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:36217E8777CCA80C165DB9F3F6FB47722F779124
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Bloomtown: A Different Story - это сюжетная JRPG про Америк�
 magnet:?xt=urn:btih:F78EEBCCA752871F8F8716D754CAE95612D6FCB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Talos Principle 2 предлагает увлекательный и зас�
 ```bash
 magnet:?xt=urn:btih:986D48B3EB26ADFBFD0EA56EA4E74162335967EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Freedom Planet (2015) [En] (1.21.5) License GOG
 magnet:?xt=urn:btih:404933E945E69C97D1FBF2CFEB32819CDCB2D46C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Lamplighters League (2023) [Ru/Multi] (1.3.1-67360/dlc) Repack FitGirl [Delu
 ```bash
 magnet:?xt=urn:btih:D1FFD8CF28AB0CEF5A21E359DA623F18B3408230
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Cash Cow DX (2024) [En] (1.1.2.0) License GOG
 magnet:?xt=urn:btih:11DC4C91BC55E84992FF52122A57C51A00452E17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Everspace 2 (2021) [Ru/Multi] (1.3.43094/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:D8A20EEEDEFFE0EACDCEE939F441E70B6F3AA2C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Anno 2205 – полюбившийся игрокам симулятор гор�
 magnet:?xt=urn:btih:7BD60437CF6C56AC4164FAF75FE4FF08841AD708
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Dead Season (2024) [Ru/Multi] (0.9.5.0) Scene FAiRLiGHT
 ```bash
 magnet:?xt=urn:btih:8C330CD7E9DE26958D9B83AF6E9179E3DE9E5412
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Anno 2205 – полюбившийся игрокам симулятор гор�
 magnet:?xt=urn:btih:8EBE23AD6FDE1FBB9722FD60235A8B0B8FDBC090
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Kvark - это шутер от первого лица события котор
 ```bash
 magnet:?xt=urn:btih:06AA99C90F02F04FDEB285189ACF8F9BC9FAE432
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Europa (2024) [Multi] (1.0) Scene Rune
 magnet:?xt=urn:btih:C539C7ABD1CCF0BCFB948EB935821D1B2809BFAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Mech Engineer - симулятор, в котором вы будете зани
 ```bash
 magnet:?xt=urn:btih:E06884568C626BE26F8BE8D913DA1AAEFF0BC178
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Ash of Gods: Redemption - тактическая пошаговая ролева
 magnet:?xt=urn:btih:62CE842F9065BD6F0AC1B1F90DE89B8090C77C70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The Holy Gosh Darn (2024) [Ru/Multi] (1.1.1) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:60F0D64ABEB19FEEA077EC9F9E2F15802C7C62DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Teenage Mutant Ninja Turtles: Shredder's Revenge - экшен, в котором
 magnet:?xt=urn:btih:3E95B2CC3343350A18F6D16B786E4B1D8F9AA42B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Grim Realms - симулятор колонии, представленный в
 ```bash
 magnet:?xt=urn:btih:4B952A2D41EBF5AAC860F45F0C6D02BEE20BA795
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Thyria (2024) [Ru/Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:390F98C64EC42CF2B32A2CECA266AA1007F11D59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ The Forest (2018) [Ru/Multi] (1.12) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:651FF423BFE28D5A05E80DD04C9A7781EBD6C239
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ The Dark Pictures Anthology: The Devil in Me (2022) [Ru/Multi] (build 11855829/d
 magnet:?xt=urn:btih:A22A4CBF503059AADB27A859CA30EBFF5E6DDE2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Medieval Delivery (2023) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:59A1F1AD9FB44E661C29692E9E27E47988C983D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

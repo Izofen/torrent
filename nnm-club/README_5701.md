@@ -22,6 +22,8 @@ Barb Jungr - Hard Rain (2014) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Singer-
 magnet:?xt=urn:btih:DF61527077408AF3D93585275046DA7FC975CD78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:DF61527077408AF3D93585275046DA7FC975CD78
 magnet:?xt=urn:btih:6F7351034E4C995F11F1EA622CE64E9D31F8D058
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ Christmas Slideshow - Это элегантный кинематографиче
 ```bash
 magnet:?xt=urn:btih:D871B20B30598CBD097D1D5475CAE944E4B53B32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:D871B20B30598CBD097D1D5475CAE944E4B53B32
 magnet:?xt=urn:btih:B735C31B98246D02C86C3EE638F5B7CC35935ABA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:B735C31B98246D02C86C3EE638F5B7CC35935ABA
 ```bash
 magnet:?xt=urn:btih:640CB884260BA536FB0AB8B2BA1C2883CCCDECD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ DVDFab Video Downloader позволяет пользователям скачи
 magnet:?xt=urn:btih:708A9AD972BA347AE3A8D791A030F32F0766058A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:708A9AD972BA347AE3A8D791A030F32F0766058A
 ```bash
 magnet:?xt=urn:btih:279C40E15D05EB30F4CB499F3D9698AF9A70997F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Anno 1701 (2007) [Ru] (1.0) License Новый Диск
 magnet:?xt=urn:btih:B57BD32032C670031BA68F45DB1E5B3F8E796F03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ OmniBus (2016) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:A8905952B3F890CD6EF417447EE308F93EB6760C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:A8905952B3F890CD6EF417447EE308F93EB6760C
 magnet:?xt=urn:btih:729DF4990DE44A681271059DA212CC40EC14FF84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:729DF4990DE44A681271059DA212CC40EC14FF84
 magnet:?xt=urn:btih:942811E6F0C4FD8396935A71DC2B6FE2E21928AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:942811E6F0C4FD8396935A71DC2B6FE2E21928AA
 ```bash
 magnet:?xt=urn:btih:5807E1DBC41BCCB453D87761FB1ED3F1C43581FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ VA - The Forest Chill Lounge, Vol. 3 (2013) [AAC|~314 Kbps] <Chillout, Lounge, D
 magnet:?xt=urn:btih:3B0EF0DF9EB869016ACD7AF25B5603CA8004ACBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:3B0EF0DF9EB869016ACD7AF25B5603CA8004ACBE
 ```bash
 magnet:?xt=urn:btih:B085FFE7DF0C9E98E32FDCDE8C78167550AE3290
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ VA - NME House Mix: Progressive Edition (2017) [MP3|320 Kbps] <Electro, Progress
 magnet:?xt=urn:btih:4EDE416A024BEA80363ABEB90AA916DA9AAB3F94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ VA - The Forest Chill Lounge, Vol. 7 (2015) [AAC|~305 Kbps] <Chillout, Lounge, D
 ```bash
 magnet:?xt=urn:btih:611DD723571F58742C4BCFCA32B9CF1179F38A91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ Shocking Blue — голландская рок-группа из Гааги, с
 magnet:?xt=urn:btih:AEF51D3A43FA999A66FB7980F7727C2F7EDD8ADE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ magnet:?xt=urn:btih:AEF51D3A43FA999A66FB7980F7727C2F7EDD8ADE
 ```bash
 magnet:?xt=urn:btih:755BD95B9CB843E50A35FD3B94FB7D2B456956D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +513,8 @@ Flying Colors - Second Flight: Live At The Z7 (2015) 2CD [FLAC|Lossless|image + 
 magnet:?xt=urn:btih:72FC36FB04102280D3D9357EB9B84AA435A6F41C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ SONAR - это больше, чем просто цифровая аудио р�
 magnet:?xt=urn:btih:A16E54104A888354B353EBB87B6367A34DA05388
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ Dishonored: Death of the Outsider (2017) [Ru/En] (1.145) Repack xatab
 ```bash
 magnet:?xt=urn:btih:F4E818E4154F6C4E04EE453E0DBE88EBB54BD6EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +594,8 @@ VA - The Forest Chill Lounge, Vol. 5 (2014) [AAC|~318 Kbps] <Chillout, Lounge, D
 magnet:?xt=urn:btih:DCED5D35D46B988E30F6D507AAE1FDB0B39CCF84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +619,8 @@ Vov Sticky Notes 8.6 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DBD5A7B758EB2EC899DC6270F1A425D2284C6B0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +646,8 @@ BlackArch Linux — специализированной Live модификац
 magnet:?xt=urn:btih:BAA9690E031413E152B1D3C2A13E5E07A11C9FD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +672,8 @@ Christmas Wonderland 10 / Рождество. Страна Чудес 10 (2019) 
 magnet:?xt=urn:btih:D352F94D34F0A8CCD28B142BDD1617CA3F8DB088
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ The MagPi - журнал о различных поделках и экспер�
 ```bash
 magnet:?xt=urn:btih:151F47317889F4E34A0262A6062174E1316169A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ OTUS | Data Engineer (2019) PCRec [H.264]
 magnet:?xt=urn:btih:FEB995554BAB0DB95F6099761E1DC5D31CB497C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ OTUS | MS SQL Server разработчик (2019) PCRec [H.264]
 magnet:?xt=urn:btih:0A02DEAEA7771FD017C6C66261C433CD930B235B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ CG Cookie, Jonathan Williamson | Low Poly Character Creation in Blender (2011) P
 magnet:?xt=urn:btih:68FCD35FCB460FE0AB0D975CFC95D90314F41CBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Udemy, Darrin Lile | Create Game Characters with Blender (2017) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:9650F87577B49D3658B43E4A8A2897ECCFA2D447
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:9650F87577B49D3658B43E4A8A2897ECCFA2D447
 magnet:?xt=urn:btih:371D4296A4BE427E210C6DEC347AA4F9F9D3388C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:371D4296A4BE427E210C6DEC347AA4F9F9D3388C
 ```bash
 magnet:?xt=urn:btih:EBC0EC360157156A2DD6A2BD7441E906A562CC2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ OTUS | Разработчик Golang (2019) PCRec [H.264]
 magnet:?xt=urn:btih:62C81B7DFF7A94C7392B6454FCEF571FE4126BE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ OTUS | Безопасность Linux (2019) PCRec [H.264]
 magnet:?xt=urn:btih:28EFDAE00876F855FAD3A2D86C66DF789B3B5141
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ OTUS | Архитектор высоких нагрузок (2019) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:7E6FA07B447E2E920D89ABB776D68BCDEF2E3DCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:7E6FA07B447E2E920D89ABB776D68BCDEF2E3DCA
 magnet:?xt=urn:btih:8B68182BBDABB03155A5D3ACA12DED27051E0001
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ Blender Cloud, Kjartan Tysdal | Low Poly Character Creation (2017) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:08E9F611E288D0CCD4CAE47FA81A7EE0F4EA3BBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ Pluralsight.com | Синтаксис и операторы JavaScript / JavaScri
 magnet:?xt=urn:btih:B01B2C9ABC0718FAABFCE83DB324212049C2AB13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ Side FX, Andreas Glad | Splashmesh Houdini for games (2017) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:9152219B53C6B4636D065EAA55795830D48F1BD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ Side FX, Omar Zarifi | Houdini 17 Masterclass: Whitewater System (2019) PCRec [E
 magnet:?xt=urn:btih:21C9E20E5AE0F1C0D12CB4EEB9A3707D0F2692CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ Side FX, John Lynch | Houdini 16 Ocean Tools (2017) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:1131E031BCA467FAB1B1EBA92B66E310CF8E4868
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ Lendwings | User Experience: детальное руководство по Юз
 magnet:?xt=urn:btih:854A25870F9D286D792F5D7D302B7B60B9384780
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ Riccardo Fasoli и Kreativ Wedding | Свадебный воркшоп на ру
 ```bash
 magnet:?xt=urn:btih:17C5ECB82DC5473601675E452B99F08C8FBE0E37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +478,8 @@ magnet:?xt=urn:btih:17C5ECB82DC5473601675E452B99F08C8FBE0E37
 magnet:?xt=urn:btih:E924AE31AE47287C33896E9FCC6D3E08795CF903
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ magnet:?xt=urn:btih:E924AE31AE47287C33896E9FCC6D3E08795CF903
 ```bash
 magnet:?xt=urn:btih:1555B65C768F6A339122F56455924EC94E0FE91E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:1555B65C768F6A339122F56455924EC94E0FE91E
 magnet:?xt=urn:btih:EA20618433206DA10E70F24C4402005B3A0C9149
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +556,8 @@ Jillian Michaels | 10 Minute Body Transformation (2016) HDTVRip [H.264/720p-LQ] 
 magnet:?xt=urn:btih:9411DE8F17D1DCF0B479DDF27BD6E5FDFD8F7EA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +581,8 @@ magnet:?xt=urn:btih:9411DE8F17D1DCF0B479DDF27BD6E5FDFD8F7EA2
 ```bash
 magnet:?xt=urn:btih:000F4B15E40C940B4DD5B1AEB8B8A7BF10605AF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +610,8 @@ DevOps решает задачу взаимодействия инженеров
 magnet:?xt=urn:btih:0275254037CD07B77F91CB7DDF325A525F55070F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ OTUS | Алгоритмы для разработчиков (2019) PCRec
 ```bash
 magnet:?xt=urn:btih:E42AE9E3108CB3EB9A37603BF27E549DF9E0C980
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ magnet:?xt=urn:btih:E42AE9E3108CB3EB9A37603BF27E549DF9E0C980
 magnet:?xt=urn:btih:01EDFBA9094C05B7430C08B4B4E59DCF85C46F19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ javascript.ru | Интенсив по продвинутой разработк�
 ```bash
 magnet:?xt=urn:btih:05E65EE2EE45A9523F19FFA58028ED9B65D1C1D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

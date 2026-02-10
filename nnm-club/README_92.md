@@ -19,6 +19,8 @@ Sea of Stars - динамичное ролевое приключение, ра�
 magnet:?xt=urn:btih:645D5042CDBF4E57FFEF8814DD7635FA08A3073B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Ravenswatch - хардкорное приключение, в котором п�
 ```bash
 magnet:?xt=urn:btih:635AE943BA99E4C080A2CD9A6E58949679FD8396
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Crusader Kings 3 - глобальная стратегия, значительн
 magnet:?xt=urn:btih:FFF26D05B9A09AD57B26687542C0653A53B1C4F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:FFF26D05B9A09AD57B26687542C0653A53B1C4F5
 ```bash
 magnet:?xt=urn:btih:F270F9C792D4321173E39BD02ADB3E2E0546D54F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ American Truck Simulator (2016) [Ru/Multi] (1.56.1.0s/dlc) Repack Other s
 magnet:?xt=urn:btih:0D3442D2FA5CD405119457D482DB9AC7006E7BB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:0D3442D2FA5CD405119457D482DB9AC7006E7BB0
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ Warhammer 40,000: Dawn of War (2025) [Ru/Multi] (2.2.1.1) Repack Let'sРlay [Def
 ```bash
 magnet:?xt=urn:btih:49CEB1ABD9E40AB236BD08AA90B2469C91B6E84A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:49CEB1ABD9E40AB236BD08AA90B2469C91B6E84A
 magnet:?xt=urn:btih:4790B0362D37F168B0227AD073251B55BE7B74A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Cat Quest II – это двухмерный ролевой экшн с откр
 ```bash
 magnet:?xt=urn:btih:1E691E6E6E0DA92DCD83672C07A51256769EE0B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:1E691E6E6E0DA92DCD83672C07A51256769EE0B6
 magnet:?xt=urn:btih:B781021F6B47C3CB4DD2F798B5421E8675D38819
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:B781021F6B47C3CB4DD2F798B5421E8675D38819
 ```bash
 magnet:?xt=urn:btih:8000686A3DC055A39F930BCD5457A85ED673C7D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:8000686A3DC055A39F930BCD5457A85ED673C7D3
 magnet:?xt=urn:btih:99FD1797759CD1DE934C5BAFDBA91FF1A1D65AC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:99FD1797759CD1DE934C5BAFDBA91FF1A1D65AC0
 ```bash
 magnet:?xt=urn:btih:D9913BB4848130AB9FABA4F9696197ABCEAFEE10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Windows 10 2022 Update (под кодовым названием "22H2") это 
 magnet:?xt=urn:btih:7CB05F02BC8C2BDC884F5448E523D5854422FF9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Frequency — это современный и минималистичный ш
 ```bash
 magnet:?xt=urn:btih:AA41C9BEEDF182DB6212B82DB72A65B1233EBD20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:AA41C9BEEDF182DB6212B82DB72A65B1233EBD20
 magnet:?xt=urn:btih:4296F0C7BAC8F893B29E7DA0C3FF55B2DA1D9A6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Zuori Qing Kong | Crystal Sky of Yesterday | Хрустальное небо в�
 magnet:?xt=urn:btih:69F7BDB4867E70DFC67900743E8D105E9153F89F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Berserk: Ougon Jidai Hen - Memorial Edition | Berserk: The Golden Age Arc - Memo
 ```bash
 magnet:?xt=urn:btih:FD99922B8EAC05B15E424679C51248C5718FF359
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Sweet Savage - Bang (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:5048F15C769DC62D151EF11606D5BBB2666F2D9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ Dreamlord - Artificial Imprisonment (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 magnet:?xt=urn:btih:F7AF70F69EBF248E5A1983E4862B1F9A53147A1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:F7AF70F69EBF248E5A1983E4862B1F9A53147A1D
 ```bash
 magnet:?xt=urn:btih:D70E19156C1228BAD74FF227730FFC28928B8D24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ Dagoba — французская метал-группа, основанная 
 magnet:?xt=urn:btih:A23FB35512F71E2FAE57E257994D48E9B14E21C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:A23FB35512F71E2FAE57E257994D48E9B14E21C5
 ```bash
 magnet:?xt=urn:btih:7CC8F368DBD41C487D8FE0391547B4ECDC4BF86A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ magnet:?xt=urn:btih:7CC8F368DBD41C487D8FE0391547B4ECDC4BF86A
 magnet:?xt=urn:btih:2D9BD596F66461833431563D1BCBD9BEC49205AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ magnet:?xt=urn:btih:2D9BD596F66461833431563D1BCBD9BEC49205AE
 ```bash
 magnet:?xt=urn:btih:9BA7B8803A02109CFF27D085AF71963D7A65072C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +685,8 @@ Joe Bonamassa - B.B.King's Blues Summit 100, Vol. I (2025) [FLAC 24/44.1|Lossles
 ```bash
 magnet:?xt=urn:btih:36E98CB5C86A5208EC625A5F1F5D090ADE924D23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

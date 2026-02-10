@@ -19,6 +19,8 @@ Prey (2006) [Ru] (1.4) Repack/Mod seleZen
 magnet:?xt=urn:btih:94C97738AFAAD46C06BFE75034AD80A4305ED397
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Jagged Alliance 2/1 Metavira (2013) [Ru] (1.0.8) Repack/Mod dark_elf2
 ```bash
 magnet:?xt=urn:btih:91BDD6A34699C7588755DC0DB8E87BC4CE6D71C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Action-RPG нового поколения, созданная на новейш
 magnet:?xt=urn:btih:15E8F710FB0FE74A68ECB6AD23C3E8416802A6C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Heroes of Might and Magic IV (4) (2004) [Ru/En] (3.0/dlc) Repack Wanterlude [Com
 ```bash
 magnet:?xt=urn:btih:8275AF1DAF5B0CC3845B2B089DD48835036533CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Jagged Alliance 2 (1999) [Ru/En] (26614298) Repack Wanterlude
 magnet:?xt=urn:btih:BC90E460142743D17627EF46B4039653F67A7738
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Men of Valor (2004) [Ru] (1.3) License
 ```bash
 magnet:?xt=urn:btih:E1CBF75C0B7843406778FB132094353CAFB6BBBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Men of Valor (2004) [Ru/Multi] (1.3) License GOG
 magnet:?xt=urn:btih:9FFBC6D200CDD0C0FCCF0787D32E6AC61E88A4F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Have a N.I.C.E day! (1997) [Multi] (1.0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:D2E0B50DEEA354E02AFDE212709B660C810A6C41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ N.I.C.E. 2 / BreakNeck (2000) [Multi] (1.1.0) License GOG
 magnet:?xt=urn:btih:3E4F97D1B65F2AEFF72E4FFB972ECB46EB1339F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Vampire: The Masquerade - Redemption (2000) [Ru/En] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:1B672DE64497531BEF3D97E0F6A247CAE1F513C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Original Strife (1996) [En] (1.1.2b) License GOG [Veteran Edition]
 magnet:?xt=urn:btih:326E7B53303E8C9B7970CFBD69BF3A4E7916CA0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ HeXen II (2) (1997) [En] (1.11 music fix) License GOG
 ```bash
 magnet:?xt=urn:btih:718DD40103F3C7D6155D042E63D7200974A2A2FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ HeXen: Deathkings of the Dark Citadel – модификация к оригин
 magnet:?xt=urn:btih:B3F902553BCD0ABC0ABF1AA3A8A1B4FD2CD35976
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Heretic: Shadow of the Serpent Riders - темное фэнтези, шутер 
 ```bash
 magnet:?xt=urn:btih:C8041E457D4408DCC4E94D5995F0F55ECBDEF5DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Dame Was Loaded (1996) [Multi] (1.0cs) License GOG
 magnet:?xt=urn:btih:AC45B9B541BE1C4A1489CA3FC429482034B67F06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Combat Mission: Barbarossa to Berlin (2002) [En] (1.03 rdna fix) License GOG
 ```bash
 magnet:?xt=urn:btih:9832767ECB1D4BC8ADD6E483FCB0CCF1C0019606
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Combat Mission: Afrika Korps (2003) [Multi] (1.03 rdna fix) License GOG
 magnet:?xt=urn:btih:5501D35AB0A30770DA5426AC43591273A679F8E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Warcraft 3: The Reign of Chaos (2003) [Ru] (1.26a/dlc) Repack EXROW
 ```bash
 magnet:?xt=urn:btih:1E2C246BA80776DF35DAC22C3155865C31D7D5DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ FlatOut 2 (2006) [Ru] (1.2) Repack EXROW
 magnet:?xt=urn:btih:69538811A78DB1645DC565CF37610E24F7CD43AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Need for Speed Carbon – экшен гонки с открытым игровы
 ```bash
 magnet:?xt=urn:btih:599AD5DCF2C7F3030B97E272416ADBF8038B2BDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Overlord 2 (2009) [Ru] (1.0) Repack EXROW
 magnet:?xt=urn:btih:D0238067D10F13C6391936A1AA7EB785882400F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Dino Crisis (2000) [Multi] (1.0hf2) License GOG
 ```bash
 magnet:?xt=urn:btih:DBA80C2870927A63E70F0DCB680C7DB7705682F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Dino Crisis 2 (2002) [Multi] (1.0hf2) License GOG
 magnet:?xt=urn:btih:E9851D25636A140856A8D33151C0E1C9D485CEE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Overlord + Raising Hell (2007) [Ru] (1.4/dlc) Repack EXROW
 ```bash
 magnet:?xt=urn:btih:AE1987A619DA7841307902986F7BA6638A6A16E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Bully (2008) [Ru] (1.2) Repack EXROW [Scholarship Edition]
 magnet:?xt=urn:btih:6372D86D5C829DF8A5B8A0D23D1E1DECF1D50EDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ WarCraft II (2) (1995) [Ru] (2.02b/dlc) Repack EXROW [Battle.net Edition]
 ```bash
 magnet:?xt=urn:btih:B1D551184FCD941B996A3D06DCFF5444CBE2A1F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

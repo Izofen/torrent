@@ -22,6 +22,8 @@ Joe Bonamassa - Blues Deluxe (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 magnet:?xt=urn:btih:FF92ED26875062771B644BDC9BCE7D912A1A4FD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:FF92ED26875062771B644BDC9BCE7D912A1A4FD1
 ```bash
 magnet:?xt=urn:btih:55E43BF8B4D2D3BB18CBC5A48AF62E1F96709041
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ CD1 - Bob Cooper & Bill Holman:
 magnet:?xt=urn:btih:AB39257E34F6E54AA8A9C4B456E356EB4811246E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:AB39257E34F6E54AA8A9C4B456E356EB4811246E
 ```bash
 magnet:?xt=urn:btih:FAA443A78622F754B22D306A9BA41160960FB6FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ Rob Rock - Eyes Of Eternity (2003) Japanese Edition [FLAC|Lossless|image + .cue]
 magnet:?xt=urn:btih:FBD735273794C934187A3B070708809DD12DE0AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:FBD735273794C934187A3B070708809DD12DE0AF
 ```bash
 magnet:?xt=urn:btih:2596EEC36C1C71DBB6308CACDFAEFC2BDDD8D2A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:2596EEC36C1C71DBB6308CACDFAEFC2BDDD8D2A3
 magnet:?xt=urn:btih:75D9F371554F89D2732D161022E5C5E0752730DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:75D9F371554F89D2732D161022E5C5E0752730DC
 ```bash
 magnet:?xt=urn:btih:AAE0E4DAE0B2A236D286659DBBDAECDD28409A82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ Mag - Mag II - Pod Krwawym Księżycem (2022) [FLAC 2.0|48/24|tracks] <Doom meta
 magnet:?xt=urn:btih:3FF7E35BF7A7AF82473DABBA48BF2C09489B4208
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:3FF7E35BF7A7AF82473DABBA48BF2C09489B4208
 magnet:?xt=urn:btih:0EBC9C96867C87AFB736A04635F881D42ECAE27C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:0EBC9C96867C87AFB736A04635F881D42ECAE27C
 ```bash
 magnet:?xt=urn:btih:227F2BA62D936ACDA896E09D2D34E6313CC9B30B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ In Vinum - Vinum Et Occultismum (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock
 magnet:?xt=urn:btih:8FAA5D2824E5C87B7302BEDE3E868BEF4867430D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ PDF24 Creator - бесплатная программа, которая позв
 ```bash
 magnet:?xt=urn:btih:FF75507A2ED91227D1AB766300285606ECB5F68F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ Behind Our Reflections - Infinity (2022) [FLAC|Lossless|WEB-DL|tracks] <MetalCor
 magnet:?xt=urn:btih:37A36148B1E14B784CF513379F9B768A90409D45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:37A36148B1E14B784CF513379F9B768A90409D45
 ```bash
 magnet:?xt=urn:btih:D907DFCBCC998FBA208FC2C159B325A8FD651293
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ magnet:?xt=urn:btih:D907DFCBCC998FBA208FC2C159B325A8FD651293
 ```bash
 magnet:?xt=urn:btih:11E1ACBC07CCA0A2AAB084D015F312D644AD1371
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +461,8 @@ Rob Rock - Holy Hell (2005) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy
 magnet:?xt=urn:btih:3530919B3373395CC4EDF41516A267E9FC0A1246
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ Imagine - это бесплатный просмотрщик изображен�
 ```bash
 magnet:?xt=urn:btih:A92E66BFA6AE40954600A61FAD76E4683A08C9C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +513,8 @@ magnet:?xt=urn:btih:A92E66BFA6AE40954600A61FAD76E4683A08C9C9
 magnet:?xt=urn:btih:071E24582EAF20BC18F0431B3866B587125581DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +538,8 @@ magnet:?xt=urn:btih:071E24582EAF20BC18F0431B3866B587125581DA
 ```bash
 magnet:?xt=urn:btih:00C1875A79F53080014A26F704B3742206B6AABE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +568,8 @@ Mag - Mag (2020) [FLAC|Lossless|WEB-DL|tracks] <Doom metal, Sludge, Stoner>
 magnet:?xt=urn:btih:41D88A2AF8E3254A99C10F4C7C9ACD6FD51D4654
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +594,8 @@ magnet:?xt=urn:btih:41D88A2AF8E3254A99C10F4C7C9ACD6FD51D4654
 ```bash
 magnet:?xt=urn:btih:6A9BDD4984FE368309C46444E5797FF76DB11A22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +622,8 @@ magnet:?xt=urn:btih:6A9BDD4984FE368309C46444E5797FF76DB11A22
 magnet:?xt=urn:btih:6805FFB43394523E925984194A662C96C02A413D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +647,8 @@ magnet:?xt=urn:btih:6805FFB43394523E925984194A662C96C02A413D
 ```bash
 magnet:?xt=urn:btih:8FF6A4C7DF7B93804E92BC2DC5FC8AFC1CF1101C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +677,8 @@ Mag - Mag II - Pod Krwawym Księżycem (2022) [FLAC|Lossless|WEB-DL|tracks] <Doo
 magnet:?xt=urn:btih:46335FAD80C23DAEC2F12E17234008263710DD77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ KStars - бесплатное, с открытым исходным кодом, 
 ```bash
 magnet:?xt=urn:btih:0DF6E2955B7EC29A6781609C59EF2A6F6BD59517
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

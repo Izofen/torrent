@@ -19,6 +19,8 @@ Avidemux - небольшой, простой редактор для работ
 magnet:?xt=urn:btih:07F3EB83F5EC4E44CFF24767B0C7858F178BB18C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Adobe Premiere Pro 2024 - профессиональная программа д
 ```bash
 magnet:?xt=urn:btih:AA9E17650B7D209B92924A883BE27E7AD64A1E40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Adobe Illustrator — это принятое в качестве отрасле
 magnet:?xt=urn:btih:3A464D10B9A00B0E5343264EE6BB5688A314887A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ After Effects — это ведущая в отрасли программа д�
 ```bash
 magnet:?xt=urn:btih:E7F0173F4039E04E14A31422E62C45198272721B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Adobe Media Encoder 2024 - это программа кодирования, к�
 magnet:?xt=urn:btih:E6F18C0FA33A105245F3338C1B557653FB881C8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Adobe Audition 2024 24.6.0.69 RePack by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:424D42E5CE202FB9DDD0394EB9945A24C101F972
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ T-RackS 6 - это новейшее поколение известного пр
 magnet:?xt=urn:btih:28CB2F60D465AE3203AB701AD3B98E2EA33D137E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ FinePrint - многофункциональный драйвер для при�
 ```bash
 magnet:?xt=urn:btih:581CE4DD3C2263CAE43E8FBCEB8B22F5D3D6D382
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ MusicBrainz Picard - простая в использовании програм
 magnet:?xt=urn:btih:5D8230E5428373491BE63E6B589BFD75E4464D2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ FireAlpaca - это достаточно простой, но удобный г�
 ```bash
 magnet:?xt=urn:btih:7D6E52E55293DB52DD58DB22F648308D12031F71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ FontLab 8 — это интегрированный редактор шрифт�
 magnet:?xt=urn:btih:90A92CC3EC46C73800D5370A5CBC644C259F27A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ reaConverter Pro - мощный инструмент для тех, кто им�
 magnet:?xt=urn:btih:8627093F6B84B0E5EEB4E8CB85DCCE5E7AAB1BCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Extreme Picture Finder - средство для автоматического 
 ```bash
 magnet:?xt=urn:btih:82208DF757CA88BB20AB3ED37F0A635F8936586F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ FileZilla Server представляет собой очень простой, 
 magnet:?xt=urn:btih:0D59EAE8B50BDE4A9A1365AA5356902C4ABC2C50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Vov Sticky Notes 9.2 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:43B8658D8BF08D6FAD0783DD43DA5A46F566BBAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Wise Disk Cleaner 11.1.5.831 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:DF08DFF376D784E90068E55EE5440F254E9A3C42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Audified - MixChecker Ultra 1.0.0 VST 3, AAX (x64) RePack by R2R [En]
 ```bash
 magnet:?xt=urn:btih:3E66F1584C1900F3D884D3C3B16E18FAA67FBD6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Fort Firewall - простой и бесплатный брандмауэр дл
 magnet:?xt=urn:btih:6AE8C2F8A12222A3601241B67E2B8479048F2A3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Atlantis Word Processor 4.4.1.1 Repack (& Portable) by elchupacabra [Ru/En]
 ```bash
 magnet:?xt=urn:btih:729DF0C1780A6220305FA97F50EEBC496FE05A46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ StartAllBack - привычная для нас программа, котора
 magnet:?xt=urn:btih:A921B9F29178E6AF2AF44EB5A910B980A25A37BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:B2125E9291D0BEAB01D4AE2E6A79783B3C05A2D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ KiCad – уникальный в своем роде программный п�
 magnet:?xt=urn:btih:8C0CEEF0D2423EED96BFF275C534F699968E543E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ MediaHuman YouTube to MP3 Converter 3.9.9.96 (0609) RePack (& Portable) by elchu
 ```bash
 magnet:?xt=urn:btih:8C92B6CD85901761012ED7EB76225B9916C41EC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ MediaHuman YouTube Downloader 3.9.9.96 (0609) RePack (& Portable) by elchupacabr
 magnet:?xt=urn:btih:916D571C220B90DD4BC4850C3F770D08D04E99AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Office Tool Plus - функциональная программа для раб
 magnet:?xt=urn:btih:B4CFE0048C5034EDB5E12708DA1FD7896A07F461
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ MediaHuman YouTube Downloader 3.9.9.96 (0609) RePack (& Portable) by Dodakaedr [
 ```bash
 magnet:?xt=urn:btih:A1EAFA6FE8E49E3D91761E3A7460A740F7A0AC2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Abelssoft SSD Fresh - если вы счастливый обладатель SS
 magnet:?xt=urn:btih:82E8A281CD4E3721A9B9A3F5F7CB44EAA3AD66CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ CrystalDiskMark - утилита для сравнительного анали�
 magnet:?xt=urn:btih:30924B90607B5FBD460FAD261C59F8B657AFA302
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ BitComet - это функциональный, быстрый и простой
 ```bash
 magnet:?xt=urn:btih:878D4E34A8EA7441742A09D12B79565B9D5BFA69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Privacy Eraser Free - комплексный инструмент для защ�
 magnet:?xt=urn:btih:4EDE17C6D41CB684036A264B256D5B5CE9CBA606
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ CoolUtils Total XML Converter - уникальное приложение для
 ```bash
 magnet:?xt=urn:btih:3772CEDB53F4FEFC19EDE02C905A1098E3434E43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ CoolUtils Total HTML Converter - это решение профессионал�
 magnet:?xt=urn:btih:9C12D93A1782334E306B99C0D3B45C09782BDA53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Defender Remover Portable 12.8.4 [En]
 ```bash
 magnet:?xt=urn:btih:2D2C438CCA86CBC2D6CF8528C5319870451FACEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ O&O DiskImage Premium – программа для создания резер�
 magnet:?xt=urn:btih:B651CF4B8DD543845DE515750E37A312089EFC31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ PDF Shaper Premium / Ultimate 15.2 RePack (& Portable) by Dodakaedr [Ru/En]
 ```bash
 magnet:?xt=urn:btih:207B303B3C9BD82483EF811E0AF31BCF1D08DB95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Kingston SSD Manager — это приложение, предоставляющ
 magnet:?xt=urn:btih:505B2041E795DEB692201421D3F8E3ED52456DE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Revo Uninstaller Pro 5.4.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0A53D5D436C10D258F58BF7AFB1A347731FDA049
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Ashampoo Driver Updater обеспечивает обновления для ш�
 magnet:?xt=urn:btih:24510098769EFB72B886A05CF356335D20376DAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Revo Uninstaller Pro 5.4.0 Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0006F7A7382FC5C0E6727B3B7C7514A8811F23A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Revo Uninstaller Pro 5.4.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:A6DF27A62E334BFDB93BDBC2CE5DC9C46316D4A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ AOMEI Backupper – программа для создания резервно�
 magnet:?xt=urn:btih:C1EA0A0FD7EEB2E522A8C6876F37D9548A2014A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Ashampoo WinOptimizer - новая линейка пакета программ,
 ```bash
 magnet:?xt=urn:btih:8158967EFE97A7083045E42BF2B0BD98388E4035
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ LogViewPlus значительно облегчает просмотр запи�
 magnet:?xt=urn:btih:358FCBAC355A8A4B4CE7503560540381226D82A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Hard Disk Sentinel — отличная программа для монитор
 ```bash
 magnet:?xt=urn:btih:F988E27C4D1666D66B96DE99E7E86EAD2A3E3D47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:F988E27C4D1666D66B96DE99E7E86EAD2A3E3D47
 magnet:?xt=urn:btih:FD908540E0F2350BA24533303817D50EFE1E24AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ FileMenu Tools настраивает пункты контекстного ме
 ```bash
 magnet:?xt=urn:btih:9B0F248795CCE7F0AE207BDB61710DA19B71B2B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ Directory Opus — альтернативный файловый менедже�
 magnet:?xt=urn:btih:28AF453FA2D7ADFA5344BF8C5A29E03AE67CB257
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Find MAC Address  - небольшая утилита, которая позво
 magnet:?xt=urn:btih:B2B21EF1E318AA190C035725D9C5FB6BB1303F13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ BitTorrent – программа-клиент пиринговой сети. П
 ```bash
 magnet:?xt=urn:btih:968FDB3B729324B7FE22DD3BB62C940551048B01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ Open-Shell Menu - замена утилиты Classic Shell, разработк�
 magnet:?xt=urn:btih:CEFABDEC49308C1C3348C44E9F58FA13A6F0EC88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Wi-Fi Scanner — удобная программа, с помощью кото�
 magnet:?xt=urn:btih:949CF9B34E85ECC9DC0082B25F27CC9199A30F34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ AOMEI Backupper – программа для создания резервно�
 ```bash
 magnet:?xt=urn:btih:BCF980D844AF429D78ADAD66B0CB43DED64D71BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

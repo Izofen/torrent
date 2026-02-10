@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@
 magnet:?xt=urn:btih:14EBAC07796523B4D5F55AA8CD6B7EA29EBB7485
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ MultiTimer - это простое и универсальное таймер-п
 ```bash
 magnet:?xt=urn:btih:30CFB29DDF987726DE3D5BEDD8DB64C5B955F735
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:30CFB29DDF987726DE3D5BEDD8DB64C5B955F735
 magnet:?xt=urn:btih:C651A2570E71EA120CFB6935EBBB2888AF6E35BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ FireAlpaca — это достаточно простой, но удобный �
 ```bash
 magnet:?xt=urn:btih:255998723C3B1DC885FF675C505B61430862F9F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:255998723C3B1DC885FF675C505B61430862F9F1
 magnet:?xt=urn:btih:7140159BFF2E45BDFFEF5809B11C16CB00AD5733
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ MediaHuman YouTube Downloader 3.9.14 (1407) RePack (& Portable) by Dodakaedr [Mu
 ```bash
 magnet:?xt=urn:btih:818C52A1A478B5CD6482F18C89649724F2020C5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Tricky Words / Хитрое слово: слова из букв v10.0.1 Mod by 
 magnet:?xt=urn:btih:8180E46015B74816F08A2FB2D7CA4A015361B4E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Imagine - это бесплатный просмотрщик изображен�
 magnet:?xt=urn:btih:A226DE57F30C927FFEBA76E1E3052904A5AC1785
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ Aiseesoft Screen Recorder 3.1.26 RePack (& Portable) by elchupacabra (x64) [Mult
 ```bash
 magnet:?xt=urn:btih:86FC90C04EC6150B45624058D2E5641D8EE6FE7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ DjVu Reader & Viewer (читалка дежавю на русском языке
 magnet:?xt=urn:btih:75045401F374891C3CE034041F6308E5897C6D58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ CyberLink PowerDVD Ultra 24.0.0623.62 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D86E181414BB12C500B200ADAB6897BEA1AA76B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Cent Browser является усовершенствованной верси�
 magnet:?xt=urn:btih:908715BEF8693E1EBC4BA53B09352CC64031BC5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:908715BEF8693E1EBC4BA53B09352CC64031BC5D
 magnet:?xt=urn:btih:CB93B1F7077BD9C109379624A1F83CCF90D0E184
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ SIV (System Information Viewer) - мощнейшая утилита, показ�
 ```bash
 magnet:?xt=urn:btih:7477959EB9AD86712859CA70733ECB2B9D3BAFD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ TV+: Бесплатное Онлайн Телевидение
 magnet:?xt=urn:btih:1FA4641997B0F69D53B8C3B1412345A4845DF197
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:1FA4641997B0F69D53B8C3B1412345A4845DF197
 ```bash
 magnet:?xt=urn:btih:3CD762D60891188D2E89834C00BA0E84E4B693FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ OTT Онлайн прямое телевидение, в котором вы н�
 magnet:?xt=urn:btih:7A90ED375B29D43F3BC49E66CD48A195A4F7261F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 ```bash
 magnet:?xt=urn:btih:38AF4A8AF3B6062BD85DA6BEB855B47CFE530339
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ Discovery: Сражения динозавров: Поколения (эпизо
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ Discovery: Сражения динозавров: Сумевшие выжить 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ GoodbyeDPI 0.2.3rc3 Launcher 9.9 [Ru/En]
 magnet:?xt=urn:btih:68F0B2F0F753E98090F1572E1208628820007B58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ Discovery: Сражения динозавров: Совершенные хищ�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ Discovery: Сражения динозавров: Защитники (эпизо
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Discovery: Сражения динозавров: Защитники (эпизо
 ```bash
 magnet:?xt=urn:btih:7CC70EE9BCA53306E4E23C2524D58C7D36E1C547
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

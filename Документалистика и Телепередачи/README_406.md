@@ -1,3 +1,29 @@
+###  Публикация: 1046668   (551719) от 27.08.2016
+
+Экстрасенсы ведут расследование (2016.08.27) SATRip (сезон 7, выпуск 16)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный триллер-детектив с участием самых загадочных экстрасенсов России! Это не шоу, а демонстрация реальной мощи ясновидения. Участники и победители нескольких сезонов «Битвы экстрасенсов» приводят документальные доказательства того, как паранормальные способности способны помочь людям. В этом цикле экстрасенсы находят пропавших родственников и угнанные (   Читать дальше...   )Телекомпания: ТНТЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:10:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0284BB99EC8C6BD0CDC15E4F8EF91D02BC92AAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046670   (551723) от 27.08.2016
 
 Танковый удар (2016) DVDRip
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:26666B9BB760CEE50FFED3E7E9FF223D3EF9C2B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:26666B9BB760CEE50FFED3E7E9FF223D3EF9C2B5
 magnet:?xt=urn:btih:3098D73897F0E241EB72D19779FAB0431234D4B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:3098D73897F0E241EB72D19779FAB0431234D4B2
 ```bash
 magnet:?xt=urn:btih:EF1D32E03E83BD59ABB7CA1E68F4D4CE025FA9A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:EF1D32E03E83BD59ABB7CA1E68F4D4CE025FA9A6
 magnet:?xt=urn:btih:AD19BEE51ABC854CE90FDF3D7D432BCBB5CB1B42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:AD19BEE51ABC854CE90FDF3D7D432BCBB5CB1B42
 ```bash
 magnet:?xt=urn:btih:A68FA4A2A21F2DCC341EEF2834E9D41E5D120D60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:A68FA4A2A21F2DCC341EEF2834E9D41E5D120D60
 magnet:?xt=urn:btih:395EB7064BB650DF8E93F2BEA9ED99F879710CCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:395EB7064BB650DF8E93F2BEA9ED99F879710CCC
 ```bash
 magnet:?xt=urn:btih:AF7DE6B7FFA3ABF6E5556205728D0BF2968CAC74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:AF7DE6B7FFA3ABF6E5556205728D0BF2968CAC74
 magnet:?xt=urn:btih:33602A4581E8D91212FAC2E56BADE065A5265332
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:33602A4581E8D91212FAC2E56BADE065A5265332
 ```bash
 magnet:?xt=urn:btih:2D0CD9386B6491CCD253482BDA622884876439C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:2D0CD9386B6491CCD253482BDA622884876439C1
 magnet:?xt=urn:btih:00A746D004A119AA5FF51577E20B4BAF2C40A27C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:00A746D004A119AA5FF51577E20B4BAF2C40A27C
 ```bash
 magnet:?xt=urn:btih:01F3A96591E24B34046AC4DCFCF5B19E4C55A762
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:01F3A96591E24B34046AC4DCFCF5B19E4C55A762
 magnet:?xt=urn:btih:0E6946C6ACA99C1FB09E7589940B150E68210E85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +357,8 @@ magnet:?xt=urn:btih:0E6946C6ACA99C1FB09E7589940B150E68210E85
 ```bash
 magnet:?xt=urn:btih:058D683DB3F16FB3B46AACD66FA543462641CF55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:058D683DB3F16FB3B46AACD66FA543462641CF55
 magnet:?xt=urn:btih:7AC8E7D08708277EDC37EF74116852A71C792C3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +409,8 @@ magnet:?xt=urn:btih:7AC8E7D08708277EDC37EF74116852A71C792C3F
 ```bash
 magnet:?xt=urn:btih:7DB7134105F0CD1D14B62BFAB98CB7415A768B09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:7DB7134105F0CD1D14B62BFAB98CB7415A768B09
 magnet:?xt=urn:btih:36A25739D0168B6577A878E372B81006D296D62D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +461,8 @@ magnet:?xt=urn:btih:36A25739D0168B6577A878E372B81006D296D62D
 ```bash
 magnet:?xt=urn:btih:38937C98C83B74AA249D4BDDB0217749F173C52B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:38937C98C83B74AA249D4BDDB0217749F173C52B
 magnet:?xt=urn:btih:FDBA040C0018D9E203E6080E4C12E53B21690C82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +513,8 @@ magnet:?xt=urn:btih:FDBA040C0018D9E203E6080E4C12E53B21690C82
 ```bash
 magnet:?xt=urn:btih:173F49D02B0BE61171C0374BE20C4F0B5E663265
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +540,8 @@ magnet:?xt=urn:btih:173F49D02B0BE61171C0374BE20C4F0B5E663265
 magnet:?xt=urn:btih:F562896781679AED7020DD3B24DA4FBCC4666E7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +565,8 @@ magnet:?xt=urn:btih:F562896781679AED7020DD3B24DA4FBCC4666E7E
 ```bash
 magnet:?xt=urn:btih:6C878F79177D93D33B975A822C73F2F4E2B7D78E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +592,8 @@ magnet:?xt=urn:btih:6C878F79177D93D33B975A822C73F2F4E2B7D78E
 magnet:?xt=urn:btih:705911ACCC15D0C6E115D77C3E24C92FD1B1BF8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +617,8 @@ magnet:?xt=urn:btih:705911ACCC15D0C6E115D77C3E24C92FD1B1BF8C
 ```bash
 magnet:?xt=urn:btih:DA315EF85A64B5A32D52B731FD094B8882CFABA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +644,8 @@ magnet:?xt=urn:btih:DA315EF85A64B5A32D52B731FD094B8882CFABA4
 magnet:?xt=urn:btih:B381DF7E05819EDEC97D356B2D1C2292FA20FEDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,29 +670,7 @@ magnet:?xt=urn:btih:B381DF7E05819EDEC97D356B2D1C2292FA20FEDF
 magnet:?xt=urn:btih:F21A65E63DB10F00EACCDEABEB73447BCD6C7F1C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046597   (552115) от 27.08.2016
-
-Секретные материалы 17. В августе 91-го  (2016) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552115.jpg" />
-</div>
-
-
-###  Подробнее
-
-В августе 1991-го года состоялся грандиозный спектакль под названием «Августовский путч» ГКЧП. Что было бы со страной, если бы ГКЧП победил? Как говорят эксперты, скорее всего, ничего бы не произошло. Но эхо того времени до сих пор не дает покоя. В чем заключался тайный сговор Михаила Горбачева и Бориса Ельцина? И почему этот переворот так и не случилсяТелекомпания: Россия, МирЖанр: Документальный, ТелепередачаРежиссер: Алла ДерюгинаПродолжительность: 00:23:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2A5A0F55C6F02C7836CBDE01B76ED95D505B5DF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

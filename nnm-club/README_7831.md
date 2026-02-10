@@ -22,6 +22,8 @@ Artie Shaw - 1945 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band
 magnet:?xt=urn:btih:0DB4952EBF64C636492D9052A3F1EBB843F14FF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ magnet:?xt=urn:btih:0DB4952EBF64C636492D9052A3F1EBB843F14FF6
 magnet:?xt=urn:btih:870E2359A29D7037E89E677671A9EAE16C9E6B47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ SIGERSHADERS XS Material Presets Studio - это обновлённая библ
 magnet:?xt=urn:btih:14B75FFD7E1D0489F0F843851E89EB14A8E9D1C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ R-Wipe & Clean - программа для невосстановимого уд
 magnet:?xt=urn:btih:94627A6DDBF901C8711C1DDE1BC6D2ABA726A890
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Fork 2.30 [En]
 ```bash
 magnet:?xt=urn:btih:89A3F1185A0313336ED904D27F45879986F57129
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ Drakwald - Black Moon Falls (2023) [FLAC|Lossless|WEB-DL|tracks] <Pagan, Melodic
 magnet:?xt=urn:btih:2788744713506A0B03ACF461958299FF780A2E27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:2788744713506A0B03ACF461958299FF780A2E27
 ```bash
 magnet:?xt=urn:btih:7B11B519A0ABF9B95972ACA57EA0828FE02F9325
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ Fix My iPhone — это инструмент для восстановлени�
 magnet:?xt=urn:btih:43CCEE81B18C310ACB0231BAFD62D3BE0E44EB76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:43CCEE81B18C310ACB0231BAFD62D3BE0E44EB76
 ```bash
 magnet:?xt=urn:btih:37943EF3E2E4C251862E528116559974202B8155
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ NanoBrowser - это еще один из минималистичных бра�
 magnet:?xt=urn:btih:E2004A22418F115E622BD2854F03287278A6DA26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ Better Trash - это приложение для управления мусо�
 ```bash
 magnet:?xt=urn:btih:5DBAA37DFCD96D07DA06D6B64DC2FC5F66F0362A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:5DBAA37DFCD96D07DA06D6B64DC2FC5F66F0362A
 magnet:?xt=urn:btih:B609CCBED54F292355118CEC72709C2C9177580E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:B609CCBED54F292355118CEC72709C2C9177580E
 ```bash
 magnet:?xt=urn:btih:2B6C5B4A6BE1FE3F20F9A1BAC4CBB67D0C503CD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:2B6C5B4A6BE1FE3F20F9A1BAC4CBB67D0C503CD3
 magnet:?xt=urn:btih:16114FE14C7904F2B27A98A4336AF26AFDA3AD3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:16114FE14C7904F2B27A98A4336AF26AFDA3AD3E
 ```bash
 magnet:?xt=urn:btih:F0FC1011A249676AF976567558F19ACB217A78C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:F0FC1011A249676AF976567558F19ACB217A78C8
 magnet:?xt=urn:btih:8D8CDAD1F837A7ED2FB44F5B76B38BA1B9D4DA0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ magnet:?xt=urn:btih:8D8CDAD1F837A7ED2FB44F5B76B38BA1B9D4DA0E
 ```bash
 magnet:?xt=urn:btih:9CEFE85D6AE815A77FF8E5E0A2263F6B22D4F3C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:9CEFE85D6AE815A77FF8E5E0A2263F6B22D4F3C7
 magnet:?xt=urn:btih:57D99AA3BF3F3B2C11DF6685858DB5684FC652CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ Live Wallpaper & Themes 4K позволяют использовать живы�
 ```bash
 magnet:?xt=urn:btih:FB1FD5CF06BF319D7ABA6DDA14DBB64D0A1029BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +530,8 @@ VA - White Lounge, Vol. 1 (2021) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
 magnet:?xt=urn:btih:1A5E4FE9AAD5F1F3E397AE70983B7304D7F2A503
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ Seum - Double Double (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Stoner Metal>
 magnet:?xt=urn:btih:15E97AF6615DF903C32F654FCFC0EE73C23B1AEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ VueScan является приложением для работы со ска�
 ```bash
 magnet:?xt=urn:btih:D50BCC3089A9A3F0C0F76C03EF7AC3D2428ECA28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ Distillery - I'm Your Nightmare (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 magnet:?xt=urn:btih:A663D8C45CCF7DB26F6DF11512430E9F26433434
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ magnet:?xt=urn:btih:A663D8C45CCF7DB26F6DF11512430E9F26433434
 ```bash
 magnet:?xt=urn:btih:8D020552C2B0BE80DEF129BF650624FBF0FB6571
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ MotoGP. Этап 07. Гран-при Германии. Спринт (17.06.2023)
 magnet:?xt=urn:btih:287A5BDA348BD4F1421F1FB0CD4D9F7B46569E54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ Discovery+ Расследования "Дианы" / The Diana Investigations (2
 ```bash
 magnet:?xt=urn:btih:E2E035DAA70D019C902282D69A92FB77FEAF1331
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

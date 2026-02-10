@@ -1,28 +1,3 @@
-###  Публикация: 308007   (719463) от 07.06.2016
-
-Мистер Судьба / Повороты судьбы / Мистер Дестини / Mr. Destiny (1990) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719463.jpg" />
-</div>
-
-
-###  Подробнее
-
-У простого служащего Ларри ломается машина. Он останавливается у придорожного кафе и в ожидании помощи решает пропустить стаканчик. Ларри жалуется бармену на свою неудавшуюся жизнь: если бы все сложилось иначе…
-Таинственный человек за стойкой молча выслушал его историю. С этого момента судьба Ларри полностью изменилась. Теперь он — один из управляющих преуспевающей (   Читать дальше...   )Жанр: Комедия, Фэнтези, МелодрамаРежиссер: Джеймс Орр / James OrrАктеры: Джеймс Белуши, Линда Хэмилтон, Майкл Кейн, Джон Ловиц, Харт Бочнер, Билл МакКатчен, Рене Руссо, Джей О. Сандерс, Мори Чайкин, Пэт КорлиПеревод: Многоголосый закадровый, дублированный, авторский закадровыйЯзык субтитров: рускиеПродолжительность: 01:45:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3830608EF679E7392EA63F18902C2E7B4E4BE14C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 54731   (720151) от 16.02.2022
 
 Сжигатель трупов / Spalovac Mrtvol / The Cremator (1968) DVDRip
@@ -43,6 +18,8 @@ magnet:?xt=urn:btih:3830608EF679E7392EA63F18902C2E7B4E4BE14C
 ```bash
 magnet:?xt=urn:btih:5F78EC1F90520612050F92BD6A2E4FA909048EC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +46,8 @@ magnet:?xt=urn:btih:5F78EC1F90520612050F92BD6A2E4FA909048EC7
 magnet:?xt=urn:btih:1F373345DA4F3349B35010BB4F1631B7E96E08F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +71,8 @@ magnet:?xt=urn:btih:1F373345DA4F3349B35010BB4F1631B7E96E08F2
 ```bash
 magnet:?xt=urn:btih:C7A0A337A3318204B8979E1B7B47A1A1FCA0779A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +98,8 @@ magnet:?xt=urn:btih:C7A0A337A3318204B8979E1B7B47A1A1FCA0779A
 magnet:?xt=urn:btih:1F8003081C2EB085D831FC3CEC4CEBADCC00B957
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +123,8 @@ magnet:?xt=urn:btih:1F8003081C2EB085D831FC3CEC4CEBADCC00B957
 ```bash
 magnet:?xt=urn:btih:800AE789CDC03A3F31DD1D747AB301FE0BDE9880
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +150,8 @@ magnet:?xt=urn:btih:800AE789CDC03A3F31DD1D747AB301FE0BDE9880
 magnet:?xt=urn:btih:E995802AD405273CA7B1400C5050484A97B8AF1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +175,8 @@ magnet:?xt=urn:btih:E995802AD405273CA7B1400C5050484A97B8AF1E
 ```bash
 magnet:?xt=urn:btih:3406C70C5CDC99F0959E35641BD72792D233FACF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +202,8 @@ magnet:?xt=urn:btih:3406C70C5CDC99F0959E35641BD72792D233FACF
 magnet:?xt=urn:btih:7FC18FB03EFF8B0546E8BA3EAE93485F05FB33DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +227,8 @@ magnet:?xt=urn:btih:7FC18FB03EFF8B0546E8BA3EAE93485F05FB33DF
 ```bash
 magnet:?xt=urn:btih:E54A0EF3C415FB5C63DABB0CE331E4F912CC46A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +256,8 @@ magnet:?xt=urn:btih:E54A0EF3C415FB5C63DABB0CE331E4F912CC46A5
 magnet:?xt=urn:btih:2F6E06FD453E8970B1B6CE07E6E7C1A26D1A4B6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +281,8 @@ magnet:?xt=urn:btih:2F6E06FD453E8970B1B6CE07E6E7C1A26D1A4B6D
 ```bash
 magnet:?xt=urn:btih:78C57F449EE64FFCFC9FC818196C6DACB14A5304
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +308,8 @@ magnet:?xt=urn:btih:78C57F449EE64FFCFC9FC818196C6DACB14A5304
 magnet:?xt=urn:btih:465638BF70CF973B83E215BD6EF08FAE31A07904
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +333,8 @@ magnet:?xt=urn:btih:465638BF70CF973B83E215BD6EF08FAE31A07904
 ```bash
 magnet:?xt=urn:btih:9CAD09DFFF6FFD42A667E1D70D2FEEB2B369BBEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +361,8 @@ magnet:?xt=urn:btih:9CAD09DFFF6FFD42A667E1D70D2FEEB2B369BBEE
 magnet:?xt=urn:btih:1E26454B636539D0198604E2F46B5416247F3297
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +388,8 @@ magnet:?xt=urn:btih:1E26454B636539D0198604E2F46B5416247F3297
 magnet:?xt=urn:btih:9D05649DCF93BCB9221C98D751E76A7E433ADAF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +413,8 @@ magnet:?xt=urn:btih:9D05649DCF93BCB9221C98D751E76A7E433ADAF2
 ```bash
 magnet:?xt=urn:btih:6583E3F63FA45524FE32C7516C33E96FE499BA36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +440,8 @@ magnet:?xt=urn:btih:6583E3F63FA45524FE32C7516C33E96FE499BA36
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +465,8 @@ magnet:?xt=urn:btih:6583E3F63FA45524FE32C7516C33E96FE499BA36
 ```bash
 magnet:?xt=urn:btih:1DDCF09B040A9ED877AAD68EA8B6F5C5BEC22EB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +492,8 @@ magnet:?xt=urn:btih:1DDCF09B040A9ED877AAD68EA8B6F5C5BEC22EB9
 magnet:?xt=urn:btih:270EC250F58B69B39103EF06FE020AC6743C2C3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +517,8 @@ magnet:?xt=urn:btih:270EC250F58B69B39103EF06FE020AC6743C2C3A
 ```bash
 magnet:?xt=urn:btih:63DAA927F0FA0142B1F0EE1FF9EF2C0DE79F48BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +545,8 @@ magnet:?xt=urn:btih:63DAA927F0FA0142B1F0EE1FF9EF2C0DE79F48BD
 magnet:?xt=urn:btih:1F9EF7D28ADE4F93CDB273D4FD100C7BB455DEC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +570,8 @@ magnet:?xt=urn:btih:1F9EF7D28ADE4F93CDB273D4FD100C7BB455DEC8
 ```bash
 magnet:?xt=urn:btih:6F7CFD0E128F54D3E221F9883CD904C04610A185
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +598,8 @@ magnet:?xt=urn:btih:6F7CFD0E128F54D3E221F9883CD904C04610A185
 magnet:?xt=urn:btih:9DBED7CDF418740EDD2551D2A78D7CF1D4A777C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +624,8 @@ magnet:?xt=urn:btih:9DBED7CDF418740EDD2551D2A78D7CF1D4A777C8
 magnet:?xt=urn:btih:D9EBE0EE9628C112E34DB76C8618C8F9600473D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +649,34 @@ magnet:?xt=urn:btih:D9EBE0EE9628C112E34DB76C8618C8F9600473D7
 ```bash
 magnet:?xt=urn:btih:64DD7BBAA0C0ED03C18773870F0CA69BAD04F1AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023007   (727680) от 03.06.2016
+
+День животных / Day of the Animals (1977) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрушение озонового слоя пагубно повлияло на поведение животных, обитающих на высоте пяти тысяч футов. Это становится неприятным открытием для группы туристов, которых доставил в горы вертолет, прежде чем был объявлен карантин. Животные становятся агрессивными и начинают нападать на людей. Чтобы остаться в живых, путешественникам предстоит сражаться с обезумевшими (   Читать дальше...   )Производство: СШАЖанр: Ужасы, Фантастика, ТриллерРежиссер: Уильям ГёрдлерАктеры: Кристофер Джордж, Лесли Нильсен, Линда Дэй Джордж, Ричард Джэкел, Майкл Ансара, Рут Роман, Джон Седар, Пол Манти, Уолтер Барнс, Эндрю СтивенсПеревод: Многоголосый закадровый, авторскийПродолжительность: 01:37:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:171C40A8D5B22186C16E3DD45E11A8FBD8C7DDCD
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

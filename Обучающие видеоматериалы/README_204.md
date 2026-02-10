@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:A9FE65EB51D9179BA747D67D0EF2A300E4ECABF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:A9FE65EB51D9179BA747D67D0EF2A300E4ECABF1
 magnet:?xt=urn:btih:749BC73B240D7DAC94CB02D49CFC9E4506842966
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Allan McKay | FX Technical Director Transformation Module 8 (2015) PCRec
 ```bash
 magnet:?xt=urn:btih:49AC795C32137ADF6D967EBB18FC6777A3B7D339
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ Allan McKay | FX Technical Director Transformation Module 10 (2015) PCRec
 magnet:?xt=urn:btih:FDEE86D52A94BB04556FC4AB5E21A355B24BCAA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:FDEE86D52A94BB04556FC4AB5E21A355B24BCAA0
 magnet:?xt=urn:btih:EB272CDCC319C1455782744DCD509FC519689D31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ VFX Grace | Jaguar Grooming Workflow - Blender Case Study (2020) PCRec [EN / EN 
 ```bash
 magnet:?xt=urn:btih:7F95FB3267CECBB4B2CC36169E911BB8C1B67C0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:7F95FB3267CECBB4B2CC36169E911BB8C1B67C0A
 magnet:?xt=urn:btih:0FD5047E78B62BCDFF4C1AAFAD2D8A4F689B4056
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ NizamovStudio | Разработка мобильного приложения B
 magnet:?xt=urn:btih:9470C7DDFC1E80C5D92C1B1F5F3B50C4F5FFF6DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ studyboom | Профессия: Дизайнер мобильных прилож
 magnet:?xt=urn:btih:19B5DAE91D3AE13599C589BC83D6A4438279003F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ Delta Discovery Group | Обучение от Елены Калашниково�
 magnet:?xt=urn:btih:69FFF77CAF53E11E7A37BCB36CE6D6EA32662076
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:69FFF77CAF53E11E7A37BCB36CE6D6EA32662076
 magnet:?xt=urn:btih:F452D41BAC5B30B8B87A80D6DC539D52F2F71F02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ magnet:?xt=urn:btih:F452D41BAC5B30B8B87A80D6DC539D52F2F71F02
 ```bash
 magnet:?xt=urn:btih:F37D4D4886B775ED01697FEA05C60348B2E07105
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ Patrick Inhofer | DaVinci Resolve 12 Essential Training (2016) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:A82743DD35857617827B1167DED36ADAC851EB96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ Adam Epstein | Cutting Edge Post-Production Training (2014) PCRec
 magnet:?xt=urn:btih:E235E61253D26B909C9E5A295DBFBDD3EE510EA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ magnet:?xt=urn:btih:E235E61253D26B909C9E5A295DBFBDD3EE510EA6
 ```bash
 magnet:?xt=urn:btih:28E08A3E3E4A91247B92202AD0B9E2F5803887BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +437,8 @@ magnet:?xt=urn:btih:28E08A3E3E4A91247B92202AD0B9E2F5803887BE
 magnet:?xt=urn:btih:CF9AE0CA7C0DC48EA03CFB409BA5215ED72CA3B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +466,8 @@ magnet:?xt=urn:btih:CF9AE0CA7C0DC48EA03CFB409BA5215ED72CA3B8
 magnet:?xt=urn:btih:98CDA39F20D1FE11041383336C60D4DB9F3D156E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +493,8 @@ ProfIT | T4: быстрый вход в мир современных фрейм
 ```bash
 magnet:?xt=urn:btih:4DAAC5D98381D84065ABD7FCDC001E308C5B1F98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +523,8 @@ magnet:?xt=urn:btih:4DAAC5D98381D84065ABD7FCDC001E308C5B1F98
 magnet:?xt=urn:btih:678809CEB3B7067AB98911637BC5AF6474D8E2F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +552,8 @@ magnet:?xt=urn:btih:678809CEB3B7067AB98911637BC5AF6474D8E2F2
 magnet:?xt=urn:btih:328264EF69A29A27D41910D72C751A0689E330EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +577,8 @@ magnet:?xt=urn:btih:328264EF69A29A27D41910D72C751A0689E330EB
 ```bash
 magnet:?xt=urn:btih:6F9645884BA08E94515FC5903F3F4F4C6CDB1AF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +607,8 @@ Michael Raphaelovich | Mastering Color Correction in Premiere Pro [Rus] (2015) P
 magnet:?xt=urn:btih:EAC8AAED246D5CA525829060B1DF3785635A0A0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +635,8 @@ Stephen Wells | Physics Pile In 3ds Max / Создание груды косте
 magnet:?xt=urn:btih:4F8AE3065C58601FD27429A66A7439A4C957D205
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +660,8 @@ PHP Academy | Курс PHP Developer (2017) PCRec [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:8DC0B61E5E16AC1499741053D16D4A481B5ADA2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +687,8 @@ magnet:?xt=urn:btih:8DC0B61E5E16AC1499741053D16D4A481B5ADA2C
 magnet:?xt=urn:btih:9D587D97E12E902A4E570956E12A3A9A054197C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -662,6 +712,8 @@ magnet:?xt=urn:btih:9D587D97E12E902A4E570956E12A3A9A054197C1
 ```bash
 magnet:?xt=urn:btih:1ADE69397035C12DD23BB01B20B0778B75187100
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

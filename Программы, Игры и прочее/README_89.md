@@ -21,6 +21,8 @@ Malwarebytes Антивирус: Антивирус, защита от шпио�
 magnet:?xt=urn:btih:7BC4E6BF2CC4F766D4D6373EC58DC9BBDC6EEA25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:7BC4E6BF2CC4F766D4D6373EC58DC9BBDC6EEA25
 ```bash
 magnet:?xt=urn:btih:6F047E2361CD26219F707D2C9827CACDA22EF6A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Muscle & Motion - Yoga 2.2.5 premium [Ru/Multi]
 magnet:?xt=urn:btih:7679A1C8020E44B2E113438917D6C3D0C2B00FC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Drad Paradise: The Road Warrior v 1.7 [Ru]
 ```bash
 magnet:?xt=urn:btih:90E47D207DDD47A439857E29B4FFEECFF81A3E65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ Garmin: TOPO Czech PRO v2.01 [Cz]
 magnet:?xt=urn:btih:32DFC86DBDCBF60BE7E802EC63066320BF8F91B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ Garmin: TopoActive Africa 2023 [En]
 magnet:?xt=urn:btih:84C64AC7A452580C0EA608519CC8273324C1B5D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ Anatomy Learning - 3D анатомический атлас включает в 
 ```bash
 magnet:?xt=urn:btih:D790F21E292D81C6A0C2A420B70F8F93845FBDD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ Muscle & Motion - Posture 2.2.08 premium [Ru/Multi]
 magnet:?xt=urn:btih:9977AB068AC34AFA69579237C32ABDE1E02402CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:9977AB068AC34AFA69579237C32ABDE1E02402CB
 ```bash
 magnet:?xt=urn:btih:9A20354067921F943C3618D7543ACCE0DD0F9680
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ magnet:?xt=urn:btih:9A20354067921F943C3618D7543ACCE0DD0F9680
 magnet:?xt=urn:btih:E77E692CB23046CBE54C339A78659D536604B890
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ AmiHear - Hearing Aid App 2.6 [Multi]
 ```bash
 magnet:?xt=urn:btih:8E37CF9D17B38DF70B0E6011D060CBA63655D49B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ EasyWay - проект представляющий собой интеракт�
 magnet:?xt=urn:btih:EBF0B5414116496D74E199F28DDFACDF7320E58C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ Always On Edge - отличный проект для персонализаци
 ```bash
 magnet:?xt=urn:btih:971B16FCC8D01BAA85F23CBBE638C7FFDB7C4B06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +373,8 @@ DiskDigger - приложение для восстановления удалё
 magnet:?xt=urn:btih:560F40D3F45B1A7CDA8F189530E6C7C464ED7749
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ Moviebase является самым мощным приложением для
 ```bash
 magnet:?xt=urn:btih:A2A400201180A1CBC73A04337ED8CC9BBF3BAA0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ PixelLab - отличный фоторедактор, в котором все �
 magnet:?xt=urn:btih:B50E6F0563617CE926B77412B2EA4BB2035F36A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ NOAA Weather by RainViewer (RainViewer: Метеорадары, ДМРЛ) 3.0.3 
 ```bash
 magnet:?xt=urn:btih:7C8BC5633B903381E0D81EC4BA1503487FF75A64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +477,8 @@ Dynamic Island - ещё один проект предлагающий поль�
 magnet:?xt=urn:btih:BBD50B965B83E7467FF86CEAD667D0EB996DEAA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +502,8 @@ TrackView - HomeSafe v3.8.12  [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:29140D9E790C43FD41ABCFBB5B1BD63A0553260E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +529,8 @@ X Icon Changer - отличный проект по персонализации
 magnet:?xt=urn:btih:ACD62D1E0E4CB4A8B5777A177FD8777C5D0F0C2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ MediBang Paint - одно из самых удобный и популярных
 ```bash
 magnet:?xt=urn:btih:3DE1D5CC48F71023038F294F218F210B9747DE4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +583,8 @@ SMD info v1.39 [Ru]
 magnet:?xt=urn:btih:85AC35914576E7BA282C639A4FC0E5FD0E42EBAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ Mivo - лучший инструмент для создания музыкал�
 magnet:?xt=urn:btih:8F80CDF22671F9D068E6A0D0355802180098DFBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ magnet:?xt=urn:btih:8F80CDF22671F9D068E6A0D0355802180098DFBE
 ```bash
 magnet:?xt=urn:btih:0076A44FCDE3DA994D33F4B2C16D9870D6F5C016
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +663,8 @@ Locus Map предназначена для пеших прогулок, кат�
 magnet:?xt=urn:btih:951F0F9E6CA92DC521EF882AB648F65332DF4AA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ Made - Редактор и коллаж - ещё один впечатляющи
 ```bash
 magnet:?xt=urn:btih:8DB42D38341EA0D34BDAA54DD8C5ED4D46FD9D15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

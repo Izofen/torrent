@@ -19,6 +19,8 @@ Skillbox, Дмитрий Шадрин, Арсений Павлов | Специ�
 magnet:?xt=urn:btih:4577C8E999C786E92FC9323992C58E3B56046310
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Product University, Анна Филина, Дмитрий Жечков, Алек
 ```bash
 magnet:?xt=urn:btih:A27C2855509247CFB7D7DFFE8147B041313F1894
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:A27C2855509247CFB7D7DFFE8147B041313F1894
 magnet:?xt=urn:btih:B67466FD020BDECF6A785768DC054CE2B853660A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Systems.Education | Конференция по проектированию п�
 ```bash
 magnet:?xt=urn:btih:9E5398494F8E90C886C96517E1BCDDA5B57D3A0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Master-Skills & Андрей Скидан | Программирование б�
 magnet:?xt=urn:btih:2840F2433AA5F6E4AF95190D8E32BD7BADE2262A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Merion Academy, Никита Буцев | Онлайн-курс по сетев�
 ```bash
 magnet:?xt=urn:btih:D7C3D680D638D5F76A0D097879F01D3C67F3AA17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:D7C3D680D638D5F76A0D097879F01D3C67F3AA17
 magnet:?xt=urn:btih:07FF5BD9FAACD69AFA128D533292F15EDF828A92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:07FF5BD9FAACD69AFA128D533292F15EDF828A92
 ```bash
 magnet:?xt=urn:btih:17ECC0C8E17312F16EABF9D245CA54B6DB7BA824
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ Infostart, Артур Аюханов, Александр Кунташов, Ва�
 magnet:?xt=urn:btih:602C264A10744EF472209766CA369C6273DFD79E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ Crypto Robotics | Криптовалюты - инструкция по прим�
 ```bash
 magnet:?xt=urn:btih:6B56C1125551F28EC57C7132F96B5D181556DF1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:6B56C1125551F28EC57C7132F96B5D181556DF1F
 magnet:?xt=urn:btih:E32A6A319E6CC3712829A97F09403A863B74F047
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ magnet:?xt=urn:btih:E32A6A319E6CC3712829A97F09403A863B74F047
 magnet:?xt=urn:btih:56CB21C78C90D8CCFDF736BA4867D6B862A4FCE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ OK English School, Елена Вогнистая | Видеокурс по уч�
 magnet:?xt=urn:btih:DBA1525D1B14BFD225E27261A5044B79EBA01541
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ magnet:?xt=urn:btih:DBA1525D1B14BFD225E27261A5044B79EBA01541
 ```bash
 magnet:?xt=urn:btih:C031C0C07C5B5CCFAAB0496BED24A6CC0986D1D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +408,8 @@ OK English School, Елена Вогнистая | Видеокурс Начин
 magnet:?xt=urn:btih:7B6D7088F2C9A89BB7ACC9F3D03E85A2DC1828AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +436,8 @@ magnet:?xt=urn:btih:7B6D7088F2C9A89BB7ACC9F3D03E85A2DC1828AF
 ```bash
 magnet:?xt=urn:btih:20B3409A2FEA5CDE71A6F4EAA18DA472CD4B79BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +466,8 @@ magnet:?xt=urn:btih:20B3409A2FEA5CDE71A6F4EAA18DA472CD4B79BC
 magnet:?xt=urn:btih:8A9F09C3669EDA0D8D0E7A24A31A042D50EBDCEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +495,8 @@ Skillbox, А. Гончаренко, А. Слуцкер, Н. Смерницкий
 magnet:?xt=urn:btih:48AFA41D14B7DF1C0652CFB2D34B8826AFBA38FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +522,8 @@ Deworker Pro, Дмитрий Елисеев | Стрим про безопасн
 ```bash
 magnet:?xt=urn:btih:26AF201A5F81C90BCDE58BDD6E0E08723AE1BC2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +551,8 @@ Grand Secret, Максим Волков, Виктория Жихарева, Ма
 magnet:?xt=urn:btih:18E75950BAC588CA40957F2208432F6FF3AAC421
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +578,8 @@ AngularJS удивительный фронтэнд фреймворк, кото
 magnet:?xt=urn:btih:3E804598309E3D2046A82EFE21F60A6A8098C112
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +604,8 @@ Digium | Обучение основам Asterisk / Asterisk Essentials Training
 magnet:?xt=urn:btih:4AF09B27377F944BAC113A06C0F4399A089BE031
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +629,8 @@ magnet:?xt=urn:btih:4AF09B27377F944BAC113A06C0F4399A089BE031
 ```bash
 magnet:?xt=urn:btih:F60E0670B3212813DC311A1535D16948D8158461
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +658,8 @@ JavaScript-разработка (   Читать дальше...   )Произ�
 magnet:?xt=urn:btih:38F1B121A66275B65B397C086EA8A9035C26EFAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +683,8 @@ CyberYozh Academy, Евгений Ивченков, Алексей Гришин 
 ```bash
 magnet:?xt=urn:btih:31277217B301576C1FE76DCCFC96EDC5A38681C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -661,6 +711,8 @@ FrontendConf | FrontendConf 2023 - Профессиональная конфер
 ```bash
 magnet:?xt=urn:btih:2E9474F1508490F6829DF243DC330B9B3B3739A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

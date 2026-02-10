@@ -22,6 +22,8 @@ VA - Ibiza Closing 2025 (Deep Strips Records) [FLAC|Lossless|WEB-DL|tracks] <Hou
 magnet:?xt=urn:btih:F4DD13B137FF0FAEAAF03FAE4FF3B0132DE38A8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:F4DD13B137FF0FAEAAF03FAE4FF3B0132DE38A8C
 magnet:?xt=urn:btih:751338840759F4CE57454473DDA588185DFB42DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:751338840759F4CE57454473DDA588185DFB42DF
 ```bash
 magnet:?xt=urn:btih:BFB498D05348FAC459DCE4AF95E91C70F3ED013C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ Late Night Alumni - Silver (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Dow
 magnet:?xt=urn:btih:44E429D7492DFB1BE5D617C6613EDB8B262C21FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ Dayseeker - Creature In The Black Night (2025) [FLAC 24/44.1|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:03852BEA8DAEEC3EA538FCD66B48491BB498A41D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:03852BEA8DAEEC3EA538FCD66B48491BB498A41D
 ```bash
 magnet:?xt=urn:btih:E083A96078B6C35B6EFEB4CD2686EB4ACCC1E8F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:E083A96078B6C35B6EFEB4CD2686EB4ACCC1E8F2
 magnet:?xt=urn:btih:BAC13B14E2DC057B53BF025EDD77669D9183C065
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ Windows 7 с интегрированным пакетом обновления 
 ```bash
 magnet:?xt=urn:btih:9CDBD2068D484618E8EA9D2A7BDAB7CEE1FC449A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ Opera 96.0.4693.31 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:C3DE1B819A90405B9660F70C82FA425C4D0F9785
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:C3DE1B819A90405B9660F70C82FA425C4D0F9785
 ```bash
 magnet:?xt=urn:btih:5EAC3EA1DD5E64A8C2504F3984D1C6ECB72EB447
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:5EAC3EA1DD5E64A8C2504F3984D1C6ECB72EB447
 magnet:?xt=urn:btih:BE181E1B624475E5CA2F9AB49235A42B4725F1AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ Topaz DeNoise AI 3.7.2 (x64) RePack (& Portable) by elchupacabra [En]
 ```bash
 magnet:?xt=urn:btih:C4D2F01399D585977815A4901BC38D34AAB62168
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ Adept - Blood Covenant (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore, 
 magnet:?xt=urn:btih:2FE18C62CD211005A94AA68C3246FD4A80D78E74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:2FE18C62CD211005A94AA68C3246FD4A80D78E74
 ```bash
 magnet:?xt=urn:btih:09FF4348C1CEDAB1506DF80405DF1FA8E2B3B1FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:09FF4348C1CEDAB1506DF80405DF1FA8E2B3B1FE
 magnet:?xt=urn:btih:5B53E5BA7B7A2D2A117159AEA2A7C694582D2AB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:5B53E5BA7B7A2D2A117159AEA2A7C694582D2AB8
 ```bash
 magnet:?xt=urn:btih:0542899C25DDC69697ED2863D22B7DAA49F96671
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ Sins of a Solar Empire: Rebellion (2012) [Ru/En] (1.98/dlc) License GOG [Ultimat
 magnet:?xt=urn:btih:3AB5BB61E96A75405AABA6A774E61CDCAD6BD2BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:3AB5BB61E96A75405AABA6A774E61CDCAD6BD2BA
 ```bash
 magnet:?xt=urn:btih:3E950D06EB783FA5A43C1908515E982BEBA9ED0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ magnet:?xt=urn:btih:3E950D06EB783FA5A43C1908515E982BEBA9ED0F
 magnet:?xt=urn:btih:6B4A46DDB6C1B021403F8BAB4F3B5AA0C3BD693A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ magnet:?xt=urn:btih:6B4A46DDB6C1B021403F8BAB4F3B5AA0C3BD693A
 ```bash
 magnet:?xt=urn:btih:61AAD3272C463228CBEE7C92D3EF9194C03BACDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +554,8 @@ magnet:?xt=urn:btih:61AAD3272C463228CBEE7C92D3EF9194C03BACDB
 magnet:?xt=urn:btih:5658003A994D9B16DB9D955CA6C6F3D0B49118B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ magnet:?xt=urn:btih:5658003A994D9B16DB9D955CA6C6F3D0B49118B4
 ```bash
 magnet:?xt=urn:btih:0574E9ABBE824E54887A9C5E615615B77C45D5E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ LibreOffice - офисный пакет с открытым исходным к�
 magnet:?xt=urn:btih:5C67FE87E85633BF3B9D58C2234FC82871C626C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ Bridge Constructor (2013) [Ru/Multi] (1.3-fix/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:537AF26D418F7D79A06181D915B58E9A3339896E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +659,8 @@ magnet:?xt=urn:btih:537AF26D418F7D79A06181D915B58E9A3339896E
 magnet:?xt=urn:btih:81E90090E4162449911E51748A14D130504308D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ magnet:?xt=urn:btih:81E90090E4162449911E51748A14D130504308D5
 ```bash
 magnet:?xt=urn:btih:53E45167977C399909B966B3C12444BE0DBC4088
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

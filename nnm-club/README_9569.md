@@ -22,6 +22,8 @@ Lisa Ekdahl - More of the Good (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 magnet:?xt=urn:btih:E1E1353886BCC4A1FEBE326F0E2B439BF5E1216D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:E1E1353886BCC4A1FEBE326F0E2B439BF5E1216D
 ```bash
 magnet:?xt=urn:btih:142B4583F1208E2DE522012D9172236311D6FF44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - Record Super Chart 561 (2018) [MP3|320 Kbps] <House, Club, Dance>
 magnet:?xt=urn:btih:2670A6EAE1FAAF9FCB4B84D4AF8BAAFA2853EB88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:2670A6EAE1FAAF9FCB4B84D4AF8BAAFA2853EB88
 ```bash
 magnet:?xt=urn:btih:B26E72E38C511EC9CFC9FDE69E4A58C0D0B7C2CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:B26E72E38C511EC9CFC9FDE69E4A58C0D0B7C2CD
 magnet:?xt=urn:btih:3221320B7AEEB8E4388F854F0583577220F76D22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:3221320B7AEEB8E4388F854F0583577220F76D22
 ```bash
 magnet:?xt=urn:btih:815CD8EB780950A7732A5A697948B9A721544D12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:815CD8EB780950A7732A5A697948B9A721544D12
 magnet:?xt=urn:btih:8976B6931C07F7C7A52D3421A27D32CD7F1B51A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:8976B6931C07F7C7A52D3421A27D32CD7F1B51A6
 ```bash
 magnet:?xt=urn:btih:531C4067BF420A14028817DC0AA16176EA8F311A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ Al Stewart - Orange / Past, Present & Future / Modern Times (2004) 2CD Set [FLAC
 magnet:?xt=urn:btih:33F9EC243B848CCDA7EAD6B3E78C6EAC94FFFAB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ VA - DJ Hitparade Jubiläeumsedition: 40 Größe Hits Aus 10 Jahren (2018) [MP3|
 magnet:?xt=urn:btih:9A54C367A68447F517E1132BD4671B9EA73C0E59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:9A54C367A68447F517E1132BD4671B9EA73C0E59
 ```bash
 magnet:?xt=urn:btih:DD49CAF532E69D988963737F2BD082E0C7BBEC61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ Metamorphosis - Nobody Cares (2003) [FLAC|image+.cue]<Neo-Progressive Rock>
 magnet:?xt=urn:btih:D334E5F862B696ABE5CBD103AF59D3FFE7E7C5C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ magnet:?xt=urn:btih:D334E5F862B696ABE5CBD103AF59D3FFE7E7C5C8
 ```bash
 magnet:?xt=urn:btih:19959531F404318919667E2114E9D7B11122C7F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:19959531F404318919667E2114E9D7B11122C7F2
 magnet:?xt=urn:btih:C88C5CB7D4B3DADC41A1FDC949CFFF5414586FF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:C88C5CB7D4B3DADC41A1FDC949CFFF5414586FF0
 magnet:?xt=urn:btih:25C83806EC2EB55A64311C7814BD229B6874C9BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:25C83806EC2EB55A64311C7814BD229B6874C9BD
 ```bash
 magnet:?xt=urn:btih:95F045F6381E5861715D291EC3EC1C6552A6AC5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +456,8 @@ magnet:?xt=urn:btih:95F045F6381E5861715D291EC3EC1C6552A6AC5E
 magnet:?xt=urn:btih:21F5EDD5A83CEBAD1CCDDB0642FBE8E83D1C5383
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ Konrad Plaickner & His Orchestra - Atlantic Crossing (1981) LP [MP3|320 Kbps] <S
 ```bash
 magnet:?xt=urn:btih:AE9B5CCF70D801733607AB9BA957C36774A5F249
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +514,8 @@ VA - Extra Lounge (episode 13) (2015) [MP3|320 кб/с]<Lounge, Chill Out>
 magnet:?xt=urn:btih:37D6AACAE60D736B995E95EA976A36C0C9E9EEAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:37D6AACAE60D736B995E95EA976A36C0C9E9EEAD
 ```bash
 magnet:?xt=urn:btih:21EBB13547D16D2F56F6181C28A7CF0BC9DC3F91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +569,8 @@ Coco Favre - Introducing Coco Favre (2014) Self-Released [FLAC|Lossless|tracks +
 magnet:?xt=urn:btih:5CD015F93FCB47B69C4452DE75AEB439FFA20C7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +598,8 @@ Michel Colombier - Michel Colombier (1979) 1999, Anthology's [FLAC|Lossless|trac
 magnet:?xt=urn:btih:BD9FB0FD0EB2ED4A8812D960D8E739E08B42C793
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +623,8 @@ magnet:?xt=urn:btih:BD9FB0FD0EB2ED4A8812D960D8E739E08B42C793
 ```bash
 magnet:?xt=urn:btih:2CEF610A2F8760B3FF8769E499B740731A7C7D34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +653,8 @@ Gene Ammons - Blue Gene (1958) 2003, Original Jazz Classics [FLAC|Lossless|image
 magnet:?xt=urn:btih:D00E959855100AD7EF169517FB9B17CFED8B46CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +682,8 @@ Amatris - Imprisoned (2007) [FLAC|Lossless|image + .cue] <Gothic Metal>
 magnet:?xt=urn:btih:8D575DDFA408A455145E18839E93CE3E5D7E15BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +707,8 @@ magnet:?xt=urn:btih:8D575DDFA408A455145E18839E93CE3E5D7E15BB
 ```bash
 magnet:?xt=urn:btih:27602BD944F3710B246CE0E74F9AA40240B58EFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

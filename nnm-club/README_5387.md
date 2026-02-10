@@ -21,6 +21,8 @@ Danil K, Данил Куширмский | Сборник курсов по ли
 magnet:?xt=urn:btih:08B423757DAAB793A3A387B25C374C4A826EE767
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:08B423757DAAB793A3A387B25C374C4A826EE767
 ```bash
 magnet:?xt=urn:btih:250DD2951434ABC255166C1FBB2FD7E84FAAAEDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:250DD2951434ABC255166C1FBB2FD7E84FAAAEDB
 ```bash
 magnet:?xt=urn:btih:D2153E4263F998B3DB73B299929B4ED5BE7B5947
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Erroll Garner - 1945-1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 magnet:?xt=urn:btih:D4E64CA6CAB94296E5061A2CF6C6D1F7D075EB60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:D4E64CA6CAB94296E5061A2CF6C6D1F7D075EB60
 ```bash
 magnet:?xt=urn:btih:FA4FFF26FE7644FB1F0D7237169EB54956EF678E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ kobezzza.channel, Андрей Кобец | Интенсив "TYPESCRIPT" (2022)
 magnet:?xt=urn:btih:93471B3B277B5F00B8849408E387AECE4E096064
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:93471B3B277B5F00B8849408E387AECE4E096064
 magnet:?xt=urn:btih:CEBCC7BF51FBA90AA63D992E94C739958281D8BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ VMware Fusion: удобная и мощная виртуальная машин�
 ```bash
 magnet:?xt=urn:btih:83764484B64360857D38DC55000A227B2A87464F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ Dokken - Heaven Comes Down (2023) [FLAC|Lossless|image + .cue] <Heavy Metal, Har
 magnet:?xt=urn:btih:0AC29D2F9A1605BDD43DFAFB8149BA1CA3EACC71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ VA - Nature Lovers (2021) [AAC|~294 Kbps] <Lounge, Chill Out, Downtempo>
 magnet:?xt=urn:btih:7D0FABF4DA29BE1AD6E8123AE22B7547876DC83B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:7D0FABF4DA29BE1AD6E8123AE22B7547876DC83B
 ```bash
 magnet:?xt=urn:btih:073845F01AECC2AFCE6BA0E8751B75842C29D6D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:073845F01AECC2AFCE6BA0E8751B75842C29D6D9
 magnet:?xt=urn:btih:15E6BB8212D0DB355C28B9ECA29400B277A47ABF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:15E6BB8212D0DB355C28B9ECA29400B277A47ABF
 ```bash
 magnet:?xt=urn:btih:EC780A275902454BDCE4A65777C3A185737A3DD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ Django Reinhardt - BD Jazz, Vol.2 (1937 - 1953) 2CD, 2006, Nocturne [FLAC|Lossle
 magnet:?xt=urn:btih:A505E6DD4A8A01FB12507203A74A119BE4DB3E5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:A505E6DD4A8A01FB12507203A74A119BE4DB3E5D
 ```bash
 magnet:?xt=urn:btih:C22A4C23BCA43A85E01EF086BA18CA06281C6699
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:C22A4C23BCA43A85E01EF086BA18CA06281C6699
 magnet:?xt=urn:btih:3A829700102589C6ACF8A65D6B71AC9F080CDC48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:3A829700102589C6ACF8A65D6B71AC9F080CDC48
 ```bash
 magnet:?xt=urn:btih:E68715C17A5FD7EA2210932017651DEE8E2FA6C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:E68715C17A5FD7EA2210932017651DEE8E2FA6C5
 magnet:?xt=urn:btih:135FA4746F253B86AFCF652D785580DEF6735AA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:135FA4746F253B86AFCF652D785580DEF6735AA4
 ```bash
 magnet:?xt=urn:btih:652323CA8F705A2C54CAAA636DAC4121BA2EA437
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ magnet:?xt=urn:btih:652323CA8F705A2C54CAAA636DAC4121BA2EA437
 magnet:?xt=urn:btih:E908C8F0BB4D6A280E7D8C085203D38E66997F16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ Halo Infinite (2021) [Ru/Multi] (6.10020.17952.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:B38C963A663F2F8D405E696580C427335292D0FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:B38C963A663F2F8D405E696580C427335292D0FE
 magnet:?xt=urn:btih:82D7A82D10A0D153C6104131C65D22BADB3F08ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ AIDA64 - является мощным средством для идентиф�
 ```bash
 magnet:?xt=urn:btih:6084C11E1472D49B5BE53EB1ED02A2A6A33A613E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +638,8 @@ magnet:?xt=urn:btih:6084C11E1472D49B5BE53EB1ED02A2A6A33A613E
 magnet:?xt=urn:btih:54AC6ED6A508E167F9CB415341E99889EF9531E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ Blasphemous (2019) [Ru/Muilti] (4.0.67/dlc) License GOG [Digital Deluxe Edition]
 magnet:?xt=urn:btih:76ADA5E74CD9ACE5E1D81144ED5823C92B371159
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ magnet:?xt=urn:btih:76ADA5E74CD9ACE5E1D81144ED5823C92B371159
 ```bash
 magnet:?xt=urn:btih:6734B82C6055A5A6909AED1D3006A93E90074B4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

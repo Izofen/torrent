@@ -23,6 +23,8 @@ Absolute Dance - более 23 лет является ведущим бренд
 magnet:?xt=urn:btih:6D6A5D019EF713B8CB4D257D5D60354C8A9B0A27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ CD01:
 ```bash
 magnet:?xt=urn:btih:38A5984F58788898A34186C78BD20BED16425751
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -77,6 +81,8 @@ VA - Playlist of Christmas Songs (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Acou
 magnet:?xt=urn:btih:8D44AE77A69DF6A0237611951286C1583F73CA12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ CD01:
 ```bash
 magnet:?xt=urn:btih:0179042CCA999C54E006516130B6CB2A89AECFC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -131,6 +139,8 @@ CD1:
 magnet:?xt=urn:btih:79FF1588EEC211910776A410E874175A6F38BB82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ Loleatta Holloway - Love Sensation (1980) Charly Records, Reissue 1995 [MP3|320 
 ```bash
 magnet:?xt=urn:btih:19C27F18F9E2C8BB5585515187039BF63EB56FA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -185,6 +197,8 @@ David Boydell - City Music (1978) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disc
 magnet:?xt=urn:btih:F047F8D0D55E217D48B2373605129620371EBBC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ Modern Talking - Die Erfolgreichsten Hits (Remastered) (2016) [MP3|320 Kbps] <Eu
 ```bash
 magnet:?xt=urn:btih:457AB0245954CF867B713260DF237E7E4807014A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +255,8 @@ magnet:?xt=urn:btih:457AB0245954CF867B713260DF237E7E4807014A
 magnet:?xt=urn:btih:C5ED7258E70D8CEB8C7448146E5D2F4A617176BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +284,8 @@ Sade - The Remix Deluxe (1992) Special Edition [FLAC|Lossless|image + .cue] <Pop
 magnet:?xt=urn:btih:E4BFAC6004B2027929B795B064657375E306746B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +312,8 @@ magnet:?xt=urn:btih:E4BFAC6004B2027929B795B064657375E306746B
 ```bash
 magnet:?xt=urn:btih:092EDB73E611BA1533DC8D35B3EDE8A9DEB72EC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +348,8 @@ Falco - Out Of The Dark (Into The Light) (1998) [MP3|320 kbps]<Pop/Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +376,8 @@ VA – Мамина пластинка 2. Лучшие хиты 70х-80х (2003)
 ```bash
 magnet:?xt=urn:btih:CC9294C30F71A7134B88D470A432F74331D80445
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +406,8 @@ Robbie Williams - Under the Radar, Vol. 2 (2017) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:4CEC0BC116A6E11FC4C430FF8D020326F6DFE58B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +433,8 @@ Cоветская певица, более всего известная как 
 ```bash
 magnet:?xt=urn:btih:A9C49852DC45D7D3419B447574CAEE7818239E40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +463,8 @@ VA - Русский хит 2003 (2002) [FLAC|Lossless|tracks + .cue]<Pop, Dance>
 magnet:?xt=urn:btih:21540E18AAC10E215FD634AFE99E8CA8E39928BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +491,8 @@ Rendezvous - Rock And Roll Disco Boogie (1979) LP [MP3|320 Kbps] <Electronic, Fu
 ```bash
 magnet:?xt=urn:btih:D72F65A72D5CAC2BEE1A7AAC97D4442C38003E12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +521,8 @@ magnet:?xt=urn:btih:D72F65A72D5CAC2BEE1A7AAC97D4442C38003E12
 magnet:?xt=urn:btih:3C63EFC2626BBD091CA282A028D20191B125F184
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +549,8 @@ magnet:?xt=urn:btih:3C63EFC2626BBD091CA282A028D20191B125F184
 ```bash
 magnet:?xt=urn:btih:E8AD00E56BE82F740B3ACB4A981E7A7D044C7BDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +579,8 @@ CD01:
 magnet:?xt=urn:btih:9E42321BF648EC7BB2847B3B6785E436BB255315
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +608,8 @@ LP - Lost On You (2016) [MP3|320 Kbps] <Alternative Rock, Indie Pop>
 magnet:?xt=urn:btih:EAF3AE94D68D5A0877E43066B4464FFABBC3BB13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +636,8 @@ magnet:?xt=urn:btih:EAF3AE94D68D5A0877E43066B4464FFABBC3BB13
 ```bash
 magnet:?xt=urn:btih:B61A6E7187C211A066118888D939DFF8F3A06CB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +672,8 @@ magnet:?xt=urn:btih:B61A6E7187C211A066118888D939DFF8F3A06CB8
 magnet:?xt=urn:btih:AA7549A4A70751B3779C635EAE16E64031BCE1B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +700,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:812FB3AD80F1F0F1E43E2D1A855ABF1982E531D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -682,6 +730,8 @@ Fern Kinney - Groove Me (1979) Remastered, Big Break Records, 2013 [MP3|320 Kbps
 magnet:?xt=urn:btih:41FFB0F58C274A78E8441F8506DF3797F544880A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -708,6 +758,8 @@ VA - Glitterbox: For Your Disco Pleasure (2016) (2016) [MP3|320 Kbps] <Disco, Nu
 ```bash
 magnet:?xt=urn:btih:DDB88E9838D74966A4A897AA78DECCE8C8AF6E14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

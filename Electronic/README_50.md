@@ -22,6 +22,8 @@ VA - Ablazing Autumn Sessions 2025 (2025) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:89D93630E8EA062B490B43049A8CCB8E44F013DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Ori Uplift - Uplifting Only Episode 660 (2025) [MP3|320 Kbps] <Trance, Upli
 ```bash
 magnet:?xt=urn:btih:2F58F3CCA4EBDA975B5264F91F6FA839D434DFAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -81,6 +85,8 @@ Indra - Old Skool (2011) [MP3|320 kbps]<Psychedelic / Full On>
 magnet:?xt=urn:btih:5F982C5266914908083183BB8AA16514C4FFB6D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -111,6 +117,8 @@ Sanathana - Saraswati (2012) [MP3|192-320 kbps]<Psychedelic / PsyAmbient, Electr
 ```bash
 magnet:?xt=urn:btih:4D54CD38EDF12F71D8C065AFA68683E403D25D67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +153,8 @@ VA - Psychology Vol.3 (2012) [MP3|320 kbps]<Psychedelic / Ambient, Psy Chill>
 magnet:?xt=urn:btih:20EFC983498F7E72FA4968BCC5ECD551FAE0A697
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +187,8 @@ Twenty 4 Seven - The Reason (2012) [MP3|320 kbps]<House>
 ```bash
 magnet:?xt=urn:btih:CCB8B3C5EE06C68999E8667AF1F5941816EDC86B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +223,8 @@ Nina Kraviz - Nina Kraviz (2012) [MP3|320 кб/с]<Deep House, Tech House>
 magnet:?xt=urn:btih:F2A22D47BDF8629BF86C054B065806A59CD06E85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +257,8 @@ VA - MAYDAY (2011) [FLAC|Lossless]<Progressive House>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +293,8 @@ VA - Clubbin 2012 Vol. 1 (2012) [MP3|~224 кб/с ]<House>
 magnet:?xt=urn:btih:681803F08310128FB01E507FAD0C355E4936311D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +327,8 @@ AFFKT - Punto 0 (2012) [MP3|320 кб/с]<Minimal,Tech House,Deep House>
 ```bash
 magnet:?xt=urn:btih:E597C66839AA0E9D031D80E72769FDEE8D05928C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +363,8 @@ DJ Ger - Man / The Nonexistent World (tracks + mix) (2012) [MP3|320 кб/с]<Psy
 magnet:?xt=urn:btih:B76CB536F750CD70B16F9850007666043ECF71AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +398,8 @@ VA - Swedish House Album (2012) [MP3|~245 кб/с (V0)]<House>
 magnet:?xt=urn:btih:1513E762128A87881843EF7A86CA77F660D7C372
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +426,8 @@ VA - Nothing But... Trancetopia, Vol. 30 (2025) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:C92F564516B5C80766BCD09FCCB1A4CDEA5F43EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +456,8 @@ Lane 8 - Fall 2025 Mixtape (2025-09-24) [MP3|320 Kbps] <Progressive House, Melod
 magnet:?xt=urn:btih:E4CA1BF13F5D472876BCF9AFA987D84C753E515E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +484,8 @@ Markus Schulz - Global DJ Broadcast World Tour: In Search Of Sunrise, Eden Ibiza
 ```bash
 magnet:?xt=urn:btih:2E3E262FF8E66E4C0E9044555CC4B51BB8192FCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +520,8 @@ Morgan Page - In The Air (2012) [MP3|320 кб/с]<Progressive House>
 magnet:?xt=urn:btih:71633CCDA35D3D6AD75874080557ECB2E9E95154
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +553,8 @@ Black Box - Dreamland (1990) [APE|Lossless]<Euro House>
 ```bash
 magnet:?xt=urn:btih:80CA9BC7EADCD91128BF782FFBB8784ADA26E9A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +589,8 @@ Andreas Vollenweider - Air (2009) [MP3|320 кб/с]<Electronic, New Age, Ambient
 magnet:?xt=urn:btih:AC0E4163BBC2D493F6E7EDA21DDA4A574542D0E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +614,8 @@ VA - Spa Sounds Premium (2012) [MP3|320 кб/с]<Chillout, Relax>
 ```bash
 magnet:?xt=urn:btih:F795E51696B47B31DE0E3B584731BDDDF2982632
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +650,8 @@ Cd 12012Жанр: Club, DanceПродолжительность: 01:12:30
 magnet:?xt=urn:btih:8C07BE4EBAC7CDA6F5C1DEA5F14053B42F902D2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +685,8 @@ VA - Dancefloor Matrix 2012 (2012) [MP3|320 кб/с]<Club, House, Dance, Trance>
 magnet:?xt=urn:btih:DDBDEAE19F64A1A586C5FF15D0E3157CE52E056C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -671,6 +713,8 @@ VA - 11 Years SA - Best Of 2024 (Club Edition) (2024) [MP3|320 Kbps] <Trance, Pr
 ```bash
 magnet:?xt=urn:btih:7E3AEE89DB56FE678B94F9D1456C01AE72CEB3B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -699,6 +743,8 @@ VA - Top Emotional Trance 2024 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 magnet:?xt=urn:btih:B0F57D913B82A54FD191E74E2E28B3358341D90A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -725,6 +771,8 @@ Karl Bartos (ex-Kraftwerk) - Communication (Limited Edition) (2003) [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:DFC3BA217755FF2E2530C352C83A688EB7981121
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -753,6 +801,8 @@ VA - The Best Releases 2024 Of Sounds Of The Stars (2024) [MP3|320 Kbps] <Trance
 magnet:?xt=urn:btih:03CDA94C2DEB5D6E0A2EF38C008F3A452D738CFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -779,6 +829,8 @@ V.A. - Music For Dreams, Best Of 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Loun
 ```bash
 magnet:?xt=urn:btih:373B47AB8239D470137B9C9A7971D9353CCD372F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

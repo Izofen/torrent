@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5B491394A1CD936C7BA1C9362097FEEB85D8E053
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Kijin Gentoushou | Sword of the Demon Hunter | Хроники людей и де
 ```bash
 magnet:?xt=urn:btih:5AB516DDB52E3590F683713DDAB134BB780DE251
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Victoria 3 - прямой сиквел одноименной игры, где �
 magnet:?xt=urn:btih:54DAB561192E7BE4D84EEDB338B233770A7E4FA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (179243/dlc) Repack Wanterlude [Delux
 ```bash
 magnet:?xt=urn:btih:897916AF527D2FE9A6DA99DD9060FB02738397CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28650) Repack Wanterlude
 magnet:?xt=urn:btih:132B52353CBC217E5F40526E7C7599A258A1DA27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:132B52353CBC217E5F40526E7C7599A258A1DA27
 ```bash
 magnet:?xt=urn:btih:FFD437CC16EBAD6FA1999F4137D377DF212A8A90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Volan - Конец (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <melodic-hardcore,
 magnet:?xt=urn:btih:80CFB356F560C2D1F35F7BBF5227DC32588F72E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Chaoseum - Life 4 Sale (2025) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Nu-Metal
 ```bash
 magnet:?xt=urn:btih:061F0E22C298BDB918094ADE9437B010575F49FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ Laura Cantrell - Just Like A Rose: The Anniversary Sessions (2023) [FLAC|Lossles
 magnet:?xt=urn:btih:A21EE4241419458AF111BAD53BB55F46E131770E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ Hank Mobley - Three Classic Albums Plus (1956) 2CD, 2016, Avid Jazz [FLAC|Lossle
 magnet:?xt=urn:btih:2FCDBA56FDC348DD3310A62ED993CB6588BCDBC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:2FCDBA56FDC348DD3310A62ED993CB6588BCDBC0
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ Sammy Hagar - Voice Of Rock - Compilation (1973-2025) [MP3|320 Kbps] <Hard rock,
 magnet:?xt=urn:btih:756CCAFD9317E53AE7AF3A372FD0E0612EE8A111
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ magnet:?xt=urn:btih:756CCAFD9317E53AE7AF3A372FD0E0612EE8A111
 magnet:?xt=urn:btih:479F76679173C506A1C63D9926B9B30A07A573AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ DRAGON BALL: Sparking! ZERO - продолжение легендарной се
 ```bash
 magnet:?xt=urn:btih:5AFE93E0CDDCF80925BF45B3320CACBA7D8B50BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:5AFE93E0CDDCF80925BF45B3320CACBA7D8B50BE
 magnet:?xt=urn:btih:BE429EB19AE0FAED337943CB92246C5001292EE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:BE429EB19AE0FAED337943CB92246C5001292EE2
 ```bash
 magnet:?xt=urn:btih:21518CAE77F365254E7B1C776EA7BE845CC13649
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:21518CAE77F365254E7B1C776EA7BE845CC13649
 magnet:?xt=urn:btih:692D7DBA6004ED8BFECD236C0EC553E80C8F7617
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ magnet:?xt=urn:btih:692D7DBA6004ED8BFECD236C0EC553E80C8F7617
 ```bash
 magnet:?xt=urn:btih:78D99BF4C39185B7C905DCAAFB19BCB812AD6978
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +508,8 @@ Nancy - 4 Releases (2018-2021) Digital release [FLAC|Lossless|WEB-DL|tracks] <Al
 magnet:?xt=urn:btih:CD4BC0434946EB895D92FC105DFD279CDC5A9F58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ magnet:?xt=urn:btih:CD4BC0434946EB895D92FC105DFD279CDC5A9F58
 magnet:?xt=urn:btih:0E5303FFB3F1F064207724B97FEAA24E0E804BE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ Glora Pro — это новая глава в истории Glora, тщател
 ```bash
 magnet:?xt=urn:btih:BF73B0058D02437239A4AB8F647C63B6CF2A40BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +589,8 @@ VA - Uplifting Only Top 15: September 2025 (Extended Mixes) (2025) [MP3|320 Kbps
 magnet:?xt=urn:btih:FA2B645A55B4DBE47435A954ACAA831057C091C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ Malvera — изысканный шрифт с вариативными засе
 ```bash
 magnet:?xt=urn:btih:A7F6BC99605FB36CC003759AE8EAB79BBE250CE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +646,8 @@ VA - Deep Currents (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 magnet:?xt=urn:btih:E2B0B635ADC8120A22FF9698F35DF16A2EA743DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ Niikto - Nocturnal Emissions II (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Dark
 magnet:?xt=urn:btih:3EB50026649121A908B4B2478052740D452CAA2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ A4 Sunshine After The Rain(   Читать дальше...   )Жанр: Pop Rock
 ```bash
 magnet:?xt=urn:btih:EC71F4018CF52BD899E1A139848C763DECBB3B0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

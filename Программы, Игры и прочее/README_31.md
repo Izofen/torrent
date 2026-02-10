@@ -19,6 +19,8 @@ Astrological Charts / Астрологические Карты Pro v11.0 [Ru/Mu
 magnet:?xt=urn:btih:08B440B56FB58695712BD2B4D85559BD97108A0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Photo Sherlock v1.119 Mod by Mixroot  [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9D2952A725F4250FC1403454B28D392EB415B3E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ IPTV# (ex. LazyIPTVDeluxe) v3.09 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:728D58184EF4B7ECAB9BADA10C8B1BA606FA21E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ WPS Office - очень полезное, офисное приложение д
 magnet:?xt=urn:btih:A66A706C1C85436F0769860D22EE616D37431FDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ jetAudio это музыкальный проигрыватель с 10/20 по�
 ```bash
 magnet:?xt=urn:btih:999108D7C584597F22C26EF54ACD1E13F35943C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:C3C3C04088E53152042731760E169E90CA35C00D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ SnapEdit — одно из лучших приложений для редакт
 ```bash
 magnet:?xt=urn:btih:0B9E56C5D37CE3EEE3443A4C0A62E0DD7B330834
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Listonic / Список покупок v8.10.1 Mod by NURIK kz [Ru/Multi]
 magnet:?xt=urn:btih:B0125F672DB001A112DBFF8C1E0D455149D739B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Mock Locations позволяет подделать данные о распо�
 ```bash
 magnet:?xt=urn:btih:7A7AA790DBE5EEF25429342385F5712AEB290901
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ ES File Explorer (File Manager) — это полнофункциональны�
 magnet:?xt=urn:btih:609EA081223C725C3F9180A1083FB1E16805F783
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ OfficeSuite Pro + PDF - это полнофункциональный офисн
 ```bash
 magnet:?xt=urn:btih:F323BE1BB5E7B3321CFFCE1F799A4670DD0A3167
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Phrasebook - Learn Languages / Разговорник v19.0.1 Mod by Balatan [Ru
 magnet:?xt=urn:btih:564620931172B56B7CE779CED18E12BD2A6B9A46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ DailyArt - Daily Dose of Art v3.3.0 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:F95218BCF63400171F9DD85D1271CBAFE56F9AF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:F95218BCF63400171F9DD85D1271CBAFE56F9AF8
 ```bash
 magnet:?xt=urn:btih:ED5C8D619C7889ED5FA21C7A12C446DD7B1831E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:ED5C8D619C7889ED5FA21C7A12C446DD7B1831E9
 magnet:?xt=urn:btih:252C4B627F9641E8870AA323CA1ED23643B0E9C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:252C4B627F9641E8870AA323CA1ED23643B0E9C2
 ```bash
 magnet:?xt=urn:btih:F0E2269E440AC6BB0ED2457CA873CDF7BFA27C22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Reface: Face Swap AI Generator v4.17.0 Mod by Mixroot [Multi]
 magnet:?xt=urn:btih:B7541D6F917FF000307149D92C78BAD9784DFB6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ EOBD Facile - автосканер обд2 последнего поколени
 ```bash
 magnet:?xt=urn:btih:B097E2ABA0A99D54FC6230C7F4216BD7320F0894
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:988A6AF02F72DDD4B84D29397546DC36FB8F170B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ NewPipe v0.27.2 Free + Mod by Alex.Strannik  [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:DCC50F8D9B1ACF669BC427B26BAF190312B9B627
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:DCC50F8D9B1ACF669BC427B26BAF190312B9B627
 magnet:?xt=urn:btih:34F43AF2311AAC0B29905796467D93ED7E01F233
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ DoFoto, профессиональный фоторедактор с искус�
 magnet:?xt=urn:btih:21E842BFE05A9BD1CF833E1C0F94A850488D00F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ Screenshot Touch – это удобное и простое приложени�
 ```bash
 magnet:?xt=urn:btih:01E7825E3F7E1926BAD9ABC6DF57A4B33CCA782D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ Gif Me! – это лучший способ сделать из коротко�
 magnet:?xt=urn:btih:DB6DCE2E9F2EB792DE8EE1E5A7621DF836137A1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Bikemap: велотрекер и маршруты v20.7.0 Mod by AppModz [Ru/Mul
 magnet:?xt=urn:btih:8A6CD1412BEF5867203A6597558087FBC4A7F232
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Wood Block Puzzle – классическая игра-головоломка �
 ```bash
 magnet:?xt=urn:btih:4E695717F4A0CFBDFEB9CA152227091F99B6E98E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Project Downfall (2022) [Ru/Multi] (1.0.6.2) License GOG
 magnet:?xt=urn:btih:776FD47166F1E7F2009FB69DB49CB7FE2F19415E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Slormancer - эпическая двухмерная экшен-RPG с ис�
 ```bash
 magnet:?xt=urn:btih:5C3CE3379BB2E51FCBB9442B7A657206484D9CE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Kao the Kangaroo (2022) [Ru/Multi] (Build 11272397/dlc) Repack Let'sРlay [Anniv
 magnet:?xt=urn:btih:D45D0729912C06CCE2AFBBE6F9E2147D5E4E744D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Lost in Random: The Eternal Die объединила динамичный экш
 ```bash
 magnet:?xt=urn:btih:7AA6C220C8DA0289C2ECAEDBD5CB9B44E449E9C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Uplink OS (2021) [Ru] (21.04) Mod/Русификатор kesha4
 magnet:?xt=urn:btih:E90D2B8FE710AEAA746844590DF6F0E83BA30591
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ BROK the InvestiGator (2022) [Ru/Multi] (1.5.3/dlc) Repack Let'sРlay [Deluxe Ed
 ```bash
 magnet:?xt=urn:btih:D80E9B4663D472151823D2BA95B30FD27E44F6B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Echoes of the End - кинематографичный приключенчес�
 magnet:?xt=urn:btih:6213031949708B61FD6B63EC6540D56E7296F887
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Kulebra and the Souls of Limbo (2025) [Multi] (1.1.5) License GOG
 ```bash
 magnet:?xt=urn:btih:C72D87B63C9D602B6964BB3EA32B2F3181C30403
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Abyssus (2025) [Ru/Multi] (1.0.1.50519/dlc) Repack FitGirl
 magnet:?xt=urn:btih:4C1DA9E100395369776B2FAFC2C35044BCBDA8B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Echoes of the End - кинематографичный приключенчес�
 ```bash
 magnet:?xt=urn:btih:31000C6C44C94D4E125F2332AF4AFA0E930142B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Kebab Chefs! - Restaurant Simulator (2024) [Ru/Multi] (0.5) Repack Pioneer [Earl
 magnet:?xt=urn:btih:CF5630FD01809B22047AA5FD96ED651A7BBEAA1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ The Scouring - это стратегия в реальном времени, в 
 ```bash
 magnet:?xt=urn:btih:4312A8095A31DAE73C376118BBEF19D3838F56E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Warhammer 40,000: Space Marine (2025) [Multi] (4326/dlc) License GOG [Master Cra
 magnet:?xt=urn:btih:310685DF455985E1265C0103C6789C244EB7DEFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Cabernet - ролевая 2D-игра в антураже Восточной Е�
 ```bash
 magnet:?xt=urn:btih:1FC97676327EB19B5C8458A2ED060D741C50B888
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Chains of Freedom (2025) [Ru/Multi] (1.0.3) Repack Let'sРlay
 magnet:?xt=urn:btih:02256A22E41550A0AF599F1A510A721E40303DA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Age of Wonders 4 - пошаговая стратегия с тактически
 ```bash
 magnet:?xt=urn:btih:6B4C712800FBAC03F07222F5688DF419E5511BB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Shields of Loyalty - это пошаговая стратегия в мире т
 magnet:?xt=urn:btih:D27D5E6B96B9548F349EEEF60BB25B68B9CDAEE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Terra Nil – градостроительный симулятор-песочн
 ```bash
 magnet:?xt=urn:btih:BF57787063347E63FA41C9BA34E69A0FB73AC5DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Shields of Loyalty - это пошаговая стратегия в мире т
 magnet:?xt=urn:btih:D0D1EF058C13597D1D7CA6320DC2A4E1C8DFAEBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Age of Wonders 4 - пошаговая стратегия с тактически
 ```bash
 magnet:?xt=urn:btih:A7F007022DC9C2E4A91EC8FF18ED7D13F115BDD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Shields of Loyalty - это пошаговая стратегия в мире т
 magnet:?xt=urn:btih:9364FF40F7D542FE78762011BC533B91E813E06F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Boti: Byteland Overclocked (2023) [Ru/Multi] (1.15/dlc) Repack Let'sРlay [Delux
 ```bash
 magnet:?xt=urn:btih:9E08C0F737C0F813A63350E7937F33BB2E64D08A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Rise Of The White Sun (2023) [Multi] (1.86) Scene Tenoke
 magnet:?xt=urn:btih:7DA5434BE55857C5368CAF82756559739D622DA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ TRON: Catalyst - новый изометрический приключенче�
 ```bash
 magnet:?xt=urn:btih:72D1504B4E27B4209598528B268910C1173652D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Shields of Loyalty - это пошаговая стратегия в мире т
 magnet:?xt=urn:btih:B8F577578499571DDBEEF6C8A6F920FCB84DDC82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Abyssus (2025) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:7188813DDEDCA6AA6E9E8951D0EED0242D32395B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

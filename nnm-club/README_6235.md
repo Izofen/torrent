@@ -19,6 +19,8 @@ Universal USB Installer – портативная программа для с�
 magnet:?xt=urn:btih:5EFAFD95942CCAA1AFD34309D00462A1241D185A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ IceCream Ebook Reader Pro 6.35 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8A4B8EDAB6AA621FF0EF0C726272D7F5CDDD21D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:8A4B8EDAB6AA621FF0EF0C726272D7F5CDDD21D7
 magnet:?xt=urn:btih:E285EE2CF956FD11014A66F8A659D3FC2D73529B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:E285EE2CF956FD11014A66F8A659D3FC2D73529B
 ```bash
 magnet:?xt=urn:btih:5DEB62A31100FAC440D4EEDDD58EB2216560D92D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:5DEB62A31100FAC440D4EEDDD58EB2216560D92D
 magnet:?xt=urn:btih:70B155E673235A61652EC0F3109E2BF2AE16823A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:70B155E673235A61652EC0F3109E2BF2AE16823A
 ```bash
 magnet:?xt=urn:btih:B28D3367E3F2D6D880C231066170B3B5252AAE48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Windows 11 Manager - это универсальная утилита специ
 magnet:?xt=urn:btih:95F29642A595E619DAA25D38EF41B5F8B6A71AC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:95F29642A595E619DAA25D38EF41B5F8B6A71AC6
 ```bash
 magnet:?xt=urn:btih:309BD496CED5E6D24E79975F8F15E6382D068535
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ Malaya Blue - Compilation (2023) [MP3|320 Kbps] <Soul, Soft Rock>
 magnet:?xt=urn:btih:EAF00475567DA80E5D34BB26E1FDE2341C5ECC08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:EAF00475567DA80E5D34BB26E1FDE2341C5ECC08
 ```bash
 magnet:?xt=urn:btih:6ED8A5622A0F4FE5B997076D15E5E28A5204807F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:6ED8A5622A0F4FE5B997076D15E5E28A5204807F
 magnet:?xt=urn:btih:CB9B24F288BBD9965B79F14A2E9D5F102B435827
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ SophiApp — это графический наследник Sophia Script for 
 ```bash
 magnet:?xt=urn:btih:93BB1BAB15781BB0CED4057DD9165691DFA21CEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:93BB1BAB15781BB0CED4057DD9165691DFA21CEC
 magnet:?xt=urn:btih:20ADF3A3495EA2A6612B3227D131FED734BDAFA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:20ADF3A3495EA2A6612B3227D131FED734BDAFA2
 ```bash
 magnet:?xt=urn:btih:895F346C6D3E491E8E1FF9411CF441AEB04E555A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ DirPrintOK 6.91 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:1DBE6A615E3C48CDC628A83635081C3D541E86A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:1DBE6A615E3C48CDC628A83635081C3D541E86A2
 ```bash
 magnet:?xt=urn:btih:C92599F82E9FA44A57F97A781A99CCE98EF5E480
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:C92599F82E9FA44A57F97A781A99CCE98EF5E480
 magnet:?xt=urn:btih:ADA62E7FC5FB618B4AFE2D457B3BC45A82C55C58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:ADA62E7FC5FB618B4AFE2D457B3BC45A82C55C58
 magnet:?xt=urn:btih:CC4E1E1D1D0E0C56089193E2EAE4C79F0CCEF002
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ XIX век. Молодой датский священник отправляе�
 ```bash
 magnet:?xt=urn:btih:10E618F784B90A740083D5CDF1027C539634F407
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:10E618F784B90A740083D5CDF1027C539634F407
 magnet:?xt=urn:btih:43C78E3F7DF1B97145E8F612F57CF6DE6721610D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:0EA08D11A5C3611862942AA8FCF6BFFBB4D66082
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ CD1 - On The Beach
 magnet:?xt=urn:btih:5AE5405232E36CD7A917150708A7D2DC85D0BCA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:5AE5405232E36CD7A917150708A7D2DC85D0BCA3
 magnet:?xt=urn:btih:1AF73ED5E33D94E7E72C1FE0D12799D784CDFDB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:1AF73ED5E33D94E7E72C1FE0D12799D784CDFDB9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:1AF73ED5E33D94E7E72C1FE0D12799D784CDFDB9
 magnet:?xt=urn:btih:2DAE74DF6C40226FCF0BEFEB8C0AC1BE8EC3BB02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ DesktopDigitalClock - простые и красивые цифровые час
 ```bash
 magnet:?xt=urn:btih:3B810062B5AB073169D9B81C5A9CC0F237431966
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

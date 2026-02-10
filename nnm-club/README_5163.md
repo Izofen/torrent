@@ -22,6 +22,8 @@ Nat King Cole - 1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 magnet:?xt=urn:btih:E1321046A3A57EEB1522BAE467EC75A087AAE0D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Charlie Christian - The Original Guitar Hero (1940, 1941) 2002, Sony Records [FL
 ```bash
 magnet:?xt=urn:btih:FBE52CE632A9AF6DAD5FD48DE39234B7A48948B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ BadTrip Boys - Первый (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:CA7508D9CC17BDD5779B0CE792E40D0AE92CCDA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ IceHammer - Печать ночных штормов (2022) [FLAC|Lossless|WEB-D
 magnet:?xt=urn:btih:F8508C5A011563FBC5D1B1000F6992CE79918CA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ magnet:?xt=urn:btih:F8508C5A011563FBC5D1B1000F6992CE79918CA9
 magnet:?xt=urn:btih:AB57E8E52E10E2482CECFE399EFEA3C541A300C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:AB57E8E52E10E2482CECFE399EFEA3C541A300C9
 ```bash
 magnet:?xt=urn:btih:0BA9FE0E2C3071E0BABEB073F91C2DCEF00E7224
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ DeathAwaits - XX (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Death Metal, Hardc
 magnet:?xt=urn:btih:D6453474B82BA5AFDD078BCCB29B091F7C45D682
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ Choke Out - Mechanized Order (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Be
 magnet:?xt=urn:btih:6AEF7D68BD388F64FE66F74A2624623D16AAA7CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +245,8 @@ magnet:?xt=urn:btih:6AEF7D68BD388F64FE66F74A2624623D16AAA7CE
 ```bash
 magnet:?xt=urn:btih:562667F981EB2DD9C688B14B0FF03FFED0A58F18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -257,6 +275,8 @@ Witness Effect - WE (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Groove Metal>
 magnet:?xt=urn:btih:F18B8F6EEB2E5BDC4618A7B7A0E57360338381AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +302,8 @@ magnet:?xt=urn:btih:F18B8F6EEB2E5BDC4618A7B7A0E57360338381AD
 ```bash
 magnet:?xt=urn:btih:63D983539C799CA7B6AA6BABCF15139982168CDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +332,8 @@ LG karaoke 200 ver.8.0 - 200 суперхитов (2009) DVD-9 <ПОП>
 magnet:?xt=urn:btih:E41F3BE558ED846C55A28F083CF905E28C29D187
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +358,8 @@ magnet:?xt=urn:btih:E41F3BE558ED846C55A28F083CF905E28C29D187
 magnet:?xt=urn:btih:2F734EC5CC37255FD8DA781CC0BAD03DAE783F06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +383,8 @@ Windows 11 - это серия операционных систем, разра
 ```bash
 magnet:?xt=urn:btih:FB0B54A203DA1242B9DFFA04101BAA3E63EA0429
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +412,8 @@ magnet:?xt=urn:btih:FB0B54A203DA1242B9DFFA04101BAA3E63EA0429
 magnet:?xt=urn:btih:32B8E06833A726868B85CF75D52FEBEBFFDB5266
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +437,8 @@ Futuremark 3DMark 2.25.8056 Professional Edition RePack by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A4763334AC4407B4B554CE8A24A78B3A1874922A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +464,8 @@ magnet:?xt=urn:btih:A4763334AC4407B4B554CE8A24A78B3A1874922A
 ```bash
 magnet:?xt=urn:btih:9C5D64601CF7A5F92D1DB5BB348A1A66E82FA492
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +494,8 @@ Skid Row - американская рок-группа, играющая в с�
 magnet:?xt=urn:btih:3EC8C705B97B848CE962AAFDC32FF9A5C247BD02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +519,8 @@ magnet:?xt=urn:btih:3EC8C705B97B848CE962AAFDC32FF9A5C247BD02
 ```bash
 magnet:?xt=urn:btih:A529BF427205A1A544294B1104C9D9BDBB5A0A08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +546,8 @@ magnet:?xt=urn:btih:A529BF427205A1A544294B1104C9D9BDBB5A0A08
 magnet:?xt=urn:btih:A6390E8332951910C889E76B37EC569D1F5F40CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ magnet:?xt=urn:btih:A6390E8332951910C889E76B37EC569D1F5F40CC
 magnet:?xt=urn:btih:7A6E4654209B47AE293988B8A1D10A2BF32A13D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +597,8 @@ magnet:?xt=urn:btih:7A6E4654209B47AE293988B8A1D10A2BF32A13D6
 ```bash
 magnet:?xt=urn:btih:08FB686984764A93BF6D6BD426DD736399887583
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +627,8 @@ magnet:?xt=urn:btih:08FB686984764A93BF6D6BD426DD736399887583
 magnet:?xt=urn:btih:6721032F071982FD879067D2049E94F142207E5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +652,8 @@ magnet:?xt=urn:btih:6721032F071982FD879067D2049E94F142207E5E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +679,8 @@ magnet:?xt=urn:btih:6721032F071982FD879067D2049E94F142207E5E
 magnet:?xt=urn:btih:0A8B58B5CE2802DD0CB84FE20DBF99113663BB10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +704,8 @@ magnet:?xt=urn:btih:0A8B58B5CE2802DD0CB84FE20DBF99113663BB10
 ```bash
 magnet:?xt=urn:btih:CDBAD35CAD2C768CB50702B8764A2CB519BEC24C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Democracy 3 (2013) [Ru/Multi] (1.31/dlc) License GOG [Complete Edition]
 magnet:?xt=urn:btih:41E3C5B94A7D3AA85DD3532076661238B57734E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ PayDay: The Heist (2011) [Ru/En] (1.22.0/dlc) Repack Mizantrop1337
 ```bash
 magnet:?xt=urn:btih:B324431E255D713C0ECD47F33BC0200A75A82E1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Driver Booster сканирует и определяет устаревшие �
 magnet:?xt=urn:btih:5795103110C1BBAD63D644F0BA453E4940B2D882
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:5795103110C1BBAD63D644F0BA453E4940B2D882
 ```bash
 magnet:?xt=urn:btih:F2A92F20C62989DE152FAE3D5E197EC123794FEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:F2A92F20C62989DE152FAE3D5E197EC123794FEC
 magnet:?xt=urn:btih:71DB3B8CAA58EF5729B3AB978C9E5A805D22CEBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:71DB3B8CAA58EF5729B3AB978C9E5A805D22CEBB
 ```bash
 magnet:?xt=urn:btih:50E664A03A87F3C388342D16DD100D4AAA8F9DE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Settlers® 3 (2000) [En/Ge] (1.60/dlc) License GOG [Ultimate Collection]
 magnet:?xt=urn:btih:354CAA27A955DADEE51AD8A7D4BEAC92B55E9640
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Awe of Despair - игра жанра survival horror, которая стави�
 ```bash
 magnet:?xt=urn:btih:FA56AEE71D7350529AA23D7928070F8BC623ECA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:FA56AEE71D7350529AA23D7928070F8BC623ECA6
 magnet:?xt=urn:btih:24BA658DEEEE3AA7BB929D3D7AB8C1BA7888974E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:24BA658DEEEE3AA7BB929D3D7AB8C1BA7888974E
 ```bash
 magnet:?xt=urn:btih:3FCF8BB802AEC5C98DD2DB237F5D3D2999B88183
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:3FCF8BB802AEC5C98DD2DB237F5D3D2999B88183
 magnet:?xt=urn:btih:EF801280035ACC5B0B58FDE323774388D7C58A27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Microsoft Office 2010 — один из лучших наборов офисны
 ```bash
 magnet:?xt=urn:btih:C8F6B041FF826F577563992BDE4EC40A2C546CFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Dynamic Stomp Intro - это современный шаблон After Effects, 
 magnet:?xt=urn:btih:7F3DA1376A5862AAF88053F185253605386477F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:7F3DA1376A5862AAF88053F185253605386477F4
 ```bash
 magnet:?xt=urn:btih:FA01D60872E87F4B345A29076E50411E115E85D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ The Settlers® 2 (1996) [En/Ge/Fr] (1.51) License GOG [Gold Edition]
 magnet:?xt=urn:btih:8D9EF729C912CF1F9EAC6FC6003CD400C2A08911
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ magnet:?xt=urn:btih:8D9EF729C912CF1F9EAC6FC6003CD400C2A08911
 ```bash
 magnet:?xt=urn:btih:EAF96B0531CEAC90A808278C48D8841CA3835B5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ RollerCoaster Tycoon Classic (2017) [Multi] (1.0/dlc) Repack Other s
 magnet:?xt=urn:btih:0574027792CAFCE4832B1CDC42FA857356745732
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ magnet:?xt=urn:btih:0574027792CAFCE4832B1CDC42FA857356745732
 ```bash
 magnet:?xt=urn:btih:96B16E273D73608B7591C60C4396C60B66952F88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:96B16E273D73608B7591C60C4396C60B66952F88
 magnet:?xt=urn:btih:388A9E8342BE1EB69D0ED0930B382FE0B5B0E25C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:388A9E8342BE1EB69D0ED0930B382FE0B5B0E25C
 ```bash
 magnet:?xt=urn:btih:292DD64BE1211FEA6F1D12453468CE6A93B55ADB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ Assassin's Creed Odyssey / Assassin’s Creed: Одиссея (2018) [Ru/Multi] 
 magnet:?xt=urn:btih:CD49515430B719C260A6E1F4114C2FF849CF1050
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ Microsoft® Windows 10 Enterprise LTSC x86-x64 1809 RU Office16 by OVGorskiy® 1
 ```bash
 magnet:?xt=urn:btih:784A53CB62375E7D99FE3F2B751B158DE94697A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:784A53CB62375E7D99FE3F2B751B158DE94697A7
 magnet:?xt=urn:btih:55E76D73EBC24CEE2F34B326AA66B92BAC5502FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ Shadow of the Tomb Raider — финал трилогии о становлен�
 magnet:?xt=urn:btih:FCAC8F0481B1E7C30A49DA106CE2E0D4AB4F2363
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ Photoshop CC — лучшее в мире ПО для графического �
 ```bash
 magnet:?xt=urn:btih:4656B1B696E675BD206A12A1C2CE41B8C572A648
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:4656B1B696E675BD206A12A1C2CE41B8C572A648
 ```bash
 magnet:?xt=urn:btih:A1A079C6782F379DFB0BC0C9FC1A517D4DC3A363
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

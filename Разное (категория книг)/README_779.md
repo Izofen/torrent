@@ -1,3 +1,29 @@
+###  Публикация: 1455393   (1025676) от 19.03.2021
+
+Святитель Димитрий Ростовский | Воскресение души. Сборник поучений на Великий пост и приходских поучений (1999) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025676.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Остерегайтесь, братие! Разрыв начинается незаметно. Сначала является охлаждение к Церкви, потом следует осуждение церковного строя жизни и её уставов, потом уклонение мыслей на сторону лжеучений. Душа ваша делается враждебной Церкви: ей не нравится всё церковное, она противится Церкви. И вот разрыв. Являются лжеучители. Они посевают в ваших душах вражду к Церкви, (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7A5DE510F9640ED0F367D80AD0115B4A324E65D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360725   (1025693) от 18.03.2021
 
 Книжная серия | Психология. Высший курс [13 книг] (2015-2021) [EPUB]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:3DC1A5CBD9AD99935556EF2A1307BBE44AC8C194
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:3DC1A5CBD9AD99935556EF2A1307BBE44AC8C194
 magnet:?xt=urn:btih:6FE878E648B33FFFA8645186B3D221343044AE5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:6FE878E648B33FFFA8645186B3D221343044AE5D
 ```bash
 magnet:?xt=urn:btih:4F1209C9C433AF6E4C79060396E056DB07B812A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:4F1209C9C433AF6E4C79060396E056DB07B812A8
 magnet:?xt=urn:btih:A035E6F568693EAC2BECE7C0E996154C5823A434
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:A035E6F568693EAC2BECE7C0E996154C5823A434
 ```bash
 magnet:?xt=urn:btih:76FDC615500645B7C0B8043DE8EA35809F5F542D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:76FDC615500645B7C0B8043DE8EA35809F5F542D
 magnet:?xt=urn:btih:3DF085F5E85B54D5783731E1DA01215B22C21AF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:3DF085F5E85B54D5783731E1DA01215B22C21AF4
 ```bash
 magnet:?xt=urn:btih:BFF23E12735C76D54DCC5CA1C39C8E2DA55753B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:BFF23E12735C76D54DCC5CA1C39C8E2DA55753B3
 magnet:?xt=urn:btih:A47BBA630E6CC4EF433EEE02E5FDCACC7446EA72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:A47BBA630E6CC4EF433EEE02E5FDCACC7446EA72
 ```bash
 magnet:?xt=urn:btih:D5A31363C2EAC7E1AE71B2BA5CCB967F612C689E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:D5A31363C2EAC7E1AE71B2BA5CCB967F612C689E
 magnet:?xt=urn:btih:B626AD0693B59B7B358FA796112509A50C2A7D54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:B626AD0693B59B7B358FA796112509A50C2A7D54
 magnet:?xt=urn:btih:8EACD69A8E7E3F33DC708B7D189C88F45576C3CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:8EACD69A8E7E3F33DC708B7D189C88F45576C3CB
 ```bash
 magnet:?xt=urn:btih:99A93AC6ACBCFA9F80D832CB4C5EEFB3FBF5EFF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:99A93AC6ACBCFA9F80D832CB4C5EEFB3FBF5EFF1
 magnet:?xt=urn:btih:5163B845AA277D3DE5D8C5076EFDEE4460048CBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:5163B845AA277D3DE5D8C5076EFDEE4460048CBA
 magnet:?xt=urn:btih:14EF67AD4C6546D3B2088142FCA5BBD52749CC24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:14EF67AD4C6546D3B2088142FCA5BBD52749CC24
 ```bash
 magnet:?xt=urn:btih:DB84434FD38110C2D98407F82038BBB03B1B3875
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:DB84434FD38110C2D98407F82038BBB03B1B3875
 magnet:?xt=urn:btih:83A503048E2A0833DB1AAC1B5992F9DA8AF4FE1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:83A503048E2A0833DB1AAC1B5992F9DA8AF4FE1D
 ```bash
 magnet:?xt=urn:btih:7C7A87F476B5BCA669AFED8DF2531EE02C4DA1D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:7C7A87F476B5BCA669AFED8DF2531EE02C4DA1D3
 magnet:?xt=urn:btih:8B150E6A4F58C51937F809A4C6957FBE178A0F2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:8B150E6A4F58C51937F809A4C6957FBE178A0F2E
 ```bash
 magnet:?xt=urn:btih:657E9B8179D078373F5436E12AE347846CA1C3CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:657E9B8179D078373F5436E12AE347846CA1C3CF
 magnet:?xt=urn:btih:BE2BC10554F193FE54AAC6D39C56C1C893CC27C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:BE2BC10554F193FE54AAC6D39C56C1C893CC27C4
 ```bash
 magnet:?xt=urn:btih:5D89CE5A612CE10EBA09482E2342C2FDE26C88EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:5D89CE5A612CE10EBA09482E2342C2FDE26C88EA
 magnet:?xt=urn:btih:2FA4FC08227CC5E2061DBCF82FF2DF5D92C5BCCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:2FA4FC08227CC5E2061DBCF82FF2DF5D92C5BCCE
 ```bash
 magnet:?xt=urn:btih:A30D5CEA877445C2E8675AE61794587A7A12C101
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:A30D5CEA877445C2E8675AE61794587A7A12C101
 magnet:?xt=urn:btih:E6909F673B0598BAF4BD9D2D0B9B76BB828B548B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,29 +679,7 @@ magnet:?xt=urn:btih:E6909F673B0598BAF4BD9D2D0B9B76BB828B548B
 magnet:?xt=urn:btih:8F1DF9763E1CB0E8694FE83BFA88E6D80D21F44C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453427   (1026965) от 11.03.2021
-
-Александр Богатырев | Рассказы (2012) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026965.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр Богатырёв - современный русский писатель, в 2004 году на московских Рождественских чтениях ему была присуждена премия «Золотое перо». Написал рассказы о подвижниках, живущих в наше время.Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:255C3021FB84F98F3A168179EB69136EF589A60B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

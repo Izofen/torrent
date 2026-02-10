@@ -22,6 +22,8 @@ Misty Blues - Weed 'Em & Reap (2020) [MP3|320 Kbps] <Blues, Blues Rock>
 magnet:?xt=urn:btih:68E4C765C55CFBC8C2178C899A6CB87FC7071AA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:EC7D56E0AC39E5D7DF06BC967D011AB83DC54F6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:EC7D56E0AC39E5D7DF06BC967D011AB83DC54F6E
 ```bash
 magnet:?xt=urn:btih:F1DD7BD5B9B2792531C7AD0354FE60C3B38C7664
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ VA - Electro House Future Party (2020) [MP3|320 Kbps] <House, Club, Dance>
 magnet:?xt=urn:btih:2B6065E89F3F64A4B1CFDE77BC58A7EBE8556914
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ Angelica - All I Am (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, Fem
 magnet:?xt=urn:btih:6D0E0340603782CF8F85C8A7ACB21947B2B72BDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:6D0E0340603782CF8F85C8A7ACB21947B2B72BDA
 ```bash
 magnet:?xt=urn:btih:6055DA0EF6DB6A189A22356115F04181749D0E6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +189,8 @@ VA - Greatest Hits Instrumental (2020) [AAC|~357 Kbps] <Instrumental, Soundtrack
 magnet:?xt=urn:btih:C85BA57DAF9FA836FC2251524AF1022EFD6FFCCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ magnet:?xt=urn:btih:C85BA57DAF9FA836FC2251524AF1022EFD6FFCCB
 magnet:?xt=urn:btih:D24F5988C1DD50F09DB86B2031C601A30AD71800
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:D24F5988C1DD50F09DB86B2031C601A30AD71800
 ```bash
 magnet:?xt=urn:btih:A011D9541EBE6B5DA57AE1830681809E861652CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ Music From Turtle Island - Contemporary Native American Music (2006) [MP3|320 Kb
 magnet:?xt=urn:btih:B10E89F476C035D4C2083AA1B04310D9BFE90170
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ magnet:?xt=urn:btih:B10E89F476C035D4C2083AA1B04310D9BFE90170
 magnet:?xt=urn:btih:CD605504DB879F64877EAD5326ADCBAB16046795
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ magnet:?xt=urn:btih:CD605504DB879F64877EAD5326ADCBAB16046795
 ```bash
 magnet:?xt=urn:btih:A67F4E6FF10C6EB8DE7320E211F92C0BF25A63F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -329,6 +353,8 @@ Anatoly Grinberg and Mark Spybey - The Failure of Language (2020) ant-zen [FLAC|
 magnet:?xt=urn:btih:1289BFBEDAC2F394B3D9587FACB21AF3A3C586D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ magnet:?xt=urn:btih:1289BFBEDAC2F394B3D9587FACB21AF3A3C586D7
 ```bash
 magnet:?xt=urn:btih:03456E8975B992221F7C96C56A50ADF335B5C4BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +410,8 @@ CD1:
 magnet:?xt=urn:btih:8A8B84AE09388B06C757A226E6AF76D23C13661B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +438,8 @@ Daft Punk - Best275z (1996 - 2016) [MP3|320 Kbps] <House, Electronic>
 ```bash
 magnet:?xt=urn:btih:8CA801BA182083DDDAE27738B9794CE4E84DD417
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +468,8 @@ The Rolling Stones - Blue and Lonesome (2016) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:3C58E9FDC4457B59BB8C48F8DCC3F588C88BD93F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +493,8 @@ magnet:?xt=urn:btih:3C58E9FDC4457B59BB8C48F8DCC3F588C88BD93F
 ```bash
 magnet:?xt=urn:btih:350FDA736B4EB179A4F9597216312C5213EC2F11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +523,8 @@ magnet:?xt=urn:btih:350FDA736B4EB179A4F9597216312C5213EC2F11
 magnet:?xt=urn:btih:7E8DB0319760CC87CB372465C2BB41264CD85CD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +550,8 @@ magnet:?xt=urn:btih:7E8DB0319760CC87CB372465C2BB41264CD85CD9
 magnet:?xt=urn:btih:4E9B76B3E916C9F3299B571AC3DA0F78A4B65BDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +576,8 @@ magnet:?xt=urn:btih:4E9B76B3E916C9F3299B571AC3DA0F78A4B65BDF
 magnet:?xt=urn:btih:E5918F0842656979C8AC7E88758B203B75F08147
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +601,8 @@ AMD Radeon Software Crimson Edition — это новое революционн
 ```bash
 magnet:?xt=urn:btih:C78DD1AA65082AD3D9850A3BA5C001AA615DE09A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +631,8 @@ The Beatles - Let It Be (1970) [WavPack|192/32|tracks|Vinyl-Rip] <Pop Rock>
 magnet:?xt=urn:btih:3FF96293ACB9ED3145F0912AE7D6CC171C5BE3E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +656,8 @@ Glitch Titleshow 2 - Настоящее озорное текстовое ани
 ```bash
 magnet:?xt=urn:btih:77A691BB477AE923D127EB8B033F192DBB538385
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +683,8 @@ DaisyDisk 4.3.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5A50996C59BA15F8D4EEC6A9043C920F9F37511A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -662,6 +712,8 @@ A4. 'Belle' Of The Earth (2:47)(   Читать дальше...   )Произв�
 ```bash
 magnet:?xt=urn:btih:A7D4913D488836DAB72FCC3B0969BE67811AAEA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

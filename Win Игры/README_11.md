@@ -19,6 +19,8 @@ Adventure of Samsara - это двумерная приключенческая 
 magnet:?xt=urn:btih:7CD98B93C5CAA066EA9A695C64326CC078AAE039
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ DYSMANTLE (2021) [Ru/Multi] (1.4.1.8/dlc) Repack Let'sРlay [Complete Bundle]
 ```bash
 magnet:?xt=urn:btih:347951E697B323C18E0D13FC1CC9F08578241F87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Shrink Rooms (2025) [Ru/Multi] (1.2.3) Repack Let'sРlay
 magnet:?xt=urn:btih:7B6C8689B890EC91B16E1AF91ED79604931F9090
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Otherskin (2025) [Ru/Multi] (Build 19817814) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:17A9624B07174614DD7A49BAF8582796DE23A35B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ PC Building Simulator 2 - продолжение затягивающего и �
 magnet:?xt=urn:btih:A05A6F4896865F6B051016DFEF986315536A2A11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Revenge of the Savage Planet - это оптимистичный, сатирич
 ```bash
 magnet:?xt=urn:btih:76861127BB8793843D0610F56FF70CED85813968
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ ReSetna (2025) [Ru/Multi] (1.7.1) Repack Let'sРlay
 magnet:?xt=urn:btih:FE3F2BDE445AF903FDDC9D7177C5AB2E9D2BF30F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Achilles: Survivor (2025) [Ru/Multi] (1.2.9988/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:8E2EB4F3592767065158BC86C355B1E6A6152BFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ ION Shift это хардкорный экшн-платформер с мгно�
 magnet:?xt=urn:btih:F5539FF722C741D5CEC089514930EC2970CF00FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The House of the Dead 2: Remake - это обновленная версия в�
 ```bash
 magnet:?xt=urn:btih:672A2924F34F81A1CA4B6D7445F3D87EF0AE07CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Knightling (2025) [Ru/Multi] (1.1.0/dlc) Repack Let'sРlay [Deluxe Edition]
 magnet:?xt=urn:btih:8F4103490720009B42E5DE978797C3EDE49F1056
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Deathless Tales of Old Rus / Бессмертный. Сказки Старой �
 ```bash
 magnet:?xt=urn:btih:F12BFBA9C0256BDEB8312A807761659A9DBE97A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Darkest Dungeon II - это путешествие в жанре рогалик,
 magnet:?xt=urn:btih:B9A020E8F94D5F07FD5B71D2651ED740D8F576C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Section 13 (2023) [Ru/Multi] (1.1.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:62237DC2528701A4C39B97EB06CE52BADF047710
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Deadzone: Rogue - это roguelite-шутер от первого лица, де
 magnet:?xt=urn:btih:C5F69992527BC297B648D6D1AD89BD7B84674826
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Crusader Kings 3 - глобальная стратегия, значительн
 ```bash
 magnet:?xt=urn:btih:A67B0C6C7DB1FB27A29F85C0573D8FEB40038C3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Star Trucker (2024) [Ru/Multi] (1.0.70.1_m/dlc) License GOG
 magnet:?xt=urn:btih:B312F8B844CC2C90BD5923EF5AB7328742ECD4FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Crusader Kings 3 - глобальная стратегия, значительн
 ```bash
 magnet:?xt=urn:btih:0648A64174BC8E3D6681AFA5B344BC4A36DF4366
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ ZERO PROTOCOL (2024) [Ru/Multi] (1.2) Repack Let'sРlay
 magnet:?xt=urn:btih:769D14A8ADB29ACA4463BC970309E23827A73206
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Against the Storm (2022) [Ru/Multi] (1.8.12R/dlc) Repack Let'sРlay [Complete Bu
 ```bash
 magnet:?xt=urn:btih:6AB863F87113643FA6F1C13DCF8BF4BEEA8554A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Sunkenland - это увлекательное приключение, пред�
 magnet:?xt=urn:btih:6D14E2D855B48AA8330909DE9F1947754A298062
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Look Outside - это ролевая игра в жанре Survival Horror, д�
 ```bash
 magnet:?xt=urn:btih:71DC1B48EE8B3830D092AE73083B9767F10EB46E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Isles of Sea and Sky (2024) [Ru/Multi] (2.4a) Repack Let'sРlay
 magnet:?xt=urn:btih:465CD4B226737F09140FA7C9AF8A7007665423DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Mortal Sin - хаотичная и кровавая игра в жанре rogue
 ```bash
 magnet:?xt=urn:btih:170653429D97199E84ABC3A3150C3C42EE75F07C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Crusader Kings 3 - глобальная стратегия, значительн
 magnet:?xt=urn:btih:44625DF213E09A54CD68F791CDB1CA4DA1A95346
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Shattered Pixel Dungeon - это классический пошаговый р�
 ```bash
 magnet:?xt=urn:btih:6F0A4615B1F13C114F5243039F8BB8DD8EEF5E07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

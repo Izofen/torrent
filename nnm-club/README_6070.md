@@ -22,6 +22,8 @@ Joe Pass - Unforgettable (1992) 1998, Pablo Records [FLAC|Lossless|tracks + .cue
 magnet:?xt=urn:btih:F62CBC6F3BB72D45D98FE275FC0298B419FAAB5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:F62CBC6F3BB72D45D98FE275FC0298B419FAAB5A
 ```bash
 magnet:?xt=urn:btih:AC18CD8115C8F429464609A843E264A35E8EB6EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Candlemass - Green Valley (Live in Lockdown, July 3rd 2020) (2021)  [FLAC 2.0|44
 magnet:?xt=urn:btih:74B09318FC6A6F051E456CFD5FCF2526EC8E93B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:74B09318FC6A6F051E456CFD5FCF2526EC8E93B1
 ```bash
 magnet:?xt=urn:btih:82AB1B64E45060EC873780819635764DDD269714
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Riot City - Electric Elite (2022) [FLAC|Lossless|image + .cue] <Heavy, Speed Met
 magnet:?xt=urn:btih:4D0AFA0E52A1843EB9207C556CEB622C93930DC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:4D0AFA0E52A1843EB9207C556CEB622C93930DC8
 ```bash
 magnet:?xt=urn:btih:6A6F7065E64EE0EB481845716CFBABBB4AC3F5F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ Repus Tuto Matos - МЫ(НЕ)МЫ (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Indus
 magnet:?xt=urn:btih:7EDD7BE102BFCA7601CE2D68755FEA9F85DFFCCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ Joe Pass - Virtuoso #2 (1976) 1987, Pablo Records [FLAC|Lossless|tracks + .cue] 
 magnet:?xt=urn:btih:762F2BE13BFAD90D1B781BDBECB1F61114E152FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ Jidouhanbaiki ni Umarekawatta Ore wa Meikyuu o Samayou | Reborn as a Vending Mac
 magnet:?xt=urn:btih:B440C1109BD6AB84A765AABDB5710BF50D58F9C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:B440C1109BD6AB84A765AABDB5710BF50D58F9C1
 ```bash
 magnet:?xt=urn:btih:9320CA21DE6164442D30CDF47E095B21F6408717
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +298,8 @@ Pagan Sword - Enter the Mountain (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Folk M
 magnet:?xt=urn:btih:1DC069F07C20193B88D0D1CA7F0D3C797991912B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ magnet:?xt=urn:btih:1DC069F07C20193B88D0D1CA7F0D3C797991912B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -329,6 +353,8 @@ Dominus - The First 9 (1996) [FLAC|Lossless|image + .cue] <Death Metal>
 magnet:?xt=urn:btih:787B0AF28119F182BE34A29337DD8362D41FCA11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +382,8 @@ Andysoul - 08535510n (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 magnet:?xt=urn:btih:37637DAB7FCCE9CD2FD63EADD5CAD64D1A0F5EEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ Yumemiru Danshi wa Genjitsushugisha / The Dreaming Boy is a Realist / Из ме�
 ```bash
 magnet:?xt=urn:btih:50D3CC87035EFEEBEAC6FF200D3B67F1AABE4A46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +434,8 @@ magnet:?xt=urn:btih:50D3CC87035EFEEBEAC6FF200D3B67F1AABE4A46
 ```bash
 magnet:?xt=urn:btih:AEBB5D19E5F760CB251074659A279D71F9B364F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +464,8 @@ magnet:?xt=urn:btih:AEBB5D19E5F760CB251074659A279D71F9B364F8
 magnet:?xt=urn:btih:F9DFBD80FA0314A81604FA4AA8A5C83D0E1E82A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +489,8 @@ magnet:?xt=urn:btih:F9DFBD80FA0314A81604FA4AA8A5C83D0E1E82A2
 ```bash
 magnet:?xt=urn:btih:8909BB865A61A53169EB73A7322AC1E50AC21D23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +517,8 @@ magnet:?xt=urn:btih:8909BB865A61A53169EB73A7322AC1E50AC21D23
 magnet:?xt=urn:btih:8E885C87F0AABE770B6B71E570772996C7190815
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +542,8 @@ magnet:?xt=urn:btih:8E885C87F0AABE770B6B71E570772996C7190815
 ```bash
 magnet:?xt=urn:btih:0A2AA95E8FF7A2BF503B191C733F73A0FF45E465
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +569,8 @@ Steelrising (2022) [Ru/Multi] (7624/dlc) License GOG [Bastille Edition]
 magnet:?xt=urn:btih:72393776D347FA82639262F490E56FC90EC52852
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +594,8 @@ Microsoft® Windows® 11 Professional VL x64 22H2 RU by OVGorskiy 11.2022
 ```bash
 magnet:?xt=urn:btih:09337BB70D6433100226632DC7B467F2AA89EF34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +621,8 @@ magnet:?xt=urn:btih:09337BB70D6433100226632DC7B467F2AA89EF34
 magnet:?xt=urn:btih:701237358660EA823C5C8EB7269E83874F46ECC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +646,8 @@ magnet:?xt=urn:btih:701237358660EA823C5C8EB7269E83874F46ECC6
 ```bash
 magnet:?xt=urn:btih:3EC599109BB8A256D92C5E1EDB1A97E877FF069E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +673,8 @@ magnet:?xt=urn:btih:3EC599109BB8A256D92C5E1EDB1A97E877FF069E
 magnet:?xt=urn:btih:F0390835C0C254BC5407610D589495CB6A348991
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +698,8 @@ magnet:?xt=urn:btih:F0390835C0C254BC5407610D589495CB6A348991
 ```bash
 magnet:?xt=urn:btih:B22F3AD065A411F2C1B76C10ECD5747E55DEE8E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

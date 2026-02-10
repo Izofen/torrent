@@ -19,6 +19,8 @@ Motion Shapes Vol.2 - содержит 45 движений фигур в выс�
 magnet:?xt=urn:btih:6891826773A2AD74E72C0EDDDB144AE46317ECE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:6891826773A2AD74E72C0EDDDB144AE46317ECE8
 ```bash
 magnet:?xt=urn:btih:108F450C1F6B12B7DCE8BC03E532F9F3EAAFD8B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Cartoon Character Kit - это набор забавных мультяшных 
 magnet:?xt=urn:btih:1EDE4128C85C919E3A802FF67DB258E0C3183FD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:1EDE4128C85C919E3A802FF67DB258E0C3183FD2
 magnet:?xt=urn:btih:AF99F079A8A8E3094C1F178AC28A58983460BB6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:AF99F079A8A8E3094C1F178AC28A58983460BB6B
 ```bash
 magnet:?xt=urn:btih:1D4C6C4C6537D40F71FE40B3E33F55C2715FDF48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:1D4C6C4C6537D40F71FE40B3E33F55C2715FDF48
 magnet:?xt=urn:btih:D7ED1BAAE7A29AD8DA6A5CA498479129A057E253
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:D7ED1BAAE7A29AD8DA6A5CA498479129A057E253
 ```bash
 magnet:?xt=urn:btih:45587B7484CC958DA1FED228CE8EFE2080ACCDDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:45587B7484CC958DA1FED228CE8EFE2080ACCDDE
 magnet:?xt=urn:btih:2BB7987210F4CD21FA535C92FEA38EB80C4D15E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:2BB7987210F4CD21FA535C92FEA38EB80C4D15E3
 ```bash
 magnet:?xt=urn:btih:D3107CF0F27C4950C7AF180506F4D9F9FE0764FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:D3107CF0F27C4950C7AF180506F4D9F9FE0764FF
 magnet:?xt=urn:btih:7EF90BD0907D7145C99C9B0B866424D6791529C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Fast Summer Opener является идеальным шаблон для те�
 ```bash
 magnet:?xt=urn:btih:0E6D79987C3BFEAD1B8AFF7DC4A8BE254595B2DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:0E6D79987C3BFEAD1B8AFF7DC4A8BE254595B2DD
 magnet:?xt=urn:btih:618DAE686897148F6F558C1FEA3A6740147633AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Broadcast Design - Complete News Package 2 - пакет для оформлен�
 ```bash
 magnet:?xt=urn:btih:3B405828772E5428AE7F340226C22C003112FF02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Recording Video 4K - это хорошо организованный шабло
 magnet:?xt=urn:btih:4FB24ADCE2076F28B773AE5CAC6B37FEB5348596
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:4FB24ADCE2076F28B773AE5CAC6B37FEB5348596
 magnet:?xt=urn:btih:F7B1F853BC090F06568EF20C7C634698F1CBFF56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Big Sale - это проект After Effects по продаже товаров 
 ```bash
 magnet:?xt=urn:btih:DF8C0034FC9C317EABA3C82837A1CE13F9085A61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Baby 3D Album - это потрясающий шаблон After Effects, с п�
 magnet:?xt=urn:btih:482E0C94BEDC6C24F1D9639DFD20A6F7CC6E2EF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Children's Train - Это высококачественный, хорошо о�
 ```bash
 magnet:?xt=urn:btih:9C27B4A8975898F46C456347802BAC66AAE0C49E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ Vintage Color Film Look - это пакет цветовых решений дл
 magnet:?xt=urn:btih:562CB262351389253B9143F0AEE568E749C1F8E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Fresh Color Wedding Invitation - забавный проект After Effects, к
 ```bash
 magnet:?xt=urn:btih:C70D9F55E04A76B923883FFDD291AC613B8FAFFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ Elegant Slideshow - проект After Effects, который можно исп
 magnet:?xt=urn:btih:789D3E744EF51B490107298329250D4B6173046B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ Simple Logo Reveal Pack - набор простых, чистых анимаци
 ```bash
 magnet:?xt=urn:btih:ED089F041011ABE62298C93559D311B1FCD24EC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Corporate Multi Logo Revealers - проявление вашего логоти�
 magnet:?xt=urn:btih:787DEA311A08687D9B6501636F28ABC197D8CC4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:787DEA311A08687D9B6501636F28ABC197D8CC4D
 ```bash
 magnet:?xt=urn:btih:A73A6289364B245B5BAACB305F64480462252790
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ Summer Slideshow - Летний качественный слайд-шоу, им
 magnet:?xt=urn:btih:7AFBA594B492B6BA5BAA276DC589CA0E34AB0910
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ magnet:?xt=urn:btih:7AFBA594B492B6BA5BAA276DC589CA0E34AB0910
 ```bash
 magnet:?xt=urn:btih:5996E33726A0899AA1DE59FACA985C58F6BA9D29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

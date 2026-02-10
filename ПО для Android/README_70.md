@@ -19,6 +19,8 @@ Kiwi VPN Proxy от Macdep - это лучший быстрый и лучший 
 magnet:?xt=urn:btih:80569F8378A0FB8D214758C1BD6739A85567B2B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Display Tester v4.56 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:CC7A36CA9A44912274CC7870476557AF13779064
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ BikeComputer Pro - возможно, одно из лучших приложен
 magnet:?xt=urn:btih:F833C4688C19440035F33F980DE9025C2C73D8F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ LectureNotes — это приложение для Android, которое по
 ```bash
 magnet:?xt=urn:btih:0875B776C31B60206E75C135DD0B0220F34099BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:0875B776C31B60206E75C135DD0B0220F34099BF
 magnet:?xt=urn:btih:D502F97CC5D03549A89F20EAF17F1CB0ADFCAF9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Zaycev.net v8.3.0 Mod by Dymonyxx, Timozhai  [Ru/En]
 ```bash
 magnet:?xt=urn:btih:D029592E1C1263829C0C3FB0D789AE85AB74FF99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Free Download Manager позволяет организовать загрузк
 ```bash
 magnet:?xt=urn:btih:7EEF380C67A27B6DFDC8EB092966CC4B8E111005
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Movily – бесплатный видеосервис для просмотра
 magnet:?xt=urn:btih:0FC706075DE5E7BDEF66010E9EA3E823F347C219
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Smart AudioBook Player Pro v11.5.8 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9403857FE7E7ED08A39D1D6DB806AE2B08E4E0E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ WiFi Analyzer v6.7 (b105) Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:C81BC649B98C1C185F9CA3BB2736C09ECC2A657E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Poweramp Эквалайзер - отдельное приложение-эква
 ```bash
 magnet:?xt=urn:btih:D9F963B363E39EC60186250426796A806BD3C477
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Poweramp (Premium) - Аудиоплеер с продвинутым звуков
 magnet:?xt=urn:btih:08782761F104172CD9921884CCE310B72448F5EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ PictureThis - Plant Identification v5.14.0 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:83C54701811B1A631F123426D5D4DEB140F62155
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Persona - твоя новая селфи-камера на каждый день
 ```bash
 magnet:?xt=urn:btih:9196257C32A7BF0B57508F03B475BA24B35F3841
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ FFmpeg — набор библиотек с открытым исходным к
 magnet:?xt=urn:btih:AF4301444306C281E7044E755E5A7B84D9C9375A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Mathlab Graphing Calculator Pro v2025.10.167 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B36815B50A690265936C6C5BF32EBD6FEE092681
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ VN - это видеоредактор предназначенный специ
 magnet:?xt=urn:btih:567803F0BB454CE2DE455BE8D0A1A4D696616FF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ ProShot v8.32 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:9BA99E7FBA2CDB304E34D1CB71B7421E4CAB213E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ SnapEdit — одно из лучших приложений для редакт
 ```bash
 magnet:?xt=urn:btih:8C2EC32472993F7F6BD9CDC3273CB417AEDBE73A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:8C2EC32472993F7F6BD9CDC3273CB417AEDBE73A
 magnet:?xt=urn:btih:440965EB35F5BAA7C27CF9C5954BB79F9AC95A88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Color By Number For Adults / Раскраски по номерам v4.5.5 [Ru/M
 magnet:?xt=urn:btih:17BA31BAB81BDAEB8793AE0AE9515FA441FD01F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ ARuler - лучшее и бесплатное приложение на Android 
 ```bash
 magnet:?xt=urn:btih:DDD9D7CD67691932F317F2FC8027DBDD060B281D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:DDD9D7CD67691932F317F2FC8027DBDD060B281D
 magnet:?xt=urn:btih:79B6342E538977986FC9F4DEF03AE01AD1775857
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ PicWish — фоторедактор с искусственным (   Чита
 magnet:?xt=urn:btih:A651F8B6B7E021D34257EE4552AE3A064EAE65EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ Flud - простой и элегантный BitTorrent клиент для о�
 magnet:?xt=urn:btih:321B489B4D6670AEA8D975DF39946C655DEDA9C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ FacePic — приложение AI Face, приложение для легко
 ```bash
 magnet:?xt=urn:btih:C4BAB17E804B459BB1D2C49424A601D22DB74E09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

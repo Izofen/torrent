@@ -22,6 +22,8 @@ Sarah Vaughan & Clifford Brown - Sarah Vaughan With Clifford Brown (1954) 2003, 
 magnet:?xt=urn:btih:F5036C9B05B5E37B9A5E02F42CB25DFBAE30A062
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Ferrari Challenge Europe. Copa Shell AM. 7-й этап. Имола. Гонка 2
 ```bash
 magnet:?xt=urn:btih:5ADB0E4658A729F75806E7AF1D3DBC9EEC58E0F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Sarah Vaughan & Quincy Jones - You're Mine You (1962) 2016, Jazz Images [FLAC|Lo
 magnet:?xt=urn:btih:E289889926F28717C539920A25886A435A7968B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Sarah Vaughan - The Divine One (1961) 2017, Hallmark [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:00F830F57CD4D8ED83A7EC7529B46781A980E277
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Samantha Fox - Диско 80-х (2007) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Roc
 magnet:?xt=urn:btih:37941AC1DAAB480B1FDA8B881DDB824A6392C55A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ magnet:?xt=urn:btih:37941AC1DAAB480B1FDA8B881DDB824A6392C55A
 magnet:?xt=urn:btih:3D2D946B90D2ABF12721E7CEF93914DBC01A5738
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:3D2D946B90D2ABF12721E7CEF93914DBC01A5738
 magnet:?xt=urn:btih:D672A55F3DD49B77C05C703BD3D1DC1BF2B9BA70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:D672A55F3DD49B77C05C703BD3D1DC1BF2B9BA70
 ```bash
 magnet:?xt=urn:btih:2CB3C0AD2212312F2C19574230F1021E49D80AA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:2CB3C0AD2212312F2C19574230F1021E49D80AA9
 ```bash
 magnet:?xt=urn:btih:C66B11AF11EEDABAD77827F6DAB495E5E8E7EB72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ Disc 1 - Queen I (2024 Mix):
 magnet:?xt=urn:btih:243D0183F380DB4AE9BAB3162AF88242A1ABA67F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:243D0183F380DB4AE9BAB3162AF88242A1ABA67F
 ```bash
 magnet:?xt=urn:btih:58BC72267B3FF669039C02509C2762C5AE605025
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ StartAllBack - привычная для нас программа, котора
 magnet:?xt=urn:btih:B38DC13B417EB03804C65794FB877A13D1843DD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ magnet:?xt=urn:btih:B38DC13B417EB03804C65794FB877A13D1843DD1
 ```bash
 magnet:?xt=urn:btih:C812C9C325B7CF6E051C540F093D718F5BA0F015
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ AllDup - бесплатный инструмент для поиска и уда
 ```bash
 magnet:?xt=urn:btih:C165CA017F35FBDCAC1258D417099ACDADAB9537
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +405,8 @@ ABBA - The Singles (The First Fifty Years) (2024) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:CA518A24EF0BE322A36CF60ACC2A7BE8715C602C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:CA518A24EF0BE322A36CF60ACC2A7BE8715C602C
 ```bash
 magnet:?xt=urn:btih:7BB49DD798A3BD084AF39F70A5DD490611A83322
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +457,8 @@ ISO Workshop – небольшая программа для работы с о
 magnet:?xt=urn:btih:B218B8D57F7979B95E04D5C1CB8733AFB1D165F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ Files Inspector Pro 4.15 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:03584C0C9D82729DD3ACD176556DF9041C074644
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +509,8 @@ Fontexpert - полнофункциональная программа для п
 magnet:?xt=urn:btih:A49487784EA35CAC0CF997E5C0936AB7DDE3DF68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ Macrorit Partition Expert Unlimited Edition – предоставляет мо�
 ```bash
 magnet:?xt=urn:btih:119F91D574BFC7CE957F0980FBC29D9E3BEFFE03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ magnet:?xt=urn:btih:119F91D574BFC7CE957F0980FBC29D9E3BEFFE03
 magnet:?xt=urn:btih:297E0C2FFDC075E67ED9BACC151F346454483BA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:297E0C2FFDC075E67ED9BACC151F346454483BA4
 magnet:?xt=urn:btih:05C200EA17DEDB723C34D2FAF18AD3DEE2EF6A9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:05C200EA17DEDB723C34D2FAF18AD3DEE2EF6A9B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +644,8 @@ The Holitter - The Start (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal>
 magnet:?xt=urn:btih:1DF766550E665FB983516468C44D56293418AA93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +671,8 @@ magnet:?xt=urn:btih:1DF766550E665FB983516468C44D56293418AA93
 magnet:?xt=urn:btih:1DC8A42AC532D1A5A0484701E1A74E0C5F248BAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +696,8 @@ Uzumaki | Спираль [2024, TV, 4 эп.] WebRip 720p raw+eng
 ```bash
 magnet:?xt=urn:btih:4F89AF63D30F5B5806D989FD9B85AAC496805A7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

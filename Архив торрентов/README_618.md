@@ -28,6 +28,8 @@ VNP - Trance Traveling 21 (2012) [MP3|320 kbps]<Trance>
 magnet:?xt=urn:btih:4BFDB66D241B4EF621C166D6A6BF2707780B7771
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ magnet:?xt=urn:btih:4BFDB66D241B4EF621C166D6A6BF2707780B7771
 ```bash
 magnet:?xt=urn:btih:8500DF3CB940B4CE0BC7FBE5F1297C3000619755
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -86,6 +90,8 @@ magnet:?xt=urn:btih:8500DF3CB940B4CE0BC7FBE5F1297C3000619755
 magnet:?xt=urn:btih:59C763E3A62AFA9E9825DC8D84BC77DD3E1608D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -109,6 +115,8 @@ magnet:?xt=urn:btih:59C763E3A62AFA9E9825DC8D84BC77DD3E1608D6
 ```bash
 magnet:?xt=urn:btih:663C717515CEAA4F8CB58A3ECE84CF39C845849C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +149,8 @@ Ahmed Abdullah Quartet - Liquid Magic (1988) [APE|Lossless]<Contemporary Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +177,8 @@ Kaspersky TDSSKiller 2.7.10.0 [Русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +202,8 @@ Kaspersky TDSSKiller 2.7.10.0 [Русский]
 ```bash
 magnet:?xt=urn:btih:5967C8E028FCCA0A5EBC438AEAF7097F18CFA631
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +231,8 @@ magnet:?xt=urn:btih:5967C8E028FCCA0A5EBC438AEAF7097F18CFA631
 ```bash
 magnet:?xt=urn:btih:88CF149D5DD2A3033E0C3C46B5254DBF12246041
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +267,8 @@ VA - Зарубежные Новинки Vol.27 (2012) [MP3|320 kbps]<Pop>
 magnet:?xt=urn:btih:6DE32296DCD2A81EBDEA7046D774C90EAEDFA8D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +300,8 @@ magnet:?xt=urn:btih:6DE32296DCD2A81EBDEA7046D774C90EAEDFA8D9
 magnet:?xt=urn:btih:B47C63D22C6C875F921C197A61FA795DE7421B02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +326,8 @@ magnet:?xt=urn:btih:B47C63D22C6C875F921C197A61FA795DE7421B02
 magnet:?xt=urn:btih:E058F2931A9A2879F1F6E6DFCE2AE1E2F0764349
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +351,8 @@ magnet:?xt=urn:btih:E058F2931A9A2879F1F6E6DFCE2AE1E2F0764349
 ```bash
 magnet:?xt=urn:btih:8E1DFBF8A2F15F604FCDAF0BC2BED6F8B723785B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +387,8 @@ Eternia - Winter Shades (2011) [MP3|320 kbps]<Doom Gothic Metal>
 magnet:?xt=urn:btih:F0DBDCFC22F377AF3F4A9263ACACD55B7968F75C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +412,8 @@ Sumatra PDF - легкий просмотрщик PDF, DjVu, XPS, CBR, CBZ -фа
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +440,8 @@ Sumatra PDF - легкий просмотрщик PDF, DjVu, XPS, CBR, CBZ -фа
 magnet:?xt=urn:btih:619BFC5287174F3D8742C3EC2B1852245AF83180
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +467,8 @@ magnet:?xt=urn:btih:619BFC5287174F3D8742C3EC2B1852245AF83180
 ```bash
 magnet:?xt=urn:btih:3AC389774C25297B4A0E8AAB811D7839CD79FFCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +500,8 @@ Volker Kriegel & The Mild Maniac Orchestra - Octember Variations (2011) [FLAC|Lo
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +525,8 @@ Volker Kriegel & The Mild Maniac Orchestra - Octember Variations (2011) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:6BA767687CD50AA12DC3FA005A27E5DD62F3BBB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +552,8 @@ magnet:?xt=urn:btih:6BA767687CD50AA12DC3FA005A27E5DD62F3BBB3
 magnet:?xt=urn:btih:58A74C8A6A402F5EDD309A372B4F1B8C20BBC03E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +578,8 @@ magnet:?xt=urn:btih:58A74C8A6A402F5EDD309A372B4F1B8C20BBC03E
 magnet:?xt=urn:btih:AAD87004810A4C3F55C9B16EF0F914EAE27FA60B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +603,8 @@ magnet:?xt=urn:btih:AAD87004810A4C3F55C9B16EF0F914EAE27FA60B
 ```bash
 magnet:?xt=urn:btih:0DADF5E330BAE2292BCC39215F4E34C12C3062E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +639,8 @@ VA - Track:id (independent music) (2012) [MP3|320 kbps]<Rock, Punk, Alternative>
 magnet:?xt=urn:btih:8CA31FD780A7616C239D86B1AE5682C54D1CCFDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +671,8 @@ Manticora - 8 Альбомов (1997 - 2010) Дискография [MP3|320 kbp
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -671,6 +717,8 @@ Choongum - Timefog (2012) [MP3|320 kbps]<Experimental / Ambient / Chill>
 magnet:?xt=urn:btih:B522A002495070F3C372F6CB062DAE9B8DA5E3FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -704,6 +752,8 @@ Steve Swallow - Real Book (1994) [FLAC|Lossless]<Post-Bop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -735,6 +785,8 @@ Osiris The Rebirth - 2 Альбома (2009, 2011) [FLAC|Lossless]<Progressive R
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

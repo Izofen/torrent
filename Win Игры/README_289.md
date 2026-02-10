@@ -19,6 +19,8 @@ The Escapists: The Walking Dead (2015) [Ru/Multi] (Build 263) SteamRip Let'sРla
 magnet:?xt=urn:btih:4147E6A65D6F6F6F65BBD887E068960E4F1BD5D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Sanctum 2 - продолжение одной интересной гибрид�
 ```bash
 magnet:?xt=urn:btih:6B61FD53B071F48FB33B57D9BA77EE48EB340AA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Bridge Constructor: The Walking Dead (2020) [Ru/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:0B4A614DA5E8E327FA35231FEBAADC146079B128
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Mystery Case Files 23: Incident at Pendle Tower / За семью печатям
 ```bash
 magnet:?xt=urn:btih:2F89EE65B2E549BE11FB886F245DC187AF5B8AAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Twin Mind 2: Power of Love / Близнецы-детективы 2: Сила л�
 magnet:?xt=urn:btih:1839EFF98CE9C14A2D080F655C22F7211F1C14BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Arise: A Simple Story (2019) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:0E87CF17838ABEF27D1F599233B0DB94BD2EF5CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ The Pale Beyond – это визуальная новелла с элемент
 magnet:?xt=urn:btih:F1F1935C5FD6D4BCCBDED0B4F615C915DE40C7D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Christmas Wonderland 12 (2021) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:D2A1A0CCDD6D9242A8F55BA7E3E0E61226EAC654
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Big Pharma - уникальная стратегия, в которой игро
 magnet:?xt=urn:btih:2B19BDE1A8A58F7B6F17C673143BE930088A1F79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Cabela's Hunting Expeditions – симулятор охотника, где в�
 ```bash
 magnet:?xt=urn:btih:A60DFDA638F2FD24777FE03583F18F4FFAABF093
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Darkness and Flame 4: Enemy in Reflection / Тьма пламени 4: Враг 
 magnet:?xt=urn:btih:EEDD2ACDC70DB0CB53E001A360CA25B4EDB815D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Fairy Godmother Stories 3: Little Red Riding Hood / Сказки Феи-Крёс
 ```bash
 magnet:?xt=urn:btih:22CCECCDB3572D45C6870BFA2764623BE24A4C25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Paranoia — это игра в жанре CRPG, действие которой
 magnet:?xt=urn:btih:923162BFAAE281493AF4EDFA195327FF88E33E41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Lucius III (2018) [Ru/Multi] (0.181213182603.a) Repack Other s
 ```bash
 magnet:?xt=urn:btih:84641A7229C6FB634D8A2CAA4B04A3D854591C45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Inside - это новая приключенческая хоррор игра 
 magnet:?xt=urn:btih:F46B4569DB0FE6F53553FFF9767170EE09C47E7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Forest — это необычный survival horror с открытым м�
 ```bash
 magnet:?xt=urn:btih:561BEDB93B8D76DD44CF8CB5715AD08448D5E7CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Exoplanet: First Contact — это Action RPG от третьего лица в
 magnet:?xt=urn:btih:3BD7041EA60F01AFC8D5D8E4E8F174A6910BFF54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Batman - The Telltale Series (2016) [Ru/Multi] (1.0) License GOG [Episode 1-5]
 ```bash
 magnet:?xt=urn:btih:FC3CCC3A7C5C672D3D67EF66571ABD1905465D5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Cabela's Big Game Hunter Pro Hunts – очередная часть в сери
 magnet:?xt=urn:btih:3E969E15BE04B4402D005C94447A73C8EFE093C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Dreamfall Chapters (2016) [ui/sub/res] (5.2) Unofficial Well-DING! Team & ZoG Fo
 ```bash
 magnet:?xt=urn:btih:1050CD2D286BD6FEB50645EC336F39DA63C45482
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Elephant Games представляет новейшее увлекательн�
 magnet:?xt=urn:btih:AA5BAC53F4AFCAC69C0D80A3136BBA2B0130F46D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Queen's Wish 2: The Tormentor (2022) [En] (1.0.3) License GOG
 ```bash
 magnet:?xt=urn:btih:5A0F0F0857A207C696CD5BDB67FE3A277B4540E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Sonority (2022) [Ru/Multi] (1.6.2) License GOG
 magnet:?xt=urn:btih:9EE9E17EA34DBC6CBBA6903167AB6CCDFA683A10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ ArcRunner - это захватывающая киберпанковый экш�
 ```bash
 magnet:?xt=urn:btih:6CBD67D28A4FE47B4CC7DF231994AC322E7A5094
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Contract with the Devil / Контракт с Дьяволом (2015) [Ru] (1.0)
 magnet:?xt=urn:btih:B7FBE94A53C7E30DF0FB2FA8831A919129B75AF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Haunted Legends 9: Faulty Creatures / Легенды о призраках 9: Н
 ```bash
 magnet:?xt=urn:btih:47C1BB4774EB33123A1B25EE5909717C6F4525AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

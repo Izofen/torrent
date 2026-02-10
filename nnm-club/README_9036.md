@@ -22,6 +22,8 @@ VA - Armada Winter Chill (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 magnet:?xt=urn:btih:CFB55632F0BA38A6E5DF689FFDD8BC21FE5BC6D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Virgin Australia Supercars Championship. Сезон 2017. Coates Hire Newcastle 
 ```bash
 magnet:?xt=urn:btih:476FE1B4150C1F6FD064EE8FF839E5713C0F2216
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:476FE1B4150C1F6FD064EE8FF839E5713C0F2216
 magnet:?xt=urn:btih:FB36A05A22785DC79F1F9EA3E0D73BBF1AA1ED90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ A Better Finder Attributes позволить изменить дату созд
 magnet:?xt=urn:btih:E6BCF68462B5B9EEA06F0F89AC5DDC3BF7B7C987
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Dash - удобное приложение, включающее в себя б�
 ```bash
 magnet:?xt=urn:btih:CCC374F831C3B920216E4FCEC15539FAD4A3D4AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Eric Chiryoku - Winter Story (2007) [FLAC|Lossless|WEB-DL|tracks] <New Age, Inst
 magnet:?xt=urn:btih:72D69E3EC0775DE2F2252236925B93367CCFA155
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:72D69E3EC0775DE2F2252236925B93367CCFA155
 ```bash
 magnet:?xt=urn:btih:05E8B0386703B0AFB8690CF7BFCBA554B1F891D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ The Pumps - Petroleum (1979) LP [MP3|320 Kbps] <Electronic, Disco>
 magnet:?xt=urn:btih:3EAA6601EE3E96ED1DFB22B2B33774EA77ABA1B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:3EAA6601EE3E96ED1DFB22B2B33774EA77ABA1B5
 magnet:?xt=urn:btih:6348F6B40FCF664460C09A5D52DEFBA102D904C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:6348F6B40FCF664460C09A5D52DEFBA102D904C8
 ```bash
 magnet:?xt=urn:btih:6290FCE49168B4E3FCB0DD1E658D3618D4D73F65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ VA - Venice Cafe Chillout Relax 2017 [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 magnet:?xt=urn:btih:200592D9F1EDD7555B99F419F230EC5E5CF40E72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ VA - Uplifting Only: Fan Favorites 2016-2017 (Mixed By Ori Uplift) (2017) [MP3|3
 ```bash
 magnet:?xt=urn:btih:8A226494A20B1083FF265B53BDE999A1008E516F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ VA - Aly & Fila - Future Sound of Egypt 524 (2017) [MP3|320 Kbps] <Trance, Uplif
 magnet:?xt=urn:btih:337FE0BF7872698125D1F9E5FE9D3EADDAC90A9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:337FE0BF7872698125D1F9E5FE9D3EADDAC90A9B
 ```bash
 magnet:?xt=urn:btih:73B5DC0E84449BDEE5B09303030B115E3CDCC6A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:73B5DC0E84449BDEE5B09303030B115E3CDCC6A0
 magnet:?xt=urn:btih:1D05D96812CA7668A2FE9CD2ED68EDD88457FC88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:1D05D96812CA7668A2FE9CD2ED68EDD88457FC88
 ```bash
 magnet:?xt=urn:btih:4466437A59E7B42CEC39C61D24591EAFCEA53445
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ Ai wo Utauyori Ore ni Oborero!! / Вместо того, чтобы петь п�
 magnet:?xt=urn:btih:C09EF53370413F2AA09A3A103DE61CB1E854A657
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ Client for Google Translate - очень удобная и практичная 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ SSClock.XP 1.1.0.9x.ru - Часы на рабочем столе любым шр
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ SSClock.XP 1.1.0.9x.ru - Часы на рабочем столе любым шр
 magnet:?xt=urn:btih:DD45F370581443F210F275365FE53EE790AC25A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ magnet:?xt=urn:btih:DD45F370581443F210F275365FE53EE790AC25A7
 ```bash
 magnet:?xt=urn:btih:19EC6993E220AA6A14CC5A603A4A860F2565BFB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +587,8 @@ AI Roboform - программа, являющаяся менеджером па
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ VA - Best Of Discoteque Euro (2010) [MP3|192 kbps]<Dance/Club>
 ```bash
 magnet:?xt=urn:btih:5181792C558D44AC5FD29F55BAC263040B349FCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +639,8 @@ magnet:?xt=urn:btih:5181792C558D44AC5FD29F55BAC263040B349FCF
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +665,8 @@ VA - Лучшие песни зимы (2010) [MP3|256 kbps]<Pop/Club>
 magnet:?xt=urn:btih:4A09B4828E028B1CE82BC103E9B4179E16B30212
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ magnet:?xt=urn:btih:4A09B4828E028B1CE82BC103E9B4179E16B30212
 ```bash
 magnet:?xt=urn:btih:70505447B9DC1C4B26504908F0119DD4FA3903C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

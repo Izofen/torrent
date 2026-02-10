@@ -1,3 +1,29 @@
+###  Публикация: 1310487   (546832) от 24.06.2019
+
+Павел Федоренко, Илья Качай | ВСДейка. Азбука невротика (2019) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_546832.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящей книге подробно и доступно раскрываются глубинные причины так называемой вегетососудистой дистонии и прочих тревожных состояний. Работа освещает влияние убеждений, в которые мы верим, на качество нашей жизни. В книге также можно обнаружить самый настоящий словарь, описывающий самые частые и актуальные проблемы, с которыми сталкивается тревожный невротик. (   Читать дальше...   )Жанр: Общая психологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:002C7D582A5DA1F24D6BF5CACA88032BF937E66B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1310253   (546892) от 24.06.2019
 
 Светлана Бардина | Это бред! Можно ли осмыслить безумие? (2018) [PDF]
@@ -21,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:CFB3062BF9592DAE0E27200B229A840FC70E4D01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ magnet:?xt=urn:btih:CFB3062BF9592DAE0E27200B229A840FC70E4D01
 magnet:?xt=urn:btih:4B16942851EBFEBA0FEFDAB0A837CC89182013C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:4B16942851EBFEBA0FEFDAB0A837CC89182013C9
 magnet:?xt=urn:btih:7CC6CCD115ED826EC4C9D6BB9C3A0694315FAA66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:7CC6CCD115ED826EC4C9D6BB9C3A0694315FAA66
 ```bash
 magnet:?xt=urn:btih:90DEF3628B2A04FC81DD97E8E8506499E6A98161
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:90DEF3628B2A04FC81DD97E8E8506499E6A98161
 magnet:?xt=urn:btih:4BA5369750FFDE0DF5C2E9D3BE84E55E3CA3D385
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:4BA5369750FFDE0DF5C2E9D3BE84E55E3CA3D385
 ```bash
 magnet:?xt=urn:btih:1624942C82DC6FE3FBD8A0471AF17FB0BF60162C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +207,8 @@ magnet:?xt=urn:btih:1624942C82DC6FE3FBD8A0471AF17FB0BF60162C
 magnet:?xt=urn:btih:1687D7F75197E40F9EE753231028DE898F75E132
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:1687D7F75197E40F9EE753231028DE898F75E132
 ```bash
 magnet:?xt=urn:btih:2829A0BBBB93A2538CA4F8CABC542181CDC9F1DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +259,8 @@ magnet:?xt=urn:btih:2829A0BBBB93A2538CA4F8CABC542181CDC9F1DC
 magnet:?xt=urn:btih:7D0C9394AD6F6179932182BB49BBEC0DBA5F79AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:7D0C9394AD6F6179932182BB49BBEC0DBA5F79AC
 ```bash
 magnet:?xt=urn:btih:E795E994406953C1EFE56EA28657331FB9B050D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:E795E994406953C1EFE56EA28657331FB9B050D8
 magnet:?xt=urn:btih:3CD313DEF2275906F861C51385C5BEF98605CF7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:3CD313DEF2275906F861C51385C5BEF98605CF7F
 magnet:?xt=urn:btih:F3C1F594C4D91B1165C600D948ABCAC4E29757F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:F3C1F594C4D91B1165C600D948ABCAC4E29757F9
 ```bash
 magnet:?xt=urn:btih:6A7B5DD09170709467CDF56A8D0DB40865D15B90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:6A7B5DD09170709467CDF56A8D0DB40865D15B90
 magnet:?xt=urn:btih:603E8E6349A91CBDE257A94AE5562D0553D30099
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:603E8E6349A91CBDE257A94AE5562D0553D30099
 ```bash
 magnet:?xt=urn:btih:D5EDDF69294364B8A75B2A69B83AB34A287DF770
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:D5EDDF69294364B8A75B2A69B83AB34A287DF770
 magnet:?xt=urn:btih:EDDD4B19CE15E33D8ED3233C0349C437A77FD7FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:EDDD4B19CE15E33D8ED3233C0349C437A77FD7FC
 ```bash
 magnet:?xt=urn:btih:71CFD41768FF57D913E9E445A91EB71DD71108B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:71CFD41768FF57D913E9E445A91EB71DD71108B0
 magnet:?xt=urn:btih:71BC559C180E502500AF6C6C66C79CDCC2971B5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:71BC559C180E502500AF6C6C66C79CDCC2971B5F
 ```bash
 magnet:?xt=urn:btih:1C890458CACBBF781A29FF14E5061CACC83F290C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +551,8 @@ magnet:?xt=urn:btih:1C890458CACBBF781A29FF14E5061CACC83F290C
 magnet:?xt=urn:btih:FCADFE09F53121D07E6C9C1BF61B3E151E5A0865
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +578,8 @@ magnet:?xt=urn:btih:FCADFE09F53121D07E6C9C1BF61B3E151E5A0865
 magnet:?xt=urn:btih:8505C6E165324CDCE04BDD6506B4C0DB8A1D4A08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:8505C6E165324CDCE04BDD6506B4C0DB8A1D4A08
 magnet:?xt=urn:btih:34302D48D0D89B3C2AC1C72BB590C6BA0DBDFEB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:34302D48D0D89B3C2AC1C72BB590C6BA0DBDFEB1
 ```bash
 magnet:?xt=urn:btih:EFDF54A321BF8AFA730DA19116E337C00F3D8066
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:EFDF54A321BF8AFA730DA19116E337C00F3D8066
 magnet:?xt=urn:btih:0A935C2751FC338811B816FF705DC28557E61EF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,29 +683,7 @@ magnet:?xt=urn:btih:0A935C2751FC338811B816FF705DC28557E61EF8
 magnet:?xt=urn:btih:BA24188F99F38EFEEB211A1A75EA8002CA58F6C9
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047482   (549068) от 30.08.2016
-
-Валерий Черняев | Защитите свое здоровье (2016) [FB2]
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549068.jpg" />
-</div>
-
-
-###  Подробнее
-
-В последнее время идёт много разговоров о продлении жизни человека. Однако, идея полностью обессмысливается, если не учитывать качество жизни при этом: кому захочется жить долго, но в болезнях, испытывая боль и муки?! Поэтому, главное, всё же, это не сколько прожить, а как прожить остаток своих дней! И если первое зависит больше от генетики, наследственно заложенной (   Читать дальше...   )Жанр: Здоровье, диетыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D6742CC2392AFA9C9E013BA20AF7CD1B78458B2
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Warden's Will (2025) [Ru/Multi] (1.0.0c) Scene Tenoke
 magnet:?xt=urn:btih:8B99221E5AE4ED3191C1FE91EA697D51847BB21F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:8B99221E5AE4ED3191C1FE91EA697D51847BB21F
 magnet:?xt=urn:btih:DDCD02BC2CFF3F9936FA3E853A61EA0F009557DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:DDCD02BC2CFF3F9936FA3E853A61EA0F009557DF
 ```bash
 magnet:?xt=urn:btih:2424B318AD79914498E9E33A6BB3AC0C7F9EFCFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Duke Grabowski, Mighty Swashbuckler - это рисованный приключ
 magnet:?xt=urn:btih:698E668921D94D8FE35421D7B4E7CA232A14F9EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:698E668921D94D8FE35421D7B4E7CA232A14F9EC
 ```bash
 magnet:?xt=urn:btih:3111D898BD54DB3F392DC173989478DA49BE2A74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:3111D898BD54DB3F392DC173989478DA49BE2A74
 magnet:?xt=urn:btih:D235BDC1A70007731B2BED866D59D73694B8CDCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:D235BDC1A70007731B2BED866D59D73694B8CDCD
 ```bash
 magnet:?xt=urn:btih:035F5665014FB52038B96566101670C1D9464331
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:035F5665014FB52038B96566101670C1D9464331
 magnet:?xt=urn:btih:51EFFC3BB9893FE44F077590F84449B21980FF56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:51EFFC3BB9893FE44F077590F84449B21980FF56
 ```bash
 magnet:?xt=urn:btih:EA981F20D6853129760C335DDCBCE6EDCCD11E4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:EA981F20D6853129760C335DDCBCE6EDCCD11E4B
 magnet:?xt=urn:btih:66A3C744F967A95965D5941FDB036CFF0B2F34C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:66A3C744F967A95965D5941FDB036CFF0B2F34C7
 ```bash
 magnet:?xt=urn:btih:5455FFC8A0736157422204DA57529792422928CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:794B3B4B86BF5ECD2E26F7609AE65B701ADB14E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Farm Manager 2021 – игровой проект, который вновь г�
 ```bash
 magnet:?xt=urn:btih:3C28ACA114E204C9D633834846C9A25D0C1C8215
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Desktop Calendar – бесплатный календарь рабочего с
 magnet:?xt=urn:btih:4CB00469EFCDAC520652A89496355D520A20AFA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Directory List & Print – менеджер каталогов, предназн
 ```bash
 magnet:?xt=urn:btih:6B403B159F1952B2F676EEB14BBC0FEBE394C86D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:6B403B159F1952B2F676EEB14BBC0FEBE394C86D
 magnet:?xt=urn:btih:C39E610D79D36F2891DF2A740FE3276DE083C303
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:C39E610D79D36F2891DF2A740FE3276DE083C303
 ```bash
 magnet:?xt=urn:btih:DCE395908EE320CD598ED42500B6F1CAC6286DF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:DCE395908EE320CD598ED42500B6F1CAC6286DF3
 magnet:?xt=urn:btih:819A6B02C434CBCE6101CBA6731A7D99C69682B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:819A6B02C434CBCE6101CBA6731A7D99C69682B6
 ```bash
 magnet:?xt=urn:btih:EAC62DA216A2A4D97FD1269929FB8DCAF3FE9821
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ Gestalt: Steam & Cinder - это метроидвания, вдохновлен�
 magnet:?xt=urn:btih:D54EF0871E72BF5DE88BD150B6E9EB75CB12C304
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:D54EF0871E72BF5DE88BD150B6E9EB75CB12C304
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:D54EF0871E72BF5DE88BD150B6E9EB75CB12C304
 magnet:?xt=urn:btih:37AC7EC62C72FA5E03ADB528834F73FDF08CB59A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:37AC7EC62C72FA5E03ADB528834F73FDF08CB59A
 magnet:?xt=urn:btih:4B2D2E16877C584FC4DB245C46216F54D3422958
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:4B2D2E16877C584FC4DB245C46216F54D3422958
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ magnet:?xt=urn:btih:4B2D2E16877C584FC4DB245C46216F54D3422958
 magnet:?xt=urn:btih:A314E2FF0C140C7396400763D365B1BD186AE007
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ magnet:?xt=urn:btih:A314E2FF0C140C7396400763D365B1BD186AE007
 ```bash
 magnet:?xt=urn:btih:B890C69F2EFB404AC97899C225B46E5D6BFF1267
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:5DAA95AE6B89260CD948F68164C45881E598EECB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:5DAA95AE6B89260CD948F68164C45881E598EECB
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Forza Horizon 5 – продолжение популярной гоночной
 ```bash
 magnet:?xt=urn:btih:2788F2F0D914927EC02579213E685BCC7CA6EAA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ PurpleSchool, Антон Ларичев | Основы Git (2024) WEB-DL [RU]
 magnet:?xt=urn:btih:D3DE6BE201170710F09529E334BCEC1F98B528BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:D3DE6BE201170710F09529E334BCEC1F98B528BC
 ```bash
 magnet:?xt=urn:btih:41691045A296F83EF93D3B3B60AF28EAC22883E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:41691045A296F83EF93D3B3B60AF28EAC22883E9
 magnet:?xt=urn:btih:F8ACE74D21DD7790B816FEAF577BE3EBE9271F26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:F8ACE74D21DD7790B816FEAF577BE3EBE9271F26
 ```bash
 magnet:?xt=urn:btih:71AADB8EBDF9187839B05592829BF20079FCAA46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Microsoft Activation Scripts (MAS) 3.3 portable [En]
 magnet:?xt=urn:btih:250234BA917B0972E55EA9390709D2344AC74621
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:250234BA917B0972E55EA9390709D2344AC74621
 ```bash
 magnet:?xt=urn:btih:BB523BB2A2554E57BD5BC28962A81EACBE7588F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ PhotoCASA - красочный иллюстрированный журнал о 
 magnet:?xt=urn:btih:9CCCE0E0C4229DBF6327555FD49B002C19E9E8AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ VRadio - Online Radio App v2.8.4 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:19CB19DFD1845763947DED9E175594D69BAE4819
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:19CB19DFD1845763947DED9E175594D69BAE4819
 magnet:?xt=urn:btih:EE8ADFA0243D8195E7869F03CF5F676CFDD7DB74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:EE8ADFA0243D8195E7869F03CF5F676CFDD7DB74
 ```bash
 magnet:?xt=urn:btih:A09825EFFA157185E0EB3D00C70CFB1EA93D4EE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:A09825EFFA157185E0EB3D00C70CFB1EA93D4EE5
 magnet:?xt=urn:btih:ACB1982AEEF93487827662B7D88E6D4CFDCF7ED1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:ACB1982AEEF93487827662B7D88E6D4CFDCF7ED1
 magnet:?xt=urn:btih:B3A43CAFCACEA2FDA4CF1701190F459E3BB176E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:B3A43CAFCACEA2FDA4CF1701190F459E3BB176E8
 ```bash
 magnet:?xt=urn:btih:760612B304D3EC94B3170D7FBAE51928104CF9DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:760612B304D3EC94B3170D7FBAE51928104CF9DB
 magnet:?xt=urn:btih:C5BDE2DF71B4D9A33998C774D50693FA2BF2CB7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Groove3, Thomas Cochran | Serum 2: Making Synthwave (2025) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:C0452811FF012681BC2024188908F5BFD328E32E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:C0452811FF012681BC2024188908F5BFD328E32E
 magnet:?xt=urn:btih:2D2D402619DE3455342001D7004109E4214F5429
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:2D2D402619DE3455342001D7004109E4214F5429
 ```bash
 magnet:?xt=urn:btih:E05AC42591A0F8F13B44AC8146B9A7882A1A172A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ VA - Шансон премьера 2025 май (Новые песни. Новы�
 magnet:?xt=urn:btih:1D49D19448876AB20FC916140D426AD3B681F309
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ Berserk: Ougon Jidai Hen | Berserk: The Golden Age Arc | Берсерк: Зол�
 ```bash
 magnet:?xt=urn:btih:D77C188E3F274C27A2BE4DE2C5215972F8759FC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ VA - Русская 30-ка хитов 15 (Новые русские песни)
 magnet:?xt=urn:btih:279F1F771BAA6021358F111D638BD076D4A0DB46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ Lighting calculations / Расчеты освещения v6.1.4 Mod by Balatan 
 magnet:?xt=urn:btih:4ACBC1670D3C41C14C099647D1DB9CD345E14410
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:4ACBC1670D3C41C14C099647D1DB9CD345E14410
 ```bash
 magnet:?xt=urn:btih:65D324AFED55D01E688EDD17217A807596903089
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

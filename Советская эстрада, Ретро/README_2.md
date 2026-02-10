@@ -22,6 +22,8 @@ VA - Хиты 80-х в Новых Версиях (2012) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:551D94B47CFED8407938E2BA58A080E372CF84D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:551D94B47CFED8407938E2BA58A080E372CF84D4
 ```bash
 magnet:?xt=urn:btih:8905FB08D3C5F101BD8257ADA1903957359D3D4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -79,6 +83,8 @@ magnet:?xt=urn:btih:8905FB08D3C5F101BD8257ADA1903957359D3D4D
 magnet:?xt=urn:btih:FB6AB872417E314774B5454419082DA3AE7810A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -105,6 +111,8 @@ magnet:?xt=urn:btih:FB6AB872417E314774B5454419082DA3AE7810A7
 ```bash
 magnet:?xt=urn:btih:69791181D5470D92B0B277E245B4461E9E492EC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -133,6 +141,8 @@ VA - Замыкая круг. Хиты 1960 - 1980-х (2010) [MP3|320 кб/с]<�
 magnet:?xt=urn:btih:06AB380991E1AE5BFB94947FDC70F4EF4DC656B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -159,6 +169,8 @@ VA - Любимые глаза. Хиты 1960 - 1980-х (2010) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:89D81AF9BEBF9C04C347CD6FC3A666B9454AD100
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +199,8 @@ magnet:?xt=urn:btih:89D81AF9BEBF9C04C347CD6FC3A666B9454AD100
 magnet:?xt=urn:btih:D71C8DD03C98C050C8A857376D736BB6EC5D41D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Кружатся Диски - Хиты 70-х (2 CD) (2002) [MP3|320 kbps]<r
 ```bash
 magnet:?xt=urn:btih:A3BBA50B886CB07EB8C72CE6D3DD1BD356928FC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +253,8 @@ magnet:?xt=urn:btih:A3BBA50B886CB07EB8C72CE6D3DD1BD356928FC1
 ```bash
 magnet:?xt=urn:btih:EAC5A330CCD566E8327BD2F0D8634E090CB498AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +289,8 @@ White Nights Brass - Soviet Retro (2003) [MP3|320 кб/с]<Retro>
 magnet:?xt=urn:btih:4CF014403D397239A9FF7D2AEED1990180AA1E62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +323,8 @@ VA - Суперхиты дискотеки 90-х. Золотые баллады 
 ```bash
 magnet:?xt=urn:btih:8EA1D0EDD08F97AB548E7C2E3B67188062698C52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +359,8 @@ magnet:?xt=urn:btih:8EA1D0EDD08F97AB548E7C2E3B67188062698C52
 magnet:?xt=urn:btih:8419DAFF1B4A4D0CB1AD7A57927EA6F93D44BA91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +394,8 @@ VA - Суперхиты дискотеки 90-х ...продолжение (2011
 magnet:?xt=urn:btih:3FC04CFE1F247CDF774AD03EC3E14892063773B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +420,8 @@ Louis Prima & Keely Smith - Buona Sera (1999) [MP3|320 кб/с]<pop>
 magnet:?xt=urn:btih:03BE22EA6FBD0B0C308D2B46016E0B3B6A296B73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +445,8 @@ VA - Звездная Италия. Хиты 80-х (2010) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:4FD6CB8A1F6E26879ACBFF27C85A7D7B4D0FB272
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +475,8 @@ magnet:?xt=urn:btih:4FD6CB8A1F6E26879ACBFF27C85A7D7B4D0FB272
 magnet:?xt=urn:btih:4F908D958F6CDE20511E760ACFEC620BCD20222C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +500,8 @@ VA - Ретро перепевки (2008) [MP3|320 kbps]<Retro, Pop>
 ```bash
 magnet:?xt=urn:btih:0D43CA99D197D72FF43FFD69BE6AFD6142FA1B2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +530,8 @@ magnet:?xt=urn:btih:0D43CA99D197D72FF43FFD69BE6AFD6142FA1B2A
 magnet:?xt=urn:btih:DA3D18A4AD7E18E10B7003CF0129E979C4B605D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +558,8 @@ magnet:?xt=urn:btih:DA3D18A4AD7E18E10B7003CF0129E979C4B605D8
 ```bash
 magnet:?xt=urn:btih:0EA94C2D3BDF1AFA99C5E5ED0660CFE10AC34289
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +594,8 @@ VA - Лучшие песни Ретро FM (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:DD3B80E9D0D05BC99BC347B410F15ADB9365AB41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +628,8 @@ VA - Лучшая 100ка Ретро FM 8 50/50 (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:9A9A230A77293686F3E26EB9FA736C5476D367EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +664,8 @@ VA - Золотые и редкие песни 70-80х  (2012) [MP3|256 кб/с]
 magnet:?xt=urn:btih:8304208C66B289456284BCA68775C8CEA97F106C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +695,8 @@ magnet:?xt=urn:btih:8304208C66B289456284BCA68775C8CEA97F106C
 magnet:?xt=urn:btih:763A8C426863F779F251B7EFB021C7A314E2B5EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -674,6 +720,8 @@ magnet:?xt=urn:btih:763A8C426863F779F251B7EFB021C7A314E2B5EA
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -708,6 +756,8 @@ magnet:?xt=urn:btih:763A8C426863F779F251B7EFB021C7A314E2B5EA
 magnet:?xt=urn:btih:6F7C9719526EB731CC825344D0CF6D1CA075A2D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -740,6 +790,8 @@ VA - Суперхиты дискотеки 90-х. Часть 4 (2012) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:88E5CC0C012881B09E0BADD02EEDD6F340778695
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

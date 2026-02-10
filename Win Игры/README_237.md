@@ -19,6 +19,8 @@ Shadow Tactics: Blades of the Shogun, основанная на скрытнос
 magnet:?xt=urn:btih:1CCB6D1364075943BD50281E7CC94D793D8A548A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The King of Fighters превратилась в популярную (особ�
 ```bash
 magnet:?xt=urn:btih:49A68F860721629676C49E69C545C98B836B85AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Shank (2010) [Ru] (1.3) Repack R.G. Revenants
 magnet:?xt=urn:btih:5FFEF9FAB9BEE8415E03E1F8DB4991066C99B6FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ City Car Driving – реалистичный симулятор вождени�
 ```bash
 magnet:?xt=urn:btih:8C1859351B94E92405E78C1AD8B58666AC78AB92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Worms Revolution [Ru] (Repack/1.0/3DLC) 2012 | DiMoNFliX
 magnet:?xt=urn:btih:7F2CFE7A87F6938540630C167C1DCBC6B4A7B068
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ UNCHARTED: Legacy of Thieves Collection (2022) [Ru/Multi] (1.4.21058) License GO
 ```bash
 magnet:?xt=urn:btih:8628F6EEC2D45AA9450620E6BF2118DD93187023
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Kraken Academy!! (2021) [Ru/Multi] (1.0.12.2) License GOG [End of the World Edit
 magnet:?xt=urn:btih:BF77360895DCD3DA26E3232FF74958B4654A2545
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Kerbal Space Program - многожанровая игра, где вы созд
 ```bash
 magnet:?xt=urn:btih:E5E1AF36435DA767F601E853E1E0BC3A249AF070
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Redemption Cemetery 15: The Stolen Time / Кладбище искупления 
 magnet:?xt=urn:btih:B09A2E4A29C0D7C713F72C57A0389C82C235C11A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Wargame: Red Dragon – первый выпуск популярной сери�
 ```bash
 magnet:?xt=urn:btih:4E8977137DA5B053F8AD78D2AF4B626D295F712F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ RaceTime: Undercover – это увлекательная гоночная ис
 magnet:?xt=urn:btih:8C23F404F929E2CC2EE268B2506711AADE6D31B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ X: Superbox (1999-2013) [Ru/Multi] (2.2/2.2/1.5/2.5а/3.4/3.3/4.30/dlc) Repack R
 ```bash
 magnet:?xt=urn:btih:8867F8C9EAE8F5A049D69173D0F5E2C5EC86B90A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Need for Speed: Undercover (2008) [Ru/Multi] (1.0.1.17) License PROPHET
 magnet:?xt=urn:btih:338957DC9C82D38735B6611FD1C2666603AE6C95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Crypt of the Serpent King - это фэнтезийный dungeon crawler от �
 ```bash
 magnet:?xt=urn:btih:5D76BD09AEC0E5CB8049837B440BAFF71C635904
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Star Wars: The Force Unleashed 2 (2010) [Ru/Multi] (1.1) License PROPHET
 magnet:?xt=urn:btih:AB9E3A48801E395A905C780804C6F8712CA36523
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Tooth and Tail (2017) [Multi] (1.1.0.2) License PLAZA [Season 2]
 ```bash
 magnet:?xt=urn:btih:59635C10CBD437AD3D5FEC77AEA1912DDBC5027A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ Hidden Object Legends: Deadly Love (2023) [En] (1.0) Unofficial [Collector's Edi
 magnet:?xt=urn:btih:D14CF46D79D3717CBAC1D5B8E9002A038C35B2FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ The Room Three (2018) [Ru/Multi] (1.0/upd1) License PLAZA
 ```bash
 magnet:?xt=urn:btih:222AA46DE0A9F22E531C939244A5F13071BE4B27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:222AA46DE0A9F22E531C939244A5F13071BE4B27
 magnet:?xt=urn:btih:4F6CE1262C738FC7435AA9D90DBD5266F208E50F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ Dark Age - это единственная онлайн игра о конфли
 ```bash
 magnet:?xt=urn:btih:8A72FE2DBB62AEFB371C3D539C917B58B98B989E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ Tibetan Quest: Beyond the World's End / Легенды Тибета: На кра
 magnet:?xt=urn:btih:10CEEECAEB9A035C658932CD65C4541F0B53EE97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ Bad North (2018) [Ru/Multi] (1.05.1) License GOG
 ```bash
 magnet:?xt=urn:btih:F1A6B531472F57D5B14EA8CF6E9FE655F8CF8D90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ Surface 9: Lost Tales / За гранью: Потерянные сказки (20
 magnet:?xt=urn:btih:EF6514FCD8D6C08D8A0181C1544B4C40AAB6732C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ Hunting Unlimited 2009 - охотничий симулятор, часть пр�
 ```bash
 magnet:?xt=urn:btih:DAF9675B39BC5013BA39A52A3754525D030A8EE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ Crossroads: On a Just Path (2021) [En] (1.0) Unofficial [Collector's Edition / �
 magnet:?xt=urn:btih:FE327B58D487BC187F6427DA72F2EFF450DA6844
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Camelot: Wrath of the Green Knight (2020) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:17960815832C7FCC0BA3F9A8CD6DEA92631CB021
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Hype - программа, которая открывает для пользо
 magnet:?xt=urn:btih:FA5147C7B4E328E8C8B4F9639546B2A9792800C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ VA - Chillout King Ibiza: Club Del Mar (2015) [AAC|~342 Kbps] <Lounge, Chill Out
 magnet:?xt=urn:btih:734DAABD3DC2AFA87BE6D88ACF9126D0B489D5E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ PhotoDirector - функциональный, но весьма простой �
 magnet:?xt=urn:btih:694D35370E01B70F4B423792D32F0676F8261969
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Timelie (2020) [Ru/Multi] (1.2.4/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:4F5ACF8DBE88C6CEDEC397B3EC2610C9CCB9AE0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:4F5ACF8DBE88C6CEDEC397B3EC2610C9CCB9AE0A
 magnet:?xt=urn:btih:C39A2CA7193C171E5FEA1685FC56062A62A91E6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Bauer Media Group — одна из самых успешных и передо�
 ```bash
 magnet:?xt=urn:btih:DE4468C3E4FD9971B912F04B714E05F48F72EE6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ FontCreator - Редактор шрифтов FontCreator может созда�
 magnet:?xt=urn:btih:0B81CF0D151E503686A36C157B27E27A0647EA8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ AudioSwitcher - небольшая утилита, которая находит
 ```bash
 magnet:?xt=urn:btih:18EA98321CEFF9511FAA39F50CB94A2608C8366A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ Wattagio информирует вас о текущем состоянии ба
 magnet:?xt=urn:btih:386FAAF00776D610CD2D3445400D500A3382B0B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ The Gnomon Workshop, Ted Mebratu | Cinematic Lighting in Unreal Engine 5 (2022) 
 ```bash
 magnet:?xt=urn:btih:28AA62AA1CC2097F39C6E22CDC10708B9458E719
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ VA - Hi Games Vol.3 (Chiptune, Dubstep, Breaks Edition) (2019) [MP3|320 Kbps] <C
 magnet:?xt=urn:btih:89400305176E3E87FBB21FB653ACBCAE976CE6E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ CorelDRAW® Technical Suite 2022 — это универсальные инст�
 ```bash
 magnet:?xt=urn:btih:343D82BF7F458E13E932029CD5D0F459C01AFA35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ Folder scanner - визуально анализирует диск / папку
 magnet:?xt=urn:btih:4471BEBC0673C28523C871C681FF39E4C176292E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ VA - Chillout King Ibiza: The Relax Smoothie (2016) [AAC|~326 Kbps] <Lounge, Chi
 magnet:?xt=urn:btih:8A3ED6C828BCC4003C69C7303C1C9AE49EE1A285
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ System Dashboard Pro — это современная интерпретаци�
 ```bash
 magnet:?xt=urn:btih:0C1249B5D31ABA83AA3D4B22D54A5ADE73585C70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ VA - Anjunadeep: The Yearbook 2019 (2019) 2CD [FLAC|Lossless|WEB-DL|tracks] <Dee
 magnet:?xt=urn:btih:E6E354C8DAD3945BF6A4CC1128683943BB591FFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ iCollections 6 v6.7.2 [Multi]
 ```bash
 magnet:?xt=urn:btih:8AEF131B9B63AEF823D76F26B004FF64BDF25755
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ LaunchBar - функциональная замена Spotlight на Mac. Пос
 magnet:?xt=urn:btih:EB497CA65BA55D4AC3B9ABA5F691B7E95DC83345
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ Adobe Illustrator 2023 27.1.1.196 RePack by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:474ADCE87895E86AA77A5BAC1917596FDC08DE33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:474ADCE87895E86AA77A5BAC1917596FDC08DE33
 ```bash
 magnet:?xt=urn:btih:1258014F0FAB8514D28EA1E7B99C664352D42C0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ Andre 3000 & Madlib - Otis Benjamin 2.0 (MadStacks) (2019) [FLAC|Lossless|Web-DL
 magnet:?xt=urn:btih:5138865DB83124575F82E13859D9680A58BA8976
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ AnyMP4 DVD Ripper - приложение для копирования DVD-фи�
 magnet:?xt=urn:btih:55BA76B7E3170200B0E034119D0A4AAE2FAFD72C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ NCH WavePad Mater 11.45 [En]
 ```bash
 magnet:?xt=urn:btih:CDD35A359D49B7C29B349DBB441D6AA0B0AD8725
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +641,8 @@ Leprous - Pitfalls (2019) [FLAC|Lossless|image + .cue] <Progressive Rock, Progre
 magnet:?xt=urn:btih:A91687E3389D6CD2B771CB6AC36B793497965BF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +669,8 @@ Duplicate Photos Fixer Pro является удобным приложение�
 magnet:?xt=urn:btih:E8808325EFB3A66D51DCF73EDA15B48BDB9D7E54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ Microsoft встроила в Windows 10 частичку Windows 11, превр
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

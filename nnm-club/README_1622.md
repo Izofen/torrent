@@ -22,6 +22,8 @@ VA - Electronic Wonderland (2024) [MP3|320 Kbps] <Electronic, Synthwave>
 magnet:?xt=urn:btih:97D88FB1320A29C003133D985B6D57C40C0214BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ magnet:?xt=urn:btih:97D88FB1320A29C003133D985B6D57C40C0214BC
 magnet:?xt=urn:btih:C0A6152EC261F9A945428372ED39E4AA71318F80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:C0A6152EC261F9A945428372ED39E4AA71318F80
 ```bash
 magnet:?xt=urn:btih:35E5A414D94A9581F3312DA2B5546887C4F44D11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Opera One 113.0.5230.132 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:B0BBE7E019AF1A5D66C59AE9C946902BAF1A9AAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:B0BBE7E019AF1A5D66C59AE9C946902BAF1A9AAB
 ```bash
 magnet:?xt=urn:btih:C02B42DCF7531F1FA96512381CFFE2F47ED3456D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:C02B42DCF7531F1FA96512381CFFE2F47ED3456D
 magnet:?xt=urn:btih:C8016AA3A89A4B2A82EC95A90B2DE0E8662F2846
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Rider — это кросс-платформенная интегрирован�
 ```bash
 magnet:?xt=urn:btih:A1AB122F2E3B82FDA96317AA2C84E39D5FB7D97E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Revo Uninstaller Free 2.5.0 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:DF9038D5158DD79E4245A0501CA9B6A9D0DF1F65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ How We Die (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:ECE77E44E781DF5C645AE152ECC8EBACC3CF9490
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Slackers - Carts of Glory - это гоночная адвенчура, кото
 magnet:?xt=urn:btih:40325028401C8823684D6D5ECD1CD40ACB2176AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:40325028401C8823684D6D5ECD1CD40ACB2176AF
 ```bash
 magnet:?xt=urn:btih:29D3BA5F6C7B20AD7FFC6770ADA7FBED8923BA96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ Blender - бесплатный редактор трехмерной графи�
 magnet:?xt=urn:btih:774F7D93C9E8DE5D0C5C642618DD7C1C8FE6ED26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ Icecream PDF Editor PRO - программа для поистине прост�
 ```bash
 magnet:?xt=urn:btih:230169549B7AEEA90E4E7680A070EB7FF7C8AC60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ Virtual Rides 3 - Funfair Simulator – это очередная игра в ж
 magnet:?xt=urn:btih:386A891B76D5694B93876B1BC35C8B340C3049B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:386A891B76D5694B93876B1BC35C8B340C3049B7
 ```bash
 magnet:?xt=urn:btih:E3A9DA49962B78094E5840C5D2E2EF0D89C0E813
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:E3A9DA49962B78094E5840C5D2E2EF0D89C0E813
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:E3A9DA49962B78094E5840C5D2E2EF0D89C0E813
 ```bash
 magnet:?xt=urn:btih:2B7D568BD2545687727819DFAC157BC8C75973EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ Shy | Стесняшка [2023, TV, 24 эп.] WebRip 720p raw
 magnet:?xt=urn:btih:596B537642A34E5EC9E0E8FB69C0EDA2F2ED10F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ magnet:?xt=urn:btih:596B537642A34E5EC9E0E8FB69C0EDA2F2ED10F0
 ```bash
 magnet:?xt=urn:btih:7F8626A0F6E0DB78513E4E801F5CA5CC030505EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:7F8626A0F6E0DB78513E4E801F5CA5CC030505EB
 magnet:?xt=urn:btih:72B2A5665501C2B5671C24BF466C83262E56255B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Isekai Shikkaku / No Longer Allowed in Another World / Потеря челове
 ```bash
 magnet:?xt=urn:btih:2F26D8C0CFF79C52C4B93194F747BB532418FE78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:2F26D8C0CFF79C52C4B93194F747BB532418FE78
 magnet:?xt=urn:btih:E0C97AC8EB66BDFD6A5003706CC4614EDFDA723C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Copycat (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C45DB335420E1DC40454C62BE061F22D6273914F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:C45DB335420E1DC40454C62BE061F22D6273914F
 magnet:?xt=urn:btih:D082255E2A642767121B6CAFBF259B287F66A87F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:D082255E2A642767121B6CAFBF259B287F66A87F
 magnet:?xt=urn:btih:2F7AA6781E1A73CC8226ED1F2EACC55D86196B8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:2F7AA6781E1A73CC8226ED1F2EACC55D86196B8A
 ```bash
 magnet:?xt=urn:btih:DF1232BB6B66D0EB1AD54491BF7F2D0EA4C76EE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

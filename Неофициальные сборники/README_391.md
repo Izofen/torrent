@@ -1,3 +1,33 @@
+###  Публикация: 906495   (643219) от 09.06.2015
+
+Вольфганг Амадей Моцарт - Музыка Моцарта в дорогу (2000) [MP3|320 кб/с]<Класика>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643219.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классическая музыка Моцарта в дорогу также хорошо успокаивает. Особенно это важно для детей, которые плохо переносят переезды и часто капризничают. Грамотно подобранные произведения помогут поднять малышу настроение и вернут хорошее расположение духа, не дадут ему заскучать.
+Беря с собой сборник музыки Моцарта в дорогу, родители сочетают приятное с полезным. Ведь (   Читать дальше...   )01. Don Giovanni, K 527 Finale
+02. Piano Concerto No. 6 in B Flat Major, K 238- Rondo Allegro
+03. String Quartet in G Major, K 156- Presto
+04. Serenade, K 185 Menuetto-Trio(   Читать дальше...   )Жанр: КласикаПродолжительность: 00:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7C377109F58CDED936A4E2794EED4E333979D89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906438   (643234) от 09.06.2015
 
 Вольфганг Амадей Моцарт - Музыка Моцарта для развития детей (2000) [MP3|320 кб/с]<Класика>
@@ -22,6 +52,8 @@
 ```bash
 magnet:?xt=urn:btih:E5621FB6C654AC8B3AB0F520AC0EC1C6C0F4E896
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -50,6 +82,8 @@ VA - Stars Dance 2 (2018) [MP3|320 Kbps] <Pop, Dance, Euro>
 magnet:?xt=urn:btih:4AA5E5C9CE79EA527A8872D84558D9098656D29D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +110,8 @@ VA - Empire Records: First Disco 4 (2019) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:53D9A8249418E4EF66834CF38A751AED4EB73E83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -104,6 +140,8 @@ VA - Empire Records - Mushrooms 3 (2019) [MP3|320 Kbps] <Big Room, Dance, Hands 
 magnet:?xt=urn:btih:0B51A7A014C332BFEDF32A5A411D0153BAD09C02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +168,8 @@ VA - Beutiful Chaos: Progressive Trance Mix (2019) [MP3|320 Kbps] <Progressive T
 ```bash
 magnet:?xt=urn:btih:12AFDA5EBA1B713E1C44652ED5DF64B325C3876F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -158,6 +198,8 @@ VA - Top 50 Party Schlager Charts 01.04.2019 (2019) [MP3|320 Kbps] <Pop, Schlage
 magnet:?xt=urn:btih:F539AB26A3921B207B2FE4477C91AE05AB1BF57F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +226,8 @@ VA - Future Trance Sessions: Spring Edition (2019) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:40A7019FAABCD25DCF4C487E058FC4D094AED702
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +256,8 @@ VA - Harmony Of Sound: Psy Trance Mix (2019) [MP3|320 Kbps] <Psychedelic, Goa Tr
 magnet:?xt=urn:btih:38EA448427F4C7A936392CF8FDB5AD959E10A93B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +284,8 @@ VA - Urban Life: Progressive Trance Project (2019) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:D9C90D259C3978FDD39FB461534BF89FAA9D9A0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +314,8 @@ VA - Roly-Poly: Bass Line Music (2019) [MP3|320 Kbps] <Drum & Bass,  Dubstep>
 magnet:?xt=urn:btih:81C1C9700B2D35844D398918CFB7DC6B088ACEAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +343,8 @@ VA - Клубные хиты в тачку на прокачку (2015) [MP3|256
 magnet:?xt=urn:btih:320A2F0A6BBE4A6E0354F7AEA3920F0992125A3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +371,8 @@ Kylie Minogue - Super Hits Collection (2015) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:3AA4CD021E43388FF5C95B838720929059F763F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +403,8 @@ magnet:?xt=urn:btih:3AA4CD021E43388FF5C95B838720929059F763F3
 magnet:?xt=urn:btih:71651DF38FB975D00A13078B04B6CBBEFD3132B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +432,8 @@ Tiesto - Burn (2015) [MP3|192 кб/с]<House, Progressive House>
 magnet:?xt=urn:btih:533158DAE25A70A5B3AED9DCB9CE4CCBDC3A195B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +460,8 @@ VA - Шансон на лето (2015) [MP3|256 кб/с]<Шансон>
 ```bash
 magnet:?xt=urn:btih:658EBC471C4FA201CB65F991694B104BC676CAB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +496,8 @@ VA - Звездные хиты от Europa plus (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:FB76FA309D663DA702DF7E5F165AA4B46CF67924
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +531,8 @@ VA - Летний Хитовый Бум (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:68A839C055457F6D96D01075BE67FB9FBAE55027
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +559,8 @@ VA - Vocal Drum & Bass Temptation Vol 1 (2015) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:A53CB1F2C81EB6EFB4831E77C457AF8B0B649C85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +589,8 @@ VA - Warm Morning Sea vol 3 (2015) [MP3|320 кб/с]<Lounge, Chill Out>
 magnet:?xt=urn:btih:4E8299F9871AD19DAA5632CEA868F7147612CECC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +617,8 @@ VA - Dream Dance Vol.80 (2016) [MP3|320 Kbps] <Trance, House, Dream>
 ```bash
 magnet:?xt=urn:btih:71594AE07764B6EBFE20B04A6737C10769011B41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +653,8 @@ VA - Esthetics Lounge Vol. 3 (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillou
 magnet:?xt=urn:btih:B680EE1957758E2744EF89F97E47A0A26D5AEC17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +688,8 @@ VA - NeРусский Шторм - 66 (2012) [MP3|320 кб/с]<Pop,Dance>
 magnet:?xt=urn:btih:6C5BD7DB9878A539B105ECAAAD58210CD253E472
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +716,8 @@ VA - Клавиши судьбы. Блатной суперсборник (2016)
 ```bash
 magnet:?xt=urn:btih:1886D59970CB23BB73543CED41AFEA0FA089A8D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -676,6 +752,8 @@ VA - Dancing People in The World - Top Dance (2012) [MP3|256 кб/с]<Dance>
 magnet:?xt=urn:btih:1F32523CCD8CE335F67B0B8A82075BF22BB41EBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -703,32 +781,7 @@ VA - Easy Morning: A Sweet Piano Solo Awakening (2016) [MP3|320 Kbps] <Downtempo
 magnet:?xt=urn:btih:76D959D88046A8937C9FEB815609F28B5A145651
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032631   (644023) от 08.07.2016
-
-VA - Intimate Lounge Moments: Finest Deluxe Bar and Del Mar Music (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cromatic - Sun, Dance and Wine - Afterwork Beach Cafe Mix
-02. Kylie with Robin - Nightflight to Ibiza Beach - Cafe Time Mix
-03. Unlocked Desire - Wicked Game - Hunger to Love You Cut
-04. Chillplaza - White Horse - Aurora Burials Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:55:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CF5D02EE940D10DEAAA76896461FE43B441756F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

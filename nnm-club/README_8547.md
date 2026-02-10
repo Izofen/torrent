@@ -19,6 +19,8 @@ Light Image Resizer - программа для изменения размер�
 magnet:?xt=urn:btih:F8F9318FC6BF475ABCBA82C20314A02160DE89D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Christmas Transitions — это коллекция ярких и волшебн
 magnet:?xt=urn:btih:BC3F76937FE7A4BEE3BBCD2FE943F2289C78EBC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Geneforge 1 - Mutagen - изометрическая ролевая игра в 
 ```bash
 magnet:?xt=urn:btih:F6E235050FB936D84B72F168E1192A5A6F9FDC49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:F6E235050FB936D84B72F168E1192A5A6F9FDC49
 magnet:?xt=urn:btih:BF3BAA0E9B7B4B966FD8ED86BF17BE6CCFD00A04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:BF3BAA0E9B7B4B966FD8ED86BF17BE6CCFD00A04
 magnet:?xt=urn:btih:9FE7E820B8D598B50ED971200FF1D2F28014763D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:9FE7E820B8D598B50ED971200FF1D2F28014763D
 ```bash
 magnet:?xt=urn:btih:DD660D989D64D85D8DC6629F6512FB7D033E2727
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:DD660D989D64D85D8DC6629F6512FB7D033E2727
 magnet:?xt=urn:btih:877ED8F2C35034D95901BC01580E553C15A43917
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:877ED8F2C35034D95901BC01580E553C15A43917
 ```bash
 magnet:?xt=urn:btih:A308C556803ADE4C21788571838EA69BE5AF9AC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:A308C556803ADE4C21788571838EA69BE5AF9AC5
 magnet:?xt=urn:btih:AB238E1BA65F911E8C7801AB43B9C9645183E80C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:AB238E1BA65F911E8C7801AB43B9C9645183E80C
 ```bash
 magnet:?xt=urn:btih:DABD111921C0B7623204F4D7AC280B1BAD001F1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ RadioMaximus 2.33.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:AAA805C9E4641005DF3E12F47BCBF8C4C4211317
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:9E366922C634C4C9034ED2B26D6745285F137695
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:9E366922C634C4C9034ED2B26D6745285F137695
 magnet:?xt=urn:btih:3D4019F58DBD3BE64A16162C4974D151EE0BD24D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:3D4019F58DBD3BE64A16162C4974D151EE0BD24D
 ```bash
 magnet:?xt=urn:btih:E5CB88E818935C58856DED96691A698A57F504D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Lovely Memories Moments — это элегантный кинематограф
 magnet:?xt=urn:btih:62350F2A8E3BC38014DBEF5E4863CB0DC34D4B8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Fatal Claw (2025) [Ru/Multi] (0.9.81) Repack Let'sРlay [Early Access]
 ```bash
 magnet:?xt=urn:btih:90099B1B71227569EEAC10E3D6FDBBC543C90571
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:2F0A9103C58BB8D7F96FBB32E8EC685E9CAC2820
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:2F0A9103C58BB8D7F96FBB32E8EC685E9CAC2820
 ```bash
 magnet:?xt=urn:btih:8872631A197FD1B1BC2099AEC6F6648C6E78C197
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ Offer Sale Labels — это высококачественный видеоша
 magnet:?xt=urn:btih:7C5F12A8A23BE4DC8C37B62C302B3533A5D4383D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:7C5F12A8A23BE4DC8C37B62C302B3533A5D4383D
 ```bash
 magnet:?xt=urn:btih:BE2CA89A9AF3EDC1A3A4E61AF1B6E242C0D380E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:BE2CA89A9AF3EDC1A3A4E61AF1B6E242C0D380E9
 magnet:?xt=urn:btih:FCEC197AFC9827FDAF86ED7D7A1ED9A217F8D76D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:FCEC197AFC9827FDAF86ED7D7A1ED9A217F8D76D
 magnet:?xt=urn:btih:7953FFF48287EF51F3ED774731A5F645BAAD82B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:7953FFF48287EF51F3ED774731A5F645BAAD82B0
 ```bash
 magnet:?xt=urn:btih:4BB27C7E3E9AF58135CF863B580E7EC6CD4AC837
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:4BB27C7E3E9AF58135CF863B580E7EC6CD4AC837
 magnet:?xt=urn:btih:71FCB7DDC4631DD9C8825328610540760B02535C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:71FCB7DDC4631DD9C8825328610540760B02535C
 ```bash
 magnet:?xt=urn:btih:8803A3026B8040D67F786493A63D8A05EF86C3D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:8803A3026B8040D67F786493A63D8A05EF86C3D3
 ```bash
 magnet:?xt=urn:btih:196732B904BA8A5392F3FAB061200F7038C91A1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

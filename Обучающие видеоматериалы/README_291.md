@@ -22,6 +22,8 @@ OTUS, Дмитрий Бугайченко | Промышленный Machine Lea
 magnet:?xt=urn:btih:D744B5642DF10B814DEA9CEAC5B44D566D30CAC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Joakim Karlsson | Все видео, которые я когда-либо де�
 magnet:?xt=urn:btih:9BBEB48FC8EDEB9335D07B0A674B6FB9D9D25129
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:9BBEB48FC8EDEB9335D07B0A674B6FB9D9D25129
 ```bash
 magnet:?xt=urn:btih:7D3200889452562831A1A25FD8A6F2D8B638D495
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Gumroad, Jose Moreno (Parabox) | Скульптинг персонажа в Blen
 ```bash
 magnet:?xt=urn:btih:22F08C55D50B223F74A45414EB681D7348CB1479
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:22F08C55D50B223F74A45414EB681D7348CB1479
 magnet:?xt=urn:btih:A265C34EC1B000B9725BCC54570AAEAD76CFFE6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ CG Fast Track | Быстрый путь в Blender 2.80: Создание сце
 ```bash
 magnet:?xt=urn:btih:2A91774B3BE9E36146762E6D56C7EA27EF509234
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ Udemy, Мефодий Келевра | Maximum Paranoid v.2 (2021) PCRec
 magnet:?xt=urn:btih:1F7C2BF550216B8EC61D78E7817DF75752A85904
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ Thinknetica Pro, Святослав Крюков | Оптимизация зап
 magnet:?xt=urn:btih:8119CFB4ED48B701B1DCBA370416F897DE747EFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:8119CFB4ED48B701B1DCBA370416F897DE747EFE
 ```bash
 magnet:?xt=urn:btih:3C8D2D1C2774E830A8CF33D33592FCF10C7EC190
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:3C8D2D1C2774E830A8CF33D33592FCF10C7EC190
 magnet:?xt=urn:btih:A3FD46C988791BCED9673CF01736CB4D462AC4E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:A3FD46C988791BCED9673CF01736CB4D462AC4E6
 ```bash
 magnet:?xt=urn:btih:C38EBCA6101E036DF33175E857F021BA7F79D2B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ Udemy, Neil Cummings | Complete guide to building an app with .Net Core and Reac
 ```bash
 magnet:?xt=urn:btih:EC64CDD8B7A8B2B205CCD7A8BECDF69240E6365C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:EC64CDD8B7A8B2B205CCD7A8BECDF69240E6365C
 magnet:?xt=urn:btih:108F73B0C5AECD50183E08C4EC8972D6B37989AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:108F73B0C5AECD50183E08C4EC8972D6B37989AA
 ```bash
 magnet:?xt=urn:btih:489FADC1D42F00201DB58235DE06784A8204D2E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ Cornacchia | Школа Фотоарта. Весна ' 2016 (2016) PCRec
 magnet:?xt=urn:btih:E5D16775D61C70A46349C53E48D379C253D3C29E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:E5D16775D61C70A46349C53E48D379C253D3C29E
 magnet:?xt=urn:btih:426236A1E34157E20724B36FCC3B6338528B3607
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:426236A1E34157E20724B36FCC3B6338528B3607
 ```bash
 magnet:?xt=urn:btih:827ED619581BE90F60136CCA437EB161F0FF35EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +484,8 @@ magnet:?xt=urn:btih:827ED619581BE90F60136CCA437EB161F0FF35EC
 magnet:?xt=urn:btih:89F9B3211CF2907F83F0BD49223BDD09592F2558
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ Udemy | Практика. Premiere Pro создание простого рол�
 ```bash
 magnet:?xt=urn:btih:BC9BF5638C09365DB31D97C07D5CFFB2BC20A2DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +540,8 @@ Sean Hewitt | Rigging for Games (2020) PCRec [En, Ru]
 magnet:?xt=urn:btih:E116452799E36473294EE6CE552B836BEEB0F393
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ magnet:?xt=urn:btih:E116452799E36473294EE6CE552B836BEEB0F393
 ```bash
 magnet:?xt=urn:btih:8086DC65388321870CB4A45A56E422670B5FEA8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +595,8 @@ Deworker Pro, Дмитрий Елисеев | Что есть React: Пишем 
 magnet:?xt=urn:btih:F1CA4A619347E5D4874940CEE3EFE44F0828B993
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +621,8 @@ Skillshare, Darrin Lile | Создание анимированного перс
 ```bash
 magnet:?xt=urn:btih:F896C66F4395505C43C93DD5F463FE643AD2ACEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +649,8 @@ Soft Skills помогают лучше выполнять (   Читать д�
 ```bash
 magnet:?xt=urn:btih:9E5440AF1770D468A1C09F69911EC8751E72319D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +679,8 @@ fullstack.io, Amelia Wattenberger | Fullstack D3 Мастер-класс / Fulls
 magnet:?xt=urn:btih:0037E31C36A86492EE735127E8897D3287F925CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ Gumroad, Danar Worya | Введение в продвинутый дизайн �
 ```bash
 magnet:?xt=urn:btih:309FB42A408CD30B5366F8C18CA1C6FD545CFE0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

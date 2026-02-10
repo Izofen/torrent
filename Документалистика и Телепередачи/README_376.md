@@ -1,3 +1,29 @@
+###  Публикация: 934213   (503756) от 04.09.2015
+
+Право голоса.Нашествие нелегалов (04.09.2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503756.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Право голоса» - это место для дискуссий и арена для политических баталий. Здесь поднимаются самые острые общественно-политические проблемы страны. В этой студии нет безразличных ораторов и безучастных зрителей. У нас каждый имеет право высказаться и быть услышанным. Мы задаем политикам и чиновникам неудобные вопросы, потому что хотим получить честные ответы. Здесь (   Читать дальше...   )В этом выпуске: Европу захлестнула волна нелегальных мигрантов и беженцев. Кто виноват в том, что сотни тысяч людей бросают собственные дома и бегут в сторону европейского континента? Что в этой ситуации могут реально сделать в Берлине, Париже и Лондоне?Телекомпания: ТВ-ЦентрЖанр: Ток-шоу, дискуссия, политикаПродолжительность: 01:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82DC1190BD7241A7C70834B549BF78BB1BB39534
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934348   (503760) от 04.09.2015
 
 Познавательный фильм. Радужка глаз (2015) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:55A791A5CFBA071014BF3CC83786A7D0F12F1744
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:55A791A5CFBA071014BF3CC83786A7D0F12F1744
 magnet:?xt=urn:btih:9BBDE3FC40827DA8F6F906124E734D8417DB9B2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:9BBDE3FC40827DA8F6F906124E734D8417DB9B2D
 ```bash
 magnet:?xt=urn:btih:BE35E7E590DE2DDA716B58DE34801D6F5A848438
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:BE35E7E590DE2DDA716B58DE34801D6F5A848438
 magnet:?xt=urn:btih:C917C39B79CB1D418384DA8B524AB3D4C8002A13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ History Channel. Оружие войны / Weapons at War (1992-1994) SATRip (17
 ```bash
 magnet:?xt=urn:btih:DAF59DB500BDFA832C1C174E6D58AA1714754DCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:DAF59DB500BDFA832C1C174E6D58AA1714754DCD
 magnet:?xt=urn:btih:73DDA1F10E9F43E09A02227FC459495C2E7070FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:73DDA1F10E9F43E09A02227FC459495C2E7070FE
 ```bash
 magnet:?xt=urn:btih:F4F1865CD8BFE53E97BB4BE37F4F1AC963CB21B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:F4F1865CD8BFE53E97BB4BE37F4F1AC963CB21B2
 magnet:?xt=urn:btih:83571FD3781C09204949BD923A3EED85B3CA5F6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:83571FD3781C09204949BD923A3EED85B3CA5F6C
 ```bash
 magnet:?xt=urn:btih:18C1F3E123257DBBCD2DD6D6E4385E5CFFD04381
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:18C1F3E123257DBBCD2DD6D6E4385E5CFFD04381
 magnet:?xt=urn:btih:CB705C6F35D0199A1ABF2D92B3C604D2ABD71A5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:CB705C6F35D0199A1ABF2D92B3C604D2ABD71A5B
 ```bash
 magnet:?xt=urn:btih:D15A40FE03D23F5ADBC4BC0326547C018B4CD279
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:D15A40FE03D23F5ADBC4BC0326547C018B4CD279
 magnet:?xt=urn:btih:AACEA926527B29D26529C0221E7E6221E450AF95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +356,8 @@ magnet:?xt=urn:btih:AACEA926527B29D26529C0221E7E6221E450AF95
 ```bash
 magnet:?xt=urn:btih:0D1FE7471E3AE4D2566E9993AA19A2D329A2A785
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:0D1FE7471E3AE4D2566E9993AA19A2D329A2A785
 magnet:?xt=urn:btih:7EFE2A6A097498DF3282C2979CAF00682CB7AAF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +409,8 @@ magnet:?xt=urn:btih:7EFE2A6A097498DF3282C2979CAF00682CB7AAF4
 magnet:?xt=urn:btih:2F8E80D2237DC95935C7BCCE1AC41E57A1752F9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +434,8 @@ magnet:?xt=urn:btih:2F8E80D2237DC95935C7BCCE1AC41E57A1752F9E
 ```bash
 magnet:?xt=urn:btih:ACC3B578F910E3B462213305C92FDBBC2F38D5D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:ACC3B578F910E3B462213305C92FDBBC2F38D5D4
 magnet:?xt=urn:btih:6B89CDC1DE826F23A6EAC1EC9BCA861353E06029
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +487,8 @@ magnet:?xt=urn:btih:6B89CDC1DE826F23A6EAC1EC9BCA861353E06029
 ```bash
 magnet:?xt=urn:btih:A1046DEB2915C6F2F8CA86F71A60E7A6752AB7C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:A1046DEB2915C6F2F8CA86F71A60E7A6752AB7C2
 magnet:?xt=urn:btih:8890969C6D3D147F231D893BC5280E4A50C67736
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +539,8 @@ magnet:?xt=urn:btih:8890969C6D3D147F231D893BC5280E4A50C67736
 ```bash
 magnet:?xt=urn:btih:4879ADA1A8CF981892EE289031A5B9ACD27CAF4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:4879ADA1A8CF981892EE289031A5B9ACD27CAF4C
 magnet:?xt=urn:btih:AA11E586AEAA366156105C9678962985572EC4F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +592,8 @@ magnet:?xt=urn:btih:AA11E586AEAA366156105C9678962985572EC4F7
 magnet:?xt=urn:btih:98B29F98C561D01942E6BC5711B2B0BC001D1676
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +617,8 @@ magnet:?xt=urn:btih:98B29F98C561D01942E6BC5711B2B0BC001D1676
 ```bash
 magnet:?xt=urn:btih:7FEE96215531F95687D43057BB4C63DB0AB82D61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +645,8 @@ magnet:?xt=urn:btih:7FEE96215531F95687D43057BB4C63DB0AB82D61
 magnet:?xt=urn:btih:B47D63EB95EBB76CEDD1C4CE4BF439204BCC59D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,29 +671,7 @@ magnet:?xt=urn:btih:B47D63EB95EBB76CEDD1C4CE4BF439204BCC59D2
 magnet:?xt=urn:btih:A2D792237EFDA0309216DF48A9875E35C598E097
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316396   (505771) от 26.07.2019
-
-Тайное царство: Грибы, определившие наш мир / The Kingdom: How Fungi Made Our World (2018) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всей сушей правит одно скрытое от глаз царство. Грибы можно встретить не только в лесу – они повсюду: на наших ногах, в наших легких, чего бы вы не коснулись и куда бы вы не пошли. Окунитесь в мир неизведанных и могучих древних организмов.Производство: Канада, Real to Reel Productions, Smith & NashtЖанр: Документальный, познавательныйРежиссер: Annamaria TalasПеревод: Двуголосый профессиональный, 1ТВЧПродолжительность: 00:52:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0333061FDCCE2FB31F4E4E82BD3564044B29812
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

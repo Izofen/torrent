@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:1E5FD748F37EFC75310767CB70C189625049F53F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:1E5FD748F37EFC75310767CB70C189625049F53F
 ```bash
 magnet:?xt=urn:btih:CC43A3415A7A05FF4DF4EA6F36BC3EB3AC42AFD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Haydee 3 (2025) [Ru/Multi] (1.0.20.1523) Repack DjDI
 magnet:?xt=urn:btih:5FF85535FE66183CE601028E2AB185729B72EE81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:5FF85535FE66183CE601028E2AB185729B72EE81
 ```bash
 magnet:?xt=urn:btih:C30CA0BF91DEA5D3BD8AC065262BFD4B90D5951C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:C30CA0BF91DEA5D3BD8AC065262BFD4B90D5951C
 magnet:?xt=urn:btih:4446192239955206E959C99E635651C4FF52A2DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Vigil: The Longest Night (2020) [Ru/Multi] (0311/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:3E9719CDD9AFAE7FCB7A6B0869747A6303C7B817
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:3E9719CDD9AFAE7FCB7A6B0869747A6303C7B817
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:3E9719CDD9AFAE7FCB7A6B0869747A6303C7B817
 ```bash
 magnet:?xt=urn:btih:2F4C2B4E111505D768331DDA0F9AF2CA9DBCF712
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack DjDI [Complete Edition]
 magnet:?xt=urn:btih:A68D985BAB90A66C4BCA9687756EA3BCC222F2B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:A68D985BAB90A66C4BCA9687756EA3BCC222F2B0
 ```bash
 magnet:?xt=urn:btih:AF5D6D8687B2EC499E31FF07B3C35C9EAA3A9C13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ ALT Linux 8 СП C10F2 [amd64] 3xDVD
 magnet:?xt=urn:btih:15C6A4A59D78761D854BC5D7E4E887F188F0BC17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Blade Abyss (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:5D7903147FABB6F6495FEBC0A4D553CD55C91786
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +330,8 @@ FxSound (ранее DFX Audio Enhancer) - отличное приложение,
 ```bash
 magnet:?xt=urn:btih:1D7653F59700DCE09056781D8C9C3530D1FCBA2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ BOUDOIR Inspiration — это платформа и журнал, посвящ�
 magnet:?xt=urn:btih:52C5E0A269264FF63C8F520AA48BE08F7CCFCE81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:52C5E0A269264FF63C8F520AA48BE08F7CCFCE81
 magnet:?xt=urn:btih:23E942BF4892C47FECF7C4EDA9FF57CEE6E61FA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:23E942BF4892C47FECF7C4EDA9FF57CEE6E61FA9
 ```bash
 magnet:?xt=urn:btih:D8B7FBC2512F1F5FF9CADB19403B9A3F6F825174
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ iTubeGo YouTube Downloader 10.2.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:4FB9C355C0AC65E6C4D0849DB25CB44B3C4671D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Liar's Bar (2024) [Ru/Multi] (0.93) Repack Pioneer [Early Access Online Only]
 ```bash
 magnet:?xt=urn:btih:98A8FAABFE1D4B50DD42BB01E2E4DC5AC7CD1E16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:98A8FAABFE1D4B50DD42BB01E2E4DC5AC7CD1E16
 magnet:?xt=urn:btih:9AE273271FA47C645395BD000815910B46F922ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:9AE273271FA47C645395BD000815910B46F922ED
 ```bash
 magnet:?xt=urn:btih:0A479818E5217FEA07F0AC2D759AD4EAB87186A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:0A479818E5217FEA07F0AC2D759AD4EAB87186A3
 magnet:?xt=urn:btih:B00B9B3C396BAE911C1CAF0748B4C973DA8C09D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:B00B9B3C396BAE911C1CAF0748B4C973DA8C09D8
 ```bash
 magnet:?xt=urn:btih:E12BD79700BC852C3F32F7B37A5905DF44F8BF1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Wartales - ролевое приключение в открытом мире, �
 magnet:?xt=urn:btih:4E4BB2E354BD1428FB3915DB09CAD0EC3B2079AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:4E4BB2E354BD1428FB3915DB09CAD0EC3B2079AA
 ```bash
 magnet:?xt=urn:btih:B5ECCD0C56420E6432B8C6738415BECF3D5CC2C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:B5ECCD0C56420E6432B8C6738415BECF3D5CC2C8
 magnet:?xt=urn:btih:8692A273A981EE67FCC71B95DAEAA0215F829AAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Colt Canyon (2020) [Ru/Multi] (1.3.1.3-8) License GOG
 ```bash
 magnet:?xt=urn:btih:DE105CB2C2C1979A8E109F6567AC3DFCBC34DD46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

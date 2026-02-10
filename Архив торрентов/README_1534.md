@@ -19,6 +19,8 @@ Wise Auto Shutdown позволяет Вам отключать компьюте
 magnet:?xt=urn:btih:F52302706849D5AB728B6EB22FD32375BE0CB6A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ MediaHuman YouTube Downloader 3.9.9.82 (1406) RePack (& Portable) by Dodakaedr [
 ```bash
 magnet:?xt=urn:btih:C2B38153F6B18B2D434DDBB9D386D84B727AAB4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Youtube Downloader HD - бесплатная и предельно проста�
 magnet:?xt=urn:btih:E71732F095BF8573FD90938CA7D039996FDCD5F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:E71732F095BF8573FD90938CA7D039996FDCD5F0
 ```bash
 magnet:?xt=urn:btih:EFCD0CDB7A80291810663CF685537DB7DDDECD66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ HitPaw Video Converter позволяет пользователям редак�
 magnet:?xt=urn:btih:A5DDC0D5888F2BE57B8D92E545D29787088BDD76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ AVS Image Converter - лёгкая в использовании програм�
 ```bash
 magnet:?xt=urn:btih:A71E510F23E3D9D96E106F43C7D307A66FD9581D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Fusion 18 — это самое современное в мире програ�
 magnet:?xt=urn:btih:C196DE3371FE98B078C3677C0853B8218BA8C835
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Visual Studio Enterprise 2019 - Интегрированное комплекс�
 ```bash
 magnet:?xt=urn:btih:83F6ED371B349CA7EB458D234A4C86A9771849D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Attribute Changer - простенькая утилита для удобног�
 magnet:?xt=urn:btih:E4551234F642A03A7F12E2BB5283CFA1EF21CE0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Total Commander 10.52 (26.10.2022) Portable by MiG [Ru/En]
 ```bash
 magnet:?xt=urn:btih:1E7E65653938D3729F6992D184593F3F961183ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:2E903C6B988AD6EF723509D0E2C93D7D0080E22B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ StartAllBack - привычная для нас программа, котора
 magnet:?xt=urn:btih:7D344C559AF74A4EC99FD8894BDD01466A2DC290
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +330,8 @@ Viber для Windows позволяет бесплатно отправлять 
 ```bash
 magnet:?xt=urn:btih:EA76B690B5B321C0EDB3A7FECDDEAC32546439D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Viber, вне зависимости от того каким устройств
 magnet:?xt=urn:btih:818B69B35F40BE8B5E6DDD94897DE70E0F3D8061
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ VideoProc Converter 4K 5.6 [Multi]
 ```bash
 magnet:?xt=urn:btih:4DA2B924AE134E60A3B54A2AC0941D001D9F59DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ UnHackMe – самый эффективный убийца любых вред�
 magnet:?xt=urn:btih:C3FE664B73EA17553408BC8A738D89979048F9CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:7DF85CDE77E97053137F7B514F0AC13F4B85B45B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ Opera 99.0.4788.77 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:259B1DE9062C5ECA79E24616871523806C76CD66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ FastCopy - инструмент для быстрого копирования/�
 magnet:?xt=urn:btih:58D03D60A8098DEEE3EBB5466D622DCC47DA153E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Driver Easy Professional — профессиональная и в тоже в�
 ```bash
 magnet:?xt=urn:btih:5F718C250369619A209044599520973D1FBCE2EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ AIMP 5.03 Build 2397 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:ED185049E848FE97CBFC5B85BB0AB376585FCFD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Antivirus Removal Tool - портативный набор официальны�
 magnet:?xt=urn:btih:32FA0FF8913AC84D793C239E5E7B5569ADA50FF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:E0F81D9BEF366A0C6DAC3180EFA95016D784D403
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ Microsoft .NET 7.0.7 Runtime [Ru/En]
 ```bash
 magnet:?xt=urn:btih:936ACF1002DE9229DD34CB85494D81D3737CAD7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ ARES Commander Edition является полноценной системой 
 magnet:?xt=urn:btih:284A3B4C53E7BE2AAD2738ACA1C2F72097D10E6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:FA9C4069C6C9B93B2AFA9EE32F976DABF9C428E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

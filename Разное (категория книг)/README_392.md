@@ -1,3 +1,29 @@
+###  Публикация: 918881   (585872) от 16.07.2015
+
+И.С. Вевюрко | Септуагинта: древнегреческий текст Ветхого Завета в истории религиозной мысли (2013) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монография посвящена крупнейшему переводному произведению Древнего мира (III-I вв. до н.э.), запечатлевшему текстуальный тип Ветхого Завета, непосредственно предшествовавший появлению Евангелий и других священных текстов христианства. Метод сквозного тематического анализа позволяет автору сформировать целостное представление о Септуагинте и ее своеобразии, выявляемом (   Читать дальше...   )Жанр: БиблеистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0CC184DD8DBAEDE739FF238612DC775415E6049
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 358027   (585888) от 02.07.2011
 
 Николай Матвиенко | Печи. Камины. Барбекю. Новый Русский Стиль [2006] [PDF]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:81E1A687099B2A7B1400202F87E97ED37995E87B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -47,6 +75,8 @@ magnet:?xt=urn:btih:81E1A687099B2A7B1400202F87E97ED37995E87B
 magnet:?xt=urn:btih:24D8BEC333260598701FE60EC1889A60F8BC89E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:24D8BEC333260598701FE60EC1889A60F8BC89E0
 ```bash
 magnet:?xt=urn:btih:269E37925062F3E640DE2975C08F6CBA1B5A3008
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:269E37925062F3E640DE2975C08F6CBA1B5A3008
 magnet:?xt=urn:btih:6C9DC6BA0F13043063F8DB64E80CE070304F040E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:6C9DC6BA0F13043063F8DB64E80CE070304F040E
 ```bash
 magnet:?xt=urn:btih:6CCD2AC5688E24690F5BC70724FF52CE06ACDC1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:6CCD2AC5688E24690F5BC70724FF52CE06ACDC1D
 magnet:?xt=urn:btih:D4FF57C85212823BE1939481806FD967E50D0245
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:D4FF57C85212823BE1939481806FD967E50D0245
 ```bash
 magnet:?xt=urn:btih:BB2269451C4D08901E29508A079CC4BE98230E81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:BB2269451C4D08901E29508A079CC4BE98230E81
 ```bash
 magnet:?xt=urn:btih:9364D2697E4B9C756B684BFFC6FA7FCA0EF2D667
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +261,8 @@ magnet:?xt=urn:btih:9364D2697E4B9C756B684BFFC6FA7FCA0EF2D667
 magnet:?xt=urn:btih:E63A502D67E534646F116EF5745B25174BCA2543
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +286,8 @@ magnet:?xt=urn:btih:E63A502D67E534646F116EF5745B25174BCA2543
 ```bash
 magnet:?xt=urn:btih:8ECBBD61F83A5C7516AAA8A27FE8FC4018C9E007
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +313,8 @@ magnet:?xt=urn:btih:8ECBBD61F83A5C7516AAA8A27FE8FC4018C9E007
 magnet:?xt=urn:btih:88C3D24B1472D66ABCF292C98F25AB38A13EB45B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:88C3D24B1472D66ABCF292C98F25AB38A13EB45B
 ```bash
 magnet:?xt=urn:btih:B47BE547BC64CD652471983AC56B27F02F2315A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +367,8 @@ magnet:?xt=urn:btih:B47BE547BC64CD652471983AC56B27F02F2315A7
 magnet:?xt=urn:btih:5E8317614FCC78EE27ACE845F0FFC9FDFF28FDD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +393,8 @@ magnet:?xt=urn:btih:5E8317614FCC78EE27ACE845F0FFC9FDFF28FDD4
 ```bash
 magnet:?xt=urn:btih:96CFEB6CC2F91447A605579CF392D2148159523C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +421,8 @@ magnet:?xt=urn:btih:96CFEB6CC2F91447A605579CF392D2148159523C
 ```bash
 magnet:?xt=urn:btih:A3746D7F42B076B957C804909D6D855E49BE444B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +451,8 @@ magnet:?xt=urn:btih:A3746D7F42B076B957C804909D6D855E49BE444B
 magnet:?xt=urn:btih:5EBB32967276C0DD89A88F999D558516AFF86F2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +476,8 @@ magnet:?xt=urn:btih:5EBB32967276C0DD89A88F999D558516AFF86F2D
 ```bash
 magnet:?xt=urn:btih:D43554B8637F90CFA055E2A82D3954EA0E3D0F9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +503,8 @@ magnet:?xt=urn:btih:D43554B8637F90CFA055E2A82D3954EA0E3D0F9D
 ```bash
 magnet:?xt=urn:btih:65C9340F4275EF490828FA0820D92B06F1E2B2F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +532,8 @@ magnet:?xt=urn:btih:65C9340F4275EF490828FA0820D92B06F1E2B2F7
 magnet:?xt=urn:btih:CBC6217C957F8E50A657906BDF4D9A04F2B36E26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +557,8 @@ magnet:?xt=urn:btih:CBC6217C957F8E50A657906BDF4D9A04F2B36E26
 ```bash
 magnet:?xt=urn:btih:A45658595A1C7BA40502264F09F6970E3CB12ED7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +584,8 @@ magnet:?xt=urn:btih:A45658595A1C7BA40502264F09F6970E3CB12ED7
 magnet:?xt=urn:btih:4F1FFD550E9EADC39AAD35BA1E1D42DC1C00E3FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +609,8 @@ magnet:?xt=urn:btih:4F1FFD550E9EADC39AAD35BA1E1D42DC1C00E3FC
 ```bash
 magnet:?xt=urn:btih:906C4BF78F3B98C70833DE03BE768672276098DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +636,8 @@ magnet:?xt=urn:btih:906C4BF78F3B98C70833DE03BE768672276098DA
 ```bash
 magnet:?xt=urn:btih:4BE66EA5EADD8999F0CB2283F6C65BE943F6E7F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +665,8 @@ magnet:?xt=urn:btih:4BE66EA5EADD8999F0CB2283F6C65BE943F6E7F4
 magnet:?xt=urn:btih:CCEF5FE51EC74167BEACE303595DB7407412919F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,29 +691,7 @@ magnet:?xt=urn:btih:CCEF5FE51EC74167BEACE303595DB7407412919F
 magnet:?xt=urn:btih:0CF73396EC0237B8B5996CDECB84E03968007375
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918160   (587694) от 14.07.2015
-
-Дэвид Марке | Разверните ваш корабль. Жесткий менеджмент от капитана лучшей подводной лодки США (2014) [PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга написана командиром атомного подводного ракетоносца Santa Fe, капитаном Дэвидом Марке. Когда его назначили руководить командой подлодки, у Santa Fe были серьезные проблемы с дисциплиной и выполнением боевых задач. Лодка считалась "гиблым местом", где можно было легко загубить офицерскую карьеру. За несколько лет Марке преврати лее в образцовый боевой (   Читать дальше...   )Жанр: БизнесФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:975CEB986FAC26442B6DCAD494FB304F3FA0159D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

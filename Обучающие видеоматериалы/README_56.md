@@ -22,6 +22,8 @@ Udemy, James Doyle | Learn To Create a Match-3 Puzzle Game in Unity (2021) PCRec
 magnet:?xt=urn:btih:12FB1AB53AE74D6ED692F3DCCA1370F4D0598BF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ magnet:?xt=urn:btih:12FB1AB53AE74D6ED692F3DCCA1370F4D0598BF8
 magnet:?xt=urn:btih:504B3725CD249BE0D392F1133965FD8A870C8BA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:504B3725CD249BE0D392F1133965FD8A870C8BA6
 ```bash
 magnet:?xt=urn:btih:498CB472899417190A87C714B75B00CEE0837F85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:498CB472899417190A87C714B75B00CEE0837F85
 magnet:?xt=urn:btih:25A5C0A82EAC56170E3A5B3C699AA9A018AE6171
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ magnet:?xt=urn:btih:25A5C0A82EAC56170E3A5B3C699AA9A018AE6171
 magnet:?xt=urn:btih:90832CDCB6AE48D1AB0E3314CC9C2BC737476EE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ magnet:?xt=urn:btih:90832CDCB6AE48D1AB0E3314CC9C2BC737476EE8
 magnet:?xt=urn:btih:82B0434F7AD561EEA8C02E0CCA8F35EE7CD0816D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:82B0434F7AD561EEA8C02E0CCA8F35EE7CD0816D
 ```bash
 magnet:?xt=urn:btih:13181CCEF4DBBC1DF2F9097DA85497C63006FC68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ Udemy, Norbert B. Menyhart | React for Beginners - From HTML CSS & JavaScript to
 ```bash
 magnet:?xt=urn:btih:44F2028A890BBE64F08417FADB4F517AE8A445A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -228,6 +244,8 @@ magnet:?xt=urn:btih:44F2028A890BBE64F08417FADB4F517AE8A445A8
 magnet:?xt=urn:btih:1002983E608035BC658FCC3A340F24030F7A0954
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ magnet:?xt=urn:btih:1002983E608035BC658FCC3A340F24030F7A0954
 ```bash
 magnet:?xt=urn:btih:1C90B5842847E22B25B8EAE03B371FF641242C72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -281,6 +301,8 @@ Udemy, Krystian Wojtarowicz | Leonardo AI: Ultimate Guide For AI Art in Leonardo
 magnet:?xt=urn:btih:01DA862C3940F8118546E40A792E14B7722341E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +329,8 @@ FXPHD, Victor Perez | NUK313 Photorealism in Compositing with NUKE Case Studies 
 magnet:?xt=urn:btih:258ADBBE30C8F5ABCD18C836E5E96682493BF417
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +354,8 @@ FXPHD, Victor Perez | NUK312 Photorealism in Compositing with NUKE Fundamentals 
 ```bash
 magnet:?xt=urn:btih:EB2B2EC8F82E8E17D7F7A0CA38C77DC483711022
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +382,8 @@ OTUS | Нагрузочное тестирование [Части 3 из 3] (20
 ```bash
 magnet:?xt=urn:btih:B2DF1CB30A304ADFEC310D0D7541A2A2B6EA9D7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +412,8 @@ magnet:?xt=urn:btih:B2DF1CB30A304ADFEC310D0D7541A2A2B6EA9D7B
 magnet:?xt=urn:btih:088F29A67E1FE4159A2B52A87AE2311FA9D2CD81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +438,8 @@ Java - это очень мощный язык, который использу�
 ```bash
 magnet:?xt=urn:btih:9A0D68BCBC869FAE49D213E73AE4877CD8B910D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +468,8 @@ magnet:?xt=urn:btih:9A0D68BCBC869FAE49D213E73AE4877CD8B910D8
 magnet:?xt=urn:btih:3D05EE1A31099CC0C0C8434349B0FE5F7CADA5D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +497,8 @@ Udemy, Grim Future Studio | Unreal Engine - базовый курс. С нуля
 magnet:?xt=urn:btih:FA54C6527F9CE2B04242FE840994299751386CA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +522,8 @@ CGMA, Emilia Schatz | Level Design for Games (2019) PCRec
 ```bash
 magnet:?xt=urn:btih:19B2279905442DEF4FE1F7018CDA25316242F5AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +549,8 @@ magnet:?xt=urn:btih:19B2279905442DEF4FE1F7018CDA25316242F5AF
 magnet:?xt=urn:btih:5669D274CE0DA10768B87434DA8F028782D07612
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +574,8 @@ Genius Courses, Александр Сокирка | Марафон по WordPres
 ```bash
 magnet:?xt=urn:btih:1986446FC365AD08974CC596172D31F52F17A267
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +604,8 @@ magnet:?xt=urn:btih:1986446FC365AD08974CC596172D31F52F17A267
 magnet:?xt=urn:btih:F963B0D3F0BD8D2CBBADBA19653087D86CABC583
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +629,8 @@ CGMA, Frank Tzeng | Hair Creation & Styling for Games (2016) PCRec
 ```bash
 magnet:?xt=urn:btih:D37ECEFA46AA6FDD276066D6899E22AE99ABFA12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +657,8 @@ Learn Squared, Steve Wang | Concept Art Hacks (2019) WEB-DLRip [RU, EN]
 ```bash
 magnet:?xt=urn:btih:53EF0C9E9623F38CD015AAEA3B29F04A8D06B68C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +687,8 @@ Whitephotoschool, София Карайванская | Коммерческая
 magnet:?xt=urn:btih:E6D4C8CD45AB7425B7708684308F21CF0A7E27E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +715,8 @@ magnet:?xt=urn:btih:E6D4C8CD45AB7425B7708684308F21CF0A7E27E5
 ```bash
 magnet:?xt=urn:btih:FD8D5C505482C15C784EF097B3560130D5921CBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1497470   (864568) от 22.09.2021
+
+Хайдарали Усманов | Охотник (Книга 6). Идет охота на волков! (2021) [MP3, Борис Клейнберг]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глаза в глаза… Ножи в ножи! Встреча с теми, кто считает всех разумных лишь кормом на пути к величию… Что принесет она Артему, который просто хочет защитить своих близких? Продолжения приключений Артема в мирах Содружества.Жанр: Боевая фантастика, космическая фантастика, попаданцыПродолжительность: 12:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27D2A423518CC730AB0532DF8A21CA1BDA45FF61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497460   (864574) от 22.09.2021
 
 Валерий Шмаев | Мститель (Книга 5). Лето надежд (2021) [MP3, Петр Коршунков]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:E53566D24F1421C2BADEDA58ED533625503ADCC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:E53566D24F1421C2BADEDA58ED533625503ADCC4
 magnet:?xt=urn:btih:CCE4540739FCF477025C3521DB9EDB79534F4656
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:CCE4540739FCF477025C3521DB9EDB79534F4656
 ```bash
 magnet:?xt=urn:btih:0018ADA2C1418444B44E3B56259C716FFB420F92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +128,8 @@ magnet:?xt=urn:btih:0018ADA2C1418444B44E3B56259C716FFB420F92
 magnet:?xt=urn:btih:5AB44F81311E362CE799892785270C5F2BAC8857
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:5AB44F81311E362CE799892785270C5F2BAC8857
 ```bash
 magnet:?xt=urn:btih:F3C19A56C3A58BCFD066783A99D74EDEF0B9B28F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +181,8 @@ magnet:?xt=urn:btih:F3C19A56C3A58BCFD066783A99D74EDEF0B9B28F
 magnet:?xt=urn:btih:01DC390B94DE3BB5B4A0F29D260BB6928EA911EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:01DC390B94DE3BB5B4A0F29D260BB6928EA911EF
 ```bash
 magnet:?xt=urn:btih:A08CF70A97E73D5F3E42142B617E4892711B0B11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +234,8 @@ magnet:?xt=urn:btih:A08CF70A97E73D5F3E42142B617E4892711B0B11
 magnet:?xt=urn:btih:8F4037455E5DD90D277A32B19770698CEE6C0B94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +259,8 @@ magnet:?xt=urn:btih:8F4037455E5DD90D277A32B19770698CEE6C0B94
 ```bash
 magnet:?xt=urn:btih:6E8713CD855CDCDF7709B44B22BE4CD4FA3AA336
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +287,8 @@ magnet:?xt=urn:btih:6E8713CD855CDCDF7709B44B22BE4CD4FA3AA336
 magnet:?xt=urn:btih:335AD295C104F009FA7365B357250B510F6775D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:335AD295C104F009FA7365B357250B510F6775D1
 ```bash
 magnet:?xt=urn:btih:27D602D4E19FDF2131A573A355FFD8C5733DF8A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +342,8 @@ magnet:?xt=urn:btih:27D602D4E19FDF2131A573A355FFD8C5733DF8A5
 magnet:?xt=urn:btih:163F5D8DDC3DD8D3C27F61397638BBCB847A0C91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +367,8 @@ magnet:?xt=urn:btih:163F5D8DDC3DD8D3C27F61397638BBCB847A0C91
 ```bash
 magnet:?xt=urn:btih:18C8BA46E988B5F5282B9D456C99CFDF3947E45D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +394,8 @@ magnet:?xt=urn:btih:18C8BA46E988B5F5282B9D456C99CFDF3947E45D
 magnet:?xt=urn:btih:44C20B48446C00AF62B3BF1BF98C4C5E514DDAED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +420,8 @@ magnet:?xt=urn:btih:44C20B48446C00AF62B3BF1BF98C4C5E514DDAED
 magnet:?xt=urn:btih:5BD7283C6F759BE62063D6178578456EBE8AA3FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +445,8 @@ magnet:?xt=urn:btih:5BD7283C6F759BE62063D6178578456EBE8AA3FA
 ```bash
 magnet:?xt=urn:btih:2CADBD448CA484FFC60B66D571959137ABA00B1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +473,8 @@ magnet:?xt=urn:btih:2CADBD448CA484FFC60B66D571959137ABA00B1E
 magnet:?xt=urn:btih:07EBD96D84761486D96DB2045DD3F3350FFEFCAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +498,8 @@ magnet:?xt=urn:btih:07EBD96D84761486D96DB2045DD3F3350FFEFCAC
 ```bash
 magnet:?xt=urn:btih:0EA77DEAB8B8163458DDE017D9681FC505B5484E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +528,8 @@ magnet:?xt=urn:btih:0EA77DEAB8B8163458DDE017D9681FC505B5484E
 magnet:?xt=urn:btih:BB410B4FC47D7D57BC4F8065ABCF82ECF87D93F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +555,8 @@ magnet:?xt=urn:btih:BB410B4FC47D7D57BC4F8065ABCF82ECF87D93F2
 magnet:?xt=urn:btih:F8669707A15E273C3DA465A99A231F09EEB0C22D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +581,8 @@ magnet:?xt=urn:btih:F8669707A15E273C3DA465A99A231F09EEB0C22D
 magnet:?xt=urn:btih:25411A96B969D32C9F7EDE902D3A672ACB19DFBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +606,8 @@ magnet:?xt=urn:btih:25411A96B969D32C9F7EDE902D3A672ACB19DFBB
 ```bash
 magnet:?xt=urn:btih:7D40F6F5E9F356525E8E3EFB310649C49953BC3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +634,8 @@ magnet:?xt=urn:btih:7D40F6F5E9F356525E8E3EFB310649C49953BC3E
 magnet:?xt=urn:btih:BE5610954390603C1084596CC69DE935C366C3C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +659,8 @@ magnet:?xt=urn:btih:BE5610954390603C1084596CC69DE935C366C3C8
 ```bash
 magnet:?xt=urn:btih:7022A1FD415BAFE2ACB9A707FA90049FE90AAB1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,29 +686,7 @@ magnet:?xt=urn:btih:7022A1FD415BAFE2ACB9A707FA90049FE90AAB1B
 magnet:?xt=urn:btih:BCB0C1323F3A0ECE8A025481BDD1FB84CBD991C5
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107074   (867864) от 22.02.2017
-
-Юрий Брайдер, Николай Чадович | Ищейка (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867864.jpg" />
-</div>
-
-
-###  Подробнее
-
-После травмы у милиционера Кулькова ослабло зрение, но чрезвычайно обострилось обоняние. Он стал различать тончайшие запахи. Вначале эта его новая способность доставляла ему множество неприятностей, но затем он свыкся с ней и даже научился её использовать.Жанр: ФантастикаПродолжительность: 02:25:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F805381C97156BEADC6361B4B1D274AC30FB2354
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -21,6 +21,8 @@ VA - 100 Violin Masterworks (2018) [MP3|320 Kbps] <Classical>
 magnet:?xt=urn:btih:7164DEA7AD82CF48C537C3B186DB3FE18A78F3D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Catherine Lara - Bô, le voyage musical (2018) [FLAC|Lossless|WEB-DL|tracks] <Cl
 magnet:?xt=urn:btih:4175965F790365987195C7E2EDD3BB10BAE3F454
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ Mузыкальный коллектив концентрируется на а�
 ```bash
 magnet:?xt=urn:btih:5BA83CA9366DE1B06BF86848B136040592D0E92D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +107,8 @@ Jacqueline Leung - In Sunshine or In Shadow (2018) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:F369BF6238CA08B171C98038829A2EADD51F977C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ Akira Kosemura - In The Dark Woods (2017) [FLAC|Lossless|WEB-DL|tracks] <Modern 
 ```bash
 magnet:?xt=urn:btih:FD55593FDC4C506BFE2B29DF5A37616A0B213950
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -155,6 +165,8 @@ Andrew Jasinski - Sea (2014) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ne
 magnet:?xt=urn:btih:45F1595F7D23EBB3FA5EE2435B579DDB4D6E9A04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +193,8 @@ Andrew Jasinski - Embracing the Universe (2017) [FLAC|Lossless|WEB-DL|tracks] <M
 ```bash
 magnet:?xt=urn:btih:98C19181F0487815A9E0062DED546570E38A11D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -209,6 +223,8 @@ Concerto No. 1
 magnet:?xt=urn:btih:0ED3AC30438511152F62343156AF34CE27B50DF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +251,8 @@ Yann Tiersen - EUSA (2016) [FLAC|Lossless|tracks + .cue] <Neoclassical, Contempo
 ```bash
 magnet:?xt=urn:btih:247D54A9DFE800BA24E6B64C0F4BFE41395AACDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +281,8 @@ B	Larghetto(   Читать дальше...   )Жанр: ClassicalПродолж
 magnet:?xt=urn:btih:8FD81D856603513F877B78470B07969038E58A38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +309,8 @@ A3	Band 3: Menuetto: Moderato(   Читать дальше...   )Жанр: Class
 ```bash
 magnet:?xt=urn:btih:C311D4914A78901EEA13542F8A800A530B2C6B8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +339,8 @@ Tristan und Isolde (1865)(   Читать дальше...   )Жанр: Classical
 magnet:?xt=urn:btih:6023A457FB85AAD13FC7A9705F9BA521D5B4B8CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +367,8 @@ Rossini - L'inganno felice (2008) 2CD [APE|Lossless|image + .cue] <Opera, Classi
 ```bash
 magnet:?xt=urn:btih:2A50DD31D639D43A56C1143E46AD6086FCDEB449
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +397,8 @@ Giuseppe Verdi - Aroldo (1980) [APE|Lossless|image + .cue] <Opera,Classical>
 magnet:?xt=urn:btih:0B7CE141C9184E880DE6D27B32D4E6880A3690E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +425,8 @@ The London Promenade Orchestra - Beautiful Melodies With A Touch Of The Classics
 ```bash
 magnet:?xt=urn:btih:2DCFBE216704AE39F73CE577040DC07ECE4AC175
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +455,8 @@ Bing & Ruth - No Home of the Mind (2017) [FLAC|Lossless|tracks + .cue] <Electron
 magnet:?xt=urn:btih:7E5397C41B7876B329EADBFFB749DBB6897276B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +483,8 @@ The Planets - Дискография (2002) [FLAC|Lossless|tracks + .cue] <Pop, 
 ```bash
 magnet:?xt=urn:btih:D772310AAA0581FC53F4724899EA24B04955E082
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +513,8 @@ VA - Winter Classical Sessions (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 magnet:?xt=urn:btih:25DB36D1CCB204A7933E39EBF7F016A1CA5F438D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +541,8 @@ Julien Marchal - INSIGHT (2015) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical, Pia
 ```bash
 magnet:?xt=urn:btih:F0CA67A0C4DA7DA06DF8928CF7BEE2BE22F53693
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +571,8 @@ Julien Marchal - INSIGHT II (2016) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical, 
 magnet:?xt=urn:btih:2ABEBE93308070B306EC0177D0433C7747F97F00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +599,8 @@ The Planets - Classical Graffiti (2002) [MP3|320 Kbps] <Pop, Classical>
 ```bash
 magnet:?xt=urn:btih:735E838B094BDDDA9005E5C7C0D44C7FDAC16AC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +629,8 @@ A4 Romanza(Manuel Ponce, Niccolo Paganini)(   Читать дальше...   )Ж
 magnet:?xt=urn:btih:7A768C6DB87E3A3079E947FF231D292D1C519D50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +657,8 @@ VA - The Holiday Season Classical Selection (2021) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:617A2652A360360715B1078CB7B485DAA07CD8C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +687,8 @@ Flute Concerto no. 1 in G major, K 313
 magnet:?xt=urn:btih:C2EAC3CC4736EFB78D6431299475ABA1EF3C275B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +716,8 @@ Andrew Lawrence-King - Harp Music of The Italian Renaissance (1987) reissue  200
 magnet:?xt=urn:btih:656188F787666D8EF06460DA29D0535C6D497984
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -692,6 +742,8 @@ Act 2Жанр: Classical, balletПродолжительность: 01:03:58
 ```bash
 magnet:?xt=urn:btih:A2D74E9B04F4845EC1F6608CB43EA4941C220D72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

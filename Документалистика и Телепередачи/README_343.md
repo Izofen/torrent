@@ -1,3 +1,29 @@
+###  Публикация: 1059950   (457248) от 06.10.2016
+
+Белковский. Прямая линия (04.10.2016) WEB-DLRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный специалист телеканала "Дождь" ответил на вопросы телезрителей и Анны Монгайт.Телекомпания: ДождьЖанр: ТелепередачаПродолжительность: 00:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC16716B6FD6DBDA7F24C721E2F2ED4EB849FA53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060285   (457390) от 06.10.2016
 
 60 минут.  (06.10.2016) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:0EC508B34E138D2154D943E4A37D26368001CEAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:0EC508B34E138D2154D943E4A37D26368001CEAE
 magnet:?xt=urn:btih:4D74ED04038C1CEA7F5B6AC2182FAF31CAE8E02F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:4D74ED04038C1CEA7F5B6AC2182FAF31CAE8E02F
 ```bash
 magnet:?xt=urn:btih:ADF7FCD6F92F2B484EABCCA971360222691BC3E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +128,8 @@ magnet:?xt=urn:btih:ADF7FCD6F92F2B484EABCCA971360222691BC3E8
 magnet:?xt=urn:btih:4F5FFC7A482CC6737A5A8E0FFE51F6976E18A139
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:4F5FFC7A482CC6737A5A8E0FFE51F6976E18A139
 ```bash
 magnet:?xt=urn:btih:2413872397AC00F0425BA8345EB29AE6BD41214E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +181,8 @@ magnet:?xt=urn:btih:2413872397AC00F0425BA8345EB29AE6BD41214E
 magnet:?xt=urn:btih:FB0C6849FD8328CC9A74E66B40E0E847E0AEEB05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:FB0C6849FD8328CC9A74E66B40E0E847E0AEEB05
 ```bash
 magnet:?xt=urn:btih:B54A7B2AD7E872A997749846144EE3F1C2631F91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +233,8 @@ magnet:?xt=urn:btih:B54A7B2AD7E872A997749846144EE3F1C2631F91
 magnet:?xt=urn:btih:11BDD7F557D8914C7AC10682E69FF67D758B86AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +259,8 @@ NG. Аполлон: Лунная миссия / Apollo: Missions to the Moon (20
 magnet:?xt=urn:btih:B8E82D8CC42A4D401948A59955609917E7066255
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:B8E82D8CC42A4D401948A59955609917E7066255
 ```bash
 magnet:?xt=urn:btih:0D3B2195A9D0252F86ACA82E57E6EDBF78E98487
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +316,8 @@ magnet:?xt=urn:btih:0D3B2195A9D0252F86ACA82E57E6EDBF78E98487
 magnet:?xt=urn:btih:A5A09484C499C63AA6DC60B826A7EBD2C41BC741
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +341,8 @@ magnet:?xt=urn:btih:A5A09484C499C63AA6DC60B826A7EBD2C41BC741
 ```bash
 magnet:?xt=urn:btih:DD187E1FE38B1537E5E7660E1B1ACFF55EB4EC96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +369,8 @@ magnet:?xt=urn:btih:DD187E1FE38B1537E5E7660E1B1ACFF55EB4EC96
 magnet:?xt=urn:btih:B231CD438BD93D0D08D63C6011E2D31974CF7390
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +394,8 @@ magnet:?xt=urn:btih:B231CD438BD93D0D08D63C6011E2D31974CF7390
 ```bash
 magnet:?xt=urn:btih:CD03098821278033F0B5B51B2158F81693148F5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +422,8 @@ magnet:?xt=urn:btih:CD03098821278033F0B5B51B2158F81693148F5C
 magnet:?xt=urn:btih:2D2D5F20D06ACE096A4CC1CE678FD5ECCB4A0991
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +448,8 @@ magnet:?xt=urn:btih:2D2D5F20D06ACE096A4CC1CE678FD5ECCB4A0991
 magnet:?xt=urn:btih:794F9F506BE82FEDF25E75F1959BD6D180A01159
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +473,8 @@ magnet:?xt=urn:btih:794F9F506BE82FEDF25E75F1959BD6D180A01159
 ```bash
 magnet:?xt=urn:btih:D59DD64B82B9FAE235FAE1AE9F688C98D7894638
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +501,8 @@ magnet:?xt=urn:btih:D59DD64B82B9FAE235FAE1AE9F688C98D7894638
 magnet:?xt=urn:btih:339BC9A80A730A871019F898E6B77A1EF213AB21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +526,8 @@ magnet:?xt=urn:btih:339BC9A80A730A871019F898E6B77A1EF213AB21
 ```bash
 magnet:?xt=urn:btih:394714D17F736C7A4A89566CA5A0D3874CF9B0C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +553,8 @@ magnet:?xt=urn:btih:394714D17F736C7A4A89566CA5A0D3874CF9B0C4
 magnet:?xt=urn:btih:7544BF0CFD79273053302EE213466719E5880A2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +579,8 @@ magnet:?xt=urn:btih:7544BF0CFD79273053302EE213466719E5880A2B
 magnet:?xt=urn:btih:1697BEB7DDB6808D0C3B6F4F8009D83774332A39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:1697BEB7DDB6808D0C3B6F4F8009D83774332A39
 ```bash
 magnet:?xt=urn:btih:00B5ED5A9BA3212F3A72F320F3A10AC58301699C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +632,8 @@ magnet:?xt=urn:btih:00B5ED5A9BA3212F3A72F320F3A10AC58301699C
 magnet:?xt=urn:btih:CBF15C07D6F9DE0223EF9F599F680C681910D791
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:CBF15C07D6F9DE0223EF9F599F680C681910D791
 ```bash
 magnet:?xt=urn:btih:21A7B4F51795BD706978CA699FF71CF1BB4B2FE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,29 +684,7 @@ magnet:?xt=urn:btih:21A7B4F51795BD706978CA699FF71CF1BB4B2FE8
 magnet:?xt=urn:btih:DEBAF1078FC65D239106DA8993977768985FC49D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941896   (457975) от 29.09.2015
-
-Нераскрытые тайны. Тайна убийства Кирова (2015) SATRip
-
->>Документалистика и Телепередачи
->>Отечественная история
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смерть первого секретаря Ленинградского обкома партии Сергея Мироновича Кирова 1 декабря 1934 года потрясла всю страну. Кто стоял за этим убийством? Несмотря на то, что исполнителя быстро нашли, у историков до сих пор нет однозначного мнения, была ли эта месть стрелка-одиночки или заказное политическое убийство.Телекомпания: Россия. ОАО "Москва Медиа"Жанр: Документальный, ТелепередачаПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CE59B3CB33C9E52DB6B9741E0564B3F50365162
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

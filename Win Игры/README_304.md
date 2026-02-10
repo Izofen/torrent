@@ -19,6 +19,8 @@ CRABS MUST DIE! - шутер в открытом мире с RPG-замашка�
 magnet:?xt=urn:btih:23068A06476DA094323ED745A26E4639DC667B81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Sonic the Hedgehog 4: Episode II является продолжением Sonic
 magnet:?xt=urn:btih:ED1D670A6F241AD1EAB12A5E4FBA37BB79734DEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Dark Alleys: Penumbra Motel Collector's Edition / Темные аллеи. Мо�
 ```bash
 magnet:?xt=urn:btih:A8E2280A99CDFE71A35F6BE48BC48F7341F6127E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Warhammer 40,000: Dawn of War II - Retribution - второе отдельное
 magnet:?xt=urn:btih:A18B1D0DF9E9CBF44018EE26CAAA313370F73DAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Sonic the Hedgehog 4: Episode II является продолжением Sonic
 ```bash
 magnet:?xt=urn:btih:E67C0CF0D77B4C12CA29DEDEE0B260F825B0F76C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Fabled Legends: The Dark Piper Collector's Edition / Небывалые леге
 magnet:?xt=urn:btih:14625A952297EEC5C2CB179F614949C62FF48CB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Weather Lord  / Повелитель погоды (L) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:FC798D92822C71B74B29FB724CAC9B4FDF413A34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Wartorn - это однопользовательская рогалита с о
 magnet:?xt=urn:btih:479BE1FA582BD55CE848469BD11FF4999CD1BF56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Wartorn — это однопользовательская рогалита с 
 ```bash
 magnet:?xt=urn:btih:A4A8CDCC21444989B6C7F3F06EDC403BECF70BAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Slayer: The Demon Haunted World - это стратегическая экшен
 magnet:?xt=urn:btih:E5DE487027389B2AD25FEC7CEEDE7A1D0270FA7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Fallout 4 (2015) [Ru/Multi] (1.11.137.0.0/dlc) Repack Let'sРlay [Anniversary Ed
 ```bash
 magnet:?xt=urn:btih:7067B3EA45237BADD95FF438A43380A3A8F086FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Lost in Darklight - это увлекательная интерактивная
 magnet:?xt=urn:btih:55A95A0751A7735E782A08C374E12F64B26ECD7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Serial Cleaners - сиквел игры про профессиональног�
 ```bash
 magnet:?xt=urn:btih:ED83401B83891D40080BDF5F415E0402E9DFFAB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Darkest Dungeon 2 - сиквел готической ролевой игры, �
 magnet:?xt=urn:btih:3B984D8A43824CC8B4B896921155E762DE07889E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Curse of the Dead Gods (2021) [Ru/Multi] (1.24.4.6b) License GOG
 ```bash
 magnet:?xt=urn:btih:E9209032A009F88E56622747771BA8E51AAEF96F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ City of Beats (2023) [Multi] (20230427) License GOG
 magnet:?xt=urn:btih:FBCD1D38A0C9F7DED9D82B821746E069BBFB46E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Joyride - это увлекательная гоночная аркада с у�
 ```bash
 magnet:?xt=urn:btih:3259F24EDBB849FEE9FEF92CB2C0C04B3C69E126
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Arto - это яркий приключенческий экшен с элеме
 magnet:?xt=urn:btih:CBFDB4F468D3B92FFB479E17095884600C62ACA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Age of Wonders 4 (2023) [Ru/Multi] (1.002.003.77876/dlc) Repack DjDI [Premium Ed
 ```bash
 magnet:?xt=urn:btih:D89CE23BE256ACB2A0F1F98E391ACBB11090A714
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ Sherlock Holmes The Awakened дает возможность игроку выс
 magnet:?xt=urn:btih:5E553961CE21119063541284F25D4F5531B47E48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.7.0/dlc) Repack dixen18 [Complet
 ```bash
 magnet:?xt=urn:btih:F37DDD1F76472E3A872619CF748A2112B55C5115
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ Age of Wonders: Planetfall (2019) [Ru/Multi] (1.4.0.4c/dlc) License GOG [Premium
 magnet:?xt=urn:btih:A45AC9E8824F65CFF343453E86F0EEF1E032AD17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ Chernobyl: Origins (2023) [Ru/Multi] (Build 10809098/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:AA8FCFB0440589D08084E19F78C694BE95E1B04E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ Bramble: The Mountain King – это приключенческий хорро�
 magnet:?xt=urn:btih:1DA137A438D62E19E687FD0D31AD6D729E8262F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Between (2023) [Ru/En] (1.1.3.200423) Scene Tenoke
 magnet:?xt=urn:btih:B7D5203096A482346C4254EF7ED7EC657EAEA41A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Project Nightmares Case 36: Henrietta Kedward (2021) [Ru/Multi] (1.06) License G
 ```bash
 magnet:?xt=urn:btih:756C337FFC84F9F66BE6863A4891B31AF20ACBCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

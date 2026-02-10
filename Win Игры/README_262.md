@@ -19,6 +19,8 @@ EDENGATE: The Edge of Life (2022) [Ru/Multi] (20221004_1217_27401) Repack Other 
 magnet:?xt=urn:btih:554161F9D099D82E98DF00327525EB92E38AA044
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Twin Mind 4: Nobody's Here (2022) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:E64B567FF2EB2A9B252361677899E7A54728E3BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Ugly (2023) [Ru/Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:FA31DA147080696FAC34F7523CDF0A14DAF92E05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Boti: Byteland Overclocked (2023) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:CEDE50662A860AA6FE39CE6F716958F13B0B8281
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Steelrising (2022) [Ru/Multi] (Build 9770876/dlc) Repack Other s [Bastille Editi
 magnet:?xt=urn:btih:21E99EC6E4DB29A7819E51AF0BFB0137C0485B69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Sucker for Love: First Date повествует про парня, что од�
 ```bash
 magnet:?xt=urn:btih:8A84934068624239689AB9BAEE0430D17DEA10A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Reflections of Life 11: Spindle of Fate / Отражения жизни 11: Ве
 magnet:?xt=urn:btih:5C534F0CBA9A120ADDA2BDE5185D60BE92A719C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Unsolved Case: Fatal Clue (2022) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:D3A30E93339366C83EDBB4801053EC31FD3B7B43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Lorelai (2019) [Ru/Multi] (1.1.0a) License GOG
 magnet:?xt=urn:btih:A65141A9B9B37948F562738EBA92728597C1CF46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Downfall: Redux (2016) [Ru/Multi] (1.1.3) License GOG
 ```bash
 magnet:?xt=urn:btih:07AE5EAC572771B14F9CB01046045EE6C1D954A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Sword and Fairy 7 - китайская приключенческая ролев
 magnet:?xt=urn:btih:F9DC93F15843F623FCA05417B3CD87F7289A72AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Ninja Gaiden 4 (2025) [Ru/Multi] (1.0.1.0/dlc) Repack Wanterlude [Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:306BAFBDA15F54F7D8CF80137A5E03FC47557131
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Warcraft I: Remastered (2024) [Ru/Multi] (1.0.0.2137) Repack Necros
 magnet:?xt=urn:btih:A83C71272CF92D6012AAAEF9FCC24B5D9D9468F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Lords of Ravage - это тактическая ролевая с элемент
 ```bash
 magnet:?xt=urn:btih:2CB42DB3A00C99CD83EFE1F2ECEEB9723118E7C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Scene Rune 
 magnet:?xt=urn:btih:E4F92CD15BA5D11082C5B738769CC5B44C2EBA33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Painkiller - это современное переосмысление куль
 ```bash
 magnet:?xt=urn:btih:66F62C32A914F72345A1C04C6EEDE3D041F82AAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ ILA A Frosty Glide (2025) [Ru/Multi] (1.0.0.5) Repack Let'sРlay
 magnet:?xt=urn:btih:FBAD7ADCD11323E87B36866C15B2D11B207B8792
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Our Life: Beginnings & Always - визуальная новелла с нотк�
 ```bash
 magnet:?xt=urn:btih:90793EEE8413A35F541FA33897F4FD8BD413131D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Painkiller - это современное переосмысление куль
 magnet:?xt=urn:btih:FD6E3CA3E64DBEC3E2DB7C706CE238D2D1F7C94D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Vampire The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Repack Let's
 ```bash
 magnet:?xt=urn:btih:BED1B32723A8564E6D7A0746F393604D47F72F79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Painkiller - это современное переосмысление куль
 magnet:?xt=urn:btih:879686469AE4EE6083769EEDB90FF4A28E312617
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Ad Infinitum (2023) [Ru/Multi] (1.0.3.268591) Scene FairLight
 ```bash
 magnet:?xt=urn:btih:38E5A29EE8303E9A1F9A392F404D1162385562F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Raid on Taihoku использует сеттинг Второй мировой 
 magnet:?xt=urn:btih:091BB88CA2B78325496A0870362961162D33F919
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Stellar Monarch (2016) [En] (1.48/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:586BF505F4F81694D41C278642EECC92E374F2CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ XEL - это научно-фантастическое приключение в
 magnet:?xt=urn:btih:2FACC856D02874D54A0CE1A00AA04428C2B0AE8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ XEL - это научно-фантастическое приключение в
 ```bash
 magnet:?xt=urn:btih:2FACC856D02874D54A0CE1A00AA04428C2B0AE8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

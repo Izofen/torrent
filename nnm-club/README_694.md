@@ -19,6 +19,8 @@ Notification Widget v1.5.174 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:358EF2BE113493EB5BE3515CC32B07CD13365CB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:358EF2BE113493EB5BE3515CC32B07CD13365CB7
 magnet:?xt=urn:btih:AEA18C3714B7A6F8CD96678FEDD80198684ECB54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:AEA18C3714B7A6F8CD96678FEDD80198684ECB54
 ```bash
 magnet:?xt=urn:btih:D84D504FB513081BD063479499253CC22DF0214B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:D84D504FB513081BD063479499253CC22DF0214B
 magnet:?xt=urn:btih:9C39B82F29BACDFAA0E40F9CA5A030A3034FFAAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:9C39B82F29BACDFAA0E40F9CA5A030A3034FFAAB
 ```bash
 magnet:?xt=urn:btih:6B3CA59F47BD435245A7037385966406415905A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ INXS - Listen Like Thieves (1985) 40th Anniversary Deluxe, 2025, Petrol Records 
 magnet:?xt=urn:btih:3BCF54274A910747B0E530D37F556BEABCA5D956
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:3BCF54274A910747B0E530D37F556BEABCA5D956
 magnet:?xt=urn:btih:7D48FF242DE3139D1E107D645D208843EDBBC6FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Bria Mobile: VoIP Softphone v6.19.4 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:016442653936AA789383C8482F42BE96F3279C5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:016442653936AA789383C8482F42BE96F3279C5E
 magnet:?xt=urn:btih:2CEE4C04FB977300335FF27B2CDDC40105951133
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:2CEE4C04FB977300335FF27B2CDDC40105951133
 magnet:?xt=urn:btih:EFD239CA7D1D8AAE2037561181BD44BA027694ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:EFD239CA7D1D8AAE2037561181BD44BA027694ED
 ```bash
 magnet:?xt=urn:btih:0CB293782D32CCE845076C1F836ACE4F574FBDE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ CD1 - Original Album:
 magnet:?xt=urn:btih:EF1CCD17E7662DD333CFFF933830EBFEE6AEC7AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ VA - Nothing But... Late Night Deep House, Vol. 01 (2025) [MP3|320 Kbps] <House,
 magnet:?xt=urn:btih:E83F4CA8C184086C828F71C6939C749F657A3188
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:E83F4CA8C184086C828F71C6939C749F657A3188
 magnet:?xt=urn:btih:FDE0F675747B62D73C80052922F3F6C96FECEC1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ Notification Dots v1.2.63 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:AFB6BD612BCB3DF7D1BA9518F236985A2AB60684
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ Amos Media Co. | Scott 2020 Standard Postage Stamp Catalogue + Scott New Listing
 magnet:?xt=urn:btih:1909F29A5D3A6D56AE26B3EA72FCEA72CC3A99AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:1909F29A5D3A6D56AE26B3EA72FCEA72CC3A99AE
 magnet:?xt=urn:btih:C20C9C5E1362C4D5DDCB209461E5F2172A6D34D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:C20C9C5E1362C4D5DDCB209461E5F2172A6D34D5
 ```bash
 magnet:?xt=urn:btih:100DE7A2F9A5F297D877C2692F38C6E173FB9716
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ Imagine Dragons - Compilation (2009-2024) [MP3|320 Kbps] <Alternative rock, Indi
 magnet:?xt=urn:btih:0030ED341368BD9881B7674069395EE7B70316B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ magnet:?xt=urn:btih:0030ED341368BD9881B7674069395EE7B70316B1
 magnet:?xt=urn:btih:ED438727B64AA68DCB4B2ED265F799C354FEFB72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ magnet:?xt=urn:btih:ED438727B64AA68DCB4B2ED265F799C354FEFB72
 ```bash
 magnet:?xt=urn:btih:9071D1164D7F5B022364B2A97F9B281ADDE2EFDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ magnet:?xt=urn:btih:9071D1164D7F5B022364B2A97F9B281ADDE2EFDA
 ```bash
 magnet:?xt=urn:btih:F659E533B78DA2BAAE6649F88EA4BDFF3BEADB17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +611,8 @@ magnet:?xt=urn:btih:F659E533B78DA2BAAE6649F88EA4BDFF3BEADB17
 magnet:?xt=urn:btih:B368D76E94F43C226649AD0B6631C9EFF2296EFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +640,8 @@ VA - Compilation Part 161 Electronic (2025) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:559265D01402F5459677C7EDA618D8B8D56DEAA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +666,8 @@ magnet:?xt=urn:btih:559265D01402F5459677C7EDA618D8B8D56DEAA4
 magnet:?xt=urn:btih:0F3FBCF26233F19694C36D7554814E775296DB1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ magnet:?xt=urn:btih:0F3FBCF26233F19694C36D7554814E775296DB1A
 ```bash
 magnet:?xt=urn:btih:AEB16D93C951D51F5BE5CDB3485E040DB75652F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

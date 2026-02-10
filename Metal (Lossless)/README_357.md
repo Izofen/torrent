@@ -1,3 +1,61 @@
+###  Публикация: 1372839   (883717) от 04.04.2020
+
+Ad Infinitum - Chapter I: Monarchy (2020) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883717.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Infected Monarchy [5:46]
+ 2. Marching On Versailles [3:53]
+ 3. Maleficent [3:51]
+ 4. See You In Hell [3:50](   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:01:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65091ECAEA7CFF71E0F019A4FEC1E13C7B33F07E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103527   (883730) от 13.02.2017
+
+V.A - Shadows Of Tragedy (2011) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acedi - Drowned in Failure                              07:47
+02. Grimlair - To Kill Oneself to Exist and Choose Our Way  08:09
+03. Grimlair - Captive Souls in Slaves & Artificial Bodies  06:20
+04. Black Hate - The Glorious Moments                       08:27(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:03:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2892BFB4BDEDE150A4FF56062BE28C2FC3AB667
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 763918   (883962) от 07.03.2014
 
 Tangier - Four Winds (1989) Japan [APE|Lossless]<Hard'n'Heavy>
@@ -28,6 +86,8 @@ Tangier - Four Winds (1989) Japan [APE|Lossless]<Hard'n'Heavy>
 magnet:?xt=urn:btih:5C914A5DD7EB756DA101692462DB8B7DAF0DC7AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -55,6 +115,8 @@ Tulip - High Strangeness (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal
 magnet:?xt=urn:btih:BA24FB35F6463CD58447E469AD9A6776454DDE88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,6 +143,8 @@ AtomA - Skylight (2012) [FLAC|Lossless|tracks + .cue] <Progressive Metal, Atmosp
 ```bash
 magnet:?xt=urn:btih:9826A5598968AED616B7F927949FE22A3760A58E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +179,8 @@ Munarheim - Nacht Und Sturme Werden Licht (2014) [FLAC|Lossless]<Folk Metal/Symp
 magnet:?xt=urn:btih:2603D145F936C97FE24C59C61EE926EF0C2D785A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +207,8 @@ Red - Release The Panic (2013) Deluxe Edition [FLAC|lossless|tracks + .cue] <Alt
 ```bash
 magnet:?xt=urn:btih:2D7D52249850964936F8D573A3894311C978225D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +243,8 @@ Cannibal Corpse - Dead Human Collection: 25 Years Of Death Metal [13CD] (2013) B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +271,8 @@ Tribute альбом Queen от фирмы Adrenaline Records. На первом
 ```bash
 magnet:?xt=urn:btih:E16ABAF2984C56DF11F2B0EEFA63F9C88AC3A2A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +301,8 @@ Metalium — пауэр-метал-группа из Гамбурга,Герма
 magnet:?xt=urn:btih:79F6BB314F301E12CEDEF3E5B233BBB011D2D989
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +329,8 @@ Metalium - Demons Of Insanity - Chapter Five (2005) Japanese Edition [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:D63EC2CA04FF2F489F6A83E69514D22F7E4DF08B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +360,8 @@ Oomph! - Unrein (1998) [FLAC|Lossless]<Industrial Metal / Industrial Rock / NDH>
 magnet:?xt=urn:btih:ADD8D8045CCFC5FF60A8EA74C42F92A2BC4C3787
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +388,8 @@ Mike Dimareli Artical - Fantasy (2004) [FLAC|Lossless|image + .cue] <Shred Power
 ```bash
 magnet:?xt=urn:btih:0F93A5EB4277923AD867BABA17B458D0423722DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +424,8 @@ Corroded - 3 Альбома (2009-2012) Дискография [FLAC|Lossless]<A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +459,8 @@ Chrome Molly - 3 альбома (2CD) (1985/87 - 2013) [FLAC|Lossless]<Hard'n'He
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +489,8 @@ CD1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +517,8 @@ Sinergy — финская супергруппа, исполнявшая муз
 ```bash
 magnet:?xt=urn:btih:072560887CC9CA8A2342076E978619CC7E4DBB29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +547,8 @@ Original Album
 magnet:?xt=urn:btih:804959D15FFCCCB6514E82B19F9C7B2B690EA16E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +575,8 @@ Testament - Titans of Creation (2020) [FLAC|Lossless|WEB-DL|tracks] <Thrash Meta
 ```bash
 magnet:?xt=urn:btih:FC838705648EA3F2B5A9579C1AAEAB27FF7F2A9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +605,8 @@ Pigs Pigs Pigs Pigs Pigs Pigs Pigs - Viscerals (2020) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:163D3EC2AFB2944504A126218B3CC9933EBAAE64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +633,8 @@ Cabal - Drag Me Down (2020) [FLAC|Lossless|tracks] <Deathcore>
 ```bash
 magnet:?xt=urn:btih:A8DC41103DED30CFB1299E0D8000F10EE622A230
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +663,8 @@ Quarzum - Alma Inmaterial (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:4B4A0F32C129BB5DBDD4BA3E2F52B86BE641F9DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +691,8 @@ Eld Varg - One Man Army (2021) [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, Heavy Meta
 ```bash
 magnet:?xt=urn:btih:960AD9B18F8A738BC8A4D2BD687C491FFE8B6032
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +722,8 @@ VII. The Fallen And The Chosen One(   Читать дальше...   )Жанр: 
 magnet:?xt=urn:btih:7F142CF4EAF176D06ADE6ECAC0679331B6C61BC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +750,8 @@ CD1
 ```bash
 magnet:?xt=urn:btih:169545E09923C8700673A41BB29ACBCAB01CE8DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -676,67 +780,7 @@ Minushuman - Bloodthrone (2011) [FLAC|Lossless|image + .cue] <Melodic Death Meta
 magnet:?xt=urn:btih:B9D910E50595379BF3835A91EE0B4117D689EA9F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 763375   (886854) от 05.03.2014
-
-Therion - Theli (1996) 2014 Reissue [FLAC|Lossless]<Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Preludium (1:44)
-02. To Mega Therion (6:35)
-03. Cults Of The Shadows (5:15)
-04. In The Desert Of Set (5:29)
-05. Interludium (1:47)
-06. Nightside Of Eden (7:32)
-07. Opus Eclipse (3:41)
-08. Invocation Of Naamah (5:32)
-09. The Siren Of The Woods (9:58)
-10. Grande Finale / Postludium (4:06)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:12:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35FF81CC9B5095212974D26E48A2571C459F2671
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 763270   (887598) от 05.03.2014
-
-Kriegsmaschine - Enemy of Man (2014) [FLAC|Lossless]<Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. None Shall See Redemption (8:34)
-02. Lies of the Fathers (6:32)
-03. Farewell to Grace (7:44)
-04. Asceticism and Passion (8:45)
-05. To Ashen Havens (7:24)
-06. Enemy of Man (7:35)Жанр: Black MetalПродолжительность: 00:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58EE710F035E65DF420077A80AC0D46EAA05E9B8
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

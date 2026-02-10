@@ -22,6 +22,8 @@ VA - Sunshine Live Vol.56 (2016) [MP3|257-279 кб/с] <House, Progressive, Elec
 magnet:?xt=urn:btih:DE905777FC547DB41710267A3D29A4B490ECD301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ VACANT (VΛCΛNT) - Discography 30 Releases (2012-2020) [FLAC|Lossless|WEB-DL]<F
 ```bash
 magnet:?xt=urn:btih:0912B137F36302F62850BB6C788EDCF4657BDAAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Ioann Darkovski - Ivory Tower (2016) [MP3|320 Kbps|image + .cue|tracks + .cue] <
 magnet:?xt=urn:btih:B457AA0E65E3D312A0A85EF88EB18EF2EC8AC7FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Ulrich Schnauss (The Extremist, Ethereal 77, View To The Future) - Discography 4
 ```bash
 magnet:?xt=urn:btih:19730E9FCFCD4E79DF4ACAA960DE11005E5C9651
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ VA - The Remixes, Vol.27 (2021) [MP3|320 Kbps] < House, Progressive House, Minim
 magnet:?xt=urn:btih:A9629DA838644F405EA8998A6DE8F38F4B4AC972
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ Russian Village Boys - Kiss My Peace (2020) [MP3|320 Kbps] <Hardstyle, Hardcore,
 ```bash
 magnet:?xt=urn:btih:975BC59DE82DCE37BFE22DAA6D40E552AE1629FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ Jerro - Coming Home (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House
 magnet:?xt=urn:btih:E515388B9939FCA492AB9479ACE002A6281233CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ Little Big - With Russia From Love (2014) [MP3|320 кб/с] <Rave>
 ```bash
 magnet:?xt=urn:btih:F810F743127BB139AF6EAE6A684F5EBC29DB562E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ VA - All Killers, No Fillers LP Volume 7 (2020) [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:C422120AB6BCDFDADB8DF051BAEB535798B1D78E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ magnet:?xt=urn:btih:C422120AB6BCDFDADB8DF051BAEB535798B1D78E
 ```bash
 magnet:?xt=urn:btih:6F9BA1A1E4C6F078A838CE01886B1525801C42CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ Lemongrass - Temptations (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtem
 magnet:?xt=urn:btih:7D5CA7A1E6EA0DF1397BE4C0DC9874C09419576B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,8 @@ VA - Lounge Deluxe, Vol 3 (50 Fantastic Lounge Grooves) (2016) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:7A031B90F01347AA1BC012DAC0798AC0D3049DFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +367,8 @@ VA - Goa Vol.2 (Compiled by DJ Bim) (2016) [MP3|320 кб/с] <Trance, Psy Trance
 magnet:?xt=urn:btih:9A82EF2E8C20688368C51A4CBFCAE04F86323283
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +395,8 @@ IC3PEAK - До Свидания (2020) [MP3|320 Kbps] <Electronic, Experimental>
 ```bash
 magnet:?xt=urn:btih:1EC22FAA18669A85C25A320BB6120BD197C3EF6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +425,8 @@ Boris Brejcha - Thunderstorm (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Tech House
 magnet:?xt=urn:btih:26B5EF67CE4E2AE3A90852F05182A6504168A24E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +453,8 @@ Parov Stelar - Voodoo Sonic: The Trilogy, Pt. 2 (2020) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:990B4444CF2EFDE96E5C70D8ADD0FBDB4A2156AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +483,8 @@ Zymosis - Timeless (2020) Sentimony Records [FLAC|Lossless|WEB-DL|tracks] <Psybi
 magnet:?xt=urn:btih:57D5636F5F18632A956924FD12E5061DC2EE44C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +511,8 @@ VA - The Ultimate Gym And Fitness Beats (2020) [MP3|320 Kbps] <Progressive House
 ```bash
 magnet:?xt=urn:btih:C40757C7A022EABF5072BD0E82CAB797C4BF8507
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +541,8 @@ Penta - Swirlscape (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 magnet:?xt=urn:btih:33F2F71EB216E44695835C933E9F1AABB7D262F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +569,8 @@ VA - Workout & Fitness House (2020) [MP3|320 Kbps] <House, Progressive House>
 ```bash
 magnet:?xt=urn:btih:12C28C86768611873E82DAEBD611393F322D872D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +599,8 @@ VA - Statement Of Purpose (2007/2014) Xynthetic Netlabel [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:912FE0445BA7D55BBB40B5074F098B42117CF1CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +627,8 @@ Ab Ovo - Discography 6 Releases (2001-2009) Ant-Zen, Fluttering Dragon [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:56E9C3B69B62B4138294F6EA13D823315D3F8BBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +657,8 @@ VA - Getting Ready For Some Nightclub Action: Club & Dance Music Collection (201
 magnet:?xt=urn:btih:C0DCD2616007F173DC2A7DC19F1F98EFB365B8B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +685,8 @@ VA - Exotic Wellness Lounge and Chill Out Vol.3: Relaxing Selection of Erotic Lo
 ```bash
 magnet:?xt=urn:btih:D715C41179C57FE1E6DD5A4518D92C5A75F13319
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +715,8 @@ CD1
 magnet:?xt=urn:btih:2D25CE27DA6B91DEF89B342149966ED722AD8E23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ VA - Summer Bodies Are Made In Winter: Techno Edition (2017) [MP3|320 Kbps] <Min
 ```bash
 magnet:?xt=urn:btih:799542909CE8BCCFE006DBA291805752FCCC69AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

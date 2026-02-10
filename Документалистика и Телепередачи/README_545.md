@@ -1,3 +1,29 @@
+###  Публикация: 1216489   (749328) от 31.03.2018
+
+Захар Прилепин. Уроки русского. Наша сила, наглость и хамство (30.03.2018) HDTV [H.264/1080i-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еженедельный проект Захара Прилепина находится на стыке жанров сетевого видеоблога и аналитической телепередачи. В нем известный писатель анализирует наиболее актуальные и общественно значимые темы недели. Фигура Захара Прилепина известна не только поклонникам литературы. Его публицистические выступления никогда не оставляют аудиторию равнодушной, подтверждая известный (   Читать дальше...   )Телекомпания: НТВ HD, ООО «Гринвич Продакшн»Жанр: Телепередача, Политика, Авторская программаСубтитры: отсутствуютПродолжительность: 00:24:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9616EE13179286AD22B0E398570CB48CD2E4EFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216653   (749419) от 31.03.2018
 
 Голос. Дети (30.03.2018) WEBRip [H.264] (сезон 5, выпуск 8)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:DF57D8FD5335EA991AB92EBEBBA0248144991764
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:DF57D8FD5335EA991AB92EBEBBA0248144991764
 magnet:?xt=urn:btih:2A2F59B7FD90A85799EB33660D1EFF0834E5A947
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:2A2F59B7FD90A85799EB33660D1EFF0834E5A947
 ```bash
 magnet:?xt=urn:btih:8C06463C505FA67DC4E48178C944F77AF340F93F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:8C06463C505FA67DC4E48178C944F77AF340F93F
 magnet:?xt=urn:btih:1B1D898EBECC5F6332B9A58575BF356444A11CE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:1B1D898EBECC5F6332B9A58575BF356444A11CE2
 ```bash
 magnet:?xt=urn:btih:985F1258648B15AEDE700C306944F99EF300FA7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:985F1258648B15AEDE700C306944F99EF300FA7C
 magnet:?xt=urn:btih:F761A3BCB497A6DFAB4961A83EE8DB1A8826C3C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:F761A3BCB497A6DFAB4961A83EE8DB1A8826C3C2
 ```bash
 magnet:?xt=urn:btih:1C924B9E853F531954B5F7C88D80475FF9362D75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:1C924B9E853F531954B5F7C88D80475FF9362D75
 magnet:?xt=urn:btih:DC2451C6CF7780882D68768FF954370C65E0DC6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:DC2451C6CF7780882D68768FF954370C65E0DC6A
 ```bash
 magnet:?xt=urn:btih:7DF22250C713809E844F9E066B790C05F4BD5843
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:7DF22250C713809E844F9E066B790C05F4BD5843
 magnet:?xt=urn:btih:457B681567ADD4036FCEE7FEC480B1A2837FF1A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:457B681567ADD4036FCEE7FEC480B1A2837FF1A5
 ```bash
 magnet:?xt=urn:btih:26411B85154AAD66EAC85BF1B3FFB3B9770C7A29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:26411B85154AAD66EAC85BF1B3FFB3B9770C7A29
 magnet:?xt=urn:btih:71FB979A18C187B57F66E134D90CDFA11721ADAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:71FB979A18C187B57F66E134D90CDFA11721ADAA
 ```bash
 magnet:?xt=urn:btih:9184BB0BD1978CEBF7371C22B16CC7B55B0B32FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:9184BB0BD1978CEBF7371C22B16CC7B55B0B32FC
 magnet:?xt=urn:btih:DA5E42E7465F5CE727228EF37F5E3AB1654F579F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:DA5E42E7465F5CE727228EF37F5E3AB1654F579F
 ```bash
 magnet:?xt=urn:btih:A34531F11E66AECF03177159EFDD6B3BA462158D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:A34531F11E66AECF03177159EFDD6B3BA462158D
 magnet:?xt=urn:btih:5C4BFDC5CDEA4D4B3D5D68945FBD71A1156F063F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:5C4BFDC5CDEA4D4B3D5D68945FBD71A1156F063F
 ```bash
 magnet:?xt=urn:btih:FA1544C6A1EAEB16627B2DFEE4FFD53BDC5E8CFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:FA1544C6A1EAEB16627B2DFEE4FFD53BDC5E8CFE
 magnet:?xt=urn:btih:24884F0CC6DCD3DCD3B6F83BF98DFF60C18E2B88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +515,8 @@ magnet:?xt=urn:btih:24884F0CC6DCD3DCD3B6F83BF98DFF60C18E2B88
 ```bash
 magnet:?xt=urn:btih:664CC070493FB08DA2E525F814914DDD99887ADB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:664CC070493FB08DA2E525F814914DDD99887ADB
 magnet:?xt=urn:btih:5B8C0DEC3B8336B0F25C6E628662294EF1582D48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:5B8C0DEC3B8336B0F25C6E628662294EF1582D48
 ```bash
 magnet:?xt=urn:btih:9A3FC6152DC18AD8AFDE0D76D46DC675BBAEA326
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:9A3FC6152DC18AD8AFDE0D76D46DC675BBAEA326
 magnet:?xt=urn:btih:A1BE71FC192F4FA3010892CBABDF769208C59735
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:A1BE71FC192F4FA3010892CBABDF769208C59735
 ```bash
 magnet:?xt=urn:btih:D0A2C8F7A8D17534B1419B6EEEC597D6D6F065E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:D0A2C8F7A8D17534B1419B6EEEC597D6D6F065E3
 magnet:?xt=urn:btih:CDB6F2AD4587667B925F4AABA3EE65D98768745F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,29 +676,7 @@ magnet:?xt=urn:btih:CDB6F2AD4587667B925F4AABA3EE65D98768745F
 magnet:?xt=urn:btih:8383DA1085DE0E94CDB24E1BA4DD77BD59A369CC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216432   (751237) от 30.03.2018
-
-Александр Митта. О любви, компромиссах, предчувствиях... (2018) DVB [H.264/1080i-LQ]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выдающийся кинорежиссер, строгий воспитатель, озорной выдумщик» — с такой формулировкой всеми любимого Александра Наумовича Митту награждали призом «За вклад в кинематограф». «Неисправимый оптимист», как он сам себя называет, автор буквально взорвавшего киноэкраны страны «Экипажа» празднует 85-летие. За его плечами популярные киноленты и сериалы, навсегда вошедшие (   Читать дальше...   )Телекомпания: Россия / ТК «Останкино»Жанр: Документальный, Биография, ИскусствоСубтитры: Русские, телетекст (888)Продолжительность: 00:51:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A86EB55BEE34EDA9146B2404FF61A191921CBB63
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ The Harmony Chronicles: Chaos Realms (2024) [En] (1.0) Unofficial [Collector's E
 magnet:?xt=urn:btih:2AF5EBF962B2B5730404CF07AA053E43B56879B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Children of the Sun бросает вас с головой в жестокую 
 ```bash
 magnet:?xt=urn:btih:AC592AFE0E50BAE512D2194BAE20FED5FB031B46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Frogmonster (2024) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:E78B39EAC229F92910B5CDA804453FD84C1E7BA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Yet Another Fantasy Title (YAFT) - это изометрический роле�
 ```bash
 magnet:?xt=urn:btih:A25A87391E7628283DDFF241CB08700DA775B104
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ The Planet Crafter (2022) [Ru/Multi] (1.0) Scene Rune
 magnet:?xt=urn:btih:AE7C6F76D176303C9AB7FAD527CA0D99271494F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Ereban: Shadow Legacy в быстро развивающемся стелс-пл
 ```bash
 magnet:?xt=urn:btih:97D4272434600BBDDBB328FE7559E2145BC49E77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ The Cursed Legacy - это сверхъестественное расследо
 magnet:?xt=urn:btih:5731180FC31E51E9B504A865E514C8145871FB72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Headquarters: World War 2, увлекательная пошаговая стр�
 ```bash
 magnet:?xt=urn:btih:79B8F72092651554F6EE153EC457C41400F918B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Ereban: Shadow Legacy в быстро развивающемся стелс-пл
 magnet:?xt=urn:btih:B63837B5594C6CF30DAA819D563B0119990543EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Inquisitor - это сюжетная приключенческая игра
 ```bash
 magnet:?xt=urn:btih:D6DA53340FA35ED66AE796C46E68F0DB081AD5A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Broken Roads создана командой настоящих энтузиас
 magnet:?xt=urn:btih:6190E636963F6BF84B2FCED3EA0DCE9D22A9BF4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Children of the Sun бросает вас с головой в жестокую 
 ```bash
 magnet:?xt=urn:btih:AFC948260D43677A7872C2FD82512474676FD622
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Sheba: A New Dawn повествует о мире, что переносит в
 magnet:?xt=urn:btih:1EF71D07376FF39B23F74E40102A847799845CA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Dark Days – перед вами классический сверхъесте�
 ```bash
 magnet:?xt=urn:btih:8FF60AE286F138BF471AF749A327F560FBB8E36E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ South Park: Snow Day! перенесет вас в хаотичный, засн�
 magnet:?xt=urn:btih:B1D1E304B1FEB423BA3D5E4B47954F916604257A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Bulwark: Falconeer Chronicles (2024) [Multi] (20240405) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:E4BF4B2FA26C20B65D05B40B19132522DD14763E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Paradise Marsh (2022) [Multi] (1.0) Scene Tenoke [Soundtrack Edition]
 magnet:?xt=urn:btih:A99D44C2466F635E269293ADDE419E1D18A85C8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Inkbound - это тактическая РПГ, в которой вы смож
 ```bash
 magnet:?xt=urn:btih:F50A2729B4FD156913117ED95023F4C287310656
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ The Magical Mixture Mill - это увлекательный симулятор,
 magnet:?xt=urn:btih:4FFA69F530BEE4227E4D3F384257FDCF6D0D8FD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Shadow Strikers: Arena of Rivals - захватывающий файтинг, п
 ```bash
 magnet:?xt=urn:btih:CB0B08759973C72CD5DB835816BD32692B366090
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Anonymous Hacker Simulator (2024) [Ru/Multi] (1.0) Scene DOGE
 magnet:?xt=urn:btih:62E9D19ED9F506634E9A1B99F41C72F079C5A5F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Ranch Simulator - Build, Farm, Hunt – симулятор жизни на ра�
 ```bash
 magnet:?xt=urn:btih:0488D2310ACA8CC99AA0F4A70380A6C74DA25D6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Felvidek – события этой JRPG-игры разворачиваютс�
 magnet:?xt=urn:btih:602774D9956E87D8A24E0E40D878ACE0DB0B66E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Hydroneer – это симулятор добытчика золота и др�
 ```bash
 magnet:?xt=urn:btih:F24C0D3FF81A9B6D94300C2BEE70DD903C54BF87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Dishwashing Simulator – в этой игре поместилось сразу
 magnet:?xt=urn:btih:2A1D9AAB031D47E9A3AB874954B9C1D7FE5FF6FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Monsters Domain - фэнтезийная игра, сочетающая в се�
 ```bash
 magnet:?xt=urn:btih:93119CBDD24933BA46059365FFC756C6834F4259
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

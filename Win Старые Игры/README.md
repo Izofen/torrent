@@ -20,6 +20,8 @@ Seal of Evil (2006) [En] (1.06) License GOG
 magnet:?xt=urn:btih:8511C3156E84C1AF545C5729CA4D6E39AD36634F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ The Blackwell Unbound (2007) [En] (4.5) License GOG
 ```bash
 magnet:?xt=urn:btih:C2A7378ABE23C3DA15BD1F652A6EC86FCB0D41B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ STORROR Parkour Pro - это игра о паркуре, которая испо
 magnet:?xt=urn:btih:A5DE78C86FD6ACCA1892177EDBA752F995C43F05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ PowerSlave (1996) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:7E179E003E0FAB7050A9B8E82D44C30C08ED2252
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ A Shelter Full of Cats приглашает геймеров в уютный м�
 magnet:?xt=urn:btih:A0EC8C85ECB84008CA8C9D9EADB7D41E09D70C2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Emperor of the Fading Suns – это глобальная пошаговая с
 ```bash
 magnet:?xt=urn:btih:079C0852C84086A0D07969E7CEF2AA7767AD5B5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Lords of Magic (1998) [En] (1.0) License Sierra
 magnet:?xt=urn:btih:D55B868D257112F38C67F8A175606B068786D7E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ The Blackwell Legacy – приключенческий квест о молод
 ```bash
 magnet:?xt=urn:btih:DE2B1B1FCBBBA0DEB4BACECF619B3115745A07F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ The Blackwell Deception (2011) [En] (3.5) License GOG
 magnet:?xt=urn:btih:9879DF79EE44E130A257B2BE5010A64BDE2FAB7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Roller Coaster Tycoon 2 / Мир Аттракционов [Ru] (RePack) 2002 | P
 ```bash
 magnet:?xt=urn:btih:2D66AD1E9A390DF53097F9AA35C708A145B1E161
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Emergency-игра, представляющая собой RTS, где вы б�
 magnet:?xt=urn:btih:572D4A68458F254768D5EA0C91D65CDC34EB5704
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Emergency 3 - Mission: Life / Emergency 3. Служба спасения 911 (20
 ```bash
 magnet:?xt=urn:btih:FDD9FC32FB5B630ADE2746AD341E375F6AC2E33A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Emergency 3 - Mission: Life / Emergency 3. Служба спасения 911 (20
 magnet:?xt=urn:btih:079327D0E923949246A18D3DE6232706FF358D59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ OpenSCP (2025) [Ru/En] (01.05) Repack/Mod AndyFox
 ```bash
 magnet:?xt=urn:btih:B9911DC80D7643453588A03ECD064B1FE07F0B9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Myst III: Exile (2001) [Multi] (2.0.5) License GOG
 magnet:?xt=urn:btih:9337F34EE5AA75F59B0D9E95C87E98F9C1B7DAD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Riven: The Sequel to Myst (1997) [Ru/Multi] (2.0.5) License GOG
 ```bash
 magnet:?xt=urn:btih:13ED6691503253054BCA8D661CF3C98CB9C0CE3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Myst (1999) [Multi] (2.0.5) License GOG [Masterpiece Edition]
 magnet:?xt=urn:btih:984F1F73222BDD951603B2E38482F916AA4C5217
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Mortal Kombat 4 (1997) [En] (2.1) License GOG
 ```bash
 magnet:?xt=urn:btih:C1BD85849D2F197C5BC67D5C28F5E003DF107155
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ X-Com TFTU (1994-2025) [Ru/En] (1.0) Repack/Mod AndyFox
 magnet:?xt=urn:btih:4910F5EBDA69CF9C2A23D6A324E314ADEDF78344
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Star Trucker (2024) [Ru/Multi] (1.0.67.0/dlc) Repack Let'sРlay [Deluxe Bundle]
 ```bash
 magnet:?xt=urn:btih:BF1A3B0FAFAB1A7B5B5040816EB996AEFCEA5392
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:BF1A3B0FAFAB1A7B5B5040816EB996AEFCEA5392
 magnet:?xt=urn:btih:EB704DA609CD2133A5995F2D1E9D8FE53816A9FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Tex Murphy: Overseer (1998) [En] (2.0.0.21) License GOG
 ```bash
 magnet:?xt=urn:btih:2F1EA50BA19C89AC801975CA58613289C68FC3FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Warhammer 40,000: Fire Warrior (2003) [Multi] (1.50) License GOG
 magnet:?xt=urn:btih:E0382F342CB42A1EC75516EF2D4704C3056E2561
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Manhunt (2004) [Ru] (1.1) Repack EXROW
 ```bash
 magnet:?xt=urn:btih:98B0B3664E2B5B03D07CEF34C35A350B7B9F9F9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Far Cry - захватывающий шутер с видом от первог�
 magnet:?xt=urn:btih:ABD62E4D44E4320D38EE19AB65C7C31BD3E46D9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Painkiller (2004) [Ru] (1.64/dlc) Repack EXROW [Black Edition]
 ```bash
 magnet:?xt=urn:btih:BFEE63BE1887AA31FB436BFB95F06F3D4B26B0D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

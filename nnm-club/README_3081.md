@@ -28,6 +28,8 @@ Daddy Mack Blues Band - Pay The Piper (2012) [FLAC|Lossless]<Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ Daddy Mack Blues Band - Pay The Piper (2012) [FLAC|Lossless]<Blues>
 magnet:?xt=urn:btih:0DF5EFAB727DC974EBD2E473B12EE435F1692DBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:0DF5EFAB727DC974EBD2E473B12EE435F1692DBE
 ```bash
 magnet:?xt=urn:btih:9858F2E8D81C12BD0132EEC7C525D0FA5B934F64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +115,8 @@ VA - XXXL Блатнячок радио Шансон 3 (2012) [MP3|256 kbps]<Ш�
 magnet:?xt=urn:btih:2A68AA2D2D0E1DAF272FF8024FEC0054282C02D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +148,8 @@ Hurricane Ruth - The Power Of The Blues...Feel Like Hurricane (2011) [FLAC|Lossl
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +177,8 @@ Hurricane Ruth - The Power Of The Blues...Feel Like Hurricane (2011) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:6874B086DDE83B1EB67368CDA3C26F34F77B002F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +208,8 @@ magnet:?xt=urn:btih:6874B086DDE83B1EB67368CDA3C26F34F77B002F
 magnet:?xt=urn:btih:F77EEF73A9399DE19F4E546C7B14F313A71893C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +233,8 @@ magnet:?xt=urn:btih:F77EEF73A9399DE19F4E546C7B14F313A71893C0
 ```bash
 magnet:?xt=urn:btih:111E4ADE6A8F5F7E9BC06545EBCFCC878BA495E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +260,8 @@ magnet:?xt=urn:btih:111E4ADE6A8F5F7E9BC06545EBCFCC878BA495E0
 magnet:?xt=urn:btih:CDF7474E9C8AED98B104DCFB5CCC413FCC4D2490
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +286,8 @@ magnet:?xt=urn:btih:CDF7474E9C8AED98B104DCFB5CCC413FCC4D2490
 magnet:?xt=urn:btih:1E004321E79775A9BD3B0771F91743CD54B30CE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +311,8 @@ magnet:?xt=urn:btih:1E004321E79775A9BD3B0771F91743CD54B30CE4
 ```bash
 magnet:?xt=urn:btih:B50D30C0B0B0BE34F08170F6CBD3ECCD7CECF743
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +347,8 @@ Duffy - Endlessly (2010) [MP3|320 кб/с]<Pop, Soul>
 magnet:?xt=urn:btih:355DEB371587CDA94FAC730D75A745FD67D1C692
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +372,8 @@ magnet:?xt=urn:btih:355DEB371587CDA94FAC730D75A745FD67D1C692
 ```bash
 magnet:?xt=urn:btih:F7412B2E1A249C126790F61556B5DDEB742F4EEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +399,8 @@ magnet:?xt=urn:btih:F7412B2E1A249C126790F61556B5DDEB742F4EEB
 magnet:?xt=urn:btih:2955C3698631C65901AC107BF95CF33894AD2CA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +424,8 @@ magnet:?xt=urn:btih:2955C3698631C65901AC107BF95CF33894AD2CA9
 ```bash
 magnet:?xt=urn:btih:567537CA7DBB1737E3D8F4E209127E5A52492CAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +460,8 @@ Inger Marie Gundersen - For You (2011) [FLAC|Lossless]<Female Vocal Jazz, Norway
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +485,8 @@ Inger Marie Gundersen - For You (2011) [FLAC|Lossless]<Female Vocal Jazz, Norway
 ```bash
 magnet:?xt=urn:btih:77DA20C9A95070718A4F8FE654707A6C916C7515
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +512,8 @@ magnet:?xt=urn:btih:77DA20C9A95070718A4F8FE654707A6C916C7515
 magnet:?xt=urn:btih:1E90B20E1745B830ED482240E7A7EB3D05D4743C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +537,8 @@ magnet:?xt=urn:btih:1E90B20E1745B830ED482240E7A7EB3D05D4743C
 ```bash
 magnet:?xt=urn:btih:BB3C957DFB2F623BB71B12CCC086843470D2890A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +565,8 @@ magnet:?xt=urn:btih:BB3C957DFB2F623BB71B12CCC086843470D2890A
 magnet:?xt=urn:btih:ECBA7A578406F095640F1F05C76B3569D19C493B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +590,8 @@ magnet:?xt=urn:btih:ECBA7A578406F095640F1F05C76B3569D19C493B
 ```bash
 magnet:?xt=urn:btih:2767CA68D385C4D44EBD61646EBA2B77FFC19692
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +617,8 @@ magnet:?xt=urn:btih:2767CA68D385C4D44EBD61646EBA2B77FFC19692
 magnet:?xt=urn:btih:517A276376F170621A7DC265D2FDA3C46A4EC107
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +643,8 @@ magnet:?xt=urn:btih:517A276376F170621A7DC265D2FDA3C46A4EC107
 magnet:?xt=urn:btih:3D724308DB949674C9A4879570E9A8DFA1F46E8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +668,8 @@ magnet:?xt=urn:btih:3D724308DB949674C9A4879570E9A8DFA1F46E8A
 ```bash
 magnet:?xt=urn:btih:932C344E1CF7201CB9F06DEDC95CF30D97DBCF4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -648,6 +696,8 @@ magnet:?xt=urn:btih:932C344E1CF7201CB9F06DEDC95CF30D97DBCF4B
 ```bash
 magnet:?xt=urn:btih:EDCFD76BB20BBCA6735850FEC05C03293F02DD04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -676,6 +726,8 @@ magnet:?xt=urn:btih:EDCFD76BB20BBCA6735850FEC05C03293F02DD04
 ```bash
 magnet:?xt=urn:btih:B206E7AC953552A8A66E289EB99C38D309F89DA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

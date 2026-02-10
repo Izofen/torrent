@@ -19,6 +19,8 @@ Dark Deity 2 (2025) [En] (1.0.1) Repack FitGirl [Deluxe Edition]
 magnet:?xt=urn:btih:AF76340802BE22775F43FCB6514689AEC779B5D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Master Key бросает вас с головой в мир, полный се�
 ```bash
 magnet:?xt=urn:btih:2DDF1EFB85796373F66761B362CF4BCC25F7B6B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Redemption of Liuyin (2025) [Multi] (v.0.1) Repack FitGirl
 magnet:?xt=urn:btih:B445F0C76DC4E7A4C1021439353955397204D58E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Sin Slayers: Reign of The 8th (2024) [Ru/Multi] (1.5.0.7) License GOG
 ```bash
 magnet:?xt=urn:btih:6EEB210CEDCA131EAA31A8A3C018604E9B0ECB72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Werewolf: The Apocalypse - Purgatory – откройте для себя уди
 magnet:?xt=urn:btih:92C93E1E4A1FCDA4EED6FA16387D11FD8B05B1FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ REYNATIS - это ролевая адвенчура в жанре городск
 magnet:?xt=urn:btih:F4789D167147186353D41456F47984C0038D332D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ KARMA: The Dark World (2025) [Ru/Multi] (Build 17844576) Repack Other s
 ```bash
 magnet:?xt=urn:btih:9C06DC8C0EC5B56B7D5EFD29D7C3B32DC492436F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Avowed - фэнтезийная ролевая игра с видом от пе�
 magnet:?xt=urn:btih:36A2EEFDB94E36325EF820FC6898D668B9797E99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Flintlock The Siege of Dawn (2024) [Ru/Multi] (1.1.72-268413/dlc) Repack Let'sР
 ```bash
 magnet:?xt=urn:btih:52FEF628585050A5810593CA64143A4BC4993BD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Battle Brothers — это пошаговая тактическая ролев�
 magnet:?xt=urn:btih:5D19A57C95FCB759DB5A94F182E965E619D14767
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Tainted Grail: Conquest - мрачная ролевая игра с пошаго
 ```bash
 magnet:?xt=urn:btih:954F388AA6DB9FDC3293BA5F138EF86CC0173E82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Miryam: The Polluted Land отправляет игроков в зловеще�
 magnet:?xt=urn:btih:5375D6A65B3D05FA8F94D9997971795ED94B3F69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Core Keeper (2022) [Ru/Multi] (1.1.0.2-a156) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:7CD994862C89818A7EBC47CB8EC6ADE18FEC9334
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Darkest Dungeon 2 - сиквел готической ролевой игры, �
 magnet:?xt=urn:btih:4AD0283B8A2494CE81C09C928B1F2D98149693D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Broken Roads создана командой настоящих энтузиас
 ```bash
 magnet:?xt=urn:btih:CA4EF6F034476CC59E5EB97DA406C196493AF30F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ The Axis Unseen - это игра в жанре хэви-метал хоррор
 magnet:?xt=urn:btih:6EF230FE32DBF7C54F3996B9D832866C75ACD214
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ Medieval Dynasty (2020) [Ru/Multi] (2.3.1.1/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:9AFDA7D931CD524D132E36C84B568005A2DECCB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ Wartales - ролевое приключение в открытом мире, �
 magnet:?xt=urn:btih:F0DE308ECB8B0010ECD22F4B3E5054554A7E832A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ The Matchless KungFu - это ролевая игра с открытым мир
 magnet:?xt=urn:btih:9179A033C8BA88F602FB68173816531876B9356F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ KARMA: The Dark World (2025) [Ru/Multi] (build 17844576) Repack FitGirl [Digital
 ```bash
 magnet:?xt=urn:btih:B22987C5F7522CB677E43AED5E50A55D5ECD66E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ Ai Limit (2025) [Ru/Multi] (Build 17884331/dlc) Repack Other s [Deluxe Edition]
 magnet:?xt=urn:btih:2F26A1D293AB29229C80B323CD01D8402632D08D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ Wildermyth — процедурно генерируемая тактическ�
 ```bash
 magnet:?xt=urn:btih:357E344B4875DB3AFC72118B816DD9E72BD0BA20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ Ai Limit (2025) [Ru/Multi] (build 17884331/dlc) Repack seleZen [Deluxe Edition]
 magnet:?xt=urn:btih:33C5B24B42B0A46F04BE01A1AF7E951202AD464F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ Pillars of Eternity (2015) [Ru/Multi] (3.8.0.87535/dlc) Repack Let'sРlay [Defin
 ```bash
 magnet:?xt=urn:btih:7F0BDD588A5976E9DBD6EBBF74FAFF36BE3B6236
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ KARMA: The Dark World (2025) [Ru/Multi] (build 17844576) Repack seleZen
 magnet:?xt=urn:btih:B76CB151148D23A369561A8BE74DC8A5B6BF9A1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Dragon Ball Z: Kakarot – долгожданное продолжение се�
 ```bash
 magnet:?xt=urn:btih:5F39C157B7483CB25C72341B9DE57FBC7463BAA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

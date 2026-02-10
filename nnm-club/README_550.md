@@ -19,6 +19,8 @@ B.C. Вернодубенко, А.С. Новосёлов | Выживание л
 magnet:?xt=urn:btih:61E938DFC4EEB01865AD9BFB674D433402FC414A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:61E938DFC4EEB01865AD9BFB674D433402FC414A
 magnet:?xt=urn:btih:0DABF67C424815BF16749F5FCF4A6C1C390BEA93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:0DABF67C424815BF16749F5FCF4A6C1C390BEA93
 ```bash
 magnet:?xt=urn:btih:EAC9D7E99140D9070A254823751E54156BF57CCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:EAC9D7E99140D9070A254823751E54156BF57CCE
 magnet:?xt=urn:btih:5662E6194A876D55EE1997D570C112A5B81E4D98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:5662E6194A876D55EE1997D570C112A5B81E4D98
 ```bash
 magnet:?xt=urn:btih:99BCEBCD4325BA73F2E0E73A813F15AFE3CD1225
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:99BCEBCD4325BA73F2E0E73A813F15AFE3CD1225
 magnet:?xt=urn:btih:0C501023530910765FCC5633E457E38D218F0793
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:0C501023530910765FCC5633E457E38D218F0793
 ```bash
 magnet:?xt=urn:btih:7D297A1D6F799E2E90A17A4597459EEFAE96C6E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:7D297A1D6F799E2E90A17A4597459EEFAE96C6E1
 magnet:?xt=urn:btih:F7E6DE947DA75277C20AA62F97AAD3572CD75638
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Outlast (2013) [Ru/En] (1.0.12046.0/dlc) Repack EXROW
 ```bash
 magnet:?xt=urn:btih:7D4680E09C30004F257339848EB3F932CDC37867
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ MassTube Plus — очень простая в использовании про
 magnet:?xt=urn:btih:83CC24C6AB36999B268256BF8C00AB5F63D33F23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ MediaHuman YouTube Downloader 3.9.14 (1306) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:8E5D8A8634BDA62550A281E3A1DFDA28F79C8768
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ BOUDOIR Inspiration — это платформа и журнал, посвящ�
 magnet:?xt=urn:btih:C0DC1B0EB91C2EF42E28455967F76C4984EF03E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:C0DC1B0EB91C2EF42E28455967F76C4984EF03E6
 magnet:?xt=urn:btih:76204BB8614F29DF7775284A2F790D8E5F1A4D85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Mortal Kombat: Komplete Edition — полное издание аркадног
 ```bash
 magnet:?xt=urn:btih:979044012C994E3F8639D1986BCDC24C78452C2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ BOUDOIR Inspiration — это платформа и журнал, посвящ�
 magnet:?xt=urn:btih:07C9461709EAA82F52ACCF0067A76E0A48ACD5B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ BOUDOIR Inspiration — это платформа и журнал, посвящ�
 magnet:?xt=urn:btih:2EA925F8EA1C18CB4F0E1D7EDC02000D7D8FA80D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:2EA925F8EA1C18CB4F0E1D7EDC02000D7D8FA80D
 ```bash
 magnet:?xt=urn:btih:B3B1B25F63FB68F48089B8A3ADAA0AEAD4FFEB30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:B3B1B25F63FB68F48089B8A3ADAA0AEAD4FFEB30
 magnet:?xt=urn:btih:3DBE7D48EFDA177FB3D1D6B4E903CD76206FC6EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ magnet:?xt=urn:btih:3DBE7D48EFDA177FB3D1D6B4E903CD76206FC6EF
 ```bash
 magnet:?xt=urn:btih:9251C6D19ED08AA415C935627F8433F4744E1F23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ Placebo - Sleeping With Ghosts (2003) Japanese Edition [FLAC|Lossless|tracks + .
 magnet:?xt=urn:btih:300190FD700EDC90008D5E9960553DF3DC562E47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ magnet:?xt=urn:btih:300190FD700EDC90008D5E9960553DF3DC562E47
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ Northgard (2018) [Ru/Multi] (3.7.26.42112/dlc) Repack FitGirl [The Viking Age Ed
 ```bash
 magnet:?xt=urn:btih:483A58C8E77F98B3BAAF70DF55B570DBCFFBFBFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ iTubeGo YouTube Downloader 10.2.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:A01AC143A58769AC1A8029EE103EFEA990197C75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ magnet:?xt=urn:btih:A01AC143A58769AC1A8029EE103EFEA990197C75
 ```bash
 magnet:?xt=urn:btih:4E35EA9A5AB923FDEC34DB62DA341CCFD99D5193
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ Loco Motive (2024) [Multi] (1.0.5a) License GOG
 magnet:?xt=urn:btih:C1B1C72BA0B23CDD59050B059AC7D4B5A5741FA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:C1B1C72BA0B23CDD59050B059AC7D4B5A5741FA1
 ```bash
 magnet:?xt=urn:btih:C67974D4BE0F867A003C18E2FAF55BBFCC882892
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

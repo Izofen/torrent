@@ -19,6 +19,8 @@ Insanely Twisted Shadow Planet (RePack) [Ru/En] 2012 | R.G. Origami
 magnet:?xt=urn:btih:8C45FAA0930A684A9C1FC7A340E02E3A9C6571AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Book of Desires / Книга желаний (P) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:642FB340A9FEF5609CF7193309E231BDAA094AA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Dark Tales: Edgar Allan Poe's Murders in the Rue Morgue / Страшные ис�
 magnet:?xt=urn:btih:E7562965D296A377ED700061EF9D3B640D530BD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Abandoned: Chestnut Lodge Asylum / Заброшенная клиника "Каш
 ```bash
 magnet:?xt=urn:btih:7E068E8AC8F82A5BCB657E7D81B810FAEBB2B192
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Sale Frenzy / Безумный шопинг (P) [Ru] 2011
 magnet:?xt=urn:btih:4823DFD8B9D4E8C54E111AFE23CB6594A169AD12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Don't Starve Together - это кооперативная игра на выжи
 ```bash
 magnet:?xt=urn:btih:653B47F21122B2FB4F44E509B281242E9A579258
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Ember Knights (2023) [Ru/Multi] (2.0.0.b4510/dlc) Repack Pioneer
 magnet:?xt=urn:btih:E7DFA29EA8B7A0B087E23C3B54173B33F484C575
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Starstruck: Hands of Time (2024) [Ru/Multi] (1.0) Repack FitGirl [Soundtrack Bun
 ```bash
 magnet:?xt=urn:btih:9EC55DBC459E0D1B85A3DADC7B9E908149A9B367
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Who's That Flying?! (2011) [En] (1.0) Scene PROPHET
 magnet:?xt=urn:btih:A37E6388BCEA720018243B49E38B32D2636F00BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:A37E6388BCEA720018243B49E38B32D2636F00BC
 ```bash
 magnet:?xt=urn:btih:00BC863288DD5F7F08181008909E4D143B031447
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Halloween Secrets: The Blood Vow / Секреты Хэллоуина: Клятв
 magnet:?xt=urn:btih:BF2FDA5C21414F71303A6F33302BE27AEDAAF37A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Destroy All Humans! (2020) [Ru/Multi] (1.0.2550/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:F8E44E48EE54CF2E302EC18DA5E1C4EEDC4A3F5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Deadlink – научно-фантастический шутер с видом 
 magnet:?xt=urn:btih:AA2744E75EF707DBFF643096E41FB932D146016D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.380186.0) License GOG
 ```bash
 magnet:?xt=urn:btih:6352989CC44FEC76A7243A9EF3CE74EFBEA2C907
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Cat Quest - замуррчательная РПГ, чье действие пр�
 magnet:?xt=urn:btih:77D535959E85820509652B7A0FCF3FF1F68270F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Cat Quest II рассказывает историю двух королей, к
 ```bash
 magnet:?xt=urn:btih:6BF0494702743CCA157158BDDBA28D6B58EB9D37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Blood of Mehran переносит легендарного воина Мехр�
 magnet:?xt=urn:btih:19A5949982E6DDD91BB398A6C5382D3251E648EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Blood of Mehran переносит легендарного воина Мехр�
 ```bash
 magnet:?xt=urn:btih:EF2AB516B5043D354F708A9B7CB4D3EED994508F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Blood of Mehran переносит легендарного воина Мехр�
 magnet:?xt=urn:btih:3F6B7AB53DC828CF6F699563A6696CB84651342E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Blood of Mehran переносит легендарного воина Мехр�
 ```bash
 magnet:?xt=urn:btih:3EFA3EC97690E3F463D5BAD87E4350634A3B682A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Greak: Memories of Azur (2021) [Ru/Multi] (1.0.6_114) License GOG
 magnet:?xt=urn:btih:AE6722AA161AA3FA655B818A216CD01EFBE1AB5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Bewitching Sinners бросает вас в хаотичный фантасти�
 ```bash
 magnet:?xt=urn:btih:DE829BB179E89D75F69C64D811A8885DAA1CA074
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ SWORN - это кооперативный roguelike-экшен для 1–4 иг
 magnet:?xt=urn:btih:161ADCD743BE10884385E22EA16CEEA39FF9C58A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Savara (2025) [Ru/Multi] (1.1.2) Repack Let'sРlay [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:583550309582E1FB87DE5257337CC7408D287BD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Human: Fall Flat – приключенческая головоломка с п
 magnet:?xt=urn:btih:9D61BAE030026D4169C86A7B76F99C5184BCCFBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Lunar Glow Stellar Dance (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:87C3646F1ACC54C6C39C9B7D35065DDAAEF42985
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

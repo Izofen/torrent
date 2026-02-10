@@ -19,6 +19,8 @@ Bokusatsu Tenshi Dokuro-chan | Bludgeoning Angel Dokuro-chan | Убийстве�
 magnet:?xt=urn:btih:A338016583C073896D6AB5871962734B830E3FFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Kodomo no Natsu Jikan | Летнее время для детей [2011, OAD] DV
 ```bash
 magnet:?xt=urn:btih:E5FF112C65790C50836D5752F684F5E0EF7DDA86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Kodomo no Jikan: Ni Gakki | Детское время: Второй семест
 magnet:?xt=urn:btih:607F05CD5B4D9DECE06A0D3C04E6FEB833137229
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Kodomo no Jikan | Детское время [2007, TV, 12 эп. + спэшл] DV
 ```bash
 magnet:?xt=urn:btih:00AA0A64D924D2A3F5FA607453913AA715849D1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:00AA0A64D924D2A3F5FA607453913AA715849D1F
 magnet:?xt=urn:btih:AB6AB92ED665E8002DB0B79BB4524F86A15466A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Outbreak Company | Операция - Вторжение | Мятежная ко
 ```bash
 magnet:?xt=urn:btih:C416C51FEF585C9AAA60F810EB75E891C2CF01A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:C416C51FEF585C9AAA60F810EB75E891C2CF01A4
 magnet:?xt=urn:btih:99B50DA184AFA661AA1ED4BD3C5A4DB59BDCE639
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Maou no Musume wa Yasashi Sugiru!! | The Demon King`s Daughter Is Too Kind! | Ma
 ```bash
 magnet:?xt=urn:btih:ED30AE2A1F9697DD55D741141AC103A83EE31887
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:ED30AE2A1F9697DD55D741141AC103A83EE31887
 magnet:?xt=urn:btih:31D8534C6C98BEBD96B3C6AEFED8B4FE2B4DAC4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Omae Gotoki ga Maou ni Kateru to Omou na | Roll Over and Die | Неужели т
 ```bash
 magnet:?xt=urn:btih:6B5B4175A32D82210A56D431F745A315BE79CA77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Mato Seihei no Slave 2 | Chained Soldier 2 | Раб спецотряда дем�
 magnet:?xt=urn:btih:DB0783A56342089FDE26CE0FDBFB182FB9EA5BCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ Slayers Evolution-R | Рубаки: Эволюция-Эр [2009, TV, 13 эп.] H
 magnet:?xt=urn:btih:6A582EAD9C36C8D8C5F1F31F869908C91F8A4115
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Kaya-chan wa Kowakunai | Kaya-chan isn't Scary | Кае не страшно [202
 ```bash
 magnet:?xt=urn:btih:AD09DA885F588C9F71524DAFAFE1F9F175569CD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ Given: Uragawa no Sonzai | Given: On the Other Hand | Дарованный OVA [
 magnet:?xt=urn:btih:5CDFA483B566D2446DA34F1387F76F08C458E5FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Tonari no Kyuuketsuki-san | Ms. Vampire Who Lives in My Neighborhood. | Госп
 ```bash
 magnet:?xt=urn:btih:5D44493D4FDB47DB24A4C0C2CDB3D94A9C3D48EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ Papa no Iukoto o Kikinasai! OVA-1 | Слушайтесь папу! OVA-1 [2013, 
 magnet:?xt=urn:btih:6E8691B1B4EF13957C8CA8ACCF9DDD5008BF9A4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Papa no Iukoto o Kikinasai! | Listen to Me, Girls. I Am Your Father! | Слуш�
 ```bash
 magnet:?xt=urn:btih:BAE56A5B0C18C245B72D38026C492D8FAC758AE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:BAE56A5B0C18C245B72D38026C492D8FAC758AE7
 magnet:?xt=urn:btih:67B23FAF83FD0ACB2F340CA216EB01B9DC0B951E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:67B23FAF83FD0ACB2F340CA216EB01B9DC0B951E
 ```bash
 magnet:?xt=urn:btih:01C570A288ECB4438058ABD2BE5FF979F4F32D42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:01C570A288ECB4438058ABD2BE5FF979F4F32D42
 magnet:?xt=urn:btih:034AABD4A544F3BB0FDA3EC745A8ED4F136DBDAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:034AABD4A544F3BB0FDA3EC745A8ED4F136DBDAD
 ```bash
 magnet:?xt=urn:btih:F5A3265205A88D3710734D9D255B853D97421075
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Hime-sama "Goumon" no Jikan Desu TV-2 | Время пытки, принцесс�
 magnet:?xt=urn:btih:6579B54825405C815BA43F9155E3B4092F949929
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Sasaki to Miyano: Koi ni Kizuku Mae no Chotto Shita Hanashi | Sasaki and Miyano:
 ```bash
 magnet:?xt=urn:btih:EE82DBDE77E442AA1B83D331683FD8D9D2F61874
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:EE82DBDE77E442AA1B83D331683FD8D9D2F61874
 magnet:?xt=urn:btih:544F79960F3E599B4EA52C8C7A6D6986B8F027F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Slayers Revolution | Рубаки: Революция [2008, TV, 13 эп.] BDRip
 magnet:?xt=urn:btih:C9B5B9B06F672C8A279A6BE2D3831CC72CFE05CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Eiga Sasaki to Miyano: Sotsugyou Hen | Sasaki and Miyano: Graduation | Саса�
 ```bash
 magnet:?xt=urn:btih:F60F13C5821D784BC2261001B350A80514030A6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

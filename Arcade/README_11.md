@@ -19,6 +19,8 @@ Teenage Mutant Ninja Turtles: Shredder's Revenge - экшен, в котором
 magnet:?xt=urn:btih:3E95B2CC3343350A18F6D16B786E4B1D8F9AA42B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Kill Knight / Рыцарь Бездны (2024) [Ru/Multi] (1.0.0.108) Repack Fit
 ```bash
 magnet:?xt=urn:btih:9A62E74D3021F1DD5B607E00985C3CB4BF65EA43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ HUNTDOWN (2020) [Ru/Multi] (1.278) Repack Let'sРlay
 magnet:?xt=urn:btih:6078E3AE6A6882E5247168F88EE010CBDF2BC600
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Fights in Tight Spaces (2021) [Ru/Multi] (1.2.11458/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:01CC1B8BB07E3907BC79402DE0DF5546ECC0F965
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Teenage Mutant Ninja Turtles: Shredder's Revenge - экшен, в котором
 magnet:?xt=urn:btih:74C0A94F2053D42DA8B0578E2EFEDD0E746BE05C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Times and Galaxy предлагает стать робо-репортером �
 ```bash
 magnet:?xt=urn:btih:28857B930382A1518897330FD4668902CA83C7A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ HellO — это крупнейшая компания по поставкам �
 magnet:?xt=urn:btih:1CD62C52E7A9705C4CEADBF8E11AA38247BF6686
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Yars Rising (2024) [Multi] (1.1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4300340189E2C6177977DDB0FBFCBBAE81569864
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Kill Knight / Рыцарь Бездны (2024) [Ru/Multi] (1.0.0.108) Scene Rune
 magnet:?xt=urn:btih:04B824EB7EF018B21B8BEDF56C04626DC0811484
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Valfaris: Mecha Therion является продолжением игры Ва�
 ```bash
 magnet:?xt=urn:btih:4432E8B46B6B6754B56C28CB7BEDCF3688990D43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Disney Epic Mickey: Rebrushed оживляет магию мира Disney в к�
 magnet:?xt=urn:btih:1EBE0B5688C56786B472789C3FFAA4BD423C20E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Ravenswatch - хардкорное приключение, в котором п�
 ```bash
 magnet:?xt=urn:btih:BFA15CD2CF597A6429B67827A83FAFC58FEF1979
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ NARUTO X BORUTO Ultimate Ninja STORM CONNECTIONS (2023) [Ru/Multi] (1.50/dlc) Sc
 magnet:?xt=urn:btih:2A5413A9E002BE7D7136A627C4E90097CD223FE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Plank Builders (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C1727C2F7D788B1C681310739A1221C753F8D10B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Teenage Mutant Ninja Turtles: Shredder's Revenge - экшен, в котором
 magnet:?xt=urn:btih:5CB12F1BA264AFCFEDADF4FB0165719B432EF387
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Disney Epic Mickey: Rebrushed оживляет магию мира Disney в к�
 ```bash
 magnet:?xt=urn:btih:CAF51D7C7DDCF5464E45040F6BFCFB99AE5A01F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Broforce (2015) [Multi] (3148/dlc) License GOG
 magnet:?xt=urn:btih:D964D4D0A9F62105950231B8FC6EEE14A903F4B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ magnet:?xt=urn:btih:D964D4D0A9F62105950231B8FC6EEE14A903F4B5
 ```bash
 magnet:?xt=urn:btih:D35A99E94C938665EB189291097B9945D04E715D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Elon and the Divine Proof - это однопользовательская пр
 magnet:?xt=urn:btih:71313433B97B1D73753A7D5F5D869AB5FD95C678
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Anger Foot - это молниеносная хардбасс-игра, где �
 ```bash
 magnet:?xt=urn:btih:C865D7247F107B09FDC6632172361B6818C5086B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ BAKERU (2024) [Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:3E296ACF39B47D6739089D8643D6E06EE55131EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Crash Bandicoot 1: Где-то на территории Австралии уч
 ```bash
 magnet:?xt=urn:btih:168069F2FDC1354EE88AE8916E637E3CC0FEADF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Guns And Draguns – насладитесь в полной мере коман�
 magnet:?xt=urn:btih:304D7DEC73875A8084690ED9857E91E9519032DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Dawn of the Monsters (2022) [Multi] (1.03/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:A93345BA4520ACF86E80BCA95DD7DB2F522935A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ METAL DOGS (2023) [Multi] (1.5.0/dlc) Scene Tenoke
 magnet:?xt=urn:btih:3B0ACDB49F036FB039E0BFC7CAAC22649DBAC67C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Slipstream - это гоночная игра, вдохновленная обр
 ```bash
 magnet:?xt=urn:btih:D34B7ED593646047DA7CE046C77C769417C46FCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

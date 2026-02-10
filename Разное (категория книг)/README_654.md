@@ -1,3 +1,29 @@
+###  Публикация: 1368248   (910282) от 19.03.2020
+
+Анастасия Зурабова | Фуд-фотография. От теории к практике (2020) [PDF]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотографировать еду может каждый, но не каждый может делать это так, чтобы, глядя на снимок, возникало желание немедленно приготовить это блюдо. В своей новой книге Анастасия Зурабова раскрывает все секреты фуд-фото, делится приемами и техниками, которые позволят научиться правильно выставлять свет, подбирать аксессуары, выстраивать кадр, научит работать с выдержкой, (   Читать дальше...   )Жанр: Хобби, Увлечения, ФотоискусствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98D43599ACCCB2F1A113B40DFD69DA2DE3711271
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368312   (910299) от 19.03.2020
 
 Кен Хонда | Тайная жизнь денег. Секреты привлечения и приручения (2020) [FB2]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:1493DF2FD6022AD3871E50C257E8E724365982D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:1493DF2FD6022AD3871E50C257E8E724365982D4
 magnet:?xt=urn:btih:F3A47D7FCAC2E21890AF65A08EEBCA3BFCC0E727
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:F3A47D7FCAC2E21890AF65A08EEBCA3BFCC0E727
 ```bash
 magnet:?xt=urn:btih:43DA494F5405834B42F57A25A7FE4C3FD509BC6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:43DA494F5405834B42F57A25A7FE4C3FD509BC6E
 magnet:?xt=urn:btih:1D1EDDFA30139DAA6DAA5D239DF9C769FF361701
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:1D1EDDFA30139DAA6DAA5D239DF9C769FF361701
 ```bash
 magnet:?xt=urn:btih:0693817985A9405C6E46BEECCB3F265259A4F695
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:0693817985A9405C6E46BEECCB3F265259A4F695
 magnet:?xt=urn:btih:A3EDE601B4ED498742DA54E2D0897CC555FE048A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:A3EDE601B4ED498742DA54E2D0897CC555FE048A
 ```bash
 magnet:?xt=urn:btih:5BEE91891751C6C5176CD5FBDADADBFCFE8391B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:5BEE91891751C6C5176CD5FBDADADBFCFE8391B2
 magnet:?xt=urn:btih:B29D9012D50F3931F616AAFB30A256084C457E44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:B29D9012D50F3931F616AAFB30A256084C457E44
 ```bash
 magnet:?xt=urn:btih:F87DB124A6CB946814DCB917E850F1A8AA7A0492
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:F87DB124A6CB946814DCB917E850F1A8AA7A0492
 magnet:?xt=urn:btih:B360CBE92AF0FF1B6807DFCAF0A618A658821769
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:B360CBE92AF0FF1B6807DFCAF0A618A658821769
 ```bash
 magnet:?xt=urn:btih:EEBA055F69984F21486DC61A5477F1052F77E3CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:EEBA055F69984F21486DC61A5477F1052F77E3CB
 magnet:?xt=urn:btih:2B14148F1E72CC1A62CAE5E5DDA0E31B69A00A1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:2B14148F1E72CC1A62CAE5E5DDA0E31B69A00A1C
 magnet:?xt=urn:btih:9E4707E2A511A329218AE53D9DC718B80C7FFC11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:9E4707E2A511A329218AE53D9DC718B80C7FFC11
 ```bash
 magnet:?xt=urn:btih:C1E53F5FFDD13CF2FE3D823E90FCADE8DFC144DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:C1E53F5FFDD13CF2FE3D823E90FCADE8DFC144DE
 magnet:?xt=urn:btih:4E3893750A42D939A7E7BB4A332D6719102E295B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:4E3893750A42D939A7E7BB4A332D6719102E295B
 magnet:?xt=urn:btih:8625413C9C96FDACB37F854A15761EFBDB3D32FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:8625413C9C96FDACB37F854A15761EFBDB3D32FB
 magnet:?xt=urn:btih:B92E3DF4D1E939564A4338A6DB78A87DD3759982
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:B92E3DF4D1E939564A4338A6DB78A87DD3759982
 ```bash
 magnet:?xt=urn:btih:3781F779655AC9C614A8866AA53844B1307670C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:3781F779655AC9C614A8866AA53844B1307670C0
 magnet:?xt=urn:btih:961DA2EB52BDB59006ACDAF74747EC1878A02319
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:961DA2EB52BDB59006ACDAF74747EC1878A02319
 magnet:?xt=urn:btih:412510F5EFE3206006C7C97E711318F6F014DA80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:412510F5EFE3206006C7C97E711318F6F014DA80
 ```bash
 magnet:?xt=urn:btih:712A6E53FC7E1E6BC61F19F26BFD60938FABF635
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:712A6E53FC7E1E6BC61F19F26BFD60938FABF635
 magnet:?xt=urn:btih:ECF88A9D49F7FE203CFF660F584ADEDCC6974A24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:ECF88A9D49F7FE203CFF660F584ADEDCC6974A24
 ```bash
 magnet:?xt=urn:btih:8629D003F83BCF8812BD5178CF26B406BF3EAA31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:8629D003F83BCF8812BD5178CF26B406BF3EAA31
 magnet:?xt=urn:btih:50B149600C05C7723C54F6FEBF83961729A241A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,29 +679,7 @@ magnet:?xt=urn:btih:50B149600C05C7723C54F6FEBF83961729A241A4
 magnet:?xt=urn:btih:391FF229E34E02DD3906C3126C081A7AC62E3447
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368175   (910762) от 19.03.2020
-
-Анна Пашкова | Токсично. Как построить здоровые отношения и не вляпаться (2020) [EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910762.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Токсичные отношения» – так красиво психологи и медики называют отношения внутри семьи, где один человек подавляет личность другого. Порой в семьях, где партнеры склонны к насилию, происходят настоящие трагедии: у детей на почве стресса развиваются серьезные заболевания. Как не сойти с ума от чувства вины, можно ли вернуть такого малыша к жизни и, наконец, что поможет (   Читать дальше...   )Жанр: Семейная психологияФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D0E7B33E82DA126903A64BA030D22F1025B5AF0
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

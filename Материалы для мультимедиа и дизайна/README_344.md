@@ -1,3 +1,135 @@
+###  Публикация: 1387954   (790073) от 04.06.2020
+
+Растровый клипарт - Afrogfx - Mega Collection. Coffee #13 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Картинки на кофейную тематику.Формат: JPGРазрешение файлов: 2724 x 3253 - 7776 x 5184
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:663B117A3DAA6479A39DC49067714B4788373AD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387953   (790074) от 04.06.2020
+
+Растровый клипарт - Afrogfx - Mega Collection. Coffee #2 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Картинки на кофейную тематику.Формат: JPGРазрешение файлов: 2328 x 3492 - 8736 x 5720
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44301E33F533AFB54AD1B6FC67F468114F679D84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275372   (790324) от 11.01.2019
+
+NNM-Club Sound Cleaner Collection from STouR
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эксклюзивная коллекция музыкальных треков и звуковых эффектов AudioJungle к проектам After Effects от нашего одноклубника STouR, активного члена группы Sound cleaner.Формат: MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB582C958AB99888202D9B9A30069FC36BDEA536
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202170   (790365) от 28.01.2018
+
+Векторный клипарт - Winter Landscapes Backgrounds [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Зимние пейзажи
+4 AI +TIFF PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3E5FB106C9CA329F6D1B5F6482DB708F648A300
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275365   (790366) от 11.01.2019
+
+NNM-Club Sound Cleaner Collection from werter21
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эксклюзивная коллекция музыкальных треков и звуковых эффектов AudioJungle к проектам After Effects от нашего одноклубника werter21, стоявшего у истоков и активного члена группы Sound cleaner.Формат: WAV, MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5940B439BBF9CB01F089D41D7D854F250FCB0201
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275463   (790369) от 11.01.2019
 
 NNM-Club Sound Cleaner Collection from vip120
@@ -18,6 +150,8 @@ NNM-Club Sound Cleaner Collection from vip120
 ```bash
 magnet:?xt=urn:btih:0671827F335F2B6BE4131C4F18A2F1FE00F4D7E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +178,8 @@ magnet:?xt=urn:btih:0671827F335F2B6BE4131C4F18A2F1FE00F4D7E7
 magnet:?xt=urn:btih:7FF83ED703F165BB333EE79BB6C73F1F9AB03627
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +203,8 @@ NNM-Club Sound Cleaner Collection from sensei26
 ```bash
 magnet:?xt=urn:btih:04BC078FE7ED20DC97D5B9CAF84C681D632CBB12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +231,8 @@ magnet:?xt=urn:btih:04BC078FE7ED20DC97D5B9CAF84C681D632CBB12
 magnet:?xt=urn:btih:D054667CC56D70A618654B2F78EFC81E43562B25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +256,8 @@ magnet:?xt=urn:btih:D054667CC56D70A618654B2F78EFC81E43562B25
 ```bash
 magnet:?xt=urn:btih:7E2FC160B0E2942F2A2B5B23B7BAA9B45036238C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +283,8 @@ NNM-Club Sound Cleaner Collection from Stranger-13
 magnet:?xt=urn:btih:254225D36F38BD3C35BCE12FFBC05AD60F26CB7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +309,8 @@ NNM-Club Sound Cleaner Collection from andrey25991
 magnet:?xt=urn:btih:363247710E52D0D51EB7C7475C16DDAA9330A5F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +334,8 @@ NNM-Club Sound Cleaner Collection from tuxac
 ```bash
 magnet:?xt=urn:btih:7AAAEBA97DF7DC388712DCFAADA0F0D7CF2FB8D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +363,8 @@ magnet:?xt=urn:btih:7AAAEBA97DF7DC388712DCFAADA0F0D7CF2FB8D3
 magnet:?xt=urn:btih:FE16277336721B2AE45A4A5357DCBCB444C86AFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +388,8 @@ magnet:?xt=urn:btih:FE16277336721B2AE45A4A5357DCBCB444C86AFC
 ```bash
 magnet:?xt=urn:btih:03004DE03FC230A16F404F7CA78F98B3B9DA844E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +417,8 @@ magnet:?xt=urn:btih:03004DE03FC230A16F404F7CA78F98B3B9DA844E
 magnet:?xt=urn:btih:E8C875E9546771D30101166C26B6442C38540A88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +442,8 @@ magnet:?xt=urn:btih:E8C875E9546771D30101166C26B6442C38540A88
 ```bash
 magnet:?xt=urn:btih:D730A92C3111A7FE5F5D2AE6917DFFAEEA79509D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +471,8 @@ magnet:?xt=urn:btih:D730A92C3111A7FE5F5D2AE6917DFFAEEA79509D
 magnet:?xt=urn:btih:FB1090855C6B44A07B5077B6CFEA2010FD3EA5BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +499,8 @@ magnet:?xt=urn:btih:FB1090855C6B44A07B5077B6CFEA2010FD3EA5BD
 magnet:?xt=urn:btih:5BFBEC60C7159CA0B47D136B259E1979B2B4BE1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +524,8 @@ magnet:?xt=urn:btih:5BFBEC60C7159CA0B47D136B259E1979B2B4BE1A
 ```bash
 magnet:?xt=urn:btih:7497C79CC9DDFC60947F3C438208921B840228BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +551,8 @@ magnet:?xt=urn:btih:7497C79CC9DDFC60947F3C438208921B840228BC
 magnet:?xt=urn:btih:BCC638369A4EA5BF3F833F02228B10D1D41331C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +576,8 @@ magnet:?xt=urn:btih:BCC638369A4EA5BF3F833F02228B10D1D41331C7
 ```bash
 magnet:?xt=urn:btih:B2963481C6B420FAB7ECD7523A63CD92E240DA8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +603,8 @@ magnet:?xt=urn:btih:B2963481C6B420FAB7ECD7523A63CD92E240DA8B
 magnet:?xt=urn:btih:F21A9A40D8622A144B5FC1B0F307A2C74AF7C236
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +628,8 @@ magnet:?xt=urn:btih:F21A9A40D8622A144B5FC1B0F307A2C74AF7C236
 ```bash
 magnet:?xt=urn:btih:9B97A8DF6646679AB8E2710EF6C0B5B98FDF0BC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +655,8 @@ NNM-Club Sound Cleaner Collection from nazarvlad
 magnet:?xt=urn:btih:ED0937DA6AB3FB1F5551EADF53C811BFEA6E8454
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,125 +681,7 @@ magnet:?xt=urn:btih:ED0937DA6AB3FB1F5551EADF53C811BFEA6E8454
 magnet:?xt=urn:btih:674B674B268F23C47F8347E8718C89A6D614876E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275317   (790993) от 10.01.2019
-
-NNM-Club Sound Cleaner Collection from anopymous
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эксклюзивная коллекция музыкальных треков и звуковых эффектов AudioJungle к проектам After Effects от нашего одноклубника anopymous, идейного вдохновителя и организатора группы Sound cleaner.Формат: WAV, MP3
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ECF5CC88731B6E84D66F3B90CF6903C66F4BEA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275320   (790999) от 10.01.2019
-
-NNM-Club Sound Cleaner Collection from Nataly11
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эксклюзивная коллекция музыкальных треков и звуковых эффектов AudioJungle к проектам After Effects от нашей одноклубницы Nataly11, стоявшей у истоков группы Sound cleaner.Формат: WAV, MP3
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2829AB3E8BBC56A246986135B5F4DEB644ED511
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275085   (791000) от 10.01.2019
-
-Шаблоны - GraphicRiver - Kids Birthday Party - 20907262 [PSD, AI]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Яркий и красочный праздничный детский шаблон (флаер) для дня рождения.Формат: PSD, AIРазрешение файлов: 1875x2625
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78589E1A9BFB3A61FAACDCDD453FDDB1DCE201C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275148   (791038) от 10.01.2019
-
-Шрифты - Creative Market - SKATISTA 80% Greek+Cyrillic - 236715 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пять типов, которые сделают ваш дизайн более увлекательным, вдохновленным скейтбордингом и идеально подходящим для экстремальных видов спорта.Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D01A97FC59204C05086465BFCA8F9A5FAB8D1D67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275145   (791042) от 10.01.2019
-
-Шрифты - Creative Market - Miletta typeface with ligatures - 313565 [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Miletta - красивый рукописный шрифт, написанный настоящей кистью и тушью. Отсканированный с любовью и адаптирован для использования в качестве шрифта. Автор делал много лигатур и альтернатив, поэтому Ваша творческая работа будет веселой и милой.Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3963C6A1736F9AAF2A803E432AFF9C638D55BDF0
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,31 @@
+###  Публикация: 1090812   (941197) от 10.01.2017
+
+Марина и Сергей Дяченко | Долина совести (2005) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941197.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герой этой книги обаятелен и, без сомнения, талантлив. Друзья не мыслят себя без него. Мама души в нем не чает. Женщины стоят у него под окнами. У всеобщей любви есть лишь одна темная сторона: всякий, кто встретится на его пути, рискует жизнью.
+
+Кто сумеет без потерь пересечь Долину Совести?Жанр: Роман, ФантастикаПродолжительность: 11:31:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26F64D29270B6097E6257B8382466775A083A6D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091696   (941198) от 10.01.2017
 
 Елена Малиновская | Нечисть по найму (2017) [MP3]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:3D666A18627D777D964E5AAAFE605F12B67D661D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +73,8 @@ magnet:?xt=urn:btih:3D666A18627D777D964E5AAAFE605F12B67D661D
 magnet:?xt=urn:btih:613E44E2CD2A7236368E311C1501AB7F9C43B316
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +98,8 @@ magnet:?xt=urn:btih:613E44E2CD2A7236368E311C1501AB7F9C43B316
 ```bash
 magnet:?xt=urn:btih:0AB458909D19FC465159F635F9732FE292DF334A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +127,8 @@ magnet:?xt=urn:btih:0AB458909D19FC465159F635F9732FE292DF334A
 magnet:?xt=urn:btih:57C80C1FE8BA63566BF2C7903F444F5707C3AFB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +154,8 @@ magnet:?xt=urn:btih:57C80C1FE8BA63566BF2C7903F444F5707C3AFB7
 magnet:?xt=urn:btih:672CEF2D7423638A34D34889CB5DC739CFF5DBB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +179,8 @@ magnet:?xt=urn:btih:672CEF2D7423638A34D34889CB5DC739CFF5DBB7
 ```bash
 magnet:?xt=urn:btih:1EBB3E1F7DF6429868B423AEF3E6C37228E822E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +206,8 @@ magnet:?xt=urn:btih:1EBB3E1F7DF6429868B423AEF3E6C37228E822E2
 ```bash
 magnet:?xt=urn:btih:B884B9CE1BAC4D9FABA6AB5897CD7BA9FEA487BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +236,8 @@ magnet:?xt=urn:btih:B884B9CE1BAC4D9FABA6AB5897CD7BA9FEA487BE
 magnet:?xt=urn:btih:3A0631A8E8D824F0C13CDC8FEA501AF4ADD9FB8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +263,8 @@ magnet:?xt=urn:btih:3A0631A8E8D824F0C13CDC8FEA501AF4ADD9FB8B
 magnet:?xt=urn:btih:6D6293926D5D1C35419EC30424CE0D9CECB0FDE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +288,8 @@ magnet:?xt=urn:btih:6D6293926D5D1C35419EC30424CE0D9CECB0FDE9
 ```bash
 magnet:?xt=urn:btih:9B0042B173F99FEC89C3FA527FBDFA17692F8266
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +315,8 @@ magnet:?xt=urn:btih:9B0042B173F99FEC89C3FA527FBDFA17692F8266
 magnet:?xt=urn:btih:1AA9DD9F58C8CCB98C0E907D37974E8D3B5543B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +341,8 @@ magnet:?xt=urn:btih:1AA9DD9F58C8CCB98C0E907D37974E8D3B5543B8
 magnet:?xt=urn:btih:278B6037B721CEAC72AEDB2973DB594225B06CEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +366,8 @@ magnet:?xt=urn:btih:278B6037B721CEAC72AEDB2973DB594225B06CEA
 ```bash
 magnet:?xt=urn:btih:2ADA4BAAA84AC53C7BA4556313B0612473E1D5CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +394,8 @@ magnet:?xt=urn:btih:2ADA4BAAA84AC53C7BA4556313B0612473E1D5CF
 magnet:?xt=urn:btih:2D5B7C85DFE497B1B55CB6DF204D8429591C05DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +419,8 @@ magnet:?xt=urn:btih:2D5B7C85DFE497B1B55CB6DF204D8429591C05DB
 ```bash
 magnet:?xt=urn:btih:F3F84F380F77038428F725C7E960B567C72BD1B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +447,8 @@ magnet:?xt=urn:btih:F3F84F380F77038428F725C7E960B567C72BD1B0
 magnet:?xt=urn:btih:BBB9A9013BE991D199284F7DF33187BDC64F940A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +474,8 @@ magnet:?xt=urn:btih:BBB9A9013BE991D199284F7DF33187BDC64F940A
 magnet:?xt=urn:btih:2203F211C9B6030E3926170E017F0C805A5B0D39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +500,8 @@ magnet:?xt=urn:btih:2203F211C9B6030E3926170E017F0C805A5B0D39
 magnet:?xt=urn:btih:D5C85F43C75E6065608252A56739677A38945814
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +525,8 @@ magnet:?xt=urn:btih:D5C85F43C75E6065608252A56739677A38945814
 ```bash
 magnet:?xt=urn:btih:68C647A05338AC2924B92274CF3C79E00B95C500
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +554,8 @@ magnet:?xt=urn:btih:68C647A05338AC2924B92274CF3C79E00B95C500
 magnet:?xt=urn:btih:69C5385924F65EF3EEB14E107C262A8B89C12723
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +579,8 @@ magnet:?xt=urn:btih:69C5385924F65EF3EEB14E107C262A8B89C12723
 ```bash
 magnet:?xt=urn:btih:59773E087ACEE2219B2080D189EFED4241F5C920
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +606,8 @@ magnet:?xt=urn:btih:59773E087ACEE2219B2080D189EFED4241F5C920
 magnet:?xt=urn:btih:5A5BA2380795C0F3EC1D64CA51B9C9E920437844
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +631,8 @@ magnet:?xt=urn:btih:5A5BA2380795C0F3EC1D64CA51B9C9E920437844
 ```bash
 magnet:?xt=urn:btih:341B3227FE4BF7151F5EFD4D4DFCA3F3BD87BEAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +658,8 @@ magnet:?xt=urn:btih:341B3227FE4BF7151F5EFD4D4DFCA3F3BD87BEAB
 magnet:?xt=urn:btih:20B729DA2CE81FE83C8F1359241E0311CC2CF5EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,29 +684,7 @@ magnet:?xt=urn:btih:20B729DA2CE81FE83C8F1359241E0311CC2CF5EF
 magnet:?xt=urn:btih:CE234730F8A8E3A7A9D6DFA620392821668F966D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982804   (945477) от 05.02.2016
-
-Дафна дю Морье | Монте Верита (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уже несколько десятилетий книги известной английской писательницы Дафны Дю Морье (1907 – 1989) пользуются огромным успехом во всем мире. Писательница – мастер психологического портрета и увлекательного, захватывающего сюжета – создает в своих произведениях таинственную, напряженную атмосферу. За свою долгую жизнь она написала множество романов, рассказов, несколько (   Читать дальше...   )Жанр: Мистическая новеллаПродолжительность: 03:03:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA5D6D41E1C46D3B05B40650B1EA6E97A81ABCD3
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

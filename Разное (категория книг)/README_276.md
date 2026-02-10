@@ -1,3 +1,29 @@
+###  Публикация: 1253022   (387615) от 07.10.2018
+
+Наталья Резник | Что мы едим? Непростые ответы на простые вопросы (2018) [FB2]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга – новый взгляд на что-то хорошо известное (инжир, мак, бузина, полынь), либо рассказ о продукте, широко распространенном, но не в нашей стране (батат, который совсем не картошка, саранча, лягушачьи лапки). В книге рассказывается об истории продукта, его использовании в кулинарии и медицине.Жанр: Здоровое и правильное питание, КулинарияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:732AA8825EBA25633B4AF0BFFF56EFC24E90D094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 571775   (387627) от 07.11.2012
 
 А.С.Бутушин, Б.Г.Стецуренко | Основные знаки Комсомола. Каталог-определитель [2004] [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:A5FFCBF4C4100BC083FCB8D621B0A8085AA1644F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:A5FFCBF4C4100BC083FCB8D621B0A8085AA1644F
 magnet:?xt=urn:btih:61DDAC05C3368DAD32D231F58918718E20E5E802
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:61DDAC05C3368DAD32D231F58918718E20E5E802
 ```bash
 magnet:?xt=urn:btih:003697A04AB895B16168046E0FE84D39F257F088
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:003697A04AB895B16168046E0FE84D39F257F088
 magnet:?xt=urn:btih:B07CCC4D8A3BD9079FF7A58B58F80D4F91BE3304
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:B07CCC4D8A3BD9079FF7A58B58F80D4F91BE3304
 magnet:?xt=urn:btih:81D61B4EA379F7D3AA559B5DA53F76671CE3274F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +174,8 @@ magnet:?xt=urn:btih:81D61B4EA379F7D3AA559B5DA53F76671CE3274F
 ```bash
 magnet:?xt=urn:btih:F97DC1CABFDDE1318D42178A0C3B5C696D706F08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:F97DC1CABFDDE1318D42178A0C3B5C696D706F08
 magnet:?xt=urn:btih:6CCFB87D6796960E81E61FD14449A143EC3F039D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:6CCFB87D6796960E81E61FD14449A143EC3F039D
 ```bash
 magnet:?xt=urn:btih:FF7984418D23374E4EA72CDAF753AE23F480E40B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:FF7984418D23374E4EA72CDAF753AE23F480E40B
 magnet:?xt=urn:btih:94F549CAEFD5478E6AD78BF529F816AB1CE4B793
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:94F549CAEFD5478E6AD78BF529F816AB1CE4B793
 ```bash
 magnet:?xt=urn:btih:444B01DCB153BFC69A598C6BED086208E6D7FE8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:444B01DCB153BFC69A598C6BED086208E6D7FE8E
 magnet:?xt=urn:btih:74BF746B61458ECE4EA4E0F31B4706D6F04010FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:74BF746B61458ECE4EA4E0F31B4706D6F04010FC
 ```bash
 magnet:?xt=urn:btih:C4EDC9AA67D1D1BB92B89649365E5D3E6E9C1CBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:C4EDC9AA67D1D1BB92B89649365E5D3E6E9C1CBE
 magnet:?xt=urn:btih:4C196483FEF93E81CD3137BF9B2335FE715A29C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:4C196483FEF93E81CD3137BF9B2335FE715A29C2
 ```bash
 magnet:?xt=urn:btih:0E112E1D9D1E1C9AF6AAC88F4A69386A5CA8596B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:0E112E1D9D1E1C9AF6AAC88F4A69386A5CA8596B
 magnet:?xt=urn:btih:79BA6A6B2FD55AFAA973AC7866D18F059D953DF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:79BA6A6B2FD55AFAA973AC7866D18F059D953DF1
 ```bash
 magnet:?xt=urn:btih:0393B2F4E15BF3F9A588C1EE1BD4D31EFE26E697
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:0393B2F4E15BF3F9A588C1EE1BD4D31EFE26E697
 magnet:?xt=urn:btih:0A3864BC0C2A7AF0AB9802DB7DF446D329DBE063
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:0A3864BC0C2A7AF0AB9802DB7DF446D329DBE063
 ```bash
 magnet:?xt=urn:btih:1DD291075D6E3E298907022C499DF032B0C71453
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:1DD291075D6E3E298907022C499DF032B0C71453
 magnet:?xt=urn:btih:DE0D4CBB5B2DA4120754CEAED991754C581277CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:DE0D4CBB5B2DA4120754CEAED991754C581277CD
 ```bash
 magnet:?xt=urn:btih:8DB3DE519C3AD4C967CCA1C526E535492C7F0581
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +576,8 @@ magnet:?xt=urn:btih:8DB3DE519C3AD4C967CCA1C526E535492C7F0581
 magnet:?xt=urn:btih:72258E997092849C747B7E5246E1E0ABBA80EF02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:72258E997092849C747B7E5246E1E0ABBA80EF02
 ```bash
 magnet:?xt=urn:btih:075996FBADEB7464ADEB2CB6CC4C3115FEEE1BF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:075996FBADEB7464ADEB2CB6CC4C3115FEEE1BF7
 magnet:?xt=urn:btih:A3D114D2A839CBBF2CD3B116C7A8859B207BA12E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:A3D114D2A839CBBF2CD3B116C7A8859B207BA12E
 ```bash
 magnet:?xt=urn:btih:D7E09BA7E6AE688924C90C0505F565C527E9E24A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,29 +680,7 @@ magnet:?xt=urn:btih:D7E09BA7E6AE688924C90C0505F565C527E9E24A
 magnet:?xt=urn:btih:DC927F5DEB51E4EBD194652A4089DC7A0AAA7FF5
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173159   (390344) от 11.10.2017
-
-Рэй Лонг | Ключевые мышцы в Хатха-йоге. Том 2 (2010) [PDF] [En]
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390344.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью полноцветных трехмерных иллюстраций костей, мышц, сухожилий и связок доктор Рэй Лонг преподносит всем интересующимся научную подоплеку йоги. Хирург-ортопед, более 20 лет посвятивший изучению йоги, он знакомит читателей с анатомическими аспектами, которые играют ключевую роль в занятиях йогой. Великолепные иллюстрации позволяют наглядно увидеть функцию каждой (   Читать дальше...   )Жанр: Анатомия, йогаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFCA7FA0E178C20090D5E31CA32E3A8845E73FAB
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,27 +1,3 @@
-###  Публикация: 986858   (928444) от 15.02.2016
-
-Дипан / Dheepan (2015) HDRip [Line]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Боевик «Тамильских тигров» бежит из Шри-Ланки после конца гражданской войны. Ради получения убежища во Франции он выдает незнакомую женщину с ребенком за свою семью. Трое беглецов поселяются в предместье Парижа и постепенно сближаются, особенно перед лицом жестокости иммигрантских кварталов…Производство: Франция / A Plus Image 5, Canal+, Cofinova 11Жанр: Драма, КриминалРежиссер: Жак ОдиарАктеры: Джесутасан Антонитасан, Калиеасвари Сринивасан, Клодин Винаситамбу, Венсан Ротье, Фаузи Бенсаиди, Марк Зинга, Басс Дем, Франк ФалисПеревод: Многоголосый закадровый, профессиональный (Line)Субтитры: отсутствуютПродолжительность: 01:54:27Реклама: Внимание! Присутствуют голосовые и текстовые вставки рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EDA7EDAB4D79820678ABBD54364A9880F8619E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 588424   (928448) от 15.02.2016
 
 Секретарша / Secretary (2002) BDRemux [H.264/1080p]
@@ -43,6 +19,8 @@ magnet:?xt=urn:btih:2EDA7EDAB4D79820678ABBD54364A9880F8619E6
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +46,8 @@ magnet:?xt=urn:btih:2EDA7EDAB4D79820678ABBD54364A9880F8619E6
 magnet:?xt=urn:btih:68EEE5705AD2D391B4DBC725CAE62DE4A3BF58C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +71,8 @@ magnet:?xt=urn:btih:68EEE5705AD2D391B4DBC725CAE62DE4A3BF58C8
 ```bash
 magnet:?xt=urn:btih:0589AF2E7F2BC19FE5CEDE17B1317CE812A2B542
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +98,8 @@ magnet:?xt=urn:btih:0589AF2E7F2BC19FE5CEDE17B1317CE812A2B542
 magnet:?xt=urn:btih:213EE8FC097B2404953FB01BD331A7DE6CF99848
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +123,8 @@ magnet:?xt=urn:btih:213EE8FC097B2404953FB01BD331A7DE6CF99848
 ```bash
 magnet:?xt=urn:btih:992E237C8CA5404BEB0D12FFC5ACC97D6AFB4712
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:992E237C8CA5404BEB0D12FFC5ACC97D6AFB4712
 magnet:?xt=urn:btih:9161874CF7F993B605DB4D8C0574861AF5CE96D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +175,8 @@ magnet:?xt=urn:btih:9161874CF7F993B605DB4D8C0574861AF5CE96D8
 ```bash
 magnet:?xt=urn:btih:4DC7B61B9EFD29E46B1B8C9D7B429ABBBF46C65B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +202,8 @@ magnet:?xt=urn:btih:4DC7B61B9EFD29E46B1B8C9D7B429ABBBF46C65B
 magnet:?xt=urn:btih:D2B08188D423DDC7079AD4A3150B127DD6C81ADE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +227,8 @@ magnet:?xt=urn:btih:D2B08188D423DDC7079AD4A3150B127DD6C81ADE
 ```bash
 magnet:?xt=urn:btih:48ADBFDE952F24C1818628FDAA4DBF164A7E3A1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +254,8 @@ magnet:?xt=urn:btih:48ADBFDE952F24C1818628FDAA4DBF164A7E3A1D
 magnet:?xt=urn:btih:0CCA65F35D8D69C8D75A3DFA8A4333302C847388
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +279,8 @@ magnet:?xt=urn:btih:0CCA65F35D8D69C8D75A3DFA8A4333302C847388
 ```bash
 magnet:?xt=urn:btih:78E318CA035134B65A4E599FFAF60FFABD405E70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +306,8 @@ magnet:?xt=urn:btih:78E318CA035134B65A4E599FFAF60FFABD405E70
 magnet:?xt=urn:btih:25A23B8C3F8593765B6C438CAB346CB096DFBC2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +331,8 @@ magnet:?xt=urn:btih:25A23B8C3F8593765B6C438CAB346CB096DFBC2D
 ```bash
 magnet:?xt=urn:btih:B96149240791D73865AE763BCF6FF92992AFE063
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +358,8 @@ magnet:?xt=urn:btih:B96149240791D73865AE763BCF6FF92992AFE063
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +383,8 @@ magnet:?xt=urn:btih:B96149240791D73865AE763BCF6FF92992AFE063
 ```bash
 magnet:?xt=urn:btih:B2E671D8D7A30D3678B393A03D8E7991403002FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +410,8 @@ magnet:?xt=urn:btih:B2E671D8D7A30D3678B393A03D8E7991403002FB
 magnet:?xt=urn:btih:90B1FFF187F64A513F9E2D2F0D9A1B2E62E7F39F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +435,8 @@ magnet:?xt=urn:btih:90B1FFF187F64A513F9E2D2F0D9A1B2E62E7F39F
 ```bash
 magnet:?xt=urn:btih:54F7887134902EFDBF12C4D3FDDB931A63F95594
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +462,8 @@ magnet:?xt=urn:btih:54F7887134902EFDBF12C4D3FDDB931A63F95594
 magnet:?xt=urn:btih:05BF035B6B1677059312FFB12B524E0FCA628945
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +487,8 @@ magnet:?xt=urn:btih:05BF035B6B1677059312FFB12B524E0FCA628945
 ```bash
 magnet:?xt=urn:btih:4BB3BE688D8D062C80AE4223677F4471BB197DFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +515,8 @@ magnet:?xt=urn:btih:4BB3BE688D8D062C80AE4223677F4471BB197DFD
 magnet:?xt=urn:btih:C691939DE10D44A54210C5FF2D95F6F3F23FA033
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +542,8 @@ magnet:?xt=urn:btih:C691939DE10D44A54210C5FF2D95F6F3F23FA033
 magnet:?xt=urn:btih:D772C9B85EC5F405F179ABA58C54F9287673BCEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +567,8 @@ magnet:?xt=urn:btih:D772C9B85EC5F405F179ABA58C54F9287673BCEE
 ```bash
 magnet:?xt=urn:btih:62A439CFB8622183F6E806ED8590222B91648D37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +595,8 @@ magnet:?xt=urn:btih:62A439CFB8622183F6E806ED8590222B91648D37
 magnet:?xt=urn:btih:D6AA95DB1D39FE5E55F52D073A504A82FC43F628
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +621,8 @@ magnet:?xt=urn:btih:D6AA95DB1D39FE5E55F52D073A504A82FC43F628
 magnet:?xt=urn:btih:D8BE00B2BD7613D38031FF629446530DC25B0F6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +646,34 @@ magnet:?xt=urn:btih:D8BE00B2BD7613D38031FF629446530DC25B0F6D
 ```bash
 magnet:?xt=urn:btih:B45DC34DC8E104C7FB3ADBE5679ACD9C44B9F2AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365697   (928690) от 08.03.2020
+
+Опасные секреты / Official Secrets (2019) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_928690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сотрудница британской разведки Кэтрин Ган обнародует засекреченное электронное письмо, в котором изобличаются американское и британское правительства в их незаконном вторжении в Ирак. Кэтрин и её адвокаты пытаются оправдать её действия в суде — ей вменяют нарушение Закона о государственной тайне. Под угрозой её жизнь, свобода и брак, но ей необходимо отстоять свои (   Читать дальше...   )Производство: Великобритания, США / Classified Films, Clear Pictures EntertainmentЖанр: Триллер, Драма, Мелодрама, Криминал, Военный, БиографияРежиссер: Гэвин ХудАктеры: Кира Найтли, Мэттью Гуд, Рэйф Файнс, Индира Варма, Мэтт Смит, МайЭнн Беринг, Рис Иванс, Тамсин Грейг, Джек Фартинг, Хэтти Морахэн, Конлет Хилл, Кэтрин Келли, Шон ДулиПеревод: ДублированныйСубтитры: АнглийскиеПродолжительность: 01:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:508880147A596242B954C1490875A6642F3F29F3
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

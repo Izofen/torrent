@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:118CA3445C203E100185F9C3B038B9880A8E6C2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -55,6 +57,8 @@ CD1: mixed by Maor Levi
 magnet:?xt=urn:btih:158B2C7B9D01CEE6BE7CC6A6DC69D077EE720C5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,6 +85,8 @@ VA - Music News vol.322 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:109B07A13220D700FDF94E7AA2BA84D70B432A9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -111,6 +117,8 @@ Einherjer - Norron (2011) [MP3|320 кб/с]<Viking Metal>
 magnet:?xt=urn:btih:4677FE2515D140937802020855C09C1CA519B461
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +143,8 @@ Prepare for an explosive journey through a blistering setlist with Duran Duran's
 magnet:?xt=urn:btih:985A845DF4FB92260AB545145B758E34F3F7BA6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -158,6 +168,8 @@ magnet:?xt=urn:btih:985A845DF4FB92260AB545145B758E34F3F7BA6B
 ```bash
 magnet:?xt=urn:btih:3B15DB1D8D95AF40D4C357EFF46677CC509DE194
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -186,6 +198,8 @@ VA - The Best of Transensations (2018 - 2020) (2021) [AAC|~338 Kbps] <Progressiv
 magnet:?xt=urn:btih:961A9474E55BB0A76588EE43FBB5C4255D48BBCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:961A9474E55BB0A76588EE43FBB5C4255D48BBCC
 magnet:?xt=urn:btih:1C2AD5608C7A23B7FA09C5668813D2560CAD2E83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -233,6 +249,8 @@ magnet:?xt=urn:btih:1C2AD5608C7A23B7FA09C5668813D2560CAD2E83
 ```bash
 magnet:?xt=urn:btih:BC216DCD5A7DF26BCE0655E2B23AAB7C43898C5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +279,8 @@ VA - C Recordings 2021 (2022) [AAC|~309 Kbps] <Drum & Bass, Liquid Funk, Deep Du
 magnet:?xt=urn:btih:C799D65227610383052689E1D101C952D5923D2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +304,8 @@ magnet:?xt=urn:btih:C799D65227610383052689E1D101C952D5923D2E
 ```bash
 magnet:?xt=urn:btih:B1BCF10DC3243AF0ED1CFE222961C7E479148AC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +331,8 @@ magnet:?xt=urn:btih:B1BCF10DC3243AF0ED1CFE222961C7E479148AC5
 magnet:?xt=urn:btih:3969B0535FB3D04ACB84ECDAD5F32CDFD61F548C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +357,8 @@ Boxy SVG 3  v3.75.0 [En]
 magnet:?xt=urn:btih:DB1598230E1337C5D8638E20A16B38864B934BDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +382,8 @@ magnet:?xt=urn:btih:DB1598230E1337C5D8638E20A16B38864B934BDF
 ```bash
 magnet:?xt=urn:btih:FC94934A1532243EB7D7D1EB1BC821C180F3ABEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +412,8 @@ Dan McCafferty - In Memory of Dan McCafferty - No Turning Back (2023) [FLAC|Loss
 magnet:?xt=urn:btih:417C0962992784DF8C0FAAA1B80F7E93906CC31B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +437,8 @@ AYVY 1.18.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:C9DF93CE520E7FB3740CBC1F329607A451F01860
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +464,8 @@ magnet:?xt=urn:btih:C9DF93CE520E7FB3740CBC1F329607A451F01860
 magnet:?xt=urn:btih:42C579B0B9977D0C261655625AE0ED8961E3768F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +489,8 @@ Action 1.1.0 [En]
 ```bash
 magnet:?xt=urn:btih:767991E9B65A51DD5AAC7A6DE20C5347EE0BA89D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +516,8 @@ magnet:?xt=urn:btih:767991E9B65A51DD5AAC7A6DE20C5347EE0BA89D
 magnet:?xt=urn:btih:31AA94A88FBF3B6F21C18AE8727FE4FF3D81BD9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ magnet:?xt=urn:btih:31AA94A88FBF3B6F21C18AE8727FE4FF3D81BD9E
 ```bash
 magnet:?xt=urn:btih:5964B76089595A4091A2B4A85A05CB82FC1967BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +571,8 @@ Fusion Bass - Seasons (2021) [AAC|~345 Kbps] <Chill Out, Downtempo>
 magnet:?xt=urn:btih:4B9EE5D04C005A66DD8F97E9BFC724FBF6DA8324
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +600,8 @@ Old Gods of Asgard - Rebirth - Greatest Hits (2023) Music from the Games 'Alan W
 magnet:?xt=urn:btih:D7B23AC110A69350B68C5AC12D05DDDE40F8DCF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +627,8 @@ Alfred 4 Powerpack 4.6.2 [En]
 magnet:?xt=urn:btih:D4670C04815EF74FBB00917C0BF6DBCEBD1F961E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +652,8 @@ Artstudio Pro 4.0.1 [En]
 ```bash
 magnet:?xt=urn:btih:F8219111BBA925F7597354F42AF98A358D026FD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +679,8 @@ magnet:?xt=urn:btih:F8219111BBA925F7597354F42AF98A358D026FD1
 magnet:?xt=urn:btih:33B0DF51B58FE1B0873B40B7C3A03B374B81B0D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +704,8 @@ Smooze одушевляет ваш скролл и добавляет функц
 ```bash
 magnet:?xt=urn:btih:1B180825CA065B413FCDF45D2F615293424E4AC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

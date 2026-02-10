@@ -19,6 +19,8 @@ OnionFruit Connect 2023.1223 [En]
 magnet:?xt=urn:btih:60B981C125D59B71F3DEAD78D957E8407795F834
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ PortScan & Stuff - бесплатная утилита, которая дает 
 ```bash
 magnet:?xt=urn:btih:00CB90177F120B5BCA3C95C618407048DF015AE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Ant Download Manager - отличный менеджер загрузки сам
 magnet:?xt=urn:btih:41FF2C5A6110BA221B17FA7ADE1D85C1A143E94C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ MyLanViewer — программа для сканирования и монит
 magnet:?xt=urn:btih:CC5738784D1E7BB82A70DE4837FEADE91CA976B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Fast Video Downloader - удобная и простая в настройке �
 ```bash
 magnet:?xt=urn:btih:D075DF4DD57548ADDD1A17A659C7995A29DF564E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:6DE248794C6DF04873D92713CF10EF09210233C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Download Master эффективно решает 3 главных пробле�
 magnet:?xt=urn:btih:6FF591B9853E6EF9934C619600FE20EE4E46DAEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ GoodSync - программа из серии высоконадежного, у
 ```bash
 magnet:?xt=urn:btih:34C90BC3C8F45565479E0FEF4BD4A218957E5017
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ CurrPorts – полезная бесплатная программа для с
 magnet:?xt=urn:btih:5379339FFB3A010398D0B7E8472DB039595795E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Lacey -  простой инструмент для поиска и скачив
 magnet:?xt=urn:btih:8BB959E7A659CC0BD9298C477F6D1EAFCCE76551
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ DU Meter - программа для подсчета реального вхо�
 ```bash
 magnet:?xt=urn:btih:4ADFF0F06E954106B39987489E4FA6537102A8CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ TapinRadio - интернет радио от компании RaimerSoft (ра�
 magnet:?xt=urn:btih:AF6D064D8A9A4C836B4BA02F3D3DDF814BE4316E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ MediaHuman YouTube to MP3 Converter 3.9.17 (1510) RePack (& Portable) by elchupa
 ```bash
 magnet:?xt=urn:btih:C073FAF9CFBC93F0D13860202E778D865244CCC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Chromium – веб-браузер с открытым исходным кодо
 magnet:?xt=urn:btih:8B09F7A9672815D786D091DACFC7397D470B3518
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ MassTube — очень простая в использовании прогр�
 magnet:?xt=urn:btih:CB669615C743809FD93DD8E8AB69F1E8B70D7C00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:1597A6CFD220953B2A0A4C689329E38F46B635B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ FreeTube использует собственный HTTP-API YouTube с наб�
 magnet:?xt=urn:btih:FE10B8D45A8CC0E095B2624CC1E03DF86E436315
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ MediaHuman YouTube Downloader 3.9.17 (1510) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:2F13A7E474AE2DE13BEB2A669BF2B379F94F7868
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ YTDisBystro — сборка на основе zapret от KDS.
 magnet:?xt=urn:btih:F28E5A8252BE0E7E7422893CDCBBB02BFC22E0C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ Zapret-discord-youtube by Flowseal (сборка на базе Zapret) 1.8.5 (04
 ```bash
 magnet:?xt=urn:btih:55E17756B4CBDA69E560E5AC00B927138A3B6A3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ MAX Desktop 25.13.3 [Ru]
 magnet:?xt=urn:btih:D6778A0E59FA84AC867B5ABD28D16FD5B08C7FCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:D89292B653AB8AEA1E08561747DA6045015C7A9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:D89292B653AB8AEA1E08561747DA6045015C7A9D
 magnet:?xt=urn:btih:AD0E7A280DDEC4FA77B50E2146DEAAA9BF99C30E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ MediaHuman YouTube Downloader 3.9.17 (1510) RePack (& Portable) by Dodakaedr [Mu
 ```bash
 magnet:?xt=urn:btih:DE99E06573DE3E6BCD2F2D26AA1F9189A110F963
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ MediaHuman YouTube Downloader 3.9.17 (1510) [Multi/Ru]
 magnet:?xt=urn:btih:1BDAE212CDBDC6B5F57CF1B833623842C91BE1D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:E67DCC9031494A9200A7428314BD129119E910BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

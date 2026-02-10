@@ -22,6 +22,8 @@ VA - Parquet Goodies 2016 (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Prog
 magnet:?xt=urn:btih:6DC6B97BEA54DA206E9D4D4745E20E538AF2EB28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Techno 2007 - The Best (2007) 2CD, Compilation [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:BC45CD2EE6A64BC6DAC3FBE73ABF6A5A3BB5F707
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Black Hole House Music 01-17 (2017) [MP3|320 Kbps] <House, Progressive, Voc
 magnet:?xt=urn:btih:E4A571668C039C86E99CEC7060AAF2348CF1681F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Recoverworld Radio 005 (Mixed by Rich Smith) (2016) [MP3|320 кб/с] <Tran
 ```bash
 magnet:?xt=urn:btih:6618C2B2F1D421D1F6C473F70C9CA1E44C392A03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Redux Presents: The Uplifting Selection Vol.1 (2017) [MP3|320 Kbps] <Trance
 magnet:?xt=urn:btih:FA3E0C93CF32B1FFB82ABC2F136541127ECC630F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +165,8 @@ Bionika Records | Deepfono Ground - Label-Pack 18 Releases (2017-2020) Parent: T
 ```bash
 magnet:?xt=urn:btih:DC6E535FF37CCF3D1742B3C0B3430CEAE418F307
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -183,6 +195,8 @@ pl8 - Discography 7 Releases (2019-2021) opn g8s [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:3D6156BD954CB1082DD968CE658719EEB0C26660
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ As One (Kirk Degiorgio) - Discography 21 Releases (1994-2020) New Electronica, C
 ```bash
 magnet:?xt=urn:btih:13797F80AE7F8F94D2724ED87EF7219EB51BC3D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +252,8 @@ Hollan Holmes - Discography 7 Releases (2010-2020) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:AE2354CBC861305045AD4C512F9ABEF8B524C255
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +280,8 @@ Junkie XL - The Racing Collection (2018) [MP3|320 кб/с] <Electronic, Breakbea
 ```bash
 magnet:?xt=urn:btih:ED9FD9AF46884CF9938E54296E650CE1A8D0D5B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +310,8 @@ VA - Vajra (Compiled by Josko) (2006) Indica Music [FLAC|Lossless|tracks+.cue] <
 magnet:?xt=urn:btih:DB5BA05B74683DFE5E000998DFDA6464294218A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +338,8 @@ Martin Sturtzer - The Stellar Winds (2021) Echo Elberfeld [FLAC 2.0|44.1/24|trac
 ```bash
 magnet:?xt=urn:btih:732C1677E6C596A78EC8D820E30B56746E18C8E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +368,8 @@ Transponder - Terminae Space (2021) Exosphere [FLAC 2.0|44.1/24|tracks|WEB-DL] <
 magnet:?xt=urn:btih:133C993750C8D80B757B4A8041A8D51087F65FCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +396,8 @@ VA - Goa - The Power of Shiva, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/
 ```bash
 magnet:?xt=urn:btih:7BB0603AF617BA888F9D35B6893FFA039FB3927D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +426,8 @@ Aviators - The Cinematic Future (2020) [MP3|~278 Kbps (V0)] <Synthpop, Alternati
 magnet:?xt=urn:btih:B5AD241BAB61E4D9BBA24BD633E07CD42D2A2FB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +454,8 @@ Eric "The" Taylor - The Guidance Of Ancestry (2019) Touched Music [FLAC 2.0|44.1
 ```bash
 magnet:?xt=urn:btih:E253EAD0CB3FE59221554B0ECDED556EBD21C3F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +484,8 @@ VA - Machine Prototype 13 (2020) [MP3|320 Kbps] <House, Deep House>
 magnet:?xt=urn:btih:E04E3678EFB2088A514EF32CBF62B03C1DFB53D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +512,8 @@ Nils Hoffmann - Once in a Blue Moon (2020) [FLAC|Lossless|WEB-DL|tracks] <Progre
 ```bash
 magnet:?xt=urn:btih:2727127D7E8D7F5903E0307F8CAB5422B50961DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +542,8 @@ Seiji Takahashi - снег (2020) str012 [FLAC|Lossless|tracks+.cue] <Ambient, M
 magnet:?xt=urn:btih:A7A31871D4F5A150E03AF6C5A5F5D054910E84FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +570,8 @@ Rob Clouth - Zero Point (2020) Mesh [FLAC|Lossless|WEB-DL|tracks] <Experimental,
 ```bash
 magnet:?xt=urn:btih:7889319A2EED656D6BB11F27BD4F18987F7BD8C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +600,8 @@ VA - Machine Prototype 12 (2019) [MP3|320 Kbps] <House, Deep House>
 magnet:?xt=urn:btih:2E5E6781A1CD5B87F7C6D72B4DA07819C4DDCE34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +628,8 @@ VA - Sirup Miami 2020 [MP3|320 Kbps] <House, Deep House>
 ```bash
 magnet:?xt=urn:btih:289B6EFD910A3A9BB6BD8B5E1344341A16E3DC9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +658,8 @@ Halftribe - Backwater Revisited (2019) Dronarivm [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:FBA8B4E02928A49159550656CC385373DA79466F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +686,8 @@ ATB - Under The Stars (2016) [MP3|320 кб/с] <Chillout, Downtempo, Ambient>
 ```bash
 magnet:?xt=urn:btih:F6DDDD6B0521B6970E6D136836E0F29364ABE6BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -668,6 +716,8 @@ VA - Armada Chill 2017 [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:1BEB850AAD3EC88E4F157EBE1CCBF7E99D671BD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,6 +744,8 @@ Blank & Jones - Pure Lounge: Chilling Club Sounds (2016) [MP3|320 кб/с] <Chil
 ```bash
 magnet:?xt=urn:btih:49F77FF337A7D3CE357C3A0B665238CCB2089BF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

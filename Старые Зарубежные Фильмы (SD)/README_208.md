@@ -1,27 +1,3 @@
-###  Публикация: 1093444   (932274) от 16.01.2017
-
-Вершины Зеленой горы / Vrhovi Zelengore (1976) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оккупированная нацистами Югославия. В решающий день битвы на Сутиеске, июнь 1943 года, немцы замкнули кольцо вокруг главных партизанских сил, оставив лишь узкий проход на Зеленгора, между Любин-Гроб и Кошута. По стратегическому и моральному воздействию важное сражение шло на высоте Любин-Гроб. Бойцы второго отряда, Третьего батальона Четвертой пролетарской черногорской (   Читать дальше...   )Производство: Югославия (СФРЮ), Centar FRZ, Filmska Radna Zajednica (FRZ), Filmski Studio Titograd, Jadran Film, Kosovo Film, Zeta FilmЖанр: Военный, драмаРежиссер: Здравко ВелимировичАктеры: Сергей Бондарчук, Велимир «Бата» Живоинович, Джозефин Чаплин, Ален Нури, Велько Мандич, Радош Баич, Лиляна Драгутинович, Слободан Димитриевич, Данило Лазович, Фарук Беголли.Перевод: Одноголосый закадровый, любительский (Виктор Рутилов)Продолжительность: 01:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A9EF280570ED4FE7AC915779D2CE35E69427657
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 286024   (932284) от 23.01.2011
 
 Седьмые врата ада / ...E tu vivrai nel terrore! L'aldila (The Beyond) (1981) DVDRip
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:8A9EF280570ED4FE7AC915779D2CE35E69427657
 ```bash
 magnet:?xt=urn:btih:EE530C1CD823E744FE00E9755EB9E41BE0AA03D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:EE530C1CD823E744FE00E9755EB9E41BE0AA03D8
 magnet:?xt=urn:btih:7A1E454D5061D45CAFEA2B852BE451E543D95B18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +71,8 @@ magnet:?xt=urn:btih:7A1E454D5061D45CAFEA2B852BE451E543D95B18
 magnet:?xt=urn:btih:56E2A13F677F2CBBD6465E3075E2CEF722DD4AAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +96,8 @@ magnet:?xt=urn:btih:56E2A13F677F2CBBD6465E3075E2CEF722DD4AAA
 ```bash
 magnet:?xt=urn:btih:D55FAEA48A465CCA5F967C75CC9417956C55069B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +124,8 @@ magnet:?xt=urn:btih:D55FAEA48A465CCA5F967C75CC9417956C55069B
 magnet:?xt=urn:btih:CF56745E2C4F138FB0906A9C8ADC687D8D320F20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:CF56745E2C4F138FB0906A9C8ADC687D8D320F20
 ```bash
 magnet:?xt=urn:btih:175C593079A2175A184571BF6B939396C002D2FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +176,8 @@ magnet:?xt=urn:btih:175C593079A2175A184571BF6B939396C002D2FE
 magnet:?xt=urn:btih:E306AECC8813A9E31E34537C93119222EF82D6CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:E306AECC8813A9E31E34537C93119222EF82D6CA
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +228,8 @@ magnet:?xt=urn:btih:E306AECC8813A9E31E34537C93119222EF82D6CA
 magnet:?xt=urn:btih:52C0BD1CE04024A20B594A958B758D5D5DB487DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +254,8 @@ magnet:?xt=urn:btih:52C0BD1CE04024A20B594A958B758D5D5DB487DE
 magnet:?xt=urn:btih:ECD9C9C3F4B82455E8E0FB1F9C25C003360AFC59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +279,8 @@ magnet:?xt=urn:btih:ECD9C9C3F4B82455E8E0FB1F9C25C003360AFC59
 ```bash
 magnet:?xt=urn:btih:FAA8708D1F7A9BFF62FE9A2D6F08E5BD7C622666
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +307,8 @@ magnet:?xt=urn:btih:FAA8708D1F7A9BFF62FE9A2D6F08E5BD7C622666
 magnet:?xt=urn:btih:C9E3C508B733BE1D899E7E5EB2994A9935513E86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +332,8 @@ magnet:?xt=urn:btih:C9E3C508B733BE1D899E7E5EB2994A9935513E86
 ```bash
 magnet:?xt=urn:btih:84ACBB358BAE1638817EB9A286E1B7D883984B6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +359,8 @@ magnet:?xt=urn:btih:84ACBB358BAE1638817EB9A286E1B7D883984B6F
 magnet:?xt=urn:btih:EC1A77B893240CF775FB7D5B6285DAB15EAF8FF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +384,8 @@ magnet:?xt=urn:btih:EC1A77B893240CF775FB7D5B6285DAB15EAF8FF9
 ```bash
 magnet:?xt=urn:btih:BE92BCF4442067BC88BE53C7610DA556787C7534
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +415,8 @@ magnet:?xt=urn:btih:BE92BCF4442067BC88BE53C7610DA556787C7534
 magnet:?xt=urn:btih:1B6AA568CD079694571B74CB6167B8B80501E306
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +441,8 @@ magnet:?xt=urn:btih:1B6AA568CD079694571B74CB6167B8B80501E306
 magnet:?xt=urn:btih:41275D6C6068AD347BDCA53D5FCBA6FCB3738ECC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +466,8 @@ magnet:?xt=urn:btih:41275D6C6068AD347BDCA53D5FCBA6FCB3738ECC
 ```bash
 magnet:?xt=urn:btih:FAD091867701C7BCF0105BF8489F4CDCB3D5C46D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +494,8 @@ magnet:?xt=urn:btih:FAD091867701C7BCF0105BF8489F4CDCB3D5C46D
 magnet:?xt=urn:btih:4AAE6586389D0A2C59AB97987C74B8538FEC94DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +519,8 @@ magnet:?xt=urn:btih:4AAE6586389D0A2C59AB97987C74B8538FEC94DA
 ```bash
 magnet:?xt=urn:btih:BD51DDC3B2506A5556D0B253F9649D6258D75F0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +546,8 @@ magnet:?xt=urn:btih:BD51DDC3B2506A5556D0B253F9649D6258D75F0A
 magnet:?xt=urn:btih:C735A108ACE1BC95577DF2041D3753DDCA5DB4D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +571,8 @@ magnet:?xt=urn:btih:C735A108ACE1BC95577DF2041D3753DDCA5DB4D4
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +599,8 @@ magnet:?xt=urn:btih:C735A108ACE1BC95577DF2041D3753DDCA5DB4D4
 magnet:?xt=urn:btih:9A4FBE26F0F07AB78B8C49846184A4BEE2039366
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +625,8 @@ magnet:?xt=urn:btih:9A4FBE26F0F07AB78B8C49846184A4BEE2039366
 magnet:?xt=urn:btih:1FED759FD1A13B7D6A73D7EF6480A1764E9EBCCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +650,35 @@ magnet:?xt=urn:btih:1FED759FD1A13B7D6A73D7EF6480A1764E9EBCCA
 ```bash
 magnet:?xt=urn:btih:FB7C640305FA3A32FB7763E7CE7A4C9A63781B5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984906   (936535) от 10.02.2016
+
+Черная змея / Black Snake (1973) DVDRip [H.264] [АVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_936535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой англичанин отправляется на далекий карибский остров где расположена плантация, которая принадлежала его исчезнувшему брату. Как выяснилось, плантацией теперь заправляют жена брата — кровожадная нимфоманка леди Сьюзан — и двое ее приближенных: жестокий и глупый надзиратель и хорошо образованный чернокожий гомосексуалист.
+Эта троица ни во что не ставит жизни (   Читать дальше...   )Производство: США / Trident Films Ltd.Жанр: ТриллерРежиссер: Расс МайерАктеры: Анушка Хемпель, Дэвид Уорбек, Перси Херберт, Томас Бэптист, Бернард Бостон, Викки Ричардс, Дэвид Праус, Энтони ШарпПеревод: Авторский (А. Алексеев)Субтитры: ОтсутствуютПродолжительность: 01:22:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF4B0CC1CFE37696C36B5E2B7431E207ADDE2942
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

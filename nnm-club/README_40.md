@@ -19,6 +19,8 @@ MinerSearch — программа предназначенная для уда�
 magnet:?xt=urn:btih:A8F9777E6FE37E4A4368064ED67A02F52BDE1D28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ MAX Desktop 25.11.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:65416A6406C9E5C2AF3031DF09DE7B03022F7A89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:65416A6406C9E5C2AF3031DF09DE7B03022F7A89
 magnet:?xt=urn:btih:B22CC99965A321928C019958CD2D8C88C5892A9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Crashlands 2 (2025) [Ru/Multi] (1.3.0-rc.2) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:F501FD6EA91AC7150AD5F2A91D86CDA1D0EFE78E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ BeamNG.drive – автосимулятор, моделирующий повед
 magnet:?xt=urn:btih:A3E1708573BDB02A53D70D57EBEE12C0AF7AC64A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Lies of P (2023) [Ru/Multi] (1.12.0.0/dlc) Repack Let'sРlay [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:9E6D174FC5F1AFBC48C39AE4E92FE8B5A74DE582
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Grafana была создана 7 лет назад для визуализац�
 magnet:?xt=urn:btih:37E33B706632DE70D5F371D19CAC889D5818EC6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Busamen Gachi Fighter | Вотурод Мегавоин | Uglymug, Epicfighter |
 ```bash
 magnet:?xt=urn:btih:1D0762D860CB46D375E2D8E99AE9EA86078C0DDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:1D0762D860CB46D375E2D8E99AE9EA86078C0DDB
 magnet:?xt=urn:btih:86099F8B13C4DAC01492B35AF684C3318CF6D2D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:86099F8B13C4DAC01492B35AF684C3318CF6D2D7
 ```bash
 magnet:?xt=urn:btih:2EBB50A64C8D38213B75693FF4068ECD5E01DFE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:2EBB50A64C8D38213B75693FF4068ECD5E01DFE5
 magnet:?xt=urn:btih:B78908F1475A8AD41D977962B095244EBE891272
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (738144) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:B2F0B8D68D5CD1106D94229C5B28C82C6636B9A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:B2F0B8D68D5CD1106D94229C5B28C82C6636B9A7
 magnet:?xt=urn:btih:DBBE5A0B09E32C42FB03CB4A2C5AF3CA2D2DD999
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:DBBE5A0B09E32C42FB03CB4A2C5AF3CA2D2DD999
 ```bash
 magnet:?xt=urn:btih:E48D704A953632056E29C80E4FD1B7D196D89DE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:E48D704A953632056E29C80E4FD1B7D196D89DE7
 magnet:?xt=urn:btih:C332567DCA2F0519BBA7F064D0680AC64F55A61C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:C332567DCA2F0519BBA7F064D0680AC64F55A61C
 ```bash
 magnet:?xt=urn:btih:304D30D5FC665E161EC61B3FC17E338843D2D010
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:304D30D5FC665E161EC61B3FC17E338843D2D010
 magnet:?xt=urn:btih:22819BEFE5503097E0777A36C09A3E6D109456FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:22819BEFE5503097E0777A36C09A3E6D109456FB
 ```bash
 magnet:?xt=urn:btih:80B0838200334657BCFD83B9C9CB749AA86D4FD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:80B0838200334657BCFD83B9C9CB749AA86D4FD1
 magnet:?xt=urn:btih:F9585A894306FFBE7791A2DDF08F7235A0B74D28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:F9585A894306FFBE7791A2DDF08F7235A0B74D28
 magnet:?xt=urn:btih:6D1D41450144367EDFA4D7C9084D3F690CF19850
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:6D1D41450144367EDFA4D7C9084D3F690CF19850
 ```bash
 magnet:?xt=urn:btih:F95BCC60930BCCA7AB67409409E0DF490AB24AAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:F95BCC60930BCCA7AB67409409E0DF490AB24AAE
 magnet:?xt=urn:btih:3D031F471941EEF9AD0823D2DFA43D43F400CE08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:3D031F471941EEF9AD0823D2DFA43D43F400CE08
 ```bash
 magnet:?xt=urn:btih:EE3B01B573BC4598A28C20D867743E0D6A4E8B44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:EE3B01B573BC4598A28C20D867743E0D6A4E8B44
 magnet:?xt=urn:btih:4376542E075AAA2BBAD9F403638E25DB59C1C340
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.6/dlc) License GOG [Ul
 magnet:?xt=urn:btih:472A9CCD714C58D3817A495357B9069CC7D31D95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Euro Truck Simulator 2 дарит вам опыт управления самы�
 ```bash
 magnet:?xt=urn:btih:AB9582DD16587671B493DF7556DA21DA3D718427
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:B28BB838B09906A85968C5693EC2F047C3927F5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:B28BB838B09906A85968C5693EC2F047C3927F5F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Criminal Minds / Мыслить как преступник (P) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:02EC1949F35ECD71F030C05DEE30E1F17BA2B61D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:02EC1949F35ECD71F030C05DEE30E1F17BA2B61D
 magnet:?xt=urn:btih:9DD4878EC9552ACDD010ACE93AB5E3785E10FC68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:9DD4878EC9552ACDD010ACE93AB5E3785E10FC68
 ```bash
 magnet:?xt=urn:btih:FBE15EAA46B18ED458D3949DA698BD27676451A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:FBE15EAA46B18ED458D3949DA698BD27676451A9
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:FBE15EAA46B18ED458D3949DA698BD27676451A9
 ```bash
 magnet:?xt=urn:btih:6A2A388FCA7D279B18EC302B5A5E3C7F0000618C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:6A2A388FCA7D279B18EC302B5A5E3C7F0000618C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:6A2A388FCA7D279B18EC302B5A5E3C7F0000618C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:6A2A388FCA7D279B18EC302B5A5E3C7F0000618C
 magnet:?xt=urn:btih:623B7011D15F9E801C9939675CE12121F2CF334E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:623B7011D15F9E801C9939675CE12121F2CF334E
 magnet:?xt=urn:btih:3D36008D1B6A15E6B862BDD0164DA631A9638C10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:3D36008D1B6A15E6B862BDD0164DA631A9638C10
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:3D36008D1B6A15E6B862BDD0164DA631A9638C10
 magnet:?xt=urn:btih:8B32316EB3D84B2B305214440EBB5565ABEDAFA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:8B32316EB3D84B2B305214440EBB5565ABEDAFA3
 ```bash
 magnet:?xt=urn:btih:FB3B2201C8281B73A8087057681EE05D09172E41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:FB3B2201C8281B73A8087057681EE05D09172E41
 ```bash
 magnet:?xt=urn:btih:8C739B40FB8D106B4A823CDBC6DFB9F86F69D285
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:8C739B40FB8D106B4A823CDBC6DFB9F86F69D285
 magnet:?xt=urn:btih:32D569CCF26C6BC4D16BD86D6937A13F582FBC93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ Magic CG - это журнал для художников, концепт-ар�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ The KMPlayer - мощный бесплатный медиаплеер с под�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ The KMPlayer - мощный бесплатный медиаплеер с под�
 ```bash
 magnet:?xt=urn:btih:0BE44D5D0B5D206B06F7F3FEB9F02ABD45EB675A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ magnet:?xt=urn:btih:0BE44D5D0B5D206B06F7F3FEB9F02ABD45EB675A
 magnet:?xt=urn:btih:FCDE3D9E20017DE6487A262522578E3991E95363
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ magnet:?xt=urn:btih:FCDE3D9E20017DE6487A262522578E3991E95363
 magnet:?xt=urn:btih:8380737EE34993F24F98D447B5344F9435EB8D29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ magnet:?xt=urn:btih:8380737EE34993F24F98D447B5344F9435EB8D29
 ```bash
 magnet:?xt=urn:btih:A0715BC34EF92431DC5F64815DE172D7022AC5C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +612,8 @@ ABViewer – многофункциональное качественное и 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ ABViewer – многофункциональное качественное и 
 magnet:?xt=urn:btih:590B4100A9A14AB1EF11E36084E6B3F85DB0DF71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:590B4100A9A14AB1EF11E36084E6B3F85DB0DF71
 ```bash
 magnet:?xt=urn:btih:AB17C4760866F6AD6EDEBDF6F18DD78EFA0418C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +694,8 @@ Modern Times4
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

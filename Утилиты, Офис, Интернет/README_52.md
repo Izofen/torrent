@@ -19,6 +19,8 @@ uTorrent Pro 3.5.5 Build 46552 Stable Portable by A1eksandr1 [Ru/En]
 magnet:?xt=urn:btih:4ECC3E290FB32BBA8E2317B0C1E9481D387F16E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Geek Uninstaller - удобный, маленький и надежный, не 
 magnet:?xt=urn:btih:87C5F045FF919A93C792EC7E764F44FF02B0A917
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Iridium Browser 116.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:92701A0F4F38090A28FB4FCF0589B0F1C45B8D14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ V-Ray GPU CUDA - совместимость с GPU и CPU(   Читать дал
 magnet:?xt=urn:btih:A282CE28645CBE70C38309FB07E2205711FE5B9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ AOMEI NTFS to FAT32 Converter - это программа, обладающая 
 magnet:?xt=urn:btih:29837F7B0BBB8427F164CD71773A142C1C432C60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Auslogics BoostSpeed - приложение, которое поможет бы�
 ```bash
 magnet:?xt=urn:btih:BD725F14EBB7010C8E63D40936F15D6D0530A413
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ Corona Benchmark основан на ядре рендеринга Corona 10. О
 magnet:?xt=urn:btih:8CA187827AC4E4D14B0EDBF77213531F53182CFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ WinUtilities - системный набор для настройки ваше�
 magnet:?xt=urn:btih:6BA6B276E93EB07529890D2404D8EA3B50EF4E62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Geekbench - кроссплатформенная программа для пр�
 ```bash
 magnet:?xt=urn:btih:7BA22149C06E6E4D1BE79902559045850AC3EDFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ FreeTube использует собственный HTTP-API YouTube с наб�
 magnet:?xt=urn:btih:B1810F6D4E634D8C8D46F306FB28940573FF69F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ Calcpad — бесплатное программное обеспечение �
 magnet:?xt=urn:btih:74FA72904514A56E0AA51817F40700150FD62079
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ Tribler - своеобразный торрент-клиент, позволяю
 ```bash
 magnet:?xt=urn:btih:51B597139A22EB7E61BFE0580437C0AD2672E459
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ Stardock Groupy - программа для группировки нескол�
 magnet:?xt=urn:btih:7F91DC9B9184BB3E6F06C51CCABF7FE822D206CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ OpenedFilesView отображает список всех открытых в �
 ```bash
 magnet:?xt=urn:btih:F99CB44B0BAC7F50C256BE7EC0A52813F75758E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ SlimBrowser – браузер, построенный на базе Mozilla Fir
 magnet:?xt=urn:btih:4A31D187AC42490EDFAF9DDF6F7BA5CC76708DD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ Twinkstar - китайский браузер на базе Chromium. В Twinkst
 ```bash
 magnet:?xt=urn:btih:0558DA70FDBD7B20E81CA5E227CBDDB569D8D9BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:54BEBE329919CA5BE8AD2B6FFFABFB33D9FFFC08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ UltraSearch Professional находит файлы и папки на локал
 ```bash
 magnet:?xt=urn:btih:6154D36541115DFD76F8530E5D24D10E369B5EE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ LibreWolf как раз решает (   Читать дальше...   )Язы
 magnet:?xt=urn:btih:0067DDC0ED50594FD142662C9C98FF616EF8CDBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ MediaHuman YouTube Downloader 3.9.17 (2110) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:C1717C843B9AB7E24EA452C0645391F2B7E53027
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ Smart Defrag - дефрагментатор, позволяющий довест
 magnet:?xt=urn:btih:4F3262E26DD8B5135CE61365D05401D3FEB1A0B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 ```bash
 magnet:?xt=urn:btih:E4E0A5AE67BB43B602F6D70E417FC677D6D75E1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ IObit Uninstaller Pro представляет собой удобный инс�
 magnet:?xt=urn:btih:14D9BD6CD72425C5EE54934E0B7EF4C1CDFBA85B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:E4E9A171BEE07EDEB9BB4BEC6B22AB49D0F08298
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ MediaHuman YouTube Downloader 3.9.17 (2210) [Multi/Ru]
 magnet:?xt=urn:btih:BBBB078828E8E8D094874B7730D3E01BB46E86AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ KLS Backup 2025 — это мощная программа для резервн
 ```bash
 magnet:?xt=urn:btih:D77E84F303B0A732D31F7F7E48D43423CE316ADB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

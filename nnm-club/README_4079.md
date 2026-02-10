@@ -22,6 +22,8 @@ VA - Vocal Morning Lounge Mix (2025) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:5134912E43DA3AD2BC99554B07D6CC328E54B79C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Mashin Eiyuuden Wataru | Mashin Hero Wataru | Маленькие спасате�
 ```bash
 magnet:?xt=urn:btih:A158B04B015AB4788BDAE5F24980EBDA98D358DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Shin Mashin Eiyuuden Wataru Majinzan | Маленькие спасатели [19
 magnet:?xt=urn:btih:25027B526C14C6115C33A3B126ABC33370DC02E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Mashin Eiyuuden Wataru 2 | Mashin Hero Wataru 2 | Маленькие спаса�
 ```bash
 magnet:?xt=urn:btih:31288A6349EFE3CB8D95F2AD45D9CFCB98B7E58C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Mashin Eiyuuden Wataru: Owarinaki Toki no Monogatari | Маленькие спа
 magnet:?xt=urn:btih:F57141A73307EA3D950964881C0E323627FAC99D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Chou Mashin Eiyuuden Wataru | Mashin Hero Wataru 3 | Маленькие спас
 ```bash
 magnet:?xt=urn:btih:D45B3208B29D3B6F74A643C373DB31836C27FBAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Mashin Eiyuuden Wataru: Nana Tamashii no Ryuujinmaru | Маленькие спа
 ```bash
 magnet:?xt=urn:btih:B370A0694117ED97DCACBF42667B4E202E53532E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ Scooter - Live in Hamburg (2012) WEBRip [H.264/1080p] [hand made upscale AI]
 magnet:?xt=urn:btih:0CBE758BA43907011C6EE7612EA2A15FC7F4FBC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:0CBE758BA43907011C6EE7612EA2A15FC7F4FBC3
 ```bash
 magnet:?xt=urn:btih:F819279E5D01B7EA51A6B7DB5C32761E6AA8858C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:F819279E5D01B7EA51A6B7DB5C32761E6AA8858C
 magnet:?xt=urn:btih:29206918A67DCC119CD14C5A301D05A2BA8D2725
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ Ventusky: Прогноз погоды v48.0 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5E0F1D95F8A2BD14329A4AED5B806FC905EA095D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ Fraction Calculator by Mathlab / Калькулятор Дробей v2025.09.55
 magnet:?xt=urn:btih:D7D2A15E11ADEC8A7CE94EA50C375C2E53D8DDAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:D7D2A15E11ADEC8A7CE94EA50C375C2E53D8DDAC
 ```bash
 magnet:?xt=urn:btih:FA3CDC5621B82F05557959C9D2DF726249E56661
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ Bakemono no Ko | The Boy and the Beast | Ученик Чудовища [2015, Mo
 magnet:?xt=urn:btih:7FF700DB7F42CE18F7C23C8E7141D586083C988F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:7FF700DB7F42CE18F7C23C8E7141D586083C988F
 ```bash
 magnet:?xt=urn:btih:52BB747A0F91B64653F1EF3C2FF7866A2FECBA1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:52BB747A0F91B64653F1EF3C2FF7866A2FECBA1D
 magnet:?xt=urn:btih:D4E74EE152FC71E8448A4B65E6286294A40D6F67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:D4E74EE152FC71E8448A4B65E6286294A40D6F67
 ```bash
 magnet:?xt=urn:btih:EE614CAF832FF130B7D0BC215C140ECE42940AAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:EE614CAF832FF130B7D0BC215C140ECE42940AAC
 magnet:?xt=urn:btih:918B6C450A18E18EDD8BBB56D48BF012F4F9F3C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:918B6C450A18E18EDD8BBB56D48BF012F4F9F3C7
 magnet:?xt=urn:btih:32FF09B5D695ADAC2D51F9E7C0B8DFBF376FC3DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:32FF09B5D695ADAC2D51F9E7C0B8DFBF376FC3DF
 ```bash
 magnet:?xt=urn:btih:ABF76942DA72402DD6C7D038C1EEEBA14B71EBC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:ABF76942DA72402DD6C7D038C1EEEBA14B71EBC5
 magnet:?xt=urn:btih:4FE7A1F1045B08BC388C2311375880CA6C54E1BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:4FE7A1F1045B08BC388C2311375880CA6C54E1BF
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:4FE7A1F1045B08BC388C2311375880CA6C54E1BF
 magnet:?xt=urn:btih:511A4CE538184600F46536D641DC3CDAEFF6C878
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Kazrog Plugins 10.2025 VST, VST 3, AAX (x64) Retail [En]
 magnet:?xt=urn:btih:8817BABBB1645F5F7B16A11F9BB8FDC026ECB986
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ W10 Digital License Activation - инструмент от Ratiborus для ак
 ```bash
 magnet:?xt=urn:btih:D44CB586B456A57EA03F66CC2D507B5F6FE20AF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:D44CB586B456A57EA03F66CC2D507B5F6FE20AF1
 ```bash
 magnet:?xt=urn:btih:F8D8F874847BAD7C8563C99049026524C2905C1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

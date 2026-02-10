@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:070188F770DA3A637877EEA52760277552D7D648
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:070188F770DA3A637877EEA52760277552D7D648
 ```bash
 magnet:?xt=urn:btih:A90EFCB1C0774232E228AF06B7CD379DB5B9184C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:A90EFCB1C0774232E228AF06B7CD379DB5B9184C
 magnet:?xt=urn:btih:BBEE377408EE0193A1A2E9E6E240FCB5628618FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:BBEE377408EE0193A1A2E9E6E240FCB5628618FD
 ```bash
 magnet:?xt=urn:btih:30D182E88F2513CA450FAE6637118BC412A4FD0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:30D182E88F2513CA450FAE6637118BC412A4FD0B
 magnet:?xt=urn:btih:C7E130F7BA80AC2A4170382A6966DA39F775B81B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:C7E130F7BA80AC2A4170382A6966DA39F775B81B
 ```bash
 magnet:?xt=urn:btih:A3E0E57A61ED29A734EE6759DC1E389C8B8377B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:A3E0E57A61ED29A734EE6759DC1E389C8B8377B3
 magnet:?xt=urn:btih:40DD9B3428DAFF9C1B805E5D2BB4E73796162A99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:40DD9B3428DAFF9C1B805E5D2BB4E73796162A99
 ```bash
 magnet:?xt=urn:btih:80336245D251CCFEC75E1DEF372DEAFA3A271644
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:80336245D251CCFEC75E1DEF372DEAFA3A271644
 magnet:?xt=urn:btih:0F364FD54232F4DF217359D205663A4D7D7654AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:0F364FD54232F4DF217359D205663A4D7D7654AC
 ```bash
 magnet:?xt=urn:btih:0762E5F3E324D1A764D435212E6F7D0D46A0CFC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:0762E5F3E324D1A764D435212E6F7D0D46A0CFC6
 magnet:?xt=urn:btih:B22354B410F47F3B9A5747A12224409FAAE05E79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ BZ Напоминания и Дни Рождения PRO v3.10.2 Mod by Viktor24
 ```bash
 magnet:?xt=urn:btih:4B43DB2A0C8062507DD15127F84A805E2B4D28AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Auto Reply: автоответчик v6.1 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:BD877CABE4700C4F4C4CE625932A06FC9EC82CD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:BD877CABE4700C4F4C4CE625932A06FC9EC82CD6
 ```bash
 magnet:?xt=urn:btih:7D22ADE22345590E467476BE678F95712523083C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Mortal Kombat Trilogy - это файтинг-сборник 1996 года, ко
 magnet:?xt=urn:btih:48B4C8E0B3D05F6398FB6DCCBC454625BA63075C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:48B4C8E0B3D05F6398FB6DCCBC454625BA63075C
 magnet:?xt=urn:btih:8DC7CAD04DAE4F6125243BC02F97E11FD813BD51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:8DC7CAD04DAE4F6125243BC02F97E11FD813BD51
 ```bash
 magnet:?xt=urn:btih:C6512FCFCDA51B9A2564E1F21697E620E5F9DA99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:C6512FCFCDA51B9A2564E1F21697E620E5F9DA99
 magnet:?xt=urn:btih:939C6403753C3E13B44523CA6F7EB1FE58C96342
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Escape from Duckov (2025) [Ru/Multi] (1.0.20) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:493F6330D2DA08C351EA2AB5A9FD73BF500019F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ Tales of Old: Dominus (2025) [Ru/Multi] (1.0.261025) Repack FitGirl
 magnet:?xt=urn:btih:6E90D9F985B05022E04DD3DE22BDFE4EA4772C31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:6E90D9F985B05022E04DD3DE22BDFE4EA4772C31
 magnet:?xt=urn:btih:40CB1E83F81717E16BD6E1C1FC2BE8C9A74E1AEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ magnet:?xt=urn:btih:40CB1E83F81717E16BD6E1C1FC2BE8C9A74E1AEA
 ```bash
 magnet:?xt=urn:btih:6770BEA726AB84C1EEF4E70EDC350E15CF7B0848
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:6770BEA726AB84C1EEF4E70EDC350E15CF7B0848
 magnet:?xt=urn:btih:F5B7D413ACFF8B9991FF33526A256E856233DD6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:F5B7D413ACFF8B9991FF33526A256E856233DD6B
 ```bash
 magnet:?xt=urn:btih:C6BD96350419A02F2300A175F0227F46138AFBED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:C6BD96350419A02F2300A175F0227F46138AFBED
 ```bash
 magnet:?xt=urn:btih:209AD0CD14C6048D05922EFFB3851DE666F4CAA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +677,8 @@ Danheim - Heimferd (2025) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Nordic Folk,
 ```bash
 magnet:?xt=urn:btih:7768DB549187161804F95DD15E48565B5AF83512
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

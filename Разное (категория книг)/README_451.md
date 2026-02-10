@@ -1,3 +1,29 @@
+###  Публикация: 902640   (660283) от 29.05.2015
+
+Ирина Языкова, Михаил Талалай (ред.) | Андрей Первозванный – апостол для Запада и Востока (2011) [FB2, RTF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660283.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книгу, посвященную 800-летию перенесения мощей св. Андрея Первозванного из Константинополя в Амальфи (2008 г.), вошли статьи богословов, историков, филологов и искусствоведов, посвященные роли апостола в истории христианства, разным аспектам его церковного и народного почитания и его современной общехристианской миссии.Жанр: БогословиеФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F8D8A3751CEA31F31F972061713774B9D57E754
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 902638   (660288) от 29.05.2015
 
 Алексей Бодров, Михаил Толстолуженко (ред.) | Богословие красоты (2013) [FB2, RTF]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:D538DF53EBDDAC842327F4D0E79031DCDFFEAF38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:D538DF53EBDDAC842327F4D0E79031DCDFFEAF38
 magnet:?xt=urn:btih:D3801DA800D7FD18CA14614264680E38B64A263F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:D3801DA800D7FD18CA14614264680E38B64A263F
 ```bash
 magnet:?xt=urn:btih:09CB9139B7B9FD0A569A4E06F5A49340B13F043A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:09CB9139B7B9FD0A569A4E06F5A49340B13F043A
 magnet:?xt=urn:btih:A2EC99043C08F5659079968BD6C96EFA3A690905
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:A2EC99043C08F5659079968BD6C96EFA3A690905
 magnet:?xt=urn:btih:F35C74913334F6C9DD08555FE20890EB5CFCB772
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:F35C74913334F6C9DD08555FE20890EB5CFCB772
 ```bash
 magnet:?xt=urn:btih:228F50E8E781D560E781C90683080CE309B4C40A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +207,8 @@ magnet:?xt=urn:btih:228F50E8E781D560E781C90683080CE309B4C40A
 magnet:?xt=urn:btih:2E4BDF6606652937BA5C25D9848535CB14B2036B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:2E4BDF6606652937BA5C25D9848535CB14B2036B
 ```bash
 magnet:?xt=urn:btih:C6F0B0D9ED16F477F3219E558433792C17D1DF94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +259,8 @@ magnet:?xt=urn:btih:C6F0B0D9ED16F477F3219E558433792C17D1DF94
 magnet:?xt=urn:btih:536C8009A5E733803819B42C8A9FB91C47D91444
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:536C8009A5E733803819B42C8A9FB91C47D91444
 ```bash
 magnet:?xt=urn:btih:634873C4902EA138B9977274D864B00D403420F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +314,8 @@ magnet:?xt=urn:btih:634873C4902EA138B9977274D864B00D403420F0
 magnet:?xt=urn:btih:0C611EB003D207920F5B06870B0816F1567F17B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +342,8 @@ magnet:?xt=urn:btih:0C611EB003D207920F5B06870B0816F1567F17B9
 magnet:?xt=urn:btih:5C4B6129B4FD729DC0BD64972F9C27028A735271
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +367,8 @@ magnet:?xt=urn:btih:5C4B6129B4FD729DC0BD64972F9C27028A735271
 ```bash
 magnet:?xt=urn:btih:C7E2F1037ABA426F66D906366940B48367408C6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +394,8 @@ magnet:?xt=urn:btih:C7E2F1037ABA426F66D906366940B48367408C6C
 magnet:?xt=urn:btih:CABA484098C6EE0D57618673A8260C1FCFCFD04E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +419,8 @@ magnet:?xt=urn:btih:CABA484098C6EE0D57618673A8260C1FCFCFD04E
 ```bash
 magnet:?xt=urn:btih:50C976EE27DF262DF857D83551AE837E7F1F9670
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +448,8 @@ magnet:?xt=urn:btih:50C976EE27DF262DF857D83551AE837E7F1F9670
 magnet:?xt=urn:btih:3AD8BDC3D9AA5A69AF960531BA7420CCCA06380A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +473,8 @@ magnet:?xt=urn:btih:3AD8BDC3D9AA5A69AF960531BA7420CCCA06380A
 ```bash
 magnet:?xt=urn:btih:183811F0CC65406A640DE4B63D8AC8B90CAE4589
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +500,8 @@ magnet:?xt=urn:btih:183811F0CC65406A640DE4B63D8AC8B90CAE4589
 magnet:?xt=urn:btih:65AF7D45196B36DAFF3A83EB4A9ECBB47B9160C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +525,8 @@ magnet:?xt=urn:btih:65AF7D45196B36DAFF3A83EB4A9ECBB47B9160C3
 ```bash
 magnet:?xt=urn:btih:F5A30E94AD0E6C3F47F18D3F02F83E85FA3956E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +552,8 @@ magnet:?xt=urn:btih:F5A30E94AD0E6C3F47F18D3F02F83E85FA3956E0
 magnet:?xt=urn:btih:F68B462F28C0BB917AC341FCB5487363124D74A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +578,8 @@ magnet:?xt=urn:btih:F68B462F28C0BB917AC341FCB5487363124D74A4
 magnet:?xt=urn:btih:14E4025A7D77DEB3BAFAB5B17C9E3ECB176C2228
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:14E4025A7D77DEB3BAFAB5B17C9E3ECB176C2228
 ```bash
 magnet:?xt=urn:btih:CE4428E7C25DD1C6D4038777D1D30E1A5DC13DF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +632,8 @@ magnet:?xt=urn:btih:CE4428E7C25DD1C6D4038777D1D30E1A5DC13DF8
 magnet:?xt=urn:btih:1496AB6B425E1593C3A85F8ABC09DE6D74BAA0A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +660,8 @@ magnet:?xt=urn:btih:1496AB6B425E1593C3A85F8ABC09DE6D74BAA0A6
 magnet:?xt=urn:btih:EC12EEFF08D983C5F4ED4F990FE4AB819E988BB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,29 +686,7 @@ magnet:?xt=urn:btih:EC12EEFF08D983C5F4ED4F990FE4AB819E988BB3
 magnet:?xt=urn:btih:08F1BD81B6CC0B0969860A568AFC2C347CFBDDBB
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224661   (662664) от 13.05.2018
-
-Николай Курдюмов | Самая полная энциклопедия по саду и огороду (2018) [PDF]
-
->>Разное (категория книг)
->>Сад, огород, животноводство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Николай Курдюмов - самый известный и уважаемый в нашей стране автор книг о природном земледелии. Его уникальный талант популяризатора позволяет читателю легко и с юмором разобраться в основных, но, увы, для большинства дачников скучных агрономических знаниях, без которых невозможно получать урожай без особых физических и материальных затрат и, что самое главное - (   Читать дальше...   )Жанр: Сад и огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67FB3437343AEE1618421045D0AD65EE30A7D1CF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

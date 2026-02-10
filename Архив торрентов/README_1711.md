@@ -20,6 +20,8 @@ DropDMG 3.6.6 [Multi]
 magnet:?xt=urn:btih:3B200E96C8D8C4345AEB5B9F12D10416A92C42BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Path Finder - один из лучших файловых менеджеров, 
 ```bash
 magnet:?xt=urn:btih:10908F4A2BF26D4160ABAF3CBDB98D377F450F8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Duolingo Plus: изучение иностранных языков 5.57.0 XML-M
 magnet:?xt=urn:btih:BFA96224F862C672C1B5749BC8335680E126201D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Viber для Windows позволяет бесплатно отправлять 
 magnet:?xt=urn:btih:CABC50412BEC3F24AE5A7D13903BECB17F16675E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ XtraTools — это универсальный инструмент для оп
 ```bash
 magnet:?xt=urn:btih:1C597D07E7E77DE643E3F7E886441D81EEADEFF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Clipboard Manager 2.4.3 [En]
 ```bash
 magnet:?xt=urn:btih:DF608AB76F98D5E0E6BBD3E8EA00E2EA0C6675CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ Windows 7 (6.1.7601.25954) x64 (4in1) by Brux [Ru]
 magnet:?xt=urn:btih:863F1202D3AE20A65A7CEAF095554412FA7B8C6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Glary Tracks Eraser - полезный инструмент для защиты 
 ```bash
 magnet:?xt=urn:btih:502656FE495A8ACBCA86BA85DD825F844C8644DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ CloudMounter - это централизованный сервис, котор�
 magnet:?xt=urn:btih:FE232E4AE4FA33A97111CE5D45E736ECE134CB8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ DaVinci Resolve 17 — первый в мире программный прод�
 ```bash
 magnet:?xt=urn:btih:D5CB0CF981FF9AFA077A7120A32196E8ACA7D4AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Privacy Eraser Free - комплексный инструмент для защ�
 magnet:?xt=urn:btih:F4FF458E1A5818CCFC4B848033CD441A868A5944
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ Notebooks является единственным блокнотом, кото
 magnet:?xt=urn:btih:85290025F40BFE1C0EC94EAE343459A0FC310A4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ PowerDirector - самое быстрое и передовое программ
 ```bash
 magnet:?xt=urn:btih:8551189F5783EE73CB0D33196BF217E536AEB3E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ Spotify имеет громадный каталог музыки, поддер�
 magnet:?xt=urn:btih:92BB7AFACD9E7D45C16A89FB4244C05BF73D722E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ MediaHuman YouTube Downloader - удобное приложение с помо�
 ```bash
 magnet:?xt=urn:btih:48DD4016E039E1C60B14C2B97CE5BFE014C914F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ Microsoft PowerToys – это набор утилит, позволяющих �
 magnet:?xt=urn:btih:3AFB2176EF55B2B14D73ABFC52791B749932D90A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ Default Folder X - Расширяет функциональные возмож�
 ```bash
 magnet:?xt=urn:btih:1E2B56B29118A56914E3E85D5D695A2730B5F73F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ Android Studio предоставляет быстрые инструменты 
 magnet:?xt=urn:btih:BC15B4AF3F103F8D7699643B8898F5908B59FEB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ R-Studio Network 9.1 Build 191044 RePack (& portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1E045921B50A136A0BAD49A654260E73C53DBF03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:FCA85ECA5028BDA988BD30BE714BFCE77DE9E7D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ CamScanner - Мощное приложение для санирования. О
 ```bash
 magnet:?xt=urn:btih:8891F48CB2232D3E71D4897A108FF515F78F12DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Wise Care 365 – программный пакет, предназначенн�
 magnet:?xt=urn:btih:6AE9E1BF9DD7F9CA8DC0782AB2CFF099972301B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Glary Disk Cleaner - инструмент от компании Glarysoft для
 ```bash
 magnet:?xt=urn:btih:26180E340CDDBFC0BED8A520F15834EE529EE5C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ LDPlayer 9 — мощный бесплатный эмулятор устройс
 magnet:?xt=urn:btih:20BA5640AF3EBC05E820DF9F630A4D16FE3E5459
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ Scrutiny проверит ваши изображения, ваши внутре
 magnet:?xt=urn:btih:0E9EC4F9756F48BBD9EE52ABD9BCEF7D63C9C6E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ ExtraDisks - это набор инструментов для создания 
 ```bash
 magnet:?xt=urn:btih:4FB4BE7D281ED86A69C431263BCBF3B7E834394A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

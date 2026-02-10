@@ -1,27 +1,3 @@
-###  Публикация: 1460486   (1022403) от 06.04.2021
-
-Свиная отбивная / Pork Chop (2020) WEBRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свиная голова в мясной лавке рвется на свободу!Производство: США / Ringling College of Art and DesignЖанр: Короткометражный, комедия, ужасы, для взрослыхРежиссер: Katherine GuggenbergerПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: ОтсутствуютПродолжительность: 00:02:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECC3C092BA881AE2B6ACB427D57E573ACE8553C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460506   (1022580) от 05.04.2021
 
 Лийоки / Liyoki (2020) WEBRip [H.264/1080p-LQ]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:ECC3C092BA881AE2B6ACB427D57E573ACE8553C6
 ```bash
 magnet:?xt=urn:btih:3651D0D179CB8F06BD2E7EB151B9085B9C8278BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:3651D0D179CB8F06BD2E7EB151B9085B9C8278BC
 magnet:?xt=urn:btih:1001F27A729536F439B1556305271B853D09F988
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:1001F27A729536F439B1556305271B853D09F988
 ```bash
 magnet:?xt=urn:btih:988DE5475912E5373D57EC89E74B552F11177F97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:988DE5475912E5373D57EC89E74B552F11177F97
 magnet:?xt=urn:btih:19FD371A0726846EC1688766608002EB569AACFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:19FD371A0726846EC1688766608002EB569AACFA
 ```bash
 magnet:?xt=urn:btih:66CEF030415F9398A4DA66086152DC130652052A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:66CEF030415F9398A4DA66086152DC130652052A
 magnet:?xt=urn:btih:2B388825215BD76B09301FE2F77F90A0E4DDA5F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:2B388825215BD76B09301FE2F77F90A0E4DDA5F0
 ```bash
 magnet:?xt=urn:btih:CC8E4AE14D6B8997AF29273730551214B5CCD32E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:CC8E4AE14D6B8997AF29273730551214B5CCD32E
 magnet:?xt=urn:btih:E3523A51DB9B1AD689F3C1F3BAF3686E03E46928
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ magnet:?xt=urn:btih:E3523A51DB9B1AD689F3C1F3BAF3686E03E46928
 ```bash
 magnet:?xt=urn:btih:D55304D993A15BFB9401B1443222F23120AD360E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:D55304D993A15BFB9401B1443222F23120AD360E
 magnet:?xt=urn:btih:2694AFAD931298CEC451B12AF78C976A846CC94D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ magnet:?xt=urn:btih:2694AFAD931298CEC451B12AF78C976A846CC94D
 ```bash
 magnet:?xt=urn:btih:53726B38384B399CCCE5877A1762979BA1A294BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:53726B38384B399CCCE5877A1762979BA1A294BC
 magnet:?xt=urn:btih:BD0F474BC1528EC82D8AD16BBAD1596D5C8B3DB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ magnet:?xt=urn:btih:BD0F474BC1528EC82D8AD16BBAD1596D5C8B3DB0
 ```bash
 magnet:?xt=urn:btih:B725BFBDB3B8B5FF17F773A218510ED7415AE594
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ magnet:?xt=urn:btih:B725BFBDB3B8B5FF17F773A218510ED7415AE594
 magnet:?xt=urn:btih:E00F9F9694F023FCD217596F72B8A0C044172F49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ magnet:?xt=urn:btih:E00F9F9694F023FCD217596F72B8A0C044172F49
 ```bash
 magnet:?xt=urn:btih:513C9954AE034EF8E5D51D077F05EC9333A39715
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ magnet:?xt=urn:btih:513C9954AE034EF8E5D51D077F05EC9333A39715
 magnet:?xt=urn:btih:20F6396D92CA940085C506CD6D51FCFA9C3FAB7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ magnet:?xt=urn:btih:20F6396D92CA940085C506CD6D51FCFA9C3FAB7A
 ```bash
 magnet:?xt=urn:btih:74957CA28600C525A32E4988F11434260ACECFC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ magnet:?xt=urn:btih:74957CA28600C525A32E4988F11434260ACECFC5
 magnet:?xt=urn:btih:FD58D7FEFB66B84A46DDB88D1BF984AC852F7F49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ magnet:?xt=urn:btih:FD58D7FEFB66B84A46DDB88D1BF984AC852F7F49
 ```bash
 magnet:?xt=urn:btih:8FAA60F7036F9CDC3BAF37990D3F4742C8E13CCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ magnet:?xt=urn:btih:8FAA60F7036F9CDC3BAF37990D3F4742C8E13CCE
 magnet:?xt=urn:btih:F715A3EE44B2B9F602ED1C13FD94B685349E4B82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ magnet:?xt=urn:btih:F715A3EE44B2B9F602ED1C13FD94B685349E4B82
 ```bash
 magnet:?xt=urn:btih:21E239EE9B29FDDD305DA16EE03A91FCF1C11052
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ magnet:?xt=urn:btih:21E239EE9B29FDDD305DA16EE03A91FCF1C11052
 magnet:?xt=urn:btih:E100D7A3BE06C366D0964A9AEB2882EBDC438001
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ magnet:?xt=urn:btih:E100D7A3BE06C366D0964A9AEB2882EBDC438001
 ```bash
 magnet:?xt=urn:btih:2EFD3214E09BEF4CF0FFD5914DC78D7DD9335B68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +617,8 @@ magnet:?xt=urn:btih:2EFD3214E09BEF4CF0FFD5914DC78D7DD9335B68
 magnet:?xt=urn:btih:F01182D58C7278F15F6D461B7F0E465834BEB1C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +642,34 @@ magnet:?xt=urn:btih:F01182D58C7278F15F6D461B7F0E465834BEB1C2
 ```bash
 magnet:?xt=urn:btih:E96B4552A8D2CE66E035454CE2A3286ED9C1AFC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453606   (1026652) от 12.03.2021
+
+Райя и последний дракон / Raya and the Last Dragon (2021) WEB-DL [H.264/1080p] [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026652.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отважной воительнице по имени Райя и её верному спутнику Тук-Туку предстоит покинуть родное королевство Кумандра, чтобы отыскать последнего оставшегося в мире дракона, и с его помощью вернуть надежду на победу над могущественным врагом.Производство: США / Walt Disney PicturesЖанр: мультфильм, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Дон Холл, Карлос Лопес Эстрада, Пол БриггсПеревод: Дублированный (Line), профессиональный многоголосый (HDRezka Studio)Субтитры: Русские (Full (FOCS)), английские (SDH)Продолжительность: 01:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:577D8635F827E38CB58201B3327A29ACFCDD9AC7
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

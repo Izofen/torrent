@@ -22,6 +22,8 @@ Really Slow Motion & Instrumental Core - Paradox (2020) [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:DC6B8D4A34A3E7B730D1DBA7F550A4C3E0F66E9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -55,6 +57,8 @@ Michael Land - Monkey Island 2 Special Edition: LeChuck's Revenge (2010) [MP3|32
 magnet:?xt=urn:btih:89EA9AD6261EA6D41C622C8A992F6606DEC33328
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,6 +85,8 @@ Max Richter - Black Mirror / Чёрное зеркало: Nosedive (Music from t
 ```bash
 magnet:?xt=urn:btih:070F6AD1633D0A2B36B2D32D2F5D81401FB911C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +121,8 @@ Peter Seiler - Christmas Songs & Traditionals (1993) [MP3|320 кб/с]<New Age, 
 magnet:?xt=urn:btih:32BBD53984EE8D7732AAE854976C7B658E7A90C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +149,8 @@ Austin Wintory - The Sound Of Assassin's Creed Syndicate (2015) Limited Edition,
 ```bash
 magnet:?xt=urn:btih:EA749F2490AC4EFBF859212A573C905D66BA3767
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +179,8 @@ VA - Свадебный хит (Весільний хіт) (2006-2010) 6CD [MP3|
 magnet:?xt=urn:btih:6B534796407FF1A98ABEDEC80BC8C3C76E532105
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +208,8 @@ Ty Burhoe & Bill Douglas - Horizon (2013) [MP3|320 кб/с]<New age, Relax, Medi
 ```bash
 magnet:?xt=urn:btih:8F18864FCEE1B8982B79C5DFB69B60EB3C9F51B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -228,6 +242,8 @@ Seay - A Winter Blessing Songs For The Season (2007) [MP3|320 кб/с]<New age, 
 magnet:?xt=urn:btih:28739850068CEDAF6C705A49437BAC195E12B691
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -254,6 +270,8 @@ Johnny Cash - More Cash (2018) [MP3|320 Kbps] <Country>
 ```bash
 magnet:?xt=urn:btih:A0D277BC42D1B0CB2DEE0CE7E0B7AA98AB595668
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -282,6 +300,8 @@ Blackmore's Night - Winter Carols (2006) Deluxe Edition, Remastered, 2021, Ear M
 magnet:?xt=urn:btih:36381591E3BE4018B21762B2DD28279CBBBF3759
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +328,8 @@ VA - Romantic Christmas Love Songs and Romantic Music Vol.1 (2018) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:66B221FC1ACC55CF611814FE691EAA484EB5C18D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +361,8 @@ Maximilien Mathevon - Lotus Flower (2013) [MP3|256 кб/с]<New age, Relax, Medi
 magnet:?xt=urn:btih:E4EABC61AE59BF62C905BA003ABB0C935C0F0AF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +389,8 @@ VA - Cyberpunk 2077- Radio, Vol. 1-3 (2020) OST [MP3|320 Kbps] <Films-Games, Fil
 ```bash
 magnet:?xt=urn:btih:42A82FA092A506A5BE1FB46C29F572B9583DD780
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +419,8 @@ Eden Weint Im Grab - Nachtidyll - Ein Akustisches Zwischenspiel (2012) [FLAC|Los
 magnet:?xt=urn:btih:B88B666813EA91FC658F0E45BC33A4EB7F7B0B84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +447,8 @@ Concrescence - Obscured By The Dark Years (2006) [FLAC|Lossless|image + .cue] <N
 ```bash
 magnet:?xt=urn:btih:2AED1F9054504420FD7387055E04458A5C0CB227
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +477,8 @@ VA - A New You (2015) 3CD [MP3|320 кб/с] <Relax, Pop, Nu Jazz, Easy Listening
 magnet:?xt=urn:btih:989787B1F8CCFB21381FD680EBFE67C0180CBC9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +505,8 @@ Theodore Shapiro - Collateral Beauty / Призрачная красота (Orig
 ```bash
 magnet:?xt=urn:btih:B17227A17FD07762BF82A4299492E0E97866A997
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +535,8 @@ Theodore Shapiro - Collateral Beauty / Призрачная красота (Orig
 magnet:?xt=urn:btih:C1AF2EB33438120057D89D827519AB28D7ADEB68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +564,8 @@ She & Him - Christmas Party (2016) [FLAC|Lossless|WEB-DL|tracks] <Christmas, Ind
 magnet:?xt=urn:btih:73614BA41D10B0C42A5256DC942B854FDC26AD15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +592,8 @@ VA - Country Christmas Greatest Hits (2016) [MP3|320 Kbps] <Country, Pop, Soul, 
 ```bash
 magnet:?xt=urn:btih:97C0066260EB736FA739DFB757104A08CBFF1D6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +628,8 @@ Perry Como - The Complete Christmas Collection (2010) BoxSet 3CD[FLAC|Lossless]<
 magnet:?xt=urn:btih:D83B4BE00AEBAC1965C196CE8E7A0AAB63C2A7A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +657,8 @@ David Thomas - Ani Yun Wiya, Vol. 2 (2016) [MP3|320 Kbps] <Native American, Worl
 magnet:?xt=urn:btih:80F811A506E505CBA90EFA6AB3747CCB8F23164B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +682,8 @@ Molotohvin Koktaili - Sota-ajan propagandaa levyillä 1940-42 (1940-1942) [MP3|2
 ```bash
 magnet:?xt=urn:btih:E8D0D84B8D975B8BEB0342AAB8B83D573D61946D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -672,6 +718,8 @@ London Symphony Orchestra & John Alldis Choir - A Festival of Christmas Carols (
 magnet:?xt=urn:btih:838712171C9529E7A4880ACC9E6201C3B8F2AA54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -698,6 +746,8 @@ VA - Simply Accordeon (2013) 4CD Box Set [FLAC|Lossless|image + .cue]<Accordion,
 ```bash
 magnet:?xt=urn:btih:621E88572D85F8019721863D1299492D7CCFC4AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -731,6 +781,8 @@ David Arkenstone - Be Thou My Vision (2008) [FLAC|Lossless]<New Age, Celtic>
 ```bash
 magnet:?xt=urn:btih:C741DD9AB47930B860D1A0C42BA1BDCA9E9E2BE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ VA - Русский рок 2021 [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:0773B8E94705C7861F15CBBA6A8C89248B55AC6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ RusDance:
 ```bash
 magnet:?xt=urn:btih:AD13111B770844B56FFB1C83AB6042A1D595933E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Громкие новинки Декабря Vol 2 (2019) [MP3|320 Kbps] <P
 magnet:?xt=urn:btih:902EBC582FB8795179B1CF0003AFAD1CA1BEAB86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ VA - Singles Chart Hot 100 Billboard (07 January 2017) (2016) [MP3|320 Kbps] <Po
 magnet:?xt=urn:btih:FF685DDFFD91B84286322229624EC16752228C3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ VA - Радио Шансон. Лучшее (2021) MP3 от DON Music [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:1994E11CD968026190BF626606244F755DAC4ED9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +173,8 @@ VA - Новогодняя Дискотека В Стиле Modern Talking (2012)
 magnet:?xt=urn:btih:6774F144B818997CE6358E742D833056DF17E65F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +201,8 @@ Dee D. Jackson - The Singles Collection (1977-1984) [MP3|320 Kbps] <Electronic, 
 ```bash
 magnet:?xt=urn:btih:B22D72D7F10F99BB789728F759BF72C955766912
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +231,8 @@ VA - ВКонтакте: TOP 100 (2018) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:74F826C1D036793A98C335CDFD5A7FA69EA11C5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +259,8 @@ Fausto Papetti - Compilation (2021) [MP3|320 Kbps] <Instrumental>
 ```bash
 magnet:?xt=urn:btih:6B00EDDD6B84AAAF1230E52D34C73D3B97850E93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +289,8 @@ VA - De Top 100 Aller Tijden 1978 (RadioVeronica) (2017) [MP3|320 Kbps] <Pop, Ro
 magnet:?xt=urn:btih:D516CEA9BAF3347D90F41457B075ACEDCC615AC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +317,8 @@ VA - The Urban Rock Music (2020) [MP3|320 Kbps] <Rock, Alternative>
 ```bash
 magnet:?xt=urn:btih:A98903D428B49E17776D66E8457E3D9A67E0C62F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +347,8 @@ Disc 01:
 magnet:?xt=urn:btih:8B9271A04310E45F697C71498566A5A23CCFF1B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +375,8 @@ Paul Mauriat - Compilation (2021) [MP3|320 Kbps] <Instrumental, Paul Mauriat>
 ```bash
 magnet:?xt=urn:btih:DF35D4281A371D295729E1AB4365AD74A6FDBA22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +405,8 @@ VA - super rock KYOi от NNNB (2017) [MP3|320 Kbps] <Rock, Disco, Pop>
 magnet:?xt=urn:btih:F29DB59C0CB504D4B765C0D4B6CE1E2F21513F9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +433,8 @@ Snowy White - Compilation (2021) [MP3|320 Kbps] <Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:CC55970637894BEE8AC9208D4368D0C8180F3CD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +463,8 @@ Tony Joe White - Compilation (2021) [MP3|320 Kbps] <Rock, Blues>
 magnet:?xt=urn:btih:7A2F6059CB64A208E48E3E7E3ACE0FC87FDC11CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +491,8 @@ VA - The Official UK Top 40 Singles Chart 29.12.2017 [MP3|192-320 Kbps] <Alterna
 ```bash
 magnet:?xt=urn:btih:94F8AD78BCCA3863040F388236F896C0A7F013EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +521,8 @@ VA - Record Super Chart #468 (2016) [MP3|320 Kbps] <House, Club, Dance>
 magnet:?xt=urn:btih:8482C692D8D2B3F5AA1E099D4B676E2C44F140AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +549,8 @@ Caravelli - Compilation (2021) [MP3|320 Kbps] <Instrumental, Easy Listening>
 ```bash
 magnet:?xt=urn:btih:CC589D640B223ED0557B51EDA0E41896EA050D58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +579,8 @@ VA - The Electronic Spirit (2021) [MP3|320 Kbps] <Synthwave, Synthspace, Electro
 magnet:?xt=urn:btih:AE60F9C22C5961288057FF4EC58472EC75C14894
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +607,8 @@ VA - That Reggae Life (2021) [MP3|320 Kbps] <Reggae, Riddim, Dub, Ska>
 ```bash
 magnet:?xt=urn:btih:3C5D1C73032DAA3E963273C9DFAB89069DBD2CF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +637,8 @@ VA - Украинские песенки Vol.5 (2023) [MP3|320 Kbps] <Pop, Dance
 magnet:?xt=urn:btih:C6ED508E3A254C1107DCF9A71926EBAF5E648DCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +665,8 @@ VA - 100 Trance Melody Native (2016) [MP3|320 Kbps] <Trance, Harmonic, Vocal, Em
 ```bash
 magnet:?xt=urn:btih:F1B4D9A15E850BB9FA4A0B4C3D23E7C0C8E6766A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +695,8 @@ Blonker - Compilation (2021) [MP3|320 Kbps] <Instrumental>
 magnet:?xt=urn:btih:7A36830060B595832CEE61732F59D1915020857A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -676,6 +724,8 @@ VA - Trance Traveling 84 (Top 20) (Mixed by VNP) (2016) [MP3|320 Kbps] <Trance, 
 magnet:?xt=urn:btih:A35BCAD89CA86281B6421DFA941B5A2B012491C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -702,6 +752,8 @@ VA - Trance Traveling 72 TOP 20 (2015) [MP3|320 кб/с] <Trance>
 ```bash
 magnet:?xt=urn:btih:05E9BE0AA4FA6584796D9067C6DFB98B22787565
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

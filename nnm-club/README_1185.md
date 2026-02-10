@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:DD181AC82CBD1FA4535EB52C040082EEEC1FF416
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:DD181AC82CBD1FA4535EB52C040082EEEC1FF416
 ```bash
 magnet:?xt=urn:btih:ADA9D972DB79E4A0CC445251B6B37ED6A4D11C67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:ADA9D972DB79E4A0CC445251B6B37ED6A4D11C67
 magnet:?xt=urn:btih:D6530A63E079CC07ECB03F6F6447F19034A78C28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:07DC3F3E3F3AAF7A243ED721D72C151167257700
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:07DC3F3E3F3AAF7A243ED721D72C151167257700
 magnet:?xt=urn:btih:0F2BEF75FF1CE95B91C454B892EED04D0EF7A53C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Marko: Beyond Brave (2024) [Ru/Multi] (1.09) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:03052594723E7659CBA4D30A12D5EBC17C465E29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ Mark Tremonti — американский гитарист и вокалист.
 magnet:?xt=urn:btih:AFF115C64D6E8BE7803DF7B4F9AE91766861C727
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:AFF115C64D6E8BE7803DF7B4F9AE91766861C727
 magnet:?xt=urn:btih:50D68C1E70EAC410A74540ED24DC7AB956025523
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ Rosetta Stone: Изучение языков 8.30.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:84714F452B6C8AFCC405E58DA351C73D08127983
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:84714F452B6C8AFCC405E58DA351C73D08127983
 magnet:?xt=urn:btih:5AAD1025E5E15CC445575786DF71C6281A36F3AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:5AAD1025E5E15CC445575786DF71C6281A36F3AE
 ```bash
 magnet:?xt=urn:btih:DEF61F3C47F119CA3DE029DCCA37383769349C24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:DEF61F3C47F119CA3DE029DCCA37383769349C24
 magnet:?xt=urn:btih:3376C5974DDDB778BB78C62FD1D5D76C58010DC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ Beyond Hanwell (2024) [Ru/En] (1.1) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:F0DCAEA7E3E1C5BB9F7C63ADD4D14200B52E0E52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:F0DCAEA7E3E1C5BB9F7C63ADD4D14200B52E0E52
 magnet:?xt=urn:btih:08B0679E2931A556BD08099E8F7CFDEAB0A05892
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:08B0679E2931A556BD08099E8F7CFDEAB0A05892
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ Exsys (2020) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:8733CCB02A541A89AB578557BE4BCA53D93697DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ FREEDOM WARS Remastered (2025) [Multi] (1.0/dlc) Repack FitGirl [Contribution Ed
 ```bash
 magnet:?xt=urn:btih:95C7BB61E4AA43C27D56FE6F25257A40462E2B46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ v2rayN — это универсальный инструмент VPN и про�
 magnet:?xt=urn:btih:CEB1EAA8242861C00DDFB835353FBD9E639E7237
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:CEB1EAA8242861C00DDFB835353FBD9E639E7237
 ```bash
 magnet:?xt=urn:btih:61F21DE6078FF44096EAF0997D000F7103AAEF85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ Amenti (2025) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:9B824D8DF85A928C563154ABD954F59518217D63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ Construction Simulator 3 (2024) [Ru/Multi] (0.9) License GOG
 magnet:?xt=urn:btih:7192E169F31ED73182EBEBDFD678C280C6A0752A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ Undead Realm: Ego - это интерактивный хоррор, которы
 ```bash
 magnet:?xt=urn:btih:C4849CC3F10ED4688568FB0EDDAD993AF37D24C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ Altus поддерживает темы, несколько учётных за�
 magnet:?xt=urn:btih:71CFBADC7E43D78F0E0533D06C06D39B7809DAF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:71CFBADC7E43D78F0E0533D06C06D39B7809DAF0
 ```bash
 magnet:?xt=urn:btih:14B6ED39C94645EB48539AF3D7BE26C6CA271D24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ Shadows of the Damned: Hella Remastered - долгожданное переиз�
 magnet:?xt=urn:btih:2E99E48B6C6A5A3A5D501DEABB7F40CCC6D2A3A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:2E99E48B6C6A5A3A5D501DEABB7F40CCC6D2A3A1
 ```bash
 magnet:?xt=urn:btih:F35EAECEBF263B086186CE64353F89CB762CC6C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

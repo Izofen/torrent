@@ -19,6 +19,8 @@ FontViewOK 8.68 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:C67FA6B7D38B6486FDD8D0AFBB08EA2B2380F1B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ WeNote: заметки блокнот планер v6.29 Mod by Balatan [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:B39B1FE3B3D0D6ADEBC4DEC4FD9DD7A492B5C67A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:B39B1FE3B3D0D6ADEBC4DEC4FD9DD7A492B5C67A
 magnet:?xt=urn:btih:1B280BC04FC460C3677E42748A85AB6F4B16921C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:1B280BC04FC460C3677E42748A85AB6F4B16921C
 ```bash
 magnet:?xt=urn:btih:DB8FE9690663BF099309D1FFFF7935161D5152F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:DB8FE9690663BF099309D1FFFF7935161D5152F1
 magnet:?xt=urn:btih:D7A7430540D8C18B8063910DA78B20B05E2FCA43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:D7A7430540D8C18B8063910DA78B20B05E2FCA43
 ```bash
 magnet:?xt=urn:btih:53D72EF0CFCBD4C0D79BFA8318714A3BE520C731
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:53D72EF0CFCBD4C0D79BFA8318714A3BE520C731
 magnet:?xt=urn:btih:46C460F115EFB5DAED01B08B032E2606ED233A89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:46C460F115EFB5DAED01B08B032E2606ED233A89
 magnet:?xt=urn:btih:157DC5578DB883396752BA0A573083C5476FBC7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:157DC5578DB883396752BA0A573083C5476FBC7F
 ```bash
 magnet:?xt=urn:btih:D541D3426B1D811C0795DF79F447041C738C3E24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:D541D3426B1D811C0795DF79F447041C738C3E24
 magnet:?xt=urn:btih:E4E33FDBA4A788B289454BB1654AEBB096E0431E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ GPU-Z - бесплатная программа от TechPowerUp для отоб
 ```bash
 magnet:?xt=urn:btih:CA68B1D6D885A9DD280F38A702967B20CFCD72F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Vanced — это модифицированная версия YT, котора
 magnet:?xt=urn:btih:71F31B15F7A360017F4E16F237D1D95EB1A64FF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ iDownerGo – это приложение для загрузки мультим
 ```bash
 magnet:?xt=urn:btih:32F09EFA1C64133204910DA26ACF11CB53DD3C0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:32F09EFA1C64133204910DA26ACF11CB53DD3C0C
 magnet:?xt=urn:btih:8B0E5FA9E61E4E31B0F3D9D50F46E3BD2FADB85A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:8B0E5FA9E61E4E31B0F3D9D50F46E3BD2FADB85A
 ```bash
 magnet:?xt=urn:btih:27322212805BF3603DBC28C719FE5BDCA204AA18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ VA - ЕвроХит Топ 40 Europa Plus 11.04.2025 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:FFCF3993BDB4559C4C0260159F82DC818614D713
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ Hollywood Animal (2025) [Ru/Multi] (0.8.7ea) Repack seleZen [Early Access]
 magnet:?xt=urn:btih:EBDF10374659846C39739C7CD931AC0185187822
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:EBDF10374659846C39739C7CD931AC0185187822
 ```bash
 magnet:?xt=urn:btih:AE2C60325D9A72F8EB5A3F662FE235DE504C7960
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ magnet:?xt=urn:btih:AE2C60325D9A72F8EB5A3F662FE235DE504C7960
 magnet:?xt=urn:btih:B6C5B97CAEAB230DB539E7AD1333B6A4F6134C4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ SNOW BROS. 2 SPECIAL - это ремейк Snow Bro. 2, выпущенной TOA
 ```bash
 magnet:?xt=urn:btih:678EC5E2639638D1B6E8C7A0927338800375221B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ magnet:?xt=urn:btih:678EC5E2639638D1B6E8C7A0927338800375221B
 magnet:?xt=urn:btih:D3879C684481C76605F1DA14B779FF9B6E79E795
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ Instant Translate On Screen — это мощное приложение для 
 ```bash
 magnet:?xt=urn:btih:077CF8BED130A29C35C2B43B3DFDDFD27FECB12C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +607,8 @@ Rag'n'Bone Man - Compilation (2012-2024) [MP3|320 Kbps] <Neo blues, Soul>
 magnet:?xt=urn:btih:52C301AF08A0A2AAAEA930B11533DE302DCE8920
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:52C301AF08A0A2AAAEA930B11533DE302DCE8920
 ```bash
 magnet:?xt=urn:btih:64B320347B74AA828897EC66E7BB94956241A962
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +659,8 @@ magnet:?xt=urn:btih:64B320347B74AA828897EC66E7BB94956241A962
 magnet:?xt=urn:btih:3DA842F9686397808C103A8836FF091E738BDFA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ magnet:?xt=urn:btih:3DA842F9686397808C103A8836FF091E738BDFA1
 ```bash
 magnet:?xt=urn:btih:1500AD3EB2F90C8FC96A10BA42460A42A3F4E4B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:AEEFF34FA8876896CCC78D3E7B5B6D15457CA84C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Duplicate Files Search & Link (Duplicate Searcher) - это приложение
 ```bash
 magnet:?xt=urn:btih:BC630C31221ACA0556A9A9B95349BFA6EDB6D4DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:BC630C31221ACA0556A9A9B95349BFA6EDB6D4DC
 magnet:?xt=urn:btih:A2A4FBCD393EB925953B00108AE178BA1AC6559E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:A2A4FBCD393EB925953B00108AE178BA1AC6559E
 ```bash
 magnet:?xt=urn:btih:E6AB065255BBF8368C728057B6CA7C8A7DC36AE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ DATE A LIVE: Ren Dystopia (2024) [Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:94471CB41F586849DFD598F0E5180C125CFFE11F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Bloomtown: A Different Story - это сюжетная JRPG про Америк�
 magnet:?xt=urn:btih:307C5AE26CE634BF0DBFEB748093486305C072D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:307C5AE26CE634BF0DBFEB748093486305C072D9
 ```bash
 magnet:?xt=urn:btih:23391B4CCC0B857A9C3D358DFE3A42B20F8C0436
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ BOUDOIR Inspiration — это платформа и журнал, посвящ�
 magnet:?xt=urn:btih:39B72B00DAB8D8A9BC785649338C5A4AED1D3C4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ PDF-XChange Editor — программа для просмотра, редак�
 ```bash
 magnet:?xt=urn:btih:BF527896056FED49B640FBA33148BFE9B88E26DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:BF527896056FED49B640FBA33148BFE9B88E26DA
 magnet:?xt=urn:btih:5700FF7A5913A23FDBB1F463FAC19BFB623EE527
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ The Will of Arthur Flabbington – игра в жанре головоломок
 ```bash
 magnet:?xt=urn:btih:C97507A1D3CB1C77345F15A439AEB3BC8AA5E506
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ BOUDOIR Inspiration — это платформа и журнал, посвящ�
 magnet:?xt=urn:btih:179E6AF92AFC3E29B0D9BBD0F4B6C46FA9D6F887
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:179E6AF92AFC3E29B0D9BBD0F4B6C46FA9D6F887
 ```bash
 magnet:?xt=urn:btih:2B2580B628AB31EF3AA310AEB3ECE76A0E53A7F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ Kvark - это шутер от первого лица события котор
 magnet:?xt=urn:btih:49FCC59EE34B753BACCE73BB4BAD146F1EFFFCDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:49FCC59EE34B753BACCE73BB4BAD146F1EFFFCDB
 ```bash
 magnet:?xt=urn:btih:159FE548A2BC32D01D36369643B44083238C4A9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:159FE548A2BC32D01D36369643B44083238C4A9D
 magnet:?xt=urn:btih:3ECF56FAB09DBD26C1DB9ADEAE4361554A9C865A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Master Detective Archives: RAIN CODE Plus (2024) [Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:423361B80EBA0035A50C28A67B1B193A49A07FA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:423361B80EBA0035A50C28A67B1B193A49A07FA3
 magnet:?xt=urn:btih:1548CFFD3D783B3B93816ACA745C9B9F45A43B7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ EARTH DEFENSE FORCE: WORLD BROTHERS 2 (2024) [Multi] (1.0/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:36217E8777CCA80C165DB9F3F6FB47722F779124
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ ViewBox - приложение для Android устройств (в том чи
 magnet:?xt=urn:btih:53F43784A92BD5D973991BAF234BDE29483A940C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:53F43784A92BD5D973991BAF234BDE29483A940C
 ```bash
 magnet:?xt=urn:btih:8A47BF5EC89DF6F618AC58BDC9E85F14B9563247
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ VA - Lounge Empire (25 Afterwork Anthems), Vol 2 (2024) [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:C3ABC580CA81B2C969B8E64BCC144E806AAECA5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ VA - Lounge Empire (25 Afterwork Anthems) Vol 1 (2024) [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:20D86180256308BE9B2E87EDCFAB8250BCB3C397
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ PDF-XChange Pro — универсальное решение для работ�
 ```bash
 magnet:?xt=urn:btih:B9137F607FF1ED6220C688D427A631B5A78BFEF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ magnet:?xt=urn:btih:B9137F607FF1ED6220C688D427A631B5A78BFEF0
 magnet:?xt=urn:btih:B23A3F50A8FA8B6285492AA316934C8E07511FAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ Windows Manager - это универсальная утилита для Micros
 ```bash
 magnet:?xt=urn:btih:469DB57AD61F49AB9554F9C3D9FA894C77957D21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

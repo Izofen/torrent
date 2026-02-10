@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:7D3BB7A516D78008EFD0CFD99F3A7BC4F2FD225D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Zhenyu George Li | Unreal Engine 5 Game Development with C++ Scripting (2023) [P
 ```bash
 magnet:?xt=urn:btih:D4623467A0421F98991FBC83FA1CD4F631145640
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Tiago Rodrigues Antao | Fast Python (2023) [PDF][EN]
 magnet:?xt=urn:btih:A84736047DC6C66430FF88455B780D531B210BD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Ruby - относительно новый объектно-ориентиров
 ```bash
 magnet:?xt=urn:btih:FDC3E0BB2DAE4E5C64D5E73AA507E173927414C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:FDC3E0BB2DAE4E5C64D5E73AA507E173927414C0
 magnet:?xt=urn:btih:2BFD08992C9797E3521EFA9C0BA4E2CEA2AFF250
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Christian Ullenboom | Java: The Comprehensive Guide to Java Programming for Prof
 ```bash
 magnet:?xt=urn:btih:B4D17491AA9DFC3900CD175D3927F0CB5593BFA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:B4D17491AA9DFC3900CD175D3927F0CB5593BFA6
 magnet:?xt=urn:btih:CE4B2CA8641C7AC5F184C346BCC6F4772367B3B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:CE4B2CA8641C7AC5F184C346BCC6F4772367B3B9
 ```bash
 magnet:?xt=urn:btih:C2E1CFCDFFD856874C0D0B6FA303ADB2E6ADBB62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Magnus Larsson | Microservices with Spring Boot 3 and Spring Cloud, 3rd Edition 
 magnet:?xt=urn:btih:0ACF5EEC9E8C0D21E9088F7BEFB6841DE14759A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Holden Karau, Mika Kimmins | Scaling Python with Dask (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:86F317C3528E997D81BF61A6EFE26A68005693A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Madona S. Wambua | Modern Android 13 Development Cookbook (2023) [PDF][EN]
 magnet:?xt=urn:btih:221986CC7A095720E0FC065C769F6AF16BDF5BF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Sufyan bin Uzayr | HTML: The Ultimate Guide (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:1DBBC85B70D6B23757E24250A50521DCB1BA300D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Wallace Wang | Pro iPhone Development with SwiftUI, 4th Edition (2023) [PDF][EN]
 magnet:?xt=urn:btih:9E1E779C04A58882E258166EFF56EA6A0F66EDB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:9E1E779C04A58882E258166EFF56EA6A0F66EDB6
 ```bash
 magnet:?xt=urn:btih:633BD5AA8A09E9B9689C80F012944C8C7EFFAF04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:633BD5AA8A09E9B9689C80F012944C8C7EFFAF04
 magnet:?xt=urn:btih:58B8E236922F0F5FB90CF7B72DF492DC6FC6A16A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:58B8E236922F0F5FB90CF7B72DF492DC6FC6A16A
 ```bash
 magnet:?xt=urn:btih:24B0488870385DEDF2874FD73E6CEC7175A0B3E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ CUDA - вычислительная архитектура, разработан
 magnet:?xt=urn:btih:4739A041949B60DA23C2EFD961261C5636F12A45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:4739A041949B60DA23C2EFD961261C5636F12A45
 magnet:?xt=urn:btih:E3C7A9DF0E25B2FDD928A0668C70D28E4F2CB5E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:E3C7A9DF0E25B2FDD928A0668C70D28E4F2CB5E8
 ```bash
 magnet:?xt=urn:btih:8D9B628B8268CEAD96BAB113E327DE0A1D1B8682
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Musa Arda | Hands-On Python / Практический Python (2022) [EPUB] [En]
 magnet:?xt=urn:btih:1F816DAB95E7E85756E1EA72F459E230596E1959
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:1F816DAB95E7E85756E1EA72F459E230596E1959
 ```bash
 magnet:?xt=urn:btih:1BA54A8ED7988649A28D5BE4B1C6DA443AA1DF3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:1BA54A8ED7988649A28D5BE4B1C6DA443AA1DF3B
 magnet:?xt=urn:btih:3B3A846FEC9EE609340EF346EE8F4967EE135E8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Master the Spring Framework, its fundamentals and core topics, and share the aut
 ```bash
 magnet:?xt=urn:btih:747C24716AADBC7E33814276A9626CF7CB45FE07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:747C24716AADBC7E33814276A9626CF7CB45FE07
 ```bash
 magnet:?xt=urn:btih:E64C41F25B8AF9D63F9653CF7FD853E420D4BF27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ JavaScript, безусловно, является одним из наибол�
 magnet:?xt=urn:btih:6DD7DFEA1FAFF46B2FC08C71AEA2CEB5910C1C4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Shing Lyu, Andrew Rzeznik | Practical Rust Projects, 2nd Edition (2023) [PDF][EN
 ```bash
 magnet:?xt=urn:btih:52976C819F190DBA46E9E89EC7DD62E8CE97DE3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

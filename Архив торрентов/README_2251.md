@@ -1,27 +1,3 @@
-###  Публикация: 956897   (329173) от 15.11.2015
-
-Набор обновлений UpdatePack-XPSP3-Rus Live 15.11.15 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор обновлений для Windows XP SP3 Rus x86. Ключевой особенностью набора является наличие тех же обновлений, какие содержит UpdatePack-XPSP3-Rus. Дополнительно включены обновления тех продуктов, которые являются частью операционной системы: Windows Media Player 9-11 и Internet Explorer 6-8, а также исправления ошибок локализации. Возможна установка полных версий (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69DBAEF7C1BA5B58F0CECA25E74B21FB8C0DC5EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 956539   (329177) от 15.11.2015
 
 VSO ConvertXtoDVD 5.3.0.40 Final Portable by PortableWares [Multi/Ru]
@@ -42,6 +18,8 @@ VSO ConvertXtoDVD - программа, предназначенная для п
 ```bash
 magnet:?xt=urn:btih:D129E8679CEA47F9AC834923FEE006353EF0B06A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Stand Up. Сезон 3. Выпуск №9 (2015.11.15) SATRip
 magnet:?xt=urn:btih:EFE845B69FC7AB461CBF4922C60CCB66DBC60CAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Total Uninstall - утилита, предназначенная для корр
 ```bash
 magnet:?xt=urn:btih:E75473B1D80169CC72402A2C9E461C674991F8FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:E75473B1D80169CC72402A2C9E461C674991F8FD
 magnet:?xt=urn:btih:D9A5D98F2094EB83E9F52EBAC989BDE77059BC05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:D9A5D98F2094EB83E9F52EBAC989BDE77059BC05
 ```bash
 magnet:?xt=urn:btih:93515CE543DEDE015FCD3EE084D7D8C8242AA833
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Calendar from Earth - Календарь праздников 1.3.2 [Ru]
 magnet:?xt=urn:btih:AE8C5B907167395433D93217E14C2E80C353D159
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Side Pocket 1.3 [En]
 ```bash
 magnet:?xt=urn:btih:DD2BC7CCD2D6F3F5692AD623CBB95C78B6FEB224
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ CDBurnerXP - программа для записи CD и DVD, включая Bl
 magnet:?xt=urn:btih:369B9FA33427E3C12FCB0F9BBDD1A19848F18258
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ AdwCleaner - программа, которая ищет и удаляет ре�
 ```bash
 magnet:?xt=urn:btih:74556DE4DA7E27D43161B85500EDA59D8A1DE488
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +254,8 @@ magnet:?xt=urn:btih:74556DE4DA7E27D43161B85500EDA59D8A1DE488
 magnet:?xt=urn:btih:080ABFFA714B01FB6C33C378DAF117C19101EBBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +279,8 @@ magnet:?xt=urn:btih:080ABFFA714B01FB6C33C378DAF117C19101EBBC
 ```bash
 magnet:?xt=urn:btih:0A026902EF0B062EB1F478943641804128C6AED2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +306,8 @@ Lim Screenshot 1.1 [Ru]
 magnet:?xt=urn:btih:090CF8ADF77B0B7E17C6D61642C86F01F50CFDFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +331,8 @@ IsMyHdOK 1.21 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2FF15B5AA459FEB86D86B0844E4F36CD5D048044
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +358,8 @@ Bandizip — это легковесный архиватор с привлек�
 magnet:?xt=urn:btih:F0DA6026D7A1641F40155E392FFCD9AC51B19C2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +383,8 @@ Privacy Eraser Free 4.6.0 Build 1671 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3D05E8F8004BC52E498215A4FA5B71D94AE6AB68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +410,8 @@ magnet:?xt=urn:btih:3D05E8F8004BC52E498215A4FA5B71D94AE6AB68
 magnet:?xt=urn:btih:EA61BB2316D901AF97B790910DB2A70E18EAEFE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +435,8 @@ LimNote 1.3.6 [Ru]
 ```bash
 magnet:?xt=urn:btih:651EBD5ECCB50ACC3981995715DD1415CF60DD5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +465,8 @@ Aesthetic Perfection - Blood Spills Not Far From The Wound (2015) [OGG|484-556 �
 magnet:?xt=urn:btih:7F59A5BA0693896773928F01DA68902BFC73A08F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +494,8 @@ Aesthetic Perfection - 'Til Death (2014) [OGG|486-536 кб/с]<EBM, Industrial, 
 magnet:?xt=urn:btih:2EABFF6F949A560339E46455777D0AD37362E1E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +519,8 @@ magnet:?xt=urn:btih:2EABFF6F949A560339E46455777D0AD37362E1E7
 ```bash
 magnet:?xt=urn:btih:28701D28E0E0383EC8D42E551D01103A3680571C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +547,8 @@ magnet:?xt=urn:btih:28701D28E0E0383EC8D42E551D01103A3680571C
 ```bash
 magnet:?xt=urn:btih:1BD25005999D4ADBD666669F75004B9456A931C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +577,8 @@ PDF Expert - это один из лучших инструментов для �
 magnet:?xt=urn:btih:FD6516E6F4DA6914F375A2CD490CF18E4C52836D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +604,8 @@ magnet:?xt=urn:btih:FD6516E6F4DA6914F375A2CD490CF18E4C52836D
 ```bash
 magnet:?xt=urn:btih:949BBB2719FA61589D64F04DB4251241C85B59FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +634,8 @@ Ah Cama-Sotz - State Of Mind (2015) [FLAC|Lossless|tracks+.cue]<Tribal, Dark Amb
 magnet:?xt=urn:btih:51E8EAB434BEC9313C0F4E0863D296C29AC5D841
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +662,37 @@ Haujobb - Blendwerk (2015) [FLAC|Lossless|WEB-DL|tracks]<IDM, Industrial, EBM, M
 ```bash
 magnet:?xt=urn:btih:83DB05ACB50AF2E2EEE367126A3EC6A544D09390
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956494   (329441) от 15.11.2015
+
+Наив - Populism (2015) [MP3|256-320 кб/с]<Punk Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Антиутопия
+02. Другие
+03. 20 Лет одиночества
+04. Вверх!(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C99C92929FAF4A235A53E09E4D2D0FBEAE65A4C5
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

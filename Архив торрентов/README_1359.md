@@ -19,6 +19,8 @@ MCS Drivers Disk 22.11.8.1756 [Multi/Ru]
 magnet:?xt=urn:btih:13429BE61E763C63FE47D8483B2099E62FB38CCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Remote Desktop Manager – это небольшое приложение для
 magnet:?xt=urn:btih:721BB7482458FCCE874C842B4CCEF34D438AC683
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:1191A4CA95AAA6D2503D571E7372AA668A2D73E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Athentech Perfectly Clear Complete 3.11.1.1892 RePack (& Portable) by elchupacab
 magnet:?xt=urn:btih:13875468313E010683440844E80C26676DF84213
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:2EFCA5D5A93F52898E2CDDEFC7736DE74874B3C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ AOMEI Backupper – программа для создания резервно�
 magnet:?xt=urn:btih:A050195986C6570E0A0E0396762D628504642160
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Opera 72.0.3815.400 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:EEB188BB4D2131718495EFC13179327872F8DEE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ updated_sep_2023_x64_dvd_9c03e083.iso.
 magnet:?xt=urn:btih:8679268AA805269132F72381C9D7DB4309D75A63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:8679268AA805269132F72381C9D7DB4309D75A63
 ```bash
 magnet:?xt=urn:btih:2DDF105EAF26F55BC9B5770168EFC2B891249569
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 magnet:?xt=urn:btih:95D894A8414E67F6AB7E359AA2068953F0E27D70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Google Earth Pro 7.3.6.9264 (x64) Portable by FC Portables [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A49186825952082D1A5280E8C6CBED8FFE9FF6DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ John’s Background Switcher это программа периодически 
 magnet:?xt=urn:btih:2AEB1306853F9D07913D2626BE3E93902923A744
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Google Earth Pro 7.3.6.9285 (x64) Portable by FC Portables [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:47DF78DE5F65D57D0CAE7CA6865EA1979F83D245
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Advanced Uninstaller - идеальный инструмент для деинс
 magnet:?xt=urn:btih:AF526680D76BDFE3FF8027E997A2828E74B83064
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Auslogics Disk Defrag Ultimate - это профессиональная вер�
 ```bash
 magnet:?xt=urn:btih:BB254C78543B7CF920105E318C6A04ED19F5765E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ IK Multimedia называет ToneX «полноценной программн
 ```bash
 magnet:?xt=urn:btih:EB587CBF45721A6AD953846C479788C6BEFC4251
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ FEDUK - ЙАЙ (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:8A5822AFE5DAC894B81F82C2BE2DD23850887EDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ Sublime Text не является свободным или открытым п
 magnet:?xt=urn:btih:E7782787E90F7F68E2833B22A85499EA0D302EBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Nox App Player 7.0.5.9000 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:528145B6AFAD1849F97A0D201E7D6B0A40EC9AF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ NewFileTime 6.77 Portable [Multi/Ru]
 magnet:?xt=urn:btih:6701FC24FF5875C61B8563415C97056BF0E2AB2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Ocenaudio — аудио-редактор, распространяемый ав
 ```bash
 magnet:?xt=urn:btih:A4696CCB3CF8B22D82A4E64BAA396BD5262F3724
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ Foxit PDF Editor Pro (ранее известный как Foxit PhantomPDF Busi
 magnet:?xt=urn:btih:0861D767902B13892AFCBDE7B0852068D6D327E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ reaConverter Pro - мощный инструмент для тех, кто им�
 magnet:?xt=urn:btih:C8A3FE786FC2FB63566F361BB7E5D8F0D279635D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ MediaHuman YouTube Downloader 3.9.9.77 (2011) RePack (& Portable) by Dodakaedr [
 magnet:?xt=urn:btih:B72D0190EA46FC013B2522CA2F72F12CCA03E3C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ Wirecast предлагает доступное программное обес
 ```bash
 magnet:?xt=urn:btih:5BE962403625F974478F6DBC5B1398D2CA8ACEE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +683,8 @@ Mastering The Mix создает плагины, (   Читать дальше.
 ```bash
 magnet:?xt=urn:btih:25CF4C75985963100918552A20E4C52DCD3E1051
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

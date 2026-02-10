@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:055915108DC08AA3238122ADEBF976FF8027C2E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ VA - syncmusic - Essentials, Vol. 1 (2013) [AAC|~335 Kbps] <Lounge, Chill Out, D
 ```bash
 magnet:?xt=urn:btih:9A2B829DC1EA313FA62AC333BE0820C3160223B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Endseeker - Global Worming (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 magnet:?xt=urn:btih:75CFE3B7801356C2AC5155C2E38321B0C35A26A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ GoodSync - программа из серии высоконадежного, у
 ```bash
 magnet:?xt=urn:btih:A5E4F2067B03D34F17E7D82B09464B5A756EEEB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:A5E4F2067B03D34F17E7D82B09464B5A756EEEB9
 magnet:?xt=urn:btih:7C11D50DDDA908E4D9411D61BF509BF96AA0D476
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Untouch 1.2.1 [En/Ru]
 ```bash
 magnet:?xt=urn:btih:859AE2F0730FEE0101D019B35487CBFA8C76AC3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ VA - The Sound Of Dance House (2019) [MP3|320 Kbps] <Dance House>
 magnet:?xt=urn:btih:0ABDD944E099F5AA7709A1F5BB995880A56DF552
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:0ABDD944E099F5AA7709A1F5BB995880A56DF552
 ```bash
 magnet:?xt=urn:btih:D738A1446E21529BC2A31A89A87C6CAE30C333EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ xScope — cоздан специально для дизайнеров и ра�
 magnet:?xt=urn:btih:21BA8A18884B2667D66B77E9172A5098A410374C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ PaintCode 3 v3.5.0 [En]
 ```bash
 magnet:?xt=urn:btih:4EB1723EDD46D439DE1454C9FB651C8F8EFE2C4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:4EB1723EDD46D439DE1454C9FB651C8F8EFE2C4A
 magnet:?xt=urn:btih:C595C579CDAADA284F02798E8DC866384A435B94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ Atlas Fallen (2023) [Ru/Multi] (Build 12227267/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:334578C1F856BD16D52938299174D0FA19984A4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ VA - A Tribe Called Kotori 3 (2019) [AAC|~328 Kbps] <Progressive House, Deep Hou
 magnet:?xt=urn:btih:CF3D1C7A213F1D783048856E3077FC5FBBB0A7EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:CF3D1C7A213F1D783048856E3077FC5FBBB0A7EC
 ```bash
 magnet:?xt=urn:btih:EE31B980AD05FAB9B85C1164D0087C51EEEB2DB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:EE31B980AD05FAB9B85C1164D0087C51EEEB2DB2
 magnet:?xt=urn:btih:8EA02F34F54C40083928C94609A8997937DBA3B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ The Lord of the Rings: Return to Moria (2023) [Ru/Multi] (1.0.0.112055) Repack O
 ```bash
 magnet:?xt=urn:btih:D4C9F4DC4FAFD207387CC8843C987781B972D7A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:D4C9F4DC4FAFD207387CC8843C987781B972D7A8
 magnet:?xt=urn:btih:289258203C691635F9B9A053140A70A16ECE5CB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ DJ Shadow - Our Pathetic Age (2019) 2CD [FLAC|Lossless|tracks + .cue] <Trip Hop,
 ```bash
 magnet:?xt=urn:btih:0D0B2B96B816BC82FB8E989CF98418DB5488C315
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +509,8 @@ Lich King - Toxic Zombie Onslaught (2008) [WavPack|Lossless|image + .cue] <Thras
 magnet:?xt=urn:btih:29657C058A21DF4BB2A201165631A5E087C34F9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +538,8 @@ Gomorra - Dealer Of Souls (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Met
 magnet:?xt=urn:btih:FF9586A08684DC408CCB18A211B85F805E006D76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ MarsEdit 4 v4.5.6 [En]
 ```bash
 magnet:?xt=urn:btih:5BE8F70FCA7C3EBE49E499D24E95887B2414CA30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +590,8 @@ magnet:?xt=urn:btih:5BE8F70FCA7C3EBE49E499D24E95887B2414CA30
 magnet:?xt=urn:btih:76AC0B98805946191E4576859B490A0AA96F7C9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ magnet:?xt=urn:btih:76AC0B98805946191E4576859B490A0AA96F7C9E
 magnet:?xt=urn:btih:EAABDBEFF89C8FB6EE6AD09AD4B9F7D6F740554A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +641,8 @@ magnet:?xt=urn:btih:EAABDBEFF89C8FB6EE6AD09AD4B9F7D6F740554A
 ```bash
 magnet:?xt=urn:btih:318BEC26768468562EC6828CF0DF756A30D0BD5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +669,8 @@ Image Resizer – Resize Photos  полезный и эффективный ин
 magnet:?xt=urn:btih:276D8BDFBA08949A1ACE091BBD4B1DABCFD6DC48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ Awaken — программа-будильник, которая позволи�
 ```bash
 magnet:?xt=urn:btih:87DC875FE1DC9932AA06FDDABF02F66E7288B3CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

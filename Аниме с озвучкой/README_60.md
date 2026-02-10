@@ -19,6 +19,8 @@ Gekijouban Gintama Kanketsuhen: Yorozuya yo Eien Nare | Gintama: Movie 2 | Ги�
 magnet:?xt=urn:btih:8D51831BB99385AEF8C331DA9AC6231096D41087
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Air | Высь [2005, TV, 12 эп.] SDTV 720p rus
 ```bash
 magnet:?xt=urn:btih:9F3D3F2F42542B4BC3B9E8F9E2DBC1D5F827EF4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Kikou Ryouhei Mellowlink | Armor Hunter Mellowlink | Бронебойщик Ме
 magnet:?xt=urn:btih:5859C46BA670614DCAD4035928D3A12654F315FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:5859C46BA670614DCAD4035928D3A12654F315FD
 magnet:?xt=urn:btih:DD9A101CC029FB841CE90009B448ABBD881B8C86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Eizouken ni wa Te o Dasuna! | Keep Your Hands Off Eizouken! | Руки проч�
 ```bash
 magnet:?xt=urn:btih:DF4BC98BDB409C118278C9334081FF52C3783C99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Saiyuuki | Alakazam the Great | Путешествие на Запад | Вел�
 magnet:?xt=urn:btih:F86417516425BF96051C0FA217B9AE4D74BFBD5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Mach Go Go Go | Speed Racer | Гонщик Спиди [1967, TV, 52 из 52] BDR
 ```bash
 magnet:?xt=urn:btih:F1962CAEC11B275F9D80DB7DAFEF4D460057111A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Enen no Shouboutai: Ni no Shou | Пламенная бригада пожарн�
 magnet:?xt=urn:btih:5A59085E236D1F489C5E0D398C5BD7EE6458EE01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Evangelion. 3.33 You Can [Not] Redo | Евангелион. 3.33 Ты (не) И�
 ```bash
 magnet:?xt=urn:btih:386CE22682FBDEBEB7528F442A37AFC9E1B7D881
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Somali to Mori no Kamisama | Somali and the Forest Spirit | Сомали и Ду
 magnet:?xt=urn:btih:E5F792C50C14E7E9FFDCB4E7E215D2E7EE250696
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Natsume Yuujinchou | Natsume's Book of Friends | Тетрадь дружбы Н�
 ```bash
 magnet:?xt=urn:btih:5E71190A81290241B14D49B5D3941BD8E2605E30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka III | Danmachi III | М�
 magnet:?xt=urn:btih:1931E997E2657D70BA3F58246A3F391956014301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Omoi, Omoware, Furi, Furare | Love Me, Love Me Not | Любит - не люби�
 ```bash
 magnet:?xt=urn:btih:1DD58687280A182E51309C37D9BCF01A2A8B5FB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Darwin's Game | Игра Дарвина [2020, TV, 11 из 11] BDRip 1080p HEVC 
 magnet:?xt=urn:btih:B82FC12BD517C9CC6F7806BFB61F3B581D2FB83E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:B82FC12BD517C9CC6F7806BFB61F3B581D2FB83E
 ```bash
 magnet:?xt=urn:btih:3F2AFB6AC72BE5F19B42FEE7A748E632F2142283
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ Obsolete | Устаревший [2019, Web, 6 из 6] BDRip 1080p 10-bit raw+rus
 magnet:?xt=urn:btih:EE9BA4523FC3A1BB99A56512E1E9B08244C0A29A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ Obsolete (2020) | Устаревший (2020) [2020, Web, 6 из 6] BDRip 1080p 
 ```bash
 magnet:?xt=urn:btih:C0448CE07EC0F0AD0707E0312A6E687481717631
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ Enen no Shouboutai | Пламенная бригада пожарных [ТВ-1]
 magnet:?xt=urn:btih:8269A87997EC469DD72E2CA74C8AC07B7450FFD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ Ishuzoku Reviewers | Interspecies Reviewers | Межвидовые реценз�
 ```bash
 magnet:?xt=urn:btih:0F756C20BC200130A80DCDA7A7CB44D75798A246
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ Ansatsu Kyoushitsu | Assassination Classroom | Класс убийц [ТВ-1] [2
 magnet:?xt=urn:btih:144692AE8B41E4372EE10F767704E49279E71813
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ Ansatsu Kyoushitsu | Assassination Classroom | Класс убийц [ТВ-2] [2
 ```bash
 magnet:?xt=urn:btih:06A5649DAA56B92D0CEA9CD734ADBA45EFBA1787
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ Kanata no Astra | Astra Lost in Space | Астра, затерянная в ко
 magnet:?xt=urn:btih:E78C1988476F0D8D151D48B115F80B4B36FA556D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ magnet:?xt=urn:btih:E78C1988476F0D8D151D48B115F80B4B36FA556D
 ```bash
 magnet:?xt=urn:btih:A9EAEAC155F9FCC1B18779456C5E39112347C869
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ Rosario to Vampire | Розарио + Вампир [TV1 + TV2] [2008, TV, 26 э�
 magnet:?xt=urn:btih:11D836DB245CE6197237BCAF79120224F9022492
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ Btooom! | Взрыв! [2012, TV 12 из 12] BDRip 1080p 10-bit raw+rus
 magnet:?xt=urn:btih:8ABF3E60EA378F8C07C6AA789904743AB4D563AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Sankarea | Санка Рэа [2012, TV, 12 эп. + 1 SP +2 OVA] BDRip 1080p 10-b
 ```bash
 magnet:?xt=urn:btih:398B5CAA1B79CF7DC69DA6FDE58B7362803E0D14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

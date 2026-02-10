@@ -1,3 +1,29 @@
+###  Публикация: 1403814   (1039696) от 13.01.2021
+
+Книжная серия | Школа НЛП [8 книг] (2016-2020) [EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039696.jpg" />
+</div>
+
+
+###  Подробнее
+
+НЛП (нейролингвистическое программирование) — эффективный метод психологии и психотерапии, основанный на описании и анализе моделей восприятия, мышления, переживаний человека, что позволяет управлять поведением, избавляться от страхов и фобий, пробуждать и развивать способности, достигать наивысших результатов. В серию включены книги признанных экспертов в области (   Читать дальше...   )Жанр: Практическая психологияФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F68CE9AF3925F1EE42783713B132E063BC685697
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439496   (1039751) от 13.01.2021
 
 Елена Мотова | Еда для радости. Записки диетолога (2021) [EPUB]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:6E88387F58054902661A0D7F496390C36E047EAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:6E88387F58054902661A0D7F496390C36E047EAB
 ```bash
 magnet:?xt=urn:btih:EC4F60D30535DDD918A9E877F922934307EED7C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:EC4F60D30535DDD918A9E877F922934307EED7C6
 magnet:?xt=urn:btih:4ED18C6754E7621F2790260AC2C2CAD38872CE5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:4ED18C6754E7621F2790260AC2C2CAD38872CE5E
 ```bash
 magnet:?xt=urn:btih:8EB5D322CF03BC5BEDB1D6C44F3096D598EC5237
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:8EB5D322CF03BC5BEDB1D6C44F3096D598EC5237
 magnet:?xt=urn:btih:AB6BD33989BF8B6321C383FC5D9699315FC9037E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:AB6BD33989BF8B6321C383FC5D9699315FC9037E
 ```bash
 magnet:?xt=urn:btih:8EE36DDA692B946B043735F3A4AB782F5B306EC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:8EE36DDA692B946B043735F3A4AB782F5B306EC2
 magnet:?xt=urn:btih:E9507D0CE7E46459D35765D6C2EA0827C4699B9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:E9507D0CE7E46459D35765D6C2EA0827C4699B9E
 ```bash
 magnet:?xt=urn:btih:43C856C9E4B74EC8F9052CEE54D3B8CEC968E4A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:43C856C9E4B74EC8F9052CEE54D3B8CEC968E4A6
 magnet:?xt=urn:btih:DD7058BE66018E5635647809AD932060273B76C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:DD7058BE66018E5635647809AD932060273B76C7
 ```bash
 magnet:?xt=urn:btih:35AE7961561ED75483FAAB9F5CD530934CC9A087
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:35AE7961561ED75483FAAB9F5CD530934CC9A087
 magnet:?xt=urn:btih:BE0230104D95055175A2C2E43A1B0956042D4A28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:BE0230104D95055175A2C2E43A1B0956042D4A28
 ```bash
 magnet:?xt=urn:btih:D345921F7D32E0C91BB23775EE611AA97E47B14D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:D345921F7D32E0C91BB23775EE611AA97E47B14D
 magnet:?xt=urn:btih:0FA9EAD7D61A24F4003EA53BB00DB349566BB6F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:0FA9EAD7D61A24F4003EA53BB00DB349566BB6F7
 magnet:?xt=urn:btih:182675939A62EAF52A2EF61D5184FD5F7DCF131A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:182675939A62EAF52A2EF61D5184FD5F7DCF131A
 ```bash
 magnet:?xt=urn:btih:6C76B2480218789C44EE318141C9A11C1D025A1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:6C76B2480218789C44EE318141C9A11C1D025A1F
 magnet:?xt=urn:btih:EF4B15E9E33B3060D05026CACCA1403E6A1D4754
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:EF4B15E9E33B3060D05026CACCA1403E6A1D4754
 ```bash
 magnet:?xt=urn:btih:2DBED196F019A3F35E9576881FE0C630EB33F045
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:2DBED196F019A3F35E9576881FE0C630EB33F045
 magnet:?xt=urn:btih:92F8421EE584EA8B8E46BF3E4D5BEE478674DE32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:92F8421EE584EA8B8E46BF3E4D5BEE478674DE32
 ```bash
 magnet:?xt=urn:btih:CBC54FCF0988ACE18791BFEBE4CAAF8FCE7E2170
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:CBC54FCF0988ACE18791BFEBE4CAAF8FCE7E2170
 magnet:?xt=urn:btih:6B5CF55181368CC67DF311791A1CCA36D07FAED5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:6B5CF55181368CC67DF311791A1CCA36D07FAED5
 ```bash
 magnet:?xt=urn:btih:DD451CB0C410B750C11F4482D23C5B6B54170AC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +600,8 @@ magnet:?xt=urn:btih:DD451CB0C410B750C11F4482D23C5B6B54170AC9
 magnet:?xt=urn:btih:63E6F99A25ED230321247242FC52A778ED8E7D6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:63E6F99A25ED230321247242FC52A778ED8E7D6F
 ```bash
 magnet:?xt=urn:btih:D6D817368F32D850480D03DACDA952126417B9A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:D6D817368F32D850480D03DACDA952126417B9A7
 magnet:?xt=urn:btih:989F6880C448ED29BAAD60F33C37DDE40FEDBBA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,29 +678,7 @@ magnet:?xt=urn:btih:989F6880C448ED29BAAD60F33C37DDE40FEDBBA3
 magnet:?xt=urn:btih:A7F0F7FA7084B80534893B0CAC85A478393F8F40
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612523   (1040139) от 16.02.2023
-
-Алексей Фомин | Когда умершие приходят во сне (2013) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга о том, что происходит с человеком после того, как он умирает, и о том, как нужны ему наши молитвы.Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EABA1604CB74F97F7707A77FBCC3E8EBA6F669AF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

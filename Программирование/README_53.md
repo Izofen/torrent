@@ -20,6 +20,8 @@ Jeffrey Biles | BUILD PACMAN. Learn Modern Javascript, HTML5 Canvas, and a bit o
 magnet:?xt=urn:btih:CD07BBC6AD14680FD5947A445959808F5E415038
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:CD07BBC6AD14680FD5947A445959808F5E415038
 magnet:?xt=urn:btih:64573B0A684B62A0ED828725DDA0C1F75C91AF3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:64573B0A684B62A0ED828725DDA0C1F75C91AF3C
 ```bash
 magnet:?xt=urn:btih:E71EF9343439E3C33CCBD7B97784D9FE87268552
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:E71EF9343439E3C33CCBD7B97784D9FE87268552
 magnet:?xt=urn:btih:C7CABCBAAD724A34D7F416836AE9A14034777B72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:C7CABCBAAD724A34D7F416836AE9A14034777B72
 ```bash
 magnet:?xt=urn:btih:261058112B8B3FBBF0513DE0895074976F843C62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:261058112B8B3FBBF0513DE0895074976F843C62
 magnet:?xt=urn:btih:860711880ED785284F8D45993EDCFF9943C03FB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:860711880ED785284F8D45993EDCFF9943C03FB3
 magnet:?xt=urn:btih:A64CFD7D1BD4CF90E13AED0CCD63C88D5371944A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:A64CFD7D1BD4CF90E13AED0CCD63C88D5371944A
 ```bash
 magnet:?xt=urn:btih:10155DF3420906B4658897B9841DC382E19B4027
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Neal Ford | Art of Java Web Development (2003) [PDF, FB2, DJVU, TXT, EPUB] [En]
 magnet:?xt=urn:btih:8D7EFB53EEAF1CD2F5814AF3244619689B8595CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:8D7EFB53EEAF1CD2F5814AF3244619689B8595CA
 ```bash
 magnet:?xt=urn:btih:ED877157AC7F8E661FA0608F714A60D2F83C642B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:ED877157AC7F8E661FA0608F714A60D2F83C642B
 magnet:?xt=urn:btih:68B1D86A924BDD5EBC8F73B71C1B5A14100F2125
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:68B1D86A924BDD5EBC8F73B71C1B5A14100F2125
 ```bash
 magnet:?xt=urn:btih:A6EF762DBEF5900CECAE39098821C726DDA30C4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:A6EF762DBEF5900CECAE39098821C726DDA30C4A
 magnet:?xt=urn:btih:E21CD015CAC9E7125D06CC87FC12D83D30668762
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:E21CD015CAC9E7125D06CC87FC12D83D30668762
 ```bash
 magnet:?xt=urn:btih:EE9B27C7FA6BE08C2C9FC9925AAB172ABF83FF2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:EE9B27C7FA6BE08C2C9FC9925AAB172ABF83FF2E
 magnet:?xt=urn:btih:77668382F72AF6C0D9D9C25EA111762C384DB597
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:77668382F72AF6C0D9D9C25EA111762C384DB597
 ```bash
 magnet:?xt=urn:btih:60C8AB5297D3EB5101FA9A6A92A7164621DDEF3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:60C8AB5297D3EB5101FA9A6A92A7164621DDEF3F
 magnet:?xt=urn:btih:5A051587C31C12B01C9271E986ECDE2022654DA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:5A051587C31C12B01C9271E986ECDE2022654DA7
 magnet:?xt=urn:btih:9284C5D014A5D6644CE440CF8E971DAAB1D2E257
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:9284C5D014A5D6644CE440CF8E971DAAB1D2E257
 ```bash
 magnet:?xt=urn:btih:C4CCE297CC6C5A3244E391AD85DE51AD1FBC9DBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ Consider Beginning Programming with Java For Dummies your indispensable guide to
 magnet:?xt=urn:btih:40863C8743A09C7358824E87EAE868389B488D9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:40863C8743A09C7358824E87EAE868389B488D9B
 ```bash
 magnet:?xt=urn:btih:D176BD00829A111A53B78124443B465F2BBBEF10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:D176BD00829A111A53B78124443B465F2BBBEF10
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ J.C. Sheusi | Android Application Development for Java Programmers / Разра�
 magnet:?xt=urn:btih:D9C4D18EAA894290B8133C7BDC5CE15522357D1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:D9C4D18EAA894290B8133C7BDC5CE15522357D1F
 ```bash
 magnet:?xt=urn:btih:D238B32ABD2392E06C93DD22B5EDAF2A24E418CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:D238B32ABD2392E06C93DD22B5EDAF2A24E418CE
 magnet:?xt=urn:btih:B0F2AA76F376A2A518AE3AEE8D7173CDB89E0C57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ magnet:?xt=urn:btih:B0F2AA76F376A2A518AE3AEE8D7173CDB89E0C57
 ```bash
 magnet:?xt=urn:btih:D2752F145FE4E44E82DD14750717E39A589A0036
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

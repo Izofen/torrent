@@ -19,6 +19,8 @@ USB Protection & Recovery – небольшая бесплатная утили
 magnet:?xt=urn:btih:2C344D42AF9543BC41EE8124941F6AB513AA776B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Synthetic Epiphany - Renovatio (2013) [FLAC|Lossless|WEB-DL]<Dubstep, House, Chi
 magnet:?xt=urn:btih:874A406DEAED59DBF19CCF7769F740B4336C6858
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:8E498014843659706E3B307AAA64AA126AB31AD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ AusLogics BoostSpeed - утилита для оптимизации работы
 magnet:?xt=urn:btih:0308CFBB5B96CF732E0005F1C5B39D87BEDD25CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ JetBrains WebStorm  — мощный инструмент для разрабо�
 magnet:?xt=urn:btih:FF6CF0EEC34FC063017577CD001175AD6239B89C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Smart Defrag - дефрагментатор, позволяющий довест
 ```bash
 magnet:?xt=urn:btih:6468AD74650908A43D0AFC0A9617DCB0C115CD8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 magnet:?xt=urn:btih:D3F797A17779230882E8D1F3CE3D5CBB8C9C78FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ IPFire - GNU\Linux дистрибутив предназначенный для 
 ```bash
 magnet:?xt=urn:btih:92BC1EB47C573738CB930A34488A9E519AF2F634
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ WonderPen - простой в использовании текстовый ре
 magnet:?xt=urn:btih:F6ACC60E6B8DB3888B6F4453D2D099D929EEE0C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ Microsoft Visual C++ Redistributable Package – это распространя
 magnet:?xt=urn:btih:B958DBD93F3A45B83502F85269FC4419454C6F56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ Argos – набор курсоров Windows, подходящий для св�
 ```bash
 magnet:?xt=urn:btih:26D519D57FC113B6EBB4DC2566C2DA2C41913F14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ Cookie - Программа для полного удаления cookie-фай
 magnet:?xt=urn:btih:278D7710C0D8FD07FB27A4EE65605A4EE56863DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ Seirei Tsukai no Blade Dance / Bladedance of Elementalers / Танец клин�
 ```bash
 magnet:?xt=urn:btih:2F6D8327BB3D4064A715E75A220FC986F285100F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +382,8 @@ Bastian Basic - Chapter One (The Album) (2013) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:A0ED917A9BACC862BC116F25625FE28B139C658D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ magnet:?xt=urn:btih:A0ED917A9BACC862BC116F25625FE28B139C658D
 ```bash
 magnet:?xt=urn:btih:5DF9800ACB821433EE5F1C3CDC7EABC707A0714A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +434,8 @@ AOMEI Backupper – программа для создания резервно�
 magnet:?xt=urn:btih:83408BEBB0526BA1DEF2DB073BF4BEBF0D224957
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +460,8 @@ Revo Uninstaller Pro 5.0.7 RePack (& Portable) by 9649 [Multi/Ru]
 magnet:?xt=urn:btih:870CED49065A31FB5E14D92FBE547AB5857AB412
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ magnet:?xt=urn:btih:870CED49065A31FB5E14D92FBE547AB5857AB412
 ```bash
 magnet:?xt=urn:btih:9DC6C1D11442AECC9EFC0F33D74FA2BCC132CC9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +513,8 @@ EmEditor Professional - профессиональная версия мощно
 magnet:?xt=urn:btih:E581A7011814D40A9242D4FA2C0FCDAB43BA3E01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +538,8 @@ magnet:?xt=urn:btih:E581A7011814D40A9242D4FA2C0FCDAB43BA3E01
 ```bash
 magnet:?xt=urn:btih:7856D3B86A9A58F98A0B7AFAEA8DC0A2D63E9798
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +565,8 @@ Revo Uninstaller Pro 5.0.7 Portable by FC Portables [Multi/Ru]
 magnet:?xt=urn:btih:99E4167E6ECADD06CEC3C6DB12BAC3143F8E7A9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ magnet:?xt=urn:btih:99E4167E6ECADD06CEC3C6DB12BAC3143F8E7A9E
 magnet:?xt=urn:btih:CCF9A9CD4E4E460041306F18F7062F7FD1D3AC30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ magnet:?xt=urn:btih:CCF9A9CD4E4E460041306F18F7062F7FD1D3AC30
 ```bash
 magnet:?xt=urn:btih:EFCB438DE7FBBCF5219ED1BE9EC8B3C14D81507B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +645,8 @@ Dark Matter – Catch 22 (2014) [FLAC|Lossless|WEB-DL] <Progressive, Techtrance>
 magnet:?xt=urn:btih:E367D02A4452553489A1477EA5D84A3A8D755C84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +673,8 @@ Balabolka 2.15.0.807 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:01B31A76BB054630C452F9C8646E982865F37840
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ Mirillis Action! 4.30.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7DE90A263D5AE739971306CFB3B3AE6C74628C91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

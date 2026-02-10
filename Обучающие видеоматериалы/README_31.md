@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:B1FA0D1175D8AD4BC72744B6DC3D9E7FD3AB18C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ ChatGPT запустился чуть больше года назад и уже
 ```bash
 magnet:?xt=urn:btih:4224D7ACB4EC657102281E419DCABF5F6A59E72F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ ITsets | Дизайн-симулятор - Middle UI - UX-дизайнер (2023
 magnet:?xt=urn:btih:3A3ABC560C36AE646149658228249636AD72AE79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Alive! Это самый обширный курс анимации Blender, в�
 magnet:?xt=urn:btih:B829265FAB2E50303D8A0E85F2A2B899474849A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:B829265FAB2E50303D8A0E85F2A2B899474849A6
 ```bash
 magnet:?xt=urn:btih:2E3FEEA983A65F9D96C0EBF370AFA37146CD62DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -152,6 +162,8 @@ magnet:?xt=urn:btih:2E3FEEA983A65F9D96C0EBF370AFA37146CD62DB
 magnet:?xt=urn:btih:5C85531F1F5B15C5C8FF3C98A6350296960DD1D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -179,6 +191,8 @@ magnet:?xt=urn:btih:5C85531F1F5B15C5C8FF3C98A6350296960DD1D7
 magnet:?xt=urn:btih:7C87CFA6EAC480D4961C17231722D2DA0440702C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +218,8 @@ Desertmsk | Зефир в шоколаде (2022) WEB-DL [RU]
 magnet:?xt=urn:btih:68D9F6CFAE69F2F36E7FBE98CCD1EDEF724D2E6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ Desertmsk | Конфеты Птичье молоко (2022) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:627D01750DF8D3C2C5572272EF05F3F48AF451B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -255,6 +273,8 @@ magnet:?xt=urn:btih:627D01750DF8D3C2C5572272EF05F3F48AF451B0
 magnet:?xt=urn:btih:0686C3361B0483DF396B35DCABF616FA5B9E7C58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ Mobius 2024 Autumn - конференция для мобильных разра
 ```bash
 magnet:?xt=urn:btih:CC8E44B93CAA82DD34C77D504ED27D4C009A73E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +332,8 @@ magnet:?xt=urn:btih:CC8E44B93CAA82DD34C77D504ED27D4C009A73E4
 magnet:?xt=urn:btih:C6184011BEDB552935EC9C39341BE9045F7D2C86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +358,8 @@ magnet:?xt=urn:btih:C6184011BEDB552935EC9C39341BE9045F7D2C86
 magnet:?xt=urn:btih:BAF25847EF4671FF3F558A51E4FF14AC643133CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +383,8 @@ magnet:?xt=urn:btih:BAF25847EF4671FF3F558A51E4FF14AC643133CE
 ```bash
 magnet:?xt=urn:btih:0D04267CBA7E5A60F35AA23C7D6667D2730A7572
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +413,8 @@ magnet:?xt=urn:btih:0D04267CBA7E5A60F35AA23C7D6667D2730A7572
 magnet:?xt=urn:btih:3F1D1A808D04AB94F0A73075BBADA39090638F84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +438,8 @@ magnet:?xt=urn:btih:3F1D1A808D04AB94F0A73075BBADA39090638F84
 ```bash
 magnet:?xt=urn:btih:AB92368065A1762ED595B61EA320D6ECAB9CFD4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +465,8 @@ magnet:?xt=urn:btih:AB92368065A1762ED595B61EA320D6ECAB9CFD4A
 magnet:?xt=urn:btih:06129432BDD7416EA6562146D5AC808AF7E46F16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +491,8 @@ magnet:?xt=urn:btih:06129432BDD7416EA6562146D5AC808AF7E46F16
 magnet:?xt=urn:btih:F6E41B5A517BDAFCDF865A279040D8C08A5B2B32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +516,8 @@ magnet:?xt=urn:btih:F6E41B5A517BDAFCDF865A279040D8C08A5B2B32
 ```bash
 magnet:?xt=urn:btih:EC3ECD16DDB1C5B4F535C91AFAA28A5129688F57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +547,8 @@ PowerShell — это мощное средство работы со сцена
 magnet:?xt=urn:btih:C6D1DDF418D61FFE1B00D5FE683ED38CAF54AF8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +574,8 @@ magnet:?xt=urn:btih:C6D1DDF418D61FFE1B00D5FE683ED38CAF54AF8A
 ```bash
 magnet:?xt=urn:btih:1140044ADBD08CDA45928ADAF8016A59C7E4D7AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +603,8 @@ hochuchu | Параллельная обработка звука эффекта
 magnet:?xt=urn:btih:4006DFBE16B5905E157FC30C2FBABC4C125A57A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +630,8 @@ hochuchu | Использование функции ReWire в Adobe Audition 3.
 ```bash
 magnet:?xt=urn:btih:E5865EB7CE043464A05E1FDC5CE409E7A42778B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +662,8 @@ magnet:?xt=urn:btih:E5865EB7CE043464A05E1FDC5CE409E7A42778B0
 magnet:?xt=urn:btih:E36B1A0FF9918A9BBDD5EBAC0544ACB9BDBE5F38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +692,8 @@ magnet:?xt=urn:btih:E36B1A0FF9918A9BBDD5EBAC0544ACB9BDBE5F38
 magnet:?xt=urn:btih:8B24BF551704F840C6A9BDAA264CE82D136BE92E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +719,8 @@ magnet:?xt=urn:btih:8B24BF551704F840C6A9BDAA264CE82D136BE92E
 ```bash
 magnet:?xt=urn:btih:2E8A75D341DCE0CDE44860E3562C8395F07A6239
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

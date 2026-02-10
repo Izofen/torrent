@@ -19,6 +19,8 @@ Age of Defense (2019) [Ru/Multi] (1.19) Repack Let'sРlay
 magnet:?xt=urn:btih:488768E3A804AF894DF0C91C90D38BE42C71F50F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Railway Empire 2 (2023) [Ru/Multi] (1.6.0.63057/dlc) Repack FitGirl [Digital Del
 ```bash
 magnet:?xt=urn:btih:722473AE9AFC6CCD8FBC830FE3FA911B149DD0AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ My Hotel – в этом странном и пугающем месте скр�
 magnet:?xt=urn:btih:B0EB364F3CF15896A433A0890032FD3429A374AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Dream Tactics - это стратегическая ролевая игра, п�
 ```bash
 magnet:?xt=urn:btih:F8A63893099468888294E841178CC625C058A52E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ METRO QUESTER (2023) [Multi] (1.0.0) License GOG
 magnet:?xt=urn:btih:8517D0551EBB78BF3B309621F14161F8A6D990F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Jack Holmes: Master of Puppets - хоррор на выживание от пе�
 ```bash
 magnet:?xt=urn:btih:45D88CB6BEF7B2A965DF74C5EA1C2ECAB4CC8577
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Outward – приключенческая РПГ, события которой
 magnet:?xt=urn:btih:FCD803473778FD3171BC68D74722AE965E7A5C1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Mycelium Heaven (2025) [Ru/Multi] (1.0.0.1) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:75F790CA9D9138121E98160AF22119655587A043
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Haydee 3 (2025) [Ru/Multi] (1.0.20.1523) Repack FitGirl
 magnet:?xt=urn:btih:9BFDFED9D8B3AE348E1E27D4BD0AF4A6F72AABD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Final Fantasy VII Rebirth (2025) [Multi] (1.0.0.0/dlc) Repack DjDI [Digital Delu
 ```bash
 magnet:?xt=urn:btih:56D8C2485B5E3A5EDD0548A01E19CF270CFF6EB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Overcooked возвращается с новой порцией безумно�
 magnet:?xt=urn:btih:A32ADEB7F6E1519579FE674229DFFA0FFD066594
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Terra Memoria - ролевая игра с фантастическим миро
 ```bash
 magnet:?xt=urn:btih:39E229E0150EB7BEB604BFF9C357B636563F8C91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Jack Holmes: Master of Puppets - хоррор на выживание от пе�
 magnet:?xt=urn:btih:D71EBC2C66A65FB3CFAA3D2191E87C4277643936
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Secrets of Salem: Shadow of the Witch / Секреты Салема: Тень в
 ```bash
 magnet:?xt=urn:btih:034DDE9D694E09F65529F4E02EF56B9FD0F0BDC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ My Time at Sandrock-Действие My Time at Sandrock, как и My Time at P
 magnet:?xt=urn:btih:B40CBE53A06CBB0E18BE68D66B41D734718EFAA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Imperiums: Greek Wars (2020) [Ru/Multi] (1.422/dlc) Repack Let'sРlay [Complete]
 ```bash
 magnet:?xt=urn:btih:CC8DA59AC264853EF91CC614FBCF183FC89290F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Astral Throne (2025) [En] (1.0.0) Repack FitGirl [Supporter Bundle]
 magnet:?xt=urn:btih:5329D6DA057286BDBE64277520DB3037AC032A10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Might and Magic: Heroes VI / Might & Magic: Heroes VI / Герои меча и �
 ```bash
 magnet:?xt=urn:btih:BA755C8618BAEAEEBCECB855ACA903F5B964A5B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Final Fantasy VII Rebirth (2025) [Multi] (build 17035252/dlc) Repack FitGirl [Di
 magnet:?xt=urn:btih:3F4CD2ABA6E90C359D18C65DC57692A6CEF3F065
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Nunholy - это остросюжетная ролевая игра, в кото
 ```bash
 magnet:?xt=urn:btih:7C971525F7A5FE2A5A80B18AEB59B35F2F3791A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (Build 17026604 Patch 5/dlc) Repack 
 magnet:?xt=urn:btih:C3CE1E65014F2823A9E521425BFDCF0C6A758058
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Far Cry 5 (2018) [Ru/Multi] (1.011/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:F7E271CA28455421DAF3BDF709E75E0F8FBA636B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Trinity Fusion – это выполненный в 2.5D научно-фанта
 magnet:?xt=urn:btih:9DCC5EE46411228067574CDAA99AFA1F0B70DC21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru] (08.12.2024) Unofficial SynthVo
 ```bash
 magnet:?xt=urn:btih:FA707678DCDD91E577D205E83A916DBD4BA21EC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Tomb Raider IV-VI Remastered Darkness Trilogy предлагает погруз�
 magnet:?xt=urn:btih:FF4A447E70C18BBB95BDE61F0883D29A4EC31218
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Slime Rancher – это история Беатрис Лебо, молодой 
 ```bash
 magnet:?xt=urn:btih:D4E80DCFB886F5F24BBAC64ED30E922EEAEA3222
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

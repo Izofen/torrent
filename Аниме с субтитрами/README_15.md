@@ -19,6 +19,8 @@ Seiken Gakuin no Maken Tsukai | The Demon Sword Master of Excalibur Academy | М
 magnet:?xt=urn:btih:DBBA30DCAFD8309F56C4286DD4DD9ED124D37B2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Dark Gathering | Тёмное собрание [2023, TV, 25 эп.] BDRip 1080p 
 ```bash
 magnet:?xt=urn:btih:81370B6BCFBC6915586E9D6455F517856F62F200
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Isekai Nonbiri Nouka | Farming Life in Another World | Фермерская жи
 magnet:?xt=urn:btih:4DC3CE598922537CA261241A3449667F6A0EBDBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Undead Girl Murder Farce | Фарс убитой нежити [2023, TV, 13 эп
 ```bash
 magnet:?xt=urn:btih:75E6EE5D522D1BC43341E09251F27F882EB73C5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Akuyaku Reijou nano de Last Boss o Katte Mimashita | Я оказалась зл�
 magnet:?xt=urn:btih:4FCB36D3D8C804D352910A6B4E4322E834B2A9CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Takt Op.Destiny | Такт. Опус Дестини [2021, TV, 12 эп.] BDRip 1
 ```bash
 magnet:?xt=urn:btih:09291F887E09322841AA168FCE4378E13C3196FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Kono Healer, Mendokusai | Don't Hurt Me, My Healer! | Этот хилер мен
 magnet:?xt=urn:btih:26679E4E0159A2B019E040B2A5FC15E46BC38BDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Noumin Kanren no Skill Bakka Agetetara Naze ka Tsuyoku Natta. | Каким-то 
 ```bash
 magnet:?xt=urn:btih:AECA6F98FDCD516E0681470FBFB637999304045F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Fruits Basket: Prelude | Корзинка фруктов: Прелюдия [2022
 magnet:?xt=urn:btih:06C001348607DFD77D026981797346D12D5B7F85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Kimi wa Houkago Insomnia | Insomniacs After School | Бессонница пос
 ```bash
 magnet:?xt=urn:btih:162A8B6F4E51E49F49A5FC028AF8673E388399EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Isekai Yakkyoku | Parallel World Pharmacy | Аптека в другом мир�
 magnet:?xt=urn:btih:F6338088D37D1B9D9AC5758BB6365744DC45983B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Boku no Hero Academia: Yuuei Heroes Battle | Моя геройская акад�
 ```bash
 magnet:?xt=urn:btih:19C30AF291944E4DE3082273EE94EE76E57E4DE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Tensei Shitara Slime Datta Ken: Coleus no Yume | О моём перерожде�
 magnet:?xt=urn:btih:2A7DE5D8855E4E17AEAAD59D07B36A7E48FD636E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Kuro no Shoukanshi | Black Summoner | Чёрный призыватель [2022,
 ```bash
 magnet:?xt=urn:btih:476174BD0E7EA375AD6775ABFCC5ADADD4D45CD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Kurayukaba | Краюкаба [2024, Movie] WEBRip 544p raw
 magnet:?xt=urn:btih:75A11C343DAF241DC4F4C874E494F72D89CD78A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Tondemo Skill de Isekai Hourou Meshi 2 | Кулинарные скитания �
 ```bash
 magnet:?xt=urn:btih:CE77007164D6B714EA6092CA1B93543AC893D9D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Wandance | Один танец [2025, TV, 1 из 12] WEBRip 720p raw
 magnet:?xt=urn:btih:3570C7FB130A3355356E25A673B98F10F91F8D58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Tenchi Muyou! GXP: Paradise Shidou Hen | Тэнти - лишний! GXP Заро
 magnet:?xt=urn:btih:A1A4617D57EE36BC6E8FD02D495BB72046E1319C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +486,8 @@ Anime Sanjuushi | The Three Musketeers | Три мушкетера [1987, TV, 52
 ```bash
 magnet:?xt=urn:btih:38B078B809948D0A362A7FD50CFA12BEF508E4A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ Uchi no Kaisha no Chiisai Senpai no Hanashi | My Tiny Senpai | Маленька�
 magnet:?xt=urn:btih:F992790FC69FDC61AF4A66E413D1B994BD7A8FE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ Edomae Elf | Otaku Elf | Эльф Эдомаэ [2023, TV, 12 эп.] BDRip 1080p 
 magnet:?xt=urn:btih:35C7A3CAF4DCCFFFD081725454B197EA1A9D2EB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Yuusha Party o Tsuihou Sareta Beast Tamer, Saikyoushu no Nekomimi Shoujo to Deau
 ```bash
 magnet:?xt=urn:btih:0F2E452CE16A1E0A83BCA610CE3BCBA9DF973094
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ Seija Musou: Salaryman, Isekai de Ikinokoru Tame ni Ayumu Michi | The Great Cler
 magnet:?xt=urn:btih:6FE6284C5403D801BAE8FD929DB1958A9C2E2567
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ Jitsu wa Ore, Saikyou Deshita? | Am I Actually the Strongest? | Я что, си�
 magnet:?xt=urn:btih:A1F894B8BC835E2A6992E06545A178A43CE7CFD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ The Quintessential Quintuplets ∽ | Go-Toubun no Hanayome~ | Пять неве�
 magnet:?xt=urn:btih:478C5B6AC7DCB73308E76E51A26066DE466C3890
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Yumemiru Danshi wa Genjitsushugisha | The Dreaming Boy is a Realist | Из ме�
 ```bash
 magnet:?xt=urn:btih:954EBCE88BA2C7C157A4E88551A5D1C4372A989E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

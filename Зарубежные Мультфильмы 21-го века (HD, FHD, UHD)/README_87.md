@@ -1,29 +1,3 @@
-###  Публикация: 525802   (605230) от 22.07.2012
-
-Новые Мстители / Ultimate Avengers (2006) [H.264/720p-LQ] BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605230.jpg" />
-</div>
-
-
-###  Подробнее
-
-В конце Второй Мировой войны молодой военный по имени Стив Роджерс стал частью эксперимента, благодаря которому США надеялись подавить последние очаги сопротивления нацистов на втором фронте. Результатом эксперимента стал сверхчеловек, «Капитан Америка», оставшийся Стивом Роджерсом лишь в повседневной жизни.
-
- Но на первом же задании, атакуя секретный бункер фашистов, (   Читать дальше...   )Жанр: мультфильм, фантастика, фэнтези, боевик, приключенияРежиссер: Курт Геда, Стивен Е. Гордон, Боб РичардсонАктеры: Джастин Гросс, Грей ДеЛайл, Майкл Масси, Оливия д’Або, Марк Уорден, Нэн МакНамара, Нолан Норт, Андре Уэр, David Boat, Фред ТатаскьорПродолжительность: 01:11:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56EDCFFB8B93A89015B1BF9DA3F42550C37E16A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 222542   (605709) от 29.07.2010
 
 Астробой / Astro Boy (2009) [1080p] BDRip
@@ -45,6 +19,8 @@ magnet:?xt=urn:btih:56EDCFFB8B93A89015B1BF9DA3F42550C37E16A0
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +47,8 @@ magnet:?xt=urn:btih:56EDCFFB8B93A89015B1BF9DA3F42550C37E16A0
 magnet:?xt=urn:btih:6D0C242EE61B9748B3983E71AA1999067839A44A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +74,8 @@ magnet:?xt=urn:btih:6D0C242EE61B9748B3983E71AA1999067839A44A
 magnet:?xt=urn:btih:7D50AA9895159C8FBA4A1C23D82A0B66133286A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +100,8 @@ Angry Birds в кино / The Angry Birds Movie (2016) BDRip [H.264/1080p]
 magnet:?xt=urn:btih:B1B3A1F2B77C3DFBF63AE49C20231F19AAD93EB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +125,8 @@ magnet:?xt=urn:btih:B1B3A1F2B77C3DFBF63AE49C20231F19AAD93EB7
 ```bash
 magnet:?xt=urn:btih:313BECE9DBFE9184D9DF6505D3F6CA18FD050F73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +155,8 @@ magnet:?xt=urn:btih:313BECE9DBFE9184D9DF6505D3F6CA18FD050F73
 magnet:?xt=urn:btih:63C39B9A2084E78E3B4BC3D77599127BE2EFABD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +180,8 @@ magnet:?xt=urn:btih:63C39B9A2084E78E3B4BC3D77599127BE2EFABD9
 ```bash
 magnet:?xt=urn:btih:EC663C571E366DE9379201719A438DC2500260E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +207,8 @@ magnet:?xt=urn:btih:EC663C571E366DE9379201719A438DC2500260E3
 magnet:?xt=urn:btih:3E6E08DF86C9FE11D94B056D31D9999C648E1963
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +232,8 @@ magnet:?xt=urn:btih:3E6E08DF86C9FE11D94B056D31D9999C648E1963
 ```bash
 magnet:?xt=urn:btih:D9B5B1599D08D07D69696BD8DB9DDFF766846989
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +259,8 @@ magnet:?xt=urn:btih:D9B5B1599D08D07D69696BD8DB9DDFF766846989
 magnet:?xt=urn:btih:F4658060506B3714CB2282FD912665A98CC41938
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +284,8 @@ magnet:?xt=urn:btih:F4658060506B3714CB2282FD912665A98CC41938
 ```bash
 magnet:?xt=urn:btih:FE296E0C1B8D4627BE5EFE4652AB32B328EF0E58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +311,8 @@ magnet:?xt=urn:btih:FE296E0C1B8D4627BE5EFE4652AB32B328EF0E58
 magnet:?xt=urn:btih:C0A2439778F7C457A0FE4644FDB307459C2669E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +336,8 @@ magnet:?xt=urn:btih:C0A2439778F7C457A0FE4644FDB307459C2669E7
 ```bash
 magnet:?xt=urn:btih:9BFC61C370D230D58F5C1199ADDF741B94A19672
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +363,8 @@ magnet:?xt=urn:btih:9BFC61C370D230D58F5C1199ADDF741B94A19672
 magnet:?xt=urn:btih:54DFEA72B31B86DC309870BBCFC4ADB77F827F2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +388,8 @@ magnet:?xt=urn:btih:54DFEA72B31B86DC309870BBCFC4ADB77F827F2A
 ```bash
 magnet:?xt=urn:btih:12EEAEDA0799016383B0F7AA5ADD34C19661FC21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +415,8 @@ magnet:?xt=urn:btih:12EEAEDA0799016383B0F7AA5ADD34C19661FC21
 magnet:?xt=urn:btih:BBBC4573D0A635BC22AFFA838C6E025E2CBF5155
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +440,8 @@ magnet:?xt=urn:btih:BBBC4573D0A635BC22AFFA838C6E025E2CBF5155
 ```bash
 magnet:?xt=urn:btih:B055D6806A3FA0936B5ED3818F42CD4C55BCA9D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +467,8 @@ magnet:?xt=urn:btih:B055D6806A3FA0936B5ED3818F42CD4C55BCA9D7
 magnet:?xt=urn:btih:86F53128D53F859C67EE1FFFE929EC8FFDC39A0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +492,8 @@ magnet:?xt=urn:btih:86F53128D53F859C67EE1FFFE929EC8FFDC39A0C
 ```bash
 magnet:?xt=urn:btih:5C2EBAFD6972F47B3CB26A369EA04B013B414667
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +519,8 @@ magnet:?xt=urn:btih:5C2EBAFD6972F47B3CB26A369EA04B013B414667
 magnet:?xt=urn:btih:78DEB4F95682982A30701C3E0EBEF6C8D39F3A7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +544,8 @@ magnet:?xt=urn:btih:78DEB4F95682982A30701C3E0EBEF6C8D39F3A7A
 ```bash
 magnet:?xt=urn:btih:C1F96ACB6E6D3A0346D59BF2F43C54EEC5D6CF09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +571,8 @@ magnet:?xt=urn:btih:C1F96ACB6E6D3A0346D59BF2F43C54EEC5D6CF09
 magnet:?xt=urn:btih:7309BA0E6AED7174DC588C7AEF197539D32B0257
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +596,8 @@ magnet:?xt=urn:btih:7309BA0E6AED7174DC588C7AEF197539D32B0257
 ```bash
 magnet:?xt=urn:btih:EE9313FDA515567E00D3E2C305F1F54DF0AE8970
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +623,8 @@ magnet:?xt=urn:btih:EE9313FDA515567E00D3E2C305F1F54DF0AE8970
 magnet:?xt=urn:btih:064AD95343AB9D0EF23A89E8F75BEFCC1A658884
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +648,34 @@ magnet:?xt=urn:btih:064AD95343AB9D0EF23A89E8F75BEFCC1A658884
 ```bash
 magnet:?xt=urn:btih:1FC82C5BD1623B59A7057B8F8707700DD366C656
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 804446   (611712) от 14.07.2014
+
+Легенды ночных стражей / Legend of the Guardians: The Owls of Ga’Hoole (2010) BDRip [720p] [Hand Made 60fps] [UKR]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_611712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Миром, в котором уже не осталось людей, правят совы… добрые… злые… как и всегда! В волшебном лесу — королевстве сов Тито — на Великом Дереве Га`Хуул, где разумные совы живут в гармонии, наступают мрачные времена. Королевство подвергается страшной опасности со стороны соседних жестоких правителей, и эта опасность грозит уничтожить привычное мироздание.Жанр: Фэнтези, ПриключенияРежиссер: Зак Снайдер / Zack SnyderПерсонажи: Джим Стёрджесс / Jim Sturgess, Райан Квантен / Ryan Kwanten, Джоэл Эдгертон / Joel Edgerton, Хелен Миррен /  Helen Mirren, Джеффри Раш / Geoffrey Rush, Эдриэнн ДеФариа / Adrienne DeFaria, Сэм Нил / Sam Neill, Эмили Барклай / Emily Barclay, Энтони ЛаПалья / Anthony LaPaglia, Дэвид Уэнэм / David Wenham, и др.Перевод: ДублированныйЯзык субтитров: Русские, АнглийскиеПродолжительность: 1:37:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9975576B253B721DFB6287DCDC82C9E118AE32B2
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

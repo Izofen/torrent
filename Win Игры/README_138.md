@@ -19,6 +19,8 @@ Yars Rising (2024) [Multi] (1.1.0) Scene Tenoke
 magnet:?xt=urn:btih:75A05319EECCB32E2E7C4E5C28873421094CC5B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Pneumata (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:316E1D7B3FF5491CAB3730A772C90627DE126491
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ DYSMANTLE (2021) [Ru/Multi] (1.4.0.41/dlc) Repack Pioneer
 magnet:?xt=urn:btih:7DD0BFB6B6E520E435A3BBDDBFA4570516ADF5EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Supermoves предлагает игрокам освоить фриран и п
 ```bash
 magnet:?xt=urn:btih:331C9F65648C911FC3713D25EE85383D2D159C0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Unknown 9: Awakening (2024) [Ru/Multi] (Build 16069251/dlc) Repack FitGirl [Delu
 magnet:?xt=urn:btih:07E388ED994A436523B3B7701E1A22EA72692125
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Looney Tunes: Wacky World of Sports (2024) [Multi] (1.0/dlc) Repack FitGirl [Del
 ```bash
 magnet:?xt=urn:btih:131E745EFCD9E1C11CEF337475D125F42DFEAD80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1.02) Repack seleZen
 magnet:?xt=urn:btih:05EDFDD128819DCC0FD6D484567786A50ED1B9AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1.02) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:2267B949DCE4F826FD8C487190BEFFBF0DE00BD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ A Quiet Place: The Road Ahead - это однопользовательская 
 magnet:?xt=urn:btih:E962C21495D3985C63857E7F52682068BBD617F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Holy Gosh Darn (2024) [Ru/Multi] (1.1.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0EC0B0D56AFC1ABADF726DD06AB844B21D5A9276
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Unknown 9: Awakening (2024) [Ru/Multi] (build 16069251) Repack seleZen
 magnet:?xt=urn:btih:8CEF14C3D22C308A66F017FDB4F70931BE2F0B74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ A Quiet Place: The Road Ahead - это однопользовательская 
 ```bash
 magnet:?xt=urn:btih:E6AF46F17806D4B3F03888A25F59E3A79058E96A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Metaphor: ReFantazio (2024) [Ru/Multi] (1.02) Repack seleZen
 magnet:?xt=urn:btih:E6A6D8E89C5E3D1D29F257F7E154CA206511D9D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1.02) Scene FAiRLiGHT
 ```bash
 magnet:?xt=urn:btih:67645B6CD0148EA657AB46DB081534370CCB3697
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Call of Duty: Black Ops II (2) (2012) [Ru/En] (1.0.0.1 Update 3/dlc) Repack Othe
 magnet:?xt=urn:btih:96A8E052C09F7A4BE5C14F675498A593B046020F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Ember Knights (2023) [Ru/Multi] (2.0.0/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:8D8C72BCBF2EFEBFC2B7267D576B8459C49887FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Citadelum (2024) [Ru/Multi] (build 16078282) Repack seleZen
 magnet:?xt=urn:btih:69B753ACA1F46EF974498C8FED0674D8A4FEBFD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Welcome to Empyreum - видеоигра, в которую можно буде�
 ```bash
 magnet:?xt=urn:btih:E767FD7FB6B6410084B4FAA57DF27E437FB61D3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Police Simulator: Patrol Officers - симулятор полицейского,
 magnet:?xt=urn:btih:C583D23A7A402C687CAA0427F80E14172EEB6DD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Glitchpunk - отдушина для всех любителей динамич�
 ```bash
 magnet:?xt=urn:btih:DB2C297048552B6D8B5272627D466E914E95BDD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Neva (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:4A7ACA71C1A8ECFF498DB5FF91F36BD4D8A41F18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Waveform (2012) [Multi] (1.0/dlc) Scene PROPHET
 ```bash
 magnet:?xt=urn:btih:9B1E899FF12AD82B4F329B0B1F304F7604E70C70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Cobalt Core - это инновационная научно-фантастич�
 magnet:?xt=urn:btih:85AADE39A1F939DED8156BE74AAE02A3DC80A514
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Glitchpunk - отдушина для всех любителей динамич�
 ```bash
 magnet:?xt=urn:btih:8129DBA183FD3A75AD1CD3EF12F4053973491D7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Portal with RTX (2022) [Ru/Multi] (Build 14355597) Repack Other s
 magnet:?xt=urn:btih:C661DE9D4C44270A61A3CFB21954AE1CB2583164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ The Devil is in the Details, это хоррор-игра от первого л
 ```bash
 magnet:?xt=urn:btih:AD85C66DC303E9F7F443B4A8E10A1DAEDDEA2B04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

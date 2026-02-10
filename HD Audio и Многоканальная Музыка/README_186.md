@@ -19,6 +19,8 @@ Edguy - 5 альбомов (2001-2011) /10LP/ [FLAC 2.0 192/24 |tracks (VinylRip
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Edguy - 5 альбомов (2001-2011) /10LP/ [FLAC 2.0 192/24 |tracks (VinylRip
 ```bash
 magnet:?xt=urn:btih:6B9E3E0BAD49696172B707ECF276081CB00BDD86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ A4 Where Do You Go?(   Читать дальше...   )Жанр: Pop RockПро�
 magnet:?xt=urn:btih:2EE706B5823E98F878BF8B6C1534663476060308
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Nuclear — чилийская трэш-метал-группа, основан�
 ```bash
 magnet:?xt=urn:btih:170A4189CFD363D30263F9CA1F3DB650A5F484D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -132,6 +140,8 @@ Deep Purple - Live On The BBC (1972) /2004, Audio Fidelity/ [DST 2.0 1bit/2822,4
 magnet:?xt=urn:btih:2E19C914E10C4B01270F124347F965EEADD705A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -158,6 +168,8 @@ P!nk (Pink) - Trustfall (2023) Tour Deluxe Edition [FLAC 24/44.1|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:9795CC4FD2E3B27B82F365398ED5E453B1A886C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -186,6 +198,8 @@ The Alan Parsons Project - The Instrumental Works (1988) Reissue, 2023, Arista -
 magnet:?xt=urn:btih:96D876ACD90647D6F79B0C72691E9644C62C4438
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +226,8 @@ Fate - Ghosts From The Past (2011) remastered version, 2023, Frontiers Records [
 ```bash
 magnet:?xt=urn:btih:D63413FBB2E4E98EDE61C092C8678D2E8ADE394D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +256,8 @@ Fate - If Not For The Devil (2013) Remastered Version, 2023, Frontiers Records [
 magnet:?xt=urn:btih:A688D6F8C309C7281F9D181980EE8612D060F2A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +284,8 @@ The Alan Parsons Project - The Sicilian Defence (2014) Reissue, 2023, Arista - L
 ```bash
 magnet:?xt=urn:btih:5E64FB71DCCE58C2787E1797E8689B238E47E5DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +314,8 @@ Status Quo - Official Archive Series Vol. 2 (Live in London 2012) (2023) New Mix
 magnet:?xt=urn:btih:F1FB5090D87A2D9CE0DB029B8CFFA6E8B1D9E3AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +342,8 @@ Britny Fox - Britny Fox (1988) Remaster, Expanded Edition, 2023,  SBCMG [FLAC 24
 ```bash
 magnet:?xt=urn:btih:BE000B0D09EA90078EE059C7C0B849B4AD97A9D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +372,8 @@ Music By – C. Szlazak(   Читать дальше...   )Жанр: Pop Rock, S
 magnet:?xt=urn:btih:6F77F0378226E9E6B0BD4D19E76C21B47C29B5B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +400,8 @@ Daisy Jones & The Six - Aurora (2023) Super Deluxe Edition [FLAC 24/48,96|Lossle
 ```bash
 magnet:?xt=urn:btih:B684BF5413A937344BE1AAD36B4E56952AA1A9DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +430,8 @@ Orphaned Land - A Heaven You May Create - Live @ Heichal HaTarbut, Tel Aviv 2021
 magnet:?xt=urn:btih:B0449DF1A2CD7038F88BF46C3A9E32A22212EDEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +457,8 @@ Disc 2: Dark-Side Mix]Disc 2: Dark-Side MixЖанр: Art-rock, neo-folk, progres
 ```bash
 magnet:?xt=urn:btih:63711A9A90CE25219A69C9B83A1039C4C6C43BDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +487,8 @@ Cobra Spell - 666 (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:EE5B1CCC413837F7A339C317726299E26AC8D615
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +515,8 @@ Brian Eno - ForeverAndEverNoMore (2022) Forever Voiceless Edition, 2023, UMC (Un
 ```bash
 magnet:?xt=urn:btih:1AE84171B1D6278E6E1E82D55B141E359C253336
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +545,8 @@ Paradise Lost - Icon 30 (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Gothic metal
 magnet:?xt=urn:btih:24C9BCB372F9FAFCA12CE4B428A1AE0D7B88261B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +573,8 @@ Visions Of Atlantis - A Pirate's Symphony (2023) Orchestral Version [FLAC 24/44.
 ```bash
 magnet:?xt=urn:btih:A692925812DCAAF997BA82A7ECAB12AFC6EEF3A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +603,8 @@ Them - немецко-американская хэви-метал группа,
 magnet:?xt=urn:btih:89698A042F4627CECBFA421347999C50733FF300
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +631,8 @@ Fate - V (2006) Remastered, 2023, Frontiers Records [FLAC 24/44.1|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:8C55F8909D602596C788773A451FE34D2E195491
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +661,8 @@ C1. A Fair Judgement (10:23)(   Читать дальше...   )Жанр: Progre
 magnet:?xt=urn:btih:0FF47024966D3DD594781D5F0B0D3FB616721E37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +689,8 @@ A4 Con Amore (Cu Dragoste)(   Читать дальше...   )Жанр: PopПр�
 ```bash
 magnet:?xt=urn:btih:65CB716CFC68BD32768AF0093627BBDF48143897
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -671,6 +719,8 @@ Axenstar - Chapter VIII (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Meta
 magnet:?xt=urn:btih:00DA99D65701F722EAF90465C2C610CB89ED6E36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -697,6 +747,8 @@ A4. Will o the Wisp (05:05)(   Читать дальше...   )Жанр: Progres
 ```bash
 magnet:?xt=urn:btih:38B5560B127628C874758422F72FA1DBD78DD10A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

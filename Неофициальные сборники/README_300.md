@@ -1,3 +1,32 @@
+###  Публикация: 1316323   (506864) от 25.07.2019
+
+VA - Dancehall And Best Reggae Music Songs (2019) [MP3|320 Kbps] <Reggae, Dancehall, Reggaeton>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_506864.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Brother Culture - Jump Up Pon It
+002. Kalidas Kp Feat. Té Dee - Life To The Fullest
+003. Phantom Imc - Hype Life
+004. Louzgain - Citoyen Du Monde(   Читать дальше...   )Жанр: Reggae, Dancehall, ReggaetonПродолжительность: 08:15:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:005A230BCA8C75D73EE14A1E12BDF54AA9DB8374
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1316341   (506870) от 25.07.2019
 
 VA - Record Super Chart 596 (2019) [MP3|320 Kbps] <House, Club, Dance>
@@ -21,6 +50,8 @@ VA - Record Super Chart 596 (2019) [MP3|320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:CB20A7D789C4DB91FE0F9AA669851466E085DE52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Осенняя 100-ка блатных песен (2015) [MP3|256 кб/с]<
 magnet:?xt=urn:btih:699630006A5A7A8EA95F2572E436FBBEFCE1F8E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - New Italo Disco (2015) [MP3|320 кб/с]<Synth-pop, Disco>
 ```bash
 magnet:?xt=urn:btih:C72B41D258492CDE415580840B399EE16A194A33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Extra Trance (episode 6) (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 magnet:?xt=urn:btih:B41B469EB916B47454F1C5EC9B4C60B6882FEFA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +167,8 @@ VA - Deep House and Techno - Dream Selection 2010-2015 vol.1 (2010-2015) [MP3|24
 magnet:?xt=urn:btih:ABA6C249BDC8000164157215BAB963D98347AC55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +195,8 @@ VA - Bizarre Del Mar Top 30 Downbeat Moments and Best of Deluxe Erotic Bar and L
 ```bash
 magnet:?xt=urn:btih:B2EA1053E5CA52EFF69387C82188671A195561DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +231,8 @@ VA - Горячие Новинки Love Radio: Праздничный Карна
 magnet:?xt=urn:btih:71E65B84313418EB5C9198615CCEB4E90A1525B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +265,8 @@ VA - Абсолютный Хит. Зарубежный (2012) [MP3|256 кб/с]<
 ```bash
 magnet:?xt=urn:btih:8D1085F1CAF353110D7615D08F908E6171095356
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +301,8 @@ VA - Территория Зарубежных Новинок (2012) [MP3|256 kb
 magnet:?xt=urn:btih:DD8EDC4746A4008289BB3E6601F60E35C0093DE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +335,8 @@ VA - Latest And Greatest Great British Artists (2012) 3CD BoxSet[MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:AA616CB96A2D155877ED4C534019DDFA8356E62B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +371,8 @@ VA - Just Great Songs (2012) 3CD BoxSet[MP3|320 кб/с]<Pop, Rock>
 magnet:?xt=urn:btih:4F205B5EA9AB438438FB416A15F1F6B6024A6091
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +401,8 @@ VA - Ultimate (2004-2012) [MP3|320 кб/с]<Drum & Bass,Trance,House>
 magnet:?xt=urn:btih:D0853BB88B4954138BDEBEF461BC741093DF90D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +429,8 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:711CA571D7764F48CECEA6E175F3CC1B0EF9D823
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +459,8 @@ VA - Blues Forever, Vol.87 (2018) [MP3|320 Kbps] <Blues>
 magnet:?xt=urn:btih:945800F647EA56B6DDE42680F291A9A32A1E966E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +487,8 @@ VA - Dynamic Audiophile Jazz Vol.2 (2019) [MP3|320 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:E2EF658783A0A1784CA8C30B82DA3AE3191585D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +517,8 @@ VA - Blues Forever, Vol.88 (2019) [MP3|320 Kbps] <Blues>
 magnet:?xt=urn:btih:60E8E6978B21C6D02F331FFE34498606651D6779
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +545,8 @@ VA - Blues Forever, Vol.90 (2019) [MP3|320 Kbps] <Blues>
 ```bash
 magnet:?xt=urn:btih:7ACAC355C338A3EA0AFBD7AC839E584B081EA964
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +575,8 @@ VA - Lost Magic Alchemy (2019) [MP3|320 Kbps] <Hardcore, Metal>
 magnet:?xt=urn:btih:19EC04E649EDF19DFD628285B7DC4BBB6CC35A0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +603,8 @@ VA - Music News vol.201 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:8D037564FB68BA83FF4DBEDBFCA9959DFF17FEF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +633,8 @@ VA - Автоледи: Популярный автосборник (2015) [MP3|2
 magnet:?xt=urn:btih:BD437149D62272B22E35DEBACDA5905A21DB574C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +658,8 @@ Red Dog: Superior Firepower (2000-2015) [MP3|320 кб/с]<Score>
 ```bash
 magnet:?xt=urn:btih:B558EA28BFE2F9FB99C1E2EE324025B23338983F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +688,8 @@ VA - White Double Vocal Bass (2015) [MP3|320 кб/с]<Drumm and Bass, Dubstep>
 magnet:?xt=urn:btih:2C12C50E00402560A6558AF0E16E9C6D6B09E97A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +716,8 @@ VA - Pop Dance Maniac (2015) [MP3|320 кб/с]<Vocal, Dance, Club, Euro>
 ```bash
 magnet:?xt=urn:btih:782E4631DE0276920FEA311DB334DAD4127DE6C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -671,6 +746,8 @@ VA - Deep House Music - Sexy House Lounge (2015) [MP3|320 кб/с]<Deep House>
 magnet:?xt=urn:btih:F4B5C408465FC37FA4BFDD8C44CADAD4130EB84F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -698,32 +775,7 @@ VA - LSD: Love, Sex & Diamonds (2015) [MP3|320 кб/с]<House, Tech House>
 magnet:?xt=urn:btih:B1E94E7CC65CA54E21BCA31269A90312B5DC39E1
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932866   (508326) от 30.08.2015
-
-VA - Lounge At The Seashore 21 (2015) [MP3|320 кб/с]<Lounge, Electronic, Deep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oddxperienc - 4 Fingers (Original Mix) (05:09)
-02. Hnny - Cheer Up, My Brother (Original Mix) (05:09)
-03. Steven Solveig - Crossing Mars (Original Mix) (05:55)
-04. Jose Padilla - Day One (Telephones Remix) (07:11)(   Читать дальше...   )Жанр: Lounge, Electronic, DeepПродолжительность: 01:13:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C66989B99FD3DD6A56A56B633E717B3D633F8258
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

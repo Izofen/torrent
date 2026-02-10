@@ -1,3 +1,32 @@
+###  Публикация: 911820   (614081) от 24.06.2015
+
+Madonna - Madonna's 40 Biggest Billboard Hits (2015) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like a Virgin (Like a Virgin)
+ 02. Vogue (I'm Breathless)
+ 03. Crazy For You (Vision Quest)
+ 04. Take a Bow (Bedtime Stories)(   Читать дальше...   )Жанр: PopПродолжительность: 03:04:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E333AD4035461ADAFD3387586605547AD81B0B8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 524035   (614380) от 17.07.2012
 
 VA - Рок Нашествие (2012) [MP3|128 кб/с]<Rock>
@@ -28,6 +57,8 @@ VA - Рок Нашествие (2012) [MP3|128 кб/с]<Rock>
 magnet:?xt=urn:btih:96256DAB2A49A6B35437A1CFE81969C97C043361
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -55,6 +86,8 @@ VA - Vocal Drum & Bass Temptation Vol 3 (2015) [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:8F621357573F865B7B9E5042975202535481C987
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,6 +114,8 @@ VA - 100 Nu Disco Funky House (2017) [MP3|320 Kbps] <Funky House, Nu Disco, Elec
 ```bash
 magnet:?xt=urn:btih:E621FA93CCA409DEF3ABAC1AB9667178DD19CBA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +150,8 @@ VA - Легенды Русского Рока в Авто (2012) [MP3|278-320 к
 magnet:?xt=urn:btih:7C1284B18A150893783FD69DDA3237CDD5287D55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +179,8 @@ VA - The Chillout Session Ibiza (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillo
 magnet:?xt=urn:btih:1ABA59697A9EE96E9888962E0788926945EF6F77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +207,8 @@ VA - Music for Car 14 (2019) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:9C02F6EA8DAE3B2F521C890B6D42819AB07A6657
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +243,8 @@ VA - Загорелые Хиты Лета! (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:8D3E13C9FE19DCAF3605010773C897BE382108DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +278,8 @@ VA - Рок в Авто (vol. 3) (2012) [MP3|320 кб/с]<Hard Rock, Heavy Metal
 magnet:?xt=urn:btih:449ABB108EAD13404E6B3CA5EF77DF79A005EDD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +306,8 @@ VA - Popular European Mix (2019) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:05D85DD23F995C311770585732E049A014D3D4B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +336,8 @@ VA - Holograms Of Festival DJ Positions (2019) [MP3|320 Kbps] <Dancehall, Reggae
 magnet:?xt=urn:btih:813E5E304EF34C3E178DE62F3029EF090A843F43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +364,8 @@ VA - Girls Night Party (2019) [MP3|320 Kbps] <Club, Dance, House, Electro>
 ```bash
 magnet:?xt=urn:btih:33096A66543E2C2CC14AE9A290F84087BC702700
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +394,8 @@ VA - Options Remake Of Tracks April -A- (2019) [MP3|320 Kbps] <Tropical, Progres
 magnet:?xt=urn:btih:B0883D0D5BAFA5104095F332A1B190F904B97E2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +422,8 @@ VA - German Top 50 Party Schlager Charts 15.04.2019 (2019) [MP3|320 Kbps] <Pop, 
 ```bash
 magnet:?xt=urn:btih:532ADFAD8A3165D9E5994C94E8F71C898B99E2D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +452,8 @@ VA - Yabba Funk: Soul Full Radio (2019) [MP3|320 Kbps] <Funk Soul, Funky House>
 magnet:?xt=urn:btih:08C53BA9BD08B28719358F2CD4FDCDB0732CCBAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +481,8 @@ VA - Лучшие хитовые треки 2016 - Drum And Bass №1 (2016) [MP
 magnet:?xt=urn:btih:D18D00F04D8A771654CEEAA7D8EA987C5F241DC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +509,8 @@ VA - Instrumental Smooth Jazz (2018) [MP3|320 Kbps] <Instrumental, Smooth Jazz, 
 ```bash
 magnet:?xt=urn:btih:F9C0A93500061782DE69FEDD8276359E1876FF79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +545,8 @@ VA - Последние новинки в мире музыки от Vanovlad 50
 magnet:?xt=urn:btih:7205908DDEB93544650AFE9968582A392DD3A30B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +573,8 @@ Ebony - The Singles Collection (2018) [MP3|320 Kbps] <Electronic, Pop, Disco>
 ```bash
 magnet:?xt=urn:btih:78576EACF648D17923F955639B01BCF2BEB5AB30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +609,8 @@ VA - Dub step from evolinte vol.1 (2011) [MP3|320 кб/с]<Dub Step>
 magnet:?xt=urn:btih:9390FC0663739BB207F553CBF245DFA576EE11A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +637,8 @@ VA - Pop Dance Top Selection (2018) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:231B90569F399AAD04E16F628D1365BFD2AEC438
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +667,8 @@ VA - Dance Club 2018.01 (2018) [MP3|320 Kbps] <Dance>
 magnet:?xt=urn:btih:9ED217D808424C1A74A4D6B67CCBED9CF694C71E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +695,8 @@ VA - Мир русского рока 100 песен (2015) [MP3|320 кб/с]<Ro
 ```bash
 magnet:?xt=urn:btih:EC0B7089853C7AEDA06D6C9B9FCA20A4F5445980
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -652,6 +725,8 @@ VA - Uplifting Trance Collection - Episode One (2016) [MP3|320 Kbps] <Trance, Up
 magnet:?xt=urn:btih:7D2A50E3FF68304F0A14F090136C89490B6DA177
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -678,6 +753,8 @@ VA - Просто хороший сборник в АВТО (2015) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:8870B7B0F47D692DFE7D2FE9564E4326212D4D58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -706,32 +783,7 @@ VA - Global Player Ibiza 2016 Vol.1 (2016) [MP3|320 Kbps] <Downbeat, Funky, Soul
 magnet:?xt=urn:btih:DC99D9C545CD7C26224C630141621C3F2424A298
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037136   (615741) от 23.07.2016
-
-VA - Love, Sunshine & Happiness (2016) [MP3|320 Kbps] <Minimal, Deep, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solee - Sommerliebe 08:27
-02. Juno6 - Seq02 06:17
-03. Kusha - Ich Bin Weil Wir Sind (Mikech Remix) 07:05
-04. Casper Nielsen - Le Twist Retro 05:22(   Читать дальше...   )Жанр: Minimal, Deep, Tech HouseПродолжительность: 02:59:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61246134C779F9C98FF21ED4F34565DA0CAA42D9
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

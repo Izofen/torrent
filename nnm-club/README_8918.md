@@ -22,6 +22,8 @@ Alchemy X - 11.59.59 (2003) [FLAC|Lossless|image + .cue] <Progressive Metal>
 magnet:?xt=urn:btih:5CB14FF5A937134FAA615FFF22EB5CD651FD9326
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Find Any File не содержит никаких подменю с настр�
 ```bash
 magnet:?xt=urn:btih:4C7627BB566ACD88F72E43678ED489396D4C5947
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ VA - Redux Presents: The Finest Selection (Mixed by Rene Ablaze) (2017) [MP3|320
 magnet:?xt=urn:btih:348D21E814FA1DEF152301312EA37E779B42D5FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ Cartoon Network | Артбук по мультсериалу По ту стор�
 ```bash
 magnet:?xt=urn:btih:D441EF7E114F5AF5BC5ABE024F9E5FDF180C6080
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ Elegy - Principles of Pain (2002) 2009, Reissue digpack [APE|Lossless|image + .c
 magnet:?xt=urn:btih:7AB4D21C1A0429B424827EECB33BC97B77348010
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Hammond B-3X, инновационный виртуальный орган c ф�
 ```bash
 magnet:?xt=urn:btih:6450002C13C2D42E6AF3454B64A36C7E676B9F26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ Elegy - Forbidden Fruit (2000) Japan [FLAC|Lossless|image + .cue] <Progressive P
 magnet:?xt=urn:btih:4EF59C92C69A34677745823399E87E7D58C96E80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ magnet:?xt=urn:btih:4EF59C92C69A34677745823399E87E7D58C96E80
 magnet:?xt=urn:btih:EFB0AF88CDE5838B72663031AEC4E84DD8067180
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:EFB0AF88CDE5838B72663031AEC4E84DD8067180
 ```bash
 magnet:?xt=urn:btih:C2A639B4C190B536567B44B8C9852E655576B4D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ Cirith Gorgor - Onwards To The Spectral Defile (1999) [APE|Lossless|image + .cue
 magnet:?xt=urn:btih:3A5B74B77E40AF7FCD2BE3FC891673B9FB6A736B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ Elegy - Supremacy (1994) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
 magnet:?xt=urn:btih:DF0FCAECF3CF92BFEB9DFC9076D001AA45304E84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ magnet:?xt=urn:btih:DF0FCAECF3CF92BFEB9DFC9076D001AA45304E84
 magnet:?xt=urn:btih:3BDED66DD8B5DABFE606314C41043E2194EBEC37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ TweakPower – представляет собой единый графичес
 ```bash
 magnet:?xt=urn:btih:7039AFAE6B0D4C630F15C44703D346B95C9AEBAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +381,8 @@ Forefather - Legends Untold (2000) [FLAC|Lossless|image + .cue] <Pagan Metal>
 magnet:?xt=urn:btih:705D7B81819093EEA99C5B41E79586039904F9EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +409,8 @@ sdspeed является единственным продуктом, котор
 ```bash
 magnet:?xt=urn:btih:86F7FB07C7507CF64ECBA7D4E3974B9372EFEF36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +439,8 @@ Jezabel - A Todo O Nada (2001) [FLAC|Lossless|image + .cue] <Power Metal>
 magnet:?xt=urn:btih:79E2D1E25A9BCAFAD0DA9D06C812C6C06FDBE6D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +464,8 @@ magnet:?xt=urn:btih:79E2D1E25A9BCAFAD0DA9D06C812C6C06FDBE6D7
 ```bash
 magnet:?xt=urn:btih:FEAF1AB0370299C3197054D2C99EF3807FC839DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +492,8 @@ VA - Acid Jazz Brazil (Nu Jazz, Funk & Soul with a Brazilian Flavour) (2016) [MP
 magnet:?xt=urn:btih:9C5920278822E358FE1B847FA8324FD379AC9157
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +517,8 @@ id Software, Avalanche Studios | Артбук по игре RAGE 2 / The Art of 
 ```bash
 magnet:?xt=urn:btih:F21D40DC77F7FDE1B73D3FD4EAE857E3F867312D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +547,8 @@ Alchemy X - A Delicate Balance (1999) [FLAC|Lossless|image + .cue] <Progressive 
 magnet:?xt=urn:btih:309D28D5D8CEC18AF777BE7BE66BF8B59CDA26F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +575,8 @@ Total Fitness PRO 7.5.0 [En]
 ```bash
 magnet:?xt=urn:btih:1C9C909D22F687650E650BA31B71AAAD9EC2DB7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +605,8 @@ Coldplay - Everyday Life (2СD) (2019) [MP3|320 Kbps] <Indie Rock, Britpop>
 magnet:?xt=urn:btih:14B4A4A400D114CF81259213B0E284E5971E0363
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +634,8 @@ Hell in the Club - Devil on My Shoulder (2015) Japan [FLAC|Lossless|image + .cue
 magnet:?xt=urn:btih:A94BCAD87CF6AB63A9386B92304AAFFC17EF41FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +659,8 @@ magnet:?xt=urn:btih:A94BCAD87CF6AB63A9386B92304AAFFC17EF41FA
 ```bash
 magnet:?xt=urn:btih:B1578C39A591E4497957EA50C60CFA0AD68D4D8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +689,8 @@ Der Weg einer Freiheit - Finisterre (2017) [FLAC|Lossless|image + .cue] <Black M
 magnet:?xt=urn:btih:58A2CC9B77F7FBDF5221595D6ECCA8A36B2629AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +717,8 @@ Larry Carlton & Steve Lukather - At Blue Note Tokyo (2016) Live [FLAC|Lossless|i
 ```bash
 magnet:?xt=urn:btih:6344CC91E1196AAA8E055CAD24393633EA4FC5D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

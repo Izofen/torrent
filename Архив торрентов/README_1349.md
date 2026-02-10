@@ -19,6 +19,8 @@ Floorp Browser – это модифицированная версия Firefox,
 magnet:?xt=urn:btih:698E026A79416E201047650E1346C86B950D87F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ FruitJuice - приложение тесно интегрированное с �
 magnet:?xt=urn:btih:73B975A296E2359CFFF8019DD98192066F7421CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ App Builder позволяет создавать приложения для с
 magnet:?xt=urn:btih:56086E44DDAFF237AE0F169C82A59AF61E485A14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ ScreenHunter Pro – программа для получения снимков
 ```bash
 magnet:?xt=urn:btih:CA99E595257EDDB60E12D5FB521D5D8CB8E3E8CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ WinMerge является весьма полезной для определе�
 magnet:?xt=urn:btih:4C63089CE8E038C883DDE2FEA335F8BB9F5B22EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ WinBin2Iso 4.33 Build 001 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A000BF3FED4F68D92DAA6AF84A3948798CCE5E64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ RJ TextEd - мощный текстовый редактор с большим �
 magnet:?xt=urn:btih:9FE7B0180A535088A7E0CAEFCE3E879D98F799E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Wondershare Filmora - удобный видеоредактор, содержа�
 ```bash
 magnet:?xt=urn:btih:3F5194E062ACB834AF8D059DF16FA05BF593E74C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Sharks 3D 2.0.4 [Multi/Ru]
 magnet:?xt=urn:btih:A36F4583E401791E8A656E8511F4BD1E640736CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Total Commander 10.52 (22.11.2022) Portable by MiG [Ru/En]
 magnet:?xt=urn:btih:B0DF716EEF0D6A59FEF160CBE78768BEA6502943
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Windows 11 Pro VL x64 22Н2 (build 22621.898) by ivandubskoj 24.11.2022 [Ru]
 ```bash
 magnet:?xt=urn:btih:DFB535256A59BED7E229C63D14163308C5B8F39D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Sante DICOM Viewer Pro не является «еще одним средств�
 magnet:?xt=urn:btih:70B3ABB62AFCF28680D82552AE933FBF43BC5E42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:70B3ABB62AFCF28680D82552AE933FBF43BC5E42
 ```bash
 magnet:?xt=urn:btih:C837645F1D5A75D9D0C9F2D5CBAE111E2ABCE2BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Sante DICOM Editor — ведущее в отрасли приложение п�
 magnet:?xt=urn:btih:3F69E81D76250A1B17DEF30F48249E862B62129D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Wondershare Filmora Х v10.1.3.13 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:963732A43CD213C38127513DE59B3CBD64815129
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ PhotoRoom v4.6.9 Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:1F4B53762EAE23198313D8ED10013312D79A2FF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:1F4B53762EAE23198313D8ED10013312D79A2FF4
 magnet:?xt=urn:btih:318E15DEA6365FE94F8E05F53FA4E7DADD38E7A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Text Editor Pro 11.0.1 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:68AEFE8189D82D9BEDC564080115293932402CA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ Q-Dir позволяет получать быстрый доступ к час�
 magnet:?xt=urn:btih:130F2FE4DC305FF6E3EFB95521A40985AFB45B05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ QownNotes – менеджер заметок, позволяющий четко
 ```bash
 magnet:?xt=urn:btih:5D4C72899572DE743A207E5EF885B0F05C1FFDB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ Text Editor Pro 27.7.0 + Portable + Bonus [Multi/Ru]
 magnet:?xt=urn:btih:70AE2814D833C3D3ACF7A529B55776E7AA6853FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ Deep Freeze - это утилита, которая позволяет сист�
 ```bash
 magnet:?xt=urn:btih:B70DE7F6734C214A903F963140B2E46B977AE947
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ Psiphon предназначен для предоставления вам от
 magnet:?xt=urn:btih:C3E349A629B52DBEDB2C6C1CFDB978D55A3B8D78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:C3E349A629B52DBEDB2C6C1CFDB978D55A3B8D78
 ```bash
 magnet:?xt=urn:btih:3E1E17E5E3708990734B975DBE2D375511FE5A19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ Moom 3.2.20 [En]
 magnet:?xt=urn:btih:45726DD301086251F215341A30FCE5EC8ABF2E46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Ungoogled Chromium - версия веб-браузера Chromium без инт
 ```bash
 magnet:?xt=urn:btih:93B952C9E3980856CDD3031FD294278554EC26DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -21,6 +21,8 @@ YouWave for Android - полезный и легкий в использован
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ iCompta - простое, но мощное приложение для упра
 ```bash
 magnet:?xt=urn:btih:82F446187DC4B7740A09E40222B2BD9449FAF413
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Music Tag Editor - редактор музыкальных тегов помож
 magnet:?xt=urn:btih:8B5776E392134456BC2B5E5152A243C11958EC92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Wallpaper Engine позволяет устанавливать живые обо
 ```bash
 magnet:?xt=urn:btih:DD5E82862E770BE3CB3DA7B9B8CBCE4F4CEF6FC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:DD5E82862E770BE3CB3DA7B9B8CBCE4F4CEF6FC8
 magnet:?xt=urn:btih:F2C72DD9DC761728A73B65A6B678EB496847FD62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Liveclasses, Антон Мартынов | Нейросети для генер�
 magnet:?xt=urn:btih:DDA5C4EB3059830474E8F54E1910152960ABB2F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:DDA5C4EB3059830474E8F54E1910152960ABB2F4
 magnet:?xt=urn:btih:92E57A8708442E7811B575619E583F5931B19BED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:92E57A8708442E7811B575619E583F5931B19BED
 ```bash
 magnet:?xt=urn:btih:8D910E9014D2718F6A52559296D744BDBEB874F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:8D910E9014D2718F6A52559296D744BDBEB874F9
 magnet:?xt=urn:btih:4D7122969B21BD6CC43405827D9CFC46C6CFB5C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:4D7122969B21BD6CC43405827D9CFC46C6CFB5C0
 ```bash
 magnet:?xt=urn:btih:87D234A7C6471C14981AC69B138D0902504BB6D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ Herlin Riley - Perpetual Optimism (2017) 2019, Mack Avenue [FLAC|Lossless|tracks
 magnet:?xt=urn:btih:51886600E96EDB9AC7658F497F051F514851CCDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:51886600E96EDB9AC7658F497F051F514851CCDF
 ```bash
 magnet:?xt=urn:btih:053E0C1F9A98AF99BEF4EFB174D7C0D96522439F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:053E0C1F9A98AF99BEF4EFB174D7C0D96522439F
 magnet:?xt=urn:btih:A6BFF3AF65991B6EEC9046CBDB5B211B03EFE479
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ Disney Classic Games Collection - это новейшая и величайша�
 ```bash
 magnet:?xt=urn:btih:3F09A70EE210C86C3ABCE03E970A84B2C32DF758
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ Windows 10 Enterprise LTSB (x86/x64) Elgujakviso Edition (v.22.12.17) [Ru]
 magnet:?xt=urn:btih:040C434C9ABF89C2E0D3FBB830DA7934E42CD66D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:040C434C9ABF89C2E0D3FBB830DA7934E42CD66D
 ```bash
 magnet:?xt=urn:btih:02284DA0A9FF512D5857469475FA4B657FBC6E35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ Viper FTP (ранее ViaFTP) - простой и очень удобный FTP-
 magnet:?xt=urn:btih:51F074389253BE066AEA1DF3171DE6F2EC1A33CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ Minecraft — это строительная игра жанра «песочн
 ```bash
 magnet:?xt=urn:btih:461D400AA7E0AEECB0BF0BEEEE6F2533C2FE7234
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +509,8 @@ Methinks - Будет день опять (2022) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:91B0388F2EE49E9F7A35285B7DDEFD28BD6AE6B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:3CB5CAD3958F3966035F1CCDFA3EFD90BEF202BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:3CB5CAD3958F3966035F1CCDFA3EFD90BEF202BD
 magnet:?xt=urn:btih:6D0E28183178EC1A435086F886816D59820D6754
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:6D0E28183178EC1A435086F886816D59820D6754
 ```bash
 magnet:?xt=urn:btih:8EB5EA2A0AF34703B79D1B398ECF7C9E53FE2032
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +616,8 @@ VA - Nu Urban Jazz 2 (2018) [AAC|~336 Kbps] <Jazz, Nu Jazz, Electronic>
 magnet:?xt=urn:btih:C4AAB874A73058D6FF5CAAA1F966D059F217CEDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +641,8 @@ Inuyashiki / Инуяшики [2017, TV, 11 ep] HDTV 720p Raw+Rus
 ```bash
 magnet:?xt=urn:btih:464786935DFBF87C07B6C64601A33D69D7C212CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:464786935DFBF87C07B6C64601A33D69D7C212CE
 magnet:?xt=urn:btih:FCC873A125FC608B8690F041D41E2ADCEAF63CE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ magnet:?xt=urn:btih:FCC873A125FC608B8690F041D41E2ADCEAF63CE6
 ```bash
 magnet:?xt=urn:btih:A787CB46E5170064C27F08F88BDBCD3CB72358AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

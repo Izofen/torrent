@@ -1,54 +1,3 @@
-###  Публикация: 958743   (321971) от 22.11.2015
-
-Э. Шим | Лето на Корбе (1951) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказы про деда Макеича, про рыбалку и охоту.Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B10B95AAF374E89D56D14B7225DB0A167BE8623C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958840   (321972) от 22.11.2015
-
-Tweetbot for Twitter 2.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый, кто активно использует Twitter с помощью устройств от Apple, давно знает, что нет ничего лучше приложения Tweetbot.
-
-Tweetbot - клиент Twitter для Mac. Этот полнофункциональный клиент имеет фантастическую поддержку нескольких учетных записей и списков. Он также имеет мощные фильтры, несколько видов столбцов, и многое другое.
-(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 ноября 2015Разработчик: Tapbots LLCПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A328D900122EE5044E86C30F4FB64F769C16F2ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958709   (321973) от 22.11.2015
 
 Ф. Роузентал | Торжество знания. Концепция знания в средневековом исламе (1978) [DJVU]
@@ -69,6 +18,8 @@ magnet:?xt=urn:btih:A328D900122EE5044E86C30F4FB64F769C16F2ED
 ```bash
 magnet:?xt=urn:btih:6448CF08E0C6980F514AC93331DDDC96EA4C95F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +48,8 @@ Urbie Green - The Fox (1976) 2013, King Records[FLAC|tracks+.cue]<Jazz Funk, Sou
 magnet:?xt=urn:btih:C10DA46681FE22819EACDD37EEF2740603664A12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +74,8 @@ magnet:?xt=urn:btih:C10DA46681FE22819EACDD37EEF2740603664A12
 magnet:?xt=urn:btih:61293DD9292F92FFD8B40B77AC1A64E3CBD03E0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +99,8 @@ magnet:?xt=urn:btih:61293DD9292F92FFD8B40B77AC1A64E3CBD03E0D
 ```bash
 magnet:?xt=urn:btih:E4DC2F68906F1B2D09456F45748A1A1E1421CCE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +135,8 @@ Brad Dayley, DaNae Dayley | Photoshop CS6 Bible / Photoshop CS6. Библия п
 magnet:?xt=urn:btih:25D0A7B488075DBEF5533D193BB7A45FC9FAD4BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +160,8 @@ magnet:?xt=urn:btih:25D0A7B488075DBEF5533D193BB7A45FC9FAD4BA
 ```bash
 magnet:?xt=urn:btih:48A346B817C7BFEB8CED5B1EC3E8BAFCABDB4ACD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +187,8 @@ magnet:?xt=urn:btih:48A346B817C7BFEB8CED5B1EC3E8BAFCABDB4ACD
 magnet:?xt=urn:btih:E4C66B881A3B6C977ED1F20AFA51FF28FF2820B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +212,8 @@ magnet:?xt=urn:btih:E4C66B881A3B6C977ED1F20AFA51FF28FF2820B0
 ```bash
 magnet:?xt=urn:btih:94C3E0B2CB6566E7BCBA91D02B01C61152A3C7E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +239,8 @@ magnet:?xt=urn:btih:94C3E0B2CB6566E7BCBA91D02B01C61152A3C7E6
 magnet:?xt=urn:btih:032CC6717E8517D4C537DE135673DC09756E2932
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +264,8 @@ magnet:?xt=urn:btih:032CC6717E8517D4C537DE135673DC09756E2932
 ```bash
 magnet:?xt=urn:btih:61E6C9A48ED7910893CBC50DCB63DC5C9F25060B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +291,8 @@ Dorling Kindersley | Woodwork. The Complete Step-by-step Manual / Деревоо
 magnet:?xt=urn:btih:F848F350821595DC4408CD95E56B8C11C3873E49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +316,8 @@ FreeFileSync - это утилита, которая была разработа
 ```bash
 magnet:?xt=urn:btih:8EC5EEC8561AA5E4820C9DC5A9DAF20CEFA3BA4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +345,8 @@ magnet:?xt=urn:btih:8EC5EEC8561AA5E4820C9DC5A9DAF20CEFA3BA4E
 magnet:?xt=urn:btih:F128CD2B3BE0BDD631D376F5D3FC8BE4499CCB56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +370,8 @@ Audirvana - мощный аудиофильский плеер с широчай
 ```bash
 magnet:?xt=urn:btih:C222EFA986A735FCF9AFED3CC19072B99DB5776A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +400,8 @@ Laura Branigan - Self Control (2020) 2 CD Expanded Edition [FLAC|Lossless|image 
 magnet:?xt=urn:btih:3D909E7AC84F75CACD478DCFE87CD2E0CDC4C81D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +425,8 @@ magnet:?xt=urn:btih:3D909E7AC84F75CACD478DCFE87CD2E0CDC4C81D
 ```bash
 magnet:?xt=urn:btih:919888A8508149B9C53AA917AFF4DB9F9EB4156B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +452,8 @@ magnet:?xt=urn:btih:919888A8508149B9C53AA917AFF4DB9F9EB4156B
 magnet:?xt=urn:btih:6C422BBFD8E9C82F31A1051A1A3F270ED88EC159
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +477,8 @@ magnet:?xt=urn:btih:6C422BBFD8E9C82F31A1051A1A3F270ED88EC159
 ```bash
 magnet:?xt=urn:btih:60784D3B392F0E2EB6227D4DAE97982452A030D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +505,8 @@ magnet:?xt=urn:btih:60784D3B392F0E2EB6227D4DAE97982452A030D2
 magnet:?xt=urn:btih:E0F2AA2480E1C6347D2D7333C466A521D0BD64E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +532,8 @@ magnet:?xt=urn:btih:E0F2AA2480E1C6347D2D7333C466A521D0BD64E8
 ```bash
 magnet:?xt=urn:btih:D0822961B074F017041C5938948F1720310756DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +562,8 @@ magnet:?xt=urn:btih:D0822961B074F017041C5938948F1720310756DA
 magnet:?xt=urn:btih:B7DBB49203398951548F39C44FFC66AF93B81062
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +588,8 @@ Ditto Clipboard Manager 3.23.124.0 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:0D234663A4A474824A6B0FEF414F0FD0CA383B54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +613,8 @@ magnet:?xt=urn:btih:0D234663A4A474824A6B0FEF414F0FD0CA383B54
 ```bash
 magnet:?xt=urn:btih:4E67563CB8EA2A4E164711814D8B2EBC1A6EBA91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +641,63 @@ magnet:?xt=urn:btih:4E67563CB8EA2A4E164711814D8B2EBC1A6EBA91
 ```bash
 magnet:?xt=urn:btih:4623E788DB6BA71A1D4F32DFDF18837D43E2122F
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421156   (322009) от 03.11.2020
+
+Даниил Калинин | На последнем рубеже (2020) [MP3, Михаил Обухов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Декабрь сорок первого года, южный фас Московской битвы. Немцы прорываются к древнему Ельцу, чтобы перерезать снабжение столицы с Кубани и Кавказа. Фронт держат дивизии по 300 активных штыков и танковые бригады по 12 исправных танков. Но именно здесь проходит один из тех рубежей обороны, который принято называть последним, который нельзя сдавать.
+Пехотинец, сражающийся (   Читать дальше...   )Жанр: Боевик, Историческая литература, Книги о войнеПродолжительность: 07:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4122C53A3CB571B017378E0477863AE284293C68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421203   (322010) от 03.11.2020
+
+Векторный клипарт - Advertising orange juice and tasty ice cream realistic design [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Реклама сока и мороженого
+9 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:618865BE7B850B054BA06E86B15F153C959AD23D
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

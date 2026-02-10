@@ -1,54 +1,3 @@
-###  Публикация: 1421757   (315131) от 06.11.2020
-
-Whitesnake - Love Songs (2020) Remix [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, Dad-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Will Set You Free (2020 Remix) [00:04:07]
-02. The Deeper The Love (2020 Remix) [00:04:01]
-03. All I Want, All I Need (2020 Remix) [00:05:41]
-04. Too Many Tears (2020 Remix) [00:06:09](   Читать дальше...   )Жанр: Hard-Rock, Dad-RockПродолжительность: 01:18:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB028944C29767ECDE2B831FABB0E3430413ADED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 581943   (315136) от 01.12.2012
-
-Секретная миссия (1950) SATRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315136.jpg" />
-</div>
-
-
-###  Подробнее
-
-1945 год. Германия. Советские разведчики узнают о тайных переговорах немцев с англичанами и американцами и о готовящейся секретной капитуляции немецких войск на Западе. Советская разведчица Марта Ширке (она же - Маша Глухова) с честью выполняет задание командования.Жанр: Военный, детективРежиссер: Михаил РоммАктеры: Николай Комиссаров, Сергей Вечеслов, Елена Кузьмина, Алексей Грибов, Александр Чебан, Александр Антонов, Владимир Белокуров, Павел Березов, Павел   Гайдебуров, Владимир Гардин, Александр Хохлов, Василий Макаров, Александр Пелевин, Марк Перцовский, Николай Рыбников старший, Владимир Савельев, Николай   Тимофеев, Михаил Высоцкий, Лев Фенин, Борис Петкер, Михаил Яншин, Николай Трофимов, Георгий ГеоргиуПродолжительность: 01:38:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC331C34D149803147B56415D1DA6BE5AC036048
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 582964   (315144) от 01.12.2012
 
 Эволюция Борна / The Bourne Legacy (AC3 5.1)
@@ -69,6 +18,8 @@ magnet:?xt=urn:btih:DC331C34D149803147B56415D1DA6BE5AC036048
 ```bash
 magnet:?xt=urn:btih:1CEA82599020172E1CCA539F2214A1D7E49F9E24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +44,8 @@ magnet:?xt=urn:btih:1CEA82599020172E1CCA539F2214A1D7E49F9E24
 ```bash
 magnet:?xt=urn:btih:D83504820FCB8BB69C0243A2B8FF692ACE823CFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +80,8 @@ Anton Arensky - Suites For Two Pianos (Stephen Coombs, Ian Munro) (1994) [MP3|32
 magnet:?xt=urn:btih:D4721FF328667BF8E4A9081ECCF1AD3C83DBD5B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +108,8 @@ magnet:?xt=urn:btih:D4721FF328667BF8E4A9081ECCF1AD3C83DBD5B6
 magnet:?xt=urn:btih:54C20DC9584F3FB4A95EE6D1256A9879F3982739
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +134,8 @@ magnet:?xt=urn:btih:54C20DC9584F3FB4A95EE6D1256A9879F3982739
 magnet:?xt=urn:btih:AF9F8E50D7BC85270ED56B63BBFB299E356FDDBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +159,8 @@ magnet:?xt=urn:btih:AF9F8E50D7BC85270ED56B63BBFB299E356FDDBF
 ```bash
 magnet:?xt=urn:btih:A349F1B182D8BD47D8B93C662A242426C7DD5338
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -234,6 +195,8 @@ VA - Trance In Motion: Sensual Breath 022 (2012) [MP3|320 кб/с]<Trance, Vocal
 magnet:?xt=urn:btih:8631E86EF134666FD7A263F5ED536BB5E4C038E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -257,6 +220,8 @@ magnet:?xt=urn:btih:8631E86EF134666FD7A263F5ED536BB5E4C038E2
 ```bash
 magnet:?xt=urn:btih:36755F763F74D7C21C49B466BF7B6C958C9EAF8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +250,8 @@ VA - Ultimate Downbeat Electro, Vol. 1 (2017) [MP3|320 Kbps] <House, Minimal, Te
 magnet:?xt=urn:btih:4018D42C68206BA84E7F0107AC6623A7DC53CF7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +275,8 @@ magnet:?xt=urn:btih:4018D42C68206BA84E7F0107AC6623A7DC53CF7D
 ```bash
 magnet:?xt=urn:btih:4F8955FA5E7DE20B9A6603146A7775AD9575AAA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +302,8 @@ magnet:?xt=urn:btih:4F8955FA5E7DE20B9A6603146A7775AD9575AAA9
 magnet:?xt=urn:btih:D98F06F2E5BFC6394CA10ACBA4B7D16CAB08D6B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +327,8 @@ magnet:?xt=urn:btih:D98F06F2E5BFC6394CA10ACBA4B7D16CAB08D6B4
 ```bash
 magnet:?xt=urn:btih:590B9A23BF8957F7C866A8C3E23E5C28F8971881
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +357,8 @@ Jeff Kashiwa - Fly Away (2017) Coastal Access Music [FLAC|Lossless|image + .cue]
 magnet:?xt=urn:btih:43BF8A99B3F54934B5F4F07FCD01A44F2EF21160
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +385,8 @@ magnet:?xt=urn:btih:43BF8A99B3F54934B5F4F07FCD01A44F2EF21160
 ```bash
 magnet:?xt=urn:btih:571C73FC2B5F3AA47534E0A3C09BD5D2EBBBFB47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +415,8 @@ magnet:?xt=urn:btih:571C73FC2B5F3AA47534E0A3C09BD5D2EBBBFB47
 magnet:?xt=urn:btih:C78E269CEB32BEDD176DA230EEE988AAB5FB866B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +443,8 @@ magnet:?xt=urn:btih:C78E269CEB32BEDD176DA230EEE988AAB5FB866B
 ```bash
 magnet:?xt=urn:btih:D9C7261341E7B365BA1EE640E399684645EE3D3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +473,8 @@ magnet:?xt=urn:btih:D9C7261341E7B365BA1EE640E399684645EE3D3A
 magnet:?xt=urn:btih:6102587A8400E5483FB2C08A1D238B450BC0A1E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +501,8 @@ magnet:?xt=urn:btih:6102587A8400E5483FB2C08A1D238B450BC0A1E5
 ```bash
 magnet:?xt=urn:btih:0A475CF689DAB80F258D2AD20CD5402A183FF91E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +531,8 @@ magnet:?xt=urn:btih:0A475CF689DAB80F258D2AD20CD5402A183FF91E
 magnet:?xt=urn:btih:69300EDE5ADA6466F31E91031336C524262B41FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +559,8 @@ magnet:?xt=urn:btih:69300EDE5ADA6466F31E91031336C524262B41FC
 ```bash
 magnet:?xt=urn:btih:0E474D8F4DEA0EA01E5ECFCEB16BD5A37041A42F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +589,8 @@ magnet:?xt=urn:btih:0E474D8F4DEA0EA01E5ECFCEB16BD5A37041A42F
 magnet:?xt=urn:btih:623B9BC59F552C38F0623DA88FE2CE6A0D2E068A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +617,8 @@ magnet:?xt=urn:btih:623B9BC59F552C38F0623DA88FE2CE6A0D2E068A
 ```bash
 magnet:?xt=urn:btih:B42DECDB72D56C260E7BE57F5B89B8C2BB2E7FA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -654,6 +647,8 @@ magnet:?xt=urn:btih:B42DECDB72D56C260E7BE57F5B89B8C2BB2E7FA0
 magnet:?xt=urn:btih:0A2A148039F8224935C177F19AD667E3FDAD76F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -677,6 +672,61 @@ magnet:?xt=urn:btih:0A2A148039F8224935C177F19AD667E3FDAD76F7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 264211   (315199) от 01.12.2010
+
+S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R.: Зов Припяти / Опасный поход [Ru] (RePack/Mod) 2010
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_315199.jpg" />
+</div>
+
+
+###  Подробнее
+
+S.T.A.L.K.E.R.: Зов Припяти – это сиквел к игре S.T.A.L.K.E.R.: Тени Чернобыля, который расскажет вам о том, что же случилось, когда Меченый (он же - Стрелок) перебил всех членов группы "О-Сознание" (остальные концовки не учитываются).
+Прошло две недели, и военные посылают группу в Припять для выяснения обстоятельств пропажи вертолетов. Из Киева был направлен (   Читать дальше...   )Тип издания: ПираткаРазработчик: GSC Game World Выпущено: DOOMLORDЖанр: Action (Shooter) / 3D / 1st Person / ModeЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 264780   (315201) от 01.12.2010
+
+DeathSpank: Thongs of Virtue [En] (L) 2010 l SKIDROW
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_315201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой в Thongs of Virtue оставлен без изменения – с нами по-прежнему все тот же самовлюбленный паренек по имени DeathSpank, разгуливающий по миру в сиреневых стрингах.Тип издания: ЛицензияЖанр: Adventure / RPG (Rogue/Action) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

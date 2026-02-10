@@ -22,6 +22,8 @@ VA - Радио новинки 2024, Часть 3 (2024) [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:341144F217B74A10F12856E90AA3C7B7F1952880
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Русская 30 хитов (2024) [FLAC|Lossless|WEB-DL|tracks] <Шанс
 ```bash
 magnet:?xt=urn:btih:D0A82273E284C89140D67A990B4EC182B04DC554
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Радио новинки 2024, Часть 4 (2024) [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:AB24E964C01709E25369D6CBA08BD329A9D097D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Русская 30-ка хитов 2 (Новые русские песни) 
 ```bash
 magnet:?xt=urn:btih:981C993E25319C090C88DFBAD7CE2DE664BDF6A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Русская 30-ка хитов 4 (Новые русские песни) 
 magnet:?xt=urn:btih:98C01511481C6760A84DAE754AB0CEA432069067
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Шансон премьера 2023 октябрь (Новые песни. �
 ```bash
 magnet:?xt=urn:btih:D52C4258442E5169A05DEE347D6966F288A4C711
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Шансон премьера 2023 декабрь (Новые песни. �
 magnet:?xt=urn:btih:673626BE7987C0AA33568C9888C1DD12EB5DC0DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Шансон премьера 2023 ноябрь (Новые песни. Н�
 ```bash
 magnet:?xt=urn:btih:F189B580AF790CA36EB2B9B2C152D59A56B952B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Шансон премьера 2023 сентябрь (Новые песни.
 magnet:?xt=urn:btih:0E1E2ABE002F4EDA6B4CFE9D41239F4819CB39D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Шансон премьера 2023 май (Новые песни. Новы�
 ```bash
 magnet:?xt=urn:btih:6EE101329FC8E75E865EA9F2A1BEB9D313339066
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Шансон премьера 2023 июль (Новые песни. Нов�
 magnet:?xt=urn:btih:6C5F9E0D4578940C41AC95885238B5974A0BA4C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Шансон премьера 2023 июнь (Новые песни. Нов�
 ```bash
 magnet:?xt=urn:btih:B2FF96872536D9821E864AAC7E524018012621A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ magnet:?xt=urn:btih:B2FF96872536D9821E864AAC7E524018012621A8
 magnet:?xt=urn:btih:972F0D9AABF0D07AC0E0A45E105CF9FD884DBC47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Шансон премьера 2024 апрель (Новые песни. Н�
 ```bash
 magnet:?xt=urn:btih:2497BF204E395818DB00842AB3DCD8BE2C54822B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ magnet:?xt=urn:btih:2497BF204E395818DB00842AB3DCD8BE2C54822B
 magnet:?xt=urn:btih:C002AA9C1C30D9BFB2617D0D9475BADD762C4414
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ magnet:?xt=urn:btih:C002AA9C1C30D9BFB2617D0D9475BADD762C4414
 ```bash
 magnet:?xt=urn:btih:CB47834FEF0A199BBF241A765C2BC93D627FC68B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ magnet:?xt=urn:btih:CB47834FEF0A199BBF241A765C2BC93D627FC68B
 magnet:?xt=urn:btih:F68502659929E88C86D29677C73D45FDDCF87367
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ magnet:?xt=urn:btih:F68502659929E88C86D29677C73D45FDDCF87367
 ```bash
 magnet:?xt=urn:btih:AC839CC01D35FA2627019B69EA04661AF73ABB78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ magnet:?xt=urn:btih:AC839CC01D35FA2627019B69EA04661AF73ABB78
 magnet:?xt=urn:btih:E0838EF356ED3EA3C04D0FC314673A927A2743B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ magnet:?xt=urn:btih:E0838EF356ED3EA3C04D0FC314673A927A2743B2
 ```bash
 magnet:?xt=urn:btih:151BD6D1C24DB9D8AA20F022CB3928924C7D5899
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ magnet:?xt=urn:btih:151BD6D1C24DB9D8AA20F022CB3928924C7D5899
 magnet:?xt=urn:btih:483757DA94969360E89E27151E6037CAD90B8D78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ magnet:?xt=urn:btih:483757DA94969360E89E27151E6037CAD90B8D78
 ```bash
 magnet:?xt=urn:btih:A4231CE5A14F523ABEA324E862271894A5E5C63C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ magnet:?xt=urn:btih:A4231CE5A14F523ABEA324E862271894A5E5C63C
 magnet:?xt=urn:btih:C85A1568B2676AEB7A371FBB0DB1D1FD3C37D00E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ magnet:?xt=urn:btih:C85A1568B2676AEB7A371FBB0DB1D1FD3C37D00E
 ```bash
 magnet:?xt=urn:btih:70C54891CA0528849B978567A67506064E58A5F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ magnet:?xt=urn:btih:70C54891CA0528849B978567A67506064E58A5F3
 magnet:?xt=urn:btih:8BD5D7DFF58B8A1CBA7E0E3F1C7705CE35BF4E2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ magnet:?xt=urn:btih:8BD5D7DFF58B8A1CBA7E0E3F1C7705CE35BF4E2D
 ```bash
 magnet:?xt=urn:btih:FE5880A75B84B5E387BE53318B729FE92BDB241E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

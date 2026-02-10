@@ -19,6 +19,8 @@ PhotoDirector v20.3.2 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:1B8B60EB77A813681F1B42F0E2411C3A20FAC5E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ All-In-One Offline Maps v3.16 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2352957DD0D2C9C99F1377102C5F00D474F99370
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:2352957DD0D2C9C99F1377102C5F00D474F99370
 magnet:?xt=urn:btih:017CF772A2AA4EB9A8BF639C5FF3136AC22878BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Allavsoft Video Downloader Converter - это мощный видео загру
 ```bash
 magnet:?xt=urn:btih:AE9137A8F7A211F0D9736894E446754F0F0FF474
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ OCCT 14.2.2 Portable [En]
 magnet:?xt=urn:btih:F5166F8334F6016F4096121A15BE2BC559F4B404
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Electrical Calculations Pro / Электрические расчеты v10.5.1 
 ```bash
 magnet:?xt=urn:btih:738A31C35B5DCC2C01E925EE3191D6FB5A9279FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Kontakt позволяет вам воспроизводить и обрабат
 magnet:?xt=urn:btih:ABDFE36AF278DB00FABD6D88E8E3EC1052880AE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:8FE9502D7BEC9741ABA3DA14FCD38ADF2BCFCBF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Allavsoft Video Downloader Converter - это мощный видео загру
 magnet:?xt=urn:btih:2488B611937B46F02BF6188BF70606B1FD12AC9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:CF717D27166BDD121C395F03DABD99179B862FFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:CF717D27166BDD121C395F03DABD99179B862FFB
 magnet:?xt=urn:btih:DAF659862088F91769DFF2D4E26645993E1B3D24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Unarchiver - Unzip RAR ZIP - простое в использовании при
 ```bash
 magnet:?xt=urn:btih:B4FAA2C9BCF48D3123DC3F05A487086EAFDFB061
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Photo Editor - уникальная программа для обработки
 magnet:?xt=urn:btih:A477CF0D3136B8EE7D8ED822BCB445B2DE4F8E33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Pubbas - Sheepadoodle Phaser 1.0.1 VST 3 (x64) [En]
 ```bash
 magnet:?xt=urn:btih:64EEB3139ABD1D96517405DD24814A6522EB3654
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ PicWish — фоторедактор с искусственным (   Чита
 magnet:?xt=urn:btih:6D9A00635CC49D56E0A901A718B34001B32CE3D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Smart AudioBook Player Pro v11.4.9 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:84CD91335F43436866D1A8BBFB6398BE30891A01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ PowerDirector – Video Editor v15.4.0 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:65BFDE21BD5138A55551600AF708EDA75DFCA9D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:65BFDE21BD5138A55551600AF708EDA75DFCA9D3
 ```bash
 magnet:?xt=urn:btih:833CB6316441DFE755311D8C240706420B969E34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Pulsar Modular Complete Effects Bundle 2025.6.24 VST 3, AAX (x64) RePack by TCD 
 magnet:?xt=urn:btih:D4BA58FF320409B0B8804D1D2DF3F1193D89168C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:3C6F48902EA7507C4059EC3A5B935CE63A581280
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ MobiOffice - это полнофункциональный офисный пак
 magnet:?xt=urn:btih:BDF92C17D856DD727952DC707B81B7CF7BAA027C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ Notification Dots v1.2.65 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:53E0D49BE1EA03CF0CF72493DA8E489FCB10A33C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ Photo Supreme — вспомогательная программа для вл�
 magnet:?xt=urn:btih:862608C11A53282F5ACE96A136B9775A6E404CEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ HiPER Calc Pro v11.1.6 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:56BEB2ED7AAD6A5A8B9EEEA253947B5C82E855B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ Notification Widget v1.5.180 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:E38B3816A2D249AA34E2CD793E71D9A06D5C343F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ O&O DiskImage Professional позволяет создавать резервн�
 ```bash
 magnet:?xt=urn:btih:828CCFCF989631492920D58DC875BDA7AE970BF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

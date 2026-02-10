@@ -19,6 +19,8 @@ Zoochosis (2024) [Ru/Multi] (1.6.8) Repack Other s
 magnet:?xt=urn:btih:22525D1DD04F088B4872C87E998B8A819C95CD46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ REPOSE (2025) [Multi] (1.1.0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:06BF490A698334D2A76D548D035A5B23D9A4CB0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Dave the Diver - это казуальная приключенческая RPG 
 magnet:?xt=urn:btih:2834D2D74D2AB3CD8E4B2E1C440851E9F3A37589
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Hell is Us - это приключенческий экшен от третье�
 ```bash
 magnet:?xt=urn:btih:38151E93FBBF0E0EB2F814D674CBD7FBFD80E023
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Empty Shell забросит вас в темную промышленную с�
 magnet:?xt=urn:btih:F8E80C6233F4C488E820B68BE93E609878A51A70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Mortal Glory 2 - фэнтезийная РПГ, которая сочетает 
 ```bash
 magnet:?xt=urn:btih:E1651EEFF6D572C38BF7564D05EBB0B82FEC39EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Mortal Glory – пиксельный фентезийный рогалик с �
 magnet:?xt=urn:btih:FB87521F188F35FF2AD96E2F02E75CF0022DCBCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Deathless Tales of Old Rus / Бессмертный. Сказки Старой �
 ```bash
 magnet:?xt=urn:btih:0740AD2AD1343FAFEFD6BC9FB0E6D3205BF3940E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Otherskin (2025) [Ru/Multi] (Build 19817814) Repack Let'sРlay
 magnet:?xt=urn:btih:6BAB06644CD7313152992F9FA4EC3D988A6FF4E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Risk of Rain Returns - это культовый roguelike-экшен, кото�
 ```bash
 magnet:?xt=urn:btih:25303F7D37A5E075879CD6D6BD31CB70D22509EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ INCISION (2022) [En] (1.0) License GOG
 magnet:?xt=urn:btih:65AB1A11AF971A61BFEE2625950E53689D653A5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Cat Quest III (2024) [Ru/Multi] (1.4.7) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:65E0A28E12788B13875272AE7D8E1E6198C93EF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Mechabellum - это увлекательная тактическая воен�
 magnet:?xt=urn:btih:C81846511D61020F98096C844B3FD8FD4D64C0F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Dead Rising Deluxe Remaster (2024) [Ru/Multi] (1.3.0.0/dlc) Repack Let'sРlay [D
 ```bash
 magnet:?xt=urn:btih:DD67FE848764A8543D2789F0E41D7BF1439BCFDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Dustwind: Resistance - это тактическая одиночная игра
 magnet:?xt=urn:btih:32D606F15472EE915B17A0B14C0406B3A58FE278
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ DISORDER (2025) [Ru/Multi] (Build 19621037) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:6D9F300EEF2F16B1BC8A9EE958E7C93FC6FE2520
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:6D9F300EEF2F16B1BC8A9EE958E7C93FC6FE2520
 magnet:?xt=urn:btih:D908ADE4E2562C5FA22F787E0D5E5B78A7D60156
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Veil of the Skies (2025) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:94AB697EA219DE10DC09ACA526DD9A4F73FBF9ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ PGA Tour 2K23 (2022) [Multi] (1.0) Scene Rune
 magnet:?xt=urn:btih:90C8E9EE5E341811699B91012A68F1F409420E6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ WolfQuest: Anniversary Edition (2019) [En] (19315088/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:0B88FD4CE614A84D1B57F28A7DBFAB5381CAAA4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Monument Valley 3 (2025) [Ru/Multi] (1.3.19596) Repack FitGirl [Game & Soundtrac
 magnet:?xt=urn:btih:49FA68B1E274E9340F2B6F11BE87CD4AAAAA5338
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Risk of Rain Returns (2023) [Ru/Multi] (1.1.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:AADCE09068EF141A22BF7969E63D4AF6A5174AC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Lost Soul Aside (2025) [Ru/Multi] (build 19738594/dlc) Scene Rune [Digital Delux
 magnet:?xt=urn:btih:955691C797454599E1E7A5E5BF19D9ACDFD9976A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ NODE: The Last Favor of the Antarii / NODE: последняя услуга Ан
 ```bash
 magnet:?xt=urn:btih:86A68CD4392BBD4E40B213164FBACB0E803EBCDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ No Man's Sky (2016) [Ru/Multi] (6.00/dlc) Repack FitGirl
 magnet:?xt=urn:btih:5D26F8CEDCCDC54CCB5DBFD662B90FF221F8750F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ SkullX: Aibohphobia (2025) [En] (1.0.4) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3F2C4A62D3FC4C63EC09E17BE82644C2C889C068
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

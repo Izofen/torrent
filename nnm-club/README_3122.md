@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:23334ABB78DED717AC60D9299A16DC2B7B4B0DD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:23334ABB78DED717AC60D9299A16DC2B7B4B0DD6
 ```bash
 magnet:?xt=urn:btih:3C59B799B2CB7E2F59CBBA3022CF416699095BB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:3C59B799B2CB7E2F59CBBA3022CF416699095BB8
 ```bash
 magnet:?xt=urn:btih:11D24F5FC7B2582BBE78F91D3AC38ADEB46DBBAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +124,8 @@ VA - Mega парад Русских ДиДжеев 3CD (2012) [MP3|320 кб/с]<
 magnet:?xt=urn:btih:74A09ECC775C78CEEB1363DF8B95EAFD159F4DA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +150,8 @@ magnet:?xt=urn:btih:74A09ECC775C78CEEB1363DF8B95EAFD159F4DA7
 magnet:?xt=urn:btih:F1A0D19A9389D2932BA859EE03B7D33AC5DE9B06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +175,8 @@ Mixed Wallpapers 0.9
 ```bash
 magnet:?xt=urn:btih:2BB5B86E457C487300CFCB454C8CD0BB365797A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +205,8 @@ Avgrunn - Conceived Genetically Perverse (2012) [MP3|229-271 kbps]<Brutal Death>
 magnet:?xt=urn:btih:BEA102889171C676A20AC381638FF86CB6A35912
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +231,8 @@ magnet:?xt=urn:btih:BEA102889171C676A20AC381638FF86CB6A35912
 magnet:?xt=urn:btih:76849D66AB21081B3F726A6C307F614985DD9154
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +256,8 @@ magnet:?xt=urn:btih:76849D66AB21081B3F726A6C307F614985DD9154
 ```bash
 magnet:?xt=urn:btih:8EB166E198125DE7EAD4B67945DCE38FACF18DE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +291,8 @@ Penthagon - Penthagon (2012) [MP3|320 кб/с]<Thrash Metal>
 magnet:?xt=urn:btih:A6648F6FB00B7C7FFFC4DAF18723D2477A1DD3CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +316,8 @@ magnet:?xt=urn:btih:A6648F6FB00B7C7FFFC4DAF18723D2477A1DD3CE
 ```bash
 magnet:?xt=urn:btih:3D215F1D41CF4C96833F28EC2310D2F59E3114AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +343,8 @@ magnet:?xt=urn:btih:3D215F1D41CF4C96833F28EC2310D2F59E3114AD
 magnet:?xt=urn:btih:E541D80872F87C2BFB3EE01DD0620A24A2FBB7F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +369,8 @@ magnet:?xt=urn:btih:E541D80872F87C2BFB3EE01DD0620A24A2FBB7F5
 magnet:?xt=urn:btih:3FE301FBD00833709BD51DF57095D60469276125
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +394,8 @@ magnet:?xt=urn:btih:3FE301FBD00833709BD51DF57095D60469276125
 ```bash
 magnet:?xt=urn:btih:CB2AE6516D9CA3903E0C582A9204022127513910
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +422,8 @@ magnet:?xt=urn:btih:CB2AE6516D9CA3903E0C582A9204022127513910
 magnet:?xt=urn:btih:864157A5CEAA9B8792414FF7E483C1CB6AB17529
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +447,8 @@ magnet:?xt=urn:btih:864157A5CEAA9B8792414FF7E483C1CB6AB17529
 ```bash
 magnet:?xt=urn:btih:4C58B7FC2CF4692B508B5502CCFC2819CD6C45D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +483,8 @@ VA - Клубные Новинки Vol.61 from AGR (2012) [MP3|320 кб/с]<Club
 magnet:?xt=urn:btih:35CE40D0589331F0BB4357B7BC9DA246667A8E06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +509,8 @@ Yes! – авторитетный советчик, чье мнение очен
 magnet:?xt=urn:btih:5B660186F3FA93BDB18E5328A4413E8F69120937
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +534,8 @@ magnet:?xt=urn:btih:5B660186F3FA93BDB18E5328A4413E8F69120937
 ```bash
 magnet:?xt=urn:btih:DFF4EF3175F8A3B444A35B512EBEE4845EDC0C6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +570,8 @@ Lorraine Feather - Tales of the Unusual (2012) [FLAC|Lossless]<Vocal Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +596,8 @@ Lorraine Feather - Tales of the Unusual (2012) [FLAC|Lossless]<Vocal Jazz>
 magnet:?xt=urn:btih:00286710143056BD9EBADC3DA8F2AA4A07BFF75C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +621,8 @@ Godgory - Resurrection (1999) [MP3|320 кб/с]<Doom Death>
 ```bash
 magnet:?xt=urn:btih:855750DC3BD7EC20D860101C3403D68D3353DC59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +655,8 @@ Barren Earth - The Devils Resolve (2012) [FLAC|Lossless]<Progressive Melodic Dea
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +681,8 @@ Yes! – авторитетный советчик, чье мнение очен
 magnet:?xt=urn:btih:0A4DEB0E6CB2E36BF12A3E92363E5F4715BD047D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +706,8 @@ magnet:?xt=urn:btih:0A4DEB0E6CB2E36BF12A3E92363E5F4715BD047D
 ```bash
 magnet:?xt=urn:btih:DC6AC80B895CEC19CCD003EEA65FB1D09B3022DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -691,6 +741,8 @@ VA - Студенческая Вечеринка Русский (2012) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:308E1359008F627B7A3FD5ABD4E9B24EF9B2AAD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

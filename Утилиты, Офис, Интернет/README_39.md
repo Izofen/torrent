@@ -19,6 +19,8 @@ Wireless Network Watcher - неплохая утилита, которая по�
 magnet:?xt=urn:btih:71272650B2550BBADA22335F6127127BD7AF079B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Smart Driver Manager - это быстрый, простой и безопасн
 ```bash
 magnet:?xt=urn:btih:A35B74BDD473246755E6AD24E2F9016883C908B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ MathType - это мощный интерактивный инструмент, 
 magnet:?xt=urn:btih:9ACC122C733BE7AF92FF98652D695DB3E76EC023
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ MathType - это мощный интерактивный инструмент, 
 ```bash
 magnet:?xt=urn:btih:36BE3B4F68F9C58705AEE53B6D5A6FE8B194CB2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Cinebench 2024 - бенчмарк, позволяющий при помощи н
 ```bash
 magnet:?xt=urn:btih:972D378388D16E0007D2315B5B5C5BC88A680FA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Ivideon Server 1.3.2 / Client 3.4.1 [Multi/Rus]
 magnet:?xt=urn:btih:2D26DC9DF83C5CA33F7678390166F30C7EAFC23A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Hibernate Enable or Disable 1.4 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:469FB6D53AF3C1F9149E1109BE28C960F7EE3606
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ ImageUSB - бесплатная портативная утилита, с пом
 magnet:?xt=urn:btih:FFFFA36DC6D55A7B62B52566BE1BC3FA65DAB282
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Windows 10 Debloater – небольшая утилита для тонкой �
 ```bash
 magnet:?xt=urn:btih:DE99B54B63F9B4524410BDB05D8D9ED214A94C2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Google Earth Pro 7.3.6.9796 (x64) Portable by FC Portables [Multi/Ru]
 magnet:?xt=urn:btih:FDB91051C2544B90898746C778AA551994A3FA86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ NetTraffic - небольшая полезная утилита для мони�
 ```bash
 magnet:?xt=urn:btih:AEFED2E6EEB277B3357D215DC0FAEAA67C0FABDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Windows 11 Debloater – небольшая утилита для тонкой �
 magnet:?xt=urn:btih:AC919236770CA6FEC5EE97D56297B7BD1E2FD8DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Alcohol 120% Free Edition - специальная бесплатная верс
 ```bash
 magnet:?xt=urn:btih:1B21A6E46FD35723A79554069084E28F604FB9D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ CPUID HWMonitor - утилита предназначена для монито�
 magnet:?xt=urn:btih:1D332918BE0DE7EAC8696767AE03444AD3A58B6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ CPUID HWMonitor - утилита предназначена для монито�
 ```bash
 magnet:?xt=urn:btih:427AD4622B8468009266F9DF50BFDE906338123C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ OneLoupe 5.77 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:017861FE9AB74FB9AB116A92514F1B568AC51F8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ NVFlash - это программа для прошивки BIOS видеока�
 magnet:?xt=urn:btih:8D9502EF8F77037F49B5F1EFF60F7EE2072AD70B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ CPUID HWMonitor Pro - расширенная версия утилиты, пре
 magnet:?xt=urn:btih:9C3A2FC0DF122AA4E7782EB34C432C5489A3CFC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ MiniTool Power Data Recovery - это инструмент предназнач�
 ```bash
 magnet:?xt=urn:btih:6D0F8A89FD7311BA7D99CC68B1ADBCFC3C5DDA43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ Speedtest by Ookla 1.13.194.1 (x64) Portable by FC Portables [Multi/Ru]
 magnet:?xt=urn:btih:ACFF7B71C7C1C961C70D48728475C2164FC25BC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Speedtest by Ookla 1.13.194.1 (x64) Portable by Topersoft [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:994A2223E488B426B24CA4C2F39020BCC20E9AB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ Speedtest by Ookla 1.13.194.1 [Multi/Ru]
 magnet:?xt=urn:btih:6C9C439E899BE0E4350DDA22D4B810A62CBC0DF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ MyLanViewer — программа для сканирования и монит
 ```bash
 magnet:?xt=urn:btih:90A9B6B9A28DD7ECCE06514CFB73159E01DAAA2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ LibreOffice - офисный пакет с открытым исходным к�
 magnet:?xt=urn:btih:846C31881C64DB865A21BD2EEA215E393DE7288D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ VCap Downloader (VCapDL) – это универсальное программ�
 magnet:?xt=urn:btih:8772847442CAEE08ADE3D17A845735B4D86E5BA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Hard Disk Sentinel Pro — отличная программа для монит
 ```bash
 magnet:?xt=urn:btih:51BF2B34E82859BE9D8400A7C795EDC914B77CC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

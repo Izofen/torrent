@@ -20,6 +20,8 @@ Far Cry Classic - полная консольная версия самой пе
 magnet:?xt=urn:btih:4C958D52F7DBD199F43605148244EB476B84D62D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Alan Wake Remastered (2022) [Switch] [EUR] 14.1.2 [eShop / DLC] [Ru/Multi]
 magnet:?xt=urn:btih:5D6C8890C414924B5733DD1741292EF1159C645A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Spider-Man: The Movie вполне можно назвать лучшим отк
 ```bash
 magnet:?xt=urn:btih:66274FA1E3E0358361162E72D24060D590BF80F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ MotionSports - это спортивная игра от всемирно изв
 magnet:?xt=urn:btih:71FE26CADE865BDF014BF8BF4D52F8AD94CD6C93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Need For Speed: Carbon (2006) [Xbox360] [Region Free] FreeBoot [License / 13 DLC
 ```bash
 magnet:?xt=urn:btih:97EBF650F3BA70238C167CF3DA0398CE58FFA1B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Kinectimals [XBOX360] [KINECT] [Ru] [Freeboot] (2010)
 magnet:?xt=urn:btih:02FED9E7732BA7EC49A52E6426C11D05FEF8D028
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ MorphX / Симбионт (2010) [Xbox360] [RegionFree] FreeBoot [License] [Ru]
 ```bash
 magnet:?xt=urn:btih:287A38442B98C007C9BC9D9956681A1BB2085CE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ NieR:Automata The End of YoRHa Edition (2022) [Switch] [EUR] 14.1.2 [eShop] [Ru/
 magnet:?xt=urn:btih:92294FC0AE8F7399CB923216918A6CA11D3DB3B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ BIT.TRIP RUNNER 2: Future Legend of Rhythm Alien - это самый быстр�
 ```bash
 magnet:?xt=urn:btih:2C79B1CD6D7D1DA2D5D855676D94F35A9F095795
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Godzilla позволяет выступить в роли огромного м
 magnet:?xt=urn:btih:FAEB539111000B5D29D24C9F77514AD29B5ADB82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Resogun – аркадная скроллинговая стрелялка, ил
 ```bash
 magnet:?xt=urn:btih:9D851D81F619BDA839CB1412851F90D489BC6C7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Shining Resonance – японская ролевая игра с боями в 
 magnet:?xt=urn:btih:5AB464DE558FB4D336D68546A3AB856C4271D814
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Assassins Creed The Rebel Collection (2019) [Switch] [USA] 9.0.1 [NSZ] [License 
 magnet:?xt=urn:btih:5C15CD845232A33D122B06D7B024A7E42893BF41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Persona 5 Royal (2022) [Switch] [EUR] 14.1.2 [eShop] [Multi]
 ```bash
 magnet:?xt=urn:btih:42230E6C2463CAF2D347873675B11DADD4B353C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ Folklore - игра в жанре "приключенческий боевик",
 magnet:?xt=urn:btih:FC8FF2EAF0E8C17B5CDC3752C679F0CCE09CF01E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ UFC Personal Trainer: The Ultimate Fitness System [XBOX360] [KINECT] [En] [Freeb
 magnet:?xt=urn:btih:964F1E8ACF6FEDF06C55F9672B49808BC1000CE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ XCOM: Enemy Within является обширным дополнением дл
 ```bash
 magnet:?xt=urn:btih:C796E41EAF82C363D14B88B5B0C4A5FDEB37AFE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ MultiMan Singstar X-Mas Edition (2015) [PS3] 4.xx [Repack] [Ru/En]
 magnet:?xt=urn:btih:4B7E70FD35FF58BE4AC77A35E72E605E0AB55DDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ Assassins Creed Odyssey (2018) [PS4] [EUR] 9.00 [HEN] [License / 1.56 / DLC] [Ru
 ```bash
 magnet:?xt=urn:btih:FC7ECB74B775D9CF9F666E368CFD1B95BDAF5D50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ EA SPORTS FIFA 23 выводит игру на новый уровень! Вст
 magnet:?xt=urn:btih:66660DC90E5AD0C84193C6F1628AB4A04A119BA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ Ghostrunner — эта жестокая игра-слэшер от первог�
 magnet:?xt=urn:btih:499D024E91187A5001970E724818A326B380271D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ Tony Hawk's Pro Skater 5 (2015) [PS3] [USA] 4.21 [Cobra ODE / E3 ODE PRO ISO] [P
 ```bash
 magnet:?xt=urn:btih:104571B924ED738D702E8E47D39167D28E37B740
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ Majin and the Forsaken Kingdom / Мадзин. Забытое королевст
 magnet:?xt=urn:btih:0C1E6389F47184C1F9005C5A835A72BFF16878A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ Super Motherload [PS3] [PAL] [En] [Repack] (2013) | R.G. Inferno
 ```bash
 magnet:?xt=urn:btih:DFE720533A96B9968DCD629E564F012AEBF5A37A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ Terraria [PS3] [En] [Repack / 1.04] (2013) | R.G. Inferno
 magnet:?xt=urn:btih:188EEA779D0502D504AE52517B2E61A796486F3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Hyrule Warriors: Age of Calamity (2020) [Switch] [USA] 10.2.0 [NSZ / 1.0.1] [Lic
 ```bash
 magnet:?xt=urn:btih:8BEFF6E5A947E8EC9A3B6E11E8774F4E05A3101F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

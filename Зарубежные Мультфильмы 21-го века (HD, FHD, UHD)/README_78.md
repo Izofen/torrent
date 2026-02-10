@@ -1,27 +1,3 @@
-###  Публикация: 1055023   (489518) от 21.09.2016
-
-Шрек навсегда / Shrek Forever After (2010) BDRip [H.265/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чем бы еще заняться огру, который уже сразился со злым драконом, спас прекрасную принцессу и уберег от беды королевство родственников по линии жены? Что ж, если вы Шрэк, то, сами того не заметив, вы вдруг сядете дома и станете наслаждаться покоем в кругу семьи. Вместо того чтобы как раньше пугать деревенских жителей, теперь Шрэк, хоть и с неохотой, но соглашается (   Читать дальше...   )Производство: США /  DreamWorks Animation, Pacific Data Images (PDI)Жанр: Мультфильм, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Майк МитчеллПерсонажи: Майк Майерс, Эдди Мёрфи, Кэмерон Диаз, Антонио Бандерас, Джули Эндрюс, Уолт Дорн, Джейн Линч, Крэйг РобинсонПеревод: ДублированныйЯзык субтитров: РусскийПродолжительность: 01:33:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0A4DA219CE778BF1C5833430E2EBFB195237731
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 234974   (491335) от 27.08.2018
 
 Феи: Волшебное спасение / Tinker Bell and the Great Fairy Rescue (2010) [1080p] BDRip
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:E0A4DA219CE778BF1C5833430E2EBFB195237731
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +46,8 @@ magnet:?xt=urn:btih:E0A4DA219CE778BF1C5833430E2EBFB195237731
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +71,8 @@ magnet:?xt=urn:btih:E0A4DA219CE778BF1C5833430E2EBFB195237731
 ```bash
 magnet:?xt=urn:btih:79C1883678551164F51DFD9C7170E525410AF436
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +98,8 @@ magnet:?xt=urn:btih:79C1883678551164F51DFD9C7170E525410AF436
 magnet:?xt=urn:btih:B444DFEF8C2287A477A4946FDD21FC8FECF69E3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +123,8 @@ magnet:?xt=urn:btih:B444DFEF8C2287A477A4946FDD21FC8FECF69E3B
 ```bash
 magnet:?xt=urn:btih:99F82A0B190680776967BFE588D698DDA917A89D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:99F82A0B190680776967BFE588D698DDA917A89D
 magnet:?xt=urn:btih:EDD9CA1A036ADA434098957507B85DC1F2D0A405
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +175,8 @@ magnet:?xt=urn:btih:EDD9CA1A036ADA434098957507B85DC1F2D0A405
 ```bash
 magnet:?xt=urn:btih:10A8EF032980FE30E89EE5062BE5743716901698
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +202,8 @@ Shrek's Thrilling Tales является компиляцией мультфил
 magnet:?xt=urn:btih:A1E7DF2B92F1A75313891876AF1680D6AD1067F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +227,8 @@ Shrek's Thrilling Tales является компиляцией мультфил
 ```bash
 magnet:?xt=urn:btih:9F7832B1C694523293188672CF32B3B6D4907B6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +254,8 @@ magnet:?xt=urn:btih:9F7832B1C694523293188672CF32B3B6D4907B6F
 magnet:?xt=urn:btih:94F948E1D311BC568D4F03AC090D16E979DF7E86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +279,8 @@ magnet:?xt=urn:btih:94F948E1D311BC568D4F03AC090D16E979DF7E86
 ```bash
 magnet:?xt=urn:btih:2713094B031670878C418D576AFBC9970FDF29F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +306,8 @@ magnet:?xt=urn:btih:2713094B031670878C418D576AFBC9970FDF29F5
 magnet:?xt=urn:btih:B2D1E5E7BC25AAB742BECC160FFE4283D0FE1B70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +331,8 @@ magnet:?xt=urn:btih:B2D1E5E7BC25AAB742BECC160FFE4283D0FE1B70
 ```bash
 magnet:?xt=urn:btih:45724E8E68660D3ABEA77E734F3EEF0DFE19AC25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +358,8 @@ magnet:?xt=urn:btih:45724E8E68660D3ABEA77E734F3EEF0DFE19AC25
 magnet:?xt=urn:btih:560B79FC3EBE107A11EA14C9240BDB56C9F69B1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +383,8 @@ magnet:?xt=urn:btih:560B79FC3EBE107A11EA14C9240BDB56C9F69B1E
 ```bash
 magnet:?xt=urn:btih:9F0DC669B0D023C6C27E471B9FC46E5CF8B81240
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +410,8 @@ magnet:?xt=urn:btih:9F0DC669B0D023C6C27E471B9FC46E5CF8B81240
 magnet:?xt=urn:btih:0DEA6F5AEF05373BDEDE701318EB1D044CDA7A56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +435,8 @@ magnet:?xt=urn:btih:0DEA6F5AEF05373BDEDE701318EB1D044CDA7A56
 ```bash
 magnet:?xt=urn:btih:6A303C33C3D057B3676A9013976780C6B0D93846
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +462,8 @@ magnet:?xt=urn:btih:6A303C33C3D057B3676A9013976780C6B0D93846
 magnet:?xt=urn:btih:E1622ACE1981B4150A0ED88280DF0267355F59E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +487,8 @@ magnet:?xt=urn:btih:E1622ACE1981B4150A0ED88280DF0267355F59E4
 ```bash
 magnet:?xt=urn:btih:678EBC9F6ABDC9A81F13D3E6121C7AD2706583C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +515,8 @@ magnet:?xt=urn:btih:678EBC9F6ABDC9A81F13D3E6121C7AD2706583C2
 magnet:?xt=urn:btih:016972F541A3E053BDE702970243C1CE6FE2D345
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +540,8 @@ magnet:?xt=urn:btih:016972F541A3E053BDE702970243C1CE6FE2D345
 ```bash
 magnet:?xt=urn:btih:D8B7FB049FA68D801910A264665679F8AA5BFA0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +567,8 @@ magnet:?xt=urn:btih:D8B7FB049FA68D801910A264665679F8AA5BFA0F
 magnet:?xt=urn:btih:045C9D45EC5C4766000E5B4FDD9DA96F52D85780
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +592,8 @@ magnet:?xt=urn:btih:045C9D45EC5C4766000E5B4FDD9DA96F52D85780
 ```bash
 magnet:?xt=urn:btih:79CF23D614DF075C857C7AB73AC3E5F6D1306676
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +619,8 @@ magnet:?xt=urn:btih:79CF23D614DF075C857C7AB73AC3E5F6D1306676
 magnet:?xt=urn:btih:E8A23C8C34B5D69E0A6CA52A5343D1A9D24BD629
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +644,34 @@ magnet:?xt=urn:btih:E8A23C8C34B5D69E0A6CA52A5343D1A9D24BD629
 ```bash
 magnet:?xt=urn:btih:F6FF0A88EF7EA315E631DC8A3F6AF87D8849901C
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539108   (507157) от 25.08.2012
+
+Звездный десант: Вторжение / Starship Troopers: Invasion (2012) [1080p] Blu-ray
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удалённый аванпост Федерации «Форт Кейси» подвергается атаке жуков. Базирующийся там корабль «Джон А. Уорден» должен как можно быстрее увезти выживших на Землю, заодно доставив собранные на «Форте Кейси» данные военной разведки. На помощь к уцелевшим спешит истребитель «Алесия», однако незадолго до запланированной встречи министр Паранормальных Боевых Действий Карл Дженкинс реквизирует «Джон А. Уорден» для какой-то секретной миссии и пропадает в ближайшей туманности. И бравым десантникам с «Алесии» приходится менять курс, ещё не зная, что эта спасательная миссия может закончиться очень печально.Жанр: Компьютерная анимация, Мультфильм, Фантастика, БоевикРежиссер: Синдзи АрамакиАктеры: Лерардо Анзалдуа, Люси Кристиан, Мелисса Дэвис, Джастин Доран, Дэвид Матранга, Эмили Нэвис, Дэвид ВолдПеревод: Многоголосый закадровыйЯзык субтитров: (PGS):, Английский, Chinese, French, Indonesian, Korean, Portuguese, Spanish, ThaiПродолжительность: 01:28:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B7A4C1111FB2B230E92BCE8F18AC2350BE0D878
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

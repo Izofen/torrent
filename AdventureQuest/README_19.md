@@ -19,6 +19,8 @@ Your Android (2025) [En] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:BFD95E6A62120D7A526F506B67042340B154902B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ STASIS: BONE TOTEM (2023) [Ru/Multi] (1.0.4.3) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4936A6B34751401F5BA1212350B32C126F75F469
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ STASIS: BONE TOTEM (2023) [Ru/Multi] (1.0.4.3/dlc) Repack seleZen
 magnet:?xt=urn:btih:ABA9CCA534E8A5D323530383CD629FCE4814C79C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Haunting of Joni Evers – это эмоциональная история 
 ```bash
 magnet:?xt=urn:btih:3DF240D8334E9F03EC24FF38407AF7DFBCAEC8EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ ECO HOLE (2021) [Ru/Multi] (1.06) Repack Pioneer
 magnet:?xt=urn:btih:87C0D90AE1576AADDB6218BC7533143EB397B8A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Cursed Digicam - хоррор, где основное внимание удел
 ```bash
 magnet:?xt=urn:btih:742117DC5030ADD6A46A2A159C0DCD12BB0FDDFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ The Lies We Tell Ourselves - психологический экшен от пе
 magnet:?xt=urn:btih:7C15003FFCD9CEC829878CD8399C1EA435681928
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Unknown 9: Awakening (2024) [Ru/Multi] (Build 16687288/dlc) Repack Decepticon [D
 ```bash
 magnet:?xt=urn:btih:A74EC00BDAB57549F1872EE1478C6704CA4FF5FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Among Ashes - это хоррор-игра от первого лица о ви�
 magnet:?xt=urn:btih:83B3866393A0EC92B1562AFE801754EB1E1EDCE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Lies We Tell Ourselves - психологический экшен от пе
 ```bash
 magnet:?xt=urn:btih:5A25C2D8DB07C211C89FD5392E8F8974EFA810A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Blade Runner: Enhanced Edition (2022) [Ru/Multi] (1.2.1075) Repack Let'sРlay
 magnet:?xt=urn:btih:CFDDC7C4E799DA9F3A221E49F22BDC62EABCE0D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Fort Solis - сюжетный триллер от третьего лица, р�
 ```bash
 magnet:?xt=urn:btih:6BAE088A454F54588796C38BB6B5A93A364A12AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Fort Solis (2023) [Ru/Multi] (Build 16940110) Repack Let'sРlay [Terra Edition]
 magnet:?xt=urn:btih:C680A152997D93819CF561AE6041EDA0CB14D1CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Dropsy (2015) [Ru/Multi] (1.5) License GOG [Warm Damp Hug Edition]
 ```bash
 magnet:?xt=urn:btih:4BC188DB5AE063B3AB45035D410C9EDA3C800474
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ My Friendly Neighborhood (2023) [Ru/Multi] (1.1.1) Repack Let'sРlay
 magnet:?xt=urn:btih:7AD8374214052A5B98B1B2B6EE5C5CA0D24E5402
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Inn-Sanity (2024) [Ru/Multi] (build 16843098) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:41875B29D3CA83B82CC06C6BFD60F057D5180CFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Discolored 2 (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:4F8C3D4E2770F79B2BACBCA620D11F52A500F1B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Beyond Hanwell (2024) [Ru/En] (1.1) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:F0DCAEA7E3E1C5BB9F7C63ADD4D14200B52E0E52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Amenti (2025) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:9B824D8DF85A928C563154ABD954F59518217D63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Undead Realm: Ego - это интерактивный хоррор, которы
 ```bash
 magnet:?xt=urn:btih:C4849CC3F10ED4688568FB0EDDAD993AF37D24C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ The Case of the Golden Idol (2022) [Ru/En] (2.0.5/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:DFE11B908F53F75F7697A619D64DC108A3CCF4C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ HELLSEED - это хоррор игра-приключение от первог
 ```bash
 magnet:?xt=urn:btih:4B9A9CF309F9C1E411920F97D68C802F54A147EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Oceanhorn 2: Knights of the Lost Realm / Оушенхорн 2: Рыцари за
 magnet:?xt=urn:btih:DEF8FE633DE36FC6537B9E6736E0690EEA997D93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ The Rise of the Golden Idol (2024) [Ru/Multi] (1.2.0/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:8FE1121A3B4748C7AE6AC0E1CA1EBE8E66FBE63F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ The Inn-Sanity (2024) [Ru/Multi] (build 16843098) Repack seleZen
 magnet:?xt=urn:btih:17FA3EEA85D902E9043790E1744BE7A584E1BAD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Duke Grabowski, Mighty Swashbuckler - это рисованный приключ
 ```bash
 magnet:?xt=urn:btih:698E668921D94D8FE35421D7B4E7CA232A14F9EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

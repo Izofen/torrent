@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:4629E3BFF03AEE615AD1DF7BF4625AD9DC4547CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Serial Box 12.2019 + SerialSeeker 2.0 (44) + iSerial Reader 2.0.23 (build 018e) 
 magnet:?xt=urn:btih:B5F0D87C1D790AF828F93ACD09DFCC92C2788358
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ SIV (System Information Viewer) 5.06 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E4110FC0CDC7FDD3826BF32FE656CCA4C0E8C9B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Trojan Killer – представляет собой антивирусный �
 magnet:?xt=urn:btih:3EF4AE495B313581B8FC3BABFA76C45467AB144C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:3EF4AE495B313581B8FC3BABFA76C45467AB144C
 ```bash
 magnet:?xt=urn:btih:90DB2C87E368CF025A0AC13CAD89D1666D6B980E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Photos Exif Editor - это интуитивно понятное приложе
 magnet:?xt=urn:btih:B899C6AE104A8E73448073810A0FAF9472B831EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ TG Pro — контроль температуры и вентиляторов �
 magnet:?xt=urn:btih:7A4185CA582A41926A9E384978B1C3EDF6EA11DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ Polar Cursor Pack – наборы светлых курсоров Windows, по
 magnet:?xt=urn:btih:4BEC9BB30598992BA02700AE4EB2C41D962C6209
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Bullzip PDF Printer - это виртуальный многофункциона
 ```bash
 magnet:?xt=urn:btih:C3A3C949462CAC31D446A62BFF407A834E7334E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ Capture One Pro один из самых мощных профессиональ
 magnet:?xt=urn:btih:F0B60EA43496CC7F3C614AF653823EB1202DEC22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:4AA1C7647F4E5ED99DDD4D98095D30A4DF9984BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ iA Writer 5.6.16  [Multi/Ru]
 magnet:?xt=urn:btih:3FA41E6E345ADD8947D33AD6AA8972D513BDBEF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:3FA41E6E345ADD8947D33AD6AA8972D513BDBEF2
 ```bash
 magnet:?xt=urn:btih:DEEC7C78041D4B26A1986978E7665A9669B62BCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ PicPick - приложение, объединяющее в себе возмо�
 magnet:?xt=urn:btih:FDA9292A67A0150D9F06D0B743436337DAA467A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ Wondershare UniConverter - это полный набор инструменто
 ```bash
 magnet:?xt=urn:btih:2167D7D48D0B6707C2F7CB59A6402189957D5D53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ Stellarium — это свободный планетарий для Вашег�
 magnet:?xt=urn:btih:F2B51E791E4475CB46CC45E83332C74939DC7C3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ Vox - небольшой и очень простой в использован�
 ```bash
 magnet:?xt=urn:btih:B038B0FE86E2B27DDD1E5972015F351967EBB6A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ Pixelmator Pro — это невероятно мощный, красивый и
 magnet:?xt=urn:btih:A845583019A57EF7E30BB63C9CF08727A0DC0693
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:CDDAA37213F2C814C96298047092A61AD9BD3A2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +529,8 @@ Meerkat or Suricate v.1.0.0 [En]
 magnet:?xt=urn:btih:AB42A0E8004E2DBB9070200AD91BCAAEF6E35B08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ Topaz Mask AI 1.3.6 RePack (& Portable) by TryRooM [En]
 ```bash
 magnet:?xt=urn:btih:819B02D4F53BD9CFE8540EDC4A526768A927E521
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ Typora дает вам безупречный опыт как читателя, 
 magnet:?xt=urn:btih:93F4BB05AD21A560C70AAD15EFDC64E2C60FFC38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ VideoProc Converter 4K 4.5 [Multi]
 ```bash
 magnet:?xt=urn:btih:BBC1B738275A14FFADDC48661F1965AF66DD88E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +633,8 @@ magnet:?xt=urn:btih:BBC1B738275A14FFADDC48661F1965AF66DD88E6
 magnet:?xt=urn:btih:A8EF66BDD2479EC1D94D73CCFDA31C64B74F1038
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ magnet:?xt=urn:btih:A8EF66BDD2479EC1D94D73CCFDA31C64B74F1038
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +687,8 @@ Andrew Rayel - A Place To Find Your Harmony #3, Chisinau, Moldova (2021-11-14) [
 ```bash
 magnet:?xt=urn:btih:2E0B0BB0B7A9483C2E14D5F035FFA2FE10E48255
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

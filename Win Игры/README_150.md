@@ -19,6 +19,8 @@ Terrorformer TD (2024) [Ru/Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:F261A228CCF21700369B7D73500E285F77B7B29C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Sweet Transit – это градостроение, где все во мног
 ```bash
 magnet:?xt=urn:btih:52505B1CD670B6B8C42520A51538F4736F78247A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Diluvian Ultra - шутер от первого лица, выполненный
 magnet:?xt=urn:btih:EC7271E0096C94D4ECC50EC2ADB307BD44EE0F2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Cat Quest III - продолжение популярной ролевой се�
 ```bash
 magnet:?xt=urn:btih:B28233B4D59E340088441A52D8007E72DFDEDDE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ KeepUp Survival – реалистичный симулятор выживани
 magnet:?xt=urn:btih:150EB96C9BCAF1AA4B5AA836AF5C37D98A0A64DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Satisfactory - это игра от первого лица в открытом 
 ```bash
 magnet:?xt=urn:btih:D70638380B6642F1D17AB96972D3AFCAAFB18DC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Vampire: The Masquerade - Reckoning of New York приглашает гейме�
 magnet:?xt=urn:btih:7089EF150267C51A089589CE7262F1C3E749B6C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ I Am Your Beast - это FPS в обертке триллера о мести, �
 ```bash
 magnet:?xt=urn:btih:F1592C527F6DCD206E139C15609CB14FB893D4AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Satisfactory - это игра от первого лица в открытом 
 magnet:?xt=urn:btih:6606D6E76B16778EF7707958B2E1DACB906E574B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Son and Bone (2024) [En] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:A997824330E1C3A94055CF29159E6DD460892244
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Marenian Tavern Story: Patty and the Hungry God - необычная японс�
 magnet:?xt=urn:btih:B44C61DFD07E5663967A0FB1E21461DF778908B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Rising Star 2 - ролевая игра в сочетании с симулят�
 ```bash
 magnet:?xt=urn:btih:EC89DAF7B6E2AC6FDAC07D58C39462916708855C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ PROTOCOL 11 - Episode 1 (2023) [Ru/Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:C9F23F15958641C696FE042D46B9F18E702D3F66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Songs of Conquest - пошаговая стратегия, вдохновлен�
 ```bash
 magnet:?xt=urn:btih:D62281D2137904E05228FE517EE8E4DCB7444DE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Beyond Hanwell - это насыщенная, детальная и атмосф
 magnet:?xt=urn:btih:A15DBB94EE0E1986DF136592B8734DBE138BCCF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Green Hell (2019) [Ru/Multi] (2.9.1) Repack Wagner
 ```bash
 magnet:?xt=urn:btih:EABCAD5EE53357B07C1904DE23162706771F53B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Northend Tower Defense – динамичное приключение, собы
 magnet:?xt=urn:btih:E58EDB6FFD10A2411556760494A7563618322498
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ MULLET MADJACK (2024) [Ru/Multi] (1.1) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:B5403D33B4048C9550F1BB18D1490B3AF1259AC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Tobla - Divine Path (2024) [Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:951F276F9C8B6FDBA149353F9FDBC5518942B87C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Love Spell: Written In The Stars - a magical romantic-comedy otome (2020) [En] (
 ```bash
 magnet:?xt=urn:btih:8A90CAE4A8E6651719CE3455DE7893EFF4FF29CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Wartales - ролевое приключение в открытом мире, �
 magnet:?xt=urn:btih:613528D476E04AF9C5C0E8E54F74DA99A3057ACC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Dark Deity (2021) [Multi] (1.58/dlc) License GOG [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:1CA51EBA90A6561DDD8F5E3DC7071EA9AF285AC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Volgarr the Viking 2 - помните брутальный двухмерный 
 magnet:?xt=urn:btih:A513B5F7281FFDC05C305BC867F1C21408481D8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Unstoppable: Breakout (2024) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:A1A0FE9015C7D60BC3FCCEF8FBCEA118DB4C8DD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Why don't they laugh? (2024) [Ru/Multi] (1.08) Scene Tenoke
 magnet:?xt=urn:btih:AB6A9CA776A822BF9401CC2266461D23DE4C34A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Fallout: London - это глобальный мод для оригинальн
 ```bash
 magnet:?xt=urn:btih:2F15724DD929B1D028B45DF425D1EF0677FB339A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Headless Dawn - Crap on Demand (2022) [FLAC|Lossless|WEB-DL|tracks] <Grindcore, 
 magnet:?xt=urn:btih:66F7583065D30B7BCDE161FD554B550D9B5D41A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Hell's Tape - Ancient Knights of Black Blood (2022) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:340D3425F4EC57BA84B67F4E4B45F9FA973FC86B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ NXPowerLite Desktop 10 v.10.0.2 [Multi]
 magnet:?xt=urn:btih:A4401F0277A910619B5ACD2DBC1AB6DF998D37D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ Windows 10 Pro 22H2 19045.2130 x64 by SanLex [Universal] [Ru/En] (2022.11.04)
 ```bash
 magnet:?xt=urn:btih:8151AD31D203162887322347EF8C5E6FAD05FFE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:8151AD31D203162887322347EF8C5E6FAD05FFE2
 magnet:?xt=urn:btih:9E51E53FF48FB453B2A2FEE59E9E07DE88F044E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:9E51E53FF48FB453B2A2FEE59E9E07DE88F044E8
 ```bash
 magnet:?xt=urn:btih:3744E8EF36CE2E9DC98C5D52FB05C77296402015
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ Phil Campbell And The Bastard Sons - Kings Of The Asylum (2023) [FLAC|Lossless|i
 magnet:?xt=urn:btih:C14A854AABA547893860DC473F6C8A7FD46C1F7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ Microsoft Windows 10.0.19045.2006, Version 22H2 - Оригинальные об�
 ```bash
 magnet:?xt=urn:btih:5B27A52A0B3B8B738889A4BFD5769006C6CBAC0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ Skypro | Разработчик на Python (2021) WEB-DL [RU]
 magnet:?xt=urn:btih:6E3BF5620449CBFDCEC5049E91750AF9676C660B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ Phlebotomized - Clouds 0f Confusion (2023) [FLAC|Lossless|image + .cue] <Avant-G
 magnet:?xt=urn:btih:8FD9F8E88A02B8628C0F6F9E13BECE67A4CA895C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ Adobe Photoshop - новая, следующая за CC 2020 версия пр�
 ```bash
 magnet:?xt=urn:btih:8F8914ABEB544E4BFE08355F90DBF5EFA23D5C22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +325,8 @@ Mats Karlsson - Mood Elevator (2023) [FLAC|Lossless|image + .cue] <Hard Rock, Me
 magnet:?xt=urn:btih:1B86B584E673EA7CA883E510ECB1334963972A76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ VLC Media Player - представляет собой мощный медиац
 ```bash
 magnet:?xt=urn:btih:6E448B524AAAB2C78C5A30E5892C5BAD24943E2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ OmmWriter - это инструмент, который позволяет сн�
 magnet:?xt=urn:btih:77DD48C3FB3D3483CA2DDA78079AE420B6F0511A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ magnet:?xt=urn:btih:77DD48C3FB3D3483CA2DDA78079AE420B6F0511A
 ```bash
 magnet:?xt=urn:btih:21B2FEA974B87AC685A48C3D8CFA00F6B844C612
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ Network Radar предоставляет Вам информацию о сети
 magnet:?xt=urn:btih:F7CEDC3641CCD3FEDF00F60802D9A5D363D7474B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ VPN-приложение Kaspersky Secure Connection больше не буде�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +486,8 @@ Orna - The Very Thought Of You (2003) A440 Music Group [FLAC|Lossless|tracks + .
 magnet:?xt=urn:btih:A3724508611365949EB4EEC2F7AD0D31F178C76A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ magnet:?xt=urn:btih:A3724508611365949EB4EEC2F7AD0D31F178C76A
 ```bash
 magnet:?xt=urn:btih:E85B3EB459ECF29D3D311EF8F33E75D8BD012DE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +541,8 @@ La Menade - Reversum (2023) [MP3|320 Kbps] <Alternative Metal, Female Vocals>
 magnet:?xt=urn:btih:5CF9020D93C43D2E81FA141722D122D235837F59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ magnet:?xt=urn:btih:5CF9020D93C43D2E81FA141722D122D235837F59
 ```bash
 magnet:?xt=urn:btih:E8577F39E452E6291815F1CFFBEFB8B45555E51B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +593,8 @@ Omni Toolbox - это обширный набор инструментов дл�
 magnet:?xt=urn:btih:891BDC44A1E1F2AB871C4F33E4FFF5CB400098AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ magnet:?xt=urn:btih:891BDC44A1E1F2AB871C4F33E4FFF5CB400098AF
 ```bash
 magnet:?xt=urn:btih:8D0267C5FB35CFD7D5CC9459384EC82E4D653626
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +648,8 @@ McCoy Tyner - The Best Of: The Blue Note Years (1967 - 1995) 1996, Blue Note [FL
 magnet:?xt=urn:btih:F87404C063816A19BD5F2D4678A3419D0A7FBFB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +674,8 @@ magnet:?xt=urn:btih:F87404C063816A19BD5F2D4678A3419D0A7FBFB8
 magnet:?xt=urn:btih:6871863F47C6E2F203E7AAA61DD9595756B78D24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ ZEDGE - приложение в котором вы сможете найти н
 ```bash
 magnet:?xt=urn:btih:7727ACE3614AD9D6F9164895CF73BFFC50B091E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

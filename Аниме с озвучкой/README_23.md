@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5A430E6EF7F9AB2632B199A8C4AD1F742BD5759C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:5A430E6EF7F9AB2632B199A8C4AD1F742BD5759C
 magnet:?xt=urn:btih:852A5BA6D694557BAECF96AE3370D8E30802951F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:852A5BA6D694557BAECF96AE3370D8E30802951F
 ```bash
 magnet:?xt=urn:btih:55D9CCE16106B4CF8F905231DC94CFD0BD65A32C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:55D9CCE16106B4CF8F905231DC94CFD0BD65A32C
 magnet:?xt=urn:btih:4C7B1A94D9C811757FDC1325D47F68C485E6645A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:4C7B1A94D9C811757FDC1325D47F68C485E6645A
 ```bash
 magnet:?xt=urn:btih:15C6ABF320B727696449D5CE22E7AD861C42521A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:15C6ABF320B727696449D5CE22E7AD861C42521A
 magnet:?xt=urn:btih:230DDDD6BF4CA40B481EC09B83CA81451765600A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:230DDDD6BF4CA40B481EC09B83CA81451765600A
 ```bash
 magnet:?xt=urn:btih:F5A76278E9D862C1359F07D6F0D3C6D4DD8F56CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:F5A76278E9D862C1359F07D6F0D3C6D4DD8F56CA
 magnet:?xt=urn:btih:345A115A044FAE271D98C644985A1A23CFBBE223
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:345A115A044FAE271D98C644985A1A23CFBBE223
 magnet:?xt=urn:btih:2FA0A63F81D7E9B92A1BD23A317B9B1155A5AAF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:2FA0A63F81D7E9B92A1BD23A317B9B1155A5AAF5
 ```bash
 magnet:?xt=urn:btih:13322AAE866198F8C417D94B1DEC361375C82AE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:13322AAE866198F8C417D94B1DEC361375C82AE7
 magnet:?xt=urn:btih:1913DD880EEC64356A93F02AC4DC3A0645896CC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ One Piece Film: Red | Ван-Пис: Фильм пятнадцатый [2022, Mo
 ```bash
 magnet:?xt=urn:btih:52C4B8F406BB52EFFB41017122EC60963FEF3096
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ Arifureta Shokugyou de Sekai Saikyou 2nd Season | Arifureta: From Commonplace to
 magnet:?xt=urn:btih:98EC75A0ED308A550B8418FB310A601DBAB262F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ Futoku no Guild | Immoral Guild | Развращённая гильдия [2022,
 magnet:?xt=urn:btih:3482514C1C445C8E74573C07A76DA2E04919F16D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ Shingeki no Kyojin | Attack on Titan | Атака титанов [ТВ-1] [2013,
 ```bash
 magnet:?xt=urn:btih:EA8E6D7A71C5097E8E782D8A8B5094FB908B4685
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:EA8E6D7A71C5097E8E782D8A8B5094FB908B4685
 magnet:?xt=urn:btih:9619CA4166FFBB03FA55F7C8072EDDC31EB0A785
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ Armitage III: Dual Matrix | Армитаж: Двойная матрица [2002,
 ```bash
 magnet:?xt=urn:btih:66EF2AAADF54230FC2667BC507516BCEA10951BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +477,8 @@ magnet:?xt=urn:btih:66EF2AAADF54230FC2667BC507516BCEA10951BD
 magnet:?xt=urn:btih:2471969850D8CA1826823B0EBAE8ECBAB51B1C47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +502,8 @@ Shinka no Mi: Shiranai Uchi ni Kachigumi Jinsei | The Fruit of Evolution: Before
 ```bash
 magnet:?xt=urn:btih:C5141B1057780F2CEEA9B6F6F0932A91B7B6C073
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +529,8 @@ Date a Live | Рандеву с жизнью [ТВ-1] [2013, TV, 12 из 12 + OV
 magnet:?xt=urn:btih:97DCEA687E711E2C7C07B509D9F3E94568C67D14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ Date a Live II | Рандеву с жизнью [ТВ-2] [2014, TV, 10 из 10 +
 ```bash
 magnet:?xt=urn:btih:E8F1AA431FF198331E70ED31C752B9B7312AE981
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +583,8 @@ Date a Live III | Рандеву с жизнью [ТВ-3] [2019, TV, 12 из 12]
 magnet:?xt=urn:btih:DD7133429458AC96FF8F7D92EE4064686FA75087
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +608,8 @@ Gekijouban Date a Live: Mayuri Judgement | Рандеву с жизнью (фи�
 ```bash
 magnet:?xt=urn:btih:762C0AB16253D37105B121D9D958794D2F45CCC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +635,8 @@ Mahou Tsukai Reimeiki | The Dawn of the Witch | Рассвет ведьмы [202
 magnet:?xt=urn:btih:662D5BE27FCCB349AECA08D9B02BA99974F045C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ magnet:?xt=urn:btih:662D5BE27FCCB349AECA08D9B02BA99974F045C4
 ```bash
 magnet:?xt=urn:btih:BBFB26B3784FA7AE7D63DB8F54B7800508C24F66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +690,8 @@ magnet:?xt=urn:btih:BBFB26B3784FA7AE7D63DB8F54B7800508C24F66
 ```bash
 magnet:?xt=urn:btih:799AF0B24E16A93C4418C769EA8F221C8B4A397F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

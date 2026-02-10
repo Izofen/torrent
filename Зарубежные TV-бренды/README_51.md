@@ -19,6 +19,8 @@ History Channel: Человек-калькулятор / The Human Calculator (2
 magnet:?xt=urn:btih:9ADD34C8802504E13D1AF98CBEE8440B25FC7116
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NGW: Прекрасная Америка: Величественный Севе�
 ```bash
 magnet:?xt=urn:btih:4C3C421C6B03B9F61A2296E005CC3191EC6D83E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NGW: Намибия. Убежище гигантов / Namibia. Sanctuary of Gia
 magnet:?xt=urn:btih:65DC41DC378C49F74DAE926283E8B6DCE08B1CE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Discovery. Смертельный улов / Deadliest Catch (2020) HDTV [H.264/
 ```bash
 magnet:?xt=urn:btih:E34105B39FED28236F4B3384BAB47BF464A89B1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ BBC. Человеческая Вселенная / Human Universe (2014) BDRip [
 magnet:?xt=urn:btih:2964E607585363824F0F31A1F584F8711BDE1BF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ BBC. Лицо человека (4-х серийный) / The Human Face (2001) D
 magnet:?xt=urn:btih:9DFCC4834B2EF54C9BBDA4A5E730025EE8AF2582
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ BBC: Земля: Мощь планеты / Earth: The Power of the Planet (2007)
 ```bash
 magnet:?xt=urn:btih:E8D7647305520B305A8AF6490B6946348CC05FDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:E8D7647305520B305A8AF6490B6946348CC05FDE
 magnet:?xt=urn:btih:8E50E1875AC4CC95EFE29F3790AA7A5AC78FEFC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ NGW: Пума! / Puma! (2012) HDTV [H.264/1080i-LQ]
 ```bash
 magnet:?xt=urn:btih:3304ACF1E00C25C13A25938E35D445739690C760
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ NGW: Тимбавати: мир диких кошек / Timbavati: An Epic Cat S
 magnet:?xt=urn:btih:0156515CE0813BF31A49DDAF2497B114A4DB4A6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Discovery.Смертные грехи (7 серий из 7) / Discovery.Deadly S
 ```bash
 magnet:?xt=urn:btih:46501B4E22E2803B6FBA63AF5F11DB4B7D0D6376
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Discovery: Производство: гонка со временем [10 из 1
 magnet:?xt=urn:btih:21C2A0C238491092F9C052E466AEC8D7758AADA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:21C2A0C238491092F9C052E466AEC8D7758AADA9
 ```bash
 magnet:?xt=urn:btih:1238C4873C019B0202648EA36913DD9808036B63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:1238C4873C019B0202648EA36913DD9808036B63
 magnet:?xt=urn:btih:E1451F73FBFA93092164942DE818D19AB0D930D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Discovery: Разрушители легенд. Специальный выпу�
 ```bash
 magnet:?xt=urn:btih:D8C0F1CCE53736A59A5BCCE166A3CD3FCD5A35C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ History Channel: Проклятие острова Оук / The Curse of Oak Isl
 magnet:?xt=urn:btih:33A1A23D4D56BD8B12ADDCA198865D45A84680E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:33A1A23D4D56BD8B12ADDCA198865D45A84680E4
 ```bash
 magnet:?xt=urn:btih:7A5F9095960398B52635CB122A10EF22F551015F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ BBC: Знакомьтесь, ваши предки неандертальцы / 
 magnet:?xt=urn:btih:7F7BA15C89F0644B61EB7E99D5B1105F545D6842
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ Discovery: Разрушители легенд. Спецвыпуск: Коман
 ```bash
 magnet:?xt=urn:btih:16B66543EC14D156BEF928FE6C30556089080146
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:16B66543EC14D156BEF928FE6C30556089080146
 magnet:?xt=urn:btih:70D07DCDA99E65E709E4BA67752D581219AAAC9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ BBC. Horizon: Юпитер раскрывает свои тайны / Jupiter Re
 ```bash
 magnet:?xt=urn:btih:EC48681B625A5DC949E7BA1E8BC29047C974AABF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:EC48681B625A5DC949E7BA1E8BC29047C974AABF
 magnet:?xt=urn:btih:6CDDAB68E468DC12FF20C4484D693EF1A1C17C16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:6CDDAB68E468DC12FF20C4484D693EF1A1C17C16
 ```bash
 magnet:?xt=urn:btih:49A06B14F5AC1E61EBB8B5B5572617799BF6EBE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ BBC: Вся правда о красоте / The Truth About Looking Good (2018)
 magnet:?xt=urn:btih:9D4D51A8FCE037CEE5A717294CA148543908DF0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ magnet:?xt=urn:btih:9D4D51A8FCE037CEE5A717294CA148543908DF0D
 magnet:?xt=urn:btih:EFEBFC20B9FDC60CD76207BBB5CCBC5BAB353F1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ BBC: Неизвестные викинги. Под парусами дракка
 ```bash
 magnet:?xt=urn:btih:4033B9CAAAF5618CE3385045C5475A6E8C7FF9CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

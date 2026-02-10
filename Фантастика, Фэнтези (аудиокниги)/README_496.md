@@ -1,3 +1,29 @@
+###  Публикация: 1369481   (903212) от 23.03.2020
+
+Михаил Уткин | Росланд Хай-Тэк. Захребетье (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычно в ЛитРПГ-романах игроки объединяются в кланы. Но что будет, если клан составят сотрудники реальной фирмы? Главный герой цикла «Ездовой гном», первая книга которого вам предлагается, – молодой менеджер с большими амбициями: он априори убеждён, будто весь мир перед ним в долгу, с чем едва ли согласны его коллеги. Однажды герой с подачи начальства попадает в (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтези, LitRPGПродолжительность: 07:55:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C173A9722619460833AEA2A1332B7C6327B064F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369458   (903279) от 23.03.2020
 
 Алан Нукланд | Падение. Том 1 (2020) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:14E77E2B2207B3607DF7B89556C48E848488C7AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:14E77E2B2207B3607DF7B89556C48E848488C7AE
 ```bash
 magnet:?xt=urn:btih:7D3CEA1E01267F967D912767E0ED24FA009B6591
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:7D3CEA1E01267F967D912767E0ED24FA009B6591
 magnet:?xt=urn:btih:D5948D5F294C7543EC977848B452DD87E790195F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:D5948D5F294C7543EC977848B452DD87E790195F
 ```bash
 magnet:?xt=urn:btih:80DD4999E1686EF5744A08ECEFA89681CB05E63B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:80DD4999E1686EF5744A08ECEFA89681CB05E63B
 magnet:?xt=urn:btih:F93776F0BD424CCD433CB6C33B602458055977B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:F93776F0BD424CCD433CB6C33B602458055977B2
 ```bash
 magnet:?xt=urn:btih:17BA7614F7ED63B168423F25665BD2FEAE7F6C01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +208,8 @@ magnet:?xt=urn:btih:17BA7614F7ED63B168423F25665BD2FEAE7F6C01
 magnet:?xt=urn:btih:9579317250D21F6B5EC22A3A07901051CC9E47E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +233,8 @@ magnet:?xt=urn:btih:9579317250D21F6B5EC22A3A07901051CC9E47E6
 ```bash
 magnet:?xt=urn:btih:2FDD168DB621145C9797CA97EB7E709557B6A1FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +261,8 @@ magnet:?xt=urn:btih:2FDD168DB621145C9797CA97EB7E709557B6A1FA
 magnet:?xt=urn:btih:E4A9EC00C780EF8237A148DDFF0268A184F77DB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +286,8 @@ magnet:?xt=urn:btih:E4A9EC00C780EF8237A148DDFF0268A184F77DB5
 ```bash
 magnet:?xt=urn:btih:EF9E06DF190DD268A4C770D7339292FBF9522970
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +315,8 @@ magnet:?xt=urn:btih:EF9E06DF190DD268A4C770D7339292FBF9522970
 magnet:?xt=urn:btih:52EB1A7F157332462D59E6EEC4DCD7343B1818C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +341,8 @@ magnet:?xt=urn:btih:52EB1A7F157332462D59E6EEC4DCD7343B1818C7
 magnet:?xt=urn:btih:FFD9346E78CD09C0F491A372DAF87F7ECE0D9E91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:FFD9346E78CD09C0F491A372DAF87F7ECE0D9E91
 ```bash
 magnet:?xt=urn:btih:21EF09B18B2837D810A3842149172622B6A24002
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +394,8 @@ magnet:?xt=urn:btih:21EF09B18B2837D810A3842149172622B6A24002
 magnet:?xt=urn:btih:1F103B48D2B819B2CE6FD8D3EA998D1ADF26B61D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +419,8 @@ magnet:?xt=urn:btih:1F103B48D2B819B2CE6FD8D3EA998D1ADF26B61D
 ```bash
 magnet:?xt=urn:btih:0680036232C518A5C5927A6392017DC969B93F60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +446,8 @@ magnet:?xt=urn:btih:0680036232C518A5C5927A6392017DC969B93F60
 magnet:?xt=urn:btih:E2B62979A78EB24CCD85C7F0FBE17C23B20BFD8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:E2B62979A78EB24CCD85C7F0FBE17C23B20BFD8B
 ```bash
 magnet:?xt=urn:btih:F6BAFFF4ECA60B9286CE8266EAE0275B210B82AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +499,8 @@ magnet:?xt=urn:btih:F6BAFFF4ECA60B9286CE8266EAE0275B210B82AE
 magnet:?xt=urn:btih:4E052963FE4A30D89DD85505D4E7DB3A44CA6B78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +525,8 @@ magnet:?xt=urn:btih:4E052963FE4A30D89DD85505D4E7DB3A44CA6B78
 magnet:?xt=urn:btih:F8D0A4FA61EAE10D4C14413817085C461E26BE72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:F8D0A4FA61EAE10D4C14413817085C461E26BE72
 ```bash
 magnet:?xt=urn:btih:134F6468FE2DBD3F86BCE8F7290B39F3766B3E79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +579,8 @@ magnet:?xt=urn:btih:134F6468FE2DBD3F86BCE8F7290B39F3766B3E79
 magnet:?xt=urn:btih:8E95D268A405733EB9D9264F56AE9DBBFE117F32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +605,8 @@ magnet:?xt=urn:btih:8E95D268A405733EB9D9264F56AE9DBBFE117F32
 magnet:?xt=urn:btih:6899155D5896D39A2C6BD8E6BCD0C213BE0A9257
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +630,8 @@ magnet:?xt=urn:btih:6899155D5896D39A2C6BD8E6BCD0C213BE0A9257
 ```bash
 magnet:?xt=urn:btih:BEDC151930CFC59273958B6561FA02E5591FE8B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +658,8 @@ magnet:?xt=urn:btih:BEDC151930CFC59273958B6561FA02E5591FE8B9
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,29 +684,7 @@ magnet:?xt=urn:btih:BEDC151930CFC59273958B6561FA02E5591FE8B9
 magnet:?xt=urn:btih:985FC1DC4D4ACEAEB65FBA6FAFC9A79DE0AD1F9B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 292305   (906600) от 07.02.2011
-
-Роман Афанасьев | Астрал (2008) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это история о молодом человеке Игоре, который внезапно открыл для себя новый и удивительный мир – Астрал. Оказалось, что в нашем мире существует некая магическая виртуальная реальность, в которую можно «входить» как в интернет. Поскольку астрал не влияет на реальность, его используют для различных забав. И как в любом обществе в нем есть и лидеры, и аутсайдеры…Жанр: ФэнтезиПродолжительность: 03:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52047A21646BC8C43574A3788BF298026871917E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

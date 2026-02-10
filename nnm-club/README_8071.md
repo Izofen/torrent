@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ VA - Beatport Electro House: Sound Pack #262 (2021) [MP3|320 Kbps] <House, Elect
 magnet:?xt=urn:btih:7996BE907A37DC55416D0EAB8DF274C65F58FB12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:7996BE907A37DC55416D0EAB8DF274C65F58FB12
 magnet:?xt=urn:btih:5F3B386913CCFD1341944154FF8A37886A0FD554
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:5F3B386913CCFD1341944154FF8A37886A0FD554
 ```bash
 magnet:?xt=urn:btih:9852BB86402D6DBA25BF5546CCF63BBAC84EA495
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Laurie Anderson - Big Science (1982) [FLAC|Lossless|tracks + .cue]<Electronic, P
 magnet:?xt=urn:btih:E9670E013690EA7C0C60ABFBF7B47FE619FBD8C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:81C48A5AFBB1E14D1083F55967B0FFA5AD61A654
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ VA - Ibiza Opening Party 2023 (2023) [MP3|320 Kbps] <Dance, Club, House, Electro
 magnet:?xt=urn:btih:F76A922ABE082D82114B2C4D13099C6E9D75FC3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ Elle — французский еженедельный женский журн
 magnet:?xt=urn:btih:73D7AF9A7676D7348CC37E76CBE8CDADF8D49B45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:73D7AF9A7676D7348CC37E76CBE8CDADF8D49B45
 ```bash
 magnet:?xt=urn:btih:6E3FC60661FBD3FDD2378449D5AC016274B0C462
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:6E3FC60661FBD3FDD2378449D5AC016274B0C462
 magnet:?xt=urn:btih:F719F26CA22F63BB3942FBB2A70694241DC72CBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ Kyrie Eleison - ...In The Arms Of Decadence (2007) [FLAC|Lossless|image + .cue] 
 magnet:?xt=urn:btih:A2E13951D789665820115A9D8D3BC59FFE430950
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ FSNotes - это менеджер текстовых заметок для macOS
 ```bash
 magnet:?xt=urn:btih:A05AF21F041D05480219422445793ED28318792B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ Camtasia for Mac — эффективное приложение для созд
 magnet:?xt=urn:btih:F299A86FEE67C559061C9338C061F117FC0FC5D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:F299A86FEE67C559061C9338C061F117FC0FC5D9
 ```bash
 magnet:?xt=urn:btih:38D708EC3B7A35466482C912A4DC504F1D466622
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:38D708EC3B7A35466482C912A4DC504F1D466622
 magnet:?xt=urn:btih:C6FA27243F1C21C08C809B84CCA47CB497B4D0B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:C6FA27243F1C21C08C809B84CCA47CB497B4D0B2
 ```bash
 magnet:?xt=urn:btih:5D2FFB8CDF96BB3BF84F67EEEC4DA143D5F9408A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ VA - Fest Rebel Rock Radio, Vol.02 (2022) [MP3|320 Kbps] <Rock, Alternative, Ind
 magnet:?xt=urn:btih:409FD184B8EA64C48A5616D7517F55BCC8E3BEBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +481,8 @@ VA - Премьер. 7 (1999) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:9E789855629BFE12A294A775E6C2B8FAA64A3CFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +511,8 @@ Ravencult - Morbid Blood (2011) [FLAC|Lossless|image + .cue] <Black Metal>
 magnet:?xt=urn:btih:ACAD19A62DBAFBBBC60D2DCA3BCA7F6EFBA99B52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:ACAD19A62DBAFBBBC60D2DCA3BCA7F6EFBA99B52
 magnet:?xt=urn:btih:3C5A2D8C590E3194419D691F22524529DCFAE83D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ magnet:?xt=urn:btih:3C5A2D8C590E3194419D691F22524529DCFAE83D
 magnet:?xt=urn:btih:63A43D4526C7D3C3EFA8ECB5D3814D29E9C682EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:92FCF5CABD0A5E8051B832C1207034EF924C7446
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +618,8 @@ magnet:?xt=urn:btih:92FCF5CABD0A5E8051B832C1207034EF924C7446
 magnet:?xt=urn:btih:1097212F778374FD26BB3C093894CEF3A1074825
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ magnet:?xt=urn:btih:1097212F778374FD26BB3C093894CEF3A1074825
 ```bash
 magnet:?xt=urn:btih:3DD942A83E291657F14334CEBE0A7055C31B1CDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:3DD942A83E291657F14334CEBE0A7055C31B1CDB
 magnet:?xt=urn:btih:07629CEFA845AE2098F219D3D97D27C5EDE9A433
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ Aiseesoft Screen Recorder 2.7.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CA328C12E563052663606DE9DB510E7F607EBE72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

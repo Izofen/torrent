@@ -1,27 +1,3 @@
-###  Публикация: 1050508   (534806) от 10.09.2016
-
-Эта земля моя / This Land Is Mine (1943) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой скромный школьный учитель Альбер Лори «боится бомбежек, любит свою старую мать, свои удобства и свой стакан молока, почитает инспектора учебного округа и оккупационные власти…» и просто отчаянный трус. Но он находит в себе силы перед лицом неминуемой смерти выступить на суде с пламенной речью, обличающей нацизм.Производство: США, Jean-Renoir- Dudly Nichols Productions, RKO Radio PicturesЖанр: ДрамаРежиссер: Жан РенуарАктеры: Чарльз Лотон, Морин О`Хара, Джордж Сандерс, Уолтер Слезак, Кент Смит, Уна О`Коннор, Филип Меривэйл, Тьюрстон Холл, Джордж Кулурис, Нэнси Гейтс, Иван Ф. Симпсон, Фрэнк Альтен, Джон Баннер, Тревор БардеттПеревод: Многоголосый закадровыйПродолжительность: 01:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DD2C179A2CFED7DAD2C30727DADAEEB69F01084
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 926201   (535055) от 09.08.2015
 
 Готам / Gotham (1988) DVDRip [H.264] [АVO]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:2DD2C179A2CFED7DAD2C30727DADAEEB69F01084
 ```bash
 magnet:?xt=urn:btih:A888AB78077FA027E86AA1C3EA175C21BF17B45F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -66,6 +44,8 @@ magnet:?xt=urn:btih:A888AB78077FA027E86AA1C3EA175C21BF17B45F
 ```bash
 magnet:?xt=urn:btih:E2866EB9A73901F38DF07B148114D1FA84F2A0BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +72,8 @@ magnet:?xt=urn:btih:E2866EB9A73901F38DF07B148114D1FA84F2A0BA
 magnet:?xt=urn:btih:203E2D02F1D327E1F4D0F8DFBECBD9DA7F048B79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:203E2D02F1D327E1F4D0F8DFBECBD9DA7F048B79
 ```bash
 magnet:?xt=urn:btih:4677BD3B2985B4B9253611EDDD480E64208828E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +124,8 @@ magnet:?xt=urn:btih:4677BD3B2985B4B9253611EDDD480E64208828E4
 magnet:?xt=urn:btih:1499D75260BE017F0A24CF865B150E47942A286B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:1499D75260BE017F0A24CF865B150E47942A286B
 ```bash
 magnet:?xt=urn:btih:ABADA40A620B847D6F21628C23B3743D94F01FEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +176,8 @@ magnet:?xt=urn:btih:ABADA40A620B847D6F21628C23B3743D94F01FEA
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:ABADA40A620B847D6F21628C23B3743D94F01FEA
 ```bash
 magnet:?xt=urn:btih:1E42CA9663BE67FE6574A8D3AD0E18D037AC2AF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +230,8 @@ magnet:?xt=urn:btih:1E42CA9663BE67FE6574A8D3AD0E18D037AC2AF4
 magnet:?xt=urn:btih:E29754BBA3DAE0FE228836CA43E16C3264E69B0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +255,8 @@ magnet:?xt=urn:btih:E29754BBA3DAE0FE228836CA43E16C3264E69B0D
 ```bash
 magnet:?xt=urn:btih:45E64D891067875F6E2417953FEB9349F26D1148
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +283,8 @@ magnet:?xt=urn:btih:45E64D891067875F6E2417953FEB9349F26D1148
 magnet:?xt=urn:btih:C4D7F4618E39802DB9CABE897A64E48672AED54E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +308,8 @@ magnet:?xt=urn:btih:C4D7F4618E39802DB9CABE897A64E48672AED54E
 ```bash
 magnet:?xt=urn:btih:8E8EC35F7166F61E03F65A13E9D8C4522BDF59AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +336,8 @@ magnet:?xt=urn:btih:8E8EC35F7166F61E03F65A13E9D8C4522BDF59AD
 magnet:?xt=urn:btih:69AEE5A2AD1DF76B08AA024D5A0717329EF35240
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +361,8 @@ magnet:?xt=urn:btih:69AEE5A2AD1DF76B08AA024D5A0717329EF35240
 ```bash
 magnet:?xt=urn:btih:DD3BD70DE7EAD762C9265D9C2FCDD524BA6CEFD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +388,8 @@ magnet:?xt=urn:btih:DD3BD70DE7EAD762C9265D9C2FCDD524BA6CEFD8
 magnet:?xt=urn:btih:39C920C93A96F01AA9ECA51DA2DD32B5E96A27F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +413,8 @@ magnet:?xt=urn:btih:39C920C93A96F01AA9ECA51DA2DD32B5E96A27F1
 ```bash
 magnet:?xt=urn:btih:F9204555F4DF2A45207F57FD8805E78C377E0C98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +441,8 @@ magnet:?xt=urn:btih:F9204555F4DF2A45207F57FD8805E78C377E0C98
 magnet:?xt=urn:btih:211F3F9CB5F8D2EFEB3C17ED5C54C6C6BD93A95E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +466,8 @@ magnet:?xt=urn:btih:211F3F9CB5F8D2EFEB3C17ED5C54C6C6BD93A95E
 ```bash
 magnet:?xt=urn:btih:748E8EE20FD8A5ABA3F8587301D9B1F5924F573D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +493,8 @@ magnet:?xt=urn:btih:748E8EE20FD8A5ABA3F8587301D9B1F5924F573D
 magnet:?xt=urn:btih:C1AAD1856150E9A973E338A3C661D237131C6723
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +518,8 @@ magnet:?xt=urn:btih:C1AAD1856150E9A973E338A3C661D237131C6723
 ```bash
 magnet:?xt=urn:btih:DF5C65E3E6F79573010A007565D932D4D66E6261
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +545,8 @@ magnet:?xt=urn:btih:DF5C65E3E6F79573010A007565D932D4D66E6261
 magnet:?xt=urn:btih:0EDF0868ADADDA4D56B87DDA97DD810562FB3F71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +570,8 @@ magnet:?xt=urn:btih:0EDF0868ADADDA4D56B87DDA97DD810562FB3F71
 ```bash
 magnet:?xt=urn:btih:38B2E90164C7AB67F22C8C0A60F2CFEAC6AC20C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +597,8 @@ magnet:?xt=urn:btih:38B2E90164C7AB67F22C8C0A60F2CFEAC6AC20C0
 magnet:?xt=urn:btih:6B861B90928BB4518D92C73960A6A85CEA6A4C60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +623,8 @@ magnet:?xt=urn:btih:6B861B90928BB4518D92C73960A6A85CEA6A4C60
 magnet:?xt=urn:btih:0789E99AFA2D373478BD99DF337E9D52D88544D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +648,35 @@ magnet:?xt=urn:btih:0789E99AFA2D373478BD99DF337E9D52D88544D5
 ```bash
 magnet:?xt=urn:btih:59F281E7BAA8F41E0CB4AF4281EBFF87342F4D77
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531995   (539722) от 06.08.2012
+
+Рассказ служанки / The Handmaid's Tale / 1989 / DVDRip / The Handmaid's Tale (1989) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539722.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Республике Гилеад - полуфашистский режим. На каждом шагу - военные патрули. Люди в офицерской форме - самые желанные гости в респектабельных домах и самые желанные клиенты во всех государственных и прочих заведениях. Жены людей в офицерской форме - самые чопорные дамы в обществе. У них у всех сплошные достоинства и только одна досадная помеха: они не рожают детей.
+ А потому для вынашивания потомства насильно сгоняются со всей Республики женщины подходящего возраста, способные к деторождению, и под постоянным надзором живут в специальном охраняемом помещении, пока проходят курс подготовки. После чего их выбирают жены людей в офицерской форме в качестве подстилки для своих мужей… Жесткое, реалистичное, перемешанное с кадрами, стилизованными под документ, повествование режиссера Фолькера Шлендорфа основано на романе Маргарет Этвуд, в котором лишь один фантастический допуск - придумана Республика Гилеад…Жанр: Драма, Фантастика, ТриллерРежиссер: Фолькер ШлёндорфАктеры: Наташа Ричардсон , Фэй Данауэй , Эйдан Куинн , Элизабет МакГоверн, Виктория Теннант , Роберт Дювалл , Бланш Бэйкер , Трейси Линд , Зоя Уилсон , Кэтрин Доуби , Рейнер Шёне , Lucia HartpengПеревод: Многоголосый закадровый / двуголосыйЯзык субтитров: РусскийПродолжительность: 01:48:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AD288AD27215B5DDA01224C53DCFFC49ACA9E7D
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

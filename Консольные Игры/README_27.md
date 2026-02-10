@@ -19,6 +19,8 @@ Forza Horizon [XBOX360] [RUSSOUND] [Region Free] [Kinect] [LT+3.0] (XGD3/15574) 
 magnet:?xt=urn:btih:057FC8F30300E0DBD1E5DD89DC1FEEBC003241B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Pro Evolution Soccer 2018 - это очередная часть серии фу
 ```bash
 magnet:?xt=urn:btih:470471F6F5A86EC41F2CCAE2F7D2E1F9BDF6B8BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Dilogy Rayman Legends + Origins (2015) [PSVita] [EUR] 3.60 [NoNpDrm] [License] [
 magnet:?xt=urn:btih:F678FAE4D6B440869AD377F1AAA4DB5AFFF3565D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Excitebots: Trick Racing — это продолжение одной из лу�
 ```bash
 magnet:?xt=urn:btih:ECD90B092E338EE511008D030415E9ABF7B2D4FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ The Jak and Daxter Collection [PS3] [ENG] [NTSC] [FULL] [3.55] (2012)
 magnet:?xt=urn:btih:B5BC48B0CDA54312E40B6FD544DA954B7D05A5DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ UFC 3 – симулятор боёв MMA. Это увлекательный ф�
 ```bash
 magnet:?xt=urn:btih:D6FF1AD1A1302AC5CC20628CD98CADE5CE549452
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ The Last Guardian / Последний хранитель (2016) [PS4] [EUR] 5.0
 magnet:?xt=urn:btih:11D211FD7B31E90BFB7F501BA4953968C4A88B79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Ash of Gods: Redemption - тактическая пошаговая ролева
 magnet:?xt=urn:btih:3273710B3DDADA957D14EF78D597586A0B4D2C5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Valkyria Chronicles 4 – очередная часть серии японск�
 ```bash
 magnet:?xt=urn:btih:05AC5BB266D68C48366BA3A177AF8FBFEADD1D64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Immortal Realms: Vampire Wars это увлекательная стратеги
 magnet:?xt=urn:btih:2BECC0C4A97155585BE77266C5928007E6E4B342
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Hades (2020) [Switch] [USA] 10.2.0 [NSP] [License / 1.0.36054] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1132E4EF028B704BA80883FA7E00E66DCB7B91D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Pure Football предлагает новое и уникальное виден
 magnet:?xt=urn:btih:1400C0BCEB62889E4632600594C46ACEB0F57216
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Disney Epic Mickey 2: The Power of Two является продолжением
 ```bash
 magnet:?xt=urn:btih:38F80FFB3431258E01DA6DE99A6874EE95E322AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Spiritfarer — это уютная игра о смерти. Вам предс�
 magnet:?xt=urn:btih:ED7ABDFCCC2003F222BF5F3E8335C864AFAB597C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Resident Evil: Revelations – обновленная версия, выпуще
 magnet:?xt=urn:btih:46E7AFC552B5731A21645C1D35CF2EEDE9DD978D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Hacked Xbox Backwards Compatibility / Взломанный эмулятор Xbox
 ```bash
 magnet:?xt=urn:btih:123093C8887AFDE341C8EF74F6416EE2D07C02A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ NBA 2K16 (2015) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN / 1.01] [En]
 magnet:?xt=urn:btih:8BCD8533855C3F68A40C96BE71811AF92E8E760B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Need for Speed: The Run (2011) [Xbox360] [PAL] 14699 [FreeBoot] [License / TU4] 
 ```bash
 magnet:?xt=urn:btih:B0992DFD57A80699A8C73988F4D06F6361FBD9C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ Metal Gear Solid VR Missions [PS1] [En] (1999)
 magnet:?xt=urn:btih:72F69E7D362EECF09BF621D6DB8F105E8D9F8616
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ Prototype 2 - сиквел экшена Prototype, разработанный с
 ```bash
 magnet:?xt=urn:btih:AB2225ED27D2BF311008D00E7FE78105CD754B8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ Pro Evolution Soccer 2018 - это очередная часть серии фу
 magnet:?xt=urn:btih:BC2D1C5E3B8E18CD1BA3732085325F6EA587CE98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ Pro Evolution Soccer 2018 - это очередная часть серии фу
 magnet:?xt=urn:btih:C079B520098B2EA2D11500063351A5C3BF98F8CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ Cadence of Hyrule (2019) [Switch] [USA] 10.1.0 [NSP] [Unofficial / 1.4.0 / DLC] 
 ```bash
 magnet:?xt=urn:btih:B7C604C43C578D2A9093B38D854DB12D8974FD8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ Mass Effect: Andromeda (2017) [PS4] [EUR] 5.05 [HEN] [License / 1.10] [Ru/Multi]
 magnet:?xt=urn:btih:1CB130DD54BD5575D8A3B2C8270009C55CB45DBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ Alien Rage (2013) [PS3] [EUR] 4.40 [PSN] [Ru]
 magnet:?xt=urn:btih:C02EAE523A17E778DD1C600F5BB9F781E4A94458
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Homefront: Ultimate Edition (2011) [Xbox360] [RegionFree] [FreeBoot] [License] [
 ```bash
 magnet:?xt=urn:btih:894BFEE13A9935635573EED4F827E8C33052CC1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

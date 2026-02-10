@@ -22,6 +22,8 @@ REFLEX - Больше чем жизнь (2025) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:47F966BC501CE8D85306ED67F0995B7C13E779B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:47F966BC501CE8D85306ED67F0995B7C13E779B4
 magnet:?xt=urn:btih:554F3A28B6E7B54F4007688C4A9C2FC6E8BFC4B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:554F3A28B6E7B54F4007688C4A9C2FC6E8BFC4B4
 ```bash
 magnet:?xt=urn:btih:2306DA75C732422E6B476E7564D7DB61F1CED839
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ VA - Reflections on Classical Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classi
 magnet:?xt=urn:btih:C578950123CB4580C5C5C8265E22FB47007D7659
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Zynaptiq - PUNCH 1.0.0 VST 3, AAX (x64) RePack by R2R [En]
 ```bash
 magnet:?xt=urn:btih:E2B7C40BB11ACA1951C43657AC10350698FDC1C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Secret Service - When The Night Closes In (1985) [AAC|320 Kbps] <Electronic, Pop
 magnet:?xt=urn:btih:D7A602EF5837F99AAEEC30085769C588283F488C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:D7A602EF5837F99AAEEC30085769C588283F488C
 ```bash
 magnet:?xt=urn:btih:AD6930E68398B3AA17529D297AF2F849CF371B02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ Feral Cry - Shadow Whisper (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy M
 magnet:?xt=urn:btih:B88C365847646119BCC7C0CC11915094750BF6A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:B88C365847646119BCC7C0CC11915094750BF6A3
 ```bash
 magnet:?xt=urn:btih:F5A266F21E3E1E37DB28733409D34710D06BA7D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ LENS — это процессор спектральной динамики с 
 magnet:?xt=urn:btih:215A7C095AD2341B115AD8F21C70F1D695C4A6A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:215A7C095AD2341B115AD8F21C70F1D695C4A6A5
 ```bash
 magnet:?xt=urn:btih:F3D200C48ABF7F0746F7A487F6F2865405279C3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ Secret Service - The Lost Box (2012) [AAC|320 Kbps] <Electronic, Pop Rock, Hi NR
 magnet:?xt=urn:btih:68911E71C669E17575239848D2633F5E1A4A51D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ Secret Service - When The Night Closes In (1985) [OGG Vorbis|480 Kbps] <Electron
 magnet:?xt=urn:btih:881DA0B66B7E4686AB49F38A9C4EF5B58B9614EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +379,8 @@ magnet:?xt=urn:btih:881DA0B66B7E4686AB49F38A9C4EF5B58B9614EA
 magnet:?xt=urn:btih:159A529EED49A15F6E7180FFC75899F7C742ECAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ magnet:?xt=urn:btih:159A529EED49A15F6E7180FFC75899F7C742ECAC
 ```bash
 magnet:?xt=urn:btih:C15D2872F9B10EC623EA6ACB7FCF7560FB1E0FE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ magnet:?xt=urn:btih:C15D2872F9B10EC623EA6ACB7FCF7560FB1E0FE9
 magnet:?xt=urn:btih:3BCBF0934E0B346C3A05D33A7D1B88ABF72C904E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +457,8 @@ magnet:?xt=urn:btih:3BCBF0934E0B346C3A05D33A7D1B88ABF72C904E
 ```bash
 magnet:?xt=urn:btih:E0E5FB1548203EF245159A094A8428F976A17969
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +487,8 @@ Daro-X - After The Rain (2025) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-
 magnet:?xt=urn:btih:5349BCEA83F3C00B106921990921295C6F9C1860
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +516,8 @@ Daro-X - After The Rain (2025) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
 magnet:?xt=urn:btih:81587C29CDCB3BA8D5EF9E63DF8C120C6DF85383
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +542,8 @@ magnet:?xt=urn:btih:81587C29CDCB3BA8D5EF9E63DF8C120C6DF85383
 ```bash
 magnet:?xt=urn:btih:84FDA9C1CBEABF7C61ED0E1B8737943537379EE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +572,8 @@ Nagart - 13 этаж (2025) [MP3|320 Kbps] <Punk Rock>
 magnet:?xt=urn:btih:15DFBA9FE5D4E0421F8DB443B7E6DA723C12E83C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +597,8 @@ magnet:?xt=urn:btih:15DFBA9FE5D4E0421F8DB443B7E6DA723C12E83C
 ```bash
 magnet:?xt=urn:btih:45AD91C3A3B5660B48634ED29D45E1DF4C604531
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +624,8 @@ magnet:?xt=urn:btih:45AD91C3A3B5660B48634ED29D45E1DF4C604531
 magnet:?xt=urn:btih:50F589CF0A4C1C70225C9A49E8429985F81AB932
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +649,8 @@ magnet:?xt=urn:btih:50F589CF0A4C1C70225C9A49E8429985F81AB932
 ```bash
 magnet:?xt=urn:btih:7BD4BB3DDE14E0936A7148708DEA1421FD87E7BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +676,8 @@ magnet:?xt=urn:btih:7BD4BB3DDE14E0936A7148708DEA1421FD87E7BD
 magnet:?xt=urn:btih:36C09544F23707CF45EE81905F4E9F28DAF1D254
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ magnet:?xt=urn:btih:36C09544F23707CF45EE81905F4E9F28DAF1D254
 ```bash
 magnet:?xt=urn:btih:E065CD04FA2C73D0AA6EDB1B1D134C2B491B0BF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

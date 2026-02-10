@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:009E3A7B5C009E87CFA256A200E99DB5CD262351
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:009E3A7B5C009E87CFA256A200E99DB5CD262351
 ```bash
 magnet:?xt=urn:btih:FCA0814812482147C8CED5EC7C6FBEFAC0158CBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:FCA0814812482147C8CED5EC7C6FBEFAC0158CBE
 ```bash
 magnet:?xt=urn:btih:B19394056BF98356816B253E205B9B82AF2E676F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:B19394056BF98356816B253E205B9B82AF2E676F
 magnet:?xt=urn:btih:449558CC31718AE6635EAD5290519A4FDC2566E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:449558CC31718AE6635EAD5290519A4FDC2566E5
 ```bash
 magnet:?xt=urn:btih:291385913C769A149FE25A7F7E8FA8214C3C64C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:291385913C769A149FE25A7F7E8FA8214C3C64C5
 magnet:?xt=urn:btih:FD0774B7736F90AB05EE3B94285EA166CAEC9A2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:FD0774B7736F90AB05EE3B94285EA166CAEC9A2D
 ```bash
 magnet:?xt=urn:btih:8F9A840ECD85DB96C6A9B58833F2F3F28EF95783
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Downfall: A Horror Adventure Game / Downfall: История в стиле хо�
 magnet:?xt=urn:btih:E8A8CDE6733E6D05A6F8C7670D42CDE1650A7825
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:E8A8CDE6733E6D05A6F8C7670D42CDE1650A7825
 ```bash
 magnet:?xt=urn:btih:B766245AC343F75003ABAACA3D87650654C97E85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ The Lady & The Dappers - Electro Swing Vol. 1 (2025) [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:D048B9D03B5D40F208F0CBEE0598ADFE6EBC4C62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ VA - Compilation Part 170 Electronic (2025) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:AB3A3EB7C1A63B8A0F5B841DD9561F51035AEE94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:AB3A3EB7C1A63B8A0F5B841DD9561F51035AEE94
 ```bash
 magnet:?xt=urn:btih:1E0F02F51EB0C8E26AA7978B39E34A92E02DA6B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ Media Player Classic - BE – универсальный проигрывате�
 magnet:?xt=urn:btih:5C8A1BBB9A648B3E64424A39471AFD1ECA06FE00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ Freemake Video Converter - это бесплатное универсально�
 ```bash
 magnet:?xt=urn:btih:0CC31B62D668AB558483E910B31A652A7E76048D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ Burnhouse Lane (2022) [Ru/Multi] (1.4.7) License GOG
 magnet:?xt=urn:btih:6A11A0776BF81023E7453C74453B926359C3FA8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 ```bash
 magnet:?xt=urn:btih:132CD2C88050C1433AC667A9E437F8A37446E925
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ magnet:?xt=urn:btih:132CD2C88050C1433AC667A9E437F8A37446E925
 magnet:?xt=urn:btih:CF3978AF41A1D336B7DE233D70E81D34A5560CE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ Berserk: Ougon Jidai Hen III - Kourin | Берсерк: Сошествие | Ber
 ```bash
 magnet:?xt=urn:btih:E98CA3EE8589C33573AA7661032697C999309FAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ magnet:?xt=urn:btih:E98CA3EE8589C33573AA7661032697C999309FAC
 magnet:?xt=urn:btih:AEB4A3756BDA1F01D02EAC72DA4ECDBAB359ABAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ magnet:?xt=urn:btih:AEB4A3756BDA1F01D02EAC72DA4ECDBAB359ABAC
 ```bash
 magnet:?xt=urn:btih:6DA17CC4AC864995048AD0223BA510E4B4758675
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ Once Upon A Puppet (2025) [Ru/Multi] (2.14.4.1/dlc) License GOG
 magnet:?xt=urn:btih:7B4FCBAAF3DF5F6E8F6F1B8E5354634A9F21FBF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:7B4FCBAAF3DF5F6E8F6F1B8E5354634A9F21FBF5
 ```bash
 magnet:?xt=urn:btih:C17E3C98B96259D458B1932F73820EEBA5B83014
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ MKVToolnix - функциональный набор инструментов д
 magnet:?xt=urn:btih:783017111B8D89573EB1E34BA0CE136EF7C35A23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ Warhammer 40.000: Dawn of War – Dark Crusade (2006) [Ru] (1.20) Repack EXROW
 ```bash
 magnet:?xt=urn:btih:7F1AADB44E34DB594075920C7F0CE744FC38BC2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ Wizard of Legend 2 (2024) [Ru/Multi] (1.0) Repack seleZen
 magnet:?xt=urn:btih:1E79A6A09E6C76A23902F09E77207E0DBD7BF104
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:1E79A6A09E6C76A23902F09E77207E0DBD7BF104
 ```bash
 magnet:?xt=urn:btih:829BCB98E8C0BEDD6DE01E147B1AD4B7D604420E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

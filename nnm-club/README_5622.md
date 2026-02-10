@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C7A25A146982E6EA249D9B09C04EDC2359880EC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:C7A25A146982E6EA249D9B09C04EDC2359880EC8
 ```bash
 magnet:?xt=urn:btih:615530667F4E9E27ED0D4129E1605AF11223D736
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:615530667F4E9E27ED0D4129E1605AF11223D736
 magnet:?xt=urn:btih:CD49F346D9E4773F052F78AEC8984F295AC00002
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Vlad Circus: Descend into Madness (2023) [Ru/Multi] (2.34) License GOG
 ```bash
 magnet:?xt=urn:btih:B128678B347D6705D094AF55EBC5FD9475459721
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:B128678B347D6705D094AF55EBC5FD9475459721
 ```bash
 magnet:?xt=urn:btih:2881367D053CD4E4DAA3416FE46EFC4E7031B049
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Jonathan Bartlett | Programming for Absolute Beginners (2022) [PDF][EN]
 magnet:?xt=urn:btih:332CDD21EC4F523529794F1B9F66E75698D77E86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:332CDD21EC4F523529794F1B9F66E75698D77E86
 magnet:?xt=urn:btih:E94D6BF36AEA0229F1929A05B4E16701B600CC2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Imagenomic Portraiture -  незаменимый фильтр, который п
 ```bash
 magnet:?xt=urn:btih:CDF2A5342C2F4B0E68045F592BED893C654EFB14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Alexander Shuiskov | Microservices with Go (2022) [PDF][EN]
 magnet:?xt=urn:btih:ACF6D0F8C720CCC6F901D16FE9F97EB7C89C5CA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:ACF6D0F8C720CCC6F901D16FE9F97EB7C89C5CA9
 ```bash
 magnet:?xt=urn:btih:5EB48C8172384C08CD2B54E96F93809EA4DCD01A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Umar Keyn - Compilation (2023) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:FB22D9F79B35E76AC4927D8469322099AF45A52F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:B10822F9B3C57F199935F51D725C68F4040DCD9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:B10822F9B3C57F199935F51D725C68F4040DCD9E
 magnet:?xt=urn:btih:D8EE75D33F925200A054562C7C3B1015B62F4EAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:D8EE75D33F925200A054562C7C3B1015B62F4EAF
 ```bash
 magnet:?xt=urn:btih:60B2A1CD5A7318F1C674B8425762AAC467636733
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:60B2A1CD5A7318F1C674B8425762AAC467636733
 magnet:?xt=urn:btih:C930FD75F714D68E899EAAE28581C7FF0A780B7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:C930FD75F714D68E899EAAE28581C7FF0A780B7E
 ```bash
 magnet:?xt=urn:btih:E0CF15D5A811F500D566AFC5A932BB85B730B308
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ Colosseum - 13 альбомов, Box Set (1969 - 2014) 26 CD [FLAC|WavPack|Lossl
 magnet:?xt=urn:btih:69525CEAD01345491ADE13A6217A4BA55F21AF1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:69525CEAD01345491ADE13A6217A4BA55F21AF1C
 magnet:?xt=urn:btih:650D3CA2A5266D3757F3D7CEF2CF5CDCE778FCC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:650D3CA2A5266D3757F3D7CEF2CF5CDCE778FCC0
 ```bash
 magnet:?xt=urn:btih:446224F4A9975618858040CA0AC579C9C62ABCB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ magnet:?xt=urn:btih:446224F4A9975618858040CA0AC579C9C62ABCB3
 magnet:?xt=urn:btih:4E94B30217B5984F12542E4BA652BA42E83C7EF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ magnet:?xt=urn:btih:4E94B30217B5984F12542E4BA652BA42E83C7EF3
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +582,8 @@ magnet:?xt=urn:btih:4E94B30217B5984F12542E4BA652BA42E83C7EF3
 magnet:?xt=urn:btih:0043796B6183705F7126DD30F74C2FD52A7119EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ magnet:?xt=urn:btih:0043796B6183705F7126DD30F74C2FD52A7119EA
 ```bash
 magnet:?xt=urn:btih:439CC68EF9EC82EC5B01108CB09EB0F52DDA9A0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +634,8 @@ magnet:?xt=urn:btih:439CC68EF9EC82EC5B01108CB09EB0F52DDA9A0C
 magnet:?xt=urn:btih:7F2C974A21370917064F50F5C23681510C7CE103
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ magnet:?xt=urn:btih:7F2C974A21370917064F50F5C23681510C7CE103
 ```bash
 magnet:?xt=urn:btih:1698AAE13F2C4F54D0A4E390579199BE63C89FB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +688,8 @@ Incognito - Into You (2023) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz, Funk, Soul
 ```bash
 magnet:?xt=urn:btih:0E93C1241B00F0B5C1B09B0EEE78A89A29E213C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

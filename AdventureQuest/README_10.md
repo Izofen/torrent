@@ -19,6 +19,8 @@ The Sinking City - игра-расследование в мире по моти
 magnet:?xt=urn:btih:35A392AFABC6167D2EA7E6DA150A78E6FEA2C2D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Duck Detective: The Secret Salami (2024) [En] (1.2.5) License GOG
 ```bash
 magnet:?xt=urn:btih:C3874140E5D30283705A1FBFF2E49C2E296AA151
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258 834) Repack seleZen [Deluxe Edit
 magnet:?xt=urn:btih:57467EC5126B96566E6D3E233EF92C73478598E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Gemini Rue / Gemini Rue: Заговор на Барракусе (2011) [Multi] (
 ```bash
 magnet:?xt=urn:btih:4CAE8CC6E2D6D6F39DBB168BC0C79ACBC92D64FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Unavowed (2018) [En] (2.5) License GOG
 magnet:?xt=urn:btih:AE3EDF3490471F8A1F18F571E2F98867671253DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Spirit of the North 2 (2025) [Ru/Multi] (12765) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:1F38A0210B0015F7EBEC4223904D4765851DE42E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Spirit of the North 2 (2025) [Ru/Multi] (12765) Scene Rune
 magnet:?xt=urn:btih:A75940F5ACB0E82ECD9C9F8749DD352E0CD63BE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Mark of the Deep (2025) [Ru/Multi] (1.0.0.0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:F95577A97F7B090EBCFC65B81B22FA7790EC2A71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258 834/dlc) License GOG [Deluxe Edi
 magnet:?xt=urn:btih:2A667A14A99266B3113CC554096E7FC52D21A041
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Midnight Walk (2025) [Ru/Multi] (Build 18383361) Repack seleZen [VR]
 ```bash
 magnet:?xt=urn:btih:06320BA34FB83A5B7D4CFFE0DB3431CE5FE0CE4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Ary and the Secret of Seasons - удостоенная наград приклю
 magnet:?xt=urn:btih:735F82A14BE8DAA6206A72E31487CCB354E84105
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Mark of the Deep (2025) [Ru/Multi] (1.0.0.0.4) Repack Let'sРlay [Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:F1D9063A812546514557701E6608DA146DAAE0AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Cybernetic Fault – сатирическая приключенческая и�
 magnet:?xt=urn:btih:19A7B77CE99FB0302CADDD7A4D872B9E710C8D40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.814.9) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:034BFBE5614EBB875640DD8BC7EFB2FDC1719E6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Womanizer (2024) [Ru/Multi] (1.32/dlc) Repack Other s [18+]
 magnet:?xt=urn:btih:62305DDA9D2900600FA16315A692EAB17856C2CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Last of Us Part II (2) (2025) [Ru/En] (1.3.10430.406/dlc) Repack Decepticon 
 ```bash
 magnet:?xt=urn:btih:7D01B0D8BA60F787876B67F7467F243018C9188D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Cybernetic Fault – сатирическая приключенческая и�
 magnet:?xt=urn:btih:6606F27D8941EAD88358505EE981F3065B007B84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Journey to the Savage Planet (2021) [Ru/Multi] (1.0.10/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:4FE5AC4870BD34214532BB6B709FBC1F06D3176D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Card Summoner (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:40A3449CB38B9D488780B2A8AAC2B4F32C72A7B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Mother Hub (2025) [En] (16) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:11EB7CDD346A4330AD9357642B7C5DBA4CADF3A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (2.00.128634) Repack FitGirl [Soundt
 magnet:?xt=urn:btih:D5DB777EBF81CAA11A959C5F7B5C1C09B5776F2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Back: Fade представляет собой хоррор с живыми ак
 ```bash
 magnet:?xt=urn:btih:EB5AF53B5248EA88D36DE103CC9578E797822341
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Inspector Schmidt - The Ebbing помещает пользователя в ро
 magnet:?xt=urn:btih:E32BAFF23C757C9982911871D0FBDD8FD4154535
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ DON'T WATCH - это психологический хоррор от перво
 ```bash
 magnet:?xt=urn:btih:E5EDF521909EA6EC9B8EC26671226CFA4591A377
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Skogdal (2025) [Ru/Multi] (0.9.12) Repack FitGirl
 magnet:?xt=urn:btih:6EF3255CCDA6A4D96FE1B78F1B7A2B204C160C41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (2.00.128634) Repack Other s [Soundt
 ```bash
 magnet:?xt=urn:btih:055C6C96A51B5712D2B5487E044C7AAD931B3ECC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

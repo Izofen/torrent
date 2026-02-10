@@ -1,3 +1,34 @@
+###  Публикация: 167638   (500970) от 31.08.2012
+
+Разрушители рок-мифов / The Rock and Roll Acid Test (2008) SATRip
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_500970.jpg" />
+</div>
+
+
+###  Подробнее
+
+На тропу войны выходят четыре фаната рок-н-ролла. Ради музыкальной правды они готовы на все, что угодно. Приготовьтесь, рок-н-ролл будет проверяться на множество беспощадных тестов.
+
+Отчаянные герои нового шоу на MTV «Разрушители рок-мифов» будут проверять все стереотипы и мифы, которые сложились вокруг многолетней истории рок-н-ролла.
+Что общего у сексуальных танцовщиц с жесткой рок-музыкой? Правда ли, что танцовщицы – самые лучшие музы? Может ли музыка настроить людей на секс? Правда ли, что клубы не только привлекательны, но и опасны? Может ли музыка контролировать мозг, а ди-джей – толпу? Влияет ли неправильный образ жизни на концертные выступления?
+
+От вдохновенных танцовщиц до эпидемий в клубах, наши герои проверят самые сексуальные и психоделические рок-мифы.Жанр: Документальный, ТелепередачаПеревод: Двухголосый закадровый, профессиональныйПродолжительность: 7 серий по ~ 00:20:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934884   (500999) от 06.09.2015
 
 Воскресный вечер с Владимиром Соловьевым (2015.09.06) SATRip
@@ -18,6 +49,8 @@
 ```bash
 magnet:?xt=urn:btih:92970FCDECD8F39F6678C6CEB448BE7C04B3D67C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +75,8 @@ magnet:?xt=urn:btih:92970FCDECD8F39F6678C6CEB448BE7C04B3D67C
 ```bash
 magnet:?xt=urn:btih:BCC48FC0E1EBAC3CF29586EFF0B0D58CE8DAD813
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +103,8 @@ magnet:?xt=urn:btih:BCC48FC0E1EBAC3CF29586EFF0B0D58CE8DAD813
 magnet:?xt=urn:btih:1215E82CBCBCA8F17B9AC238CE10E5502A827FCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +128,8 @@ magnet:?xt=urn:btih:1215E82CBCBCA8F17B9AC238CE10E5502A827FCF
 ```bash
 magnet:?xt=urn:btih:CC9A01880747FE50CDCCABED857122F6D3DAC78C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +155,8 @@ magnet:?xt=urn:btih:CC9A01880747FE50CDCCABED857122F6D3DAC78C
 magnet:?xt=urn:btih:8A94A0D0D176D90E57A4885027E55FAC7564372D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +180,8 @@ magnet:?xt=urn:btih:8A94A0D0D176D90E57A4885027E55FAC7564372D
 ```bash
 magnet:?xt=urn:btih:2034D29AB563FDBD2C716FC22C6B48ACD3E05DD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +207,8 @@ magnet:?xt=urn:btih:2034D29AB563FDBD2C716FC22C6B48ACD3E05DD0
 magnet:?xt=urn:btih:8FB7DB93E7787AA0F9C2D548B6FF533BBC3E98F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +232,8 @@ magnet:?xt=urn:btih:8FB7DB93E7787AA0F9C2D548B6FF533BBC3E98F7
 ```bash
 magnet:?xt=urn:btih:732629595CCEA35E2AD101B8BEF4322277662F63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +260,8 @@ magnet:?xt=urn:btih:732629595CCEA35E2AD101B8BEF4322277662F63
 magnet:?xt=urn:btih:FC5166A2216BF1C5F39F7E6A440F0754B82F30DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +285,8 @@ magnet:?xt=urn:btih:FC5166A2216BF1C5F39F7E6A440F0754B82F30DE
 ```bash
 magnet:?xt=urn:btih:FDE45125FB98A85791F5B93A1E81184734E378C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +312,8 @@ magnet:?xt=urn:btih:FDE45125FB98A85791F5B93A1E81184734E378C1
 magnet:?xt=urn:btih:93AF7D861E11BB0CE52E58A422A68B020B38A2B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +337,8 @@ magnet:?xt=urn:btih:93AF7D861E11BB0CE52E58A422A68B020B38A2B3
 ```bash
 magnet:?xt=urn:btih:BA759BDCA6BA8478AC0AB2B5D907C7254795ACEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +364,8 @@ magnet:?xt=urn:btih:BA759BDCA6BA8478AC0AB2B5D907C7254795ACEF
 magnet:?xt=urn:btih:D718B2F6DAADCD1481731883ABC27C863A3FE64E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +389,8 @@ magnet:?xt=urn:btih:D718B2F6DAADCD1481731883ABC27C863A3FE64E
 ```bash
 magnet:?xt=urn:btih:93A85407B0C0B0590B4AF64249E8DDB92B58E4AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +416,8 @@ magnet:?xt=urn:btih:93A85407B0C0B0590B4AF64249E8DDB92B58E4AD
 magnet:?xt=urn:btih:1B8077D4B69EB9BB559C48374D27BB9ACFFFBACC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +441,8 @@ magnet:?xt=urn:btih:1B8077D4B69EB9BB559C48374D27BB9ACFFFBACC
 ```bash
 magnet:?xt=urn:btih:3F9E906B81F48F01461DF7E3A2E604C118379B32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +468,8 @@ magnet:?xt=urn:btih:3F9E906B81F48F01461DF7E3A2E604C118379B32
 magnet:?xt=urn:btih:D81379D568CD8EF2E4FE9BBE15CF3A3E3BC8B22F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +493,8 @@ magnet:?xt=urn:btih:D81379D568CD8EF2E4FE9BBE15CF3A3E3BC8B22F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +520,8 @@ magnet:?xt=urn:btih:D81379D568CD8EF2E4FE9BBE15CF3A3E3BC8B22F
 magnet:?xt=urn:btih:396510AD2D0126905F7395454CD43B386B49C964
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +545,8 @@ magnet:?xt=urn:btih:396510AD2D0126905F7395454CD43B386B49C964
 ```bash
 magnet:?xt=urn:btih:15AB3FD0380B02E55459C6AD4F9DED45ACFA3E7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +573,8 @@ magnet:?xt=urn:btih:15AB3FD0380B02E55459C6AD4F9DED45ACFA3E7D
 magnet:?xt=urn:btih:92A1D2FC1D0CBF38D1900F7505E9CA67C38DA0C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +600,8 @@ magnet:?xt=urn:btih:92A1D2FC1D0CBF38D1900F7505E9CA67C38DA0C0
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +625,8 @@ magnet:?xt=urn:btih:92A1D2FC1D0CBF38D1900F7505E9CA67C38DA0C0
 ```bash
 magnet:?xt=urn:btih:E6D0305EC1887DB6D139A674027A3D1CBBB2D91F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +652,8 @@ magnet:?xt=urn:btih:E6D0305EC1887DB6D139A674027A3D1CBBB2D91F
 magnet:?xt=urn:btih:94C98ECF90C97F6926F88DE33C2992D3D4402AD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,29 +678,7 @@ magnet:?xt=urn:btih:94C98ECF90C97F6926F88DE33C2992D3D4402AD4
 magnet:?xt=urn:btih:E9A31AA1E49653993C070D4D8E243117677534E2
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934379   (501985) от 05.09.2015
-
-Голос. Сезон №4. Выпуск №1 (2015.09.04) HDTVRip
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501985.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Первый канал" объявляет о премьере нового сезона музыкального проекта "Голос". Из тысяч претендентов, приславших минувшим летом свои заявки на участие, отобраны полторы сотни тех, кто поднимется на ставшую уже знаменитой на всю страну сцену во время "слепых прослушиваний" в надежде покорить слух требовательных наставников. Зрителей (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТВ-Шоу, развлекательныйПродолжительность: ~ 01:52:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3E46D003EAA90788DB8DC2B9367F424C10C1B55
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

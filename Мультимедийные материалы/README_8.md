@@ -28,6 +28,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ DVD приложение к журналу «ComputerBild» - крупнейше
 ```bash
 magnet:?xt=urn:btih:05022B91FD0008D32C207896767A8A78EAD7D856
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -77,6 +81,8 @@ DVD Приложение к журналу Хакер № 9 (164) Сентябр
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ DVD Приложение к журналу Хакер № 9 (164) Сентябр
 ```bash
 magnet:?xt=urn:btih:1D6BF34620AA0700370430EFDDE2DE31664F74DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:1D6BF34620AA0700370430EFDDE2DE31664F74DB
 magnet:?xt=urn:btih:DA1D68BCB0F5323875CA6DE109DA21AB706DE442
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ Chip — первый компьютерный журнал в Европе, с�
 ```bash
 magnet:?xt=urn:btih:37E93EC83A4ED32A6AB499022172B2FA97BA5999
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ magnet:?xt=urn:btih:37E93EC83A4ED32A6AB499022172B2FA97BA5999
 magnet:?xt=urn:btih:D4473445E8265E6CFAC98673791FB182B621F06C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -206,6 +220,8 @@ CodeIgniter - мощный и быстрый PHP-фреймворк для со�
 magnet:?xt=urn:btih:39F76F2EA7F5E015E738D623BE372812DB382DD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -230,6 +246,8 @@ magnet:?xt=urn:btih:39F76F2EA7F5E015E738D623BE372812DB382DD5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -257,6 +275,8 @@ magnet:?xt=urn:btih:39F76F2EA7F5E015E738D623BE372812DB382DD5
 magnet:?xt=urn:btih:E0CCBA7C0F19338236C2C678A6D2B73144323911
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ SoftBeep | Современные пистолеты. Познавательна
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +330,8 @@ SoftBeep | Современные пистолеты. Познавательна
 magnet:?xt=urn:btih:030B65000DC5E2144E92C4697E48F7D162833551
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +357,8 @@ magnet:?xt=urn:btih:030B65000DC5E2144E92C4697E48F7D162833551
 ```bash
 magnet:?xt=urn:btih:FD5A37F89C9A576F19D51F045CFF3128AA72FA5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +386,8 @@ magnet:?xt=urn:btih:FD5A37F89C9A576F19D51F045CFF3128AA72FA5E
 magnet:?xt=urn:btih:AEFD1CED1FC851F38552C783A82C4AEF2C63C0FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +411,8 @@ DVD-диск "Консультант Плюс: Высшая школа" пред
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +441,8 @@ DVD-диск "Консультант Плюс: Высшая школа" пред
 magnet:?xt=urn:btih:8A9588D972E2645C403985C219C5C6CCD7D8D06D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +466,8 @@ WebForMySelf | Фреймворк NuxtJS. Руководство по Full-Stack
 ```bash
 magnet:?xt=urn:btih:BE362DB457BEA4300E85F33841C08DE36CDA6B40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +493,8 @@ magnet:?xt=urn:btih:BE362DB457BEA4300E85F33841C08DE36CDA6B40
 magnet:?xt=urn:btih:E2EB2E613E9BEF35566883B499551A1BCD061DC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +518,8 @@ magnet:?xt=urn:btih:E2EB2E613E9BEF35566883B499551A1BCD061DC1
 ```bash
 magnet:?xt=urn:btih:A6AC688D38653DB748093A9E2D727D14C7AB9A6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +545,8 @@ CSS Grid — это мощная новая технология в верстк
 magnet:?xt=urn:btih:23B98D747ACADB90BB53D96C81693918C4994192
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +570,8 @@ DVD приложение к журналу «Computer Bild» – крупней�
 ```bash
 magnet:?xt=urn:btih:1551BD7398615EC8A64C12D3E2B9673B53C8F6C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +598,8 @@ magnet:?xt=urn:btih:1551BD7398615EC8A64C12D3E2B9673B53C8F6C2
 magnet:?xt=urn:btih:E3ABA0CCAD586E9552FEE442F07A26128EDCAA33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +623,8 @@ Chip — первый компьютерный журнал в Европе, с�
 ```bash
 magnet:?xt=urn:btih:FE0002C26134584765559E0FB40809A44CD2237C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +650,8 @@ magnet:?xt=urn:btih:FE0002C26134584765559E0FB40809A44CD2237C
 magnet:?xt=urn:btih:B6CF8A086ECBCD7375B84B2915BB1656959DEDB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ magnet:?xt=urn:btih:B6CF8A086ECBCD7375B84B2915BB1656959DEDB9
 ```bash
 magnet:?xt=urn:btih:FEEE9AAB89E73C7EDF2B8B74080A30D884A9A467
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -657,6 +707,8 @@ magnet:?xt=urn:btih:FEEE9AAB89E73C7EDF2B8B74080A30D884A9A467
 ```bash
 magnet:?xt=urn:btih:55D258C2A4E2DF339AA16E991BB51B38B7C2ED07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

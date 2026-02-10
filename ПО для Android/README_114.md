@@ -19,6 +19,8 @@ RAR компании RARLAB способен создавать RAR и ZIP и р
 magnet:?xt=urn:btih:635A1CE915ADEBB0C188D6D63F95D32E05F88DA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Relax Sea ~ Ocean Sounds PRO v5.3.1 [Ru/Multi] - Расслабьтесь с л�
 ```bash
 magnet:?xt=urn:btih:169FDF2F516205518F7764A4079059EEB4093233
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Relax Night ~ Nature Sounds PRO v4.4.0 [Ru/Multi] - Отдых с лучшими
 magnet:?xt=urn:btih:609CA79D50BF6077E10B58EB01EDE5849D69898A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Relax Mountain ~ Nature Sounds PRO v4.3.1 [Ru/Multi] - Расслабьтесь 
 ```bash
 magnet:?xt=urn:btih:0604319763A74CAFD0D6B616A5A2807E76223E48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:0604319763A74CAFD0D6B616A5A2807E76223E48
 magnet:?xt=urn:btih:3BA871F0F76D64E4D0FE31F61EC87FCA08578CF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ FolderSync Pro v3.1.1 [Ru/Multi]
 magnet:?xt=urn:btih:E4A15977DE4BC7162C4F8E705CF874C51801306A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:E4A15977DE4BC7162C4F8E705CF874C51801306A
 ```bash
 magnet:?xt=urn:btih:62E34B70B3D1C602E6346C00F23302EECFCA22A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:62E34B70B3D1C602E6346C00F23302EECFCA22A7
 magnet:?xt=urn:btih:7BE8417177EA3381B9A4EFC066116AE76C4F4E21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ MultiNotes v2.10 [Ru/Multi] - удобные Заметки с напомина�
 ```bash
 magnet:?xt=urn:btih:03E221BC79C7CAB14F9B99538EB355A5B4C9BE47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ Scan - QR and Barcode Reader v2.3 [En/Ru] - Сканирование QR и сч�
 magnet:?xt=urn:btih:08F6BDF1AC3B4ABE01374B162D81802F58E57819
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ Wunderlist: To-Do List & Tasks Pro 3.4.19 [Ru]
 magnet:?xt=urn:btih:D545BAA0B74AD35A856F9742510F2FB8349E3E8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ Chromatix - это мощное мобильное приложение, кот�
 ```bash
 magnet:?xt=urn:btih:B87B51C2B50F199272B0F390CC24764156964229
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ Magisto удивит красивыми фильмами, которые эта 
 magnet:?xt=urn:btih:C8C31D18ADD177ED6D854F68DF3238D0FB8CEB2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ Parallel SpaceMulti Accounts v4.0.8934 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:83B634127B68F9EADB3BDFEE5F9BC04C95FFEA58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ The Meridian v2.0 [En] - 3D-модель человеческого тела с 
 magnet:?xt=urn:btih:642495FCAEB45EE37633854E9F1D55F522269245
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ Notify & Fitness for Amazfit v9.0.4 [Ru/Multi] - Программа для ум�
 ```bash
 magnet:?xt=urn:btih:C7E6EBDF470A8E4E822780633C974392A3C939D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ WiFi Map 3.2.1 [Ru]
 magnet:?xt=urn:btih:97C351CC1F3D6205024C6C9BC663338EB598C5C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ Youtube AdAway 3.5.0 [Ru] - Блокировка рекламы с YouTube
 ```bash
 magnet:?xt=urn:btih:3BAD9A1319D30426D013D0B976816AF2E41B42E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:3BAD9A1319D30426D013D0B976816AF2E41B42E5
 magnet:?xt=urn:btih:DAFCE0560423A355229F57B94491207E38B7B25A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ Password Depot For Android 14.0.2 [En]
 ```bash
 magnet:?xt=urn:btih:4DAE66EA8E131A9AFAE5D80975B13EA65AFD74C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ Snipback - Lifehacker smart voice recorder PRO HD 1.00 [Ru/En]
 magnet:?xt=urn:btih:0BFAEF93F5A5FFC1087F94AC86A3671639976348
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ MT File Manager 13.03.16 (Mod) [Ru] - Файловый менеджер с ра�
 ```bash
 magnet:?xt=urn:btih:754DFD6682F43B9781ED16B0E8FD832551C4573E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:754DFD6682F43B9781ED16B0E8FD832551C4573E
 magnet:?xt=urn:btih:0E07C81F66C52D00A48950DABB2D00D58ACCE506
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ magnet:?xt=urn:btih:0E07C81F66C52D00A48950DABB2D00D58ACCE506
 ```bash
 magnet:?xt=urn:btih:92B23A41590EB0199D2B1AB9CED5FD4D143E39AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ magnet:?xt=urn:btih:92B23A41590EB0199D2B1AB9CED5FD4D143E39AE
 magnet:?xt=urn:btih:A35A226229910E09DF241B5B7E7986D7438F8C07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Notify & Fitness for Mi Band – приложение для фитнес-бра
 ```bash
 magnet:?xt=urn:btih:7BE0E6AE6538B353A0EFFCB77B6D3B53205B70DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

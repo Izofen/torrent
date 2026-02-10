@@ -28,6 +28,8 @@ Debbie Davies - All I Found (2005) [MP3|320 кб/с]<Blues>
 magnet:?xt=urn:btih:66DE25B9333D6E8983B12823C61F4EE963F6258E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ Coleman Hawkins And His All-Stars - Timeless Jazz (1955) 2007, Membran Music [FL
 ```bash
 magnet:?xt=urn:btih:982AF6AB71E567EBBD70D8BA35F2FAB3C6E08FE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ Art Van Damme - Keep Going & Blue World (1970) 1995, Universal [FLAC|Lossless|tr
 magnet:?xt=urn:btih:A35D57B33B1B3BAECD6D6F750CCB7DBB312C9531
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ Howard Rumsey’s Lighthouse All Stars - Sunday Jazz a la Lighthouse (1953) 2007
 ```bash
 magnet:?xt=urn:btih:3E3DB9F92B4FFED8AAA1E07D8D99AECD4B929348
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +150,8 @@ Jack Jezzro - The Beatles on Guitar (1999) [FLAC|Lossless]<Jazz>
 magnet:?xt=urn:btih:2085D799C7DD09ACC84F1018E2D7D0B5E261AD0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +178,8 @@ Stanley Turrentine - Sugar (1970) 1987, CBS [APE|Lossless|image + .cue] <Hard Bo
 ```bash
 magnet:?xt=urn:btih:A9699D508E702E300D62140CD9DC6FBEA350B00E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +208,8 @@ VA - Saturday Night Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:B02D977A23592AB6591A34783810A28A4F1CC564
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +236,8 @@ Tony Joe White - Closer To The Truth (1991) [APE|Lossless|image + .cue] <Blues R
 ```bash
 magnet:?xt=urn:btih:8E0AA688836752E16DF74DA13F94C993C10026C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +270,8 @@ Conrad Herwig - A Voice Trough The Door (2012) [FLAC|Lossless]<Post-Bop, Contemp
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +298,8 @@ VA - A Smooth Jazz Christmas (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth 
 ```bash
 magnet:?xt=urn:btih:731700797E537C5E5C5F1005A16CB10062F34860
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +334,8 @@ Tom Scott - Masterpieces - Best Of The GRP Years (Jazzclub) (2013) [FLAC|Lossles
 magnet:?xt=urn:btih:DEDA853E1FFA12D13EB9E970CEC89631E217091E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +362,8 @@ Erroll Garner - 1952-1953 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 ```bash
 magnet:?xt=urn:btih:12536CD1AE2549201ECD83B38E39FF91B7ED83B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +398,8 @@ Denis Solee - Blues in the Night (2010) [FLAC|Lossless]<Jazz>
 magnet:?xt=urn:btih:A3C2D7CDD20D5C8524D0E157F79AEF73A73A7D58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +433,8 @@ Lefteris Mikalis - Jazz Cocktails (2013) [MP3|320 кб/с]<Smooth Jazz>
 magnet:?xt=urn:btih:EAFB827E148E3ACD47AA10A162B166E4E181B563
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +461,8 @@ Fiona Boyes - Professin' The Blues (2016) [MP3|320 Kbps] <Blues>
 ```bash
 magnet:?xt=urn:btih:82ACBDD11E1173BDD6B26C8845635777D833DD63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +497,8 @@ Joya Mooi - Crystal Growth (2013) [MP3|320 кб/с]<Jazz, Vocal Jazz>
 magnet:?xt=urn:btih:B5E213B707445F23DC097C8329FE4A1879A07A24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +525,8 @@ Willis Jackson - Bar Wars (1977) 1989, Muse Records [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:EB6355CFC3CBE234E030627EA4FC330C1E941D89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +555,8 @@ Grant Green - Remembering (1961) 2013, Essential Jazz Classics [FLAC|Lossless|tr
 magnet:?xt=urn:btih:3A33533CE82EE4A6C7E7269DB8557B70189D19D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +583,8 @@ Dave Hole - Outside Looking In (2001) [FLAC|Lossless|image + .cue] <Blues Rock, 
 ```bash
 magnet:?xt=urn:btih:88FDF6ACAC5BAE338B13EB4C99E68AFE0D932E67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +613,8 @@ Rob Orlemans & Half Past Midnight - Libertyville (2007) [APE|Lossless|image + .c
 magnet:?xt=urn:btih:D593573B128F5C48791C74F8EC54FC537E9B3545
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +641,8 @@ VA - How Low Can You Go? (1993) Timeless Records[FLAC|Lossless|image + .cue] <Ma
 ```bash
 magnet:?xt=urn:btih:1149FA4B7DFC892CF0D40ECD3A0382420A5506DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +671,8 @@ J.J. Johnson - Quintergy: Live At The Village Vanguard (1988) 1991, Island Recor
 magnet:?xt=urn:btih:140290B57C816E6132254054342B70C18AE4A18F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +699,8 @@ Lee Morgan - Last Album (1971) Remaster, 2014, Universal[FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:E6A49235346EAF91045731D797C8EEFC4B0DCD49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -683,6 +729,8 @@ Enrico Rava & Enrico Pieranunzi - Nausicaa (1993) Egea[FLAC|Lossless|image + .cu
 magnet:?xt=urn:btih:01BE8E96470B6FE4F76843BA79B6BE7E2D8A7F21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -710,6 +758,8 @@ Yusef Lateef - Autophysiopsychic (1977) 2003, Sony Music[FLAC|Lossless|tracks + 
 magnet:?xt=urn:btih:C8C13987115339A16675A4B416A2553E65BE642D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -736,6 +786,8 @@ VA - Jazz Moods Volume 1 (1993) Jazz World[FLAC|Lossless|image + .cue] <Swing, B
 ```bash
 magnet:?xt=urn:btih:293548DF310BC5B54507304D03EF36D0FF51BF1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

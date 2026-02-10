@@ -19,6 +19,8 @@ Udemy, Alan Ayoubi | After Effects Animated Graphics Beast (2020) WEB-DL [AD] [E
 magnet:?xt=urn:btih:438CE502836F367B7B06D6FA3837323F2DC62A57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Udemy, Serge Lansiquot | Learn C++ Programming by Making Games, Volume 1 (2022) 
 ```bash
 magnet:?xt=urn:btih:9A43ED77A44E5DE22D2F18DB473BAAFE310B4B10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:9A43ED77A44E5DE22D2F18DB473BAAFE310B4B10
 ```bash
 magnet:?xt=urn:btih:EED034594D6C11494514941BB582739BED1909F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:EED034594D6C11494514941BB582739BED1909F8
 magnet:?xt=urn:btih:D08A8BA5BF13B23CEE3B34841FB54243681DD0D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:D08A8BA5BF13B23CEE3B34841FB54243681DD0D3
 ```bash
 magnet:?xt=urn:btih:86FFDA3965E8C60983A6B13F6C512391C60FDB0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:86FFDA3965E8C60983A6B13F6C512391C60FDB0D
 magnet:?xt=urn:btih:F7780B6E88AE65BAC7275D6C4CE70E8F01BDD858
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +189,8 @@ magnet:?xt=urn:btih:F7780B6E88AE65BAC7275D6C4CE70E8F01BDD858
 magnet:?xt=urn:btih:A9802F42F3AEF215B5051071BED4845A89E62DB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ DESIGNLINE, Сергей Гуров | Поиск и реализация виз�
 magnet:?xt=urn:btih:F153BB3E90F2B39AA036A81B7B563D8439CD0753
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ Class101, Studio Pants | Retro Video Game Like Illustrations: Pixel Art for Begi
 ```bash
 magnet:?xt=urn:btih:2D0DCBCABB69C7AC45901D86C30EC0D6F7C5FB12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ Proprofiling, Алексей Филатов | Социальная инжене�
 magnet:?xt=urn:btih:5A3CA27FA614A8597D2FCF9398345A79843CAC1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ Skillshare, Jake Fleming | Vector To Pixel Art (2020) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:BEA8667941687256044B171D30358349002AC8CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:BEA8667941687256044B171D30358349002AC8CE
 magnet:?xt=urn:btih:9308FA9C6C03ABA70E93C4429D737F6D2A472C26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ magnet:?xt=urn:btih:9308FA9C6C03ABA70E93C4429D737F6D2A472C26
 ```bash
 magnet:?xt=urn:btih:C714EC6C1F1C5F04441BB0B48D6FD7DA38FC219E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +382,8 @@ magnet:?xt=urn:btih:C714EC6C1F1C5F04441BB0B48D6FD7DA38FC219E
 magnet:?xt=urn:btih:8AF1FE791092F11FDBAB89901B2BFDAAED587E19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +409,8 @@ magnet:?xt=urn:btih:8AF1FE791092F11FDBAB89901B2BFDAAED587E19
 ```bash
 magnet:?xt=urn:btih:6AA710A4CAAA61921C25B6391A849D4CD815556B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +439,8 @@ magnet:?xt=urn:btih:6AA710A4CAAA61921C25B6391A849D4CD815556B
 magnet:?xt=urn:btih:BCF0CBF0CE01BC581ED4BD25C6553CB7118DC5F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +465,8 @@ magnet:?xt=urn:btih:BCF0CBF0CE01BC581ED4BD25C6553CB7118DC5F4
 magnet:?xt=urn:btih:432A40AE57818DC1DA148E0CA32F53830E98A8A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +490,8 @@ magnet:?xt=urn:btih:432A40AE57818DC1DA148E0CA32F53830E98A8A6
 ```bash
 magnet:?xt=urn:btih:A72B367F8E52C06935157795AC75255489FFFB03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +519,8 @@ magnet:?xt=urn:btih:A72B367F8E52C06935157795AC75255489FFFB03
 magnet:?xt=urn:btih:358147419DDF211547E6812CB37EEC971BFFF363
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +547,8 @@ Skillshare, Derek Davidson | 3D Creature Modeling with Nomad Sculpt (2023) WEB-D
 magnet:?xt=urn:btih:7242D795FACCAC37238C6D6805E8D18EB4747F0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +574,8 @@ magnet:?xt=urn:btih:7242D795FACCAC37238C6D6805E8D18EB4747F0A
 magnet:?xt=urn:btih:A8661FA06DED68F19337624E239706EADFA10E1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +599,8 @@ magnet:?xt=urn:btih:A8661FA06DED68F19337624E239706EADFA10E1C
 ```bash
 magnet:?xt=urn:btih:A2F0431EA8718E11478A4B3A751466ED0C3A307A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +628,8 @@ magnet:?xt=urn:btih:A2F0431EA8718E11478A4B3A751466ED0C3A307A
 magnet:?xt=urn:btih:07FE8762EAB334E019EB150EF317C9AE29937CEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +654,8 @@ Udemy, John Thompson | Spring Framework 6: Beginner to Guru (2023) WEB-DL [EN / 
 magnet:?xt=urn:btih:57503DEAE407F06579C577A98CD44E9B78B33BF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +679,8 @@ magnet:?xt=urn:btih:57503DEAE407F06579C577A98CD44E9B78B33BF8
 ```bash
 magnet:?xt=urn:btih:443AA2F719EBA80D833C13B7A284E934A4B44EEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -658,6 +708,8 @@ magnet:?xt=urn:btih:443AA2F719EBA80D833C13B7A284E934A4B44EEC
 ```bash
 magnet:?xt=urn:btih:F8952F5F12948CD8AE209FCD4E3AC08D4F1E3C74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

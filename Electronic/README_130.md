@@ -22,6 +22,8 @@ VA - Psytrance 2020: Top 100 Hits DJ Mix (2019) [MP3|320 Kbps] <PsyTrance, Psych
 magnet:?xt=urn:btih:84731215B6662AEC1766FA397C0D017203CCFADE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - X Mas Party Vol.1 (2018) [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:0F8550590976B80F1D0AC1ABFAAA847FA3BC4298
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Entheogenic - A Singularity Encoded (2015) [FLAC|Lossless|WEB-DL|tracks] <Psychi
 magnet:?xt=urn:btih:5920F8FA0E752860BF8702B1DF78DBBB560FABDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Black Hole Trance Music 11-20 (2020) [MP3|320 Kbps] <Trance, Uplifting Tran
 ```bash
 magnet:?xt=urn:btih:6AE217DBDC3FAF6D0DA5C4DCCB879AEFA5049FF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - 40 Top Downtempo & Ambient Chillout Hits 2016 (2015) [MP3|320 кб/с] <Dow
 magnet:?xt=urn:btih:F337FFDC3015B5C058C862EC146DCD72FFDABB2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Hot All Night Erotic Background Chill out Lounge Music for Lovers (2016) [M
 ```bash
 magnet:?xt=urn:btih:93F4C35A56C320047AFB0701A2BC0A55C82C32C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Summer Vibes 2023: Best of Deep Tropical House (2023) [MP3|320 Kbps] <House
 magnet:?xt=urn:btih:4F5F97BAEA1630B1E7FFA984C31A983B27725BAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Mojito Lounge Beats 2023: Best of Tropical & Deep House (2023) [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:F620F557F18665D5CC928DCB48E2A5B22B83DFDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ V.A. - Cafe Del Mar: Dreams XI (2019) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chi
 magnet:?xt=urn:btih:512EE6B579BCD85A6A7AFD48E14FF4DFE16762FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Outsiders - Be As You Are (2019) [FLAC|Lossless|WEB|tracks] <Psy-Trance>
 ```bash
 magnet:?xt=urn:btih:C374B2060D47E195EB03FF064E7D8C17F142D856
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Fejka - Reunion (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno, De
 magnet:?xt=urn:btih:9E428EEFF33E1E17FF047C86FFCBBD2AE0545BB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Schiller - Zeitreise - Das Beste Von Schiller (Limited Ultra Deluxe Edition) (20
 ```bash
 magnet:?xt=urn:btih:556E3698B2D340B8D3F3A28030392BB131BAAD01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Koto - Return Of The Dragon (2021) [MP3|320 Kbps] <Spacesynth>
 magnet:?xt=urn:btih:091C6855EF48C57226BBC60E0EACBA562936F8E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Erotica Vol.4 Most Erotic Smooth Jazz and Chillout Music (2018) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:91A509A353AD770D489E0B1BD6C38D76B0BE7590
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Magic Boom, Pt. 2 (2018) [MP3|320 Kbps] <Psytrance, Psychedelic, Trance>
 magnet:?xt=urn:btih:5EBE19BF5DB014AD48071590F702EBEE097CCD60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +454,8 @@ Tineidae - Discography 17 Releases (2012-2020) CRL Studios, Tympanik Audo [FLAC|
 ```bash
 magnet:?xt=urn:btih:B4AF0A1418F755C2CC0650461790A14C5EFA0825
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +484,8 @@ GARRISON (Игорь Савосин) - 3 альбома (2017, 2021) [FLAC|Lossl
 magnet:?xt=urn:btih:D25A17F055472643294272D38BF852B0F8CC1410
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +512,8 @@ The Higher Intelligence Agency (HIA, H.I.A.) - Discography 22 Releases (1993-202
 ```bash
 magnet:?xt=urn:btih:FD3D991F7C7036A0AD0231CC38024E36BEBE5652
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +542,8 @@ VA - Buddha Bar: The Ultimate Chillout Lounge Collection (2018) [FLAC|Lossless|t
 magnet:?xt=urn:btih:A874BC36DB56102E3954353DDB3432B782BAD0DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +570,8 @@ Leaether Strip - Last Station (2023) [FLAC|Lossless|image + .cue] <EBM, Industri
 ```bash
 magnet:?xt=urn:btih:77E548079A4A90954E726C64C5F5864B4148CC3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +600,8 @@ VA - Black Hole Trance Music 08-23 (2023) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:7E775ED397F36CF8989972228B1374220BE0B12A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +628,8 @@ VA - Black Hole House Music 08-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 ```bash
 magnet:?xt=urn:btih:E0E03843DED2FA94DE012813B52F5EE5CDB4E3C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +658,8 @@ Eguana - Nearness (2022) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Psychill, Downt
 magnet:?xt=urn:btih:36825758F321F8A141B6579E400963C13D39F504
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +686,8 @@ Lazarus Moment - A Moment for Eternity (2018) Nucifera Records [FLAC|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:5ECC93372823840E5124689CE67464F9A2714CD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -668,6 +716,8 @@ Synth Sense - Discography 12 Releases (2010-2015) Auxiliary [FLAC|Lossless|track
 magnet:?xt=urn:btih:6BA7A9ED573AEA216A6FAE6AA51B7BB0F0EB9700
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,6 +744,8 @@ VA - Uplifting Only Top 15: October (Extended Mixes) (2022) [MP3|320 Kbps] <Tran
 ```bash
 magnet:?xt=urn:btih:64FB959FEE481AA811B0126E9D693B67F6F67D95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

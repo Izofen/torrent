@@ -22,6 +22,8 @@ Djrum - Under Tangled Silence (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Mode
 magnet:?xt=urn:btih:EDE2FAF75C81E688CA200EE4044EEB4A686C7407
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Samael - Passage (1996) Released, 2011, Floga Records [FLAC|24/192|image + .cue|
 ```bash
 magnet:?xt=urn:btih:AE2468F6BBB35BE34D3D4BE5A749CDE8902495FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Carolyn Wonderland - Truth Is (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Blue
 magnet:?xt=urn:btih:068A7ADF73F39D28963436FA52B2B0A36D7285FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Omegaman - Pillow Talk (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic,
 ```bash
 magnet:?xt=urn:btih:CB8EC160A4A884411EB26D1B7FB09FD6BEE53888
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Mississippi Shakedown - Play You Now, Dig You Later (2025) [FLAC 24/44.1|Lossles
 magnet:?xt=urn:btih:D8F8AE157376781C43277315860A23B45633675A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Citadel - Descension (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Met
 ```bash
 magnet:?xt=urn:btih:B4987827D8CD0853F044DED8B33DD13ABFADB23C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Child Sized Coffin - Feast (2025) [MP3|320 Kbps] <Death Metal>
 magnet:?xt=urn:btih:BECD5D61E8EEB81837F1D1689D0A436954FDA87A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ magnet:?xt=urn:btih:BECD5D61E8EEB81837F1D1689D0A436954FDA87A
 ```bash
 magnet:?xt=urn:btih:4B43C1CD389AE650FD366E27FD6D074F9CCEF6E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -232,6 +248,8 @@ magnet:?xt=urn:btih:4B43C1CD389AE650FD366E27FD6D074F9CCEF6E7
 magnet:?xt=urn:btih:97056A4B00E66E2ACD6CAD689529E6BD962854BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +273,8 @@ magnet:?xt=urn:btih:97056A4B00E66E2ACD6CAD689529E6BD962854BF
 ```bash
 magnet:?xt=urn:btih:D2B7875EE4DC2FF118EF51E221CFAEAE920E8AD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +303,8 @@ VA - Music News For Forum vol.089 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:677D91FABF07538BC99FB3BE71E7E1B713214028
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +328,8 @@ magnet:?xt=urn:btih:677D91FABF07538BC99FB3BE71E7E1B713214028
 ```bash
 magnet:?xt=urn:btih:F34A27484540279B2208D79E0677690028518B89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +355,8 @@ magnet:?xt=urn:btih:F34A27484540279B2208D79E0677690028518B89
 magnet:?xt=urn:btih:2F74E15CB1212B18E143F3E83AAC08294B40A549
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ FBReader Premium v3.8.11 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:657261496836CA042E63C4D8CDFA9372EC00290E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +408,8 @@ magnet:?xt=urn:btih:657261496836CA042E63C4D8CDFA9372EC00290E
 magnet:?xt=urn:btih:66153B7DB003954F77175BB7CE498881F03F3A3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +434,8 @@ magnet:?xt=urn:btih:66153B7DB003954F77175BB7CE498881F03F3A3A
 magnet:?xt=urn:btih:3D255812E839C012F8C154A2B484BEEE9CAC2E4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ PictureThis - Plant Identification v5.3.0 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E7E9FCE5F06275D60DDB9864850E2F44AE5D3A52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +487,8 @@ magnet:?xt=urn:btih:E7E9FCE5F06275D60DDB9864850E2F44AE5D3A52
 magnet:?xt=urn:btih:A8C237C2BA12D80B66B45936333C6BF6D71A5006
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +512,8 @@ magnet:?xt=urn:btih:A8C237C2BA12D80B66B45936333C6BF6D71A5006
 ```bash
 magnet:?xt=urn:btih:D32C9DACE349FD7C43EBB853C395E738DA9D6D01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ Royksopp (Röyksopp) - True Electric (2025) 2CD [FLAC|Lossless|tracks + .cue] <I
 magnet:?xt=urn:btih:6360774454DF21D013AB05AAE00E71877D99EDC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +565,8 @@ magnet:?xt=urn:btih:6360774454DF21D013AB05AAE00E71877D99EDC0
 magnet:?xt=urn:btih:EFB3EEBA5916D940DD9B0738AB9FDC6333377984
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ magnet:?xt=urn:btih:EFB3EEBA5916D940DD9B0738AB9FDC6333377984
 ```bash
 magnet:?xt=urn:btih:CF1DAFFCFDD9684B6D6F6904ED1229D25C043133
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +618,8 @@ magnet:?xt=urn:btih:CF1DAFFCFDD9684B6D6F6904ED1229D25C043133
 magnet:?xt=urn:btih:2B8866A0641CD09416873CA38A7DC91FDD87C04B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ Smart AudioBook Player Pro v11.4.2 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A0D7B145EECDDB9AAE149B5FA8FEB14CE06E25C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:A0D7B145EECDDB9AAE149B5FA8FEB14CE06E25C7
 magnet:?xt=urn:btih:EA2BDF760E301D3876C85BF726CE978EC6D3F59F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ magnet:?xt=urn:btih:EA2BDF760E301D3876C85BF726CE978EC6D3F59F
 ```bash
 magnet:?xt=urn:btih:BBCE15F1CB27521ABD661B34E679E68DC6CBFF29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

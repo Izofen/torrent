@@ -22,6 +22,8 @@ VA - Jazzpresso Vol. 1-2 (2000-2001) Lab Records [FLAC|Lossless|tracks+.cue] <Ac
 magnet:?xt=urn:btih:1EA8FE70B473DFE94C58ECC92C5CBA934ACB9079
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ NOIRESOR - Imprinted Memories (2022) авторская раздача [MP3|320 
 ```bash
 magnet:?xt=urn:btih:E48EF652032FE58B824E1F161298C21927D5F8CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - The Best Of Suanda Voice 2018 (Mixed By Dennis Graft) (2018) [MP3|320 Kbps]
 magnet:?xt=urn:btih:C93965510120586C9A1CBA2CA01DDCE131798095
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Sunday Lounge Vol. 1 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:0082AA81C18849DEFBBBBDC17746477B980761B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Woob - Tokyo Substrate Paradox (2018) Isometric [FLAC|Lossless|WEB-DL|tracks] <A
 magnet:?xt=urn:btih:C9EFD02B1C5F010A3EBB3A5D4FB689A5AC16861F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Poker Flat Recordings Best Of 2018 (2018) [FLAC|Lossless|WEB-DL|tracks] <Te
 ```bash
 magnet:?xt=urn:btih:30524831C9F026097A72FFA46534154632CFCB19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Grotesque 350 (Mixed by RAM, Alex M.O.R.P.H. & Alex Di Stefano) (2018) [MP3
 magnet:?xt=urn:btih:9D2949B0233960C25773A10E7FA293D10E8B85AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Kay Rush Presents Unlimited XX (2018) [MP3|320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:954349625B9BD52CC8925C25C04E74E04EC14E8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - EDM Anthems 2018: Top 40 Club Beats For DJs (2017) [MP3|320 Kbps] <Big Room
 magnet:?xt=urn:btih:DC1EC530EFFD3AF1F6D9B545D1061BD7CEAFFEE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Livio & Roby - Phantom Circle (2016) Desolat [FLAC|Lossless|WEB-DL|tracks] <Tech
 ```bash
 magnet:?xt=urn:btih:E067B77E0E24E868E4A838CA988323A592AF01F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Terranova (Edition Terranova, Terra Nova) - Discography 40 Releases (1998-2019) 
 magnet:?xt=urn:btih:49524C4198B0362D050CD59C5C44247DEA5BCE86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Uplifting Only - Fan Favorites 2014 - 2015 (Mixed by Ori Uplift) (2015) Abo
 ```bash
 magnet:?xt=urn:btih:2E04EB4ECABB50824EC87A139EEBBD83FA77039C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +376,8 @@ Various Artists - Ram Drum & Bass Annual 2012 (2012) [MP3|320 кб/с]<Drum & Ba
 magnet:?xt=urn:btih:42093A667C75382B041056A17C9FD208D31BD831
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +404,8 @@ Shrine - Discography 8 Releases (2006-2019) Corvus Records, Cyclic Law, Cryo Cha
 ```bash
 magnet:?xt=urn:btih:C578F502BB41B79E7A825B581E72F55B244813D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +434,8 @@ Nuanæ (NuanAE, Nuaиæ) - Collection 9 Releases (2015-2020) Kaer'Uiks [FLAC|Los
 magnet:?xt=urn:btih:8F244563DFB7D6DA1AE36E3DB4B0C6FC34AF5C65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +462,8 @@ VA - Созвездие хитов: Synthesizer Hits. Vol. 1 (2006) [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:07B966DE0A8FE6C976B444A7162B680857A9012E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +492,8 @@ Harry Thumann - Andromeda (1982) LP [MP3|320 Kbps] <Electronic, Rock, Synth-pop>
 magnet:?xt=urn:btih:842578BB8B8146B5766DA4A3924198321AB9C4B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +520,8 @@ VA - Workout Hits Vol.2 (The Best Of 2020 Fitness & Sports Sounds) (2019) Explic
 ```bash
 magnet:?xt=urn:btih:11CE31B44D01750F6AC6F14D009A494C1169940A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +550,8 @@ Blow - I (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Power Electronics, Synthwave>
 magnet:?xt=urn:btih:13CF72727B22D429C99D0A780DC2E55040EED45B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +577,8 @@ r beny - The Dashboard Cast a Spectral Glow (2020) Past Inside the Present [FLAC
 ```bash
 magnet:?xt=urn:btih:B8118D3A5C72052DD1CE5EDE6564C7AE7A0BED95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +607,8 @@ Slow Dancing Society - The Torchlight Parade Vol. I & II (2020) Past Inside the 
 magnet:?xt=urn:btih:01540A1253A8D28237C5E8485009E2FB2D6DB73E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +636,8 @@ VA - Winter Chillout Lounge 2021: Smooth Lounge Sounds For The Cold Season [FLAC
 magnet:?xt=urn:btih:3E78F2D216D923B0B42231F63DF0FB67373D9F7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +662,8 @@ magnet:?xt=urn:btih:3E78F2D216D923B0B42231F63DF0FB67373D9F7C
 ```bash
 magnet:?xt=urn:btih:A5EB39E9880F1988FBE094C5A2DBDD8625D7E2CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +692,8 @@ These New Puritans - Hidden (2010) [FLAC|Lossless|image + .cue] <Electronic, Alt
 magnet:?xt=urn:btih:36722104EA60DE5AE077B75D3258ED2F87B45791
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -673,6 +721,8 @@ VA - Healing Sounds II: A Compilation For Those In Need (2020) Past Inside the P
 magnet:?xt=urn:btih:93212A9AA4D6CA0083CDB9C9115DD375C30BC82D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -699,6 +749,8 @@ Slow Dancing Society - My Blue Heaven (2020) Past Inside the Present [FLAC 2.0|4
 ```bash
 magnet:?xt=urn:btih:1F705C1A3A105B5E5A922AC18DFA74074178D23D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

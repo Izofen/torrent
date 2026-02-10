@@ -20,6 +20,8 @@ Ghost of a Tale рассказывает историю отважного мы�
 magnet:?xt=urn:btih:D88E1CD5791540ED40F24E38445B777AD7385F9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Tower of Time — удивительная игра со множеством п
 ```bash
 magnet:?xt=urn:btih:4DEF6DE9E6B5CB58D6648C2C8634C732BA18C528
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Moonfall это side-scrolling 2D action RPG в жанре Beat ’em up, офо
 magnet:?xt=urn:btih:6DE2903997458F979AED9DDA5ADE7E3B4CAD647B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Shadowhand - приключенческая карточная ролевая с
 ```bash
 magnet:?xt=urn:btih:8F7BA3ACA3846E1B00270EBEF4336B1879C774DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ ELEX — тщательно проработанная динамическая 
 magnet:?xt=urn:btih:BFE54D39FDF8135772EC4F4819156FC0EA0F5A70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Bound by Flame (2014) [Ru/Multi] (1.0) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:8F3C4B2F35F47777BC283F60987D90463F406661
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Bastion - ролевая игра с принципиально новым вз�
 magnet:?xt=urn:btih:42145A6D319DD1F8832C7D102A6E0ED7DE3205E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Cosmic Star Heroine (2017) [En] (1.0) License TiNYiSO
 ```bash
 magnet:?xt=urn:btih:9C6A3EF0B7BFFAE5EF9D43E3E4941F57CF63EA69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Final Fantasy X рассказывает историю героя по имен
 magnet:?xt=urn:btih:10E989357FAD9FA413A4596E81DE3D1848183C51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Final Fantasy рассказывает историю героя по имени
 ```bash
 magnet:?xt=urn:btih:E8C83155E834CF765BCF00F1D4652E7C9C0E1C01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Bloom Labyrinth, грядущая экшн ролевка наконец-то о
 magnet:?xt=urn:btih:6EE15546E889B53DBCE65227E7CA70F50C2B4E43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Terrible Beast from the East (2019) [En/Ch] (1.0) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:DAD05798A065DED959AAEC87B755845C7F47E2AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Dragon Age II / Эпоха Дракона 2 (2011) [Ru/En] (1.0.4.0/dlc) Repack 
 magnet:?xt=urn:btih:C3F7D8503497C2B88D5BD5A93D7AC0F63662944E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Planescape: Torment: Enhanced Edition - переработанное издан�
 ```bash
 magnet:?xt=urn:btih:7FCE95569F6D51B5E75BD1272F1477DAB055C223
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Ghost of a Tale рассказывает историю отважного мы�
 magnet:?xt=urn:btih:E194AEE02E5C9C6CB0DBBABEC0237E7AA649FCF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Beast Quest (2018) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:5AE83F4906C7B678DE400EE186874EE129E12D6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Ember (2016) [En] (1.046) License GOG
 magnet:?xt=urn:btih:367305A2C7B36D8B96562CAEF7FD208925DD7B6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Bombshell (2016) [En] (1.2) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:818014C83387E15682F2154C74945F32B75EF032
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Diluvion: Resubmerged (2017) [Ru/Multi] (1.2.33/dlc) Repack R.G. Catalyst
 magnet:?xt=urn:btih:E7BC3C888E7BF9F6F0A547904FA60FDB17DABBA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Middle-earth Shadow of Mordor / Средиземье Тени Мордора (20
 ```bash
 magnet:?xt=urn:btih:86051D22F55E471E3282CC3FF376224E9718E06C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ Transistor - научно-фантастическая игра в жанре Ac
 magnet:?xt=urn:btih:D3E2D94676CA12993426C27D78EA6125DC56A930
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ Avernum 3: Ruined World (2018) [En] (1.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:5D47A6C2242C212B5512AFD04B0BE60065752555
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ Skyshine's BEDLAM Redux!, захватывающая пошаговая стра
 magnet:?xt=urn:btih:7B6D25A77093B91D4BC05CD1BDA3153937BB9296
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ The Witcher 2: Assassins of Kings / Ведьмак 2: Убийцы короле�
 ```bash
 magnet:?xt=urn:btih:DD816EA7CC650DCE38F120E4F1184B3216430855
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ Pyre - ролевая игра, в которой вы становитесь п
 magnet:?xt=urn:btih:195D43FED6AD976D35ABDCD51CA278ED445F5E05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Aurion: Legacy of the Kori-Odan – эпический двумерный экш
 ```bash
 magnet:?xt=urn:btih:797CB12876C48EC6958FC96B6316ABCA63B5C6B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:01EB6593669FDDE07EEE28726D4C1ACB3F494DC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Tormented Souls - это игра, которая вновь погрузит в
 ```bash
 magnet:?xt=urn:btih:A53C6FBF23E016A066A08FA9F1DB2C300439C802
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ We Are Not Alone (2024) [En] (1.9.5.1) License GOG
 magnet:?xt=urn:btih:49239A213C40B3D2CDB8407027A7EAC4B6216F21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Out of Sight - атмосферный хоррор, сочетающий пер�
 ```bash
 magnet:?xt=urn:btih:C42D21D687C6D4E95BCAD30B82C75DA96929C4E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Take Me, Vitaly / Догони меня, Виталик (2024) [Ru/Multi] (Build
 magnet:?xt=urn:btih:DEF525177E763B684120495C2B0B6C5E5FB70790
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Between Horizons - это крутой 2.5D приключенческий де�
 ```bash
 magnet:?xt=urn:btih:73605D2271F029E93F885040C7CB854E0BB91451
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Arctico (2022) [En] (2.6w) License GOG
 magnet:?xt=urn:btih:62AB3DAED5DA1080CC157D8CA1409B2D1CF28404
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Dustborn (2024) [Ru/Multi] (1.14/dlc) Repack LetsPlay
 ```bash
 magnet:?xt=urn:btih:2954B3200C3355E24047E4146DECC619EEDD4448
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Moroi находится в Cosmic Engine, персонализированно�
 magnet:?xt=urn:btih:6F7A13A8D132F7AC2A6ACF95B705DC4DF177E0E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Unexplored 2 создаёт для вас огромный, богатый фэ�
 ```bash
 magnet:?xt=urn:btih:A4DB2815A7F96AECE50C134EC70EA947873AAB97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Moroi предлагает геймплей, включающий сражени
 magnet:?xt=urn:btih:45449E45445431911E4E488303DD7D0945CBD110
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Kaodi - это короткая история о шрамах, которые �
 ```bash
 magnet:?xt=urn:btih:1B140767A757DADAAA742E6CBA8DECC670DAF71E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Last Vanguard - шутер-платформер в жанре метроидва
 magnet:?xt=urn:btih:EC6FEA2F19F29E25D856BC9099B43BA3A0EAA2C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Star Mission: Remote Sectors (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:AEC65CAE55AC28AF2163E95AEFE964C344B16346
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Pieces of me / Кусочки меня (2025) [Ru/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:14C153662468831E1532897AE00AD553F30FF8B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Pieces of me / Кусочки меня (2025) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:ECF6F49EA916737F1004146BD3FF959E4B7B962B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ The Danger Zone - постапокалиптический 2.5D шутер с в
 magnet:?xt=urn:btih:EB5E5611ED2DD206A695C9A24D459BA3082C3808
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Pieces of me / Кусочки меня (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:82A1DEFC8686DA7CE0DCC4305D4665D73D036F31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Brassheart - приключенческая игра, действие кото�
 magnet:?xt=urn:btih:5A264437ED3D1A8546549BEDFB98C708BB1EF772
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ True Fear: Forsaken Souls Part 3 - заключительная глава тр�
 ```bash
 magnet:?xt=urn:btih:1CEB4C0B5A07B17342C0A50CABE665217860A1C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Broken Sword - Shadow of the Templars Reforged (2024) [Ru/Multi] (1.1.8) Repack 
 magnet:?xt=urn:btih:DCD3CF7D265B9BD8EB2359955D344D7933BCC31F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Kathy Rain 2: Soothsayer устанавливает действие в 1998 г�
 ```bash
 magnet:?xt=urn:btih:A3D55E6C1A8B5FF1F9953257B689951F0E512DB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ DreadOut Remastered Collection (2025) [Ru/Multi] (2.2.18f/1.0.8) Repack FitGirl
 magnet:?xt=urn:btih:878E557F4A10CE7EAE90714E7AA16DB720A02CE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Go Home Annie (2024) [Ru/Multi] (1.0.36) License GOG
 ```bash
 magnet:?xt=urn:btih:2241AC0D820084119D0B6813589B9E5CEEB52421
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Star Mission: Remote Sectors (2025) [Ru/Multi] (1.0.3) Repack Let'sРlay
 magnet:?xt=urn:btih:2790C165421E78EC1CAA5FD1B94612273B995BF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Near-Mage (2025) [Ru/Multi] (1.0.0b/dlc) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:64DB7CC17AC729274068EBC5D3AB741F8C81C821
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Legion Arena: Cult of Mithras / Легионы Рима: Культ Митры (
 magnet:?xt=urn:btih:78152529C43D3A3F2F9BCED16C391330A318034F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ VA - Armin van Buuren - A State Of Trance 1125 (2023) [MP3|320 Kbps] <Trance, Pr
 ```bash
 magnet:?xt=urn:btih:6D1320699BAA4F7477AC7C5222529A0D6BDA93A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Overkill - Scorched (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash-metal>
 magnet:?xt=urn:btih:6F7E0716E608B8C852E2207E820FD9878567E3F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:6F7E0716E608B8C852E2207E820FD9878567E3F9
 ```bash
 magnet:?xt=urn:btih:4BA5F0C31744355DBF5298436E6E79BC32763868
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Z - значит Захария / Z for Zachariah (2015) BDRip [H.264/1080p]
 magnet:?xt=urn:btih:6A91C279F323535B0603179A9CFEB6D7E16359D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:6A91C279F323535B0603179A9CFEB6D7E16359D3
 ```bash
 magnet:?xt=urn:btih:82B97DB3CF2E1C9240CA6FE80BA405F64F8F81AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Glover (2022) [En] (1.0) License GOG
 magnet:?xt=urn:btih:5E6596A66C800141BD4EE10CF9180D0A4218D1BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:5E6596A66C800141BD4EE10CF9180D0A4218D1BF
 magnet:?xt=urn:btih:59801305949805909A2EEB22346158B75D424875
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:59801305949805909A2EEB22346158B75D424875
 ```bash
 magnet:?xt=urn:btih:E18FDCD8E47A7EEDF8013FED9C2C64938A49DE69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ Coronary - Sinbad (2021) [MP3|320 Kbps] <Heavy Metal>
 magnet:?xt=urn:btih:C650B7A1F154C566CB745BD42BE09BF98156D366
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:C650B7A1F154C566CB745BD42BE09BF98156D366
 ```bash
 magnet:?xt=urn:btih:5B35ABF5F0488D75492818D443240E64FF07C5FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ Eyes of Eva - Temptation (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:C99AB79A0CBEAD189B9138D1EE72507BF97ADA93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ Kaz Hawkins - Until We Meet Again (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, B
 magnet:?xt=urn:btih:6A0CEB1FEF1E242069B84ECDF3AB7BC460D61A79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ Michael Pavlovich | Substance Painter Quick Start (2015) PCRec [EN, RU]
 magnet:?xt=urn:btih:38A1A7C49983506916C42838163586A9E11F613F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:38A1A7C49983506916C42838163586A9E11F613F
 ```bash
 magnet:?xt=urn:btih:9390FF5F257D2815F712F20B7103DF3FF5DFE5E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:9390FF5F257D2815F712F20B7103DF3FF5DFE5E6
 magnet:?xt=urn:btih:FC890DD070D14BD7D67BAA07D900C7F39A3FBA09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ KCNcrew Pack - это огромнейший сборник серийников
 ```bash
 magnet:?xt=urn:btih:57014BB2AC20C0198680AEF6F543989AC7E987A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ Hard Buds - Fire (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:DFF45A21422AC060F6DD09D5A6B2BBD8405EFFA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ Black & Damned - Heavenly Creatures (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 magnet:?xt=urn:btih:53E92CC988BBDFF2E201A7CD5AF878DD5D904F7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ SMASH! Юные супергерои / S.M.A.S.H! (2022) WEBRip [H.264/1080p] (�
 ```bash
 magnet:?xt=urn:btih:3DA5384C55098B461B3AA6BE18F8E686638E916D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +562,8 @@ magnet:?xt=urn:btih:3DA5384C55098B461B3AA6BE18F8E686638E916D
 magnet:?xt=urn:btih:002588589BBBCA7E1A0B3C466F44661D18E0C5DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +587,8 @@ magnet:?xt=urn:btih:002588589BBBCA7E1A0B3C466F44661D18E0C5DB
 ```bash
 magnet:?xt=urn:btih:BD6A3E7DF83BCB8A17F4470214D7E3B2A101201E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:BD6A3E7DF83BCB8A17F4470214D7E3B2A101201E
 magnet:?xt=urn:btih:4705C80F0A63344757AE8E1F1B00125538A8BFBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ magnet:?xt=urn:btih:4705C80F0A63344757AE8E1F1B00125538A8BFBD
 ```bash
 magnet:?xt=urn:btih:063EDBDA182622D00512C72CDFBBC32324CF2CDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +669,8 @@ Elvenpath - Faith Through The Fire (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 magnet:?xt=urn:btih:C904C3949334D6E5D49ED1EFD940400EB53A9AC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ magnet:?xt=urn:btih:C904C3949334D6E5D49ED1EFD940400EB53A9AC0
 ```bash
 magnet:?xt=urn:btih:5A8650628DE7003C54985BFD5FA931D45B7DBBBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

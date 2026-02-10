@@ -22,6 +22,8 @@ Clarinet Concerto in A major, KV.622
 magnet:?xt=urn:btih:A4C133E76D4D1AEF5FB237EF65333FB8B43C9B19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -55,6 +57,8 @@ VA - Мировая Классика в современной обработк�
 magnet:?xt=urn:btih:B7A3D9C65F7A2F10C381C434EB7A5CCB90CD8BAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -87,6 +91,8 @@ magnet:?xt=urn:btih:B7A3D9C65F7A2F10C381C434EB7A5CCB90CD8BAA
 magnet:?xt=urn:btih:CA12ACC645DEECD810501C1473AEBD06D72BD57C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +120,8 @@ VA - One Night at the Opera (5CDs) (2000) [FLAC|tracks + .cue]<Classical, Romant
 magnet:?xt=urn:btih:40A145DB0E9A95975C9E8499D27B0A25F52A85DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +148,8 @@ Symphony in C major, WWV 29
 ```bash
 magnet:?xt=urn:btih:AEE58BCE2E6189FC976CF0C93EBE51F4F2855288
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +184,8 @@ magnet:?xt=urn:btih:AEE58BCE2E6189FC976CF0C93EBE51F4F2855288
 magnet:?xt=urn:btih:6C56CF6D7FB896FA9DE9D92E64D2F0482C2EB652
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +219,8 @@ Italian Concerto, BWV 971 [12:34]
 magnet:?xt=urn:btih:21672605765FFFBB58181BBEA5B545C4214843BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +248,8 @@ magnet:?xt=urn:btih:21672605765FFFBB58181BBEA5B545C4214843BC
 magnet:?xt=urn:btih:524E889584FB56201094796405FE04DDB610E737
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +276,8 @@ Intermezzo Op.117
 ```bash
 magnet:?xt=urn:btih:9EEFA28FE5E5A65B1EE29B3D9640617881EEE598
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +312,8 @@ magnet:?xt=urn:btih:9EEFA28FE5E5A65B1EE29B3D9640617881EEE598
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +340,8 @@ Adiemus - Songs Of Sanctuary (1995) [MP3|320 Kbps] <Modern Classical, Ambient>
 ```bash
 magnet:?xt=urn:btih:B5472E79FDD977FA596E200842447C10193F6A16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +372,8 @@ Adiemus - Songs Of Sanctuary (1995) [FLAC|Lossless|tracks + .cue] <Modern Classi
 magnet:?xt=urn:btih:CBD40768FBEC3C3216633DE6EC4952EE34C08568
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +400,8 @@ magnet:?xt=urn:btih:CBD40768FBEC3C3216633DE6EC4952EE34C08568
 ```bash
 magnet:?xt=urn:btih:D5A6E6CCCDBE127AAD9E54F6EF22ED4A33C9A07D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +436,8 @@ Orchestra – Budapest Philharmonic Orchestra Written-By – Massenet(   Чит�
 magnet:?xt=urn:btih:8BF198D54050AAE1F29390D91B3412EEB76E5C96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +465,8 @@ Invitation to the Dance (Aufforderung zum Tanze), rondo brillant for piano, J. 2
 magnet:?xt=urn:btih:7D2BA60BB76D479F6E29BEAC22E90998F80538FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +490,8 @@ Vanhal - Symphonies (Concerto Koln) (2007) [FLAC|image +.cue]<Classical, Orchest
 ```bash
 magnet:?xt=urn:btih:50CD79510D0EFADC0527715400749C778F2E6727
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +535,8 @@ CD 1
 magnet:?xt=urn:btih:BD37CEF688E4C24DC87437BF6B3274F2FE5CA549
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +563,8 @@ Chopin - Nocturnes (Nelson Freire) (1998) [FLAC| image +.cue]<Classical, Romanti
 ```bash
 magnet:?xt=urn:btih:9FA53CC26C84C80ED4EC9A1F12B4111481C866CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +593,8 @@ Symphony No.10 In E Minor, Op.93
 magnet:?xt=urn:btih:A4B6C575B65ED6EA85F9BF983F2DB73135991100
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +621,8 @@ Concerto for piano & orchestra No. 2 in E flat, Op 4
 ```bash
 magnet:?xt=urn:btih:89127FBED4BC5F3BF0A1BEAF0CE15F51B1FF3DE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +657,8 @@ Luciano Pavarotti - Love Songs (2008) [MP3|320 кб/с]<Opera, Classical Music>
 magnet:?xt=urn:btih:068E26FEDD482FB91E5E12A01E127A7DF0926AB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +692,8 @@ VA - Diva - 30 Great Prima Donnas (2001) [FLAC|Lossless]<Classic, Vocal>
 magnet:?xt=urn:btih:B062A4E98A5F9C47DDD4EF3CFA844616BA50EFB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -673,6 +717,8 @@ Albinoni Tomaso Giovanni: Collegium Musicum 90 Simon Standage Authentic instrume
 ```bash
 magnet:?xt=urn:btih:9B7347ECF254F5A182ACC4E6FDCCCC27047B5DFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -707,6 +753,8 @@ VA - Highlights from Jesus Christ Superstar (1996) [MP3|320 кб/с]<Rock opera>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -734,6 +782,8 @@ Robert Wells - Rhapsody In Rock Complete (2000) [FLAC|Lossless|image + .cue] <In
 magnet:?xt=urn:btih:7E648B386D6933694F79F0682317177EA3F79A8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -760,6 +810,8 @@ Jouni Somero - Palmgren: Complete Piano Works, Vol.4 (2022) [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:78CDECEFCEA6DBB7B8A2538172C04FC0D559E785
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

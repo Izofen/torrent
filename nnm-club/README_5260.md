@@ -22,6 +22,8 @@ Northern Flame - Twisted Reality (2020) [MP3|320 Kbps] <Melodic Power Metal>
 magnet:?xt=urn:btih:457DFFCDEAA5B5C6021D802E157FB536C9294E0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:457DFFCDEAA5B5C6021D802E157FB536C9294E0A
 ```bash
 magnet:?xt=urn:btih:B4491395FD8E6486C1924D34B094C3BA564ADC17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ BusyContacts приносит в управление контактами те 
 magnet:?xt=urn:btih:647E7FE97B7EE52F44E4868A91078706E0EC84CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Tone Generator PRO v3.50 Mod by Alex.Strannik, papasha55 [En/Ru]
 ```bash
 magnet:?xt=urn:btih:1C3F0F29B222F447E82A69F51F9562C43E598C28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Rhinoceros 7 v7.13 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6DA862DC7F519725436C156A42CA4CA9FA3E3FF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ Justin Johnson - Rough Edges (2020) [MP3|320 Kbps] <Blues Rock>
 magnet:?xt=urn:btih:812EC81B93EF9AB2CE082C691C10C1CD579C9D41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:812EC81B93EF9AB2CE082C691C10C1CD579C9D41
 ```bash
 magnet:?xt=urn:btih:7119E7342AF470EBB19C322B0EADF5F2E7F18C40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ VA - Music News vol.312 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:575C20ACD34BFD7B26F1E2391DCD7BFCA5A9C54A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:575C20ACD34BFD7B26F1E2391DCD7BFCA5A9C54A
 magnet:?xt=urn:btih:F4B933140CFBFEF602C4B8329942547A65064132
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:F4B933140CFBFEF602C4B8329942547A65064132
 magnet:?xt=urn:btih:64AA6308CB6D617E0363173B5437057DFD800330
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ iShot Pro-ScreenShot Recording 2.2.6 [En]
 ```bash
 magnet:?xt=urn:btih:EC235AD18655F905A9A441646E4EEA8CCA1AE55B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ VA - Автоклуб шансона. Хиты в дорогу. 100 (2025) [FLAC
 magnet:?xt=urn:btih:32D88F91631C3942384007E6F7B6AFCED73E9D00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ Atreyu - A Torch In The Dark (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative R
 magnet:?xt=urn:btih:50552821B8757D2B7687C6279FE5651F4316D1C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ GraphicConverter 11 — полнофункциональный графичес�
 ```bash
 magnet:?xt=urn:btih:4EA0FD70C0FB2967A9C1B34DB12F2C31C833FDA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +406,8 @@ VA - Новые хитовые песни 2025, Часть 10 (2025) [FLAC|Lossl
 magnet:?xt=urn:btih:B580EDDCB14541C0CDECD151E2F6EA4420EAA105
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ magnet:?xt=urn:btih:B580EDDCB14541C0CDECD151E2F6EA4420EAA105
 ```bash
 magnet:?xt=urn:btih:2CF527021D30854AC4CA3C36620525D84941AA98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ magnet:?xt=urn:btih:2CF527021D30854AC4CA3C36620525D84941AA98
 magnet:?xt=urn:btih:F0ABC16170BC81ECD3C1B7547305E6B749B43D85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ magnet:?xt=urn:btih:F0ABC16170BC81ECD3C1B7547305E6B749B43D85
 ```bash
 magnet:?xt=urn:btih:163321A6DD84DC0DF46409EDAD7734BB8D3F4C9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +510,8 @@ magnet:?xt=urn:btih:163321A6DD84DC0DF46409EDAD7734BB8D3F4C9B
 magnet:?xt=urn:btih:93905E618ABB5ABEA94F22065376258048CC176A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ magnet:?xt=urn:btih:93905E618ABB5ABEA94F22065376258048CC176A
 ```bash
 magnet:?xt=urn:btih:23B0F2386AB6054C4A22DC215D4456830228B538
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +565,8 @@ VA - Instrumental Jazz: Masters Of Improvisation (2021) [MP3|320 Kbps] <Jazz, In
 magnet:?xt=urn:btih:D903BED6E64292694E1D35DF46E86A9D304510DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ magnet:?xt=urn:btih:D903BED6E64292694E1D35DF46E86A9D304510DA
 ```bash
 magnet:?xt=urn:btih:225ED8F2C22F9798FB90CA1E2038547D8132B338
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +617,8 @@ magnet:?xt=urn:btih:225ED8F2C22F9798FB90CA1E2038547D8132B338
 magnet:?xt=urn:btih:49EBA8D97305F41D59D6E498DE18AB975FCB4218
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ magnet:?xt=urn:btih:49EBA8D97305F41D59D6E498DE18AB975FCB4218
 magnet:?xt=urn:btih:B609E5FB3110D0BB08B95ECF4F2EC50C625CC475
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +668,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:9E4B6432624F2D71B2FC4375E955B899A3E9E8D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -647,6 +697,8 @@ magnet:?xt=urn:btih:9E4B6432624F2D71B2FC4375E955B899A3E9E8D1
 ```bash
 magnet:?xt=urn:btih:712F3B3AF0CAB377E1A018205225764B891BAFDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

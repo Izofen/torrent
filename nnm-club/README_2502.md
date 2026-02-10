@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:FA71F9FE4CCBA2C5FD6947035E3E9A0359E44E9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ VA - Sounds Like Summer, Vol. 4 (2025) [MP3|320 Kbps] <House, Deep House, Dance,
 magnet:?xt=urn:btih:A67A02DFD94F36A2691AC0F30EDEF4A5B21D10FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:A67A02DFD94F36A2691AC0F30EDEF4A5B21D10FE
 ```bash
 magnet:?xt=urn:btih:CC480B10BCD1F5E674F0E7B8D6060898C9F70B2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:CC480B10BCD1F5E674F0E7B8D6060898C9F70B2C
 magnet:?xt=urn:btih:A59CB73346DC4524851F0471E4F74EBAE3FA8A85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ MotoGP. Этап 09 из 22. Гран-при Италии. Гонка (22.06.202
 ```bash
 magnet:?xt=urn:btih:D65B06D8B16E190E7624EAAF32A49AFFC504C078
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:D65B06D8B16E190E7624EAAF32A49AFFC504C078
 magnet:?xt=urn:btih:71AD82647D2D43D9DC317655D61E98BA81BF5553
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:71AD82647D2D43D9DC317655D61E98BA81BF5553
 magnet:?xt=urn:btih:A0C20EA14368F544BAD82BC028E49AD6710A1F65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:A0C20EA14368F544BAD82BC028E49AD6710A1F65
 ```bash
 magnet:?xt=urn:btih:617AEC98F7683F200CB1E40C5A7612CA83C7C835
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:617AEC98F7683F200CB1E40C5A7612CA83C7C835
 ```bash
 magnet:?xt=urn:btih:281DBD09C52C1FE4D84B0B17FBEBEF637CD549EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ VA - Самые новые песни о любви 9 (2025) [FLAC|Lossless|WEB-
 magnet:?xt=urn:btih:30246A99A3C3BBAB9969E3B5C9C8BC0DCEBD3463
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ VA - Billboard Top Hits: 1987 (1994) [FLAC|Lossless|tracks + .cue] <Soft Rock, S
 magnet:?xt=urn:btih:2D460B737B6C42F93C8D5BD67D75934D9084FD2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ magnet:?xt=urn:btih:2D460B737B6C42F93C8D5BD67D75934D9084FD2E
 magnet:?xt=urn:btih:5D99A22CC3F7BC615BCD5ABAC2E921BA87D56679
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:5D99A22CC3F7BC615BCD5ABAC2E921BA87D56679
 ```bash
 magnet:?xt=urn:btih:24B7F65D7F8D2B71FBC4A58ACB39D0501C771B11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ magnet:?xt=urn:btih:24B7F65D7F8D2B71FBC4A58ACB39D0501C771B11
 magnet:?xt=urn:btih:513CDB4FA6284F6E5E1994C8990300518F0870AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ Photo Supreme — вспомогательная программа для вл�
 ```bash
 magnet:?xt=urn:btih:862608C11A53282F5ACE96A136B9775A6E404CEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +429,8 @@ magnet:?xt=urn:btih:862608C11A53282F5ACE96A136B9775A6E404CEB
 magnet:?xt=urn:btih:05AD9E66A85D16FD822305A032F83F4BEB0B7EB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:05AD9E66A85D16FD822305A032F83F4BEB0B7EB7
 ```bash
 magnet:?xt=urn:btih:4FF762D7B8CC23112689163C30580AF8CAEFCEF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:4FF762D7B8CC23112689163C30580AF8CAEFCEF5
 magnet:?xt=urn:btih:2643382F3E418D059E82BFD4C0A6FDB6C01AFE0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ magnet:?xt=urn:btih:2643382F3E418D059E82BFD4C0A6FDB6C01AFE0B
 ```bash
 magnet:?xt=urn:btih:112AB9CF1DD4D732A05A3A8D91B901F5FFA07C41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ VA - Курортный шансон 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:647D1FB5FC6D6FD081B0B99EE6B7C1117C75188C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +565,8 @@ VA - Shazam Hall Of Fame (2015) 2 x CD, Compilation [FLAC|Lossless|tracks + .cue
 magnet:?xt=urn:btih:653E313DBBA48EB6407F9CEBEED578DD78002DD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ HiPER Calc Pro v11.1.6 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:56BEB2ED7AAD6A5A8B9EEEA253947B5C82E855B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ VA - Новые хитовые песни 2025, Часть 6 (2025) [FLAC|Lossle
 magnet:?xt=urn:btih:EDF7F903F9819B00DD7355BC3413F43730FD7C3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:EDF7F903F9819B00DD7355BC3413F43730FD7C3B
 ```bash
 magnet:?xt=urn:btih:85BC2CE2882ECE671A8F20CCEB4AED548612133A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +672,8 @@ magnet:?xt=urn:btih:85BC2CE2882ECE671A8F20CCEB4AED548612133A
 magnet:?xt=urn:btih:19369FA703AFB17A5E97EDD935A68F3152242560
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ Notification Widget v1.5.180 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E38B3816A2D249AA34E2CD793E71D9A06D5C343F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

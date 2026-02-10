@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:F237C7E2A53B173E5C02DBB960469272E969F946
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BBC: Французские сады с Монти Доном / Monty Don's Fren
 ```bash
 magnet:?xt=urn:btih:E1CB5053BA50D7815B45D3DD6CCF47BDC39292EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ BBC: Женский гений живописи / The Story of Women & Art (2014
 magnet:?xt=urn:btih:2E4E55FAA2FB510078BFD1014CA05A981F827EB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ BBC: Horizon. Есть, голодать, жить дольше / Eat, Fast and 
 ```bash
 magnet:?xt=urn:btih:E5DE60FA35FDC889A99E5F9E44AB21B7C0B4684A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ BBC: Итальянские сады с Монти Доном / Monty Don’s It
 magnet:?xt=urn:btih:BC905CC2C28EA9EF5B71BEC2D6C6B34BBACB6C8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ BBC. Искусство Франции / Art Of France (2017) DVB (серии 3 
 ```bash
 magnet:?xt=urn:btih:B5D9E12D066CEAADAAF97AFC1B743EBA2FB446AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ BBC. Гарри Поттер: История Магии / Harry Potter: A Histor
 magnet:?xt=urn:btih:BD639897732D7327DFAC0A81E24DD88C5D6E7060
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:BD639897732D7327DFAC0A81E24DD88C5D6E7060
 ```bash
 magnet:?xt=urn:btih:E5760C80A688145493BE199C7660AC4A07CEF5F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ BBC: Атлантида в джунглях / Jungle Atlantis (2014) HDTVRip [H.
 magnet:?xt=urn:btih:1D0760556894B96C896170EBAA2B749FA15EAB94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ BBC: Земля: Мощь планеты / Earth: The Power of the Planet (2007)
 ```bash
 magnet:?xt=urn:btih:F9CE269FCF87F22BD9D868024F9881F4C92ED8C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ BBC отмечает столетие Октябрьской революции 
 magnet:?xt=urn:btih:B34F732DC4F385EC2C45CF9B1F50035E4F53B7AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ BBC. Муравьиная империя / Empire of the Desert Ants (2011) HDTV
 ```bash
 magnet:?xt=urn:btih:6C24F6DC9DA035504A7B3DA0918A9D1DF5F66B0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ BBC. В поисках библейской истины / Bible Hunters (2014) 
 magnet:?xt=urn:btih:F595D7D2DDE3704AA4EF4E41C70051D0216BE073
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Viasat History: BBC: Железные дороги в годы Первой ми
 ```bash
 magnet:?xt=urn:btih:BA5CE39F595881665F784992802C4D0A6522E72A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ BBC: Чудеса Вселенной (1-4 серии из 4) / Wonders of the Un
 magnet:?xt=urn:btih:E8EF4EC7BA7B3CD59E3C0595F9124338E8469C00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ BBC. Google и всемирный мозг / Google and the World Brain (2013) H
 magnet:?xt=urn:btih:D9473EE4F437AE1FFF6723E3ECB651569D05FCE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ BBC. Эйнштейны от природы / Animal Einsteins (2021) DVB  [H.26
 ```bash
 magnet:?xt=urn:btih:4C19C70F6171CF5523A948793F278223E113DE1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ BBC. Horizon: Конопля: вредная трава? / Canabis: The Evil Wee
 magnet:?xt=urn:btih:7ED351F7B4A95A2B64609BD55DF7465E8BCA20F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ BBC: Зачем нам Луна? / Do We Really Need the Moon? (2012) SATRip
 ```bash
 magnet:?xt=urn:btih:74A7551043D13E1DDFC1FD8BFE8892D4ECE86E0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:74A7551043D13E1DDFC1FD8BFE8892D4ECE86E0F
 magnet:?xt=urn:btih:3E0459B0816868234186620311C187AE3D6BA516
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ BBC. Замёрзшая планета 2 / Frozen Planet II (2022) WEB-DLRip [H.
 ```bash
 magnet:?xt=urn:btih:D254DD918B76FD3322B24B140D69C02A13D47B65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ BBC. Самые опасные дороги мира. Непал / World's Most 
 magnet:?xt=urn:btih:AA92053C8B0E4F7666BA3A42F83BCBB5FD405A72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ BBC: Чудеса Солнечной системы / Wonders of the Solar Syste
 ```bash
 magnet:?xt=urn:btih:D19513FBB466C3E2B096FAF8DD5BDCAF8D3883E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ BBC. Horizon: Богу конец? Гид от Horizon по науке и рел
 magnet:?xt=urn:btih:2284B34CA5EF7984A6BE60EF13D99BA141F8FEF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ BBC. Замёрзшая планета 2 / Frozen Planet II (2022) WEB-DLRip [H.
 magnet:?xt=urn:btih:72F44D0E1014D9DE640195568063946DCEF85A0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 ```bash
 magnet:?xt=urn:btih:B4130636A615EF2DB3939404449A4E937DF7D9B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

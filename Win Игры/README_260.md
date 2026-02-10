@@ -19,6 +19,8 @@ The Legend of Nayuta: Boundless Trails (2021) [Multi] (1.0.7) Scene Rune
 magnet:?xt=urn:btih:95DC44EA11F88357E4B159B8476F09C61ADC61D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Gungrave G.O.R.E (2022) [Ru/Multi] (53106) Repack Other s
 ```bash
 magnet:?xt=urn:btih:BD964F629F62252C1C9AE20CF6327DF6702CCA5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Goat Simulator 3 - очередная абсолютно бестолковая 
 magnet:?xt=urn:btih:DF59E6D37671C747948E6739CDC3CE44AF6BA4E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ LEGO Batman 3: Beyond Gotham (2015) [Ru/Multi] (1.6/dlc) License GOG [Premium Ed
 ```bash
 magnet:?xt=urn:btih:B6F01B875408ECC1B91D1C7DE1B9A4D3BC75D376
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ BIT.TRIP Presents... Runner2: Future Legend of Rhythm Alien (2013) [En] (2.0.0.3
 magnet:?xt=urn:btih:1DAA57C51EC032D83744BD998B362ADD34708562
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ BIT.TRIP BEAT (2009) [En] (2.0.0.2) License GOG
 ```bash
 magnet:?xt=urn:btih:12FA6A59744CDC51C0BBA3E7B8B4922B893513D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Bendy and the Dark Revival - это хоррор-игра на выживани�
 magnet:?xt=urn:btih:83971873B0FF027D5C18491B8264842CF33D6877
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Many Pieces of Mr. Coo - это сюрреалистическое граф�
 ```bash
 magnet:?xt=urn:btih:F9BEC53DA7EDF39E4E9CE4CCE353F6293D923AFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ EDENGATE: The Edge of Life (2022) [Ru/Multi] (1217_27401) Repack DjDI
 magnet:?xt=urn:btih:FF0EBD2379A5659FD7CD3D5002D97C008AB09EFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Lelie Navigation (2021) [Multi] (v2/dlc) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:F39433D5B071F01039A7C87CA97A87F4EF25A350
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Rabat Protocol: Metal Rhapsody (2023) [Multi] (20230802) Scene Tenoke
 magnet:?xt=urn:btih:30E8E871330CF338EEEDDF8203CA2815D5C4537B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Mondealy (2023) [Ru/Multi] (1.0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:132B6884A2CD7A9ACF097B0E7D56E40ADA5D88F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Mystery Case Files 24: The Last Resort (2022) [En] (1.0) Unofficial [Collector's
 magnet:?xt=urn:btih:6041FE35EB72D0FEE7B7AD5657A7755CAD6E959D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ DEEMO -Reborn- (2020) [Ru/Multi] (1.1.1/dlc) Repack Other s [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:C32F7849396343403872DDACCF657C3F36149ABB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Seedlings (2023) [Multi] (12245758) Scene Tenoke
 magnet:?xt=urn:btih:972CA8C35BDF74FC9E1AC4BBBC4CCE7A3B3B5872
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Hidden Object Secrets: Family Revenge (2023) [En] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:3427B204CA86177358F9C8132C9FD61A20A0CDE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Police Simulator: Patrol Officers - симулятор полицейского,
 magnet:?xt=urn:btih:5D3F15C96B126EF2C78801074EC7CF9CD8144FA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Relayer Advanced (2022) [Multi] (01.10.04/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:4C99AF2D8B7EAFE20AAB9A4F6C434EE8198BB2D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ The Entropy Centre - умопомрачительное приключение �
 magnet:?xt=urn:btih:529015615C470CEA6B6471F0595AB2C5299D813F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Royal Romances: Battle of the Woods / Королевские романы: Би�
 ```bash
 magnet:?xt=urn:btih:03CA66D4D655FC5FDB02CAE9C8BE05E22D783C8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Paranormal VHS отправляет в захватывающее путешес
 magnet:?xt=urn:btih:40DB8FA85D0A9E48AE7753EEFF0AD06293E87CC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Detectives United 6: Beyond Time / Союз детективов 6: Вне вр�
 ```bash
 magnet:?xt=urn:btih:B656C53FDE46537E735E53A2E834CE00A4FEF948
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Scars Above (2023) [Ru/Multi] (1.0.0.132679) Scene FairLight
 magnet:?xt=urn:btih:DBC44C94B429E1F5DA69A5FBBB06A80CE7375860
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Shank 2 (2012) [Ru] (1.0dc120305) Repack Necros
 ```bash
 magnet:?xt=urn:btih:CCBB1F3661E2D37DB86414D450C769AE70D8A164
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Shank - это культовое возрождение классическо�
 magnet:?xt=urn:btih:EECEEB87F52ACFCFA9FC7F07A42F68528A6C4E65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Heart of the Woods – фентезийная визуальная новелл�
 ```bash
 magnet:?xt=urn:btih:10560F577006FC4AF5E67B84D3E680BDB4DB9BDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

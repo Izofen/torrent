@@ -22,6 +22,8 @@ Side A:
 magnet:?xt=urn:btih:381353635F50F0CE9630D9E2A81AA95AC0C0A7B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ A4  Наваждение 3:32(   Читать дальше...   )Жанр: Ambie
 ```bash
 magnet:?xt=urn:btih:4A9514D5598BBA53B05794638FFB68692CA58A6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ A4 Moving In The Midnight 5:50(   Читать дальше...   )Жанр: Synt
 magnet:?xt=urn:btih:100367999221F87BB153636235C47021470FC9AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ A4 Little T & A(   Читать дальше...   )Жанр: Classic RockПро�
 magnet:?xt=urn:btih:B16E4AD61C6AD3EEEFF5F7BF3E6204BD4DD851EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ Rainbow - Down To Earth (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
 ```bash
 magnet:?xt=urn:btih:EF84881BE5C299EBD6ED99465AB5C841ED24A179
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ A4 Hold On To Your Hat(   Читать дальше...   )Жанр: Classic Rock
 magnet:?xt=urn:btih:D680485C374BF47113F110DBA13F16E43D63A5F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ Woodkid - The Golden Age (2013) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Alterna
 ```bash
 magnet:?xt=urn:btih:88BCBDF1BDCA787069819A2385B14439366D9C4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ StormWarrior — пауэр-метал-группа из Германии, ос�
 magnet:?xt=urn:btih:70FA93F21C7CABF936F40DA99D146619844104F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +251,8 @@ A4 Kilimanjaro (Kilimanžáro)(   Читать дальше...   )Жанр: Folk
 magnet:?xt=urn:btih:4A421E812EBF042767196AF5C4BAD1D13E7767FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +278,8 @@ Blazon Stone - шведская хэви-метал/пауэр-метал гру
 ```bash
 magnet:?xt=urn:btih:D4D70CFBEA06E88C501048457208A1E58F66599E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +308,8 @@ A4 Crash Dance 2:09(   Читать дальше...   )Жанр: Pop, Electronic
 magnet:?xt=urn:btih:F2FCFBC7F78482EE24A0C54C7D666AD00A0A3D06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +334,8 @@ Lindemann — метал-проект, образованный 4 января 2
 ```bash
 magnet:?xt=urn:btih:7060F8A74B2559AFB208A06482390AC0A41CCF58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +364,8 @@ A4 Wild Kinda Love 3:33(   Читать дальше...   )Жанр: Synth-PopП
 magnet:?xt=urn:btih:E773B3FBA6941AA63F5E49F9A4743251D2143C17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +392,8 @@ B1 3 Ч. – Scherzo. Allegro(   Читать дальше...   )Жанр: Class
 ```bash
 magnet:?xt=urn:btih:5DE52C4596224ADEFDA85FDA277877F012F97E21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +422,8 @@ A4 - Poor Man's Moody Blues - 6:57(   Читать дальше...   )Жанр: 
 magnet:?xt=urn:btih:08E539E3075190C0CD52FB0717FAA74B039D6333
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +450,8 @@ A4 Magical(   Читать дальше...   )Жанр: EuropopПродолжи�
 ```bash
 magnet:?xt=urn:btih:E7E89FC969B8A8DF38CA19B97AD69536A4939BC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +480,8 @@ Side 1:
 magnet:?xt=urn:btih:D7B27C7CCF2A0341908D3E180F3CA3D1F325508A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +508,8 @@ A4 Streetfight(   Читать дальше...   )Жанр: Pop RockПродол
 ```bash
 magnet:?xt=urn:btih:DDDB6FEEFB2105AEBD52597198BD5C62A11236A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +538,8 @@ Berlin - Pleasure Victim (1982)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-
 magnet:?xt=urn:btih:51C635D82B613769A21F231D3548F9A3639A4984
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +566,8 @@ A4 Love Of My Life(   Читать дальше...   )Жанр: PopПродол�
 ```bash
 magnet:?xt=urn:btih:E487750EE461A5148EE9249CD0161C6EF2210F40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +596,8 @@ Seal - Seal (1991) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Downtempo, Soul>
 magnet:?xt=urn:btih:9C231EDD558512BE59B71FFF597E39A607F7C2ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +624,8 @@ Dreamtale — финская группа, играющая пауэр-мета�
 ```bash
 magnet:?xt=urn:btih:8870D5E32E79A2FB57376BF8A99690B6CB86DB83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +654,8 @@ A4 Colorado(   Читать дальше...   )Жанр: Electronic, PopПрод
 magnet:?xt=urn:btih:3E63FA16F823187A7A3E7DACF7095CE054BA6042
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +682,8 @@ A4 Ты ушла из моей жизни(   Читать дальше...   )Ж�
 ```bash
 magnet:?xt=urn:btih:6922EF5C5E57799B1CF2C132CE43015CD11E02AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -664,6 +712,8 @@ A4 9AM (The Comfort Zone)(   Читать дальше...   )Жанр: Electroni
 magnet:?xt=urn:btih:06507D2E611CFFDD83FB9666FF9139CA25810404
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -690,6 +740,8 @@ A4 Just Like You Said 4:14(   Читать дальше...   )Жанр: Downtemp
 ```bash
 magnet:?xt=urn:btih:621BB3724FC425A93AFF2836B39F31F87ADDA40B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

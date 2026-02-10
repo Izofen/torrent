@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:74FA915D36E3E6AEBA08DFC5EF6CEE63ECCC28F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:74FA915D36E3E6AEBA08DFC5EF6CEE63ECCC28F4
 ```bash
 magnet:?xt=urn:btih:75B2C0F8E911257ABD9EBA7B801340E8D758EDE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:75B2C0F8E911257ABD9EBA7B801340E8D758EDE9
 magnet:?xt=urn:btih:60D3FC972B43F4359367FF7484B8D03E05F1E668
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:60D3FC972B43F4359367FF7484B8D03E05F1E668
 ```bash
 magnet:?xt=urn:btih:79740C682562DF7E9F3B4171ED9A3FED141EA0F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:79740C682562DF7E9F3B4171ED9A3FED141EA0F9
 magnet:?xt=urn:btih:C47A93A740A3FDE698180FF1D05B327DE8093AB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Steven F. Lott | Python Real-World Projects (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:39B2677B4F54FDC0AE4AF846E18709844695AF4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:39B2677B4F54FDC0AE4AF846E18709844695AF4E
 magnet:?xt=urn:btih:AB155307E81F8F7319513A3EDA5403BEE0B3209C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:AB155307E81F8F7319513A3EDA5403BEE0B3209C
 ```bash
 magnet:?xt=urn:btih:1017C0816EC027E566BB150C8F4DCA1563BA2A06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Pixelmator Pro — это невероятно мощный, красивый и
 magnet:?xt=urn:btih:338B5941BD1A36C1C5008FA12E7590CFCF08EABB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ uTorrent Pro. 3.5.5 (build 44954) Portable by SanLex [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EACFD299727AC596B80DC5578F9F1FFC928CFBBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:EACFD299727AC596B80DC5578F9F1FFC928CFBBA
 magnet:?xt=urn:btih:5FEACE537FEC1772E8A5EB42D78680AD3D0FA172
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ NirLauncher Package - универсальный пакет из более че
 ```bash
 magnet:?xt=urn:btih:A71BD20CC293F39D949DDF70C41931F057737145
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Stand Up - это взгляд на наши жизненные повседне
 magnet:?xt=urn:btih:1AE048C088DFCDB9D41A249F08B4601BDBFC860D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:1AE048C088DFCDB9D41A249F08B4601BDBFC860D
 ```bash
 magnet:?xt=urn:btih:1DEE031B55C521F6C0826CECB5AD95474155AC07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Butler – менеджер, который дает доступ к прило�
 magnet:?xt=urn:btih:024845B90815A5ABD560E99B971A71035CC475BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Women’s Health – качественное издание о здоровом
 ```bash
 magnet:?xt=urn:btih:6E3D396ED03A368478CBF186613908C39B2E33BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:6E3D396ED03A368478CBF186613908C39B2E33BE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Skype - бесплатная программа для текстового, г�
 ```bash
 magnet:?xt=urn:btih:39D01A320967B6293DE13BB40329A07D257F4421
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ XIII век. Злодей захватил власть в Муромском к
 magnet:?xt=urn:btih:0CB95569E3D987920798BA0A6386EC07EBF3D6EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ magnet:?xt=urn:btih:0CB95569E3D987920798BA0A6386EC07EBF3D6EC
 ```bash
 magnet:?xt=urn:btih:B32E3B0E1513BF935A622D1D1DFFC8711774C68E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ magnet:?xt=urn:btih:B32E3B0E1513BF935A622D1D1DFFC8711774C68E
 magnet:?xt=urn:btih:241FA42D67355718C9DD71E6F0B5B2459D77361E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:241FA42D67355718C9DD71E6F0B5B2459D77361E
 magnet:?xt=urn:btih:F85A3938A72ADA03C85EFB40097C1C2743AA2D20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:F85A3938A72ADA03C85EFB40097C1C2743AA2D20
 ```bash
 magnet:?xt=urn:btih:64E05B06E60F49628D8269780A5A440BDF1BCDE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ VA - Music News vol.58 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:20538B6034E7A02929FDBFC928E0302A2A298294
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ VA - The Christmas Chillout (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:01AC8BE62FE7E85FD5016876AF20871D2F22CE9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:01AC8BE62FE7E85FD5016876AF20871D2F22CE9F
 ```bash
 magnet:?xt=urn:btih:A828934B1FDEED3714243A09D601B8B29F27C0AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Rise of the Northstar - Showdown (2023) [FLAC|Lossless|WEB-DL|tracks] <Hardcore 
 magnet:?xt=urn:btih:04E1BB02A6C1E82D841F4B2A10BE1EF65B8F0F7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Mgzavrebi - Kamara (2023) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:5051991FD010D8BF5ECF203A5CB2B54DF5AFD9F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Youtube Downloader HD - бесплатная и предельно проста�
 ```bash
 magnet:?xt=urn:btih:925917F9063EE8E763878D736FF57720A941BF84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:925917F9063EE8E763878D736FF57720A941BF84
 magnet:?xt=urn:btih:B05617362D1937C9BA303513984B9DF24757E181
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:B05617362D1937C9BA303513984B9DF24757E181
 ```bash
 magnet:?xt=urn:btih:FDE5C549607DC149A70C951A80A3C8738F394552
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ VA - ICONYC Five Years, Pt. 2 (2022) [AAC|~332 Kbps] <Progressive House, Melodic
 magnet:?xt=urn:btih:A1D2A908B94C69AF44495B8F7ED936899E21DF95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:A1D2A908B94C69AF44495B8F7ED936899E21DF95
 magnet:?xt=urn:btih:1162FD17DA242B493C5656F49A727BBAA490B6C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:1162FD17DA242B493C5656F49A727BBAA490B6C1
 ```bash
 magnet:?xt=urn:btih:94A8E2AC30B23961E93C63E6BF1076397DC58D4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ Viva - Das ist die Wahrheit (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Mel
 magnet:?xt=urn:btih:9A59A1D6585900A1875FE67C36C6542E48FE9CCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ MediaHuman YouTube Downloader 3.9.9.81 (2503) RePack (& Portable) by Dodakaedr [
 magnet:?xt=urn:btih:01969230430BBD20450A15AD0C61EDE103DCE60F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:01969230430BBD20450A15AD0C61EDE103DCE60F
 ```bash
 magnet:?xt=urn:btih:F8156B6EC949A015C3C43735297F9C86416DC8CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ Opera GX - это специальная версия браузера Opera, с
 magnet:?xt=urn:btih:8AFCC3DF67DBCCB483221F750F99C2D9E3CB275B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:8AFCC3DF67DBCCB483221F750F99C2D9E3CB275B
 ```bash
 magnet:?xt=urn:btih:F1A3E4138573AB8B1F7677888C2FA74FE0B00898
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ VA - ICONYC Five Years, Pt. 1 (2021) [AAC|~331 Kbps] <Progressive House, Melodic
 magnet:?xt=urn:btih:D8463C0A5EAB9A2A5B56497AFA96C457EE427FF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:D8463C0A5EAB9A2A5B56497AFA96C457EE427FF3
 ```bash
 magnet:?xt=urn:btih:9765AED2BF2AA70B4BC7444F3683EC5A8E30521E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:9765AED2BF2AA70B4BC7444F3683EC5A8E30521E
 ```bash
 magnet:?xt=urn:btih:CC4C647110AE98F6B7AE7146A633279611BB603D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +460,8 @@ Penumbra - Eden (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Gothic Metal>
 magnet:?xt=urn:btih:C681E2A953A8F811F8FC63A50DD219646670F1CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ Spiro Buzharovski | Introducing Blockchain with Java (2022) [PDF][EN]
 magnet:?xt=urn:btih:20F1DCF16EBC7850FC5FAB7CFEA25B2A7364FC15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ FastStone Image Viewer - вьювер, редактор и конвертор г
 ```bash
 magnet:?xt=urn:btih:F3FDF040EB49D3A1004D047ADC98359884C477D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +540,8 @@ magnet:?xt=urn:btih:F3FDF040EB49D3A1004D047ADC98359884C477D9
 magnet:?xt=urn:btih:5D804820DCB7060386A4617E92E7EFD8C20D2949
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ magnet:?xt=urn:btih:5D804820DCB7060386A4617E92E7EFD8C20D2949
 magnet:?xt=urn:btih:E0D3012B62BF016661F8298909D453C6145EE4C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ Nurarihyon no Mago: Sennen Makyou | Nura: Rise Of The Yokai Clan Demon Capital |
 ```bash
 magnet:?xt=urn:btih:E7E5EAE901F18C3E6911D9D015D6B88E7D08BD1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +621,8 @@ VA - Bossa N Michael (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 magnet:?xt=urn:btih:472A36522196A3D18E63059236BF9D0A35C608C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +646,8 @@ magnet:?xt=urn:btih:472A36522196A3D18E63059236BF9D0A35C608C5
 ```bash
 magnet:?xt=urn:btih:F5F96910AA7E25D156D320C84ADC43AC6BE857B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +673,8 @@ magnet:?xt=urn:btih:F5F96910AA7E25D156D320C84ADC43AC6BE857B1
 ```bash
 magnet:?xt=urn:btih:AC7C717C9048596F0155E13B994AC177DA1B60DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -652,6 +702,8 @@ The Hara - Survival Mode (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock,
 ```bash
 magnet:?xt=urn:btih:1DB10699D6F7C5402B8D39CE804398D3E5A55F64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

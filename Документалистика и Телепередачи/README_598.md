@@ -1,3 +1,29 @@
+###  Публикация: 1117671   (801975) от 31.03.2017
+
+Последние короли-воители Европы / Europe's Last Warrior Kings (2016) HDTVRip [H.264/720p-LQ] (3 серии из 3)
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это рассказ о трех королях, трех битвах и трех вторжениях, о 12-ти месяцах изменивших Британию. Английских король Гарольд II, герцог Нормандии Вильгельм и король викингов Харальд III. Все они встретились в череде кровавых битв, которые положили конец террора викингов. Тысячу лет назад они сражались во имя славы - за власть над небольшим островом на краю Европы. Двое (   Читать дальше...   )Телекомпания: Великобритания, BBCЖанр: Документальный, война, историяПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 3 х ~ 00:58:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADF947D77CD438CE44CC717C6057D63A6DD279C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120733   (802060) от 31.03.2017
 
 Вечерний Ургант (2017.03.31) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:A6DD9D4EB17203F45635060F1D864B5916F4D4DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:A6DD9D4EB17203F45635060F1D864B5916F4D4DD
 magnet:?xt=urn:btih:27892EB43E8D6DA2525698927100DC674DBA7460
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:27892EB43E8D6DA2525698927100DC674DBA7460
 ```bash
 magnet:?xt=urn:btih:7AB5EEE90441BF50855A028F8F945E621E8FF11A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:7AB5EEE90441BF50855A028F8F945E621E8FF11A
 magnet:?xt=urn:btih:D307C11E2065C181BBB113D4D26778AE1ACBF6F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:D307C11E2065C181BBB113D4D26778AE1ACBF6F7
 ```bash
 magnet:?xt=urn:btih:F048CDCD859AFBEB7E2ED8760ED0E2579225F9DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:F048CDCD859AFBEB7E2ED8760ED0E2579225F9DF
 magnet:?xt=urn:btih:F14449736694AA153A68D364FE1F08223AD94152
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:F14449736694AA153A68D364FE1F08223AD94152
 ```bash
 magnet:?xt=urn:btih:0CA04F5997F36DB29E43BD10EC54EF2B35CD90CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:0CA04F5997F36DB29E43BD10EC54EF2B35CD90CD
 magnet:?xt=urn:btih:19AECE5B04D707F9D1E19FE5AAB834641F6E1E53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:19AECE5B04D707F9D1E19FE5AAB834641F6E1E53
 ```bash
 magnet:?xt=urn:btih:878A3669A5AF8A5B3B18D763BF225441EEEB7E12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:878A3669A5AF8A5B3B18D763BF225441EEEB7E12
 magnet:?xt=urn:btih:54D7BD58AFC6B589F4727A6AF61B6FEB7F0F8155
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:54D7BD58AFC6B589F4727A6AF61B6FEB7F0F8155
 ```bash
 magnet:?xt=urn:btih:63EFEEFCFA2E0A3D117F2F5E23211C104267BA8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:63EFEEFCFA2E0A3D117F2F5E23211C104267BA8B
 magnet:?xt=urn:btih:B93C51648E57885058572C7E74EDA8456299193D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +356,8 @@ magnet:?xt=urn:btih:B93C51648E57885058572C7E74EDA8456299193D
 ```bash
 magnet:?xt=urn:btih:63FAB3846D247552751162BBC15FB5A781A4D01A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:63FAB3846D247552751162BBC15FB5A781A4D01A
 magnet:?xt=urn:btih:D96308A2208CE1A82461B00CE8F13D33DF549622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +408,8 @@ magnet:?xt=urn:btih:D96308A2208CE1A82461B00CE8F13D33DF549622
 ```bash
 magnet:?xt=urn:btih:3169F46E23B4683BE065F98AD14972DF8FBBA701
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:3169F46E23B4683BE065F98AD14972DF8FBBA701
 magnet:?xt=urn:btih:8F719F188F863AAD69FB4AE34A9B843F836BB120
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:8F719F188F863AAD69FB4AE34A9B843F836BB120
 ```bash
 magnet:?xt=urn:btih:7D6B91841C586B278AF406D9E52C2D8EE703C917
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:7D6B91841C586B278AF406D9E52C2D8EE703C917
 magnet:?xt=urn:btih:1DE0E9B0FDE1A4AE0D0F472A3C03AECE912E9637
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:1DE0E9B0FDE1A4AE0D0F472A3C03AECE912E9637
 ```bash
 magnet:?xt=urn:btih:1E07008F7AB8C221FDAD54E370920A806672DD93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:1E07008F7AB8C221FDAD54E370920A806672DD93
 magnet:?xt=urn:btih:65ADC4BFA94ABB254148775E53F096ACF9B2DDAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:65ADC4BFA94ABB254148775E53F096ACF9B2DDAE
 ```bash
 magnet:?xt=urn:btih:5DBC98AAE913C6FBB11073B1995CB7D9AC056A19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:5DBC98AAE913C6FBB11073B1995CB7D9AC056A19
 magnet:?xt=urn:btih:A275407A1B2B8DC1A5CDF0C1FBEEC09B7C22B8CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:A275407A1B2B8DC1A5CDF0C1FBEEC09B7C22B8CB
 magnet:?xt=urn:btih:F6F1B1483900CD42DFBFD9E8C6BE524975222BB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:F6F1B1483900CD42DFBFD9E8C6BE524975222BB1
 ```bash
 magnet:?xt=urn:btih:99AB1FC3D85DC3A1C7A3C862B108CC0F4C935621
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,30 +676,7 @@ magnet:?xt=urn:btih:99AB1FC3D85DC3A1C7A3C862B108CC0F4C935621
 magnet:?xt=urn:btih:74DEE8B3A9F720DF0443C46CFD7062B64E5D3E9F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120447   (803452) от 30.03.2017
-
-Поединок с Владимиром Соловьевым (2017.03.30) SATRip
-
->>Документалистика и Телепередачи
->>Общественно-политические и пропагандистские ток-шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Актуальный разговор Владимира Соловьева на общественно-политические темы.
-Сегодня на телеканале «Россия-1» в программе «Поединок с Владимиром Соловьевым» Сергей Кургинян против Николая Злобина.Телекомпания: РоссияЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD9AC80906D26C3BB5F8BC6B19483864B5081938
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

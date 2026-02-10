@@ -1,3 +1,29 @@
+###  Публикация: 1851642   (1055437) от 
+
+Виктор Викторов | Пепел (Книга 3). Полозов. Игры разума (Том 3) (2025) [MP3, Семён Ващенко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отвергнутый собственным Родом, сосланный в глухую северную провинцию, Пётр Полозов пытается обуздать родовой дар, наличие которого он всеми силами старается скрыть ото всех.Его считают ни на что не способным?Пусть. Ещё не время заявлять о себе!Его хотят сделать разменной монетой? А вот здесь, дорогие родственнички, вы крупно просчитались!На что может пойти амбициозный (   Читать дальше...   )Жанр: Боевая магия, Боевое фэнтези, Городское фэнтезиИздательство: ЛитРесПродолжительность: 07:23:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C506515261B0BAA711D92BF41FB7BC6D8823D593
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1851641   (1055438) от 
 
 Виктор Викторов | Пепел (Книга 2). Полозов. Мёртвый сезон (Том 2) (2025) [MP3, Семён Ващенко]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:B6EA24FB57D94A447FA3CD4DA3C116078A5680FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:B6EA24FB57D94A447FA3CD4DA3C116078A5680FA
 magnet:?xt=urn:btih:75FCC716472FFBE7B2E2D55F8DB1F6DFC1427AC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:75FCC716472FFBE7B2E2D55F8DB1F6DFC1427AC5
 ```bash
 magnet:?xt=urn:btih:2FF74B8506070E6C620A06AB4D9E2D7D83AAB968
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:2FF74B8506070E6C620A06AB4D9E2D7D83AAB968
 magnet:?xt=urn:btih:CB220666A9F1826DDD002C10A0CF2474C353C0DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:CB220666A9F1826DDD002C10A0CF2474C353C0DB
 ```bash
 magnet:?xt=urn:btih:11DAF268D780486304409CAA3A70C004CDDD66DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:11DAF268D780486304409CAA3A70C004CDDD66DB
 magnet:?xt=urn:btih:BD2B1ED434D8D3B0C0D4CA6B595F09DCD2A931E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:BD2B1ED434D8D3B0C0D4CA6B595F09DCD2A931E8
 ```bash
 magnet:?xt=urn:btih:49F0D09F5794D79F14B22F6E3319116E2DCA7119
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:49F0D09F5794D79F14B22F6E3319116E2DCA7119
 magnet:?xt=urn:btih:FC0B629624481C7CBEB27959DE395EB4F3E4AA59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:FC0B629624481C7CBEB27959DE395EB4F3E4AA59
 ```bash
 magnet:?xt=urn:btih:85B885085172EACF1F77BC3129F4A9F313FC5607
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:85B885085172EACF1F77BC3129F4A9F313FC5607
 magnet:?xt=urn:btih:3B9B61286FD3A4ABCCCE5401E32F6103A7ED0C4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:3B9B61286FD3A4ABCCCE5401E32F6103A7ED0C4D
 ```bash
 magnet:?xt=urn:btih:F18B65B78580ABFF00228DEF03F406D505650C98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:F18B65B78580ABFF00228DEF03F406D505650C98
 magnet:?xt=urn:btih:178F9C254E63E2E9D335C5D2C146AFFCCD6789A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:178F9C254E63E2E9D335C5D2C146AFFCCD6789A2
 ```bash
 magnet:?xt=urn:btih:57FD3D8AF7D9614D7D1762051A1567B5E6C8DFB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:57FD3D8AF7D9614D7D1762051A1567B5E6C8DFB9
 magnet:?xt=urn:btih:E65243571CE15C07B417662C8ACB4903A97EFEDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:E65243571CE15C07B417662C8ACB4903A97EFEDE
 ```bash
 magnet:?xt=urn:btih:2F060C9001228078409D4AD6BB2D3018C07CBAA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:2F060C9001228078409D4AD6BB2D3018C07CBAA1
 magnet:?xt=urn:btih:EFB8632AC1D526317AA29CF305DF411789AB7F63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:EFB8632AC1D526317AA29CF305DF411789AB7F63
 ```bash
 magnet:?xt=urn:btih:7D571CB733F7BCCDB6FE525840C979515DB77359
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +498,8 @@ magnet:?xt=urn:btih:7D571CB733F7BCCDB6FE525840C979515DB77359
 magnet:?xt=urn:btih:2BAE0F83759D79DF7817193F996261813EFC24CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +524,8 @@ magnet:?xt=urn:btih:2BAE0F83759D79DF7817193F996261813EFC24CB
 ```bash
 magnet:?xt=urn:btih:9862F17C64DA93B30808C85163B2FA39920B9552
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +553,8 @@ magnet:?xt=urn:btih:9862F17C64DA93B30808C85163B2FA39920B9552
 magnet:?xt=urn:btih:09D055552C309437248ADBBF1FAC0ED76F3E1A5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +581,8 @@ magnet:?xt=urn:btih:09D055552C309437248ADBBF1FAC0ED76F3E1A5C
 magnet:?xt=urn:btih:96249C97821D7D95D9E70191ACA881D32B25F2E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +606,8 @@ magnet:?xt=urn:btih:96249C97821D7D95D9E70191ACA881D32B25F2E3
 ```bash
 magnet:?xt=urn:btih:DECC80A59A9FF0FA6A9520E996F6CC442BF7C030
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +634,8 @@ magnet:?xt=urn:btih:DECC80A59A9FF0FA6A9520E996F6CC442BF7C030
 magnet:?xt=urn:btih:979BFC048C180A583BC092F855BA1AC0303CD4CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +661,8 @@ magnet:?xt=urn:btih:979BFC048C180A583BC092F855BA1AC0303CD4CE
 magnet:?xt=urn:btih:CF8208BF97CBE3ED37983BB701C0234F3CDDC143
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,29 +687,7 @@ magnet:?xt=urn:btih:CF8208BF97CBE3ED37983BB701C0234F3CDDC143
 magnet:?xt=urn:btih:AD37B61C5B6EA4B78A57EFCF4575A2A04C5D0D09
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851916   (1055541) от 
-
-Виктор Федоров | Симфарея (Книга 2). Тень изначальных (2025) [MP3, Евгений ЧеИзС]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Над империей сгущаются тени. На континенте растет напряжение, которое эхом отзывается в каждом уголке страны, угрожая разрушить ее изнутри. Эдвин и его спутники спешат в столицу. На этом пути им предстоит столкнуться не только с противодействием вражеских сил, но и с внутренними конфликтами. Райя, оказавшись в центре политической бури, вынуждена лавировать между (   Читать дальше...   )Жанр: Героическое фэнтезиИздательство: ЛитРесПродолжительность: 18:29:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E92B6EF8104BD7C107A39A73127DD2D07219A1B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

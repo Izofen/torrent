@@ -1,27 +1,3 @@
-###  Публикация: 1285187   (722430) от 25.02.2019
-
-Ральф против интернета / Ralph Breaks the Internet (2018) UHD BDRip [H.265/2160p-LQ] [10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722430.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этот раз Ральф и Ванилопа фон Кекс выйдут за пределы зала игровых автоматов и отправятся покорять бескрайние просторы Интернета, который может и не выдержать сокрушительного обаяния громилы.Производство: США, Walt Disney Animation Studios, Walt Disney PicturesЖанр: Мультфильм, Приключения, Комедия, Семейный, ФентезиРежиссер: Фил Джонстон, Рич МурПеревод: Дублированный (iTunes)Субтитры: Русские(Forced, Full), английские(Full,SDH)Продолжительность: 01:52:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AE6521E9A91FC28393758CAB8B6EE32C617D258
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400036   (722548) от 03.08.2020
 
 Нэчжа / Ne zha zhi mo tong jiang shi (2019) BDRip [H.264/1080p]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:0AE6521E9A91FC28393758CAB8B6EE32C617D258
 ```bash
 magnet:?xt=urn:btih:3EF33FF818EEA005CC71BB9588192CF5F20E79B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:3EF33FF818EEA005CC71BB9588192CF5F20E79B1
 magnet:?xt=urn:btih:031E69EFA9A1156CDCC9387A7402D57419CD538B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:031E69EFA9A1156CDCC9387A7402D57419CD538B
 ```bash
 magnet:?xt=urn:btih:2E743E6E74B76ACBA8B677A65E2A46F072F8EE71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:2E743E6E74B76ACBA8B677A65E2A46F072F8EE71
 magnet:?xt=urn:btih:524E60EF4420D1E7C11FB3771B18F6077A66984F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:524E60EF4420D1E7C11FB3771B18F6077A66984F
 ```bash
 magnet:?xt=urn:btih:D15FA6B59CF43AD396906F9E65D6576FCB8D8AD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:D15FA6B59CF43AD396906F9E65D6576FCB8D8AD0
 magnet:?xt=urn:btih:5B7D16621C5FCFCAFDD420875E857B84FFC10916
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:5B7D16621C5FCFCAFDD420875E857B84FFC10916
 ```bash
 magnet:?xt=urn:btih:5DBD1D1953617482B7AE1F4B3C792B06A4525CFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:5DBD1D1953617482B7AE1F4B3C792B06A4525CFA
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ magnet:?xt=urn:btih:5DBD1D1953617482B7AE1F4B3C792B06A4525CFA
 ```bash
 magnet:?xt=urn:btih:5794BEB64916066DFB58C7BE7CFBFDCD25687DDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:5794BEB64916066DFB58C7BE7CFBFDCD25687DDA
 magnet:?xt=urn:btih:49695447C988BAA00DCCA7BA3A50C7103363E7B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +279,8 @@ magnet:?xt=urn:btih:49695447C988BAA00DCCA7BA3A50C7103363E7B0
 magnet:?xt=urn:btih:C0D3CF841D3801442621855DEE5FD4109EB84D7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +304,8 @@ magnet:?xt=urn:btih:C0D3CF841D3801442621855DEE5FD4109EB84D7B
 ```bash
 magnet:?xt=urn:btih:53ED00D62DAAB549FF60EAC9838781BD114A373C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +332,8 @@ magnet:?xt=urn:btih:53ED00D62DAAB549FF60EAC9838781BD114A373C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +357,8 @@ magnet:?xt=urn:btih:53ED00D62DAAB549FF60EAC9838781BD114A373C
 ```bash
 magnet:?xt=urn:btih:F5E9C2C2CAF4BB7A79AEB7D27277ECAD0EF796CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +384,8 @@ magnet:?xt=urn:btih:F5E9C2C2CAF4BB7A79AEB7D27277ECAD0EF796CA
 magnet:?xt=urn:btih:220F88A94E12BE16C575E5F2428B44DDA1E0B97C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +410,8 @@ magnet:?xt=urn:btih:220F88A94E12BE16C575E5F2428B44DDA1E0B97C
 magnet:?xt=urn:btih:309C238C352DBFA5B9E20A1B1E5902488BE1C3DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +435,8 @@ magnet:?xt=urn:btih:309C238C352DBFA5B9E20A1B1E5902488BE1C3DE
 ```bash
 magnet:?xt=urn:btih:22EB7697B2EA85AE78DD89B6004B61DDDA15D4DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +464,8 @@ magnet:?xt=urn:btih:22EB7697B2EA85AE78DD89B6004B61DDDA15D4DE
 magnet:?xt=urn:btih:3D05219CE2A70602206E1F4CE1A8EB01CEA3AD26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +490,8 @@ magnet:?xt=urn:btih:3D05219CE2A70602206E1F4CE1A8EB01CEA3AD26
 ```bash
 magnet:?xt=urn:btih:24E4D8B24B454E336A1A7B587AC4CDB4AB269107
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +518,8 @@ magnet:?xt=urn:btih:24E4D8B24B454E336A1A7B587AC4CDB4AB269107
 magnet:?xt=urn:btih:7E8E1556739719393A7AA4456B6B3C9DF95E6131
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +544,8 @@ magnet:?xt=urn:btih:7E8E1556739719393A7AA4456B6B3C9DF95E6131
 magnet:?xt=urn:btih:19C91A1BD12E87797A8D7A231877ABA3C97A47C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +569,8 @@ magnet:?xt=urn:btih:19C91A1BD12E87797A8D7A231877ABA3C97A47C4
 ```bash
 magnet:?xt=urn:btih:010F8252A2EF2631E1BCF98C530B4E89C146D910
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +597,8 @@ magnet:?xt=urn:btih:010F8252A2EF2631E1BCF98C530B4E89C146D910
 magnet:?xt=urn:btih:1A35E0A955999F2DA1A126B6FA108C5075C7F112
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +623,8 @@ magnet:?xt=urn:btih:1A35E0A955999F2DA1A126B6FA108C5075C7F112
 magnet:?xt=urn:btih:8518ABA8C8EB8EDE8B72E92B6BE98CE3CD35149B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +648,34 @@ magnet:?xt=urn:btih:8518ABA8C8EB8EDE8B72E92B6BE98CE3CD35149B
 ```bash
 magnet:?xt=urn:btih:2C75037B5B7C159509230BD8410E642569C9B7CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530404   (728439) от 11.02.2022
+
+Ледниковый период: Приключения Бака / The Ice Age Adventures of Buck Wild (2022) WEB-DL [H.264/1080p] [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесстрашный одноглазый хорек Бак объединяется с озорными братьями-опоссумами Крэшем и Эдди, когда они отправляются в новое приключение в мир динозавров.Производство: США / 20th Century Studios, Bardel Entertainment, Twentieth Century AnimationЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Джон С. ДонкинПеревод: Многоголосый профессиональный (Flarrow Films, HDRezka Studio),  двухголосый профессиональный (Pazl Voice)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 01:21:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7000DD1C4AA2D4B813797F5FA83C4201986C92AC
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

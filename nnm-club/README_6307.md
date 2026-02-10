@@ -22,6 +22,8 @@ Blackburn Brothers - SoulFunkn'BLUES (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues
 magnet:?xt=urn:btih:09A212D6ADCDD923AE5B342575F9AD2F78A904F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Avi Rosenfeld - Black Rock Mountain (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, 
 ```bash
 magnet:?xt=urn:btih:70A99A66DE9EF04CA2426BA2F2CF80A58BCA5CAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Art of Dysfunction - Art of Dysfunction (2023) [FLAC|Lossless|WEB-DL|tracks] <Ha
 magnet:?xt=urn:btih:45DEAD19A7EB5D65ED761306FAD0F3C036C46C95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Sprain - The Lamb as Effigy (2023) [FLAC|Lossless|WEB-DL|tracks] <Noise Rock, Po
 ```bash
 magnet:?xt=urn:btih:8948E64657E03B6B49459B60177DF795780A019F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Rock Paper Sisters - One In A Million (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock
 magnet:?xt=urn:btih:EE59F5138D8CFFC637CADB90188E165D2F115EF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ Frankie and the Witch Fingers - Data Doom (2023) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:47DD80B54698F761EB823E9A2096A9AE2FFA5CD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ magnet:?xt=urn:btih:47DD80B54698F761EB823E9A2096A9AE2FFA5CD5
 ```bash
 magnet:?xt=urn:btih:CC574B3DF1CB19C1191040B9DFC51EA2F68CE433
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ Justin Light & The Midnighters - This Ain't Nothing but the Blues (2023) [FLAC|L
 magnet:?xt=urn:btih:CBD5B03AE93BF74259DAAEEB2B32CFBEFCAA7C5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -232,6 +248,8 @@ magnet:?xt=urn:btih:CBD5B03AE93BF74259DAAEEB2B32CFBEFCAA7C5A
 magnet:?xt=urn:btih:1782BBF1CA8C55690FC94C1C484A720031534561
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +273,8 @@ magnet:?xt=urn:btih:1782BBF1CA8C55690FC94C1C484A720031534561
 ```bash
 magnet:?xt=urn:btih:06839472871E650416B82706DE05BFF69AD760EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +303,8 @@ Windows 10 (v22h2) x64 PRO by KulHunter v1 (esd) [En]
 magnet:?xt=urn:btih:AB92EBA1FE520E2BD23903779DC5D7AB2A18FA03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +328,8 @@ Nokia планирует развернуть 4G на Луне в 2023 году
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +355,8 @@ Nokia планирует развернуть 4G на Луне в 2023 году
 magnet:?xt=urn:btih:D15015290D9F535AD5C291C7FB545ACB5E590E2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ magnet:?xt=urn:btih:D15015290D9F535AD5C291C7FB545ACB5E590E2D
 ```bash
 magnet:?xt=urn:btih:333104764E864E266B2D7DD98B805A16A91C986D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +407,8 @@ magnet:?xt=urn:btih:333104764E864E266B2D7DD98B805A16A91C986D
 magnet:?xt=urn:btih:15568F3F49DDA987E6ED5A7F1FC97E50F56CDC3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ magnet:?xt=urn:btih:15568F3F49DDA987E6ED5A7F1FC97E50F56CDC3E
 magnet:?xt=urn:btih:3777736759865171109C8E7E7BAE5CF523F3CD44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ magnet:?xt=urn:btih:3777736759865171109C8E7E7BAE5CF523F3CD44
 ```bash
 magnet:?xt=urn:btih:060CBC3F1877ADEE0AA07613CF7B137128A3A81D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +488,8 @@ Dan Patterson - Space Trail (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:175417CACD1C35EB5B0C80EEE83DF91CBB6803B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +517,8 @@ Azula Queen Quartet - Blues Sem Fronteiras (2023) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:3B683B6241B56F55FD97020E275B49C08DD9D977
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +545,8 @@ magnet:?xt=urn:btih:3B683B6241B56F55FD97020E275B49C08DD9D977
 magnet:?xt=urn:btih:00FFCC6DA90E55E2081C0B580E53EC0DC4B6247F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +570,8 @@ magnet:?xt=urn:btih:00FFCC6DA90E55E2081C0B580E53EC0DC4B6247F
 ```bash
 magnet:?xt=urn:btih:0E3F47964947AF035895A85C4E5C1BDCD62C50A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +600,8 @@ Diamonds and Guns - Making Cash For Heartless Crooks (2023) EP [FLAC|Lossless|WE
 magnet:?xt=urn:btih:F2A4B648EAE8ACCDBA3FDC782B7B950DC855BB4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ magnet:?xt=urn:btih:F2A4B648EAE8ACCDBA3FDC782B7B950DC855BB4D
 ```bash
 magnet:?xt=urn:btih:E162C3EA1CEACDBE4775A6DA6A631771C5EAFC39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +655,8 @@ Black Oak Arkansas - The Devil's Jukebox (2023) [FLAC|Lossless|WEB-DL|tracks] <R
 magnet:?xt=urn:btih:FCEA5AFD1A425207D6122128D21DBE59C7834BF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +684,8 @@ A3 It'll Be Me(   Читать дальше...   )Жанр: Rock, Rock & RollП�
 magnet:?xt=urn:btih:8EBE27A6A2DED1915CCF33A93F067E2CA235F426
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -662,6 +712,8 @@ A4 Cielito Lindo(   Читать дальше...   )Жанр: Rock, Latin, Funk�
 ```bash
 magnet:?xt=urn:btih:C08B7EBC74F6486F0E2B35019F1290F198011AAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

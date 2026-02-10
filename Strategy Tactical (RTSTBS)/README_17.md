@@ -19,6 +19,8 @@ Mutant Year Zero: Road to Eden (2018) [Ru/Multi] (1.06) License CODEX
 magnet:?xt=urn:btih:0233EECCC42CC15EC5D3C131AA6E81AD8EF47199
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Check Your 6! — пошаговая стратегия повещенная в�
 ```bash
 magnet:?xt=urn:btih:E962500ACF0AAE48B7159DEB63FA93B95C75FDC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Company of Heroes 2 (2014) [Ru/En] (4.0.0.21863/dlc) Repack xatab [Master Collec
 magnet:?xt=urn:btih:7736C0893D33FF7532D2C3462244D4C8B6ECE425
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Halo Wars (2017) [Ru/En] (1.12033.2.0hf) Repack R.G. Revenants [Definitive Editi
 ```bash
 magnet:?xt=urn:btih:AEDB54B86CC891C4F9DD71AC9A6BA4E4E0CF4042
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ War Mongrels — это изометрическая тактическая иг
 magnet:?xt=urn:btih:4C7B72D1FB4B459A1C14F160CD3C0704CC053587
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Eador: Masters of the Broken World / Эадор: Владыки миров (2013
 ```bash
 magnet:?xt=urn:btih:C595E3817B03851962A7D8F218EC4858CA4F3EA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Tales from the Void (2016) [Ru/Multi] (1.0) License POSTMORTEM
 magnet:?xt=urn:btih:618441FED9DDABE5014E591AC41F1BA313C45D1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Halo Wars (2017) [Ru/En] (1.2033.2.0) Repack xatab [Definitive Edition]
 ```bash
 magnet:?xt=urn:btih:8ECAC054523F82E3B96F598F12B3990A60BDE088
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Halo Wars (2017) [Ru/Multi] (1.2033.2.0) License CODEX [Definitive Edition]
 magnet:?xt=urn:btih:84C988BF4C8C0377094C257592B6EDEF7691364F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Phantom Doctrine — шпионская пошаговая стратегия-т
 ```bash
 magnet:?xt=urn:btih:66DDE920372388DEF7546F26E416E951A456E7CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ XCOM: Отряд «Химера» открывает новую главу в и
 magnet:?xt=urn:btih:50082F13232DC7D966979A34DFDFF1E260E747DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Empires Apart — стратегия в реальном времени о Ср�
 ```bash
 magnet:?xt=urn:btih:87D3AF89F77161AFEFAABB43F3603F5B2B4B053D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Valkyria Chronicles (2014) [Ru/En] (1.0.0.1/upd3/dlc) Repack R.G. Catalyst
 magnet:?xt=urn:btih:6F7FC0DF4617DF0F4B4F09BB4CE6E00F6314C03C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Empires Apart — стратегия в реальном времени о Ср�
 ```bash
 magnet:?xt=urn:btih:E44F1B4078FE321313EE9DD96139402100FB6A27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Worms W.M.D (2016) [Ru/Multi] (1.0.0.273а/dlc) License GOG
 magnet:?xt=urn:btih:612F4BE9B9CA84EDB526FD70674FA0BB889ED550
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Panzer Corps вернулся! Да не просто так, а с тремя �
 ```bash
 magnet:?xt=urn:btih:4A758095FA8D1FC0AC3BB9D8B5ED2189B9BDD4AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ Excubitor (2016) [En/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:7666582D8F40724AA86AF721189F1C5C53D686B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Excubitor (2016) [En/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:355D1CC9D26A12E168B50CB920A74AA88D9C7D20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ Battletech - это пошаговый ролевой экшен с робота
 magnet:?xt=urn:btih:2382EAE2C0BF4ECF7EEA64C2A01E13916D63F07E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ Panzer Corps 2 - лучшая стратегическая игра о Втор�
 ```bash
 magnet:?xt=urn:btih:CE9B817039D07E08F5089F32740563BCE881725F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ Jagged Alliance возвращается! Превосходное сочета�
 magnet:?xt=urn:btih:7EEBF4038E94611A0D887F7B7FBCCEA71A34022A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ Sudden Strike 4 (2017) [Ru/En/Ger] (1.14.29902/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:2AA7F939F6A91FCCA48506C32F64ECB8D3728FCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ Re-Legion (2019) [Ru/Multi] (1.0.0.194-j) License CODEX
 magnet:?xt=urn:btih:11F6E851FC8417F6470EA74E303300D79A70E5FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ Warhammer Quest 2: The End Times (2019) [Ru/Multi] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:8463FF1C42CC76C4488AD645E68E82645C30E7D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ Warhammer Quest 2: The End Times (2019) [Ru/Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:526220ED833DD6A85F412E7B0958C7D6DF5D3E51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Tank Warfare: Тунис 1943 – тактический симулятор бо
 ```bash
 magnet:?xt=urn:btih:7577F7CC60E3B4D0E36B80EAE48CAF4E04ED63EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

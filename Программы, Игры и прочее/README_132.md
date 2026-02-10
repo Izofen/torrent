@@ -19,6 +19,8 @@ Perfect Angle v1.6 [Ru/Multi]
 magnet:?xt=urn:btih:5BF5CFEA5C1E288973826A032E2EA01DDA6C7DB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Garmin: City Navigator Middle East & N Africa NT 2018.10 [En]
 ```bash
 magnet:?xt=urn:btih:D217156C24E2081124540A5DA42E7D0CE15BA045
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Garmin TopoActive помогает активно проводить время 
 magnet:?xt=urn:btih:C12286614787B037830395C4B84D6B56DDC01C61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Garmin: TOPO Belarus v3 Light [Ru]
 ```bash
 magnet:?xt=urn:btih:632AC7C79417643E3CFF726C6F3E4F748BDCF5EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Garmin: TOPO Portugal Light v3 [En]
 magnet:?xt=urn:btih:450A062A6199472082C01ED10DDE19CBE0804486
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Garmin: Topo Chile Deluxe 2015.10 [En]
 ```bash
 magnet:?xt=urn:btih:F404E1F301CC86EAE859A019729991BE1D786596
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Garmin: TOPO Southern Africa v3 PRO + Madagascar [En]
 magnet:?xt=urn:btih:A780CFA905ED4829317D9D4BD5DB94E879551F70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Garmin: City Navigator China NT 2015.40 AN (по регионам) [Ch]
 ```bash
 magnet:?xt=urn:btih:FA300363C2420BD7ACBFEAA5781C163194A2B18D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Garmin: City Navigator North America NT 2018.30 [En]
 magnet:?xt=urn:btih:D01C98238EE8A984FE15190CE951550012CD2628
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Garmin: City Navigator Australia & New Zealand HERE NT 2018.30 [En]
 ```bash
 magnet:?xt=urn:btih:9B709651C99C1EEE7C12812667D594F9B74C4142
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Garmin: City Navigator South America NT 2018.20 [En]
 magnet:?xt=urn:btih:6B44199BCF9AC1D1FF1E3FA6F9AF7C68E2E13457
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Garmin: NaviGuide Hungary 2017.10 NT Final (+ v2018.10 NT Beta test) [Hu]
 ```bash
 magnet:?xt=urn:btih:058B474D44DCF82D28980754B502FF5A0D82FCE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:058B474D44DCF82D28980754B502FF5A0D82FCE6
 magnet:?xt=urn:btih:4C6586B20FBCCEF0AC359768690AC949BA097628
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Open Camera 1.48.1 [Ru] - Фото и видеокамера
 ```bash
 magnet:?xt=urn:btih:335E1379CD786A2BF53ED109DCB8EB30CCE16B00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:335E1379CD786A2BF53ED109DCB8EB30CCE16B00
 magnet:?xt=urn:btih:BF2D75C5FC03D07EBAC42102F34392110CFA957A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:BF2D75C5FC03D07EBAC42102F34392110CFA957A
 ```bash
 magnet:?xt=urn:btih:79A31F99FF2B66B3087B4E446FC55B0986B7FFD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:79A31F99FF2B66B3087B4E446FC55B0986B7FFD2
 magnet:?xt=urn:btih:2A05B50038CC71D66CBD4BD679C39F8B3A7CAB2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Maths Formulas 9.2 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E1F42795EFBE4BC4CDB6BCCAE4FFABB23BD86D13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ Glitch Lab прост в использовании, но в то же врем�
 magnet:?xt=urn:btih:112998384CEC29C014874044D63B86887F06C07C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:112998384CEC29C014874044D63B86887F06C07C
 magnet:?xt=urn:btih:A5F627F172DFC5A32E2DDC018E9DCDE2B58381F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ Electrical cost - программа для расчета стоимости э
 ```bash
 magnet:?xt=urn:btih:8847FF954AA27E59B04142B2F586C0E18484F9F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:8847FF954AA27E59B04142B2F586C0E18484F9F3
 magnet:?xt=urn:btih:E3144A67E3BC230DFE4534B5C57DDF7EFA159C74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:E3144A67E3BC230DFE4534B5C57DDF7EFA159C74
 ```bash
 magnet:?xt=urn:btih:36F17AA850375D8F571060DE2236A414F027626E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ magnet:?xt=urn:btih:36F17AA850375D8F571060DE2236A414F027626E
 magnet:?xt=urn:btih:36AA2A86CB9ED5C091C6AE00D0F572B1F142C720
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ Garmin: Road Map of Latvia LM and Road Map of Latvia TOPO LM v2.7 [Lv]
 ```bash
 magnet:?xt=urn:btih:7EA042DC02F587EE47EAA6AF147063AF93059B1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +682,8 @@ BatteryWidget показывает точный уровень заряда ба
 ```bash
 magnet:?xt=urn:btih:5D831A983E8C3EA2FAD1D771B524A0982E18B0B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

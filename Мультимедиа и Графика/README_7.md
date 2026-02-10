@@ -19,6 +19,8 @@ CyberLink PowerDVD Ultra 24.0.0716.62 [Multi/Ru]
 magnet:?xt=urn:btih:3E2DA7E0EEFFD274331AC0BD0A5CAE0D4A2005FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ TagScanner — это мощный инструмент для организа�
 ```bash
 magnet:?xt=urn:btih:8873BC09CD9F671C7BF9AEC5866E92CB96F8C4A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Chief Architect Premier - мощная программа для дизайна 
 magnet:?xt=urn:btih:093EB87770B757061D462AE9EE853A7207D2D44C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ MAXON CINEMA 4D – простая в использовании професс�
 ```bash
 magnet:?xt=urn:btih:22A702EF2E4B2953229EF45E055C168EDAFFBB41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Luxion KeyShot — средство для интерактивной фотор
 magnet:?xt=urn:btih:C2EBE6304464C6ADBDC5A79C5A77DA85C2A8CCF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ DP Animation Maker 3.5.41 RePack (& Portable) by elchupacabra [Ru/En]
 magnet:?xt=urn:btih:00695E956FDFC904801AC557E3C0328373BE396E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ Al-Rack, созданный для непрерывной творческой �
 ```bash
 magnet:?xt=urn:btih:856BEFFBE78DB2EE24DBB7670B6B1E4287D9EBD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Cardinal — это бесплатный виртуальный модульны
 magnet:?xt=urn:btih:A694E5B0089FEBF2CF60BD76F34F746258472C67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Icecream Video Converter Pro 1.47 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:AD7E38055B164BDCC9A9E0A35E821EA54CA6CE41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ FastFlix - это простой и дружественный графичес�
 magnet:?xt=urn:btih:85191646C5B564BA341AD5D3AE60650354DF6F34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ dBpoweramp Music Converter не пытается завоевать пользо
 ```bash
 magnet:?xt=urn:btih:F58C1B21776961E3344273C5503A61880B1B1769
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Icecream Video Converter - Мощный, но простой в использо
 magnet:?xt=urn:btih:E605EB44ECE538D5EC14F0527792D8AC5B3A76BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ XnView Shell Extension 4.2.0  + Standalone  [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6743B0E2557FC33E5EEA8EAB8C0BB2635BD1C7EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Cytomic Effects Bundle 2025.7 VST, VST 3, AAX (x64) RePack by TCD [En]
 magnet:?xt=urn:btih:9C19B6C2AA75D509B1D12DB24FB40244583C5847
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ Pepakura Designer 6.1.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:23D1B01413CFD7EAA31622DB84D0975A503CBA3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Audiopunks - SansAmp Rack 1.0.0 VST 3, AAX (x64) [En]
 magnet:?xt=urn:btih:D58DA57F2E01FF5F7D9E4FE83B391C88D2CFF22E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Filterverse — это один из мощных музыкальных пла�
 magnet:?xt=urn:btih:58791202223536321E849F5E49CFF7B9503FC2CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Vegas Pro — профессиональная программа для мно�
 ```bash
 magnet:?xt=urn:btih:02C46F563633258C300BB13CD562DE0658CD8C47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Rhinoceros 3D - профессиональная среда для модели�
 magnet:?xt=urn:btih:545ED75E67F5971CED85B6C8C709F558CB422DC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Nik Collection by DxO 8.1.2 Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:43BA7434B22E8C4D95D15E7D13B2CB484634A1D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ Artweaver - это полнофункциональный инструмент �
 magnet:?xt=urn:btih:7F743CD6337294348646958B24CA643C76639860
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ WinX VideoProc Converter - усовершенствованная версия, 
 magnet:?xt=urn:btih:85EAFD76323F9D53F939505C5B4E2B59587DD1CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ foobar2000 - это аудиоплеер, подкупающий своим ве
 ```bash
 magnet:?xt=urn:btih:3FD679047DD7EB431BDC15860C63C72A5013BC7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ Chord Generator — это MIDI-инструмент, который генер�
 magnet:?xt=urn:btih:C6F3F5D5C5461B3255DEEF9988084F5042926EAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Harmony Bloom - это MIDI -генератор, объединяющий пол
 magnet:?xt=urn:btih:D554A20A6E7C1F9AA67A2D12F36037BACAA95D28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Newfangled Audio - Pendulate 1.7.0 VSTi, VSTi 3, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:C8029735FED5DCB1E07C336E3516A880F8D13B33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

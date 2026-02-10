@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:AFC38DA89036654707BF795877A9BDD2C2A4C902
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:AFC38DA89036654707BF795877A9BDD2C2A4C902
 magnet:?xt=urn:btih:8505494EF0EA6CB2F44E580F9D29CCBA17922909
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:8505494EF0EA6CB2F44E580F9D29CCBA17922909
 magnet:?xt=urn:btih:FB7945A8C44FEAB871F81B09E4ED67A76BD80A8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:FB7945A8C44FEAB871F81B09E4ED67A76BD80A8A
 ```bash
 magnet:?xt=urn:btih:89E637B24746B9CB7DF2BAC6FB3262D96AA24CB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Esthoria — изысканный, контрастный шрифт с засе
 magnet:?xt=urn:btih:510B3371CDF07C5474160B6EEEF23A2B157DC236
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Melun (Normal), доступен в 5 вариантах начертания и
 ```bash
 magnet:?xt=urn:btih:3A3A7A30A19BAA4F5251CBB58CA3299C48EF8DB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:3A3A7A30A19BAA4F5251CBB58CA3299C48EF8DB8
 magnet:?xt=urn:btih:88982F4A7B6096D54AE00EDAAEEEDDC031818829
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:88982F4A7B6096D54AE00EDAAEEEDDC031818829
 ```bash
 magnet:?xt=urn:btih:027FF51E0DFB57F3E191C7E1D503388B9FB4BA0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ Gravita — это семейство шрифтов, которое выраж�
 magnet:?xt=urn:btih:2D7F91124BDD546E5B4F37E24E6DB8790A9B0854
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:2D7F91124BDD546E5B4F37E24E6DB8790A9B0854
 ```bash
 magnet:?xt=urn:btih:15240D08804A0E562C9B5D8353F13E1AB636B4E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ Umami представлен в 18 начертаниях — от Air до Supe
 magnet:?xt=urn:btih:2BDB3FB9981AA9220B9493A716BC3EF4BF4BB123
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ Waves CPC — это семейство пиксельных шрифтов, к�
 magnet:?xt=urn:btih:635872C8459A820D139B68BB77AFEE4B0CA6B56E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:635872C8459A820D139B68BB77AFEE4B0CA6B56E
 ```bash
 magnet:?xt=urn:btih:70B7E54465D79D9A7AFDB786B08BB43ACCCB888F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +373,8 @@ Enorm — современный, футуристически задуманн�
 magnet:?xt=urn:btih:1A1EE1BE0F1185B7C5D5D828899779C2486BB6B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:1A1EE1BE0F1185B7C5D5D828899779C2486BB6B5
 ```bash
 magnet:?xt=urn:btih:B168B664B3083A83580B5E65BCA83F41290B0DE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:B168B664B3083A83580B5E65BCA83F41290B0DE5
 magnet:?xt=urn:btih:80B7E65D623BDD1B0704519B6D7EC365BB4A4598
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:80B7E65D623BDD1B0704519B6D7EC365BB4A4598
 magnet:?xt=urn:btih:9E71BD1783DE5FAD7E807D31A63C0DE7729456FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ YWFT Burls набрасывается на вас, как линия защит�
 ```bash
 magnet:?xt=urn:btih:E142FE88A4AFA93D37589EC024AB06C1B758D17E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:E142FE88A4AFA93D37589EC024AB06C1B758D17E
 magnet:?xt=urn:btih:59E05A3AF8D90569B9D9DB092D03B8EFD99A779C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ Zekton — это язык высоких технологий, воплощен
 magnet:?xt=urn:btih:ED11257393DD8B105B9E0D0578EF25986D05F27F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ Akshan - Furniture E-Commerce UI Kit с более чем 13+ премиум-э�
 ```bash
 magnet:?xt=urn:btih:DE0EA328B87A33C560C0705BAEDF664D8B6B9C8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +587,8 @@ Northern Sans — современный шрифт без засечек с ч�
 magnet:?xt=urn:btih:BAFB88A7FE4DAFD3B8995B9F511B026A1E99D56E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ Collage Creator — большой набор элементов дизайна.
 ```bash
 magnet:?xt=urn:btih:B3B64E06C4A2A351B19DBC1C6751B92F786B64ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +639,8 @@ magnet:?xt=urn:btih:B3B64E06C4A2A351B19DBC1C6751B92F786B64ED
 magnet:?xt=urn:btih:CC6E6944FDBC225D56A09AABD039508CEB9EACFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:CC6E6944FDBC225D56A09AABD039508CEB9EACFE
 ```bash
 magnet:?xt=urn:btih:A60C6658D8E12E4C4D810FD957D6CB29A9672398
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +692,8 @@ Baru Sans — геометрический шрифт, сочетающий в �
 ```bash
 magnet:?xt=urn:btih:FAC2CBA94FBA570BD4E3CC1C04C586C9220A2D46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

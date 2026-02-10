@@ -22,6 +22,8 @@ VA - House Of Ibiza 2017 [MP3|320 Kbps] <Funky, Club House>
 magnet:?xt=urn:btih:4DFCBADE77EC74EA463F853DD0E7DC583E156C66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Chillout June 2017: Top 10 Best of Collections [MP3|320 Kbps] <Downtempo, L
 ```bash
 magnet:?xt=urn:btih:C8D184AB1AEAD6072508DE66C503334C2C115FA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Pride Jams 2017 (unmixed tracks) [MP3|320 Kbps] <Progressive House>
 magnet:?xt=urn:btih:12A2E0764C71108C8297C5BE4A8D903BB5F5D9B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Chill Friday (2017) [MP3|320 Kbps] <Downtempo, Lounge>
 ```bash
 magnet:?xt=urn:btih:978E96B780CCA9E3031A7E95A0798CCAEC31D67B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Analogue-X - Imaginary (2019) [MP3|320 Kbps] <Synthpop>
 magnet:?xt=urn:btih:BE2852843DA0C085D44184DA11D8D6DFE27BA89D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Firstworld - Im Right Here (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Syn
 ```bash
 magnet:?xt=urn:btih:4305C5F2056500E0255F10E88F257F5D48E9E514
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Daniel Kandi - Live @ Cuckoo's 1st Birthday (26-01-2019)[MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:3CDA9090D7BE8EE378A4BE5BD8A3E930DE80AC09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Pet Shop Boys - Ultimate (2010) [MP3|192-320 kbps]<Pop, Synthpop>
 ```bash
 magnet:?xt=urn:btih:CE5986FDAE5942BC407B163B570363E277135021
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Fatboy Slim - Halfway Between The Gutter & The Stars (15Th Anniversary) (2015) [
 magnet:?xt=urn:btih:4853A63824DB35BD9851E62A30CE2E9726E1BC18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Flash Atkins - The Life & Times (2015) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:36A91E5F82EA737B1F08BBCEA6C688CB3955F15F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +318,8 @@ VA - Ibiza 2012 (2012) [MP3|320 кб/с]<Progressive House, Electro House, House
 magnet:?xt=urn:btih:1CAF34DF6F836A21DB56FAECD7C78D637AAA464C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +346,8 @@ VA - Chill House Ibiza 2016 (Finest Chill House Music) (2016) [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:0EAC1B243523D838AD99D0BDC703A88F8513B6CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +376,8 @@ VA - A State Of Trance (Mixed By Armin van Buuren) (2018)2CD [FLAC|Lossless|trac
 magnet:?xt=urn:btih:EAF801F03F6319A1490C012E3EB16388550A9902
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +404,8 @@ VA - Deep House Invasion (2015) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech 
 ```bash
 magnet:?xt=urn:btih:718921FE5434507D94D5DE0A20B8754A7A653680
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +434,8 @@ Edward Ka-Spel, Jetzmann/L.Ski & Asmus Tietchens - Das Digitale Vertrauen (1997)
 magnet:?xt=urn:btih:A3E48560EFB62D8B32EEDFCA3F2CBFF905987327
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +462,8 @@ Ben Gold - Sound Advice (Chapter One) (2018) [MP3|320 Kbps] <Electronic, Trance,
 ```bash
 magnet:?xt=urn:btih:3AB9E7C7B437DB1A3BBFFBC9BC5C8F8F292258C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +492,8 @@ ENiGMA Dubz - Genesis (2012) [FLAC|Lossless|tracks] <Dubstep, UK Garage, Drum & 
 magnet:?xt=urn:btih:032C1AE84007E36EC6E9AF3B6862419DAC7DFDED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +520,8 @@ The Human Case - Living library (2017) [FLAC|Lossless|WEB-DL|tracks] <Psybient, 
 ```bash
 magnet:?xt=urn:btih:0FFE834C8DE6187DEFEC4202C51ECE6C2F4DD4DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +550,8 @@ VA - Best Summer Hits 2022 - 2023 [MP3|320 Kbps] <House>
 magnet:?xt=urn:btih:700F4FEB5F57014D2953A5710DD3055F42D81EEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +578,8 @@ VA - Ibiza Club Session (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:90032A4732A948F5A76390E1188C75BC9C11A7B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +608,8 @@ VA - Ori Uplift - Uplifting Only 226 (2017) [MP3|320 Kbps] <Uplifting Trance>
 magnet:?xt=urn:btih:EB20C5196756DE927581F1733E5099BFA229D2F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +636,8 @@ Dirty Vegas - Days Go By (The Retrospective) (2018) 2CD, Compilation [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:FB088485525CB6753207E0E58CB6716782247034
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +666,8 @@ al l bo - Loudsteps (2019) [MP3|320 Kbps] <Progressive House, Electro House, Voc
 magnet:?xt=urn:btih:8CB3E3E9ECDF05D38BC4194EE62E1258B01DA22F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +694,8 @@ Ms. Kittin - Batbox (2007) [FLAC|Lossless|image + .cue] <House, Electro>
 ```bash
 magnet:?xt=urn:btih:1B335CCFE567823D5B8B2CDF63AF36C4668BA42A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -676,6 +724,8 @@ Graham Van Pelt - Time Travel (2018) [FLAC|Lossless|tracks + .cue] <Electronic, 
 magnet:?xt=urn:btih:91681E3C0E3AEA8A707A8FAD66305BDFC85CA884
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -702,6 +752,8 @@ CD 4: 01:18:07Производство: Sony Music / 888750 78432Жанр: Break
 ```bash
 magnet:?xt=urn:btih:5DB38FCE551AD739EFAE8CD85E912E52DED79A28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

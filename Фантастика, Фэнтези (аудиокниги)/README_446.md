@@ -1,3 +1,30 @@
+###  Публикация: 1126155   (766086) от 17.04.2017
+
+Роман Глушков | Найти и обезглавить! (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Свирепое, черное фэнтези, где всех единорогов отправили на убой, гламурных принцесс изнасиловали и угнали в рабство, а правда всегда остается за тем, кто ударит первым.
+Никто не должен был уцелеть во время резни, устроенной во дворце гранд-канцлера города-республики Дорхейвена. Однако его единственному сыну Шону повезло – он сбежал от убийц и унес с собой печать, (   Читать дальше...   )Жанр: Боевое фэнтези, Героическая фантастикаПродолжительность: 11:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36C5B4DD3774E7F8A13BFE60DBBA7373C65CFCED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1393793   (766145) от 02.07.2020
 
 Тао Вонг | Спаситель усопших (2020) [MP3]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:F73D47B621ECBC16030570FB02A2E62A42F1BFF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +71,8 @@ magnet:?xt=urn:btih:F73D47B621ECBC16030570FB02A2E62A42F1BFF7
 ```bash
 magnet:?xt=urn:btih:CE7B2D6CC575911E35BE8E6A9C433CEFC936B27B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +99,8 @@ magnet:?xt=urn:btih:CE7B2D6CC575911E35BE8E6A9C433CEFC936B27B
 magnet:?xt=urn:btih:FD21E895685153362F4C7DF5D4177EDAA5059A26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +124,8 @@ magnet:?xt=urn:btih:FD21E895685153362F4C7DF5D4177EDAA5059A26
 ```bash
 magnet:?xt=urn:btih:77109BE690385E68AD721360E34567D9982A18AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +151,8 @@ magnet:?xt=urn:btih:77109BE690385E68AD721360E34567D9982A18AF
 magnet:?xt=urn:btih:8D131AEDC265D2E272B5396BABC00C32CB982EA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +177,8 @@ magnet:?xt=urn:btih:8D131AEDC265D2E272B5396BABC00C32CB982EA4
 magnet:?xt=urn:btih:CBEAEC62ECEF8F6C6CAC7A1231380ACDB744B555
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +202,8 @@ magnet:?xt=urn:btih:CBEAEC62ECEF8F6C6CAC7A1231380ACDB744B555
 ```bash
 magnet:?xt=urn:btih:4B158098D7C1AF334A3D90FFF339D419CC7E4A13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +230,8 @@ magnet:?xt=urn:btih:4B158098D7C1AF334A3D90FFF339D419CC7E4A13
 magnet:?xt=urn:btih:43245E113DAAEC1813E1A2E43E34C27A6C8B07AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +256,8 @@ magnet:?xt=urn:btih:43245E113DAAEC1813E1A2E43E34C27A6C8B07AA
 ```bash
 magnet:?xt=urn:btih:80351C382F6E5415A82402BA28DBA8A953E0289E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +284,8 @@ magnet:?xt=urn:btih:80351C382F6E5415A82402BA28DBA8A953E0289E
 magnet:?xt=urn:btih:CD62A229597597E751875D1922CF281E8AD570B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +309,8 @@ magnet:?xt=urn:btih:CD62A229597597E751875D1922CF281E8AD570B9
 ```bash
 magnet:?xt=urn:btih:D7FBD87626F9D97FE8F05E14E1AE5963BFBEAA55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +336,8 @@ magnet:?xt=urn:btih:D7FBD87626F9D97FE8F05E14E1AE5963BFBEAA55
 magnet:?xt=urn:btih:FE27809EE4CDE5815267918CB3C443A5FA222F1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +362,8 @@ magnet:?xt=urn:btih:FE27809EE4CDE5815267918CB3C443A5FA222F1C
 magnet:?xt=urn:btih:A26B82BD4029750141CDD60120BB692664DCAC41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +387,8 @@ magnet:?xt=urn:btih:A26B82BD4029750141CDD60120BB692664DCAC41
 ```bash
 magnet:?xt=urn:btih:32CEC223759F1B89007A09387E8C37F4F72521DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +416,8 @@ magnet:?xt=urn:btih:32CEC223759F1B89007A09387E8C37F4F72521DD
 magnet:?xt=urn:btih:F275077AAE5FBB2FDF2E9E222034391E76497D89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +442,8 @@ magnet:?xt=urn:btih:F275077AAE5FBB2FDF2E9E222034391E76497D89
 magnet:?xt=urn:btih:022C9D63ECBABC042DE84ABD9833A3B2468A10F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +467,8 @@ magnet:?xt=urn:btih:022C9D63ECBABC042DE84ABD9833A3B2468A10F0
 ```bash
 magnet:?xt=urn:btih:0640B9B669968911DE7A740FAF8E4B34C8BE79AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +496,8 @@ magnet:?xt=urn:btih:0640B9B669968911DE7A740FAF8E4B34C8BE79AF
 magnet:?xt=urn:btih:F271F59D40211025AD2F232FF3B8F21517B8D716
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +522,8 @@ magnet:?xt=urn:btih:F271F59D40211025AD2F232FF3B8F21517B8D716
 magnet:?xt=urn:btih:8D30D36332217A43434BCEA1CAEA84BB0E3FC55A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +547,8 @@ magnet:?xt=urn:btih:8D30D36332217A43434BCEA1CAEA84BB0E3FC55A
 ```bash
 magnet:?xt=urn:btih:C47812E26E5E85A86C26DF7E838B6E9149BF100A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +575,8 @@ magnet:?xt=urn:btih:C47812E26E5E85A86C26DF7E838B6E9149BF100A
 magnet:?xt=urn:btih:7B6B4DC3CE285EE4429ABB79BBF9472BAD647A98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +600,8 @@ magnet:?xt=urn:btih:7B6B4DC3CE285EE4429ABB79BBF9472BAD647A98
 ```bash
 magnet:?xt=urn:btih:075F03D435775431DB8CEC004F7CA2F3D2A010BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +628,8 @@ magnet:?xt=urn:btih:075F03D435775431DB8CEC004F7CA2F3D2A010BF
 magnet:?xt=urn:btih:0275D01C3115CF1A4763212C4E193E8A900BE48D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +653,8 @@ magnet:?xt=urn:btih:0275D01C3115CF1A4763212C4E193E8A900BE48D
 ```bash
 magnet:?xt=urn:btih:F2863616AB59FF0A4A8AE945C94D652A9584E345
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,29 +681,7 @@ magnet:?xt=urn:btih:F2863616AB59FF0A4A8AE945C94D652A9584E345
 magnet:?xt=urn:btih:EC5AC8B27A947FBF267AC83980C7D9A5DC5E56BD
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125087   (768653) от 14.04.2017
-
-Елена Звёздная | О мстительных некромантах и запрещенных артефактах (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768653.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Некросе, где обучаются самые таинственные маги, зародилось самое захватывающее зрелище семи королевств – Мертвые Игры. И все началось именно с них, с этих проклятых Игр! Мало того что я, Риа Каро, маг-артефактор, привлекла внимание Норта Дастела, выпускника с самым что ни на есть некромантским характером, так в придачу после моей победы в Играх кто-то неведомый (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 11:10:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AB21F480F90C9B2377B0B3F1B55D476FD86FA11
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

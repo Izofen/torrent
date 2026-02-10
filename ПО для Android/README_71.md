@@ -19,6 +19,8 @@ Display Tester v5.35.6 Mod by Balatan, AnBo39  [Ru/En]
 magnet:?xt=urn:btih:7D8EE7A9FDA4752C80742C928FBE038961061E08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ WPS Office - очень полезное, офисное приложение д
 ```bash
 magnet:?xt=urn:btih:A03F33A7D9F39C70F1A1522567DC22810770E9A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Picsart AI Photo Editor, Video v28.6.7 Gold Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:5FC895E98823BD138DB2A5F6622032BC50DFF4B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ CCleaner - один из самых известных и популярных �
 ```bash
 magnet:?xt=urn:btih:D3652267B906FB747A3982554FF674B76D63D0AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ PhotoRoom - приложение, что будет одинаково поле�
 magnet:?xt=urn:btih:4BF899956854FF71491AB6DCE7BD5F9BFA72819F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ WPS Office - очень полезное, офисное приложение д
 ```bash
 magnet:?xt=urn:btih:734F1025D25B51B638C2A0B41835F10A2F9DF3C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Memrise - шикарный образовательный проект пред�
 magnet:?xt=urn:btih:04245E2E54CA3533F224D97351AF0EA201FA0221
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ MintAI - Photo Enhancer Remini v1.2.9 [Ru/Multi]
 magnet:?xt=urn:btih:870893DDF5CBC7F797590BDBF2259F01C81654DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ LibriVox Аудио книга Сторонник предлагает неог�
 ```bash
 magnet:?xt=urn:btih:591D1C56BA4A17D2A504509EE394B274F8ABDD51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:591D1C56BA4A17D2A504509EE394B274F8ABDD51
 magnet:?xt=urn:btih:8F6A279E66336ACBBD1B4B0FD833F06AA5138770
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Background Eraser (InShot Inc.) v2.142.42 [Ru/Multi]
 magnet:?xt=urn:btih:FF879D93DF30AF9D0372B9C56F58EECECE60FDC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Screen Lock - приложение для быстрой блокировки / 
 ```bash
 magnet:?xt=urn:btih:97DC4A96990868827DC461B0C7DAC1CDA0C6FD01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ GPS Локер создан для того чтоб не терять фикс�
 magnet:?xt=urn:btih:93A917C2D0CB082B44295ED52A09AA90466A4231
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ FaceLab редактор лица - лучшее приложение для с�
 magnet:?xt=urn:btih:5F5E32424840E539CA4C86BE1DC3FE61E65DFCE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Lexilize FlashCards v4.8.7 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F70C4AFF10002840828748D8C1B363AB3EF2D64F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:F70C4AFF10002840828748D8C1B363AB3EF2D64F
 magnet:?xt=urn:btih:06141D7261B81FCADDAA423015301D70422BB158
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Rutube v28.4.4 Mod by Alex.Strannik [Ru]
 ```bash
 magnet:?xt=urn:btih:7E3811D5E2E1ACCB74B9443CFDEDE01095AE45BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:7E3811D5E2E1ACCB74B9443CFDEDE01095AE45BB
 magnet:?xt=urn:btih:9D98B603EF171DDF1AFABC124CE4FBC09F7AC0F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:9D98B603EF171DDF1AFABC124CE4FBC09F7AC0F9
 ```bash
 magnet:?xt=urn:btih:890B45624C1F3004FA9592DD3AE11C6F5CBA0D13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:890B45624C1F3004FA9592DD3AE11C6F5CBA0D13
 magnet:?xt=urn:btih:2C627E0622E8F82C568A6A5FA2CBAB181889D792
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Moon Reader - проект-читалка которая весьма извес
 ```bash
 magnet:?xt=urn:btih:A105D9AB45A7348C1B8D5607B0E74EEB35087C8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ One Shield Plus — это надежный и безопасный VPN-серв
 magnet:?xt=urn:btih:20CA0C2CCAEF4EAFAED40769D18802A7455F831D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ Kiwi VPN Proxy от Macdep - это лучший быстрый и лучший 
 ```bash
 magnet:?xt=urn:btih:DCF06172ADF6031AC815652B1375150780DB394B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:DCF06172ADF6031AC815652B1375150780DB394B
 magnet:?xt=urn:btih:E9CBDDE7A2B8BFF36E07616A886C5A7162EED6D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:E9CBDDE7A2B8BFF36E07616A886C5A7162EED6D3
 magnet:?xt=urn:btih:32819F7173B34DE4B969E66C9FAB79751DE3B774
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ BSPlayer - один из тех мультимедийных плееров, ч�
 ```bash
 magnet:?xt=urn:btih:3F423C6AC058C089F40D84296A1203767275D978
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

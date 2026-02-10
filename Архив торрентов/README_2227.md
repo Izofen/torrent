@@ -1,30 +1,3 @@
-###  Публикация: 581631   (322596) от 28.11.2012
-
-Александр Градский - Песни из к/ф "Романс о влюбленных" (1974) [MP3|320 кб/с]<Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322596.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Любовь
-2. Песня о дружбе
-3. Песня о птицах
-4. Песня о материЖанр: RockПродолжительность: 00:11:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4989BC6F43ECB971945A238F13C6017CBAB97192
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1074698   (322607) от 21.11.2016
 
 Sound Normalizer 7.3 RePack (& Portable) by Trovel [Ru]
@@ -45,6 +18,8 @@ Sound Normalizer - звуковой нормализатор звука, пре�
 ```bash
 magnet:?xt=urn:btih:F65AE7FAE16091DF3FD95AB4DE8930D97E0B2A7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +45,8 @@ Process Explorer это расширенная утилита управлени
 magnet:?xt=urn:btih:36A122D60704181372EB19FC341168DE3B9D2373
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +70,8 @@ CCleaner Browser – быстрый, конфиденциальный и без�
 ```bash
 magnet:?xt=urn:btih:6ADFAD79C7FB47780BAF8D88EAD37E687BD0986C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +98,8 @@ BlueStacks - платформа для запуска Android приложени
 magnet:?xt=urn:btih:1ECF0391E38762D3E075FE943DAEC047AD30B42C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +123,8 @@ Visual Studio Community 2019 - Бесплатная, полнофункцион�
 ```bash
 magnet:?xt=urn:btih:AABFC20F5CFFDAA8047B326316A4E28410D5491B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +150,8 @@ GPU Shark - небольшая бесплатная и очень простая
 magnet:?xt=urn:btih:BADC85352B2BB1254A1F8780F1BC3039E8F5EE59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +175,8 @@ Waterfox — это браузер, основанный на исходном �
 ```bash
 magnet:?xt=urn:btih:06955EB5BCBBAC0DABDFA509837989DDDBD8C046
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +202,8 @@ Calibre - простая и удобная программа для управ�
 magnet:?xt=urn:btih:2D3B0C55C5C9571A73DB1076CC5B42B20B42D98F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +227,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:E82D89C7242AF03D0B7C3994B79A1D991B3A0F03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +263,8 @@ CD 1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +288,8 @@ After Effects CC — это ведущая в отрасли программа 
 ```bash
 magnet:?xt=urn:btih:20D76E9CEC79A60094B954098C33DA6F539FBB44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +315,8 @@ magnet:?xt=urn:btih:20D76E9CEC79A60094B954098C33DA6F539FBB44
 magnet:?xt=urn:btih:B3E4D1DE03319F3BBDE93A49EE8275DF236FD255
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +340,8 @@ magnet:?xt=urn:btih:B3E4D1DE03319F3BBDE93A49EE8275DF236FD255
 ```bash
 magnet:?xt=urn:btih:59CD114FAB35E6126FE9B22B25D90EF3713B7F50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +371,8 @@ magnet:?xt=urn:btih:59CD114FAB35E6126FE9B22B25D90EF3713B7F50
 magnet:?xt=urn:btih:1343DF560C333A8CD397CFFB6734EAF16122FF47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +396,8 @@ magnet:?xt=urn:btih:1343DF560C333A8CD397CFFB6734EAF16122FF47
 ```bash
 magnet:?xt=urn:btih:6407DD02009C06C95E93960BD57FF890491CDA6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +423,8 @@ Registry Reviver использует самые передовые технол
 magnet:?xt=urn:btih:2EB51471FE0927B4C0399B0B060DDF2940991657
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +448,8 @@ Advanced Installer - приложение, с помощью которого, �
 ```bash
 magnet:?xt=urn:btih:3DB3D8B1D417F00F9123F29BA64EB893B2F75904
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +475,8 @@ Opera 64.0.3417.61 [Multi/Ru]
 magnet:?xt=urn:btih:E16240D68C6CB90F85C29181AA55C8ADEB031152
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +500,8 @@ Any Video Converter Professional 6.3.4 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3277B0705A72B78BF6F3D0AF097803250D4DF6DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +527,8 @@ Photo Supreme - вспомогательная программа для вла�
 magnet:?xt=urn:btih:B85187EC362DF632B46B0CBE6223FBDF6AA2A620
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +552,8 @@ UltimateDefrag - дефрагментатор и оптимизатор разм
 ```bash
 magnet:?xt=urn:btih:7CAA1B98EAEDC64202B50050C523618A03C83363
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +579,8 @@ SRWare Iron 77.0.4000.0 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:917CE711B679F1CE33BF3D9BEF6C8FAB943EF8B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +604,8 @@ Cockos Reaper является одной из самых продвинутых
 ```bash
 magnet:?xt=urn:btih:117B86FD8911AE30D75FFF776A1F3997FE5DE8B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +631,8 @@ Driver Booster сканирует и определяет устаревшие �
 magnet:?xt=urn:btih:59DBDC2B5D11C2CDC396B2051046E75B89F1C4E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +657,43 @@ Dashcam Viewer - это современный и продвинутый мен�
 ```bash
 magnet:?xt=urn:btih:48A72AFF5193F584AA8C86D7F79B4FF3A649D9F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582004   (322892) от 28.11.2012
+
+Sisters Doll - Welcome To The Dollhouse (2012) [MP3|192 кб/с]<Hard Rock, Glam Rock, Classic Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dollhouse
+02. Are You Scared of Clowns
+03. Run Away
+04. Isabella
+05. Lonely Room
+06. I Love Barbie
+07. Turn Around
+08. Holly Dolly
+09. Loaded Gun
+10. FallingЖанр: Hard Rock, Glam Rock, Classic RockПродолжительность: 00:35:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30EB21975E2955760FC77183C2A90620D8026B3F
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 933166   (506146) от 01.09.2015
+
+А. А. Синельникова | 314 рецептов для снижения сахара (2013) [FB2, RTF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_506146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повышенный сахар в крови – давно всем известный неприятный симптом, поскольку может указывать на возможность развития сахарного диабета. Однако если держать ситуацию под контролем, то дело вполне поправимо: считается, что снижение веса, нормализация давления и уровня плохого холестерина могут восстановить способность организма воспринимать инсулин. Это возможно сделать (   Читать дальше...   )Жанр: КулинарияФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07795906162C4C809CAE98702F19545D1AE23632
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 933347   (506151) от 01.09.2015
 
 Мария Бриль | Кристаллотерапия. Исцеление камнями и кристаллами (2013) [FB2, RTF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:BE62E286EDE5F1C75569FC3C45AD4E63A30A368C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:BE62E286EDE5F1C75569FC3C45AD4E63A30A368C
 magnet:?xt=urn:btih:F15572DA57FE3F5B9E6E0B75D2D82D51D3B42BCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:F15572DA57FE3F5B9E6E0B75D2D82D51D3B42BCC
 ```bash
 magnet:?xt=urn:btih:15ED7C4F6416BE254DA4815335A71D50C97A072F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:15ED7C4F6416BE254DA4815335A71D50C97A072F
 magnet:?xt=urn:btih:540BB752B0A3485F1CC9C065124410BDD72829E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:540BB752B0A3485F1CC9C065124410BDD72829E5
 magnet:?xt=urn:btih:421EC308D06BE15FBE469B24BDF47626D5E2042C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:421EC308D06BE15FBE469B24BDF47626D5E2042C
 ```bash
 magnet:?xt=urn:btih:2735A11A83732E41B997FCF4FCC36D41F0917429
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:2735A11A83732E41B997FCF4FCC36D41F0917429
 magnet:?xt=urn:btih:3F76DD6CD773B21AC05B39233428F254B86646CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:3F76DD6CD773B21AC05B39233428F254B86646CC
 magnet:?xt=urn:btih:C21F23EFB48E40FB93B7594400F2EB8E80EAA60F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:C21F23EFB48E40FB93B7594400F2EB8E80EAA60F
 ```bash
 magnet:?xt=urn:btih:FBB85F1FDA7ED29950B9EAA927022A3A774F3270
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:FBB85F1FDA7ED29950B9EAA927022A3A774F3270
 ```bash
 magnet:?xt=urn:btih:7AA32B2D4B3668FD710669258033F6E423A1138D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +314,8 @@ magnet:?xt=urn:btih:7AA32B2D4B3668FD710669258033F6E423A1138D
 magnet:?xt=urn:btih:12828C4C1648DF262F9EEF13D345ECB78E09740E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +342,8 @@ magnet:?xt=urn:btih:12828C4C1648DF262F9EEF13D345ECB78E09740E
 magnet:?xt=urn:btih:33AF372ABBA8B9355421472BFA41B36D99FA9E72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +367,8 @@ magnet:?xt=urn:btih:33AF372ABBA8B9355421472BFA41B36D99FA9E72
 ```bash
 magnet:?xt=urn:btih:D2DCD44AFEAC63C913FAF3AA13E747836072783B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +396,8 @@ magnet:?xt=urn:btih:D2DCD44AFEAC63C913FAF3AA13E747836072783B
 magnet:?xt=urn:btih:EFBDB60DDE34A7170E931B883C492590C69328A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +421,8 @@ magnet:?xt=urn:btih:EFBDB60DDE34A7170E931B883C492590C69328A5
 ```bash
 magnet:?xt=urn:btih:DB58E3A41511ED771C096505D139C3F63B401605
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +449,8 @@ magnet:?xt=urn:btih:DB58E3A41511ED771C096505D139C3F63B401605
 magnet:?xt=urn:btih:0FEA50EEF8496D77C44E162C85DDCE043E065758
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +474,8 @@ magnet:?xt=urn:btih:0FEA50EEF8496D77C44E162C85DDCE043E065758
 ```bash
 magnet:?xt=urn:btih:EE3C9380CD4E65BC4D82D4E72FA1108FA2EBE657
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +501,8 @@ magnet:?xt=urn:btih:EE3C9380CD4E65BC4D82D4E72FA1108FA2EBE657
 magnet:?xt=urn:btih:F0A804A8B30DB3ABDC492D7745542334D0DB18D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +527,8 @@ magnet:?xt=urn:btih:F0A804A8B30DB3ABDC492D7745542334D0DB18D2
 magnet:?xt=urn:btih:93A1862EB2C5C33F0E79DFBBF1218423694796A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +552,8 @@ magnet:?xt=urn:btih:93A1862EB2C5C33F0E79DFBBF1218423694796A3
 ```bash
 magnet:?xt=urn:btih:9F0D19E7E9B3986DD202C329186791747028300E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +580,8 @@ magnet:?xt=urn:btih:9F0D19E7E9B3986DD202C329186791747028300E
 magnet:?xt=urn:btih:BF69214B7865289CB6786F9CE10990A6904E2EB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +605,8 @@ magnet:?xt=urn:btih:BF69214B7865289CB6786F9CE10990A6904E2EB2
 ```bash
 magnet:?xt=urn:btih:BF2D3A4D3517F99E398A127C8436165BD635154C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +632,8 @@ magnet:?xt=urn:btih:BF2D3A4D3517F99E398A127C8436165BD635154C
 magnet:?xt=urn:btih:B0F5960369EA070E0D26DDC058C461C1F45D012B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:B0F5960369EA070E0D26DDC058C461C1F45D012B
 ```bash
 magnet:?xt=urn:btih:74D2751866054BC3F84C476019EAB1AAB1C3D479
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,29 +686,7 @@ magnet:?xt=urn:btih:74D2751866054BC3F84C476019EAB1AAB1C3D479
 magnet:?xt=urn:btih:8DFBFD680A19FD8467765E0790F24CDE067F432D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932768   (508043) от 30.08.2015
-
-Юлия Полюшко (сост.) | Студенту жизни на заметку (2015) [EPUB, RTF]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждая мысль, изложенная здесь, не требует дополнительного объяснения, обнажает светлые и темные стороны человеческой жизни, не дает падать духом и помогает добиться успеха в жизни.Жанр: Афоризмы, ЦитатыФормат: EPUB, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EC703D93228FA8931A4229027743BFE396C10BF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ R-Studio Network 9.3 Build 191268 RePack (& portable) by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:198E7796AB19F9ACF1CDFE6792EE1FA6FF053958
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Disk Drill - простая и эффективная программа для 
 ```bash
 magnet:?xt=urn:btih:0CFAA801E3129F08AB3A58732C39E2E0758F4E6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Windows 10 Debloater – небольшая утилита для тонкой �
 magnet:?xt=urn:btih:8A6B1ABD9D43C7752FB40B967FCE7498B31ABC44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:6CE654EC4EE0F3788B66336CFA3B0DB76180C01C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Opera GX - это специальная версия браузера Opera, с
 magnet:?xt=urn:btih:30E1D95E4580A73F06EDE3D9AC3FB2FE03484173
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ FreeFileSync - это утилита, которая была разработа
 magnet:?xt=urn:btih:18A9FED6D600D4A8F63F2F0AD9000042C40B4922
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Fort Firewall - простой и бесплатный брандмауэр дл
 ```bash
 magnet:?xt=urn:btih:FD9B7D1C66A479CE75140F12F5F165CF31748DB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Q-Dir позволяет получать быстрый доступ к час�
 magnet:?xt=urn:btih:578EC2C34804BA28D22E46FB25DB33F1F57AE302
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Wise Disk Cleaner 11.0.7.821 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C764BB3ED4A097655ABB6E9DDB6FE25DC801416C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Multi Commander - мощный многооконный менеджер фай�
 magnet:?xt=urn:btih:08914460AD36074085291B84D1FA8D9FB63D8D82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ XnView MP - мощное многофункциональное приложен
 magnet:?xt=urn:btih:2820B93C8960DC1985065240A9F1DE0ABD8E089E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:18405D7E81D81D4AF661C001CA75ABB1784CBA52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:E1BB9ED58B6206592947D3BE3C52E911436C7D2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ NewFileTime 7.15 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0235F84B8CEA4CBB28AF56D9E77C8094DB683D5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ Total Commander – самый популярный файловый менед�
 magnet:?xt=urn:btih:0AA5451006F0FF972037159D644C80CE5503EC6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:59B166E2F681224130844AF77D413BA0DDE6A29E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ ASUS GPU Tweak III - программа для пользователей вид
 magnet:?xt=urn:btih:137AD05EC028A23C23BBB6F14838370BC4565E5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ RadioMaximus 2.32.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5FAB778FA16B4521A56DD8029D14F25CD535DB05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ NirLauncher Package - универсальный пакет из более че
 magnet:?xt=urn:btih:0378D391D6798538E2A10FB590B7F3389397B4F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Total Commander 11.02 (01.01.2024) Portable by MiG [Ru/En]
 ```bash
 magnet:?xt=urn:btih:5C3B6C152856FDBB1E1077CE94A3CA6A98FE3790
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ ExtraDisks - это набор инструментов для создания 
 magnet:?xt=urn:btih:D159A47AB9443F6BFAA68921FAD24E665797DB84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 ```bash
 magnet:?xt=urn:btih:98D79203A9A4E5E90636B916C565F87A0228D083
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:98D79203A9A4E5E90636B916C565F87A0228D083
 magnet:?xt=urn:btih:93473ED99A6AA1EB2A26A6B8AD0E83D0DEEC85FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ Megacubo - это бесплатный IPTV-тюнер для Windows, кото�
 magnet:?xt=urn:btih:03B57435B6E2F31310FBD29246FB6EF118A8F88F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ NetLimiter - программа, решающая проблему контро�
 ```bash
 magnet:?xt=urn:btih:494EEBA11CFFA4746AE69F660A18755C9BED57AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +680,8 @@ Enigma Virtual Box - бесплатная система виртуализац�
 ```bash
 magnet:?xt=urn:btih:CD039D959C63A6AD0549BCA0ED81B21EB841F21F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

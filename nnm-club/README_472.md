@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:EF023A42265B4D2033F0C026A9AEB5BF0F417AD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:EF023A42265B4D2033F0C026A9AEB5BF0F417AD7
 magnet:?xt=urn:btih:0751BC4DF95C1CF36F4E7750FDA7AF8437896824
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Filterverse — это один из мощных музыкальных пла�
 magnet:?xt=urn:btih:C263665B0AC539F7E0170118E34F8838F8025EC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Megami no Cafe Terrace II | The Cafe Terrace and Its Goddesses II | Богини
 ```bash
 magnet:?xt=urn:btih:BB31FA13539407F4DAD351159B8878CB04150812
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:BB31FA13539407F4DAD351159B8878CB04150812
 magnet:?xt=urn:btih:17C1BC78D2137D6D5DC1138394032EE05BB87957
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ VA - Armin van Buuren - A State Of Trance 1232 (2025) [MP3|320 Kbps] <Trance, Pr
 ```bash
 magnet:?xt=urn:btih:CDD1E3EB50C24BD5A13FF9AD1B9F51D369E6344F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ VA - Ibiza Summer (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 magnet:?xt=urn:btih:8D2B2CC61C76A30BC22E6C2A5DE0C9B2DEC0CEDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:8D2B2CC61C76A30BC22E6C2A5DE0C9B2DEC0CEDD
 ```bash
 magnet:?xt=urn:btih:BF931FFC7BE8367EDDFC8D1A182C434B4CF787C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:BF931FFC7BE8367EDDFC8D1A182C434B4CF787C8
 ```bash
 magnet:?xt=urn:btih:60400BE18EA850F4212A861996CB62700C910D80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ Coheed And Cambria — американская прогрессив рок (н�
 magnet:?xt=urn:btih:24D85613A83D7B137D82F85CDED1252C4737C551
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:24D85613A83D7B137D82F85CDED1252C4737C551
 ```bash
 magnet:?xt=urn:btih:5417E3FCE1EEC10A4CB893BBFBE74547462AD900
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ magnet:?xt=urn:btih:5417E3FCE1EEC10A4CB893BBFBE74547462AD900
 magnet:?xt=urn:btih:86C013A1FA3705E5C52F4F3B772D8395F8E67D97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:86C013A1FA3705E5C52F4F3B772D8395F8E67D97
 ```bash
 magnet:?xt=urn:btih:AD75113A4DD19FD181E2D886EF99A6B57457797E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ magnet:?xt=urn:btih:AD75113A4DD19FD181E2D886EF99A6B57457797E
 magnet:?xt=urn:btih:018072FD6C365012B3D4BE1CF5FB232196C70124
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ VA - Assorted Compilation Part 11 (2025) [MP3|320 Kbps] <Electronic, Instrumenta
 ```bash
 magnet:?xt=urn:btih:43F633566ABF135A1B5B7266CD9762EAFE9354C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +435,8 @@ VA - Italo Disco Dance Party Collection Part 2 (2024) CDr, Compilation [FLAC|Los
 magnet:?xt=urn:btih:57EBF49A875CC1625D945C22C06D8DEB1FE3C9FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +460,8 @@ magnet:?xt=urn:btih:57EBF49A875CC1625D945C22C06D8DEB1FE3C9FA
 ```bash
 magnet:?xt=urn:btih:AC3773B4D47B9F07FF6FFD66A75872FF1C7E9ABA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +487,8 @@ magnet:?xt=urn:btih:AC3773B4D47B9F07FF6FFD66A75872FF1C7E9ABA
 magnet:?xt=urn:btih:700A71017A9CA251A3C204CDEEF7A3C5DF10B99B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +512,8 @@ magnet:?xt=urn:btih:700A71017A9CA251A3C204CDEEF7A3C5DF10B99B
 ```bash
 magnet:?xt=urn:btih:E43136E3770671CE013F6A18C91BD1DFC57182C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:E43136E3770671CE013F6A18C91BD1DFC57182C0
 magnet:?xt=urn:btih:CD3C1C128F4E9715D55D150C7328D29658CA4078
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +565,8 @@ magnet:?xt=urn:btih:CD3C1C128F4E9715D55D150C7328D29658CA4078
 magnet:?xt=urn:btih:B391D25D637CB59B26A6CCA736EDA2AB18AA148A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ Lanpirot | Товарищ "Чума" (Книга 6). (2025) [MP3, Виктор �
 ```bash
 magnet:?xt=urn:btih:D9FD4406F2ED1EB5AAD32291226D3DAD8EB9DBF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +619,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:B93DF8F79EE429B875E0545ED806B4DFC467827C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ Zior iOS App Ui Kit разработан специально для интер�
 magnet:?xt=urn:btih:DF7A7F5FA63E1703B71DDADF8C4E18222D0FF3C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:DF7A7F5FA63E1703B71DDADF8C4E18222D0FF3C2
 ```bash
 magnet:?xt=urn:btih:E34DBAA65E326C601CE0A6A44E7B7697F0F69447
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +699,8 @@ VA - Italo Disco Dance Party Collection Part 3 (2024) CDr, Compilation [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:6DE5DCA4A78860FBA538B30D4D7486107A22BFE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

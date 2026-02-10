@@ -19,6 +19,8 @@ Assassin’s Creed Chronicles: India / Assassin's Creed Chronicles: Индия (
 magnet:?xt=urn:btih:BDF7FEA2D71450C951094585840C248F8937D7FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:BDF7FEA2D71450C951094585840C248F8937D7FC
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Last Stand Legacy Collection (2021) [En] (1.04) License GOG
 magnet:?xt=urn:btih:2A8645CD31655FDBD2E9F21CCAA04A5D7F4F174B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Psychonauts (2005) [Multi] (1.1.603.0) License GOG
 ```bash
 magnet:?xt=urn:btih:753AE6A83C4D945391AB643746DEE94BC29E66A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ NARUTO SHIPPUDEN: Ultimate Ninja STORM 4 (2016) [Ru/Multi] (1.0/upd 2) License C
 magnet:?xt=urn:btih:DD341B24D87F3931CE48A625CCFD8B10ED4DB515
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Shadow Blade: Reload (2015) [Ru/Multi] (1.0/upd3) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:F10043C3D237CE9E1162EBB15942B2FCA918A77D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Shadow Blade: Reload (2015) [Ru/Multi] (1.0/upd 3) License POSTMORTEM
 magnet:?xt=urn:btih:F76EA75531015B53190983F09F6B8D37CA814073
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ ClusterTruck (2016) [En] (1.1) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:A7849A8727DFB2F19586E0069E958BE6F1898DF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ WWE 2K16 (2016) [En] (1.0) License CODEX
 magnet:?xt=urn:btih:0CF9F3D0ACFEBDA9D4D8B2B7A209A30BB74658FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Ultimate Chicken Horse (2016) [Ru/Multi] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:E4B6AE2C27CA06101379FBE9E1E13B74942DAAAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Revolve — это проактивный платформер. Вы играе�
 magnet:?xt=urn:btih:3F22B933D05DDEE4AA85FF4627344C6C4EEFCF12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Race The Sun (2013) [En] (1.51/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:DC414BE292CA7DAA6A1941729415BAD550DD77E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Pode — это приключенческая игра с элементами 
 magnet:?xt=urn:btih:07FF578B0539007832FA9EB1A29466F54BB7F887
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ King of Fighters XIV - новая игра в знаменитой серии ф
 ```bash
 magnet:?xt=urn:btih:997BB0D7C897718BE2D0F4EAEEF43377638ECF12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Dwarrows (2020) [En] (1.3) License GOG
 magnet:?xt=urn:btih:D5B44A5ECC04BC53220E78FB4D6F7B5CBDE62C0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Big Rumble Boxing: Creed Champions (2021) [Multi] (6579165) License CODEX
 ```bash
 magnet:?xt=urn:btih:46F9E9C03466701D5F7C48747901AA061DBABA18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Enter the Gungeon - игра жанра “пулевая завеса в под
 magnet:?xt=urn:btih:73D259FBE1BFB88EAAD77C2F10A5E03B56E8849B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Cannon Brawl - революционный тауэрдеф с полной ра�
 ```bash
 magnet:?xt=urn:btih:F66FBB0B175FEC4464304B7D645BED4ABE835EA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Stick It To The Man! - это логический платформер в му�
 magnet:?xt=urn:btih:AD5747A414B2E9D2C0675D0A0A61F5D5B66D0288
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Red Risk (2016) [En] (1.0) Repack Mr.Weegley
 ```bash
 magnet:?xt=urn:btih:17CBEC74328690E037216494BBBE7C9351B3EB76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Oddworld: New 'n' Tasty (2015) [Ru/Multi] (1.07/dlc) SteamRip Let'sPlay
 magnet:?xt=urn:btih:7D8E0C4EA19B65543492A2FD1B9C1C137BA08845
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Magicka 2 (2015) [Ru/Multi] (1.2.1.0) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:97F7D4BD6CB251C5D7099577126EE17133965C9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Action, рассказывающий историю, в основе котор�
 magnet:?xt=urn:btih:A4B828F15231AF4016F68E7449123B7A1A09A27C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Pac-Man Museum представляет собой сборник разнооб
 ```bash
 magnet:?xt=urn:btih:7BB19F83E9E006E58585C1311B5DA43C57A11763
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Until We Die - это стратегия про защиту своей базы
 magnet:?xt=urn:btih:7CA0D5C6825C48A1B08A01D238EE31580E65350B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ magnet:?xt=urn:btih:7CA0D5C6825C48A1B08A01D238EE31580E65350B
 ```bash
 magnet:?xt=urn:btih:9CF1601211ECFD25F2B11C2705F88D6AAB0F8715
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

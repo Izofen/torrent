@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:F584B92B2C4C5DE1E430C3F320B7F101D75B7047
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Digital-Tutors | UV Mapping Workflows in Blender (2015) PCRec [H.264/720p-LQ] [R
 magnet:?xt=urn:btih:12BBDD64D850E3D03E203E9A8ED8EE42E0DEA48D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:12BBDD64D850E3D03E203E9A8ED8EE42E0DEA48D
 ```bash
 magnet:?xt=urn:btih:D592CD26722EE9C85B2CCDCE2E352EC66B777F7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:D592CD26722EE9C85B2CCDCE2E352EC66B777F7B
 magnet:?xt=urn:btih:79FE39EB5904A0D2A0AF94F901D1AFB8C66D9CD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:79FE39EB5904A0D2A0AF94F901D1AFB8C66D9CD5
 magnet:?xt=urn:btih:3AA9E4FCC8BA3E88AD492EBDD105F2AFB273DC7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:3AA9E4FCC8BA3E88AD492EBDD105F2AFB273DC7F
 ```bash
 magnet:?xt=urn:btih:638ED7406F23DB60E446EF0D043EFE71BE3CBDE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:638ED7406F23DB60E446EF0D043EFE71BE3CBDE9
 magnet:?xt=urn:btih:37AFE749CDC0E509F56BADFE95F3A57224B1DDAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:37AFE749CDC0E509F56BADFE95F3A57224B1DDAB
 magnet:?xt=urn:btih:A972FE1F64A7126FAC6A72D62BAC3FFA1FB6ACEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ Daily Burn | 8 эффективных тренировок от различны
 ```bash
 magnet:?xt=urn:btih:01583D393F5801E8BB171FDDFDAE50A1CCAD2F25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:01583D393F5801E8BB171FDDFDAE50A1CCAD2F25
 magnet:?xt=urn:btih:7F5DA534AF9CF4CA4881F0C88CE6FFA33E0844BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:7F5DA534AF9CF4CA4881F0C88CE6FFA33E0844BD
 ```bash
 magnet:?xt=urn:btih:8D9BA1863620A48827147E79428D608CCA1BC037
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ magnet:?xt=urn:btih:8D9BA1863620A48827147E79428D608CCA1BC037
 magnet:?xt=urn:btih:626B7B93EAA9C35F65719E7EE783053AD4D8FE8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:626B7B93EAA9C35F65719E7EE783053AD4D8FE8D
 ```bash
 magnet:?xt=urn:btih:77E10A516278A7B6DFAB68B29C0C0D265B090E1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +373,8 @@ Udemy, Narayana Walters | Как делать стилизованную пло�
 magnet:?xt=urn:btih:713D5936FEDF15E2ACA65D36AA286E2E2D7E9A71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ Movie Park | Видеокурс по видеопродакшену, съёмк�
 ```bash
 magnet:?xt=urn:btih:0073B31A630FEBBAB9781CAD92A02BFDE18E4814
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:0073B31A630FEBBAB9781CAD92A02BFDE18E4814
 magnet:?xt=urn:btih:57A10DD0298A4A59D490CA676E8CC5A348D9A5B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ Udemy, Alexandr Tyurin | Интерактивная веб-анимация 2020
 ```bash
 magnet:?xt=urn:btih:B0BEF69B8AE4B8FF558C0397D291CF075C3C5CFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ Udemy, Валерий Жданов | Как создать сайт на Node JS
 magnet:?xt=urn:btih:9077AE74D0FCCBD07C5B381046AE9C6B586F1682
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ Udemy, Денис Пугачев | Docker Swarm на практике (2020) PCR
 magnet:?xt=urn:btih:D886106DCBFB2F8AFF09DABCFE52C3F2CA7A7914
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ Udemy, Imtiaz Ahmad | Master SQL For Data Science (2020) PCRec [En / En, Pl, Ro 
 ```bash
 magnet:?xt=urn:btih:D29CDF6FEB17934F704948B6631CE971394E9B30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +562,8 @@ Udemy, 365 Careers Team | Statistics for Data Science and Business Analysis (202
 magnet:?xt=urn:btih:39E19F1078E4E293D7F311D14CF6F7EB6B13B135
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ Udemy, Samuel Hinton | Python для статистического анализ
 magnet:?xt=urn:btih:323FCD7BDB1034F2E8688516E22DD2FF8B08548B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ Udemy, Evgenii Puzakov | Check Point Sandblast Course (2020) PCRec
 magnet:?xt=urn:btih:FDADE2F30DAEF0D6F81C34AF738476AE84D8AAE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +642,8 @@ magnet:?xt=urn:btih:FDADE2F30DAEF0D6F81C34AF738476AE84D8AAE1
 ```bash
 magnet:?xt=urn:btih:82589E66F4FCE6094390AA10DB1C5FE9F612C70D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +671,8 @@ Udemy, Dr. Ryan Ahmed и др. | Программирование на Python 3.
 magnet:?xt=urn:btih:7DD1A6935E2A1A5F7551C90C5D7FB8F5CDF6B899
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +696,8 @@ Skillbox | Управление digital-проектами (2017) PCRec
 ```bash
 magnet:?xt=urn:btih:379B75BB9602E9CD6BC7EEE5EA5A6DE841D5FB0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

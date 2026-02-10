@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:DCD420EB902CA74E3A68A4ED952DBD88840EA9C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ VA - Главный полтиник декабря 50/50 (2009) [MP3|128 - 256 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ VA - Главный полтиник декабря 50/50 (2009) [MP3|128 - 256 
 magnet:?xt=urn:btih:41280A59F7E01679150228C4809A131C82458D02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:41280A59F7E01679150228C4809A131C82458D02
 ```bash
 magnet:?xt=urn:btih:AD3C2F48312853B213AB0E8489919139C0DFE2E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:AD3C2F48312853B213AB0E8489919139C0DFE2E2
 magnet:?xt=urn:btih:42D822588B2F110F23CC6DE671EB96C187E8DDBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ VA - Зажигательный музыкальный марафон (2009) [MP
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ VA - Зажигательный музыкальный марафон (2009) [MP
 magnet:?xt=urn:btih:DBC5A6D4D6C27488298F72164EB2907C2C7AE188
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ CPU-Z способен показать различную информацию 
 ```bash
 magnet:?xt=urn:btih:2ECF15F769697E3F17D5AFA89864CDF342AE48CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:2ECF15F769697E3F17D5AFA89864CDF342AE48CD
 magnet:?xt=urn:btih:CC408A4D795F31A5C535DE5FA8D16231C3C75C0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:CC408A4D795F31A5C535DE5FA8D16231C3C75C0F
 ```bash
 magnet:?xt=urn:btih:1F47B1954927DC423CC3A22D9F29F58B44758FAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Speak And Translate v3.1.0.1 [Ru/Multi]
 magnet:?xt=urn:btih:7E2D920EC78E8B9B284905C2788DFC619CA93A67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:7E2D920EC78E8B9B284905C2788DFC619CA93A67
 ```bash
 magnet:?xt=urn:btih:15A7B76CCFC9052C1A7994611A3725A4C54FBC2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Ken Hensley (pre Uriah Heep) - The Gods: 2 альбома, 3CD, Toe Fat: 2 ал�
 magnet:?xt=urn:btih:6460EB6E4FF5A67C15FD97C74C9F9158DF4F9346
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:6460EB6E4FF5A67C15FD97C74C9F9158DF4F9346
 ```bash
 magnet:?xt=urn:btih:FCAC9F356A8A0BE091290F940655518BC913156E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:FCAC9F356A8A0BE091290F940655518BC913156E
 magnet:?xt=urn:btih:7E552AF413D290A29FB744F7DE930C218E398210
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:7E552AF413D290A29FB744F7DE930C218E398210
 magnet:?xt=urn:btih:E25FFE754AD5E9FC745A0253B18681CDFE3890B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ VA - Dubstep Light vol. 5 (2012) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:0C1D3B12A16DA86A5D1C64FCC6966B24A0856EBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:0C1D3B12A16DA86A5D1C64FCC6966B24A0856EBE
 magnet:?xt=urn:btih:470B13173163BCF560CF1D8624075AB51C002311
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ magnet:?xt=urn:btih:470B13173163BCF560CF1D8624075AB51C002311
 ```bash
 magnet:?xt=urn:btih:83271EDD2A9B0E584B5E76BF6516539FAD1E1F42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +535,8 @@ Above and Beyond - Group Therapy Radio 001 - 004 (2012) (Обновляемая)
 magnet:?xt=urn:btih:28F8E6AA95A92ACB2DE55129FE412B59736D966F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:28F8E6AA95A92ACB2DE55129FE412B59736D966F
 magnet:?xt=urn:btih:EA07374BAB4BA8DCD95389628339AA6A70E89F98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:EA07374BAB4BA8DCD95389628339AA6A70E89F98
 ```bash
 magnet:?xt=urn:btih:2FC27310353486F4175CB4B414C6ED71E10E3EA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +622,8 @@ PUPO - 1996 (1996) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:A974FC78418F4FB09F5C387C496796048ECF36CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +649,8 @@ magnet:?xt=urn:btih:A974FC78418F4FB09F5C387C496796048ECF36CB
 magnet:?xt=urn:btih:B069858071B2FD6D96BB250C433C1C5B107CBF8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ magnet:?xt=urn:btih:B069858071B2FD6D96BB250C433C1C5B107CBF8B
 magnet:?xt=urn:btih:44B08B25AF9CBAB12CCABC23CA3C50BABF69CCA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ magnet:?xt=urn:btih:44B08B25AF9CBAB12CCABC23CA3C50BABF69CCA8
 ```bash
 magnet:?xt=urn:btih:38A91B97CD7216FE24B404F9257473F22D33F3F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

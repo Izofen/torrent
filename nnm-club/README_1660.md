@@ -22,6 +22,8 @@ Eminem - The Death of Slim Shady (Coup De Grace) (2024) Expanded Mourner’s Edi
 magnet:?xt=urn:btih:99C95E4EF12B502BE8FF24F188453997EF5FECED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:99C95E4EF12B502BE8FF24F188453997EF5FECED
 ```bash
 magnet:?xt=urn:btih:715C7DDAE233BC764E09D75A8F6EB2230F6D6D81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:715C7DDAE233BC764E09D75A8F6EB2230F6D6D81
 magnet:?xt=urn:btih:C1E8F11D3DBB78E9EBE8E9A5C6A7A2F6A85B92E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ VA - 10s Radio Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Rock, RnB>
 ```bash
 magnet:?xt=urn:btih:C2CBDC22151A330B3DBDF101E1CE3B3AD56D835F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -129,6 +137,8 @@ VA - Pop Releases Of The Summer (2024) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:7065F5776F563C15D7B0C92EBEDE88FA2579AF9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ magnet:?xt=urn:btih:7065F5776F563C15D7B0C92EBEDE88FA2579AF9F
 magnet:?xt=urn:btih:D68B24A0DF051539D038F8771397A71D3EA5E299
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:D68B24A0DF051539D038F8771397A71D3EA5E299
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -204,6 +218,8 @@ VA - 00s Radio Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Rock, RnB>
 magnet:?xt=urn:btih:3FC18D659DD81C8CE9DCE3EA3FFE7890D5506F53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +245,8 @@ magnet:?xt=urn:btih:3FC18D659DD81C8CE9DCE3EA3FFE7890D5506F53
 magnet:?xt=urn:btih:9A6A3B896D60CAE2BB633B630343D4FD257F2EA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ VA - Bravo Hits Party - 90er Vol. 2 (2024) 3 x CD, Compilation Box Set [MP3|320 
 ```bash
 magnet:?xt=urn:btih:DBCDA33D72B9D210ABF4EAA677283BE9A526AA97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +297,8 @@ MULLET MADJACK (2024) [Ru/Multi] (1.1) Repack Wagner
 magnet:?xt=urn:btih:D6BC2C0FA215D4C9D9D9B3EB67088A7D44374E49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ magnet:?xt=urn:btih:D6BC2C0FA215D4C9D9D9B3EB67088A7D44374E49
 ```bash
 magnet:?xt=urn:btih:1FA253446AD4D475EAE11A8BC69456ACF134A0BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +352,8 @@ Kylie Minogue - Tension (2023) (Bonus Deluxe Edition) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:6B904959F005A57D85AFA2907CBD225A1DCEA010
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ magnet:?xt=urn:btih:6B904959F005A57D85AFA2907CBD225A1DCEA010
 ```bash
 magnet:?xt=urn:btih:06DD8EF52A6367135321754203F2A0F51450A1AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ magnet:?xt=urn:btih:06DD8EF52A6367135321754203F2A0F51450A1AF
 magnet:?xt=urn:btih:C358C5293927FAC72194025EAD06E1B3B03EF108
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:E92BD9BBBA2D2ABF5E4F176F05328585461E6257
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +456,8 @@ magnet:?xt=urn:btih:E92BD9BBBA2D2ABF5E4F176F05328585461E6257
 magnet:?xt=urn:btih:DAEC3709BA1EAA7B5969A75DCF92A6310C14DC06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:DAEC3709BA1EAA7B5969A75DCF92A6310C14DC06
 ```bash
 magnet:?xt=urn:btih:AFAA7BF205A794B3FBE18D5526063AD95A3C553A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:AFAA7BF205A794B3FBE18D5526063AD95A3C553A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:AFAA7BF205A794B3FBE18D5526063AD95A3C553A
 ```bash
 magnet:?xt=urn:btih:199D2FF31E6CE29027374E0E80324FADCEEAB57B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +562,8 @@ magnet:?xt=urn:btih:199D2FF31E6CE29027374E0E80324FADCEEAB57B
 magnet:?xt=urn:btih:5066ECAA334E22B08EADF9BF132872C0FC9795BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +587,8 @@ magnet:?xt=urn:btih:5066ECAA334E22B08EADF9BF132872C0FC9795BC
 ```bash
 magnet:?xt=urn:btih:344D7D123E6CDA235FF74C9FC29FDFFB1AC981BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:344D7D123E6CDA235FF74C9FC29FDFFB1AC981BB
 magnet:?xt=urn:btih:C6CB0F4389F338D702887B728B3B935D0D8D3546
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ magnet:?xt=urn:btih:C6CB0F4389F338D702887B728B3B935D0D8D3546
 ```bash
 magnet:?xt=urn:btih:B9ABDCFC1F03C581C4458A625B4247FBBA4B87DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ magnet:?xt=urn:btih:B9ABDCFC1F03C581C4458A625B4247FBBA4B87DA
 magnet:?xt=urn:btih:E84110A10D4313DA272E58EC29FD8010B1D365D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ Yarimono, ролевая игра, что познакомит геймеров 
 ```bash
 magnet:?xt=urn:btih:CC077D9FA93DDD1CB30304FD5CF8F126F4CE05F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

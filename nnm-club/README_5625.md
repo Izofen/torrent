@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:4EC9958F129662D54A189ABFB5CF0C2BB55EBA4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Gina T. - Tokyo By Night (1990) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, 
 ```bash
 magnet:?xt=urn:btih:56D79AE694152165B0765349271EDEEC70C29561
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ VA - Trance: The Vocal Session 2024 Playlist by ZYX Music! (2023) [MP3|320 Kbps]
 magnet:?xt=urn:btih:9AB5BC72E1D286C914915D300920867E31C33887
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:9AB5BC72E1D286C914915D300920867E31C33887
 magnet:?xt=urn:btih:040D9B774CA7D87B58797B5538A13BA4B813C7DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:040D9B774CA7D87B58797B5538A13BA4B813C7DF
 ```bash
 magnet:?xt=urn:btih:0EFD1B1B0DA315C8001B533559605CE29C0C51F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ CD1 - Sundown:
 magnet:?xt=urn:btih:86FB799F5CF4EEC497C23EAA06D5ECA114791A40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:86FB799F5CF4EEC497C23EAA06D5ECA114791A40
 ```bash
 magnet:?xt=urn:btih:D687BFB578C8B8A5952A449E3C9BC4AB55D0A67A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:D687BFB578C8B8A5952A449E3C9BC4AB55D0A67A
 magnet:?xt=urn:btih:BE41104E40443E3736AEBB1FD9E8CF8691A4BB64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ Vorso - Holonomy (2023) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Dubstep, Bre
 ```bash
 magnet:?xt=urn:btih:064C4B1497AA0B5DF904565F65084AAD7EC4F5DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:064C4B1497AA0B5DF904565F65084AAD7EC4F5DD
 magnet:?xt=urn:btih:D2AE04FBBE659E610FF1825E58D382F47B61F64A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:D2AE04FBBE659E610FF1825E58D382F47B61F64A
 magnet:?xt=urn:btih:206461032DE5F360FFEDE0000228D01B29C8AA53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:206461032DE5F360FFEDE0000228D01B29C8AA53
 ```bash
 magnet:?xt=urn:btih:28BE98B1FA2685A0E1E9C5BF97D75AE606414ECA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ Atlas - Built To Last (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 magnet:?xt=urn:btih:341C3DFA3E66EB7CF2FDFD2FC615D27145F91DD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:341C3DFA3E66EB7CF2FDFD2FC615D27145F91DD0
 ```bash
 magnet:?xt=urn:btih:9124ADBEDF7C1F5382E7531AA05B18B4F18955C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:9124ADBEDF7C1F5382E7531AA05B18B4F18955C9
 magnet:?xt=urn:btih:47F5A45A0BBACD84703263B59B8F0A04AB02F4D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:47F5A45A0BBACD84703263B59B8F0A04AB02F4D7
 ```bash
 magnet:?xt=urn:btih:08C6310CA5ED2DEAA95DF0514236959FD6BB3C10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:08C6310CA5ED2DEAA95DF0514236959FD6BB3C10
 magnet:?xt=urn:btih:C41DB85F1698E1FFE4F9A9D52B214A1AF97AE84D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ magnet:?xt=urn:btih:C41DB85F1698E1FFE4F9A9D52B214A1AF97AE84D
 ```bash
 magnet:?xt=urn:btih:2AF1F998B680AE6DC281DAC16CBD36C86D646703
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +508,8 @@ The Vazeline - Ты не КиШ, чтобы я тебя слушал (2023) [MP3
 magnet:?xt=urn:btih:80961D12BDFA1DB8D2F79F96F7A612B2A5FB69DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ Opera GX - это специальная версия браузера Opera, с
 ```bash
 magnet:?xt=urn:btih:CEA10867A1C3DCAE2C175845E1AB39110045285B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +565,8 @@ CD1:
 magnet:?xt=urn:btih:1D132213620CA35532885AA1380EE843DCA87B0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +594,8 @@ Silver Trail - Late arrival (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 magnet:?xt=urn:btih:86EA6198BEBDD73CACEFB4511D9320F4F8C82789
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +619,8 @@ Andres Ibanez Kautsch | Modern Concurrency on Apple Platforms (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:08716DCE862C8919631E54BCEB0464B3AFB34BBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +649,8 @@ A4 Tony Allen - My Own Peculiar Way(   Читать дальше...   )Жанр:
 magnet:?xt=urn:btih:51C7AD077D030FDB0A110D824B28F733C4F2FACD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +677,8 @@ magnet:?xt=urn:btih:51C7AD077D030FDB0A110D824B28F733C4F2FACD
 magnet:?xt=urn:btih:CE09910DDBD4E6CCB5BB158C00F7E5D9A91E4E72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ GeoGebra — мультиплатформенная программное об�
 ```bash
 magnet:?xt=urn:btih:CA26AFB6388062B82DCEE4F315FAF321FCA5F708
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

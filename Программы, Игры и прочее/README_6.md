@@ -19,6 +19,8 @@ Enhance it v4.2.2 Mod by MustHave [Ru/Multi]
 magnet:?xt=urn:btih:9D9F8F65333084A74435AEFEAED54036C6B0C42D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Photo Sherlock v1.129 Mod by Mixroot  [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C4EC922898C958676F467D9EC4E8C1D5B524A546
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ BitTorrent®- Torrent Downloads v8.2.38 Mod by PieMods [En]
 magnet:?xt=urn:btih:980F6F2C35A768DEBDDD3464D935A59C0D18793C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:980F6F2C35A768DEBDDD3464D935A59C0D18793C
 magnet:?xt=urn:btih:B75A2F834DDE21AF6AB5920AA287929961753931
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ VK Музыка: песни и подкасты v8.0 Mod by VK Equals [Ru/En]
 ```bash
 magnet:?xt=urn:btih:163DEC0A24CD5907CA924C75FAF104AB8D38F492
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:163DEC0A24CD5907CA924C75FAF104AB8D38F492
 magnet:?xt=urn:btih:ABFCAEF78E7CDF33FF51B5E6277EAC024EECE4DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.21.6 Mod 
 ```bash
 magnet:?xt=urn:btih:85B2448B04A265F5DABCDA265A9D7C1A1C2D2FA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:85B2448B04A265F5DABCDA265A9D7C1A1C2D2FA8
 magnet:?xt=urn:btih:E210A291DFBA1C8E20562B361542E7F8445186CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ ByeByeDPI v1.6.2 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:ADA865E2DA87F56FC85788F4F24614C0A72DC22A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Sketchbook — это то, что вам нужно, — от быстрых э
 magnet:?xt=urn:btih:FCCD5331A1EB30468A447177FF7D8EBB9E7BBABA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ NokoPrint v5.22.2 Mod by derrin [Ru/Multi]
 magnet:?xt=urn:btih:0B86C7E0641CC0DE060F11BB7E034B58ECF5260B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ YouCut - один из самых удобных и оптимальных по 
 ```bash
 magnet:?xt=urn:btih:5A305A631A502D082BB45123468CBE21666B20E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ Reverso Translation Dictionary / Переводной словарь Reverso v14
 magnet:?xt=urn:btih:FCBCD4CD2710D87E81AD5B689142E29D9D1974B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:FCBCD4CD2710D87E81AD5B689142E29D9D1974B6
 magnet:?xt=urn:btih:4BFC59FCFBB261886C97A4766B344526FB9247F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:4BFC59FCFBB261886C97A4766B344526FB9247F8
 magnet:?xt=urn:btih:58BBB1B2E2622003E85B29E0CA9885A25729DA00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Umagic AI / ИИ Рисует v1.7.7 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C8EE5C2F6BB9974DE129DCDE468F2D8E2F983686
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ GRID Legends: Deluxe Edition v1.1.4RC7 [Ru/Multi]
 magnet:?xt=urn:btih:C5113B263249C416F41587F68672BE424EC91ACF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Battery Guru предоставляет продвинутые инструме�
 ```bash
 magnet:?xt=urn:btih:E480808E202684428387A37FF5E4A7703CD7D520
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Fake GPS v5.6.2 Mod by Balatan [En]
 magnet:?xt=urn:btih:398205F5C2A69779BFD36028AAA1E2B89C3823CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ AIDA64 v2.10 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:E5EFDBFAB3DE0F6C2942BF3DDDF8694BB651F728
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ VN - это видеоредактор предназначенный специ
 ```bash
 magnet:?xt=urn:btih:4599599B9420ED55FEE2AE6735BED3B3E0B405E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ Guru Maps Pro & GPS Tracker v5.8.0 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:D9AA57FA9E430A956641EC50D612B0A46F32D051
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ AdGuard — уникальный блокировщик рекламы без п
 ```bash
 magnet:?xt=urn:btih:E39B5524788AAC0F978D7FBC513661A77E35C031
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ Karing - Утилита прокси с простым и мощным инте�
 magnet:?xt=urn:btih:C51A8E2FB19B43DFD869F38787C68767E9F96616
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ Earth 3D v9.4.1 Mod by ApplicazioniCR [Ru/Multi]
 magnet:?xt=urn:btih:1DBC5B43E7D9F38C9402B9EEAEDE7116C7E2C41E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ BubbleGame v1.1 [En]
 ```bash
 magnet:?xt=urn:btih:E0D61D6198927F6502D6C7AE4D6C21F46F16E01F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

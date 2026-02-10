@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Heavy Fire: Afghanistan - этот шутер помещает Вас сразу
 ```bash
 magnet:?xt=urn:btih:18B2AC036441B4811EEBC94D62ACFCF12DEB292E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:18B2AC036441B4811EEBC94D62ACFCF12DEB292E
 ```bash
 magnet:?xt=urn:btih:3A3FC476F7F88949A2CC37D8A20D861879ED0E64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Auslogics Disk Defrag - Описание разработчика:
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ Auslogics Disk Defrag - Описание разработчика:
 ```bash
 magnet:?xt=urn:btih:E69B35DF7F0EDA64B22CC5C9C1232D6F1BCDD4BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ Sleipnir 3.0.10 [Английский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ Sleipnir 3.0.10 [Английский]
 magnet:?xt=urn:btih:6BD409563AC4CED357E63D318D071C9BD079F41A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ CCleaner - номер один среди утилит для очистки Win
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ CCleaner - номер один среди утилит для очистки Win
 magnet:?xt=urn:btih:869C15142DA96F5A0457F87A2527306D6A0106F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:869C15142DA96F5A0457F87A2527306D6A0106F5
 ```bash
 magnet:?xt=urn:btih:CC7653A9930B2AEC2CA3D972FAEE2BD296FDC25C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +352,8 @@ Xandria - Neverworld's End (Limited Edition) (2012) [FLAC|Lossless]<Symphonic Go
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +386,8 @@ VA - Super Танцевальный Хит (2012) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:C93528863F3C012F17BB97E150A1110EB23C0D27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +422,8 @@ CD1:
 magnet:?xt=urn:btih:D4E504BAD290A3B1B13A7DD4E88FE2702DBD2CEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +447,8 @@ magnet:?xt=urn:btih:D4E504BAD290A3B1B13A7DD4E88FE2702DBD2CEC
 ```bash
 magnet:?xt=urn:btih:7765E2ADC9503D3B4A2480DFB15630F1A0CEBFD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +474,8 @@ XnView 1.98.6 + portable (Complete, Standard, Minimal) [Мульти, есть �
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +499,8 @@ XnView 1.98.6 + portable (Complete, Standard, Minimal) [Мульти, есть �
 ```bash
 magnet:?xt=urn:btih:66F9574C1B0865921C17E720290270A8E65ACAAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +526,8 @@ Smile Jumper - неплохой арканоид, оригинальность �
 magnet:?xt=urn:btih:95C5422B4DB9C916EA72BF4094993EEB1B8FADAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +551,8 @@ Art-Афера - серия остросюжетных книг: авантюр�
 ```bash
 magnet:?xt=urn:btih:D3249655BA7D853269C5215629FB24F978DC0E04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +578,8 @@ magnet:?xt=urn:btih:D3249655BA7D853269C5215629FB24F978DC0E04
 magnet:?xt=urn:btih:05703C999321C9C5B8F422C35593B226623E9C8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +603,8 @@ magnet:?xt=urn:btih:05703C999321C9C5B8F422C35593B226623E9C8C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +630,8 @@ magnet:?xt=urn:btih:05703C999321C9C5B8F422C35593B226623E9C8C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +656,8 @@ magnet:?xt=urn:btih:05703C999321C9C5B8F422C35593B226623E9C8C
 magnet:?xt=urn:btih:F39B52F6A756BE1BD8D0FF9A5A4D2A6A84154A39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +681,8 @@ magnet:?xt=urn:btih:F39B52F6A756BE1BD8D0FF9A5A4D2A6A84154A39
 ```bash
 magnet:?xt=urn:btih:DF8AFCADBC459BE5D278FC37C4599902F5657B7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -660,6 +710,8 @@ magnet:?xt=urn:btih:DF8AFCADBC459BE5D278FC37C4599902F5657B7F
 ```bash
 magnet:?xt=urn:btih:EBED1F4D60C417154F857BA1D044EB37150A4BDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

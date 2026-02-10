@@ -22,6 +22,8 @@ Apex - Omega Point (2012) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Apex - Omega Point (2012) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 magnet:?xt=urn:btih:F4073E838E54BC3467CB393CC23D08D94A2C169E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Tor Even Mathisen - Arctic Motion (Релакс) (2012) HDRip [H.264/720p]
 ```bash
 magnet:?xt=urn:btih:2AB4A6CE8B4EE9FE5A5CA7E521FC687CD7CA88F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:2AB4A6CE8B4EE9FE5A5CA7E521FC687CD7CA88F2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:2AB4A6CE8B4EE9FE5A5CA7E521FC687CD7CA88F2
 ```bash
 magnet:?xt=urn:btih:58195F59E54AC05DF5BE5D6E2BFED8FAE2D11B50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -152,6 +162,8 @@ VA - Хит FM Top Music (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:6C099B75C8234FB07EF51C4D3E3911619F52CBC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -185,6 +197,8 @@ VA - 77 детских песен на бис (2003) [MP3|320 kbps]<Детска
 magnet:?xt=urn:btih:A418F0661453781EB5CAA0CFB6C0CB6697B8935C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ VA - Инструментальная музыка (2012) vol. № 20 [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:AACA435AF88B743695AAA4195580EF44DC326B17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -233,6 +249,8 @@ magnet:?xt=urn:btih:AACA435AF88B743695AAA4195580EF44DC326B17
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +274,8 @@ magnet:?xt=urn:btih:AACA435AF88B743695AAA4195580EF44DC326B17
 ```bash
 magnet:?xt=urn:btih:76B128269AB8586818621EE17E1F3811D9533AF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -281,6 +301,8 @@ magnet:?xt=urn:btih:76B128269AB8586818621EE17E1F3811D9533AF9
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ magnet:?xt=urn:btih:76B128269AB8586818621EE17E1F3811D9533AF9
 ```bash
 magnet:?xt=urn:btih:8C7355EFD755F403EE1A7E313909AF74A561B6EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +361,8 @@ East 17 - Dark Light (2012) [MP3|320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:9C90C77BD9B6781A9E05C43F45896A3F2BC821D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +398,8 @@ magnet:?xt=urn:btih:9C90C77BD9B6781A9E05C43F45896A3F2BC821D7
 magnet:?xt=urn:btih:01A73AF1E6E4B63BF27C3D65D5950004183FDE14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +424,8 @@ magnet:?xt=urn:btih:01A73AF1E6E4B63BF27C3D65D5950004183FDE14
 magnet:?xt=urn:btih:62AFF0209AC620F1DD220F177A9B3BBBBDF83A1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +449,8 @@ VA - Инструментальная музыка (2012) vol. № 18 [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:7E5288B7B0FF39ACC4784210430FDCBF26D8BE1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +477,8 @@ magnet:?xt=urn:btih:7E5288B7B0FF39ACC4784210430FDCBF26D8BE1B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +502,8 @@ magnet:?xt=urn:btih:7E5288B7B0FF39ACC4784210430FDCBF26D8BE1B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +529,8 @@ Elvira Антология [Ru] (RePack) 1991 | Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +554,8 @@ Elvira Антология [Ru] (RePack) 1991 | Pilotus
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +581,8 @@ Elvira Антология [Ru] (RePack) 1991 | Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +606,8 @@ Elvira Антология [Ru] (RePack) 1991 | Pilotus
 ```bash
 magnet:?xt=urn:btih:99CF18A66FA1C2490208C45EB9C24AE2352F469C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +633,8 @@ magnet:?xt=urn:btih:99CF18A66FA1C2490208C45EB9C24AE2352F469C
 magnet:?xt=urn:btih:DCDB81D8126FCCFCDE77CAC7C18F66375BE70781
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +658,8 @@ magnet:?xt=urn:btih:DCDB81D8126FCCFCDE77CAC7C18F66375BE70781
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +685,8 @@ magnet:?xt=urn:btih:DCDB81D8126FCCFCDE77CAC7C18F66375BE70781
 magnet:?xt=urn:btih:B81949145B74F534D674083B98AB6E24EAB8C090
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +710,8 @@ XXL – информационно-развлекательный журнал �
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ VA - Привал романтиков 2 (2004) [FLAC|Lossless|tracks + .cue] <�
 magnet:?xt=urn:btih:4E252E26C82F869EB7D1EAF53576CAC58A6449EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:4E252E26C82F869EB7D1EAF53576CAC58A6449EB
 ```bash
 magnet:?xt=urn:btih:0A502FDCF733E02D02F6F192599384BAD1BD510A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:0A502FDCF733E02D02F6F192599384BAD1BD510A
 magnet:?xt=urn:btih:38B864B0C18F050487EC446FD8CB6959E9062F3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:38B864B0C18F050487EC446FD8CB6959E9062F3A
 ```bash
 magnet:?xt=urn:btih:20CE3324969695742C3A6D89063DF656CFECE55A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Русский шансон часть 6 (1999) [MP3|320 Kbps] <Шансо�
 magnet:?xt=urn:btih:03978C30988004E8CAF1B8A8C8BF9BE5F38D2DE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ Various Artists - Чёрная кошка 1-2  (1999) [FLAC|Lossless|tracks + .c
 magnet:?xt=urn:btih:B752AAD1F428FA81746E2FD676736E908872C37A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ magnet:?xt=urn:btih:B752AAD1F428FA81746E2FD676736E908872C37A
 ```bash
 magnet:?xt=urn:btih:CDB3BD4812982EF0C483F74215139778186008C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ magnet:?xt=urn:btih:CDB3BD4812982EF0C483F74215139778186008C4
 magnet:?xt=urn:btih:EE5B31A64CEDCA18D7B4172F4ED48006C169D23B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +250,8 @@ magnet:?xt=urn:btih:EE5B31A64CEDCA18D7B4172F4ED48006C169D23B
 ```bash
 magnet:?xt=urn:btih:669626DD21A3313419E4DFC2615723C5D521F573
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +280,8 @@ VA - Калина красная 3-Песни, спетые сердцем (1999
 magnet:?xt=urn:btih:CE5DC5AF9FE84190F49EB8A5E4DEADEA82B69BDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +308,8 @@ VA - Самые сливки шансона (2001) [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:44DFD77AC5D669A43820DFC4576CFB7B4DA32123
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +338,8 @@ magnet:?xt=urn:btih:44DFD77AC5D669A43820DFC4576CFB7B4DA32123
 magnet:?xt=urn:btih:84E4BFDB373A93FC48CF0937A44E907DD38BBB80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +366,8 @@ VA - Памяти Аркадия Северного (1995) [MP3|320 Kbps] <Ша�
 ```bash
 magnet:?xt=urn:btih:BC6881BC8E0318E2876F88611D39B8B72A974245
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +396,8 @@ magnet:?xt=urn:btih:BC6881BC8E0318E2876F88611D39B8B72A974245
 magnet:?xt=urn:btih:F70E59872A8010FF84286779281B1133EF5B2127
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +424,8 @@ magnet:?xt=urn:btih:F70E59872A8010FF84286779281B1133EF5B2127
 ```bash
 magnet:?xt=urn:btih:22E0F16D3C01D9A8EE1E032564FF34FAA6FCFA77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +454,8 @@ VA - Застольные от Петровича 40% - 96% (2004) 3 Альбо�
 magnet:?xt=urn:btih:0FCD19FE1C85972F9EA01FE5D1BE28E58BA7992D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +482,8 @@ VA – Русский шансон часть 4 (1997) [MP3|320 Kbps] <Шанс�
 ```bash
 magnet:?xt=urn:btih:1133ED027E421F032F5BFAC929862ACBA3933EB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +518,8 @@ magnet:?xt=urn:btih:1133ED027E421F032F5BFAC929862ACBA3933EB5
 magnet:?xt=urn:btih:A6A63405BA325A81F206B223D5D5449999585E64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +553,8 @@ VA - Лучшая 200ка День победы (2012) [MP3|97-320 кб/с]<Во
 magnet:?xt=urn:btih:94474E517D4A497D589CDDE255DD55B0C23D34F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +581,8 @@ SK-AI project - Последнее лето (2025) [MP3|320 Kbps] <Chanson>
 ```bash
 magnet:?xt=urn:btih:2CB390A5E765AE5BC4FD35210CF073079DE5D909
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +617,8 @@ magnet:?xt=urn:btih:2CB390A5E765AE5BC4FD35210CF073079DE5D909
 magnet:?xt=urn:btih:15069B25A1AD50FAF2ED1DCEAF80BFBE8A4C502D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +651,8 @@ VA - Сборник военных песен - Бери шинель (2012) [MP
 ```bash
 magnet:?xt=urn:btih:A717F425541AB6C53AF61243AA70B472C1CAFC6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +687,8 @@ VA - Соловьёв-Седой - Споёмте друзья (2CD) (2007) [APE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -675,6 +721,8 @@ VA - Соловьёв-Седой - Споёмте друзья (2CD) (2007) [MP3
 ```bash
 magnet:?xt=urn:btih:D0615721F5BA863FAEEE9A2ED24BD5047158646E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -709,6 +757,8 @@ magnet:?xt=urn:btih:D0615721F5BA863FAEEE9A2ED24BD5047158646E
 magnet:?xt=urn:btih:440DD407F9628838B9EBD4C8D7BDC4AD3E7E49A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -741,6 +791,8 @@ magnet:?xt=urn:btih:440DD407F9628838B9EBD4C8D7BDC4AD3E7E49A7
 ```bash
 magnet:?xt=urn:btih:200AF7875D924050D9DB5DFAF10823E0F15AF4A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

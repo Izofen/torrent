@@ -22,6 +22,8 @@ Iggy Pop - Naughty Little Doggie (1996) [FLAC|Lossless|tracks + .cue] <Alternati
 magnet:?xt=urn:btih:0A139B73C597141939AE18A64AF8ED31AED0F296
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:0A139B73C597141939AE18A64AF8ED31AED0F296
 ```bash
 magnet:?xt=urn:btih:6F8AC1770317AC77645ADD9787D2F470BCD075CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ White Skull - Metal Never Rusts (2022) [MP3|320 Kbps] <Heavy Power Metal>
 magnet:?xt=urn:btih:A091E3359727F715302D6EA64861111DD818AA41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:A091E3359727F715302D6EA64861111DD818AA41
 ```bash
 magnet:?xt=urn:btih:4233E1ABF69CB151DB77E3DED97A1EE206DD2EFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:4233E1ABF69CB151DB77E3DED97A1EE206DD2EFC
 ```bash
 magnet:?xt=urn:btih:DA9EE595849D74A17C8122FEF0831F2BD25A7389
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:DA9EE595849D74A17C8122FEF0831F2BD25A7389
 magnet:?xt=urn:btih:EED8A623782AE3F86EBE6E47AEA03251DF77144D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:EED8A623782AE3F86EBE6E47AEA03251DF77144D
 ```bash
 magnet:?xt=urn:btih:9DCA913DAD5E4DCA89FA0A12A73AF6E95DE00999
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:9DCA913DAD5E4DCA89FA0A12A73AF6E95DE00999
 magnet:?xt=urn:btih:9D017E763F9AA8981FF5D4FC7D5050A87D4B2658
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:9D017E763F9AA8981FF5D4FC7D5050A87D4B2658
 ```bash
 magnet:?xt=urn:btih:861573CD5E1A70AFFF90A1129767B3DFC1B33FE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ XIII - 8 Albums (2017-2022) [MP3|320 Kbps] <Nu-Metal>
 magnet:?xt=urn:btih:5CA90C8225E52264604CEA57E7BF96AA2A5D5AFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ magnet:?xt=urn:btih:5CA90C8225E52264604CEA57E7BF96AA2A5D5AFD
 magnet:?xt=urn:btih:BEAEB4DAA6E5CD6C69BCA6B0484AB0F961AD667A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ magnet:?xt=urn:btih:BEAEB4DAA6E5CD6C69BCA6B0484AB0F961AD667A
 ```bash
 magnet:?xt=urn:btih:A4F79B9869D0A814DF330326DBDED7987CBC29D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +355,8 @@ Youstn - True (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:3499464711BCD6DDB6D6C64384B92BC9B88D2F22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +384,8 @@ VA - 50 Chart Hits of 2020 The Winter Workout Album [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:9D6828C2DFF48078B83BB7DE6FEE2CB5662E590F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +411,8 @@ magnet:?xt=urn:btih:9D6828C2DFF48078B83BB7DE6FEE2CB5662E590F
 magnet:?xt=urn:btih:312CE21DCEF77E52055E731CEA0F02EB2550BA35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +436,8 @@ magnet:?xt=urn:btih:312CE21DCEF77E52055E731CEA0F02EB2550BA35
 ```bash
 magnet:?xt=urn:btih:BCDD95AAAC2DCF6926E9A168C1ADEBD2AC2350E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +466,8 @@ Turkish Delight - Volume One (2022) [MP3|320 Kbps] <Melodic Hard Rock>
 magnet:?xt=urn:btih:1337849C1D9192540FBE92E87903417C11A2C7CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +494,8 @@ magnet:?xt=urn:btih:1337849C1D9192540FBE92E87903417C11A2C7CD
 ```bash
 magnet:?xt=urn:btih:679F29A46BABB626F3E6012D43B58B8535390FC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +524,8 @@ magnet:?xt=urn:btih:679F29A46BABB626F3E6012D43B58B8535390FC7
 magnet:?xt=urn:btih:F0A1EF3C91D8876ED63513370DA92208730E30A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +549,8 @@ magnet:?xt=urn:btih:F0A1EF3C91D8876ED63513370DA92208730E30A9
 ```bash
 magnet:?xt=urn:btih:401736CC4BFAE13B6EC4EC992AD6EC4FCC1E085D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +576,8 @@ magnet:?xt=urn:btih:401736CC4BFAE13B6EC4EC992AD6EC4FCC1E085D
 magnet:?xt=urn:btih:3BD855F83D4FF6C53CBCF1DF293A72BAFDA58C1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +601,8 @@ magnet:?xt=urn:btih:3BD855F83D4FF6C53CBCF1DF293A72BAFDA58C1E
 ```bash
 magnet:?xt=urn:btih:A2689F5A88BA452051D128256AFB60764674A987
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +631,8 @@ Cadaver - The Age of the Offended (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, D
 magnet:?xt=urn:btih:7C493180F856051BDB31B049DABEF33BA77BBAE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +659,8 @@ VA - Music News vol.49 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
 ```bash
 magnet:?xt=urn:btih:7D73D3673965235C8AAB29DE96F0E5E5E4AA1E25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +689,8 @@ VA - German Top 50 Official Dance Charts (21.12.2015) [MP3| 128-320 кб/с] <Da
 magnet:?xt=urn:btih:99BEEEEE00114A6B27BDBEF5631F3443975555D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +715,8 @@ balenaEtcher предлагает вам возможность с легкос�
 ```bash
 magnet:?xt=urn:btih:3104384FF99604DC3406FD9BF5DF2BBC24EE16FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

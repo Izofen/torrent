@@ -19,6 +19,8 @@ Battlefield V (2018) [PS4] [EUR] 5.05 [HEN] [License / 1.26] [Ru/Multi]
 magnet:?xt=urn:btih:EF2CBEEF9C46DB9797EDBC0F00AAD2DC5B7B7EC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The LEGO Movie Videogame (2014) [PS4] [EUR] 5.05  [HEN] [License / 1.01 / DLC] [
 ```bash
 magnet:?xt=urn:btih:7F4C2904FB9D67E653EDEEF58AD52F1C0D0303B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Legend of Spyro: Dawn of the Dragon [Wii] [PAL] [Multi 5] (2008)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Call of Duty имеет как одиночный режим игры, так и
 ```bash
 magnet:?xt=urn:btih:A5C3802147CEB44FA8EE87B6BE662ED0310FA5CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Minecraft: Xbox 360 Edition [Update Aquatic] (2012) [Xbox360] [Region Free] [Fre
 magnet:?xt=urn:btih:D1DEDEB38C67F30023211A68E7B52375116C7160
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Prison Princess (2020) [Switch] [USA] 9.1.0 [NSZ] [License / 1.0.1] [Ru/En]
 ```bash
 magnet:?xt=urn:btih:17F7A816E3CCB47E476C7A8F9E90047DD0CA1754
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ WWE 2K17 – продолжение серии популярного симул
 magnet:?xt=urn:btih:DCDA7B47B477268D5893ED129662B347DE66E43D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ WRC 5 FIA World Rally Championship (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE P
 ```bash
 magnet:?xt=urn:btih:EBC395EB139ECA1574BB226BF13CDA563953409C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ SOCOM 4: Special Forces / SOCOM: Спецназ [PS3] [MOVE] [3D] [EUR] [Ru] [3.
 magnet:?xt=urn:btih:EF7DEBA509CCC181F21651795F893E8389DF7A73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Final Fantasy 3 [JAP/ENG] (2012) [PSP]
 ```bash
 magnet:?xt=urn:btih:A145B854939CC405434D77C9387E5B2E0F5A1BBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Wipeout 2048 (2012) [PSVita] [EUR] 3.60 [HENkaku] [License / 1.04] [Ru/En]
 magnet:?xt=urn:btih:D9C1E175F6021B65AB792B3FC892F35B6CCEA16D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Resident Evil 4 HD – переиздание знаменитой игры се
 ```bash
 magnet:?xt=urn:btih:B776827C66DD1AD5BDFF200F4C77A73A62B70F19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Beyond Good & Evil HD (2011) [PS3] [EUR] 3.55 [Repack] [Ru]
 magnet:?xt=urn:btih:6E30E0E0E3231A1A65CB53DE2602E3C877005027
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Metal Gear Solid HD Collection (2012) [PSVita] [USA] 3.60 [NoNpDrm] [License] [E
 ```bash
 magnet:?xt=urn:btih:5079044FB9E2BC1E8F6A52211F77D41FA153E658
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ The Cave (2013) [PS3] [USA] 4.10 [Repack] [Ru]
 magnet:?xt=urn:btih:F0426CFCF254B7F38EA01AAA6A8FE2A05D75D55A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Call of Duty 3 (2006) [Xbox360] [Region Free] [Freeboot] [License] [Ru/En]
 ```bash
 magnet:?xt=urn:btih:3975A60B93E6887F36157E738AF30B8B92CF9CE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ FIFA Street на Xbox 360 – это самый настоящий уличны�
 magnet:?xt=urn:btih:B01F4A0B857A12169E44FC88A15B04DD8071A778
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Rayman Origins (2011) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
 ```bash
 magnet:?xt=urn:btih:CC3F2BC293E3B146F23711305443B3003A368945
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ Hitman: Absolution – долгожданное продолжение сери�
 magnet:?xt=urn:btih:37C597298A3CB6305E72B1CB2C079BE842942532
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Far Cry 5 (2018) [PS4] [EUR] 9.0 [HEN] [License / 1.16 / DLC] [Ru/En]
 ```bash
 magnet:?xt=urn:btih:30C1D6D522E76508510BBBA0A09BCBCDA780ACEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ Motorcycle Club на Xbox 360 - промчитесь по реалистичны
 ```bash
 magnet:?xt=urn:btih:AB1CA273630FFE9ABF92C19A2398E210BF9DFE2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ Red Dead Redemption: Game of the Year Edition [Xbox 360] [English] [Region Free]
 magnet:?xt=urn:btih:7174FE68BF24F290575D2200B44B57B686C8AD3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ Transformers Devastation предлагает игрокам выступить 
 ```bash
 magnet:?xt=urn:btih:5BC0078CC21BB5DB544BC6B779BDAB40D3634672
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ Fable: The Journey [ENG] (LT+3.0/15574) [KINECT] (RegionFree) (XGD3) (2012) [Xbo
 magnet:?xt=urn:btih:4E5AEF82B88E1590DFAEA489DFD20D50C544D67B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ Shantae: Half-Genie Hero – четвёртая часть серии Shantae. �
 ```bash
 magnet:?xt=urn:btih:A78E306458500D2CAB1DD23B80967A711FD6BC63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +682,8 @@ LEGO Batman 3: Beyond Gotham (2014) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Repack] [
 ```bash
 magnet:?xt=urn:btih:BCD73F249FD49AF2F3B8A7BDCCFD98AF1C9FB258
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

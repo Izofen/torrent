@@ -1,3 +1,32 @@
+###  Публикация: 1031367   (668662) от 03.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 47 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Albert One - Turbo Diesel ( 1984 )
+02. Mike Mareen - Dancing In The Dark ( 1985 )
+03. Ace Of Base - All That She Wants ( 1992 )
+04. C + C Music Factory - Just A Touch Of Love ( 1990 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDBFBBF36DD152289D381CCC62C108081C0B98B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291628   (668680) от 25.03.2019
 
 VA - Spotify - Argentina Top 50 (2019) [MP3|320 Kbps] <Pop>
@@ -22,6 +51,8 @@ VA - Spotify - Argentina Top 50 (2019) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:A39DCA497D2DFB5FBCE9499A2CD933B45BF45176
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +76,8 @@ VA - Едем На Моря!!! (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:1C9F57635B740305142E891C4A952099B7A3F9AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +106,8 @@ VA - Русская Дискотека ХХ Века - 20 (Юбилейный) (
 magnet:?xt=urn:btih:C08D35E82AF444D4F9E66842A4241137253FE008
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +134,8 @@ VA - Зарубежная Дискотека ХХ Века - 46 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:44B1B095D059444F52203E1E51E9AEBB783F2118
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +164,8 @@ VA - Русская Дискотека ХХ Века - 11 (2010) [MP3|320 Kbps]<
 magnet:?xt=urn:btih:2F0DDBA12392B4CBE494BEA0551F9CAA1265DCFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +192,8 @@ VA - Planet Pop: Summer Version 04 (2016) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:C92550BF5B450DCF21362CBD2791C4A90D8F3768
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +222,8 @@ VA - Русская Дискотека ХХ Века - 15 (Именной) (2010
 magnet:?xt=urn:btih:B2E393E7B492FD1F91005216160736A2FDAED9A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +250,8 @@ VA - Русская Дискотека ХХ Века - 12 (2010) [MP3|320 Kbps]<
 ```bash
 magnet:?xt=urn:btih:FF750B3EFDC00B251D26B68D15337F696CEC4671
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +280,8 @@ VA - Русская Дискотека ХХ Века - 19 (2010) [MP3|320 Kbps]<
 magnet:?xt=urn:btih:9C35112BC56F298BB12BF7CFF408E3E777C01F5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +308,8 @@ VA - Русская Дискотека ХХ Века - 16 (2010) [MP3|320 Kbps]<
 ```bash
 magnet:?xt=urn:btih:FFD5DB8D4E18051DDD3E404453FAE57C5145AB18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +338,8 @@ VA - Зарубежная Дискотека ХХ Века - 45 (2016) [MP3|320 
 magnet:?xt=urn:btih:9E48CF800FB1943E489605A1EFE1A60C98085115
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +366,8 @@ VA - Русская Дискотека ХХ Века - 14 (2010) [MP3|320 Kbps]<
 ```bash
 magnet:?xt=urn:btih:AA99E42E9A7DF6898BB4A966CA4D5726AE791752
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +396,8 @@ VA - Зарубежная Дискотека ХХ Века - 39 (2016) [MP3|320 
 magnet:?xt=urn:btih:C59675CE0D92D5DC1F788B08BC405683D4E05FD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +424,8 @@ VA - Русская Дискотека ХХ Века - 13 (2010) [MP3|320 Kbps]<
 ```bash
 magnet:?xt=urn:btih:3FDFFC85E43B21AA06F1330B2EE1288D7A4D2DF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +454,8 @@ VA - Зарубежная Дискотека ХХ Века - 44 (2016) [MP3|320 
 magnet:?xt=urn:btih:33DFF32C57A80204C4389094226FAAF22150CA16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +482,8 @@ VA - Русская Дискотека ХХ Века - 17 (2010) [MP3|320 Kbps]<
 ```bash
 magnet:?xt=urn:btih:D5A2A168DDA180E7CA1C6058378D07339A971C88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +512,8 @@ VA - Русская Дискотека ХХ Века - 18 (2010) [MP3|320 Kbps]<
 magnet:?xt=urn:btih:327EA327C3FD25325271A1F016611A6A39020A35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +540,8 @@ VA - Зарубежная Дискотека ХХ Века - 36 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:0072A76591191CB15CF8FF9AD75610D3F62B1813
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +570,8 @@ VA - Зарубежная Дискотека ХХ Века - 38 (2016) [MP3|320 
 magnet:?xt=urn:btih:158A7D3977C3C7536FFD86C351E8EAAD73193541
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +598,8 @@ VA - Зарубежная Дискотека ХХ Века - 41 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:688DB21829BC5DF32AB5C8AA91A0AC9AF6F407CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +628,8 @@ VA - Зарубежная Дискотека ХХ Века - 40 (2016) [MP3|320 
 magnet:?xt=urn:btih:07B9BDC76AB34B98C9C4224543C9264645056E56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +656,8 @@ VA - Зарубежная Дискотека ХХ Века - 43 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:1FDCE6519AC68B34783C6F740B72AD7A951909E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +686,8 @@ VA - Зарубежная Дискотека ХХ Века - 37 (2016) [MP3|320 
 magnet:?xt=urn:btih:404BF378BD630BBF8292A97B77C45153B03229F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +714,8 @@ VA - Зарубежная Дискотека ХХ Века - 42 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:34B49A5AF397EF0ABD4EF7F92D1C813FDB490C81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,32 +744,7 @@ VA - Top 50 Official Dance Charts 22.03.2019 (2019) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:302E0CE8D76CE25856AC8AFF41BE75ED48F337C0
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536953   (670590) от 14.03.2022
-
-VA - 90's One Hit Wonders (2022) [MP3|320 Kbps] <Pop, Dance, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vanilla Ice - Ice Ice Baby
-02. MC Hammer - U Can't Touch This
-03. Hanson - MMMBop
-04. The Cranberries - Zombie(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 02:24:46 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F5AFD4E3304F05BC44384984051CCE96EC60E47
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

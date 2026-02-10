@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:C96BE58E7557A69A683F8F5AA47595C26CC18D0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:C96BE58E7557A69A683F8F5AA47595C26CC18D0B
 ```bash
 magnet:?xt=urn:btih:1F2651F37EEB89511AC683213B9D431A1839ED60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Manual FX Camera 1.0.3 [Ru]
 magnet:?xt=urn:btih:71418585012259AEAB0932F827BC054DB9B8F127
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Root Essentials Premium 2.4.5 [Ru]
 ```bash
 magnet:?xt=urn:btih:7180B8DCDA7DC2A8E0066B3205C36569DF9A90A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Bass Guitar Tutor Pro - приложение, с помощью которого
 magnet:?xt=urn:btih:998691CE5FC0F2F6EC4E9AC1AB745AB538DF972E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Garden Coloring Book является отличным приложением р
 ```bash
 magnet:?xt=urn:btih:487B76525C5C6EA8A9B59FD3A235010621046FCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:487B76525C5C6EA8A9B59FD3A235010621046FCB
 magnet:?xt=urn:btih:E10307814B98C06A60DFCF20DC8ADE337B22F443
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ RAR компании RARLAB способен создавать RAR и ZIP и р
 ```bash
 magnet:?xt=urn:btih:635A1CE915ADEBB0C188D6D63F95D32E05F88DA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Relax Sea ~ Ocean Sounds PRO v5.3.1 [Ru/Multi] - Расслабьтесь с л�
 magnet:?xt=urn:btih:169FDF2F516205518F7764A4079059EEB4093233
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Relax Night ~ Nature Sounds PRO v4.4.0 [Ru/Multi] - Отдых с лучшими
 ```bash
 magnet:?xt=urn:btih:609CA79D50BF6077E10B58EB01EDE5849D69898A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Relax Mountain ~ Nature Sounds PRO v4.3.1 [Ru/Multi] - Расслабьтесь 
 magnet:?xt=urn:btih:0604319763A74CAFD0D6B616A5A2807E76223E48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:0604319763A74CAFD0D6B616A5A2807E76223E48
 magnet:?xt=urn:btih:3BA871F0F76D64E4D0FE31F61EC87FCA08578CF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ iGO R3 TomTom Европа 2019.12 (Q4) (.fbl, .fda, .fpa, .fsp, .ftr, .hnr, .po
 ```bash
 magnet:?xt=urn:btih:B8616502B1FC2635F0B10BE1DC5CC99DCFA457A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ FolderSync Pro v3.1.1 [Ru/Multi]
 magnet:?xt=urn:btih:E4A15977DE4BC7162C4F8E705CF874C51801306A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:E4A15977DE4BC7162C4F8E705CF874C51801306A
 ```bash
 magnet:?xt=urn:btih:62E34B70B3D1C602E6346C00F23302EECFCA22A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:62E34B70B3D1C602E6346C00F23302EECFCA22A7
 magnet:?xt=urn:btih:7BE8417177EA3381B9A4EFC066116AE76C4F4E21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ MultiNotes v2.10 [Ru/Multi] - удобные Заметки с напомина�
 ```bash
 magnet:?xt=urn:btih:03E221BC79C7CAB14F9B99538EB355A5B4C9BE47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ Scan - QR and Barcode Reader v2.3 [En/Ru] - Сканирование QR и сч�
 magnet:?xt=urn:btih:08F6BDF1AC3B4ABE01374B162D81802F58E57819
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ Wunderlist: To-Do List & Tasks Pro 3.4.19 [Ru]
 magnet:?xt=urn:btih:D545BAA0B74AD35A856F9742510F2FB8349E3E8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ Chromatix - это мощное мобильное приложение, кот�
 ```bash
 magnet:?xt=urn:btih:B87B51C2B50F199272B0F390CC24764156964229
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ Parallel SpaceMulti Accounts v4.0.8934 [Ru/Multi]
 magnet:?xt=urn:btih:83B634127B68F9EADB3BDFEE5F9BC04C95FFEA58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ The Meridian v2.0 [En] - 3D-модель человеческого тела с 
 magnet:?xt=urn:btih:642495FCAEB45EE37633854E9F1D55F522269245
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ Door Kickers: Action Squad - это сумасшедший скролл-шуте
 ```bash
 magnet:?xt=urn:btih:131DA65A634FE210CA8205DBDCA1FB7C2762AE20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +632,8 @@ WiFi Map 3.2.1 [Ru]
 magnet:?xt=urn:btih:97C351CC1F3D6205024C6C9BC663338EB598C5C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ magnet:?xt=urn:btih:97C351CC1F3D6205024C6C9BC663338EB598C5C8
 magnet:?xt=urn:btih:0B641E62AEB6F98A96BC7CA3B8F5447C2DE45226
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ magnet:?xt=urn:btih:0B641E62AEB6F98A96BC7CA3B8F5447C2DE45226
 ```bash
 magnet:?xt=urn:btih:C423EA88A237DA121B3EF47CEF3A8EAB6C9F26F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

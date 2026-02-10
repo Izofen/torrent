@@ -24,6 +24,8 @@
 magnet:?xt=urn:btih:0DB42D11B58C9AD31C14CFD55C3E0600C8D81975
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:0DB42D11B58C9AD31C14CFD55C3E0600C8D81975
 magnet:?xt=urn:btih:98AA739820FB428324B8541548849845C97820E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:98AA739820FB428324B8541548849845C97820E8
 ```bash
 magnet:?xt=urn:btih:58CDE58BF4EFF984316325C9D5BDA6886F4786A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +109,8 @@ magnet:?xt=urn:btih:58CDE58BF4EFF984316325C9D5BDA6886F4786A3
 magnet:?xt=urn:btih:A039AF7FCB726129B333A0601B307233DA383DE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -134,6 +142,8 @@ Storm Corrosion - Storm Corrosion (Special Edition) [WEB] (2012) [FLAC|Lossless]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -158,6 +168,8 @@ ASUS Eee PC, Acer Aspire One, MSI Wind, Dell Mini и др.
 ```bash
 magnet:?xt=urn:btih:0606FD504120E1CB68D4419F9531EA75A1112E7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +204,8 @@ John Schlitt - The Greater Cause (2012) [MP3|320 кб/с]<Hard Rock>
 magnet:?xt=urn:btih:5EBAD0870AD22A191706331952C52C7AE1F806A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +230,8 @@ Griefrain - Follow The Dusk (2012) [MP3|320 кб/с]<Depressive Post Black>
 magnet:?xt=urn:btih:9AF5A7A6142243F1AF14C21E8205AE387562D5C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +255,8 @@ magnet:?xt=urn:btih:9AF5A7A6142243F1AF14C21E8205AE387562D5C4
 ```bash
 magnet:?xt=urn:btih:C4B0756DC00C6281C7D101B9B940E5CE32908D39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +291,8 @@ Paul Oakenfold - Planet Perfecto 080 (15.05.2012) [MP3|256 кб/с]<Trance, Prog
 magnet:?xt=urn:btih:5CC1DB0E7128D8232E2644B4B0B04D58A08BD78F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +325,8 @@ VA - Зарубежные Новинки Vol.50 from AGR (2012) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:05F7C854B552E5B18EB1183DD7F759FF0E72DA0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +361,8 @@ VA - TMP: Trance Harmony 065 (2012) [MP3|320 кб/с]<Trance, Uplifting Trance, 
 magnet:?xt=urn:btih:DC0059AB015B5FEC6432439D24B8C71E05DB8CF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +396,8 @@ VA - Убойная вечеринка по-русски (2012) [MP3|256 кб/с
 magnet:?xt=urn:btih:0B0F1BD76BD5B66DABF5BFFAAF3E1C8B2ECA0412
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +426,8 @@ magnet:?xt=urn:btih:0B0F1BD76BD5B66DABF5BFFAAF3E1C8B2ECA0412
 magnet:?xt=urn:btih:CDB2D168C26F7B3821A396FB92DDE29857D3BD55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +452,8 @@ magnet:?xt=urn:btih:CDB2D168C26F7B3821A396FB92DDE29857D3BD55
 magnet:?xt=urn:btih:7023A136933BEBD77CB24C5278741AD45651BF89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +477,8 @@ magnet:?xt=urn:btih:7023A136933BEBD77CB24C5278741AD45651BF89
 ```bash
 magnet:?xt=urn:btih:D20EF13BE7756C9726A380C5824A8371BED91F53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +508,8 @@ magnet:?xt=urn:btih:D20EF13BE7756C9726A380C5824A8371BED91F53
 magnet:?xt=urn:btih:E4201D0582D580BA91F7354CBD3315624115BF2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +533,8 @@ magnet:?xt=urn:btih:E4201D0582D580BA91F7354CBD3315624115BF2B
 ```bash
 magnet:?xt=urn:btih:4C5E690513F87D2DDA202B033F9E53C2BD36257A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +569,8 @@ VA - Клубная Москва Лето Vol.1 (2012) [MP3|320 кб/с]<Dance, 
 magnet:?xt=urn:btih:7D28EE0A53BE3DC7BFEE307D0C3E498546EF373A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +602,8 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #84 (2012)
 magnet:?xt=urn:btih:197D9C1F404EEFF3734E86D380230FC992F9BFE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +630,8 @@ magnet:?xt=urn:btih:197D9C1F404EEFF3734E86D380230FC992F9BFE0
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +655,8 @@ Die Atzen - Party (Ich Will Abgehn) (2012) [H.264/1080р] WEBRip
 ```bash
 magnet:?xt=urn:btih:C0E72FA19B28BBCD87B19957F2D3467D472F1918
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -645,6 +689,8 @@ VA - Vocal Passion Vol.26 (16.05.2012)
 magnet:?xt=urn:btih:8F401865EA0D3DDA86A041E8012719D946A03C49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +714,8 @@ magnet:?xt=urn:btih:8F401865EA0D3DDA86A041E8012719D946A03C49
 ```bash
 magnet:?xt=urn:btih:E25AAC05C0C4236996EE10FE63D544253A1E0573
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -693,6 +741,8 @@ magnet:?xt=urn:btih:E25AAC05C0C4236996EE10FE63D544253A1E0573
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -716,6 +766,8 @@ magnet:?xt=urn:btih:E25AAC05C0C4236996EE10FE63D544253A1E0573
 ```bash
 magnet:?xt=urn:btih:A25CF032B71EB88739FAF87D014A1A1AC25534ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

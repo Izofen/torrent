@@ -1,3 +1,31 @@
+###  Публикация: 1205947   (783141) от 11.02.2018
+
+Максим Серебренников | Что такое Биткоин и как не потерять все на криптовалюте (2018) [FB2]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная книга является стартовым путеводителем по миру криптовалют. Она не является книгой в базовом понимании с исчерпывающим описанием технологий или рынка криптовалют, а скорее служит методическим пособием по самостоятельному изучению и погружению в мир криптовалют.
+
+Она не является руководством по инвестированию и тем более не призывает к этому, но даёт базовые (   Читать дальше...   )Жанр: КриптовалютыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A05C126BF7CEE453E867AD48D72790C717599E89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205786   (783150) от 11.02.2018
 
 Максим Серебренников | Что такое Биткоин и как не потерять все на криптовалюте (2018) [PDF, RTF]
@@ -20,6 +48,8 @@
 ```bash
 magnet:?xt=urn:btih:E4229777239CE3A7E2DE4D345B1C72D394C8A0E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +75,8 @@ magnet:?xt=urn:btih:E4229777239CE3A7E2DE4D345B1C72D394C8A0E7
 magnet:?xt=urn:btih:E9409D3641564A6718A9CC05FEA8432B24482CDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +100,8 @@ magnet:?xt=urn:btih:E9409D3641564A6718A9CC05FEA8432B24482CDD
 ```bash
 magnet:?xt=urn:btih:611E5B22C1006B017AB084874836446E5F7A32D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +129,8 @@ magnet:?xt=urn:btih:611E5B22C1006B017AB084874836446E5F7A32D1
 magnet:?xt=urn:btih:91F09ADC81C7CDFAC3CE3B08E9440F949EAE0509
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +154,8 @@ magnet:?xt=urn:btih:91F09ADC81C7CDFAC3CE3B08E9440F949EAE0509
 ```bash
 magnet:?xt=urn:btih:DE1ED33371174CAAE02FD2783B17DA307F1B817A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +182,8 @@ magnet:?xt=urn:btih:DE1ED33371174CAAE02FD2783B17DA307F1B817A
 magnet:?xt=urn:btih:BAADDFE5EA677B4821FE44BB8237475C819FB6BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +207,8 @@ magnet:?xt=urn:btih:BAADDFE5EA677B4821FE44BB8237475C819FB6BC
 ```bash
 magnet:?xt=urn:btih:3A37C0D02EAB8DAA8F43AA0263AED97D205AE279
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +234,8 @@ magnet:?xt=urn:btih:3A37C0D02EAB8DAA8F43AA0263AED97D205AE279
 magnet:?xt=urn:btih:9D6ACD914923B3F915305CB466120C5EB4A44152
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +259,8 @@ magnet:?xt=urn:btih:9D6ACD914923B3F915305CB466120C5EB4A44152
 ```bash
 magnet:?xt=urn:btih:70C9F04D7CBD24E78CC110C6C091874AC47E96EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +286,8 @@ magnet:?xt=urn:btih:70C9F04D7CBD24E78CC110C6C091874AC47E96EB
 magnet:?xt=urn:btih:9B3A1789F65396ECC35058BC9704B93BE69E96E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +312,8 @@ magnet:?xt=urn:btih:9B3A1789F65396ECC35058BC9704B93BE69E96E7
 magnet:?xt=urn:btih:1D66E32D23D059D7BABC9F19DF6C51D13AF75119
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +337,8 @@ magnet:?xt=urn:btih:1D66E32D23D059D7BABC9F19DF6C51D13AF75119
 ```bash
 magnet:?xt=urn:btih:249959A5C6EBCBA8FF163C6AA853C7EAF45CB14C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +367,8 @@ magnet:?xt=urn:btih:249959A5C6EBCBA8FF163C6AA853C7EAF45CB14C
 magnet:?xt=urn:btih:D511CF7F93F0456A0C8AB35CD65EDF4E790BC576
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +392,8 @@ magnet:?xt=urn:btih:D511CF7F93F0456A0C8AB35CD65EDF4E790BC576
 ```bash
 magnet:?xt=urn:btih:9B7084579C8338973422E2B38B249468DA26E49A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +420,8 @@ magnet:?xt=urn:btih:9B7084579C8338973422E2B38B249468DA26E49A
 magnet:?xt=urn:btih:EF276DA9271F48A7CEAB457E1BDD72398A610D0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +447,8 @@ magnet:?xt=urn:btih:EF276DA9271F48A7CEAB457E1BDD72398A610D0B
 magnet:?xt=urn:btih:3C9EB5E01CA85F20937E680BC571454495902EEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +472,8 @@ magnet:?xt=urn:btih:3C9EB5E01CA85F20937E680BC571454495902EEB
 ```bash
 magnet:?xt=urn:btih:C43026181620FEE791E96A95A54245A6DB60FFEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +499,8 @@ magnet:?xt=urn:btih:C43026181620FEE791E96A95A54245A6DB60FFEA
 magnet:?xt=urn:btih:4763A07834A90BD67858062B43677BB77EACDED8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +525,8 @@ magnet:?xt=urn:btih:4763A07834A90BD67858062B43677BB77EACDED8
 magnet:?xt=urn:btih:B48630F35D3FECAC7F33A0B15D698185028223F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +550,8 @@ magnet:?xt=urn:btih:B48630F35D3FECAC7F33A0B15D698185028223F2
 ```bash
 magnet:?xt=urn:btih:F9F14F72BD3D0B56BA7A4DEB3026EDA8AE621456
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +578,8 @@ magnet:?xt=urn:btih:F9F14F72BD3D0B56BA7A4DEB3026EDA8AE621456
 magnet:?xt=urn:btih:B6DC133900813131B82474EAAC49339EC0124AC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +603,8 @@ magnet:?xt=urn:btih:B6DC133900813131B82474EAAC49339EC0124AC0
 ```bash
 magnet:?xt=urn:btih:CB3F7F35A591CF6199BEFAF84E8D55EFBC8FE721
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +631,8 @@ magnet:?xt=urn:btih:CB3F7F35A591CF6199BEFAF84E8D55EFBC8FE721
 ```bash
 magnet:?xt=urn:btih:272585B7CB00D8B08451F18BC6F1B0AE28536DAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +661,8 @@ magnet:?xt=urn:btih:272585B7CB00D8B08451F18BC6F1B0AE28536DAB
 magnet:?xt=urn:btih:A7E6A3899726E1AB47A15A4BC3ACDB84227CB2EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,29 +687,7 @@ magnet:?xt=urn:btih:A7E6A3899726E1AB47A15A4BC3ACDB84227CB2EA
 magnet:?xt=urn:btih:90F1A89A0702F01D2FA41AE9D88A490BF98C12F3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205410   (783422) от 10.02.2018
-
-Кайя Норденген | Мозг всемогущий. Путеводитель по самому незаменимому органу нашего тела (2017) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что делает нас нами? Где начинается мысль? Разум и память, влюбленность и ненависть, логика и обучаемость, – элементы, из которых состоит наше «я», находятся в самом незаменимом органе нашего тела – мозге. Приготовьтесь отправиться в увлекательнейшее путешествие по мозгу и узнать, где находится личность, почему важно уметь забывать, в каком отделе мозга спрятан компас, (   Читать дальше...   )Жанр: Практическая психология, нейропсихологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFBD50F34F8999CB695F10018DF2C82743DB88DF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

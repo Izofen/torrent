@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:EA508412D34448F1A6DB1A9B87E8CEBB189B99AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:EA508412D34448F1A6DB1A9B87E8CEBB189B99AE
 ```bash
 magnet:?xt=urn:btih:E6CFDA1C80924BD64F00DC9E8D03619A49486172
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Alias — популярная игра-викторина, которая ид�
 magnet:?xt=urn:btih:BEEF499156D980205906FB6893F642153DAB052F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ ElectroCalc - DIY Electronics v3.7 (88) Mod by derrin [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:55CF33DCDCD2EC839B5C4DD7B02C03BB254D6B75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ BackCountry Navigator TOPO GPS v7.3.8 [En]
 magnet:?xt=urn:btih:E0FC4FBE30245973489AE580F726D8B1306842AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Bikemap: велотрекер и маршруты v19.1.0 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2B47BCCF113A5F4B15DF8B696A5CFF5F922687BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Rock Identifier - Stone ID v2.3.9 [Ru/Multi]
 magnet:?xt=urn:btih:8E0A0F89BE0A722BD95C11A21ACA2CCD9FB4940F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Text Scanner [OCR] v9.9.4 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1EC39894A56E20994A721752C9C1C46288E76BF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Telegram — это облачный мессенджер для мобильн�
 magnet:?xt=urn:btih:4013E0DBFB925924C943116613B8945F09EBDB1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Dual Space — Multiple Accounts & App Cloner — невероятно поле�
 ```bash
 magnet:?xt=urn:btih:F2DE80FCE26B2BB1D66343DF5C0752AFAED2EE19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Rosetta Stone: Изучение языков 8.34.3 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:C3CCAC25268E7EA21F0694ACFACB3E43A38CB3F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:C3CCAC25268E7EA21F0694ACFACB3E43A38CB3F6
 ```bash
 magnet:?xt=urn:btih:E120494E5DD8D36AD2712AD500CF2C39A4451A18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Smart Book / Параллельный перевод книг v3.2 Mod by Dymony
 magnet:?xt=urn:btih:66937DA2F2B3C0A8D6A8E03021DB0CA814E28A49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ SD Maid поможет держать Ваше устройство в чист�
 ```bash
 magnet:?xt=urn:btih:EE4BAA44F5BCBD2186624A8BF215ADDA43912EF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ VPN.lat — это бесплатный VPN-сервис для Android с се�
 magnet:?xt=urn:btih:8D1C07574DDA611DF97212B70E7EDAE9DBD0FB72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Enhance it v4.1.4 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2E5A504DBEA8D7F08F083D74239D3F820C3D5CE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Kiwi VPN Proxy от Macdep - это лучший быстрый и лучший 
 magnet:?xt=urn:btih:80569F8378A0FB8D214758C1BD6739A85567B2B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Display Tester v4.56 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:CC7A36CA9A44912274CC7870476557AF13779064
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:CC7A36CA9A44912274CC7870476557AF13779064
 magnet:?xt=urn:btih:39C9DC32255B82ED847ACEC7E58574ADC823E4B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ BikeComputer Pro - возможно, одно из лучших приложен
 ```bash
 magnet:?xt=urn:btih:F833C4688C19440035F33F980DE9025C2C73D8F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ LectureNotes — это приложение для Android, которое по
 magnet:?xt=urn:btih:0875B776C31B60206E75C135DD0B0220F34099BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ magnet:?xt=urn:btih:0875B776C31B60206E75C135DD0B0220F34099BF
 ```bash
 magnet:?xt=urn:btih:0B44C5FEADE9DF4E68D90212D9A40BBC8B1D5F12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:0B44C5FEADE9DF4E68D90212D9A40BBC8B1D5F12
 magnet:?xt=urn:btih:D502F97CC5D03549A89F20EAF17F1CB0ADFCAF9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Zaycev.net v8.3.0 Mod by Dymonyxx, Timozhai  [Ru/En]
 ```bash
 magnet:?xt=urn:btih:D029592E1C1263829C0C3FB0D789AE85AB74FF99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ Free Download Manager позволяет организовать загрузк
 magnet:?xt=urn:btih:7EEF380C67A27B6DFDC8EB092966CC4B8E111005
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Movily – бесплатный видеосервис для просмотра
 ```bash
 magnet:?xt=urn:btih:0FC706075DE5E7BDEF66010E9EA3E823F347C219
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

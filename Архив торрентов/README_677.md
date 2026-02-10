@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:832649F5FE0F231E1EFCD11751E93726110D26A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ Trance Maniacs Party - Progressive Session #33 (2012) [MP3|320 кб/с]<Progress
 ```bash
 magnet:?xt=urn:btih:F51ED894F18F6E0789C2041613DCAA099C00D0D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -85,6 +89,8 @@ Amy Ray - Lung Of Love (2012) [MP3|320 кб/с]<Folk Rock/Indie Rock>
 magnet:?xt=urn:btih:11077CC13C834E12E42A0AFD6DC32C6F2AA4908D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ magnet:?xt=urn:btih:11077CC13C834E12E42A0AFD6DC32C6F2AA4908D
 ```bash
 magnet:?xt=urn:btih:202473E2D51A19196F88FF2F0C2694A4F47AB73A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +150,8 @@ VA - Улетный Весенний Спецвыпуск. Зарубежный 
 magnet:?xt=urn:btih:4DDD10D3971EDA2DC0470AA979BEB45690998236
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +175,8 @@ magnet:?xt=urn:btih:4DDD10D3971EDA2DC0470AA979BEB45690998236
 ```bash
 magnet:?xt=urn:btih:A301F874A24ACA5A83C689DC8C8F914C3B6F86A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +211,8 @@ The Chapman Family - Burn Your Town (2011) [MP3|128-320 кб/с]<Post-Rock>
 magnet:?xt=urn:btih:121A8B595DB40CA8DE54FEE4C2C80DA4BFBF1701
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -232,6 +246,8 @@ Nate Wooley Quintet - Hands Together (2011) [FLAC|Lossless]<ree Jazz, Modern Cre
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +271,8 @@ BurnAware - простая, но могучая программа для зап
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +307,8 @@ DJ Nike Twist - TranceWave 028 @ GTI Radio (01.03.2012) [MP3|256 кб/с]<Trance
 magnet:?xt=urn:btih:B307CC1F2A7FF43FBC4662853272FFBA5F1D8E46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +333,8 @@ magnet:?xt=urn:btih:B307CC1F2A7FF43FBC4662853272FFBA5F1D8E46
 ```bash
 magnet:?xt=urn:btih:4D140AA445144BC65DA52400AF161DED886E385F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +369,8 @@ CD1 Продолжительность: 01:11:31
 magnet:?xt=urn:btih:94D30D2D8D73786B7666B905B274A55A55C419B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +402,8 @@ magnet:?xt=urn:btih:94D30D2D8D73786B7666B905B274A55A55C419B0
 magnet:?xt=urn:btih:303BEBD58685131036BFFC60E73733EFB2668D76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +427,8 @@ Chick Intimate Cult - португальский журнал посвященн
 ```bash
 magnet:?xt=urn:btih:7AFD32663EDE17B9D8B43455E3969BF449E67CD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +454,8 @@ Chick Intimate Cult - португальский журнал посвященн
 magnet:?xt=urn:btih:0F4E4A738DD278620951ACC4F4E7770EC07608A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +480,8 @@ magnet:?xt=urn:btih:0F4E4A738DD278620951ACC4F4E7770EC07608A7
 magnet:?xt=urn:btih:68DF4CE930B54F0B0B5E2F3539F8023CB7AF1895
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +505,8 @@ VueScan - программа для работы со сканерами. Мож
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +541,8 @@ VA - Armada Top 15: March 2012 (02.03.2012) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:B407D0539C7A045E1B4ADEB439497116AAB24FB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +574,8 @@ Lamat - V (2011) [MP3|~250 кб/с (V0)]<Psychedelic / Full On>
 magnet:?xt=urn:btih:87B1063E8C8EC907651C6B0908C377860DC43BF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +599,8 @@ National Geographic: Перехват торнадо / Tornado Intercept (2005) 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +634,8 @@ Xtatic Shiva - Traces (2012) [MP3|320 кб/с]<Psychedelic>
 magnet:?xt=urn:btih:E17AC8878841F6541F23C1A84FE74FD583340AE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +660,8 @@ magnet:?xt=urn:btih:E17AC8878841F6541F23C1A84FE74FD583340AE2
 magnet:?xt=urn:btih:CDDEF6938C57814040E98165520FA8B80133D2DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +685,8 @@ Chick Intimate Cult - португальский журнал посвященн
 ```bash
 magnet:?xt=urn:btih:8F06FD930BBB0B45471C3B08CE3D65F7B547FAE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -674,6 +720,8 @@ VA - Face Disco (2011) [FLAC|Lossless]<Psychedelic / Progressive>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -697,6 +745,8 @@ BurnAware - простая, но могучая программа для зап
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -723,6 +773,8 @@ BurnAware - простая, но могучая программа для зап
 ```bash
 magnet:?xt=urn:btih:84BBC4816787F641BA56361D3B9731F58857FEC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

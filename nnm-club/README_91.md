@@ -19,6 +19,8 @@ Cronos: The New Dawn - это новое слово в жанре survival horro
 magnet:?xt=urn:btih:6C13C9ADC50015E41983227235D2A7BBFEAF8ECD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:6C13C9ADC50015E41983227235D2A7BBFEAF8ECD
 magnet:?xt=urn:btih:36037B208E77A027F3E3984079C4FE84E65BD2EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:36037B208E77A027F3E3984079C4FE84E65BD2EC
 magnet:?xt=urn:btih:C55455B448446E220B6518662A503F00CFDE4A8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:C55455B448446E220B6518662A503F00CFDE4A8F
 ```bash
 magnet:?xt=urn:btih:6DAC0E2C7734CFE937E39DF48A1188DA82F79A92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:6DAC0E2C7734CFE937E39DF48A1188DA82F79A92
 magnet:?xt=urn:btih:34598212E2681C412A155435712B69E57E53EFBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:34598212E2681C412A155435712B69E57E53EFBE
 magnet:?xt=urn:btih:C0C5BDF8B69023D730040F33DB175DF7381A9B04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:C0C5BDF8B69023D730040F33DB175DF7381A9B04
 ```bash
 magnet:?xt=urn:btih:7C61E53B6680663C6CF6F1B0B574B71D72238BE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Cyberdawn, Олег Сапфир | Цикл "Инженерный Парадок
 magnet:?xt=urn:btih:4E353E93DCF5942CA547CC2F9CBF78D7009683D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ OpenAI сканирует разговоры и в некоторых случа
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ OpenAI сканирует разговоры и в некоторых случа
 magnet:?xt=urn:btih:322551B002A299C655B55306EA559C8A233B0939
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:322551B002A299C655B55306EA559C8A233B0939
 ```bash
 magnet:?xt=urn:btih:A2413D7838F131B5582D47ACA8D755F0060349E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:A2413D7838F131B5582D47ACA8D755F0060349E3
 magnet:?xt=urn:btih:92B1387FBF82080B227DB624C371D1E1073FBCC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ American Truck Simulator (2016) [Ru/Multi] (1.56.1.0s/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:1ABA0B86C5EEA37384E7F30513BF389468327746
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ JETRUNNER (2025) [Ru/Multi] (1.0.4/dlc) Repack Let'sРlay [Founders Edition]
 magnet:?xt=urn:btih:637CFDCFA657EA446E3CBE7643D2168342EA6116
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Monster Energy Supercross 25 - The Official Video Game представляет 
 ```bash
 magnet:?xt=urn:btih:B255813F609CB391FCD1C8C574D722869B8DA15D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Five Nights at Freddy's: Secret of the Mimic - это игра в жанре sur
 magnet:?xt=urn:btih:3DE010C6911D8E44167B10A5EFBD85178D7D01AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:3DE010C6911D8E44167B10A5EFBD85178D7D01AC
 ```bash
 magnet:?xt=urn:btih:99A686493DD738AD9A2B89E1DFA7FF4B60BC05B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:99A686493DD738AD9A2B89E1DFA7FF4B60BC05B5
 magnet:?xt=urn:btih:EBB123803997E33D7D5A31EC6C3CF1B7191636DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:7B5FBCF132726E5762C2EAE54514CC74A3699A6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:7B5FBCF132726E5762C2EAE54514CC74A3699A6C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Tempest Rising (2025) [Ru/Multi] (1.4.0+50185/dlc) Repack Let'sРlay [Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:97754EA4913B42968038543791F7834429473C09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Kingdom Come: Deliverance II - захватывающий сюжетный ро�
 magnet:?xt=urn:btih:CCA0E3BCF8EB55A54F2282A12BBF22939C3F439C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:CCA0E3BCF8EB55A54F2282A12BBF22939C3F439C
 ```bash
 magnet:?xt=urn:btih:CEED4858C704EBC5E77EA7071A720436D6E3C626
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ KIBORG (2025) [Ru/Multi] (20 2.50.9_15:1:60) Repack Let'sРlay
 magnet:?xt=urn:btih:2E8D0259196017FDD32B2C0D3FFF171E927854EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:2E8D0259196017FDD32B2C0D3FFF171E927854EE
 magnet:?xt=urn:btih:0EF46D0F11227BBAABFDAB0CFAC5328B3937583D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:0EF46D0F11227BBAABFDAB0CFAC5328B3937583D
 ```bash
 magnet:?xt=urn:btih:69DAE5098886F2B586DDF1AF5814F0B1FA667B40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

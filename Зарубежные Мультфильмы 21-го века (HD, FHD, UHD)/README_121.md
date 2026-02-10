@@ -1,27 +1,3 @@
-###  Публикация: 637252   (901547) от 30.03.2013
-
-Побег с планеты Земля / Escape from Planet Earth (2013) BDRemux  [1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901547.jpg" />
-</div>
-
-
-###  Подробнее
-
-На планете Бааб, в самом центре Вселенной, два брата делают всё возможное, чтобы защитить свою галактику. Они — полные противоположности. Если девиз Гарри — «сначала подумай, потом сделай», то отважный Скорч живет по закону «сила есть — ума не надо», что не мешает им слаженно работать. Но однажды они получают сигнал S.O.S. с опасной планеты…под названием Земля. Скорч, (   Читать дальше...   )Производство: США, КанадаЖанр: Анимация, Фантастика, Комедия, ПриключенияРежиссер: Кэллан БрукнерАктеры: Брендан Фрейзер, Роб Кордри, Рики Джервэйс, Джонатан Морган Хейт, Джессика Альба, София Вергара, Пол Шеер, Джейсон Симпсон, Сара Джессика Паркер, Даг АбрахамсПеревод: ДублированныйЯзык субтитров: НетПродолжительность: 01:29:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E638B14152818C79D4A9A6BD18AA8C7A8FA4A79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1492658   (902058) от 30.08.2021
 
 Angry Birds 2 в кино / The Angry Birds Movie 2 (2019) BDRip [H.264/1080p-LQ]
@@ -42,6 +18,8 @@ Angry Birds 2 в кино / The Angry Birds Movie 2 (2019) BDRip [H.264/1080p-LQ
 ```bash
 magnet:?xt=urn:btih:D672EDE4661FDD4740446888ACF5FFF1327196E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -66,6 +44,8 @@ magnet:?xt=urn:btih:D672EDE4661FDD4740446888ACF5FFF1327196E2
 ```bash
 magnet:?xt=urn:btih:00B4240155C8BC6CC164FAF8166AF3F90C2B18B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +73,8 @@ magnet:?xt=urn:btih:00B4240155C8BC6CC164FAF8166AF3F90C2B18B9
 magnet:?xt=urn:btih:6D9A8FC11E6165A15D5D35E94489D4284D1A805D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +100,8 @@ magnet:?xt=urn:btih:6D9A8FC11E6165A15D5D35E94489D4284D1A805D
 magnet:?xt=urn:btih:AFC19279111A14A11BD2D47E8E6A41F969CF7BD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +125,8 @@ magnet:?xt=urn:btih:AFC19279111A14A11BD2D47E8E6A41F969CF7BD0
 ```bash
 magnet:?xt=urn:btih:47F19CCB0E754CA32926CF31CE202F3A5D251711
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +153,8 @@ magnet:?xt=urn:btih:47F19CCB0E754CA32926CF31CE202F3A5D251711
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +178,8 @@ Playmobil фильм: Через вселенные / Playmobil: The Movie (2019
 ```bash
 magnet:?xt=urn:btih:B67D586900323A4D3EDB6ABCFCA389DA68BA854C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +205,8 @@ Playmobil фильм: Через вселенные / Playmobil: The Movie (2019
 magnet:?xt=urn:btih:0127026EDD9F09812428DEF83B9D96B542F0DC39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +230,8 @@ magnet:?xt=urn:btih:0127026EDD9F09812428DEF83B9D96B542F0DC39
 ```bash
 magnet:?xt=urn:btih:6CA90C80CC864C0F0B70AF9D8AD82D8C266F176F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +257,8 @@ magnet:?xt=urn:btih:6CA90C80CC864C0F0B70AF9D8AD82D8C266F176F
 magnet:?xt=urn:btih:7473BFE78B1D22A617D89B41E76A65BCA30E5059
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +282,8 @@ magnet:?xt=urn:btih:7473BFE78B1D22A617D89B41E76A65BCA30E5059
 ```bash
 magnet:?xt=urn:btih:679B516194C55FFDD8AE4535DA7FD8EAA20C5AC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +309,8 @@ magnet:?xt=urn:btih:679B516194C55FFDD8AE4535DA7FD8EAA20C5AC7
 magnet:?xt=urn:btih:723B408C8797E635B4E6CD6D8B11A2D6178D26D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +334,8 @@ magnet:?xt=urn:btih:723B408C8797E635B4E6CD6D8B11A2D6178D26D0
 ```bash
 magnet:?xt=urn:btih:4E509D1F350B43B7A78DAA1C12E4CD5E060A1990
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +361,8 @@ magnet:?xt=urn:btih:4E509D1F350B43B7A78DAA1C12E4CD5E060A1990
 magnet:?xt=urn:btih:CDF3539B75AFE6647CC4DB493677C71B227E23D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +386,8 @@ magnet:?xt=urn:btih:CDF3539B75AFE6647CC4DB493677C71B227E23D8
 ```bash
 magnet:?xt=urn:btih:AE228D47643DC37E64860C8FFB7DD312C0C7B8DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +413,8 @@ magnet:?xt=urn:btih:AE228D47643DC37E64860C8FFB7DD312C0C7B8DD
 magnet:?xt=urn:btih:87D535DF06E08AA435F6B6EB47ABFB1742C4AD47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +438,8 @@ magnet:?xt=urn:btih:87D535DF06E08AA435F6B6EB47ABFB1742C4AD47
 ```bash
 magnet:?xt=urn:btih:EEB3351E08FBB82F9CE5EF0D2C4A45907E647332
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +465,8 @@ magnet:?xt=urn:btih:EEB3351E08FBB82F9CE5EF0D2C4A45907E647332
 magnet:?xt=urn:btih:20030C48DE9F9E06F6CBC129DA99B693BC1FEE5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +490,8 @@ magnet:?xt=urn:btih:20030C48DE9F9E06F6CBC129DA99B693BC1FEE5D
 ```bash
 magnet:?xt=urn:btih:363B7DF73898AA567AD61D5C6A5D7AABDB569DEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +517,8 @@ magnet:?xt=urn:btih:363B7DF73898AA567AD61D5C6A5D7AABDB569DEF
 magnet:?xt=urn:btih:7863BBB278DF93813A006BF69B9586771DA080E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +542,8 @@ magnet:?xt=urn:btih:7863BBB278DF93813A006BF69B9586771DA080E0
 ```bash
 magnet:?xt=urn:btih:2028EEBDE1CD79CB952A94777FEB441420BFDBA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +569,8 @@ magnet:?xt=urn:btih:2028EEBDE1CD79CB952A94777FEB441420BFDBA8
 magnet:?xt=urn:btih:3BC8C7D35B57E560BFFB4FCC909BFF5D3DB93CBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +594,8 @@ magnet:?xt=urn:btih:3BC8C7D35B57E560BFFB4FCC909BFF5D3DB93CBC
 ```bash
 magnet:?xt=urn:btih:B7AAD03A20FDB967F5370C9FAD0D2D18E9B52D2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +621,8 @@ magnet:?xt=urn:btih:B7AAD03A20FDB967F5370C9FAD0D2D18E9B52D2D
 magnet:?xt=urn:btih:A316EAB2C6613BDC2BEB47EAB1E34E0DF276B2DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +646,34 @@ magnet:?xt=urn:btih:A316EAB2C6613BDC2BEB47EAB1E34E0DF276B2DD
 ```bash
 magnet:?xt=urn:btih:2334E5CE4C931CB8BA5176D6E49DC1A88554D8E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491365   (912094) от 24.08.2021
+
+Спирит Непокорный / Spirit Untamed (2021) BDRemux [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лаки Прескотт — юная бунтарка, совсем как ее мама, легендарная бесстрашная наездница, которую дочь почти не помнит. После очередной шалости заботливая тетушка Кора, вырастившая девочку, отправляет ее жить к отцу. Теперь все, о чем мечтает Лаки — вырваться на волю из крошечного сонного городка. Все меняется, когда она знакомится со Спиритом — диким мустангом, таким (   Читать дальше...   )Производство: США / DreamWorks Animation, Walden MediaЖанр: Мультфильм, приключения, семейный, вестернРежиссер: Илэйн Боган, Эннио ТорресанАктеры: Изабела Мерсед, Джулианна Мур, Джейк Джилленхол, Марсаи Мартин, Маккенна Грейс, Уолтон Гоггинс, Гари А. Хэккер, Эйса Гонсалес, Андре Брауэр, Люсиан ПересПеревод: Дублированный (Пифагор)Субтитры: Русские (Full), Aнглийские (Full, SDH)Продолжительность: 01:27:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E947C3A29402DE1D0BB15733315E59ECD60A7932
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

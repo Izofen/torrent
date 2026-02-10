@@ -19,6 +19,8 @@ MailRaider Pro - небольшая  утилита, которая поможе
 magnet:?xt=urn:btih:D25FA94CB322D65E9D85C40986CBC14C6F76640E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Carbon Copy Cloner - утилита для клонирования дисков
 magnet:?xt=urn:btih:9316DD9220CC9CB9BEFB790345B1F929D44237A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Screenshot Editor (Редактор скриншотов) поможет вам 
 ```bash
 magnet:?xt=urn:btih:38EA4DFF941F72544877422D30F8792F775F3352
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ CD1:
 magnet:?xt=urn:btih:69EA2EC7ADC5C272AAC279AB9F1383F781B29EFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Path Finder - один из лучших файловых менеджеров, 
 ```bash
 magnet:?xt=urn:btih:B125B478B5DC14AEAAF3CF85FD867316B2163A34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ GraphicConverter 11 — полнофункциональный графичес�
 magnet:?xt=urn:btih:AAC31F3F23A9E84A37A901A509ECB8DC951A80F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ YouTube By Click - отличный и удобный в использован�
 ```bash
 magnet:?xt=urn:btih:3059DB0CE18C5501387250FC8B2163C9A78C04A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ BusyCal - программа на Mac OS X, которая поможет вам
 magnet:?xt=urn:btih:0F136ED9422D02E8F830DB2445724E05DB1ED6AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ PDFManagerUltimate - решение "Все в одном" по работе с 
 ```bash
 magnet:?xt=urn:btih:39BE36A49F8212E0FCB2A14C43BE5AABF2B2E4C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ RSS Menu 2.7.3 [En]
 magnet:?xt=urn:btih:45283D683F0825483C3B29612F824BE68E80083E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ Keep It 1.7.5 [Multi]
 magnet:?xt=urn:btih:23E32418E50BADBDEF48E48CCB3A107468B824A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ Screenpresso - это лёгкая программа, делающая вели
 ```bash
 magnet:?xt=urn:btih:6C5DD5DAA13E9D107B30121C23047060A8527542
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ Script Debugger предлагает пользователям всё, что �
 magnet:?xt=urn:btih:36AC90EDA6DF106BAEABA78CD5F6584FA0F85BCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ BusyContacts приносит в управление контактами те 
 ```bash
 magnet:?xt=urn:btih:38765E5C6F81189A99EC5453016EFADBB496114F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +397,8 @@ goPanel - наиболее интуитивное приложение для у
 magnet:?xt=urn:btih:38DBADE2821063E6BB04CA6F763B7995B5957F4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ Anthony Wonsey Trio - Anthonyology (1995) [FLAC|Lossless|tracks + .cue] <Hard Bo
 magnet:?xt=urn:btih:CED66909FD9CBAE2744B4010981B1503C185D5CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ Amadeus Pro - многотрековый музыкальный редактор
 ```bash
 magnet:?xt=urn:btih:8848A5D187878025824C090598CF1CFF9AAC2F94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +478,8 @@ ExactScan – современное решение для сканирован�
 magnet:?xt=urn:btih:16155ED448B78075AD89DF9584AFC9A858644727
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ magnet:?xt=urn:btih:16155ED448B78075AD89DF9584AFC9A858644727
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:16155ED448B78075AD89DF9584AFC9A858644727
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ magnet:?xt=urn:btih:16155ED448B78075AD89DF9584AFC9A858644727
 ```bash
 magnet:?xt=urn:btih:DD2593745D36279C51B214FBD5FDAB422D3C9959
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +582,8 @@ magnet:?xt=urn:btih:DD2593745D36279C51B214FBD5FDAB422D3C9959
 magnet:?xt=urn:btih:9410CCDD5D1F1D7448B072AC857567CBC6F357D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ magnet:?xt=urn:btih:9410CCDD5D1F1D7448B072AC857567CBC6F357D6
 ```bash
 magnet:?xt=urn:btih:C0CB59953A2BA1CFD5FF47091063552FC16D1ECF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +637,8 @@ magnet:?xt=urn:btih:C0CB59953A2BA1CFD5FF47091063552FC16D1ECF
 magnet:?xt=urn:btih:317E23A23E2A91A857DBC832954EDBC3BDE07A81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +663,8 @@ magnet:?xt=urn:btih:317E23A23E2A91A857DBC832954EDBC3BDE07A81
 magnet:?xt=urn:btih:AFFE21E93EC802321A50FC5D7ECA19DDB8AC3D86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ magnet:?xt=urn:btih:AFFE21E93EC802321A50FC5D7ECA19DDB8AC3D86
 ```bash
 magnet:?xt=urn:btih:CE5B9EB7AA721AA776F297FA78EA0928233777CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

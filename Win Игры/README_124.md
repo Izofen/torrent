@@ -19,6 +19,8 @@ Necroking - это пошаговая тактическая ролевая ад
 magnet:?xt=urn:btih:7007572382C3D5FA120D22DBD57AE1D9E0EE4B0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Welcome to ParadiZe - это увлекательная изометрическ
 ```bash
 magnet:?xt=urn:btih:AB38E86AE3D1FA7D0A764FB4297CCBC93438717D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ MXGP 24: The Official Game (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl [Fox Holes
 magnet:?xt=urn:btih:9A19E6AB2982B8542FF3935AE161E416A0513450
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.06) Repack 
 ```bash
 magnet:?xt=urn:btih:5C198D2E02CDCADE02E0C8D1F2685D9114A4DFAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Party Hard 2 (2018) [Ru/Multi] (1.1.004r) License GOG
 magnet:?xt=urn:btih:BB77CBF6EFA1E4B0C8E24BB357D6894CD8B1F898
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:BB77CBF6EFA1E4B0C8E24BB357D6894CD8B1F898
 ```bash
 magnet:?xt=urn:btih:13E623634764FDC0BE0B1837001D8BBD7B2D3FDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Orange Season (2017) [Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:B956BA64D3734D4E3696AC188565F461D8AA62DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Puppet House - это приключенческая хоррор-игра с э
 ```bash
 magnet:?xt=urn:btih:3DFBA8A0DED907964918AB32B12E18DAEC9B5E70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Puppet House - это приключенческая хоррор-игра с э
 magnet:?xt=urn:btih:11F4020E261A78E8F6CDA5DF8B8968F05B58E043
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ igaBash - приключенческая игра про огромных мон
 ```bash
 magnet:?xt=urn:btih:C261EB788EB8325566CFB2B6B073EF99C5ECCD49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Long Drive – приключенческий гоночный симуля�
 magnet:?xt=urn:btih:ECF052264A682EBFC0D3F3ED2F4BA9702D663EF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:ECF052264A682EBFC0D3F3ED2F4BA9702D663EF6
 ```bash
 magnet:?xt=urn:btih:ED2AB3B67DB79B37DA1DC0244D951FF386FE6B4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Expeditions: Rome (2022) [Ru/Multi] (1.6.0.741.23995/dlc) Repack FitGirl
 magnet:?xt=urn:btih:08FC845AF7E430ED636C64798C803FE04B52453C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Cюрреалистическая бизнес-интерактивная вид
 ```bash
 magnet:?xt=urn:btih:7557047143A2AD785C79044B0D599C5D7929AEA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Wayfinder (2023) [Multi] (1.0/dlc) Repack seleZen
 magnet:?xt=urn:btih:2B6FD7B04EE1E5E20DC85FA73C777CC78D97BE16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ A pet shop after dark скрещивает два жанра. Это гибри�
 ```bash
 magnet:?xt=urn:btih:CC414B1BE4BA7DF6FCB915F15D7679AAFC2B8540
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Sky Oceans: Wings for Hire переосмысливает классическу
 magnet:?xt=urn:btih:CE140D0F70E7612B6639D451DCD59F411B62CE00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Warhammer 40,000: Inquisitor - Martyr (2018) [Ru/Multi] (2.9.4d/dlc) Repack Let'
 ```bash
 magnet:?xt=urn:btih:34E9C5433E4DD4276607894BD8EF5D6DDB6D665A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Homeworld 3 (2024) [Ru/Multi] (1.3-CL364034/dlc) Repack FitGirl
 magnet:?xt=urn:btih:651AE0FB2F6E8B008D9095B1B7809FCEEB613E81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ IL-2 Sturmovik: Cliffs of Dover / Ил-2 Штурмовик: Битва за Б�
 ```bash
 magnet:?xt=urn:btih:AB0DA4268B6FB1C0C5A552E4E7840C955CE1262A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ The Talos Principle 2 (2023) [Ru/Multi] (2.2.0 696260/dlc) Repack Let'sРlay [De
 magnet:?xt=urn:btih:CEEA9FED7274E408DCE515A0E4A026C069A84304
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ MXGP 24: The Official Game (2024) [Ru/Multi] (1.0/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:51747F36FD4F5CFA9BF57C8C08B494F4479F0036
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Satisfactory - это игра от первого лица в открытом 
 magnet:?xt=urn:btih:9441642DCDADFD8D386C69CBB346D9D07C7D61D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Marvel’s Guardians of the Galaxy: The Telltale Series (2017) [Ru/Multi] (1.0.1
 ```bash
 magnet:?xt=urn:btih:A13205782986D20A980BDCB852978CD7F678C350
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ igaBash - приключенческая игра про огромных мон
 magnet:?xt=urn:btih:F257CCD6901B00140A4E6751993616054E5B72DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Luma Island (2024) [Ru/Multi] (1.19219) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:2CFD6829D0A124385CB0A41859853A7BA4E9841D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

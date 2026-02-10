@@ -19,6 +19,8 @@ MacCleanse 12 v.12.5 [En]
 magnet:?xt=urn:btih:A8A897A1350BB0EAF8569326800E3AC2D356F261
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Mos 3.4.1 [Multi/Ru]
 magnet:?xt=urn:btih:D934B96DAEEFBC4190511D9F227C81B2E0C4868C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ DMG Canvas создает образы дисков (.dmg). Процедура �
 ```bash
 magnet:?xt=urn:btih:31AB11E3EF7A3C12675D2EC3EC299829A2D12479
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ RAR Extractor может извлекать сжатые файлы во все�
 magnet:?xt=urn:btih:AE780CE7B4EDCFD4AFA721543D46963DA9C1AB93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Mac Mouse Fix - небольшая утилита, которая умеет д�
 ```bash
 magnet:?xt=urn:btih:6B371532E77438952CA8EDB39EF6F8173D5731FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ iPulse 3.1.41 [En]
 magnet:?xt=urn:btih:892200B26319BC67D80822EB8C09CCBB729A42B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ MacClean 3 содержит целый ряд новых функций для �
 magnet:?xt=urn:btih:2A0B483F89C6600F3E29B3CA2ACE38EEB033C28C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Airtool 2 v.2.5.3 [En]
 ```bash
 magnet:?xt=urn:btih:DBC337C4121E0507EFB4497F062D4298751CF812
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ EtreCheck Pro 6.8.3 U2B [En]
 magnet:?xt=urn:btih:6A96580047B38D4D7D1A81486FB20CC9B69B234D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ PhoneClean - удобная утилита для очистки памяти о
 ```bash
 magnet:?xt=urn:btih:8CF7D0964915CEE82B7C54DEFA59FC612FC80E78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Unzip Expert — портативный инструмент управлени�
 magnet:?xt=urn:btih:F4D7815D280718534578500D8E27875CE5896306
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ PreviewMarkdown 1.4.6 [En]
 magnet:?xt=urn:btih:A69B47BA589CAB82B73E0CF34C153901322F02B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ BetterTouchTool удобное приложение, которое позвол
 ```bash
 magnet:?xt=urn:btih:1FE1C0F915D33E583C1BDBA3E8C695C63F171825
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ Viwizard Audio Converter - это полнофункциональный инс�
 magnet:?xt=urn:btih:8895AF289C003F554F334ED1B3E246EB6612384E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Caato Time Tracker использует трехуровневую иерарх�
 ```bash
 magnet:?xt=urn:btih:0CD1D8DE5C39BF31C90DF38583F1598BA3C2DBD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ DRmare Audio Converter for Mac 2.7.1 [Multi]
 magnet:?xt=urn:btih:3CBEFAA626B62934D7627D09BD26031CEE60D689
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Rest&Move — это приложение-напоминание о переры
 ```bash
 magnet:?xt=urn:btih:9BFCDF5A83D33C7182347E333E29F8361E1F01D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ AudFree Auditior 2.7.1 [Multi]
 magnet:?xt=urn:btih:525C12EC91381CE1499312ABDE376D95618CEEA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ JetBrains DataGrip – новейшее программное обеспече�
 ```bash
 magnet:?xt=urn:btih:A4DC8B0C9707BBC8324FA470526E4AD235A6EED4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ iMedia Cutter 5.6.7 [En]
 magnet:?xt=urn:btih:EEB24B9F7B97C4D86534A2FB382959858E3DCD4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Cisdem DVD Burner предлагает простое и элегантное р
 ```bash
 magnet:?xt=urn:btih:6C8E7A84D00B16D85E0B4D5F64817A9450B1E379
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ MacBook (   Читать дальше...   )Тип издания: macOS X Soft
 magnet:?xt=urn:btih:0EBEBF2FE822216D58F474D8A14F0060D7A84BA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:0EBEBF2FE822216D58F474D8A14F0060D7A84BA7
 ```bash
 magnet:?xt=urn:btih:AA9856620F2AA184CB1B631A57792625E706D138
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ TunesKit iPhone Unlocker предназначен для того, чтобы и
 magnet:?xt=urn:btih:2FECA69EAA2A9780BF4E3F1BFE385F5F0262BA5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ Adobe Animate, пришедший на смену Flash Professional - это м
 magnet:?xt=urn:btih:FEE0BA3B597D02594350C9415BD655CA546E45BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ TunesKit iOS System Recovery для Mac, специальный инструме
 ```bash
 magnet:?xt=urn:btih:FC7440C72AF0951B003DC13CA0963E2CDDA77C85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

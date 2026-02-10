@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:CC49CA2413FC43B4C427B3BF0063F0BE6AE3146B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ RTG. Путешествие на Соловецкие острова (2012) HDTV
 ```bash
 magnet:?xt=urn:btih:7093C03F2E54924F2BF211241167BADAC4E11B9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:7093C03F2E54924F2BF211241167BADAC4E11B9F
 magnet:?xt=urn:btih:48052AF9DCF8DC0DBF1295E872C3306A497BBAE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ RTG. Мансарды Петербурга (2013) HDTV [H.264/1080i]
 ```bash
 magnet:?xt=urn:btih:9960F326749F23CCB90BC8DE9E5FD0692287D35F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ RTG. Малые музеи Петербурга. Микроминиатюра (2
 magnet:?xt=urn:btih:F544D9E50FEDC617A8BC1322DA28BB7A01E5E670
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ RTG. Малые музеи Петербурга. История трамвая (
 magnet:?xt=urn:btih:8B710D5BD441FAE8ACF787F753F230727A03D061
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ RTG. Сад-гигант (2013) HDTV [H.264/1080i]
 ```bash
 magnet:?xt=urn:btih:3602E511FF61CACE3C15EB0327CA99527FE8E19C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:3602E511FF61CACE3C15EB0327CA99527FE8E19C
 magnet:?xt=urn:btih:53493DD17B5E3E3C61FC8B4C75C328D94F5A6622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ RTG. Экстремальный водный туризм на Северном 
 ```bash
 magnet:?xt=urn:btih:8F750D6773591D0AAA10938A377E5F5554ADFD3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ RTG. Малые музеи Петербурга. Искусство веера (
 magnet:?xt=urn:btih:45E37F6B79D8DBA3E1D35A10FAFB9221DF155D5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ RTG. Отель «Эрмитаж» (2014) HDTV [H.264/1080i]
 ```bash
 magnet:?xt=urn:btih:EDB29C29796AB5F4B8F09FF9FA93DDC9ABAA6534
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:EDB29C29796AB5F4B8F09FF9FA93DDC9ABAA6534
 magnet:?xt=urn:btih:3DB88BAADE5014B2ECB5584F314A0AD5586C2E5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:3DB88BAADE5014B2ECB5584F314A0AD5586C2E5C
 ```bash
 magnet:?xt=urn:btih:BBBFA98652C72EF84DD1ED6D5FE8ABB0C1E41064
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ RTG. Остров Пякяха (2016) HDTV [H.264/1080i]
 magnet:?xt=urn:btih:080401C3A7C9FA2E080EB7C902D7376B2FBA55F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ RTG. Мраморный карьер Рускеала (2013) HDTV [H.264/1080i]
 ```bash
 magnet:?xt=urn:btih:10EB9DBE305CF5AA0EA135C4067959D02AD3434B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:10EB9DBE305CF5AA0EA135C4067959D02AD3434B
 magnet:?xt=urn:btih:66C3F9F3C25B8EFF2EC84043AB66DBFA4F5C397A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:66C3F9F3C25B8EFF2EC84043AB66DBFA4F5C397A
 ```bash
 magnet:?xt=urn:btih:3DAF9530BB2316D6D94600A50DF475CB7D6B9A3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:3DAF9530BB2316D6D94600A50DF475CB7D6B9A3F
 magnet:?xt=urn:btih:1D2634EFD90AB1294A86619C9B4BD91F9B4A46DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:1D2634EFD90AB1294A86619C9B4BD91F9B4A46DA
 ```bash
 magnet:?xt=urn:btih:6585B0E65C777260AA6CB85F16A0751B155A2D7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ RTG. Рыбалка на Ейской косе (2011) HDTV [H.264/1080p]
 magnet:?xt=urn:btih:3E50D93DFD93624E056AADD41D802A6A9C56D1E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ RTG. Малые музеи Петербурга. Игровые автоматы
 ```bash
 magnet:?xt=urn:btih:2C21361C732168F34001513E20FC6C76204CC934
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ magnet:?xt=urn:btih:2C21361C732168F34001513E20FC6C76204CC934
 magnet:?xt=urn:btih:D6861BB78DFCCF3D5E3B55660AE1DED6EE963EED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ magnet:?xt=urn:btih:D6861BB78DFCCF3D5E3B55660AE1DED6EE963EED
 ```bash
 magnet:?xt=urn:btih:79A8504B57B0AA0AF3BAFE6DF42C5A291198751D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ RTG. Приокско-террасный заповедник (2014) HDTV [H.264
 magnet:?xt=urn:btih:7900E4A34B55F275208028E4EEBF7399017C69D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ magnet:?xt=urn:btih:7900E4A34B55F275208028E4EEBF7399017C69D2
 magnet:?xt=urn:btih:D24457ECA75417C275ED905321500037C4FBE8FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ magnet:?xt=urn:btih:D24457ECA75417C275ED905321500037C4FBE8FF
 ```bash
 magnet:?xt=urn:btih:22F20A5DB04BD4B6007BB4BD5DEA3D2860D4C92C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

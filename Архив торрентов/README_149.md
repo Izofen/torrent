@@ -19,6 +19,8 @@ Movavi Video Editor - универсальный инструмент для р�
 magnet:?xt=urn:btih:578F5C7ADC30D6C4C504DE842832215CF87B6178
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:578F5C7ADC30D6C4C504DE842832215CF87B6178
 ```bash
 magnet:?xt=urn:btih:ED85BF41BF6A326A14F62858DD2E148CA342C4A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Disk Drill - простая и эффективная программа для 
 magnet:?xt=urn:btih:58F6AA5681B15B3E8F23163930C45E7D69BC2212
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ AnyDesk 9.0.1 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B8329969F21DCDF987407F3E2B20819F0C7C08C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Magic Eraser - это революционное приложение для р�
 magnet:?xt=urn:btih:EF3E96CFAD6340B7645129CF4214D759A181ABF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ XYplorer – удобный многовкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:37C086447FDDBF58A9D08423694A954DCDD214DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Pro Pool 2025 v1.59 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:6DDEDD5968DECFAA2655707C777E5FCF08C2F733
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Beyond Compare — мощнейшая программа для сравнени
 ```bash
 magnet:?xt=urn:btih:7BFBCAB92908CDB533FC29D42DDC6D7C104C212F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Imagine - это бесплатный просмотрщик изображен�
 magnet:?xt=urn:btih:F281C19482ECF015B84D600FEFCAC8AED2253D98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:F281C19482ECF015B84D600FEFCAC8AED2253D98
 ```bash
 magnet:?xt=urn:btih:7149B4E57542BDCE79FAC6E997085D3EA3D9E6D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ MobaXterm - это комплекс утилит, в котором есть в�
 magnet:?xt=urn:btih:3CCAB004CFF351DAD3592FD075ED5CB9F3021508
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ FileMenu Tools настраивает пункты контекстного ме
 ```bash
 magnet:?xt=urn:btih:CDD1A57D83AA628406A2E74EF34BDE01483835F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Any Video Downloader Pro - это приложение для Windows, кото�
 magnet:?xt=urn:btih:96F37636BC402CB355E770FF57A38C9046419ED7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:5B3FB95ED3F888D4963CD3109A0EAF5DE38A5AE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ NVIDIA GeForce Driver — драйвера для видеокарт произ�
 magnet:?xt=urn:btih:3657560ECC74DC4B7FF995C057CDDE705073F6B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ KMS Tools — сборник программ от Ratiborus в одной об�
 ```bash
 magnet:?xt=urn:btih:F28FEF06FB9BC301CDD80C8C6EEF02D1B3EE7DC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ CyberLink PowerDVD - один из самых мощных на данный м�
 magnet:?xt=urn:btih:CE016C9674C7BCA9D850FC94827F9DF5517A8B71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ magnet:?xt=urn:btih:CE016C9674C7BCA9D850FC94827F9DF5517A8B71
 ```bash
 magnet:?xt=urn:btih:BC5B293C40B61637F72950C846C80324830C6FB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Cher - Christmas (2023) Deluxe Edition, 2024, Warner Records [FLAC 24/44.1|Lossl
 magnet:?xt=urn:btih:B46C234AAD1FD31EE6FA2467EC4F63B0E81B06FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Any Video Downloader Pro - это приложение для Windows, кото�
 ```bash
 magnet:?xt=urn:btih:7F6F2D4614C9D530C402D0B0084405DAE6E94D82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ FreeFileSync - это утилита, которая была разработа
 magnet:?xt=urn:btih:AF243B5BD576A6E9E065642638DF5CAB11398146
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ CCleaner - один из самых известных и популярных �
 ```bash
 magnet:?xt=urn:btih:1FC1AC6353079704510B8273A36A8D313008E32B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Media Player Classic - BE – универсальный проигрывате�
 magnet:?xt=urn:btih:6500DAA687DEDFCF9B8FD85A4819ED0CC5009198
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ OBS Студия - бесплатное программное обеспече�
 magnet:?xt=urn:btih:6C89EC63BF7C54D3D77054BBDA23AF2BB7ABF12B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Display Driver Uninstaller это утилита удаления драйвер
 magnet:?xt=urn:btih:025AB7F7BBA3DB6937EC17070D1B457AAACD23B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:EFF0B508C8701E0933670F2D4BF3ACE71FCDA72A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

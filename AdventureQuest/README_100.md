@@ -1,27 +1,3 @@
-###  Публикация: 1108290   (863797) от 24.02.2017
-
-Herald: An Interactive Period Drama - Book I & II (2017) [En] (1.0.2) License HI2U
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Herald: An Interactive Period Drama – приключение в альтернативном варианте XIX столетия, где Запад объединился в колониальную суперсилу – Протекторат. Главным героем повествования выступает Деван Ренсбург, стюард на борту корабля Геральд. Его работа – поддерживать мир между командой и пассажирами, решая все возникающие недопонимания. Выполняя свое дело, парень случайно (   Читать дальше...   )Тип издания: LicenseРазработчик: WispfireЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3F95C0926C3FE8DB2D20B2D310634E0C04BEF33
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375505   (865168) от 14.04.2020
 
 Barrow Hill: The Dark Path (2016) [Multi] (bh2-gog1) License GOG
@@ -42,6 +18,8 @@ Barrow Hill: The Dark Path (2016) [Multi] (bh2-gog1) License GOG
 ```bash
 magnet:?xt=urn:btih:012F9E80787BAB1B80290AB16DDD71CD9F3595E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Barrow Hill: Curse of the Ancient Circle (2006) [Multi] (bh1-gog2) License GOG
 magnet:?xt=urn:btih:B4ADC57B1643CCEDE3F1DC1B1700DFB9E40DEE6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Don't Starve (2013) [Ru/En] (1.168028/dlc) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:6B6CCF69AA1FBFB6E29C2FB42658BF2FB6321FAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Don't Forget Me (2021) [Ru/Multi] (1.1.3) License GOG [Deluxe Edition]
 magnet:?xt=urn:btih:1A2D54D805B6CB1F78437F5ECE845BD2E4B9AD70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Those Who Remain (2020) [Ru/Multi] (1.0191) License GOG
 ```bash
 magnet:?xt=urn:btih:089D4B9E143E8E6802F16C700E244C387DDD3CD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Call of Cthulhu (2018) [Ru/Multi] (4.15.2) License GOG
 magnet:?xt=urn:btih:8423517A5DEDF9DEBDDA6A70846C863CC4330E18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Mask of Mists (2020) [Ru/Multi] (1.0.4) Repack Other s
 ```bash
 magnet:?xt=urn:btih:9A46AB9483AC6EB70A4B3DBF84F98CF68BEF8F63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Wanderlust: Transsiberian - это приключенческая игра, в �
 magnet:?xt=urn:btih:7C2A8F53F4072BE3667580A7450DCABB4615408C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ In Other Waters (2020) [En] (1.0.2) License GOG (обновляемая)
 ```bash
 magnet:?xt=urn:btih:59E95A60E5828E09D97BC0D163E50A9ECF79C205
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ Shelter 2: Mountains – DLC, в котором вам предстоит пер
 magnet:?xt=urn:btih:E85CD0BC2A44D0C4DA7C21514E4936981B13EA73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ White Night перенесет игроков в Бостон образца 30-
 ```bash
 magnet:?xt=urn:btih:BF24793AD98675523ACAF767EC1DAE0D44AEAF85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ GRIS (2018) [Ru/Multi] (1.0/upd3) Repack Other s
 magnet:?xt=urn:btih:8FD42B667C6D8E1F62795788E66CE8DEA7C7DEFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ Little Nightmares II (2021) [Ru/Multi] (1160/dlc) License GOG [Echanced Edition]
 ```bash
 magnet:?xt=urn:btih:F81D9AEF2883ACAE98E5A83907CB611685E7DCBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ The Wardrobe - весьма занятный квест от студии C.I.N.
 magnet:?xt=urn:btih:9199B363061C13F5BEA437086328284EBD340447
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ The Colonel's Bequest (1989) [En] (1.000.046) License GOG
 ```bash
 magnet:?xt=urn:btih:15DB74000D571D910D5E950267307DC9251E79FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ The Dagger of Amon Ra (1992) [En] (1.1) License GOG
 magnet:?xt=urn:btih:61AAA8874BBA07247BA3512E768C5BAB500AF686
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ Drizzlepath: Glass (2017) [Ru/Multi] (1.0.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:72469F599D2F01E2EB8CACD48E7DCC115A2119A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ The Book of Unwritten Tales 2 (2015) [Multi] (4.6.1.182341/dlc) License GOG [Alm
 magnet:?xt=urn:btih:C518E28A53036C3A2083B548AD6EFBA29867C546
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ Dear Esther: Landmark Edition - улучшенная версии популяр
 ```bash
 magnet:?xt=urn:btih:BC20C9DF4DDB6EE9707829A533B8BACFADFFF706
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +514,8 @@ Dear Esther — это удивительный мир Внешних Гебри
 magnet:?xt=urn:btih:31E8CB3B244746577FDE8E94A77BBAF42894736B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +539,8 @@ Mosaic (2019) [Ru/Multi] (1.1.9.122/dlc) License GOG [1% Edition]
 ```bash
 magnet:?xt=urn:btih:2B54ECC98E6863D41FBE4D9DE25EAEAA1DD3F1F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +566,8 @@ Dreamfall Chapters — это сюжетно-ориентированная эп
 magnet:?xt=urn:btih:731099B06D2091F78A476A3614512AC839DDFB0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +591,8 @@ The Old City: Leviathan (2014) [Ru/En] (28.02.2016) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:A08513002410458919B6425968F06A877DE1558F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +618,8 @@ Red Comrades Save the Galaxy: Reloaded / Петька и Василий Иван
 magnet:?xt=urn:btih:103D93351D650A6BBA27F43B40BD1C2AB549151A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +643,34 @@ Leisure Suit Larry: Reloaded (2013) [Ru/Multi] (2.1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:4A24BD408EC347E4A94987D665F766E07A1C9CC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103923   (882910) от 13.02.2017
+
+Last Will (2016) [En] (1.0) License HI2U [Episode 1-4]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Last Will - это приключенческая игра в рандомно-генерируемом мире, где игроки выступают в роли людей, пытающихся попасть в центр древнего особняка, путь к которому закрыт старым и параноидальным профессором, который боится, что его секреты будут украдены. Ваш абсолютно безумный и таинственный Дед мертв. И его последняя воля, предать все свое состояние и поместье (   Читать дальше...   )Тип издания: LicenseРазработчик: Lizard FactoryЖанр: AdventureЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B467448B324352D36B8E42929A8B9B235A607A37
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

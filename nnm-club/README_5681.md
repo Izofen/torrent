@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:109222855F75F9FF776BACD3CF95F7B6506D38E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ LKDR and Aria - Maria Magdalena (2023) [FLAC|Lossless|WEB-DL|tracks] <Deep House
 ```bash
 magnet:?xt=urn:btih:0A9892682412590A59A7B4F224ACC29C002D74EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ The 9th Creation - Bubble Gum (1975) 2002, P-Vine Records [FLAC|Lossless|tracks 
 magnet:?xt=urn:btih:3A683F7C6539057E0B9ED097523AD31DBB1CCACB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:3A683F7C6539057E0B9ED097523AD31DBB1CCACB
 ```bash
 magnet:?xt=urn:btih:CCCD36E6A6C6A914A46D8957430D26827E388086
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Joe Pass & Tommy Gumina - Sentimental Moods (1990) Alfa Jazz [FLAC|Lossless|trac
 magnet:?xt=urn:btih:E8EC64D36D8CDE8D3BFB62979526A2AB0DF9456A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Joe Pass & Tommy Gumina Trio - Autumn Leaves (1989) 1991, Alfa Jazz [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:8EFD053278F3618C3A6559FBF7581ADEF77A4B6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ DISC 03(   Читать дальше...   )Жанр: Trip Hop, Abstract Hip-Hop�
 magnet:?xt=urn:btih:F446DEB22A96752B7B8425F053246059B6BDA043
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:F446DEB22A96752B7B8425F053246059B6BDA043
 ```bash
 magnet:?xt=urn:btih:57A129FE5F6D7C57AEBC9CF44FA1716F0E100B24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ VA - Musical Landscape: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:966F58FC31767BB967023E21584A4F41E1CAED11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:966F58FC31767BB967023E21584A4F41E1CAED11
 ```bash
 magnet:?xt=urn:btih:A9ACF309488381ED3A0A8616E6A82496DC41252F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:A9ACF309488381ED3A0A8616E6A82496DC41252F
 magnet:?xt=urn:btih:F2A39AF53139F0CA85E33A71E067FDAF2E186833
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ magnet:?xt=urn:btih:F2A39AF53139F0CA85E33A71E067FDAF2E186833
 magnet:?xt=urn:btih:B872580B145FD32FE5FCF980FE42374D0A9E35D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:B872580B145FD32FE5FCF980FE42374D0A9E35D5
 ```bash
 magnet:?xt=urn:btih:C308A5CCC0239667783F4E826C768C159D2408C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ Black Sabbath - Reunion (1998) 25th Anniversary Expanded Edition, 2023, Epic [FL
 magnet:?xt=urn:btih:357D79819C7C6A9C23A0092302C366720AC4D00A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:C53D8A8A59124356284827991FC104748284F817
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ Kanga - Under Glass (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Industrial, 
 magnet:?xt=urn:btih:EA94C9C9A5B2C309B3B82BD91B00B63BD447D929
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +460,8 @@ Meduza - Meduza (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Dance>
 magnet:?xt=urn:btih:831F2BCA2BF031430A6EE50C5DC27976C4B9C26D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ FontCreator - Редактор шрифтов FontCreator может созда�
 ```bash
 magnet:?xt=urn:btih:BF77DE90A632298952C9B0DEB76F13EB3CD8855E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ VA - Black Hole Trance Music 10-23 (2023) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:A58DE08643E2AEE80E0BC7AE0D9D819B40FA562F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +543,8 @@ DISC 03(   Читать дальше...   )Жанр: Trip Hop, Abstract Hip-Hop�
 ```bash
 magnet:?xt=urn:btih:D0CA161F9C6D6FDED235DE84B39281F2D5CAE224
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +573,8 @@ The Dear Hunter - Migrant Returned (2013) Remaster, 2023, Equal Vision Records [
 magnet:?xt=urn:btih:47A11EB5130BE52FFEB40FCE60E8F000314F936D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +601,8 @@ magnet:?xt=urn:btih:47A11EB5130BE52FFEB40FCE60E8F000314F936D
 ```bash
 magnet:?xt=urn:btih:629A0929F61D6E7E997A0B49C18EA325B207C365
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +631,8 @@ U.F.O. - Lights Out In Babenhausen - Live 1993 (2023) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:4D52CD2E23D1C5C82BF39E978D67B6D0CF457575
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +658,8 @@ iTubeGo YouTube Downloader Pro for Mac 7.1.0 [Multi]
 magnet:?xt=urn:btih:9442850BF88BC406B661E5ECEFDAA5510725E9F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +683,8 @@ magnet:?xt=urn:btih:9442850BF88BC406B661E5ECEFDAA5510725E9F9
 ```bash
 magnet:?xt=urn:btih:AEBD724D30FA4194F1EB4BE5C912475C9DA8584B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -662,6 +712,8 @@ Golden Earring - Cut (1982) Remastered & Expanded, 2023, Red Bullet [FLAC 24/192
 ```bash
 magnet:?xt=urn:btih:2613E07577393947DD90B07A07C6BAEC4F5A879F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

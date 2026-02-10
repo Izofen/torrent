@@ -19,6 +19,8 @@ Shardlight (2016) [En] (3.4) License GOG [Special Edition]
 magnet:?xt=urn:btih:10D9531D2C55AB6848EA20532AD18013D0162583
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Empyrion - Galactic Survival – это приключение с выживан
 ```bash
 magnet:?xt=urn:btih:1ADC7EEDC41D659A148BE634FF394B069D052C3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Labyrinthine - кооперативная хоррор игра, которая 
 magnet:?xt=urn:btih:B7EA77E55286793509C6D884A15234B84B5B12C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Revenge of the Savage Planet - это оптимистичный, сатирич
 ```bash
 magnet:?xt=urn:btih:76861127BB8793843D0610F56FF70CED85813968
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ The Knightling (2025) [Ru/Multi] (1.1.0/dlc) Repack Let'sРlay [Deluxe Edition]
 magnet:?xt=urn:btih:8F4103490720009B42E5DE978797C3EDE49F1056
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Deathless Tales of Old Rus / Бессмертный. Сказки Старой �
 ```bash
 magnet:?xt=urn:btih:F12BFBA9C0256BDEB8312A807761659A9DBE97A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Kaptain Brawe: A Brawe New World – первая часть приключен�
 magnet:?xt=urn:btih:1065C27DD9BBDCC595A898BB49ACA38F7BC6322A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.889.22) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:DA43EA89C635EB03C4D7D02DE09513AD684C4C76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Last Ski Trip (2025) [Ru/Multi] (3.0) Scene Tenoke
 magnet:?xt=urn:btih:62D860C0074E492DFCE1132C2176F954C4B1A25D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Last Ski Trip (2025) [Ru/Multi] (3.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3B01CEB15C6F399E1E7D055109778291D964E94D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Dead Take начинается с поисков пропавшего друга
 magnet:?xt=urn:btih:27EE798543B37EFEA80C5020B395809A186C2EB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ STAY (2018) [Ru/Multi] (1.0.3.9) Repack Other s
 ```bash
 magnet:?xt=urn:btih:649006425821C4E9BFC2C71F77B793FD741B332E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0/dlc) Repack FitGir
 magnet:?xt=urn:btih:9A4CDCA0577A413E87476DA22AB0A9196249DE29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0/dlc) Repack seleZe
 ```bash
 magnet:?xt=urn:btih:1BFEAF8213C5D5413DB33670688972B2C9931B05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Whisker Wanderlust: The Wondrous Journey (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:A533357BED678B0DF74A6526AF5117BFD2A7B257
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Down in Bermuda (2021) [Ru/Multi] (1.6.3) License GOG
 ```bash
 magnet:?xt=urn:btih:E9F06978E5EB82810BA9ABA090941E8AB569F1B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ The Hundred Line: Last Defense Academy (2025) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:948AF9D5037A9847D7FA110A0344A6CE336C537A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ The Drifter (2025) [Multi] (1.0.9) License GOG
 ```bash
 magnet:?xt=urn:btih:F267578602F5EFA2BA5CAEC08E514FC207225C88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Summer Pockets: Reflection Blue начинается с того, что про�
 magnet:?xt=urn:btih:C239001A793E016E279B6922A0B0A3598FACEEE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ BROK The InvestiGator (2022) [Ru/Multi] (1.5.3/dlc) Repack FitGirl [Deluxe Editi
 ```bash
 magnet:?xt=urn:btih:048081641416B2139763294B950120FC57CDA56A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Deliver At All Costs – захватывающий экшен, где разр�
 magnet:?xt=urn:btih:CD8D127B10B224608EAF3F4D18981120E0024CF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Gems of War - логическая головоломка в жанре три �
 ```bash
 magnet:?xt=urn:btih:B37D48FA902EFE91722EEC12B6BDAEF56C2F8357
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Once Upon A Puppet (2025) [Ru/Multi] (2.15.1.0/dlc) Repack Let'sРlay [Backstage
 magnet:?xt=urn:btih:152F51B1A52C50D7FDAA733B88951613FD0C9FF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ A Shelter Full of Cats приглашает геймеров в уютный м�
 ```bash
 magnet:?xt=urn:btih:A0EC8C85ECB84008CA8C9D9EADB7D41E09D70C2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ REPOSE (2025) [Multi] (1.1.0.4) License GOG
 magnet:?xt=urn:btih:06BF490A698334D2A76D548D035A5B23D9A4CB0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Dave the Diver - это казуальная приключенческая RPG 
 ```bash
 magnet:?xt=urn:btih:2834D2D74D2AB3CD8E4B2E1C440851E9F3A37589
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

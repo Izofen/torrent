@@ -1,3 +1,29 @@
+###  Публикация: 939159   (475359) от 21.09.2015
+
+В. А. Кузьмин, Т. М. Тибилова | Как качественно оценить человека. Настольная книга менеджера по персоналу (2010) [FB2]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475359.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если перед вами стоит задача в кратчайшие сроки и с оптимальными затратами качественно оценить претендента на открывшуюся вакансию – эта книга для вас. В ней рассмотрены основные методики и инструменты (технологии поиска, интервьюирования и составления профиля идеального кандидата, методы оценки и т. п.), которые используют в своей работе специалисты по подбору и (   Читать дальше...   )Жанр: Управление, Подбор персоналаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A26E2AA5321D66876574E7A3447485C0E939670
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 938824   (475360) от 21.09.2015
 
 Энн-Валери Олссон, Пол Стребел | Грамотные ходы. Как умные стратегия, психология и управление рисками обеспечивают успех бизнеса (2013) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:A2B142D7D0ADAD68FB95F1FBB1988EC8B51B2A44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:A2B142D7D0ADAD68FB95F1FBB1988EC8B51B2A44
 magnet:?xt=urn:btih:5BB7054AA5C9F88DAE3D8FA5DE31F29ED52EB1F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:5BB7054AA5C9F88DAE3D8FA5DE31F29ED52EB1F1
 ```bash
 magnet:?xt=urn:btih:BFB03AF23EB7D5D443722B03460D7E183E69FCAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:BFB03AF23EB7D5D443722B03460D7E183E69FCAF
 magnet:?xt=urn:btih:BF3B0B542B8E100F77ACD414118161576F2DE943
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:BF3B0B542B8E100F77ACD414118161576F2DE943
 ```bash
 magnet:?xt=urn:btih:935E4F414F2DFEDEB3D86203E7E14B1A8D2D14D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:935E4F414F2DFEDEB3D86203E7E14B1A8D2D14D4
 magnet:?xt=urn:btih:46CA8EE07A253C04B66570DCBD0BE2F7EFA2EA66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:46CA8EE07A253C04B66570DCBD0BE2F7EFA2EA66
 magnet:?xt=urn:btih:27371A2135C3EF829A8060B34E7F09A226D1879F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:27371A2135C3EF829A8060B34E7F09A226D1879F
 ```bash
 magnet:?xt=urn:btih:314BC82FF02F9AC9A9EB67D56915FAB6A71788C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +259,8 @@ magnet:?xt=urn:btih:314BC82FF02F9AC9A9EB67D56915FAB6A71788C9
 magnet:?xt=urn:btih:492B1CCF092CCEFAE2AFA5E287C993AEC91EFF9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +287,8 @@ magnet:?xt=urn:btih:492B1CCF092CCEFAE2AFA5E287C993AEC91EFF9A
 magnet:?xt=urn:btih:4DE46E63DB242623557B2EB76F4CC82B3884E695
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:4DE46E63DB242623557B2EB76F4CC82B3884E695
 ```bash
 magnet:?xt=urn:btih:3ADFBDD76D3DD61256C317ABFBE0E8EC8C35DC3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +339,8 @@ magnet:?xt=urn:btih:3ADFBDD76D3DD61256C317ABFBE0E8EC8C35DC3F
 magnet:?xt=urn:btih:A72B1837331305A9DBC0905A7B961E472FEABC4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:A72B1837331305A9DBC0905A7B961E472FEABC4E
 magnet:?xt=urn:btih:5F4B28E6304C29F450A6FF6641735F0144D5D519
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:5F4B28E6304C29F450A6FF6641735F0144D5D519
 ```bash
 magnet:?xt=urn:btih:174FAC32C68F7A72D5D36CAD74BDBC0BD4C03B0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +419,8 @@ magnet:?xt=urn:btih:174FAC32C68F7A72D5D36CAD74BDBC0BD4C03B0D
 magnet:?xt=urn:btih:4FC487E38A92187763DD38F5F0270BB190DEAF33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +447,8 @@ magnet:?xt=urn:btih:4FC487E38A92187763DD38F5F0270BB190DEAF33
 magnet:?xt=urn:btih:A54B7AE1FF3FE81EB3084FE9C15DA37224560152
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +472,8 @@ magnet:?xt=urn:btih:A54B7AE1FF3FE81EB3084FE9C15DA37224560152
 ```bash
 magnet:?xt=urn:btih:42EE5C8DA458536D8F2BF422EE276C73676A81A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +501,8 @@ magnet:?xt=urn:btih:42EE5C8DA458536D8F2BF422EE276C73676A81A2
 magnet:?xt=urn:btih:C3B8232F025B9420D94ABB089341C9B454D61CED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +529,8 @@ magnet:?xt=urn:btih:C3B8232F025B9420D94ABB089341C9B454D61CED
 magnet:?xt=urn:btih:837CDFE66941AF6C8D0AF64EB64292EE1F161E3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +554,8 @@ magnet:?xt=urn:btih:837CDFE66941AF6C8D0AF64EB64292EE1F161E3D
 ```bash
 magnet:?xt=urn:btih:50B1042D259374CF9E74E9C86FD46DA9149025B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +582,8 @@ magnet:?xt=urn:btih:50B1042D259374CF9E74E9C86FD46DA9149025B2
 magnet:?xt=urn:btih:7FFDB48311323708FCF0B66CE77CFB46A82E219D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +608,8 @@ magnet:?xt=urn:btih:7FFDB48311323708FCF0B66CE77CFB46A82E219D
 magnet:?xt=urn:btih:D823BD19CE7355980FC49CB747A2ECE43C65275B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +633,8 @@ magnet:?xt=urn:btih:D823BD19CE7355980FC49CB747A2ECE43C65275B
 ```bash
 magnet:?xt=urn:btih:29142F6FC9C7C69B1054D81B8CEA4DCA3338BF31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +662,8 @@ magnet:?xt=urn:btih:29142F6FC9C7C69B1054D81B8CEA4DCA3338BF31
 magnet:?xt=urn:btih:3A38C0FA7E766516F161FC91D8E7C036752C02F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,29 +688,7 @@ magnet:?xt=urn:btih:3A38C0FA7E766516F161FC91D8E7C036752C02F4
 magnet:?xt=urn:btih:D76A45DF0DB8796A4F845DE3435CBD566040C77B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160027   (475863) от 24.08.2017
-
-Елена Чекалова | Ешьте! Новая книга о вкусной и здоровой пище. Завтраки, ланчи, перекусы (2014) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475863.jpg" />
-</div>
-
-
-###  Подробнее
-
-Можно ли сочетать вкусное и полезное? Нужно! Нездоровую пищу полезная еда побеждает, только если она приготовлена гораздо интереснее. В этом вы убедитесь, прочитав книгу Елены Чекаловой. По её мнению, пора перестать считать вкусную еду дьявольским соблазном. Бесполезно заставлять свое тело страдать, сытость наступает не от того, что наш желудок наполнен до отказа, (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A0981D7A5F177A507F2312D811EF4513F62E5D7
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

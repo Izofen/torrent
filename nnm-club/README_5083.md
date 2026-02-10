@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:2732916F75EB2F12B18629E763168C7CEF946625
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ MediaInfo - программа для получения подробной те
 magnet:?xt=urn:btih:69AC3934628CB043CB9D4016CC941664568BBECF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:69AC3934628CB043CB9D4016CC941664568BBECF
 ```bash
 magnet:?xt=urn:btih:DDD54082282071DCFC28D96E3D2D5A35AB10F860
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ VA - Hit News Vol. 11 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Ital
 magnet:?xt=urn:btih:61D0FCA0625367605CD0ED2C3C6CE96ADAB629E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ MacPilot 12 v12.0.7 [En]
 magnet:?xt=urn:btih:775BDB261C8037113D27F1513657AA849B11E078
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:775BDB261C8037113D27F1513657AA849B11E078
 magnet:?xt=urn:btih:E35EF1A24B955913115385E5FE63D864311EC771
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:E35EF1A24B955913115385E5FE63D864311EC771
 ```bash
 magnet:?xt=urn:btih:2739FCE0B2ABB1F1E4ECC01001E1E0E9322858B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:2739FCE0B2ABB1F1E4ECC01001E1E0E9322858B2
 magnet:?xt=urn:btih:AD279B41F7F945C79FB17367B4DF3AB90E4D0EEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ Mushishi Zoku Shou / Мастер Муси (ТВ-2) [2014, TV, 11 ep] BDRip Hi10
 ```bash
 magnet:?xt=urn:btih:AEB47D6EAD014AEB0A224E106EC0446F8EBD3D57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:AEB47D6EAD014AEB0A224E106EC0446F8EBD3D57
 magnet:?xt=urn:btih:584FE6C2193F6D388F594892F13B95A2CAEC3152
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:584FE6C2193F6D388F594892F13B95A2CAEC3152
 magnet:?xt=urn:btih:1E47307FCAC8F49BDC2F3656D87530CFDD4ED26E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ MediaHuman Audio Converter 1.9.6.6 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3FCE57AB61F62BF3B0B3F7FBBFCB9A2ABB838F62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:3FCE57AB61F62BF3B0B3F7FBBFCB9A2ABB838F62
 magnet:?xt=urn:btih:A26886160C58C5AB90A13371295BAD46C0841F11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ MediaHuman YouTube to MP3 Converter 3.9.9.87 (1111) RePack (& Portable) by elchu
 ```bash
 magnet:?xt=urn:btih:9272313D47FD7CD30E1DAF9E29819CDD47913968
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +397,8 @@ Stone Raiders - Truth To Power (2012) [FLAC|Lossless|tracks + .cue] <Eclectic Fu
 magnet:?xt=urn:btih:EF710F4A6BDC48C594C1DAFEF7B8BF509068DEDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:EF710F4A6BDC48C594C1DAFEF7B8BF509068DEDD
 magnet:?xt=urn:btih:EF220A0A6EA1B5BA6EF55DCD84D5333D336019AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ Ashampoo Burning Studio - это всё то, о чём Вы просили. О�
 ```bash
 magnet:?xt=urn:btih:E31A00896B576AE4DA2D0BA1F58CB02221BACB20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ FireAlpaca - это достаточно простой, но удобный г�
 magnet:?xt=urn:btih:FD061E2900B25912E0DDE00DD84B32B1169850B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ XYplorer – удобный мультивкладочный файловый м
 ```bash
 magnet:?xt=urn:btih:5D67515F9110C673F661E9EBBD1555BBBAC9C75C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ VA - Equilibrium: Pure Deep House (2018) [MP3|320 Kbps] <Deep House>
 magnet:?xt=urn:btih:DA4FECE069E7716FB0DC37745D0AA552690CF0EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ The Matrixx - Здравствуй (2017) [FLAC|Lossless|tracks + .cue] <Neo-Pos
 ```bash
 magnet:?xt=urn:btih:015E881A6D238A811E75B6BBCA31BCC95BFE7709
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +589,8 @@ Jef Bek - Distant Starlight (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ro
 magnet:?xt=urn:btih:560ACD35333D88EC22AF832A0E4FF68E18E73095
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:A21D4DB429F33426B3319AACDFEC5E1533BA2C2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +641,8 @@ Stellarium это бесплатный планетарий для вашего 
 magnet:?xt=urn:btih:AF8D5122E959AA15DC48CE0DA3AFD933F88CD87C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +667,8 @@ magnet:?xt=urn:btih:AF8D5122E959AA15DC48CE0DA3AFD933F88CD87C
 magnet:?xt=urn:btih:50A3360FC35AD18BD3EFE38D4526DDDBBF65696E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ Project Hospital 1.1.17753 (2018) [Multi/Ru] [macOS Native game]
 ```bash
 magnet:?xt=urn:btih:229CA66143D122E4682EEB27A5BAA45D85966D46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

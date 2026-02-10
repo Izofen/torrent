@@ -1,3 +1,29 @@
+###  Публикация: 1498981   (851019) от 30.09.2021
+
+Кино - Ночь (1986) 2LP Reissue 2021 [FLAC 2.0|48/24|image+.cue|Vinyl-Rip] <New Wave, Alternative Rock, Post-Punk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: New Wave, Alternative Rock, Post-Punk
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F40BB283B82A4D442549D97DB437185B8B260542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110767   (851754) от 03.03.2017
 
 Sam Brown - Stop! (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
@@ -21,6 +47,8 @@ A4. It Makes Me Wonder (4:36)(   Читать дальше...   )Произво�
 ```bash
 magnet:?xt=urn:btih:62D7B74C9687207F5BCF687A193EC843CBB9B74C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +76,8 @@ VA - The Great Singers Of The Jazz/Големите Вокалисти На Дж
 ```bash
 magnet:?xt=urn:btih:A1E98D6DAB0D5FE1BA5F019FD1F8D46D7635B033
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -77,6 +107,8 @@ Ken Hensley - Proud Words On A Dusty Shelf (1973) [WavPack|192/32|image+.cue|Vin
 magnet:?xt=urn:btih:D8FD3C6E85140FE239F14BF4C99B443B5DD2EAE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +135,8 @@ VA - RETROспектива, часть XIII. Мелодии и песни из �
 ```bash
 magnet:?xt=urn:btih:0A9A096CFC57AE241C8735C91A2EB5DAA27A2000
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -131,6 +165,8 @@ Electric Light Orchestra - Time (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<
 magnet:?xt=urn:btih:1E9F84897677346A07E5D1305DA4DE691DA79362
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +192,8 @@ Linn Records - Super Audio Collection Vol. 8 (2015) [DSD 5.1, 2.0|2822,4/1|SACD]
 ```bash
 magnet:?xt=urn:btih:79A89265E5AE9FA2DB897C0AF03E0A810B9453EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +222,8 @@ Steven Wilson - 4 1/2  (2016) [DTS 5.1 CD-DA|44.1/16|image+cue|BD-Audio] <Neo-Pr
 magnet:?xt=urn:btih:A7A8D9FF25009622CC7DCF865C88F9B0640232A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +250,8 @@ Linn Records - The Super Audio Collection Volume 4 Sampler (2010) [DSD 5.1, 2.0|
 ```bash
 magnet:?xt=urn:btih:31C9C19C798AADAAC61AEC0EBDCC09BF7C27C3A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +280,8 @@ Side A:
 magnet:?xt=urn:btih:D2164BE1D2527B0E031CC974F3F52A392329077D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +308,8 @@ A4 Highway Of Love(   Читать дальше...   )Жанр: Electronic, Synt
 ```bash
 magnet:?xt=urn:btih:1522C03026CBD0E7A02F5FDDDEA04217271C136C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +338,8 @@ magnet:?xt=urn:btih:1522C03026CBD0E7A02F5FDDDEA04217271C136C
 magnet:?xt=urn:btih:CE410BB158A70D41ED3BEE10B877975FBC145B21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +367,8 @@ VA - Музыка РУ 5 (2005) Unofficial Release [FLAC 2.0|48/24|image +.cue|M
 magnet:?xt=urn:btih:D11B1B383658D143701BEA72C5C68C3CE018A6ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +395,8 @@ The Alan Parsons Project – Ammonia Avenue (1984) 2020 [DTS 5.1 CD-DA|44.1/16|i
 ```bash
 magnet:?xt=urn:btih:4D8B15944696DE84B0066BE98A511611AC43A136
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +426,8 @@ Cerrone - 3 Album (1976 - 1977) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Disco>
 magnet:?xt=urn:btih:4CE580ACCFFE03490CD71B85B01CBE72DC77DDDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +455,8 @@ Horizont and Friends - Late Night Chillout Lounge (2003/2008) [DTS 5.0 CD-DA|44.
 magnet:?xt=urn:btih:146736C742E331F4C1EBC81A386175C46B392FA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +483,8 @@ VA - RETROспектива, часть XII. Мелодии и песни из к
 ```bash
 magnet:?xt=urn:btih:94D59E8C99EE03292BFCC65957A7E8A6FC76B3E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +514,8 @@ magnet:?xt=urn:btih:94D59E8C99EE03292BFCC65957A7E8A6FC76B3E1
 magnet:?xt=urn:btih:2F091C3FD2E4320C7D6541A4EF792989DE056B6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +544,8 @@ magnet:?xt=urn:btih:2F091C3FD2E4320C7D6541A4EF792989DE056B6C
 magnet:?xt=urn:btih:CA63D0DE881B7B64DB45FD30B105E91A1745D3E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +572,8 @@ Ludwig van Beethoven - Symphonies 4,5,6,9 (Daniel Barenboim) (2000) [MLP 5.0, 2.
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +602,8 @@ A4	A Matter Of Feeling(   Читать дальше...   )Жанр: Synth-popП�
 magnet:?xt=urn:btih:AC6D710DCECA83540E6D5487CFA041AD805349FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +630,8 @@ A3 The Wake 3:45(   Читать дальше...   )Жанр: PopПродолж�
 ```bash
 magnet:?xt=urn:btih:84A8B87831341F03980378CAD74954B95B1EEC13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +660,8 @@ A4. Crossfade (3:41)(   Читать дальше...   )Производство
 magnet:?xt=urn:btih:6438D39027558495235AE58EBC30CBE7229CD865
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +688,8 @@ B1. Get Your Rocks Off (2:51)(   Читать дальше...   )Произво�
 ```bash
 magnet:?xt=urn:btih:9BD7F480458F1482862DE7FE14CA7DB2AE2E64B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +718,8 @@ B1. Yours Is An Empty Hope(   Читать дальше...   )Жанр: Symphoni
 magnet:?xt=urn:btih:04FAF093F6150CCE86D55D0F1BB354A025FD6C63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -673,34 +747,7 @@ Frank Sinatra - Duets (1993) First Press [WavPack|192/32|image + .cue|Vinyl-Rip]
 magnet:?xt=urn:btih:B0D9756435C197DF0E5FB0857CBB9191D5FA30D3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104616   (879781) от 15.02.2017
-
-Beth Hart - Better Than Home (2015) [WavPack|192/32|image + .cue|Vinyl-Rip] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что говорят о Бет Харт (Beth Hart)? Да всякое, (особенно критики-женщины старались), но все сходились в одном - такое бешеной энергетики, невероятной страстности при абсолютной естественности, такой феноменальной рок-блюз певицы не помнят уже давно.
-
-Бет Харт (Beth Hart) родилась в Лос-Анджелесе в 1972 году. Игре на фоно научилась очень рано, бросила играть классику (   Читать дальше...   )A1. Might As Well Smile 4:01
-A2. Tell 'Em To Hold On 4:24
-A3. Tell Her You Belong To Me 5:56
-A4. Trouble 4:42(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D5431EF63FAA91ABF6E1B1F7EE07F350DE67922
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

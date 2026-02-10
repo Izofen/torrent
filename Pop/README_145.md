@@ -1,3 +1,148 @@
+###  Публикация: 1577760   (350167) от 21.09.2022
+
+Haddaway - Let's Do It Now (1998) [OGG Vorbis|484 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Do It Now (Matrix Radio Edit)	3:27
+02. You're Taking My Heart (DJ Stevie Steve's Radio Edit)	3:21
+03. Touch	4:31
+04. Who Do You Love (Matrix Radio Edit)	3:26(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59A435F412546F64F929E0934209D37708ED1FAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577851   (350290) от 21.09.2022
+
+Fun Boy - The Album (2022) [MP3|320 Kbps] <Italo-Disco, Euro Disco, Hi-NRG>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fun Boy Turbomix [00:10:24]
+02. D. A. N. C. I. N. G (feat. Budia) [00:05:42]
+03. Breaking My Heart (feat. Sascha) [00:05:57]
+04. Can't Stop Moving (feat. Sascha) [00:07:15](   Читать дальше...   )Жанр: Italo-Disco, Euro Disco, Hi-NRGПродолжительность: 01:16:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:764A501E10B12D7FDC6079AE2C0248FD5541C171
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578167   (350301) от 21.09.2022
+
+Brian Briggs - 2 Albums (1980, 1982) LP [MP3|320 Kbps] <Electronic, Power Pop, Rock, Synth-pop, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Звукорежиссер, продюсер и музыкант. Родился в Великобритании и много лет проработал в Bearsville Studios01. Lookin' Out (3:29)
+02. Nervous Breakdown (3:42)
+03. See You On The Other Side (3:37)
+04. Aeo (Part I And II) (5:53)(   Читать дальше...   )Жанр: Electronic, Power Pop, Rock, Synth-pop, New WaveПродолжительность: 01:06:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9354231FDC5516D1AAD7805F7C0C5AD7273C8A69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179225   (350955) от 30.10.2017
+
+Charles Aznavour - Greatest Hits (All Tracks Remastered) (2017) [MP3|320 Kbps] <Pop, Variete Francaise>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Poker (Remastered 2016)
+02 Je m'voyais deja (Remastered 2016)
+03 Plus bleu que tes yeux (Remastered 2016)
+04 Il faut savoir (Remastered)(   Читать дальше...   )Жанр: Pop, Variete FrancaiseПродолжительность: 01:35:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66D58DB080BE877FC8FDC2A5F7FF1EC88F26D54D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953163   (351033) от 03.11.2015
+
+VA - А нам всё равно. Хиты 1960 - 1980-х (2010) [MP3|320 кб/с]<Советская эстрада>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ВИА Орэра - Тополя (03:18)
+02. ВИА Верасы - Завируха (04:17)
+03. Анатолий Королёв - Одиннадцатый маршрут (02:48)
+04. Лев Барашков - За туманом (02:27)(   Читать дальше...   )Жанр: Советская эстрадаПродолжительность: 00:48:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:201C98B6E741C115A0AC28F4A04C2516AC776C73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953078   (351285) от 03.11.2015
 
 Юта - Имя - Лучшие баллады (2015) [MP3|320 кб/с]<Pop, Pop-Rock>
@@ -21,6 +166,8 @@
 ```bash
 magnet:?xt=urn:btih:A1D46CEB44BF07038D559DDEBE86F614347A1B23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +196,8 @@ Eros Ramazzotti - 30 (2014) 3CD BoxSet [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:454571D997337FFC514B2D781A6537B6FF33550B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +224,8 @@ Kylie Minogue - Kylie Christmas (2015) [MP3|320 кб/с]<Pop, Christmas>
 ```bash
 magnet:?xt=urn:btih:74021EA244979EA2A25DF67C4412D3FF8DAC137B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +254,8 @@ Aquarian Dream - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Disco, Jazz-Funk, Soul
 magnet:?xt=urn:btih:F2AF986A054F741BFC3D72184E35AE78FACA0A38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +282,8 @@ Steps - Tears On The Dancefloor (Crying At The Disco Deluxe Edition) (2017) [MP3
 ```bash
 magnet:?xt=urn:btih:A9360852BD6AE095EC10CB84A7AE0F3D6C48F39F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +312,8 @@ Marc Lavoine - L Heure d ete (2005) [FLAC|image+.cue]<Pop,Chanson>
 magnet:?xt=urn:btih:265045FAD3ACDFD46DA7A102AD7AB6A7ECA80A97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +341,8 @@ ABBA - Gracias Por La Musica (1980) Japanese Edition (1986) [FLAC|Lossless|image
 magnet:?xt=urn:btih:A9D5EFB7BA583B1487F5AC2F28EA0FDBD6F9F132
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +366,8 @@ CD1Жанр: РетроПродолжительность: 02:36:18
 ```bash
 magnet:?xt=urn:btih:12ED8BDB4400147DEB371CC67371FE305154A548
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +402,8 @@ Thomas Anders - Christmas For You (2012) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:EC6710466A0990D08EEAEA4AF100D5274F4D4256
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +430,8 @@ Tegan and Sara - Hey, I'm Just Like You (2019) [FLAC|Lossless|tracks + .cue] <In
 ```bash
 magnet:?xt=urn:btih:AD7B4D47B29CFD79D2DB1CE6C7ABD6798EB1D1A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +460,8 @@ The Mike Theodore Orchestra - 2 Albums (1977,1979) Reissue, 1998, Westbound Reco
 magnet:?xt=urn:btih:E3C0BC82623862A8F764B6344588D034ED4E6329
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +488,8 @@ POMPEYA - группа с необычным звучанием, собранн�
 ```bash
 magnet:?xt=urn:btih:F37BA12AE1C824D93A45D65C3E883B1B553B1661
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +518,8 @@ magnet:?xt=urn:btih:F37BA12AE1C824D93A45D65C3E883B1B553B1661
 magnet:?xt=urn:btih:A09E8AC99EEF3F7917D75A5A3DBED6D877A40E47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +546,8 @@ VA - Хиты 80-х в Новых Версиях (2012) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:551D94B47CFED8407938E2BA58A080E372CF84D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +576,8 @@ Bad Boys Blue - Tears Turning to Ice (2020) [FLAC|Lossless|WEB-DL|tracks] <Euro-
 magnet:?xt=urn:btih:83F55955AC70213FF15E3769241406B5CBF8A172
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +604,8 @@ VA - NRJ Music Awards 2015 (2015) [FLAC|tracks +.cue]<Pop Compilation, Pop, Danc
 ```bash
 magnet:?xt=urn:btih:3A6D05EECE69257F7B2BA105008E78D03B09227A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +634,8 @@ Pink (P!nk) - Beautiful Trauma (2017) Japan [FLAC|Lossless|tracks + .cue] <Pop>
 magnet:?xt=urn:btih:D48CFA83313F3E4E531FD1EBB6C35B90982DC89D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +662,8 @@ magnet:?xt=urn:btih:D48CFA83313F3E4E531FD1EBB6C35B90982DC89D
 ```bash
 magnet:?xt=urn:btih:D1B9469BF923B92332ED1948C734C64B483F875B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +692,8 @@ Sandra - The Very Best Of (2016) 2CD, Compilation, Remastered [FLAC|Lossless|ima
 magnet:?xt=urn:btih:755A22F365026D01DB822398DC0E01166CFD00C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +720,8 @@ Patricia Kaas - Patricia Kaas (2016) Deluxe [FLAC|Lossless|tracks] <Pop, Chanson
 ```bash
 magnet:?xt=urn:btih:4F49A41EC0D08B98EA6CB52540246DC51410D09C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,140 +750,7 @@ magnet:?xt=urn:btih:4F49A41EC0D08B98EA6CB52540246DC51410D09C
 magnet:?xt=urn:btih:46A32799EAD3C3286C2E51BD4C7D8B0DC075349C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072181   (354392) от 12.11.2016
-
-Sandra - Close To Seven (1992) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Europop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Be Aggressive [04:45]
-02. Mirrored In Your Eyes [03:26]
-03. I Need Love [03:24]
-04. No Taboo [03:50](   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C93C62B65F0F0A483BC3389895BF757AD187489
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329269   (354428) от 04.10.2019
-
-Mireille Mathieu - Cinéma (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson française, Soundtrack>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354428.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Un homme et une femme (2:54)
-2. Over the Rainbow (3:13)
-3. Une vie d'amour (3:51)
-4. De rêve en rêverie (Evergreen) (3:14)(   Читать дальше...   )Жанр: Pop, Chanson française, SoundtrackПродолжительность: 02:03:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C0EE22FEFB66744E60D3691BD56F557C8FDEF8D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577529   (354494) от 19.09.2022
-
-VA - Mastermix DJ Edits 90s Dance Vol. 1 (2022) CD, Promo, Compilation [MP3|320 Kbps] <Disco, Eurodance, Breakbeat, Technopop>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Camisra - Let Me Show You (Dj Edit)
-02. Blue Pearl - Naked In The Rain (Dj Edit)
-03. Blockster - You Should Be... (Dj Edit)
-04. Brainbug - Nightmare (Sinister Strings Radio Edit) (Dj Edit)(   Читать дальше...   )Жанр: Disco, Eurodance, Breakbeat, TechnopopПродолжительность: 00:35:40 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98EED7196BEB8514F3DC5457F5E8B43CBE97D555
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071980   (354538) от 12.11.2016
-
-Paul Parker - Too Much To Dream (1983) LP [MP3|320 Kbps] <Electronic, Hi NRG, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интересный альбом, особенно для любителей творчества Patrick Cowley, где он выступил как: продюсер, синтезаторщик, клавишник и в 5-ти треках как композитор.01. Love's On The Line (6:12)
-02. Shot In The Night (6:03)
-03. Too Much To Dream (5:59)
-04. Baby You Can Have My Lovin' Anytime (4:44)(   Читать дальше...   )Жанр: Electronic, Hi NRG, DiscoПродолжительность: 00:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFB11B9A88D345CAFBDB768780DFBBEDD6A4BA1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329379   (354588) от 04.10.2019
-
-Stratavarious - Stratavarious (1976) LP [MP3|320 Kbps] <Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yes It Is (4:21)
-02. Let Me Be Your Lady Tonight (9:32)
-03. I Got Your Love (8:10)
-04. Nightfall (8:29)(   Читать дальше...   )Жанр: Funk Soul, DiscoПродолжительность: 00:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BEAA4A79D0AACC5E9AE8A341DA6283D2A032C62
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

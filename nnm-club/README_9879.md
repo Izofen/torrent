@@ -1,53 +1,3 @@
-###  Публикация: 959245   (318859) от 23.11.2015
-
-Проекты - VideoHive - Fast Light Logo Reveal [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания эффектного представления вашего логотипа.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59884CF37DB630207153D6040B0D59989F14F06A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959100   (318860) от 23.11.2015
-
-Проекты - Pond5 - Happy New Year! - 57231735 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект - Новогодняя заставка.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB26AC15895863EDB892E6630B86E83917AB05DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959071   (318861) от 23.11.2015
 
 Cinemagraph Pro 1.7.2 [Multi]
@@ -68,6 +18,8 @@ Cinemagraph Pro от студии Fixel – приложение, при пом�
 ```bash
 magnet:?xt=urn:btih:059E8FE30F8D8D8B09DC1506D5C2CCB206547014
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +48,8 @@ Mireille Mathieu - Noel (2015) [MP3|320 кб/с]<French Chanson>
 magnet:?xt=urn:btih:A2E4A33D84D2DE37B064781C779E44D7C45CBD48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +77,8 @@ magnet:?xt=urn:btih:A2E4A33D84D2DE37B064781C779E44D7C45CBD48
 magnet:?xt=urn:btih:95E9FCF91D94287690CDF97083EC695D26960673
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +104,8 @@ magnet:?xt=urn:btih:95E9FCF91D94287690CDF97083EC695D26960673
 magnet:?xt=urn:btih:9B8A4355969CE178C1F31C1E796FD88625A7B0F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +130,8 @@ CoolUtils Total HTML Converter — это функциональная прог�
 magnet:?xt=urn:btih:3F382A2C0D2A71AE887690D6F0708E769F7C9BE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +155,8 @@ magnet:?xt=urn:btih:3F382A2C0D2A71AE887690D6F0708E769F7C9BE2
 ```bash
 magnet:?xt=urn:btih:F04F66254C97EB2C325AA9AE9FE0DA7C4DA01130
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +185,8 @@ Scorpions - Savage Amusement (1988) 50th Anniversary Deluxe Edition, Remastered,
 magnet:?xt=urn:btih:A41CF8A65DEEB93DD624D4AFD796FEBFE42BB49B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +211,8 @@ magnet:?xt=urn:btih:A41CF8A65DEEB93DD624D4AFD796FEBFE42BB49B
 ```bash
 magnet:?xt=urn:btih:700D3EF4C9475AF1B9F7B4346A0124F016DE2E1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +240,8 @@ Firefox отличается стабильностью и безопаснос�
 magnet:?xt=urn:btih:F627D19398A7BBAD703D51BE75C06A11393842C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +267,8 @@ magnet:?xt=urn:btih:F627D19398A7BBAD703D51BE75C06A11393842C7
 magnet:?xt=urn:btih:E517650619CE106436AE30B4AED6AFC9920974EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +293,8 @@ magnet:?xt=urn:btih:E517650619CE106436AE30B4AED6AFC9920974EA
 magnet:?xt=urn:btih:FC8A204D5FB5851A2F4232CEB4254D698FF1B08A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +318,8 @@ magnet:?xt=urn:btih:FC8A204D5FB5851A2F4232CEB4254D698FF1B08A
 ```bash
 magnet:?xt=urn:btih:AF34E732AFE7AC5FBDFD3FE6DF94DEF2AD1C5175
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +348,8 @@ L'One - Автолюбитель (2015) EP [MP3|320 кб/с]<Rap, Hip-Hop>
 magnet:?xt=urn:btih:013A0ED9CE96038C785E362361F84F67B5B67F88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +377,8 @@ magnet:?xt=urn:btih:013A0ED9CE96038C785E362361F84F67B5B67F88
 magnet:?xt=urn:btih:A1764710DD0E2064BCE18EA2390599B1E19FEA8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +404,8 @@ magnet:?xt=urn:btih:A1764710DD0E2064BCE18EA2390599B1E19FEA8B
 magnet:?xt=urn:btih:3C9421A20ED4D3197FF82BE3B3D8AC6350A24611
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +430,8 @@ magnet:?xt=urn:btih:3C9421A20ED4D3197FF82BE3B3D8AC6350A24611
 magnet:?xt=urn:btih:00C91430FD0D7751B8DEEC000065BACB11629990
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +455,8 @@ Linux Format (UK) - легендарный британский ежемесяч
 ```bash
 magnet:?xt=urn:btih:7B708A26EF1C6E0C638FA477ECE53810F2AC1F71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +485,8 @@ Linkin Park - Live in Moscow (2011) HDTVRip [H.264/1080p]
 magnet:?xt=urn:btih:49643EA6747707F7A553951025B5DA18A1F3A3FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +511,8 @@ Vended - 1 EP, 1 Single (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Nu-Me
 ```bash
 magnet:?xt=urn:btih:E2E78BFF7971B1288CC617100C051F1B8F9F2416
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +541,8 @@ Barbra Streisand - Walls (2018) [OGG Vorbis|480 Kbps] <Pop, Vocal>
 magnet:?xt=urn:btih:E2DABEFF969DB4134060D67714400FB144A308CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +569,8 @@ Daxson - Face The Future (2022) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:517CCD99982E4423C087DF092867373F5BDD7A70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +599,8 @@ Wolfheart - King Of The North (2022) [FLAC|Lossless|image + .cue] <Melodic Death
 magnet:?xt=urn:btih:6EEC4FC02DD5D3993FA005D6FA1AB5EC948CBA9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +625,8 @@ Driver Booster сканирует и определяет устаревшие �
 magnet:?xt=urn:btih:C474BCE374B95E0AAF24D72D5C265BBFD297A4F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +650,66 @@ magnet:?xt=urn:btih:C474BCE374B95E0AAF24D72D5C265BBFD297A4F5
 ```bash
 magnet:?xt=urn:btih:60BF523222FC17183D1C6871A89A6D33EB13AF63
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582744   (318921) от 11.10.2022
+
+Thomas Datt - Trance Pioneers 003 (2022) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_318921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Datt - Still Alone (Original Mix)
+02. Thomas Datt - Long Distance (Original Mix)
+03. Thomas Datt - Mass Effect (Original Mix)
+04. Thomas Datt - Evaporate (Part 2) (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:26:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59D49D3D1BC42C16E908B1D1633481AF12C12DF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582704   (318922) от 11.10.2022
+
+Mariah Carey - Music Box (1993) [OGG Vorbis|480 Kbps] <Electronic, Funk / Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_318922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamlover
+02. Hero
+03. Anytime You Need a Friend
+04. Music Box(   Читать дальше...   )Жанр: Electronic, Funk / SoulПродолжительность: 00:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ECEB34BA7C5BC7C29236DCCBB9A4B76ED31154E
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

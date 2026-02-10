@@ -1,3 +1,31 @@
+###  Публикация: 946234   (426705) от 13.10.2015
+
+Эдриан Фернхэм | Психология. 50 идей, о которых нужно знать (2014) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_426705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессор Эдриан Фернхэм – психолог мирового уровня, профессор Оксфорда, Кембриджа и Лондонского университета. Он опубликовал более 700 научных статей и 57 книг. Журнал Human Resources включил профессора Фернхэма в список 20 самых авторитетных психологов мира.
+
+Современное общество немыслимо без психологии. Без знания основ психологии уже нельзя представить нашу (   Читать дальше...   )Жанр: Популярная психологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A2E0CAA668AEB2C8009F781559C1C0FB5B5636E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 946481   (426822) от 13.10.2015
 
 Карен Берг | Самосаботаж. Преодолеть себя (2015) [FB2]
@@ -20,6 +48,8 @@
 ```bash
 magnet:?xt=urn:btih:C1F2DB1AD693A3139894909077F9CF0936CE108E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +78,8 @@ magnet:?xt=urn:btih:C1F2DB1AD693A3139894909077F9CF0936CE108E
 magnet:?xt=urn:btih:969F66A2317ECA5E4FE4FB9DC6DC42B1E62692FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +104,8 @@ magnet:?xt=urn:btih:969F66A2317ECA5E4FE4FB9DC6DC42B1E62692FE
 magnet:?xt=urn:btih:AF7C0077B00D73B022CB817CA616BBBD21BCB553
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +129,8 @@ magnet:?xt=urn:btih:AF7C0077B00D73B022CB817CA616BBBD21BCB553
 ```bash
 magnet:?xt=urn:btih:1AC3D9D80C6381F9FB4E5DB372060261A20D5E82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +158,8 @@ magnet:?xt=urn:btih:1AC3D9D80C6381F9FB4E5DB372060261A20D5E82
 magnet:?xt=urn:btih:4AFDDAA7F4B7299F8FCB684127F749875DE99662
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +183,8 @@ magnet:?xt=urn:btih:4AFDDAA7F4B7299F8FCB684127F749875DE99662
 ```bash
 magnet:?xt=urn:btih:B68C4ED5DB1616BA2912E258E7EE28AA89319B12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +212,8 @@ magnet:?xt=urn:btih:B68C4ED5DB1616BA2912E258E7EE28AA89319B12
 magnet:?xt=urn:btih:1DCC38C282A6F7970675004BAC9541DBE2811E75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +237,8 @@ magnet:?xt=urn:btih:1DCC38C282A6F7970675004BAC9541DBE2811E75
 ```bash
 magnet:?xt=urn:btih:8627887A4F6CD382205F0C29B6A80F2E370FA42A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +265,8 @@ magnet:?xt=urn:btih:8627887A4F6CD382205F0C29B6A80F2E370FA42A
 ```bash
 magnet:?xt=urn:btih:2C4BCC6318BC02C422DF224248B9AFD4E2440569
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +295,8 @@ magnet:?xt=urn:btih:2C4BCC6318BC02C422DF224248B9AFD4E2440569
 magnet:?xt=urn:btih:B6715BE934425C8A5636F15B1F79B30C06DAB9C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +320,8 @@ magnet:?xt=urn:btih:B6715BE934425C8A5636F15B1F79B30C06DAB9C6
 ```bash
 magnet:?xt=urn:btih:B17354351B6D8B2AB59A4589C03DD370596876F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +347,8 @@ magnet:?xt=urn:btih:B17354351B6D8B2AB59A4589C03DD370596876F2
 magnet:?xt=urn:btih:E6B1AED04F11E2CFA8FCB793AB0FD8578A2CB0E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +372,8 @@ magnet:?xt=urn:btih:E6B1AED04F11E2CFA8FCB793AB0FD8578A2CB0E1
 ```bash
 magnet:?xt=urn:btih:85147FA640DA4850E05EA7278C26925B97DABBB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +399,8 @@ magnet:?xt=urn:btih:85147FA640DA4850E05EA7278C26925B97DABBB2
 magnet:?xt=urn:btih:E23C67BAC039547DFCA8224FD8AE9827566C7F34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +424,8 @@ magnet:?xt=urn:btih:E23C67BAC039547DFCA8224FD8AE9827566C7F34
 ```bash
 magnet:?xt=urn:btih:ED95CBC0C8209CD7A849395B66354776201A8D56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +453,8 @@ magnet:?xt=urn:btih:ED95CBC0C8209CD7A849395B66354776201A8D56
 magnet:?xt=urn:btih:525CB1351CCFCBE1E48E496CD1BB109E3DE348CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +479,8 @@ magnet:?xt=urn:btih:525CB1351CCFCBE1E48E496CD1BB109E3DE348CE
 magnet:?xt=urn:btih:6CE67B03756C245E6E2CB11B5C87014B4076EA46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +504,8 @@ magnet:?xt=urn:btih:6CE67B03756C245E6E2CB11B5C87014B4076EA46
 ```bash
 magnet:?xt=urn:btih:F051D24EFB42BE2503373D99E1FB4F488EE11144
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +534,8 @@ magnet:?xt=urn:btih:F051D24EFB42BE2503373D99E1FB4F488EE11144
 magnet:?xt=urn:btih:37B69024CC31677952A6EE2902CFE24709A385FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +559,8 @@ magnet:?xt=urn:btih:37B69024CC31677952A6EE2902CFE24709A385FE
 ```bash
 magnet:?xt=urn:btih:916C11864AECBA980DD2D5037DD353E1D73A126A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +586,8 @@ magnet:?xt=urn:btih:916C11864AECBA980DD2D5037DD353E1D73A126A
 magnet:?xt=urn:btih:023986AD8EAE379AEDC3ABF770D11FFFAA8F23E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +611,8 @@ magnet:?xt=urn:btih:023986AD8EAE379AEDC3ABF770D11FFFAA8F23E7
 ```bash
 magnet:?xt=urn:btih:0C33877C0B55A3870EEC35CAB8F1B7C8058C3638
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +638,8 @@ magnet:?xt=urn:btih:0C33877C0B55A3870EEC35CAB8F1B7C8058C3638
 magnet:?xt=urn:btih:8EA66CD2A45BC77C180F38FEF784866898AD2C74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +663,8 @@ magnet:?xt=urn:btih:8EA66CD2A45BC77C180F38FEF784866898AD2C74
 ```bash
 magnet:?xt=urn:btih:ABE3441D10B4E7DFC2CDF692D42BDE3F85A49B95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,29 +692,7 @@ magnet:?xt=urn:btih:ABE3441D10B4E7DFC2CDF692D42BDE3F85A49B95
 magnet:?xt=urn:btih:5FD4D12B8D257C5165DC431EF52F939F01B2C437
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064381   (427751) от 19.10.2016
-
-Пиппа Мэттинсон | Абсолютное послушание (2014) [FB2]
-
->>Разное (категория книг)
->>Сад, огород, животноводство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427751.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: Многие владельцы собак испытывают трудности в управлении своим питомцем. Подавляющее большинство из них сталкиваются с одной и той же простой, но очень серьезной проблемой - собака не возвращается, когда ее зовут.  В этой книге Пиппа Мэттинсон подробно рассматривает подход по команде как важнейший навык послушания и предлагает пошаговую программу обучения (   Читать дальше...   )Жанр: Домашние питомцыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:308ABC83DB16EA5ED39ACA7C1F087698C5C81A8D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

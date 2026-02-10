@@ -19,6 +19,8 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 magnet:?xt=urn:btih:6429F80D4AB12D1B8D5CA4D5482571C9F0025C2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ MAGIX Vegas PRO — профессиональная программа для �
 ```bash
 magnet:?xt=urn:btih:FF5EA830E16F4A181524DE544BE3496DECEF38B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.36.32420.0 [Ru]
 magnet:?xt=urn:btih:6F67BCAA71042593774F8E704F15B12EE24D5653
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Adobe Audition 2023 23.6.1.3 RePack by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:42F4F0453183CF4A4E51462968722CEA563EAF6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Revo Uninstaller Pro 5.1.1 RePack (& Portable) by Dodakaedr [Multi/Ru]
 magnet:?xt=urn:btih:5DA01D52D58387CC2A1909BB37EFC3DC88E21B69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:5DA01D52D58387CC2A1909BB37EFC3DC88E21B69
 ```bash
 magnet:?xt=urn:btih:3FB2FD20AC0C6B589893DDE0C25611CA61ED2EBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ AOMEI Partition Assistant – мощная программа для работ�
 magnet:?xt=urn:btih:0426BB0613DB386BBD949007D0BCF35EED4D6D4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Opera 96.0.4693.31 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:C3DE1B819A90405B9660F70C82FA425C4D0F9785
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ LibreOffice - офисный пакет с открытым исходным к�
 ```bash
 magnet:?xt=urn:btih:5C67FE87E85633BF3B9D58C2234FC82871C626C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:5C67FE87E85633BF3B9D58C2234FC82871C626C5
 magnet:?xt=urn:btih:0B200BEF053133516A0443F545F979162FF02133
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Voltaire: The Vegan Vampire — это фермерский рогалик-эк�
 ```bash
 magnet:?xt=urn:btih:21C3AE895003B6D2F9376CEA22B8AD4376B5B891
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Driver Booster сканирует и определяет устаревшие �
 magnet:?xt=urn:btih:A6AE34EFADC1B356E9F2A40ACCBB87B6A33D9F31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Abelssoft SSD Fresh - если вы счастливый обладатель SS
 ```bash
 magnet:?xt=urn:btih:54C056D502A51DE8DFE44E1E26DBC59DF8010EAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Steinberg - Cubase Pro 12.0.52 [Ru/En]
 magnet:?xt=urn:btih:0C3FF462104C5826264FBCE76C0D994BC200C173
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ AOMEI Backupper – программа для создания резервно�
 magnet:?xt=urn:btih:374F2D253BA9046FFFE1F7403EF4B78AEC196A72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Windows 11 Manager - это универсальная утилита специ
 ```bash
 magnet:?xt=urn:btih:04C5710FE94DDDACDCAAF1CA67FC3D07F5D2A272
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 magnet:?xt=urn:btih:98D68088F7415CF207125298F8F68BC9D9107B9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Bandicam поможет вам сделать запись игры с высо�
 magnet:?xt=urn:btih:D4BC5E1DE39774DDA14984D3B425E29E92C1F0F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ Abelssoft SSD Fresh - если вы счастливый обладатель SS
 ```bash
 magnet:?xt=urn:btih:D53440B2746C68C36C058EF65B0862237C970F09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ Phase One Capture One - один из лучших профессиональн�
 magnet:?xt=urn:btih:368E035553946AA7F5A03BE411BC74E07FB5D05B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ WinNTSetup (Windows Setup Tool) – программа для создания �
 ```bash
 magnet:?xt=urn:btih:0FCDB98AA08D753644449D16C5F6AEFD2D0C3115
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 magnet:?xt=urn:btih:3FADFEC3CE243B4DA3FD0869BD561577D41684EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ The KMPlayer – это мощный мультимедиа проигрыват
 ```bash
 magnet:?xt=urn:btih:A089FB348808FAFFA191FE856B39D3CE26234666
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:DF8C29B0A1AFE51702ACF089904071138CAE49E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ NVIDIA GeForce Driver — драйвера для видеокарт произ�
 magnet:?xt=urn:btih:3FF7177FB3A16DE8EF1918223D7BC3E9F294E62E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ GIMP — это редактор, позволяющий работать со �
 ```bash
 magnet:?xt=urn:btih:3A1FB91A2798D13E1D07E4EECD724D86467A23B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

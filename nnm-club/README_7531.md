@@ -21,6 +21,8 @@ Garmin: TOPO Czech PRO v2.01 [Cz]
 magnet:?xt=urn:btih:32DFC86DBDCBF60BE7E802EC63066320BF8F91B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:32DFC86DBDCBF60BE7E802EC63066320BF8F91B3
 ```bash
 magnet:?xt=urn:btih:184177DDB0F7DAA1C408CC194337AD79733E569B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Omni Downloader — простое и интеллектуальное прил�
 magnet:?xt=urn:btih:ACAF6C056360D64C3C830921D5E7694E2FC0B086
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:ACAF6C056360D64C3C830921D5E7694E2FC0B086
 ```bash
 magnet:?xt=urn:btih:9ABA76E1F04D2F23960DFC9E35BA3EDF8CFEC6BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Edain - Through Thought And Time (2009) [FLAC|Lossless|image + .cue] <Death Meta
 magnet:?xt=urn:btih:27783FC39D97645AA891813E1DA75051155DFB5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:27783FC39D97645AA891813E1DA75051155DFB5E
 ```bash
 magnet:?xt=urn:btih:CFF449B590BCADD6F5C20E3DB1746CECB40225AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ Illyria - Take Me Somewhere Beautiful (2022) [FLAC|Lossless|WEB-DL|tracks] <Post
 magnet:?xt=urn:btih:003BCB1C40323E17FC7C1E0A6C2E7FD756BF8AE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ Fish - Clutching At Stars Live in The USA 2008 (2023) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:7F5B0C419B15A080BD7805A9C9F81E22EC496EF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:7F5B0C419B15A080BD7805A9C9F81E22EC496EF7
 ```bash
 magnet:?xt=urn:btih:2679461F92BB46BCB487A0D494F9EB57BAE585A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:2679461F92BB46BCB487A0D494F9EB57BAE585A2
 magnet:?xt=urn:btih:2DE61DCE8F1EC22AFDB7B01DFA99AD86E831B17A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:2DE61DCE8F1EC22AFDB7B01DFA99AD86E831B17A
 magnet:?xt=urn:btih:AAB6C16A6F284DC51CEB54A733F0F62148B29D24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ Viber для Windows позволяет бесплатно отправлять 
 ```bash
 magnet:?xt=urn:btih:206801F509410CD57E6777EEE5F226C725D9A6B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ VA - Melodica, Vol. 8 (2021) [AAC|~333 Kbps] <Deep House, Progressive House>
 magnet:?xt=urn:btih:AE2C8787D17EFD4DA00BACDC1D3700789400B9D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:AE2C8787D17EFD4DA00BACDC1D3700789400B9D7
 ```bash
 magnet:?xt=urn:btih:943E432209D7973CB70E2FDC1F2C0FA64C89B338
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +397,8 @@ Omni Remover - это универсальный пакет для поддер�
 magnet:?xt=urn:btih:FB0DB68407C0B5EF5BDAEC1836A7AABA038C0A3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:FB0DB68407C0B5EF5BDAEC1836A7AABA038C0A3B
 ```bash
 magnet:?xt=urn:btih:E3EC29144CAC41FEB318416D05BC18D6C05561E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:E3EC29144CAC41FEB318416D05BC18D6C05561E4
 magnet:?xt=urn:btih:D5854BFAF8C6965B6F6CE68DEA7312D05C2D9A57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:0BAB7659955480644607F3EF34BA221BC5EB22F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ VA - Melodica, Vol. 6 (2021) [AAC|~333 Kbps] <Deep House, Progressive House>
 magnet:?xt=urn:btih:A66A9BD3B6243113A91C0380ACF16DC791BF21C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ Blue October - Spinning the Truth Around (Part I) (2022) [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:46D31A272DECD0DFD57D93BA9801F95E2C54BB8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +564,8 @@ Uncle Acid and the Deadbeats - Slaughter On First Avenue (Live) (2023) [FLAC|Los
 magnet:?xt=urn:btih:CC9E04F5D4C5E84604F342AB0A9C7BEA03FEF0D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ magnet:?xt=urn:btih:CC9E04F5D4C5E84604F342AB0A9C7BEA03FEF0D9
 magnet:?xt=urn:btih:9D0DC34C63F560F5466A30CD764CB647B2BDAE49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:E4F0A52A6A49D63412D3309F07B41F0790895513
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +645,8 @@ Hartmann - Get Over It (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 magnet:?xt=urn:btih:6B716D93513B5B26B101DABE1DC8A99ABCA9F5C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:6B716D93513B5B26B101DABE1DC8A99ABCA9F5C5
 ```bash
 magnet:?xt=urn:btih:F75E7DCA8EE9AEB6C00009D041D3B9FAE0D9E3D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +699,8 @@ Nightmare Screen - The Slumber (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 ```bash
 magnet:?xt=urn:btih:F77B7811D750C4D02DA76B2571938FBEC6A4FFAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

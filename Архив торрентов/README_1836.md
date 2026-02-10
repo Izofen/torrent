@@ -20,6 +20,8 @@ Airstrike USA [En] (RePack) 1990 | Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Airstrike USA [En] (RePack) 1990 | Pilotus
 ```bash
 magnet:?xt=urn:btih:415BDABFCF82802F51F720B0DDBD01B8118F75AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:415BDABFCF82802F51F720B0DDBD01B8118F75AB
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:415BDABFCF82802F51F720B0DDBD01B8118F75AB
 magnet:?xt=urn:btih:BF56BF8605EC91ECC47D56ABD48B51E80B0CA430
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ uTorrent Portable 3.1.3 (build 27167) Stable by PortableApps [Multi/Русски
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ uTorrent Portable 3.1.3 (build 27167) Stable by PortableApps [Multi/Русски
 ```bash
 magnet:?xt=urn:btih:7CC645BBB36E1C2907691BF877B82FDA5FA161FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ The 101 Strings Orchestra - The Soul Of Israel (1996) [MP3|320 кб/с]<Instrume
 magnet:?xt=urn:btih:D17EEB0D2C6F802702C5F4A8171B669DA2C8BEAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ magnet:?xt=urn:btih:D17EEB0D2C6F802702C5F4A8171B669DA2C8BEAA
 ```bash
 magnet:?xt=urn:btih:F0DB0EE5C8C053FBC0C983A5E941E2EC3907A7CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +253,8 @@ Dj Starscream (Sid Wilson) - Abunaii Sounds (2003) [MP3|128 кб/с]<Drum'n'Bass
 magnet:?xt=urn:btih:DD4C8D3EB4A521D1AC351EA7A299FAC0D9ABC0BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +288,8 @@ Bobby O - Primitive Primal Scream (2012) [MP3|320 кб/с]<Disco, Electropop>
 magnet:?xt=urn:btih:A9D2C22F4960669CC5CA611ADEE002EE531DCFBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +313,8 @@ CollageIt - простой в использовании инструмент д
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +347,8 @@ Simple Minds - Black & White 050505 (2005) [FLAC|Lossless]<Рок>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +383,8 @@ VA - Electrostorm Vol.3 (2012) [MP3|192-320 кб/с]<EBM, Industrial, Synthpop, 
 magnet:?xt=urn:btih:8EDC56D460A3A170AC8214651CA3699020F68666
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +408,8 @@ Free Video Dub - это бесплатная программа для реда�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +437,8 @@ P.S. Некоторые из этих видео могут оказаться �
 magnet:?xt=urn:btih:E2E31730E95AA936828EA2543465E333ADEB8E61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +462,8 @@ magnet:?xt=urn:btih:E2E31730E95AA936828EA2543465E333ADEB8E61
 ```bash
 magnet:?xt=urn:btih:F1AF88A59E886F3A194DF3E002DACAF3C75F6B74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +489,8 @@ magnet:?xt=urn:btih:F1AF88A59E886F3A194DF3E002DACAF3C75F6B74
 magnet:?xt=urn:btih:C638E7442CAF8332990883C640EC9483AB1C41F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ magnet:?xt=urn:btih:C638E7442CAF8332990883C640EC9483AB1C41F1
 ```bash
 magnet:?xt=urn:btih:57DB3C57E06679242FDFB43ADF3B6ED238BBE40A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +541,8 @@ Avenue - серия женской прозы. И хотя нам, мужчин�
 magnet:?xt=urn:btih:B4DA48A08F9C7BD3E0AE8B31EA3F6D1EDCE23E52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +567,8 @@ Rainmeter - программа для мониторинга ресурсов к
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +592,8 @@ Adrosoft Steady Recorder - маленькая и очень полезная у�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +622,8 @@ Adrosoft Steady Recorder - маленькая и очень полезная у�
 magnet:?xt=urn:btih:FD7057083883883D823D919BD44BD7829DF9A4CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +648,8 @@ Rising PC Doctor - профессиональная и удобная прогр
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +673,8 @@ Rising PC Doctor - профессиональная и удобная прогр
 ```bash
 magnet:?xt=urn:btih:DA15F8F7D3A149963BA47D791DA8156409BDA0A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -659,6 +707,8 @@ VA - Ministry Of Sound: The Mash Up Mix Bass (2012)
 magnet:?xt=urn:btih:911A8305FCD74DE617EAE6740B8E81663CBA19B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -682,6 +732,8 @@ magnet:?xt=urn:btih:911A8305FCD74DE617EAE6740B8E81663CBA19B8
 ```bash
 magnet:?xt=urn:btih:7B546A48C6FF567A1D86599466331DF733A1BF26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

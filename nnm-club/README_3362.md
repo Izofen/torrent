@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:6344078DCC7C38F45D48223435DCF4E3F84B294B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Sandboxie - yтилита для контроля за работой разли
 ```bash
 magnet:?xt=urn:btih:A99146C7AE84EBA322CC315F64F183F9755B5840
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:A99146C7AE84EBA322CC315F64F183F9755B5840
 magnet:?xt=urn:btih:354C3A420118A5832CAAE9971A520F75C2C15A6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:354C3A420118A5832CAAE9971A520F75C2C15A6E
 ```bash
 magnet:?xt=urn:btih:1D967C38079622A1CCEC602107FC5B0576D40582
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Archie Shepp - 5 Original Albums (1964 - 1968) 5CD, 2018, Universal [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:6237A40B737B08F5FD52C53E2BBDFA7D55FC5354
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -152,6 +162,8 @@ magnet:?xt=urn:btih:6237A40B737B08F5FD52C53E2BBDFA7D55FC5354
 magnet:?xt=urn:btih:C9A7F9B3652BDEC62AF817D2A89363BE38149528
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -179,6 +191,8 @@ Pallas - Arrive Alive (1981) Remaster, 2024, Esoteric [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:75F1029AF93F49E0596B6346C5F9442A18C5F064
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ magnet:?xt=urn:btih:75F1029AF93F49E0596B6346C5F9442A18C5F064
 ```bash
 magnet:?xt=urn:btih:3626024B101C90D8A19921BDF17D841DEB4714DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -230,6 +246,8 @@ magnet:?xt=urn:btih:3626024B101C90D8A19921BDF17D841DEB4714DF
 magnet:?xt=urn:btih:BB567D9BC86ED339F4C7189A1EFA06B8DA229708
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ magnet:?xt=urn:btih:BB567D9BC86ED339F4C7189A1EFA06B8DA229708
 ```bash
 magnet:?xt=urn:btih:56B15EF524B3E258FEC1AFF7157AF253B87243C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -281,6 +301,8 @@ Outlander - Acts of Harm (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Shoegaze,
 magnet:?xt=urn:btih:FE5F94ADC44BABD6D3BF8D1866F7A80E748F63AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +330,8 @@ magnet:?xt=urn:btih:FE5F94ADC44BABD6D3BF8D1866F7A80E748F63AF
 magnet:?xt=urn:btih:5FE0801230FE8371220E1E0DD4507CC38AFC44A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +358,8 @@ Benjamin Finger - Beyond (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melanchol
 magnet:?xt=urn:btih:26DFA125EC12129969C91D2C769BEA86087891AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +383,8 @@ magnet:?xt=urn:btih:26DFA125EC12129969C91D2C769BEA86087891AF
 ```bash
 magnet:?xt=urn:btih:245084FCF5E306F480843E99854324BD4989C226
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +413,8 @@ magnet:?xt=urn:btih:245084FCF5E306F480843E99854324BD4989C226
 magnet:?xt=urn:btih:1BE169C16CD9EAB8D92C6792416B6803FB2332B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +442,8 @@ Various Artists - Fußball - Rock Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Roc
 magnet:?xt=urn:btih:5E0B284EEBB62EC190A1E639506439260C43131C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +467,8 @@ magnet:?xt=urn:btih:5E0B284EEBB62EC190A1E639506439260C43131C
 ```bash
 magnet:?xt=urn:btih:B5098D6EC07BD302BBDB91C07A31F725712433FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +497,8 @@ Turilli / Lione RhapsodyЖанр: Symphonic Power MetalПродолжитель�
 magnet:?xt=urn:btih:AF1E9CD184C7FD6E4F368E3A1430FCD067C28574
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +525,8 @@ magnet:?xt=urn:btih:AF1E9CD184C7FD6E4F368E3A1430FCD067C28574
 ```bash
 magnet:?xt=urn:btih:F7516CDEBD664855F31578EE9A79F4CA3F990B81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +555,8 @@ Pendulum @ North Stage, Pinkpop, Netherlands 2024-06-22
 magnet:?xt=urn:btih:6F175951CB0B8EACF6669F11221A75B632A67977
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +582,8 @@ magnet:?xt=urn:btih:6F175951CB0B8EACF6669F11221A75B632A67977
 ```bash
 magnet:?xt=urn:btih:5A8FCC4B717E0CFC937F22A7C51F5470D8BF7834
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +612,8 @@ VA - DJ Hits Vol. 131 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 magnet:?xt=urn:btih:51210676BB2E95E817BA0C0B97AE4A67336270A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +640,8 @@ magnet:?xt=urn:btih:51210676BB2E95E817BA0C0B97AE4A67336270A8
 ```bash
 magnet:?xt=urn:btih:209E023129391DBD800C39B4A9B7CE050E821E3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +670,8 @@ VA - DJ Hits Vol. 124 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 magnet:?xt=urn:btih:0792BF1E6BE289BD2D65990B41B409E011E416B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +697,8 @@ magnet:?xt=urn:btih:0792BF1E6BE289BD2D65990B41B409E011E416B7
 ```bash
 magnet:?xt=urn:btih:99ABC0F85D7729E9E90EE66C525509999B069351
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -676,6 +726,8 @@ VA - Strolling - Rock & Metal (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:92E638EC8E170B52245EF70379C1F466E4A31E44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

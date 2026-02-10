@@ -1,3 +1,29 @@
+###  Публикация: 934379   (501985) от 05.09.2015
+
+Голос. Сезон №4. Выпуск №1 (2015.09.04) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501985.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Первый канал" объявляет о премьере нового сезона музыкального проекта "Голос". Из тысяч претендентов, приславших минувшим летом свои заявки на участие, отобраны полторы сотни тех, кто поднимется на ставшую уже знаменитой на всю страну сцену во время "слепых прослушиваний" в надежде покорить слух требовательных наставников. Зрителей (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТВ-Шоу, развлекательныйПродолжительность: ~ 01:52:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3E46D003EAA90788DB8DC2B9367F424C10C1B55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934586   (502055) от 05.09.2015
 
 Танцы. Сезон №2. Выпуск № 3 (2015.09.05) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:F45EB89082AA50FE313ADEA0DC24AE6FDE0AEF39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ magnet:?xt=urn:btih:F45EB89082AA50FE313ADEA0DC24AE6FDE0AEF39
 magnet:?xt=urn:btih:E1F8FB74AD98F39C9F1FE99EE5B7D1539277CE3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:E1F8FB74AD98F39C9F1FE99EE5B7D1539277CE3A
 ```bash
 magnet:?xt=urn:btih:583752AA7B12A634063AC59F082116D18E2A5589
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:583752AA7B12A634063AC59F082116D18E2A5589
 magnet:?xt=urn:btih:9F39AFCCEC2FE454B385F6B1EEF5C632D740BF63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:9F39AFCCEC2FE454B385F6B1EEF5C632D740BF63
 ```bash
 magnet:?xt=urn:btih:40FC76F655C9627946B11796F34DEF07CD6B0012
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:40FC76F655C9627946B11796F34DEF07CD6B0012
 magnet:?xt=urn:btih:C4DE10610B07C41852EEDDA6C00499B7B5956080
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:C4DE10610B07C41852EEDDA6C00499B7B5956080
 ```bash
 magnet:?xt=urn:btih:6138CCDE8012B02E2AE5BCE91CDB060B76D3F8CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:6138CCDE8012B02E2AE5BCE91CDB060B76D3F8CF
 magnet:?xt=urn:btih:84CE723F0B58CE7CC1356C141BB3DB956BC85963
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:84CE723F0B58CE7CC1356C141BB3DB956BC85963
 magnet:?xt=urn:btih:9202A637F3B18DF1A9431E332A04D9E073F027F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:9202A637F3B18DF1A9431E332A04D9E073F027F4
 ```bash
 magnet:?xt=urn:btih:C0E8FA9359C753D5F3813E0B672E578D212C4D9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:C0E8FA9359C753D5F3813E0B672E578D212C4D9D
 magnet:?xt=urn:btih:44906D7D5FA92A415C84D5019AF7DCAB4431572D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:44906D7D5FA92A415C84D5019AF7DCAB4431572D
 ```bash
 magnet:?xt=urn:btih:1D1738F5E71401C78878F9AB78435D0C5A4CFD75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:1D1738F5E71401C78878F9AB78435D0C5A4CFD75
 magnet:?xt=urn:btih:EDF0C7E9B1CB6FDC1A5297DD1908D756403866CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:EDF0C7E9B1CB6FDC1A5297DD1908D756403866CE
 ```bash
 magnet:?xt=urn:btih:4097EF615A9E04C7AB6AFD1632AB51DA6C7C88AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:4097EF615A9E04C7AB6AFD1632AB51DA6C7C88AB
 magnet:?xt=urn:btih:77BB62A99278817AF1059EB3FA05AEF024B6AA7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:77BB62A99278817AF1059EB3FA05AEF024B6AA7A
 ```bash
 magnet:?xt=urn:btih:1E40D0C0766B78608FC0CEC2CB96EC275FE86463
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:1E40D0C0766B78608FC0CEC2CB96EC275FE86463
 magnet:?xt=urn:btih:C0D52CB903C2190E83E063B65277B284DCE63C83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:C0D52CB903C2190E83E063B65277B284DCE63C83
 ```bash
 magnet:?xt=urn:btih:37C26F3BBE0F069D99E1803F8240105ED34DE05A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:37C26F3BBE0F069D99E1803F8240105ED34DE05A
 magnet:?xt=urn:btih:0953A2D2F6B62E44207293AB30772EAF1721328C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:0953A2D2F6B62E44207293AB30772EAF1721328C
 ```bash
 magnet:?xt=urn:btih:7AABC73206E4198C181DE0E16A3D1E6617161F79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:7AABC73206E4198C181DE0E16A3D1E6617161F79
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +596,8 @@ magnet:?xt=urn:btih:7AABC73206E4198C181DE0E16A3D1E6617161F79
 magnet:?xt=urn:btih:C444C06CC1A1D5E6B77837021EF123E754A880D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +621,8 @@ magnet:?xt=urn:btih:C444C06CC1A1D5E6B77837021EF123E754A880D3
 ```bash
 magnet:?xt=urn:btih:431598CCCF5FEE5DF150E434BB016CEDCFD977C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:431598CCCF5FEE5DF150E434BB016CEDCFD977C8
 magnet:?xt=urn:btih:F2AA63E06610557089CA539F505A84D911C13CE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,29 +675,7 @@ magnet:?xt=urn:btih:F2AA63E06610557089CA539F505A84D911C13CE6
 magnet:?xt=urn:btih:C05E0B9961C013E9793E418F171E676B3437C218
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934556   (502637) от 05.09.2015
-
-Центральное телевидение (05.09.2015) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сегодня мы вылавливаем новости в телеэфире и Интернете, обсуждаем в очередях и в блогах, обмениваемся ссылками на интересные видеоролики и фото и не делим новости на «официальные» и «из жизни». Чтобы вызвать цепную реакцию, любая тема должна отвечать единственному требованию — быть интересной. Тот же принцип положен в основу нового воскресного проекта НТВ «Центральное (   Читать дальше...   )Телекомпания: НТВЖанр: ДокументальныйПродолжительность: 00:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E52EF4DE6F5C35BB7B602884268339B57A552D66
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

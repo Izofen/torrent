@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Chained Echoes - это сюжетная JRPG. С группой героев в
 ```bash
 magnet:?xt=urn:btih:2044E6AD9E027D784A6CC647A26971642E8A0129
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Avowed (2025) [Ru/Multi] (1.5.1.0/dlc) Repack Wanterlude
 magnet:?xt=urn:btih:951AA0E2949FD2994A0A4F6839390EF4A47A2AC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:951AA0E2949FD2994A0A4F6839390EF4A47A2AC6
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Witchfire - это тёмный фэнтезийный ролевой шутер
 magnet:?xt=urn:btih:490A3B0D01C7892222449B2E368F4406721B8A45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Rail Route – экономический симулятор, в котором 
 magnet:?xt=urn:btih:1AC48BD97ABB4331240F182FC917581F2D4102A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ Field of Glory: Kingdoms - это необычная стратегия, поз�
 ```bash
 magnet:?xt=urn:btih:CF3A74F5C6B1D4596599403163E417DD866A8EB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:CF3A74F5C6B1D4596599403163E417DD866A8EB7
 magnet:?xt=urn:btih:BCE9E82D443369BE59CCE02880A931F2FF28E7F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Project Downfall (2022) [Ru/Multi] (1.0.6.2) License GOG
 ```bash
 magnet:?xt=urn:btih:776FD47166F1E7F2009FB69DB49CB7FE2F19415E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Call of Duty Modern Warfare 3 (2023) - ремастер третьей част�
 magnet:?xt=urn:btih:E1A3A618851A6393156092D615E75F70A2C845EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ The Slormancer - эпическая двухмерная экшен-RPG с ис�
 ```bash
 magnet:?xt=urn:btih:5C3CE3379BB2E51FCBB9442B7A657206484D9CE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:5C3CE3379BB2E51FCBB9442B7A657206484D9CE1
 magnet:?xt=urn:btih:D4BE1BED1E1C9E189DE7168152F37463AD5FCC69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:D4BE1BED1E1C9E189DE7168152F37463AD5FCC69
 ```bash
 magnet:?xt=urn:btih:BBF1A919E91F33CC1C4CB1773FF9DD2D35E20ABC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:BBF1A919E91F33CC1C4CB1773FF9DD2D35E20ABC
 magnet:?xt=urn:btih:BCC9A8A27850177BC449CC3565D651DA1F0A2845
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:BCC9A8A27850177BC449CC3565D651DA1F0A2845
 ```bash
 magnet:?xt=urn:btih:4D4C8E772328AEAE0263DF4062305C1D0D77FAD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Via Mistica - Fallen Angels (2004) 2005 [FLAC|Lossless|image + .cue] <Gothic Met
 magnet:?xt=urn:btih:F9604BEB1D9FF65AD1DEDA9AC2DB7AF330AF196C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:F9604BEB1D9FF65AD1DEDA9AC2DB7AF330AF196C
 ```bash
 magnet:?xt=urn:btih:0FA6B782E9DF5EF97FEE706BA02BF627017A52D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ Herman Frank - Studio Albums (5 releases) (2009-2021) hand made [restored, decli
 magnet:?xt=urn:btih:C943394C97F4DCDBFDFA5366DA7452CE81E08A17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:C943394C97F4DCDBFDFA5366DA7452CE81E08A17
 ```bash
 magnet:?xt=urn:btih:B7A7624FAF5488EC826FE84D952B0C9BF3E48DEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:B7A7624FAF5488EC826FE84D952B0C9BF3E48DEF
 magnet:?xt=urn:btih:FAD27BE038DF0FAB4A2D08DFB2D42FFD743297D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:FAD27BE038DF0FAB4A2D08DFB2D42FFD743297D2
 ```bash
 magnet:?xt=urn:btih:19DB613F7995F168D053F4C922DE437048110BFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ Frank Wess & Johnny Coles - Two At The Top (1983 - 1988) 2CD, 2012, Uptown Recor
 magnet:?xt=urn:btih:E157927B62043660EC7E2D529155C7BF51198D33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:E157927B62043660EC7E2D529155C7BF51198D33
 ```bash
 magnet:?xt=urn:btih:1781B401D34CDEEBD083A8D5C6F6D24040453776
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ magnet:?xt=urn:btih:1781B401D34CDEEBD083A8D5C6F6D24040453776
 magnet:?xt=urn:btih:76E067DDEA32DD2F325E90541BC25FDBB01085FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:76E067DDEA32DD2F325E90541BC25FDBB01085FE
 magnet:?xt=urn:btih:840E58A67978A113B9BF1C6BC031B2023171C674
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:840E58A67978A113B9BF1C6BC031B2023171C674
 ```bash
 magnet:?xt=urn:btih:28AE60B2E0A78E61985DCE31A92A2D127C245655
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

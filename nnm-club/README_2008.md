@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:FA1ABC546EC08F1A3B133E89F2E1F9545B6D622F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ R-Studio Network 9.4 Build 191329 RePack (& portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8CA7FAC114C9CAFA98875FEC5EDDC72B5C90572C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:8CA7FAC114C9CAFA98875FEC5EDDC72B5C90572C
 magnet:?xt=urn:btih:7153F8E8312EFE665C96792A23AD02924FF20A76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:7153F8E8312EFE665C96792A23AD02924FF20A76
 ```bash
 magnet:?xt=urn:btih:394F85F2F98162F6F107CD96440900CD21656AE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:394F85F2F98162F6F107CD96440900CD21656AE3
 magnet:?xt=urn:btih:BD259BF17C5680A3CFF3772C0FD5FAB5AC7259BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:BD259BF17C5680A3CFF3772C0FD5FAB5AC7259BC
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:BD259BF17C5680A3CFF3772C0FD5FAB5AC7259BC
 magnet:?xt=urn:btih:ACB79C4FC1EFF72E542D7612991D456709B2D5A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:ACB79C4FC1EFF72E542D7612991D456709B2D5A5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:ACB79C4FC1EFF72E542D7612991D456709B2D5A5
 magnet:?xt=urn:btih:A78B061B74D73D839014E866F94D7FB6E5EB19E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:A78B061B74D73D839014E866F94D7FB6E5EB19E3
 ```bash
 magnet:?xt=urn:btih:02915B537DE1C87A17997439AC9FF61247023DFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:02915B537DE1C87A17997439AC9FF61247023DFB
 magnet:?xt=urn:btih:86AC63A434662E563E7EF0E4726AF5AAC6514FD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:86AC63A434662E563E7EF0E4726AF5AAC6514FD1
 ```bash
 magnet:?xt=urn:btih:7F67B2DF20E7FCF727D666285CD6E04FB9090C57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:7F67B2DF20E7FCF727D666285CD6E04FB9090C57
 magnet:?xt=urn:btih:B63AA22C7DC725BE37AD0F9CC7BFB584F488CDF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:B63AA22C7DC725BE37AD0F9CC7BFB584F488CDF6
 ```bash
 magnet:?xt=urn:btih:8E866386F8F13D3B2E97B843F288195389E2EC50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:8E866386F8F13D3B2E97B843F288195389E2EC50
 magnet:?xt=urn:btih:BDBD8D8E1A023444DF2402C427DA6E8AD22E61CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Android Studio - полностью укомплектованная платф�
 ```bash
 magnet:?xt=urn:btih:EF5A2D3C921AA54E2130AE6382AEF08C49FED8AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:8C9E0D3BB978A36EB332E21A5D27FFF0E2E5BC12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Astro Note | Записи Астро [2024, TV, 12 эп.] WEBRip 720p raw
 ```bash
 magnet:?xt=urn:btih:391CB5DAEC5B9FEFFCD6D1B71D451FAE1437ACC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:391CB5DAEC5B9FEFFCD6D1B71D451FAE1437ACC2
 magnet:?xt=urn:btih:F71798B71F81AC27B26AA415B0DD054BAB79A38D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:F71798B71F81AC27B26AA415B0DD054BAB79A38D
 ```bash
 magnet:?xt=urn:btih:06A56EDFB27D356896EE92C3F4B552520810E8A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:06A56EDFB27D356896EE92C3F4B552520810E8A5
 magnet:?xt=urn:btih:4C1A5E18002D46099A19757BD8A36F8A055C2E11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:4C1A5E18002D46099A19757BD8A36F8A055C2E11
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Rootkit (руткит) - набор программ, которые хакер 
 magnet:?xt=urn:btih:87139A9F5CB3BD0CD139ED4D65E944C19112E71B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:87139A9F5CB3BD0CD139ED4D65E944C19112E71B
 ```bash
 magnet:?xt=urn:btih:BD4602B963D00970CB8822F2FE75B4F28C342EC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:BD4602B963D00970CB8822F2FE75B4F28C342EC6
 magnet:?xt=urn:btih:143A505AB470621600082517CB8DD3E84729A17C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Honeyview - быстрый и удобный просмотрщик графич
 ```bash
 magnet:?xt=urn:btih:306F12DEFC317000D459AA872C8C5B69764F5E7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

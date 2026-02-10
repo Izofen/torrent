@@ -22,6 +22,8 @@ Ruby The Hatchet - Fear Is a Cruel Master (2022) [MP3|320 Kbps] <Heavy Rock, Sto
 magnet:?xt=urn:btih:56B4039031659775A8A52FA9AB859A967AABC223
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:56B4039031659775A8A52FA9AB859A967AABC223
 magnet:?xt=urn:btih:021320B516A8707A284924E2E4030FA1783C7529
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:021320B516A8707A284924E2E4030FA1783C7529
 ```bash
 magnet:?xt=urn:btih:136EB262315B012DF598DC183A77B2B67188BBDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:136EB262315B012DF598DC183A77B2B67188BBDC
 magnet:?xt=urn:btih:055D3FB08475C246DFE734F436F627F30441C8B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:055D3FB08475C246DFE734F436F627F30441C8B8
 ```bash
 magnet:?xt=urn:btih:E2D98ED8DCAD5FF77438F46B321D4140B5EF88BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ DSLR Assistant 3.9.0 [En]
 magnet:?xt=urn:btih:7C358F7647228FDD151D4CDB0EA2E03601EA4D1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ InfoCity - Азербайджанский ежемесячный журнал о
 ```bash
 magnet:?xt=urn:btih:641C96AF389646144060D9218E871134242B1B49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ VA - Gert Records 10 Years Anniversary - (Mixed by DJ Mena) (2022) [MP3|320 Kbps
 magnet:?xt=urn:btih:BC97F20451A2876787645178F3C1F9DF6C4741C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ Beegie Adair - Best Of Beegie Adair: Jazz Piano Christmas Perform (2020) [FLAC|L
 magnet:?xt=urn:btih:D477E38D10B51AE6F7F45F471140F7E0F8800805
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:D477E38D10B51AE6F7F45F471140F7E0F8800805
 magnet:?xt=urn:btih:8AF64C97E1710C7EE9EFC1E7351281F648F70884
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:8AF64C97E1710C7EE9EFC1E7351281F648F70884
 ```bash
 magnet:?xt=urn:btih:B2803E2132F033ED06EBB1453E904F2DB8835459
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ CD1:
 magnet:?xt=urn:btih:6F70CD9B8454D13554A53F63914FF0BBC0FC9DBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:6F70CD9B8454D13554A53F63914FF0BBC0FC9DBF
 ```bash
 magnet:?xt=urn:btih:E2EAEB0AE10BC28F186C2197B1D6A7DCDF307943
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ Downie поддерживает более 1,000 популярных сайто
 magnet:?xt=urn:btih:63684D5D75C33F68A3E3531F23DB30FB9E653FAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ Kane & Lynch 2: Dog Days [Ru/En] (L) 2010 2xDVD5
 ```bash
 magnet:?xt=urn:btih:705126E5B2E5F7A2398C5112CA71BC136A55ECDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ Otus - Torch (2022) [MP3|320 Kbps] <Doom, Sludge Metal>
 magnet:?xt=urn:btih:504D97C1D2B88CCEF1B7097FF697FD7581A22C6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ Movist является простым в использовании и мощн
 magnet:?xt=urn:btih:CD84560EC738EF61868E4E103EE66C6C37216779
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ Gothic II: Золотое Издание включает оригинальну
 ```bash
 magnet:?xt=urn:btih:314D937EFBFEC36B27CD85E1BE2336A9257EF3E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +516,8 @@ Sheryl Crow - Live At The Capitol Theater 2017 (2018) DVD5 [custom]
 magnet:?xt=urn:btih:F9A38F05BDD8588D2D8599D4B1A4717FDDD33AB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +542,8 @@ magnet:?xt=urn:btih:F9A38F05BDD8588D2D8599D4B1A4717FDDD33AB8
 magnet:?xt=urn:btih:BCD9B7F8725F6566AEC9FE143E2B9A2DB0C72DF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +567,8 @@ magnet:?xt=urn:btih:BCD9B7F8725F6566AEC9FE143E2B9A2DB0C72DF0
 ```bash
 magnet:?xt=urn:btih:EFDABF40A65FB90CB5722D6E8500DEE7C6B653EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +597,8 @@ VA - New Habitat: Synth Electronic Music (2019) [MP3|320 Kbps] <Synthwave, Elect
 magnet:?xt=urn:btih:A175C47DC53443DF06DAF5549B1B05749BBDC1C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +623,8 @@ magnet:?xt=urn:btih:A175C47DC53443DF06DAF5549B1B05749BBDC1C0
 ```bash
 magnet:?xt=urn:btih:1636943378CA3CC6864CF15E851B078FB34BB87B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +652,8 @@ magnet:?xt=urn:btih:1636943378CA3CC6864CF15E851B078FB34BB87B
 magnet:?xt=urn:btih:73E282FC94A77E5B294BB50B5B18A9CD319B5A24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +679,8 @@ magnet:?xt=urn:btih:73E282FC94A77E5B294BB50B5B18A9CD319B5A24
 ```bash
 magnet:?xt=urn:btih:49CA8AF81A26F6B51BDCA406481AEDA01965E0E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -658,6 +708,8 @@ VA - Anjunabeats The Yearbook (2019) [MP3|320 Kbps] <Trance, Progressive House>
 ```bash
 magnet:?xt=urn:btih:26B57BFA26065052494A41934E8E770C4806EEF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

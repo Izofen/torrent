@@ -21,6 +21,8 @@ Udemy, Jonas Schmedtmann | Node.js, Express, MongoDB & More: The Complete Bootca
 magnet:?xt=urn:btih:ED252EC0455C3F88E4587A804BEC6ED9FD8B1491
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Udemy, Zachary Reece | A Complete Guide to the JAMstack and React E-Commerce (20
 ```bash
 magnet:?xt=urn:btih:609EE11914CF2BC69A299C88AEDA2AB558B77AA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ Udemy, Jason Cannon | Linux Shell Scripting: A Project-Based Approach to Learnin
 magnet:?xt=urn:btih:94E67BBA311807301963DEB911E56A3873BC220E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ ezracohen.tv, Ezra Cohen | Residual income for creatives (2019) PCRec
 magnet:?xt=urn:btih:37C4BB17009447D525786D8D4B5FAEBD6E243930
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:37C4BB17009447D525786D8D4B5FAEBD6E243930
 magnet:?xt=urn:btih:678D3965ABDEE30F40AB61A23E670D093E6C2E7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ live | classes, Артур Орлов | Практика работы со зв�
 ```bash
 magnet:?xt=urn:btih:DBF5E303A6D19D7EB23CD1FAEAD4A836A96456F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ CGMA, Nate Wragg | Art Direction for Character Designers (2018) PCRec
 magnet:?xt=urn:btih:2B0D6D3D8B38837CF53EA3452FB4116F290E5A58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ CGMA, Nate Wragg | Character Design for Production (2016) PCRec
 ```bash
 magnet:?xt=urn:btih:28ABCEA28DC16A03751EBF1AFC867D0A5F720C6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ CGMA, Erik D. Martin | Digital Painting Workshop (2011) PCRec [En, Ru]
 magnet:?xt=urn:btih:CC0A4B03A3F526CF61628D395413EED12A56C318
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ MP4FM, Garrett Fry | Camera Projection Boot Camp Part 1 (2016) PCRec
 ```bash
 magnet:?xt=urn:btih:11A98D0B4B512B2CD38605C1CC906ACA313FEFE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ Udemy, Kati Frantz | Advanced React For Enterprise: React for senior engineers (
 magnet:?xt=urn:btih:419F64AD784728A8A9D0A4AADA0AF4D8453F6EEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ Udemy, Apiko Academy | Frontend React JS Web Development Course (2021) PCRec [UK
 ```bash
 magnet:?xt=urn:btih:3B5EA0B4137BD8919E09973B161CAC943BA39900
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ Udemy, Scott Barrett | JavaScript Algorithms and Data Structures Masterclass (20
 magnet:?xt=urn:btih:F62FD3178D9195A74665D6605A80DC5F1432E40D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ Society of Visual Storytelling, Dennis Zilber | Digital painting with Dennis Zil
 ```bash
 magnet:?xt=urn:btih:589EE87511BA91D710B17ED50361BDC78799C086
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +397,8 @@ Society of Visual Storytelling, Will Terry | Beginning Photoshop (2015) PCRec [E
 magnet:?xt=urn:btih:8993FBEA7DF35F9E9518D77F6C82E0EBE831708E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ Skillshare, Patrick Brown | Characters in a Scene: Sketch to Digital (2014) PCRe
 ```bash
 magnet:?xt=urn:btih:9DCA29EC38AB31C350966299B1ACDD1A6E456A02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ Yiihuu, Marcelo Prado | Creating a Sci-Fi Character for Games (2018) PCRec [EN]
 magnet:?xt=urn:btih:E7BB286ECB59AAA746CCB2617DDD2C0B2B4BEAA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:E7BB286ECB59AAA746CCB2617DDD2C0B2B4BEAA7
 ```bash
 magnet:?xt=urn:btih:57FF9F3C4658FF378767C84D3B9426A45794D0F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +510,8 @@ magnet:?xt=urn:btih:57FF9F3C4658FF378767C84D3B9426A45794D0F3
 magnet:?xt=urn:btih:E81DB48576A9982940924912621AA876D0DDB665
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ Blender Fast Track Vol 2: Sword in the Stone - Мечь в камне
 magnet:?xt=urn:btih:B8487D65167E3D801383B2EC75AC78B158AF579D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +565,8 @@ Udemy, Mrawan Hussain | Создание робота из Звёздных во
 ```bash
 magnet:?xt=urn:btih:94769757C2256D002CAEE0744857557EF15996F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +593,8 @@ Skillbox, Евгений Скориков | Системный аналитик 
 ```bash
 magnet:?xt=urn:btih:938076B5B8D4030B345CCE04E8C6F65A2D53E20D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +623,8 @@ Instagram-щик | Хэштег - марафон для Instagram (2021) PCRec
 magnet:?xt=urn:btih:22EE4D7D8EA9AC42617F7B91913C1914E7EF2A71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +648,8 @@ magnet:?xt=urn:btih:22EE4D7D8EA9AC42617F7B91913C1914E7EF2A71
 ```bash
 magnet:?xt=urn:btih:45551E5FF0B76858EFC7FD31408D21185BF33581
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +677,8 @@ Swiftbook, Алексей Ефимов  и др. | Профессия iOS-раз
 magnet:?xt=urn:btih:4C10A0600531781A9597339D29BCCA2AB2699EAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +704,8 @@ Udemy, Jonas Schmedtmann | Build Responsive Real-World Websites with HTML and CS
 ```bash
 magnet:?xt=urn:btih:05CCB3EF50232519DE53B3E678367A8C1D724735
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

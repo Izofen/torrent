@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:AA05B2B3F5E6A62992CECD38B8ABBEAC2ABA7A7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ AINUR For Android (A4A) - Большой сборник
 ```bash
 magnet:?xt=urn:btih:7693709E7483D73B040E40B124B4F80C211A2A62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Strange Investigations 2: Two For Solitaire / Удивительные расс�
 magnet:?xt=urn:btih:700B491378D254EACFC357516AA6C17F78F67A97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:700B491378D254EACFC357516AA6C17F78F67A97
 ```bash
 magnet:?xt=urn:btih:AD26BDC02B55CFEE4CA82B84DAFB09674716F020
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:AD26BDC02B55CFEE4CA82B84DAFB09674716F020
 magnet:?xt=urn:btih:167D872F2051D5FF1A8A4681BC05E8FE97645736
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:167D872F2051D5FF1A8A4681BC05E8FE97645736
 ```bash
 magnet:?xt=urn:btih:5A4164DF035D6E145453CE8404E3D8B1DA392704
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Smart Launcher - программа для преобразования поль
 magnet:?xt=urn:btih:3864275B417E4010D4BA6D0910313D9DD5FEA410
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:3864275B417E4010D4BA6D0910313D9DD5FEA410
 ```bash
 magnet:?xt=urn:btih:7A16CBEC417BFE3857D3674C0B4004445C21AC4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ VA - Retro remix май (2022) [MP3|256-320 Kbps] <Club House, Russian Pop>
 magnet:?xt=urn:btih:7415A62851D7647B52C25B8A01F9A19E0923E0B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:7415A62851D7647B52C25B8A01F9A19E0923E0B7
 ```bash
 magnet:?xt=urn:btih:00D853F03A2CC627B44FDC3C5BBDEAE3132E9288
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ _june_2022_x64_dvd_bd124508.iso
 magnet:?xt=urn:btih:C109B85625EC912783E3DEDE3BFA19EFDFD934DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ Eminem & Snoop Dogg - From The D 2 The LBC (2022) WEB-DL [H.264/1080p] <Alternat
 magnet:?xt=urn:btih:620EA253FB3828E6FEC38DF5C3B0424DB883640C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:620EA253FB3828E6FEC38DF5C3B0424DB883640C
 ```bash
 magnet:?xt=urn:btih:FDC2FFD3CFC0F00EE8276223CB47C807BEA88CDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:FDC2FFD3CFC0F00EE8276223CB47C807BEA88CDE
 magnet:?xt=urn:btih:C3A4911FC91EEA0067298CF4D06D019E688BCDC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:C3A4911FC91EEA0067298CF4D06D019E688BCDC3
 ```bash
 magnet:?xt=urn:btih:129CDFB3F7DC53BE2D78EC6D5EE9981F744629EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:129CDFB3F7DC53BE2D78EC6D5EE9981F744629EB
 magnet:?xt=urn:btih:899F445EEFDAA289508038BE514E30604855D5D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:899F445EEFDAA289508038BE514E30604855D5D9
 ```bash
 magnet:?xt=urn:btih:48C95A82943D1995E483EBF180BEF5136C957833
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ Alien Breed 3: Descent - заключительная взрывная глав�
 magnet:?xt=urn:btih:617948CBEBAC2D4C84A975094D7951D952BE5AC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:617948CBEBAC2D4C84A975094D7951D952BE5AC9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ Alien Breed 2: Assault - вторая глава в серии игр Alien Bree
 magnet:?xt=urn:btih:68018862E1069667340871E546A8BE2F1A176814
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Alien Breed Impact - это взрывной научно-фантастичес
 ```bash
 magnet:?xt=urn:btih:9AFB15723E8602EA409AB817A430BBA76E99C1B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:9AFB15723E8602EA409AB817A430BBA76E99C1B1
 magnet:?xt=urn:btih:B4CB13F624EC4FD2A5C593F6044CB824D7EE7D42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:B4CB13F624EC4FD2A5C593F6044CB824D7EE7D42
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:B4CB13F624EC4FD2A5C593F6044CB824D7EE7D42
 magnet:?xt=urn:btih:41D6CF6543FC64F3FF842F2869C29E11350DF54E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:41D6CF6543FC64F3FF842F2869C29E11350DF54E
 magnet:?xt=urn:btih:539EAE9656B8376600B6DFC9F1878E3095979A5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Tor Browser Bundle 11.0.15 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:BA8938447BE6F34151530E6B598D8385B91A7444
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

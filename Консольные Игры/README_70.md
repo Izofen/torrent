@@ -19,6 +19,8 @@ Teenage Mutant Ninja Turtles: Out of the Shadows вернет вас обрат�
 magnet:?xt=urn:btih:02E3A187CFA762B20F7CF5C300113E8C30C0C2A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Resident Evil Code: Veronica, в Японии — Biohazard Code: Veronica — �
 ```bash
 magnet:?xt=urn:btih:7884F454166E36C1094C27B8C0FE6080E87B6C7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Tom Clancy's Splinter Cell: Double Agent [PS3] [EUR] [Multi5] [1.54] [Cobra ODE 
 magnet:?xt=urn:btih:FC0B2DB06B10C48B6C415B6554BDADD6C270703C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Pac-Man and the Ghostly Adventures 2 является продолжением �
 magnet:?xt=urn:btih:5A8DCE03C1C2452F2A99C9A5C076D1409EC2E28B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Naruto Shippuden: Ultimate Ninja Storm 3 Full Burst [XBOX360] [PAL / NTSC-J] [Ru
 ```bash
 magnet:?xt=urn:btih:1883C170A0CF1549DB3131268BF9991150227EC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ Vanquish [PS3] [USA] [En] [3.41] [Cobra ODE / E3 ODE PRO ISO] (2010)
 magnet:?xt=urn:btih:9955DD1A5570ACA5F83EB9CEC38A6B6E1BC0E917
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ Way of the Samurai 4 [PS3] [EUR] [En/Jp] [4.21] [Cobra ODE / E3 ODE PRO ISO] (20
 magnet:?xt=urn:btih:530E7FFEACC2DACEE393C48CDC0C335A3C8A7E24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ Mugen Souls [PS3] [EUR] [En] [4.21] [Cobra ODE / E3 ODE PRO ISO] (2012)
 ```bash
 magnet:?xt=urn:btih:ACF84EFD23F2D96C843BEFA488732D96AEF210E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ Hyperdimension Neptunia Victory [PS3] [EUR] [En] [4.31] [Cobra ODE / E3 ODE PRO 
 ```bash
 magnet:?xt=urn:btih:51E642B87D5198B774A2E32C6A50D9E340B988EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ Rune Factory: Frontier [Wii] [PAL] [Multi 3] (2009)
 magnet:?xt=urn:btih:1C9BFF9F064EF82119E90A44192B039CA22D0695
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ Marines: Modern Urban Combat [Wii] [PAL] [Multi 5] (2010)
 magnet:?xt=urn:btih:A082740D64757283B3BAD9106636F06C2713EE88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ Mayhem 3D- чёрно-белая гоночная аркада, графика �
 ```bash
 magnet:?xt=urn:btih:527891C1169D5FAEC7AF8D52A6964FC9129B2D21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ Retro City Rampage [WiiWare] [Region Free] [Eng] (2013)
 magnet:?xt=urn:btih:60453ABF61AD2AB53AF2BE5AF4CDBF5259BD863E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ Resident Evil: Operation Raccoon City [PS3] [EUR] [Ru/En] [4.01] [Cobra ODE / E3
 ```bash
 magnet:?xt=urn:btih:5218778019B3F59596651E604C20B90AE20F4A99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ Zombie Apocalypse: Never Die Alone является прямым продолж�
 magnet:?xt=urn:btih:8BA8504250BE14A7BDE51312F4A69616731457AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ Zombie Apocalypse отправляет множество хорошо воор�
 ```bash
 magnet:?xt=urn:btih:8373A9C83D933B3079E2BF07B84938CFD48870F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ Killer is Dead отличается необычным графическим с
 magnet:?xt=urn:btih:27B1EF3FAE00C62CB6907EE889E13C5BA3BCD543
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ Ghostbusters: The Video Game (2009) [PS3] [EUR] 2.60 [Cobra ODE / E3 ODE PRO ISO
 magnet:?xt=urn:btih:1F6E1A7709D76FC92CE47EBB63EBC71E5B8528A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ SoulCalibur II HD Online (2013) [Xbox360] [RegionFree] 16537 [Freeboot] [XBLA] [
 ```bash
 magnet:?xt=urn:btih:5DEF3A75572B3484E0D0378BDC65B6938EC9AE58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +533,8 @@ Just Dance 2017 (2016) [Xbox360] [RegionFree] 17349 [LT+3.0 / XGD3] [License] [E
 magnet:?xt=urn:btih:AA6ECDE7275C06E4023072672FFB0377EC664671
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ Lost Planet: Extreme Condition (2008) [PS3] [JAP] 2.10 [Cobra ODE / E3 ODE PRO I
 ```bash
 magnet:?xt=urn:btih:71CB9ECAC74DA45B08F715950721C7E767DBD452
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +585,8 @@ Need for Speed ProStreet (2007) [Xbox360] [PAL] 5787 [FreeBoot] [License] [Ru]
 magnet:?xt=urn:btih:EADCFDCF61580985FE32500A92D1A61C79D0B1E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ Vanquish (2010) [PS3] [USA] 3.40+ [Repack / 1.01] [En]
 magnet:?xt=urn:btih:AEFE40E9D8461420638D8F828870932CC208BEF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ A Shadow's Tale - не совсем обычная аркада, в которо
 ```bash
 magnet:?xt=urn:btih:0497F4481333518F2DA34DA00AF91D1DA69D5487
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +665,8 @@ NHL 16: Legacy Edition (2015) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Uno
 magnet:?xt=urn:btih:78C4F7CE1515C3DCE62844B9267E415EDA0222F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ Lost Planet: Extreme Condition (2008) [PS3] [JAP] 2.10 [Unofficial] [Ru/Multi] |
 ```bash
 magnet:?xt=urn:btih:5082E0137E046A98CC7FA4593F1B271541D456DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

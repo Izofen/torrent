@@ -1,3 +1,29 @@
+###  Публикация: 1460170   (1022790) от 04.04.2021
+
+Военная приемка. Минные заградители. Создатели непроходимых полей (04.04.2021) WEB-DLRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главные герои нового выпуска «Военной приемки» - УМЗ, универсальные минные заградители нескольких весовых категорий. Самый легкий - на базе колесного броневика «Тайфун-ВДВ», самый тяжелый - на основе танка Т-90. Задача этих машин - раскидать на пути врага тысячи мин и за считанные минуты сформировать непроходимое минное поле. Автор программы Алексей Егоров побывает (   Читать дальше...   )Телекомпания: ОАО «ТРК ВС РФ «ЗВЕЗДАЖанр: ТелепередачаРежиссер: Александр ШильниковСубтитры: ОтсутствуетПродолжительность: 00:38:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2CDECB197F39AF5D8A11D7D0378985A53750EC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1459809   (1022794) от 04.04.2021
 
 Дом Пьера Кардена / House of Cardin (2019) DVB [H.264/1080i-LQ] MVO
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:8A39BACEE21392D77AF0E2719C2201B4A5432AA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:8A39BACEE21392D77AF0E2719C2201B4A5432AA5
 magnet:?xt=urn:btih:56852B981D66FA1472470E144249541D37E7AACC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:56852B981D66FA1472470E144249541D37E7AACC
 ```bash
 magnet:?xt=urn:btih:0F157E02A74FA6B6618FF81EB021EB2D34A3F3FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:0F157E02A74FA6B6618FF81EB021EB2D34A3F3FD
 magnet:?xt=urn:btih:BF47AC1473BAEAE16860876DEDC1FE38696D78EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:BF47AC1473BAEAE16860876DEDC1FE38696D78EB
 ```bash
 magnet:?xt=urn:btih:57926636B365D9DE0DC3B391BA659669892E8F94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:57926636B365D9DE0DC3B391BA659669892E8F94
 magnet:?xt=urn:btih:90BABA1D4CDE1986D9E3DB7B43B7388DD71EB768
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:90BABA1D4CDE1986D9E3DB7B43B7388DD71EB768
 ```bash
 magnet:?xt=urn:btih:C550A03B9E2867B1B5EB53E47180234BEA4E8181
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:C550A03B9E2867B1B5EB53E47180234BEA4E8181
 magnet:?xt=urn:btih:70423BF1C2D230451AEB3A0F86E086AE8583F974
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:70423BF1C2D230451AEB3A0F86E086AE8583F974
 magnet:?xt=urn:btih:7F38F46C2D74B30F2639CAD5DC2A36FF3A1E3B57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +278,8 @@ magnet:?xt=urn:btih:7F38F46C2D74B30F2639CAD5DC2A36FF3A1E3B57
 ```bash
 magnet:?xt=urn:btih:F8B166F1385F1BB0A66876D60E1FF60077218E1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:F8B166F1385F1BB0A66876D60E1FF60077218E1C
 magnet:?xt=urn:btih:E9A9F3A4E8AEB3EE82436DD24B1D27D6F9216766
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:E9A9F3A4E8AEB3EE82436DD24B1D27D6F9216766
 ```bash
 magnet:?xt=urn:btih:CBE4FFBFB0D153AACB60DB91285C2F748037C1BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:CBE4FFBFB0D153AACB60DB91285C2F748037C1BF
 magnet:?xt=urn:btih:0B7FC3D7EC09EE748A098988959570B7B97F33E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:0B7FC3D7EC09EE748A098988959570B7B97F33E5
 ```bash
 magnet:?xt=urn:btih:5B576A3BADB22AE3252A8E8A2E78FC75CF3E47F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:5B576A3BADB22AE3252A8E8A2E78FC75CF3E47F7
 magnet:?xt=urn:btih:376BF4685D677C350B460205FB94EAE6B7C1C48F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:376BF4685D677C350B460205FB94EAE6B7C1C48F
 ```bash
 magnet:?xt=urn:btih:537B9736C953CBFFC7497A44F25170164FD10539
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:537B9736C953CBFFC7497A44F25170164FD10539
 magnet:?xt=urn:btih:05B3E28253BCF530953F8D5EC85C6E34357D32F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:05B3E28253BCF530953F8D5EC85C6E34357D32F0
 magnet:?xt=urn:btih:E500710E2566E2FDEFDA14D589395F38D069CAB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:E500710E2566E2FDEFDA14D589395F38D069CAB7
 ```bash
 magnet:?xt=urn:btih:62BED67D92631AC7E52DE11BD6A4BCB039054286
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:62BED67D92631AC7E52DE11BD6A4BCB039054286
 magnet:?xt=urn:btih:2EE4D9723A666D09E73B1DCF19F62377EF983BCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:2EE4D9723A666D09E73B1DCF19F62377EF983BCE
 ```bash
 magnet:?xt=urn:btih:3D1B3C56EDE5998C4957C06354DE31D15364BE0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:3D1B3C56EDE5998C4957C06354DE31D15364BE0B
 magnet:?xt=urn:btih:0D79F5B7ADBFC619D0DB0B3B4F9CDC050E455D27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:0D79F5B7ADBFC619D0DB0B3B4F9CDC050E455D27
 ```bash
 magnet:?xt=urn:btih:13B10B48421ADC391426CD445AC93D2633FF2D1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:13B10B48421ADC391426CD445AC93D2633FF2D1F
 magnet:?xt=urn:btih:76463C43585AAA363C4B2FF3DE38719603C4BCB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,32 +675,7 @@ magnet:?xt=urn:btih:76463C43585AAA363C4B2FF3DE38719603C4BCB5
 magnet:?xt=urn:btih:42DA473615430B86A5BC9D4B98C49D0050A6C1C0
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456236   (1024168) от 27.03.2021
-
-Космос Просто | Дамп Youtube-канала Космос Просто (2016-2020) WEB-DL
-
->>Документалистика и Телепередачи
->>Космос
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полный дамп канала Космос Просто на 21.03.2021
-
-Космос просто — это видео о космосе простым языком.
-(   Читать дальше...   )Телекомпания: YoutubeЖанр: ДокументальныйПеревод: ОтсутствуетЯзык озвучки: РусскийПродолжительность: Выпуски от ~00:02:00 до ~00:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95BACB77ADB4B6511DDE9CC542E9C2CD1426852F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

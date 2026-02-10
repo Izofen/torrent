@@ -1,3 +1,32 @@
+###  Публикация: 1207411   (780605) от 18.02.2018
+
+VA - The Official UK Top 40 Singles Chart 16.02.2018 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drake - God's Plan
+02. Rudimental - These Days (feat. Jess Glynne, Macklemore & Dan Caplen)
+03. Keala Settle & The Greatest - This Is Me
+04. Dua Lipa – IDGAF(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:21:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA1BDB8E2BED04998A352FE9A7CEBD6C06BCB0EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207441   (780608) от 18.02.2018
 
 VA - The Best Of Trance 65 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -21,6 +50,8 @@ VA - The Best Of Trance 65 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:C5A76C49C0B7DFB8FF0355E38060457FF6BFFDEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Express Train (2018) [MP3|320 Kbps] <House, Techno, Electro>
 magnet:?xt=urn:btih:55B36D36A40D99FB6387A904FD8CAA44CAA58271
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Старые Песни по-новому. Интернациональны
 ```bash
 magnet:?xt=urn:btih:6F98024393820F13D3F74E592B119C102C8451AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -108,6 +143,8 @@ VA - Relax-Café (2008) [MP3|320 kbps]<ChillOut, Ambient, Relax>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -134,6 +171,8 @@ VA - Зайцев.Нет: Лучшие Новинки Февраля (2018) [MP3
 ```bash
 magnet:?xt=urn:btih:744493006FC7A69C40B2D59ED211761DDDAB6FCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -162,6 +201,8 @@ VA - Рок впрок 9 (2018) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:184872748A8F38DC567EC7B7A4A5A2920EB8AA19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +229,8 @@ VA - Kiss FM: Top 40 Февраль (2018) [MP3|320 Kbps] <House, Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:107A375FEDD293BE8132BF0C05F0273DEC1793DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +259,8 @@ VA - Vocal Trance Collestion Vol. 8 (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:601FEEB9DBDCE15856F2488111FD9B1A4D7C4DDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +287,8 @@ VA - We Love Bossa Nova (2018) [MP3|320 Kbps] <Downtempo, Jazz, House>
 ```bash
 magnet:?xt=urn:btih:B4CDEDF15D49C3986C54F17C05EF6C05E42158D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +317,8 @@ VA - Record Super Chart #524 (2018) [MP3|320 Kbps] <House, Club, Dance>
 magnet:?xt=urn:btih:EAC13BBA0B8D12DA42A32B1D9531EA4F66E2A1EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +345,8 @@ magnet:?xt=urn:btih:EAC13BBA0B8D12DA42A32B1D9531EA4F66E2A1EC
 ```bash
 magnet:?xt=urn:btih:26744A1421FDF420E3D5EBB87C3AF7F8B4D8C4A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +375,8 @@ VA - Beatport Deep House: Electro Sound Pack #107 (2020) [MP3|320 Kbps] <Deep Ho
 magnet:?xt=urn:btih:6524532C8FA97C87E413FEED273B46867481C1DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +403,8 @@ VA - ЕвроХит Топ 40 Europa Plus 19.06.2020 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:2E028180C768F87CDD4DBF6E773C52252DCF7ED4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +433,8 @@ VA - Cowboy Blues: Country Fest Music (2020) [MP3|320 Kbps] <Country, Folk, Blue
 magnet:?xt=urn:btih:F31CB6ECC6DE142DAD89CE520B1246D779716E5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +461,8 @@ VA - Friend Zone: Disco Funky Mix (2020) [MP3|320 Kbps] <Disco, Funky, Pop>
 ```bash
 magnet:?xt=urn:btih:C9549223BF009B3F588AA583D7C4F164EB6C54F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +491,8 @@ VA - The Great Drum Wave (2020) [MP3|320 Kbps] <D&B, Bassline>
 magnet:?xt=urn:btih:93AB8025FCE82B87D3326E31C2AFA740E6F625F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +519,8 @@ VA - Music For Running: Sport Electro Mix (2018) [MP3|320 Kbps] <Techno, Minimal
 ```bash
 magnet:?xt=urn:btih:80E68C79BB33BF6DBA7A81BD2B4824A0AC228AA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +549,8 @@ VA - Absolute Winter Hits (2018) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:210665D4C7AA2B4539EF825401185C8DA738BF12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +577,8 @@ VA - Theme For Lovery Story (2018) [MP3|320 Kbps] <Smooth, Nu Jazz>
 ```bash
 magnet:?xt=urn:btih:EE51E89833CE1AC8D73CA68111E13C776BFA9B52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +607,8 @@ VA - Хит FM ВосХИТительная Двадцатка 10.02. (2018) [MP
 magnet:?xt=urn:btih:046E1BA590C5089A6DFA763F7C5200EF3F0525C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +635,8 @@ VA - Лучшие клубные новинки Vol.12 (2018) (2018) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:884208BA04B764B2FE6AFA9008B59B53562B58A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +665,8 @@ VA - German Top 100 Single Charts 16.02.2018 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:435E0E8BD0A5BC3E971CD3CA46181F8658445395
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +693,8 @@ VA - 120 DJ Neoprint: Trance Project (2018) [MP3|320 Kbps] <Progressive, Vocal, 
 ```bash
 magnet:?xt=urn:btih:4C3809C1907A7350628E0286B1BDE20992884361
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -648,6 +723,8 @@ VA - Music For Everyone - Trance Vol.5 (2018) [MP3|320 Kbps] <Trance, Vocal Tran
 magnet:?xt=urn:btih:57604BC1B24CDFF6EE6A2C6E029998E1AD765595
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -675,32 +752,7 @@ VA - Summer Bass: Jungle Essentials (2020) [MP3|320 Kbps] <D&B, Jungle>
 magnet:?xt=urn:btih:D531BA9BE6B36BBB2B517B4C60E7A7383649F9DB
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206662   (781716) от 15.02.2018
-
-VA - Heavy Manuscript: Hard Compilation (2018) [MP3|320 Kbps] <Heavy, Power Metall>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781716.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Exocrine - Garden Of Flesh
-002. Kings Of Disorder - Murdered One
-003. Absolva - Never Back Down (Acoustic)
-004. Pretty Maids - Was That What You Wanted(   Читать дальше...   )Жанр: Heavy, Power MetallПродолжительность: 19:05:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE77455AEA85A324CEBD425E1DB1E8D6D2142250
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

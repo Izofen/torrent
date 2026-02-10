@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:4D0385B57A19BB8ABE31E967804764E2143A76C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Trials of Innocence - это инди-игра в жанре судебного 
 ```bash
 magnet:?xt=urn:btih:52F9C30F1619B0B6BE278CC4CC013728EE0AA8D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Darkest Files (2025) [Multi] (1.0.3) Repack FitGirl
 magnet:?xt=urn:btih:1D915A2A8B8DD8838F9AE4361693F48CE51929C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Kun'tewiktuk: A Mi'kmaw Adventure - приключенческая игра в �
 ```bash
 magnet:?xt=urn:btih:7EDE6FDD12C226A673BC6DBACB5805015CB41544
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Wild Explorer (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:617C37E75880D53FCD2363BD187485C80A8B823F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Fluffy Sailors (2025) [Multi] (1.1308) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0C6106E1A0C2713355982BD22A486F4FE6931E59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ South of Midnight (2025) [Ru/Multi] (1.1.0 184977) Repack FitGirl [Premium Editi
 magnet:?xt=urn:btih:21F3912CF0F54250EE4873B056B074CA8FEC778B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ IZON. (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:15EEAC2EBF5547F66B70972E00ABCC490353D078
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Last of Us Part II (2) (2025) [Ru/Multi] (1.0.10402.1014/dlc) Repack FitGirl
 magnet:?xt=urn:btih:E06924835DCACE820B1E57582CE3BD85F6B01CCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ South of Midnight (2025) [Ru/Multi] (1.1.0 184977) Scene Rune
 ```bash
 magnet:?xt=urn:btih:15AF6F85989579535D2AD63C14F002C3EEFA627E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ South of Midnight (2025) [Ru/Multi] (1.1.0 184977) Repack seleZen
 magnet:?xt=urn:btih:813AFBFC49DCC3FD6AA076B9D3AB5761154E9903
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Mars Vice - это приключенческая игра, действие к�
 ```bash
 magnet:?xt=urn:btih:C88B863D0FE0D3E2F6677347DB13C91F6DBBECFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Virballs (2024) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:FB805172D04C0020C6518E0A08987325DD789DD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Rosewater (2025) [Multi] (1.00.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3FE3CB5AB78F6D72F27C13D45FADB542234F91A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Lurking Danger (2025) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:288A0F75FFCDE4F200094D87B342A97F1671ED17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Lizards Must Die 2 / Русы против ящеров 2 (2025) [Ru/Multi] (Bui
 ```bash
 magnet:?xt=urn:btih:D28E98B60ECC0E1C49D960F67882AD7C22F40593
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Mark of the Deep (2025) [Ru/Multi] (1.0.0.0.3/dlc) Repack FitGirl [Deluxe Editio
 magnet:?xt=urn:btih:4F1C7A6A911273822216216D8EF04B115CE6004E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Unholy (2023) [Ru/Multi] (30864) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:2A0BBFDB5AEDCED57B007D2815FA7BFD7E893909
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Still Joking (2024) [Ru/En] (1.2251) License GOG
 magnet:?xt=urn:btih:285087AAA07900D780B43A836E2A5FEAA96867D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Lizards Must Die 2 / Русы против ящеров 2 (2025) [Ru/Multi] (bui
 ```bash
 magnet:?xt=urn:btih:487A840AF796CFB4A532AC89CB58B413679FEFDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15770319/dlc) Repack Wanterl
 magnet:?xt=urn:btih:95BB4187EB459042AEDC9009C6D1D2F67C7FA00C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Lizards Must Die 2 / Русы против ящеров 2 (2025) [Ru/Multi] (bui
 ```bash
 magnet:?xt=urn:btih:D76B7A19ED32294CB1CA64769794C31251DA1347
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ MOOD - это мрачная визуальная новелла, с элеме�
 magnet:?xt=urn:btih:9C30F8A480F891CB8BF5CF40A45C4083D149948F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Them and Us - классический хоррор на выживание с �
 ```bash
 magnet:?xt=urn:btih:AF802C775E8E466F30F9D45E562571AA17069179
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Chorus of Carcosa (2025 ) [Ru/Multi] (01.08) Repack FitGirl
 magnet:?xt=urn:btih:553F5449C389C88B6C746DBDBF3730B34038F20C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Them and Us - классический хоррор на выживание с �
 ```bash
 magnet:?xt=urn:btih:F49BC1860BACAED6B0A914EC64D36617E368C5E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ KIBORG (2025) [Ru/Multi] (202.50.4 30:1:50) Repack seleZen
 magnet:?xt=urn:btih:989F91ABC71403207AE134C12ABB346574976393
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ FastStone Image Viewer - вьювер, редактор и конвертер г
 ```bash
 magnet:?xt=urn:btih:582B6605155AAF6D654449AB8C5AFBD5BF729E9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:582B6605155AAF6D654449AB8C5AFBD5BF729E9B
 ```bash
 magnet:?xt=urn:btih:54779372C0BA7133BD5BD260E0A514BEA8114F46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:54779372C0BA7133BD5BD260E0A514BEA8114F46
 magnet:?xt=urn:btih:0BB13A889120F0B0CF3C3F6DDA564A99308137C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:0BB13A889120F0B0CF3C3F6DDA564A99308137C5
 ```bash
 magnet:?xt=urn:btih:D7CB501B8A37085CCC6EF6F3DEDC95599E36B8EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ Eternal Storm - испанская метал-группа, созданная �
 magnet:?xt=urn:btih:895BA6E788D2DDBF87B0AB5C60B52E5357CC36A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:895BA6E788D2DDBF87B0AB5C60B52E5357CC36A8
 ```bash
 magnet:?xt=urn:btih:A58DA6535D948CDA7B1860C586EC764AE2CA98A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ Charles Rouse - Two Is One (1974) 1992, Strata-East [FLAC|Lossless|tracks + .cue
 magnet:?xt=urn:btih:14B8F17819B17B923DDBAEFBC38EA4F32CAED8E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:14B8F17819B17B923DDBAEFBC38EA4F32CAED8E2
 ```bash
 magnet:?xt=urn:btih:3A1A1B1E078A3E46CAC39E12BF3D93AAF67F9EA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ Novation Bass Station от GForce, оставаясь в (   Читать да�
 magnet:?xt=urn:btih:4A2B67DF5ECB7011CF37C7D06DF99A3DD45F9BAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ GForce Software & Oberheim - TVS Pro 1.0.0 STANDALONE, VSTi, VSTi 3, AAX (x64) [
 ```bash
 magnet:?xt=urn:btih:DA8E5FE63CB033EDFFCA0669D5BD586C3929A90F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ The core content (   Читать дальше...   )Жанр: Компьюте
 magnet:?xt=urn:btih:FAF4B14E4D154C08EF63C5D7B0155D63148A0DF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:FAF4B14E4D154C08EF63C5D7B0155D63148A0DF8
 magnet:?xt=urn:btih:8FB7FED375997A8F68A549C904C67BDCD0AC861A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:8FB7FED375997A8F68A549C904C67BDCD0AC861A
 ```bash
 magnet:?xt=urn:btih:4E0C7C65BE1C081A7073A55E8DF733195B1857AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ VA - Chill Electronica (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:A609172393E02E7FE77D2B93D6960D57296672EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ Disc 1:
 ```bash
 magnet:?xt=urn:btih:602439A591AAF810A6217B4934BB75D49EF21B82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +457,8 @@ VA - Chill Out Tempel (Ambient Chill Out Tunes), Vol. 2 (2025) [FLAC|Lossless|WE
 magnet:?xt=urn:btih:54E8B2C2718BB9366AE6A798CD672C027F8AECDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ magnet:?xt=urn:btih:54E8B2C2718BB9366AE6A798CD672C027F8AECDE
 magnet:?xt=urn:btih:1212A6E1B8B52E7BB0FCA17E2535013687DF5213
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ Houkago Shounen Hanako-kun | After-School Hanako-kun | Ханако после �
 ```bash
 magnet:?xt=urn:btih:7F38DF1C2B8CE5619B89F2C248287816DE2A6A14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +538,8 @@ magnet:?xt=urn:btih:7F38DF1C2B8CE5619B89F2C248287816DE2A6A14
 magnet:?xt=urn:btih:38BA4A09606AFE371080A43ADE88A7FBC3613C92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ The Halo Effect - March Of The Unheard (Bonus Edition) (2025) [FLAC 24/48|Lossle
 ```bash
 magnet:?xt=urn:btih:F7CAC50902DB8BC0365996E417846CEC771E7ECC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +596,8 @@ MONOЛИЗА - Кит (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:99426ABBFA3372EADF076440EB35492A52DA7B77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ CD1 - Live At Hammersmith:
 magnet:?xt=urn:btih:5FF0DAC783740648BB76098AFA3582D00CAD5557
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ Houkago Shounen Hanako-kun II | After-School Hanako-kun II | Ханако пос
 ```bash
 magnet:?xt=urn:btih:270996B755A343CEE59699354D968B3324CFE765
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +680,8 @@ magnet:?xt=urn:btih:270996B755A343CEE59699354D968B3324CFE765
 magnet:?xt=urn:btih:E3A3CEDF43976E02D44C7B270CD2E34BABC7F713
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +708,8 @@ Brian Simpson - Midnight Groove (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jaz
 ```bash
 magnet:?xt=urn:btih:CD62072D9E80AFB66A8337AEB16CF1CB9F7FB16F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

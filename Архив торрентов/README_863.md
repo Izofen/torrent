@@ -19,6 +19,8 @@ Vivaldi 6.6.3271.57 include standalone [Multi/Ru]
 magnet:?xt=urn:btih:24F241310FA29FC93F765717D551858ADA26D209
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Icecream Video Editor - простой редактор видео для Window
 ```bash
 magnet:?xt=urn:btih:B3481149DF8A9069230813C558CF5CF53BCCC51B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Calibre - простая и удобная программа для управ�
 magnet:?xt=urn:btih:9237B33CB155FB38033FCDB29562814412071ABE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Icecream PDF Editor PRO - программа для поистине прост�
 magnet:?xt=urn:btih:036289F7690735C329F2D9239B6BB3B1C4E23600
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Icecream Photo Editor - лучший бесплатный фоторедакто
 ```bash
 magnet:?xt=urn:btih:BB2581B51686F18C2A014740FF7390CC405A0262
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Sante DICOM Editor — ведущее в отрасли приложение п�
 magnet:?xt=urn:btih:1BB20DB9DDD01E456D9816A5C7AB817FB7A47BD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Sumatra PDF — мощная, небольшая программа с прос�
 ```bash
 magnet:?xt=urn:btih:A420B6473B45036A53341DEAF41F796A55B4F5C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ RubyMine — умная и удобная интегрированная сре�
 magnet:?xt=urn:btih:2A1A96AE4688521F2F2CFE2B32759EEBB094379B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Icecream Slideshow Maker - это приложение для создания �
 ```bash
 magnet:?xt=urn:btih:FFD39D316115C3C34E57456EE3F348559D822D54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ KStars - бесплатное, с открытым исходным кодом, 
 magnet:?xt=urn:btih:1869CA69F7B8CAF6C25892FD5782B7C48DBE2639
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:85A568F3E94949AD16B165B24E3402B988480545
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ GPU-Z - бесплатная программа от TechPowerUp для отоб
 ```bash
 magnet:?xt=urn:btih:2CF00F92DED9C13A71096EE34366F3BDCEE6BD8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ FurMark 2 является преемником почтенного FurMark 1..
 magnet:?xt=urn:btih:4F973EDB852A78FDF5833AB9A6ECE77C6C4BAE58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Icecream Screen Recorder – простая программа для запис
 ```bash
 magnet:?xt=urn:btih:86CCC3740136CBAFDB6308C1F6F4077921EFCC7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Windows Update Viewer 0.6.0.0 + Portable [En]
 magnet:?xt=urn:btih:CD7D3004AE0C9ADDC51FDCECC9A4B9CACA9217FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Microsoft PowerToys – это набор утилит, позволяющих �
 ```bash
 magnet:?xt=urn:btih:86F46F636809F7D869F20357AF09057727A75466
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ CudaText — абсолютно бесплатный мультиплатфор�
 magnet:?xt=urn:btih:1552EDD539CAA4E6CAFF509C3FBADF879563AC58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 ```bash
 magnet:?xt=urn:btih:7C2A5149437992CAE4C27CDA063D53C2FE992053
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:7C2A5149437992CAE4C27CDA063D53C2FE992053
 magnet:?xt=urn:btih:477F98669548010A9FC1EED3841D9180299E5991
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:477F98669548010A9FC1EED3841D9180299E5991
 ```bash
 magnet:?xt=urn:btih:F894C525FC883C4B2230B328564B1729F59D578F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:C02B0CF4B314C4C37AEE69D770EED71E9B5D9C9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ XYplorer – удобный многовкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:0AFF46ECD5AD03E2D2110A8F17F490BC453001D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:0AFF46ECD5AD03E2D2110A8F17F490BC453001D0
 magnet:?xt=urn:btih:C135480F85E44F85865F7E2F4F8C378DE5EB1F27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ GPU Shark 2 является преемником GPU Shark 1. GPU Shark 2 - э�
 ```bash
 magnet:?xt=urn:btih:726946FDDECFE6A121EA25CCEB1D009B2B9F6344
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ Icecream PDF Editor PRO - программа для поистине прост�
 magnet:?xt=urn:btih:4607C981AD195A7209478C18E266355110F6E605
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Ultimaker Cura - популярный слайсер для 3d-печати. О�
 ```bash
 magnet:?xt=urn:btih:661CF9BA006E70596EA1C16C3AA079DFD3DD9443
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

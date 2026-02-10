@@ -1,3 +1,32 @@
+###  Публикация: 992402   (900410) от 02.03.2016
+
+Нигатив (Триада) - NIX ET NOX (2016) [MP3|320 кб/с] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Название новой сольной пластинки краснодарского рэпера Нигатива переводится с латыни как «Снег и ночь». В записи отдельных треков приняли участие коллеги по жанру — Хасан, McMask и Лампочка. Редакторы сайта Rap.ru считают, что Нигатив «за последний год отметился как автор одних из лучших клипов в русском рэпе».01. Дурак
+02. Скучаю (feat. МсMask)
+03. Не выспался
+04. Охота(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF88EE2CFCA41EFF3C6A54719ADCDC16C55029F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369802   (900429) от 25.03.2020
 
 Braslet - Зона комфорта (2019) [MP3|320 Kbps] <Rap, Hip-Hop, Underground>
@@ -21,6 +50,8 @@ Braslet - Зона комфорта (2019) [MP3|320 Kbps] <Rap, Hip-Hop, Undergr
 ```bash
 magnet:?xt=urn:btih:8E08E66AE5740F072C0BE6E5FE54527A53E35DEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ Booker - Маргинальное чтиво (2019) [MP3|320 Kbps] <Rap, Hip-Hop
 magnet:?xt=urn:btih:C13918C5F5B1D6EBA708189A2CA689C5DA3A2567
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ Skabbibal - Умер (2020) [MP3|320 Kbps] <Rap, Hip-Hop, Horrorcore>
 ```bash
 magnet:?xt=urn:btih:916866FAF427B9B734210CC0110E13FACB355724
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ magnet:?xt=urn:btih:916866FAF427B9B734210CC0110E13FACB355724
 magnet:?xt=urn:btih:CB0C0CCC97CBDDB45A7EC654571BAB5FD6A05845
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ Beres Hammond - Putting Up Resistance (1996) [APE|Lossless|tracks + .cue] <Regga
 ```bash
 magnet:?xt=urn:btih:095533EB9D628A6F47A5FB7E529AC0C48C43F4C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ babyshkaestvnuka - CRINGEPOLIS (2020) [MP3|320 Kbps] <Rap, Hip-Hop, Underground>
 magnet:?xt=urn:btih:0B1FA51551E5C8E9978C54D9F5AB822F3818DE07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ magnet:?xt=urn:btih:0B1FA51551E5C8E9978C54D9F5AB822F3818DE07
 ```bash
 magnet:?xt=urn:btih:DD33B61759E81F782CFBA0D6DC41779CAAB10EE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ Honduras (2012)(   Читать дальше...   )Жанр: RapПродолжи
 magnet:?xt=urn:btih:A019E43FB0B6D9D4BDD43242D2D04FA2B44629B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ Grebz - Рэппєq (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:363332C0217A0FDF443AE2245337FF8DB453AE38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ Locomondo - Me Wanna Dance (2008) [FLAC|Lossless|image + .cue] <Reggae, Ska>
 magnet:?xt=urn:btih:664B627ADCDB4AE289F08AA36624E7DE54E61D82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - Chillhop Essentials Spring (2020) [FLAC|Lossless|Web-DL|tracks] <ChillHop, 
 ```bash
 magnet:?xt=urn:btih:9D75BF4A78D084B2F1A64439511DA2C76DD76FB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ Insane Clown Posse - The Marvelous Missing Link (Lost) (2015) [FLAC|Lossless|tra
 magnet:?xt=urn:btih:DCE91410E6D59FAA442509C2A107F515240CB147
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ magnet:?xt=urn:btih:DCE91410E6D59FAA442509C2A107F515240CB147
 ```bash
 magnet:?xt=urn:btih:1D1FFF08C67EB69B7E22A3902ED8CA081D8889BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ Drummatix - На горизонте (2020) [MP3|320 Kbps] <Hip-Hop>
 magnet:?xt=urn:btih:ACA5AFA3FA12E6B8DB05454FEC2D083F724A3381
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +456,8 @@ Pop Smoke - Meet The Woo 2 (2020) [MP3|320 Kbps] <Rap, Hip-Hop, Drill>
 ```bash
 magnet:?xt=urn:btih:EC01567B3805E720ABECE551979DE9B6F55B6094
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +486,8 @@ Pop Smoke - Meet The Woo (2019) [MP3|320 Kbps] <Rap, Hip-Hop, Drill>
 magnet:?xt=urn:btih:C8E8985653FDCB4FEEE88FF511B2E0A63434C653
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +514,8 @@ Sagath - Вынос тела (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:7011F2544193EFCD0071A92ED560EA0FA13E4782
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +544,8 @@ Die Antwoord - House Of Zef (2020) [MP3|320 Kbps] <Alternative Hip-Hop, Electron
 magnet:?xt=urn:btih:9FEADEACAA59C4BAB7B72D36ABD09F50E73E2E52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +572,8 @@ Czarface - The Odd Czar Against Us (2019) [FLAC|Lossless|tracks + .cue] <Hip-Hop
 ```bash
 magnet:?xt=urn:btih:7235EB08FB8ABC3CBA3EF9AEA7CDCD58C418FFD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +602,8 @@ magnet:?xt=urn:btih:7235EB08FB8ABC3CBA3EF9AEA7CDCD58C418FFD6
 magnet:?xt=urn:btih:29907E441613CA0D0235917DC45FB9B76337FF0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +630,8 @@ Die Antwoord - House Of Zef (2020) [FLAC|Lossless|Web-DL|tracks] <Alternative Hi
 ```bash
 magnet:?xt=urn:btih:421C78B02C6D3D70D8A0CACFC65E878B8F04C741
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +660,8 @@ RAM (Грязный Рамирес) - Traumatix Ultimate (2019) [FLAC|Lossless|W
 magnet:?xt=urn:btih:BCF0262D06D53FB8F894A1D201EE648829AEA2F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +688,8 @@ RAM (Грязный Рамирес) - Traumatix (2019) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:6BC6368AFC3819C61C9C284158C8DD4A34BAF561
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +718,8 @@ Slimus x ВесЪ - Улей (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:F59383BEF75BFFD0466547437772422247E6F57F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,32 +747,7 @@ P Money - Money Over Everyone 3 (2019) [MP3|320 Kbps] <Rap, Hip-Hop, Grime>
 magnet:?xt=urn:btih:846ABED00A317388379A3E14617991FAC45D83E8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367591   (915821) от 16.03.2020
-
-SharOn - Шарашка (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Динамит [03:22]
-02. Монолог [04:35]
-03. Бобби Фишер [03:14]
-04. Топчем [03:39](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:24:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EA801DB4B12E0E3387017F4EEA23C343D2B163E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

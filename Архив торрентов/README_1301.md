@@ -19,6 +19,8 @@ Mozilla Thunderbird –  легкая и безопасная бесплатна
 magnet:?xt=urn:btih:323619C53B3CC4B3F3F9E4D8647ECF1727FC8D6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ File & Image Uploader - удобная и просто незаменимая п
 ```bash
 magnet:?xt=urn:btih:6A2635BF681CD23FC59BE58DCE6147AA523FA475
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Opera GX - это специальная версия браузера Opera, с
 magnet:?xt=urn:btih:66E36E5B5228B9D0B7D73CA83F72CEF13AF4C174
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Bartender - утилита для простой организации икон
 magnet:?xt=urn:btih:E64B31928724038A495C85C66698DF993D749678
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ RegCool 1.344 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:92186A4EB8E1D8277B2B3211D49BF036C7F420BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Bazaart: Photo Editor & Graphic Design v2.2.8 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:7A0D945841AAB9168129F975EBC453087D8D41C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 magnet:?xt=urn:btih:541066E741AF2BEDC45B4A373F03F97B3FA4C391
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ n-Track Studio — кроссплатформенный аудиоредакто
 ```bash
 magnet:?xt=urn:btih:4C5B74ADE11856F768363D78DE0C6E90C422E52B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ TablePlus 5.5.2 [En]
 magnet:?xt=urn:btih:47973AEF1DE212DBCAB7A0D7222269DDA29DE9C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ GeoGebra — мультиплатформенная программное об�
 ```bash
 magnet:?xt=urn:btih:98E30632532A21768AEBF7542A261A06CB951F26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ SiteSucker Pro - это расширенная версия SiteSucker, кото
 magnet:?xt=urn:btih:542281EF01A4CAECB923BF0D68F4DDAF6FA79B8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ TechSmith Snagit облегчает захват изображений с эк�
 ```bash
 magnet:?xt=urn:btih:B7541B4D65B5551D4F6FA37FC470B891A9B11A5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ PhoneRescue - полезное приложение для восстановл�
 magnet:?xt=urn:btih:F08D274829602888618BFD5D9F710B70BECE4112
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Imagenomic Noiseware - плагин для коррекции шумов на ц
 ```bash
 magnet:?xt=urn:btih:7919F26B8A2FFF77C8409FF9B72ECE69CB528A22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Default Folder X - Расширяет функциональные возмож�
 magnet:?xt=urn:btih:58DAB19BE28181C42BC32AE0C9193A2AA799AC20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ EdgeView 3 - это новейший просмотрщик изображени
 ```bash
 magnet:?xt=urn:btih:E231BE79DC9135F89607604D085B146494F42734
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ SiteSucker умеет загружать (   Читать дальше...   )Т
 magnet:?xt=urn:btih:8A760E530B52E265432FE0352E196C985F883733
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Futuremark 3DMark 2.27.8177 Professional Edition RePack by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:92FECB7F25B2E520BB4C72CDB5420FE798AD198C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ Microsoft Activation Scripts (MAS) 2.3 Portable [En]
 magnet:?xt=urn:btih:B934DF5D2A2224C08DBD62C41D725AAEE6731EF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Corona Renderer - это популярный визуализатор для р
 ```bash
 magnet:?xt=urn:btih:BCA5F80E0C231E2385F56996467C785867A25B9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ Premiere Pro — это мощное, гибкое и удобное средс�
 magnet:?xt=urn:btih:A2D56A9CA5CC373AB48E40BF719A5B189A0FC369
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:C52F07A0A53B33740FB4097B8D9D84E7225EF15D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Reg Organizer® - это многофункциональная программ
 magnet:?xt=urn:btih:D28FD685CA6EEC50BDA16033FA0753D8F5D3961C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ Office Tool Plus - функциональная программа для раб
 ```bash
 magnet:?xt=urn:btih:D9A2CEFAEEC45BDDE478665FB12A282965E19870
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ Adobe Media Encoder 2024 - это программа кодирования, к�
 magnet:?xt=urn:btih:59B8EFCB3D1254B8DCA7197CDCEF8718B1A10193
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ MathType - это мощный интерактивный инструмент, 
 ```bash
 magnet:?xt=urn:btih:33A9BC16808994BD17748565F32087A8C141E945
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

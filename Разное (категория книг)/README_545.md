@@ -1,3 +1,30 @@
+###  Публикация: 1504343   (811976) от 23.10.2021
+
+Роман Силантьев, Сергей Чекмаев | Деструктология. Как быстро и надежно лишиться денег и здоровья. 10 шагов к успеху (2020) [PDF, FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая наука деструктология учит, как минимизировать риски в сфере духовной безопасности. Так что эту книгу можно считать инструкцией, как сохранить рассудок, здоровье, деньги, а то и жизнь в мире, где духовное развитие - рыночный товар.
+Рассказывая о разнообразных сектах и лжеучениях, авторы сознательно отказались от полностью научного стиля изложения, взяв в союзники (   Читать дальше...   )Жанр: Психология, Секты, Критическое мышлениеФормат: PDF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14488FE8B277BDA1DD43272ABF2D69945A286466
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504089   (812107) от 23.10.2021
 
 День (изд.) | Молитвы о помощи в житейских нуждах (2015) [PDF, DJVU]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:831BA4951F7902FB071B888331E7D24FAE4FB3EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +71,8 @@ magnet:?xt=urn:btih:831BA4951F7902FB071B888331E7D24FAE4FB3EF
 ```bash
 magnet:?xt=urn:btih:B1727BC770639B0A017DE27737FC5405D26ECBE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +100,8 @@ magnet:?xt=urn:btih:B1727BC770639B0A017DE27737FC5405D26ECBE6
 magnet:?xt=urn:btih:1634DD53EBD24F3F883045077C72A1FEFAE9A1B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +125,8 @@ magnet:?xt=urn:btih:1634DD53EBD24F3F883045077C72A1FEFAE9A1B7
 ```bash
 magnet:?xt=urn:btih:49D1FD23A97DA09D07501D6C22CE3CDBFBAFBEED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +152,8 @@ magnet:?xt=urn:btih:49D1FD23A97DA09D07501D6C22CE3CDBFBAFBEED
 magnet:?xt=urn:btih:75A6700E9334BB6060CB49BEEDA3A1FC0F64603B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +178,8 @@ magnet:?xt=urn:btih:75A6700E9334BB6060CB49BEEDA3A1FC0F64603B
 magnet:?xt=urn:btih:B1A58C2886337362A5800595F4640AF110E52D58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +203,8 @@ magnet:?xt=urn:btih:B1A58C2886337362A5800595F4640AF110E52D58
 ```bash
 magnet:?xt=urn:btih:34AA6A94AF790EB3B94E15B2E0DE71B23EA73E17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +231,8 @@ magnet:?xt=urn:btih:34AA6A94AF790EB3B94E15B2E0DE71B23EA73E17
 magnet:?xt=urn:btih:246D3ED34F82C80E714ED673394043C334E59D6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +257,8 @@ magnet:?xt=urn:btih:246D3ED34F82C80E714ED673394043C334E59D6E
 magnet:?xt=urn:btih:EF1976F0E7E5BC403852E2FD3D17530990ACFC23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ magnet:?xt=urn:btih:EF1976F0E7E5BC403852E2FD3D17530990ACFC23
 ```bash
 magnet:?xt=urn:btih:C6F51D5652FEAEA60B499C0797824003BF132135
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +311,8 @@ magnet:?xt=urn:btih:C6F51D5652FEAEA60B499C0797824003BF132135
 magnet:?xt=urn:btih:66102A9799E918F5032C483663AE01373BE07433
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +338,8 @@ magnet:?xt=urn:btih:66102A9799E918F5032C483663AE01373BE07433
 magnet:?xt=urn:btih:31B74C91EA3FCC9003C649D0F56AC0EB4D155A96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +364,8 @@ magnet:?xt=urn:btih:31B74C91EA3FCC9003C649D0F56AC0EB4D155A96
 ```bash
 magnet:?xt=urn:btih:6561BBFA2219E4D9B3D69FA0058780BCDACF01F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +393,8 @@ magnet:?xt=urn:btih:6561BBFA2219E4D9B3D69FA0058780BCDACF01F6
 magnet:?xt=urn:btih:EFDB1C5E18FBF0299722A5660466ECC2A680777D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +418,8 @@ magnet:?xt=urn:btih:EFDB1C5E18FBF0299722A5660466ECC2A680777D
 ```bash
 magnet:?xt=urn:btih:385F3741C72E50094B34D885F135CB4B216B79C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +445,8 @@ magnet:?xt=urn:btih:385F3741C72E50094B34D885F135CB4B216B79C1
 ```bash
 magnet:?xt=urn:btih:3D010E642B63AAACDFE4B4D620708460B701E165
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +474,8 @@ magnet:?xt=urn:btih:3D010E642B63AAACDFE4B4D620708460B701E165
 magnet:?xt=urn:btih:06BEB3E4AB5884605AC7855031792C3ED718E0A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +502,8 @@ magnet:?xt=urn:btih:06BEB3E4AB5884605AC7855031792C3ED718E0A5
 magnet:?xt=urn:btih:4DCD1E1B2F25F3AF86274A17E5C67AAF478564D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +529,8 @@ magnet:?xt=urn:btih:4DCD1E1B2F25F3AF86274A17E5C67AAF478564D1
 magnet:?xt=urn:btih:38F5EB935FAF01914624302D20B990B5B0B30EF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +554,8 @@ magnet:?xt=urn:btih:38F5EB935FAF01914624302D20B990B5B0B30EF1
 ```bash
 magnet:?xt=urn:btih:0BA1B5741D25F8F999CCB74A7D9D536E41AD5156
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +581,8 @@ magnet:?xt=urn:btih:0BA1B5741D25F8F999CCB74A7D9D536E41AD5156
 magnet:?xt=urn:btih:C47CD43E3C15055899FD8882977B7831044C5F45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +606,8 @@ magnet:?xt=urn:btih:C47CD43E3C15055899FD8882977B7831044C5F45
 ```bash
 magnet:?xt=urn:btih:109C14B02E2E505CCFB52D30F38BB3444F8AC2A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +633,8 @@ magnet:?xt=urn:btih:109C14B02E2E505CCFB52D30F38BB3444F8AC2A0
 magnet:?xt=urn:btih:65236276ADC65C31BDD34B6EB917AE7AB9BFF932
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +658,8 @@ magnet:?xt=urn:btih:65236276ADC65C31BDD34B6EB917AE7AB9BFF932
 ```bash
 magnet:?xt=urn:btih:64E780654F9AB7F37912C31D01B3C21EA5568FA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,31 +685,7 @@ magnet:?xt=urn:btih:64E780654F9AB7F37912C31D01B3C21EA5568FA8
 magnet:?xt=urn:btih:2C5F04622C7548E4890C523BE21DC4181F7ACDA3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383131   (813752) от 14.05.2020
-
-Протоиерей Павел Великанов и др. | В поисках любви. Беседы о браке и семейной жизни (2020) [FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813752.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге «В поисках любви» собраны статьи о браке и семейной жизни авторства протоиерея Павла Великанова, епископа Пантелеимона (Шатова), протоиерея Фёдора Бородина, протоиерея Александра Никольского, протоиерея Андрея Ткачёва и протоиерея Алексия Уминского.
-
-Как преодолеть одиночество? Что такое православный брак? Как научиться решать проблемы и не допускать конфликта (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9CEEBDC83395FB55F9AE271F2756151920D87CF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ YUMI (Your Universal Multiboot Installer) - бесплатная програм�
 magnet:?xt=urn:btih:6845BE67161D599A465099076A4B79B4825E111F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:6845BE67161D599A465099076A4B79B4825E111F
 ```bash
 magnet:?xt=urn:btih:FA85AA61E49C302D062FE03F4EBFDCE03FA795B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Eguana - One Day (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Psychill, Downte
 magnet:?xt=urn:btih:67D84E0A1CD3D272E1E102F67838BDE8CC859C7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ XIX век. Молодой датский священник отправляе�
 magnet:?xt=urn:btih:089512D8DEFC3337777EA99BA0E4C9EA1A4E06C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Bastard!! Ankoku no Hakaishin (2022) | Bastard!! Heavy Metal, Dark Fantasy | У�
 ```bash
 magnet:?xt=urn:btih:A8AFD615F2F8099C95CA6A2FB4B0B219C6928A1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:A8AFD615F2F8099C95CA6A2FB4B0B219C6928A1D
 magnet:?xt=urn:btih:3E93A5B98E0E4E144CF1412ED1345C45DDFE97D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:3E93A5B98E0E4E144CF1412ED1345C45DDFE97D5
 ```bash
 magnet:?xt=urn:btih:BC73B72E2DB229CFED54D976A5820FF9819AFA12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Statcounter: на Windows 11 перешли 15 процентов пользов
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ The Chemical Brothers - For That Beautiful Feeling (2023) [FLAC 24/44.1|WEB-DL|t
 magnet:?xt=urn:btih:B7CDD7FB0336E06AC4EB91D18142BE4C84EC1015
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:B7CDD7FB0336E06AC4EB91D18142BE4C84EC1015
 ```bash
 magnet:?xt=urn:btih:E1AB5C8E5EA41D0C5917B910B7B736487B803A2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:E1AB5C8E5EA41D0C5917B910B7B736487B803A2C
 magnet:?xt=urn:btih:3A35F3C0C9B864D3D6C9DFF05836B3720C7F7E7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ Moon Reader - проект-читалка которая весьма извес
 magnet:?xt=urn:btih:0D3707E2486A2CBD09992F13FAC94E47ED4CDA19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:0D3707E2486A2CBD09992F13FAC94E47ED4CDA19
 ```bash
 magnet:?xt=urn:btih:D2E96D89EB25E096F91ECFBF1C1F6BA0C3D75AD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ VA - Music News vol.295 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:0F0C235513C3D4669BD94A0B03F4999E14E2AA39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:0F0C235513C3D4669BD94A0B03F4999E14E2AA39
 ```bash
 magnet:?xt=urn:btih:17F9BB67B233AAF36A18949707D8CC7ACE7077DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:17F9BB67B233AAF36A18949707D8CC7ACE7077DB
 magnet:?xt=urn:btih:9F6569D71AA919DBF54C907F6B8519C5917E195F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ Donald Knuth и др. | Concrete Mathematics: A Foundation for Computer Science 
 ```bash
 magnet:?xt=urn:btih:56A275C3CD8E46DB74DB79BC1325E98491D87922
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ Windows 11 (v22h2) x64 PRO by KulHunter v1 (esd) [En]
 magnet:?xt=urn:btih:2AD727137E7A1CEF03A1486D98C68531D552C084
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ magnet:?xt=urn:btih:2AD727137E7A1CEF03A1486D98C68531D552C084
 magnet:?xt=urn:btih:A390C6EB7873C2133A155F409EB51980BFB798B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ magnet:?xt=urn:btih:A390C6EB7873C2133A155F409EB51980BFB798B2
 magnet:?xt=urn:btih:243D4A865CF0C4BBD3413E8E973F3327EECAAA06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ iZotope Ozone – полноценное и функциональное при�
 ```bash
 magnet:?xt=urn:btih:FBBDCEB8504855634157000D79FBE985494C892A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ magnet:?xt=urn:btih:FBBDCEB8504855634157000D79FBE985494C892A
 magnet:?xt=urn:btih:42ACD3AE66C9500AFFB9105CBD7D71E2746480D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ Frolomuse - бесплатный музыкальный плеер, с мощн�
 ```bash
 magnet:?xt=urn:btih:AFCA6952521C9707121183B4953F52FECD835146
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +640,8 @@ magnet:?xt=urn:btih:AFCA6952521C9707121183B4953F52FECD835146
 magnet:?xt=urn:btih:1133AF5364E8D76A99DE739AABE2E4AB35FD1EC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +666,8 @@ AutoPowerOptionsOK — небольшая по размеру утилита, п
 magnet:?xt=urn:btih:71A01288ECBF8E9B0BC935928E65FF808F4984B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ magnet:?xt=urn:btih:71A01288ECBF8E9B0BC935928E65FF808F4984B7
 ```bash
 magnet:?xt=urn:btih:813E7C548799E7560A78BCC6688C228529593A89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

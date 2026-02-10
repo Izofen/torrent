@@ -20,6 +20,8 @@ Byword — минималистичный текстовый редактор о
 magnet:?xt=urn:btih:AE322FAAE22E4F9F3D6B976497C660417AF78BEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -53,6 +55,8 @@ VA - Зарубежные Новинки Vol.46 from AGR (2012) [MP3|320 кб/с
 magnet:?xt=urn:btih:F37860A1294A6B3E15F6C94D98EF6FE93A8B9D86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -77,6 +81,8 @@ magnet:?xt=urn:btih:F37860A1294A6B3E15F6C94D98EF6FE93A8B9D86
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ PhoneRescue - полезное приложение для восстановл�
 ```bash
 magnet:?xt=urn:btih:95F27C2A837C981CD21D350A8BEF7DCBE97B139A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -134,6 +142,8 @@ VA - Wise Up (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
 magnet:?xt=urn:btih:E17A25DB1553B425AA89E6B7E3B4CF23083CAF37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -159,6 +169,8 @@ magnet:?xt=urn:btih:E17A25DB1553B425AA89E6B7E3B4CF23083CAF37
 magnet:?xt=urn:btih:0C2198CA9696A022DFE6221078D94510460FF83B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -182,6 +194,8 @@ SnippetsLab — это простой в использовании менедж
 ```bash
 magnet:?xt=urn:btih:F270D46637263458064C1C1FDDEE9B4173BA3F04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -207,6 +221,8 @@ James Gough, Daniel Bryant, Matthew Auburn | Mastering API Architecture (2022) [
 magnet:?xt=urn:btih:250DE521C3BD339634A60F800A8B4ADEAACF8C63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -230,6 +246,8 @@ magnet:?xt=urn:btih:250DE521C3BD339634A60F800A8B4ADEAACF8C63
 ```bash
 magnet:?xt=urn:btih:B35EFFD1E5A520D30184A88C69D1AD19C3F5E0D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -258,6 +276,8 @@ VA - Steampunk Hotel (2023) [MP3|320 Kbps] <Electro, Swing, Cabare>
 magnet:?xt=urn:btih:C324B9506136EF4017D04D233619D070660B313B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -281,6 +301,8 @@ magnet:?xt=urn:btih:C324B9506136EF4017D04D233619D070660B313B
 ```bash
 magnet:?xt=urn:btih:598B484B987D813D2FB65F21C6662DC687ABA078
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +330,8 @@ Heretic Soul - Born Into This Plague (2010) [MP3|~212 кб/с]<Death Metal>
 magnet:?xt=urn:btih:5B26D568A0CBE1F6015F6B6B202FD01082D39B55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +356,8 @@ magnet:?xt=urn:btih:5B26D568A0CBE1F6015F6B6B202FD01082D39B55
 ```bash
 magnet:?xt=urn:btih:A8463CBAC5C31EB5D8625E0D3ADE95A49832F46A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +386,8 @@ VA - Guitar Chillout Lounge 4 (2015) [AAC|~339 Kbps] <Lounge, Chill Out, Downtem
 magnet:?xt=urn:btih:BC949E83F1F98F1E2AF602B3D4CF611192328E80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +411,8 @@ magnet:?xt=urn:btih:BC949E83F1F98F1E2AF602B3D4CF611192328E80
 ```bash
 magnet:?xt=urn:btih:8C577474DF451E08D73F750E134CD150B1957099
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +441,8 @@ Voodoma - Hellbound (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Gothic Me
 magnet:?xt=urn:btih:4759DA006F26534925DA65F80644483DBB543556
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +467,8 @@ magnet:?xt=urn:btih:4759DA006F26534925DA65F80644483DBB543556
 magnet:?xt=urn:btih:B488E40685B9B46E65677BDDB6F1CD54772A5D26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +492,8 @@ magnet:?xt=urn:btih:B488E40685B9B46E65677BDDB6F1CD54772A5D26
 ```bash
 magnet:?xt=urn:btih:9108E1AA18D95DB9CA68DD9F3874F0F3B5AEAE3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +522,8 @@ VA - Guitar Chillout Lounge 2 (2015) [AAC|~348 Kbps] <Lounge, Chill Out, Downtem
 magnet:?xt=urn:btih:0C6CB7CB01668D16DAAC3E71D2B39D0BFC9A026D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +550,8 @@ Live синхронизирует все и работает в режиме р�
 magnet:?xt=urn:btih:CF5B17C25D751DE6A4DE00357A1D4DBADA4448DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +575,8 @@ magnet:?xt=urn:btih:CF5B17C25D751DE6A4DE00357A1D4DBADA4448DC
 ```bash
 magnet:?xt=urn:btih:F80931BF43E3A3FC294F48301A795843A8A41468
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +602,8 @@ Clipboard Action — это интеллектуальный менеджер и
 magnet:?xt=urn:btih:E5AF7E79FF5136032C3418A1D66FB34D4AF969FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +627,8 @@ magnet:?xt=urn:btih:E5AF7E79FF5136032C3418A1D66FB34D4AF969FA
 ```bash
 magnet:?xt=urn:btih:4B416C3FD9F476B2F6BF080778F0B9EC8750C394
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +657,8 @@ VA - Guitar Chillout Lounge 3 (2013) [AAC|~316 Kbps] <Lounge, Chill Out, Downtem
 magnet:?xt=urn:btih:B53D91A5ED2CCAB5436C7D4279828537D5207208
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +683,8 @@ magnet:?xt=urn:btih:B53D91A5ED2CCAB5436C7D4279828537D5207208
 magnet:?xt=urn:btih:C70B5D0DED6CA41B82D833F9523B31127C392E00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +708,8 @@ Donemax DMmenu 1.5 [En]
 ```bash
 magnet:?xt=urn:btih:6107217A09A68AF01632AAF028A6FF4C3C1AFA4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

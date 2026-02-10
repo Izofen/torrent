@@ -19,6 +19,8 @@ Overtake! | Обгон! [2023, TV, 12 из 12 эп.] BDRip 1080p HEVC 10-bit raw
 magnet:?xt=urn:btih:ADEE3E41C21900CA1CA35A3C44EF92EC8A73F4E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Jibaku Shounen Hanako-kun 2 Kouhen | Toilet-bound Hanako-kun Season 2 | Туал
 ```bash
 magnet:?xt=urn:btih:9BECD02DCBB1ECB439E121E1D52129E588191248
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Mizu Zokusei no Mahou Tsukai | The Water Magician | Маг воды [2025, TV, 8
 magnet:?xt=urn:btih:403A252905BAAC0F1F36AEE8D6CA0B3D4B6A390F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Shikanoko Nokonoko Koshitantan | My Deer Friend Nokotan | Моя подруга-
 ```bash
 magnet:?xt=urn:btih:5E43B1A3187AF8988913699FDF53E744BC081144
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:5E43B1A3187AF8988913699FDF53E744BC081144
 magnet:?xt=urn:btih:19B7685A84177905C3C1AAF45511D135865782F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Saikyou Onmyouji no Isekai Tenseiki | The Reincarnation of the Strongest Exorcis
 ```bash
 magnet:?xt=urn:btih:67E35FC3D7A90EFAABC5B047F4D9376356D75C18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:67E35FC3D7A90EFAABC5B047F4D9376356D75C18
 magnet:?xt=urn:btih:2C7BA7DDF0FB87CB23DAD3BB78D007F1DE5F5D3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Kijin Gentoushou | Sword of the Demon Hunter | Хроники людей и де
 ```bash
 magnet:?xt=urn:btih:306930B6CD72D82732DCA1DF108E7149657E6B21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Akira | Акира [1988, Movie] WEBRip 2160p/4K raw+rus
 magnet:?xt=urn:btih:398B15EACFAE38F38A491354F4B8F2B6649B87F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Kanashimi no Belladonna | Belladonna of Sadness | Печальная Белла�
 ```bash
 magnet:?xt=urn:btih:BCA4FE850BF4685C15651B1515AA744EDCBE4D98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Yasei no Last Boss ga Arawareta! | A Wild Last Boss Appeared! | Шaльнoй пo
 magnet:?xt=urn:btih:3BC7B5CC1FE019A6CC28A14A0A70AF336DC06B68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Beyblade Burst QuadDrive | Beyblade Burst Dynamite Battle | Бейблэйд В�
 ```bash
 magnet:?xt=urn:btih:283FAE5AFA3F0C1F352A8822D09A5311288E3CAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Deca-Dence | Decadence | Декаданс | Дека-Данс [2020, TV, 12 из
 magnet:?xt=urn:btih:C926CBF7FAEF4FF6ECB29568448FB9F52B67F2B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Kaifuku Jutsushi no Yarinaoshi | Redo of Healer | Маг-целитель: Но�
 ```bash
 magnet:?xt=urn:btih:CE15192B254B445CC16B70AC3504C2DBFB1ABF40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Nihon e Youkoso Elf-san. | Welcome to Japan, Ms. Elf! | Добро пожало�
 magnet:?xt=urn:btih:41C13EC3C49A571F4F848886EEB82379488ECDA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ D.Gray-man | Ди.Грэй-мен | Ди Грэй-мен [2006, TV, 103 из 103
 ```bash
 magnet:?xt=urn:btih:8945A79AE77E97B0ED87A7299553805EC1FA3402
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ Hazure Skill "Kinomi Master": Skill no Mi (Tabetara Shinu) o Mugen ni Taberareru
 magnet:?xt=urn:btih:FB85FE4A4FAD69059C49E284CCD6CA6666C4E117
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Kaze no Na wa Amnesia | A Wind Named Amnesia | Ветер амнезии [1990, 
 ```bash
 magnet:?xt=urn:btih:09F3C86CFD80EB1206631CF64D531682E223854B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Megami-ryou no Ryoubo-kun | Mother of the Goddess Dormitory | Комендант
 magnet:?xt=urn:btih:64B8FD9F58520C743BE0664555E066D437C113A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Barakamon | Баракамон [2014, TV, 12 из 12 эп.] BDRip 1080p HEVC 10-
 ```bash
 magnet:?xt=urn:btih:A40670BDD86FD45FF8C144CF998F0EA7E0E359AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ Kaijuu 8-gou Movie | Kaiju No. 8: Mission Recon | Кайдзю № 8: Мисси
 magnet:?xt=urn:btih:BBF03B1752B2B58B263F5EF58801F76D011927E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ Megami no Cafe Terrace II | The Cafe Terrace and Its Goddesses II | Богини
 ```bash
 magnet:?xt=urn:btih:B2F1B14081B6DDA95A11469030CFB2C88C415330
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ Sentai Dai Shikkaku 2 | Go! Go! Loser Ranger! 2 | Боевой отряд «По
 magnet:?xt=urn:btih:7DFB7AD73805164DE1319E08D1F9BC5D173D11E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:7DFB7AD73805164DE1319E08D1F9BC5D173D11E6
 magnet:?xt=urn:btih:B863AA0884C665637262619956FCBCB6DAEE1836
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Jibaku Shounen Hanako-kun 2 | Toilet-bound Hanako-kun 2 Season 2 | Туалет�
 ```bash
 magnet:?xt=urn:btih:B1070E7D22F4E6B26865DF1516FF906268D7E314
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:B1070E7D22F4E6B26865DF1516FF906268D7E314
 ```bash
 magnet:?xt=urn:btih:09AE20D5AA6E75EA03CA27AC236220E9FC4F1EED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

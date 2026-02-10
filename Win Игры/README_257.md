@@ -19,6 +19,8 @@ Thief Simulator 2 (2023) [Ru/Multi] (1.0) Scene Rune
 magnet:?xt=urn:btih:04BD140EFB59FE636958D3608740F778C2A6EA93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Starri - это ритм-игра, управляемая телом, в кот�
 ```bash
 magnet:?xt=urn:btih:33E30AEB4262C99E7BD13DAE65D7F7F12E1D524C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Edna and Harvey / Эдна и Харви Дилогия (RePack) [Ru/Ge] 2008-20
 magnet:?xt=urn:btih:673639FE770857905E2D37D9270F19B49376F084
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.7.0/dlc) Repack Decepticon [Comp
 ```bash
 magnet:?xt=urn:btih:BCDC140D03522530BA15D3483DB90AA2EADA8638
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Thief Simulator 2 (2023) [Ru/Multi] (1.0) Repack DjDI
 magnet:?xt=urn:btih:1515CD6D9914C73E0A1B1A38F55947A192E8111F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Pentiment выделяется своей двухмерной рисованн�
 ```bash
 magnet:?xt=urn:btih:3F844D5682E1EE10A83E5639155F387B152455DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Destroy All Humans! 2 - Reprobed (2022) [Ru/Multi] (1.6a/dlc) License GOG [Dress
 magnet:?xt=urn:btih:F5ED5B6E6EA123D0197EE29797F0DB42006E4C4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Base One - это симулятор-стратегия с элементами 
 ```bash
 magnet:?xt=urn:btih:5515C948BD6EF2B5625B56AB99CA0E96E977A22F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Hello Neighbor 2 создана в мультяшном стиле, а вы ис
 magnet:?xt=urn:btih:3287998483FF35C2F362E57EE7E77D12A13D1D49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Mystery Case Files 24: The Last Resort / За семью печатями 24: П
 ```bash
 magnet:?xt=urn:btih:9BF4D8F8187193E2A0784765088B11C3255A27E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Living Legends 10: The Blue Chamber / Живые легенды 10: Синяя �
 magnet:?xt=urn:btih:41CB85B894D37926A7BD23B6F8B9D80A27AAB8C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Christmas Stories 11: Taxi of Miracles (2022) [En] (1.0) Unofficial [Collector's
 ```bash
 magnet:?xt=urn:btih:976F005F9C2A2FD7E300BE976E08E2EDA3D01056
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Batman: Arkham Origins / Batman: Летопись Аркхема (2013) [Ru/En] 
 magnet:?xt=urn:btih:7E438507ED6859DCBCD47EA7F069C68FF4079C1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ The Surge - киберпанковая RPG от немецкой студии De
 ```bash
 magnet:?xt=urn:btih:6F05BF7C35C63F1E28AABBB9B0C28C04596DF47C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Wall World сочетает в себе несколько жанров. В эт
 magnet:?xt=urn:btih:198D14922F4961A9F30708EB24D56E4A491B8C4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Tenants - симулятор домовладельца, в котором �
 ```bash
 magnet:?xt=urn:btih:A9A8B622348F3A98A01E473E54A4A5F44B083300
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Detroit: Become Human (2020) [Ru/Multi] (12158144) Repack dixen18
 magnet:?xt=urn:btih:0CB8D02AD4F3F57D1E51B4E852AB0923255C9B44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Christmas Stories 9: The Christmas Tree Forest / Рождественские и
 ```bash
 magnet:?xt=urn:btih:0219F5205B792FF730515CBFB40D0C7EEFDCF438
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ COCOON (2023) [Ru/Multi] (1.0) Scene FairLight
 magnet:?xt=urn:btih:6BFC1CA042A907C381C642FEADEC145830C4F8B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Tony Hawk's Pro Skater 1 + 2 (2023) [Multi] (1.0/dlc) Scene Rune [Digital Deluxe
 ```bash
 magnet:?xt=urn:btih:1484E5ADED3841F94213F0653E69650D97FDC421
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Iron Dungeon сочетает в себе твин-стик шутер и 2d-п�
 magnet:?xt=urn:btih:E82BF9B97E5C6FE23E512DE423C087E93D7134D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Return to Monkey Island (2022) [Ru/Multi] (1.5) License GOG
 ```bash
 magnet:?xt=urn:btih:BD5FFF0E2B328B6C6F834A1F148FE0513C003C2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Bang-On Balls: Chronicles (2023) [Ru/Multi] (0.5.9) Scene Rune
 magnet:?xt=urn:btih:0AC682EA939740C002EDB6FF2E123F786FEBFAFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Disgaea 7: Vows of the Virtueless (2023) [Multi] (1.0/dlc) Scene Rune [Ultimate 
 ```bash
 magnet:?xt=urn:btih:9D267BF2AAD6A9DA457953645577BAFF8B6E6FF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Hidden Through Time 2: Myths & Magic (2023) [Ru/Multi] (1.0.30a) License GOG
 magnet:?xt=urn:btih:365B832802C02EF3B61C605A546BAE2D2DB2D5EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Bilkins' Folly - увлекательная игра, которая отпра�
 ```bash
 magnet:?xt=urn:btih:69C27A20F2764A48F2EF442BB38E0CFCF0884363
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:F3CE842789C26252E7B394A2AD79217B23187235
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:F3CE842789C26252E7B394A2AD79217B23187235
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Katainaka no Ossan, Kensei ni Naru / From Old Country Bumpkin to Master Swordsma
 ```bash
 magnet:?xt=urn:btih:562C7A07B703C79D83EDC6D7B7CFE2D7E6A71AC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:562C7A07B703C79D83EDC6D7B7CFE2D7E6A71AC9
 magnet:?xt=urn:btih:44DDD828904694608FBBA3D2094E5C8DA3D92EC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:44DDD828904694608FBBA3D2094E5C8DA3D92EC6
 ```bash
 magnet:?xt=urn:btih:7EB8C0CB5BBDF99793C862B43390CEE01FB01633
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:7EB8C0CB5BBDF99793C862B43390CEE01FB01633
 magnet:?xt=urn:btih:C7E3F212F35FBED41FF78B19DA7CA7C32E6B6ABF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:C7E3F212F35FBED41FF78B19DA7CA7C32E6B6ABF
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Altus поддерживает темы, несколько учётных за�
 magnet:?xt=urn:btih:D22C82559CD6316F6DD4DFAE9F3DBD218079E526
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ High On Life (2022) [Ru/Multi] (Build 12527950/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:2DF293F65823287A6E3D5F9A0BDADC00E7934DAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Void Sails (2025) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:9DD4BF4292D1210062E545C761161CD1041CF3BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Augmented Empire (2025) [Multi] (22089) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:81146A5DE5C3371E0305CDD9E052105E4EB4009F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:81146A5DE5C3371E0305CDD9E052105E4EB4009F
 magnet:?xt=urn:btih:9E6EDDAA8AE257F4D1A0CC391B9D6ED0FB0B1FC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Ventusky: Прогноз погоды v44.1 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0171AB65257BB4FD9C350B8CB53198B5BD6FB753
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Victoria 3 - прямой сиквел одноименной игры, где �
 magnet:?xt=urn:btih:95071C041798D361873C473CBFAD1FD22BF743B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ magnet:?xt=urn:btih:95071C041798D361873C473CBFAD1FD22BF743B4
 ```bash
 magnet:?xt=urn:btih:D6F6589E8B2C36300D9DEFC2D6E3F7240E42AA40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Yao-Guai Hunter - это уникальный рогалик с элемента
 magnet:?xt=urn:btih:4E3C7F99D28B0DFA2D87FD9FC802B58B8BF47BE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ magnet:?xt=urn:btih:4E3C7F99D28B0DFA2D87FD9FC802B58B8BF47BE7
 ```bash
 magnet:?xt=urn:btih:E22B088E0893610828408BEFED002FC443027FC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:E22B088E0893610828408BEFED002FC443027FC5
 magnet:?xt=urn:btih:AB1F55C3DE86CD834393030B10FE7DAE6309BD36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ magnet:?xt=urn:btih:AB1F55C3DE86CD834393030B10FE7DAE6309BD36
 ```bash
 magnet:?xt=urn:btih:E68304157B296D26D6CE24B6B9DF28B03F5B127B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:E68304157B296D26D6CE24B6B9DF28B03F5B127B
 magnet:?xt=urn:btih:1DE55A3B9D164B3C0C4CC6E8DCC8D357D6AF3CC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ magnet:?xt=urn:btih:1DE55A3B9D164B3C0C4CC6E8DCC8D357D6AF3CC9
 ```bash
 magnet:?xt=urn:btih:470B0A60E79844FD19012BEEE345EB935DC2169C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:470B0A60E79844FD19012BEEE345EB935DC2169C
 magnet:?xt=urn:btih:1CB29279636A6B24FDECF59606B30622CEB908B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ magnet:?xt=urn:btih:1CB29279636A6B24FDECF59606B30622CEB908B1
 magnet:?xt=urn:btih:650CB840B5343FDDE046A970F6C705E3A45F35E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +643,8 @@ magnet:?xt=urn:btih:650CB840B5343FDDE046A970F6C705E3A45F35E0
 ```bash
 magnet:?xt=urn:btih:3739CAB2FBFF733D31975E85F163A3C6F375813D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +671,8 @@ magnet:?xt=urn:btih:3739CAB2FBFF733D31975E85F163A3C6F375813D
 ```bash
 magnet:?xt=urn:btih:2BDD8766AE20E46D3F54C53C93108E49C53E3300
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 558080   (918549) от 21.02.2016
+
+Летопись полувека. Год 1968 (1969) SATRip
+
+>>Документалистика и Телепередачи
+>>Кинолетопись Страны Советской
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_918549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уважаемые выросшие дети и внуки, если хотите, можете здесь, за 2000-м, посмотреть, как жили ваши молодые папа с мамой или дедушка с бабушкой. В фильме на удивление мало торжественных заседаний - в основном обычная жизнь обычных людей.
+Помимо этого, в фильме затронуты темы: Вьетнамская война, расовые волнения в США, прокладка кормящей нас и сегодня нефтетрубы, Сорочинская (   Читать дальше...   )Жанр: Документальный, историческая кинохроникаПродолжительность: 00:56:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BC8DD1ACE39399176C4BA0038558E145B4B6859
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367004   (918636) от 14.03.2020
 
 Королева слонов / The Elephant Queen (2019) WEB-DLRip [H.264/1080p] [PR]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:E3A4442CC0E6EFD21B2290EF3D43781B5CEC228F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +71,8 @@ magnet:?xt=urn:btih:E3A4442CC0E6EFD21B2290EF3D43781B5CEC228F
 ```bash
 magnet:?xt=urn:btih:C27F3A94BFD5D529E08757784EA9C832A2CADA8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +99,8 @@ magnet:?xt=urn:btih:C27F3A94BFD5D529E08757784EA9C832A2CADA8F
 magnet:?xt=urn:btih:34C0778E72C496F2046A170F618AEEA256BCC3E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +124,8 @@ magnet:?xt=urn:btih:34C0778E72C496F2046A170F618AEEA256BCC3E4
 ```bash
 magnet:?xt=urn:btih:9B0D1E48CD713FDA01BF9405D5831B10CFD88236
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +151,8 @@ magnet:?xt=urn:btih:9B0D1E48CD713FDA01BF9405D5831B10CFD88236
 magnet:?xt=urn:btih:C01BA0642B34AD5F9AC0836AF0DC44998F58E774
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +177,8 @@ magnet:?xt=urn:btih:C01BA0642B34AD5F9AC0836AF0DC44998F58E774
 magnet:?xt=urn:btih:BC61B59BC31F173AA433D0E4240ED2A079D1C8E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +202,8 @@ magnet:?xt=urn:btih:BC61B59BC31F173AA433D0E4240ED2A079D1C8E9
 ```bash
 magnet:?xt=urn:btih:7C479354582660DB1841DAD0DA5B2E397FFF3096
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +230,8 @@ magnet:?xt=urn:btih:7C479354582660DB1841DAD0DA5B2E397FFF3096
 magnet:?xt=urn:btih:8EE6D11FD163DB66355904139414F92392BABE95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +257,8 @@ magnet:?xt=urn:btih:8EE6D11FD163DB66355904139414F92392BABE95
 magnet:?xt=urn:btih:8A11806FAB5401582EA270C50B924C6581C27FD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ magnet:?xt=urn:btih:8A11806FAB5401582EA270C50B924C6581C27FD7
 ```bash
 magnet:?xt=urn:btih:A999F4A49649C75604A59D8585457EC2BBA73044
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +309,8 @@ magnet:?xt=urn:btih:A999F4A49649C75604A59D8585457EC2BBA73044
 magnet:?xt=urn:btih:0F621D3E4BCD2038D0260002EDE2B5DB27815493
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +334,8 @@ magnet:?xt=urn:btih:0F621D3E4BCD2038D0260002EDE2B5DB27815493
 ```bash
 magnet:?xt=urn:btih:100529F0C731EB85E3DDBD99EF814555BB1CC8CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +361,8 @@ magnet:?xt=urn:btih:100529F0C731EB85E3DDBD99EF814555BB1CC8CA
 magnet:?xt=urn:btih:D30051F2BC6EA1B6EA1C7559C8F16997A2CAFD1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +386,8 @@ magnet:?xt=urn:btih:D30051F2BC6EA1B6EA1C7559C8F16997A2CAFD1F
 ```bash
 magnet:?xt=urn:btih:D02ACBA1482FF218DCC8A8101A166C75BF9331F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +413,8 @@ magnet:?xt=urn:btih:D02ACBA1482FF218DCC8A8101A166C75BF9331F3
 magnet:?xt=urn:btih:77059B502D8900FEE25A301E0AE4DB26452AD1BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +438,8 @@ magnet:?xt=urn:btih:77059B502D8900FEE25A301E0AE4DB26452AD1BE
 ```bash
 magnet:?xt=urn:btih:3F71F05B595B200C7B2CC8B9EA44EF5EAB7A8991
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +466,8 @@ magnet:?xt=urn:btih:3F71F05B595B200C7B2CC8B9EA44EF5EAB7A8991
 magnet:?xt=urn:btih:691DA2522F59D7FBCBD294EAAECC1EDFDBBE629C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +491,8 @@ magnet:?xt=urn:btih:691DA2522F59D7FBCBD294EAAECC1EDFDBBE629C
 ```bash
 magnet:?xt=urn:btih:11ED32E8332619EA39316837ECDDC4B88BDEB840
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +518,8 @@ magnet:?xt=urn:btih:11ED32E8332619EA39316837ECDDC4B88BDEB840
 magnet:?xt=urn:btih:A4A49E89DC1199D3CD42B40D0A284A27568EC843
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +543,8 @@ magnet:?xt=urn:btih:A4A49E89DC1199D3CD42B40D0A284A27568EC843
 ```bash
 magnet:?xt=urn:btih:D31E694255B5E590718182CBA949E5CF8A84BA19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +571,8 @@ magnet:?xt=urn:btih:D31E694255B5E590718182CBA949E5CF8A84BA19
 magnet:?xt=urn:btih:77DC6631D8F54B0169B7800CCBFBA3CB1652D48E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +598,8 @@ magnet:?xt=urn:btih:77DC6631D8F54B0169B7800CCBFBA3CB1652D48E
 magnet:?xt=urn:btih:6EBD7E5FB86E8A6516C1C64F4BA6BD190C889448
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +623,8 @@ magnet:?xt=urn:btih:6EBD7E5FB86E8A6516C1C64F4BA6BD190C889448
 ```bash
 magnet:?xt=urn:btih:03FEBE0100D3616C25F116DE2BD3E8238B124FA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +652,8 @@ magnet:?xt=urn:btih:03FEBE0100D3616C25F116DE2BD3E8238B124FA5
 magnet:?xt=urn:btih:E788C9AE41A3197E9DD64E268EE4172560AE3CB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,29 +678,7 @@ magnet:?xt=urn:btih:E788C9AE41A3197E9DD64E268EE4172560AE3CB4
 magnet:?xt=urn:btih:A7676256D8E25687617C4CB56C48B796CB46168B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989122   (919184) от 21.02.2016
-
-Рожденный летать. Александр Беляев (2009) DVB
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919184.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Советский Жюль Верн", как называли Александра Беляева современники, автор более 20 повестей и романов, среди которых "Голова профессора Доуэля" (1938), "Человек-амфибия" (1926), "Остров погибших кораблей" (1926), "Изобретения профессора Вагнера" (1926-30), "Звезда КЭЦ" (1936), "Последний человек из (   Читать дальше...   )Телекомпания: Студия спецпроектов и экспериментальных программЖанр: ДокументальныйПродолжительность: 00:38:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AF0D58232CAC1D6CFE618A306E2219338611603
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

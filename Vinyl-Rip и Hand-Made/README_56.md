@@ -22,6 +22,8 @@ Side A:
 magnet:?xt=urn:btih:82C712DB72B74F771C8CCB2D9B8C39F647EBEB45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Janis Joplin - Легенды Зарубежного Рока (2001) Compilation
 magnet:?xt=urn:btih:7B2EC3EA1552B50F7040E67FAA32B619846642D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ Gloryhammer — шотландская пауэр-метал-группа, ос�
 ```bash
 magnet:?xt=urn:btih:CD43CF7A96F69B1C66BAF50A6C8A2AAA715EC087
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -102,6 +108,8 @@ Side A:
 magnet:?xt=urn:btih:EA6FAB84FC4BA1F43C91B6643E388F302776B9CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +136,8 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:ABBB3609798A7AC5A9202CBF01CA363336DD64D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -156,6 +166,8 @@ Master / Мастер (1990) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Thrash, Hea
 magnet:?xt=urn:btih:F49ECB2007F2D0C9E059AD1DD6E4C9A45044A0A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -182,6 +194,8 @@ A4 Точка Отсчета(   Читать дальше...   )Жанр: Hard R
 ```bash
 magnet:?xt=urn:btih:EC495827F156A441266CC297CEF0F26BC359F5A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -210,6 +224,8 @@ Alkonost - Studio Albums (15 releases) (2004-2025) hand made [restored, declippe
 magnet:?xt=urn:btih:906218C82AA30C8B47261EEF2C3CEC4C1E1C6E97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +252,8 @@ Within Temptation - Shed My Skin (2021) hand made [restored, declipped] [FLAC 2.
 ```bash
 magnet:?xt=urn:btih:9211FAC881F4F8591F674156A56E27D452602055
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +282,8 @@ A4 Wishing(   Читать дальше...   )Жанр: Prog Rock, Symphonic Roc
 magnet:?xt=urn:btih:B3874243E70F4E3A7B443B1D14C4566ED417DBF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +310,8 @@ B1 The Chosen Few(   Читать дальше...   )Жанр: Thrash MetalПр�
 ```bash
 magnet:?xt=urn:btih:06469C1096A26FC42BB87F979892593406538DE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +340,8 @@ A4 Goin' Out Of My Head • Я Схожу С Ума(   Читать дальше
 magnet:?xt=urn:btih:9BCC3AD9183F07B42C3A2D754456B4F7D1CFB450
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +368,8 @@ Kiss – 42 Альбома (1974-2012) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Hard 
 ```bash
 magnet:?xt=urn:btih:4DEB28FEA7D153A67F73376AABE59CEDBDA1D44E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +398,8 @@ Pink Floyd - The Dark Side of the Moon (1973) [FLAC 2.0|96/24|image+.cue|Vinyl-R
 magnet:?xt=urn:btih:FE8A338EEA5B1C10C759FEF4DC3F42E42B1881AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +426,8 @@ A4 The Diary Of Horace Wimp(   Читать дальше...   )Жанр: Pop Roc
 ```bash
 magnet:?xt=urn:btih:F22BDD8CC9582039405F5DEF751DCDEABED0FE55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +456,8 @@ A4 One Step Closer(   Читать дальше...   )Жанр: Pop Rock, Prog R
 magnet:?xt=urn:btih:A4BA8AC14B7F5B6963C6A316363423C56132203D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +484,8 @@ A3 Never In A Million Years(   Читать дальше...   )Жанр: Pop Roc
 ```bash
 magnet:?xt=urn:btih:1A42E6A5A78A9883EA18C93959CF9F44C9B54D5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +514,8 @@ Bullet For My Valentine — британская металкор-группа. 
 magnet:?xt=urn:btih:466E7FA09FB358B7CB319DDB9C206D2F8F126F5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +542,8 @@ A4 Maximum Joy(   Читать дальше...   )Жанр: Electronic, Rock, Po
 ```bash
 magnet:?xt=urn:btih:438AFE97694D907AB666D22E3B16F6A61A682133
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +572,8 @@ Hanson - This Time Around (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Soft Rock, 
 magnet:?xt=urn:btih:987664214E6F11079542D287358ED422A18C20BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +600,8 @@ Orphaned Land — израильская рок-группа, объединяю
 ```bash
 magnet:?xt=urn:btih:3EFCC2A565AE0D72AEAF067B350E52991FB88680
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +630,8 @@ VA - Естрадна Палитра/Variety Palette (1973) [FLAC 2.0|192/24|ima
 magnet:?xt=urn:btih:8D6E9BE83D0223A49F259F34022772FCCCCBCCF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +658,8 @@ A4 Good Rockin' Tonight(   Читать дальше...   )Жанр: Rock & Roll
 ```bash
 magnet:?xt=urn:btih:06D96FA5D25F62C8B3C9AEC976E2B649BE935301
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +688,8 @@ A4 Дует ''Акварел'' • Обич Неизбежна • Неизбе�
 magnet:?xt=urn:btih:74D83ACBC3B7D27A92BC85A6A507A68B677E5959
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +717,8 @@ A4 Eva-Maria Pieckert - Maledetta Primavera(   Читать дальше...   )�
 magnet:?xt=urn:btih:4ADD5164C486517397B0807D42F6A1F0B686C002
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +745,8 @@ A4 Alison(   Читать дальше...   )Жанр: Country Rock, Soft RockП
 ```bash
 magnet:?xt=urn:btih:1F7861D3A51DE2A409E76E5BC53E0E3E83478CF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1850586   (1054438) от 
+
+Никита Сахно | Дети Умбракса (2025) [MP3, Кирилл Головин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тысячелетиями Стражи хранили в Доминионе мир и покой железной рукой. Но кто теперь защит от них самих?
+Прошлое отказывается оставаться мертвым, будущее начинает обращаться в прах. Древняя магия, заговоры и запретная сила сталкивают хранителей смерти, защитников порядка и воскрешенных из небытия. Судьба множества миров оказывается в руках заклятых врагов: терзаемого (   Читать дальше...   )Жанр: ФэнтезиИздательство: Аудиокнига своими рукамиПродолжительность: 15:56:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0926785D028E88BE440E28ACAC76B2DE72B7F663
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850578   (1054439) от 
 
 Дарья Кузнецова | Имперская картография. Маги Российской империи (Книги 1-2) (2025) [MP3, Вероника Райциз, Алексей Данков]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:34AD508566A3D6A685EBAB1BC9286E6A12EF720E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +75,8 @@ magnet:?xt=urn:btih:34AD508566A3D6A685EBAB1BC9286E6A12EF720E
 magnet:?xt=urn:btih:292ACCF2B26F0A1C53F43C043D621BB16866C9D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +100,8 @@ magnet:?xt=urn:btih:292ACCF2B26F0A1C53F43C043D621BB16866C9D2
 ```bash
 magnet:?xt=urn:btih:FEEAF63B0E8FEB62C8FC3273F2DBD19D2F5D2507
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +127,8 @@ magnet:?xt=urn:btih:FEEAF63B0E8FEB62C8FC3273F2DBD19D2F5D2507
 magnet:?xt=urn:btih:D1ED17BB04B3784CF9E42AC4194C999192F1D040
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +152,8 @@ magnet:?xt=urn:btih:D1ED17BB04B3784CF9E42AC4194C999192F1D040
 ```bash
 magnet:?xt=urn:btih:8A0941DE8AAF15DAD42A0A5D6863A2217C85F896
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +179,8 @@ magnet:?xt=urn:btih:8A0941DE8AAF15DAD42A0A5D6863A2217C85F896
 magnet:?xt=urn:btih:CE8130FFAB3351A277536D1ECABA91B228FAE7F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +204,8 @@ magnet:?xt=urn:btih:CE8130FFAB3351A277536D1ECABA91B228FAE7F5
 ```bash
 magnet:?xt=urn:btih:76E88501478BDBAB2706BF000F0FC2F2B1F20534
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +231,8 @@ magnet:?xt=urn:btih:76E88501478BDBAB2706BF000F0FC2F2B1F20534
 magnet:?xt=urn:btih:A38BE57A98A5D763BF2EDFC1D1DA2C7021A18980
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +256,8 @@ magnet:?xt=urn:btih:A38BE57A98A5D763BF2EDFC1D1DA2C7021A18980
 ```bash
 magnet:?xt=urn:btih:94C151CEA701E690D6EE707B4BEFEFFAAADD4EBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +283,8 @@ magnet:?xt=urn:btih:94C151CEA701E690D6EE707B4BEFEFFAAADD4EBA
 magnet:?xt=urn:btih:57EAE2D7818AD4E3A87CBB35CD7064AA2D6CB08A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +308,8 @@ magnet:?xt=urn:btih:57EAE2D7818AD4E3A87CBB35CD7064AA2D6CB08A
 ```bash
 magnet:?xt=urn:btih:CE2B3827DDA5382A4ADE70AE4650A02EEAC9B668
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +335,8 @@ magnet:?xt=urn:btih:CE2B3827DDA5382A4ADE70AE4650A02EEAC9B668
 magnet:?xt=urn:btih:60FCE0D31812C0592C6B5327D11DA3C542884A87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +360,8 @@ magnet:?xt=urn:btih:60FCE0D31812C0592C6B5327D11DA3C542884A87
 ```bash
 magnet:?xt=urn:btih:E0AEFF13477B5B52A8CA34484520E360F93E9D39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +389,8 @@ magnet:?xt=urn:btih:E0AEFF13477B5B52A8CA34484520E360F93E9D39
 magnet:?xt=urn:btih:736DB1AFB0410E833A374CC8E3BA8FE1CFD03F44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +414,8 @@ magnet:?xt=urn:btih:736DB1AFB0410E833A374CC8E3BA8FE1CFD03F44
 ```bash
 magnet:?xt=urn:btih:A5ED54F0021077F5563F3D0C1D9A4AAD758C1E1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +442,8 @@ magnet:?xt=urn:btih:A5ED54F0021077F5563F3D0C1D9A4AAD758C1E1A
 magnet:?xt=urn:btih:4C2D681572E2231633CAFC3D277B87FEB7168F8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +467,8 @@ magnet:?xt=urn:btih:4C2D681572E2231633CAFC3D277B87FEB7168F8D
 ```bash
 magnet:?xt=urn:btih:8EA1A31CD2684177428AA35A1FDD09EC2CE046B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +494,8 @@ magnet:?xt=urn:btih:8EA1A31CD2684177428AA35A1FDD09EC2CE046B4
 magnet:?xt=urn:btih:F3955817E3763DEF488E08FEDFBF16B88AF0307E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +520,8 @@ magnet:?xt=urn:btih:F3955817E3763DEF488E08FEDFBF16B88AF0307E
 magnet:?xt=urn:btih:03ED35A3A4D76B3E5416C548EA8647329E2A6722
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +545,8 @@ magnet:?xt=urn:btih:03ED35A3A4D76B3E5416C548EA8647329E2A6722
 ```bash
 magnet:?xt=urn:btih:5CD591C12D8B5327546F7D9B19900D903169AFCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +575,8 @@ magnet:?xt=urn:btih:5CD591C12D8B5327546F7D9B19900D903169AFCD
 magnet:?xt=urn:btih:6863769B20B15F0148A54F04D47CC9F0709E4636
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +602,8 @@ magnet:?xt=urn:btih:6863769B20B15F0148A54F04D47CC9F0709E4636
 ```bash
 magnet:?xt=urn:btih:AA7357B77ABFCA7CC4E81A1725AA5E6D8A347019
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +631,8 @@ magnet:?xt=urn:btih:AA7357B77ABFCA7CC4E81A1725AA5E6D8A347019
 magnet:?xt=urn:btih:138737BEFCBE37C267C27E7E7905139C479EC2FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +659,8 @@ magnet:?xt=urn:btih:138737BEFCBE37C267C27E7E7905139C479EC2FE
 magnet:?xt=urn:btih:B0C3363A2D295F03C87627B07127623665F00B70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,30 +686,7 @@ magnet:?xt=urn:btih:B0C3363A2D295F03C87627B07127623665F00B70
 magnet:?xt=urn:btih:15047F0248791903425395E20F2A18FD921F5AA4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850793   (1054625) от 
-
-Рустам Разуванов | Баба Нюра. Осиново. Предания о колдунах и ведьмах (2025) [MP3, Елена Корнеева]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Окунитесь в манящую глубину легенд ныне несуществующей деревни Осиново, чьих жителей считали сильными колдунами. Книга предлагает проникнуться священным трепетом перед древними тайнами леса.
-Основа данной книги – былички, связанные с ныне не существующей деревней Осиново и ее жителями, которых люди в округе считали сильными ведьмами и колдунами, способными творить (   Читать дальше...   )Жанр: Мистика, ФольклорИздательство: Аудиокнига (АСТ)Продолжительность: 05:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEA67D14BEC97D7FED2710DB63CC2F72387126BB
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

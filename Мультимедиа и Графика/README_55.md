@@ -19,6 +19,8 @@ Output создает ультрасовременное программное 
 magnet:?xt=urn:btih:D4585A0AA29383A466B46A86548E6FB6673383D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ PSP 285 основана на наших легендарных плагинах
 ```bash
 magnet:?xt=urn:btih:61B0BF45BFE66CA47D637013D3A4D861FFC2E493
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ AMS ФотоМОНТАЖ – редактор фото с поддержкой �
 magnet:?xt=urn:btih:F44DBCA07B90F801257FA8E5DE6011F7AFDC0669
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Steinberg - SpectraLayers Pro 12 12.0.30.431 (x64) Update Only [Multi]
 magnet:?xt=urn:btih:18D3202B81F0EA4C6F19A1A6C2B5F9DF09DA2FD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Media Player Classic Home Cinema – удобный во всех планах �
 ```bash
 magnet:?xt=urn:btih:CEA838FC5CA188BE69A01988276499CD51D30B4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Sweep — эффект фильтра.
 magnet:?xt=urn:btih:201328058025C238D9AA96EE373C8879DB3C19EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Excite Audio - Bloom Bundle 2025.10 STANTALONE, VSTi, VSTi 3, AAX (x64) RePack b
 ```bash
 magnet:?xt=urn:btih:E7A3C59A25DA623E50A0D95180F3031AC44D062B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Apulsoft - splitS 1.1.2 VST 3, AAX (x64) RePack by SEnki [En]
 magnet:?xt=urn:btih:52EA16FA50DAF31C6E0A00883A6B6AA78AFDB94A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Modartt - Pianoteq 9.0.2 Pro STANDALONE, VSTi, VSTi 3 RePack (& Portable) by vkD
 ```bash
 magnet:?xt=urn:btih:32330055ED7708C1AEF5C4AF30611398B9D33064
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ darktable — фоторедактор, предназначенный для о
 magnet:?xt=urn:btih:73836B176ECDB5CAB3492B0F5602A24E47C9488D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ KORG Collection — это набор программных синтезато�
 ```bash
 magnet:?xt=urn:btih:523BC6015D4F3A8CDB42961E83C667DB7574A758
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ RapidRAW — это современная высокопроизводител�
 magnet:?xt=urn:btih:CA74AA54F33B13FE531513F27A539AD5712F058A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:1760358A52D799363588C0A8FCD010DC27018D44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ Novation - Bass Station v.1.7[VSTi][английский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ VidCoder - небольшая утилита, с помощью которой �
 ```bash
 magnet:?xt=urn:btih:EC073D6FE0A7F7B86297AEE4F26F858153DCE04E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Fast Video Cutter Joiner - программа 2-в-1 для быстрой ре�
 magnet:?xt=urn:btih:65895EF29BEFA8904793EE17C581F12D42F1E3A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Wondershare UniConverter - простой в использовании виде
 magnet:?xt=urn:btih:C4EAA65290BD1E88F69B0C2121507F083A071C40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Turbo Play Free 2.4651 [En]
 ```bash
 magnet:?xt=urn:btih:B0AE32B0EF05DC77014CD307AD5272192966961D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ Minimonsta2 (   Читать дальше...   )Язык интерфейса: 
 magnet:?xt=urn:btih:FB48072DB7408A38FBFA8FB9259B31107519D363
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ Blue Cat’s Connector от Blue Cat Audio — плагин, который по
 magnet:?xt=urn:btih:D3E8D122AAFAC5C4245B8FCE6D45F83DCEBBAFCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ Unfiltered Audio Plugins 2023.3 VST, VST 3, AAX RePack by TCD [En]
 magnet:?xt=urn:btih:43A2E9E9AB6C8EEED2F2D05E589C71649776FA6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ BLEASS Motion EQ — это мощный, но простой в использ�
 ```bash
 magnet:?xt=urn:btih:B85108B738B9E6408E527746A806FBEEC8332666
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ Winxvideo AI  - это набор инструментов для масштаб
 magnet:?xt=urn:btih:14175678EAEA8DF0C48269259A856E43C4F370CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ Spotify имеет громадный каталог музыки, поддер�
 magnet:?xt=urn:btih:9955498F65F07C2F64CD0DAA5D76C1DCD3256293
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ VidCoder - небольшая утилита, с помощью которой �
 magnet:?xt=urn:btih:66B0C734477D16A3FF73821CD6DAEFECD0D5C5F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Shotcut – кроссплатформенное приложение с отк�
 ```bash
 magnet:?xt=urn:btih:836FEB6DFEBCD0DC8FB059940E1FB0E37F563F0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

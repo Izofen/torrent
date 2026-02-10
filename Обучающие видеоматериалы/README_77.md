@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:287419AFDEE40932AC1769BED58C7931B40527A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ magnet:?xt=urn:btih:287419AFDEE40932AC1769BED58C7931B40527A4
 magnet:?xt=urn:btih:9158679319F8A6378A58A1A621C3C167984EC098
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ Udemy, BHM Engineering Academy, Israel Gbati | ARM GNU Assembly Programming From
 magnet:?xt=urn:btih:723233D63BB82CAB19863B59591BAAED96664F10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ Lynda, David Andrade | Создание законченной анимации 
 ```bash
 magnet:?xt=urn:btih:E2E412637BE92B66CA012AB8E58EF8919A92D07B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ CG Cookie, Wayne Dixon | Учебный лагерь по анимации в Bl
 magnet:?xt=urn:btih:17B810A03F94FC89C70AD149762F8238800ED413
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ CG Cookie, Kent Trammell | Рендеринг и финишная анимаци
 ```bash
 magnet:?xt=urn:btih:385FA17DF8DB15BAF2323F15D96CEB14BB9277D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:385FA17DF8DB15BAF2323F15D96CEB14BB9277D5
 magnet:?xt=urn:btih:8B28E1E0707EE92AA0F6F35DDD0DDA1B6477074E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ Python-разработчик создаёт бэкенд сайтов: мозг
 ```bash
 magnet:?xt=urn:btih:413FBCE677F65096727973D054CB0AC50DD087FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:413FBCE677F65096727973D054CB0AC50DD087FD
 magnet:?xt=urn:btih:029E4D9DFF5C6B9D95E4BAC912884F7CF630D6B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:029E4D9DFF5C6B9D95E4BAC912884F7CF630D6B7
 magnet:?xt=urn:btih:81BEF772542827B4B12420D361BD4E7BCCB4A0B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ Cryptoinside, Иван Шашков | Как создать постоянный
 ```bash
 magnet:?xt=urn:btih:AED82136CB86A72BD516E4648D0066650112CE21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ Udemy, Максим Дорофеев | Джедайские техники (а �
 magnet:?xt=urn:btih:002010EAD73930D53792A6CCFC9D4E97DC1AC7C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:002010EAD73930D53792A6CCFC9D4E97DC1AC7C2
 ```bash
 magnet:?xt=urn:btih:27F33DCC296A89CC60145A235C4061F5E023D3F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ magnet:?xt=urn:btih:27F33DCC296A89CC60145A235C4061F5E023D3F6
 magnet:?xt=urn:btih:341B98403E05A4DECC6EF25002739A1C662F71D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ Softwaretesting, Арсений Батыров | Chrome DevTools: Инструм
 ```bash
 magnet:?xt=urn:btih:DF9490B61DCB61299DE6E84D34085232DAFFECCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ magnet:?xt=urn:btih:DF9490B61DCB61299DE6E84D34085232DAFFECCF
 magnet:?xt=urn:btih:72E0CA2DF87C90161E3C0FB365C5EBEEFD8EAD38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ Infostart | INFOSTART EVENT (2022) WEB-DL [AD] [RU]
 ```bash
 magnet:?xt=urn:btih:407BB963CF854F4C011E973F664D5945B767CDA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ Max Twain | Workshop - Создание серии артов в нейросе�
 magnet:?xt=urn:btih:83534E4080AAB61B0E2BB4BA618BB62E762BC770
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +518,8 @@ education.iyaaar | Марафон стикеров. Тариф мужские (2
 magnet:?xt=urn:btih:2974C1F817BA235F748F3346A26AD1C8BDF9AE47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ Enterclass, Сергей Курбатов | Зеленый цвет в пейз�
 ```bash
 magnet:?xt=urn:btih:44D4A1F3D0D6B138BBF16DA3A3F97191069989CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +574,8 @@ Udemy, The Full Upgrade | Circadian Rhythm - Boost Energy, Focus, Sleep & more (
 magnet:?xt=urn:btih:01CC7934E551779A61D4008E0A66B63355953A92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +603,8 @@ magnet:?xt=urn:btih:01CC7934E551779A61D4008E0A66B63355953A92
 magnet:?xt=urn:btih:9E4435641F68E6036725C6FE2F1DFC0E4490DAC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +629,8 @@ magnet:?xt=urn:btih:9E4435641F68E6036725C6FE2F1DFC0E4490DAC4
 ```bash
 magnet:?xt=urn:btih:4E29E7D8C961AB66191C4903C8CB322869137464
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +659,8 @@ Enterclass, Татьяна Анисимова | Натюрморт с фрукт
 magnet:?xt=urn:btih:CAAEF9A7E821B03E1191CD0104CBA886A940B767
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +687,8 @@ Cryptology School | Cryptology 6.0 (2022) WEB-DL [Пакеты Advanced+Pro] [AD
 magnet:?xt=urn:btih:983A734D8CC6BA345BCBFD993E25E4631A6A9E37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +714,8 @@ Trim sheet или «тримы» — это текстуры для вытяну
 ```bash
 magnet:?xt=urn:btih:0D120EA7B2C14D02A1C5CDD4FC215ADB78AEE298
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

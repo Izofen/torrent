@@ -19,6 +19,8 @@ uTorrent Pro 3.6.0 Build 46716 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 magnet:?xt=urn:btih:DA351EF0C293FC7FED72A05DC4CA33CDF96F2D4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ TeraCopy – утилита улучшает процесс копировани
 ```bash
 magnet:?xt=urn:btih:5B13C71F53B24FC63A15EB0F8080F3F8BCA3109F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ WinPaletter v1.0.7.2 Standalone [En/Ru]
 magnet:?xt=urn:btih:6F72F620D463CDC6CDA5DCC29DCFC25EBFCB4250
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Beyond Compare – мощная и одна из лучших программ �
 ```bash
 magnet:?xt=urn:btih:861EA2A51264BD2DE06834AA6C612889602B28A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ FolderSizes Enterprise 9.5.419 (Repack & Portable) by elchupacabra [Ru/En]
 magnet:?xt=urn:btih:64F8DBEE0EABF6403EABFE413C852ED2DE31B4A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Extended GodMode - это утилита, которая обеспечивае�
 ```bash
 magnet:?xt=urn:btih:EEB150FB313C240E5B15C9E25DD5004DC9E52EC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Download Master эффективно решает 3 главных пробле�
 magnet:?xt=urn:btih:94FA6B26D36B78B7C8033D9077350B6233C1005F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Resource Hacker - программа для просмотра, извлечен
 ```bash
 magnet:?xt=urn:btih:A34BBD0BC1293A015CD7168E0343828670687575
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Sweet Home 3D – замечательная программа для созд�
 magnet:?xt=urn:btih:386D23E5FD4D2F49E809CF28A89E9655B13F8A02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ StopUpdates10 – бесплатная утилита для Windows 10 и Windo
 ```bash
 magnet:?xt=urn:btih:D29A7E83AF33F3BEE748AEE3F2BFF702CF12CFE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Gilisoft Audio Recorder Pro 11.5.0 RePack (& Portable) by elchupacabra [Multi/Ru
 magnet:?xt=urn:btih:3FCAB8BDE7F6E954C169FA14C5FC16ECFC96BF37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ CPUID HWMonitor - утилита предназначена для монито�
 ```bash
 magnet:?xt=urn:btih:CE30075DFC6F9BDCFC656F6B2263D7505B686411
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ VSDC Pro создан для тех, кто хочет освоить нелин
 magnet:?xt=urn:btih:4149A5431F5E703795789B8F9D8BE846E20D0B70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:4149A5431F5E703795789B8F9D8BE846E20D0B70
 ```bash
 magnet:?xt=urn:btih:5595A0C3A53209FBCAF678833EA5C0B385C5FC22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 magnet:?xt=urn:btih:B802AA5D0C596C08D65DD57CC9223E4DA72253D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ AIDA64 - является мощным средством для идентиф�
 ```bash
 magnet:?xt=urn:btih:72E07403A94778221E8080F2D4BB734FC9703CE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Microsoft® Windows® 10 x86-x64 Ru 22H2 8in2 Upd 08.2023 by OVGorskiy
 magnet:?xt=urn:btih:10710DD95FF5756EE154A13FE2E12F17AB745C75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ OpenVPN – мощная программа для работы с частны�
 ```bash
 magnet:?xt=urn:btih:D37283CD3FA0E239B34022C4D615518C7CEFDE04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ Hetman Partition Recovery - программа восстанавливает д
 magnet:?xt=urn:btih:D97E9C2D7701E2BA22CB5C321B79EECFB9DA396D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ CleanMyMac X — это пакет «все в одном», который сд
 ```bash
 magnet:?xt=urn:btih:AEE4C7A8A4D0463F29BC65730550ACC2283B1AB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ Aomei Partition Assistant – мощная программа для работ�
 magnet:?xt=urn:btih:32FF5BB5716F05791BA2E5EC41E2CC58F0B68DB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ AOMEI Partition Assistant Standard Edition бесплатный многофун
 ```bash
 magnet:?xt=urn:btih:78B934390469882857A02A204D1B5B7E0B6F0F79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ StartAllBack - привычная для нас программа, котора
 magnet:?xt=urn:btih:0686E8D2297D053C8D5539032E41C66DAF3A0383
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ YUMI (Your Universal Multiboot Installer) - бесплатная програм�
 ```bash
 magnet:?xt=urn:btih:12F68235A39DDCD8E3FF4E60B57DB10CCE473138
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ COMSOL Multiphysics 6.1 build 282 [En]
 magnet:?xt=urn:btih:2737A849329174E7BF8360BA5BA0FF1323565D3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Microsoft Visual C++ Redistributable Package – это распространя
 ```bash
 magnet:?xt=urn:btih:4866015E1B5CB844698EEA65A570C651B4AAEB57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

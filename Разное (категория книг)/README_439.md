@@ -1,3 +1,29 @@
+###  Публикация: 1031529   (645157) от 07.07.2016
+
+Бенджамин Грэм | Разумный инвестор: Полное руководство по стоимостному инвестированию (2014) [EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645157.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Разумный инвестор: Полное руководство по стоимостному инвестированию" (англ. The Intelligent Investor The Definitive Book On Value Investing) — книга Бенджамина Грэма, известного американского экономиста и профессионального инвестора, которого часто называют «отцом стоимостного инвестирования» (англ. value investing). Книга, впервые изданная в 1949 году, (   Читать дальше...   )Жанр: Деловая литература, финансыФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4AE82B9B59EBD1B76820C1E328943D18BA34E32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032439   (645172) от 07.07.2016
 
 Эмили Нагоски | Как хочет женщина. Мастер-класс по науке секса (2016) [FB2] (18+)
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:F68B8B8BD92D51A344D7A5A74A6CEB9E27968702
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:F68B8B8BD92D51A344D7A5A74A6CEB9E27968702
 magnet:?xt=urn:btih:6EACB5798BAEA05ED4B6919B514E7D91F42E6D5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:6EACB5798BAEA05ED4B6919B514E7D91F42E6D5D
 ```bash
 magnet:?xt=urn:btih:7EEC540E63CB83F930AC98CE924A81BF08E4E2B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:7EEC540E63CB83F930AC98CE924A81BF08E4E2B2
 magnet:?xt=urn:btih:E3E0BF10643732BC29D2114497938E6CBADCD259
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:E3E0BF10643732BC29D2114497938E6CBADCD259
 ```bash
 magnet:?xt=urn:btih:D976BC6F117611388C4CEED52E41CC5F51D0F317
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:D976BC6F117611388C4CEED52E41CC5F51D0F317
 magnet:?xt=urn:btih:36A4D265FA7584191C9F99395EE8E402EA1D4D06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:36A4D265FA7584191C9F99395EE8E402EA1D4D06
 ```bash
 magnet:?xt=urn:btih:D63024DE90C5492969060B3226CBB6978792CF46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:D63024DE90C5492969060B3226CBB6978792CF46
 magnet:?xt=urn:btih:8934704513472DB382325E96DB5F1FB623AC7EE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:8934704513472DB382325E96DB5F1FB623AC7EE7
 magnet:?xt=urn:btih:7F36790CF1A4232D7783FCD33489DA532E0EFCFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:7F36790CF1A4232D7783FCD33489DA532E0EFCFA
 ```bash
 magnet:?xt=urn:btih:3770AB4DC77E77550F012E706DD40140EC22A426
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:3770AB4DC77E77550F012E706DD40140EC22A426
 magnet:?xt=urn:btih:946EE545F4A13D9C7A775BE6F1D2ACB48AF089BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:946EE545F4A13D9C7A775BE6F1D2ACB48AF089BF
 magnet:?xt=urn:btih:0E1C73CA4DF2B21F96EE17E39B463C3EAB9BF4E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:0E1C73CA4DF2B21F96EE17E39B463C3EAB9BF4E9
 ```bash
 magnet:?xt=urn:btih:BD8191134F153B17D528D94A1CB8070BE7A7CD54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:BD8191134F153B17D528D94A1CB8070BE7A7CD54
 ```bash
 magnet:?xt=urn:btih:D4B4002332C3AEB5DC2D4231A71F45C3AFB8A399
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:D4B4002332C3AEB5DC2D4231A71F45C3AFB8A399
 magnet:?xt=urn:btih:EF470059AD8EC8DF05F508C7A969A58BCF841706
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:EF470059AD8EC8DF05F508C7A969A58BCF841706
 ```bash
 magnet:?xt=urn:btih:714FEE896AF2DDCADD0C23E98A3A1F41D946E5B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:714FEE896AF2DDCADD0C23E98A3A1F41D946E5B9
 magnet:?xt=urn:btih:CDD6A4F83AC82FD2127B844FAC4FC0BA1458B891
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:CDD6A4F83AC82FD2127B844FAC4FC0BA1458B891
 ```bash
 magnet:?xt=urn:btih:39804855CBD1B71500F53A68479C7A6DBD975A62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:39804855CBD1B71500F53A68479C7A6DBD975A62
 magnet:?xt=urn:btih:4339F2DBDD793D7D1080DED973E104AC4F431DBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:4339F2DBDD793D7D1080DED973E104AC4F431DBB
 ```bash
 magnet:?xt=urn:btih:9FB40AC8EEBA1BC5271175EA2EE43E85BB09BB96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:9FB40AC8EEBA1BC5271175EA2EE43E85BB09BB96
 magnet:?xt=urn:btih:C9D091D89C214D1F36021DC04B9CD13348A955BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:C9D091D89C214D1F36021DC04B9CD13348A955BB
 magnet:?xt=urn:btih:8AFD71D0E38FCD3E2474CFC9E020BB5ACA57E15C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:8AFD71D0E38FCD3E2474CFC9E020BB5ACA57E15C
 ```bash
 magnet:?xt=urn:btih:DF51F23E75BDD15A13E27EF657DB7FCD9433307E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:DF51F23E75BDD15A13E27EF657DB7FCD9433307E
 magnet:?xt=urn:btih:8A0219090867B63B5AFE75B3643718E9F550A5E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,30 +678,7 @@ magnet:?xt=urn:btih:8A0219090867B63B5AFE75B3643718E9F550A5E5
 magnet:?xt=urn:btih:9EB2267923C533820B0D6C56CCF6AA6A7BEA02E7
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032303   (645842) от 07.07.2016
-
-В.Т. Козак | В лес за грибами (1992) [DJVU]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите иметь на своем домашнем столе различные салаты, икру, наваристые супы, жульены, шашлыки, соки, кисели, компоты, настойки? Идите в лес! Все эти замечательные кушанья из обычных лесных грибов и ягод. Они не только вкусны, но и полезны. Многие из них применяются в народной медицине.
-Книга, предлагаемая вашему вниманию, содержит множество тайн, больших и малых (   Читать дальше...   )Жанр: КулинарияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4312046F3F6C0C946BC78E45BBAD5FE67544D7A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

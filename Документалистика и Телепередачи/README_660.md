@@ -1,3 +1,29 @@
+###  Публикация: 1103177   (887487) от 11.02.2017
+
+Битва экстрасенсов (2017.02.11) SATRip  (сезон 17, выпуск 22)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887487.jpg" />
+</div>
+
+
+###  Подробнее
+
+С 3 сентября на ТНТ стартует долгожданный 17-й сезон «Битвы экстрасенсов» — самого мистического, непредсказуемого и загадочного проекта российского ТВ. Масштабный кастинг, новые яркие участники и высокие технологии в мире экстрасенсорики. Новый сезон обещает стать самым необычным и удивительным в истории шоу. «Мне бы очень хотелось, чтобы в новом сезоне экстрасенсы (   Читать дальше...   )Телекомпания: ТНТЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:21:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B429A4ADEF6C2307A4F575F10591B4A11FF7430
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103064   (887545) от 11.02.2017
 
 Научное расследование Сергея Малозёмова. Еда живая и мертвая (2017.02.11) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:0456F428424196A8B4259BC90FDDE3BE09652368
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:0456F428424196A8B4259BC90FDDE3BE09652368
 ```bash
 magnet:?xt=urn:btih:0E0A1D1947EBE6AD04AD049996CBC1C64F6590DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ BluScenes: Подводный мир Косумель / BluScenes: Underwater Co
 magnet:?xt=urn:btih:12530304C7C0DBB1B9E43818847B837B942EC256
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:12530304C7C0DBB1B9E43818847B837B942EC256
 ```bash
 magnet:?xt=urn:btih:EC76CFE83377F208FF6D91899FCC718A9EB28EB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:EC76CFE83377F208FF6D91899FCC718A9EB28EB4
 magnet:?xt=urn:btih:AF408FF4C843D127EECC4BAA9A484B7C57FB9FA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ BBC. Horizon: Астероиды: хорошие, плохие, злые / Aster
 ```bash
 magnet:?xt=urn:btih:ED89AA5D40C467C0C38750E3EF111A2B4A7DBF37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:ED89AA5D40C467C0C38750E3EF111A2B4A7DBF37
 magnet:?xt=urn:btih:83D601F2912A98D6E11C3E26B15B2B7F22D27655
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:83D601F2912A98D6E11C3E26B15B2B7F22D27655
 ```bash
 magnet:?xt=urn:btih:CB2D6AEB7568780EE3D6BB93CED0A37B2400FC5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:CB2D6AEB7568780EE3D6BB93CED0A37B2400FC5C
 magnet:?xt=urn:btih:9388250DB0EB633C2A4FCB2120FB6B284DDBD94A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:9388250DB0EB633C2A4FCB2120FB6B284DDBD94A
 ```bash
 magnet:?xt=urn:btih:6E3835F6D00518C0200B880812B5E78A86C7CD04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:6E3835F6D00518C0200B880812B5E78A86C7CD04
 magnet:?xt=urn:btih:4B2B74AE160C2EFC0F7C77F11952DAE539F84FC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:4B2B74AE160C2EFC0F7C77F11952DAE539F84FC4
 ```bash
 magnet:?xt=urn:btih:D9E4180379AE76FB062C8E9AA9A116A8ED16A9E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:D9E4180379AE76FB062C8E9AA9A116A8ED16A9E3
 magnet:?xt=urn:btih:982F36BCDDF94F717BDBA02298677F0E6F5C7DDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:982F36BCDDF94F717BDBA02298677F0E6F5C7DDE
 ```bash
 magnet:?xt=urn:btih:0A50A501DF504E4DC85A23B2C874674002D4DB4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:0A50A501DF504E4DC85A23B2C874674002D4DB4D
 magnet:?xt=urn:btih:AFFB59110D3C9EB8005337DE5BF8C5A901CD81C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:AFFB59110D3C9EB8005337DE5BF8C5A901CD81C8
 ```bash
 magnet:?xt=urn:btih:F9A8DABD0936C399D8D0A80641F9D348BD05BD2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:F9A8DABD0936C399D8D0A80641F9D348BD05BD2B
 magnet:?xt=urn:btih:C9A533CCEDEEBA9FAF6AA8F4261A4E634AB2CBAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:C9A533CCEDEEBA9FAF6AA8F4261A4E634AB2CBAC
 ```bash
 magnet:?xt=urn:btih:EA38DAFE71EBD3538EE430801BF80373F567622F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:EA38DAFE71EBD3538EE430801BF80373F567622F
 magnet:?xt=urn:btih:F05A669E31AE0D2FA84D259232C2531A3EF67D6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:F05A669E31AE0D2FA84D259232C2531A3EF67D6F
 ```bash
 magnet:?xt=urn:btih:0DDCBDB3AF396666AC77E3F12C5130C8AF86594D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:0DDCBDB3AF396666AC77E3F12C5130C8AF86594D
 magnet:?xt=urn:btih:00A5C9D78EAF99BF702A7CFDC6980656A489DCCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:00A5C9D78EAF99BF702A7CFDC6980656A489DCCB
 ```bash
 magnet:?xt=urn:btih:30C514BDA9B0D5CC64D468B57E4D83B18F835A2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +620,8 @@ magnet:?xt=urn:btih:30C514BDA9B0D5CC64D468B57E4D83B18F835A2E
 magnet:?xt=urn:btih:6C3D3F5A92459A1989B18013B0348540D4EB30BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +645,8 @@ magnet:?xt=urn:btih:6C3D3F5A92459A1989B18013B0348540D4EB30BB
 ```bash
 magnet:?xt=urn:btih:5EEFF6AA81ECFCF4E08BBF2912CA18F177725A12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,29 +674,7 @@ Bluscenes: Аквариум с Коралловым Рифом / Bluscenes: Cora
 magnet:?xt=urn:btih:BBE448A39CBB94B85F463F27ECF5200226D00073
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102965   (889344) от 10.02.2017
-
-Последнее перевоплощение Зои (2008) DVB
-
->>Документалистика и Телепередачи
->>Личности в истории
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889344.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1968 году Зое Ивановне Воскресенской вручается Государственная премия СССР. Писательница награждена столь высоко за цикл книг о жизни Владимира Ильича Ленина, суммарный тираж которых к тому времени уже превышает тираж книг самого вождя. По этим произведениям сняты художественные фильмы "Сквозь ледяную мглу" 1964, реж. Кольцатый, "Сердце матери", (   Читать дальше...   )Телекомпания: Россия / Телекомпания "Свой почерк"Жанр: Документальный, История, БиографияПродолжительность: 00:51:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1079B9A533158CC8DE058DC320A1AB1CE9EDF324
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

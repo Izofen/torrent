@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:AC141DDC8640B022092BAA66BDCD6179B70ABAC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:AC141DDC8640B022092BAA66BDCD6179B70ABAC2
 ```bash
 magnet:?xt=urn:btih:3F6E3F5CC7E5FB58C3BD86ED862676A4D5F51BE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:3F6E3F5CC7E5FB58C3BD86ED862676A4D5F51BE0
 magnet:?xt=urn:btih:BA4A7FF25326FDCDAB55B36EF10106BC982D823C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:BA4A7FF25326FDCDAB55B36EF10106BC982D823C
 ```bash
 magnet:?xt=urn:btih:53681C6D511044E271D68A6C0EC2FD7F66EDD5DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ VA - Лучшие песни Европа Плюс за 2022 год [MP3|320 Kbp
 magnet:?xt=urn:btih:F3ABBB7B0CACC74457905F2D42584CBE2D9EF490
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:F3ABBB7B0CACC74457905F2D42584CBE2D9EF490
 ```bash
 magnet:?xt=urn:btih:5409C627040B7E8F4C36335BF1BC87321044DBE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:5409C627040B7E8F4C36335BF1BC87321044DBE8
 magnet:?xt=urn:btih:382DABACC2AEBFDBD5E93075D89839F7FB7933A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:382DABACC2AEBFDBD5E93075D89839F7FB7933A1
 ```bash
 magnet:?xt=urn:btih:F25D363BDB5F8F5B58BF53F4B7C0BACA4C977DFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:F25D363BDB5F8F5B58BF53F4B7C0BACA4C977DFB
 magnet:?xt=urn:btih:402227F34E323A64F2B0FD105B19C028913EAD39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:402227F34E323A64F2B0FD105B19C028913EAD39
 ```bash
 magnet:?xt=urn:btih:56B3193CD5842A5058A2CDABA8E651C9AB1E67C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:56B3193CD5842A5058A2CDABA8E651C9AB1E67C2
 magnet:?xt=urn:btih:C47A4B946509F80CA0D1E2049DA0ABFF1F322F66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ The Lord of the Rings: The Battle for Middle-earth (2004) [Ru/En] (1.03) Repack 
 ```bash
 magnet:?xt=urn:btih:7C62A68528E95BC189702F5D8DDA36EAE05C0902
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:7C62A68528E95BC189702F5D8DDA36EAE05C0902
 magnet:?xt=urn:btih:6514141C8BF7F86DCA8BB88C096CB7AD26E56994
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:6514141C8BF7F86DCA8BB88C096CB7AD26E56994
 ```bash
 magnet:?xt=urn:btih:CA342C242991358CE1CCA9C472979AE4233B7A43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:CA342C242991358CE1CCA9C472979AE4233B7A43
 magnet:?xt=urn:btih:1CD8D53866104E8E5E0B87DD3F98DAD7598D28DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:1CD8D53866104E8E5E0B87DD3F98DAD7598D28DA
 ```bash
 magnet:?xt=urn:btih:FCDBF08883840185DFB76B847B5E8AAA7C9F5909
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ VA - A Concord Jazz Christmas (1994) Concord Jazz [FLAC|Lossless|tracks + .cue] 
 magnet:?xt=urn:btih:CF6E88F18C0D8C34CE90FC54EA7B2679F09E8116
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ Toccata - Ultima Ratio (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:BFA076DEDE9E18844EF5584EE6F2DCEFEB5E9D52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ magnet:?xt=urn:btih:BFA076DEDE9E18844EF5584EE6F2DCEFEB5E9D52
 magnet:?xt=urn:btih:E14E09A392DE4B36D6FE435818E631E757AA0491
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ magnet:?xt=urn:btih:E14E09A392DE4B36D6FE435818E631E757AA0491
 ```bash
 magnet:?xt=urn:btih:5FCED0BA056F03A9887CEBED57AB93FF95289C02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +557,8 @@ Jackie McLean & Mal Waldron - Original Quartet Complete Recordings (1956 - 1960)
 magnet:?xt=urn:btih:B085FE1D2161244C2F9E18115CD566D7270D4130
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +583,8 @@ magnet:?xt=urn:btih:B085FE1D2161244C2F9E18115CD566D7270D4130
 ```bash
 magnet:?xt=urn:btih:2E72BA399D54E237C2212AE386D0B46625C4C850
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +613,8 @@ Jayson Tipp - Table For One (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth
 magnet:?xt=urn:btih:60676C13D2A6EFEDBFB45BB2BB1855F56D793E3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +642,8 @@ Demon - Taking The World By Storm (1989) Japanese Edition, Reissue, Remastered, 
 magnet:?xt=urn:btih:DD667AA9405FB3BB61703EAC0173884B78B6263C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +667,8 @@ magnet:?xt=urn:btih:DD667AA9405FB3BB61703EAC0173884B78B6263C
 ```bash
 magnet:?xt=urn:btih:C5B54BFDA56A64E72906066CE1E6933FE7299BE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +696,8 @@ Wayne Pretorius - Introduction to Wayne P (2023) [FLAC 24/44.1|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:01C0499B732B733F1519F4487D55B9B6DE776AFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

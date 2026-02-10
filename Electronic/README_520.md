@@ -22,6 +22,8 @@ VA - Synth Pop Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave, El
 magnet:?xt=urn:btih:906F33A24013A3401F8632EBDDEE4C473E80967B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Tune Of The Week:
 ```bash
 magnet:?xt=urn:btih:D324C0203F453A55F253ED5415494DB390A274EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Deep Blu' - Under The Ocean (2006) [FLAC|Lossless|tracks + .cue] <Deep House, Te
 magnet:?xt=urn:btih:DF6372B030BAC6D2F779D18D45313ADAD0851F80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Transceive - Intrigue (2001) [FLAC|Lossless|tracks + .cue] <Berlin School>
 ```bash
 magnet:?xt=urn:btih:3C9C9A5845037F1722FFCBD78BED0A3DCBA1BFF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ Jens Buchert - Dawnrider (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambie
 magnet:?xt=urn:btih:044E109E68A4AB1924836CBF1C8F0FA17C3AE331
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ Markus Schulz - Escape to Narva
 ```bash
 magnet:?xt=urn:btih:9619C1489F031F22D2B55C5E6A2607496D98EABB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -182,6 +194,8 @@ VA - Black Hole Recordings Presents Best Of Vocal Trance 2021 Vol 1 (2021) [MP3|
 magnet:?xt=urn:btih:51FF7D8D2A11C32B9B847A76562B09882722327A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ Eguana - Resurrected (2023) [MP3|320 Kbps] <Electronic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:68084D747F75DA5CEF12F299844551F68F15BDAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +252,8 @@ Kx5 & deadmau5 & Kaskade - Kx5 (2023) [FLAC|Lossless|WEB-DL|tracks] <EDM, Club H
 magnet:?xt=urn:btih:6FCB04CBAF3184AF907BC77975BCD203AD89C582
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +281,8 @@ Beborn Beton - Darkness Falls Again (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthp
 magnet:?xt=urn:btih:E9864A0AEF5DFDABC85CB9BFFCFFC8865EF1ECF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +307,8 @@ Donato Dozzy | Voices From The Lake - Discography 53 Releases (2004-2020) Spectr
 ```bash
 magnet:?xt=urn:btih:F2A4311D429504AF19CCE948B667EE9B28353BD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +337,8 @@ Low Khey - Never Trust A Cyborg (2021) Comic Sans Records [FLAC|Lossless|WEB-DL|
 magnet:?xt=urn:btih:A10D1651DABC6BDB2CFE67F177F291E9E3AD322F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +362,8 @@ Reid W. Dunn (Wisp, RWD, Dwaallicht, Entsounds) - Discography 11 Releases (2005-
 ```bash
 magnet:?xt=urn:btih:63F02F680A985E1BC1B55BD74E6AACB01AC01909
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +392,8 @@ Sovereign - Rewired (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental Cyber Met
 magnet:?xt=urn:btih:8A64175E854A50EDE05B374484C84B4C7656666B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +420,8 @@ VA - Space Odyssey - Trip Two: First Human In Space (2017) [OGG Vorbis|480 Kbps]
 ```bash
 magnet:?xt=urn:btih:D442C52DB4A3D677CFDBAB41538B7095395373AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +450,8 @@ VA - FOCUS (2021) RBL266 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, 
 magnet:?xt=urn:btih:F241106E2A7D91AA2D67798FD22A39237F5C1C37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +478,8 @@ CD1
 ```bash
 magnet:?xt=urn:btih:6D53AB121B570BA1E28E7BE62E8EA2E9AAFC0524
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +508,8 @@ Public Memory - Discography 7 Releases (2016-2020) Felte Records [FLAC|Lossless|
 magnet:?xt=urn:btih:322BE5086C97ACADAC8440298240F6BEFE5EAC80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +536,8 @@ Arca - Discography 24 Releases (2011-2021) UNO, Mute, XL Recordings [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:29603692BAC228C7D6A3216983EFF8C1E909B0F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +566,8 @@ VA - DNBB Recap 2020 (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 magnet:?xt=urn:btih:A6BAFFB0D7B1AFD5D481CFED4A8CACB54314950D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +594,8 @@ VA - Espectrum II, EP2 (2021) AvantRoots [FLAC|Lossless|tracks|Vinyl] <Dub Techn
 ```bash
 magnet:?xt=urn:btih:0484B885476A552615D6610B503B381613556543
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +624,8 @@ Fuerte played:
 magnet:?xt=urn:btih:583C042BB158F11D9F34F2BC44EBB2C1721129CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +649,8 @@ Monolake - Discography 42 Releases (1996-2020) Imbalance Computer Music, DIN, Ch
 ```bash
 magnet:?xt=urn:btih:F2AD1F71711240E22D44059BD23C5AA39D50DDA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +679,8 @@ Esem - Discography 8 Releases (2001-2020) deFocus, Kahvi Collective [FLAC|Lossle
 magnet:?xt=urn:btih:83F36F2FD98470F6F5CCD113B18957490B7315C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +708,8 @@ De:tuned Label - 10 Years of De:tuned Series 11 Releases (2020) [FLAC|Lossless|W
 magnet:?xt=urn:btih:4BF7BE83ED0755FAB5007C4BDA35D5CC827609FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -686,6 +736,8 @@ Chase Dobson (c.db.sn, Cellar Graves) - Discography 11 Releases (2006-2020) Tymp
 ```bash
 magnet:?xt=urn:btih:48518BF9685489BA24A2761E1E376608B0EEC5A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

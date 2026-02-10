@@ -21,6 +21,8 @@ Multitouch позволяет связать пользовательское д
 magnet:?xt=urn:btih:02171ABC46C2492EFF6511B794A0A4F51A2BC6BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ ShredIt X отлично работает не только с локальны�
 ```bash
 magnet:?xt=urn:btih:CD268EACA8D28DC37395A2D67F855D05A8F4E766
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ CD1:
 magnet:?xt=urn:btih:BF2846B4CA142D524F4BE929A7587BB03E952BB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:BF2846B4CA142D524F4BE929A7587BB03E952BB2
 magnet:?xt=urn:btih:207762A02A9D61E6316F4E9C53EE7489A2819A05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:207762A02A9D61E6316F4E9C53EE7489A2819A05
 magnet:?xt=urn:btih:95FD8368EF5AD2F487F4607F87A41CED33F1CEED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:95FD8368EF5AD2F487F4607F87A41CED33F1CEED
 ```bash
 magnet:?xt=urn:btih:3241EB31C3188A65C9563D4F29ADD75A3D473745
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:3241EB31C3188A65C9563D4F29ADD75A3D473745
 magnet:?xt=urn:btih:A5FBC39BAC3492E21699E1ECA2A6C4F723037E3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:A5FBC39BAC3492E21699E1ECA2A6C4F723037E3D
 ```bash
 magnet:?xt=urn:btih:91ED90FC2D185BC551E55A3540A5534E9F02DA79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ Stand Up (2017.11.19) SATRip (сезон 7, выпуск 8)
 magnet:?xt=urn:btih:B77D36DFD7795BBA390CDEDD799B220F8CA93D39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:B77D36DFD7795BBA390CDEDD799B220F8CA93D39
 magnet:?xt=urn:btih:6F73BEB4A6B4B9CA66205790421F8D011EA330C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:6F73BEB4A6B4B9CA66205790421F8D011EA330C6
 ```bash
 magnet:?xt=urn:btih:28208A8C772AC954841270100F9B8B469270315D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:28208A8C772AC954841270100F9B8B469270315D
 magnet:?xt=urn:btih:3E65016D766295A92F0154FE9D6176F1600F03FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ Magic DVD Ripper - программа для конвертирования DVD 
 ```bash
 magnet:?xt=urn:btih:05FD429620004D97F68FE1FBD45CD793BA830D53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:05FD429620004D97F68FE1FBD45CD793BA830D53
 magnet:?xt=urn:btih:EB925961BE5EA607E719C10F2A42F4A77F3DEC30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:EB925961BE5EA607E719C10F2A42F4A77F3DEC30
 magnet:?xt=urn:btih:D89F2CFEAAE06A0D13B4BC8FC41806BD01A855C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:D89F2CFEAAE06A0D13B4BC8FC41806BD01A855C0
 ```bash
 magnet:?xt=urn:btih:125C48A8F871AE440F1DA93D4D886FD3291674AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ AC/DC — австралийская рок-группа, сформирован
 magnet:?xt=urn:btih:0808AA06025FFCFBD87CB240AA1FD9FA55E6F3E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ magnet:?xt=urn:btih:0808AA06025FFCFBD87CB240AA1FD9FA55E6F3E4
 ```bash
 magnet:?xt=urn:btih:911630F6722335D12901A7A162D928A90E888BEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:911630F6722335D12901A7A162D928A90E888BEC
 magnet:?xt=urn:btih:C7209597C3C851BCC77E482A5D47859477CA6BAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:C7209597C3C851BCC77E482A5D47859477CA6BAD
 ```bash
 magnet:?xt=urn:btih:91B2CF995C7C2EE687C0261822C99D2CCC55A574
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +558,8 @@ magnet:?xt=urn:btih:91B2CF995C7C2EE687C0261822C99D2CCC55A574
 magnet:?xt=urn:btih:FF9257FEBD3F7ECAF22C625593FEA4DC2F007144
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +583,8 @@ Plants vs. Zombies 3 20.0.265726 + MOD [En]
 ```bash
 magnet:?xt=urn:btih:C858C6B82D241A4B3D0A756F4D6D2B761B182620
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +610,8 @@ magnet:?xt=urn:btih:C858C6B82D241A4B3D0A756F4D6D2B761B182620
 magnet:?xt=urn:btih:CD42D12EBA6E0C1454A638378CB1305A85AC018F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ The Bat! Voyager - это мобильный почтовый клиент, ко
 ```bash
 magnet:?xt=urn:btih:C28A1BA5B9E119557DCDD0BA9B228907001BA53E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +665,8 @@ Final Cut Pro X включает основные функции аудиомо�
 magnet:?xt=urn:btih:1A179BB168D1279D68FE4F42E11890847351C253
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ magnet:?xt=urn:btih:1A179BB168D1279D68FE4F42E11890847351C253
 ```bash
 magnet:?xt=urn:btih:E961C134EF8524E27DA95387CEFDA4225B4A08AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1148010   (603825) от 06.07.2017
+
+VA - Best of The 80's (2017) 3CD [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603825.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Laura Branigan – Self Control (04:07)
+02. Sister Sledge – Frankie (04:17)
+03. Alannah Myles – Block Velvet (04:48)(   Читать дальше...   )Жанр: PopПродолжительность: 3:25:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98C18C5D8AA5035567D30D868E10A2EDE9260AFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297352   (604056) от 22.04.2019
 
 VA - Planet Dance Radio: More Music (2019) [MP3|320 Kbps] <Pop, Dance>
@@ -21,6 +50,8 @@ VA - Planet Dance Radio: More Music (2019) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:1B30BB97584C11C0769B935E524B485EBC94C8A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Ballads for Lovers Vol.3 (2016) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:613935D38B8655578BCA3936C2F94FDE42103400
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Новинки в формате mp3 50/50 vol.6 (2017) [MP3|256-320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:D51076D74FCE02AC5DDBD76A0EF04FE9F783C753
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +144,8 @@ VA - Отдыхай на любимой волне Europa Plus (2012) [MP3|256 �
 magnet:?xt=urn:btih:4F17ABBE8CF912E75357A2F5BA3275876654BDC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +179,8 @@ VA - Хитовые летние треки (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:70DE27A821069D964B8A6E6EAF7A21984EDAC73B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +207,8 @@ La Bionda - Compilation (2022) [MP3|320 Kbps] <Pop, Disco>
 ```bash
 magnet:?xt=urn:btih:BB316C9A40CA3E875F6AF6D1D9EEE4B335D206F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +237,8 @@ VA - Music for Car 13 (2019) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:BCC3793A906071F0CC58891D1878162DDAF9DE52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +265,8 @@ VA - Music for Car 12 (2019) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:384778E792F25A0999DC378D0DE331635A218054
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +295,8 @@ VA - Самые Популярные Новинки Года. Зарубежны
 magnet:?xt=urn:btih:6570C28565A5F73F439A50D1B1A4A9010CAF2FBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +323,8 @@ VA - Magic Lights: European Pop Dance Mix (2019) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:1BD5D7EA57728B204DA1608FEB89204FC1C49AA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +353,8 @@ VA - Pop Rock Old Hits 70s-80s (2022) [MP3|320 Kbps] <Pop, Rock, Dance>
 magnet:?xt=urn:btih:433A9CDC5B8409E4DF1EB73A2F9A28CE751AE47A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +381,8 @@ VA - Relax Mix (2022) [MP3|320 Kbps] <Pop, Easy Listening>
 ```bash
 magnet:?xt=urn:btih:C085758C8313016312EDD5E4C937B9503CF3B3D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +411,8 @@ VA - National Pop Dance Music Vol.34 (2022) [MP3|320 Kbps] <Pop, Dance, Schlager
 magnet:?xt=urn:btih:549D76D973C89057E185B2B1F682EC1419B4713B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +439,8 @@ VA - Europa Plus. Самые сливки дискотек №2 (2016) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:8F715DA73FAEF2436FDFBA4CA3EBC3C23AD8B8D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +469,8 @@ Disc 1
 magnet:?xt=urn:btih:AF28AECA09F64B1BB017200F461030302227DBC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +497,8 @@ VA - Дискотека забытых хитов (зарубежная) - 13 (2
 ```bash
 magnet:?xt=urn:btih:3437F3E34DDBB9E2E7087BC4A8332EEBD49137CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +527,8 @@ VA - German Top 100 Single Charts 30.06.2017 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:0333BE904B673B31F30FCE8C8C53B78CC8D3B4B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +556,8 @@ Spice Girls - The Best (2019) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:62C4729D6BB3C17EC4E68029E7CCB2E28F0E1368
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +584,8 @@ VA - Летние хиты за рулем. Русский выпуск (2015) [
 ```bash
 magnet:?xt=urn:btih:4ED9AC1E6AF75DA7E042E3093EF1E6DF00C0F5DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +620,8 @@ VA - Европа плюс представляет: Живи в экстазе!
 magnet:?xt=urn:btih:C20EC001D34460EB9FD533171F3C748F6B89EAC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +648,8 @@ VA - Дискотека Русский Хит 90х (2016) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:EA0E573FE88360F91748319D357DD20A1D5913EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +684,8 @@ VA - UK Top 40 Singles Chart (15.07.2012) [MP3|320 кб/с]<Pop, Dance, Club>
 magnet:?xt=urn:btih:A1EA93D63053B72839116E2AD6CB3BE8E7A47C68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +712,8 @@ VA - Billboard Hot 100 Singles Chart 20.04.2019 (2019) [MP3|320 Kbps] <Pop, Danc
 ```bash
 magnet:?xt=urn:btih:84A46D566E576D87951443B272504AD4A58B21DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +742,8 @@ VA - Русское радио. Летний Best (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:5EE1BB377164211AAAB9302076AD355F1E1E223A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,32 +771,7 @@ VA - Ballads for Lovers Vol.2 (2016) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:8F21F10097F13C35804D109D344B5BA15243D35B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912416   (612306) от 25.06.2015
-
-VA - Союз летних хитов от Европа Плюс. Часть 3 (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612306.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Britney Spears & Iggy Azalea - Pretty Girls
-002. Иван Дорн - Весна
-003. Guy Sebastian - Animal In Me
-004. Lx24 - Сегодня Пьяным Буду Вновь(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:300BE17B0CC8B2C01C5391EBB6BD708B9C7C78F4
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ JetBrains WebStorm — это мощная интегрированная сре
 magnet:?xt=urn:btih:60689DEE2779BFB2696140F5E406AA14B0BCE6D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ JetBrains DataGrip - это инновационное программное о
 magnet:?xt=urn:btih:F2C8B9E69982F6C92E3620A5DD10F2888E9BAA24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ WinPE 11-10 Sergei Strelec (x64) 2026.01.11 [En]
 ```bash
 magnet:?xt=urn:btih:7CB81F26B6F867080502EC292DF390733C82AC4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ WinPE 11-10 Sergei Strelec (x64) 2026.01.11 [Ru]
 magnet:?xt=urn:btih:469C2374F8296D4961096C19FDDD0B5D652C7C58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ JetBrains PyCharm Professional – это мощная и многофункци
 ```bash
 magnet:?xt=urn:btih:E6C90ADC763644450227F30FA29F234D1916A505
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ RubyMine — умная и удобная интегрированная сре�
 magnet:?xt=urn:btih:A22AB4A3351F050802078AB76556EFE84EF8E838
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ RustRover - это мощная и удобная среда разработк�
 magnet:?xt=urn:btih:D6749BA906618061AB4A1B9BEA176C2C54CC514C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Visual Studio 2026 - это один из самых амбициозных ша
 ```bash
 magnet:?xt=urn:btih:D75F5BE9A4473B220B451F04D725F5C789DFC23E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Visual Studio — это мощное средство разработчика,
 magnet:?xt=urn:btih:B560A6EAB6D09039D3815A91F3303B7190F749BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Visual Studio 2026 - это один из самых амбициозных ша
 ```bash
 magnet:?xt=urn:btih:F3DC19C8411441EB0D98C267B2E81C5D28AB9D41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:F3DC19C8411441EB0D98C267B2E81C5D28AB9D41
 magnet:?xt=urn:btih:06E6E8C92357AD20C71A1857EC3C6211DAB0D504
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ nanoCAD – первая отечественная базовая САПР-пл
 ```bash
 magnet:?xt=urn:btih:ABC4C548DDB3B3E3C4574EDF6C5F6DCE88B1AA76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Visual Studio 2026 - это один из самых амбициозных ша
 magnet:?xt=urn:btih:4FFF9F33F383947E0C0BD318DB5FDCDEB7E7BE09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Visual Studio — это мощное средство разработчика,
 ```bash
 magnet:?xt=urn:btih:E06A675F074ED4DAFF1B84E8D01F2186CB8623A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Visual Studio — это мощное средство разработчика,
 magnet:?xt=urn:btih:C0380F2C7A0C29302643817BE8565FB9768FC54B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ WinToUSB - позволяет устанавливать и запускать �
 ```bash
 magnet:?xt=urn:btih:A6D5E4374673ECBE2CF9230D7886108117F7734A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ FontViewOK 9.21 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:E46D3DB8B3E1232BA27C632DA8AB497E0916634D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ JetBrains CLion — интеллектуальная среда разработ
 ```bash
 magnet:?xt=urn:btih:593D8EC36E6C4C8793D833EA4EB5FFC59B1D69AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ Oracle VM VirtualBox является многофункциональным и�
 magnet:?xt=urn:btih:43311C7B5A3D28F330D93181F183F74ED41EF5D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Cisco Packet Tracer — это комплексная программа обу�
 ```bash
 magnet:?xt=urn:btih:C097B45308F6191AFD0C05860C2CE243EC2B7127
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ DataSpell — IDE для Data Science. DataSpell создан специальн
 magnet:?xt=urn:btih:610A0C174084B688B88C143B4F93AC016EC31449
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ Rider — это кросс-платформенная интегрирован�
 ```bash
 magnet:?xt=urn:btih:B03F604EBACA3DAEFB2F61D4189DE4E41193E8D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ JetBrains PyCharm Professional – это мощная и многофункци
 magnet:?xt=urn:btih:B9B8743862375F7834B7287F6F94E53D0FD7F697
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2026.02.05 [Ru]
 ```bash
 magnet:?xt=urn:btih:09E3A67AB35F539D5784F9A42A90365A3F79CFB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ DYMOLA (Dynamic Modeling Laboratory) является средством для 
 magnet:?xt=urn:btih:669181B1B626251733DEFA6F1667947B93B8FCBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ ADB AppControl - это новая и удобная программа для �
 ```bash
 magnet:?xt=urn:btih:5E3A877ABBEDE68D7582D51A0775F043A0D6B3F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

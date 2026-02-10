@@ -22,6 +22,8 @@ Hiromi Sano - Compilation (2024) [MP3|320 Kbps] <Instrumental, Sax>
 magnet:?xt=urn:btih:FDCB68D769212A61A0FD676561799049B6698118
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Picturize it v1.1.9.1 Mod by srajawwal09 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:BEC1E395D19127676D4C41306C5AA1829BEA8C62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:BEC1E395D19127676D4C41306C5AA1829BEA8C62
 magnet:?xt=urn:btih:17072E8979D28206AB24A83130ADD66AAC23A9EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Vintage Culture - Promised Land (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House
 ```bash
 magnet:?xt=urn:btih:96281DE4FC39AA3443A6F18A47C060A611FE71A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Regency Solitaire является карточной игрой, которая
 magnet:?xt=urn:btih:DD50918FF43A2EB7F6CD2A03A2549C9990157BEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Grimm Kumikyoku | The Grimm Variations | Вариации Гриммов [2024, 
 ```bash
 magnet:?xt=urn:btih:DE43B8DEF2F0F2358AF9CE2DC7B257011D947095
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:5EB020AA7CD97D886D879428FC7D803AF93EF334
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:5EB020AA7CD97D886D879428FC7D803AF93EF334
 ```bash
 magnet:?xt=urn:btih:5A983DFA4394787C3AFFBCC057BB5EC3C03EF819
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:5A983DFA4394787C3AFFBCC057BB5EC3C03EF819
 magnet:?xt=urn:btih:25227043876C16F9C0630B5F0CA61394D4C1E8C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:25227043876C16F9C0630B5F0CA61394D4C1E8C3
 magnet:?xt=urn:btih:121AC779F0A8410E7BEE43CFF0030A65490A9736
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ PictureThis - Plant Identification v3.84 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:DC15886850738E10E53805845CC741D85A423FC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:DC15886850738E10E53805845CC741D85A423FC0
 magnet:?xt=urn:btih:C8C806BD66F854F09D6E5A259693412830A79FB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:C8C806BD66F854F09D6E5A259693412830A79FB2
 ```bash
 magnet:?xt=urn:btih:955797BC0A97DA9BEA0D913511C054F44804024A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ VA - Instrumental 79 Compilation (2024) [MP3|320 Kbps] <Instrumental, Sax>
 magnet:?xt=urn:btih:A79E4AB280B6351085E2172E2F47315275064035
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:A79E4AB280B6351085E2172E2F47315275064035
 ```bash
 magnet:?xt=urn:btih:B91B3AE2C34388BA51A102F0B1275BD2913F1C54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:B91B3AE2C34388BA51A102F0B1275BD2913F1C54
 magnet:?xt=urn:btih:3335D77A7B6D6E59E623CE04671B9BDC7F027AAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ magnet:?xt=urn:btih:3335D77A7B6D6E59E623CE04671B9BDC7F027AAA
 ```bash
 magnet:?xt=urn:btih:91BA76B48EC758E9AFBBD3B891C6C6445942DAF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:91BA76B48EC758E9AFBBD3B891C6C6445942DAF1
 magnet:?xt=urn:btih:5B84413C12B0913117F0259C08E0A091AE7838E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ Wood Block Puzzle – классическая игра-головоломка �
 ```bash
 magnet:?xt=urn:btih:B1D925938D304C92AD82B8BF0FC1716E39125517
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ ES File Explorer (File Manager) — это полнофункциональны�
 magnet:?xt=urn:btih:AFB59099FF17E6BCD8BC15E724C910D71E52EB4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ Reface: Face Swap AI Generator v4.11.0 Mod by derrin [Multi]
 magnet:?xt=urn:btih:BFA1F988EB458DFA426D0CE8D76E24CD4EA0CAAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:BFA1F988EB458DFA426D0CE8D76E24CD4EA0CAAB
 ```bash
 magnet:?xt=urn:btih:DDA1C6E0616193A28287E9097EFCB73533C1571B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +608,8 @@ CD1 - Metallica Remastered:
 magnet:?xt=urn:btih:3CACABE6191F0CC07E15B3E322655974FDE42CD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +633,8 @@ magnet:?xt=urn:btih:3CACABE6191F0CC07E15B3E322655974FDE42CD7
 ```bash
 magnet:?xt=urn:btih:15FA35B86DD531247345DD736CA22A26BBD72685
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +660,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:A9DFCCDA9B4143C735C26827C494463ACEE85500
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ Hauntii - приключенческая игра, предлагающая ва
 ```bash
 magnet:?xt=urn:btih:BFC877D0EBD588005170B7FA629EF5C226CF3A2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

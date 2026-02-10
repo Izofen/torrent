@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:BFEFA0F37E2019C0DBCF74F8E9B0A2A37E35F002
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Enrico Rava & Fred Hersch - The Song Is You (2022) ECM Records [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:30B54F5919ED0916D593566DC5E87763FC90B5F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Veiled Alpha - Beyond the Mask (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Alternat
 magnet:?xt=urn:btih:11EB01DFAECE908D4DF7795660776FDBC62B150B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ Author 6.6.2 [Multi]
 magnet:?xt=urn:btih:8524C312131A931B60CAD57FC5D8F3343D1A8F51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:8524C312131A931B60CAD57FC5D8F3343D1A8F51
 ```bash
 magnet:?xt=urn:btih:C666ABF2F1F2477E9EBD7D9AA60B8A25F0C54FBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ Psilocybe Larvae - Non-Existence (2008) [FLAC|Lossless|image + .cue] <Dark Metal
 magnet:?xt=urn:btih:62EEDB0DE05E8E8C2638F23EA61F4134A387DE68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +189,8 @@ VA - Trap (2023) [MP3|320 Kbps] <Trap>
 magnet:?xt=urn:btih:A5FD7F8435E095AC4923BB6AB0076D106AE4F956
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:A5FD7F8435E095AC4923BB6AB0076D106AE4F956
 ```bash
 magnet:?xt=urn:btih:66C3F9F3C25B8EFF2EC84043AB66DBFA4F5C397A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -228,6 +244,8 @@ AveNue - Четвертак (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:B947AD7B05CAFA552205A0E00D324990AA8B8BF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ magnet:?xt=urn:btih:B947AD7B05CAFA552205A0E00D324990AA8B8BF5
 magnet:?xt=urn:btih:3487A0CDABE119509B27524B1A9205F32DE815AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ Quick Search 5.35.1.138 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:309A65322C04D4E59449EBD47E3D88FAF49B004E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +326,8 @@ Armory - Mercurion (2022) [FLAC|Lossless|WEB-DL|tracks] <Speed Metal>
 magnet:?xt=urn:btih:B49133060B93FC1FB2E0B143454BB77290452D46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:B49133060B93FC1FB2E0B143454BB77290452D46
 ```bash
 magnet:?xt=urn:btih:FB6440934A0185001A097EAE2FA5FC109CF4856C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +381,8 @@ Synth Elements - Love and Space (2020) [FLAC|Lossless|WEB-DL|tracks] <Spacedance
 magnet:?xt=urn:btih:439FD85282AFBFAFEE6059A85BF1937C6DADB371
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +410,8 @@ Deathstars - Everything Destroys You (2023) [FLAC|Lossless|image + .cue] <Gothic
 magnet:?xt=urn:btih:3F80EF21249BD6A448F4D8C340AA16F179E36464
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +435,8 @@ Topaz A.I. Gigapixel — это первое и единственное при�
 ```bash
 magnet:?xt=urn:btih:299E83BA8CEA0F73792A38BD05D09F2F153476B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +462,8 @@ magnet:?xt=urn:btih:299E83BA8CEA0F73792A38BD05D09F2F153476B7
 magnet:?xt=urn:btih:5ED7B465B206CC1E98AFD2F118824FD43749483C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ magnet:?xt=urn:btih:5ED7B465B206CC1E98AFD2F118824FD43749483C
 ```bash
 magnet:?xt=urn:btih:44BA0A35636B206E4EC5D7276C568CF00EA011EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +517,8 @@ Psilocybe Larvae - Stigmata (2001) [FLAC|Lossless|image + .cue] <Dark Metal>
 magnet:?xt=urn:btih:AAF5B39654E242D69A96C1F7CDD8078928CE0697
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +545,8 @@ OBS Студия - бесплатное программное обеспече�
 magnet:?xt=urn:btih:C6384530608739CAD063A9DBD6D82BF7521E432B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +571,8 @@ Polarr v6.7.9 [Ru/Multi]
 magnet:?xt=urn:btih:9DFAE4BBF82A0DB0907BED27C24DB4F456A9F789
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +596,8 @@ magnet:?xt=urn:btih:9DFAE4BBF82A0DB0907BED27C24DB4F456A9F789
 ```bash
 magnet:?xt=urn:btih:DF0CAE91A5A1041DB4D9890349FF66608E134265
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +626,8 @@ VA - Trance Anthems Vol. 20 (2023) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:BFEDE17FC95AF8CA7C4298FBC97C8A6D6CA62776
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +651,8 @@ magnet:?xt=urn:btih:BFEDE17FC95AF8CA7C4298FBC97C8A6D6CA62776
 ```bash
 magnet:?xt=urn:btih:F8C0FF0D8A1F5F1C99D16F9B33D7FB17CAAE253A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +681,8 @@ Charles Mingus - A Modern Jazz Symposium Of Music & Poetry (1957) 1994, Bethlehe
 magnet:?xt=urn:btih:3746C88DA60103F8153CB94F3C167EB7AF01F4BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ Ungoogled Chromium - версия веб-браузера Chromium без инт
 ```bash
 magnet:?xt=urn:btih:F0DDA98366BCC2B223A06884ED65A5A270DE5ABB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Warhammer 40,000: Rogue Trader – это изометрическая роле�
 magnet:?xt=urn:btih:9550F15A2DEB7726C42901DFC001CC8E8A5F3C9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Anno 2205 – полюбившийся игрокам симулятор гор�
 ```bash
 magnet:?xt=urn:btih:3CB0CF00752707AE0CD8DF978E0422EA297A3546
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Espresso Tycoon - это совершенно новый подход к ста�
 magnet:?xt=urn:btih:033313A0AF64E468F81425EFB39A539CB2720BAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Manor Lords - стратегическая игра в эпоху среднев
 ```bash
 magnet:?xt=urn:btih:1BA04324E59F72779C1F73B4B86F8BBAAE7BF228
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Windowed Borderless Gaming (2012) [En] (2.1.0.1) Portable
 magnet:?xt=urn:btih:3510A0FF82107EB655DC7000921111908CF324AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Arctico (2022) [Ru/Multi] (2.2a) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:90AFCD3E5053246F7E579222DF1327ED89F739FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Quilts & Cats of Calico - это уникальная и наполненная 
 magnet:?xt=urn:btih:34104A254880EC6F914D3B81B92F805F3F0E2EB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Thyria (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:77C018D2EA6F426E70325F6BDCC87001C6C7731C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Anno 2205 – полюбившийся игрокам симулятор гор�
 magnet:?xt=urn:btih:0097CBB136C1FFAA783E15B9158B5DDF7FDDAE34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Anno 2205 – полюбившийся игрокам симулятор гор�
 ```bash
 magnet:?xt=urn:btih:98FF5B91DE2B23518128D1411D055A621A879FB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Kill Knight / Рыцарь Бездны (2024) [Ru/Multi] (1.0.0.108) Repack Fit
 magnet:?xt=urn:btih:9A62E74D3021F1DD5B607E00985C3CB4BF65EA43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Zoochosis (2024) [Ru/Multi] (1.2.8) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:9B34E45C50647E6B7E3A6B4C390A020F53C30200
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Anima Flux - это кооперативная метроидвания про �
 magnet:?xt=urn:btih:4C33F509BD548DAE352E81F5D3253C4B8F38B992
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ HUNTDOWN (2020) [Ru/Multi] (1.278) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:6078E3AE6A6882E5247168F88EE010CBDF2BC600
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Shadow of the Tomb Raider (2018) [Ru/Multi] (1.0.1.0/dlc) Repack Yaroslav98 [Def
 magnet:?xt=urn:btih:9122A6307E4F55DBC1428102B100A0B15CA51719
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Fights in Tight Spaces (2021) [Ru/Multi] (1.2.11458/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:01CC1B8BB07E3907BC79402DE0DF5546ECC0F965
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Mr. Prepper - строительный симулятор, где вам пре�
 magnet:?xt=urn:btih:B605E36BE2281C39CC9D250460FE37D258833ECD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Rise of the Tomb Raider (2016) [Ru/Multi] (Build 9575745/dlc) Repack Other s [20
 ```bash
 magnet:?xt=urn:btih:5710E189ED67200A65C5C729AB3E7E9D89367B96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Teenage Mutant Ninja Turtles: Shredder's Revenge - экшен, в котором
 magnet:?xt=urn:btih:74C0A94F2053D42DA8B0578E2EFEDD0E746BE05C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The Evil Within 2 (2017) [Ru/Multi] (1.04/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:95DDC50A583BD408DF7F74A99ED3CA43D30C7224
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Espresso Tycoon - это совершенно новый подход к ста�
 magnet:?xt=urn:btih:251E252AEE868E542EBB1DBA3F9B6337ED6B4EF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Anima Flux - это кооперативная метроидвания про �
 ```bash
 magnet:?xt=urn:btih:7C181E6C34411D4062E1049AAC6608590F606870
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Exophobia - пиксельный шутер от первого лица, в к�
 magnet:?xt=urn:btih:6D79864C81D4AA2B9A5A208AFA6A889E2638A0AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Elmarion: the Lost Temple (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D192F3549B04131E3ADFFB2BD296FEE711AD6C17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Farming Simulator 22 (2021) [Ru/Multi] (1.14.0.0/dlc) Repack dixen18
 magnet:?xt=urn:btih:CF3E18A7838A4404D7802904334FB018A8F7B1F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Stretcher Men (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:64819539D081C7CDC2D48C7382C1CBD45B82D664
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Saints & Sinners - игра, не похожая ни на одну другую
 magnet:?xt=urn:btih:49CED4969626B4AFD4DC51E0098154352D6D94F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Janosik 2 – продолжение истории, начатой в перв�
 ```bash
 magnet:?xt=urn:btih:655CBF489656BE81EB879F7B1F35AF3FF2344EB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Willie's Nightfall (2025) [Ru/Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:ACFB47624BA9BBCA11D537F81C6C9B396CCDA65F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Tin Can: Escape Pod Simulator (2022) [Ru/Multi] (1.0.0.7d) License GOG
 ```bash
 magnet:?xt=urn:btih:611CA3C1908233E83E8FEE88C2F44DE6C53D7C1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Tavern Master - симулятор, в котором предстоит ста�
 magnet:?xt=urn:btih:91351AE19A3BCADEB2F582C471C30600BDC5BECC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Love n Life: Lucky Teacher погружает вас в жизнь бывшег�
 ```bash
 magnet:?xt=urn:btih:1F277E9B4B6975B1AB1062BF32D2DFEEECA0C48B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Little Big Adventure – Twinsen’s Quest (2024) [Ru/Multi] (1.1.2/dlc) License
 magnet:?xt=urn:btih:D7804549CA4D0DE84E8861FE93B20E9839E57094
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Catizens (2022) [Ru/Multi] (1.0.r153) Repack FitGirl [Game & Soundtrack Bundle]
 ```bash
 magnet:?xt=urn:btih:187CA3AA105A776654DD6EB007A7DBAF95545254
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Pocket Cars (2020) [Ru/Multi] (1.0.0) Repack FitGirl
 magnet:?xt=urn:btih:852F038EF5E01D0D1502BFA474FA27AA71519DED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ DYSMANTLE (2021) [Ru/Multi] (1.4.0.41/dlc) Repack FitGirl [Complete Bundle]
 ```bash
 magnet:?xt=urn:btih:4410FE85B6D4D13ABA97965CE87B4ACFAE9D9202
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Beat Hazard 2 – продолжение яркого представителя
 magnet:?xt=urn:btih:B85D327929C7BC70FAD33D248880CC1EB09155FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Age of Darkness: Final Stand - это стратегия в реальном в�
 ```bash
 magnet:?xt=urn:btih:1A2F7C4BDC88DC6F18AA618837F1C03D4077EEA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Ultimate General: American Revolution (2024) [Ru/Multi] (1.0.3/dlc) Repack FitGi
 magnet:?xt=urn:btih:4B9581F4880F2F4B28DE30A290B0E2F1079CD3A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Your Android (2025) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:BFD95E6A62120D7A526F506B67042340B154902B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Heart's Medicine - Hospital Heat - это долгожданное продол�
 magnet:?xt=urn:btih:86392DCC63C4554219849DF992626E33DACB52A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ AquaFantasia (2024) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:2B1B4FA790D80F325F746721DDED3BCDB169F376
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ STASIS: BONE TOTEM (2023) [Ru/Multi] (1.0.4.3) Repack FitGirl
 magnet:?xt=urn:btih:4936A6B34751401F5BA1212350B32C126F75F469
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Metro Awakening - это разработанный специально для 
 ```bash
 magnet:?xt=urn:btih:09C06B216EF88817FC4E1BFDBAE2629B11C32C9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Car Mechanic Simulator 2021 - симулятор механика, позвол�
 magnet:?xt=urn:btih:648494B8AED1FC596B4D3DB761A01CCD8E28F547
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Skydance's BEHEMOTH - это оригинальная история, дейст
 ```bash
 magnet:?xt=urn:btih:84763FD3D3ECB90C8FA4F3BEF0974486492F4857
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Airhead отличается от прочих метроидваний тем, 
 magnet:?xt=urn:btih:937AB1F4D69E539798654FA8CDBAF39E404563DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Montezuma's Revenge: 40th Anniversary (2025) [Multi] (1.0/dlc) Repack FitGirl [D
 ```bash
 magnet:?xt=urn:btih:75BD34719E5215255D12D3CC405E9FE58DD007A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ STASIS: BONE TOTEM (2023) [Ru/Multi] (1.0.4.3/dlc) Repack seleZen
 magnet:?xt=urn:btih:ABA9CCA534E8A5D323530383CD629FCE4814C79C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Chocolate Factory Simulator (2025) [Ru/Multi] (1.0.15) Repack R.G. Freedom
 ```bash
 magnet:?xt=urn:btih:89A9444282DC5A64E0C395CFC70806263A957D02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Crime Boss Rockay City (2023) [Ru/Multi] (1.13.2.0/dlc) Repack Decepticon
 magnet:?xt=urn:btih:0EFDF287E13CCA52C352A8E26E72BBE3393470D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ The Haunting of Joni Evers – это эмоциональная история 
 ```bash
 magnet:?xt=urn:btih:3DF240D8334E9F03EC24FF38407AF7DFBCAEC8EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

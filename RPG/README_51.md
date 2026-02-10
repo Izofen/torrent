@@ -19,6 +19,8 @@ Vaporum — однопользовательская ролевая игра о�
 magnet:?xt=urn:btih:47A682E1A85121328CBCEBC19DFD79B246A61A64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Vaporum — однопользовательская ролевая игра о�
 ```bash
 magnet:?xt=urn:btih:A6672A8722F57839CEE9F7B004DC64FBB57FB23D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Star Wars™: Knights of the Old Republic (2003) [Multi] (1.0.3.0) License GOG
 magnet:?xt=urn:btih:F973740C6009AB7E6F4C32AA57F236D40F2645A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Fictorum (2017) [En] (2.0.4) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A26687DDB8100A683D8A8754813BF92371EF7BA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ ARK: Survival Evolved (2017) [Ru/Multi] (275/dlc) License RELOADED
 magnet:?xt=urn:btih:B4DD832C6E93EE2F1BA4AF583816B4C5C0AFFAE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Expeditions: Viking (2017) [Ru/Multi] (1.0.7.3/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:A595EB552E48A635B1DFC093FE6035C997E13DDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ The Temple of Elemental Evil (2003) [En] (1.0) License GOG
 magnet:?xt=urn:btih:434B09EEE841988EF0698CAFC43DB80FEC732ACF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Kenshi (2018) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:F9D922B53C8B3C01E7F6B7C4CAAAFB7789D79343
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Fictorum (2017) [En] (2.0) License GOG
 magnet:?xt=urn:btih:21B3A60FC76CDD6A3FD69982FF57D3F343152E4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ King of Dragon Pass (2015) [En] (1.0.5) License GOG
 ```bash
 magnet:?xt=urn:btih:0EA24346401A473FE7A5DD3061297B727314D1F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Gorky 17 / Горький-17: Запретная зона (1999) [Ru/Multi] (1.0
 magnet:?xt=urn:btih:C8785E2CBFEB979FB4AA9430E641EA109B0B5ADF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ RUNE II (2019) [Ru/Multi] (0.0.9L) Repack xatab
 ```bash
 magnet:?xt=urn:btih:C0E587D9509E1BE72B5C49865E03EB7842EB3FFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ The Elder Scrolls: Arena - компьютерная ролевая игра, п�
 magnet:?xt=urn:btih:62A199D051FAE6E63A8C70DDA1E0A244662BB421
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Rune II (2019) [Ru/Multi] (0.0.9L) License CODEX
 ```bash
 magnet:?xt=urn:btih:32835E06AD9F85097E47B7A05F3AA352CC583431
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ CODE VEIN (2019) [Ru/Multi] (1.01.86038) Repack R.G. Механики
 magnet:?xt=urn:btih:9362E2A9B77649558C97DBA368A2AAE37FFBA2B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Mount & Blade: With Fire & Sword / Mount & Blade: Огнём и мечом: Ве
 ```bash
 magnet:?xt=urn:btih:0985F5661E21F3E35342BE1DD7BA5B5EFAC08786
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Two Worlds II & Pirates of the Flying Fortress / Два Мира 2 & Пират�
 magnet:?xt=urn:btih:2D0485193BF10F7D2F3607C55437D017556770D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Dragon Age 2 / Эпоха Дракона 2 (2011) [Ru/En] (1.0.4.0/dlc) Repack F
 ```bash
 magnet:?xt=urn:btih:5EA3CCB2939A5502CF297DA2A5F8244ECA055AA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ The Dwarves (2016) [Ru/Multi] (1.1.2) Repack R.G. Catalyst
 magnet:?xt=urn:btih:0A8BFE863FFF0BE5D378DB41616AA14F5A20335D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Seven: The Days Long Gone (2017) [Ru/Multi] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:6385B8692D5E101E44CFAD0736172DA117F4D038
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Mount and Blade: With Fire and Sword / Mount & Blade: Огнём и мечом: 
 magnet:?xt=urn:btih:36496B5E570855D659EFB6CDFB23B206120EF18B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Might and Magic 8: Day of the Destroyer (2000) [En/Fr/Ge] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:BE386AE4B809D451A22546D6E5069EC75607E189
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Beltion: Beyond Ritual / Бельтион: Свод равновесия (2009) 
 magnet:?xt=urn:btih:6CF5D5B0942550E2F6C7F529C0563E9950CB7792
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Krater (2012) [Ru/Multi] (1.10.1/dlc) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:BCBF12CAC0DAAD2307CA155F3179D3DCF3BE09BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Sinner: Sacrifice for Redemption (Грешник: Жертва во имя Ис�
 magnet:?xt=urn:btih:8B4D139CF72578940B05414E11C7D4F981A30004
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ The Incredible Adventures of Van Helsing III (2015) [Muli] (1.0.6b) License GOG
 ```bash
 magnet:?xt=urn:btih:685F61A732A34B5CC4AAC0E0723D21C2AB465230
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 971153   (987476) от 02.01.2016
+
+VA - Extra Trance (New year edition) (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rene Ablaze feat. Robin Vane - Into The Stars (Matt Chowski Remix) (07:15)
+02. Armin Van Buuren and W&W - If It Ain't Dutch (Fisical Project Re - Uplift) (07:19)
+03. Veselin Tasev - I Miss You (Extended Vox Mix) (06:06)
+04. Calvin Harris & Disciples - How Deep Is Your Love (Nifra Remix) (06:54)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:17:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:423FD416C9B4939806A7E611DBA84824D83BC211
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971101   (987538) от 02.01.2016
 
 VA - 2016 Alive Project (2016) [MP3|320 кб/с] <Disco, Vocal, Euro, Latin Music, Dance>
@@ -21,6 +50,8 @@ VA - 2016 Alive Project (2016) [MP3|320 кб/с] <Disco, Vocal, Euro, Latin Musi
 ```bash
 magnet:?xt=urn:btih:826539610D21EB1A2D3EA9087908A168F98555D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Ремиксы 2К20 2 (2020) [MP3|320 Kbps] <Pop, Club, Dance>
 magnet:?xt=urn:btih:7568D61DC5B12766318958D4BABB1F58568572FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Emotions: Extended Deep House Party (2020) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:C5438A29BE5F522DAAA5AC46B9199A7567775BDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Sunday Brunch Lounge (Chilled Jazzy Weekend Lounge) (2015) [MP3|320 кб/с
 magnet:?xt=urn:btih:EA607439FFCB16FDA040AE0A2E1C3CEFF040FEF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Suenos de California Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout
 ```bash
 magnet:?xt=urn:btih:DCD791C1CDD8679AFFFAE65E796371034BD750A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Angel In My Soul (2020) [MP3|320 Kbps] <Country, Folk, Blues>
 magnet:?xt=urn:btih:5484CAD89F4718D4EFEC9AFDC447E546D49B8354
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - The Official UK Top 40 Singles Chart (27-01-2013) [MP3|320 кб/с]<Pop, Da
 ```bash
 magnet:?xt=urn:btih:41FAC037C3835666E3E6787F9B5D57D97A3EF071
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - 100 Platinum Hits Dance & Masters Workout (2015) [MP3|320 кб/с] <Commerc
 magnet:?xt=urn:btih:8636353A3671E7A035A7B45EBCAA91465172155D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Kontor Top Of The Clubs 2016.01 (2015) [MP3|320 кб/с] <Bigroom, Nu Disco
 ```bash
 magnet:?xt=urn:btih:A8CB1A543DBADA5337B5D049DA51962893F9E419
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - Sounds & Cocktails (2015) [MP3|320 кб/с] <Electronic, Downtempo, Trip-ho
 magnet:?xt=urn:btih:CA6CE4F2D9129703AF2D891875AF71F69E5E2138
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - DJ's Choice: Best Electronic Lounge (2015) [MP3|320 кб/с] <Club, Progres
 ```bash
 magnet:?xt=urn:btih:2B16C99016BA7BEB66DF08587A21A670B9C1DC77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - Роза Января (2020) [MP3|320 Kbps] <Шансон>
 magnet:?xt=urn:btih:CFDDA7EF31BD0BBBC6F8ED036909F47D00496C6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ VA - World songs. Night in Paris (2005) [MP3|224 kbps]<Chanson>
 ```bash
 magnet:?xt=urn:btih:6400654ADB64CD24F72A69E0D3D11222E1CC609A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ VA - Subtle Vibrations: Relax Compilation (2020) [MP3|320 Kbps] <Chillout, Ambie
 magnet:?xt=urn:btih:F6D3379F57B0EA0FC9580FEB4533852F8E67BED7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +456,8 @@ VA - Sublime Electro House: Progressive Mix (2020) [MP3|320 Kbps] <Progressive H
 ```bash
 magnet:?xt=urn:btih:35E5BE938CEC7453348B55202F8EB83E535F8738
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +492,8 @@ VA - Дискотека : Зимний Mix Отрыв 50/50 (2013) [MP3|256 кб
 magnet:?xt=urn:btih:D7930278525E9595B49EEBE9FAEC50D3634FC50A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +526,8 @@ VA-Зарубежный Союз Новинок (2013) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:6A69ED9227544234FB2C5ADF9573FE5234E3F697
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +562,8 @@ VA-Союз Русских Новинок (2013) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:D73A817AC077EDEC451DDDF11D9791CD3841ABA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +596,8 @@ VA-Сотка любимой музыки. Зимний выпуск 50/50 (2013
 ```bash
 magnet:?xt=urn:btih:CCB67CD8741F94FB43BF6B33AECEAD64301EC0E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +632,8 @@ DJ Stinger - Minimix For Time2Bass Radio-Show (Time 2 Bass) (12.05.2010) [MP3|16
 magnet:?xt=urn:btih:F4D41E0A08191E0D89F70ABB056882F33988EA78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +667,8 @@ VA - Интернациональный сборник популярной му
 magnet:?xt=urn:btih:4E68E8745E2AD70C9A62930AC525181D12FD2B33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +695,8 @@ VA - Cosmospace House (2020) [MP3|320 Kbps] <Progressive, Deep, Electro House>
 ```bash
 magnet:?xt=urn:btih:5CC4809D65E1D13F0E33BBFFB511AFBAC704FDEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -658,6 +731,8 @@ VA-Двигай Попой! Часть 6 (2013) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:42C2B9A5819434CF6A6C3EB54839402172E3C3DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -691,6 +766,8 @@ VA - Club Dubstep №27 (2013) [MP3|320 кб/с]<Dubstep>
 magnet:?xt=urn:btih:C77862CDC5C603E32F130EA66AE6DD3C20B7EC38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -718,32 +795,7 @@ VA - Everybody Dance Hits (2020) [MP3|320 Kbps] <Pop, Dance, House>
 magnet:?xt=urn:btih:F416763487B066123BA7972AB47B6CA3C33CEAF9
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353789   (990416) от 19.01.2020
-
-VA - Winter House Party: Deep Edition (2020) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990416.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nixxa - You Know It
-002. Victor Lorero - That Lipstick Again
-003. Rautu - Horizon (Original Mix)
-004. Dan Zalot - Extra Ordinary(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 11:48:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60282ACAACC87511C7C98D4F54F2994F75C67DF2
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

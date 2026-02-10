@@ -19,6 +19,8 @@ Movavi Video Suite - пакет программ на русском языке,
 magnet:?xt=urn:btih:D6BE02EF10A479A1A81C90AD1F40D8352C6A49CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ OpenedFilesView 1.61 Portable [Ru/En]
 ```bash
 magnet:?xt=urn:btih:12EC39E600FEE960B25FD0B302A617653B72B85E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Icecream Video Editor - видеоредактор, предлагающий б�
 magnet:?xt=urn:btih:11EBBAA06A9A30901D3313D7C86D60BFDC8A68D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:11EBBAA06A9A30901D3313D7C86D60BFDC8A68D6
 ```bash
 magnet:?xt=urn:btih:39FFD2A3D8C80052C4DEB1348025E150BC96CDC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ ACDSee Ultimate 8 сочетает в себе поддержку слоев, п
 magnet:?xt=urn:btih:62A9CB2F8C0F5619B55859B8AA8B62EE418A68DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:62A9CB2F8C0F5619B55859B8AA8B62EE418A68DB
 ```bash
 magnet:?xt=urn:btih:17D25B0F9BB446B2CBDB50ED1765036F71084867
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:17D25B0F9BB446B2CBDB50ED1765036F71084867
 magnet:?xt=urn:btih:8D8CCFC09EF2BEDE2F0F09493498A97462CF73A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ EmEditor Professional - профессиональная версия мощно
 ```bash
 magnet:?xt=urn:btih:E4B7583289502BE6D7619AE3255D7638FADABB14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ Circles - Infinitas (2013) [FLAC|Lossless]<Progressive Metal>
 magnet:?xt=urn:btih:B3E21FE159DA565B73B0C622C9BF1C0DE8BACA69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ Auslogics Disk Defrag - бесплатная программа, призван�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ Threema – отличное приложение для андроид, спо�
 magnet:?xt=urn:btih:668640875A647CAD15EA105593147E57F8EEFB04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ Node Video - один из самых мощных видеоредакторо�
 ```bash
 magnet:?xt=urn:btih:4AFFBC02FB09E770B306D094A195880543AA5E68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ InoMail 1.9.4 - Почтовый клиент (28.12.14) <Ru>
 magnet:?xt=urn:btih:019791BF9CE929BF1E37E70F6A9A198BE31B66AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:019791BF9CE929BF1E37E70F6A9A198BE31B66AC
 ```bash
 magnet:?xt=urn:btih:D07A33BB984B3C08BFD9F76713593059B3269245
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +397,8 @@ R-Studio - лучшее на сегодняшний день программн�
 magnet:?xt=urn:btih:6FFB1D64FAB73B57883A6816BD794EFEA27DF157
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:6FFB1D64FAB73B57883A6816BD794EFEA27DF157
 ```bash
 magnet:?xt=urn:btih:4D2E30994AA9B94A213BC20375265A3C3508070A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ Beamer for Mac: смотрите видео любого формата на App
 magnet:?xt=urn:btih:638D81747BCE9879624DCB36872AB03D6C4B784D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +480,8 @@ Opera GX - это специальная версия браузера Opera, с
 magnet:?xt=urn:btih:F4D3FC743E6A08E112A8BF6F84FD17C92E13058A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:F4D3FC743E6A08E112A8BF6F84FD17C92E13058A
 ```bash
 magnet:?xt=urn:btih:80664B42835AC8C81AAEB64A3EA8272D6C168118
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:80664B42835AC8C81AAEB64A3EA8272D6C168118
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ darktable — фоторедактор, предназначенный для о
 ```bash
 magnet:?xt=urn:btih:70C98FA75FFF2BBF1706ED0C61F7725CF504D670
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +587,8 @@ Driver Reviver – это приложение, которое проскани�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ Pixelmator Pro — это невероятно мощный, красивый и
 magnet:?xt=urn:btih:6C9132A285A558D8C21E6AF695ED1369B158997C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ SRWare Iron 47.0.2500.0 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DE859FA08BB96EFE90BB3EBD50652073E8524391
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ Calibre - простая и удобная программа для управ�
 magnet:?xt=urn:btih:2DB624BA3D86A26FF95E0A01547C4329949C4A92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ magnet:?xt=urn:btih:2DB624BA3D86A26FF95E0A01547C4329949C4A92
 ```bash
 magnet:?xt=urn:btih:2CE2F46F34A60D23E05F85923982FE77CB780D2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

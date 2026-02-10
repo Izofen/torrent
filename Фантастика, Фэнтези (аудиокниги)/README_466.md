@@ -1,3 +1,29 @@
+###  Публикация: 1383788   (807848) от 17.05.2020
+
+Василий Звягинцев | Время игры (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра людей и могущественных Держателей Мира, ставка в которой – сама возможность существования нашей реальности, продолжается. Поэтому путешествие по южным морям, затеянное Андреем Новиковым и Александром Шульгиным в надежде отдохнуть от забот, неожиданно оборачивается командировкой в будущее для одного и очередным рейдом по тылам вероятного противника для другого. (   Читать дальше...   )Жанр: Историческая фантастика,попаданцыПродолжительность: 17:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C860DC789584BB4B63DDCA4D5C92A7577E2402C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1383789   (807857) от 17.05.2020
 
 Василий Звягинцев | Билет на ладью Харона (2020) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:E1F60661B042D273C9D4BF38AA01D1806FAE49C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:E1F60661B042D273C9D4BF38AA01D1806FAE49C5
 magnet:?xt=urn:btih:76E7ED9A0F905591FBC8EA2D0049583F5116133D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:76E7ED9A0F905591FBC8EA2D0049583F5116133D
 ```bash
 magnet:?xt=urn:btih:2087D1EA8AC354DADE3123DC39DA750EB79A9E16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:2087D1EA8AC354DADE3123DC39DA750EB79A9E16
 magnet:?xt=urn:btih:23BA92179F2FDC25E6BD6F5450A6DF7FF1B0BFF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:23BA92179F2FDC25E6BD6F5450A6DF7FF1B0BFF3
 ```bash
 magnet:?xt=urn:btih:C8A9F81AAA2DB435D1C02153A9B795E51F393997
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:C8A9F81AAA2DB435D1C02153A9B795E51F393997
 magnet:?xt=urn:btih:55042D07348FE0614BB56943D8DEBB4805DE3412
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:55042D07348FE0614BB56943D8DEBB4805DE3412
 ```bash
 magnet:?xt=urn:btih:6762226C47FD5E9E1B258157042211D312F38999
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +233,8 @@ magnet:?xt=urn:btih:6762226C47FD5E9E1B258157042211D312F38999
 magnet:?xt=urn:btih:DD4360E27CA805DDFBC616366D9256AC99BCB9DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:DD4360E27CA805DDFBC616366D9256AC99BCB9DB
 ```bash
 magnet:?xt=urn:btih:8FA893DD23F5008AABD662377162D21E2C4B7736
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:8FA893DD23F5008AABD662377162D21E2C4B7736
 magnet:?xt=urn:btih:DEED3BF5F8BD189723213541099371A4B1681137
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +310,8 @@ A_L_E_X | Заражение (2016) [MP3]
 ```bash
 magnet:?xt=urn:btih:FF0ED2BDC5927641B485B08944BA9B752A666D6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +339,8 @@ magnet:?xt=urn:btih:FF0ED2BDC5927641B485B08944BA9B752A666D6D
 magnet:?xt=urn:btih:9ABF3D0C744C65DDD5F9895F21776FA81B3A6296
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:9ABF3D0C744C65DDD5F9895F21776FA81B3A6296
 ```bash
 magnet:?xt=urn:btih:488864C6104C5A0374BE5BE6E52F798599587626
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +394,8 @@ magnet:?xt=urn:btih:488864C6104C5A0374BE5BE6E52F798599587626
 magnet:?xt=urn:btih:E07818175D71FAB11B3DCAD6937821A3F6874322
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +422,8 @@ magnet:?xt=urn:btih:E07818175D71FAB11B3DCAD6937821A3F6874322
 magnet:?xt=urn:btih:A38E7B11177FEC42FB54AB6AB48150DEEAC58A31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +447,8 @@ magnet:?xt=urn:btih:A38E7B11177FEC42FB54AB6AB48150DEEAC58A31
 ```bash
 magnet:?xt=urn:btih:E71EEEF92AAEC99350FBA574D89EBDB1FB94E6F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +474,8 @@ magnet:?xt=urn:btih:E71EEEF92AAEC99350FBA574D89EBDB1FB94E6F2
 magnet:?xt=urn:btih:7FD6FE84A1A3B5AF454E9E8EF0E12B6040A8DC95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +499,8 @@ magnet:?xt=urn:btih:7FD6FE84A1A3B5AF454E9E8EF0E12B6040A8DC95
 ```bash
 magnet:?xt=urn:btih:0D955B5579CD5D9E930D9A67DFC2238223FB4E84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +526,8 @@ magnet:?xt=urn:btih:0D955B5579CD5D9E930D9A67DFC2238223FB4E84
 magnet:?xt=urn:btih:00CA34452B64E45DEC24EA3BE8101BAD0E8FD6A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +551,8 @@ magnet:?xt=urn:btih:00CA34452B64E45DEC24EA3BE8101BAD0E8FD6A7
 ```bash
 magnet:?xt=urn:btih:8A65BEC07C0DBA636605859C74A369B2F97E1D6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +578,8 @@ magnet:?xt=urn:btih:8A65BEC07C0DBA636605859C74A369B2F97E1D6A
 magnet:?xt=urn:btih:84262F55042E271B6AA02BC920508DD7EA311A7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:84262F55042E271B6AA02BC920508DD7EA311A7C
 ```bash
 magnet:?xt=urn:btih:982F85401C4750A850F97B04C0B8312074A636A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +630,8 @@ magnet:?xt=urn:btih:982F85401C4750A850F97B04C0B8312074A636A5
 magnet:?xt=urn:btih:AD905462B48833CBCFCA1AC3EFBB92EAB595DDC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +655,8 @@ magnet:?xt=urn:btih:AD905462B48833CBCFCA1AC3EFBB92EAB595DDC6
 ```bash
 magnet:?xt=urn:btih:FD58951C4D9E9C7ED78D1626740CE7A26AB3CC70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,30 +682,7 @@ magnet:?xt=urn:btih:FD58951C4D9E9C7ED78D1626740CE7A26AB3CC70
 magnet:?xt=urn:btih:CA2D49BD04D1E0FE1D485D67304C5C0F51525F2C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504610   (811828) от 23.10.2021
-
-Владимир Сазанов | Двуединый (Книга 1) (2021) [MP3, Игорь Ломакин]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811828.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой появился на свет в результате эксперимента по созданию уникальных воинов. Эксперимент привёл к многим смертям и был признан провальным. Но был тот, кто выжил и стал Двуединым.
-После долгих лет, проведённых взаперти в стенах родительского поместья, герой оказывается в большом мире, где правят магия и боевые искусства. Использовать его способности хотят (   Читать дальше...   )Жанр: Боевое фэнтези, героическое фэнтезиПродолжительность: 16:53:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:156FD4E304DB1E3C57012E54270A67BC59E58619
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

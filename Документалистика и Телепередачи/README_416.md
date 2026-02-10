@@ -1,3 +1,29 @@
+###  Публикация: 1304280   (565263) от 25.05.2019
+
+Научное расследование Сергея Малозёмова. Еда живая и мертвая (25.05.2019) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565263.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Еда живая и мёртвая" и её ведущий Сергей Малозёмов расскажут о леденцах: что это - безобидная сладость или опасная химия? Чем дорогая сметана отличается от дешёвой, чем разбавляют этот кисломолочный продукт недоброжелательные производители и как это отражается на внешнем виде и вкусе - выяснят в рубрике "За что такие деньги?". Также в программе (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:720F8CF3D097146FBB21365AFBBC2C8207255C14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044323   (565353) от 20.08.2016
 
 Советские биографии. Крупская (2009) DVBRip [H.264]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:ABD31564D7BA92906117342512D8B7620FDEBC8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:ABD31564D7BA92906117342512D8B7620FDEBC8C
 magnet:?xt=urn:btih:79BB199A859DA99129984CDF47BF1C4E81A2F5F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:79BB199A859DA99129984CDF47BF1C4E81A2F5F5
 ```bash
 magnet:?xt=urn:btih:175F3E92AC5D8F665D2EC07DC9E1C96B28C03BD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:175F3E92AC5D8F665D2EC07DC9E1C96B28C03BD8
 magnet:?xt=urn:btih:AF6FE50B961B43BA6E97CBAB6AEDF56AB94739F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:AF6FE50B961B43BA6E97CBAB6AEDF56AB94739F9
 ```bash
 magnet:?xt=urn:btih:F7771EC865425BEA6A3FCED19DC6373AC7BFAB4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:F7771EC865425BEA6A3FCED19DC6373AC7BFAB4E
 magnet:?xt=urn:btih:8E82EB33A18F19F2E8E9C9B076A808E36F6E59C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:8E82EB33A18F19F2E8E9C9B076A808E36F6E59C6
 ```bash
 magnet:?xt=urn:btih:25FC26E9B1CC816DB80F180AA5A59E392083445A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:25FC26E9B1CC816DB80F180AA5A59E392083445A
 magnet:?xt=urn:btih:D9E5220DB1344393CDFA40C2F56BC8EC8160E221
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:D9E5220DB1344393CDFA40C2F56BC8EC8160E221
 ```bash
 magnet:?xt=urn:btih:F0BAE982751382B7A10F69D1CF639A85ACBEC266
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:F0BAE982751382B7A10F69D1CF639A85ACBEC266
 magnet:?xt=urn:btih:7415D20696D34DF665125D0BF1FD8D4EBA9889FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:7415D20696D34DF665125D0BF1FD8D4EBA9889FD
 ```bash
 magnet:?xt=urn:btih:51838423D3B88D32A99C79B9E3115CBB20EE643E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:51838423D3B88D32A99C79B9E3115CBB20EE643E
 ```bash
 magnet:?xt=urn:btih:FB9632BD58302838713EDC676F346E8279F4DC0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:FB9632BD58302838713EDC676F346E8279F4DC0A
 magnet:?xt=urn:btih:872EFCAE9106E57BAEA97E55E8C69CB71ADEB3E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:872EFCAE9106E57BAEA97E55E8C69CB71ADEB3E3
 ```bash
 magnet:?xt=urn:btih:DE2F082E6D51D64F8B98636DEF421C5B02A00B07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +418,8 @@ magnet:?xt=urn:btih:DE2F082E6D51D64F8B98636DEF421C5B02A00B07
 magnet:?xt=urn:btih:957AFB614F3950C653548DCA9F44A6AEF2D1AF56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:957AFB614F3950C653548DCA9F44A6AEF2D1AF56
 magnet:?xt=urn:btih:875E7C368E28887F2CF480687067FFEC1ACCF0D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:875E7C368E28887F2CF480687067FFEC1ACCF0D2
 ```bash
 magnet:?xt=urn:btih:18BD98528AD0D5EE213D8EC72E908833D438322E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +498,8 @@ magnet:?xt=urn:btih:18BD98528AD0D5EE213D8EC72E908833D438322E
 magnet:?xt=urn:btih:2EAFE5BD050C34C8186546338C4F6C1100DE3D5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:2EAFE5BD050C34C8186546338C4F6C1100DE3D5A
 ```bash
 magnet:?xt=urn:btih:6B233EBBFD3DFE9C3CFED3641D2C8155912D7E11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:6B233EBBFD3DFE9C3CFED3641D2C8155912D7E11
 magnet:?xt=urn:btih:5B7AC7A3A80BB724D921CA428421504C44BD6DB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:5B7AC7A3A80BB724D921CA428421504C44BD6DB5
 ```bash
 magnet:?xt=urn:btih:AD320A97A8611223D5A04A3016A6F4AC46695FA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:AD320A97A8611223D5A04A3016A6F4AC46695FA3
 magnet:?xt=urn:btih:416DFFEDDB526B9DABD71411615F1E45FA5575A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +627,8 @@ magnet:?xt=urn:btih:416DFFEDDB526B9DABD71411615F1E45FA5575A3
 ```bash
 magnet:?xt=urn:btih:44B3E7AA76AF85FA4D38F7228B1D2408300FA5DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:44B3E7AA76AF85FA4D38F7228B1D2408300FA5DB
 magnet:?xt=urn:btih:9885F17910FFB86A47F7373633E36DA5490AFE43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,29 +683,7 @@ magnet:?xt=urn:btih:9885F17910FFB86A47F7373633E36DA5490AFE43
 magnet:?xt=urn:btih:9034FE82C520CCA6680F1A91C9B48AA6CEC80A62
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234833   (567741) от 07.07.2018
-
-Всемирное природное наследие. Люблин, Польша - Города мира / Lublin, Poland - Cities of the world (2016-2018) WEBRip [VP9/2160p-LQ] (2 фильма)
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Люблин — старинный город в Польше, расположен на перекрестке торгово-экономических путей из Восточной Европы в Западную. Люблин всегда был самым большим городом в Восточной Польше, он уникален слиянием польской, еврейской, литовской и белорусской культур, дополняющих друг друга. С XIII в. город ведет успешную законотворческую и образовательную деятельность, здесь (   Читать дальше...   )Производство: США, Doclights, NDR NaturFilm, Nature Relaxation FilmsЖанр: Видовой, путешествие, природа, флора, фаунаПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:47:47+00:20:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41AB0DEBC5A8BF2665996D8B9CD39E2D6EE0856F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:B9EEA000E7F1E5175CD2580E833D74296F16AF6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:B9EEA000E7F1E5175CD2580E833D74296F16AF6E
 ```bash
 magnet:?xt=urn:btih:75E08CA1814F586FE6B125650759F7366E9C790D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:75E08CA1814F586FE6B125650759F7366E9C790D
 magnet:?xt=urn:btih:37AF8945F5F59BC9F77971A06F5819E9E598D196
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:37AF8945F5F59BC9F77971A06F5819E9E598D196
 magnet:?xt=urn:btih:E6C8C7D6252E9D9B495627091A6A057DD124CED0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:E6C8C7D6252E9D9B495627091A6A057DD124CED0
 ```bash
 magnet:?xt=urn:btih:D617A867DF81A18507946F13CD10502666734547
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:D617A867DF81A18507946F13CD10502666734547
 magnet:?xt=urn:btih:D6CD15EF207A00E896F0AB0A42A811A566927F2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:D6CD15EF207A00E896F0AB0A42A811A566927F2F
 ```bash
 magnet:?xt=urn:btih:41BE597288C56F98DAAE4AFA792DF0599584842E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:41BE597288C56F98DAAE4AFA792DF0599584842E
 magnet:?xt=urn:btih:25373C65C8EB9423C9DFB05DF42424667388FB07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:25373C65C8EB9423C9DFB05DF42424667388FB07
 ```bash
 magnet:?xt=urn:btih:F370CFDD5571D9A056F0CA4003FC189800E29B61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:F370CFDD5571D9A056F0CA4003FC189800E29B61
 magnet:?xt=urn:btih:04A33DDABCFE8E26AF40FB4FDD61997213BB8E72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Elle — французский еженедельный женский журн
 ```bash
 magnet:?xt=urn:btih:28F71EDDDCC1E3511FFE0483A0EAEA726CD933C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:28F71EDDDCC1E3511FFE0483A0EAEA726CD933C4
 magnet:?xt=urn:btih:1D626381565C619E7DDD9FF0FE4D61668AF0D940
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Maxim является абсолютно уникальным журналом 
 ```bash
 magnet:?xt=urn:btih:83B5580C4ACE3EC690C145AE20CE960D2A2035E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:83B5580C4ACE3EC690C145AE20CE960D2A2035E1
 magnet:?xt=urn:btih:3F3EFC142A3DDFBFD411D0743D93BAF3D4497387
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:3F3EFC142A3DDFBFD411D0743D93BAF3D4497387
 ```bash
 magnet:?xt=urn:btih:A5FC1B5D96416A0F760A7C54982781A67DAEB060
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:A5FC1B5D96416A0F760A7C54982781A67DAEB060
 magnet:?xt=urn:btih:F5A5C10CC361CFAA59CCD83986833E57A0FA4D07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:F5A5C10CC361CFAA59CCD83986833E57A0FA4D07
 ```bash
 magnet:?xt=urn:btih:E80A5AE4F15F53065D8EFA2DB5F3751799814C18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:E80A5AE4F15F53065D8EFA2DB5F3751799814C18
 magnet:?xt=urn:btih:76A257DD5B788E12DCE4F52BB77C884DC58D7BDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:76A257DD5B788E12DCE4F52BB77C884DC58D7BDD
 ```bash
 magnet:?xt=urn:btih:EA4EA4F6E0694122385B76E81B6874F3FFC8C24A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:EA4EA4F6E0694122385B76E81B6874F3FFC8C24A
 magnet:?xt=urn:btih:55FC68ED58D26C66583699B352F92CE9A3ACEEB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ magnet:?xt=urn:btih:55FC68ED58D26C66583699B352F92CE9A3ACEEB6
 ```bash
 magnet:?xt=urn:btih:3AF99F5C8C6F7241F6D4680DDB20DA17F4AA0ED3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ magnet:?xt=urn:btih:3AF99F5C8C6F7241F6D4680DDB20DA17F4AA0ED3
 magnet:?xt=urn:btih:F0375553242ED5467403F8823C40EE84E294D029
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ magnet:?xt=urn:btih:F0375553242ED5467403F8823C40EE84E294D029
 ```bash
 magnet:?xt=urn:btih:332F1AF3EE2AC74EA000F9CBFC827F5C25FAED31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,53 +620,59 @@ magnet:?xt=urn:btih:332F1AF3EE2AC74EA000F9CBFC827F5C25FAED31
 magnet:?xt=urn:btih:A36CA8E5AE2427F94E01B056E9338D363BBA5FA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 886588   (769940) от 09.04.2015
+###  Публикация: 886460   (769968) от 09.04.2015
 
-Журнал | Новости электроники №3 (137) (2015) [PDF]
+Журнал | Nuts and Volts №6 (июнь 2014) [PDF] [En]
 
 >>Журналы
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769940.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769968.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Новости электроники» - информационно-технический журнал компании КОМПЭЛ для разработчиков электронной техники, руководителей конструкторских и проектных отделов. Издание регулярно освещает новинки крупнейших производителей электронных компонентов, вопросы применения; рассказывает о событиях на российском и мировом рынках электронных компонентов.Жанр: ЭлектроникаФормат: PDF
+Nuts and Volts" - популярный журнал по электронным компонентам и схемотехнике для любителей и специалистов любого уровняЖанр: ЭлектроникаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD6D1EC81244EA19B9DE494DB6D30ADC0E12BD27
+magnet:?xt=urn:btih:260E91EFAE176AE813EB3C286D86959DA9547AF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 886674   (769958) от 09.04.2015
+###  Публикация: 1016105   (770032) от 14.05.2016
 
-Журнал | Прорез №2 (83) (2015) [PDF]
+Журнал | Chip [Россия] №6 (июнь 2016) [PDF]
 
 >>Журналы
->>Другие журналы
+>>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769958.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_770032.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Прорез» - самый авторитетный отечественный журнал о ножах, клинковом оружии, инструментах и обо всём, что с ними связано. Даны подробные описания и особенности различных моделей, обзоры новинок и новых технологий, приемы самообороны. «Прорез» - первый журнал о ножах не только в России, но и на всем постсоветском пространстве, продолжает выполнять свою благородную миссию в интересах многочисленного сообщества любителей настоящих ножей.Жанр: Журнал о ножах и клинковом оружииФормат: PDF
+Chip — первый компьютерный журнал в Европе, сейчас издается в 16 странах тиражом более 1 миллиона экземпляров. Журнал Chip — это высочайшее качество в освещении таких тем, как аудио-, видео- и фототехника, компьютеры, программное обеспечение, Интернет, современные технологии телекоммуникаций и развлечений. Работая в тесной связке с редакцией журнала Chip, сайт публикует (   Читать дальше...   )Жанр: Компьютерный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7A8C16F2D36C342256DBCDD96384503D32B066E4
+magnet:?xt=urn:btih:4F4A57ED81340562E95B9625BB9262E582C1ECE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

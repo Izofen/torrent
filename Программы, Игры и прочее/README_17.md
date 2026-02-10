@@ -19,6 +19,8 @@ Drink Water / Напоминание пить воду v2.26.0 Mod by PieMods [R
 magnet:?xt=urn:btih:1087E2D754C4C7C6986DD5F986B4AE10933FCDAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ SnapEdit — одно из лучших приложений для редакт
 ```bash
 magnet:?xt=urn:btih:2F19D5A3127567DDBC39C71F1D65720182E6DB33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:2F19D5A3127567DDBC39C71F1D65720182E6DB33
 magnet:?xt=urn:btih:2FCE043D61405A12433C14221DCDBF7D778F8719
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Filmora - программа для редактирования видеоза�
 ```bash
 magnet:?xt=urn:btih:811A9BEA3019CDDC44278B66EE84FF31FB84BA2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Smart AudioBook Player Pro v11.1.9 (A8.0+) Mod by 0x7d [Ru/Multi]
 magnet:?xt=urn:btih:6FD7116E2FFEDA2E86E1001326B5B3BB1453C2AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:6FD7116E2FFEDA2E86E1001326B5B3BB1453C2AE
 ```bash
 magnet:?xt=urn:btih:B0D1678405FDA01E6D646EA1BC8261145E5714E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Fully Fluent - Learn Languages / Бегло - Изучайте языки v2.5.4
 ```bash
 magnet:?xt=urn:btih:91A4ACEAE6D39BD2CBA1420D33FFD4F3F9F9735B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ MiHome v10.0.706 Mod by Vevs [Ru]
 magnet:?xt=urn:btih:F954C340DF6327367CDF6D0C167A256BCD14CB52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:F954C340DF6327367CDF6D0C167A256BCD14CB52
 ```bash
 magnet:?xt=urn:btih:371274A5742528573E4073559016DA674966ED17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Graph Messenger — это продвинутое приложение для о
 magnet:?xt=urn:btih:A1D17798E0A7C311DE5368DFFD299952388A5A3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Textra SMS v4.78 Pro Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:348542816225DD4883E1986908A0A1D9F531EC2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:348542816225DD4883E1986908A0A1D9F531EC2B
 magnet:?xt=urn:btih:BCE16713A8A2F98425D6128CB7318688DDB704A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ UniMote - Универсальный Пульт для ТВ v1.7.0 Mod by Balata
 ```bash
 magnet:?xt=urn:btih:0CAB79FDE3F1EBAB70A5335E957F632D4057B0E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ Icewind Dale Enhanced Edition v2.6.6.12 [Ru]
 magnet:?xt=urn:btih:E357CE3A11F8A488903981A7F0A1F0E179C97CD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ AIDA64 2.05 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E810C71A6CDB21C688F69ED8216F2B3724646AAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ Umagic AI / ИИ Рисует v1.7.2 Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:CEE7B8402C83DE84DCFDF2B58B5930C4ACF1462D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ Time and Memo / Время и Памятка v0.8.95 Mod by Alex.Strannik [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:B3A0010576C965FE10EE646E95EAA9470275482B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ DRAGON QUEST BUILDERS v1.1.1 [En]
 magnet:?xt=urn:btih:446DAEBB2EB07923BA10E63766FDE1603D90C485
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Picsmaster Photo Editor Pro, также известный как Picsmaster, �
 ```bash
 magnet:?xt=urn:btih:05999D511F2F84618CA7A99EC8680C4478EF8200
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ Ugly — мрачный сказочный платформер, в которо
 magnet:?xt=urn:btih:F43787B2D0C8FD37704989AF9D26FC11FD64E773
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ Niffelheim v1.6.15 [Ru]
 ```bash
 magnet:?xt=urn:btih:A5E9B61512B06EF36DE54C5907EC03DD058CB6DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ Slaughter: The Lost Outpost v1.42 [Ru]
 magnet:?xt=urn:btih:D5D2D899F018C1DA8C32DB790E23565D007D9511
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ Bananastreet: Deep House & EDM v4.1.60 Mod by 0x7d [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:70D2C581C7DD7E052B749BB361E133111B9046D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +633,8 @@ Alias v1.5.9 Mod by Dymonyxx [Ru/Multi]
 magnet:?xt=urn:btih:5E23A70CC8F3972409EE5B324CE618A40507A70C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ Talking Translator / Говорящий переводчик v2.7.5 Mod by Alex.
 ```bash
 magnet:?xt=urn:btih:6D92B6324757696007E22496ADBE2D30738C9DEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +685,8 @@ All Language Translate App v3.4 Premium Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D42B206DD41618ABE92A155A9ECEFDE1B01413D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

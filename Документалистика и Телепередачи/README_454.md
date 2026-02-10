@@ -1,3 +1,29 @@
+###  Публикация: 911488   (618425) от 22.06.2015
+
+Москва и окрестности. Куда повести французов в столице (2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы не знаете, как провести выходные или праздничные дни, - отправьтесь в столицу или прокатитесь по её окрестностям. А в качестве основного путеводителя используйте новый цикл канала "Моя Планета" «Москва и окрестности», в котором рассказывается о лучших местах Москвы и Подмосковья.Производство: РоссияТелекомпания: Моя планетаЖанр: Документальный, научно-познавательный, история, география, путешествие, исследованиеРежиссер: Михаил Копылов, Наталья КузнецоваПродолжительность: ~ 00:20:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7D8382D22F1C908670B28FB3740EC0FCE0E939C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1544854   (618468) от 17.04.2022
 
 Первая передача на НТВ. Автомобильная передача (17.04.2022) SATRip
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:6019B67EFB6589274A13B9342130427CBEC66CC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:6019B67EFB6589274A13B9342130427CBEC66CC2
 magnet:?xt=urn:btih:F10831FE05064699380C19B11BDDA9EC34B74761
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:F10831FE05064699380C19B11BDDA9EC34B74761
 magnet:?xt=urn:btih:D3D712D2106D1829029BED745D86C306D8436E27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:D3D712D2106D1829029BED745D86C306D8436E27
 ```bash
 magnet:?xt=urn:btih:B56C1149C7FB97CBFC66152A2BDCA9F07B64C6BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ BBC: Тюдоровский рождественский пир / A Tudor Feast 
 magnet:?xt=urn:btih:2B540B53599E5AC59488B35242A5F77255A9A64D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:2B540B53599E5AC59488B35242A5F77255A9A64D
 ```bash
 magnet:?xt=urn:btih:23639610DF799FCF60E3BACEFE5EFB128E2E7F1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:23639610DF799FCF60E3BACEFE5EFB128E2E7F1D
 magnet:?xt=urn:btih:57D41986ED01DA3ACD8B574AA206FCE3D8E2BB0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:57D41986ED01DA3ACD8B574AA206FCE3D8E2BB0B
 ```bash
 magnet:?xt=urn:btih:4C5D360A56BF51B5F8DC61504B88CBD9EE249A58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:4C5D360A56BF51B5F8DC61504B88CBD9EE249A58
 magnet:?xt=urn:btih:72F437F1EC41582CACB1C32EBA6318594075F173
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:72F437F1EC41582CACB1C32EBA6318594075F173
 ```bash
 magnet:?xt=urn:btih:26705875F4D6AD02DCC375ED333AC5B71F923149
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:26705875F4D6AD02DCC375ED333AC5B71F923149
 magnet:?xt=urn:btih:81A1B5AAB5EC490C85118F08F26AFFC42EE17422
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:81A1B5AAB5EC490C85118F08F26AFFC42EE17422
 magnet:?xt=urn:btih:1589EDA5E7D7B7E2F49D1B9F17DC2D722C032D6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:1589EDA5E7D7B7E2F49D1B9F17DC2D722C032D6F
 ```bash
 magnet:?xt=urn:btih:839034EC0081EFE036D046DA86213698F820DF74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:839034EC0081EFE036D046DA86213698F820DF74
 magnet:?xt=urn:btih:38A943132E11A35FE8DFB91A656C8FA6806B53DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:38A943132E11A35FE8DFB91A656C8FA6806B53DA
 ```bash
 magnet:?xt=urn:btih:12C4AF0A8AB798574A27F3F445D6FBAC31DB5AF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:12C4AF0A8AB798574A27F3F445D6FBAC31DB5AF8
 magnet:?xt=urn:btih:B58F2F3B696547DD695D5D86F59B7322315C79C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:B58F2F3B696547DD695D5D86F59B7322315C79C6
 ```bash
 magnet:?xt=urn:btih:7655D388A4480FACECACC52E880595A0AAC58C0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:7655D388A4480FACECACC52E880595A0AAC58C0A
 magnet:?xt=urn:btih:827E4EC2AC1D35AD78EC3DBCD1BF3580706849BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:827E4EC2AC1D35AD78EC3DBCD1BF3580706849BB
 ```bash
 magnet:?xt=urn:btih:0117BA6B6EBD4AE545A70B02ADAD9D0C2F43D047
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:0117BA6B6EBD4AE545A70B02ADAD9D0C2F43D047
 magnet:?xt=urn:btih:D534B178DE807EFC5C05F376B69B3A6DF6A2B00E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:D534B178DE807EFC5C05F376B69B3A6DF6A2B00E
 magnet:?xt=urn:btih:E2C833D9C7403EF5BC74EAF1E031A6CADA83EE8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:E2C833D9C7403EF5BC74EAF1E031A6CADA83EE8A
 ```bash
 magnet:?xt=urn:btih:4BDF3C9B1474C014BAA75C49310A39D445B7E51B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:4BDF3C9B1474C014BAA75C49310A39D445B7E51B
 magnet:?xt=urn:btih:B661FF0FC29AD70350E1E08344D162C42C962D18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:B661FF0FC29AD70350E1E08344D162C42C962D18
 ```bash
 magnet:?xt=urn:btih:BAE5F5F0CBFAB0C20889D8E24B722E9B273D7E76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,29 +674,7 @@ magnet:?xt=urn:btih:BAE5F5F0CBFAB0C20889D8E24B722E9B273D7E76
 magnet:?xt=urn:btih:EEC6CC258E653B4E550A543556D44A4E2E276EED
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145576   (619984) от 26.06.2017
-
-Орел и решка. Перезагрузка (2017.06.25) WEB-DLRip (сезон 14: Амстердам)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619984.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шесть лет назад команда проекта "Орел и решка" впервые отправилась в большое путешествие по самым интересным городам нашей планеты. За прошедшее время в них столько всего изменилось, что создатели шоу решили приехать сюда снова. "Орел и решка" объявляет перезагрузку! Телезрителей ждет встреча с невиданными чудесами, новыми незабываемыми впечатлениями (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:45:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A9C026A192B276EB09D397B80ADA398995A51C1
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

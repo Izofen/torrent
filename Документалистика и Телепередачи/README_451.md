@@ -1,3 +1,29 @@
+###  Публикация: 912095   (614591) от 24.06.2015
+
+Косовский исход (2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614591.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Исход» – это слово часто используется для описания массовой эмиграции жителей Косова. Люди бегут из страны, за независимость которой тысячи косоваров заплатили жизнью. В новой миграционной волне преобладают косовские албанцы. Они покидают свои дома в поисках работы и достойной жизни, так и не дождавшись обещанной свободы и процветания на родине. Какая судьба ждет (   Читать дальше...   )Телекомпания: RTДЖанр: ДокументальныйПродолжительность: 00:26:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44EB287D845C039E9DFDDD6229D0092EB7F82137
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912100   (614595) от 24.06.2015
 
 119 Непрожитых жизней (2015) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:7DB1FB1E4392B42A4BBFA1281A0554576D6A999D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:7DB1FB1E4392B42A4BBFA1281A0554576D6A999D
 magnet:?xt=urn:btih:31C760D0807FB57EE00B059639D55430273FECD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:31C760D0807FB57EE00B059639D55430273FECD4
 ```bash
 magnet:?xt=urn:btih:94B1B5210DA819B6FB939DFCB765C5469DADB300
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:94B1B5210DA819B6FB939DFCB765C5469DADB300
 magnet:?xt=urn:btih:EF371DDCCFDAAC89BEAFAE5A924351B167906EF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:EF371DDCCFDAAC89BEAFAE5A924351B167906EF2
 ```bash
 magnet:?xt=urn:btih:A25D113C9CE36AE46D473C2EF4C48447FADDABBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +179,8 @@ The End of The End - хроника последнего турне группы
 magnet:?xt=urn:btih:7B13F12A350D62DEDD33A882571FE5E25CE86753
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:7B13F12A350D62DEDD33A882571FE5E25CE86753
 magnet:?xt=urn:btih:2DA04E7CF5022ACF7C3992C653F731375CB1A68A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +230,8 @@ NG: Исследование. Столкновение с астероидом. 
 ```bash
 magnet:?xt=urn:btih:C170630E2E77D07F3008063BA30B435F992E3E8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:C170630E2E77D07F3008063BA30B435F992E3E8E
 magnet:?xt=urn:btih:93BE0CF3E6C9A336A142907146A075C2C04AE2C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:93BE0CF3E6C9A336A142907146A075C2C04AE2C6
 ```bash
 magnet:?xt=urn:btih:366101720076B8596D9E7CFFDC721026494DF939
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:366101720076B8596D9E7CFFDC721026494DF939
 magnet:?xt=urn:btih:4E6195C83DE5C26DC747B06079A900093FFDC8CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:4E6195C83DE5C26DC747B06079A900093FFDC8CE
 magnet:?xt=urn:btih:481C3304936BC7DEFAD2C729A39852E5975D7529
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:481C3304936BC7DEFAD2C729A39852E5975D7529
 ```bash
 magnet:?xt=urn:btih:572520EE1C3ECBE3FD7BFF3355A1C3A0AA2C487A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:572520EE1C3ECBE3FD7BFF3355A1C3A0AA2C487A
 magnet:?xt=urn:btih:31D4215467BFD17B097378C4DE1A54979FD603F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:31D4215467BFD17B097378C4DE1A54979FD603F7
 ```bash
 magnet:?xt=urn:btih:DC1D0E8921CB5D88FB0BCBF7E58707661E98FF4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:DC1D0E8921CB5D88FB0BCBF7E58707661E98FF4B
 magnet:?xt=urn:btih:7EF517D6A7DE5D11FD4D691AFB8221B0C66AA851
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:7EF517D6A7DE5D11FD4D691AFB8221B0C66AA851
 ```bash
 magnet:?xt=urn:btih:D9378E3F0725C8688EAF5473A019F3BEC09DD204
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:D9378E3F0725C8688EAF5473A019F3BEC09DD204
 magnet:?xt=urn:btih:AD6D1A1F9F5411A96C4EFA2FF694343BFC931F2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:AD6D1A1F9F5411A96C4EFA2FF694343BFC931F2B
 ```bash
 magnet:?xt=urn:btih:05ABCD0C22A620FB77EE812075D8D8712ABB57F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:05ABCD0C22A620FB77EE812075D8D8712ABB57F2
 magnet:?xt=urn:btih:48F18C8808D607FE543A05F3FB64F22E06F116EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:48F18C8808D607FE543A05F3FB64F22E06F116EF
 ```bash
 magnet:?xt=urn:btih:66CC1C872E91C18DBDB252FB64B7AAF326A0B731
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +600,8 @@ magnet:?xt=urn:btih:66CC1C872E91C18DBDB252FB64B7AAF326A0B731
 magnet:?xt=urn:btih:25D0DF1335A9C98B9144C78D0A45C7D7D5918E66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:25D0DF1335A9C98B9144C78D0A45C7D7D5918E66
 magnet:?xt=urn:btih:E11205F976127DED744C4849569B727BCCA4DEBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:E11205F976127DED744C4849569B727BCCA4DEBE
 ```bash
 magnet:?xt=urn:btih:FDB1B50C6A1DBA5F22493F5A20A8BC3637BCA577
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,29 +680,7 @@ magnet:?xt=urn:btih:FDB1B50C6A1DBA5F22493F5A20A8BC3637BCA577
 magnet:?xt=urn:btih:EDABBBFB7E7DA44D5DB10D31C55FBBDE9685C3BD
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910378   (615933) от 23.06.2015
-
-Главный индеец страны Советов. Гойко Митич (2008) IPTVRip
-
->>Документалистика и Телепередачи
->>Личности в истории
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615933.jpg" />
-</div>
-
-
-###  Подробнее
-
-42 года назад на советские экраны вышел фильм "Чингачгук - Большой Змей", и начался настоящий бум. Никому не известный актер Гойко Митич стал кумиром миллионов зрителей. Им восхищались, ему писали письма, мальчишки из разных уголков страны играли в индейцев и буквально штурмовали спортивные секции, чтобы стать такими же, как их любимый герой... В кинотеатры (   Читать дальше...   )Телекомпания: Россия, ООО "Кинокомпания "Лекс фильм"Жанр: ДокументальныйПродолжительность: 00:43:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B17AACB57F78F70F8747519DB59D44537A843F9
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -21,6 +21,8 @@ Robert Ludlum's The Bourne Conspiracy / Конспирация Борна (2008)
 magnet:?xt=urn:btih:6B3AEC39C15E00AC12DC78428649EAB9990626CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ LittleBigPlanet: GOTY Edition / Little Big Planet: GOTY Edition [PS3] [USA] [RUS
 magnet:?xt=urn:btih:18A783C79DB50F0D5E38C411472E9134B0A0F88D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ Monopoly Plus (2014) [Xbox360] [RegionFree] 16537 [FreeBoot] [XBLA / 2 DLC] [Ru]
 ```bash
 magnet:?xt=urn:btih:0A75923236395B8363DA6818134AE03521E30B5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Watchmen: The End Is Nigh Part 1
 magnet:?xt=urn:btih:8136E5F1E7E2EB39BBCDE134F44F01C41DB23073
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Labyrinth Legends  (2012) [PS3] [USA] 3.40 [Cobra ODE / E3 ODE PRO ISO] [PSN] [E
 ```bash
 magnet:?xt=urn:btih:7A34EEF474CEA115B968999419D4ADA0ECD66132
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Never Alone — это атмосферная головоломка-платф�
 magnet:?xt=urn:btih:CA288CB8A6D46BB0B2AADB1753FA7EA1F3BDD925
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Saints Row IV: Game of the Century Edition (2014) [Xbox360] [Region Free] 16537 
 ```bash
 magnet:?xt=urn:btih:9967FA4775308B190052E50C5F1C82BA04E036B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:9967FA4775308B190052E50C5F1C82BA04E036B9
 magnet:?xt=urn:btih:C67B6C3511694E3E039FC2A58459982EB4EB95EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Sonic Unleashed представляет собой игру в жанрах п�
 ```bash
 magnet:?xt=urn:btih:C2E3547FE8E57701DF78AF78E3F921D653984922
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Sonic Unleashed представляет собой игру в жанрах п�
 magnet:?xt=urn:btih:78C6456E2F2E65C2EF15A99A6EF6071FDA0CA7A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Overlord: Raising Hell (2008) [Xbox360] [Region Free] Freeboot / 7371 [Unofficia
 magnet:?xt=urn:btih:E3A188EE785E8CAAD1FF9721B9CA513FAC9E3C60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ The Last Remnant - ролевая игра, в которой вас ждет п
 ```bash
 magnet:?xt=urn:btih:12EDF2EB22F56870444B8480B3241A032486F723
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Axel & Pixel – забавный приключенческий инди-кве
 magnet:?xt=urn:btih:80E6D25D4DA3EAFFFBDB2CED3A17384FD584A3B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ Metal Gear Solid V: Ground Zeroes является прологом к игре 
 magnet:?xt=urn:btih:FDCFF052A45BF303C9E029B1F1CC65C2957547F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ Yaiba: Ninja Gaiden Z  [XBOX 360]  [Region Free] [Eng] (2014) [LT 1.9]  (XGD2/16
 ```bash
 magnet:?xt=urn:btih:F8B051A941E04AA8F522C1AF9D0EEDF34C2C51D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ Yaiba: Ninja Gaiden Z [ENG] [XBOX 360] [Freeboot] (2014)
 magnet:?xt=urn:btih:68261E4485F04886E7486F8F7D6024B87BFA5119
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:68261E4485F04886E7486F8F7D6024B87BFA5119
 ```bash
 magnet:?xt=urn:btih:D8926EDF7EEF14F3C236763B2D4A5048FEB20009
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:D8926EDF7EEF14F3C236763B2D4A5048FEB20009
 magnet:?xt=urn:btih:3244174030463A02C19D33DD02D91F7DAC2507F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ Mushroom Men: The Spore Wars [Wii] [PAL] [Multi 5] (2009)
 ```bash
 magnet:?xt=urn:btih:C25AF8CB3270B1C169DA5F6F165B7F2236A34753
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ Colin McRae Rally 2005 PSP выводит знаменитую серию авт
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ Ace Combat 6: Fires of Liberation [XBOX 360] [English] [PAL] (2007)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +583,8 @@ Ace Combat 6: Fires of Liberation [XBOX 360] [English] [PAL] (2007)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +608,8 @@ Injustice: Gods Among Us — новое слово в мире файтинго�
 ```bash
 magnet:?xt=urn:btih:E23E363FE71B355C6F4B839EA3A596F89189F326
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +635,8 @@ Star Trek: The Video Game / Стартрек [PS3] [USA] [Ru/En] [4.31] [Cobra O
 magnet:?xt=urn:btih:E73EFBEC8A2F601CA22AE6EA23432AC8E4D1D8DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ Air Conflicts: Pacific Carriers / Асы Тихого океана [PS3] [+MOVE]
 ```bash
 magnet:?xt=urn:btih:114FB7C533CE88219EEB1BB47C8AE68E1858DF4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +690,8 @@ De Blob 2 - красивый и захватывающий аркадный пл
 ```bash
 magnet:?xt=urn:btih:A15FD6CE479FE6277DED65F488E284907F1CD2BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

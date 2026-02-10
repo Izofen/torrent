@@ -22,6 +22,8 @@ A4 Crash Dance 2:09(   Читать дальше...   )Жанр: Pop, Electronic
 magnet:?xt=urn:btih:F2FCFBC7F78482EE24A0C54C7D666AD00A0A3D06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ VA - The Absolute Sound (2013) Compilation [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Cl
 magnet:?xt=urn:btih:41B3E020726A7F6877B076B1DBADB06842FADEC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ Lindemann — метал-проект, образованный 4 января 2
 ```bash
 magnet:?xt=urn:btih:7060F8A74B2559AFB208A06482390AC0A41CCF58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +107,8 @@ A4 Wild Kinda Love 3:33(   Читать дальше...   )Жанр: Synth-PopП
 magnet:?xt=urn:btih:E773B3FBA6941AA63F5E49F9A4743251D2143C17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ B1 3 Ч. – Scherzo. Allegro(   Читать дальше...   )Жанр: Class
 ```bash
 magnet:?xt=urn:btih:5DE52C4596224ADEFDA85FDA277877F012F97E21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -155,6 +165,8 @@ A4 - Poor Man's Moody Blues - 6:57(   Читать дальше...   )Жанр: 
 magnet:?xt=urn:btih:08E539E3075190C0CD52FB0717FAA74B039D6333
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +193,8 @@ A4 Magical(   Читать дальше...   )Жанр: EuropopПродолжи�
 ```bash
 magnet:?xt=urn:btih:E7E89FC969B8A8DF38CA19B97AD69536A4939BC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -209,6 +223,8 @@ Side 1:
 magnet:?xt=urn:btih:D7B27C7CCF2A0341908D3E180F3CA3D1F325508A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +251,8 @@ A4 Streetfight(   Читать дальше...   )Жанр: Pop RockПродол
 ```bash
 magnet:?xt=urn:btih:DDDB6FEEFB2105AEBD52597198BD5C62A11236A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +281,8 @@ Berlin - Pleasure Victim (1982)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-
 magnet:?xt=urn:btih:51C635D82B613769A21F231D3548F9A3639A4984
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +309,8 @@ A4 Love Of My Life(   Читать дальше...   )Жанр: PopПродол�
 ```bash
 magnet:?xt=urn:btih:E487750EE461A5148EE9249CD0161C6EF2210F40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +339,8 @@ Seal - Seal (1991) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Downtempo, Soul>
 magnet:?xt=urn:btih:9C231EDD558512BE59B71FFF597E39A607F7C2ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +367,8 @@ Dreamtale — финская группа, играющая пауэр-мета�
 ```bash
 magnet:?xt=urn:btih:8870D5E32E79A2FB57376BF8A99690B6CB86DB83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +397,8 @@ A4 Colorado(   Читать дальше...   )Жанр: Electronic, PopПрод
 magnet:?xt=urn:btih:3E63FA16F823187A7A3E7DACF7095CE054BA6042
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +425,8 @@ A4 Ты ушла из моей жизни(   Читать дальше...   )Ж�
 ```bash
 magnet:?xt=urn:btih:6922EF5C5E57799B1CF2C132CE43015CD11E02AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +455,8 @@ A4 9AM (The Comfort Zone)(   Читать дальше...   )Жанр: Electroni
 magnet:?xt=urn:btih:06507D2E611CFFDD83FB9666FF9139CA25810404
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +483,8 @@ A4 Just Like You Said 4:14(   Читать дальше...   )Жанр: Downtemp
 ```bash
 magnet:?xt=urn:btih:621BB3724FC425A93AFF2836B39F31F87ADDA40B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +513,8 @@ A2 Марыля Родович - Баллада О Поезде
 magnet:?xt=urn:btih:550AF49E2C3A2B0C7F8826325B155A975903E1A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +541,8 @@ Composed By – Giovanni Bottesini
 ```bash
 magnet:?xt=urn:btih:0C8337BCB9053E9CBE0BC3BD8A93930889A4B12B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +571,8 @@ A4 What Do You Live For 4:06(   Читать дальше...   )Жанр: Electr
 magnet:?xt=urn:btih:2E8967413514C5C77F8BC9E912ADDF3055BB071D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +599,8 @@ magnet:?xt=urn:btih:2E8967413514C5C77F8BC9E912ADDF3055BB071D
 ```bash
 magnet:?xt=urn:btih:3E95577421439156E4685A6BA4DA0467C0E5498A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +629,8 @@ A4 Ийви • Evie(   Читать дальше...   )Жанр: Soft Rock, Pop
 magnet:?xt=urn:btih:DAE96EE67321586B880F149F2CEE24276EF85A3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +654,8 @@ Prince And The Revolution - Parade (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Ri
 ```bash
 magnet:?xt=urn:btih:4666CDCE975C4A7A4105DB145DDC606A8999E5C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +684,8 @@ Iron Mask — пауэр-метал группа, основанная в 2002 �
 magnet:?xt=urn:btih:4AEE5C8B9D56C0E9B03E31FD29055D6688793BDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +713,8 @@ Laibach - Sketches Of The Red Districts (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <I
 magnet:?xt=urn:btih:A2895E481C4B41BCAFB20D46CD884D8332EDAEF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -691,6 +741,8 @@ Londonbeat - In the blood (1990) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electr
 ```bash
 magnet:?xt=urn:btih:6AFEFC598317CCC86A898A06537414A1903E48D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

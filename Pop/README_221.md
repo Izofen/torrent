@@ -1,3 +1,154 @@
+###  Публикация: 911843   (614495) от 24.06.2015
+
+VA - Fabulous Flips (1993) [MP3|320 кб/с]<Oldies, Soul, R&B, Rock'n'Roll>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Larry Williams - Slow Down (02:46)
+02. Rosie & the Originals - Give Me Love (03:02)
+03. Jack Scott - Leroy (02:10)
+04. The Everly Brothers - I Wonder If I Care as Much (02:14)(   Читать дальше...   )Жанр: Oldies, Soul, R&B, Rock'n'RollПродолжительность: 01:00:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1727E6D5B369ABDEA5DBEAE47A548A03CCDF6C7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911865   (614496) от 24.06.2015
+
+VA - Fabulous Flips. Vol.3 (1997) [MP3|320 кб/с]<Oldies, Soul, R&B, Rock'n'Roll>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dion & the Belmonts - I Can't Go On (Rosalie) (02:17)
+02. The Royaltones - Wail (02:07)
+03. The Wailers - Dirty Robber (02:37)
+04. Benny Spellman - Fortune Teller (02:14)(   Читать дальше...   )Жанр: Oldies, Soul, R&B, Rock'n'RollПродолжительность: 01:01:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FD11818A9B0B77A1C987E4C998C13B9E4B782C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911857   (614498) от 24.06.2015
+
+VA - Fabulous Flips. Volume Two (1995) [MP3|320 кб/с]<Oldies, Soul, R&B, Rock'n'Roll>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Del Vikings - Little Billy Boy (02:04)
+02. Sanford Clark - Lonesome for a Letter (01:52)
+03. Clarence "Frogman" Henry - Troubles, Troubles (02:09)
+04. Nappy Brown - It's Really You (03:03)(   Читать дальше...   )Жанр: Oldies, Soul, R&B, Rock'n'RollПродолжительность: 01:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5576F419029D381992391DAA6466518B9C6A0A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523850   (614617) от 17.07.2012
+
+VA - Grand 12 Inches 9 (2012) 4CD (Compiled by Ben Liebrand) [FLAC|Lossless]<Italo-Disco, Disco, Electro, Disco-Funk, Funk>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_614617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grand 12 Inches Volume 9 (дата выхода - 12 июня 2012г.) - отличный сборник от Бена Либранда (Ben Liebrand) - одного из основателей студийного ди-джеинга в Европе. Рекомендуется для углублённого изучения музыки стиля Диско. Моё же личное мнение - в данной компиляции Диско-Фанка всё-таки чуть больше, чем "чистого" Диско. А впрочем, смешение направлений нисколько не мешает назвать данный сборник приятным во всех отношениях, за что Бену - огромное спасибо!01. Donna Summer - Could It Be Magic (Full Version With Prelude To Love) :: 06:26
+02. Earth, Wind & Fire - Getaway (12'' Version) :: 05:13
+03. Karen Young - Hot Shot (12'' Version) :: 08:36
+04. Bobby Thurston - You Got What It Takes (12'' Version) :: 09:37
+05. Grace Jones - Pull Up To The Bumper (Unedited Extended Album Version) :: 07:23
+06. Tina Turner - Goldeneye (Morales Club Mix) :: 10:05
+07. Georgio - Lovers Lane (New After Hours Vocal Remix) :: 06:09
+08. Unique - What I Got Is What You Need (Vocal) :: 06:26
+09. Imagination - Music And Lights (Maxi Single) :: 05:20
+10. Salt 'N' Pepa - Let's Talk About Sex (Original Recipe Mix Club) :: 06:00(   Читать дальше...   )Жанр: Acid House, Latin, Hi NRG, Disco, Electro, Disco-Funk, FunkФормат: 4xCD, Compilation, UnmixedПродолжительность: 05:14:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545405   (614904) от 19.04.2022
+
+Michael Ball - The Musicals (1996) [FLAC|Lossless|image + .cue] <Vocal, Musical, Soundtrack>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All I Ask Of You (Phantom Of The Opera)
+02. Something's Coming (West Side Story)
+03. Losing My Mind (Follies)
+04. Memory (Cats)(   Читать дальше...   )Жанр: Vocal, Musical, SoundtrackПродолжительность: 00:51:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA7DDB4E98D19D197F7CB62513D2DA90D76A9158
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 523965   (614947) от 17.07.2012
 
 На-На - Лучшая Коллекция (2012) [MP3|320 кб/с]<Рор>
@@ -28,6 +179,8 @@
 magnet:?xt=urn:btih:8BB90374355FA419D0702955521C5909B2525C2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +207,8 @@ magnet:?xt=urn:btih:8BB90374355FA419D0702955521C5909B2525C2F
 ```bash
 magnet:?xt=urn:btih:4F60D49466ADA2FB24418A17B4648BE504B0055E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +237,8 @@ VA - 100 Greatest Chilled Pop (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, 
 magnet:?xt=urn:btih:B758D16310C90C433D7805893F7C8B3458E65D0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +265,8 @@ VA - 100 Greatest Summer Songs (2019) [MP3|320 Kbps] <Rock, Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:084DEB52D4B72F51D3022611233BD3DD4B88AC3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +295,8 @@ Westlife - Westlife (1999) [FLAC|Lossless|image + .cue] <Europop, Ballad>
 magnet:?xt=urn:btih:D72885DDAEE61FB7AB7A318E912462A8F376222A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +323,8 @@ VA - 100 Greatest Chilled Pop (2019) [MP3|320 Kbps] <Pop, Dance, Club>
 ```bash
 magnet:?xt=urn:btih:BDCB886DF3EC23941DCEC352335D0B4D856FE08E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +353,8 @@ CD 01:
 magnet:?xt=urn:btih:7AA18E127CA1C1D669F9169280ECDAD0C8A2B005
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +381,8 @@ magnet:?xt=urn:btih:7AA18E127CA1C1D669F9169280ECDAD0C8A2B005
 ```bash
 magnet:?xt=urn:btih:4535C350C0F6FB2DF47F29FB4A8EF12246930E48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +411,8 @@ VA - Еще одна вечеринка! Выпуск 3 (1996) [FLAC|Lossless|im
 magnet:?xt=urn:btih:0F04E33FFF63B9FACF81C51FF93933FF0FF1093C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +439,8 @@ VA - Radio Italia: Summer Hits 2017 (2017) 2CD [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:0117F3F514E41DA5CE0D59348296E8FBEAF64034
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +469,8 @@ VA - SuperVara (2016) 2CD [FLAC|Lossless|image + .cue] <Dance,  Pop>
 magnet:?xt=urn:btih:FDA277DBA1A91197121CEAD04FA7755A4C5495B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +497,8 @@ Rainhard Fendrich - Lieder Mit Gefuhl (1994) [FLAC|Lossless|tracks + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:0765AE2A8E0DE9627BB126CFC569EF9B8B540ADD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +527,8 @@ magnet:?xt=urn:btih:0765AE2A8E0DE9627BB126CFC569EF9B8B540ADD
 magnet:?xt=urn:btih:AED455F30EF073B6A0F9683B94B534A38E6734B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +556,8 @@ Darkness Falls - Dance and Cry (2015) [OGG|457-558 кб/с]<Indie Pop, Electroni
 magnet:?xt=urn:btih:618DE9B3F5A059F7E8F89DAF061CF469B61A7918
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +584,8 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:75A089409366427FB651A2D7890A03B271B5D7C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +620,8 @@ magnet:?xt=urn:btih:75A089409366427FB651A2D7890A03B271B5D7C6
 magnet:?xt=urn:btih:662A83EC291905DB10BAFBB7AB14F3FD225F3029
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +655,8 @@ VA - Лучшее из 90-х (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:DF5AE36D9FC713751E18DCBD9B433C98DFD0335C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +683,8 @@ VA - Dancefloor Fuller (2017) [MP3|320 Kbps] <Schlager, Pop>
 ```bash
 magnet:?xt=urn:btih:68DEFA6F353849A109A7E88B8993E0B55F351B31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +713,8 @@ magnet:?xt=urn:btih:68DEFA6F353849A109A7E88B8993E0B55F351B31
 magnet:?xt=urn:btih:67F0772D4C493D0440DAC6FEBFDC8CC44BF80C1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +741,8 @@ Victor Manuelle - Que Suenen los Tambores (2015) [MP3|320 кб/с]<Latin, Salsa>
 ```bash
 magnet:?xt=urn:btih:E203023C68023402DAE63A7B55A2E2A68F0C2893
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,146 +771,7 @@ VA - Heisse Ballerfrauen auf Mallorca Die Partyhits 2017 [MP3|320 Kbps] <Schlage
 magnet:?xt=urn:btih:4414320858767A6F335A74F2F9BBCD3F425608DF
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295663   (616906) от 14.04.2019
-
-VA - 100 Greatest Number Ones (2019) [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616906.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Clean Bandit - Solo (feat. Demi Lovato) (3:42)
-002. Rudimental - These Days (feat. Jess Glynne, Macklemore & Dan Caplen) (3:31)
-003. Lukas Graham - 7 Years (3:57)
-004. Charlie Puth - Marvin Gaye (feat. Meghan Trainor) (3:10)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:16:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0D04D46B248934E84592E570E03FCC48A8BD599
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523548   (616988) от 16.07.2012
-
-Bananarama - 30 Years of Bananarama (2012) [MP3|242-290 кб/с]<Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Aie A Mwana
-02 Really Saying Something
-03 Shy Boy
-04 Na Na Hey Hey Kiss Him Goodbye
-05 Cruel Summer
-06 Robert De Niro's Waiting
-07 Venus
-08 I Heard A Rumour
-09 Love In The First Degree
-10 I Can't Help It(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 1:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAF35AE95401BF2EFCE19FEBD9CDE4192EF66F85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295785   (617024) от 14.04.2019
-
-Bibio - Ribbons (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Indie Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beret Girl (01:56)
-02. The Art of Living (03:16)
-03. Before (03:11)
-04. Curls (03:17)(   Читать дальше...   )Жанр: Electronic, Indie Pop, Pop RockПродолжительность: 00:51:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8611EEA91D86BEFE4F5E1AD0D9B5FD046DB4374
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036961   (617173) от 22.07.2016
-
-Вахтанг Кикабидзе - Старики - разбойники (2004) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Старики - разбойники
-02. Я в тебя по-прежнему влюблен
-03. Первая любовь
-04. Наверное кажется(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE3FE0780E02C3E1CFECB19BE8841F70FC9F818F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230328   (617300) от 11.06.2018
-
-VA - Italo Disco: The Lost Legends Vol. 18 (2018) [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. F. Monieri - Up Medley Walk Away
-02. Shane - Simba
-03. New Glory - Run Along The Road
-04. Stop Limit Line - Colonel(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43F1ACEDA62C8541C9515A37F3508A0FD00050CA
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

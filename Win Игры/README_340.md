@@ -19,6 +19,8 @@ Assassin's Creed 3 (Patch/1.01) 2012
 magnet:?xt=urn:btih:D0397C9842ED1B73D109AA18431947ADB3297445
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Cursed Mountain / Проклятая гора [Ru/En] (RePack) 2010 | R.G. Ме�
 ```bash
 magnet:?xt=urn:btih:9D17EC8E465ED641B091A2229F647F2DACFD1F60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ The Fall: Mutant City - это продолжение вышедшей и зав
 magnet:?xt=urn:btih:D901C869D04D50DEF87CF7F79F9F459D8AB17C6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Fishing: North Atlantic (2020) [Ru/Multi] (0.9.221.3829) Repack xatab
 ```bash
 magnet:?xt=urn:btih:81C3866F01762D65AF0001C5231636252173FC22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Undertale (2015) [Ru/En] (1.06) License GOG
 magnet:?xt=urn:btih:D0BD0F06AE2058FD6817EA202D7939B014E058D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Bounty Train (2017) [Ru/Multi] (1.0.13832/dlc) License GOG [Trainium Edition]
 ```bash
 magnet:?xt=urn:btih:CD41490AEB6FAACBA567E4D786FA66E2ADD343C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Red Riding Hood: Star Crossed Lovers - красочная "я ищу" от ст�
 magnet:?xt=urn:btih:4D1F70E7574432253822A5B20D693EEFD794801D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Red Faction: Guerrilla Re-Mars-tered (2018) [Ru/Multi] (cs:4931) Repack xatab
 ```bash
 magnet:?xt=urn:btih:C5B8D9A794698D2556E262028BDF27DB5674D33E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Dreamwalker: Never Fall Asleep (2018) [Ru/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:22C0A1341714B3B77313055994583EEAF2A35468
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Deus Ex: Human Revolution - третья часть популярного РП�
 ```bash
 magnet:?xt=urn:btih:BC22B4B8CE36A68FE132622E2DD8F4CED33654EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Dark Dimensions 6: Shadow Pirouette (2015) [En] (1.0) Unofficial [Collector's Ed
 magnet:?xt=urn:btih:E8BA171F364A876AC45879B6AD1497ED5D9D59A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ The Silver Case (2016) [En/Jp] (1.01) License GOG [Deluxe Edition]
 magnet:?xt=urn:btih:3E4DF16A9CAC1942D594D9FC2A742DF95B73210F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Serious Sam 3: BFE — это великолепное возвращение в
 ```bash
 magnet:?xt=urn:btih:DC31A18E2143A6393340AD73AC595A15CC764937
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ Rise of Legends, помимо всего прочего, содержит реж
 magnet:?xt=urn:btih:CD27A9CBA7F3FBF3D191296A1F2F59F927CE2E3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Final Fantasy VII – это культовая jRPG, первая игра из
 ```bash
 magnet:?xt=urn:btih:8D7957208885C1ACE0EC59AB6D43FB149D5D0EFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Men of War: Assault Squad. Game of the Year Edition / В тылу врага 2: 
 magnet:?xt=urn:btih:DE0338695A1D0BE6863D3EF87B97B2FE5B2C2ECD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ Bionic Commando [Ru/En/Multi] (RePack) 1988 - 2009 | R.G. Механики
 magnet:?xt=urn:btih:A3289C34F47834A9DFE6B16376FBA00A320535FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ FLY’N — это яркий и красочный платформер, в к�
 ```bash
 magnet:?xt=urn:btih:7678683662C1132EEE22B3F28CDBD59CDE52FE4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ magnet:?xt=urn:btih:7678683662C1132EEE22B3F28CDBD59CDE52FE4A
 magnet:?xt=urn:btih:AC3128F9F80DB65BFD65CFC37E1699D8AA3F5610
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ XCOM: Отряд «Химера» открывает новую главу в и
 ```bash
 magnet:?xt=urn:btih:1AF33EA5ADAF40D13B7D35E385BCFE998523F1E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ Wasteland Remastered (2020) [Ru/Multi] (1.24) License GOG (обновляема�
 magnet:?xt=urn:btih:A6E0786550FC1B95B0E9D2F0250B35274F6C266C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ Streets of Rage 4 – Это новая часть одной из лучших 
 ```bash
 magnet:?xt=urn:btih:77E2D60EEC56CBECDB66C410D73B50E600238EAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ Shiver (2017) [En] (1.0) Repack Other s
 magnet:?xt=urn:btih:DF81D35C189934813B44ED90B929DB373C7891FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ AER Memories of Old (2017) [Ru/Multi] (1.0.3.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:373E1D0B3AF303F42416FBA54247C65441DBE3F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ GRIM - Mystery of Wasules - это игра от первого лица, в к�
 magnet:?xt=urn:btih:95B23A0A94E68CC22CB600DB7407421B6A8A03DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Invisible Inc. (2015) [Ru/En] (183969/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:A39AADB9C0C8BFA796618B060A24C384D91F5B01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

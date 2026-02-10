@@ -1,3 +1,29 @@
+###  Публикация: 1388909   (785127) от 08.06.2020
+
+Олег Кожевников | Комбриг (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начало Великой Отечественной войны. Казалось бы, ничто не может изменить эти полные трагизма дни и остановить накатывающийся на нашу страну коричневый молох.Но волею судьбы в решающей точке противостояния армии оказался человек со жгучим желанием не допустить повторения исторического сценария его бывшей реальности. Это Юрий Черкасов, попавший в тело своего деда ещё (   Читать дальше...   )Жанр: Попаданцы, Фантастика, БоевикПродолжительность: 10:11:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BC97333FDDD3D0D1248C44B6E4E29A44FF4E428
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203900   (785205) от 04.02.2018
 
 Михаил Кисличкин | Взвод «пиджаков» (2018) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:00B18967370E4AED4EC9329862F4F26E103877AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:00B18967370E4AED4EC9329862F4F26E103877AA
 ```bash
 magnet:?xt=urn:btih:ABB40CF63AF5D7ACE2BA2BE35095D9023DD440C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:ABB40CF63AF5D7ACE2BA2BE35095D9023DD440C3
 magnet:?xt=urn:btih:9C39DBBB154BD4D6B5C9E1ACBF4BFD3E4C39F4A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:9C39DBBB154BD4D6B5C9E1ACBF4BFD3E4C39F4A8
 ```bash
 magnet:?xt=urn:btih:BB4B74B001F5DE7C568E64808EB5B98543C72383
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:BB4B74B001F5DE7C568E64808EB5B98543C72383
 magnet:?xt=urn:btih:98E103ABF82CADFB081B8F0387895301AA714ACB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:98E103ABF82CADFB081B8F0387895301AA714ACB
 ```bash
 magnet:?xt=urn:btih:B284D25CAB611A6A08EAA0D9ED73018B030649DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:B284D25CAB611A6A08EAA0D9ED73018B030649DF
 magnet:?xt=urn:btih:67B92CDF73B86902E36328095665119CB289556B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:67B92CDF73B86902E36328095665119CB289556B
 ```bash
 magnet:?xt=urn:btih:22C6E6BE8F819DDF559142DAA08C677C0A828228
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:22C6E6BE8F819DDF559142DAA08C677C0A828228
 magnet:?xt=urn:btih:C519BF7B5FC16883E0C2A04F2F9FD89DD96E033A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:C519BF7B5FC16883E0C2A04F2F9FD89DD96E033A
 ```bash
 magnet:?xt=urn:btih:3D22797780C80BE844AA55F955A124BD8AB07D74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +313,8 @@ magnet:?xt=urn:btih:3D22797780C80BE844AA55F955A124BD8AB07D74
 magnet:?xt=urn:btih:CAE72A2F54DD1DA8A4A928F04D824DB9ECB47D54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:CAE72A2F54DD1DA8A4A928F04D824DB9ECB47D54
 ```bash
 magnet:?xt=urn:btih:E912B1DE131F910553066C0F2353F0FB43B8AC0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:E912B1DE131F910553066C0F2353F0FB43B8AC0B
 magnet:?xt=urn:btih:261ED62655E693E814FE84F1B4B2C5A2F3E84C50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:261ED62655E693E814FE84F1B4B2C5A2F3E84C50
 magnet:?xt=urn:btih:CC5A6E53AC38BE3A2C851C8C2596829AEDC59225
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:CC5A6E53AC38BE3A2C851C8C2596829AEDC59225
 ```bash
 magnet:?xt=urn:btih:7ABE0BDCDC69F92AA5EB16596F5800DEFC1BB4AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:7ABE0BDCDC69F92AA5EB16596F5800DEFC1BB4AF
 magnet:?xt=urn:btih:08B9199D9AA12AF9704951B7ECB59310A18DBCDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:08B9199D9AA12AF9704951B7ECB59310A18DBCDF
 magnet:?xt=urn:btih:B6A722EB3737C0FFDAEB86822C7AEB20B118809D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:B6A722EB3737C0FFDAEB86822C7AEB20B118809D
 ```bash
 magnet:?xt=urn:btih:19D138031DB807F3F44F4538BD0C9FC2FC40CA0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +525,8 @@ magnet:?xt=urn:btih:19D138031DB807F3F44F4538BD0C9FC2FC40CA0E
 magnet:?xt=urn:btih:28D60F6E4109F1CCAC37CEBC911E806F60A4D5EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:28D60F6E4109F1CCAC37CEBC911E806F60A4D5EC
 ```bash
 magnet:?xt=urn:btih:44CE66D8689CDC24F9E11BF14A303798D9C94765
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +578,8 @@ magnet:?xt=urn:btih:44CE66D8689CDC24F9E11BF14A303798D9C94765
 magnet:?xt=urn:btih:F135D6EE05E84863124E2F8197DA61CADDA0B74D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:F135D6EE05E84863124E2F8197DA61CADDA0B74D
 magnet:?xt=urn:btih:28E6B6FBC4DE6EDF988DE28697D4F824DC21D5CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:28E6B6FBC4DE6EDF988DE28697D4F824DC21D5CE
 ```bash
 magnet:?xt=urn:btih:86BC3377EE579AABABF6536A81231267714C8CA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:86BC3377EE579AABABF6536A81231267714C8CA5
 ```bash
 magnet:?xt=urn:btih:B26077BDE32FFBE006A4C0A07083FA27EC2F2B60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,31 +687,7 @@ magnet:?xt=urn:btih:B26077BDE32FFBE006A4C0A07083FA27EC2F2B60
 magnet:?xt=urn:btih:3B37EC63E32259F86AA4887ECF80382CE5398FE9
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512097   (787085) от 25.11.2021
-
-Павел Дартс | Крысиные гонки. Часть 1 (2021) [MP3, Павел Дартс]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787085.jpg" />
-</div>
-
-
-###  Подробнее
-
-Своего рода продолжение Крысиной Башни. Это не «линейное продолжение», когда взял и начал с того места, где прошлый раз остановился. По сути – это новая история, с новыми героями – но которые действуют в тех же временных и территориальных рамках, как и персонажи КБ. Естественно, они временами пересекаются.
-
-Почему так «всё заново»? Потому что для меня – и для Вас (   Читать дальше...   )Жанр: Фантастика, постапокалипсисПродолжительность: 09:22:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:016101880CFACAD7CA512ACA2504EDA8ED20ACCB
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

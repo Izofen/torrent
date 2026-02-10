@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Hans Zimmer & Richard Harvey - The Little Prince / Маленький принц
 ```bash
 magnet:?xt=urn:btih:ECB06BD6C1B3CB4728DD74CDCEA5C418C01B23E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - All Music Of The World, A Collection Of Ambient Music Remixed With Native S
 magnet:?xt=urn:btih:9BDE27E541071C9A909CC572C04E966E90C90AD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Agrelia's Castle - Elders and Ancestors (2015) [MP3|320 кб/с] <New Age>
 ```bash
 magnet:?xt=urn:btih:8F68A97102CF5E3CD03987A8EC40BCAF96547C4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -132,6 +140,8 @@ Strunz & Farah - 15 albums (1982-2011) [MP3|320 кб/с]<Flamenco, World Fusion,
 magnet:?xt=urn:btih:B40D9D864EBDA387C1ADB2817B9F080059B09A92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ Dan Gibson - Ocean Surf: Timeless And Sublime (1995) Solitudes - Nature Sound Co
 ```bash
 magnet:?xt=urn:btih:8FF50D3AE2E9596310D3C4599444EEA4C45C8E12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -185,6 +197,8 @@ VA, Lorne Balfe - The LEGO Batman Movie / Лего Фильм: Бэтмен (Ori
 magnet:?xt=urn:btih:893E9EC4D66D227258C3F473F851FEBBB1AB149A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +226,8 @@ Toundra - Das Cabinet Des Dr. Caligari (2020) [FLAC|Lossless|tracks + .cue] <Sou
 magnet:?xt=urn:btih:140A0D964DB47285F6BBB826F52740E319080010
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +254,8 @@ Govi - Your Lingering Touch: Govi at His Romantic Best (2001) [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:90315AF8F667E03B797E8D8CC6D21162B51A299E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +285,8 @@ Ricky King - The Best World Instrumental Hits (2009) [FLAC|Lossless]<Instrumenta
 magnet:?xt=urn:btih:74EA1E0352973E15D095053D744FBACFA475C5A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +314,8 @@ Disasterpeace - Оно следует за тобой / It Follows (Original Mot
 ```bash
 magnet:?xt=urn:btih:663E364E7A79AB7C2D69B714BAE3E25298493B0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +345,8 @@ Jason Graves - The Order: 1886 (Original Video Game Soundtrack) (2015) [MP3|320 
 magnet:?xt=urn:btih:25306BD04CB7650F827D4555683C71DFCA9F406A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +374,8 @@ Tyler Bates & Joel J. Richard - John Wick: Chapter 2 / Джон Уик 2 (Origin
 magnet:?xt=urn:btih:64B3BC58268EEB7E2E373517318E673F92603306
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +399,8 @@ VA - Melodies, Moods & Memories (6CD) (1991) [FLAC|Lossless]<Easy Listening, Ins
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +430,8 @@ Asaf Avidan - Gold Shadow (2015) [MP3|320 кб/с]<Indie Folk, Folk Rock, Blues>
 magnet:?xt=urn:btih:E59959712DC6E2F4D490FA3C39CC459064ABED93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +459,8 @@ Tyler Bates & Joel J. Richard - John Wick: Chapter 2 / Джон Уик 2 (Origin
 magnet:?xt=urn:btih:A40DEB7E9F979658AED9065FF3F0EAB3020B3ECC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +487,8 @@ Tyler Bates & Joel J Richard - John Wick / Джон Уик (Original Motion Pict
 ```bash
 magnet:?xt=urn:btih:9FAD753EA974BE8759E78802CE3D856CA97FEDD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +523,8 @@ magnet:?xt=urn:btih:9FAD753EA974BE8759E78802CE3D856CA97FEDD6
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +557,8 @@ VA - Колядки та щедрівки (2008) [MP3|224-256 кб/с]<Folk>
 ```bash
 magnet:?xt=urn:btih:8523D6A520257E152106C505D9D29F2A703EC930
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +593,8 @@ VA - Faire Celts - A Woman's Voices (2000) [MP3|320 kbps]<Celtic folk, world mus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +618,8 @@ VA - Faire Celts - A Woman's Voices (2000) [MP3|320 kbps]<Celtic folk, world mus
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +647,8 @@ VA - Romantic Collection-Cinema (1999) [FLAC|Lossless|image + .cue] < Soundtrack
 ```bash
 magnet:?xt=urn:btih:BD0BBB4E5F55CC9FDB6040C99C673B0FEB4110A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +683,8 @@ magnet:?xt=urn:btih:BD0BBB4E5F55CC9FDB6040C99C673B0FEB4110A3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +712,8 @@ Acoustic Heroes - Relaxing Piano Sounds (Acoustic Bar and Lounge Music) (2014) [
 magnet:?xt=urn:btih:0BE7642704C1ED35A7E63D543659EA52ECEAFA5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -692,6 +740,8 @@ Gomer Edwin Evans - Celtic Legends of Ireland (2016) [MP3|320 кб/с] <New Age,
 ```bash
 magnet:?xt=urn:btih:7E9712E1C340CC6C8507F403F99E25D55F717BD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -725,6 +775,8 @@ Deep Forest - Deep Africa (2013) [MP3|320 кб/с]<New Age/World Music/Ethnic>
 ```bash
 magnet:?xt=urn:btih:3D6F1207FAF2CF852F7182DE172714BDF0746053
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

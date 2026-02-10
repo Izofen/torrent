@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Gears of War Reloaded (2025) [Ru/Multi] (1.0.1.3689997) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:144ABB2F6437B2F2BA22D1CC449C9074E87366D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:144ABB2F6437B2F2BA22D1CC449C9074E87366D2
 magnet:?xt=urn:btih:B04ECE21ED4A8C776D70CCBAC55B477229008C26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ MediaHuman YouTube Downloader 3.9.16 (2408) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:3C061FA29BB753EF45EF5CB8E567A264A95D49ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:3C061FA29BB753EF45EF5CB8E567A264A95D49ED
 magnet:?xt=urn:btih:A3122F471777258F9BF7EEB2F77B0E6B29C4F51D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ FOUNDRY - строительный симулятор с видом от пер�
 ```bash
 magnet:?xt=urn:btih:C69EEC5FF58DA167778857C8D175FF7137899ADF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Wondershare Filmora - удобный видеоредактор, содержа�
 magnet:?xt=urn:btih:6297941F7D5102E703687E6F09858E3E65EF8DAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ MAX Desktop 25.8.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:0BA7DADBF8C7C430DF6A400D7AF53E2DCCAEB779
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:0BA7DADBF8C7C430DF6A400D7AF53E2DCCAEB779
 magnet:?xt=urn:btih:361D9233F7A8BB5948C74B885175ACB8A634D097
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ DaVinci Resolve — единственное в мире решение для �
 ```bash
 magnet:?xt=urn:btih:03FB2660434634E00FB8778AA13F8ED40FE5CCBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:03FB2660434634E00FB8778AA13F8ED40FE5CCBE
 magnet:?xt=urn:btih:AFFEAFCC0466F7830FDD2D14A48EA5CD514AF1CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:AFFEAFCC0466F7830FDD2D14A48EA5CD514AF1CC
 ```bash
 magnet:?xt=urn:btih:618AE186037A7BCDE4C7C208EA16D004508EC7E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:618AE186037A7BCDE4C7C208EA16D004508EC7E0
 magnet:?xt=urn:btih:316DE7EEF98261C4C140783FF1A2BDE8385EC398
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land / Ателье Ю
 ```bash
 magnet:?xt=urn:btih:DFA7A25DC178A1DF50A1A8C455E097B067F6FB00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Dark Envoy объединяет классическую механику RPG с
 magnet:?xt=urn:btih:7EC7EB4C71AD6FF90A0B35480FAC0C39BB8EF68C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ magnet:?xt=urn:btih:7EC7EB4C71AD6FF90A0B35480FAC0C39BB8EF68C
 magnet:?xt=urn:btih:FA20E5252059AE6A0DFCEAA79758526F8D517EF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +434,8 @@ magnet:?xt=urn:btih:FA20E5252059AE6A0DFCEAA79758526F8D517EF2
 ```bash
 magnet:?xt=urn:btih:598686D75EF6791A06C8C51659BB86592805A24D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:598686D75EF6791A06C8C51659BB86592805A24D
 magnet:?xt=urn:btih:CA381298038BE1D5355187AFA94599EFF122D57F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:CA381298038BE1D5355187AFA94599EFF122D57F
 ```bash
 magnet:?xt=urn:btih:65F5F32E3C26376ACFCC0E9E6A3040D7A92F8F0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ Intravenous 2 - это уникальное сочетание тактичес�
 magnet:?xt=urn:btih:DB1B953595975C465067CD894016807C21157EEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ magnet:?xt=urn:btih:DB1B953595975C465067CD894016807C21157EEF
 ```bash
 magnet:?xt=urn:btih:110988F9ADA1295D5D43C66F3F285172FACD4BC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ magnet:?xt=urn:btih:110988F9ADA1295D5D43C66F3F285172FACD4BC4
 magnet:?xt=urn:btih:12B51E75588CDEFC46EB048526301A31BAD927AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:12B51E75588CDEFC46EB048526301A31BAD927AC
 ```bash
 magnet:?xt=urn:btih:B2AC8D110B64608FFACE177336672F4D3E73256B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ Sammy Hagar (frontman Montrose, Van Halen, Chickenfoot) - 34 Albums (1976 - 2022
 magnet:?xt=urn:btih:7BADEC85A80E12A7CCB6690EE0D9D5058837C772
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ Spirit of the North 2 (2025) [Ru/Multi] (12765-13132) Repack Let'sРlay
 magnet:?xt=urn:btih:C3CBC428F06E009717C0295EC2F24591996EFE65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ magnet:?xt=urn:btih:C3CBC428F06E009717C0295EC2F24591996EFE65
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

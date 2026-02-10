@@ -19,6 +19,8 @@ Parted Magic — готовое решение для работы с разде
 magnet:?xt=urn:btih:DA0DC3EED6F02FD94BAC3D761F727B64065FAA6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BlackArch Linux 2020.06.01 [Хакинг, аудит, безопасность] 
 ```bash
 magnet:?xt=urn:btih:91BF53E677C7E06DA7E8C79CB50DFAD14D1B12C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Parted Magic - дистрибутив на основе Linux, предназн�
 ```bash
 magnet:?xt=urn:btih:B781F01873A995A65B134695687D197384D66325
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Sabayon 16.05 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE и server) [amd64] 7xDV
 magnet:?xt=urn:btih:131C6D0221EA26E276FF478074626B45B32A00C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Parted Magic — готовое решение для работы с разде
 ```bash
 magnet:?xt=urn:btih:D80FDF639877031843F79B728232CB83EE77887E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Ubuntu*Pack 18.04 LXDE (Lubuntu) (декабрь 2018) [i386 + amd64] 2xDVD
 magnet:?xt=urn:btih:F067E740D467DC5550E49121445E396FA5834934
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Ubuntu*Pack Budgie 18.04 (декабрь 2018) [amd64, i386] 2xDVD
 magnet:?xt=urn:btih:3E01BDF8F9ADF02C835FB66BDE5B07F72575D4DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Antergos - современная, привлекательная и мощна�
 ```bash
 magnet:?xt=urn:btih:4B6DAAD7B3D2EB9F7611FA2C46330EF07AED12A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Sabayon 16.04 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE и server) [amd64] 7xDV
 ```bash
 magnet:?xt=urn:btih:70D3ABA2D180D4D5A0E52FE7D61AA6CF10F1382C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ Red OS 7.3 [amd64] 1xDVD
 magnet:?xt=urn:btih:5D861D6F3ADA9C9FC1EAF5B1CB026557AEABC31F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ Ctlos Linux — базируется на Arch Linux, iso образ собра�
 magnet:?xt=urn:btih:B044B707CEBB45F0A5CE775FFDC2E2E133D248FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ JonDo 0.9.76 [анонимный доступ в сети] [x86] DVD
 ```bash
 magnet:?xt=urn:btih:7A285D831FAB82072543E70E146FCD57726EE228
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ Parted Magic — готовое решение для работы с разде
 magnet:?xt=urn:btih:085B68E844E96F5BF052351D48AD91BF5D28AF93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ Lubuntu — это свободная операционная система н
 magnet:?xt=urn:btih:BC3FED76AE4087D1C5584F0463180E8110A26F8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ Tor Browser for Linux - удобная и простая модификация 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ Mageia 3 DVD [i586] (DVD)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ Mageia 3 LiveDVD (KDE + GNOME) [i586, x86-64] (4xDVD)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ KaOS Linux 2016.04 (Arch + Plasma KDE 5) [x86-64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:9F5766E1A0CDCF62F58EB66E6051D53DA44C3B86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +503,8 @@ Mageia 3 DVD [x86-64] (DVD)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ Mageia 3 [i586, x86-64] (3xCD)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +556,8 @@ Kubuntu 16.04 LTS Xenial Xerus [i386, amd64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:6BDDF820B1F3DB51BD7DF259CF85BF0C416CC49C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +583,8 @@ Wifislax 4.12 [Аудит безопасности, хакинг] [x86, х64] 4.
 ```bash
 magnet:?xt=urn:btih:47472873677894C46C075F59FBBA03D04A8AA943
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ Manjaro Linux 0.8.5.2 (Arch + kde, mate, cinnamon) [x86-64] (3xDVD)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +644,8 @@ Manjaro Linux 0.8.5.2 (Arch + kde, mate, cinnamon) [i686] (3xDVD)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +672,8 @@ Slackware Linux — один из старейших дистрибутивов 
 magnet:?xt=urn:btih:BFFB25968188A4130BC695E895BCD749FC98683B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ Debian GNU/Linux 10.4.0 + nonfree Buster [amd64] 4xDVD
 ```bash
 magnet:?xt=urn:btih:8E3D38783FFF48A024F7E7EC9911F995D449C2D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

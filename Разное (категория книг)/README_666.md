@@ -1,3 +1,30 @@
+###  Публикация: 1365758   (927009) от 09.03.2020
+
+Майкл Микалко | Тайный эксперт. Комбинируй, смешивай, создавай прорывные идеи (2019) [EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иногда хорошая задумка намного важнее денег, связей и опыта. Но как генерировать идеи, если все уже придумано до нас? Неужели единственное, что мы можем делать, – копировать мысли других людей? Конечно же, нет!
+В своей книге Майкл Микалко детально разбирает, как формируются новые идеи, как можно успешно комбинировать уже придуманные вещи и создавать на основе этого (   Читать дальше...   )Жанр: Психология, Личная эффективностьПеревод: Ирина МатвееваФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:230E62A6623B532292EE0F1C6356142E3A78DA03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1489242   (927044) от 15.08.2021
 
 Анастасия Богачева | Время перемен. Как принять изменения в своей жизни (2021) [FB2]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:5F49E1706D017874469D82C8E4041F7A76FEB31D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +73,8 @@ magnet:?xt=urn:btih:5F49E1706D017874469D82C8E4041F7A76FEB31D
 magnet:?xt=urn:btih:9F46D667D0F541135CA33C97D1900F345E01F79B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +99,8 @@ magnet:?xt=urn:btih:9F46D667D0F541135CA33C97D1900F345E01F79B
 magnet:?xt=urn:btih:FB4EAB7CCEB7E723F6B112B9BFF4243315DD65FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +124,8 @@ magnet:?xt=urn:btih:FB4EAB7CCEB7E723F6B112B9BFF4243315DD65FE
 ```bash
 magnet:?xt=urn:btih:5C788E6B971DE666E78D1A7C73B63644FB19730C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +153,8 @@ magnet:?xt=urn:btih:5C788E6B971DE666E78D1A7C73B63644FB19730C
 magnet:?xt=urn:btih:D902F540CAA27A8BA0D310A2F292764D2AD339E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +179,8 @@ magnet:?xt=urn:btih:D902F540CAA27A8BA0D310A2F292764D2AD339E6
 magnet:?xt=urn:btih:8AE56E5848F56F264441650CC954171FA5FFA164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +204,8 @@ magnet:?xt=urn:btih:8AE56E5848F56F264441650CC954171FA5FFA164
 ```bash
 magnet:?xt=urn:btih:B76F91A15E49C72854AB88AB8700DCCF87F60DBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +233,8 @@ magnet:?xt=urn:btih:B76F91A15E49C72854AB88AB8700DCCF87F60DBB
 magnet:?xt=urn:btih:988AC6E2B74F51F7C510A01D10FD980A0A553532
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +258,8 @@ magnet:?xt=urn:btih:988AC6E2B74F51F7C510A01D10FD980A0A553532
 ```bash
 magnet:?xt=urn:btih:79F3E058B7C2FE7456D87A01A99E7C06DAA1E29C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +287,8 @@ magnet:?xt=urn:btih:79F3E058B7C2FE7456D87A01A99E7C06DAA1E29C
 magnet:?xt=urn:btih:62CB1B3DE60756F6F6FD658659006751841CD9A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +312,8 @@ magnet:?xt=urn:btih:62CB1B3DE60756F6F6FD658659006751841CD9A3
 ```bash
 magnet:?xt=urn:btih:2F2159CEF85489BF0FC2349F8939063F366AE24A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +339,8 @@ magnet:?xt=urn:btih:2F2159CEF85489BF0FC2349F8939063F366AE24A
 magnet:?xt=urn:btih:134ADD6272AB65E049B35CF0686A57C8F0CE26D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +364,8 @@ magnet:?xt=urn:btih:134ADD6272AB65E049B35CF0686A57C8F0CE26D0
 ```bash
 magnet:?xt=urn:btih:2A57C704770AFE400654D1E0CA1A6A6BA0B75F63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +391,8 @@ magnet:?xt=urn:btih:2A57C704770AFE400654D1E0CA1A6A6BA0B75F63
 magnet:?xt=urn:btih:1A8D0CE93C5D58DF56637FFCF258C476017D18F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +416,8 @@ magnet:?xt=urn:btih:1A8D0CE93C5D58DF56637FFCF258C476017D18F2
 ```bash
 magnet:?xt=urn:btih:5C8FA0A38D198A54174EBCB5FCE35F720DE27B0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +443,8 @@ magnet:?xt=urn:btih:5C8FA0A38D198A54174EBCB5FCE35F720DE27B0D
 magnet:?xt=urn:btih:9ACE03D33E4D134A76885653BCA582C393FEAD21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +468,8 @@ magnet:?xt=urn:btih:9ACE03D33E4D134A76885653BCA582C393FEAD21
 ```bash
 magnet:?xt=urn:btih:8E8BD126789E637882FAF1F89B5B9160A3F400E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +495,8 @@ magnet:?xt=urn:btih:8E8BD126789E637882FAF1F89B5B9160A3F400E2
 magnet:?xt=urn:btih:0C5B07EEB39425EDFA0EABDC99560C99FDB5A343
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +520,8 @@ magnet:?xt=urn:btih:0C5B07EEB39425EDFA0EABDC99560C99FDB5A343
 ```bash
 magnet:?xt=urn:btih:FBEB4665194E0D1B412FD9E5ECBE2480E752A7E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +549,8 @@ magnet:?xt=urn:btih:FBEB4665194E0D1B412FD9E5ECBE2480E752A7E7
 magnet:?xt=urn:btih:5E6DABBFA99D3F0B68BD7E808212BA06BCEF907E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +574,8 @@ magnet:?xt=urn:btih:5E6DABBFA99D3F0B68BD7E808212BA06BCEF907E
 ```bash
 magnet:?xt=urn:btih:16B4334132E1C5DBFC2FDF70415480B10D97CF2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +601,8 @@ magnet:?xt=urn:btih:16B4334132E1C5DBFC2FDF70415480B10D97CF2B
 magnet:?xt=urn:btih:08177EB53872CFEA59C91B6B88A1549A9F416D7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +627,8 @@ magnet:?xt=urn:btih:08177EB53872CFEA59C91B6B88A1549A9F416D7B
 magnet:?xt=urn:btih:AC05CBCC6066477D32CFBBAC18A6C6DC6D461783
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +652,8 @@ magnet:?xt=urn:btih:AC05CBCC6066477D32CFBBAC18A6C6DC6D461783
 ```bash
 magnet:?xt=urn:btih:0E49107195F71CCA8551AE78BD36AF855FED0579
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,30 +680,7 @@ magnet:?xt=urn:btih:0E49107195F71CCA8551AE78BD36AF855FED0579
 magnet:?xt=urn:btih:A89C4CBEDEE531DAD5B10054F3C152EE9B350A8C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 862227   (928130) от 24.01.2015
-
-Ицхак Кальдерон Адизес | Размышления о личном развитии (2015) [EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Эта книга - сборник размышлений Ицхака Адизеса. Именно размышлений, как подчеркивает автор, а не научных изысканий. И его главная цель - дать читателям пищу для размышлений, вступить с ними в мысленную беседу. Ему уже удалось сделать это с тысячами посетителей его популярного блога, в котором размещались статьи, вошедшие в эту книгу.
-На сложные и важные жизненные вопросы Ицхак Адизес дает мудрые ответы простым языком. Адизес делится тем, что его тревожит, и обсуждает с читателем выводы, к которым приходит на (   Читать дальше...   )Жанр: ПсихологияФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEA323E11AD15F784E8EAF398694A8333B16E45D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ To-Do Calendar Planner / Задачи, Календарь, Органайзер 
 magnet:?xt=urn:btih:F643674D0131E1192388ECA32435CE5FC6FF3005
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:F643674D0131E1192388ECA32435CE5FC6FF3005
 ```bash
 magnet:?xt=urn:btih:E09387735FF3FC63A72B5E021478FCACB5450164
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:E09387735FF3FC63A72B5E021478FCACB5450164
 magnet:?xt=urn:btih:06D8139C9E7B8F735BA4BC9CC0B8848E74AB91A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Viewbox - весьма недурственное приложение для с
 ```bash
 magnet:?xt=urn:btih:7DBE927E4D02C2983CE69126EE8950ED6148C7EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Fennec File Manager — проводник для управления файл�
 ```bash
 magnet:?xt=urn:btih:1C9958BFA1860F44FD82E5A8102C8E25880BADC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:1C9958BFA1860F44FD82E5A8102C8E25880BADC6
 magnet:?xt=urn:btih:BC6F442A29849D794BA5DE335FD2AE11C8FCC2E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Android Помощник является одним из самых мощны�
 magnet:?xt=urn:btih:022C4F7B4EF26B0F001DAD122E8633ED973771C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Glextor AppManager 5.32.0.507 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9526D1CBECD1D6D2EFA799B7A9F583B12468BBCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ Speakometer - Английское Произношение и Акцент v2.1
 magnet:?xt=urn:btih:89743B25884540B836A97462F22848847E51B17A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ iReal Pro - Нотная Тетрадь & Минусовки v2021.8 [Ru]
 magnet:?xt=urn:btih:A8642C1CE9E263CBA23E17005E44ECFD0CC823D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ SanDisk Memory Zone 4.1.16 [Ru]
 ```bash
 magnet:?xt=urn:btih:B526B932307893FB266B33F81CE071F1835F28A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:B526B932307893FB266B33F81CE071F1835F28A8
 magnet:?xt=urn:btih:D4E096C3C443DD487D26BDDEC26A913DB75FB8AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ HTC Camera 8.50.876780 [Ru]
 ```bash
 magnet:?xt=urn:btih:691F2A8295F48E3F09FF70A44F3ABD4D6ECE0CD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:691F2A8295F48E3F09FF70A44F3ABD4D6ECE0CD7
 magnet:?xt=urn:btih:24C8A3BA3CA05EF98DB0BBC3A8659E36A4D8B3E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ GPS to SMS v3.4.15 [Ru/Multi] - отправка GPS-координат по С�
 ```bash
 magnet:?xt=urn:btih:76693CD849F135983EE4771E6DFD0FAB1A95F6E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ PicsArt - Photo Studio v18.1.1 Mod by Alexey070315 [Ru/En]
 magnet:?xt=urn:btih:6B7B32980F7F90638A685D16A37F965366E2EA1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:6B7B32980F7F90638A685D16A37F965366E2EA1A
 ```bash
 magnet:?xt=urn:btih:167C5EDE6F0BEAE91541A990612A0B58F69DC2AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ VOCHI — это видеоредактор нового поколения. З�
 magnet:?xt=urn:btih:C7B30D5CE2706A4AA19D1CADBF1399299070A003
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ Photo Editor by Aviary Premium 4.5.5 [Rus] - Фоторедактор
 magnet:?xt=urn:btih:B91B2A46D7703865C13ED6A4268083F164D9E2FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:B91B2A46D7703865C13ED6A4268083F164D9E2FF
 ```bash
 magnet:?xt=urn:btih:15586B0B9A80B642A75ECBEB1C0878B1E436E787
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:15586B0B9A80B642A75ECBEB1C0878B1E436E787
 magnet:?xt=urn:btih:C96BE58E7557A69A683F8F5AA47595C26CC18D0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:C96BE58E7557A69A683F8F5AA47595C26CC18D0B
 ```bash
 magnet:?xt=urn:btih:1F2651F37EEB89511AC683213B9D431A1839ED60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ Manual FX Camera 1.0.3 [Ru]
 magnet:?xt=urn:btih:71418585012259AEAB0932F827BC054DB9B8F127
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ Root Essentials Premium 2.4.5 [Ru]
 magnet:?xt=urn:btih:7180B8DCDA7DC2A8E0066B3205C36569DF9A90A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ Bass Guitar Tutor Pro - приложение, с помощью которого
 ```bash
 magnet:?xt=urn:btih:998691CE5FC0F2F6EC4E9AC1AB745AB538DF972E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:998691CE5FC0F2F6EC4E9AC1AB745AB538DF972E
 ```bash
 magnet:?xt=urn:btih:E10307814B98C06A60DFCF20DC8ADE337B22F443
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

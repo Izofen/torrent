@@ -22,6 +22,8 @@ Crystal Palace - Still There (2022) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
 magnet:?xt=urn:btih:F5AF10C7003F1BB252AA9C87FFB09EB3B7D13D65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -55,6 +57,8 @@ VA - Happy Hippie Hits (2009) 5 CD Box Set [MP3|320 kbps]<Rock>
 magnet:?xt=urn:btih:FE9181F0AE606251A88817A97ED35E72BB42551F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,6 +85,8 @@ Roger Waters - Amused To Death (1992) Remastered /2015/ [MP3|320 кб/с]<Progre
 ```bash
 magnet:?xt=urn:btih:ABF4D0C5E113BC3A6981C1A72ADD32700B8D5576
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +115,8 @@ Radio Birds - Contemporary American Slang (2015) [MP3|320 кб/с]<Southern Rock
 magnet:?xt=urn:btih:F17DB5B9F35C657F4130CD50B325E55331FEDCFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -136,6 +144,8 @@ Cold In May - Written in Cold (2022) [MP3|320 Kbps] <Gothic Rock, Synth Rock, Fu
 magnet:?xt=urn:btih:0DA82F5C9496A1089999B5D6A4867B9F11A8673F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -159,6 +169,8 @@ Dire Straits - 123 Albums: 6 Studio, 4 Live, 21 Compilations, 4 EP's & Singles, 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -186,6 +198,8 @@ Piper - Can't Wait (1977) Reissue, 1990, A&M Records [MP3|320 Kbps] <Power Pop, 
 ```bash
 magnet:?xt=urn:btih:F435D1EFC8917DBB1A49DF01D247620147098068
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +234,8 @@ Level 42 - 11 альбомов (1981-2006) [MP3|320 kbps] <Pop-Rock, Funk>
 magnet:?xt=urn:btih:E34E1856FA3727E42CEFACE093D61479DC06B2C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +262,8 @@ Joe Satriani - Shockwave Supernova (2015) [MP3|320 кб/с]<Instrumental Rock, P
 ```bash
 magnet:?xt=urn:btih:24B48F12A510FDC97F0B8086A5F4157004AED365
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -280,6 +298,8 @@ Ringo Starr - Better Than Best (2011) [MP3|320 kbps]<Beat, Pop Rock>
 magnet:?xt=urn:btih:ABC55542B00997BC0ECD3E2BB0CD0F89C8940C40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +326,8 @@ Elvis Presley, Jerry Lee Lewis Et Carl Perkins - Les Genies Du Rock - The Millio
 ```bash
 magnet:?xt=urn:btih:A13A12B42A8362F64D1032311F961375FDB08F16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +356,8 @@ Bill Haley - Les Genies du Rock - Rock Around The Clock (1993) [MP3|320 кб/с]
 magnet:?xt=urn:btih:4E6CDCEC0E6E9D914F45928749C6572A1084F2BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +384,8 @@ Julie C Myers - Rock On - Fearless Journey (2015) [MP3|320 кб/с]<Blues Rock, 
 ```bash
 magnet:?xt=urn:btih:50D2187B1AA305F12C603ACA0E0B22B1C6AA61F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +414,8 @@ Eagles - Their Greatest Hits Volumes 1 & 2 (2017) (2CD) [MP3|320 Kbps] <Rock, Bl
 magnet:?xt=urn:btih:2E062CC04CF1828644C4A49020BCF738E7E179D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +442,8 @@ Donovan -  Les Genies du Rock - Catch The Wind (1995) [MP3|320 кб/с]<Folk Roc
 ```bash
 magnet:?xt=urn:btih:90E8B275AF246A7802699A578CC764F45B9518C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +472,8 @@ Bobby Fuller Four - Les Genies Du Rock - I Fought The Law (1994) [MP3|320 кб/�
 magnet:?xt=urn:btih:277AF2C3F8C49AEB11C270365EFC495C8AB4658E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +500,8 @@ Omega - Time Robber & Skyrover (2022) 2CD, Compilation [MP3|320 Kbps] <Progressi
 ```bash
 magnet:?xt=urn:btih:1B74A0294ECAF1F32B5407E186E5564C3B6FD0FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +536,8 @@ Y & T - Facemelter (2010) [MP3|320 kbps]<Hard & Heavy>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +565,8 @@ The Pineapple Thief - Your Wilderness (2016) [MP3|320 Kbps] <Progressive Rock>
 magnet:?xt=urn:btih:3D113A0C9A371E06CEF9B1F1DC6DF3398FB179C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +590,8 @@ Katzenjammer Kabarett - 3 альбома (2005-2009) + Katzenjammer 1 альбо
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +619,8 @@ Disciple - Дискография (1995-2014) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:CE322D1CB1AD84D1A0100E50AAC4CFC8D0C5C606
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +655,8 @@ The Souldiers - These Times (2011) [MP3|320 kbps]<Rock>
 magnet:?xt=urn:btih:0E5A114702E0A7A643753FECE586A27A163F9503
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +690,8 @@ Panzer Princess - Get Off My Back (2011) [MP3|320 kbps]<Sleaze Glam>
 magnet:?xt=urn:btih:C25E4AC4B619292A9CF88176B0FBFE711F1B4541
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,6 +718,8 @@ Iron Butterfly - Light And Heavy (The Best Of) (1993) [MP3|320 Kbps] <Hard Rock,
 ```bash
 magnet:?xt=urn:btih:7DD8980A43530F0B635209CEB830AD13510B2D89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -700,6 +748,8 @@ Santana - Les Genies du Rock - Santana Jam (1995) [MP3|320 кб/с]<Rock>
 magnet:?xt=urn:btih:05A68CC8756C9DF775635AB1F8394E69D553791E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -726,6 +776,8 @@ Status Quo - Les Genies du Rock - Pictures of Matchstick Men (1995) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:E3A094F7AA68A2946C4429F6106E0D354CDD6704
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

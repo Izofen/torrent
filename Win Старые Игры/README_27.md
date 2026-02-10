@@ -19,6 +19,8 @@ Battle Chess реализует идею живых шахмат в средне
 magnet:?xt=urn:btih:DC621BB62092290145D5D88B5934619BF42BDA4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Sudden Strike: Resource War / Sudden Strike: Битва за ресурсы (200
 ```bash
 magnet:?xt=urn:btih:89660EB35E81C7F37B2479F53C4AE44C89F96C58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Star Wars: Galactic Battlegrounds Saga (2002) [Ru/Multi] (1.10/dlc) License GOG
 magnet:?xt=urn:btih:0BCCCD9775C96776159455C8B0AEBA49F61441E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Giants: Citizen Kabuto (2000) [Multi] (1.400) License GOG
 ```bash
 magnet:?xt=urn:btih:ECB0885DE18EA52B651B17AED951671DE9FC7B07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Desperados: Wanted Dead or Alive / Desperados: Взять живым или ме
 magnet:?xt=urn:btih:05275B76EC9C0948F0EBD050EBA2FB430D82DC89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Strategic Command: European Theatre – пошаговая военная стр
 ```bash
 magnet:?xt=urn:btih:24417BB60598C98FCA17CB381FAACE8759E8DA35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ MTX Mototrax (2004) [Ru/En] (1.0) Rip NeoGame
 magnet:?xt=urn:btih:489052EE7FB27435E727E5C2992AAAFEBA60F8B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Ghost Master / Повелитель ужаса (2003) [Ru/En] (1.0/upd1) License
 ```bash
 magnet:?xt=urn:btih:62D0E0BCDC95E3A4F49A668CCC5444C6A004E62A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Krush Kill ‘N Destroy 2: Krossfire (1998) [En] (1.0) License GOG
 magnet:?xt=urn:btih:BFD22352DA57A34EF223E855A625591397B3600F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Star Wars Jedi Knight: Jedi Academy - Escape Yavin IV (2005) [Ru/En] (1.01/1.0) 
 ```bash
 magnet:?xt=urn:btih:01054CC65C2A4F989FA180912D8D17D8F1E75451
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Cosmo's Cosmic Adventure (1992) [En] (1.20) License GOG
 magnet:?xt=urn:btih:59C151339DAECF402A200B8C8CB61AA625C93A1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ S.T.A.L.K.E.R.: Clear Sky / S.T.A.L.K.E.R.: Чистое небо (2008) [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:CD23EA2A0EAE59F2582646FDCA2E91A44FDB3E39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ True Crime Dilogy (2004-2006) [Ru/En] Repack R.G. Механики
 magnet:?xt=urn:btih:A0B673E4A6904B37F16AAF9AEC335AF913DE7831
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Myst IV: Revelation (2004) [Multi] (1.03hf2) License GOG
 ```bash
 magnet:?xt=urn:btih:1F588D27DADC0C3B078DA0A8C0112140E8A53487
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Mortyr: Dilogy / Мортир: Дилогия (1999-2004) [Ru/En] (1.0/1.352) Li
 magnet:?xt=urn:btih:8A2960F2019029BF03ECE8A2163913332EF110C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Worms Armageddon / Worms: Армагеддон (1999) [Ru/Multi] (3.8.1) Repack 
 ```bash
 magnet:?xt=urn:btih:143D158352DBE33AD592AD589F9C5B40051DC3CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Fragile Allegiance (1997) [En] (1.0) License GOG
 magnet:?xt=urn:btih:946DBFE5961F41CFDF0B9C81EA703FC2EFD40968
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Rex Nebular and the Cosmic Gender Bender (1992) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:12B9C3206E6A181E60C4AD75A878638A8641C0B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ Aven Colony (2017) [Ru/Multi] (1.0) Repack Covfefe
 magnet:?xt=urn:btih:FC5D68DE696B3B6AABF55B6B954E7E4D3AECF2F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Hostile Waters: Antaeus Rising / Враждебные воды: Территор
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ London Racer: Destruction Madness / London Racer: Тотальное разру�
 magnet:?xt=urn:btih:363E7AD3501B0D22D9E2CB9D766D3525E488D102
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Avernum – настоящая подземная тюрьма с сотнями
 ```bash
 magnet:?xt=urn:btih:443F5698A6591273088B371E647C159DDF297A2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Battlestrike: The Siege / 1944: Огненные рубежи (2005) [Ru] (1.0) 
 magnet:?xt=urn:btih:AD57755F13E2FB83CBA068885201AEDE474C5C21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ Soldiers: Heroes of World War II / В тылу врага (2004) [Ru/En] (1.28.3
 magnet:?xt=urn:btih:D6F23819D1E17525F65D4E18F410B2981687BB31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +643,8 @@ Sacrifice / Жертвоприношение (2000) [Ru/En] (15.08.2016) License
 ```bash
 magnet:?xt=urn:btih:05EDE49559BCAC186F6D35072F3C518A20974326
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +671,8 @@ Painkiller (2004) [Ru/En] (1.64/dlc) Repack Mentaz [Black Edition: PainKiller + 
 ```bash
 magnet:?xt=urn:btih:943D98E267E15A23CD52DEAB68A3E5B54D7920B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

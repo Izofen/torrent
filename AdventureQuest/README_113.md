@@ -1,27 +1,3 @@
-###  Публикация: 1840726   (1047481) от 06.12.2025
-
-The Art of Reflection (2025) [Ru/Multi] (2465) Repack Let'sРlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047481.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Art of Reflection - это игра-головоломка от первого лица, в которой исследуются зеркала, словно вы можете пройти прямо через них. В игре где нет прямых инструкций, а прогресс достигается путем изучения мира. Что произойдет, если вы пересечете зеркало и прогуляетесь по зеркальной стране? А что, если объекты или даже гравитация по другую сторону будут отличаться? (   Читать дальше...   )Тип издания: RepackРазработчик: JustTomcukЖанр: ИндиЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46A2D64B34DB948945A725B56939D093F51FEA8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840885   (1047632) от 07.12.2025
 
 SILENT HILL f (2025) [Ru/Multi] (1.2.381918 build 20599177/dlc) Repack HardwareMining
@@ -42,6 +18,8 @@ SILENT HILL f (2025) [Ru/Multi] (1.2.381918 build 20599177/dlc) Repack HardwareM
 ```bash
 magnet:?xt=urn:btih:96819EDDD3A6A1CF2F9797F38D5635C918E9ED6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Sanatorium: A Mental Asylum Simulator (2025) [Ru/Multi] (0.99) Repack FitGirl
 magnet:?xt=urn:btih:C84547A88749C6CF5F0531D9E2A05F37C78D1F0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Hoomanz! - это милое и забавное стелс-приключени
 ```bash
 magnet:?xt=urn:btih:BE78055E5DFF544B2CC0B76A2858CF54CA9215DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.12.0/dlc) Repack Hardw
 magnet:?xt=urn:btih:ED7B64E8632B1B274AA66C558E731EA8525F41CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Cybernetic Fault – сатирическая приключенческая и�
 ```bash
 magnet:?xt=urn:btih:E598882DC4BF903D0907C3C938CB2C9A73F7167D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Grand Theft Auto V (5) Enhanced (2025) [Ru/Multi] (1.0.889.22) Repack HardwareMi
 magnet:?xt=urn:btih:D5926B127C1649B4F5922B59C13376A57DBC7F23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ The Berlin Apartment (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:239A44704CBD2E646FE465BE8B6D3CCCA198DCEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Cubic Odyssey (2025) [Ru/Multi] (1.2.0.2) License GOG
 magnet:?xt=urn:btih:626D3AB1D8D8CD6DE6D3B473DDC98479CB5D1CF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ Simon the Sorcerer Origins (2025) [Ru/Multi] (1.0.1.10242025.58358/dlc) Repack F
 ```bash
 magnet:?xt=urn:btih:0357E804A925C3C0AB542B38A90EB8395EEC1137
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ SUFFOCATE (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 magnet:?xt=urn:btih:C5B6904E04C5ED8B0765F6E3AFE56A0C9D163447
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ Escape the Backrooms (2022) [Ru/Multi] (1.2510) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:CF60E38C88FD11E4C537E93A224C995207D8653F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ Dead Reset (2025) [Ru/Multi] (build 19945272) Repack seleZen
 magnet:?xt=urn:btih:F01BCCC9F514AD7DF77885534305A93D909B2796
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ Altheia: The Wrath of Aferi (2025) [Ru/Multi] (1.005) License GOG
 ```bash
 magnet:?xt=urn:btih:BC636FE42F8D72F8E2C2E882D61298B7EF1D003C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ Gravewood High - игра в жанре стелс-хоррора с разру�
 magnet:?xt=urn:btih:3532A272171F3B289CA11334F1CF90A358AFF018
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ Dead In Bermuda (2015) [Ru/Multi] (1.1c v2) License GOG
 ```bash
 magnet:?xt=urn:btih:A790AD6672000877E889C3AB954B1F50B838318A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ The Artifact Protocol (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 magnet:?xt=urn:btih:FBAFF32C9C54CF346B594C0F2039AFF5F3758FFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ Altheia: The Wrath of Aferi (2025) [Ru/Multi] (1.005) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:567A4A4A0D921B77F525C8EA1BB3DBE3FFF2E172
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ Misty Judgment начинается с пробуждения главного �
 magnet:?xt=urn:btih:109915004255A2E3A8EBA14000D4DBEB8EA98B4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ Mourningwood Lodge / 欢迎来到林葬屋 (2025) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:E1D07178653C47D291066E31EFDEFD1752669ADD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ Fragile Reflection (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:01C04874CA3750D13711A3A001B31B12E887E90A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ Uncanny Tales - эпизодический хоррор, где самое ст�
 ```bash
 magnet:?xt=urn:btih:75720674CF1C084075AEF137022C4FAFE66EB082
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ Panicore бросает вас в кошмар в роли городских и
 magnet:?xt=urn:btih:D0734C74EAA6B7342BE208ABCC59D00E4C1007FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ Panicore бросает вас в кошмар в роли городских и
 ```bash
 magnet:?xt=urn:btih:4DD2005D26611B03C5B5E52D925F8DE5F6E8F804
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +617,8 @@ Heroes of Loot 2 - продолжение пиксельного рогалик�
 magnet:?xt=urn:btih:C3CD6DF6AABBCE2511C8B3B25B7498948BE0AF7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +642,34 @@ Rue Valley (2025) [Ru/Multi] (1.1.0v11/dlc) Repack Necros [Digital Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:17F80EB144760A739C0A5F223EDA93205FE5A316
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844270   (1049833) от 25.12.2025
+
+JEF (2020) [En] (1.1c) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пробудитесь как инопланетянин. Как вы сюда попали? Без понятия! Как вас зовут? Никто не знает! Исследуйте странные колонии цивилизации, поклоняющейся спа-культуре, чтобы найти дорогу домой. Раскройте космические шутки, подружитесь с цифровыми призраками и откройте для себя, что значит «ты» во вселенной, построенной на абсурде. В JEF вы попадаете в центр космического (   Читать дальше...   )Тип издания: LicenseРазработчик: Jeremy CouillardЖанр: Экшены, Приключенческие игры, Казуальные игры, Инди, СимуляторыЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09D0B4D5E3C8156F237272D3AF71891229D8FD5B
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

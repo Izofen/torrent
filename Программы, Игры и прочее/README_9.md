@@ -20,6 +20,8 @@ Gmail, Yahoo, Hotmail, FastMail, Apple, GMX, Outlook, AOL или Exchange - Aqua
 magnet:?xt=urn:btih:242ADBAD86ACF5C9E839DE8B8C8B7F26C0A9DDDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ File Manager Plus / Файловый менеджер + v3.5.9 Mod by Balatan [R
 ```bash
 magnet:?xt=urn:btih:F25E6A200929E0EE61C301EB06281011336418A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Face Swap - AI Photo Editor v1.4.1 Mod by MixRoot [Multi]
 magnet:?xt=urn:btih:7C8BE85B12068F7309921B721B3B4B84DAE06861
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Adguard Pro 4.10.35 Mod by FreeApkexe [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:FD9BA10903447E7254DFC31C0685D09EC1342632
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Fitness Online - фитнес приложение, с помощью котор
 magnet:?xt=urn:btih:9F6881C43D4583C2BF1166E262B4E2198E33E01B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Motivation - Каждый день v4.79.2 Mod by PieMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:97D22D022A3930BD7360B7D4AB8A1CA38B32A5E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:97D22D022A3930BD7360B7D4AB8A1CA38B32A5E9
 magnet:?xt=urn:btih:2DD91C27BB1D15D3CD7EA53D21B164309F153643
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ TestMaker / Создатель запоминания v10.5.1 Mod by PieMods [Ru
 ```bash
 magnet:?xt=urn:btih:CA1519D83B8C34FAFF8936A15EA054D940059CFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ Darts Club – это многопользовательская игра в д�
 magnet:?xt=urn:btih:169ADA6F524667F125D4817C90ECC03F39B6CEA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Squid - рукописные заметки v4.4.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2ED73128326FC1331ED310BC2DC56FECBA838A07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:2ED73128326FC1331ED310BC2DC56FECBA838A07
 magnet:?xt=urn:btih:B288E8CFAC5E892192976DEF993124333E33288C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ TickTick — это ваш личный мощный инструмент про
 ```bash
 magnet:?xt=urn:btih:2D28F1B5FA3D728891FEA32D089F5C12D94AB444
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ Blaze - Виртуальный Камин 4K v1.8.0 Mod by SurvivalHorror [Ru/Mu
 magnet:?xt=urn:btih:979D59AF02D4422EE5C241C5FCC60103C0EBE220
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ EPIK - весьма и весьма функциональный фоторед�
 ```bash
 magnet:?xt=urn:btih:56EEABE87D371698E45F8090E5ED1FDB0D635B41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ WPS Office - очень полезное, офисное приложение д
 magnet:?xt=urn:btih:C9F14518B9E8A35AF5894A21CE0DB3DEFEF41941
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ CCleaner - один из самых известных и популярных �
 magnet:?xt=urn:btih:A41712FC5AC73E9537BE9891B59133B63F2A4AF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ WeNote: заметки блокнот планер v6.32 Mod by Balatan [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:F4A594A1435D5CBAB5EAE74454981B411EAD3991
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ Garage: Bad Dream Adventure v1.1.263 [En]
 magnet:?xt=urn:btih:B747AF3ACC372E575C6C6248118F43204DEEAA2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Through the Darkest of Times v1.0.18 [Ru]
 magnet:?xt=urn:btih:C1F747ECDC9858009E1D25F78767E9A7B0F81581
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ Sunset Hills v1.0.22 [En]
 ```bash
 magnet:?xt=urn:btih:6ED32FE3D8156140D608BE54A79C9E9126C08514
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ Brave People WW2 Point & click / Храбрые люди vBuild 265 [Ru]
 magnet:?xt=urn:btih:4BFF935AD080A3118360F9ED962F29AE3318D601
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ Voodoo Detective v0.0.33 [En]
 ```bash
 magnet:?xt=urn:btih:37E288F2C15201BAD67D8A8BAE577E35960CC822
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ TMNT: Shredder's Revenge v1.2.15 [En]
 magnet:?xt=urn:btih:E356290A375052719DF268E8A1C946BB695FE236
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ Eastern Exorcist — потрясающая 2D-ролевая игра с бок
 ```bash
 magnet:?xt=urn:btih:E82932B22F62AD493EA1B4F5F8EC0B3086FD81CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ Way of the Hunter Wild America v1.0.1 [Ru]
 magnet:?xt=urn:btih:27A6CC9F051A91B5F5D50EB86A3612C32592AADB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ GIF Maker - GIF Editor - видеоредактор, что создан для 
 ```bash
 magnet:?xt=urn:btih:A488F88B936CC6ACCDB95A4F39089B5A87168B49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

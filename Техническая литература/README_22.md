@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:9C76613FF87FC845C075A0856AD837912C7F442A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:9C76613FF87FC845C075A0856AD837912C7F442A
 ```bash
 magnet:?xt=urn:btih:C8B7B4E4BB521253E419759B6E0C7E8C4F5D6C5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:C8B7B4E4BB521253E419759B6E0C7E8C4F5D6C5A
 magnet:?xt=urn:btih:0986A10874AF27DC232A1AB3EE3C67FF2EE41981
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:0986A10874AF27DC232A1AB3EE3C67FF2EE41981
 ```bash
 magnet:?xt=urn:btih:8C57A75BFD9C88FB1CD6E719EE29CAEF825289CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:8C57A75BFD9C88FB1CD6E719EE29CAEF825289CF
 magnet:?xt=urn:btih:11D9FC5C4C695468E01C3A89857A2D2C34964305
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:11D9FC5C4C695468E01C3A89857A2D2C34964305
 ```bash
 magnet:?xt=urn:btih:52FDF6E20200A1111F8BAF05C842D61B4B5CE872
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:52FDF6E20200A1111F8BAF05C842D61B4B5CE872
 magnet:?xt=urn:btih:FC9436EFF998AAE4502A44E79B1CB94FE2489582
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:FC9436EFF998AAE4502A44E79B1CB94FE2489582
 ```bash
 magnet:?xt=urn:btih:C12E026C9FA1802785DF1488B59E6790DE2A4657
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:C12E026C9FA1802785DF1488B59E6790DE2A4657
 magnet:?xt=urn:btih:34D91C75CD998D81A71EA39A86A0F87DB7A93B21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:34D91C75CD998D81A71EA39A86A0F87DB7A93B21
 ```bash
 magnet:?xt=urn:btih:A0367B3B86D108DA7C9CE0B037231683F0F4736A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:A0367B3B86D108DA7C9CE0B037231683F0F4736A
 magnet:?xt=urn:btih:AC442BBE5CB6B735568599B27A5EB3AE96047F64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Ugly's Electrical References, 2020 Edition - это золотой станда�
 magnet:?xt=urn:btih:2B6AB253FC9E091E6A3F257EC585ED19F62D4FCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Terrell Croft и др. | American Electricians' Handbook, Sixteenth Edition (201
 ```bash
 magnet:?xt=urn:btih:2B9B3E67F6CE2D23EE5411BF3699CE74D261EB68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Trevor Linsley | Basic Electrical Installation Work 9th Edition (2018) [PDF] [EN
 magnet:?xt=urn:btih:01939B71D25592A7E51FF2002FBE9666D7A0D297
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:01939B71D25592A7E51FF2002FBE9666D7A0D297
 ```bash
 magnet:?xt=urn:btih:8121DDCA14F387E2C521D99545BCA67B0EC719B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:8121DDCA14F387E2C521D99545BCA67B0EC719B2
 magnet:?xt=urn:btih:F26A2D0D4554538CC47C9883217CEF02FA4881CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:F26A2D0D4554538CC47C9883217CEF02FA4881CA
 magnet:?xt=urn:btih:AC4A215DE58A079335AFE7928A762C517ED9C29E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:AC4A215DE58A079335AFE7928A762C517ED9C29E
 ```bash
 magnet:?xt=urn:btih:FC3D8F7D8D10FE80D6E903B71BD62E14650AAD9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ Trevor Linsley | Basic Electrical Installation Work, 6th Edition (2011) [PDF] [E
 magnet:?xt=urn:btih:1150BBEE2BC8534577A630B2F115F3C2FBF362DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:1150BBEE2BC8534577A630B2F115F3C2FBF362DA
 ```bash
 magnet:?xt=urn:btih:A7BFA9FB5B2F2A629A2BE35FB0B7C2E253CB0703
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:A7BFA9FB5B2F2A629A2BE35FB0B7C2E253CB0703
 magnet:?xt=urn:btih:21DAB6C4B9EE271B96B4FABBBB42CA6D98E1AB94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:21DAB6C4B9EE271B96B4FABBBB42CA6D98E1AB94
 ```bash
 magnet:?xt=urn:btih:A5794E40C24CFA534C0BEB27D3FD26412A6A28A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:A5794E40C24CFA534C0BEB27D3FD26412A6A28A9
 ```bash
 magnet:?xt=urn:btih:C8E173B500D1A0075E1A44F00846E54BD7342B58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ DDiX LABS | Спутниковое ТВ, Интернет - это просто!
 magnet:?xt=urn:btih:AB3EE951C41307F6BE9FA41AAD83F83C543D68F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:AB3EE951C41307F6BE9FA41AAD83F83C543D68F2
 magnet:?xt=urn:btih:A37A9ABF30D06CCCE4A90E98241EA0C52A9A46BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:A37A9ABF30D06CCCE4A90E98241EA0C52A9A46BA
 ```bash
 magnet:?xt=urn:btih:94BDA2F84BCA39443C96656260D495F9C9490576
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ AMV (Anime Music Video) - фэнский музыкальный видеокли
 magnet:?xt=urn:btih:E79C9B9EB655487D29B0A9BEDACAD231C2E889DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:E79C9B9EB655487D29B0A9BEDACAD231C2E889DA
 ```bash
 magnet:?xt=urn:btih:58FF80D6DB510A3EA41A72F9FCE7D9E66BE45289
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:58FF80D6DB510A3EA41A72F9FCE7D9E66BE45289
 magnet:?xt=urn:btih:4AFFC60C097584C3C1B13C6449B5848A694FA1A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Call Of Duty Black Ops 2 (2012) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [En
 ```bash
 magnet:?xt=urn:btih:07972B9935F8D5171E1B822549F0CD2618E7DB21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:07972B9935F8D5171E1B822549F0CD2618E7DB21
 magnet:?xt=urn:btih:64CAC93F008FC1D9C5A3ACC55ED9C61725539BF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ After Effects — это ведущая в отрасли программа д�
 ```bash
 magnet:?xt=urn:btih:D239A715BAE7339825500F491FAA377D2825D45B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:D239A715BAE7339825500F491FAA377D2825D45B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Call of the Wild: The Angler (2022) [Ru/Multi] (2.0/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:94C4A087F48D6290842A37C7212D0BC21E001453
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:94C4A087F48D6290842A37C7212D0BC21E001453
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:94C4A087F48D6290842A37C7212D0BC21E001453
 ```bash
 magnet:?xt=urn:btih:2437EAE11853D85CAB49C3E7682DDCDE7824C430
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Document Reader & Viewer 2024 v1.2.3 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:5B7BB2BC2B4A98D79F0DB83ADDCB42D38063E5E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Knock on the Coffin Lid - ролевая игра с элементами стр
 magnet:?xt=urn:btih:123352ABE9BFF159C955048FC7D76D0F66D46251
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:123352ABE9BFF159C955048FC7D76D0F66D46251
 ```bash
 magnet:?xt=urn:btih:96C7F786315293B8CF95AD2F1E1C2754F0549493
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:96C7F786315293B8CF95AD2F1E1C2754F0549493
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Red Dead Redemption - компьютерная игра в жанре action-adv
 ```bash
 magnet:?xt=urn:btih:42A4057527DFE68B85A196825A09B35A884509D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ Adobe Illustrator — это принятое в качестве отрасле
 magnet:?xt=urn:btih:359A507636169C8779EF8FD245474B982FEFDC7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:FD20FA204AF526D20F17B04AD218F716C3A983A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ Red Dead Redemption - компьютерная игра в жанре action-adv
 magnet:?xt=urn:btih:404121CE54D29FCB3BDD635A78826DFE3D9258DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Cypress Ridge - 28 сентября 1999 г. Вернитесь к началу 
 magnet:?xt=urn:btih:F029A8399192FD5CC08829C4196AD653884D5026
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:F029A8399192FD5CC08829C4196AD653884D5026
 ```bash
 magnet:?xt=urn:btih:3991F31E6ECB13FBDD6EC80E14177F4897132D90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:3991F31E6ECB13FBDD6EC80E14177F4897132D90
 magnet:?xt=urn:btih:54ABC6704D925113A25ED3699E9183AF601DA5E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ QownNotes – менеджер заметок, позволяющий четко
 magnet:?xt=urn:btih:E70A8A3C73868C7D16C803055D2182174A94C114
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:E70A8A3C73868C7D16C803055D2182174A94C114
 ```bash
 magnet:?xt=urn:btih:2407DF2152950E485EDFF07EEAB23C4DA1800BC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ VA - Rock Blues Mania (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:12C1A961095AD4321098B47A94A8E1B6CB9BB440
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ VA - Top 10 Outstanding Rock Songs, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:F9AB4D1021FF6D87C30652F01401C996A8BBFB50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:F9AB4D1021FF6D87C30652F01401C996A8BBFB50
 ```bash
 magnet:?xt=urn:btih:9D2542148FC0C3FEB38B11A331783D398DE365F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

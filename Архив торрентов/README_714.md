@@ -28,6 +28,8 @@ VA - 538 Dance Smash 2011 vol.1 (2011) [MP3|320 кб/с]<Dance>
 magnet:?xt=urn:btih:4C88FDCB9DB163D2B6A87A3E1C896001186F5652
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ magnet:?xt=urn:btih:4C88FDCB9DB163D2B6A87A3E1C896001186F5652
 ```bash
 magnet:?xt=urn:btih:06AAC4F9A50BA7358362FBB0DBFA3933673B08FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -78,6 +82,8 @@ magnet:?xt=urn:btih:06AAC4F9A50BA7358362FBB0DBFA3933673B08FA
 magnet:?xt=urn:btih:49CF4EB73B2D19407B6E89686FB5FD3FB04A427C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ Media Player Classic HomeCinema – удобный во всех планах м
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ Media Player Classic HomeCinema – удобный во всех планах м
 magnet:?xt=urn:btih:34B72FE1C89769E35D107E6E997F5F9CF211EBD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ JUST CEO — деловое издание. Журнал содержит сам
 ```bash
 magnet:?xt=urn:btih:A482DD1A3ED5D2D161D56F8DDC9B954C81132BB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -182,6 +194,8 @@ Adam Nitti - Liquid Blue (1995) [FLAC|Lossless]<Fusion>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +226,8 @@ Adam Nitti - Liquid Blue (1995) [FLAC|Lossless]<Fusion>
 ```bash
 magnet:?xt=urn:btih:28F372C60A4424407F824BB52054033411EF3723
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +262,8 @@ Somaton - Future Memories (1997) [FLAC|Lossless]<Goa Trance>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +287,8 @@ Sumatra PDF - легкий просмотрщик PDF, DjVu, XPS, CBR, CBZ -фа
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +323,8 @@ VA - Вулкан Удовольствий (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:B6DA1F40F11A0DA673D21065E65C5A01318BED8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +357,8 @@ UCS - No Rules (2012) [MP3|~205 кб/с (V1)]<Psychedelic / Full On>
 ```bash
 magnet:?xt=urn:btih:597178F996F0DA7DD7A60446E675DB56537C87F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +393,8 @@ VA - Fokuz: 50 (2012) [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:C6E6014F6263B3B9A4AA1DEAB862E17D5B9E124E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +427,8 @@ VA - The Sixtieth (Mixed by Marco Bailey) (2010) [MP3|320 кб/с]<Techno, Tech 
 ```bash
 magnet:?xt=urn:btih:6DF4CB5CBE3F22BE658A626525B8D8EEA7C5571B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +463,8 @@ VA - White Night vol.1 (2012) [MP3|320 кб/с]<Electro-House, House>
 magnet:?xt=urn:btih:B4EFE1EE3434B69245629FED9DC985AA662A500B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +498,8 @@ VA - Best of Club 2012 (01.03.2012) [MP3|320 кб/с]<Progressive House, House>
 magnet:?xt=urn:btih:4E433909D87916BC813A1AB19036876FAE18FDB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +523,8 @@ magnet:?xt=urn:btih:4E433909D87916BC813A1AB19036876FAE18FDB6
 ```bash
 magnet:?xt=urn:btih:AC0A0E136DC337FC9E5FB7DB7505BFCDBC3EF9E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +552,8 @@ magnet:?xt=urn:btih:AC0A0E136DC337FC9E5FB7DB7505BFCDBC3EF9E6
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +577,8 @@ Thunderbird - простая и удобная бесплатная програ
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +613,8 @@ Mayra Andrade - Navega (2006) [FLAC|Lossless]<Folk, World & Country, Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +639,8 @@ Mayra Andrade - Navega (2006) [FLAC|Lossless]<Folk, World & Country, Jazz>
 magnet:?xt=urn:btih:97F0B0865C817488A6E2BB254000718D8A5A508C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +664,8 @@ FAR Manager - мощнейший известный всем консольны�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -656,6 +700,8 @@ Black Light Discipline - 2 albums (2008, 2012) [MP3|320 кб/с]<Industrial Meta
 magnet:?xt=urn:btih:40CE1C38EB2CB189CBDBFA854FD0C8A881BD902F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -688,6 +734,8 @@ VA - Лучшая 100ка - Хитовый взрыв 4 50/50 (2012) [MP3|256 к
 magnet:?xt=urn:btih:135F3AB700D1DC857AABB5BB02CCE00BA1C14881
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -712,6 +760,8 @@ VueScan - программа для работы со сканерами. Мож
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -735,6 +785,8 @@ Freemake Video Converter – это бесплатное универсальн�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

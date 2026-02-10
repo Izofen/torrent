@@ -20,6 +20,8 @@ Udemy, Laura Hitchcock | Work Smart With Nuke! Episode 1: Channels & Roto (2021)
 magnet:?xt=urn:btih:19F5667BA4B1DE0A0E0FA10222989F1CA5F7B09A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ OTUS, Владимир Кунаев | DevOps 1С. Автоматизация п�
 ```bash
 magnet:?xt=urn:btih:A859DF913F71B80896A81FB3E2A902859A23B8F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Skillshare, Paulo Dichone | Unlock AI: Master Prompt Engineering with ChatGPT (2
 magnet:?xt=urn:btih:19476825EE4DBEA51E0533FD63DB9D2D0897E424
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Solid Factory, Антон Ильин | SolidWorks. Продвинутый кур
 ```bash
 magnet:?xt=urn:btih:40305324BEECE3BA9516F4CBF8E3AC476257E879
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:40305324BEECE3BA9516F4CBF8E3AC476257E879
 magnet:?xt=urn:btih:F49E18CBD7094CE081B59951364A9D8183ED9358
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ Software-testing.ru, Ольга Назина | Регулярные выраже
 magnet:?xt=urn:btih:D11CE9F7114F5D566DB93DE68F3B222CD8829B1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ Udemy, Akhil Vydyula | The Complete 2023 SQL Bootcamp : Go from Zero to Hero (20
 ```bash
 magnet:?xt=urn:btih:10130F8AE7A65EB29A0FD6AE752DCDC2021CEAFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ Domestika, Liya | Manga Illustration with Procreate (2023) WEB-DL [DE / RU Sub]
 ```bash
 magnet:?xt=urn:btih:DEFC5E405A5540749B5CD2716943BE42A0FAE407
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ magnet:?xt=urn:btih:DEFC5E405A5540749B5CD2716943BE42A0FAE407
 magnet:?xt=urn:btih:07F47AF0A6CBD253477292236A45A347E8A0B824
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ CGcircuit, Florian Girardot | Mastering Nuke Vol 1 – 10 (2021) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:65FF263EFAA2E36F8212042E346CC688DF9716F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -281,6 +301,8 @@ magnet:?xt=urn:btih:65FF263EFAA2E36F8212042E346CC688DF9716F3
 magnet:?xt=urn:btih:30CDD4833C6DAA9CD44199EAAED8BEBA83F04B60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +327,8 @@ Skillshare, Iva Mikles | Drawing Colorful Room Scene in Procreate: Practice Pers
 ```bash
 magnet:?xt=urn:btih:8CA8BE88EF469849730F72A5F67E308345F15A70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +357,8 @@ magnet:?xt=urn:btih:8CA8BE88EF469849730F72A5F67E308345F15A70
 magnet:?xt=urn:btih:5A3572AEE79C1E86A411C1BA453F0F70DEA0837C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +386,8 @@ Kalachevaschool, Анна Чайникова | Рассвет акрила. Та
 magnet:?xt=urn:btih:746AF29E772517ADCC8C5149C87BD12FF5C00A0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +411,8 @@ Udemy, Андрей Бегишев | Большой курс Чжун Юань �
 ```bash
 magnet:?xt=urn:btih:6B05FCCA00A55A1C7980D5227C6EA68A75AA075E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +440,8 @@ magnet:?xt=urn:btih:6B05FCCA00A55A1C7980D5227C6EA68A75AA075E
 magnet:?xt=urn:btih:645C5E36E4B4E37E3A1C2F31C43A9AF1DD0FC0E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +465,8 @@ magnet:?xt=urn:btih:645C5E36E4B4E37E3A1C2F31C43A9AF1DD0FC0E7
 ```bash
 magnet:?xt=urn:btih:7A9364A7A769E272F954E509E6A52B09614A8AC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +494,8 @@ magnet:?xt=urn:btih:7A9364A7A769E272F954E509E6A52B09614A8AC6
 magnet:?xt=urn:btih:6307B223F3F2DFD00215499F1D74E751B753F829
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +521,8 @@ magnet:?xt=urn:btih:6307B223F3F2DFD00215499F1D74E751B753F829
 ```bash
 magnet:?xt=urn:btih:C096D746F8F2707923EF0663C067492604D396FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +551,8 @@ BodyCoach, Александр Бурлаков, Анна Берекетова и
 magnet:?xt=urn:btih:5B22020549AD21D1B27C444B2F6668470157BE5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +580,8 @@ magnet:?xt=urn:btih:5B22020549AD21D1B27C444B2F6668470157BE5C
 magnet:?xt=urn:btih:AA6C3D8C4CD9BFA2C0C923E08F4377EA5E6C5504
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +607,8 @@ magnet:?xt=urn:btih:AA6C3D8C4CD9BFA2C0C923E08F4377EA5E6C5504
 magnet:?xt=urn:btih:0912C408AB8C87E097BBA76D2DC41CA2AD377E30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +633,8 @@ Domestika, Mina Barrio | Профессиональные селфи и виде
 ```bash
 magnet:?xt=urn:btih:3FB88CA65C19CD29DF9EBBA0A394B2355F798D1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +662,8 @@ Udemy, Gary Hiebner | Mastering Your Drums in Studio One (2023) WEB-DL [AD] [EN,
 magnet:?xt=urn:btih:34CB4DC19F068D407C3A5C84BBABC691F828935A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +687,8 @@ Mokosmed, Мария Моргунова | МАКРО-, МИКРО- И УЛЬТР
 ```bash
 magnet:?xt=urn:btih:4EF6C86F112A72837D140F11283A83123D61CA76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -666,6 +716,8 @@ Merion Academy, Олег Филиппов | Основы реляционных 
 ```bash
 magnet:?xt=urn:btih:421DDC37151B089546B0EEDF08A91B44E6A9DE9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

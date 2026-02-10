@@ -1,3 +1,38 @@
+###  Публикация: 528882   (568463) от 30.07.2012
+
+VA - Top-100 Зайцев.нет (28.07.2012) [MP3|126-320 кб/с]<Alternative, Chanson, Club, Dance, Disco, Pop, Rap, RnB, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexey Romeo & Nicky Romero vs. David Guetta - David Guetta - Camorra (mashup) (3:16)
+02. Rostislav Pirogov - Этим Летом (Keyk Group) (3:47)
+03. Нюша - Воспоминание (3:39)
+04. Flo Rida - Whistle (3:45)
+05. Michel Telo - Bara Bara Bere Bere (3:41)
+06. Тимати - Давай до свидания (7:29)
+07. Fly Project - Musica (Radio Edit) (3:44)
+08. Don Omar - Ella,Ella Feat Zion y Lennox
+09. Григорий Лепс - Самый лучший день
+10. DJ Feel & DJ Rich-Art - This Feeling (Club Radio Edit)(   Читать дальше...   )Жанр: Alternative, Chanson, Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 06:59:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEF4199A8876D9A6CE86FCC2E6899B291049F487
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152022   (568565) от 21.07.2017
 
 VA - Summer Pop Mania 50+50 (2017) [MP3|320 Kbps] <Pop, Dance>
@@ -21,6 +56,8 @@ VA - Summer Pop Mania 50+50 (2017) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:5FBA85D1C9F8B6663F6816636E46141B0DF0472D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +85,8 @@ VA - Дискотека 80-90 х По-Новому Зарубежный выпу
 ```bash
 magnet:?xt=urn:btih:49EAEA76B50D5511DE652589AD2419FC58B62700
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +121,8 @@ VA - Лучшая сотка горячих хитов (2012) [MP3|256 кб/с]<
 magnet:?xt=urn:btih:BA4FB0B433155F19DC99CD2A4395D6C725F66E66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +149,8 @@ VA - Light Jazz Classics (2016) [MP3|320 Kbps] <Vocal Jazz, Bossa Nova, Lounge>
 ```bash
 magnet:?xt=urn:btih:F7BDDAD6735E41566AF5059AF60250EBC003A147
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +185,8 @@ VA - Морские песни (2012) [MP3|320 кб/с]<Rock>
 magnet:?xt=urn:btih:D0A03AD3F63E52C592AF92CE7075EBAF4BAEBC02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +220,8 @@ VA - Русский Размер Удовольствия (2012) [MP3|320 кб/�
 magnet:?xt=urn:btih:7EDD94CFFA7C5D7451866A7C7668F679771AE597
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +248,8 @@ VA - Абсолютные Хиты Лета 7 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:F730D0ADC81A051D9F1208B8974B3CCA65A060E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +278,8 @@ VA - Шансон на лето. Часть 9 (2016) [MP3|256 Kbps] <Шансо�
 magnet:?xt=urn:btih:E86AD586BFA7CC55402E4473D61DB54724660DAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +306,8 @@ VA - Goa Genetics (2016) [MP3|320 Kbps] <Trance, Psy-Trance, Goa>
 ```bash
 magnet:?xt=urn:btih:0BCE20F57D4A0D21C2494D37935DFA6C0BEC54CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +336,8 @@ VA - World Of Music Getaway (2016) [MP3|320 Kbps] <Broken Beat, Nu-Jazz, Soulful
 magnet:?xt=urn:btih:E7DEBFEC36C51ACC864FD6EB8E27C1D1D2CDF832
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +364,8 @@ VA - Ibiza 2016 - Fiesta Loco (2016) [MP3|320 Kbps] <Funky, Club, Tech House>
 ```bash
 magnet:?xt=urn:btih:F4C39A59288A2CAA0EAB5CB6F486A0EF683EAA28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +394,8 @@ VA - Beatport Trance Pack (17.08.) (2016) [MP3|320 Kbps] <Trance, Progressive, M
 magnet:?xt=urn:btih:6F76C51978890880F88DA33D04906AF370528419
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +422,8 @@ VA - не Громкие новинки недели 16 (2019) [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:5A8A4DE46C35A07F7B95B590441C2E0BB51BD010
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +458,8 @@ VA - Танцевальная Жара 50/50 (2012) [MP3|256 кб/с]<Pop, Dance
 magnet:?xt=urn:btih:3329451EBE6067F258BDE271CD9159D87FC68217
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +493,8 @@ CD 1 Продолжительность 01:11:37
 magnet:?xt=urn:btih:AFB77CCACAE7BFB88D3847998C71BBC30DE71B11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +521,8 @@ VA - 100 Самых Красивых Песен (2015) [MP3|320 кб/с]<Pop, R&
 ```bash
 magnet:?xt=urn:btih:2AC9E6D1CAE81A3F0141D31F9B41D3D737DD741A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +551,8 @@ VA - Top 100 Бешеный Клубняк в Машину 50x50 (2015) [MP3|256
 magnet:?xt=urn:btih:B8EECCF3D982604B304743605559510CC29E579D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +579,8 @@ VA - Хиты Забытых Дискотек (2015) [MP3|256 - 320 кб/с]<Pop
 ```bash
 magnet:?xt=urn:btih:0E5D3AFFA5F4E9EFDA783E5ABAC5FE59A27B27C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +609,8 @@ VA - 100 Золотых Танцевальных Хитов (2013) [MP3|256 - 32
 magnet:?xt=urn:btih:0062A9B66BF48FDEDC9CE1CD1D2FE620705129D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +637,8 @@ VA - Летние super новинки. Часть 3 (2015) [MP3|256 кб/с]<Po
 ```bash
 magnet:?xt=urn:btih:B98B1C9CA852A5EC1C12E41946162B11A0090264
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +667,8 @@ VA - House Progressive: Dance Everybody (2015) [MP3|320 кб/с]<Progressive Hou
 magnet:?xt=urn:btih:3B3ABF5EE6509BC7906662409F6B5866B4533ABA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +695,8 @@ VA - Chilly Side Up (2015) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
 ```bash
 magnet:?xt=urn:btih:DCDC3D380C0BBAB9C05C7C9407A3FA2F05027773
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +725,8 @@ Ace Of Base - All That She Wants (2019) 2 CD Compilation [MP3|320 Kbps] <Disco, 
 magnet:?xt=urn:btih:7A6D9AFB4368001E1CBC5AC3C5D526A60A82FD4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,6 +753,8 @@ VA - Power FM Hits 2017 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:DE72038F045188A150714EC9E6067AA347B4FD5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -700,29 +783,7 @@ DJ.Amure - Best Remixes (2017) [MP3|320 Kbps] <Dance, Disco>
 magnet:?xt=urn:btih:4522C624EED06DCA3FDA7E982BB7A42F9C8D6C4B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043570   (570640) от 17.08.2016
-
-VA - Rautalanka Paraati 1 - 4 (2003 - 2007) [MP3|224 - 320 Kbps] <Instrumental, Guitar, Rautalanka>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Instrumental, Guitar, RautalankaПродолжительность: 01:04:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF6AD4ED372AAF13010CEFCF8FAAB3065CF53ECE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

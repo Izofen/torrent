@@ -22,6 +22,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -55,6 +57,8 @@ The Future Sound Of London - Environments 4 (2012) [MP3|320 кб/с]< Ambient, I
 magnet:?xt=urn:btih:F70125C3E69BB3D67DB81CDA2052FAB647189A44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -78,6 +82,8 @@ magnet:?xt=urn:btih:F70125C3E69BB3D67DB81CDA2052FAB647189A44
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -106,6 +112,8 @@ magnet:?xt=urn:btih:F70125C3E69BB3D67DB81CDA2052FAB647189A44
 magnet:?xt=urn:btih:5325E2180F172937F7557DD1E2762B37FF37C669
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:5325E2180F172937F7557DD1E2762B37FF37C669
 magnet:?xt=urn:btih:2A1B0800673D288FA18CBC7FE4961FB4FFF24A1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ Sale Frenzy / Безумный шопинг (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:4823DFD8B9D4E8C54E111AFE23CB6594A169AD12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ magnet:?xt=urn:btih:4823DFD8B9D4E8C54E111AFE23CB6594A169AD12
 magnet:?xt=urn:btih:EDF4B334578DAA89B7D9451E46410B15B42D8BA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +218,8 @@ Bad Blood - это пост-апокалиптическая РПГ от Origin 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Keane - Strangeland (2012) [MP3|320 кб/с]<Pop-Rock, Piano Rock, Britpop>
 magnet:?xt=urn:btih:8FFAF0741BEF5B090B7A63B38AD9B2E27189C163
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +280,8 @@ magnet:?xt=urn:btih:8FFAF0741BEF5B090B7A63B38AD9B2E27189C163
 magnet:?xt=urn:btih:87E09E116D1B33418055C63D9C72B7BB92CDE7DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +305,8 @@ Scorched Earth (RePack) [En] 1991 | Pilotus
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +334,8 @@ Scorched Earth (RePack) [En] 1991 | Pilotus
 magnet:?xt=urn:btih:7F1B09B8EDF3C2D4F8E6907E4ACEA5E1341C48BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +361,8 @@ magnet:?xt=urn:btih:7F1B09B8EDF3C2D4F8E6907E4ACEA5E1341C48BD
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +390,8 @@ rchBang является проектом, разрабатываемым ArchBa
 magnet:?xt=urn:btih:60CEEA580F1499C21A3A1AE1C617BC5FB3D10998
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +415,8 @@ magnet:?xt=urn:btih:60CEEA580F1499C21A3A1AE1C617BC5FB3D10998
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +444,8 @@ magnet:?xt=urn:btih:60CEEA580F1499C21A3A1AE1C617BC5FB3D10998
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +469,8 @@ magnet:?xt=urn:btih:60CEEA580F1499C21A3A1AE1C617BC5FB3D10998
 ```bash
 magnet:?xt=urn:btih:35005838316EFCA18FAADCB0E5260D00B1E9EE89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +496,8 @@ magnet:?xt=urn:btih:35005838316EFCA18FAADCB0E5260D00B1E9EE89
 magnet:?xt=urn:btih:B543B346B7EC02715700CCD86B84C289DF7727A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +522,8 @@ magnet:?xt=urn:btih:B543B346B7EC02715700CCD86B84C289DF7727A5
 ```bash
 magnet:?xt=urn:btih:DBFA96D61DBF44D2C8D1AB355A73669088CF1D24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +558,8 @@ Deep Purple & Orchestra: Live at Montreux (2011) BDRip [720p]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +583,8 @@ Organic Loops - Rock Hip Hop Guitars And Bass [Wav|Rex][английский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +612,8 @@ Organic Loops - Rock Hip Hop Guitars And Bass [Wav|Rex][английский]
 ```bash
 magnet:?xt=urn:btih:65F34B096340FA4D09901AC7F65740C2F29FC1D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +648,8 @@ Club des Belugas - Forward (2012) [FLAC|Lossless]<Soul, Nu Jazz, Electro Swing, 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +680,8 @@ Club des Belugas - Forward (2012) [FLAC|Lossless]<Soul, Nu Jazz, Electro Swing, 
 magnet:?xt=urn:btih:9A68592F41413963F4D0E490E4F2792B78697726
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +708,8 @@ magnet:?xt=urn:btih:9A68592F41413963F4D0E490E4F2792B78697726
 magnet:?xt=urn:btih:9E49F28493C797898E53BAD0233D3DAC36D0ACF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -683,6 +733,8 @@ FastStone Capture - утилита для снятия скриншотов ра
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

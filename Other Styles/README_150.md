@@ -22,6 +22,8 @@ John Hermanson - Music for Sleep (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 magnet:?xt=urn:btih:C8BF03158A5037520E18CE51D23A2AC4DB8C0CE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ Johnny Cash - Out Among The Stars (2014) [FLAC|Lossless]<Country, Outlaw Country
 ```bash
 magnet:?xt=urn:btih:8C240AD84AD65943E078E676AEB0E577763AF4CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -88,6 +92,8 @@ Tierra Negra - 10 альбомов (1997-2012) [MP3|128-320 кб/с]<New flamenc
 magnet:?xt=urn:btih:92A10206DB2AD8F569D55CFFE6D487D77018DFCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +127,8 @@ Deserted Palace
 magnet:?xt=urn:btih:065C78A442595C2F8FDD8C7A23DD729F37A629F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +152,8 @@ magnet:?xt=urn:btih:065C78A442595C2F8FDD8C7A23DD729F37A629F9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +188,8 @@ Harry Belafonte - Calypso (1956) /2013 SACD/ [FLAC|Lossless]<Latin, Pop, Reggae,
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +223,8 @@ Moreza - Once Upon a Love (2004) [MP3|320 кб/с]<Instrumental, Flamenco, Latin
 magnet:?xt=urn:btih:E986F1B1E429E4373D12542578E21E3FFEE704B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +252,8 @@ magnet:?xt=urn:btih:E986F1B1E429E4373D12542578E21E3FFEE704B9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +288,8 @@ Anthony Ventura - Love Album (2013) [MP3|256 кб/с]<Instrumental>
 magnet:?xt=urn:btih:A5AE72AF1D2383F509169D4313EA8B33C4B1B1D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +323,8 @@ Steve Barakatt - The Best of Steve Barakatt (2004) [MP3|320 кб/с]<Instrumenta
 magnet:?xt=urn:btih:2F4B567BD567FD6B668BA3645330EAB74775DA1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +348,8 @@ Astor Piazzolla - The History of Tango (5CD) (2006) [APE|Lossless]<Tango>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +384,8 @@ Various - Полонезы И Вальсы Русских Композиторо
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +417,8 @@ Maya Fiennes - 3 альбома (2006-2010) [MP3|128-320 кб/с]<New age, Medit
 ```bash
 magnet:?xt=urn:btih:6BEA6140FC6B5E48AD937A00FED31CC53C18CC93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +453,8 @@ Kevin Kern - Imagination's Light (2005) [FLAC|Lossless]<New Age, Piano>
 magnet:?xt=urn:btih:5BAD48064CF8FCDB3DC7F7BCFB747E4990DCC064
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +488,8 @@ magnet:?xt=urn:btih:5BAD48064CF8FCDB3DC7F7BCFB747E4990DCC064
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +516,8 @@ VA - The Best of Instrumental Music (2004) Compilation [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:9B31042B9D4421B70FFADBA128FD2A5B35651C27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +546,8 @@ Isgaard - Whiteout (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <New-Age, Сrosso
 magnet:?xt=urn:btih:10A2A12073CF45008A0D13901609D0B9AD10B9D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +574,8 @@ magnet:?xt=urn:btih:10A2A12073CF45008A0D13901609D0B9AD10B9D7
 ```bash
 magnet:?xt=urn:btih:54987459F48F25C33AE0CF649CBDE9B4506034F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +610,8 @@ Koji Kondo - The Legend of Zelda Ocarina of Time - Hyrule Symphony (1999) [FLAC|
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +638,8 @@ Mick Gordon - DOOM Eternal (Original Game Soundtrack) (2020) [FLAC 2.0|48/24|tra
 ```bash
 magnet:?xt=urn:btih:E4A2B25F2D9BEF4B8559464E2D6A8DFED6AF8299
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +674,8 @@ CD1 (00:55:43):
 magnet:?xt=urn:btih:881F7C7B7CE0A5FE533D6EAE250A127083BE9B50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +709,8 @@ John Murphy - 28 недель спустя / 28 Weeks Later (2007) [MP3|320 kbps
 magnet:?xt=urn:btih:6AC516EB5E5E5C6C9B37353A5A53DB0A3F9ADFCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,6 +738,8 @@ Mick Gordon - DOOM Eternal (Original Game Soundtrack) (2020) [MP3|320 кб/с]<S
 magnet:?xt=urn:btih:443960AF57B54091BD1A49E733305DB1EDABB31C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -717,6 +763,8 @@ Phurpa (2001-2009) - 6 albums (Discography) [MP3|128-320 kbps] <Tibetian Ritual 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -751,6 +799,8 @@ Henry Mancini - The Pink Panther (1963) [MP3|320 kbps]<Jazz/Soundtrack>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -777,6 +827,8 @@ Mick Gordon - DOOM Eternal (Original Game Soundtrack) (2020) [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:CC05FB30D2C1B966AF5E7FF1041DB1E062F0C987
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

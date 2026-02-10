@@ -28,6 +28,8 @@ Saltillo - Monocyte (2012) [FLAC|Lossless]<Downtempo, Trip-Hop, Noise>
 magnet:?xt=urn:btih:CB21D06C847B423E48DE2FDA82A99FBAA34C22D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ VA - Art Of More (Mixed By Ismix) - 2013 [MP3|320 кб/с]<Tech House, Deep Hous
 ```bash
 magnet:?xt=urn:btih:3E219742099EE6373E4CC82752C2539E3E279224
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ AstroPilot - Thirty Three (2017) [MP3|320 Kbps] <Psychedelic, Progressive Trance
 magnet:?xt=urn:btih:B4D7852E61EEB5A45C9BE0B27C9EE0AEE5B99416
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ VA - Synth Love Affair Vol. 1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave, S
 ```bash
 magnet:?xt=urn:btih:D020A1FB0E050235DD7BDCB819B69E3A2A82E2CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +144,8 @@ VA - Tiesto Club Life Vol.5 China (2017) [MP3|320 Kbps] <House, Big Room, Electr
 magnet:?xt=urn:btih:0DE1C05A21186A1A74AF3128FC07A045D170A916
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +172,8 @@ VA - I Love Chill Vol.2 (Finest Ambient Lounge And Chillout Music) (2017) [MP3|3
 ```bash
 magnet:?xt=urn:btih:065C5B0DDF96D245628D621D6618BFBE579438BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +202,8 @@ Yotto - North (EP) - 2017 [MP3|320 Kbps] <Tech House, Progressive>
 magnet:?xt=urn:btih:FCA024E8ABBD958F8A8E2F0625C20DD1C9A98413
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +230,8 @@ Fad Gadget - сценический псевдоним Фрэнка Тови (а
 ```bash
 magnet:?xt=urn:btih:207D663CCA97CB6D79114DB513026E445B03CA8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +260,8 @@ VA - Macarize Autumn Essentials (2017) [MP3|320 Kbps] <Progressive Trance>
 magnet:?xt=urn:btih:59B4A9BDA926D55A240F81EBB35C09AE503BBBD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +288,8 @@ VA - Markus Schulz - Global DJ Broadcast (Watch the World Deluxe Special) (2017)
 ```bash
 magnet:?xt=urn:btih:D75413340B784B80DAF35BCE6C4631ED4958D502
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +324,8 @@ VA - New York Disco House Grooves Vol.1: Manhattan Night Club Selection (2012) [
 magnet:?xt=urn:btih:170BE223845835CB71CE20CDB6D6D92FFC72628E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +352,8 @@ Diary of Dreams - Hell in Eden (2017) [MP3|320 Kbps] <Darkwave, Gothic Rock>
 ```bash
 magnet:?xt=urn:btih:799CAD760AAD1264FBD0035DA60BAE41FD12DE23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +382,8 @@ VA - Ethno Chill Out Vol.1(2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 magnet:?xt=urn:btih:C836627BB8C78631EB17C09171F3EF664B84EC1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +410,8 @@ VA - Autumn Chill: Ecliptic (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chi
 ```bash
 magnet:?xt=urn:btih:5D8D06B523E0BCAD8F97C75183559906E4126185
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +440,8 @@ VA - Cafe Arabia (2017) [MP3|320 Kbps] <Lo-Fi, Ethnic, Downtempo>
 magnet:?xt=urn:btih:330988749185D4D98235B0446340618648E5715C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +468,8 @@ VA - Aly & Fila - Future Sound Of Egypt 516 (2017) [MP3|320 Kbps] <Trance,Uplift
 ```bash
 magnet:?xt=urn:btih:E92F62A07A58C4F1CB4A4D82E30A836208C989E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +498,8 @@ VA - Amsterdam Coffeeshop Chillout Vol.12 (2017) [MP3|320 Kbps] <Downtempo, Chil
 magnet:?xt=urn:btih:789CC08369747F9941C2E9D419442AB025F1D985
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +527,8 @@ VA - Embassy Of Lounge Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:EBE6EC50D8EA616B5019B373C4BE0CA8FDE85266
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +555,8 @@ VA - Autumn Chill: Ecliptic (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 ```bash
 magnet:?xt=urn:btih:1519C7542C6FB5163EF19263505DAF780F545A37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +590,8 @@ VA - Halloween Nights (2012) [MP3|320 кб/с]<Progressive House>
 ```bash
 magnet:?xt=urn:btih:C418E338B44248E0092814744884AAF041B313BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +628,8 @@ Art of Noise — британская группа новой волны, обр
 magnet:?xt=urn:btih:D3680560B7CBD230A69A94A6A4F0EFC2ECE6A50E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +656,8 @@ VA - BIPPP : French Synth-Wave 1979/85 (2006) CD [MP3|320 Kbps] <Electronic, New
 ```bash
 magnet:?xt=urn:btih:2AC8F60E05E46BED3A785343056FFA01911534F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +686,8 @@ VA - Ahmed Romel - Orchestrance 212 (2017) [MP3|256 Kbps] <Trance,Uplifting Tran
 magnet:?xt=urn:btih:55ADB83BA1C902F4963A7B68AD672DD1C7A1F0D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +715,8 @@ DJ VoJo - Aloha (2017) [MP3|320 Kbps] <Tropical House>
 magnet:?xt=urn:btih:C7988E463FAEA99D5AA8F5A390505A99324ECCB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +743,8 @@ VA - Sunset Lovers Lounge – Chill Vibes Del Mar (2017) [MP3|320 Kbps] <Baleari
 ```bash
 magnet:?xt=urn:btih:3D28B1250701E96DC6350E1C78B93E12E5378531
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -728,6 +778,8 @@ VA - Best of: Ibiza Beach House 2007-2012 (2012) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:C80802DC839B5E81B8A6F7002305B254E3F83CAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

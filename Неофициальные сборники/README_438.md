@@ -1,3 +1,32 @@
+###  Публикация: 1132052   (702742) от 08.05.2017
+
+VA - Beatport Top 100 Downloads April (2017) [MP3|320 Kbps] <House, Deep House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702742.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. CamelPhat - Hangin Out With Charlie (Original Mix) 6:22
+002. Tiesto, Sevenn - BOOM (Extended Mix) 3:54
+003. Dennis Cruz - Mad (Original Mix) 6:35
+004. Pastaboys & Osunlade - Deep Musique (Rampa Remix) 8:01(   Читать дальше...   )Жанр: House, Deep House, Electro HouseПродолжительность: 10:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5FCE78B8F44377D3FB74E45F0C493F194F487E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132017   (702743) от 08.05.2017
 
 VA - Весна От Зайцев Нет (2017) [MP3|192-320 Kbps] <Pop>
@@ -21,6 +50,8 @@ VA - Весна От Зайцев Нет (2017) [MP3|192-320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:A00A608B863D2F64BD0559C1410491093DE04147
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Beatport Top 100 House April (2017) [MP3|320 Kbps] <House, Progressive Hous
 magnet:?xt=urn:btih:3867D83C6C2A2C5EC8BC6C0329B3FA627A724EF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Russian Disco Compilation (2017) [MP3|320 Kbps] <Pop, Disco>
 ```bash
 magnet:?xt=urn:btih:0835749078CEDCF5FBC7E75B26042FC8AF7C5813
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Музыкальный подарок на радио Europa Plus. Сбор
 magnet:?xt=urn:btih:946BD2042BEBF57E6D2766DAD5F394389684DF0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Music For Sports Games Vol 2 (2017) [MP3|256-320 Kbps] <Club, Dance, Pop>
 ```bash
 magnet:?xt=urn:btih:7259D5BBCEB0C36D31BC519CA5451A642B676CEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Record Super Chart #485 (2017) [MP3|320 Kbps] <House, Club, Dance>
 magnet:?xt=urn:btih:BD6BAB2780E0072B5C299EB86981DE731B2FF0EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Dancefloor Sweetest Anthems (2017) [MP3|320 Kbps] <Twerk, Reggaeton, G Hous
 ```bash
 magnet:?xt=urn:btih:5BAD725B444E9492CF3B5F7C469A3C9D79CBC9D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Русский шансон на любимой волне (2017) [MP3|256 
 magnet:?xt=urn:btih:CC1BB77224BB874EEB11DF03D30F4A3BEA0CEC30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Весенний хит-парад Шансона. Часть № 7 (2017) 
 ```bash
 magnet:?xt=urn:btih:6AFDBCB5F44D265C1DD6DA01F0B6F01EB215A7DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - Beatport Top 100 Trance April (2017) [MP3|320 Kbps] <Trance, Progressive Tr
 magnet:?xt=urn:btih:80D50BD6586E0CB8FC6DD6E3F2C2ED3505D1D0C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - Горячая весенняя танцплощадка выпуск № 2
 ```bash
 magnet:?xt=urn:btih:34B3F8D754871A699AB754215CDB7BAFB27BECFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - Empire Records - Space Disco (2017) [MP3|320 Kbps] <Nu-Disco>
 magnet:?xt=urn:btih:FCD35492D250E8BEDC8EC695FE0E9C477B04CF65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ VA - Ham!d Production April (2017) [MP3|192-320 Kbps] <Pop, House, Trance, Dance
 ```bash
 magnet:?xt=urn:btih:38B89D718673A676FD4C49E826ACF2300519B651
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ VA - Music News vol.169 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:AA23E3CB1EE28D2AAF4384B1EA8F9B40DB02C662
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +456,8 @@ MyTones - Ringtone Tributes to ACDC - 15 Fully Pre-Edited Ringtones - Perfect fo
 ```bash
 magnet:?xt=urn:btih:ED8F7574991DBF14B163395CB9C3B13F999A290A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +488,8 @@ VA - The Official UK Top 40 Singles Chart (03-05-2015) [MP3|320 кб/с]<Pop, Da
 magnet:?xt=urn:btih:6895A73912B02191C44347AABC18530867BCE337
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +516,8 @@ VA - Зайцев нет. Летний топ (2016) [MP3|256-320 кб/с] <Pop>
 ```bash
 magnet:?xt=urn:btih:9AD29E5AF43FAA8F4FE94114D3819A43FF02E68A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +546,8 @@ VA - Хитовый свежачок. Сборник 50/50 (2016) [MP3|256 кб/
 magnet:?xt=urn:btih:3BFE00448CA9B7777BA2D1CAD028AC32699E1B7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +574,8 @@ VA - Дэнс 90-х (2018) [MP3|320 Kbps] <Eurodance, Dance, Pop>
 ```bash
 magnet:?xt=urn:btih:2A4DDEF9250F74E481176455FFA77C12A80DF4A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +604,8 @@ VA - Megahits Sommer 2016 (2016) [MP3|320 кб/с] <Pop>
 magnet:?xt=urn:btih:0986243DEB9857DE78DE3F0527C6DFF85E344E76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +632,8 @@ VA - Instrumental Chill Sound (2016) [MP3|320 кб/с] <Instrumental, Downtempo,
 ```bash
 magnet:?xt=urn:btih:3559FE6051B390BBDACB9C05F5AC69FB016F5A0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +662,8 @@ VA - Молодежная тусовка. Летнее настроение (201
 magnet:?xt=urn:btih:A5C4D8015C608E25088BF452C53361783E417C0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +690,8 @@ VA - Trip to Ibiza 2014 - Soulful Deep-House. Volume 1: by Day (2016) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:FA3C12ECCC00AAE7B231A1FEE627C1877F40D055
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -648,6 +723,8 @@ Hits of My Soul - сборник электронной и инструмент�
 magnet:?xt=urn:btih:366F1F9EF7F7BB3DE9583322B4DF9A46455DADDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -675,38 +752,7 @@ VA - Память Прошлого Дня (2018) [MP3|320 Kbps] <Metall, Hard Ro
 magnet:?xt=urn:btih:1831835C59DCFF326A86A83561621CDC3C12618E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 331349   (704288) от 02.05.2011
-
-VA - Record Super Chart № 187 (2011) [MP3|320 kbps]<House, Trance, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Snoop Dogg Vs. David Guetta - Wet (David Guetta Extended Mix)
-02. Armin Van Buuren Feat Christian Burns - This Light Between Us (Armin Van Buuren's Great Strings Mix)
-03. Tim Berg - Seek Bromance (Avicii's Vocal Extended Mix)
-04. Tiesto & Hardwell - Zero 76 (Original Mix)
-05. Laurent Wery Featuring Swiftkid - Hey Hey Hey (Extended Club Mix)
-06. Tony Igy - Astronomia (Original Mix)
-07. Nirvana - Smells Like Teen Spirits (DJ's From Mars Remix)
-08. Avicii - Malo (Alex Gaudino & Jason Rooney Remix)
-09. Armin Van Buuren Feat. Laura V - Drowning (Avici Remix)
-10. Far East Movement Ft. The Cataracs & Dev - Like A G6 (Chew Fu Remix)(   Читать дальше...   )Жанр: House, Trance, DanceПродолжительность: 03:00:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E026C0FA18BCFF21E9EE1EB385184D38E7C29880
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

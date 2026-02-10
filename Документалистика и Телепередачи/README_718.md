@@ -1,3 +1,29 @@
+###  Публикация: 972206   (980212) от 08.01.2016
+
+Ленинградская ретроспектива. Новый 1957 год (1991) SATRip (1 серия из 15) [H.264] [hand made colored]
+
+>>Документалистика и Телепередачи
+>>Кинолетопись Страны Советской
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980212.jpg" />
+</div>
+
+
+###  Подробнее
+
+В первой серии можно увидеть:  "польскую студенку" Эдиту Пьеху, встречу нового 1957 года, рождение трех близнецов, передачу финнами Ленинграду "ленинского" паровоза и многое другое.Телекомпания: РоссияЖанр: ДокументальныйРежиссер: Александр СокуровПродолжительность: 00:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB612DE96558B2C49665C364C28917DF6CD54303
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973228   (980215) от 08.01.2016
 
 Тайная миссия Сергея Вронского (2007) DVB
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:1670BB7C426187D8A57AE3264FA276AE98057FF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:1670BB7C426187D8A57AE3264FA276AE98057FF9
 ```bash
 magnet:?xt=urn:btih:37B9C0BD048FE91392611900E24337E00E077F94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:37B9C0BD048FE91392611900E24337E00E077F94
 magnet:?xt=urn:btih:94EAA88026A59D7E153AEA73409FEC5CC37FA4D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:94EAA88026A59D7E153AEA73409FEC5CC37FA4D1
 ```bash
 magnet:?xt=urn:btih:8DEA8813F2A26674F4EEAD29D32D09C27B28E319
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:8DEA8813F2A26674F4EEAD29D32D09C27B28E319
 magnet:?xt=urn:btih:34FF0868684870A63462070C6FE10E0BDAC42986
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:34FF0868684870A63462070C6FE10E0BDAC42986
 ```bash
 magnet:?xt=urn:btih:5CD802279C4E04332396F9A9A6AAAC9A2566A717
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:5CD802279C4E04332396F9A9A6AAAC9A2566A717
 magnet:?xt=urn:btih:07D70AE31F94AA6BD2620B92C8191666E443D29C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:07D70AE31F94AA6BD2620B92C8191666E443D29C
 magnet:?xt=urn:btih:F4C2299EC2D292C4E28743A98247E5C32E29E105
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:F4C2299EC2D292C4E28743A98247E5C32E29E105
 ```bash
 magnet:?xt=urn:btih:E5740C340094C5343F7304AEBCCF2BF3B56E3B4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:E5740C340094C5343F7304AEBCCF2BF3B56E3B4E
 magnet:?xt=urn:btih:997F58B2FC23F85E598BBEE96B6B464E16FD51F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:997F58B2FC23F85E598BBEE96B6B464E16FD51F3
 ```bash
 magnet:?xt=urn:btih:0FD6D152C7313581857792E8EEA821357BB09D87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:0FD6D152C7313581857792E8EEA821357BB09D87
 magnet:?xt=urn:btih:3F1D0E8C6694D17D277517EAF42A0E30B2D3F4B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:3F1D0E8C6694D17D277517EAF42A0E30B2D3F4B5
 ```bash
 magnet:?xt=urn:btih:38AA2114F7B41CAE5F87F44DEF1692FA27BDC102
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:38AA2114F7B41CAE5F87F44DEF1692FA27BDC102
 magnet:?xt=urn:btih:F753E66E3614A42B84973DC5C700315AE906BDB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:F753E66E3614A42B84973DC5C700315AE906BDB7
 ```bash
 magnet:?xt=urn:btih:0ED1ED781B4B28544650BA397978295C9B73E30A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:0ED1ED781B4B28544650BA397978295C9B73E30A
 magnet:?xt=urn:btih:B186828DCF639E7BB2551AC84393D78572EB5B59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:B186828DCF639E7BB2551AC84393D78572EB5B59
 ```bash
 magnet:?xt=urn:btih:5147863CF20FC379A04D6F286F42AE0BDBEAF382
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:5147863CF20FC379A04D6F286F42AE0BDBEAF382
 magnet:?xt=urn:btih:B7015DE8935213AE8F815A59ACB3EAA00F4127E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:B7015DE8935213AE8F815A59ACB3EAA00F4127E0
 ```bash
 magnet:?xt=urn:btih:2615CFF34056D3109800D9AB019B6E11D52D411E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:2615CFF34056D3109800D9AB019B6E11D52D411E
 magnet:?xt=urn:btih:37E4ECEEC877CB5C7F4D2890D3BCD375B3D78246
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:37E4ECEEC877CB5C7F4D2890D3BCD375B3D78246
 ```bash
 magnet:?xt=urn:btih:BCC617FFFDB98FA3E3C5C28C8415254705B133F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:BCC617FFFDB98FA3E3C5C28C8415254705B133F1
 magnet:?xt=urn:btih:C2A6C4A99233F49CAD3E4A796FB09C6F26CCD638
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +620,8 @@ magnet:?xt=urn:btih:C2A6C4A99233F49CAD3E4A796FB09C6F26CCD638
 ```bash
 magnet:?xt=urn:btih:5071655D852528951919C51B00C7B36B508D0E60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:5071655D852528951919C51B00C7B36B508D0E60
 magnet:?xt=urn:btih:738C537C1F70B9DCF81F6880310EB1E802B21557
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,29 +674,7 @@ magnet:?xt=urn:btih:738C537C1F70B9DCF81F6880310EB1E802B21557
 magnet:?xt=urn:btih:50857C7C1F17F2E75CDF394334CF9376C211815F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949867   (981363) от 06.01.2016
-
-Без комплексов / Skin To The Max (2011) HDTV [H.264/1080i-LQ] (Сезон 1, серии: 1, 3-7 из 12, Сезон 2, серии 1-4 из ?) [обновляемая]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный сериал НВО о секс-клубах. Увлекательное путешествие в мир эротических фантазий, где нет запретных желаний, а любой каприз может исполниться.Телекомпания: США, Stick Figure Productions, HBOЖанр: Документальный, для взрослыхПеревод: Многоголосый закадровый, профессиональныйПродолжительность: ~ 00:25:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:965B97C69C6ECE3D45382E2CCB66300FAF58348C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

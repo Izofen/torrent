@@ -1,3 +1,29 @@
+###  Публикация: 1229582   (624436) от 07.06.2018
+
+Диктор Советского Союза (2018) DVB [H.264/1080i-LQ]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_624436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Их имена знала вся страна. Народная любовь к ним была как к особому отделу космонавтов. Они являлись образцом вкуса, манер, поведения и правильной речи. Эти люди создавали телевидение, были его голосом и лицом. Более того, то, что ими создавалось, востребовано и сейчас. Своими воспоминаниями делятся знаменитые дикторы Советского Союза: Игорь Кириллов, Анна Шатилова, (   Читать дальше...   )Телекомпания: Россия / ВГТРК, Творческая мастерская "Студия-А"Жанр: Документальный, Тележурналистика, БиографияСубтитры: отсутствуютПродолжительность: 00:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:596A6FA6ACE42BA08AFECC916BBB01BD6EA08C68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035777   (624487) от 18.07.2016
 
 Покорители Сибири: Дорога на костях / Beyond Siberia: Riding the Road of Bones (2015) HDTV [H.264/1080i] (серии 1-2 из 2)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:6197844DC7A67E420F21B2015F9EF672E8BA6C6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:6197844DC7A67E420F21B2015F9EF672E8BA6C6A
 magnet:?xt=urn:btih:E3E11F82185B5D11BDEB13256529799E4EE371D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:E3E11F82185B5D11BDEB13256529799E4EE371D2
 ```bash
 magnet:?xt=urn:btih:A5564D6FCAF78CEE612B1C4AA6E8E861DDD54016
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:A5564D6FCAF78CEE612B1C4AA6E8E861DDD54016
 magnet:?xt=urn:btih:B1355DBC34D4A2C1397A2AF19B8240C0C3D200CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:B1355DBC34D4A2C1397A2AF19B8240C0C3D200CB
 ```bash
 magnet:?xt=urn:btih:587FD808BB11BC3EFEEDAA9164E0A20915BB6AF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:587FD808BB11BC3EFEEDAA9164E0A20915BB6AF1
 magnet:?xt=urn:btih:4BDB992BADE6FE47DC0E3011106D693D96BFD02E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:4BDB992BADE6FE47DC0E3011106D693D96BFD02E
 ```bash
 magnet:?xt=urn:btih:B694BF000DA17301F71D7EBBF80ECDB61F697DFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:B694BF000DA17301F71D7EBBF80ECDB61F697DFE
 magnet:?xt=urn:btih:98899A108DDA924902901D9F28EC3A465C20F37A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:98899A108DDA924902901D9F28EC3A465C20F37A
 ```bash
 magnet:?xt=urn:btih:0FFD4177FD3D3AD9EBFE0D3BC9FA60F732D0B189
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +286,8 @@ magnet:?xt=urn:btih:0FFD4177FD3D3AD9EBFE0D3BC9FA60F732D0B189
 magnet:?xt=urn:btih:DF9CC5A4EC54DF01EE6DCDDB8DD04C8FB5B289C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:DF9CC5A4EC54DF01EE6DCDDB8DD04C8FB5B289C9
 ```bash
 magnet:?xt=urn:btih:EC63ED84EC28E6CC5604D7D19C53EDBDCBB9136C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +344,8 @@ magnet:?xt=urn:btih:EC63ED84EC28E6CC5604D7D19C53EDBDCBB9136C
 magnet:?xt=urn:btih:03A7024A4CAC0F41039149140620C737935A37FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +375,8 @@ magnet:?xt=urn:btih:03A7024A4CAC0F41039149140620C737935A37FF
 magnet:?xt=urn:btih:B5D63B9E012D70F3B081A3A6AA3577FE33257B06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +402,8 @@ magnet:?xt=urn:btih:B5D63B9E012D70F3B081A3A6AA3577FE33257B06
 ```bash
 magnet:?xt=urn:btih:E6EE3AC8502CC256182ED24295B38ABEB0AC1AE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +431,8 @@ magnet:?xt=urn:btih:E6EE3AC8502CC256182ED24295B38ABEB0AC1AE7
 magnet:?xt=urn:btih:39F6E8BBE168A9E4930E0C0AB96CF98140F0E1B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +459,8 @@ magnet:?xt=urn:btih:39F6E8BBE168A9E4930E0C0AB96CF98140F0E1B3
 magnet:?xt=urn:btih:6240F3BC37C9A0443BA6FD975EA286B5A3806E39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +485,8 @@ magnet:?xt=urn:btih:6240F3BC37C9A0443BA6FD975EA286B5A3806E39
 magnet:?xt=urn:btih:6A42D85AC28C4E1182CE1636440663290049A845
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +510,8 @@ magnet:?xt=urn:btih:6A42D85AC28C4E1182CE1636440663290049A845
 ```bash
 magnet:?xt=urn:btih:9E1C113D78524A3249ACD1269AA12F0ED1D9E3B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +538,8 @@ magnet:?xt=urn:btih:9E1C113D78524A3249ACD1269AA12F0ED1D9E3B9
 magnet:?xt=urn:btih:5EB24ABFB17A7522C3AC1C56694A159105718788
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +564,8 @@ magnet:?xt=urn:btih:5EB24ABFB17A7522C3AC1C56694A159105718788
 magnet:?xt=urn:btih:0B94E8D0ECA4885C28A5CFE712BBDFDA2D702234
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +589,8 @@ magnet:?xt=urn:btih:0B94E8D0ECA4885C28A5CFE712BBDFDA2D702234
 ```bash
 magnet:?xt=urn:btih:D9B7CA3A92EEF93010122680B8E73B3521173EAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +619,8 @@ magnet:?xt=urn:btih:D9B7CA3A92EEF93010122680B8E73B3521173EAF
 magnet:?xt=urn:btih:BACCCD4B689CF687EF5FB44921B4C4CC0A1E0A04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +644,8 @@ BBC: 37 дней: путь к Первой мировой войне / 37 Days (
 ```bash
 magnet:?xt=urn:btih:41DAC570E8228287724192457C3810A6F73B7468
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +671,8 @@ magnet:?xt=urn:btih:41DAC570E8228287724192457C3810A6F73B7468
 magnet:?xt=urn:btih:51D1FCC73FB32D6FBF14B0B0C75B7E16BF482378
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,29 +697,7 @@ magnet:?xt=urn:btih:51D1FCC73FB32D6FBF14B0B0C75B7E16BF482378
 magnet:?xt=urn:btih:1944D00DCDC37DADB7CE5E6F2E8636EDB11EB00C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144927   (625754) от 23.06.2017
-
-История о легендарном короле Артуре / King Arthur - The Legend (2016) HDTVRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легенды о короле Артуре и рыцарях Круглого стола летели через границы и овладевали сердцами людей. Но существовал ли прототип благородного героя этих прекрасных легенд? Насколько предания соответствуют подлинной истории? Где кончаются исторические факты и начинается легенда, рожденная стремлением народа к справедливости, доброте и миру?Производство: Великобритания, Green Media for S4CЖанр: Документальный, игровой, историяРежиссер: Джон ДжеринПеревод: Двуголосый закадровый, профессиональный (СВ - Дубль )Субтитры: отсутствуютПродолжительность: 00:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A971D4884DD569C9C1081E6810D3705928B1B48
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

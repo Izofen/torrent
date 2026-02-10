@@ -1,3 +1,32 @@
+###  Публикация: 1253508   (381132) от 10.10.2018
+
+VA - Самые скачиваемые треки ВКонтакте Осень 2018 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_381132.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Егор Крид и Филипп Киркоров - Цвет настроения чёрный 3:13
+002. Maruv - Black Water 3:50
+003. Миша Марвин - 1000 Причин 3:12
+004. Alan Walker feat. Sophia Somajo - Diamond Heart 4:00(   Читать дальше...   )Жанр: PopПродолжительность: 05:50:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D73EE75FD4FB84EA747AEEAE6DFB935C7AA43F91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253596   (381135) от 10.10.2018
 
 N.O.H.A - Tu Cafe (2010) Remix [MP3|320 Kbps] <Club, Dance>
@@ -18,6 +47,8 @@ N.O.H.A - Tu Cafe (2010) Remix [MP3|320 Kbps] <Club, Dance>
 ```bash
 magnet:?xt=urn:btih:96580734AA01769109663A2D39E5A6F2A3119675
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +76,8 @@ VA - Music News vol.39 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:E0C1F59A927B4C93E94FFB32D6B072B692A60508
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -79,6 +112,8 @@ VA - LUX music клубный. Сборник русских хитов (2012) [
 magnet:?xt=urn:btih:A580C79BB7E09BD04EFCD0F9964A2B9FAE9AB615
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -105,6 +140,8 @@ VA - Lightbringer Deep House (2018) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:7494551FDD4A95D6667AD8FCCB5884F0A3137E20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +176,8 @@ VA - Sexy Trance #48 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance, Vocal Tr
 magnet:?xt=urn:btih:1A8FB600190C74F6CFDE85BC17FB4250969A3819
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +204,8 @@ VA - Techno Bunker 2 (2022) [MP3|320 Kbps] <Techno>
 ```bash
 magnet:?xt=urn:btih:911FDBFEA58DDC33FEBAAC6B653AD25F1223ACB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +237,8 @@ VA - Trance In Motion Vol.129 (Mixed By E.S.) (2012)
 magnet:?xt=urn:btih:5D3D5675B6F95281458834DB23416202253F24D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +265,8 @@ VA - The Official UK Top 40 Singles Chart 09.10.2020 [MP3|320 Kbps] <Pop, Dance,
 ```bash
 magnet:?xt=urn:btih:A54ECFD1BC4EA8CF57C532BBF9F083D27093B6E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +301,8 @@ VA - Жажда Скорости - Клубный Драйв (2012) [MP3|256 к�
 magnet:?xt=urn:btih:119039FFD987368917294E6E14D7F29B8B45DBBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +330,8 @@ VA - Night Party: Your Club Presents (2018) [MP3|320 Kbps] <House, Dance, Club>
 magnet:?xt=urn:btih:96D1351E93E8C799D779ECAF79FC718BD0F13861
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +358,8 @@ VA - Emotional Progressive Trance (2018) [MP3|320 Kbps] <Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:3B27956689FD1EC4262EC7868F1A2E0F5906C77F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +394,8 @@ VA - Dub-Pack - Week 10 (2012) [MP3|320 кб/с]<Dub-Step>
 magnet:?xt=urn:btih:3C93C11744CAECCDD58616BDC18C2807FC15A973
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +428,8 @@ VA - Club Dubstep №13 - Ethereal (2012) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:C4141AEFEEC737A752AC1A1EEBCED7B43E046680
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +464,8 @@ VA - Club Dubstep - №17 (2012) [MP3|320 кб/с]<Dubstep>
 magnet:?xt=urn:btih:4CEB45E8EF71DBD296DE3C4FC1B4353BA0049755
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +495,8 @@ VA - Whisper of Consciousness Volume 31 (2012)
 ```bash
 magnet:?xt=urn:btih:FDA7CE61B86EA83790A28CCC067924A8269DB832
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +531,8 @@ VA - Dub-Pack - Week 8 (2012) [MP3|320 кб/с]<Dub-Step>
 magnet:?xt=urn:btih:AC39B34ECCDCB7DD10C6519F473151A18B971C97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +559,8 @@ VA - Pop Panorama: October Set (2018) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:60A2FA2E37A6B65390194441E66D644247F4A845
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +595,8 @@ VA - Club Dubstep - №15 (2012) [MP3|320 кб/с]<Dubstep>
 magnet:?xt=urn:btih:17542D77582BCF2D92881A6D2CB488BBA6BD20CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +629,8 @@ VA - Club Dubstep - №16 (2012) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:484DCA6869613A218BA74EFA3F40896F88EAC6FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +665,8 @@ VA - Осенняя хитовая двухсотка 50/50 (2012) [MP3|128 кб
 magnet:?xt=urn:btih:52E66EB3854E48BEB180831DFE6E67AF7951CC9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +700,8 @@ VA - Trance Eve Volume 44 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Tranc
 magnet:?xt=urn:btih:80ACA5B864E66F69DF609903DE179861FFCF0DA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +727,8 @@ VA - Club Dubstep - №14 (2012) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:FBB000240360C60C5B11EB0CCD19AE08F5FA0267
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -690,6 +763,8 @@ VA - Sense Of Trance #43 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance>
 magnet:?xt=urn:btih:9FEA4C08E325A2F8ECEF92DF563266B5CF5FEEB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -716,6 +791,8 @@ VA - 70 Sax Classic Jazz (2016) [MP3|320 Kbps] <Sax, Instrumental, Jazz>
 ```bash
 magnet:?xt=urn:btih:739B4640314C36F552836B0E355C7371B9265456
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -750,32 +827,7 @@ VA - 20 Лучших блатных песен (2002-2003) [MP3|320 kbps] 14 CD 
 magnet:?xt=urn:btih:8C3765D315FCBEFD4D60F5098297DBC5271E9FB3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068017   (382481) от 31.10.2016
-
-VA - XXXL Радио Хиты 50х50 (2016) [MP3|320 Kbps] <Поп, Dance, Рок>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Alan Walker - Faded 3:33
-02.Alan Walker - Sing Me to Sleep 3:09
-03.Alekseev - Снов осколки 4:03
-04.Artik & Asti - Тебе всё можно 4:03(   Читать дальше...   )Жанр: Поп, Dance, РокПродолжительность: 05:33:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96D9EE1F749884D0B1D264AA04F7ABD32255ED98
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

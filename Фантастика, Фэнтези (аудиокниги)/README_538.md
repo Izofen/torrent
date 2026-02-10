@@ -1,3 +1,29 @@
+###  Публикация: 1458698   (1023673) от 30.03.2021
+
+Саймон Дж. Морден | Фрэнк Киттридж. Билет в никуда. Книга 2 (2021) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сражаясь за жизнь и право снова увидеть сына, Фрэнк Киттридж был вынужден убивать. Оставшись в одиночестве на марсианской базе, он решается на заключение сделки с корпорацией, пославшей его на смерть. Фрэнк знает, что для них он – «макака», но за возможность вернуться на Землю он готов терпеть и перевоплотиться в надсмотрщика Брэка, чтобы встретить астронавтов НАСА. (   Читать дальше...   )Жанр: Детективная фантастика, Зарубежная фантастика, Космическая фантастика, Научная фантастикаПеревод: Сергей СаксинПродолжительность: 14:21:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63EA1033C8098D6C47CDEEEC0BAD87830A45B938
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458786   (1023685) от 30.03.2021
 
 Сборник | Нежная сталь. Сборник фантастических рассказов (2020) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:5D2FA418C6FE2F445FA5731F469A1BF7ED734653
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:5D2FA418C6FE2F445FA5731F469A1BF7ED734653
 magnet:?xt=urn:btih:231FB095E4FB8CD565D4ACC9288D87E6CBEB591B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:231FB095E4FB8CD565D4ACC9288D87E6CBEB591B
 ```bash
 magnet:?xt=urn:btih:1CD147E207E4653D60578CB2CB955F6E716693F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:1CD147E207E4653D60578CB2CB955F6E716693F6
 magnet:?xt=urn:btih:261284A15DBB0118D1ABA6F6823326956B1630D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:261284A15DBB0118D1ABA6F6823326956B1630D3
 ```bash
 magnet:?xt=urn:btih:D0DB19AB0B117D10F38F5210BAD5AB164E1FB532
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:D0DB19AB0B117D10F38F5210BAD5AB164E1FB532
 magnet:?xt=urn:btih:46EA657466AC593893B4424458502B6C2C43032C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:46EA657466AC593893B4424458502B6C2C43032C
 ```bash
 magnet:?xt=urn:btih:0E95BD61E43C07D8EF706C875A64BA09B90D1E72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:0E95BD61E43C07D8EF706C875A64BA09B90D1E72
 magnet:?xt=urn:btih:13529C09F8F2D51FCEFD972F133ADB9B0197DEC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:13529C09F8F2D51FCEFD972F133ADB9B0197DEC3
 ```bash
 magnet:?xt=urn:btih:9EE8EB76CC6A4CF97A369BB5CD0A280578275CF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:9EE8EB76CC6A4CF97A369BB5CD0A280578275CF5
 magnet:?xt=urn:btih:0C3067C6DFB13E84AC9120BB7AA826311DE219A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:0C3067C6DFB13E84AC9120BB7AA826311DE219A6
 ```bash
 magnet:?xt=urn:btih:D31CDB345DB0F2AEFFF063A8292B0A0B84496E8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:D31CDB345DB0F2AEFFF063A8292B0A0B84496E8D
 magnet:?xt=urn:btih:754911B31D6FE2E970D9C8253B69F96E5506B853
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:754911B31D6FE2E970D9C8253B69F96E5506B853
 ```bash
 magnet:?xt=urn:btih:63B5575D99E75549CE24F08C9BC4490ED4C17E69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:63B5575D99E75549CE24F08C9BC4490ED4C17E69
 magnet:?xt=urn:btih:61D441F586D10EBAB59804FFB35DCDBE1B9AA553
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:61D441F586D10EBAB59804FFB35DCDBE1B9AA553
 ```bash
 magnet:?xt=urn:btih:585B92266BB917959CF2AA56A92762D40B763269
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:585B92266BB917959CF2AA56A92762D40B763269
 magnet:?xt=urn:btih:54599C1368079850A6C059EBB93157FB37B709C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:54599C1368079850A6C059EBB93157FB37B709C9
 ```bash
 magnet:?xt=urn:btih:0217E56A50AFE144063118C13A927A0E214454E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:0217E56A50AFE144063118C13A927A0E214454E5
 magnet:?xt=urn:btih:FD54C515C337A4C950F29097D0690FEFFF7775E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:FD54C515C337A4C950F29097D0690FEFFF7775E3
 ```bash
 magnet:?xt=urn:btih:5B4E83E4DF9729A1A2DE5FB0D7BE8E9EBC699D57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:5B4E83E4DF9729A1A2DE5FB0D7BE8E9EBC699D57
 magnet:?xt=urn:btih:AC96222D7128037320A91ED10C3911606324B8AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:AC96222D7128037320A91ED10C3911606324B8AA
 ```bash
 magnet:?xt=urn:btih:A733E5221FD5443C9516F505CE6F082B558DB31A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +598,8 @@ magnet:?xt=urn:btih:A733E5221FD5443C9516F505CE6F082B558DB31A
 magnet:?xt=urn:btih:A2B38A8A5A44A5B2EBCF9C3131561C6697091A74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:A2B38A8A5A44A5B2EBCF9C3131561C6697091A74
 ```bash
 magnet:?xt=urn:btih:CC451E76C01A3CDDEE24BE4DED347F67149E61E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +651,8 @@ magnet:?xt=urn:btih:CC451E76C01A3CDDEE24BE4DED347F67149E61E3
 magnet:?xt=urn:btih:4F53F4595BD4B8D5EB3CC735271B5544F816DA35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,29 +677,7 @@ magnet:?xt=urn:btih:4F53F4595BD4B8D5EB3CC735271B5544F816DA35
 magnet:?xt=urn:btih:DC75B9B5BDB8916C766B32F831875B9F5A43F671
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456483   (1025044) от 22.03.2021
-
-Андрей Булычев | Сотник из будущего. Северная война. Книга 4 (2021) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Андреевская бригада, прорвавшись на Балтику, совершила заграничный поход и приняла участие в великой битве при Борнхёведе. Дания повержена и больше не претендует на роль властительницы всех морей. Однако, в Шведском королевстве уже зреют свои агрессивные планы, чтобы оторвать у Великого Новгорода Приладожские земли, покорив при этом и его верных союзников, племя (   Читать дальше...   )Жанр: Историческая фантастика, исторические приключения, попаданцыПродолжительность: 08:50:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E5A432E4A107DEB2A84A9F37618BC5342B79F89
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

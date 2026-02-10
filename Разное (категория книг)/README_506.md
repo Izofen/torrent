@@ -1,3 +1,29 @@
+###  Публикация: 1126228   (766289) от 17.04.2017
+
+Татьяна Борщ | Лунный посевной календарь на 2017 год (2016) [RTF, FB2]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перемещения фаз Луны оказывают огромное влияние на развитие и рост всех растений и плодов, выращиваемых вами на приусадебном участке. Ваш урожай будет обильным, если выполнять все работы в соответствии с благоприятными фазами Луны. В этом лунном посевном календаре на 2017 год вы найдете точные даты вхождения Луны в знаки зодиака, а также советы – как, когда и какие (   Читать дальше...   )Жанр: Справочники, эзотерика, сад и огородФормат: RTF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B83DD2326E0E92318244A9CBBE49C58BC497868A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126266   (766311) от 17.04.2017
 
 Татьяна Борщ, Евгений Воробьев | Астрологический календарь здоровья для всей семьи на 2017 год (2016) [RTF, FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:3816E42652FFDF7500CF18D28A7B915C62F76E31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ magnet:?xt=urn:btih:3816E42652FFDF7500CF18D28A7B915C62F76E31
 magnet:?xt=urn:btih:43F6AFBFCAC6A6B7B84D7324A71813FEFCAAFC75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +103,8 @@ magnet:?xt=urn:btih:43F6AFBFCAC6A6B7B84D7324A71813FEFCAAFC75
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +131,8 @@ magnet:?xt=urn:btih:43F6AFBFCAC6A6B7B84D7324A71813FEFCAAFC75
 magnet:?xt=urn:btih:618E162854D96A6669320FA55E31BCC693CCCE0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +157,8 @@ magnet:?xt=urn:btih:618E162854D96A6669320FA55E31BCC693CCCE0E
 magnet:?xt=urn:btih:791D13864B23DFDF9C452B70BA9282B662EC552C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +182,8 @@ magnet:?xt=urn:btih:791D13864B23DFDF9C452B70BA9282B662EC552C
 ```bash
 magnet:?xt=urn:btih:F6461839F61F66A5D3B9AA4DA394552ACE117ECE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +210,8 @@ magnet:?xt=urn:btih:F6461839F61F66A5D3B9AA4DA394552ACE117ECE
 magnet:?xt=urn:btih:06CA10E6847DBBC5EE1BEEAB8F557BD369B75413
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +236,8 @@ magnet:?xt=urn:btih:06CA10E6847DBBC5EE1BEEAB8F557BD369B75413
 ```bash
 magnet:?xt=urn:btih:D836316A7433A780850EB2E0485A0130B6C80533
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +264,8 @@ magnet:?xt=urn:btih:D836316A7433A780850EB2E0485A0130B6C80533
 magnet:?xt=urn:btih:80D0C9C496708B77CE64E97FDEC8B04001548868
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +289,8 @@ magnet:?xt=urn:btih:80D0C9C496708B77CE64E97FDEC8B04001548868
 ```bash
 magnet:?xt=urn:btih:C7AC5597A2F920D951A5957E6CB26E80C0C6111E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +318,8 @@ magnet:?xt=urn:btih:C7AC5597A2F920D951A5957E6CB26E80C0C6111E
 magnet:?xt=urn:btih:2BACC50D7326E1EBC9D2BB5585720C9F86A6494A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +346,8 @@ magnet:?xt=urn:btih:2BACC50D7326E1EBC9D2BB5585720C9F86A6494A
 magnet:?xt=urn:btih:8FC933B61AE433869584A77202A3F0E4EB196583
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +371,8 @@ magnet:?xt=urn:btih:8FC933B61AE433869584A77202A3F0E4EB196583
 ```bash
 magnet:?xt=urn:btih:0F401DD26039387BC37A4C7E393233FE89F211FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +398,8 @@ magnet:?xt=urn:btih:0F401DD26039387BC37A4C7E393233FE89F211FB
 magnet:?xt=urn:btih:4A8728017685FE3B3987E104CB4B29CA69E71D32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +423,8 @@ magnet:?xt=urn:btih:4A8728017685FE3B3987E104CB4B29CA69E71D32
 ```bash
 magnet:?xt=urn:btih:868E6D3D34F2127E2DB20ED12EE5D7A3EA258A6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +450,8 @@ magnet:?xt=urn:btih:868E6D3D34F2127E2DB20ED12EE5D7A3EA258A6E
 magnet:?xt=urn:btih:FC541FD759FC2720311B337E9A37B9944AAF3F86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +475,8 @@ magnet:?xt=urn:btih:FC541FD759FC2720311B337E9A37B9944AAF3F86
 ```bash
 magnet:?xt=urn:btih:8446F782688C74D2E135F0EEFAFA7490666E799C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +502,8 @@ magnet:?xt=urn:btih:8446F782688C74D2E135F0EEFAFA7490666E799C
 magnet:?xt=urn:btih:B0496829A1BC00102088FEECE4A9B432E31EFC1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +527,8 @@ magnet:?xt=urn:btih:B0496829A1BC00102088FEECE4A9B432E31EFC1A
 ```bash
 magnet:?xt=urn:btih:576F5D41EC5C39CCF23CD72EFC99D3AA5D6CD0E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +556,8 @@ magnet:?xt=urn:btih:576F5D41EC5C39CCF23CD72EFC99D3AA5D6CD0E0
 magnet:?xt=urn:btih:D1DF96CCB09A74B6FCA17D0D513A3372528D88EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +581,8 @@ magnet:?xt=urn:btih:D1DF96CCB09A74B6FCA17D0D513A3372528D88EE
 ```bash
 magnet:?xt=urn:btih:6DBC931A3E7435A1E38168F82E53BC67E8C2E020
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +608,8 @@ magnet:?xt=urn:btih:6DBC931A3E7435A1E38168F82E53BC67E8C2E020
 magnet:?xt=urn:btih:C1C182426F751A635525E0262A3E7A4959D03B71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +633,8 @@ magnet:?xt=urn:btih:C1C182426F751A635525E0262A3E7A4959D03B71
 ```bash
 magnet:?xt=urn:btih:F93EBEC291C4D1CC703BD3DB771F1FA234EE3C29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +660,8 @@ magnet:?xt=urn:btih:F93EBEC291C4D1CC703BD3DB771F1FA234EE3C29
 magnet:?xt=urn:btih:434EF1AC5129BFC663EF874957612729116EC5A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,29 +686,7 @@ magnet:?xt=urn:btih:434EF1AC5129BFC663EF874957612729116EC5A3
 magnet:?xt=urn:btih:0D7EFCA603DA085FD57FBB12FF34250410CF853E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213574   (768078) от 17.03.2018
-
-Светлана Орлова | Назад, в будущее! 600 рецептов советской кухни (2016) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все мы родом из детства! Из той счастливой поры, когда деревья и сугробы были большими, а наши родители – молодыми и красивыми. И жили мы тогда в большой, красивой и сильной стране – СССР. С тех пор много воды утекло, много событий произошло в жизни каждого из нас – просто закончилась золотая пора детства и мы шагнули во взрослую жизнь со всеми её заботами и хлопотами. (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:345360B21A1834D18B3AB449F835E2611F91FE79
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

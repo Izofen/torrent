@@ -19,6 +19,8 @@ Calibre - простая и удобная программа для управ�
 magnet:?xt=urn:btih:8CF52508210290E5A40AE9A254226F0FC6EB02F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Children Of The Sun - Roots (2022) [FLAC|Lossless|WEB-DL|tracks] <Retro Hard Roc
 ```bash
 magnet:?xt=urn:btih:3C402AD498FC02A8E99BB0AC2AD970D9AA99407F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Jennifer Lopez - On The 6 (1999) [OGG Vorbis|480 Kbps] <Hip Hop, Latin, Funk / S
 magnet:?xt=urn:btih:D49A566984DF2E90CBAD28716CAC81C015B57A03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ SimpleMind - это инструмент для построения интел�
 magnet:?xt=urn:btih:3CB1E9DD01FDBF4DB156C4C3C047E7D919AE88AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 ```bash
 magnet:?xt=urn:btih:083A18488C87CCCCC244C7BEADFEE6D7950C680B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ PullTube 1.8.4.17 [Multi/Ru]
 magnet:?xt=urn:btih:D8EEC9BD4D5FA2D019D04E4184DA1A86A015FFE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ Nova поддерживает отдельные задачи сборки, за
 ```bash
 magnet:?xt=urn:btih:E63AB295C4403D6CFBAF0181BDAD465917F661BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ LibreWolf как раз решает (   Читать дальше...   )Язы
 magnet:?xt=urn:btih:DC8DD12E98DB74D92741D32CCD65768789BD22A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ reaConverter Pro - мощный инструмент для тех, кто им�
 ```bash
 magnet:?xt=urn:btih:DD755A13653D107DFD5CEEB4A4F12D4CDE3507C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ iNet показывает устройства, подключенные к ва
 magnet:?xt=urn:btih:B4AE6B35C8DFEC3D38996751B3E3FBB69F607A02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ Sante DICOM Viewer Pro не является «еще одним средств�
 ```bash
 magnet:?xt=urn:btih:54D9453700616FCC26DDAE723C69897F673A5F5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ Sante DICOM Editor — ведущее в отрасли приложение п�
 magnet:?xt=urn:btih:1036763F8840B55BEA7BBCB0FA5D22E2B0700413
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ Radiant Photo - это программа для редактирования ф
 ```bash
 magnet:?xt=urn:btih:5E638505F6A9506FE08A6D332A86A1D994D3A719
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +373,8 @@ Mic Drop позволяет пользователям отключать и в�
 magnet:?xt=urn:btih:85E5C1762EAD36AE7600F81EAE8E4D4376B80068
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ Middle  просто добавляет возможность сделать «
 ```bash
 magnet:?xt=urn:btih:122694C0EDDEA1CFB7A4BFA0E8E26BF1EE7239F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ RSS Button for Safari 1.6.1 [En]
 magnet:?xt=urn:btih:3EBF0ECDA663B3264CB73653884D69B0DD16E721
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ DrawOutX - приложение для создания многостранич
 magnet:?xt=urn:btih:F33BE69D4F0A39DC38F293354BC1E7217A45C8B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ HistoryInFilm 1.5 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F5ADF828D3D16FFA894A5BDCE34E525C39A96998
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ Skype предназначен для личного и делового общ�
 magnet:?xt=urn:btih:04C0FC2F8253449A27951F517AFA7A205735566C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:04C0FC2F8253449A27951F517AFA7A205735566C
 ```bash
 magnet:?xt=urn:btih:C6A60B19815EF7D90CB10A3660E0DE31443DC123
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +557,8 @@ uTorrent Pro 3.6.0 Build 46590 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 magnet:?xt=urn:btih:31EE6A3965E2543F76B39C14EFF5768CF25B3A3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ SysAdmin Software Portable v.0.6.4.0 by rezorustavi (Update 02.12.2022) [Ru]
 ```bash
 magnet:?xt=urn:btih:83948A31E1216C5AEB1F79DB943DF7C8E44BDCDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +611,8 @@ Planet VPN 1.4.05.01 [Multi/Ru]
 magnet:?xt=urn:btih:89234C9B2EC5471F0559311AFF71321C657CDFC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:61CA84A4E231514284D49E8EC790D5EBE4077827
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +663,8 @@ WhatsApp Messenger - это кроссплатформенное приложе�
 magnet:?xt=urn:btih:9234850AC0B56DA82F94E3D8086330488E5F37AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ Opera 93.0.4585.37 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:5184DA2B495FEABBF76081FC57977850D68F7A0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

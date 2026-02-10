@@ -19,6 +19,8 @@ Metro: Last Light / Метро 2033: Луч надежды (2013) [Ru/Multi] (1.
 magnet:?xt=urn:btih:A516A0A0F36BD81B6090DFDC8BEBEC11853C75C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Resident Evil 7: Biohazard (2017) [Ru/Multi] (build 9473356/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:A69F35CC966D0B1009F6AAEEBAA0FC31AFA130A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Puzzle Quest 3 (2023) [Ru/Multi] (3.5.0.41964/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:DB70673E3C62CDCB7F146A96CB38CD8FF29360D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Mini Airways (2024) [Ru/Multi] (0.11.3f1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:128FD0E5877C32E83C90FE8E7C4E64499C68BB8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Ailuri (2025) [En] (Build 17384128) Repack Let'sРlay
 magnet:?xt=urn:btih:4E1F949E48BCA672B309B174B1C118EBE277CCC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Dr Livesey Rom And Death Edition - Доктор Ливси, вместе со с
 ```bash
 magnet:?xt=urn:btih:7A8A3B96CAD6DA2605259E674C14667A8BACED59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Secrets of Salem: Shadow of the Witch (2025) [Multi] (1.0) Unofficial [Collector
 magnet:?xt=urn:btih:5F76A8109AB705B90D6149A02B374802B734683B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Beyond Blue - это однопользовательская игра в сти
 ```bash
 magnet:?xt=urn:btih:45B470AEAA16A9C4C795228BA61DF748BEB49458
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Slime Rancher 2 - это продолжение удостоенной нагр�
 magnet:?xt=urn:btih:95A8EB07EA2AAD3724ABD5F83C7EA8D9159D6F85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Secrets of Magonia (2024) [Ru/Multi] (1.10с) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:B845ED4C9874C6F0E08D9F6606595F010946EE41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Heroine's Quest: The Herald of Ragnarok – классическое ролев�
 magnet:?xt=urn:btih:CE270410BA53A7385A5459989F902CEBACA283AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Runa & The Chaikurú Legacy (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:8DA5CE83489AB8FC20103E13C85DCC74FA8B9F21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ DeathOmen - это психологическая игра ужасов, кот�
 magnet:?xt=urn:btih:0701CF7BDFC18A3FF03006C6869C2C24F79F3F62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ KAMiBAKO - Mythology of Cube - (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:46D5F512952163DD13AF99F996A1436CF1C5CB50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Fantasy General II (2019) [Ru/Multi] (01.02.12913/dlc) Repack Let'sРlay [Comple
 magnet:?xt=urn:btih:78AF4702CB96DC14D71337A16E95C935B9867FD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Panelka - расслабляющая игра-симулятор наполне�
 ```bash
 magnet:?xt=urn:btih:90D65F8466F8D74BCDC9EC84C83F4BEFDDB11F4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ iRacing представляет официальную игру World of Outlaw
 magnet:?xt=urn:btih:0736B8C4A632FECE6E7AB472B1F71AE7FC0A42FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Panelka - расслабляющая игра-симулятор наполне�
 ```bash
 magnet:?xt=urn:btih:6CB5F6C96368E2374B23A54176503360F432D96D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Homeworld 3 (2024) [Ru/Multi] (1.31/dlc) Repack Let'sРlay [Fleet Command Editio
 magnet:?xt=urn:btih:7D8F2E916D9564B74C08946338903427525D2C67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Robin Hood - Sherwood Builders – это приключенческая рол�
 ```bash
 magnet:?xt=urn:btih:0861F04AA10DC576A6FFDA94C0DB65FD622AE12F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Bulwark - это создание своей крепости и расшире�
 magnet:?xt=urn:btih:D4376A831374E072A1F435CA3BB85EB3B29D3571
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Beyond Blue - это однопользовательская игра в сти
 ```bash
 magnet:?xt=urn:btih:6869C0C124E955F98E280DFB9D556905BABA47EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ BlazBlue Entropy Effect - двухмерная приключенческая и
 magnet:?xt=urn:btih:E3E146762CAFD2C96E007475650677FF3535667A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Tomb Raider IV-VI Remastered Darkness Trilogy предлагает погруз�
 ```bash
 magnet:?xt=urn:btih:4003ABCE0EAAF9BE6D9EB7A8E8DF4CAE5C169EB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Few Nights More предлагает уникальное сочетание у�
 magnet:?xt=urn:btih:155809B1DA0A6A00A12C8822798E63359C398D07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Get Tilted! :) (2025) [Ru/Multi] (1.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3AC0BEB9174A1BD0BB3DB49784E2815FC66BE0A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

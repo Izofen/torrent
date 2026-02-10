@@ -1,3 +1,29 @@
+###  Публикация: 992014   (902200) от 01.03.2016
+
+Лайм Фаэй, Роберт Рэнделл (редакторы) | Курс MBA по стратегическому менеджменту (2013) [FB2, DOCX]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная цель менеджеров любого уровня - процветание их бизнеса. Для достижения этой цели необходимо создавать предложения, которые потребители высоко оценят, и вести бизнес так, чтобы обходить конкурентов по ключевым параметрам. "Курс МВА по стратегическому менеджменту", написанный преподавателями ведущих бизнес-школ мира, вооружает знаниями, позволяющими (   Читать дальше...   )Жанр: БизнесФормат: FB2, DOCX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2544CBA85FD0561E9E2832F004FA24F16E6C822C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992365   (902222) от 01.03.2016
 
 Илья Яшин | Угроза национальной безопасности (2016) [PDF]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:5BB32F84DE3C81313A65DBC9663405B74D84E89E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -47,6 +75,8 @@ magnet:?xt=urn:btih:5BB32F84DE3C81313A65DBC9663405B74D84E89E
 magnet:?xt=urn:btih:6EE8A3FE1A51CDD5CF28B70B2D9F08C91D5DC25A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +104,8 @@ magnet:?xt=urn:btih:6EE8A3FE1A51CDD5CF28B70B2D9F08C91D5DC25A
 magnet:?xt=urn:btih:366B0C914DF915B174BC6481847094E22291F964
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +129,8 @@ magnet:?xt=urn:btih:366B0C914DF915B174BC6481847094E22291F964
 ```bash
 magnet:?xt=urn:btih:724C2D977AA164756E8F5DC71CC89809185130B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +157,8 @@ magnet:?xt=urn:btih:724C2D977AA164756E8F5DC71CC89809185130B4
 magnet:?xt=urn:btih:F5ED683DFA8D8197A902D083AC383A003AC68E19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +182,8 @@ magnet:?xt=urn:btih:F5ED683DFA8D8197A902D083AC383A003AC68E19
 ```bash
 magnet:?xt=urn:btih:66B5C5BC1D71993BD28C93E544FBDF597F9BDC22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +209,8 @@ magnet:?xt=urn:btih:66B5C5BC1D71993BD28C93E544FBDF597F9BDC22
 ```bash
 magnet:?xt=urn:btih:FF14F302A7C740C9BA13D8821377C8E1EDC73B59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +238,8 @@ magnet:?xt=urn:btih:FF14F302A7C740C9BA13D8821377C8E1EDC73B59
 magnet:?xt=urn:btih:4C591F3E5183DC85808DD1E96082015D7EC3B188
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +263,8 @@ magnet:?xt=urn:btih:4C591F3E5183DC85808DD1E96082015D7EC3B188
 ```bash
 magnet:?xt=urn:btih:E2EA0B8A239D7D91FB442CD6FD7FCA7C2C31BB38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +290,8 @@ magnet:?xt=urn:btih:E2EA0B8A239D7D91FB442CD6FD7FCA7C2C31BB38
 magnet:?xt=urn:btih:CDB2276F60828D2D12B5E58F13869F24F6793274
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +315,8 @@ magnet:?xt=urn:btih:CDB2276F60828D2D12B5E58F13869F24F6793274
 ```bash
 magnet:?xt=urn:btih:F505895DD2ECB4A92F4383FC856AC3F0FDB6E474
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +342,8 @@ magnet:?xt=urn:btih:F505895DD2ECB4A92F4383FC856AC3F0FDB6E474
 magnet:?xt=urn:btih:89AB3FEAF5B87CDDB59DBFD5FBD24FA670C3744B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +367,8 @@ magnet:?xt=urn:btih:89AB3FEAF5B87CDDB59DBFD5FBD24FA670C3744B
 ```bash
 magnet:?xt=urn:btih:19938DEED59834D418D752F5824DF9E602CA00D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +394,8 @@ magnet:?xt=urn:btih:19938DEED59834D418D752F5824DF9E602CA00D3
 magnet:?xt=urn:btih:1556382B753FE2BB7DD8DF6451D14AE4B120957B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +420,8 @@ magnet:?xt=urn:btih:1556382B753FE2BB7DD8DF6451D14AE4B120957B
 magnet:?xt=urn:btih:1E8E0EEE5AAE0CE1861DB7E985DEA10084883C5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +445,8 @@ magnet:?xt=urn:btih:1E8E0EEE5AAE0CE1861DB7E985DEA10084883C5E
 ```bash
 magnet:?xt=urn:btih:9FB1B58EE1A90FD12244B9577427B22B67D7D49F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +474,8 @@ magnet:?xt=urn:btih:9FB1B58EE1A90FD12244B9577427B22B67D7D49F
 magnet:?xt=urn:btih:76AF16064B7740557AF947D3D01B9D7F52659453
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +501,8 @@ magnet:?xt=urn:btih:76AF16064B7740557AF947D3D01B9D7F52659453
 ```bash
 magnet:?xt=urn:btih:08BF4AF46C0D2E50897935BE66A48A5390E2ED23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +531,8 @@ magnet:?xt=urn:btih:08BF4AF46C0D2E50897935BE66A48A5390E2ED23
 magnet:?xt=urn:btih:7E338E7A73E679C421543D479309D061516E79A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +557,8 @@ magnet:?xt=urn:btih:7E338E7A73E679C421543D479309D061516E79A6
 magnet:?xt=urn:btih:3AAD037498AC81707255FB2161AD5E2630E57336
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +582,8 @@ magnet:?xt=urn:btih:3AAD037498AC81707255FB2161AD5E2630E57336
 ```bash
 magnet:?xt=urn:btih:78420F07EF5C53AE0DC00180BAD9CD9D42979DD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +611,8 @@ magnet:?xt=urn:btih:78420F07EF5C53AE0DC00180BAD9CD9D42979DD4
 magnet:?xt=urn:btih:91BD8F8DF7BCD78492F4F4C4D8010241798C0062
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +636,8 @@ magnet:?xt=urn:btih:91BD8F8DF7BCD78492F4F4C4D8010241798C0062
 ```bash
 magnet:?xt=urn:btih:D1F96956C85F43F04A243A8089CC4F0A343090D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +663,8 @@ magnet:?xt=urn:btih:D1F96956C85F43F04A243A8089CC4F0A343090D4
 ```bash
 magnet:?xt=urn:btih:717064AF17509EBA341F9B07C5E51B12D4C87E3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,29 +692,7 @@ magnet:?xt=urn:btih:717064AF17509EBA341F9B07C5E51B12D4C87E3D
 magnet:?xt=urn:btih:A9449D30856AFD28680D9093F92C5ADC3F8664AC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 160604   (903341) от 29.08.2021
-
-Ф. Шварц, А. Пуассон, Е.П. Блаватская | Теории и символы алхимиков (1995) [PDF]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903341.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга посвящена одной из самых древних и загадочных наук. В ней дается краткий очерк истории алхимии — от зарождения в древнеегипетских храмах до ее судьбы в новейшее время, объясняется значение этой науки для духовной эволюции человечества, а также приводится подробная характеристика различных алхимических теорий. Особый интерес представляет описание и толкование (   Читать дальше...   )Жанр: Эзотерика, оккультизмФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D94EFEA5802FC4FE1D7D8B1F9C8627B856C9AFB
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

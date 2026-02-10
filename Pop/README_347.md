@@ -1,3 +1,148 @@
+###  Публикация: 1471461   (1014803) от 22.05.2021
+
+VA - Hit Music (лето 2021) от Мяу (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014803.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alan Walker feat. Conor Maynard - Believers
+002. Jack Savoretti feat. Nile Rodgers - Who's Hurting Who
+003. DaBro - На Часах Ноль-Ноль
+004. BeatItPunk & SICKOTOY feat. Yoelle - Hollywood(   Читать дальше...   )Жанр: PopПродолжительность: 18:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DAE61F49A151435B88BF3F7A12C6971C63A414C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471507   (1014961) от 21.05.2021
+
+Денис Клявер - Тебя удача найдёт (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014961.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Тебя удача найдёт
+2. Брачный кортеж
+3. Ответ
+4. Кто, если не я(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:008FED3D73158897F934A8F4557187F2443A521B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471425   (1015125) от 20.05.2021
+
+St. Vincent - Daddy's Home (2021) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pay Your Way In Pain [03:03]
+02. Down And Out Downtown [03:42]
+03. Daddy's Home [03:19]
+04. Live In The Dream [06:29](   Читать дальше...   )Жанр: Alternative Rock, Indie PopПродолжительность: 00:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBCDC010D87F94244EA442430F9482F2FC33EE5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471318   (1015135) от 20.05.2021
+
+Гоша Куценко - "GOSHANOVA" антистресс (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015135.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Скорая (feat. Юлия Пак)
+2. Опьянев
+3. Созвездие любви
+4. Голая(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0335C4054D2146F67B9C585288624F950D3DB7F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471201   (1015296) от 19.05.2021
+
+AlimkhanOV A. - Right Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right Time (Album Version) (5:24)
+02. Eyes Of Delight (Album Version) (5:55)
+03. Lonely (Album Version) (6:05)
+04. Hot Nights In The City (Album Version) (7:00)(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 01:17:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:831EB4ED7D483ECA994A5E333E3E7BCDC960891E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1471189   (1015297) от 19.05.2021
 
 Latex - Random Love (1995) [FLAC|Lossless|tracks + .cue] <Euro House>
@@ -21,6 +166,8 @@ Latex - Random Love (1995) [FLAC|Lossless|tracks + .cue] <Euro House>
 ```bash
 magnet:?xt=urn:btih:EB1E2D450E99ADAFFDE5CAFC1531F53A1C1D4F2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +196,8 @@ Boney M. - Rasputin - Lover Of The Russian Queen (2021) [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:C9BACF792866203CF97A88B9D72C23DF329ADFBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +224,8 @@ Boney M. - Rasputin - Lover Of The Russian Queen (2021) [MP3|320 Kbps] <Retro, P
 ```bash
 magnet:?xt=urn:btih:7CC9F925352CD9785F9A77B3CB7A6D384CCB8A2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +254,8 @@ Bonnie Tyler - The RCA Years (2019) 4CD, Box Set, Compilation, Cherry Red Record
 magnet:?xt=urn:btih:8632BC642B888744BF6B32999CD14FEC96E795F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +282,8 @@ Champagne - 2 Albums (1977, 1979) LP [MP3|320 Kbps] <Electronic, Disco, Pop>
 ```bash
 magnet:?xt=urn:btih:7CB05FC1D1C57A917E3AE5E5B974DE9F40AFA65F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +312,8 @@ VA - Ultimate NRG Party (2004) [FLAC|Lossless|WEB-DL|tracks] <Dance, Disco, Hi-N
 magnet:?xt=urn:btih:D1BFECF8D3C579DB17E7460BDDAF5DD36BDBD7AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +340,8 @@ Vincent International - Retro (2020) [FLAC|Lossless|image + .cue] <Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:9BA37BE0356F56DAC123A198C62950542363DBFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +370,8 @@ Radiorama - Four Years After (Deluxe Edition) (2016) [FLAC|Lossless|image + .cue
 magnet:?xt=urn:btih:F983827CED0BCC2B1BC1D65A46AAAEF752D2F0BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +398,8 @@ VA - Горячая десятка 14 (2002) [FLAC|Lossless|tracks + .cue]<Pop>
 ```bash
 magnet:?xt=urn:btih:1DB3BE02CBF1B43BC3826AD12C832E92CF6E6FF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +428,8 @@ VA - 100 Disco Hits of the '70s & '80s (Re-Recorded Versions) (2010) [MP3|~245 K
 magnet:?xt=urn:btih:89455B06571C3518CE90361A48BCEB030A9F484F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +456,8 @@ magnet:?xt=urn:btih:89455B06571C3518CE90361A48BCEB030A9F484F
 ```bash
 magnet:?xt=urn:btih:97E35250C8EB269A0A18B15A53B6FE790CEDC0A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +486,8 @@ VA - Золото дискотек, Vol. 1 (2014) [MP3|~245 Kbps (V0)] <Pop, Dis
 magnet:?xt=urn:btih:E84EFE38EF7E4E7C60AC84FB9D500A2AE8432856
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +514,8 @@ VA - 100 Hits Remixed (The Best of 70s, 80s and 90s Hits) (2012) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:7BB126BC7CC5272727319CDD9D5A1DB9353999CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +544,8 @@ magnet:?xt=urn:btih:7BB126BC7CC5272727319CDD9D5A1DB9353999CD
 magnet:?xt=urn:btih:84C9FF509B3F1D38613CE4E601AFE64AC73E10EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +572,8 @@ VA - Top Music of the World (Remix) (2016) [MP3|320 Kbps] <Dance>
 ```bash
 magnet:?xt=urn:btih:ABCA99264D616D03EA03AD01F53894B2D607EDCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +602,8 @@ VA - Rewind & Remixed Hits (2010) [MP3|~245 Kbps (V0)] <Dance, Electro Pop>
 magnet:?xt=urn:btih:6FE28B8D8B60A396FC7AA9AC2735F0C6BC445957
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +630,8 @@ VA - Ultimate NRG Party (2004) [MP3|320 Kbps] <Dance, Disco, Hi-NRG>
 ```bash
 magnet:?xt=urn:btih:582546BECEA2320F4E0ACB80B74AEA6413B27EAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +660,8 @@ Bebe Rexha - Better Mistakes (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 magnet:?xt=urn:btih:1BCEF7A8137EEE29F345D1D844290DEFA53AFE2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +689,8 @@ Digital Emotion - Greatest Hits and Remixes (2021) 2CD [FLAC|Lossless|image + .c
 magnet:?xt=urn:btih:1C0E650DBFF5F2D29BB9BF4B2EB83DB9B72E1039
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +717,8 @@ magnet:?xt=urn:btih:1C0E650DBFF5F2D29BB9BF4B2EB83DB9B72E1039
 ```bash
 magnet:?xt=urn:btih:F108D9B05A94078FB731A3D7822DED987DF6172B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,139 +748,7 @@ Paul Julien André Mauriat (4.03.1925 – 3.11.2006) был руководите
 magnet:?xt=urn:btih:8BF164839EB341E118B1717F6473C38438FF2087
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468818   (1016738) от 10.05.2021
-
-Paul Mauriat & His Orchestra, Duke Ellington & His Orchestra - Songs That Define a City; Paris, Volume 3 (2021) [FLAC|Lossless|WEB-DL|tracks] <Soul-Jazz, Big Band, Soul, Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sous Le Ciel De Paris, Padam Padam (Medley Remastered) [00:02:47]
-02. La Vie En Rose (Remastered) [00:02:32]
-03. C'est Si Bon (Remastered) [00:01:47]
-04. I Love Paris, Paname (Medley Remastered) [00:03:17](   Читать дальше...   )Жанр: Soul-Jazz, Big Band, Soul, Easy ListeningПродолжительность: 01:20:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C7999405C20FA0475812FC5A84A7F42B8E418C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469075   (1016776) от 10.05.2021
-
-Chrisland - Angela, Angel (1977) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angela, Angel (12:05)
-02. Blue Is My Balloon (7:27)
-03. Mary Jane (5:12)Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:24:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:064C168E76F640A513BBAF5DF2266570202CD9E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468896   (1016925) от 09.05.2021
-
-Los Havtanos - Иди ко мне (2020) [MP3|320 Kbps] <Latino, Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Los Havtanos - музыкальная группа, совместный авторский проект Евгения Хавтана, лидера группы «Браво», московской певицы Яны Блиндер и профессиональных кубинских музыкантов — исполняет авторскую музыку в стиле латино.1. Интро
-2. Иди ко мне
-3. Города
-4. Чудесная страна(   Читать дальше...   )Жанр: Latino, PopПродолжительность: 00:23:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E66FBAB7908F44743CEA812A3158CA871DD0DE2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468718   (1016929) от 09.05.2021
-
-B.B. Jackson - Disco March (1977) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disco March (11:20)
-02. Rachmaninov: Preludio In C Minor (3:53)
-03. Super Boogie (3:48)
-04. Beach Sea & Cerrone (6:44)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:33:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1855A7D77236AEA2C60E693EF5A191911B118899
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468499   (1017077) от 08.05.2021
-
-VA - Greatest Covers Ever (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Creedence Clearwater Revival - I Heard It Through The Grapevine (Edit) (03:53)
-02. Musical Youth - Pass The Dutchie (03:23)
-03. Toots and The Maytals - Take Me Home, Country Roads (03:21)
-04. Bahamas - Don't You Want Me (03:19)(   Читать дальше...   )Жанр: PopПродолжительность: 01:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:358ACC57AF569D96D2C252ADF651DB34370853DF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

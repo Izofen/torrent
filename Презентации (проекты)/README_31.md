@@ -19,6 +19,8 @@ Flat And Fun Promo - проект АЕ для рекламы, презентац
 magnet:?xt=urn:btih:9D1E1B09BDD0E1250C495CFFBB605DD2D86C66B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Fashion Opener - это стильный шаблон After Effects, со сме
 ```bash
 magnet:?xt=urn:btih:0C5BB8908BA2AB7D9BB229692EE641C7B4645363
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:0C5BB8908BA2AB7D9BB229692EE641C7B4645363
 magnet:?xt=urn:btih:BC55DD546A8A0D619ED6C95FADC9A35DA538A422
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Inspired For Adventure - After Effects CS5 - CC 2014 проект. Разреш�
 magnet:?xt=urn:btih:1E13D35739260201CFC3D3414FD7CED5987B7900
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:1E13D35739260201CFC3D3414FD7CED5987B7900
 ```bash
 magnet:?xt=urn:btih:5F8241DAA35280C6462AA4814C0B56E51FF8191F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:5F8241DAA35280C6462AA4814C0B56E51FF8191F
 magnet:?xt=urn:btih:6C9F19D26F5B875CCD87434C375F8CEEBB04B309
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:6C9F19D26F5B875CCD87434C375F8CEEBB04B309
 magnet:?xt=urn:btih:D85B4DD5482DD59BAE7540DA5D051E651EBD49F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:D85B4DD5482DD59BAE7540DA5D051E651EBD49F2
 ```bash
 magnet:?xt=urn:btih:3E587BB2C8DA4253DA1CE78BD114AA2A3DEA7630
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:3E587BB2C8DA4253DA1CE78BD114AA2A3DEA7630
 magnet:?xt=urn:btih:F414602C8C5491F3DECD95043E32CEFAFB4FB01B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:F414602C8C5491F3DECD95043E32CEFAFB4FB01B
 ```bash
 magnet:?xt=urn:btih:E9759B202AC46C847419ACB69F5C4E90D5A66B6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:E9759B202AC46C847419ACB69F5C4E90D5A66B6D
 magnet:?xt=urn:btih:ACAAD7E99D260B9268D0865816E4FA95D3DF3C2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Broadcast Design News Package - новостная виртуальная сту
 ```bash
 magnet:?xt=urn:btih:8932D2F2A1CB24C83ACC8407B752B215723A2BE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ The Strategy - современный After Effects шаблон, идеальн
 magnet:?xt=urn:btih:FC51860C94D5EDE2CDA79A844EA01BC65FD73D02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:FC51860C94D5EDE2CDA79A844EA01BC65FD73D02
 ```bash
 magnet:?xt=urn:btih:2862325C0E61749D03C471A546344133569795FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:2862325C0E61749D03C471A546344133569795FA
 magnet:?xt=urn:btih:AF74ADC6822B33A1933EAB579902E9C732EB6032
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Awards Show - это эксклюзивный и профессиональны�
 magnet:?xt=urn:btih:38CF37502223821D36504E415A2D3B75F06FBF1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:38CF37502223821D36504E415A2D3B75F06FBF1D
 ```bash
 magnet:?xt=urn:btih:F47EB158166F04CE5107913D0D2C3CAECB5CD863
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Awards Presentation Pack - это проект After Effects в 4K разреш�
 magnet:?xt=urn:btih:D1C9B7B26F4724376AABF4C73E32DD4BA550AB3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:D1C9B7B26F4724376AABF4C73E32DD4BA550AB3C
 ```bash
 magnet:?xt=urn:btih:525DE81D56403E55D0E7EBC08EDF8B74F7374C33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:525DE81D56403E55D0E7EBC08EDF8B74F7374C33
 magnet:?xt=urn:btih:42365A935FDF21D18BE7EF8ACBFDF8A02B08552D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Classic Box Promo - это готовая уникальная и классич
 ```bash
 magnet:?xt=urn:btih:E6DF285BB782DB3AD7074AC833681C78941063A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ Magazine - этот проект является чистой рекламно�
 magnet:?xt=urn:btih:5E86400068D907C69754A1E6BF5C15C8A49530A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:5E86400068D907C69754A1E6BF5C15C8A49530A4
 ```bash
 magnet:?xt=urn:btih:563C795C33679B41A359B4344514CD7CFE925170
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:563C795C33679B41A359B4344514CD7CFE925170
 magnet:?xt=urn:btih:82B8A8C6544EAE85C241264B2AEF8BEFF1D86CA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Corporate Puzzles World - проект для презентации логот�
 ```bash
 magnet:?xt=urn:btih:47DBB2711F49D50B59212515F1B29D3D072F5140
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +678,8 @@ Time to talk (Broadcast Pack) -  это полный пакет инструме
 ```bash
 magnet:?xt=urn:btih:E39E98FBB2B978FC0458799127A8B218819588CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

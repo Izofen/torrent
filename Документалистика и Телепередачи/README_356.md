@@ -1,3 +1,29 @@
+###  Публикация: 1320099   (475184) от 16.08.2019
+
+Живые мертвецы Помпеев / Pompeii's Living Dead (2018) HDTVRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие гипсовые отливки жертв вулкана в Помпеях, сделанные в 1863 году, сильно пострадали с течением времени. Профессор Джианкарло Наполи возглавляет команду, которая реставрирует хрупкие экспонаты.Производство: ИталияЖанр: Документальный, история, исследованияРежиссер: Марцелло АдамоПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 00:50:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB4E4DA64BB538986BC49AD8C5C97D2931285A05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 939441   (475276) от 21.09.2015
 
 Военная приемка. Су-30СМ. Одним росчерком крыла (2015) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:74EF0C32251D996907E659B81C4D0B535A145428
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:74EF0C32251D996907E659B81C4D0B535A145428
 magnet:?xt=urn:btih:91736AB4D5BA55F94965DC8606E114FA20ACA4FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:91736AB4D5BA55F94965DC8606E114FA20ACA4FE
 ```bash
 magnet:?xt=urn:btih:88AA1DAF748742864F5366F40DECB91636127768
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:88AA1DAF748742864F5366F40DECB91636127768
 magnet:?xt=urn:btih:09880F1FABACAA3B4F1AC7A0D0FA1C2C2544E74B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:09880F1FABACAA3B4F1AC7A0D0FA1C2C2544E74B
 ```bash
 magnet:?xt=urn:btih:1109210160CE21C61E2EC659B99C9959581E777F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:1109210160CE21C61E2EC659B99C9959581E777F
 magnet:?xt=urn:btih:62E63552C703AA52B13C159B34C5087B9E76BF81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:62E63552C703AA52B13C159B34C5087B9E76BF81
 ```bash
 magnet:?xt=urn:btih:F335C2092E9492102620C213E5E406445E9D084E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:F335C2092E9492102620C213E5E406445E9D084E
 magnet:?xt=urn:btih:FE9A25115290330C1CD7117E6893C1C7321F1B07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:FE9A25115290330C1CD7117E6893C1C7321F1B07
 ```bash
 magnet:?xt=urn:btih:443EAD31E42A19EC88E67E44B4B3BF7E9D58D1DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:443EAD31E42A19EC88E67E44B4B3BF7E9D58D1DA
 magnet:?xt=urn:btih:61140B1A34D72B61390C97A03D956D21E5A3FF01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:61140B1A34D72B61390C97A03D956D21E5A3FF01
 ```bash
 magnet:?xt=urn:btih:924ADDC503957BB45A3158D584285A7194DD5651
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:924ADDC503957BB45A3158D584285A7194DD5651
 magnet:?xt=urn:btih:FF76026A91A11D2FEB23A0C343FB0E9A4C8BBA91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:FF76026A91A11D2FEB23A0C343FB0E9A4C8BBA91
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:FF76026A91A11D2FEB23A0C343FB0E9A4C8BBA91
 magnet:?xt=urn:btih:9B995F7FEB533B11D015A9F2E2E48B329B332E0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:9B995F7FEB533B11D015A9F2E2E48B329B332E0D
 ```bash
 magnet:?xt=urn:btih:92FFBC30730C8060DFA012EA765527E6022B33DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:92FFBC30730C8060DFA012EA765527E6022B33DB
 magnet:?xt=urn:btih:1128249F9AE49D79F4A8E04BA1436E4D15527F70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:1128249F9AE49D79F4A8E04BA1436E4D15527F70
 ```bash
 magnet:?xt=urn:btih:45ED68DCB1D791697B62610D63FE6EADD365D1AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:45ED68DCB1D791697B62610D63FE6EADD365D1AF
 magnet:?xt=urn:btih:2A3F03179180D3954E7A68630D5CD27664E908E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:2A3F03179180D3954E7A68630D5CD27664E908E2
 ```bash
 magnet:?xt=urn:btih:76F45FEE8DC7A03612A25717AD1ACC1D9EC3CA86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:76F45FEE8DC7A03612A25717AD1ACC1D9EC3CA86
 magnet:?xt=urn:btih:A4A6D4B3673FBE9208ED65B43FB7211E8CABB9D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:A4A6D4B3673FBE9208ED65B43FB7211E8CABB9D8
 ```bash
 magnet:?xt=urn:btih:56025FF05D4DC0AEA37215A36CD2FDC1DE26C260
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:56025FF05D4DC0AEA37215A36CD2FDC1DE26C260
 magnet:?xt=urn:btih:62747EFD4644FEBB000FDBDE50612DB6748808C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +618,8 @@ magnet:?xt=urn:btih:62747EFD4644FEBB000FDBDE50612DB6748808C3
 ```bash
 magnet:?xt=urn:btih:C2DBE91E53E7B5546513E09A3EC46C002C2329C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +645,8 @@ magnet:?xt=urn:btih:C2DBE91E53E7B5546513E09A3EC46C002C2329C8
 magnet:?xt=urn:btih:0431F91BB0AE6564B8E2091C776E030FCCA055FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,29 +671,7 @@ magnet:?xt=urn:btih:0431F91BB0AE6564B8E2091C776E030FCCA055FF
 magnet:?xt=urn:btih:AE90EACE86C34F1DF41316DF0DD525BB23E5F4E0
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057139   (477369) от 27.09.2016
-
-Карты великих первооткрывателей / Maps of the Great Explorers (2008) HDTVRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477369.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот фильм - эпопея великих географических открытий, которая позволила создать современную карту мира? Лаперуз, Веспуччи, Колумб, Васко да Гама, Магеллан, Бугенвиль, Кук и многие другие были первопроходцами. Мы проследим их истории, четыреста лет приключений в далеких океанах, чтобы прорисовать черты лица планеты Земля. Как они осмелились отправиться в океан в те (   Читать дальше...   )Телекомпания: Франция, Grand Angle ProductionsЖанр: Документально-постановочный, познавательный, исторический, путешествияРежиссер: Жиль КебаилиПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:50:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57F940761353DB090CB8E77989A7A04018579AAA
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

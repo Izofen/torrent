@@ -22,6 +22,8 @@ VA - Синий Туман. Песни В. Добрынина (1989) [FLAC 2.0|9
 magnet:?xt=urn:btih:F13CDAE0C49A94E23FCA50DCF35F3567E5EFC8D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ VA - На теплоходе музыка играет. Песни В. Добр�
 magnet:?xt=urn:btih:324FB79EF7A443BA48C008F1CACFD22DC62CDA93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ A4. Crash Dance  (2:09)(   Читать дальше...   )Производст�
 ```bash
 magnet:?xt=urn:btih:A3650B4A4BD311C3AC47AA26CDBBBC25CB4387D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -106,6 +112,8 @@ magnet:?xt=urn:btih:A3650B4A4BD311C3AC47AA26CDBBBC25CB4387D5
 magnet:?xt=urn:btih:8D41A13F515B30E2E89B5773073B480A36480D30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -132,6 +140,8 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:57F94FFA013B5FB469E7AE227056FD8FCEDC8C9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +170,8 @@ Didier Marouani - Space Opera (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<El
 magnet:?xt=urn:btih:EF8E74D059D9D1D194B982BBB5F1DBBC622D4D3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +198,8 @@ Modern Talking - Ready For Romance (1987) [WavPack|192/32|tracks|Vinyl-Rip] <Ita
 ```bash
 magnet:?xt=urn:btih:72ABC07BE618FA632E5E68B9C35A4B681867409E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +228,8 @@ Rod Stewart - It Had To Be You... (2003) [DTS 5.1 44.1 /16 | .wav+.cue (DVD-Audi
 magnet:?xt=urn:btih:65056777BD045FB60FE3FDCB1F55BA33F85DD0FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +256,8 @@ Toccata In C Major, B. 564
 ```bash
 magnet:?xt=urn:btih:BD12A25ED340DB6E47FBCCF0FF80D700A77E692E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +286,8 @@ Peter Gabriel - So (1986) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
 magnet:?xt=urn:btih:4E4A3DDACCF14D0DD34F765F28D8A825540FA04C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +314,8 @@ magnet:?xt=urn:btih:4E4A3DDACCF14D0DD34F765F28D8A825540FA04C
 ```bash
 magnet:?xt=urn:btih:0692437317D1665851153A801944104FE2AB21F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +344,8 @@ A4 A Man & A Woman (From The Film Of The Same Name)(   Читать дальше
 magnet:?xt=urn:btih:76C679515133942C1C63DC9A46599E7F5DCC7DC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +372,8 @@ Dire Straits - Love Over Gold  (1982) SHM-SACD /2011/ [DSD 2.0 1bit/2822,4kHz |S
 ```bash
 magnet:?xt=urn:btih:005B58B1CAB77B63534F5A91DAE2DC521A524B85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +402,8 @@ magnet:?xt=urn:btih:005B58B1CAB77B63534F5A91DAE2DC521A524B85
 magnet:?xt=urn:btih:2B8076FFDAE30B7FA6A3E05687DE6B210D79A4BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +430,8 @@ Paul McCartney - Flowers In The Dirt (1989) [FLAC 2.0 24/192|traks(Vinyl-Rip)]<P
 ```bash
 magnet:?xt=urn:btih:64FD3AA19720C2FDDF4DABE0ADFF89CBD138FA69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +460,8 @@ Meat Loaf - Blind Before I Stop (1986) [FLAC 2.0 24/192|traks(Vinyl-Rip)]<Pop Ro
 magnet:?xt=urn:btih:3ECDF6AE8E440EE3DAE6772249E5711FD0E8A699
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +488,8 @@ Pink Floyd - The Dark Side of the Moon (1973) (Vinyl Rip 24/192) [FLAC|Lossless]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +518,8 @@ A3a I. Allegro Moderato(   Читать дальше...   )Жанр: Classical, 
 magnet:?xt=urn:btih:043DB6865AC7A3DA3B7E74CC914180D2B0C857A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +546,8 @@ A4. The Great 1974 Mining Disaster (4:38)(   Читать дальше...   )П�
 ```bash
 magnet:?xt=urn:btih:3F0AA08A7A344B5A54BBF4625937C76445773682
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +576,8 @@ A4. Man On The Prowl (3:29)(   Читать дальше...   )Производ�
 magnet:?xt=urn:btih:831CE912F07CC99C2040D0273DC663436025ED9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +604,8 @@ A4 Just Friends(   Читать дальше...   )Жанр: Rhythm & Blues, Sou
 ```bash
 magnet:?xt=urn:btih:1D8CBB97A133E7372398210D86F9DE6A5DB65E7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +634,8 @@ A4 People Need Love 2:45(   Читать дальше...   )Жанр: Vocal, Pop
 magnet:?xt=urn:btih:4BA908E30EA0636C0755049A73F492ADDF4F91EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +662,8 @@ B1. Sexy Love (3:31)(   Читать дальше...   )Жанр: Electronic, Sy
 ```bash
 magnet:?xt=urn:btih:0E11EB57202FECA161229462EE4BAEE05DFBD690
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +692,8 @@ A4 I Won't Let You Go 3:39(   Читать дальше...   )Жанр: Electron
 magnet:?xt=urn:btih:AA8454DA846AEC00CE0F963DBF39BB801C883B00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -673,6 +721,8 @@ A4 Girls 3:29(   Читать дальше...   )Жанр: Pop Rock, Indie Rock�
 magnet:?xt=urn:btih:16CE4C77D2E1CB5B3211C8D91D85230E892E4C8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -699,6 +749,8 @@ magnet:?xt=urn:btih:16CE4C77D2E1CB5B3211C8D91D85230E892E4C8F
 ```bash
 magnet:?xt=urn:btih:67EEF2AFD12F51EDB48791740FFB29622387481C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Steel Rain - уникальная инди-игра, которая в равн�
 magnet:?xt=urn:btih:C013661EF9B2A70C9577F9F02C152A8031F02D39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ My Friend Pedro - это жестокая смесь дружбы, фантаз�
 ```bash
 magnet:?xt=urn:btih:A2B79B6819D7DD34B1386A016C0106436D83E548
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ LostWinds 2: Winter of the Melodias является продолжением п
 magnet:?xt=urn:btih:4DAD7C21FD418AC80B69FCC68CA9085EB6D49F1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Evertried (2021) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:38780C138E41691FCA71FD0C92BCB2C5408A21FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Jars (2021) [Ru/Multi] (1.0.1018) License GOG
 magnet:?xt=urn:btih:E2B623A3CBE7A404E4D653F4EACE82E62083A48F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Metal Slug PC Collection (6 in 1) (1996-2003) [En] (1.0) Repack Super-Coctail
 ```bash
 magnet:?xt=urn:btih:62812F8BF4FAB4AF3E266EA185E241EDE1483680
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ VODKA (2017) [En] (1.0) Repack Other s
 magnet:?xt=urn:btih:71773AD97A742366D72C6CAAEBB199485B5B7B07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Oceanhorn: Monster of Uncharted Seas (2015) [Ru/Multi] (3.4.51.419) License GOG
 ```bash
 magnet:?xt=urn:btih:E13ED7A918D1C208515CB5CA86C253EE19FF21A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Outland — это динамичный платформер, в котором 
 magnet:?xt=urn:btih:E4D65EE35AF9CAB4482C829FA6A9DF842F8808CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Skullgirls – это быстротечная двухмерная игра-ф�
 ```bash
 magnet:?xt=urn:btih:B5361D317346F1887E354039D4AE21A6BBE846BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Flat Kingdom (2016) [En/Es] (1.01) License CODEX
 magnet:?xt=urn:btih:53AF7AC19AEE61FCA5E41CCAED3992C54587EAF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ TRON RUN/r представляет собой несколько усложне
 ```bash
 magnet:?xt=urn:btih:4182E8DC279ADE6DF7C76011417346790B9D4C89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Gryphon Knight Epic - увлекательный скролл-шутер в ср
 magnet:?xt=urn:btih:63A8DF2680C279B7EBB5AEA5A641CCFAE2001A07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Jet Set Knights - олдскульный экшен-платформер с эл
 ```bash
 magnet:?xt=urn:btih:14A5A149C69DF01E899AEAF8BFCD8FB9310F258D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Monochroma - платформенная аркада от студии Nowhere S
 magnet:?xt=urn:btih:91764A5D3E6993A4680747151A421E7193DC3AE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Caravanserail - это аркадная торговая стратегия в �
 ```bash
 magnet:?xt=urn:btih:C26C4E46AF3F66482DB100FC718767493064138F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Adventure Time: Финн и Джейк ведут следствие — нов�
 magnet:?xt=urn:btih:D2FD1E562DE0A43DA508EE04F3055C7DDA80B9DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Immortal Planet (2017) [En] (16620/upd3) License GOG
 ```bash
 magnet:?xt=urn:btih:64E3205B09435B4C3521A055E0BB9B05ADDDF7DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Where is my Brain!? (2017) [Ru/Multi] (1.0) License PLAZA
 magnet:?xt=urn:btih:435C51E8E29B8BFCD1C3AF0AD8D8B712383393F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Oceanhorn: Monster of Uncharted Seas (2015) [Ru/Multi] (3.4.51.419) License CPY
 ```bash
 magnet:?xt=urn:btih:3EEF424CA21291E2C822B4C089C47507B4F59D63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Out of Line (2021) [Ru/Multi] (1.0.1.2) License GOG
 magnet:?xt=urn:btih:5825C7D3ADF866BF91959D0E58DBFFDE868858D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Gone Viral – захватывающий игровой проект, разр�
 magnet:?xt=urn:btih:BDF984B8C6B599212AFA744815A48372758BEFBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +590,8 @@ magnet:?xt=urn:btih:BDF984B8C6B599212AFA744815A48372758BEFBE
 ```bash
 magnet:?xt=urn:btih:0AABB62BC552B45D4838BD31635A1A6750F29913
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ Hotline Miami 2: Wrong Number — это брутальное завершени
 magnet:?xt=urn:btih:6ABD4D789A24E57646BEECF10367017065E634B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ Trackmania Turbo – это невероятная смесь гоночной �
 magnet:?xt=urn:btih:BDC07C7A81D8029B7CA65A4DD515F611BECB9A57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Lara Croft GO – пошаговая головоломка, главной ге
 ```bash
 magnet:?xt=urn:btih:00C267C8E45E9B9AD744319DAF4735EC69D3E347
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

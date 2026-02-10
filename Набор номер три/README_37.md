@@ -20,6 +20,8 @@ BesTW на днях перешел рубеж 2000 релизов. Он - гла
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ BesTW на днях перешел рубеж 2000 релизов. Он - гла
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Stardew Valley (2016) [Ru/Multi] (1.6.15.24357.8705766150) License GOG (обно
 ```bash
 magnet:?xt=urn:btih:4017F7CB613059250990BAD13E1C9F9C0CB7698E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:4017F7CB613059250990BAD13E1C9F9C0CB7698E
 magnet:?xt=urn:btih:9DF92AC679FBDCF6F146FA325BA4B8E7035BD055
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:9DF92AC679FBDCF6F146FA325BA4B8E7035BD055
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ GoodbyeDPI 0.2.3rc3 Launcher 9.6 [Ru/En]
 magnet:?xt=urn:btih:B596F698A735DFF44ABA2630E1BFE684EF536AD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:B596F698A735DFF44ABA2630E1BFE684EF536AD2
 ```bash
 magnet:?xt=urn:btih:DF0EB32010592238D93A9BB94A4155BFFE374888
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:DF0EB32010592238D93A9BB94A4155BFFE374888
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:DF0EB32010592238D93A9BB94A4155BFFE374888
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:DF0EB32010592238D93A9BB94A4155BFFE374888
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ Avast Premium Security – комплексный антивирус "все-в-
 magnet:?xt=urn:btih:B8AEF17CE38C8A63C6F20E88CB607DE85359E388
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ Windows 11 Pro x64 Version 24H2 Build 26100.2605 by Igors_VL [RU]
 ```bash
 magnet:?xt=urn:btih:3DF3E92FB25F0609F566388FC70640F3799616D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:3DF3E92FB25F0609F566388FC70640F3799616D0
 magnet:?xt=urn:btih:054CBB2C71BDBA2289C2F0ADA8DE75DD60120905
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ Dan Da Dan | Дандадан [2024, TV, 12 из 12] WEBRip 720p raw
 ```bash
 magnet:?xt=urn:btih:B3BB17DC286B0B20CDB159EE1A43FF8DA80C13CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:B3BB17DC286B0B20CDB159EE1A43FF8DA80C13CC
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:B3BB17DC286B0B20CDB159EE1A43FF8DA80C13CC
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ magnet:?xt=urn:btih:B3BB17DC286B0B20CDB159EE1A43FF8DA80C13CC
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:B3BB17DC286B0B20CDB159EE1A43FF8DA80C13CC
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ State of Decay 2 (2018) [Ru/Multi] (1.3273.08/dlc) Repack Other s
 magnet:?xt=urn:btih:DFD4F6A79910D35AB8A04D28146C1A47C77977A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:DFD4F6A79910D35AB8A04D28146C1A47C77977A0
 ```bash
 magnet:?xt=urn:btih:9F2171DAAF4408E22E178166FF7DA1756038E22B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +554,8 @@ magnet:?xt=urn:btih:9F2171DAAF4408E22E178166FF7DA1756038E22B
 magnet:?xt=urn:btih:3D45739E6C45A57CD81896F4B05950AB35D58580
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ MechWarrior 5: Clans (2024) [Ru/Multi] (1.0.83/dlc) Repack Decepticon [Digital C
 ```bash
 magnet:?xt=urn:btih:3083B178800412CE1BFD2F1299FFFF6B139EBF86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ magnet:?xt=urn:btih:3083B178800412CE1BFD2F1299FFFF6B139EBF86
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:3083B178800412CE1BFD2F1299FFFF6B139EBF86
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ magnet:?xt=urn:btih:3083B178800412CE1BFD2F1299FFFF6B139EBF86
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ magnet:?xt=urn:btih:3083B178800412CE1BFD2F1299FFFF6B139EBF86
 ```bash
 magnet:?xt=urn:btih:39BAE30531BAE1D515B05B772BC4C472FEE099D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

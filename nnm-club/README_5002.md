@@ -22,6 +22,8 @@ VA - Music 80s - Collection от ALEXnROCK часть 2 (2021) [MP3|320 Kbps] <P
 magnet:?xt=urn:btih:E371BFC07551A2514ED0D9E8E81B2C7BD1A9DE1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Salt and Sacrifice - хардкорный экшн-платформер, вдо�
 ```bash
 magnet:?xt=urn:btih:6E0EF1E095BC1373EE21D833E5FBF55A4A802B92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Quake II — компьютерная игра в жанре шутера от �
 magnet:?xt=urn:btih:D310182D7E19DD6AA4BCACC1900A3B7E880246D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Dism++ - утилита предназначена для продвинутых
 magnet:?xt=urn:btih:ACB070DB887BDD07BB171E9B2EFC57A7CD70B5B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:ACB070DB887BDD07BB171E9B2EFC57A7CD70B5B2
 ```bash
 magnet:?xt=urn:btih:40DE80BBCF0CC2C5397DA1D4BC6DB6AE224C5CFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:40DE80BBCF0CC2C5397DA1D4BC6DB6AE224C5CFE
 magnet:?xt=urn:btih:353BAAA86E2D7B02B3046AF847A9D4D00725F5EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ John Coltrane - Blue Train (1957) Remaster, 2014, Universal[FLAC|Lossless|tracks
 magnet:?xt=urn:btih:51D24C9029E54402E48E1D3D303C6C33855AB068
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ Cubebrush, Marc Brunet | Character Concept for Video Games (2014) PCRec [En, Ru]
 magnet:?xt=urn:btih:C2871F94A73C90F900B671375416359FF7389242
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:C2871F94A73C90F900B671375416359FF7389242
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:C2871F94A73C90F900B671375416359FF7389242
 magnet:?xt=urn:btih:4D98315D4949CDAB7FAE80988C4C69EB48E0FAD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:4D98315D4949CDAB7FAE80988C4C69EB48E0FAD0
 magnet:?xt=urn:btih:8550DEEC7C04210843C8C3577611E7C1CC0AD37B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:8550DEEC7C04210843C8C3577611E7C1CC0AD37B
 ```bash
 magnet:?xt=urn:btih:9E3BB7B324203FABE9133C8253CEEB0E3EE5C43C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ Nik Complete 2 Collection by DxO 2.3.1 [Multi/Ru]
 magnet:?xt=urn:btih:188BE8FBCE038D75BF33840036F181A5A6728A7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:188BE8FBCE038D75BF33840036F181A5A6728A7D
 ```bash
 magnet:?xt=urn:btih:1A06EDA7B3F3376639596C6C2D99D89240092493
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:1A06EDA7B3F3376639596C6C2D99D89240092493
 magnet:?xt=urn:btih:6279DFDA4858F6B1CF9522ADC8DE637CBB1D97BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:6279DFDA4858F6B1CF9522ADC8DE637CBB1D97BE
 ```bash
 magnet:?xt=urn:btih:E2DFCCBF6F9DE6C8B9C721C0F6D475C052F85C91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:E2DFCCBF6F9DE6C8B9C721C0F6D475C052F85C91
 magnet:?xt=urn:btih:7ADDB1D16FA47B2F56A7B94504DF21361D0AFCE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:7ADDB1D16FA47B2F56A7B94504DF21361D0AFCE3
 ```bash
 magnet:?xt=urn:btih:C3C92FECEAB3A4D723A898ADF414ACC364CA83DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ Ocenaudio — аудио-редактор, распространяемый ав
 magnet:?xt=urn:btih:279B323DFE10D66828D95639B943A89129388843
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:279B323DFE10D66828D95639B943A89129388843
 ```bash
 magnet:?xt=urn:btih:04E56BAC00FB8CFB7F3022FB1284DC6343A1F877
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:04E56BAC00FB8CFB7F3022FB1284DC6343A1F877
 magnet:?xt=urn:btih:E88326516E59232A0673F8B79A131A3B2EAB5CDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ Iris.Fall – приключенческая головоломка, выпол�
 ```bash
 magnet:?xt=urn:btih:D496B5672699090DBAB294B803302881A2B0A332
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:D496B5672699090DBAB294B803302881A2B0A332
 magnet:?xt=urn:btih:C3E0F447568BB5B106C702BF807C436CC269ADC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ Ceiba (2023) [Ru/En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:A5BC872892AFAC0A4429D69CF4BAD22538F58429
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:A5BC872892AFAC0A4429D69CF4BAD22538F58429
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +684,8 @@ magnet:?xt=urn:btih:A5BC872892AFAC0A4429D69CF4BAD22538F58429
 ```bash
 magnet:?xt=urn:btih:84F06FAA434E361E2BBC8E07A04284546974F595
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

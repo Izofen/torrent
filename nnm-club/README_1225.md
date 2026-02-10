@@ -19,6 +19,8 @@ Talking Translator / Говорящий переводчик v2.7.5 Mod by Alex.
 magnet:?xt=urn:btih:6D92B6324757696007E22496ADBE2D30738C9DEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:6D92B6324757696007E22496ADBE2D30738C9DEB
 magnet:?xt=urn:btih:DC6CB4A464F6D7BC58CFE5AEEF356001806AAE38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ On Your Tail (2024) [Multi] (1.0.1) Repack FitGirl [Deluxe Bundle]
 ```bash
 magnet:?xt=urn:btih:8D80D7D5E37DCA52495914FB2E5EC6507BCD3B55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ All Language Translate App v3.4 Premium Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D42B206DD41618ABE92A155A9ECEFDE1B01413D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:D42B206DD41618ABE92A155A9ECEFDE1B01413D7
 magnet:?xt=urn:btih:BF944C11C8BCFEC6AAFA746D6A65078130EC7B61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:BF944C11C8BCFEC6AAFA746D6A65078130EC7B61
 magnet:?xt=urn:btih:94A7B883CAE7EE4DBD600D1A67EC305FF79C084E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:94A7B883CAE7EE4DBD600D1A67EC305FF79C084E
 ```bash
 magnet:?xt=urn:btih:16A78946606FD44E037602CE886AB4A56B9C6EE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ John Sokoloff - Дискография (1993-2024) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:BD8B07BED810F183D08B6559FB878DBEF91355A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:BD8B07BED810F183D08B6559FB878DBEF91355A7
 ```bash
 magnet:?xt=urn:btih:7405A2D3493BFF4BC5E65961483B90C4DACAD723
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:7405A2D3493BFF4BC5E65961483B90C4DACAD723
 magnet:?xt=urn:btih:1D05E934C9B29FFC7662B4EA2776EDC9F1049A28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:1D05E934C9B29FFC7662B4EA2776EDC9F1049A28
 ```bash
 magnet:?xt=urn:btih:2570EEC5E03DBA109021554AC5C9FEE451684F5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:2570EEC5E03DBA109021554AC5C9FEE451684F5B
 magnet:?xt=urn:btih:D4D5BFEA2D03555F715280E87ADC472F26DC420F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ XXIII век. В таинственных и малоизведанных глу
 ```bash
 magnet:?xt=urn:btih:937400217783042256E69B129539F1E73A2ADDB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ Udemy, Bogdan Stashchuk | MongoDB - Полный Курс по MongoDB (2024) WE
 magnet:?xt=urn:btih:3B82C8AD4939DBB7B79260D78BDA028690B76C0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:3B82C8AD4939DBB7B79260D78BDA028690B76C0C
 ```bash
 magnet:?xt=urn:btih:ED7295E9F0C0BC6063CA16B6BA46F71558604762
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:ED7295E9F0C0BC6063CA16B6BA46F71558604762
 magnet:?xt=urn:btih:623F70DBBC5052C2FF60401C1FF0E2EED166E8B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:623F70DBBC5052C2FF60401C1FF0E2EED166E8B5
 ```bash
 magnet:?xt=urn:btih:11BAE5ECDB76885F23BFDC1370BE6917D373416F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:11BAE5ECDB76885F23BFDC1370BE6917D373416F
 magnet:?xt=urn:btih:A80FA7BC79B2D7AE116DC86B3CD3391FAE4AD9CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:A80FA7BC79B2D7AE116DC86B3CD3391FAE4AD9CC
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:A80FA7BC79B2D7AE116DC86B3CD3391FAE4AD9CC
 magnet:?xt=urn:btih:E38A6BCC81BF08976AB097243D3C29C73435A0DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ The Ghost Treasure / Призрачные сокровища (2024) [Ru/Multi] (
 ```bash
 magnet:?xt=urn:btih:902641821B8EFC506B5CF6AC280BE2775EEA3DC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ VA - Свежий Русский Хит от ALEXnROCK часть 17 (2025) [MP3
 magnet:?xt=urn:btih:8F2FE44BA1FFC8913C06E44494A0D63D294760DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:B2F40B91C4E3E6269808E456A9B9B6F59ADF35BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:B2F40B91C4E3E6269808E456A9B9B6F59ADF35BC
 magnet:?xt=urn:btih:CDB2639C1F28893482E79F62267C153E4A269DF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:CDB2639C1F28893482E79F62267C153E4A269DF2
 magnet:?xt=urn:btih:2FD0910E211B1546B69E2D886E82CB3387C7A478
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:2FD0910E211B1546B69E2D886E82CB3387C7A478
 ```bash
 magnet:?xt=urn:btih:292863A8673EF3E3B8F570E2C77856DE73D4C78E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

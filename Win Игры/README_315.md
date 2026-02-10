@@ -19,6 +19,8 @@ Narcos: Rise of the Cartels (2019) [Ru/Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:9ADFFB1DEF21ED8E7B3062E79D0B4B74C9283EBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Treasure Hunter Simulator (2018) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:703CAA7C41927B02654AA347F2E432DFBCDB11CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Rocket League - это аркадный проект, который сочет�
 magnet:?xt=urn:btih:CF8427E8ED4817EDEDC41233EBA123BC3B87B63D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Iris.Fall – приключенческая головоломка, выпол�
 ```bash
 magnet:?xt=urn:btih:752602842CFFBA54E877C8637DF52E64B1789186
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Resident Evil  рассказывает всю правду о происшес�
 magnet:?xt=urn:btih:7732563CA243D798E1A205E1CE44DE085775FF97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Hello Neighbor — игра в жанре хоррор, в которой игр
 ```bash
 magnet:?xt=urn:btih:6EF476B0D2882D7FACA1D83F6016B943ADB6BABE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Double Dragon: Neon (2014) [Ru/En] (1.0) Repack R.G. Catalyst
 magnet:?xt=urn:btih:F8120D0DF055B07B673DA4E27E3070164A54AB39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Testament of Sherlock Holmes / Последняя воля Шерлока Х
 ```bash
 magnet:?xt=urn:btih:97491B6FB67C6E211711DAF3A9580701E7552667
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Sherlock Holmes versus Jack the Ripper / Шерлок Холмс против Д
 magnet:?xt=urn:btih:8A74F6E72F8FB2F4D0C9B6F8F1966A4D2F58A7DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Christmas Stories 7: Alice's Adventures (2018) [En] (1.0) Unofficial [Collector'
 ```bash
 magnet:?xt=urn:btih:C02F51F441409C1C5B9FAE4BBC546A46E1481D5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ D1896 — это платформер приключенческого боев�
 magnet:?xt=urn:btih:2901BF93A5ABD27FCDD6CF692FA5A2FB4ABF077D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ What Remains of Edith Finch – сборник странных рассказо
 ```bash
 magnet:?xt=urn:btih:81504725E02CCAFCF04F5218BCF6CDEF9730C49D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Two Point Hospital - симулятор работы медицинского у
 magnet:?xt=urn:btih:1BA3CE1F8AFBE63873A048067504109AF563E319
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Frosty Nights — красивая рождественская игра-стр�
 ```bash
 magnet:?xt=urn:btih:CDC61A92A34B2C9514415ECB3F7E8E8EDD0E662C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Frosty Nights — красивая рождественская игра-стр�
 magnet:?xt=urn:btih:70D9CE760B9DE756D45EF7A292343A4828E85005
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Surface 12. Project Dawn / Внешние пределы 12: Проект "За�
 ```bash
 magnet:?xt=urn:btih:80F4DBF564C72D853AB97DA8E6D0718A5D13029B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Mystery Case Files 16: The Revenants Hunt / За семью печатями: Р
 magnet:?xt=urn:btih:BC151D3FFAED3B2DB445C98022D48AF85699C173
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Royal Detective 6: The Last Charm / Королевский детектив 6: �
 ```bash
 magnet:?xt=urn:btih:D7176A2FF7EB3C853BAD8D76583E5F62AD71E474
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ OVERKILL’s The Walking Dead — энергичный кооперативны�
 magnet:?xt=urn:btih:E2C16433FFFD69BD0C0A3AE222FD37633675CBC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The Council — ни на что не похожая эпизодическая 
 ```bash
 magnet:?xt=urn:btih:D43B35232C6003E9F07F80A7583DF116DCC6E64C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Beholder 2 (2018) [Ru/En/Ch] (1.0) Repack xatab
 magnet:?xt=urn:btih:69EBDD3475F27670633B430F7EB0DA301F2160B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Umfend (2018) [Ru/Multi] (1.0F) Repack Other s
 ```bash
 magnet:?xt=urn:btih:0F59E9B7E3D8ECA30E1E41C16D5DD1E69DEB530E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ R2 Online — многопользовательская игра в жанре 
 magnet:?xt=urn:btih:C2EFEB65569E151A5718DAF972A247F518BD77AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Dark City 2: Munich / Мрачный город 2: Мюнхен (2018) [Ru] (1.0
 ```bash
 magnet:?xt=urn:btih:0129B994A9DD139694C20287C02113724E6AF92F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Fictorum (2017) [En] (2.0) License GOG
 magnet:?xt=urn:btih:21B3A60FC76CDD6A3FD69982FF57D3F343152E4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ The Unseen Fears 3: Last Dance (2018) [En] (1.0) Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:CB231EF5805AC2E42763484B4C0C974D27194276
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

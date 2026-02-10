@@ -1,3 +1,32 @@
+###  Публикация: 1492326   (903772) от 29.08.2021
+
+VA - Kings Of The Blues (2021) [MP3|320 Kbps] <Blues, Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robert Nighthawk - Black Angel Blues (02:59)
+ 02.  Elmore James - Dust My Broom (02:55)
+ 03. Otis Rush - I Can't Quit You Baby (03:18)
+ 04. Little Rain - Jimmy Reed (Compiled by Stones Rick) (03:22)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 04:20:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13A62A20BA7E09C1FDCEECC591E95AD73C4BA27C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991911   (904047) от 29.02.2016
 
 VA - Collection Rock (2016) [MP3|320 кб/с] <Rock, Pop-rock, Folk-rock>
@@ -21,6 +50,8 @@ VA - Collection Rock (2016) [MP3|320 кб/с] <Rock, Pop-rock, Folk-rock>
 ```bash
 magnet:?xt=urn:btih:D4E87CEEB116F09030CEBD538FBE169417536964
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Blues Forever vol.29 - vol.32 (2015) [MP3|320 кб/с] <Blues>
 magnet:?xt=urn:btih:EE3E9CD83A0E7ACE36EEC10D113CD0EC5AB8781D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - 100 Hits Dance DFM (2016) [MP3|256 кб/с] <House, Pop, Dance, RNB, House>
 ```bash
 magnet:?xt=urn:btih:383D343F24F5AFEDF4433E993122BC647ADE0A1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +144,8 @@ VA - Real Disco (2013) [MP3|320 кб/с]<Disco, Eurodisco, Pop>
 magnet:?xt=urn:btih:EC941EDC7CE7C383FFB87509A523DAC40C672110
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +172,8 @@ VA - Новинки С  Разных Популярных MP3 сайтов Вы�
 ```bash
 magnet:?xt=urn:btih:AB19D1A1CF873388ECBAEA9C34A6641B9AF16638
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +202,8 @@ VA - Relaxed Guitar Chillout: Selected Summer Lounge Music (2016) [MP3|320 кб/
 magnet:?xt=urn:btih:5AF1FACCDBDF4015966920CC00229BDD7531095F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +230,8 @@ VA - Chillstep Master Pack (2016) [MP3|266-320 кб/с] <Chillstep, Dubstep>
 ```bash
 magnet:?xt=urn:btih:DCB12ABAD00170C728B81D2A32E910D42A1D49C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +260,8 @@ VA - Блатная жизнь с радио Шансон. Выпуск 6 (2016)
 magnet:?xt=urn:btih:302088CBFABEF52632AB5FD9504B5D2290CE481F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +288,8 @@ VA - Душевные песни радио Шансон (2016) [MP3|256 кб/с
 ```bash
 magnet:?xt=urn:btih:5E86EB8B20ECA0DCE2F58FC81C2563E3938F3FA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +318,8 @@ VA - Bass Attack: Great Compilation (2016) [MP3|320 кб/с] <Drum And Bass, Dub
 magnet:?xt=urn:btih:5C61DDAC85E367F1677119310C70E1E287E4AEE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +346,8 @@ VA - Trance Traveling 74 (2016) [MP3|320 кб/с] <Trance>
 ```bash
 magnet:?xt=urn:btih:E3FDC149F2B903F5F1D9139A0FC8B332FB4F4EC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +376,8 @@ VA - Blonde Pleasures: 25 Sexy Relaxing Anthems (2016) [MP3|320 кб/с] <Downte
 magnet:?xt=urn:btih:84354441F417ED850B9C664ADF3D22A64598A018
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +404,8 @@ VA - Теплая атмосфера на радио шансон (2016) [MP3|25
 ```bash
 magnet:?xt=urn:btih:E6AACDBB8E92E1326AEBC14F0C2F2ED484A3E683
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +434,8 @@ VA - На Волне Шансона (2016) [MP3|256-320 кб/с] <Shanson>
 magnet:?xt=urn:btih:E4D3EAFC91D0CCF7432D420E98F1C64825E79EDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +463,8 @@ VA - Dancefloor Hits State Tribute (2016) [MP3|258-320 кб/с] <House, Tropical
 magnet:?xt=urn:btih:3F76924F3EB1BCAE01C29EAA1D0CDCFFD25BF9C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +491,8 @@ VA - Top Lounge Moments (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:B03409A6E5E9ED59617132FE4503F16A16D8C8BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +525,8 @@ VA - Exotik Lounge (2013) [MP3|320 кб/с]<Lounge, Chillout>
 magnet:?xt=urn:btih:76E7C2BBC0279DBAA34DA985DDB93F597785EBC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +553,8 @@ VA - Radio DFM: Top D-Chart [21.03] (2020) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:B0734CF4009A5D43430B883C2D9868666E35D496
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +583,8 @@ VA - Shake That House Vol. 5 (2016) [MP3|320 кб/с] <House, Electro House Danc
 magnet:?xt=urn:btih:67E3B120056AF91BF7AB608E2ECB84A443B1D88E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +611,8 @@ VA - The Best of Deep Forest and Projects (2017) [MP3|160-320 Kbps] <New Age, En
 ```bash
 magnet:?xt=urn:btih:549328AB0477C03BF120E0A447E901444FF5E1F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +641,8 @@ VA - Best Of Classic Music (2016) [MP3|320 Kbps] <Classical>
 magnet:?xt=urn:btih:4C8C384CAF3FE2505DB5D337C6307730F63554CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +669,8 @@ VA - Автозвук. Отборный зимний хит. Версия №3 (
 ```bash
 magnet:?xt=urn:btih:8A6B4E5C835665D8545C0114AB8FE8A508ECF294
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +699,8 @@ VA - Old & New Style Of Italo Disco From Ovvod7 - 2019 (01-30) (2019) [MP3|192-3
 magnet:?xt=urn:btih:DD48A5CD8D33DC0E71B2C3C6A1835138512E90F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +727,8 @@ VA - Beatport Ambient: Electro Sound Pack #29 (2020) [MP3|320 Kbps] <Ambient, Do
 ```bash
 magnet:?xt=urn:btih:04CAE110AE9A4766E8BA667F7396081DC100E960
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -680,32 +757,7 @@ VA - Звездная вечеринка. Выпуск №10 (2017) [MP3|256 Kbp
 magnet:?xt=urn:btih:F0D165242B3B49F56262BBE19B807AFAE93D54C7
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099486   (904936) от 01.02.2017
-
-VA - Музыкальные новинки. Only Best Hits. Версия № 8 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904936.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Olisha - Не Трави 3:53
-002. Bruno Mars - Versace On The Floor 4:21
-003. Dельфина - Привет От Одиноких 3:44
-004. Dnce - Naked 3:56(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:778722837AC3226E4CB831CB80D712EF6777A711
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

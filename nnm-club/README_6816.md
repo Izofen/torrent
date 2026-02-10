@@ -22,6 +22,8 @@ Onmyo-Za - Fuujin Kaikou (2014) [WavPack|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:F025CC9A438C2F1547A82D6450C32C7468717A0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:F025CC9A438C2F1547A82D6450C32C7468717A0D
 ```bash
 magnet:?xt=urn:btih:A4A586428A06D882BFBB15D29AC5FD2C8BF8DF13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:A4A586428A06D882BFBB15D29AC5FD2C8BF8DF13
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ InfoCity - Азербайджанский ежемесячный журнал о
 ```bash
 magnet:?xt=urn:btih:9DDA7D32024D5BEDC43057EE672550560941D1A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Everyone Piano 2.5.7.28 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:582E7445D6FA216276B363B5EAB9F4B81F964C8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:582E7445D6FA216276B363B5EAB9F4B81F964C8B
 magnet:?xt=urn:btih:28735A8C0BE73057B5DB4866CCF11D021852ED53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Udemy, Imran Teli | DevOps Beginners to Advanced | Decoding DevOps with Projects
 ```bash
 magnet:?xt=urn:btih:B230A916D1C5CAB086944842895EC36320C72E70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:B230A916D1C5CAB086944842895EC36320C72E70
 magnet:?xt=urn:btih:652CB0CC07E55FBC3ECBB9540B4B4E0E3D0FE9EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:652CB0CC07E55FBC3ECBB9540B4B4E0E3D0FE9EA
 ```bash
 magnet:?xt=urn:btih:1C75DD3FAFC9BE502E29EEC2223275D3648BDF3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:1C75DD3FAFC9BE502E29EEC2223275D3648BDF3E
 magnet:?xt=urn:btih:AAD346B37CAB3BEA75BA59E14C2AB7013DDD8D57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Realtek Ethernet Driver 11.11.1206 | 10.63 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:7ACF9BCABB5EC677C223FFAE089263E395BA3554
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:7ACF9BCABB5EC677C223FFAE089263E395BA3554
 magnet:?xt=urn:btih:F710E4E434C4320FCEBD6A4D26F15EBD6946A5C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Jos Dirksen | Learn Three.js: Program 3D animations and visualizations for the w
 ```bash
 magnet:?xt=urn:btih:6641E0B36AAFB336E25F68E11DD846FBF91DE04E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ Windows Update Viewer 0.5.17.0 + Portable [En]
 magnet:?xt=urn:btih:8356B1D5A450EECF4203D015C946329D26826070
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:8356B1D5A450EECF4203D015C946329D26826070
 ```bash
 magnet:?xt=urn:btih:9A9FA22DB8B8A3449EFB6E113E3653076B70A4CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ Voice v4.0.16 [Ru/Multi]
 magnet:?xt=urn:btih:3CE7EFD73BCB0AE07278F0F399E7E85DC20799AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ Eric Clapton - Rarities 2001-2010 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Bl
 magnet:?xt=urn:btih:9B893F1EBB065ED5BD9D3CBC1437D79C18DE6529
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:9B893F1EBB065ED5BD9D3CBC1437D79C18DE6529
 ```bash
 magnet:?xt=urn:btih:F21AF049D8D73A5162DA6A93B3B2F2B01D44B390
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:F21AF049D8D73A5162DA6A93B3B2F2B01D44B390
 magnet:?xt=urn:btih:B871174F891D7A1C6EEABE203A08D7EC775601D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ magnet:?xt=urn:btih:B871174F891D7A1C6EEABE203A08D7EC775601D3
 magnet:?xt=urn:btih:2A46BCACFB4C220AE32CD2679C67B358BCFBBA2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ Opera One 101.0.4843.43 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:58B4606E5A21CB8DD51DDF8E6D2E1D407217FC6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ CD-03 - Recorded without an audience at the Honolulu International Center Arena,
 magnet:?xt=urn:btih:036235C8946FEDA387F3E946C6E12AEDD8A6B774
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:036235C8946FEDA387F3E946C6E12AEDD8A6B774
 ```bash
 magnet:?xt=urn:btih:4B18E1E607FD0FE0813C50AADE7B8A1812134649
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +639,8 @@ Pink Floyd - Animals (1977) 2022 -2018 remix- [DTS 5.1 CD-DA|44.1/16|image+.cue|
 magnet:?xt=urn:btih:127CDF97A90F7FD66922A913A2479369EB29753C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +666,8 @@ magnet:?xt=urn:btih:127CDF97A90F7FD66922A913A2479369EB29753C
 magnet:?xt=urn:btih:26CAE2EAF7E2A11EAC272AA92D7CFF2117DA5E17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ magnet:?xt=urn:btih:26CAE2EAF7E2A11EAC272AA92D7CFF2117DA5E17
 ```bash
 magnet:?xt=urn:btih:3C52273BECD3606BCBC5CF244E468161DCB70FD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Atlantis Word Processor 4.4.0.4 Repack (& Portable) by elchupacabra [Ru/En]
 magnet:?xt=urn:btih:7B81EF9C0D7FFFBCED76F412C5310F5D628DE85C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ VA - Русская 30-ка хитов 7 (Новые русские песни) 
 magnet:?xt=urn:btih:3C54C029B90CE088DB4E20E1F724E8D4FB7D9F9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:3C54C029B90CE088DB4E20E1F724E8D4FB7D9F9F
 magnet:?xt=urn:btih:9DD92446A35FFADAB3F64FD2D859371A08183861
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:9DD92446A35FFADAB3F64FD2D859371A08183861
 magnet:?xt=urn:btih:4F9A9B8BF1EEA99828F7608F57AD329CEC3E6314
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ DVDFab StreamFab — это удобный и мощный инструмент 
 ```bash
 magnet:?xt=urn:btih:8DD56AA52EB768584E95A80ACE7824FD2DEB3A01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:8DD56AA52EB768584E95A80ACE7824FD2DEB3A01
 magnet:?xt=urn:btih:67200A3F2BC3209122A43A5A4F69BADBB2273DC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:67200A3F2BC3209122A43A5A4F69BADBB2273DC9
 magnet:?xt=urn:btih:3A43642A485DC7BE5F5216C2FDD5C474196AEFCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:3A43642A485DC7BE5F5216C2FDD5C474196AEFCB
 ```bash
 magnet:?xt=urn:btih:5FD6AD5B125F77416478D8392113A15E6B165A5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ VA - Лучшая дискотека шансона -16 (2024) (2024) [FLAC|Loss
 magnet:?xt=urn:btih:6084BAC668FA828EFD06AA12A4492D46D8B4D24C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ DVDFab – мощный, многофункциональный программ
 magnet:?xt=urn:btih:4376FB5E33C9A25763A44CC62948477EAC52F578
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ Glary Utilities - комплексный набор инструментов д�
 ```bash
 magnet:?xt=urn:btih:CAB421A27DBDAB699E9E32DA69FB4D0060916E28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:CAB421A27DBDAB699E9E32DA69FB4D0060916E28
 magnet:?xt=urn:btih:D4F845DC523ADA481D46D005F8BCE29D9BA92472
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:D4F845DC523ADA481D46D005F8BCE29D9BA92472
 ```bash
 magnet:?xt=urn:btih:7A119B3E75C68E979010EC544A27E0DBBA2FCB6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ VA - Новый Хит- 8 (Лето 2024) (2024) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:140ACFAECC416CDA2231E14DC9965069AC615B9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ VA - Свежачок Лето-2 (2024) (2024) [FLAC|Lossless|WEB-DL|tracks] <Ш
 ```bash
 magnet:?xt=urn:btih:9B54AD4033BBF97BCA72517AE18A1C19BF1C164B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +429,8 @@ CD-1 Wake Up The Wicked (Deluxe Version)
 magnet:?xt=urn:btih:85334BB05BA74C15BE4EBBA4C33F5CB53E247511
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ Vampire in the Garden | Вампир в саду [2022, Web, 5 из 5] WEB-DL 10
 ```bash
 magnet:?xt=urn:btih:FB3C04173DBA0B5AA1FA8CD184648E052EE8423C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:FB3C04173DBA0B5AA1FA8CD184648E052EE8423C
 ```bash
 magnet:?xt=urn:btih:D1302876E860A6F2B04213A3F5C853AB94EE555F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +511,8 @@ VA - Yesterday's Top Hits: Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:897996C3561835CAAD0A380ADC8B3CC0D65D099C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +537,8 @@ magnet:?xt=urn:btih:897996C3561835CAAD0A380ADC8B3CC0D65D099C
 magnet:?xt=urn:btih:A6A32C509EC3F5AE58E7F65A8752DC1E723A6D98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ magnet:?xt=urn:btih:A6A32C509EC3F5AE58E7F65A8752DC1E723A6D98
 ```bash
 magnet:?xt=urn:btih:FEBD96B782E784E65E04B151440DB133F481C8F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +591,8 @@ magnet:?xt=urn:btih:FEBD96B782E784E65E04B151440DB133F481C8F9
 magnet:?xt=urn:btih:2B0ABCA8895A2E3C056BBE22E97982783B128F86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ magnet:?xt=urn:btih:2B0ABCA8895A2E3C056BBE22E97982783B128F86
 ```bash
 magnet:?xt=urn:btih:0B30FB5481E6D90E4343135774D0DBC03DC25E55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +646,8 @@ magnet:?xt=urn:btih:0B30FB5481E6D90E4343135774D0DBC03DC25E55
 magnet:?xt=urn:btih:C28EDD2018E2239337AFB8EEDE1996C579ACCB48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +671,8 @@ magnet:?xt=urn:btih:C28EDD2018E2239337AFB8EEDE1996C579ACCB48
 ```bash
 magnet:?xt=urn:btih:1D11DE8733A4A051299911F6D8F6BD6222DB65CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +699,8 @@ magnet:?xt=urn:btih:1D11DE8733A4A051299911F6D8F6BD6222DB65CD
 ```bash
 magnet:?xt=urn:btih:79C5E783BB895C245A0D6639535B85C4978C9E00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -21,6 +21,8 @@ Crime Life: Gang Wars / Crime Life: Уличные войны [Ru/En] (Lossless 
 magnet:?xt=urn:btih:FF3BEFB085509B4F1D7A93F41B289C5D48BFBDB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:FF3BEFB085509B4F1D7A93F41B289C5D48BFBDB4
 ```bash
 magnet:?xt=urn:btih:010E5EB9CB938A21CC5B878E19F4DFF15F8DD9E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -78,6 +82,8 @@ CD1 (00:53:15):
 magnet:?xt=urn:btih:50D1E88F21DCC93608EED43776CEEE008CFD198B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:50D1E88F21DCC93608EED43776CEEE008CFD198B
 magnet:?xt=urn:btih:18D4EE320CE615A9C0B20FD719D6480EFA1D7373
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:18D4EE320CE615A9C0B20FD719D6480EFA1D7373
 ```bash
 magnet:?xt=urn:btih:6CCD7B81FCCA1ED3AFB406992C5E67F299BDD6FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:6CCD7B81FCCA1ED3AFB406992C5E67F299BDD6FB
 ```bash
 magnet:?xt=urn:btih:1772C51B9DAB40A857F0FD51F1E8FFD7B54F4258
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -180,6 +192,8 @@ magnet:?xt=urn:btih:1772C51B9DAB40A857F0FD51F1E8FFD7B54F4258
 magnet:?xt=urn:btih:6B55ADD1991DF81CFEDD48BDF08B338D098EB76F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ magnet:?xt=urn:btih:6B55ADD1991DF81CFEDD48BDF08B338D098EB76F
 ```bash
 magnet:?xt=urn:btih:0C5FCBE743886EF9013BF1AC273683771323C16B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +245,8 @@ magnet:?xt=urn:btih:0C5FCBE743886EF9013BF1AC273683771323C16B
 magnet:?xt=urn:btih:97C70FC6E531929FF757240621C481EADA6217C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ Command & Conquer 3: Tiberium Wars Kane Edition + Kane's Wrath [Multi3] (L) 2007
 magnet:?xt=urn:btih:1206C5C7A4B19FA81FEACFF5EEE56C90CE9A3D4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ Oblivion Association - огромный фанатский проект по с�
 ```bash
 magnet:?xt=urn:btih:11A1F38CE4155920EF8F99E2178DC03E68654A6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +332,8 @@ magnet:?xt=urn:btih:11A1F38CE4155920EF8F99E2178DC03E68654A6F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +357,8 @@ magnet:?xt=urn:btih:11A1F38CE4155920EF8F99E2178DC03E68654A6F
 ```bash
 magnet:?xt=urn:btih:C07BCF8A6C89D6AB965287D95E95FBFFD057863B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +393,8 @@ VA - Disco Remix DJ (2012) [MP3|320 kbps]<Disco | Dance | Club>
 magnet:?xt=urn:btih:E46B0476A87C683A2CE4B53348284DA1F6A5E59E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +418,8 @@ Windows 7 SP1 x32 x64 Combined Images By StartSoft v 18.4.12 [Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +445,8 @@ Chaser / Chaser: Вспомнить все [Ru] (RePack) 2003 | Pilotus
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +476,8 @@ Chaser / Chaser: Вспомнить все [Ru] (RePack) 2003 | Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +502,8 @@ Men of War: Condemned Heroes / Штрафбат [Ru] (RePack) 2012 | Fenixx
 ```bash
 magnet:?xt=urn:btih:E8E8F98F5239CB2D1AFFAF887E5D90F30FA5EC66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +531,8 @@ Gran Turismo 4 Prologue [Multi5] (RePack/Emul) 2004 | MarkusEVO
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +556,8 @@ Gran Turismo 4 Prologue [Multi5] (RePack/Emul) 2004 | MarkusEVO
 ```bash
 magnet:?xt=urn:btih:F6F257ABE11FCB71501D4C51A1641585915A04B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +584,8 @@ magnet:?xt=urn:btih:F6F257ABE11FCB71501D4C51A1641585915A04B9
 magnet:?xt=urn:btih:9EC6EEE47676BAB66397F4E1C4A95C149AB62247
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +611,8 @@ Cannon Fodder 3 – тактический экшен, унаследовавш�
 ```bash
 magnet:?xt=urn:btih:5817D0D686273AA7316FFEAF088FC4560378FF3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +644,8 @@ magnet:?xt=urn:btih:5817D0D686273AA7316FFEAF088FC4560378FF3A
 magnet:?xt=urn:btih:602959FEA2274F78C93DF1E5C1F6597C49A108B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +670,8 @@ magnet:?xt=urn:btih:602959FEA2274F78C93DF1E5C1F6597C49A108B4
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +695,8 @@ magnet:?xt=urn:btih:602959FEA2274F78C93DF1E5C1F6597C49A108B4
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -680,6 +730,8 @@ Michel Teló - Na Balada (2011) [MP3|320 кб/с]<Pop Folk / Sertanejo / World>
 ```bash
 magnet:?xt=urn:btih:9415CF1EA6D76802DCFAA133426BA20E85836025
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

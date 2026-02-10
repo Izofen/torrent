@@ -19,6 +19,8 @@ Discolored 2 (2025) [Ru/Multi] (1.0) Repack seleZen
 magnet:?xt=urn:btih:1074A1CF90483651A9301F340C7E69B0587C41FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Thank Goodness You're Here! (2024) [Ru/Multi] (1.6.1) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:5D84FF15766ADF0931B890AA412CCD500AD11A2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Cartier 06 (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:0CB54C97305E8869338F1F7F932B41FE0BD918FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Nine Sols (2024) [Ru/Multi] (202501031718.687084df.0) Repack Wagner
 ```bash
 magnet:?xt=urn:btih:176529A490427C9BF0FDA6F18C36015150563949
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Milo and the Magpies (2021) [Ru/Multi] (1.0) License GOG
 magnet:?xt=urn:btih:8BC234BF9679CA33FEE45FFC0A6C06226684AAEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Night Shift Nurses (2024) [Multi] (1.0.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:9C956EADF704C00700F982CA12D988DBF52B0944
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Night Shift Nurses (2024) [Multi] (1.0.0) Scene Tenoke
 magnet:?xt=urn:btih:48CF2287B51AA7576FAB17D37EF407D060470E86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Never Alone / Kisima Ingitchuna (2014) [Ru/Multi] (build 16726002) Repack dixen1
 ```bash
 magnet:?xt=urn:btih:4D6443F0B0434493BB9A81B089B96D3C455E5CCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Conscript (2024) [Ru/Multi] (107/dlc) License GOG
 magnet:?xt=urn:btih:4B0E010C3600810413CA15CE3EC825E92EF03674
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Joyville 2 - это хоррор-головоломка от первого ли
 ```bash
 magnet:?xt=urn:btih:9516A6FBBD3EE39027B700DBF43612D3D4D1B9E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ DREAMERS позволит тебе погрузиться в увлекател�
 magnet:?xt=urn:btih:468DDC91D00E89DE573171320E46910FA85C6236
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Everybody's Gone to the Rapture (2016) [Ru/Multi] (1.01 Build 1197371) Repack Le
 ```bash
 magnet:?xt=urn:btih:C2C595D88A4438E415DB584A31C7C273048F180E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Satellite odyssey: Рrologue - открывающая часть серии иг
 magnet:?xt=urn:btih:339890C04B7ADD981ED192F0BB82489D447F884F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ The House of Da Vinci 3 (2022) [Ru/Multi] (Build 10591427) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:28950A3CEF5F867CDA0C931C9DC2334159958231
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The House of Da Vinci (2017) [Ru/Multi] (Build 5703690) Repack Let'sРlay
 magnet:?xt=urn:btih:639AD88E5BCA31E16900B1B21649FDC0A6000FDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The House of Da Vinci 2 (2020) [Ru/Multi] (Build 6381373) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:0EFE39ADDBF2C165B9693EED635EED7EBC038C4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Go Home Annie (2024) [Ru/Multi] (1.0.23) Repack FitGirl
 magnet:?xt=urn:btih:74F6EB108E76C83DE94C55D12206C1148B85405C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Sam and Max: The Devil's Playhouse - ремастированное приклю
 ```bash
 magnet:?xt=urn:btih:CCD818412EDA0C7CBD3B60364574F68DF8522615
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ The Dark Eye: Chains of Satinav (2012) [Ru/Mullti] (3.0.351.5498) Repack seleZen
 magnet:?xt=urn:btih:3E84CCB7D565E83F885175AF548EE754784C532D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Locked In Mind (2023) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:B7E3E45DACA3C208A2B8076050708D223DD0DF27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Joyville 2 - это хоррор-головоломка от первого ли
 magnet:?xt=urn:btih:F59ADABDF04C480DCC2A1CAFE40BACE8955CD8BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Limoria (2025) [Ru/Multi] (build 16883517) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:570F3DFB0150F2F0E83D5E63998ED3E588D3736C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Nelly Cootalot: Spoonbeaks Ahoy! HD – переиздание оригинал�
 magnet:?xt=urn:btih:92B1C8242A7EFCE000FC089AF95FB8AFD4461AA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Slay the Princess — это психологический хоррор с вы
 ```bash
 magnet:?xt=urn:btih:F256B0986AFBE86B7644C414F2DAEBE250D98B0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Nelly Cootalot: The Fowl Fleet - приключенческий квест, в �
 magnet:?xt=urn:btih:7F82ABB3792A091191631E643E7F80EB28064216
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Slay the Princess (2023) [Ru/Multi] (build 16887603) Repack seleZen [The Pristin
 ```bash
 magnet:?xt=urn:btih:13BADD3A17E1ED57F351FC537C086636E2AF8C92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Midtown Madness 2 [Ru] (P) 2000
 magnet:?xt=urn:btih:37ACA075B35F2A48C070B9F55BE9867C9C9A4AC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:37ACA075B35F2A48C070B9F55BE9867C9C9A4AC9
 ```bash
 magnet:?xt=urn:btih:6A942F7648BF93885D764888E68B6AAE7795E96E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ iStat menus является одним из наиболее популярны
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Destruction Derby 2 [En] (RePack) 1996 | RG Games
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Destruction Derby 2 [En] (RePack) 1996 | RG Games
 magnet:?xt=urn:btih:46478B1F2A1D6FF758F91B36702F0661F6C8A3B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:46478B1F2A1D6FF758F91B36702F0661F6C8A3B6
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ SHA-1: 77D164E1C4523C40C4366711609CA01442D36B50*Critical Updates для Windows 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ Written-By - ScottЖанр: Hard Rock,Classic RocПродолжительнос�
 ```bash
 magnet:?xt=urn:btih:32CD4456A95421D6A262741B7C6B67F9E154EAC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -233,6 +249,8 @@ Maxence Cyrin - Novo Piano (2009) [MP3|320 kbps]<Modern Classical, Piano>
 magnet:?xt=urn:btih:2B9DEFA098E912D21AB7FE3EA4F03C2A40ABCB97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +274,8 @@ magnet:?xt=urn:btih:2B9DEFA098E912D21AB7FE3EA4F03C2A40ABCB97
 ```bash
 magnet:?xt=urn:btih:091837747F0DBA34F2F54D6B60531B9EE6D77278
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -281,6 +301,8 @@ magnet:?xt=urn:btih:091837747F0DBA34F2F54D6B60531B9EE6D77278
 magnet:?xt=urn:btih:8A7410BC35798A06BCECB543E7E72D82F4DF65DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ FontExplorer X Pro – предоставляет пользователю вс�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -329,6 +353,8 @@ Comedy Woman. Новый формат. Выпуск №97 (2012.12.22) SATRip
 ```bash
 magnet:?xt=urn:btih:633C658D7BF1EA55257CC1F7EBC1CBDE20078E90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +382,8 @@ El Chavo (The Guy) [Wii] [NTSC] [Multi 3] (2012)
 magnet:?xt=urn:btih:82FE22A1A9634711073A38C8B9F3C7553022465A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ magnet:?xt=urn:btih:82FE22A1A9634711073A38C8B9F3C7553022465A
 ```bash
 magnet:?xt=urn:btih:310FE0D3FEB3A10486047190C565E58558BF788C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +434,8 @@ Xilisoft Video Converter Ultimate - мощный и универсальный �
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ Xilisoft Video Converter Ultimate - мощный и универсальный �
 ```bash
 magnet:?xt=urn:btih:5C58AE939B94544F91F26C62C7EB83F08A646CAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +488,8 @@ Cinnarch 2012.12.21 [i686 + x86-64] (2xCD)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ Cinnarch 2012.12.21 [i686 + x86-64] (2xCD)
 magnet:?xt=urn:btih:0390423B93525552F011DC6F4CA2E111352C00DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:0390423B93525552F011DC6F4CA2E111352C00DC
 ```bash
 magnet:?xt=urn:btih:E2419C899FDCEC03CEC388698AFD6DBF2B0EF0E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +576,8 @@ B4. Терновник :: 03:43(   Читать дальше...   )Жанр: Roc
 magnet:?xt=urn:btih:D79DF4F768F601EFCD0A6265BE7749C1595A97D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +607,8 @@ VA - Armin Van Buuren - A State Of Trance Yearmix 2012 (2012)
 magnet:?xt=urn:btih:10EB98CCE3B4E1D737903F97591B8B7652927CA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +635,8 @@ magnet:?xt=urn:btih:10EB98CCE3B4E1D737903F97591B8B7652927CA5
 magnet:?xt=urn:btih:14814FDA791BB1D37A2B8651930EB1A1277750AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +661,8 @@ UltraDefrag - программа для дефрагментации диско�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +690,8 @@ ForkLift невероятно быстр, но иногда может потр�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +715,8 @@ ForkLift невероятно быстр, но иногда может потр�
 ```bash
 magnet:?xt=urn:btih:86BEB25FEDDEB36526E71C57B0D95F3222228CD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

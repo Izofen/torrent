@@ -19,6 +19,8 @@ Otonari ni Ginga / A Galaxy Next Door / Галактика по соседств
 magnet:?xt=urn:btih:7F021DD3A472E2437CBFB71CDAB1AA00CDD5478D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Yamada-kun to Lv999 no Koi o Suru | Loving Yamada at Lv999! | Моя любов�
 ```bash
 magnet:?xt=urn:btih:7F0E6048269103EA3E1B2C8C2F15F7C4F81A86AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Kubo-san wa Mob o Yurusanai | Kubo Won't Let Me Be Invisible | Кубо-сан �
 magnet:?xt=urn:btih:51D3D47A9D23186C1919892BD9451896292E01A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Rokudou no Onna-tachi | Rokudo's Bad Girls | Плохие девчонки Ро�
 ```bash
 magnet:?xt=urn:btih:3A6D378C5D1801F5182A6183884812521B42C099
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Edomae Elf | Otaku Elf | Эльф-отаку [2023, TV, 12 эп.] WEBRip 720p ra
 magnet:?xt=urn:btih:1495ECBAB50AEA38F3716D9B025FCDCE83678A3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Mahou Shoujo Magical Destroyers | Magical Girl Destroyers | Девочки-во�
 ```bash
 magnet:?xt=urn:btih:53025C739FC65EE1BDCAB807FEB25EE07F277DDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Megami no Cafe Terrace / The Cafe Terrace and Its Goddesses / Терраса к�
 magnet:?xt=urn:btih:0A4125EDE37CB530A11CF0C4DB2EBBCDA5817646
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Jijou o Shiranai Tenkousei ga Guigui Kuru. | My Clueless First Friend | Мой �
 ```bash
 magnet:?xt=urn:btih:397E7CD7C9994633CB6852057785E12419C3DB41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Tonikaku Kawaii 2 / Tonikawa: Over the Moon for You 2 / Красавица: Ун
 magnet:?xt=urn:btih:725ACF2FF7C42AE3AC0D57E8F9FFF5F84C0F383E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Birdie Wing: Golf Girls' Story (2023) | История гольфисток [Т�
 ```bash
 magnet:?xt=urn:btih:7E51C9D0E2D98C7E8AEE5C79973C642E882DC3E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Watashi no Yuri wa Oshigoto Desu! / Yuri Is My Job! / Юри — это моя �
 magnet:?xt=urn:btih:F473791F9EAA5EE2DE91080B94FB205D613886E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Konosuba: An Explosion on this Wonderful World! | Kono Subarashii Sekai ni Bakue
 ```bash
 magnet:?xt=urn:btih:4BB14C338B70D28209A98363794CB38B4DFF991D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Boku no Kokoro no Yabai Yatsu | The Dangers in My Heart | Опасность в 
 magnet:?xt=urn:btih:6C0DD3EBEFB97BE18C3BB8F5CD6D303F0133B456
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Skip to Loafer | Skip and Loafer | Долой безделье! [2023, TV, 12 э
 ```bash
 magnet:?xt=urn:btih:456DD748BBD1972665676772674516FDD0861262
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Kizuna no Allele | Аллель Кидзуны [2023, TV, 12 эп.] WEBRip 720p 
 magnet:?xt=urn:btih:46D62C93F75CBCC0AD5C3F311EBB96C3267153EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Isekai wa Smartphone to Tomo ni. 2 | В другом мире со смартф�
 magnet:?xt=urn:btih:D37E2454AE5430887D022CDAC3F5283D183429BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ My Home Hero | Мой домашний герой [2023, TV, 12 эп.] WEBRip 72
 ```bash
 magnet:?xt=urn:btih:98896AECD80F5A1CA9DFD15DD05F534B622010B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Kuma Kuma Kuma Bear Punch / Ми-ми-ми-мишка 2 [2023, TV, 12] WEBRip 72
 magnet:?xt=urn:btih:F964C58036C344BEB82BCF1EE9AF13C941156B6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Gekijouban Sword Art Online: Progressive - Kuraki Yuuyami no Scherzo | Маст�
 ```bash
 magnet:?xt=urn:btih:A06E8C55F63DBB5DAAAEFBB00AADA1EB044C837D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Natsu e no Tunnel, Sayonara no Deguchi | The Tunnel to Summer, the Exit of Goodb
 magnet:?xt=urn:btih:83C95300E0ADA533580B4C258B8E8CDC68C0C485
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka IV | DanMachi IV | Мо�
 magnet:?xt=urn:btih:13097690A96A26C498EFDF5EE7019E1884BA788F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Muv-Luv Alternative The Animation | Мав-Лав: Альтернатива [202
 ```bash
 magnet:?xt=urn:btih:AA46D2CBAC42BEB8960A59FC4855234087411606
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ Koisuru Tenshi Angelique: Kagayaki no Ashita | Анжелика [ТВ-2] [2007, 
 magnet:?xt=urn:btih:2847933D55A7F7712459EB62887117163B6B4B70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ Uma Musume: Pretty Derby - Road to the Top / Девушки-лошадки: Ми
 magnet:?xt=urn:btih:B086DA58D9B2C5A185D369500E1D91EE2315717B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ Isekai Ojisan | Uncle from Another World | Перерождение Дяди [20
 magnet:?xt=urn:btih:6B6EB18334B52C32FC71B24F7ED72FD708E41B82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ UniteUp! | Объединяйтесь! [2023, TV, 12 +3R] WEBRip 720p raw
 ```bash
 magnet:?xt=urn:btih:076A065078C1302BE10B33B581637F08E4D40FD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -28,6 +28,8 @@
 magnet:?xt=urn:btih:81916336F27557C9DA77916C157B684279528F52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -61,6 +63,8 @@ VA / Сборник Русских FullHD видео клипов (2012) (1080p)
 magnet:?xt=urn:btih:C0AB125D20A2C055AFFE114898275314F489B633
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -84,6 +88,8 @@ NikitA - Машина (2009) HDRip [720p]
 ```bash
 magnet:?xt=urn:btih:5C0820853631BD1DAD1095278CEEF9FB414E7CC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +124,8 @@ VA / Сборник клипов 50/50 (2012) (1080p) HDTV
 magnet:?xt=urn:btih:73B7826699435362CECBD737C0BC612E873EFBB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +151,8 @@ magnet:?xt=urn:btih:73B7826699435362CECBD737C0BC612E873EFBB1
 ```bash
 magnet:?xt=urn:btih:9118A661988C8DF90B893B01E5DE9A66ABC83A8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +182,8 @@ magnet:?xt=urn:btih:9118A661988C8DF90B893B01E5DE9A66ABC83A8F
 magnet:?xt=urn:btih:9B80626EB03FE56E94B809301BFC46F908768C35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +208,8 @@ Emma Hewitt - Colours (Armin van Buuren Remix) (2012) HDRip [1080p]
 magnet:?xt=urn:btih:9C601DA0ED9FDF8A40AEB8066CF19A42C0A1DD4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +233,8 @@ Sigue Sigue Sputnik – Live In Tokyo (2003) DVD5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +269,8 @@ VA - Русский Коктейль (2012)(1080p) HDTV
 magnet:?xt=urn:btih:202E5FFF805B44BB2D575C74313A991FA6A28AE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +304,8 @@ VA - Зарубежный Коктейль (2012)(1080p) HDTV
 magnet:?xt=urn:btih:D17C0D403523CC0C5A547C1C2D78884C9D44B222
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +329,8 @@ magnet:?xt=urn:btih:D17C0D403523CC0C5A547C1C2D78884C9D44B222
 ```bash
 magnet:?xt=urn:btih:42D121C02C5F2E29E5E365A8035375744B38CBE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +358,8 @@ magnet:?xt=urn:btih:42D121C02C5F2E29E5E365A8035375744B38CBE9
 magnet:?xt=urn:btih:3F4727DFC89A0F91BBC47A77801D85FB9B20260B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +383,8 @@ magnet:?xt=urn:btih:3F4727DFC89A0F91BBC47A77801D85FB9B20260B
 ```bash
 magnet:?xt=urn:btih:9059362126FB9D646DBF88F0F8F61AB0913D6AAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +412,8 @@ magnet:?xt=urn:btih:9059362126FB9D646DBF88F0F8F61AB0913D6AAD
 magnet:?xt=urn:btih:6C67AA779CB61741081B2F350DF57B900DE16310
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +438,8 @@ magnet:?xt=urn:btih:6C67AA779CB61741081B2F350DF57B900DE16310
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +479,8 @@ Jimmi Page: Electric and Acoustic Guitars;
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +513,8 @@ VA /Горячий Зарубежный Хит! (2012)(1080p) HDTV
 ```bash
 magnet:?xt=urn:btih:7A7A63958BD7BB53ACF1211DC9AEEE6E92171E77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +549,8 @@ VA/Русский ХИТ! (2012)(1080p) HDTV
 magnet:?xt=urn:btih:8DC6348AF75282B976285E6B69BA0F129E220ED6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +574,8 @@ magnet:?xt=urn:btih:8DC6348AF75282B976285E6B69BA0F129E220ED6
 ```bash
 magnet:?xt=urn:btih:2384F87F016CC57C7BEC9AD1624FE8DA5677DB20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +609,8 @@ magnet:?xt=urn:btih:2384F87F016CC57C7BEC9AD1624FE8DA5677DB20
 magnet:?xt=urn:btih:88CE69E87A2074F4E69AB095897B697CAB95A3A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +636,8 @@ magnet:?xt=urn:btih:88CE69E87A2074F4E69AB095897B697CAB95A3A0
 ```bash
 magnet:?xt=urn:btih:6D34CE4A368BE3AFE4881966B2A76DA1693461C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +673,8 @@ Ringo Starr and the Roundheads - Live (2005) BDRip[720p]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +699,8 @@ Pirate party The Best Videoclip (2010-2012) HDTVRip 1080p
 magnet:?xt=urn:btih:A467C2474C03F09B6DC52E026E33E6FBEDADACD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -678,6 +724,8 @@ Deep Purple & Orchestra: Live at Montreux (2011) [Mp4] BDRip [1080p]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -705,6 +753,8 @@ Deep Purple & Orchestra: Live at Montreux (2011) [Mp4] BDRip [1080p]
 magnet:?xt=urn:btih:8C2242EB22430DEC2CE622B3F2BD9BE2E8F77F5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -728,6 +778,8 @@ Leonard Cohen / Leonard Cohen: Songs from the Road (2009) BDRip[1080p]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

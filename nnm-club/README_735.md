@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:29167A4F3A4EB79E4D973E61AEC7C2927991F417
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:29167A4F3A4EB79E4D973E61AEC7C2927991F417
 ```bash
 magnet:?xt=urn:btih:B3F27A3098394F0728AE4A76809CC51C812A1C4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:B3F27A3098394F0728AE4A76809CC51C812A1C4C
 magnet:?xt=urn:btih:5EC12E9D1CA201896AF5C6E2FFEEBC3DB8F7D756
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Super Raft Boat Together погружает игроков в подводное
 magnet:?xt=urn:btih:455A6C944B0F31720E48533E198C52E8404FDF6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:455A6C944B0F31720E48533E198C52E8404FDF6B
 ```bash
 magnet:?xt=urn:btih:0C8160A7B77D9E44B2290E26DE507BBF9050104F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:0C8160A7B77D9E44B2290E26DE507BBF9050104F
 magnet:?xt=urn:btih:096A22CEC7B19289122D998DF86D9DD182C289D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Gumroad, John Grello | IONIC Sketchbook 2019 - Digital Edition (2019) PCRec [EN]
 magnet:?xt=urn:btih:C8C42AFCF2A630D94618FDAAEF2449520109FCA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Ship of Fools - это кооперативное морское приключ�
 magnet:?xt=urn:btih:9D70D9210BA22944363429DD03A0B8B747249C6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:9D70D9210BA22944363429DD03A0B8B747249C6C
 ```bash
 magnet:?xt=urn:btih:7BE32340A5B89E222D53FF59D9967BC229AFDF18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:7BE32340A5B89E222D53FF59D9967BC229AFDF18
 magnet:?xt=urn:btih:9AB888D39E97B540EDA927F91C711FDE34CDD89D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:9AB888D39E97B540EDA927F91C711FDE34CDD89D
 ```bash
 magnet:?xt=urn:btih:59C83B8CFD076726F3EF07ABD786915F42ECF6CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:59C83B8CFD076726F3EF07ABD786915F42ECF6CD
 magnet:?xt=urn:btih:6EFA078F5EA882686F66651EFB6C6B1FE607F7BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:6EFA078F5EA882686F66651EFB6C6B1FE607F7BE
 ```bash
 magnet:?xt=urn:btih:CDDF62CAC2637864EA255359CB726D531441CF07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Breath of Fire IV (2000) [Multi] (1.0 HotFix) Repack FitGirl
 magnet:?xt=urn:btih:B4157152D35BA49B0C4A92E54EABDA509C4FDC40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Astral Ascent переносит геймеров в современный фе
 ```bash
 magnet:?xt=urn:btih:E91999182001431ACBEE0D5DE3E1884833F888D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:E91999182001431ACBEE0D5DE3E1884833F888D2
 magnet:?xt=urn:btih:1B988EE58FA4C74CEAE2E9BBDE9E23B5858400BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Pocket and Zooom - это игра-головоломка, где главной
 ```bash
 magnet:?xt=urn:btih:DAB5045DC33F71E5684B2616DAB1627C68E80CB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Blizzard предлагает вниманию читателя более гл�
 magnet:?xt=urn:btih:E74BA14769DB885726AB32AEA0CAF9EB70692F0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:E74BA14769DB885726AB32AEA0CAF9EB70692F0B
 ```bash
 magnet:?xt=urn:btih:736813B840A07DE8D68865C702E1ED73F9D9C280
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ VA - Tracks Of The Golden Circle 80-90s (2025) [MP3|320 Kbps] <Pop, Rock, Dance>
 magnet:?xt=urn:btih:4B5F9AC4EF36EC90F29DAD63FD5FCB4A7D88ADA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:4B5F9AC4EF36EC90F29DAD63FD5FCB4A7D88ADA2
 ```bash
 magnet:?xt=urn:btih:EAF8E4E6E6B1A1349AD767029964421F7EB7380B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ Dolls Nest (2025) [Multi] (1.0.1) Scene Tenoke
 magnet:?xt=urn:btih:70B3844B27CC68D110250ABFCA34B65AC2FF12B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ Skogdal (2025) [Ru/Multi] (0.9.12) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:6EF3255CCDA6A4D96FE1B78F1B7A2B204C160C41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ Wartales - ролевое приключение в открытом мире, �
 magnet:?xt=urn:btih:89971A17F701C5910B8A497883BFE7E03D9B3C3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (2.00.128634) Repack Other s [Soundt
 magnet:?xt=urn:btih:055C6C96A51B5712D2B5487E044C7AAD931B3ECC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:055C6C96A51B5712D2B5487E044C7AAD931B3ECC
 ```bash
 magnet:?xt=urn:btih:D4965855039EA2C2183113B92C33E8E19F0EBD3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

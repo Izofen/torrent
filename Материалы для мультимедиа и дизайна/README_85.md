@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:08ED63E71B697D58F6CEBF94378F20EFCCDF7BDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:08ED63E71B697D58F6CEBF94378F20EFCCDF7BDD
 ```bash
 magnet:?xt=urn:btih:10540AB6AF06BED085501114100B08F1D0728F96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Suncoast — современный шрифт с ретро-душой. Вдо�
 magnet:?xt=urn:btih:127D5986FD443441595AE3ADAC8FD6303F1C1A7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:127D5986FD443441595AE3ADAC8FD6303F1C1A7B
 ```bash
 magnet:?xt=urn:btih:5DF88C2456A805267F8880BFBCF5EB9AB9890CB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Loica Sans — это новая (да, ещё одна) интерпретац�
 magnet:?xt=urn:btih:BB7859C2A40207DC1A6A0DD89452B42142D5F193
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Wellness — это набор из 20 ярких векторных иллюс�
 ```bash
 magnet:?xt=urn:btih:476420F9D8C3F9713F04EB54EB31D8E948CACD0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ WeCare — это набор пользовательских интерфейс
 magnet:?xt=urn:btih:2465B2DA36389E4FA0D08FAEF427CE290F1B1616
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Koruva — это высококонтрастный шрифт с засечк�
 ```bash
 magnet:?xt=urn:btih:45D69DC5F638B4FEBDB5D4FC781874B3994CAA66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:45D69DC5F638B4FEBDB5D4FC781874B3994CAA66
 magnet:?xt=urn:btih:B93DAF3123FDFEB8EBD6B3CB68709A878E44B9B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Bloryn — это высококонтрастный шрифт с засечк�
 ```bash
 magnet:?xt=urn:btih:6683A8B03A71CACC9249F34D00AEBFCDC75DD645
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:6683A8B03A71CACC9249F34D00AEBFCDC75DD645
 magnet:?xt=urn:btih:AD28642C3777227976C16AC514D2D6D1B4F846D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:AD28642C3777227976C16AC514D2D6D1B4F846D5
 magnet:?xt=urn:btih:6284D852F1933F55C39D2E270DD7FCD86954A96F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Esmarya — изысканный шрифт с засечками, создан�
 ```bash
 magnet:?xt=urn:btih:609610D6BA11E53A5832C28A6D1A34D4D9C374A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:609610D6BA11E53A5832C28A6D1A34D4D9C374A4
 magnet:?xt=urn:btih:6B85179ECC638FBA009FC00A1280477B88F4142B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:6B85179ECC638FBA009FC00A1280477B88F4142B
 ```bash
 magnet:?xt=urn:btih:6D82AFF041805B904DB247CEAF22D3E328B97C66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:6D82AFF041805B904DB247CEAF22D3E328B97C66
 magnet:?xt=urn:btih:BFA7759587AEA19D76DF67D0D28AD039D1DD0CF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ Esquie — экспериментальный шрифт, состоящий и�
 ```bash
 magnet:?xt=urn:btih:8B836C219187371FEB14FA2215214622C9B53A28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:8B836C219187371FEB14FA2215214622C9B53A28
 magnet:?xt=urn:btih:633CF44A5714BBB74A47068D280E9C215563B718
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ GG Zaglav - это современный экранный шрифт с ярк�
 magnet:?xt=urn:btih:B0D0A96A1D014C2D5CC241977F9ECA1A53D44C52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:B0D0A96A1D014C2D5CC241977F9ECA1A53D44C52
 ```bash
 magnet:?xt=urn:btih:DC94989B88F1AA6E0F2E47D613C7169C89088877
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:DC94989B88F1AA6E0F2E47D613C7169C89088877
 magnet:?xt=urn:btih:9DD259EC128F4CB62F70976BC78B8A5B3BC3592C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ MELO — это потрясающий, реалистичный набор пр
 ```bash
 magnet:?xt=urn:btih:B6700D009133ADD7526D9C5DDD06FBA9E48972D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:B6700D009133ADD7526D9C5DDD06FBA9E48972D5
 magnet:?xt=urn:btih:3158DD93FCE2D94BA3FA21E3AD85F0D4848D04C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:3158DD93FCE2D94BA3FA21E3AD85F0D4848D04C4
 ```bash
 magnet:?xt=urn:btih:FA77FDEB19CE948E4432EFBC0B092EB04345B5B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:FA77FDEB19CE948E4432EFBC0B092EB04345B5B9
 magnet:?xt=urn:btih:9C85ECD8998E74751788B347E5F624029C968C5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:9C85ECD8998E74751788B347E5F624029C968C5E
 ```bash
 magnet:?xt=urn:btih:EBFF64055C09C1E07E534F261F1CD3FE56E57237
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

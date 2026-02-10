@@ -1,3 +1,29 @@
+###  Публикация: 980058   (956015) от 29.01.2016
+
+Инна Старожукова, Игорь Немировский | Выдающийся руководитель (2015) [FB2]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_956015.jpg" />
+</div>
+
+
+###  Подробнее
+
+В нынешних условиях ни одна компания уже не может поддерживать свою конкурентоспособность путем хотя и постоянных, но незначительных повышений эффективности работы. Сегодня нужен прорыв. И чтобы его совершить, руководитель должен собрать команду сильнейших специалистов и использовать новаторские подходы и наиболее действенные методы управления. Справиться с такими (   Читать дальше...   )Жанр: Бизнес, управление, менеджментФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB55C75CACAD2C1C4FD0FD9BA216160A09962EE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980164   (956057) от 29.01.2016
 
 Динеш Д'Суза | Америка. Каким мир бы был без нее? (2015) [FB2, DOCX]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:F704DBC516D40CCC390226EE9BF535763E368ACF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:F704DBC516D40CCC390226EE9BF535763E368ACF
 magnet:?xt=urn:btih:75F5D0BD37333FD7EC239D3FE7933D0A357388C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:75F5D0BD37333FD7EC239D3FE7933D0A357388C7
 magnet:?xt=urn:btih:CA262AA6569B0D7AD55189F6EF177161F5C0B400
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:CA262AA6569B0D7AD55189F6EF177161F5C0B400
 magnet:?xt=urn:btih:010AF2655ACDDCA8677667D3DCF38439E802213F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:010AF2655ACDDCA8677667D3DCF38439E802213F
 ```bash
 magnet:?xt=urn:btih:210394F54BF9D3EDBDF143E82D938A73F2C56B77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:210394F54BF9D3EDBDF143E82D938A73F2C56B77
 magnet:?xt=urn:btih:272EB7228356B7EE6575C3EBC1F0915C2FB4A94A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:272EB7228356B7EE6575C3EBC1F0915C2FB4A94A
 ```bash
 magnet:?xt=urn:btih:A4DA5B1A51CDA3229C813B25C475F31CF5FD045A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:A4DA5B1A51CDA3229C813B25C475F31CF5FD045A
 magnet:?xt=urn:btih:E1562307AE076626E7E6703E420354F81BD2C937
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:E1562307AE076626E7E6703E420354F81BD2C937
 ```bash
 magnet:?xt=urn:btih:207ECF6A5017C88F3ABC570958EB7D5AE2FB21A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:207ECF6A5017C88F3ABC570958EB7D5AE2FB21A6
 magnet:?xt=urn:btih:EACDD5C77D789ED538C9A6B0B9BCD1968C2E4710
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:EACDD5C77D789ED538C9A6B0B9BCD1968C2E4710
 ```bash
 magnet:?xt=urn:btih:3512DEF366F9D7D540D47DCB3726EA4B8519F346
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:3512DEF366F9D7D540D47DCB3726EA4B8519F346
 magnet:?xt=urn:btih:3B39535072B37F7A29E596A57EC4E19AD6786284
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:3B39535072B37F7A29E596A57EC4E19AD6786284
 ```bash
 magnet:?xt=urn:btih:6483DD6A8DFCF26DBA718548585BD9BE00A3E331
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:6483DD6A8DFCF26DBA718548585BD9BE00A3E331
 magnet:?xt=urn:btih:FABB4D744B598416B338CA988A2759801FFABF8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:FABB4D744B598416B338CA988A2759801FFABF8D
 ```bash
 magnet:?xt=urn:btih:71DEC590A1CEE5D12690E20E7CFB9CD739D36B88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:71DEC590A1CEE5D12690E20E7CFB9CD739D36B88
 magnet:?xt=urn:btih:58599BAD2220FEA1432D520AD3F1F4861BA42564
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:58599BAD2220FEA1432D520AD3F1F4861BA42564
 ```bash
 magnet:?xt=urn:btih:8223C96C9103769C9B7A94DFF525C5E7C83A7C06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:8223C96C9103769C9B7A94DFF525C5E7C83A7C06
 magnet:?xt=urn:btih:C0E8A78A4E7F416232E4A8A7C159CE349B8CEE18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:C0E8A78A4E7F416232E4A8A7C159CE349B8CEE18
 ```bash
 magnet:?xt=urn:btih:43C0C279C99F9F272C4871896A9A8D4389C8EC48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +551,8 @@ magnet:?xt=urn:btih:43C0C279C99F9F272C4871896A9A8D4389C8EC48
 magnet:?xt=urn:btih:D0B96CB8B8C8154B96D814E5A0FE393B5904C893
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +579,8 @@ magnet:?xt=urn:btih:D0B96CB8B8C8154B96D814E5A0FE393B5904C893
 magnet:?xt=urn:btih:B777DCDD510A6E3C2F91035F077ED97AD6891CF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +605,8 @@ magnet:?xt=urn:btih:B777DCDD510A6E3C2F91035F077ED97AD6891CF6
 ```bash
 magnet:?xt=urn:btih:83E6F313313B59C1DED45BFD19B5CA9C5CA4BEF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +633,8 @@ magnet:?xt=urn:btih:83E6F313313B59C1DED45BFD19B5CA9C5CA4BEF8
 magnet:?xt=urn:btih:EDCD83803F2C91AFC4ACBC5C03643978EF428D0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +658,8 @@ magnet:?xt=urn:btih:EDCD83803F2C91AFC4ACBC5C03643978EF428D0F
 ```bash
 magnet:?xt=urn:btih:30E6D522549861331D36966BF844F15E166E3355
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,29 +687,7 @@ magnet:?xt=urn:btih:30E6D522549861331D36966BF844F15E166E3355
 magnet:?xt=urn:btih:6F38F22B3201F9748B0D634388077B138CB3B948
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979764   (958408) от 27.01.2016
-
-Франко Берарди | Новые герои. Массовые убийцы и самоубийцы (2016) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958408.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга итальянского социолога Ф. Берарди посвящена феномену массового убийства и самоубийства в современном мире. Почему мальчик приходит в школу и убивает своих учителей и одноклассников, почему однажды вечером мужчина решает расстрелять людей в кинотеатре во время сеанса «Бэтмена», что подтолкнуло Брейвика к убийству 71 человека? Почему, несмотря на рост уровня (   Читать дальше...   )Жанр: Психология, ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71FC77AE2EF08D7A107515B9B086D5E5E9162AE6
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

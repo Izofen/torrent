@@ -22,6 +22,8 @@ VA - Euro Disco: The Lost Legends Vol.1 (2017) [MP3|320 Kbps] <Euro-Disco, Synth
 magnet:?xt=urn:btih:D020BBA5C6A547EAA9914DA4A4A444347E591106
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:D020BBA5C6A547EAA9914DA4A4A444347E591106
 ```bash
 magnet:?xt=urn:btih:345B51575640F07382EF7CAE03A4C04F729CC77B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:345B51575640F07382EF7CAE03A4C04F729CC77B
 magnet:?xt=urn:btih:7A85E3EFCB12E215AB393A831A44E26DB55BA8C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Comedy Woman (2017.12.22) WEB-DLRip
 ```bash
 magnet:?xt=urn:btih:4EDF97DAB302EF68CB46E0AA71613CC4FFA24213
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ VA - Alternative Range: New Age Relaxing Groove (2017) [MP3|256-320 Kbps] <New A
 magnet:?xt=urn:btih:A5A48CA131380F42FDA6A3CBB94905C5B4BECEC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Jon Richards - The Sacred Tree (2012) [FLAC|Lossless|image + .cue] <New Age>
 ```bash
 magnet:?xt=urn:btih:0279908A35900E11DEAFA800A62447A75E7065BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ VA - Euro Disco: The Lost Legends Vol.10 (2017) [MP3|320 Kbps] <Euro-Disco, Synt
 magnet:?xt=urn:btih:6EF0A09168543DD34FD9E325EAE7D70F967288F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ Critical Event - Fifth Move (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass
 magnet:?xt=urn:btih:45615D1C976157EB43B6846E0D97C01ED0462199
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:45615D1C976157EB43B6846E0D97C01ED0462199
 ```bash
 magnet:?xt=urn:btih:CB8D730D10161F5801020D09878FACF20134B40C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ VA - Record Super Chart #517 (2017) [MP3|320 Kbps] <House, Club, Dance>
 magnet:?xt=urn:btih:521E4BC259EA93B3C704CAE3C83875895C75AD8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ VA - Euro Disco: The Lost Legends Vol.8 (2017) [MP3|320 Kbps] <Euro-Disco, Synth
 ```bash
 magnet:?xt=urn:btih:4BCBFDD3ABB55168446A20BF54EC33573EFB449F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -306,6 +328,8 @@ VA - Disco Italo: Emotional Party (2017) [MP3|192-320 Kbps] <Italo Disco, Remix>
 magnet:?xt=urn:btih:BAA5736BCE489D7F47E0DBD04ECF956528D3ECF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ magnet:?xt=urn:btih:BAA5736BCE489D7F47E0DBD04ECF956528D3ECF6
 ```bash
 magnet:?xt=urn:btih:0C2FB355847CF962AF6A937DD031D8232D3AC1C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +383,8 @@ VA - Club Night Vol.4 (2017) [MP3|320 Kbps] <Club, Dance>
 magnet:?xt=urn:btih:DD6DE6E06925EC303943526DE2892BCF105AF5A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +411,8 @@ VA - Italo Disco: The Lost Legends Vol.10 (2017) [MP3|320 Kbps] <Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:AD3A03AEA876B14764B099DF42AD1B9A01155CAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +441,8 @@ magnet:?xt=urn:btih:AD3A03AEA876B14764B099DF42AD1B9A01155CAC
 magnet:?xt=urn:btih:FDAFDCB268171A1901CCA9513C1149FE1DD48350
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +470,8 @@ Faydee - Patterns (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, House>
 magnet:?xt=urn:btih:E33E5C4B145A30DD995E3D0574AFEDC9227669A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +495,8 @@ magnet:?xt=urn:btih:E33E5C4B145A30DD995E3D0574AFEDC9227669A8
 ```bash
 magnet:?xt=urn:btih:8034EEAABE0E4333ECA3F952311AEED78950E786
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +525,8 @@ VA - Euro Disco: The Lost Legends Vol.7 (2017) [MP3|320 Kbps] <Euro-Disco, Synth
 magnet:?xt=urn:btih:C0E59EF46014199B3F35BA633370448FB027BC66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +553,8 @@ Marla Singer - Center Of Subconscious (2017) Nachtstrom Schallplatten [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:7117753AFC579D5D39A3150890FA000F21FB5C5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +583,8 @@ VA - The Official UK Top 40 Singles Chart 22.12.2017 [MP3|192-320 Kbps] <Alterna
 magnet:?xt=urn:btih:7BD29143272D3BD971146608C9C48C7BA725DD8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +608,8 @@ magnet:?xt=urn:btih:7BD29143272D3BD971146608C9C48C7BA725DD8D
 ```bash
 magnet:?xt=urn:btih:7F29C7834034E29D4467701DD4CC997608E5AD83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +638,8 @@ VA - Euro Disco - The Lost Legends Vol. 2 (2017) [MP3|320 Kbps] <Euro-Disco, Syn
 magnet:?xt=urn:btih:B490F9AF53D014881030C8521433567474F8B585
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +663,8 @@ magnet:?xt=urn:btih:B490F9AF53D014881030C8521433567474F8B585
 ```bash
 magnet:?xt=urn:btih:46A91F4455D93BE79FE8B4CD576ED7D28B34EF80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -645,6 +693,8 @@ VA - Italo Disco: The Lost Legends Vol.9 (2017) [MP3|320 Kbps] <Italo-Disco>
 magnet:?xt=urn:btih:81EB32E2CC724313D6FAB7245068AF0D2F4060EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +718,8 @@ magnet:?xt=urn:btih:81EB32E2CC724313D6FAB7245068AF0D2F4060EF
 ```bash
 magnet:?xt=urn:btih:688C25ACDF9A727C2AC61A2DD1EE4D641C8DF672
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

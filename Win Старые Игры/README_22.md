@@ -19,6 +19,8 @@ Resident Evil 2 Seamless HD Project (1998) [En] (1.0) Repack/Mod Andriel
 magnet:?xt=urn:btih:5AFBEE0E39D17AE01D0024588C9A0211B0813D22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Blade & Sword 2 [Ru] (RePack) 2005 l IGALLARDOI
 magnet:?xt=urn:btih:D744F1A1E145D362FF2D5E0492D519332354075A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Myth III (разработчик Mumbo Jumbo) представляет собо�
 ```bash
 magnet:?xt=urn:btih:15A7881D8DCB634B0BA440C60215E24B3662598D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Tom Clancy's Splinter Cell: Double Agent [Ru/En] (Rip/1.02a) 2006 | R.G. Shift
 magnet:?xt=urn:btih:835D72B0B3374A6427768A058714BEC4A4ADCC43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ Call of Juarez / Call of Juarez: Сокровища Ацтеков (2006) [Ru/En
 magnet:?xt=urn:btih:E180FFBA09250FC30599FA8C3842EEA5D1539709
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Knight Rider: The Game / Рыцарь дорог (2003) [Ru] (1.0) License
 ```bash
 magnet:?xt=urn:btih:D3D94D35BC958A679DCCFB7930A2205BFC6968BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ Code Blue: The Interactive ER Game / Скорая помощь 1 (2000) [Ru] (1.
 magnet:?xt=urn:btih:E1D73F71AACF311230367E9065E4E468E63FC12B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Teenagent (1994) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:26D0BD427165D429B8971997786E6AF2DD7C782C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Master of Orion 3 / Master of Orion 3: Престол Галактики (2003) 
 magnet:?xt=urn:btih:E498028156CF8DCD5550E8BBB286B6CB638B5620
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Darkstone (1999) [En/Ge/Fr] (1.0.5b) License GOG
 ```bash
 magnet:?xt=urn:btih:7ED7C79A13BB9675DC96A0C03B7AE71136CEDA87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Wings of Honour / Крылья отваги [Ru] (P) 2003
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ CyberMage: Darklight Awakening [En] (RePack) 1995 | dimonstrer
 ```bash
 magnet:?xt=urn:btih:657BF5453AC125391F0B642CC46FFA0A525F1D7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Enclave (2003) [Multi] (1.0.0.1) License PROPHET
 magnet:?xt=urn:btih:CCCC8AFA7BF16E4C165E0DD83BC9C6FA1870E8EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Advent Rising предлагает вам насладиться идеальн�
 ```bash
 magnet:?xt=urn:btih:1185DEB3232B42D97141E86C1C1A7E81BD0FE9AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ Mortal Kombat Trilogy (Kommunity Patch) - файтинг, не являющий�
 magnet:?xt=urn:btih:EB5925F58E47B8E8BD236910240E9DE72348C2D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Beltion: Beyond Ritual / Бельтион: Свод Равновесия (2009) 
 magnet:?xt=urn:btih:5F826CB9FDEC5BD78F6979242B8C2A8C9F5BF050
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:5F826CB9FDEC5BD78F6979242B8C2A8C9F5BF050
 ```bash
 magnet:?xt=urn:btih:537E2B3983B28CBC6726E208A01D37286ACF97CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ Earth 2150: Escape from the Blue Planet / Земля 2150: Война Миров
 magnet:?xt=urn:btih:9E861296EB6EAE113E813C57199255620ABDCE09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Jim Power in "Mutant Planet" [En] (RePack) 1993
 magnet:?xt=urn:btih:6AD43DC920FC5E6AD4EBA970BEB0018565593FF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ Neverending Story 2 [En] (RePack) 1991 | RG games/Pilotus
 ```bash
 magnet:?xt=urn:btih:1B71F2CAB682471C201AE4DA316B41147664CE84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ Worms: Armageddon [Ru/En/Multi9] (RePack/3.6.31.2b) 1999 | R.G. GraSe Team
 magnet:?xt=urn:btih:F5D77B09A4F8F8747D8FF905EBD5622AA78C9D05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ Darkspyre [En] (RePack) 1990 | RG Games/Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Kingdom at War [En] (RePack) 1992 | RG Games/Pilotus
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ Dark Heart of Uukrul [En] (RePack) 1989 | RG games/Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ Spirit of Excalibur [En] (RePack) 1990 | RG Games/Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Stonekeep (1995) [Multi] (1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:ED67E269D57ED8167095104AA878F090C241A194
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

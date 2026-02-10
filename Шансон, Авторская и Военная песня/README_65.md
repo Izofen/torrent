@@ -28,6 +28,8 @@
 magnet:?xt=urn:btih:203D0E56F3021CDA70CE5730E4A648D6A5557210
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -61,6 +63,8 @@ magnet:?xt=urn:btih:203D0E56F3021CDA70CE5730E4A648D6A5557210
 magnet:?xt=urn:btih:0DF4CFCF152263E616678A05878662DC59910106
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -84,6 +88,8 @@ magnet:?xt=urn:btih:0DF4CFCF152263E616678A05878662DC59910106
 ```bash
 magnet:?xt=urn:btih:F33241E29D36A68EA9156E5CBD660951F5F8A752
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -112,6 +118,8 @@ VA - Новый шансон (2001) [FLAC|Lossless|tracks + .cue]<Шансон>
 magnet:?xt=urn:btih:4686BBF018F9A26FAB247EBA9A8227B0F17B6009
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +146,8 @@ magnet:?xt=urn:btih:4686BBF018F9A26FAB247EBA9A8227B0F17B6009
 ```bash
 magnet:?xt=urn:btih:440334EE73BC25DBFDD248D98E7BE0D93FE46889
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +176,8 @@ magnet:?xt=urn:btih:440334EE73BC25DBFDD248D98E7BE0D93FE46889
 magnet:?xt=urn:btih:A454128D2D74BFC654BC07F36983B387F2331380
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +204,8 @@ magnet:?xt=urn:btih:A454128D2D74BFC654BC07F36983B387F2331380
 ```bash
 magnet:?xt=urn:btih:C8DF7411EB77D9B71AC9FCF0A04A536AFFEDBF11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +240,8 @@ magnet:?xt=urn:btih:C8DF7411EB77D9B71AC9FCF0A04A536AFFEDBF11
 magnet:?xt=urn:btih:1DE4D9CE50444E1D1E545574E16A0B11F308DEB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +268,8 @@ magnet:?xt=urn:btih:1DE4D9CE50444E1D1E545574E16A0B11F308DEB0
 ```bash
 magnet:?xt=urn:btih:74C5BDF15A00BFE309D9092746DB73761A7C519D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +304,8 @@ magnet:?xt=urn:btih:74C5BDF15A00BFE309D9092746DB73761A7C519D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +338,8 @@ magnet:?xt=urn:btih:74C5BDF15A00BFE309D9092746DB73761A7C519D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +374,8 @@ magnet:?xt=urn:btih:74C5BDF15A00BFE309D9092746DB73761A7C519D
 magnet:?xt=urn:btih:E98A639B8B5D88814793A468F5B4B5A9A7BE8DA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +408,8 @@ magnet:?xt=urn:btih:E98A639B8B5D88814793A468F5B4B5A9A7BE8DA6
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +444,8 @@ magnet:?xt=urn:btih:E98A639B8B5D88814793A468F5B4B5A9A7BE8DA6
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +479,8 @@ magnet:?xt=urn:btih:E98A639B8B5D88814793A468F5B4B5A9A7BE8DA6
 magnet:?xt=urn:btih:F71236443B3D7BE289B0D3DD2EDACCF8E8DA8241
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +504,8 @@ magnet:?xt=urn:btih:F71236443B3D7BE289B0D3DD2EDACCF8E8DA8241
 ```bash
 magnet:?xt=urn:btih:B122546108A804BF9E2F3B600369277155F42CB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +540,8 @@ magnet:?xt=urn:btih:B122546108A804BF9E2F3B600369277155F42CB5
 magnet:?xt=urn:btih:02669909E19962B64022C883264F80695663EA7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +574,8 @@ magnet:?xt=urn:btih:02669909E19962B64022C883264F80695663EA7F
 ```bash
 magnet:?xt=urn:btih:1932AA56013CE95107A0A003289142B04F10795B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +610,8 @@ magnet:?xt=urn:btih:1932AA56013CE95107A0A003289142B04F10795B
 magnet:?xt=urn:btih:ECE91C19CC03636473F63DCCF0146DED244DA711
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +639,8 @@ VA - 100 Лучшиx хитов Русского шансона (2015) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:5B084FAAB08223090D7A654AAD741F4DC43DBE0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +670,8 @@ VA - 200 на радио Шансон (2015) [MP3|256 кб/с]<Шансон>
 magnet:?xt=urn:btih:8889F58BBDC30B883062616A7F85B35542E66699
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +699,8 @@ VA - Не ревнуй. Новинки Русского шансона (2015) [M
 ```bash
 magnet:?xt=urn:btih:CD916E4BF02A3652B5044DF6FD9C98AC832B8010
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -686,6 +730,8 @@ magnet:?xt=urn:btih:CD916E4BF02A3652B5044DF6FD9C98AC832B8010
 magnet:?xt=urn:btih:E156607C560003E89AC5B01FAF1CAAD955013971
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -713,6 +759,8 @@ VA - Бродяга по жизни. Академия хитов шансона 
 ```bash
 magnet:?xt=urn:btih:9927B2F2B42D3B6736CD713FA455F295F880FA90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -742,6 +790,8 @@ VA - Настоящий музон радио Шансон (2015) [MP3|256 кб/
 magnet:?xt=urn:btih:A67B593C98B968BF08F997A5B430A6B82297E34E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -769,6 +819,8 @@ VA - Реальный хит-парад на радио Шансон (2015) [MP3
 ```bash
 magnet:?xt=urn:btih:9DE32768D84A607E43A89488D1045EEDC03DB57C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

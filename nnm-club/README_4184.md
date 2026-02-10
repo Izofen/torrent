@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:51CA6B22BB8596C566615F67AC1F81735DA0DB0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:51CA6B22BB8596C566615F67AC1F81735DA0DB0C
 ```bash
 magnet:?xt=urn:btih:A52F83285B85554D45E783F162DF2796B66520A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:A52F83285B85554D45E783F162DF2796B66520A6
 magnet:?xt=urn:btih:9AABF6AA6523A4B543C700F0EA98FC310D21FBE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:9AABF6AA6523A4B543C700F0EA98FC310D21FBE9
 ```bash
 magnet:?xt=urn:btih:A38EE409929644F3CFD3676ED0C285BE09FB34EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Flyoobe (Ранее назывался Flyby11) — это простой пат
 magnet:?xt=urn:btih:67232C11024BF5A5709D5BEAF96F5047B0515570
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Gekijouban Violet Evergarden | Violet Evergarden the Movie | Виолетта Э
 ```bash
 magnet:?xt=urn:btih:18DE4D44DCE2EF7D4FBA99AD2F8FCD578601628A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:18DE4D44DCE2EF7D4FBA99AD2F8FCD578601628A
 magnet:?xt=urn:btih:55006F33E10E5EFC3E0DBEBB53BD929D1F2B2E22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Promare | Промар [2019, Movie] DVD9 480p raw+rus
 ```bash
 magnet:?xt=urn:btih:AF0D1106FA3383EC5656A47A4D12B6C7FB941B49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Mononoke Hime | Принцесса Мононокэ | Princess Mononoke | При
 magnet:?xt=urn:btih:9361814E7B1456BE37E720228E8F14BDE3C849CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Maou 2099 | Повелитель демонов 2099 [2024, TV, 12 эп.] BDRip 
 ```bash
 magnet:?xt=urn:btih:B868C0EE9C6AFA99DFE7EE209A14F5BF753226DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ Trivium — американская метал-группа из Орландо
 magnet:?xt=urn:btih:7D819840B377D25E8AE4BEE79E81291FAF4DDEE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:7D819840B377D25E8AE4BEE79E81291FAF4DDEE8
 ```bash
 magnet:?xt=urn:btih:1B54F6D52B86E33ED8CE0230849CB2FD965FAAD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:1B54F6D52B86E33ED8CE0230849CB2FD965FAAD3
 magnet:?xt=urn:btih:8A7C82B3558DD2F6F4D3F053DF1AEF8A83B003A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:8A7C82B3558DD2F6F4D3F053DF1AEF8A83B003A6
 ```bash
 magnet:?xt=urn:btih:1EBD4F2817B54960337F52AD48E35FA41C8983F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Freemake Video Converter - это универсальное приложени�
 magnet:?xt=urn:btih:C485D8DA9999F02BB52A72FBACB36F0C7D1EA266
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:C485D8DA9999F02BB52A72FBACB36F0C7D1EA266
 ```bash
 magnet:?xt=urn:btih:E6F69DCBCC73D4AB832285568987F84369B48630
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:E6F69DCBCC73D4AB832285568987F84369B48630
 magnet:?xt=urn:btih:4CC468564BE831EEC92B3EB423CA6B825A9E9C1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:4CC468564BE831EEC92B3EB423CA6B825A9E9C1F
 magnet:?xt=urn:btih:AA7746A011E37B74C654F9F532A0E3095D722F99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:AA7746A011E37B74C654F9F532A0E3095D722F99
 ```bash
 magnet:?xt=urn:btih:5A0A6317A1C8C973E4214BCE7BDEF2C3997E9401
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ Frayle - Heretics & Lullabies (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Doom
 magnet:?xt=urn:btih:C290C5CEFECB4F9D7E91A176B29CC79FFCDA50D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Camtasia Studio - мультимедийная программа для зап�
 ```bash
 magnet:?xt=urn:btih:D38E3AC46CC23865CACD4130DF966BF653D7C267
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ CPU-Z способен показать различную информацию 
 magnet:?xt=urn:btih:1C160CB45A6BF4538587B1BBBEA62A3E41833038
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ Lacey -  простой инструмент для поиска и скачив
 ```bash
 magnet:?xt=urn:btih:8BB959E7A659CC0BD9298C477F6D1EAFCCE76551
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:8BB959E7A659CC0BD9298C477F6D1EAFCCE76551
 magnet:?xt=urn:btih:CA724F4DD23A69BDB269A08A87775213320B4B8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:CA724F4DD23A69BDB269A08A87775213320B4B8F
 ```bash
 magnet:?xt=urn:btih:9BE93AEFB6720F185A053C248FDC206BD4ADA0AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:9BE93AEFB6720F185A053C248FDC206BD4ADA0AC
 ```bash
 magnet:?xt=urn:btih:831EC49BB823CA359B8E910C5545C6DC6BC0AF5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

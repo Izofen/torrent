@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:788CD1E9C0A7559321060FA8B9EAA3C8E5F79B97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:788CD1E9C0A7559321060FA8B9EAA3C8E5F79B97
 magnet:?xt=urn:btih:7561021F3B714AF3D7E8005C30B2A65333C09C46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:7561021F3B714AF3D7E8005C30B2A65333C09C46
 ```bash
 magnet:?xt=urn:btih:4A396EEEB4FF65B875388E21384F411149C9630A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Bazanova Art, Ольга Базанова | Практика художника 
 magnet:?xt=urn:btih:9C4191BFD66C2B6202301CA4F99D06D68189BEB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:9C4191BFD66C2B6202301CA4F99D06D68189BEB7
 ```bash
 magnet:?xt=urn:btih:66F2DB78F7DECD8770F1F124BFBA7D089B29B9C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ RadioMaximus 2.32.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:5FAB778FA16B4521A56DD8029D14F25CD535DB05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ NirLauncher Package - универсальный пакет из более че
 ```bash
 magnet:?xt=urn:btih:0378D391D6798538E2A10FB590B7F3389397B4F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Total Commander 11.02 (01.01.2024) Portable by MiG [Ru/En]
 magnet:?xt=urn:btih:5C3B6C152856FDBB1E1077CE94A3CA6A98FE3790
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:5C3B6C152856FDBB1E1077CE94A3CA6A98FE3790
 ```bash
 magnet:?xt=urn:btih:B81E9F041AA6D136FD024D71B6B6FAD133E0E2EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ ExtraDisks - это набор инструментов для создания 
 magnet:?xt=urn:btih:D159A47AB9443F6BFAA68921FAD24E665797DB84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:D159A47AB9443F6BFAA68921FAD24E665797DB84
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:D159A47AB9443F6BFAA68921FAD24E665797DB84
 magnet:?xt=urn:btih:C7859216A0FC6637068B295CB757C210B5458D0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:C7859216A0FC6637068B295CB757C210B5458D0F
 magnet:?xt=urn:btih:47B8B365881C3CCD0BBAA4A0BCDBCB9335A54D42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 ```bash
 magnet:?xt=urn:btih:98D79203A9A4E5E90636B916C565F87A0228D083
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:98D79203A9A4E5E90636B916C565F87A0228D083
 magnet:?xt=urn:btih:7E20E377D84D37D0BCA681D74188CC44BF315A01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:7E20E377D84D37D0BCA681D74188CC44BF315A01
 ```bash
 magnet:?xt=urn:btih:A9CAB5583E444DAC25A812698AC7C561F2891D27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ magnet:?xt=urn:btih:A9CAB5583E444DAC25A812698AC7C561F2891D27
 magnet:?xt=urn:btih:93473ED99A6AA1EB2A26A6B8AD0E83D0DEEC85FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:93473ED99A6AA1EB2A26A6B8AD0E83D0DEEC85FF
 ```bash
 magnet:?xt=urn:btih:6B970E88075DBA6A83898D2611E206AC9615BC0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ Megacubo - это бесплатный IPTV-тюнер для Windows, кото�
 magnet:?xt=urn:btih:03B57435B6E2F31310FBD29246FB6EF118A8F88F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ magnet:?xt=urn:btih:03B57435B6E2F31310FBD29246FB6EF118A8F88F
 magnet:?xt=urn:btih:624F8A875554D228CAB48246DC0BE6912C460308
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ magnet:?xt=urn:btih:624F8A875554D228CAB48246DC0BE6912C460308
 ```bash
 magnet:?xt=urn:btih:A4B7EDE4CF1E54814C157C320AB4862EC2BF594A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +580,8 @@ Boilsoft Video Joiner -  простой и удобный в использов�
 magnet:?xt=urn:btih:884A5F0EBEBF97A5038501497EF341A452D2D5FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ magnet:?xt=urn:btih:884A5F0EBEBF97A5038501497EF341A452D2D5FA
 ```bash
 magnet:?xt=urn:btih:7C439C4EBF55BC2D1B3125D498AE900C6FCDAC4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:7C439C4EBF55BC2D1B3125D498AE900C6FCDAC4D
 magnet:?xt=urn:btih:3C75D70AB55E6492A0F8C92F0F1D3545F4CD04B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ magnet:?xt=urn:btih:3C75D70AB55E6492A0F8C92F0F1D3545F4CD04B9
 magnet:?xt=urn:btih:822F7AA6AAEE58F6BB926515BB425CDF48244C7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ NetLimiter - программа, решающая проблему контро�
 ```bash
 magnet:?xt=urn:btih:494EEBA11CFFA4746AE69F660A18755C9BED57AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

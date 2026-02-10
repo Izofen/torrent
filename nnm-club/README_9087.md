@@ -20,6 +20,8 @@ EZ Mask - это простой в использовании инструмен
 magnet:?xt=urn:btih:EABD35591E887A6B25D29757013FCC612B15B9F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:EABD35591E887A6B25D29757013FCC612B15B9F0
 ```bash
 magnet:?xt=urn:btih:A600E1883E353594116D9846082E58714E3271F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:A600E1883E353594116D9846082E58714E3271F5
 magnet:?xt=urn:btih:49EC1204D2C2F30C79036F031FD1CBE2E57460F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Webcam Surveyor 3.5.0 Build 1028 Final [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C3A5874E10EA35B8F14911E88F3F141EC879D574
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:C3A5874E10EA35B8F14911E88F3F141EC879D574
 magnet:?xt=urn:btih:472EDE770E23A7A22646F0FF4CA2565025A1B81E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:472EDE770E23A7A22646F0FF4CA2565025A1B81E
 ```bash
 magnet:?xt=urn:btih:3B783B24A7BD0E866B9204A5739CED5F22176112
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ The Banner Saga (2014) [Ru/Multi] (2.36.03/dlc) Repack R.G. Catalyst
 magnet:?xt=urn:btih:6471FC9700D8C6F65088C5222651FBEB8317E269
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:6471FC9700D8C6F65088C5222651FBEB8317E269
 ```bash
 magnet:?xt=urn:btih:3D6DFEF116C2C794FD44A482CB237352227A03D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:3D6DFEF116C2C794FD44A482CB237352227A03D7
 magnet:?xt=urn:btih:9AF4F3E05D4C27B2834D0D5D411713FD83303C59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:9AF4F3E05D4C27B2834D0D5D411713FD83303C59
 ```bash
 magnet:?xt=urn:btih:079E0BA36E3BB78DE73FFF21ED4EC230EC0EC665
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Character Animator — это приложение для анимировани
 magnet:?xt=urn:btih:02B9D1886C79804A0352C5E72B1971188C2842AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:02B9D1886C79804A0352C5E72B1971188C2842AC
 ```bash
 magnet:?xt=urn:btih:2E2FA02D8BA14A802FCE002B85FD14FFDB322E20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:2E2FA02D8BA14A802FCE002B85FD14FFDB322E20
 magnet:?xt=urn:btih:1F63C591A3B0D16D71F2542FAEF2CCD1AD5FB6B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:1F63C591A3B0D16D71F2542FAEF2CCD1AD5FB6B6
 ```bash
 magnet:?xt=urn:btih:856D7A0436B5EBA68057734F6AC8512886C705F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ The Incredible Adventures of Van Helsing III (2015) [Muli] (1.0.6b) License GOG
 magnet:?xt=urn:btih:685F61A732A34B5CC4AAC0E0723D21C2AB465230
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Beholder (2016) [Ru/Multi] (1.0.20161118) Repack Dok2
 ```bash
 magnet:?xt=urn:btih:4D36ED1025697817910248E9C159E292A8CE3F13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:4D36ED1025697817910248E9C159E292A8CE3F13
 magnet:?xt=urn:btih:6BA0A8D12649021615CC16EE46E34ED1664C8399
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:6BA0A8D12649021615CC16EE46E34ED1664C8399
 magnet:?xt=urn:btih:39A3C60FF89734372BBE095CB85F68ED849B3E0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Freedom Fighters (2003) [Ru/En] (1.0) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:E4F55F45F01D732E604186412B7FD295FF149D0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:E4F55F45F01D732E604186412B7FD295FF149D0F
 magnet:?xt=urn:btih:1C742F107C482654C4A345C949266435ECFC1FC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:1C742F107C482654C4A345C949266435ECFC1FC7
 ```bash
 magnet:?xt=urn:btih:B09D5BB909488EB84A816530CE3D4FB09E8DBF61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:B09D5BB909488EB84A816530CE3D4FB09E8DBF61
 magnet:?xt=urn:btih:C2171E5A33131805F66C314EFDEA8F817F72211D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:C2171E5A33131805F66C314EFDEA8F817F72211D
 ```bash
 magnet:?xt=urn:btih:AF068FDA65726FC467B33B7C5991869307101F1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ Divinity II: The Dragon Knight Saga / Divinity 2: Пламя мести [Ru] (Re
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ Adobe Photoshop CC 2020 - новая, следующая за CC 2019 верси
 magnet:?xt=urn:btih:DCB5D588C84BADB037A3E8E9DE3CBF9296091EF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Metal Gear Solid 4: Guns of the Patriots (2008) [PS3] [EUR] 2.20 [CFW / HEN / Co
 ```bash
 magnet:?xt=urn:btih:5825FCF9E646E556BDD715A08AF40F5168C9285D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

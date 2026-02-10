@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:12B13BF13E3FCED95FCDFE4BA0A4530B1C08E1E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:12B13BF13E3FCED95FCDFE4BA0A4530B1C08E1E6
 magnet:?xt=urn:btih:AD2DBD0B50FD62116164E799CFC54E3E4473C350
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:AD2DBD0B50FD62116164E799CFC54E3E4473C350
 ```bash
 magnet:?xt=urn:btih:257658606F80ABD1B813C89E51EF26860F459EC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:257658606F80ABD1B813C89E51EF26860F459EC1
 magnet:?xt=urn:btih:84515243D4F1EF357423CC47CD102199F73AA469
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Unknown 9: Awakening (2024) [Ru/Multi] (Build 16687288/dlc) Repack Let'sРlay [D
 ```bash
 magnet:?xt=urn:btih:D970995DF84210F0E8A41BCCA42E1F9B4ECE6A50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:D970995DF84210F0E8A41BCCA42E1F9B4ECE6A50
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:D970995DF84210F0E8A41BCCA42E1F9B4ECE6A50
 ```bash
 magnet:?xt=urn:btih:A79468F9AC29F84B815855629B85BC7FED27AFC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:A79468F9AC29F84B815855629B85BC7FED27AFC2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ BBC: В какой Вселенной мы находимся? / Which Universe 
 ```bash
 magnet:?xt=urn:btih:C4390A4CD227EB0EC77175BFB6A878CCE044D003
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:C4390A4CD227EB0EC77175BFB6A878CCE044D003
 magnet:?xt=urn:btih:E72BFEB9B1D2053465B4D04C63DC673CD2D44EF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 magnet:?xt=urn:btih:C7037442C8838980F4A77FB490F16E51EA00D6AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:C7037442C8838980F4A77FB490F16E51EA00D6AD
 ```bash
 magnet:?xt=urn:btih:5FBA34A59EAE404BD3152EB5AD2E3F85906DF9D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:5FBA34A59EAE404BD3152EB5AD2E3F85906DF9D5
 magnet:?xt=urn:btih:98104999387711405E5702A361F5BD73DC345DAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:98104999387711405E5702A361F5BD73DC345DAC
 ```bash
 magnet:?xt=urn:btih:BA16229ACFDAA102C9F31F40AB7D6D321D83B9B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ State of Decay 2 (2018) [Ru/Multi] (1.3273.08/dlc) Repack Other s
 magnet:?xt=urn:btih:DFD4F6A79910D35AB8A04D28146C1A47C77977A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:DFD4F6A79910D35AB8A04D28146C1A47C77977A0
 ```bash
 magnet:?xt=urn:btih:9F2171DAAF4408E22E178166FF7DA1756038E22B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:9F2171DAAF4408E22E178166FF7DA1756038E22B
 magnet:?xt=urn:btih:3D45739E6C45A57CD81896F4B05950AB35D58580
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:3D45739E6C45A57CD81896F4B05950AB35D58580
 ```bash
 magnet:?xt=urn:btih:359E67476512018D5C7E18D3CD9B8D1EBEB4E53C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ MechWarrior 5: Clans (2024) [Ru/Multi] (1.0.83/dlc) Repack Decepticon [Digital C
 magnet:?xt=urn:btih:3083B178800412CE1BFD2F1299FFFF6B139EBF86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:3083B178800412CE1BFD2F1299FFFF6B139EBF86
 ```bash
 magnet:?xt=urn:btih:E9DE917990BAC8DE116B7AA34F691FDF1AE24D4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.08) Repack 
 magnet:?xt=urn:btih:9837B011C4B7256F1AB4F1A3E85BCCC95D28216C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ magnet:?xt=urn:btih:9837B011C4B7256F1AB4F1A3E85BCCC95D28216C
 ```bash
 magnet:?xt=urn:btih:BE2081DEF84974EE106686D62D43BABB23EB8D38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:BE2081DEF84974EE106686D62D43BABB23EB8D38
 magnet:?xt=urn:btih:D1D0A8A590642AFDAE6A8C5E44C3E05C58E73D61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ magnet:?xt=urn:btih:D1D0A8A590642AFDAE6A8C5E44C3E05C58E73D61
 magnet:?xt=urn:btih:A82EC45BF4652011DE68032D5619871C0515C991
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Morcheeba - Collection (23 CDs) (1996-2010) [MP3|137-320 kbps]<Trip-Hop, Chillou
 ```bash
 magnet:?xt=urn:btih:3ADE2EE321D3D128AE2D6D65764848D8EB4C3066
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

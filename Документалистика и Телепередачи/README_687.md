@@ -1,3 +1,29 @@
+###  Публикация: 986914   (928552) от 15.02.2016
+
+Орел и решка. Кругосветка (2016.02.15) SATRip (сезон 12: Антверпен)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_928552.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 12-м сезоне трэвел-шоу «Орел и решка» отправляется в настоящее путешествие вокруг света! Впереди 40 стран и 270 дней пути от Гринвича до Гринвича без права возвращаться домой! Восемь человек - восемь характеров и восемь чемоданов! И никто из них теперь не спрячется за камерой. Теперь все участники на виду! Как работает съемочная группа, как отдыхает, с какими проблемами (   Читать дальше...   )Телекомпания: ПятницаЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86B441AE3BC8936A9D966CD3495130B8BF969E88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 285632   (928883) от 25.01.2011
 
 Мальдивы / Maldives: Scattering Diamonds (2009) Blu-ray [1080i]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:ED98FE94F3AAB8A79B509CCE5E3B4406FB0E7A9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:ED98FE94F3AAB8A79B509CCE5E3B4406FB0E7A9C
 magnet:?xt=urn:btih:03CC08520C3005C88AF8E559D3D5150A794658AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:03CC08520C3005C88AF8E559D3D5150A794658AF
 magnet:?xt=urn:btih:116D3F49A44EC5FF281FFF3427CD18D99077DEDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:116D3F49A44EC5FF281FFF3427CD18D99077DEDC
 ```bash
 magnet:?xt=urn:btih:CFADB793B83A694320953D7912013D268E8C1B65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:CFADB793B83A694320953D7912013D268E8C1B65
 magnet:?xt=urn:btih:D4DC99CC20C328019ADDE329B3CDDD60981EECFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:D4DC99CC20C328019ADDE329B3CDDD60981EECFA
 ```bash
 magnet:?xt=urn:btih:576DC8ACE63ED71665E48FF986DEA6B54DDA1B1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:576DC8ACE63ED71665E48FF986DEA6B54DDA1B1A
 magnet:?xt=urn:btih:4A91108770E1D2A645461A7FBCFB8EF435937883
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:4A91108770E1D2A645461A7FBCFB8EF435937883
 ```bash
 magnet:?xt=urn:btih:5318C0FB84E20EBAAE780CCF16D9CF8DA56A598A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:5318C0FB84E20EBAAE780CCF16D9CF8DA56A598A
 magnet:?xt=urn:btih:808F9100446CAA6AE55052EF2BE23E4E0ED20279
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:808F9100446CAA6AE55052EF2BE23E4E0ED20279
 magnet:?xt=urn:btih:C13AA22B6413F2200A932A9533521B9FA5F0B5F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:C13AA22B6413F2200A932A9533521B9FA5F0B5F6
 ```bash
 magnet:?xt=urn:btih:390BCA8968B1EB60015E3724ED1B98E7F686F1E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:390BCA8968B1EB60015E3724ED1B98E7F686F1E3
 magnet:?xt=urn:btih:856C05550D00740826AA3A175918BFCF0E56B684
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:856C05550D00740826AA3A175918BFCF0E56B684
 magnet:?xt=urn:btih:2C9F6E20EF53B6B67FB6C16CA570EDAEA1CE32DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:2C9F6E20EF53B6B67FB6C16CA570EDAEA1CE32DC
 ```bash
 magnet:?xt=urn:btih:96A309134C8C292CA9EDEC34AF028052F9F60E87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:96A309134C8C292CA9EDEC34AF028052F9F60E87
 magnet:?xt=urn:btih:91EA45345C3DB6B37B199C26B10D37963EC470DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:91EA45345C3DB6B37B199C26B10D37963EC470DB
 ```bash
 magnet:?xt=urn:btih:CE20775151C9832857504E17E1480831A5437926
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:CE20775151C9832857504E17E1480831A5437926
 magnet:?xt=urn:btih:AADE642C324536ADFE2B7A4E9F60955ACF02FDEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:AADE642C324536ADFE2B7A4E9F60955ACF02FDEB
 magnet:?xt=urn:btih:19DBFFB11C11719233E00302F79DAEB683F8D2B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:19DBFFB11C11719233E00302F79DAEB683F8D2B9
 ```bash
 magnet:?xt=urn:btih:F99E943C8C9474BB31E123EE7015C4E84F633F84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:F99E943C8C9474BB31E123EE7015C4E84F633F84
 magnet:?xt=urn:btih:85C6089A75260E4EED0F145FCF3E5ADE370711BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:85C6089A75260E4EED0F145FCF3E5ADE370711BB
 magnet:?xt=urn:btih:C78E10188A423FA4C9C6C765C9027671B7899D3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:C78E10188A423FA4C9C6C765C9027671B7899D3E
 ```bash
 magnet:?xt=urn:btih:F9B5B2D0E5D4DC13F8F82D18F45F1D7C7279F328
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:F9B5B2D0E5D4DC13F8F82D18F45F1D7C7279F328
 magnet:?xt=urn:btih:BF6CAAA8AD461FE42746BC5BE1FD62F0DCE9A312
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:BF6CAAA8AD461FE42746BC5BE1FD62F0DCE9A312
 ```bash
 magnet:?xt=urn:btih:36A3C7CC45860E5A80D08E9B452976F0957CB087
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,29 +676,7 @@ magnet:?xt=urn:btih:36A3C7CC45860E5A80D08E9B452976F0957CB087
 magnet:?xt=urn:btih:B45550561D6DDB76B60C24D468366A96877AEC9F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365470   (930544) от 07.03.2020
-
-Джоанна Ламли на Шёлковом пути / Joanna Lumley's Silk Road Adventure (2018) WEB-DL [H.264/1080p] (серии 4 из 4)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это самое авантюрное и экзотичное путешествие Джоанны Ламли. Когда-то веницианские купцы обратили свой взгляд на Восток и наладили торговый путь, протянувшийся на 11 тысяч километров - от Италии до Китая. Это легендарный Шёлковый путь, путь торговцев, изменивших этот мир. Влияние Шёлкового пути было огромным: некоторые становились богатыми до безобразия, а кто-то (   Читать дальше...   )Производство: Великобритания, Burning Bright ProductionsЖанр: Документальный, познавательный, путешествия, историяРежиссер: Ивен Томсон, Марк Бейтс, Клайв ТаллоПеревод: Двуголосый закадровый, профессиональныйСубтитры: Английские, hardsub на отличную от англоязычной речьПродолжительность: серии x ~00:45:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:930198E64C292B0E6DE422E6DD4802ABD013151D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Zero Hour (2020) [Ru/Multi] (Build 20792172/dlc) Repack FitGirl [Gold Edition]
 magnet:?xt=urn:btih:428446A44EE78587FC5A5CE2C52E711CDA79854D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Police Stories – это история о двух полицейских: Д�
 ```bash
 magnet:?xt=urn:btih:3CB0B58F926FBD7832F0A7F304754218026E6D16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Dark Moon – стратегическая игра о выживании, гд�
 magnet:?xt=urn:btih:C15238EB34D4B047582433BFB5CED3D5EE9B1B91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ DE-EXIT - Eternal Matters - приключение, в котором предс
 ```bash
 magnet:?xt=urn:btih:271A8611309A88E104F522884DD5F4DF55FC267D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ The Last Starship - это двухмерный симулятор космич�
 magnet:?xt=urn:btih:491C3C00F805E0090A3C9E8AC610E4DF54328ADA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Escape Simulator 2 - это продолжение самого продавае
 ```bash
 magnet:?xt=urn:btih:7B1BAE11E0E6D82C8AFDD416853B9B20AC599AFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Shenmue III (3) (2020) [Multi] (1.06.01/dlc) License GOG
 magnet:?xt=urn:btih:F15158197A6AEE2017080CF1E41E4AB6A6BB6E6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Creator (2025) [Ru/Multi] (0.1.05.1028.88888888/dlc) Repack FitGirl [Support
 ```bash
 magnet:?xt=urn:btih:643C82F32FE389C6B6A55CE9B9196BF689AFDA74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Edge of Reality 10: Island of Shadows / Край реальности 10: Ост
 magnet:?xt=urn:btih:6F6D767E11F49609E2AF84DFCD2AEDD469617D23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Lady Mabel Mysteries: Death on Board / Тайны леди Мейбл: Смер�
 ```bash
 magnet:?xt=urn:btih:8B98FC9BFBCED7D4A7CB53D4E7EECDF323443F6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Zoochosis - это бодикам хоррор-симулятор. Ты - ноч
 magnet:?xt=urn:btih:F3514D5A5402733C62182F01E9FFB18A80B00135
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Supermarket Simulator (2025) [Ru/Multi] (1.1.7) Repack Necros
 ```bash
 magnet:?xt=urn:btih:860BFBD080EA2DA6BC536ABD471E70D1B9B9F579
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ STAR WARS: Squadrons (2020) [Ru/Multi] (1.0.10.39591) Repack Wanterlude
 magnet:?xt=urn:btih:5397E1539BE547FBAB3EB932725C45A3963ACB70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Inspector Magnusson: Murder on the Titanic / Инспектор Магнуссо
 ```bash
 magnet:?xt=urn:btih:CA9982690017BA93396D9E47F1EA5292C93B6400
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Top Secret Finders / СверхОсобый СпецОтдел (P) [Ru] 2012
 magnet:?xt=urn:btih:2B13C1839E5A80476CB90D662E014BB052D70B03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Star Wars: XJedi Academy (P) [En] 2010
 ```bash
 magnet:?xt=urn:btih:978885EF9013BB1ADD5DAD63B455015CE5208CE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ Resident Evil: Operation Raccoon City — классический шутер о
 magnet:?xt=urn:btih:988DD48B99B731A42498515BBB7E579EDA1A762A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Amazing Adventures 5: Riddle of the Two Knights (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:9BEAF1463BEFC7D0DE8B197E2A7719C15399CFD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ How To Frazzle Out A Neighbor Tycoon's Vacation  / Как достать сос�
 magnet:?xt=urn:btih:E30212A9A68D086AD2C300537CB396D0D50A3ACF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ Europa Universalis V (5) (2025) [Ru/Multi] (1.0.4/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:C8CCE265F7F475CE391139E14CC6B7759DCC9AA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ Syberia - Remastered (2025) [Ru/Multi] (Build 20708995) Repack Wanterlude
 magnet:?xt=urn:btih:00A16EBE8AE47D24F32265419B89A56E29563915
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ CarX Street (2024) [Ru/Multi] (1.9.1/dlc) Repack Necros
 ```bash
 magnet:?xt=urn:btih:7E910177103336857357451B33B5F096E21906C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ Barotrauma — научно-фантастический симулятор по
 magnet:?xt=urn:btih:5C2FC6E70B13F7C971ACF937D8ADDE94E67B87E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ SpongeBob SquarePants: Titans of the Tide (2025) [Ru/Multi] (1.2.0.0/dlc) Repack
 ```bash
 magnet:?xt=urn:btih:4839525F710C6F373AF8560D1CB7FCFCDFE2E889
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ Diplomacy is Not an Option (2024) [Ru/Multi] (1.0.98) Repack Necros
 magnet:?xt=urn:btih:908DDEE3D86BC8CD3B8D565FB73C532A7367A39E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Risk of Rain 2 - это кооперативный шутер от третье�
 ```bash
 magnet:?xt=urn:btih:0457EBEF2BD66488A3036B4D2D8B347C1DC03C00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

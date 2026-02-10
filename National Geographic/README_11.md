@@ -19,6 +19,8 @@ NGW: Птица-динозавр / Dino-Bird (2017) HDTV [H.264/1080i]
 magnet:?xt=urn:btih:CA44CD296BA3D0CB980A0F5E0A0C68EF7863E356
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NG: Внутри колец Сатурна / Mission Saturn (2017) TVRip [H.264]
 ```bash
 magnet:?xt=urn:btih:1E0BE4B4E87118A11B0DB605EB213B1AED85543A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NGW. Дикие животные 24 часа / Wild 24 (2016) HDTVRip [H.264/108
 magnet:?xt=urn:btih:818715552C5E0DC69CA506E63E874EE4953EA72B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NG. Львиное королевство / Lion Kingdom (2017) WEB-DL [H.264/10
 ```bash
 magnet:?xt=urn:btih:AE275B6F773A202B566C2F1129DF382BBED76B32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ NGW. Самая большая в мире белая акула / World's Bigge
 magnet:?xt=urn:btih:5CCCF1B7797029F10DC0365CE20C3F2F563C4758
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ NGW. Дикая природа Коста-Рики / Wild Costa Rica (2000) HDTV
 ```bash
 magnet:?xt=urn:btih:2259978479AC132332DC915CC947A7C4254D0A72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ NG. Первая мировая война: тоннели смерти / WWI: T
 magnet:?xt=urn:btih:E3FF84FA625033CAE80DD55383C6FB647DD5D355
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ NG: От колыбели до могилы / Cradle to Grave (2016) HDTV [H.264
 ```bash
 magnet:?xt=urn:btih:2DBDF70A28AE33B4D3D18B5AAFCE8D857CC8792E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ NG: Топ 10 Мегамонстры / Top 10 Biggest Beasts Ever (2015) HDTVRip
 magnet:?xt=urn:btih:91172C0AE57EE892990878F1E3A64ED46D1412DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ NGW. Дикий Нил / Wild Nile (2014) HDTVRip [H.264/720p-LQ] (1-3 сери�
 ```bash
 magnet:?xt=urn:btih:C31A79A1988F578C15DD3AB35C470002282911D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ NG: Чудеса инженерии / Big Bigger Biggest (2008-2009) HDTVRip [H.
 magnet:?xt=urn:btih:6275B08E37410CF417C9BFB42A8B9ADE79D215A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ NG: Дикая природа Чили / Wild Chile (2017) WEB-DLRip [H.264/720p
 magnet:?xt=urn:btih:0ED3DCEE15119FAB3DF2A49A6D311D4B84B31189
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ NG: Дикая природа Чили / Wild Chile (2017) WEB-DL [H.264/1080p] 
 ```bash
 magnet:?xt=urn:btih:CD340EF2943C16005C9CBE14DD3BAC108C5A7D46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ NG. Франциск-бунтарь / Rebel Pope (2016) DVB
 magnet:?xt=urn:btih:F6634092415D970780F6E48361122FA3119C5327
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ NG: Затерянный храм империи инков / Lost Temple of The
 ```bash
 magnet:?xt=urn:btih:79819ED0D4FE56991248687014A8D0F315DFEAD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ NG: Затерянный храм империи инков / Lost Temple of The
 magnet:?xt=urn:btih:1821DF20F0A1417BB7A7624BE15FA8668740466B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ NG. Мумии, застывшие во времени / Mummies. Frozen in Time
 ```bash
 magnet:?xt=urn:btih:164835725F2DF35340FFCFBBD3FF4D88952C8DEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ NGW: Загадка гигантского пещерного паука / Myste
 magnet:?xt=urn:btih:CB92631C851A75B97660997FAE5D0F45FAEB7B2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ NGW: Остров муссонов. Озерные охотники / Island of 
 ```bash
 magnet:?xt=urn:btih:3F875903F94A4BF8C79604256DEAF06D6AB4B726
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ NG. Титаник: Роковой пожар / Titanic's: Fatal Fire (Titanic: 
 magnet:?xt=urn:btih:32EAB9D7355B0FFED9930F8608C1D05E7C7D77BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ NG. Потерянные мумии Новой Гвинеи / Mystery Mummies of
 ```bash
 magnet:?xt=urn:btih:E6A8E71568B46495DD73E80BC3B9EC387FEC898E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ NG: Секретное оружие Японии / Japan's Secret Weapon (2009) 
 magnet:?xt=urn:btih:B801A46F85CF07EA6B77E75CB78F3B925EB1BF6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ NG. Медоеды. Змеиные убийцы / Honey Badgers of the Kalahari.
 ```bash
 magnet:?xt=urn:btih:0FBDB0625706BD63A308788FEBEF30E70E460551
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ NG: Подъем "Коста Конкордии" / The Raising the Costa Concord
 magnet:?xt=urn:btih:46F0DB8EDE3E731C4B5035E89846F3B838B0EEE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ NG: Международный аэропорт Дубай. Серия 10 / Ulti
 magnet:?xt=urn:btih:A6BA551EA7FD51EA6DAC232213413AEFD348ECFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ NG. Ужас в небесах / Terror in the Skies (2013) DVB (серии 1-4)
 ```bash
 magnet:?xt=urn:btih:5A6FEBD2212E154CDF579B3849E1606489EA4B82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

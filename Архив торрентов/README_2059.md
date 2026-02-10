@@ -19,6 +19,8 @@ NG: Охота на гигантского крокодила / Monster Croc Hun
 magnet:?xt=urn:btih:E1A9F1CC5F0E87F86DFB8D9B1A6DDC7BB92E1CDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:E1A9F1CC5F0E87F86DFB8D9B1A6DDC7BB92E1CDE
 ```bash
 magnet:?xt=urn:btih:D0B47524E47616CF5061FF679732E42B9A7A4DAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Day One — изысканный дневник
 magnet:?xt=urn:btih:F7104F4F84EF31DB04C3D541D38C4C12E0802896
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:F7104F4F84EF31DB04C3D541D38C4C12E0802896
 ```bash
 magnet:?xt=urn:btih:16192D771052F56C94B34E5C385B8A897759DAE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Templates for Pages - красивые и полезные шаблоны для
 magnet:?xt=urn:btih:BEE57F61B33D02584795789C414EFAE7DA15BC9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ Mark Reeder - Collaborator (2014) [FLAC|tracks+.cue]<Synthpop, Electro, Remixes>
 magnet:?xt=urn:btih:EA30043ACF2DC73A8DC833A72F308B8726A696C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ RadioBOSS - это программа для автоматизации эфир
 ```bash
 magnet:?xt=urn:btih:555B56F31E4A86F01BA65A7D298208EA4257380E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ Affinity Photo — профессиональный фоторедактор д�
 magnet:?xt=urn:btih:42AC6E0B47B01FCBF725C017CD99D4BD4FD7A6F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:1AA39449AD9208AEC232E836BE0DEE5F1CB3F8C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ EyeLeo 1.31 [Ru]
 magnet:?xt=urn:btih:D5338807E323223F969A80145BDCBBB17FFF9B00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:D5338807E323223F969A80145BDCBBB17FFF9B00
 ```bash
 magnet:?xt=urn:btih:466840B355A5337506C3D8117C518322354FA115
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ Thunderbird — это бесплатная почтовая программа,
 magnet:?xt=urn:btih:7969BA8CEFA6BD5338D9DFCBAF24FE13C364DDC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ Stand Up (2017.11.26) WEB-DLRip (сезон 7, выпуск 9)
 ```bash
 magnet:?xt=urn:btih:49E8534E7A3C9647DB6893CD7E45547DE79A1BC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:49E8534E7A3C9647DB6893CD7E45547DE79A1BC9
 magnet:?xt=urn:btih:F1862FF92B9EE9D55FC3178FD843FF18FD95B066
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ Basilisk - это веб-браузер с открытым исходным к�
 magnet:?xt=urn:btih:47DDF1F9A74BEE6402FFCBF28D1E04539F8F418C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ Beyond Compare - мощная и одна из лучших программ д�
 ```bash
 magnet:?xt=urn:btih:E62DF07680BD332530920E24B4E6FE70BA545AC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ VA - Hardstyle Sounds Vol.9 (2019) [MP3|320 Kbps] <Techno, Hardstyle>
 magnet:?xt=urn:btih:FB2F079F2E81C7E35D31710165E1DA3B4C58BD3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ VueScan - программа для работы со сканерами HP, Min
 ```bash
 magnet:?xt=urn:btih:A2862248E5ADAF22A6F7571865E925EC1668AB0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ Extreme Picture Finder - программа для автоматическог�
 magnet:?xt=urn:btih:F82C04D5415651ED816AEC1A8453A9933953DD7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:7FEE1CBA1BB1CC72CB69193D20A01E54578659A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +554,8 @@ DropDMG — это очень простая, но функциональная 
 magnet:?xt=urn:btih:377FFA587A974807B70918FF428E6E1EFA9F9370
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ magnet:?xt=urn:btih:377FFA587A974807B70918FF428E6E1EFA9F9370
 ```bash
 magnet:?xt=urn:btih:A54088DC52590B7579EE2AF9BE1A99F8DA5BE3F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +607,8 @@ WWE 2K15 (2014) [PS3] USA (4.50) [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En]
 magnet:?xt=urn:btih:891DA41C0AD06E3E6588008F65F4D7448AEA6538
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:F7970C336B38D698D3E8AD3DB22A634A1BC9C7F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +659,8 @@ Chromium – веб-браузер с открытым исходным кодо
 magnet:?xt=urn:btih:9B65F4170C7B218D75918EFEA28EA1F0F9A085B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ magnet:?xt=urn:btih:9B65F4170C7B218D75918EFEA28EA1F0F9A085B8
 ```bash
 magnet:?xt=urn:btih:80F5B4E767F4BD223A46A7D4EBD2B065726594FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

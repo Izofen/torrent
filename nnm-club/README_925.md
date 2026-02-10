@@ -19,6 +19,8 @@ The Last Flame (2025) [Ru/Multi] (1.0.2) Repack Let'sРlay
 magnet:?xt=urn:btih:1A66574191B8D90C5FF65F535613FDF3AFB268BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:1A66574191B8D90C5FF65F535613FDF3AFB268BB
 ```bash
 magnet:?xt=urn:btih:88EA4DFC037CE75DB65CFD1F7654E87606B1750B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:88EA4DFC037CE75DB65CFD1F7654E87606B1750B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:88EA4DFC037CE75DB65CFD1F7654E87606B1750B
 ```bash
 magnet:?xt=urn:btih:A38007235F643606B137E6315002BEAAFF97A09C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Salaryman ga Isekai ni Ittara Shitennou ni Natta Hanashi / История о с�
 magnet:?xt=urn:btih:3FCD05F18C3DFAA7695BD17B19D4B362938588E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Hard Disk Sentinel Pro — отличная программа для монит
 ```bash
 magnet:?xt=urn:btih:584C16BA08AA1295FFD1937DBE9F6055A6FA6E4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:584C16BA08AA1295FFD1937DBE9F6055A6FA6E4D
 magnet:?xt=urn:btih:D1D074C1A7FAF1109E0DC37F0428DEFC21BE359F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Night clock / Ночные часы v2.10.43 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1DFA5DBCB95C8A8EDDDB14843C3208B9E14D1A47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:1DFA5DBCB95C8A8EDDDB14843C3208B9E14D1A47
 magnet:?xt=urn:btih:CB88ED84207F50892AEDF26BE1BBE49EF1B642E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Clip Studio Paint EX (ранее Manga Studio EX) - это ведущее в м�
 ```bash
 magnet:?xt=urn:btih:3F4A6906FF76E844F071465246941F1C503B131A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Contra: Operation Galuga (2024) [Ru/Multi] (1.3) Repack Let'sРlay
 magnet:?xt=urn:btih:9A683090BE86972F232D9C4CE6A1EDD1933FCCBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Botsuraku Yotei no Kizoku Dakedo, Hima Datta kara Mahou o Kiwamete / Перер�
 ```bash
 magnet:?xt=urn:btih:02CD9DD1A271AD65631A9CA00476C487F554C888
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:02CD9DD1A271AD65631A9CA00476C487F554C888
 magnet:?xt=urn:btih:0C9F3F9A8D8542DEEA1B55DD4605B57500D5D9AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Hard Disk Sentinel — отличная программа для монитор
 ```bash
 magnet:?xt=urn:btih:F3A1F0E9AFD70C366B321F07BB8598EC8C26B207
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:F3A1F0E9AFD70C366B321F07BB8598EC8C26B207
 magnet:?xt=urn:btih:71DFA47DE6F8B862B9A062977FCDF7052430C176
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ magnet:?xt=urn:btih:71DFA47DE6F8B862B9A062977FCDF7052430C176
 ```bash
 magnet:?xt=urn:btih:B27997852730BEA0ED7A80C96C3AF6CA00540796
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:B27997852730BEA0ED7A80C96C3AF6CA00540796
 magnet:?xt=urn:btih:3F282A4A4B9E1CC233D4CF586215153ACF954C5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Broken Roads создана командой настоящих энтузиас
 magnet:?xt=urn:btih:9B756BCD120567BDF5A1E019B5864A97269E9C4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +486,8 @@ magnet:?xt=urn:btih:9B756BCD120567BDF5A1E019B5864A97269E9C4D
 ```bash
 magnet:?xt=urn:btih:1BCA6AD6AD9EBCB1A007C540A82F09BC23F10723
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:1BCA6AD6AD9EBCB1A007C540A82F09BC23F10723
 magnet:?xt=urn:btih:797F74C4C0434B81CDCC0B1914D2BC2F681DEB21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ S Rank Monster no Behemoth Dakedo, Neko to Machigawarete Elf Musume no Pet to Sh
 ```bash
 magnet:?xt=urn:btih:AA5049899833FC34D5B284A3183C332D5BFE6797
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:AA5049899833FC34D5B284A3183C332D5BFE6797
 magnet:?xt=urn:btih:227F36690B443A1A33E9442B378C46CDAA26B252
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:227F36690B443A1A33E9442B378C46CDAA26B252
 magnet:?xt=urn:btih:6311CBEF00928658562FD0F8F437AA0868AA9C41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:6311CBEF00928658562FD0F8F437AA0868AA9C41
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ Microsoft Office 2021 — новый офисный пакет от корпор
 magnet:?xt=urn:btih:D35AA319A662F530BC4907CA008084C49DD72CBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ magnet:?xt=urn:btih:D35AA319A662F530BC4907CA008084C49DD72CBF
 ```bash
 magnet:?xt=urn:btih:B83F94B685F4F60B677110CF88C01FB803AE719D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

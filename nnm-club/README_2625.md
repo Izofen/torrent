@@ -19,6 +19,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:0B4567B55CD2844CCE6F5BAF1FF8FB35B54E93CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ TapScanner — сканер документов, это простой скан
 magnet:?xt=urn:btih:4C14DC56FAD55E4D76093331B7EC218686D3B8B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Photo Supreme — вспомогательная программа для вл�
 magnet:?xt=urn:btih:304A222CF6D013F0FB33473D941EB00776ABEB66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Blood Bowl (2012) [Ru/Multi] (3-2-0-0) License GOG [Chaos Edition]
 ```bash
 magnet:?xt=urn:btih:F6F92FDEE6AC54ACEF6C43A44462968E6C40E992
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Mattel | Артбук по мультсериалу Властелины все�
 magnet:?xt=urn:btih:C6C26459A87330FAC02281436B14825F2479D1A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:C6C26459A87330FAC02281436B14825F2479D1A0
 ```bash
 magnet:?xt=urn:btih:A2FCD3A3D716CCAC75910580E4670CE6C41FFC65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:A2FCD3A3D716CCAC75910580E4670CE6C41FFC65
 magnet:?xt=urn:btih:AD8FEEE83F551B34D7EAE262C512C467F36B1583
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Castbox является победителем в категории "Лучш�
 magnet:?xt=urn:btih:B2DFA5A8068BD361B2ED1E2F9CD18A158C2EBFB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:B2DFA5A8068BD361B2ED1E2F9CD18A158C2EBFB5
 ```bash
 magnet:?xt=urn:btih:F08D5AFA3543ECF1E380669E4AFC3CBF7BF9D581
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Michael Klastorin, Randal Atamaniuk | Артбук по фильмам Наза�
 ```bash
 magnet:?xt=urn:btih:8CD4BCC9B8EFCB5D0A90BEC24D2B2D53EC52966C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:8CD4BCC9B8EFCB5D0A90BEC24D2B2D53EC52966C
 magnet:?xt=urn:btih:5C85531F1F5B15C5C8FF3C98A6350296960DD1D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:5C85531F1F5B15C5C8FF3C98A6350296960DD1D7
 magnet:?xt=urn:btih:53D6BAAAC491DACA9A5FA3D534827DC0EACBFA17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ PictureThis - Plant Identification v5.1.6 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E84A057C2A81427701A69EA12741B4838F4925A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:E84A057C2A81427701A69EA12741B4838F4925A7
 magnet:?xt=urn:btih:73839B02BBED0DE7B838FF6C881AD85B124E5CF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:1B923C861D26018A70F91C13B52CBC01C0297C81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +429,8 @@ CD1:
 magnet:?xt=urn:btih:9C6BF3831DB9DA00AA407F3D93278B8E0DE7769F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:9C6BF3831DB9DA00AA407F3D93278B8E0DE7769F
 ```bash
 magnet:?xt=urn:btih:2D2F6B795D38B3FEE3C4D0E55FC96CDA04B8160F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ Duplicate File Detective - программа от Key Metric Software, кото
 magnet:?xt=urn:btih:443A380312007115FE29BBC02EBF0621D57136D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ magnet:?xt=urn:btih:443A380312007115FE29BBC02EBF0621D57136D3
 ```bash
 magnet:?xt=urn:btih:AD4B52EFFA990337373608120E8A2FC8B828D754
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +533,8 @@ Matthew K. Manning, Daniel Wallace | Артбук Бэтмен: Полное р�
 magnet:?xt=urn:btih:11003FF55D2572C972A9C02FB22AD2166A45DF03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:10A8F8CD213D685EDF909E317CD4FEF3E91137CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +585,8 @@ magnet:?xt=urn:btih:10A8F8CD213D685EDF909E317CD4FEF3E91137CE
 magnet:?xt=urn:btih:CDDD8E3413B13E083B332E79476FF6035C017A1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +610,8 @@ magnet:?xt=urn:btih:CDDD8E3413B13E083B332E79476FF6035C017A1B
 ```bash
 magnet:?xt=urn:btih:0A860026B5EA4FF39F97E0CA0128DEE9FCD41993
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +637,8 @@ magnet:?xt=urn:btih:0A860026B5EA4FF39F97E0CA0128DEE9FCD41993
 magnet:?xt=urn:btih:3CA08C53BAF829B59A39A55344D23CC16C580973
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ Opera One 117.0.5408.142 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9124FFFFD6CCBAA988E58789974903E08389690A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +689,8 @@ Genius Art: Image AI Generator v1.2.6 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F8653C6E3871852F0C11D57714EBEE7DD07452FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,31 @@
+###  Публикация: 1282721   (743404) от 13.02.2019
+
+Лэс Гиблин | Как обрести уверенность и силу в общении с людьми (2019) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Станьте гуру коммуникации и добивайтесь всего с помощью простых правил общения. Их автор, Лэс Гиблин, – признанный эксперт в области межличностного взаимодействия. Он провел более тысячи семинаров по коммуникационным навыкам и основал собственный Центр человеческих отношений. По всему миру было продано более миллиона экземпляров его книг.
+
+Прочитав эту книгу, вы (   Читать дальше...   )Жанр: Самосовершенствование, Достижение успехаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0442A962F8F73B6FA3DF4C32BC62A5424AE9C106
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020463   (743451) от 27.05.2016
 
 Алексей Ерофеев | Неформальный Петербург: от улицы де Гоголя до Рубинштрассе (2015) [PDF]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:C3AF237B1A215E951F40B6F2A8D94F35C0B52B8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +73,8 @@ magnet:?xt=urn:btih:C3AF237B1A215E951F40B6F2A8D94F35C0B52B8F
 magnet:?xt=urn:btih:5EC4F042AE7EF84C5EE4E1AA64ADB4A2C0279820
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +98,8 @@ magnet:?xt=urn:btih:5EC4F042AE7EF84C5EE4E1AA64ADB4A2C0279820
 ```bash
 magnet:?xt=urn:btih:DDD9D026F7152130363B333DD74F2BA62E8F2743
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +125,8 @@ magnet:?xt=urn:btih:DDD9D026F7152130363B333DD74F2BA62E8F2743
 magnet:?xt=urn:btih:08FE585D0D0FB72919DA8594A726C93A4F19098F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +150,8 @@ magnet:?xt=urn:btih:08FE585D0D0FB72919DA8594A726C93A4F19098F
 ```bash
 magnet:?xt=urn:btih:BF598EB0CA9F68B9D0AFCA5F200345129E75B0B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +180,8 @@ magnet:?xt=urn:btih:BF598EB0CA9F68B9D0AFCA5F200345129E75B0B7
 magnet:?xt=urn:btih:B3313223EE320BAE3A1CF5A4545A85F4DC163767
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +205,8 @@ magnet:?xt=urn:btih:B3313223EE320BAE3A1CF5A4545A85F4DC163767
 ```bash
 magnet:?xt=urn:btih:A60A285ED642BF1DEE07CDA548CA20CAC38E12EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +232,8 @@ magnet:?xt=urn:btih:A60A285ED642BF1DEE07CDA548CA20CAC38E12EE
 magnet:?xt=urn:btih:09827F698401D14365697E0123E04A1D5D75E0D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +258,8 @@ magnet:?xt=urn:btih:09827F698401D14365697E0123E04A1D5D75E0D5
 magnet:?xt=urn:btih:DD0C1D0CFE300BCC91BA2E437B2CD21F9F13228B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +283,8 @@ magnet:?xt=urn:btih:DD0C1D0CFE300BCC91BA2E437B2CD21F9F13228B
 ```bash
 magnet:?xt=urn:btih:178CB5EC35808ED79B739F86390B230EDAAD9B07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +311,8 @@ magnet:?xt=urn:btih:178CB5EC35808ED79B739F86390B230EDAAD9B07
 magnet:?xt=urn:btih:CDF8501D5070FE0C36912AF6F6D15FC0EC1C9560
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +336,8 @@ magnet:?xt=urn:btih:CDF8501D5070FE0C36912AF6F6D15FC0EC1C9560
 ```bash
 magnet:?xt=urn:btih:BC85408F46CF3DD8F56258A149D47D0C0C71F1E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +365,8 @@ magnet:?xt=urn:btih:BC85408F46CF3DD8F56258A149D47D0C0C71F1E3
 magnet:?xt=urn:btih:7963905976E7E596EBC4854AAEE66B9357A346A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +393,8 @@ magnet:?xt=urn:btih:7963905976E7E596EBC4854AAEE66B9357A346A9
 magnet:?xt=urn:btih:AB5C67037906CF8229E7930037707459576EC98B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +418,8 @@ magnet:?xt=urn:btih:AB5C67037906CF8229E7930037707459576EC98B
 ```bash
 magnet:?xt=urn:btih:B02DEBCAD094B2C60DFB6E5591F2469DCED73C4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +446,8 @@ magnet:?xt=urn:btih:B02DEBCAD094B2C60DFB6E5591F2469DCED73C4A
 magnet:?xt=urn:btih:CC652D0828E486B357F73A7022D013EDD1D3A945
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +471,8 @@ magnet:?xt=urn:btih:CC652D0828E486B357F73A7022D013EDD1D3A945
 ```bash
 magnet:?xt=urn:btih:2BC139B08EDF4A219E95D9C2A560B7CBD522DF01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +498,8 @@ magnet:?xt=urn:btih:2BC139B08EDF4A219E95D9C2A560B7CBD522DF01
 magnet:?xt=urn:btih:21FF6E2765A85030E65B64A1C74B0A254E57C124
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +523,8 @@ magnet:?xt=urn:btih:21FF6E2765A85030E65B64A1C74B0A254E57C124
 ```bash
 magnet:?xt=urn:btih:8497C956DAFB65DFAE70BBD2BDA4601137B21975
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +552,8 @@ magnet:?xt=urn:btih:8497C956DAFB65DFAE70BBD2BDA4601137B21975
 magnet:?xt=urn:btih:C332BE1B4FC7AE6DD2821791E85212B2A8D8DEC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +577,8 @@ magnet:?xt=urn:btih:C332BE1B4FC7AE6DD2821791E85212B2A8D8DEC5
 ```bash
 magnet:?xt=urn:btih:B615EC62D22C7C02A656F17FCEAD5C15D3C2C53F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +606,8 @@ magnet:?xt=urn:btih:B615EC62D22C7C02A656F17FCEAD5C15D3C2C53F
 magnet:?xt=urn:btih:95F36FEC0F62F5756553EAD03806E40DF00E9808
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +633,8 @@ magnet:?xt=urn:btih:95F36FEC0F62F5756553EAD03806E40DF00E9808
 magnet:?xt=urn:btih:C9353BE4847212D1BAE1971CDFB2ECEA0DA9CF87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +658,8 @@ magnet:?xt=urn:btih:C9353BE4847212D1BAE1971CDFB2ECEA0DA9CF87
 ```bash
 magnet:?xt=urn:btih:05FF14439138A34349ED74B129E330D819B68434
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,29 +685,7 @@ magnet:?xt=urn:btih:05FF14439138A34349ED74B129E330D819B68434
 magnet:?xt=urn:btih:51280F82400E3DAEC1ECE5145284D5339D8F7CCB
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391739   (745090) от 16.07.2020
-
-Роберт Мартин | Чистый Agile. Основы гибкости (2020) [PDF, EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошло почти двадцать лет с тех пор как появился Манифест Agile. Легендарный Роберт Мартин (Дядя Боб) понял, что пора стряхнуть пыль с принципов Agile, и заново рассказать о гибком подходе не только новому поколению программистов, но и специалистам из других отраслей. Автор полюбившихся айтишникам книг «Чистый код», «Идеальный программист», «Чистая архитектура» стоял (   Читать дальше...   )Жанр: Организационный менеджмент, Управление проектамиФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC21BD9FF8A5D2C94580C28F83C1DBB2567475A2
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

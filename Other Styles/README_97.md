@@ -22,6 +22,8 @@ VSOP Vienna Symphonic Orchestra Project - 7 (1996) [FLAC|Lossless|image + .cue] 
 magnet:?xt=urn:btih:0680EB0A570C4C3B621B0C98987A3C2054290229
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Message To Bears - Departures (2009) [FLAC|Lossless|tracks + .cue] <Ambient, Ins
 ```bash
 magnet:?xt=urn:btih:4C4724E63B3C44A9934D9B80C601A4BF010BE30B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Deepthi - Valoa (2019) [MP3|320 Kbps] <New age, World Music, Ethno>
 magnet:?xt=urn:btih:ED6F6FED079CDA1A55FD87F0C387D0641DD42C06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Max Rende - My World (2019) [MP3|320 Kbps] <New age, World>
 ```bash
 magnet:?xt=urn:btih:595DD704F5D8198D3ED3B18D1FA6E81A8EF67620
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Plotnik82 - Акустика (2017) [FLAC|Lossless|tracks + .cue] <Acoustic, Roc
 magnet:?xt=urn:btih:343B736BE09B35A017A1B2A07F16B612173CD64B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VSOP Vienna Symphonic Orchestra Project - The 6th - A Kind Of Magic (1992) [FLAC
 ```bash
 magnet:?xt=urn:btih:28A4AD43251590195F00B8C3299F53EE5829F24D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Venice - Jacaranda Street (2019) [MP3|320 Kbps] <Folk>
 magnet:?xt=urn:btih:A0DB87800156C61EB3CD70335C75D7A0FD23854A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Atom Music Audio & Alexandros Nikolaidis - Andromeda (2017) [MP3|320 Kbps] <Soun
 ```bash
 magnet:?xt=urn:btih:6B494F55DD309505B083D7F2EA2B1F635660AE1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Atom Music Audio - Mechanize, Vol. 2 Epic Dramatic Rock Tracks (2018) [MP3|320 K
 magnet:?xt=urn:btih:CE1AEC102A73C568A9EFF3EE5841C6FB7C6FEBDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Borderlands 3 Original Game Soundtrack (2019) [FLAC|Lossless|tracks] <Game 
 ```bash
 magnet:?xt=urn:btih:6B1B5783847552EB87C0E4693376FC380345A0E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Disc 1
 magnet:?xt=urn:btih:FCDD75659B38FC441E7ED8F25AA5584D42A85D24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Jonn serrie - Thousand star (2009) [FLAC|Lossless|tracks + .cue] < New Age, Ambi
 ```bash
 magnet:?xt=urn:btih:46F5A0B05A4FC17596013746F81C5F9A93176754
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Emmanuelle - Instrumental Collection (2004) [APE|Lossless|image + .cue] <Po
 magnet:?xt=urn:btih:EE5A850108EC4CA5A77C0D2F758C8D7FF6C956F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Michael Giacchino - Incredibles / Суперсемейка (Original Soundtrack)
 ```bash
 magnet:?xt=urn:btih:F57F9F8DA85B09AC61A8FD1DD57E65790D7447C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Michael Giacchino - Incredibles / Суперсемейка (Original Soundtrack)
 magnet:?xt=urn:btih:F1F8AF92B4E7CA848FA4D92FF8F03836F0C607F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Francis Goya/Франсис Гойя - Романтический альбом (
 ```bash
 magnet:?xt=urn:btih:F480F2C4163A284BB8D61781EA55E34C34C17899
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Karushanti - Isle of Skye (2017) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:A90A3F7E8716EF22B1A4F9359A3BDF367E87C3CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Faun - Märchen & Mythen (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk, Medieval>
 ```bash
 magnet:?xt=urn:btih:D9CC672C1B5D2E49C260BF1FE80A4D0A41ED78B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ Ginger Wildheart - The Pessimist's Companion (2018) Remastered, 2022, Wicked Coo
 magnet:?xt=urn:btih:D7999677C9D0D5851B2912C895EE49B8397EA5B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ Klaus Schulze's U.S.O. - Privée (2016) [MP3|320 Kbps] <Electronic, Ambient>
 ```bash
 magnet:?xt=urn:btih:1B7DCD4D2A02B39FE49B9C7D3BC11196B48538E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ T Bone Burnett - The Criminal Under My Own Hat (1992) Reissue 2003 [FLAC|Lossles
 magnet:?xt=urn:btih:4CD559FE3DFC91CDD9158B2C343A9C5E1A5205CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ Navajo - Native American Dance Trance (2000) [MP3|320 кб/с]<Native American, 
 ```bash
 magnet:?xt=urn:btih:6882FEE6374A220698349E00395C46004131E5E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +666,8 @@ magnet:?xt=urn:btih:6882FEE6374A220698349E00395C46004131E5E4
 magnet:?xt=urn:btih:7B78F3D6352601A82290B9793F21336DDDABC233
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +694,8 @@ VA - Romantic Moods Of The Great Instrumentalists (2000) [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:FFB35EACF82EEC982F34C586135CCC7204B6857C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -676,6 +724,8 @@ VA - The Organ Plays Sentimental Favorites (1999) [FLAC|Lossless|image + .cue] <
 magnet:?xt=urn:btih:7E8D5E8DEA9007CC4CDB37294E17AFE8BC686459
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -702,6 +752,8 @@ magnet:?xt=urn:btih:7E8D5E8DEA9007CC4CDB37294E17AFE8BC686459
 ```bash
 magnet:?xt=urn:btih:CAC651860470A4FE4ACFBD145FEF98D0D8C32DD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

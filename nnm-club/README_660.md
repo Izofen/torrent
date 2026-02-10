@@ -19,6 +19,8 @@ Vallhund обеспечивает точный и независимый кон�
 magnet:?xt=urn:btih:0545CE7A1CEB291DD72C7A1A99E78DFBC5C76C72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Pubbas - Sheepadoodle Phaser 1.0.2 VST 3 (x64) [En]
 ```bash
 magnet:?xt=urn:btih:411743F05DEE3A4034C85B3CB3AC6D116C43EC95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:411743F05DEE3A4034C85B3CB3AC6D116C43EC95
 magnet:?xt=urn:btih:157FCECD76FEF3E2B0AC5CA98AA7E7DF01CD3736
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:157FCECD76FEF3E2B0AC5CA98AA7E7DF01CD3736
 magnet:?xt=urn:btih:76672BBBC6C24D2EC01E8BD006CBEED1DD22027D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:76672BBBC6C24D2EC01E8BD006CBEED1DD22027D
 ```bash
 magnet:?xt=urn:btih:ABAEAB8458E256CCBDB69B9A70FF939B6EFE4D7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Chopped in Half - The End of Human Tragedy (2025) [MP3|320 Kbps] <Death Metal>
 magnet:?xt=urn:btih:4C6D09020810E1E276F10E4B2ECFC85D9EBC55E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:4C6D09020810E1E276F10E4B2ECFC85D9EBC55E3
 magnet:?xt=urn:btih:277D35FF8ECEAD91204CBA421A42F52F42411B49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:277D35FF8ECEAD91204CBA421A42F52F42411B49
 ```bash
 magnet:?xt=urn:btih:66199EA6A27A1599E1A11763A20564A0E0E5EBCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ The British Bluescasting Corporation - Saints & Sinners (2025) [FLAC 24/44.1|Los
 magnet:?xt=urn:btih:8C6554640F770F11AD073E1C889B832AA99B5E02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ House Flipper 2 (2023) [Ru/Multi] (1.8 build 18474892/dlc) Repack seleZen
 magnet:?xt=urn:btih:D1ED429E81CE794B6688325C0BEB3A446051801D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:D1ED429E81CE794B6688325C0BEB3A446051801D
 ```bash
 magnet:?xt=urn:btih:CE6A591713659A28667E35B002047ADA54633AC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ Eric Clapton - Me and Mr Johnson (2004) [FLAC|Lossless|tracks + .cue] <Rock, Blu
 magnet:?xt=urn:btih:8F7C0189EED70F3DA1ECEC847DDD6C4516081E66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:8F7C0189EED70F3DA1ECEC847DDD6C4516081E66
 ```bash
 magnet:?xt=urn:btih:A615EE5E9F7FFC69607D97AB0D263FD37D56DFD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +373,8 @@ VA - Beach Mode ON! (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 magnet:?xt=urn:btih:D040296E29A3DD7B504A9B0D9D64BA0BB3420421
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:D040296E29A3DD7B504A9B0D9D64BA0BB3420421
 ```bash
 magnet:?xt=urn:btih:5AF7AC5F93A415C1288707CDDB195568BACD3A28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ magnet:?xt=urn:btih:5AF7AC5F93A415C1288707CDDB195568BACD3A28
 magnet:?xt=urn:btih:DF437B1EDE4EBFB5D8AE1BC9A09691CEC43416B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ magnet:?xt=urn:btih:DF437B1EDE4EBFB5D8AE1BC9A09691CEC43416B9
 ```bash
 magnet:?xt=urn:btih:FCE20E0EF9EA50736C848572E7E75CFC72045C99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ VA - Running To The Ocean (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 magnet:?xt=urn:btih:0E91D15131F3A750D9ED50A0DF0D126E4A1A280B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +517,8 @@ Norah Jones - Come Away With Me (2002) [FLAC|Lossless|tracks + .cue] <Contempora
 ```bash
 magnet:?xt=urn:btih:5096AE79046541D2DC837708D92BD5E317E0B644
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +547,8 @@ magnet:?xt=urn:btih:5096AE79046541D2DC837708D92BD5E317E0B644
 magnet:?xt=urn:btih:4ACFA5F1507BE047FB5642AE3F2AFBD5800D0DA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +573,8 @@ magnet:?xt=urn:btih:4ACFA5F1507BE047FB5642AE3F2AFBD5800D0DA2
 ```bash
 magnet:?xt=urn:btih:0716F9667DB174B447DAA130B2E028C225168B6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +603,8 @@ magnet:?xt=urn:btih:0716F9667DB174B447DAA130B2E028C225168B6D
 magnet:?xt=urn:btih:F80E93FD8CEF9806AA256B61F1369344B87CBFFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +631,8 @@ Monolith - Magnum Opus (2025) [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:559BF17FF42F0BC67ADDA97EFF3AC10CCC0C4E4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +661,8 @@ mclusky - the world is still here and so are we (2025) [FLAC|Lossless|tracks + .
 magnet:?xt=urn:btih:394A3EE5994ECF7BB060A2BE6397F1EF81D0EEB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +690,8 @@ Ruzz Guitar's Blues Revue - Between Two Worlds (2025) [FLAC 24/44.1|Lossless|WEB
 magnet:?xt=urn:btih:B1BE48C0469C275E15B92AFDA2563E2F1F422F40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +718,8 @@ Resurrection Blues Band - GENESIS (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 ```bash
 magnet:?xt=urn:btih:077FD9B2B97CAD934407F1E6D1A986D644E028FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

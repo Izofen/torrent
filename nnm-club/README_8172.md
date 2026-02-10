@@ -22,6 +22,8 @@ Vass/Katsionis - Cynical Silence (2023) [MP3|320 Kbps] <Progressive Metal>
 magnet:?xt=urn:btih:07760449C4FCAABB31D8883C77959FEA2605FD46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ VA - Nightflight Mallorca – 22 Premium Downbeat & Lounge Trax (2013) [AAC|~345
 magnet:?xt=urn:btih:E249CB017A2D6A8357702BC478616DBD08DB5204
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:E249CB017A2D6A8357702BC478616DBD08DB5204
 magnet:?xt=urn:btih:E791F2C14BAF58D9F3A47D35440714A84784E590
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:E791F2C14BAF58D9F3A47D35440714A84784E590
 ```bash
 magnet:?xt=urn:btih:71367FF6623B45C79A823B65673176874516BD31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Satellite Young - Satellite Young (2017) [MP3|320 Kbps] <Synthpop, Synthwave>
 magnet:?xt=urn:btih:107203580073428012BF65DEBC3ECC738DBF7A79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:107203580073428012BF65DEBC3ECC738DBF7A79
 ```bash
 magnet:?xt=urn:btih:E74A7347B8434EE6A72F493F51500561EFB2705A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ Odessa - L'Alba Della Civiltà (2023) [FLAC|Lossless|tracks + .cue] <Progressive
 magnet:?xt=urn:btih:ABFF0428466B953689A7DADB9932BC93FD84847F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:ABFF0428466B953689A7DADB9932BC93FD84847F
 ```bash
 magnet:?xt=urn:btih:8C72D365646059CBD94CBDA1C4D44FA03F1EC234
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ Coiotes S.A. - Daqui Pra Frente Eh Nois (2023) [FLAC|Lossless|WEB-DL|tracks] <He
 magnet:?xt=urn:btih:ED3FE45C5B24E20B33B84610BB82B10F03EEB2DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ Vas' - Быстрее послушать (2021) [MP3|320 Kbps] <Indie-Rock / Pop
 ```bash
 magnet:?xt=urn:btih:EFAC63003370DCC3DBC7B91B481C7AE1555946C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -281,6 +301,8 @@ VA - Nightflight Rio - 22 Premium Downbeat & Lounge Trax (2014) [AAC|~340 Kbps] 
 magnet:?xt=urn:btih:0886DC823E4921329C40B3E084199BF606649CA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +330,8 @@ magnet:?xt=urn:btih:0886DC823E4921329C40B3E084199BF606649CA0
 magnet:?xt=urn:btih:7035209DF918C66011996CD8EE7969F4D52E15FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +357,8 @@ magnet:?xt=urn:btih:7035209DF918C66011996CD8EE7969F4D52E15FB
 ```bash
 magnet:?xt=urn:btih:0F841710E5B8660F5AF3EE03041C96053C9647B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +387,8 @@ Fall Out Boy - So Much (For) Stardust (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk
 magnet:?xt=urn:btih:D9CCBA7EB284B5C4F4B9D06E1F57A295C0E51308
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +416,8 @@ CD1:
 magnet:?xt=urn:btih:A486ED782D900ACBF97D8427F95A243A01B0F738
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +441,8 @@ magnet:?xt=urn:btih:A486ED782D900ACBF97D8427F95A243A01B0F738
 ```bash
 magnet:?xt=urn:btih:47B62E696DC3D7B684FF5C385D3DB74B263092B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +468,8 @@ YUMI (Your Universal Multiboot Installer) - бесплатная програм�
 magnet:?xt=urn:btih:80F5CECED102410E0A6F5F600935F2CBABF68DD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +493,8 @@ magnet:?xt=urn:btih:80F5CECED102410E0A6F5F600935F2CBABF68DD2
 ```bash
 magnet:?xt=urn:btih:F21DD1E7225FF04B85A668B778E15431A2834681
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +520,8 @@ WonderPen - приложение для как для профессиональ
 magnet:?xt=urn:btih:CABC0F41F26BB22013DD5797A6B807247FB16ECB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +545,8 @@ magnet:?xt=urn:btih:CABC0F41F26BB22013DD5797A6B807247FB16ECB
 ```bash
 magnet:?xt=urn:btih:4E5A2621CB4CA8035971FBC0D461316582054AD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +573,8 @@ OBS Студия - бесплатное программное обеспече�
 ```bash
 magnet:?xt=urn:btih:384313A3038837AC5B37247CF6EF29EAEA605F0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +603,8 @@ WolloW - Tales of WolloW - Volume 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych 
 magnet:?xt=urn:btih:06472650C35439374E5FBA9DD500E04DA0F7BD85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +628,8 @@ RogueKiller Anti-Malware можно использовать бесплатно 
 ```bash
 magnet:?xt=urn:btih:7379D3B77CDAFDDFA3593D35787D86D488146726
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +655,8 @@ magnet:?xt=urn:btih:7379D3B77CDAFDDFA3593D35787D86D488146726
 magnet:?xt=urn:btih:B09A346DFA42216D317E43003818E51640B06D0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +680,8 @@ magnet:?xt=urn:btih:B09A346DFA42216D317E43003818E51640B06D0A
 ```bash
 magnet:?xt=urn:btih:9069F9D3D4D506E25E3AE50F4DB315349841A045
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -659,6 +709,8 @@ Re-Animator - Re-Animator (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard'N'Heavy>
 ```bash
 magnet:?xt=urn:btih:7E9E72786790A4C5BAC67185754C4390BA8257AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

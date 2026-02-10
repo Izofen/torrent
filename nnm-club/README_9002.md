@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:586DD90DDC87BD39EC35E90A1D7344C9501CCB11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Lyn поддерживает все популярные графические 
 ```bash
 magnet:?xt=urn:btih:25199C3DDD965D15A90F3AE6864AF1019F0CD10A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - Bass Killer 9 (2016) [MP3|320 Kbps] <Dubstep, Big Room, Trap, Future Bass, 
 magnet:?xt=urn:btih:4EA63341977D9BEB247E1D186B1E4A032F1DA1F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:4EA63341977D9BEB247E1D186B1E4A032F1DA1F6
 ```bash
 magnet:?xt=urn:btih:C986FE5CCFC3460818B49345E9663841D5182061
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:C986FE5CCFC3460818B49345E9663841D5182061
 magnet:?xt=urn:btih:612799CE4E8E0E91B34039FE96F8292D27628A5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:612799CE4E8E0E91B34039FE96F8292D27628A5B
 ```bash
 magnet:?xt=urn:btih:3ADBB239CF50E2298EF204D581D902D0C938453E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ VA - Late Night Jazz Chill: Staring At The Moon (2016) [MP3|320 Kbps] <Jazz, Chi
 magnet:?xt=urn:btih:6517784190F9DBB5B64EBDB13BB8EDEB781A4A0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:6517784190F9DBB5B64EBDB13BB8EDEB781A4A0C
 magnet:?xt=urn:btih:B714DA92BBD483137CFE943BB168E980B0BC65C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:B714DA92BBD483137CFE943BB168E980B0BC65C2
 ```bash
 magnet:?xt=urn:btih:74307679EDAE91B317D71BFBE70346AC662A6C09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ VA - Mountain Ski-Lounge Beats (2016) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 magnet:?xt=urn:btih:42AD01F432E59A9B531F91AE4948FE59BD905646
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:42AD01F432E59A9B531F91AE4948FE59BD905646
 ```bash
 magnet:?xt=urn:btih:ECCDC195B313986AD3643072BE637B31625B81E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ Trey Gunn(King Crimson) - Raw Power (1999) [FLAC|Lossless|image + .cue] <Avant-G
 magnet:?xt=urn:btih:45301564B7DBA89007A6AFC45C6F2937A9C76A24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ Niva - Atmospherical (2016) Japanese Edition [MP3|320 Kbps] <Hard Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:D01A3B68DBD1B69CBFB10293182E425F0344D790
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +381,8 @@ VA - Сотка модных хитов. Сборник 9 (2016) [MP3|256 Kbps] 
 magnet:?xt=urn:btih:F2E54294BC883C0B08ABD50EBD44845F50320046
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ magnet:?xt=urn:btih:F2E54294BC883C0B08ABD50EBD44845F50320046
 magnet:?xt=urn:btih:2EE6622539BBED3D7E5BB802C1F7AAA24ECB5252
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ iFinance 4 позволяет вам отслеживать доходы и ра
 ```bash
 magnet:?xt=urn:btih:BF3A0FA926C5FC44C82A7E954491D1C5CA666D67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +462,8 @@ VA - Nano Sonic Sound System Vol.4 (2016) [MP3|320 Kbps] <Trance, Goa Trance, Ps
 magnet:?xt=urn:btih:1146B7821A96DEAC9B90CED1C3DC6A4C115E6A61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +491,8 @@ VA - Club Music Language December (2016) [MP3|160-320 Kbps] <Nu Disco, Jersey Cl
 magnet:?xt=urn:btih:4C655BB0F6438980C678404E366469FC6DD71488
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +516,8 @@ magnet:?xt=urn:btih:4C655BB0F6438980C678404E366469FC6DD71488
 ```bash
 magnet:?xt=urn:btih:FDB0DBBFFBBFC7A69B8AFB5504228C941248855A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +543,8 @@ magnet:?xt=urn:btih:FDB0DBBFFBBFC7A69B8AFB5504228C941248855A
 magnet:?xt=urn:btih:3AB34357169CD4D95643EA785EC5BEE7D35552D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +569,8 @@ Gothic II / Готика 2 (2005) [Ru] (2.6/dlc) Repack/Mod THX
 magnet:?xt=urn:btih:84B23E1F11D42D19C0972DF10DA84F4F0EE52AB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +594,8 @@ magnet:?xt=urn:btih:84B23E1F11D42D19C0972DF10DA84F4F0EE52AB5
 ```bash
 magnet:?xt=urn:btih:EDD2E40DDC98C7100CFDA16B81DE01BD2EF15B87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +623,8 @@ magnet:?xt=urn:btih:EDD2E40DDC98C7100CFDA16B81DE01BD2EF15B87
 magnet:?xt=urn:btih:5CAAA686BF9D1F646BD2E0169659E13AB32589A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +648,8 @@ HITMAN 2 - это захватывающий шпионский триллер. 
 ```bash
 magnet:?xt=urn:btih:3801CA002D507D1D1172862A69E3174AB6770E00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +675,8 @@ Sid Meier's Civilization III: Complete — это самое последнее 
 magnet:?xt=urn:btih:5880B217918FEBABA532D57E52973A9B2CE0DA10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ magnet:?xt=urn:btih:5880B217918FEBABA532D57E52973A9B2CE0DA10
 ```bash
 magnet:?xt=urn:btih:8AE61F789A387CCAC9DE2C86664CF22A512DBF05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

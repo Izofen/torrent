@@ -20,6 +20,8 @@ OpenNumismat является удобным и надежным приложе�
 magnet:?xt=urn:btih:4A6D5654A1B6F96E803749FDD542DF1A0EEA4CA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:A7A58CCF8A6D30B102D92120AFE51A8CC7F9CA6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ HiBit Uninstaller - идеальное решение для удаления п
 magnet:?xt=urn:btih:469422C23CA90BE2720E4DA71D01875C4F2CF8E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Kdenlive - бесплатный нелинейный видеоредактор,
 ```bash
 magnet:?xt=urn:btih:66F031220F98043078976EA4BCAEDFAE9991F969
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Driver Easy Professional — профессиональная и в тоже в�
 magnet:?xt=urn:btih:7F02F3A3F2BD4D464C43F2190502CA1E34C4ED5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ SoftPerfect RAM Disk - программа для создания виртуал
 ```bash
 magnet:?xt=urn:btih:1219213035B514084ECA6151391CACF65F75AC4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Office LTSC 2024 предоставляет привычный набор при
 magnet:?xt=urn:btih:A0734644CA5F44FDEF8F62EDBE7E15BD20BEE2BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ System software for Windows v.3.6.5 by CUTA [Ru]
 magnet:?xt=urn:btih:A4080BD1F702607BD8D11B343E02FD9A2E7BBE1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Google Earth Pro 7.3.6.10201 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C3B0B48EDBCCD4CD67C4CC9E4C2706EB9D37A609
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Adobe Illustrator — это принятое в качестве отрасле
 magnet:?xt=urn:btih:BB95FF7FDDE41D02E204A1F7A69020867EC852AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Movavi Video Editor – универсальный инструмент для �
 ```bash
 magnet:?xt=urn:btih:7A0649AD984E3759808051B15D0C261E3A31D3A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Electrical Calculations Pro / Электрические расчеты v10.2.3 
 magnet:?xt=urn:btih:587F1252D0B4405862FA361AD7AAF3E5A867CC0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Revo Uninstaller Pro 5.3.5 RePack (& Portable) by Dodakaedr [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:426DFDE3D69427428593EE6D106EEC556F115D0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ O&O DiskImage Professional позволяет создавать резервн�
 magnet:?xt=urn:btih:E7A3C33452ADD1F6C45B78164316712BE78F397A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ KineMaster - Video Editor & Maker v7.5.16.34132.GP Mod by Shadow_Patcher [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:C418CDC913E602A262A0A661409DAF2DC8447477
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Digiarty AIArty Image Matting — это инновационное програ
 magnet:?xt=urn:btih:46A111CD0362E954C9DC7A3F19ECDAE5DDA566CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:1ACB6EF057C9CB07B784A8ABAA01D80C6F00BA28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ PDF24 Creator - бесплатная программа, которая позв
 magnet:?xt=urn:btih:4A1F6C57489AA25AED7A3B7EFC75D6CBAF145D4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Wise Disk Cleaner 11.1.9.835 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:43083C244DF9C3D3088D27F8CD291000C3F2FFC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:211FFB8A93EEE20396EC66C9F9E6CE49DE6B743E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ SIV (System Information Viewer) - мощнейшая утилита, показ�
 ```bash
 magnet:?xt=urn:btih:0BAFEA545F31D39D471A7D497B7B888F9FFA5376
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ Bandicam поможет вам сделать запись игры с высо�
 magnet:?xt=urn:btih:222EF4ECECF5CF425E59388F221EDE6F0339A70D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ O&O ShutUp10 позволяет получить полный контроль �
 ```bash
 magnet:?xt=urn:btih:4E8C44C8FC77A6A659F004CE0095632EEE993B41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ AIMP 5.40 Build 2655 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:063069C3D3C9BC33401C0E8FA7E37BBA69C92012
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Qalculate! - это многоцелевой кросс-платформенны
 ```bash
 magnet:?xt=urn:btih:1B5C2A6618B70E126BCB5220472901B94C64C467
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +674,8 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 ```bash
 magnet:?xt=urn:btih:6FCA48E19C2E1C8BCC5C47C226B9778F767F33AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

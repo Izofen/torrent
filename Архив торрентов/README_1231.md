@@ -19,6 +19,8 @@ Process Lasso позволяет вручную или автоматическ�
 magnet:?xt=urn:btih:51C0243C90B82211E2F1E515EA63D6545A8CD216
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Pixelmator Pro — это невероятно мощный, красивый и
 magnet:?xt=urn:btih:ACB62CA90549619E61873706189AFBD2B2BCDD26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Ashampoo WinOptimizer - новая линейка пакета программ,
 ```bash
 magnet:?xt=urn:btih:736F7897E4F395C49F3B607DFA929B85E079BB1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Nox App Player 7.0.0.8003 [Multi/Ru]
 magnet:?xt=urn:btih:650B9A0FC693D0F1AEF6A028D4F5D9B4BF673146
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ LibreOffice - офисный пакет с открытым исходным к�
 ```bash
 magnet:?xt=urn:btih:A1BD7BDE2F143B2C6414E68596F3EE01E443CCD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Imperator: Rome v.1.3.2 (2018) [Multi/Ru] [macOS Native game]
 magnet:?xt=urn:btih:20C84796C815FF10B9477388CDC217EB94DD6308
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Donemax DMmenu 1.4 [En]
 magnet:?xt=urn:btih:67B0AD679D71E4FC6BCBFA695C626EB65DA2422D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Pixelmator представляет собой мощный инструмент
 ```bash
 magnet:?xt=urn:btih:0B11A8B48C694E92DBF20E1B53066EE67847F8BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ LiteManager Free - бесплатная программа для удаленн
 magnet:?xt=urn:btih:8FD08D62E13D0F5F2AC94EB8EAEDCE90ECBA2906
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ MacClean360 - удобный и безопасный уборщик вашего
 ```bash
 magnet:?xt=urn:btih:3EB85327E480437C66A97B4831CA582949AFBF11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ After Effects — это ведущая в отрасли программа д�
 magnet:?xt=urn:btih:BD613C1249A9EA1258B4BD5DCB62208401A1AFD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:75F1E17E730E34AC713E481DEE36A551FD5D8CE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ PCalc (   Читать дальше...   )Тип издания: macOS Software
 magnet:?xt=urn:btih:6C2B0892B33FDB0C5BB317C208DA3FDE8665244E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:6C2B0892B33FDB0C5BB317C208DA3FDE8665244E
 ```bash
 magnet:?xt=urn:btih:9C7ACB131D36FA932283563AE6D331A209810E8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ PTE AV Studio Pro - дальнейшее развитие программы Pic
 magnet:?xt=urn:btih:6EA0541C0B04CB5A7174D52E2930DCB23C3ADCD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:6EA0541C0B04CB5A7174D52E2930DCB23C3ADCD2
 magnet:?xt=urn:btih:5080702001768A9DF9D4EB3F9B4D6BB4DADF38E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Sublime Merge - клиент системы контроля версий, ко�
 ```bash
 magnet:?xt=urn:btih:F9C710E15F237FC10BC5B01DD7FC2BE0138A8487
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ NeoOffice создан на основе офисного пакета OpenOffic
 magnet:?xt=urn:btih:2FA66D6BAF0E226961650F4C636C74F07FFF1D8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ URL Manager Pro X - менеджер закладок для Safari, OmniWeb, Mo
 ```bash
 magnet:?xt=urn:btih:D7BFE5782420286470B353C2E266DB98B3C983EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ FileAssistant 3.3 [En]
 magnet:?xt=urn:btih:A464BC74478E460A38A0DDD0BB25E1BA210704A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ FreeCommander XE - это довольно-таки удобный в работ
 ```bash
 magnet:?xt=urn:btih:60403DF612A9339269A46AA12D0934A8C5EBFCF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ UctoX - это мощное приложение для выставления �
 magnet:?xt=urn:btih:F280109487D57591DE4985E1D4F525DC12280AB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ DoYourData AppUninser - очень мощный, но простой в испо
 ```bash
 magnet:?xt=urn:btih:F6D1BD756E02AB8ED92E2366500976051184F3A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +634,8 @@ Multi Commander - мощный мультиоконный менеджер фа�
 magnet:?xt=urn:btih:043E04AE040DFC97C7C35322D8FC8B23A12917F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ Tensei Shitara Ken Deshita | Reincarnated as a Sword | О моём переро�
 magnet:?xt=urn:btih:6C1A8E13DCB50F884A050C18F2A458B4C9E623C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ File List Export (бывший File list to Excel) - простое в испо�
 ```bash
 magnet:?xt=urn:btih:93363F39DBE61AB0C12E0AC080B37EC33E2CA846
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

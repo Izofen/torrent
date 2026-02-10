@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:A565EDD008A632CC2231DEEE677649CFC543A953
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:A565EDD008A632CC2231DEEE677649CFC543A953
 ```bash
 magnet:?xt=urn:btih:98A6EC8BFA4DE6E84F6ECC5FA03B5ED61FFAE757
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:98A6EC8BFA4DE6E84F6ECC5FA03B5ED61FFAE757
 ```bash
 magnet:?xt=urn:btih:30C50FB9BB08FE7ADF05AE787D37D77A15AD9C01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ VA - Rock - Lieder für jede Stimmung (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock
 magnet:?xt=urn:btih:FD3A39456FAC86ED24085B68CCFA927D0732AF9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ VA - Missing You: Passionate Rock Ballads (2025) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:D6F6805F91C4140FF8A91F404724F681244880FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:D6F6805F91C4140FF8A91F404724F681244880FF
 ```bash
 magnet:?xt=urn:btih:14E181E8114CCEF84FD20A726D0145B62BF2F332
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ VA - Summertime Hits (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:481283F4AA89ED9E3014162BBEDE90AD3919965C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:481283F4AA89ED9E3014162BBEDE90AD3919965C
 ```bash
 magnet:?xt=urn:btih:E8DC9FF4141BA8A67DB4A8582054527182E1A035
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:E8DC9FF4141BA8A67DB4A8582054527182E1A035
 magnet:?xt=urn:btih:BB95500786BD1B4A17E7164FD109148888868B12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ NG: День дракона / Day of the Dragon (2024) HDTVRip [H.264] [VO]
 ```bash
 magnet:?xt=urn:btih:9209BE54B17C847A1E279CFF4F6F246E201F1B3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:9209BE54B17C847A1E279CFF4F6F246E201F1B3A
 ```bash
 magnet:?xt=urn:btih:3CC7F0BDE44378ADB51565A6C5DD763AFB4A63EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ VA - Greatest Hits from The Roaring Twenties: The Sound of the Jazz Age (2025) [
 magnet:?xt=urn:btih:166C2697808680FCBC931606B556980E6A0BFAB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ magnet:?xt=urn:btih:166C2697808680FCBC931606B556980E6A0BFAB7
 ```bash
 magnet:?xt=urn:btih:88982F4A7B6096D54AE00EDAAEEEDDC031818829
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ VA - Classical Piano (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 magnet:?xt=urn:btih:0D8D84F46934AC8239430E06A59EE316688CEBC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:0D8D84F46934AC8239430E06A59EE316688CEBC8
 ```bash
 magnet:?xt=urn:btih:027FF51E0DFB57F3E191C7E1D503388B9FB4BA0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:027FF51E0DFB57F3E191C7E1D503388B9FB4BA0E
 magnet:?xt=urn:btih:C2C9906F2A2F4912B4D45BD1C3313EB4E916C398
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ magnet:?xt=urn:btih:C2C9906F2A2F4912B4D45BD1C3313EB4E916C398
 magnet:?xt=urn:btih:79F2DF8D91107D8E5F3A4823817086F879918C96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:79F2DF8D91107D8E5F3A4823817086F879918C96
 ```bash
 magnet:?xt=urn:btih:115C94E2345E64AAEEC1FC9038805FC09927CDFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +509,8 @@ magnet:?xt=urn:btih:115C94E2345E64AAEEC1FC9038805FC09927CDFC
 magnet:?xt=urn:btih:F8A3E7F9B177BD216A739549987AEEF1B1D7FDF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ magnet:?xt=urn:btih:F8A3E7F9B177BD216A739549987AEEF1B1D7FDF1
 ```bash
 magnet:?xt=urn:btih:F95AD1EE31641C2CCA1108C7946F397B4E43726B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ iZotope Neutron 5 получил новые модули и режимы раб�
 magnet:?xt=urn:btih:A8D4C0A290BE52F52DB8140A7A902BA138B180E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ magnet:?xt=urn:btih:A8D4C0A290BE52F52DB8140A7A902BA138B180E7
 ```bash
 magnet:?xt=urn:btih:60EFA8BDE79FF1B061C86D11590765081768F7B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +615,8 @@ magnet:?xt=urn:btih:60EFA8BDE79FF1B061C86D11590765081768F7B2
 magnet:?xt=urn:btih:AD9AB8AD447A0DF6554E487D0A7A020EE806C9D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +640,8 @@ magnet:?xt=urn:btih:AD9AB8AD447A0DF6554E487D0A7A020EE806C9D4
 ```bash
 magnet:?xt=urn:btih:2801664F3D149D5F918693B20CB40B3C4296104E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +670,8 @@ VA - Twist and Shout: Rock 'n' Roll Party Hits (2025) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:25D9F84ED30DE80D90CECB7B4DF036E388FAC364
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ Auslogics Registry Defrag - программа для дефрагментаци
 ```bash
 magnet:?xt=urn:btih:715947D5A9C275808652C1641CF8610F75572600
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

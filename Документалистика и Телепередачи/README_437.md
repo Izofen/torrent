@@ -1,3 +1,33 @@
+###  Публикация: 526738   (597146) от 24.07.2012
+
+ВИА от рассвета до заката (2 серии) SATRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597146.jpg" />
+</div>
+
+
+###  Подробнее
+
+В фильме бывшие участники ВИА вспомнают всю историю становления Вокально Инструментальнх Ансаблей бывшего СССР.
+Так же в фильме есть фрагменты выступлений ВИА Авангард 66, Сокол,
+Аракс, Скифы, Песняры, Поющие гитары,
+Дружба, Голубые гитары, Цветы, Веселые ребята,
+Самоцветы и многих других групп.Жанр: ДокументальныйПродолжительность: 01:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C503D07995D2C3791F366A5F2D0478E89E748960
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039298   (597267) от 31.07.2016
 
 Цари океанов (31.07.2016) SATRip
@@ -18,6 +48,8 @@
 ```bash
 magnet:?xt=urn:btih:A5BE31A6561CDDBC81A3ADA2848F73AE1DB90B09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +75,8 @@ magnet:?xt=urn:btih:A5BE31A6561CDDBC81A3ADA2848F73AE1DB90B09
 magnet:?xt=urn:btih:3B43DF039C128855B34DDCD68E34984B974B8C6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +100,8 @@ magnet:?xt=urn:btih:3B43DF039C128855B34DDCD68E34984B974B8C6C
 ```bash
 magnet:?xt=urn:btih:2D6A89CDDA058AA1B3476009C8AE09F480934B83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +127,8 @@ magnet:?xt=urn:btih:2D6A89CDDA058AA1B3476009C8AE09F480934B83
 magnet:?xt=urn:btih:A54675B0B6614748A1363069D27C02DBC22651AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +152,8 @@ magnet:?xt=urn:btih:A54675B0B6614748A1363069D27C02DBC22651AC
 ```bash
 magnet:?xt=urn:btih:6E7149A999AA669678E564A24EC47E237BC20A34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +179,8 @@ magnet:?xt=urn:btih:6E7149A999AA669678E564A24EC47E237BC20A34
 magnet:?xt=urn:btih:0E5952901DFAF9A1BF9454C440305F07B1348C01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +204,8 @@ magnet:?xt=urn:btih:0E5952901DFAF9A1BF9454C440305F07B1348C01
 ```bash
 magnet:?xt=urn:btih:0485053C73147CB84B71BA08C525CCB634319D80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +231,8 @@ magnet:?xt=urn:btih:0485053C73147CB84B71BA08C525CCB634319D80
 magnet:?xt=urn:btih:8216CD6F7F15CD2A1A9021B10C847A61874A3B5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +256,8 @@ magnet:?xt=urn:btih:8216CD6F7F15CD2A1A9021B10C847A61874A3B5E
 ```bash
 magnet:?xt=urn:btih:2AD6BBD3C16B54460F0A229EE9898622B1C8EFB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +284,8 @@ magnet:?xt=urn:btih:2AD6BBD3C16B54460F0A229EE9898622B1C8EFB4
 magnet:?xt=urn:btih:8229C475C33DCE80C7761C82AF09245703EBF80C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +309,8 @@ magnet:?xt=urn:btih:8229C475C33DCE80C7761C82AF09245703EBF80C
 ```bash
 magnet:?xt=urn:btih:3B7B7359BF9E27BC8E48AA3AAF59CA4ECFE9111E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +336,8 @@ Discovery. Полный форсаж / Fat N' Furious: Rolling Thunder (2014-201
 magnet:?xt=urn:btih:8EFAEF663D3FC3444F4F9528EAEB2041E3B5F834
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +361,8 @@ magnet:?xt=urn:btih:8EFAEF663D3FC3444F4F9528EAEB2041E3B5F834
 ```bash
 magnet:?xt=urn:btih:A625B2581D6A8162588A1288B680D44718B517C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +388,8 @@ magnet:?xt=urn:btih:A625B2581D6A8162588A1288B680D44718B517C4
 magnet:?xt=urn:btih:4CEFA981E042247C2454A9653B91D9EE8EDFB552
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +413,8 @@ magnet:?xt=urn:btih:4CEFA981E042247C2454A9653B91D9EE8EDFB552
 ```bash
 magnet:?xt=urn:btih:C63C0927E820FE15EA9197280E0A0A4E8AFB97E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +440,8 @@ magnet:?xt=urn:btih:C63C0927E820FE15EA9197280E0A0A4E8AFB97E2
 magnet:?xt=urn:btih:EB9B40B465C7881BA9AF2367874E84082CAB6AE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +465,8 @@ magnet:?xt=urn:btih:EB9B40B465C7881BA9AF2367874E84082CAB6AE8
 ```bash
 magnet:?xt=urn:btih:F5BF8E9DE8F55422270EF53BCA7D87159F6BE192
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +493,8 @@ magnet:?xt=urn:btih:F5BF8E9DE8F55422270EF53BCA7D87159F6BE192
 magnet:?xt=urn:btih:EB819F20F3D28B6155CD3527DCC80BAB937A93D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +518,8 @@ magnet:?xt=urn:btih:EB819F20F3D28B6155CD3527DCC80BAB937A93D6
 ```bash
 magnet:?xt=urn:btih:10186F971A4B2D3044D7D91ED3745729221B2C63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +545,8 @@ magnet:?xt=urn:btih:10186F971A4B2D3044D7D91ED3745729221B2C63
 magnet:?xt=urn:btih:BBD74009BD0C39E2BAC8FBA548FE74C67350D225
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +570,8 @@ magnet:?xt=urn:btih:BBD74009BD0C39E2BAC8FBA548FE74C67350D225
 ```bash
 magnet:?xt=urn:btih:5FE4123700FDD22C55DE46FFD5577A720E29D2DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +597,8 @@ magnet:?xt=urn:btih:5FE4123700FDD22C55DE46FFD5577A720E29D2DA
 magnet:?xt=urn:btih:B4F3D9C5A6669BB813E35D0E6E8149C2316EACC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +622,8 @@ magnet:?xt=urn:btih:B4F3D9C5A6669BB813E35D0E6E8149C2316EACC9
 ```bash
 magnet:?xt=urn:btih:A44FD4F4E6312775CD0F1E4462AC96FC862F1766
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +649,8 @@ magnet:?xt=urn:btih:A44FD4F4E6312775CD0F1E4462AC96FC862F1766
 magnet:?xt=urn:btih:1641F64FDA2392E918E264C49C91B847C46CB87C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,29 +675,7 @@ magnet:?xt=urn:btih:1641F64FDA2392E918E264C49C91B847C46CB87C
 magnet:?xt=urn:btih:951159F31963549D03591A94423007DFB5C22113
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149838   (598628) от 12.07.2017
-
-Рехаб (2017.07.11) WEB-DL [H.264/720p-LQ] (выпуск 7)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они устали от жизни. Суицид, алкоголизм, нескончаемая депрессия для этих женщин сейчас – не страшные слова из социальной рекламы, а реальность. Шоу Рехаб дает им второй шанс! Через что нужно пройти, что вырваться из замкнутого круга и вернуться к нормальной, гармоничной жизни...Телекомпания: ПятницаЖанр: Реалити-шоуСубтитры: ОтсутствуютПродолжительность: 00:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7718C1213D6F77B17DCA3AD501A1304E7A175A9
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

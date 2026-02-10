@@ -19,6 +19,8 @@ Text Editor Pro 27.5.1 + Portable + Bonus [Multi/Ru]
 magnet:?xt=urn:btih:CFEA63580E338BFC3846DC25BCBA65B99D099E60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ BELOFF 2022.10 (Авторская раздача)
 magnet:?xt=urn:btih:C825DFA23F560FB03B855C3B53018EDFC28E64EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ CrystalDiskMark - утилита для сравнительного анали�
 ```bash
 magnet:?xt=urn:btih:9CC80C79B0894855B8EBB285FEA61A5169BD390E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Wolfram Mathematica 13.1.0 [Multi/Ru]
 magnet:?xt=urn:btih:69C7A471D5138DD10A611B258455C9C1DE036278
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Microsoft Edge – кроссплатформенный веб-браузер н
 ```bash
 magnet:?xt=urn:btih:8A1757CBC5E8667B034480D8133C797F33E242DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ AIMP 5.10 Build 2410 RC + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3064707FAA96E1863AB7C0802EE1CBB989C44B3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ KMSAuto Lite + Установщик офиса + Некоторые нужные
 magnet:?xt=urn:btih:863072EB151903D197E557A7FAC3FFC39DFFB962
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ IsMyHdOK 3.77 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:94CB01E60F4F1ABC93C0CFC8B578D3CF3723F90D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Total Commander является самым мощным и стабильным
 magnet:?xt=urn:btih:F8146A0694363A590EFAC196E178949561D3C35D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 ```bash
 magnet:?xt=urn:btih:9EDAC03346974BBBDCB1EFB5C2F11BACED8A3B21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Total Commander Ultima Prime — это набор утилит и разноо�
 magnet:?xt=urn:btih:99D0BCA67929F7364C9D421273F35B980DF676E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ Nik Collection by DxO – это наиболее полная коллекци�
 ```bash
 magnet:?xt=urn:btih:BD7D86D13F1BA5D8E07BA40CEB12024F76F65BD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ StartAllBack - привычная для нас программа, котора
 magnet:?xt=urn:btih:7F8F95BABA69166FC3D3A62131594D0EAED30B60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:7F8F95BABA69166FC3D3A62131594D0EAED30B60
 magnet:?xt=urn:btih:E7522E988A802C81F29153B9B30E942C0FA6060F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ WinBin2Iso 5.77 Build 001 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DD05D61CBBE16B8C8E1719C2A56F50065BC634DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ LibreWolf как раз решает (   Читать дальше...   )Язы
 magnet:?xt=urn:btih:8EBA2BDC3F075D3859FFBED4617EE346A18657BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:6E7B32E66E216152D343B025ADEE57C980A96E30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ Carista — мобильное приложение, с помощью кото�
 magnet:?xt=urn:btih:57123A2195BE94CF24FA9280310083B34304B408
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ DesktopOK - небольшая бесплатная и портативная (�
 magnet:?xt=urn:btih:1B56454D5B4CCF92FFA5C2BD2ABEE8972847C5D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ SRWare Iron 106.0.5400.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:19C26AACE88596B7DD712AB9EDA07DE5A55B3DEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ updated_aug_2023_x64_dvd_040b13d6.iso
 magnet:?xt=urn:btih:F11D7358C4F4BE5D1241FEC1D203640EA6C78779
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 ```bash
 magnet:?xt=urn:btih:FE34D38FD8F388990520DE1DD89A12A440D13FEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:FE34D38FD8F388990520DE1DD89A12A440D13FEF
 magnet:?xt=urn:btih:01736DC627ED6ACD185AC0092E0ECA1F13D0571B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ FBReader Premium v3.1.9 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8A0DC016F0CDB4C0269C8B756BF34EC30D996C78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ CPUID HWMonitor - утилита предназначена для монито�
 magnet:?xt=urn:btih:40ED40ED854FFD8B8A0DB825CAE712EA10F6E769
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Total Commander 11.01 (02.09.2023) Portable by MiG [Ru/En]
 ```bash
 magnet:?xt=urn:btih:5C493C1C4051D01D28DE29BDB791F97DC619C710
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

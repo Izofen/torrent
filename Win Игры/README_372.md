@@ -1,27 +1,3 @@
-###  Публикация: 1267855   (478068) от 31.07.2022
-
-Beholder 2 (2018) [Ru/Multi] (1.6.15770) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работать в Министерстве – мечта любого гражданина нашей великой Страны! Ты счастливчик, стажер – твоя мечта только что стала реальностью! Сейчас ты стоишь на низшей ступени карьерной лестницы, но это УЖЕ больше, чем всё, чего ты смог бы добиться в обычной жизни! Ты уже решил, кем ты станешь?Тип издания: LicenseРазработчик: Warm Lamp GamesЖанр: Стратегия, Приключение, МенеджментЯзык озвучки: Английский, КитайскийЯзык субтитров: Русский, Английский, КитайскийЯзык интерфейса: Русский, Английский, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59946EF658A5B747F69B4DFFEE5704F0A4CBE80A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566873   (478323) от 31.07.2022
 
 The Galactic Junkers (2022) [Multi] (1.0.1.0) License FAiRLIGHT
@@ -42,6 +18,8 @@ The Galactic Junkers (2022) [Multi] (1.0.1.0) License FAiRLIGHT
 ```bash
 magnet:?xt=urn:btih:D61557E107FBBC15FEF4FB63B150F37C5ECD221E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Mini Maker: Make A Thing (2022) [Multi] (1.0) License TiNYiSO
 magnet:?xt=urn:btih:3FF55E4D768EC8081CA491B0CD644F3F7E9FF476
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Age of Wonders: Planetfall (2019) [Ru/Multi] (1.315/dlc) Repack xatab [Deluxe Ed
 ```bash
 magnet:?xt=urn:btih:5068003720279B3FF3336CFB3E57DA6369C25C2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ ATOM RPG: Trudograd (2020) [Ru/En] (0.6.7.1) Repack xatab [Early Access] (обн
 magnet:?xt=urn:btih:E79016898B119CC5DAE70BB4B859842AB055E548
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Windbound – это грандиозное морское приключени�
 ```bash
 magnet:?xt=urn:btih:7A2A89F8D7042181C8F6627077401DA1D1DABFC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Blasphemous — это динамичный напряженный платфо�
 magnet:?xt=urn:btih:F351041134521E7B055AA61B4DA7842B1EEE89D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Swords & Souls: Neverseen (2019) [Ru/Multi] (1.14) License GOG
 ```bash
 magnet:?xt=urn:btih:7B13B7E71ECE8BBF5475663BAFF9BC9FCA282535
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Monster Boy and the Cursed Kingdom (2019) [Ru/Multi] (1.0_rc4) License GOG
 magnet:?xt=urn:btih:79BC044B6712AF64EA9B49B409440B82935A8CD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ INFRA - это приключенческая игра, в которой игр
 ```bash
 magnet:?xt=urn:btih:23162E45E10F9A053DDF7344375C4CB24DE23C65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ Ghost Files 2: Memory of a Crime (2019) [En] (1.0) Unofficial [Collector's Editi
 magnet:?xt=urn:btih:A49FB3A6622685F19983C439D51BAFC0B3EEB66A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ Maze: Subject 360 / Лабиринт: Объект 360 (2015) [Ru] Unofficial [C
 ```bash
 magnet:?xt=urn:btih:03228E0AD2FB77E9D077B808E96B00D1790780C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ Riddles of Fate 3: Memento Mori / Загадки судьбы. Помни о с�
 magnet:?xt=urn:btih:C99C9F9C9DB197BE8DD5F434040E7E08D29B771E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ Riddles of Fate: Wild Hunt / Загадки судьбы: Дикая охота 
 ```bash
 magnet:?xt=urn:btih:1C0FAB5D5C25006B9E7E080AFAB73D231D774DE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ Riddles of Fate 2: Into Oblivion / Загадки судьбы: Забвение
 magnet:?xt=urn:btih:B868C7CE01C61D2C8A697F2DD18C45C926E91A02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ Virginia - триллер от первого лица про маленький
 ```bash
 magnet:?xt=urn:btih:114AE98A0672FAC698BB6E0F36393F42F08544FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ Hellblade: Senua's Sacrifice (2017) [Ru/Multi] (1.01.1) SteamRip R.G. Origins
 magnet:?xt=urn:btih:D834CF9C4B73408C1A996D1C0E956809807C5D51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ Where Angels Cry 2: Tears of the Fallen (2015) [En] Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:5027D865734F732829E3347FA3607CC1F191E864
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ League of Light 3: Silent Mountain (2015) [En] Unofficial [Collector's Edition /
 magnet:?xt=urn:btih:259A038B23034B3C9AEBA89BD505B3A9EE474CF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ Myths of the World 7: The Whispering Marsh (2015) [En] Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:5DF8931A49E1C655F8F578D64AB94174D73C6380
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ Weeping Skies (2015) [En] Unofficial
 magnet:?xt=urn:btih:F3FA29B528E65063C200616D0DE0D9C6322EED84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ Vestaria Saga - это серия стратегических ролевых и
 ```bash
 magnet:?xt=urn:btih:9F1CFF410D1F4D9B1215A0F5F73FB669F625AC24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ Roads of Rome 3: New Generation / Дороги Рима 3: Новое покол
 magnet:?xt=urn:btih:78F17458380252AF4AEB3258F9DC2C9E820B66CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ THE UNCLEARNESS (2019) [En] (1.0) License HOODLUM
 ```bash
 magnet:?xt=urn:btih:1376EFFAE1AEABEE8C118D87039115B2D18F46CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +617,8 @@ Invention 2 (2016) [Ru/En] (1.0) License HI2U
 magnet:?xt=urn:btih:8E2493E4491EF8868D3505E343811CFE6CE52983
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +642,34 @@ Gat out of Hell - это самостоятельное дополнение к 
 ```bash
 magnet:?xt=urn:btih:4A540DE3832DC58F6E8824AC06C426B9A732B52A
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056268   (480832) от 25.09.2016
+
+Watch This! (2016) [Ru/En] (4.10.4) License HI2U
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_480832.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Watch This!» однопользовательский платформер с элементами хоррора. Вы – звезда самого нового, самого зрелищного телешоу. Избегайте ловушек, прячьтесь от монстров, спасайтесь из лабиринта… Или умрите. Главное, порадуйте миллиарды телезрителей!Тип издания: LicenseРазработчик: CivilSavagesЖанр: Action, IndieЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3230ACBEB71CA7B0C5B8D6C8A2400714EDEEC2C4
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

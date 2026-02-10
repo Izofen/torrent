@@ -1,3 +1,125 @@
+###  Публикация: 601824   (997663) от 12.01.2013
+
+Black Veil Brides - Legion Of The Black (2012) [H.264/1080p-LQ] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wretched and Divine
+02. I Am Bulletproof
+03. Lost it All
+04. New Year's Day(   Читать дальше...   )Жанр: Glam-MetalРежиссер: Патрик ФогартиПродолжительность: 00:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF6D2F4647AB315628A601AEC905B42F158A5AC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602095   (997817) от 12.01.2013
+
+Eloy - The Legacy Box DVD 1 (русские субтитры) (2011) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997817.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этом диске представлена 40 летняя история группы Eloy (с музыкальными фрагментами и русскими субтитрами!)01. Introduction
+02. The Beginning and First steps forward (1969-1975)
+03. Years of Success  (1976-1979)
+04. New Paths and old Values (1980-1984)
+05. From project to Band (1985-TODAY)
+06. Credits
+07. Picture GalleryЖанр: Музыка, Progressive rockПродолжительность: 01:42:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F816B63FE659B7BEAC4D7C669CED1B31A4C94A45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601784   (997944) от 11.01.2013
+
+Лучшие клипы для настроения / Best clips for mood [H.264] Mp4 (2012) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию представляется лучшие клипы для поднятия настроения!01. Ace of Base - All That She Wants
+02. Bob Marley -  Could You Be Loved
+03. Modern Talking - Don't Take Away My Heart
+04. Rednex - Football is our Religion
+05. Bonnie Tyler - Holding Out For A Hero
+06. Sabrina - Boys boys boys
+07. Captain Jack - Get Up
+08. Rico Benrnasconi VS Vaya Con Dios - Nah Neh Nah
+09. C.C.Catch - Are You Man Enough
+10. Madonna - FrozenЖанр: Музыка, Pop, Dance, CountryПродолжительность: 01:36:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:049BE239BC3E2AE86633151219B360FA6DDFE269
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600438   (997981) от 11.01.2013
+
+Песня года 2012 (1 часть) (2013) 1080i HDTVRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997981.jpg" />
+</div>
+
+
+###  Подробнее
+
+На телеканале "Россия" - главный концерт страны! Участвуют все звезды! Концерт "Песня года" в Москве – это своеобразное подведение итогов. Каждый уходящий год – это отдельный музыкальный сезон, в котором были свои дебюты и свои провалы, взлеты и падения. По итогам каждого музыкального сезона звездное жюри отбирает лучшие композиции. Так "Песня (   Читать дальше...   )Жанр: Концерт, ТелепередачаПродолжительность: 02:11:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B6E928CB67AF1EF9257958A0D28BD4C13A1252E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 600445   (998013) от 11.01.2013
 
 Песня года 2012 (2 часть) (2013) 1080i HDTVRip
@@ -18,6 +140,8 @@
 ```bash
 magnet:?xt=urn:btih:0F5D490A0612CC872EF13B93F28331426578557D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +167,8 @@ magnet:?xt=urn:btih:0F5D490A0612CC872EF13B93F28331426578557D
 magnet:?xt=urn:btih:E68F832D244EF779D33679AB1F5D10550627EBE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +192,8 @@ magnet:?xt=urn:btih:E68F832D244EF779D33679AB1F5D10550627EBE4
 ```bash
 magnet:?xt=urn:btih:12FBAE1F9757DD370D6ED614F6D4D2C550FD1488
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +219,8 @@ Kim Sori - Dual Life (2013) [H.264/1080p] WEBRip
 magnet:?xt=urn:btih:E358197BBEBF601A7A1C4EA70519F93A21B60CDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +245,8 @@ Secret - Poison (2012) HDTVRip [1080p]
 magnet:?xt=urn:btih:DD0BD5252DEF404226E616C409A06299D77E8EEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +270,8 @@ DJ Shog - Another World (10 Years) (2012) [H.264/720p] WEBRip
 ```bash
 magnet:?xt=urn:btih:3BDB77D3B6DCD95C35D4DF8B6B6B9E7E5D1203F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +308,8 @@ U.D.O. - Live in Sofia (2012) Blu-Ray [custom]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +333,8 @@ EarAbuse - Phonography (Uncensored) (2012) [H.264/720p] WEBRip
 ```bash
 magnet:?xt=urn:btih:CB1E6DE4071AC9AEFDD14683D39FC5FF1DF46E5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +360,8 @@ Gotay El Autentiko - Sexo Toda La Noche (2012) [H.264/1080p] WEBRip
 magnet:?xt=urn:btih:C29AAC356EF5AF60371C98D64036970C11E5F919
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +385,8 @@ Kasino feat Elicia Solis - All For You (2012) [H.264/720p] WEBRip
 ```bash
 magnet:?xt=urn:btih:36A1018CC895AE8DFD80A348D2779E1B80D6F147
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +415,8 @@ Adele - Live at the Royal Albert Hall (2011) [H.264] BDRip
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +443,8 @@ Adele - Live at the Royal Albert Hall (2011) [H.264] BDRip
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +468,8 @@ Guns N' Roses - Use Your Illusion World Tour - 1992 In Tokyo (1992) 2 x DVD5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +504,8 @@ Adele - Live At The Royal Albert Hall (2011) DVD9
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +530,8 @@ Adele - Live At The Royal Albert Hall (2011) DVD9
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +555,8 @@ Adele - Live At The Royal Albert Hall (2011) DVD9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +584,8 @@ VA - Tribute to Led Zeppelin (35th Kennedy Center Honors) (2012) HDRip
 ```bash
 magnet:?xt=urn:btih:FF0A7F725C1A30B0D6ACE2901B192DAA8F85C178
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +615,8 @@ Osibisa - Live At The Marquee 1983 (2004) DVDRip
 magnet:?xt=urn:btih:70F3BA316232B6E55881088D210AE1DCF8E6272B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +641,8 @@ magnet:?xt=urn:btih:70F3BA316232B6E55881088D210AE1DCF8E6272B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +677,8 @@ Uriah Heep - Classic Heep Live From The Byron Era (2004) 2хDVDRip [H.264]
 magnet:?xt=urn:btih:EEF05B376B03A3B9CE75F480D7E4B7E3513CAAE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +705,8 @@ magnet:?xt=urn:btih:EEF05B376B03A3B9CE75F480D7E4B7E3513CAAE1
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,107 +741,7 @@ Slade At The BBC (1969-1991) (2012) DVDRip
 magnet:?xt=urn:btih:76A116B664E6A9BEBE4480ECDFD6937C5A023954
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599450   (999303) от 06.01.2013
-
-Young Swift Feat. Young Jeezy - I Like (Uncensored)(2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hip-hopПродолжительность: 00:05:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D15367268E625CE3A0973F7760FFE811F4034FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599120   (999314) от 06.01.2013
-
-Ibiza vs. VDJ Rossonero - Happy New Year (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия раздач отЖанр: Club, House, DanceПродолжительность: 00:05:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9C32BCDBB7493B94317AA898CA5BE18BF67CA9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599449   (999323) от 06.01.2013
-
-BAZUKA - Christmaz Bitchez (2013) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия раздач отЖанр: House, ElectroПродолжительность: 00:02:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB805082B038CC709C10B92564052C8D76E2D99B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599355   (999338) от 06.01.2013
-
-AC/DC - Live at the Hippodrome Golders Green London (1977) DVDRip [H.264]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Зажигательное, живое выступление, еще молодых участников группы01.Let There Be Rock
-02.Problem Child
-03.Hell Ain`t A Bad Place To Be
-04.Whole Lotta Rosie
-05.Bad Boy Boogie
-06.Rocker
-07.T.N.T.Жанр: Концерт, RockПродолжительность: 00:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6DD90D32D85CD48645D40512CDB5E142ECC2D9C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

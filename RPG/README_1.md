@@ -19,6 +19,8 @@ Knock on the Coffin Lid (2024) [Ru/Multi] (1.3.5.4/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:D4B35A5B30D739C9E363427318F990D9CB577F15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ DYSMANTLE (2021) [Ru/Multi] (1.4.1.8/dlc) Repack Let'sРlay [Complete Bundle]
 ```bash
 magnet:?xt=urn:btih:347951E697B323C18E0D13FC1CC9F08578241F87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Darkest Dungeon II - это путешествие в жанре рогалик,
 magnet:?xt=urn:btih:B9A020E8F94D5F07FD5B71D2651ED740D8F576C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Section 13 (2023) [Ru/Multi] (1.1.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:62237DC2528701A4C39B97EB06CE52BADF047710
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Look Outside - это ролевая игра в жанре Survival Horror, д�
 magnet:?xt=urn:btih:71DC1B48EE8B3830D092AE73083B9767F10EB46E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Shattered Pixel Dungeon - это классический пошаговый р�
 ```bash
 magnet:?xt=urn:btih:6F0A4615B1F13C114F5243039F8BB8DD8EEF5E07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Tyrant's Realm (2025) [Ru/Multi] (Build 19545604) Repack Let'sРlay
 magnet:?xt=urn:btih:43A3D49B83472245FE6C9E7A57CAA1397B622055
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Nordic Ashes: Survivors of Ragnarok – динамическое приключ�
 ```bash
 magnet:?xt=urn:btih:4EAE8987B7D0C2FDB752EF86EE4BA6E1B1CFE8A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Black Geyser: Couriers of Darkness (2021) [Ru/Multi] (1.2.67) License GOG
 magnet:?xt=urn:btih:F4B357FD90F753DB8AEF96C24E8C7F415FAFA656
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Three Kingdoms Mushouden переносит геймеров в 182 год на�
 ```bash
 magnet:?xt=urn:btih:47719A7ED8B53BD0CC6810982E0642CA09BA3AC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (10.0.0.1/dlc) Repack Wanterl
 magnet:?xt=urn:btih:9CB29F2B0313BE6044532F4943ABBC29F701A2A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Dungeons & (and) Dragons Neverwinter Nights 2: Enhanced Edition (2025) [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:9D84997BDF043305DF8F6B49724371B5EF7E4E5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Lies of P (2023) [Ru/Multi] (1.11.0.0/dlc) Repack Wanterlude [Deluxe Edition]
 magnet:?xt=urn:btih:78A1FD6BCD991B53C54D9B53CFBBE9AB31A36292
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Lords of the Fallen представляет совершенно новое э�
 ```bash
 magnet:?xt=urn:btih:60A69FCFC33F74D6B010B3979ACCEEF17B5C8AFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Mirthwood (2024) [Ru/Multi] (1.0.88p1) Repack dixen18
 magnet:?xt=urn:btih:8DB94B0D2788A72504503802204E056F5E2BBC24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Secrets of Grindea – интересная игра-приключение, в 
 ```bash
 magnet:?xt=urn:btih:DBBDF7BA369163B743F90BD81137650D1A98C455
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Cat Quest III (2024) [Ru/Multi] (1.4.7) Repack Let'sРlay
 magnet:?xt=urn:btih:65E0A28E12788B13875272AE7D8E1E6198C93EF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Dustwind: Resistance - это тактическая одиночная игра
 ```bash
 magnet:?xt=urn:btih:32D606F15472EE915B17A0B14C0406B3A58FE278
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ DISORDER (2025) [Ru/Multi] (Build 19621037) Repack Let'sРlay
 magnet:?xt=urn:btih:6D9F300EEF2F16B1BC8A9EE958E7C93FC6FE2520
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Lost Soul Aside (2025) [Ru/Multi] (build 19738594/dlc) Scene Rune [Digital Delux
 ```bash
 magnet:?xt=urn:btih:955691C797454599E1E7A5E5BF19D9ACDFD9976A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Abyss Eschaton Survivors (2025) [Ru/Multi] (1.00.10) Repack FitGirl
 magnet:?xt=urn:btih:A7038A1E70A3428883D2682E57A3A8068CAB2930
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Lost Soul Aside (2025) [Ru/Multi] (build 19738594) Repack FitGirl [Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:706CE1D34EC6ABAB168EC45997C8C8AB1D941B92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Soulstice (2022) [Ru/Multi] (1.1.0+219971/dlc) Repack Let'sРlay [Deluxe Edition
 magnet:?xt=urn:btih:8FE9BD49CEA8681C1FF39B14152F455D8F5B61D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Lost Soul Aside (2025) [Ru/Multi] (build 19738594) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:A8C4D1D4AF1056E4E62957337B9B31875DA76F63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Legends of Amberland: The Forgotten Crown - ролевая партийная и
 magnet:?xt=urn:btih:EA533B6512BA7E985A9191F94AE749F01A81BA51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Knights of the Chalice 2 - это 2D-ролевая игра с пошаговы
 ```bash
 magnet:?xt=urn:btih:9C85BBC5F9BB069E0445FC3E2660A84F32B553BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

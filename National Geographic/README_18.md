@@ -19,6 +19,8 @@ NGW. Стая: Львы / The Pack: Lions (Leslie Schwerin) (2010) HDTV [H.264/1
 magnet:?xt=urn:btih:6E42C2ACB345C8C2C471D8B7EEAE30F895A1BFC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NGW: Городские джунгли / Urban Jungle (2014) HDTV [H.264/1080i-L
 ```bash
 magnet:?xt=urn:btih:FCE4A1E685E4B001CF3E4042AAA226755185A8F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NGW: Тайны дикой природы / Secrets Of The Wild (2013) HDTV [H.2
 magnet:?xt=urn:btih:BB8B823AA87B38794FBE039D6F53DCDAA59924FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NG: Герои Средиземноморья / Heroes of the Mediterranean (201
 ```bash
 magnet:?xt=urn:btih:6B3C6E11306658FC0CED627F2DB766E29BF83EB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:6B3C6E11306658FC0CED627F2DB766E29BF83EB3
 magnet:?xt=urn:btih:6E769751F77647B1716155F7DFC271F1E4438936
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ NG: Загадки исполинов каменного века / Riddle of th
 ```bash
 magnet:?xt=urn:btih:7D20346CA45671034862411E23108273415D7361
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:7D20346CA45671034862411E23108273415D7361
 magnet:?xt=urn:btih:86E42103DCF64D070BE208FAEC983AF377C540D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ NG: Враждебная планета / Hostile Planet (2019) HDTVRip (Сез�
 ```bash
 magnet:?xt=urn:btih:4D6A2BE5791C488628490F93749E778154F149C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ NG. Международный аэропорт Дубай / Ultimate Airport Du
 magnet:?xt=urn:btih:FA4B08922850FF5ECFE6492903B361E87A3C8579
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ NG: Взлом Системы / Hacking the System (2014) HDTVRip [H.264/1080p-L
 ```bash
 magnet:?xt=urn:btih:77D678EE3A56E113CF4EE1AA05875870BC47A616
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ NG: Научные глупости / Science of stupid (2013) HDTVRip [H.264/72
 magnet:?xt=urn:btih:30F5209AAB3CF86C93FDE76E416CE6FE03A811C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ NGW: 72 самых опасных животных Австралии / 72 Dange
 ```bash
 magnet:?xt=urn:btih:918E93DAFDFBB05A90D23771007E1C873B2B83AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ NG: Человечество из космоса / Mankind from Space (2015) HDT
 magnet:?xt=urn:btih:2B35344124DE71A2DBD692117FCA66A7396A550E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ NG: Дикая природа Америки / Untamed Americas (2012) BDRip [H.
 ```bash
 magnet:?xt=urn:btih:10E38F900FDAB207F341C364D9E6689864021E09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:10E38F900FDAB207F341C364D9E6689864021E09
 magnet:?xt=urn:btih:28C30B460C30CCA530A45AD77FB42C0C07E0FBB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ NG. Ограбление по-египетски / The Egyptian Job (2011) SATRi
 ```bash
 magnet:?xt=urn:btih:B59132EC88A28010130AB1A230B24555B2170D45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ NGW: Дикие охотники. Рыбы / Wild Hunters. Fish (2019) HDTV [H.2
 magnet:?xt=urn:btih:356939B84D1245E52B2C099A6E43A8EECEF29E3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:356939B84D1245E52B2C099A6E43A8EECEF29E3E
 ```bash
 magnet:?xt=urn:btih:0D0A23A5608A3B2BD379D04564BC916FA5C358D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ NGW: Дожить до рассвета / Dead by Dawn (2019) HDTVRip [H.264/108
 magnet:?xt=urn:btih:8E70A08A56D61E3F33EF98DD051616BE9D2008C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ NGW: Дикая Арктика / Wild Arctic (2018) HDTV [H.264/1080i] (Сери
 ```bash
 magnet:?xt=urn:btih:5E16B196443C54A320489E1C99DE597D63561D45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ NG: С точки зрения науки: Великое оледенение /
 magnet:?xt=urn:btih:C481429F62625AB285896FA5490E97A631FA3EC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ NG: Живая Земля / X-Ray Earth (Faszination Erde) (2011) BDRip [H.264/1
 ```bash
 magnet:?xt=urn:btih:BB1B5540E125842B93298C282D23023513E9E261
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ NG: Кладбище воинов. Флотилия проклятых / Warrior
 magnet:?xt=urn:btih:10147E9C5C4B7BE65C6F07765D4F909D4204F824
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ NGW: В мире дикой природы. Долина смерти / Into The
 ```bash
 magnet:?xt=urn:btih:0041A20EC35BE715FCE459C0FCE0D9B0632318D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ NGW: Хищник в раю. Битва в джунглях / Predator in Paradi
 magnet:?xt=urn:btih:1A5719A974528F2AE4D60701684BF627C4D171C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ magnet:?xt=urn:btih:1A5719A974528F2AE4D60701684BF627C4D171C7
 ```bash
 magnet:?xt=urn:btih:A37921675F8B660A3524F8462098B2D6D68AF670
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

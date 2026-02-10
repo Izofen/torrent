@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:9EED85E9541D45D4C38CD713C552A99FD90B15CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -55,6 +57,8 @@ The Swing Session - Whispering Grass (2001) [FLAC|Lossless]<Swing>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -78,6 +82,8 @@ The Swing Session - Whispering Grass (2001) [FLAC|Lossless]<Swing>
 ```bash
 magnet:?xt=urn:btih:14C1BEB7ECF50830FEC824EE313211DE35F2C507
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +109,8 @@ HitmanPro обнаруживает, идентифицирует и удаляе
 magnet:?xt=urn:btih:816EB94DB30D6648E421F78EBF297E4DF90FAE49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:816EB94DB30D6648E421F78EBF297E4DF90FAE49
 ```bash
 magnet:?xt=urn:btih:B76E3776369FD74082176F82C55FF66555F3F9F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -158,6 +168,8 @@ Woody Herman - Thundering Herd (1974) (1995) [FLAC|Lossless]<Big Band>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -185,6 +197,8 @@ Woody Herman - Thundering Herd (1974) (1995) [FLAC|Lossless]<Big Band>
 magnet:?xt=urn:btih:2DA44F8B8910DB62026F6ED5F3E87866344198A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ Comcast объявляет о первом в мире испытании мод
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Comcast объявляет о первом в мире испытании мод
 magnet:?xt=urn:btih:5DD79072719767573C5C2BF776CDAF60A444919D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ magnet:?xt=urn:btih:5DD79072719767573C5C2BF776CDAF60A444919D
 ```bash
 magnet:?xt=urn:btih:089B1DD019FE33979F0D2AF5CEC8CE0C0273B5F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +315,8 @@ VA - Native American Sacred Sky (2011) [MP3|320 кб/с]<New age, World, Native 
 magnet:?xt=urn:btih:5C7C9F271107C6FF5DE3BD96D27EFAE4DE615BDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +343,8 @@ magnet:?xt=urn:btih:5C7C9F271107C6FF5DE3BD96D27EFAE4DE615BDE
 ```bash
 magnet:?xt=urn:btih:689D09BF80AAF63FF6C4E1B23A2862C08329F5C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +373,8 @@ magnet:?xt=urn:btih:689D09BF80AAF63FF6C4E1B23A2862C08329F5C4
 magnet:?xt=urn:btih:F08A2DB6F82371C52EE2A3A1E8846C285CEC57C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +401,8 @@ VA - Sun & Chill, Vol. 3 (2015) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:942F94C7E8CD1EACFB73D7C9ABEF265606718E26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +437,8 @@ Daniel Wanrooy - Slice Of Life (2012) [MP3|320 кб/с]<Progressive Trance>
 magnet:?xt=urn:btih:54B758303941A835BD561CBF1BD13B419026835C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +466,8 @@ VA - Sun & Chill, Vol. 4 (2019) [AAC|~303 Kbps] <Lounge, Chill Out, Downtempo>
 magnet:?xt=urn:btih:BA694F9296A8B8353B6E6B0A98455A4746A238D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +494,8 @@ VA - Pure Deluxe 3 (2014) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:6BDE6BA98FDDFF1512B4307DCFEB9614B4746E28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +530,8 @@ Triage - Rage (2012) [MP3|~245 кб/с (V0)]<Dubstep>
 magnet:?xt=urn:btih:1C44EBBF69218B35CFCAD4181FF50AC7F81F0F33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +555,8 @@ FSNotes - это менеджер текстовых заметок для macOS
 ```bash
 magnet:?xt=urn:btih:166F327E0C2C4C23AF7C57C969FBC2BE3D22AE28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +585,8 @@ For Found Future - Ambient Story (An Electronic Downbeat Journey from Chill to L
 magnet:?xt=urn:btih:84034F81EC12E995F0B60A6A80CBCDD1832200D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +613,8 @@ VA - Sun & Chill, Vol. 2 (2014) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:25D8B7A0EA540CC9E4483E4B3E88930F1BDB080B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +643,8 @@ Shanti People - Urban Mantras (2015) [AAC|~295 Kbps] <Folk, EDM>
 magnet:?xt=urn:btih:AFFB2B6082809A5E0824F99F223FD4E7DFC40356
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +672,8 @@ VA - Deep Relaxation 2k22 (2022) [AAC|~299 Kbps] <Lounge, Chill Out, Downtempo>
 magnet:?xt=urn:btih:6C167E0B8AC20E357D631465846777D39BC03AB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +699,8 @@ Downie поддерживает более 1,000 популярных сайто
 ```bash
 magnet:?xt=urn:btih:072E93EE87B382B9CA3AC8BBDC527DBFC41B2346
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -680,6 +728,8 @@ Exxperior - Escalating Conflicts (2021) [FLAC|Lossless|image + .cue] <Thrash Met
 ```bash
 magnet:?xt=urn:btih:D9A45D679B46F3052AE0BC761C60356DAC2127ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -711,6 +761,8 @@ DeepChord Presents Echospace - [LIVE] (2010)
 ```bash
 magnet:?xt=urn:btih:84330B77264BD54E1C46B42AC226F3BD60063B80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

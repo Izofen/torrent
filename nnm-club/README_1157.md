@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:17DCCCD6A6E279955D0C67886F76700E97EEE76C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:17DCCCD6A6E279955D0C67886F76700E97EEE76C
 ```bash
 magnet:?xt=urn:btih:C82A259EA82908E9E96C5A80A4FC7250358C69C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 magnet:?xt=urn:btih:5CDAEDDE7FD5B91E20D45AE7D80DEB895E0FC06D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:5CDAEDDE7FD5B91E20D45AE7D80DEB895E0FC06D
 ```bash
 magnet:?xt=urn:btih:09738C3FC17B753C6E001985376FB33B9D2B0847
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:09738C3FC17B753C6E001985376FB33B9D2B0847
 magnet:?xt=urn:btih:E0BFF44EF36376BAE290272AD359A4006B116C3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:E0BFF44EF36376BAE290272AD359A4006B116C3D
 magnet:?xt=urn:btih:7644A55DD29A9D382B624BBF1B1A180E2D6CADB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:235FD96C3B6B8FD989F1E677F7490372BFDCA0C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:AF9D0CCDE0076E66BE74209383D571C90F390E50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Beat Hazard 2 – продолжение яркого представителя
 ```bash
 magnet:?xt=urn:btih:B85D327929C7BC70FAD33D248880CC1EB09155FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Age of Darkness: Final Stand - это стратегия в реальном в�
 magnet:?xt=urn:btih:1A2F7C4BDC88DC6F18AA618837F1C03D4077EEA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Ultimate General: American Revolution (2024) [Ru/Multi] (1.0.3/dlc) Repack FitGi
 ```bash
 magnet:?xt=urn:btih:4B9581F4880F2F4B28DE30A290B0E2F1079CD3A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ Psiphon - это новый инструмент обхода интернет-�
 magnet:?xt=urn:btih:258BC57C9F3E29D4CA8F3868E21EA9FC4EDC40D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Your Android (2025) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:BFD95E6A62120D7A526F506B67042340B154902B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ Heart's Medicine - Hospital Heat - это долгожданное продол�
 magnet:?xt=urn:btih:86392DCC63C4554219849DF992626E33DACB52A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:86392DCC63C4554219849DF992626E33DACB52A2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:86392DCC63C4554219849DF992626E33DACB52A2
 ```bash
 magnet:?xt=urn:btih:314CC8D072524D0055081EAC0D86AEEE9637490E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:314CC8D072524D0055081EAC0D86AEEE9637490E
 magnet:?xt=urn:btih:FD382668E312BC60991192041801BDE8A488E664
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ PDF-XChange Editor — программа для просмотра, редак�
 ```bash
 magnet:?xt=urn:btih:38924A94B9AFA9F3609F8C1647BE3B376A5AF0B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:38924A94B9AFA9F3609F8C1647BE3B376A5AF0B7
 magnet:?xt=urn:btih:5FB394A0354E6440A45FAAA10426DDD5578281FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:5FB394A0354E6440A45FAAA10426DDD5578281FC
 ```bash
 magnet:?xt=urn:btih:9709A6CB599210871E1F13863D1A65C7B8EF00E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:9709A6CB599210871E1F13863D1A65C7B8EF00E9
 magnet:?xt=urn:btih:881BF324B5E824104855B454BB99939F7299B6AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ AquaFantasia (2024) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:2B1B4FA790D80F325F746721DDED3BCDB169F376
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ PDF-XChange Pro — универсальное решение для работ�
 magnet:?xt=urn:btih:634C67A11B6137D3987207428A9767D77E138CA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ STASIS: BONE TOTEM (2023) [Ru/Multi] (1.0.4.3) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4936A6B34751401F5BA1212350B32C126F75F469
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:4936A6B34751401F5BA1212350B32C126F75F469
 magnet:?xt=urn:btih:3CE9FB90090BC1907FC34646659DDE11950C25D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ magnet:?xt=urn:btih:3CE9FB90090BC1907FC34646659DDE11950C25D1
 ```bash
 magnet:?xt=urn:btih:3C3A83C72D0696C0ADE3FE100726B3BCBF54656A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ CD1:
 magnet:?xt=urn:btih:490A78CD3F938A9FE9241E2A5D04B1ED36FE8E4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Python — один из наиболее широко используемых 
 magnet:?xt=urn:btih:9DD106C466750DD06B3BBD48560FAC4E4678D58C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ NGW: Самые мощные челюсти / World's Deadliest Bite (2021) WEBR
 ```bash
 magnet:?xt=urn:btih:3F8B65CB5BA34E0C233764990D8AB5FB31F5152C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Communic - Hiding from the World (2020) [MP3|320 Kbps] <Progressive Metal, Power
 ```bash
 magnet:?xt=urn:btih:C25307BBC8CD6206977165EAC1F7B4B3A40E7050
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -131,6 +139,8 @@ Hanzel Und Gretyl - Born to Be Heiled (2012) [MP3|225-281(~253) kbps] <Industria
 magnet:?xt=urn:btih:D4729EF5A1838F2CBD42DA27642E33D858C3AF91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:D4729EF5A1838F2CBD42DA27642E33D858C3AF91
 magnet:?xt=urn:btih:EB4D3BAA7AEB6B64D4B38D60847F1277D601BC3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ magnet:?xt=urn:btih:EB4D3BAA7AEB6B64D4B38D60847F1277D601BC3F
 magnet:?xt=urn:btih:96C85A5F1D79CB62D9E5E541A3514112EAC733FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ magnet:?xt=urn:btih:96C85A5F1D79CB62D9E5E541A3514112EAC733FE
 ```bash
 magnet:?xt=urn:btih:6561EE04162A32015900F1E99053EBC45DE3DDD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -231,6 +247,8 @@ Chris Norman - Just A Man (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Soft R
 magnet:?xt=urn:btih:C2A18E4EF6D1FB1E6F89A9755C431BD4AFABD815
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -254,6 +272,8 @@ magnet:?xt=urn:btih:C2A18E4EF6D1FB1E6F89A9755C431BD4AFABD815
 ```bash
 magnet:?xt=urn:btih:A17F8B8B4A26707CDAA832630B8D2D5F46F95A79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -281,6 +301,8 @@ Perfectly Clear – мощный плагин для Adobe Lightroom и Adobe Ph
 magnet:?xt=urn:btih:08D326CCA3F9E252D5BD52F751294EF32B3FE1FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ Christmas Stories 10: Yulemen / Рождественские истории 10: 
 ```bash
 magnet:?xt=urn:btih:7BD03BCB3676BE617E8597077E76AB13AAC8705D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +356,8 @@ Clams Casino - Moon Trip Radio (2019) [FLAC|Lossless|Web-DL|tracks] <Abstract Ho
 magnet:?xt=urn:btih:D5C7AF7AB872D49F8E4F5665561F15A682BB0F19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +385,8 @@ Dragon Ball GT / Dragonball GT / Драгонболл ГТ [1996, TV, 64 + sp] D
 magnet:?xt=urn:btih:27D0FBBFA5117F18BFC3C94C0E3DF9A0D5E2BBDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +410,8 @@ magnet:?xt=urn:btih:27D0FBBFA5117F18BFC3C94C0E3DF9A0D5E2BBDB
 ```bash
 magnet:?xt=urn:btih:4B1ED929C2D3DF5A408A1DD5FF3259DB3D61CA6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +437,8 @@ Need for Speed: Жажда скорости / Need for Speed (2014) HDRip [AVO]
 magnet:?xt=urn:btih:72A64D23EC6373EBAA2E97D0E5140EDDE24A6D61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:94208573DD735FD617E1774F03C2D4A877D3FE4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +491,8 @@ DaisyDisk - утилита которая весьма необычным обр
 magnet:?xt=urn:btih:9E1445C0337B63CB07A8E1D3A995DD46D8AF47CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +516,8 @@ magnet:?xt=urn:btih:9E1445C0337B63CB07A8E1D3A995DD46D8AF47CF
 ```bash
 magnet:?xt=urn:btih:8AFBD91F1424A573A6C55DFA37BA92C1F5731CC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +543,8 @@ Microsoft Office 2013 – лучший пакет прикладных прог�
 magnet:?xt=urn:btih:D02F5BE4D16DB0F9A665891F450DA59A61BC9C60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +568,8 @@ iSwift - самый простой способ преобразовать ко�
 ```bash
 magnet:?xt=urn:btih:6CB52C042AB4317179EA5F152520CF444198B7F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +604,8 @@ magnet:?xt=urn:btih:6CB52C042AB4317179EA5F152520CF444198B7F6
 magnet:?xt=urn:btih:E44CB111EFCCABAF89CC5C0F66B615FF8A153B7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +632,8 @@ magnet:?xt=urn:btih:E44CB111EFCCABAF89CC5C0F66B615FF8A153B7F
 magnet:?xt=urn:btih:8AEF7FC991F69A9DA2B72A51F92DE4551FAB2A41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +657,8 @@ magnet:?xt=urn:btih:8AEF7FC991F69A9DA2B72A51F92DE4551FAB2A41
 ```bash
 magnet:?xt=urn:btih:3654A72AF3A9C35AA83D301FCD070B46204E313C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +684,8 @@ magnet:?xt=urn:btih:3654A72AF3A9C35AA83D301FCD070B46204E313C
 ```bash
 magnet:?xt=urn:btih:1160B935F39A28360813BA2A94408AA75CCEF519
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -663,6 +713,8 @@ Mountaineer - Bloodletting (2020) [FLAC|Lossless|tracks + .cue] <Post Metal, Doo
 ```bash
 magnet:?xt=urn:btih:4EA57B7B5478AFC8558AA36621BC83C0217A97D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

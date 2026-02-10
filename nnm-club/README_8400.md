@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:FFE1F63C29825FD02782D3F70897C68878EAE598
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:FFE1F63C29825FD02782D3F70897C68878EAE598
 magnet:?xt=urn:btih:2BC723024A17B3E8D30FADAFA57A248F16D8C5A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:2BC723024A17B3E8D30FADAFA57A248F16D8C5A2
 magnet:?xt=urn:btih:888EFC636C5A7F22B27C833E4DDC1E683C151D03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:888EFC636C5A7F22B27C833E4DDC1E683C151D03
 ```bash
 magnet:?xt=urn:btih:1708C2089FC0DC0FDF3F15A471BC65FAA6BCBBBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:1708C2089FC0DC0FDF3F15A471BC65FAA6BCBBBC
 magnet:?xt=urn:btih:D422949F1B47732B61D8E9BE4D1F03B1FDF9B026
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ The Book of R is a comprehensive, beginner-friendly guide to R, the world’s mo
 magnet:?xt=urn:btih:6D8E3E129B07C58F0C9159988C83041679511E99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ ProFinansy, Наталья Котовская | Облигации: как бе�
 ```bash
 magnet:?xt=urn:btih:CBC65825C83EAFB9F790D6793FC90E2C11081ABD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:CBC65825C83EAFB9F790D6793FC90E2C11081ABD
 magnet:?xt=urn:btih:F2B6046A52FF5CB521CC4895946E7F45823A0AFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:F2B6046A52FF5CB521CC4895946E7F45823A0AFF
 ```bash
 magnet:?xt=urn:btih:7DE2263985ECC50D1BC44733908437D48B6030A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:7DE2263985ECC50D1BC44733908437D48B6030A3
 magnet:?xt=urn:btih:0E15C1DF7D744D93B23D56AC7834E3E59D697D36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:0E15C1DF7D744D93B23D56AC7834E3E59D697D36
 ```bash
 magnet:?xt=urn:btih:15FAE03DCC3D30293A17720D332A6923F0CAD219
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ Various Artists - Любэ 35. Всё опять начинается. Триб�
 magnet:?xt=urn:btih:32216BC268F62215ADDFC4AD5B1D42B02C2D3F58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ VA - 20x25 (Freshly Squeezed 20th Anniversary Compilation) (2025) [FLAC 24/48|Lo
 ```bash
 magnet:?xt=urn:btih:C44A84D384B70F1BB5BEBD5CA88A35A03A160520
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ Swing Sonix - Welcome to the Circus (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:2FF1B4907EF0E97989B3BC7C6207C108D1FEE62F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ Phantom Alley Swing, Joseph Brittanni & Francesco Altamura - Rouge Noir (2025) [
 ```bash
 magnet:?xt=urn:btih:E1CCC337168C5782A8297A0800F1B41984D5AFC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ Phantom Alley Swing - Bleu Eternel (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <E
 magnet:?xt=urn:btih:D571228885800C739754015B36AD7A8987BB448B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ Muu no Hakugei | The White Whale of Mu | Белый кит континента 
 ```bash
 magnet:?xt=urn:btih:24678E5EFFE0489390E9230407863D26B7E54A7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +482,8 @@ magnet:?xt=urn:btih:24678E5EFFE0489390E9230407863D26B7E54A7B
 magnet:?xt=urn:btih:356E4CA83D31F3FBB4496575BD2D6A4D0790C049
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:356E4CA83D31F3FBB4496575BD2D6A4D0790C049
 ```bash
 magnet:?xt=urn:btih:ABA008FCFCEC8A990300F6DC4229727F941D881E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ Liuyin's World (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:4DE213C4DDA65F538E0931440CE9B660041EFA73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ magnet:?xt=urn:btih:4DE213C4DDA65F538E0931440CE9B660041EFA73
 ```bash
 magnet:?xt=urn:btih:3B556789F350D1821564F3BEE24FA95CC5A157CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:3B556789F350D1821564F3BEE24FA95CC5A157CC
 magnet:?xt=urn:btih:81A00591074805B6573E46F93B804E332424D0C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ magnet:?xt=urn:btih:81A00591074805B6573E46F93B804E332424D0C3
 ```bash
 magnet:?xt=urn:btih:9123B0543D2D6DF14B2D67764EDFC5E9E9C51CA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +638,8 @@ magnet:?xt=urn:btih:9123B0543D2D6DF14B2D67764EDFC5E9E9C51CA5
 magnet:?xt=urn:btih:274DE263C3E43C4FB7D7C1B47271FBB0DF62E780
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:274DE263C3E43C4FB7D7C1B47271FBB0DF62E780
 magnet:?xt=urn:btih:838F950B29A8CFAD5940B8CBA7E525A168719D6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ Bye Sweet Carole (2025) [Ru/Multi] (1.0.6) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:8A09A443B7495088987D8F867255A7C84D715200
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

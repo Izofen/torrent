@@ -1,3 +1,36 @@
+###  Публикация: 607563   (993977) от 24.01.2013
+
+ДДТ - Актриса Весна (1992) [FLAC 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_993977.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Дождь 5:16
+A2. В Последнюю Осень 5:02
+A3. Фома 7:02
+A4. Родина 4:44
+B1. Храм 5:23
+B2. Что Такое Осень 4:58
+B3. Ночь 5:16
+B4. Актриса Весна 5:46Жанр: RockПродолжительность: 00:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EAF502A58B10900F96ACBAC8C0CE6A03C7720AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 604991   (995385) от 20.01.2013
 
 Кино (Виктор Цой) - 4 альбома (1990-2012) [WavPack 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
@@ -25,6 +58,8 @@
 ```bash
 magnet:?xt=urn:btih:FB102A62C4041A392FCCDD6360768FBC5D1F4E57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -59,6 +94,8 @@ B5. Игра 5:01(   Читать дальше...   )Жанр: RockПродол�
 magnet:?xt=urn:btih:57D2EC97B2A2EB19087117CA650C5C8B9183965C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +128,8 @@ B4. In Between 3:17(   Читать дальше...   )Жанр: Alternative Roc
 ```bash
 magnet:?xt=urn:btih:780F15C460AF0F800E2E8982F6503C4BB177CCBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +164,8 @@ B4. Forgotten 3:13(   Читать дальше...   )Жанр: Alternative Rock
 magnet:?xt=urn:btih:9E747D6D4A323544ABAFEAE884BCC79E1448A55F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -158,6 +199,8 @@ magnet:?xt=urn:btih:9E747D6D4A323544ABAFEAE884BCC79E1448A55F
 magnet:?xt=urn:btih:1C2A7317D47CDAE2A85CB0157AA5A33176DD2B32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +230,8 @@ LP1:
 ```bash
 magnet:?xt=urn:btih:2960B93CD33EDA0DBCA02FE275A2050B0A0FD75B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +266,8 @@ B5. Поколение дворников 5:20Жанр: RockПродолжите
 magnet:?xt=urn:btih:104337D6EF716672631DB2BEDF31C96305492E11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -254,6 +301,8 @@ B5. Бурлак 4:09(   Читать дальше...   )Жанр: RockПрод�
 magnet:?xt=urn:btih:AB9234807F15B44A4C3BBE0736860F9F71F35496
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +333,8 @@ B4. Следуй За Мной! 4:40Жанр: Hard Rock, Heavy MetalПродол
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +367,8 @@ B5. Прощальное Письмо 3:48Жанр: RockПродолжитель
 ```bash
 magnet:?xt=urn:btih:F3FC04D141D1463E32E63C82F8395E070280BE24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +403,8 @@ B5. Летучая Мышь 5:05Жанр: RockПродолжительность
 magnet:?xt=urn:btih:E903C8D6A94FB68D5462FB08FA40F9A13A0AE782
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +437,8 @@ B5. Каравелла 2:54(   Читать дальше...   )Жанр: Post-pu
 ```bash
 magnet:?xt=urn:btih:600F9F1D454EA5A2F649A031DFD80B2D7DB585E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +473,8 @@ Cyndi Lauper - She's So Unusual (1983) [FLAC 2.0 96/24|image (vinylRip)]<Contemp
 magnet:?xt=urn:btih:08DE481F3E2E6CD4D024C9271EC82EFECC054612
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +507,8 @@ magnet:?xt=urn:btih:08DE481F3E2E6CD4D024C9271EC82EFECC054612
 ```bash
 magnet:?xt=urn:btih:04EDE047D20A25C8D40C182E5528C885AD093370
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +543,8 @@ LP1
 magnet:?xt=urn:btih:7AE7649474E6938373977D5CCE373FB407794CDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +569,8 @@ magnet:?xt=urn:btih:7AE7649474E6938373977D5CCE373FB407794CDA
 magnet:?xt=urn:btih:E0FCC7D753A8217534AD6EB0310235F119E4555E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +594,8 @@ Korn - 8 альбомов (1995-2010) [FLAC 2.0 24/192 |image + .cue (Vinyl-Rip)
 ```bash
 magnet:?xt=urn:btih:529269659F8620015C01834221DB0789AD68489F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +630,8 @@ magnet:?xt=urn:btih:529269659F8620015C01834221DB0789AD68489F
 magnet:?xt=urn:btih:59F11D3809F12B11A717AA8B625753B45D77E5AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +663,8 @@ magnet:?xt=urn:btih:59F11D3809F12B11A717AA8B625753B45D77E5AB
 magnet:?xt=urn:btih:50E47BB3F14C7D20D010F20289394098C533FAD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +689,8 @@ The Cranberries - 5 альбомов (1993-1999, 2012) [FLAC 2.0 24/192 |image +
 magnet:?xt=urn:btih:6E2A1F65E223090CB68905398BACEA62AF0D4CB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +714,8 @@ magnet:?xt=urn:btih:6E2A1F65E223090CB68905398BACEA62AF0D4CB5
 ```bash
 magnet:?xt=urn:btih:B425FAEE41CF5FDE429FC176AA2755AD8CE431AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -675,6 +750,8 @@ Fleetwood Mac – Rumours (1976) /2011 Remaster/ [DST 2.0, 5.1 1bit/2822,4kHz |S
 magnet:?xt=urn:btih:D33CEC6B18D9E7CB77D10DE0ABD2D8637627322B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -701,6 +778,8 @@ A3 And When The Night Comes(   Читать дальше...   )Жанр: Electro
 ```bash
 magnet:?xt=urn:btih:F40978C9707A4FF25CDC49EFAB29533FEA6CBB31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -729,6 +808,8 @@ Alone Again (Naturally) (1972)
 magnet:?xt=urn:btih:69BEFAFCD6451B4575263D134505AF8C71239710
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -756,32 +837,7 @@ Theme From S.W.A.T. (1976)
 magnet:?xt=urn:btih:78D1FDABEC9FD7DFD8732CC2D313A47CBD3E9A4D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350668   (1002912) от 07.01.2020
-
-Ray Conniff - Laughter in the Rain & Love Will Keep Us Together (2017) 1975 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Laughter In The Rain (1975)
-
-01. Laughter in the Rain (Sedaka; Cody)
-02. I Honestly Love You (Allen; Barry)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:08:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5D9AE82F682A1C1D911C50097499386D40B139B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

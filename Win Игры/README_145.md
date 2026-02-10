@@ -19,6 +19,8 @@ Tiny Glade – это спокойный и даже местами медита
 magnet:?xt=urn:btih:10B59929FAB2CDC1F87D2F41E256DD45F4C94A70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Ara: History Untold (2024) [Ru/Multi] (1.0.0.316/dlc) Repack FitGirl [Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:C10DC4EFEA46A7154AA9A1C90CE6FE58E195AE2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Star Trucker (2024) [Ru/Multi] (1.0.41.0/dlc) Repack Decepticon
 magnet:?xt=urn:btih:0BD2B6061772CB5A91B3F38D97A9CF6A213EC83F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Ara: History Untold (2024) [Ru/Multi] (1.0) Scene FairLight
 ```bash
 magnet:?xt=urn:btih:B72222769C67FD78E7EC2593ECB8671A156EF848
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ DreadHaunt (2023) [Ru/Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:027F5F96AA2B782DE47924DAB20096ABBA13CFA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ City Bus Simulator 2024 (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:81702FE672B70D435CF09B35897E08803891F8B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Teenage Mutant Ninja Turtles: Shredder's Revenge - экшен, в котором
 magnet:?xt=urn:btih:5CB12F1BA264AFCFEDADF4FB0165719B432EF387
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Disney Epic Mickey: Rebrushed оживляет магию мира Disney в к�
 ```bash
 magnet:?xt=urn:btih:CAF51D7C7DDCF5464E45040F6BFCFB99AE5A01F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Three Alpha One Nine – это сложный и одновременно ул�
 magnet:?xt=urn:btih:BBFBCAD01DA8C08E8EE76E4E4BAA1634540DDE45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Abnormal1999:The Compass and the Sand - это загадочная голово
 ```bash
 magnet:?xt=urn:btih:C465A2E7ED2C74A69CACF01C908D946851BC2E85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Emptiness (2015) [En] (1.0) Scene PROPHET [Deluxe Edition]
 magnet:?xt=urn:btih:A97783DADF64062C99C8707B36C19041AE7CEAF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Grapple Dogs: Cosmic Canines - это 2D экшен-платформер, рас
 ```bash
 magnet:?xt=urn:btih:008B73DC8318C680AF729D8D3E9DA817C4989B12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ How We Die (2024) [Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:ECE77E44E781DF5C645AE152ECC8EBACC3CF9490
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Slackers - Carts of Glory - это гоночная адвенчура, кото
 ```bash
 magnet:?xt=urn:btih:40325028401C8823684D6D5ECD1CD40ACB2176AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Virtual Rides 3 - Funfair Simulator – это очередная игра в ж
 magnet:?xt=urn:btih:386A891B76D5694B93876B1BC35C8B340C3049B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Copycat (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C45DB335420E1DC40454C62BE061F22D6273914F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Gas Station Simulator - это все о ремонте, развитии и э�
 magnet:?xt=urn:btih:9B5CC48BF80E0101468DB64C823797268871D2C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Internet Cafe & Supermarket Simulator 2024 (2024) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:EC7E7FA6C14EB3BC66DE61951AD1A0902DCFF7EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Just A To the Moon Series Beach Episode - это казуальная прикл
 magnet:?xt=urn:btih:BECB59201B3DEA48C4328AAAA3DBBC27E6B1755B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Combat Mission: Battle for Normandy достоверно воссоздает о
 ```bash
 magnet:?xt=urn:btih:602B63FBCED20C2962BD67F83FCAF57997C6D6AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Wolcen: Lords of Mayhem (2020) [Ru/Multi] (1.1.7.16/dlc) Repack Wanterlude
 magnet:?xt=urn:btih:2D8107C4950E9A3DC5BE92E2C6652CDB7D387AD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Prototype (2009) [Ru/Multi] (1.0.0.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:8713C20AD3A7E67A6DEB27160B86940BBF2E3B2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Perennial Order - это 2D-игра в жанре растительного у
 magnet:?xt=urn:btih:F757FE7802E05BE0D03FD5D3C9C890E7CF74BC01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Spiral - это сюжетная игра от третьего лица, в к�
 ```bash
 magnet:?xt=urn:btih:5C5A1143DA11F4EA3254A964AADCA2D9212BC58C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Broforce (2015) [Multi] (3148/dlc) License GOG
 magnet:?xt=urn:btih:D964D4D0A9F62105950231B8FC6EEE14A903F4B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Footgun: Underground (2024) [Ru/Multi] (1.0.1.0e) License GOG
 ```bash
 magnet:?xt=urn:btih:FA2676646518CFD1A89CC9214CE68AEB8D90F2DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

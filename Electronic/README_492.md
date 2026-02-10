@@ -22,6 +22,8 @@ Vampyre Anvil:(   Читать дальше...   )Жанр: Industial Metal, Noi
 magnet:?xt=urn:btih:4112243D68525EFB992998D3EDC6A5A10BC1676D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -55,6 +57,8 @@ Emancipator - Dusk to Dawn (2013) [MP3|320 кб/с]<Downtempo, Trip-Hop>
 magnet:?xt=urn:btih:DB377DFE1769D60EAC75704A7ADF98E8D15EA23E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,6 +85,8 @@ VA - Valentine's Day House (2020) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:49BA0B9D6534DC2D287F0703962726E40A02139B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +121,8 @@ VA - Cafe Bossa Brazil Vol. 2 - Bossa Nova Lounge Compilation (2012) [MP3|320 к
 magnet:?xt=urn:btih:F6B27AE324AE5DADA3ED30E687507D03A4CCCE5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +156,8 @@ VA - Keep Movin: Late Nite House Grooves Vol.1 (2013) [MP3|320 кб/с]<Deep Hou
 magnet:?xt=urn:btih:DDB62355CECF739A10FB59506581210D3BE33F86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +185,8 @@ VA - Winter Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:CE5EF5FF04B410638A51062B84759CB2C6B8DC8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +213,8 @@ Alphaville - Salvation (1997) Reissue 2000, Metropolis Records [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:FD27FB51CD789F28C36903233BA671F0679C6271
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +249,8 @@ CD1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +278,8 @@ Space Project - The Return Of Space Raiders (2008) [FLAC|Lossless|image + .cue] 
 magnet:?xt=urn:btih:DAD137E8949C4CACFDAFD5DB94DF784F5A55C695
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +305,8 @@ Martin Roth - Beautiful Life / Make Love To Me Baby (2012) [FLAC|Lossless]<Deep 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +331,8 @@ Full Tilt - Take Me Away (2012) [FLAC|Lossless]<Progressive House>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +361,8 @@ Lawrence - Jill (2009) [FLAC|Lossless]<Deep House>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +387,8 @@ Jamie Stevens - The Night Before (2003) [FLAC|Lossless]<Progressive House, Progr
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +423,8 @@ VA - Zirkus Zirkus Vol.1: Elektronische Tanzmusik (2013) [MP3|320 кб/с]<House
 magnet:?xt=urn:btih:AE8926424D5D1911E00F08D4C03AA97233B9B5CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +458,8 @@ VA - Wave of Trance Vol.1 (2013) [MP3|320 кб/с]<Uplifting Trance>
 magnet:?xt=urn:btih:52E52BF0AAB996B902B979920D22697D156131D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +487,8 @@ James Holden - Discography 24 Releases (2000-2019) [FLAC|Lossless|tracks+.cue, t
 magnet:?xt=urn:btih:9E02ED3A3952FE06FEF3C91607B73EAC26543957
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +515,8 @@ VA - Ultimate Deep House Selection (The Grand Rhythms) (2020) [MP3|320 Kbps] <Da
 ```bash
 magnet:?xt=urn:btih:4D066F3E61F390C299DF8D76C99F2C589A7DE10C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +547,8 @@ Mario Basanov - Journey (2012) [FLAC|Lossless]<House, Deep House, Disco>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +577,8 @@ Jody Wisternoff - 4 Singles (2012) [FLAC|Lossless]<Progressive House, House, Dee
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +605,8 @@ Gioli & Assia - Night Experience (2018) [FLAC|Lossless|WEB-DL|tracks] <EDM, Prog
 ```bash
 magnet:?xt=urn:btih:263FDA140CAB2E561C24793D738D6D5A29DEC0A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +635,8 @@ Chromatics - Closer to Grey (2019) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:E8E6EFD74C2F4928B2F495D9DBA4B6FC3E682CA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +663,8 @@ VA - Warm Yourself Lounge (Chillout Your Mind) (2020) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:A34C7F6C4EE6E906F5225585E1F721E1AA386F0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +693,8 @@ The Midnight - The Midnight Remixed 02 (2019) [FLAC|Lossless|WEB-DL|tracks] <Dee
 magnet:?xt=urn:btih:CE840FFF2C7CEA3848C1AB488B4D1A858F7D2D2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -675,6 +721,8 @@ Morcheeba Productions - Cool Your Soul (2019) [FLAC|Lossless|WEB-DL|tracks] <Tri
 ```bash
 magnet:?xt=urn:btih:F914A86DF157A5FA30B1ECA68F6657910CF7F270
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -709,6 +757,8 @@ CD1
 magnet:?xt=urn:btih:523CD7001B2243E96F0F1087798CFC6B1498095D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -733,6 +783,8 @@ Answer42 - Shoreline / Tucano (2010) [FLAC|Lossless]<Progressive House>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

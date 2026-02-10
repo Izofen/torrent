@@ -28,6 +28,8 @@ VA - Водила, трогай! (2012) [MP3|256 кб/с]<Шансон>
 magnet:?xt=urn:btih:2ACFBF318FA72DB39D63117918DD57BE989CD571
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ VA - Последние новинки в мире музыки от Vanovlad 50
 ```bash
 magnet:?xt=urn:btih:9B646F137C13C0192F73D49BEE2627BCA6563DF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ Disc 1
 magnet:?xt=urn:btih:B4A872124A3E92F1E1763358700C5EC2FE1BB90F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +132,8 @@ VA - Музыка для хорошей компании Vol .2 (2012) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:F4991AEEEE6133AF70BEA5E869969679359ADB12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +168,8 @@ VA - Инструментальная музыка (2012) vol. № 45 [MP3|320 �
 magnet:?xt=urn:btih:0BD32EA11D532784AE514F833AA9DDF5E5F91901
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +193,8 @@ VA - Инструментальная музыка (2012) vol. № 44 [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:36F33D3E7A0C34C280AA00C1281BB651754FB519
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +229,8 @@ VA - Летний Союз Новинок 50\50 (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:1E9FAD8AF793519D8A487B09484AE02729EE80F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +257,8 @@ VA - Рок в Авто (2012) [MP3|160-320 кб/с]<Heavy Metal , Hard Rock , G
 ```bash
 magnet:?xt=urn:btih:3ECC6580AA6B9B54AF411DAE9B5A62284E22433C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +293,8 @@ VA - Лирика. Зарубежные Медляки - 1 (2012) [MP3|320 кб/
 magnet:?xt=urn:btih:E8D197CF69D7C316E55C4E255D8C2F738923B052
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +327,8 @@ magnet:?xt=urn:btih:E8D197CF69D7C316E55C4E255D8C2F738923B052
 ```bash
 magnet:?xt=urn:btih:81120722E3BCF2467899EA64158C2B1E2FA2EFFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +363,8 @@ VA - Avto Club Май Vol.5 (2012) [MP3|320 кб/с]<Club>
 magnet:?xt=urn:btih:18FD07E25C7B05FFC9816B290367D272AB614D9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +397,8 @@ VA - Trance Maniacs Party: Uplifting Breeze #38 (17.04.2012) [MP3|320 кб/с]<T
 ```bash
 magnet:?xt=urn:btih:CEA1BE8F4FD511FFD314601D9A9C8C7C5FF9B945
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +433,8 @@ VA - Клубный драйвовый музон (2012) [MP3|224-256 кб/с]<D
 magnet:?xt=urn:btih:A00FAD92589B9256E126CAF96EA9A7A57685EDB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +467,8 @@ VA - Клубные Новинки Vol.80 from AGR (2012) [MP3|320 кб/с]<Club
 ```bash
 magnet:?xt=urn:btih:E11FB274270E0323C65EBBEF3F6C5CADB56049BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +503,8 @@ VA - Ministry of Sound: Louder! (2012) [MP3|320 кб/с]<Dubstep, Drum & Bass, H
 magnet:?xt=urn:btih:34CB9CE90F90C610D3534429C6A8A6C31684DC34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +537,8 @@ VA - Сборник тяжёлых песен 9 (2012) [MP3|128-320 кб/с]<Met
 ```bash
 magnet:?xt=urn:btih:A11ABD909811B190D81B47B49E47CAB3688534C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +573,8 @@ VA - Музыка для хорошей компании Vol 3 (2012) [MP3|256 �
 magnet:?xt=urn:btih:D3866F78249F2A1D5B76F1C0AC7BAA2BDECC75B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +601,8 @@ VA - Blues by Can Soulful Blues Ballad Favorites Collection (2025) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:4DADDD9E8F977C3A38933DC104958D21E25415BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +631,8 @@ Romantic Dreams - Favorites Collection Part 7 (2025) [MP3|320 Kbps] <Italodisco,
 magnet:?xt=urn:btih:3021706E7A14603F2FA0522D49211EA67CBC3733
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +660,8 @@ Jumanov - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:6717AA3B6EAE289CD977A0A0E38C23B3592644CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +688,8 @@ VA - No name compilation electronic vocal (2025) [MP3|320 Kbps] <Electronic, Voc
 ```bash
 magnet:?xt=urn:btih:4204D453BE54E51B3254B33B9391F6E42457BD5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -682,6 +724,8 @@ VA - Avto Club Май Vol.6 (2012) [MP3|320 кб/с]<Club>
 magnet:?xt=urn:btih:8C42B065996B6A853588672714E3E6734E8566F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -714,6 +758,8 @@ VA - Energy Super Dance Vol.7 (2012) [MP3|320 кб/с]<Electro-House, Trance, Da
 ```bash
 magnet:?xt=urn:btih:24A24E748E5EF7F3B33345BB971E5E96F139298C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -748,6 +794,8 @@ VA - Зарубежные Новинки Vol.51 from AGR (2012) [MP3|320 кб/с
 magnet:?xt=urn:btih:25EB64AF90FAB72408CC3B45BA2ED40FD2590E51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -775,6 +823,8 @@ VA - Shazam Хит-парад Top 100 Russia 09.05.2023 (2023) [MP3|256-320 Kbps
 magnet:?xt=urn:btih:54D5D4A844C168A8FA412272F6E472197680DC5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -801,6 +851,8 @@ VA - Remix NNM 6 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:64E936AF3BF04CB6977FD03D847DE2C5DB8168DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

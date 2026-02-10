@@ -1,3 +1,29 @@
+###  Публикация: 1440713   (1038138) от 19.01.2021
+
+МиниМакс (Приключения чокнутого профессора) (2020) WEB-DL [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой и невероятно талантливый ученый Максим Минаев, который стоит на пороге грандиозного открытия, сулящего ему Нобелевскую премию. В погоне за славой и наградой Максим проводит рискованный эксперимент на самом себе и уменьшается до размеров обычной пробирки. Оказавшись в сложной ситуации, главный герой понимает, что остался один на один со своими проблемами – (   Читать дальше...   )Производство: Россия / Интерфест, Реал-ДакотаЖанр: Комедия, фантастикаРежиссер: Олег АсадулинАктеры: Пётр Фёдоров, Артем Фадеев, Марк Богатырев, Женя Малахова, Ирина Розанова, Юрий Стоянов, Ян Цапник, Ирина Медведева, Платон Каменев, Иван ТитяевПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70D51FF54246151FF3DBD87338A4C3630606673C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440707   (1038145) от 19.01.2021
 
 Реальные пацаны против зомби (2020) WEB-DL [H.264/720p-LQ]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:29533A5B2FA57D26800AEA1661803CF727FECF53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:29533A5B2FA57D26800AEA1661803CF727FECF53
 magnet:?xt=urn:btih:3443E68419B2E61843243A633F4989CB4771A271
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:3443E68419B2E61843243A633F4989CB4771A271
 ```bash
 magnet:?xt=urn:btih:4FB9AEAB997DBD094BDCE8EEC0FDE1E0B3C61D01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:4FB9AEAB997DBD094BDCE8EEC0FDE1E0B3C61D01
 magnet:?xt=urn:btih:5F4BA59E2BD9D208326837BD574DE69EB1D2FF71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:5F4BA59E2BD9D208326837BD574DE69EB1D2FF71
 ```bash
 magnet:?xt=urn:btih:B4C88735C1A4C58A065C16F81EF55F03F4899FE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:B4C88735C1A4C58A065C16F81EF55F03F4899FE8
 magnet:?xt=urn:btih:DEF392CE15A3C5E0E336E584B441F88ED342A94E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:DEF392CE15A3C5E0E336E584B441F88ED342A94E
 ```bash
 magnet:?xt=urn:btih:06C0684B66719A0EED9E9BD1F03E410EEE486477
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:06C0684B66719A0EED9E9BD1F03E410EEE486477
 magnet:?xt=urn:btih:3D4C34AD6CE25B43CCB43EDF94A17E36FFFF03C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:3D4C34AD6CE25B43CCB43EDF94A17E36FFFF03C4
 ```bash
 magnet:?xt=urn:btih:1251B488E99AC768AC45BD2FB6BAF232038FD31E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:1251B488E99AC768AC45BD2FB6BAF232038FD31E
 magnet:?xt=urn:btih:57AB47198202255F08CD81D2BFA5587ACFEDCA8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:57AB47198202255F08CD81D2BFA5587ACFEDCA8F
 ```bash
 magnet:?xt=urn:btih:7531CE77D7A8CDA5E7002E62C22FDBDAA96B9696
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:7531CE77D7A8CDA5E7002E62C22FDBDAA96B9696
 magnet:?xt=urn:btih:32A043A8BADDB4F5AAE8AE05DF95B1D36B80A43A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +356,8 @@ magnet:?xt=urn:btih:32A043A8BADDB4F5AAE8AE05DF95B1D36B80A43A
 ```bash
 magnet:?xt=urn:btih:E363E8D2379EF0DCB93DDBA3070F8FC8871FCFE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:E363E8D2379EF0DCB93DDBA3070F8FC8871FCFE1
 magnet:?xt=urn:btih:A09C41788AE5CBBB2B5AB36AB01A9E8FD78F11C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +408,8 @@ magnet:?xt=urn:btih:A09C41788AE5CBBB2B5AB36AB01A9E8FD78F11C8
 ```bash
 magnet:?xt=urn:btih:6DEFEC4501B70D4DB16DAC9E02B34FEA6B3279CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:6DEFEC4501B70D4DB16DAC9E02B34FEA6B3279CB
 magnet:?xt=urn:btih:94CFB1B86C46E9A9D54F30D69CE8A8179C277ED4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +460,8 @@ magnet:?xt=urn:btih:94CFB1B86C46E9A9D54F30D69CE8A8179C277ED4
 ```bash
 magnet:?xt=urn:btih:A0AE48F4A39E2332379C142649D4F83532E1415F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +487,8 @@ magnet:?xt=urn:btih:A0AE48F4A39E2332379C142649D4F83532E1415F
 magnet:?xt=urn:btih:F054D68C19C433B7D712DA7395837E67FD365DE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +512,8 @@ magnet:?xt=urn:btih:F054D68C19C433B7D712DA7395837E67FD365DE7
 ```bash
 magnet:?xt=urn:btih:6092A4C315DF68687A3B713D02B49143AF9895C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +539,8 @@ magnet:?xt=urn:btih:6092A4C315DF68687A3B713D02B49143AF9895C7
 magnet:?xt=urn:btih:12125C22A2112AC6D45AF6D3131E791BA89D7F93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +564,8 @@ magnet:?xt=urn:btih:12125C22A2112AC6D45AF6D3131E791BA89D7F93
 ```bash
 magnet:?xt=urn:btih:840A62D9935584E78DE5D0B6F6B3793D28928B24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +591,8 @@ magnet:?xt=urn:btih:840A62D9935584E78DE5D0B6F6B3793D28928B24
 magnet:?xt=urn:btih:FB6CB0D4DCBD6A7846DF2653F571B02DDE4898AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +616,8 @@ magnet:?xt=urn:btih:FB6CB0D4DCBD6A7846DF2653F571B02DDE4898AD
 ```bash
 magnet:?xt=urn:btih:0E8D3C992D3C867873EEC6AE56ECDFEFFA9BC48B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +643,8 @@ magnet:?xt=urn:btih:0E8D3C992D3C867873EEC6AE56ECDFEFFA9BC48B
 magnet:?xt=urn:btih:C0CBB697DCF1E6986D2D342D42832BA0A4000776
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,29 +669,7 @@ magnet:?xt=urn:btih:C0CBB697DCF1E6986D2D342D42832BA0A4000776
 magnet:?xt=urn:btih:6568051AD115210E6DB8F52E586D24456633E108
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596352   (1041572) от 10.02.2023
-
-...и будет дочь (2021) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девушка, город, кино, смерть отца, долгий путь на похороны... Теряя тех, кто близок и дорог, живя словно на грани между реальностью и снами, она находит сама себя и обретает желание жить дальше.Производство: Россия / Продюсерский центр ДЖАНЖанр: драмаРежиссер: Сергей Кудрявцев при участии Константина Рассолова, Адхама ХамдамоваАктеры: Елена Плужникова, Ольга Шалимова, Анастасия Гатилова, Ирина Гавра, Леонид Ардо, Константин Спичкин, Станислав Новиков, Галина Агафонова, Алиса Агафонова, Сергей КудрявцевСубтитры: отсутствуютПродолжительность: 01:10:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:022C068000D6974D43ABC784311542D4CCDCD466
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:90F695C0B09BE05649F9A21FD76688FAE2685CE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:90F695C0B09BE05649F9A21FD76688FAE2685CE6
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:90F695C0B09BE05649F9A21FD76688FAE2685CE6
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:90F695C0B09BE05649F9A21FD76688FAE2685CE6
 magnet:?xt=urn:btih:8A6F58B74C32541A403C9C965FCC012C850F7039
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:8A6F58B74C32541A403C9C965FCC012C850F7039
 ```bash
 magnet:?xt=urn:btih:FC920517F0C050CD4FB25E38FBB7E5755E3C5F29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:FC920517F0C050CD4FB25E38FBB7E5755E3C5F29
 magnet:?xt=urn:btih:CF3B031EC0422B645E8C38C768C6D5371B885D65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:CF3B031EC0422B645E8C38C768C6D5371B885D65
 ```bash
 magnet:?xt=urn:btih:5B3E75C1813DA574481884380D5ECDA1426F5C2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Dragon's Lair Трилогия [En] (RePack) 1991 | Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Dragon's Lair Трилогия [En] (RePack) 1991 | Pilotus
 magnet:?xt=urn:btih:97A773CD88F4F3328EB525EB12B19362F133F47E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ XVII век. Два брата близнеца, Ферранте и Иппол�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ Paradise Lost - Tragic Idol (2012) Japanese Edition [FLAC|Lossless]<Gothic Metal
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ Paradise Lost - Tragic Idol (2012) Japanese Edition [FLAC|Lossless]<Gothic Metal
 ```bash
 magnet:?xt=urn:btih:2D3719947ED8A97E3424997384E65CABB579C979
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:2D3719947ED8A97E3424997384E65CABB579C979
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ Marilyn Manson - Born Villain (2012) [MP3|320 кб/с]<Industrial Metal>
 magnet:?xt=urn:btih:C3483DC06E44A76FAC801AAFC6C3EFA666C13001
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:C3483DC06E44A76FAC801AAFC6C3EFA666C13001
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +429,8 @@ Cовременная версия одноименного фильма 1939 г
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ Linux Mint Debian Edition (LMDE) является альтернативным �
 magnet:?xt=urn:btih:429AB5892DE6873D50F8402D24B529983B44F1ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:429AB5892DE6873D50F8402D24B529983B44F1ED
 ```bash
 magnet:?xt=urn:btih:F2F9222CD72887FBF589C6503465AF0CA1DD5EA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +510,8 @@ TerraTime v2.7.3 - Виртуальная Земля с часовыми поя�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ TerraTime v2.7.3 - Виртуальная Земля с часовыми поя�
 ```bash
 magnet:?xt=urn:btih:324E5B53B382E609E96860D31C4A6A6572F15AEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +570,8 @@ Spyro Gyra - 5 Albums (2001 - 2007) [DTS 5.1|(SACD-Rip) tracks]<Jazz fusion, Smo
 ```bash
 magnet:?xt=urn:btih:09A22716119188FED4A5533CA3BF7E67A564A519
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +608,8 @@ VA - Песни и Музыка Для Малышей (2008) [MP3|192 kbps]<Де
 magnet:?xt=urn:btih:2E8D87FC074E682A29AB70B90AFB3EB18551BA5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +634,8 @@ magnet:?xt=urn:btih:2E8D87FC074E682A29AB70B90AFB3EB18551BA5D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +666,8 @@ magnet:?xt=urn:btih:2E8D87FC074E682A29AB70B90AFB3EB18551BA5D
 magnet:?xt=urn:btih:E12FA1EB235452889F0294ABB31A0034010EAB77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +692,8 @@ magnet:?xt=urn:btih:E12FA1EB235452889F0294ABB31A0034010EAB77
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +717,8 @@ magnet:?xt=urn:btih:E12FA1EB235452889F0294ABB31A0034010EAB77
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

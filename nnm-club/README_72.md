@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C65943847F6A268CC45F6CA4A7509ED596C7328A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Jidouhanbaiki ni Umarekawatta Ore wa Meikyuu o Samayou 2nd Season | Orejihanki |
 ```bash
 magnet:?xt=urn:btih:714ACBBBEC29A4B5004C8CA9B088406003EEA14A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:714ACBBBEC29A4B5004C8CA9B088406003EEA14A
 magnet:?xt=urn:btih:3AD2B4F068B96B2BB248DB12E463061CBF828276
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:3AD2B4F068B96B2BB248DB12E463061CBF828276
 ```bash
 magnet:?xt=urn:btih:6C791F39504EC97E01CFE9B438FC8868856864BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:6C791F39504EC97E01CFE9B438FC8868856864BF
 magnet:?xt=urn:btih:A9A4F81557CE10C342AA24717976FFB7E25CC399
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:A9A4F81557CE10C342AA24717976FFB7E25CC399
 ```bash
 magnet:?xt=urn:btih:941172FD3FF17F365A28FABB033C372E838AF0A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Tor Browser Bundle 14.5.7 Portable [Multi/Ru]
 magnet:?xt=urn:btih:1472065F921F8C8A5EE1DFDD53ED5F6F89C65A37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:1472065F921F8C8A5EE1DFDD53ED5F6F89C65A37
 ```bash
 magnet:?xt=urn:btih:5FBA89385EDF2EAF210CC68CA3261F7AAC1AA857
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:5FBA89385EDF2EAF210CC68CA3261F7AAC1AA857
 magnet:?xt=urn:btih:844500BD065F869177EB21568FE4D1C309C56EC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Mortal Sin - хаотичная и кровавая игра в жанре rogue
 ```bash
 magnet:?xt=urn:btih:FD6A60A4CA1994984CCCB135F25BB13D01F63E77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Zutaboro Reijou wa Ane no Moto Konyakusha ni Dekiai Sareru / Betrothed to My Sis
 magnet:?xt=urn:btih:0EFF8149B53C3038DF64112E8B8E7C5DFC1EB05E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:2D000A5C0C7CD29153BDF384616D23A1B61065A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:2D000A5C0C7CD29153BDF384616D23A1B61065A7
 ```bash
 magnet:?xt=urn:btih:45F978523C8B2A3D49633EF212E713174FC4319C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:45F978523C8B2A3D49633EF212E713174FC4319C
 magnet:?xt=urn:btih:20F7B72C6622BBAD221D2305D1036253C5109963
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2013) [Ru/Multi] (
 ```bash
 magnet:?xt=urn:btih:079C21117DBB3A6AE535A6E4BEB1E3BB0AB4B430
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:079C21117DBB3A6AE535A6E4BEB1E3BB0AB4B430
 magnet:?xt=urn:btih:49F4A66ADC79679C908C0A81287D51A958428196
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0/dlc) Repack dixen1
 ```bash
 magnet:?xt=urn:btih:6BC2CFC0921D6F29C5478677B2826D808F7C5ADF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ Kingdom Come: Deliverance II - захватывающий сюжетный ро�
 magnet:?xt=urn:btih:AFBB22740A340FE9AE8635F463D520F2AF467D96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.10.0/dlc) Repack Wante
 ```bash
 magnet:?xt=urn:btih:7A0976676064DB267EB66E7375715B35DB6A157C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:7A0976676064DB267EB66E7375715B35DB6A157C
 magnet:?xt=urn:btih:A6F1A5B7513C4BCBEC12227AFB0A37D9C74A4D48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Kingdom Come: Deliverance II - захватывающий сюжетный ро�
 ```bash
 magnet:?xt=urn:btih:B509D8F7217D1847378E1BBD735F5701612FD3D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:B509D8F7217D1847378E1BBD735F5701612FD3D2
 magnet:?xt=urn:btih:C57C3A3311374981AD4D352C0AC7430AE185883E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Wingspan - стратегическая карточная игра про пт�
 ```bash
 magnet:?xt=urn:btih:6B7F2B7B9CCB5695A471D2BD648BF49D4D58CA14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:6B7F2B7B9CCB5695A471D2BD648BF49D4D58CA14
 magnet:?xt=urn:btih:1FDCCC1D91DC9461A1C8304A1F934E9644061843
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:1FDCCC1D91DC9461A1C8304A1F934E9644061843
 magnet:?xt=urn:btih:017F3EDFB805053060AF497845FA8D9F97589085
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:017F3EDFB805053060AF497845FA8D9F97589085
 ```bash
 magnet:?xt=urn:btih:918971B719339A59BC2E7E3AA414B565DEC2D90E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1275742   (788531) от 15.01.2019
+
+Krause Publications | 2019 Standard Catalog of World Coins. 1901-2000 46th Edition (2018) [PDF] [En]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стандартный каталог монет мира, с 1901 г. по 2000, 46-е издание (2019). Это копия хорошо известного официального каталога Krause. Есть возможность увеличения изображений монет и поиска по тексту. Квалифицированный и авторитетный справочник, в котором представляет цены, изображения и характеристики монет. Информация удобно упорядочена по странам и выпускам монет, (   Читать дальше...   )Жанр: Нумизматический каталогФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FDE2570BC0A0B64CEB38907AF34886BFA975FAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275759   (788541) от 15.01.2019
 
 Krause Publications | 2016 Standard Catalog of World Coins. 1801-1900 8th Edition (2015) [PDF] [En]
@@ -18,6 +44,8 @@ Krause Publications | 2016 Standard Catalog of World Coins. 1801-1900 8th Editio
 ```bash
 magnet:?xt=urn:btih:939755ADB6C27B0E3E70E1A26D0C681206A44AFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ Krause Publications | 2017 Standard Catalog of World Coins. 1701-1800 7th Editio
 magnet:?xt=urn:btih:94CCDC97C9A9189E97E79C1B925AD8D5F8FD8349
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:94CCDC97C9A9189E97E79C1B925AD8D5F8FD8349
 ```bash
 magnet:?xt=urn:btih:0FA98C66532EDBEE05CF0AFC7996C4949BB7056E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:0FA98C66532EDBEE05CF0AFC7996C4949BB7056E
 magnet:?xt=urn:btih:4756E8AC054AF97789B7922782C1DE80703C5F2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:4756E8AC054AF97789B7922782C1DE80703C5F2E
 magnet:?xt=urn:btih:1D62DA2ED3D6C0EF06E703DD79649A7B501B8A31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:1D62DA2ED3D6C0EF06E703DD79649A7B501B8A31
 ```bash
 magnet:?xt=urn:btih:92DF27C05443D1A679AAD332DFFEA928D00737FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:92DF27C05443D1A679AAD332DFFEA928D00737FA
 magnet:?xt=urn:btih:568076EA729D764F5DD39B1FF43479D14FA2E6C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:568076EA729D764F5DD39B1FF43479D14FA2E6C9
 magnet:?xt=urn:btih:C383BEEC0558C5BA9395B2973FEFD6753CFB03F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:C383BEEC0558C5BA9395B2973FEFD6753CFB03F1
 ```bash
 magnet:?xt=urn:btih:502A92DBFCC6BC5CB5929A640AA805FCDF9CABD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:502A92DBFCC6BC5CB5929A640AA805FCDF9CABD8
 magnet:?xt=urn:btih:AB63A6A2CCD8FE21958272FBBF1FE368C1AEC602
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:AB63A6A2CCD8FE21958272FBBF1FE368C1AEC602
 magnet:?xt=urn:btih:AE32926C2526D14191E93DA45B9D2EE851DAC29D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:AE32926C2526D14191E93DA45B9D2EE851DAC29D
 ```bash
 magnet:?xt=urn:btih:8D87B5F44951B01345FE98B716D77CFAB173F84F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:8D87B5F44951B01345FE98B716D77CFAB173F84F
 magnet:?xt=urn:btih:4274B3BFF962F8F0D87F6ABB15DE62F93806C829
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +392,8 @@ magnet:?xt=urn:btih:4274B3BFF962F8F0D87F6ABB15DE62F93806C829
 magnet:?xt=urn:btih:952F7AC34F774449D8121F29AD38D63CEC517AC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:952F7AC34F774449D8121F29AD38D63CEC517AC1
 ```bash
 magnet:?xt=urn:btih:8255003DCDD03AACB2AEDB46615B282A7539BF6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:8255003DCDD03AACB2AEDB46615B282A7539BF6F
 magnet:?xt=urn:btih:ADB28884AE3EDC7BC22198E918FB79904E705E09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:ADB28884AE3EDC7BC22198E918FB79904E705E09
 magnet:?xt=urn:btih:93C3F4B8994BE2172E425BA9531E7B5D8D6B419D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:93C3F4B8994BE2172E425BA9531E7B5D8D6B419D
 ```bash
 magnet:?xt=urn:btih:4E1E8CBE617FA3C44D59F2745B9F4ED3721D8C34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +524,8 @@ magnet:?xt=urn:btih:4E1E8CBE617FA3C44D59F2745B9F4ED3721D8C34
 magnet:?xt=urn:btih:09D1823B3BF60595D86D1495A61B10F2C888C4B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +552,8 @@ magnet:?xt=urn:btih:09D1823B3BF60595D86D1495A61B10F2C888C4B7
 magnet:?xt=urn:btih:897724B57187788A7DA734A28804EB96CD5DC413
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +577,8 @@ magnet:?xt=urn:btih:897724B57187788A7DA734A28804EB96CD5DC413
 ```bash
 magnet:?xt=urn:btih:B515CB8320F9B95E639AE73A638A5000038E526B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:B515CB8320F9B95E639AE73A638A5000038E526B
 magnet:?xt=urn:btih:6464F5601A702C96CF9317FE21127E4F9C58F055
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:6464F5601A702C96CF9317FE21127E4F9C58F055
 ```bash
 magnet:?xt=urn:btih:F4723FB7F882309E378C36B13CCAC95699CDBE62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:F4723FB7F882309E378C36B13CCAC95699CDBE62
 magnet:?xt=urn:btih:1AF2D2CD32CD4D53B550302FCAB1ACF3088BC7DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,31 +683,7 @@ magnet:?xt=urn:btih:1AF2D2CD32CD4D53B550302FCAB1ACF3088BC7DF
 magnet:?xt=urn:btih:1ED8C32699F4CA30BB13B95D76C511464BF03D76
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275685   (789900) от 12.01.2019
-
-А. М. Арго | Своими глазами. Книга воспоминаний (1965) [DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Абрам Маркович Арго — один из старейших советских поэтов-сатириков, мастер веселого и злого куплета, пародии. Он писал для театра, эстрады и цирка, художественной самодеятельности, переводил на русский язык классиков европейской поэзии и поэтов советских национальных республик.
-
-А. М. Арго встречался с выдающимися деятелями советской культуры и искусства, был очевидцем (   Читать дальше...   )Жанр: История, автобиография, поэзия, искусство, публицистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4823A350C193D665399925BA2A2F14D1C44F761
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

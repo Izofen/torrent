@@ -19,6 +19,8 @@ Tensei Kenja no Isekai Life: Daini no Shokugyou o Ete, Sekai Saikyou ni Narimash
 magnet:?xt=urn:btih:DF4904C3FC5E1D6D952B9A20FE601B2BD2CFE07F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Kimetsu no Yaiba: Yuukaku Hen | Demon Slayer: Entertainment District Arc | Ис�
 magnet:?xt=urn:btih:148F43712403DF2CDF4F426C8A274366A35C5A97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Machikado Mazoku 2-Choume | The Demon Girl Next Door 2 | Городская дь
 ```bash
 magnet:?xt=urn:btih:FFC9ADAB9B8DB11EB6BC9B092E5E25B52E6F1D22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Heike Monogatari | The Heike Story | Повесть о доме Тайра [2021
 magnet:?xt=urn:btih:30E7D0F1566AED0FD21BADF6F41423B499318882
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Masamune-kun no Revenge R | Masamune-kun's Revenge R | Месть Масамун
 ```bash
 magnet:?xt=urn:btih:E90F0BC8D58E426593711A3050C86B89705C5443
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Mononogatari (2023) | Malevolent Spirits (2023) | Истории нечисти 
 magnet:?xt=urn:btih:3798BD8F550A1D2368BD210296440D2578F54CAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Spy x Family | Семья шпиона [2022, TV, 12 из 25] BDRip 1080p raw
 ```bash
 magnet:?xt=urn:btih:4E9B729CFA41400B8024169EDA7C9C59086E207B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ RWBY: Hyousetsu Teikoku | RWBY: Ice Queendom | RWBY Ледяное короле�
 magnet:?xt=urn:btih:48E99B24FAF27A94C3F31526952E66CA274A6927
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Saihate no Paladin | The Faraway Paladin | Паладин издалека [ТВ
 ```bash
 magnet:?xt=urn:btih:9D850B1C83715BE4AA13D8BAAF63424AD4FA35C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Genjitsu no Yohane: Sunshine in the Mirror / Yohane the Parhelion: Sunshine in t
 magnet:?xt=urn:btih:3D195D1F0C92AB2B01D4C643657820CCCECBAA8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Liar Liar / Лжец Лжец [2023, TV, 12] WEBRip 720p raw
 magnet:?xt=urn:btih:19DA289FEC073B1ED955C5AF780746E6D9559EB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Ayaka | Ayaka: A Story of Bonds and Wounds | Аяка [2023, TV, 12 эп.] WEBRi
 ```bash
 magnet:?xt=urn:btih:E1422573D8A4F1809DB13EFC79551FDD61DAEA81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ P.S. 4 спешела это по сути ещё 4 серии. Дело в то
 magnet:?xt=urn:btih:7C51EFCF3C22F195EE5F2D5D71A39F26F1BABB80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Alien Nine | Чужой 9 [2001, OVA, 4 эп.] DVDRip 480p 10-bit raw
 ```bash
 magnet:?xt=urn:btih:F53365CD1D36DE97288A41B2656D52548052B4AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ Hana yori Dango | Boys Over Flowers | Цветочки после ягодок [
 magnet:?xt=urn:btih:2397A3C669C99BECD4E6355B28F1EC50443B872C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ Gekijouban Hana yori Dango | Цветочки после ягодок (филь�
 magnet:?xt=urn:btih:36158497E799A5E63BB034B25CB46AEF6725D35D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ Momoiro Sisters | Розовые сёстры [1998, TV, 23 + SP] DVDRip 480p 10
 magnet:?xt=urn:btih:A7013C9BEC8F99DCDB1E67DC9265FEF7B262B943
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ Kingdom 4 | Царство [ТВ-4] [2022, TV, 26 из 26] WEBRip 1080p raw
 ```bash
 magnet:?xt=urn:btih:8117034A780F6B1586AB1FF9A7A5EEB4FF10E700
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ Kimi ni Todoke 2nd Season | Дотянуться до тебя [ТВ-2] [2011, T
 magnet:?xt=urn:btih:C28439D20C073560D80B09EC1375EF9154141860
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ Exception | Ошибка [2022, Web, 8 эп.] WEB-DL 1080p raw+eng
 ```bash
 magnet:?xt=urn:btih:F2FFDE999FA77FB9AFBCC438F3497A9DF920B914
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ Saint Seiya | Рыцари Зодиака [1986, TV, 114 эп.] BDRip 1080p raw
 magnet:?xt=urn:btih:1650F6DFCC318295D68C0986417B412F25932E86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ Kaguya-sama wa Kokurasetai? Tensai-tachi no Ren`ai Zunousen | Kaguya-sama: Love 
 magnet:?xt=urn:btih:A3A416FF20F9D2FA56FED8EE9D7F39BFF42A88D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen | Asc
 ```bash
 magnet:?xt=urn:btih:E589E601134F143C6CE62548D0733405DBF8F3D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ Fumetsu no Anata e | To Your Eternity | Для тебя, Бессмертный 
 magnet:?xt=urn:btih:7BEDEACE35EED0E90CFB120E9EE9DEAA2F278BFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ Eiga Yuru Camp | Лагерь на свежем воздухе (фильм) [202
 magnet:?xt=urn:btih:36D6CECD3DBA1F6F76608EAE44DEDFD8DFB26314
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Bastard!! Ankoku no Hakaishin (2022) | Bastard!! Heavy Metal, Dark Fantasy | У�
 ```bash
 magnet:?xt=urn:btih:A8AFD615F2F8099C95CA6A2FB4B0B219C6928A1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ A3 淋しい熱帯魚 - Glowing tropical fish (Night Tempo Showa Groove Mix)(   
 magnet:?xt=urn:btih:93AF4075B841A08C23BD8ECE29C0CE1AF42FD07E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:93AF4075B841A08C23BD8ECE29C0CE1AF42FD07E
 ```bash
 magnet:?xt=urn:btih:BEB433760392E293E3C584322B3C59BE90C0E2A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Ten Sharp - Under The Water-Line (1991) 1st Holland Press [APE|Lossless|image + 
 magnet:?xt=urn:btih:35CB3A50B9DCB45FA1E91302B250FE96E3C49D32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Sildetas — элегантный шрифт с высокой контраст�
 ```bash
 magnet:?xt=urn:btih:DF1561BD25D80C4AB97B3E2EE289A019BDC5F5F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Robin Trower - Come And Find Me (2025) [FLAC|Lossless|tracks + .cue] <Rock, Blue
 magnet:?xt=urn:btih:81CFA03D2EFFFB47B5EDB35893BAD567C458027C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:81CFA03D2EFFFB47B5EDB35893BAD567C458027C
 ```bash
 magnet:?xt=urn:btih:FC5AB8C162AEF7AA08591F1D21343061ADF3989E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:FC5AB8C162AEF7AA08591F1D21343061ADF3989E
 magnet:?xt=urn:btih:58079CC5924BF216135D5A07546340A47F8CA045
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:58079CC5924BF216135D5A07546340A47F8CA045
 ```bash
 magnet:?xt=urn:btih:58478F3D16AEB4197BD4BAC106C23009EF786D4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:58478F3D16AEB4197BD4BAC106C23009EF786D4A
 magnet:?xt=urn:btih:70EB5345376F5B90CB94775AC88FDBD6F557C29D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:70EB5345376F5B90CB94775AC88FDBD6F557C29D
 ```bash
 magnet:?xt=urn:btih:63D97C55E29898F068265352CAA6E0B07D5455F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:63D97C55E29898F068265352CAA6E0B07D5455F4
 magnet:?xt=urn:btih:500F56ABBE4A36B207B00C1EA0CE487BE935E1FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:500F56ABBE4A36B207B00C1EA0CE487BE935E1FA
 magnet:?xt=urn:btih:09861F8E98AD1205A278D7E388868C6528F29D6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:09861F8E98AD1205A278D7E388868C6528F29D6F
 ```bash
 magnet:?xt=urn:btih:2F16D803A7A5EF799FD01AF5C8BE97227D2076FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ CD1 - Woodland Rites:
 magnet:?xt=urn:btih:52D8FEBEF013511C3EB8F30C2073933FFF3F28D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ Daddy Longlegs & the Swamp Donkeys - Mud Bucket (2025) [FLAC 24/44.1|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:5548DF80EB3460BB10FB9289F340A8C1C58DB07E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ Buddy Reed & Th' Rip It Ups - Tough Enough (2025) [FLAC 24/48|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:FB6F7A45CB3723D970B3A238C035AA84174F4820
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:FB6F7A45CB3723D970B3A238C035AA84174F4820
 ```bash
 magnet:?xt=urn:btih:0913A0EC2CFD2616A8E674A0A5FE8AB0038BFB5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ In Theory - Retribution (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:9464F0BA57984C70D91F754EB865833B387F3FF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:9464F0BA57984C70D91F754EB865833B387F3FF1
 ```bash
 magnet:?xt=urn:btih:212C23CBEF925156FDD98177AFEDA686308E8995
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +535,8 @@ magnet:?xt=urn:btih:212C23CBEF925156FDD98177AFEDA686308E8995
 magnet:?xt=urn:btih:0A52C40D2A9B446F65D0CE63556941E3372A276C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:0A52C40D2A9B446F65D0CE63556941E3372A276C
 magnet:?xt=urn:btih:0023EDE3927FE4B03383937B70A004126065EEAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:0023EDE3927FE4B03383937B70A004126065EEAE
 ```bash
 magnet:?xt=urn:btih:EB19128BB9832003B221404DD8C0CE7930FA8B18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:EB19128BB9832003B221404DD8C0CE7930FA8B18
 ```bash
 magnet:?xt=urn:btih:0165BEE466EEAC4B44C10664954C6D07B908C844
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +644,8 @@ Zayden Fleet - Lone Star Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blu
 magnet:?xt=urn:btih:CD9ACEA6F615FC696049073A8750CDACD04C5A5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +669,8 @@ magnet:?xt=urn:btih:CD9ACEA6F615FC696049073A8750CDACD04C5A5D
 ```bash
 magnet:?xt=urn:btih:6B4CA9F36B606B78060E14A875636A287978174A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -648,6 +698,8 @@ In Theory - Retribution (2025) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:8555F49B76B4260054800E969B82474F769CD3F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

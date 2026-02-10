@@ -22,6 +22,8 @@ VA - Honey 3 - Dare to Dance (Original Motion Picture Soundtrack) (2016) [MP3|25
 magnet:?xt=urn:btih:F7DC59701D585233C79F955F368F39444D8A51E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Pirates of The Mississippi - Dream You (1993) [FLAC|Lossless|tracks + .cue] <cou
 ```bash
 magnet:?xt=urn:btih:07254E5E757E15209592F3BE5B24AD3ECD7223F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Stive Morgan - Flights In Dream (2016) [MP3|320 Kbps] <New Age, Electronic>
 magnet:?xt=urn:btih:0D511CACD621DB88FBE2F838B8ECACF260C4BF53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Artur Mena - Sabia Medicina (2013) [MP3|192 Kbps] <World: South American>
 ```bash
 magnet:?xt=urn:btih:D262544E6A28FF8D541F07E00A4C7B5FC7627541
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Pavlo & Remigio - Guitarradas (2015) Single [MP3|320 Kbps] <New Age, Flamenco, I
 magnet:?xt=urn:btih:D9B959777027E75229F9B4F79E85DB67F195C6B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Era - Arielle Dombasle By Era (2013) [FLAC|Lossless]<New Age>
 ```bash
 magnet:?xt=urn:btih:FD9535874F8810A7E2D90D4070BA6BF564E88529
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:FD9535874F8810A7E2D90D4070BA6BF564E88529
 magnet:?xt=urn:btih:3E8933060F16CB83C1A5D848B671DC63D4D060CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Casey Barnes - Live As One (2016) [MP3|320 Kbps] <Country Rock, Pop Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:62E5B2A44A6632C8A0B13A1E875C72AB8307F1D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Sun Kil Moon ‎ - I Also Want To Die In New Orleans (2019) 2CD [FLAC|Lossless|t
 magnet:?xt=urn:btih:CDBE75B6679AF06AF5D258EA118DDB877AB340F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Summer: The Donna Summer Musical (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop,
 ```bash
 magnet:?xt=urn:btih:CAA42EE4097535A9313EACCBA6C9E0968E20176E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ magnet:?xt=urn:btih:CAA42EE4097535A9313EACCBA6C9E0968E20176E
 magnet:?xt=urn:btih:22F4960AB074D82FA2AF69189866A601771F797F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Marchese - Joyful Peace (2018) [MP3|320 Kbps] <New age, Relax>
 ```bash
 magnet:?xt=urn:btih:35BD1A0B7824976D4704EF857E8F6AB4E4C3DC92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Aenigmatica - Sanctum (2016) [MP3|320 Kbps] <Ambient, New Age>
 magnet:?xt=urn:btih:B5AFE8332803B4D64557CAD5F20FF338637C22C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Courtney Marie Andrews - Honest Life (2016) [FLAC|Lossless|tracks] <Country, Ame
 ```bash
 magnet:?xt=urn:btih:2825629EFDA3A516C081FB09EDEA5B4A5692EF16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Liz Longley - Weightless (2016) [FLAC|Lossless|tracks] <Country, Alt Country>
 magnet:?xt=urn:btih:C981C55F1D31716CA4DFEE1E64014C042A3A575C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Nigel Stanford (John Stanford) - Discography (1999-2017) [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:C1AEFF98B64521A3EEBA49BEC6C952C488284CDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Nigel Stanford (John Stanford) - Discography (1999-2017) [MP3|320 Kbps] <Downtem
 magnet:?xt=urn:btih:DE99E2BEC1CD1A1705E14BB32A0962BF633EBBB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Shabala - Shabala (1998) [MP3|320 Kbps] <World, Tribal, Dance>
 ```bash
 magnet:?xt=urn:btih:319E61BF907F16EE9F4D1BE5C623F46FE63775DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ CD1: Pure & Simple
 magnet:?xt=urn:btih:06BAADA5F1D5286D1F809BDAA8DD3F18F031974D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ Andre Gagnon - Les Jours Tranquilles (1993) [FLAC|Lossless|tracks + .cue] <Instr
 ```bash
 magnet:?xt=urn:btih:901EEE9DD7FEADCCDC26B9C69E7FB52171E84855
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ Malin Andersson - Follow (2018) [MP3|320 Kbps] <Country>
 magnet:?xt=urn:btih:D7DBAD90D421B489B683CB3D775304A1B5D1E8E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ Kyle Dixon & Michael Stein - Stranger Things / Очень странные де�
 ```bash
 magnet:?xt=urn:btih:58F930AA31953797CE0AA5DB6D20B282BA17FCDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ VA - Rock of Ages (2012) [FLAC|Lossless|tracks + .cue] <Rock, Stage & Screen>
 magnet:?xt=urn:btih:C9AFC552A96D280503DA512518BC180CD5E7B781
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ Florida Georgia Line - Dig Your Roots (2016)[MP3|320 Kbps] <Country>
 ```bash
 magnet:?xt=urn:btih:AD88A5BD4398DEF34FDB254AF247FBAA3F6A54DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ Nick Murray & Roger Shah - Singularity (2016) [MP3|320 Kbps] <Soundtrack, Classi
 magnet:?xt=urn:btih:04205CA385B145EEAA41109D6F36ED973A08B33C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ Justin Moore - Kinda Don't Care (2016) Deluxe Version [MP3|320 Kbps] <Country>
 ```bash
 magnet:?xt=urn:btih:D64F614DFFD052D6D14ED70677E84009E6560687
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

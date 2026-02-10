@@ -1,3 +1,29 @@
+###  Публикация: 1504411   (812226) от 23.10.2021
+
+Главная дорога (23.10.2021) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зима близко, а значит, пора переобуваться! Снова начинается вечный спор – шипы или липучка? Противники шипованных покрышек считают их слишком шумными и бесполезными в городе, а вот для сторонников шипов безопасность важнее комфорта. В новом выпуске «Главной дороги» Андрей Федорцов и Денис Юченков проверили уровень шума от разных покрышек и выяснили, как количество (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:27:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A485CB4A8F64002A8457609407CC8A05D37F78A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504532   (812276) от 23.10.2021
 
 Феллини и духи / Fellini degli spiriti (2020) HDTVRip [H.264/1080p]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:C92ECBF4ACFE34805FDC785D80ED5DF284C564BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:C92ECBF4ACFE34805FDC785D80ED5DF284C564BA
 magnet:?xt=urn:btih:8E4031C5584DCF324606E2063E691FEBEBE1B70B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:8E4031C5584DCF324606E2063E691FEBEBE1B70B
 ```bash
 magnet:?xt=urn:btih:24823ECF1CCE5F6995C51E8AC5556343A2A2E6E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:24823ECF1CCE5F6995C51E8AC5556343A2A2E6E2
 magnet:?xt=urn:btih:BA46B81CEA3AFAD3388614871F3BC6A0A481EF19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:BA46B81CEA3AFAD3388614871F3BC6A0A481EF19
 magnet:?xt=urn:btih:7A0A57A48BFF87A387B13B5AA72B5AF595969234
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:7A0A57A48BFF87A387B13B5AA72B5AF595969234
 ```bash
 magnet:?xt=urn:btih:6B3DA3EF85C8997C4ABD20AC76BE2834576C8A95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +207,8 @@ magnet:?xt=urn:btih:6B3DA3EF85C8997C4ABD20AC76BE2834576C8A95
 magnet:?xt=urn:btih:8353F70594C52B3757C34E7615384E598842D70A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +235,8 @@ magnet:?xt=urn:btih:8353F70594C52B3757C34E7615384E598842D70A
 magnet:?xt=urn:btih:0B1F5775361A133CE9948E1B205DC31853B5BA38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:0B1F5775361A133CE9948E1B205DC31853B5BA38
 ```bash
 magnet:?xt=urn:btih:872BAB70EC4277AB6A149BCFB6CF3F16C1C061AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +288,8 @@ magnet:?xt=urn:btih:872BAB70EC4277AB6A149BCFB6CF3F16C1C061AA
 magnet:?xt=urn:btih:FF01351F33FF048F8CC8315F730C5A6A10999D90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +313,8 @@ magnet:?xt=urn:btih:FF01351F33FF048F8CC8315F730C5A6A10999D90
 ```bash
 magnet:?xt=urn:btih:E06A275C0E821047FC4FD9FA652A567711CA8ED9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +340,8 @@ magnet:?xt=urn:btih:E06A275C0E821047FC4FD9FA652A567711CA8ED9
 magnet:?xt=urn:btih:746915EE0A264C6DC318B95672C9D35E7C29EC92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:746915EE0A264C6DC318B95672C9D35E7C29EC92
 ```bash
 magnet:?xt=urn:btih:FF7FC4738DE6AD6869C6EA222B4D9909A208A240
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +392,8 @@ magnet:?xt=urn:btih:FF7FC4738DE6AD6869C6EA222B4D9909A208A240
 magnet:?xt=urn:btih:DC09965C5D86CB09C7D21BE6BBF8A14AA5EF0CE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:DC09965C5D86CB09C7D21BE6BBF8A14AA5EF0CE7
 ```bash
 magnet:?xt=urn:btih:033CE14BC59F95916621D7CA9482FEED9BF4AF73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:033CE14BC59F95916621D7CA9482FEED9BF4AF73
 magnet:?xt=urn:btih:044FF5CCAB7E35A07F54D6309A08DAE4BC028F7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:044FF5CCAB7E35A07F54D6309A08DAE4BC028F7C
 ```bash
 magnet:?xt=urn:btih:261C0B4FF07401AEA477DBC31B8B2C9FAA57F4EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:261C0B4FF07401AEA477DBC31B8B2C9FAA57F4EE
 magnet:?xt=urn:btih:150CD6D792E330E59B19C31A529649D25E9B650C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:150CD6D792E330E59B19C31A529649D25E9B650C
 ```bash
 magnet:?xt=urn:btih:1B7712E1206BACC53F1DF33594B452B1D4DFA88D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +549,8 @@ magnet:?xt=urn:btih:1B7712E1206BACC53F1DF33594B452B1D4DFA88D
 magnet:?xt=urn:btih:ECDABBC991556231062BFA6001A0BFC3CBFBC056
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +574,8 @@ magnet:?xt=urn:btih:ECDABBC991556231062BFA6001A0BFC3CBFBC056
 ```bash
 magnet:?xt=urn:btih:3611D937ECE2BDD2E5CCFEF6C331B39D0439AE75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:3611D937ECE2BDD2E5CCFEF6C331B39D0439AE75
 magnet:?xt=urn:btih:DF16AD326C6ACB0138ABE92F51BFE0BC945D0F54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:DF16AD326C6ACB0138ABE92F51BFE0BC945D0F54
 ```bash
 magnet:?xt=urn:btih:A2A28E46811A4508ABCDBAA059AA09FE55E173F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:A2A28E46811A4508ABCDBAA059AA09FE55E173F2
 magnet:?xt=urn:btih:7E2168F5FCA542F4C06956EB5F306F72431A4027
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,29 +679,7 @@ magnet:?xt=urn:btih:7E2168F5FCA542F4C06956EB5F306F72431A4027
 magnet:?xt=urn:btih:4AA893EC97C3BE90FA404315D65491D04A806671
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383030   (813453) от 14.05.2020
-
-Мудрость китов / Whale Wisdom (2018) WEB-DL [H.264/2160p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человек почти ничего не знает о жизни китов. Ещё большей загадкой является то, о чём они думают. Они обладают интеллектом и способностью испытывать эмоции. Они сообразительны и готовы идти на продуманный и приносящий успех риск. Они нежны и любопытны. У китов есть любящие семьи, соперничество и сложное пение. Они обладают глубокой мудростью. Этот фильм - попытка (   Читать дальше...   )Производство: Австрия, Германия, Франция, Terra Mater Factual StudiosStudio Hamburg DocLights, ARTE FRANCEЖанр: Документальный, природа, фаунаРежиссер: Рик РозентальПеревод: Двуголосый закадровый, профессиональный (СВ-Дубль)Субтитры: Русские, английскиеПродолжительность: 00:49:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D80BB949CCD49AFC76ABE282A76E7FB44F155E45
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

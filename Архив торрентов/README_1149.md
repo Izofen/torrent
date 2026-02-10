@@ -19,6 +19,8 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 magnet:?xt=urn:btih:C71CBA221E1036EDDFFFC69EE85F0D2536C52420
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:C71CBA221E1036EDDFFFC69EE85F0D2536C52420
 magnet:?xt=urn:btih:B67E6354B30EA318908333A068A48850385FE056
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Deliver Express - это автоматическое решение для бы
 ```bash
 magnet:?xt=urn:btih:8E0E1B7410A6123E97661866D961AB4FCEC13A87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Throwers - Prosaic Materialists / Rudimentary Bodies (2014) [MP3|320 кб/с]<Da
 magnet:?xt=urn:btih:881A87CB0287FA0FA0AA5AD69BBED2D143D39A25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:881A87CB0287FA0FA0AA5AD69BBED2D143D39A25
 ```bash
 magnet:?xt=urn:btih:83674E7FA1D3927FBE9BA2E060BBAEAB17A56F78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ Apocalipsis - Apocalipsis (2012) [MP3|320 кб/с]<Neocrust, Post Metal, Sludge,
 magnet:?xt=urn:btih:E18E6247700AD027BAF794BE23EACDE23FA85CFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:E18E6247700AD027BAF794BE23EACDE23FA85CFA
 ```bash
 magnet:?xt=urn:btih:A31A2A501424D89644711C532054CED540808906
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -204,6 +218,8 @@ The Civil Wars - Between the Bars (2013) /EP/ [FLAC|Lossless|WEB-DL]<Folk>
 magnet:?xt=urn:btih:04EECED6A0C17E86448F6E28FA402ABEA25CF458
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ Brave - защищённый веб-браузер на базе Chromium, по�
 ```bash
 magnet:?xt=urn:btih:A34F54F5012227C3D944898CC3A91750F6F0570C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ VSO Downloader - менеджер для многопоточной загруз
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ FxFactory Pro включает  фильтры, генераторы и пере
 ```bash
 magnet:?xt=urn:btih:D9942488A205DC0893DB013954C46832A974B73D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +325,8 @@ CleanMyMac сканирует каждый уголок вашей систем�
 magnet:?xt=urn:btih:026E28FC62195D87350955C08F6767EBE2874DE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ Xojo (ранее Real Studio, а еще ранее Real Basic) - объектн�
 magnet:?xt=urn:btih:11A908D0DF35774A3D16930B6A4F8800D863782C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ UltraDefrag это мощная программа для дефрагмента
 ```bash
 magnet:?xt=urn:btih:5DBFB19683EAA042437983A6BEB0A69C4D9FA056
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +405,8 @@ Waterfox — это браузер, основанный на исходном �
 magnet:?xt=urn:btih:E1C6330B223539B2B1A170A0AFE373CE8E6E02A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:A9DA99650BA9885CBD1274798AEF592CF33294A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +457,8 @@ magnet:?xt=urn:btih:A9DA99650BA9885CBD1274798AEF592CF33294A8
 magnet:?xt=urn:btih:3BC5F2EFB3EB3DAD76D9741954B81B0B7554C5BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ magnet:?xt=urn:btih:3BC5F2EFB3EB3DAD76D9741954B81B0B7554C5BD
 ```bash
 magnet:?xt=urn:btih:1DDDEB68FA4E7A96F74F057F6A6E62165C41D87B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +511,8 @@ Glary Utilities - функциональный набор системных т�
 magnet:?xt=urn:btih:C694659B92FECBD32896C12D06E7E6CE4C847383
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ EximiousSoft Business Card Designer - программа для создания
 ```bash
 magnet:?xt=urn:btih:7DEF6724275ECBDD0319C453FBE2A5A5BDCE2812
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +575,8 @@ s_w_z_k (swayzak) - s_w_z_k (2012) [MP3|320 кб/с]<Techno>
 magnet:?xt=urn:btih:58968C1182425AB2490B0205FDA12BAF2D135CAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +600,8 @@ Deliver — это комплексное решение для отправки
 ```bash
 magnet:?xt=urn:btih:CF8DC6BCC50116C116922AC9B5AE0C30AB8B38B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +636,8 @@ Klute – The Draft (2013) [FLAC|Lossless|WEB-DL]<Drum & Bass>
 magnet:?xt=urn:btih:3994944DB904ED047E988DBD182B4046E74D4B3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +661,8 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:0114AC9C99EC510A195032F3260FD3320B9721A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +689,8 @@ Re-Loader Activator - ещё один автоматический актива�
 magnet:?xt=urn:btih:DA2EC3DA8DFBE141C25FD065D2DF6F97247BBA5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +714,8 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:67F62493EFBDA8DDA904B59B9C1F7D72D8ABE4F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

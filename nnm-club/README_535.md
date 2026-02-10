@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Five Nights at Freddy's Anthology (2014-2016) [Ru/En] (1.132/1.033/1.032/1.1/1.1
 ```bash
 magnet:?xt=urn:btih:75B99D49FD1ACBE4220ABBEF1A565A9CE2B2CCF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:75B99D49FD1ACBE4220ABBEF1A565A9CE2B2CCF8
 magnet:?xt=urn:btih:D83758ED50EDE9BC953E25BE22FE1478CF8A5704
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:D83758ED50EDE9BC953E25BE22FE1478CF8A5704
 ```bash
 magnet:?xt=urn:btih:1B0D2ABB759854C883E99BE7D3457EF2F7535DBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Lightroom объединяет фотографии в «коллекции» �
 magnet:?xt=urn:btih:3C31081635B31E7B9CA88E86911E985F0150117E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Proton VPN — это единственное в мире бесплатное 
 ```bash
 magnet:?xt=urn:btih:4C6EC1B01BDE7977A9F8C5C404CED79896CD61D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:4C6EC1B01BDE7977A9F8C5C404CED79896CD61D6
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:4C6EC1B01BDE7977A9F8C5C404CED79896CD61D6
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:4C6EC1B01BDE7977A9F8C5C404CED79896CD61D6
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:4C6EC1B01BDE7977A9F8C5C404CED79896CD61D6
 ```bash
 magnet:?xt=urn:btih:054CF20B9FAE2969394E55D0A42C63D386349759
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:054CF20B9FAE2969394E55D0A42C63D386349759
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:054CF20B9FAE2969394E55D0A42C63D386349759
 ```bash
 magnet:?xt=urn:btih:DB9777CE344D3CA77B218826F8E8A29D67B1E6AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Human Anatomy Atlas v2026.00.019 [En]
 magnet:?xt=urn:btih:AA2ED7CE790C4CAF12CAE8186BF390214A0D840C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Wingspan / Крылья (2020) [Ru/Multi] (1.7.1104/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:4115A65A8AC640D69276C142AE497CF0C70A31F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Microsoft Visual C++ Redistributable Package – это распространя
 magnet:?xt=urn:btih:2400AC8A55FCB260C8C1191AB5E986F0BAD53201
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:2400AC8A55FCB260C8C1191AB5E986F0BAD53201
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:2400AC8A55FCB260C8C1191AB5E986F0BAD53201
 magnet:?xt=urn:btih:56D6F390738C8332A77067489D8F617D20CB080A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Call of Duty: WWII достоверно покажет Вторую мирову
 ```bash
 magnet:?xt=urn:btih:93842C43DB202BB7772CF6AD224A10F823A9C85A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:93842C43DB202BB7772CF6AD224A10F823A9C85A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ Far Cry 4 (2014) [Ru/Multi] (1.12.0/dlc) Repack Other s [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:DE1E57B58F3027647E3F2080369F428C38C83864
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ magnet:?xt=urn:btih:DE1E57B58F3027647E3F2080369F428C38C83864
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ SCUM (2018) [Ru/Multi] (1.0.0.0.94918/dlc) Repack seleZen [Complete Bundle]
 magnet:?xt=urn:btih:D96E45D4ABE5197FD6A2862CF58D9B4BE8075C8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ Goat Simulator 3 - очередная абсолютно бестолковая 
 ```bash
 magnet:?xt=urn:btih:6040C4A27841CB5633DC70C5AA2FB4FD78CDC308
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:6040C4A27841CB5633DC70C5AA2FB4FD78CDC308
 magnet:?xt=urn:btih:ED7C7DE194357CF0F1E7518FA5E416E86613CF71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:ED7C7DE194357CF0F1E7518FA5E416E86613CF71
 magnet:?xt=urn:btih:47113A0DB20BD55204343DF6377DCAEEE431E6EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ magnet:?xt=urn:btih:47113A0DB20BD55204343DF6377DCAEEE431E6EC
 ```bash
 magnet:?xt=urn:btih:0856F16CFD5C63EE7AD65D9F91125DD10954EFCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Big Blues Revival - Compilation (2024) [MP3|320 Kbps] <Blues>
 magnet:?xt=urn:btih:746FA0BCF896A5AFEDEA741066E3188E0585FD97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - E-Dance Weekend Party (2024) [MP3|320 Kbps] <Dance, Club, House, Electro>
 ```bash
 magnet:?xt=urn:btih:C47CEC2705D9527BE3AB7BB780CACCFD875C9B3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - The Jazz Tour (2024) [MP3|320 Kbps] <Jazz, Blues, Blues Rock>
 magnet:?xt=urn:btih:A62D361B4303A9B40EF5574E676437E1F8A79CA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:A62D361B4303A9B40EF5574E676437E1F8A79CA4
 magnet:?xt=urn:btih:9E5A293E6C0530A53F6CE1EEA0539FA626CE25FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:9E5A293E6C0530A53F6CE1EEA0539FA626CE25FA
 ```bash
 magnet:?xt=urn:btih:E086B3DB01DC4F0029595E502E3B70FBB4B25CD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ VA - Greatest Violin Classics (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 magnet:?xt=urn:btih:E7E97218A397EBB80CD4DEA1979DABCCCDBCB2B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +189,8 @@ VA - TOP Non-Stop 2020+. Deep & Organic House (2024) [MP3|192-320 Kbps] <Deep Ho
 ```bash
 magnet:?xt=urn:btih:7B959A836441EDF823A5D1040F36583FA8A6B823
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -205,6 +219,8 @@ VA - Classical Music with Violin and Piano (2023) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:723F24F1F55A7BB196B0E67A83AE6007E6F8C471
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ magnet:?xt=urn:btih:723F24F1F55A7BB196B0E67A83AE6007E6F8C471
 ```bash
 magnet:?xt=urn:btih:3BDBDC8B6A4E8C487F01D8EE44D09C9881FAFCFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +274,8 @@ VA - The Open Hearts. Compilation (2024) [MP3|320 Kbps] <Indie, Alternative, Pop
 magnet:?xt=urn:btih:D27E39C6FD771EE5845A2BCD8EAC40FDF3D787B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +303,8 @@ Ashbury Heights - Ghost House Sessions, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:B3046BC60CDCB53FFA622C43FD5E02942A5377AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +328,8 @@ magnet:?xt=urn:btih:B3046BC60CDCB53FFA622C43FD5E02942A5377AE
 ```bash
 magnet:?xt=urn:btih:5D8875EBA62B3327C8BC1030730D216DAEC813E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +355,8 @@ magnet:?xt=urn:btih:5D8875EBA62B3327C8BC1030730D216DAEC813E1
 magnet:?xt=urn:btih:9199E5A03B37E39AA0EBC1005C2538EDAC674655
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ Grocery Store Simulator ставит вас на место управляюще
 ```bash
 magnet:?xt=urn:btih:8007DE89EF375F18D3A8F136DDD08FF3A36F9CAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +407,8 @@ Nickelodeon All-Star Brawl 2 - продолжение оригинальной �
 magnet:?xt=urn:btih:F0C14939CCB3116C588E2692B7EFD9DEC5716462
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ magnet:?xt=urn:btih:F0C14939CCB3116C588E2692B7EFD9DEC5716462
 ```bash
 magnet:?xt=urn:btih:96A418BD96BB5B25CF59F21FD70D410385FB3351
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +462,8 @@ magnet:?xt=urn:btih:96A418BD96BB5B25CF59F21FD70D410385FB3351
 magnet:?xt=urn:btih:36320D1EA48D2A30C0C0B964E5B24F8F02DCD290
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +489,8 @@ magnet:?xt=urn:btih:36320D1EA48D2A30C0C0B964E5B24F8F02DCD290
 magnet:?xt=urn:btih:1373D44C2C9FC9A302DF0BD8725627AEF5D677F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ magnet:?xt=urn:btih:1373D44C2C9FC9A302DF0BD8725627AEF5D677F5
 ```bash
 magnet:?xt=urn:btih:300DD6915A44C60111CB4C0ECF2895A20A43C86E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +541,8 @@ iZotope - Plasma 1.0.1 VST 3, AAX (x64) RePack by R2R [En]
 magnet:?xt=urn:btih:1DD4672E663C89161706413617736FEE83114E06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +567,8 @@ magnet:?xt=urn:btih:1DD4672E663C89161706413617736FEE83114E06
 magnet:?xt=urn:btih:DB93DB8F472F36E7BAF88C20279D24502D6BB6D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +592,8 @@ magnet:?xt=urn:btih:DB93DB8F472F36E7BAF88C20279D24502D6BB6D4
 ```bash
 magnet:?xt=urn:btih:877CA8E6297466897D5E68444721618CCC31EE9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +621,8 @@ Synapse Audio - DUNE 3.6.2 VSTi, VSTi 3, AAX (x64) [En]
 magnet:?xt=urn:btih:DF31498C23F64A77B530CA1C5985A7F11685C8EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +647,8 @@ magnet:?xt=urn:btih:DF31498C23F64A77B530CA1C5985A7F11685C8EF
 magnet:?xt=urn:btih:79E2E40B96B897437E233F079FE57B267EC71346
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +672,8 @@ Lucky Patcher (Лаки патчер) – отличное решение есл
 ```bash
 magnet:?xt=urn:btih:6A6DE2CE1DF6C690EDB28B08191DB3C320C5F38D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +700,8 @@ magnet:?xt=urn:btih:6A6DE2CE1DF6C690EDB28B08191DB3C320C5F38D
 ```bash
 magnet:?xt=urn:btih:4FC494411684E953AD25108A7475F3CE2BD9B3C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

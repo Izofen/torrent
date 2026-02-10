@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:C2F1808EF4B80027EB50491244A6A03F702F90EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ VA - EL TANGO pasion y emocion (Танго - страсти и эмоции)(Box
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -78,6 +82,8 @@ VA - EL TANGO pasion y emocion (Танго - страсти и эмоции)(Box
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -110,6 +116,8 @@ VA - I love NY - 13 песен для веселого Нового Года (20
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +152,8 @@ CD1 - Rawhide01. Johnny Cash - Cry, Cry, Cry
 magnet:?xt=urn:btih:EBF32E4DE86015100417B04A45DE33682A3A8BEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +180,8 @@ Evgeny Grinko - Naive Album (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, 
 ```bash
 magnet:?xt=urn:btih:A9F805D4D7DD4D641536183BFB80875FC3B8A8D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -204,6 +216,8 @@ V.A. - Chill n' Brazil (2008) [FLAC|Lossless]<Bossa, Chillout, Lounge>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +248,8 @@ Eion Alea - 6 альбомов  (2011) [MP3|160-320 kbps]<Instrumental, Classica
 magnet:?xt=urn:btih:7CF142525FFA244B4913B67AD959A1F5AC348FE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +279,8 @@ Donna de Lory - Sanctuary (2009) [MP3|320 кб/с]<New Age, World, Mantras>
 ```bash
 magnet:?xt=urn:btih:3B0F97266A333ABE84CDD6F1956A7115D737229A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +316,8 @@ Enya, Delerium, Conjure One, Amethystium…Имена, которые безус
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +351,8 @@ Enya, Delerium, Conjure One, Amethystium…Имена, которые безус
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +379,8 @@ VA - Союз нерушимый... - Песни и танцы народов С
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +415,8 @@ VA - Союз нерушимый... - Песни и танцы народов С
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +449,8 @@ Morning Stars - Only Instrumental (2011) [MP3|320 кб/с]<New age, Native ameri
 ```bash
 magnet:?xt=urn:btih:29102383BDC07169D98827ECB391EFF1DFCB1962
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +485,8 @@ CD1:01. Andalu
 magnet:?xt=urn:btih:0CE6243A7BE4EA1E3D536D029E4B9D15DE2A2202
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +519,8 @@ magnet:?xt=urn:btih:0CE6243A7BE4EA1E3D536D029E4B9D15DE2A2202
 ```bash
 magnet:?xt=urn:btih:5A842014C6474F6CB6C04AF42BC844DB77B92F55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +555,8 @@ magnet:?xt=urn:btih:5A842014C6474F6CB6C04AF42BC844DB77B92F55
 magnet:?xt=urn:btih:1AAA8487D4DFF33C85C743CA79DB5F44C3C410F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +589,8 @@ Disc 101. Tokyo Love You (2:39)
 ```bash
 magnet:?xt=urn:btih:17694028FA98D4514CE883C6C9C066671276544D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +625,8 @@ Yoyo International Orchestra - Abba Instrumentals. Greatest Hits (2007) [MP3|320
 magnet:?xt=urn:btih:75473548E61D15529D94C82A61D0E2AC18CC5A80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +660,8 @@ magnet:?xt=urn:btih:75473548E61D15529D94C82A61D0E2AC18CC5A80
 magnet:?xt=urn:btih:EF059382AD7216892D6E08135046450339DB64C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +689,8 @@ Maneesh de Moor - 4 albums (2001-2007) [MP3|320 кб/с]<New age, Meditative, Am
 ```bash
 magnet:?xt=urn:btih:158D463EC6D38721EFFD8DB64C405288717309CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -683,6 +725,8 @@ Ethnico - Prophecy for Montezuma (2013) [MP3|320 кб/с]<Ehno-meditative>
 magnet:?xt=urn:btih:8FB3C889AA19068FADBA11E2E2411BAB5BCA535B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -715,6 +759,8 @@ magnet:?xt=urn:btih:8FB3C889AA19068FADBA11E2E2411BAB5BCA535B
 ```bash
 magnet:?xt=urn:btih:A8C298B2FB942CEDC39D10F43D5AFE0458805920
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -749,6 +795,8 @@ Sacred Spirit Band - Sacred Spirit (2004) [MP3|320 кб/с]<Native American,New 
 magnet:?xt=urn:btih:7EAABE20DED09D30F03578719FFBEFB86F0C31BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -782,6 +830,8 @@ Wang Wei - 2 albums (2011) [MP3|320 кб/с]<New age, Instrumental, Piano>
 magnet:?xt=urn:btih:3B7544CBB09609ACCED9E4A42F2BE7B147E84D66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -811,6 +861,8 @@ Wingmakers - 3 albums (2000) [MP3|320 кб/с]<Native American,New Age>
 ```bash
 magnet:?xt=urn:btih:3ED5D74692E07549DFCC0E97AF8851FF5C212F1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

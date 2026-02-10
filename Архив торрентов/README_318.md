@@ -19,6 +19,8 @@ O&O DiskImage Professional позволяет создавать резервн�
 magnet:?xt=urn:btih:CC12044E102CFE63474AE0739C33084AA8B560E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Sante DICOM Viewer Pro не является «еще одним средств�
 ```bash
 magnet:?xt=urn:btih:AC21B529A0E85659D76372D656C40DD143A9A706
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Sante DICOM Editor — ведущее в отрасли приложение п�
 magnet:?xt=urn:btih:AF680F03A8ED7142E48E6842EEB55D146EEB7A20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ PrivaZer - полезная утилита, которая поможет вам
 magnet:?xt=urn:btih:8C87DFE8E816572204A0EF3DEFDDDD06B16D8E61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ PhotoDirector - функциональный, но весьма простой �
 ```bash
 magnet:?xt=urn:btih:5229C3A9AACA287A0F0E715677A04E8804F4E462
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Balabolka 2.15.0.887 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:5738FF7895A47978C8AF5BD10A81801ED1DDF4FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Perfectly Clear — приложение, которое позволяет вс
 magnet:?xt=urn:btih:950070AE06D356959A9B5F131DC914C0DC64B202
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Desktop Calendar – бесплатный календарь рабочего с
 ```bash
 magnet:?xt=urn:btih:990F77685526AC9C0DBDDCEAD09D2C7D3D3DEAC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ PrivaZer - полезная утилита, которая поможет вам
 magnet:?xt=urn:btih:61206571A587FCDD4EFEF283457D7E573BB697F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Wise Disk Cleaner 11.2.0.837 RePack (& portable) by Dodakaedr [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7EF71D6E23B50D94F98694E4CE8CBD5AF0722769
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Process Lasso позволяет вручную или автоматическ�
 magnet:?xt=urn:btih:0D5DC453D2FA46CE042F8B07D665BCF275209D32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ TuneIn объединяет спортивные события, музыку, �
 ```bash
 magnet:?xt=urn:btih:D2368BD403336ACDED42DAA38AA7703239A64F01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Text Editor Pro 31.4.0 + Portable + Bonus [Multi/Ru]
 magnet:?xt=urn:btih:F08BFBF764F6775CDD0029DC54B9FB72004C42A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:C10BD2E06D063D616E20EE5B4B439755653A9224
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ PictureThis - Plant Identification v5.1.0 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8E3A38F5578BFF32655B58180D6BE27B40CA9F2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ MusicBrainz Picard - простая в использовании програм
 magnet:?xt=urn:btih:A74C47B7BF6449305666C2809F33827E4A5D49A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ QownNotes – менеджер заметок, позволяющий четко
 magnet:?xt=urn:btih:4E02DB810CD756DAAC82FB873D5C60DD37880275
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ PowerDirector – Video Editor v14.8.2 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0A1F3B485600314F9EFF74B3E2146239C6911440
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ Soft Organizer - утилита для полного удаления нену�
 magnet:?xt=urn:btih:10703D6563619ABB23611674D377BFAE0B3ECFD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ XnView MP - мощное многофункциональное приложен
 ```bash
 magnet:?xt=urn:btih:8FDDDC195C9AEF5FC6627CE9B2F70941C4882C7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ PrivaZer - полезная утилита, которая поможет вам
 magnet:?xt=urn:btih:5706D612B5CC6429C21DE67EDC571B8F7196785A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Soft Organizer Pro 10.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DD86DDCC3A9D7DF87E1429187EE9314F676ACAFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 magnet:?xt=urn:btih:357C24DE208A1D2145DFB7A71B9E133A74955491
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:784631641C82BDA353E74EC3522BD8E41FA308A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:6011376A592632EA1B92D94F46BB18FCF19377E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Happy Color — самая популярная и излюбленная бес
 ```bash
 magnet:?xt=urn:btih:A15AEC79A4D7AAF86F16D246BD0D78AE519E55E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Megalo Box | Мегалобокс [2018, TV, 13 из 13] HDTVRip 720p rus
 magnet:?xt=urn:btih:C1915993B8DF25EDD730333EA66E662CF07C33D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Hitsugi no Chaika: Avenging Battle / Чайка - принцесса с гроб
 magnet:?xt=urn:btih:290999122D4EF5DEB55B46AF03822497FC1A8000
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Seikimatsu Kyuseishu Densetsu: Hokuto no Ken / Ken, the Great Bear Fist / Кул
 ```bash
 magnet:?xt=urn:btih:E6E31EA1ACC1BF3ACFC1461C036F1BB01194C86D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Seikimatsu Kyuseishu Densetsu: Hokuto no Ken 2 / Fist of the North Star 2 / Ку
 magnet:?xt=urn:btih:5B32314B142A52B855904CB6F5071B14E9BB0DF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Otokojuku – школа для мальчиков. В нее вступают �
 ```bash
 magnet:?xt=urn:btih:AC7E47729F8780B5F4D3A4480966A1AB55C5B4DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Muv-Luv Alternative: Total Eclipse / Total Eclipse / Полное затмени
 magnet:?xt=urn:btih:6D279A29D859630ED7F2F7C599C93420562D4D7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Devil Survivor 2 The Animation / Выжившие среди демонов 2 [2
 ```bash
 magnet:?xt=urn:btih:AE92C135200EFA202508787AF20F674910847E6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Orange / Апельсин [2016, TV, 13 ep] HDTVRip 720p Raw+Rus
 magnet:?xt=urn:btih:A187009603903682B6F184DCBC3EE51B28DDB4B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Charlotte / Шарлотта [2015, TV, 13] HDTVRip 720p raw+rus
 ```bash
 magnet:?xt=urn:btih:23B6A98991C614E024C69E861DC0CAC93AD4B609
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Haikyuu!! / Волейбол!! [2014, TV, 25 ep] WEBRip 720p Raw+Rus
 magnet:?xt=urn:btih:83C44B203C81FF5E10849AE352EB5D7EF4B6BF91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Handa-kun / Ханда-кун [2016, TV, 12 ep] HDTV 720p Raw+Rus
 ```bash
 magnet:?xt=urn:btih:43028813E80FE7E6D03B5C71AC4298B622032B80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:43028813E80FE7E6D03B5C71AC4298B622032B80
 magnet:?xt=urn:btih:4F4EC669371F8351A7F2BC8641F9B9248FA9BA23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Saenai Heroine no Sodatekata / Saekano: How to Raise a Boring Girlfriend / Ка�
 ```bash
 magnet:?xt=urn:btih:BB4EB4318CC0EF1EB0DCC799A734BE9C71B6C7FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ Grisaia no Kajitsu / The Fruit of Grisaia / Натюрморт в серых т�
 magnet:?xt=urn:btih:DE9507276F228F5F168886C9EF47CADFF3BCA645
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ Hyakka Ryouran: Samurai Bride / Буйство цветов (ТВ-2): Самур
 magnet:?xt=urn:btih:56CEDC6F402CF88434C902D01884301C88C2E1FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ Saikin, Imouto no Yousu ga Chotto Okashiinda ga. / ImoCho / Сейчас моя 
 magnet:?xt=urn:btih:59DC070F03DB47850E35B9A96955994708E13ADC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:59DC070F03DB47850E35B9A96955994708E13ADC
 ```bash
 magnet:?xt=urn:btih:055CB145430089A978061320F25779CC58A34852
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ Shinmai Maou no Testament / The Testament of Sister New Devil / По велен�
 magnet:?xt=urn:btih:BFF5B23383AFC8E23085A58F4CA2EFC834473CA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ Macross: Do You Remember Love? / Макросс: Помнишь ли нашу л
 magnet:?xt=urn:btih:EC7B7FB2C08620E1897871A142DBB10B9ACC5D39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ Macross Plus / Макросс Плюс [1994, OVA,  4 эп.] DVDRip 480p raw+rus
 magnet:?xt=urn:btih:B4A09CB255519E2487BD386185A3DA070DD14E57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Aho Girl | Дурочка [2017, TV, 12] BDRip 1080p 10-bit raw+rus
 ```bash
 magnet:?xt=urn:btih:2ADA8D2FFF849462D0AF1161B7B6DAAE53480FE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ Canaan | Ханаан [2009, TV, 13 из 13 эп.] BDRip 1080p Hi10P raw+rus
 magnet:?xt=urn:btih:C084B2F8B8CF50D2C8565E0C2836216676BA880D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ Big Order | Приказ свыше [2016, TV, 10] BDRip 1080p raw+rus
 ```bash
 magnet:?xt=urn:btih:0223287DB355716264C9FF682468D31F550C97B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:0223287DB355716264C9FF682468D31F550C97B1
 magnet:?xt=urn:btih:37A4E3027832A5C851A2D6C19C7C046F5E24482F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ Soukihei MD Geist | MD Geist | Опаснейший Гейст [1986, OVA] LDRip
 magnet:?xt=urn:btih:2DA53C22A21507DF2A4538ADE6334A69776EC2B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Toaru Hikuushi e no Tsuioku | The Princess and the Pilot | Воспоминан�
 ```bash
 magnet:?xt=urn:btih:47C40798771E98CE5082CD68357EBAB3BC62A547
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

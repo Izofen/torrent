@@ -19,6 +19,8 @@ CCleaner Pro - один из самых известных и популярны
 magnet:?xt=urn:btih:FF1231A08F62FD25945270B8761373904CDEDD45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Revo Uninstaller Pro 5.1.1 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E0572C4D1502DC16A9F028613FBE87B6B53CE288
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ WinPaletter v1.0.7.1 Standalone [En]
 magnet:?xt=urn:btih:8F48CD1E6FBD6CBB25A4183D12C43706175918F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ MAGIX Photostory Deluxe 2023 22.0.3.145 (x64) [Multi]
 ```bash
 magnet:?xt=urn:btih:7C7FE67C2879868DDE4699A4A44FADEF1D856DB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ CrossOver 23.0 [Multi/Ru]
 magnet:?xt=urn:btih:2D8C8C187737D6217B3030730C8E0256EF12C772
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ CamScanner - Мощное приложение для сканирования. 
 ```bash
 magnet:?xt=urn:btih:E9270A67EC295F5C751AB1CBBDFBD1F6154211D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:7BCF029C36CEBBDF64DBB74DA17D7DF920CB57EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ WinToUSB — лучший Windows To Go (WTG) Creator, который позво
 magnet:?xt=urn:btih:FC1420F4362998BA87896175C2E1B49C10519C4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Floorp Browser – это модифицированная версия Firefox,
 ```bash
 magnet:?xt=urn:btih:875C884D78F9E78A46AEEB2E7CC2F676B2A97875
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ DVDFab – мощный, многофункциональный программ
 magnet:?xt=urn:btih:03B4C52632635A9E59DF22E6E55B4370A3D51059
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ KiCad – уникальный в своем роде программный п�
 ```bash
 magnet:?xt=urn:btih:BD0E9B1433987E66068F5305DBBC4C4F639EF04F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:95E93B2A541867EB5032C6B958DA42A704676655
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Windows 11 Manager - это универсальная утилита специ
 magnet:?xt=urn:btih:67B55274A583DE4763BD6F4DAECFE7A1ED3B9B74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ XtraTools — это универсальный инструмент для оп
 ```bash
 magnet:?xt=urn:btih:2A1C8670DD099BDABB726C5EF03B1B241769EB7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Media Player Classic - BE – универсальный проигрывате�
 magnet:?xt=urn:btih:F207DCCDB4A7B7B8B810F8D55AE196403B41834B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:95BA2455EB276AF08C620DB4F720FC03CC50A37E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Fort Firewall - простой и бесплатный брандмауэр дл
 magnet:?xt=urn:btih:796F409F9B85D94B9EF23E8727EDF4978ED5F572
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Bandicam позволяет записать определенную облас
 magnet:?xt=urn:btih:FBE206CE8EDCA26E6326C5ADD629942D90B28698
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ App Builder позволяет создавать приложения для с
 ```bash
 magnet:?xt=urn:btih:BE760804B55DE62AF285BD1C5856F3E7E51C6AE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Opera Crypto Browser 96.0.4693.24 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:783FD1177BD9F069F718D6C14DBDE4501DA86A03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ WinPing - небольшая бесплатная портативная (не �
 ```bash
 magnet:?xt=urn:btih:34E5A36ADB2A75F8DD75EDDDECFA04BF688FBC16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Duolingo: изучай языки 5.114.4 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:2A33BC3D99D3FEB50C0827270C5A1582CABEC430
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:2A33BC3D99D3FEB50C0827270C5A1582CABEC430
 ```bash
 magnet:?xt=urn:btih:AE6D9C9283154C2A6BA6EFCA65FBEAE1B6A56F3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 magnet:?xt=urn:btih:666844B74E5E21E53B897D25904006C00F4CC7D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Revo Uninstaller Pro 5.1.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:5304F09CF568E988C37E8C438EC92788E9B9BD37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ MusicBee — это одновременно простой, но серьёзн
 ```bash
 magnet:?xt=urn:btih:1B50C9F6D6743741A2A3118652CD28FD2F5674C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Simple Sticky Notes — простая в понимании программа 
 magnet:?xt=urn:btih:ABDD0B3BF68F64B7CDC353711E914CAD7D8F6C42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:6D549BC627AC5BB01DCD8D3DD8969BF2F7250EE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Antivirus Removal Tool - портативный набор официальны�
 magnet:?xt=urn:btih:C50BB830C9DBA956CADA9AC1E77A78831977D4D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Neutron 4 предлагает обновлённые модули Sculptor, Exc
 magnet:?xt=urn:btih:D8B0D7E107C7A23C9078A9944B66050C05E4CB41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Visual Studio Enterprise 2022 - Интегрированное комплекс�
 ```bash
 magnet:?xt=urn:btih:70EBD00A1C9D9820755C6655E6C408D5B11C350B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:70EBD00A1C9D9820755C6655E6C408D5B11C350B
 magnet:?xt=urn:btih:62AB3E06696F3F280FF9B9289EFCE3881E5284FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:7EE4755A64BAA96DD3A77F978D552AE3CFEA8D0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:7EE4755A64BAA96DD3A77F978D552AE3CFEA8D0B
 magnet:?xt=urn:btih:222633C60A1A94C5F2C00A6A7F954657CAA91034
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:222633C60A1A94C5F2C00A6A7F954657CAA91034
 magnet:?xt=urn:btih:3887046E0C0CDEEB9222306A20E7C036B8D1D1DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:D345B26C61C6597E51B5C5B62511BF5F692AEC01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Q-Dir позволяет получать быстрый доступ к час�
 magnet:?xt=urn:btih:8B73E61E52FC369EC9A5B3EB78D4EA0967EDD8AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Change MAC Address – программа, с помощью которой мо
 ```bash
 magnet:?xt=urn:btih:9F696BBAE577401383DE35916EA84AACE2C975E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:4C617EA51AE60D896BCFCF62B33D3B4650D57A13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:4C617EA51AE60D896BCFCF62B33D3B4650D57A13
 ```bash
 magnet:?xt=urn:btih:927B2D2F12030B18CA8616A27139A4AAEB651DF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ ImgDrive - простой и надежный эмулятор дисков, п�
 magnet:?xt=urn:btih:307563DB0B6EB96B6D7B46EE7D851D02F5761EFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Bandizip — программа для работы с архивами. Дан�
 ```bash
 magnet:?xt=urn:btih:F50E16CAE73A82C6444F74DAF32824567E426632
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:F50E16CAE73A82C6444F74DAF32824567E426632
 magnet:?xt=urn:btih:235DBFBDBB9CA4682EBB2FE6FE5F51145089469C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Tablacus Explorer - удобный в работе и простой в испо
 ```bash
 magnet:?xt=urn:btih:EA7E1DF06421E83728CDF05C12D84839EF1A5DD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ AOMEI Partition Assistant – мощная программа для работ�
 magnet:?xt=urn:btih:3F1F89E85F27206A3A494972C7EB44331AD7896C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Visual Studio Enterprise 2019 - Интегрированное комплекс�
 ```bash
 magnet:?xt=urn:btih:32C05E3CAEED9AD39D89F18BEC37A8176E49448A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ SIV (System Information Viewer) - мощнейшая утилита, показ�
 magnet:?xt=urn:btih:E571033FE7529B97D42D3F51E703127252C3505F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ Opera One 102.0.4880.51 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D68B1153C528FA76BB69C77BEF28DE06D0718806
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ Floorp Browser – это модифицированная версия Firefox,
 magnet:?xt=urn:btih:4A8479FCD9BF821AEB430ABF6113466D76F42BC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ MediaHuman YouTube Downloader 3.9.9.85 (1309) RePack (& Portable) by elchupacabr
 ```bash
 magnet:?xt=urn:btih:3A820DD328E6D03D8856E3976EE1728FC065D360
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:8B1863038B55B09363404D010EE8BA3C167D3E87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ WinScan2PDF - позволяет сканировать документы и с
 ```bash
 magnet:?xt=urn:btih:6C6784BE2E7303A68342404FC320450A1C0EA99A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

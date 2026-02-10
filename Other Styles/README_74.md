@@ -22,6 +22,8 @@ VA - Новая рождественская сказка / Scrooged (2001 (1988
 magnet:?xt=urn:btih:423D3F4B3094D1D112F9C8CF60903114AC15B75B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Richard Clayderman - 16 Love Songs: Gold Collection (1991) [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:832B418C186229136572BFC724E4BD14AC1E0987
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ The Sound Of Love - 2 Albums (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambi
 magnet:?xt=urn:btih:D3B6F3E52B1302A0DBDEBCFAC6702F2AB739B22E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Alash - Achai (2017) [MP3|320 Kbps] <World, Ethnic, Folk>
 magnet:?xt=urn:btih:20DD878490ACA81889FA8C8D55DE2E40EDE88316
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ Craig Pruess & Anuradha Paudwal - Sacred Chants Of Shakti (2012) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:A94140A35F1076464024036E9690B830C148AB6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -155,6 +165,8 @@ Ottmar Liebert - Slow (2016) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:E98A69919B84286094F909B5A0D4BBD57E054FF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +193,8 @@ The Mavericks - In Time (2013) [FLAC|Lossless|WEB-DL|tracks] <Folk, World, Count
 ```bash
 magnet:?xt=urn:btih:39A099F83FA7C38A13098746D355E7C53964240B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -209,6 +223,8 @@ The Mavericks - En Español (2020) [MP3|320 Kbps] <Latin, Country, Tejano>
 magnet:?xt=urn:btih:CC35407B8D019938034182567EEFB738C983FD76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +251,8 @@ The Mavericks - In Time (2013) [MP3|320 Kbps] <Folk, World, Country>
 ```bash
 magnet:?xt=urn:btih:F43D449F042CE44C44752F8602AE03C55BE953A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +281,8 @@ The London Studio Orchestra & Singers - Memory (20 Romantic Themes) (1991) [FLAC
 magnet:?xt=urn:btih:417C6CCC4DE995D3C92BA9AAF04AB03361C860EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +306,8 @@ ALTERSON - Entrance (2010) [MP3|320 кб/с]<Психоактивная ауди
 ```bash
 magnet:?xt=urn:btih:8BC1BEC724F23CE3EF9E6F5239FE3D87D6B7B908
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +336,8 @@ VA - Magic Is The Moonlight/ South Sea Island Favorites (2000) [MP3|320 Kbps] <I
 magnet:?xt=urn:btih:88DEA1F3135F9463A66AD40AC6285574FED2ECD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +364,8 @@ VA - The Best Of Mystera (2001) 2CD [FLAC|Lossless|tracks + .cue] <NewAge>
 ```bash
 magnet:?xt=urn:btih:FF6AB81156D9A1986A2DCD27BDBF84FD67381E04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +394,8 @@ VA - Mystera IX (2002) [FLAC|Lossless|tracks + .cue] <NewAge>
 magnet:?xt=urn:btih:04FEDF1A66922FB5B154A9CDF0EC0020242E9555
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +422,8 @@ VA - Mystera (1998) [FLAC|Lossless|tracks + .cue] <New Age>
 ```bash
 magnet:?xt=urn:btih:A888C41B88618A382A2DD3197629A1EB0957CACD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +452,8 @@ VA - Mystera V (2000) [FLAC|Lossless|tracks + .cue] <NewAge>
 magnet:?xt=urn:btih:8D1A44E6C89AA911665408F5EF23B53F58B63BB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +480,8 @@ Richard Clayderman - Plays The Music Of ABBA (2010) Compilation [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:D8E4F884CFC74CB375B2E758F22EEF6B618E529C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +512,8 @@ VA - When Lotus is opening (2005) [FLAC|Lossless|tracks] <DreamMusic>
 magnet:?xt=urn:btih:0E61CC34F48863399C4F75C7679C98F7B0D7E5EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +540,8 @@ Gomer Edwin Evans - Tibetan Chant Meditation (2016) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:BA244E70745E24651D5FA118BC5C81A8DC8AC3E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +576,8 @@ magnet:?xt=urn:btih:BA244E70745E24651D5FA118BC5C81A8DC8AC3E1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +610,8 @@ Paco De Lucia - Flamenco Virtuoso (2008) [FLAC|Lossless]<Flamenco>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +646,8 @@ Gregorian - Epic Chants (2012) [MP3|~245 кб/с (V0)]<NewAge & Meditative,Ambie
 magnet:?xt=urn:btih:3310EB8E084A90CB8BAD8F92AF62DE29AD59B1D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +674,8 @@ VA - Brazil 70: After Tropicalia: New Directions in Brazilian Music in the 1970s
 ```bash
 magnet:?xt=urn:btih:134B1E073A8B77B6E260BE3FD2E33347A8E26B48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -658,6 +704,8 @@ Neil Tatar - After the Rain (2018) [MP3|320 Kbps] <New Age, Instrumental>
 magnet:?xt=urn:btih:542C84A40A0FD29150AC94A030A187217DB8EF0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -685,6 +733,8 @@ Jeff Wahl - Playing with Silence (2017) [MP3|320 Kbps] <New Age, Instrumental>
 magnet:?xt=urn:btih:CF40777EB0B25918A44F2C736AE1AA112D1BB286
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -711,6 +761,8 @@ Ludwig Goransson - TENET / Довод (Original Motion Picture Soundtrack) (2020
 ```bash
 magnet:?xt=urn:btih:4D562F6C42A86FEF3603C273D5DD3469A800E9A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

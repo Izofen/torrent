@@ -1,3 +1,29 @@
+###  Публикация: 1326932   (380774) от 22.09.2019
+
+Ирина Пигулевская | Химчистка на вашей кухне. Все для идеальной чистоты дома (2019) [FB2]
+
+>>Разное (категория книг)
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_380774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждая хозяюшка хочет, чтобы дом сверкал чистотой. Поддерживать идеальный порядок – нелегкий труд, требующий к тому же немалых денежных средств на химчистку и бытовую химию. Но оказывается, многое можно отстирать, вычистить, отполировать, подклеить и освежить самостоятельно, нужно только знать, как это сделать. Порой, все необходимые ингредиенты для этого можно найти (   Читать дальше...   )Жанр: Домашнее хозяйство, Сделай самФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:553DEC7729F5D82F3BFBB41BCAE13935DE620152
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326960   (380775) от 22.09.2019
 
 Марта Мэйси | Пофиг на все! Как сберечь нервы и покорить любую вершину (2019) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:A1B52CA1C6D447242B7AA480B09C6272CC5DE739
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:A1B52CA1C6D447242B7AA480B09C6272CC5DE739
 magnet:?xt=urn:btih:5BF2D4BF046E6BF9448F7AE800A52CE7599A2AEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:5BF2D4BF046E6BF9448F7AE800A52CE7599A2AEC
 ```bash
 magnet:?xt=urn:btih:99202D3592BA129037D2C7B00D093F53B002E240
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:99202D3592BA129037D2C7B00D093F53B002E240
 magnet:?xt=urn:btih:5BAB506FB89358236B6C14BA054D4E44CA9C9ECF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:5BAB506FB89358236B6C14BA054D4E44CA9C9ECF
 ```bash
 magnet:?xt=urn:btih:D911682DE4ED33FB0395FCF26998A9D5E02FA737
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:D911682DE4ED33FB0395FCF26998A9D5E02FA737
 magnet:?xt=urn:btih:61C4723D812CE078929C3FCD6CE1F12E48D7CFFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:61C4723D812CE078929C3FCD6CE1F12E48D7CFFE
 ```bash
 magnet:?xt=urn:btih:E497362BF69534D48744BB008E5FCE35C1645DBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:E497362BF69534D48744BB008E5FCE35C1645DBC
 magnet:?xt=urn:btih:47600739962306B0F39BB99A024D7ACE0C747DA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:47600739962306B0F39BB99A024D7ACE0C747DA0
 ```bash
 magnet:?xt=urn:btih:CEC5B8583F9813C0BE5CA24B2E0DAC73DDE2DA7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:CEC5B8583F9813C0BE5CA24B2E0DAC73DDE2DA7D
 magnet:?xt=urn:btih:94CAFC17789C9050210AAA7048E6B6E0E9B0D3A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:94CAFC17789C9050210AAA7048E6B6E0E9B0D3A2
 ```bash
 magnet:?xt=urn:btih:368DDE98C75054549BF3972ACC0E75608DDBF98A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:368DDE98C75054549BF3972ACC0E75608DDBF98A
 magnet:?xt=urn:btih:2F148347CA9E80309D3AA1083328EC78BFC557D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:2F148347CA9E80309D3AA1083328EC78BFC557D0
 ```bash
 magnet:?xt=urn:btih:629E6CA20BFC2A8EDBEED0ABF4688A26B8BCEB7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:629E6CA20BFC2A8EDBEED0ABF4688A26B8BCEB7D
 magnet:?xt=urn:btih:8B31389F9F164C3DECC7362B63DF0B49E49D9B96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +415,8 @@ A. Л. Нарочницкий (отв. ред.) | СССР в борьбе за 
 ```bash
 magnet:?xt=urn:btih:59B2024D00B0ACA5C6C07A1E5BCC1C2FBFE07897
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:59B2024D00B0ACA5C6C07A1E5BCC1C2FBFE07897
 magnet:?xt=urn:btih:048B0F6C8A74EF7D0571A27F887BE7EDBC2C8825
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:048B0F6C8A74EF7D0571A27F887BE7EDBC2C8825
 ```bash
 magnet:?xt=urn:btih:40E2FE5F3FACD2626AB6620C379BC48864ABB104
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:40E2FE5F3FACD2626AB6620C379BC48864ABB104
 magnet:?xt=urn:btih:1A4C88EB131FD742E1B3EA30A33EDFF6A0520ACC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:1A4C88EB131FD742E1B3EA30A33EDFF6A0520ACC
 ```bash
 magnet:?xt=urn:btih:1A9B5156A9A2F9DBC173A10B0CDE65158F6DFD0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:1A9B5156A9A2F9DBC173A10B0CDE65158F6DFD0C
 magnet:?xt=urn:btih:B9AC16A5D7F3837C3AEE8C33FEA57D3C3B4B70CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:B9AC16A5D7F3837C3AEE8C33FEA57D3C3B4B70CD
 ```bash
 magnet:?xt=urn:btih:006A61EEF7B7D4F122403EBA03D9A52E00106D2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:006A61EEF7B7D4F122403EBA03D9A52E00106D2E
 magnet:?xt=urn:btih:23A16B44D427D49BEC7DDD3ECB6337534AD8A2E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:23A16B44D427D49BEC7DDD3ECB6337534AD8A2E6
 ```bash
 magnet:?xt=urn:btih:79460A0FA9A04F07C936E9D68D891D526FCBD0B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +654,8 @@ magnet:?xt=urn:btih:79460A0FA9A04F07C936E9D68D891D526FCBD0B8
 magnet:?xt=urn:btih:2E9FB98FC1B7132A869E0BF449B1D3CE234B6553
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,29 +680,7 @@ magnet:?xt=urn:btih:2E9FB98FC1B7132A869E0BF449B1D3CE234B6553
 magnet:?xt=urn:btih:E169890BC10DD7E67D7E15E652517C5F352FAC10
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253638   (381768) от 10.10.2018
-
-Э.С. Ярмусик | Католический Костёл в Белоруссии в годы второй мировой войны (1939-1945) (2002) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381768.jpg" />
-</div>
-
-
-###  Подробнее
-
-В монографии впервые с новых позиций освещается одна из сложных и малоизученных страниц истории - положение и деятельность римско-католического Костёла в Белоруссии в период второй мировой войны. Анализируется политика советского государства, Третьего Рейха, немецких оккупационных властей в отношении религии и церкви, показана роль духовенства в польском движении (   Читать дальше...   )Жанр: ИсторияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:476269EC4FE0E2F545BCB29AB76900281487E3A9
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

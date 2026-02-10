@@ -19,6 +19,8 @@ Borderlands 3, всеми любимый «шутер с базиллионам�
 magnet:?xt=urn:btih:5AD00B371DE21C43B1C815496F3B496000ABCB35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Superliminal (2019) [Ru/Multi] (1.0.2019.11.12.1) Repack Butter_
 ```bash
 magnet:?xt=urn:btih:01DDBE851F7C2CB3B565C2AA1953FE224D9317CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:01DDBE851F7C2CB3B565C2AA1953FE224D9317CF
 magnet:?xt=urn:btih:E1AFB7C236A30CAE4D5082B9F5408287DA74D40E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:E1AFB7C236A30CAE4D5082B9F5408287DA74D40E
 ```bash
 magnet:?xt=urn:btih:ECF9EB880C122CF3A34DD33B9D04DE55B63286AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:ECF9EB880C122CF3A34DD33B9D04DE55B63286AE
 magnet:?xt=urn:btih:0600EF0126A4C8B04FF16F826812472B34ECF3D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ SUNLESS SKIES — это готическая ролевая игра с эле�
 ```bash
 magnet:?xt=urn:btih:14D251969054FEFFA7044AA57BA12EC4AE5E4A19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:14D251969054FEFFA7044AA57BA12EC4AE5E4A19
 magnet:?xt=urn:btih:1BBF3202D02D2109085DD546FB50C60FAC7EBD8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Adobe Photoshop CC 2020 - новая, следующая за CC 2019 верси
 ```bash
 magnet:?xt=urn:btih:77A5EE2D8FA5D8C07EDE2E8B1814CB957F228461
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ RUNE II (2019) [Ru/Multi] (0.0.9L) Repack xatab
 magnet:?xt=urn:btih:C0E587D9509E1BE72B5C49865E03EB7842EB3FFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:C0E587D9509E1BE72B5C49865E03EB7842EB3FFC
 ```bash
 magnet:?xt=urn:btih:AF675C2DE35CC40F07E0A7FB3248B4490E4EE72D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:AF675C2DE35CC40F07E0A7FB3248B4490E4EE72D
 magnet:?xt=urn:btih:9DC5D79A67E109C194FAD4E37D303A6BA8597964
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:9DC5D79A67E109C194FAD4E37D303A6BA8597964
 ```bash
 magnet:?xt=urn:btih:D99379E9EA124BEC1AA8D156BFE1D25CD0CB71A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:D99379E9EA124BEC1AA8D156BFE1D25CD0CB71A7
 magnet:?xt=urn:btih:7EFE98EB28D85CCA6D8A64BDA48BF4964818826B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ BBC Horizon. Сделало ли приготовление пищи нас лю
 ```bash
 magnet:?xt=urn:btih:34FC0E2D524264C62F86074D4CC41A70BBA75CAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Bridge — это мощное средство управления ресур�
 magnet:?xt=urn:btih:C6EDF1FBCAE7E8E50BAB85EDB8B7056B7F34C9E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ magnet:?xt=urn:btih:C6EDF1FBCAE7E8E50BAB85EDB8B7056B7F34C9E0
 ```bash
 magnet:?xt=urn:btih:A4E8B8A405D4ACDAAC429788AB696338BB6BB92A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:A4E8B8A405D4ACDAAC429788AB696338BB6BB92A
 ```bash
 magnet:?xt=urn:btih:18FC6ECDBBBC6D584C94770E55CF1ABFA43803C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ Thomas Wander, Harald Kloser - Midway / Мидуэй (Original Motion Picture So
 magnet:?xt=urn:btih:66323F5CD0CB34AAF773A878A83CDA3BFBCC7C0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Adobe InDesign CC — ведущее приложение для дизайна 
 ```bash
 magnet:?xt=urn:btih:7234B7257A0709F31F76616601E9F5ABA537BBCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ Thomas Wander, Harald Kloser - Midway / Мидуэй (Original Motion Picture Co
 magnet:?xt=urn:btih:835FE0E6F469072FA8ACA70F6290415F66AF8B51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Adobe Acrobat Reader DC — совершенно новое приложение
 ```bash
 magnet:?xt=urn:btih:9C40A77F61984AED18B980578BBB9000169F4184
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:9C40A77F61984AED18B980578BBB9000169F4184
 magnet:?xt=urn:btih:CD3F0ECC3585A3F6E05146288DDCB8CE3BC61D05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ Movavi Photo Manager 2.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:951229134F58FD47CAFFE4D4EBB3EBAAEE1AFEA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:951229134F58FD47CAFFE4D4EBB3EBAAEE1AFEA0
 magnet:?xt=urn:btih:F7D5AE2AF600FA87ABFBEB6AD9B44CAE802B3E9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:F7D5AE2AF600FA87ABFBEB6AD9B44CAE802B3E9B
 magnet:?xt=urn:btih:31E6749C52ABD38675611B1346CAF4A7596CB9A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Katanagatari / Sword Stories / Истории Мечей [2010, 12 из 12] HDTV
 ```bash
 magnet:?xt=urn:btih:18E133853F7457D8CB9DB9EFBF26C4E3E8F8BE91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

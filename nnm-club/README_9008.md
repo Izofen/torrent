@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:4FAC1066D64C2BD347DE0DD0FF45446A3124165B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:4FAC1066D64C2BD347DE0DD0FF45446A3124165B
 ```bash
 magnet:?xt=urn:btih:FAB0A6640149E90EBCCC0B06895F44A1B7332E86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Thomas Coastline @ Another Dimension, Transmission Prague, O2 Arena Prague, Czec
 magnet:?xt=urn:btih:4B68E4B1362401D35441A8DECD2F77222BDDE9B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Tommy Dorsey & Frank Sinatra - Together 1939-1940 (1991) Jazz Archives [FLAC|Los
 magnet:?xt=urn:btih:D1CE2486FACC28A6836D7AC7F5EB619057C4D357
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:D1CE2486FACC28A6836D7AC7F5EB619057C4D357
 magnet:?xt=urn:btih:D8E43A601E3B773D526E7A4BD104B86088B7689C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ VA - OLD Dance Hits 100% (2010) [MP3|320 kbps]<Pop,Dance>
 ```bash
 magnet:?xt=urn:btih:064D84664F3A0E7D150A731BBFCDD2A9C65D96AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:064D84664F3A0E7D150A731BBFCDD2A9C65D96AE
 magnet:?xt=urn:btih:D6EE84EF8F8572EF6B5AE44103F2E5F600B3E62A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:D6EE84EF8F8572EF6B5AE44103F2E5F600B3E62A
 ```bash
 magnet:?xt=urn:btih:7981775285B3F3CE5A52C2D1A6DBA5D224FDC284
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ Candy Dulfer - Top 40 Candy Dulfer: Her Ultimate Top 40 Collection (2018) 2CD [F
 magnet:?xt=urn:btih:EE5A8A056D60C6D8C96C13FBCE23DC6120218C7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ Eguana - Expectation (2017) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] <Am
 magnet:?xt=urn:btih:5EBCE5E64E5F20AD505FA74966B65EE45D58DE49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:5EBCE5E64E5F20AD505FA74966B65EE45D58DE49
 ```bash
 magnet:?xt=urn:btih:0BE1979D100284BB1E83AF16262CD1A426C1632E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ VA - Mega Популярный Ринг-tone 50/50 (2010) [MP3|256 kbps]<Pop>
 magnet:?xt=urn:btih:0350C77B3D8437FA8595B3AF2E98EF3F16275D46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ magnet:?xt=urn:btih:0350C77B3D8437FA8595B3AF2E98EF3F16275D46
 ```bash
 magnet:?xt=urn:btih:18AA86FB34E743F2884C77D3F2BC03AF78E8FC77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:18AA86FB34E743F2884C77D3F2BC03AF78E8FC77
 magnet:?xt=urn:btih:AC4BEEF467FFCFEE5F4AD957224AB4AEB88153C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:AC4BEEF467FFCFEE5F4AD957224AB4AEB88153C2
 ```bash
 magnet:?xt=urn:btih:AEB1DD8B95A41E52A90AD73D84A29B4F7DFE8615
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:AEB1DD8B95A41E52A90AD73D84A29B4F7DFE8615
 ```bash
 magnet:?xt=urn:btih:00A3AA4D97F2A3BC44004F12D3FB2507DE140F06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +457,8 @@ Matt Darey - Wolf (Extended DJ Mixes) (2017) [FLAC|Lossless|WEB-DL|tracks] <Hous
 magnet:?xt=urn:btih:7E38DFA634937C87791E0151F77A473746F1F983
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ VA - XXXL 10-Рок (2003) [FLAC|Lossless|image + .cue]<Rock>
 ```bash
 magnet:?xt=urn:btih:AEDAC46A5CC650390988F3B3FF64F6DFDE321E97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ Matt Darey - Wolf (Extended DJ Mixes) (2017) [MP3|320 Kbps] <House, Progressive,
 magnet:?xt=urn:btih:A01B712D64E27127E92E0C9FAE229D50E8825B22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ magnet:?xt=urn:btih:A01B712D64E27127E92E0C9FAE229D50E8825B22
 ```bash
 magnet:?xt=urn:btih:0BD31901D6934F64ADF74D2045E7CF101433B5E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +571,8 @@ VA - Buddha Del Mar (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 magnet:?xt=urn:btih:D7B78E2635A7140B1CEEF5C4D1001ACED28F187D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +597,8 @@ Underbar Summer | Лето [2006, OVA, 2 эп. + 2 SP] DVDrip 720 10bit raw
 magnet:?xt=urn:btih:6AE258E5AB081A043F180AE2101E3FB2E41F9E22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +622,8 @@ magnet:?xt=urn:btih:6AE258E5AB081A043F180AE2101E3FB2E41F9E22
 ```bash
 magnet:?xt=urn:btih:69878679A5383745C0B8D310387D10E6A516BAB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +652,8 @@ Matt Darey - Wolf (Album Mixes) (2017) [MP3|320 Kbps] <House, Progressive, Deep 
 magnet:?xt=urn:btih:3C09D31C376077A20801A215575084042BCE35F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +681,8 @@ Lustmord - Hobart (June 12 2016) (2017) [FLAC|Lossless|tracks+.cue] <Dark Ambien
 magnet:?xt=urn:btih:6B6B31258B08866D69D253567D7DC292C733AC36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +709,8 @@ VA - Vocal Dance Vol.3 (2017) [MP3|320 Kbps] <Vocal Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:69B83B048ECFFB5FE255E145F9291579CC81AC4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

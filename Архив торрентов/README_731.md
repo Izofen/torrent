@@ -28,6 +28,8 @@ Dj DIESEL{BG} - Hangover (2012) [MP3|320 кб/с]<Club House, Progressive House>
 magnet:?xt=urn:btih:E4D708560A1D93E1D3BAB9D35A905D66BCCC507F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ VA - Nation Of Trance Vol 1 (2012) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:492F79CBB2A42611195745CF06179B3D6A9A43EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ VA - Ночная Авто Дискотека (2012) [MP3|192 кб/с]<Dance, Cl
 magnet:?xt=urn:btih:5E6778CDFC08DF03FD2EAD484BB0D378A3AAA13E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +125,8 @@ magnet:?xt=urn:btih:5E6778CDFC08DF03FD2EAD484BB0D378A3AAA13E
 ```bash
 magnet:?xt=urn:btih:60A3AC73A445AF05151604492F558ABE9AD3A3F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -153,6 +161,8 @@ VA - Чума-Дэнс (1995) [APE|Lossless]<Pop, pop-rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -179,6 +189,8 @@ VA - Чума-Дэнс (1995) [APE|Lossless]<Pop, pop-rock>
 magnet:?xt=urn:btih:F9D143374878DF19214C85538A9CBDEBA4C91C05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +214,8 @@ magnet:?xt=urn:btih:F9D143374878DF19214C85538A9CBDEBA4C91C05
 ```bash
 magnet:?xt=urn:btih:A9220B987408B49338AB865D1DB7B483BE6A9449
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -230,6 +244,8 @@ magnet:?xt=urn:btih:A9220B987408B49338AB865D1DB7B483BE6A9449
 ```bash
 magnet:?xt=urn:btih:F538A2BAB06939F3CA62F34B57CA56ABAD9BEE8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +280,8 @@ Gord Bamford - 3 альбома (2005-2010) [MP3|192-256 кб/с]<Country>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +305,8 @@ Gord Bamford - 3 альбома (2005-2010) [MP3|192-256 кб/с]<Country>
 ```bash
 magnet:?xt=urn:btih:72567EE6070A90B8EF553C975C9A862680D0E057
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +335,8 @@ magnet:?xt=urn:btih:72567EE6070A90B8EF553C975C9A862680D0E057
 ```bash
 magnet:?xt=urn:btih:4E55FCDDD5AE2F06F6C627827297AD7434DDAF23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +371,8 @@ CD1 (01:19:03)
 magnet:?xt=urn:btih:A42A11B4525C841B15915E7902B2A041956B53F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +396,8 @@ Smash Up The Studio Club Grooves Urban Strings [MIDI] [английский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +423,8 @@ Smash Up The Studio Club Grooves Urban Strings [MIDI] [английский]
 magnet:?xt=urn:btih:A0BE3F260603C336EDE60451768865F4BFF4C788
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +448,8 @@ VueScan - программа для работы со сканерами. Мож
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +477,8 @@ VueScan - программа для работы со сканерами. Мож
 magnet:?xt=urn:btih:040F5E649233471F06FB3ECCA19F7BE07F192AD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +504,8 @@ magnet:?xt=urn:btih:040F5E649233471F06FB3ECCA19F7BE07F192AD5
 ```bash
 magnet:?xt=urn:btih:319E2856CF45C2AE2895E055187BC8B6D360B32F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +535,8 @@ magnet:?xt=urn:btih:319E2856CF45C2AE2895E055187BC8B6D360B32F
 magnet:?xt=urn:btih:6859C45D2067726973B43B01400ECF12678D34CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +561,8 @@ magnet:?xt=urn:btih:6859C45D2067726973B43B01400ECF12678D34CA
 magnet:?xt=urn:btih:5EF6C00A77D4F769E6D422DFA18DB1C939BE9C77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +586,8 @@ magnet:?xt=urn:btih:5EF6C00A77D4F769E6D422DFA18DB1C939BE9C77
 ```bash
 magnet:?xt=urn:btih:68FC7F58F2AE58EA866DB7C6B91A60B6E4ADAC9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +622,8 @@ Artёm Puchkoff&Sasha Fresh - Jam Sation vol.2 (2012) /2012, Resonanse Records/ 
 magnet:?xt=urn:btih:8CE2EFD7CCBC8A6465C9792EC1556E6171D19814
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +654,8 @@ Stranger - Дорога Судьбы (2012) [MP3|320 кб/с]<Heavy Metal>
 magnet:?xt=urn:btih:67E4931E7152725B206AD443D5C1A034E0C81655
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +679,8 @@ magnet:?xt=urn:btih:67E4931E7152725B206AD443D5C1A034E0C81655
 ```bash
 magnet:?xt=urn:btih:1B96C3F39B06F8C3BAC4CE71CC8FDAD127B1F3BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -660,6 +706,8 @@ magnet:?xt=urn:btih:1B96C3F39B06F8C3BAC4CE71CC8FDAD127B1F3BC
 magnet:?xt=urn:btih:29E5EC75BB2A98220E8DA1EF706FC090C893F104
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -683,6 +731,8 @@ magnet:?xt=urn:btih:29E5EC75BB2A98220E8DA1EF706FC090C893F104
 ```bash
 magnet:?xt=urn:btih:B29740657809206308CFAE4ECC302CE26EBAB06E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -711,6 +761,8 @@ magnet:?xt=urn:btih:B29740657809206308CFAE4ECC302CE26EBAB06E
 ```bash
 magnet:?xt=urn:btih:9A2052B36D2F8236A1E139C0FFB6A678DC02D69F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

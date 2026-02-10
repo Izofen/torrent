@@ -22,6 +22,8 @@ VA - Record Super Chart 564 (2018) [MP3|320 Kbps] <House, Club, Dance>
 magnet:?xt=urn:btih:0E419F806D4AE70F6E6F356CD566102E4B90DF8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:0E419F806D4AE70F6E6F356CD566102E4B90DF8C
 ```bash
 magnet:?xt=urn:btih:1C5C84C60C16E6B141AE774B95F6A1FC0D79AC8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:1C5C84C60C16E6B141AE774B95F6A1FC0D79AC8D
 magnet:?xt=urn:btih:44D77E91300B040324C6077BDFCE4E963C6CB964
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ The Hollies - Live at the BBC (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:62CC1B1B80B18CDF0475FD0E6BE7748AECA6F327
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Akcent - King of Disco (2007) [FLAC|Lossless|tracks + .cue] <Pop>
 magnet:?xt=urn:btih:0FF4A0E8FB3248ED52C70EFF78B8DFA89A05E7A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ magnet:?xt=urn:btih:0FF4A0E8FB3248ED52C70EFF78B8DFA89A05E7A2
 ```bash
 magnet:?xt=urn:btih:D7E00AAEF048C8D81C3E08F73FFD49EF2520E20D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -180,6 +192,8 @@ Jean-Pierre Massiera & Bernard Torelli - Turn Radio On (1977) LP [MP3|320 Kbps] 
 magnet:?xt=urn:btih:9503E5FDEAF237037F122A16832F887A376655A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -206,6 +220,8 @@ VA - Winter Chillout Lounge 2018: Smooth Lounge Sounds For The Cold Season (2018
 ```bash
 magnet:?xt=urn:btih:67B2421109D57631200C30D90D926A498E8A9977
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -234,6 +250,8 @@ magnet:?xt=urn:btih:67B2421109D57631200C30D90D926A498E8A9977
 magnet:?xt=urn:btih:E7865A3EB8C0DB84560D0E6CB5A74ADEB240F0CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -257,6 +275,8 @@ magnet:?xt=urn:btih:E7865A3EB8C0DB84560D0E6CB5A74ADEB240F0CE
 ```bash
 magnet:?xt=urn:btih:DCCE0E21B11149FCF83EAA2CC6F83DC120A45DF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +305,8 @@ Lily Allen - No Shame (2018) [FLAC|Lossless|tracks + .cue] <Pop>
 magnet:?xt=urn:btih:6258BAE30E568C56ABBD9A0E3CCDCE93EF8786BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +330,8 @@ magnet:?xt=urn:btih:6258BAE30E568C56ABBD9A0E3CCDCE93EF8786BA
 ```bash
 magnet:?xt=urn:btih:E04852BE5CF8F01473791FBD0C1062A9378DE8FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +360,8 @@ CD1:
 magnet:?xt=urn:btih:1BB46FDF932CAC20BEA38B8FDB78552587D13E52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +388,8 @@ VA - The VERSE Uplifting Trance Journey (Mixed by Philip Langham) (2018) [MP3|32
 ```bash
 magnet:?xt=urn:btih:FD5B0F90602F72002FFF0CE90ED6F60DF60477C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +418,8 @@ Alessia Cara - The Pains Of Growing (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, S
 magnet:?xt=urn:btih:45B18B9E0DCF42AB65EC050C0F5BC0F35CEC7A60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +447,8 @@ The Escape Club - Cloud 10 (2005) [MP3|320 Kbps] <Alternative Pop Rock, Ambient 
 magnet:?xt=urn:btih:D46A7743E1EADA077156A729FC82514401632F24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +475,8 @@ magnet:?xt=urn:btih:D46A7743E1EADA077156A729FC82514401632F24
 magnet:?xt=urn:btih:F2883D31551FE6669F733E93B1D200CDD639B6EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +500,8 @@ magnet:?xt=urn:btih:F2883D31551FE6669F733E93B1D200CDD639B6EE
 ```bash
 magnet:?xt=urn:btih:C2DE54C4120FC5F5B1C5B5F5E9EC61601A8EBE4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +527,8 @@ Malwarebytes Anti-Malware - новая версия программы от со
 magnet:?xt=urn:btih:9F088EA99F48616EF244E9021F84B2A4975CACCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +552,8 @@ Grand Ages: Medieval (2015) [Ru/Multi] (1.1.2/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:4B72EF00D81F2BAC08A1B938D9F063AEC25165BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +579,8 @@ magnet:?xt=urn:btih:4B72EF00D81F2BAC08A1B938D9F063AEC25165BD
 magnet:?xt=urn:btih:1002667AEAF0D76609621850FB2EAE94F08B78E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +604,8 @@ Bulletstorm (2017) [Ru/Multi] (1.1.12212) License PLAZA [Full Clip Edition]
 ```bash
 magnet:?xt=urn:btih:2F9BADBE94E27141CA67764519DC539C033D3BE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +632,8 @@ Event Promo - это динамичный, универсальный, широ�
 magnet:?xt=urn:btih:33063F254C1FB69EE8CC27260BC959FEBA012795
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +657,8 @@ magnet:?xt=urn:btih:33063F254C1FB69EE8CC27260BC959FEBA012795
 ```bash
 magnet:?xt=urn:btih:30E0BCDE64DA5BD3E207D1D916095DA79F13AEEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +684,8 @@ magnet:?xt=urn:btih:30E0BCDE64DA5BD3E207D1D916095DA79F13AEEF
 magnet:?xt=urn:btih:56023FAD9FF5F48D50BF56984965C2DA5684166E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +709,8 @@ magnet:?xt=urn:btih:56023FAD9FF5F48D50BF56984965C2DA5684166E
 ```bash
 magnet:?xt=urn:btih:6207E720B0406316B0A20203EC9BBC3B5D2AC389
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

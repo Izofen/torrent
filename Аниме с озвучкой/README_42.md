@@ -21,6 +21,8 @@ Tenshi na Konamaiki / A Cheeky Angel / Нахальный ангел [2002, TV, 
 magnet:?xt=urn:btih:DA2529506ECBD33092F12FAC077AB2CF49CC12F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Bakuretsu Tenshi / Burst Angel / Ангелы Смерти [2004, TV, 24 + 1 э�
 ```bash
 magnet:?xt=urn:btih:40ED28E5009FDDB37EAF42784E09A29ECDF1EC39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Seisen Cerberus / Шестой Цербер [2016, TV, 13] HDTV 720p rus
 magnet:?xt=urn:btih:77CAC876C5DE84CD22C7D49D79E978274851AC19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:77CAC876C5DE84CD22C7D49D79E978274851AC19
 ```bash
 magnet:?xt=urn:btih:B0C7566827184AFCC57A774D6D9E5D7171A098AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Sword Art Online: Alicization / Мастера меча онлайн: Алиси
 magnet:?xt=urn:btih:C2A90DCB34FC3C992736C7513E8FF5CD9B8EAD29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Mahou Shoujo Tokushusen Asuka | Аска: Волшебница специаль�
 ```bash
 magnet:?xt=urn:btih:3946C5B721768A0F0E4D55D49BA973715CD43C7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ TV-1 (AniDub), (KANSAI), (SovetRomantica), - внешними файламиЯз
 magnet:?xt=urn:btih:8C11B8241A8FD41C7CCEE9C34A19305F5CC4B346
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Boogiepop wa Warawanai | Boogiepop and Others | Бугипоп никогда н
 ```bash
 magnet:?xt=urn:btih:4A729C69BAB2F2EBAF2B3CBADA9D5AB8956A2990
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Kiznaiver / Кизнайвер [2016, TV, 12 ep] WEB-DL 720p Raw+Rus
 magnet:?xt=urn:btih:A653368E37FBD03D4A4DAF0DC22EE369C5C58A14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Hai-Furi / Haifuri / High School Fleet / Морская школа [2016, TV, 12
 ```bash
 magnet:?xt=urn:btih:6CDC96188DF1D72EB78A4390C311BBA448AB8BDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Rescue Me! / Возьми меня! [2013, OVA, 1ep] BDrip 720p rus
 magnet:?xt=urn:btih:509611E55F1469B386B870E0489E47D05481689F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Garo: Guren no Tsuki / Garo: Crimson Moon / Гаро: Кровавая луна 
 ```bash
 magnet:?xt=urn:btih:1D6A1AE70AF2550943E6878B99FE869F7AFAA376
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:1D6A1AE70AF2550943E6878B99FE869F7AFAA376
 magnet:?xt=urn:btih:FC54D8815BC7F3A6B11BBC095F87093B2004C9E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Ansatsu Kyoushitsu: Second Season / Assassination Classroom: Second Season / К�
 ```bash
 magnet:?xt=urn:btih:09C0199A560AD20F50F5B8C18C8FEDDBF4747890
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:09C0199A560AD20F50F5B8C18C8FEDDBF4747890
 magnet:?xt=urn:btih:A0EB26790F44EBD66FF291AA718E77B581B6D953
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Slow Start / Медленный старт [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
 magnet:?xt=urn:btih:7D4292164DA007B2768DC497440CD5AD45F556E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Mitsuboshi Colors / Трехцветные звездочки [2018, TV, 12 ep] 
 ```bash
 magnet:?xt=urn:btih:D1FB93717681C2C029639D9A6AC8CE320A1A92F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ Ao no Exorcist: Kyoto Fujouou Hen / Синий Экзорцист: Нечест�
 magnet:?xt=urn:btih:E83C6DDB8F846C383BDCA020E448CD98D050EEBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Howl's Moving Castle / Ходячий замок [2004] BDRip 384p raw + rus
 ```bash
 magnet:?xt=urn:btih:08600A6DF7FBBF87AC1C1B83CFC5DE53D735DE20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Gake no ue no Ponyo / Рыбка Поньо на утесе [2008] BDRip 720p ra
 magnet:?xt=urn:btih:7ADBF78A06E58CD347AECBFF6F499B017B19EDC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Netoge no Yome wa Onnanoko ja Nai to Omotta? / А ты думал, что дев
 magnet:?xt=urn:btih:C4526292AEA861EE629002A09443BA09B0978825
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Re-Kan! / Ре-Кан! [2015, TV, 13] HDTV 720p rus
 ```bash
 magnet:?xt=urn:btih:CE095596FEE240AB34D9530A594906FBD2FC7EA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ Sailor Moon, её четыре подруги по сражениям (Мерк�
 magnet:?xt=urn:btih:AB8F6618CCB27788D2725FD32801990651483FAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ Mayoiga / The Lost Village / Пристанище потерянных [2016, TV
 magnet:?xt=urn:btih:FE5324D70DDD5EF39FAC1E0F3AAC1848A078FB6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ Boku no Hero Academia / My Hero Academia / Моя геройская акаде�
 magnet:?xt=urn:btih:EDC392DFBA468ED643202DD5668FE90B6281CD83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Big Order / Приказ свыше [2016, TV, 10] HDTV 720p raw+rus
 ```bash
 magnet:?xt=urn:btih:E4B6019602F2B3340BFF52EC89157823A336205E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

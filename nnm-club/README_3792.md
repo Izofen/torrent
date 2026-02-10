@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:A18265A0D306637AB8B743631038227EEF3366E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:A18265A0D306637AB8B743631038227EEF3366E3
 ```bash
 magnet:?xt=urn:btih:5EA61787ADFEC7210A89C906B432DF4C575E6C1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:5EA61787ADFEC7210A89C906B432DF4C575E6C1E
 magnet:?xt=urn:btih:74E556ACA15960336B4A0CEDCB4CD8B382BFE96A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:74E556ACA15960336B4A0CEDCB4CD8B382BFE96A
 ```bash
 magnet:?xt=urn:btih:7E3CD3C76889ED15A6EC4A0A9C7B6D9D465CE3B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:7E3CD3C76889ED15A6EC4A0A9C7B6D9D465CE3B9
 magnet:?xt=urn:btih:3F9FE9AFDE0351326376CFF1EC56E0C9757E9DE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:3F9FE9AFDE0351326376CFF1EC56E0C9757E9DE6
 ```bash
 magnet:?xt=urn:btih:240E50C5116B45D8FF1FBE5A8D2C92642A30AB67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Stepik | Терминал Linux. Основы работы в командной
 magnet:?xt=urn:btih:38C8CF895D08733FC77646A24D5EF37FC80875F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:38C8CF895D08733FC77646A24D5EF37FC80875F4
 ```bash
 magnet:?xt=urn:btih:8E47EC30390BB2EDE935789C6218A96BB91A03AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ FL Studio - это одна из лучших программ для созда
 magnet:?xt=urn:btih:5A0BAA32CEBCF9AD1BF0C40DB7C8FAE3C84F0EAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ The Inquisitor - это сюжетная приключенческая игра
 magnet:?xt=urn:btih:6F6823D379EC4FA3371EFFE781E39D253EBFCE1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:6F6823D379EC4FA3371EFFE781E39D253EBFCE1C
 ```bash
 magnet:?xt=urn:btih:DF3D6D01978A357F47B6EF82FDE268C0E8869BB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:DF3D6D01978A357F47B6EF82FDE268C0E8869BB7
 magnet:?xt=urn:btih:81C695AFAA273F34A64B4D188E6B744338B81BE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Heretic HD PBR - масштабный мод, созданный разрабо�
 magnet:?xt=urn:btih:C0308B5F541EFE1358A7E2D995549379C9799C36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Weird West (2022) [Ru/Multi] (1.78819/dlc) Repack Decepticon [Definitive Edition
 ```bash
 magnet:?xt=urn:btih:8E03A15415E0391995A75CA45006F7B94802422C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:8E03A15415E0391995A75CA45006F7B94802422C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Lizards Must Die / Русы против ящеров (2023) [Ru/En] (20240204/d
 ```bash
 magnet:?xt=urn:btih:BF9A54BD1A091E586B226BC0DD27F1C58BC9FE76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ macOS Sonoma открывает новые возможности для раб�
 magnet:?xt=urn:btih:30D489CD8B86B198F31CA382D50E260D7EDA3273
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Dungeons 4 - это фэнтезийная стратегия в реально�
 magnet:?xt=urn:btih:D560DAD87DF86418A5B52119111A37BEF7EF50DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:D560DAD87DF86418A5B52119111A37BEF7EF50DC
 ```bash
 magnet:?xt=urn:btih:8B3EBFD7E8F5104AA84180B316AE9413755F7EA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:8B3EBFD7E8F5104AA84180B316AE9413755F7EA1
 magnet:?xt=urn:btih:EFA5ACEF87743E8FC308353ABAC799581A787191
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:EFA5ACEF87743E8FC308353ABAC799581A787191
 magnet:?xt=urn:btih:4F6B070DB334F9E0016A0E704B8626BA8BF15C61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:4F6B070DB334F9E0016A0E704B8626BA8BF15C61
 ```bash
 magnet:?xt=urn:btih:F105D4B15E2E49970860E3ADF3D0FCF213C55DEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ The Little Schemer – не просто введение в функциона�
 magnet:?xt=urn:btih:B01D22D357B8C7A9BE9E62EFDE6EEF9175D1C8BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:B01D22D357B8C7A9BE9E62EFDE6EEF9175D1C8BB
 ```bash
 magnet:?xt=urn:btih:6FC0F0F5CC4C2FE2ADC486FF307DFF2C26910422
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:6FC0F0F5CC4C2FE2ADC486FF307DFF2C26910422
 magnet:?xt=urn:btih:F14BD2D8443845A8BC6D4068944DC3D3B3809D7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ FL Studio Producer Edition - это одна из лучших программ 
 ```bash
 magnet:?xt=urn:btih:1CA791C7ACC3E52D72424560CD64B3013105E754
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Greedland - это игра, предоставляющая поклонника
 magnet:?xt=urn:btih:964890935326B63859F147E4DCD2BAC4849BECFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NODE: The Last Favor of the Antarii / NODE: последняя услуга Ан
 ```bash
 magnet:?xt=urn:btih:A0C8AF6D3590BD6B48DAFF1A6D837AD58A33E88A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Dead Reset (2025) [Ru/Multi] (1.0.2) Repack Other s
 magnet:?xt=urn:btih:20D9A92FFFF1FA1FE599FB7CD3B700CC182E1CD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Bad Cheese - это психологический хоррор, вдохнов�
 ```bash
 magnet:?xt=urn:btih:24709F32BE877C3E7F5854524E9AB98131AF5139
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Firefighting Simulator: Ignite (2025) [Ru/Multi] (1.0003.28253.87380/dlc) Repack
 magnet:?xt=urn:btih:B162EBF46B52B33ABB8149BE44407AE5D59CDA7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Mortal Sin - хаотичная и кровавая игра в жанре rogue
 ```bash
 magnet:?xt=urn:btih:FD6A60A4CA1994984CCCB135F25BB13D01F63E77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Knights of the Crusades (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:6DC83D59F8840AB0A44C340339112561600289AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Lost Skies (2025) [Ru/Multi] (1.0.79-50871/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:1995395CA736AF599DC9D44071F5A270FA99D224
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Dying Light: The Beast (2025) [Ru/En] (1.2.0/dlc) Repack Decepticon [Deluxe Edit
 magnet:?xt=urn:btih:69A2B769C277E9BC3DA9620B07AC7E45A8AC63C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Dying Light: The Beast (2025) [Ru/Multi] (1.2.0/dlc) Repack seleZen [Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:68274B244807BF8C76402717191D87A722DB9386
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Firefighting Simulator Ignite (2025) [Ru/Multi] (1.0005.28457.87919/dlc) Repack 
 magnet:?xt=urn:btih:9ACABC378E91049B41E4AF8D0FF37DC59F50869B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Lost Skies (2025) [Ru/Multi] (1.0.79) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:3DDB9D63E58CABAAD3B542CE764700BBD57482D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Dying Light: The Beast (2025) [Ru/Multi] (1.2.0/dlc) Repack FitGirl [Deluxe Edit
 magnet:?xt=urn:btih:470AC366684BFE14CDC51D0F0DFBDAAB5A85730A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Formula Legends отправляет вас в увлекательное пут
 ```bash
 magnet:?xt=urn:btih:C110701B42F338263A4BE8B715D8A1D0097D01C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ NODE: The Last Favor of the Antarii (2025) [Ru/Multi] (1.0.7) Repack Let'sРlay
 magnet:?xt=urn:btih:8C13D32F151DEDD9B7B4370B4AA35C5F7AD59F2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Shape of Dreams (2025) [Ru/Multi] (r.1.0.6.2_s) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:52313D83A070DCDDDFA83B5A9ACB7E8A05EE7CCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Ammo and Oxygen (2025) [Ru/Multi] (1.2) Repack Let'sРlay
 magnet:?xt=urn:btih:EE558C27DEA3CD930E8E18DCB7CAA9DD1491B702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Hordes of Hel - захватывающая игра-рогалик с элеме
 ```bash
 magnet:?xt=urn:btih:0DE0248C292D805EC4457569610E13A2886F207D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Hordes of Hel - захватывающая игра-рогалик на выжи
 magnet:?xt=urn:btih:A9AC4E01564E85BEA69BC94494A01C720C3BAE5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Cronos: The New Dawn - это новое слово в жанре survival horro
 ```bash
 magnet:?xt=urn:btih:6C13C9ADC50015E41983227235D2A7BBFEAF8ECD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ JETRUNNER (2025) [Ru/Multi] (1.0.4/dlc) Repack Let'sРlay [Founders Edition]
 magnet:?xt=urn:btih:637CFDCFA657EA446E3CBE7643D2168342EA6116
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Warhammer 40,000: Dawn of War (2025) [Ru/Multi] (2.2.1.1) Repack Let'sРlay [Def
 ```bash
 magnet:?xt=urn:btih:49CEB1ABD9E40AB236BD08AA90B2469C91B6E84A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ JETRUNNER (2025) [Ru/Multi] (1.0.1-dragon-0694/dlc) Repack FitGirl [Founders Edi
 magnet:?xt=urn:btih:D5268D380E5D68A8EC82F61CFAE2B35D785D1B01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Star Fire Eternal Cycle (2025) [Ru/Multi] (1.26.325) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:AAFF2F4EEA4B1266FE4841EF8244444F9D0CF9D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Beyond Sunset – это яркий неоновый экшн, в котором
 magnet:?xt=urn:btih:9807D5184403E2A3E2D558F24DC621D3AC984FD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Tokyo Underground Killer (2025) [Ru/Multi] (1.0.3) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:DFD3A054CBD21580C06449FCBF2E696CE5461D31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

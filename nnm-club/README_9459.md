@@ -19,6 +19,8 @@ Ranma 1/2: Chuugoku Nekonron Daikessen! Okite Yaburi no Gekitou Hen!! | Ranma 1/
 magnet:?xt=urn:btih:C12123E2AB60E9A4EA2F2E15EF0DFD0C808109BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:C12123E2AB60E9A4EA2F2E15EF0DFD0C808109BC
 ```bash
 magnet:?xt=urn:btih:01A0A1BBEF34CF9DBEFD4530F785A4D638C70C3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Ranma 1/2 OVA | Ranma Nibun no Ichi OVA | Ранма 1/2 OVA [1993, OVA, 6 из 
 magnet:?xt=urn:btih:ACA2C542D77EDD6012F3F45680A0DDAC23E5E26C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Assassin's Creed: Syndicate / Assassin's Creed: Синдикат (2015) [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:E64B1DE8CD0A31D418E792A635AAF2079DC13F4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Ranma 1/2 Super | Ranma Nibun no Ichi Super | Ранма 1/2: Супер [1995, 
 magnet:?xt=urn:btih:7E5139CDFB9805661D6F9735BFFBC28C170DD603
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ DLL Suite позволяет поддерживать в актуальном с
 ```bash
 magnet:?xt=urn:btih:88DE3A52AF929CEDE26471CB30CEEFEE1FA1DB03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Ranma 1/2: Chou Musabetsu Kessen! Ranma Team vs. Densetsu no Houou | Ranma 1/2: 
 magnet:?xt=urn:btih:E4C6867A092D446F2CC60AD554A8BF3323E5D330
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Ranma 1/2 Special | Ranma Nibun no Ichi Special | Ранма 1/2: Специал
 ```bash
 magnet:?xt=urn:btih:4FC2DC774D380A34984470B82A291CF4BFE56C63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Acronis True Image — это интегрированный пакет прог
 magnet:?xt=urn:btih:28A61CB3F68B196A3AF298BE7D1DF59600B3AB6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:28A61CB3F68B196A3AF298BE7D1DF59600B3AB6F
 ```bash
 magnet:?xt=urn:btih:114AAF1280BE19822567D1931DC8EBB927E2D521
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ VA - 80's Dance Workout Experience (2019) [MP3|320 Kbps] <House, Dance>
 magnet:?xt=urn:btih:213B1FE66CE73D60D93FC583D6085984F04EA0E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:213B1FE66CE73D60D93FC583D6085984F04EA0E4
 ```bash
 magnet:?xt=urn:btih:BE34802635E11E4C63DEE32B5329C390D3B0D147
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ VA - Radio DFM Top D-Chart Октябрь 2019 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:FCC3F6E48CDB22F3DCA7A3D52A88B63FEF360D77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Adobe Premiere Pro CC 2015 - профессиональная программа
 ```bash
 magnet:?xt=urn:btih:A4B8DAB3E32C3BCAD178EB098B94EABBC10D80A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ VA - Сборник Авторадио Дискотека 80-х, 90-х. Музы
 magnet:?xt=urn:btih:3676961CB322F391FEF3E0FF632D7F1D0D8B73D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ Dishonored – увлекательный и необычный экшен, в �
 ```bash
 magnet:?xt=urn:btih:77BAC65A6CAB523C23B267572D2228BC92DB524B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:77BAC65A6CAB523C23B267572D2228BC92DB524B
 magnet:?xt=urn:btih:C0023B443F2E5391B6CD3B99B733EAA876CBE71C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:C0023B443F2E5391B6CD3B99B733EAA876CBE71C
 ```bash
 magnet:?xt=urn:btih:7347D5D53553B91AB3ECE91FDD1CE512821F3455
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ Advanced SystemCare PRO обеспечивает автоматический в
 magnet:?xt=urn:btih:574D81C469342B15636C7EAA9B71AC4BA4D17B9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:574D81C469342B15636C7EAA9B71AC4BA4D17B9E
 ```bash
 magnet:?xt=urn:btih:A78E51C461C183845969FFA200ADDF612E0E0F12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:A78E51C461C183845969FFA200ADDF612E0E0F12
 magnet:?xt=urn:btih:84E4DFACF67D0DAC8928250F7DC268F38C338CB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ Adobe Audition CC 2015.1 8.1.0.162 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DEE4CA0C0E1AB8995CEA92D2970F1C7D90578EE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:DEE4CA0C0E1AB8995CEA92D2970F1C7D90578EE9
 magnet:?xt=urn:btih:E1D5B779E0263909449973269771BAE68366CF36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:E1D5B779E0263909449973269771BAE68366CF36
 ```bash
 magnet:?xt=urn:btih:70D09267438DF67BED57EE556D932979BB1407CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ magnet:?xt=urn:btih:70D09267438DF67BED57EE556D932979BB1407CF
 magnet:?xt=urn:btih:066869179E6BB89BC9D2FC3CE2756440A9FA7A5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:066869179E6BB89BC9D2FC3CE2756440A9FA7A5B
 ```bash
 magnet:?xt=urn:btih:2B434BB58ADF129D3362D16DBDDE32752F9A423E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

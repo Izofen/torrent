@@ -1,3 +1,29 @@
+###  Публикация: 1094146   (930127) от 17.01.2017
+
+А. В. Шевчук и др. | Основы выживания в экстремальных условиях (2016) [PDF]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь человека всегда была сопряжена с опасностями. Не случайно наши далекие предки, делая первые шаги по пути эволюции, учились использовать камень не только как орудие труда, но и как оружие. Борьба за существование заставляла людей цепляться за жизнь, приспосабливаться к любым невзгодам, смело идти навстречу опасностям. Человек всегда обладал способностью адаптироваться (   Читать дальше...   )Жанр: выживаниеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45146B8D98DD6AD18471E9DDDFD4A486CBEC6257
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093973   (930130) от 17.01.2017
 
 Олег Андреев | Техника развития внимания (2007) [PDF]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:68EAD04221E99A046E9C754EF377E90B93A26E1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:68EAD04221E99A046E9C754EF377E90B93A26E1B
 ```bash
 magnet:?xt=urn:btih:A62E64E08EE9A2A0812CF6E0827BB1FF3001420F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:A62E64E08EE9A2A0812CF6E0827BB1FF3001420F
 magnet:?xt=urn:btih:C2BCA0E523DD85C6CFC2496AA78EE8F56C4A688C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:C2BCA0E523DD85C6CFC2496AA78EE8F56C4A688C
 magnet:?xt=urn:btih:DF63A02E5A38B6A78CCAF4DB487B90FAD40A0284
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:DF63A02E5A38B6A78CCAF4DB487B90FAD40A0284
 ```bash
 magnet:?xt=urn:btih:CA6BDE83560E468091144BBB624952EE39D28446
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:CA6BDE83560E468091144BBB624952EE39D28446
 magnet:?xt=urn:btih:CEFBC285061EF142483BF8B4B904EC3222384048
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:CEFBC285061EF142483BF8B4B904EC3222384048
 ```bash
 magnet:?xt=urn:btih:484E62BD1AFEB37CB9BA85C4F4FC325A25DB39CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:484E62BD1AFEB37CB9BA85C4F4FC325A25DB39CF
 magnet:?xt=urn:btih:B48F539AF72AA6CCCF23864BF1E68802179B0C45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:B48F539AF72AA6CCCF23864BF1E68802179B0C45
 ```bash
 magnet:?xt=urn:btih:DED7935F5A8660A6DAC3CE385C190D9AD684F6AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:DED7935F5A8660A6DAC3CE385C190D9AD684F6AC
 magnet:?xt=urn:btih:7B4256A594BA454433FF8503A93D2712160680EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:7B4256A594BA454433FF8503A93D2712160680EC
 magnet:?xt=urn:btih:7E9F050EAB6B2C1FB8291DD402FF7949DC089F9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:7E9F050EAB6B2C1FB8291DD402FF7949DC089F9A
 ```bash
 magnet:?xt=urn:btih:F13C75B2659EE7331A6BE5F79B5026EE45257CE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:F13C75B2659EE7331A6BE5F79B5026EE45257CE8
 magnet:?xt=urn:btih:422D0E9390BEE4530C0893408632626AC8FA3E31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:422D0E9390BEE4530C0893408632626AC8FA3E31
 ```bash
 magnet:?xt=urn:btih:73AD00009BE494D6C107A1AEDF6AE1BFF79049A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:73AD00009BE494D6C107A1AEDF6AE1BFF79049A2
 magnet:?xt=urn:btih:97BB9BBDB32641D2E814748BB32B425621E38056
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:97BB9BBDB32641D2E814748BB32B425621E38056
 magnet:?xt=urn:btih:FABC031F14F209D07DBCCC0164078C4630034013
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:FABC031F14F209D07DBCCC0164078C4630034013
 ```bash
 magnet:?xt=urn:btih:4A3F40BA6A96D22F8F710D737AD154A80AAAE458
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:4A3F40BA6A96D22F8F710D737AD154A80AAAE458
 magnet:?xt=urn:btih:04812AED459095A0B19B2BFE439ABE19FD7BC960
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:04812AED459095A0B19B2BFE439ABE19FD7BC960
 ```bash
 magnet:?xt=urn:btih:DAE97A9361CE6EF5F24933F82564199A8A8CBB2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:DAE97A9361CE6EF5F24933F82564199A8A8CBB2A
 magnet:?xt=urn:btih:B692DFBCBDD99D708D09811E8D2C28A2CB0C68FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:B692DFBCBDD99D708D09811E8D2C28A2CB0C68FF
 ```bash
 magnet:?xt=urn:btih:F177E50ECCAC0DC623DBC36EB581C57A9E207314
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:F177E50ECCAC0DC623DBC36EB581C57A9E207314
 magnet:?xt=urn:btih:8A649BC4EB03E1F24020728957C4FD234A121708
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:8A649BC4EB03E1F24020728957C4FD234A121708
 magnet:?xt=urn:btih:FCFAD576B603066AEAD521D31AEC1A2C2B6A7F34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:FCFAD576B603066AEAD521D31AEC1A2C2B6A7F34
 ```bash
 magnet:?xt=urn:btih:7576D39E549CFF91E8E203BABC660D1A566E6D9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,29 +682,7 @@ magnet:?xt=urn:btih:7576D39E549CFF91E8E203BABC660D1A566E6D9E
 magnet:?xt=urn:btih:6E248286551816A266F05BEBEFE14E68087E09C0
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365491   (930424) от 07.03.2020
-
-Джеймс Бидуэлл | Это прорыв! 100 уроков бизнес-инноваций (2019) [EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инновации меняют наш мир. Как отследить перспективные инновационные тренды и использовать их для развития своего бизнеса? Автор книги – главный акционер и генеральный директор Springwise, агрегатора открытий и интересных разработок. Его команда отбирает изобретения, ориентируясь не столько на их технологическую изощренность и фантастичность перспектив, сколько на (   Читать дальше...   )Жанр: Инновации в бизнесеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78BD05BCF8C4AA14D41BBC3326636661C36B5C22
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

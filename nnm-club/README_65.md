@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5DCA40A6A8E1AE9346E3388C327C5848B5ACA0E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ SCP Pandemic – игровой проект, разработанный в жа
 ```bash
 magnet:?xt=urn:btih:8BC0DB7410D0276DE8ACF792464575A7E6D65582
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:8BC0DB7410D0276DE8ACF792464575A7E6D65582
 magnet:?xt=urn:btih:4520247CA07C1FCC5E15D8482D2BD5D1263D00B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ RoadCraft (2025) [Ru/Multi] (4.0.526486 526543/dlc) Repack FitGirl [Rebuild Edit
 ```bash
 magnet:?xt=urn:btih:AFA10C267CB4D1E5CB98EAD3E299C2E27DF06500
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:AFA10C267CB4D1E5CB98EAD3E299C2E27DF06500
 magnet:?xt=urn:btih:DA8A2E240DDEA071A607C7A70D45405FE3698BDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:DA8A2E240DDEA071A607C7A70D45405FE3698BDE
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:DA8A2E240DDEA071A607C7A70D45405FE3698BDE
 magnet:?xt=urn:btih:6D8ABD0E7F0A75ED2DD9985E9BD8BE486652B467
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:6D8ABD0E7F0A75ED2DD9985E9BD8BE486652B467
 ```bash
 magnet:?xt=urn:btih:9AF9BD5F3594DD012B343E1E3A291269F2ADE228
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Rise of Industry 2 (2025) [Ru/Multi] (1.2.0/dlc) Repack FitGirl [Deluxe Edition]
 magnet:?xt=urn:btih:85FE6F1F872F142A4BB99C94F5DAD0D9EEF508C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ TerraTech Worlds - игра на выживание с крафтом и стр�
 ```bash
 magnet:?xt=urn:btih:2F0C24196F617D5CB075C23282ADF59249B36227
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Kizetsu Yuusha to Ansatsu Hime / The Shy Hero and the Assassin Princesses / Об
 magnet:?xt=urn:btih:A57199210AB537B99DE9D92F33EE590093C9B063
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Yuusha Party o Tsuihou Sareta Shiro Madoushi, S Rank Boukensha ni Hirowareru / �
 ```bash
 magnet:?xt=urn:btih:58DD2027D237D81A59D35A7B40A308803D2A62B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:58DD2027D237D81A59D35A7B40A308803D2A62B4
 magnet:?xt=urn:btih:FF6858BFB021FDB575ABA54F7F0551AEB23C163C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ AIDA64 - является мощным средством для идентиф�
 ```bash
 magnet:?xt=urn:btih:9483A9C03CB3F65BAFD829F6EB65024DC0627A05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:9483A9C03CB3F65BAFD829F6EB65024DC0627A05
 magnet:?xt=urn:btih:B92837B7C55ABC49C5181DD5CD4154700CC7775B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Last Epoch – приключенческая экшен-игра с глубо�
 ```bash
 magnet:?xt=urn:btih:7AA116C01DEC16F0183EC7C5C381C8DFC4AD28A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Sono Bisque Doll wa Koi o Suru 2 / My Dress-Up Darling 2 / Эта фарфоро
 magnet:?xt=urn:btih:0D79E261CD61ABAD0F355CDF72A74183C4528A9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Tsuihousha Shokudou e Youkoso! | Welcome to the Outcast's Restaurant! | Добр
 magnet:?xt=urn:btih:B0763686BED68F27D7B3DD5B04D9895FDEF4F8AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:B0763686BED68F27D7B3DD5B04D9895FDEF4F8AD
 ```bash
 magnet:?xt=urn:btih:A2E9699CF5791993727C30F54D7684D6B04B2251
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Code of Brawl OST(   Читать дальше...   )Тип издания: Comm
 magnet:?xt=urn:btih:F7BBAA57AF6E756FBDEFA30576FE8EA6597782CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Microsoft Office 2024 16.101 (25091314) [En/Ru]
 magnet:?xt=urn:btih:3F4D812AFB068826B9F3430F95D8696A917D8BD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:3F4D812AFB068826B9F3430F95D8696A917D8BD6
 ```bash
 magnet:?xt=urn:btih:55EB1F1E6C7F6E7A38EF5FC2D7964194FF9B0A49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ Linux предлагает стабильность и кастомизацию,
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ Linux предлагает стабильность и кастомизацию,
 magnet:?xt=urn:btih:51592247FA64033C13F60EB02180C3DAA2980F65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:51592247FA64033C13F60EB02180C3DAA2980F65
 magnet:?xt=urn:btih:F63A03BBFB373D13F1E8908EB7CC0BC19DBAB1B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:F63A03BBFB373D13F1E8908EB7CC0BC19DBAB1B6
 ```bash
 magnet:?xt=urn:btih:B48F6B0083ED8A435C58D1AE1F2BEE93A9F880A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

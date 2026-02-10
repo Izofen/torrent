@@ -1,3 +1,31 @@
+###  Публикация: 518329   (642748) от 03.07.2012
+
+Пейзажи времени / Timescapes (2012) [1080p] Blu-ray
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642748.jpg" />
+</div>
+
+
+###  Подробнее
+
+TimeScapes - дебютный фильм от награжденного призом кинематографиста и режиссера Тома Лоу. Особенности фильма ошеломляющая замедленная съемка и кинематография пейзажей, людей, и дикой природы американского Юго-запада. Лоу провел 2 года, колеся по Юго-западу в пикапе Тойоты, в поисках подходящих сцен для фильма.
+
+Для Тома замедленная съемка начиналась как хобби. перенося трудности, он ночевал бы под открытым небом в местах, таких как Национальный парк Йосемити, или Национальный парк Юкки коротколистной, снимая ночное небо.Жанр: ДокументальныйПеревод: не требуетсяПродолжительность: 00:48:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64A808CE646ACB1384DAE51F47387DD46F825777
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227898   (642768) от 28.05.2018
 
 Фашизм в цвете / Fascism in Colour (2006) HDTVRip [H.264/720p-LQ] (Серии 1 из 2) (Обновляемая)
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:F69D4E0B059067241FFAF299DD2DEA0D54C39318
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +73,8 @@ BBC: Викторианская ферма [6 из 6] / Victorian Farm (2009) DV
 magnet:?xt=urn:btih:6E3E499A541408D9F82A9D20B6A709D6EC620BA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +98,8 @@ magnet:?xt=urn:btih:6E3E499A541408D9F82A9D20B6A709D6EC620BA8
 ```bash
 magnet:?xt=urn:btih:4359890A01841445EACEF8943B883F79BC831741
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +125,8 @@ magnet:?xt=urn:btih:4359890A01841445EACEF8943B883F79BC831741
 magnet:?xt=urn:btih:306592704FE89A0049C8A25F421456B177C18DC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +150,8 @@ magnet:?xt=urn:btih:306592704FE89A0049C8A25F421456B177C18DC5
 ```bash
 magnet:?xt=urn:btih:1615F05D85CA6D0F9BEEE9326EFDF9BF3623B35D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +177,8 @@ magnet:?xt=urn:btih:1615F05D85CA6D0F9BEEE9326EFDF9BF3623B35D
 magnet:?xt=urn:btih:A830FD69952468520C04E9B389196C703ACBF7D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +203,8 @@ magnet:?xt=urn:btih:A830FD69952468520C04E9B389196C703ACBF7D2
 magnet:?xt=urn:btih:E98AF9689BADD09E443FC78A4AFB8A7D1049456C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +228,8 @@ magnet:?xt=urn:btih:E98AF9689BADD09E443FC78A4AFB8A7D1049456C
 ```bash
 magnet:?xt=urn:btih:8A7653E590409EF2C48F4163B563BD1E4A4F828D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +258,8 @@ magnet:?xt=urn:btih:8A7653E590409EF2C48F4163B563BD1E4A4F828D
 magnet:?xt=urn:btih:5CA5760BF2DE4EE9198E6AC68D670C7377E8B4DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +283,8 @@ magnet:?xt=urn:btih:5CA5760BF2DE4EE9198E6AC68D670C7377E8B4DE
 ```bash
 magnet:?xt=urn:btih:B24EC2D6875A13189C1E4ADD8297B5F35BC6354B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +310,8 @@ magnet:?xt=urn:btih:B24EC2D6875A13189C1E4ADD8297B5F35BC6354B
 magnet:?xt=urn:btih:5AAC93944C0E2C75297549741B028B872CA7F7D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +335,8 @@ magnet:?xt=urn:btih:5AAC93944C0E2C75297549741B028B872CA7F7D6
 ```bash
 magnet:?xt=urn:btih:9B5EECBF73A776E1F2633FD1D1BD7F1DED272904
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +364,8 @@ magnet:?xt=urn:btih:9B5EECBF73A776E1F2633FD1D1BD7F1DED272904
 ```bash
 magnet:?xt=urn:btih:21364EC11D6B0D899CD48A82A52FF222B81826AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +396,8 @@ magnet:?xt=urn:btih:21364EC11D6B0D899CD48A82A52FF222B81826AD
 magnet:?xt=urn:btih:78F9860DCD3F6A77E65555697DD2A6185A64397D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +421,8 @@ magnet:?xt=urn:btih:78F9860DCD3F6A77E65555697DD2A6185A64397D
 ```bash
 magnet:?xt=urn:btih:5901B7DA43730F4C4F3D731CBF6E1BE9E2A35A59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +453,8 @@ magnet:?xt=urn:btih:5901B7DA43730F4C4F3D731CBF6E1BE9E2A35A59
 magnet:?xt=urn:btih:E64CD0B615A9D7607176EA9AB64C54B92D808EAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +478,8 @@ magnet:?xt=urn:btih:E64CD0B615A9D7607176EA9AB64C54B92D808EAC
 ```bash
 magnet:?xt=urn:btih:5743E5F8F464B6E7E6E276B996468D0789E2B203
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +505,8 @@ magnet:?xt=urn:btih:5743E5F8F464B6E7E6E276B996468D0789E2B203
 magnet:?xt=urn:btih:E55C41BAEDE0A795BAAAFAE00EB784622209D30B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +530,8 @@ magnet:?xt=urn:btih:E55C41BAEDE0A795BAAAFAE00EB784622209D30B
 ```bash
 magnet:?xt=urn:btih:D066B6FF7E8FA0D1F2F69684C8BE5B62B80AC3BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +557,8 @@ magnet:?xt=urn:btih:D066B6FF7E8FA0D1F2F69684C8BE5B62B80AC3BD
 magnet:?xt=urn:btih:BB028D510FE63CE343161C84E5A03AA70E2201CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +582,8 @@ magnet:?xt=urn:btih:BB028D510FE63CE343161C84E5A03AA70E2201CF
 ```bash
 magnet:?xt=urn:btih:5E1982B5E0B5D5813B20923FFCA7F8C7E16D2BB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +609,8 @@ magnet:?xt=urn:btih:5E1982B5E0B5D5813B20923FFCA7F8C7E16D2BB0
 magnet:?xt=urn:btih:71B6A466C70C6624E30EE16E9DF6CA9A946CE4E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +634,8 @@ magnet:?xt=urn:btih:71B6A466C70C6624E30EE16E9DF6CA9A946CE4E5
 ```bash
 magnet:?xt=urn:btih:A8066C1E34E5E12C68D03AB6E174A1B10F9D1A48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +661,8 @@ magnet:?xt=urn:btih:A8066C1E34E5E12C68D03AB6E174A1B10F9D1A48
 magnet:?xt=urn:btih:FAD1C3F0387BEF726EAD1600ECB609EFEA41419F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,29 +687,7 @@ magnet:?xt=urn:btih:FAD1C3F0387BEF726EAD1600ECB609EFEA41419F
 magnet:?xt=urn:btih:46C2427423BC55C3A7BC93CD7C61A569D6AF5CE5
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032714   (644115) от 08.07.2016
-
-В центре событий с Анной Прохоровой (08.07.2016) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644115.jpg" />
-</div>
-
-
-###  Подробнее
-
-"В центре событий" о том, что действительно важно: 1. Варшавский договор по-новому. Чего ждать России от саммита НАТО? 2. Брексит как проверка на гибкость. Станет ли Тереза Мэй новой "железной леди"? 3. НацБатя на поруках. Что осталось от закона на Украине и чего ещё потребуют карательные батальоны?Телекомпания: ТВ-ЦентрЖанр: ТелепередачаПродолжительность: 00:52:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4228E33BA97EC005B096472B29737E258CF0119
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

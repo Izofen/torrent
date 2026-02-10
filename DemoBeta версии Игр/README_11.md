@@ -19,6 +19,8 @@ MadOut Open City (2015) [Ru/En] (08-02-2016) Unofficial [Early Access]
 magnet:?xt=urn:btih:66DB316F3A3F89233219577441822CFA84C7B83D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ RoboMatch (2017) [Ru/Multi] (GreenLight Demo) License
 ```bash
 magnet:?xt=urn:btih:B35743E5589A183F8B242A7107BF1FC8609F9467
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Space Engineers или Космические инженеры – это игр
 magnet:?xt=urn:btih:AB131B9AFCB3B052B3C91D37150DD972F7F71FFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Empyrion - Galactic Survival — это приключенческий косм�
 magnet:?xt=urn:btih:62A8F9DE5CAAB33DC04008C7BA16F48E0BF73B32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Out of Reach (2015) [Ru/Multi] (0.24) Repack Other s
 ```bash
 magnet:?xt=urn:btih:91BF54A48C7D490B9CE1727241960917E8966EAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ StarCraft II: Heart of The Swarm [En] (Beta) 2013 | [Установленная]
 magnet:?xt=urn:btih:AFD704E9F5D9D646D95A4A275D2CAD623C100F6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ The Architect: Paris (TA:P) - строительная игра. Преврат�
 ```bash
 magnet:?xt=urn:btih:B768552A214A122DA0EF035B9541FA19787790F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Outer Colony - грандиозный научно-фантастический 
 magnet:?xt=urn:btih:384531AF8186E5AA971274E2A257AF3676F8169A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ DYSMANTLE (2020) [En] (0.6.9.11) Repack Other s
 ```bash
 magnet:?xt=urn:btih:77429DE39E4E73795E883AFFB2DFA8056143CB5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ ATOM RPG: Trudograd (2020) [Ru/En] (0.8.1) Repack Other s
 magnet:?xt=urn:btih:6A8173A39AB2BF2D23E6EDAEFC5051FFD8D9115B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Grounded — игра на выживание, в вымышленном мир�
 ```bash
 magnet:?xt=urn:btih:1F768A4C4A9651E543A93FD6113B3AEA388F83D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Medieval Dynasty (2020) [Ru/Multi] (0.3.1.4) Repack xatab [Early Access]
 magnet:?xt=urn:btih:DC1F3A2E6970B4BEE2973B78CD391C63CA3EC0BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Valheim (2021) [Ru/Multi] (0.145.6) Repack xatab [Early Access]
 ```bash
 magnet:?xt=urn:btih:237964D5EEB4C174F2B04FFDCE9A963FFA75288E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ My Summer Car - единственный в своём роде симулято
 magnet:?xt=urn:btih:EA366FE5C9D56052634C40DCFA03F57299A16C9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Sons Of The Forest (2023) [Ru/Multi] (32361) Repack Chovka [Early Access]
 ```bash
 magnet:?xt=urn:btih:EA7BBA0995115E51933432F51D3FE218F76EFE25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ DYSMANTLE — забавная РПГ с элементами экшена в и
 magnet:?xt=urn:btih:97CBFB3376095F278A6F6AF8525D9923626A49C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Call to Arms: Panzer Elite – это захватывающий симулят�
 ```bash
 magnet:?xt=urn:btih:C1BB78ECDCA8346245D0BD34EC294001800A012B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ Hollywood Animal (2025) [Ru/Multi] (0.8.62EA) Repack Let'sРlay [Early Access]
 magnet:?xt=urn:btih:75CB0F6F280C71404EDBCC08AC0E17C4FA93D1CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ Whiskerwood (2025) [Ru/Multi] (0.6.157.0) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:9DCE90EA43636D617CF2918594BB9D26A5CB7EAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ Project Zomboid - многообещающая Survival-RPG, в которой �
 magnet:?xt=urn:btih:34D5770A521232E0610D3017CD09435A2ECAF690
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ Star Birds – это яркая и красочная экономическа�
 ```bash
 magnet:?xt=urn:btih:A62339729B2A6D9132B4EE06F2D89B83D913B56A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ He is Coming (2025) [Ru/Multi] (0.8.33) License GOG [Early Access]
 magnet:?xt=urn:btih:6554D9BBA516BFA856A87096B584765C3F668F2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ DeadPoly – игровой проект, разработанный в стил
 ```bash
 magnet:?xt=urn:btih:37E244E870BBA9ECAAC0AA40B59DC8707367F3E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ Fata Deum - The God Sim / Fata Deum - Симулятор Бога (2025) [Ru/Mul
 magnet:?xt=urn:btih:F3F52C048EE88C66C9D5EE02836445ACC0806FF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ Typhon: Bot vs Bot (2025) [En] (0.1.2) License GOG [Early Access]
 magnet:?xt=urn:btih:B35EF55358ED07B8B53153401E3D501C57C3DACC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Stationeers – это космический конструктор с хоро
 ```bash
 magnet:?xt=urn:btih:9274F6365579BBDA4A4F57033FD79A16C32B1647
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

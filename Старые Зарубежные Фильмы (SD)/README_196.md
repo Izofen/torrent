@@ -1,28 +1,3 @@
-###  Публикация: 646835   (860593) от 21.04.2013
-
-Гарри и Хендерсоны / Harry and the Hendersons (1987) HDTVRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Семье Хендерсонов пришлось поверить в существование снежного человека после того, как их машина сбила на лесной дороге огромное мохнатое существо. Глава семейства, Джордж, принимает решение доставить бездыханное тело в научный центр или музей для изучения. В дороге «мохнатик» приходит в себя и поселяется у Хендерсонов под именем Гарри. Он заполняет дом не самым приятным запахом и «наводит порядок». Одним ударом кулака Гарри подгоняет дверной проем под свой рост, затем, погоревав над чучелами убиенных лесных собратьев, срывает эти кощунственные людские игрушки со стен.
-Жизнь среднестатистической американской семьи кардинально меняется с появлением Гарри. Спокойствия им не видать, зато каждый день - новое открытие.Жанр: Фэнтези, комедия, семейныйРежиссер: Уильям ДирАктеры: Джон Литгоу (George Henderson), Мелинда Диллон (Nancy Henderson), Маргарет Лэнгрик (Sarah Henderson), Джошуа Рудой (Ernie Henderson), Кевин Питер Холл (Harry), Дэвид Суше (Jacques Lafleur), Лэйни Казан (Irene Moffitt), Дон Амичи (Dr. Wallace Wrightwood), М. Эммет Уолш (George Henderson Sr.), Билл Онтиверус (Sgt. Mancini), Дэвид Ричардт (Dirty Harry Officer), Жаклин Москоу (DMV Clerk)Перевод: Многоголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 01:50:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:968FEC1C93B038E719C42C571173DCED5AF77D98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109058   (860771) от 26.02.2017
 
 Никогда, нигде, никому / Soha, sehol, senkinek (1988) WEBRip [H.264]
@@ -43,6 +18,8 @@ magnet:?xt=urn:btih:968FEC1C93B038E719C42C571173DCED5AF77D98
 ```bash
 magnet:?xt=urn:btih:EC265D866175D9AA57312AD547584C777D76C52E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +45,8 @@ magnet:?xt=urn:btih:EC265D866175D9AA57312AD547584C777D76C52E
 magnet:?xt=urn:btih:87DAFEBD7DC532FF52F25B44F46B6EBB3FB2083B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +71,8 @@ magnet:?xt=urn:btih:87DAFEBD7DC532FF52F25B44F46B6EBB3FB2083B
 magnet:?xt=urn:btih:3B9F61466BD983307776E88B2FBC989C3DD3F151
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +96,8 @@ magnet:?xt=urn:btih:3B9F61466BD983307776E88B2FBC989C3DD3F151
 ```bash
 magnet:?xt=urn:btih:EC9354ECC1A9D2FE9B5C24A03D8D4FA0FDFC0816
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +124,8 @@ magnet:?xt=urn:btih:EC9354ECC1A9D2FE9B5C24A03D8D4FA0FDFC0816
 magnet:?xt=urn:btih:137A82E7B1D0EB90399A10AFBD986AD1C7EA1450
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +149,8 @@ magnet:?xt=urn:btih:137A82E7B1D0EB90399A10AFBD986AD1C7EA1450
 ```bash
 magnet:?xt=urn:btih:D38B8404879DC6A599561191115A39D592CBCDE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +177,8 @@ magnet:?xt=urn:btih:D38B8404879DC6A599561191115A39D592CBCDE2
 magnet:?xt=urn:btih:55EE1D2A6D0318A99AD695BDC969B156C116C0C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +202,8 @@ magnet:?xt=urn:btih:55EE1D2A6D0318A99AD695BDC969B156C116C0C6
 ```bash
 magnet:?xt=urn:btih:7C156241251C931CB12E5165ADC2DA85A1BA6AF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +229,8 @@ magnet:?xt=urn:btih:7C156241251C931CB12E5165ADC2DA85A1BA6AF7
 magnet:?xt=urn:btih:96DD9FDDFE012B0DA1557A26CC58E9937AE785D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +255,8 @@ magnet:?xt=urn:btih:96DD9FDDFE012B0DA1557A26CC58E9937AE785D3
 magnet:?xt=urn:btih:DDDCEF87151F7B28B2A4F1D6F317A74CDF06E619
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +280,8 @@ magnet:?xt=urn:btih:DDDCEF87151F7B28B2A4F1D6F317A74CDF06E619
 ```bash
 magnet:?xt=urn:btih:7C9E6B3FFFB50AFD69594C094A3D536DDA45E1A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +308,8 @@ magnet:?xt=urn:btih:7C9E6B3FFFB50AFD69594C094A3D536DDA45E1A0
 magnet:?xt=urn:btih:54D7C7B5C0B81BEE3C901D3B72253F84898FDA33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +333,8 @@ magnet:?xt=urn:btih:54D7C7B5C0B81BEE3C901D3B72253F84898FDA33
 ```bash
 magnet:?xt=urn:btih:E544CB700B66A4C43F76E60BA47E3105F7CBEDB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +360,8 @@ magnet:?xt=urn:btih:E544CB700B66A4C43F76E60BA47E3105F7CBEDB7
 magnet:?xt=urn:btih:F4F5AF3EFAFCDADDBC70FB6092C8512B45525EFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +385,8 @@ magnet:?xt=urn:btih:F4F5AF3EFAFCDADDBC70FB6092C8512B45525EFB
 ```bash
 magnet:?xt=urn:btih:49B8CFA9EC59F7D06C067B1205D2178529CB49A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +412,8 @@ magnet:?xt=urn:btih:49B8CFA9EC59F7D06C067B1205D2178529CB49A2
 magnet:?xt=urn:btih:956FCE9BA16C3E2270202C4757197244AB26AB7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +437,8 @@ magnet:?xt=urn:btih:956FCE9BA16C3E2270202C4757197244AB26AB7C
 ```bash
 magnet:?xt=urn:btih:CF5B59B26495FFA69E4E9781EB535C3C364813BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +468,8 @@ magnet:?xt=urn:btih:CF5B59B26495FFA69E4E9781EB535C3C364813BC
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +496,8 @@ IMDb User Rating: 8.0/10
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +521,8 @@ IMDb User Rating: 8.0/10
 ```bash
 magnet:?xt=urn:btih:9FDCC3C399D64A18D60CB9266CA53EA21A30AE43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +548,8 @@ magnet:?xt=urn:btih:9FDCC3C399D64A18D60CB9266CA53EA21A30AE43
 magnet:?xt=urn:btih:1662A14347B849CDFA1622A5651784F410AD1B74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +573,8 @@ magnet:?xt=urn:btih:1662A14347B849CDFA1622A5651784F410AD1B74
 ```bash
 magnet:?xt=urn:btih:E5F9F74B36AF09C05003BF0EA6C06F84C8C96DE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +600,8 @@ magnet:?xt=urn:btih:E5F9F74B36AF09C05003BF0EA6C06F84C8C96DE4
 magnet:?xt=urn:btih:70597FE8AAE61DB7DBBA1088DE18A42A8B697BDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +626,8 @@ magnet:?xt=urn:btih:70597FE8AAE61DB7DBBA1088DE18A42A8B697BDC
 magnet:?xt=urn:btih:46CDF58264AC441DB38042AACEE12E06308667EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +651,34 @@ magnet:?xt=urn:btih:46CDF58264AC441DB38042AACEE12E06308667EA
 ```bash
 magnet:?xt=urn:btih:37C4B32EF3D090066AE9C79DBEEA941D0993FB61
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107604   (867847) от 22.02.2017
+
+Пять дней лета / Five Days One Summer (1982) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_867847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шон Коннери играет британского врача, который увлекается альпинизмом и со своей молодой любовницей (и племянницей) Кейт проводит отпуск в швейцарских Альпах. Вскоре их молодого проводника Иоганна и Кейт начинает влечь друг к другу, что не остаётся незамеченным. Трагедия происходит тогда, когда Иоганн и Дуглас отправляются в горы.Производство: СШАЖанр: ДрамаРежиссер: Фред ЦиннеманАктеры: Шон Коннери, Бетси Брэнтли, Ламбер Вильсон, Дженнифер Хилари, Изабель Дин, Жерар Бур, Анна Мэсси, Шила Рид, Жорж Клесе, Кэти Мароти ...Перевод: Профессиональный двухголосый (ТК "Культура")Субтитры: ОтсутствуютПродолжительность: 01:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:935740E76B34C04FCFC4AF6BD3C0D2FEAB0393B9
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

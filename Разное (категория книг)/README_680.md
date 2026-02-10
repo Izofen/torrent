@@ -1,3 +1,29 @@
+###  Публикация: 860810   (935887) от 19.01.2015
+
+Ошо | Тексты бесед [189 книг] (1972-1989) [PDF] [En]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Ошо проводил спонтанные беседы перед тысячами ищущих со всех стран. Вживую записанные беседы отражают широту знаний Ошо. В беседах он отвечает на вопросы своих учеников и посетителей коммуны, также комментирует слова различных мистиков и мудрецов, современных и древних. Эти беседы дляться в среднем от часа до двух.Жанр: ЭзотерикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81CB5984A905D332CEC9BC71635408B14901700A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 861160   (935923) от 19.01.2015
 
 Динна Дж. Конвей | Танцы с драконами. Мифы и легенды (2008) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:0E475E1C6FF4582977E498E4214709B3A40969B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:0E475E1C6FF4582977E498E4214709B3A40969B9
 ```bash
 magnet:?xt=urn:btih:D950F854F77658C6507539281F0144AD100C79B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:D950F854F77658C6507539281F0144AD100C79B0
 magnet:?xt=urn:btih:F9C9A96ED589F17E7C7079DDB9B648B5B716A934
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:F9C9A96ED589F17E7C7079DDB9B648B5B716A934
 ```bash
 magnet:?xt=urn:btih:F8CDCD94F9F2211A8101F5509B105D0D7B539D55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:F8CDCD94F9F2211A8101F5509B105D0D7B539D55
 magnet:?xt=urn:btih:2B81C1A9355BBE64B71283199DC224CF659A73D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:2B81C1A9355BBE64B71283199DC224CF659A73D3
 ```bash
 magnet:?xt=urn:btih:ACA4A7F2436AB7843B5AE1BC99840E663ECBB544
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:ACA4A7F2436AB7843B5AE1BC99840E663ECBB544
 magnet:?xt=urn:btih:49D5DD29FD391E1FC31C8B139F5870290EE44FEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:49D5DD29FD391E1FC31C8B139F5870290EE44FEB
 ```bash
 magnet:?xt=urn:btih:F10BD52F357E098CD599F2CB8A31400956DB51DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:F10BD52F357E098CD599F2CB8A31400956DB51DC
 magnet:?xt=urn:btih:D82AA3D64ACFD90947ECD5C6558F0110614F9FDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:D82AA3D64ACFD90947ECD5C6558F0110614F9FDC
 ```bash
 magnet:?xt=urn:btih:07E97E31401BD6CD71D6F0DDFDD967418A28AA1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:07E97E31401BD6CD71D6F0DDFDD967418A28AA1C
 magnet:?xt=urn:btih:D8B50C80677977ED816020DE06A5EBDF1BB631EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:D8B50C80677977ED816020DE06A5EBDF1BB631EF
 ```bash
 magnet:?xt=urn:btih:EBF719C4FFCDC4F566BD01729D9278BAA5B63212
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:EBF719C4FFCDC4F566BD01729D9278BAA5B63212
 magnet:?xt=urn:btih:DB11C8F0040BCD47303492C4ED67EF05B2F827DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:DB11C8F0040BCD47303492C4ED67EF05B2F827DA
 ```bash
 magnet:?xt=urn:btih:8B154F8083580BE59B34198DF6AA5D4C957C8955
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:8B154F8083580BE59B34198DF6AA5D4C957C8955
 magnet:?xt=urn:btih:25F61A7A16B3C38838EF76A2BC650339EA8D04A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:25F61A7A16B3C38838EF76A2BC650339EA8D04A6
 ```bash
 magnet:?xt=urn:btih:667CF78AA6F1468A0CB8D7C8AAE3C0436B1ECB22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:667CF78AA6F1468A0CB8D7C8AAE3C0436B1ECB22
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:667CF78AA6F1468A0CB8D7C8AAE3C0436B1ECB22
 ```bash
 magnet:?xt=urn:btih:689E0015D34A429DB7F752FBC7D85EFF921D6DE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:689E0015D34A429DB7F752FBC7D85EFF921D6DE9
 magnet:?xt=urn:btih:B692E63958ED257372C0894B76D218008992494A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:B692E63958ED257372C0894B76D218008992494A
 ```bash
 magnet:?xt=urn:btih:3CCF138DB1180FD13D26119BD7ACDD15F28F9271
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:3CCF138DB1180FD13D26119BD7ACDD15F28F9271
 magnet:?xt=urn:btih:055A18461CAA880666369BB77FF54AD2C3F372D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:055A18461CAA880666369BB77FF54AD2C3F372D2
 ```bash
 magnet:?xt=urn:btih:863FEEF2AB141079A813916B6CE5B8BAA6C8897D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:863FEEF2AB141079A813916B6CE5B8BAA6C8897D
 magnet:?xt=urn:btih:86B73F4E2F731299C9365F7C69B22DF4E1EDC37F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:86B73F4E2F731299C9365F7C69B22DF4E1EDC37F
 ```bash
 magnet:?xt=urn:btih:693A32ECEB76C7F23F0954CB195340ACF7A9F1CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,29 +676,7 @@ magnet:?xt=urn:btih:693A32ECEB76C7F23F0954CB195340ACF7A9F1CB
 magnet:?xt=urn:btih:CFEBC739B11292CAE95A45B448213E1294066A62
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 753468   (936469) от 05.02.2014
-
-Вирджиния Сатир | Вы и Ваша семья (2013) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Книга основоположницы семейного консультирования Вирджинии Сатир посвящена актуальнейшей теме - семье и внутрисемейным отношениям. Что происходит в семье, когда торжественное бракосочетание далеко позади, и наступают будни, когда каждый день лицом к лицу (или спина к спине) муж и жена, родители и дети. Это скучно? тяжело? никак? Можно ли что-то изменить и как это сделать - обо всем этом увлекательно с тонким и добрым юмором, а главное, с верой в желание и способность человека к личностному росту написано в этой книге. Рекомендуется не только для тех, чья жизненная цель - помогать решать чужие внутрисемейные проблемы, но и тем, кто стремится собственными силами сделать свою семью счастливой.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D10CE26E79BBE2A89D41DAAA0265F0EE59C3259
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Heartwind - Higher And Higher (2018) Japanese Edition [FLAC|Lossless|image + .cu
 magnet:?xt=urn:btih:5B639589097792CD5F9594FDE1B786E56F8BAE83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:5B639589097792CD5F9594FDE1B786E56F8BAE83
 ```bash
 magnet:?xt=urn:btih:2F796C14C623E42BD58B0CEB1A329F9683C220FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Wind Rose - Trollslayer (2024) [FLAC|Lossless|image + .cue] <Power Metal, Folk>
 magnet:?xt=urn:btih:578D3D7D31751252D6C8ACF4CAB176EFF86C233A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ The Crown - Crown Of Thorns (2024) [FLAC|Lossless|image + .cue] <Melodic Death, 
 ```bash
 magnet:?xt=urn:btih:58328C4E05D0B3522968443EBA16947E6EC924C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Die Gesellschaft der Grauen Herren - Imagines Itineris (2014) [FLAC|Lossless|ima
 magnet:?xt=urn:btih:6A7A854A3D56B879E65DD1DD55E0C483FED702C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ Hazael - Thor (1993) Reissue, 2014, Dark Descent Records [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:82328D427BF39C66D7E83A0483789D260AAEF24B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ Divinefire — пауэр-метал-группа, основанная весн
 magnet:?xt=urn:btih:BF969602EA3C361FF63C4E0A6CEA48B7B6147AF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -206,6 +220,8 @@ magnet:?xt=urn:btih:BF969602EA3C361FF63C4E0A6CEA48B7B6147AF1
 magnet:?xt=urn:btih:B2BD25E6DE3DAE6D562D8FBDEC65152C2EEF44EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +245,8 @@ magnet:?xt=urn:btih:B2BD25E6DE3DAE6D562D8FBDEC65152C2EEF44EF
 ```bash
 magnet:?xt=urn:btih:95FF1096B63D26EB6C9BA96AE66219D8F6D15A67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ magnet:?xt=urn:btih:95FF1096B63D26EB6C9BA96AE66219D8F6D15A67
 magnet:?xt=urn:btih:B1F1DC1A3EA4FE347520DEFABB4A88258A9972E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:B1F1DC1A3EA4FE347520DEFABB4A88258A9972E5
 ```bash
 magnet:?xt=urn:btih:5E99D950D495544978F16FB3F782259645DAFBE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:5E99D950D495544978F16FB3F782259645DAFBE1
 magnet:?xt=urn:btih:D069C33A2AC6F9634C9C4DBBCB3AB049E085E55B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:D069C33A2AC6F9634C9C4DBBCB3AB049E085E55B
 ```bash
 magnet:?xt=urn:btih:67520414C3EF0775223DC5A76F4834D7A49DBB51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:67520414C3EF0775223DC5A76F4834D7A49DBB51
 magnet:?xt=urn:btih:E3F11B27E17D79BB5BA81414AB82455CF4BCDE84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:E3F11B27E17D79BB5BA81414AB82455CF4BCDE84
 magnet:?xt=urn:btih:1851CBBB3431B5DC526474DEB5C3EB7763DF764C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:1851CBBB3431B5DC526474DEB5C3EB7763DF764C
 ```bash
 magnet:?xt=urn:btih:807F9FC0D5B1C970E010B361323220CEBA4DEAAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +457,8 @@ Peter Griffin - Hurricane Is Coming (1980) [FLAC|Lossless|image + .cue] <Disco>
 magnet:?xt=urn:btih:FB3477393D8CBB29EB582F31A3B5A7F199424E74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ VA - Amsterdam After Disco (2024) [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:C8CD5BED667905FA1082CC0C35A661051E377579
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ Luttrell - Life at Full Speed (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech
 magnet:?xt=urn:btih:96E22F523825853600DA56C8590EBB3A3A3804AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +543,8 @@ VA - Non-religious  Gospel music (2024) [MP3|320 Kbps] <Jazz, Blues>
 ```bash
 magnet:?xt=urn:btih:AE1F970EBABDABDB9A2B2366A184AF003FF9571B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +573,8 @@ Lane 8 - Childish (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Tech House, Deep H
 magnet:?xt=urn:btih:1B6E84746B569CD0C6006EA0CB4EA2D77CFDCA03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +602,8 @@ Peter Griffin - Step By Step (1981) [FLAC|Lossless|image + .cue] <Disco>
 magnet:?xt=urn:btih:BF8D75DB455350D2FABD6D7A834F1EA5ED6DF272
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +627,8 @@ Gekijouban Blue Lock: Episode Nagi | Синяя тюрьма: Блю Лок - Э
 ```bash
 magnet:?xt=urn:btih:C3D93FD34A0AD17FCC458C3C21EF575AC459D7CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +657,8 @@ VA - Italian Restaurant Lounge Music Vol 2 (2020) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:424FA0E0328891A2DD78346A52C1DE5322FA410E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +683,8 @@ Gekijouban Blue Lock: Episode Nagi | Синяя тюрьма: Блю Лок - Э
 magnet:?xt=urn:btih:070F29A7F7AE788C0FA830CBA2353C17FCD45658
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +708,8 @@ magnet:?xt=urn:btih:070F29A7F7AE788C0FA830CBA2353C17FCD45658
 ```bash
 magnet:?xt=urn:btih:630B2419D865784A53A1B176D7101D4CFD32EA3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

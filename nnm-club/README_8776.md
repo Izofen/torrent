@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:1A3F0B724E9DBFC1D3C9A3DF491B4CF5BFF2F157
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ VEGAS Movie Studio 16 отличается максимальным удобст
 ```bash
 magnet:?xt=urn:btih:6F4968181BAD353BE4D16F28AAFCFCBB40EDD159
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:6F4968181BAD353BE4D16F28AAFCFCBB40EDD159
 magnet:?xt=urn:btih:88A86DDA818C0D1E44EF096279D2E8402544203E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:88A86DDA818C0D1E44EF096279D2E8402544203E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ VideoHive - The Book - 20819897 [AEP]
 magnet:?xt=urn:btih:FA02ABD9CEFBD6A44C43DF4BA8944DC5DA298A6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Stand Up (2017.12.10) WEB-DLRip (сезон 7, выпуск 11: Дайджест
 ```bash
 magnet:?xt=urn:btih:E682E019BCE05E426CFC726E5201E2201BCFA273
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Markus Schulz & Dakota - The Nine Skies (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:530E2A1DADCE47D82F84BB800BF37D7BBF776A9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:530E2A1DADCE47D82F84BB800BF37D7BBF776A9D
 ```bash
 magnet:?xt=urn:btih:C9F1E1B1494C0B63B9213557771436E54DFD1770
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ Sunroad - Wing Seven (2017) [MP3|320 Kbps] <Hard Rock>
 magnet:?xt=urn:btih:AEDE97872C7BF87B39435D7F8C1546455FCC93AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ Juicy J - Rubba Band Business (2017) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 magnet:?xt=urn:btih:73F3FD00ADE4CDBD63B8943889E5E6609E4D64B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:73F3FD00ADE4CDBD63B8943889E5E6609E4D64B7
 ```bash
 magnet:?xt=urn:btih:0D6F27EFB53D3A7E0F8D9E6D37034D0AE2DABAF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ VA - De Top 100 Aller Tijden 1971 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 magnet:?xt=urn:btih:F14A3F4B927A787D9125FDA003443130042BA3EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ VLNY - Ближе (2017) [MP3|320 Kbps] <Indie Pop, Synth Pop, Dream Pop>
 magnet:?xt=urn:btih:F5F48F1A9D6326334086049213B68796F672A976
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:F5F48F1A9D6326334086049213B68796F672A976
 magnet:?xt=urn:btih:6CE208BE8AFEC840D344B2AD58137CCAAEC739D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:6CE208BE8AFEC840D344B2AD58137CCAAEC739D1
 ```bash
 magnet:?xt=urn:btih:353447C1511ABC28C93466629ADAFF51D68E6E72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:353447C1511ABC28C93466629ADAFF51D68E6E72
 magnet:?xt=urn:btih:3A74EA4E0FFA514A84EB9D193A8EAFA89AD4CBDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ magnet:?xt=urn:btih:3A74EA4E0FFA514A84EB9D193A8EAFA89AD4CBDA
 ```bash
 magnet:?xt=urn:btih:771D31A8DF960E65CF5732B2676EE30C47B458E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +482,8 @@ magnet:?xt=urn:btih:771D31A8DF960E65CF5732B2676EE30C47B458E3
 magnet:?xt=urn:btih:9424431437D8DC7BC75C91D21396B4868644FD39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:1B14589F941637EF7396341980B7DC434EFFAA2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ magnet:?xt=urn:btih:1B14589F941637EF7396341980B7DC434EFFAA2B
 magnet:?xt=urn:btih:3D8A8A593D04F629C08AE53CF2D0053812202B6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:3D8A8A593D04F629C08AE53CF2D0053812202B6F
 ```bash
 magnet:?xt=urn:btih:4CF37031D0EE6815A2988E72AD26E44C82CD8892
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +591,8 @@ KeyKey — учимся слепому набору
 magnet:?xt=urn:btih:8D1FA3BAD4FFB824697B47B59E7F6DD6524AF61D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ magnet:?xt=urn:btih:8D1FA3BAD4FFB824697B47B59E7F6DD6524AF61D
 ```bash
 magnet:?xt=urn:btih:8262BBEE4BAB572E7E7EA86D31B20AAA62EF8E50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +646,8 @@ Statik Selektah - 8 (2017) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, East Coast Ra
 magnet:?xt=urn:btih:0074355C460B35FC1CEC2DBF959C6865BC2F4A64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ magnet:?xt=urn:btih:0074355C460B35FC1CEC2DBF959C6865BC2F4A64
 magnet:?xt=urn:btih:CCDBF270D76FCA677FC31DE40E263BF743BEE321
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ magnet:?xt=urn:btih:CCDBF270D76FCA677FC31DE40E263BF743BEE321
 ```bash
 magnet:?xt=urn:btih:8608F1551193A01FEE5A8744A475F699C6B702B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

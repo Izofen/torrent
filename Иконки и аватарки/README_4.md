@@ -1,51 +1,3 @@
-###  Публикация: 910400   (621425) от 20.06.2015
-
-Аватарки - Анимированные аватарки из советских мультфильмов [GIF]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анимированные аватарки из советских мультфильмовФормат: GIFРазрешение файлов: 100х100
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBD57E7E3A880EDE71A0D0F6D87F369CDC236D9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228669   (633654) от 02.06.2018
-
-Иконки - Baianat - Thousands [AI, PNG, PSD, SVG]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные иконки разнообразных форматов цветные и контурные.Формат: AI, PNG, PSD, Sketch, SVGРазрешение файлов: 1300 x 320 - 1350 x 2113
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D16C430C2643BDCBB56F3E3F74F8C593EC83FD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 401063   (635158) от 13.06.2015
 
 [Аватарки] (анимированные) 650 шт.
@@ -66,6 +18,8 @@ magnet:?xt=urn:btih:5D16C430C2643BDCBB56F3E3F74F8C593EC83FD2
 ```bash
 magnet:?xt=urn:btih:1D044973A3C457D1453A1E0C900BE6B000AA15B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +46,8 @@ magnet:?xt=urn:btih:1D044973A3C457D1453A1E0C900BE6B000AA15B8
 magnet:?xt=urn:btih:44E1A0DC0E81EBC1F56E537A26A3D237C2D0599A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +72,8 @@ magnet:?xt=urn:btih:44E1A0DC0E81EBC1F56E537A26A3D237C2D0599A
 ```bash
 magnet:?xt=urn:btih:EF4EF488C07C63534961330B97C5221F20353B23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +100,8 @@ magnet:?xt=urn:btih:EF4EF488C07C63534961330B97C5221F20353B23
 magnet:?xt=urn:btih:6706C5B5A360A0CB3928405288DA36928C408A16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +126,8 @@ magnet:?xt=urn:btih:6706C5B5A360A0CB3928405288DA36928C408A16
 ```bash
 magnet:?xt=urn:btih:491EE1A2E41E90D575A7D09A8E11F3704682973E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +154,8 @@ magnet:?xt=urn:btih:491EE1A2E41E90D575A7D09A8E11F3704682973E
 magnet:?xt=urn:btih:7180037A3CF4E4B07D70940F18CE75C213FD03FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +179,8 @@ Mix SHT icons pack by KSV
 ```bash
 magnet:?xt=urn:btih:AD54C8416A06687F62338C89361ECC4C4CD1EA88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +207,8 @@ magnet:?xt=urn:btih:AD54C8416A06687F62338C89361ECC4C4CD1EA88
 magnet:?xt=urn:btih:B6820B822B96754005F3A44C54EF06170742C9EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +234,8 @@ magnet:?xt=urn:btih:B6820B822B96754005F3A44C54EF06170742C9EE
 magnet:?xt=urn:btih:FCC4CA3CA0A9BD00C4078800567CA78DADEC420E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +259,8 @@ magnet:?xt=urn:btih:FCC4CA3CA0A9BD00C4078800567CA78DADEC420E
 ```bash
 magnet:?xt=urn:btih:F877EF0B4B253FF914398E17A3040DFA2321E1DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +287,8 @@ magnet:?xt=urn:btih:F877EF0B4B253FF914398E17A3040DFA2321E1DD
 magnet:?xt=urn:btih:E3EC24477C21F71BD6085DEC9BE47765D31889DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +313,8 @@ magnet:?xt=urn:btih:E3EC24477C21F71BD6085DEC9BE47765D31889DA
 ```bash
 magnet:?xt=urn:btih:C4609C978AD2C8AFC803694917EF5A733E60FD5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +341,8 @@ magnet:?xt=urn:btih:C4609C978AD2C8AFC803694917EF5A733E60FD5D
 magnet:?xt=urn:btih:03E96776A43FDF426D44D421713F412331E6D629
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +367,8 @@ magnet:?xt=urn:btih:03E96776A43FDF426D44D421713F412331E6D629
 ```bash
 magnet:?xt=urn:btih:3DE0444FB4C11FD903EFC4CBC77CFB94DC6F3A31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +395,8 @@ magnet:?xt=urn:btih:3DE0444FB4C11FD903EFC4CBC77CFB94DC6F3A31
 magnet:?xt=urn:btih:88D07CEAB63655C012436EBC55B1DC332DB6B19D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +421,8 @@ magnet:?xt=urn:btih:88D07CEAB63655C012436EBC55B1DC332DB6B19D
 ```bash
 magnet:?xt=urn:btih:20066668423AEDA47EBD5EF46ACD56BF1A7D65D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +449,8 @@ magnet:?xt=urn:btih:20066668423AEDA47EBD5EF46ACD56BF1A7D65D8
 magnet:?xt=urn:btih:4211899F9F05ACE8425866BA65FE3F50D45F057F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +474,8 @@ magnet:?xt=urn:btih:4211899F9F05ACE8425866BA65FE3F50D45F057F
 ```bash
 magnet:?xt=urn:btih:43D914B952F5ED91E364058D315A12B02C5B8A38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +502,8 @@ magnet:?xt=urn:btih:43D914B952F5ED91E364058D315A12B02C5B8A38
 magnet:?xt=urn:btih:D134A33D6A88E9BA854549E2C8053B6C5BC1B5F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +528,8 @@ magnet:?xt=urn:btih:D134A33D6A88E9BA854549E2C8053B6C5BC1B5F8
 ```bash
 magnet:?xt=urn:btih:E20AC0D4491391DEA8361B789218094DA842B4D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +556,8 @@ magnet:?xt=urn:btih:E20AC0D4491391DEA8361B789218094DA842B4D5
 magnet:?xt=urn:btih:ECEA44C2C324F5287011E1FF20F83D2755B9AAEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +582,8 @@ magnet:?xt=urn:btih:ECEA44C2C324F5287011E1FF20F83D2755B9AAEA
 ```bash
 magnet:?xt=urn:btih:6EDD7C340FAE02D4217EBE2AA1612338386B6AC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +610,8 @@ magnet:?xt=urn:btih:6EDD7C340FAE02D4217EBE2AA1612338386B6AC2
 magnet:?xt=urn:btih:0DDE2043359687C2A853C34DC4D1E3C173524BF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +636,62 @@ magnet:?xt=urn:btih:0DDE2043359687C2A853C34DC4D1E3C173524BF6
 ```bash
 magnet:?xt=urn:btih:C6EDD51FE100F3079A66F4535002FEE4C193D2C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291062   (672032) от 23.03.2019
+
+Иконки - InstantShift - Graphic Design Icon Set [PNG, SVG]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные иконки в растре и векторе в 3-х вариациях (контурные, цветные, контурные цветные).
+Автор: iShift StaffФормат: PNG, SVGРазрешение файлов: 2135 x 2134
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAC3D5340D0E349F9268AC4ECC1B5E52B14FE364
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291079   (672034) от 23.03.2019
+
+Иконки - Designmodo - UIcons [AI, EPS, SVG, PNG]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные иконки в векторе и растре в 2-х вариациях (контурные и чёрно-белые). Материал раздается с официальной документацией.
+Автор:Andrian Valeanu (Barcelona, Spain)Формат: AI, EPS, SVG, PNG, PDFРазрешение файлов: 32 x 32 - 128 x 128
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F045C2D20161BF10DCF16A20A394F2671EDB1D2
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1253849   (379519) от 11.10.2018
+
+VA - Dubstep Generation (2018) [MP3|320 Kbps] <Dubstep, Trap>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_379519.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. King Fatu - Furious Flash
+002. Dexter Dub - Sternengeschwader (Drumstep Version)
+003. Hive - Questionable Directions
+004. Brkchk - Pressure(   Читать дальше...   )Жанр: Dubstep, TrapПродолжительность: 08:10:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97BB372073D49AAC2FB2CCEE28C79EFC8EECDCDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 949118   (379576) от 22.10.2015
 
 DJ Quicksilver - Сборник композиций (2015) [MP3|320 кб/с]<Trance, Techno, House, Dance>
@@ -21,6 +50,8 @@ DJ Quicksilver - Сборник композиций (2015) [MP3|320 кб/с]<Tr
 ```bash
 magnet:?xt=urn:btih:871D772BE2D1181F703A6F99FC3F4C4EBBFD2686
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Vocal Deep House Vol.1 (Compiled by Zebyte) (2015) [MP3|320 кб/с]<House,
 magnet:?xt=urn:btih:2D27324A0F59BF17C418BF3F28C83BC4CF8909BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Dance. Auto-Hit (2015) [MP3|320 кб/с]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:F34B3DD482E37A7DBC853DBDD202D66A9828169E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ magnet:?xt=urn:btih:F34B3DD482E37A7DBC853DBDD202D66A9828169E
 magnet:?xt=urn:btih:23F65F398F1EC98B90F547AFDE49933CD2DEA9E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Radio DFM Top D-Chart Сентябрь 2019 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:4D874DD7AFC22AE9C8E1995DB7EF86A20905993F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Autumn Festival Popular Dance Music (2019) [MP3|320 Kbps] <Dance, Pop, Hous
 magnet:?xt=urn:btih:B4DC80F213928FAEDDED426BA57F860F1C81E622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Новинки с Разных Популярных MP3 Сайтов Vol. 5
 ```bash
 magnet:?xt=urn:btih:D08CC8A159A0854769BB79995163077401F3985F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - 80s Disco Magical: Italo Set (2016) [MP3|320 Kbps] <Disco, Italo Disco, Dan
 magnet:?xt=urn:btih:48ACFCE0E979EA74DCCE32C4CC1E86C851F3437D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Singles Chart Billboard Hot 100 (05 November 2016) (2016) [MP3|32-320 Kbps]
 ```bash
 magnet:?xt=urn:btih:9B6B06A885FD6AB5830D2C3C508D42A52C3C6B70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - Ballermann Karnevals Hits 2017 (2016) [MP3|~245 Kbps] <Pop, Dance, Club>
 magnet:?xt=urn:btih:3C0D4CD1C352C52E6393346902682848573CD023
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - LUXEmusic: Dance Super Chart Vol.92 (2016) [MP3|320 Kbps] <House, Electro H
 ```bash
 magnet:?xt=urn:btih:2CD76B4CB6DBA3E5B305069ADC17284027D4E906
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +373,8 @@ Hits of My Soul - сборник электронной и инструмент�
 magnet:?xt=urn:btih:1081A88CDABF89BC478FF812735765A8A58130CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +401,8 @@ CD 01:
 ```bash
 magnet:?xt=urn:btih:F8946F9D2529647ED86F7AE4ACD2A3A92CEEB6C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +431,8 @@ VA - House Of The Rising Sun (2019) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:7B32C3FC93BF57958F88AA96916CFAC2F85A86DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +459,8 @@ VA - Trance Traveling 82 (Mixed By VNP) (2016) [MP3|320 Kbps] <Trance, Melodic, 
 ```bash
 magnet:?xt=urn:btih:18954690368FF110B788E44119789DB13C74C19E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +489,8 @@ VA - Workday Lounging (2016) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
 magnet:?xt=urn:btih:283017E19DD8211F4D243C7F6F6268F767EE3D86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +517,8 @@ VA - Epic Landscapes: Relax Line Music (2019) [MP3|320 Kbps] <Chillout, Lounge, 
 ```bash
 magnet:?xt=urn:btih:FB3574D5AD328FE18A92A06A34F54CD60C998072
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +547,8 @@ VA - ЕвроХит Топ 40 Europa Plus 09.10.2020 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:3BB394D9E86EBC551A30261BAEE0DF2642B2E4A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +575,8 @@ VA - The Jazz Story (2017) [MP3|320 Kbps] <Jazz, Jazz-Pop, Vocal>
 ```bash
 magnet:?xt=urn:btih:602F64063D1A8175DBE1A2D629501D3ED18731E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +605,8 @@ VA - Record Super Chart 605 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 magnet:?xt=urn:btih:9A388877400D391CFE3FC182671BA07E36C0FBED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +633,8 @@ VA - German Top 100 Single Charts 20.09.2019 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:6D9DE87E6E80C1433B8966C415165B97F10D5249
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +663,8 @@ VA - Record Super Chart #507 (2017) [MP3|320 Kbps] <House, Club, Dance>
 magnet:?xt=urn:btih:D8826E3BDB60B5A5BA8F5379F46CE6168224F800
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +691,8 @@ VA - Hot Line Miami: Mixed Emotions (2019) [MP3|320 Kbps] <Club, Dance House, El
 ```bash
 magnet:?xt=urn:btih:EC4687049ADFB0217D838722FBACAAA7E40C5855
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +721,8 @@ VA - Music For Cozy Interior (2019) [MP3|320 Kbps] <Lounge, Downtempo, Chillout,
 magnet:?xt=urn:btih:AF2916CF4A0570974104036A865CD92563C60B37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -673,32 +750,7 @@ VA - Billboard Hot 100 Year End (1920-2017) [MP3|320 Kbps] <Dance, pop, rock>
 magnet:?xt=urn:btih:920F2C5A887C8E3694005CA9B93E8C086E89565E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253508   (381132) от 10.10.2018
-
-VA - Самые скачиваемые треки ВКонтакте Осень 2018 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381132.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Егор Крид и Филипп Киркоров - Цвет настроения чёрный 3:13
-002. Maruv - Black Water 3:50
-003. Миша Марвин - 1000 Причин 3:12
-004. Alan Walker feat. Sophia Somajo - Diamond Heart 4:00(   Читать дальше...   )Жанр: PopПродолжительность: 05:50:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D73EE75FD4FB84EA747AEEAE6DFB935C7AA43F91
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

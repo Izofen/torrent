@@ -1,3 +1,30 @@
+###  Публикация: 1454363   (1026368) от 14.03.2021
+
+Георгий Лопатин | Царь Юрий. Объединитель Руси. Книга 1 (2021) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русь, словно стервятники, рвут на куски спесивые и жадные князья, которые ради получения чуть большей власти готовы натравить на соседа, зачастую родного брата, злобных кочевников. Все знают, чем закончилась эта эпоха распрей – пришел Батый и разгромил всех поодиночке.
+Чтобы противостоять монгольскому нашествию нужно объединить Русь в единое царство. Решением этой (   Читать дальше...   )Жанр: Боевая фантастика, историческая фантастика, попаданцыПродолжительность: 11:00:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5BA87A4B289FD3E441747C7DFF1497339840AD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454331   (1026371) от 14.03.2021
 
 Роман Афанасьев | Астрал. Источник Зла. Книга 3 (2021) [MP3]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:C69AFFCF5CDA1E97655A57E43C1299FF9AF5F96B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +74,8 @@ magnet:?xt=urn:btih:C69AFFCF5CDA1E97655A57E43C1299FF9AF5F96B
 magnet:?xt=urn:btih:D4B40884227A4A6A26A841D281600C66B8FA78B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +100,8 @@ magnet:?xt=urn:btih:D4B40884227A4A6A26A841D281600C66B8FA78B5
 magnet:?xt=urn:btih:B2BB24FA77D8CD73FC1304A2EE3FBCC88A9B20A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +125,8 @@ magnet:?xt=urn:btih:B2BB24FA77D8CD73FC1304A2EE3FBCC88A9B20A8
 ```bash
 magnet:?xt=urn:btih:CB4E5107A21718AB290788C95D751744A2E2EC31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +153,8 @@ magnet:?xt=urn:btih:CB4E5107A21718AB290788C95D751744A2E2EC31
 magnet:?xt=urn:btih:B64284C4402DBE6B6678144C50129BBA9865EB0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +179,8 @@ magnet:?xt=urn:btih:B64284C4402DBE6B6678144C50129BBA9865EB0B
 magnet:?xt=urn:btih:62FF61BF5A6671B5D2BC8BA1688E17F7BE116938
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +204,8 @@ Alex Moiseev | A.D. 2059. Необратимые последствия (2021) [
 ```bash
 magnet:?xt=urn:btih:C02273D244667C51989B98BA4D6A0431789A358D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +233,8 @@ magnet:?xt=urn:btih:C02273D244667C51989B98BA4D6A0431789A358D
 magnet:?xt=urn:btih:E54A2EEB4939AD6CC3D927C12A9379A6D71F90B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +258,8 @@ magnet:?xt=urn:btih:E54A2EEB4939AD6CC3D927C12A9379A6D71F90B2
 ```bash
 magnet:?xt=urn:btih:EB2BD4925B49D0BF29517D9127BABB8DC635B986
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +287,8 @@ magnet:?xt=urn:btih:EB2BD4925B49D0BF29517D9127BABB8DC635B986
 magnet:?xt=urn:btih:AB2E5F9CD43C3B6856E35FFC160B0B33C623D337
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +314,8 @@ magnet:?xt=urn:btih:AB2E5F9CD43C3B6856E35FFC160B0B33C623D337
 magnet:?xt=urn:btih:F21BE2A4E1818144FBA64E4DFD97295BAC8CA859
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +339,8 @@ magnet:?xt=urn:btih:F21BE2A4E1818144FBA64E4DFD97295BAC8CA859
 ```bash
 magnet:?xt=urn:btih:8BD831DA993EA9069D00EEE925FBE0647EC939A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +366,8 @@ magnet:?xt=urn:btih:8BD831DA993EA9069D00EEE925FBE0647EC939A2
 magnet:?xt=urn:btih:A31A266BB13ED9069DF5C81E5603A056EFD2EE0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +392,8 @@ magnet:?xt=urn:btih:A31A266BB13ED9069DF5C81E5603A056EFD2EE0B
 magnet:?xt=urn:btih:EFC514F7B8EA970CF16B2DDEBF770D8B7D4DF93B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +417,8 @@ magnet:?xt=urn:btih:EFC514F7B8EA970CF16B2DDEBF770D8B7D4DF93B
 ```bash
 magnet:?xt=urn:btih:D905CA73A6721FD7F796015BE77542D4AA055408
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +447,8 @@ magnet:?xt=urn:btih:D905CA73A6721FD7F796015BE77542D4AA055408
 magnet:?xt=urn:btih:36ABDD2888639C7F7419BBB936566E21DAE75C01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +475,8 @@ magnet:?xt=urn:btih:36ABDD2888639C7F7419BBB936566E21DAE75C01
 magnet:?xt=urn:btih:A2AAC835ACF5CE9A23EA598A44C34C941477F8AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +501,8 @@ magnet:?xt=urn:btih:A2AAC835ACF5CE9A23EA598A44C34C941477F8AA
 ```bash
 magnet:?xt=urn:btih:14D431F8F336855EC1B11C618E51A7080AB1B184
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +530,8 @@ magnet:?xt=urn:btih:14D431F8F336855EC1B11C618E51A7080AB1B184
 magnet:?xt=urn:btih:E7BC659A76A9C25B9C7A271546F3D55E6A316160
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +557,8 @@ magnet:?xt=urn:btih:E7BC659A76A9C25B9C7A271546F3D55E6A316160
 magnet:?xt=urn:btih:11900D839639F94247CCD5B9F6581880C934F680
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +582,8 @@ magnet:?xt=urn:btih:11900D839639F94247CCD5B9F6581880C934F680
 ```bash
 magnet:?xt=urn:btih:A9CCD87E6D3A6AD3184E238E6C08C70E81A3E052
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +609,8 @@ magnet:?xt=urn:btih:A9CCD87E6D3A6AD3184E238E6C08C70E81A3E052
 magnet:?xt=urn:btih:BE89D3C732F8C8723DF4137169E605DE8F5F934F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +634,8 @@ magnet:?xt=urn:btih:BE89D3C732F8C8723DF4137169E605DE8F5F934F
 ```bash
 magnet:?xt=urn:btih:7E2EA8C0BBC33373ED70936B33454AFB4267772E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +661,8 @@ magnet:?xt=urn:btih:7E2EA8C0BBC33373ED70936B33454AFB4267772E
 ```bash
 magnet:?xt=urn:btih:8AACFEEFBA9F7A670B48023F8BA213C0FAFE6035
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,29 +690,7 @@ magnet:?xt=urn:btih:8AACFEEFBA9F7A670B48023F8BA213C0FAFE6035
 magnet:?xt=urn:btih:EA9825531564B1B24F40F6D4B9ECCB87F55C7731
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452782   (1027545) от 07.03.2021
-
-Джо Холдеман | Вечные узы (2021) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027545.jpg" />
-</div>
-
-
-###  Подробнее
-
-2054-й год. Главного героя призывают в армию, в особое воинское подразделение «механиков» — людей, управляющих на расстоянии искусственными роботами-аватарами. Для того, чтобы стать «механиком», необходимо выдержать имплантацию в мозг особого чипа, благодаря которому каждый из 10-ти механиков группы ощущает своих напарников, как самого себя. Но каково это — общаться (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 01:14:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:273728F7434307E4F90D92FB2C6834B63D7D0874
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

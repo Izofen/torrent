@@ -26,6 +26,8 @@ SolidWorks – система автоматизированного проек�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ SolidWorks – система автоматизированного проек�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ Ace of Spades - это командный онлайн-шутер с воксе�
 magnet:?xt=urn:btih:996BEA39EFA70FBB1264CD1D683C4F1F478EF65D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Cutting 3 v1.31 [Rus\Eng]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ Rise of Nations: Rise of Legends [Ru] (RePack) 2006 | Naitro
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ Anonymous обещают отключить Интернет во всём ми�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ Anonymous обещают отключить Интернет во всём ми�
 ```bash
 magnet:?xt=urn:btih:FE59F7768608944784B1A8B0302CD16A13D12B9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +217,8 @@ Lenovo b570e Windows 7 Максимальная SP1x64 7601 [rus]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ Lenovo b570e Windows 7 Максимальная SP1x64 7601 [rus]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ Lenovo b570e Windows 7 Максимальная SP1x64 7601 [rus]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ Just Cause 2 Limited Edition + 9 DLC [Ru] (RePack/1.0.0.2) 2010 | Naitro
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ Road Rash [En] (RePack) 1996 | Pilotus
 magnet:?xt=urn:btih:A8D6F21A6F8CD73CFE1B7CD9848B0EC884DD6781
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:A8D6F21A6F8CD73CFE1B7CD9848B0EC884DD6781
 ```bash
 magnet:?xt=urn:btih:10FFD20CA2AD91FD34FE58DDF511F8920CFD4687
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +382,8 @@ Beegie Adair and David Davidson - Parisian Cafe (2009) [MP3|320 кб/с]<Jazz,In
 magnet:?xt=urn:btih:AB1F6BE1FF0DAAC3012FD4334713C599010EFED4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ magnet:?xt=urn:btih:AB1F6BE1FF0DAAC3012FD4334713C599010EFED4
 ```bash
 magnet:?xt=urn:btih:DC86096442DF04FD458C81788F9ACF73AA4B67CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +443,8 @@ Gerald Albright - New Beginnings (2006) [FLAC|Lossless]<Smooth Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +469,8 @@ Gerald Albright - New Beginnings (2006) [FLAC|Lossless]<Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:A557A48D7E8DBB04D3C6BC01F0DE7382A27B4DA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +498,8 @@ magnet:?xt=urn:btih:A557A48D7E8DBB04D3C6BC01F0DE7382A27B4DA0
 ```bash
 magnet:?xt=urn:btih:5AF14D257BC40191A12AA444C05CC4020F75E09C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +534,8 @@ Club Des Belugas - Forward (2012) [MP3|~245 кб/с (V0)]<Electronic, Nu Jazz, N
 magnet:?xt=urn:btih:5BE53CDEDE37381C67923FC770FEFCCC06756C3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +561,8 @@ magnet:?xt=urn:btih:5BE53CDEDE37381C67923FC770FEFCCC06756C3D
 magnet:?xt=urn:btih:9D313313658525CE12433DDBB08C8F63D8A37B7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +586,8 @@ magnet:?xt=urn:btih:9D313313658525CE12433DDBB08C8F63D8A37B7C
 ```bash
 magnet:?xt=urn:btih:1BC88D6AA59F684622ADD3A1BE2A00559FD9668A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +615,8 @@ magnet:?xt=urn:btih:1BC88D6AA59F684622ADD3A1BE2A00559FD9668A
 magnet:?xt=urn:btih:FFAF1272CDBE02CAA215360C37630D3B833E55B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +643,8 @@ magnet:?xt=urn:btih:FFAF1272CDBE02CAA215360C37630D3B833E55B9
 ```bash
 magnet:?xt=urn:btih:0D17ED039193139D343C97FE67F0C4358EC49877
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +679,8 @@ Devil's Train - Devil's Train (2012) [FLAC|Lossless]<Hard Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -662,6 +710,8 @@ Devil's Train - Devil's Train (2012) [FLAC|Lossless]<Hard Rock>
 magnet:?xt=urn:btih:B7A40BDAA8E2990BB5AA30968BC6F49A96BE7E85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -687,6 +737,8 @@ magnet:?xt=urn:btih:B7A40BDAA8E2990BB5AA30968BC6F49A96BE7E85
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -21,6 +21,8 @@ AIR Music Technology - Ether 1.0.0 VST, VST3, AAX (x64) RePack by R2R [En]
 magnet:?xt=urn:btih:C181FEA9A04F6C3F108A0A0D157136008CD24B05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ BABY Audio - IHNY-2 1.0.1 VST, VST 3, AAX (x86/x64) RePack by R2R [En]
 magnet:?xt=urn:btih:6C3FFE6F9D6119CC70130FA14DD9C35EF1300C91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Steinberg - Groove Agent 5 5.1.20 STANDALONE, VSTi 3, AAX (x64) + Content [En]
 ```bash
 magnet:?xt=urn:btih:CBE0EC18B05544F28FBB2F42CF94D17AE19C07B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Greenfish Icon Editor Pro является мощным инструментом
 magnet:?xt=urn:btih:2AC77A745328FE185F311AA520C2E7B705348AA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Adobe Prelude - программа для профессиональной оц�
 ```bash
 magnet:?xt=urn:btih:9F67BBA84BEADD52E62ACCE8EB62B530B6F27068
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Serum – таблично-волновой синтезатор мечты, с�
 magnet:?xt=urn:btih:BEB05AF5716CE983180B360CD87F3F0CD62A3AAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Fuse Audio Labs — это источник номер один для дейс�
 ```bash
 magnet:?xt=urn:btih:28832D610BCA87091C0438E959A654178B394DC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Xfer Records OTT - это бесплатное переиздание попул
 magnet:?xt=urn:btih:77167A288EF98295126D7913797AB40BD36F9875
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ ArtRage настоящая художественная студия для по
 ```bash
 magnet:?xt=urn:btih:8B436F6DF6E186D2C5A728B378A5EED95DB49DBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Insofta Cover Commander позволяет создавать профессио
 magnet:?xt=urn:btih:7662AAE515A9A4244224E552CB1062E53FC4E25C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Sonible Plugins 04.2023 VST, VST 3, AAX (x64) RePack by R2R [En]
 ```bash
 magnet:?xt=urn:btih:C8F5BEC4A697AC7EE5BEB3DA08FC43A4ED409C50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Image Tuner - простая в использовании утилита для
 magnet:?xt=urn:btih:5770E400D7E606C668CB3A66E3C9124EF0796A20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Discovery Pro обладает еще более высоким качество
 ```bash
 magnet:?xt=urn:btih:75BBA1622DB2D3E4C1EA10E6EED8A661C4C3669C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:75BBA1622DB2D3E4C1EA10E6EED8A661C4C3669C
 magnet:?xt=urn:btih:2812D639E66BB09F7932CC0424DC1C5EF7A2448D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Overloud Gem studio plug-ins предлагает вам полный набор
 ```bash
 magnet:?xt=urn:btih:EEBA33D5B415CDB7593388C795CFD2B784DE35B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Aiseesoft DVD Creator - это одна из лучших профессиона
 magnet:?xt=urn:btih:4AC919066CBCF7D18AE5B22B80A50BBDE41EA7B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Mixcraft, созданный музыкантами для музыкантов,
 ```bash
 magnet:?xt=urn:btih:C2C71A10766B4EB6FF9D094F3DF1D3BEF7021B62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Replika предлагает три алгоритма, включая (   Чи
 magnet:?xt=urn:btih:4348D3065B7C69DDDB9C925678724DF7ED736F0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Mod Pack использует три классических эффекта м�
 ```bash
 magnet:?xt=urn:btih:B7ED4BE1AC3908C61DB6F3C7AA77D21D91B59E1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ ZDV — это секретное студийное оружие для все�
 magnet:?xt=urn:btih:1111D342AF420085AC02BAC1318FFEC24A0173EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Triad - новый многоканальный процессор на базе
 magnet:?xt=urn:btih:DAC5330FCAA4AD27DF974F774C2E97706EE1785E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ DxO ViewPoint – это новое программное решение пос
 ```bash
 magnet:?xt=urn:btih:995276EE72095498D03F72316D216EDC711E4EEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ RC-20 Retro Color - это плагин, который даёт творчес
 magnet:?xt=urn:btih:231B81BAD4A32D23DA8A34AF5B2FF9CB9FD1EAA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ W.A Production - KSHMR Essentials 1.2.0 VST, VST 3, AAX (x64) RePack by AstroNom
 ```bash
 magnet:?xt=urn:btih:2779D6268F2E5013E1E36AB9399EB8E2AACF213B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Sonible - smart:EQ live 1.0.5 VST, VST 3, AAX (x64) RePack by TCD [En]
 magnet:?xt=urn:btih:5203DF0EEF444D05A5C950971CBB48F158C00EF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Spotify 1.1.90.859 Portable by JolyAnderson [En/Ru]
 ```bash
 magnet:?xt=urn:btih:3A2DAC14DA33AC003DA990F3BAFD8EDE84F2B6C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

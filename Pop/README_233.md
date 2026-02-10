@@ -1,3 +1,148 @@
+###  Публикация: 1292739   (643290) от 31.03.2019
+
+VA - Eurodance Evolution 2019.02 (2019) [MP3|320 Kbps] <Euro-dance, pop-dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  J.O.Y.C.E. - Let The Rhythm Take Control (feat A.K.-S.W.I.F.T. - radio mix)
+02.  Free 2 Night - Phantom Of Love (feat Timi Kullai - remastered radio mix)
+03.  B.G. The Prince Of Rap & Chrizz Morisson - So Special (feat Timi Kullai & Pamela O'Neal - Dolls Euro remix)
+04.  Shilton - Flame (Eurodance radio mix)(   Читать дальше...   )Жанр: Euro-dance, pop-danceПродолжительность: 01:16:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D57A8B23EB6D1ABBCAD29FC0F46707C7D900BE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292888   (643372) от 31.03.2019
+
+VA - VA - Girls Club, Vol.1 (2018) Explicit [MP3|320 Kbps] <Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Terri B! - I'm Coming Back (Sidelmann Radio Edit)
+02. Crew 7 - No Diggity (Farec Remix)
+03. Alex Guesta - Caliente (Stream Edit)
+04. Moreno Chembele - Se orita (Radio Mix) (feat. X.Orbit)(   Читать дальше...   )Жанр: DanceПродолжительность: 01:54:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:079B51F1B94D8E9928008FE5AC029D60FF17802B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292787   (643375) от 31.03.2019
+
+VA - Girls Club, Vol.2 (Explicit) (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danzel - Stronger (Radio Edit)
+02. TyDi - Tear Me Up (Radio Edit) (feat. Nash Overstreet)
+03. TobY - The Darkest Night (Radio Edit)
+04. Brothers - Forever Young (Radio Edit) (feat. Ranieri)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:03:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3D9E94D4BF0305499FF1A757447B7469EAC5E49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292778   (643384) от 31.03.2019
+
+Loretta - The Stars My Destination (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Imagined Life Differently
+02. The Barefoot Contessa
+03. Thank You Friend
+04. Is Your Bigmouth Girlfriend Really so Charming?(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC6C4C71C745376F77C28428A193FD1C5DAB3A32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032415   (643557) от 08.07.2016
+
+Люди встречаются - Люди встречаются (2016) [MP3|320 Kbps] <Pop, Retro>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лето (04:23)
+02. Белка в колесе (03:37)
+03. Чернобровая дивчина (04:12)
+04. Лагуна (04:09)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 01:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:782C1FB3CF55ADA4AABD688159DC7F76E66BA56D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906630   (643570) от 09.06.2015
 
 Tove Styrke - Kiddo (2015) [OGG|489-534 кб/с]<Electropop>
@@ -21,6 +166,8 @@ Tove Styrke - Kiddo (2015) [OGG|489-534 кб/с]<Electropop>
 ```bash
 magnet:?xt=urn:btih:056DBC37F83459CFCF7F3C2C60E893BD341DB62E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +196,8 @@ magnet:?xt=urn:btih:056DBC37F83459CFCF7F3C2C60E893BD341DB62E
 magnet:?xt=urn:btih:445578D4E1C3C4AC229B100950F7BEC508E4B84D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +224,8 @@ VA - Disco 2.0 - Fever's Risin' Again (2016) [MP3|320 Kbps] <Disco, Nu-Disco>
 ```bash
 magnet:?xt=urn:btih:F9DC5FD5970380CEC43EDFCB0970AE55A303AD47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +254,8 @@ G.G. Tonet - Why (1980) [MP3|320 Kbps] <Electronic, Experimental, Disco>
 magnet:?xt=urn:btih:A03B26CD68D6B546FA9569023AD4784C0D1B595D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +282,8 @@ London Grammar - Truth Is A Beautiful Thing (2017) Deluxe [FLAC|Lossless|tracks]
 ```bash
 magnet:?xt=urn:btih:50507A91EC85B22AE476ED62EB2C4499B111B9CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +312,8 @@ Billie Eilish - When We All Fall Asleep, Where Do We Go? (2019) [FLAC|Lossless|t
 magnet:?xt=urn:btih:44694ED7AFA2EFB3836629DAB6C74C11C5CABAB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +340,8 @@ VA - InAkustik Reference Sound Edition: Great Cover Versions (HQCD) (2013) [FLAC
 ```bash
 magnet:?xt=urn:btih:3D950C6257F9AB71FDF9B2430FEE194AEFA5A71A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +370,8 @@ VA – Ваши любимые песни... (2001) [FLAC|Lossless|image + .cue]
 magnet:?xt=urn:btih:76B847F7105DA4B426E62183062C5E6FEA6BF57F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +398,8 @@ VA - Ulitimate Funky House (2017) [MP3|320 Kbps] <Nu Disco, Funky, Soulful, Groo
 ```bash
 magnet:?xt=urn:btih:32490BDDC096F21E8B6F12D499830EEB9CA40D2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +428,8 @@ VA - Заяц Рор Шоу-3 (1997) [FLAC|Lossless|image + .cue]<Pop, Dance>
 magnet:?xt=urn:btih:FAE0EE40B4E8A374132827CCC85690D847A605C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +456,8 @@ VA - Лучшие песни русских сериалов (2003) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:A209E0D7D2C7B9E04BACC876FFF39328CC30109D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +486,8 @@ VA - Лучшие песни русского радио 7 (2002) 2CD [FLAC|Loss
 magnet:?xt=urn:btih:5CC683B077FC7AF889D34D755EA2359254C305D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +514,8 @@ Anggun - Toujours Un Ailleurs (2015) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:91F517A1187C71ED976888C782F802358C85F594
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +544,8 @@ Murray Head - Tete a Tete (2007) [APE|Lossless|image + .cue] <Rock, Pop>
 magnet:?xt=urn:btih:DD829C859BFAC08615D5E1B88B132A6FE07F3FDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +573,8 @@ VA - Top Of The Pops '1982 (2017) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <19
 magnet:?xt=urn:btih:26E1CD6E968AFA11A95684ABC25CB68F2DE83395
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +598,8 @@ magnet:?xt=urn:btih:26E1CD6E968AFA11A95684ABC25CB68F2DE83395
 ```bash
 magnet:?xt=urn:btih:31B031DC3DFE2E92FA94899C6BB006826E9A867F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +628,8 @@ Mad Show Boys - Включите улыбальнички (2011) [MP3|320 Kbps] 
 magnet:?xt=urn:btih:3D4B1BDBC73C2FE6C29562D75B01581D64794CE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +653,8 @@ VA - Disco 80. Расширенные версии популярных хито
 ```bash
 magnet:?xt=urn:btih:A144A41F8F967C8FB540EC954630133B7772195A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +683,8 @@ Vacuum - I Breathe (1997) [FLAC|Lossless|tracks + .cue] <Synthpop>
 magnet:?xt=urn:btih:306F9953EFB18415DF08D05532F122ACA2E42ED3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +711,8 @@ CD 01:
 ```bash
 magnet:?xt=urn:btih:72AE0BFFD5A3C2AA2E4461DEE72C82697F8C3A5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,146 +741,7 @@ CD 01:
 magnet:?xt=urn:btih:DAF0B60559BE69178FCEC5EE955F6DB04532AF2E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292676   (645191) от 30.03.2019
-
-VA - Radio Italia Spring (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Takagi & Ketra - La Luna e la Gatta
-02. Elisa - Anche Fragile
-03. Mahmood - Soldi
-04. Jovanotti - Chiaro Di Luna(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57BE1634BD4D704F491CC6CE3A60F970732BF7A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292721   (645196) от 30.03.2019
-
-Fire - Fire (1978) LP [MP3|320 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deeper In Love (4:08)
-02. C'mon, Let's Do It (3:06)
-03. It's Been So Long (2:34)
-04. Wrap Your Arms Around Me (3:48)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1D0ADE28D89FA7C91888EA823525AF58EF35F2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292618   (645286) от 30.03.2019
-
-Rick Van Der Linden - GX 1 (1977) LP [MP3|320 Kbps] <Electronic, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GX 1 (4:28)
-02. Mystic Eyes (3:42)
-03. Double Flute X 2 (4:18)
-04. Clouds (3:28)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:37:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16D24FA9D6A7859E9CD60498A56DD67FE23AA3F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292671   (645288) от 30.03.2019
-
-Salvador Sobral - Paris, Lisboa (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 180, 181 (catarse) [00:03:21]
-02. Pressagio [00:04:13]
-03. Cerca del mar [00:04:33]
-04. Ela disse-me assim [00:03:45](   Читать дальше...   )Жанр: PopПродолжительность: 00:43:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC026412669F59C6628BFDF764536333F2B60332
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518042   (645341) от 02.07.2012
-
-T.Ark - H.A.P.P.Y. Radio (2010) [APE|Lossless]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_645341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under Cover Lover (Extended Version)
-02. Count On Me (Extended Version)
-03. How Old Are You (Mixed By Luis Rodriguez)
-04. Move It
-05. Carry Me (Maxi Version)
-06. H.A.P.P.Y. Radio (Extended Version)
-07. Count On Me (Instrumental Dub Version)
-08. Under Cover Lover (Instrumental)
-09. Count On Me (Single Version)
-10. Under Cover Lover (Radio Version)(   Читать дальше...   )Жанр: Italo-Disco
-
-## Скачать торент
-```bash
-нет
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Grimstar – это стратегия в реальном времени с с�
 magnet:?xt=urn:btih:62251A5F32DC8A8C9F19264BFA61CB1162C086E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Three Kingdoms: The Last Warlord - двумерная пошаговая стр�
 ```bash
 magnet:?xt=urn:btih:2AA89DD0D69F99252414DD942EE9CB3849A53EF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Planetary Annihilation: TITANS (2015) [Ru/Multi] (124610) Repack FitGirl
 magnet:?xt=urn:btih:561B2EC17EE96F2E1AB0B13E9B82D0C470F824F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Crusader Kings 3 - глобальная стратегия, значительн
 ```bash
 magnet:?xt=urn:btih:45912022A08EF8B6EEC33E311E892C20DFF67343
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Monster Train 2 (2025) [Ru/Multi] (Build #11691) Repack FitGirl [Supporter Pack]
 magnet:?xt=urn:btih:6982F983FB5E5C4C022D3A35E9D7D0A80EEE17A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Star Wars: Rebellion (1998) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:C344B5F28E6216060712649D0E73E131567437B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Ashes of the Singularity: Escalation – самостоятельное допо
 magnet:?xt=urn:btih:8E515AE372CB291A532270DFE8ED5F145ABA146E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Stellaris (2016) [Ru/Multi] (4.0.1/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:44BDD9DF0EB0E6F851903717ACF7BAD5777CAB21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Grimstar – это стратегия в реальном времени с с�
 magnet:?xt=urn:btih:E82F23DDB64BFA242F715312FBE9B2F67F4B64B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Hearts of Iron 4 (IV) – отличный военный симулятор, в
 ```bash
 magnet:?xt=urn:btih:AB84625A2A9AD86A8395F2E31E090A16D53A1A78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Broken Arrow (2025) [Ru/Multi] (1.0.6.p/dlc) Repack seleZen
 magnet:?xt=urn:btih:772CDA137FE1225B4DAF5FE048568F5324065DEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ WARNO (2024) [Ru/Multi] (157953/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:B1B4960569710A447B4032ADF0D02F296CF48E7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Wingspan / Крылья (2020) [Ru/Multi] (1.7.1104/dlc) Scene Tenoke
 magnet:?xt=urn:btih:4115A65A8AC640D69276C142AE497CF0C70A31F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Warhammer 40000: Rites of War сильно отличается от други�
 ```bash
 magnet:?xt=urn:btih:9EEDC1659ED9263EBC8E1BE15381D2E4146A3252
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Northgard (2018) [Ru/Multi] (3.7.26.42112/dlc) Repack FitGirl [The Viking Age Ed
 magnet:?xt=urn:btih:483A58C8E77F98B3BAAF70DF55B570DBCFFBFBFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ NOBUNAGA'S AMBITION: Awakening (2022) [Multi] (1.1.6/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:1946453A6C6695ECFDDC9D92FF2CA9DDEF6C379A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Interstellar Space: Genesis (2019) [En] (1.6.3/dlc) License GOG
 magnet:?xt=urn:btih:118E4AB0DEADDEACA42BD587B8EB9A52E3F3EACA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ HUMANKIND – историческая пошаговая стратегия, в
 ```bash
 magnet:?xt=urn:btih:6B0E05851D46CD4B480D7BD8FA9DEF5B554934FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Age of Darkness: Final Stand — это стратегия в реальном �
 magnet:?xt=urn:btih:561219C0C371FBBF5902B71BD063FF6C6492E477
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.5.257/dlc) Scene Rune [Delux
 ```bash
 magnet:?xt=urn:btih:42C1114E80E5E9C54490F8CD4246C7E8CE49E2AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Terraforming Mars – официальная адаптация популярн
 magnet:?xt=urn:btih:B256A0452C7BDAF1BAB96FEA1745B48268F3D264
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.5.257/dlc) Repack FitGirl [D
 ```bash
 magnet:?xt=urn:btih:8D2EA46A0FCB0556992CF4B1C6D7F49A927E1CF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Dune: Imperium (2024) [Ru/Multi] (2.2.10.1211/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:3639379FEB409539F40BF86C2E13F8A199D33B25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Diplomacy is Not an Option (2022) [Ru/Multi] (1.0.53r) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:596DA09827F0BE41FB4CB4A458FC9D8D3BFC9632
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ ZEPHON (2024) [Ru/Multi] (1.1.0/dlc) Repack FitGirl [Supporter Edition]
 magnet:?xt=urn:btih:C22E4E4989F8F943D65AC0FEFF58331149A260B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ ZEPHON (2024) [Ru/Multi] (1.1.4/dlc) Repack Other s [Supporter Edition]
 ```bash
 magnet:?xt=urn:btih:AA10E6E92BF7CCE6F7EFDFD6041A81CB34C52C18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

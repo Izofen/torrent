@@ -1,3 +1,32 @@
+###  Публикация: 1840951   (1047681) от 08.12.2025
+
+Senpais - Studio Albums (4 releases) (2020-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Senpais - метал-группа из Берлина, Германия, основана в 2018 году.2020 - Senpais
+2022 - Embers of Eternity (EP)
+2023 - Pandemonium (EP)
+2025 - By All MeansЖанр: Melodic Death MetalПродолжительность: 02:08:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EFD1645E841C43834A15436BEC27010E06FA8CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1841130   (1047754) от 09.12.2025
 
 VA - The Most Collection. Volume 2 (1971) Compilation, Dutch Pressing [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Country Rock, Folk Rock, Pop Rock, Soft Rock>
@@ -21,6 +50,8 @@ A4 Hot Chocolate - Love Is Life(   Читать дальше...   )Жанр: Cou
 ```bash
 magnet:?xt=urn:btih:FF4FC91550A2A1F1BCD9C62F9D9182EF3A45201E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ At Vance — немецкая метал-группа, созданная в 199
 magnet:?xt=urn:btih:AF8AF25AD78217D5C9BD99141B8F7DE3ADD22B22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ A4 F.B.I.(   Читать дальше...   )Жанр: Rock, InstrumentalПро�
 ```bash
 magnet:?xt=urn:btih:97944095D9A79D553658B394934C60ABF17DF83D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ Vhäldemar - испанская пауэр-метал группа, образо
 magnet:?xt=urn:btih:5CBB60D2E8EE486F2A1A58ACEAAB54B245947BF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ Orange Goblin — британская хэви-метал/стоунер-рок
 ```bash
 magnet:?xt=urn:btih:1B9C4A014E18603E0FC395CB55632C999C6E724E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ A3 Tropical Loveland(   Читать дальше...   )Жанр: EuropopПро�
 magnet:?xt=urn:btih:F81C9135311B9E0D07673FAB4B2608C002284F0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ Dreamshade - группа была образована в 2006 году в Лу
 ```bash
 magnet:?xt=urn:btih:7624C1DB80FA39630AA2E41B948FDD0EBFE2C8DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ Dreamscape - прогрессив-метал группа из Мюнхена (�
 magnet:?xt=urn:btih:09E3CCE75A97E5B4952BB65ED267843CBCAFFE73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ A4 Soldiers(   Читать дальше...   )Жанр: EuropopПродолжи
 ```bash
 magnet:?xt=urn:btih:C91E3FB510BF65A0C52FE99B98CFC697FDD39927
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ A4 Superstar(   Читать дальше...   )Жанр: Pop, Easy ListeningП�
 magnet:?xt=urn:btih:B1AF8A127EF27546203157A14F4F1BA87BCD3ED3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ Bloodbath — шведская дэт-метал-супергруппа, объ�
 ```bash
 magnet:?xt=urn:btih:EC42EC026855F347DBC2F135E9EBE88F213CA2BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ Kaunis Kuolematon - метал-группа из Финляндии, образ�
 magnet:?xt=urn:btih:9CDA80B9E86F4B9D53C56471ECB828D1554A44EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +397,8 @@ End of Aeon - финская метал-группа, участники кот�
 magnet:?xt=urn:btih:32C1C3607B2C5BC7F0B53B9EEE2BAA777E8BF4FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +423,8 @@ Sinamore - финская метал-группа, основанная в 2004 
 ```bash
 magnet:?xt=urn:btih:3C7FE65827C0D5AEDF52D9631CD1D02431B9D179
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +453,8 @@ Miss May I - американская метал-группа из города 
 magnet:?xt=urn:btih:85FA17A1B59F9927BDBEBD12ECB9E23405D36F74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +481,8 @@ Entwine - финская рок-группа из Лахти, основанна
 ```bash
 magnet:?xt=urn:btih:5BEF360E09BBD9913A8B8D5D7E86A3C5BA741D3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +511,8 @@ Dew-Scented — метал-группа из немецкого города Б�
 magnet:?xt=urn:btih:DA4E6028878DF71FFA70447919DFEAFD2C049EA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +537,8 @@ For My Pain… — финская готик-метал супергруппа �
 ```bash
 magnet:?xt=urn:btih:2113F2C66D92FA11A32AF215F4571A0F1B0CED8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +567,8 @@ Velozza - трэш-метал группа из Рурмонда, Нидерла
 magnet:?xt=urn:btih:EB906D8C09EC15B1653A9D56ACBC5E5D194DD505
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +593,8 @@ Destroy Them - немецкая трэш-метал группа из Эссен
 ```bash
 magnet:?xt=urn:btih:B8525FA8562B4493197A5F72A6E1C3E4CF9D88C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +621,8 @@ Vermocracy - австрийская дэт-метал группа из Вены
 ```bash
 magnet:?xt=urn:btih:90E100A0D51077CC7157072AFDD978B7AF26C98F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +651,8 @@ Dust In Mind - французская рок-группа из Страсбур�
 magnet:?xt=urn:btih:2BC7784923DE601EE1EBA9E54CC396C0A7219F02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +679,8 @@ A4 Close To You(   Читать дальше...   )Жанр: JazzПродолж�
 ```bash
 magnet:?xt=urn:btih:64E33C86D8602B02C22B53B6A53C593245AFB5EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +709,8 @@ A4 From Here To Eternity(   Читать дальше...   )Жанр: Jazz, Big 
 magnet:?xt=urn:btih:43C1A143686C134759EE47E8E8DAEF9513D778E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,32 +738,7 @@ A4 Like Someone In Love(   Читать дальше...   )Жанр: Jazz, Big B
 magnet:?xt=urn:btih:89CB6632FFC71BFB3AF7A3DEB9847F62D32766F0
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848181   (1052538) от 16.01.2026
-
-VA - Guardians Of The Galaxy. Awesome Mix Vol. 1 & Vol. 2 (2017) Deluxe Vinyl Edition, Songs From The Motion Picture Original Score By Tyler Bates [FLAC 2.0|48/24|image +.cue|MC-Rip] <Soundt ...
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-Awesome Mix Vol. 1
-01. Blue Swede - Hooked On A Feeling
-02. Raspberries - Go All The Way(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:30:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:671C7A96701D9AFFBDA1B76DD8C36C2BF1A1A4B3
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

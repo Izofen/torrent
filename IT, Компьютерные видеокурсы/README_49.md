@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:7937DE33451693B66BEE5F738E4E6124CD4104D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ magnet:?xt=urn:btih:7937DE33451693B66BEE5F738E4E6124CD4104D3
 magnet:?xt=urn:btih:727E434FED010DD45E57E60EE89BE2977A21631E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ ES6 Javascript с нуля. Ознакомьтесь с практическим
 magnet:?xt=urn:btih:657755E67952DE6461C5DCBD209A73F2BD34A041
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:657755E67952DE6461C5DCBD209A73F2BD34A041
 ```bash
 magnet:?xt=urn:btih:72CB4E8947F28ECF0F0D84014EFC739B021CA31A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ Mr-Grey/NZTCoder | Богатый Python разработчик (2022) WEB-DL [�
 magnet:?xt=urn:btih:2334F22E547DE6613D5A717FF1741A44EA09FD6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:2334F22E547DE6613D5A717FF1741A44EA09FD6C
 ```bash
 magnet:?xt=urn:btih:FA7E7E3E205F7272565BE9B90904092502AD1F37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:FA7E7E3E205F7272565BE9B90904092502AD1F37
 magnet:?xt=urn:btih:FD4CAE772858192C2013DFB1D52907028AA140E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:FD4CAE772858192C2013DFB1D52907028AA140E9
 ```bash
 magnet:?xt=urn:btih:D71ABC0479ECF1E916E297433C3E002EB049A839
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ Udemy, Elshad Karimov | Java Data Structures and Algorithms Masterclass (2022) W
 magnet:?xt=urn:btih:0C13BE093FD42F36D9491E2F1073B1645D55DA8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ Udemy, Mammoth Interactive, John Bura | The Complete Course To Advance Your Codi
 magnet:?xt=urn:btih:84F744E9E74998045A2E2C9D589E5923ACE8D64C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ Udemy | Java для начинающих: с нуля до сертификат�
 ```bash
 magnet:?xt=urn:btih:4244F438CF1D259583B6E90EC2B9C72AAC64A527
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:4244F438CF1D259583B6E90EC2B9C72AAC64A527
 magnet:?xt=urn:btih:334E1BA67C025C5229915347D5640FC25C6E4884
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ Laracon Online | Laracon Online 2020. The official Laravel online conference (20
 magnet:?xt=urn:btih:EFD625FB5267C5A3DDBA9AAC5FC0F353356886E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:EFD625FB5267C5A3DDBA9AAC5FC0F353356886E3
 ```bash
 magnet:?xt=urn:btih:AB83252E00847D58D1A7F3B8A8ED5E3156FF5CB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ Udemy, in28Minutes Official, Ranga Karanam | Java Programming for Complete Begin
 magnet:?xt=urn:btih:3A8FA389EFA543CEB5EA24178984A297104962A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:3A8FA389EFA543CEB5EA24178984A297104962A0
 ```bash
 magnet:?xt=urn:btih:7D87ABF8F68C960BC877C92C1FBE664C564B9D65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +457,8 @@ AutoIt Guide RUS | Основы программирования на AutoIT (20
 magnet:?xt=urn:btih:6FC2AE4D12F22501A3E19D7512510D300D44FD87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ magnet:?xt=urn:btih:6FC2AE4D12F22501A3E19D7512510D300D44FD87
 magnet:?xt=urn:btih:1F28C299761632993A5D83D649827466A2FAFDB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ magnet:?xt=urn:btih:1F28C299761632993A5D83D649827466A2FAFDB5
 ```bash
 magnet:?xt=urn:btih:83293B7BDDC245094A4449FAEBE0555EA23B6EB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ Duckademy | Освоение SQL-инъекций / Mastering SQL injection (202
 magnet:?xt=urn:btih:003A24C7B5EA1E0A523E81109742613268E67FE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ JavaScript - ведущий язык программирования, и воп
 ```bash
 magnet:?xt=urn:btih:A28BF976A4889966283DD5CAB132FB30A9385A59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ magnet:?xt=urn:btih:A28BF976A4889966283DD5CAB132FB30A9385A59
 magnet:?xt=urn:btih:56412545EEFC22D43116C943164A3A8A20D760CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ magnet:?xt=urn:btih:56412545EEFC22D43116C943164A3A8A20D760CC
 ```bash
 magnet:?xt=urn:btih:024AB682AE8EFDDDDFD92458D66DBA0BB84FE961
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +645,8 @@ Stepik, Михаил Непомнящий | TypeScript для современн
 magnet:?xt=urn:btih:5FDC2C5E84262CB742A41D6A8B38C985644E7751
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +671,8 @@ lynda.com | Visual Studio 2010 Essential Training [2010] [EN] PCRec
 ```bash
 magnet:?xt=urn:btih:9E5D8E57D4E277E20DE8E76053936125292E6AE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +699,8 @@ itgid | Интернет магазин на node.js (2019) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:2D1AB0D5D1FE8A6C4FB2BC87B9EC5E73E52EF4CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

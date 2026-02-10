@@ -1,3 +1,32 @@
+###  Публикация: 1089163   (954036) от 02.01.2017
+
+VA - Worlds Trance Higher (2016) [MP3|320 Kbps] <Trance, Harmonic, Energy, Emotional, Uplifting, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fabio XB & Liuck Feat Roxanne Emery - Nowhere To Be Found (Craig Connelly Remix) 6:23
+02. Will Atkinson - Dusk 7:58
+03. Ron Van Der Beuken And Bodo Kaiser - Rising Flute (Ron Van Den Beuken Mix) 5:58
+04. Kukuzenko - Dreamer (Original Mix) 7:09(   Читать дальше...   )Жанр: Trance, Harmonic, Energy, Emotional, Uplifting, ProgressiveПродолжительность: 06:08:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CA580B7BD31FB824577251993CAA4EE26A2A77E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359581   (954141) от 20.02.2020
 
 Юрий Сучков - ''Муму. Голливудская версия'' (single) (2020) [MP3|320 Kbps] <Chanson>
@@ -18,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:E9B4903CECC8D3B0F59695BCF53C2D768A0C7514
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +77,8 @@ VA - не Громкие новинки недели 56 (2020) [MP3|320 Kbps] <P
 magnet:?xt=urn:btih:821AAB89FBE97AC9163D42FB9FEF731949587ACA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +105,8 @@ VA - Absolute Reggae (2020) [MP3|320 Kbps] <Reggae, Ska, Dancehall, Soul>
 ```bash
 magnet:?xt=urn:btih:F43B38B485FE84A2F694D41FA8C2AE97F510A161
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +135,8 @@ VA - Caola: Rythm And Blues Mix (2020) [MP3|320 Kbps] <R&B, Soul>
 magnet:?xt=urn:btih:C47DD745234014D3BF6D97265C9DEA6A5D8D40F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +163,8 @@ VA - American Country Session (2020) [MP3|320 Kbps] <Country, Folk>
 ```bash
 magnet:?xt=urn:btih:AE798175DA07E48374AFE85E8EA14B9C7E1A7907
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +193,8 @@ VA - House Playdance Mixtape (2020) [MP3|320 Kbps] <Club, Dance, House, Electro>
 magnet:?xt=urn:btih:5709BFB4245C08AFCD4020F0385164D234B7B611
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +221,8 @@ VA - The Best World Ballads - 28 (2016) [MP3|320 кб/с] <Pop, Rock, Blues, Rap
 ```bash
 magnet:?xt=urn:btih:9E59B1AFA937F2374B94F3AA9A4BE7A3A52F8FA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +251,8 @@ Blues Forever vol.13 (2015)
 magnet:?xt=urn:btih:052298EC329F11884D163F7A634E739E79505435
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +279,8 @@ VA - My Favourite Hits of 1971 (8CD) (2015) [MP3|320 кб/с]<Easy Listening, Ch
 ```bash
 magnet:?xt=urn:btih:3CDF2A07BE9A171454FA48A758F9587395874DBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +309,8 @@ VA - Душевный Шансон Зимняя Метелица (2016) [MP3|256
 magnet:?xt=urn:btih:ECCAB516EF21FE7949063FA4C4D9948B426CB2CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +337,8 @@ VA - Extra House: Bonus [05] (2016) [MP3|320 кб/с] <Deep House, Club House>
 ```bash
 magnet:?xt=urn:btih:3010348C8E0BBC615DD86217B59572D03572F30F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ Hits of My Soul - сборник электронной и инструмент�
 magnet:?xt=urn:btih:AAC78402FCE8E56375F266BD79C3C2E53AEBC3EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ VA - Новинки С  Разных Популярных MP3 сайтов Вы�
 ```bash
 magnet:?xt=urn:btih:4DA2AD3111C50954C9FA2F671A9BE355E526C674
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ VA - Piano Collection (2017) [MP3|320 Kbps] <Classical, Piano>
 magnet:?xt=urn:btih:830952A24B2BE8D8CFD2BE905A91A0D8048333FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +456,8 @@ VA - Record Dance Label: Compilation Vol.7 (Christmas Edition) (2017) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:044AE027BECEA8CBAAE49E9BA597D6D854F787CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +486,8 @@ VA - Дискотека 2020 Deep House - The Best Vol.7 от NNNB (2020) [MP3|3
 magnet:?xt=urn:btih:67076521951D0D0F6C9FECDA807B75355E192AA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +514,8 @@ VA - Discoteka 2016 Dance Club. New Year's release (2016) [MP3|320 Kbps] <House,
 ```bash
 magnet:?xt=urn:btih:3E79F4562AB44C9DF5812192280076B1F8580F77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +544,8 @@ VA - 90s Dance Classics (2016) [MP3|320 Kbps] <Latin Pop, Jazz, Soul, Dance, RnB
 magnet:?xt=urn:btih:4660B9EF7FACF1A4DA04307802C0D2214A29989A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +572,8 @@ VA - Sentimental Blues (2020) [MP3|204-320 Kbps] <Blues, Lyric>
 ```bash
 magnet:?xt=urn:btih:EE7DEE3793D57CC210CC8F682F9804C40BA19B77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +608,8 @@ VA - Gold of Teddy Killerz (2013) [MP3|320 кб/с]<Drum'n'Bass, Dub Step, Glitc
 magnet:?xt=urn:btih:AFA57CFA94547F64B418450FF383766BB0DD035E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +636,8 @@ VA - Рок впрок 14 (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:D6F6CDB29003AF474094A4F15DD82E1E09F732CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +666,8 @@ VA - Romantic Souls: Popular Lyric Collection (2020) [MP3|320 Kbps] <Pop, Lyric>
 magnet:?xt=urn:btih:F22459538E085772FF8FAB7D0E9598CCFF29C413
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +694,8 @@ VA - 100 Greatest Dance Anthems (2020) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:F7CAF170D6AABDC9DC8B9259E886DB29CB190168
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +724,8 @@ VA - Popular European Mix (2020) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:DFC94CED5D240D98309254052BB29190E7D89A29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -676,32 +753,7 @@ VA - The Official UK Top 40 Singles Chart (24-02-2013) [MP3|320 кб/с]<Pop, Da
 magnet:?xt=urn:btih:D11BAEF8A13B0113B8E65C7924BA20CD7065DEC1
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361384   (955734) от 19.02.2020
-
-VA - Soft Winter Ambient Music (2020) [MP3|320 Kbps] <Ambient, New Age, Downtempo, Relax>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chronos - Diacronity
-02. Jepe & Takumi Motokawa - Unfolded
-03. Point - Amonit Gate (Original Mix)
-04. Buddha-Bar - Tritone(   Читать дальше...   )Жанр: Ambient, New Age, Downtempo, RelaxПродолжительность: 06:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87897A405C44430E6D5F2B25FB19DA1748AD8DFC
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

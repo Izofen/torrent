@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:B94DA524B556B29E4EC54B341CB071E0EC1EC158
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Bloodrain - De Vermis Mysteriis (2001) [FLAC|Lossless|image + .cue] <Thrash Meta
 ```bash
 magnet:?xt=urn:btih:AFE4B2CBD4729AD63861F22A862F7E42B1ABAF7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -77,6 +81,8 @@ Aeoliah - Elixir Immortale (2010) [MP3|320 kbps]<New age, Meditative>
 magnet:?xt=urn:btih:593377C7584CC7FF647B6A788064B1D7B98AAEE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ magnet:?xt=urn:btih:593377C7584CC7FF647B6A788064B1D7B98AAEE1
 ```bash
 magnet:?xt=urn:btih:A3E7418E1CD71A6D45C711AF5265CA948A7F7AE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -129,6 +137,8 @@ VA - Ori Uplift & Dr. Riddle - Uplifting Only 251 (2017) [MP3|320 Kbps] <Trance,
 magnet:?xt=urn:btih:4F79F1DFE89051D74F91CD1D816EE7AB7611090A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +165,8 @@ Margenta - Вентиль-провокация (2019) [MP3|320 Kbps] <Heavy Meta
 ```bash
 magnet:?xt=urn:btih:E51BE51FC4A6B1933169996DDAE29903EC3FEE17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +201,8 @@ VA - Russian XXL Night (2010) [MP3|320 kbps]<Pop, Dance>
 magnet:?xt=urn:btih:2974DC6AD5DAF32A20E8997CD12E2F5ACF811B88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +227,8 @@ Wondershare Recoverit - профессиональное приложение, �
 ```bash
 magnet:?xt=urn:btih:E210540D863656FFC545536EF83E3EDCEC9D7972
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +257,8 @@ VA - Dance The Annual 2020 (2019) [MP3|320 Kbps] <House, Hardstyle, Club, Dance>
 magnet:?xt=urn:btih:2D6808C20832A7A1A3624EF9936E49015CD6EC18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +284,8 @@ magnet:?xt=urn:btih:2D6808C20832A7A1A3624EF9936E49015CD6EC18
 magnet:?xt=urn:btih:FA91EED53E056D0922B09C89ADA532B8F93C4998
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +310,8 @@ Various Artists - Super Black Blues (1969) [MP3|320 kbps]<Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +335,8 @@ Various Artists - Super Black Blues (1969) [MP3|320 kbps]<Blues>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +365,8 @@ Alex Lahey - The Best of Luck Club (2019) [FLAC|Lossless|tracks + .cue] <Indie R
 magnet:?xt=urn:btih:9D1358648F62D9E870D5EEBF2EECAADD05D894B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +393,8 @@ VA - Essential Hits Progressive Trance (2017) [MP3|320 Kbps] <Progressive Trance
 ```bash
 magnet:?xt=urn:btih:8FB6AA6FFD3B97AF6E7799A7F02606CEF64BA45D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +429,8 @@ VA - Raise The Bar LP (2010) [MP3|320 kbps]<Drum n Bass>
 magnet:?xt=urn:btih:D04C7E5261DE87AFF041E50A3B686A3EE4995325
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +454,8 @@ VA - Новогодние Каникулы 50/50 (2010) [MP3|256 kbps]<Pop/Dance
 ```bash
 magnet:?xt=urn:btih:8DB2B79B59084362EE6658B0297A435C3A01D11E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +481,8 @@ VA - С Новым годом, Крошка ! (2010) [MP3|192 kbps]<Pop, Dance>
 magnet:?xt=urn:btih:FDBF6E04CB880FA0C5B7FE5FCA33F9D2ED04E7EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +506,8 @@ Microsoft планирует поднять в четыре раза точно�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +533,8 @@ VA - Поцелуй меня, удача! Праздничный зимний (2
 magnet:?xt=urn:btih:BD32F0B56C795663A96F9D0CEB4A1D937F59AC67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +558,8 @@ magnet:?xt=urn:btih:BD32F0B56C795663A96F9D0CEB4A1D937F59AC67
 ```bash
 magnet:?xt=urn:btih:59DBDE63A9EEB89824A89FB7A48B3710C53AE283
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +585,8 @@ The Elder Scrolls IV: Oblivion Game of the Year Edition / The Elder Scrolls 4: O
 magnet:?xt=urn:btih:19459CA01C7612F8D7A224C020A42B577DC9D4E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +610,8 @@ Civilization IV — последний на сегодняшний день пр
 ```bash
 magnet:?xt=urn:btih:8AA2801C43810D8E7242C61A2E0318BF07330159
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +637,8 @@ magnet:?xt=urn:btih:8AA2801C43810D8E7242C61A2E0318BF07330159
 magnet:?xt=urn:btih:C4A4F0686BBCF574AFCAB8B1379A5E67912B4D26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +662,8 @@ Sid Meier’s Civilization III, дополнения Civilization III: Play the 
 ```bash
 magnet:?xt=urn:btih:A494585A56EF24EDF3506060C5374FBF8C38C8A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +692,8 @@ VA - Советский Винил 44LP(1970-1988) [FLAC|Lossless] <Instrumental
 magnet:?xt=urn:btih:0FAB83614FD7A22622D9B0B3CD6B87BD0FF1601C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +717,8 @@ Konung 3: Ties of the Dynasty / Князь 3: Новая династия (2009)
 ```bash
 magnet:?xt=urn:btih:861602F56CD51DD1DB1823C6CB579A466D8BA6F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

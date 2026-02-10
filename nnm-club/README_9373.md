@@ -22,6 +22,8 @@ Boris Brejcha - DJ Mixes Single Tracks (2016) [FLAC|Lossless|WEB-DL|tracks] <Tec
 magnet:?xt=urn:btih:E8827BB7B81D29F5788CE5FA57D3F8C4539789C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:E8827BB7B81D29F5788CE5FA57D3F8C4539789C2
 ```bash
 magnet:?xt=urn:btih:B584FBCC7291D3DFA04702257200E26A92147058
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:B584FBCC7291D3DFA04702257200E26A92147058
 magnet:?xt=urn:btih:7873891E768F8B37E4C9BB433A00BF98C58BEDBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:7873891E768F8B37E4C9BB433A00BF98C58BEDBE
 magnet:?xt=urn:btih:5B8458B939096C2C5276694AEF8DD249778F41EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:5B8458B939096C2C5276694AEF8DD249778F41EE
 ```bash
 magnet:?xt=urn:btih:04650A9870587F8378A34CE360A86F2D6A4DE564
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ VA - Танцуют все! (2006) [FLAC|Lossless|tracks + .cue] <Эстрада
 magnet:?xt=urn:btih:9C6B82B971DED6195BF92E1A9C6A12F798FD4B18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:9C6B82B971DED6195BF92E1A9C6A12F798FD4B18
 ```bash
 magnet:?xt=urn:btih:EBC8B60F98A7070ED8B60899CE74AA4F5091B861
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:EBC8B60F98A7070ED8B60899CE74AA4F5091B861
 magnet:?xt=urn:btih:16639CFE96B1C577B5EFECB4B6D01CE4EA6A9BAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:16639CFE96B1C577B5EFECB4B6D01CE4EA6A9BAB
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:16639CFE96B1C577B5EFECB4B6D01CE4EA6A9BAB
 magnet:?xt=urn:btih:E28F0A216F3E4D72FC846ADA82805920FCD70B91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:E28F0A216F3E4D72FC846ADA82805920FCD70B91
 ```bash
 magnet:?xt=urn:btih:2A080F8CB57B1D1FC84610928C85E88B13903894
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:2A080F8CB57B1D1FC84610928C85E88B13903894
 magnet:?xt=urn:btih:A4F93F04A7282A94D287D2297C062EB422C4FF76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:A4F93F04A7282A94D287D2297C062EB422C4FF76
 ```bash
 magnet:?xt=urn:btih:08338C855B6B0061F8E6DC6FFF9929AEF7107C09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:08338C855B6B0061F8E6DC6FFF9929AEF7107C09
 magnet:?xt=urn:btih:85D2A4A62E6A060B967B7492DFF945A755F3DBC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:85D2A4A62E6A060B967B7492DFF945A755F3DBC5
 ```bash
 magnet:?xt=urn:btih:2CF028914B34BB48B7B15F67A4740D5331824E36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:2CF028914B34BB48B7B15F67A4740D5331824E36
 magnet:?xt=urn:btih:C27B2F08A24AF0B52E38AF794600482B010BF026
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:C27B2F08A24AF0B52E38AF794600482B010BF026
 ```bash
 magnet:?xt=urn:btih:BF56093EAF609D5938D4B2CAD54D94FA945761DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Stand Up (2016.12.04) SATRip (сезон 5, выпуск 9)
 magnet:?xt=urn:btih:08DFCBD2B6D1E9036F5DFE8C7D31E9B2B50625B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Dism++ - утилита предназначена для продвинутых
 ```bash
 magnet:?xt=urn:btih:8353D87DA133DE5456F95F2CA0C9D1F8E1E10148
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:8353D87DA133DE5456F95F2CA0C9D1F8E1E10148
 magnet:?xt=urn:btih:316B693EA7ED152F61C82B2F5ED638C03E78C996
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:316B693EA7ED152F61C82B2F5ED638C03E78C996
 ```bash
 magnet:?xt=urn:btih:BD5CDE9CA8FDC9F9E41270975E7F6CFC6AE70600
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:BD5CDE9CA8FDC9F9E41270975E7F6CFC6AE70600
 magnet:?xt=urn:btih:78C0346B1D001B945C190142C070005D4B3B0642
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ WASP-12b - огромный алмаз, размером с планету.
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ WASP-12b - огромный алмаз, размером с планету.
 magnet:?xt=urn:btih:A47B0F1D531C888EE43D5E039D78FD807FCCF262
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:A47B0F1D531C888EE43D5E039D78FD807FCCF262
 magnet:?xt=urn:btih:E49E1D42B158F436FBE91354D86818280E1AB409
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ magnet:?xt=urn:btih:E49E1D42B158F436FBE91354D86818280E1AB409
 ```bash
 magnet:?xt=urn:btih:660D878E20788E53EA897B326F48D0A7737A00FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

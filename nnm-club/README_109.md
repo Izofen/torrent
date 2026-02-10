@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:EECAEB3C24F8AD5DCE26595931BF209AF56FA4F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:EECAEB3C24F8AD5DCE26595931BF209AF56FA4F4
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:EECAEB3C24F8AD5DCE26595931BF209AF56FA4F4
 magnet:?xt=urn:btih:4E35A6571A220D7395457D60E9754F33872CDF3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:4E35A6571A220D7395457D60E9754F33872CDF3E
 ```bash
 magnet:?xt=urn:btih:BC2D8CD9BEB6809164ADE6CF55752148D548F6D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:BC2D8CD9BEB6809164ADE6CF55752148D548F6D8
 magnet:?xt=urn:btih:7D706D92E25CD40EF2DE7E894679F5517810648F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:7D706D92E25CD40EF2DE7E894679F5517810648F
 ```bash
 magnet:?xt=urn:btih:B630E9831B8530F447DD2AF9F7026AE224E2EE4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Hearts of Iron 4 (IV) – отличный военный симулятор, в
 magnet:?xt=urn:btih:8DA5F2FA62E66EFFBD28E59F8A37D3E0550D8994
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:8DA5F2FA62E66EFFBD28E59F8A37D3E0550D8994
 ```bash
 magnet:?xt=urn:btih:162135CA24411C2EA0D59FE6E200374F1CF47A5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Galactic Civilizations IV (2023) [Ru/Multi] (3.01/dlc) Repack Let'sРlay [Supern
 magnet:?xt=urn:btih:D0200363AD4C2EF8E69E388506E46BBD5E0C2A19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:D0200363AD4C2EF8E69E388506E46BBD5E0C2A19
 ```bash
 magnet:?xt=urn:btih:00E46D30584B5B9F8F523098F6F0F83D3D26F17A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:00E46D30584B5B9F8F523098F6F0F83D3D26F17A
 magnet:?xt=urn:btih:527A9711909FEE95A62217045EB47BD5747398B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:527A9711909FEE95A62217045EB47BD5747398B8
 ```bash
 magnet:?xt=urn:btih:3EE244FB3A0A36907D30197486C750FCA25DF1FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0 Build 19682311/dlc
 magnet:?xt=urn:btih:96F95A764280A31B0840BED765A2C957A40E232E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:96F95A764280A31B0840BED765A2C957A40E232E
 ```bash
 magnet:?xt=urn:btih:62DEE2209457965779D6E854D7FE0A8F28FE1C0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:62DEE2209457965779D6E854D7FE0A8F28FE1C0E
 magnet:?xt=urn:btih:7AF9CCC4D9FF5EF9BE7719BA1A9F08B57D86EC53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ SWAT Commander (2025) [Ru/Multi] (0.7.7.4) Repack Let'sРlay [Early Access]
 ```bash
 magnet:?xt=urn:btih:E455072B6E3FC95020059285C5598B7459923F38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (2.0.4) Repack Let'sРlay
 magnet:?xt=urn:btih:2B791ABC3ED7F9E9CBDB11B3D3D54370A33B4412
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Tu Bian Yingxiong X | To Be Hero X | Быть героем Икс [2025, WEB, 24
 ```bash
 magnet:?xt=urn:btih:456F06B69E64C81B9B901F68B6A4D7ECA9A862EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:456F06B69E64C81B9B901F68B6A4D7ECA9A862EA
 magnet:?xt=urn:btih:B61766AFFF71BF7EF7A0F384118BC38A8B1819E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ magnet:?xt=urn:btih:B61766AFFF71BF7EF7A0F384118BC38A8B1819E4
 magnet:?xt=urn:btih:2E80432E83BFE687E8F3D7C85441ED73F3EC979D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ magnet:?xt=urn:btih:2E80432E83BFE687E8F3D7C85441ED73F3EC979D
 ```bash
 magnet:?xt=urn:btih:0376DEA0750A903D7FFE8583722BC106E5549141
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:0376DEA0750A903D7FFE8583722BC106E5549141
 magnet:?xt=urn:btih:19E213FD6716FC12593F9A4B04D8D903A9D772FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ magnet:?xt=urn:btih:19E213FD6716FC12593F9A4B04D8D903A9D772FC
 ```bash
 magnet:?xt=urn:btih:115C1E961BE4B289F909B2ECA6A97BBF82403595
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ Shardlight (2016) [En] (3.4) License GOG [Special Edition]
 magnet:?xt=urn:btih:10D9531D2C55AB6848EA20532AD18013D0162583
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ magnet:?xt=urn:btih:10D9531D2C55AB6848EA20532AD18013D0162583
 ```bash
 magnet:?xt=urn:btih:4B31EC80A5870D5049BF20DAB277482A9FAFA04F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +676,8 @@ Fargo - Live In '25 (Live) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Ro
 ```bash
 magnet:?xt=urn:btih:9CB69D241D361CEB6D08DD367129EF9C2045F8B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

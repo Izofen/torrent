@@ -1,3 +1,32 @@
+###  Публикация: 1450518   (1028881) от 27.02.2021
+
+VA - Music News vol.76 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028881.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kristina Si - Me So Bad (02:40)
+ 002. Alexandra - Блаблабой (02:14)
+ 003. ANFA - On My Mind (02:40)
+ 004. Aquaneon - Румба (01:55)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:14:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:173B97B5AC5402AACD1A56BFE121050C9D821DED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450498   (1028894) от 27.02.2021
 
 VA - Music News vol.75 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
@@ -21,6 +50,8 @@ VA - Music News vol.75 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 ```bash
 magnet:?xt=urn:btih:6BD2C2C1141FA619E79CA9ACCEE6BCA13A119FDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - The Sound Of Illusion (2021) [MP3|320 Kbps] <Deep House, Electro>
 magnet:?xt=urn:btih:85F1D57A52CE51E8E73C6DA1943A440A7C1666E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Beatport Progressive Trance: Electro Sound Pack #246 (2021) [MP3|264-320 Kb
 ```bash
 magnet:?xt=urn:btih:6392FEEF976014BFA9CA8518CB07B31A6007B814
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Mystical Waves: Future House Music (2021) [MP3|320 Kbps] <Future House>
 magnet:?xt=urn:btih:86474F5C990AC11C07BDE2B850A1AAA11A407A48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ The Rolling Stones - Best of the Best (1965-1973) Remaster SMRP, De-Noised, 2020
 ```bash
 magnet:?xt=urn:btih:7ABB13B3104758D52627CA7691DDE1E999F51006
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Loud Hits Of The 90s (2021) [MP3|320 Kbps] <Pop, Dance, Rock>
 magnet:?xt=urn:btih:C3A26E03E3F0F5B0D865340DFFB940FCD90443EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Best New Trap (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:2F9284B37005C65B7AFF6CB13B9396B44CABC61F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ R&B – культура сугубо гетеросексуальная, в о�
 magnet:?xt=urn:btih:10675AA23291380B5C1CEE5CB93AC67608AEE2C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Electropop: Event Of The Season (2021) [MP3|320 Kbps] <Electropop, Synthpop
 ```bash
 magnet:?xt=urn:btih:DB2315345EFCB9D6EF332911F4833147FCCBBDD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - Beatport Deep House: Electro Sound Pack #245 (2021) [MP3|320 Kbps] <Deep Ho
 magnet:?xt=urn:btih:D9C77EDF959A863C06E55E3083D148F1E9AA3039
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - Beatport Electro House: Sound Pack #244 (2021) [MP3|320 Kbps] <House, Elect
 ```bash
 magnet:?xt=urn:btih:89BA96348482BA630222C7B0653C8FED36F5E60A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - Euphoric Party: Techno Electronic Set (2021) [MP3|320 Kbps] <Techno, Minima
 magnet:?xt=urn:btih:279A450C0ADF9364A6346049B8F9B59AD5BEF71B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ VA - Зайцев.нет Лучшие новинки Февраля (2021) [MP3|
 ```bash
 magnet:?xt=urn:btih:85C2615C566848B119A85A029E523FFD9C9C2104
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ VA - Music Collection. From West To East (1991-2016) [MP3|320 Kbps] <New Age, En
 magnet:?xt=urn:btih:87AEDE7AED043BB27EED8B113F23AA6133463B41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +456,8 @@ Dance:
 ```bash
 magnet:?xt=urn:btih:A00CFE7AEA600227119136C24296FEF6B0642ACD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +486,8 @@ Part 1 (Discoteka):
 magnet:?xt=urn:btih:7CC1A36FAA9C5AC75AAF26E4FDCC5FBD03EC5136
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +514,8 @@ Dance:
 ```bash
 magnet:?xt=urn:btih:AB3D52F4768325905D2BA2217C8ED7E698BEBE97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +544,8 @@ VA - Anos 70 - Internacional (2023) [MP3|320 Kbps] <Rock, Pop>
 magnet:?xt=urn:btih:97AAA42C597DC890CC2DCBD2994E3B71BEB52882
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +572,8 @@ Plvtina - Compilation (2023) [MP3|320 Kbps] <Electronic>
 ```bash
 magnet:?xt=urn:btih:E2CF198B246FF32D3AEC68F15481C3390D569F8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +602,8 @@ VA - Не за горами весна Vol.3 (2021) [MP3|320 Kbps] <Шансон
 magnet:?xt=urn:btih:7F8A3CA49DADB97E2B33CC82FF4F70B15A4C6A31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +630,8 @@ VA - Громкие новинки Февраля (2021) [MP3|320 Kbps] <Pop, Da
 ```bash
 magnet:?xt=urn:btih:1A04AE94EE10676A28FBB1EC0436314727329B28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +660,8 @@ VA - 23 февраля: За пацанов (2021) [MP3|~245 Kbps (V0)] <Шан�
 magnet:?xt=urn:btih:7C396AB7B649B639B6169F77DC230047E485EBAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +688,8 @@ VA - Hammond Organ in ROCK (2021) [MP3|320 Kbps] <Rock, Hammond>
 ```bash
 magnet:?xt=urn:btih:E5FCE9F75BF1D4177F9DDA659420105E09AE2AE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +718,8 @@ VA - 23 февраля: Страна (2021) [MP3|~245 Kbps (V0)] <Поп, рок
 magnet:?xt=urn:btih:7F178003995C5425846519245EBEA8138574CC11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,32 +747,7 @@ VA - Hip-Hop Street Dance (Vol.07) (2021) [MP3|320 Kbps] <Hip-Hop>
 magnet:?xt=urn:btih:3A293DEEB4AA332F7F40AC970062E539A77CF37A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449783   (1029541) от 23.02.2021
-
-VA - Bienvenue: Rap Francais (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это музыка, рожденная на улицах больших городов, часто говорит о наболевших социальных проблемах. В основе рэп-лирики лежат проблемы социального неравенства, выживания и поиска своего места в жестоком мире. Французкий реп - яркий и свежий, этот стиль сразу заинтересовал поклонников направления. Приток ритмов вместе с иммигрантским населением Франции, пластичный язык (   Читать дальше...   )001. Foda C - Stockholm
-002. Sales Gosses - Routine
-003. Lslk - Nous Serons Pendu
-004. Le A - Puce(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 07:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:656019B30C73EDC3FE16F72CBC87B900B421B8B2
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

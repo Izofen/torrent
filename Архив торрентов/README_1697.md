@@ -19,6 +19,8 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 magnet:?xt=urn:btih:93E1C07AB0779A02099895DEAD6A7F398A03A4EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ LDPlayer 9 — мощный бесплатный эмулятор устройс
 magnet:?xt=urn:btih:7045537F9CC5B36C254EC4C90EB1FB28116698FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Fort Firewall - простой и бесплатный брандмауэр дл
 ```bash
 magnet:?xt=urn:btih:9A66067419FE60E394766201047BA61915AD3E0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ R-Studio Network 9.2 Build 191153 (x64) RePack (& Portable) by TryRooM [Multi/Ru
 magnet:?xt=urn:btih:1423B602A375A604DF982FEBCD5E921C5846E50A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ PowerRun – удобная бесплатная программа для за�
 ```bash
 magnet:?xt=urn:btih:145DAA00C1C5506A186D9384327D555D4831F157
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Hides 5.9.1 [En]
 magnet:?xt=urn:btih:4A0814763781F656F2F95C8CA04C011B55E717AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ VueScan - программа для работы со сканерами HP, Min
 ```bash
 magnet:?xt=urn:btih:1BA3D064F0E689EB6BF4D3F8F9705A8F93F9A2AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ One Commander V3 — это современный файловый менедж
 magnet:?xt=urn:btih:D891238EE0A8FBBC2DC4D088DC4D972B7BD21DDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ MediaInfo — программа для получения подробной т
 ```bash
 magnet:?xt=urn:btih:297035DCC94613F6730AF68F53427EFDA920FE4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ RegCool 1.339 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:FFDF38292BE034FC1A8D85419BD5B61A7DB0D175
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 ```bash
 magnet:?xt=urn:btih:E3931EA5C6A128B33D8710819917B1F66AF81333
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ CleanShot X предоставляет более 50 функций , что д�
 magnet:?xt=urn:btih:643E9E3CC5541670F18A11317A3FD0BFFBA1103C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:777BD0C3AB9DE3101C453DCF240CF91A7E1E94B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:EC3ADB62333963860227D40836311F6EC41B2BBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Perfectly Clear WorkBench позволяет всего за пару клико
 magnet:?xt=urn:btih:BBA205650B7F60D706EDB5727BDAAA29A1B5710A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Reader — это быстрая и минималистичная програ�
 ```bash
 magnet:?xt=urn:btih:397A069A3CD3455AB83994ACD637E987B3E9264D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ AmanVPN бесплатный, быстрый, безопасный и безли
 magnet:?xt=urn:btih:317E1CF64D93CFEF814AFAFA282962406B0C4629
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ Free Download Manager - кроссплатформенный менеджер з
 ```bash
 magnet:?xt=urn:btih:98DBCAFB9B3677B81FA8FC671D0B81E1EC1D6AC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ GrandTotal прекрасно работает в сочетании с TimeLog.
 magnet:?xt=urn:btih:75A9EBEB883F984265AB5C0BD8A3279E3A7B2C56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ Task Office 8.12 [Multi]
 ```bash
 magnet:?xt=urn:btih:BA204A995CFE7A7387EA45B8705D9C30BD75D12F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ HiBit System Information - управление списком всех прил
 magnet:?xt=urn:btih:59D973218A7F25F4B707E0990EBB0FAE43910D7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ RedNotebook - это простое GTK+ / Gnome приложение напис
 ```bash
 magnet:?xt=urn:btih:ECE770DB86F0E126C7BCE6634AF7AB406FCCE75C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ Paint.NET - Простой, но мощный и удобный редактор
 magnet:?xt=urn:btih:F4EF4DB64E71927F16D411DA25DA7C0B966F6F0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ FileZilla Server представляет собой очень простой, 
 ```bash
 magnet:?xt=urn:btih:2D17F5C72FFB1FA46AE2AAF3FF268485D6A1914A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ Screenium 3 v3.3.2 [Multi/Ru]
 magnet:?xt=urn:btih:2461F5801CF366147A0D6711949A1FA0379EFEEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ PullTube 1.8.5.11 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:ED5F3698D7013BB8EA2666D29B8B8DCCD9E7C556
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

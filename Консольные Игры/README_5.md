@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:C41A2B7D0E3359CDB6149C2440CD888CA4B7574B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:C41A2B7D0E3359CDB6149C2440CD888CA4B7574B
 magnet:?xt=urn:btih:622D1720A6C168CB082560E7A8D8FAB644436838
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:622D1720A6C168CB082560E7A8D8FAB644436838
 ```bash
 magnet:?xt=urn:btih:3F7E74037BC71B4F7BCEAF4DB97B61D903457C05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:3F7E74037BC71B4F7BCEAF4DB97B61D903457C05
 magnet:?xt=urn:btih:8623F29C8D573B3BF9A2C0A3447B217F1340FE8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ The Ultimate Battle of the Sexes: Quiz & Play - С этой игрой вы ре
 ```bash
 magnet:?xt=urn:btih:1ABC2588047AD27BC6CE186CA3A5A0D5D52439F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:1ABC2588047AD27BC6CE186CA3A5A0D5D52439F9
 ```bash
 magnet:?xt=urn:btih:84B1EB416E34BA800C37F259EDA73DD211A42D52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Summer Stars 2012 - спортивная игра, включающая в се�
 magnet:?xt=urn:btih:D96141128185CA8325FF90002E8B1B62B429DA96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Kinect Star Wars позволит вам погрузиться в игру, в�
 magnet:?xt=urn:btih:0FD173A0EF1CFA34C1085249172E929635FB7225
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Ben 10: Protector of Earth [Wii] [PAL] [Multi 5] (2007)
 ```bash
 magnet:?xt=urn:btih:B138ED40B4A528E44FA7ABCCDEF64B57BB1AC1FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ Summer Stars 2012 – спортивная игра, включающая в с�
 magnet:?xt=urn:btih:55D6752665E1BBD387392C81F23FA4EACF6FA5AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:55D6752665E1BBD387392C81F23FA4EACF6FA5AC
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:55D6752665E1BBD387392C81F23FA4EACF6FA5AC
 magnet:?xt=urn:btih:AC4760DF2E06F2DACD3F5E37FDC6759B4EAD8412
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ Where the Wild Things Are - Экшен по мотивам фильма Спай
 ```bash
 magnet:?xt=urn:btih:11D961D14CFDB88478354CB33993596EEC32B9F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:11D961D14CFDB88478354CB33993596EEC32B9F0
 magnet:?xt=urn:btih:C3F850846311E738E76FB268D9621DC062C3FA98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ Golden Axe: Beast Rider рассказывает о событиях, предш
 ```bash
 magnet:?xt=urn:btih:B8B2DDF533023EB3AD3A99F3EDBB0FE66E38010C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:B8B2DDF533023EB3AD3A99F3EDBB0FE66E38010C
 magnet:?xt=urn:btih:3030D7019984C9006CE623FDE1481B53169291C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:3030D7019984C9006CE623FDE1481B53169291C5
 ```bash
 magnet:?xt=urn:btih:A42B45ACD3C315A53A5698D6F21C6C1AF08FF316
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ Glacier 3: The Meltdown [Wii] [PAL] [ENG] (2012)
 magnet:?xt=urn:btih:3ECE86E6516554AE050EB711615E9A20152C9519
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +502,8 @@ Battleship [Wii] [PAL] [Multi 3] (2012)
 magnet:?xt=urn:btih:2E0D86D44B99DA7E7BB25ED23B784E6E14C248DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ Alvin and the Chipmunks: Chip-wrecked - музыкальная аркада от
 ```bash
 magnet:?xt=urn:btih:155D977ED36D3ECB27735A17BDB88EDAE54494E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +554,8 @@ magnet:?xt=urn:btih:155D977ED36D3ECB27735A17BDB88EDAE54494E8
 magnet:?xt=urn:btih:1C49B80AA2243212BFC37CB9F8A53095420F5C6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ Twister Mania для Kinect представляет из себя красоч�
 ```bash
 magnet:?xt=urn:btih:7462C72010DA7CCD2A9419DE473AF79742209705
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ magnet:?xt=urn:btih:7462C72010DA7CCD2A9419DE473AF79742209705
 ```bash
 magnet:?xt=urn:btih:F6FAC558C072C22F291A83BE2B229D00E215FD9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +635,8 @@ magnet:?xt=urn:btih:F6FAC558C072C22F291A83BE2B229D00E215FD9E
 magnet:?xt=urn:btih:C3F15B8AA29E0C1FBF29A3041B112B11208B2FEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:C3F15B8AA29E0C1FBF29A3041B112B11208B2FEE
 magnet:?xt=urn:btih:35D7FEABE1349D4436DAD6E893623FEF2FEE33A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ magnet:?xt=urn:btih:35D7FEABE1349D4436DAD6E893623FEF2FEE33A9
 ```bash
 magnet:?xt=urn:btih:2BCCCF1DD64407EEBF658CE277BDB3DCAB49009B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

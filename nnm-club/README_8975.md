@@ -22,6 +22,8 @@ VA - Хитовый бум на Europa Plus. Выпуск 50/50 (2016) [MP3|256 
 magnet:?xt=urn:btih:0B135C39467FE8846C330BFE33203E82C7808F1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ CD 01:
 magnet:?xt=urn:btih:06BE911BB6728C17883524F05EA6C36BE2AF9794
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ magnet:?xt=urn:btih:06BE911BB6728C17883524F05EA6C36BE2AF9794
 magnet:?xt=urn:btih:7B365770A5425FAEF1DDEC2F9711A3A24FEACBB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:7B365770A5425FAEF1DDEC2F9711A3A24FEACBB3
 ```bash
 magnet:?xt=urn:btih:C57C4134DA92C203828A84D92EF1B0A1FCC11071
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ Guido Negraszus - The Very Best of Guido Negraszus (2016) [MP3|320 Kbps] <New Ag
 magnet:?xt=urn:btih:7281C41C3773A1FC841CDDCFAE35F4F91EB88F54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:7281C41C3773A1FC841CDDCFAE35F4F91EB88F54
 ```bash
 magnet:?xt=urn:btih:40A15654CF844FCDA8736B2F0A3C0A1630F8F0F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +189,8 @@ Pacifist – приложение, которое открывает пакет�
 magnet:?xt=urn:btih:17A376876CB4EC106B9FFD417DA42D1D470B5D2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:17A376876CB4EC106B9FFD417DA42D1D470B5D2C
 ```bash
 magnet:?xt=urn:btih:DE1A695147662A99C64987DB58C492B411EEDB73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -228,6 +244,8 @@ VA - Progressive Goa 2017 (2016) [MP3|320 Kbps] <Psychedelic, Goa Trance, PsyTra
 magnet:?xt=urn:btih:9DAC960E05199FF782854B54D06843E6A10E4AFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ magnet:?xt=urn:btih:9DAC960E05199FF782854B54D06843E6A10E4AFE
 ```bash
 magnet:?xt=urn:btih:0B887A73AB984ED20189B250A72B11F0396C1B7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -279,6 +299,8 @@ Crematory - Live Insurrection (2017) [FLAC|Lossless|image + .cue] <Gothic Metal>
 magnet:?xt=urn:btih:8A8DB5FADAB4852DB6261E1CB290CE8C5144D382
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +327,8 @@ VA - Автодискотека. Зимний драйв. Русская вер�
 ```bash
 magnet:?xt=urn:btih:397C8D951040A7ECDFE17FD93625397CE38CA348
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +357,8 @@ VA - Танцевальная пурга. Зарубежный сборник (2
 magnet:?xt=urn:btih:F0AF1E05CAD536364CA25809B5823AD942E8DA2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +386,8 @@ Shed - The Final Experiment (2017) [FLAC|Lossless|WEB-DL|tracks] <Breakbeat, Tec
 magnet:?xt=urn:btih:D01C5B9371730F6A9BE39D18552F5780E1D8B010
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +411,8 @@ magnet:?xt=urn:btih:D01C5B9371730F6A9BE39D18552F5780E1D8B010
 ```bash
 magnet:?xt=urn:btih:E67329FBD69A38AB665A8C67F0EB524FD602CC14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +438,8 @@ Rite of Passage 9: Bloodlines (2019) [En] (1.0) Unofficial [Collector's Edition]
 magnet:?xt=urn:btih:57AA13AFFC483736245FD446239B8985A6FE68A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +464,8 @@ magnet:?xt=urn:btih:57AA13AFFC483736245FD446239B8985A6FE68A4
 magnet:?xt=urn:btih:E33665C27961DDCFCD561EF4D1B671408A3B3FC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +489,8 @@ magnet:?xt=urn:btih:E33665C27961DDCFCD561EF4D1B671408A3B3FC2
 ```bash
 magnet:?xt=urn:btih:8DD32B3035AB647CFF335262417F225376F44B7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +519,8 @@ VA - Зимний TOP 100. Русский сборник (2016) [MP3|256 Kbps] <
 magnet:?xt=urn:btih:70D01DF7BAFFBF7B39D22AC92919AD047DCA9901
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +548,8 @@ Amish - Amish (1972) 2007, Second Harvest [MP3|320 Kbps] <Hard Rock, Prog Rock>
 magnet:?xt=urn:btih:117CAAA2F046090C6D2E5F5785CB474CDFB3B6EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +575,8 @@ iTrash - утилита для удаления приложений с ваше
 ```bash
 magnet:?xt=urn:btih:EBC2BF32B93617135E3FF64F19E0D3E1FE5E4491
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +605,8 @@ VA - Another Side of Mike Mareen Part One (2016) Italo Box Music, 2019, Remaster
 magnet:?xt=urn:btih:875E85ABDC533E96C014C63C412C5FAA2BC6972C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +634,8 @@ Jimmy And The Poor Boys - Cinco Songo's (2017) [FLAC|Lossless|WEB-DL|tracks] <Bl
 magnet:?xt=urn:btih:C3D25DB6340B384F0A32836B3007C52E17AA1BD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +659,8 @@ magnet:?xt=urn:btih:C3D25DB6340B384F0A32836B3007C52E17AA1BD3
 ```bash
 magnet:?xt=urn:btih:4BE7CDA0A81D2CA24472AFFB08174E0BCD5F7EAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +689,8 @@ VA - Fatal Techno Shock: Deadmau5 Mixtape (2017) [MP3|320 Kbps] <Tech House, Min
 magnet:?xt=urn:btih:BF9E6B861C0372A9A5EEB1FA5ABD82D4D71B505F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +717,8 @@ Musica Relajante - Bikram Yoga Music (2019) [FLAC|Lossless|WEB-DL|tracks] <New A
 ```bash
 magnet:?xt=urn:btih:514A64ECD66D29204E9D2FE132B98B30AAE5B2E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

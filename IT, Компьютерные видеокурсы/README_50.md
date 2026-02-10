@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:4EC8A7A981862A1397E87CC7A77B59F3BDA4D018
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Innopolis University, Иван Кривов | Основы Frontend-разраб
 ```bash
 magnet:?xt=urn:btih:6A29CE7C52F6829B0F6E37F40474044B2079A353
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Innopolis University, Олег Игонин | Введение в разрабо
 magnet:?xt=urn:btih:6B6A4E95953D88D02155B4BB9DB11B6211F8AC8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ magnet:?xt=urn:btih:6B6A4E95953D88D02155B4BB9DB11B6211F8AC8C
 magnet:?xt=urn:btih:7E7782D87D4B7E6E99827DBC5B5599B476A66F43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ Electron:
 magnet:?xt=urn:btih:40BDFEAFB852C1447625923E922A41B387181B96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ magnet:?xt=urn:btih:40BDFEAFB852C1447625923E922A41B387181B96
 ```bash
 magnet:?xt=urn:btih:58BCCA27F097D63F358E7F540AA665AA74E35330
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -179,6 +191,8 @@ Udemy | WebSockets: Полное Руководство / A Complete Guide to We
 magnet:?xt=urn:btih:9AAD8E48A040BCFC0796B750958F12A3D0F02C39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ magnet:?xt=urn:btih:9AAD8E48A040BCFC0796B750958F12A3D0F02C39
 ```bash
 magnet:?xt=urn:btih:07558FED7367B04FA257ECB86F10036C99D2DBFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -228,6 +244,8 @@ magnet:?xt=urn:btih:07558FED7367B04FA257ECB86F10036C99D2DBFF
 ```bash
 magnet:?xt=urn:btih:27AB6417CFD4CC1E847A57D9991A5F7B780B9F27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +274,8 @@ magnet:?xt=urn:btih:27AB6417CFD4CC1E847A57D9991A5F7B780B9F27
 magnet:?xt=urn:btih:192EA7FBBC33334828902022994B64304B05C5E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -281,6 +301,8 @@ magnet:?xt=urn:btih:192EA7FBBC33334828902022994B64304B05C5E9
 magnet:?xt=urn:btih:95754D4F4017FE23B0B6DDB2EE5CC0AE9BDCBF83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ Udemy, Антон Ларичев | Microservices - паттерны и прак�
 ```bash
 magnet:?xt=urn:btih:CB363907669B3C4E6DFA7B09F719B7780F2D29D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +356,8 @@ GitHub - бесплатное (   Читать дальше...   )Произв�
 magnet:?xt=urn:btih:415F9A562386091D224AA5F59164BA6DCD9705B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +384,8 @@ Simulative | Симулятор «SQL для анализа данных» (2022
 ```bash
 magnet:?xt=urn:btih:160D3357A05E339E6C94AEB4169E5EFAEA1C723E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +414,8 @@ Thinknetica Pro, Антон Давыдов | Dry-rb: что, зачем и ка�
 magnet:?xt=urn:btih:84C4FCC6F503E6C8A5163E9CD5438D3FD3058E38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +439,8 @@ magnet:?xt=urn:btih:84C4FCC6F503E6C8A5163E9CD5438D3FD3058E38
 ```bash
 magnet:?xt=urn:btih:50B8DDEE0FC521B2C33E18E86A3F1CAD1AF5C9F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +467,8 @@ magnet:?xt=urn:btih:50B8DDEE0FC521B2C33E18E86A3F1CAD1AF5C9F0
 magnet:?xt=urn:btih:415BE344734344BED436FD49CCBC8C33A8ADEE13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +492,8 @@ JAMStack - это современный веб-стек, который реш�
 ```bash
 magnet:?xt=urn:btih:23EE09D4EC740A4B393C45F5F3002B9B31B47DBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +521,8 @@ Asterisk в комплексе с необходимым оборудовани�
 magnet:?xt=urn:btih:73E913061AE0A722BFF840AFC302C60970077A75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +546,8 @@ IT Security Academy Hacking School | IT Безопасность Для Начи
 ```bash
 magnet:?xt=urn:btih:3D692FDAF0BC396B7892C25044AC6288331A8162
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +575,8 @@ magnet:?xt=urn:btih:3D692FDAF0BC396B7892C25044AC6288331A8162
 magnet:?xt=urn:btih:E5B0161ED83BE5BB047D2606891855D563C8C007
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +601,8 @@ magnet:?xt=urn:btih:E5B0161ED83BE5BB047D2606891855D563C8C007
 magnet:?xt=urn:btih:841171626EC428CB913A4BB2D2FDF06C3302F947
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +626,8 @@ magnet:?xt=urn:btih:841171626EC428CB913A4BB2D2FDF06C3302F947
 ```bash
 magnet:?xt=urn:btih:49D0B13B23E16D836CE64152797FCD0AC79C6AF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +654,8 @@ magnet:?xt=urn:btih:49D0B13B23E16D836CE64152797FCD0AC79C6AF2
 magnet:?xt=urn:btih:C7D61BE8F521ABB7D39076C31AC44AECDDCBCA36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +679,8 @@ magnet:?xt=urn:btih:C7D61BE8F521ABB7D39076C31AC44AECDDCBCA36
 ```bash
 magnet:?xt=urn:btih:948EE871E86395CE9B2FC97972889C377A6CE958
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -658,6 +708,8 @@ DarkWeb: Полное введение в Deep / Dark Web 2021 сделано д
 ```bash
 magnet:?xt=urn:btih:758F90EAAB4F448DB02622104201488DECA05587
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

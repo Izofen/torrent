@@ -19,6 +19,8 @@ OpenOffice - бесплатная альтернатива пакету офис
 magnet:?xt=urn:btih:A07F492ADE2D3336188FC92F2A32D4F708CFBE0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ UFS Explorer Professional Recovery разработан практикующим
 magnet:?xt=urn:btih:6DC3A029E5AAD1195DA4AE7D08250BE144F7582F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Universal Media Creation Tool – мощный, но простой инстру
 ```bash
 magnet:?xt=urn:btih:AD2F7CFFB19574A2D1637AD565039D55FADB6CB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ CurrPorts – полезная бесплатная программа для с
 magnet:?xt=urn:btih:5379339FFB3A010398D0B7E8472DB039595795E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ AOMEI Partition Assistant Pro позволяет создавать, удаля�
 magnet:?xt=urn:btih:150D4F4AD933EF689F192952AEFA2218015817BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Revo Uninstaller Pro 5.4.3 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9A6A9A418C837E3B06BBCCABB5B82A12083654F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 magnet:?xt=urn:btih:C8C6F9C76FE96D96D62A41E867C71F3EA512602D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Revo Uninstaller Pro 5.4.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7809B7FF7CFB352F7318BF8DD04B2F251DBF6BBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Flyoobe (Ранее назывался Flyby11) — это простой пат
 magnet:?xt=urn:btih:67232C11024BF5A5709D5BEAF96F5047B0515570
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Camtasia Studio - мультимедийная программа для зап�
 ```bash
 magnet:?xt=urn:btih:D38E3AC46CC23865CACD4130DF966BF653D7C267
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ CPU-Z способен показать различную информацию 
 magnet:?xt=urn:btih:1C160CB45A6BF4538587B1BBBEA62A3E41833038
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Lacey -  простой инструмент для поиска и скачив
 magnet:?xt=urn:btih:8BB959E7A659CC0BD9298C477F6D1EAFCCE76551
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ DU Meter - программа для подсчета реального вхо�
 ```bash
 magnet:?xt=urn:btih:4ADFF0F06E954106B39987489E4FA6537102A8CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ O&O Defrag – инструмент дефрагментации дисков, �
 magnet:?xt=urn:btih:05AFEFEB0CECA4253027DBA041C3A820D6CC39E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ AOMEI Backupper – программа для создания резервно�
 ```bash
 magnet:?xt=urn:btih:629D2B7C65FF5C501F866A29BB95E66E00039044
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Universal Media Creation Tool – мощный, но простой инстру
 magnet:?xt=urn:btih:58ED64B21A9460E5109A3638B6AAFFBCBA3F015A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Microsoft Office 2021 — новый офисный пакет от корпор
 ```bash
 magnet:?xt=urn:btih:8D67E2835EB1EBE58D6E642F45C44D795E0D2618
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Windows Manager - это универсальная утилита для Micros
 magnet:?xt=urn:btih:C12C75AAC296F690F52E4ACE505407911A7C0D6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ O&O ShutUp10 позволяет получить полный контроль �
 magnet:?xt=urn:btih:03CC84D3B2FE9EDDC22161C8D7ACB813E61A8BA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Revo Uninstaller Pro 5.4.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:73919660E8B173E6B806BAF5F115F9E6B1331C70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ TapinRadio - интернет радио от компании RaimerSoft (ра�
 magnet:?xt=urn:btih:AF6D064D8A9A4C836B4BA02F3D3DDF814BE4316E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ FastStone Capture представляет собой довольно мощн�
 ```bash
 magnet:?xt=urn:btih:C059DD3D7B0D7ACEFC13474E7CCAB6C9E6D16904
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ Wise Windows Key Finder Portable 1.0.2.13 [Multi]
 magnet:?xt=urn:btih:18B8E85810882CB1FF2394DEAB22BD710EAEDF2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Office LTSC 2024 предоставляет привычный набор при
 ```bash
 magnet:?xt=urn:btih:BC394BDD36B6E964FE42BEC941FFEA1538905BD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Zentimo xStorage Manager - (аналог USB Safely Remove) это менедж�
 magnet:?xt=urn:btih:65840A167218B150DE2AEC9C53595A6B6B29FA8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:65840A167218B150DE2AEC9C53595A6B6B29FA8B
 ```bash
 magnet:?xt=urn:btih:0F41D0D7EFA6AC1B578CC31D64DD7064F1E471A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

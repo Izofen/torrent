@@ -22,6 +22,8 @@ Danny Wright - Unwind: Peaceful Piano Relaxation (2020) [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:498918D2B7B0DD9A2099C7CF12D0CA5A23F4D730
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Stephan Micus - 18 Альбомов (1977-2013) [FLAC|Lossless|tracks + .cue] <N
 magnet:?xt=urn:btih:6BB162A1D48F2049A2D806BE9CEF9D43241E1DBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Deep Forest - Deep Africa (2013) /Promo CD/ [APE|Lossless]<World, New Age>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -106,6 +112,8 @@ Deep Forest - Deep Africa (2013) /Promo CD/ [APE|Lossless]<World, New Age>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +147,8 @@ VA - Пионерские песни (2005) [MP3|320 kbps]<Retro>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +176,8 @@ Cyndi Lauper - At Last (2003) [FLAC|Lossless|image + .cue] <Pop, Pop Rock, New W
 magnet:?xt=urn:btih:466B0A73BF4AE7527A6573317AB19D84E2E77735
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +203,8 @@ Albums:
 ```bash
 magnet:?xt=urn:btih:FD916981E12E323EBA285296E4F5A113184B2879
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +233,8 @@ Roc Chen, Rob King, Paul Romero - Might & Magic Heroes VII (2015) [FLAC|Lossless
 magnet:?xt=urn:btih:A0DD2F87CB3EC23F390717EF035AB2DDB1ED85CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +261,8 @@ Celtic Woman - Solo (2015) [MP3|320 кб/с] <Celtic folk, World, New age>
 ```bash
 magnet:?xt=urn:btih:DC9659DA7613E1BEF7E7838CD733870D92487111
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +291,8 @@ Ancient Future - Asian Fusion (1993) [MP3|320 кб/с] <Folk, World, New Age>
 magnet:?xt=urn:btih:6B729215DA2C3474CF6CCB2E9A8494F7BF616968
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +320,8 @@ Corciolli - Lightwalk (2010) [FLAC|Lossless|tracks] <Electronic, New Age>
 magnet:?xt=urn:btih:8CC74E4FEC728E0281A2992A79681BF6874EBB0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +348,8 @@ Gary Schmidt - A Classical Meditation (2020) [FLAC|Lossless|WEB-DL|tracks] <New 
 ```bash
 magnet:?xt=urn:btih:83F013CFEDC68C3E96B03478964F1665DB107971
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +384,8 @@ Cliff Carpenter Orchestra - Plays Boney M Hits (1987) [MP3|256 кб/с]<Instrume
 magnet:?xt=urn:btih:DE5D8072A583E8C53A83F56A12083166DDFBC64D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +411,8 @@ Flёur (Fleur) - Знаки (2014) Single [MP3|320 кб/с]<Cardiowave, Folk>
 ```bash
 magnet:?xt=urn:btih:8D60F76BE31F7DAF4D41C89BE72EC96AF116062D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +447,8 @@ Amure - Best Of Amure (2014) [MP3|320 кб/с]<New age, Enigmatic>
 magnet:?xt=urn:btih:CDA41D1772E8741FE1877B9741F5A0823DCB22AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +482,8 @@ Mike Strickland - The Piano (1999) [FLAC|Lossless]<New age, Instrumental, Piano>
 magnet:?xt=urn:btih:73047D363B0D4D42B17BB801396E7B4444C1291E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +510,8 @@ Armik - Enamor (2017) [MP3|320 Kbps] <Flamenco, Acoustic Guitar>
 ```bash
 magnet:?xt=urn:btih:BB182E83FF0F2E61487EA315342168E7806838A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +546,8 @@ Mars Lasar - Tahoe Spirit (2009) [MP3|320 kbps]<Chillout, New age>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +581,8 @@ VA - Pure Ambient Music (35 Atmospheric Chillout Beats to Relax) (2014) [MP3|320
 magnet:?xt=urn:btih:34B58D6FC8CDAD34F9BCFF1A9A5EB22613CA5B35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +609,8 @@ Trevor Morris - Vikings / Викинги (Music From The TV Series) (2013-2015) 
 ```bash
 magnet:?xt=urn:btih:6E3CAFD280E99DE5E0F7FB8425803CF2402038B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +645,8 @@ Mike Strickland - The Piano (1999) [MP3|320 кб/с]<New age, Instrumental, Pian
 magnet:?xt=urn:btih:30F7D36CD8B4C9C48854D3A11D411154771BD667
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +675,8 @@ Enigma - The Enigma Collection (2014) 3CD /Limited Edition Box-Set/ [MP3|256 к�
 magnet:?xt=urn:btih:93C26CEE4D42A6FA0D98A04E0B7E25F44380CF07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +700,8 @@ Blackmore's Night - Дискография (1997 - 2010) [MP3|192-320 kbps] <Fol
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -684,6 +730,8 @@ Jim Brickman - 25th Anniversary (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 magnet:?xt=urn:btih:AA7E4FDDED433170E7F3B7ECB812DF80AE81C265
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -711,6 +759,8 @@ Windsong - Windsong A Celebration of Life (Native American Chants & Dances) (199
 magnet:?xt=urn:btih:9BC04237BB36FC10358CF8122B980C1570A03F6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -737,6 +787,8 @@ Blackmore’s Night - Under A Violet Moon (1999) [FLAC|Lossless|image + .cue] <F
 ```bash
 magnet:?xt=urn:btih:85E2CBBC7B2930B80A13217B78389922A620433B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

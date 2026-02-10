@@ -19,6 +19,8 @@ MotoGP. Этап 19. Гран-при Катара. Спринт (18.11.2023) WEB
 magnet:?xt=urn:btih:DAEDE9B020CBDD26CDC341ED1FA6D1A3ECE4DBDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:DAEDE9B020CBDD26CDC341ED1FA6D1A3ECE4DBDA
 ```bash
 magnet:?xt=urn:btih:3D251726F3045FB082090285F317BCC4573A9206
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:3D251726F3045FB082090285F317BCC4573A9206
 magnet:?xt=urn:btih:93E476B09E854E19098621B84F051387AE8493E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:93E476B09E854E19098621B84F051387AE8493E9
 magnet:?xt=urn:btih:4DF6AEC983799160B1A89432CA425622F635750E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:4DF6AEC983799160B1A89432CA425622F635750E
 ```bash
 magnet:?xt=urn:btih:DCD634902DBC798DF02BD6F42503B75ECF52D2E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Disc 3: Live In Hollywood, California, Hollywood Palladium – March 23, 1973(  
 magnet:?xt=urn:btih:6869F66A162C8EDD313A446972FDFB6C2D4D2C18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:6869F66A162C8EDD313A446972FDFB6C2D4D2C18
 magnet:?xt=urn:btih:06AAC5A6675356010E4897187A25A96449145E7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:06AAC5A6675356010E4897187A25A96449145E7A
 ```bash
 magnet:?xt=urn:btih:AC2DE5A3EDB8FD592EECF13589F7D66125B90A58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:AC2DE5A3EDB8FD592EECF13589F7D66125B90A58
 magnet:?xt=urn:btih:9E0A0A729155465D1EF69AF335C668D6D6B020FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:9E0A0A729155465D1EF69AF335C668D6D6B020FE
 ```bash
 magnet:?xt=urn:btih:0B51303A306DB93B929B502C3003181BB68DA9A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ VA - Covers Mix (2015) [MP3|320 кб/с] <Pop>
 magnet:?xt=urn:btih:7C27BB769684A345190D7DCB8CD6862752117323
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ Hopper Disassembler  - дизассемблер для macOS
 magnet:?xt=urn:btih:0EEB941862D66BF9968FF2E22A611A0DC5C97168
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ magnet:?xt=urn:btih:0EEB941862D66BF9968FF2E22A611A0DC5C97168
 ```bash
 magnet:?xt=urn:btih:91FD1E4174EF374F2F9D1545923BD8FD258170C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ Jewel - Spirit (1998) Deluxe Edition, 2023, Craft Recordings [FLAC 24/48|Lossles
 magnet:?xt=urn:btih:938F9EF1BCB35DA2C9EC017E4D8033972169A022
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ magnet:?xt=urn:btih:938F9EF1BCB35DA2C9EC017E4D8033972169A022
 magnet:?xt=urn:btih:4BEE19D903A2F259B69C9B1F02F6BF3D99DA11F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ magnet:?xt=urn:btih:4BEE19D903A2F259B69C9B1F02F6BF3D99DA11F7
 magnet:?xt=urn:btih:B1953E589BAD74DB7A23D835BF41A84BB7C33AA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ magnet:?xt=urn:btih:B1953E589BAD74DB7A23D835BF41A84BB7C33AA5
 ```bash
 magnet:?xt=urn:btih:75262737E7867D71A187C912AA1D54B59AF0E117
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +488,8 @@ Nightwolf - The Cult of the Wolf (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 magnet:?xt=urn:btih:7FBABA5DA171378DC60465AF927EA9C2CF0D5F04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +516,8 @@ magnet:?xt=urn:btih:7FBABA5DA171378DC60465AF927EA9C2CF0D5F04
 magnet:?xt=urn:btih:8EDF87B7C78A2BE11FE8CE29482FB810735C088E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ magnet:?xt=urn:btih:8EDF87B7C78A2BE11FE8CE29482FB810735C088E
 ```bash
 magnet:?xt=urn:btih:2CC342EC572E9127299EEEF9A2446A2F2737765D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +568,8 @@ magnet:?xt=urn:btih:2CC342EC572E9127299EEEF9A2446A2F2737765D
 ```bash
 magnet:?xt=urn:btih:042B75CC0ED5087FDEB1ADB1D83E6B8E76373BF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +598,8 @@ VA - Hit News Vol. 10 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Ital
 magnet:?xt=urn:btih:2F1E2307261FE56DB0F3BC20655D17FBB08F113E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +623,8 @@ magnet:?xt=urn:btih:2F1E2307261FE56DB0F3BC20655D17FBB08F113E
 ```bash
 magnet:?xt=urn:btih:5A2E4124D0E6360E82E43EF40F2145DE20D75AD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +653,8 @@ Andy Lindquist - Stone in the Blood (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 magnet:?xt=urn:btih:1EBD0A36FD4832E9B357BA354A700F8E70ADD0BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +681,8 @@ magnet:?xt=urn:btih:1EBD0A36FD4832E9B357BA354A700F8E70ADD0BA
 magnet:?xt=urn:btih:ED885CDA70FAC5468E7B4F79AA3B08BD87AFCFBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ magnet:?xt=urn:btih:ED885CDA70FAC5468E7B4F79AA3B08BD87AFCFBE
 ```bash
 magnet:?xt=urn:btih:C4248F573B20F4F064A1DD9692A67B485A62A36A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

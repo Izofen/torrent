@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:28F5A66CE8347567C7DC75D3DA772C33A12D3DE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BootHDD 2017 (EFI) [Ru]
 ```bash
 magnet:?xt=urn:btih:B3783CE068C7607727178339ADBB9047836FA750
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ VPN с колоссальной скидкой 88%.Крупнейшее ново
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ VPN с колоссальной скидкой 88%.Крупнейшее ново
 magnet:?xt=urn:btih:8A6AD3C22C6C4BD2289AB1E34798A762EEC42FE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:8A6AD3C22C6C4BD2289AB1E34798A762EEC42FE9
 ```bash
 magnet:?xt=urn:btih:1178A97564DAC855CB06371A831FAA706C9F6DB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Houseki no Kuni / Land of the Lustrous / Сказания о самоцвета�
 magnet:?xt=urn:btih:78DCD13435CBBD9403B20154E38C578B8FD84738
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:78DCD13435CBBD9403B20154E38C578B8FD84738
 ```bash
 magnet:?xt=urn:btih:522E4C2D463C708F226FF05CDB92EDA3E57A21CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:522E4C2D463C708F226FF05CDB92EDA3E57A21CF
 magnet:?xt=urn:btih:FB3ED65E72FE491C43C4F34F8D54659629D3D74D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:FB3ED65E72FE491C43C4F34F8D54659629D3D74D
 magnet:?xt=urn:btih:F6D5577BD31B343541BE35A8F705CD78D248B726
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:F6D5577BD31B343541BE35A8F705CD78D248B726
 ```bash
 magnet:?xt=urn:btih:0074E5B14DC4406FE938C2AB5EFDDDC545E16DF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ A4	The Need To Be Free(   Читать дальше...   )Жанр: Synth-Pop, D
 magnet:?xt=urn:btih:E5FC48365F8397BBF2513419B15EC380E6218D5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ CGAxis Vehicles Volume 1, содержащий три детализирован
 ```bash
 magnet:?xt=urn:btih:B22A4127AABD8AF8371B3A1D613930E9540F8663
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ Skirt no Naka wa Kedamono Deshita. | Зверь под юбкой [2017, TV, 12]
 magnet:?xt=urn:btih:A3147BA9F8A2218A254E67A6ABE632099DFCB5D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:A3147BA9F8A2218A254E67A6ABE632099DFCB5D3
 ```bash
 magnet:?xt=urn:btih:1FBA30E8D7BDFBDC56E168B1513EF9E1DEF4D463
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ Lingon X позволяет визуально создавать файлы а�
 magnet:?xt=urn:btih:720AC0282ED78F591291D47D32AF6270814DCE6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ S.T.A.L.K.E.R. Anthology  (2007-2009) [Ru/Multi] Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:208EF362D1F820FC745C413241D520EED752693B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:208EF362D1F820FC745C413241D520EED752693B
 magnet:?xt=urn:btih:D502CD3613E28EB7990260E1867AA22B6FEF9256
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ DaVinci Resolve 16 — первый в мире программный прод�
 ```bash
 magnet:?xt=urn:btih:690887FDA89C2F30AE44D299B397470FA0369A8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:690887FDA89C2F30AE44D299B397470FA0369A8D
 magnet:?xt=urn:btih:B6DDE2D5A1063EE67FF0817E7B2FDF57D2CD7C22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ GRID 2 (2013) [Ru/En] (1.0.85.8679/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:06C7CF55663AC217DFC17D605B6AC61EB9E13202
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ Spec Ops: The Line (2012) [Ru/Multi] (1.0.6890.0/upd2/dlc) Repack Other s
 magnet:?xt=urn:btih:07B883FABCE537A9E0529D19300DAECB1CA49DE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ Zhen hun jie / Rakshasa Street / Улица призраков [2016, TV, 9 из
 ```bash
 magnet:?xt=urn:btih:AD68B96A7C779B5BB427CDE0416B940F11BABDDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:AD68B96A7C779B5BB427CDE0416B940F11BABDDE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Faces of War / В тылу врага 2 (2006) [Ru/En] (1.04.1) License GOG
 ```bash
 magnet:?xt=urn:btih:AB1A4C12B6E03B733326393D2BB53A65DFEAC70F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ bond - Play (2011) [FLAC|Lossless]<Classical Crossover>
 magnet:?xt=urn:btih:118CB9E55A35405AC9C42813EB68F7040C88DDE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ magnet:?xt=urn:btih:118CB9E55A35405AC9C42813EB68F7040C88DDE1
 ```bash
 magnet:?xt=urn:btih:07DBD426589CE528B761EE8EDFA1B8058C01BA9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

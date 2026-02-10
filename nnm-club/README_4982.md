@@ -19,6 +19,8 @@ Alpha Prime (2007) [Ru] [macOS WineSkin]
 magnet:?xt=urn:btih:BC6B21DE74AC37E1048EAFDCA4FB59C61D791041
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:BC6B21DE74AC37E1048EAFDCA4FB59C61D791041
 ```bash
 magnet:?xt=urn:btih:D555ED1375000A1835A630DF55AE9EC0F317B15D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:D555ED1375000A1835A630DF55AE9EC0F317B15D
 magnet:?xt=urn:btih:63EBD9AB7175531A41FB1B5E2590CDF7E9979A36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:63EBD9AB7175531A41FB1B5E2590CDF7E9979A36
 ```bash
 magnet:?xt=urn:btih:BCFC3AA55778A98458CD2946913BA86A234F3EDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Tom Robinson Band - Rising Free (the very best of TRB) (1997) Compilation, EMI [
 magnet:?xt=urn:btih:DD27E73CFE831AF76AA00D2D495BABB308033F87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:DD27E73CFE831AF76AA00D2D495BABB308033F87
 ```bash
 magnet:?xt=urn:btih:0E2C3BDFD6CE4C2070838E670203AE1E839CC085
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ Unheilig (читается «унха́йлихь», с нем. — «неч
 magnet:?xt=urn:btih:5F93BD181C4FDBD6A9FF303C4BD9C9B39294BC20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:5F93BD181C4FDBD6A9FF303C4BD9C9B39294BC20
 ```bash
 magnet:?xt=urn:btih:3A8F5518FF8A8362F2116A3D07BFEA57F534611C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ Veil of Thorns - Dosage (2018) [FLAC|Lossless|Web-DL|tracks] <Metal, Dark Ambien
 magnet:?xt=urn:btih:CEB3FFD5A5B1E2595B0FB5C433AC400244B61999
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:CEB3FFD5A5B1E2595B0FB5C433AC400244B61999
 ```bash
 magnet:?xt=urn:btih:12384BFE6BBB0C3832A916DBDE54DCB50E8CAD1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +297,8 @@ Varitda Bhirombhakdi - Mood 2: Jazz in the City (2021) [AAC|~320 Kbps] <Jazz, Vo
 magnet:?xt=urn:btih:834DC6D025A91C79ECE77690C93460052FD30D31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ Atapaskan - Humans (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death Metal>
 magnet:?xt=urn:btih:C526A1BCFB01841586686187D86787EBEC973943
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ Mitti имеет понятный, интуитивно понятный пол�
 ```bash
 magnet:?xt=urn:btih:19116DF8E063FA008F18C602EF9DF2D467D8D52A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +383,8 @@ Nitzinger - Nitzinger (1972) Reissue, CD [MP3|320 Kbps] <Southern Rock, Hard Roc
 magnet:?xt=urn:btih:18F1C626B1015C17E2FC94FD63DFCFA5E14A64EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +408,8 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 ```bash
 magnet:?xt=urn:btih:C9AB983EF569C444D527800A8A1048EF7C9F7B5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +435,8 @@ Comedy Woman (2016.12.23) SATRip
 magnet:?xt=urn:btih:E316E99E2384AD652189338E524016B84F71B7AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ magnet:?xt=urn:btih:E316E99E2384AD652189338E524016B84F71B7AF
 magnet:?xt=urn:btih:82D75336E176842B9EB675CE0D6AEAFB48711D8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ magnet:?xt=urn:btih:82D75336E176842B9EB675CE0D6AEAFB48711D8A
 ```bash
 magnet:?xt=urn:btih:49080224923CF1C99FF41B769DC579A1E24539BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +516,8 @@ Incinerate - Back to Reality (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, 
 magnet:?xt=urn:btih:27790BAFF4A6CB5E0A473834D6543A73C8036E7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ McAfee Endpoint Security for Mac 10.7.5 [Multi]
 ```bash
 magnet:?xt=urn:btih:D656F261E48BFD39D0FD3F62638F64FF2F81B0BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +571,8 @@ Ernie Watts, Pete Christlieb, Rickey Woodard - The Tenor Trio (1997) JVC [FLAC|L
 magnet:?xt=urn:btih:B3B6DEE32DF2BC05826731B43C20430EFD06E0E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +596,8 @@ magnet:?xt=urn:btih:B3B6DEE32DF2BC05826731B43C20430EFD06E0E8
 ```bash
 magnet:?xt=urn:btih:5959A1867F916E450592DC8FCCC4A8C8BEBB4CFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +623,8 @@ magnet:?xt=urn:btih:5959A1867F916E450592DC8FCCC4A8C8BEBB4CFC
 magnet:?xt=urn:btih:835C516289D7027F6863BBB99A1D65B139E47B9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +648,8 @@ TCH - Sinflower (1997) Iridium [FLAC|Lossless|tracks+.cue] <Experimental, IDM, A
 ```bash
 magnet:?xt=urn:btih:6C6CFBA952F6D36690A3B8DDEF8944E04CF4569C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +675,8 @@ magnet:?xt=urn:btih:6C6CFBA952F6D36690A3B8DDEF8944E04CF4569C
 magnet:?xt=urn:btih:54A4175BABC8AD69E8567C78333886BE8B018F39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ Deliver Express - это автоматическое решение для бы
 ```bash
 magnet:?xt=urn:btih:EB21F3D7F012EBAE4BBAD69000D399A88BDCCDCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 905749   (649047) от 06.06.2015
+
+Франс Брекар | 50 упражнений, чтобы научиться отказывать (2013) [FB2, RTF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649047.jpg" />
+</div>
+
+
+###  Подробнее
+
+Умение говорить «нет» – это способ самозащиты, возможность установить предел, а в некоторых случаях просто необходимость. Но, даже принимая этот принцип, воплотить его в жизнь иногда бывает довольно сложно. В нас живет страх не понравиться, мы не любим выглядеть невежливыми. Между тем порой важно сказать «нет» – неагрессивное или нелюбезное, но твердое и решительное. (   Читать дальше...   )Жанр: Общие работы по практической психологииФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9F834D30252AF1E758F5DB886CA670A5828DE02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904452   (649066) от 06.06.2015
 
 Константин Сторожев | Ловля карпа, леща, толстолобика, белого амура. Секреты и хитрости успешной рыбалки (2014) [FB2, EPUB]
@@ -21,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:6E1819AD4D07F7A7281F43FE8CC5D0F5DACACC84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ magnet:?xt=urn:btih:6E1819AD4D07F7A7281F43FE8CC5D0F5DACACC84
 magnet:?xt=urn:btih:4F669C6BC8FDCCF85D11593EA9AD5915411AB402
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:4F669C6BC8FDCCF85D11593EA9AD5915411AB402
 ```bash
 magnet:?xt=urn:btih:05A1CB2DE3F1B3458002B801324C9EF538D10D62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +128,8 @@ magnet:?xt=urn:btih:05A1CB2DE3F1B3458002B801324C9EF538D10D62
 magnet:?xt=urn:btih:99D65F492A7AE962D4B4C0B9AF018EE8192C5EFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:99D65F492A7AE962D4B4C0B9AF018EE8192C5EFD
 ```bash
 magnet:?xt=urn:btih:166A8B6B7C7CB8C27256C4D96E29FD0081BBD897
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +181,8 @@ magnet:?xt=urn:btih:166A8B6B7C7CB8C27256C4D96E29FD0081BBD897
 magnet:?xt=urn:btih:A45A082C9F5282E79A3126AB8C2857DF4C51373D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +207,8 @@ magnet:?xt=urn:btih:A45A082C9F5282E79A3126AB8C2857DF4C51373D
 magnet:?xt=urn:btih:45F22CB5CCA1A81CF84315FB5191C193444EDEA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:45F22CB5CCA1A81CF84315FB5191C193444EDEA6
 ```bash
 magnet:?xt=urn:btih:7BE742489A1102F636451DA916ABF6B9E6004A0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +261,8 @@ magnet:?xt=urn:btih:7BE742489A1102F636451DA916ABF6B9E6004A0B
 magnet:?xt=urn:btih:F4C5135C6A100875057C8831475FD334B66BD24A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +289,8 @@ magnet:?xt=urn:btih:F4C5135C6A100875057C8831475FD334B66BD24A
 magnet:?xt=urn:btih:8A9D351989DA7887DD20470FD7502F99FF55F635
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +314,8 @@ magnet:?xt=urn:btih:8A9D351989DA7887DD20470FD7502F99FF55F635
 ```bash
 magnet:?xt=urn:btih:F718B89BFC0DA8DACBECE85B4F0B6A781513A6CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +341,8 @@ magnet:?xt=urn:btih:F718B89BFC0DA8DACBECE85B4F0B6A781513A6CA
 magnet:?xt=urn:btih:F81BE399217A18D3993B78D93372A92E56C2F5B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:F81BE399217A18D3993B78D93372A92E56C2F5B2
 ```bash
 magnet:?xt=urn:btih:F52B57C0DBFE33C47422994DF9336852F6465744
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +394,8 @@ magnet:?xt=urn:btih:F52B57C0DBFE33C47422994DF9336852F6465744
 magnet:?xt=urn:btih:931B1F101A99233FEB17673217050379D8B0C871
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +420,8 @@ Amos Media Co. | Scott 2017 Standard Postage Stamp Catalogue. Volume 2 includes 
 magnet:?xt=urn:btih:F84B624D3DF9A3449BD8313900CC18C5214359F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +445,8 @@ Amos Media Co. | Scott 2017 Standard Postage Stamp Catalogue. Volume 3 includes 
 ```bash
 magnet:?xt=urn:btih:46671C2268350D7DB80B36DF0D35A06370BBBECD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +474,8 @@ magnet:?xt=urn:btih:46671C2268350D7DB80B36DF0D35A06370BBBECD
 magnet:?xt=urn:btih:9A1508145FBBDC2A99AB6DBDF664233F69835185
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +500,8 @@ magnet:?xt=urn:btih:9A1508145FBBDC2A99AB6DBDF664233F69835185
 magnet:?xt=urn:btih:E42E9C2232D6F01610C87B800DA725A393D4573D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +525,8 @@ magnet:?xt=urn:btih:E42E9C2232D6F01610C87B800DA725A393D4573D
 ```bash
 magnet:?xt=urn:btih:4C61E30A3D8F22417488717BD5446E6F03A8A277
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +554,8 @@ magnet:?xt=urn:btih:4C61E30A3D8F22417488717BD5446E6F03A8A277
 magnet:?xt=urn:btih:674D336FDB58E89662BBB38A6C7FB1ADA39C9C02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +579,8 @@ magnet:?xt=urn:btih:674D336FDB58E89662BBB38A6C7FB1ADA39C9C02
 ```bash
 magnet:?xt=urn:btih:28FA7E8F6CF5317C4F7C35A1FA8E9D81F13265E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +606,8 @@ magnet:?xt=urn:btih:28FA7E8F6CF5317C4F7C35A1FA8E9D81F13265E4
 ```bash
 magnet:?xt=urn:btih:24E6D5B04EA2F708934402E7C04B403879E9F10A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +635,8 @@ magnet:?xt=urn:btih:24E6D5B04EA2F708934402E7C04B403879E9F10A
 magnet:?xt=urn:btih:00F33282918B60121D46D174D771D3CE415B7480
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +663,8 @@ magnet:?xt=urn:btih:00F33282918B60121D46D174D771D3CE415B7480
 magnet:?xt=urn:btih:B972EA05C51E8B284C0A4119E1EEEBFEE3A1B632
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,29 +689,7 @@ magnet:?xt=urn:btih:B972EA05C51E8B284C0A4119E1EEEBFEE3A1B632
 magnet:?xt=urn:btih:5F26E13BDEFC5A1DC0F32AE2D77A8B41229C7CD4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141502   (650429) от 10.06.2017
-
-Галина Калинина (сост.) | Загробная жизнь и бессмертие души. Свидетельства и факты (2014) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650429.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Загробная жизнь и бессмертие души" - книга, в которой рассматриваются различные аспекты смерти и посмертного бытия человеческой души. С позиций Православия в книге объясняется вера в бессмертие души, рассказывается об обрядах, которыми сопровождает Церковь смерть человека, о том, как помочь своим умершим близким, чтобы облегчить их посмертное существование, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEAA88EB0A67A2C697D0B7C2480B41C87B3B9639
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

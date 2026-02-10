@@ -22,6 +22,8 @@ VA - 50 ans de tangos (2002) [MP3|192 кб/с] <Tango>
 magnet:?xt=urn:btih:17E4F38BD7C532B6563AAB57253230C493FE209C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Los clasicos argentinos Tango Vol.09: Julio Sosa - El varon del tango (1996
 ```bash
 magnet:?xt=urn:btih:E2D1E1159839923788D9CFE576700DDB7A2EA1E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Carlos Garo - Entrance To The Parallel Universe (2015) [MP3|320 кб/с] <New ag
 magnet:?xt=urn:btih:62E493B7C30689E04D67E40F6F6510400B93F751
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Back To Earth - The Book Of Silence (2015) [FLAC|Lossless|tracks] <New Age, Ambi
 ```bash
 magnet:?xt=urn:btih:3F852B1DCB30C22B98032C7F9778A20AA267E2BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Stamatis Spanoudakis - Bathed in the Sun (2016) [FLAC|Lossless|tracks] <New Age,
 magnet:?xt=urn:btih:B645955B96A6FC6D355D43354C3180028B196E81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Monte Wang - The Wandering Accordion (2003) [FLAC|Lossless|tracks] <New Age, Ins
 ```bash
 magnet:?xt=urn:btih:3458B877352BB3B8044DDFF4DAF1F745B0A0A3F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Tommy Emmanuel - The Best Of Tommysongs (2020) [FLAC|24/44.1|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:528984AF94D8D24319B8C046CC7B0F68768C8AE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Mezzo Piano - Love Has a Name (2017) [MP3|320 Kbps] <Instrumental, Piano>
 ```bash
 magnet:?xt=urn:btih:CC0564779883251707B7038090C43640A40626AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Ramin Djawadi - The Great Wall / Великая стена (Original Soundtrack 
 magnet:?xt=urn:btih:0760446D40FC873A9383FFB96B580FEF10932A08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Ramin Djawadi - The Great Wall / Великая стена (Original Soundtrack 
 ```bash
 magnet:?xt=urn:btih:3A77CEE5E7D312409665A64BEF79813F275BADC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Danheim - Hringrás (Hringras) (2019) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, 
 magnet:?xt=urn:btih:D04AD5D99AA467D74A0FB23681C6C73F6917A010
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Canda & Guru Atman - Healing Yoga Mantras (2017) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:63E3AD1324026A9D53A447DB5AE11E4B43782B79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Danheim - Runagaldr (2018) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Nordic Folk
 magnet:?xt=urn:btih:EED4FDDCB6B5B963CDE730DE49785DBE0F212BDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Jim Brickman - Blessed (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ```bash
 magnet:?xt=urn:btih:DB21548112705D139D2864A38023E4C764AD6034
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Bruce Kurnow - Peaceful Sunset (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 magnet:?xt=urn:btih:3E7EBC1404288828CDE9ECF97E600C129C67EB99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Mark Knopfler & Evelyn Glennie - Altamira (2016) [MP3|320 кб/с] <Soundtrack, 
 ```bash
 magnet:?xt=urn:btih:EBA6A4AACA0B93ACD032C947E18CA36B1178E12B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ magnet:?xt=urn:btih:EBA6A4AACA0B93ACD032C947E18CA36B1178E12B
 magnet:?xt=urn:btih:8D6838D63E03AFE8E670BCBB6EB75A397313A17E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ George Winston - Remembrance (A Memorial Benefit) (2001) [MP3|320 кб/с] <Folk
 ```bash
 magnet:?xt=urn:btih:83E2EC89E7D556D152AC649802BEEE4FDFF60112
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ magnet:?xt=urn:btih:83E2EC89E7D556D152AC649802BEEE4FDFF60112
 magnet:?xt=urn:btih:BCAD7E68050C2514346AAB711CFB574B5EE14AB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ Gealdýr (Gealdyr) - Valravn (2020) Soundtrack [FLAC|Lossless|Web-DL|tracks] <No
 ```bash
 magnet:?xt=urn:btih:74CFA613B904EE7FCE547538BB3D6A061EBA6028
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ Gealdýr (Gealdyr) - Sól (Sol) (2019) [FLAC|Lossless|Web-DL|tracks] <Nordic Fol
 magnet:?xt=urn:btih:475471253D317A74553B28E838098F9669D42B0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ Stu Dying - Study World: Relaxing Music and Ocean Waves For Studying (2020) [FLA
 ```bash
 magnet:?xt=urn:btih:A039D7334B6E6FF62C2F4E35D1BEA4962F147CF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ Alison Krauss - Windy City (2017) Deluxe Edition [FLAC|Lossless|image + .cue] <C
 magnet:?xt=urn:btih:848C99D12D3E5B3FA66C0859A5B92553747C1753
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ VA - Tuff Turf: The Original Soundtrack (1985) [MP3|320 Kbps] <Pop Rock, Punk>
 ```bash
 magnet:?xt=urn:btih:5E0C65AE022A32D0C413C8E979FFB3CFF932B302
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ VA - Deep Relaxation and Wellness Playlist (2017) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:DFD9C018940A83677A81DB85DE96588BFB018ACD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ Shiva - Hand Of Fate (2017) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:B10809B03779A9F136EB9B20F4B801353C0694DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3344270F3BF540CDB03D3CE34C7E427A3B67026D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:3344270F3BF540CDB03D3CE34C7E427A3B67026D
 magnet:?xt=urn:btih:0725B7B6F098FD922DF799C4FCC5FE6C285898CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Kaze Tachinu | The Wind Rises | Ветер Крепчает [2013, Movie] Blu-ra
 ```bash
 magnet:?xt=urn:btih:560FC7A8D19BC7E30FE5FF8911E4F5FE84C1B4A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:560FC7A8D19BC7E30FE5FF8911E4F5FE84C1B4A6
 magnet:?xt=urn:btih:57CEFFDA7AC7B0371763C63E8DB0A1A36288882A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Summer Wars | Летние Войны [2009, Movie] Blu-ray 1080p raw+rus
 ```bash
 magnet:?xt=urn:btih:A9F09510C8C4221F354E43E9D1CED5BF0F0DB4BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ Stereophonics - Make ‘em Laugh, Make ‘em Cry, Make ‘em Wait (2025) [FLAC|L
 magnet:?xt=urn:btih:9B1EA91C862224242A6F6343E02DEA1267312383
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Circles
 ```bash
 magnet:?xt=urn:btih:53D963020431F2C9D185A93FC593017D1CE2D293
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ Voodoo Circle (Alex Beyrodt's) - Compilation (2008-2024) [MP3|320 Kbps] <Hard ro
 magnet:?xt=urn:btih:BCBEC90ADCEDE1E20C114A8A4EB270BBD208AB53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ Evangelion Shin Gekijouban: Ha | Evangelion: 2.0 You Can (Not) Advance | Evangel
 ```bash
 magnet:?xt=urn:btih:024AE91C205802091518C9900EEEBBA7E90D3A73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:024AE91C205802091518C9900EEEBBA7E90D3A73
 ```bash
 magnet:?xt=urn:btih:E9BA70144E056AEE6D1C7E92E1FD41325F63B538
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:E9BA70144E056AEE6D1C7E92E1FD41325F63B538
 magnet:?xt=urn:btih:6E68BA84B9E07FE1A07217857182E2B8CCE44FC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:6E68BA84B9E07FE1A07217857182E2B8CCE44FC2
 ```bash
 magnet:?xt=urn:btih:E3501DD43141BB8D77031DAF63DB69A7273A6F53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:E3501DD43141BB8D77031DAF63DB69A7273A6F53
 magnet:?xt=urn:btih:10DDFD101EBD38F101F26DF5D525FB19F284B62D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:10DDFD101EBD38F101F26DF5D525FB19F284B62D
 ```bash
 magnet:?xt=urn:btih:B4632C2D18EA51507FDBBB599A783E1310FF25D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +405,8 @@ B1. Ocean of Malice (04:42)(   Читать дальше...   )Жанр: Avant-G
 magnet:?xt=urn:btih:520683272C3DF6F488C4F90A273D58022D645F21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ magnet:?xt=urn:btih:520683272C3DF6F488C4F90A273D58022D645F21
 ```bash
 magnet:?xt=urn:btih:633D9AAAF5BB4C3D1512EA53B57F216DD123FCD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +463,8 @@ Karg - Marodeur (2025) [FLAC|Lossless|WEB-DL|tracks] <Ambient Black Metal, Post-
 magnet:?xt=urn:btih:D415F56208883C1DC590CF010E1ACAE7B10DECED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +489,8 @@ magnet:?xt=urn:btih:D415F56208883C1DC590CF010E1ACAE7B10DECED
 ```bash
 magnet:?xt=urn:btih:3CD253C2CB6B9F372976C903493BD68A9BA72532
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +519,8 @@ A4 Tormented(   Читать дальше...   )Жанр: Progressive, Technical
 magnet:?xt=urn:btih:F493BAABCC128DFF80E1F6AE8D47D80A016635B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +548,8 @@ Caliban - The Undying Darkness (2006) [FLAC|24/192|tracks|Vinyl-Rip] <Metalcore>
 magnet:?xt=urn:btih:4149C489DF7C8DE0398E594666B43F3E53BE6E75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +573,8 @@ magnet:?xt=urn:btih:4149C489DF7C8DE0398E594666B43F3E53BE6E75
 ```bash
 magnet:?xt=urn:btih:ED6E5975DED6EE1675B0F4100A9689846AE99F4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +602,8 @@ magnet:?xt=urn:btih:ED6E5975DED6EE1675B0F4100A9689846AE99F4D
 magnet:?xt=urn:btih:9DF09CA95A39322EABC2924F0196537A7CB96D37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +629,8 @@ magnet:?xt=urn:btih:9DF09CA95A39322EABC2924F0196537A7CB96D37
 magnet:?xt=urn:btih:839326D637D509EA1B75E71ED8FDF3062EDE7EC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +654,8 @@ magnet:?xt=urn:btih:839326D637D509EA1B75E71ED8FDF3062EDE7EC0
 ```bash
 magnet:?xt=urn:btih:2BB320DACADD3428A4DD2A097DEB34E9ABFB8B6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +681,8 @@ Viscerafest (2021) [Ru/Multi] (1.2) Repack FitGirl
 magnet:?xt=urn:btih:12C3F67A8EE4F2B9B74951735D1FE2346B91B49F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ magnet:?xt=urn:btih:12C3F67A8EE4F2B9B74951735D1FE2346B91B49F
 ```bash
 magnet:?xt=urn:btih:8AEA56CDF2CA58EE72C20403277C6C6A52CBFA47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

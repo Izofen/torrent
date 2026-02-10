@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:A92C443D9E19B618FA2A49F6EDB46627847E85C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Modern performance analysis and tuning: terminology, concepts, models, methods, 
 ```bash
 magnet:?xt=urn:btih:E311D65C222C2400093BDC09ABFA72931B28B928
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Learn how to build probabilistic models using the Python library PyMC3(   Чит
 magnet:?xt=urn:btih:2AFE8D2B786D2FCBD539A749BB9A247A347240AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ With Head First Python, you’ll quickly grasp Python’s fundamentals, working 
 magnet:?xt=urn:btih:D709CBC5FE019F9E9A49CF134C08740868A1CE27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ R – безусловно лучшая среда для интерактивн
 ```bash
 magnet:?xt=urn:btih:1E87D4C6ED683746D35708ECB5C383DF14424A81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:1E87D4C6ED683746D35708ECB5C383DF14424A81
 magnet:?xt=urn:btih:D9E2E155E78654753B05263A637F4A91509773BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:D9E2E155E78654753B05263A637F4A91509773BC
 magnet:?xt=urn:btih:D4026CEAAC38360681671BA305371E71F9101662
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:D4026CEAAC38360681671BA305371E71F9101662
 ```bash
 magnet:?xt=urn:btih:F2BB6FA476DF44C8DCBA3BC91BBB4A1BE7A397A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ You’ll examine steps along the entire toolchain, from scraping, cleaning, expl
 magnet:?xt=urn:btih:C78DD0A4275FE46BBCB287FA2449EA1F99B1702B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:C78DD0A4275FE46BBCB287FA2449EA1F99B1702B
 ```bash
 magnet:?xt=urn:btih:63BB62574811E3404624994E2EC77821543D502E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:63BB62574811E3404624994E2EC77821543D502E
 magnet:?xt=urn:btih:2D5EFE6B28E48227482736A593512A0F30044151
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:2D5EFE6B28E48227482736A593512A0F30044151
 ```bash
 magnet:?xt=urn:btih:D054EF2B84FD6D29471CC26AEFA77C1D1C9A6B9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ In Learn Python 3 the Hard Way, Zed Shaw taught you the basics of Programming wi
 magnet:?xt=urn:btih:030A5A827153BB56969C51D3A6347B8C42D4E4DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:030A5A827153BB56969C51D3A6347B8C42D4E4DD
 ```bash
 magnet:?xt=urn:btih:577ADBD80226A637608F09519CEA86FAFE25416D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +397,8 @@ In Clean Code, legendary software expert Robert C. Martin has teamed up with his
 magnet:?xt=urn:btih:F808F7F695047D98D3B72F0AEC027FBAAD717447
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:F808F7F695047D98D3B72F0AEC027FBAAD717447
 ```bash
 magnet:?xt=urn:btih:7CEFA0D3251FAC0A84CFE222AD9BCAA32142A0EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:7CEFA0D3251FAC0A84CFE222AD9BCAA32142A0EF
 magnet:?xt=urn:btih:679C9F085F96F9D527F39C0A7661A83FB763C235
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:679C9F085F96F9D527F39C0A7661A83FB763C235
 ```bash
 magnet:?xt=urn:btih:C74B7388215F3A482B555F31190049F90A369F43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +509,8 @@ magnet:?xt=urn:btih:C74B7388215F3A482B555F31190049F90A369F43
 magnet:?xt=urn:btih:4332B3BA356FE917CE59771EB81B6791BCFECC15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +537,8 @@ Terraform — настоящая звезда в мире DevOps. Эта тех�
 magnet:?xt=urn:btih:AF949826F7A187E50045D61EDCE3792B3991E228
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ magnet:?xt=urn:btih:AF949826F7A187E50045D61EDCE3792B3991E228
 ```bash
 magnet:?xt=urn:btih:DA680CE309E62F9BC36457CEB3E6CE4FC9DB4A5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ Min-Yih Hsu | LLVM Techniques, Tips, and Best Practices Clang and Middle-End Lib
 magnet:?xt=urn:btih:B1E78513FE93BF7459A1DE58CD0B17052C5633AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ magnet:?xt=urn:btih:B1E78513FE93BF7459A1DE58CD0B17052C5633AF
 ```bash
 magnet:?xt=urn:btih:9E115C2B8F47165B3B347FE192E41EA1AB834B6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +646,8 @@ Python – первоклассный инструмент, и в первую �
 magnet:?xt=urn:btih:0EB298928B9F73883DDF56154FF35A0D53EE0255
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +672,8 @@ magnet:?xt=urn:btih:0EB298928B9F73883DDF56154FF35A0D53EE0255
 ```bash
 magnet:?xt=urn:btih:0CCFFAFC33C3B58514F0FC8AECA0EAC3D6FEE787
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +700,8 @@ magnet:?xt=urn:btih:0CCFFAFC33C3B58514F0FC8AECA0EAC3D6FEE787
 ```bash
 magnet:?xt=urn:btih:90744C46B9D23D6E3B3EA3621EF8D96F29F76C04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

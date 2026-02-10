@@ -22,6 +22,8 @@ Kaasin - Fired Up (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:1A7958B811C411296D2A8E1F5CA645F20E586DCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:1A7958B811C411296D2A8E1F5CA645F20E586DCD
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ MechCommander 2 (2001) [Ru/En] (2.2.0.5) Repack Necros
 ```bash
 magnet:?xt=urn:btih:EF184C3EC743A49287643A6DC342F9E35B97431D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Despised Icon - Shadow Work (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Death Me
 magnet:?xt=urn:btih:6C9E1B2E3F82098D4DE399FEBBECC414ED2B1F2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ MechCommander Gold – фантастическая тактика в реаль
 magnet:?xt=urn:btih:BE7256AF0B3BA363383E046492437E3E13AFDDB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:BE7256AF0B3BA363383E046492437E3E13AFDDB1
 ```bash
 magnet:?xt=urn:btih:9A2C9E304392AC36813D1E35406C2ABB20E90FEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ VA - A State of Trance - Classics Top 10, Vol. 10 (2025) [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:C4A1E7BC6A68590AAC4CBFDEE1CB5D084A663E93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:C4A1E7BC6A68590AAC4CBFDEE1CB5D084A663E93
 ```bash
 magnet:?xt=urn:btih:9E10EF5A3B632518DF5E08FD72CC4D60CF182B6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:9E10EF5A3B632518DF5E08FD72CC4D60CF182B6E
 magnet:?xt=urn:btih:37D2CC223D12F6F3DFDA5CC765587F9B9D3C7745
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:37D2CC223D12F6F3DFDA5CC765587F9B9D3C7745
 magnet:?xt=urn:btih:9730EE85104B99A4A7E0D737E84DAF523C5CE08E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:9730EE85104B99A4A7E0D737E84DAF523C5CE08E
 ```bash
 magnet:?xt=urn:btih:F2D3369DB9E8E390FA9E66F49F84698F0782FC05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:F2D3369DB9E8E390FA9E66F49F84698F0782FC05
 magnet:?xt=urn:btih:BCD284960666690E5D7A3B2D39E42292A5EBFFB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ Tenki no Ko | Weathering with You | Дитя Погоды [Movie] DVD9 480p raw+
 magnet:?xt=urn:btih:2E3B60DB0CE4EC66785DF9D953750879FC7B3E34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:2E3B60DB0CE4EC66785DF9D953750879FC7B3E34
 ```bash
 magnet:?xt=urn:btih:B829713483E680F28D4454EC34465DAD20E3B2DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +397,8 @@ VA - Ori Uplift - Uplifting Only Episode 664 (2025) [MP3|320 Kbps] <Trance, Upli
 magnet:?xt=urn:btih:34E9BA2BEC22CDE9FF353A338DA2DBC2EDE27119
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:34E9BA2BEC22CDE9FF353A338DA2DBC2EDE27119
 magnet:?xt=urn:btih:AF917106214EF5DD9A2FB9C01118E808C4B73E3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:AF917106214EF5DD9A2FB9C01118E808C4B73E3D
 magnet:?xt=urn:btih:E08B8364C718905EED2871B2D5B539A504DF5260
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ magnet:?xt=urn:btih:E08B8364C718905EED2871B2D5B539A504DF5260
 ```bash
 magnet:?xt=urn:btih:7A9722C9CBF27207548AB1DADB7C7A1784574C5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:7A9722C9CBF27207548AB1DADB7C7A1784574C5C
 magnet:?xt=urn:btih:751196465467981DCB4D58C4ED72604C093D962E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:751196465467981DCB4D58C4ED72604C093D962E
 ```bash
 magnet:?xt=urn:btih:16474A0081C9DE4020888628144241BEFA360454
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +562,8 @@ Chicago Blues Radio - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Blues, 
 magnet:?xt=urn:btih:CA77ADDEFAF91C84478EBDC07DC6639B5131E161
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ Anna Zueva - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Easy Listening, 
 ```bash
 magnet:?xt=urn:btih:A55EDB9B9731DB790C234D3AA2651641DEEA7F21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ Chicago Blues Radio - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Blues, 
 magnet:?xt=urn:btih:DD629A376500A328E4C8C5DAC7D8B1B950321F35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:DD629A376500A328E4C8C5DAC7D8B1B950321F35
 ```bash
 magnet:?xt=urn:btih:DDC100D6833FA5B7AE154E2B5CD546E6AB2FB14C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +675,8 @@ Chicago Blues Radio - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Blues, 
 magnet:?xt=urn:btih:44605BAC2EACD00704B5CE779F902A2168C540BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ VA - Ibiza Winter Session 2026 (The Tech House Rockets) (2025) [FLAC|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:789ED9118BEF4E15D8246F08975890AB9E19E076
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

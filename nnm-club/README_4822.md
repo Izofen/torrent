@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Volume Ace - именно то приложение по настройке зв
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Volume Ace - именно то приложение по настройке зв
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Volume Ace - именно то приложение по настройке зв
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ Volume Ace - именно то приложение по настройке зв
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ Volume Ace - именно то приложение по настройке зв
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ Volume Ace - именно то приложение по настройке зв
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Volume Ace - именно то приложение по настройке зв
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ Ball & Chain - The Appalachian Hammer (2012) [MP3|320 кб/с]<Hard Rock / South
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ Ball & Chain - The Appalachian Hammer (2012) [MP3|320 кб/с]<Hard Rock / South
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +325,8 @@ Thomas Heppell - Thomas Heppell (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ Thomas Heppell - Thomas Heppell (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ Sexy Women Wallpapers (08.12.12) [Wallpapers 16+]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +407,8 @@ VA - Music News vol.59 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +435,8 @@ VA - Music News vol.59 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +460,8 @@ VA - Music News vol.59 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +490,8 @@ Zeno Jones - Disillusion Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Electrified
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +515,8 @@ Zeno Jones - Disillusion Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Electrified
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +545,8 @@ Cerrone - Cerrone By Jamie Lewis (2009) Compilation, Mixed [FLAC|Lossless|tracks
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +570,8 @@ Cerrone - Cerrone By Jamie Lewis (2009) Compilation, Mixed [FLAC|Lossless|tracks
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +600,8 @@ Thorium - Extraordinary Journeys pt. I (2023) [FLAC|Lossless|WEB-DL|tracks] <Hea
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +626,8 @@ Witches Legacy 8: Dark Days To Come / Наследие ведьм 8: Гряду�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +651,8 @@ Witches Legacy 8: Dark Days To Come / Наследие ведьм 8: Гряду�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +681,8 @@ Jerry Dugger - Don't Crow, Don't Cry (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ Jerry Dugger - Don't Crow, Don't Cry (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

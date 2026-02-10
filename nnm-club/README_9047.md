@@ -20,6 +20,8 @@ Italian Disco Mafia - 1 Album, 2 Singles (2012, 2018) [MP3|320 Kbps] <Italo-Disc
 magnet:?xt=urn:btih:E0217E64B87649B7D604D8E7A598B459E486B5BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:E0217E64B87649B7D604D8E7A598B459E486B5BB
 ```bash
 magnet:?xt=urn:btih:DA4195CB6945089814459AABB2B110CECDD29AED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:DA4195CB6945089814459AABB2B110CECDD29AED
 magnet:?xt=urn:btih:68DE38B6CF939948CC58B832257E2FA1CA55FC5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:68DE38B6CF939948CC58B832257E2FA1CA55FC5D
 magnet:?xt=urn:btih:E666353D2A4D5FE1CC5031D1DE9C611C54719B36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:E666353D2A4D5FE1CC5031D1DE9C611C54719B36
 ```bash
 magnet:?xt=urn:btih:462812360D2F533FF5466F5A5AE0C76FE4DFC49A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ VA - Old Skool Disco: The Groove Is Hot (2018) [MP3|320 Kbps] <Disco, Dance, Pop
 magnet:?xt=urn:btih:35BED5CBCCAD1389D439B27D9A25E5BEB68DF65C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ Tanja Raich - Twenty-Four Reasons (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Ja
 magnet:?xt=urn:btih:0A34442DCB5C0CE7BE9043C4D3BF6E7E5563CF60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ Ink O.N. Papyrus | Мастер божественной крови. Книга 
 ```bash
 magnet:?xt=urn:btih:FF61BF6D67079EA1163C4723C45611B3007C978F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:FF61BF6D67079EA1163C4723C45611B3007C978F
 magnet:?xt=urn:btih:9C9F6BAD8522FE00B252EF126CF77A5B2D676D80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ mimoLive - программное обеспечение, которое пре�
 ```bash
 magnet:?xt=urn:btih:9E9137AC1E4BA29EC5D9D9BFB7AF7C6C5C43CF18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:9E9137AC1E4BA29EC5D9D9BFB7AF7C6C5C43CF18
 magnet:?xt=urn:btih:EE7627164F35BA5A2762703E11A9BC04C9DCE4AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:EE7627164F35BA5A2762703E11A9BC04C9DCE4AD
 ```bash
 magnet:?xt=urn:btih:9FC98BF2BA6F6CAD5441934421CF634A2D8015C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ Disc 1
 magnet:?xt=urn:btih:FE7A25DE8D6FDDCB8732884D85F44ABCB3E8D50E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ DxO PhotoLab Elite 1.2.3 (82) [Multi]
 magnet:?xt=urn:btih:F0774705B06AABFC826D5E2CF72A335620472F11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ Statistica - подробный монитор системных ресурсо
 magnet:?xt=urn:btih:A6CE1EB44C18B20D372CE2CA3F344C33C42DFA43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:A6CE1EB44C18B20D372CE2CA3F344C33C42DFA43
 ```bash
 magnet:?xt=urn:btih:0ACDAC6BE1A6725F92690DED6599F6CD39F17486
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +461,8 @@ Glitterbox Presents Pump The Boogie! MIXED
 magnet:?xt=urn:btih:3B8348450D9181F03109D367EE5B3A8307D71547
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ magnet:?xt=urn:btih:3B8348450D9181F03109D367EE5B3A8307D71547
 ```bash
 magnet:?xt=urn:btih:3EBB8DB217913B61A89750C9484E2ACEBFC5EF29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +516,8 @@ Docker's Guild - The Mystic Technocracy - Season 1: The Age Of Ignorance (2012) 
 magnet:?xt=urn:btih:9A66C3AA510422D491683B24D370E146BBC671C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ Paleokontakt - Music For A Spatial Moment (2018) Melusine Records [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:9F838B7931160BB64661288334AFDFF53510F1B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +574,8 @@ CD01:
 magnet:?xt=urn:btih:4E2A8473D9CF5BC7B83992E1FAC4C06AA1DCF2AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +603,8 @@ VA - The Official UK Top 40 Singles Chart 23.11.2018 [MP3|320 Kbps] <Pop, Dance,
 magnet:?xt=urn:btih:C4DACA64478D0AA4D0BE778EC2125C2FE100F7D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +628,8 @@ magnet:?xt=urn:btih:C4DACA64478D0AA4D0BE778EC2125C2FE100F7D1
 ```bash
 magnet:?xt=urn:btih:1631D39CC7CFFCA120ED17D4C7E856097D65933A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +656,8 @@ magnet:?xt=urn:btih:1631D39CC7CFFCA120ED17D4C7E856097D65933A
 ```bash
 magnet:?xt=urn:btih:1389D687AE774C4F29FEB7D88C15BE49DB1C1A44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +686,8 @@ VA - Children Of Nuggets - Original Artyfacts From The Second Psychedelic Era 19
 magnet:?xt=urn:btih:B1E69B013D141A9B3F5827C7CEE474CD46A10024
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +711,8 @@ Slimjet 21.0.2.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:939D700C898D3CBC6E64BF99618B2BDA0B8ACDCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:43EFF8E3E49EC80EE4DAF5F450B0FDFF73BF4264
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:43EFF8E3E49EC80EE4DAF5F450B0FDFF73BF4264
 ```bash
 magnet:?xt=urn:btih:EB94E5358C403C3E47B61F6F8E82D28FDBB5EDF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ magnet:?xt=urn:btih:EB94E5358C403C3E47B61F6F8E82D28FDBB5EDF2
 magnet:?xt=urn:btih:DDB233F7CFAAF17E06059C4738FF6C520D56B00E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:DDB233F7CFAAF17E06059C4738FF6C520D56B00E
 ```bash
 magnet:?xt=urn:btih:677DC89E0CD74605951BF5CC495309CB6B099AA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ UNIVER ONLINE v.2 естественный свет!(   Читать дальш�
 magnet:?xt=urn:btih:756AE36659FEBE957ECFA126D99699442BEFCC99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ Lynda, Darrin Lile | Архитектурная визуализация в Blen
 ```bash
 magnet:?xt=urn:btih:0EFC1F5C84A4DD77B6D4F22B2DBF7F0B4207A0E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ Werner Herzog | Вернер Херцог учит кинопроизводст�
 magnet:?xt=urn:btih:35D08D77D1CED1330AA36E67192F0106D6342E18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ Xtreme Burn – это  интенсивные  нон-стоп трениров
 ```bash
 magnet:?xt=urn:btih:8CC0EF2E18DD5628163B0D3A08BBB0A2DC3F564C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -230,6 +246,8 @@ magnet:?xt=urn:btih:8CC0EF2E18DD5628163B0D3A08BBB0A2DC3F564C
 magnet:?xt=urn:btih:93BF91217189E585BED945137277D46F2C159CF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +274,8 @@ Fusion 360 — это программа для 3D моделирования, �
 magnet:?xt=urn:btih:DE314AB47D8FD53BFE9FC5C884D77141BF41A7D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ LiveClasses, Дмитрий Ларионов | Монтаж видео для с
 ```bash
 magnet:?xt=urn:btih:74E808C290BE6653A1E3C6627B70211EAC110702
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -306,6 +328,8 @@ LiveClasses, Дмитрий Ларионов | Эффекты и анимаци�
 magnet:?xt=urn:btih:4B2C6BC743497F19AEB65CDE7512A2BDF34E21B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ magnet:?xt=urn:btih:4B2C6BC743497F19AEB65CDE7512A2BDF34E21B2
 ```bash
 magnet:?xt=urn:btih:6ADEE32B36734247B505C730B8D54B977B159BE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +381,8 @@ LiveClasses, Дмитрий Ларионов | Работа с шаблонам�
 magnet:?xt=urn:btih:5E1DDCC36ED13D62D77001EE3CD4D2C31005F394
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ Andreas H. Bitesnich - один из самых известных в мире �
 ```bash
 magnet:?xt=urn:btih:FB2B6BFCBAA8D82462C5CE7E672A82A24C796576
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ LiveClasses, Антон Мартынов | Как снимать портрет�
 magnet:?xt=urn:btih:A385404946BF9BD1E30A475EAC5ADC8936463914
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ LiveClasses, Антон Мартынов | Фотография: Быстрый 
 ```bash
 magnet:?xt=urn:btih:725573925BEA13DF17843EEC23E2A4DDC3D00EA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ LiveClasses, Антон Мартынов | Упражнения для само�
 magnet:?xt=urn:btih:FAFD6E50BF6780EDB5ED6A15F8BB74F8A367ED01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ LiveClasses, Антон Мартынов | Типичные ошибки нач�
 magnet:?xt=urn:btih:03F13C54CFF8A17A4BBC3E087E9BBB4B42D64D79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +536,8 @@ LiveClasses, Антон Мартынов | Вспышки (2020) HDTVRip
 ```bash
 magnet:?xt=urn:btih:18EA2832C3904E2F9D2F8805DE95F055E9CE8BE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +564,8 @@ LiveClasses, Антон Мартынов | Мужской портрет в ни
 magnet:?xt=urn:btih:10CBC61D3CDA82A4CF8167A28B6A86C3A1B5EBC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +589,8 @@ ITVDN | C# Стартовый на примерах из GTA 5 (2016) PCRec [H.2
 ```bash
 magnet:?xt=urn:btih:40FE4DC559C5B901DA5FBD59835F53CB5F78B293
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +619,8 @@ magnet:?xt=urn:btih:40FE4DC559C5B901DA5FBD59835F53CB5F78B293
 magnet:?xt=urn:btih:A7EC3350564B565507B9635FACE748290F78548B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +644,8 @@ LiveClasses, Антон Мартынов | Как снимать автопор�
 ```bash
 magnet:?xt=urn:btih:70931BF8B18CDE5381AD30BB3666766FF90DDC4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +671,8 @@ LiveClasses, Антон Мартынов | Как это снято? (2020) PCRe
 magnet:?xt=urn:btih:E54200CC8635604F22B18B49F178E6800EE21B70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ LiveClasses, Дмитрий Ларионов | Работа с MacOS: Полез
 ```bash
 magnet:?xt=urn:btih:E88AA0BEFB1639F2E1F8B0F66F00D159A99F27AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

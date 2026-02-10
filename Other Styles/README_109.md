@@ -22,6 +22,8 @@ Geoff Zanelli - Pirates of the Caribbean: Dead Men Tell No Tales / Пираты 
 magnet:?xt=urn:btih:1751D09279F6F23A0210CF74B94DC9ABE25E4B67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Guitar Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
 ```bash
 magnet:?xt=urn:btih:34464C46EFD7FC4BE01D5EF7CAEB602425243846
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Furi Original Soundtrack (2016) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:3402937E59E1C4FCA72F8759BC596502A4E8184B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Di Donna - Kamasutra Secrets (2002) [FLAC|Lossless|tracks + .cue] <New Age>
 ```bash
 magnet:?xt=urn:btih:70493478237333FFE48FCCA5B42B287B2D90957B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Jody Direen - Shake Up (2016) [FLAC|Lossless|tracks] <Country>
 magnet:?xt=urn:btih:9CB62227CCF6F2E310F7CD18BA60E57C79464617
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Buddhatronic The Compilation Vol.2 (2017) [MP3|320 Kbps] <New Age, Chillout
 ```bash
 magnet:?xt=urn:btih:427D6B2BDEA4C54E98C9A4F1B36BBA38E9365E8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +201,8 @@ Shalabi Effect - 4 albums (2001-2005) [FLAC|Lossless] <Instrumental, Experimenta
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +229,8 @@ Orquestra Club da Valsa - As Mais Belas Valsas Brasileiras (1999) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:D2CABE22813CF7A4ABC88DB1A5A9C6C2D2326FB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +259,8 @@ Out of Berlin & Luke Woodapple - Sounds of Piano (Works of Glass, Einaudi, Richt
 magnet:?xt=urn:btih:27117DA459CC6D3842820E0718277DEDB09D227A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +287,8 @@ Ennio Morricone - Ennio Morricone 2016 Meisterwerke der Filmmusik (2016) [FLAC|L
 ```bash
 magnet:?xt=urn:btih:7D7AD0AA63AF3694F93C34AB205979027D306F1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +317,8 @@ Medwyn Goodall - The Dreamworld (2016) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:EEC6FFF517AF9E939D491A59ED82A57452AC7508
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +345,8 @@ James Last - Instrumental Forever (1998) [APE|Lossless|image + .cue] <Instrument
 ```bash
 magnet:?xt=urn:btih:43FF4AC862A208E9AE2A516B31FFD8F8A613042C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +380,8 @@ CD1. Telegraphs in Negative: (00:43:56)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +408,8 @@ John Williams - The BFG / Большой и добрый великан (Origina
 ```bash
 magnet:?xt=urn:btih:673DA5528A9549D5D4B6DA3B024DB76DE2D56648
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +438,8 @@ John Williams - The BFG / Большой и добрый великан (Origina
 magnet:?xt=urn:btih:DFD8BC4782AA459629EF123978629C92D171BF0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +466,8 @@ Midori - Soul Healing / The Best of Midori (2016) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:9C217C1E8C734FB8AA310C767388EFF63A225FB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +496,8 @@ VA - Sleep, Rest, Relax (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 magnet:?xt=urn:btih:4217E1B9098877B0B02223A7B6FD5E4066CFD368
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +524,8 @@ Midori - Soul Healing / The Best of Midori (2016) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:CEE3EB6D93A6B94B7D917B6DC87896741D8715DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +554,8 @@ Baba Yaga's Stew - Baba Yaga's Stew (2019) [FLAC|Lossless|tracks + .cue] <Folk, 
 magnet:?xt=urn:btih:13DCA18FF7268318EBE5CACDCA1CFB12ED931091
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +582,8 @@ Cole Swindell - All of It (2018) [FLAC|Lossless|tracks + .cue] <Country>
 ```bash
 magnet:?xt=urn:btih:F75253406316A1EDB5CF5723E467D8E803B75BF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +612,8 @@ The Romantic Strings and Orchestra - Great Broadway Favorites (1993) [FLAC|Lossl
 magnet:?xt=urn:btih:3297D3068045655BD050DAE90619B0BFB159129A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +640,8 @@ The Witcher 2: Assassins of Kings (Original Soundtrack) (2012) Enhanced Edition 
 ```bash
 magnet:?xt=urn:btih:CAB4FFF063209C3D2610F6DFC8D1C7EA518376EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +676,8 @@ Kitchen - Кухня (2008) [MP3|256 кб/с]<Soundtrack>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +705,8 @@ Jamie Llewellyn - Anreise mit dem Buddha: Meditationsmusik (2015) [FLAC|Lossless
 magnet:?xt=urn:btih:E5F75CE4318E47131379924528E2B5F3C3149B7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -682,6 +730,8 @@ Royal Philharmonic Orchestra - Rock Dreams 2 (1994) Box Set, 3CD, Compilation [F
 ```bash
 magnet:?xt=urn:btih:1A7E8CADDA5DC99C075FC12585343C8274096BA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -709,6 +759,8 @@ Balaklava Blues - Fly (2019) [MP3|320 Kbps] <NewAge & Meditative>
 ```bash
 magnet:?xt=urn:btih:755A0329E5807C0D227101D15F830D0792AF1676
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

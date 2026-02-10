@@ -1,27 +1,3 @@
-###  Публикация: 1407818   (462330) от 09.09.2020
-
-Белый охотник, черное сердце / White Hunter Black Heart (1990) WEB-DLRip [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джон Уилсон — отчаянный храбрец, человек, склонный к безрассудным поступкам, смелый и дерзкий режиссер. Этот белый охотник известен как борец за права негров и евреев. Джон приглашает своего друга — писателя Пита Веррилла принять участие в создании нового фильма. Друзья летят в Африку на съемки. Но главной целью Джона является охота на слона…Производство: США / Malpaso Productions, Rastar Pictures, Warner Bros. PicturesЖанр: Драма, приключенияРежиссер: Клинт ИствудАктеры: Клинт Иствуд, Джефф Фэйи, Шарлотта Корнвэлл, Норман Ламсден, Джордж Дзундза, Эдвард Тудор-Поул, Родди Мод-Роксби, Ричард Уорвик, Джон Рэпли, Кэтрин НилсонПеревод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:52:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37A14B52AF4D1B8226DD9407D328D2B3A63A99DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1407634   (462350) от 09.09.2020
 
 Принц Валиант / Prince Valiant (1954) DVDRip [VO]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:37A14B52AF4D1B8226DD9407D328D2B3A63A99DF
 ```bash
 magnet:?xt=urn:btih:F1CEF3720BB874BC0CBF4EE372E9EAA209E0D98E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:F1CEF3720BB874BC0CBF4EE372E9EAA209E0D98E
 magnet:?xt=urn:btih:28DF9D8C909D9C2E72EB4917CF1B3F27B5A2D29C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:28DF9D8C909D9C2E72EB4917CF1B3F27B5A2D29C
 ```bash
 magnet:?xt=urn:btih:207CD0B5C11757315AE798C94E452F12C0068AC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:207CD0B5C11757315AE798C94E452F12C0068AC2
 magnet:?xt=urn:btih:5DA8B3BC4C727B0565712887095225CA38CA86D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:5DA8B3BC4C727B0565712887095225CA38CA86D5
 ```bash
 magnet:?xt=urn:btih:87EB5DC125884C3E93181BFBA4553C4BA029947F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:87EB5DC125884C3E93181BFBA4553C4BA029947F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:87EB5DC125884C3E93181BFBA4553C4BA029947F
 ```bash
 magnet:?xt=urn:btih:59BA78AF50B9A53B465604A53F08F6833DBC3EE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:59BA78AF50B9A53B465604A53F08F6833DBC3EE6
 magnet:?xt=urn:btih:F2123DCF7F7E403FC457608CF64673C02BA22972
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ magnet:?xt=urn:btih:F2123DCF7F7E403FC457608CF64673C02BA22972
 ```bash
 magnet:?xt=urn:btih:61E0E531BC4D666A40D8B5D56DD3ADE06EDDE6A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:61E0E531BC4D666A40D8B5D56DD3ADE06EDDE6A7
 magnet:?xt=urn:btih:71BC20835A9C52F354F1D86F0BECD7179A2E9B9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ magnet:?xt=urn:btih:71BC20835A9C52F354F1D86F0BECD7179A2E9B9B
 ```bash
 magnet:?xt=urn:btih:B8B1ADB14EE7D84920030C3981071B4A042218B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:B8B1ADB14EE7D84920030C3981071B4A042218B7
 magnet:?xt=urn:btih:3AD23B643A7660BEB1EB40F4365B12A2B54B69EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ magnet:?xt=urn:btih:3AD23B643A7660BEB1EB40F4365B12A2B54B69EC
 ```bash
 magnet:?xt=urn:btih:7F6453C06548513B9E299D5BF1C8354ED6494D8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ magnet:?xt=urn:btih:7F6453C06548513B9E299D5BF1C8354ED6494D8A
 magnet:?xt=urn:btih:125C3C76F2496EEB864E8DC33DE09B88FFDFC55C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ magnet:?xt=urn:btih:125C3C76F2496EEB864E8DC33DE09B88FFDFC55C
 ```bash
 magnet:?xt=urn:btih:786F7F632565D4A907AF4D5213A0B985C5F032C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ magnet:?xt=urn:btih:786F7F632565D4A907AF4D5213A0B985C5F032C0
 magnet:?xt=urn:btih:685D93005E03F9D095E00E627DC6AA2647B6FC3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ magnet:?xt=urn:btih:685D93005E03F9D095E00E627DC6AA2647B6FC3E
 ```bash
 magnet:?xt=urn:btih:D79A6CC00650A2FF3D03C3EFB1EC9864AF3936A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ magnet:?xt=urn:btih:D79A6CC00650A2FF3D03C3EFB1EC9864AF3936A0
 magnet:?xt=urn:btih:C2C370D79A2BFF59CE361524F60E497377AEF6B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ magnet:?xt=urn:btih:C2C370D79A2BFF59CE361524F60E497377AEF6B1
 ```bash
 magnet:?xt=urn:btih:B463A8C123BBFB8D13D662B92BF19FEF45302D2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ magnet:?xt=urn:btih:B463A8C123BBFB8D13D662B92BF19FEF45302D2E
 magnet:?xt=urn:btih:DD916A21DC9D6EDD1F5C70298E721A045F169BA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +539,8 @@ magnet:?xt=urn:btih:DD916A21DC9D6EDD1F5C70298E721A045F169BA3
 magnet:?xt=urn:btih:D21C9A73A8A361EA410AD2564DDBC8A251B2C03E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +564,8 @@ magnet:?xt=urn:btih:D21C9A73A8A361EA410AD2564DDBC8A251B2C03E
 ```bash
 magnet:?xt=urn:btih:ECC358530685F20FB6665ABE9088667C981E7B17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +592,8 @@ magnet:?xt=urn:btih:ECC358530685F20FB6665ABE9088667C981E7B17
 magnet:?xt=urn:btih:891D1BB1A6F201E2492C30E1175E3F250EF153AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +618,8 @@ magnet:?xt=urn:btih:891D1BB1A6F201E2492C30E1175E3F250EF153AF
 magnet:?xt=urn:btih:CC2E7BC9F43D1B8FF3F22D0E9B1E1AA98DA864FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +643,34 @@ magnet:?xt=urn:btih:CC2E7BC9F43D1B8FF3F22D0E9B1E1AA98DA864FD
 ```bash
 magnet:?xt=urn:btih:74A0A2DA3165016E0D8A3C57FFA7632A81547B84
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 568567   (469824) от 21.09.2013
+
+Полоса невезения/ Il paramedico (1982) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марио Мильо, санитар в больнице, делит свои будни между постылой работой и скучной семейной жизнью. Но однажды он выигрывает в лотерею шикарный автомобиль. И жизнь Марио круто меняется…Производство: ИталияЖанр: КомедияРежиссер: Серджо НаскаАктеры: Энрико Монтезано (Enrico Montesano), Эдвиж Фенек (Edwige Fenech), Марко Мессери (Marco Messeri), Лео Гульотта (Leo Gullotta), Мауро Ди Франческо (Mauro Di Francesco), Энцо Робутти (Enzo Robutti), Энзо Либерти (Enzo Liberti), Уго Фангареджи (Ugo Fangareggi)Перевод: Профессиональный (многоголосый)Субтитры: ОтсутствуютПродолжительность: 01:36:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39EBD1742EA85E1D883815180DE9A787BA228C00
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

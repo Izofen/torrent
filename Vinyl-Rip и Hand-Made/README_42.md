@@ -22,6 +22,8 @@ C1. Out Of Subconscious(   Читать дальше...   )Жанр: Progressive
 magnet:?xt=urn:btih:05B48CB57E962B8C02D52953822EB377A5348279
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Dark Lunacy - итальянская мелодик-дэт-метал групп
 ```bash
 magnet:?xt=urn:btih:D0F1A42C588792ABC38E3E14E8875D21EF7B94E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Deathstars — шведская индастриал-метал-группа, о
 magnet:?xt=urn:btih:CE3035BDF9F7357190C37FA16E67DD32509DC92E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ A4. The Reeking Suns (07:42)(   Читать дальше...   )Жанр: Experi
 magnet:?xt=urn:btih:749E5739F5667A55E0031CE70D36F4150631BA6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ Dissection — шведская мелодик-блэк-дэт-метал-гру
 magnet:?xt=urn:btih:1893713EB2807D5E00F0CD097C709DE67DACF8E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ Charred Walls of the Damned — американская хэви-метал с�
 ```bash
 magnet:?xt=urn:btih:870A070C4D4C2174F4599C9EEC5D64EA683D07CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -182,6 +194,8 @@ A4 Sa-ti Spun Adio(   Читать дальше...   )Жанр: Europop, Synth-p
 magnet:?xt=urn:btih:F753AB424058B8324B87ED6F6C24B08177C85591
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ A4 Love For Sale(   Читать дальше...   )Жанр: Pop, JazzПрод�
 ```bash
 magnet:?xt=urn:btih:6E590A54D79E5FA1EC404220F1D40D53B54912D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +252,8 @@ Callenish Circle - метал-группа из Нидерландов, суще
 magnet:?xt=urn:btih:E204AD3D49AC80699CD216EAB7D77693C1DF9AE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ Countless Skies - рок-руппа из Хартфордшира, Велико�
 ```bash
 magnet:?xt=urn:btih:2D8DD6D5172F1520E1A3FA232DA68580627DA62E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ Unanimated — шведская метал-группа, основанная в
 magnet:?xt=urn:btih:89A7B1317627F59747691AA209B220A1D1C53101
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,8 @@ Kalmah — финская англоязычная метал-группа. «Ka
 ```bash
 magnet:?xt=urn:btih:B0700D7D042554E94A1496492D70E8226F651223
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +367,8 @@ B2 - Funeral Pyre(   Читать дальше...   )Жанр: NWOBHM, Heavy Met
 magnet:?xt=urn:btih:A600B9E64E2C32BB536B9F258DB90918870998AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +395,8 @@ A4 Я Не Виноват(   Читать дальше...   )Жанр: New Wave�
 ```bash
 magnet:?xt=urn:btih:3A8E83BFE7B47D0F7423EEA7FDC2BA3EDC1D1724
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +425,8 @@ A4. Total Metal(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal
 magnet:?xt=urn:btih:1CD00F1A33906F55731AC18AD1B41DE8844088FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +453,8 @@ A4 Funeral Pyre(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal
 ```bash
 magnet:?xt=urn:btih:36728EE6E92CB9444221B4731F58A1793CA2FDB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +483,8 @@ A4 Night Of The Living Dead(   Читать дальше...   )Жанр: Thrash,
 magnet:?xt=urn:btih:4012276DE02FF8FE2771B1FBCE4542D673D0A223
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +511,8 @@ B1 - Star Of Sirrah(   Читать дальше...   )Жанр: Progressive Met
 ```bash
 magnet:?xt=urn:btih:86A06234F38696A441327A6E05F51148AEDF0800
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +541,8 @@ Stam1na («Стойкость») — метал-группа из Леми, Юж
 magnet:?xt=urn:btih:4A2917C99B5A9A66F6BC38D910C9524F6672560B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +569,8 @@ Silent Force - немецкая группа Heavy Metal/Power Metal, образ
 ```bash
 magnet:?xt=urn:btih:484BF8716C7638A6204B931744B24745E4C67367
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +599,8 @@ A4 Cigaro(   Читать дальше...   )Жанр: Alternative Metal, Nu Met
 magnet:?xt=urn:btih:49C12326CA3DB194DC515C45E014467BC981000A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +627,8 @@ A4 Hypnotize(   Читать дальше...   )Жанр: Alternative Metal, Nu 
 ```bash
 magnet:?xt=urn:btih:1AEE197496430259FD16FE6ACF11D960F15C7B6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +657,8 @@ Anubis Gate - датская пауэр/прог-метал группа, обр
 magnet:?xt=urn:btih:87D186EB2DC9A10893E8AE7E60C77204867E4890
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +685,8 @@ A-c - Patterns(   Читать дальше...   )Жанр: Progressive Metal, R
 ```bash
 magnet:?xt=urn:btih:992D7A28717DCB9723207EC0D9AEBE42858DE70B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +715,8 @@ Semblant - готик/экстремальный симфонический ме
 magnet:?xt=urn:btih:A3FD30F9F739E0D75E1F1AC74A4E2CABB7262092
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -690,6 +740,8 @@ Mario Lanza/Марио Ланца - Голос и ночь, Всё это ты, 
 ```bash
 magnet:?xt=urn:btih:E02EC2818F0C326084AFCCFEA0EFE39D87FA3D16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

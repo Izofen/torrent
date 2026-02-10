@@ -1,3 +1,31 @@
+###  Публикация: 1294442   (627960) от 08.04.2019
+
+Ярослав Глазунов | Анти-Титаник. Как выигрывать там, где тонут другие. Руководство для CEO (2018) [PDF]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Покупайте конкурентов, усиливайте команду, предлагайте новые продукты и услуги. Все эти предложения для большинства собственников и руководителей компаний актуальны в период роста, когда график продаж неуклонно идет вверх, а на лицах членов совета директоров по итогам отчетных собраний из полугодие в полугодие непременно играет улыбка.
+
+Автор придерживается иного (   Читать дальше...   )Жанр: Бизнес, Менеджмент, Подбор персоналаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCE191CE5239AA41A9EDA926B68C25648C67DD28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035295   (628024) от 16.07.2016
 
 Виктор Шейнов | НЛП – это просто. Приемы скрытого управления людьми (2016) [EPUB, FB2, MOBI]
@@ -19,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:3E3E3406C6F8CB39A151A6729FD49975086A1226
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +74,8 @@ magnet:?xt=urn:btih:3E3E3406C6F8CB39A151A6729FD49975086A1226
 magnet:?xt=urn:btih:76A77D4231EAC49C324109DF210B15B0D9F3BAEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +99,8 @@ magnet:?xt=urn:btih:76A77D4231EAC49C324109DF210B15B0D9F3BAEE
 ```bash
 magnet:?xt=urn:btih:A2628712885A77AEF3B72E0E464CB9821E08BEDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +128,8 @@ magnet:?xt=urn:btih:A2628712885A77AEF3B72E0E464CB9821E08BEDA
 magnet:?xt=urn:btih:8646EABACEE1CCF070EAC646822D3CFA070ABB21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +153,8 @@ magnet:?xt=urn:btih:8646EABACEE1CCF070EAC646822D3CFA070ABB21
 ```bash
 magnet:?xt=urn:btih:6F55661FA72F6950DC1F4A47FD7407890F8B937E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +180,8 @@ magnet:?xt=urn:btih:6F55661FA72F6950DC1F4A47FD7407890F8B937E
 magnet:?xt=urn:btih:ADB3A468F0F1CE7DDEB09673C37C4CF675D91FDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +205,8 @@ magnet:?xt=urn:btih:ADB3A468F0F1CE7DDEB09673C37C4CF675D91FDB
 ```bash
 magnet:?xt=urn:btih:C3BA67FE7DB26DD7017BF9164CB3A006C9ED28D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +232,8 @@ magnet:?xt=urn:btih:C3BA67FE7DB26DD7017BF9164CB3A006C9ED28D2
 magnet:?xt=urn:btih:C77387D1364F7E9D0BE5CC2C1E46AC6C1CE99E8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +258,8 @@ magnet:?xt=urn:btih:C77387D1364F7E9D0BE5CC2C1E46AC6C1CE99E8F
 magnet:?xt=urn:btih:4F90A6B79F8374B2A88B8AE8BE9C333208014D44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +283,8 @@ magnet:?xt=urn:btih:4F90A6B79F8374B2A88B8AE8BE9C333208014D44
 ```bash
 magnet:?xt=urn:btih:49577939FF53787F7441B3A044DB6BE978D24206
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +312,8 @@ magnet:?xt=urn:btih:49577939FF53787F7441B3A044DB6BE978D24206
 magnet:?xt=urn:btih:F52E860B2943307400D0C7C0631D3CE608225AA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +337,8 @@ magnet:?xt=urn:btih:F52E860B2943307400D0C7C0631D3CE608225AA2
 ```bash
 magnet:?xt=urn:btih:F80A6B00F1DAC4BE7DBE11813481E81D6F5EBD5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +365,8 @@ magnet:?xt=urn:btih:F80A6B00F1DAC4BE7DBE11813481E81D6F5EBD5D
 magnet:?xt=urn:btih:FDDA62A47E09A7D6428C25C2401CE00C410E9F7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +390,8 @@ magnet:?xt=urn:btih:FDDA62A47E09A7D6428C25C2401CE00C410E9F7A
 ```bash
 magnet:?xt=urn:btih:783FA30FF82DDC62065124B55DB0C943F9B51774
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +417,8 @@ magnet:?xt=urn:btih:783FA30FF82DDC62065124B55DB0C943F9B51774
 magnet:?xt=urn:btih:B25048EB41FC176690E35620BE93DE28D749932D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +442,8 @@ magnet:?xt=urn:btih:B25048EB41FC176690E35620BE93DE28D749932D
 ```bash
 magnet:?xt=urn:btih:4F7BA264633AFE355B20BE2575FB95441E87A939
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +469,8 @@ magnet:?xt=urn:btih:4F7BA264633AFE355B20BE2575FB95441E87A939
 magnet:?xt=urn:btih:CF9D23F11D8BEA524433F9B6CB4A67FC34CAD8D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +494,8 @@ magnet:?xt=urn:btih:CF9D23F11D8BEA524433F9B6CB4A67FC34CAD8D2
 ```bash
 magnet:?xt=urn:btih:AC17717A641BC04E7B22E0ED7846D683B5016243
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +523,8 @@ magnet:?xt=urn:btih:AC17717A641BC04E7B22E0ED7846D683B5016243
 magnet:?xt=urn:btih:9B55EA33EEEDE9E231159EE733DF4D8B1C464A9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +551,8 @@ magnet:?xt=urn:btih:9B55EA33EEEDE9E231159EE733DF4D8B1C464A9A
 magnet:?xt=urn:btih:29F20AFEBABC0FB3FCED6A850DA4E852FEF0EF14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +577,8 @@ magnet:?xt=urn:btih:29F20AFEBABC0FB3FCED6A850DA4E852FEF0EF14
 magnet:?xt=urn:btih:E29A3EB1F3E8E059EE1E519871C6E1FE52FCB853
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +602,8 @@ magnet:?xt=urn:btih:E29A3EB1F3E8E059EE1E519871C6E1FE52FCB853
 ```bash
 magnet:?xt=urn:btih:DBFD59E6877334BF14576A90D7C208B760583724
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +631,8 @@ magnet:?xt=urn:btih:DBFD59E6877334BF14576A90D7C208B760583724
 magnet:?xt=urn:btih:D226B116F9C8CC75251C593B3EF2C10D1DC4E9B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +656,8 @@ magnet:?xt=urn:btih:D226B116F9C8CC75251C593B3EF2C10D1DC4E9B9
 ```bash
 magnet:?xt=urn:btih:E587DE321CEC17EEA1204F6C0C87DAD9D82F11C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,29 +683,7 @@ magnet:?xt=urn:btih:E587DE321CEC17EEA1204F6C0C87DAD9D82F11C5
 magnet:?xt=urn:btih:111EB5DD9865C8A62ED30D9E68992B64FACB21EE
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 758483   (629136) от 16.06.2015
-
-Подборка книг | Книги и лекции по вырождению, дегенерации [320 книг] (1486-2014) [DOC, EPUB, FB2, PDF]
-
->>Разное (категория книг)
->>Эзотерика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629136.jpg" />
-</div>
-
-
-###  Подробнее
-
-В раздаче представлены книги по исследованию естественного биологического процесса вырождения в нашем мире. В частности, социальных групп и отдельных личностей. Проведён детальный анализ в формате АФД (аргументы-факты-доказательства) по теологии (наука о Боге и Дьяволе), антропологии (наука о происхождении и эволюции человека и его рас), судебной психиатрии (изучение (   Читать дальше...   )Формат: DOC, EPUB, FB2, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87F740EAD2693140286AA468486C86338B24F5F5
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

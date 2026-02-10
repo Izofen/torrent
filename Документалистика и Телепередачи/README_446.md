@@ -1,3 +1,29 @@
+###  Публикация: 1038612   (606903) от 28.07.2016
+
+Вести в 20-00. Большие Вести. Россия 1 (28.07.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606903.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вести» — информационная телевизионная программа Всероссийской государственной телерадиокомпании. Выходит в эфир на каналах «Россия-24», «Россия-1», «РТР-Планета» и «РТР-Беларусь». Производятся Дирекцией информационных программ Государственной телекомпании «Россия». Самые последние новости в России и в мире - смотрите в последних выпусках новостей телеканала «Россия».Телекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 00:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A69835F1C6F6E2C7C87EC0AF53FE154C1759E427
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 913280   (606913) от 28.06.2015
 
 Мир Наизнанку. Сезон №6. Выпуск №12. Южная (Латинская) Америка (2015.06.28) SATRip
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:20CDA0B54E2D16F297AB9567119E27C5C01695D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:20CDA0B54E2D16F297AB9567119E27C5C01695D3
 magnet:?xt=urn:btih:58C16E3E15624A9D216D49AE1C5BBB3A0B050CA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:58C16E3E15624A9D216D49AE1C5BBB3A0B050CA5
 magnet:?xt=urn:btih:5B8A8CF994D823332406A2045EDAE4F51B83E034
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:5B8A8CF994D823332406A2045EDAE4F51B83E034
 ```bash
 magnet:?xt=urn:btih:AA2622680FAD9753E79B134435F21FEE9BD6E7C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:AA2622680FAD9753E79B134435F21FEE9BD6E7C0
 magnet:?xt=urn:btih:11EBF388DD6B6F4CBDE48653B5E974881DE30368
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:11EBF388DD6B6F4CBDE48653B5E974881DE30368
 ```bash
 magnet:?xt=urn:btih:CCC7D634700F1C16EB80C82CA01CD9B7D4B5136C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:CCC7D634700F1C16EB80C82CA01CD9B7D4B5136C
 magnet:?xt=urn:btih:DB5FFDA293BA9C9D63592018B5CB114CEF261942
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:DB5FFDA293BA9C9D63592018B5CB114CEF261942
 ```bash
 magnet:?xt=urn:btih:21070AA89C7997B33A64AC8EE88D5EBBF5C0F01C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:21070AA89C7997B33A64AC8EE88D5EBBF5C0F01C
 magnet:?xt=urn:btih:1B76BC137106F679E962D4846B6D0A8F298712AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:1B76BC137106F679E962D4846B6D0A8F298712AB
 magnet:?xt=urn:btih:67251C1616A2CAE9FA5A2215843E11314190F041
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:67251C1616A2CAE9FA5A2215843E11314190F041
 ```bash
 magnet:?xt=urn:btih:82ABD09AF23F732AA10486B66F0F17EE19E90629
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:82ABD09AF23F732AA10486B66F0F17EE19E90629
 magnet:?xt=urn:btih:541E24D569AF9119CA127A4C2FB423DA81CFD28A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:541E24D569AF9119CA127A4C2FB423DA81CFD28A
 magnet:?xt=urn:btih:999A7B7A0145E03A09075BE148735A23915AADBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:999A7B7A0145E03A09075BE148735A23915AADBE
 ```bash
 magnet:?xt=urn:btih:5911143FDF9A15272063A62E18B6525A9B00AC09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:5911143FDF9A15272063A62E18B6525A9B00AC09
 magnet:?xt=urn:btih:615E63C840C3996DD14D31AB28AEEAFADEA3FCAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:615E63C840C3996DD14D31AB28AEEAFADEA3FCAB
 magnet:?xt=urn:btih:1DD9C8D550B0506D78556D9E0F124EE3E3FF9D6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:1DD9C8D550B0506D78556D9E0F124EE3E3FF9D6C
 ```bash
 magnet:?xt=urn:btih:72CBDEA22E7487B10DE60BB7BAE8AC4741E9B1EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:72CBDEA22E7487B10DE60BB7BAE8AC4741E9B1EB
 magnet:?xt=urn:btih:B4886C3C591AFB2277163E3F6240A78D449C5211
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:B4886C3C591AFB2277163E3F6240A78D449C5211
 ```bash
 magnet:?xt=urn:btih:EBAF9B7B7E385FEF9F1E6DE0AEC74AE84418665E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:EBAF9B7B7E385FEF9F1E6DE0AEC74AE84418665E
 magnet:?xt=urn:btih:8080FFB66B7D2581867D016FEBEA90842214FAD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:8080FFB66B7D2581867D016FEBEA90842214FAD9
 ```bash
 magnet:?xt=urn:btih:2F3CBEB7035C21E351681CB45D20CE462A54684F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +600,8 @@ magnet:?xt=urn:btih:2F3CBEB7035C21E351681CB45D20CE462A54684F
 magnet:?xt=urn:btih:19770D45F084A26C6209581897F5062D30F4A156
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:19770D45F084A26C6209581897F5062D30F4A156
 magnet:?xt=urn:btih:3B4B83F60B112BDD515F1D66E5EF451BEED05333
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +651,8 @@ magnet:?xt=urn:btih:3B4B83F60B112BDD515F1D66E5EF451BEED05333
 ```bash
 magnet:?xt=urn:btih:728304DB412045E055265806C49F70B582B4FEB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,31 +679,7 @@ magnet:?xt=urn:btih:728304DB412045E055265806C49F70B582B4FEB0
 magnet:?xt=urn:btih:76FD5D275CF5C8543CF71E4F4EC3B1793127C2EA
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912735   (608688) от 27.06.2015
-
-Донецк глазами американца (2014) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие мировые СМИ утверждают, что в Донбассе воюет российская армия. Съёмочная группа RT отправилась туда, чтобы найти этому подтверждение. Не нашла. Но увидела страшные разрушения, кровь и горе, принесённые этой войной. И людей, защищающих свою землю.
-
-Так есть ли в Донбассе российская армия? Мигель Фрэнсис - автор фильма "Крым глазами американца" - отправился (   Читать дальше...   )Телекомпания: RTДЖанр: ДокументальныйРежиссер: Мигель ФренсисПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:26:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF13299802EEF1BCE664E00B4398FCA12D9AAAF1
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

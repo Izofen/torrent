@@ -1,3 +1,29 @@
+###  Публикация: 1436578   (1043015) от 01.01.2021
+
+Элияху Голдратт и др. | Я так и знал! Розничная торговля и Теория ограничений (2018) [EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043015.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этот раз речь идет о применении Теории Ограничений не на промышленном предприятии, а в розничной компании. Небольшая семейная торговая сеть Hannah’s Shop испытывает значительные сложности в работе. Управляющий одного из магазинов сети Пол Уайт изо всех сил старается добиться его процветания. Решение внезапно возникших проблем его торговой точки приведет к улучшениям (   Читать дальше...   )Жанр: Просто о бизнесе, Организационный менеджментПеревод: Антон ШириковФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:501EA440569CB3CB1759F6511AEC3D93DA4CC81D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436581   (1043021) от 01.01.2021
 
 В.Ф. Корсун и др. | Фитотерапия при заболеваниях сердца. Травы жизни (2020) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:921338433311FE2F04F8392A5E7ABF26E27CA272
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:921338433311FE2F04F8392A5E7ABF26E27CA272
 magnet:?xt=urn:btih:7DA24818D3835BCFC8240C802C3AA15FA659895F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:7DA24818D3835BCFC8240C802C3AA15FA659895F
 magnet:?xt=urn:btih:E8DCF47DE3644C15F3B2BF5662F27F49BF9F1A54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:E8DCF47DE3644C15F3B2BF5662F27F49BF9F1A54
 ```bash
 magnet:?xt=urn:btih:AA4F2E50D84089EB0E88F6F9174F4D143C3E8D72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:AA4F2E50D84089EB0E88F6F9174F4D143C3E8D72
 magnet:?xt=urn:btih:0A3C2FA97065A57A629DFC1E00369624AD8023A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:0A3C2FA97065A57A629DFC1E00369624AD8023A0
 ```bash
 magnet:?xt=urn:btih:235DFA65C51D3B61664B8692E5F3D5C842A6D13D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:235DFA65C51D3B61664B8692E5F3D5C842A6D13D
 magnet:?xt=urn:btih:DC91C0BDB357D78B0FDCAB12E345AA9766E13258
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +234,8 @@ magnet:?xt=urn:btih:DC91C0BDB357D78B0FDCAB12E345AA9766E13258
 magnet:?xt=urn:btih:DE06EDBD4DBA0CE69A77B28959FACCD1F06B87C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:DE06EDBD4DBA0CE69A77B28959FACCD1F06B87C1
 magnet:?xt=urn:btih:6AFCA30C105889C2EC17D704759AAA07549943D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:6AFCA30C105889C2EC17D704759AAA07549943D0
 ```bash
 magnet:?xt=urn:btih:19025AFF2DB638CEC82DE51E20200AEEC2774EA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +314,8 @@ magnet:?xt=urn:btih:19025AFF2DB638CEC82DE51E20200AEEC2774EA4
 magnet:?xt=urn:btih:C2C35527127B18E57110402CFBF5AB1623CB62C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +339,8 @@ magnet:?xt=urn:btih:C2C35527127B18E57110402CFBF5AB1623CB62C5
 ```bash
 magnet:?xt=urn:btih:06C12688CBBC36B638BE7B66D771A8065BD08969
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:06C12688CBBC36B638BE7B66D771A8065BD08969
 magnet:?xt=urn:btih:8E464BDD0851501E59157EE5F3E7B6A4DF67DAF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:8E464BDD0851501E59157EE5F3E7B6A4DF67DAF2
 ```bash
 magnet:?xt=urn:btih:F02213604A83671643EF143BDCE13793EE29902B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +419,8 @@ magnet:?xt=urn:btih:F02213604A83671643EF143BDCE13793EE29902B
 magnet:?xt=urn:btih:AF17A82396A489CB47882293F76A78C350A3BADE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:AF17A82396A489CB47882293F76A78C350A3BADE
 ```bash
 magnet:?xt=urn:btih:62782303503A7A62CC1A13B3E5C9101E73540BD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +472,8 @@ magnet:?xt=urn:btih:62782303503A7A62CC1A13B3E5C9101E73540BD6
 magnet:?xt=urn:btih:46985D6546A583654C413CB6CB61EA14C2430C01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:46985D6546A583654C413CB6CB61EA14C2430C01
 ```bash
 magnet:?xt=urn:btih:BDDC7AC8988629857CDC39A2098C8769DF567CDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +527,8 @@ magnet:?xt=urn:btih:BDDC7AC8988629857CDC39A2098C8769DF567CDF
 magnet:?xt=urn:btih:97B86BA6BB75B62316ACD4A30EB601239FA3DCEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +554,8 @@ magnet:?xt=urn:btih:97B86BA6BB75B62316ACD4A30EB601239FA3DCEC
 ```bash
 magnet:?xt=urn:btih:A04B4BFC92DED7E4097D69D73142B8F625FE7399
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +583,8 @@ magnet:?xt=urn:btih:A04B4BFC92DED7E4097D69D73142B8F625FE7399
 magnet:?xt=urn:btih:674B389757CC522D1B3FC59EDE6719B67E181E73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +608,8 @@ magnet:?xt=urn:btih:674B389757CC522D1B3FC59EDE6719B67E181E73
 ```bash
 magnet:?xt=urn:btih:F28D0697663F922B2CFF9CDB3B1DD565310866AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +635,8 @@ magnet:?xt=urn:btih:F28D0697663F922B2CFF9CDB3B1DD565310866AD
 magnet:?xt=urn:btih:4EC1CE38B4F3619E58C6CF270892A613845B345D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +660,8 @@ magnet:?xt=urn:btih:4EC1CE38B4F3619E58C6CF270892A613845B345D
 ```bash
 magnet:?xt=urn:btih:D78B2D67F21B88B2FC2A0014892C06BB8AA9C9EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,29 +687,7 @@ magnet:?xt=urn:btih:D78B2D67F21B88B2FC2A0014892C06BB8AA9C9EC
 magnet:?xt=urn:btih:EA3C3739AD8F3F2B2134A36A8F79791CB51D2E1F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602999   (1045859) от 08.01.2023
-
-Святитель Димитрий Ростовский | Руно Орошенное (2003) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Замечательное произведение свт. Димитрия, Ростовского чудотворца, написано по следам многочисленных чудесных исцелений, происшедших при образе Пресвятой Богородицы в черниговском Свято-Ильинском монастыре в XVII веке. Чудесам исцелений предшествовало появление слёз на иконе, что позволило автору сравнить это событие с ветхозаветным чудом, когда Божественная роса, (   Читать дальше...   )Жанр: ПравославиеЯзык: Русский + ЦерковнославянскийФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2625866C64C8358A5163DE7015C8AB4074A169E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Lunistice может заинтересовать тех, кто носталь�
 magnet:?xt=urn:btih:E27BF0557BB18B01E4917E8B0840FD0B58114C61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Project Lazarus является смесью упрощенного рогал�
 ```bash
 magnet:?xt=urn:btih:2F562182B2E62F823FB1FE856169FBE5FEB13842
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Space Tail: Every Journey Leads Home переносит юзеров в косм
 magnet:?xt=urn:btih:40139FDD271E55BC60E5C50E79AC6ADCD90CB32C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Song of Nunu: A League of Legends Story (2023) [Ru/Multi] (0.0.31/dlc) License G
 ```bash
 magnet:?xt=urn:btih:86815B64F39CAC5A95A3D61AF847E0A8C87387E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Overcooked возвращается с новой порцией безумно�
 magnet:?xt=urn:btih:12287F4DA5D4381080000E0F1507DE528CBE765E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The Smurfs 2 - The Prisoner of the Green Stone (2023) [Ru/Multi] (1.02.06/dlc) S
 ```bash
 magnet:?xt=urn:btih:54854C51DCAFF0AF5FABC1BA4944DFE39AA629C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Wildfire (2020) [Ru/Multi] (1.04.06) License GOG
 magnet:?xt=urn:btih:042D1F71324D382D7FCAFCDB2886E417B9BBB973
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Dead or Alive 6 — это новейший зрелищный трёхмерн�
 ```bash
 magnet:?xt=urn:btih:28663A5EC99C7FA903EB58B8E1118880A30D4899
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Hamster on Rails – приключение с хомяком-строителе
 magnet:?xt=urn:btih:664307A4AB81DBA4DECE9B459D4118ACEEF45B9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Elasto Mania Remastered представляет собой обновленну
 ```bash
 magnet:?xt=urn:btih:ACE59C410569F38084FC06BB7B888A5AD16F91AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Arkanoid - Eternal Battle (2022) [Ru/Multi] (1.1.24/dlc) License GOG
 magnet:?xt=urn:btih:852DEF8F740FED2D750E822974A8E90ABF649AFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Vladimir Putin Style (2019) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:1E9E9535D2C39CE5D3FDE5C943FBAAEA9142F177
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Faraday Protocol (2021) [Ru/Multi] (1.0.2) License GOG
 magnet:?xt=urn:btih:7943967A00D1155E4F6912C4D0F62EB5B55C5AAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Wavetale (2022) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B55C637DE12F3FFFD0B9981ABC3EC30FB9AF6253
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Wavetale (2022) [Ru/Multi] (1.0) License GOG
 magnet:?xt=urn:btih:AF0369654758B2A4C1E3C9DC0A7C7F4322A6A987
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Vengeance of Mr. Peppermint открывает перед игроком жес�
 ```bash
 magnet:?xt=urn:btih:21E7DFCC5DB4D8FE0027F9B0EB3EF030D1E843A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Thunder Tier One (2021) [Ru/Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:4E8E84D54268DE96F8AF2AAF6737459ECEEA6AEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Asterix & Obelix: Slap them All! (2021) [Multi] (1.0.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:32035E29BB0134B27F121B45A5458A777FA60C73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Harry Potter and the Chamber of Secrets / Гарри Поттер и Тайна�
 magnet:?xt=urn:btih:6AB447A5AFC8B004FDA90D8A0F77B9CE883F8DC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Trailmakers The Centrifuge (2019) [Ru/Multi] (1.0.4.30476) License CODEX
 ```bash
 magnet:?xt=urn:btih:E8A4DC84D34D2FE44EB1E0454F1B860F6300C624
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ NecroBouncer (2022) [Multi] (1.0.1) License GOG
 magnet:?xt=urn:btih:0E1113D74068382CDF6E25A649D112A331A25182
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ X-Force Under Attack возвращает все очарование стрел
 ```bash
 magnet:?xt=urn:btih:48DBB3A051F3BCC96BAA4BB08E7850741EBF3FFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Oddworld: Soulstorm (2021) [En] (1.162/dlc) License CODEX [Enhanced Edition]
 magnet:?xt=urn:btih:8BD4383D44554D5F56698E6671F61ACDE79F3CE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Fury Unleashed создан в сочетании вдохновения от с
 ```bash
 magnet:?xt=urn:btih:8D7BEF560326D9D8440245BBB55A481A8679AF5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ In Nightmare (2022) [Ru/Multi] (9999022) License FLT
 magnet:?xt=urn:btih:56D4F4028695B815049417656D828B2E52477F1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Grand Theft Auto: The Trilogy (2021) [Ru/Multi] (1.0.0.14718) License CODEX [The
 ```bash
 magnet:?xt=urn:btih:A98F3A9AEDF147E7B607C6DC14EBAEFDBC942BF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

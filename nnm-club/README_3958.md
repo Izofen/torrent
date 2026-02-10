@@ -19,6 +19,8 @@ Field of Glory II (2) (2017) [Multi] (1.6.10/dlc) License GOG
 magnet:?xt=urn:btih:AAA9D1CA03718B396FA3FA4373C37DC03DB78965
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:AAA9D1CA03718B396FA3FA4373C37DC03DB78965
 ```bash
 magnet:?xt=urn:btih:17159847FC7678F4A739DC808B8BEFD3F3E14948
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:17159847FC7678F4A739DC808B8BEFD3F3E14948
 magnet:?xt=urn:btih:AA9D574A1AA569E6B38DD7B7210C489153FA29F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:AA9D574A1AA569E6B38DD7B7210C489153FA29F5
 ```bash
 magnet:?xt=urn:btih:8E7E5B8E6E2F818827A56147F8811823E123C6C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:8E7E5B8E6E2F818827A56147F8811823E123C6C1
 magnet:?xt=urn:btih:479902610802F8E55A865B2DD91E52945A1593E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:479902610802F8E55A865B2DD91E52945A1593E6
 ```bash
 magnet:?xt=urn:btih:4405282674EB78011E9A36948B1D72E80B5DA003
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:4405282674EB78011E9A36948B1D72E80B5DA003
 magnet:?xt=urn:btih:7B6F3AB144DBB96F36790FE90694A1884BCF66BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:7B6F3AB144DBB96F36790FE90694A1884BCF66BC
 ```bash
 magnet:?xt=urn:btih:A19EF0C8CEF3916F660E56FFE58C3B06567DD90A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:A19EF0C8CEF3916F660E56FFE58C3B06567DD90A
 magnet:?xt=urn:btih:15156312402752F60C85B6BA2FE0BFD1011ECD3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ KingStation - универсальный фронтенд для множест�
 ```bash
 magnet:?xt=urn:btih:CF46B032C89C6B335D1A03D3809CE8BDB58C43A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ Warmen - Here For None (2023) [FLAC|Lossless|image + .cue] <Melodic Death, Power
 magnet:?xt=urn:btih:02EF8606580DA15120137C460B14872FF115BFFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ Eon Timer 2.9.11 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:82CA13B66ADA6B3D6136F84501C703BD1E16C5BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ Mimestream сочетает в себе мощь macOS с расширенным
 magnet:?xt=urn:btih:D6235DC3C796F76F20F63A08EB30E76EDCA4B951
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ SpamSieve 3.0.1 [En]
 ```bash
 magnet:?xt=urn:btih:2111311B5C035757972B288FA964AA12E8A193E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ The Fixed Trio - Talladega (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Roc
 magnet:?xt=urn:btih:65BD213F1A46D85F87CD1173520284213C352B7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ Travis Koester - Mister Travis (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:AF6C1703F80B14691CAEB9B37A5D4D5BDB78FADC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +456,8 @@ Varathron - The Crimson Temple (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal
 magnet:?xt=urn:btih:BD0611912538C771822DB710988DCCA12671634C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ Scavenger - Feral (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Prog, Doom>
 magnet:?xt=urn:btih:5D44E6800910EFEAF09F7B2A812B08200F547CD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 ```bash
 magnet:?xt=urn:btih:0564B5D25B0B656DB9EB995055A4B313143C8160
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ Soulver предназначен для «быстрой математики» 
 magnet:?xt=urn:btih:B1F6E40F31BC2474A3808809275D6D9CDA01FC8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ Dropshare - приложение строки меню для Drag & Drop заг
 magnet:?xt=urn:btih:F11926ABA2D7C63F7A1E67C93C993F54F693599C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ EasyGantt Classic  4.2.3 [En]
 ```bash
 magnet:?xt=urn:btih:D7FEA34F4B061B6351DCB8AE4CE3BF1FE82D0339
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +618,8 @@ iShowU Studio предоставляет эффективные инструме
 ```bash
 magnet:?xt=urn:btih:A17DDAE297C09E1D54639474B53A579594FAE63F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +647,8 @@ Serial Box & SerialSeeker 01-2024 [En]
 magnet:?xt=urn:btih:3D689C6A6F59CE5B90838FE317AFE9CCFF151DDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +674,8 @@ FxFactory Pro включает  фильтры, генераторы и пере
 magnet:?xt=urn:btih:C55C338F8990C724E99A628AF16AD2AAB34410B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ magnet:?xt=urn:btih:C55C338F8990C724E99A628AF16AD2AAB34410B6
 ```bash
 magnet:?xt=urn:btih:B911B5E252365F5BBFD24560F42BD39BF0B91261
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

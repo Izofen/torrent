@@ -22,6 +22,8 @@ Elton John, Brandi Carlile - Who Believes In Angels? (2025) [FLAC 24/96|Lossless
 magnet:?xt=urn:btih:4F1CC228D413A83354BACF1984D9CE42BC33528A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:4F1CC228D413A83354BACF1984D9CE42BC33528A
 ```bash
 magnet:?xt=urn:btih:DA1BE853A2E5573C2E131786761305E83FE6C75A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:DA1BE853A2E5573C2E131786761305E83FE6C75A
 magnet:?xt=urn:btih:2E448928626678D9147827F6C9B2F08449031954
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:2E448928626678D9147827F6C9B2F08449031954
 ```bash
 magnet:?xt=urn:btih:329E735C54BC3C96200A1BE8BCBA59EB961AB01F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Haddaway - The Album (1993) Remastered, 2025, Craft Recordings [FLAC 24/48|Lossl
 magnet:?xt=urn:btih:F8A02C8B4C2B280C4387FB9A0B450BB1C5BCF007
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ StaxRip - инструмент для кодирования видео "все-
 ```bash
 magnet:?xt=urn:btih:92BF32355987288B501C42117EB9CFA8601A35D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ VA - 40 Jahre Disco - Disco Glitter (2011) 2 CD [OGG Vorbis|480 Kbps] <Pop, Hard
 magnet:?xt=urn:btih:0A95F3A574108D912C81125320399978949FEE31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:0A95F3A574108D912C81125320399978949FEE31
 ```bash
 magnet:?xt=urn:btih:C4A774E962FF22E163BBE44E53F6508184E0BB9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ L.A. Guns - Leopard Skin (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam>
 magnet:?xt=urn:btih:9914D995102A97EC65FB411AF5EC1D6425CE9336
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ FolderSizes 9.7.515 Enterprise [En]
 ```bash
 magnet:?xt=urn:btih:428CC0E03A3BD7818E704F3CE488F6F3C3F5BCC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ Primal Scream - Come Ahead: The Remixes Vol 1 (2024) Vocals, 2025, BMG[FLAC 24/9
 magnet:?xt=urn:btih:F769267CE3072A7EACDEA4FC8C5AA658D11D87F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:F769267CE3072A7EACDEA4FC8C5AA658D11D87F7
 ```bash
 magnet:?xt=urn:btih:FE72BEBC782806FF6EF1F14B80CCA6FF14C1F98D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ KineMaster - Video Editor & Maker v7.6.6.34564.GP Mod by Shadow_Patcher [Ru/Mult
 magnet:?xt=urn:btih:7C3720403F8E571EF55505F5E6399B77EA7AED03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:7C3720403F8E571EF55505F5E6399B77EA7AED03
 ```bash
 magnet:?xt=urn:btih:DD450E7D373E69C6D2A435D4029755E143C88A4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:DD450E7D373E69C6D2A435D4029755E143C88A4E
 magnet:?xt=urn:btih:2CD68E69B23BF2506B13D2796230816898B0BA40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:2CD68E69B23BF2506B13D2796230816898B0BA40
 ```bash
 magnet:?xt=urn:btih:E5CA35E9801702EF3F13D57DB557C2E99A5B8464
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ magnet:?xt=urn:btih:E5CA35E9801702EF3F13D57DB557C2E99A5B8464
 magnet:?xt=urn:btih:4C660496AA17C27A900C81F57205B35560CBCF7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ MediaHuman YouTube Downloader 3.9.9.99 (0604) RePack (& Portable) by Dodakaedr [
 ```bash
 magnet:?xt=urn:btih:54970F2B5037D35C0229B38903263D829137D79B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ Extreme Picture Finder - средство для автоматического 
 magnet:?xt=urn:btih:90B2B2B1101C68E0B7F60B959F002123EA4B153B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ Nageki no Bourei wa Intai Shitai | Let This Grieving Soul Retire! | Плачущ
 magnet:?xt=urn:btih:F510045FC8C03F98AEE4D9127A7167717CF49A8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:F510045FC8C03F98AEE4D9127A7167717CF49A8C
 ```bash
 magnet:?xt=urn:btih:515FE910D123FBCA55FFBD2F6A18E9C466DE051B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ VA - Covers Rock Bangers (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:CCF9CC2E8E2A691948737112FB881EAE726D7177
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ magnet:?xt=urn:btih:CCF9CC2E8E2A691948737112FB881EAE726D7177
 ```bash
 magnet:?xt=urn:btih:26A82A1236EEB42FD7B6B5583893C0990845ACC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +636,8 @@ Allegaeon — американская экстремальная метал-г�
 magnet:?xt=urn:btih:7A0A48FCC57FDA4CC2F8E7D7EEF055B54C040C5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ O&O DiskImage Professional позволяет создавать резервн�
 magnet:?xt=urn:btih:0DD8733E14F2CE66767EF7D440D92E4D092DDC0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ InColor: Coloring & Drawing v6.5.4 Mod by PieMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3FD437CAF641765CE12B8FD4D23DD7C1529EF5EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

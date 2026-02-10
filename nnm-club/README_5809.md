@@ -21,6 +21,8 @@ RisohEditor позволяет добавлять, редактировать, �
 magnet:?xt=urn:btih:0C128E25155A3090E8016D8B2A9906B813D67B84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Drovnin (Юрий Дровнин) - Vintage Circus Heroes (2022) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:8A22DF938B2CE4D2D49F62366912E33F07AC24D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ Ellefson-Soto - Vacation In The Underworld (2022) [FLAC|Lossless|image + .cue] <
 magnet:?xt=urn:btih:B0A93981317AB6AED6062D181E74B732178640F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:B0A93981317AB6AED6062D181E74B732178640F2
 ```bash
 magnet:?xt=urn:btih:F60B452CB188F675DD0080EB2BB71DDA75EB2488
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ Amethystium - Shadow to Light (Compilation) (2020) [MP3|320 Kbps] <Electronic, N
 magnet:?xt=urn:btih:C1BF3BDAF804C0283B6A5095A39A5D07D096473F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:C1BF3BDAF804C0283B6A5095A39A5D07D096473F
 ```bash
 magnet:?xt=urn:btih:51134A487A55056CAA523337C31F7E7D8FD8236A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:51134A487A55056CAA523337C31F7E7D8FD8236A
 magnet:?xt=urn:btih:06FFBEF4A8400CE805004DF597DE655635AAAACE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:06FFBEF4A8400CE805004DF597DE655635AAAACE
 magnet:?xt=urn:btih:871EE76F4A8EB32EA5E8CD6276C91A3CE1B82684
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:871EE76F4A8EB32EA5E8CD6276C91A3CE1B82684
 ```bash
 magnet:?xt=urn:btih:FEE5BF740CBB34D8DBC0E87CD3DB01D70809986C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:FEE5BF740CBB34D8DBC0E87CD3DB01D70809986C
 magnet:?xt=urn:btih:77FDC31FF87DC01732CAE675BAC435EA35BD552F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ eM Client - отличный почтовый клиент с возможнос
 ```bash
 magnet:?xt=urn:btih:708E8970CB624DDD55F6D70C4876DE333E9D97A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ Art Text - красивое текстовое приложение под Mac O
 magnet:?xt=urn:btih:F960CE03B9696C95DD62F4D367768F0001577E93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ Task Office 8.6 [Multi]
 ```bash
 magnet:?xt=urn:btih:0CA13DA0E1EC0EBBE6FB0951FADEF1985F1D7971
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ Microsoft Visual Studio 2019 Professional 16.8.1 (Offline Cache, Unofficial) [Ru
 ```bash
 magnet:?xt=urn:btih:3C71AA8B8D0B3C31EBD52EBAB51AADFC702A97C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ Rainbow - Osaka Live (1978) Broudcast, 2023, Leftfield media [MP3|320 Kbps] <Har
 magnet:?xt=urn:btih:6DF68D6C52EC844AA5AA014F7A151850BE133508
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ TapinRadio - интернет радио от компании RaimerSoft (ра�
 magnet:?xt=urn:btih:AA10474FACE30A82E274E6629942FB21A8594E1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:AA10474FACE30A82E274E6629942FB21A8594E1D
 ```bash
 magnet:?xt=urn:btih:785BDCB69D98416676E298A8D9CD95FD6D73C461
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:785BDCB69D98416676E298A8D9CD95FD6D73C461
 magnet:?xt=urn:btih:0EDEA79956DF610319BEB5E7AA5B100C4DC7E825
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ magnet:?xt=urn:btih:0EDEA79956DF610319BEB5E7AA5B100C4DC7E825
 ```bash
 magnet:?xt=urn:btih:AE9DE438D4EB5F9975F3E5A40DFD0D32EDB6FE8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ Gothminister - Empire Of Dark Salvation (2005) [FLAC|Lossless|image + .cue] <Ind
 magnet:?xt=urn:btih:8571E6F8371669CF1BA8CEC46B7C9C8D2BBDCB5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 magnet:?xt=urn:btih:434346141A85AFA9593758ACD4F3FADFD0054E7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +587,8 @@ magnet:?xt=urn:btih:434346141A85AFA9593758ACD4F3FADFD0054E7A
 ```bash
 magnet:?xt=urn:btih:02814698F06D5E9F23D178B7DCD29E071FCC04B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +615,8 @@ magnet:?xt=urn:btih:02814698F06D5E9F23D178B7DCD29E071FCC04B6
 magnet:?xt=urn:btih:5D5E243A596D1B4B8339ECCDD5CB5723D5FEF655
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +640,8 @@ magnet:?xt=urn:btih:5D5E243A596D1B4B8339ECCDD5CB5723D5FEF655
 ```bash
 magnet:?xt=urn:btih:A9E50C79EB8C7DBF12B22B5583EE4219C1B217C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +668,8 @@ magnet:?xt=urn:btih:A9E50C79EB8C7DBF12B22B5583EE4219C1B217C1
 magnet:?xt=urn:btih:5A5D7F7753FFB98399F5E0EBE92CF5C22144A693
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ Icecream Ebook Reader - программа для чтения электрон�
 ```bash
 magnet:?xt=urn:btih:B4C6704B3BEFAC0313907E59D7774DEF22F17873
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

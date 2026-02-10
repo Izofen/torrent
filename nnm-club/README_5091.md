@@ -22,6 +22,8 @@ The Temptations - Give Love At Christmas (1980) [FLAC|Lossless|WEB-DL|tracks] <R
 magnet:?xt=urn:btih:3C686531BE685CD5CDFD80C09644DC20343CFE6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:3C686531BE685CD5CDFD80C09644DC20343CFE6F
 ```bash
 magnet:?xt=urn:btih:082AB70F105E37A5242128A56B20F712F6FA727F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ BROCKHAMPTON - Iridescence (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Hardco
 magnet:?xt=urn:btih:29500CEDB9DD84D226252F5789A4E6DEE3226851
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:29500CEDB9DD84D226252F5789A4E6DEE3226851
 magnet:?xt=urn:btih:6FE981976BBE1709B8EFFAE8500755454C27F266
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:6FE981976BBE1709B8EFFAE8500755454C27F266
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Mike Shinoda - Post Traumatic (2019) Deluxe Version, RE. [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:850FA73531F296392ACF9F8D9F22397C72B6743D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ The Beatles в Индии / The Beatles and India (2021) HDTVRip [H.264/720p]
 ```bash
 magnet:?xt=urn:btih:F1590B2EA3CE63DE48E26465CA268224B7D47DE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:F1590B2EA3CE63DE48E26465CA268224B7D47DE4
 ```bash
 magnet:?xt=urn:btih:C8F2E1D620BC8C9EB046428012B35EFFC74DCF81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ Gregorian - Pure Chants (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age,  Ambient,
 magnet:?xt=urn:btih:F4B91E72C693393FD644C7BEE0E1FF0380518F4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:F4B91E72C693393FD644C7BEE0E1FF0380518F4A
 magnet:?xt=urn:btih:D240AC52B9EBD649E860CF59A0A1C20E0E504D14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:D240AC52B9EBD649E860CF59A0A1C20E0E504D14
 magnet:?xt=urn:btih:EDFBFA5E60B6C3D2AF9C254443BBFB7E0D55FB24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:EDFBFA5E60B6C3D2AF9C254443BBFB7E0D55FB24
 ```bash
 magnet:?xt=urn:btih:9DB1E9C9B4EE85F007906CF47F2A4DB6D9AD17E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ Daniel Roeth & Koan - Nothing, Nobody, Never (2018) Blue Tunes Chillout [FLAC|Lo
 magnet:?xt=urn:btih:1E90E3F0DCD57E641C14783E23E7571B9A2C41D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:1E90E3F0DCD57E641C14783E23E7571B9A2C41D3
 ```bash
 magnet:?xt=urn:btih:E21706B2D2308CCAE94E363049E4644063ED47FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +405,8 @@ VA - Dancehall Dirty Beats (2018) [MP3|320 Kbps] <Dancehall, Dance, Latin>
 magnet:?xt=urn:btih:A8E15EA90A82BD4A0065B8CECC7114187D0A3737
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ magnet:?xt=urn:btih:A8E15EA90A82BD4A0065B8CECC7114187D0A3737
 ```bash
 magnet:?xt=urn:btih:335760A264400DB39CF98069ACE4274CCD3289F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +461,8 @@ VA - German Top 50 Official Dance Charts 14.12.2018 (2018) [MP3|320 Kbps] <Dance
 magnet:?xt=urn:btih:2288DC3EAB5CE3994CFC9A62D2D9263CCEBCC310
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ WinAutomation 3.1.6.676 [En]
 ```bash
 magnet:?xt=urn:btih:D6E9F82E6A2B532DE9BB948082F63F1D566ECE68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +513,8 @@ magnet:?xt=urn:btih:D6E9F82E6A2B532DE9BB948082F63F1D566ECE68
 magnet:?xt=urn:btih:9BCDB74B3A269331B72C36FBEB014E7F91FC5E1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ Empire - популярнейший ежемесячный журнал о ки�
 magnet:?xt=urn:btih:9952EAA01F6E06AAF60C5330EF146D95F8FBF0E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ magnet:?xt=urn:btih:9952EAA01F6E06AAF60C5330EF146D95F8FBF0E4
 ```bash
 magnet:?xt=urn:btih:FA1C5C804F65C1037B44A45F687A5A21C15ED32C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +594,8 @@ Koan - Esbat: Exilio (2019) Blue Tunes Chillout [FLAC|Lossless|WEB-DL|tracks] <E
 magnet:?xt=urn:btih:46033623F3C9C9431FA305C973AB4806EEFBAA86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +619,8 @@ magnet:?xt=urn:btih:46033623F3C9C9431FA305C973AB4806EEFBAA86
 ```bash
 magnet:?xt=urn:btih:EE4338F6EBD29967C2DB64CBB85A36D11EECED44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +646,8 @@ magnet:?xt=urn:btih:EE4338F6EBD29967C2DB64CBB85A36D11EECED44
 magnet:?xt=urn:btih:CA43571906636C8587036E0C9A6B18CA4075B50F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +672,8 @@ Calibre - простая и удобная программа для управ�
 magnet:?xt=urn:btih:292FF5D1C6611C77250839ADA5462F5E8AFBD444
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ magnet:?xt=urn:btih:292FF5D1C6611C77250839ADA5462F5E8AFBD444
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

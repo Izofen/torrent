@@ -1,3 +1,29 @@
+###  Публикация: 889602   (748001) от 18.04.2015
+
+Андрей Макаров | Величайшие актеры России и СССР (2013) [EPUB, RTF]
+
+>>Разное (категория книг)
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга не претендует на статус некоего объективного официального рейтинга киноактеров страны. Создавая ее, мы опирались, прежде всего, не на количество наград, не на суммы актерских гонораров и заработков от проката фильмов. И даже не на известность актеров в мировых масштабах. Здесь собраны те звезды кино, которые приобрели наибольшую известность и популярность именно у нашего зрителя. Если вы любите и часто смотрите кино, то практически не встретите на страницах незнакомых лиц. Напротив: каждый из этих (   Читать дальше...   )Жанр: Биография, мемуарыФормат: EPUB, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B22C1A2083B09EEF549A27C3CF807566E83FCEF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019813   (748076) от 24.05.2016
 
 Джон Кампфнер | Богачи. Фараоны, магнаты, шейхи, олигархи (2016) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:3D91CD3E4E900B0764CE0C189A26C667BD591B7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:3D91CD3E4E900B0764CE0C189A26C667BD591B7D
 magnet:?xt=urn:btih:82439215782B040540D1A90E5C96D3A605118100
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:82439215782B040540D1A90E5C96D3A605118100
 magnet:?xt=urn:btih:2B3F4C89AD5822AB9DE233E6D29BFE95CF69E95A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:2B3F4C89AD5822AB9DE233E6D29BFE95CF69E95A
 ```bash
 magnet:?xt=urn:btih:1C1FC252051C7F96788E6A96869319CA1D0B00D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:1C1FC252051C7F96788E6A96869319CA1D0B00D6
 magnet:?xt=urn:btih:848ED930D3BF409D3416FFC75097C989C12C5031
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:848ED930D3BF409D3416FFC75097C989C12C5031
 ```bash
 magnet:?xt=urn:btih:D523A7763DF7AE74EF22C227A08F5F02D27384BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:D523A7763DF7AE74EF22C227A08F5F02D27384BA
 magnet:?xt=urn:btih:A4923B6DEEBDAF677120E4AE204A6EB4F08DBECD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:A4923B6DEEBDAF677120E4AE204A6EB4F08DBECD
 ```bash
 magnet:?xt=urn:btih:BC9F1E4CFB4CADDF7D78AF003667E77727F0BCF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:BC9F1E4CFB4CADDF7D78AF003667E77727F0BCF5
 magnet:?xt=urn:btih:E5BC321A7A676D36E4F946B29F69E70DD4A7C7D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:E5BC321A7A676D36E4F946B29F69E70DD4A7C7D8
 ```bash
 magnet:?xt=urn:btih:8F7AB0BAC09E04F8EC9F586F3F701B6233ED3EB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:8F7AB0BAC09E04F8EC9F586F3F701B6233ED3EB1
 magnet:?xt=urn:btih:2F1F702CD25DC1924AFD26D70FCB2E5E59C5FAA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:2F1F702CD25DC1924AFD26D70FCB2E5E59C5FAA7
 magnet:?xt=urn:btih:6A32B04CFCC11FCCC798AD60C51B7D5F6B7DE1FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:6A32B04CFCC11FCCC798AD60C51B7D5F6B7DE1FC
 ```bash
 magnet:?xt=urn:btih:9FC27B0EF0959D8159BB20F562F9885522D7B68E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:9FC27B0EF0959D8159BB20F562F9885522D7B68E
 magnet:?xt=urn:btih:DFC36F14301BA7219E15560665C0BD70B016891D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:DFC36F14301BA7219E15560665C0BD70B016891D
 ```bash
 magnet:?xt=urn:btih:95805F2955BCC53009BB723C62BECD010081F5F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:95805F2955BCC53009BB723C62BECD010081F5F7
 magnet:?xt=urn:btih:CE0CE9BA9C569FE0D8C9F375FC45760FABF167BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:CE0CE9BA9C569FE0D8C9F375FC45760FABF167BD
 ```bash
 magnet:?xt=urn:btih:135E5CA0C90DE7516F09C204D96EFCBF9C966C4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:135E5CA0C90DE7516F09C204D96EFCBF9C966C4F
 magnet:?xt=urn:btih:088B3E7EED9F5C553D2AF6C2F4C19B8F0B622E63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:088B3E7EED9F5C553D2AF6C2F4C19B8F0B622E63
 magnet:?xt=urn:btih:2FC27CCF6428CB19F37CF9A0B9824788BAAAD595
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:2FC27CCF6428CB19F37CF9A0B9824788BAAAD595
 ```bash
 magnet:?xt=urn:btih:875B8E80F3E17E18A34DC358A8A4C17E2BCCDE9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:875B8E80F3E17E18A34DC358A8A4C17E2BCCDE9C
 magnet:?xt=urn:btih:3A30B9597B3C6DAB3D54E58508BC0F640E7293FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:3A30B9597B3C6DAB3D54E58508BC0F640E7293FA
 ```bash
 magnet:?xt=urn:btih:09D24AF840DD66073C62E51690BE9BC835AE0AA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:09D24AF840DD66073C62E51690BE9BC835AE0AA2
 magnet:?xt=urn:btih:7887F5FB6C8095E763D96C987A8AA6969CDFEF1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:7887F5FB6C8095E763D96C987A8AA6969CDFEF1E
 ```bash
 magnet:?xt=urn:btih:D73DAC1D6C81DF10D3F6F7E8377CB4F1EF45ED52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,32 +678,7 @@ magnet:?xt=urn:btih:D73DAC1D6C81DF10D3F6F7E8377CB4F1EF45ED52
 magnet:?xt=urn:btih:524C8BBDE2179E1BDA406812638334C9A3CC4791
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396074   (749933) от 13.07.2020
-
-Захар Прилепин | Имя рек. 40 причин поспорить о главном (2020) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749933.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Быть может, у меня ничего не получилось, но я так не думаю.
-Перед вами – итоги моих болезненных размышлений о нашем с вами Отечестве.
-Чтоб понять, кто мы и зачем, нужно было заново пересобрать все представления, и я бережно, с тщанием ребёнка, пересобрал.
-В какой точке бытия находимся мы и куда следуем. Что есть Родина. Какое отношение мы имеем к Древней Руси. Насколько (   Читать дальше...   )Жанр: ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B249EC0BD94EE05646B68EBB6A7FCB617DE9107B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

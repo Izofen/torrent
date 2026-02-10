@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:F97F2B5AE33A91524A91F15F8F8D6866496858BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ KitchenTimer v4.5.2 [Ru/Multi]
 magnet:?xt=urn:btih:39ECB7190BF988FE1043D015350BB922400CA8DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ TorrServe — приложение для скачивания торренто�
 ```bash
 magnet:?xt=urn:btih:5CB8479A9DC095D3D97B03C0153249E43923822F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ bimmer-tool позволяет читать и удалять коды неис�
 magnet:?xt=urn:btih:7EDEA0CB192425B1BCF35F03F821F4CE426D5D60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ AlfaOBD v2.2.5.0 [Ru/Multi]
 magnet:?xt=urn:btih:B171EF5D7701E6E9F30F455F6BFF4687D6B75FC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ MotoScan обеспечивает профессиональную диагно�
 ```bash
 magnet:?xt=urn:btih:E51B5B6DF2507784A0F6A9DC72997CAA23882673
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:E51B5B6DF2507784A0F6A9DC72997CAA23882673
 magnet:?xt=urn:btih:1295D5173F54A6CF9E439FCCBDA9E63479FC7036
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Guitartab является просмотрщиком / проигрывател
 magnet:?xt=urn:btih:156210B8FEED9D3C97521AEC12D722BDB13B2349
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ nzb360 - это полнофункциональный NZB / торрент-ме
 ```bash
 magnet:?xt=urn:btih:0FBD0CEF0DD18F9B85835467CD609C0774E52D19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ USSDDualWidgetPro v1.0.31 [Ru]
 magnet:?xt=urn:btih:37611EA8423C2EC51116EF45B85A5E434C5590CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Easy Poser – это приложение, которое сумеет реал
 ```bash
 magnet:?xt=urn:btih:37A7AEB6E784759EB09E83104BF32237FCD53802
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ KidsControl / Cемейный GPS трекер v5.2.14 [Ru/Multi] (обновл�
 magnet:?xt=urn:btih:8E0063BA2B6E5B122A26D06240403D5B31774871
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ NumoTrend (NUM + KinoTrend) v2.1.5 [Ru]
 ```bash
 magnet:?xt=urn:btih:361146A250208707029785A265A96F6019773795
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ Lichess 5.5.0 [Ru/Multi]
 magnet:?xt=urn:btih:F59DDEFAF91EFE7F69B5F7481FB4900870C6CEFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ RepliGo Reader – удобная и быстрая PDF читалка для а
 ```bash
 magnet:?xt=urn:btih:7B6A5E4EFA2A34C252382BDACED206A7B186CDF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ Track24.ru 1.95 (Lite Mod) [Ru/Eng]
 magnet:?xt=urn:btih:A2B1EC4A2D2CE1563622FEFC78562D9C2BECEC18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Video Converter Android 2 v3.2.5 Premium [En/Rus] - видео и аудио к�
 ```bash
 magnet:?xt=urn:btih:A584F3116F16CE9C010F3F3084B81B9701523EF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:A584F3116F16CE9C010F3F3084B81B9701523EF6
 magnet:?xt=urn:btih:551D61532E3E26337F6DC199AEBCD22216126E20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:551D61532E3E26337F6DC199AEBCD22216126E20
 ```bash
 magnet:?xt=urn:btih:D420D06149AE4C0EE7FABBB748456A60D2DAEEE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:D420D06149AE4C0EE7FABBB748456A60D2DAEEE7
 magnet:?xt=urn:btih:745CD86670F1CC815AE913F2A8D04151A6A6EEBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:745CD86670F1CC815AE913F2A8D04151A6A6EEBB
 ```bash
 magnet:?xt=urn:btih:188837523EF3E3BCBAA7B1668D1B7D4BC8E84C8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ Weawow — это погодное приложение, дополненное 
 magnet:?xt=urn:btih:9E661D505CA8E9E1E374A62868B2DED9675858BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Greenify v4.7.5 [Ru/Multi]
 magnet:?xt=urn:btih:ACAD30D999DEE501E0DD7DE930AE490A8F6C644C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ Subway Surfers - игра из жанра раннер для андроид. в
 ```bash
 magnet:?xt=urn:btih:73D67450A04772766585C13FD9767BBBCD13BF19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ magnet:?xt=urn:btih:73D67450A04772766585C13FD9767BBBCD13BF19
 magnet:?xt=urn:btih:EF1E53DF5AA96F79E1DF41578710310F8E80343C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ VirusTotal Mobile дает возможность проверить все ус
 ```bash
 magnet:?xt=urn:btih:3F43CB7786AF18D72E64BF21F557FFF453B06BE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

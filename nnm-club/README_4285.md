@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:E5A6F0E50044B5EE50B39BA815BC08F289425BE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ MeeSoft Diagram Designer - простой бесплатный векторны�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ MeeSoft Diagram Designer - простой бесплатный векторны�
 magnet:?xt=urn:btih:A24D79ABC01AB90C29D41C8FE3E72D1D25FC1FBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:A24D79ABC01AB90C29D41C8FE3E72D1D25FC1FBA
 ```bash
 magnet:?xt=urn:btih:5D44E48E06EF46969B2D840E00154349BA64B3DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:5D44E48E06EF46969B2D840E00154349BA64B3DB
 magnet:?xt=urn:btih:ABDC76C78501C72B93519F317A79281E9AAACC2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:ABDC76C78501C72B93519F317A79281E9AAACC2E
 ```bash
 magnet:?xt=urn:btih:15E250A876B4DF95FA8D2EC799A472EB18EF0641
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Udemy, Markos Resvanis | Unreal Engine 5 Visual Novel and Narrative Game Design 
 ```bash
 magnet:?xt=urn:btih:79BE45C40CE8F9993A92F7389A3B8D5D517B9735
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ Globus - Epicon (2006) [APE|Lossless]<New Age, Epic Music>
 magnet:?xt=urn:btih:BB572E4C948D53646BA995D80048E476B5E7A913
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:BB572E4C948D53646BA995D80048E476B5E7A913
 ```bash
 magnet:?xt=urn:btih:5F7AEAC44F7F109E1487D320C2B4F875AF8D8EEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ magnet:?xt=urn:btih:5F7AEAC44F7F109E1487D320C2B4F875AF8D8EEF
 magnet:?xt=urn:btih:5CA64DD4E994B633CF6B249286CD888E212C1679
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:5CA64DD4E994B633CF6B249286CD888E212C1679
 ```bash
 magnet:?xt=urn:btih:D43DBE08516EBEDC402CF13A208CA37D09609084
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ magnet:?xt=urn:btih:D43DBE08516EBEDC402CF13A208CA37D09609084
 ```bash
 magnet:?xt=urn:btih:47624ACF3DF0A3A8ED9DE524B554CCB3ADB067E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +352,8 @@ VA - Disneys Greatest Hits (3CD) (2005) [MP3|320 кб/с]<Soundtrack>
 magnet:?xt=urn:btih:92D3C44B2C148DF90CCB2DDE86B74FF9398E3486
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +381,8 @@ Office 2013-2024 C2R Install + Lite 7.7.7.2 ++ Portable by Ratiborus [Multi/Ru]
 magnet:?xt=urn:btih:23D924D6F193ECFC4396964B5D4299FB40114B9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +408,8 @@ magnet:?xt=urn:btih:23D924D6F193ECFC4396964B5D4299FB40114B9E
 ```bash
 magnet:?xt=urn:btih:D81951171732FB1067F764C1F652DEDFE640E277
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +437,8 @@ magnet:?xt=urn:btih:D81951171732FB1067F764C1F652DEDFE640E277
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +463,8 @@ magnet:?xt=urn:btih:D81951171732FB1067F764C1F652DEDFE640E277
 magnet:?xt=urn:btih:003D174C128964197AF4B62B97835DB9F4977B5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ magnet:?xt=urn:btih:003D174C128964197AF4B62B97835DB9F4977B5B
 ```bash
 magnet:?xt=urn:btih:F96840165C5840C6FF41B8ADEE80A9D42876A129
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +518,8 @@ TinyML – технология, призванная расширить исп�
 magnet:?xt=urn:btih:1A6490AA0D1B85C8E6A01026BA32ED2024458C6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +543,8 @@ magnet:?xt=urn:btih:1A6490AA0D1B85C8E6A01026BA32ED2024458C6A
 ```bash
 magnet:?xt=urn:btih:8F412FD2C22FB28D5457C2C5E1781C39BE57DADF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +570,8 @@ magnet:?xt=urn:btih:8F412FD2C22FB28D5457C2C5E1781C39BE57DADF
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +596,8 @@ magnet:?xt=urn:btih:8F412FD2C22FB28D5457C2C5E1781C39BE57DADF
 magnet:?xt=urn:btih:67F0B9DC618AA1B4ACDD0C76D57A837E4017326E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +621,8 @@ magnet:?xt=urn:btih:67F0B9DC618AA1B4ACDD0C76D57A837E4017326E
 ```bash
 magnet:?xt=urn:btih:45ED13DB98177CE5F352CB212B11F0BCE158B704
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +651,8 @@ Office 2013-2024 C2R Install + Lite 7.7.7.1 ++ Portable by Ratiborus [Multi/Ru]
 magnet:?xt=urn:btih:4122062AFFED5294D872C14426316AC8CCB29569
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +676,8 @@ K-Lite Codec Pack - в различных вариантах содержит в
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +703,8 @@ K-Lite Codec Pack - в различных вариантах содержит в
 ```bash
 magnet:?xt=urn:btih:789F3C0D021AF0D320A782F83F1CDD3E753A76F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

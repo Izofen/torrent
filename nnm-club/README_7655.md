@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:0BC6489AFDA7BD6EDEA4372B98DF870849F7AB6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Icecream Photo Editor - это приложение, позволяющее по
 ```bash
 magnet:?xt=urn:btih:CF35FC821A2CA9B1D6D783D44E0B2CE320A64F2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ Veilburner - The Obscene Rite (2016) [FLAC|Lossless|WEB-DL|tracks] <Black, Death
 magnet:?xt=urn:btih:844CC3BDFE969B0D051883ADFE7D0D004D7603B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:844CC3BDFE969B0D051883ADFE7D0D004D7603B2
 magnet:?xt=urn:btih:7C7B4271BD642E4ACD414D6555BA788B0F80DE4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:7C7B4271BD642E4ACD414D6555BA788B0F80DE4E
 ```bash
 magnet:?xt=urn:btih:BE1D4B224A5A1964CCA155B12718AC69795D808B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:BE1D4B224A5A1964CCA155B12718AC69795D808B
 magnet:?xt=urn:btih:558AEFBE67C068CBFD49C3F5FC1BA4D69910A9E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:558AEFBE67C068CBFD49C3F5FC1BA4D69910A9E1
 ```bash
 magnet:?xt=urn:btih:857414A53A80BD8F9C7919568788DD088A404F29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ Al Staehely - Somewhere in West Texas (2023) [FLAC|Lossless|WEB-DL|tracks] <Blue
 magnet:?xt=urn:btih:CB1B3892CC55B0ECC742C3FED9475C291E74E31C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:CB1B3892CC55B0ECC742C3FED9475C291E74E31C
 ```bash
 magnet:?xt=urn:btih:8DB342B63FCE4F7BFFD36B31DD9206C7D04E41F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:8DB342B63FCE4F7BFFD36B31DD9206C7D04E41F0
 magnet:?xt=urn:btih:8FB96009F7C85AA84DB3A53A6A70AE4F3C3740C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:8FB96009F7C85AA84DB3A53A6A70AE4F3C3740C4
 ```bash
 magnet:?xt=urn:btih:191F5B2E750CD4C7F064D206387A2D0D74B0B2E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ Khalil Turk & Friends - Turkish Delight - Volume 2 (2023) [FLAC|Lossless|WEB-DL|
 magnet:?xt=urn:btih:8300BB19C38941759E1DC66A93F50D01565E76E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:8300BB19C38941759E1DC66A93F50D01565E76E1
 ```bash
 magnet:?xt=urn:btih:93532A6F7DC9F0EFFBA4EBCC55AAD6FF56ACC35C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ RTG. Парашютный спорт. Жемчужины России (2013) HDT
 magnet:?xt=urn:btih:667EDBB5DC3A9FDDF2E125417A76C15E0D151B20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:667EDBB5DC3A9FDDF2E125417A76C15E0D151B20
 ```bash
 magnet:?xt=urn:btih:40CF19EFDB4FD269B548F22424C60071A1D78F5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:40CF19EFDB4FD269B548F22424C60071A1D78F5D
 magnet:?xt=urn:btih:5547ED19ED42AB0CD0B86E227C7D995E9F69D89B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:5547ED19ED42AB0CD0B86E227C7D995E9F69D89B
 magnet:?xt=urn:btih:EF7558A67B3498C3F1ECDBF5682F2921DA6DAB34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:EF7558A67B3498C3F1ECDBF5682F2921DA6DAB34
 ```bash
 magnet:?xt=urn:btih:EA008CC784BF7229F013EFC2996B692F84ECFC0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ Eddie Gomez - Per Sempre (2009) 2012, BFM Jazz [FLAC|Lossless|tracks + .cue] <Po
 magnet:?xt=urn:btih:50574E3463677E1467811A1E491C50F063B34440
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:96DC03A718F5AE22703AB4D41370E1578D620C58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +557,8 @@ Sacrilegious Impalement - IV - Infinite Victor (2023) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:E66C8DCB2121186D9BF1BEDAB324A8DFA1B40B6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ FireAlpaca - это достаточно простой, но удобный г�
 ```bash
 magnet:?xt=urn:btih:DAD7C72416DFC1F3B7A3790AC728E112182CFB8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:DAD7C72416DFC1F3B7A3790AC728E112182CFB8F
 magnet:?xt=urn:btih:DB24D15657FF045A1EA321C7D80296988931A9D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ magnet:?xt=urn:btih:DB24D15657FF045A1EA321C7D80296988931A9D7
 ```bash
 magnet:?xt=urn:btih:2E994DD42FA7F7076581695C4CE04167C49B51E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +661,8 @@ magnet:?xt=urn:btih:2E994DD42FA7F7076581695C4CE04167C49B51E0
 magnet:?xt=urn:btih:3E3BF23D876BF5B10F4F7C8BFFEB12F8A66B53C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ magnet:?xt=urn:btih:3E3BF23D876BF5B10F4F7C8BFFEB12F8A66B53C4
 ```bash
 magnet:?xt=urn:btih:D7B19FB8D038274F7AC9A147A8DD7B89F1A362FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Visual Studio 2022 Professional представляет собой универ
 magnet:?xt=urn:btih:71BBB5C9A20A78E4B8B26E5B4BC02BD24F94137F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Opera One 117.0.5408.154 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:62E3A04638C6BB6F9717400A5FF4D52978B205BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Attribute Changer - простенькая утилита для удобног�
 magnet:?xt=urn:btih:3D626C4FDFF4BF0C2ED0F7BDB30BC1BED698F620
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ MediaHuman YouTube to MP3 Converter 3.9.9.98 (2503) RePack (& Portable) by elchu
 magnet:?xt=urn:btih:BCB5EAF6BE90B5068F8EE1790250D564C0D05184
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Auto Reply: автоответчик v4.9 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:CAD4B29BB77E0EC00CF0809E98C8D124FE5BE0E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:CAD4B29BB77E0EC00CF0809E98C8D124FE5BE0E0
 magnet:?xt=urn:btih:766CF6E176517403B4BE642B7BFD9FC235F5D5FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ GIMP — это редактор, позволяющий работать со �
 ```bash
 magnet:?xt=urn:btih:673CEE67A6CF61FB9EA4B1709B43230EC15E1A6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Opera One 117.0.5408.154 Portable by Cento8 [Ru/En]
 magnet:?xt=urn:btih:8CAEC5B3096B182CA00109381E632F15B5E08D41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:AD4393506528C163C462F895DD05CEE74689CA2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ WinRAR - один из самых известных архиваторов. Т�
 magnet:?xt=urn:btih:E4FC04A092E5824D9F7B5673A2F14D2BB0512AD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ R-Drive Image — является эффективной утилитой дл�
 ```bash
 magnet:?xt=urn:btih:1AE51A9FD269F12EE3D7BBB544FD4DC800B62E17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ MediaHuman YouTube Downloader 3.9.9.98 (2503) RePack (& Portable) by elchupacabr
 magnet:?xt=urn:btih:A6ADAC148F4F2899C0E2F011E49864F6654AA49B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:D26FB1CF41E48AD46FE4CD90AA757B04CBF16B57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Q-Dir - это отличный альтернативный файловый м
 magnet:?xt=urn:btih:AB8FA773C44E4C17E8C1EE75AD8F0FA1DD04FB53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ HiPER Calc Pro v11.1.1 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:82062711FF48B4BD6B8493DC8C53807D265D23CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ FolderSizes 9.7.503 Enterprise [En]
 magnet:?xt=urn:btih:93CF8315DB1733422A89EEDC57EB6653F8802451
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:93CF8315DB1733422A89EEDC57EB6653F8802451
 ```bash
 magnet:?xt=urn:btih:FC2F370A2368C1DC1535950269A3C50FC8B981CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ PDF24 Creator - бесплатная программа, которая позв
 magnet:?xt=urn:btih:802E4B338BC57EA1E5C56BC9E4444264E190B054
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ IPTV Pro v9.0.11 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7647A54C6E3CEE18B8134A3F7EDA96F9BAB0CE2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ WPS Office - очень полезное, офисное приложение д
 magnet:?xt=urn:btih:3574B299FE45BFDD6A64042EF44E956D7BF2A5FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:3574B299FE45BFDD6A64042EF44E956D7BF2A5FF
 ```bash
 magnet:?xt=urn:btih:7C8514C99EF27EE14996299DC400F565E7FAE61E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ RAR - это консольное приложение, позволяющее �
 magnet:?xt=urn:btih:ECB1359C21A95F9E720961A15B9CEBA92C3BC3A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ HDCleaner – многофункциональный программный пр
 ```bash
 magnet:?xt=urn:btih:596EFF7568D344F12517FB12DFC7E754A8899B20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ AdGuard — уникальный блокировщик рекламы без ro
 magnet:?xt=urn:btih:01DC3696EB14313762101002DB06E3D696D61B87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ AIMP – проигрыватель, включающий в себя множе
 magnet:?xt=urn:btih:453115B78CE1F8623D7F050ECD65AB7DC5556090
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:3E529056324F0689C04D9B2BB6CF276DF73D955D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

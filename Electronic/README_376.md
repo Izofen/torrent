@@ -22,6 +22,8 @@ VA - Garten Lounge Musik (2016) [MP3|320 кб/с] <House, Deep House>
 magnet:?xt=urn:btih:8D97A444F1CE7CABA044A9AF9F5D521FA5ADAB3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Zinovia Arvanitidi - Ivory (2018) Kitchen. Label [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:B761F954C71A27AAA9AB0CA689F2AAAC94E1BA91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ Enrico Sangiuliano - Discography 14 Releases (2009-2018) [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:7E919C585E1B6268D7FF0F4FC162B49855583B4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +107,8 @@ Café del Mar - Phuket (2018) [MP3|320 Kbps] <Downtempo, Chill House, Nu Disco>
 magnet:?xt=urn:btih:3C59DE8FF09823349B0D65D0CF11AC8FD0B0F24F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ CD1
 ```bash
 magnet:?xt=urn:btih:9352F369181257E4F454C20B271B73B8B15DE515
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -155,6 +165,8 @@ Ghosts - The Second Compilation by ŦĦ€ ǤΔΜ€Ş Ŵ€ ƤŁΔ¥ (2018) [MP
 magnet:?xt=urn:btih:1D83710ECBB728BFB05EFB3A32B9E37BA7939C8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +193,8 @@ Markus Schulz:
 ```bash
 magnet:?xt=urn:btih:186EF090CB470A1B6EB0ECAE8F1248991BDCD063
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -209,6 +223,8 @@ VA - Ori Uplift & tranzLift - Uplifting Only 268 (2018) [MP3|320 Kbps] <Trance,U
 magnet:?xt=urn:btih:7E103853B35E023770EC85FF2F55E9A277A0F114
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +251,8 @@ VA - Jobe Presents Authentic Steyoyoke #012 (2018) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:066A0212EEE9622A37F2521A18EE4353C3DA520C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +281,8 @@ VA - Trance Maschine Vol. 2 (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:26770F36F868C16A140575D0EF8C829CA87C2B99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +309,8 @@ magnet:?xt=urn:btih:26770F36F868C16A140575D0EF8C829CA87C2B99
 ```bash
 magnet:?xt=urn:btih:5AC9FDFF9413967A5A910F8FB52945CAB1EA178F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +339,8 @@ my.head - Discography 18 Releases (2012-2020) [FLAC|Lossless|WEB-DL|tracks] <Amb
 magnet:?xt=urn:btih:14FF9C54E5E4CA8D2EB5877E002FB52F05D30D10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +367,8 @@ Sexy Suicide - 2018 - Techno Scar (Single)Жанр: Synthpop •Продолжи
 ```bash
 magnet:?xt=urn:btih:079B0B3F7F18758C9761F75115A7C271D3E6E671
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +397,8 @@ Pet Shop Boys - Agenda (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 magnet:?xt=urn:btih:A889C0101D759859D056DA9285D458D5FDF05655
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +424,8 @@ Nearfield - Discography 14 Releases (2012-2020) People Can Listen [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:8BC23112753EA44A05EB451415BE867EB62C4D2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +454,8 @@ Unit - Discography 3 Releases (1999-2004) Caipirinha Productions, Co.Ad.Audio [F
 magnet:?xt=urn:btih:0B7234658923DD71F0B74D5C9998CF8303818734
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +482,8 @@ The Lost Sun - Spectral Voice From Newborn Star (2016) [MP3|320 кб/с] <Space 
 ```bash
 magnet:?xt=urn:btih:D47CEA0493E0F70B702C6A27776F408138C87E64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +512,8 @@ VA - Jaytech Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossless|WEB-
 magnet:?xt=urn:btih:8DF07E7A831B4BB5198984D564551CD0FD557540
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +540,8 @@ Witchcraft - Scattered Areas Of Invisibility (1999) AD Music [FLAC|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:9D3AD2CE991DE19A1B477280BE4A36214FDC4B60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +570,8 @@ R.I.O. - Shine On (2008) [FLAC|Lossless]<House / Electro>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +598,8 @@ VA - Five Star Chill Out Vol 1 (Luxury Beach Lounge Resort Relaxation) (2016) [M
 ```bash
 magnet:?xt=urn:btih:CB0F3BE679C9166A4870B7E561A6C1D97D923FFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +628,8 @@ VA - Sirup Deep Anthems Ibiza 2016 (2016) [MP3|320 кб/с] <Progressive House>
 magnet:?xt=urn:btih:9E955332E196326AA19C548478859DBF27D95882
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +656,8 @@ Michael Rade - Dadala (2016) [MP3|320 кб/с] <House, Progressive House>
 ```bash
 magnet:?xt=urn:btih:77A3747AAD7074AE6C42E10AC063CF0F10F4645F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +686,8 @@ Flegma - Echoes From Jangala (2018) [FLAC|Lossless|tracks] <Psy-Trance>
 magnet:?xt=urn:btih:DAD805B18D679312C9ED6E7CA0AA0CA3FA9D2FF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +715,8 @@ VA - Erotica Vol. 1 (Most Erotic Lounge And Chillout Tunes) (2014) [FLAC|Lossles
 magnet:?xt=urn:btih:0C0346EA5F18BF8298D17F516EFA5DC55BF279B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ VA - Erotica Vol. 3 (Most Erotic Smooth Jazz & Chillout Tunes) (2018) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:839FBC8427DF9F92C6F44396EB65D8F92B9B9FA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

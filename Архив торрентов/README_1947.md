@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:896CE305231D9CA5FAC97B793606448B6D2CAE1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ VA - Super Хитовый №2 from AGR (2012) [MP3|320 кб/с]<Pop, Club, Danc
 magnet:?xt=urn:btih:9A3A86792FCE75DA0AF7A442920C3C523666BE3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:9A3A86792FCE75DA0AF7A442920C3C523666BE3D
 magnet:?xt=urn:btih:2ECCFC850B8E1154DF79534B7D3F32993DAD87B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:2ECCFC850B8E1154DF79534B7D3F32993DAD87B6
 ```bash
 magnet:?xt=urn:btih:A8BB249E9F6AD1170B812DDD2B13DF2C9AF1CB3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -133,6 +141,8 @@ VA - Клубные Новинки Vol.85 from AGR (2012) [MP3|320 кб/с]<Club
 magnet:?xt=urn:btih:19B98A0D22A2105098B74B872C92DDC964A95604
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:19B98A0D22A2105098B74B872C92DDC964A95604
 ```bash
 magnet:?xt=urn:btih:C00679FFECFAC741C0AD97EBBFC47FF9F385F8FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ magnet:?xt=urn:btih:C00679FFECFAC741C0AD97EBBFC47FF9F385F8FA
 magnet:?xt=urn:btih:D30CB90688FF7E21927C468A53083C2D8BD3F351
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +218,8 @@ magnet:?xt=urn:btih:D30CB90688FF7E21927C468A53083C2D8BD3F351
 ```bash
 magnet:?xt=urn:btih:E2178FCA345A66DB0F2FA7D73F8C26EEA1BB18F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +245,8 @@ magnet:?xt=urn:btih:E2178FCA345A66DB0F2FA7D73F8C26EEA1BB18F3
 magnet:?xt=urn:btih:26C6AB996B4D07922EF44860FBBAA40700A84F90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ magnet:?xt=urn:btih:26C6AB996B4D07922EF44860FBBAA40700A84F90
 ```bash
 magnet:?xt=urn:btih:5E4DA89A97B6E77F111156FBBD6C1221D7F0B5BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:5E4DA89A97B6E77F111156FBBD6C1221D7F0B5BE
 magnet:?xt=urn:btih:B6A3335BED7D7C908E31F7BD97F44C5215836A39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ magnet:?xt=urn:btih:B6A3335BED7D7C908E31F7BD97F44C5215836A39
 ```bash
 magnet:?xt=urn:btih:FA9AB7DE1F43BBC6FBAABCE4F088DD912A2738C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:FA9AB7DE1F43BBC6FBAABCE4F088DD912A2738C6
 magnet:?xt=urn:btih:5945120AEEB230FEA269A4EAFEC8726EECDBBBC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:5945120AEEB230FEA269A4EAFEC8726EECDBBBC7
 ```bash
 magnet:?xt=urn:btih:06348D1DCF77A4663047AAFA6DF6DDDA159B88E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:06348D1DCF77A4663047AAFA6DF6DDDA159B88E3
 magnet:?xt=urn:btih:C486C4B60061F80D397C6ADE7AEF9B2B4D3EA0CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:C486C4B60061F80D397C6ADE7AEF9B2B4D3EA0CA
 ```bash
 magnet:?xt=urn:btih:5742B7DF87EE1AA179C575C810F20C0D4CBF259A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +462,8 @@ magnet:?xt=urn:btih:5742B7DF87EE1AA179C575C810F20C0D4CBF259A
 magnet:?xt=urn:btih:A19B190E6A65E989384677BC47F1169FD1C5B23B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ magnet:?xt=urn:btih:A19B190E6A65E989384677BC47F1169FD1C5B23B
 magnet:?xt=urn:btih:9D12785A7150876DE47294A6D82ED41A9A6BB321
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ magnet:?xt=urn:btih:9D12785A7150876DE47294A6D82ED41A9A6BB321
 ```bash
 magnet:?xt=urn:btih:FEFF06B2956F10837F072D423B0AF07251C22E7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +547,8 @@ VA - Armada Top 15 June (2012)
 magnet:?xt=urn:btih:D4849C9F53BCCC05828CE3E6CC833CEFDD57717F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ Joy — развлекательный глянцевый женский жур�
 ```bash
 magnet:?xt=urn:btih:5B312B52484D78AD67AC73F00116BF3C2FCBDA5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +599,8 @@ magnet:?xt=urn:btih:5B312B52484D78AD67AC73F00116BF3C2FCBDA5C
 magnet:?xt=urn:btih:EBB27DE56AD135DB73AB84C8DF91C97D076130E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ magnet:?xt=urn:btih:EBB27DE56AD135DB73AB84C8DF91C97D076130E3
 magnet:?xt=urn:btih:3AE6A7644C60BE78DFF8081D0096E449AB42EB64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ magnet:?xt=urn:btih:3AE6A7644C60BE78DFF8081D0096E449AB42EB64
 ```bash
 magnet:?xt=urn:btih:FBA29A4ABD48C7B553AFCC182945F92AB467F139
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +686,8 @@ VA - Последние новинки в мире музыки от Vanovlad vo
 magnet:?xt=urn:btih:42DC24EC442C147C1191A68F4930F1292F6B0EFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +711,8 @@ magnet:?xt=urn:btih:42DC24EC442C147C1191A68F4930F1292F6B0EFB
 ```bash
 magnet:?xt=urn:btih:041D373086B85F0E9B15684B680AA9BF6C09B582
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

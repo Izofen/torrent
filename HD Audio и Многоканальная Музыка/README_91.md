@@ -22,6 +22,8 @@ Vendetta - Geetroit Wolves (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy R
 magnet:?xt=urn:btih:57D15B6AA73452AB2F6868C986C8EA312BC0BE2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:57D15B6AA73452AB2F6868C986C8EA312BC0BE2C
 ```bash
 magnet:?xt=urn:btih:BC4A9FA24BB4C818CD26C35ADF767FE609435E84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -79,6 +83,8 @@ magnet:?xt=urn:btih:BC4A9FA24BB4C818CD26C35ADF767FE609435E84
 magnet:?xt=urn:btih:616E05ACD4B321F777C61E25DE666BA9CD18B853
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -105,6 +111,8 @@ Ennio Morricone - Live in Venice (2007) Upmix [DTS 5.1|44.1/24 WAVE|tracks] <Ins
 ```bash
 magnet:?xt=urn:btih:45C647A88DE47F74C891643380B423A818D5EA39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +147,8 @@ Esperanza Spalding - Radio Music Society (2012) [FLAC 2.0 24/96|tracks (WEB-DL)]
 magnet:?xt=urn:btih:D2F8BA0443F78F017275D3822242A2EA84F53E03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +181,8 @@ Europe - The Final Countdown (1986)  [APE 2.0 24/48 | tracks (VinylRip)]<hard ro
 ```bash
 magnet:?xt=urn:btih:9561E9AE966EAFF6D3C5534CE24DE9BBD1CBAF96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -205,6 +217,8 @@ VA - Lonely Shepherd (2001) [DTS 5.1 | image (Upmix)]<Instrumental, Classical>
 magnet:?xt=urn:btih:97720F86088B7AE4354429D2329E19A505F65DD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +252,8 @@ Scorpions - 2 альбома (1974-1975)  [FLAC 2.0 24/192 | tracks (VinylRip)]<
 magnet:?xt=urn:btih:2CB315CD2F2FB1839040EE4CCCCAD22B83C2C343
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +282,8 @@ magnet:?xt=urn:btih:2CB315CD2F2FB1839040EE4CCCCAD22B83C2C343
 ```bash
 magnet:?xt=urn:btih:E14E85105F90560DED479EC47FD0AEE807526CF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +317,8 @@ magnet:?xt=urn:btih:E14E85105F90560DED479EC47FD0AEE807526CF9
 magnet:?xt=urn:btih:420BEC04286E9FAC5EB3CCA0CE1BD5DAF8614AF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +342,8 @@ Red Hot Chili Peppers – Californication (1999) [FLAC 2.0 24/192 | image (Vinyl
 ```bash
 magnet:?xt=urn:btih:CB63894A9936B5F9F40346F536EFE6F522B6EC9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +372,8 @@ Wednesday - Bleeds (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:5FCDAA0126EF760848BBE486A01364DED4DF853F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +400,8 @@ Kylie Minogue - Tension Tour Live 2025 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:011F1A6455417E3AD9B847AD915B9982D6444ED2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +430,8 @@ Sleazy Sweet - Sleazy Party (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Glam Met
 magnet:?xt=urn:btih:13A4F5983719A357E20D1EB0428205549A97A637
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +458,8 @@ Elisabeth Elektra - Hypersigil (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Syn
 ```bash
 magnet:?xt=urn:btih:82981C5124CACCCCBB38EC0E497664D4ACACCE95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +488,8 @@ magnet:?xt=urn:btih:82981C5124CACCCCBB38EC0E497664D4ACACCE95
 magnet:?xt=urn:btih:FD88E2D6CDCB2E81D07BA297F2699EB2AE22415D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +516,8 @@ Warren Haynes - Tales of Ordinary Madness (Remix 2025) (1993) [FLAC 24/96|Lossle
 ```bash
 magnet:?xt=urn:btih:A01A62450CA1BEE195723DFAC33EA5E8235D481C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +546,8 @@ Till Lindemann - Zunge 2025 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indust
 magnet:?xt=urn:btih:D018C5C611249416F462202F564607DF46FA9D73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +574,8 @@ Aphex Twin - Surfing On Sine Waves (1993) Expanded Edition, 2025, Warp Records [
 ```bash
 magnet:?xt=urn:btih:77B9822268D120332DCC7F8679087F06B1932A26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +604,8 @@ magnet:?xt=urn:btih:77B9822268D120332DCC7F8679087F06B1932A26
 magnet:?xt=urn:btih:635FD4F0D3642557A4623AAE3FA550FB542AFA9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +632,8 @@ Skid Row — американская хэви-метал группа, обра
 ```bash
 magnet:?xt=urn:btih:2DF1F77A7E347935055C712EC66FA2B6F573DD8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +662,8 @@ Hypocrisy — шведская дэт-метал-группа, образова�
 magnet:?xt=urn:btih:45EDD972967DE30B65919EC0674281E68F29E04C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +690,8 @@ Carter Faith - Cherry Valley (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:E8B10F1147985A26CD5DB83AC1FF1CF44CD58595
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -674,6 +720,8 @@ Lemongrass - Journey Backwards (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Lou
 magnet:?xt=urn:btih:439611E1E0C8E26D5A1FBF1EDCE85B11CE0F1DF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -701,6 +749,8 @@ Taylor Swift - The Life of a Showgirl (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:AB95FE375DDECD0EE6B590A098035B1890EF397D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -727,6 +777,8 @@ Lola Young - I’m Only F**king Myself (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:D0C4252BA9249BAC987C7FAD20D96ED3DBD5D973
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

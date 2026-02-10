@@ -19,6 +19,8 @@ NGW: Чудаки животного мира. Обезьяны носачи / F
 magnet:?xt=urn:btih:3DFD5AC5BADCBDB717B595064C7CABC0DDCD6C6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Discovery. Жизнь и смерть на Эвересте / To Live or Die on 
 ```bash
 magnet:?xt=urn:btih:A467C59B12A07859FCB9FDC7D244EF5BD7239D93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:A467C59B12A07859FCB9FDC7D244EF5BD7239D93
 magnet:?xt=urn:btih:CDAD7F9E5AB67181EACDC209D2BF7B84A5831A95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:CDAD7F9E5AB67181EACDC209D2BF7B84A5831A95
 ```bash
 magnet:?xt=urn:btih:1EFDF61691A7EB2F00E0BA611254F90FB315E0F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ BBC: Начало и конец Вселенной / The Beginning and End of th
 magnet:?xt=urn:btih:8B3F4A146E62C867859846BEE78B71FE8C8A4FEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Animal Planet: Неизведанные острова / Wildest Islands (2012-2
 ```bash
 magnet:?xt=urn:btih:D1003F6719ECCFF775AC9FCEB415A0E48D326DB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Animal Planet: Планета мутантов (Жизненная сила) / M
 magnet:?xt=urn:btih:BD11B9FCF05EF21198FC15585DEFFD8E3E327191
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Animal Planet. Смертельные острова / Deadly Islands (2014) HDT
 ```bash
 magnet:?xt=urn:btih:B205FC0328E44D1C0302793A295561E928E45646
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Animal Planet: В дебрях Индии / Wildest India (2011) HDTV [H.264/108
 magnet:?xt=urn:btih:9B7B6687FB12A9A1484452E620FA3D7973D3339B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Animal Planet. Другой Китай с Найджелом Марвеном / 
 magnet:?xt=urn:btih:AF4CCB4BD8C8945981B540CA53AAD5D73BB12BBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ Animal Planet. Древо жизни / Africa's Trees of Life (2015) HDTV [H.264
 ```bash
 magnet:?xt=urn:btih:A7008E95957BA18428D03DE5303D6817A6117823
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:A7008E95957BA18428D03DE5303D6817A6117823
 magnet:?xt=urn:btih:53F98857399EDBA7690E5781A445FF66586255AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:53F98857399EDBA7690E5781A445FF66586255AE
 ```bash
 magnet:?xt=urn:btih:8AD27A4D3AD523E6D673AFA816F7869A5B66EEB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ NG: Земля: Биография Планеты / Earth: Making of a Planet (2
 magnet:?xt=urn:btih:F2721F286D8AF6C75B335800424A181BF417783B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ Animal Planet: Неизведанный Индокитай / Wildest Indochina (
 ```bash
 magnet:?xt=urn:btih:DD51AE5D061F3CBDAEED818B388F16F8CEC5734D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ Discovery. Как работают машины / Machines: How They Work (2016)
 magnet:?xt=urn:btih:AEECFA1DFB9E398B0DAC67E3F9AEE728BD942610
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ Animal Planet: В дебрях Латинской Америки / Wildest Latin
 ```bash
 magnet:?xt=urn:btih:456BCB7553DCFA60105833E48DD9276A3EF803C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ NGW: Остров муссонов. Королева Яла / Island of the Mons
 magnet:?xt=urn:btih:CAA60015D1414312E688CFC7C37EC30AAA8828C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ NG. Вся правда о ледяном человеке / Iceman Autopsy (201
 ```bash
 magnet:?xt=urn:btih:980FCD6848C0121F32BA8FD07039BA8D10AD1D73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ NG. Миссия на Марс / Ultimate Mars Challenge (2012) HDTV [H.264/1080
 magnet:?xt=urn:btih:0817100A290B07306C4AB5E432A3A435CA0D3CEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ NGW: Остров муссонов. Слоненок Лока / Island of the Mo
 ```bash
 magnet:?xt=urn:btih:77DAF465DC10B0484556767D7496F3FC8614DA0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ BBC: Враги разума [2 серии] / The Enemies of Reason (2007) DVDRi
 magnet:?xt=urn:btih:C1F37D23D4A5DA7D0BA993D455C18D1BFC45F811
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ NG: Секретные материалы древности. Кровь Хри�
 magnet:?xt=urn:btih:C4E42E53F5CE7EFF944E6A0745C3FD416C50FFBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ BBC. Человеческая Вселенная / Human Universe (2014) BDRip [
 ```bash
 magnet:?xt=urn:btih:915C1E477BE7B9947AD1241B95728106A4F5E1DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ History Channel: Хит-парад древности. Первая десятк
 magnet:?xt=urn:btih:32C36E36DF18DA9CB46FC847D362DF1BF3FE17CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ History Channel: Хит-парад древности. Первая десятк
 ```bash
 magnet:?xt=urn:btih:8D9EDB0D3F96D677334B8FBBD2904DB1002E310D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

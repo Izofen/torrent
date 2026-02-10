@@ -20,6 +20,8 @@ ADB AppControl - это новая и удобная программа для �
 magnet:?xt=urn:btih:3F4D43B60228503C46A129DEB6523EBFB2492721
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:3F4D43B60228503C46A129DEB6523EBFB2492721
 ```bash
 magnet:?xt=urn:btih:7996CF1F5F8E8E88C44E0C977B3E945C23A380AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ CurrPorts – полезная бесплатная программа для с
 magnet:?xt=urn:btih:9EDC4C3417B83CC11E864A1C3656E56DA138241B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Ungoogled Chromium - версия веб-браузера Chromium без инт
 magnet:?xt=urn:btih:C29F8220DBAA40EDC75FA79DF86FE32988B9DC07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ IceCream Ebook Reader Pro 6.31 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:18526207B3ED88AA70914838F1552737CCC34E04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ OneLoupe 5.66 Portable [Multi/Ru]
 magnet:?xt=urn:btih:BF715BBA2CEB235ACBB427EF495F862F5BDBD169
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 ```bash
 magnet:?xt=urn:btih:8F984E9D972993152062147990A7144DDD623FCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 magnet:?xt=urn:btih:972C36A1E8C8C66511AC2CFAB61397EA8C3D65D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Wondershare UniConverter - простой в использовании виде
 ```bash
 magnet:?xt=urn:btih:5ADA22854F4943763A48BA9CE0670D3561BB034E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Luminar Neo 1.8.0.11261 (Repack & Portable) by elchupacabra [Multi]
 magnet:?xt=urn:btih:517BB160927497AFF6958C49379083E2A987BB0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:517BB160927497AFF6958C49379083E2A987BB0B
 ```bash
 magnet:?xt=urn:btih:5D05877890028182B13FEDC77DA0F506CE371542
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:5D05877890028182B13FEDC77DA0F506CE371542
 magnet:?xt=urn:btih:29A43A4DEAF1A05DB76EFB76A0BFD82FAB239DA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:29A43A4DEAF1A05DB76EFB76A0BFD82FAB239DA2
 ```bash
 magnet:?xt=urn:btih:9F50947905F406E48F84F12586AB40EB3FA807C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:9C9B0FF76C96E14D9AE3C454DA25F2BB9CA81EC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ CCleaner - это самая популярная программа на ПК �
 ```bash
 magnet:?xt=urn:btih:062E128C804BCD1E65FD8BAA9F949E866232827A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Abelssoft SSD Fresh - если вы счастливый обладатель SS
 magnet:?xt=urn:btih:8F6EBE6B63650F13A7E8BC063DDC8628D579DC4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ PDF-XChange Editor — программа для просмотра, редак�
 ```bash
 magnet:?xt=urn:btih:ABF4B6421CF947310094FCC2D5AD64008543BAD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Total Commander Ultima Prime — это набор утилит и разноо�
 magnet:?xt=urn:btih:F8DCA8BE99F2EADB6202D809E004D9FD68D1D124
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:F8DCA8BE99F2EADB6202D809E004D9FD68D1D124
 ```bash
 magnet:?xt=urn:btih:134D80768D86270539A853F29ABB72F61B4D0E02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ PC HelpSoft Driver Updater автоматически сканирует раз�
 magnet:?xt=urn:btih:6487F53047AD90BB13B30AA2DF87C062424A1A8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:6487F53047AD90BB13B30AA2DF87C062424A1A8B
 ```bash
 magnet:?xt=urn:btih:FC5FFA48F29287F55DD1F78EE6636042FDA51D2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ LDPlayer 9 — мощный бесплатный эмулятор устройс
 ```bash
 magnet:?xt=urn:btih:DDC658607058414B166D1AD2BBB7B4375EB5B3F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ WhatsApp Messenger - кроссплатформенный мобильный м�
 magnet:?xt=urn:btih:D76A92205E95CBC3797F18414BDE36AF8436AEBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Paint.NET — это программное обеспечение для ред
 ```bash
 magnet:?xt=urn:btih:19DCDD776EBCDCD049BA46C2350E84117BF3B4B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ Torrent Merkle Root Reader (TMRR) 1.1.7g [Ru/En]
 magnet:?xt=urn:btih:92A869F4D73107AC4647F1222232EAB6C2163188
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:92A869F4D73107AC4647F1222232EAB6C2163188
 ```bash
 magnet:?xt=urn:btih:2194AEAE16201B548E9592DD8CFC6B9FE1FF25BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

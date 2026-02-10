@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:8C3E95AD62C9EF63DBDE59A8F1233B598F324464
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:8C3E95AD62C9EF63DBDE59A8F1233B598F324464
 ```bash
 magnet:?xt=urn:btih:EF7E82553D744EF432E06029C1C02B6CBD2B6157
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - MAXI. Русские ДиДжеи Зажигают (2012) [MP3|224 kbps]<Po
 magnet:?xt=urn:btih:47A04E4540EE5CB1B53D2AD8823117F812A480A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:F5E25E359CDAD9053A0E489D81B2DBB000421BC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +150,8 @@ VA - Русская Дискотека Best-of-ka (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:75C21E0D5D26C27C9CF004498935B802F19AD9CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +176,8 @@ magnet:?xt=urn:btih:75C21E0D5D26C27C9CF004498935B802F19AD9CC
 magnet:?xt=urn:btih:4E66BDA7166C659DAC7D2896344C190342143186
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +201,8 @@ magnet:?xt=urn:btih:4E66BDA7166C659DAC7D2896344C190342143186
 ```bash
 magnet:?xt=urn:btih:5DD1415232D3ED3A44757979084230B60F517A21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +237,8 @@ VA - Продвинутый Модный Хит DFm (2012) [MP3|256 kbps]<Club |
 magnet:?xt=urn:btih:5BA2C97042F34B0339BA3C2812D84D39C56DA1EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +271,8 @@ Somnesia - Mystic Moon (2012) [MP3|320 кб/с]<Goa Trance>
 magnet:?xt=urn:btih:5F67B68FE709C537AC7D3402C0CC4460E670F57D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +301,8 @@ magnet:?xt=urn:btih:5F67B68FE709C537AC7D3402C0CC4460E670F57D
 magnet:?xt=urn:btih:ED98E96D488D2683D07558AC3A819811C3E5494F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +326,8 @@ Thunderbird - простая и удобная бесплатная програ
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +353,8 @@ Wise Registry Cleaner 7.13 build 449 Final + Portable [Multi(Rus)]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +378,8 @@ Wise Registry Cleaner 7.13 build 449 Final + Portable [Multi(Rus)]
 ```bash
 magnet:?xt=urn:btih:AFF100BA2C26A2C8B337B1E7252BE97D9CAC8F4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +414,8 @@ magnet:?xt=urn:btih:AFF100BA2C26A2C8B337B1E7252BE97D9CAC8F4C
 magnet:?xt=urn:btih:4FE05B79FA5F02283B228AAB5E64EA1E16CEBD4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +449,8 @@ VA - TMP: Vanilla Dreams - 065 (24.03.2012) [MP3|320 kbps]<Vocal Trance>
 magnet:?xt=urn:btih:8EA0FDD1C60B406F3AE44D2D89AAFB51A94DDA19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +474,8 @@ magnet:?xt=urn:btih:8EA0FDD1C60B406F3AE44D2D89AAFB51A94DDA19
 ```bash
 magnet:?xt=urn:btih:D0F5D1FFA479B9449B596BE6149D148E3969B09C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +510,8 @@ VA - April Club Party (2012) [MP3|160-320 кб/с]<Club>
 magnet:?xt=urn:btih:FC9B00BAE462A7DD1D419DCEB184E188B9652500
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +539,8 @@ Altar of Plagues - 6 альбомов (2006-2011) [MP3|128 - 320 кб/с]<Black 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +564,8 @@ Altar of Plagues - 6 альбомов (2006-2011) [MP3|128 - 320 кб/с]<Black 
 ```bash
 magnet:?xt=urn:btih:03E5E80518A1ACD9FBCBD50BB2C16E47EE901517
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +600,8 @@ VA - The Chillout Lounge (2012) [MP3|320 kbps]<Chillout | Downtempo | Lounge>
 magnet:?xt=urn:btih:4F60EFD72478EA1DA5C8ACB5CE11196392E059F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +628,8 @@ magnet:?xt=urn:btih:4F60EFD72478EA1DA5C8ACB5CE11196392E059F5
 magnet:?xt=urn:btih:F094B9CEB9C21A1123041FA8E34158CB1D81979A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +653,8 @@ magnet:?xt=urn:btih:F094B9CEB9C21A1123041FA8E34158CB1D81979A
 ```bash
 magnet:?xt=urn:btih:E0640CD762F89935CFF4CC433834717727A0E3D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +680,8 @@ Black Sheep Wall - No Matter Where It Ends (2012) [MP3|320 кб/с]<Sludge Post-
 ```bash
 magnet:?xt=urn:btih:9FE8F84871D57103ACBDC136FBB1F62E4789F894
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -669,6 +715,8 @@ VA - French Plaisir - compiled by Drenan (2008) [FLAC|Lossless]<Psychedelic / Pr
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -692,6 +740,8 @@ Wise Disk Cleaner v7.17 build 474 Final + Portable [Multi(Rus)]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -725,6 +775,8 @@ VA - Big City Trance Volume 24 (05.04.2012) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:5B22E36ECBE23FDE758940862B66E6CC315129EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Resident Evil Village (2021) [Ru/Multi] (Build 10415597/dlc) Repack West4it [Gol
 magnet:?xt=urn:btih:917889CCE1589FF24A207D11CA478B62A9F2791A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:917889CCE1589FF24A207D11CA478B62A9F2791A
 magnet:?xt=urn:btih:10C4E4DA0965A698051DAA2E78CA7698D24CF924
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Freelancer (2003) [Ru/En] (1.0) License
 ```bash
 magnet:?xt=urn:btih:CD5BA47971EB7D3DB305164021FA9274CEE70FE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Disco Elysium — это новаторская смесь из сваренно
 magnet:?xt=urn:btih:CA741BC7CCEEED96CC2098DD33BDC10E81370FB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:CA741BC7CCEEED96CC2098DD33BDC10E81370FB5
 ```bash
 magnet:?xt=urn:btih:CE9C9A63D54A65577812C1A2DE74E3DF67E3C674
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:CE9C9A63D54A65577812C1A2DE74E3DF67E3C674
 magnet:?xt=urn:btih:C282154A67592FE92C6D268DFB1B13E99A47880E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:C282154A67592FE92C6D268DFB1B13E99A47880E
 ```bash
 magnet:?xt=urn:btih:FA0BFABAA4CEA3A242B6ECEA6CCC1B044DC590E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:FA0BFABAA4CEA3A242B6ECEA6CCC1B044DC590E9
 magnet:?xt=urn:btih:E37D932927D0F409BD70AE6361669B8FB0739634
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:E37D932927D0F409BD70AE6361669B8FB0739634
 ```bash
 magnet:?xt=urn:btih:DC6823BFECDA29600AB90B8CF6DF0BE49A35EDC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Autodesk Maya – продукт для 3D-анимации, моделиров�
 magnet:?xt=urn:btih:C5224DD0973969D5F70FE4903D079B5D7CB14292
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:C5224DD0973969D5F70FE4903D079B5D7CB14292
 ```bash
 magnet:?xt=urn:btih:E46E48D8A22D83D6C4D6386556D12ED389262794
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:E46E48D8A22D83D6C4D6386556D12ED389262794
 magnet:?xt=urn:btih:D678A34E9980A4F2FE9D84C10E6287AD1B865F9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:D678A34E9980A4F2FE9D84C10E6287AD1B865F9B
 ```bash
 magnet:?xt=urn:btih:26B42F16248C26A8F72DE42ECD5BE94DBB9BA4F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ javascript.ru, Владимир Шевчук | Мастер-класс по ар
 magnet:?xt=urn:btih:FD9A66597A67EB3625A921F25AF1BD5DA9D9BDE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:FD9A66597A67EB3625A921F25AF1BD5DA9D9BDE0
 magnet:?xt=urn:btih:C7B25D3E42E91C1401A7ADEE201D2E1D9D3450B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Sherlock Holmes The Awakened дает возможность игроку выс
 ```bash
 magnet:?xt=urn:btih:DB5EF4429FC85A2F09DA279EC371A91EBA758EA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:DB5EF4429FC85A2F09DA279EC371A91EBA758EA6
 magnet:?xt=urn:btih:56C6AF2EE52FA47E35DAF087289F5DFAE909DAD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:56C6AF2EE52FA47E35DAF087289F5DFAE909DAD5
 ```bash
 magnet:?xt=urn:btih:64B73578666D9773D904510FEA0D38E9B1A08D72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Hard to Be a God – ролевое приключение в стиле нау�
 magnet:?xt=urn:btih:A91E3E5576ADAFDD0D2210462E0F325B0503A067
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Keen Games | Артбук по игре Sacred 3 / The Art of Sacred 3 (2013) [P
 magnet:?xt=urn:btih:3EF63D8384F9CA01AB695E65772FADAC7A41442B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:7A1A47FEB52CBBE8CFBC5218C053EC9EC77C23FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ Ubuntu*Pack 22.04 MATE (март 2023) [amd64] 1xDVD
 magnet:?xt=urn:btih:1E457FB42F8077D09A3FDEF17BC3C953AD684B28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:1E457FB42F8077D09A3FDEF17BC3C953AD684B28
 magnet:?xt=urn:btih:EA1AC5C84316C3AB8510435127482085C6145B06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:EA1AC5C84316C3AB8510435127482085C6145B06
 magnet:?xt=urn:btih:41F3B84ABF90AC8972BA0229B54EC6A8300365AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Neon Giant | Артбук по игре The Ascent / The Art of The Ascent (2021
 ```bash
 magnet:?xt=urn:btih:23438BA0245F823A4E8C60B4C8E40424049BC7BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +676,8 @@ VA - Привал романтиков 2 (2004) [MP3|320 Kbps] <Авторска
 ```bash
 magnet:?xt=urn:btih:72EE4494CCE3AD5A871330DCFBC92B8FA856245E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

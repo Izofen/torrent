@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:880608ED38723A822844CA95D0E3319B6F6526EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:880608ED38723A822844CA95D0E3319B6F6526EC
 ```bash
 magnet:?xt=urn:btih:1FF5F19F13E1B876E854D2B1ED99D016B2F4C9C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ DeTechtive 2112 (2025) [Ru/Multi] (1.1.2) Repack Let'sРlay
 magnet:?xt=urn:btih:D7B1A2FA4A451A478179B6CADA736DC382CC8CFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Windows 11 Pro VL x64 24Н2 (build 26100.3775) by ivandubskoj 12.04.2025 [Ru]
 ```bash
 magnet:?xt=urn:btih:A593A87BC56C4EC075B21F0CEA11B3F9CD16F139
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:A593A87BC56C4EC075B21F0CEA11B3F9CD16F139
 magnet:?xt=urn:btih:08A436357E0A1B8019977AEB17B3605253851633
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Rise of the Ronin - динамичная ролевая игра, в котор�
 ```bash
 magnet:?xt=urn:btih:22CC3BA77B466BA85E012E66D627C5E89E40DB31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:22CC3BA77B466BA85E012E66D627C5E89E40DB31
 magnet:?xt=urn:btih:D7788E832C97C6C2FE46473E17D4FF5797C3288C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:D7788E832C97C6C2FE46473E17D4FF5797C3288C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:D7788E832C97C6C2FE46473E17D4FF5797C3288C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:D7788E832C97C6C2FE46473E17D4FF5797C3288C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ L.A.Guns - Leopard Skin (2025) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Met
 magnet:?xt=urn:btih:C6DD5D682B1FE9D26CC4AC6CB49ADA432F3D526D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:C6DD5D682B1FE9D26CC4AC6CB49ADA432F3D526D
 ```bash
 magnet:?xt=urn:btih:441A58429C5396F4BE5AB7ABCB8A28386D20CF6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ VA - Compilation Part 153 Electronic (2025) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:208C1ABF05D92A1E6EA6886839B99EF57003D3F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:208C1ABF05D92A1E6EA6886839B99EF57003D3F5
 magnet:?xt=urn:btih:708BC9105C920A9333EBDB918E464E62314237A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:708BC9105C920A9333EBDB918E464E62314237A2
 ```bash
 magnet:?xt=urn:btih:A9A889195E392DA1A024198D787DA170FD98DD9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ VA - A State of Trance - Classics Top 10, Vol. 1 (2025) [MP3|320 Kbps] <Trance, 
 magnet:?xt=urn:btih:F89ADDB6EDD97843D657C06B475A193F50E18F67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ Paul van Dyk - This World Is Ours (2025) [MP3|320 Kbps] <Trance, Progressive, El
 magnet:?xt=urn:btih:E5B54DED07DFD40EA60DD0270CBA370BFA9A0613
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:E5B54DED07DFD40EA60DD0270CBA370BFA9A0613
 ```bash
 magnet:?xt=urn:btih:4C40921D9AF7F3F4FD2A0E4BF03C48B7B5AF51FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ magnet:?xt=urn:btih:4C40921D9AF7F3F4FD2A0E4BF03C48B7B5AF51FD
 magnet:?xt=urn:btih:71ACB3FAE578C37B54437FDA3E2B33D237478AAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ magnet:?xt=urn:btih:71ACB3FAE578C37B54437FDA3E2B33D237478AAA
 ```bash
 magnet:?xt=urn:btih:9261029F18D50BA51CC1761807DDE70CF41E42D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +554,8 @@ magnet:?xt=urn:btih:9261029F18D50BA51CC1761807DDE70CF41E42D1
 magnet:?xt=urn:btih:FDFDECD03017344AC5464F3BF18CAAC58D075484
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ magnet:?xt=urn:btih:FDFDECD03017344AC5464F3BF18CAAC58D075484
 ```bash
 magnet:?xt=urn:btih:7E056093A146ADFFF7EE77FFA44AF12C8F316285
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ magnet:?xt=urn:btih:7E056093A146ADFFF7EE77FFA44AF12C8F316285
 magnet:?xt=urn:btih:431CA1BADB6695494185660ED69B8D2934489E13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:431CA1BADB6695494185660ED69B8D2934489E13
 magnet:?xt=urn:btih:92EE9896B87F9D313F09E70B7D7C270A6F6A4223
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:92EE9896B87F9D313F09E70B7D7C270A6F6A4223
 ```bash
 magnet:?xt=urn:btih:43786D7221BA42D2AB1253E49478820805545196
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +686,8 @@ VA - Охота! 87 (2019) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:F2E1F9E67C1825CC9754F9E3386ED1F95A5A3C1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

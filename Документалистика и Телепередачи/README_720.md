@@ -1,3 +1,30 @@
+###  Публикация: 972470   (983210) от 05.01.2016
+
+День космических историй. Байки из склепа  (2016.01.05) SATRip
+
+>>Документалистика и Телепередачи
+>>Космос
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый день приносит научные сенсации. Порой они опровергают незыблемые истины. Или решают глобальные проблемы, над которыми столетиями бились ученые. Но однозначно - меняют будущее человечества.
+День космических историй - это хит-парад самых новых и интересных научно-популярных программ. Каждый фильм - это увлекательное путешествие в мир сенсационных открытий. Эксклюзивные (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйПродолжительность: 00:46:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:789948DC1FBC689DA479555D6974E69699F68E57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972420   (983212) от 05.01.2016
 
 День космических историй. Свадьба монстров  (2015.01.05) SATRip
@@ -19,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:E58831D9B07180CB20EB13D425A5846EBA976204
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +74,8 @@ magnet:?xt=urn:btih:E58831D9B07180CB20EB13D425A5846EBA976204
 magnet:?xt=urn:btih:8FEB99E99642F77DBEBF0F431A83101C1C601285
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +100,8 @@ magnet:?xt=urn:btih:8FEB99E99642F77DBEBF0F431A83101C1C601285
 magnet:?xt=urn:btih:F10BFE05B11AE6E8B3C73A50F2AB320E90356D5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +125,8 @@ magnet:?xt=urn:btih:F10BFE05B11AE6E8B3C73A50F2AB320E90356D5E
 ```bash
 magnet:?xt=urn:btih:07E111300364C21C02F9CEE06DF16CD4670DD367
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +153,8 @@ magnet:?xt=urn:btih:07E111300364C21C02F9CEE06DF16CD4670DD367
 magnet:?xt=urn:btih:62B2C2B19A8FD6ADA94E09D3E7593A51EC66B67F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +178,8 @@ magnet:?xt=urn:btih:62B2C2B19A8FD6ADA94E09D3E7593A51EC66B67F
 ```bash
 magnet:?xt=urn:btih:C00E7BB4F76C3F6C40531EC8F53B0A45513FA6CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +205,8 @@ magnet:?xt=urn:btih:C00E7BB4F76C3F6C40531EC8F53B0A45513FA6CD
 magnet:?xt=urn:btih:2827D8BE3A99486832637E8928475D23B32EB99F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +231,8 @@ magnet:?xt=urn:btih:2827D8BE3A99486832637E8928475D23B32EB99F
 magnet:?xt=urn:btih:8845091D56388228238AB91BFA159AE94D95EDBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +256,8 @@ magnet:?xt=urn:btih:8845091D56388228238AB91BFA159AE94D95EDBF
 ```bash
 magnet:?xt=urn:btih:A837F7314E4E9A96B201D6C1A3D59D3FAA30C8DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +285,8 @@ magnet:?xt=urn:btih:A837F7314E4E9A96B201D6C1A3D59D3FAA30C8DE
 magnet:?xt=urn:btih:8D978825FAF530E156865C2C9C735A33B499D6F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +312,8 @@ magnet:?xt=urn:btih:8D978825FAF530E156865C2C9C735A33B499D6F5
 magnet:?xt=urn:btih:63945E678303D95DE7357320359C37F3EDC2CE80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +337,8 @@ magnet:?xt=urn:btih:63945E678303D95DE7357320359C37F3EDC2CE80
 ```bash
 magnet:?xt=urn:btih:8C355A634F334F0B86856E2FE69D1D39FE291060
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +364,8 @@ magnet:?xt=urn:btih:8C355A634F334F0B86856E2FE69D1D39FE291060
 magnet:?xt=urn:btih:49308EF5217E96B8B58197D0028AA1BBE704EEB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +389,8 @@ magnet:?xt=urn:btih:49308EF5217E96B8B58197D0028AA1BBE704EEB3
 ```bash
 magnet:?xt=urn:btih:696334519C07F68DAEFF04699415E4AA1CA2DC9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +416,8 @@ magnet:?xt=urn:btih:696334519C07F68DAEFF04699415E4AA1CA2DC9D
 magnet:?xt=urn:btih:7C481E2A3B4145B04C9B4BB7CA5FD03C62A7AA8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +441,8 @@ magnet:?xt=urn:btih:7C481E2A3B4145B04C9B4BB7CA5FD03C62A7AA8B
 ```bash
 magnet:?xt=urn:btih:FB98E5D599B7C36A76D7CECA7853B7B66BDCBB6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +471,8 @@ magnet:?xt=urn:btih:FB98E5D599B7C36A76D7CECA7853B7B66BDCBB6B
 magnet:?xt=urn:btih:6C0FA855BC7E5C1C4E9DE4051AC58D909DCB5DF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +496,8 @@ magnet:?xt=urn:btih:6C0FA855BC7E5C1C4E9DE4051AC58D909DCB5DF1
 ```bash
 magnet:?xt=urn:btih:AE1E316863E61066E857B9C987354936D2CA1B2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +524,8 @@ Viasat History: Расцвет древних цивилизаций / The Ascen
 magnet:?xt=urn:btih:CF2A50083EAE4767E190E51F1F5DB181412F9563
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +549,8 @@ magnet:?xt=urn:btih:CF2A50083EAE4767E190E51F1F5DB181412F9563
 ```bash
 magnet:?xt=urn:btih:1E69083182DB6F7E58A3B3EB2809979771E3130E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +578,8 @@ magnet:?xt=urn:btih:1E69083182DB6F7E58A3B3EB2809979771E3130E
 magnet:?xt=urn:btih:A7EEF3A2D8DD971755752A9DD705F359ADFC3148
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +603,8 @@ magnet:?xt=urn:btih:A7EEF3A2D8DD971755752A9DD705F359ADFC3148
 ```bash
 magnet:?xt=urn:btih:52C321136D499328957FCE23EB52F8864560BCF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +630,8 @@ magnet:?xt=urn:btih:52C321136D499328957FCE23EB52F8864560BCF5
 magnet:?xt=urn:btih:CC0D82A0028037BF88F71D1DC62FC9D3C80D909A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +655,8 @@ magnet:?xt=urn:btih:CC0D82A0028037BF88F71D1DC62FC9D3C80D909A
 ```bash
 magnet:?xt=urn:btih:4FF6A23074AD9CF39586CD5E64D41F73054A12D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,29 +683,7 @@ magnet:?xt=urn:btih:4FF6A23074AD9CF39586CD5E64D41F73054A12D0
 magnet:?xt=urn:btih:22712332EC8973DB19E27CA14152546B3198C671
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355148   (984864) от 25.01.2020
-
-Тренер (2019) WEB-DLRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм об одном из первых и самых известных тренеров по дзюдо в Советском Союзе Анатолии Семеновиче Рахлине. Он был наставником не только выдающихся спортсменов, но и просто выдающихся людей...Производство: Россия / Красный квадратЖанр: Документальный, спортРежиссер: Андрей ФурманчукСубтитры: ОтсутствуютПродолжительность: 00:59:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCDDDE564570291607E68D147C50B6AC684D853A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

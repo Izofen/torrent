@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:694C40E2AD225CEBFA37CC30FC615263249DB354
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Slash - 11 albums, 14 CD (1995-2024) [FLAC|Lossless|image + .cue | tracks + .cue
 magnet:?xt=urn:btih:57DAEC3F1AAA60F57819A55F9025F39B4DD73780
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:57DAEC3F1AAA60F57819A55F9025F39B4DD73780
 ```bash
 magnet:?xt=urn:btih:3B76FD97F4B7C94BF338CA767BC59AE81CEDA71F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:3B76FD97F4B7C94BF338CA767BC59AE81CEDA71F
 magnet:?xt=urn:btih:104365244510343BF6C6DBEADDCDCDD05D72275E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Premiere Pro — это мощное, гибкое и удобное средс�
 ```bash
 magnet:?xt=urn:btih:436889B7004C4767AF59FE99A23D0DECA5E9CCC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:436889B7004C4767AF59FE99A23D0DECA5E9CCC7
 magnet:?xt=urn:btih:546657AF01C18C7A17F5705A1B369D5AF92481B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:546657AF01C18C7A17F5705A1B369D5AF92481B3
 ```bash
 magnet:?xt=urn:btih:E00755C180CECE46E36DBABF17F640B6AEF05024
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:E00755C180CECE46E36DBABF17F640B6AEF05024
 magnet:?xt=urn:btih:75C60ECDBD3FA32D833376FF73F70ED73A7AF497
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:75C60ECDBD3FA32D833376FF73F70ED73A7AF497
 ```bash
 magnet:?xt=urn:btih:6E68B2AE60D1EF16B3A06BEF5B1A7284A4C004B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:6E68B2AE60D1EF16B3A06BEF5B1A7284A4C004B5
 magnet:?xt=urn:btih:6EA7E62822D126EFEBA9CC234F26EE9988D1926C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:6EA7E62822D126EFEBA9CC234F26EE9988D1926C
 magnet:?xt=urn:btih:6C6228FD734EDAFE4E0C593CCFE12A56571795EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:6C6228FD734EDAFE4E0C593CCFE12A56571795EC
 ```bash
 magnet:?xt=urn:btih:942216B689BCB1271FB7169333F9467E2DDDA81D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ Network for Everyone (NFE, N4E) | Open Shortest Path First (2024) WEB-DL [AD] [R
 magnet:?xt=urn:btih:DD3679A64A6206C2C9A7C00B23A0639ACE15BA60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Microsoft Edge WebView2 Runtime 1.3.187.37 [Ru]
 magnet:?xt=urn:btih:A94263248BDBB6DC54D85051F002542E8A37FE84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:A94263248BDBB6DC54D85051F002542E8A37FE84
 ```bash
 magnet:?xt=urn:btih:A78E958EDE6F4BBA2A2ECAA697548C21B72CA79C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:A78E958EDE6F4BBA2A2ECAA697548C21B72CA79C
 magnet:?xt=urn:btih:7AC7CC1942ABE59391FDC7FFBF5E6799C1BCCBFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ SpellForce 3 - идеальный гибрид RTS и RPG! 518 год. Так н
 ```bash
 magnet:?xt=urn:btih:F28F0505090C7D8887A8F45D18DEF68FF476DAEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:F28F0505090C7D8887A8F45D18DEF68FF476DAEC
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ RAILGRADE (2023) [Ru/Multi] (6.1.56.1) License GOG
 ```bash
 magnet:?xt=urn:btih:86C58BB3FCFF0A9A2D482DCCB76F8434755E27CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ Obsidian Полный курс
 magnet:?xt=urn:btih:17A1A897DC15EEFF68DF48EE0A32650701B80B6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ Ozymandias: Bronze Age Empire Sim (2022) [Ru/Multi] (1.6.0.10) License GOG
 ```bash
 magnet:?xt=urn:btih:FB247E264ABCFC8AC03183058CE5A5939F70CA21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:FB247E264ABCFC8AC03183058CE5A5939F70CA21
 magnet:?xt=urn:btih:D49F89BB01377B77D119AAF59412E19501483458
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:D49F89BB01377B77D119AAF59412E19501483458
 ```bash
 magnet:?xt=urn:btih:F30C27A95A90FA8F2DABCE5BF6622AB6432E14B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ StarCraft Remastered - это обновленная версия знамени
 magnet:?xt=urn:btih:D620ACC39B0E00B1B6F7FA3BA3908587FA0C06F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ magnet:?xt=urn:btih:D620ACC39B0E00B1B6F7FA3BA3908587FA0C06F3
 magnet:?xt=urn:btih:7DE58A2C48EF72997B0E48C8D998CA31C17704C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ magnet:?xt=urn:btih:7DE58A2C48EF72997B0E48C8D998CA31C17704C0
 ```bash
 magnet:?xt=urn:btih:C09A22A10E32170807F9F68076DE04BC96FEBD53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

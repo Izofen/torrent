@@ -1,54 +1,3 @@
-###  Публикация: 727375   (321820) от 27.11.2013
-
-Перси Джексон и Море чудовищ / Percy Jackson: Sea of Monsters (2013) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лагерь полукровок атакует Люк Кастеллан, который раскрывает свои планы по уничтожению горы Олимп. Наставник Перси, Хирон узнает, что Люк отравил волшебное дерево, которое отвечает за барьер, защищающий Лагерь Полукровок, и которое создано из Талии Грейс, дочери Зевса, убитой циклопом. Аннабет Чейз выясняет, что Золотое Руно может восстановить дерево, и директор лагеря, (   Читать дальше...   )Производство: США, Fox 2000 Pictures, Sunswept Entertainment, 1492 PicturesЖанр: Фэнтези, Приключения, СемейныйРежиссер: Тор ФройдентальАктеры: Логан Лерман, Александра Даддарио, Дуглас Смит, Ливэн Рамбин, Брэндон Т. Джексон, Джейк Эйбел, Энтони Хэд, Стэнли Туччи, Коннор Крэш Данн, Палома КвиатковскиПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:46:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BAD393BD716E449F20ADA1217939A94407C924F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958954   (321842) от 22.11.2015
-
-VA - Passion City Angel: 100 Mega Dance Hit (2015) [MP3|320 кб/с]<Dance, Club, Pop, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321842.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Klinx - Passion (Radio Mix)
-002. Ed Sheeran - Photograph
-003. AURORA - Half the World Away
-004. Jamie Lawson - Wasn't Expecting That(   Читать дальше...   )Жанр: Dance, Club, Pop, HouseПродолжительность: 08:07:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5711ADCD49CE7FB4A6A094D4589870AFD8F00404
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958766   (321844) от 22.11.2015
 
 Алексей Макеев, Николай Леонов | Стальное перо (2015) [FB2]
@@ -69,6 +18,8 @@ magnet:?xt=urn:btih:5711ADCD49CE7FB4A6A094D4589870AFD8F00404
 ```bash
 magnet:?xt=urn:btih:9BEA8FA517DCEB4757E00049A834E440312B83DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +44,8 @@ magnet:?xt=urn:btih:9BEA8FA517DCEB4757E00049A834E440312B83DD
 ```bash
 magnet:?xt=urn:btih:5203F67F8D9AC0C4791418BF11E61603726ED5F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +74,8 @@ Leslie West - Soundcheck (2015) [MP3|320 кб/с]<Heavy Blues Rock>
 magnet:?xt=urn:btih:BE44BE86B7CCF016C340AF92B14CFB2C9FCB3B1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +100,8 @@ magnet:?xt=urn:btih:BE44BE86B7CCF016C340AF92B14CFB2C9FCB3B1F
 magnet:?xt=urn:btih:0B828AF57BB2C7D2E1BA18D0E13FAC5C654A5C43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +125,8 @@ magnet:?xt=urn:btih:0B828AF57BB2C7D2E1BA18D0E13FAC5C654A5C43
 ```bash
 magnet:?xt=urn:btih:3165A697BE693F3716134982F36D8E811D477544
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +159,8 @@ UFC Undisputed 3  [PS3] [ENG] [PAL] [3.55] (2012)
 magnet:?xt=urn:btih:30D5BC2765A818085AA79C3579B4797D696C59E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +184,8 @@ magnet:?xt=urn:btih:30D5BC2765A818085AA79C3579B4797D696C59E5
 ```bash
 magnet:?xt=urn:btih:60E1146516185A801FA55D5DDF52330363446C87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -257,6 +220,8 @@ magnet:?xt=urn:btih:60E1146516185A801FA55D5DDF52330363446C87
 magnet:?xt=urn:btih:254A361E4F48D5BCD3ECC7BDFA8F0D8A7D0FF287
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +247,8 @@ magnet:?xt=urn:btih:254A361E4F48D5BCD3ECC7BDFA8F0D8A7D0FF287
 magnet:?xt=urn:btih:C9E909BA4A39C7DCD7892021DAF4C4FF3D7A957B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +272,8 @@ magnet:?xt=urn:btih:C9E909BA4A39C7DCD7892021DAF4C4FF3D7A957B
 ```bash
 magnet:?xt=urn:btih:8151DA4F15861EDE306B64479D2F2AAB1FD462F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +302,8 @@ VA - Lounge & Vocal Jazz (2015) [MP3|320 кб/с]<Lounge, Chillout, Vocal Jazz>
 magnet:?xt=urn:btih:8AAAFCAAEAD2F40B3CDFD13B555AA57C12EA5C7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +327,8 @@ Gedo Senki / Tales from Earthsea / Сказания Земноморья [2006] 
 ```bash
 magnet:?xt=urn:btih:48ADFAF446C80A396C7CA58D2181C2E83FE621DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +357,8 @@ Sneijder - Everything Changes (2015) [MP3|320 кб/с]<Trance , Breaks , Chillou
 magnet:?xt=urn:btih:D73B39B4472938E88092A0EEC3422F229C47CBC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +382,8 @@ magnet:?xt=urn:btih:D73B39B4472938E88092A0EEC3422F229C47CBC7
 ```bash
 magnet:?xt=urn:btih:33E9E476FFD71A737C07057103B4F3E6020A0652
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +409,8 @@ magnet:?xt=urn:btih:33E9E476FFD71A737C07057103B4F3E6020A0652
 magnet:?xt=urn:btih:AE68D8C632D406138B6322B9DA060B679F0C6952
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +434,8 @@ magnet:?xt=urn:btih:AE68D8C632D406138B6322B9DA060B679F0C6952
 ```bash
 magnet:?xt=urn:btih:F60CA2A490B3F43B775E2553949FCD46F4C72449
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +462,8 @@ Tropico 4 расширяет геймплей предыдущей игры но
 magnet:?xt=urn:btih:0D06D60F72C3EB38371B7CE07B52E42D9DFD1D9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +488,8 @@ magnet:?xt=urn:btih:0D06D60F72C3EB38371B7CE07B52E42D9DFD1D9B
 magnet:?xt=urn:btih:481DB7C26E7CD10C50CC0CADC94ECFD491F337F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +513,8 @@ magnet:?xt=urn:btih:481DB7C26E7CD10C50CC0CADC94ECFD491F337F5
 ```bash
 magnet:?xt=urn:btih:7FF13BDE163616BF7B4413F82A19B6EBAF0EC0BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +541,8 @@ Far Cry 3 (Patch/1.01) 2012
 magnet:?xt=urn:btih:2B1DA30FA4A3FB9DDF2FC3899B99117A416BC5D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +566,8 @@ magnet:?xt=urn:btih:2B1DA30FA4A3FB9DDF2FC3899B99117A416BC5D0
 ```bash
 magnet:?xt=urn:btih:E2D178D549F9573455C08683BD10DBB3FD9CE72E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +593,8 @@ magnet:?xt=urn:btih:E2D178D549F9573455C08683BD10DBB3FD9CE72E
 magnet:?xt=urn:btih:266937C3900844CE7784AFED54819523504E5028
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +619,8 @@ magnet:?xt=urn:btih:266937C3900844CE7784AFED54819523504E5028
 magnet:?xt=urn:btih:5856AE1E0BB4E2E300C5801F71199CC02EDFDD38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +644,64 @@ magnet:?xt=urn:btih:5856AE1E0BB4E2E300C5801F71199CC02EDFDD38
 ```bash
 magnet:?xt=urn:btih:AC3F5466360263DE2C998A26652B01D312F7439E
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958803   (321876) от 22.11.2015
+
+VA - Beatport Zone Of Trance Goa: November Pack (2015) [MP3|320 кб/с]<Psychedelic, Psytrance, GOA>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321876.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zen Mechanics - Off the Grid 08:06
+002. Earthling - Mandelbrot 07:50
+003. Wrecked Machines - Bandbox 07:21
+004. Tikal - Tequila 06:31(   Читать дальше...   )Жанр: Psychedelic, Psytrance, GOAПродолжительность: 12:08:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA2A098A43CCDAEE579C418788D94DD206781532
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 581815   (321877) от 28.11.2012
+
+Far Cry 3: The Lost Expeditions Edition [En/Ru] (NoDVD/1.0) 2012 | Steam006
+
+>>След.
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аспиринка от головной боли для игры. ;)
+(   Читать дальше...   )Тип издания: NoDVD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7922E8B8518FDEF68085A4BCFC55F940F358E650
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

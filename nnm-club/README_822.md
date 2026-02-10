@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:C609ED88E52DEB584F62146CD823968700E1669F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:C609ED88E52DEB584F62146CD823968700E1669F
 magnet:?xt=urn:btih:93F89A0577A370B869319E8331BF752B71EC08A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:93F89A0577A370B869319E8331BF752B71EC08A5
 ```bash
 magnet:?xt=urn:btih:3A287383DDBD4271934569F98FD95F3B8FC66C95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:3A287383DDBD4271934569F98FD95F3B8FC66C95
 magnet:?xt=urn:btih:489B08A943466AEF44E2C57003216102F2809649
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:489B08A943466AEF44E2C57003216102F2809649
 ```bash
 magnet:?xt=urn:btih:702E7474F1D5F275CCA6E78CF443844EF024F9C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:702E7474F1D5F275CCA6E78CF443844EF024F9C5
 magnet:?xt=urn:btih:EC7D1DC4343D1AEC478B69501F7DB5E9536C5FF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:EC7D1DC4343D1AEC478B69501F7DB5E9536C5FF2
 ```bash
 magnet:?xt=urn:btih:70832260465AACA7C913CC9593752DF68D035CA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:70832260465AACA7C913CC9593752DF68D035CA7
 ```bash
 magnet:?xt=urn:btih:45922864FF6B889F854C2BE8A45D2019E8EF82DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ Onyx - Lower East Side (2025) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
 magnet:?xt=urn:btih:3E9AF46A3108987D83AC1DE245EA71E9266A23D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ VA - On top of THE BLUES (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 magnet:?xt=urn:btih:6FF981E2804AC674BE8A00FB081DF83DCBACE3C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ FreeCommander XE - это довольно-таки удобный в работ
 magnet:?xt=urn:btih:9E563965D4430944CDEDB90F197EDA1373E00C8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:9E563965D4430944CDEDB90F197EDA1373E00C8D
 ```bash
 magnet:?xt=urn:btih:BDB70E717A0EFCD05B27A3BC7FE05A83CCDB64D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ VA - KaZantip [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Progressive House>
 magnet:?xt=urn:btih:7898C795A5C07F62FFFA73FB9223116A79E7D72C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ PhotoRoom v2025.15.02 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F3C232B9633D3CA598C3E79414268E700CACB10C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ PhotoCASA - красочный иллюстрированный журнал о 
 magnet:?xt=urn:btih:A164D55E5F0DAC1266E3CF92DA447797EF1F354E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ Desktop Calendar – бесплатный календарь рабочего с
 magnet:?xt=urn:btih:C92FB97F263C0EA3BE3AFF7C6AFD4EF358043B6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ magnet:?xt=urn:btih:C92FB97F263C0EA3BE3AFF7C6AFD4EF358043B6E
 ```bash
 magnet:?xt=urn:btih:87228DE2AB7A9663A9E74507D834D2C60F0EC11B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:87228DE2AB7A9663A9E74507D834D2C60F0EC11B
 magnet:?xt=urn:btih:74D010D77D8C4171BF025C4C751F6756D7F2B58D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:74D010D77D8C4171BF025C4C751F6756D7F2B58D
 ```bash
 magnet:?xt=urn:btih:5C78DB0F02A84A5515DE7EF6C2AEEA61F750134D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ EF Commander  — замечательный двухпанельный файл
 magnet:?xt=urn:btih:CF7376803C148C01D04EDE9AB2ABCDBDA4EBA599
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +556,8 @@ magnet:?xt=urn:btih:CF7376803C148C01D04EDE9AB2ABCDBDA4EBA599
 ```bash
 magnet:?xt=urn:btih:10A8A481B5321B2038861C1773319CB795A822F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ Andre Rieu - Power of Love (Live in Maastricht 2024) (2025) [FLAC|Lossless|WEB-D
 magnet:?xt=urn:btih:5FEE6F2AAE103B5546DCF9F5D676C7CCD5921939
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ VA - 12.04, Vol. 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth, S
 ```bash
 magnet:?xt=urn:btih:92328D68023EF7D8449E253098D1A77B93E9A3CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +644,8 @@ VA - Musical kaleidoscope part 37 Easy listening (2025) [MP3|320 Kbps] <Electron
 magnet:?xt=urn:btih:E434D41DEF2B2753FB03326FBE4C6A45357A380B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +673,8 @@ Eric Clapton, John Mayall & The Bluesbreakers - Blues Anthology, Vol. 3 (REMASTE
 magnet:?xt=urn:btih:FE9D2DCEE0CC2D58E4E5780365A96D8DA0EAF06B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ VA - 12.04, Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth, S
 ```bash
 magnet:?xt=urn:btih:482D36FD434E53C3E3237A3055728E446D6EF776
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

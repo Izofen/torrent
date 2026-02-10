@@ -19,6 +19,8 @@ Garmin: City Navigator Europe NTU 2026.10 [En]
 magnet:?xt=urn:btih:459490AC7AC36250ACB777845727443CF4976A59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Follow the meaning v1.1.39 [En]
 ```bash
 magnet:?xt=urn:btih:36AE81FBFEB327F5C5203DF9642CA4F373E6C025
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Cuphead — это по-настоящему «классический» пла
 magnet:?xt=urn:btih:0C78E18C5A989AE132AE5A98439B34B921950D02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Timelie v1.0.2 Mod by LITEAPKS [Ru]
 ```bash
 magnet:?xt=urn:btih:D8DF4CA7C2EE7418FBB718C48371C8B80D01C3C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Zen Life: игры с плитками v3.258 Mod by Viktorovich31 [Ru/Multi]
 magnet:?xt=urn:btih:1CF4D0AC2E560B45827A2AB7545DF8347466F495
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Ocean Match / Рыбки: Три в ряд v3.1.3 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E28F9D2A5443BD1AD8AE70F86F522F4A078ED1E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Stellarium Plus - Star Map — это приложение-планетарий,
 magnet:?xt=urn:btih:8B4B82960E99F20CDE838A6E8B3C010F4BB0E280
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Crashlands 2 v100.1.407 [Ru]
 ```bash
 magnet:?xt=urn:btih:7FF8E90394196F1548194EB616A1CA02C186579F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ ML5 также работает с устройствами с клавиату�
 magnet:?xt=urn:btih:BEC20246BB1A5195063591FE581790FFE9D4D06F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Translator / Мгновенный перевод речи v11.3.0 Mod by Alex.St
 ```bash
 magnet:?xt=urn:btih:1FABCF2E69C04DE1750FAC7B3A1C98416668F346
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:1FABCF2E69C04DE1750FAC7B3A1C98416668F346
 magnet:?xt=urn:btih:083A3B86815E774EBDC608A904517277C6925C13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:083A3B86815E774EBDC608A904517277C6925C13
 ```bash
 magnet:?xt=urn:btih:C8A3FDBEA5867788CD9291C87347E1C0C6F3ABC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ World of Goo 2 v1.0.25042604 [Ru]
 magnet:?xt=urn:btih:833716CDA763CE5A425B192B16ACC92005DD34CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Daylio - Mood Tracker / Дневник - Трекер Настроения v1.61
 ```bash
 magnet:?xt=urn:btih:E2666DAF4976D348F304547075C7CBC4727179B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ Chaplin: The Missing Pieces v4.0.3 [En]
 magnet:?xt=urn:btih:71B3C813C5C8C55C574E71F6558FCE680A5F7C9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ EMPIRE переносит сражения в реальном времени и
 magnet:?xt=urn:btih:24748208EF56FD5F6201AF912B95B4696EEB93D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ Prince of Persia™: The Lost Crown - это приключенческий пл
 magnet:?xt=urn:btih:1254A6E3E2A38384EC424BB4B7D6F8259B2AE545
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:1254A6E3E2A38384EC424BB4B7D6F8259B2AE545
 ```bash
 magnet:?xt=urn:btih:5730F83360FEA6F93948A23EAFFCCDEAC5F4C533
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ GRID Legends: Deluxe Edition включает в себя все DLC-пакет�
 magnet:?xt=urn:btih:12C17B8B9D10EE039A97FBA647E172BD6CC4D06D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:12C17B8B9D10EE039A97FBA647E172BD6CC4D06D
 magnet:?xt=urn:btih:FA0CFC7A63F20F2BF7C776A5327166BDD1E493C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ RAR компании RARLAB способен создавать RAR и ZIP и р
 ```bash
 magnet:?xt=urn:btih:A34070752FF29391A00443FCC2B753416BC85C85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ SoundHound — ваше лучшее музыкальное приложение
 magnet:?xt=urn:btih:B2C77043E5AE59EB1B19DA1C813BB7825522046A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:B2C77043E5AE59EB1B19DA1C813BB7825522046A
 ```bash
 magnet:?xt=urn:btih:BF8CB6D7170EC29B9FE42DFE3114E2A5275035D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ tTorrent - удобный, функциональный и из-за прочи�
 magnet:?xt=urn:btih:BEDBB9EF49A45C23C479C227C57B657D0A4E7A04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ BlockSudoku / Кудоку-Вуди Блок v2.6.0 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3C0E33DBBFC2BFD001013FFFA17AB223E78A9D05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +681,8 @@ magnet:?xt=urn:btih:3C0E33DBBFC2BFD001013FFFA17AB223E78A9D05
 ```bash
 magnet:?xt=urn:btih:B6C5B97CAEAB230DB539E7AD1333B6A4F6134C4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

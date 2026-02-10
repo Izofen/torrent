@@ -22,6 +22,8 @@ VA - Balkan Connection Summer 2020 (2020) [MP3|320 Kbps] <Progressive-House, Dee
 magnet:?xt=urn:btih:3B7D174042CCF55C99DFA3A25DF28A26670C8B9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Royal Gigolos - California Dreamin' (2004) [FLAC|Lossless|tracks + .cue] <House,
 ```bash
 magnet:?xt=urn:btih:93F2FD11F3BB39B059D777D8431E51AFC5A633EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Sport Music 2020 [MP3|320 Kbps] <House, Electro House>
 magnet:?xt=urn:btih:49ACA535FEB914FC59D6E481229F0B0A28D1620B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Giorgos Zaras - 2 Albums (2013, 2017) [MP3|320 Kbps] <Electronic, New-Age, Ambie
 ```bash
 magnet:?xt=urn:btih:8BA681F82090318A34AD1E6534B5A2B3A0942249
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Alcove - Universal Implication (1994) Visible Records [FLAC|Lossless|tracks+.cue
 magnet:?xt=urn:btih:FEDCFDB2CD47964378E38AA15CE74F5571E6AAF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Sylver - Turn The Tide (2000) Maxi Single [FLAC|Lossless|tracks] <Trance>
 ```bash
 magnet:?xt=urn:btih:6354255CFC0F443142BC6F2FE6AB17765815B671
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Stars As Eyes - Loud New Shit (2003) [FLAC|Lossless|tracks + .cue] <Leftfield, A
 magnet:?xt=urn:btih:F3B1E6F139855E4629EE10CF74A661F64A3F4242
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Bruno Sanfilippo - Pianette (2019) ad21 [FLAC|Lossless|WEB-DL|tracks] <Modern Cl
 ```bash
 magnet:?xt=urn:btih:033DF0724911EEA9FBDEA1A1C984C8F5D47E0F46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Experimenta (1994) A13 [FLAC|Lossless|tracks+.cue] <Electro, IDM, Techno>
 magnet:?xt=urn:btih:73313D3DF786E9F8BB1C4777CD74CAA61C589219
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - 80s Comeback Hits Remixed & Reloaded (2017) [MP3|320 Kbps] <Funky, Club Hou
 ```bash
 magnet:?xt=urn:btih:D8EBA0E4685FA468155354017F2BC5B9F30C937D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Afterlife - Reimagine (2017) [MP3|320 Kbps] <Electronic, Ambient, Chillout>
 magnet:?xt=urn:btih:0B3D0F3F4C9A1AD730CB9BE4E587F62FC84F2019
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Spring Lounge 2017: Chill Sounds Like Sunshine (Mixed by DJ Maretimo) (2017
 ```bash
 magnet:?xt=urn:btih:E64B42F97C98288DFD99B22B37E3A464E0A2C486
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Special Sport Songs 7 (2017) [MP3|320 Kbps] <House, Dance, Club>
 magnet:?xt=urn:btih:FC00DBE832F2856ACADBBBEF728B7142EB320362
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ magnet:?xt=urn:btih:FC00DBE832F2856ACADBBBEF728B7142EB320362
 ```bash
 magnet:?xt=urn:btih:33CAA18E9D86966032C6759EF558608D73553A2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Dense - Tide Forger (2017) [MP3|320 Kbps] <Ambient, Downtempo, Psychill>
 magnet:?xt=urn:btih:31988527F9C94E7845F5B90F51A532264AA158B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - Sirup Deep Anthems Mykonos (2017) [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:E7C5A5ADED71F27418AA37DEEAA04713D480B581
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - Unique Sense In Miami (Mixed by Abstract Vision) (2017) [MP3|320 Kbps] <Tra
 magnet:?xt=urn:btih:0F1E09494534FB19C952754FE65E48ACB3120F8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ VA - Trance Mission (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:87D827C967587C63B84D94FEA2DB479B466B845C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ Dense - Bellwether (2018) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] <Psyb
 magnet:?xt=urn:btih:7BD78D19AD8C43B6BA2011DAAAD0508E9BF9334C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ VA - Wake Your Mind Sessions 003 (Mixed by Cosmic Gate) (2018) [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:196F26713A3EFFC23007F25C6F710B3BDDC41E64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ VA - Black Hole Trance Music 03 (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:23A6A0C24D3A629CC13490E62F8301BE55562978
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ VA - Funky Disco House Grooves Vol.09 (2018) [MP3|320 Kbps] <House, Indie-Dance,
 ```bash
 magnet:?xt=urn:btih:0213CDFAE63E302F2CFA16F93B9AD6D0E32C93B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ VA - High Class Fitness Session (2018) [MP3|320 Kbps] <Minimal, Tech House>
 magnet:?xt=urn:btih:01FC7FFF3510C1F337D646B8D09CDEBD29960FEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ VA - Global DJ Broadcast: Top 20 March (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:F1902429B0EB6144695371EE181DAF9446FF2EC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ VA - Aegean Chill (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:ECF40F1F3F844B35A6D0EC417CA39C0A2CF4A49A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ The Flying Mars - Cosmochemistry (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychill,
 ```bash
 magnet:?xt=urn:btih:C589E21B60F2755C39301FD733EC8EC7F2D97C97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

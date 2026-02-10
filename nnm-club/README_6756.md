@@ -19,6 +19,8 @@ FX Player Pro - универсальный медиаплеер который �
 magnet:?xt=urn:btih:95E29F0F7308074260B6640BA983590D41E9692F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Icecream PDF Editor PRO - программа для поистине прост�
 ```bash
 magnet:?xt=urn:btih:061AEDF6F8DD598A434A0DF09E51E8B55311301E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ VA - Сектор газа. Народный трибьют 1 часть (2022) 
 magnet:?xt=urn:btih:3173799371E6FB2C34E3AA4B72B2DE45D464CB3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ LibreOffice - офисный пакет с открытым исходным к�
 ```bash
 magnet:?xt=urn:btih:430617471D7EBF11D4A3E180CB689AD8B45F6F2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:430617471D7EBF11D4A3E180CB689AD8B45F6F2E
 magnet:?xt=urn:btih:E1E6D8844510CF55833625D71D4B91AC0451AC44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:E1E6D8844510CF55833625D71D4B91AC0451AC44
 ```bash
 magnet:?xt=urn:btih:763D037A626B9E2B327BD8E5D24634747E6DE331
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ PDFCreator –  бесплатная программа для конверти�
 magnet:?xt=urn:btih:6B2DD8A57DC4841E35F3C2F3CA00F03037999820
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:6B2DD8A57DC4841E35F3C2F3CA00F03037999820
 ```bash
 magnet:?xt=urn:btih:EC61B81363E402A6187B225AF84DC971D00F3B8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ PhotoCASA - красочный иллюстрированный журнал о 
 magnet:?xt=urn:btih:57713664462010F52A54BA7A9E8A5E5C1260490A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:57713664462010F52A54BA7A9E8A5E5C1260490A
 ```bash
 magnet:?xt=urn:btih:28815A12900DF586381260ACB17B771FC985284A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Gumroad, Rachel | Modeling a Scifi Helmet in Blender 2.8 (2020) PCRec [EN]
 magnet:?xt=urn:btih:E2EDF0B226718AB56BF7CADAFF3BFA9C0764C05F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ YouTube, Rachel | Scifi Hardsurface Glove Time-Lapse in Blender 2.9 (2022) PCRec
 ```bash
 magnet:?xt=urn:btih:C7B732D69B7C384FCC03886B8715ABC2AB0A5835
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:C7B732D69B7C384FCC03886B8715ABC2AB0A5835
 magnet:?xt=urn:btih:78A6C7E943ABB4E3857CC033C617A49179415490
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Adguard – интернет-фильтр для защиты пользоват
 ```bash
 magnet:?xt=urn:btih:3FA03BE2A1F36D965782F7D115F03E28E5AF1B99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:3FA03BE2A1F36D965782F7D115F03E28E5AF1B99
 magnet:?xt=urn:btih:5DCB146626C547BA38A4302B24B64357E4A0677D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Aiseesoft FoneLab for Android — это популярный инструмен
 ```bash
 magnet:?xt=urn:btih:F59CD2F1BEB22817D954B96A8EA47391E52C2286
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ Persevera - Genesis (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:D0148C42EDC10740528BF39A99FE9B67D7904F7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:D0148C42EDC10740528BF39A99FE9B67D7904F7D
 ```bash
 magnet:?xt=urn:btih:F6C7114DE9383652FAD52B41DAEEE332364C0E6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ Aeon Sable - Aenigma (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock, Hard Roc
 magnet:?xt=urn:btih:504EB43A365CBF0B494D9B855FD9262F85B69835
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:504EB43A365CBF0B494D9B855FD9262F85B69835
 ```bash
 magnet:?xt=urn:btih:7FE9BC15141D9EAF3717CD045E4F89E854F5C193
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ Samuel Keen - Metamorphosis (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard & Heavy>
 magnet:?xt=urn:btih:CC3A728AA58783A1B6F7589ACA0B5D8C55D04B1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:CC3A728AA58783A1B6F7589ACA0B5D8C55D04B1E
 ```bash
 magnet:?xt=urn:btih:52CF1169ED86CFBD9922D60FF018FEFC916E50BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +607,8 @@ Necroart - The Highest Law (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death M
 magnet:?xt=urn:btih:C08F498DD3F2B64DEF48FF70BD70A2523E515D0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ Udemy, Victor Deno | Blender: Ultimate Game Art Creation Guide (2022) PCRec [EN]
 magnet:?xt=urn:btih:3F21F5916B5F914C1F5933C58CFBF4FFD56D2AB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ Boxy SVG 4.8.0 [En]
 ```bash
 magnet:?xt=urn:btih:5BBE12DCFDEF6859DAD7B5E8F99D87E151165632
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +688,8 @@ ru-ru_windows_10_business_editions_version_22h2_x64_dvd_61849fe8
 ```bash
 magnet:?xt=urn:btih:C7FB781E077CF57A8775BD32F7A95DA3674021F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

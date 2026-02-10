@@ -22,6 +22,8 @@ Silence of Her Death - 1 Album, 7 Singles (2018-2022) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:8FE2C7441A760230EE1FD7B376555A39A4BD93AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Auslogics Duplicate File Finder поможет Вам избавиться от 
 ```bash
 magnet:?xt=urn:btih:CB71F29AFAC9651E50C06F6B5EE75584683CC5BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:CB71F29AFAC9651E50C06F6B5EE75584683CC5BA
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ EaseUS Data Recovery Wizard служит для восстановления у�
 ```bash
 magnet:?xt=urn:btih:D7D3ADA58463BEB433C27AB01CC0B0FD2F8FAB2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Primal Fear - 17 аlbums, 37 CD (1998-2023) [FLAC|Lossless|image + .cue] <Heavy 
 magnet:?xt=urn:btih:A08071F4E0A55EF248BDC5F45ED1E91A0CFE4568
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ XnView - утилита, предназначенная для просмотр�
 ```bash
 magnet:?xt=urn:btih:88678B1B8487814C5DC6ED427FD808EA7CFAEF2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ VeraCrypt - бесплатный инструмент для шифровани�
 magnet:?xt=urn:btih:9F2741E0B2513078AC9F1E58302E0F73D8BF985D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:9F2741E0B2513078AC9F1E58302E0F73D8BF985D
 ```bash
 magnet:?xt=urn:btih:4C7817D72B49D2356594521214510872FA5A73B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:4C7817D72B49D2356594521214510872FA5A73B8
 magnet:?xt=urn:btih:021B7E700EBEC661C0EAF8DD7C0BBC22D9C551FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:021B7E700EBEC661C0EAF8DD7C0BBC22D9C551FB
 ```bash
 magnet:?xt=urn:btih:2F6E1DFF6E5D12B91160E4AEB4572F604F67C2D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ Lone Runner - Memories of 2082 (2022) [FLAC|Lossless|WEB-DL|tracks] <Retrowave, 
 magnet:?xt=urn:btih:0C604ED33F2C720769CC7D33FE309E90CB6ACBC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:0C604ED33F2C720769CC7D33FE309E90CB6ACBC1
 ```bash
 magnet:?xt=urn:btih:34EA5D2A6610D6C0947E2875BBE048DED6AFDBC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:34EA5D2A6610D6C0947E2875BBE048DED6AFDBC7
 magnet:?xt=urn:btih:F9048D526D816FA98160E26C4B3A6D11360489B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ Topaz DeNoise AI 2.3.5 RePack (& Portable) by TryRooM [En]
 ```bash
 magnet:?xt=urn:btih:A74CDFFA2F73428DB9E72915CA9ABDBE10ED4F0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ Nikolo Kotzev - 11 Albums, 12CD (1992-2023) [FLAC|Lossless|image + .cue] <Hard R
 magnet:?xt=urn:btih:6611F8EA9195E887E3162D8DAE8805B9D0B034A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ Glary Tracks Eraser - полезный инструмент для защиты 
 ```bash
 magnet:?xt=urn:btih:45B494329903BA162ADAA980F88F170AB1DAD2A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ magnet:?xt=urn:btih:45B494329903BA162ADAA980F88F170AB1DAD2A0
 magnet:?xt=urn:btih:36D0BBAC4181571387BC9023EF236AB4AD4AD42B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:36D0BBAC4181571387BC9023EF236AB4AD4AD42B
 ```bash
 magnet:?xt=urn:btih:9EAADA6A0B432209FF88B2B91BB42CB819ED77D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ magnet:?xt=urn:btih:9EAADA6A0B432209FF88B2B91BB42CB819ED77D8
 magnet:?xt=urn:btih:20666C3E7CF30C69D3D542AEC0DA13D12F3A7540
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ Abomi Nation (2021) [Multi] (1.3.1) License GOG
 ```bash
 magnet:?xt=urn:btih:5F7492251E13097DFC634EF654CB2E8DA0EBE81B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +556,8 @@ Robert Miles - Dreamland (1996) [OGG Vorbis|650 Kbps] <Electronic, Dream, Trance
 magnet:?xt=urn:btih:6A8B9394C088756EF2C1B69871C813F1FCA31CD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ Q-Dir позволяет получать быстрый доступ к час�
 ```bash
 magnet:?xt=urn:btih:B4A08D9289F84186A3799666389D0759BCBBD254
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +610,8 @@ magnet:?xt=urn:btih:B4A08D9289F84186A3799666389D0759BCBBD254
 magnet:?xt=urn:btih:306F2184C057F4C680F5882552D60740A91B03AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ Google, Netflix и других IT-гигантов захотели заста�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +665,8 @@ White Spirit - Right Or Wrong (2022) [FLAC|Lossless|image + .cue] <Melodic Hard 
 magnet:?xt=urn:btih:CDAD8FBA50846C1B38393B7B5B3D04822F8374A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ Otavio Santana, Karina Varela | Persistence Best Practices for Java Applications
 ```bash
 magnet:?xt=urn:btih:E4140E3B9A27C0F11D9EE2EA92243F1AB7E85B8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

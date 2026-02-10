@@ -19,6 +19,8 @@ Panzer Corps 2 - Field Marshal Edition - ультимативное люксов
 magnet:?xt=urn:btih:2500154D517319C7E4A7BD3513746325A9DE5B86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Galactic Civilizations IV (4) (2023) [Ru/Multi] (2.95/dlc) Scene Rune [Supernova
 ```bash
 magnet:?xt=urn:btih:163237E52CCD443409EF39CA06DC7637DF81ACA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Knights in Tight Spaces (2025) [Ru/Multi] (1.0.18525) Repack FitGirl [Collector'
 magnet:?xt=urn:btih:5169FF73A75685C20B3E8A29D12444EAA4F54C87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Old World - это историческая стратегия, в которо�
 ```bash
 magnet:?xt=urn:btih:48DB76FCF63549EC788590F2FB5FE9F0683311FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Might and Magic: Heroes VI / Might & Magic: Heroes VI / Герои меча и �
 magnet:?xt=urn:btih:BA755C8618BAEAEEBCECB855ACA903F5B964A5B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Door Kickers 2 Task Force North – великолепное сочетание 
 ```bash
 magnet:?xt=urn:btih:6E39EA674773F8ECF8D59C3F97F2369E06A97F77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ FRONT MISSION 1st: Remake - атмосферная тактическая пош
 magnet:?xt=urn:btih:B528C9313975A21CC145E5F2ED902F9BF574F3D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Galactic Civilizations IV (4) (2023) [Ru/Multi] (2.95/dlc) Repack seleZen [Super
 ```bash
 magnet:?xt=urn:btih:DD64869BF38C850BA7345CEF92F87C956D9991AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Victoria 3 - прямой сиквел одноименной игры, где �
 magnet:?xt=urn:btih:75B4A6D93ED95F1AE0F484BCD4C08B795DA8CAA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Dune Spice Wars – стратегический игровой проект, г
 ```bash
 magnet:?xt=urn:btih:FF4C971B2FC1A464AFB3845C60650FE616F781FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Secrets of Magonia (2024) [Ru/Multi] (1.10с) Repack Let'sРlay
 magnet:?xt=urn:btih:B845ED4C9874C6F0E08D9F6606595F010946EE41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Fantasy General II (2019) [Ru/Multi] (01.02.12913/dlc) Repack Let'sРlay [Comple
 ```bash
 magnet:?xt=urn:btih:78AF4702CB96DC14D71337A16E95C935B9867FD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Door Kickers 2 Task Force North – великолепное сочетание 
 magnet:?xt=urn:btih:1CCA36A80CACB8A06755A75B808D3FA2197EE75C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Door Kickers - инновационная стратегия в реальном
 ```bash
 magnet:?xt=urn:btih:1D71F6965C45D1E121134B6BB9BE1577A5F67B6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Thronefall (2024) [Ru/Multi] (2.12) Repack Let'sРlay
 magnet:?xt=urn:btih:C8193F30C750CA02B837FFFDE351BC66C2D0988E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Sumerian Six - это не типичная военная история. Ко�
 ```bash
 magnet:?xt=urn:btih:C0BD73053ED36CAF94FF6259E5300763A863F8C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Exogate Initiative (2023) [Multi] (1.0.0.97bd92b) Repack FitGirl
 magnet:?xt=urn:btih:6BD9CE6812E40EBE2C5D2FF0428A1D7DA6D63F0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Status One - это тактический шутер в 3D с видом све
 ```bash
 magnet:?xt=urn:btih:97AC44D92E6699EF3A8BDF270D43411D7E257A79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ The Great War: Western Front - это проработанная стратег�
 magnet:?xt=urn:btih:9E01D64C423FDF24C05AC21D5465800C4575C34F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Terra Exodus - экспериментальная экшен-стратегия 
 ```bash
 magnet:?xt=urn:btih:27AEBEFB52E9FD19EDC08C5AD0B5BDD61BA9BB0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Dynasty Warriors: Origins (2025) [Multi] (1.0.0.2/dlc) Repack DjDI [Digital Delu
 magnet:?xt=urn:btih:F7A99B740E3F488E615F0A2E7E8A8BA67D827FC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Root (2020) [Ru/Multi] (1.32/dlc) Repack Let'sРlay [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:546C56BFA50E0782D5F917686C9190C96F034EC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Dynasty Warriors: Origins (2025) [Multi] (1.0.0.2/dlc) Repack FitGirl [Digital D
 magnet:?xt=urn:btih:1693BC80BAFC2A257B8592385F666073CF8B80C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Galactic Civilizations IV (4) (2023) [Ru/Multi] (2.92/dlc) Repack FitGirl [Super
 ```bash
 magnet:?xt=urn:btih:9D3E9F56B2006AD844F2C17A455F6C4D2995B010
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Red Solstice 2: Survivors (2021) [Ru/Multi] (3.16/dlc) Repack Wagner
 magnet:?xt=urn:btih:FF3E2DD8EB58F63904EE465F71A8A5A115CD4282
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Toy Tactics - основанная на законах физики страте
 ```bash
 magnet:?xt=urn:btih:1B2C55CE3E5BD3321773B95A0D2C510BFE0EA3DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Tale of Imerion (2002) [Multi] (1.0.3) License
 magnet:?xt=urn:btih:8D045925FFB408E2503F8CCFB2E8781FBB03F676
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Conqueror A.D. 1086 (1995) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:91D0693EF8502909F11B19D791732507903DA2A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Supreme Ruler 2020. Курс доллара обвалился за одну н�
 magnet:?xt=urn:btih:8F00163D2A5161B763538758FBB434CFF9550093
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Stronghold: Crusader II - это долгожданный сиквел ориг�
 ```bash
 magnet:?xt=urn:btih:3BE06E6A82829732BEAC081A642815A7070D0F56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Civilization VI предлагает множество новых способ�
 magnet:?xt=urn:btih:C09F26C95F79E792C374575BB5A774CE189A056F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Emperor of the Fading Suns / Император Угасающих Звёзд (1
 ```bash
 magnet:?xt=urn:btih:4D6950EA464DE78930A55F1B349EB89D6D8BDB5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Rise of Legends, помимо всего прочего, содержит реж
 magnet:?xt=urn:btih:CD27A9CBA7F3FBF3D191296A1F2F59F927CE2E3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Age of Wonders - красивая походовая стратегия в фэ�
 ```bash
 magnet:?xt=urn:btih:19BAB03064265CDBBE8D4DC8D77D4064E7EC8B2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Imperial Glory – стратегия, в которой вам предстои
 magnet:?xt=urn:btih:430FD8745508954651826CE6C7F5FC48F4355671
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Imperial Glory (2005) [Ru/Multi] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:9425A8814BB6C271CD22924EF30B6832CC459EE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Age of Empires III: Definitive Edition — новая веха для культ
 magnet:?xt=urn:btih:BD498567D3B6BAB2453728EB3918CBCB61EF6F14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Gears Tactics - динамичная пошаговая стратегия, со
 ```bash
 magnet:?xt=urn:btih:E12C6706BE0C1D44E1067CF6219F6DB9D2EDB43B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Myth III (разработчик Mumbo Jumbo) представляет собо�
 magnet:?xt=urn:btih:15A7881D8DCB634B0BA440C60215E24B3662598D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Overland (2019) [Ru/Multi] (840) License GOG
 ```bash
 magnet:?xt=urn:btih:110C08249EBC0A2F2BAE174D133F78924569B552
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Endless Legend (2014) [Ru/Multi] (1.6.10 S3/dlc) Repack R.G. Catalyst
 magnet:?xt=urn:btih:71A34F6E2099FF89ACFF7F87613E42C497DEA89A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Master of Orion 3 / Master of Orion 3: Престол Галактики (2003) 
 ```bash
 magnet:?xt=urn:btih:E498028156CF8DCD5550E8BBB286B6CB638B5620
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Age of Wonders III - это современное переосмысление 
 magnet:?xt=urn:btih:2DDE61A95BEFFBD856780B7FA3262AE78B149035
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Stronghold HD (2012) [Ru/Multi] (1.3) License PROPHET
 ```bash
 magnet:?xt=urn:btih:1BCD3A5B00C400EF7DEC96E96276B3BD35E829B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Conan Unconquered (2019) [Ru/Multi] (1.143 build 703634) Repack xatab
 magnet:?xt=urn:btih:A1D0EC3D9137E405F685C0875E3FE89DF7234084
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Homeworld: Deserts of Kharak (2016) [Ru/Multi] (1.2.1/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:376DF6D8B5504EBBB4F383AF9968C2E252F6CDCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ Overland (2019) [Ru/Multi] (1.0) License SKIDROW
 magnet:?xt=urn:btih:01CDA18AF16901BDABCD16282F2137E69D1C036F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ Dungeons 3 (2017) [En] (1.2.1/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:8177EE43AF100AF38D1CAA78A6D14CB9FAB720F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ Stronghold Legends (2009) [Ru/Multi] (1.3) License PROPHET [Steam Edition]
 magnet:?xt=urn:btih:03C05F7564AB4AD17E9EA6042260B41105F9D0DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ Dungeons 3 (2017) [Ru/En] (1.2) Repack Covfefe
 ```bash
 magnet:?xt=urn:btih:D6CB2C52A5B3CFA4FE232DD2F7E0DCA4F2E9BAE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ Battlevoid: Harbinger – это сложная игра в жанре косм�
 magnet:?xt=urn:btih:46C3D1151D55B816B0AD15F5ED87F34F3568732C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Mordheim: City of the Damned – это первая видеоигра, сде�
 ```bash
 magnet:?xt=urn:btih:C12B547F04106B826C3D5E90D4D7D2B208885041
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

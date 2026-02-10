@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ The Steve Miller Band - 4 альбома (1976-2011) [DTS 5.1|tracks (Upmix)]<He
 ```bash
 magnet:?xt=urn:btih:D34B3A96B467D45B40274DD44E7C8AB8B9FE6073
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:D34B3A96B467D45B40274DD44E7C8AB8B9FE6073
 magnet:?xt=urn:btih:D3B73C63A140F1287935079AD4267CAE0933C4EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:D3B73C63A140F1287935079AD4267CAE0933C4EE
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:D3B73C63A140F1287935079AD4267CAE0933C4EE
 magnet:?xt=urn:btih:14500BBFD0975D2917BF27D60023B1610FEEBFC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:14500BBFD0975D2917BF27D60023B1610FEEBFC5
 ```bash
 magnet:?xt=urn:btih:961E02C4A134A47B332896152308ECCBB5929A5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:961E02C4A134A47B332896152308ECCBB5929A5D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:961E02C4A134A47B332896152308ECCBB5929A5D
 ```bash
 magnet:?xt=urn:btih:12C1E5CC517831E60D8DC16650D55FAFA8DD20B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:12C1E5CC517831E60D8DC16650D55FAFA8DD20B8
 magnet:?xt=urn:btih:FAC604A4846EB36F6030E7734EF2C2093A016493
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:FAC604A4846EB36F6030E7734EF2C2093A016493
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:FAC604A4846EB36F6030E7734EF2C2093A016493
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ Hardcoded Software dupeGuru Pack by Wadimus [04.04.12] [Rus]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ Hardcoded Software dupeGuru Pack by Wadimus [04.04.12] [Rus]
 magnet:?xt=urn:btih:D18286195C922EF38279758E39B5A4E1AE7AEF83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:D18286195C922EF38279758E39B5A4E1AE7AEF83
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:D18286195C922EF38279758E39B5A4E1AE7AEF83
 magnet:?xt=urn:btih:1CD98DDE1BE2DC9D668FA84401D41F42BF0519AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ magnet:?xt=urn:btih:1CD98DDE1BE2DC9D668FA84401D41F42BF0519AE
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ magnet:?xt=urn:btih:1CD98DDE1BE2DC9D668FA84401D41F42BF0519AE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ Civilization 2 Test of Time (Rip) [Ru] 1999 | Pilotus
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +537,8 @@ Civilization 2 Test of Time (Rip) [Ru] 1999 | Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ Civilization 2 Test of Time (Rip) [Ru] 1999 | Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ Keyhunter WPI - Бесплатные программы 20120407 (x86/x64/ML/RUS
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +617,8 @@ Keyhunter WPI - Бесплатные программы 20120407 (x86/x64/ML/RUS
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +642,8 @@ Keyhunter WPI - Бесплатные программы 20120407 (x86/x64/ML/RUS
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +669,8 @@ Keyhunter WPI - Бесплатные программы 20120407 (x86/x64/ML/RUS
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ Keyhunter WPI - Бесплатные программы 20120407 (x86/x64/ML/RUS
 ```bash
 magnet:?xt=urn:btih:7A5C9A77C5EC754D3838DF869EDB03DDBDB9FB53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

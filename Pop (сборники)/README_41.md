@@ -1,3 +1,38 @@
+###  Публикация: 563021   (404877) от 21.10.2012
+
+VA - СуперДискотЭка 90-х Часть 2 (2012) [MP3|128 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404877.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Руки Вверх - Ну где же вы девчонки
+002. Bellini - Samba De Janeiro
+003. Отпетые Мошенники - Хали-гали
+004. Samira - I Was Him
+005. Профессор Лебединский - Бэса ме мучо
+006. Scooter - I Was Made For Lovin’ You
+007. Комиссар - Наше время пришло
+008. E-Type - Hero I Go Again
+009. Валерий Меладзе - Лимбо
+010. Sash! - Adelante(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 12:40:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47F36CC3600227A6982225D15286B9B4D7F43158
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 563579   (404902) от 21.10.2012
 
 VA - Самые популярные песни радиостанций #3 50/50 (2012) [MP3|128 кб/с]<Pop>
@@ -27,6 +62,8 @@ VA - Самые популярные песни радиостанций #3 50/5
 ```bash
 magnet:?xt=urn:btih:13F911BA032B5954CB0E9F20C137A2DA88F01AB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -61,6 +98,8 @@ VA - Чисто Наши Новинки (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:0D522959B93CE089078C0003CFF274F3186F4F17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +132,8 @@ VA - Русское радио: Only Best Hits Осенний (2012) [MP3|256 к
 ```bash
 magnet:?xt=urn:btih:AF0B7BA3405EE4DF1FD3A7BDB7668B9814C374CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +168,8 @@ VA - Муз-тв Хитовая 100-ка (2012) [MP3|256 кб/с]<Поп>
 magnet:?xt=urn:btih:8D81273DE42301194730E05545D8EB2EEFBF51A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -160,6 +203,8 @@ VA - Позитивная музыкальная энергия (2012) [MP3|256 
 magnet:?xt=urn:btih:EF9C1AED135BE60CC72A695819F990580AD21694
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +232,8 @@ VA - The Official UK Top 40 Singles Chart (14-10-2012) [MP3|320 кб/с]<Pop, Ro
 magnet:?xt=urn:btih:69B1749BE1E1884CADE0B3078F6E118618D9C3C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +260,8 @@ VA - Лучшие новинки сезона Vol.4 (осень 2020) (2020) [MP
 ```bash
 magnet:?xt=urn:btih:554B797CEFF4EAB7ACFE867C33A3C27C94195E6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +296,8 @@ VA - D-скач 90-х Russian Dance Mix (2012) [MP3|256 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:3DFFCB696CD2E5D29768C433DDFA397F82F8F71F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +330,8 @@ VA - German TOP100 Single Charts (13.10.2012) [MP3|192-320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:C0F0CE1A78D795FE9238ECB6FCA9D4CA974B0E14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +366,8 @@ VA - Радио Шторм - NeРусский Шторм - 74 (2012) [MP3|320 к
 magnet:?xt=urn:btih:4B571A746264B41731D8C53B7E6F8A173F9FD34E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +394,8 @@ VA - Фея Дождя. Песни на стихи Франчески Тотти
 ```bash
 magnet:?xt=urn:btih:BA6D69BC77F76C083B15C2738347237305BAE8CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +430,8 @@ VA - Осенний Плей-Лист 50/50 (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:3502F2C19C27EF6EB7DA8532DA6BCB923925BFAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +458,8 @@ VA - Популярный драйвовый хитовичок. Выпуск 8 
 ```bash
 magnet:?xt=urn:btih:37090EBF160D1174C2D8DB3ABB4386288F0970A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +488,8 @@ VA - Осенняя позитивная 100-ка. Сборник 6 (2016) [MP3|
 magnet:?xt=urn:btih:7F78FEACD03DD0095D5697D1FC2D9368CB56899F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +516,8 @@ VA - Осенняя клубничка №10 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:0B4412D4A7588C45B49646A65B9C9FA82935FE44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +552,8 @@ VA - Радио Шторм - Русский Шторм - 73 (2012) [MP3|320 кб
 magnet:?xt=urn:btih:9841F7CD86729F5760EC7C033E4C529DDEF05AE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +580,8 @@ VA - 200 Hits Of The Pops (2018) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:F6AB8272696B2F170B01190262AB43E092EB2803
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +610,8 @@ Eros Ramazzotti - Next Steps (2018) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:4A7B7F7FD831D1FEBCC04655C1E7918E10ABEC47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +638,8 @@ VA - German Top 100 Single Charts 02.10.2020 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:05EFBC528CE69FCBA3D4E70FBBE39D2EDF34216B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +668,8 @@ VA - Попсовый мегахит от Русского радио (2016) [MP
 magnet:?xt=urn:btih:404CEC59E4A5FB57A59F37B80B8252B9C081E364
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +696,8 @@ VA - Hottest Autumn Hits (2020) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:500D8CC6D03C3B93A7FFB3E6A0C038331C15B98A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -655,6 +732,8 @@ VA - Русский Размер (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:8D271C420EECFA6B2F9E539DDD19A3559DE46E99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -681,6 +760,8 @@ VA - Попсовая соточка Хит fm. Версия 2 (2016) [MP3|256 K
 ```bash
 magnet:?xt=urn:btih:B39AB65D0DC083768177B3299ADD4BCC5C1A8BBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -709,6 +790,8 @@ VA - Мега хитовая Осень 6 (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:878C91606EC916E01C618E8528EA3FBCB44FB2D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -736,32 +819,7 @@ VA - Заключительная осенняя дискотека. Часть 
 magnet:?xt=urn:btih:1089B3B7B53F1CBC62E39A41837D23487B282338
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948652   (410704) от 20.10.2015
-
-Queen - 25 Best Songs (2015) [MP3|~245 кб/с (V0)]<Pop-Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Show Must Go On 1991 (04:24)
-02. I Want To Break Free 1984 (04:19)
-03. Under Pressure 1982 (03:57)
-04. I'm Going Slightly Mad 1991 (04:09)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:47:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84EAB9B3B2057107244070D34263182926950A55
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

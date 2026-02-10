@@ -1,3 +1,29 @@
+###  Публикация: 988862   (918680) от 21.02.2016
+
+Алексей Беба | Учебный центр на "Отлично". Руководство по развитию учебного центра от идеи до масштабирования (2016) [FB2]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_918680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга будет полезна руководителям школ танцев, творческих курсов, школ актёрского мастерства и ораторского искусства, тренинговых центров, центров изучения иностранных языков, вокальных и музыкальных курсов, курсов по подготовке к ЕГЭ, спортивных кружков, а также любых других обучающих организаций.Жанр: О бизнесе популярно, Управление, подбор персоналаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:294838EBA54EBA9F32E2715605D8EB27060F3935
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096602   (918698) от 24.01.2017
 
 Гэвин Кеннеди | Договориться можно обо всем! Как добиваться максимума в любых переговорах (2017) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:973EED67256D0005215AA9F605ABEE4E185E6B8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:973EED67256D0005215AA9F605ABEE4E185E6B8A
 ```bash
 magnet:?xt=urn:btih:B5CF35724669F23F28550ACF312B86CEB7DB50AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:B5CF35724669F23F28550ACF312B86CEB7DB50AF
 magnet:?xt=urn:btih:2DAA4311A2538B1D2C5668E6829E7A9E918D2650
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:2DAA4311A2538B1D2C5668E6829E7A9E918D2650
 ```bash
 magnet:?xt=urn:btih:C75A8E91A86A1B747BDAF3F738C64BFFA121AA40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:C75A8E91A86A1B747BDAF3F738C64BFFA121AA40
 magnet:?xt=urn:btih:EE6716BB1A9289F179571DAE70BBD3390A69194D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:EE6716BB1A9289F179571DAE70BBD3390A69194D
 magnet:?xt=urn:btih:D68C6764CAB3ACEC3C84AAF137002AA78BFFC8FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:D68C6764CAB3ACEC3C84AAF137002AA78BFFC8FA
 ```bash
 magnet:?xt=urn:btih:E4E5318EE65253ED59A403A657F048911D88870A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:E4E5318EE65253ED59A403A657F048911D88870A
 magnet:?xt=urn:btih:99745115C562D2861A9600220371D53DB90799ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:99745115C562D2861A9600220371D53DB90799ED
 ```bash
 magnet:?xt=urn:btih:6D1D61943199982300EFDE63E1AFF84B9561C112
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:6D1D61943199982300EFDE63E1AFF84B9561C112
 magnet:?xt=urn:btih:CAD6CBE5AA6806E645B9985127185F2DC3D38BE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:CAD6CBE5AA6806E645B9985127185F2DC3D38BE9
 ```bash
 magnet:?xt=urn:btih:54383F16AB38EE6773EF97EA77F575741F732DB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:54383F16AB38EE6773EF97EA77F575741F732DB0
 magnet:?xt=urn:btih:664267A8B063E658BC3EFC67ECBA108884B4A672
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:664267A8B063E658BC3EFC67ECBA108884B4A672
 ```bash
 magnet:?xt=urn:btih:521484CB069A7BCAC26A279E912CBA930A529A14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:521484CB069A7BCAC26A279E912CBA930A529A14
 magnet:?xt=urn:btih:1852A4B297132503FBDB7C4751A8D46556083CE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:1852A4B297132503FBDB7C4751A8D46556083CE9
 magnet:?xt=urn:btih:F2637CA6260AB0A3F4270AE5582F106CDBA00A00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:F2637CA6260AB0A3F4270AE5582F106CDBA00A00
 ```bash
 magnet:?xt=urn:btih:5C8A03A9B38417BBE4466F62E925A851A6C54C4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:5C8A03A9B38417BBE4466F62E925A851A6C54C4C
 magnet:?xt=urn:btih:3E1943F26CB365A63A88BF0E6FC7ABE20549FFF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:3E1943F26CB365A63A88BF0E6FC7ABE20549FFF0
 magnet:?xt=urn:btih:A75D232431FC0713907ABB596CA981254A00C94D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:A75D232431FC0713907ABB596CA981254A00C94D
 ```bash
 magnet:?xt=urn:btih:C0B39FA3B756CE83B4FA427685A0072C8B9830A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:C0B39FA3B756CE83B4FA427685A0072C8B9830A3
 magnet:?xt=urn:btih:992C5B64064EF78E010CD63869EA046776DB9686
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:992C5B64064EF78E010CD63869EA046776DB9686
 magnet:?xt=urn:btih:B1398DB44769436397D90AEC8A86E2B6554FC184
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +600,8 @@ magnet:?xt=urn:btih:B1398DB44769436397D90AEC8A86E2B6554FC184
 ```bash
 magnet:?xt=urn:btih:09A400D6478302728CD30ACC18AC9F3626411732
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:09A400D6478302728CD30ACC18AC9F3626411732
 magnet:?xt=urn:btih:64882DBCD11EC96B4C344D437CE405FFB6A24B9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +654,8 @@ magnet:?xt=urn:btih:64882DBCD11EC96B4C344D437CE405FFB6A24B9F
 ```bash
 magnet:?xt=urn:btih:0DAD34735F1ECAEDC32E641616BE90252ACB44B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,29 +684,7 @@ magnet:?xt=urn:btih:0DAD34735F1ECAEDC32E641616BE90252ACB44B6
 magnet:?xt=urn:btih:42642759CE1E82F75509CD00D2EF21AB3C153CD7
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096604   (919065) от 24.01.2017
-
-Ассоциация профессионалов фитнеса FPA | Примерные речевые модули и сценарии поведения при обучении [2 книги] (2012) [PDF]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919065.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ассоциация Профессионалов Фитнеса (FPA) - объединение экспертов фитнес индустрии, специализирующееся в области фитнес-обучения, сертификации, кадрового и фитнес-консалтинга. С 2000 года в FPA сертифицировано более 4000 специалистов. Наши выпускники работают в более чем в 500 клубах Москвы, России и стран зарубежья. Под руководством экспертов FPA реализован ряд успешных (   Читать дальше...   )Жанр: Фитнес, бодибилдингФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0F19C1E93370D8F00A9331F1B817A38D8AB5E72
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

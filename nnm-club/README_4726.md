@@ -22,6 +22,8 @@ VA - AFTR:HRS (Mixed by Tiesto) (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Deep
 magnet:?xt=urn:btih:685A0219C1E2DEA38BF64328007A3DB08DC09853
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Duplicate File Detective - программа от Key Metric Software, кото
 ```bash
 magnet:?xt=urn:btih:3FE58E20FE7F6F88EBB689EB5F3855D3421BA93F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:3FE58E20FE7F6F88EBB689EB5F3855D3421BA93F
 magnet:?xt=urn:btih:674381B19E496EC413D49B96DC982FA35EF234C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:674381B19E496EC413D49B96DC982FA35EF234C2
 ```bash
 magnet:?xt=urn:btih:E9DAE08745D24AE473E0F28E078663BAE08B3CD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:E9DAE08745D24AE473E0F28E078663BAE08B3CD6
 magnet:?xt=urn:btih:D3A316FF7DADDD5A52B83DB04819BA9E49DFD133
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:D3A316FF7DADDD5A52B83DB04819BA9E49DFD133
 ```bash
 magnet:?xt=urn:btih:3046F41A6F6B96A2D2A606E4F29D7695FF85EDD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:3046F41A6F6B96A2D2A606E4F29D7695FF85EDD6
 magnet:?xt=urn:btih:9D7EE8CDCE2C2166B13E26093C29016F4CC61293
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Windows Update MiniTool 26.12.2015 Portable [Ru]
 magnet:?xt=urn:btih:84FEDBCBC1D39B38E1F44B4AA4CA4AAFDB110ED4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:84FEDBCBC1D39B38E1F44B4AA4CA4AAFDB110ED4
 ```bash
 magnet:?xt=urn:btih:4DCF544F3ADD4BFCFE00CA998F6D7849CE49BE20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:4DCF544F3ADD4BFCFE00CA998F6D7849CE49BE20
 magnet:?xt=urn:btih:9C2C674BA30B900C7E453419D582B5217659B90C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:9C2C674BA30B900C7E453419D582B5217659B90C
 ```bash
 magnet:?xt=urn:btih:94BF3DDBEC59FF21F575166430559E0646FD20AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ Michael Buble (Bublé) - Love (Deluxe Edition) (2018) [FLAC|Lossless|WEB-DL 24Bi
 magnet:?xt=urn:btih:8E87C2F9E1E8C6047F2B9678FBDE9E1B2477B790
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ Octopath Traveler (2019) [Ru/Multi] (Update 1) Repack xatab
 ```bash
 magnet:?xt=urn:btih:E7762F1B70F793014B2CBFD6C4FD4A24D8162B94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:E7762F1B70F793014B2CBFD6C4FD4A24D8162B94
 magnet:?xt=urn:btih:81D0C129849356F33C9799D00C8D375648548054
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ The World of Hans Zimmer: A Symphonic Celebration - Hollywood in Vienna 2018 (20
 ```bash
 magnet:?xt=urn:btih:6916D6747F4742D11D69A15F6DF5D67A2A791097
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ Hitman 2 (2018) [Ru/Multi] (2.72.0hf/dlc) Repack xatab [Gold Edition]
 magnet:?xt=urn:btih:21F88F6EC2EDC767E140D420A23E6B3DE2EAACEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:21F88F6EC2EDC767E140D420A23E6B3DE2EAACEA
 ```bash
 magnet:?xt=urn:btih:8C85E25B42A65F94FC8D0DD498A41E07E28D881D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ Jon Opstad - Black Mirror / Чёрное зеркало: White Bear (Original Te
 magnet:?xt=urn:btih:BE66B6AC514D2DEFCF346FD926AC58659940109B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:BE66B6AC514D2DEFCF346FD926AC58659940109B
 magnet:?xt=urn:btih:0DEC25865723D54F4CA4C563C6EA36AC9B770DB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:0DEC25865723D54F4CA4C563C6EA36AC9B770DB4
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ magnet:?xt=urn:btih:0DEC25865723D54F4CA4C563C6EA36AC9B770DB4
 magnet:?xt=urn:btih:5F12D882E105FC7CB830300047091E68F851A8E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +580,8 @@ magnet:?xt=urn:btih:5F12D882E105FC7CB830300047091E68F851A8E6
 magnet:?xt=urn:btih:69D2FA8092F7D9FAED7A8E6F513F9274F4435009
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ magnet:?xt=urn:btih:69D2FA8092F7D9FAED7A8E6F513F9274F4435009
 ```bash
 magnet:?xt=urn:btih:1299F4506E67813487EB7FE6A215141237229916
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:1299F4506E67813487EB7FE6A215141237229916
 magnet:?xt=urn:btih:0DE94A2D9D88AE1C45173DE9AAF9C9E8A22F3969
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ magnet:?xt=urn:btih:0DE94A2D9D88AE1C45173DE9AAF9C9E8A22F3969
 ```bash
 magnet:?xt=urn:btih:8563C14444E4088D6FB694BF3B64206AB99433CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +687,8 @@ magnet:?xt=urn:btih:8563C14444E4088D6FB694BF3B64206AB99433CD
 ```bash
 magnet:?xt=urn:btih:EB649510914EA2F2926DA3CCF86B455DFCF6FA8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

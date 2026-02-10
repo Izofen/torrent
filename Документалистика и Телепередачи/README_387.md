@@ -1,3 +1,29 @@
+###  Публикация: 1240725   (523530) от 13.08.2018
+
+Пирамида (2018) DVB [H.264/1080i-LQ]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523530.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Деньги за час", "Экспресс- займ", "Альянс-деньги", а еще "Криптобанк", "Криптопомощь" – и еще сотня-другая фирм и фирмочек по всей стране. Как только пирамидостроители не называли свой 101-й "относительно честный способ отъема денег у населения": кредитно-потребительский кооператив, микрофинансовая организация, (   Читать дальше...   )Телекомпания: Россия / ВГТРКЖанр: Документальный, ИсторияСубтитры: отсутствуютПродолжительность: 00:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05C7BC12B03B01EDA4E1E5794AB0A56EDD1262BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1559812   (523546) от 26.06.2022
 
 По следу монстра (28.05.2022) WEBRip [H.264/1080p]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:B832F0A968C7D4186000BC919CE6FD1016A1734A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:B832F0A968C7D4186000BC919CE6FD1016A1734A
 magnet:?xt=urn:btih:6D0F852BE1B4C7163659253AE1583B95156A4D78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:6D0F852BE1B4C7163659253AE1583B95156A4D78
 ```bash
 magnet:?xt=urn:btih:F71B2B9F93283913330C704990DC53C0644503B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:F71B2B9F93283913330C704990DC53C0644503B2
 magnet:?xt=urn:btih:1D59E45BA36D418F0D27F4C8371B069B9B07BBC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ NG. Миссия Плутон и дальше / Mission Pluto and Beyond (2019) 
 ```bash
 magnet:?xt=urn:btih:1AAD85ECF77928E5AC92F812A48BFBA341D3136A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:1AAD85ECF77928E5AC92F812A48BFBA341D3136A
 magnet:?xt=urn:btih:4F32E143B76C7698B10A4BCF64CF4DB80E2413C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:4F32E143B76C7698B10A4BCF64CF4DB80E2413C8
 ```bash
 magnet:?xt=urn:btih:50C57A9DA61F24500C4C92AF99C48903D2C5D78D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:50C57A9DA61F24500C4C92AF99C48903D2C5D78D
 magnet:?xt=urn:btih:EDC8104870A0B08E3F8EB131110DD816AC39148D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:EDC8104870A0B08E3F8EB131110DD816AC39148D
 magnet:?xt=urn:btih:FBCF7EC6655C48EF45BFDA6491591EEE32D0695F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:FBCF7EC6655C48EF45BFDA6491591EEE32D0695F
 ```bash
 magnet:?xt=urn:btih:5E9C080C2DEAAE283CDB26E699BCF7BCC55598C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:5E9C080C2DEAAE283CDB26E699BCF7BCC55598C4
 magnet:?xt=urn:btih:5AFA4D568ADEF94E61D64EE50525002E6DC77217
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:5AFA4D568ADEF94E61D64EE50525002E6DC77217
 ```bash
 magnet:?xt=urn:btih:709C2A36BF5F8C7A0BE3A2931D9D25A093C8DE65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:709C2A36BF5F8C7A0BE3A2931D9D25A093C8DE65
 magnet:?xt=urn:btih:F9A4BDCB14F7D3711AFA8675D057C1FA82E428B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:F9A4BDCB14F7D3711AFA8675D057C1FA82E428B4
 ```bash
 magnet:?xt=urn:btih:986DBCF595801CFEAFEE36282CB9A6C4A27245EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:986DBCF595801CFEAFEE36282CB9A6C4A27245EF
 magnet:?xt=urn:btih:FBC7BA6B47C3FA27942BAF0982B339DF9FCFFC09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:FBC7BA6B47C3FA27942BAF0982B339DF9FCFFC09
 ```bash
 magnet:?xt=urn:btih:E74D7C16F4A54B936EE4343C031E943179ED17C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:E74D7C16F4A54B936EE4343C031E943179ED17C2
 magnet:?xt=urn:btih:C3A1E60A91273F75EDC2EC438907EDC07A6DA996
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:C3A1E60A91273F75EDC2EC438907EDC07A6DA996
 ```bash
 magnet:?xt=urn:btih:B2FB3785A17D7BF5686216111DD91E984C3AA0B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:B2FB3785A17D7BF5686216111DD91E984C3AA0B9
 magnet:?xt=urn:btih:A02891FE73C8DE9A4E3E95FB64F5807F3B8A0A61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:A02891FE73C8DE9A4E3E95FB64F5807F3B8A0A61
 ```bash
 magnet:?xt=urn:btih:B925B1BB0FCA80570381254B5EF1F5E05199F2F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:B925B1BB0FCA80570381254B5EF1F5E05199F2F5
 magnet:?xt=urn:btih:AE823396F9116DA93CFD83F7A2D2944ECDB92250
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +600,8 @@ magnet:?xt=urn:btih:AE823396F9116DA93CFD83F7A2D2944ECDB92250
 ```bash
 magnet:?xt=urn:btih:C589D5EC48982B099A75ADCEDA1FE768DE096DED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:C589D5EC48982B099A75ADCEDA1FE768DE096DED
 magnet:?xt=urn:btih:FD58C0B5A4C4938BC24EB51CA510C683C1D83447
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +653,8 @@ National Geographic. Аполлон: Лунная миссия / Apollo: Mission
 ```bash
 magnet:?xt=urn:btih:99222B7962C7201D94B40A38D26D3C303D89B68E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,29 +680,7 @@ magnet:?xt=urn:btih:99222B7962C7201D94B40A38D26D3C303D89B68E
 magnet:?xt=urn:btih:3D0B78192B25E668C81839943D9E22F0BFD5527C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 236144   (524476) от 13.08.2017
-
-Крейсер "Варяг" (2005) DVDRip
-
->>Документалистика и Телепередачи
->>Отечественная история
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крейсер "Варяг" - самый знаменитый корабль Российского флота. Бой этого крейсера с японской эскадрой на рейде далекого корейского порта Чемульпо стал первым сражением Русско-японской войны 1904-1905 гг., произошедшим на глазах многочисленных иностранных наблюдателей. Неудивительно, что он вызвал огромный резонанс. Имя "Варяг" появилось на первых (   Читать дальше...   )Жанр: Документальный.Язык субтитров: Английские.Продолжительность: 01:28:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F018EDDBC07243CEFB1678353A942C47685EEDCD
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

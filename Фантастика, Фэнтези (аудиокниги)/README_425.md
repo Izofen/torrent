@@ -1,3 +1,29 @@
+###  Публикация: 1026800   (701592) от 16.06.2016
+
+Андрей Васильев | Замок на Вороньей горе (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все всегда происходит не так, как нам того хотелось бы. Вот и Крису Жучку, юному уличному воришке совершенно не хотелось попадаться в лапы старого мага и его подручного. Но – чему быть, тому не миновать, раз уж попался – значит попался. И теперь Крису приходится плясать под чужую дудку, поскольку выбора у него нет – на кону жизнь, причем ни чья-то, а его. Надо примерить (   Читать дальше...   )Жанр: Боевое фэнтезиПродолжительность: 15:16:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBADF0E262789A47090F64F6C8543202246087EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402439   (701727) от 14.08.2020
 
 Яна  Ясная | За гранью (2020) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:A9FCABB9408979FD7CB36B40AFEF3CE1AEBBC552
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:A9FCABB9408979FD7CB36B40AFEF3CE1AEBBC552
 ```bash
 magnet:?xt=urn:btih:3EE68A7B540FFB23806B65CF2E9F6F8936593B15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:3EE68A7B540FFB23806B65CF2E9F6F8936593B15
 magnet:?xt=urn:btih:875543E2BCED3110167C99ACA06BB911E1061BFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:875543E2BCED3110167C99ACA06BB911E1061BFC
 magnet:?xt=urn:btih:495E9A46DFA324761BDCCBD33A1E297D5BD27039
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:495E9A46DFA324761BDCCBD33A1E297D5BD27039
 ```bash
 magnet:?xt=urn:btih:284AC5DF48DFB5BE703C9F41800ED4C09525D5C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:284AC5DF48DFB5BE703C9F41800ED4C09525D5C5
 magnet:?xt=urn:btih:370A964A8E7DE4FC8B6DF50E496D871A249150E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:370A964A8E7DE4FC8B6DF50E496D871A249150E6
 ```bash
 magnet:?xt=urn:btih:490B409D221B6E530B147D793E47E7F681A68790
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:490B409D221B6E530B147D793E47E7F681A68790
 magnet:?xt=urn:btih:773C68273878B4471199DD2D6B88E15F2A16E24E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:773C68273878B4471199DD2D6B88E15F2A16E24E
 magnet:?xt=urn:btih:EB75D86A63A82183C31D03EFFA64392E906AD95E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:EB75D86A63A82183C31D03EFFA64392E906AD95E
 ```bash
 magnet:?xt=urn:btih:E26DFEF9AE98FA129EED1F363466D3184A4193CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:E26DFEF9AE98FA129EED1F363466D3184A4193CC
 magnet:?xt=urn:btih:BAEB11BC601DF4F2C689FCC70B49FD996C4E0A92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:BAEB11BC601DF4F2C689FCC70B49FD996C4E0A92
 magnet:?xt=urn:btih:FD9CCECB61CFB319F077B94474089FE83A25196A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:FD9CCECB61CFB319F077B94474089FE83A25196A
 ```bash
 magnet:?xt=urn:btih:07FDD60E90FE9C376382446AC0125ED706178C9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:07FDD60E90FE9C376382446AC0125ED706178C9A
 magnet:?xt=urn:btih:701A40045944BD5CE1CC2D02A2A03A629FF9BF30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:701A40045944BD5CE1CC2D02A2A03A629FF9BF30
 magnet:?xt=urn:btih:C3BB9A9B8784C6F1A66F58B7515BBE871A10D723
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:C3BB9A9B8784C6F1A66F58B7515BBE871A10D723
 ```bash
 magnet:?xt=urn:btih:7C6595F31313F199BB136E697D8D7F6B97E2AC45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:7C6595F31313F199BB136E697D8D7F6B97E2AC45
 magnet:?xt=urn:btih:3A8E093D018528E8C49513F10E11386DF06F078A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:3A8E093D018528E8C49513F10E11386DF06F078A
 ```bash
 magnet:?xt=urn:btih:2DABA8E9AF9CD715C30E5232494DD65B0CD2F7B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:2DABA8E9AF9CD715C30E5232494DD65B0CD2F7B6
 magnet:?xt=urn:btih:EE4FBB000DF7DE1FB3557B98FF61A0E74128DE2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:EE4FBB000DF7DE1FB3557B98FF61A0E74128DE2E
 ```bash
 magnet:?xt=urn:btih:1D093BF73EA010BCA5D02A50D3E932529DCEB50C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:1D093BF73EA010BCA5D02A50D3E932529DCEB50C
 magnet:?xt=urn:btih:CB863BA59CBE816F95F2CC53E49666E8BDA52FD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +596,8 @@ magnet:?xt=urn:btih:CB863BA59CBE816F95F2CC53E49666E8BDA52FD0
 ```bash
 magnet:?xt=urn:btih:3F33B418D288D024DE743C1589B1087466D75222
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:3F33B418D288D024DE743C1589B1087466D75222
 magnet:?xt=urn:btih:5353C5F6A4D52F303DB7241F1CFDB556BC6F0EAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:5353C5F6A4D52F303DB7241F1CFDB556BC6F0EAF
 ```bash
 magnet:?xt=urn:btih:E24CDE8CCFD2FFA7C85158DBC0CF80DB5BC68069
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,29 +678,7 @@ magnet:?xt=urn:btih:E24CDE8CCFD2FFA7C85158DBC0CF80DB5BC68069
 magnet:?xt=urn:btih:4570911AFA8CBF471BBD39A97209CC86696DF4C0
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131651   (704709) от 07.05.2017
-
-Наталья Косухина | Двадцать два несчастья (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда в город духов придут ветра, родятся семь ведьм, разной магии, но одной сущности. Большое и чистое сердце каждой будет открыто навстречу чужой беде, и, решившись помочь одному, спасут они многих. От зеленого проклятья, синего заклятья, красной ворожбы, желтой изводи. Белый яд проявится, кто-то черным отравится, а сиреневая беда доведет все до конца. Это первый (   Читать дальше...   )Жанр: Романтическое фэнтезиПродолжительность: 01:32:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BDAEB1EDAB2278EB2FDC58A4B4E988E882FF42B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

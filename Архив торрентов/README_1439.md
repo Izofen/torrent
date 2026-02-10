@@ -20,6 +20,8 @@ uTorrent Pack 1.2.3.68 Repack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:A088023C3E3A7DB18BC5A924A9B693CD717F7D81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ PortScan & Stuff - бесплатная утилита, которая дает 
 ```bash
 magnet:?xt=urn:btih:0B3586E650B4656454F7C263DD5EE88FD4AD2F2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Photo Studio — не просто приложение для редактир�
 magnet:?xt=urn:btih:683DB3D5AE000686F1DCA2341FD9D1C52F455164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Cinema 4D Studio 2023.2.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:42C52C52BD0D8871E887023389B0ABB31ED4CA3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ MAXON CINEMA 4D – простая в использовании професс�
 magnet:?xt=urn:btih:339F0F661423C10C4C53C3DB0DB8FDF79A5375CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:41C09631CA7E89606F1BD82837BDAC78FD5ABC19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ MAGIX Vegas Pro 20.0 Build 403 RePack by KpoJIuK [En]
 magnet:?xt=urn:btih:A69D2FB782A08E2EC68ECA1CCC3BFE4B8EE1DE9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ GOYO - плагин три в одном, который поможет вам �
 ```bash
 magnet:?xt=urn:btih:A14942067B312756BD019BE1A1B3443DC3F9E096
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ AIDA64 - является мощным средством для идентиф�
 magnet:?xt=urn:btih:F1A38548EDE1CFAB090350C0D6C16C63A9144592
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:BE33B302F6A0F6791EA935BFEB6D8A566AF5C7A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ DaVinci Resolve — единственное в мире решение для �
 magnet:?xt=urn:btih:87EC220A25BDC6EDFA12DB209BAE80C0EA57270A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ uTorrent Pro 3.6.0 Build 46802 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 ```bash
 magnet:?xt=urn:btih:E2E350EFE3F2BDBD26F4237497D7147B1319F271
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Duplicate Files Search & Link (Duplicate Searcher) - это приложение
 magnet:?xt=urn:btih:C637B6930BED3629896482C104BB9C8D0666C3E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:9ED7FA2CD6D6E8E9086A37D5870059C54BC91000
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ PowerDirector - самое быстрое и передовое программ
 magnet:?xt=urn:btih:0BF1E54248F629C470B745E7402EFAE60B8289FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Total Commander 10.52 (03.05.2023) Portable by MiG [Ru/En]
 magnet:?xt=urn:btih:DAE007F8640ACD3CEF0CBF6B5274519781D8B423
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:DAE007F8640ACD3CEF0CBF6B5274519781D8B423
 ```bash
 magnet:?xt=urn:btih:C2A6AA64266C30491B18261563BCF9956C218315
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ Media Player Classic - BE – универсальный проигрывате�
 magnet:?xt=urn:btih:2CD62D18ECBA248FE0FFF3EA4DE5D26D4A5BF2FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ R-Drive Image — является эффективной утилитой дл�
 ```bash
 magnet:?xt=urn:btih:EA8FCCEDE45F9166812149F0F77ABDA28A8CA620
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 magnet:?xt=urn:btih:F4EDF9BAA653C4C30AE73FE8B36B116094745D9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:0EDCE2293F827946308522724CD0BB51F650AE91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ TweakNow WinSecret Plus! - позволяет пользователям исс�
 magnet:?xt=urn:btih:A41E3989E2017188C722AC930B0C5F70FBC82500
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ Fast Video Cutter Joiner - программа 2-в-1 для быстрой ре�
 ```bash
 magnet:?xt=urn:btih:6A69FD4AFAE15C814263C22417FFAE61BA0DF9B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ Total Commander Ultima Prime — это набор утилит и разноо�
 magnet:?xt=urn:btih:35149ADB131D5010A5D44E83C6562B53BBFD8086
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.36.32531.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:A5E59C5F72EEA694D05787E96FB1E29A7D7041FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +675,8 @@ WhatsApp Messenger - кроссплатформенный мобильный м�
 ```bash
 magnet:?xt=urn:btih:9B3456C4AF82E79E8F736C0212EDD86B86D36771
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

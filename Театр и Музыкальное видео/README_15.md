@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:F6D7645C619250E6BD53F1646D59050E01C18569
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Fleetwood Mac - The Dance (1997) DVD
 ```bash
 magnet:?xt=urn:btih:CC5FFCB98F43DFDD190B3C4B035510E88B5F167F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ John McVie - BassСубтитры: Английские, Французские,
 magnet:?xt=urn:btih:FA11E5FF26C9607561E400C459124D6BA596EFED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:FA11E5FF26C9607561E400C459124D6BA596EFED
 ```bash
 magnet:?xt=urn:btih:D16A1A120B8F7CC00ED635D26102813EC254CD81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Foreigner - Live At Deer Creek 1993 (2003) DVD5
 magnet:?xt=urn:btih:68B6B994FAA35AAC1BC1319660A3D2AFCF10BA87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:68B6B994FAA35AAC1BC1319660A3D2AFCF10BA87
 magnet:?xt=urn:btih:F18E675CF03D94452EC4006165DD6C2D75D03A98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:F18E675CF03D94452EC4006165DD6C2D75D03A98
 ```bash
 magnet:?xt=urn:btih:0D8126D605FC6AE199339D2A985BDF954863E91E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ B.B. King & Friends - A Night of Blistering Blues (2005) DVD5 <Blues>
 magnet:?xt=urn:btih:7CE2BAD3B7C2F9C379DFB48DF1795FF49BD03AAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ magnet:?xt=urn:btih:7CE2BAD3B7C2F9C379DFB48DF1795FF49BD03AAB
 magnet:?xt=urn:btih:7371165C891B836470772C69750E40BB590642A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ magnet:?xt=urn:btih:7371165C891B836470772C69750E40BB590642A2
 ```bash
 magnet:?xt=urn:btih:9F47A2DF34FE972ACEA7274A7CFC848E181024FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +298,8 @@ magnet:?xt=urn:btih:9F47A2DF34FE972ACEA7274A7CFC848E181024FD
 magnet:?xt=urn:btih:45AC667AF9F8244D2587CDF3C281CEA6F65445C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ magnet:?xt=urn:btih:45AC667AF9F8244D2587CDF3C281CEA6F65445C0
 ```bash
 magnet:?xt=urn:btih:39515A5DD9D5993C232800FA4F8D0C4D7976A590
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +356,8 @@ magnet:?xt=urn:btih:39515A5DD9D5993C232800FA4F8D0C4D7976A590
 magnet:?xt=urn:btih:EBE12AF87D6F8F56418A54954CAC855A06096D70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +383,8 @@ magnet:?xt=urn:btih:EBE12AF87D6F8F56418A54954CAC855A06096D70
 ```bash
 magnet:?xt=urn:btih:A3E105EEE23247A8876571A35B95D861BAC86408
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +412,8 @@ magnet:?xt=urn:btih:A3E105EEE23247A8876571A35B95D861BAC86408
 magnet:?xt=urn:btih:0AA8294FAAE4648B91B039D0DF5DB813B6220A3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +437,8 @@ magnet:?xt=urn:btih:0AA8294FAAE4648B91B039D0DF5DB813B6220A3A
 ```bash
 magnet:?xt=urn:btih:19ACE82FC03BF1A6F41AD4658027CDF6AC92B772
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +467,8 @@ magnet:?xt=urn:btih:19ACE82FC03BF1A6F41AD4658027CDF6AC92B772
 magnet:?xt=urn:btih:E75C3E637E4E64A2BB2D04A9683F11CEAE16644D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +494,8 @@ magnet:?xt=urn:btih:E75C3E637E4E64A2BB2D04A9683F11CEAE16644D
 ```bash
 magnet:?xt=urn:btih:4C2C669C00550329053001874E47B213ADA848B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +524,8 @@ magnet:?xt=urn:btih:4C2C669C00550329053001874E47B213ADA848B6
 magnet:?xt=urn:btih:F657AECDE5663095BD28641EB1D34AFBFF924F0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +549,8 @@ magnet:?xt=urn:btih:F657AECDE5663095BD28641EB1D34AFBFF924F0D
 ```bash
 magnet:?xt=urn:btih:252568D511F5AEF946B8DE332C799C7119B6A100
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +579,8 @@ Heaven and Hell - Radio City Music Hall Live! (2007) DVD9
 magnet:?xt=urn:btih:7EBD4DF235A26F20E9BCEB1C28D02433D56DB21F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +604,8 @@ magnet:?xt=urn:btih:7EBD4DF235A26F20E9BCEB1C28D02433D56DB21F
 ```bash
 magnet:?xt=urn:btih:D6C841D137BC219363F9CCEDB78096CA36CBC61F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +633,8 @@ magnet:?xt=urn:btih:D6C841D137BC219363F9CCEDB78096CA36CBC61F
 magnet:?xt=urn:btih:6CDD918F64C94994B9B14A66B41FE61BD8525B09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +659,8 @@ magnet:?xt=urn:btih:6CDD918F64C94994B9B14A66B41FE61BD8525B09
 ```bash
 magnet:?xt=urn:btih:8446F97125F7554BCDFA37F1D130005ABC795A90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +687,8 @@ magnet:?xt=urn:btih:8446F97125F7554BCDFA37F1D130005ABC795A90
 magnet:?xt=urn:btih:FF57A29FC5959018F8635FED1E550749C17BC0FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -662,6 +712,8 @@ magnet:?xt=urn:btih:FF57A29FC5959018F8635FED1E550749C17BC0FD
 ```bash
 magnet:?xt=urn:btih:5A0628131C42B36F0BB9BF2640F460BAD5A265BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

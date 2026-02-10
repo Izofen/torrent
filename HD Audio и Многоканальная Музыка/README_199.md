@@ -22,6 +22,8 @@ Arabs In Aspic - Live at Avantgarden (2018) Remaster, 2023, Apollon Records [FLA
 magnet:?xt=urn:btih:68F29B637561F3A37A30BE3E68989557934AD24E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Nuclear Assault — американская трэш-метал/кроссов�
 magnet:?xt=urn:btih:619312F4DD4A8BFE0F4CFA248B4EDE18D121009F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ B - Man Ov SteelЖанр: Industrial, Progressive Death MetalПродолжит�
 ```bash
 magnet:?xt=urn:btih:5ECD61F490627987AC99F4D9587F97C78D9D5D4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +107,8 @@ Kingston Wall - II (1993) Mix, 2023, WM Finland [FLAC 24/96|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:1E91D7024EE21A4CC2A2B4306784F6BB603CF8F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +136,8 @@ Eradikated - Descendants (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Meta
 magnet:?xt=urn:btih:7079EEE9BF6A350E91E924604FBEC4F3A49841E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ Kingston Wall - I (1992) Mix, 2023, WM Finland [FLAC 24/96|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:4AF158D4A9E163583DC8F821D3261D425F69062C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -183,6 +195,8 @@ magnet:?xt=urn:btih:4AF158D4A9E163583DC8F821D3261D425F69062C
 magnet:?xt=urn:btih:7D01822FF13DE433B4100F1E1E46B6215FB5735A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -209,6 +223,8 @@ CD-1 (48:51)
 ```bash
 magnet:?xt=urn:btih:32C3F8BE03473FF7EE213FBC12A9EE58910032A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +253,8 @@ A4 Daydream(   Читать дальше...   )Жанр: Pop, BalladПродол
 magnet:?xt=urn:btih:4A2A6BDD35F966321D66D3B0DC8487AD783665D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +281,8 @@ VA - The Absolute Sound (TAS) (2012) [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Jazz, P
 ```bash
 magnet:?xt=urn:btih:3FFABD737768B2AA99CD20F5C35BE1FF78E246BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +311,8 @@ A2 Lemon Pie(   Читать дальше...   )Жанр: Prog RockПродол�
 magnet:?xt=urn:btih:48E3B0F168FE5E6E8835206CDAC244C27EA38642
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ A4 - Phreqs(   Читать дальше...   )Жанр: Experimental Death Meta
 magnet:?xt=urn:btih:59F62B4929AFA05E482E6E0FB6DC32187F5FC3F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +368,8 @@ magnet:?xt=urn:btih:59F62B4929AFA05E482E6E0FB6DC32187F5FC3F2
 ```bash
 magnet:?xt=urn:btih:DA055BF15DF1DD31930B4F60AD90124BCF337410
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +400,8 @@ Pretty Maids — датская рок-группа, основанная в 198
 magnet:?xt=urn:btih:873528554EF0589C946A6845EDFF0D18AC897748
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +426,8 @@ magnet:?xt=urn:btih:873528554EF0589C946A6845EDFF0D18AC897748
 ```bash
 magnet:?xt=urn:btih:1254A68D021771EDD4B767628C7B63A639EA2EBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +456,8 @@ Disc 3: For Unlawful Carnal Knowledge(   Читать дальше...   )Жан�
 magnet:?xt=urn:btih:5563382293A439E8328F8A83C971CB98A2FA9BA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +484,8 @@ Leaves - All I See Is A Blurred Me (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:3E595F46D5797EB11C307525A15FD41ACE723720
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +514,8 @@ A3 Angel Eyes(   Читать дальше...   )Жанр: Art Rock, New Wave, P
 magnet:?xt=urn:btih:F83ACB44E747F4FA6D5EE396478127C262650E15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +542,8 @@ The Darkness - Permission To Land... Again (2003) 20th Anniversary Edition, 2023
 ```bash
 magnet:?xt=urn:btih:20C813712DAC4323454EF933D53A15B5DCEB32E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +572,8 @@ Steeler - Steeler (1983) [FLAC|24/96|image + .cue|Vinyl-Rip] <Heavy Metal>
 magnet:?xt=urn:btih:D1697AEC700640E6967033856FCEB69F1998CA32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +600,8 @@ Epica - Live At AFAS Live (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic 
 ```bash
 magnet:?xt=urn:btih:E13C42A5E999C27C1080218F5FE7F6D264BD7DDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +630,8 @@ Trevor Rabin - Rio (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Crossover Prog>
 magnet:?xt=urn:btih:9C75159526E3A602CE73DA9DCEFBAF9F428923BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +658,8 @@ Iron Savior - Firestar (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal
 ```bash
 magnet:?xt=urn:btih:AB28905144B108F7D463395BC5E732D297E45008
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +688,8 @@ Occams Laser - New Blood III (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <UK Sy
 magnet:?xt=urn:btih:42E10CE6DAFA90B452E8A620AB25C4F6A0DC977F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +717,8 @@ Karfagen, Sunchild & Hoggwash - A Message of Peace Tour Live (2023) [FLAC 24/48|
 magnet:?xt=urn:btih:4AA4F5B0F485E4AEFA79D77036301BA4DE88571B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +745,8 @@ A4 Roll Away, Clouds(   Читать дальше...   )Жанр: Jazz, Pop, Eas
 ```bash
 magnet:?xt=urn:btih:CA3514335938754EA527CE7B81CE607123CA7589
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

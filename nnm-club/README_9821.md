@@ -1,51 +1,3 @@
-###  Публикация: 1259473   (315971) от 05.11.2018
-
-Первый удар / First Strike (Ging chaat goo si 4: Ji gaan daan yam mo) (1996) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Агенту ЦРУ Джеки поручают следить за шпионкой Наташей, которая купила тур на Украину. Джеки надеется выследить, с кем будет контактировать девушка, но она скрывается. Джеки бросается в погоню. Он гонится за ней по Австралии и России. Главная его задача — остаться в живых и поймать Тсуи, сообщника Наташи, похитившего ядерную боеголовку. Тсуи оказывается ее любовником, (   Читать дальше...   )Производство: США, Австралия, Гонконг / Golden Harvest Company Ltd., New Line Cinema, Paragon Films Ltd., Raymond ChowЖанр: Боевик, Триллер, Драма, Комедия, Криминал, ПриключенияРежиссер: Стэнли ТунАктеры: Джеки Чан, Джексон Лью, Энни Ву, Билл Тун, Юрий Петров, Нонна Гришаева, Джон Ивис, Терри Ву, Кристофер Казмарек, Эйлен СитПеревод: Многоголосый закадровый (R5)Субтитры: Английские (SDH)Продолжительность: 01:23:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56B6E1D56A6F5DA8EB0036244BFD1650F4E08E2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259932   (315972) от 05.11.2018
-
-Зинка-москвичка (2018) WEB-DLRip (серии 1-2 из 2)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зина родилась в глухой сибирской деревне. Прозвище «москвичка» она получила благодаря отцу — видному ученому из столицы, которого след простыл, а кличка осталась. Зина вышла замуж, родила дочь. Ее муж погиб в тайге, нарвавшись на медведя. Женщина одна воспитывает ребенка и работает на ферме, сводя концы с концами. Но страшный пожар стирает с лица земли ее родную (   Читать дальше...   )Производство: Россия/ Кинокомпания "Русское"Жанр: мелодрамаРежиссер: Кира АнгелинаАктеры: Анна Якунина, Константин Адаев, Сергей Ланбамин, Мария Свирид, Екатерина Травова, Сергей Калашников, Максим Дромашко и др.Продолжительность: ~01:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79DEFD45D9A87597263C1B11D6FB851DEF002E43
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259734   (315973) от 05.11.2018
 
 Л. М. Фридман | Учитесь учиться математике (1985) [PDF]
@@ -67,6 +19,8 @@ magnet:?xt=urn:btih:79DEFD45D9A87597263C1B11D6FB851DEF002E43
 ```bash
 magnet:?xt=urn:btih:9E95F69E30CD368F8F8BFB034D107E2483BB8EEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +46,8 @@ magnet:?xt=urn:btih:9E95F69E30CD368F8F8BFB034D107E2483BB8EEE
 magnet:?xt=urn:btih:D045C4EFA67D26B588F38A441266AA309B187FC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +71,8 @@ magnet:?xt=urn:btih:D045C4EFA67D26B588F38A441266AA309B187FC3
 ```bash
 magnet:?xt=urn:btih:C80514888F7168DAF5A31071BFDA0DCDCDE2B020
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +98,8 @@ Mini Pato / Mobile Police Patlabor Minimum / Миниатюрная Полици
 magnet:?xt=urn:btih:44EC562407DA13B6E1CED9DB45EDC08C091E2823
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +124,8 @@ Reg Organizer 7.60 Portable by Kopejkin [En/Ua]
 magnet:?xt=urn:btih:E01530D274FCF42D5A0C86B608985ADD2D4018C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +149,8 @@ magnet:?xt=urn:btih:E01530D274FCF42D5A0C86B608985ADD2D4018C8
 ```bash
 magnet:?xt=urn:btih:FD5A00BBFB0021DFE9EE72F2360AB2D0175F69CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +179,8 @@ VA - Хиты Теплого Моря (2012) [APE|Lossless|image + .cue] <Pop>
 magnet:?xt=urn:btih:082683C7123E18721E18032AF62587BAAA3BD8B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +207,8 @@ VA - Acoustic Pop Covers (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumenta
 ```bash
 magnet:?xt=urn:btih:210E06FB5EAFB4700F5B9987049286671921655C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +237,8 @@ magnet:?xt=urn:btih:210E06FB5EAFB4700F5B9987049286671921655C
 magnet:?xt=urn:btih:C38B02C01CF3C7034A1871B5BA7D9CC1997CB1CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +264,8 @@ magnet:?xt=urn:btih:C38B02C01CF3C7034A1871B5BA7D9CC1997CB1CB
 magnet:?xt=urn:btih:D92B244FA4ECBAF70224A91E360F91A5CCD4F783
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +289,8 @@ magnet:?xt=urn:btih:D92B244FA4ECBAF70224A91E360F91A5CCD4F783
 ```bash
 magnet:?xt=urn:btih:9F052D448FD7526B9790DA827998F244DE69E0B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +319,8 @@ Boris Zhivago - Memories (2016) [MP3|320 Kbps] <Euro Disco, Italo Disco>
 magnet:?xt=urn:btih:18A4CDB70E7646ADFFD55CB9F00F51BB295BB47F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +344,8 @@ magnet:?xt=urn:btih:18A4CDB70E7646ADFFD55CB9F00F51BB295BB47F
 ```bash
 magnet:?xt=urn:btih:A04063E8B06D8E61BC28B1118AA847EFA1BCAF8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +371,8 @@ magnet:?xt=urn:btih:A04063E8B06D8E61BC28B1118AA847EFA1BCAF8F
 magnet:?xt=urn:btih:A504666C9924B57C30251B05DFA321AD77CF7C3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +397,8 @@ magnet:?xt=urn:btih:A504666C9924B57C30251B05DFA321AD77CF7C3D
 magnet:?xt=urn:btih:CA22DC9E7E79DBA3E9A040347BBBA31B94E21764
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +422,8 @@ magnet:?xt=urn:btih:CA22DC9E7E79DBA3E9A040347BBBA31B94E21764
 ```bash
 magnet:?xt=urn:btih:8BD42DDEF97256071CFE24F7DD8A424F2B24FD28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +453,8 @@ Matisse & Sadko - November 2012 Promo Mix (2012) (2012) [MP3|320 кб/с]<progre
 magnet:?xt=urn:btih:8CC5B84B006E6A904B1B02CE52AE2262D37AB1A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +478,8 @@ magnet:?xt=urn:btih:8CC5B84B006E6A904B1B02CE52AE2262D37AB1A7
 ```bash
 magnet:?xt=urn:btih:9F91F957A7761C8C9352673E6242D6F5455CD15D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +514,8 @@ MELOTRONICS guestmix:
 magnet:?xt=urn:btih:B7B6CE49F1CD9FCB3A2180FEBAF4E37D3757A914
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +539,8 @@ magnet:?xt=urn:btih:B7B6CE49F1CD9FCB3A2180FEBAF4E37D3757A914
 ```bash
 magnet:?xt=urn:btih:53DD7551176F98E2EF819D9A57F64978382FBFC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +574,8 @@ Steve Aoki - DJ Mag Top 100 (2012) [MP3|320 кб/с]<House>
 magnet:?xt=urn:btih:EF11405E069264D490572D1E7D46F37456E63DFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +599,8 @@ Sexy Women Wallpapers (30.11.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:615634168D8B42BEF4B7E96F0FE88B816905F13B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +634,8 @@ Simon Cooper - Celtic Heart The Story Of Tristan And Iseult (1996) [MP3|320 кб
 magnet:?xt=urn:btih:28A2C903EBA9539D528796AE20E223095F3EC20E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -662,6 +660,60 @@ ART выпуск: Максим Финогеев, Влада Полтавская
 ```bash
 magnet:?xt=urn:btih:EA37545CC30AB450E25D5AFC18980785E908BEE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583455   (316009) от 01.12.2012
+
+HQ Wallpapers Perfect Women (01.12.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_316009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600 x 1200 ~ 1920 x 1200
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CA07D4B495A2AF0D8B0A94E5F5B082533C9F1AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582921   (316011) от 01.12.2012
+
+Лыжные гонки. Кубок мира 2012-2013. Финляндия (Куссамо). Мужчины и женщины. Спринт. Классический стиль (2012) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_316011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: СпортПеревод: Одноголосый закадровый, профессиональный (Курдюков)Продолжительность: 01:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C18741DCD883A7A41DB5B3A64A9C2991E28A8573
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

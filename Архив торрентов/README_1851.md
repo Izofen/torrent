@@ -28,6 +28,8 @@ VA - Out Patiens 1,2,3 (Hospital Records 2000 - 2003) [FLAC|Lossless]<Drum'n'Bas
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ VA - Out Patiens 1,2,3 (Hospital Records 2000 - 2003) [FLAC|Lossless]<Drum'n'Bas
 magnet:?xt=urn:btih:F4864A9F067C75958C644990A43873E1C72DC8BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:F4864A9F067C75958C644990A43873E1C72DC8BB
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -104,6 +110,8 @@ magnet:?xt=urn:btih:F4864A9F067C75958C644990A43873E1C72DC8BB
 magnet:?xt=urn:btih:60A182B7871B61EC8BCFC963CE1E120847BAAEDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:60A182B7871B61EC8BCFC963CE1E120847BAAEDE
 magnet:?xt=urn:btih:345EB376E648FCFA4E5232C1DDA326CD6755DCC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ magnet:?xt=urn:btih:345EB376E648FCFA4E5232C1DDA326CD6755DCC0
 ```bash
 magnet:?xt=urn:btih:34219EA13CDE822DAF236DFF9EDB090F89BBE6D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -185,6 +197,8 @@ CD1 (Продолжительность: 01:13:47)
 magnet:?xt=urn:btih:D645C6004F6562121900A3E79AD9A9970636D0E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -209,6 +223,8 @@ magnet:?xt=urn:btih:D645C6004F6562121900A3E79AD9A9970636D0E2
 ```bash
 magnet:?xt=urn:btih:62CCE3948A3F3111F9047D66C943B48611207324
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +256,8 @@ Karmin - Hello (2012) [MP3|320 кб/с]<Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:1B160C492DAFB5184E08C292E2779983F6ACDB97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +292,8 @@ VA - Synth Radio Russians Instrumentals Vol.2 (2012) [MP3|320 кб/с]<Synthpop,
 magnet:?xt=urn:btih:B2CF661F467D94912FF9BBDE77B4302827202EC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +327,8 @@ Cerf, Mitiska & Jaren - Give Me A Sound (2012) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:91DBDD260AC4680A618BB8B9AFB31350245C0A00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +352,8 @@ magnet:?xt=urn:btih:91DBDD260AC4680A618BB8B9AFB31350245C0A00
 ```bash
 magnet:?xt=urn:btih:E2C9699120A6956795514F10703EF61909FD5BD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +379,8 @@ Maxthon - новая версия браузера. Maxthon обладает м�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +404,8 @@ Maxthon - новая версия браузера. Maxthon обладает м�
 ```bash
 magnet:?xt=urn:btih:A8C74E4974504313811D8299314BF1B322785D74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +436,8 @@ magnet:?xt=urn:btih:A8C74E4974504313811D8299314BF1B322785D74
 magnet:?xt=urn:btih:4CA0F223AADF1F65A5B3EE7A799F6DDF30F1CB5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +462,8 @@ Jazz Casual: John Coltrane quartet, B.Webster, S.Rollins (1963) DVD5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +498,8 @@ At Vance - Facing Your Enemy (2012) [FLAC|Lossless]<Neoclassical/Power Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +523,8 @@ NG: Пропавшая колония Колумба / Columbus`s cursed colony 
 ```bash
 magnet:?xt=urn:btih:1F89DE17FE2ABE6F30F06E0B7892410E0C96E096
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +550,8 @@ magnet:?xt=urn:btih:1F89DE17FE2ABE6F30F06E0B7892410E0C96E096
 magnet:?xt=urn:btih:4732D11820F5CE2B4289F42FF7A217ED2A13EA25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +576,8 @@ magnet:?xt=urn:btih:4732D11820F5CE2B4289F42FF7A217ED2A13EA25
 ```bash
 magnet:?xt=urn:btih:31A095E9C9683D933D992CF17EF18B45F1E21467
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +605,8 @@ magnet:?xt=urn:btih:31A095E9C9683D933D992CF17EF18B45F1E21467
 magnet:?xt=urn:btih:D0CE8B1998C7E21F3609F01F7E58E16B96FF082C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +631,8 @@ magnet:?xt=urn:btih:D0CE8B1998C7E21F3609F01F7E58E16B96FF082C
 magnet:?xt=urn:btih:E13F7CFDDF484055710A1D589F3FBD35260AE5A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +656,8 @@ magnet:?xt=urn:btih:E13F7CFDDF484055710A1D589F3FBD35260AE5A1
 ```bash
 magnet:?xt=urn:btih:B9451371BB5B5806F3D28DD69998DF83B9564510
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +687,8 @@ magnet:?xt=urn:btih:B9451371BB5B5806F3D28DD69998DF83B9564510
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +713,8 @@ Total Commander - популярный файловый менеджер с пр
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -688,6 +738,8 @@ Q-Dir - файловый менеджер с очень малыми систе�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

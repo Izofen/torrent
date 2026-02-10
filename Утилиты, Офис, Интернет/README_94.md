@@ -1,3 +1,29 @@
+###  Публикация: 1291056   (672016) от 23.03.2019
+
+iSpring Suite 9.7.1.3075 [En]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672016.jpg" />
+</div>
+
+
+###  Подробнее
+
+iSpring Suite 9 является дополнением к PowerPoint, поэтому прост и удобен в работе. Позволяет превратить обычную презентацию в профессиональный учебный курс. Продукты iSpring пользуются доверием у образовательных организаций и бизнеса, как лучшие инструменты для e-learning. Многие всемирно известные компании, такие как Oracle, Sony, P&G, IBM, adidas, AMD, используют (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0D8C7514B5E1363A267E77F9832ED351258A8E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291112   (672116) от 23.03.2019
 
 Falkon 3.1.0 + Portable [Multi/Ru]
@@ -19,6 +45,8 @@ Falkon - это веб-браузер KDE с использованием мех
 ```bash
 magnet:?xt=urn:btih:670C1303EAEE7A06D7D3FF18E8798FF5D64242EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ Yellowpile - программа для создания разноцветных
 magnet:?xt=urn:btih:C68D916B598B6F791131A447BDD2A92551D4A6DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ Replay Video Capture - это приложение, которое позвол�
 ```bash
 magnet:?xt=urn:btih:841B343ADB4930367F7F179BEC127D6BEE527DAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ MiniTool ShadowMaker - это универсальное решение для �
 magnet:?xt=urn:btih:67F3FEFBAD4F4C51360A2100E299FAE6114D4C30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ Card Data Recovery - программа от 7thShare Studio позволит в
 magnet:?xt=urn:btih:C2FFAEDC1566D4724A7EC9EB1909827C6D5F8EAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:C2FFAEDC1566D4724A7EC9EB1909827C6D5F8EAF
 ```bash
 magnet:?xt=urn:btih:7560DBC52C9E108E29C835673406E22C2E3E2C72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +205,8 @@ Registry search and delete - программа для поиска в реес�
 magnet:?xt=urn:btih:5F90FCC7BDC40E749E75E33A388965DB527D8558
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +230,8 @@ BlueTooth Driver Installer - небольшая бесплатная утили�
 ```bash
 magnet:?xt=urn:btih:40AB35F9F0C10B7651EAAA5347906009567F1EC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +257,8 @@ Internet Download Accelerator - это очень удобный менедже�
 magnet:?xt=urn:btih:286621BDC845859B3B177AEB5D45C50B14686AF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ Tenorshare Any Data Recovery Pro — мощная программа для во
 ```bash
 magnet:?xt=urn:btih:0B1B4DFA053DC7940C1A930840E78EE309706239
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ StartIsBack++ возвращает в Windows 10 полнофункционал�
 magnet:?xt=urn:btih:2661ACBFC6A608B3E91F0B10976628125E94B980
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ Magic NTFS Recovery 3.1 RePack (& Portable) by ZVSRus [Ru/En]
 ```bash
 magnet:?xt=urn:btih:78F49604B20C964DECED541BAB2AA14A2F162030
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +364,8 @@ Magic Excel (   Читать дальше...   )Язык интерфейса: 
 magnet:?xt=urn:btih:B5AAD48DD0F6086F42ECDEBEA18A3331912EF7A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +391,8 @@ Magic Word Recovery 2.8 RePack (& Portable) by ZVSRus [Ru/En]
 magnet:?xt=urn:btih:8B3BDE7997E0E4B9DA70F2C89FA3A2319A4D76FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ Lingobit Localizer — профессиональный инструмент д�
 ```bash
 magnet:?xt=urn:btih:3FFC7E954190E6004E87C1F73924DD13DFB9B5C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +443,8 @@ ASAP Utilities — мощнейшая надстройка для програм
 magnet:?xt=urn:btih:392F2347F82AC89E31E9623E5B2B17D481FEE907
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +468,8 @@ SafeIP - бесплатная программа, с помощью которо
 ```bash
 magnet:?xt=urn:btih:F0B47B099596268E8C5545DB31B91AD430280E66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +495,8 @@ Magic FAT Recovery 3.1 RePack (& Portable) by ZVSRus [Ru/En]
 ```bash
 magnet:?xt=urn:btih:C95CE1822B2CF1B8BBF328625E1CA9966A0BC67A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +524,8 @@ Magic Photo Recovery 4.9 RePack (& Portable) by ZVSRus [Ru/En]
 magnet:?xt=urn:btih:282F8CBF8BE4492831BA0BAC629F23CE5E06D2D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +549,8 @@ Video Booth Pro - создаст из снимков небольшой виде
 ```bash
 magnet:?xt=urn:btih:9081F307E1E3246E4FFB8E54B75075AF96140D52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +576,8 @@ Professional Renamer - незаменимая программа для пере
 magnet:?xt=urn:btih:A477CC22199CA62906C70C37D7FDDC7F694390E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +601,8 @@ iCare Data Recovery Pro - программа для восстановления
 ```bash
 magnet:?xt=urn:btih:BCEF1EC5C333EE92BFFE9D9FA0313440DC2EB316
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +628,8 @@ Resource Builder — профессиональный редактор ресу�
 magnet:?xt=urn:btih:65D316F5C2BDBF435D9E40735CED5B90F3E43C26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +653,8 @@ Total PDF Converter - преобразовывает PDF в RTF, Doc, Excel, HTM
 ```bash
 magnet:?xt=urn:btih:F1DB07E2398CAEA7D385943FECE48C9A1744100E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,29 +680,7 @@ Total Outlook Converter - удобный в применении инструм�
 magnet:?xt=urn:btih:54333DF425D1450FD51C3CC990BF43E2EEDC8AD9
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028017   (692482) от 21.06.2016
-
-CoolUtils Total Excel Converter 5.1.215 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта утилита несомненно пригодится тем, кто часто конвертирует файлы Excel и Excel 2007 в Word (Doc и DocX), PDF, HTML, Access, TXT, ODT, ODS, XML, SQL, CSV, Lotus, DBF, TEX, DIFF, SYLK, LaTeX. Total Excel Converter поддерживает практически любые таблицы, включая документы OpenOffice (.odt, .ods).Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB9B40B4EE4B5EA5F0A46F47581E029CB9A5A258
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

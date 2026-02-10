@@ -22,6 +22,8 @@ VA - The Orient Collective: Sahara Stories (2025) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:138E31F132F2A66C20A74C88F7758C14BB1860A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ The St. John Damaskin children’s and youth choir (Детско-юношеск�
 ```bash
 magnet:?xt=urn:btih:620EDB6524C2FFE16E6722773687554FE7E3D0A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Paul Mauriat - Forever And Ever (1973) [FLAC 24/96|Lossless|WEB-DL|tracks] <Inst
 magnet:?xt=urn:btih:24C45C74AC150A508E2B7A7D8BEA68B043479D16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Vayper - Матерные частушки (Алексей Иванов) (2026) 
 ```bash
 magnet:?xt=urn:btih:64CFB9D31FDEC22FD9BE35B4C69183026A63BC8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Franck Pourcel - Cole Porter Story (2018) Remasterisé en 2018 [FLAC 24/44.1|Los
 magnet:?xt=urn:btih:945D66E58A91960573C40BA70CDBB580C8BAF678
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ Terra Incognita (Prem Joshua, Chinmaya Dunster) - No Goal but the Path (1993) [F
 magnet:?xt=urn:btih:CC7DC97AB27878F28CB7865A2D2D0696E42D632F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +195,8 @@ The Nadas - New Start (1997) [FLAC|Lossless|tracks + .cue] <Rock, Folk>
 ```bash
 magnet:?xt=urn:btih:9548E46F78AF04F8015E25574C4D33E882753DE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

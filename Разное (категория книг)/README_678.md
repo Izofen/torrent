@@ -1,3 +1,29 @@
+###  Публикация: 1364630   (934654) от 04.03.2020
+
+А. Братушева (ред.) | Рецепты на каждый день за 10, 20, 30 минут (2014) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_934654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встать пораньше, чтобы перед уходом на работу мужа, детей в школу успеть сообразить им быстрый завтрак. Приготовить обед для тех, кто питается дома. А вечером – успеть накрыть стол для уставших, проголодавшихся членов семьи. Что приготовить завтра? Что купить сегодня? Как успеть вовремя приготовить вкусный завтрак, обед или ужин? Наша книга облегчит вам решение этих (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99EA421EAEDF276457167E33F7F592AAA15666DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 752594   (934726) от 06.02.2014
 
 Михаил Веллер | Энергоэволюционизм. Тетралогия (2011) [DJVU]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:4B3F4B6732B1DACF9F7B61A5CA03C084CB312C44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:4B3F4B6732B1DACF9F7B61A5CA03C084CB312C44
 magnet:?xt=urn:btih:BCE0241251C61D4D874FBCCD1D22BF80F31DFD17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:BCE0241251C61D4D874FBCCD1D22BF80F31DFD17
 ```bash
 magnet:?xt=urn:btih:B3A4039DDA206D681A6069CE2418CE184E8ADDAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:B3A4039DDA206D681A6069CE2418CE184E8ADDAB
 magnet:?xt=urn:btih:1246E238301BDE31C0BFF0C952A87E510D7734C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:1246E238301BDE31C0BFF0C952A87E510D7734C1
 magnet:?xt=urn:btih:2321E59DAECF93E7F26825145A1B39F62C2D2DA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:2321E59DAECF93E7F26825145A1B39F62C2D2DA7
 ```bash
 magnet:?xt=urn:btih:A317D97783A3FA822B393D7C9441363DA1F9B5CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +207,8 @@ magnet:?xt=urn:btih:A317D97783A3FA822B393D7C9441363DA1F9B5CF
 magnet:?xt=urn:btih:9FFD5EA7B7055064A8B0537282A6BE4AF94FB227
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +233,8 @@ magnet:?xt=urn:btih:9FFD5EA7B7055064A8B0537282A6BE4AF94FB227
 magnet:?xt=urn:btih:803CA81B4427EF86CDCEB4979F8AD38EF4894C91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:803CA81B4427EF86CDCEB4979F8AD38EF4894C91
 ```bash
 magnet:?xt=urn:btih:B02450DB15409B2B9D629381D5723B97CC0EF808
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +286,8 @@ magnet:?xt=urn:btih:B02450DB15409B2B9D629381D5723B97CC0EF808
 magnet:?xt=urn:btih:D074EF31DACA27D06721BACE60C8A2BBB5D1302E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:D074EF31DACA27D06721BACE60C8A2BBB5D1302E
 ```bash
 magnet:?xt=urn:btih:20A484666BABEB35EF3A6B6546E554A62E325927
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:20A484666BABEB35EF3A6B6546E554A62E325927
 magnet:?xt=urn:btih:996F80E63F149DFE00CE1D0EAD17D23452468B11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:996F80E63F149DFE00CE1D0EAD17D23452468B11
 magnet:?xt=urn:btih:7041F6C3A91972B2167D0CF3F74987DC56938611
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:7041F6C3A91972B2167D0CF3F74987DC56938611
 ```bash
 magnet:?xt=urn:btih:72DC42F77787BB2C5D000D4BB450B9AEF3A9365A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:72DC42F77787BB2C5D000D4BB450B9AEF3A9365A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:72DC42F77787BB2C5D000D4BB450B9AEF3A9365A
 ```bash
 magnet:?xt=urn:btih:DB5C028C4326A1152BBD7930439854F15D94283A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +472,8 @@ magnet:?xt=urn:btih:DB5C028C4326A1152BBD7930439854F15D94283A
 magnet:?xt=urn:btih:074657786FFF1639E5417001FCBA36248824688D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:074657786FFF1639E5417001FCBA36248824688D
 ```bash
 magnet:?xt=urn:btih:ACD374CCCBF0DCAFF1F8019143078B5145FA0AB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +524,8 @@ magnet:?xt=urn:btih:ACD374CCCBF0DCAFF1F8019143078B5145FA0AB1
 magnet:?xt=urn:btih:0D8BC860627EB7A8D28EE557B1A7CF6F24E49785
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:0D8BC860627EB7A8D28EE557B1A7CF6F24E49785
 magnet:?xt=urn:btih:C743E2C2D3F35DC40247959C7E9554E734CB4148
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:C743E2C2D3F35DC40247959C7E9554E734CB4148
 ```bash
 magnet:?xt=urn:btih:E1E7281FBE0CA7B17EC82F14A3664EC70C9F0332
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +605,8 @@ magnet:?xt=urn:btih:E1E7281FBE0CA7B17EC82F14A3664EC70C9F0332
 magnet:?xt=urn:btih:0DE199EF971F23248A6DE5350B082673DFD4238E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +630,8 @@ magnet:?xt=urn:btih:0DE199EF971F23248A6DE5350B082673DFD4238E
 ```bash
 magnet:?xt=urn:btih:7D7BFDC822E935817EA6AE97AB6D0544D4E7F89A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +659,8 @@ magnet:?xt=urn:btih:7D7BFDC822E935817EA6AE97AB6D0544D4E7F89A
 magnet:?xt=urn:btih:EE178EAA203DA0DE64B3ACD51BF037700B289FC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,29 +685,7 @@ magnet:?xt=urn:btih:EE178EAA203DA0DE64B3ACD51BF037700B289FC3
 magnet:?xt=urn:btih:A675C7E5969054A4F377D208C66C2E8DB272FD04
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985461   (935212) от 11.02.2016
-
-Джордж Фридман | "Горячие" точки. Геополитика, кризис и будущее мира (2016) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая книга автора многих бестселлеров и правильных геополитических прогнозов Джорджа Фридмана («Следующие 100 лет»), содержащая интересные высказывания о грядущих событиях в Европе. В этом провоцирующем жаркие споры исследовании рассматриваются «точки возгорания» — те геополитические горячие точки, в которых на протяжении истории неоднократно возникали кризисы и (   Читать дальше...   )Жанр: Геополитика, публицистика, прогнозФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4602842307A5689AEFAE2FFCBB345FC448FE1B1B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

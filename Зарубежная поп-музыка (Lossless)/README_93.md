@@ -22,6 +22,8 @@ Richard Marx - Beautiful Goodbye (2014) Target Exclusive Edition [FLAC|Lossless|
 magnet:?xt=urn:btih:26BD60955CDB454FAFC2682FBF97FAC0F9A878B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Dolcenera - Le stelle non tremano (2015) [FLAC|Lossless|tracks + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:52FF320B2A8FB4E6810428D4CF1C057F1366DB49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -81,6 +85,8 @@ Sarah McLachlan - Closer: The Best Of Sarah McLachlan (2008) Deluxe Edition, 2 C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -113,6 +119,8 @@ VA - Дискотека 80-х The Best of Авторадио (2011) [WavPack|Los
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +157,8 @@ VA - 2013 Grammy Nominees (2013) [FLAC|Lossless]<Pop, Dance, Club, Rock, R&B, Tr
 magnet:?xt=urn:btih:2EEEC2E12DACAC69ADD761F4AEB193A2026C6B2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +185,8 @@ VA - BRAVO Hits 90 (2015) [FLAC|Lossless|tracks|WEB-DL]<Pop, Electronic, R&B>
 ```bash
 magnet:?xt=urn:btih:130E9F070A26135D06E67A2047C3996AD166FE8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -209,6 +221,8 @@ VA - Мелодии Рождества (Коллекция рождествен�
 magnet:?xt=urn:btih:C41558230073C1648B55BFF451B66BFE39195BC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +256,8 @@ Little Mix - Salute (2013) Deluxe Edition [FLAC|Lossless]<Pop>
 magnet:?xt=urn:btih:303C4207305AE76A5C3DC3F845D1489A266F2FDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +284,8 @@ Cher - Closer To The Truth (2013) Limited Edition [FLAC|image + .cue]<Pop>
 ```bash
 magnet:?xt=urn:btih:22D1566DE59573415B96B0BD0A791EE3AEF68C52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +314,8 @@ Duran Duran - Astronaut (2004) SACD, 2005 Epic [FLAC|Lossless|tracks + .cue] <Po
 magnet:?xt=urn:btih:E070568B3EB993DF65E504C7A713C01A0BAA45F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +342,8 @@ New York Gypsy All Stars - Dromomania (2015) [FLAC|Lossless|WEB-DL|tracks] <Cont
 ```bash
 magnet:?xt=urn:btih:9623CB1B84283332D53E03A3D41EA9DAC5E15315
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +372,8 @@ Anastacia - Two Albums: Not That Kind, Freak Of Nature (2000,2001) [APE|Lossless
 magnet:?xt=urn:btih:502381B0590F7AE52E9DEACDF5DE522463DFD50D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +400,8 @@ Fitzgerald - Full Circle (2015) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, R&B, E
 ```bash
 magnet:?xt=urn:btih:D6BE46DF0A6DCF69BA71E2C982DFCE16AF8AAD29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +430,8 @@ Tindersticks - See My Girls (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 magnet:?xt=urn:btih:08FF6C7DB9A492234D7C36530CEBBF78079E5247
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +459,8 @@ Lola Marsh - Someday Tomorrow Maybe (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie 
 magnet:?xt=urn:btih:4F2A09EA77B9EF482DA07470471665D5A3475618
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +487,8 @@ Oonagh - Oonagh (2014) Attea Ranta • Second Edition [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:A907249CB894256324FEC4718CDEDBBF674EF555
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +523,8 @@ Shirley Bassey - 15 Hits of Shirley Bassey (1997) [FLAC|Lossless]<Pop, Retro>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +551,8 @@ Oonagh - Aeria (2015) Sartoranta • Fan-Edition [FLAC|Lossless|image + .cue] <P
 ```bash
 magnet:?xt=urn:btih:1D782F1AA9BEE8242ED569A6EFF1EE11774ED82F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +587,8 @@ Bee Gees - Greatest Hits (2008) [FLAC|Lossless]<PoP, Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +622,8 @@ ABBA - Opus 10 (1994) [APE|Lossless]<Pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +651,8 @@ Vanessa Mai - Fur immer (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:27F926C4BA3FEFC9E98024E9B62770FC69C32778
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +679,8 @@ VA - Rock'N'Roll HitMix  Superhits Non-Stop (1999) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:2E4CA9822A917C169FA3BAA5DA524D331F58DE16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -671,6 +715,8 @@ ABBA - Oro (Grandes Exitos) (1999) [APE|Lossless]<Pop, Easy listening>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -697,6 +743,8 @@ Dan Balan - Freedom. Part 1 (2012) [FLAC|Lossless]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:038EC327FB266AC745B4ABF5DE4ACC88135C027E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -725,6 +773,8 @@ ABBA - Ring Ring (1973) 2013 Remastered Deluxe Edition [FLAC|Lossless]<Pop>
 magnet:?xt=urn:btih:41DF78F1068EDD80E42F1D59718E3A0293EC736F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -748,6 +798,8 @@ Demis Roussos - Forever And Ever (1973) /2000 Philips/ [APE|Lossless]<Pop, Pop F
 ```bash
 magnet:?xt=urn:btih:E641D1A8BAC50B3A6721692F528725276B7745C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

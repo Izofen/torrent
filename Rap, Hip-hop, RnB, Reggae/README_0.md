@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:D7FCCD742F54EE22B73DB0B8058782BA70681C02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:D7FCCD742F54EE22B73DB0B8058782BA70681C02
 ```bash
 magnet:?xt=urn:btih:8E01EB856FD70C35809C6385F61CA7F7DD62648C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:8E01EB856FD70C35809C6385F61CA7F7DD62648C
 magnet:?xt=urn:btih:9B025BFB3E8046E957011F8E7FA0F97E244F7130
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Eminem - The Death of Slim Shady (Coup De Grâce) (2024) [MP3|320 Kbps] <Hip-Hop
 magnet:?xt=urn:btih:56083BB44EAF0CDC344FA4AE7A8373EA9513B2F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ Eminem - The Death of Slim Shady (Coup De Grace) (2024) [FLAC|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:35F44D36010E488729FA2F81D4BC2948C3099F5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +173,8 @@ Mad Flava - From Tha Ground Unda (1994) [FLAC|Lossless]<Hip-Hop>
 magnet:?xt=urn:btih:74B36D05655B40B17065BBAE70571EEBCE3ADF8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +202,8 @@ Tha Mexakinz - Tha Mexakinz (1996) [FLAC|Lossless]<Hip-Hop, Latin Hip-Hop, Hardc
 magnet:?xt=urn:btih:C2947F6E34F2A13344EDB3D79C6E74A36522850B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +229,8 @@ Chino XL родился в Бронксе, Нью-Йорк, вырос в Ист
 ```bash
 magnet:?xt=urn:btih:5CAF51066DC923630BDC266FECE058D829B17EDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +263,8 @@ The Funkdoobiest воплотили в своем творчестве все р
 magnet:?xt=urn:btih:BD797F734FF03DA8EB740D71138F55BC6DDE6FDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +295,8 @@ Snow - 3 Albums + 2 Singles + Compilation (1992-2000) [FLAC|Lossless]<Reggae, Re
 magnet:?xt=urn:btih:05210430EEF14F730AB0FB098507726449B91F36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +324,8 @@ Souls of Mischief - 93 'Til Infinity (1993) [FLAC|Lossless]<Hip-Hop>
 magnet:?xt=urn:btih:BA4EBCF05DDA367D26D9AFBCEE09521C129E448F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +352,8 @@ Patrice - 6 Альбомов (2000-2010) [FLAC|Lossless]<Reggae, Hip-Hop, Electr
 ```bash
 magnet:?xt=urn:btih:385D0472176CF8B316806B40FD730E46E5F6EC9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +383,8 @@ Control Machete — мексиканская хип-хоп-группа из г.
 ```bash
 magnet:?xt=urn:btih:E7D2104A833F10F4896ED35938FE710A3AA16B28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +417,8 @@ House Of Pain: Everlast (Эрик Шроди), Danny Boy (Даниэл О’Ко
 magnet:?xt=urn:btih:9B660DE91FBCA16D2D38035E63B90613F97F9785
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +450,8 @@ Das EFX — американская рэп-группа. Образована �
 magnet:?xt=urn:btih:4F9384EF9546A9A05D5A75CEAF93EF806777B73D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +478,8 @@ Gentleman - 6 Альбомов (1999-2010) [FLAC|Lossless]<Reggae, Roots Reggae,
 ```bash
 magnet:?xt=urn:btih:DE0153D892C87A26EF0A2CCA610B50EF8A5B5860
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +512,8 @@ Delinquent Habits — хип-хоп-группа из восточной час�
 magnet:?xt=urn:btih:6DDE350C001F27860BCBE2AEE9C993CE40C7B8E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +540,8 @@ Naughty by Nature - 5 Albums + 2 Compilation + 8 Singles (1991-2003) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:0AFB76B75BFD8A0B9DDA3460B89B582E5F12AF44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +572,8 @@ Gang Starr хип хоп дуэт, состоящий из MC Guru и дидже
 magnet:?xt=urn:btih:108353E2B11D011ADE7C9381FD45DF9908AE77D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +600,8 @@ magnet:?xt=urn:btih:108353E2B11D011ADE7C9381FD45DF9908AE77D2
 ```bash
 magnet:?xt=urn:btih:17CAE72B53651518EE7B0BDF4347553DC8CD9422
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +631,8 @@ magnet:?xt=urn:btih:17CAE72B53651518EE7B0BDF4347553DC8CD9422
 magnet:?xt=urn:btih:4CE2467C2C98AD10500BF1AE9D00BCE031FAE751
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +659,8 @@ Damian Marley - 4 Albums + Single + Compilation (1996-2010) [FLAC|Lossless]<Regg
 ```bash
 magnet:?xt=urn:btih:F18E4846DAC6AE3246E312ED523EE52A65726772
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -648,6 +692,8 @@ The Fugees — авторитетная американская хип-хоп-�
 magnet:?xt=urn:btih:36A9F146509D1C81DB59436B6C827E2F57C3FB9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -674,6 +720,8 @@ Hugo Kant - 2013 - Another Point of Mix I(   Читать дальше...   )Ж�
 ```bash
 magnet:?xt=urn:btih:69CB2BCE355D3B4EC283F39B67F139FB8CABF408
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -702,6 +750,8 @@ Cypress Hill — американская хип-хоп и рэпкор груп
 magnet:?xt=urn:btih:CB8D3C68732ECFCDEE375B34B7A5EC4AABE73C79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -728,6 +778,8 @@ magnet:?xt=urn:btih:CB8D3C68732ECFCDEE375B34B7A5EC4AABE73C79
 ```bash
 magnet:?xt=urn:btih:55229CDE4FADFE9CE4005BD893975AD3BBF9C840
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

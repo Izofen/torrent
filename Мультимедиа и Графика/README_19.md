@@ -19,6 +19,8 @@ MFM2 — это наш первоклассный плагин цифровой 
 magnet:?xt=urn:btih:71375D90970A1752C32861C2107A5714CDF7FDD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ SpinTracer обеспечивает управление звуком в реж�
 ```bash
 magnet:?xt=urn:btih:18FCCCC5958A5014602DD610349335ECBA69961C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Blender - бесплатный редактор трехмерной графи�
 magnet:?xt=urn:btih:2D8D9059F2B83CB0D935C6978C1E0C9919DAF9AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Spectrasonics Omnisphere Software 2.8.7c, Patch Library 2.8.3c Update (x64) RePa
 ```bash
 magnet:?xt=urn:btih:81BB608C50D89B15540FB79234AEAF0F1DD78222
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ DxO PhotoLab 9.1.0 Build 488 [Multi]
 magnet:?xt=urn:btih:40E4B226D5593561AD73999EC6CDA0DB350055A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ SpecCraft - это динамический подавитель резонан�
 ```bash
 magnet:?xt=urn:btih:574516D878224989EE0920BFB133604A12C5ED32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Fusion 19 — это самое современное в мире програ�
 magnet:?xt=urn:btih:9A32708E7D3AC8D9798D088B97EE0F44690D612E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Video Thumbnails Maker - это программа для снятия скри�
 ```bash
 magnet:?xt=urn:btih:CBEB74621D1643330141E6316CD8AC91EE624F1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ LANDR - LANDR Guitar 1.1.5 VSTi 3, AAX (x64) RePack by R2R [En]
 magnet:?xt=urn:btih:563621EBFA75C4E8D8D6994EBEC86FAE05F6A849
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Kid3 — бесплатный инструмент, позволяющий ре�
 ```bash
 magnet:?xt=urn:btih:A2BDD244DC05C4559F68020CD52DE540D4FEA385
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Heavyocity - Punish 1.0.2 VST, VST 3, AAX (x64) RePack by R2R [En]
 magnet:?xt=urn:btih:45673C71CE96FDAE89FD419969FFE2AA41E6C8CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Wave Alchemy - Triaz 1.1.1 VSTi 3, AAX + Full Content (x64) [En]
 ```bash
 magnet:?xt=urn:btih:A9E2DBEBD2545192859DC6EADC7E3450C963BCD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Cradle - The God Particle 1.2.4 VST 3, AAX (x64) RePack by SEnki [En]
 magnet:?xt=urn:btih:23BF33FDECF085FC5CD1A92F8C6EB47252E8273B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ iZotope - Plasma 1.0.1 VST 3, AAX (x64) RePack by R2R [En]
 ```bash
 magnet:?xt=urn:btih:1DD4672E663C89161706413617736FEE83114E06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Amplitube 5 MAX v2 включает в себя 18 коллекций бренд
 magnet:?xt=urn:btih:6D7F997AB74AB29A5314297979DFBC89E90CA4D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Diva отражает дух аналоговых синтезаторов, вы
 ```bash
 magnet:?xt=urn:btih:55AFD20653A3DB3B73FBC0877C99A5A99317D80B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ u-he - Hive 2.1.2 VSTi, VSTi 3, AAX (x86/x64) [En]
 magnet:?xt=urn:btih:4252F2ECD74373FEA92E502445275907CD4E4594
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ u-he - ACE 1.4.3 VSTi, VSTi 3, AAX (x86/x64) [En]
 ```bash
 magnet:?xt=urn:btih:FD49859077B6A75FC84C08DE1BB576AB723E2E9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ IK Multimedia называет ToneX «полноценной программн
 magnet:?xt=urn:btih:A67BD78AA38FDB223762A4E27976A8298759B030
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:90395B95B2576ABA182B83A99746F5858D4C8D6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Fusion 19 — это самое современное в мире програ�
 ```bash
 magnet:?xt=urn:btih:4E25FB0F17145D32D524AB985014FA5B7B678759
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ Adobe Illustrator — это принятое в качестве отрасле
 magnet:?xt=urn:btih:07C0EC34B2169D822BD3938481401A051D2EB599
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ True Dynamics (номинированный на премию NAMM TEC) эмул
 magnet:?xt=urn:btih:418F324291B55D6C33D622F8F6A2876305FDA0AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ Photo Supreme — вспомогательная программа для вл�
 ```bash
 magnet:?xt=urn:btih:821FE6593C30E31AF24421796BE524FBDC6077CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:6EF020EAB9D2B91284B798D1D0AFC7106117AA4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ JRiver Media Center — мощный мультимедийный центр, о
 ```bash
 magnet:?xt=urn:btih:E026A22714269710F411B8F4CF89BE65B8366ECB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

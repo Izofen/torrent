@@ -22,6 +22,8 @@ Pink Floyd - Amsterdamse Bos, Free Concert, Live, 26 June 1971 (2021) [MP3|320 K
 magnet:?xt=urn:btih:9E4A949E406F3A7E0123C6C1D53AAFD02EC89087
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Any Video Converter Ultimate - предоставляет пользовател
 magnet:?xt=urn:btih:7013BA945628715BE691F033D5C457A072B0A510
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:7013BA945628715BE691F033D5C457A072B0A510
 ```bash
 magnet:?xt=urn:btih:BC30F9238C61EFB345ED6E7C835F869D976B8985
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ ScreenFlow - создаем свои скринкасты
 ```bash
 magnet:?xt=urn:btih:CA2D708FD5B11E96BA1BDCA45AF09B7E8B5FFFB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ Roger Waters - The Wall (2014) BDRip [H.264/1080p]
 magnet:?xt=urn:btih:0F96C61881D6176211AE62E0C123119EC0885D3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:0F96C61881D6176211AE62E0C123119EC0885D3E
 ```bash
 magnet:?xt=urn:btih:D96D3427DF48E057604DF5BDD72C451F373620BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:D96D3427DF48E057604DF5BDD72C451F373620BE
 magnet:?xt=urn:btih:41B87B23F7F1F340011BFD93F2D0A576C63E0C79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:41B87B23F7F1F340011BFD93F2D0A576C63E0C79
 ```bash
 magnet:?xt=urn:btih:A0A093DEFC0B92F9E5502009144F970B7B71046C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:A0A093DEFC0B92F9E5502009144F970B7B71046C
 magnet:?xt=urn:btih:9B0E844131EF8F4C0585891DC2F8DA54A9B77A44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:9B0E844131EF8F4C0585891DC2F8DA54A9B77A44
 magnet:?xt=urn:btih:D4A7DC8C0F54A81ED6B74D1BD57A24C8B77EE1D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:D4A7DC8C0F54A81ED6B74D1BD57A24C8B77EE1D1
 ```bash
 magnet:?xt=urn:btih:BFB57792C6C24E4B02B440F5A7585C8E56DE1FD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ Markus Grosskopf's Bassinvaders - Hellbassbeaters (2008) [FLAC|Lossless|image + 
 magnet:?xt=urn:btih:2425201E21C9EDCB2323F69A63D1D6F932016A65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ magnet:?xt=urn:btih:2425201E21C9EDCB2323F69A63D1D6F932016A65
 magnet:?xt=urn:btih:98A5F264ED54570C5180A1FCB5F900F2A9E738B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:98A5F264ED54570C5180A1FCB5F900F2A9E738B5
 ```bash
 magnet:?xt=urn:btih:2B07020F598FC5EF677C904F0118FB5387687DC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ ABBYY Lingvo European 1.11.0 [Multi/Ru]
 magnet:?xt=urn:btih:EB5CA0183A6529181004292179C31A4B77B4C261
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ Path Finder - один из лучших файловых менеджеров, 
 ```bash
 magnet:?xt=urn:btih:5D0AE43D530D71450E9DFB1651C70F4168714F20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +457,8 @@ SupaRed - SupaRed (2003) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
 magnet:?xt=urn:btih:2A4FC1C5F03989D596E4D9B3FFD30312F52630FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ magnet:?xt=urn:btih:2A4FC1C5F03989D596E4D9B3FFD30312F52630FF
 magnet:?xt=urn:btih:FEB4534D8C806641D7E3A90BAB577A3EE1664A3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ XY VPN — это абсолютно бесплатный VPN! Быстрое и
 ```bash
 magnet:?xt=urn:btih:9A4B5E4531A23626344DA3B9276918F87A56D812
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ magnet:?xt=urn:btih:9A4B5E4531A23626344DA3B9276918F87A56D812
 magnet:?xt=urn:btih:52AAAC4A3E85DBCA9C84F0D87AA7F705743D522F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:52AAAC4A3E85DBCA9C84F0D87AA7F705743D522F
 ```bash
 magnet:?xt=urn:btih:0293D4D72D969B072476B7B04357E0D1AB44E0CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +591,8 @@ Hyzzterezis - Reckoning (2020) [FLAC|Lossless|image + .cue] <Death Metal>
 magnet:?xt=urn:btih:7BFBDCD98E374B6760ABEDCC97D8DFB9FC3D5D4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ Display Driver Uninstaller это утилита удаления драйвер
 magnet:?xt=urn:btih:E4325CD3C89E7E68DD6DDAE71C344C4BBDED5BF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +642,8 @@ magnet:?xt=urn:btih:E4325CD3C89E7E68DD6DDAE71C344C4BBDED5BF5
 ```bash
 magnet:?xt=urn:btih:80640B0B7502428916FD460F91074B4264971699
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +672,8 @@ Archaic - Time Has Come to Envy the Dead (2006) Reissue 2009, Vic Records [FLAC|
 magnet:?xt=urn:btih:4D3E3EDDC9B5378D3B310DBAF2F38C498B53344F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ magnet:?xt=urn:btih:4D3E3EDDC9B5378D3B310DBAF2F38C498B53344F
 ```bash
 magnet:?xt=urn:btih:C9D5EE9BCB103F0E70982A6BCAE64E492889C39D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

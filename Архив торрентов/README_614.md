@@ -28,6 +28,8 @@ VA - Electro DJ v.21 (2012) [MP3|320 kbps]<Electro House>
 magnet:?xt=urn:btih:808B849532DD49B3F7F923FE69CCFD02AED7DE87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ Magion - Close To Eternity (2010) [FLAC|Lossless]<Gothic Metal,Power Metal,Symph
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ Magion - Close To Eternity (2010) [FLAC|Lossless]<Gothic Metal,Power Metal,Symph
 magnet:?xt=urn:btih:6EC67B7BE837F8D428327B8E1A91627391BB2F7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +131,8 @@ Mel Lewis & The Jazz Orchestra - Naturally! (1978) [FLAC|Lossless]<Post-Bop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +159,8 @@ Mel Lewis & The Jazz Orchestra - Naturally! (1978) [FLAC|Lossless]<Post-Bop>
 ```bash
 magnet:?xt=urn:btih:7E44DD29038BA9034522B6FCA7A513F7E5800A3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -185,6 +195,8 @@ VA - Chart Top10 (05.02.2012) [MP3|320 kbps]<Electro House>
 magnet:?xt=urn:btih:4AE5D347FA6CE74473E4648FBF46B5DA9ED149F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +220,8 @@ magnet:?xt=urn:btih:4AE5D347FA6CE74473E4648FBF46B5DA9ED149F7
 ```bash
 magnet:?xt=urn:btih:60C61B4B6EE60042197AE5AFA54AC28AAC2FAB24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +256,8 @@ Of The Past - Of The Past (2011) [MP3|192-320 kbps]<Heavy Metal>«Сделай �
 magnet:?xt=urn:btih:61E840C271266A21419D6AEB4792E6732C092092
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +291,8 @@ VA - House Vip (05.02.2012) [MP3|320 kbps]<Electro House>
 magnet:?xt=urn:btih:35C6CBA0466E38FD6153A2C347742E90EF8701AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +319,8 @@ magnet:?xt=urn:btih:35C6CBA0466E38FD6153A2C347742E90EF8701AC
 ```bash
 magnet:?xt=urn:btih:7AC6C6B793F1B112A863C63848FA2DBB8CC3D48A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +355,8 @@ DJ Nike Twist - TranceWave 026 @ GTI Radio (02.02.2012) [MP3|256 kbps]<Trance, U
 magnet:?xt=urn:btih:C4C9536892FFC3A8B20C9F0D23A737AAE7055D9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +382,8 @@ magnet:?xt=urn:btih:C4C9536892FFC3A8B20C9F0D23A737AAE7055D9B
 ```bash
 magnet:?xt=urn:btih:B96CECF1A436983EF8BB34E2E73759CFF473ECD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +418,8 @@ Sam Lardner - Barcelona (2007) [MP3|320 kbps]<Country>
 magnet:?xt=urn:btih:FF6224EFC1858059B40D2E8A972B944A038E8676
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +448,8 @@ magnet:?xt=urn:btih:FF6224EFC1858059B40D2E8A972B944A038E8676
 magnet:?xt=urn:btih:E83172C31C3DBF2F51DC0BDB58158508F2B2929B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +473,8 @@ magnet:?xt=urn:btih:E83172C31C3DBF2F51DC0BDB58158508F2B2929B
 ```bash
 magnet:?xt=urn:btih:162C5C212321CDB83F005F452A904C5C609F092D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +509,8 @@ VA - Последние новинки в мире музыки от Vanovlad 50
 magnet:?xt=urn:btih:F105F9A4BAAF83339F3D4715A65BC316B3D83E34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +538,8 @@ magnet:?xt=urn:btih:F105F9A4BAAF83339F3D4715A65BC316B3D83E34
 magnet:?xt=urn:btih:682D8F358AD00E24CA0D42014C4CBCF7B66724D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +563,8 @@ magnet:?xt=urn:btih:682D8F358AD00E24CA0D42014C4CBCF7B66724D6
 ```bash
 magnet:?xt=urn:btih:8165582FA999D4266EE388C7A7EECCF3E18C0830
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +599,8 @@ VA - Normal Original Dj (2012) [MP3|320 kbps]<House | Dance | Progressive>
 magnet:?xt=urn:btih:CC513F7E7224907F852B81A7FFDFB31E470DD72C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +633,8 @@ Hyborian Steel - Blood, Steel And Glory (2012) [MP3|192-320 kbps]<Epic Heavy Met
 ```bash
 magnet:?xt=urn:btih:21D56DAD122EAFA5EEB7D0A0CBBEE5EE8B8A2F49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +669,8 @@ Dünedain (Dunedain) - Magica (2012) [MP3|320 kbps]<Power Metal>«Сделай �
 magnet:?xt=urn:btih:236CEB47334CC9367E2F63045B8C899EB3F05CB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +703,8 @@ El Caco - Hatred, Love And Diagrams (2012) [MP3|320 kbps]<Stoner/Hard Rock>«С�
 ```bash
 magnet:?xt=urn:btih:099334BCA77E7F576B10B7B494F074380873547A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -695,6 +739,8 @@ VA - Последние новинки в мире музыки от Vanovlad 50
 magnet:?xt=urn:btih:B3D0B260377AA3C6E0498F0B4A28557040A33919
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -728,6 +774,8 @@ Prodigal Sons - On Our Last Day (2012) [MP3|192-320 kbps]<Heavy Metal>«Сдел
 magnet:?xt=urn:btih:0E2571CBE93F2E2A4411E861E92944F611D7D579
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -754,6 +802,8 @@ magnet:?xt=urn:btih:0E2571CBE93F2E2A4411E861E92944F611D7D579
 ```bash
 magnet:?xt=urn:btih:22F99FBB86E6839C935EE3D03AA7E41C064EB1B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -782,6 +832,8 @@ magnet:?xt=urn:btih:22F99FBB86E6839C935EE3D03AA7E41C064EB1B2
 ```bash
 magnet:?xt=urn:btih:59EC936C7E4FA285B8A334C3A8D5A89AA131C976
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

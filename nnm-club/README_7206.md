@@ -19,6 +19,8 @@ EZ CD Audio Converter - утилита для преобразования ау�
 magnet:?xt=urn:btih:5D312775B83FBE23E65EEE91C23B0CD6CCBF9B21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Image2Icon Pro - простая в использовании утилита д�
 ```bash
 magnet:?xt=urn:btih:D426819C947E09B6F46D2CF2B0127101E3DF5357
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Kiara - Archangel (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Female 
 magnet:?xt=urn:btih:64D349532717B190923C06054FF224474007A703
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Project Pulsation (2015) [Ru/En] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:955EBB7DC2791798AC9D329160BB4E96A905422E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:955EBB7DC2791798AC9D329160BB4E96A905422E
 magnet:?xt=urn:btih:4B8AB9C03C6D45554A9298CCAD0B189B395C402F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:4B8AB9C03C6D45554A9298CCAD0B189B395C402F
 ```bash
 magnet:?xt=urn:btih:58046319FC7B42D0BC0DD726393CA9DF4B2C8F2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ Sleeping Romance - Alba (2017) [FLAC|Lossless|image + .cue] <Symphonic Metal, Fe
 magnet:?xt=urn:btih:5D8107E2F72571C246402E207C5F67C555DD3ADF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ Michael Damian - Love Is A Mystery (1989) [FLAC|Lossless|image + .cue] <Pop Rock
 magnet:?xt=urn:btih:A6C3EB8CEAB617928E391B04E4FCA80C2A94114E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ VectorStyler for Mac 1.1.094 [En]
 ```bash
 magnet:?xt=urn:btih:DDFE479F00127805AADE38468E4D83A474DB6502
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:DDFE479F00127805AADE38468E4D83A474DB6502
 magnet:?xt=urn:btih:34B389F4BCEA33066672CD8C1076FB2686E5A806
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:34B389F4BCEA33066672CD8C1076FB2686E5A806
 ```bash
 magnet:?xt=urn:btih:5C6C5F9C484700BE3CE5DE770D86215318F96B5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ VA - The Autumn Blues (2021) [MP3|320 Kbps] <Blues, Soul, Lyric>
 magnet:?xt=urn:btih:A616D9E907EF71F4472D74A9FE29E4B300CAA442
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ George Lynch & Jeff Pilson - Heavy Hitters II (2023) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:D1A0E248DD66910CEE00C1A1C5D374D635B0CDD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ Sergio Mendes & Brasil '66 - Greatest Hits (1970) 1987, A&M Records [FLAC|Lossle
 magnet:?xt=urn:btih:0393F30DCE147A1E41EDAE38BBB22313E474C0B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:0393F30DCE147A1E41EDAE38BBB22313E474C0B8
 ```bash
 magnet:?xt=urn:btih:AE2845AE3E3785EA136F02B393CD663F603DE4E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ SpyHunter - мощная утилита, которая в режиме реал
 magnet:?xt=urn:btih:569DF6A39E9B94780A4EEE43E2EA4BAF88CDF84E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ Aiseesoft Blu-ray Ripper Ultimate - мощный пакет мультимеди
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ David Byrne & Fatboy Slim - Here Lies Love (2010) 2CD, Remaster, 2023, Nonesuch 
 magnet:?xt=urn:btih:6D3226040866E16E32E3F106F841D799C5F55547
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +512,8 @@ Editors - EBM (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock
 magnet:?xt=urn:btih:585B72F2869448619D90D22A74C5B8B5F480EF95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +537,8 @@ Evoland 2 – ролевая RPG игра разработанная компа�
 ```bash
 magnet:?xt=urn:btih:DDA2BFF4E56B0C00490A575DD65E677F57AA18AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +564,8 @@ MSI Afterburner - утилита для разгона видеокарт люб
 magnet:?xt=urn:btih:68259B8D13F544059FB50A87A3C4B65804DE24E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ magnet:?xt=urn:btih:68259B8D13F544059FB50A87A3C4B65804DE24E6
 magnet:?xt=urn:btih:F71ADA7E89508A928DED70271531F1364DEF9A6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ magnet:?xt=urn:btih:F71ADA7E89508A928DED70271531F1364DEF9A6C
 ```bash
 magnet:?xt=urn:btih:8BAA06DDEE3CFF20492489EB8400D78E263A0A04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +645,8 @@ Tony Wessels and the Revolvers - Reloaded (2023) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:40E721C7BAF9E2E600FCD6DA93CC411EA0D827B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +671,8 @@ Sandboxie - yтилита для контроля за работой разли
 magnet:?xt=urn:btih:C391FBC7635D7B741927C52CE355A5850726B651
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +696,8 @@ magnet:?xt=urn:btih:C391FBC7635D7B741927C52CE355A5850726B651
 ```bash
 magnet:?xt=urn:btih:F01C0EC4C8C5ED849570D7E408C4D03836F579E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

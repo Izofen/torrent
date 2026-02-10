@@ -21,6 +21,8 @@ Concept - Straight Forward (EP) (2012) [MP3|320 кб/с]<Psychedelic / Night Ful
 magnet:?xt=urn:btih:453C140E2993B3F917485EE71BD7F79E8E2B2EBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Elle - самый популярный журнал мод в мире. Его �
 ```bash
 magnet:?xt=urn:btih:D95BDB77909630DBAF8FB2A355DE943383F6A91F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:D95BDB77909630DBAF8FB2A355DE943383F6A91F
 magnet:?xt=urn:btih:937779F1273842ADA367F28067EED1973347102B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Elle - самый популярный журнал мод в мире. Его �
 magnet:?xt=urn:btih:BB2AA1BF89C549EBDCB5452EC6EDE2EA6BAFD4F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Elle - самый популярный журнал мод в мире. Его �
 ```bash
 magnet:?xt=urn:btih:0B02222AE87772F24FF4AA3406875548F5967986
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Etic & Double Click - Undercook (EP) (2012) [MP3|320 кб/с]<Psychedelic / Prog
 magnet:?xt=urn:btih:F38E076497BBDC62A516F05944A9B52A44166423
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:F38E076497BBDC62A516F05944A9B52A44166423
 ```bash
 magnet:?xt=urn:btih:922914032160372ED9AB708BC06D1496F08328C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:922914032160372ED9AB708BC06D1496F08328C5
 magnet:?xt=urn:btih:EFFB1F560B5603F5DD550BBEE7F006BEC775B0BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:EFFB1F560B5603F5DD550BBEE7F006BEC775B0BC
 ```bash
 magnet:?xt=urn:btih:BB37F83E6B7E0A7C9C507279549D6811EB75ECB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ Shantifax - Delete Automation (2011) [MP3|320 кб/с]<Downtempo, Progressive Ps
 ```bash
 magnet:?xt=urn:btih:93818688A6FD40FE35EEED855C68A6DCA485897D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +306,8 @@ VA - In the Club Vol. 5 (2012) [MP3|320 кб/с]<House, Tech House, Minimal, Dee
 magnet:?xt=urn:btih:4D55B13AE270244EB947037977436C2AC2D626EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ DJ Kocmoc - Electro Sensation vol.27 (праздничный lite выпуск) 
 magnet:?xt=urn:btih:7A1784BEE1C9C8A4B007964F813F29376F9795C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +365,8 @@ magnet:?xt=urn:btih:7A1784BEE1C9C8A4B007964F813F29376F9795C9
 ```bash
 magnet:?xt=urn:btih:000BC2295575D931F8FABD1F1A2C98111EB82212
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +392,8 @@ Total Escape - издание, воплощающее саму суть изыс
 magnet:?xt=urn:btih:3EBE2D63F68161EC6A1AE26C75E0015E7F99DD36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +417,8 @@ magnet:?xt=urn:btih:3EBE2D63F68161EC6A1AE26C75E0015E7F99DD36
 ```bash
 magnet:?xt=urn:btih:0F213D43D5D711F9C3F173E08B17F7D3FDA28589
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +444,8 @@ magnet:?xt=urn:btih:0F213D43D5D711F9C3F173E08B17F7D3FDA28589
 magnet:?xt=urn:btih:69D28F4B7026CAA6263B7599432A8B8261CED525
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +470,8 @@ Elle Decoration - самый красивый и полезный междуна
 magnet:?xt=urn:btih:BC5D911A684D1F1AED3EB27E733DC071D0A16572
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +495,8 @@ Elle Decoration - самый красивый и полезный междуна
 ```bash
 magnet:?xt=urn:btih:0C731BE282F04F508033C1BDD8BCCCCD7C371699
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +527,8 @@ VA - Candy Disco Vol. 6 - Ibiza House Issue Pt. 1 (2011) [MP3|320 кб/с]<House
 magnet:?xt=urn:btih:9A070EB97D618B103B2B60D4DE9512DA114EF1FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +552,8 @@ magnet:?xt=urn:btih:9A070EB97D618B103B2B60D4DE9512DA114EF1FF
 ```bash
 magnet:?xt=urn:btih:1196636EE7D37868794EE6D5454A3ECA17C005CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +579,8 @@ magnet:?xt=urn:btih:1196636EE7D37868794EE6D5454A3ECA17C005CA
 ```bash
 magnet:?xt=urn:btih:309CA63450238CF3CDDBBE624A33394A4DBF80EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +609,8 @@ Satore - Back Home EP (2012) [MP3|320 кб/с]<Deep House, Dub Techno>
 magnet:?xt=urn:btih:8A2B19FFFED6E28275AD41C235D5CF74AB5D262F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +634,8 @@ Elle Decoration - самый красивый и полезный междуна
 ```bash
 magnet:?xt=urn:btih:4FDA639B27D0BC5D45195DBA565C9B4F947F11A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +662,8 @@ Roberto Capuano - O.B.E. (EP) (2012) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:422DF44835C5609735A13F8F74807A357F4FD550
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -645,6 +693,8 @@ magnet:?xt=urn:btih:422DF44835C5609735A13F8F74807A357F4FD550
 magnet:?xt=urn:btih:0B6E2C2450613995C095318FE75C48CA6B321A9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +718,8 @@ Total Escape - издание, воплощающее саму суть изыс
 ```bash
 magnet:?xt=urn:btih:083F1815DB72D5388E4116A922DCB1D7C3925BAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

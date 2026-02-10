@@ -22,6 +22,8 @@ dArtagnan - Felsenfest (2022) 3CD [MP3|320 Kbps] <Musketier-Rock, Folk Rock>
 magnet:?xt=urn:btih:9140B95078230AC3C0F4FA4BF152DA6532EC5CC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Heroes of Might and Magic VII / Меч и Магия Герои VII (2015) [Ru/E
 ```bash
 magnet:?xt=urn:btih:57C927CA98E1491B708DB5368A1652D7375D1B9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:57C927CA98E1491B708DB5368A1652D7375D1B9C
 magnet:?xt=urn:btih:9523F3CA6BC6E1C890C3DA270A2A13B800C56A5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:9523F3CA6BC6E1C890C3DA270A2A13B800C56A5E
 ```bash
 magnet:?xt=urn:btih:799D7F98E5BA4D88572CF220AC766B05081133D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:799D7F98E5BA4D88572CF220AC766B05081133D4
 magnet:?xt=urn:btih:F2BABFF831300760D23B84798C95268937FF9075
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ MXGP 2021 - The Official Motocross Videogame (2021) [Multi] (1.0b7737829) Licens
 ```bash
 magnet:?xt=urn:btih:0932C57F653BFA8367A0911A640FCB55DF5E2A86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:0932C57F653BFA8367A0911A640FCB55DF5E2A86
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 magnet:?xt=urn:btih:63F0CA6DD0D312082A40DD8265D9589FC405D2E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:63F0CA6DD0D312082A40DD8265D9589FC405D2E2
 ```bash
 magnet:?xt=urn:btih:5E447A01C491E4E43DC085CDFF9884A7C930518E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:5E447A01C491E4E43DC085CDFF9884A7C930518E
 magnet:?xt=urn:btih:C85B9F5B052DA757B429F36970665BE7D5F756B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ NestJS - это тот фреимворк, созданный для облег�
 magnet:?xt=urn:btih:009BDFD568603E35284A92DF4F9865F2ACD137A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ Dishonored 2 (2016) [Ru/En] (1.77.9/dlc) Repack xatab
 magnet:?xt=urn:btih:B1B2C7C9903606D41CDB8713B3651E6E973C54B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Vivaldi 5.5.2805.42 + Автономная версия (standalone) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A67EE0D1956D1B668A9291B48072B9D5A1069405
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:A67EE0D1956D1B668A9291B48072B9D5A1069405
 magnet:?xt=urn:btih:614F0DE7E7884A15D546023B1B1C616D5162BF52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:614F0DE7E7884A15D546023B1B1C616D5162BF52
 ```bash
 magnet:?xt=urn:btih:180F8820FF952A5B518B2D848C3EB90B84A6649E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:180F8820FF952A5B518B2D848C3EB90B84A6649E
 magnet:?xt=urn:btih:062BE42A3B70E4F1D2D230431F5DA9D1811890C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:062BE42A3B70E4F1D2D230431F5DA9D1811890C5
 magnet:?xt=urn:btih:C82F058A78CDA81823E00055CB6910293D056B5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Microsoft Windows 7 SP1 x86/x64 Ru 9 in 1 Origin-Upd 10.2018 by OVGorskiy® 1DVD
 ```bash
 magnet:?xt=urn:btih:86AD5BC788174986E417E100445DB165E796ACAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ Minimal Schlager - Love, Sex & Dreams (2022) [FLAC|Lossless|WEB-DL|tracks] <Synt
 magnet:?xt=urn:btih:70E62CA2F8231558E8C0179DA305C64C4D79F5A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:70E62CA2F8231558E8C0179DA305C64C4D79F5A8
 ```bash
 magnet:?xt=urn:btih:64E8D05CEA93B700B3C9E4399DB204BFFC85E485
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ SEO Conference | Материалы VI Международной SEO Conference
 magnet:?xt=urn:btih:273C3D66208BCFFBF7F03BD07773F6F5233F2B9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ Kириллица и латиница в разных папках.Формат:
 magnet:?xt=urn:btih:599A423B257A30DC035CB7B90311035BE2C44877
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:599A423B257A30DC035CB7B90311035BE2C44877
 ```bash
 magnet:?xt=urn:btih:BD5C19988EA16A95951C908F098099BAD4E5F28E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:BD5C19988EA16A95951C908F098099BAD4E5F28E
 magnet:?xt=urn:btih:D810C13A8FCA46CF415A27A571DE82CD7EC570C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:D810C13A8FCA46CF415A27A571DE82CD7EC570C4
 magnet:?xt=urn:btih:1F1C98FB9E63CBAC54EDEA569C12420F5B68ACD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:1F1C98FB9E63CBAC54EDEA569C12420F5B68ACD7
 ```bash
 magnet:?xt=urn:btih:F379FF572EB4B342827E70293B5396FCBC831AD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

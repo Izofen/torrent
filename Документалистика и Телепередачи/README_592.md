@@ -1,3 +1,29 @@
+###  Публикация: 722911   (797526) от 26.04.2016
+
+Небесные охотники. Мир стрекоз / Sky Hunters. The World of the Dragonfly (2010) HDTVRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ослепительный металлический окрас и уникальное искусство полета делают их истинными небесными сокровищами. Этот документальный фильм покажет стрекоз такими, какими вы их никогда раньше не видели. Захватывающая замедленная съемка и мультипликация позволяют запечатлеть момент молниеносного настижения добычи на лету, а также спаривание в воздухе. Стрекозы жили на Земле (   Читать дальше...   )Жанр: Документальный, научно-популярный, исследование, природа, энтомологияПеревод: Одноголосый закадровый (профессиональный, SDI Media)Продолжительность: 00:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26BC0E45AF9E22AC78F114E4199FADEA060477A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011136   (797546) от 26.04.2016
 
 Чернобыль. До и после (2016.04.26) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:7D656C10F8C7464A9CD8FA10F8EE982A3AE43BC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:7D656C10F8C7464A9CD8FA10F8EE982A3AE43BC4
 magnet:?xt=urn:btih:FFBFBC25505A95689BF234FA8595637D69F72380
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ BBC. Дети средневековья / Too Much, Too Young. Children of Midd
 ```bash
 magnet:?xt=urn:btih:D4ECAFB52274AFF8A379A8347C00972CD4DD1617
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:D4ECAFB52274AFF8A379A8347C00972CD4DD1617
 magnet:?xt=urn:btih:91FA819971265D387D3913F92975BB6A877939AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:91FA819971265D387D3913F92975BB6A877939AC
 ```bash
 magnet:?xt=urn:btih:235C5F1B7C49BAFF5F6C2FE638DD9CC9779C6ACE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:235C5F1B7C49BAFF5F6C2FE638DD9CC9779C6ACE
 magnet:?xt=urn:btih:124FD698B9BC73D920EE2CE604F5826114D134B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:124FD698B9BC73D920EE2CE604F5826114D134B5
 magnet:?xt=urn:btih:C9C3E3EDD00F326D9093616520B506BD3E2C2608
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:C9C3E3EDD00F326D9093616520B506BD3E2C2608
 ```bash
 magnet:?xt=urn:btih:88EAE7B2C9F376E08AFDB5905970E9189746B78D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:88EAE7B2C9F376E08AFDB5905970E9189746B78D
 magnet:?xt=urn:btih:9BE93AEF4A029F580FB28BF9DF0103A22B20AACD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:9BE93AEF4A029F580FB28BF9DF0103A22B20AACD
 ```bash
 magnet:?xt=urn:btih:C6C1F6DBCB17F7D60BD423BC3576E215DBC12092
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:C6C1F6DBCB17F7D60BD423BC3576E215DBC12092
 magnet:?xt=urn:btih:ED921EF8EF6A509B691EAB7910965DB01114BE79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:ED921EF8EF6A509B691EAB7910965DB01114BE79
 ```bash
 magnet:?xt=urn:btih:C590C5C68B38C16D8E85EF6DC7A9EC9F2818FE14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:C590C5C68B38C16D8E85EF6DC7A9EC9F2818FE14
 magnet:?xt=urn:btih:425B9812E856A94BBCA4759C29C4ED6A9D2642CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:425B9812E856A94BBCA4759C29C4ED6A9D2642CB
 ```bash
 magnet:?xt=urn:btih:9364AB697A33AC4CF81AB3453F7FF22BBC691157
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:9364AB697A33AC4CF81AB3453F7FF22BBC691157
 magnet:?xt=urn:btih:8B884E6FBD6BFB29FD18F8B8031848496A1271CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:8B884E6FBD6BFB29FD18F8B8031848496A1271CE
 ```bash
 magnet:?xt=urn:btih:69D0F8C9ED8698113018E9100AE4406324229FDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:69D0F8C9ED8698113018E9100AE4406324229FDD
 magnet:?xt=urn:btih:0D8622B26CC803B059AE7A81B769CD46AD4177D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:0D8622B26CC803B059AE7A81B769CD46AD4177D6
 ```bash
 magnet:?xt=urn:btih:9DFB1385C657D8F7F5BE1DEEDA8D93EC64CD814E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +515,8 @@ magnet:?xt=urn:btih:9DFB1385C657D8F7F5BE1DEEDA8D93EC64CD814E
 magnet:?xt=urn:btih:A8C4623C1725EE7D1F8D35E73331CAB3FBA0EDB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +540,8 @@ magnet:?xt=urn:btih:A8C4623C1725EE7D1F8D35E73331CAB3FBA0EDB9
 ```bash
 magnet:?xt=urn:btih:ECD64458F9A314D939EB5873BD5AA14BA76DA059
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +567,8 @@ magnet:?xt=urn:btih:ECD64458F9A314D939EB5873BD5AA14BA76DA059
 magnet:?xt=urn:btih:AD924C8B28507E6C742C045E5D703E3BEADF1FA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +592,8 @@ magnet:?xt=urn:btih:AD924C8B28507E6C742C045E5D703E3BEADF1FA6
 ```bash
 magnet:?xt=urn:btih:FB53736EBAD3D5CC8D51ADDCAC865973F49D81AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +619,8 @@ magnet:?xt=urn:btih:FB53736EBAD3D5CC8D51ADDCAC865973F49D81AF
 ```bash
 magnet:?xt=urn:btih:3C857158EB7979425E522DC96666BB7DCD5F3326
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:3C857158EB7979425E522DC96666BB7DCD5F3326
 magnet:?xt=urn:btih:0A58265C6FA4C7A221540D08E1C07EFD91ABCB4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,29 +675,7 @@ magnet:?xt=urn:btih:0A58265C6FA4C7A221540D08E1C07EFD91ABCB4D
 magnet:?xt=urn:btih:0135F9FFB0B71212B3EAE89B872B926C52665596
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508325   (797961) от 07.11.2021
-
-Черноморский цугцванг. Гибель теплохода «Армения» (2021) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797961.jpg" />
-</div>
-
-
-###  Подробнее
-
-7 ноября 1941 года состоялся парад на Красной площади, к тому моменту почти окруженной войсками Вермахта. На кону — судьба советской столицы, и все внимание страны и мира обращено на нее. И когда в радиоэфире еще звучали трансляции дерзновенного парада-послания непреклонной Москвы граду и миру, в Чёрном море от немецких бомб погиб теплоход «Армения». День великого (   Читать дальше...   )Производство: Россия, АО Телекомпания "НТВ", Русское географическое общество.Жанр: Документальный, исследование, война, историяРежиссер: Иван СкворцовЯзык озвучки: РусскийСубтитры: АнглийскиеПродолжительность: 01:17:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C15B21AF1348B15700FA59FF2F693F4EFC45B6B6
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

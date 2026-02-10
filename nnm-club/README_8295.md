@@ -28,6 +28,8 @@
 magnet:?xt=urn:btih:494D487599C1A256AC3C77CE622808B842752E67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ magnet:?xt=urn:btih:494D487599C1A256AC3C77CE622808B842752E67
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ My My Mai / Интимная консультантка Май [1993, OVA, 4 ep.
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -105,6 +111,8 @@ Analogue Drums - BuckShot by KRock[KONTAKT|EXS][английский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ Analogue Drums - BuckShot by KRock[KONTAKT|EXS][английский]
 ```bash
 magnet:?xt=urn:btih:D5764A4828AC601C9F8519E68BD8A49F82649BF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:D5764A4828AC601C9F8519E68BD8A49F82649BF0
 magnet:?xt=urn:btih:DA395D518872E3AB2D739A7D73009CE6118DCDB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -179,6 +191,8 @@ magnet:?xt=urn:btih:DA395D518872E3AB2D739A7D73009CE6118DCDB7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -204,6 +218,8 @@ magnet:?xt=urn:btih:DA395D518872E3AB2D739A7D73009CE6118DCDB7
 magnet:?xt=urn:btih:3F83B27CD301BC5823A9BD407A7DA28DB6443C7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ magnet:?xt=urn:btih:3F83B27CD301BC5823A9BD407A7DA28DB6443C7B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ Undisputed VS 2- стиль в темно-бирюзовых тонах. Сов�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +298,8 @@ Onegai Teacher / Пожалуйста! Учитель [2002, TV, 12 + OVA] BDrip
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ Onegai Teacher / Пожалуйста! Учитель [2002, TV, 12 + OVA] BDrip
 magnet:?xt=urn:btih:F867A4A2C78BE896076090017EFA5775F2F511B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:F867A4A2C78BE896076090017EFA5775F2F511B7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ magnet:?xt=urn:btih:F867A4A2C78BE896076090017EFA5775F2F511B7
 magnet:?xt=urn:btih:F50344730A1670B13432650C0A9031CA9F3019D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ Transmute Pro - утилита будет преобразовывать, син
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ TotalFinder – это набор полезных утилит, расширя�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ Kore ga Watashi no Goshujin-sama / He is my master / Он мой хозяин [2
 ```bash
 magnet:?xt=urn:btih:99C2A7A99A8CF2D263BB3573AF9A597909E52357
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ magnet:?xt=urn:btih:99C2A7A99A8CF2D263BB3573AF9A597909E52357
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:99C2A7A99A8CF2D263BB3573AF9A597909E52357
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +537,8 @@ World Art | AniDB | Wikipedia | KageProject | Official pageЖанр: комед�
 magnet:?xt=urn:btih:64FA4E9DEA0D18320791D6B24FF4163E675099FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ magnet:?xt=urn:btih:64FA4E9DEA0D18320791D6B24FF4163E675099FA
 magnet:?xt=urn:btih:BA936ADC74D9E2A1FD078CEECDFA0882F944DD5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:BA936ADC74D9E2A1FD078CEECDFA0882F944DD5D
 ```bash
 magnet:?xt=urn:btih:17A717CC75F76D1DB3C135A02C36D8C16796D2B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +616,8 @@ magnet:?xt=urn:btih:17A717CC75F76D1DB3C135A02C36D8C16796D2B2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +641,8 @@ SopCast Player - клиент, позволяющий смотреть виде�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +675,8 @@ SopCast Player - клиент, позволяющий смотреть виде�
 magnet:?xt=urn:btih:8A05394EFB7F53979572F68CB49BF814C27B68A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ magnet:?xt=urn:btih:8A05394EFB7F53979572F68CB49BF814C27B68A6
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ InShot - впечатляющее своими возможностями и у�
 magnet:?xt=urn:btih:D8678A38F9531659B68091217A3E743256AB2A6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ QuickMemoryTestOK 4.11 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2CC619FCB886E3D552032881529012405A62802B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:2CC619FCB886E3D552032881529012405A62802B
 magnet:?xt=urn:btih:E1041F9DE05E57C70AD400127FCC3BE4B74F4FD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Skype предназначен для личного и делового общ�
 ```bash
 magnet:?xt=urn:btih:AA307F9C205E20D4FDB6B5AF86FBB14ABB17FF9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ TheAeroClock - портативная программа, благодаря к�
 magnet:?xt=urn:btih:A794F3CCCBF9BEECCAE7F235590639D992DB091F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ ZEDGE - приложение в котором вы сможете найти н
 ```bash
 magnet:?xt=urn:btih:171386EB7E5E78AC69DA7E39CB5B97F8001542AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ AllDup - бесплатный инструмент для поиска и уда
 magnet:?xt=urn:btih:2571C2DC5B6E3DEB6588AF50055EF207B6D034D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Google Earth Pro 7.3.6.9275 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:64AD954DBE70EC552EA8EF9917A2894EFA88E542
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Complete Internet Repair 9.0.3.6088 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:52232C21C0176F567995D1796E1D295C2785EDEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Text Editor Pro 27.5.2 + Portable + Bonus [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3FBC8C8843EE98EDF4EC6B108744441FF3D41B0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Monkey's Audio — данная утилита предназначена для
 magnet:?xt=urn:btih:BFBFE71978904B56B2048E232248FC97EF4FB3EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 ```bash
 magnet:?xt=urn:btih:BB9938A4BBD4FCF6FC134FEF1A5036EAAAAD7246
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Display Driver Uninstaller это утилита удаления драйвер
 magnet:?xt=urn:btih:C666647EC539175314D55FFC3CD6D96B7D9DFD5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ PDF Shaper Professional 12.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1F4A1AD3B90FC43A7C82324F77F79E24E6167A79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ KMSAuto Lite + Установщик офиса + Некоторые нужные
 magnet:?xt=urn:btih:090C8E2413F423233BDC4B6922933FB4741905BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Nox App Player 7.0.3.8000 [Multi/Ru]
 magnet:?xt=urn:btih:5B81E4A1818956503D2F05928B242A8DC99855F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ WinUtilities - набор утилит WinUtilities Professional для наст
 ```bash
 magnet:?xt=urn:btih:3DA43E19AA3C8FD589AEC4519DB629769419D2C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ updated_aug_2023_x64_dvd_040b13d6.iso
 magnet:?xt=urn:btih:6BA2823D599028B5D433624B52485426F802E4F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ VocalSynth 2 - захватывающий вокальный опыт, кото�
 magnet:?xt=urn:btih:7C7E2A17DE741D384990B45D38DA55DF6A4F7CD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ Google Earth Pro 7.3.6.9275 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:18A56046D947BAEFB576600CB764CFA99E749159
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ Insight предоставляет собой широкий набор инст
 magnet:?xt=urn:btih:68238886070B9F715535415BE3B01B0E90817FC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:9DACA7501BDB9E81F78E41116BB064CE976459A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ LibreWolf как раз решает (   Читать дальше...   )Язы
 magnet:?xt=urn:btih:AB26E79D215A09181AB83F453B1580F7CF1CD08F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ Sensei - это приложение, которое охватывает как
 ```bash
 magnet:?xt=urn:btih:27B8B1C8AA8B523B45A8A204E455B3E4F47E78E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ Desktop.Calendar.Tray.OK 4.02 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:5100EFD2B68158AB3154FB7FE881EFB655ECC0F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Advanced Renamer хоть и бесплатная (   Читать дальше
 ```bash
 magnet:?xt=urn:btih:885EA1D30B6F0B410C19E79F1C9D4A6B4A01265A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

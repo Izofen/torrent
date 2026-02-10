@@ -19,6 +19,8 @@ Virtua Fighter 5 R.E.V.O. (2025) [Multi] (1.00/dlc) Repack FitGirl
 magnet:?xt=urn:btih:49D3C5F2C781E7B67E4E1BEAA4A251D68975B641
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Retro City Rampage DX (2014) [Multi] (2.10) License GOG
 ```bash
 magnet:?xt=urn:btih:3CB6F6261BB3BE0FB688CC2C4BB3F3E32F097CDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Virtua Fighter 5 R.E.V.O. (2025) [Multi] (Build 17103742/dlc) Scene Rune
 magnet:?xt=urn:btih:F0D125FAFCFCCE4C56F6BD16953FA61A20FFF487
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Mika and The Witch's Mountain (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:BC6559F1362B0279273DB33DFC4AA43E7AB01B76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ ReSetna (2025) [Ru/Multi] (build 17191225) Repack seleZen
 magnet:?xt=urn:btih:8EA6FA757F4E02AF9A99653439849AB5C9EEF49D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Primeval (2020) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:159B355E37B21C9016EF3C9C992FF327270448D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Fragrance Point (2025) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:A4D2716FA3932A8FE08F261D9978B6D6F22AED1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ STAR WARS: Episode I: Jedi Power Battles (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:91CEA4130ADCFC23830BE36F2AD84720E708287F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ My Memory of Us – это воспоминание о дружбе между �
 magnet:?xt=urn:btih:2711366D0928289602E0210BBDB829D062692B17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ JUMP! The Floor Is... (2025) [Ru/Multi] (build 16957809) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:8B447165721B8594FA9202F97C2BF87D4EEE092C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Bugs Bunny & Taz: Time Busters (2000) [Ru/Multi] (1.0) Repack Ma2012ks
 magnet:?xt=urn:btih:7725D29CA7FE481D5E0A74EED20DD78E2E89EDC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:7725D29CA7FE481D5E0A74EED20DD78E2E89EDC9
 ```bash
 magnet:?xt=urn:btih:A185A458EBE0675C89FB057EAA49D112717299DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Warden's Will (2025) [Ru/Multi] (1.0.0c) Repack FitGirl
 magnet:?xt=urn:btih:0EE127D9740EE4A9EFE767DD97BE36684857665E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Warden's Will (2025) [Ru/Multi] (1.0.0c) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:8B99221E5AE4ED3191C1FE91EA697D51847BB21F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Warden's Will (2025) [Ru/Multi] (1.0.0c) Repack seleZen
 magnet:?xt=urn:btih:49147375226F461371CBFD8080FC2AE2B98DA6FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Only Up: Lizards Must Fall / Only Up: Восхождение Русов (2025) [
 ```bash
 magnet:?xt=urn:btih:039B74795BDEC05FB877DE194886A06BFF219CBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Living With Sister: Monochrome Fantasy (2024) [En] (20241219/dlc) Scene Tenoke
 magnet:?xt=urn:btih:02322C18E3C83C3E855FC3025F728FC18B5F654A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Adventure Allies - это казуальная игра в жанре action-adv
 ```bash
 magnet:?xt=urn:btih:93A737325C88CC854084FDB235D3C1B824136A6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Only Up: Lizards Must Fall / Only Up: Восхождение Русов (2025) [
 magnet:?xt=urn:btih:F41B0DDE3B05EB5210B7A719D498807F70573086
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Tekken 8 - продолжение культового файтинга, нап�
 ```bash
 magnet:?xt=urn:btih:0499B81AD5AE6F0A309969DB06618D741CC2BDC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ magnet:?xt=urn:btih:0499B81AD5AE6F0A309969DB06618D741CC2BDC0
 magnet:?xt=urn:btih:3868E9ABF5812EADA0AC96AD8D661885F0FF59B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Finding Frankie (2024) [Ru/Multi] (Build 16260850) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:2D18EF68A1232918D91ED5A2934BD575FBE95B92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Snow Bros. Wonderland (2024) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:5240915850036DE63AF7C99613145B4018E2F3FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Snow Bros. Wonderland (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:B517DFEE37436DAA3AC88F6FDD95D22A35E27879
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Slopecrashers (2024) [En] (1.0.0.4) Repack FitGirl
 magnet:?xt=urn:btih:BEF3F1B7605EF506B41EAFDD1C110124CA18D610
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Penny Blood: Hellbound - это рогалик, в котором вы берё�
 ```bash
 magnet:?xt=urn:btih:E3739F0CD0E03C02ABAE6D5554AB93249B583E3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

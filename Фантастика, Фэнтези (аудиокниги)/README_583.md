@@ -1,3 +1,29 @@
+###  Публикация: 1851916   (1055541) от 
+
+Виктор Федоров | Симфарея (Книга 2). Тень изначальных (2025) [MP3, Евгений ЧеИзС]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Над империей сгущаются тени. На континенте растет напряжение, которое эхом отзывается в каждом уголке страны, угрожая разрушить ее изнутри. Эдвин и его спутники спешат в столицу. На этом пути им предстоит столкнуться не только с противодействием вражеских сил, но и с внутренними конфликтами. Райя, оказавшись в центре политической бури, вынуждена лавировать между (   Читать дальше...   )Жанр: Героическое фэнтезиИздательство: ЛитРесПродолжительность: 18:29:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E92B6EF8104BD7C107A39A73127DD2D07219A1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1851913   (1055542) от 
 
 Виктор Федоров | Симфарея (Книга 1). Кратеры Симфареи (2024) [MP3, Евгений ЧеИзС]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:14230052DC2E059325B80F9877B10B856D5190E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:14230052DC2E059325B80F9877B10B856D5190E5
 magnet:?xt=urn:btih:68F696C3540ACE6EE6723A620052F01F8D4CDF6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:68F696C3540ACE6EE6723A620052F01F8D4CDF6A
 ```bash
 magnet:?xt=urn:btih:E7E1878137F214AA765FCD07EBE79A9656DCDF98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:E7E1878137F214AA765FCD07EBE79A9656DCDF98
 magnet:?xt=urn:btih:5D11684311B1204485B0241856BFF7D50EE0A9E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:5D11684311B1204485B0241856BFF7D50EE0A9E2
 magnet:?xt=urn:btih:90968607DB36E60629196FE0B5886EC236EEC33A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:90968607DB36E60629196FE0B5886EC236EEC33A
 ```bash
 magnet:?xt=urn:btih:9F5039CB215F038E7BC579948F2F3BBA530710BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:9F5039CB215F038E7BC579948F2F3BBA530710BC
 magnet:?xt=urn:btih:F8E131965E888FCE469FC7660CC46794B8736DDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:F8E131965E888FCE469FC7660CC46794B8736DDD
 ```bash
 magnet:?xt=urn:btih:21ABBBC08885AE5F6B398477D1447CAA1DA0137D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:21ABBBC08885AE5F6B398477D1447CAA1DA0137D
 magnet:?xt=urn:btih:D5075AB7DCB52F04F8B394C7F5FE21F8F0E072D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:D5075AB7DCB52F04F8B394C7F5FE21F8F0E072D2
 ```bash
 magnet:?xt=urn:btih:B9B124D470716A85F62E6B5391F1635539D89096
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:B9B124D470716A85F62E6B5391F1635539D89096
 magnet:?xt=urn:btih:026A58C56CBFF423B81E7F802B7D59AAA5182CFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:026A58C56CBFF423B81E7F802B7D59AAA5182CFA
 ```bash
 magnet:?xt=urn:btih:5133CEB74EC707C6A2ACA7CA8F6DCCBD33B0D1C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:5133CEB74EC707C6A2ACA7CA8F6DCCBD33B0D1C6
 magnet:?xt=urn:btih:DA2D11089488E1CB3B47A2D7418D9FAE36BC6A2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:DA2D11089488E1CB3B47A2D7418D9FAE36BC6A2A
 ```bash
 magnet:?xt=urn:btih:807F362F3773942E4111F06BB3ADD5654C422034
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:807F362F3773942E4111F06BB3ADD5654C422034
 magnet:?xt=urn:btih:9171BFB07D5649F116D0BBBA181BEAA5A309950B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:9171BFB07D5649F116D0BBBA181BEAA5A309950B
 magnet:?xt=urn:btih:254D86A3B20D74917B0A1287844C59A370E4B9D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:254D86A3B20D74917B0A1287844C59A370E4B9D2
 ```bash
 magnet:?xt=urn:btih:9A9426FB41E08606E9F8B57F330D57ECFBEF6F18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:9A9426FB41E08606E9F8B57F330D57ECFBEF6F18
 magnet:?xt=urn:btih:23AF54487AD645CA699C18C618D4A884C95B9BBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:23AF54487AD645CA699C18C618D4A884C95B9BBE
 magnet:?xt=urn:btih:6DBEB93B455EA47066F54236FFBFEAA3321CD359
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:6DBEB93B455EA47066F54236FFBFEAA3321CD359
 ```bash
 magnet:?xt=urn:btih:74776C6C6586AA1A4C2AA696A60F507EACB965AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +574,8 @@ magnet:?xt=urn:btih:74776C6C6586AA1A4C2AA696A60F507EACB965AC
 magnet:?xt=urn:btih:0CB5D5C48B520E5395EF6851E3B57C13124E9AB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:0CB5D5C48B520E5395EF6851E3B57C13124E9AB4
 ```bash
 magnet:?xt=urn:btih:FE620730AD62010E65C4840160D8679FF7D2A21D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +630,8 @@ magnet:?xt=urn:btih:FE620730AD62010E65C4840160D8679FF7D2A21D
 magnet:?xt=urn:btih:D46F607F39F88B14CE0AA2B4067A1992EDC4E143
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:D46F607F39F88B14CE0AA2B4067A1992EDC4E143
 ```bash
 magnet:?xt=urn:btih:4B4397CE8368F04F7DDE2181D8CEE479FAEABF79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,31 +686,7 @@ magnet:?xt=urn:btih:4B4397CE8368F04F7DDE2181D8CEE479FAEABF79
 magnet:?xt=urn:btih:6F905C366E9914C844EE8AE3712ED1C823154683
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852022   (1055707) от 
-
-Юрий Уленгов, Валерий Пылаев | Гардемарин Ее Величества (Книга 5). Коронация (2025) [MP3, Вадим Пугачев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я дал императору корону. Верным мне князьям – богатство и власть. Стране – почти четверть века покоя и мира. Я был готов ко всему, даже к собственной смерти.
-Но меня подвели. Оставили в небытии на долгих десять лет и вернули в этот мир, лишь когда взятое взаймы благополучие начало трещать по швам.
-На дворе две тысячи пятнадцатый год, почти вся моя семья уничтожена, (   Читать дальше...   )Жанр: Попаданцы, Альтернативная историяИздательство: ЛитРесПродолжительность: 08:30:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD8B8CA21257D9D73C79421C6B436DB154E3C19F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

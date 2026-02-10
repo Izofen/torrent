@@ -19,6 +19,8 @@ Half-Life 2 официально исполнилось 20 лет, и по сл�
 magnet:?xt=urn:btih:D2E1BBD5FC20D10D42F7F4ADDD814A0F74959073
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Little Big Adventure – Twinsen’s Quest (2024) [Ru/Multi] (1.1.2/dlc) Repack 
 ```bash
 magnet:?xt=urn:btih:90C2C971C5C720F1E3445749D8287009ACD0D7B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Slackers - Carts of Glory - это гоночная адвенчура, кото
 magnet:?xt=urn:btih:C9039E3C629E0504FBDA6AC79D8DDEC0E4E33E2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Roboquest - это динамичный рогалик от первого ли�
 ```bash
 magnet:?xt=urn:btih:4E27A02FBDD0015E90CD6B60C9D8D1BD0417E601
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Lords of the Fallen приглашает игроков в мрачный мир
 magnet:?xt=urn:btih:0C33C33C8B3BDE7439A67BC66E9E90F062DB3AF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Icarus (2021) [Ru/Multi] (2.2.31.130582/dlc) Repack seleZen [Complete the Set]
 ```bash
 magnet:?xt=urn:btih:C2D6235744E81E61896124FC81932262BEE50573
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Gas Station Simulator – симулятор владения собственн
 magnet:?xt=urn:btih:1D12527A910C8F48E550BB20DC6A7F658CAD5E7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1128.ffO6.pc/dlc) Repack Let'sРl
 ```bash
 magnet:?xt=urn:btih:5E87BA1D959E5DC631B83D63F121CA997684FD9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Left 4 Dead - это классический survival-horror, действие 
 magnet:?xt=urn:btih:785A9ED4ED832E7600D751407A9E3C073DA6C89D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ South Park: Snow Day! перенесет вас в хаотичный, засн�
 ```bash
 magnet:?xt=urn:btih:0ADB52A63DC15AB84CBAD4787B99F106FF167FBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:0ADB52A63DC15AB84CBAD4787B99F106FF167FBD
 magnet:?xt=urn:btih:263AD522CD15CA9FB2128C700082A307D4B67AD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Project Wingman - это игра-экшен, в которой вы может�
 ```bash
 magnet:?xt=urn:btih:A6AB90D43147CF7C98F2E48BA4CB7E41101ABCE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Monster Hunter Stories - ролевая игра во вселенной Monster
 magnet:?xt=urn:btih:41FED8EFC22E8AEE20235B45521FD464735540E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ DON'T SCREAM (2023) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:18F10B11DBAC85B9A54D59883B0293E159C36DAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Troop (2023) [Ru/Multi] (Build 20241125/dlc) Repack FitGirl
 magnet:?xt=urn:btih:08CF2BCBC446E57AE8313A547DF7F342F5D0A46B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ One Boss One Fight (2024) [Ru/Multi] (1.10) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:9608ECAB9E6A9375D0E61ACAB6A5EB29BD6DD1F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ METAL SLUG - классический экшен-шутер, сохраняющ�
 magnet:?xt=urn:btih:063576A9533107D6CE569617D763C499276248AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Shredders (2022) [Ru/Multi] (Glacier Update/dlc) Repack FitGirl [540INDY Edition
 ```bash
 magnet:?xt=urn:btih:63849630A0D5807DE151D20218E35B5C246FD948
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ PATHOGEN X (2024) [Ru/Multi] (1.2) Repack Let'sРlay
 magnet:?xt=urn:btih:D9F6D19E3ECA1A9CED592DC1B92A50AE07F3C603
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Horizon — это пошаговая космическая стратегич�
 ```bash
 magnet:?xt=urn:btih:C40606F9CE88C577F970CCB2C25F44AD5AF683A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Project Wingman - это игра-экшен, в которой вы может�
 magnet:?xt=urn:btih:E9565CDA7337AAE7EC455C75EF3ED1EA3929CC60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Skies above the Great War (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A4FCFE330575C3FAE25A8A49DB4615D6077A60ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Automobilista 2 – вторая часть гоночного симулято�
 magnet:?xt=urn:btih:BFEA7C5728CB53B08CB4AA0786FA5D3CADE5E9FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ A Quiet Place: The Road Ahead - это однопользовательская 
 ```bash
 magnet:?xt=urn:btih:470DF43795CF30213A340E69056193B1875BF398
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Necro Story (2024) [Ru/Multi] (6043) Repack FitGirl [Soundtrack Edition]
 magnet:?xt=urn:btih:07B545321E47CD7F8F909A6598505EC513286B33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ House Flipper – увлекательный и интересный в своё
 ```bash
 magnet:?xt=urn:btih:0F4D560DE285441751D508E1960E7ED313DB3B57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

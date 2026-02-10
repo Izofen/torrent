@@ -22,6 +22,8 @@ Armel Dupas - Broderies (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, 
 magnet:?xt=urn:btih:CC69276ECAAC6C124A4373D1591C2F0F73B9707E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -55,6 +57,8 @@ Symphony in E flat major, No 57(   Читать дальше...   )Жанр: Cla
 magnet:?xt=urn:btih:93954FC0820F5814F461A92986EBAF9036CE246B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,6 +85,8 @@ SLAVA - OTTIMO best of SLAVA (1999) [FLAC|Lossless|tracks + .cue] <Classical, Vo
 ```bash
 magnet:?xt=urn:btih:9B37203A7E5D69FB6F5E029005D71F249EEB1E03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +121,8 @@ Lindsey Stirling - Lindsey Stirling (2012) [FLAC|Lossless]<Electronic / Instrume
 magnet:?xt=urn:btih:2EF8191AEF12011B1DD2272FC05532F478167644
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +149,8 @@ Concerto for Violin, Cello and Piano in C major, Op. 56 'Triple Concerto'
 ```bash
 magnet:?xt=urn:btih:B97E49339EC84417AE748CFD06411E17B3DE6890
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +185,8 @@ Franz Liszt - Grandes Etudes Pour le Piano (2004) [DST64 2.0 5.0 1 bit/2822,4 к
 magnet:?xt=urn:btih:FAC925C38D73E65866E1FC668E24054D20E7F82A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +213,8 @@ Jordi Savall, La Capella Reial de Catalunya, Hesperion XXI - Don Quijote de la M
 ```bash
 magnet:?xt=urn:btih:F7917C9DCA5B1119D682048BD1DCA9763F6BB3ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -232,6 +246,8 @@ Jordi Savall, La Capella Reial de Catalunya, Hesperion XXI - Christophorus Colum
 magnet:?xt=urn:btih:E064F93D29D66C902E9DFCE71BC01D0498A757EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +272,8 @@ Giuseppe Verdi - Un Ballo in Maschera: Herbert von Karajan, Vienna Philharmonic 
 ```bash
 magnet:?xt=urn:btih:FDCA6250A137A3CA42106CFE0DC95D904AADE486
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +302,8 @@ Piano Sonata No.32 in C minor, Op.111
 magnet:?xt=urn:btih:C94A23C6B4E1BEF86D2CE370898EA355098C56B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +327,8 @@ Beethoven - Complete Symphonies, Ouvertures (Bohm - Wiener Philharmoniker) (1995
 ```bash
 magnet:?xt=urn:btih:AED212C60A126900661F26F548F41379D3820C0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +357,8 @@ Amira Willighagen - Amira (2014) [FLAC|Lossless]<Classical, Opera>
 magnet:?xt=urn:btih:70CB6001426B325426D39D3558F9D643EC1E22C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +382,8 @@ magnet:?xt=urn:btih:70CB6001426B325426D39D3558F9D643EC1E22C9
 ```bash
 magnet:?xt=urn:btih:88DE99DCCD1E7D978EF6A5EEA48081C2FD1149BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +412,8 @@ magnet:?xt=urn:btih:88DE99DCCD1E7D978EF6A5EEA48081C2FD1149BE
 magnet:?xt=urn:btih:14A2DBF834DA619BF8076239C81862524C670A55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +437,8 @@ Beethoven - Complete Piano Sonatas, Kurfursten Sonatas, Sonatinas: Peter Takacs 
 ```bash
 magnet:?xt=urn:btih:C3154FE2D773054B95E04E7F8838AB90B63A6422
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +467,8 @@ Piano Novel - Lumino Forest (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Classic
 magnet:?xt=urn:btih:F57DF7783702E56FCDE03B1BDA8CE88706B3CF09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +495,8 @@ Andrea Bocelli - Cinema (2015) Deluxe Edition [MP3|320 кб/с]<Pop/Classical Cr
 ```bash
 magnet:?xt=urn:btih:1D25FF9243F0BC7D345D831008C1E2A4465390D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +525,8 @@ Ludovico Einaudi - Elements (2015) Deluxe Edition [MP3|320 кб/с]<Modern Class
 magnet:?xt=urn:btih:A121AE84D2930F12013CB13E0DEA1A43C5050E93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +553,8 @@ Nox Arcana - Gothic (2015) [MP3|320 кб/с]<Neo-Classical, Dark Ambient, Darkwa
 ```bash
 magnet:?xt=urn:btih:A5AEC9C73A7BC15EA63B7B567612DD63A649D3A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +583,8 @@ Marches Caracteristiques, D. 886
 magnet:?xt=urn:btih:F3EAE09B8C2708587F8135A7E35187B7B7D93A87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +611,8 @@ Anna Netrebko, Elina Garanca, Ramon Vargas, Ludovic Tezier, SWR Sinfonieorcheste
 ```bash
 magnet:?xt=urn:btih:F16879755F0EC0BFD2CCC5DF3D46D1EA64392B55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +641,8 @@ Piano Concerto No. 3 in D minor, Op. 30
 magnet:?xt=urn:btih:ADA8E78C2BDEAA62106997A862D5CBDAC576517E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +669,8 @@ Preludes op.28
 ```bash
 magnet:?xt=urn:btih:C604991EA12D4AD41ADE9EE66076BDB75744D0F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +699,8 @@ Piano Concerto No. 2 in C minor, Op. 18
 magnet:?xt=urn:btih:024B6717AC4AD301D6098EC6EEC230A1A67AD7DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -680,6 +728,8 @@ Piano Concerto No. 5 in E flat major ("Emperor"), Op. 73
 magnet:?xt=urn:btih:76738B22D86371B769352F697F065837BA491EBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -706,6 +756,8 @@ Lindsey Stirling - Warmer In The Winter (2017) Target Exclusive [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:89793F5C2914CF27CA24CD21F65CCB4251C3A14E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

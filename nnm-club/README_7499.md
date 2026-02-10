@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:EA4DB8183DB1D0EBC7A8C0F8E49EB92A5AA872F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:EA4DB8183DB1D0EBC7A8C0F8E49EB92A5AA872F9
 ```bash
 magnet:?xt=urn:btih:241C97225722589D2740751955F4CF353E0E9F36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:241C97225722589D2740751955F4CF353E0E9F36
 ```bash
 magnet:?xt=urn:btih:0190F4800E59592A1FB05AD6EA7324DA1721D177
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:0190F4800E59592A1FB05AD6EA7324DA1721D177
 magnet:?xt=urn:btih:946910C868DA7098ED2C359C97FCF0F5ABE23E24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Shadow of the Tomb Raider — финал трилогии о становлен�
 ```bash
 magnet:?xt=urn:btih:A45685F5FA8945596FB3DDD06FAB9DDC187B4BBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:A45685F5FA8945596FB3DDD06FAB9DDC187B4BBD
 magnet:?xt=urn:btih:2EB607B26F8A4708E35B67BA7AD3399118E9F889
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Ctrl + Paint, Matt Kohr | Digital Sketching 4: Technical Drawing (2016) PCRec [E
 ```bash
 magnet:?xt=urn:btih:5F9401886A4BD285068D56C05F2240665F35CB8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ VA - Slow Burning Metal Songs (2022) [MP3|320 Kbps] <Metal, Rock>
 magnet:?xt=urn:btih:4B3733E19938FAA6515353E4D854445D0E534345
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:4B3733E19938FAA6515353E4D854445D0E534345
 ```bash
 magnet:?xt=urn:btih:BB78C02010401F0930BFE5A860FA2318E12FB91B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:BB78C02010401F0930BFE5A860FA2318E12FB91B
 magnet:?xt=urn:btih:8626C9BF20E1870826F066513EC4B2FE44EBE4C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Inversion (2012) [Ru] (1.0.1.0) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:F212498F3D871819AF4E38DF5EA6619762EB8703
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Stand Up (2018) HDTV [H.264/1080p-LQ] (сезон 6, выпуск 1-15 из ?) (
 magnet:?xt=urn:btih:551EA944F5A07E5F149876339E9888D39A75B923
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:551EA944F5A07E5F149876339E9888D39A75B923
 ```bash
 magnet:?xt=urn:btih:5A43D11CF57D778E1B1A8DB534031163324915B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ Strider - Into Glory Stride (2022) [MP3|320 Kbps] <Heavy Metal>
 magnet:?xt=urn:btih:304D858341B7CDC6C5E250A3F2A4EF30C0B9D7FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ Anna Fiori - De la Tierra (Un encuentro semiacústico) (2019) EP [MP3|320 Kbps] 
 magnet:?xt=urn:btih:58BD2AC44046FA873E42B034BAFEE48C1CE54F33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:58BD2AC44046FA873E42B034BAFEE48C1CE54F33
 ```bash
 magnet:?xt=urn:btih:9B543B7DF112740B18E9B911106AFEE1C998C1CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ magnet:?xt=urn:btih:9B543B7DF112740B18E9B911106AFEE1C998C1CF
 magnet:?xt=urn:btih:4DB0D2759D674907D87DC08AA0F85C135394A4E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:4DB0D2759D674907D87DC08AA0F85C135394A4E9
 magnet:?xt=urn:btih:A21D3BDA1528B8545852019E3A82AD9BE32D7CB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ Dying Light - экшн-игра на выживание от первого ли
 ```bash
 magnet:?xt=urn:btih:9DD872178A1138D182ABB906D99A3F0D68688AC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ magnet:?xt=urn:btih:9DD872178A1138D182ABB906D99A3F0D68688AC7
 magnet:?xt=urn:btih:AB4293656BBD6FBBC19B9BBE52C148606CAFF1BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ Stats - это приложение с открытым исходным код�
 ```bash
 magnet:?xt=urn:btih:EAF4D1066C2C31C28B70575E0AA4D929423CAB92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ Ctrl + Paint, Matt Kohr | Creating Realistic Surfaces (2013) PCRec [En, Ru]
 magnet:?xt=urn:btih:3120BF723ADF9D0ECCCAA898F4B36EEECBC52F79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ Kaspersky Lab Products Remover 1.0.1545 [Ru]
 ```bash
 magnet:?xt=urn:btih:229DA674DDFC16239FDAAA1881F6D4599C09C01E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:229DA674DDFC16239FDAAA1881F6D4599C09C01E
 magnet:?xt=urn:btih:04258A2AA493A529A5A1259B34E8DDB72CFAC541
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ Comedy Woman (29.11.2019) WEB-DLRip (сезон 9, выпуск 11)
 magnet:?xt=urn:btih:F90F934A473F25459717779CA8799C85F1AA9D67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:F90F934A473F25459717779CA8799C85F1AA9D67
 ```bash
 magnet:?xt=urn:btih:FA933EE6D990CDAA158487DB34CE2CFBC9AEF62D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

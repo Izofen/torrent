@@ -22,6 +22,8 @@ Giovanni Marradi - Piano Poetry (2020) [FLAC|Lossless|WEB-DL|tracks] <Piano, Ins
 magnet:?xt=urn:btih:A99AD882ADDB632504FFBCF3AE2B7B6C3B025DEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Father John Misty - Chloë and the Next 20th Century (2022) [FLAC 2.0|96/24|WEB-
 ```bash
 magnet:?xt=urn:btih:D5ACA3C07824C72DDF10E50093F1894FB318473A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ C'est La Vie ...Lily (1970)
 magnet:?xt=urn:btih:046BAD7CFC2A5363B271D244422A3479E9131622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Bernward Koch - Filled with Light (2017) Real Music [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:B017DDF31EDBD51E7E808C06C6B452E227BC4CC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Blood And Sun – White Storms Fall (2014) [FLAC|Lossless|tracks + .cue]<Neofolk
 magnet:?xt=urn:btih:0C169EF48B23BF91693773EDD801852BCE9237EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Putumayo Kids Presents - Hawaiian Playground (2008) [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:5B3B0839711DDE30FBEEEDF81C5E8AB955FD8134
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Andreas Vollenweider - ...Behind The Gardens - Behind The Wall - Under The Tree.
 magnet:?xt=urn:btih:3630D6E463701AD000B55EAD80AE40FAF2D94DA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Jamie Llewellyn - Muzyka do spania: Marzy delfinow (To Dream of Dolphins) (2014)
 ```bash
 magnet:?xt=urn:btih:C8C4C63158300E826A551D8144FDEFA09680A1A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Jonathan Goldman – Ambient Realms (2018) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 magnet:?xt=urn:btih:1AFDEBEBDA4C5F127F6B80B73536BACBE33EF6AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Leo Rojas - Das Beste (2015) [MP3|320 кб/с]<New Age, Native American, Panflut
 ```bash
 magnet:?xt=urn:btih:36D9FAC37A1D85E23831F02E6FB571A17AB163DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Buddha Meditation (2015) [MP3|320 кб/с]<Lounge, ChillOut, New Age, Medit
 magnet:?xt=urn:btih:60410EF1253501C6E779AB25B6F059E087D75654
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +341,8 @@ Opii - Secrets (2015) [FLAC|Lossless|WEB-DL]<New Age, Enigmatic, Chillout>
 magnet:?xt=urn:btih:C2D5CD88D6C1EF7D554BC93347469F9AF5D5878A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +369,8 @@ VA - Chill Out Music 2017: 16 Ambient Downtempo And Mellow Tracks For Chilling A
 ```bash
 magnet:?xt=urn:btih:DC753BDBC06FD60ADB3EF79843C2D5372BA1EDB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +405,8 @@ Amadeus - Discography 6CD(2002-2009) [MP3|128-192 кб/с]<Instrumental, Classic
 magnet:?xt=urn:btih:8183C9CADAC47DCFC9140B3B4B46086E8E544929
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +440,8 @@ VA - Best Of Indian's songs - The sound of indians spirit,nature and dreams (200
 magnet:?xt=urn:btih:D7043836E30F147019EB8534E9FBA2DC57233FF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +468,8 @@ Kevin Kern - More Than Words: The Best of Kevin Kern (2014) Real Music [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:01809288F8C93D2A88F45E6A2D0C682A0D175D3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +504,8 @@ VA - Ethnic Voices - Navahos Dreams (2005) [MP3|320 кб/с]<Native American, Et
 magnet:?xt=urn:btih:C2DF66C232A866A618BF75B3E0AAF2C96F55A03D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +532,8 @@ BrunuhVille - Timeless (2018) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:93426F683099212BAB604BE1BAD5C0CCD2E33784
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +568,8 @@ VA-Higher Plain Drifting - The Enchanting Sound of North America (2000) [MP3|320
 magnet:?xt=urn:btih:C29A5BC77910879CAD767512ABF128E797A195AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +596,8 @@ Unknown Artist - Stand By Me (1994) Unofficial Release [APE|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:6F74A2934459D13E161320F549C6668020144522
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +626,8 @@ Chris Remo - Firewatch Original Score (2016) [MP3|320 Kbps] <Soundtrack, Score>
 magnet:?xt=urn:btih:F28621A61B534525D7914220B5AE65F45A721B76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +654,8 @@ Leo Rojas - Das Beste - My Serenade To Mother Earth (2015) [FLAC|Lossless]<Panfl
 ```bash
 magnet:?xt=urn:btih:F6F0A6F06132FD59381CC8372670A1C676BE56E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +684,8 @@ CD1:
 magnet:?xt=urn:btih:3034732DC552D4FB82A46ACC86DC924DE68D7936
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +712,8 @@ Steve Jablonsky - Transformers: The Last Knight / Трансформеры: По
 ```bash
 magnet:?xt=urn:btih:0B1CDB51E3DEDFA29E6B16E0C7285E3A0FD535FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -694,6 +742,8 @@ Bill Justis - More Instrumental Hits By Bill Justis (1965) [MP3|320 кб/с]<Ins
 magnet:?xt=urn:btih:57F543AE8B3CAF6FB17A2ADC0339CA6C339FA1CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -720,6 +770,8 @@ Samuel Kjell Smith - Vision Quest (2011) [MP3|320 Kbps] <Psychedelic, Meditative
 ```bash
 magnet:?xt=urn:btih:97ACF4AA24FBF0C9B7EF0149399531867FE2D9FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

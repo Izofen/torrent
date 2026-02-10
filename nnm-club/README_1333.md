@@ -19,6 +19,8 @@ Dementium II HD (2013) [Ru/Multi] (1.266) Repack Other s
 magnet:?xt=urn:btih:8305EAF78625A8218452A22EF70D9F598EF87ED3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:8305EAF78625A8218452A22EF70D9F598EF87ED3
 magnet:?xt=urn:btih:818D36301646690A1C7022090CBE3F4B03033753
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:818D36301646690A1C7022090CBE3F4B03033753
 ```bash
 magnet:?xt=urn:btih:BC4A4E9A2FB07AA4034799A25E6EE69F03F3C101
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Xandria — немецкая группа, исполняющая музыку �
 magnet:?xt=urn:btih:29EB4C05C222406CFAE0E94EA0598B0516FBFC6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:29EB4C05C222406CFAE0E94EA0598B0516FBFC6C
 ```bash
 magnet:?xt=urn:btih:57ABCA99FE2DDB4D8EB8C87A7DF828CB7B5272E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Golf Peaks – это не симулятор гольфа, а игра-голо
 magnet:?xt=urn:btih:A9D33F6C20873ECA85C0DE4A1E84A194D109B6B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Devil's Way (2024) [Ru/Multi] (build 16096646) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:A087D33B75CCF80840DE9296E875DE22087443D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Wondershare PDFelement - программа для общего редактир
 magnet:?xt=urn:btih:D2C836525B6C798B6FFB5732CB27DFC6FF9693AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Duplicate File Finder Pro 2407 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7A3C83B3F6CD03EE325CFAA306F6208B73056A97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ YTDLnis — это бесплатный загрузчик видео/аудио
 magnet:?xt=urn:btih:31837D0B64BAEC46D943DB2FD493713FABBB42F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:31837D0B64BAEC46D943DB2FD493713FABBB42F9
 ```bash
 magnet:?xt=urn:btih:970C80B57E42D246F0444ABE39C2CFD0F4B55D52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ METAL SLUG - классический экшен-шутер, сохраняющ�
 magnet:?xt=urn:btih:0687CACC457D215D38A4C16A7E60A43F80F8247C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:0687CACC457D215D38A4C16A7E60A43F80F8247C
 ```bash
 magnet:?xt=urn:btih:A14F7B90AE27F768B4409C9F184E93073C5FBD44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ DaVinci Resolve — единственное в мире решение для �
 magnet:?xt=urn:btih:995F9E11DD4416D7D656F1536405F3AB8AD4ED91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:995F9E11DD4416D7D656F1536405F3AB8AD4ED91
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:995F9E11DD4416D7D656F1536405F3AB8AD4ED91
 magnet:?xt=urn:btih:B3023A5805CB27659D187CA41DEE00F62C8CD16C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:B3023A5805CB27659D187CA41DEE00F62C8CD16C
 magnet:?xt=urn:btih:A9CD94EED9EA0CB3CF357FCD476ACF87F8BACCFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:A9CD94EED9EA0CB3CF357FCD476ACF87F8BACCFE
 ```bash
 magnet:?xt=urn:btih:2DDAFFBAD05A381FCDFCDCBDF7B07E3C749EF69D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:2DDAFFBAD05A381FCDFCDCBDF7B07E3C749EF69D
 magnet:?xt=urn:btih:38753C8ED85EDB69FF90EDEDD313761BB4060B88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:38753C8ED85EDB69FF90EDEDD313761BB4060B88
 magnet:?xt=urn:btih:B18CAC7C3EABE9BE37E3B12A9D95E3E17B700452
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:B18CAC7C3EABE9BE37E3B12A9D95E3E17B700452
 ```bash
 magnet:?xt=urn:btih:941E2168E631E4F6EC80E488BE86CF1233514B34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ Waves Ultimate 2024.11.29 VST, VST 3, AAX, STANDALONE (x64) RePack by R2R [En]
 magnet:?xt=urn:btih:CBD8344C2A97BB39B721804C3ABB5689FD4AB856
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ Megami-ryou no Ryoubo-kun. | Mother of the Goddess' Dormitory | Комендан
 ```bash
 magnet:?xt=urn:btih:1FD4591021201370978BAC47E821A35D97CEBC09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ v2rayN — это универсальный инструмент VPN и про�
 magnet:?xt=urn:btih:0C7F49DF2D3A66969F7429E952B88963B540FD38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2013) [Ru/Multi] (
 magnet:?xt=urn:btih:AACBA7E3F7F86C74385A7472381472EF276D716C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ magnet:?xt=urn:btih:AACBA7E3F7F86C74385A7472381472EF276D716C
 ```bash
 magnet:?xt=urn:btih:941C30CAF6C7F1CF514D35DA18180A5E7451502F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

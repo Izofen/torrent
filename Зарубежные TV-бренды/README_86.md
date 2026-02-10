@@ -19,6 +19,8 @@ NG: Фото-ковчег / Photo Ark (2017) HDTVRip (3 серии из 3) [H.26
 magnet:?xt=urn:btih:052214CFC9A37A3DDEDB1EC975721CD722F961B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Discovery. Что скрывает Солнце / The Dark Side of the Sun (2017
 ```bash
 magnet:?xt=urn:btih:6A3FA8B292DA76DCDE3A4A87CB781179ED0419D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:6A3FA8B292DA76DCDE3A4A87CB781179ED0419D9
 magnet:?xt=urn:btih:155CFD683F454CFDAF1C198875EDB3E220DCD381
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:155CFD683F454CFDAF1C198875EDB3E220DCD381
 ```bash
 magnet:?xt=urn:btih:BAF357BB06E8EAFD318F4E8E3F940EB859705C88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ PBS. Секреты меча викингов / Secrets of the Viking Sword (201
 magnet:?xt=urn:btih:B6575299F8FD70373D267129880904E4AB3F8433
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ History Channel. Войны Юрского периода / Jurassic Fight Club 
 ```bash
 magnet:?xt=urn:btih:7F1D3210BECDFC6DDA4C47ED2A20980AE537C24F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ NGW: Самые опасные животные. Безумные акулы / W
 magnet:?xt=urn:btih:E805F427FBE78BD300AD791B2FA2908108E3B9DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ NGW: Кровавые соперники: гиппопотамы против л
 ```bash
 magnet:?xt=urn:btih:CFA7A9C60FBE0E727F4ACA2EAA322DD0F453D41F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ NG: Самые страшные стихийные бедствия: Торна�
 magnet:?xt=urn:btih:C6E77D3E0998157B8B99CDB486F40304BEC7018A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Discovery Channel и Морган Фримен снова ведут зрите�
 ```bash
 magnet:?xt=urn:btih:F7AB7893A4F2A59B3C1A29A95834C0F1187986D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:F7AB7893A4F2A59B3C1A29A95834C0F1187986D2
 magnet:?xt=urn:btih:30A9325AE6302FCA50F43AF11BC9D6D1856665A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ NG: 1989: Год, сотворивший современный мир / 1989: T
 ```bash
 magnet:?xt=urn:btih:F517F75DD817755313DC9DC514CA8E06EA62ED84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:F517F75DD817755313DC9DC514CA8E06EA62ED84
 magnet:?xt=urn:btih:3841BF0341BD5EA5CD1F76D21B47169354F9B5FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ BBC: Океаны: Наша Голубая Планета / Oceans: Our Blue Pla
 ```bash
 magnet:?xt=urn:btih:C06051F65A7BDF11539C0CF32D14564A7FCC6413
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:C06051F65A7BDF11539C0CF32D14564A7FCC6413
 magnet:?xt=urn:btih:DE851A08E9FB75266D8082107F46420DFD896B22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ BBC. Чудеса живой природы с Дэвидом Аттенборо
 ```bash
 magnet:?xt=urn:btih:D3C1795B92FAF2643383B2368F9EF73C2FF8C5F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ BBC: Мир природы. Смертоносные змеи Индии / The N
 magnet:?xt=urn:btih:01A639A0DC1DC4238DC51C38C3A0D0F1CFB76E86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ NGW: Дикие маленькие кошки / Wild little cats (2017) HDTV [H.
 ```bash
 magnet:?xt=urn:btih:19CA276B45D58AE5DB0F1D8C377D551528D1E73E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ NGW: Супер-белки / Super Squirrel (2014) HDTV [H.264/1080i-LQ]
 magnet:?xt=urn:btih:729C435A98A3ADBD116A0681C297EB57597DCB8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ NGW: Город выдр / Otter town (2016) HDTV [H.264/1080i-LQ]
 ```bash
 magnet:?xt=urn:btih:5A78DC74AA39126585BFC22447F58CDC35F5F6A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Discovery: Как сконструировать человека / Discovery: H
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ NGW: Переменчивые животные. Брачные игры / Moody 
 magnet:?xt=urn:btih:016DFC51E5BC7698F8E69D9CD0E94478EE6D14AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ NGW: Дикая природа Дальнего Востока / Wild Far East (
 ```bash
 magnet:?xt=urn:btih:816D9F408B166C757D52B5F857695D650AC7BB2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ BBC: Горизонт - Как убить человека / Horizon - How to Ki
 magnet:?xt=urn:btih:9822711247E825FF3F77A2E1E9510C7BAC9E42D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ NGW: Переменчивые животные. Подростковые кош�
 magnet:?xt=urn:btih:C241C83008D6AA6CE78110E43073DA0301A17175
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ NGW: Африканская суперзмея / Africa's super snake (2017) HDT
 ```bash
 magnet:?xt=urn:btih:5E07370D10CF0A11B307653C61AA44C128FA8171
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,27 +1,3 @@
-###  Публикация: 1545462   (614906) от 19.04.2022
-
-Аста Нильсен. Королева фондовой биржи / Die Börsenkönigin (1918) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хелен Нетцлер, владелица контрольного пакета акций медного рудника "Glückauf"(Удача), жила в роскоши и радовала светское мужское общество своей красотой. Стабильный доход позволял не думать о будущем. Будущее, однако, оказалось несколько иным – добыча меди в следствии обеднения слоя стала падать, как стала падать и стоимость акций рудника. Впереди (   Читать дальше...   )Производство: Германия, Neutral-FilmЖанр: Драма, мелодрама, немое киноРежиссер: Эдмунд ЭделАктеры: Аста Нильсен, Аруф Вартан, Willy Kaiser-HeylПеревод: Немой с интертитрамиСубтитры: Немецкие интертитры, русские встроенные отключаемыеПродолжительность: 01:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79F91F931D9BBA58A4F8EF120ADBE945B1EBB4B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 523936   (614971) от 17.07.2012
 
 Гвендолин / Gwendoline (1984) DVDRip
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:79F91F931D9BBA58A4F8EF120ADBE945B1EBB4B0
 ```bash
 magnet:?xt=urn:btih:EC68FAAF2ED4A035A9F0F3DF5D1AA1C45347920D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:EC68FAAF2ED4A035A9F0F3DF5D1AA1C45347920D
 magnet:?xt=urn:btih:4BC188C6C33BC255915F56D2DEC2CADB72DC13CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:4BC188C6C33BC255915F56D2DEC2CADB72DC13CE
 ```bash
 magnet:?xt=urn:btih:C211D8A481EB4CF5917237E733ABFA7BB905B010
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +98,8 @@ magnet:?xt=urn:btih:C211D8A481EB4CF5917237E733ABFA7BB905B010
 magnet:?xt=urn:btih:9A567E21C95F49ABDAA16D9AE3A172923E3FF256
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +123,8 @@ magnet:?xt=urn:btih:9A567E21C95F49ABDAA16D9AE3A172923E3FF256
 ```bash
 magnet:?xt=urn:btih:50700DA63A9972B81658BDD2D5A22157D8660C0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:50700DA63A9972B81658BDD2D5A22157D8660C0C
 magnet:?xt=urn:btih:83FD46817D19F0C205724A951E901A087B951DB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +175,8 @@ magnet:?xt=urn:btih:83FD46817D19F0C205724A951E901A087B951DB3
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +202,8 @@ magnet:?xt=urn:btih:83FD46817D19F0C205724A951E901A087B951DB3
 magnet:?xt=urn:btih:D1D55D2D8CEDDF3C0CDBB4AF908CCB1BD9479ECE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +227,8 @@ magnet:?xt=urn:btih:D1D55D2D8CEDDF3C0CDBB4AF908CCB1BD9479ECE
 ```bash
 magnet:?xt=urn:btih:573D1E4E1B3E0F94DBD688B68538ABFAE29B1061
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +254,8 @@ magnet:?xt=urn:btih:573D1E4E1B3E0F94DBD688B68538ABFAE29B1061
 magnet:?xt=urn:btih:BF50A50A7CBEDCE3B228966B090A8BADE26F7CAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +279,8 @@ magnet:?xt=urn:btih:BF50A50A7CBEDCE3B228966B090A8BADE26F7CAA
 ```bash
 magnet:?xt=urn:btih:755988CF6481FFA2B146AE886590818B7FAEA916
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +308,8 @@ magnet:?xt=urn:btih:755988CF6481FFA2B146AE886590818B7FAEA916
 magnet:?xt=urn:btih:B39E852E3E3E2D5911A816ED717D55300BA8E361
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +333,8 @@ magnet:?xt=urn:btih:B39E852E3E3E2D5911A816ED717D55300BA8E361
 ```bash
 magnet:?xt=urn:btih:609188A240DCCD5516B4DD5204C7E47A63BF9DE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +360,8 @@ magnet:?xt=urn:btih:609188A240DCCD5516B4DD5204C7E47A63BF9DE3
 magnet:?xt=urn:btih:FCF0A710260D5D1AA40B41F7258F4A33F49575FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +386,8 @@ magnet:?xt=urn:btih:FCF0A710260D5D1AA40B41F7258F4A33F49575FB
 magnet:?xt=urn:btih:1BAEC4CF703562EEFBCD56D7E52EF5D3C80BC743
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +411,8 @@ magnet:?xt=urn:btih:1BAEC4CF703562EEFBCD56D7E52EF5D3C80BC743
 ```bash
 magnet:?xt=urn:btih:78A2373B3D5C0A652161FC5F4BFB2261CC341B72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +439,8 @@ magnet:?xt=urn:btih:78A2373B3D5C0A652161FC5F4BFB2261CC341B72
 magnet:?xt=urn:btih:6804AD531574D5D080F6432FA692FD24AF2A0FCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +464,8 @@ magnet:?xt=urn:btih:6804AD531574D5D080F6432FA692FD24AF2A0FCF
 ```bash
 magnet:?xt=urn:btih:BC312964E175DE90AD74D48F21B6B4E1FDF6441B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +491,8 @@ magnet:?xt=urn:btih:BC312964E175DE90AD74D48F21B6B4E1FDF6441B
 magnet:?xt=urn:btih:246DDD0C9A82448175D448A08A7FE701F440E094
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +516,8 @@ magnet:?xt=urn:btih:246DDD0C9A82448175D448A08A7FE701F440E094
 ```bash
 magnet:?xt=urn:btih:C85193C4019177A84E466BD98905E1DF29B4E377
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +543,8 @@ magnet:?xt=urn:btih:C85193C4019177A84E466BD98905E1DF29B4E377
 magnet:?xt=urn:btih:BD13FF7B4631B398D92C1B751169DA32E9E134D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +568,8 @@ magnet:?xt=urn:btih:BD13FF7B4631B398D92C1B751169DA32E9E134D9
 ```bash
 magnet:?xt=urn:btih:14C8F54C91E56DAF8213183DFF2EC2B0C92A616F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +595,8 @@ magnet:?xt=urn:btih:14C8F54C91E56DAF8213183DFF2EC2B0C92A616F
 magnet:?xt=urn:btih:2318D0C05CE47B035360174A6209B3E6F8446066
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +620,8 @@ magnet:?xt=urn:btih:2318D0C05CE47B035360174A6209B3E6F8446066
 ```bash
 magnet:?xt=urn:btih:C485CC237F023CDAA00BC58BB37CDE958C2E3FE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +647,34 @@ magnet:?xt=urn:btih:C485CC237F023CDAA00BC58BB37CDE958C2E3FE8
 ```bash
 magnet:?xt=urn:btih:5676EF8BDFFFFEB9437F92F2330E9C2B6C9DD10D
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229975   (618970) от 10.06.2018
+
+Дьяволица / She-Devil (1989) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Героиня фильма боготворит писательницу Мэри Фишер, любовными романами которой зачитываются все женщины. Но когда муж становится любовником писательницы-миллионерши, оскорбленная гордость жены взбунтовалась. И уж теперь она устроит любовникам веселую жизнь!Производство: США / A Seidelman/Brett Production, Orion PicturesЖанр: КомедияРежиссер: Сьюзэн СейдельманАктеры: Мэрил Стрип, Розанна, Эд Бегли мл., Линда Хант, Сильвия Майлз, Элисбет Питерс, Брайан Ларкин, Эй Мартинез, Мария Питилло, Мэри Луиза УилсонПеревод: Многоголосый закадровый, двухголосый закадровый, авторскийСубтитры: АнглийскиеПродолжительность: 01:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:543E98B4C6055572FF01B77E89DB0F0309620C5B
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

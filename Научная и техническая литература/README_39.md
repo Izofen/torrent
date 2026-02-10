@@ -22,6 +22,8 @@ Rules / explanations.(   Читать дальше...   )Жанр: учебно�
 magnet:?xt=urn:btih:AC0124C77E3BF966E5B837BF12DDA5D08E4E3B7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Using authentic texts from a variety of contemporary sources such as newspapers,
 ```bash
 magnet:?xt=urn:btih:C0B3B4EDB2977E4B118F89DF822C23238D81A968
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ authentic texts from a rich variety of sources, literary and non-literary, used 
 magnet:?xt=urn:btih:4A5A58CE53BAD8491EF632B9324CA5C501E79555
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:4A5A58CE53BAD8491EF632B9324CA5C501E79555
 ```bash
 magnet:?xt=urn:btih:4CCAA5861F59946B134FC5CE87F17C6EA814D05F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ Combining a clear, practical and accessible style with a methodical and thorough
 magnet:?xt=urn:btih:EA9C8CC2066C19D493740E27E103A99217953C36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Do you plan to take TOEFL or IELTS but are not ready for the challenge? Do you n
 magnet:?xt=urn:btih:1460D252D7EF4FC1BC52A32B0769F526191BAD2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ From diamonds and sapphires to emeralds and obsidian, Gem profiles all the key g
 ```bash
 magnet:?xt=urn:btih:0AC617B7154E4DD620113BA3AA9B324B92B60CEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ The Writing Tutor consists of a selection of skills pages with information on ho
 magnet:?xt=urn:btih:B07073E7108D9A0C97DA7625C63CB2BA26447EE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ Everyday words are arranged in themes with carefully selected up-to-date images 
 ```bash
 magnet:?xt=urn:btih:FEDEA84D49DF549B1F4A26BF6CAC21D1840660E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ English for Everyone (   Читать дальше...   )Жанр: учебно
 magnet:?xt=urn:btih:57A430A4BBA28A9CA39A4DA32DC17D0029ACFC6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:57A430A4BBA28A9CA39A4DA32DC17D0029ACFC6F
 ```bash
 magnet:?xt=urn:btih:E73A60E1B277964D541F239BA6B9637A7B00D51A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ The most effective way to learn any new language is to practice, practice, and p
 magnet:?xt=urn:btih:D3B55074EB223F0C25423348FD2295E98BC832B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:D3B55074EB223F0C25423348FD2295E98BC832B5
 ```bash
 magnet:?xt=urn:btih:774351C925C8C934884BF881E3F083736E0E5CD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:774351C925C8C934884BF881E3F083736E0E5CD4
 magnet:?xt=urn:btih:F7E4848D4BD51FFB5BDA0D36D2242B6AF197944E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ This book provides theoretical and pedagogical perspectives on teaching speaking
 ```bash
 magnet:?xt=urn:btih:3DEA239124294D738EFB83FEFE42AF614F6ADF12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ an introduction (   Читать дальше...   )Жанр: учебное п
 magnet:?xt=urn:btih:0788BF05A4131492B25CDBC90BB178E80655E88A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:0788BF05A4131492B25CDBC90BB178E80655E88A
 ```bash
 magnet:?xt=urn:btih:0D6C2032AD46DC8B47848B4582E8030393716803
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:0D6C2032AD46DC8B47848B4582E8030393716803
 magnet:?xt=urn:btih:773947F95AE7ECEC56EDCC289E54298A1C94F0EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:773947F95AE7ECEC56EDCC289E54298A1C94F0EF
 ```bash
 magnet:?xt=urn:btih:B4D1034A6320D8B953BB51E2904FFF38573F6324
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +533,8 @@ Custom regional and global maps present the history of the world in action, char
 magnet:?xt=urn:btih:3E5435D9E32997276614DA58A6FAD1C54427BF08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ Practice Makes Perfect Premium: Basic English is a bestselling workbook that pro
 ```bash
 magnet:?xt=urn:btih:FD129A3EA0BF6DAB655C5DF78694327089A57F6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +585,8 @@ magnet:?xt=urn:btih:FD129A3EA0BF6DAB655C5DF78694327089A57F6D
 magnet:?xt=urn:btih:D32B12EA7A74ACE3407204C2AF885B4ECDDFF55D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +610,8 @@ magnet:?xt=urn:btih:D32B12EA7A74ACE3407204C2AF885B4ECDDFF55D
 ```bash
 magnet:?xt=urn:btih:1795B599875FCDA064C55C3453E4F6947867EB78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +637,8 @@ The Spanish English Bilingual Visual Dictionary by Dorling Kindersley is vocabul
 magnet:?xt=urn:btih:C7BA39DDAA5B38B6B83DAC3AB8DD9203F3D39DD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +663,8 @@ magnet:?xt=urn:btih:C7BA39DDAA5B38B6B83DAC3AB8DD9203F3D39DD3
 magnet:?xt=urn:btih:BC41162A687247D0C0BE97669927E5EA94CAD291
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ A Step-by-Step Guide to Mastering 2300 Characters is a complete guide to masteri
 ```bash
 magnet:?xt=urn:btih:966F8A8F12270C65B46E2D9C6A025081819171D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

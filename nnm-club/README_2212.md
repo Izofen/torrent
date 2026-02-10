@@ -22,6 +22,8 @@ Rage - Afterlifelines (2024) 2CD Japan release [FLAC|Lossless|image + .cue] <Hea
 magnet:?xt=urn:btih:0477AFD4431CC1E0513EF79CAC22B4F6CAB6446D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ FontCreator - Редактор шрифтов FontCreator может созда�
 ```bash
 magnet:?xt=urn:btih:D40AA4C4B5E6F3E84779BBF5E5D60EAB88268F41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Cypecore - Make Me Real (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Indu
 magnet:?xt=urn:btih:BEF9B7AF3F4E0E0B966AB293ABB140E95041950D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:BEF9B7AF3F4E0E0B966AB293ABB140E95041950D
 magnet:?xt=urn:btih:705CB5ABBBAE0BEE082FF319CD8E205FAECE427F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:705CB5ABBBAE0BEE082FF319CD8E205FAECE427F
 ```bash
 magnet:?xt=urn:btih:43B27A4770CF2E05C94525E9EE04C8C4E04EC48E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ DVDFab StreamFab — это удобный и мощный инструмент 
 magnet:?xt=urn:btih:6B581B60477973D0F1BD9800B478A693BC2BDC2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ ToonMe v0.7.7 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:26E72F203E8E793C24503793E16FBA8898912727
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:26E72F203E8E793C24503793E16FBA8898912727
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:26E72F203E8E793C24503793E16FBA8898912727
 ```bash
 magnet:?xt=urn:btih:6F0A813159A095E41DCC785D22C6109D57890A87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:6F0A813159A095E41DCC785D22C6109D57890A87
 magnet:?xt=urn:btih:0198AFB6F6A58EF5793616AB73B532069198E7A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:0198AFB6F6A58EF5793616AB73B532069198E7A3
 magnet:?xt=urn:btih:A895D1DC8D8943C2AE73DD1F488092145E140EF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:A895D1DC8D8943C2AE73DD1F488092145E140EF3
 ```bash
 magnet:?xt=urn:btih:9A612EC2111A5B504A0F166904FA34B31C066E99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:9A612EC2111A5B504A0F166904FA34B31C066E99
 magnet:?xt=urn:btih:2ED408CE2B6F2B75756349D6F73C10FD930943D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ Fast Screen Recorder — это программное обеспечение д
 ```bash
 magnet:?xt=urn:btih:EE2030F8C755FBA4884CCC511B0F7E3144194380
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ P.O.D. - Veritas (2024) [MP3|320 Kbps] <Alt.Metal, Rapcore>
 magnet:?xt=urn:btih:032EB35236800A623838017029C30E9E3E07D9CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ Brian Eno - Eno (Original Motion Picture Soundtrack) (2024)  [FLAC|Lossless|WEB-
 magnet:?xt=urn:btih:27088EED4DF91A14653ADC3F8A2562727FB0554D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:27088EED4DF91A14653ADC3F8A2562727FB0554D
 ```bash
 magnet:?xt=urn:btih:CF20E89EEEB03ED27FA9295D60451012A33A3C84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +477,8 @@ magnet:?xt=urn:btih:CF20E89EEEB03ED27FA9295D60451012A33A3C84
 magnet:?xt=urn:btih:629266C17B2B69CEEFEB3A9628A1792C36885AC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +502,8 @@ Listen Audiobook Player v5.2.7 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5C1CE0C6C367593BBD03957AF443136E6B12C746
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:5C1CE0C6C367593BBD03957AF443136E6B12C746
 magnet:?xt=urn:btih:A099A89FFBDA7A1FA4501E2E45CDB3A9F7CB3645
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ magnet:?xt=urn:btih:A099A89FFBDA7A1FA4501E2E45CDB3A9F7CB3645
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +584,8 @@ VA - Deep Sleep Classical Piano Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Clas
 magnet:?xt=urn:btih:2660FCFC3C276C20577A10608585237A067A26FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ magnet:?xt=urn:btih:2660FCFC3C276C20577A10608585237A067A26FF
 magnet:?xt=urn:btih:E64C88C6C92E91CEF2AB18D728B34D17CBFAA87E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ magnet:?xt=urn:btih:E64C88C6C92E91CEF2AB18D728B34D17CBFAA87E
 ```bash
 magnet:?xt=urn:btih:98D2609C530355A6A1BE96FA79D96CF718321777
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +664,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:8B29E1B0E1190789CD6D8973AEE29C3501EABFB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ magnet:?xt=urn:btih:8B29E1B0E1190789CD6D8973AEE29C3501EABFB7
 ```bash
 magnet:?xt=urn:btih:2D4375C46E7C6B00362DD43AED0B244DCC040CCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

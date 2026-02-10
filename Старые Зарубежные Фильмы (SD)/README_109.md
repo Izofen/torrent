@@ -1,27 +1,3 @@
-###  Публикация: 1328052   (367864) от 28.09.2019
-
-Золотая жила / Mother Lode (1982) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367864.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой жизни слишком много хороших вещей, чтобы не хотеть стать богатым. Пилот-авантюрист Жан Дюпре и его очаровательная подруга Андреа отправляются в глухие дебри Британской Колумбии на поиски заброшенной шахты, где по их информации, может находиться неразработанная золотоносная жила. Однако полет на небольшом биплане не оказался легкой и быстрой прогулкой за богатством (   Читать дальше...   )Производство: США / Agamemnon FilmsЖанр: Триллер, Детектив, ПриключенияРежиссер: Чарлтон Хестон, Фрейзер Кларк ХестонАктеры: Чарлтон Хестон, Ник Манкузо, Ким Бейсингер, Джон Марли, Дейл Уилсон, Рокки Сантолас, Мари ДжорджПеревод: Многоголосый профессиональный, авторскийСубтитры: Английские (Full, SDH)Продолжительность: 01:42:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AFA11B73D13290635911706167A46427B7A7A6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 575601   (368076) от 15.11.2012
 
 Легенда о святом пропойце / La leggenda del santo bevitore (1988) DVDRip
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:1AFA11B73D13290635911706167A46427B7A7A6D
 ```bash
 magnet:?xt=urn:btih:0A4D47CD7F8C259EB7B4ED7A2260FD0747A75748
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:0A4D47CD7F8C259EB7B4ED7A2260FD0747A75748
 magnet:?xt=urn:btih:348EDB0F0CD2FC27C2988E4BEB2EF12D3A3CEFAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:348EDB0F0CD2FC27C2988E4BEB2EF12D3A3CEFAC
 ```bash
 magnet:?xt=urn:btih:332169B9E61BEE4246DBF782A7516B0E6F700B84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:332169B9E61BEE4246DBF782A7516B0E6F700B84
 magnet:?xt=urn:btih:1CAAD300568BC68644CC8C1258A8A47CE54C7859
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:1CAAD300568BC68644CC8C1258A8A47CE54C7859
 ```bash
 magnet:?xt=urn:btih:403D5BEC7FAF45ACCCBA949D5B639E380B5D12F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:403D5BEC7FAF45ACCCBA949D5B639E380B5D12F1
 magnet:?xt=urn:btih:DDFC0ED8FDDC3E270DD1BF72F3DD88FFE7731F19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +175,8 @@ magnet:?xt=urn:btih:DDFC0ED8FDDC3E270DD1BF72F3DD88FFE7731F19
 ```bash
 magnet:?xt=urn:btih:EBB13403DC69C9C568C36DE12746B2E112C9F1D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +203,8 @@ magnet:?xt=urn:btih:EBB13403DC69C9C568C36DE12746B2E112C9F1D5
 magnet:?xt=urn:btih:A08A5E45D2789F6A333A72821175C833BCEA89E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +228,8 @@ magnet:?xt=urn:btih:A08A5E45D2789F6A333A72821175C833BCEA89E8
 ```bash
 magnet:?xt=urn:btih:1D74BA9D1273D2ED6EC03072B326CC0C18A27D75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +255,8 @@ magnet:?xt=urn:btih:1D74BA9D1273D2ED6EC03072B326CC0C18A27D75
 magnet:?xt=urn:btih:FCBACBCA5B9A90FFCFB383884B91665D64A0ABA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +280,8 @@ magnet:?xt=urn:btih:FCBACBCA5B9A90FFCFB383884B91665D64A0ABA6
 ```bash
 magnet:?xt=urn:btih:006E7144D7B2FC80D51E14FC9F6938C55DE35DE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +307,8 @@ magnet:?xt=urn:btih:006E7144D7B2FC80D51E14FC9F6938C55DE35DE4
 magnet:?xt=urn:btih:DCAE4AE857E9CF20ED7E5C3976E9AF018027B8A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +332,8 @@ magnet:?xt=urn:btih:DCAE4AE857E9CF20ED7E5C3976E9AF018027B8A1
 ```bash
 magnet:?xt=urn:btih:756EA7EC996E75627B33B264D91EABD58BC65544
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +360,8 @@ magnet:?xt=urn:btih:756EA7EC996E75627B33B264D91EABD58BC65544
 magnet:?xt=urn:btih:48E9AC70FB0D4B6FF4B7BB1FCD54B4EAF0CBF8B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +387,8 @@ magnet:?xt=urn:btih:48E9AC70FB0D4B6FF4B7BB1FCD54B4EAF0CBF8B8
 magnet:?xt=urn:btih:47BA06E237FDF183730A2B6B2D0B718247BDDBA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +412,8 @@ magnet:?xt=urn:btih:47BA06E237FDF183730A2B6B2D0B718247BDDBA0
 ```bash
 magnet:?xt=urn:btih:19D57FC8A1A298C7BE356974057A2CD276E9F6AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +439,8 @@ magnet:?xt=urn:btih:19D57FC8A1A298C7BE356974057A2CD276E9F6AF
 magnet:?xt=urn:btih:34C4DA037050BEEBC9CDC92BDFB24834AB4854B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +464,8 @@ magnet:?xt=urn:btih:34C4DA037050BEEBC9CDC92BDFB24834AB4854B2
 ```bash
 magnet:?xt=urn:btih:B6794119F894ED0FA609174B6F6F1F8A998A9EA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +492,8 @@ magnet:?xt=urn:btih:B6794119F894ED0FA609174B6F6F1F8A998A9EA8
 magnet:?xt=urn:btih:75194DAD50DB7DF16DB7A47DC49726A26B75B547
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +517,8 @@ magnet:?xt=urn:btih:75194DAD50DB7DF16DB7A47DC49726A26B75B547
 ```bash
 magnet:?xt=urn:btih:0451441B4EF068CB477E6B1FCB06D442F3D5BB3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +544,8 @@ magnet:?xt=urn:btih:0451441B4EF068CB477E6B1FCB06D442F3D5BB3C
 magnet:?xt=urn:btih:00140ABCEEEDB01DAFCF7430CD67B66F6B5C93A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +569,8 @@ magnet:?xt=urn:btih:00140ABCEEEDB01DAFCF7430CD67B66F6B5C93A6
 ```bash
 magnet:?xt=urn:btih:AE71A1B65B0C112DE020550AC619B6DA81586F99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +596,8 @@ magnet:?xt=urn:btih:AE71A1B65B0C112DE020550AC619B6DA81586F99
 magnet:?xt=urn:btih:39E4AAA2EAD08F6DABFDE746521E968C31093A35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +621,8 @@ magnet:?xt=urn:btih:39E4AAA2EAD08F6DABFDE746521E968C31093A35
 ```bash
 magnet:?xt=urn:btih:9FA0501E5399728B541EE060795C80CE70E52006
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +648,34 @@ magnet:?xt=urn:btih:9FA0501E5399728B541EE060795C80CE70E52006
 ```bash
 magnet:?xt=urn:btih:DA922F5606586FFE286DE66120B30F1A6291D04F
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924983   (372511) от 14.10.2018
+
+Отрезанные от мира / Marooned (1969) HDTVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372511.jpg" />
+</div>
+
+
+###  Подробнее
+
+После завершения миссии в космосе корабль с тремя космонавтами на борту вышел на земную орбиту, чтобы вернуться. Но двигатель дал сбой и командир Джим Пруе, ученый Клайтон Стоун и пилот Базз Ллойд оказались в безвыходном положении в открытом космосе. Чарлз Кейт, шеф космической программы и старший космонавт Тед Догерти составляют невероятный план спасения, а весь (   Читать дальше...   )Производство: СШАЖанр: Фантастика, триллер, драма, приключенияРежиссер: Джон СтёрджесАктеры: Грегори Пек, Ричард Кренна, Дэвид Джэнссен, Джеймс Франсискус, Джин Хэкмен, Ли Грант, Нэнси Ковак, Мэриетт Хартли, Скотт Брейди, Фрэнк МартПеревод: Профессиональный многоголосыйПродолжительность: 02:08:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5141611195CCADF455D17F45910375460B3056A
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

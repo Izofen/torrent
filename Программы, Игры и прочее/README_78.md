@@ -19,6 +19,8 @@ ARuler - лучшее и бесплатное приложение на Android 
 magnet:?xt=urn:btih:4A2ACD8CCC97C2DD8B91AB50CF2EE6255441F8B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:4A2ACD8CCC97C2DD8B91AB50CF2EE6255441F8B1
 magnet:?xt=urn:btih:2CC5E68B71D8C9D446F42354570BA20235FF7A72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ AVG антивирус & Безопасность 23.15.0 Mod by DEXUNPACKER [Ru
 ```bash
 magnet:?xt=urn:btih:0A7F326C48DFF4E13277C31664D40008B725EEA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:80909196830C10794157F4CF0C678408391B85C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Hira vpn 1.0.4 b24 Mod by AzadNet[Ru]
 ```bash
 magnet:?xt=urn:btih:1FF901C958D344A6201DFF62A6B26CCA633FBDDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ SnapTube - YouTube Downloader HD Video v7.05.1.7051601 [Ru/Multi]
 magnet:?xt=urn:btih:FAB7091F863422F6D229862C0F854879BA3CE7DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Persona - твоя новая селфи-камера на каждый день
 ```bash
 magnet:?xt=urn:btih:EAE0683A5C6419BE9FC6D3B7CE51A164F8CEB78E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ izi.TRAVEL v7.2.1.510 [Ru/Multi]
 magnet:?xt=urn:btih:B8C5D5F1E264360A0B152407E229E65D70C8D65C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ ViMu Media Player - это гибкий и удобный медиаплеер �
 ```bash
 magnet:?xt=urn:btih:8B0A17DEC1DB830876BBF7795AD801FEDF033185
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ CapCut - видеоредактор, что понравится поклонн�
 magnet:?xt=urn:btih:B84F05870AA871C869050E94940A97258FFE812A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Total Commander - Android-версия культового файлового �
 ```bash
 magnet:?xt=urn:btih:357DC1E95B2DB6C1CDFB1CE93AD5649D817EB2EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ X-plore File Manager - продвинутый файловый менеджер 
 magnet:?xt=urn:btih:2D26941ED6FBE8B7F8F56656CA6AF508F843400B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Imagine : AI Art Generator v2.9.1 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:FBC5F0FF58269B8F4946F6FA1863FDD65BCEF0EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:FBC5F0FF58269B8F4946F6FA1863FDD65BCEF0EF
 magnet:?xt=urn:btih:59224123A5573F303C5AE7E4C23463ED8E174699
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ Screenshot Touch – это удобное и простое приложени�
 ```bash
 magnet:?xt=urn:btih:0AA9F0B0899825E4CE4EB0884B5F38C7614FE5E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:0AA9F0B0899825E4CE4EB0884B5F38C7614FE5E9
 magnet:?xt=urn:btih:A088AAE5E90A6FA8AB0B16E36ABEF4D91301CF39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Chronus Home & Lock Widget - отличное приложение, что яв�
 ```bash
 magnet:?xt=urn:btih:19C575F589B673514A3204A2214CF4F51C0BEBA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:19C575F589B673514A3204A2214CF4F51C0BEBA7
 magnet:?xt=urn:btih:2F8FAF13DC9DBDDD8607022797470EC544D370A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ Picsart Photo & Video Editor v22.7.4 Mod by KirillCXV [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2ED3C5343A9C952BE1D0BCB15E9D4752E2886775
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ AGAMA Car Launcher 3.3.1 [Ru]
 magnet:?xt=urn:btih:E4F92CB45EAFD6D83F76934F148F8D840AAF481D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ Opera - это один из самых быстрых, безопасных и 
 ```bash
 magnet:?xt=urn:btih:9DE16FA0697CE20CA510288CB47083D422D689DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ Moon+reader относится к категории универсальных 
 magnet:?xt=urn:btih:413C740CDADE7668EF3F28BC112E937055E45F03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ Minecraft: Pocket Edition - культовый проект не нуждающ�
 ```bash
 magnet:?xt=urn:btih:19F0BB2F3CA7CEFBD848043E1D9EA549E519FD0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ Terraria 1.4.4.9.2 Mod by Dav124 [Ru/Multi]
 magnet:?xt=urn:btih:8BE3B55E6B86ECEA8FAF408AD8630602E146CCE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ magnet:?xt=urn:btih:8BE3B55E6B86ECEA8FAF408AD8630602E146CCE3
 magnet:?xt=urn:btih:C4BAE2B9139D486BBB4A5CD2159B32DFBBD3540F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Tone Generator PRO v3.36 [En/Ru]
 ```bash
 magnet:?xt=urn:btih:DEEA961C5D776488CE86E67B1A8867B59FA370DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 925074   (542909) от 05.08.2015
+
+Роман Черепанов | 100 бизнес-технологий. Как поднять компанию на новый уровень (2014) [FB2, RTF]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542909.jpg" />
+</div>
+
+
+###  Подробнее
+
+А вы знаете сверхвозможности и сверхслабости своей компании, команды и собственный потенциал? Давно ли вы спускались в производственный отдел или отдел продаж и просто спрашивали: «Как дела?» Эта книга откроет вам глаза на реальное положение дел в вашей компании и поможет перехватить управленческую инициативу для достижения бизнес-результатов.  В ней рассматриваются (   Читать дальше...   )Жанр: Организационный и производственный менеджментФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:385363099794DDCB4570F1182392FF23394AD300
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 925080   (542910) от 05.08.2015
 
 Владимир Федоров и др. | 1000 советов по экономии в быту (1990) [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:D521D8A604D51AC203B276DAD2C8573402E788A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:D521D8A604D51AC203B276DAD2C8573402E788A0
 magnet:?xt=urn:btih:33907C7810BEBC044141D9C4EB053AF54A9BA3E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:33907C7810BEBC044141D9C4EB053AF54A9BA3E2
 ```bash
 magnet:?xt=urn:btih:8EDF2207D5AFCE26ACF381DC25C9E307CF29843D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:8EDF2207D5AFCE26ACF381DC25C9E307CF29843D
 magnet:?xt=urn:btih:237DA92C4604946B408F17C3E1B20D677CE2885E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:237DA92C4604946B408F17C3E1B20D677CE2885E
 magnet:?xt=urn:btih:3C412DE2C87EBF7D02144ECB3421C83E6FC9ABA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:3C412DE2C87EBF7D02144ECB3421C83E6FC9ABA7
 ```bash
 magnet:?xt=urn:btih:C4D41CEFC681C440A3357C6FE5837BB2E6B99CC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:C4D41CEFC681C440A3357C6FE5837BB2E6B99CC3
 magnet:?xt=urn:btih:45A868257474EEDFE8EE34B6B16D362D5ECB544D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:45A868257474EEDFE8EE34B6B16D362D5ECB544D
 ```bash
 magnet:?xt=urn:btih:E17DFBFC742921628BA8A314BDA44305F6FABAAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:E17DFBFC742921628BA8A314BDA44305F6FABAAF
 magnet:?xt=urn:btih:38B33D2BB878748B35F883C9F74A5502F0B483B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:38B33D2BB878748B35F883C9F74A5502F0B483B0
 ```bash
 magnet:?xt=urn:btih:370237BC61E4B34BE7044639C98CAAF7227A74EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:370237BC61E4B34BE7044639C98CAAF7227A74EF
 magnet:?xt=urn:btih:90ACEAB653AD917A3FF5BB2E189D782F9707AE9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:90ACEAB653AD917A3FF5BB2E189D782F9707AE9A
 magnet:?xt=urn:btih:F0B1BDBEDABA50A11733952BBD327E38F6235F32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:F0B1BDBEDABA50A11733952BBD327E38F6235F32
 ```bash
 magnet:?xt=urn:btih:35D7D78D36944465E819327EC62E1A7C1295C0E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:35D7D78D36944465E819327EC62E1A7C1295C0E4
 magnet:?xt=urn:btih:4B93FC27267C0FFC15907F6139FDA55B5CAF0774
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:4B93FC27267C0FFC15907F6139FDA55B5CAF0774
 ```bash
 magnet:?xt=urn:btih:1C415A5F8147C44C2F71DDB8CBAFDB5C16AC46A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:1C415A5F8147C44C2F71DDB8CBAFDB5C16AC46A8
 magnet:?xt=urn:btih:2E848ED8AA68B9BD08B9E06843962C3D7E30398C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:2E848ED8AA68B9BD08B9E06843962C3D7E30398C
 ```bash
 magnet:?xt=urn:btih:B6124FC7F7B2EA68F48843CF69D264966CE06BE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:B6124FC7F7B2EA68F48843CF69D264966CE06BE0
 magnet:?xt=urn:btih:5E8AC946006799E33EC9A3D8734911873459AFBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:5E8AC946006799E33EC9A3D8734911873459AFBB
 ```bash
 magnet:?xt=urn:btih:A4A1881A61247B8D8A0E11D6F43A3D0D67386F50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:A4A1881A61247B8D8A0E11D6F43A3D0D67386F50
 magnet:?xt=urn:btih:509A47DFA5445AB836D704002FD5989CA262FC64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:509A47DFA5445AB836D704002FD5989CA262FC64
 magnet:?xt=urn:btih:6DB1786DE7A3909170E63CA4B020A0F0BD94AA53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +596,8 @@ magnet:?xt=urn:btih:6DB1786DE7A3909170E63CA4B020A0F0BD94AA53
 ```bash
 magnet:?xt=urn:btih:2B4290E1A75AF9A8D5D092CF1CCE97AD64F85CA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:2B4290E1A75AF9A8D5D092CF1CCE97AD64F85CA8
 magnet:?xt=urn:btih:9220B299D933E1FD34A3B0BA67E92944CF82F6C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:9220B299D933E1FD34A3B0BA67E92944CF82F6C5
 ```bash
 magnet:?xt=urn:btih:A1EB3ABDCF3C2C337141E911DD0BD5E075E7239C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,31 +677,7 @@ magnet:?xt=urn:btih:A1EB3ABDCF3C2C337141E911DD0BD5E075E7239C
 magnet:?xt=urn:btih:69F8A4FA266CAF812004B45A60AF60B3FF3E3C87
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310854   (544529) от 27.06.2019
-
-М. А. Москалев и др. (сост.) | И. В. Сталин в сибирской ссылке (1942) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544529.jpg" />
-</div>
-
-
-###  Подробнее
-
-В историю большевистской партии вписано много ярких страниц о руководстве революционным рабочим движением великого соратника и продолжателя дела Ленина — Иосифа Виссарионовича Сталина.
-
-В данной небольшой монографии „И. В. Сталин в сибирской ссылке“ невозможно осветить всю сумму вопросов, связанных с огромной творческой теоретической работой, многогранной революционной (   Читать дальше...   )Жанр: История, политология, публицистика, документалистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:604AF238BF82964E8F3263CFB558C58C35611221
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

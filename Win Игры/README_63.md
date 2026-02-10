@@ -19,6 +19,8 @@ TROUBLESHOOTER: Abandoned Children (2020) [Ru/Multi] (Build 18318222/dlc) Repack
 magnet:?xt=urn:btih:72F71503EAE4A7F17D7844523DD434E0A8C02FBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Age of Empires II: Definitive Edition (2019) [Ru/Multi] (101.103.12349.0/dlc) Re
 ```bash
 magnet:?xt=urn:btih:04A4870DF95FB48860140CA86AE17D5F115F2436
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Super Woden GP 2 - это любовное письмо в мир автоспо
 magnet:?xt=urn:btih:4660D1B5C02763160D1EEB18C3A02BD9FD64D472
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Mark of the Deep (2025) [Ru/Multi] (1.0.0.0.4) Repack Let'sРlay [Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:F1D9063A812546514557701E6608DA146DAAE0AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Baldur's Gate II: Enhanced Edition (2013) [Ru/Multi] (2.6.6.0-p/dlc) License GOG
 magnet:?xt=urn:btih:8B78180B4C0AF0D2AAF4947FC4FC57E76B5C54AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Death Road to Canada - это аркадный экшен про дорожно�
 ```bash
 magnet:?xt=urn:btih:D048738C61C602C7126B95BE343C51D2121DCA18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Teardown – симулятор проведения ограбления в р�
 magnet:?xt=urn:btih:0FC807EBBBC9EC8789B6D08E2BDFC707FE49EC49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Builders of Greece (2024) [Ru/Multi] (1.0.0 build 18361871) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:70C9E35802915DC3591551D4D60DD0C8F1E5C622
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Drop Duchy - это легендарная геометрическая голо
 magnet:?xt=urn:btih:6B88DD9732AB6F9786A507E244B4CEC77C63E197
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Cybernetic Fault – сатирическая приключенческая и�
 ```bash
 magnet:?xt=urn:btih:19A7B77CE99FB0302CADDD7A4D872B9E710C8D40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Rise of the Ronin - динамичная ролевая игра, в котор�
 magnet:?xt=urn:btih:3A8CCEEB67F4D675092BEF531D4702F36F586B6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Forza Horizon 5 – продолжение популярной гоночной
 ```bash
 magnet:?xt=urn:btih:0B0E0572874E8BC0731075D4E4097D28994C748A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Viscerafest (2021) [Ru/Multi] (1.2) Repack FitGirl
 magnet:?xt=urn:btih:12C3F67A8EE4F2B9B74951735D1FE2346B91B49F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ ShoppingMall: Manager Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:278AC837BC79F3021AF9F5F7943309A222AFC9E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Food Park Manager предлагает заняться строительств
 magnet:?xt=urn:btih:3F583BD9B24589BB29F6B18940D2BA56FE6188A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Slavania - двумерная метроидвания, включающая в 
 ```bash
 magnet:?xt=urn:btih:EEB7336139B1896415DB4E1FCBD1E0A0040A164C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Drop Duchy - это легендарная геометрическая голо
 magnet:?xt=urn:btih:884D4D9E37BA110BFBF05E6F52CFBD317E21DB4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Colony Ship: A Post-Earth Role Playing Game - пошаговая ролевая 
 ```bash
 magnet:?xt=urn:btih:6ED9DAC14856BEA0EC75BC034A534534ADFA8FE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Captain Blood / Приключения Капитана Блада (2025) [Ru/Mu
 magnet:?xt=urn:btih:37AD2AAABE6FE8563C5F1616A867EF38596845E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Aquarist - иммерсивный симулятор, позволяющий п�
 ```bash
 magnet:?xt=urn:btih:430C3FCC8E50C63901C242058ADF7E11AD9365F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Another Crab's Treasure - это увлекательное подводное �
 magnet:?xt=urn:btih:C55E9051801C8A5CDD171F92CB1A39885B9DA916
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Reignbreaker - динамичный roguelike, действие которого
 ```bash
 magnet:?xt=urn:btih:2088372B7459DA54532CE45DEC0ABE3B51E5243D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Pacific Drive - это атмосферное автомобильное при�
 magnet:?xt=urn:btih:25677E6CEC19747FF1EDA235F74B3FF40E8AC1AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Age of Empires II: Definitive Edition (2019) [Ru/Multi] (143421/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:5A5E09B2631B9E63F1679D86C016ACA07FE2220D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Womanizer (2024) [Ru/Multi] (1.32/dlc) Repack Other s [18+]
 magnet:?xt=urn:btih:62305DDA9D2900600FA16315A692EAB17856C2CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ The Last of Us Part II (2) (2025) [Ru/En] (1.3.10430.406/dlc) Repack Decepticon 
 ```bash
 magnet:?xt=urn:btih:7D01B0D8BA60F787876B67F7467F243018C9188D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

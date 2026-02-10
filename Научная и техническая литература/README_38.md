@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:10E72EEF438DB284BD094D8DC698BF896FE6D0A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Everyday words are arranged in themes with carefully selected up-to-date images 
 ```bash
 magnet:?xt=urn:btih:2F3EC1ED88F45A816209E67A9F04FB9991A8F38C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ A photographic guide to the key words and phrases in Thai. This attractive pocke
 magnet:?xt=urn:btih:5D89CE247190049E0E9A640B0F8CE4C1E739331E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ A thematic organization of more than 10,000 fully illustrated terms labeled in b
 ```bash
 magnet:?xt=urn:btih:2A866ED92D10CF554823C04A1D5F9FF7B319C397
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:2A866ED92D10CF554823C04A1D5F9FF7B319C397
 ```bash
 magnet:?xt=urn:btih:F5F4006E128A0A0F8B76CC0A26713EA3A405AE5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Each story will involve an important lesson of the tools in the Spanish language
 magnet:?xt=urn:btih:A6252F69363A7C7CCAA75A583AFA0961FA77FEDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Routledge Introductions to Applied Linguistics is a series of introductory level
 magnet:?xt=urn:btih:2D675F018449AB15F3393460208713F89F87A093
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:2D675F018449AB15F3393460208713F89F87A093
 ```bash
 magnet:?xt=urn:btih:5B6A4E757E397C6751537EC27A2F4A3A02CC5F47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:5B6A4E757E397C6751537EC27A2F4A3A02CC5F47
 magnet:?xt=urn:btih:925E563BFC16D878B8D44761ED8056AB461C2A5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Legal English is a professional language. This book is designed for law students
 ```bash
 magnet:?xt=urn:btih:18755FDA78A431A8EC3EBCF7450AE1F988BD0387
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ Inside... you'll learn how to Engage in dialogues that illustrate practical conv
 magnet:?xt=urn:btih:169305A21791C4BDDC6BFCECB93B7CE5BF8563D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:169305A21791C4BDDC6BFCECB93B7CE5BF8563D2
 ```bash
 magnet:?xt=urn:btih:D31E50DD86868AE0BD433AD1F6D1B5396606A833
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ Drills for each test section—Reading, Writing and Language, and Math(   Чит
 magnet:?xt=urn:btih:0FCB5541A39C10234C661E1A1A261CAF8AF245A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ The concise clarity of this book makes it a handy reference for anyone intereste
 magnet:?xt=urn:btih:E416F10F811A7EE26633C8CECD81EF672328FEAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ Perfect Phrases for ESL: Conversation Skills is filled with hundreds of ready-to
 ```bash
 magnet:?xt=urn:btih:C2661A4E7EFBA18BB25142FAB0F89B7D42636116
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ The Bible Book explores the ideas and beliefs key to the teachings of the most w
 magnet:?xt=urn:btih:CA330B06249EBF53C11E5DF42092E21AAD2B148E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:CA330B06249EBF53C11E5DF42092E21AAD2B148E
 ```bash
 magnet:?xt=urn:btih:7C8633217AD5E4CBB4FB8109810C417DC4349F9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ Department of Linguistics | Language Files. Twelfth edition (2017) [EPUB] [EN]
 magnet:?xt=urn:btih:6437FFBC83466B028F2FDDD63E19795B5E383E8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ Falar, ler, escrever português - Um curso para estrangeiros. Livro do aluno (co
 ```bash
 magnet:?xt=urn:btih:BE3C6A64105D054650E9AAF5BE824E889D690137
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ This book is essential to anyone who is planning (   Читать дальше.
 ```bash
 magnet:?xt=urn:btih:694FCFBB3F2F0059BD04B7C066AC096A08FDA040
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +556,8 @@ How to access Hot English.(   Читать дальше...   )Жанр: учеб
 magnet:?xt=urn:btih:DD9F0BF1F97143063A5B97A475F661C62A8E18DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +581,8 @@ magnet:?xt=urn:btih:DD9F0BF1F97143063A5B97A475F661C62A8E18DE
 ```bash
 magnet:?xt=urn:btih:15A634BB92FF7AD1AA8C9CA6684CF665A4B6B9C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:15A634BB92FF7AD1AA8C9CA6684CF665A4B6B9C2
 magnet:?xt=urn:btih:1AAB86FB98DF538E4733EE76021253A9C9E84A71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ magnet:?xt=urn:btih:1AAB86FB98DF538E4733EE76021253A9C9E84A71
 ```bash
 magnet:?xt=urn:btih:F771994B92F7ACFA4B037CAE4DE5B48B8BB0695B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +663,8 @@ magnet:?xt=urn:btih:F771994B92F7ACFA4B037CAE4DE5B48B8BB0695B
 magnet:?xt=urn:btih:A9CB3109EAE00A73136ED18CF8C1CAD629D82EA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ TOEFL iBT от начала до конца использует аргумен�
 ```bash
 magnet:?xt=urn:btih:715D24F212003636D31D0ED782DFED5315683BA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

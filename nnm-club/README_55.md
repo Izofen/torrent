@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:F4A02163DD169CE6545846B2F73E48F4CC0E1634
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Affinity Designer — самое быстрое, удобное и точное 
 ```bash
 magnet:?xt=urn:btih:31C10C8C8BAC1CFD3F27E625343400FFD4EC1D5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Imminence — шведская металкор-группа из Мальмё �
 magnet:?xt=urn:btih:5B0C51341AFAD9BFC01D60DD75781C8B7EB6C688
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:5B0C51341AFAD9BFC01D60DD75781C8B7EB6C688
 ```bash
 magnet:?xt=urn:btih:9C7C67534962002319185340A45FAAEC146142B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:9C7C67534962002319185340A45FAAEC146142B8
 magnet:?xt=urn:btih:AE0EB6D4DEB345EDB1E76F5830A59F188CA5F888
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ SnapEdit — одно из лучших приложений для редакт
 magnet:?xt=urn:btih:7D922137E94ECB2523DAF3800F20C8B88DEDB661
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:7D922137E94ECB2523DAF3800F20C8B88DEDB661
 ```bash
 magnet:?xt=urn:btih:C5E6BF1A1E74602970323A765C9DB0134EA712B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Trayy 2.0 Portable [En]
 magnet:?xt=urn:btih:65EA99C9D78EC3E93CBA90023E17A82A4A474940
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:65EA99C9D78EC3E93CBA90023E17A82A4A474940
 ```bash
 magnet:?xt=urn:btih:D3C01540148B471BD91A680A9285FC4A9AB4CFDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ RAM Saver Pro - инструмент для профессионального �
 magnet:?xt=urn:btih:79D534B92E08AF7373430FBE527C561C79C9365C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:79D534B92E08AF7373430FBE527C561C79C9365C
 ```bash
 magnet:?xt=urn:btih:58A9BC92A05C3FDF5E41D86A50D5DA8D28DD71D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:58A9BC92A05C3FDF5E41D86A50D5DA8D28DD71D0
 magnet:?xt=urn:btih:C679102908B638D00B56161D0F13912C29588CF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:C679102908B638D00B56161D0F13912C29588CF0
 ```bash
 magnet:?xt=urn:btih:0644015B825EC4366F2F530797820E1F90192252
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Videomass 6.1.20 Portable [Multi/Ru]
 magnet:?xt=urn:btih:5E4631C7ABAAC283EC145798048FA79390ED4A41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Remini / Улучшение Фото v3.7.1126.202516929 Mod by Mixroot [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:5DBC0F121088C729650D50D9D06783A026C8065E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ R-Wipe & Clean - программа для невосстановимого уд
 magnet:?xt=urn:btih:8E1DE2A3F9A1608D74AD6BB8EE0915E3E163BB36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:8E1DE2A3F9A1608D74AD6BB8EE0915E3E163BB36
 ```bash
 magnet:?xt=urn:btih:73BAEBC7B6D9BCB88BA4F0170C5BAD983244F3CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ This book equips readers with the knowledge to effectively design, test, and ref
 magnet:?xt=urn:btih:9D188114C74F90670C06A2C9CC99119AD9EEE59A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ iZotope - RX 11 Audio Editor Advanced 11.3.0 STANDALONE, VST 3, AAX (x64) RePack
 ```bash
 magnet:?xt=urn:btih:CB983C9EC8AD9E1ADE1A1750AD0B63F92111201C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:CB983C9EC8AD9E1ADE1A1750AD0B63F92111201C
 magnet:?xt=urn:btih:9DB38F1AB4174D547C87DE5596DF298F294BC29D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:9DB38F1AB4174D547C87DE5596DF298F294BC29D
 ```bash
 magnet:?xt=urn:btih:DD7B51055B94A1E84A37D27E75037596F7B17AC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ OBS Студия - бесплатное программное обеспече�
 magnet:?xt=urn:btih:D3816C6051EE16B4CB96EAEC8EDCC44BA7A999E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Imagine - это бесплатный просмотрщик изображен�
 ```bash
 magnet:?xt=urn:btih:A3F22A557C095B3EDE7D42976F2F2E41699CA7C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:A3F22A557C095B3EDE7D42976F2F2E41699CA7C8
 magnet:?xt=urn:btih:8325E519E5A1828AB6672F3F8BF704D515DF10A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:8325E519E5A1828AB6672F3F8BF704D515DF10A2
 magnet:?xt=urn:btih:1D6D0773D62630A9634665BE6692A1E58F7E1C4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ RegCool 2.037 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A702EC933B1A088477B2EDE2E851F83DF2B5D5E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

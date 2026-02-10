@@ -19,6 +19,8 @@ Listen Audiobook Player v5.2.12 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:3E75BD2D5746A4080CA370722B0455BFA8667A1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:3E75BD2D5746A4080CA370722B0455BFA8667A1E
 ```bash
 magnet:?xt=urn:btih:F15E4963203C891AE58D2A32382937E463938E44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Live синхронизирует все и работает в режиме р�
 magnet:?xt=urn:btih:47F0C9EB8205C0DC53A7F054EB873EC1545E575D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:FA5832A71B0C9B50FD6C936C071E9294CDBD7B62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Youtube Downloader HD - бесплатная и предельно проста�
 magnet:?xt=urn:btih:748E3139CAD1D7776A79AAE8210CFCB2F8ECCF16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:B1F2B13AC03E56BC30C98593CBBEDB0C1381F6DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ MediaHuman YouTube Downloader 3.9.12 (1006) RePack (& Portable) by elchupacabra 
 magnet:?xt=urn:btih:DFDF37A0393D7FD9C49218569C92439FE27ABC71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.15.7 Mod 
 ```bash
 magnet:?xt=urn:btih:AE04ACBB0960A6EEB20D055F4A07F5A3A0CF64FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ O&O SafeErase - полностью исключает возможность в�
 magnet:?xt=urn:btih:0C894292E308FCBBB26625B68C32719778DA8ABB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ AIDA64 v2.09 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:83C2644A72CB9AED4C0EB42922FFE1CD0B29B01C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Activation Program 1.12 b04  Portable by Ratiborus [En]
 magnet:?xt=urn:btih:66D5D76E78143D4D28D44709AE09B45C059C79EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Microsoft Office 2021 — новый офисный пакет от корпор
 ```bash
 magnet:?xt=urn:btih:3B0A68991DC156E5AEAA5DF45A2CC7A7D2DF22EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ Windows 7 SP1 7601.27769 x64 3in1 by OneSmiLe [11.06.2025] [Ru]
 magnet:?xt=urn:btih:5D2DE0F30DBB11ED9B6A42A8CBC0697511B54A40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Fast Video Cutter Joiner - программа 2-в-1 для быстрой ре�
 ```bash
 magnet:?xt=urn:btih:D1F062310B0F31D712BC9348E53AFE38E7BFC83E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:D1F062310B0F31D712BC9348E53AFE38E7BFC83E
 magnet:?xt=urn:btih:82627897E0B05541ABA84566369230A2EED67A4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Glary Utilities - комплексный набор инструментов д�
 ```bash
 magnet:?xt=urn:btih:F9DDB041B7054546038C0DCD5DCB13338787B80D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Glary Disk Cleaner - бесплатный инструмент от компан
 magnet:?xt=urn:btih:300C37BD50AB82A7257230A1A91237364EB05DBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ The Bat! – общепризнанная система обработки эл
 ```bash
 magnet:?xt=urn:btih:F5AE9CC158004C6A3514A219DC484017E4354C80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ DISMTools — это интерфейс для DISM, позволяющий уп
 magnet:?xt=urn:btih:796EA44D956BCA71452B39FB898728B4ED3F0E02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 ```bash
 magnet:?xt=urn:btih:CEC3FDE7778ADC1F2AD345ADB9491E3DB257872D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 magnet:?xt=urn:btih:448CB2BD644132B1F004890AF176054E55696C0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ PrivaZer - полезная утилита, которая поможет вам
 magnet:?xt=urn:btih:3C4D48E87A531635E327B85A35FD680479140BC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ ScreenToGif — удобный бесплатный инструмент, с п�
 ```bash
 magnet:?xt=urn:btih:8D0A672AA858E4DF8303C0349918FBC51F68C648
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ Activation Program 1.12 b02  Portable by Ratiborus [En]
 magnet:?xt=urn:btih:901D55B124F15A713D31CE17E7876C65F92D9998
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ StartAllBack - привычная для нас программа, котора
 magnet:?xt=urn:btih:33D7E7EBA2C75133E45F4CB9CE80326BFA1E37CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Plus Messenger - неофициальное приложение для обме
 ```bash
 magnet:?xt=urn:btih:39DD106EFAB57B3EBDD4AEADDDE392074B853E2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

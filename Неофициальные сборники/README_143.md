@@ -28,6 +28,8 @@ The Millennium Collection - The Best Pop Music Of The 20th Century (1950-1998 20
 magnet:?xt=urn:btih:0F33B83391209D011945CB6A19A22128CE6E45B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ VA - MAXI. Хитовые новинки MTV (2012) [MP3|256-320 кб/с]<Pop,Da
 ```bash
 magnet:?xt=urn:btih:16EBEBFFE875A27B4B5DE26E6A52D20ED863EE8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ VA - Правильная Рэпчина Часть 8 (2012) [MP3|256 кб/с]<�
 magnet:?xt=urn:btih:30A22315AE267BCB4A91BECD329CF40961C30777
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +133,8 @@ VA - Hits Of The Moment (10.05.2012) (2CD)[MP3|320 кб/с]<House, Club, Dance>
 magnet:?xt=urn:btih:6D03CD44A47F033725D5D3B8F818DA86BD1676A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +161,8 @@ VA - No name compilation part 2 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 ```bash
 magnet:?xt=urn:btih:457BFDFBA2CF764FF91BB432A0AAFC4C4C55D532
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +191,8 @@ VA - No name compilation part 3 (2025) [MP3|320 Kbps] <Electronic, Vocal, Easy l
 magnet:?xt=urn:btih:52B42DCE26B88B9606AB05A45A94A3CD733ABB6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +219,8 @@ Juno Skye - Favorites Collection (2025) [MP3|320 Kbps] <Vocal,  Easy listening, 
 ```bash
 magnet:?xt=urn:btih:67D5C7F09BED31587AF0717033AEF4BEB81E7C34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +249,8 @@ VA - L’Amour Fané Compilation (2025) [MP3|320 Kbps] <Vocal, Easy listening, 
 magnet:?xt=urn:btih:3508D047E0CCD0971FFCD5DA72356935F08C9107
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +277,8 @@ VA - Music News For Forum vol.145 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:CF70B5E88906CE07E855E39F43DDCD228F7C89F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +307,8 @@ VA - Не спи за баранкой 7 (Музыка в машину) (2023) [
 magnet:?xt=urn:btih:5F9041514F72B14E3A19AB75868DA43DBE48008B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +335,8 @@ VA - Понемногу отовсюду by Yuridar #M-N (1958-2020) Compilation
 ```bash
 magnet:?xt=urn:btih:C4721EEAE7EE725C62E7AD6F1D29CD4284135B1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +371,8 @@ VA - Time Life - Sounds of the Eighties (1980-1989)(10CD) [MP3|~245 кб/с (V0)
 magnet:?xt=urn:btih:5D03E5FA795974414F64780E8B5FE0CE450EAFA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +399,8 @@ VA - 60 minutes. Old School Dance Music vol.30 (Special 90's) (mixed by Dj V) (2
 ```bash
 magnet:?xt=urn:btih:021862F5FDDCD49681353B73A90DAC2733D7D050
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +429,8 @@ Chicago Blues Radio - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Blues, 
 magnet:?xt=urn:btih:C1B02380AB2E805EB36D7E11142FD33BACB4EBA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +457,8 @@ VA - No name Sultry & Soulful Jazz  compilation (2025) [MP3|320 Kbps] <Sultry & 
 ```bash
 magnet:?xt=urn:btih:F09CF678B4359BC9433734C09E5E957BE607CFFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +487,8 @@ VA - Music News For Forum vol.146 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:37CDBA824F5996D8859F9B24AA0C637170517143
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +515,8 @@ VA - #006 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:03F111037D1682422CDFB2D22F68F3C72421B367
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +545,8 @@ VA - #005 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 magnet:?xt=urn:btih:2A84DE249C54D991C2E03FDC45E2F0EEAD7B4B31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +573,8 @@ VA - #004 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:8DB4980AF6AFF3D264C6953689CD2B72EC2882A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +603,8 @@ VA - #003 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 magnet:?xt=urn:btih:B9FFDE151C3728D1A5687BF4D5A36C919AEB6A07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +631,8 @@ VA - Autumn Mix (2025) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:ACB98E8D6FB84FABC692F8741B2CFF58113978E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +667,8 @@ VA - Hot Summer Hits (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:009F25857CDA485F7E72437118ABCF215D092BC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +692,8 @@ VA - Инструментальная музыка (2012) vol. № 37 [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:9D103350E124F2C2B51B7F14663A4C98D4074E83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -682,6 +728,8 @@ VA - Союз Super Dance (2012) [MP3|256 кб/с]<Pop,Dance>
 magnet:?xt=urn:btih:BFC1FB459E83E1FEC3A5739135CC1533C26AD051
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -715,6 +763,8 @@ Volume 1 (1995)
 magnet:?xt=urn:btih:92926A6E54BDAC0BA4309C318F0F187323D3B0AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -747,6 +797,8 @@ VA - Отборный хит 8 "Зарубежный" (2012) [MP3|256 кб/с]<P
 ```bash
 magnet:?xt=urn:btih:D8671196E58ECC2ABAEC87CCA0B1D5DB0B465610
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

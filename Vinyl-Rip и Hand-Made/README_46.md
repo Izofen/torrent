@@ -19,6 +19,8 @@ Moscow Calling вышел 29 марта 1993 года. Во многих стр�
 magnet:?xt=urn:btih:2A0B810E2A98DE97ECBCD7FABF591DE51CEC72CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:2A0B810E2A98DE97ECBCD7FABF591DE51CEC72CD
 ```bash
 magnet:?xt=urn:btih:A07BF373F8AA23730936920D702296EEAA7A4585
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ B1. The Road To Babylon (6:53)(   Читать дальше...   )Произво
 magnet:?xt=urn:btih:1849946DB1CEAD15E746C8041CD140C24A4F6181
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:1849946DB1CEAD15E746C8041CD140C24A4F6181
 ```bash
 magnet:?xt=urn:btih:E1A8F531EF97CB518707B3E7245E308CBFD3F4EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Carach Angren — нидерландская симфо-блэк-метал-гр
 magnet:?xt=urn:btih:58B350C19B51CD0A1C56FB5BD10DB67E2684986D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ A4. Veins (3:57)(   Читать дальше...   )Жанр: Hard RockПрод�
 ```bash
 magnet:?xt=urn:btih:6F3CE59B9AFAE8E5F77E1AC279E587E1EC22CE97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ Foreigner - Inside Information (1987) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
 magnet:?xt=urn:btih:822ECB3340E14E6102E47DF3AA1A5400E5F4E39C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ Boney-M - Christmas Album (1981) [FLAC 2.0|24/192|tracks|Vinyl-Rip] <Disco> [upc
 ```bash
 magnet:?xt=urn:btih:42CBEF722B966FB86EDD8764BA3E04922802AD39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ B2. Forest of October (13:03)(   Читать дальше...   )Жанр: Progr
 magnet:?xt=urn:btih:A45B9C244FF72A4FA6B123411546ABA46B313364
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ Mylene Farmer - Interstellaires (2015) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Synth
 ```bash
 magnet:?xt=urn:btih:CF2C047B00BD522C8EEB1D6CC7EE29E93D48E48F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +315,8 @@ Stars On 45' - Звёзды дискотек (2LP) (1983, 1984) [FLAC 2.0 24/96|
 magnet:?xt=urn:btih:728CC25AEF93BBB5964D3C2875ACBAA18C051813
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +350,8 @@ Modern Talking - Поговорим о любви, Ready For Romance (1986, 1987
 magnet:?xt=urn:btih:0159D5A7AE17443E0DAE7B4D42D238F2A89D1A7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +379,8 @@ A4. Sole Survivor (4:07)(   Читать дальше...   )Жанр: Hard Rock�
 magnet:?xt=urn:btih:D2E6C99E010067B0C8009E48F499565050784F83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +405,8 @@ VA - Архив Популярной Музыки 1-12 (1988-1990) Unofficial Re
 ```bash
 magnet:?xt=urn:btih:EF351CAD6C7E36CF394AD7107BFF46C27D755A3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +435,8 @@ A.4 Bite My Head Off(   Читать дальше...   )Жанр: Classic RockП
 magnet:?xt=urn:btih:A0C9408988DFD6ADA33080DD4AF83A832037E878
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +463,8 @@ A4 - Я все еще люблю. I Love Her Still. (Пи Ви Крэйтон)( 
 ```bash
 magnet:?xt=urn:btih:667B6BE0C921CB732F2219A6EBE948D81DA623B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +493,8 @@ Psycho Attack Over Europe! (3CD set) (1991-1994) hand made [restored, declipped]
 magnet:?xt=urn:btih:4CFE00208ECB83C0A81BD6E48D9A7608A1DE8267
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +521,8 @@ At the Gates — шведская мелодик-дэт-метал-группа,
 ```bash
 magnet:?xt=urn:btih:0F95D624568EF20257BD4F6B1226F564DA8B37FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +551,8 @@ A3 Help! (Help!)(   Читать дальше...   )Жанр: Beat, Pop RockПр
 magnet:?xt=urn:btih:C88A6C65591CF69EDDB3F37FD061C2C53813192B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +579,8 @@ Doro (Dorothee Pesch) — немецкая певица, экс-вокалист
 ```bash
 magnet:?xt=urn:btih:C372952D471446A3A9610BA276D7348227003990
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +609,8 @@ Evile — британская трэш-метал-группа, сформир�
 magnet:?xt=urn:btih:F672D0A1B05F47DBEEEE2E823802ED84FCAE36A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +637,8 @@ Angelus Apatrida - трэш-метал группа из Альбасете, И�
 ```bash
 magnet:?xt=urn:btih:D87BCE0385384610A15E6892EE316C30AD015C24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +667,8 @@ A4 Америка(   Читать дальше...   )Жанр: ChansonПродо
 magnet:?xt=urn:btih:92D0DD2F629618176FE3824694F0D366E7F648D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +695,8 @@ Butcher Babies — американская метал группа из Лос-
 ```bash
 magnet:?xt=urn:btih:0DA661C389E4F781C2601AB5481DEC028227949A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -677,6 +725,8 @@ A4 You And I(   Читать дальше...   )Жанр: Smooth Jazz, Soul, Fun
 magnet:?xt=urn:btih:D762DE48E3BE4104DB6252EB6CCE61BFD52ABD26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -703,6 +753,8 @@ Battle Beast — финская хэви-метал-группа из Хельс
 ```bash
 magnet:?xt=urn:btih:D54000534ACA8DF8939623144159B2EB51A68A6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

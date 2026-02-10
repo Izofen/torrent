@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:CA6C9803727D72BE63DA43FA2FB84EDBD5A5D5F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ RimWorld (2018) [Ru/Multi] (1.5.4063/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:97219CC11A3F4DBEA0ED57A1136924DAE72B8595
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:97219CC11A3F4DBEA0ED57A1136924DAE72B8595
 magnet:?xt=urn:btih:BA7B1179BAB7C35B454AD84DB0A66940CFFFD56D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:BA7B1179BAB7C35B454AD84DB0A66940CFFFD56D
 magnet:?xt=urn:btih:46ACA07CB787D0EE90FB5AB43AE817368C3898D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:46ACA07CB787D0EE90FB5AB43AE817368C3898D6
 magnet:?xt=urn:btih:E2DC3B930ECE5BB5B3142511D66D89C044E45CA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:E2DC3B930ECE5BB5B3142511D66D89C044E45CA2
 ```bash
 magnet:?xt=urn:btih:12576508EBA9F97CAD6BA8E23D28708C9D07AF45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ VA - Rock's Unsung Heroes (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:72B13651A29F1E10E16F9A1317FC10F86F1F99D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ Children of the Sun бросает вас с головой в жестокую 
 ```bash
 magnet:?xt=urn:btih:EB19EBAB708A95DB250289EC260C5CB51DD8C02E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ Terra Memoria - ролевая игра с фантастическим миро
 magnet:?xt=urn:btih:891207F58D3A3BB2126011477705FE64FDDF39C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:891207F58D3A3BB2126011477705FE64FDDF39C9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ Windows 7 SP1 x64 Rus by OneSmiLe [14.04.2024]
 magnet:?xt=urn:btih:A2E6001A1CE68466F95ACF1BB4855CAC69653892
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:A2E6001A1CE68466F95ACF1BB4855CAC69653892
 ```bash
 magnet:?xt=urn:btih:8FC66CECF6A6AD406A6DCF46EAAA3BE03B8B4796
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:8FC66CECF6A6AD406A6DCF46EAAA3BE03B8B4796
 magnet:?xt=urn:btih:CBA4046BDB1467CF59B59DD4AB05DE36925E63C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:CBA4046BDB1467CF59B59DD4AB05DE36925E63C6
 ```bash
 magnet:?xt=urn:btih:E5D9737D5FDBA6698D2380A3DE72AE10B80EEC6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:E5D9737D5FDBA6698D2380A3DE72AE10B80EEC6B
 magnet:?xt=urn:btih:F2787873315A7B40EF2F5FEADC77F8FC95392179
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:F2787873315A7B40EF2F5FEADC77F8FC95392179
 ```bash
 magnet:?xt=urn:btih:695C732C774DF068EC75517A4002F7B865A727CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:695C732C774DF068EC75517A4002F7B865A727CD
 magnet:?xt=urn:btih:CF90DFCAB2103C97463330DB9DE94EE1D06B9D16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:CF90DFCAB2103C97463330DB9DE94EE1D06B9D16
 magnet:?xt=urn:btih:C5B669AC9D217480F83D4D012E4942CD538CBE67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:C5B669AC9D217480F83D4D012E4942CD538CBE67
 ```bash
 magnet:?xt=urn:btih:3BA4C75AB7F108D0871ADB85B202FCB45D10AB59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ magnet:?xt=urn:btih:3BA4C75AB7F108D0871ADB85B202FCB45D10AB59
 magnet:?xt=urn:btih:2CBF22C4FAD31B70B86E93E163114C76334E687B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:2CBF22C4FAD31B70B86E93E163114C76334E687B
 magnet:?xt=urn:btih:1075A8CB584E3504EAA9A7AE32D414E61784CC83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ magnet:?xt=urn:btih:1075A8CB584E3504EAA9A7AE32D414E61784CC83
 ```bash
 magnet:?xt=urn:btih:734671B56984DD682781EEFC9953B3505ABA1EDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:734671B56984DD682781EEFC9953B3505ABA1EDA
 magnet:?xt=urn:btih:ACCED1D800AFF8C3858FF8CAD65BBD63EDB7CC9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ The KMPlayer – это мощный мультимедиа проигрыват
 ```bash
 magnet:?xt=urn:btih:81ED9F33695BE51BF8BC4DA6EB59C3E3CCA68049
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +661,8 @@ FHM (For Him Magazine) - ведущий мировой журнал для му�
 magnet:?xt=urn:btih:D5D06C04A7D5012F2A80FFCBB7ACBD37989BF875
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ magnet:?xt=urn:btih:D5D06C04A7D5012F2A80FFCBB7ACBD37989BF875
 ```bash
 magnet:?xt=urn:btih:271802F0F0BFFDF31714545183D6C9967DC6EF25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Marvelous Designer – программа для создания моделей
 magnet:?xt=urn:btih:8E0D73FDAB112D87AFD4E34D45DDB39E26BC7A4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ GeoGebra — мультиплатформенная программное об�
 magnet:?xt=urn:btih:792D878BADF52BBFB22278CD3582F3EA2B547F69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ WizTree - небольшая и полезная утилита для опре�
 ```bash
 magnet:?xt=urn:btih:9A54E6B492C05C33ABA38D56FAAD57DE1032B91C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ DogLinux Debian 11 Bullseye 2022.07.12 [x86, amd64] 2xDVD 2xCD (ISO)
 magnet:?xt=urn:btih:E3CBDB5A22AC31598E5E527C9B7B753A776AF111
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Fort Firewall - простой и бесплатный брандмауэр дл
 ```bash
 magnet:?xt=urn:btih:146CEE26A35F02F5732E6FAD1FE0BB6581DAE2FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:831162DDC00AEF4926EAC0A850893B8CF48C5B09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Adobe Substance 3D Painter 8.1.2 [En]
 magnet:?xt=urn:btih:24E292B3D152CC3E8268BB732F7C0F088BE5B229
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ WinNTSetup (Windows Setup Tool) – программа для создания �
 ```bash
 magnet:?xt=urn:btih:3F705E57A9536B4C876BB2347E5E9B850DB8F2DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Brackets - удобный и простой редактор исходного 
 magnet:?xt=urn:btih:C58A3F1386DE738BC39801D7F85F475717BE677C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 ```bash
 magnet:?xt=urn:btih:F5D16086E6830DEF91AE7572A1672BCB3CCEAF9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ NIUBI Partition Editor – программа для простого и над�
 ```bash
 magnet:?xt=urn:btih:5512878A6511B7F195AE98B8DD103CCF704AD55B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Speedtest by Ookla 1.10.163.1 [Multi/Ru]
 magnet:?xt=urn:btih:FFB1BD2C514AFAFBF0BD3814B251FBB7027A7A77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ IrfanView - компактная и в то же время мощная про�
 magnet:?xt=urn:btih:852398018D1290F38D9573DD19E933567DEC800A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ RJ TextEd - мощный текстовый редактор с большим �
 ```bash
 magnet:?xt=urn:btih:44CD9D906722103599FA84AE4F44AB0AC0654E2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ O&O Defrag Professional – инструмент дефрагментации д
 magnet:?xt=urn:btih:A68BD92B50C27096A8C282B029CF47D021004787
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ Microsoft .Net Framework 12.07.22 RePack by xetrin [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3755E5C4A6BDFFA0FB6474E0761F26547FEEC5BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ Perfectly Clear WorkBench позволяет всего за пару клико
 magnet:?xt=urn:btih:F6408FF1DDC68A791318A42551ABA94858004248
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ Telegram — это облачный мессенджер для мобильн�
 ```bash
 magnet:?xt=urn:btih:8EB8699B164F0723728F768A52AB4E895C500031
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ YouTube Vanced (Extended) - это неофициальное продолжен
 magnet:?xt=urn:btih:C7C1C7641EA0127DC77C094C3C9976A0FACD8616
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ Topaz A.I. Gigapixel — это первое и единственное при�
 ```bash
 magnet:?xt=urn:btih:FC86E13B97D3795595472826EFD89911FBF31F36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:FC86E13B97D3795595472826EFD89911FBF31F36
 magnet:?xt=urn:btih:6895B147A33B157C460ECE5905E3630A3780AE75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ FileMenu Tools настраивает пункты контекстного ме
 ```bash
 magnet:?xt=urn:btih:DAF524ECD03A59CD0142B14C83725510E9214636
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ Universal USB Installer – портативная программа для с�
 magnet:?xt=urn:btih:AD6EA6986E63A932B08B6A4384DAFCDDACFE6B97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Hard Disk Sentinel Pro — отличная программа для монит
 ```bash
 magnet:?xt=urn:btih:73A6FF1F2089F2ECA7F0301CFA6BA0DC2A49A353
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ Adobe Animate, пришедший на смену Flash Professional - это м
 magnet:?xt=urn:btih:059E92855590E193C26D0FC3AC65E7C5A5B6BD14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ AquaSoft Stages представляет собой мощный инструм�
 ```bash
 magnet:?xt=urn:btih:257026CE4C9A372CB90D3A20456EB5DB3E6252D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

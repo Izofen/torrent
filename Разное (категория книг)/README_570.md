@@ -1,3 +1,29 @@
+###  Публикация: 1110530   (851960) от 03.03.2017
+
+А.М. Наумов | О питательных веществах и о важнейших способах рационального их приготовления, сбережения и открытия в них примесей (1859) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Избрав пищу человека предметом настоящего рассуждения, мы намерены представить здесь питательность важнейших родов пищи, показать некоторые способы рационального их приготовления,  затем объяснить, значение некоторых питательных веществ в народном продовольствии и описать некоторые важнейшие способы сбережения пищи.Жанр: кулинария, химия, раритетФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF25D67352384A725A407FB383E8966FD1EFE7DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110522   (851968) от 03.03.2017
 
 Найденов | Руководство для молодых хозяек. Новейшая поваренная книга (1870) [PDF]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:7112395D6834763EA34935FB53F1B5456446BEE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:7112395D6834763EA34935FB53F1B5456446BEE6
 ```bash
 magnet:?xt=urn:btih:E68FD693A8DAD6AE450A6404948ABFC51E444D3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:E68FD693A8DAD6AE450A6404948ABFC51E444D3E
 magnet:?xt=urn:btih:46EA3CFC26EA1FEA38C94463C0D5446EA6611D03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:46EA3CFC26EA1FEA38C94463C0D5446EA6611D03
 ```bash
 magnet:?xt=urn:btih:5E3E78BEE99E99B913660E1FE17F72FB839F134F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:5E3E78BEE99E99B913660E1FE17F72FB839F134F
 magnet:?xt=urn:btih:905B49DC30A503536A2562B0BD80A2087BCEA611
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ Sergelin | Мебельных дел мастер [7 книг] (2010-2012) [PDF]
 ```bash
 magnet:?xt=urn:btih:7F221A31F383EC7DF58A48ED513F3FC0C055CF15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:7F221A31F383EC7DF58A48ED513F3FC0C055CF15
 magnet:?xt=urn:btih:C23FED903486D44E76CE47C9C3EAF90D14F8DF7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:C23FED903486D44E76CE47C9C3EAF90D14F8DF7C
 ```bash
 magnet:?xt=urn:btih:34E325192D5C496C3BCF050DBEA98428A9AC94B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:34E325192D5C496C3BCF050DBEA98428A9AC94B5
 magnet:?xt=urn:btih:990DB5FAFA8ECC523DD737ECE2C4EE34E36F033C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:990DB5FAFA8ECC523DD737ECE2C4EE34E36F033C
 ```bash
 magnet:?xt=urn:btih:F80CA9A03B801959FF9F3B25EF9CF9CE6DBAA069
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:F80CA9A03B801959FF9F3B25EF9CF9CE6DBAA069
 magnet:?xt=urn:btih:69BEE76DC94F2674BD00E532C132C982BD3DD635
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:69BEE76DC94F2674BD00E532C132C982BD3DD635
 magnet:?xt=urn:btih:03F53F1C38F8430005D18438B7E3B1A761BB8437
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:03F53F1C38F8430005D18438B7E3B1A761BB8437
 ```bash
 magnet:?xt=urn:btih:317DAD4997158C368ABB3A7227C61F41AA4B1A50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:317DAD4997158C368ABB3A7227C61F41AA4B1A50
 magnet:?xt=urn:btih:C5EF238447A792A387B23E4CC34543A5E362D9EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:C5EF238447A792A387B23E4CC34543A5E362D9EB
 ```bash
 magnet:?xt=urn:btih:1DC61998DC1F3666FB4080129490D923E2363D7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:1DC61998DC1F3666FB4080129490D923E2363D7A
 magnet:?xt=urn:btih:D2F724B6A2E8C453109C29D9DA2DDB46C6F7A5BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:D2F724B6A2E8C453109C29D9DA2DDB46C6F7A5BD
 ```bash
 magnet:?xt=urn:btih:401C1FDE8F70E483C93B9A8BE3683A37BAADF83E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:401C1FDE8F70E483C93B9A8BE3683A37BAADF83E
 magnet:?xt=urn:btih:EAE4EEC49D3B94100230B2AD6A080867D478FB61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:EAE4EEC49D3B94100230B2AD6A080867D478FB61
 ```bash
 magnet:?xt=urn:btih:DA2C89541D545D00DA8A7A1F0FA6BA73977B17CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:DA2C89541D545D00DA8A7A1F0FA6BA73977B17CA
 magnet:?xt=urn:btih:B064BB782EFA4C63C750805CC6E36622FFCD9556
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:B064BB782EFA4C63C750805CC6E36622FFCD9556
 ```bash
 magnet:?xt=urn:btih:D0891B4A4FE43A20692F49F4BF1792AB6AA00C0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +598,8 @@ magnet:?xt=urn:btih:D0891B4A4FE43A20692F49F4BF1792AB6AA00C0B
 magnet:?xt=urn:btih:9539C24784486691666FA0384945205AC9923584
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:9539C24784486691666FA0384945205AC9923584
 ```bash
 magnet:?xt=urn:btih:9D8DD4CC9E5CAA02F56F60001627B41A622FDD34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:9D8DD4CC9E5CAA02F56F60001627B41A622FDD34
 magnet:?xt=urn:btih:76AC6E5525E139ECF6CB8F4BFD9851BBC0243112
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,30 +676,7 @@ magnet:?xt=urn:btih:76AC6E5525E139ECF6CB8F4BFD9851BBC0243112
 magnet:?xt=urn:btih:9BC6206E2BC9DFFE9916331272D04D9B1EA65D18
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 306520   (852801) от 09.03.2011
-
-Л. Каченаускайте | Делаем лекала (Секреты швейного мастерства) [2005] [PDF]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Книга поможет научиться изготавливать лекала юбок, пальто, платьев.
-Даны советы по моделированию одежды.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D30FD7897CE9E6D05C7B2AB65AC83A783076F1E6
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

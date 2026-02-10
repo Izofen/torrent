@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:4380740781A489F9A1658EF69D8E4B1160E5078B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:4380740781A489F9A1658EF69D8E4B1160E5078B
 ```bash
 magnet:?xt=urn:btih:1B72426D27FD5206B334F4490E35CAB9A6B8EC2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:406381A903460F3DB24EEF8213BBE9B54408334F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ R-Studio Network 9.4 Build 191460 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:60A994DFF21623DB9EFA810EC367AADECD5A43C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Windows 7 SP1 7601.27618 x64 3in1 by OneSmiLe [13.03.2025] [Ru]
 magnet:?xt=urn:btih:C2D038C09A3FE5AED1084D4A7CF098D8B8269915
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:C2D038C09A3FE5AED1084D4A7CF098D8B8269915
 ```bash
 magnet:?xt=urn:btih:218B13E21DB5A1F2106F8C3E9D11B4679D2DBEE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:218B13E21DB5A1F2106F8C3E9D11B4679D2DBEE3
 magnet:?xt=urn:btih:AB3EC5EBFD6CF19CFED2179AB46C813EBEDA7114
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:AB3EC5EBFD6CF19CFED2179AB46C813EBEDA7114
 ```bash
 magnet:?xt=urn:btih:C71E4198E98022C150004D1BE9BAD5B2ACD042F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:C71E4198E98022C150004D1BE9BAD5B2ACD042F0
 ```bash
 magnet:?xt=urn:btih:6E8A2DD419BF7C8C727A1E374ECC81F6AB54BB24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ Pig - Wrecked (1996) Remastered, 2024, Metropolis Records [FLAC|Lossless|WEB-DL|
 magnet:?xt=urn:btih:D28F949629A0B4754133CFAD7D65D5EFCBA377A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:D28F949629A0B4754133CFAD7D65D5EFCBA377A6
 magnet:?xt=urn:btih:EA0FAC9D32B111BE5BC93A4B67AF7CA350ED89D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:EA0FAC9D32B111BE5BC93A4B67AF7CA350ED89D4
 ```bash
 magnet:?xt=urn:btih:11A4B6B275D92FCD48DDD58F62CCA00E29BCE5FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ The Doors - 3 Live Albums (1970) Remastered, 2025, Homespun, DMG[FLAC|Lossless|W
 magnet:?xt=urn:btih:8CBAEA8D0CC4EF496EFF0667C40202EE2C530022
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:8CBAEA8D0CC4EF496EFF0667C40202EE2C530022
 ```bash
 magnet:?xt=urn:btih:B896ADFEDD7D7733514F544C55985676BA66EFAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:B896ADFEDD7D7733514F544C55985676BA66EFAD
 magnet:?xt=urn:btih:40A72DBCEA14560B0CAAD50187B42C6BA4D45520
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ Visual Studio Enterprise 2019 - Интегрированное комплекс�
 ```bash
 magnet:?xt=urn:btih:36CB854E50B1D5C7C51EF1E74D0BD5AED190BCE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ Disc 1 - Original Album:
 magnet:?xt=urn:btih:205ADACCCF55EE0CBDEAAA872129E976C8BF4EB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ Pro Sound Effects Library представляет набор записей н�
 magnet:?xt=urn:btih:FB78EF5FDFFDB927B77B25F15AA3E092BF5EF364
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ Sandboxie - yтилита для контроля за работой разли
 ```bash
 magnet:?xt=urn:btih:B4C7E8738D97F18E1F7B9207E14DB1FA066BD0FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +530,8 @@ VA - Deep On The Beach (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 magnet:?xt=urn:btih:CF6899FBF15B2D0BE7F0DB19352D56BD12F95D0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ magnet:?xt=urn:btih:CF6899FBF15B2D0BE7F0DB19352D56BD12F95D0C
 ```bash
 magnet:?xt=urn:btih:E28F707B7FAD66599000EECE5DECDF3990667AE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +585,8 @@ Chill Synthwave Mix - Synth Wave (2025) [FLAC|Lossless|WEB-DL|tracks] <Electroni
 magnet:?xt=urn:btih:42AE62B207A22595E27BDD2369F6142BB5C8336A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ magnet:?xt=urn:btih:42AE62B207A22595E27BDD2369F6142BB5C8336A
 magnet:?xt=urn:btih:A1C630B407D7DFC7867AF0DE5645FCEC3FA6D82E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:12371E0C0837930ED302908B404A5696DC0A60FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +667,8 @@ Cosmic Force - Future Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Syn
 magnet:?xt=urn:btih:7FAB6C43FE5C10A7ABA491B8C636BBAAE9E4F088
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ Maxi Talo - Emotions (2025) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Dis
 ```bash
 magnet:?xt=urn:btih:C4D4E4C73FEE688D1A076BBB96722AC76F2868BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

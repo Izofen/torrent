@@ -1,3 +1,154 @@
+###  Публикация: 1292676   (645191) от 30.03.2019
+
+VA - Radio Italia Spring (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Takagi & Ketra - La Luna e la Gatta
+02. Elisa - Anche Fragile
+03. Mahmood - Soldi
+04. Jovanotti - Chiaro Di Luna(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57BE1634BD4D704F491CC6CE3A60F970732BF7A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292721   (645196) от 30.03.2019
+
+Fire - Fire (1978) LP [MP3|320 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deeper In Love (4:08)
+02. C'mon, Let's Do It (3:06)
+03. It's Been So Long (2:34)
+04. Wrap Your Arms Around Me (3:48)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:30:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1D0ADE28D89FA7C91888EA823525AF58EF35F2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292618   (645286) от 30.03.2019
+
+Rick Van Der Linden - GX 1 (1977) LP [MP3|320 Kbps] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GX 1 (4:28)
+02. Mystic Eyes (3:42)
+03. Double Flute X 2 (4:18)
+04. Clouds (3:28)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16D24FA9D6A7859E9CD60498A56DD67FE23AA3F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292671   (645288) от 30.03.2019
+
+Salvador Sobral - Paris, Lisboa (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 180, 181 (catarse) [00:03:21]
+02. Pressagio [00:04:13]
+03. Cerca del mar [00:04:33]
+04. Ela disse-me assim [00:03:45](   Читать дальше...   )Жанр: PopПродолжительность: 00:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC026412669F59C6628BFDF764536333F2B60332
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518042   (645341) от 02.07.2012
+
+T.Ark - H.A.P.P.Y. Radio (2010) [APE|Lossless]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_645341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under Cover Lover (Extended Version)
+02. Count On Me (Extended Version)
+03. How Old Are You (Mixed By Luis Rodriguez)
+04. Move It
+05. Carry Me (Maxi Version)
+06. H.A.P.P.Y. Radio (Extended Version)
+07. Count On Me (Instrumental Dub Version)
+08. Under Cover Lover (Instrumental)
+09. Count On Me (Single Version)
+10. Under Cover Lover (Radio Version)(   Читать дальше...   )Жанр: Italo-Disco
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032339   (645451) от 07.07.2016
 
 VA - Radio 538 Hitzone 78 (2016) Box Set, 2CD [FLAC|Lossless|image + .cue] <Top 40, Pop, Rock>
@@ -21,6 +172,8 @@ VA - Radio 538 Hitzone 78 (2016) Box Set, 2CD [FLAC|Lossless|image + .cue] <Top 
 ```bash
 magnet:?xt=urn:btih:4FACFAF88DCD12A784ADFA1FAE10A57ACB3CBE4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +202,8 @@ Sister Crayon - Devoted (2015) [MP3|320 кб/с]<Trip-Hop, Dream Pop, Indie>
 magnet:?xt=urn:btih:C747A00B2DD446D5EC82D8D3C803EF5F309570AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +230,8 @@ James Blunt - All The Lost Souls (2007) [MP3|320 кб/с]<Pop, Soft Rock>
 ```bash
 magnet:?xt=urn:btih:1D60DC90ECC2EBD942B058CFB8C0E291B6341F46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +260,8 @@ magnet:?xt=urn:btih:1D60DC90ECC2EBD942B058CFB8C0E291B6341F46
 magnet:?xt=urn:btih:8E6FC2FB3FFBFB8334C94AE7B823E09C06DDD7E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +288,8 @@ Izia - La Vague (2015) [OGG|497-517 кб/с]<Alternative, French Pop Rock>
 ```bash
 magnet:?xt=urn:btih:0D518EF25155C7EB387FDB205E9B9B1B4A9AC73F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +318,8 @@ magnet:?xt=urn:btih:0D518EF25155C7EB387FDB205E9B9B1B4A9AC73F
 magnet:?xt=urn:btih:F5C824F72E76EB0B776E0A952AA754B356DC352D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +346,8 @@ VA - Fancy & Friends (2010) [FLAC|Lossless|image + .cue] <Pop, EuroDisco>
 ```bash
 magnet:?xt=urn:btih:284FE91BAC070D0F2977A716C94B460FB8AA22FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +376,8 @@ Londonbeat - 2 Albums (2004) [FLAC|Lossless|image + .cue] <Pop>
 magnet:?xt=urn:btih:A19AE3066D20B2991C479AB425952651FC4C4706
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +404,8 @@ magnet:?xt=urn:btih:A19AE3066D20B2991C479AB425952651FC4C4706
 ```bash
 magnet:?xt=urn:btih:27A2756ECB53D9F82F35413630D348E35FAC06C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +434,8 @@ Chromatics - Cherry (2016) [MP3|320 Kbps] <Electronic, Alternative Pop, Synthpop
 magnet:?xt=urn:btih:002CFD4E2097D02E4FA2DD1769D068F63EFBEDB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +462,8 @@ Chromatics - Just Like You (2016) Vinyl, EP [MP3|320 Kbps] <Electronic, Alternat
 ```bash
 magnet:?xt=urn:btih:7CE578E0A4924F25757519A0A02AE607621B47B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +492,8 @@ magnet:?xt=urn:btih:7CE578E0A4924F25757519A0A02AE607621B47B4
 magnet:?xt=urn:btih:4CF33DD8629987D4A7EEBC8F3EFF977D8C44BFC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +520,8 @@ Artik & Asti - 7 (Part 1) (2019) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:F919D76329266C3F709DDD8F368F4FC8FB58CCC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +550,8 @@ Heaven42 - The Rhythm of Love (2017) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
 magnet:?xt=urn:btih:95736063CF5A7D6D1A41FE19A1B1E3B7D09B9971
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +578,8 @@ VA - DMC Classic Mixes - Disco Volume 4 (2017) [MP3|320 Kbps] <Disco, Funk, Post
 ```bash
 magnet:?xt=urn:btih:6583286994B893AA4C50A177C69CB2613D9064DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +608,8 @@ VA - The Very Best Of Disco (2001) [FLAC|Lossless|tracks + .cue] <Disco>
 magnet:?xt=urn:btih:DE3328D5E0037E1BCD0F2CB06C31A31948E388C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +636,8 @@ magnet:?xt=urn:btih:DE3328D5E0037E1BCD0F2CB06C31A31948E388C7
 ```bash
 magnet:?xt=urn:btih:81C8DC1A54474806E1D2F02D0061AB7EE89DFB84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +666,8 @@ CD 1:
 magnet:?xt=urn:btih:5C7AF0BD343670E7F55AB6606899231CF0E6201B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +695,8 @@ magnet:?xt=urn:btih:5C7AF0BD343670E7F55AB6606899231CF0E6201B
 magnet:?xt=urn:btih:14B83A75E0F2C04F4701203ED927B2CF693647F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +723,8 @@ TDHDriver aka Heaven42 - My Fantasy World (2015) [MP3|320 Kbps] <Italo Disco, Sp
 ```bash
 magnet:?xt=urn:btih:29C47BAD4333375BDA7C0BC1B266BBA235E15058
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,140 +759,7 @@ Adele - 21 (Limited Edition) (2011) [MP3 |320 кб/с]<POP>
 magnet:?xt=urn:btih:D5747AB9904622C1D75CD4DA147EB41695AE1379
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541137   (646754) от 02.04.2022
-
-Miley Cyrus - Attention: Miley Live (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ATTENTION (01:36)
-02. We Can't Stop X Where Is My Mind? (Live) (05:35)
-03. Plastic Hearts (Live) (03:27)
-04. Heart of Glass (Live) (03:08)(   Читать дальше...   )Жанр: PopПродолжительность: 01:22:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C0B75404D46E9BAB33DBEFF080D74CA565A337F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292480   (646814) от 29.03.2019
-
-Sumeria - Golden Tears (1977) LP [MP3|320 Kbps] <Electronic, Downtempo, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance And Leave It All Behind You (4:47)
-02. The Encounter (5:27)
-03. Cosmic Traveller (2:58)
-04. Somewhere, Elsewhere (4:42)(   Читать дальше...   )Жанр: Electronic, Downtempo, DiscoПродолжительность: 00:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6E55389E4B1B32A6B9C327FB93976A13D948B2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292308   (646815) от 29.03.2019
-
-Heat Exchange - One Step Ahead (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор продюсер и аранжировщик - Brian Bennett. Считается лучшим ударником "The Shadows". За первые 10 лет он написал или соавтор более 100 треков для них, а также более 20 композиций для "Cliff Richard"...01. You're Gonna Love This (7:07)
-02. Shake Down (6:55)
-03. Love Is the Reason (7:58)
-04. One Step Ahead (6:25)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:41:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:196E90891F4067D443187A376749620F170C9409
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227403   (646827) от 26.05.2018
-
-Orient Express - A Desert Fantasy (1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desert Fantasy (12:53)
-02. Nights of Roses (3:40)
-03. Desert Disco (5:42)
-04. Ali's Funk (3:16)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:31:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A55CF74DAA4902FB12C8992C498C669FF07D9CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541151   (646852) от 02.04.2022
-
-Britney Spears - Circus (2008) Deluxe Version [FLAC 2.0|44.1/24|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Womanizer
-02. Circus
-03. Out From Under
-04. Kill The Lights(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CAEEDE1C98C1897368BAE0B6894A1A02A8DB7EA
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

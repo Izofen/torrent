@@ -1,3 +1,29 @@
+###  Публикация: 1467036   (1017899) от 03.05.2021
+
+Военная приемка. Умный «Калашников». Фильм первый (02.05.2021) WEBRip  [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017899.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Военная приемка» подготовила для зрителей премьеру - обновленный АК-12. Главный конструктор концерна «Калашников» расскажет о новом прикладе и новом прицеле, а журналисты испытают автомат на прочность, выносливость и точность. Впрочем, новый АК ждут не просто броски с высоты и испытание пылью: «Военная приемка» посмотрит на него с точки зрения эффективности. Для (   Читать дальше...   )Телекомпания: ОАО «ТРК ВС РФ «ЗВЕЗДА»Жанр: ТелепередачаРежиссер: Александр ШильниковСубтитры: ОтсутствуетПродолжительность: 00:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38BCD67A66689959A3F87DCC5E5872B181C4DEDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467195   (1017920) от 03.05.2021
 
 Маска (02.05.2021) WEBRip [H.264/1080p-LQ] (сезон 2, выпуск 12) Финал
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:0C361FDBBBA115F39F52BFE420BFB85A687F6122
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:0C361FDBBBA115F39F52BFE420BFB85A687F6122
 magnet:?xt=urn:btih:F4BBCC8162BAE300E840FF1D695C0E1451197EDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:F4BBCC8162BAE300E840FF1D695C0E1451197EDB
 ```bash
 magnet:?xt=urn:btih:7FB447661962CA4A43641527747A4026C9168AE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:7FB447661962CA4A43641527747A4026C9168AE4
 magnet:?xt=urn:btih:11E011A0873C4CA6109D12AC359E16BEABCADD11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:11E011A0873C4CA6109D12AC359E16BEABCADD11
 ```bash
 magnet:?xt=urn:btih:8DF6D253F5B942955B4FFCE4D19E2B1485A55F07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:8DF6D253F5B942955B4FFCE4D19E2B1485A55F07
 magnet:?xt=urn:btih:AB3D9707C30508B16F9F6E788614F37FE212757A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:AB3D9707C30508B16F9F6E788614F37FE212757A
 ```bash
 magnet:?xt=urn:btih:F31EE285008AC63EC5DBEECE6D97CFEC41F4AB84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:F31EE285008AC63EC5DBEECE6D97CFEC41F4AB84
 magnet:?xt=urn:btih:3F4B0BEADA6E971DD2910A7B05CCEE595EBE65C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:3F4B0BEADA6E971DD2910A7B05CCEE595EBE65C2
 ```bash
 magnet:?xt=urn:btih:6677EE7C422EA7DE8016B1FF9E1FEEFD738EFD55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:6677EE7C422EA7DE8016B1FF9E1FEEFD738EFD55
 magnet:?xt=urn:btih:1D68EF30C65B33CB66F25A28EB151762B6FCAB6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:1D68EF30C65B33CB66F25A28EB151762B6FCAB6F
 ```bash
 magnet:?xt=urn:btih:7C08DCEB836B36E6CF27E2C35AFC9E03FEB8C443
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:7C08DCEB836B36E6CF27E2C35AFC9E03FEB8C443
 magnet:?xt=urn:btih:25F99A3A3B01006B511470818DD300B6FD66EC06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:25F99A3A3B01006B511470818DD300B6FD66EC06
 ```bash
 magnet:?xt=urn:btih:1A97988C51FF7083618F31C4645B707E9E233F1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:1A97988C51FF7083618F31C4645B707E9E233F1E
 magnet:?xt=urn:btih:6EE16C32C4D447C9F18AEAA1C6DB49A0405BE710
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:6EE16C32C4D447C9F18AEAA1C6DB49A0405BE710
 ```bash
 magnet:?xt=urn:btih:D260D9713D6379848A072C0BCB1DEB4473A011CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:D260D9713D6379848A072C0BCB1DEB4473A011CC
 magnet:?xt=urn:btih:2C44ED05C70BC968E769AA3F1025E7783BF801B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:2C44ED05C70BC968E769AA3F1025E7783BF801B6
 ```bash
 magnet:?xt=urn:btih:75C0F4B1A536384A015C950684D99AF1B0BA4AF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:75C0F4B1A536384A015C950684D99AF1B0BA4AF3
 magnet:?xt=urn:btih:E48D8C73DF279A124A58410744AC1AE83A6AED2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:E48D8C73DF279A124A58410744AC1AE83A6AED2F
 ```bash
 magnet:?xt=urn:btih:29CEB3F2DA44151019272F8A49E6CF10C880D5BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:29CEB3F2DA44151019272F8A49E6CF10C880D5BF
 magnet:?xt=urn:btih:C26AF918B2A18AFB893E9ED8CB9B20A5B0CF2B97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:C26AF918B2A18AFB893E9ED8CB9B20A5B0CF2B97
 ```bash
 magnet:?xt=urn:btih:5FAD3655EF375C2019B100DAA8179FE99110BE6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:5FAD3655EF375C2019B100DAA8179FE99110BE6A
 magnet:?xt=urn:btih:3D67D5819670A7915FBB854BB88D485397272D9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:3D67D5819670A7915FBB854BB88D485397272D9D
 ```bash
 magnet:?xt=urn:btih:C73ABB568F0B3FAF8D1620291C3E6619ADD3A2F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:C73ABB568F0B3FAF8D1620291C3E6619ADD3A2F1
 magnet:?xt=urn:btih:3904C81BA3A4C12EAD384B9F62A839F03E5E5D29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,29 +675,7 @@ magnet:?xt=urn:btih:3904C81BA3A4C12EAD384B9F62A839F03E5E5D29
 magnet:?xt=urn:btih:B4A0EFD27CE6A8D83EFD971EDD6F156380A15B51
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466155   (1018784) от 28.04.2021
-
-Грехи моего отца / Sins of My Father (Pecados de mi padre) (2009) BDRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Себастьян – сын одного из самых жестоких наркобаронов Пабло Эскобара, представляя документальный фильм «Грехи моего отца» сказал, что цель картины – рассказать об этой жуткой истории, «свидетелем которой мне, к несчастью, довелось быть». Несмотря ни на что, Себастьян вспоминает о своём отце с любовью и даже с определённым пониманием. С болью повествует он о его трагическом (   Читать дальше...   )Производство: Аргентина, Колумбия, Arko Vision, Red Creek ProductionsЖанр: Документальный, расследованиеРежиссер: Николас ЭнтельПеревод: Двуголосый закадровый, профессиональный (Студия ПозитиВ)Субтитры: АнглийскиеПродолжительность: 01:28:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:437249AB1CB4BF49B06B990588B9951901667CC4
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ SoftMaker Office Professional 2024 rev. S1208.0127 RePack (& portable) by KpoJIu
 magnet:?xt=urn:btih:BC6F94C60CE9F26F5E78BD36633DB4DFC721B5B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ JetBrains PyCharm Professional – это мощная и многофункци
 ```bash
 magnet:?xt=urn:btih:79A8053AFE8D13F9B5763937D74E595C7110A7F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Download Master эффективно решает 3 главных пробле�
 magnet:?xt=urn:btih:EE5FDBAD2AAF925653D77241E96923F03581DC6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Autodesk 3ds Max предоставляет все необходимые инс
 magnet:?xt=urn:btih:2B408F7A4D6CC3C55B3B2043926B85ED38389523
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ iTop VPN — это универсальная VPN для Windows/ПК, отве
 ```bash
 magnet:?xt=urn:btih:E6D8E7D3D9BAD0F21FDD7F8746DE25BFE701F3E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ StaxRip - инструмент для кодирования видео "все-
 magnet:?xt=urn:btih:3B75BF842B4A5B042D7026FEDD00E378C4FF1EA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Skype предназначен для личного и делового общ�
 magnet:?xt=urn:btih:91DD2461876F85803EE6AF2B455563F2B595936F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ PictureThis - Plant Identification v3.77 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D25DC27CB83617796FFBD7E01DB0D569EF5678FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:EF57DEC614C6CAC7189CE5F54DBB574E62D66F9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Steinberg - WaveLab 12 Pro 12.0.0 (x64) [Multi]
 magnet:?xt=urn:btih:8DC296F05A288E77E1CE3C2736CFDB25FD43B865
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ WinContig - простая в использовании автономная п
 ```bash
 magnet:?xt=urn:btih:B12D0A4EF7F1D2546BB67BA656FB0DA3034DB3FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Mullvad Browser подойдет для пользователей, которы
 magnet:?xt=urn:btih:B54A7DE5174DFBDA5897E4071B87083C473ADD27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:B54A7DE5174DFBDA5897E4071B87083C473ADD27
 ```bash
 magnet:?xt=urn:btih:B0EF193564E3F6A8E8CF5EF14D59AD7189CAB939
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Visual Studio Enterprise 2022 - Интегрированное комплекс�
 magnet:?xt=urn:btih:93F825FD67BFC3325D93452CAA45647AE8349F8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Video Cut&Crop&Join for Mac 3.7 [En]
 ```bash
 magnet:?xt=urn:btih:60A446299CE26488937D86AA8B0D93274BCD2C95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ PullTube 1.8.5.25 [Multi/Ru]
 magnet:?xt=urn:btih:2FF211F188934A4D7ABF8481F6F3E6B3944FC001
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ PhotoDirector - функциональный, но весьма простой �
 ```bash
 magnet:?xt=urn:btih:DC362A75E17C3E0738691581B51E98FB2BFEC043
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ OfficeSuite Pro + PDF - это полнофункциональный офисн
 magnet:?xt=urn:btih:14A4EC49488C3564D17B3A5F5FA6E585E1CB6CF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ WinCatalog - это простая в использовании програм�
 ```bash
 magnet:?xt=urn:btih:F0312B0A904F21ACEE29E953B4EE107CFB956805
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ Spotify имеет громадный каталог музыки, поддер�
 magnet:?xt=urn:btih:B6DFA0C44EACF848464C61BEB24DBFA34B699ECD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ PowerDirector - самое быстрое и передовое программ
 ```bash
 magnet:?xt=urn:btih:4F55268EA5CEF3B23406D8A0F7DBDA9A864ADE8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ Aomei Partition Assistant – мощная программа для работ�
 magnet:?xt=urn:btih:3FC25C3399D41162214C3523AE44F2D5DA046D1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ Adobe Photoshop 2024 - новая версия программы для обр�
 ```bash
 magnet:?xt=urn:btih:CAEEF9FD99A22340E23EFAD0854FED74B3ECED58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ Wondershare Recoverit - профессиональное приложение, �
 magnet:?xt=urn:btih:A024B7A3086AA6E8AFC01E95DF5ED7AE65C7CE01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ OmniReader - полифункциональное приложение для ч
 magnet:?xt=urn:btih:D65E5B68941868B5D13E52D598F1F4DBDC0DDD9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Aiseesoft Mac Screen Recorder 2.2.22 [Multi]
 ```bash
 magnet:?xt=urn:btih:71EDF1BE4C40A525583AA32FFD156D7C1F81FBDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

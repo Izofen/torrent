@@ -19,6 +19,8 @@ Europa Universalis V (2025) [Ru/Multi] (1.0.6/dlc) Repack Necros
 magnet:?xt=urn:btih:AAE5BE21FD03D4F629AB91E5E0F21001805880BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Peglin (2024) [Ru/Multi] (1.1.23) Repack Necros
 ```bash
 magnet:?xt=urn:btih:E2FA08E6CA667A56FAED9F4428DE472A08D093BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Poly Bridge 3 (2023) [Ru/Multi] (1.5.10) Repack Necros
 magnet:?xt=urn:btih:20C4953D9AA115342FFF146EE5C975E42634A83C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ For The King II (2023) [Ru/Multi] (1.10.9/dlc) Repack Necros
 ```bash
 magnet:?xt=urn:btih:3EED5D6969A6BE58447489B0775ED4585075B171
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ NDIKA — игра от третьего лица с историей о стр�
 magnet:?xt=urn:btih:044E82A3CD459974A4CDA603418114E71F402639
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ F-19 Stealth Fighter (1988) [En] (435.04) License GOG
 ```bash
 magnet:?xt=urn:btih:6AC3DC61696EA34E45A03F4DD5A5ADF595A878B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack Wan
 magnet:?xt=urn:btih:F84A2799887D0D5788E872B90E05CCF2E4A41C0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Escape from Duckov (2025) [Ru/Multi] (1.2.5) Repack Necros
 ```bash
 magnet:?xt=urn:btih:1CEA6AEB0580EA7A0FAF038D9DE3E6A548AAB182
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Planet Crafter (2024) [Ru/Multi] (1.609/dlc) Repack Necros [Deluxe Bundle]
 magnet:?xt=urn:btih:4EFF5717F3A2F09BA72C717C15FA93A176CB5AFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Wall World 2 (2025) [Ru/Multi] (1.0.8.351) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:C9C208A2A1D993A1593C9C52255909E3A75D9773
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Intravenous 2 - это уникальное сочетание тактичес�
 magnet:?xt=urn:btih:3FF3502A601EBE0EA4719C2CD972239F7C41093C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Geneforge 1 - Mutagen - изометрическая ролевая игра в 
 ```bash
 magnet:?xt=urn:btih:F6E235050FB936D84B72F168E1192A5A6F9FDC49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Fatal Claw (2025) [Ru/Multi] (0.9.81) Repack Let'sРlay [Early Access]
 magnet:?xt=urn:btih:90099B1B71227569EEAC10E3D6FDBBC543C90571
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Winds of Arcana: Ruination (2025) [Ru/Multi] (1.101) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:F8E33F8EA82EFD61D541182CEAC0B2FFED22642A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Winter Survival сочетает классические игровые мех�
 magnet:?xt=urn:btih:8AE40BF85AC6ABAAF6C6C90B97FFE4EF2839BB48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Beneath - это шутер на выживание от первого лиц
 ```bash
 magnet:?xt=urn:btih:FB5A882537FC4253A7FFECDD22D55ADB4E518ADC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Forestrike - игра про боевые искусства в жанре rogue
 magnet:?xt=urn:btih:418108743C9C848B9414AACE81786051B9429F86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Scene voic
 ```bash
 magnet:?xt=urn:btih:9FC5C2C326F3F106460574A52A7A4F78FB015F65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Sengoku Dynasty - захватывающее многожанровое соче
 magnet:?xt=urn:btih:A56E771C01C771B97309116F52823BA0C2674897
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Possessor(s) - это стремительный сайд-скроллер с б
 ```bash
 magnet:?xt=urn:btih:2557B9CF4CDA900DFCA44B3EC3B661B4C47EA64D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Railroads Online - это «песочница» в огромном откры�
 magnet:?xt=urn:btih:2A1CFE01A1188DE7162D7D59A36A41F7B387B9E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ SpongeBob SquarePants: Titans of the Tide (2025) [Ru/Multi] (1.2.0.0/dlc) Licens
 ```bash
 magnet:?xt=urn:btih:3C24B121E7A9AFAF4C6CE7D980DD9C92B0883971
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Escape from Duckov (2025) [Ru/Multi] (1.0.20) Repack FitGirl
 magnet:?xt=urn:btih:493F6330D2DA08C351EA2AB5A9FD73BF500019F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Tales of Old: Dominus (2025) [Ru/Multi] (1.0.261025) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:6E90D9F985B05022E04DD3DE22BDFE4EA4772C31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Kriophobia (2025) [Multi] (1.0.1) License GOG
 magnet:?xt=urn:btih:D943D108CC953D37B2572587AEFFA69A17DB0AEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Winds of Arcana: Ruination (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:EF6E30FDFBBA85800A8C254AFBBA71977285C041
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

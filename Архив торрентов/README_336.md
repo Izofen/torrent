@@ -21,6 +21,8 @@ HD Speed 1.7.1.90 [Ru] (скорость HDD)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ AVPlayer [4.0+jailbreak]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ James Bond 007: Blood Stone [Ru] (RePack) 2010 l R.G. UniGamers
 magnet:?xt=urn:btih:59E93DFE91352A7D960B8B980893C7B3D99D9234
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Studio One Pro - мощный, профессиональный аудио/MIDI-
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Angry Birds Rio – продукт партнерства Rovio и 20th Century 
 magnet:?xt=urn:btih:DF936EA9F11911BCBE60E68016A6F6249D6BC1BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ ABBYY FineReader 11 Corporate Edition повысит производитель�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ P.S. Некоторые из этих видео могут оказаться �
 ```bash
 magnet:?xt=urn:btih:594E3368F58DC989B390C5DBB47AF97D91646389
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ Junior Wells - Come On In This House (2002) [FLAC 2.0 24/96 | tracks (SACD-Rip)]
 magnet:?xt=urn:btih:FB7F7F5A1F0AE7652CAC2CB3BC3F2F1C06F48D79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:FB7F7F5A1F0AE7652CAC2CB3BC3F2F1C06F48D79
 magnet:?xt=urn:btih:138A2E970E6DF92885F1E3DF29E53379203085F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ FantaMorph - программа для создания анимированны
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -280,6 +300,8 @@ Pan.Thy.Monium - культовый проект шведского вундер
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +336,8 @@ VA - Sunset Sessions: Key West, Florida (2012) [MP3|320 kbps]<Deep House, Chill 
 magnet:?xt=urn:btih:137750EC54B017876F296EACB48F921711DC1EFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +363,8 @@ magnet:?xt=urn:btih:137750EC54B017876F296EACB48F921711DC1EFB
 ```bash
 magnet:?xt=urn:btih:A9A1C820ECE3BEDDE77AA80DF8580F1E65666E54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +393,8 @@ magnet:?xt=urn:btih:A9A1C820ECE3BEDDE77AA80DF8580F1E65666E54
 magnet:?xt=urn:btih:2E939C2A786A82854C0EBF83108C30BE41A58E4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +418,8 @@ magnet:?xt=urn:btih:2E939C2A786A82854C0EBF83108C30BE41A58E4F
 ```bash
 magnet:?xt=urn:btih:495B70FE5F4972FC124B7B35BC72DD84081C5B02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +449,8 @@ magnet:?xt=urn:btih:495B70FE5F4972FC124B7B35BC72DD84081C5B02
 magnet:?xt=urn:btih:1BBCB8929E2CCE57F0A59A811562A2C1A01C383C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +476,8 @@ magnet:?xt=urn:btih:1BBCB8929E2CCE57F0A59A811562A2C1A01C383C
 ```bash
 magnet:?xt=urn:btih:1E21CE552B7051B734F2CB805BD033A900A222F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +512,8 @@ magnet:?xt=urn:btih:1E21CE552B7051B734F2CB805BD033A900A222F6
 magnet:?xt=urn:btih:9575CB2622AC2969B7DF8A2032B304B898765C94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +538,8 @@ Mozilla Firefox - бесплатный, функциональный и попу
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +563,8 @@ Mozilla Firefox - бесплатный, функциональный и попу
 ```bash
 magnet:?xt=urn:btih:EBA23DCBE1E1842CBB039C93FC6B4121DED61C33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +599,8 @@ Jassi Sidhu - Nai Ressan (2011) [MP3|249-300 kbps]<Indian, Folk>
 magnet:?xt=urn:btih:33CE29A1078379B3AB2DDC0FDF47B3F905E0D265
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +627,8 @@ magnet:?xt=urn:btih:33CE29A1078379B3AB2DDC0FDF47B3F905E0D265
 magnet:?xt=urn:btih:C3D90765ACD0809FCC469DBE132B0482A0875269
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +652,8 @@ magnet:?xt=urn:btih:C3D90765ACD0809FCC469DBE132B0482A0875269
 ```bash
 magnet:?xt=urn:btih:643297B9C04BCF7F20BCD13A6DBD21F9F4274F0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +679,8 @@ magnet:?xt=urn:btih:643297B9C04BCF7F20BCD13A6DBD21F9F4274F0C
 magnet:?xt=urn:btih:0F66F832F2DC20611916E536D8E92FBBF0AEFD37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +704,8 @@ Aeroplane-ведет свое происхождение с  начала июн
 ```bash
 magnet:?xt=urn:btih:3C407E68C3E1DCF6A97607A010A6A92F37D1CAE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -683,6 +733,8 @@ magnet:?xt=urn:btih:3C407E68C3E1DCF6A97607A010A6A92F37D1CAE3
 ```bash
 magnet:?xt=urn:btih:77DCA82B4CFF6370AFBCA3F1041C6EA44F670452
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

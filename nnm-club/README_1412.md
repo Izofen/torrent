@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C8E6E38DF097F10E25069C8367D54FCCF173CD7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:C8E6E38DF097F10E25069C8367D54FCCF173CD7A
 magnet:?xt=urn:btih:A48FE25370330AFF50C133781007B5DA7D755492
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ digiKam — фото-менеджер для Windows — программа дл
 ```bash
 magnet:?xt=urn:btih:11BBEAC4CD853348F9A860E71E107F598F6F37A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Kasimoff - Compilation Cd 1 (2024) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:4F38E8075FB7869119D61E890DCC72AB10B73D55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:4F38E8075FB7869119D61E890DCC72AB10B73D55
 ```bash
 magnet:?xt=urn:btih:C362A6F2607E4C81E4F27B25B0FE9B7B3C0ABD02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ Topaz Photo AI использует передовые алгоритмы иск
 magnet:?xt=urn:btih:01C54DB37351779B8A34FB02D716A6A592DEC565
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:01C54DB37351779B8A34FB02D716A6A592DEC565
 ```bash
 magnet:?xt=urn:btih:2F5EEFCE5EB7C4F907FDE706DCD5992D55778183
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Aquarist - иммерсивный симулятор, позволяющий п�
 magnet:?xt=urn:btih:D607BF576C7C61624A758FAFA57E3909FAB7D508
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:D607BF576C7C61624A758FAFA57E3909FAB7D508
 ```bash
 magnet:?xt=urn:btih:69BD1A176D557C189AF600E95E1FE6C4CE435272
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:69BD1A176D557C189AF600E95E1FE6C4CE435272
 magnet:?xt=urn:btih:58E7D351C568A8E6024AD2E233BD0C5650D3DEFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:58E7D351C568A8E6024AD2E233BD0C5650D3DEFA
 ```bash
 magnet:?xt=urn:btih:4D7F93E450E50622AB0BE6743A17B1BA778ACFBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:4D7F93E450E50622AB0BE6743A17B1BA778ACFBA
 magnet:?xt=urn:btih:54E25D7D8D7FA9C9B310C8620EEDD164F9710BDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Green Hell (2019) [Ru/Multi] (2.9.1) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:342C63D444A3EA10FF4CAABD58AC61885F88A296
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ IM-Magic Partition Resizer - надежное программное обесп�
 magnet:?xt=urn:btih:90654B889A20E3EB4A1007D5C1ECF9CACE2D4280
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ exFAT/NTFS for USB by Paragon Pro v5.0.0.1 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:70F1FCD0467CFEE366B63F65FA9C5D0DDA0046A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ Gregorian - 25/2025 (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age, Crossover, Sy
 magnet:?xt=urn:btih:5FA78AA1BBF0DB1C06D37B2B36C245C9C875348C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:5FA78AA1BBF0DB1C06D37B2B36C245C9C875348C
 ```bash
 magnet:?xt=urn:btih:07B6FB9F74DE9BFDB6173328545632648A28B40D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:07B6FB9F74DE9BFDB6173328545632648A28B40D
 magnet:?xt=urn:btih:CEF9F79FE72E731FFD67E983C8DE7E7BA09D2F48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ magnet:?xt=urn:btih:CEF9F79FE72E731FFD67E983C8DE7E7BA09D2F48
 ```bash
 magnet:?xt=urn:btih:73E8A9197B69D84BF0052363231BE907502B6AAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ AdGuard — уникальный блокировщик рекламы без ro
 magnet:?xt=urn:btih:ED6E2D0CBB7125A997A014FCB6027BE7A6BC5A57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ Little Big Adventure – Twinsen’s Quest (2024) [Ru/Multi] (1.0.4) Repack FitG
 ```bash
 magnet:?xt=urn:btih:465B5083653BF8FE26892ED3A41296A323C7DD30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:465B5083653BF8FE26892ED3A41296A323C7DD30
 magnet:?xt=urn:btih:B38FE392FC105A39F5C4B8510109F3971512BADD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ Eric's Movie DataBase (EMDB) 5.35 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A6ECE3100012E32CC8F9228D360F546490592020
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:A6ECE3100012E32CC8F9228D360F546490592020
 magnet:?xt=urn:btih:B60141ABC02ABA0C2FA1954E3CF3E012709AC2C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ magnet:?xt=urn:btih:B60141ABC02ABA0C2FA1954E3CF3E012709AC2C9
 magnet:?xt=urn:btih:83919737FDF2585A4324F54617103C861B5CA5CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Kusuriya no Hitorigoto | The Apothecary Diaries | Монолог фармаце�
 ```bash
 magnet:?xt=urn:btih:10A57B14BC52710A72D26F0BC82C099108CB8556
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C83E9F12583ECB755D9580C951DE27EB754F40B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:C83E9F12583ECB755D9580C951DE27EB754F40B7
 ```bash
 magnet:?xt=urn:btih:34A21EBCE9A5345872CEE80FFD7CFAD4F9D79C7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:34A21EBCE9A5345872CEE80FFD7CFAD4F9D79C7C
 magnet:?xt=urn:btih:FF7E848C5582E817B11EB2AE90FCC0E20BFF432E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ magnet:?xt=urn:btih:FF7E848C5582E817B11EB2AE90FCC0E20BFF432E
 magnet:?xt=urn:btih:85E863C2CD39114FFF0454B2FA83899BB884288A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ Sense - Дискография 4 альбома (2002-2007) [MP3|320 кб/с]<Cr
 ```bash
 magnet:?xt=urn:btih:BB605BCFFF5E0E38AE8D0DE30413BF063A14D8C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +170,8 @@ VA - Танцевальная Горячка. Весенний Выпуск (201
 magnet:?xt=urn:btih:32C75AEF6400B25F6EF79DA98165CA10FD537E36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +195,8 @@ InnerWish - 4 альбома (1998-2010) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:E2560C2327193E06FBC03B9CC647115C2E36C4F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +226,8 @@ magnet:?xt=urn:btih:E2560C2327193E06FBC03B9CC647115C2E36C4F3
 magnet:?xt=urn:btih:19A8605B0A2CEBD7E13CD0E3A528B391D106D266
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +256,8 @@ magnet:?xt=urn:btih:19A8605B0A2CEBD7E13CD0E3A528B391D106D266
 magnet:?xt=urn:btih:169D058C62CA955DB8E84688ED549A04B6B7F0F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +285,8 @@ magnet:?xt=urn:btih:169D058C62CA955DB8E84688ED549A04B6B7F0F4
 ```bash
 magnet:?xt=urn:btih:95E624CB0C6844572B11DFFD43ACC0E5845576E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +321,8 @@ Mastercastle - Dangerous Diamonds (2011) [WavPack|Lossless]<Power Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +356,8 @@ C.O.E. - Metal (S.L. Coe - ex Angel Dust,Scanner,Reactor) (2000) [MP3|320 кб/�
 magnet:?xt=urn:btih:A329E4505D3B126C4BF24898A180CFDEF0DEFF74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +386,8 @@ magnet:?xt=urn:btih:A329E4505D3B126C4BF24898A180CFDEF0DEFF74
 magnet:?xt=urn:btih:47ABD00ED1E11C5EA0AD13F32B890BE02099E3F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +415,8 @@ magnet:?xt=urn:btih:47ABD00ED1E11C5EA0AD13F32B890BE02099E3F1
 ```bash
 magnet:?xt=urn:btih:0CE813C78E28CEEDA8E4136EB1D61446D70DCD3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +451,8 @@ Cindy Blackman - Someday... (2001) [FLAC|Lossless]<Hard Bop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +481,8 @@ Cindy Blackman - Someday... (2001) [FLAC|Lossless]<Hard Bop>
 magnet:?xt=urn:btih:1087BBC68E2C340440796D798631B610A22010A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +506,8 @@ magnet:?xt=urn:btih:1087BBC68E2C340440796D798631B610A22010A3
 ```bash
 magnet:?xt=urn:btih:2944AD01392F92AC793E1717D6B26FA9F8870880
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +537,8 @@ magnet:?xt=urn:btih:2944AD01392F92AC793E1717D6B26FA9F8870880
 magnet:?xt=urn:btih:11FBD8FBBBF0518F8E095E93068E1338330A2291
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +563,8 @@ magnet:?xt=urn:btih:11FBD8FBBBF0518F8E095E93068E1338330A2291
 ```bash
 magnet:?xt=urn:btih:49B6113402C550A5C92A6F461374036008A191F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +594,8 @@ magnet:?xt=urn:btih:49B6113402C550A5C92A6F461374036008A191F8
 ```bash
 magnet:?xt=urn:btih:A0552D98F04EDDBB120DE451A895406DBD316ABF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +629,8 @@ Zyce And Flegma - 8 Cell (2011) [FLAC|Lossless]<Psychedelic / Progressive>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +663,8 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #77 (2012) [MP3|320 кб/с]<Tran
 magnet:?xt=urn:btih:F601EC93447DC50D5EEC5EFFDAC31955AE0FDFCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +693,8 @@ magnet:?xt=urn:btih:F601EC93447DC50D5EEC5EFFDAC31955AE0FDFCE
 magnet:?xt=urn:btih:A675A14C3B21A6DDF0807008DDEA5AAF79C7CE53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,6 +718,8 @@ magnet:?xt=urn:btih:A675A14C3B21A6DDF0807008DDEA5AAF79C7CE53
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -697,6 +745,8 @@ magnet:?xt=urn:btih:A675A14C3B21A6DDF0807008DDEA5AAF79C7CE53
 ```bash
 magnet:?xt=urn:btih:862C4CE0CB03EACFD0E5A70081B9178F9CE3A37F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -730,6 +780,8 @@ Juliette Katz - Tout Va De Travers (2012) [MP3|320 кб/с]<Chanson, Pop, French
 ```bash
 magnet:?xt=urn:btih:8C60BEC267C0CFB8AFA66DA1A923B0668723075A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

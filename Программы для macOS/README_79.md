@@ -21,6 +21,8 @@ Final Draft — профессиональная программа для на�
 magnet:?xt=urn:btih:89425C952C46E5673BDFBA17092B10A91BEDC439
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ MPlayerX – бесплатный и довольно быстрый видео-
 ```bash
 magnet:?xt=urn:btih:93BA9B33CE1B2912A57DE9AF409C8537691D9C5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ NetSpot - простой инструмент для построения, ан�
 magnet:?xt=urn:btih:90AD827ADD72D71AE2772EA35691F581B9D2A889
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Dr. Antivirus Pro защищает от новейших типов атак, в
 ```bash
 magnet:?xt=urn:btih:2C184B9F8405A7092EC22E72E050A547C9AB4099
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Vellum 2.6.3 [En]
 magnet:?xt=urn:btih:0A07F2297022733EACD833217603E2BBFD433345
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ Adobe InDesign CC — профессиональный продукт для п�
 ```bash
 magnet:?xt=urn:btih:59F1AE1612ED44A25356425E60493D15DB028D20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ Kontakt - стандарт в мире семплеров. Native Instruments Ko
 magnet:?xt=urn:btih:0A32283291257FD9A73AF2F065C59BAC78E3B9C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ Macgo Mac Blu-ray Player - это один из лучших (если не ск
 ```bash
 magnet:?xt=urn:btih:3099E703DA8EF40D3308D83CBB0680E6249EF21B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ Fantastical - приложение представляет собой кале
 ```bash
 magnet:?xt=urn:btih:0C19AEF5E9ADCEDF651F0AB9085B33A5CFDC1752
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ Movavi Screen Capture Pro 10 v10.0.1 [Multi/Ru]
 magnet:?xt=urn:btih:4D652A9CBE523A9E6D1902BE5A416479704E5012
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ Roxio Toast Titanium 17 v17.2 [Multi]
 ```bash
 magnet:?xt=urn:btih:13A66E105DB337B032B4FEC57AF2C207F024DCD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ Nice Todo 2 v2.0.5d [En]
 magnet:?xt=urn:btih:E37BA4003B41AC5E3AA130C4804CF2EB87173CFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ Pichi оптимизирует и изменяет размеры ваших и�
 ```bash
 magnet:?xt=urn:btih:D5F4D1F9161738EFBBC1714F5F152F84E8E2ADBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ Little Audio App представляет собой удобный инстру
 magnet:?xt=urn:btih:95FF9C4C076D9CF04EFDC3A37805C714DFCE1D0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ Drop - Beautiful color picker for macOS 1.01 [En]
 magnet:?xt=urn:btih:03CED5DFD8970ED37BA1F2B2EB570DCE55AA6867
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ Paragon ExtFS for Mac - низкоуровневый драйвер файлов
 magnet:?xt=urn:btih:7CB8423B7CE483B64CAFBA5D5198C5564E981D24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +457,8 @@ SimLab Composer - мощная программа, которая поможет
 ```bash
 magnet:?xt=urn:btih:D5BE92672C9AF3B84CFCB11DFF43702F1B8A8FF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +486,8 @@ Things — приятный и простой ежедневник. Это ид�
 magnet:?xt=urn:btih:595C715CB04267A0E993CB283ABAE4D5CFD77D35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ Flare позволит вам быстро и легко отредактиро�
 ```bash
 magnet:?xt=urn:btih:F41A0237F3B8FE3DAD637CB02A7C6BB454E6871F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +541,8 @@ Video Converter Movavi 7.0 [Multi/Ru]
 magnet:?xt=urn:btih:42F97A1B8F785CA7B1B079FBDD91394F3BA05F32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ Motion Weather 4K - Ultra HD 1.1.3 [En]
 ```bash
 magnet:?xt=urn:btih:A9D63364032C1A08653A76A042CED1A8AD764134
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +594,8 @@ Priime обладает более чем 100 фотографическими �
 magnet:?xt=urn:btih:1F6F43A392ECE8F76C023D92071DC48BCB56DA2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +619,8 @@ Wondershare Video Converter Ultimate 10.2.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:06C2052432D8259909B13DDE7AD3ABCB0237CA2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +647,8 @@ iExplorer - утилита для (   Читать дальше...   )Тип и
 magnet:?xt=urn:btih:BF098739CB70D8B1BA56A4841A2FFDEE5DD8D651
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +673,8 @@ Photo Wall - Collage Maker — это идеальное приложение д
 magnet:?xt=urn:btih:3CE03A2E9174A066F4CE3BA4B09769BC97D34A98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +698,8 @@ PDFpen Pro - приложение для создания и редактиро�
 ```bash
 magnet:?xt=urn:btih:6D0D3D82465FE6BDF6E70D80E7E78456F191DCE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

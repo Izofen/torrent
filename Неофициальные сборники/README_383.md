@@ -1,3 +1,32 @@
+###  Публикация: 908207   (632484) от 15.06.2015
+
+Teddy Killerz - Countdown Remixes EP (2015) [MP3|320 кб/с]<Drum & Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_632484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Countdown (Davip remix) (04:39)
+02. Countdown (Engage remix) (04:30)
+03. Countdown (Rusty K remix) (04:52)
+04. Countdown (Gydra remix) (04:56)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C63772DA57614E745DE0413D8EB8FD5E433160FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1034776   (632506) от 14.07.2016
 
 VA - Wedding Reception Party-Pleasers (2016) [MP3|320 Kbps] <Pop>
@@ -21,6 +50,8 @@ VA - Wedding Reception Party-Pleasers (2016) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:0FD0DA01077BF43277C0B566A629A2C875AAA77C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Open Oceans - Trance Session (2016) [MP3|320 Kbps] <Trance, Melodic, Harmon
 magnet:?xt=urn:btih:4394B11052325AD4C02B9D169CE63D7EFFF9B19C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - LUXEmusic - Топ Июнь (2016) [MP3|320 Kbps] <Club House, Deep House, 
 ```bash
 magnet:?xt=urn:btih:FB553BE65D1D8CB3BB2CC549CFD589B757E75C64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Top 100 Massive DJs Infinity (2016) [MP3|320 Kbps] <Trance, Progressive, St
 magnet:?xt=urn:btih:98A6C02A5122BBF19757A5D45BF8B02D5AABA153
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Selected Uplifting Spiral (2016) [MP3|320 Kbps] <Trance, Melodic, Energy>
 ```bash
 magnet:?xt=urn:btih:CE1A9F8B567F862A683F75188BC8108E928FC95F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Pro Dj School World (2016) [MP3|222-320 Kbps] <UK Funky, Bassline, Progress
 magnet:?xt=urn:btih:5DC8A3CD7CCD7B8D132DBF01EFF76E8F69DFEE69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Champagne Party - Ibiza Grooves (25 Summer Beats) (2016) [MP3|320 Kbps] <Fu
 ```bash
 magnet:?xt=urn:btih:B0D07E97E12A8EFD5EC01D5E51D8010B3456446E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Dancin People of Electronic Music (2016) [MP3|320 Kbps] <House, Dance, Club
 magnet:?xt=urn:btih:8C734F880B7D88FE9F87E7912A4182ACFF9FDC85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Life Store Stone Clubbed (2016) [MP3|227-320 Kbps] <Funky, Club, Progressiv
 ```bash
 magnet:?xt=urn:btih:B9D75CF893E2EF607993321A859E1DDAB819E325
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - Summer Beach Party (Club, Dance, House) (2017) [MP3|320 Kbps] <Club, Dance,
 magnet:?xt=urn:btih:C025820436E108FA0F905F2A8D4B59C99C9FB700
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +341,8 @@ VA - Дискотека 2019 Deep House - The Best Vol. 6 от NNNB [MP3|320 Kbp
 magnet:?xt=urn:btih:E345608B6E40CCD06B72531EA9C8F19F8B550BD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +369,8 @@ VA - Back To The Future (Mixed by DJ Peretse) (2017) [MP3|320 Kbps] <House, Club
 ```bash
 magnet:?xt=urn:btih:A6C8F8DF9AC8474A14D608C4965806F77146C0CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +405,8 @@ VA - Сборник хороших хитов - Позитивный заряд 
 magnet:?xt=urn:btih:69C40F00B3D1D11131D81503BED8EBE07B19F436
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +440,8 @@ VA - Midnight Club Драйв По Встречной 7 (2012) [MP3|256 кб/с]
 magnet:?xt=urn:btih:A547B2E274A38EE3568CE85C1616D2005D03A198
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +468,8 @@ VA - 50 Лучших треков в машину 4 (2015) [MP3|256-320 кб/с]
 ```bash
 magnet:?xt=urn:btih:F84A6EBC06C7A60549449909398E6E568182FA8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +498,8 @@ Lumen - Всегда 17 - всегда война (Live) (2015) [MP3|320 кб/с
 magnet:?xt=urn:btih:79598EF5539211C81CADA0465DFD24BD3B3370E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +526,8 @@ VA - Лучшие из лучших: Горячие хиты радиостан�
 ```bash
 magnet:?xt=urn:btih:5B2C62443C81734648DB4E2179DF82D0B6BAFE93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +562,8 @@ VA - 100 Самых Самых Хитов 50x50 (2012) [MP3|256 кб/с]<Рор>
 magnet:?xt=urn:btih:B921D599A62342C335A665FC2607CB682CC45618
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +597,8 @@ VA - Лучшая 100ка: Вечеринка продолжается!!! (2012)
 magnet:?xt=urn:btih:CFC3C8E7B56F34E3FEFC3C8372082AC809A17EEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +625,8 @@ Serebro - Не надо больнее (2015) [MP3|320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:CFDA36B00622EA1EFA7B52C7835367B840ECF4F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +655,8 @@ VA - ЕвроХит Топ 40 Europa Plus 05.04.2019 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:426E7DCC7B0B0F7008FB97531003DA6F4947BA8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +684,8 @@ VA - не Громкие новинки недели 9 (2019) [MP3|320 Kbps] <Po
 magnet:?xt=urn:btih:095FAF15A5C08C608DB76445C425393FB46B5D6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +712,8 @@ VA - Умная Электроника (Музыка Поднимающая На
 ```bash
 magnet:?xt=urn:btih:DE2732C56DBCF23D6949F33F119194C2B0A66341
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -673,6 +748,8 @@ VA - Soul of Ibiza Volume 39 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Tr
 magnet:?xt=urn:btih:B3CE5C0E1BC3BA8D6CFD6B6F1BDC22D13718A29B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -706,32 +783,7 @@ VA - На Вершине Европейских Чартов 8 50/50 (2012) [MP3
 magnet:?xt=urn:btih:42844191768BC73FE507B063049B311AB46025FD
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908173   (633769) от 14.06.2015
-
-VA - Шансон о любви Сборник лирики (2015) [MP3|256 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633769.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Александр Волгарь - Покаянная Любовь
-002. Дуэт Лиса - Содержанка
-003. Юрий Охочинский - Дождивый Лондон
-004. Folk Катрин Band - Русские Бабы(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:07:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B90974915B2C0F5BB4C341FDBC31DF21B2ED4D3
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

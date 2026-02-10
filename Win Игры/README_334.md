@@ -19,6 +19,8 @@ Tokyo 42 — стилизованный изометрический шутер 
 magnet:?xt=urn:btih:211743D3FD0245BD49F6FEEA68CA23BE7BE6F350
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ ICEY - это 2D платформер с динамическим процесс
 ```bash
 magnet:?xt=urn:btih:3AFC1346B3801E37F441463B740E2889B1520D2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Metal Tales: Fury of the Guitar Gods (2016) [Ru/Multi] (1.0) License PLAZA
 magnet:?xt=urn:btih:1344D72200271A93FC5960B4D3B4878D36284DA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Among the Sleep (2014) [Ru/Multi] (2.0.1/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:D01F913AD09FE46B8A4AB3617FD3F82D1EFB8C05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Salt - это приключенческая survival-песочница про 
 magnet:?xt=urn:btih:CF540DE96EB98D572D5C18DCA83A5F75B50FE953
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:CF540DE96EB98D572D5C18DCA83A5F75B50FE953
 ```bash
 magnet:?xt=urn:btih:A03549A019A54188AAEAFB9D23EDCA8005AC20D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Lost Lands 5: Ice Spell / Затерянные земли 5: Ледяное за
 magnet:?xt=urn:btih:54627CF73A4767C4CB37D01D9E2AE071A93D1815
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Far Cry 2 (2008) [Ru/En] (1.03/dlc) License GOG [Fortune's Edition]
 magnet:?xt=urn:btih:5FD9D17EC3F4995DCAF271C8FF6A25F6252A93CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ Transient (2020) [Ru/Multi] (0.119) License GOG
 ```bash
 magnet:?xt=urn:btih:51427A3F3233318B9ABC66F8D522A09513A01B8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Tropico 4 расширяет геймплей предыдущей игры но
 magnet:?xt=urn:btih:4549CF5A218BAFD11410C3717735FE8762349CEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Living Legends 6: Uninvited Guests / Живые легенды 6: Незваны
 ```bash
 magnet:?xt=urn:btih:4C8020DF675359C138E87646C1C42B6C480607BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Enchanted Kingdom 2: A Stranger's Venom / Зачарованное Короле�
 magnet:?xt=urn:btih:1143B16149F4BC78E7EC2451BD2B0D449F684D6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Laura Jones and the Secret Legacy of Nikola Tesla / Лара Джонс и та�
 ```bash
 magnet:?xt=urn:btih:18F437A84394AC3BA465F03731D12199A89F12BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Phenomenon 2: Meteorite / Феномен 2: Метеорит (2013) [Ru] (1.0) U
 magnet:?xt=urn:btih:79D0A5159B3A3392FB177EADBF5D3BB49CE72985
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ Redemption: Saints And Sinners (2016) [Ru/En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A75E481ABDE9FA430EC94FD6F39BE1D3A6053999
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ Tyranny (2016) [Ru/Multi] (1.0.1.0010) Repack Other s
 magnet:?xt=urn:btih:9815774513B9ED1716A387890442E5036BD0FED0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ How to Survive 2 (2016) [Ru/Multi] (1.0/dlc) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:A1794843056833B501540051E6C0C77FDFEAB4BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ Circle Empires (2018) [Ru/Multi] (1.2.1/dlc) License GOG
 magnet:?xt=urn:btih:FD763C05CADDA8DDDC1796BE5314BC9FFE8E3F32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ Surviving Mars (2018) [Ru/Multi] (20191010/dlc) Repack xatab [Digital Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:C5EFAA594AB81494F669BD1EF7B8C9D148AA9AE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ Blue Estate дарит уникальное погружение в мир ма�
 magnet:?xt=urn:btih:4D1C8DD7AE477EF0F0FE94E46DA6AFD7E54BDE47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ Halloween Stories 3: Horror Movie (2019) [En] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:B678D334581DFF2E48F2AF87AD0EE7784F4336FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ Wave of Darkness - сиквел к Legends of Dawn и вторая часть т
 magnet:?xt=urn:btih:D81F15CAB2FBFD28D843E858E23F5D9E30542A32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ Nation Red / Зомбилэнд (2009) [Ru/En] (1.00.1000) Lossless Repack R.G. 
 ```bash
 magnet:?xt=urn:btih:764938C80CE2D743A4A40CCF442252A81F2F9A2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ International Snooker 2012 (2013) [En] (1.0) Unofficial
 magnet:?xt=urn:btih:A92DDC4A8C67BECFD4DD93CB3D6FAAA8B066183D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +643,8 @@ Infliction – сюжетный психологический хоррор от
 ```bash
 magnet:?xt=urn:btih:B4002E950C965C933CB78434C1D91BA2FE5B02DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +670,8 @@ Amnesia A Machine for Pigs (2013) [Ru/Multi] (1.0 Upd2) License PROPHET
 ```bash
 magnet:?xt=urn:btih:022B6C3311FF99CEEA78CD101A65E15068699D8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

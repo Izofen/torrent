@@ -20,6 +20,8 @@ CG Cookie, Kent Trammell | Моделирование реалистичных �
 magnet:?xt=urn:btih:F0FBEAB0BC926504C7E60CC1D85ED653B0291A81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ CG Cookie, Kent Trammell | Искусство скульптинга в Blender 
 ```bash
 magnet:?xt=urn:btih:ADAE3499E1570D0E9679B2B8EBA248DD6A898D32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Slurm (Слёрм), Владислав Килин, Кирилл Борисов |
 magnet:?xt=urn:btih:5FAC3C5E1A8160D5D8DEF238BAC669B68FAD7896
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ FreelStep, Александр | Мини-курс по Fiverr (2022) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:774E37754D24D3A6892A4706B4D2AF07A7FC9D81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Slurm (Слёрм), Николай Колядко | Чистая архитек�
 magnet:?xt=urn:btih:992616037D46007ABD909539EBC297C12861D444
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:992616037D46007ABD909539EBC297C12861D444
 ```bash
 magnet:?xt=urn:btih:8F63B394CF8DA486317C36A8ACB7883D2FCF5B17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ Thinknetica Pro, Антон Давыдов | Dry-rb: что, зачем и ка�
 magnet:?xt=urn:btih:03E09F6E8BADB7C0DDF6CB70CAFEE53530F37B25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ FlippedNormals, Emiel Sleegers | Создание научно-фантасти�
 magnet:?xt=urn:btih:3C609695CBAEDE8DD2FA49694A45E762E13ED360
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:3C609695CBAEDE8DD2FA49694A45E762E13ED360
 ```bash
 magnet:?xt=urn:btih:F1D732EA942A7FAB33B00DB11CB69961F69B2EB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ infostart, Александр Кунташов | Системы контроля
 magnet:?xt=urn:btih:4E101257A9378A25496FFB56ADA9BFDA95D05FAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ Udemy, Mike X Cohen | Master Math by Coding in Python (2020) WEB-DL [En / En Sub
 ```bash
 magnet:?xt=urn:btih:C5E1CE03E66447B2060CF2BBFA2C04629E8FCDD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ Dream&Draw, Анастасия Козлова | Клуб "Мечтай и рис
 magnet:?xt=urn:btih:54C7539E7FDFEC5D8060308939728C558C4AD69B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:54C7539E7FDFEC5D8060308939728C558C4AD69B
 magnet:?xt=urn:btih:82662D02D053B74CDEA86D7730731F85CE4C8DD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ magnet:?xt=urn:btih:82662D02D053B74CDEA86D7730731F85CE4C8DD4
 ```bash
 magnet:?xt=urn:btih:6546969C46152A7F76A3BD6B4F165D1C0BE3C5CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +407,8 @@ ProductStar, Денис Соболев и др. | Курс "Аналитик д�
 magnet:?xt=urn:btih:9C12A1DD4E86D4F2FB36DEEB330C0E8DD8DC508C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +434,8 @@ CG Cookie, Wayne Dixon | Управление камерой в Blender 2.83 и 
 magnet:?xt=urn:btih:D326C028065811A7E0B91ABCEEA3D9B8828B4E08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ CG Cookie, Louis du Mont | Создание анимированного жут�
 ```bash
 magnet:?xt=urn:btih:5B210826C996BDE321BE216FE62B08E2C1254739
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ Stepik, Дмитрий Фокеев | Веб дизайн в Figma Про-уро
 magnet:?xt=urn:btih:5D3D55383603C353F0B97A9D7BECA10E46C16CB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +518,8 @@ CG Cookie, Chris Kuhn | Риггинг транспорта в Blender 2.6 / Rig
 magnet:?xt=urn:btih:16AFE4D0EC50ABA655BCBB88919F2D33DF407959
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ magnet:?xt=urn:btih:16AFE4D0EC50ABA655BCBB88919F2D33DF407959
 magnet:?xt=urn:btih:AC20F34610409FC25A34271FD80394C9DE8C588C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +569,8 @@ magnet:?xt=urn:btih:AC20F34610409FC25A34271FD80394C9DE8C588C
 ```bash
 magnet:?xt=urn:btih:1D48C350B4343E64DCDAC44394B3399FB5B6DAB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +599,8 @@ magnet:?xt=urn:btih:1D48C350B4343E64DCDAC44394B3399FB5B6DAB1
 magnet:?xt=urn:btih:C10FB41FC6E437BDA301BB59B313BD9811C3FEBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +624,8 @@ Gumroad, FlyCat | Cyberpunk Style Girl Blender Modeling (2022) PCRec
 ```bash
 magnet:?xt=urn:btih:239AF057BC163A5B261FDE12ACF0FC5DEAB61F7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +654,8 @@ Kalyakin School, Максим Калякин | Дизайн персонажей
 magnet:?xt=urn:btih:B9185E0F6F17A0418B9C550759B9EDCF6E5C1458
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +680,8 @@ Javabegin, Тимур Батыршинов | Базы данных и SQL - с �
 ```bash
 magnet:?xt=urn:btih:7E1BBAE92C4DB8BFBD25B64BCB96E045E7A8C33A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -659,6 +709,8 @@ Skillbox, Евгений Тонконогий | Иллюстрация на iPad
 ```bash
 magnet:?xt=urn:btih:B4B80C9487281884CCD064F1131B6D00AC3615A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

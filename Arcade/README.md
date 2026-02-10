@@ -20,6 +20,8 @@ Rift of the NecroDancer (2025) [Ru/Multi] (1.8.0/dlc) Repack Let'sРlay [Ultimat
 magnet:?xt=urn:btih:0865150A6BDC50C52D67A637456659CF50649BE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Fights in Tight Spaces (2021) [Ru/Multi] (1.2.11564 HF2)/dlc) Repack Let'sРlay 
 ```bash
 magnet:?xt=urn:btih:0E870A851AB1CD52B3AC6144ED5635DA511C2648
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ DRAGON BALL: Sparking! ZERO - продолжение легендарной се
 magnet:?xt=urn:btih:5AFE93E0CDDCF80925BF45B3320CACBA7D8B50BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ DRAGON BALL: Sparking! ZERO - продолжение легендарной се
 ```bash
 magnet:?xt=urn:btih:AFE2CEDBBB6DC734295776C1CE030833D966BE08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Ctrl Alt Ego (2022) [Ru/Multi] (1.5.5) License GOG
 magnet:?xt=urn:btih:57F8735EBCFCE009F6D90950D8FE760467CF5408
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Ravenswatch - хардкорное приключение, в котором п�
 ```bash
 magnet:?xt=urn:btih:CE25F6ACADEAAA4C8D48622E7A5BCD9D30D5DAC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Bloons TD 6 (Блунс ТД 6) – игра в жанре Tower defense, где
 magnet:?xt=urn:btih:2EB0FA4460D1FD14997E13E38EF937DFA0C22893
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ StarVaders (2025) [Ru/Multi] (1.1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:05BFD2D9ADBBBB6E50D83D83D9C8DA9747973909
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Ravenswatch - хардкорное приключение, в котором п�
 magnet:?xt=urn:btih:A3E36CCE6918D65544C6F64BE30AEEF67132176A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Ravenswatch - хардкорное приключение, в котором п�
 ```bash
 magnet:?xt=urn:btih:635AE943BA99E4C080A2CD9A6E58949679FD8396
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ The Precinct (2025) [Ru/Multi] (1.9.19872) Repack Let'sРlay
 magnet:?xt=urn:btih:C6C2B86D3F30BC3C020C11917A1450E999DE4AFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ PATAPON - приключенческая экшен-игра, где игрок�
 ```bash
 magnet:?xt=urn:btih:08C9CE409F8A7F49712C7A49AA2275AF74238780
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ The Riftbreaker (2021) [Ru/Multi] (Exe:1101 Data:732/dlc) Repack Let'sРlay [Com
 magnet:?xt=urn:btih:DDFCD1F99F1161025B54B71A56BBF0A263BF42E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Virtua Fighter 5 R.E.V.O. (2025) [Multi] (1.05/dlc) Repack Let'sРlay [30th Anni
 ```bash
 magnet:?xt=urn:btih:0C23457ABA9C1080A8124008FBEB30FFB96EC141
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Iron Core: Mech Survivor — это однопользовательская р�
 magnet:?xt=urn:btih:AF9306B9709C8C04D88EBA66A8E482CC2A7BAB09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Airships: Conquer the Skies (2015) [Ru/Multi] (1.2.8.2/dlc) License GOG (обн�
 ```bash
 magnet:?xt=urn:btih:5F3A153371B77338010CCD93BC70C8966D1D1D57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ ReSetna (2025) [Ru/Multi] (1.7.1) Repack Let'sРlay
 magnet:?xt=urn:btih:FE3F2BDE445AF903FDDC9D7177C5AB2E9D2BF30F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Achilles: Survivor (2025) [Ru/Multi] (1.2.9988/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:8E2EB4F3592767065158BC86C355B1E6A6152BFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ Fallen City Brawl (2025) [En] (1.05) License GOG
 magnet:?xt=urn:btih:26D5467B92D6B351A1143BD589FB81056902EEDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Human: Fall Flat – приключенческая головоломка с п
 ```bash
 magnet:?xt=urn:btih:8D2216E92E0A7E3D9966D5EC4796C3E462527382
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Vault of the Void представляет собой колодостроите
 magnet:?xt=urn:btih:BDFDAA689C8AA776E70A77DE6161FE36AB75EFB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Re:Fresh - трехмерная игра-платформер с коллекц�
 ```bash
 magnet:?xt=urn:btih:30538AA013913242D1B4C53CBEFC3C2FCC5C937A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ BlazBlue Entropy Effect - двухмерная приключенческая и
 magnet:?xt=urn:btih:C7938472C9C50F3BD0132A451D32A5B8EE2AC18F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Empty Shell забросит вас в темную промышленную с�
 ```bash
 magnet:?xt=urn:btih:F8E80C6233F4C488E820B68BE93E609878A51A70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ The Riftbreaker (2021) [Ru/Multi] (2.0/dlc) Repack FitGirl [Complete Pack]
 magnet:?xt=urn:btih:DCDDBFB20B3A64FF1CB776C964FB9525A8FCC7E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Hotline Miami — это взрывной боевик, брызжущий на�
 ```bash
 magnet:?xt=urn:btih:5B6EA2B4A0C6166721DCB549B5DD999156B96DE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Kontrast - Imperium Tyrannis (2025) [MP3|320 Kbps] <Darkwave, EBM, Electro-Indus
 magnet:?xt=urn:btih:D8C13484AE392D2290DAB44148F5EB24B5E49D3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:D8C13484AE392D2290DAB44148F5EB24B5E49D3C
 ```bash
 magnet:?xt=urn:btih:9F5E7A6141463520B5D495C0C5BCDFE62FF39C24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Dexter Gordon - Three Classic Albums Plus (1955, 1960) 2CD, 2014, Avid Jazz [FLA
 magnet:?xt=urn:btih:9052FFC0868796DF36351F59347FA9B7057459C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ magnet:?xt=urn:btih:9052FFC0868796DF36351F59347FA9B7057459C8
 ```bash
 magnet:?xt=urn:btih:CF6EE6F45BD3628956927A3090FF8A5F83F69577
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -129,6 +137,8 @@ Brandee Younger - Gadabout Season (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Co
 magnet:?xt=urn:btih:45CAAF7C4B53FF096B0DE3D4E3F9153340D16621
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +165,8 @@ Girls Aloud - The Girls Aloud Show (Live) (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:96BC74E61E471745CFB5D10093C02AAF36E3FB33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -183,6 +195,8 @@ magnet:?xt=urn:btih:96BC74E61E471745CFB5D10093C02AAF36E3FB33
 magnet:?xt=urn:btih:06DBA259FEF7FC645B3DB6C8586B7FC901CEF4B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -206,6 +220,8 @@ magnet:?xt=urn:btih:06DBA259FEF7FC645B3DB6C8586B7FC901CEF4B4
 ```bash
 magnet:?xt=urn:btih:DF5E84870A47569259F464C8B4FD3386F6605DBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -234,6 +250,8 @@ Club Crimson Room - Dark Desire (2025) [MP3|320 Kbps] <Electro, EBM, Industrial>
 magnet:?xt=urn:btih:098895C6E2D4A639540A342043CE769F9AD2CCE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +278,8 @@ Neil Young + Promise of the Real - The Visitor (2017) [FLAC 24/192|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:499B51E0BBD31D1BC9EB2B94EA589388CEF6347D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +308,8 @@ B1. Voyage of the Sunchaser (05:57)(   Читать дальше...   )Жанр:
 magnet:?xt=urn:btih:E5DC5BD2B2D8E79A0EE47A020B7A2C217A390187
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +336,8 @@ Dante - метал-группа из Германии, основана в 2006 
 ```bash
 magnet:?xt=urn:btih:3CD54FE933B31F4845E5217A1A6F3231B2844A31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +366,8 @@ Neil Young + Promise of the Real - The Visitor (2017) [MP3|320 Kbps] <Country Ro
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +394,8 @@ Byzantine - Harbingers (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Groove Metal,
 ```bash
 magnet:?xt=urn:btih:AACE12DB13622931B6B0949AB41A5F73B49DF5D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +424,8 @@ letlive. - The Blackest Beautiful (2013) Revisited, 2025, Epitaph [FLAC|Lossless
 magnet:?xt=urn:btih:FE18DF38F557DFBC0A65C6FA40A1191BDDCD72BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +449,8 @@ magnet:?xt=urn:btih:FE18DF38F557DFBC0A65C6FA40A1191BDDCD72BD
 ```bash
 magnet:?xt=urn:btih:4F558343651BE73A07D585C56FFABF9CFBD2566E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +476,8 @@ magnet:?xt=urn:btih:4F558343651BE73A07D585C56FFABF9CFBD2566E
 magnet:?xt=urn:btih:0A0CFEC58B6F42ADB4A3B913C9D26E822158C023
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +501,8 @@ magnet:?xt=urn:btih:0A0CFEC58B6F42ADB4A3B913C9D26E822158C023
 ```bash
 magnet:?xt=urn:btih:E19CA62382E03AABB14E8A58998FBA6B9775BDA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +531,8 @@ magnet:?xt=urn:btih:E19CA62382E03AABB14E8A58998FBA6B9775BDA4
 magnet:?xt=urn:btih:89BE5D30974B0F9908B9B919398C5557F3D44178
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +560,8 @@ Sonia Elisheva - Compilation (2025) [MP3|320 Kbps] <Other, Electroswing>
 magnet:?xt=urn:btih:A0E7C81CB0E00390295CD3A97610C5A628861F29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +585,8 @@ magnet:?xt=urn:btih:A0E7C81CB0E00390295CD3A97610C5A628861F29
 ```bash
 magnet:?xt=urn:btih:9398E86D02901094D6FDB1F756B78F2E267B5967
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +612,8 @@ Visual Studio — это мощное средство разработчика,
 magnet:?xt=urn:btih:65C6E9AC63BAE45049805286F189B6A1E8E3FD39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +637,8 @@ magnet:?xt=urn:btih:65C6E9AC63BAE45049805286F189B6A1E8E3FD39
 ```bash
 magnet:?xt=urn:btih:AB57FC53187BEDB4518911EA06E412E279A27351
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +664,8 @@ magnet:?xt=urn:btih:AB57FC53187BEDB4518911EA06E412E279A27351
 magnet:?xt=urn:btih:4F743BD27A2EDAF9ADED381972CD63F793D1442B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +690,8 @@ magnet:?xt=urn:btih:4F743BD27A2EDAF9ADED381972CD63F793D1442B
 magnet:?xt=urn:btih:98F54BFE58C0EBAD21AEC2FDA27597F77ED8932F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +715,8 @@ magnet:?xt=urn:btih:98F54BFE58C0EBAD21AEC2FDA27597F77ED8932F
 ```bash
 magnet:?xt=urn:btih:069829F0B08239679B863391BB92B021A28EA57C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

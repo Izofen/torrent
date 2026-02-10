@@ -22,6 +22,8 @@ Simply Red - Original Album Series (2011) 5 CD Box Set [FLAC|Lossless]<Pop, Rock
 magnet:?xt=urn:btih:9F166F0D3A77605B0338BEC48D6BC34786E18272
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:0F761F286F8E657C5499BF8DD289E997E6D2EA46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:EB6280206EDD69B186A3237842E1B4531219B9C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ MediaHuman YouTube Downloader - удобное приложение с помо�
 ```bash
 magnet:?xt=urn:btih:745716C35D2849B1E9E522BAA372510868F1D4B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 magnet:?xt=urn:btih:0B5C2A1B47EC61B50F47EEE4DD117EDB2EC58699
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ VA - Subculture - The Residents (Mixed by John O'Callaghan, Will Atkinson & The 
 ```bash
 magnet:?xt=urn:btih:AE15BDDB53B72CC8D6C04F91774CD2BB3317C263
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Driver Booster сканирует и определяет устаревшие �
 magnet:?xt=urn:btih:9A81D9E7E0DEE91F088A9C1A14EB47C0B263386B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ R-Drive Image - утилитa для создания файлов образа 
 ```bash
 magnet:?xt=urn:btih:D5A5C76D1C92D4AF27E27152DD6846E0442EE78D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:D5A5C76D1C92D4AF27E27152DD6846E0442EE78D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Vidiot - простой и бесплатный нелинейный видео�
 ```bash
 magnet:?xt=urn:btih:5124C2D447F1752CC855074928AABC191EED360A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ CoolVerter 2.0 [Ru]
 magnet:?xt=urn:btih:A8333134EDF41E3F1E4BCAD49C112FD15E6F1C2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ Primordia – point-and-click квест, сочетающий в себе кл�
 magnet:?xt=urn:btih:6B0E2252316E6D88F4BCFC4F09680E41B125C62B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Mass Effect: Trilogy Edition  [PS3] [ENG] [USA] [4.30] (2012)
 ```bash
 magnet:?xt=urn:btih:FD432FA9BA088174570E1C5E57C7D1BA7299701E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ Torchlight: Dilogy / Torchlight: Дилогия [Ru/En] (RePack) 2009 - 2012 | R
 magnet:?xt=urn:btih:B7D1DFC44C934E0BE987899F2C6DBE8BC2391204
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:ACFEE74D0B72E0CC28C547D725C69ECD4EB32ADF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:2C65466A450DF31B2ACE81EBEB46C46759D68D61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Soft Organizer 6.05 RePacK by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B5BB3ACC8609275BD1C88DE9D6325D2A08220E14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:B5BB3ACC8609275BD1C88DE9D6325D2A08220E14
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:B5BB3ACC8609275BD1C88DE9D6325D2A08220E14
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:B5BB3ACC8609275BD1C88DE9D6325D2A08220E14
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ NG: Суперсооружения: Мегазаводы. Ауди / MegaStructu
 magnet:?xt=urn:btih:9726A75ADEF329A85B56FABDACC23E4CC785E015
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ Avira System Speedup - это универсальный набор инстру
 ```bash
 magnet:?xt=urn:btih:2C1D4D019E93DCBA21E7025C546BA5D6005C6435
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ OmniFocus Pro 3 v3.10 [Multi/Ru]
 magnet:?xt=urn:btih:DD98693A335519FF5BBC883DF893FD33610DB9D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ Mozilla Thunderbird –  легкая и безопасная бесплатна
 ```bash
 magnet:?xt=urn:btih:7481409E21EF38E13FE688FA5B383E86BC363214
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ Opera 72.0.3815.320 Portable by Cento8 [Ru/En]
 magnet:?xt=urn:btih:A8CE45D559B0961E35AD64288F41230174D67351
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ OmniGraffle Pro - отличный инструмент для создания 
 ```bash
 magnet:?xt=urn:btih:4908226478E4E430110BD813584F6097F5BA6202
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

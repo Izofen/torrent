@@ -19,6 +19,8 @@ CPU Temp 1.7.0.0 [En]
 magnet:?xt=urn:btih:99FA3669B5F5B6B3D8CB49BB69D06DE7D154B0A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ FurMark 2 является преемником почтенного FurMark 1..
 magnet:?xt=urn:btih:7E4F926F17012B35B8C9393433ADCD1C8A9FD33D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:7E4F926F17012B35B8C9393433ADCD1C8A9FD33D
 ```bash
 magnet:?xt=urn:btih:3CD6856B107F94FA8841C5CFE85E83114AFA3730
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ StartAllBack - привычная для нас программа, котора
 magnet:?xt=urn:btih:197156AD5E24E982FD538D756620677E2F3023C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Zettlr – достаточно продвинутый текстовый ред
 ```bash
 magnet:?xt=urn:btih:3385E4AD0DD47DA86749A9F9DCD9EC4508D0EE7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:DA7D8323D4E9AE780D63F01F0AD001C8CDD8A0A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Alfa eBooks Manager - одна из самых популярных програ
 ```bash
 magnet:?xt=urn:btih:277938DCED6D1E66B68180320F4712050CF3AEAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 magnet:?xt=urn:btih:6EB26BAD4728E179A822D1B5EBA2886751FD5489
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ GPU-Z - бесплатная программа от TechPowerUp для отоб
 ```bash
 magnet:?xt=urn:btih:A7CBEAF5DC6224CD7297D99E2D78AB674E5A5002
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 magnet:?xt=urn:btih:AEFC4511C2F2535D179DB7FD5A45CD3BB1283600
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Adguard – интернет-фильтр для защиты пользоват
 ```bash
 magnet:?xt=urn:btih:6C6948B8E9B552884A9C2F8906263CE0C8F54EA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Windows Repair Toolbox — графическая оболочка пакета 
 magnet:?xt=urn:btih:AF92CCD7BFD5612B4C64BB8DEFCCD3A5B45D816A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:A140D6B4868CADCA24F412E4E175C6F5C8B1002B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Topaz A.I. Gigapixel — это приложение, использующее �
 magnet:?xt=urn:btih:127FA037F828D0C52AC2F455E2A745F7A4E52CDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ VueScan - программа предназначена для замены ст
 ```bash
 magnet:?xt=urn:btih:980F3311F3F6E704D5559B562CAD2D21CE44B6CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ ZWCAD 2025 SP1.4 Professional [Ru]
 magnet:?xt=urn:btih:C1ABC55A46260FC94980AD8C8058282A2755B508
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ VidCoder - небольшая утилита, с помощью которой �
 ```bash
 magnet:?xt=urn:btih:6C16CFAC5241DFDC0D97F9C728545A20AECC4D07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ TagScanner — это мощный инструмент для организа�
 magnet:?xt=urn:btih:2DCCF3B53E68D0DC23E8D224CCFCE268EEA44F25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ Qalculate! - это многоцелевой кросс-платформенны
 ```bash
 magnet:?xt=urn:btih:95FDEB9EA2ED5E2486F2873EFD231DAAF5126A7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:341678A08299FD41BFAA621086C45D6C5D2BCEB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ FocusWriter 1.8.10 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:99F12BC56A7203CF1076157B08B9A28C66BC9ABD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ TikTok - социальное приложение для тех кто пред
 ```bash
 magnet:?xt=urn:btih:EE2BCF15144F5A714ED52FEA25345747FCC789C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ CudaText — абсолютно бесплатный мультиплатфор�
 magnet:?xt=urn:btih:47E7F3B2FD3DAA9214E5BD5F79B45D3FFD1EA117
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ AVS Image Converter - лёгкая в использовании програм�
 ```bash
 magnet:?xt=urn:btih:710904B089A128AED24CF325117BFE30E4E1E218
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ magnet:?xt=urn:btih:710904B089A128AED24CF325117BFE30E4E1E218
 magnet:?xt=urn:btih:C205E4F2497DFDDDDADED14B2898A5C39971E5DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Atlantis Word Processor 4.4.4.3 Repack (& Portable) by elchupacabra [Multi]
 ```bash
 magnet:?xt=urn:btih:39EAD34EE0A18755B3115E7B68C9A521EF750337
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ FlippedNormals, Emiel Sleegers | Создание ассетов героя - У
 magnet:?xt=urn:btih:E6AC2AE253FF537A2F22D301688EA0CDD1B94260
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Udemy, Brad Schiff | React For The Rest Of Us (2021) PCRec [En / En Sub]
 magnet:?xt=urn:btih:068DC3B999273BF3A32A7EC07BC32BAFCCCC9F4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Swiftlab, Дунаев Сергей | ВСЕ КУРСЫ ПО SWIFT (2018 - 2019)
 ```bash
 magnet:?xt=urn:btih:6D942B0D42E65902B6CE9AFACDD6158022985562
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:6D942B0D42E65902B6CE9AFACDD6158022985562
 magnet:?xt=urn:btih:0057CF1B8DE26EB111FBC1937C0DEFD521676F05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Udemy, Victor Deno | Создание PBR арта в Blender 2.90: Sci-fi ящ�
 ```bash
 magnet:?xt=urn:btih:6124E82DDB48D2C7CDCC276A9753FDD450F6C0A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Rebrain, Дмитрий Дунаев и др. | Онлайн-практикум 
 magnet:?xt=urn:btih:1048C71A0759A4B21E42D19E1D6BDECB4FD506EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ Infostart, Николай Бондаренко | 1С:Предприятие дл
 ```bash
 magnet:?xt=urn:btih:203742B923E13808AD1F08489EEA03DAB021A20C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:203742B923E13808AD1F08489EEA03DAB021A20C
 magnet:?xt=urn:btih:E58041D575D65A1A36467493F69A8628D05CE2EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ FlippedNormals, Mauricio García | 3D Art Characters In Zbrush - 16 Vols - Basic
 ```bash
 magnet:?xt=urn:btih:1AB361C31B149E29AF9E538150D8C586405C66B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ Gumroad, Josh Gambrell, Ponte Ryuurui | Создание твёрдотельн�
 ```bash
 magnet:?xt=urn:btih:5BD295F5541500FF698ABEE0FD4C9536E70F874F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +297,8 @@ DunderData, Ted Petrou | Анализ данных на Python / Master Data Ana
 magnet:?xt=urn:btih:5D4E75020BA844414DFB6EF045B322160B06DA23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ React Bootcamp, Reed Barger | Build Discord with React (2021) PCRec [En]
 magnet:?xt=urn:btih:EDD9C014DCCC3102A179FD89CBB038A7B62CF421
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:EDD9C014DCCC3102A179FD89CBB038A7B62CF421
 magnet:?xt=urn:btih:8DB821F7CADCAB4D2A43D2A13875AFB21050A272
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:8DB821F7CADCAB4D2A43D2A13875AFB21050A272
 ```bash
 magnet:?xt=urn:btih:47B9155DCFE121ED8925645FFB93C75FED936F0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +406,8 @@ Udemy, For Your English | 500+ American Slang | Spoken English Vocabulary Course
 magnet:?xt=urn:btih:5167BAEF52FD96B82461162F44F21E4BDC4CC177
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ Udemy, Colt Steele | The Modern React Bootcamp (Hooks, Context, NextJS, Router) 
 ```bash
 magnet:?xt=urn:btih:DC28D2F393EB4F423401EC14DFE1189ED8601C48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +459,8 @@ Python – один из самых популярных языков прогр
 magnet:?xt=urn:btih:83ECA98D56CA6A475AC7E3CD6D354FBFF9F1C644
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ Michael Goldfarb представляет втору часть серии ри�
 magnet:?xt=urn:btih:A07F8AAC764885E8BAD658B0313B83886DD86780
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ Michael Goldfarb | Houdini 16 Rigging Part 1-7 (2018) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:23301114180ED00D8E0854F3D3B19206BE90D644
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +538,8 @@ magnet:?xt=urn:btih:23301114180ED00D8E0854F3D3B19206BE90D644
 magnet:?xt=urn:btih:25D9D005F561271023616DDB89B42E63379BB051
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ Applied Houdini ("практический Houdini", "Houdini в практич�
 ```bash
 magnet:?xt=urn:btih:98623230D43B20002F33895B4EE2AF596D241F6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +590,8 @@ Udemy, Stanislav Gorchakov | Алгоритмический Трейдинг с 
 ```bash
 magnet:?xt=urn:btih:A013C1C04DEF4769D3AD8B87F928DAF2B51E45D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ magnet:?xt=urn:btih:A013C1C04DEF4769D3AD8B87F928DAF2B51E45D6
 magnet:?xt=urn:btih:B40973EC1465FF0CB58C5A299C65904C19F547C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +646,8 @@ magnet:?xt=urn:btih:B40973EC1465FF0CB58C5A299C65904C19F547C0
 ```bash
 magnet:?xt=urn:btih:8AA764BC8BA66BDB609A5306460DE0A261CE4980
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +674,8 @@ magnet:?xt=urn:btih:8AA764BC8BA66BDB609A5306460DE0A261CE4980
 magnet:?xt=urn:btih:45D5C3767A707745199520156FC31256BD62F064
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ Franco Pizzani | VEX Traffic Simulation in Houdini 18 (2020) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:1FE5DCA4A00BB9766BCA5C6A7DA52EB41AC6F34B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:8770FB222A98F21A9C5FA225B7BAF2E1054B9D90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:8770FB222A98F21A9C5FA225B7BAF2E1054B9D90
 ```bash
 magnet:?xt=urn:btih:E304664F80E1C3AB711DB1ACBCE69754870B28EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Crysis 2 Limited Edition + DirectX 11 Upgrade Pack + High-Res Texture Pack [Ru/E
 ```bash
 magnet:?xt=urn:btih:19CE3C5EBE85C7B6A24794232AB148F02F121B05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ SOFTPIR WPIConstructor v.04.12 (x32/x64/ML/RUS/XP/Vista/7)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ SOFTPIR WPIConstructor v.04.12 (x32/x64/ML/RUS/XP/Vista/7)
 magnet:?xt=urn:btih:3360CB35F1AC2B6BADF697F492302757D093C7B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ RAGE предлагает сыграть за традиционно безым�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ RAGE предлагает сыграть за традиционно безым�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ Gran Turismo 3: A-Spec — компьютерная игра в жанре го�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ Lenovo S-Series recovery DVD Windows 7 Starter SP1 x86 RUS 6.1 6.1 (сборка
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ Windows 7x86x64 Ultimate UralSOFT v.4.4.12 (2012) (Rus)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ Windows 7x86x64 Ultimate UralSOFT v.4.4.12 (2012) (Rus)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ Microsoft Toolkit - многофункциональный KMS-активато�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ Men of War: Condemned Heroes / Штрафбат [Ru/En] (RePack) 2012 | R.G. Ori
 magnet:?xt=urn:btih:CD2C74BD5BBDC56FD7364887521EAF5AFA6EC51D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ Disney Universe [WineSkin]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +397,8 @@ Multi Flash Kit by Core-2(Набор утилит для работы с фле�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ Windows 7 Ultimate x86 v.04.2012 (Иваново) 04.2012 [Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ Windows 7 Ultimate AUZsoft Metallic v.11.12 [RUS]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +493,8 @@ VA - Super Italo Disco (2012) [MP3|128 kbps]<Pop | Disco>
 magnet:?xt=urn:btih:85AD03A29B40D7C87D651755704DED5C8981F66E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +519,8 @@ magnet:?xt=urn:btih:85AD03A29B40D7C87D651755704DED5C8981F66E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ magnet:?xt=urn:btih:85AD03A29B40D7C87D651755704DED5C8981F66E
 ```bash
 magnet:?xt=urn:btih:5AFD39E61D73B1DB696BBA7556165D7D324FB30D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +580,8 @@ VA - Русская народная хоровая песня (2000) [FLAC|Loss
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +615,8 @@ VA - Oldies For A Rainy Day LPCD45 (2008) [FLAC|Lossless]<Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +640,8 @@ VA - Oldies For A Rainy Day LPCD45 (2008) [FLAC|Lossless]<Jazz>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +676,8 @@ Bassnectar - Vava Voom (2012) [MP3|320 кб/с]<Dubstep>
 magnet:?xt=urn:btih:742B1331D773711DC90720A693780A5C7BC97303
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +701,8 @@ magnet:?xt=urn:btih:742B1331D773711DC90720A693780A5C7BC97303
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -681,6 +731,8 @@ magnet:?xt=urn:btih:742B1331D773711DC90720A693780A5C7BC97303
 ```bash
 magnet:?xt=urn:btih:C0DEDC5EC2D7A6C52577ED31E3EAC373613CBB37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

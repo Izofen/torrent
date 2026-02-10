@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ VA - Дискотека Record Выпуск 6 50/50 (2012) [MP3|256 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:7F800607C43D1DF65506FEB36BDF004EB2DA9D7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -85,6 +89,8 @@ VA - 200 Самых Сочных Хитов (2012) [MP3|128 кб/с]<Pop>
 magnet:?xt=urn:btih:F3CB04CFFA3DB36977B55E47B75E3A0518E0E427
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +124,8 @@ VA - Популярный музыкайф зарубежный (2012) [MP3|192-
 magnet:?xt=urn:btih:D4E8F8150E3C5E9A07ADC7182347D1B0DB0DE185
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +149,8 @@ magnet:?xt=urn:btih:D4E8F8150E3C5E9A07ADC7182347D1B0DB0DE185
 ```bash
 magnet:?xt=urn:btih:0051385CEAA2624FF8F7ADDBC940D87BD90908DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +176,8 @@ magnet:?xt=urn:btih:0051385CEAA2624FF8F7ADDBC940D87BD90908DA
 magnet:?xt=urn:btih:C92764AD1C1606C07C00541CDD1BBF12F6D03071
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +201,8 @@ magnet:?xt=urn:btih:C92764AD1C1606C07C00541CDD1BBF12F6D03071
 ```bash
 magnet:?xt=urn:btih:DBF2CDE0BCF152F8B00306D2193060EAFFCF8FDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +228,8 @@ System Explorer - диспетчер задач для Windows. Функцион
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +253,8 @@ NG: Тайны Стаффордширского клада / Treasure Hoard. Sec
 ```bash
 magnet:?xt=urn:btih:AA645862B24EB42AA3E2BA62BA3355B5C464F5CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +281,8 @@ magnet:?xt=urn:btih:AA645862B24EB42AA3E2BA62BA3355B5C464F5CD
 magnet:?xt=urn:btih:BDA72328A758FA9DC75CF12E21DD9E38013EB5B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +306,8 @@ magnet:?xt=urn:btih:BDA72328A758FA9DC75CF12E21DD9E38013EB5B7
 ```bash
 magnet:?xt=urn:btih:B3DBB11136DBA15F2459CA5788EFDB91D49027F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +342,8 @@ VA - Летняя Жажда Скорости (2012) [MP3|256 кб/с]<Dance, Cl
 magnet:?xt=urn:btih:3E2D86C5F0D3884BBF11E3036A8527F998942EB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +367,8 @@ magnet:?xt=urn:btih:3E2D86C5F0D3884BBF11E3036A8527F998942EB0
 ```bash
 magnet:?xt=urn:btih:E2295DD1249B6D9CAC9E326A30BB267929306840
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +403,8 @@ VA - Acid Transmission (2008) [FLAC|Lossless]<Psychedelic / Dark>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +428,8 @@ VA - Acid Transmission (2008) [FLAC|Lossless]<Psychedelic / Dark>
 ```bash
 magnet:?xt=urn:btih:7EEC242CDBFBCEC3F7E98880FDC162B0FC7CA09B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +458,8 @@ magnet:?xt=urn:btih:7EEC242CDBFBCEC3F7E98880FDC162B0FC7CA09B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +494,8 @@ Will - 3 albums (1991-1997) [FLAC|Lossless] <Industrial, EBM>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +519,8 @@ Process Lasso Pro - небольшая утилита, позволяющая в
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +546,8 @@ NHK: Дикая жизнь Серенгети [2 серии]/ Wildlife the Seren
 magnet:?xt=urn:btih:2084630438D30F626470BA2F5ECC581F937D3ADA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +571,8 @@ magnet:?xt=urn:btih:2084630438D30F626470BA2F5ECC581F937D3ADA
 ```bash
 magnet:?xt=urn:btih:6762A090680DEF61F1302F2E5CEB0C72C4FC1138
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +598,8 @@ magnet:?xt=urn:btih:6762A090680DEF61F1302F2E5CEB0C72C4FC1138
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +624,8 @@ magnet:?xt=urn:btih:6762A090680DEF61F1302F2E5CEB0C72C4FC1138
 magnet:?xt=urn:btih:606F397E7D53EE54160271DA86536B7111D6A3F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +649,8 @@ magnet:?xt=urn:btih:606F397E7D53EE54160271DA86536B7111D6A3F6
 ```bash
 magnet:?xt=urn:btih:C2ED95D7E5418CA4A6A48AE5A293E322B13FC5EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +679,8 @@ Pinetop Perkins - Heaven (2012 Compilation) [FLAC|Lossless]<Blues, Piano Blues, 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +704,8 @@ Pinetop Perkins - Heaven (2012 Compilation) [FLAC|Lossless]<Blues, Piano Blues, 
 ```bash
 magnet:?xt=urn:btih:BF61B51F3221AEC26699A7B4E9B9F452ECCB3063
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -681,6 +731,8 @@ magnet:?xt=urn:btih:BF61B51F3221AEC26699A7B4E9B9F452ECCB3063
 ```bash
 magnet:?xt=urn:btih:F849EF48FEB67373F66885A59144FF21981FAA28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

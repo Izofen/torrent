@@ -22,6 +22,8 @@ VA - A State Of Trance Festival - Warm Up Sets (2016) [MP3|320 Kbps] <Trance, Pr
 magnet:?xt=urn:btih:13487AB5E1D1E420BFBE4DAC4FD821A785B4202D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Tawbaq - Discography 21 Releases (2012-2017) Hypnotic Landscapes [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:5F4F83B27A85C18591A896658561C32DC99D8BA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ The Echelon Effect - Signals (2017) [MP3|320 Kbps] <Ambient, Drone, Post-Rock>
 magnet:?xt=urn:btih:570985896303832ABD8AC54873B68A4A43D3A59D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ VA - Chill Sounds of Beauty (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:3E0073179A5B77A3DCBA469B0B8026C143805224
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -129,6 +137,8 @@ VA - Progressive Vocal Trance Hits (2022) [MP3|320 Kbps] <Uplifting Trance>
 magnet:?xt=urn:btih:6529B60B550F889DD86AB5ACAEB0B45A3AF7F0AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +165,8 @@ VA - Coffee Break Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balea
 ```bash
 magnet:?xt=urn:btih:F4CD93846646749E3B6813E7DF2E750581B75AF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -183,6 +195,8 @@ CD1
 magnet:?xt=urn:btih:0965F273A30221CC56CE642C3070CD19F8F59C64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -209,6 +223,8 @@ Unkle - Rōnin I (2021) Deluxe Edition, 2CD [FLAC|Lossless|tracks + .cue] <Trip-
 ```bash
 magnet:?xt=urn:btih:940FC666201F12865E717138F60119F83D524C48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +253,8 @@ Unkle - Rōnin I (2021) Instrumental Version [FLAC|Lossless|WEB-DL|tracks] <Trip
 magnet:?xt=urn:btih:205A6BD3D085988EDFF0D9339FA07987D2B39A26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +281,8 @@ Koan - Briar Rose Side A|B (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Dow
 ```bash
 magnet:?xt=urn:btih:D6A5225C398E4954C0A2FB7E25D99BBFC7B27EC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +311,8 @@ Moby - Music From Porcelain (2016) [MP3|320 Kbps] <Techno, Acid House, Ambient, 
 magnet:?xt=urn:btih:0F455DC4155D731E28ACCE4E17CEB9C0C88916F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ DJ Rostej - Loneliness (2018) Contemporary Records [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:E4FB9EFA4D9D0EE22B2DC05DC656B3B22A7EC3AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +367,8 @@ DAB (Digital Analog Band) - 3 альбома (2003-2011) [MP3|192-239 кб/с]<L
 ```bash
 magnet:?xt=urn:btih:48ADBB0CBCDA2686EC20655EBD4D3F9251CCCA6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +397,8 @@ Physical Dreams - Cosmos (2016) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 magnet:?xt=urn:btih:72A7CBB97ADCF54B7C10FE76EC2296DDCD04A4A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +425,8 @@ Moby - Music From Porcelain (2016) [FLAC|Lossless|tracks+.cue] <Techno, Trance, 
 ```bash
 magnet:?xt=urn:btih:0BADFCE240C7DD88F3755632FCCCA7632930D519
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +455,8 @@ Benny Benassi - Danceaholic (2016) [MP3|320 Kbps] <House, Electro House>
 magnet:?xt=urn:btih:DBF9E45A0805AEA791B45EC3F05C7D80465C5887
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +483,8 @@ VA - Techno Club Vol. 50 (Mixed by Talla 2XLC & Kai Tracid) (2016) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:AD5EE5A679343205894C4C1D0232458468FE6CDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +513,8 @@ Ryan Elliott - Fabric 88 (2016) [FLAC|Lossless|tracks] <Progressive House, Techn
 magnet:?xt=urn:btih:E75AD85F7D21D48712B7587F18A18EF0EFDD05CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +541,8 @@ VA - Deep Space Night Vol.4 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Ch
 ```bash
 magnet:?xt=urn:btih:DC16C72966FB22D85A6748A370B34713CE274F70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +571,8 @@ Solid Stone - Introspection (2016) [MP3|320 Kbps] <Progressive House>
 magnet:?xt=urn:btih:61526094E2D10556B47BB07AB8C93A7C4A1CDC7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +599,8 @@ Koan - Placidity (2016) [MP3|320 Kbps] <Ambient, Chillout, Downtempo>
 ```bash
 magnet:?xt=urn:btih:47915793186ADF6390157CCB0C562ABD9B697FD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +629,8 @@ Audioglider - Subaquamarine (2016) [FLAC|Lossless|tracks] <Deep House, Progressi
 magnet:?xt=urn:btih:C5AEE8A89D890AFACDF446206F98560C4EED0894
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +657,8 @@ VA - Bonzai & Friends 500 - Remixes (2016) [FLAC|Lossless|WEB-DL|tracks] <Progre
 ```bash
 magnet:?xt=urn:btih:6E05101FC7AB892B54340F6561245416C56AB77A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +687,8 @@ VA - Festival Trance Music Vol.6 (2016) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:F621059409DE4518AA8B744CF6F7D00ED3C856CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +716,8 @@ Tabor Radosti (Tábor Radosti) - Discography 6 Releases (2001-2016) [FLAC|Lossle
 magnet:?xt=urn:btih:121CAFF862EEE85965D1D5A324F4284C875FDFC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,6 +744,8 @@ Oscillian - Ad Astra (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
 ```bash
 magnet:?xt=urn:btih:7610E2664098F7223F22DE2539A360B46450C68E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

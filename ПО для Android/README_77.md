@@ -19,6 +19,8 @@ Prisma — приложение, которое превратит любую, �
 magnet:?xt=urn:btih:0AC9A3DB5F53416F3511BAD69175F2F5C879F07B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:0AC9A3DB5F53416F3511BAD69175F2F5C879F07B
 magnet:?xt=urn:btih:7AE9025F8428225A639F90EDBC27E308FE21C45F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Photomath - настоящий подарок для всех, кто регул
 ```bash
 magnet:?xt=urn:btih:175A43DB20972B5BD2C7A9F3FA8998F9F62AC727
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Luminous - это белая material-оболочка для Poweramp v3. Вы 
 magnet:?xt=urn:btih:18831444C7EE41D1E75407D1B5FB8853706C29E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:18831444C7EE41D1E75407D1B5FB8853706C29E9
 ```bash
 magnet:?xt=urn:btih:FF396A51560C7B4BCFCA584DD09E51C97D91F915
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ GymRun 10.0.1 Premium Mod [Ru/Multi]
 magnet:?xt=urn:btih:4BFA4D7280A31DE8243613CE25AD8F3C2EBA47CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:4BFA4D7280A31DE8243613CE25AD8F3C2EBA47CD
 magnet:?xt=urn:btih:0A5F29D5A39EF7CC11EDB38F17D4DF5D83503BDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:0A5F29D5A39EF7CC11EDB38F17D4DF5D83503BDA
 ```bash
 magnet:?xt=urn:btih:30E70270C78F7528D9D6ECDB1682B1363185909B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:30E70270C78F7528D9D6ECDB1682B1363185909B
 magnet:?xt=urn:btih:E4F71D814338296FFA9916B15F1DB47DD0E26B9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Fitness Point - это простое приложение, чтобы след�
 ```bash
 magnet:?xt=urn:btih:AF22620AE28951396ABDC796D62A6654F24E3719
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Mi Fit 2.2.9 [Ru] - Фитнес трекер и не только
 magnet:?xt=urn:btih:F945DBFA76BE050CED9BB624BC0A125BFC4DC14D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ Smart Tools® 2 - это расширенный набор инструмент�
 ```bash
 magnet:?xt=urn:btih:D480289A267AF9E7DEDDD95322EF975793A8BD50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:D480289A267AF9E7DEDDD95322EF975793A8BD50
 magnet:?xt=urn:btih:77545327D26F68F84B979429075A33A621CA198C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Smart AudioBook Player Pro v11.5.9 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D59003797683D6724312F2FA38FF73868E597965
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:D59003797683D6724312F2FA38FF73868E597965
 magnet:?xt=urn:btih:5273DADE13FE1F8DE23E3A0BF94382CC59DAA7D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Smart AudioBook Player Pro v11.5.9 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3505FDC56E778556ADD4A7138936DA801704C9E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ ArtRage Vitae — это Премиум версия раннего прилож
 magnet:?xt=urn:btih:58B10FC498E2BA7B5EE4FF6440126E7710B27681
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ Smart AudioBook Player Pro v11.5.9 Mod by Kirlif' [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:09A68FAB114C055D1C66F296E346CA1587A92AA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ Medativo является одним из лучших приложений по
 magnet:?xt=urn:btih:65867352034D884BAD499BDBC9899210AD09B362
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ Lunafaqt v1.25 [Ru/Multi]- Лунный календарь
 ```bash
 magnet:?xt=urn:btih:93DF178F4B2678F798AACA52A3A0B8B56E492AC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ VPN Proxy Master - супер безопасный и неограниченны
 magnet:?xt=urn:btih:33B7D420BE2DB98F87DAE561FA0141099251C4A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ Photo Tools - приложение для Android с простым интерф
 magnet:?xt=urn:btih:E5DD142952FFD69A2134E1EB5EA06FB95921E409
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:E5DD142952FFD69A2134E1EB5EA06FB95921E409
 ```bash
 magnet:?xt=urn:btih:D388862757EFE3187AC8BA248742803506A338B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ Malwarebytes Антивирус: Антивирус, защита от шпио�
 magnet:?xt=urn:btih:7BC4E6BF2CC4F766D4D6373EC58DC9BBDC6EEA25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ ViewBox - приложение для Android устройств (в том чи
 ```bash
 magnet:?xt=urn:btih:303F66081CB52B90C6BC401905AD4B4ACB68AACD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:303F66081CB52B90C6BC401905AD4B4ACB68AACD
 ```bash
 magnet:?xt=urn:btih:6F047E2361CD26219F707D2C9827CACDA22EF6A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

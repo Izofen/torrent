@@ -21,6 +21,8 @@ CD3: In Der Holle ErfrorenЖанр: Industrial MetalПродолжительно
 magnet:?xt=urn:btih:A8C75A3AB1B4B39105B730438F2D94994FDC7185
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Gigi D'Agostino - The Greatest Hits (1996/2007) Compilation, Reissue [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:F779AB562262ABC12BF742D06FFAF0553F471C5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ Elegant Machinery - Degraded Faces (1991) [MP3|320 Kbps] <Synthpop, New Wave>
 magnet:?xt=urn:btih:03CA17C1008816F47DC76424101E540160C8A751
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ Dead Eyes Open - In Times Like These (1991) [MP3|320 Kbps] <Synthpop, New Wave>
 ```bash
 magnet:?xt=urn:btih:E61BF962FCAD1806DBB2FF155D859DF7A5B4C5D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -129,6 +137,8 @@ Disc 1:
 magnet:?xt=urn:btih:05006C71E4794CA638B3B69C0F45E7EB933CDB91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +165,8 @@ Scapa Flow - Chased By Sunset (1991) [MP3|320 Kbps] <EBM, Industrial>
 ```bash
 magnet:?xt=urn:btih:499A0EB400DBA3449E87735D29F954DE3E4BD160
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -183,6 +195,8 @@ God Module - The Unsound Remixes (2020) [MP3|320 Kbps] <EBM, Aggrotech, Dark Ele
 magnet:?xt=urn:btih:367CD8AA11A999D99ED3C303EB80BC81AD6A9C5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -209,6 +223,8 @@ Cultivated Bimbo - Tunes From a High Wire (1992) [MP3|320 Kbps] <EBM, Industrial
 ```bash
 magnet:?xt=urn:btih:378593ED0E52936FC59CED9A3B029D962E96EE0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +253,8 @@ Foreign Sequence - Thousand Frustrations (2018) Concrete Collage [FLAC|Lossless|
 magnet:?xt=urn:btih:399508A7EBF29180FEC2FC09E171F06AA9D84858
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +281,8 @@ Inside Treatment - Underneath My Purple Shades (1991) [MP3|320 Kbps] <EBM, Elect
 ```bash
 magnet:?xt=urn:btih:4B83DC9BD761717236573CF2CB51411DFD36E4CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +311,8 @@ Henry Saiz & Band - Human (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Downte
 magnet:?xt=urn:btih:8305230B7621A1CA375CC9F06CC0A58A8B509FC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +339,8 @@ Monolink and Acid Pauli - The End (2015) 3000° Grad Records [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:A593CD95BF51604E9A470B4BE258423EEC455CC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +369,8 @@ Prime Minister Of Doom - Mudshadow Propaganda (2018) Planet Uterus [FLAC|Lossles
 magnet:?xt=urn:btih:6591DB72C32205581CDF9833890B1F73E2640EB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +397,8 @@ VA - Hed Kandi Beach House (2016) [MP3|320 кб/с] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:3063FE87E9F76F7D70E5997A30341B73F7C905D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +427,8 @@ CD1:
 magnet:?xt=urn:btih:68C35E5000FE20496E7B4C893232E5E0D917D81D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +455,8 @@ VA - 538 Dance Smash 2016 vol.2 (2016) [FLAC|Lossless|image + .cue] <House, Club
 ```bash
 magnet:?xt=urn:btih:CBD287D882B4256D47D6B0A912C6B34B7E4861DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +485,8 @@ ROTANOV - DEEP DANCE 01 (2016) [MP3|320 кб/с] <Deep House, Nu Disco>
 magnet:?xt=urn:btih:309E83AE1F0A4E97ED4B98A9B12D81CD1E2D2120
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +513,8 @@ VA - iChill You Vol 1 (2016) [MP3|320 кб/с] <Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:960DAEAC02EC3465B9E3D1958F98F575C58CDDD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +543,8 @@ Hamlet His Highness - For All & None (2015) [MP3|125-320 кб/с] <Ambient, Elec
 magnet:?xt=urn:btih:7CE941D941BE45BB4F625C78ABF1D3DD6ADBD054
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +571,8 @@ VA - Hooki-Sonic Recordings Summer Chill-Out Sampler (2016) [MP3|320 кб/с] <D
 ```bash
 magnet:?xt=urn:btih:956774EA27B301901569ADBE9561FF6BAD105B74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +601,8 @@ VA - Chilling Feeling (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:741DDBFAACE917FE562210F921FE3DEC4C817EBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ CD1
 magnet:?xt=urn:btih:A2DDD85DB37B005EEE8319D24894185341E2C5D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +655,8 @@ magnet:?xt=urn:btih:A2DDD85DB37B005EEE8319D24894185341E2C5D3
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +685,8 @@ VA - Erotic Lounge Obsession Best of Sensual Chillout Love Making Music (2019) [
 magnet:?xt=urn:btih:B544952238F37108ECCB942F352EAC28E9B27EFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +714,8 @@ Entheogenic - Animism (2020) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo,
 magnet:?xt=urn:btih:5C7713B0DCCFFF1F7C9924BEECC9255FED261306
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -692,6 +742,8 @@ Jens Vydt (Herbstlaub, Die Nachtstunde) - Discography 15 Releases (2010-2016) [F
 ```bash
 magnet:?xt=urn:btih:4A62D366628D28695CD49A3B131213C3B1E7F582
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

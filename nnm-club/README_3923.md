@@ -19,6 +19,8 @@ VK X 6.8.2 (29200) [Ru/En]
 magnet:?xt=urn:btih:BD0777FF58681E5E016B8B2A8E452037BF93EACC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Animal Shelter (2022) [Ru/Multi] (1.3.17/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:84BDCBDA48894061C175B2B756B0B768E197E7AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Risk of Rain Returns - это культовый roguelike-экшен, кото�
 magnet:?xt=urn:btih:E2D014FEDB4F86D3DC91BD05753C45EF1C638AD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Udemy, Лиана Климович | UI Design с нуля (2023) WEB-DL [AD] [R
 ```bash
 magnet:?xt=urn:btih:583AAF223089C4DB408902907FDD1378427434DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Above Snakes (2023) [Ru/Multi] (1.4.5) Scene Tenoke
 magnet:?xt=urn:btih:577326A6E99C5BD6B39926B63C20478AC3759277
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:577326A6E99C5BD6B39926B63C20478AC3759277
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:577326A6E99C5BD6B39926B63C20478AC3759277
 magnet:?xt=urn:btih:00B8CF6A87B30E35C784963CAB65C579B86ED94B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:00B8CF6A87B30E35C784963CAB65C579B86ED94B
 ```bash
 magnet:?xt=urn:btih:D675825D4A28AE8870E82B10985D5D8294534AC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:D675825D4A28AE8870E82B10985D5D8294534AC0
 magnet:?xt=urn:btih:DA11400155C69517836BDAFEA9C3DA2A30CA42EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:DA11400155C69517836BDAFEA9C3DA2A30CA42EA
 magnet:?xt=urn:btih:1E8FC0254F05249A824D4B2E5FAF0C50778B758C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:1E8FC0254F05249A824D4B2E5FAF0C50778B758C
 ```bash
 magnet:?xt=urn:btih:758781DDC3C016005FA3A52520F09CA1C706D824
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:758781DDC3C016005FA3A52520F09CA1C706D824
 magnet:?xt=urn:btih:2647D309E94AA436AB6A33010AA6539008B23A74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:2647D309E94AA436AB6A33010AA6539008B23A74
 ```bash
 magnet:?xt=urn:btih:75494E7E31F1D618A64A8ED3616D08426C4AFE52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:75494E7E31F1D618A64A8ED3616D08426C4AFE52
 magnet:?xt=urn:btih:7424FEECD9F4C367A1B01CE4B41DC1ED32896E04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Udemy, D&A Programming | Программирование в Scratch с 6 лет
 ```bash
 magnet:?xt=urn:btih:8FF914864F673DEAA48CA197E3D29CA2A8669637
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:8FF914864F673DEAA48CA197E3D29CA2A8669637
 magnet:?xt=urn:btih:935FF1F49CCAA9D00A320372BE58863322C43AA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:935FF1F49CCAA9D00A320372BE58863322C43AA1
 ```bash
 magnet:?xt=urn:btih:B3824F2FD886BCD7FA0D419C6199FB5B9BC2EF37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:B3824F2FD886BCD7FA0D419C6199FB5B9BC2EF37
 magnet:?xt=urn:btih:36B1DBB8DAF3B03ED4029F2B5716FB1C6850701B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:36B1DBB8DAF3B03ED4029F2B5716FB1C6850701B
 ```bash
 magnet:?xt=urn:btih:896D529DD559B25BCFBC768269074972FA6BDA80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ Windows 11 - это серия операционных систем, разра
 magnet:?xt=urn:btih:DFA18C27D8942FDF4F20A492E6CF2B3ED6AB5B63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:DFA18C27D8942FDF4F20A492E6CF2B3ED6AB5B63
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:DFA18C27D8942FDF4F20A492E6CF2B3ED6AB5B63
 magnet:?xt=urn:btih:CA956D725CBBB2C417EA4B06E02561F9052A347C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:CA956D725CBBB2C417EA4B06E02561F9052A347C
 ```bash
 magnet:?xt=urn:btih:A7B60CC2F890BE38460C9BC5858B65C1F97DF6CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:A7B60CC2F890BE38460C9BC5858B65C1F97DF6CD
 magnet:?xt=urn:btih:7A2018FDE804556B4A1EBAE871A56038A766B644
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ Rufus - небольшая утилита помогает отформатир�
 magnet:?xt=urn:btih:BF3A7A051AED76128A94608CE551513788E91E1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:BF3A7A051AED76128A94608CE551513788E91E1D
 ```bash
 magnet:?xt=urn:btih:23A03E705A13D9160DB8665B04CD46A1D0DA4560
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

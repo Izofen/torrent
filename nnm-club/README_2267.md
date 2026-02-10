@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:B008F1BBC653103F770B5396E96364D230749111
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:B008F1BBC653103F770B5396E96364D230749111
 ```bash
 magnet:?xt=urn:btih:1B92C3336291249068DCCA9DD607141BF4B95481
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:1B92C3336291249068DCCA9DD607141BF4B95481
 magnet:?xt=urn:btih:E2923417A832BBE55E9771632B4D0E27E74886A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:E2923417A832BBE55E9771632B4D0E27E74886A7
 ```bash
 magnet:?xt=urn:btih:42619C88103B2C963B24C3183D2CFC45A3180C8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Jupiter Hell (2021) [En] (1.8h) License GOG
 magnet:?xt=urn:btih:178376877A3498A582A21A70A8117AF81BD1AF2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:178376877A3498A582A21A70A8117AF81BD1AF2A
 ```bash
 magnet:?xt=urn:btih:9CD0BE63A4105ED2777584F3CBE8724656CD1E5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:9CD0BE63A4105ED2777584F3CBE8724656CD1E5E
 magnet:?xt=urn:btih:51288BB33F46D0D47DCC87D523AEA5EBE3D9EE5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:51288BB33F46D0D47DCC87D523AEA5EBE3D9EE5C
 ```bash
 magnet:?xt=urn:btih:6660E74A84D42027156E1FFBB5748F177B9E88EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:6660E74A84D42027156E1FFBB5748F177B9E88EA
 magnet:?xt=urn:btih:F77E5CAEBDD288E59F4C510E8100272793F1ED79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:F77E5CAEBDD288E59F4C510E8100272793F1ED79
 ```bash
 magnet:?xt=urn:btih:D79576BDFD4FC3308B764435317ED0C7A8D99497
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:D79576BDFD4FC3308B764435317ED0C7A8D99497
 magnet:?xt=urn:btih:82E430E989C6162ACBFC326F222D96D5D67EF8AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:82E430E989C6162ACBFC326F222D96D5D67EF8AC
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:82E430E989C6162ACBFC326F222D96D5D67EF8AC
 ```bash
 magnet:?xt=urn:btih:FDA0D4BA3CE70EA972B72163AE760BBF38B91B08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ FPS Monitor отслеживает состояние компонентов в�
 magnet:?xt=urn:btih:D4338C606C9C95648A5A2686CDA30AC18DF87F8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:D4338C606C9C95648A5A2686CDA30AC18DF87F8D
 magnet:?xt=urn:btih:B9D396D59D793A32514EA2DDC5AD37A2CDA5B938
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Corona Renderer - это популярный визуализатор для р
 magnet:?xt=urn:btih:DB5DBC95541976A218478952A7879C3FC8778848
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:DB5DBC95541976A218478952A7879C3FC8778848
 ```bash
 magnet:?xt=urn:btih:F6522F0D2FEE049BF29FF689AC9922A579D1125C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:F6522F0D2FEE049BF29FF689AC9922A579D1125C
 magnet:?xt=urn:btih:60576BA724FFEA1756F7D185F8723762DAFAB2D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:60576BA724FFEA1756F7D185F8723762DAFAB2D8
 ```bash
 magnet:?xt=urn:btih:645D82C39BE375939691DAA53C4BC7CB09299C85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ CCleaner - утилита для чистки мусора в операцион
 magnet:?xt=urn:btih:B22D86E9EB2223C0FA1A43D8F5C3893248468A93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ IsMyHdOK 3.96 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FEC1351EDEB12A08EDA01F22210CDF97A9971619
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ Koan - Dell'arte (Side A-B) (2024) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Down
 magnet:?xt=urn:btih:BDFA60D37D2AE57D36E2A07AF3865F8DEEFF80C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:BDFA60D37D2AE57D36E2A07AF3865F8DEEFF80C5
 ```bash
 magnet:?xt=urn:btih:EC3D4F7A1A13BA3DD9299DCAD5707E27BBD45465
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:EC3D4F7A1A13BA3DD9299DCAD5707E27BBD45465
 ```bash
 magnet:?xt=urn:btih:F0EDB2F9D9A85731532FD26E05E90455E09FBBF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ Linkin Park - Papercuts (2000-2023) Compilation, 2024, Warner Records [FLAC|Loss
 magnet:?xt=urn:btih:4553077B9BBB9470C50EE08D5A66E80075743DF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 ```bash
 magnet:?xt=urn:btih:5D0E12D0D2B5BF0F2E0BB92A463C79F822C12E55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

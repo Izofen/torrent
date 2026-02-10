@@ -21,6 +21,8 @@ ZTM, Andrei Neagoie и др. | Complete Vue Developer in 2021 (w/ Vuex, Composit
 magnet:?xt=urn:btih:F82B52673269AE76DF61B482AC4C9EAF8D875CF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Udemy, Yuko Sakai и др. | Algorithms + Data Structures + Coding Interviews wi
 ```bash
 magnet:?xt=urn:btih:99AF5C548C1A438E148A743E050BF189824EDC21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Udemy, David Bombal | Cisco CCNA 200-301 Exam: Complete Course with practical la
 magnet:?xt=urn:btih:21B2BB0F2EC0E08263C645FBED75DDA51F48D57B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Udemy, Muslim Helalee | JavaScript Developer Bootcamp in 2021 - Beginner to Expe
 ```bash
 magnet:?xt=urn:btih:8B43F99890BF2CC21AE2DD3FB709AA178A981D53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Udemy, Emilio Aguero | Learn Active Directory & Group Policies - Win Server 2019
 magnet:?xt=urn:btih:BA749290CD57414BEF7BEEA54B7BD1DA15FB34D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Udemy, Tib3rius | Повышение привилегий Linux для OSCP / Li
 ```bash
 magnet:?xt=urn:btih:3EBB685A91B41E3100E1864E46E6A699594B45F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:3EBB685A91B41E3100E1864E46E6A699594B45F0
 magnet:?xt=urn:btih:666643408D706A92ADAA5AA34A81F3B88B7D29C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ Skillbox, Илья Николаев  и др. | Веб-аналитик с ну�
 magnet:?xt=urn:btih:A4202A1C8C91DC976F94302C1A6185286FA76567
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:A4202A1C8C91DC976F94302C1A6185286FA76567
 ```bash
 magnet:?xt=urn:btih:A57C14160CB96623F8728FB1E0DC27625952DC39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ OTUS, Алексей Цыкунов | Администратор Linux. Углу
 magnet:?xt=urn:btih:32A598EE0AE05293ECBFF2631F2779C01299D293
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ DryLabs, Николай Марков | Python как движущая сила �
 ```bash
 magnet:?xt=urn:btih:62E29EB57A1845012622B453858CD4A2613E302A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ DryLabs, Никита Соболев и др. | Устройство и прим
 magnet:?xt=urn:btih:1DD83E8D685BA8FA1D76CC90368A37758AC1E0C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ Udemy, Derek Banas | Python Programming Bootcamp (2021) PCRec [En / En Sub]
 magnet:?xt=urn:btih:F94D4B74E997AEB638A43137AE4A92F580F1C256
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ Udemy, Zaid Sabih и др. | Learn Social Engineering From Scratch (2021) PCRec 
 ```bash
 magnet:?xt=urn:btih:CC7A6B610CC38F7FD41F114503D02EAB5A975993
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ Laravel - это надежный и простой для понимания PH
 magnet:?xt=urn:btih:BA188E80D41C9078384AE3F7A782E6199123FF9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ Udemy, IT Security Academy и др. | Hacking in Practice: Intensive Ethical Hac
 magnet:?xt=urn:btih:7EE25619E32B8B8DD106B6F0F9BEF0272AD54E84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ FastAPI ворвался на веб-сцену Python. Фактически, о
 ```bash
 magnet:?xt=urn:btih:DD09FAEB4934720045734D39029C0A15EE061669
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ Udemy, Zach LaCourse | Fullstack GoLang React Insanity Volume 2  (2021) PCRec [E
 magnet:?xt=urn:btih:A01C819CA700AB8BE3B14B68F05ADE3C2DF82F29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ Udemy, Anushka Madusanka | Android Jetpack, Clean Architecture & Testing Masterc
 ```bash
 magnet:?xt=urn:btih:F3335F506D9169ADE6F0EDB927FDC84FF8B51486
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ Talkpython, Sebastian Witowski | Modern Python Projects Course (2021) PCRec [En 
 magnet:?xt=urn:btih:9CB24B6209C8561D7CF584E47BC6CE9B39932164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ Next.js - это фреймворк для создания веб-сайтов 
 ```bash
 magnet:?xt=urn:btih:208B3D231AC3215C1A59BA8E10DD542801B64F6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +590,8 @@ Udemy, John s Curry | GraphQL Mastery: Getting started with and mastering GraphQ
 magnet:?xt=urn:btih:D5BD8AD3F6513E54CDFD287D81A2C78AC8AAE31F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ ITVDN, Александр Шевчук | C# 8.0 Стартовый (2021) PCRec
 ```bash
 magnet:?xt=urn:btih:8F19BD24F7B7BDDEE6EE87E4BB2CBD6216E3288C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +646,8 @@ Podlodka.io | Podlodka Frontend Crew, сезон #1 (2021) PCRec
 magnet:?xt=urn:btih:403AA44DF54DDDF9567484F55222A361E0F5FD76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +672,8 @@ Udemy, Joseph Delgadillo и др. | The Complete Full-Stack JavaScript Course!  
 ```bash
 magnet:?xt=urn:btih:404C2D7C4532C8A5535C2CC40E7C6E322B2B1DFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -651,6 +701,8 @@ Hadoop (основные компоненты, дистрибутивы венд
 ```bash
 magnet:?xt=urn:btih:2D097D45CEFC4859E96A723F8E0D84A516387A07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

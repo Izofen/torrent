@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:30FD6615E0A185B50D770B7F9E7F9A834FE2A766
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:30FD6615E0A185B50D770B7F9E7F9A834FE2A766
 ```bash
 magnet:?xt=urn:btih:4D602330F3F34415CB01220615CFEAB5C0719C98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:4D602330F3F34415CB01220615CFEAB5C0719C98
 magnet:?xt=urn:btih:269B024B64250BE5FACFE9FA6D500D09971ADC58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:269B024B64250BE5FACFE9FA6D500D09971ADC58
 ```bash
 magnet:?xt=urn:btih:6481930EEAF4DF3699B3FC747E956D42C2F49824
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:6481930EEAF4DF3699B3FC747E956D42C2F49824
 magnet:?xt=urn:btih:41746A745DB2571FCAC2900188F150C27D22EF3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:41746A745DB2571FCAC2900188F150C27D22EF3D
 ```bash
 magnet:?xt=urn:btih:83FCB0A0FCA0AEE33862582F1C9CCE108282576D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:83FCB0A0FCA0AEE33862582F1C9CCE108282576D
 magnet:?xt=urn:btih:C9BA4B67D4BE23F64C69FFE630F07746A677DCD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:C9BA4B67D4BE23F64C69FFE630F07746A677DCD8
 ```bash
 magnet:?xt=urn:btih:365E253E1698B135E8015FFB083071D26D0BF645
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:365E253E1698B135E8015FFB083071D26D0BF645
 magnet:?xt=urn:btih:C0B53C015A81267FABE2F6BF3BFB8CBC6CFA1E16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:C0B53C015A81267FABE2F6BF3BFB8CBC6CFA1E16
 ```bash
 magnet:?xt=urn:btih:AC6620F8439F471A38EB1A46B8DC39AF53CA2808
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Go, также (   Читать дальше...   )Жанр: Программи
 magnet:?xt=urn:btih:E11FF01A09197D160B9014C7CE10DDEB59D7FD80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:E11FF01A09197D160B9014C7CE10DDEB59D7FD80
 ```bash
 magnet:?xt=urn:btih:B8274639AABF3BBB56E551993926FC978A6B53A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:B8274639AABF3BBB56E551993926FC978A6B53A1
 magnet:?xt=urn:btih:26954683783C454945998502F84A7A90EB7434FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:26954683783C454945998502F84A7A90EB7434FE
 magnet:?xt=urn:btih:8EE593C6E7CD9E86062737D7AA17B57B71341128
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:8EE593C6E7CD9E86062737D7AA17B57B71341128
 ```bash
 magnet:?xt=urn:btih:A26A1782F82829B67C75E181E2EA89C7DA9E5E3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:A26A1782F82829B67C75E181E2EA89C7DA9E5E3D
 magnet:?xt=urn:btih:B2CEAE3F83CD4707ED4720E79543ACDCA5513273
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:B2CEAE3F83CD4707ED4720E79543ACDCA5513273
 ```bash
 magnet:?xt=urn:btih:9B111579FF033D1004A56831339FD0673B10BAE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:9B111579FF033D1004A56831339FD0673B10BAE4
 magnet:?xt=urn:btih:6A17301B318E5457DF7F8E80FC03D11652F325F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ magnet:?xt=urn:btih:6A17301B318E5457DF7F8E80FC03D11652F325F2
 ```bash
 magnet:?xt=urn:btih:AFF93C750396A16C110BFD3FB01987481DFF4C47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ magnet:?xt=urn:btih:AFF93C750396A16C110BFD3FB01987481DFF4C47
 magnet:?xt=urn:btih:795494A472DD8FB217F9DAF70ED1A9EAB63A3A8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:795494A472DD8FB217F9DAF70ED1A9EAB63A3A8A
 ```bash
 magnet:?xt=urn:btih:BCFE5DE9378697247B3AF4985A707F57AD4E13E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ Swift — быстрый, современный, безопасныйSwift — 
 magnet:?xt=urn:btih:B49D05A164705E6080CA252BF5C3575D19BE65BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ magnet:?xt=urn:btih:B49D05A164705E6080CA252BF5C3575D19BE65BA
 magnet:?xt=urn:btih:85737E01DB7660559F73FA4B6064311A5B94E8A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ Bootstrap - самый популярный проект с открытым и�
 ```bash
 magnet:?xt=urn:btih:E3B6553850D1A95FB94E316F6FF94EE7EB8259BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ Java code geeks | GWT Programming Cookbook (2016) [PDF] [En]
 magnet:?xt=urn:btih:2D7B3F6E7376DC6F0A6EE28668332FCFED54DF6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ Gradle - это инструмент для построения и автома
 ```bash
 magnet:?xt=urn:btih:9D8A3D4725370DF3BAFA5D4FFA53F5EB65BA47D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

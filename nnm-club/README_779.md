@@ -19,6 +19,8 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.8.7 Gold 
 magnet:?xt=urn:btih:04BE60EB1F7E089A0C7AC5F9914E3B59F5C0256C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.1.2-72904/dlc) Repack FitGir
 ```bash
 magnet:?xt=urn:btih:ED394577781F225BEAD14E28F75257C71F1B14C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:ED394577781F225BEAD14E28F75257C71F1B14C0
 magnet:?xt=urn:btih:06A5C0D1BCDCAB699FCBAC69DBD7CE277A657D3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Files Inspector Pro 4.30 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C5F69CE0551DDCBFCBEB5F347AA7389CDC88D972
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Trine 4: The Nightmare Prince – очередная часть в серии л
 magnet:?xt=urn:btih:864E0E39FE2C34EA4DB61ED250CEEE7B7D74BA4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Flud - простой и элегантный BitTorrent клиент для о�
 ```bash
 magnet:?xt=urn:btih:D1B359CE6A18A703AD7DC0C9ACA9569075F84D91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Short Snow / Короткий Снег (2025) [Ru/Multi] (1.0) Repack seleZen
 magnet:?xt=urn:btih:9B38AFAA9D35BB7823B8A7256979116307A21EA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ RarmaRadio - программа для прослушивания и запис�
 ```bash
 magnet:?xt=urn:btih:E885AC86908AB3ED28B45C3F6E3166D06CB0CC8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:E885AC86908AB3ED28B45C3F6E3166D06CB0CC8A
 magnet:?xt=urn:btih:56E2E9C15EE5E04FA7CE6BC9C01CB5CDB6CB0BE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:56E2E9C15EE5E04FA7CE6BC9C01CB5CDB6CB0BE3
 ```bash
 magnet:?xt=urn:btih:B626607F9E74368670A45EAF6D10FAF005FDF772
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Devil May Cry 5 (2019) [Ru/Multi] (1.0.11025947/dlc) Repack Wanterlude [Deluxe E
 magnet:?xt=urn:btih:75977D75F6A4D36AB6DC8951CF5D74BAB0441F55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:75977D75F6A4D36AB6DC8951CF5D74BAB0441F55
 ```bash
 magnet:?xt=urn:btih:4788223E6F2E4EFA43CDA734000D40DE46FA4DE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:4788223E6F2E4EFA43CDA734000D40DE46FA4DE8
 magnet:?xt=urn:btih:4308B330A7A522391D6822FE4E0F83E773C3721C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:4308B330A7A522391D6822FE4E0F83E773C3721C
 ```bash
 magnet:?xt=urn:btih:A2031512F9161FE0C97EE0B08379AAC9A56A94EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Short Snow / Короткий Снег (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:3BB5B266FAFA24EE8EFD1362CA5EC838F3C33FFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:3BB5B266FAFA24EE8EFD1362CA5EC838F3C33FFB
 ```bash
 magnet:?xt=urn:btih:1552083FC3053FDA7FB5D126375BE32D74617107
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ WinX VideoProc Converter - усовершенствованная версия, 
 magnet:?xt=urn:btih:22D932B1EC80C48D3D289C572D738EBAFC63E33D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:22D932B1EC80C48D3D289C572D738EBAFC63E33D
 ```bash
 magnet:?xt=urn:btih:A7C3C1405255854CEFEF6D033299E9D98CD5F255
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:A7C3C1405255854CEFEF6D033299E9D98CD5F255
 magnet:?xt=urn:btih:34C8F833ADA1FDB2F77DC2233B608BA0E08A2F41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:34C8F833ADA1FDB2F77DC2233B608BA0E08A2F41
 ```bash
 magnet:?xt=urn:btih:6EF2FB963AF89D65230CBE5AF6E13F36348E15A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:6EF2FB963AF89D65230CBE5AF6E13F36348E15A4
 magnet:?xt=urn:btih:565E1F3DD0A59587392BEE18268605A2A560BB65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ Echoes of Yi : Samsara - это мрачная игра в жанре боевы
 ```bash
 magnet:?xt=urn:btih:0A010C7432D30D1C2A9439B9629DE925E3E46072
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:0A010C7432D30D1C2A9439B9629DE925E3E46072
 magnet:?xt=urn:btih:6FCD6E96091CF662259B43FD03FE22EE97CF3B56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ O.D.T.: Escape... or Die Trying (1998) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:635317622734E4DE0BF784410C03EF57E24F5AB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:635317622734E4DE0BF784410C03EF57E24F5AB0
 magnet:?xt=urn:btih:6B43DDD109E79AE8E0E1EEB6F7095186CF053CBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:6B43DDD109E79AE8E0E1EEB6F7095186CF053CBA
 ```bash
 magnet:?xt=urn:btih:373651294B4EA41C3D9DD6DCC6F6151B7CCD52AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

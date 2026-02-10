@@ -1,3 +1,29 @@
+###  Публикация: 1245941   (467448) от 08.09.2018
+
+Наталья Будилова | Хоумтерапия. Как перезагрузить жизнь, не выходя из дома (2018) [FB2]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_467448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несколько лет назад в руки Натальи Будиловой попала книга Мари Кондо «Магическая уборка». Это событие полностью изменило ее жизнь. Вдохновленная Наталья создала первое интернет-сообщество поклонниц японского метода уборки дома КонМари и начала вести онлайн-марафоны по «расхламлению». Наблюдения за результатами этих марафонов, знание китайской системы фэн-шуй и психологическое (   Читать дальше...   )Жанр: Домашнее хозяйство, Саморазвитие / личностный рост, Фэн-шуйФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98F7E6A3246EA8CF96C0B4348562D6B2EDD0D886
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1245638   (467453) от 08.09.2018
 
 Николас Карр | Пустышка. Что Интернет делает с нашими мозгами (2012) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:861A373B5F51B7593F1D116A61960E6B63E401C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:861A373B5F51B7593F1D116A61960E6B63E401C5
 magnet:?xt=urn:btih:3FC0108209D9090B12114E2E97EA9C82297546E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:3FC0108209D9090B12114E2E97EA9C82297546E2
 ```bash
 magnet:?xt=urn:btih:1BB14DD37F5D55ED6631BE7A671DF0D3BFBA7731
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:1BB14DD37F5D55ED6631BE7A671DF0D3BFBA7731
 magnet:?xt=urn:btih:ADDA4E50F5FF2F5D051B8402F1673283B6B5AF54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:ADDA4E50F5FF2F5D051B8402F1673283B6B5AF54
 magnet:?xt=urn:btih:E974F61C03C85FE1C339AE6C8D1E80EB35AD6E4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:E974F61C03C85FE1C339AE6C8D1E80EB35AD6E4F
 ```bash
 magnet:?xt=urn:btih:2C38E2E56328B88F2A0F2F8DD4CDC3C7F2F33A4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:2C38E2E56328B88F2A0F2F8DD4CDC3C7F2F33A4D
 magnet:?xt=urn:btih:4F218C510B05D01E8B3E8CBF13334E1B59FF3093
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:4F218C510B05D01E8B3E8CBF13334E1B59FF3093
 ```bash
 magnet:?xt=urn:btih:0CC94C2C2F1CBBC121A8AE4984EAF09566DA18C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:0CC94C2C2F1CBBC121A8AE4984EAF09566DA18C8
 magnet:?xt=urn:btih:01C5AF29EF2A4E8899F449D1102AD3353D75E823
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:01C5AF29EF2A4E8899F449D1102AD3353D75E823
 ```bash
 magnet:?xt=urn:btih:D53979F0BABF8063D742E9BBF8DCCC3829FE18C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:D53979F0BABF8063D742E9BBF8DCCC3829FE18C4
 magnet:?xt=urn:btih:49B71027E3E3E830E5B25C247A60C80FDA618860
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:49B71027E3E3E830E5B25C247A60C80FDA618860
 ```bash
 magnet:?xt=urn:btih:8B1880CC323A43F6B9F974FC88E5C6FCD75D80AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:8B1880CC323A43F6B9F974FC88E5C6FCD75D80AD
 magnet:?xt=urn:btih:039FF9C489468BCF923ACA28389F05086E9E383A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:039FF9C489468BCF923ACA28389F05086E9E383A
 magnet:?xt=urn:btih:8A1789151C8AD2FF60C424A244256699ACD041E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:8A1789151C8AD2FF60C424A244256699ACD041E0
 ```bash
 magnet:?xt=urn:btih:F02D1DF74A6E032AEE3B4EBCC7559E90607C12FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:F02D1DF74A6E032AEE3B4EBCC7559E90607C12FF
 magnet:?xt=urn:btih:C42DE8ECD29AF861CE033ECEFC6C6F8EB2F02264
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:C42DE8ECD29AF861CE033ECEFC6C6F8EB2F02264
 ```bash
 magnet:?xt=urn:btih:57076736521723DE9AF6F76DCD6C7577EBA466A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:57076736521723DE9AF6F76DCD6C7577EBA466A1
 magnet:?xt=urn:btih:EC0C2ECF259635B2F42004E3C76F8A94D6287B0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:EC0C2ECF259635B2F42004E3C76F8A94D6287B0B
 ```bash
 magnet:?xt=urn:btih:B97860930F04EC9590ABADF90542CC57122D974A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:B97860930F04EC9590ABADF90542CC57122D974A
 magnet:?xt=urn:btih:D3A292337372E1219BBBD69DABE7F9FD49C1A9A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:D3A292337372E1219BBBD69DABE7F9FD49C1A9A6
 magnet:?xt=urn:btih:9AF5F1BA9826394396DA26701225C595054810EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:9AF5F1BA9826394396DA26701225C595054810EA
 ```bash
 magnet:?xt=urn:btih:4063B76827AFE25D24CB5C842C28E11E4B3A5F71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:4063B76827AFE25D24CB5C842C28E11E4B3A5F71
 magnet:?xt=urn:btih:B896B5CE027156982798950C3B095BA36AC92C4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:B896B5CE027156982798950C3B095BA36AC92C4A
 ```bash
 magnet:?xt=urn:btih:75AF110BBF16B0F3130E8F477E165A424332CF17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,29 +682,7 @@ magnet:?xt=urn:btih:75AF110BBF16B0F3130E8F477E165A424332CF17
 magnet:?xt=urn:btih:2249397966219BE18A5927576E9A2E5145279CDC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319926   (468894) от 19.08.2019
-
-Алексей Иванов | Рекламист в гостях у физика (2020) [PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если реклама – это «концентрированная суть продукта», то и обучение рекламной деятельности должно вестись в том же ключе: просто и коротко. Именно на этом принципе строятся международные бестселлеры одного из самых успешных рекламистов в России – Алексея Иванова. В названии его книги пиар недаром сопоставляется с точной наукой. Зачастую здесь действуют те же строгие (   Читать дальше...   )Жанр: Креатив, Привлечение клиентовФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B00128700C481A5EB4299ED6461C7FDEC32B2B07
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1326552   (384837) от 20.09.2019
+
+Тим Харфорд | 50 изобретений, которые создали современную экономику (2019) [FB2]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_384837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любое изобретение – не просто свидетельство человеческой сообразительности, это объяснение того, как устроен наш мир, какие невидимые системы вроде глобальных цепей поставок, вездесущей информации, денег окружают нас. В книге Тима Харфорда на примере пятидесяти изобретений, таких как бумага, штрихкоды, интеллектуальная собственность, письменность и других, освещаются (   Читать дальше...   )Жанр: Научно-популярная литература, ЭкономикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE4345AADD341B853C3168AA448E856737A0C09F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395010   (384896) от 08.10.2020
 
 Книжная серия | Звезда Рунета. Бизнес [11 книг] (2018-2020) [EPUB]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:8C096B17D43BD0E7E413FA4C26DA74C548694EC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:8C096B17D43BD0E7E413FA4C26DA74C548694EC3
 ```bash
 magnet:?xt=urn:btih:D885F2E09BC0130673E9A62694AC65B8785F3970
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ Harvard Business Review – главный деловой журнал в мир
 magnet:?xt=urn:btih:5E762F745F9D114752DFF540989BC4E7B2C07E97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:5E762F745F9D114752DFF540989BC4E7B2C07E97
 ```bash
 magnet:?xt=urn:btih:94D41D3F4648483F4D60107D1CAB4DB5EDD3DB10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +154,8 @@ magnet:?xt=urn:btih:94D41D3F4648483F4D60107D1CAB4DB5EDD3DB10
 magnet:?xt=urn:btih:41F55A01DEB36400131C0168303B13C28E796987
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:41F55A01DEB36400131C0168303B13C28E796987
 ```bash
 magnet:?xt=urn:btih:059D4FBB4D4AF51CE0E73C8E5A68341D005462F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +209,8 @@ Harvard Business Review – главный деловой журнал в мир
 magnet:?xt=urn:btih:E9B6DCEAE518EEBBC0E64C71C85A8C3A957F5CE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +236,8 @@ magnet:?xt=urn:btih:E9B6DCEAE518EEBBC0E64C71C85A8C3A957F5CE3
 magnet:?xt=urn:btih:AC3C9EC63DA5D29A3757155227F6252BE258D3DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +262,8 @@ magnet:?xt=urn:btih:AC3C9EC63DA5D29A3757155227F6252BE258D3DF
 magnet:?xt=urn:btih:4A8A4E2BBFCBEA2BDAEF4FE81E6D7BAC3B300CBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +287,8 @@ magnet:?xt=urn:btih:4A8A4E2BBFCBEA2BDAEF4FE81E6D7BAC3B300CBC
 ```bash
 magnet:?xt=urn:btih:C8A59D4AA36BB00C856E18C9CC1377C394F2FD55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +315,8 @@ magnet:?xt=urn:btih:C8A59D4AA36BB00C856E18C9CC1377C394F2FD55
 magnet:?xt=urn:btih:164CC3C61EE30A33D5CF938B8BD4D6A05D2B1107
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +340,8 @@ magnet:?xt=urn:btih:164CC3C61EE30A33D5CF938B8BD4D6A05D2B1107
 ```bash
 magnet:?xt=urn:btih:2AA180E4166135B859C4F0969E1AD629CDD98B1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +369,8 @@ magnet:?xt=urn:btih:2AA180E4166135B859C4F0969E1AD629CDD98B1D
 magnet:?xt=urn:btih:142915DABBBB642F05CF60DC832A545955A5AD9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +396,8 @@ magnet:?xt=urn:btih:142915DABBBB642F05CF60DC832A545955A5AD9F
 magnet:?xt=urn:btih:468AA18C348DCA7492B2EFDD2AA8C55E3351D61C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +421,8 @@ magnet:?xt=urn:btih:468AA18C348DCA7492B2EFDD2AA8C55E3351D61C
 ```bash
 magnet:?xt=urn:btih:7B5B8AA5D9BB2C21A23B9144D0EF7CE59B855B8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +448,8 @@ magnet:?xt=urn:btih:7B5B8AA5D9BB2C21A23B9144D0EF7CE59B855B8C
 magnet:?xt=urn:btih:37FC2C82750A4719A9121B9054CBF738AA7E9438
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +473,8 @@ magnet:?xt=urn:btih:37FC2C82750A4719A9121B9054CBF738AA7E9438
 ```bash
 magnet:?xt=urn:btih:270D9DF7D30D86DC4D1B49571FB2E0B1DB4C025C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +501,8 @@ magnet:?xt=urn:btih:270D9DF7D30D86DC4D1B49571FB2E0B1DB4C025C
 magnet:?xt=urn:btih:2768D6550C0B00DA59B7703CBA28728CC1E9FA74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +526,8 @@ magnet:?xt=urn:btih:2768D6550C0B00DA59B7703CBA28728CC1E9FA74
 ```bash
 magnet:?xt=urn:btih:9B593B9A1ED17957872F06696F63F0548515CFE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +556,8 @@ magnet:?xt=urn:btih:9B593B9A1ED17957872F06696F63F0548515CFE6
 magnet:?xt=urn:btih:81B8F4AF677C9497459722CF7D81C9B6572F0347
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +581,8 @@ magnet:?xt=urn:btih:81B8F4AF677C9497459722CF7D81C9B6572F0347
 ```bash
 magnet:?xt=urn:btih:489495328A930EC9EDDE9B25AF55510D2F64CE75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +608,8 @@ magnet:?xt=urn:btih:489495328A930EC9EDDE9B25AF55510D2F64CE75
 magnet:?xt=urn:btih:AD1D3085C92AB6AF63C6B702147889C72A819406
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +633,8 @@ magnet:?xt=urn:btih:AD1D3085C92AB6AF63C6B702147889C72A819406
 ```bash
 magnet:?xt=urn:btih:31AE86539345D3E886BED14307163B95A2F3DAC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +661,8 @@ magnet:?xt=urn:btih:31AE86539345D3E886BED14307163B95A2F3DAC9
 magnet:?xt=urn:btih:CB44DF96DDA57B8916AA8FEA125BE815932ECE98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,32 +687,7 @@ magnet:?xt=urn:btih:CB44DF96DDA57B8916AA8FEA125BE815932ECE98
 magnet:?xt=urn:btih:82330F45B52FCA223E300358BC8D60A42A873F35
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326293   (386992) от 19.09.2019
-
-Ангелина Соболь | Не бойся, пеки! (2019) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ангелина Соболь больше известная, как Малиночка (@ma_linochka) – мама шестерых детей и автор популярного блога о семейных ценностях.
-«Я обожаю запах выпечки в доме. Кажется, это и есть запах уюта и семейного счастья».
-Домашний хлеб, булочки, пироги и печенье – все рецепты просты и не требуют особого опыта или экзотических ингредиентов.
-(   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDEC6B1DE6BED5B9A3825486FCC2D7C1ED6629B1
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

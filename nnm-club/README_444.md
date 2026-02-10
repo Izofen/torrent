@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:B26B91074A4166F652348EB06036484B597E6BE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Paranormal Files 13: Chaos Weekend (2025) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:11AD5DE38CB8948CD2DE5E08EA3F7E5FC793ED08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:11AD5DE38CB8948CD2DE5E08EA3F7E5FC793ED08
 magnet:?xt=urn:btih:A519C81B77E6E322725C8F9358DB75FB364ACE29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:A519C81B77E6E322725C8F9358DB75FB364ACE29
 ```bash
 magnet:?xt=urn:btih:3F9C6F46889D179893E2D733874FCEF964F2FD36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Megami no Cafe Terrace II | The Cafe Terrace and Its Goddesses II | Богини
 magnet:?xt=urn:btih:B2F1B14081B6DDA95A11469030CFB2C88C415330
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ JerrySFX — мощный инструмент для звукового диз�
 ```bash
 magnet:?xt=urn:btih:F81682FAECA4718C5C332DAF7A5B2044002EC24D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:F81682FAECA4718C5C332DAF7A5B2044002EC24D
 magnet:?xt=urn:btih:BCE7841415736E6E113F861EDF6557151FC053D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:BCE7841415736E6E113F861EDF6557151FC053D7
 ```bash
 magnet:?xt=urn:btih:DA33DEFAB56071638681BA954C352B7BBC320FE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ VA - Music News For Forum vol.111 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:456B2AB9EC97070E18AF740C5C8DB1395AD66C35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:456B2AB9EC97070E18AF740C5C8DB1395AD66C35
 magnet:?xt=urn:btih:CA187CBA7061B45197788EE651E9508EE69562A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:CA187CBA7061B45197788EE651E9508EE69562A9
 ```bash
 magnet:?xt=urn:btih:775B23DC838CF47CBC0052C7BEE0A23260EDAF1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:775B23DC838CF47CBC0052C7BEE0A23260EDAF1E
 magnet:?xt=urn:btih:AB062692085C10841CA293E1ED458C68044EDAF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:AB062692085C10841CA293E1ED458C68044EDAF8
 ```bash
 magnet:?xt=urn:btih:71229D18D5ED11E207D28908FC84B3B43C8DBCF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ James Manning | How to Draw Koalas Step by Step (2020) [EPUB] [EN]
 magnet:?xt=urn:btih:6A5C33612461278EE2330EF70396F6E4BDF49FA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Audiopunks - SansAmp Rack 1.0.0 VST 3, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:D58DA57F2E01FF5F7D9E4FE83B391C88D2CFF22E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ SIDE A:
 magnet:?xt=urn:btih:22CC2DD9E772D029757D2EEB44ADF787C87D04EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ Gorillaz - Live in London 2001 (2025) [MP3|320 Kbps] <Alternative-Rock, Trip-Hop
 magnet:?xt=urn:btih:60FF2B269544C2FB241B027517AE9DF9A0841067
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:60FF2B269544C2FB241B027517AE9DF9A0841067
 magnet:?xt=urn:btih:B5256BB21852A46007170766FBB29D0C84142A04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ magnet:?xt=urn:btih:B5256BB21852A46007170766FBB29D0C84142A04
 ```bash
 magnet:?xt=urn:btih:5F6392E4F33AA1D7E270BC76AF9826E7F6A22A95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ magnet:?xt=urn:btih:5F6392E4F33AA1D7E270BC76AF9826E7F6A22A95
 magnet:?xt=urn:btih:514DF134787BB2DF4F2034E1BF6E3F1D165258A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:514DF134787BB2DF4F2034E1BF6E3F1D165258A0
 ```bash
 magnet:?xt=urn:btih:4E453A69EAB143D48981759E05B6A7FCDBD32E9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ VA - Оргазм Нострадамуса: Трибьют Vol.1-2-3 (2020-2025)
 magnet:?xt=urn:btih:55D016D28896741570ADA290F29CCD18A7A3FAAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +610,8 @@ magnet:?xt=urn:btih:55D016D28896741570ADA290F29CCD18A7A3FAAA
 magnet:?xt=urn:btih:87A558686C64336E811BCAB6ADAD2415BFDDC658
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ Udemy, O- Academy | Furniture Design Using Blender (2025) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:0D1CDF97C14FBC3B0F42E0FF6F79A02E45330058
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +662,8 @@ American Truck Simulator (2016) [Ru/Multi] (1.55.2.1s/dlc) Repack FitGirl
 magnet:?xt=urn:btih:34866F0D253B0F52D74D25A23F87C0F74912CFF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ magnet:?xt=urn:btih:34866F0D253B0F52D74D25A23F87C0F74912CFF4
 ```bash
 magnet:?xt=urn:btih:0FFAF20E301B875B35C893F698F9455533153F79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

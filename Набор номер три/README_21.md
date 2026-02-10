@@ -19,6 +19,8 @@ Mod Pack для X3: Albion Prelude и X3: Terran Conflict (2016-2023) [Ru/En] (1
 magnet:?xt=urn:btih:7A7AD832BDAF87D7B4359993E11E21111A53EA4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:7A7AD832BDAF87D7B4359993E11E21111A53EA4D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Google.ru уйдёт в прошлое: поисковик переведёт п
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (7.0.0.1/dlc) Repack Deceptic
 magnet:?xt=urn:btih:FE90692C5CAF2B92E1002EF4F73BBEFE59CE3325
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:FE90692C5CAF2B92E1002EF4F73BBEFE59CE3325
 ```bash
 magnet:?xt=urn:btih:5D5816463B03F87EE7057BEFABF3DC8ABEF9F717
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ NAVITEL® выпустил глобальное обновление всех к
 magnet:?xt=urn:btih:3521563ADA1B1BC83D0DEF7A02A55931DC510E8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:3521563ADA1B1BC83D0DEF7A02A55931DC510E8F
 ```bash
 magnet:?xt=urn:btih:59991B734EFDBFA6C37F809315237B0F18595BCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ The Last of Us Part II (2) (2025) [Ru/Multi] (1.1.10411.746/dlc) Repack dixen18 
 magnet:?xt=urn:btih:B9C01E1EDD9054ED2144DE07C041057C242C5B47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:B9C01E1EDD9054ED2144DE07C041057C242C5B47
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:B9C01E1EDD9054ED2144DE07C041057C242C5B47
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:B9C01E1EDD9054ED2144DE07C041057C242C5B47
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:B9C01E1EDD9054ED2144DE07C041057C242C5B47
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:B9C01E1EDD9054ED2144DE07C041057C242C5B47
 ```bash
 magnet:?xt=urn:btih:69515E39C6D0EB22D6EEA207FA53E50CFFCF8846
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:69515E39C6D0EB22D6EEA207FA53E50CFFCF8846
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:69515E39C6D0EB22D6EEA207FA53E50CFFCF8846
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:69515E39C6D0EB22D6EEA207FA53E50CFFCF8846
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:69515E39C6D0EB22D6EEA207FA53E50CFFCF8846
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:69515E39C6D0EB22D6EEA207FA53E50CFFCF8846
 magnet:?xt=urn:btih:304DCD082B24CF2F6B7DCC7C85735EE44824FDE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:304DCD082B24CF2F6B7DCC7C85735EE44824FDE3
 magnet:?xt=urn:btih:D8BBD832FF8BF59D60C54FE045C42B627DC7B90D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:D8BBD832FF8BF59D60C54FE045C42B627DC7B90D
 ```bash
 magnet:?xt=urn:btih:24ACAF0C71D9A3DC59879226E654CBF9B3CD2056
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:24ACAF0C71D9A3DC59879226E654CBF9B3CD2056
 magnet:?xt=urn:btih:46617722F3BA21D8F87D19E1D29410411D0B7473
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ MInstAll v.07.04.2025 By Andreyonohov (ISO) [Ru]
 ```bash
 magnet:?xt=urn:btih:9F7A4C0C94A95680E40E0D38B1A65327308CD180
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ Gefestel преодолел первый рубеж, 1000 релизов. Сам
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ Gefestel преодолел первый рубеж, 1000 релизов. Сам
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ Gefestel преодолел первый рубеж, 1000 релизов. Сам
 magnet:?xt=urn:btih:EBB364B2693ED6385487B6C84CCE76C9A0FAF849
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:EBB364B2693ED6385487B6C84CCE76C9A0FAF849
 ```bash
 magnet:?xt=urn:btih:34D9758EC1B0A6B84F7AAA381A189DC3ACBAF3E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

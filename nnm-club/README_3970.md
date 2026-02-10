@@ -19,6 +19,8 @@ KMS Tools — сборник программ от Ratiborus в одной об�
 magnet:?xt=urn:btih:FC39A22A68A21BFFFCBD3F6C2AE7B2979ECB9D7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:FC39A22A68A21BFFFCBD3F6C2AE7B2979ECB9D7A
 ```bash
 magnet:?xt=urn:btih:750FA03A4845C78737009A81C0BBF53CF58978E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:750FA03A4845C78737009A81C0BBF53CF58978E0
 magnet:?xt=urn:btih:26446D8374D9CE2EB90B41559FD4D1CB35DAC184
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:26446D8374D9CE2EB90B41559FD4D1CB35DAC184
 ```bash
 magnet:?xt=urn:btih:3C407BEFFCCAEA6E0A9FD72039AFEAD6EE4A83CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:3C407BEFFCCAEA6E0A9FD72039AFEAD6EE4A83CC
 magnet:?xt=urn:btih:538014700FE76886DD5809A1EBFF93BE33343CB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:538014700FE76886DD5809A1EBFF93BE33343CB6
 ```bash
 magnet:?xt=urn:btih:E5450F1C7F5F0169C632B2153C5163BD0150D71E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:E5450F1C7F5F0169C632B2153C5163BD0150D71E
 magnet:?xt=urn:btih:E83161D42B7A27CC306B831B9040303FEB88A2FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Computer Repair Shop (2024) [Ru/Multi] (1.01) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:9CD5B2D082383C8C62EFC7E26A93EAD580688AE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Stepik, Глеб Учитель | Проектирование архитект�
 magnet:?xt=urn:btih:C7B4919E32863D4F0B2B3FA09698CF5914446E4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Retreat To Enen переносит пользователей в 3600-й год 
 ```bash
 magnet:?xt=urn:btih:5A1A18F994194F5EEA01A5F76E3A4CF4890EACF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:5A1A18F994194F5EEA01A5F76E3A4CF4890EACF6
 magnet:?xt=urn:btih:C0083444CF84177F5DB1B5CE2D5F75CE145C410A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:C0083444CF84177F5DB1B5CE2D5F75CE145C410A
 ```bash
 magnet:?xt=urn:btih:51CC4040B0B900504770146E2C60B936CD4988D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ frontcat1 | Грокаем собеседования. Frontend developer (2023)
 magnet:?xt=urn:btih:BD5961035E352E3065C0BAF4B469F184E62E100A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Let's Get Rusty | Rust Developer Bootcamp (2023) WEB-DL [EN]
 magnet:?xt=urn:btih:AF4F4674FC819E507D1D9DA78CC6B1A8CBAA013C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:AF4F4674FC819E507D1D9DA78CC6B1A8CBAA013C
 ```bash
 magnet:?xt=urn:btih:9AF3F002E19CDF2666A58215CDB4051EFA8CF634
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:9AF3F002E19CDF2666A58215CDB4051EFA8CF634
 ```bash
 magnet:?xt=urn:btih:F5DA919BEAC272E14DA414B075687D7A36542437
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:F5DA919BEAC272E14DA414B075687D7A36542437
 magnet:?xt=urn:btih:D5DC510C3D55EC3B06433007981D217979A97E1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ jetAudio это музыкальный проигрыватель с 10/20 по�
 ```bash
 magnet:?xt=urn:btih:09AE47055FB8223CC52730C2D91F88A14FD9BDD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:09AE47055FB8223CC52730C2D91F88A14FD9BDD1
 magnet:?xt=urn:btih:F2773BB0A4747FBD3498D67A7EA3EDF4894EBC41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ Gas Station Simulator — это все о ремонте, развитии и �
 ```bash
 magnet:?xt=urn:btih:D570DBB5ABC80B20D64ABC15A9F04F24B9FB1FC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:D570DBB5ABC80B20D64ABC15A9F04F24B9FB1FC4
 magnet:?xt=urn:btih:0AA0B5CBDF7F8F822B6429A7D1EE16EECC7194AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Microsoft® Windows® 10 Pro-Home Optim Plus x64 22H2 RU by OVGorskiy 01.2024
 ```bash
 magnet:?xt=urn:btih:999FE20719AF8D1F6E708D90B47E9A1A3FD06A4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:999FE20719AF8D1F6E708D90B47E9A1A3FD06A4D
 magnet:?xt=urn:btih:F5A788B7C04B7DEF497B9EA937997C70A8B06851
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:F5A788B7C04B7DEF497B9EA937997C70A8B06851
 ```bash
 magnet:?xt=urn:btih:5FC595BF6B511E29351F4D455CDD7E8F693AF390
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ KMS Tools — сборник программ от Ratiborus в одной об�
 magnet:?xt=urn:btih:210F17529235BB4F58CCEEF6BC961A5C53C14EF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:210F17529235BB4F58CCEEF6BC961A5C53C14EF8
 ```bash
 magnet:?xt=urn:btih:7D1AA3466E258D0DC047AA4EF70E8DFF79946DF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

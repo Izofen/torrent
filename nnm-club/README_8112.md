@@ -22,6 +22,8 @@ The Neptune Power Federation - Le Demon De L'amour (2022) [FLAC|Lossless|WEB-DL|
 magnet:?xt=urn:btih:F58986C60BB01F9ACB1B90F78BF66966F03EF4F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ MotoGP. Этап 05. Гран-при Франции. Спринт (13.05.2023) W
 ```bash
 magnet:?xt=urn:btih:7A4135285147BAABB066053E0A0FE3B15972CCD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - Top 100 DJs Chart (24-March-2023) (2023) [MP3|320 Kbps] <Pop, Dance, Electr
 magnet:?xt=urn:btih:E9C2D0EDE89227924E262E762FFCC7A1C746099A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:E9C2D0EDE89227924E262E762FFCC7A1C746099A
 ```bash
 magnet:?xt=urn:btih:07828BA1C5F3C8D4F60A4F7D7A675CC2194C65A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ First Signal - Face Your Fears (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Roc
 magnet:?xt=urn:btih:41670319BB492D00354A62580AAD4933C5576263
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ Duplicate File Finder - утилита, которая находит дубли
 magnet:?xt=urn:btih:C6EB005789C202CA04B48DC31063A7AC8E9B2E57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:C6EB005789C202CA04B48DC31063A7AC8E9B2E57
 ```bash
 magnet:?xt=urn:btih:BB292064E3E0672CCBAB045DC7C4F6CFDC413CAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:BB292064E3E0672CCBAB045DC7C4F6CFDC413CAC
 magnet:?xt=urn:btih:65D53D3C2D8D316A8014C13466E27D5FE33ED87C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:65D53D3C2D8D316A8014C13466E27D5FE33ED87C
 ```bash
 magnet:?xt=urn:btih:67CEDEE1F283346BE9EC964EC6E369C3453B4ABD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ Subheim - Trails (2016) Denovali Records [FLAC|Lossless|WEB-DL|tracks] <Experime
 magnet:?xt=urn:btih:1C59BC94A0988819B821E6D155FB536287B9E47E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ Deimos' Dawn - Anthem Of The Lost (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 ```bash
 magnet:?xt=urn:btih:71C4B35CA5CDD7B8CE53828379A656CBEE0D0509
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ Merciless Law - Troops Of Steel (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 magnet:?xt=urn:btih:FB8A1AB4F5036DBE135A66155A5A9AE48CA8BD37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:A3BABFF22143A2EC8DC82D1B7A890F79D9258625
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ VA - Global Trance Masters Vol. 5 (2023) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:8AFAE7817A7157FA779A6AD9C71C361B205669E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ magnet:?xt=urn:btih:8AFAE7817A7157FA779A6AD9C71C361B205669E1
 magnet:?xt=urn:btih:46D6288D99ED52F06D0C969B5A9BEF104D92897C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ FxFactory Pro включает  фильтры, генераторы и пере
 ```bash
 magnet:?xt=urn:btih:A4C6F4127CE6849E5ABD8833C861EBBDA90804E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +461,8 @@ IP Scanner - приложение сканирует локальную сеть
 magnet:?xt=urn:btih:3AF19740B1F811FBBE26E19827AD91E699C35C3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ magnet:?xt=urn:btih:3AF19740B1F811FBBE26E19827AD91E699C35C3C
 ```bash
 magnet:?xt=urn:btih:AC4EE5E170275E6F86428A51269C7133D8E612A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +513,8 @@ ASAP Utilities позволяет упростить и автоматизиро
 ```bash
 magnet:?xt=urn:btih:698A26FB6E94DD09FD39E27D35331D8776CBA610
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +543,8 @@ Zeelion - Steel Attack (2005) [APE|Lossless|image + .cue] <Power Metal>
 magnet:?xt=urn:btih:0658F28A90BB3155D5B30252489874D79FD1E147
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +571,8 @@ magnet:?xt=urn:btih:0658F28A90BB3155D5B30252489874D79FD1E147
 ```bash
 magnet:?xt=urn:btih:6B49CAFDF7B5902CD728C97B0AF0D4D9A8AC4367
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +601,8 @@ Circus Of Rock - Come One, Come All (2021) [FLAC|Lossless|image + .cue] <Hard Ro
 magnet:?xt=urn:btih:8628F8D75E91942D10553337E0FD088532F61009
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +626,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 ```bash
 magnet:?xt=urn:btih:224EC08810B0CD6B7B4BA11D15F69E01B55AB03A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +653,8 @@ magnet:?xt=urn:btih:224EC08810B0CD6B7B4BA11D15F69E01B55AB03A
 ```bash
 magnet:?xt=urn:btih:C94EAA0A3BEB88397AE0915DC9DBB91EA8532348
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +683,8 @@ SVO - Дежавю (2020) [MP3|320 Kbps] <Heavy Metal>
 magnet:?xt=urn:btih:B37E4328158C3B344F00281E7FAA7B476FDE0194
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +708,8 @@ magnet:?xt=urn:btih:B37E4328158C3B344F00281E7FAA7B476FDE0194
 ```bash
 magnet:?xt=urn:btih:A7A13A6460B59074AEA3338BEDE6DD905BE599D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

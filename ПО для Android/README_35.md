@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:CFC6F86C447C7F608039A53901320473B28B1DCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:CFC6F86C447C7F608039A53901320473B28B1DCA
 magnet:?xt=urn:btih:C4D89AC046B9BEC7D8394FC6563B49C5F3CB8453
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:C4D89AC046B9BEC7D8394FC6563B49C5F3CB8453
 ```bash
 magnet:?xt=urn:btih:3345CAA0117DB1AD4C68F880409C6E7E51F6065B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:A1D5E10A7C1A1EB32BF406B61728DFB8C20D9232
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ PlayerPro Music Player - аудиоплеер, что предоставляет
 ```bash
 magnet:?xt=urn:btih:A2A50AF91CBE52974305E30EE6CB46B47D0710BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ PictureThis - Plant Identification v3.79 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:7A237C06B727FFD4183C514CD3ED7C2F327EFA8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:7A237C06B727FFD4183C514CD3ED7C2F327EFA8E
 ```bash
 magnet:?xt=urn:btih:C2840093325CF6C7D54CEFBA72FBB2DEEC6CFD77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Lighting calculations / Расчеты освещения v6.0.0 Mod by Balatan 
 magnet:?xt=urn:btih:BB5C2492321FDEF13F9E9B6FA689EF573D28A994
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ IPTV# (ex. LazyIPTVDeluxe) v3.08 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E4800459601D1F56EA5693486E3DBAE3E1BB4F38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:E4800459601D1F56EA5693486E3DBAE3E1BB4F38
 magnet:?xt=urn:btih:DB25B8403F584DC3B539E80B20170C6F489DBFDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ NokoPrint v5.24.2 Mod by derrin [Ru/Multi]
 magnet:?xt=urn:btih:1AB842F7337ADD691142B386BD63B8E164504608
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:1AB842F7337ADD691142B386BD63B8E164504608
 magnet:?xt=urn:btih:01466D66B338F1C1521B151D8CCEA4655AB0F5C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:01466D66B338F1C1521B151D8CCEA4655AB0F5C1
 ```bash
 magnet:?xt=urn:btih:9923B72393FB24F6DE1D78B775A44658EBB07672
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ TapScanner — сканер документов, это простой скан
 magnet:?xt=urn:btih:6EA2DD0D911EEDEC905F5E2E5385423974BAC1B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:6EA2DD0D911EEDEC905F5E2E5385423974BAC1B8
 magnet:?xt=urn:btih:805AAC2065759D64C714EE76A1BF4876CF4C1588
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ VideoShow предлагает отличные функции редактир�
 magnet:?xt=urn:btih:79FC41E9445B154D55888A2537262E5209F74B0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ TrackChecker Mobile v2.28.4 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7480260F11F104F035701F1E5CCAEE7D55EBB7EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ Daily Yoga - это платформа, обеспечивающая мента�
 magnet:?xt=urn:btih:C6CFE977588FC6DE04824D6F2F9C309434143203
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Shazam (шазам) распознает любую песню за секунд
 ```bash
 magnet:?xt=urn:btih:B095174C24F1E0BF7A6EBB270D614814CC19DF0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:B095174C24F1E0BF7A6EBB270D614814CC19DF0A
 magnet:?xt=urn:btih:1EA120BAA63E50FDE90E77C7265F2B348F9D5BD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Speedtest - это приложение предназначено для опр
 ```bash
 magnet:?xt=urn:btih:1481EC5308CB8C4A6CA91752BF0BD855A98E194E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Picsart AI Photo Editor, Video v27.9.8 Final Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:0527AB024325C5F6B694ECA470E923E989FFE5BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Screenshot Touch – это удобное и простое приложени�
 ```bash
 magnet:?xt=urn:btih:3BDBBFC6DE67312E352BDB7A903D6DCEF4F524C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:3BDBBFC6DE67312E352BDB7A903D6DCEF4F524C7
 magnet:?xt=urn:btih:4057643DD9885C7D6B038E4D14E48417E8234951
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ Photo Studio — не просто приложение для редактир�
 magnet:?xt=urn:btih:D20BF7E9623F9D4978620C96A06582965175D77E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Display Tester v5.35.5 Mod by Balatan [En]
 ```bash
 magnet:?xt=urn:btih:100C223F93CE8E7F997EAF9B1332C4F84A6651C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

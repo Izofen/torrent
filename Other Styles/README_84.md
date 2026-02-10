@@ -22,6 +22,8 @@ Randy Newman - Toy Story 4 / История игрушек 4 (Оригиналь
 magnet:?xt=urn:btih:E30AEDEB11C9F62527DE6B7F435F0B16CF13E822
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Randy Newman - Toy Story 4 / История игрушек 4 (Original Motion Pi
 ```bash
 magnet:?xt=urn:btih:34E0A9B37AE9E90062B30FD59FFEA66E4C444816
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Gala - Gregorian Dance (1994) [MP3|320 Kbps] <New Age, Enigmatic, Eurodance, Amb
 magnet:?xt=urn:btih:49971BBA626ED5F4CBE0834F6E6DECA3907725CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Kyle Dixon & Michael Stein - Stranger Things 3 / Очень странные д�
 ```bash
 magnet:?xt=urn:btih:0DB194008692913F942311F34FE190B11CBDD3E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Modern Sound Orchestras - Wind Of Change (1992) [FLAC|Lossless|image + .cue] <In
 magnet:?xt=urn:btih:E48B6CE2CC7EC765AAE620258A0DC04FAD10F9F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Michael Giacchino - Spider-Man: Far from Home / Человек-паук: Вда�
 ```bash
 magnet:?xt=urn:btih:734B26B06E69E985AB9DFBAAF440BD02E04B3755
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Kevin Kern - When I Remember (2016) [FLAC|Lossless|tracks] <New Age>
 magnet:?xt=urn:btih:A9E109F94C1C484C9557005D80F5057B46679B64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Randy Newman - Toy Story 4 / История игрушек 4 (Original Motion Pi
 ```bash
 magnet:?xt=urn:btih:D107D105DCF431293E2655AB7063222911768785
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Randy Newman - Toy Story 4 / История игрушек 4 (Оригиналь
 magnet:?xt=urn:btih:76FFE5C462ACE91464C32947ADB8EF5112F4AEC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Joseph Bishara - Annabelle Comes Home / Проклятие Аннабель 3 (O
 ```bash
 magnet:?xt=urn:btih:5A478A203E43DC9F5DB3D0FA3F1D5D6D0863DD09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Bear McCreary - Child's Play / Детские игры (Original Motion Picture 
 magnet:?xt=urn:btih:66442FE165D161662163CBFA8FFCB3FD8DBE7E46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Paul Leonard-Morgan - Last Breath (Original Motion Picture Soundtrack) (2019) [F
 ```bash
 magnet:?xt=urn:btih:C618AFFE580D137F6FD3ED83C53E55283DE9B5E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Kevin Cotter - Cotter (2018) [FLAC|Lossless|WEB-DL|tracks] <Piano, Contemporary 
 magnet:?xt=urn:btih:E35369438AC889FB5E1A5F277E47C3CEEA2413CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +396,8 @@ Ustad Abdul Halim Jaffer Khan - Enchanting Sitar (1978) [MP3|320 kbps] <Sitar>
 ```bash
 magnet:?xt=urn:btih:2FAB4C873462871670A26BAD0C97A8BAB13E2423
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +426,8 @@ VA - Om Yoga Vol. 1, 2: Modern Music for Vinyasa/Flow  (2011-2013) 2CD [MP3|320 
 magnet:?xt=urn:btih:15572B960A42992C5BCA1D5090973378793C35B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +454,8 @@ Joga Dass - Die Erzengel (2007) [WavPack|image+.cue]<Meditative, Chakraphon-Musi
 ```bash
 magnet:?xt=urn:btih:2EA4643EF46D618A56AB658294C200F4D116F041
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +490,8 @@ magnet:?xt=urn:btih:2EA4643EF46D618A56AB658294C200F4D116F041
 magnet:?xt=urn:btih:1E65533EFCCDB73A6066FB049B8FA02DA9431D8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +518,8 @@ Jason Graves - Dead Space 2 (2011) Collector's Edition [FLAC|Lossless]<Score>
 ```bash
 magnet:?xt=urn:btih:15EAD8FEEB5669843BCEAFCD3D90CBA1CEC39782
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +554,8 @@ Blackmore’s Night - A Knight In York (2012) [WavPack|Lossless]<Folk Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +582,8 @@ Dario Marianelli & Regina Spektor - Kubo and the Two Strings / Кубо. Лег�
 ```bash
 magnet:?xt=urn:btih:069ACE10DD726C5265120A7C2839F026F6A6791F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +612,8 @@ Kevin Kern - When I Remember (2016) [MP3|320 Kbps] <New Age, Piano>
 magnet:?xt=urn:btih:CE61A1A1D4EB314D098D873E245C7EBE4F5CFA9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +641,8 @@ VA - Now! - Country 11 (2016) [MP3|320 Kbps] <Country, Pop>
 magnet:?xt=urn:btih:706E7E51CCB8CE3CFF056DDA91FAA369FD30315F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +666,8 @@ magnet:?xt=urn:btih:706E7E51CCB8CE3CFF056DDA91FAA369FD30315F
 ```bash
 magnet:?xt=urn:btih:F8B1B34CB34EAB5C25BE155B78E9E89E250F1511
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +696,8 @@ Igor Presnyakov (Игорь Пресняков) - Acoustic Rock Ballad Covers (2
 magnet:?xt=urn:btih:8B10EB5B9831EF70DECC39492A06D8E1D2A800C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -677,6 +725,8 @@ V.A. - Romantic Piano - Evergreen (1999) [FLAC|Lossless]<Instrumental>
 magnet:?xt=urn:btih:3DD80F54D3BE6FE847F43E3E24B0E7E0658CAC14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -703,6 +753,8 @@ Bear McCreary - Child's Play / Детские игры (Original Motion Picture 
 ```bash
 magnet:?xt=urn:btih:7C92FEA31D6A76FB5F56F1E538FCD7A26253FFF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

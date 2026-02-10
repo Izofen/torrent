@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:239BE63A8F0B9B840738B63573DA37BE2A76A7F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ XtraTools — это универсальный инструмент для оп
 ```bash
 magnet:?xt=urn:btih:6F810B84277802139DF8E6EA7F93172DEAB16EA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ ExtraDisks - это набор инструментов для создания 
 magnet:?xt=urn:btih:DEBDD9CB58A6CF8A062E03D3E26056CED6826C8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:DEBDD9CB58A6CF8A062E03D3E26056CED6826C8B
 ```bash
 magnet:?xt=urn:btih:669AA10C8C5EC645F820516C52394167B9B39B14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Side A:
 magnet:?xt=urn:btih:FCFAFFAB9FF9C37E3D7C33483DF4BDD6417172C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Fancy (рус. Суперская) — песня австралийской х�
 magnet:?xt=urn:btih:436C61EA894EC84C8E74CE64E100E6865A824E62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:436C61EA894EC84C8E74CE64E100E6865A824E62
 ```bash
 magnet:?xt=urn:btih:54A6484F61DC669661D715916CF8D1C7B2C66E6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ LINKED 001 (2023-02-10)(00:49:18):
 magnet:?xt=urn:btih:B1528F556F619ECBE51A908425C5FCB22E7BDFD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:B1528F556F619ECBE51A908425C5FCB22E7BDFD5
 magnet:?xt=urn:btih:8221AADBD9BA147B9B81EB49F6D436FB60483AD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ KStars - бесплатное, с открытым исходным кодом, 
 ```bash
 magnet:?xt=urn:btih:31694FCA00566B3E61314D23C335C3E9469EC83E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:31694FCA00566B3E61314D23C335C3E9469EC83E
 magnet:?xt=urn:btih:E01AE16A4E36B9C312FEBC44F96EB745A70495B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:E01AE16A4E36B9C312FEBC44F96EB745A70495B2
 magnet:?xt=urn:btih:162416959CA4B1224FB680CF3898907F141A5FF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:162416959CA4B1224FB680CF3898907F141A5FF7
 ```bash
 magnet:?xt=urn:btih:E591433D63618B36B1D8690C46140DFDD55EB9FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ Duran Duran - Evil Woman (2024) The Remixes, 2024, BMG [FLAC 24/48|Lossless|WEB-
 magnet:?xt=urn:btih:07F41842588412A756276333F5609A25DF2061B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:07F41842588412A756276333F5609A25DF2061B3
 magnet:?xt=urn:btih:92DCCF3B5D1401D370B123F607E9ECBFFD652338
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:92DCCF3B5D1401D370B123F607E9ECBFFD652338
 magnet:?xt=urn:btih:975DBF10A6794BB5FFFFFE81F35197F9C39903D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:975DBF10A6794BB5FFFFFE81F35197F9C39903D7
 ```bash
 magnet:?xt=urn:btih:506D93135954EE48E3F0EDC8A7F1AB9AD6DAC56A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +478,8 @@ Walmart сворачивает часть инициатив в рамках п�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ Walmart сворачивает часть инициатив в рамках п�
 ```bash
 magnet:?xt=urn:btih:13BA82ECEE6AF0BFF204CC704D9BA671DA2D80C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +530,8 @@ Vasilisa and Baba Yaga / Василиса и Баба Яга (2024) [Ru/Multi] (
 magnet:?xt=urn:btih:FE06E1BD6C9EB23F020E65A60A97D093CF147C1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ magnet:?xt=urn:btih:FE06E1BD6C9EB23F020E65A60A97D093CF147C1D
 ```bash
 magnet:?xt=urn:btih:BA48A8AC4056A085CD346EC3983BAA0AA3579FEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +582,8 @@ magnet:?xt=urn:btih:BA48A8AC4056A085CD346EC3983BAA0AA3579FEF
 magnet:?xt=urn:btih:AF0D6B5A5F0F60011B78EFBA76E0BABBF950BD93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ magnet:?xt=urn:btih:AF0D6B5A5F0F60011B78EFBA76E0BABBF950BD93
 ```bash
 magnet:?xt=urn:btih:7365132044B1F3FB3F88BC9E3A29A32FE07E25C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +635,8 @@ magnet:?xt=urn:btih:7365132044B1F3FB3F88BC9E3A29A32FE07E25C2
 magnet:?xt=urn:btih:D5D13CF8A6D13FFAAED6CBBCE96BFC09A913E2A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ magnet:?xt=urn:btih:D5D13CF8A6D13FFAAED6CBBCE96BFC09A913E2A4
 magnet:?xt=urn:btih:DFA543CA175BF77ABF36CA3DB5CAE7B9D84B84EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ magnet:?xt=urn:btih:DFA543CA175BF77ABF36CA3DB5CAE7B9D84B84EE
 ```bash
 magnet:?xt=urn:btih:051A0EC094D1FAF26ED5CB646493BC2B8771A2BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

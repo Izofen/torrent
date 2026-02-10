@@ -22,6 +22,8 @@ VA - Deep Reflections, Session 2 (Deep House Vibes) (2021) [AAC|~328 Kbps] <Deep
 magnet:?xt=urn:btih:A4019281A8E64DC13B71B491689E5AB0B421CAFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Really Slow Motion - Fiery the Angels Rose (2014) [FLAC|Lossless|tracks + .cue] 
 magnet:?xt=urn:btih:4097A10E506D618BA14C620EC1FDBA9B410AD927
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:4097A10E506D618BA14C620EC1FDBA9B410AD927
 ```bash
 magnet:?xt=urn:btih:ECB4D08E2A43435967052B093D683CA8E72BAD3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:ECB4D08E2A43435967052B093D683CA8E72BAD3B
 magnet:?xt=urn:btih:07A3CF0CEF274442D5A90BA3D54F76EB994A6BCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:07A3CF0CEF274442D5A90BA3D54F76EB994A6BCD
 ```bash
 magnet:?xt=urn:btih:4BE241D5FB7EAB28753B0FBFDAC87C2D38780D2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ Photo Lab - лаборатория фотоприколов у тебя в ка�
 magnet:?xt=urn:btih:9B555A756B1FB80BE66DB799B958ED653105170F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:9B555A756B1FB80BE66DB799B958ED653105170F
 magnet:?xt=urn:btih:AD32C0C2DDB3D45F2154DF95F8D94A66544B988A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:AD32C0C2DDB3D45F2154DF95F8D94A66544B988A
 ```bash
 magnet:?xt=urn:btih:D84D645D2866106AA1A8C2C651555B2698E404F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ VA - Sincopat 2021 Day Collection (2021) [AAC|~347 Kbps] <Deep House, Tech House
 magnet:?xt=urn:btih:D597BE0238D48610EB8CB1ACADD91EC5DC23D354
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ BELLATRIX - I Love KOTO - Covers and Remixes (2018) [MP3|320 Kbps] <Spacesynth, 
 magnet:?xt=urn:btih:71C7E41C6A9C25AF537CE34F8D2213DED283F529
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:71C7E41C6A9C25AF537CE34F8D2213DED283F529
 ```bash
 magnet:?xt=urn:btih:C15D5E315C69706670AC5356E2E5F16AFBB8AFF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:C15D5E315C69706670AC5356E2E5F16AFBB8AFF3
 ```bash
 magnet:?xt=urn:btih:43DB0C55B43724599D5609AF7327C0A34D9BC62B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +350,8 @@ VA - DeepHouseJazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 magnet:?xt=urn:btih:EE36CF17A5540635B6AC1E6CD125389E5296543E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:EE36CF17A5540635B6AC1E6CD125389E5296543E
 ```bash
 magnet:?xt=urn:btih:6CC71013B5F7E7ADA34BE857B4D1F1C385A933C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:6CC71013B5F7E7ADA34BE857B4D1F1C385A933C0
 magnet:?xt=urn:btih:571606B239E8BA9D0522390165B567A12646D4F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:571606B239E8BA9D0522390165B567A12646D4F5
 ```bash
 magnet:?xt=urn:btih:0989938EF1D82B8EE1A4F1A52E71D6BD82881FB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +457,8 @@ Rencontre Nocturne - Recap 2021 (2021) [MP3|320 Kbps] <Electro House, Progressiv
 magnet:?xt=urn:btih:F76EEA687E197A6880112B0BBDCE05B1C3BB0724
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ magnet:?xt=urn:btih:F76EEA687E197A6880112B0BBDCE05B1C3BB0724
 ```bash
 magnet:?xt=urn:btih:94000892C13D376E86E6B0E7D005EBEDF4260EA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +512,8 @@ Imperia - Tears Of Silence (2015) [FLAC|Lossless|image + .cue] <Symphonic Gothic
 magnet:?xt=urn:btih:0E0F5B8E700E68A3D428EDEBDF2DDC6EBE2248E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ magnet:?xt=urn:btih:0E0F5B8E700E68A3D428EDEBDF2DDC6EBE2248E8
 magnet:?xt=urn:btih:48CBC4E144D72EF20ED1B17FFFDF6FF309AD8A1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +567,8 @@ ExoMiner - Idle Miner Adventure
 ```bash
 magnet:?xt=urn:btih:B9C6B98A6843EF40DBBA6DFFC51A59D7ACDC2103
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +597,8 @@ VA - Winter Chill 2022 (Relaxed Nu-Disco & Deep House Sounds) (2021) [AAC|~320 K
 magnet:?xt=urn:btih:9FA22C3444FD71275ED74DACD8A753CB88A7A588
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +626,8 @@ Frank Sinatra - The Ultimate Christmas (Daily Mail CD) (2012) Upfront [FLAC|Loss
 magnet:?xt=urn:btih:BA2FAE9E2901D2143B60C7DED97F1BF7D532888F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +651,8 @@ Christmas Particle Logo - представьте ваш логотип или б
 ```bash
 magnet:?xt=urn:btih:0389C945D74394F5C0859BD9520FD21162363A36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +678,8 @@ magnet:?xt=urn:btih:0389C945D74394F5C0859BD9520FD21162363A36
 magnet:?xt=urn:btih:D6B6BD70C959F6FC2F645ECC23165CE07F3B7FB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ magnet:?xt=urn:btih:D6B6BD70C959F6FC2F645ECC23165CE07F3B7FB6
 ```bash
 magnet:?xt=urn:btih:477857A1EC4EF470E642072F63ECDBF72E72205D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

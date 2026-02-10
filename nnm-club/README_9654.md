@@ -22,6 +22,8 @@ Hans Zimmer & Lorne Balfe - The Journey: Champions (Original Soundtrack) (2018) 
 magnet:?xt=urn:btih:101A71656D2EEA8D706B7B0A0796AFB5AAB80C26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ SSH Config Editor Pro 1.11.4 [En]
 magnet:?xt=urn:btih:9E4097A46D49257EAE577B5815562525EE9DB0C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Bauer Media Group — одна из самых успешных и передо�
 ```bash
 magnet:?xt=urn:btih:70A0B20C23B1DC0248A0B7A1408A277364134071
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ VA - Future Waves Vol. I (2017) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Retrowa
 magnet:?xt=urn:btih:97D61A917B44076DECD26D65305D420095428912
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ Ruby Braff & Ellis Larkins - Two By Two: Ruby And Ellis Play Rodgers And Hart (1
 ```bash
 magnet:?xt=urn:btih:7F5A0F0DC78A8C7BB8A2093F729D7BBC4331B8C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ Shredo поддерживает внешние диски и флэш-накоп
 magnet:?xt=urn:btih:9FA497D468B35D43AB1FDDECE476996E47FAAA4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +189,8 @@ Ruby Braff & Ellis Larkins - The Grand Reunion (1972) 1999, Chiaroscuro Records 
 ```bash
 magnet:?xt=urn:btih:9C57EABC9B883CEFB37683DDA5BBD65E1004DB9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -205,6 +219,8 @@ Alan Broadbent & The London Metropolitan Orchestra - Developing Story (2017) Ede
 magnet:?xt=urn:btih:130E72E9295A15F47977DEFF640103276628D76C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +245,8 @@ magnet:?xt=urn:btih:130E72E9295A15F47977DEFF640103276628D76C
 ```bash
 magnet:?xt=urn:btih:CF2FC78A57BFCC5CA0A717789278E6073747ACF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -257,6 +275,8 @@ Ruby Braff - Born To Play (1999) Arbors Records [FLAC|Lossless|tracks + .cue] <M
 magnet:?xt=urn:btih:1EF9C9290CD61528455228088EC52D71BB5B2AD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ TurboMosaic — программа, позволяющая легко и быс�
 ```bash
 magnet:?xt=urn:btih:5827239F71CB4C37BC17738FF488900C054D4A4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +330,8 @@ Mikal Cronin - Seeker (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternat
 magnet:?xt=urn:btih:DC3D11C5B907827D0B04426BA8F5FFDEBCFD377E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +359,8 @@ L'Orange - Koala (2016) EP [MP3|320 kbps] <Hip-Hop, Instrumental Hip-Hop, Trip H
 magnet:?xt=urn:btih:613F514E37A64BA068E9A284AB600B4D3AD39CC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +384,8 @@ magnet:?xt=urn:btih:613F514E37A64BA068E9A284AB600B4D3AD39CC7
 ```bash
 magnet:?xt=urn:btih:13C51CE27D199894C54B47223F246A6F759AE7F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +414,8 @@ VA - Jazz Loves Disney (2016) [MP3|320 Kbps] <Jazz>
 magnet:?xt=urn:btih:5788A7C3AA0F47DE5DA629DD7C14F96C4798ED04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +439,8 @@ magnet:?xt=urn:btih:5788A7C3AA0F47DE5DA629DD7C14F96C4798ED04
 ```bash
 magnet:?xt=urn:btih:C55D6099C9F430D4E4C3BA738A181925C014B002
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +469,8 @@ L'Orange & Kool Keith - Time? Astonishing! (2015) [MP3|320 kbps] <Hip-Hop>
 magnet:?xt=urn:btih:C905171C84CF8345751DAE7FCEC6AD387D96F430
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +495,8 @@ magnet:?xt=urn:btih:C905171C84CF8345751DAE7FCEC6AD387D96F430
 magnet:?xt=urn:btih:DC4ED450B9292FF0F2448F81A1860BECB3D73A87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +520,8 @@ magnet:?xt=urn:btih:DC4ED450B9292FF0F2448F81A1860BECB3D73A87
 ```bash
 magnet:?xt=urn:btih:7A9342AA8348AC3B2ABD35C3D289B81C699987AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +550,8 @@ magnet:?xt=urn:btih:7A9342AA8348AC3B2ABD35C3D289B81C699987AD
 magnet:?xt=urn:btih:57007165F3CDD8FC3D9CA842A3AC87D44CA8D469
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +578,8 @@ magnet:?xt=urn:btih:57007165F3CDD8FC3D9CA842A3AC87D44CA8D469
 magnet:?xt=urn:btih:99B4AB3EC97F568C4C6D23C37052E10FA4B08308
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +603,8 @@ magnet:?xt=urn:btih:99B4AB3EC97F568C4C6D23C37052E10FA4B08308
 ```bash
 magnet:?xt=urn:btih:AE082118D0FFA10995A9BFEBF83D7B3853CB879B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +633,8 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 023 (2017) [M
 magnet:?xt=urn:btih:DAAB12ECCE5571F8206A444AB4BCBD23481AC5A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +662,8 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 021 (2017) [M
 magnet:?xt=urn:btih:A9CEDCE236FEA46C59A179F4E7B953F37693A6D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +687,8 @@ magnet:?xt=urn:btih:A9CEDCE236FEA46C59A179F4E7B953F37693A6D5
 ```bash
 magnet:?xt=urn:btih:EE57BE31237AEE6E1EE1B3202C1B9D7D417EEE80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -666,6 +716,8 @@ ScAnDroid Experiment's - A Trap For The Traveller (2017) Single, Авторск�
 ```bash
 magnet:?xt=urn:btih:0C0A3ED77287E4CFA8539E27DFCCA1821329E49B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

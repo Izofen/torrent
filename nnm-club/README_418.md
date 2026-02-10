@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:A211D124B87807572824CF81DDB64FDB6E5906FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:A211D124B87807572824CF81DDB64FDB6E5906FD
 ```bash
 magnet:?xt=urn:btih:552CC3567AED315FEE94D0BA774175562DD22AC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ Queen - Funk (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Rock, Glam-
 magnet:?xt=urn:btih:20F74FD86D91C253FC6E2171892ABED69109132C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:20F74FD86D91C253FC6E2171892ABED69109132C
 ```bash
 magnet:?xt=urn:btih:31744A0073C5404BBDCC65D86C6F64A77C4A2D3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:31744A0073C5404BBDCC65D86C6F64A77C4A2D3F
 magnet:?xt=urn:btih:DC039F53AA14D51C7CAAF2C2BAF2EBFD1333C81A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:DC039F53AA14D51C7CAAF2C2BAF2EBFD1333C81A
 magnet:?xt=urn:btih:6D10A7F99174D8BBE67727295F0623F936093C48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Kaze no Na wa Amnesia | A Wind Named Amnesia | Ветер амнезии [1990, 
 ```bash
 magnet:?xt=urn:btih:09F3C86CFD80EB1206631CF64D531682E223854B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ Megami-ryou no Ryoubo-kun | Mother of the Goddess Dormitory | Комендант
 magnet:?xt=urn:btih:64B8FD9F58520C743BE0664555E066D437C113A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:64B8FD9F58520C743BE0664555E066D437C113A8
 ```bash
 magnet:?xt=urn:btih:178DE255E4779BB5F3D9CC9E812212C3960B536F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ Coolutils Total Outlook Converter Pro – конвертирует электр�
 magnet:?xt=urn:btih:38C22EEA592E8CE339DCC8719722D18F6295AAA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:38C22EEA592E8CE339DCC8719722D18F6295AAA4
 ```bash
 magnet:?xt=urn:btih:1E0B16D5E5FC7A7A39BFA49E3DF09BAECCE03057
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:1E0B16D5E5FC7A7A39BFA49E3DF09BAECCE03057
 magnet:?xt=urn:btih:9839A98645F067478BFB8412FC4C00E0ADBDA4BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:9839A98645F067478BFB8412FC4C00E0ADBDA4BE
 ```bash
 magnet:?xt=urn:btih:1CEA3324EC3B21721DD5A94BFD9E9AA7E7BE6188
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:1CEA3324EC3B21721DD5A94BFD9E9AA7E7BE6188
 magnet:?xt=urn:btih:0038D0DB6C409864DB67DB450C2079DF32FF9787
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ Fragments of Truth: An MCF Story (2025) [En] (1.0) Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:9F1AC4249CAD41F8514AA51C6226B3537B5EEDED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:9F1AC4249CAD41F8514AA51C6226B3537B5EEDED
 magnet:?xt=urn:btih:5DFD0C0EEC68EA86814B8223DD0FCDA44FFB0741
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:5DFD0C0EEC68EA86814B8223DD0FCDA44FFB0741
 ```bash
 magnet:?xt=urn:btih:8E5B5DFA052B289B6F6C7C242C733FA00716E733
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:8E5B5DFA052B289B6F6C7C242C733FA00716E733
 magnet:?xt=urn:btih:C691098294DD5BF6C731B89FF93BCCFAE15EB8F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:C691098294DD5BF6C731B89FF93BCCFAE15EB8F6
 ```bash
 magnet:?xt=urn:btih:889408558D9C39D52022EEEDA54A74F4BA894B66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ Balun.Courses, Владимир Балун | Дженерики в Golang (2025)
 magnet:?xt=urn:btih:93D7F3BF26BF3300C5D258966A1358679E65346A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:93D7F3BF26BF3300C5D258966A1358679E65346A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ Leviathan | Левиафан [2025, Web, 12 эп.] WEB-DL 1080p raw
 magnet:?xt=urn:btih:B2E3C5CE013948A0ADF78FC8D0B8A78C5B9711D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:B2E3C5CE013948A0ADF78FC8D0B8A78C5B9711D7
 ```bash
 magnet:?xt=urn:btih:3D9F5ECF797D246639F754DBC5CE9E8FFBD73F2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ Malwarebytes Windows Firewall Control - утилита, с помощью кот
 magnet:?xt=urn:btih:FDE3174EAB32F78E8DB9EF1352DD665D12AB2766
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ RoboCop: Rogue City (2023) [Ru/Multi] (1.7.0.0/00.017.002/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:CC1F0C9B43E6275B59D2B31E4512514A3BCC601B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Retouch4me Eye Brilliance автоматически распознаёт гла
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

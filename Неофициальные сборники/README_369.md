@@ -1,3 +1,32 @@
+###  Публикация: 910775   (610309) от 26.06.2015
+
+VA - Золотые хиты русского рока (1991 - 2003) [MP3|128-320 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ДДТ - Родина.mp3
+02. 7 Б - Молодые ветраmp3
+03. Земфира - Аривидерчи.mp3
+04. Танцы Минус - Город.mp3(   Читать дальше...   )Жанр: RockПродолжительность: 04:16:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F6F773ED598FAA5FBAA58F21B24A9FD66AAB891
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038034   (610312) от 26.07.2016
 
 VA - Uplifting Trance Collection - Episode Second (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive>
@@ -21,6 +50,8 @@ VA - Uplifting Trance Collection - Episode Second (2016) [MP3|320 Kbps] <Trance,
 ```bash
 magnet:?xt=urn:btih:E66B2D2F6B1971CCA6BCB9CC17092D2F7A9983C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Летние хиты за рулем. Русский выпуск (2015) [
 magnet:?xt=urn:btih:4ED9AC1E6AF75DA7E042E3093EF1E6DF00C0F5DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Car Audio. Русский, Душевный (Sound Clinic - Special Edition
 ```bash
 magnet:?xt=urn:btih:C2E9C711B47B27F879732870F918CE2577AA1C2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Neue Deutsche Harte (1999-2015) [MP3|128-320 кб/с]<Industrial-Metal, Fol
 magnet:?xt=urn:btih:312DA65FC057E04064FEC13F0A896CEC45E4B466
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +167,8 @@ VA - Car Audio. Субботние ништяки [Sound Clinic - Special Editio
 magnet:?xt=urn:btih:7393C9B324565F786DEEC597BBEEF236D888825F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +192,8 @@ VA - Сборник игровой музыки / In Game Music (Ultimate Music 
 ```bash
 magnet:?xt=urn:btih:946DD776B1D497DFD9DE74674EF28E2888E0B4C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +228,8 @@ VA - Европа плюс представляет: Живи в экстазе!
 magnet:?xt=urn:btih:C20EC001D34460EB9FD533171F3C748F6B89EAC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +257,8 @@ VA - Дискотека Русский Хит 90х (2016) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:EA0E573FE88360F91748319D357DD20A1D5913EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +285,8 @@ VA - Discoteka 2016 Dance Club Vol.154 (2016) [MP3|320 Kbps] <House, Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:190ADE997D991FE4F81813E3E002C654B2C39992
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +321,8 @@ VA - UK Top 40 Singles Chart (15.07.2012) [MP3|320 кб/с]<Pop, Dance, Club>
 magnet:?xt=urn:btih:A1EA93D63053B72839116E2AD6CB3BE8E7A47C68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +349,8 @@ VA - Kiss FM: Top 40 (14.04) (2019) [MP3|320 Kbps] <Pop, House, Dance>
 ```bash
 magnet:?xt=urn:btih:43BB12E0C36F3FC67A43FABD49C1ADA10C193549
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +379,8 @@ VA - Billboard Hot 100 Singles Chart 20.04.2019 (2019) [MP3|320 Kbps] <Pop, Danc
 magnet:?xt=urn:btih:84A46D566E576D87951443B272504AD4A58B21DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +407,8 @@ VA - Dance Rotations In Motion (2019) [MP3|320 Kbps] <Club, Hands Up, Dancehall>
 ```bash
 magnet:?xt=urn:btih:FDDA61EF305FDD37D649E19D799D14341BFF6650
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +437,8 @@ VA - Русское радио. Летний Best (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:5EE1BB377164211AAAB9302076AD355F1E1E223A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +465,8 @@ VA - Ballads for Lovers Vol.2 (2016) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:8F21F10097F13C35804D109D344B5BA15243D35B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +495,8 @@ VA - Kizomba All Stars (2016) [MP3|320 Kbps] <World, Zouk, Kizomba>
 magnet:?xt=urn:btih:720B19DEC01BBCD47991F6ED30A748155E3D8D87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +523,8 @@ VA - 50 Perfect Summer Party Hits (2016) [MP3|263~320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:61CD193A86238BDA1A84F518FC837ABFCF7F0F24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +553,8 @@ VA - Amnezia Super Hits 04 (2016) [MP3|320 Kbps] <House, Club, Dance>
 magnet:?xt=urn:btih:A17BEF902BC79E045232E22DCD46F6CD12389763
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +581,8 @@ VA - Sound Of 70's Rock (2018) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:747D9AEE875CE50751259C53640B5CA05250B60B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +611,8 @@ magnet:?xt=urn:btih:747D9AEE875CE50751259C53640B5CA05250B60B
 magnet:?xt=urn:btih:5F87E89A9EF7E3DAF5EA744C5036FB3FD922E0A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +639,8 @@ VA - Dirty House Masters Mellow (2016) [MP3|320 Kbps] <House, Electro House, Fut
 ```bash
 magnet:?xt=urn:btih:581A1CA07C9315EBF00686A85498F0C251E97E43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +669,8 @@ VA - 150 Summer Fest Stars (2016) [MP3|320 Kbps] <House, Electro House, Club Hou
 magnet:?xt=urn:btih:2EC220A9B68906455668118928E7A50D9E96500E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +697,8 @@ VA - Trance Collection Vol. 48 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, 
 ```bash
 magnet:?xt=urn:btih:68FB2404DE51BA834923D2079BC41901538BFF36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -652,6 +727,8 @@ VA - Fuction Caravel: Progressive Dub Mix (2016) [MP3|320 Kbps] <Progressive, Vo
 magnet:?xt=urn:btih:823D006EBFB3C1A1E1F56C4253F32B7CD7A222B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -679,32 +756,7 @@ VA - Billboard Hot 100 Singles Chart 16.06.2018 (2018) [MP3|192-320 Kbps] <Pop, 
 magnet:?xt=urn:btih:285753A65490F592B6AD7D9AB44AA631A0BAA2E5
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912416   (612306) от 25.06.2015
-
-VA - Союз летних хитов от Европа Плюс. Часть 3 (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612306.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Britney Spears & Iggy Azalea - Pretty Girls
-002. Иван Дорн - Весна
-003. Guy Sebastian - Animal In Me
-004. Lx24 - Сегодня Пьяным Буду Вновь(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:300BE17B0CC8B2C01C5391EBB6BD708B9C7C78F4
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

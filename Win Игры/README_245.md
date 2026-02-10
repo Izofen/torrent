@@ -19,6 +19,8 @@ Christmas Wonderland 11 / Рождество. Страна Чудес 11 (2020) 
 magnet:?xt=urn:btih:74BA1FCCEEE8EF1C5C1B87B23858FC03989208F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Far Kingdoms: Awakening Quest (2023) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:843DC31AEF3FF77077B409B7E87592B345FD7F57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Sally Face (2016) [Ru/Multi] (1.5.05/dlc) Repack Other s [Episode 1-5]
 magnet:?xt=urn:btih:20C27E485CF8110B8B57E71BC8B7B2FBEA1845BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Clid the Snail (2021) [Ru/Multi] (1.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:B83A1E2BE4A984DF25D8B8BE3B5B0267A2B2397A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Garfield, знаменитый кот-любитель лазаньи, верн�
 magnet:?xt=urn:btih:89CF799F4C1B22545668A9CF745ABAA110F1EF8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Looking for Aliens — игра про поиск предметов, в кот�
 ```bash
 magnet:?xt=urn:btih:362B75E4D6BFD245211EFF46C9CBCBEE3129F41E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Gold Rush: The Game – это симулятор золотодобытчика
 magnet:?xt=urn:btih:B1EC7E6BDE3C347702D7CD5BC84A626BDBF94F50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Life is Strange – эпизодическое приключение, собы�
 ```bash
 magnet:?xt=urn:btih:2BFF732190C911F4DE9432E6D866ABAE6DD86F18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ VIKINGS WOLVES OF MIDGARD™: Рагнарек. Легенда гласит, ч�
 magnet:?xt=urn:btih:1C5247D6C40B6E26446CF8172D9C3A2112DA21A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Webbed (2021) [Ru/Multi] (1.04b) License GOG
 ```bash
 magnet:?xt=urn:btih:0234D9722DD513555336A57032EEA531CAD8043B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Cave Story's Secret Santa (2021) [En] (1.0.0.5) License GOG
 magnet:?xt=urn:btih:23890AA3ECF1B54B9118974E4BECB09B97963671
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ EMERGENCY 20 (2017) [Ru] (4.1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:2B5B9A0B3D7A0535B4B9D91DAEF29538C4152F0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Below – процедурно генерируемое приключение �
 magnet:?xt=urn:btih:DCCA03394AE8D691655A9C4CFAB08F72E8A705CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Sword of the Stars: The Pit (2013) [En] (1.6.2/dlc) License GOG [Osmium Edition]
 ```bash
 magnet:?xt=urn:btih:85929EEEF2F3CB7B10F7776B9EA06B3F3E1E0FD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ BLACKTAIL (2022) [Ru/Multi] (1.3) Repack Other s
 magnet:?xt=urn:btih:3F09E9089DD3EDC40F4AE0A7424537689574512A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ State of Survival (2023) [Ru/Multi] (1.20.20.644) License (обновляема�
 ```bash
 magnet:?xt=urn:btih:DF6E742E61AED99AB60D09C3FED00EE56A4365A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Salt and Sacrifice - хардкорный экшн-платформер, вдо�
 magnet:?xt=urn:btih:6E0EF1E095BC1373EE21D833E5FBF55A4A802B92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Iris.Fall – приключенческая головоломка, выпол�
 ```bash
 magnet:?xt=urn:btih:D496B5672699090DBAB294B803302881A2B0A332
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Ceiba (2023) [Ru/En] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:A5BC872892AFAC0A4429D69CF4BAD22538F58429
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Sundered – ужасающая борьба за выживание и здра
 ```bash
 magnet:?xt=urn:btih:7508F7EDAAB26634F68826B1AF51D4B617EE0CCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Christmas Wonderland 9 / Рождество 9. Страна чудес (2018) [R
 magnet:?xt=urn:btih:57DFC4A4D734927F96442EA30D84CF338D235E11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Remain (2016) [Ru/En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:583D39DDBCCE6610EB4C66925E493A42170A5F0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Crime O'Clock - это игра, в которой вы выступаете в 
 magnet:?xt=urn:btih:4AAEDD26964F189BBEC042602FD51FBA6ADEC7FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Millidor - это стратегия с пошаговыми тактическ�
 ```bash
 magnet:?xt=urn:btih:06F7F9DE381A6C9498EF3149D691E135B33A9BBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Royal Legends: Marshes Curse (2021) [En] (1.0) Unofficial [Collector's Edition]
 magnet:?xt=urn:btih:8747E3312BAEFBCE62F5A835A5199F83F9255BAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Yuletide Legends 3: Who Framed Santa Claus (2018) [En] (1.0) Unofficial [Collect
 ```bash
 magnet:?xt=urn:btih:F6A9E2D67D1532AC33EFAEE8C1983FD1FE68C350
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Hail to the Rainbow (2025) [Ru/Multi] (1.01) Repack dixen18
 magnet:?xt=urn:btih:DE279E73592217080898DDFCA1DFE401D85A5F39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Routine – это sci-fi хоррор от первого лица в стил�
 ```bash
 magnet:?xt=urn:btih:75B28232FD4303739FE67D1EA36D0A0B5D839D33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Cricket 26 - The Official Game of the Ashes - детализированный �
 magnet:?xt=urn:btih:FED249363805E75246F271EB60A23DC5D34B46F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Of Ash and Steel - ролевая игра от третьего лица с о�
 ```bash
 magnet:?xt=urn:btih:55F0D9D00F5D75A1BE07EBDAB8CC5B53BED34FDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Hail to the Rainbow (2025) [Ru/Multi] (Build 20964708) Repack R.G. Freedom
 magnet:?xt=urn:btih:2E3210BD03A0F5169C6E93C7545AD3B124EB092B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Tiny Bunny / Зайчик (2021) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:042D03896D429260B5BADB929401B95141AF8C94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Sacred 2 Remaster (2025) [Ru/En] (CL16183 Build 20876016) Repack Decepticon
 magnet:?xt=urn:btih:7B21E8320DD97B055D5BAB86E495972F654A4FFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Routine – это sci-fi хоррор от первого лица в стил�
 ```bash
 magnet:?xt=urn:btih:88E662F691BB715A4090650825E971C470DCBAF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Tiny Bunny / Зайчик (2021) [Ru/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:DFA230BB7173118AA76846A424B980A464DCD781
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Tiny Bunny / Зайчик (2021) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:AA89EFA4AF093DE400B2D9BCC786077D4AB3F338
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Ayasa: Shadows of Silence приглашает игроков в мир, где 
 magnet:?xt=urn:btih:911A70D573C8F0FB40F96C84ABB3543AD31F9123
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Hail to the Rainbow (2025) [Ru/Multi] (Build 20964708) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5607CD790ADE62B56239BB81064256BE0AD4D076
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Ayasa: Shadows of Silence приглашает игроков в мир, где 
 magnet:?xt=urn:btih:2A8A091B06875A86187D4E0C662F692F7442963A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Windswept (2025) [Ru/Multi] (1.02) License GOG
 ```bash
 magnet:?xt=urn:btih:43ED52489AB2DE257C2DC2861F1AEE8CC738A2DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Nitroglycerine! (2025) [Ru/Multi] (1.0.7) Repack Other s
 magnet:?xt=urn:btih:9CECD746860B7E393D98A951954FDBD14E005ED1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Surviving Mars: Relaunched (2025) [Ru/Multi] (1.0.0.382125/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:721A58157B2744E5A0DE1132B44C190EB7E7E773
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Junji Ito Maniac: An Infinite Gaol (2025) [Ru/Multi] (1.0.0) Repack Other s
 magnet:?xt=urn:btih:6B763BAC73595CC4CC1042761779BEB0D95BC921
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Wall World 2 (2025) [Ru/Multi] (1.0.4.325) License GOG
 ```bash
 magnet:?xt=urn:btih:53ADA1A9A9C2F812E1301E30D25C6D5E4880E3A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ SpongeBob SquarePants: Titans of the Tide (2025) [Ru/Multi] (1.2.0.0/dlc) Repack
 magnet:?xt=urn:btih:3967DAE399DBE0734E35C94CB5223D775D4A3E09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Mara (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:64D429EC35ED64A4B8E6EB536C8D946E15994280
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Yakuza 0 Director's Cut - полное издание отмеченного к�
 magnet:?xt=urn:btih:AE86B7ED13C0F6B110B71BD0341CC03434531BCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ No, I'm not a Voenkom (2025) [Ru/En] (build 20799770) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:C408A8D65705B5DF14BD78F723C82D5E5FBEDBA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Yakuza 0 Director's Cut - полное издание отмеченного к�
 magnet:?xt=urn:btih:F6A200B24CBA5DBB9B6C8EEB521F069D606DFCCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Brotherhood (2025) [Ru/Multi] (1.0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:0D793919CD2810EBC7BB66E3308709C55B0F05FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Netherworld Covenant - это тёмная фэнтези 3D изометрич�
 magnet:?xt=urn:btih:DC4F2F9A8A40781EEB81E318AAB4D4B6723C6A96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Terminator 2D: NO FATE (2025) [Ru/Multi] (Build 20805989) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:8C1C4D3EF85EA8CF5B61B08DBEE6A640BC4A6DC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

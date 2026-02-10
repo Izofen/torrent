@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:10063C225BFFCB4A2083850ECFFF97A613720276
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Waqas Qazi | Master DaVinci Resolve NODE TREE. Live Training Session 2 (2020) WE
 ```bash
 magnet:?xt=urn:btih:6B6F801278CDB57A8AABBD782E966B185D7106E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ magnet:?xt=urn:btih:6B6F801278CDB57A8AABBD782E966B185D7106E9
 magnet:?xt=urn:btih:C2A3813543597E93C7ABA8E52D39D0B252841DBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ magnet:?xt=urn:btih:C2A3813543597E93C7ABA8E52D39D0B252841DBE
 magnet:?xt=urn:btih:468DDCDA4BA414D9F2CDAF27ED18985893FC43C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:468DDCDA4BA414D9F2CDAF27ED18985893FC43C9
 ```bash
 magnet:?xt=urn:btih:924D6B5FA598FD531523634E64C3598A88C47459
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ Work-волшебником: повелителем презентаций, за
 ```bash
 magnet:?xt=urn:btih:FDBC7FD7616E7F697857DF2FB2A47B9E3FDC14AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ magnet:?xt=urn:btih:FDBC7FD7616E7F697857DF2FB2A47B9E3FDC14AB
 magnet:?xt=urn:btih:F9836B4E273540F5FB15C89500A524D7D304C3F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ magnet:?xt=urn:btih:F9836B4E273540F5FB15C89500A524D7D304C3F0
 magnet:?xt=urn:btih:243A3489518E6371FF997A5F8CC22F1085164C61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +247,8 @@ magnet:?xt=urn:btih:243A3489518E6371FF997A5F8CC22F1085164C61
 magnet:?xt=urn:btih:11577A8B861765EDDE3AF37CA55B8AF991C830FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +273,8 @@ magnet:?xt=urn:btih:11577A8B861765EDDE3AF37CA55B8AF991C830FC
 ```bash
 magnet:?xt=urn:btih:A4E87BB2D1B61CC45EE127F2CE8869DB52A15A6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +303,8 @@ Udemy, Luke Priddy | Master English Writing | Syntax, English Grammar, and More 
 magnet:?xt=urn:btih:68A109BE0F8F8B396BFD0E3EA8AD555EC46C1BC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +331,8 @@ In this course we will learn FastAPI right from scratch and by then end of the c
 ```bash
 magnet:?xt=urn:btih:AEE88421AF186664B45512D25A69B29EC14866FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +361,8 @@ Kalacheva School, Татьяна Головко | Анималистика в Di
 magnet:?xt=urn:btih:64D20A112AEA0675B6641B0372E286942DD898F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +390,8 @@ Kalacheva School, Ирина Климова и др. | Все онлайн ку�
 magnet:?xt=urn:btih:DF3B13B8E6A3441A2A08EE8711E00D52E3470BDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +416,8 @@ FXPHD, Liam Whitehouse | Realtime Cinema Environments in Unreal Engine (2021) WE
 ```bash
 magnet:?xt=urn:btih:14F0196E8941FD965C8D2B38EB128B80BE5B82A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +446,8 @@ Bazanova Art, Ольга Базанова | Гиперреализм (2022) WEB-
 magnet:?xt=urn:btih:95599C4CAF8F4BE3EE66D0CD792E5809F5201A1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +472,8 @@ Breezzly, Анастасия Свеженцева | Создание экскл�
 ```bash
 magnet:?xt=urn:btih:DADFD467EACDD20DA8B71E0DF46D21A3BB380E30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +502,8 @@ e-Business | Webflow intensive 2.0 (2022) WEB-DL [RU]
 magnet:?xt=urn:btih:FD31C231B863DD516C944917F9EB9E5792B0BC97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +527,8 @@ Rebelway, Saber Jlassi | Рендеринг в Karma в Houdini 19 (2021) WEB-DL
 ```bash
 magnet:?xt=urn:btih:522D283E1E1007029602146114EB4677F28AAE94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +557,8 @@ Teletype, Роман Горелик | Бандл от Науки Дизайна.
 magnet:?xt=urn:btih:086062DE458DBD4F90DBA15AA035157EA010459E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +586,8 @@ magnet:?xt=urn:btih:086062DE458DBD4F90DBA15AA035157EA010459E
 magnet:?xt=urn:btih:644167FA82865D8C481D883029507AD897C5D792
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +613,8 @@ Antipin-STUDIO, Антипин Виталий | Основа основ (про�
 ```bash
 magnet:?xt=urn:btih:CA07BA737F493BF7316385E834B941CD9BF23954
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +643,8 @@ Pro-Infografika, Ариадна Юсупова, Мурад Юсупов | Про
 magnet:?xt=urn:btih:B7E936E1CF52FF65F32FC8EC221653503B1992C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +672,8 @@ magnet:?xt=urn:btih:B7E936E1CF52FF65F32FC8EC221653503B1992C8
 magnet:?xt=urn:btih:1498BF0207C236AE8A6B917B4DBB842A4274E503
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +698,8 @@ AMS³, Надежда Бейнер | Электрика в Archicad (2022) WEB-D
 ```bash
 magnet:?xt=urn:btih:2E9FD3DFB6A03AD3D96EBFF2043354B6D6C64B7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -677,6 +727,8 @@ magnet:?xt=urn:btih:2E9FD3DFB6A03AD3D96EBFF2043354B6D6C64B7F
 ```bash
 magnet:?xt=urn:btih:115D4774E2AA675B4F1F2058D1879EAE25BAFEE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ VA - 20 Best Of Brazilian Capoeira (2019) [FLAC|Lossless|WEB-DL|tracks] <World, 
 magnet:?xt=urn:btih:9FEB51035559FF56E28FC43BD23135BC21062E5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Dean Evenson & Peter Ali - Prayers on the Wind (2018) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:9F76026964135330D2460AC4E8E4FF9C1B9541AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Brad Fiedel - The Terminator (Original MGM Motion Picture Soundtrack) (2016) Mil
 magnet:?xt=urn:btih:671CE556654B703612F6A1D3D64EE453E1CC19AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Atticus Ross, Claudia Sarne, Leopold Ross - Три девятки / Triple 9 (Or
 ```bash
 magnet:?xt=urn:btih:4A25925662D5E3219F1BAABFCA8B18125C55DF18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Atticus Ross, Claudia Sarne, Leopold Ross - Triple 9 / Три девятки (Or
 magnet:?xt=urn:btih:6D9F45408DF2E6ED4821A4A8C15AE8962FA7BFB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA, Tyler Bates - Guardians of the Galaxy Vol. 2 / Стражи Галактик
 ```bash
 magnet:?xt=urn:btih:4E72D221F5389B465E3ABC4A55B276D928EDB79B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA, Tyler Bates - Guardians of the Galaxy Vol. 2 / Стражи Галактик
 magnet:?xt=urn:btih:E96779E52DA3BD7E547FFC15D160DA1702666337
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ John Ottman - X-Men: Apocalypse / Люди Икс: Апокалипсис (Origi
 ```bash
 magnet:?xt=urn:btih:2370E39435FE3334772DE0FDEAFA786C1DE2C1F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ John Ottman - X-Men: Apocalypse / Люди Икс: Апокалипсис (Origi
 magnet:?xt=urn:btih:0357E92259386C875748C50A943E4B6026C136A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Conjure One [Fake Enigma] - Sleep (2003) [APE|Lossless|image + .cue] <New Age, D
 ```bash
 magnet:?xt=urn:btih:EBE16ABB3B499C60364A9648F89CE1AF79DCABDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Deuter - Immortelle (2016) [FLAC|Lossless|tracks] <New Age, Ambient>
 magnet:?xt=urn:btih:F802343E703FDC1BFD7257E6653BB79D8499E883
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ At The Movies - The Soundtrack Of Your Life - Vol.1 (2020) Reissue, 2022, Atomic
 ```bash
 magnet:?xt=urn:btih:40B19E0FDBCE5B7EE70E0F3F5DDE99421ABF2CF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Isaac Shepard - Mosaic (2015) [FLAC|Lossless|tracks] <New Age, Piano>
 magnet:?xt=urn:btih:2BFFBDBDF77AA83D94D4F978D0C3E5C87E6845BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +399,8 @@ Dagda - Celtic Trance (2002) [APE|Lossless|image + .cue] <Tribal, Ambient, Celti
 magnet:?xt=urn:btih:A64561BE10B804F3D32B99446BAB195CCE861967
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +424,8 @@ VA - Saxophone Hits (3CD Box) (2007) [FLAC|Lossless]<Instrumental>
 ```bash
 magnet:?xt=urn:btih:6C29A94DCCD646FCBF50601A66C20C8CB983DAEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +454,8 @@ VA - Ballroom Nights vol.1-2 (4 CD) (2006, 2009) [MP3|256, 320 kbps] <Dance>
 magnet:?xt=urn:btih:456B8085FEBD9220A93D0D5CD2B5D64CF0FDC63D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +482,8 @@ Santana - The Best Instrumentals (1995) [APE|Lossless|tracks] <Instrumental>
 ```bash
 magnet:?xt=urn:btih:F359BDA10C8070A374BF5CD13AADE38F1EF364D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +512,8 @@ Jeronimo Jonas - Inner Journey to the Real (2017) [MP3|320 Kbps] <New Age, Ambie
 magnet:?xt=urn:btih:26465500B9DB1D80EE2CBDC64D5186EF51A710F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +540,8 @@ Ottmar Liebert + Luna Negra XL - Little Wing (2001) [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:91FAED298740D8FE93E2FE75A6D9FA01B727816E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +570,8 @@ Pepe & Celin Romero - Famous Spanish Dances (1982) [FLAC|Lossless|tracks + .cue]
 magnet:?xt=urn:btih:0367653D71AA03379BD5AFA7100A7ED42C932C63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +598,8 @@ Danheim - Munarvagr (2017) [MP3|320 Kbps] <Dark Folk, Dark Ambient>
 ```bash
 magnet:?xt=urn:btih:150E20635C462E5A4AC6361C207F1859D92860E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +628,8 @@ VA - The All Time Greatest Songs (2001) 30 CD [MP3|320 кб/с]<R&B, Pop, Dance,
 magnet:?xt=urn:btih:CB5ED59F515FBA419314E6C0BD2DEE0824CD7F0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +656,8 @@ Sayama - Yoga Meditations (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditat
 ```bash
 magnet:?xt=urn:btih:BA7BF0691AC5DEC894892B89C98D94531D303040
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +686,8 @@ Rebekah Long - Here I Am (2016) [FLAC|Lossless|tracks] <Country, Bluegrass>
 magnet:?xt=urn:btih:BE14C443D2DFB7FA2CBA55C216438B34F7518605
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +715,8 @@ VA - Enigma & D-Emotion Project (2001) Bootleg [FLAC|Lossless|image + .cue] <New
 magnet:?xt=urn:btih:E8209780D95BABBF0C589B2A61DE41240096DF40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ VA - Los clasicos argentinos - Tango - Vol.17 - Francisco Canaro: El ritmo canye
 ```bash
 magnet:?xt=urn:btih:3F9B3AFC2652620D44EFD06A8BB1D9AB69FB9990
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

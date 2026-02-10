@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:70FA56B331E8B51A729030376BED1BB6FCCFFEA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:70FA56B331E8B51A729030376BED1BB6FCCFFEA4
 ```bash
 magnet:?xt=urn:btih:13C4FCD4E891D4A48B11669495021FFC66E714A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ PhotoCASA, Андрей Васильев | Нейросети для фотог�
 magnet:?xt=urn:btih:E81E29E530F36FD14C97237F5589A4B53BC6CD92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Embergen — это узконаправленный софт для симул�
 ```bash
 magnet:?xt=urn:btih:CAB7404A052B01A8880C1A21E2FE6B8B5E01EC2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:CAB7404A052B01A8880C1A21E2FE6B8B5E01EC2A
 magnet:?xt=urn:btih:6F1121291DDB665DF59422409EF1727DAC0D674B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ magnet:?xt=urn:btih:6F1121291DDB665DF59422409EF1727DAC0D674B
 magnet:?xt=urn:btih:4BF9292DD22C7B0B637AF2E21AC1B9B3F87A73D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ Apeiron, Алексей Арестович | Модуль "Профайлинг"
 ```bash
 magnet:?xt=urn:btih:D0536C92C33FD30A0996E762799A2D9A0013F2A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -206,6 +220,8 @@ Unreal Engine 5 сейчас очень востребован, особенно
 magnet:?xt=urn:btih:522A14403B6D898C6F018B778575988B6C1D611F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +247,8 @@ magnet:?xt=urn:btih:522A14403B6D898C6F018B778575988B6C1D611F
 ```bash
 magnet:?xt=urn:btih:5FBC9372D99FFC666E7B10EBBE671986499211E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +277,8 @@ Neurolera - Единственный в России нейропреподав�
 magnet:?xt=urn:btih:AE64A9373E3E234FDCE39212F58178A715CB43F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +304,8 @@ magnet:?xt=urn:btih:AE64A9373E3E234FDCE39212F58178A715CB43F0
 ```bash
 magnet:?xt=urn:btih:75986E3B7D0AC88F3CD416DA19CB2407DE1291BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +334,8 @@ Easy.Dom, Ольга Вайлапова | Практический курс. С�
 magnet:?xt=urn:btih:661A71059FAEA7519DD2E25C7924FA15CA2B0FC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +359,8 @@ Udemy, Антон Ларичев | JavaScript Advanced - продвинутые 
 ```bash
 magnet:?xt=urn:btih:FA13C1E58ECB3646956648478387D0A8404EB5DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +387,8 @@ IP-PBX Астериск совершила революцию в области 
 magnet:?xt=urn:btih:B41FB636268565111C8E807651DA22986D95B860
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +414,8 @@ Motion Design School | 2D Character Design Magician (2022) WEB-DL [AD] [EN / EN 
 ```bash
 magnet:?xt=urn:btih:CBABE6CCD380C9AEED7B5B7EE8C019756F7CAA6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +444,8 @@ Excellentschool, Ольга Базалева | Интерактивные даш
 magnet:?xt=urn:btih:416DB42F6A06D92A683ECC7B14C97F7C8B6F868F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +472,8 @@ magnet:?xt=urn:btih:416DB42F6A06D92A683ECC7B14C97F7C8B6F868F
 magnet:?xt=urn:btih:A9A71ED77AABF9E7DBD6CC850EFEDFCF4B8B65F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +497,8 @@ Convert Monster | Тренинг по тестированию посадочн�
 ```bash
 magnet:?xt=urn:btih:65D57DB4BE25F6AD3663E43B4D87D42C07A0FFBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +525,8 @@ Gumroad, FlyCat | Avatar Character Modeling in Blender (2023) PCRec
 magnet:?xt=urn:btih:DB625792D35C088601E259A96BD53B2112F49F01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +550,8 @@ javascript.ru, Владимир Шевчук | Мастер-класс по ар
 ```bash
 magnet:?xt=urn:btih:FD9A66597A67EB3625A921F25AF1BD5DA9D9BDE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +579,8 @@ magnet:?xt=urn:btih:FD9A66597A67EB3625A921F25AF1BD5DA9D9BDE0
 magnet:?xt=urn:btih:46DA6D88415B0AFC172F5169D7D123592FB1E79F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +606,8 @@ Event-driven архитектура становится все более по�
 ```bash
 magnet:?xt=urn:btih:A64C2320F2FDA62505B41CCB1EE98C7956721D57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +635,8 @@ Ben Marriott | Master Motion Design (2022) WEB-DL [EN]
 magnet:?xt=urn:btih:AEFB9F99126C19F5C907B1F9BD50DF8AB0729B17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +662,8 @@ CGMA, Louis Manjarres | Houdini Production Studio: Destruction FX (2022) WEB-DL 
 magnet:?xt=urn:btih:166950DA2FEB936491101F3E3DC82CB3FF359A0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +688,8 @@ magnet:?xt=urn:btih:166950DA2FEB936491101F3E3DC82CB3FF359A0B
 ```bash
 magnet:?xt=urn:btih:99839EAE52A160E09FECBFC12A04CCF2600DC95B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +717,8 @@ magnet:?xt=urn:btih:99839EAE52A160E09FECBFC12A04CCF2600DC95B
 ```bash
 magnet:?xt=urn:btih:43EDE9D955C112F3707DEE1CD2615FFCAC1D603E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

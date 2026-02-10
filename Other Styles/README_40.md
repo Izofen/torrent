@@ -22,6 +22,8 @@ VA - Kamasutra Tantra Massage - Just Relax (2013) [MP3|320 Kbps] <Relax, Chillou
 magnet:?xt=urn:btih:912C0286698E587BFECC6D4183EEDB896FEE1372
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Michael Logozar - Starlight (2017) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:1EA28A37F698FBECCAC2096772B7920AD0A458B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Jeff Pearce - From the Darker Seasons (2017) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:A223761770FB7F6BA8280E62E01AB5CF3A8D2960
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Mokadelic - Gomorra: La Serie (2019) Expanded Edition [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:E2302D90ABF3B2150C936D23608A7D24CD6C9124
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Faun - Marchen & Mythen (2019) [MP3|320 Kbps] <Folk, Medievol>
 magnet:?xt=urn:btih:6D30D6C4B8803FC3C82F27D5B042075A9E58A3A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Yoga Music (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditative>
 ```bash
 magnet:?xt=urn:btih:4E63196A4533B126C49250E9199216404C6B4B25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Sina Vodjani - Indian Colours (2002) [FLAC|Lossless|tracks + .cue] <New Age, Eth
 magnet:?xt=urn:btih:4BA1B7A3EDF7B64B158232BC4D33403A3DA35FE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Salon Orchester Da Capo - Grand Café (1998) [FLAC|Lossless|image + .cue] <Instr
 ```bash
 magnet:?xt=urn:btih:848AC25766D58A33EC8400328343EAE296E06AE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Jay & Silent Bob Reboot / Джей и Молчаливый Боб - Пер�
 magnet:?xt=urn:btih:ADD6D3F089E189B0B31957C12132C3B6BE1E4910
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Jay & Silent Bob Reboot / Джей и Молчаливый Боб - Пер�
 ```bash
 magnet:?xt=urn:btih:92F7B220FAA51B573FD4D6CECB7AB59035C087A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Thomas Wander, Harald Kloser - Midway / Мидуэй (Original Motion Picture Co
 magnet:?xt=urn:btih:835FE0E6F469072FA8ACA70F6290415F66AF8B51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Johannes Linstead - Azul (2017) [FLAC|Lossless|tracks + .cue] <Instrumental, New
 ```bash
 magnet:?xt=urn:btih:D7B79584F19C0547920189B4F02DFBE0DAB7BD60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Mike Lazarev - Unhinged (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano Sol
 magnet:?xt=urn:btih:0523F7D3FFFA10D8147CA3B1D0C2158722A3DD41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Brian Tyler, VA - Charlie's Angels / Ангелы Чарли (Original Score + O
 ```bash
 magnet:?xt=urn:btih:73F304FD70E80068C93F2222FA629B0C6E31CD8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Thomas Wander, Harald Kloser - Midway / Мидуэй (Original Motion Picture So
 magnet:?xt=urn:btih:370CC4F6450DB22CD8AC4AD1F494475D8CDE2634
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Thomas Wander, Harald Kloser - Midway / Мидуэй (Original Motion Picture Co
 ```bash
 magnet:?xt=urn:btih:6C5436A65A3E30E8C3D828807222996E0BF1639D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Brian Tyler - Charlie's Angels / Ангелы Чарли (Original Motion Pictur
 magnet:?xt=urn:btih:071B60BCD3EDF99DDBBD84E6E2DAFD8EB1121697
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +511,8 @@ magnet:?xt=urn:btih:071B60BCD3EDF99DDBBD84E6E2DAFD8EB1121697
 ```bash
 magnet:?xt=urn:btih:8263A2D7C966129913B3647B35926F84D07B0FDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +541,8 @@ Blonker - The Sound Of Blonker (1995) 3CD-Box [MP3|320 Kbps] <Instrumental Pop>
 magnet:?xt=urn:btih:D555910EB0A744D121637AFE436A9D6C1E3E7CF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +569,8 @@ Emmanuele Landini - Zodiac: The Collection (2017) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:4CCE051CE6BDD57F633531A7997A2CCAADF34059
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +599,8 @@ Cesair - Omphalos (2017) [FLAC|Lossless|tracks] <Folk, Celtic>
 magnet:?xt=urn:btih:AF677BD76ED160C61B9F3315FFB63A8D0E253FCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +627,8 @@ Daniel Roeder & Jacob Yates - Music for Meditation (2016) [MP3|320 Kbps] <New Ag
 ```bash
 magnet:?xt=urn:btih:5A0C6D2965083D4574C7E6382D3459C75130D7E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +657,8 @@ Alwan - Sidewalk (2016) [MP3|320 Kbps] <New Age, Ambient>
 magnet:?xt=urn:btih:7BB65FA8D5ABFE338D5516A709D9DF6FB1118C65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +685,8 @@ Music for Quiet Moments - # Classical Love (2019) [MP3|320 Kbps] <Instrumental, 
 ```bash
 magnet:?xt=urn:btih:F5B1BBD11C1B601489632C05CF8F7E77BFD804DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +715,8 @@ Alexander Taylor - Animal Among Us / Животное среди нас (Origina
 magnet:?xt=urn:btih:C5458AFF2A2B52EBA8D35B73D313111F5085708B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ Alexander Taylor - Animal Among Us / Животное среди нас (Origina
 ```bash
 magnet:?xt=urn:btih:71FE62A37521EAA41AC518433D793050DF0727A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

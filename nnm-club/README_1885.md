@@ -19,6 +19,8 @@ Oxygen Not Included (2019) [Ru/Multi] (20240718/dlc) Scene TinyIso
 magnet:?xt=urn:btih:C1CE686103F52C5E1E70C0430F4E3CACB94CD882
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ DaVinci Resolve — единственное в мире решение для �
 ```bash
 magnet:?xt=urn:btih:5199A07F841A4B338AC796B447C498AC0B3B372A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:5199A07F841A4B338AC796B447C498AC0B3B372A
 magnet:?xt=urn:btih:320FB2F2A5F7C1A90EE2DEE107720573FD6D8253
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Only Up! (2023) [Ru/Multi] (1.0) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:7234B4D4C9A2004D09CD35D1147238983C501136
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:7234B4D4C9A2004D09CD35D1147238983C501136
 magnet:?xt=urn:btih:B587DA8EB14DA24ABEA989DB97F755420636914A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ GPS Compass Navigator v2.20.27 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:06FA51623C2722CF4DCB7861065703F8A321CF5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:06FA51623C2722CF4DCB7861065703F8A321CF5F
 magnet:?xt=urn:btih:03489D2078A88B9D065721D04B6925D92044A8DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Burnout Paradise – Remastered - аркадная гонка, главные о
 ```bash
 magnet:?xt=urn:btih:070697564728E4E289CF38AF5D8B74CCABE1C84D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:070697564728E4E289CF38AF5D8B74CCABE1C84D
 magnet:?xt=urn:btih:3E1D2AFFC0A6818125DDE689EAA1B556465FF0B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:3E1D2AFFC0A6818125DDE689EAA1B556465FF0B7
 ```bash
 magnet:?xt=urn:btih:A820B4074A65A2941B475A38A1403A5B60ED7AAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Under the Waves – это повествовательная приключен
 magnet:?xt=urn:btih:016936C9B28DC0733EE066578917C03D3CF7AED2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:016936C9B28DC0733EE066578917C03D3CF7AED2
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:016936C9B28DC0733EE066578917C03D3CF7AED2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Dragon Chronicles: Black Tears - это стратегическая ролев�
 ```bash
 magnet:?xt=urn:btih:64F747058441F305BEABA5AA9766FFEF8D3257DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:64F747058441F305BEABA5AA9766FFEF8D3257DD
 magnet:?xt=urn:btih:F9C95C0527192B05739841557C46E10C45FCBBA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Nobody Wants to Die с головой окунает вас в Нью-Йорк �
 magnet:?xt=urn:btih:5C03C5A0EBEB6938BFB6A4EB6CD32ED7EAD652BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +434,8 @@ magnet:?xt=urn:btih:5C03C5A0EBEB6938BFB6A4EB6CD32ED7EAD652BD
 ```bash
 magnet:?xt=urn:btih:853F355AD32C86832441AE2C25371E6551E60B1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:853F355AD32C86832441AE2C25371E6551E60B1F
 magnet:?xt=urn:btih:056CEA5BFCD445295501EFAFCEDFEE71D967E566
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:056CEA5BFCD445295501EFAFCEDFEE71D967E566
 magnet:?xt=urn:btih:B192F79F8CCC58BEBF0ADC9ADE36889A1EAD01BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ magnet:?xt=urn:btih:B192F79F8CCC58BEBF0ADC9ADE36889A1EAD01BB
 ```bash
 magnet:?xt=urn:btih:9011BF600E38EE273CBA50B96D057AF3DD90822A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ magnet:?xt=urn:btih:9011BF600E38EE273CBA50B96D057AF3DD90822A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ Fleetwood Mac - The Dance (1997) DVD
 ```bash
 magnet:?xt=urn:btih:CC5FFCB98F43DFDD190B3C4B035510E88B5F167F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ John McVie - BassСубтитры: Английские, Французские,
 magnet:?xt=urn:btih:FA11E5FF26C9607561E400C459124D6BA596EFED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ Secrets of the Heartbeat (2024) [Multi] (20240712) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:5F835DB71C5C50DB870BF724F04C79869ECB6C0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:5F835DB71C5C50DB870BF724F04C79869ECB6C0A
 magnet:?xt=urn:btih:D9DC15D798C80B8E1C78CD529352F2286607A0BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Burnout Paradise – Remastered - аркадная гонка, главные о
 ```bash
 magnet:?xt=urn:btih:070BEAACEB642310F96BA584FDF4F158EF6B5491
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

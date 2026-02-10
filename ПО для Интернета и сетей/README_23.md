@@ -19,6 +19,8 @@ YTD Video Downloader позволяет загрузить нужный вам �
 magnet:?xt=urn:btih:671604F19624A37DC0F4D9AE3A48735E8D7CE293
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Industrial HiVision – программный пакет для комплек�
 ```bash
 magnet:?xt=urn:btih:EE0D676EE96200BB1938963668BCB86FD29F2BB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Orbit Downloader - менеджер закачек файлов из Интер�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ SurfEasy шифрует подключение к Интернету через 
 magnet:?xt=urn:btih:0A34FFA4CD6CC7678A4E138B00AD31A573C46DD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ AVG Secure Browser – защищенный браузер для безопас
 ```bash
 magnet:?xt=urn:btih:305C616434DE0F2FAE757F210518DF0E7C39157D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Online Radio Player 3.5.0.93 [Ru/En]
 magnet:?xt=urn:btih:9B9C1F22F44A238D1F2889C4CD8F8523E7B3A2C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Ummy Video Downloader (   Читать дальше...   )Язык интерф
 magnet:?xt=urn:btih:57A4E1B86C82A38399626DA2C22AB57FCB1507C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ DomainHostingView 1.82 Portable [Ru/En]
 ```bash
 magnet:?xt=urn:btih:26B7059653F3F9E60578364E3FD0889110C46516
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Pale Moon 25.7.0 + Portable [Ru/En] (сборка для iAtom и Windows XP)
 magnet:?xt=urn:btih:0DB75B68257DAF9B061B271BFFD21A90B1305301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ DVB Dream 2.7.3 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E4A5FC9FDB15832567996EE09A878EC30EC14118
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Avast Secure Browser - обновленная и улучшенная верси
 magnet:?xt=urn:btih:4F3AC4E1CE56B37727ED635D9E19AF4D97AB2B21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ Router Scan умеет находить и определять различны
 ```bash
 magnet:?xt=urn:btih:AC922BBB049D483B2EBF9FB91A9ECD263DA6D8BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ X-Lite 4.8.4 Build 76589 [En]
 magnet:?xt=urn:btih:D35D41AC464A0EDE65C197B6011D0813C10C30DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Miranda NG — преемник популярного мультипроток�
 ```bash
 magnet:?xt=urn:btih:F53A32C4473222EF4A012627396DF515544341CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:F53A32C4473222EF4A012627396DF515544341CB
 magnet:?xt=urn:btih:0AC9CF5459BBF867B8B59AF256A3E29D972FAA07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Shadowsocks - это надежный socks5-прокси, разработан�
 ```bash
 magnet:?xt=urn:btih:E5EF1CFDE0321C9E053998D63730986C2A2C51E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ Datacol 5.54 + Plugins [Ru]
 magnet:?xt=urn:btih:83562A3C09B4BA5ACFC307AD4A715D844736C994
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Twonky Media Server - это приложение, которое позволи
 ```bash
 magnet:?xt=urn:btih:6F9D11ACE55F952040EB6A1BEAF5545846E029DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ Comodo IceDragon 65.0.2.15 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:8926A5E103A413774F70D952A33B2F438F0229E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ mIRC - это IRC клиент. IRC - это Internet Relay Chat, некая с�
 ```bash
 magnet:?xt=urn:btih:8D454A32548E479167E030CADC6C363F279DDBED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ Cyberfox 52.9.1 for AMD + Portable [Multi/Ru]
 magnet:?xt=urn:btih:BD9804DC6C73BD31D196FA53F3E4A6D2456E5F9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ HandyCache - прокси-сервер для раздачи интернета 
 ```bash
 magnet:?xt=urn:btih:D762BC7DEBFFDC220C8A195709437DCB8DA0B224
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ mIRC - это IRC клиент. IRC - это Internet Relay Chat, некая с�
 magnet:?xt=urn:btih:1DC4C8B32AAB582D65C65D8AFE1516191C4F03E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ NetSend2015 – клиент-серверное приложение, предн
 ```bash
 magnet:?xt=urn:btih:90171808E970564A75DE7F6F26A19E697745A75A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Cyberfox 52.9.1 for Intel + Portable [Multi/Ru]
 magnet:?xt=urn:btih:7916237ACC340D0618AE6D60B53AF740BE76D274
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ TMeter Premium edition 13.2.659 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:68A749C92D732341AEC1CB57423628CD5982A511
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

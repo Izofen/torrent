@@ -22,6 +22,8 @@ Crematory - Believe (2000) Reissue 2025 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <G
 magnet:?xt=urn:btih:7DDCD23DB6CF6EE8BF9B16193F57F0777B5084FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Sycamore Sisters - Out Of The Cage (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <B
 ```bash
 magnet:?xt=urn:btih:AC5AEF615920B036414BB919A79B851E95266495
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Bill Evans / Jim Hall - Waltz for Debby and Other Melodies (2025) [FLAC 24/44.1|
 magnet:?xt=urn:btih:A3ED80AD02E55939A4CB8EDC8714C3E4FCFD00CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ magnet:?xt=urn:btih:A3ED80AD02E55939A4CB8EDC8714C3E4FCFD00CB
 magnet:?xt=urn:btih:BB963B7453B791070C3771CDA11CFDF48C9B8C0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:BB963B7453B791070C3771CDA11CFDF48C9B8C0C
 ```bash
 magnet:?xt=urn:btih:704B11C34AE68CEC324D2D9AA77852F42FFDCA12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ Mike Andersen - All Out Of Love (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 magnet:?xt=urn:btih:2373B5A4F32896841C41561FE2FC804DACC3F553
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ Peter O'Mara - Avenue U (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 ```bash
 magnet:?xt=urn:btih:F4444F30F3B0922E100174A3D6B57A553779E803
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ Sigma Wolf Initiative - Blues of the Road (2025) [FLAC 24/44.1|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:94DA8BD142C54F4C35BAFD67C091E3460EDDB0EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +250,8 @@ magnet:?xt=urn:btih:94DA8BD142C54F4C35BAFD67C091E3460EDDB0EC
 ```bash
 magnet:?xt=urn:btih:4FB1C164472392691BF4DD456A4F728CCEA91556
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +280,8 @@ Paradox - Mysterium (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trash Metal>
 magnet:?xt=urn:btih:3DBCF80F75804C389EB3554B6DC7B526AFAAE75F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +308,8 @@ Lennie Tristano And Warne Marsh - Intuition (1956) 1996, Capitol Records [FLAC|L
 ```bash
 magnet:?xt=urn:btih:8D11001D856D1D9ED5229B23F22720096F63088A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +338,8 @@ magnet:?xt=urn:btih:8D11001D856D1D9ED5229B23F22720096F63088A
 magnet:?xt=urn:btih:75E0AF06D66406B6912452CA211218DED6252AA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +364,8 @@ magnet:?xt=urn:btih:75E0AF06D66406B6912452CA211218DED6252AA4
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +389,8 @@ magnet:?xt=urn:btih:75E0AF06D66406B6912452CA211218DED6252AA4
 ```bash
 magnet:?xt=urn:btih:17EB853BBAED590D57DF409F2159F9C8ADEE66D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +419,8 @@ ZZ Ward - Liberation (Deluxe Edition) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:EAFB5F764B660464C39F0EA806B9BA7C7E3D78B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +444,8 @@ Da Yu Hai Tang | Big Fish & Begonia | По ту сторону океана [201
 ```bash
 magnet:?xt=urn:btih:6802845A36344AD259BEAB02A3E822C6D8DA9BD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +471,8 @@ magnet:?xt=urn:btih:6802845A36344AD259BEAB02A3E822C6D8DA9BD7
 magnet:?xt=urn:btih:2D0F813EDFF90F9D1D835EA677FDBA707BD2E763
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +497,8 @@ magnet:?xt=urn:btih:2D0F813EDFF90F9D1D835EA677FDBA707BD2E763
 magnet:?xt=urn:btih:A6F8427607D9F007B2FB37AF70ACE3A3FA4F1041
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +522,8 @@ magnet:?xt=urn:btih:A6F8427607D9F007B2FB37AF70ACE3A3FA4F1041
 ```bash
 magnet:?xt=urn:btih:9F8FC8169E19D70C9B56C93E3158A66772FEECFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +552,8 @@ VA - A State of Trance - Classics Top 10, Vol. 8 (2025) [MP3|320 Kbps] <Trance, 
 magnet:?xt=urn:btih:E234BC917A721916B307700E34DDC4D1B119BAC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +577,8 @@ magnet:?xt=urn:btih:E234BC917A721916B307700E34DDC4D1B119BAC7
 ```bash
 magnet:?xt=urn:btih:1624736068B6A6D41E5512D446227C0AE2F82F5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +604,8 @@ magnet:?xt=urn:btih:1624736068B6A6D41E5512D446227C0AE2F82F5A
 magnet:?xt=urn:btih:6499B50B41AE5A16CAA5B9F399726236EA3BFFC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +630,8 @@ magnet:?xt=urn:btih:6499B50B41AE5A16CAA5B9F399726236EA3BFFC9
 magnet:?xt=urn:btih:2BCF83858F8F5E1A927112DBB94EF3D32AD06808
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +655,8 @@ magnet:?xt=urn:btih:2BCF83858F8F5E1A927112DBB94EF3D32AD06808
 ```bash
 magnet:?xt=urn:btih:59DAFF93BFC1FA1E839ED8706AE5B1D7B00B3B5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +683,8 @@ magnet:?xt=urn:btih:59DAFF93BFC1FA1E839ED8706AE5B1D7B00B3B5A
 magnet:?xt=urn:btih:B8708A149492E823C43DC5080A36BF0D8CA92DA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +708,8 @@ Prolinea — это современное семейство шрифтов б�
 ```bash
 magnet:?xt=urn:btih:E97E74B8BDBC84229F011E32DBD5AF5B3DD97C43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

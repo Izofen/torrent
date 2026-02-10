@@ -1,3 +1,29 @@
+###  Публикация: 1605187   (1045028) от 16.01.2023
+
+Однажды в пустыне (2022) WEB-DLRip [H.264/720p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сирия, 2016 год. Шаберову нравилось быть сапером, вступать в схватку со смертью — один на один. Нравилось побеждать — победителей не судят. Разминирование захваченной боевиками Пальмиры должно было стать пиком карьеры, красивой точкой. Там же ждала девушка, полусирийка-полурусская, которую недавно спас и втайне мечтал увидеть снова. Сердце замирало от планов. Но (   Читать дальше...   )Производство: Россия / ТПО «Рок», Телекомпания НТВЖанр: Военный, боевик, драмаРежиссер: Андрей КравчукАктеры: Александр Робак, Павел Чинарёв, Александр Метёлкин, Екатерина Нестерова, Игорь Гордин, Полина Пушкарук, Виталия Корниенко, Анна Потебня, Олег Васильков, Сергей БородиновПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:57:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFD15A4A386D9A3B986710E758C987D720E7C205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604799   (1045147) от 15.01.2023
 
 Нормальный только я (2021) WEB-DL [H.264/1080p]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:ECB5DABC82E34038D8D1E96DE3FA8CC714619787
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:ECB5DABC82E34038D8D1E96DE3FA8CC714619787
 magnet:?xt=urn:btih:50629974CBE0B6A2BB4019766737CB62AB093759
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:50629974CBE0B6A2BB4019766737CB62AB093759
 ```bash
 magnet:?xt=urn:btih:E1609DCBE97F029E12884EA5FCF9F242AAB35A0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:E1609DCBE97F029E12884EA5FCF9F242AAB35A0E
 magnet:?xt=urn:btih:EC5F80239CCD1D19C1DAC19A00531E3B41EBC143
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:EC5F80239CCD1D19C1DAC19A00531E3B41EBC143
 ```bash
 magnet:?xt=urn:btih:620DDF8DDFEC1B416213CE1A39E3F90089F1D7B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:620DDF8DDFEC1B416213CE1A39E3F90089F1D7B4
 magnet:?xt=urn:btih:BF4082C82A61763D002886C835DD125D5045D746
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:BF4082C82A61763D002886C835DD125D5045D746
 ```bash
 magnet:?xt=urn:btih:96FB0C34A440CF54C0451887743C2AB604DC20B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:96FB0C34A440CF54C0451887743C2AB604DC20B5
 magnet:?xt=urn:btih:07766BE9C9CE929F4D0374A0FEE335D402F59B7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:07766BE9C9CE929F4D0374A0FEE335D402F59B7D
 ```bash
 magnet:?xt=urn:btih:AA1B4C946D24AFFD3EC722364246EA5CCEBBFE34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:AA1B4C946D24AFFD3EC722364246EA5CCEBBFE34
 magnet:?xt=urn:btih:EC5FC669C038B7219979B937D2C5F77B901FBC4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:EC5FC669C038B7219979B937D2C5F77B901FBC4B
 ```bash
 magnet:?xt=urn:btih:9E8F158F45DB1EF009079652BDDDC44FA90DC1B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:9E8F158F45DB1EF009079652BDDDC44FA90DC1B4
 magnet:?xt=urn:btih:85A1785CDF1AA02F334F4C24956ADAC438F28BFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +356,8 @@ magnet:?xt=urn:btih:85A1785CDF1AA02F334F4C24956ADAC438F28BFA
 ```bash
 magnet:?xt=urn:btih:6F4AA998F76995E30939558DEB914CBFBDE3F99C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:6F4AA998F76995E30939558DEB914CBFBDE3F99C
 magnet:?xt=urn:btih:04FD206770113B7CD96B9A2BD567313EEDE28ACE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +408,8 @@ magnet:?xt=urn:btih:04FD206770113B7CD96B9A2BD567313EEDE28ACE
 ```bash
 magnet:?xt=urn:btih:72B21E03C9EAE2D09E8E636C865D5676AB4A0CC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:72B21E03C9EAE2D09E8E636C865D5676AB4A0CC8
 magnet:?xt=urn:btih:FE103FC4D50BA11DDA5BFD3BEDA9BE5F624CFB66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +460,8 @@ magnet:?xt=urn:btih:FE103FC4D50BA11DDA5BFD3BEDA9BE5F624CFB66
 ```bash
 magnet:?xt=urn:btih:8D10F70F7D82314F0E6CC93017EDB3252BABEC12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +487,8 @@ magnet:?xt=urn:btih:8D10F70F7D82314F0E6CC93017EDB3252BABEC12
 magnet:?xt=urn:btih:7E06D226C92FC6A72E13F316E93A269DC97938EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +512,8 @@ magnet:?xt=urn:btih:7E06D226C92FC6A72E13F316E93A269DC97938EC
 ```bash
 magnet:?xt=urn:btih:896EFD3466B6CD4EBB9C630E6D15A8FD7CBC900F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +539,8 @@ magnet:?xt=urn:btih:896EFD3466B6CD4EBB9C630E6D15A8FD7CBC900F
 magnet:?xt=urn:btih:F94DBCE6B7FFEBA615A88E66C0D66ABF993A334E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +564,8 @@ magnet:?xt=urn:btih:F94DBCE6B7FFEBA615A88E66C0D66ABF993A334E
 ```bash
 magnet:?xt=urn:btih:4FB6C4E557E1109B771336D5E1D53246BBBED3CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +591,8 @@ magnet:?xt=urn:btih:4FB6C4E557E1109B771336D5E1D53246BBBED3CD
 magnet:?xt=urn:btih:27C26A0DE6A7204A52E62CFC0B82A6C2060A2599
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +616,8 @@ magnet:?xt=urn:btih:27C26A0DE6A7204A52E62CFC0B82A6C2060A2599
 ```bash
 magnet:?xt=urn:btih:645C8DB60B063C0980627617B2C53A77D7B847DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +643,8 @@ magnet:?xt=urn:btih:645C8DB60B063C0980627617B2C53A77D7B847DA
 magnet:?xt=urn:btih:C985522B0AD45DF323C81A663E9AFA04561AF16B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,29 +669,7 @@ magnet:?xt=urn:btih:C985522B0AD45DF323C81A663E9AFA04561AF16B
 magnet:?xt=urn:btih:E433083BE270D0E794A1C5EDCB4CCD958C2CC729
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840048   (1047057) от 02.12.2025
-
-Мишень (2011) BDRip [H.264/720p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1047057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несколько человек из высших слоев общества, уставшие и пресыщенные, не хотят смириться с тем, что с годами теряют остроту чувств. Они не готовы встретить старость и решаются на отчаянный поступок - отправиться в дебри Алтая в заброшенный научно-исследовательский центр, в котором остался от былых времен накопитель элементарных частиц. Ходят слухи, что человек, который (   Читать дальше...   )Производство: Россия / Рен фильмЖанр: фантастика, драмаРежиссер: Александр ЗельдовичАктеры: Максим Суханов, Джастин Уэдделл, Виталий Кищенко, Данила Козловский, Даниэла Стоянович, Нина Лощинина, Александра Богданова (III), Виталий Михальцов, Алёна Полькина, Сергей Потапов (II), Игорь Серебряный, Антон Хабаров, Валерий Смирнов (II), Олег Ягодин, Наталья БатракПеревод: не требуетсяЯзык озвучки: русскийСубтитры: нетПродолжительность: 02:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96F76BDFBAB95447E31B540EB70410BDDE06B3E1
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

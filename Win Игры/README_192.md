@@ -19,6 +19,8 @@ Pepper Grinder - это ураганная двухмерная адвенчур
 magnet:?xt=urn:btih:EDB333FD31E1C6FB20F21832524827C941810397
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Sons of Valhalla - приключенческий сайд-скроллер с �
 ```bash
 magnet:?xt=urn:btih:E052A47EB3FC9EFE97ADC3B43E8CC7BE47EB64C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Yes, Your Grace (2020) [Ru/Multi] (1.0.20) License GOG
 magnet:?xt=urn:btih:BB25D3969CA5B76F56D521E8459C2C78BD31538B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Remnant 2 - это атмосферная и брутальная комбина
 ```bash
 magnet:?xt=urn:btih:4CDBEE4D0213209DC4B5F97AB39C1F89230FB80A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Turbo Overkill (2022) [Ru/Multi] (1.35) Scene Tenoke
 magnet:?xt=urn:btih:7B32D7C6AC7C77154D040BA8CDCAA9A86382B96B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Once a Tale - приключенческая игра с кинематогра�
 ```bash
 magnet:?xt=urn:btih:9BBC6A5649CAB913553A98EC0A51315ABAC0040E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ MADievals - The rise of Rusty Steelknee (2023) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:CCADF74E61AB27784958AD173AE3F43D1004EF0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Jawbreaker (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5BE314DF37DD97624794F4710EFB146114E89560
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Rise of the Triad: Ludicrous Edition – эпическая реинкарнац
 magnet:?xt=urn:btih:830154EA4F7DDEC8CFECA53B1A646285E9B4D154
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Crimson Tactics: The Rise of The White Banner - пошаговая тактич�
 ```bash
 magnet:?xt=urn:btih:F570AD3779FDCC39604C4CDAACEB19AB2C029720
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Sweet Transit – это градостроение, где все во мног
 magnet:?xt=urn:btih:7015EA57C33DB5E6EAD65164543F2A757FC939B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Life Eater - это симулятор культиста, сочетающий 
 ```bash
 magnet:?xt=urn:btih:4D8468084D3E2D60D31F59C495A3BB876DD774E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Heroes of Might and Magic VII / Меч и Магия Герои VII (2015) [Ru/M
 magnet:?xt=urn:btih:29594A5BF75A4D85585E70FC851ECA7A92FA0D24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Nexus 5X (2024) [Multi] (1.0.6717) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F51344A7A240B59036F6A886B22504DC1B9598C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Eclipse: Echo of Dimension – отправьтесь навстречу нев�
 magnet:?xt=urn:btih:E62BBCCDB82AE7EABF03D3F2A4A1BB52F2D0EB9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ ReMix погружает вас в мир музыкального хаоса, �
 ```bash
 magnet:?xt=urn:btih:9E5A8E64A5C79F1E1803A1A8EE88A7F001002C1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Tamarak Trail - это увлекательное приключение, кот
 magnet:?xt=urn:btih:DD3B12E2E886F396C4186B34314F758339184BEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Scott Whiskers in: the Search for Mr. Fumbleclaw - забавная приклю
 ```bash
 magnet:?xt=urn:btih:73CA1850746821225CB9D2A157F3A3E6A6299D4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ ColorBlend FX: Desaturation – сплатианцы будут смешиват
 magnet:?xt=urn:btih:BA9F6249813007B39141E66E58C29448A08C815B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Teenage Mutant Ninja Turtles Arcade: Wrath of the Mutants (2024) [Multi] (1.0) S
 ```bash
 magnet:?xt=urn:btih:FE6A2195408FAB4A14936ECA7EA8365274BAAA18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Eiyuden Chronicle: Hundred Heroes – это увлекательный фент
 magnet:?xt=urn:btih:74FD877770B74D87514C05F5D05FC23DEA4472F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Buccaneers! (2022) [Ru/Multi] (1.1.01) License GOG [VR]
 ```bash
 magnet:?xt=urn:btih:53662CD3FEEC096DB09ED6FBF91C2058274717A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Bloody Spell – это экшен слешер, который имеет ря�
 magnet:?xt=urn:btih:D8591B4DF6FF8BC51A01D679538D06BC92B4C90D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Lakeburg Legacies - это крайне необычный симулятор у
 ```bash
 magnet:?xt=urn:btih:B9E4580670C065508EBF6D48096328BDAB90B02A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Love Too Easily - это полномасштабный интерактивны
 magnet:?xt=urn:btih:A17F4B19C4F8ADE5893527268AF5020E8DA31C9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Divine Journey 2: The Five Books of Moses (2024) [En] (1.0) Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:0CEEB5215171CFEF0CCB96F39137B353BBA0FC32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

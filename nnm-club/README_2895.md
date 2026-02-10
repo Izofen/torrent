@@ -21,6 +21,8 @@ Another / Иная [2012, TV, 12 из 12 серий] HDTV 720p raw + rus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ Tребования: Nokia x6 RM-559   Скриншоты:(   Читать да�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ Tребования: Nokia x6 RM-559   Скриншоты:(   Читать да�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ Tребования: Nokia x6 RM-559   Скриншоты:(   Читать да�
 magnet:?xt=urn:btih:58D98305DFDBF3402588D7C3793DA58707208D40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:58D98305DFDBF3402588D7C3793DA58707208D40
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ Ubuntu Skin Pack способен быстро и без участия поль
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ Ubuntu Skin Pack способен быстро и без участия поль
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +215,8 @@ Tropico 4: Modern Times [En] (L) 2012 l RELOADED
 magnet:?xt=urn:btih:849C8228F96C73E7BEFFA776B9DDFAD85588A461
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:849C8228F96C73E7BEFFA776B9DDFAD85588A461
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:849C8228F96C73E7BEFFA776B9DDFAD85588A461
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ Operation Krabby Patty – веселая детская игра, расска�
 ```bash
 magnet:?xt=urn:btih:8E31BB01A5AFE8B56B89F7403719937CFE0C3938
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:8E31BB01A5AFE8B56B89F7403719937CFE0C3938
 magnet:?xt=urn:btih:969129020E3B0FB79D6C820D1E16145ECE7C05A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:969129020E3B0FB79D6C820D1E16145ECE7C05A8
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:969129020E3B0FB79D6C820D1E16145ECE7C05A8
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ CD1:
 magnet:?xt=urn:btih:6565969FC4E3E31FE45FB745834255C7324D8728
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ Microsoft Windows Server 2008 SP2 (x64-x86) VOLUME [ENGLISH]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +456,8 @@ Sysadmins Flash Prof Edition 1.1
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +490,8 @@ Windows 7 Максимальная SP1 x64 DVD WPI (2012) PC 7 [РУССКИЙ]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +515,8 @@ Windows 7 Максимальная SP1 x64 DVD WPI (2012) PC 7 [РУССКИЙ]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +543,8 @@ Rayman Origins [Ru] (RePack) 2012 | shidow
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +568,8 @@ Windows 7 (x64/x86) Ultimate UralSOFT 3.8.12 [Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +595,8 @@ Windows 7 (x64/x86) Ultimate UralSOFT 3.8.12 [Русский]
 magnet:?xt=urn:btih:9E956C9187B3FB770ED4A23025F73EC54B4B2A08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +620,8 @@ Zолушка (2012) DVDRip
 ```bash
 magnet:?xt=urn:btih:28BC85C1AFF19F7E8028A90F717E108086AC9A06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +647,8 @@ magnet:?xt=urn:btih:28BC85C1AFF19F7E8028A90F717E108086AC9A06
 magnet:?xt=urn:btih:9551847A16F10606376E66E705512A88D71281FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +672,8 @@ magnet:?xt=urn:btih:9551847A16F10606376E66E705512A88D71281FD
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +699,8 @@ magnet:?xt=urn:btih:9551847A16F10606376E66E705512A88D71281FD
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

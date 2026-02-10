@@ -21,6 +21,8 @@ Piezo не требует никаких настроек, достаточно 
 magnet:?xt=urn:btih:751A4966B0CAEF071D337D745BD890742A8CB8E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Overlay 4.15 [En]
 magnet:?xt=urn:btih:6FD0D7C087D31EEBBB95B04E831E6E76152CC0DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:BB6FDA9748C9B4F72186BA6A801282D2AC9B3AF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Sublime Merge - клиент системы контроля версий, ко�
 magnet:?xt=urn:btih:82082DC0F89D03B86097A43A5CA16839BB49B7AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ Total Commander Extended - это x86 и x64 версии Total Commander в о�
 magnet:?xt=urn:btih:301D7BDB2FE1ED349D594321EF655C5074BAE3D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ OpenShot Video Editor - видеоредактор, позволяющий ле�
 ```bash
 magnet:?xt=urn:btih:F50D91EF330E2C0FA05F357FCCB1C33F22D3FD62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ EverWeb даже создает мобильные сайты, которые о
 magnet:?xt=urn:btih:667AE2FD65F6B6D40A53EDDC477904B84DEFFCA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ Mem Reduct - это легкое и хорошо себя зарекомендо
 ```bash
 magnet:?xt=urn:btih:E7701D7090F96FD9CB909C96EC193963DD32DCC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:E7701D7090F96FD9CB909C96EC193963DD32DCC2
 magnet:?xt=urn:btih:85FC66151AAE6A38CFD23611839AA90F5A217B8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:85FC66151AAE6A38CFD23611839AA90F5A217B8B
 magnet:?xt=urn:btih:9B0BE682686EEC05E77BA400D0C2734AA90FFD7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ QLPro Studio инструмент управления базами данных
 ```bash
 magnet:?xt=urn:btih:0D90989F8E3AC1C9D94972A73D46CF2E192029D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ MetaProducts Offline Explorer Enterprise — мощнейшая программ
 magnet:?xt=urn:btih:2688B08559B01994090EA3B292FD11500E84D624
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ RAR Extractor может извлекать сжатые файлы во все�
 ```bash
 magnet:?xt=urn:btih:0566276D9C89CB61A0666FA7418A3BEC40C61BEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ PortableApps.com Platform - это функциональная платформ
 magnet:?xt=urn:btih:0516BFC97B0C451E03C9E302878DD6D19DD62843
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:0516BFC97B0C451E03C9E302878DD6D19DD62843
 magnet:?xt=urn:btih:65947155E65120B57BC407C1D29FAEC6F78937E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ Cascadea 1.5.1 [En]
 ```bash
 magnet:?xt=urn:btih:45D84B33F2CDC277A7419E6A96114AEB3B1061D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +454,8 @@ Tixati — это полноценный и бесплатный клиент с
 magnet:?xt=urn:btih:E115EF69B8608951FBB919C9737F10CC2BF2BC9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ SQLPro for SQLit‪e - профессиональный менеджер баз 
 ```bash
 magnet:?xt=urn:btih:38976BE211AFCDDC0ACBDF7070D36AA434898F2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ Viper FTP (ранее ViaFTP) - простой и очень удобный FTP-
 magnet:?xt=urn:btih:52D93EA60291A83822E868FA1F8EC3E73CD0FE3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ VideoProc - новая усовершенствованная версия пр�
 ```bash
 magnet:?xt=urn:btih:9CA50708E3B293BD8E950EF6BFA10F9E69B1A9C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +559,8 @@ Farrago предоставляет лучший способ быстрого в
 magnet:?xt=urn:btih:1D8CE848060ED6D763C10E4670A7496712BEDF2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ Donemax Data Recovery для Mac предоставляет простой сп�
 ```bash
 magnet:?xt=urn:btih:DA88A9E9DD2DF2F390375649AD7FB840F417B300
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +611,8 @@ Easy Notes - записная книжка, блокнот бесплатно, �
 magnet:?xt=urn:btih:156DEA5923372126B1656DDEDCE9026E060B43AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ Wondershare UniConverter - простой в использовании виде
 ```bash
 magnet:?xt=urn:btih:3DD2B722ED1CF34D8352CFFCFA70126A4FF107BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +663,8 @@ Password Repository - это менеджер паролей, который н�
 magnet:?xt=urn:btih:85A8F817677E19C8E331C584EAE8371A0671B240
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ IceCream Ebook Reader Pro 6.31 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:66758FED4D9B16A78B390284B51675EC7BEFC0D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

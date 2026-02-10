@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:BB5C71280C447E944F22C8CC9FC8017282AF3191
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ VA - A 40 Track Compilation: New York (2022) [AAC|~332 Kbps] <Progressive House,
 ```bash
 magnet:?xt=urn:btih:D4A138E2C19296074D5E7922C09A9AA6DD88C343
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - The Best of Transensations 2021 (2022) [AAC|~332 Kbps] <Progressive House, 
 magnet:?xt=urn:btih:C86102024E3C9BFD4FE1F91A57B504DE07E1CC64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ VA - 5 Years of Nazca compilation (2022) [AAC|~335 Kbps] <Organic House, Melodic
 magnet:?xt=urn:btih:9DA5C684E55CA874AF151BDB4C1FA1DE9F54BF02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:F024FD7FC63D7B37FBBA95FE5C8E09C73A134F9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +170,8 @@ VA - Русские Новинки Vol.49 from AGR (2012) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:3E3B3A18D65B81E939B039CE10A3F0F42A525289
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +195,8 @@ iStatistica Pro - подробный монитор системных ресу�
 ```bash
 magnet:?xt=urn:btih:00A0A24FC48F49429A1DBA9C23CA0E11947655FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ magnet:?xt=urn:btih:00A0A24FC48F49429A1DBA9C23CA0E11947655FE
 magnet:?xt=urn:btih:7CA15C5786ABFE98278A57E7A2D6B86C0CA5B432
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -232,6 +248,8 @@ Raising Jake Studios - Cans 2 Cones 4.0.0 VST, VST3, AAX (x64) [En]
 magnet:?xt=urn:btih:372ECDF1302B15433C65A31D4D06EE7369A75625
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +273,8 @@ magnet:?xt=urn:btih:372ECDF1302B15433C65A31D4D06EE7369A75625
 ```bash
 magnet:?xt=urn:btih:FE800B706FAB20A38F6D7033ED8CAA78894C4944
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -282,6 +302,8 @@ Arch/Matheos - Sympathetic Resonance (2011) [FLAC|Lossless|image + .cue] <Progre
 ```bash
 magnet:?xt=urn:btih:680D8371F6A3608E97EA01DF258794404D633232
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +338,8 @@ VA - Клубные Новинки Vol.68 from AGR (2012) [MP3|320 кб/с]<Club
 magnet:?xt=urn:btih:6FF6F849A580AF10F5C8AECC9472412B350EAF3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +363,8 @@ magnet:?xt=urn:btih:6FF6F849A580AF10F5C8AECC9472412B350EAF3C
 ```bash
 magnet:?xt=urn:btih:45920611A118D79AD336D6BA9D39CC4EB00524BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +390,8 @@ magnet:?xt=urn:btih:45920611A118D79AD336D6BA9D39CC4EB00524BA
 magnet:?xt=urn:btih:31B617608B8784C0E498D94859C9DC8073A95AE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +415,8 @@ magnet:?xt=urn:btih:31B617608B8784C0E498D94859C9DC8073A95AE0
 ```bash
 magnet:?xt=urn:btih:B74124AA57D15EDAFFBB9836FAC0F2DE05DF1A40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +442,8 @@ magnet:?xt=urn:btih:B74124AA57D15EDAFFBB9836FAC0F2DE05DF1A40
 magnet:?xt=urn:btih:6D8FD2221C423AE21773B434FF1D7BCEA5210F35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +468,8 @@ magnet:?xt=urn:btih:6D8FD2221C423AE21773B434FF1D7BCEA5210F35
 magnet:?xt=urn:btih:D476448B4D6CBFB6BD1507F907BC0DF59A238521
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +493,8 @@ magnet:?xt=urn:btih:D476448B4D6CBFB6BD1507F907BC0DF59A238521
 ```bash
 magnet:?xt=urn:btih:D5D1CF0133DF146736C4B1E2394252D4F3404115
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +523,8 @@ Beach House - Once Twice Melody (2022) 3[EP] [FLAC|Lossless|WEB-DL|tracks] <Drea
 magnet:?xt=urn:btih:4A51A5457A39D18F5DCED5C879890FD0622C3A52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +548,8 @@ magnet:?xt=urn:btih:4A51A5457A39D18F5DCED5C879890FD0622C3A52
 ```bash
 magnet:?xt=urn:btih:8FB3A0DFADA5703DD6941440FE946C54AD87AC9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +575,8 @@ Nova поддерживает отдельные задачи сборки, за
 ```bash
 magnet:?xt=urn:btih:0D9916E856352D20BF767944DF3436D16751EC01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +611,8 @@ VA - Зарубежные Новинки Vol.45 from AGR (2012) [MP3|320 кб/с
 magnet:?xt=urn:btih:5AE7008E21AB5972A50D4433E5AD6277F9D57086
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +640,8 @@ Cenotaph - Epic Rites (9 Epic Tales & Death Rites) (1996) [FLAC|Lossless|image +
 magnet:?xt=urn:btih:171081526FF3C6C144B6C407679540E013DD595E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +665,8 @@ magnet:?xt=urn:btih:171081526FF3C6C144B6C407679540E013DD595E
 ```bash
 magnet:?xt=urn:btih:71D8F78056A26364EAD01C13F1B71CB3079C2F86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +692,8 @@ DoYourData Start Menu Pro 4.6 [En]
 magnet:?xt=urn:btih:160F21E880C73973BD02CE2A0995E73EEFD045F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +717,8 @@ Sandboxie - yтилита для контроля за работой разли
 ```bash
 magnet:?xt=urn:btih:F2D516D5951E19D752A9E0A290F57CD462D0E629
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -21,6 +21,8 @@ Udemy, Cipher Schools | Game Development for Beginners using Unity and C# (2025)
 magnet:?xt=urn:btih:85F7635548CC27E2704E601335AA8FD81CF07404
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ PurpleSchool, Антон Ларичев | Основы тестирования 
 ```bash
 magnet:?xt=urn:btih:5013E3E3FE81CA10FBA1EDD1C78707CB25F71C12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Flow - конференция по системному и бизнес-анал
 magnet:?xt=urn:btih:B90B6C28786331C5F71371F15444CC0D15088225
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Deworker Pro, Дмитрий Елисеев | Идеи разделения на
 magnet:?xt=urn:btih:B350FF4C46EC1923E03014363C62A22807ADAB5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ JUG Ru Group | SmartData 2024. Конференция по инженерии д
 magnet:?xt=urn:btih:84554E7FA962545DD5F25020EEB7DFBC1754B306
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ Systems.Education, Babok School, Анна Вичугова | Паттерны п
 ```bash
 magnet:?xt=urn:btih:D01F4F1A53F308E937BAEA3F36997475DBC0F80A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:D01F4F1A53F308E937BAEA3F36997475DBC0F80A
 magnet:?xt=urn:btih:CCB00C1CDC8AE210B76B5F11B8599E80F8CCAAC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:CCB00C1CDC8AE210B76B5F11B8599E80F8CCAAC4
 magnet:?xt=urn:btih:6ADC26EB74F82DBF1173C35E17B3B795D49840C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ PurpleSchool, Антон Ларичев | React state менеджер Zustand (
 ```bash
 magnet:?xt=urn:btih:1F9555D90F141619D7C65C5D3B362BD043D32F2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ GetAnalyst | Интеграции: подходы к решению практи
 magnet:?xt=urn:btih:3E7B5F1025F156D9DB069D849E94EB753870CCF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ Udemy, Михаил Непомнящий | Тестирование JavaScript �
 ```bash
 magnet:?xt=urn:btih:313C6A9438DE711D7981A9C5C61AA4AA100CA063
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ GetAnalyst | Проектирование БД - подходы к решени�
 magnet:?xt=urn:btih:66B12B886AF327A61238D1B964AD1EBBC505E367
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ Joker - это конференция для специалистов по Java,
 ```bash
 magnet:?xt=urn:btih:3955C4F5D5849DCF9A410015A1B6FC4FEC41A6E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ K-syndicate (Knowledge Syndicate), Анатолий Колесник | Advanced 
 magnet:?xt=urn:btih:6D38335E8781DA1A8AE2E3B973A8EB50FA3E8650
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ GoFunc - конференция для тех, кто использует Go в
 ```bash
 magnet:?xt=urn:btih:5BC288F9496C8EEC30F7E0186101C8B32220F657
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ PurpleSchool, Антон Ларичев | Neovim - практика и наст�
 ```bash
 magnet:?xt=urn:btih:7FEA0447825C14E506E678795270407C1E7D16A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ magnet:?xt=urn:btih:7FEA0447825C14E506E678795270407C1E7D16A7
 magnet:?xt=urn:btih:A329DC2624C2C011A31C952E9903344054CDFD6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ Udemy | Шахматы на JavaScript (2018) PCRec [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:11DEE239D94014BACF89BA90CA3037736D2AEB2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +512,8 @@ Spring Security представляет собой самый известны�
 magnet:?xt=urn:btih:6589A526CD50844C98B5E6C64720FB32542E1B7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +537,8 @@ Skillfactory, Иван Кудрявин | Специалист по киберб
 ```bash
 magnet:?xt=urn:btih:1E50284705E668E93F2B8324C914A822569D0081
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +564,8 @@ Pluralsight | AngularJS for .NET Developers (2013) PCRec [EN]
 magnet:?xt=urn:btih:765852EE575DEF7F34FD9E873D361878800952DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +589,8 @@ React - это библиотека, которая, по своей филос�
 ```bash
 magnet:?xt=urn:btih:548B663D21C431DE5A20607ED3E5F78C53EF5B34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +616,8 @@ DevOops 2024 - конференция, посвященная инженерны
 magnet:?xt=urn:btih:996BE156303E6FAB65437C32C1661011DB677E19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +641,8 @@ Udemy, Андрей Суховицкий | Основы Domain Driven Design (20
 ```bash
 magnet:?xt=urn:btih:7C5DC88712C8FF1D26FD9E0D07448A61E2BDB12D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +671,8 @@ Jeffrey Way | Laracasts Full Dump (2025) WEB-DL [EN / EN Sub] [Дамп сайт
 magnet:?xt=urn:btih:539D9360D67E67781C0DB654F8BE0BBB99E1EA0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +696,8 @@ Rebrain, Денис Сальников | RabbitMQ (2024) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:9275A300B515FCDC24AF948D9540052EE255A709
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

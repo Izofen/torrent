@@ -1,3 +1,31 @@
+###  Публикация: 1120983   (801013) от 01.04.2017
+
+Александр Рудазов | Экипаж (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801013.jpg" />
+</div>
+
+
+###  Подробнее
+
+До той роковой встречи в темной подворотне Михаил Ежов на судьбу не жаловался: трудился себе частным детективом, регулярно посещал тренажерный зал, не имел семьи, зато имел множество друзей (и подружек) – чем не жизнь?
+Но одной прекрасной (точнее, ужасной) ночью он, на свою беду, обменялся рукопожатием непонятно с кем.
+И что же теперь делать бедолаге, оказавшемуся (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 17:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F524CB282EE25E9C3EE5ECA914ED55628DA12FD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120771   (801059) от 01.04.2017
 
 Евгений Кострица | Рарник (2017) [MP3]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:B73FCC61123B514D29081778480D869D77C0E0FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +73,8 @@ magnet:?xt=urn:btih:B73FCC61123B514D29081778480D869D77C0E0FB
 magnet:?xt=urn:btih:912364410C97EAFCB5DEAE204B39E1A255010C8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +98,8 @@ magnet:?xt=urn:btih:912364410C97EAFCB5DEAE204B39E1A255010C8D
 ```bash
 magnet:?xt=urn:btih:BAFE80E1F6013A75BE6EB162C25A0DAE7BFAC8B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +125,8 @@ magnet:?xt=urn:btih:BAFE80E1F6013A75BE6EB162C25A0DAE7BFAC8B8
 magnet:?xt=urn:btih:2E27F06E91468EE5BE3BDA8866E4C2332B89D620
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +150,8 @@ magnet:?xt=urn:btih:2E27F06E91468EE5BE3BDA8866E4C2332B89D620
 ```bash
 magnet:?xt=urn:btih:E6BDA599EE95E943AFC27E22B7166F21B8D94521
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +177,8 @@ magnet:?xt=urn:btih:E6BDA599EE95E943AFC27E22B7166F21B8D94521
 magnet:?xt=urn:btih:4EC622859CBF8664A22B2D5FBA8F71C0794D4524
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +202,8 @@ magnet:?xt=urn:btih:4EC622859CBF8664A22B2D5FBA8F71C0794D4524
 ```bash
 magnet:?xt=urn:btih:9CE2B3BE41B9255458D353D0A39BDEDB8A8F1DC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +231,8 @@ magnet:?xt=urn:btih:9CE2B3BE41B9255458D353D0A39BDEDB8A8F1DC8
 magnet:?xt=urn:btih:B99F63651BC31E53E674B620E4A54FBCFFCB6FEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +256,8 @@ magnet:?xt=urn:btih:B99F63651BC31E53E674B620E4A54FBCFFCB6FEE
 ```bash
 magnet:?xt=urn:btih:352890D12A764836C1B4653A3C952AF76B86F786
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +283,8 @@ magnet:?xt=urn:btih:352890D12A764836C1B4653A3C952AF76B86F786
 magnet:?xt=urn:btih:9F184C094686DA40F9CE5F2EB11305A942351155
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +308,8 @@ magnet:?xt=urn:btih:9F184C094686DA40F9CE5F2EB11305A942351155
 ```bash
 magnet:?xt=urn:btih:3B44883673B9EEA87B2928F2048DFE6846604789
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +335,8 @@ magnet:?xt=urn:btih:3B44883673B9EEA87B2928F2048DFE6846604789
 magnet:?xt=urn:btih:FC6D263FCEFB96225173CFEF4B8D05067A08D8E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +360,8 @@ magnet:?xt=urn:btih:FC6D263FCEFB96225173CFEF4B8D05067A08D8E8
 ```bash
 magnet:?xt=urn:btih:26EFE42BEE3C0F3DBB8F3BC7A40C89D2D90DD69B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +387,8 @@ magnet:?xt=urn:btih:26EFE42BEE3C0F3DBB8F3BC7A40C89D2D90DD69B
 magnet:?xt=urn:btih:94EF9296E92E76B583CEFB9E4D764CEB8DAD5780
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +412,8 @@ magnet:?xt=urn:btih:94EF9296E92E76B583CEFB9E4D764CEB8DAD5780
 ```bash
 magnet:?xt=urn:btih:65BD1B0CAA374D8D427E279F53E473EB258461F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +439,8 @@ magnet:?xt=urn:btih:65BD1B0CAA374D8D427E279F53E473EB258461F3
 magnet:?xt=urn:btih:7F4E8A68242FF63BCFBAFB87C1DBF4DEF924B21C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +464,8 @@ magnet:?xt=urn:btih:7F4E8A68242FF63BCFBAFB87C1DBF4DEF924B21C
 ```bash
 magnet:?xt=urn:btih:4A3C8B838244D77709BFFC93FD8C2A6EEC53EB3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +491,8 @@ magnet:?xt=urn:btih:4A3C8B838244D77709BFFC93FD8C2A6EEC53EB3B
 magnet:?xt=urn:btih:2918244AC1821B7E520787565FE1D742A56149E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +516,8 @@ magnet:?xt=urn:btih:2918244AC1821B7E520787565FE1D742A56149E2
 ```bash
 magnet:?xt=urn:btih:5A805E28A34676B77180FDFBB8A49249DB3ABB19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +543,8 @@ magnet:?xt=urn:btih:5A805E28A34676B77180FDFBB8A49249DB3ABB19
 magnet:?xt=urn:btih:481846B9F52DEE1934F84C24C22B0340BF3F03F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +568,8 @@ magnet:?xt=urn:btih:481846B9F52DEE1934F84C24C22B0340BF3F03F3
 ```bash
 magnet:?xt=urn:btih:1E9C9B3161FB434FCAF64F1EDC4DC54E95EBCC18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +596,8 @@ magnet:?xt=urn:btih:1E9C9B3161FB434FCAF64F1EDC4DC54E95EBCC18
 magnet:?xt=urn:btih:F11AB15D86765BC37F6349635B1D81BDA1F0CEDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +623,8 @@ magnet:?xt=urn:btih:F11AB15D86765BC37F6349635B1D81BDA1F0CEDD
 magnet:?xt=urn:btih:C2B997899AFE32620A0FC68A95CE9288CCAE6145
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +648,8 @@ magnet:?xt=urn:btih:C2B997899AFE32620A0FC68A95CE9288CCAE6145
 ```bash
 magnet:?xt=urn:btih:1AFF88BB800CB927A3836A3179FA0131B86FB258
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,29 +675,7 @@ magnet:?xt=urn:btih:1AFF88BB800CB927A3836A3179FA0131B86FB258
 magnet:?xt=urn:btih:4755F68CC7092BC59F77D4BD08F1FD23CE5A52E9
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010776   (802116) от 25.04.2016
-
-Василий Маханенко | Гамбит Картоса (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новейшие технологии позволили создать Барлиону – виртуальный мир развлечений, отдыха и общения. Правительство выступило гарантом легитимности игровых денег и их свободного обмена на реальные кредиты. Население почувствовало «халяву» и хлынуло в Барлиону. И кто-то, разумеется, додумался превратить Барлиону в место наказания преступников. Тело осужденного помещали (   Читать дальше...   )Жанр: Фэнтези. LitRPGПродолжительность: 12:50:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E4D1FE729FFB8715FB4E6455994E91B9A577350
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

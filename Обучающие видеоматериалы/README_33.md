@@ -22,6 +22,8 @@ Kaminskaya_sew | Мастер-класс по пошиву постельног�
 magnet:?xt=urn:btih:1FC389A21D9B2A3BE4BADE206B238918AD106A7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ magnet:?xt=urn:btih:1FC389A21D9B2A3BE4BADE206B238918AD106A7A
 magnet:?xt=urn:btih:9D26BE5E3A1408C6E95FBBA88674E7207A8327E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ ML-инженер - это специалист, который находитс
 ```bash
 magnet:?xt=urn:btih:2BAB2EA79A752FE3473EA18E685C2FDCC3F8A9E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:2BAB2EA79A752FE3473EA18E685C2FDCC3F8A9E1
 magnet:?xt=urn:btih:7118D1EE63A2A084ECE641274030305C2BB3E3C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +136,8 @@ magnet:?xt=urn:btih:7118D1EE63A2A084ECE641274030305C2BB3E3C6
 ```bash
 magnet:?xt=urn:btih:CC65EEF2DB9FAF7EFEBF139B582DB8BB7DAA5C67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:CC65EEF2DB9FAF7EFEBF139B582DB8BB7DAA5C67
 magnet:?xt=urn:btih:CB7B5361B2487B1A9DCA89C4238728585A3BBFE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -179,6 +191,8 @@ CG Cookie, Kent Trammell | Creating a Stylized 3D Forest Environment with Blende
 ```bash
 magnet:?xt=urn:btih:B1D57A7DD8C12A68D663C309B6AD998FA001302E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -207,6 +221,8 @@ Udemy, Brad Traversy | Next.js From Scratch 2024 (2024) WEB-DL [EN]
 magnet:?xt=urn:btih:0C566BB65854A36B9D0C128CDFEF45634BE125DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +247,8 @@ Udemy, Ерлан Тургумбаев | Финансовое моделиров
 ```bash
 magnet:?xt=urn:btih:D12F7613D6B13694C01DA2335642C2B5C8EB9D88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -257,6 +275,8 @@ NK707: Глубокий композитинг в Nuke (NK707: Deep Compositing 
 ```bash
 magnet:?xt=urn:btih:4F09E845F6B814731571CE62CB9AAEB6E25C4BAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +305,8 @@ Skillbox, Андрей Миронов, Екатерина Воронина | И�
 magnet:?xt=urn:btih:076C50072FAC5B708478D854CB1CD268EBE78D1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +334,8 @@ Podlodka | Podlodka PHP Crew #3 (2023) WEB-DL [RU]
 magnet:?xt=urn:btih:CBABB533A335350096CE213C4A199D5736A6A56F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +360,8 @@ AlgoExpert | Become an Algorithms Expert (2024) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:853A3F5B97E75EB383631FC6073821EA9D5FDA42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +390,8 @@ magnet:?xt=urn:btih:853A3F5B97E75EB383631FC6073821EA9D5FDA42
 magnet:?xt=urn:btih:E34BD361090860A4A2D7539A30A0CB860073FA6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +416,8 @@ Udemy, Ilyas Shakenov | Финансовая математика (2024) WEB-DL 
 ```bash
 magnet:?xt=urn:btih:4532D83287A4D286C39DDC8C20AEBC52A4BEE91D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +446,8 @@ QA.GURU, Артём Eрошенко, Aлексей Виноградов, Ром�
 magnet:?xt=urn:btih:9DCD83D7DD7F6DF15FC598F9F01B803D30C3143F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +471,8 @@ Alex Klimov | Основы Python для алготрейдинга (2023) WEB-D
 ```bash
 magnet:?xt=urn:btih:F45348A922D8D003DDC189A5B7120C50C020CAD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +501,8 @@ magnet:?xt=urn:btih:F45348A922D8D003DDC189A5B7120C50C020CAD6
 magnet:?xt=urn:btih:243C8023A7D888B82F6D9F8FA4E88C7DD1507C88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +529,8 @@ Infostart, Римма Фролова | Сложный учет НДС в 1С - E
 ```bash
 magnet:?xt=urn:btih:5D15F7D2EF0A74EF55CD5788F13DA7E5C9C05B6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +559,8 @@ magnet:?xt=urn:btih:5D15F7D2EF0A74EF55CD5788F13DA7E5C9C05B6A
 magnet:?xt=urn:btih:4301173D096A5BB96F089961A63A0FD4A77D72FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +586,8 @@ Udemy, Alexey Belov | Как пройти Junior Python собеседовани
 ```bash
 magnet:?xt=urn:btih:72B7B609514F5F19596DBB7C1ECFF39286F6E604
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +616,8 @@ Cамая интересная новость — GPT Store для создан�
 magnet:?xt=urn:btih:333A002FBFC6813181099660BA21A6CC4DD220A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +644,8 @@ magnet:?xt=urn:btih:333A002FBFC6813181099660BA21A6CC4DD220A1
 ```bash
 magnet:?xt=urn:btih:9FDF71918143E0C56FFBBF88E5F1B326CDF1FF02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +674,8 @@ Ai-Centr, Роман Кумар Виас, Кирилл Макушкин | ChatGP
 magnet:?xt=urn:btih:73424D13D62FFE54B3D4F5EAEC1B45EC892F343B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +703,8 @@ Stepik, Сергей Балакирев | Добрый, добрый Django с �
 magnet:?xt=urn:btih:19A76F7EE52E192602A05B1779B6DD3EE94C934E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -680,6 +730,8 @@ Udemy, Meritshot Academy | Statistics and Hypothesis Testing for Data science (2
 ```bash
 magnet:?xt=urn:btih:FE471441B879E0404A96AD2FB79EBA6ADF29B94D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

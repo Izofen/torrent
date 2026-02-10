@@ -1,3 +1,30 @@
+###  Публикация: 1606350   (1044478) от 21.01.2023
+
+"Ласточки" КГБ (2023) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Актрисы, завербованные Комитетом госбезопасности.
+Актриса Лариса Кронберг вела двойную жизнь. В кино она играла роли правильных советских девушек, а по заданию КГБ – роковых соблазнительниц. Два в одном – актриса и шпионка. Девушек, которые вступали в сексуальную связь с иностранцами, представляющими интерес для КГБ, спецслужбы называли "ласточками". Манекенщица (   Читать дальше...   )Телекомпания: Россия | ТВЦЖанр: документальныйПродолжительность: 00:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA658CE5798FB8623C1834DA06B84C6D3D50C8EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606389   (1044497) от 21.01.2023
 
 Насекомые — гении стратегии / Insects, Geniuses Strategy (2021) HDTVRip (серии 1-2 из 2)
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:17B3C4BD7BAD9CF92D162CD1E60FC4EEFF2F09E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:17B3C4BD7BAD9CF92D162CD1E60FC4EEFF2F09E8
 magnet:?xt=urn:btih:2FA3D39EB2575A35413DCD1647BEAD9663694186
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +97,8 @@ magnet:?xt=urn:btih:2FA3D39EB2575A35413DCD1647BEAD9663694186
 ```bash
 magnet:?xt=urn:btih:D9923C7AA7EF7EE60DF39D974626A16E4D0BF262
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +127,8 @@ magnet:?xt=urn:btih:D9923C7AA7EF7EE60DF39D974626A16E4D0BF262
 magnet:?xt=urn:btih:BB357008E20E23DD478EEA9CBBD15844AE5EACB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +152,8 @@ magnet:?xt=urn:btih:BB357008E20E23DD478EEA9CBBD15844AE5EACB9
 ```bash
 magnet:?xt=urn:btih:F631A84067FAC68247A9AB4E262D9401A57C33EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +179,8 @@ magnet:?xt=urn:btih:F631A84067FAC68247A9AB4E262D9401A57C33EC
 magnet:?xt=urn:btih:886CA6C5EB1B584DA355B198D2A985C166C8AB8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +204,8 @@ magnet:?xt=urn:btih:886CA6C5EB1B584DA355B198D2A985C166C8AB8D
 ```bash
 magnet:?xt=urn:btih:2E0B3C9F8064F61C7A33DB34224B4E84E280B4F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +231,8 @@ magnet:?xt=urn:btih:2E0B3C9F8064F61C7A33DB34224B4E84E280B4F5
 magnet:?xt=urn:btih:92B89C81EC28C5ADC30107E3EC6A9434FBD50A43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +256,8 @@ magnet:?xt=urn:btih:92B89C81EC28C5ADC30107E3EC6A9434FBD50A43
 ```bash
 magnet:?xt=urn:btih:84A2957433C3E60331A9ADC153BE624F3B3044E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +283,8 @@ magnet:?xt=urn:btih:84A2957433C3E60331A9ADC153BE624F3B3044E5
 magnet:?xt=urn:btih:67F398E2E6172FAD501AADCD93CE8C79483E5384
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +308,8 @@ magnet:?xt=urn:btih:67F398E2E6172FAD501AADCD93CE8C79483E5384
 ```bash
 magnet:?xt=urn:btih:8E00321AFC6C20D1D2D24B777D76B407402BC8E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +335,8 @@ magnet:?xt=urn:btih:8E00321AFC6C20D1D2D24B777D76B407402BC8E4
 magnet:?xt=urn:btih:3632751D011F448F335E7CE5C48DA8E15223397B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +360,8 @@ magnet:?xt=urn:btih:3632751D011F448F335E7CE5C48DA8E15223397B
 ```bash
 magnet:?xt=urn:btih:E46D86AF21A231FBACEFF706953AE08959CCA3C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +387,8 @@ magnet:?xt=urn:btih:E46D86AF21A231FBACEFF706953AE08959CCA3C5
 magnet:?xt=urn:btih:975E9EFAD573133CFC0BD6BC518A8CD59964775E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +412,8 @@ magnet:?xt=urn:btih:975E9EFAD573133CFC0BD6BC518A8CD59964775E
 ```bash
 magnet:?xt=urn:btih:0D4CE927F8FF2E98B51C27C2CBBADFC1BE6BD7AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +439,8 @@ magnet:?xt=urn:btih:0D4CE927F8FF2E98B51C27C2CBBADFC1BE6BD7AC
 magnet:?xt=urn:btih:8295038D4BB96E4F916BCF2DF7CBF06CB473C507
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +465,8 @@ magnet:?xt=urn:btih:8295038D4BB96E4F916BCF2DF7CBF06CB473C507
 magnet:?xt=urn:btih:C5E63DD6189EF24DC7D946E8A9F8716028D3BCED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +490,8 @@ magnet:?xt=urn:btih:C5E63DD6189EF24DC7D946E8A9F8716028D3BCED
 ```bash
 magnet:?xt=urn:btih:D32E0617557152404ADEAFF3B546DCF6FD7500A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +518,8 @@ C-Walk Как Образ Жизни / C-Walk: It's a Way of Livin' (2003) [H.264
 magnet:?xt=urn:btih:8DD05103D137D310553AB4426E842BE73BE036FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +543,8 @@ magnet:?xt=urn:btih:8DD05103D137D310553AB4426E842BE73BE036FA
 ```bash
 magnet:?xt=urn:btih:CAA308C9C049711B43D2356A9E5FD54275B9D948
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +570,8 @@ magnet:?xt=urn:btih:CAA308C9C049711B43D2356A9E5FD54275B9D948
 magnet:?xt=urn:btih:6A360D3E5933148B6474B0222557E1CF41A8B66D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +595,8 @@ magnet:?xt=urn:btih:6A360D3E5933148B6474B0222557E1CF41A8B66D
 ```bash
 magnet:?xt=urn:btih:450401AEB92ABAEF2C1192556E80485A55E8E447
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +622,8 @@ magnet:?xt=urn:btih:450401AEB92ABAEF2C1192556E80485A55E8E447
 magnet:?xt=urn:btih:188B5A648ABD471A309491171B89FD524AA770E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +647,8 @@ magnet:?xt=urn:btih:188B5A648ABD471A309491171B89FD524AA770E3
 ```bash
 magnet:?xt=urn:btih:452A06D72764A8E0805B96147452505F7CB2B44F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,29 +674,7 @@ magnet:?xt=urn:btih:452A06D72764A8E0805B96147452505F7CB2B44F
 magnet:?xt=urn:btih:B262468BC3BE818314AC8DB67D696224FF44391A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604683   (1045295) от 14.01.2023
-
-Рождение, брак и смерть в эпоху средневековья / Medieval Lives: Birth, Marriage, Death (2013) WEB-DL [H.264/1080p] (серии 1-3 из 3)
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Говорят, прошлое - это иная сторона. Тогда все делали по-другому. Однако как именно по-другому средневековый мир исполнял три самых важных этапных ритуала: рождение, брак и смерть. То, каким образом, мы исполняем эти фундаментальные этапы в нашей жизни, много говорит о наших мыслях и верованиях. Для людей средневековья эта жизнь значила многое, но ещё большее значение (   Читать дальше...   )Производство: Великобритания, BBC Scotland, Matchlight LtdЖанр: документальный, историяРежиссер: Люси СвинглерПеревод: одноголосый профессиональный (SDI Media)Субтитры: английскиеПродолжительность: 3x ~00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:828C351072A815071155BE2212F19054E2F5FF1B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

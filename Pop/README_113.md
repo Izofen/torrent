@@ -22,6 +22,8 @@ VA - ZYX Italo Disco New Generation Vol. 15 (2019) 2CD, Compilation [FLAC|Lossle
 magnet:?xt=urn:btih:52FF031A5CAE6EA4871C378B0EE5BF6FFC50EFCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:3EDDEB88762DAE0D88F9699793B7F77F84650565
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:3EDDEB88762DAE0D88F9699793B7F77F84650565
 magnet:?xt=urn:btih:906F7FDD0398598757E6CD87F5508E1A3F54A9C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Bananarama - True Confessions (1986) Reissue, 1988, London Records [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:10EBAFF9DC894844221B3A715B62F648249EF9A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Disc: 1:
 magnet:?xt=urn:btih:D298A8600B7C19556FAA6EB526E9F4122E1A4B9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - ZYX Italo Disco Spacesynth Collection (2014) 2CD, Compilation [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:B6ED379C022C04DAFAEA3416894673F1D68CFF98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:B6ED379C022C04DAFAEA3416894673F1D68CFF98
 magnet:?xt=urn:btih:F6697AC395014194EFA8593CBEC1C44EFBAB4F1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Winter Hits Dance (2019) [MP3|320 Kbps] <Dance, House, Big Room>
 ```bash
 magnet:?xt=urn:btih:327C5B83BAF138F623DA681240D13E13019F73F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ CD1:
 magnet:?xt=urn:btih:BE51DE6B2AA9917A32360D42B923AAD146D2CA1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Hi-Fi - 5 альбомов (1998-2002) [FLAC|Lossless|image + .cue] <Рор>
 ```bash
 magnet:?xt=urn:btih:EDDE08C26595C14E33F816ECE2CAB36BEA34D873
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ CD1:
 magnet:?xt=urn:btih:7D633368D4ECE2121558CD9534F53F2CE7ACED14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - 100 Greatest Acoustic & Chill Songs (2019) [FLAC|Lossless|WEB-DL|tracks] <P
 ```bash
 magnet:?xt=urn:btih:B250BF200D7F5A6A71077D2DB33C090270A80AEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Thegiornalisti - LOVE (2018) Carosello Records [FLAC|Lossless|WEB-DL|tracks] <It
 magnet:?xt=urn:btih:735736A7631C66366F6917842D2A1733A1C62241
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Francesca Michielin - di20are (2016) RCA Records [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:12C03658C1A045A3BAD092B763F2DBAF740C2AE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Inna - Nirvana (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic, Dancepop, 
 magnet:?xt=urn:btih:F661C4C2B7BBB6E638BD2EFCB46099928CD5F82D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ magnet:?xt=urn:btih:F661C4C2B7BBB6E638BD2EFCB46099928CD5F82D
 ```bash
 magnet:?xt=urn:btih:398586AA9854E257DDD473239E443D2E7B9D5342
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ magnet:?xt=urn:btih:398586AA9854E257DDD473239E443D2E7B9D5342
 magnet:?xt=urn:btih:1FB66F12AAF96B2D9E269D575015A1C49B537DFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:D1782F326BCB73110B6BCE8200AA5B64BEBFBDDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ VA - Absolute Music 83 (2017) [FLAC|Lossless|tracks] <Pop, Dancepop, Pop-Rock, R
 magnet:?xt=urn:btih:0991553557C301A71239AC92AC5F19A983366B37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ VA - Absolute Music 82 (2017) [FLAC|Lossless|tracks] <Pop, Pop-Rock, Dancepop, H
 ```bash
 magnet:?xt=urn:btih:F39EAD16B3D9CAA4D9DA08FE99B125FAD5201464
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ Pablo Alboran - Prometo (2017) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:B6EF60A7AC524C6A7545297CAADBF9A99518D916
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ Alexandra Savior - Belladonna Of Sadness (2017) [FLAC|Lossless|tracks + .cue] <A
 ```bash
 magnet:?xt=urn:btih:17D539D9E06A43766469F999AEFBE5D7069F1C10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ Bottle Of Moonshine - Everybody Watches No One Knows (2014) [MP3|320 Kbps] <60's
 magnet:?xt=urn:btih:416AB227D0A3DA644D68E3F630FCB66A19F9CAC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ Ole - Super Disco Tube (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 ```bash
 magnet:?xt=urn:btih:215CAC899D7EDE7B36961C2CAF2D844B7676F1B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ Rebel Force Band - Living In These Star Wars (1977) LP [MP3|320 Kbps] <Electroni
 magnet:?xt=urn:btih:110FBF70B735DD382733BA6FCA14E707BB7D406D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ Micro együttes - Olasz slágerek – magyarul No.1 (2005) [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:DFEB2A7B440D7FEEE799FF2897ADF04D3CF62B10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

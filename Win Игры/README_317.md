@@ -19,6 +19,8 @@ Nioh: Complete Edition — полное издание приключенчес�
 magnet:?xt=urn:btih:4A0F114977DBFF675380F85D96FBE5176B94684F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Euro Truck Simulator 2 дарит вам опыт управления са�
 ```bash
 magnet:?xt=urn:btih:508F3C1611C9DC805C16D391EE46B8539A1796C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ CODE VEIN (2019) [Ru/Multi] (1.01.86038) Repack R.G. Механики
 magnet:?xt=urn:btih:9362E2A9B77649558C97DBA368A2AAE37FFBA2B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Jekyll and Hyde / Джекил и Хайд [Ru] (RePack) 2010 | Martin
 ```bash
 magnet:?xt=urn:btih:2B28F99DF5340F86BCAFC64423E0E8383CE4DE74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Discolored (2019) [Ru/Multi] (1.0) Repack Butter_
 magnet:?xt=urn:btih:639482EE246858FCDC686B4F9BDED432C51EA805
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Closers - это эпизодическая ролевая игра в стил�
 ```bash
 magnet:?xt=urn:btih:809516BAF974DF4CE7FABA84188EAC5EAF1473A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Secret City 3: The Human Threat / Тайный город 3: Неотврати�
 magnet:?xt=urn:btih:D20F1B09B96717EA4A3F5F22844A2DD3FD397275
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ SYNTHETIK - это беспощадный шутер-рогалик в мире,
 ```bash
 magnet:?xt=urn:btih:EDD3215DAB2194CEE8A7B5321A27625C642CD2EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Asterix & Obelix XXL 2 (2018) [Ru/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:00481BD3CB74A562F380325D14C3234AD8441867
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ RUINER - суровый и жестокий экшн, действие кото�
 ```bash
 magnet:?xt=urn:btih:DF0A2F3259889EB9351811EF966B7BCA5C434CDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Elena - атмосферная игра от первого лица, в кот�
 magnet:?xt=urn:btih:56A566C6D45385FD04E1388DED8E2755B582C4B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Beholder (2016) [Ru/Multi] (1.5.0.10020/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:6030C117F1AC3AA245DF17F9A637B139ABE73944
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:6030C117F1AC3AA245DF17F9A637B139ABE73944
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ BATMAN™: Рыцарь Аркхема торжественно завершае
 ```bash
 magnet:?xt=urn:btih:C98874BFAEE212D5FB2D71B306B2E4B7C524B62B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ X4: Foundations - это космический симулятор, продол
 magnet:?xt=urn:btih:082E60A250BC84DD7165152C263B5DF76E06D016
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Alice's Wonderland: Cast In Shadow / Алиса в стране чудес: Те
 ```bash
 magnet:?xt=urn:btih:C29CF6606EAB9B4E74D7E0FCE61BC18EADE5E1BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ PC Building Simulator (2019) [Ru/En] (1.5.2/dlc) Repack Sceef
 magnet:?xt=urn:btih:1E718AB5217EB4E06D9DEDEA854DE30ADBA9C668
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Need for Speed: Most Wanted – безумные гонки по огромно�
 ```bash
 magnet:?xt=urn:btih:173283ABC46A9D9BB306B197281DB796DD9DD9C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ PRO FISHING SIMULATOR — симулятор рыбалки, который по
 magnet:?xt=urn:btih:37262A122B6CA432D7EDB4B7F0EBC1FEB6C87539
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ West of Loathing - это сумасшедший сон ковбоя-безум�
 ```bash
 magnet:?xt=urn:btih:187F8021FD7FEE409A7B6B5EAA99C39FB9B163E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ Project Hospital (2018) [Ru/Multi] (1.0.14611) Repack Other s
 magnet:?xt=urn:btih:478329593BE3AFF638FB8A34A89BF06CF81DD8D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ BIOS (2016) [Ru/Multi] (0.32) Repack Other s
 ```bash
 magnet:?xt=urn:btih:AE1C19E95C1008EBD743CB577BB19DB472F15D6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ Adam Wolfe: Blood of Eternity / Adam Wolfe: Кровь вечности (2016) [
 magnet:?xt=urn:btih:1D7D711D4775F2185D9256761F382F4B8649C58D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ Ty the Tasmanian Tiger – 3-мерный платформер, похожий �
 ```bash
 magnet:?xt=urn:btih:F3935CF608B760E37F187B727455657FE1D91629
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ The Little Acre (2016) [Ru/Multi] (1.0) License PLAZA
 magnet:?xt=urn:btih:5E0F90271DD395C9461D8A5E88773B97C2F74E20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Phantasmat 5: Behind the Mask / Фантазмат 5: Под маской (2015)
 ```bash
 magnet:?xt=urn:btih:BF59A7D00D2C48A8AE35214750A8098AA5FDA2D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

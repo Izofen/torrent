@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:1DBE5118E0A3BAF680A41770A58D8C4E34FED14B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ PDF-XChange Editor — программа для просмотра, редак�
 ```bash
 magnet:?xt=urn:btih:989CF6FB811DB634D915BA07A1B8F9DF634E1C06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:989CF6FB811DB634D915BA07A1B8F9DF634E1C06
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:989CF6FB811DB634D915BA07A1B8F9DF634E1C06
 ```bash
 magnet:?xt=urn:btih:EB03DCC7EB40A94BBA2120EA1326ACFD1DC5513F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Ron Blake - Sonic Tonic (2005) Mack Avenue Records [FLAC|Lossless|tracks + .cue]
 magnet:?xt=urn:btih:7F0D79A987270F815729DE3C9F59BD6F8B1F9D70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Vitriol - Suffer & Become (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 magnet:?xt=urn:btih:EEA9FE7096C317451ECD53213FFF141F5ACCB029
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Texifier — это редактор LaTeX, предназначенный дл�
 magnet:?xt=urn:btih:5C172E2172CD96EB96203B217DBDFBDECE5995E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:5C172E2172CD96EB96203B217DBDFBDECE5995E4
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ Hysteria - Heretic, Sadistic and sexual ecstasy (2024) [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:421F8B1E5B70F8C8F753C78BDCA722D5D73FECAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:421F8B1E5B70F8C8F753C78BDCA722D5D73FECAB
 ```bash
 magnet:?xt=urn:btih:000E2B983D41617710826736A5FC565374626103
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:000E2B983D41617710826736A5FC565374626103
 magnet:?xt=urn:btih:510735B28989F0C31D2B1D88C6C707720EBD5EC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ Sandboxie - yтилита для контроля за работой разли
 ```bash
 magnet:?xt=urn:btih:00C3FB75138093E9127F6BA29E09EBC3FC3F1828
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ Guns N' Roses - Appetite for Destruction (1987) [FLAC|24/192|image + .cue|Vinyl-
 magnet:?xt=urn:btih:4C442A97E71BEA7AB3B36B5D28953CB0CA5445DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:4C442A97E71BEA7AB3B36B5D28953CB0CA5445DD
 ```bash
 magnet:?xt=urn:btih:A59CF335809C65EEE97B14A53C525C44E60183A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:A59CF335809C65EEE97B14A53C525C44E60183A0
 magnet:?xt=urn:btih:5487AC47F2A68BA337AF3863535CA58456BDBEA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:5487AC47F2A68BA337AF3863535CA58456BDBEA1
 ```bash
 magnet:?xt=urn:btih:956ADD8CB4136AD129C636DF02D548CC4C8E0004
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ G Side 1986
 magnet:?xt=urn:btih:4DFC6BE21DC587F20D4ADFCBF2D23F4A309C9BEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ Room Arranger - программа специально предназначен
 magnet:?xt=urn:btih:62457B3021B3BB8081E068A75BB2F63455FBC38F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ magnet:?xt=urn:btih:62457B3021B3BB8081E068A75BB2F63455FBC38F
 ```bash
 magnet:?xt=urn:btih:80109A9461DDFFCD9CB7C404CEBA712A692F6592
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +538,8 @@ Serial Box & SerialSeeker 02-2024 [En]
 magnet:?xt=urn:btih:45883505ABDC7B4A5154C61AB845F1A2663534E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ VA - Infrasonic Winter Selection (2024) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:F0D0F3D61B294B5061EE546D075E3A57555E197D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +597,8 @@ Charcoal Grace - шестой студийный альбом австралий
 magnet:?xt=urn:btih:05B880B75803E2989F8B3691D09434193BB03469
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +626,8 @@ CD1:
 magnet:?xt=urn:btih:AE5856A2CAEA6DC59B491D6635BD95D85CED3BE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +651,8 @@ MediaInfo — программа для получения подробной т
 ```bash
 magnet:?xt=urn:btih:B13195D8EBE06990729A44C10B0B2E7E5B3684DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +678,8 @@ magnet:?xt=urn:btih:B13195D8EBE06990729A44C10B0B2E7E5B3684DE
 magnet:?xt=urn:btih:2DB7E78A7DAA4D6D205EB0970F49B07C671267B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ magnet:?xt=urn:btih:2DB7E78A7DAA4D6D205EB0970F49B07C671267B3
 ```bash
 magnet:?xt=urn:btih:4277881F974500ED49D2F8A5EA27E011CFC817AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

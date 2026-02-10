@@ -19,6 +19,8 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.1.0.16) License GOG
 magnet:?xt=urn:btih:26B2543C78BCFFE57CDB4A0C1AC7D2C7D14CE79E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:26B2543C78BCFFE57CDB4A0C1AC7D2C7D14CE79E
 ```bash
 magnet:?xt=urn:btih:8D73A8CDE3663F351FAA2F8BA045C06273A1D94E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:8D73A8CDE3663F351FAA2F8BA045C06273A1D94E
 magnet:?xt=urn:btih:4A2BB4FF23BF6C23DAC82B9733A0BD0F59DDA9FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:4A2BB4FF23BF6C23DAC82B9733A0BD0F59DDA9FF
 ```bash
 magnet:?xt=urn:btih:BDEB9BDA8C5232CE6C24ECA716051BA1D577E654
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Temtem: Swarm сочетает в себе минималистичный игр
 magnet:?xt=urn:btih:160060DDEE044382D6A6A084999AD5EF5919FF07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:160060DDEE044382D6A6A084999AD5EF5919FF07
 ```bash
 magnet:?xt=urn:btih:D5BB60602994C5423801F9160F023159CF870494
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:D5BB60602994C5423801F9160F023159CF870494
 magnet:?xt=urn:btih:F909C84564AA8532AF843463701F21ACDCDE2CB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:F909C84564AA8532AF843463701F21ACDCDE2CB4
 magnet:?xt=urn:btih:4F543D03351A1CE561F4579BCC460AACA30C90F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:4F543D03351A1CE561F4579BCC460AACA30C90F4
 ```bash
 magnet:?xt=urn:btih:3B2E907B677C428F46CADA623A250361652F655B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Motörhead — британская рок-группа, образованна�
 magnet:?xt=urn:btih:82FBD1FA270076AFD781208BDAC208F7D3B74955
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Slime Rancher 2 - это продолжение удостоенной нагр�
 ```bash
 magnet:?xt=urn:btih:496CDC086FABFB81A8EFC6D96752EC8186901910
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:496CDC086FABFB81A8EFC6D96752EC8186901910
 magnet:?xt=urn:btih:C929A85782155490C8162469E98C8A07FE443142
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:C929A85782155490C8162469E98C8A07FE443142
 ```bash
 magnet:?xt=urn:btih:90CA53D1CEC245AF053D0D85266BB94D24DB155E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Windows 11 - это серия операционных систем, разра
 magnet:?xt=urn:btih:D1F3B1B0498C14D0054CACAE6EA09197F3F680C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:D1F3B1B0498C14D0054CACAE6EA09197F3F680C3
 ```bash
 magnet:?xt=urn:btih:6A87B84DC4291E00C8C390FB567BAAB7F95C2F35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:6A87B84DC4291E00C8C390FB567BAAB7F95C2F35
 magnet:?xt=urn:btih:A9B6081C827A07A285DD5DD64927006CD3390373
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Primal Planet - это метроидвания от единственного 
 magnet:?xt=urn:btih:3A6ADBFBDAFB6781F5CDF50B15F3CE7C79D1BBC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:3A6ADBFBDAFB6781F5CDF50B15F3CE7C79D1BBC3
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:3A6ADBFBDAFB6781F5CDF50B15F3CE7C79D1BBC3
 magnet:?xt=urn:btih:1DB4B5FD8F752303D17041422732EFF3144EA450
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (1.45.9/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A1FE37EBCA4260F1DC5BBE2F84FF4E90E59DB0A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack Pioneer [Steam Edition]
 magnet:?xt=urn:btih:17F62672111E6BDB4EB9723EF53A90F89120529A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:17F62672111E6BDB4EB9723EF53A90F89120529A
 ```bash
 magnet:?xt=urn:btih:628AAA4CF95A842C4C1C00C96A0703FE9627F8FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Mr. Prepper - строительный симулятор, где вам пре�
 magnet:?xt=urn:btih:A9A769ED47E9AB23DB5ACC58FB94D4B8990AD8DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ WinPE 11-10 Sergei Strelec (x64) 2025.09.29 [Ru]
 ```bash
 magnet:?xt=urn:btih:4E006860E82DE769DE04DF0E4DD12B66134FA335
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ Manowar — американская хэви-метал-группа из Об�
 magnet:?xt=urn:btih:D3FB3F76D3777EE81EC6438409862EDFBF68D032
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:D3FB3F76D3777EE81EC6438409862EDFBF68D032
 ```bash
 magnet:?xt=urn:btih:7DFF07FE0F6865AA9C8486D99E1B6DB5F7AB720D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

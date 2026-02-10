@@ -1,3 +1,29 @@
+###  Публикация: 1014015   (776801) от 06.05.2016
+
+Романовы. Судьба русского Крыма (2015) HDTVRip (серии 1-3 из 3)
+
+>>Документалистика и Телепередачи
+>>Отечественная история
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая серия посвящена истории присоединения Крыма к России. Зритель узнает об истории древней Тавриды, крещении в Херсонесе князя Владимира с дружиной, гибели на полуострове православных остатков Византийской империи под натиском завоевателей - династии ханов Гиреев, многовековых набегах конных отрядов крымских татар на Русь, результатом которых стали разрушенные (   Читать дальше...   )Телекомпания: РоссияЖанр: ДокументальныйПродолжительность: 00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:972F880F08B17515A05F007003B4C2132F0E968A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014005   (776810) от 06.05.2016
 
 Свидание с войной (2016) SATRip ( 1-4 из 4 серий)
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:CF6038A2C926849A5F40CD16D1F95ECEE25E2E52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:CF6038A2C926849A5F40CD16D1F95ECEE25E2E52
 magnet:?xt=urn:btih:EAC17ECA24700C5421BDB9DBDE28B14F07EC88D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:EAC17ECA24700C5421BDB9DBDE28B14F07EC88D0
 ```bash
 magnet:?xt=urn:btih:C8D4DBC1B04870A491FD77243FB00DD920F15269
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:C8D4DBC1B04870A491FD77243FB00DD920F15269
 magnet:?xt=urn:btih:D4F89225AF9A42E1073C1A3DECF7DF3BD2EF56AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:D4F89225AF9A42E1073C1A3DECF7DF3BD2EF56AD
 magnet:?xt=urn:btih:174EA73823D95B5F449FA9E077BCCEB9F1AD7A45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:174EA73823D95B5F449FA9E077BCCEB9F1AD7A45
 ```bash
 magnet:?xt=urn:btih:EE79B763BDA2B91EDC7AA75120D82EA4C7550BC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:EE79B763BDA2B91EDC7AA75120D82EA4C7550BC6
 magnet:?xt=urn:btih:FDD90899F0ED34E27A5ED4A7312F1C690CA0AA8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:FDD90899F0ED34E27A5ED4A7312F1C690CA0AA8A
 ```bash
 magnet:?xt=urn:btih:76B2ADD4C5792E1352459ED91565DDDAEF838C2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:76B2ADD4C5792E1352459ED91565DDDAEF838C2A
 magnet:?xt=urn:btih:D71E01A69FBE1FFC9DB6F52254C323BD64467073
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:D71E01A69FBE1FFC9DB6F52254C323BD64467073
 ```bash
 magnet:?xt=urn:btih:FE3E4484E4B2C63F78E0675638145044B5776828
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:FE3E4484E4B2C63F78E0675638145044B5776828
 magnet:?xt=urn:btih:AF017C117089A95D37471B625B3C1F2BB1CE7274
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:AF017C117089A95D37471B625B3C1F2BB1CE7274
 ```bash
 magnet:?xt=urn:btih:3442FF98EC4918BABD1E034B48B9CDEED382CE79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:3442FF98EC4918BABD1E034B48B9CDEED382CE79
 magnet:?xt=urn:btih:5892B2F942F9F466FC2702A3EA7A22ED40C0F96E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:5892B2F942F9F466FC2702A3EA7A22ED40C0F96E
 ```bash
 magnet:?xt=urn:btih:1FDF3AA29148E07F6F3C2A02038F391BC8B23B69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:1FDF3AA29148E07F6F3C2A02038F391BC8B23B69
 magnet:?xt=urn:btih:53E48785860AB63C9CDE95A99B47488AE3F2A823
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:53E48785860AB63C9CDE95A99B47488AE3F2A823
 ```bash
 magnet:?xt=urn:btih:182948E18DC16680ADAEF70D4BF044CFA56E4EEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:182948E18DC16680ADAEF70D4BF044CFA56E4EEC
 magnet:?xt=urn:btih:9E235B682379B36E052ECE81A749FCD3CFDAC8DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:9E235B682379B36E052ECE81A749FCD3CFDAC8DA
 ```bash
 magnet:?xt=urn:btih:EB95A4284E4FC4F189C3E3060A36CE8DB313F398
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:EB95A4284E4FC4F189C3E3060A36CE8DB313F398
 magnet:?xt=urn:btih:A7A8B17A95D3E322C77ADC4D4B08B6A535BCC9EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:A7A8B17A95D3E322C77ADC4D4B08B6A535BCC9EF
 ```bash
 magnet:?xt=urn:btih:769947D3C652415CCE55489AB8405F83A6FDD72A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:769947D3C652415CCE55489AB8405F83A6FDD72A
 magnet:?xt=urn:btih:9AA75D452FCF9BC8283ECB8BB435F95148B4D4D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +596,8 @@ magnet:?xt=urn:btih:9AA75D452FCF9BC8283ECB8BB435F95148B4D4D5
 ```bash
 magnet:?xt=urn:btih:46D56FABBD3D906BC6DC2D320075ACBBF5EB96F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:46D56FABBD3D906BC6DC2D320075ACBBF5EB96F7
 magnet:?xt=urn:btih:126123B91CD25DB97C6CB5D568DBC08B44D7ABFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:126123B91CD25DB97C6CB5D568DBC08B44D7ABFD
 ```bash
 magnet:?xt=urn:btih:3FC8282B25C2B8F2903EE32F739B8DEB0DF38E2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,32 +676,7 @@ magnet:?xt=urn:btih:3FC8282B25C2B8F2903EE32F739B8DEB0DF38E2A
 magnet:?xt=urn:btih:E15CFDE72EAC258D65BB72C3FAAB9686D5AE66E3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013193   (777313) от 05.05.2016
-
-По законам своей мечты (1968) TVRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм снят в 1968 году на Ленинградском телевидении.
-Фильм рассказывает о ленинградском композиторе Станиславе Пожлакове.
-В нём звучат песни в исполнении автора, а также Эдуарда Хиля, Марии Кодряну,
-Нины Коста, Анатолия Королёва.Телекомпания: Ленинградское ТВЖанр: ДокументальныйПродолжительность: 00:28:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC8637A799712E30863E8D03AA843619A240730D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Alfred Hitchcock: Vertigo (2021) [Ru/Multi] (2022093001/dlc) License GOG [Digita
 magnet:?xt=urn:btih:66F07DE408657593D2B3BE324E3E1613EB7EDC93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Sumatra: Fate of Yandi (2019) [Multi] (1.2) License GOG [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:D337000F742F5CEC8D2F6698C05FA52AE8AF8963
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Royal Romances: Battle of the Woods (2022) [En] (1.0) Unofficial [Collector's Ed
 magnet:?xt=urn:btih:26BFB3533A6C6FB24260DC1F7BD26D215593C643
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Under the Waves (В глубинах океана) – это повествов
 ```bash
 magnet:?xt=urn:btih:DC35B8CC0E033B58D432B729072AE4C9768875B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Fort Solis - сюжетный триллер от третьего лица, р�
 magnet:?xt=urn:btih:8256B51C502069F6C1BC3769C85CE7F315A67B89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Great North Shelter 2 — приключение от первого лица, �
 ```bash
 magnet:?xt=urn:btih:8A743144728CFE87B16E842230C15CC56483D2C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Mega Man X DiVE переосмыслила мир серии Mega Man X, и те
 magnet:?xt=urn:btih:641189A7E34DD763714EE94F43153B2D2A68185F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Parasocial - это не просто хоррор-игра, а симулято
 ```bash
 magnet:?xt=urn:btih:A76EE0813BD3BA95D7C086606CB841834D588F1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Great North Shelter - это самый странный Национальны�
 magnet:?xt=urn:btih:88A6D976A927510E910A93646D06D179F887F402
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ New York, 2034: вы просыпаетесь после того, что каз
 ```bash
 magnet:?xt=urn:btih:8EC7B37155FD6C7280671033E2CF7110725A80FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Danger Forever (2022) [En] (845) License GOG
 magnet:?xt=urn:btih:DC260F068A5F08EDF4CDD632AC83D859A07CD2B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Dark City 7: International Intrigue / Мрачный город 7: Междун�
 ```bash
 magnet:?xt=urn:btih:31555E6D8B2877155E4918BB39146CD7D4FDECA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Space Engineers - это фантастическая песочница, где
 magnet:?xt=urn:btih:C422B3FCB7C1391CF7061C15EB0D991F120CE38E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Tenebris Pictura (2023) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:BBB0A5F08CCFE26A4CAEB10B425D1393BCD8F76B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Arena Renovation (2023) [Ru/Multi] (0.6.153) License GOG [Early Access]
 magnet:?xt=urn:btih:6092ED92172DCD49E75B6520747F1560B5819EC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Bibots – это шутер с видом сверху, в жанре rogue lit
 ```bash
 magnet:?xt=urn:btih:7BA883A40AAE2D38E89B90C855C2AF1893543E95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Behind the Frame: The Finest Scenery (2021) [Ru/Multi] (2.0.4_01) License GOG
 magnet:?xt=urn:btih:BF5813EBD16EF0EF5BF84785F9F69EC0D6141107
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Dead Man´s Diary (2022) [Ru/Multi] (1.5.54360) Repack Other s
 ```bash
 magnet:?xt=urn:btih:E46DE10B92C48F1FFEC7B18AA3C3297CAA091F12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Sackboy: A Big Adventure (2022) [Ru/Multi] (9806667/dlc) Repack DjDI
 magnet:?xt=urn:btih:B6CB54150F9B716E0CCA58AC8168504D14B3533E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Murder Is Game Over выглядит как японская ролевая иг
 ```bash
 magnet:?xt=urn:btih:F962D5F900529EF867E0D7A9C53E5EA109224E95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Daymare: 1998 (2019) [Ru/Multi] (1.4) License GOG
 magnet:?xt=urn:btih:31E85387B5D3C5FDA9859143B4A49988B700E707
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Spelunky (2013) [Multi] (2.1.0.9) License GOG
 ```bash
 magnet:?xt=urn:btih:45AE616962BCEE7AC9DEE0F63004035A3EBD01A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Myth or Reality 2: Mystery of the Lake (2023) [En] (1.0) Unofficial [Collector's
 magnet:?xt=urn:btih:A65078F22970973B8723EFD3569A96AD68FE1D57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ FAITH: The Unholy Trinity (2022) [En] (1.00) License GOG
 ```bash
 magnet:?xt=urn:btih:EC0C27F8D508A35EA89BA9CD619E35DA93E84D73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Armored Core VI: Fires of Rubicon (2023) [Ru/Multi] (11893351/dlc) Repack DjDI [
 magnet:?xt=urn:btih:8EC0D34EE2F86C9181CE2B06BC35BFEDD01074C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ HeadHorse - ваш похититель, и у вас есть единстве�
 ```bash
 magnet:?xt=urn:btih:0D68528F02DA967CB9EC7759219DB473A00E8EF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

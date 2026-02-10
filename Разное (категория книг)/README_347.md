@@ -1,3 +1,29 @@
+###  Публикация: 1315116   (515093) от 18.07.2019
+
+Архимандрит Кирилл (Павлов) | О любви и прощении ближних (2018) [PDF, DJVU, FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_515093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любовь к ближнему диктует христианину милосердие и сожаление о грехах брата, осуждение же явно свидетельствует о том, что в сердце самозваного судьи «нет ни любви, ни милосердия христианского ни к согрешающим, ни к добродетельным людям», — говорил архимандрит Кирилл (Павлов) и ставил в пример святых, которые «ясно видели все язвы людские, снисходительнее нас относились (   Читать дальше...   )Жанр: Духовно-просветительская православная литератураФормат: PDF, DJVU, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F506D11A0B623D52421071B32956ACF900C493FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242370   (515135) от 22.08.2018
 
 Л.В. Филимонова (сост.) | Святой Сергий (2013) [FB2, PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:E2717255F186030C983DBD43A99BECFD9843FD9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:E2717255F186030C983DBD43A99BECFD9843FD9C
 magnet:?xt=urn:btih:F2ADD2F9159437603B6B47A1858C62C9BA1D70E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:F2ADD2F9159437603B6B47A1858C62C9BA1D70E2
 ```bash
 magnet:?xt=urn:btih:A2D702E81A5FBC89C8CF58ECDA56F007CD3DB9C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:A2D702E81A5FBC89C8CF58ECDA56F007CD3DB9C6
 magnet:?xt=urn:btih:E94AD71C2982AEB6085B737F74B936C84FF2832F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:E94AD71C2982AEB6085B737F74B936C84FF2832F
 ```bash
 magnet:?xt=urn:btih:14551A1D2CEBBD4C7E9F4DC8380968DED0B42D95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:14551A1D2CEBBD4C7E9F4DC8380968DED0B42D95
 magnet:?xt=urn:btih:D1C316837B3A2BA5B188AB69A78FB82816BB11E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:D1C316837B3A2BA5B188AB69A78FB82816BB11E1
 ```bash
 magnet:?xt=urn:btih:E96B104411BDCEAC9A5CFA954D4A5A1239E232C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:E96B104411BDCEAC9A5CFA954D4A5A1239E232C9
 magnet:?xt=urn:btih:48F9AFD6710E796C69B75652129B80A9D08B7F43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:48F9AFD6710E796C69B75652129B80A9D08B7F43
 ```bash
 magnet:?xt=urn:btih:122DE02DCE910ABB70DBD60FA633D3776B53DD94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:122DE02DCE910ABB70DBD60FA633D3776B53DD94
 magnet:?xt=urn:btih:E1A0454FC6854917A0F35A3E611932AB8BA58994
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:E1A0454FC6854917A0F35A3E611932AB8BA58994
 ```bash
 magnet:?xt=urn:btih:FA4BAFAC710BF5AB2DC62583C52B45AE705B167C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:FA4BAFAC710BF5AB2DC62583C52B45AE705B167C
 ```bash
 magnet:?xt=urn:btih:4D03A6A26D9ACC5BFE751FF1679CD6DCE7D8ECCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:4D03A6A26D9ACC5BFE751FF1679CD6DCE7D8ECCE
 magnet:?xt=urn:btih:52B32E96DE78D4627667137FC18C1687F0D50836
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:52B32E96DE78D4627667137FC18C1687F0D50836
 magnet:?xt=urn:btih:22608AAF58EFAA76318A7D624097E70BC9F5C0F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:22608AAF58EFAA76318A7D624097E70BC9F5C0F4
 ```bash
 magnet:?xt=urn:btih:193389FB7483BAEE4D2804E0C3F434709F01B205
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +445,8 @@ magnet:?xt=urn:btih:193389FB7483BAEE4D2804E0C3F434709F01B205
 magnet:?xt=urn:btih:117B1300AA83F5F5EAE7D4104F3705D9B8621CA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:117B1300AA83F5F5EAE7D4104F3705D9B8621CA7
 ```bash
 magnet:?xt=urn:btih:959B5409702278D1B2809908383F27E05E59F081
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +499,8 @@ magnet:?xt=urn:btih:959B5409702278D1B2809908383F27E05E59F081
 magnet:?xt=urn:btih:141B5143E873E6B1344CC5FAD579EC6A7B6A4716
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +525,8 @@ magnet:?xt=urn:btih:141B5143E873E6B1344CC5FAD579EC6A7B6A4716
 ```bash
 magnet:?xt=urn:btih:4060CE8FC399E1AC69954DAD0761B0A5117A2A82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +554,8 @@ magnet:?xt=urn:btih:4060CE8FC399E1AC69954DAD0761B0A5117A2A82
 magnet:?xt=urn:btih:BD8A732E3F1677CDB4AA5D0412D0D3DDDBACAE81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +579,8 @@ magnet:?xt=urn:btih:BD8A732E3F1677CDB4AA5D0412D0D3DDDBACAE81
 ```bash
 magnet:?xt=urn:btih:6026978516C5555A992F382608D659B6E70A6E8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +606,8 @@ magnet:?xt=urn:btih:6026978516C5555A992F382608D659B6E70A6E8B
 magnet:?xt=urn:btih:0CBEA26C2CB842019C22BE015042A780D97DCFE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:0CBEA26C2CB842019C22BE015042A780D97DCFE9
 ```bash
 magnet:?xt=urn:btih:B8543D9E52E1907A0979949E26B8D2B38AB0A86C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +658,8 @@ magnet:?xt=urn:btih:B8543D9E52E1907A0979949E26B8D2B38AB0A86C
 ```bash
 magnet:?xt=urn:btih:068C7DC648DFFFFB9FA24CE8DBDFB61D199F3199
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,29 +687,7 @@ magnet:?xt=urn:btih:068C7DC648DFFFFB9FA24CE8DBDFB61D199F3199
 magnet:?xt=urn:btih:A3DE167D3FFC139CF93C8F02D8756570441F6010
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929944   (516198) от 22.08.2015
-
-Владимир Миркин | Как похудеть? Легко! 5 размеров за 5 месяцев (2011) [FB2, RTF]
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем вам экспресс-курс доктора Миркина. Впервые уникальная система снижения веса изложена просто и доступно, с ее помощью вы сможете похудеть быстро и без особых усилий. Секрет доктора Миркина – в несложных психологических приемах, позволяющих снизить пагубное влечение к запретным продуктам и снять эмоциональное напряжение, вызванное ограничениями в еде. (   Читать дальше...   )Жанр: Здоровье и красотаФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D6555EDF329072C0413A05E742B668C711B6EDE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

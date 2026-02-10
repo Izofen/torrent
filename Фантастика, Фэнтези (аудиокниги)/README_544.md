@@ -1,3 +1,29 @@
+###  Публикация: 1449612   (1029665) от 22.02.2021
+
+Василий Маханенко | Алхимик. Журнал Иср Кейла. Книга 4 (2021) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для Тайлина Влашича, юного алхимика 12 лет, настали темные времена. Его изгнали из Империи. Его исключили из Академии. За ним отправили страшного убийцу. Его сбросили до первого уровня. Ему изменили требования к именным предметам. Немногие взрослые могли бы справиться с возникшими проблемами, но только не Тайлин. Когда за плечами стоят два наставника, любимая девочка (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтези, LitRPGПродолжительность: 11:15:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD7FA586EA76D604281D6F50DCD19ECE7A38EC15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449703   (1029707) от 22.02.2021
 
 Иар Эльтеррус | Вера изгоев (2021) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:4A4EE76FBD1DFBD1C7C1EFBE8E0425F843C57927
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:4A4EE76FBD1DFBD1C7C1EFBE8E0425F843C57927
 magnet:?xt=urn:btih:53E8540E7987553B61FFEAC5128719D5C04EB74A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:53E8540E7987553B61FFEAC5128719D5C04EB74A
 magnet:?xt=urn:btih:0639EBBD2EF5DC22431C28121BA284A8E9C5A1E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:0639EBBD2EF5DC22431C28121BA284A8E9C5A1E5
 ```bash
 magnet:?xt=urn:btih:6E7818911BA36C96446B6E7F982C680AABB1E725
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:6E7818911BA36C96446B6E7F982C680AABB1E725
 magnet:?xt=urn:btih:8923DA36D2E04D7A02F9EB49A23F3DE4F25A412E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +181,8 @@ magnet:?xt=urn:btih:8923DA36D2E04D7A02F9EB49A23F3DE4F25A412E
 magnet:?xt=urn:btih:7BB9E2E98C1E1C68DBB1EF472F0E37727876625C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:7BB9E2E98C1E1C68DBB1EF472F0E37727876625C
 ```bash
 magnet:?xt=urn:btih:2AD91B2C63E247057C10C753327B63303DD16B08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +233,8 @@ magnet:?xt=urn:btih:2AD91B2C63E247057C10C753327B63303DD16B08
 magnet:?xt=urn:btih:999B7EB279757B1AD0E18A4C73A49CC122A07F88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:999B7EB279757B1AD0E18A4C73A49CC122A07F88
 ```bash
 magnet:?xt=urn:btih:27221514BCACCC3BB471D30140E1A18DA4A72AA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +287,8 @@ magnet:?xt=urn:btih:27221514BCACCC3BB471D30140E1A18DA4A72AA2
 magnet:?xt=urn:btih:46541752AC411D488F4FCE03E06B21A52129BD7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:46541752AC411D488F4FCE03E06B21A52129BD7E
 ```bash
 magnet:?xt=urn:btih:D071C20365535AD89A7FA1378B8D433FBE7179FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +340,8 @@ magnet:?xt=urn:btih:D071C20365535AD89A7FA1378B8D433FBE7179FB
 magnet:?xt=urn:btih:3F69CF25CBCF4BE6D7A1A9EE4D0793FE975EAE57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:3F69CF25CBCF4BE6D7A1A9EE4D0793FE975EAE57
 ```bash
 magnet:?xt=urn:btih:FC849521995E52AC8EAC70787C75353DBC29BF05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +396,8 @@ magnet:?xt=urn:btih:FC849521995E52AC8EAC70787C75353DBC29BF05
 magnet:?xt=urn:btih:AC5DA0CAB5B89E3818541140F41CB1FEDD606124
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +423,8 @@ magnet:?xt=urn:btih:AC5DA0CAB5B89E3818541140F41CB1FEDD606124
 magnet:?xt=urn:btih:13110BF8A93D58854E9148A444CF471CCE91B067
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +448,8 @@ magnet:?xt=urn:btih:13110BF8A93D58854E9148A444CF471CCE91B067
 ```bash
 magnet:?xt=urn:btih:0AE3F082BE70BB619750F47C5C4433BFE52500AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +477,8 @@ magnet:?xt=urn:btih:0AE3F082BE70BB619750F47C5C4433BFE52500AC
 magnet:?xt=urn:btih:DE7BFAFF46DA573E6EBADDB416DE4791EFB4C7F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +502,8 @@ magnet:?xt=urn:btih:DE7BFAFF46DA573E6EBADDB416DE4791EFB4C7F4
 ```bash
 magnet:?xt=urn:btih:F5189CD76FC2EAC727D7E3C4BECBA40A3D86A80F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +529,8 @@ magnet:?xt=urn:btih:F5189CD76FC2EAC727D7E3C4BECBA40A3D86A80F
 ```bash
 magnet:?xt=urn:btih:808DB3F20753D62B8800896DAC5D54D81E0A2E70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +558,8 @@ magnet:?xt=urn:btih:808DB3F20753D62B8800896DAC5D54D81E0A2E70
 magnet:?xt=urn:btih:56F0B34C3A622B98212B465A00862844CE3A39C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +583,8 @@ magnet:?xt=urn:btih:56F0B34C3A622B98212B465A00862844CE3A39C8
 ```bash
 magnet:?xt=urn:btih:6FAD70BA685F7C8993F4FA8F7EF830E42DEB8924
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +611,8 @@ magnet:?xt=urn:btih:6FAD70BA685F7C8993F4FA8F7EF830E42DEB8924
 magnet:?xt=urn:btih:D9307375E62ACC5963523E034AF383972BB7C68C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +636,8 @@ magnet:?xt=urn:btih:D9307375E62ACC5963523E034AF383972BB7C68C
 ```bash
 magnet:?xt=urn:btih:77929D5ACCABA94356120146B10C8704188C6393
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +666,8 @@ magnet:?xt=urn:btih:77929D5ACCABA94356120146B10C8704188C6393
 magnet:?xt=urn:btih:D2D4387C891248A764DA7A98AE63C3E9165446E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,29 +693,7 @@ magnet:?xt=urn:btih:D2D4387C891248A764DA7A98AE63C3E9165446E8
 magnet:?xt=urn:btih:6596DBC4334505860453634D5FDE8994F6621E6F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621660   (1030743) от 26.03.2023
-
-Александр  Беляев | Ариэль (2023) [MP3, Александр Котов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда-то давным-давно в детстве, Александр Беляев мечтал научиться летать, но не на каких-то аэропланах, а просто так, парить в свободном полете, как птица. Но для этого нужны были крылья, и он мастерил их из различного материала. В одном из многочисленных вариантов были веники, которые он привязывал к рукам, пытаясь взлететь. Прыгал он и с отцовским зонтом с крыши. (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 07:52:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9157730537863C940B2E4EF325CE9F3E2BE0281
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ BBC: Глобальное потепление: факты / Climate Change: The
 magnet:?xt=urn:btih:0F827E27001E06A43E5A149E7CD35989159919D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ BBC: Винсент Ван Гог. Живопись в словах / Vincent Va
 magnet:?xt=urn:btih:4E3910038D99E6746C152A655C3B323659C29F03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ BBC: Не могу выбросить тебя из головы / Can't Get You
 ```bash
 magnet:?xt=urn:btih:3E4EC1CA9F498E9E9584E5E0C0BE82279CF21721
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ BBC. Связанные: Шесть ступеней отдаления / Connec
 magnet:?xt=urn:btih:FF42AB4CD9DDB1733D476992DFC7FD8773572338
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ BBC. Королева Виктория и её девять детей / Queen V
 ```bash
 magnet:?xt=urn:btih:6413D65D8EFE991D4853F477D31AA29825AC4740
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ BBC. Тайные правила современной жизни: Алгори
 magnet:?xt=urn:btih:F499E843C025DFF2CC92F64238521BFAFA4C2B1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:F499E843C025DFF2CC92F64238521BFAFA4C2B1F
 ```bash
 magnet:?xt=urn:btih:C38FD7E25993729F32D4CA2D864DCF0E06D9D65A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ BBC: Горизонт. Хаббл. Открытие тайн космоса / Ho
 magnet:?xt=urn:btih:AFEBE7B83E46146D083A0A6704F2176E071FC955
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ BBC: Символика церквей / Churches: How to Read Them (2010) SATRi
 magnet:?xt=urn:btih:12F17C7DBC5027C305FEBF7C538CA364AD39AFCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ BBC. Google и всемирный мозг / Google and the World Brain (2013) W
 ```bash
 magnet:?xt=urn:btih:3F9BBC7898DD9ED91AC43AFD34DE413F064D075C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ BBC. Экватор с Воздуха / Equator from the Air (2020) HDTV [H.264/
 magnet:?xt=urn:btih:C615C039B0FB84066C387447BE17DB0EDF0EEB24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ BBC. Шпион в снегах: Тайны снежных обитателей 
 magnet:?xt=urn:btih:7216F689AED6C0144910152CE243CF1750C4BC64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Discovery. Автомир Майка Брюера / Mike Brewer's World of Cars 
 ```bash
 magnet:?xt=urn:btih:243858E6553404A8E56E864E2C92C8CE6C63F6E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ BBC. Идеальная планета / A Perfect Planet (2021) UHD BDRip [H.26
 magnet:?xt=urn:btih:1139AE64B611599D8D219757007FBCA808227D98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ BBC. Уродливая красота / Ugly Beauty (2009) DVB
 magnet:?xt=urn:btih:668D8091F84E7BE58CE965FC7826460EC57D1425
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:668D8091F84E7BE58CE965FC7826460EC57D1425
 ```bash
 magnet:?xt=urn:btih:A9978C6F54CC4CEFF4D63B5A7E4C56B947964867
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ BBC: Маленькие гиганты / Tiny Giants (2014) UHD BDRemux [H.265/2
 magnet:?xt=urn:btih:5369F7C4B39D1BDB1F735BB419403B988D298D2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ BBC: Это Слейд / It's Slade (1999) TVRip [EN]
 ```bash
 magnet:?xt=urn:btih:D20B08A95E88BA566D452674BCB1A3C4DC290149
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:D20B08A95E88BA566D452674BCB1A3C4DC290149
 magnet:?xt=urn:btih:DB7693519F2A7FDA9DA516CC92D7C25E665B156B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:DB7693519F2A7FDA9DA516CC92D7C25E665B156B
 ```bash
 magnet:?xt=urn:btih:7A543311BC7968FC11DA8468B9B88DABEFEC0ACA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:7A543311BC7968FC11DA8468B9B88DABEFEC0ACA
 magnet:?xt=urn:btih:5DB25DE579E3B29578E20C0084717B4CB7E9C497
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ magnet:?xt=urn:btih:5DB25DE579E3B29578E20C0084717B4CB7E9C497
 ```bash
 magnet:?xt=urn:btih:FEFF1B678ECB67A7D523CF22CAA9A54356ACB935
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ BBC. Тело на продажу: как живут секс-работницы
 magnet:?xt=urn:btih:C6E2457705F6340733FEACED7F58271FE96DF5B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ magnet:?xt=urn:btih:C6E2457705F6340733FEACED7F58271FE96DF5B9
 ```bash
 magnet:?xt=urn:btih:1305A73A09F25B4BCF65C4032EE6F90021690B53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:1305A73A09F25B4BCF65C4032EE6F90021690B53
 magnet:?xt=urn:btih:EF443B3446403FCF4C190B0F733856486388539D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:EF443B3446403FCF4C190B0F733856486388539D
 ```bash
 magnet:?xt=urn:btih:5AF9C5AC232C0FF0235F47D479FCCD643BAA6B01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

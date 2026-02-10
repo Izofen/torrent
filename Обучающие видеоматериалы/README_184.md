@@ -19,6 +19,8 @@ Udemy, Opi Chaggar | Maya for Beginners: Complete 3D Animation Fundamentals (202
 magnet:?xt=urn:btih:16A5C852B25AD77ABF9907CD698841AF87A1DE9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:16A5C852B25AD77ABF9907CD698841AF87A1DE9B
 ```bash
 magnet:?xt=urn:btih:2BB3296E068C01B6B0F3A62468772EA858926D4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Big Data — инструменты, подходы и методы обрабо
 magnet:?xt=urn:btih:FA43D64CBE3F2397E86A1BB477AB43924F2D7DEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ Lynda, Judd Roy | Game Art Asset Texture Pipeline (2016) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:35F1161382915F1B08DA895A7CB5F122E8F45BAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ Imperial Pro, Артемий Миллер | Стань управляющим б
 magnet:?xt=urn:btih:9AF8A78A954038A57D6A69FB2C9AA40C39D35228
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ Digital Tutors, Kurt Williams | Creating a Floater Pack in Maya (2015) PCRec [EN
 ```bash
 magnet:?xt=urn:btih:3D426F9DF641DAD95190CD8D2E06027999DA8702
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:3D426F9DF641DAD95190CD8D2E06027999DA8702
 magnet:?xt=urn:btih:EA54350F98BD733F919CA055677E9771DAA60E65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ Scott Deardorff портретный художник, который приме
 ```bash
 magnet:?xt=urn:btih:BFCAF5CDF4B1A63AD6357B053558CFAABDC9043D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ Search Engine Education | SEO-ПРАКТИКУМ 3.0 (2015) PCRec [H.264/720p]
 magnet:?xt=urn:btih:72C542D58084B7268753E68BAB146CF11E3F0FE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ SLR Lounge | Lighting Bundle Vol. 1-4 (2021) WEB-DL [AD] [EN]
 ```bash
 magnet:?xt=urn:btih:FD1810B1FFF91AC5BA1945CF3B0160BFFC6CC10C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:FD1810B1FFF91AC5BA1945CF3B0160BFFC6CC10C
 ```bash
 magnet:?xt=urn:btih:97D2B1715F2760084642D756679C7FEF6B2BBB48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +326,8 @@ magnet:?xt=urn:btih:97D2B1715F2760084642D756679C7FEF6B2BBB48
 magnet:?xt=urn:btih:2C26DBB2742E39C7073274088D74848A5A8DFE8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ magnet:?xt=urn:btih:2C26DBB2742E39C7073274088D74848A5A8DFE8C
 ```bash
 magnet:?xt=urn:btih:64DD420D8673E2AD7604E8F80D3C5ABE283F325D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +382,8 @@ magnet:?xt=urn:btih:64DD420D8673E2AD7604E8F80D3C5ABE283F325D
 magnet:?xt=urn:btih:82F102B0AE5F1DEB40C9E510FAA8F9910C6F1915
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ Hal Leonard | Guitar Play-Along DVD Volume 4. Chicago Blues [2007] [EN] DVD5
 ```bash
 magnet:?xt=urn:btih:6A9322A093496710BA375B2D5013DD542EE463C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +435,8 @@ Wunderlist — и все пойдет по плану! Программа сам
 ```bash
 magnet:?xt=urn:btih:B730BD038E9A627821052870E732D7C0F94BDB69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +465,8 @@ Python используется и в стартапах, и в транснац
 magnet:?xt=urn:btih:1474A7DAAC614EA7294132B25820BEF242F1AD19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +493,8 @@ Geekbrains | METEOR. Возможности meteor js на примере нап
 magnet:?xt=urn:btih:0849890975CABAA729E3406E852E2598946CA9CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +520,8 @@ magnet:?xt=urn:btih:0849890975CABAA729E3406E852E2598946CA9CF
 magnet:?xt=urn:btih:93E0DE6DCF7247AD0F193842A710ED2EF859D5F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +546,8 @@ magnet:?xt=urn:btih:93E0DE6DCF7247AD0F193842A710ED2EF859D5F9
 magnet:?xt=urn:btih:63E59D3C5E7F0A4559A75481639E8DF86ADD3520
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +571,8 @@ magnet:?xt=urn:btih:63E59D3C5E7F0A4559A75481639E8DF86ADD3520
 ```bash
 magnet:?xt=urn:btih:1768E5C3635C17FF4510BEB88A2CDD5D0A21146D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +600,8 @@ Skill.im | PowerPoint 2013/2016 [Базовый + Продвинутый кур�
 magnet:?xt=urn:btih:8978DF97603D0098B37292D8C6D921DFDBC40AD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ Digital Tutors | Introduction to Materials in Houdini (2015) PCRec [En]
 ```bash
 magnet:?xt=urn:btih:5499383861563C72F679F727D64BDB43AACB3B67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +654,8 @@ Alex24369 | Боевая машина Linux (2013) PCRec
 magnet:?xt=urn:btih:D98F4AE05D6E4D02020F1FD87F251B67300D4C36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +682,8 @@ magnet:?xt=urn:btih:D98F4AE05D6E4D02020F1FD87F251B67300D4C36
 magnet:?xt=urn:btih:B740794687BFDEABEDAC113470E1535E8B470FA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +707,8 @@ ProfIT | ReactPHP (2018) PCRec
 ```bash
 magnet:?xt=urn:btih:E9B202980D86530ECC50B2B315CFCA7F18949512
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

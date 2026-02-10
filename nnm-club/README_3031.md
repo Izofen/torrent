@@ -26,6 +26,8 @@ Eboxyde - Bonus Tracks (2012) [MP3|320 кб/с]<Dubstep, House, Drum & Bass>
 magnet:?xt=urn:btih:99417221D2150ACF020286ADA59891F2E84D5A69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -50,6 +52,8 @@ magnet:?xt=urn:btih:99417221D2150ACF020286ADA59891F2E84D5A69
 magnet:?xt=urn:btih:41EA8951B58C3B56C5A6DC5508366A5305433D50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:41EA8951B58C3B56C5A6DC5508366A5305433D50
 ```bash
 magnet:?xt=urn:btih:26CC52E1A98B473BB307D80B4071EB21B2A647EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +107,8 @@ Minimal Audio - Effect Bundle 2025.10 VST, VST 3, AAX Repack by TCD [En]
 magnet:?xt=urn:btih:18DD24B018F4046E51EA99803FCF2C81A0941F4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ Jigsawscapes® - Пазлы v4.2.3 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5FB831F4E8AADF931FE95109C95260ECDAEA0F81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:5FB831F4E8AADF931FE95109C95260ECDAEA0F81
 ```bash
 magnet:?xt=urn:btih:A92B91BD22E96DDD3D1EAED59CD280B4D89177AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ VA - Drum and Bass Deafening (2012) [MP3|256~320 кб/с]<Drum and Bass>
 magnet:?xt=urn:btih:4A51B7F9D0FEAEA4AAE2A68D0A74B077B57BF277
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +218,8 @@ magnet:?xt=urn:btih:4A51B7F9D0FEAEA4AAE2A68D0A74B077B57BF277
 ```bash
 magnet:?xt=urn:btih:B6F5731282FF129FB00511F2451C5C464931E61A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Psytrance Frequency (2012) [MP3|320 кб/с]<Psychedelic / Full On>
 magnet:?xt=urn:btih:8956C2550E01AED77C87B53CE6585531D4BECC4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ magnet:?xt=urn:btih:8956C2550E01AED77C87B53CE6585531D4BECC4C
 ```bash
 magnet:?xt=urn:btih:B80F73F75ED091AF45A09413127E93808AB951E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +315,8 @@ Kuba - Random Precision (2012) [MP3|320 кб/с]<Ambient, Downbeat, Lounge, Dub>
 magnet:?xt=urn:btih:2D86DCF525C480877957C3523F1569EE38B74A7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +344,8 @@ magnet:?xt=urn:btih:2D86DCF525C480877957C3523F1569EE38B74A7C
 ```bash
 magnet:?xt=urn:btih:9A2F1FA2E13E126BC35EF0DFE3437767A89A84CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +380,8 @@ VA - Dance Жара. Зарубежный (2012) [MP3|256 кб/с]<Рор>
 magnet:?xt=urn:btih:28502A3F7E749FAFE9A867937795237C61A621F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +408,8 @@ Fadios - Paradiso (2012) [MP3|320 кб/с]<Trance, Uplift, Progressive, Tech, Dr
 ```bash
 magnet:?xt=urn:btih:FBD414C714523D24181C00F63ACD245BFA9E3E5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +444,8 @@ Hobo - Iron triangle (2012) [MP3|320 кб/с]<tech-house>
 magnet:?xt=urn:btih:9A23608B2EA128E203C9AE04CAE1B5E349518982
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +479,8 @@ VA - The Official UK Top 40 Single Charts (19.02.2012) (2012) [MP3|320 кб/с]<
 magnet:?xt=urn:btih:10ECA95B8F25537E26E2956702D6ABAA711DF317
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +505,8 @@ magnet:?xt=urn:btih:10ECA95B8F25537E26E2956702D6ABAA711DF317
 magnet:?xt=urn:btih:2D337D6B34E6B3A46A0003D4F9C368B57FD9554C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +530,8 @@ magnet:?xt=urn:btih:2D337D6B34E6B3A46A0003D4F9C368B57FD9554C
 ```bash
 magnet:?xt=urn:btih:BC119DBCEECD4C0E4DD24A10A193642250073BDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +566,8 @@ VA - 100 A State Of Trance Tunes Vol 2 (25.02.2012) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:C6FB6184EF1382C5248FF6F93007AE4DF2AC6646
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +591,8 @@ magnet:?xt=urn:btih:C6FB6184EF1382C5248FF6F93007AE4DF2AC6646
 ```bash
 magnet:?xt=urn:btih:C84CE9AD9F0BC2F4190E9D3A91344555B2CB3659
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +626,8 @@ Rocky - Keyboard Wipeout (2011) [FLAC|Lossless]<Psychedelic / Progressive>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +651,8 @@ Rocky - Keyboard Wipeout (2011) [FLAC|Lossless]<Psychedelic / Progressive>
 ```bash
 magnet:?xt=urn:btih:C2DAC514C5BA0E5892F2C0939F57870F6C794EBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -645,6 +689,8 @@ http://ru.wikipedia.org/wiki/Dir_en_greyПеревод: ОтсутствуетП
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -677,6 +723,8 @@ VA - Dubstep Boom Vol.2 (2012) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:9A424BE65B1C3A19DB55B21DE723919BD9B48BD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -711,6 +759,8 @@ VA - Copy Kills (2011) [MP3|320 кб/с]<Psychedelic / Full On, Psy-Prog>
 magnet:?xt=urn:btih:F96D818BA0BE3F51CADCC05F28721CAFDA09840B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -743,6 +793,8 @@ VA - Special Places (2012) [MP3|320 кб/с]<Ambient, Modern Classical>
 ```bash
 magnet:?xt=urn:btih:30931CAFA318942D6F304898B88C50E086281C08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

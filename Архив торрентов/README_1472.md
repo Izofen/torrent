@@ -20,6 +20,8 @@ RadioBOSS - автоматизация радиовещания, озвучка 
 magnet:?xt=urn:btih:9085F79CB6641851096F52F001F640A85C9DD112
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ OpenedFilesView отображает список всех открытых в �
 ```bash
 magnet:?xt=urn:btih:DC9C91ABC8333579720BCB25EC0EBFB1F4A2B590
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:DC9C91ABC8333579720BCB25EC0EBFB1F4A2B590
 magnet:?xt=urn:btih:39AAA68B99E1014C1144B476C71826A4444366B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Macrorit Data Wiper – мощная утилита, которая поможе
 ```bash
 magnet:?xt=urn:btih:9FF06E284E9CB384BDA8A18534EDD1D16135AFD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ App Builder позволяет создавать приложения для с
 magnet:?xt=urn:btih:B515C60F29BF128D767194E7F6F4D0C28828EB7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ OCCT 11.0.20 Final Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1064EE9C1A123B8665FE5FD5770B21FECB1FFEDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ IceCream Ebook Reader Pro 6.25 [Multi/Ru]
 magnet:?xt=urn:btih:6269FE7AA8C07DFA7DC63CC0B8731A44A2E91B87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Kdenlive - бесплатный нелинейный видеоредактор,
 ```bash
 magnet:?xt=urn:btih:C34145E16701670242BD4EDFF765ABADC4791D34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ PrivaZer - полезная утилита, которая поможет вам
 magnet:?xt=urn:btih:3D1629A3E84D8D454BAFF88D2DFCC69697A8157E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ HiBit Uninstaller - идеальное решение для удаления п
 ```bash
 magnet:?xt=urn:btih:5D21A0578E316E5C09A6DBCF147374FA03594AAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Total Commander 10.52 by wincmd64 [Multi/Ru]
 magnet:?xt=urn:btih:129EB4E81558F00D534D0991DAE7BF147668FB6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Wondershare Filmora - удобный видеоредактор, содержа�
 ```bash
 magnet:?xt=urn:btih:9D3D2F6AE2FCCA5FA2D747ED518A6E5E5A422F50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:9D3D2F6AE2FCCA5FA2D747ED518A6E5E5A422F50
 magnet:?xt=urn:btih:CE7463DF3BE800683CCBAEC3112333C421D522AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ MyLanViewer — программа для сканирования и монит
 ```bash
 magnet:?xt=urn:btih:954512B856626A77A2ABA9B03EAB6527BF48E3B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:D6329ECDFF919D45E6C0BE554136F9256A697F85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:D6329ECDFF919D45E6C0BE554136F9256A697F85
 ```bash
 magnet:?xt=urn:btih:BCBCD2F4F48C08F2D8D5829CB26D6A10D4B5CF50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ UsbTreeView маленькая утилита, реализующая больш
 magnet:?xt=urn:btih:447E53BDB3736FACC420F5004B86E56C2D3BC0D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Win10 All Settings 2.0.3.27(x32) / 2.0.3.30(x64) Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E367625A644F8B6718E07CDEAFA89E8A7C189643
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:804DA80D4A266DAB16C55D0B2EBCB7948C51786C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Macrorit Partition Expert Unlimited Edition – предоставляет мо�
 magnet:?xt=urn:btih:E9E49CBF0265BCE80D0FD668D6DA9D6A2D346B58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:80684EDBA7C3531C6EECA884ABC4BB3694EF76E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ HiBit Uninstaller - идеальное решение для удаления п
 magnet:?xt=urn:btih:818EA3D15E67307E8FB8167382340B23A19DC448
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ PhotoRoom - приложение, что будет одинаково поле�
 magnet:?xt=urn:btih:94DEB037C5788A056A763739E9FA2C3DF2905AC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ MediaInfo — программа для получения подробной т
 ```bash
 magnet:?xt=urn:btih:7A8023D8AF7F9059F552385B3BA74929CE6F9246
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ JixiPix Artista Impresso Pro 1.8.20 [En]
 magnet:?xt=urn:btih:F7B57BF552190BCB4C3B983F06CE332D78676656
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Softorino YouTube Converter — почти YouTube Red, только беспл�
 ```bash
 magnet:?xt=urn:btih:8BABFB0EC19CC453E988C1EDEC1E4D41B882692A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Beacon Street Union - The Eyes Of The Beacon Street Union (1968) Reissue, 2010, 
 magnet:?xt=urn:btih:099C2E36A7845E6A75D221616F2D5F95807AF911
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:099C2E36A7845E6A75D221616F2D5F95807AF911
 ```bash
 magnet:?xt=urn:btih:7642619757376A13C3B152BE43887F8EAB33A3AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:7642619757376A13C3B152BE43887F8EAB33A3AD
 magnet:?xt=urn:btih:FF5D24516096E3CE3ADBFF0142ABB512AAD44A5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:FF5D24516096E3CE3ADBFF0142ABB512AAD44A5B
 ```bash
 magnet:?xt=urn:btih:D9730E4713A02408390A4AC35DE455BB88EBBBD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:D9730E4713A02408390A4AC35DE455BB88EBBBD1
 magnet:?xt=urn:btih:CE066AA0F0C0A164BEE554E79DA45DFEBE424A4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:CE066AA0F0C0A164BEE554E79DA45DFEBE424A4E
 ```bash
 magnet:?xt=urn:btih:F104D3D470CA1A602ED303DD23077F994D243522
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Wirecast предлагает доступное программное обес
 magnet:?xt=urn:btih:61709E776D4E5EA807B01BA62F1DFEEF73994E2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:61709E776D4E5EA807B01BA62F1DFEEF73994E2D
 magnet:?xt=urn:btih:8C3CBA966727C4F020011E33AFAD547FF1CCC6C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:8C3CBA966727C4F020011E33AFAD547FF1CCC6C7
 ```bash
 magnet:?xt=urn:btih:31159E97B41BE1DF806EE20906902C8E1508060D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:31159E97B41BE1DF806EE20906902C8E1508060D
 magnet:?xt=urn:btih:BCB708DF40DB9951F154D16832CE595FCBE2C395
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Sonority (2022) [Ru/Multi] (1.6.2) License GOG
 ```bash
 magnet:?xt=urn:btih:9EE9E17EA34DBC6CBBA6903167AB6CCDFA683A10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:9EE9E17EA34DBC6CBBA6903167AB6CCDFA683A10
 ```bash
 magnet:?xt=urn:btih:1FCCD50785D0F95F034CA66A84A916167A866294
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ Astrud Gilberto - The Silver Collection (1965 - 1970) 1991, Verve [FLAC|Lossless
 magnet:?xt=urn:btih:5E22625E0118964D677A63789B9D098F464CD07D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:5E22625E0118964D677A63789B9D098F464CD07D
 ```bash
 magnet:?xt=urn:btih:69A93491C9DE737088E73C2136ED65C0651C0FBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ Enigma - MCMXC a.D. (1990) [FLAC|Lossless|tracks + .cue] <Abstract, Ambient>
 magnet:?xt=urn:btih:E1B62C5966E26E515A6CB632A033389372217245
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:E1B62C5966E26E515A6CB632A033389372217245
 ```bash
 magnet:?xt=urn:btih:8F17CEA6766D3533C25AD99435B122E75387DED9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:8F17CEA6766D3533C25AD99435B122E75387DED9
 magnet:?xt=urn:btih:8B2466FC5232849E25CFE4AA9C9ECCD1C43910E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ magnet:?xt=urn:btih:8B2466FC5232849E25CFE4AA9C9ECCD1C43910E9
 ```bash
 magnet:?xt=urn:btih:9FC4D60DFCEF03B439A0FBEE0C1704AA8D657670
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:9FC4D60DFCEF03B439A0FBEE0C1704AA8D657670
 magnet:?xt=urn:btih:A6EA4475EF3517965EF8801C30AF09613E60D148
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:A6EA4475EF3517965EF8801C30AF09613E60D148
 magnet:?xt=urn:btih:8833639A83BCFEEB745573B8A500603EFD0E18F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ magnet:?xt=urn:btih:8833639A83BCFEEB745573B8A500603EFD0E18F7
 ```bash
 magnet:?xt=urn:btih:8984A2B8254819ED9280801D632E73B5F34C6137
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ Bloodhound Gang - Hard-Off (2015) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Pu
 magnet:?xt=urn:btih:374408E7C58FC12E69A537EB3ACEE98BCE6811A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ magnet:?xt=urn:btih:374408E7C58FC12E69A537EB3ACEE98BCE6811A6
 ```bash
 magnet:?xt=urn:btih:BC900F642C52D002891660FBD187ABF0B1359678
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +640,8 @@ magnet:?xt=urn:btih:BC900F642C52D002891660FBD187ABF0B1359678
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +666,8 @@ magnet:?xt=urn:btih:BC900F642C52D002891660FBD187ABF0B1359678
 magnet:?xt=urn:btih:99AE4C445205BAF5D9A6EF3BAEAFBB3237079CA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ magnet:?xt=urn:btih:99AE4C445205BAF5D9A6EF3BAEAFBB3237079CA8
 ```bash
 magnet:?xt=urn:btih:7DEDF8FC7791CE625DED7046B86070E17E39EE06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

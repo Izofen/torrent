@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:5F58369FED6DDF88C9431CDCD7A4BE081BDEA9C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ A4 Тайфун Над Кагосимой (Typhon Sur Kagoshima)(   Читать
 ```bash
 magnet:?xt=urn:btih:BD29B15E3D3D3C545BC9D4F02D6F0772A978AA64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Для Вас, Женщины! (1975 - 1989) Серия 13LP [FLAC 2.0|96/2
 magnet:?xt=urn:btih:9DFE70E25FBE7BAFBFED3C7DC454C1C7948648FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ A3 Танец • Dance(   Читать дальше...   )Жанр: Classical, 
 ```bash
 magnet:?xt=urn:btih:8C31A62EF58657C3F36CFC4CDE2FF26DAB380AE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Место Встречи Дискотека. Выпуск 4 (1988) [FLAC 2
 magnet:?xt=urn:btih:0021F9F5C6A6B45209431AF991C6FCC9C5603033
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ A4 I'll Drown In My Own Tears(   Читать дальше...   )Жанр: Fusio
 ```bash
 magnet:?xt=urn:btih:870CCC4AEC2CFDDB9256C0A841EED98487B4E19D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ The Alan Parsons Project - I Robot (1977) (2022) [DSD 128|image+.cue|Vinyl-Rip] 
 magnet:?xt=urn:btih:540B7805436D59B21B712C6A8EF19504A106173B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ A2 Love Cannot Be Wrong 2:53(   Читать дальше...   )Жанр: Electr
 ```bash
 magnet:?xt=urn:btih:A0AEE7B7496BEBF2E16E72A476987597A1982B36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Side A:
 magnet:?xt=urn:btih:FA844F0F87A5271B2A70BF0F697A865BDC188928
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ A4 Heartstrings 4:12(   Читать дальше...   )Жанр: Pop RockПро
 ```bash
 magnet:?xt=urn:btih:7AC8B698DFA02D4A202F04037009F6B22199B0F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Side-A
 magnet:?xt=urn:btih:71250EB162EEF4B4B01EC1FB5B23A5CCE28C9F2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ A4		Lucky Day - Удачный день	3:37(   Читать дальше...   )
 ```bash
 magnet:?xt=urn:btih:7B71C09DB794D48807AFC21DFE38A10A7567B362
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ A4 Rivers(   Читать дальше...   )Жанр: Synth-popПродолжи
 magnet:?xt=urn:btih:9FDFDCBE2C468F6C9F04B51657C0E345DA18C741
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ A2 Африка(   Читать дальше...   )Жанр: Pop RockПродо�
 ```bash
 magnet:?xt=urn:btih:B22C4D5475C42CBA2075D845E1B8F7DB34A49285
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Pet Shop Boys - Fundamental (2006) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synt
 magnet:?xt=urn:btih:6A5187987BAECCFCCFD2433ACC6B1CA0F83A8CC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ System of a Down (SOAD) — армяно-американская альтерн
 ```bash
 magnet:?xt=urn:btih:A4B52FC75A5D695BEDD3F19D3BACF06980CD2F82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - Мамина Пластинка (1991) Compilation [FLAC 2.0|96/24|image +.
 magnet:?xt=urn:btih:F4AD04C121AD55CCD779A5F7B3426D392DF983E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ B1		Industrial Disease	5:50(   Читать дальше...   )Жанр: RockП�
 ```bash
 magnet:?xt=urn:btih:5689AEFC2971FB9349215EB5769616E33F1CF2BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ B2 III. Allegro Vivance(   Читать дальше...   )Жанр: Classical, 
 magnet:?xt=urn:btih:859C363F4EC2DFB100ACF6E5157A4D94890FAA69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ A4 Private Eye 4:44(   Читать дальше...   )Жанр: Synth-popПро
 ```bash
 magnet:?xt=urn:btih:48DAC657497338BD5E9EF221B428E7D88B720060
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ Rebellion — немецкая heavy metal группа. Была создана
 magnet:?xt=urn:btih:2086E899A69D23FA4FDEF886257285F302E36339
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ A4 Манана(   Читать дальше...   )Жанр: Jazz, PopПродо
 ```bash
 magnet:?xt=urn:btih:8B81F9591649B7234310FAA2F989D966510BBA32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ A4	Hi Hi Hi (Vtip)(   Читать дальше...   )Жанр: Blues Rock, Prog
 magnet:?xt=urn:btih:48B383381F211F2600167B9E196651428328B42B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ A4 И Утре Е Ден • И завтра будет день(   Читать
 ```bash
 magnet:?xt=urn:btih:26A0EF948F1A68E406BCA6542E1D05245B67CB82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ A1 1. Лирический вальс, 2. Танец (Пиццикато), 3. Р
 magnet:?xt=urn:btih:BDA781E64704F4679FE3E8297E08D77DE7F7E729
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ A4 III. Sequentia, No. 2 Tuba Mirum(   Читать дальше...   )Жанр:
 ```bash
 magnet:?xt=urn:btih:CAC52F838604E4303442A8DED893AE0B420EDC72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

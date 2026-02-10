@@ -1,27 +1,3 @@
-###  Публикация: 1356650   (977326) от 31.01.2020
-
-Astra Exodus (2020) [Multi] (1.0) License CODEX
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игроку предлагается возглавить одну из нескольких различных фракций или создать свою. Затем его выпустят в процедурно сгенерированную галактику и поставят цель — найти Землю. Для этого придется исследовать новые миры, заключать союзы, а также сражаться с агрессивными формами жизни и пиратами. Astra Exodus - это однопользовательская пошаговая стратегическая игра Sci-fi (   Читать дальше...   )Тип издания: LicenseРазработчик: Atomic KaiserЖанр: Strategy 4X, Turn-Based, Sci-fiЯзык озвучки: АнглийскийЯзык субтитров: Английский, ИспанскийЯзык интерфейса: Английский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2334CD4572337A778AE34BF2791A92E422797B33
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356619   (977331) от 31.01.2020
 
 Catherine Classic (2019) [Ru] (1.04) Repack xatab
@@ -42,6 +18,8 @@ Catherine Classic (2019) [Ru] (1.04) Repack xatab
 ```bash
 magnet:?xt=urn:btih:F8997E87D5CA7F3FF9F46A4ABF2749C12CCDBA8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Effie - это трехмерная приключенческая игра, к�
 magnet:?xt=urn:btih:2331A19C79248D8F27460A175E957A2EEB33DED9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Through the Darkest of Times (2020) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:045B8700D6A0CBECFAEAF551AE9FFEC37C9AE416
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Terra Incognita (2020) [En] (1.0) License TiNYiSO
 magnet:?xt=urn:btih:482B1A84BF75BAE33169F7E0162B8E13AF387523
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Halloween Chronicles 2: Evil Behind a Mask / Хроники Хэллоуина 2
 ```bash
 magnet:?xt=urn:btih:FFD4F96BA1DBF8510922D01168E8074249B4B2CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +150,8 @@ Man of Prey / Мародер [En] (L) 2009 | PROPHET
 ```bash
 magnet:?xt=urn:btih:436A2309B2E5A8D8A9AED9886098D6CC082C9B1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +180,8 @@ Deadlight [Ru/En/Multi7] (L) 2012 | PROPHET
 magnet:?xt=urn:btih:84FCFB25E0937E955383D2798F3FDDD76303C8E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +205,8 @@ Lucius [Ru/En/Multi7] (L) 2012 | PROPHET
 ```bash
 magnet:?xt=urn:btih:6FC4A01C2E5AEF91183779C996911AE466CB1945
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +232,8 @@ Journey to the Savage Planet (2020) [Ru/Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:6A5287361B022C2E8AF19935B34E44852E510B78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +257,8 @@ Mutazione (2019) [Ru/Multi] (1.7.5805) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A92E04671356898363FD067353CE75F07F2197C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +285,8 @@ FS Global Ultimate: Europe/Africa - это меш земного шара, ра�
 magnet:?xt=urn:btih:EF0B057A2A215BEE9944DFD019BE50B324F43746
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +310,8 @@ Living Legends 8: The Crystal Tear (2020) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:BA972E94A602ECCA4D2BB10E61C17E9CEDB5161F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +339,8 @@ King Arthur: The Role-playing Wargame / Король Артур [Ru] (L) 2009
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +364,8 @@ Lightmatter (2020) [Ru/Multi] (1.05/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:80BFAEAFBD3E5035700F2D0AF5C175215CAD115E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +391,8 @@ Escape The Manor (2020) [En] (1.0) License PLAZA
 magnet:?xt=urn:btih:35991AD1A564EAEF29F2C1CDAD7528D8EE383181
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +416,8 @@ Deponia: The Complete Journey (2014) [Ru/Multi] (3.3.0155) License PROPHET
 ```bash
 magnet:?xt=urn:btih:3E7B4486E8DD96AB86607646F1541987354A51AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +443,8 @@ Hidden Expedition 10: The Fountain of Youth (2015) [En] Unofficial [Collector's 
 magnet:?xt=urn:btih:2C19654C3741E2515A21F41BA78F8E5A2D33A831
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +468,8 @@ Darkarta. A Broken Hearts Quest / Darkarta: Поиск разбитого сер
 ```bash
 magnet:?xt=urn:btih:A371A14EA391488F1A28A67F5D5F9BD4D501F5F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +500,8 @@ Louisiana Adventure / Однажды в Луизиане [Ru] (RePack) 2013 | Se
 magnet:?xt=urn:btih:39A7061EBE0C3E0129C481B6309A6C644F75AF5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +525,8 @@ Last in Orbit (2020) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:90FA048CE080BA390711166F7870BEEAD8BC2FB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +552,8 @@ Lightmatter (2020) [Ru/Multi] (1.02) License HOODLUM
 magnet:?xt=urn:btih:B4D5EC9A3CBB94CD8C848D868F662261B7FB9AE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +577,8 @@ Ghostbusters: The Video Game [Ru/En] (RePack) 2009 l R.G. Games
 ```bash
 magnet:?xt=urn:btih:C5D0415390015F750F2084A3E57B89A757484EE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +605,8 @@ Poker Night at The Inventory [En] (P/1.0.0.1) 2010
 ```bash
 magnet:?xt=urn:btih:009720EC866FDE4520679AD78B99A5D6E25BC8FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +635,8 @@ Cargo! The Quest For Gravity / Эврика! [Ru/En/Multi9] (L) 2011 | PROPHET
 magnet:?xt=urn:btih:11F0194F83B37B43860D23264EEF6B70B392184A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +660,34 @@ Mythic Wonders: The Philosopher's Stone (2014) [En] Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:DABDF65BF423AB655B5259656EBF7973B2F633C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 613543   (982129) от 04.02.2013
+
+Fieldrunners 2 [En] (RePack) 2013 | Scorp1oN
+
+>>Win Игры
+>>Strategy/Manager/Business (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_982129.jpg" />
+</div>
+
+
+###  Подробнее
+
+Много составляющая, стратегическая и динамичная игра из категории Tower Defense еще никогда не была настолько забавной и увлекательной! Защити свой Мир от вторжения путем построения извилистых тропинок из впечатляющего нового оружия! Призывай помощь с воздуха и расставляй взрывающиеся ловушки, чтобы ударить противника в самое слабое место. (   Читать дальше...   )Тип издания: RePackЖанр: Strategy (Tower Defense) / Top-downЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C4C79232B39C2EBA61733F8C389C244D0154FC0
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -24,6 +24,8 @@ Beauty Box Video 2.0.4 -это следующее поколение в рету
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -50,6 +52,8 @@ Recovery Partition for Acer Aspire E1-521 / Windows 7 Starter (х86) SP1 [рус
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ Recovery Partition for Acer Aspire E1-521 / Windows 7 Starter (х86) SP1 [рус
 ```bash
 magnet:?xt=urn:btih:746115E258C82B662F283784D664CB34B40E73DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:746115E258C82B662F283784D664CB34B40E73DE
 ```bash
 magnet:?xt=urn:btih:5C90FD97953938CE71C0887CC02B1FDBB3AC18D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ Skeletal Remains - Beyond the Flesh (2012) [FLAC|Lossless|image + .cue] <Death M
 magnet:?xt=urn:btih:449231980CDE694C41A4BFE1229A2A52BAC8A957
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ Wipeout 3 продолжает серию игр Wipeout: The Game, основа
 magnet:?xt=urn:btih:6C64397468D2633557F40589D30FA4B62620A302
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ Malwarebytes' Anti-Malware - новая версия программы от с�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ Fonarev - Эфиры радиошоу/подкаста «Znaki / Digital Emotion
 magnet:?xt=urn:btih:1A3B025BD68B3826D2EFB905818CF4942CB15783
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:1A3B025BD68B3826D2EFB905818CF4942CB15783
 ```bash
 magnet:?xt=urn:btih:2B9E35A3FFE953961699B088926C7CEFA3112399
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:2B9E35A3FFE953961699B088926C7CEFA3112399
 magnet:?xt=urn:btih:2549C59CED23025E5441F7F492DBDB4361A61884
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ Pharaoh: A New Era - градостроительный симулятор, оп
 ```bash
 magnet:?xt=urn:btih:34A67D5EFBC24685BA0EF4C3CEF84CEE4334B2DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:34A67D5EFBC24685BA0EF4C3CEF84CEE4334B2DC
 magnet:?xt=urn:btih:DA3544BD1EA996E4134BC0D7870E8340A8E533C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ Mafia III: Definitive Edition (2020) [Ru/Multi] (1.0.1/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:B0E5E2071651FEE8316101A2C86868827994CE71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:B0E5E2071651FEE8316101A2C86868827994CE71
 magnet:?xt=urn:btih:3AEE2A5E103F7B93EC9B1FEFE6501A27362E2233
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:3AEE2A5E103F7B93EC9B1FEFE6501A27362E2233
 ```bash
 magnet:?xt=urn:btih:BAB0E39F12A6693D302BDA50BCCA0052CA618E9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ Stickies 7.1e - программа, позволяющая "лепить" на �
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ Ghost Song (2022) [Ru/Multi] (1.2.12b) License GOG
 ```bash
 magnet:?xt=urn:btih:550DDD5ED15DE797F178658AB2804C49C8C277F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:550DDD5ED15DE797F178658AB2804C49C8C277F0
 magnet:?xt=urn:btih:D1DD4C08EE1701F288AD12D1C178B589C55B203E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:D1DD4C08EE1701F288AD12D1C178B589C55B203E
 ```bash
 magnet:?xt=urn:btih:194F0B4D86EB832114EE6463D45657F528F6F566
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ magnet:?xt=urn:btih:194F0B4D86EB832114EE6463D45657F528F6F566
 magnet:?xt=urn:btih:4695FCA1CAA0794B282FBBB086340F349D84BC9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:4695FCA1CAA0794B282FBBB086340F349D84BC9A
 magnet:?xt=urn:btih:43240A0C7B9A140234D132FB32899C714AA12A4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ magnet:?xt=urn:btih:43240A0C7B9A140234D132FB32899C714AA12A4F
 ```bash
 magnet:?xt=urn:btih:A1DB957C01952D50FF5E14A36F646F495DF3EED0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +610,8 @@ uTorrent Pack 1.2.3.79 Repack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:D11313D9E5618BEC3C8FC196A50C9DF6FD188088
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ magnet:?xt=urn:btih:D11313D9E5618BEC3C8FC196A50C9DF6FD188088
 ```bash
 magnet:?xt=urn:btih:9ED8FED8885ADFCE1D2D32AEC8450882FEF21AEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:9ED8FED8885ADFCE1D2D32AEC8450882FEF21AEB
 magnet:?xt=urn:btih:4F21B8EB042FC5E991C35E3950F7C305C8FA9045
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ magnet:?xt=urn:btih:4F21B8EB042FC5E991C35E3950F7C305C8FA9045
 ```bash
 magnet:?xt=urn:btih:32268EF844DE1EF4DF68CDBE3AA4D60E9AFC4145
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

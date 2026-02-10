@@ -19,6 +19,8 @@ Fatal Evidence 3: Art of Murder / Роковые улики 3: Искусств�
 magnet:?xt=urn:btih:5968ADD44E30EECD58C6A45420C1D5E70651BE6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Book of Demons — это гибрид Hack & slash и карточной игр
 ```bash
 magnet:?xt=urn:btih:B39A848A23C5C52E7CF268718A0FE8080B17379E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Thief Simulator (2018) [Ru/Multi] (1.2.6) Repack R.G. Механики
 magnet:?xt=urn:btih:A749D9F0E8173C20B2181059294C3ADB92EAF38B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Ominous Objects 3: Trail of Time / Зловещие вещи 3: Тропами �
 ```bash
 magnet:?xt=urn:btih:8DC6499BF5C29E1602AE8F69AC88E075B8EB2A9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Velocity Stream - необычные гонки в мире будущего, г
 magnet:?xt=urn:btih:99FE32B5BDAD36815D85DC7146BA2B33D6CD09C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Prodigy Tactics (2017) [Multi] (Update 6) License GOG
 ```bash
 magnet:?xt=urn:btih:5D6C908BCAE74762A7D81D4DBCA60DE1A558C015
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ RESONANCE OF FATE / END OF ETERNITY (2018) [Multi] (1.0) License CODEX [4K / HD 
 magnet:?xt=urn:btih:9C86D2BE58D5109F4F54F209EAB0FE506A1F64CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ LEGO DC Super-Villains (2018) [Ru/Multi] (1.0/dlc) Repack xatab [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:A857E2E918C38A6F74A2FC8EF8D778F4B1F94659
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Yoku's Island Express (2018) [Ru/Multi] (1.2) License CODEX
 magnet:?xt=urn:btih:568FCA2D7999775AED6AFF1370B7A0C52E42899B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ God's Basement — это хоррор-игра, рассчитанная на �
 ```bash
 magnet:?xt=urn:btih:A726B6910361287514D1EF7690C744876C2038E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Panzer Strategy - варгейм в сеттинге Второй Мировой
 magnet:?xt=urn:btih:56A4A476CBB537292B9DE046517CFDB74D2C2D85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Speedrunners from Hell – единственный в мире состязат
 ```bash
 magnet:?xt=urn:btih:6ED42F1F075B632694A69BBB2493F9B4FC9CCD7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Cult of the Lamb (2022) [Ru/Multi] (1.0.15/dlc) Repack Other s [Cultist Edition]
 magnet:?xt=urn:btih:287F98FD6A87994015877F7D7FF51459BAB6735B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Haunted Legends 13: Twisted Fate / Легенды о призраках 13: Ск
 ```bash
 magnet:?xt=urn:btih:7DD33EA48A562B9A953CBFA2501E1F991DA692E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Autumn Dream (2016) [Ru/En] (1.6.9.6) Repack Other s
 magnet:?xt=urn:btih:9EF93350DD5EFE23E91A783A61E28C76CCBF7F69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Silent Nights 2: Childrens Orchestra (2014) [En] Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:F93EBB4906A35DF598EEF1A9FA2C21B3F2ECC79C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Gears Tactics - динамичная пошаговая стратегия, со
 magnet:?xt=urn:btih:E12C6706BE0C1D44E1067CF6219F6DB9D2EDB43B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Monster Truck Championship (2020) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:4A30D9AAD9A7577C175F4473F9FA325ACCE3EDFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ TEKKEN 7 (2017) [Ru/Multi] (3.30/dlc) SteamRip =nemos=
 magnet:?xt=urn:btih:CA0AAF6B2CC0EAE88328C95E1E6FB422F7A69C64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Welcome to Hanwell - хоррор с открытым миром. В нем це
 ```bash
 magnet:?xt=urn:btih:88C2A3A31A9DE3213209CC401DE3E3F34E41CF24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Real Farm (2017) [Ru/Multi] (1.0.0) License SKIDROW
 magnet:?xt=urn:btih:8E007C58CFDDCAC07A65098FF7BB0198BA93ECEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Fernbus Coach Simulator — первый симулятор, позволяющ�
 ```bash
 magnet:?xt=urn:btih:F6CBB47A0F9E9D58A34C09E7154A7839D1677D9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ War Front: Turning Point / War Front: Другая мировая (2007) [Ru] (1
 magnet:?xt=urn:btih:297C41775BD7FA26BBD00544A8BC4F09FC227217
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Fernbus Coach Simulator - первый симулятор, позволяющи�
 ```bash
 magnet:?xt=urn:btih:64D243180822FDF044E6FA108CECEE1E9E27BFD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Alien Breed 3: Descent - шутер от третьего лица, в кото�
 magnet:?xt=urn:btih:E3E9AA3B2F77ED101C475AB95FBC61533008BB9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ BloodLust Shadowhunter - это ролевой dungeon crawler, в которо�
 ```bash
 magnet:?xt=urn:btih:CD30A4DB6785E32A04E4116CCD995935C625748C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1025755   (705963) от 14.06.2016
+
+Лучший друг человека / The Wonder of Dogs (2013) HDTVRip [H.264/720p] (серии 1-3 из 3)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кинологи рассказывают о больших собаках и маленьких, о служебных и декоративных, о мохнатых и бесшерстных. Мы узнаем, почему один вид животных отличается таким невероятным множеством форм и размеров. Ни одно из наземных животных не демонстрирует такого разнообразия, как собаки. Трудно поверить, что датский дог и чихуахуа принадлежат к одному виду.Телекомпания: Великобритания, British Broadcasting Corporation (BBC), Open University, The Windfall Films, The Open Universitety and For National Geographic ChannelЖанр: Документальный, животные, познавательныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 3 x ~ 00:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98F04FF75762E1440063ACB7D1CA10AF43CCF9F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220088   (705980) от 18.04.2018
 
 Холостяк (2018.04.15) WEB-DL [H.264/720p-LQ] (сезон 6, выпуск 6)
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:52751370FF4A69EA6591E326AE013138B9166D88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:52751370FF4A69EA6591E326AE013138B9166D88
 magnet:?xt=urn:btih:3175E1A6D5E2A23F90EAE6BE5D0F92F49608C9D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:3175E1A6D5E2A23F90EAE6BE5D0F92F49608C9D1
 ```bash
 magnet:?xt=urn:btih:7B76D8CC7C756F901483E09883CE4F11AD235CE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:7B76D8CC7C756F901483E09883CE4F11AD235CE9
 magnet:?xt=urn:btih:0DA7C39DEDCF3E6C5E83C39795B3A89CCF556BE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:0DA7C39DEDCF3E6C5E83C39795B3A89CCF556BE6
 ```bash
 magnet:?xt=urn:btih:2484437D543449A0BA67D86075EB00BBCFC634D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:2484437D543449A0BA67D86075EB00BBCFC634D5
 magnet:?xt=urn:btih:5E75A6430BC95576948665746673C670FDBBC092
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:5E75A6430BC95576948665746673C670FDBBC092
 ```bash
 magnet:?xt=urn:btih:84260F5E0064F5C864DAF8DBCA84DF241A2EA636
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:84260F5E0064F5C864DAF8DBCA84DF241A2EA636
 magnet:?xt=urn:btih:CA8B965321C18B4F50297C2689E4484E211A19CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:CA8B965321C18B4F50297C2689E4484E211A19CC
 ```bash
 magnet:?xt=urn:btih:7006F70402E9A63B507CDCD958F478E46293EBCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:7006F70402E9A63B507CDCD958F478E46293EBCE
 magnet:?xt=urn:btih:DBAD731828F40835CBB1DA20F4124FFC2961C6A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:DBAD731828F40835CBB1DA20F4124FFC2961C6A0
 ```bash
 magnet:?xt=urn:btih:BDE9D49D156EEDC4371DF4BA69DBCE4BDC8D9A36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:BDE9D49D156EEDC4371DF4BA69DBCE4BDC8D9A36
 magnet:?xt=urn:btih:C47461C8F64E58F94620AB09E012F5C0657F9C85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:C47461C8F64E58F94620AB09E012F5C0657F9C85
 ```bash
 magnet:?xt=urn:btih:8AF1B4878FB5AAF175237B3BAAA3364C03D6BA7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:8AF1B4878FB5AAF175237B3BAAA3364C03D6BA7A
 magnet:?xt=urn:btih:4046C449694D227DA1F4B5520C3D35691D550A35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:4046C449694D227DA1F4B5520C3D35691D550A35
 magnet:?xt=urn:btih:F79F2306103FDB7352B2395561ED46CD30B3B51A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:F79F2306103FDB7352B2395561ED46CD30B3B51A
 ```bash
 magnet:?xt=urn:btih:9206C33245889C52435C4F10CC1C4A9CBBBBD8EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +466,8 @@ NG: Последние герои войны / World War II: The Last War Heroes
 magnet:?xt=urn:btih:D7F53E08AD7E6738A5CD3B6FA14A4920F907731C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:D7F53E08AD7E6738A5CD3B6FA14A4920F907731C
 magnet:?xt=urn:btih:C9C8123E1B3DF01C059D5E7C73BB8E4D39957506
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:C9C8123E1B3DF01C059D5E7C73BB8E4D39957506
 ```bash
 magnet:?xt=urn:btih:1FBFDA60515B8B2595202DC3DE740529A460A08E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:1FBFDA60515B8B2595202DC3DE740529A460A08E
 magnet:?xt=urn:btih:27962233000BF3A66A83AB5866E33E87F136DBF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:27962233000BF3A66A83AB5866E33E87F136DBF8
 ```bash
 magnet:?xt=urn:btih:1E71071436DC302DF1E1CD87C0F6523BD007D1F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:1E71071436DC302DF1E1CD87C0F6523BD007D1F8
 magnet:?xt=urn:btih:D065AE86B081EE055BD2ACE860F951568ED15B1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:D065AE86B081EE055BD2ACE860F951568ED15B1B
 ```bash
 magnet:?xt=urn:btih:40EBC307D66098230FDD3310FEE9CF4CE80383CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:40EBC307D66098230FDD3310FEE9CF4CE80383CB
 magnet:?xt=urn:btih:5FF72063FB918CA52110BA4267DF3FFDFD3B0DB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,29 +675,7 @@ magnet:?xt=urn:btih:5FF72063FB918CA52110BA4267DF3FFDFD3B0DB0
 magnet:?xt=urn:btih:6828F415AC136AD5ED2398A3C48F5A3D4D8CA2A1
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533351   (707052) от 23.02.2022
-
-Как уходили кумиры. Юрий Барабаш (Петлюра) (2006) TVRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Страна знала его как Петлюру. Грустные глаза с кассетной обложки. Необычный приятный голос. Песни, полные тоски. Проникающие прямо в душу и выворачивающие ее... И все!Телекомпания: ДТВЖанр: ДокументальныйРежиссер: Дмитрий КужаровСубтитры: ОтсутствуютПродолжительность: 00:19:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B6CBC8AB5064C9CCF11CA50134193410F67F638
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Nikolietta calligraphy, Варвара Пантелеева | Курс по ка
 magnet:?xt=urn:btih:D278B973C5E947DC377901987112DB91487B4015
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Udemy, Filip Jerga | Rust & WebAssembly with JS (TS) - The Practical Guide (2021
 ```bash
 magnet:?xt=urn:btih:5CD47F17140A57A1D9B859F79FD6001DC401482B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Nikandr Surkov | Создание вирусных приложений для T
 magnet:?xt=urn:btih:C3D5EA7AA6BCFA5165516C6DC0EBAE6BB18DB664
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Purpleschool, Антон Ларичев | JavaScript с нуля - основы 
 magnet:?xt=urn:btih:7513E0E247F4655722E01376390A8631A7796B5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ C++ — это один из самых живучих языков програ
 ```bash
 magnet:?xt=urn:btih:266FDF14EAFDB169EEA2324E072768430FBDBA35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ WebDesign Master | Three.js Большой практический курс (20
 magnet:?xt=urn:btih:4CA926D3946760E46B800FA6D27DAF32C2A09034
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:4CA926D3946760E46B800FA6D27DAF32C2A09034
 ```bash
 magnet:?xt=urn:btih:46D7A3029F4023C618C901CE669595498092FEB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:46D7A3029F4023C618C901CE669595498092FEB7
 magnet:?xt=urn:btih:0604EA84062D2F3C45BE15F514B5311BE2F748C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:0604EA84062D2F3C45BE15F514B5311BE2F748C5
 ```bash
 magnet:?xt=urn:btih:A2BD23385F111FC0F25B3AABB13D1B7177C1CBCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Udemy, Арнольд Оберлейтер |  MCP: Создание агенто
 magnet:?xt=urn:btih:78602E8B80A480FE89D64DA174041A610D22B107
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Udemy, Арнольд Оберлейтер | AI-агенты: автоматиз
 ```bash
 magnet:?xt=urn:btih:A1988FDD0ADE488BC18E013E025E910EE5A66FDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Udemy, Арнольд Оберлейтер | AI-Автоматизация: Со
 magnet:?xt=urn:btih:EC97F7FCB825E471BBDBD4FC7A4DAE876B7B324E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Udemy, Арнольд Оберлейтер | Голосовые ИИ-Агент�
 ```bash
 magnet:?xt=urn:btih:F7708C21B3CA4E9B8DEBD14CE73F9BEA969946F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ Udemy, Арнольд Оберлейтер | RAG Agents: создание при
 magnet:?xt=urn:btih:F6C8796B7B92C7183389E3A2F96EAF4419625026
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ Udemy, Арнольд Оберлейтер | Всё об AI: ChatGPT, Midjourney
 magnet:?xt=urn:btih:E81BCD75D10072EEEAE741BBA78D651A3C78C6C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:E81BCD75D10072EEEAE741BBA78D651A3C78C6C5
 ```bash
 magnet:?xt=urn:btih:2D8F0B0A4FF4D6E0A378993392BF850ED71F7235
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ R&D-лаборатория Devhands, Владимир Перепелица | И�
 magnet:?xt=urn:btih:A33E85FC87D789AA55B69794625FF4C43003022F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ Extreme Kettlebell Workout имеет быстрый темп и включае�
 ```bash
 magnet:?xt=urn:btih:C0B662DE0E94ED0A07E068FE885276A0A09DC4E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ magnet:?xt=urn:btih:C0B662DE0E94ED0A07E068FE885276A0A09DC4E5
 magnet:?xt=urn:btih:70D11D6D2CB7E8125D3F5F7ED1A81D9341CBEADA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ SmartMe University | Изучаем Ruby (2015) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:F1526A37B721C2A1E9D3AEF411F520EE2F88BBE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +554,8 @@ Udemy.com | Adobe Photoshop CC For Beginners (2019) PCRec [H.264/720p-LQ] [EN]
 ```bash
 magnet:?xt=urn:btih:D4B29A748EE16808A857547C23A4AEA3DB40E448
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +583,8 @@ Geekbrains | Как стать программистом (2017) PCRec [H.264]
 magnet:?xt=urn:btih:767A9EE4DA6BF24519B1EEB77B3F5C3207391095
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +608,8 @@ magnet:?xt=urn:btih:767A9EE4DA6BF24519B1EEB77B3F5C3207391095
 ```bash
 magnet:?xt=urn:btih:9F4C0A490AC198A11B65E100E91A0C6167527CE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +637,8 @@ magnet:?xt=urn:btih:9F4C0A490AC198A11B65E100E91A0C6167527CE6
 magnet:?xt=urn:btih:E30154A9952D25E67FF8CAF227C5F2B99E176321
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +665,8 @@ Convert Monster | Специалист SEO-оптимизации (2017) PCRec [
 magnet:?xt=urn:btih:9AA5B8DDCE4ABBA74863040662D523EECCF27C34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ Lynda.com | Основы программирования: Алгоритмы / 
 ```bash
 magnet:?xt=urn:btih:344775A873AE610468F84866AB9C28C4301FD91A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

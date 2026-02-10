@@ -20,6 +20,8 @@ iTubeGo YouTube Downloader 10.2.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:EDF5C7336DAF782EFDC167C21C14186DE4FEC8E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Launcher for zapret 2.6 [Ru/En]
 magnet:?xt=urn:btih:0D66629E7B7B82508CCD95B64AD23793A1A611DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ SAS.Планета / SAS.Planet / SASPlanet – свободная програ�
 ```bash
 magnet:?xt=urn:btih:0D8474DB24FB8636ED3247A55DEC0A61D3B35FCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:957B165A891D979682F588701F78AA558381828D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ FolderSizes 9.7.514 Enterprise [En]
 ```bash
 magnet:?xt=urn:btih:02ABD526AB8F1819D8245DCA765140590320B016
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:52AC418E65544A42AC18CDF39B6194A912B77CDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Duplicate File Detective - программа от Key Metric Software, кото
 ```bash
 magnet:?xt=urn:btih:B20E9BE6921E6893CDF8553F8C3589329E63B14B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:21664A4395AE2B89504411446D70721E7ED24772
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ RAM Saver Pro - инструмент для профессионального �
 ```bash
 magnet:?xt=urn:btih:45455802A9DA843DED9B52FFE725C15F79A62425
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ IObit Uninstaller Pro представляет собой удобный инс�
 magnet:?xt=urn:btih:EBE0E1F577FA56FDD99E430E8ABC145A2948B53B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Master PDF Editor — простая, но эффективная програм
 ```bash
 magnet:?xt=urn:btih:9464E03A52FA1C76866043E09BC33F0B5F310A01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Rufus - небольшая утилита помогает отформатир�
 magnet:?xt=urn:btih:BE879DF1819ED294F94E2E00C3C7E3EDD2A032AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ AnyDesk 9.5.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:767CFA901A4D6515A4924E51B6A2609FD2E072E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ ShareX - программа для снятия снимков и видеоза
 magnet:?xt=urn:btih:C70F02BBDC18B6E8CE5086B5A67A56C62D3639D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Notepad++ - бесплатный редактор текстовых файло�
 ```bash
 magnet:?xt=urn:btih:88D73EC1D88DDEEBCE08F76D522E3314C4704D00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Adobe Photoshop 2024 - новая версия программы для обр�
 magnet:?xt=urn:btih:4DFCD20D709DA75B3953475F722279C3CF6D929E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Adobe Photoshop 2024 - новая версия программы для обр�
 ```bash
 magnet:?xt=urn:btih:AD696F84DDB0E88C3A4FA9667432FB3113DCD750
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ MassTube Plus — очень простая в использовании про
 magnet:?xt=urn:btih:71F475751313C84928FA31FE6DA385B4CCC5785A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ Camtasia Studio - мультимедийная программа для зап�
 ```bash
 magnet:?xt=urn:btih:1E43A167BDB5804F5987E28A970CDBBB6EB33C86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ WinTools.net – набор инструментов для оптимизаци
 magnet:?xt=urn:btih:40FA4CA6B3C08DF683A22797ED3E26CCA75B07C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:ADE1DB9009058257385940F8E25137E8A9B07B95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ magnet:?xt=urn:btih:ADE1DB9009058257385940F8E25137E8A9B07B95
 magnet:?xt=urn:btih:CC01853D4183A99F64F95013C3BBC56D2A2DE8E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ Draw.io 26.2.2 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:6EFD131E2AD5874A918DE071FD183CD97E9BA54E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ Alfa eBooks Manager - одна из самых популярных програ
 ```bash
 magnet:?xt=urn:btih:45BBD6DBE72EC3D938F3738ED70CDADCBA86DE27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ InnoExtractor - это мощное приложение, которое пом�
 magnet:?xt=urn:btih:33804A03CB82B433270E2388D827FB3D745359AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Photomath v8.43.0 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:88DEDB1A9D6656BDC0D32177CE527158C457CF81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

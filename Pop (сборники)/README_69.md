@@ -1,3 +1,38 @@
+###  Публикация: 522832   (621064) от 14.07.2012
+
+VA - Ночная летняя вечеринка (2012) [MP3|256-320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621064.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Maxima - Алло (Fidel Wicked Mix) (3:38)
+2. Dj Fudge - My Budem Vmeste (3:08)
+3. Magic Deejays - No No (Radio Edit) (3:01)
+4. Dj Smash & Chinkong - Lifemission (Original Mix) (6:58)
+5. Dress Code - Кучерявое Лето (2:49)
+6. Митя Фомин – Хорошие Песни (3:03)
+7. Сергей Жуков И Opium Project - Я Буду С Тобой (4:22)
+8. Юлия Савичева - Сердцебиение (3:39)
+9. Полина Гагарина Вернись Любовь (3:30)
+10. Даша Суворова - До Утра (Поставит Басту) (With Guitar) (3:20)Жанр: PopПродолжительность: 06:02:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91B5AE912D5B7A15029AC254E3D06096433FE79D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 522829   (621142) от 14.07.2012
 
 VA - На гребне хитового лета (2012) [MP3|256-320 кб/с]<Pop>
@@ -28,6 +63,8 @@ VA - На гребне хитового лета (2012) [MP3|256-320 кб/с]<Po
 magnet:?xt=urn:btih:383E73FC3753D5DDF8799D6F499A3C06189E92D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -55,6 +92,8 @@ VA - Положительный заряд отличного настроени
 magnet:?xt=urn:btih:50EA821D6530C2F0CAA7227A8BE5C0C91F88989D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,6 +120,8 @@ VA - Disco 90s: New Remastering (2022) [MP3|320 Kbps] <Disco, Dance, Remastering
 ```bash
 magnet:?xt=urn:btih:81DE5AF7F1553553EEBABCBC4F567F5FECF04CE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +156,8 @@ VA - Золотой Курортный Хит Сезона (2012) [MP3|256 кб/
 magnet:?xt=urn:btih:35A57CBA922182BF7D63A828CB3408B76F97920F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +184,8 @@ VA - German Top 100 Single Charts 15.04.2019 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:44DA572F8806F45EEC542E949C5F5FAD6D98E7C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +214,8 @@ VA - Любимая Музыка Для Твоей Тачки 50x50 (2016) [MP3|
 magnet:?xt=urn:btih:98007D2278EE25F45CF0FA5A19FC33865FF01FEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +242,8 @@ magnet:?xt=urn:btih:98007D2278EE25F45CF0FA5A19FC33865FF01FEF
 ```bash
 magnet:?xt=urn:btih:8C1B558755568EF7392F49340F124858F72BFE31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +272,8 @@ VA - Relax FM for a Good Evening (2022) [MP3|320 Kbps] <Pop, Easy Listening>
 magnet:?xt=urn:btih:DC82016E88BF087EBBF3EC38786CFFC23FE6C555
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +300,8 @@ VA - Союз летних хитов на Europa Plus. Часть 2 (2015) [MP3
 ```bash
 magnet:?xt=urn:btih:10137E56AC154566933BA6E8D437C512F7EA0292
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +330,8 @@ VA - Полнолуние любви Самая свежая попса (2015) [
 magnet:?xt=urn:btih:6AE6878DF5D1F16080CAD8C783278660E1E03C1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +358,8 @@ VA - Pop Sauce (2022) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:07367D9029A14BB8616EBEFB12F4E03ECB464F94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +388,8 @@ VA - Charme de la France Vol.01-10 (2019) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:B59D2AFD8B7BA0772A32E38A66002016B1C24800
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +416,8 @@ VA - Q-Dance Presents: Hardstyle Top 40 | February (2022) [MP3|320 Kbps] <Hardst
 ```bash
 magnet:?xt=urn:btih:330DA92BDA90B31108BA1CAEA8B4D2629DEE7990
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +446,8 @@ VA - Наши имена (2015) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:68DAA75AC5088874EA9664960D9BC23895A559AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +474,8 @@ magnet:?xt=urn:btih:68DAA75AC5088874EA9664960D9BC23895A559AF
 ```bash
 magnet:?xt=urn:btih:F35FC2F5B58F2869C99615D8A53608C6332CD8F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +504,8 @@ Disc 1
 magnet:?xt=urn:btih:444B2BF656F399B6D81A82A8D95260B71D83EB60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +532,8 @@ VA - German Top 50 Party Schlager Charts 08.04.2019 (2019) [MP3|320 Kbps] <Pop, 
 ```bash
 magnet:?xt=urn:btih:6E457BB8EF5F53C54ED8735D3F8454B0B86675A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +562,8 @@ VA - Caramel Masquerade (2018) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:DD469876AAB6400272065ACA42785D0C51B964BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +590,8 @@ VA - Бомба Года Русский Выпуск (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:01EE728E85BA3B01F85EDD93B8F174CC16C565F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +620,8 @@ VA - Non-Stop Party 2016 Summer Top 100 (2016) [MP3|128-320 Kbps] <Pop>
 magnet:?xt=urn:btih:AECE6849E9FEA2A37880B955849A858C6C6C8A91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +648,8 @@ VA - Летние хиты за рулем. Выпуск 50/50 (2015) [MP3|256 �
 ```bash
 magnet:?xt=urn:btih:182BAD5DD25E633F33A846FA847574EB5CD02041
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +678,8 @@ VA - Лето в кайф. Часть 3 (2015) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:5444EAFF421F5CD7E758139D3F018280A42A14EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +706,8 @@ VA - German Top 50 Party Schlager Charts 04.06.2018 (2018) [MP3|320 Kbps] <Pop, 
 ```bash
 magnet:?xt=urn:btih:04BD6F9F7198E4A8D3D688232F72167BA75A3C28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -661,6 +742,8 @@ VA - Убойный сборник от Авторадио 50/50 (2012) [MP3|256
 magnet:?xt=urn:btih:522141FEE82AB0630657D2608B0D86058C7625B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,38 +777,7 @@ VA - Летний Хит-Парад Муз-ТВ (2012) [MP3|256 кб/с]<Рор>
 magnet:?xt=urn:btih:0B40429CCA795E2D69E29FB04D637CE392C7249C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521229   (628873) от 10.07.2012
-
-VA - На вершинах хит-парадов 2 50/50 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Алисия & Влад Корса - Здесь и сейчас
-02. Gotye feat. Kimbra - Somebody That I Used To Know (Bastian Van Shield remix)
-03. Elvira T - Все решено (Fresh Tunes remix)
-04. Mandinga - Zaleilah (Hanter Remix 2k12 edit)
-05. Митя Фомин & Кристина Орса - Не манекен (Ural DJs Dance remix)
-06. Ledina Celo - Can you touch me baby (Edit mix)
-07. Чай Вдвоем - Улетай
-08. Kato - Never let u go (feat. Snoop Dogg & Brandon Beal)
-09. Юля Савичева - Юлия
-10. Bob Sinclar feat. Sophie Ellis-Bextor - Fuck with you(   Читать дальше...   )Жанр: PopПродолжительность: 05:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0AAC0C2F24401F599FD52451F6A41E4D5A7DB9B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

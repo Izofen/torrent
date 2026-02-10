@@ -22,6 +22,8 @@ VA - Luxury Lounge Sunset, Vol. 3 (2021) [AAC|~312 Kbps] <Lounge, Chill Out, Dow
 magnet:?xt=urn:btih:4FD0BAD409F5AC3A89B6C0F7F15470A2BBC44E68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ A4 Meteor Man 4:47(   Читать дальше...   )Жанр: Electronic, Pop�
 magnet:?xt=urn:btih:C7C57E8EC626A14CA1AD3EF1767C7F9A56EA7A12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:C7C57E8EC626A14CA1AD3EF1767C7F9A56EA7A12
 ```bash
 magnet:?xt=urn:btih:16E697E747BC9B35B1982ECF00EF59F5D8F47F86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ Anthemon - Arcanes (2003) [FLAC|Lossless|image + .cue] <Symphonic Gothic, Doom M
 magnet:?xt=urn:btih:ECE80141EC5208E9E80B5E0799C6EF6036F4DF39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ Convergence - Extinction Level Event (2023) [FLAC|Lossless|WEB-DL|tracks] <Death
 ```bash
 magnet:?xt=urn:btih:B78FB3A65027F243158F20DAFF4E009C83261503
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ Moonscape - The Continuum Synergy (2023) [FLAC|Lossless|WEB-DL|tracks] <Progress
 magnet:?xt=urn:btih:BBB9FE686DC2342D7B60655E7C33355471D74EDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +189,8 @@ WebToLayers преобразует веб-сайты в документы Photo
 ```bash
 magnet:?xt=urn:btih:F080D46A8373AC4C38B4BB207F04FED86E3CD038
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ magnet:?xt=urn:btih:F080D46A8373AC4C38B4BB207F04FED86E3CD038
 magnet:?xt=urn:btih:6470EF9941BE298188FB862BEB5A5359FAE685EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:6470EF9941BE298188FB862BEB5A5359FAE685EE
 ```bash
 magnet:?xt=urn:btih:CB55C5AD7F00C7D68771F3108EE8D21D3E67779E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ VA - Café Deluxe Chillout - Nu Jazz / Lounge, Vol. 3 (2017) [AAC|~309 Kbps] <Ea
 magnet:?xt=urn:btih:F0DC25C9C3576E93299C9D8689CBD4E226A3D669
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +299,8 @@ VA - Русский шансон часть 8 (2000) [MP3|320 Kbps] <Шансо�
 ```bash
 magnet:?xt=urn:btih:80F1ECEB56EEDF61B05AF7FE9139CA8EE362B234
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +329,8 @@ Princess Connect! Re:Dive 2 / PriConne 2 / Связь принцесс! Ново
 magnet:?xt=urn:btih:C4540BA5D2975FA4E3B2AD52A0F579D04100919F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +358,8 @@ Your Best Adornment - Инфант (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 magnet:?xt=urn:btih:D696E0ED29614CE232B583181D527A57FCDDF653
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +383,8 @@ magnet:?xt=urn:btih:D696E0ED29614CE232B583181D527A57FCDDF653
 ```bash
 magnet:?xt=urn:btih:A8490AD98606286D0EB94EA3E61C39E788FEF54F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +413,8 @@ Lou Bennett - Enfin! (1963) 1997, RCA Victor [FLAC|Lossless|tracks + .cue] <Hard
 magnet:?xt=urn:btih:5FD1F272B099BE5E7EB397F7E24DFBFFEB8CBAC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +439,8 @@ Script Debugger предлагает пользователям всё, что �
 ```bash
 magnet:?xt=urn:btih:A3B6CD31B9458FE590D8F5CCFD947294280EC549
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +469,8 @@ magnet:?xt=urn:btih:A3B6CD31B9458FE590D8F5CCFD947294280EC549
 magnet:?xt=urn:btih:21F3F4DF49608D75E66B416BE074A0DA75015FFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +495,8 @@ Sublime Merge - клиент системы контроля версий, ко�
 magnet:?xt=urn:btih:C444AB4123FC13D19F2D9C4C3ED75611670659BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +520,8 @@ magnet:?xt=urn:btih:C444AB4123FC13D19F2D9C4C3ED75611670659BA
 ```bash
 magnet:?xt=urn:btih:7EAA2E3E2D1288A693DCFEA145CBC9325072E0CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +548,8 @@ magnet:?xt=urn:btih:7EAA2E3E2D1288A693DCFEA145CBC9325072E0CA
 magnet:?xt=urn:btih:ADEF5444BCA472CE31A504F220E1D80FEC47885D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +573,8 @@ FSNotes - это менеджер текстовых заметок для macOS
 ```bash
 magnet:?xt=urn:btih:890251967A12E808DCF0AD20AAE9EC17341E6DAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +603,8 @@ Gabriele Mirabassi & Simone Zanchini - Il gatto e la volpe (2021) Egea [FLAC|Los
 magnet:?xt=urn:btih:A9D98FA26889D4F8C27EC981E38AC9F573B079C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +630,8 @@ Soulver предназначен для «быстрой математики» 
 magnet:?xt=urn:btih:F6A7EB34A449F3D1F127FECA6140D13D51B37618
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +655,8 @@ magnet:?xt=urn:btih:F6A7EB34A449F3D1F127FECA6140D13D51B37618
 ```bash
 magnet:?xt=urn:btih:8D594039976A0C9FC767B0AF2083445124DAFAEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +682,8 @@ magnet:?xt=urn:btih:8D594039976A0C9FC767B0AF2083445124DAFAEB
 magnet:?xt=urn:btih:C7EF132155AAB2F5E0F66ED73A81ED0EE846AB48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +708,8 @@ OneCommander V3 — это современный файловый менедж�
 ```bash
 magnet:?xt=urn:btih:D4D2D3F86B253838427BAA957BBED040520B7A9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

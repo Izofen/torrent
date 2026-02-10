@@ -19,6 +19,8 @@ Diari – настало время отправится в удивительн
 magnet:?xt=urn:btih:75CA16ED309F39EE9198D71456E2C4F2E9210FD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Dark Sector (2009) [Ru] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:3BBE7EA00BC2E751E654839AD93538C000A6AFA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Binary Domain представляет собой тактический шут�
 magnet:?xt=urn:btih:3DD6D45915D531094B43451CE2626E9E0CEF6E3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ MT Force Aliens Uprising – откройте много эпических де
 ```bash
 magnet:?xt=urn:btih:FAABBB02B96867AAAB4C2E0B3F2CE4D8E95EE76E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ The Star Named EOS - не совсем обычная приключенческ
 magnet:?xt=urn:btih:3955779AC2A7224DF88BD06D5A59F8CE595B4271
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Strange Investigations 4: Truth Will Out (2024) [En] (1.0) Unofficial [Collector
 ```bash
 magnet:?xt=urn:btih:40BF14E7A62EC7D66A1A852E6C5A4808F8330286
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Tale of Immortal, песочница с открытым миром, глубо�
 magnet:?xt=urn:btih:09466F81F005565EC0435D9CDE7F040F6084AFD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Double Dragon Gaiden: Rise Of The Dragons отправляет в захваты
 ```bash
 magnet:?xt=urn:btih:E9EC986AF3B47A0BA5EBE4E8852DF892A48AA699
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Old School RPG – встречайте нашу увлекательную фэ
 magnet:?xt=urn:btih:A132C67E4D2AE89678734086D3156C2FC9F69B31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Snufkin: Melody of Moominvalley - это приключенческая игра
 ```bash
 magnet:?xt=urn:btih:A9B40EB55053F79290B89A95C72B87517ECF9CF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Northgard (2018) [Ru/Multi] (3.5.15.38668/dlc) Scene Tenoke [The Viking Age Edit
 magnet:?xt=urn:btih:B131D51C04EEC9E8E2669DBB05F2BF1B7EE18529
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Mr. Prepper - строительный симулятор, где вам пре�
 ```bash
 magnet:?xt=urn:btih:11B363EC112C491FB1F0B00850EB968D6ACF5234
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Pawn Simulator (2024) [Multi] (1.0.2) Repack FitGirl
 magnet:?xt=urn:btih:C0C1293D1368EB59BBE13453CC5AEF8CB29D0A14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Dungeons & Degenerate Gamblers (2024) [Ru/Multi] (1.0a) Scene TinyISO
 ```bash
 magnet:?xt=urn:btih:9F0ED155DB31298B69892BAD37795CAA2C9E4732
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Bathhouse Restored Edition – перед вами невероятный я
 magnet:?xt=urn:btih:0F93B0F4770E337FBDD290D0DC8562CF519308B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Bo: Path of the Teal Lotus - яркий платформер, предлагаю
 ```bash
 magnet:?xt=urn:btih:AAF3589FA8351D880DCDDBEB1604EA041ECCC136
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ One More Night – перед вами довольно насыщенная Р�
 magnet:?xt=urn:btih:E82538DB0C2893C5CD4C51E31FD22C9F9AB07FC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Ingression бросает ветеранам платформеров неожи
 ```bash
 magnet:?xt=urn:btih:AA4DA40459D820B35F668308CFC5487AB60DCA60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Fishing Adventure – реалистичный спортивный симуля
 magnet:?xt=urn:btih:9BAF5A88C436E5B940135F0AFF2AAE3320C3B8FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ KitHack Model Club - это основанная на физике песочн�
 ```bash
 magnet:?xt=urn:btih:54E44F57C99D1D24D187A6C413DADE6D56ECFE53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Cassette Beasts (2023) [Multi] (1.6.2/dlc) Scene Tenoke
 magnet:?xt=urn:btih:7780AEAB5EDB58858004E5E00211DF6E9C670962
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Age of Defense (2019) [En] (1.15) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:566056BD14263B11250009CBBD1F73965F73300D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Atlas Fallen (2023) [Ru/Multi] (1.118888/dlc) Scene Rune
 magnet:?xt=urn:btih:D85E7B59BC657BB576B7E7EA9540D5857772AF84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Roots of Pacha (2023) [Ru/Multi] (1.2.0.2) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:E2D4F2CF6927F2EB207C74F48DBA5AA19D8DD0CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Artifact Seeker погружает вас в 3D Roguelike RPG, где Аврор
 magnet:?xt=urn:btih:8F60E7DB396EE13EF10A69DE07BBEFC4127BEB86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Bzzzt - это захватывающий высокоточный платфо�
 ```bash
 magnet:?xt=urn:btih:986F5C4A16A16F5E32B4EACB5BC5DC524D8A04FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

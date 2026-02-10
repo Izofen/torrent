@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:76BD8A145B4213C97AD3A4B39A619E4805A096D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Skillbox | Профессия Менеджер маркетплейсов (2024)
 magnet:?xt=urn:btih:E84BCAC9E2052223558820E68D503817A31279B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:E84BCAC9E2052223558820E68D503817A31279B9
 ```bash
 magnet:?xt=urn:btih:21F8F755F4F389FBC0B53B1C5230B8A376DED9DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:21F8F755F4F389FBC0B53B1C5230B8A376DED9DC
 magnet:?xt=urn:btih:7FE6A3FD782641E90E802356E5B6BD3982C51104
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Citizen Sleeper 2: Starward Vector - это ролевой проект, где 
 ```bash
 magnet:?xt=urn:btih:93583406D04D5018B6F4EFB738AEA1B7EE330AE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:93583406D04D5018B6F4EFB738AEA1B7EE330AE2
 magnet:?xt=urn:btih:1D387D01ACEF3E6884C64CA71556B71D86390240
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Liminal Border Part I+II+III (2023-2025) [Multi] (1.0.1/1.0.2/1.0.2/dlc) License
 ```bash
 magnet:?xt=urn:btih:F7B5CA2AB6E57202B76C8EB70C588C00EF623AF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Lies Of P была вдохновлена знаменитой историей 
 magnet:?xt=urn:btih:9096EBC55960DA4A0A3A859D443BDD7B1C2E84CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:80247E44058771503694BD65FBBC09F42EC06AAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:80247E44058771503694BD65FBBC09F42EC06AAB
 magnet:?xt=urn:btih:D999092480A36884064C91050BDC78630C92F08C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:D999092480A36884064C91050BDC78630C92F08C
 ```bash
 magnet:?xt=urn:btih:88AC490E6BBFF154AF8CC74C9A882C8B8ADF961C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:88AC490E6BBFF154AF8CC74C9A882C8B8ADF961C
 magnet:?xt=urn:btih:760FB644724C3631DCBB8F10EA9E7CFA23950DE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:841DEC0550F03F8D6DF70F6C26EE97AFF2342B82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Lyndaria - нелинейная эротическая визуальная но
 magnet:?xt=urn:btih:A3CD104A66420E656BE71C14AB3224F7353E199B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:A3CD104A66420E656BE71C14AB3224F7353E199B
 ```bash
 magnet:?xt=urn:btih:F34FA8294BEB24555AF2EA460906BE22DF05224D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:F34FA8294BEB24555AF2EA460906BE22DF05224D
 magnet:?xt=urn:btih:22F8E563CDC5E766F22124100E152F68D6266795
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:22F8E563CDC5E766F22124100E152F68D6266795
 ```bash
 magnet:?xt=urn:btih:4B5A797833D61984691E99123A3B9043F00759E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:4B5A797833D61984691E99123A3B9043F00759E7
 magnet:?xt=urn:btih:57EEF416F47575942E7818292D00F22A9ECDA15C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:57EEF416F47575942E7818292D00F22A9ECDA15C
 ```bash
 magnet:?xt=urn:btih:B347239E376E0F57543FB1AD3213C5B5541948DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:B347239E376E0F57543FB1AD3213C5B5541948DA
 magnet:?xt=urn:btih:BFA94782FC1796AB4C4B82A8FF900AF1BB053B87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:BFA94782FC1796AB4C4B82A8FF900AF1BB053B87
 ```bash
 magnet:?xt=urn:btih:648D6961C1D3A45B543B52C5E316E534692D1CFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ Book of Hours (2023) [Ru/Multi] (2025.1.a.11/dlc) License GOG [Perpetual Edition
 magnet:?xt=urn:btih:31F18E6CEB18B68B71B04BC48C497ACCD99E705A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ magnet:?xt=urn:btih:31F18E6CEB18B68B71B04BC48C497ACCD99E705A
 ```bash
 magnet:?xt=urn:btih:BE01ED09B2B2C21BE3497090696275956D36F22D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:BE01ED09B2B2C21BE3497090696275956D36F22D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Peaks of Yore - захватывающая экшен-адвенчура, пог
 magnet:?xt=urn:btih:C18176D76BCA9EC77C2C66368DCEA7CC6BE959FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Avowed (2025) [Ru/Multi] (1.2.11.0/dlc) Repack Decepticon [Premium Edition]
 ```bash
 magnet:?xt=urn:btih:C67842567755B31D33E5AE04F9C20E80AE170E8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

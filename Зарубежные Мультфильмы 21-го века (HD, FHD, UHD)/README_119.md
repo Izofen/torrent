@@ -1,27 +1,3 @@
-###  Публикация: 1494676   (887459) от 08.09.2021
-
-Инопланетный кошмар / The Alien Nightmare (2021) WEBRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Посреди ночи на Землю приземляется НЛО с тремя пришельцами. Они намеревались открыть для себя этот особенный и совершенно неизвестный мир.Производство: ФранцияЖанр: Короткометражный, рисованная анимацияРежиссер: Marc Antoine Alonso, Lauriane Balestrat, Elie Berthoumieu, Alexis Sabalza, Lucas SoupouПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: ОтсутствуютПродолжительность: 00:06:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:141E23200545EA11C44AB268BA2B39A85B1EB4AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494658   (887500) от 08.09.2021
 
 Меч / Гладиус / Gladius (2020) WEBRip [H.264/1080p-LQ]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:141E23200545EA11C44AB268BA2B39A85B1EB4AD
 ```bash
 magnet:?xt=urn:btih:9FE8500C012B9BCD800713B645D071350B8609B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:9FE8500C012B9BCD800713B645D071350B8609B2
 magnet:?xt=urn:btih:92EFFA58AC5E3B06B2DBEA5F639201BCC233D9D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:92EFFA58AC5E3B06B2DBEA5F639201BCC233D9D6
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:92EFFA58AC5E3B06B2DBEA5F639201BCC233D9D6
 magnet:?xt=urn:btih:AF31889CC3D07D2F8DAF55081AD156976BA614F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:AF31889CC3D07D2F8DAF55081AD156976BA614F1
 ```bash
 magnet:?xt=urn:btih:731360FB3EDA6E2CBB63C82C6A5D3A34666028EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:731360FB3EDA6E2CBB63C82C6A5D3A34666028EE
 magnet:?xt=urn:btih:87CEC989A6C57CE3C2CCEEF8656056A347BBF3F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:87CEC989A6C57CE3C2CCEEF8656056A347BBF3F9
 ```bash
 magnet:?xt=urn:btih:0DCD7AFB88E78943A60BDFD91421DF8D867E864A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:0DCD7AFB88E78943A60BDFD91421DF8D867E864A
 magnet:?xt=urn:btih:B769ADAF2A2C0B5E9C7D976CD0F8013D2E496778
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ magnet:?xt=urn:btih:B769ADAF2A2C0B5E9C7D976CD0F8013D2E496778
 ```bash
 magnet:?xt=urn:btih:7DD78C55DA74512360176672943B2A7E05368D1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:7DD78C55DA74512360176672943B2A7E05368D1A
 magnet:?xt=urn:btih:DF36E7290D0421616DAAC10C00DB4F0B6A27C1CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ magnet:?xt=urn:btih:DF36E7290D0421616DAAC10C00DB4F0B6A27C1CE
 ```bash
 magnet:?xt=urn:btih:848F00CB9C453951A499790001D03A8482DDACDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:848F00CB9C453951A499790001D03A8482DDACDC
 magnet:?xt=urn:btih:01AE19D83855DA010E7A1675F4BEC3104684A552
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ magnet:?xt=urn:btih:01AE19D83855DA010E7A1675F4BEC3104684A552
 ```bash
 magnet:?xt=urn:btih:7BDE82D713A280C47602883B862A177DDCC77585
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ magnet:?xt=urn:btih:7BDE82D713A280C47602883B862A177DDCC77585
 magnet:?xt=urn:btih:447900F60E1DEF473B3BCCE310F2DE8FED0FBA2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ magnet:?xt=urn:btih:447900F60E1DEF473B3BCCE310F2DE8FED0FBA2B
 ```bash
 magnet:?xt=urn:btih:9DE11287DA26D47DB5B662D39BDC51D86D66DD09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ magnet:?xt=urn:btih:9DE11287DA26D47DB5B662D39BDC51D86D66DD09
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ magnet:?xt=urn:btih:9DE11287DA26D47DB5B662D39BDC51D86D66DD09
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ magnet:?xt=urn:btih:9DE11287DA26D47DB5B662D39BDC51D86D66DD09
 magnet:?xt=urn:btih:E66C18C3F1D00F0AB40E09B7E81F050E25F7203C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ magnet:?xt=urn:btih:E66C18C3F1D00F0AB40E09B7E81F050E25F7203C
 ```bash
 magnet:?xt=urn:btih:45D8C2CFFE89CB7F28228EDE3DA48D2E72F01E0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ LEGO супергерои DC: Лига справедливости против
 magnet:?xt=urn:btih:ECFD2F31843F51DAB615D28C76B81CB93986D50F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ magnet:?xt=urn:btih:ECFD2F31843F51DAB615D28C76B81CB93986D50F
 ```bash
 magnet:?xt=urn:btih:3C7552235FA94B302406173E8EFBEEB0D4DF51AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ magnet:?xt=urn:btih:3C7552235FA94B302406173E8EFBEEB0D4DF51AF
 magnet:?xt=urn:btih:48E7A9BADB36179D51DF4465DE33C002C7056CFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ magnet:?xt=urn:btih:48E7A9BADB36179D51DF4465DE33C002C7056CFE
 ```bash
 magnet:?xt=urn:btih:22262E663BA6AF21397BF6451006EE397440FAFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +617,8 @@ magnet:?xt=urn:btih:22262E663BA6AF21397BF6451006EE397440FAFC
 magnet:?xt=urn:btih:8779DF69BD6D1340BEBC731515F1C9A26F674428
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +642,34 @@ magnet:?xt=urn:btih:8779DF69BD6D1340BEBC731515F1C9A26F674428
 ```bash
 magnet:?xt=urn:btih:7418D7A30474FFFDF6BE2B4B74125717ACF9E6FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486557   (893384) от 04.09.2021
+
+Лука  / Luca (2021) BDRemux [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Незабываемые каникулы, в которых есть место и домашней пасте, и мороженому, и бесконечным поездкам на мопеде, мальчик по имени Лука проводит в красивом приморском городке, расположенном на итальянской Ривьере. Ни одно приключение Луки не обходится без участия его нового лучшего друга, и беззаботность отдыха омрачает только лишь тот факт, что на самом деле в облике (   Читать дальше...   )Производство: США / Pixar Animation Studios, Walt Disney PicturesЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Энрико КасаросаАктеры: Джейкоб Тремблей, Джек Дилан Грейзер, Эмма Берман, Саверио Раймондо, Майя Рудольф, Джим Гэффиган, Сэнди Мартин, Саша Барон Коэн, Марко Барричелли, Питер СонПеревод: Дублированый (Невафильм), Любительский двухголосый (Pazl Voice)Субтитры: Русские (Forced, 2x Full - iTunes, FOCS), Английские (Full)Продолжительность: 01:35:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EED07CAE8BF4A3770D3785E3FA7BBB4DCDA2ACF
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

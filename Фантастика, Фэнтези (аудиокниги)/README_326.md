@@ -1,3 +1,29 @@
+###  Публикация: 1326382   (384828) от 20.09.2019
+
+Марина Суржевская | Чернокнижник (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_384828.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Лекс Раут» – трилогия с нетипичным главным героем, по имени которого и названа. Он отнюдь не положительный, но и сугубо отрицательным его не сочтёшь. Лекс Раут не афиширует свою деятельность, зато всегда требует плату вперёд, а его услуги стоят недёшево. Наряду с деньгами он падок на женщин. Кто же это? Беспринципный чернокнижник, готовый на пару со своим помощником (   Читать дальше...   )Жанр: Боевое фэнтези, Детективное фэнтезПродолжительность: 10:16:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13E997F05D19714B5EBF229E67F206681592077A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414504   (385024) от 08.10.2020
 
 Алексей Губарев | Игра на опережение (2020) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:23282A9FB85DCC2366A2E047C5E7DD378CCCF430
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:23282A9FB85DCC2366A2E047C5E7DD378CCCF430
 magnet:?xt=urn:btih:81E95517284DB7CACD85B499BC022E782246A686
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:81E95517284DB7CACD85B499BC022E782246A686
 ```bash
 magnet:?xt=urn:btih:CBC8A040C7C6063E42233E044CB20799BCF1F224
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:CBC8A040C7C6063E42233E044CB20799BCF1F224
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:CBC8A040C7C6063E42233E044CB20799BCF1F224
 ```bash
 magnet:?xt=urn:btih:17D83C6A15760775E5B1713F6DB4DD4EFA2F8D31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:17D83C6A15760775E5B1713F6DB4DD4EFA2F8D31
 magnet:?xt=urn:btih:F6221A7171860FC20E3E6965142296AE8C0FDE0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:F6221A7171860FC20E3E6965142296AE8C0FDE0A
 ```bash
 magnet:?xt=urn:btih:8BCB599006129531F9CEFDA52500896C26E0C0EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:8BCB599006129531F9CEFDA52500896C26E0C0EE
 magnet:?xt=urn:btih:618035A6220C4A4C0837CB6C843C86EA4FE9EF5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:618035A6220C4A4C0837CB6C843C86EA4FE9EF5A
 ```bash
 magnet:?xt=urn:btih:C76A9BFD34238BE95D5989FF170C50CB7F5C1F16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:C76A9BFD34238BE95D5989FF170C50CB7F5C1F16
 magnet:?xt=urn:btih:D421B3DAA8219D28AC1ACE483491A4185AE6C96E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:D421B3DAA8219D28AC1ACE483491A4185AE6C96E
 ```bash
 magnet:?xt=urn:btih:E6858283AF5E1C9923E1BAF80512CF9473BB5A90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:E6858283AF5E1C9923E1BAF80512CF9473BB5A90
 magnet:?xt=urn:btih:00164EB9682541491BC7D14644FE6DD9ABDCD028
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:00164EB9682541491BC7D14644FE6DD9ABDCD028
 ```bash
 magnet:?xt=urn:btih:D5BCA348D6454607E6CD7094E03B9E8DF72CA138
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:D5BCA348D6454607E6CD7094E03B9E8DF72CA138
 magnet:?xt=urn:btih:C971F956C385D17C16F3B85FCA74BEBCD72449AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:C971F956C385D17C16F3B85FCA74BEBCD72449AA
 ```bash
 magnet:?xt=urn:btih:01A0344997F318B57457FBC105C9B34E5C85AC97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:01A0344997F318B57457FBC105C9B34E5C85AC97
 magnet:?xt=urn:btih:7DAB143E4D06D84FFC9FC23584EFD72922C0565E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:7DAB143E4D06D84FFC9FC23584EFD72922C0565E
 magnet:?xt=urn:btih:460E79F4A517FD6AB686B9D795236E5E76697234
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:460E79F4A517FD6AB686B9D795236E5E76697234
 ```bash
 magnet:?xt=urn:btih:5CF6B0C9338A259F7814FAFBCB17A4ECD64399D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:5CF6B0C9338A259F7814FAFBCB17A4ECD64399D9
 magnet:?xt=urn:btih:6CDE08F892BC39DBFB4D6C3310BF69258914CE05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:6CDE08F892BC39DBFB4D6C3310BF69258914CE05
 ```bash
 magnet:?xt=urn:btih:B10106BD1A1C567ECDD075E71592799E8C625E14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +574,8 @@ magnet:?xt=urn:btih:B10106BD1A1C567ECDD075E71592799E8C625E14
 magnet:?xt=urn:btih:B3DC0A64F4A5584F5DF43631A194A95B5C80E94D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:B3DC0A64F4A5584F5DF43631A194A95B5C80E94D
 ```bash
 magnet:?xt=urn:btih:A5368BAE1C89B7E35187DCED1BB33C41A6E6E674
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +627,8 @@ magnet:?xt=urn:btih:A5368BAE1C89B7E35187DCED1BB33C41A6E6E674
 magnet:?xt=urn:btih:3742EACB1C47980E86E7D1006502D400D9B174B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:3742EACB1C47980E86E7D1006502D400D9B174B9
 ```bash
 magnet:?xt=urn:btih:80398AA36AA8544FC162FF267D243A47713C8E06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,29 +679,7 @@ magnet:?xt=urn:btih:80398AA36AA8544FC162FF267D243A47713C8E06
 magnet:?xt=urn:btih:FFABDBA394221CD6838EBE13B20E72F5E196CBF7
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173881   (388637) от 13.10.2017
-
-Артем Каменистый, Аля Холодова | S-T-I-K-S. Шесть дней свободы (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Меня зовут Элли и я иммунная. Теоретически, могу жить вечно в мире, который, возможно, бесконечен и у меня большие планы. Вот только с реализацией этих планов не все просто. За мной и теми, кто мне поверили, охотятся самые опасные хищники Стикса – такие же иммунные, как и я. Ну и чудовищ не стоит сбрасывать со счета, они здесь повсюду – от тупых и медлительных, до (   Читать дальше...   )Жанр: Боевая фантастика, Героическая фантастикаПродолжительность: 14:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CED76A1BDD809756D9B3EC0484D09DCE280B368
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

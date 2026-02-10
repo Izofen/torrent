@@ -1,3 +1,29 @@
+###  Публикация: 1226052   (656542) от 19.05.2018
+
+Константин Калбазов | Похищенные (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656542.jpg" />
+</div>
+
+
+###  Подробнее
+
+В критической ситуации ты не поднимешься до уровня своих ожиданий, а упадешь до уровня своей подготовки. Именно этого принципа придерживается Игорь Бородин, похищенный с другими землянами и оказавшийся невольным участником разыгранного таинственными кукловодами жестокого реалити-шоу в каком-то параллельном мире. Пустоши мертвых городов, схватки с кочевниками, горцами (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданецПродолжительность: 13:01:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAB227F075BAF271B2C17FB6F604D452486F0315
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 903732   (656561) от 01.06.2015
 
 Альманах фантастики | Фантаскоп №003 (2015) [MP3]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:FBFF975736AC8F59086608D4A92B4617FBEF9D7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ magnet:?xt=urn:btih:FBFF975736AC8F59086608D4A92B4617FBEF9D7A
 magnet:?xt=urn:btih:6171AEEA86FC058CC38AD2185D4639412985E15E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:6171AEEA86FC058CC38AD2185D4639412985E15E
 ```bash
 magnet:?xt=urn:btih:D8CAF159560DCF15FDC3C12F1FF0D78DC80D7506
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +128,8 @@ magnet:?xt=urn:btih:D8CAF159560DCF15FDC3C12F1FF0D78DC80D7506
 magnet:?xt=urn:btih:1E890AC5896048208C8D6432F15F9F0CED0500C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:1E890AC5896048208C8D6432F15F9F0CED0500C7
 ```bash
 magnet:?xt=urn:btih:0AD3A708759DEB70AE6FF26B5BAB1BD0D15C040A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:0AD3A708759DEB70AE6FF26B5BAB1BD0D15C040A
 magnet:?xt=urn:btih:48D5D4F5C1328AC7C09F5C6381191854ED50247B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:48D5D4F5C1328AC7C09F5C6381191854ED50247B
 ```bash
 magnet:?xt=urn:btih:5292850D7E8CDBEDBCEE2479C89B056E95E22048
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:5292850D7E8CDBEDBCEE2479C89B056E95E22048
 magnet:?xt=urn:btih:FDC8788A902E082FF93660979CBFBC674810563D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:FDC8788A902E082FF93660979CBFBC674810563D
 ```bash
 magnet:?xt=urn:btih:92B5ABEC58649B4685BC287949174A78A6A9A634
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:92B5ABEC58649B4685BC287949174A78A6A9A634
 magnet:?xt=urn:btih:02DCE0B913D91B5BF838B54B5E63F7C58169B743
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:02DCE0B913D91B5BF838B54B5E63F7C58169B743
 ```bash
 magnet:?xt=urn:btih:A2265554EE1B7EC7A1EF9942B992B773B41909F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:A2265554EE1B7EC7A1EF9942B992B773B41909F2
 magnet:?xt=urn:btih:4C1392A66767F34AF96F820F5912DFF248A0CCBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:4C1392A66767F34AF96F820F5912DFF248A0CCBE
 ```bash
 magnet:?xt=urn:btih:992325C11515C4984D308376F758E214074C8A52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:992325C11515C4984D308376F758E214074C8A52
 magnet:?xt=urn:btih:5008627216BBE3FA33BAED8A529775741BE845C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:5008627216BBE3FA33BAED8A529775741BE845C3
 ```bash
 magnet:?xt=urn:btih:7EF553339698F91D116ADB51066E0B41F969C845
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:7EF553339698F91D116ADB51066E0B41F969C845
 magnet:?xt=urn:btih:AC26BE021D50226E396A9273E3350944FD624096
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:AC26BE021D50226E396A9273E3350944FD624096
 ```bash
 magnet:?xt=urn:btih:30A5A0C046A4AC96FE5E5277CEB8E74F98C439C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:30A5A0C046A4AC96FE5E5277CEB8E74F98C439C4
 magnet:?xt=urn:btih:470A6E2E39C7863FE7D14D25AED7926B6DE24D53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:470A6E2E39C7863FE7D14D25AED7926B6DE24D53
 ```bash
 magnet:?xt=urn:btih:AE2EEE7F28E59F560B7313CA1FD9CF4618A9D3C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +549,8 @@ magnet:?xt=urn:btih:AE2EEE7F28E59F560B7313CA1FD9CF4618A9D3C6
 magnet:?xt=urn:btih:9CCD296E37AEFBB86D5836D2FEBCCF9FF44C6E77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +576,8 @@ magnet:?xt=urn:btih:9CCD296E37AEFBB86D5836D2FEBCCF9FF44C6E77
 magnet:?xt=urn:btih:12A21A01583017DA1EEA1486C4AF704FCACEF4F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:12A21A01583017DA1EEA1486C4AF704FCACEF4F0
 ```bash
 magnet:?xt=urn:btih:045642323046D358506EFB3325B37A29D58F3F36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:045642323046D358506EFB3325B37A29D58F3F36
 magnet:?xt=urn:btih:E87CF49C26292F0DF7C3C31ABF5AFFF0A40BE7E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:E87CF49C26292F0DF7C3C31ABF5AFFF0A40BE7E4
 ```bash
 magnet:?xt=urn:btih:0E98FD688885D308CAC874093F105E7CE026404B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,32 +680,7 @@ magnet:?xt=urn:btih:0E98FD688885D308CAC874093F105E7CE026404B
 magnet:?xt=urn:btih:ABF42A6DE2872B127EADD4D0E37F18BC452826DA
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539053   (660075) от 23.03.2022
-
-Юрий Корчевский | Золото (Книга 2). Взорвать царя! Кромешник из будущего (2022) [MP3, Дмитрий Поляков]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660075.jpg" />
-</div>
-
-
-###  Подробнее
-
-В кровавое царствование Ивана Грозного опричников в народе прозвали кромешниками – такой кромешный ужас они наводили на страну.
-Но наш современник, заброшенный в эту беспощадную эпоху, сам устроит царским карателям кромешный ад!
-Он будет отстреливать опричников как бешеных собак.
-Он станет тайным агентом архиепископа, дабы спасти Новгород от царского погрома.(   Читать дальше...   )Жанр: Боевая фантастика, Историческая фантастика, ПопаданцыПродолжительность: 09:21:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA54CAC97B6A2091FCD29D843EE396561FE1332C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

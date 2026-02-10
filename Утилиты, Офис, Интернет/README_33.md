@@ -20,6 +20,8 @@ ASUS GPU Tweak III - программа для пользователей вид
 magnet:?xt=urn:btih:EC69270650F8D032904F14847BCE3531EA73094F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Geekbench - кроссплатформенная программа для пр�
 ```bash
 magnet:?xt=urn:btih:D9FCA11969A0E7A033F56D8E683974E177039274
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Auslogics Video Grabber - быстрый и простой инструмент,
 magnet:?xt=urn:btih:BF36BBF2CF4FF71712F23ACBFEBAEC2DBF659F6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Winstep Nexus — красивая бесплатная панель с крас
 ```bash
 magnet:?xt=urn:btih:190E8F927AB252EC7702E30B41602354B1CEC3DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ FonePaw Android Data Recovery - эффективная программа для
 magnet:?xt=urn:btih:4E458A58CB01332CB9E01F815FC300F9A5DCC77E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Total Uninstall - утилита, предназначенная для корр
 magnet:?xt=urn:btih:AE2AFDB46F38E7198C9AA4EA805A20409984AE66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:90F21692349A92553BAEF9BD7FD86F3D787B8DB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Office.Files.Images 2.46 Portable [Multi/Ru]
 magnet:?xt=urn:btih:CF5AFEB7D0015A6A7D0972AAFA5810843D4FFC10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Macrorit Partition Expert Unlimited Edition – предоставляет мо�
 ```bash
 magnet:?xt=urn:btih:A397AC13772157E455BABA230BED2ADC8F25408C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Free Alarm Clock — бесплатный, многофункциональны�
 magnet:?xt=urn:btih:E89B8ED472E852202E8FA3693287F1E1913918CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ AOMEI Backupper Pro (Professional) – комплексная, простая и
 ```bash
 magnet:?xt=urn:btih:62ACC98564A3632DF9AEF1D8FC44655B7715793D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ ASUS Armoury Crate — это программная утилита, предн�
 magnet:?xt=urn:btih:EDA6C684D1C940B5FEDC5895B152E6807DDBA7CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ CpuFrequenz - небольшой инструмент для точного оп
 ```bash
 magnet:?xt=urn:btih:28C24F7FD5B7FAECB20599165AE518EF8A01739C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ AutoHideDesktopIcons - небольшая и простая в использо�
 magnet:?xt=urn:btih:54F16AF2F579698140A36312148217E8D52580EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ TheAeroClock - портативная программа, благодаря к�
 magnet:?xt=urn:btih:0840B749A09A3FBAF5D1D303C4C573CAE252E4DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Wise Memory Optimizer - утилита для освобождения опер�
 ```bash
 magnet:?xt=urn:btih:86C97A805E4A940BD5D8146E52EEB6D462AE9F27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Uranium Backup изначально создавался авторами, ка�
 magnet:?xt=urn:btih:6CF0C3B1D5408D8A98CE8EAA03052735A9E98900
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ ASCOMP Cleaning Suite - программа для комплексной очи�
 ```bash
 magnet:?xt=urn:btih:C743CFB6098EB3E5D6318CCB2D862561562516D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ MSI Kombustor поддерживает тестирование (   Читат�
 magnet:?xt=urn:btih:4040224E345E3A28D26E978A4C63E60F484DB9D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ FileOptimizer — бесплатная утилита с открытым исх
 magnet:?xt=urn:btih:E07ECC70BF8FB492FB1FCBB2F5BFB5E40075228A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ iVentoy — новая утилита для Windows и GNU, позволяющ�
 ```bash
 magnet:?xt=urn:btih:A02E6BF4386F44457C25816B24657B4E8FF51796
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ StopUpdates10 – бесплатная утилита для Windows 10 и Windo
 magnet:?xt=urn:btih:42692A67882A9548D87264FF0ABFC48ECE263C0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:42692A67882A9548D87264FF0ABFC48ECE263C0C
 magnet:?xt=urn:btih:139A7DC8DAB759746FC1886AD1A1EAE737002C73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ PC HelpSoft Driver Updater автоматически сканирует раз�
 ```bash
 magnet:?xt=urn:btih:24BF95E5490C491F195DE8A4CE171C631E48BE68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ GetWindowText - маленькая и портативная программа,
 magnet:?xt=urn:btih:C0659FEAC4B030C10BF0569ABC01B12205054082
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Samsung SSD Magician Tool - многофункциональная програ�
 ```bash
 magnet:?xt=urn:btih:CCB7FC1FBE2354487085368576F05B031AF46A21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

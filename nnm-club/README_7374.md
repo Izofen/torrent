@@ -19,6 +19,8 @@ YTD Video Downloader позволяет загрузить нужный вам �
 magnet:?xt=urn:btih:9D1230C5DC93A9B1F8E2099BEBF3EFF5A2165382
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ B. B. King - Blues Masters (Compilation) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)] 
 ```bash
 magnet:?xt=urn:btih:4B633A2D7C7EF9837296F8875CFF415B8402336C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ The New Roses - Sweet Poison (2022) [MP3|320 Kbps] <Hard Rock>
 magnet:?xt=urn:btih:CA351C0C93B2DB013A4D3164B87C45494F0AEF13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Gateway - Aeternae (2014) Demo [MP3|320 Kbps] <Death, Doom Metal>
 magnet:?xt=urn:btih:9E4C67EB60C1A8E3ED7259D52C43AAB561A01101
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:9E4C67EB60C1A8E3ED7259D52C43AAB561A01101
 magnet:?xt=urn:btih:163AAC1DA14350C73C5641787A89D650C6C6A30F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:163AAC1DA14350C73C5641787A89D650C6C6A30F
 magnet:?xt=urn:btih:337C07D045541D4A1952A3A2829B3566A38F3B69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ XYplorer - удобный мультивкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:35D4CECA8D9B092B90303FB4357FE59C6A78C804
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:35D4CECA8D9B092B90303FB4357FE59C6A78C804
 magnet:?xt=urn:btih:E58AC976E69DF17FBD6731CDF2CD9E3FB2CBE7F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ Gateway - Flesh Reborn (2021) [FLAC|Lossless|WEB-DL|tracks] <Death, Doom Metal>
 magnet:?xt=urn:btih:AE84EDD5AB3C468B87A79FF574422E3601AF4FD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ AlbumsЖанр: J-Pop, J-R&BПродолжительность: 00:20:32
 ```bash
 magnet:?xt=urn:btih:F24D9E1B7FDF4FAB99BD984D7EEE69357A4A4FA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:F24D9E1B7FDF4FAB99BD984D7EEE69357A4A4FA9
 magnet:?xt=urn:btih:F6FBF43B56671C527A97916D5CC92904819ADD38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ magnet:?xt=urn:btih:F6FBF43B56671C527A97916D5CC92904819ADD38
 magnet:?xt=urn:btih:DFE8FC0B42D7326EF5B0EBE7532FA7FC8C57E036
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ Boxy SVG 4.2.3 [En]
 ```bash
 magnet:?xt=urn:btih:60E731F13B565702C0FF727AA4DA61080D5EACDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ The Ronnie Wood Band - Mr Luck - A Tribute To Jimmy Reed: Live At The Royal Albe
 magnet:?xt=urn:btih:C84A81EA56CC11B45E528AD32CE063AA5C45E517
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:C84A81EA56CC11B45E528AD32CE063AA5C45E517
 ```bash
 magnet:?xt=urn:btih:CB892AB5601830F410E04901450AF85EABC561AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ Tombstalker - 2 Albums (2015-2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, B
 magnet:?xt=urn:btih:3C8E9CFDE6C87AEEF8C1703DFD636CE44B5E2A48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ WinCatalog - это простая в использовании програм�
 ```bash
 magnet:?xt=urn:btih:89B716C8DFB522B315309EAF14710E4F641283AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ magnet:?xt=urn:btih:89B716C8DFB522B315309EAF14710E4F641283AF
 magnet:?xt=urn:btih:853EBC9ACD7211F4F4CEA2713DC99710B0DF5DFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ magnet:?xt=urn:btih:853EBC9ACD7211F4F4CEA2713DC99710B0DF5DFE
 magnet:?xt=urn:btih:0DBE4DA7B8BB79EE8BDE80A884351D2C3BA1C460
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +536,8 @@ magnet:?xt=urn:btih:0DBE4DA7B8BB79EE8BDE80A884351D2C3BA1C460
 ```bash
 magnet:?xt=urn:btih:F944A98481D2CF6D5B76BEAF1584EE7112BAB3BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +566,8 @@ magnet:?xt=urn:btih:F944A98481D2CF6D5B76BEAF1584EE7112BAB3BC
 magnet:?xt=urn:btih:B84F774D4BED99572AFA03B49398740D0FEA3C02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +595,8 @@ Decompression - 2 Albums (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, 
 magnet:?xt=urn:btih:0EDB5E29C8D29A9307936155291D4EEBB479720B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +621,8 @@ magnet:?xt=urn:btih:0EDB5E29C8D29A9307936155291D4EEBB479720B
 magnet:?xt=urn:btih:5056C980E51AE31C4C84A7F8C7DB7D47E06B7D28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +646,8 @@ magnet:?xt=urn:btih:5056C980E51AE31C4C84A7F8C7DB7D47E06B7D28
 ```bash
 magnet:?xt=urn:btih:698938036F307DC31A6B7B44D9521B90626610C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +676,8 @@ VA - Inner Miracle (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:F6A4363606393FFBE5583F61CBDF7EE7C5A79D9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ magnet:?xt=urn:btih:F6A4363606393FFBE5583F61CBDF7EE7C5A79D9F
 ```bash
 magnet:?xt=urn:btih:53B4614F39D2D938059A8B5D04C363912E52A67F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

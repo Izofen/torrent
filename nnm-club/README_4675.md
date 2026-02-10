@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:0B50D32FD2E5F0E2B63A4CDC3946886791CA04B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Adobe Media Encoder CC 2019 - это программа кодирования, 
 ```bash
 magnet:?xt=urn:btih:DF304A3C3E5D002CD505C79AE5FCC0F72716FA59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:DF304A3C3E5D002CD505C79AE5FCC0F72716FA59
 magnet:?xt=urn:btih:F7AC52F48770048BD81A239469E2D6AE11D6A31E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:F7AC52F48770048BD81A239469E2D6AE11D6A31E
 ```bash
 magnet:?xt=urn:btih:5E6FC4756845F9612E70652ECC34462E90ABD14A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:5E6FC4756845F9612E70652ECC34462E90ABD14A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ KURSK — первая документальная приключенческа
 ```bash
 magnet:?xt=urn:btih:7F1F74C729503EAE2BDDF48C5D04091B5B8A284C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ VA - Новогодний ресторан Шансона. Сборник № 6 
 magnet:?xt=urn:btih:49D0F1C8DD0A540039597AE7BB91D564B1F6E11D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:49D0F1C8DD0A540039597AE7BB91D564B1F6E11D
 magnet:?xt=urn:btih:463E5B81CEC0A5F695B84B5C98C92F97FE726BE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:463E5B81CEC0A5F695B84B5C98C92F97FE726BE2
 magnet:?xt=urn:btih:C65C0C0826F162B6545E713129FB00BCCDDA7400
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:C65C0C0826F162B6545E713129FB00BCCDDA7400
 ```bash
 magnet:?xt=urn:btih:91EF8B1A989F1C921A22DF0B522013C2C32C45EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ VA - Sound: 2017 (2016) [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:CDE351FCE0E6F02F57B4FF423B78C95739FF878F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ AI War 2 – это научно-фантастическая космическ
 magnet:?xt=urn:btih:6F5B4A5056202A0B09896E2A8ADF63DEBFE15DF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:6F5B4A5056202A0B09896E2A8ADF63DEBFE15DF4
 magnet:?xt=urn:btih:8E16DA51997C4B2C17C332B6D40905553C179D99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ MyLanViewer — программа для сканирования и монит
 ```bash
 magnet:?xt=urn:btih:275854430D7692057414E68BC8CBE42681F2EDFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:275854430D7692057414E68BC8CBE42681F2EDFD
 ```bash
 magnet:?xt=urn:btih:CE39EBF117EF26D560963B8342CB8657F9470FE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ Oceans of Slumber - Winter (2016) [MP3|320 Kbps] <Progressive Gothic Death Metal
 magnet:?xt=urn:btih:AA1352A09B327EE8E5901158FD8535BFF8C45A45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:AA1352A09B327EE8E5901158FD8535BFF8C45A45
 magnet:?xt=urn:btih:E1EF207948A9B65FFFE1A105448A3ECEB37FC808
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ Sakuna: Of Rice and Ruin (2020) [Multi] (1.0) License SKiDROW
 ```bash
 magnet:?xt=urn:btih:5F47C4B019C6BA19DEDCB69B5917D117BD46FE24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:5F47C4B019C6BA19DEDCB69B5917D117BD46FE24
 magnet:?xt=urn:btih:BEFDA6953ADBE2164FC6F62ED25CC8C7CAA84B31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:BEFDA6953ADBE2164FC6F62ED25CC8C7CAA84B31
 ```bash
 magnet:?xt=urn:btih:DDD9521313F033B8E0233E8EA2500B2674DFD540
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +559,8 @@ magnet:?xt=urn:btih:DDD9521313F033B8E0233E8EA2500B2674DFD540
 magnet:?xt=urn:btih:023FB425D559A3D3FD4D7D691ACB01E471B1DC92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ magnet:?xt=urn:btih:023FB425D559A3D3FD4D7D691ACB01E471B1DC92
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +610,8 @@ magnet:?xt=urn:btih:023FB425D559A3D3FD4D7D691ACB01E471B1DC92
 ```bash
 magnet:?xt=urn:btih:AD498C8A037D5ED12A035E40253A02D9F23B4456
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +640,8 @@ PUTS (People Under The Stairs) - The Gettin' Off Stage, Step 2 (2016) EP [FLAC|L
 magnet:?xt=urn:btih:DDE4E52AB8956CFF3864DD5388DF70F993A08E09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +666,8 @@ magnet:?xt=urn:btih:DDE4E52AB8956CFF3864DD5388DF70F993A08E09
 magnet:?xt=urn:btih:1049940D152A98B277F65BEF9B1F74461E1860DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ Celeste (2018) [Ru/Multi] (1.2.5.1) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:DC15F342CF48B784081B6FCEE77CF17F3EBC9FEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

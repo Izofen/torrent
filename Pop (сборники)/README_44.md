@@ -1,3 +1,32 @@
+###  Публикация: 1064043   (427758) от 19.10.2016
+
+VA - Осенняя Бомба Года 50x50 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_427758.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Elephante Feat. Brandyn Burnette - Plans
+002. Gladushevskyy & Новые Интеллигенты - Художник
+003. Sting & Mylene Farmer - Stolen Car
+004. Анжелика Пушнова - Мой Ангел(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:575880DFDF488D3C29561B21214025AC7DB6971C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1166153   (427889) от 15.09.2017
 
 Michael Jackson - Collection (от ALEXnROCK) (2017) [MP3|320 Kbps] <Pop>
@@ -21,6 +50,8 @@ Michael Jackson - Collection (от ALEXnROCK) (2017) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:6720697C81449A5F4793202FF16DE077B945CC6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -50,6 +81,8 @@ VA - Billboard Top 40 Singles Chart (22-10-2016) [MP3|~245 Kbps (V0)] <Pop, Danc
 magnet:?xt=urn:btih:D1F8C6C7C709ABFB620970086CE93A05FB371301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +109,8 @@ VA - Попсовая соточка от Хит fm (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:31B72E9F268AD83078BECAADA657CC067716F06F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -104,6 +139,8 @@ C.C. Catch - Good Songs (2015) [MP3|320 кб/с]<Eurodisco, Pop>
 magnet:?xt=urn:btih:B8D41D0A42B43294B83D93E9C05ADEF0095F1EF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +167,8 @@ Dalida - Good Songs (2015) [MP3|128 кб/с]<Pop, Shanson>
 ```bash
 magnet:?xt=urn:btih:58875F8539292BA106FEA14689E871530E89A4BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -158,6 +197,8 @@ VA - Осень на Love Radio (2020) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:63E4C824DF00B5AFE85677EABBBF2A4431038D12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +225,8 @@ Amanda Lear - Good Songs (2015) [MP3|160 кб/с]<Pop, Shanson>
 ```bash
 magnet:?xt=urn:btih:09B1778EB3A33E4FC804987FB2B1B32A8D7987DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +255,8 @@ VA - National Pop Music (Vol.04) (2020) [MP3|320 Kbps] <Pop, Dance, Folk>
 magnet:?xt=urn:btih:468688CD1418CEB46760AD995B834E556D4C59B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +284,8 @@ VA - German Top 100 Single Charts 07.09.2019 (2019) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:31DE71973952E3170C541470509062D967B663E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +312,8 @@ VA - 100 Хитов Популярной Музыки Русский выпус�
 ```bash
 magnet:?xt=urn:btih:C1B8817076A027A8D7762D3C9F5F49CAE94CB412
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +357,8 @@ Vol 1
 magnet:?xt=urn:btih:553FE4AFD72ECC894BCEC2ADA59CD1C7954EF119
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +392,8 @@ VA - Самые Лучшие Хиты Осени 50/50 (2012) [MP3|256 кб/с]<
 magnet:?xt=urn:btih:1867FE7CFE11DFD2F3F696FE07A753A16F61498D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +421,8 @@ Zivert - Crazy (2019) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:38639E070BC8A51E808191F53B14F600B89BA0B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +449,8 @@ VA - Cocktail new music №9 (2015) [MP3|256-320 кб/с]<Pop, Dance, Eurodance>
 ```bash
 magnet:?xt=urn:btih:4961805E96C8AE09B2209854E0C92CF7ED41CE72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +485,8 @@ VA - Эксклюзив осенних хитов (2012) [MP3|128-320 кб/с]<P
 magnet:?xt=urn:btih:F7AA23FF39274F91D56C4CAF4AEAF44154923BC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +513,8 @@ Lynsey De Paul - Compilation (2022) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:58521741E0DB9B2412962EF4F89C66A8800F0828
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +543,8 @@ Avalanche - Compilation (2022) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:CB7BBEAEA9D96CB006E97DF27C7B698634CCEA41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +571,8 @@ VA - Yellow Day: Pop Folk Music (2020) [MP3|320 Kbps] <Pop, Folk, Dance>
 ```bash
 magnet:?xt=urn:btih:6A773A14DF735A2C36A2582E9A76D6C8E86917F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +601,8 @@ VA - Best Of 80s (2016) [MP3|320 Kbps] <Pop, Disco, Rock>
 magnet:?xt=urn:btih:E952882087536BDC696EF9A19E2E7DC445A536D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +629,8 @@ VA - Top 100 Зайцев.Нет Август (Зарубежный выпуск
 ```bash
 magnet:?xt=urn:btih:81F7465ECB20D85CF4CB107DBEC5A8BED2BE9D0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +659,8 @@ VA - Хиты радиостанций. Горячие новинки (2016) [MP
 magnet:?xt=urn:btih:96E902C210271AC0E73BB7056A00197B6217844F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +687,8 @@ VA - 100 хитов от Hit FM. Выпуск 50/50 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:5758C5AAD348D64A86D1F70BBCCFA0308C64353C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +717,8 @@ VA - Осенний позитив №2 (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:756AC6E1661F2B7F7C0E45D5BE02AE56545B0C07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,6 +745,8 @@ CD 01:
 ```bash
 magnet:?xt=urn:btih:4A9F0A19916FEA24EEA45AF7E4529C048997E07F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -698,32 +775,7 @@ VA - New Music Releases Week 38 of 2018 (2018) [MP3|320 Kbps] <Dance>
 magnet:?xt=urn:btih:1F46E0D481D480C63868670C4B7C8E8EE59D557D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249411   (433317) от 24.09.2018
-
-VA - Die deutschen Disco Charts - Party Mixe (2018) [MP3|320 Kbps] <Pop, Schlager>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, SchlagerПродолжительность: 01:01:48
-
-01. Nino de Angelo - Hitmix (2017)
-02. Annemarie Eilfeld - Keine Panik (FloorEnce & A-Roma Remix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1021937405D41EE4BF55B8A44EA7DD963B13AF74
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:EDF340A378034BA11C543C4D81EFDFC55EB09228
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BBC: Новая Европа с Майклом Пэйлином / New Europe Wit
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ NGW: Дикая природа Аргентины. Безжалостные го
 magnet:?xt=urn:btih:A9C4367AD56637851BCB76B80914C4A99D5F70B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 ```bash
 magnet:?xt=urn:btih:2A206DB0B07CA269C67905EC2241AE84588F23E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:2A206DB0B07CA269C67905EC2241AE84588F23E0
 magnet:?xt=urn:btih:F0E92D819C16C0ECDEFD0F7D8EB92C5C7343266D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Discovery. Взгляд изнутри / Inside West Coast Customs (2017) HDTV [
 ```bash
 magnet:?xt=urn:btih:FE6ACD77CBF04F572CB0AD2F9E3C1A7F9738179A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ BBC: Супервулкан / BBC: Supervolcano (2005) HDTV [1080p]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ NGW: Прекрасная Америка: Дикий Юго-Запад. Мыши
 ```bash
 magnet:?xt=urn:btih:D3715963A9846C185090D80375D09004B2F1A2CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:D3715963A9846C185090D80375D09004B2F1A2CE
 magnet:?xt=urn:btih:035C9A5962466DC27BC151021BE766FDC4EF2E48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:035C9A5962466DC27BC151021BE766FDC4EF2E48
 magnet:?xt=urn:btih:6068576CEB0E47451CA24B4ED4AD614510124EDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ History Channel: Большая история / Big History (2013) HDTVRip [H.2
 ```bash
 magnet:?xt=urn:btih:76EE72A8E703ADFB56D438ADD761E0D75000C8F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ NG: Зыбучие пески: невидимая опасность / Danger Qu
 magnet:?xt=urn:btih:0A2B9C612A75CD58FEFF003224646CCAED686D08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ NG. Пропавшие города Амазонии: Легенда стано�
 ```bash
 magnet:?xt=urn:btih:67B201BFC42E6CE2372F4C7C60EF150F9D5B2C7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ NGW: Волк против медведя / Wolf vs. Bear (2018) HDTV [H.264/108
 magnet:?xt=urn:btih:2394F7B9B80EDAC94659DB56179A191B3C2C799A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ BBC Horizon: Человек на Марсе. Экспедиция на крас�
 ```bash
 magnet:?xt=urn:btih:4E7FF21D587C60D1EFF2627E12D981C9127CD76B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:4E7FF21D587C60D1EFF2627E12D981C9127CD76B
 magnet:?xt=urn:btih:3CCCA0FD38B918C760AFBE95E7B7E42A8CC4FF58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Discovery. Техногеника. Шагающий экскаватор (2016) 
 magnet:?xt=urn:btih:667C649EA863204A83EB17A399CCEF7BA7B2339F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Discovery: Прежде чем мы покорили Землю / Before We Rule
 ```bash
 magnet:?xt=urn:btih:07E92BB4CC0C13314E80C36339732E690A098856
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ BBC: История хирургии.  Кровавое начало [5 из 5] 
 magnet:?xt=urn:btih:BB42F23F49F0E6A10DC4D12BF55E628B90D35D72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:BB42F23F49F0E6A10DC4D12BF55E628B90D35D72
 ```bash
 magnet:?xt=urn:btih:7B3602D3DA1997061D7C72AFB7384662BA1E5868
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ BBC. История Христианства / A History of Christianity (2009) 
 magnet:?xt=urn:btih:2FFF64C801232129068458292BAAD4EF3C97F1E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ NG: Наши невидимые спутники / Bug Brother (2007) HDTVRip [H
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ NGW: Волчья династия Йеллоустоуна / Yellowstone Wolf D
 magnet:?xt=urn:btih:88276A6B678F80340C717F781F311366C80454A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ History Channel. Титаник: Тайна раскрыта / Titanic at 100: M
 ```bash
 magnet:?xt=urn:btih:27B78D7B27E19C748B8419ECAF03F169A2EC46FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ Discovery: Первые обитатели Америки / America's First Nati
 magnet:?xt=urn:btih:45975FEADDBA46120F5DB32C9E8205C82E1B8F0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ NGW: Дикое королевство / Savage Kingdom (2016) HDTV [H.264/1080i
 ```bash
 magnet:?xt=urn:btih:5967748F6E2F8C0342D5D0DDFE72080180340D50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

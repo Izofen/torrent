@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:FF78184022E35FE93AC08C93236CA129D83C53CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:FF78184022E35FE93AC08C93236CA129D83C53CC
 magnet:?xt=urn:btih:54E79E56C39E642C6601A97356B8D89F88A629B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:54E79E56C39E642C6601A97356B8D89F88A629B2
 ```bash
 magnet:?xt=urn:btih:045D2DA28589D19065C9848367DD06A5DF47222E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Smokie - The Very Best Of (Remastered) (2021) [FLAC|Lossless|WEB-DL|tracks] <Roc
 magnet:?xt=urn:btih:66AAEF3F53A6E5885026CCE8795342C3064ADAFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:66AAEF3F53A6E5885026CCE8795342C3064ADAFB
 ```bash
 magnet:?xt=urn:btih:D35421717BB12E4331A10C7237387C43088CF898
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:D35421717BB12E4331A10C7237387C43088CF898
 ```bash
 magnet:?xt=urn:btih:D4D6F7FB1097767D0C73A986E9ED0B988D476BFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ VA - Ori Uplift & Phoenix - Uplifting Only 356 (2019) [MP3|320 Kbps] <Trance, Up
 magnet:?xt=urn:btih:6F40A3FA85D1E7E78FA86A242FB9A7606C45D963
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:6F40A3FA85D1E7E78FA86A242FB9A7606C45D963
 ```bash
 magnet:?xt=urn:btih:B0856DE3F8C52BE04A22DA404969C67F09A45759
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:B0856DE3F8C52BE04A22DA404969C67F09A45759
 magnet:?xt=urn:btih:1F7086DB4F53D92DB08A372E20D6161516F5342E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:1F7086DB4F53D92DB08A372E20D6161516F5342E
 ```bash
 magnet:?xt=urn:btih:967D12F1834EAA25A1360C3E59B5D1CEA3659C32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ Die Schnitter - Saat und Ernte (2000) [FLAC|Lossless|image + .cue] <Folk Punk>
 magnet:?xt=urn:btih:D731F4B8453E4F9218187BF995E313AAD25B9071
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ Dj De Key - Anniversary Edit (2019) [MP3|320 Kbps] <Progressive House, Progressi
 ```bash
 magnet:?xt=urn:btih:F8866265690443FA7CAA817769348E334D247CE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ Volbeat - Servant Of The Mind (2021) Deluxe Edition [MP3|320 Kbps] <Heavy Metal,
 magnet:?xt=urn:btih:9A5597C6459D8996B51DF7C1F65D12FCBFB64FD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:9A5597C6459D8996B51DF7C1F65D12FCBFB64FD6
 magnet:?xt=urn:btih:376F1F154F2A589801EBD66C55CB58F2E1813589
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ Icecream Image Resizer 1.34 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:991C38A9A9AA6B60528031A87690813100E3C475
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ Lacey -  простой инструмент для поиска и скачив
 magnet:?xt=urn:btih:37FF215AB6CE2C2EA655436D1D928F7B92C0D17A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:37FF215AB6CE2C2EA655436D1D928F7B92C0D17A
 ```bash
 magnet:?xt=urn:btih:544725A1FD5CF5C69C034B9ACC3AC9BD62C03559
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ Status Quo - Official Archive Series Vol. 1 (2023) Live in Amsterdam 2010 [FLAC|
 magnet:?xt=urn:btih:71C8BC59C372D3EE4217B823F0979331EB28282B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ magnet:?xt=urn:btih:71C8BC59C372D3EE4217B823F0979331EB28282B
 ```bash
 magnet:?xt=urn:btih:E4F71D814338296FFA9916B15F1DB47DD0E26B9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:E4F71D814338296FFA9916B15F1DB47DD0E26B9C
 magnet:?xt=urn:btih:96D52C538D10E9A5D8E985367EBE562201B20085
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ magnet:?xt=urn:btih:96D52C538D10E9A5D8E985367EBE562201B20085
 ```bash
 magnet:?xt=urn:btih:39680401C8938AE9F925B30FA62C55F8024E732B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +585,8 @@ Ubuntu*Pack 20.04 MATE (ноябрь 2021) [amd64] DVD
 ```bash
 magnet:?xt=urn:btih:F2B50EA622FA42E28A3CEC03C26E289697922F81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +615,8 @@ Bjarki - Psychotic_Window (2019) !K7 Records [FLAC|Lossless|WEB-DL|tracks] <IDM,
 magnet:?xt=urn:btih:B0956CECD548ACBB2C2A2B5C3652DB49148989A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +640,8 @@ Icecream Slideshow Maker 1.41 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A8F7D515632F64D58804A12C71A1CF12A4FB445F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +670,8 @@ VA - Застольные Золотые хиты Шансон. версия №
 magnet:?xt=urn:btih:008574BA6466574FCFA52DE0678B5E1DCCACC824
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ magnet:?xt=urn:btih:008574BA6466574FCFA52DE0678B5E1DCCACC824
 ```bash
 magnet:?xt=urn:btih:8DADA5B16D512559285FBC6C7E6E7C2D644B5D4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

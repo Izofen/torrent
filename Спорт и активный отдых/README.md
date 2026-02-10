@@ -20,6 +20,8 @@ MotoGP. Этап 17 из 22. Гран-при Японии. Гонка (28.09.202
 magnet:?xt=urn:btih:C1CD83D24E53031904C07C75CCD8E8D09C3FBE4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ MotoGP. Этап 17 из 22. Гран-при Японии. Спринт (27.09.2
 ```bash
 magnet:?xt=urn:btih:FAD1C0459A3F561C54615D1B6174A3E4085A92AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ MotoGP. Этап 17 из 22. Гран-при Японии. Квалификац�
 magnet:?xt=urn:btih:2CD12AD354A3B9A487C9A7763A2D6894140D1D60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:2CD12AD354A3B9A487C9A7763A2D6894140D1D60
 ```bash
 magnet:?xt=urn:btih:5374412325345647CF1CDB19DCAC4CAE4FB23722
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:5374412325345647CF1CDB19DCAC4CAE4FB23722
 magnet:?xt=urn:btih:539420B4FCDB9EBDDE454A3ADEE9CBCCE8F06964
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:539420B4FCDB9EBDDE454A3ADEE9CBCCE8F06964
 ```bash
 magnet:?xt=urn:btih:93A1D4564765F1D102B69DA322951F4C9F619CDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ MotoGP. Этап 16 из 22. Гран-при Сан-Марино. Гонка (14
 magnet:?xt=urn:btih:E873754920F72AFA6E3DB1CF564D82B4A7962579
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ MotoGP. Этап 16 из 22. Гран-при Сан-Марино. Спринт (
 ```bash
 magnet:?xt=urn:btih:4CB680C607A938CFEF1D3BCDC835B4421E8FD2AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ MotoGP. Этап 16 из 22. Гран-при Сан-Марино. Квалифи
 magnet:?xt=urn:btih:82956831A62D92CAC9E4E4C3BFF4D217827D2166
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:82956831A62D92CAC9E4E4C3BFF4D217827D2166
 ```bash
 magnet:?xt=urn:btih:A565EDD008A632CC2231DEEE677649CFC543A953
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ MotoGP. Этап 15 из 22. Гран-при Каталонии. Гонка (07.
 magnet:?xt=urn:btih:A706E106D138B6074DD95DF2A4EF86111AC38A49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ MotoGP. Этап 15 из 22. Гран-при Каталонии. Спринт (0
 ```bash
 magnet:?xt=urn:btih:E4CFB8D57270E77BBB1E999829499A52913CC652
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ MotoGP. Этап 15 из 22. Гран-при Каталонии. Квалифи�
 magnet:?xt=urn:btih:FF1597AAEC1325DE94C5007616A37596F94E594E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:FF1597AAEC1325DE94C5007616A37596F94E594E
 ```bash
 magnet:?xt=urn:btih:E06CAB46EF07214C307E3D3C29A93D3C6069EEE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:E06CAB46EF07214C307E3D3C29A93D3C6069EEE8
 magnet:?xt=urn:btih:D4DECDBBEC240AD9EF53EC00D38B19088B507AC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ magnet:?xt=urn:btih:D4DECDBBEC240AD9EF53EC00D38B19088B507AC8
 ```bash
 magnet:?xt=urn:btih:5249C49EE1F0D0768ABD720146D66F69696237F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:5249C49EE1F0D0768ABD720146D66F69696237F7
 magnet:?xt=urn:btih:83B55980A615437BF4DB5B27E8811CF4019BD1CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ MotoGP. Этап 14 из 22. Гран-при Венгрии. Гонка (24.08.2
 ```bash
 magnet:?xt=urn:btih:75CE9108679D9CFDFF0A5C77C4C1C95E1FB13533
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ MotoGP. Этап 14 из 22. Гран-при Венгрии. Спринт (23.08
 magnet:?xt=urn:btih:905FD24395BD227D832F5D9E74EB34E4563215C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ MotoGP. Этап 14 из 22. Гран-при Венгрии. Квалифика�
 ```bash
 magnet:?xt=urn:btih:1D0FCF306B0DD512B87BC7F28E3F68A1E5C761B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:1D0FCF306B0DD512B87BC7F28E3F68A1E5C761B5
 magnet:?xt=urn:btih:642A4C757615D71B73201B998DD7EF696DB3377B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ MotoGP. Этап 13 из 22. Гран-при Австрии. Гонка (17.08.2
 ```bash
 magnet:?xt=urn:btih:1EBB5601321C5F39B85BE123DE2734DC1F431AD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ MotoGP. Этап 13 из 22. Гран-при Австрии. Спринт (16.08
 magnet:?xt=urn:btih:D337CDF2CC81F45CB58FA8BAE87F3761D27082D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ MotoGP. Этап 13 из 22. Гран-при Австрии. Квалифика�
 ```bash
 magnet:?xt=urn:btih:159238A539615F7108EC082F53C778DD9E37A0B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ magnet:?xt=urn:btih:159238A539615F7108EC082F53C778DD9E37A0B9
 magnet:?xt=urn:btih:48044CA416730AD9B9D8450F7AFC4965ACB72E41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ magnet:?xt=urn:btih:48044CA416730AD9B9D8450F7AFC4965ACB72E41
 ```bash
 magnet:?xt=urn:btih:D89D1C9EDEC320B6936FB4005B88685B9970E260
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

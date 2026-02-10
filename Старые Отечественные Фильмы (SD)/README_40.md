@@ -1,3 +1,29 @@
+###  Публикация: 706257   (424539) от 11.10.2013
+
+Обыкновенный человек (1957) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_424539.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре сюжета - амбициозные интриги: певец Ладыгин стесняется профессии своего внезапно приехавшего друга Свеколкина и представляет его членам своей семьи как крупного ученого. У Ладыгинского племянника Алексея есть невеста Кира, но её мать ссорит ее с женихом, чтобы сосватать за самого певца, разрушив его брак с Верой. Свеколкин убеждает свою дочь, тоже влюбленную (   Читать дальше...   )Жанр: Мелодрама, КомедияРежиссер: Александр СтолбовАктеры: Василий Меркурьев, Ирина Скобцева, Георгий Куликов, Евгения Козырева, Серафима Бирман, Петр Константинов, Роза Макагонова, Александра Панова, Валентина Беляева, Иван Бычков.Продолжительность: 01:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D05143793647BD7A282833C2D249F4B8FA56A548
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 946703   (424928) от 14.10.2015
 
 Опасные тропы (1954) TVRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:A004974192F4B475EBE033CDC7A6AF9C5644D01B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:A004974192F4B475EBE033CDC7A6AF9C5644D01B
 ```bash
 magnet:?xt=urn:btih:33923C6260D70A4955F1135BA73DBA46E4FD9214
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:33923C6260D70A4955F1135BA73DBA46E4FD9214
 magnet:?xt=urn:btih:9AED3481BE44507D6B644EE1D0CF8C0CC5E005E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:9AED3481BE44507D6B644EE1D0CF8C0CC5E005E9
 ```bash
 magnet:?xt=urn:btih:1CA68159D715C896E2315B34E002A39F45AB8D9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:1CA68159D715C896E2315B34E002A39F45AB8D9B
 magnet:?xt=urn:btih:21DF85C0FD23695C0D04F046D0E7548B32C58590
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:21DF85C0FD23695C0D04F046D0E7548B32C58590
 ```bash
 magnet:?xt=urn:btih:4C9BAA17847DDB542EDBED00466990CF4E300C4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:4C9BAA17847DDB542EDBED00466990CF4E300C4B
 magnet:?xt=urn:btih:85B2BBA8857C2273DBB270A5A4783E29391203F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:85B2BBA8857C2273DBB270A5A4783E29391203F7
 ```bash
 magnet:?xt=urn:btih:3E0BAEF647C8E11CE27D8563189B6AB2C642AE34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:3E0BAEF647C8E11CE27D8563189B6AB2C642AE34
 magnet:?xt=urn:btih:A7E78E283444BBC70E5341068CCC32F4C1195988
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:A7E78E283444BBC70E5341068CCC32F4C1195988
 ```bash
 magnet:?xt=urn:btih:A78C8A646AC4ACDF5326E1C3D40B68343DACEF70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:A78C8A646AC4ACDF5326E1C3D40B68343DACEF70
 magnet:?xt=urn:btih:9DD6E0C9722D67CCDCE1C8BC2EE0ADE3FBB1743E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:9DD6E0C9722D67CCDCE1C8BC2EE0ADE3FBB1743E
 ```bash
 magnet:?xt=urn:btih:786AD2F20F7D85CAD91E85DB563F62F3EFE9323C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:786AD2F20F7D85CAD91E85DB563F62F3EFE9323C
 magnet:?xt=urn:btih:3DEEA63641E73FC3A8040713A09C74A70B1C26D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:3DEEA63641E73FC3A8040713A09C74A70B1C26D7
 magnet:?xt=urn:btih:741E1DC5C2D42ABCBAB46C9B4C3ACB6245524FBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:741E1DC5C2D42ABCBAB46C9B4C3ACB6245524FBE
 ```bash
 magnet:?xt=urn:btih:E675CFC4710376CB9B0A7F55E37F8448ACA22268
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:E675CFC4710376CB9B0A7F55E37F8448ACA22268
 magnet:?xt=urn:btih:6890771AB262729EF5F31CB79E62ED62DD191F87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:6890771AB262729EF5F31CB79E62ED62DD191F87
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:6890771AB262729EF5F31CB79E62ED62DD191F87
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:6890771AB262729EF5F31CB79E62ED62DD191F87
 ```bash
 magnet:?xt=urn:btih:AE81008561549913B9A0ECECAF41FBB97D0E124A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:AE81008561549913B9A0ECECAF41FBB97D0E124A
 magnet:?xt=urn:btih:38D28C4339DD7B596B155F134960CDF1B881777F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:38D28C4339DD7B596B155F134960CDF1B881777F
 magnet:?xt=urn:btih:8373B5649164DECCDA67C2717DB068940D928259
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +598,8 @@ magnet:?xt=urn:btih:8373B5649164DECCDA67C2717DB068940D928259
 ```bash
 magnet:?xt=urn:btih:FA93D49D9F33CAA6B7DF8BE12FB1523348FB785F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +627,8 @@ magnet:?xt=urn:btih:FA93D49D9F33CAA6B7DF8BE12FB1523348FB785F
 magnet:?xt=urn:btih:8E29C29BBB661777564464DDC47BF0AC2A3BF239
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:8E29C29BBB661777564464DDC47BF0AC2A3BF239
 ```bash
 magnet:?xt=urn:btih:5B8D2B9B841D9B38AAAA4DDE3672985E6F3045E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,29 +680,7 @@ magnet:?xt=urn:btih:5B8D2B9B841D9B38AAAA4DDE3672985E6F3045E9
 magnet:?xt=urn:btih:35ADC6E1E1E7A66B7234C3C811719A977171E31D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410686   (433479) от 22.09.2020
-
-Жизнь по лимиту (1989) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433479.jpg" />
-</div>
-
-
-###  Подробнее
-
-В доме, который идет на слом, поселилась странная компания. В центре - милая провинциалка Маша, провалившаяся на вступительных экзаменах в институт и не решающаяся вернуться домой к маме и папе… В заброшенном доме Маша числится дворником, это дает ей законные основания на жизнь в Москве. Остальные обитатели - сплошная стихия, лимита…Производство: СССР / МосфильмЖанр: ДрамаРежиссер: Алексей РудаковАктеры: Марина Зудина, Олег Меньшиков, Евдокия Германова, Сергей Газаров, Сергей Никоненко, Владимир Стеклов, Александр Берда, А. Ардзинба, Сергей Галкин, Вадим ГемсСубтитры: ОтсутствуютПродолжительность: 01:10:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C566A9C349B1921B1EF6AC33560940BFF3A0C038
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

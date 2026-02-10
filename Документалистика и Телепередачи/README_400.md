@@ -1,3 +1,29 @@
+###  Публикация: 924766   (543004) от 05.08.2015
+
+Путешествие к Сатурну. Луны / Horizon. Resolution on Saturn. The Moons (1981) SATRip
+
+>>Документалистика и Телепередачи
+>>Космос
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_543004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о полете аппарата "Вояджер" в систему планеты Сатурн.Телекомпания: BBCЖанр: ДокументальныйПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:47:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDC09A50B0B1CBB187DADB1A8FFB557CFCD24A8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 925171   (543077) от 05.08.2015
 
 Скобелев. Белый генерал (2010) DVDRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:13D4164AE729964E238356924D8626324AD04B3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:13D4164AE729964E238356924D8626324AD04B3A
 magnet:?xt=urn:btih:5C6F83530E4705CAD0A88D37FC9D3D0F0688B670
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:5C6F83530E4705CAD0A88D37FC9D3D0F0688B670
 magnet:?xt=urn:btih:FDD77DD0EF55C0CC7687E7B0C4CEBCA14641439C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:FDD77DD0EF55C0CC7687E7B0C4CEBCA14641439C
 ```bash
 magnet:?xt=urn:btih:8867FC7CFDBB62B68F2D947D405997EECE1B32C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:8867FC7CFDBB62B68F2D947D405997EECE1B32C7
 magnet:?xt=urn:btih:1EBB74C4A8183F38D6FCE178A495E59CE262E2CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:1EBB74C4A8183F38D6FCE178A495E59CE262E2CB
 magnet:?xt=urn:btih:23DF77A4D5B1BEB14CCD7B145C738939AA04308D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:23DF77A4D5B1BEB14CCD7B145C738939AA04308D
 ```bash
 magnet:?xt=urn:btih:571A9B9E0075D32C74DF29B38E3BAC90C0BF4587
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:571A9B9E0075D32C74DF29B38E3BAC90C0BF4587
 magnet:?xt=urn:btih:D6540B849769C7CC243400BB0B459D63BE3085A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:D6540B849769C7CC243400BB0B459D63BE3085A8
 ```bash
 magnet:?xt=urn:btih:D71D772BFE93D6D2BF404471EB7CCF71EA6FC168
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:D71D772BFE93D6D2BF404471EB7CCF71EA6FC168
 magnet:?xt=urn:btih:74B3ECBC9C98F4DBAA202913B304ED09383FFD73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:74B3ECBC9C98F4DBAA202913B304ED09383FFD73
 ```bash
 magnet:?xt=urn:btih:C87F68167AFDB8A677E08CC8DBAB5C44ECF64E69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:C87F68167AFDB8A677E08CC8DBAB5C44ECF64E69
 magnet:?xt=urn:btih:52ABF4943D81DDFC27CC4E7776AE43A90C39DAC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:52ABF4943D81DDFC27CC4E7776AE43A90C39DAC5
 ```bash
 magnet:?xt=urn:btih:CC186066FE93B041BEC35834D75C1529B0BEF26E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:CC186066FE93B041BEC35834D75C1529B0BEF26E
 magnet:?xt=urn:btih:DE977728050865B461A36CE08B48BDFC2DB51CCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:DE977728050865B461A36CE08B48BDFC2DB51CCF
 ```bash
 magnet:?xt=urn:btih:2F42AD8B22D2BB29965678DB40069E9BE0C082D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:2F42AD8B22D2BB29965678DB40069E9BE0C082D0
 magnet:?xt=urn:btih:F6D672E44AE9297CC9B23A73EBC399332A101837
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:F6D672E44AE9297CC9B23A73EBC399332A101837
 ```bash
 magnet:?xt=urn:btih:332C5E4C1182D60DEC3B2CB5E595DD40F9BFD438
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:332C5E4C1182D60DEC3B2CB5E595DD40F9BFD438
 magnet:?xt=urn:btih:87F2E6FEC02C65389DF3A1BE2D73B09B899C38C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:87F2E6FEC02C65389DF3A1BE2D73B09B899C38C8
 ```bash
 magnet:?xt=urn:btih:09F8974E778DDF8607E7F603E87CB5A8626D1689
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:09F8974E778DDF8607E7F603E87CB5A8626D1689
 magnet:?xt=urn:btih:2B8094EDE920A0DA6122830E372E018E4202B5DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:2B8094EDE920A0DA6122830E372E018E4202B5DC
 ```bash
 magnet:?xt=urn:btih:141AD29E8F2CD780409BDE28E4D8871E3848B677
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:141AD29E8F2CD780409BDE28E4D8871E3848B677
 magnet:?xt=urn:btih:98CCECEFCC327F375E871B5CB2969D9B79302F6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +620,8 @@ magnet:?xt=urn:btih:98CCECEFCC327F375E871B5CB2969D9B79302F6A
 ```bash
 magnet:?xt=urn:btih:AC78CB0888063B116AB9F576416F08ABF2EC5A1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:AC78CB0888063B116AB9F576416F08ABF2EC5A1F
 magnet:?xt=urn:btih:A7C1B6553ACC390A43CA0B1CDBE133B0CECD392C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,29 +673,7 @@ magnet:?xt=urn:btih:A7C1B6553ACC390A43CA0B1CDBE133B0CECD392C
 magnet:?xt=urn:btih:B0C83E4918C8EAA15A69F964171EE4C84B294A7A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049207   (544917) от 04.09.2016
-
-Сто к одному (04.09.2016) SATRip
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8DE88575EBC45D75A69A7E598AFEFBF4042839A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

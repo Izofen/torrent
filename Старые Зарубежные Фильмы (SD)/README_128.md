@@ -1,27 +1,3 @@
-###  Публикация: 382936   (490914) от 02.09.2011
-
-Битлджюс (Битлджус) / Beetle Juice (1988) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что сделает пара непрофессиональных привидений, когда их добрую Новую Англию наводнят снобы из Нью-Йорка? Они наймут частного «био-экзорциста», чтобы изгнать пришельцев. И результат превзойдет все ожидания!Производство: США /  The Geffen CompanyЖанр: фэнтези, комедияРежиссер: Тим БёртонАктеры: Алек Болдуин, Джина Дэвис, Майкл Китон, Вайнона Райдер, Энни МакЭнро, Морис Пейдж, Хьюго Стэнджер, Рэйчел Миттелман, Кэтрин О’Хара, Марк Эттлингер, Джеффри Джонс, Гленн Шэдикс, Патрис Мартинез, Синди Дэйли, Дуглас ТернерПеревод: ДублированныйПродолжительность: 01:32:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99470826C4028BEAD739D92484824B5197E4530E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 383045   (490992) от 02.09.2011
 
 Оставайся голодным / Stay Hungry (1976) DVDRip
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:99470826C4028BEAD739D92484824B5197E4530E
 ```bash
 magnet:?xt=urn:btih:09E1C2107479040785B75E6F8E0D6C695AC7BB65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +46,8 @@ magnet:?xt=urn:btih:09E1C2107479040785B75E6F8E0D6C695AC7BB65
 magnet:?xt=urn:btih:2A5C246EC53829393C58B106751140EA696D4EE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +71,8 @@ magnet:?xt=urn:btih:2A5C246EC53829393C58B106751140EA696D4EE2
 ```bash
 magnet:?xt=urn:btih:A138D8BCE7D69CBE9DB265B775748EFB49E87701
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +98,8 @@ magnet:?xt=urn:btih:A138D8BCE7D69CBE9DB265B775748EFB49E87701
 magnet:?xt=urn:btih:E579FE63D7E57AAD97051961CAE38C69FF617E4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +123,8 @@ magnet:?xt=urn:btih:E579FE63D7E57AAD97051961CAE38C69FF617E4E
 ```bash
 magnet:?xt=urn:btih:FA87AA3E70BDD761793B254BFD47BE3DBDBA40AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:FA87AA3E70BDD761793B254BFD47BE3DBDBA40AE
 magnet:?xt=urn:btih:646138FCD63720904CD961C6B0826C10FE3231BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +175,8 @@ magnet:?xt=urn:btih:646138FCD63720904CD961C6B0826C10FE3231BA
 ```bash
 magnet:?xt=urn:btih:CF9CBDD37BC5501432C640CC137CB2820ADE384C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +202,8 @@ magnet:?xt=urn:btih:CF9CBDD37BC5501432C640CC137CB2820ADE384C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +227,8 @@ magnet:?xt=urn:btih:CF9CBDD37BC5501432C640CC137CB2820ADE384C
 ```bash
 magnet:?xt=urn:btih:F5D2FD742ADB666E68E1D2E91FE488F580AD20F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +254,8 @@ magnet:?xt=urn:btih:F5D2FD742ADB666E68E1D2E91FE488F580AD20F9
 magnet:?xt=urn:btih:A684463693B056D0C73E84BE3FE169759AA845B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +279,8 @@ magnet:?xt=urn:btih:A684463693B056D0C73E84BE3FE169759AA845B0
 ```bash
 magnet:?xt=urn:btih:3BAEA8975A5D0B4064FDBBD8BB535E39798FFB9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +306,8 @@ magnet:?xt=urn:btih:3BAEA8975A5D0B4064FDBBD8BB535E39798FFB9A
 magnet:?xt=urn:btih:25E27E1AA65CBE57280B1D2403CAFB52462A5793
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +332,8 @@ magnet:?xt=urn:btih:25E27E1AA65CBE57280B1D2403CAFB52462A5793
 magnet:?xt=urn:btih:0A799862B41A7C50E6215E7FF0E3EE16F523D3EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +357,8 @@ magnet:?xt=urn:btih:0A799862B41A7C50E6215E7FF0E3EE16F523D3EF
 ```bash
 magnet:?xt=urn:btih:0D0E6F5978A3F8B2C0536BBEFCE28EBB6C938F97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +385,8 @@ magnet:?xt=urn:btih:0D0E6F5978A3F8B2C0536BBEFCE28EBB6C938F97
 magnet:?xt=urn:btih:FD1DEE2440FCA5EBC5AB8E8F200E5BD9B5CFE848
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +410,8 @@ magnet:?xt=urn:btih:FD1DEE2440FCA5EBC5AB8E8F200E5BD9B5CFE848
 ```bash
 magnet:?xt=urn:btih:49CF41129C4E981E0C1EA4DD44818551FB53542F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +437,8 @@ magnet:?xt=urn:btih:49CF41129C4E981E0C1EA4DD44818551FB53542F
 magnet:?xt=urn:btih:D0D6B1073630C5E9756A16A0595CB5FFAED0E637
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +462,8 @@ magnet:?xt=urn:btih:D0D6B1073630C5E9756A16A0595CB5FFAED0E637
 ```bash
 magnet:?xt=urn:btih:FC4957D3CE9B09B1CA28E6B0584B4FED79C3079C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +489,8 @@ magnet:?xt=urn:btih:FC4957D3CE9B09B1CA28E6B0584B4FED79C3079C
 magnet:?xt=urn:btih:6099889015CA76D735F1126B10F1E4FBB4CB20F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +514,8 @@ magnet:?xt=urn:btih:6099889015CA76D735F1126B10F1E4FBB4CB20F1
 ```bash
 magnet:?xt=urn:btih:731F489FDF89A889416ED5077230E43CEA7B844B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +541,8 @@ magnet:?xt=urn:btih:731F489FDF89A889416ED5077230E43CEA7B844B
 magnet:?xt=urn:btih:B6A3840A88B989698A7CCC5C86E6F930B68BF457
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +566,8 @@ magnet:?xt=urn:btih:B6A3840A88B989698A7CCC5C86E6F930B68BF457
 ```bash
 magnet:?xt=urn:btih:4DD92C8884849CED1854D0B9294866719FE6F046
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +593,8 @@ magnet:?xt=urn:btih:4DD92C8884849CED1854D0B9294866719FE6F046
 magnet:?xt=urn:btih:CBF9B1DE52DFDCA32AC1E122AFE9C9B812B26EC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +619,8 @@ magnet:?xt=urn:btih:CBF9B1DE52DFDCA32AC1E122AFE9C9B812B26EC1
 magnet:?xt=urn:btih:86AD0EDD3A89AA2D2BABBCE4963BCA72ED5152F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +644,34 @@ magnet:?xt=urn:btih:86AD0EDD3A89AA2D2BABBCE4963BCA72ED5152F0
 ```bash
 magnet:?xt=urn:btih:ED969FEA092B7B0E7615D01DD83899013F9E6855
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 381792   (496886) от 30.08.2011
+
+Папа, папа, бедный папа, ты не вылезешь из шкапа, ты повешен нашей мамой между платьем и пижамой / Oh Dad, Poor Dad, Mama's Hung You in the Closet and I'm Feeling So Sad (1967) DVB
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мадам Розпетл — властная, богатая женщина. Она путешествует по миру, возя с собой своего сына Джонатана и… чучело своего умершего супруга. Джонатан — не сумасшедший, но волею матери, ограничившей его связи с окружающим миром, ему непросто даётся общение с людьми. Встреча с молодой Розали становится поворотным пунктом в жизни слишком застенчивого юноши, а заодно и (   Читать дальше...   )Жанр: КомедияАктеры: Розалинд Расселл, Роберт Морс, Барбара Харрис, Хью Гриффит, Джонатан Уинтерс, Лайонел Джеффрис, Сайрил Делеванти, Хирам Шерман, Джордж Кирби, Дженис ХансенПеревод: Профессиональный (двухголосый, закадровый)Продолжительность: 01:22:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE4E261622E35C7DD9A334080F4B879F45456968
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

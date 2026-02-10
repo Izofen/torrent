@@ -1,3 +1,29 @@
+###  Публикация: 1522820   (754940) от 09.01.2022
+
+Виталий Полосухин | Черный зверь (2020) [MP3, Андрей Кравец]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_754940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он — ВАМПИР, охотник. Кому ж, как не вампиру, и охотиться на вампиров, преступивших Закон? Кому ж, как не вампиру, и выполнять заказы таинственного всемогущего Навигатора?Цепь — есть. Заказ — есть. Отсчет пошел… А вот — каково вампиру снова и снова убивать СВОИХ? Это не интересно — НИКОМУ.Жанр: Ужасы, MистикаПродолжительность: 09:00:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D70BD4572AC1CACEB8B2CDDF80707DD6E30A34A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395489   (755039) от 10.07.2020
 
 Владимир Поселягин | Перевертыш (2020) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:20E6643B6931F8FBD675A112C29B9676FE29F987
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:20E6643B6931F8FBD675A112C29B9676FE29F987
 ```bash
 magnet:?xt=urn:btih:EBD9FEC6A8D4FB513D29F8CF8B177A590AFF7CA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:EBD9FEC6A8D4FB513D29F8CF8B177A590AFF7CA0
 magnet:?xt=urn:btih:251C0E0CCC7006CF1FDE50BA34F301568C4BBE2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:251C0E0CCC7006CF1FDE50BA34F301568C4BBE2F
 magnet:?xt=urn:btih:B823965ED2FC0B980BDA30320B0BC095BF4D95E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:B823965ED2FC0B980BDA30320B0BC095BF4D95E1
 ```bash
 magnet:?xt=urn:btih:92CDBD3B03052D139D73DF77C34DFDBFF98E45D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:92CDBD3B03052D139D73DF77C34DFDBFF98E45D5
 magnet:?xt=urn:btih:D27CD105ADBF13D38EC30F19A1A58C933A9EFFBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:D27CD105ADBF13D38EC30F19A1A58C933A9EFFBC
 magnet:?xt=urn:btih:87CBB31BE57D2522480B9882E47B0EB8E0C4A98B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:87CBB31BE57D2522480B9882E47B0EB8E0C4A98B
 ```bash
 magnet:?xt=urn:btih:D76B7E0E92AB5BE7CD0275FE7308B05246F46A5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:D76B7E0E92AB5BE7CD0275FE7308B05246F46A5C
 magnet:?xt=urn:btih:80DA43E754FC51C3D817CB577DF1D75AC7F76F1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:80DA43E754FC51C3D817CB577DF1D75AC7F76F1B
 magnet:?xt=urn:btih:7F246F3143E1EC6720043FF1FAF233450BD0E0E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:7F246F3143E1EC6720043FF1FAF233450BD0E0E1
 ```bash
 magnet:?xt=urn:btih:5018AD32E28BF16960830E56064D1EB385825A76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:5018AD32E28BF16960830E56064D1EB385825A76
 magnet:?xt=urn:btih:8EEED0574132D8C44B24C830F9D1E7511268CD1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:8EEED0574132D8C44B24C830F9D1E7511268CD1D
 magnet:?xt=urn:btih:208E00D13C5D512C4AEC2B4B489205E66849D9B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:208E00D13C5D512C4AEC2B4B489205E66849D9B8
 ```bash
 magnet:?xt=urn:btih:51F1B5C213479993FECD98B1276F0124D6CDBA45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:51F1B5C213479993FECD98B1276F0124D6CDBA45
 magnet:?xt=urn:btih:47B2FBAB98FE6C8236B4EB530BB58853BA3B042F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:47B2FBAB98FE6C8236B4EB530BB58853BA3B042F
 ```bash
 magnet:?xt=urn:btih:D8445142F42612423015C38BFCD330FAC19F8398
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:D8445142F42612423015C38BFCD330FAC19F8398
 magnet:?xt=urn:btih:177EC7A5AC2B42A6027DF235D7BB2FEC6D6A99D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:177EC7A5AC2B42A6027DF235D7BB2FEC6D6A99D2
 ```bash
 magnet:?xt=urn:btih:77CC7C90A9C1D34B683738DCA30174DEB0A15C30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:77CC7C90A9C1D34B683738DCA30174DEB0A15C30
 magnet:?xt=urn:btih:A57FC7D963E452EAC7CF47334BD6CA95DA6E0C27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:A57FC7D963E452EAC7CF47334BD6CA95DA6E0C27
 ```bash
 magnet:?xt=urn:btih:7080B160410D931DF13EDA2D52C1E984CF7C4D82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:7080B160410D931DF13EDA2D52C1E984CF7C4D82
 magnet:?xt=urn:btih:987BA5B5C9739AB5147DA21E5685938C63B98284
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:987BA5B5C9739AB5147DA21E5685938C63B98284
 ```bash
 magnet:?xt=urn:btih:910DAF27E2BD1BBEB5E0260FC323FC6A18AA1E4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:910DAF27E2BD1BBEB5E0260FC323FC6A18AA1E4F
 magnet:?xt=urn:btih:397091E31EAE5D418A85D802A13D7BC199EC10F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:397091E31EAE5D418A85D802A13D7BC199EC10F6
 ```bash
 magnet:?xt=urn:btih:BEA896D558DFB1C19D377B3DB735BA3265681D5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,31 +677,7 @@ magnet:?xt=urn:btih:BEA896D558DFB1C19D377B3DB735BA3265681D5D
 magnet:?xt=urn:btih:D63712FAF479EB42F9D6E146B4F6BC05465DA370
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522280   (759929) от 06.01.2022
-
-Андрей Ливадный | Экспансия. История Галактики (Книга 5). Зона Отчуждения (2021) [MP3, Максим Полтавский]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описание: "Зона отчуждения" – фантастическая роман Андрея Ливадного, эпизод пятый, основное время действия 2608 год.
-Его сбили над Кьюигом спустя несколько дней после того, как начавшаяся в глубинах космоса война докатилась до родной планеты Вадима Нечаева.
-Прошитая снарядами рубка, выбитые приборы, оплавленные жгуты проводки, ватная тишина в коммуникаторе (   Читать дальше...   )Жанр: Боевая фантастика, Космическая фантастикаПродолжительность: 06:50:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DE4036BE1241B875077E37CE86F9C4B4392AAA6
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

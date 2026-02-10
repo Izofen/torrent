@@ -19,6 +19,8 @@ BBC. Как устроена природа / How Nature Works (Secrets of Our L
 magnet:?xt=urn:btih:90974953E988E6BE67C780D2EAF54CFBE23B9F70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BBC: Horizon. Закат Солнечной системы / The End of The Sola
 ```bash
 magnet:?xt=urn:btih:C2B85C5788219AD956EF7C9C7F81F0233F1560FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ BBC. Horizon. Почему мы говорим? / Horizon. Why Do We Talk? (2009
 magnet:?xt=urn:btih:DAD6B748BEB5A04A593123DB3BABEA63CA09B162
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ BBC. Замки: История укреплений Британии / Castles:
 ```bash
 magnet:?xt=urn:btih:9B73E1874582EF9507D6CF583AA4F8A0DDF980C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:9B73E1874582EF9507D6CF583AA4F8A0DDF980C0
 magnet:?xt=urn:btih:3A001CF1A1EAD5C903F3F4B0529260F865216ED3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ BBC. Как вырастить планету / How to Grow a Planet (2012) BDRe
 ```bash
 magnet:?xt=urn:btih:BA5570B242929DE02250D93BEFAD6ACAEFE08082
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ BBC. Horizon. Миссия на Марс / Horizon. Mission To Mars (2012) HDTVR
 magnet:?xt=urn:btih:6C6A853FF5A312C5545EE0CD96D52C7F451BDFA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:6C6A853FF5A312C5545EE0CD96D52C7F451BDFA2
 ```bash
 magnet:?xt=urn:btih:30A9325AE6302FCA50F43AF11BC9D6D1856665A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ BBC: Океаны: Наша Голубая Планета / Oceans: Our Blue Pla
 magnet:?xt=urn:btih:C06051F65A7BDF11539C0CF32D14564A7FCC6413
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ BBC. Чудеса живой природы с Дэвидом Аттенборо
 magnet:?xt=urn:btih:D3C1795B92FAF2643383B2368F9EF73C2FF8C5F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ BBC: Мир природы. Смертоносные змеи Индии / The N
 ```bash
 magnet:?xt=urn:btih:01A639A0DC1DC4238DC51C38C3A0D0F1CFB76E86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ BBC: Горизонт - Как убить человека / Horizon - How to Ki
 magnet:?xt=urn:btih:9822711247E825FF3F77A2E1E9510C7BAC9E42D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ BBC. Умные обезьяны / Clever Monkeys (2008) HDTVRip [H.264/720p]
 ```bash
 magnet:?xt=urn:btih:9D0AAC445465128C24F197EB78F3BBA1E65D25C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ BBC. Horizon. Играя роль Бога / Horizon. Playing God (2012) HDTVRip
 magnet:?xt=urn:btih:1066F2B8A161BD63A023273823A40329BA7BD404
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ BBC: Horizon. Жизнь без старости / Don't Grow Old (2009) HDTVRip
 ```bash
 magnet:?xt=urn:btih:5F5339B453588670FC787685484831127CCC5F49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ BBC. Чудеса живой природы с Дэвидом Аттенборо
 magnet:?xt=urn:btih:BE0D184E7F33168435010CD6C04E4A4892051C1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ BBC. Кухня против науки. Кулинарный вызов / Chef 
 ```bash
 magnet:?xt=urn:btih:A6CE28546BC3E42B7A491154B0F07EC166F69888
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ BBC Earth. Чудо-яйца с Дэвидом Эттенборо / Attenborough
 magnet:?xt=urn:btih:F35E8C94A2426AFCDB09E3AFB39DCF97DAC5045C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ BBC. Тигр: Шпион джунглей / Tiger: Spy in the Jungle (2008) HDT
 ```bash
 magnet:?xt=urn:btih:EE052055537CA02E389D5C19F10A2A13F69932B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ BBC. Horizon. Эволюционируем ли мы сейчас? / BBC. Horizo
 magnet:?xt=urn:btih:6DC3F65794E37EF73776164FDA047F958B2A46EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ BBC. Horizon. Смертельно опасные ошибки / Horizon. How to
 ```bash
 magnet:?xt=urn:btih:94923F898F3A59B09F020DD76C8A56B8830658F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ BBC. Horizon. Жизнь без старости / Horizon. Don't Grow Old (2010
 magnet:?xt=urn:btih:330A5EF19CF6EEF879C0341F16FB7F6063FD70AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ BBC: Третья мировая война: взгляд из командно�
 ```bash
 magnet:?xt=urn:btih:CA0708EF0DC6C4C427CED7D21DB15F1F69B6383B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ BBC. Horizon. Откуда берутся гении? / Horizon. What Makes a Ge
 magnet:?xt=urn:btih:DEB63627133EA52E3E0575081E0F963140601C75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ BBC. Вся правда об акулах / Shark (2015) BDRip [H.264/1080p] (�
 magnet:?xt=urn:btih:AF539D7705749B8FB105CD17F406D1EFEE58E450
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ BBC: Тайны вселенной: Великие ученые своими с�
 ```bash
 magnet:?xt=urn:btih:7535F167A9176BFA4E0B6CA2FCA0F0B10B7D8DDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

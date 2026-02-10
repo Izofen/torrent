@@ -1,28 +1,3 @@
-###  Публикация: 925926   (523898) от 14.08.2015
-
-След Розовой Пантеры / Trail of the Pink Panther (1982) HDTVRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523898.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый бриллиант «Розовая пантера» снова украден. И опять на его поиски отправляется инспектор Клузо. След бриллианта ведет в Америку — Клузо садится в самолет. А через пару часов этот самолет терпит крушение.
-Шестой фильм из цикла «Розовая пантера». Следующий фильм «Проклятье Розовой Пантеры / Curse Of The Pink Panther(1983)»Производство: Великобритания, США / Amjo Productions, Blake Edwards, Lakeline Productions Ltd., Titan Productions, United ArtistsЖанр: Комедия, КриминалРежиссер: Блейк ЭдвардсАктеры: Питер Селлерс, Дэвид Нивен, Херберт Лом, Ричард Маллиган, Джоанна Ламли, Капюсин, Роберт Лоджа, Харви Кормен, Берт Квук, Грэм СтаркПеревод: Дублированный, многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:32:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79DBD006CE696CC21D2EF481C99DC6FC6606E963
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927749   (523899) от 14.08.2015
 
 Баловень судьбы / Itineraire d'un enfant gate (1988) BDRip
@@ -43,6 +18,8 @@ magnet:?xt=urn:btih:79DBD006CE696CC21D2EF481C99DC6FC6606E963
 ```bash
 magnet:?xt=urn:btih:C982BFBF8C1F1B4146C8E05EF23DE1BE075E0E79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +45,8 @@ magnet:?xt=urn:btih:C982BFBF8C1F1B4146C8E05EF23DE1BE075E0E79
 magnet:?xt=urn:btih:6DD63FA1FF6777BBEECC708DBE9C434AE0E0B397
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +70,8 @@ magnet:?xt=urn:btih:6DD63FA1FF6777BBEECC708DBE9C434AE0E0B397
 ```bash
 magnet:?xt=urn:btih:208FD3CAD4130F5C49E9145E6CFF6F9EF55136FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +97,8 @@ magnet:?xt=urn:btih:208FD3CAD4130F5C49E9145E6CFF6F9EF55136FE
 magnet:?xt=urn:btih:C8CA36113375D6D195A66FD6B8D50B4C5EC1179C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +122,8 @@ magnet:?xt=urn:btih:C8CA36113375D6D195A66FD6B8D50B4C5EC1179C
 ```bash
 magnet:?xt=urn:btih:5B27111305238FA908F843AAA418ECE6608EB7E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +149,8 @@ magnet:?xt=urn:btih:5B27111305238FA908F843AAA418ECE6608EB7E2
 magnet:?xt=urn:btih:576B3972B0ECD3DECF7E03138E3FB5A3AB825563
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +174,8 @@ magnet:?xt=urn:btih:576B3972B0ECD3DECF7E03138E3FB5A3AB825563
 ```bash
 magnet:?xt=urn:btih:0920A534E53ED2B6255AE5C839DEEDF79A587513
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +201,8 @@ magnet:?xt=urn:btih:0920A534E53ED2B6255AE5C839DEEDF79A587513
 magnet:?xt=urn:btih:DE879F8BF14444E7FD0760C6CD3E279723128F0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +226,8 @@ magnet:?xt=urn:btih:DE879F8BF14444E7FD0760C6CD3E279723128F0B
 ```bash
 magnet:?xt=urn:btih:EE5876100BE19D0109E2526B164E160A5FC1FC31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +253,8 @@ magnet:?xt=urn:btih:EE5876100BE19D0109E2526B164E160A5FC1FC31
 magnet:?xt=urn:btih:F1FAFE6DB7B7E357C3977B2D97E548DE7CD1A0A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +278,8 @@ magnet:?xt=urn:btih:F1FAFE6DB7B7E357C3977B2D97E548DE7CD1A0A1
 ```bash
 magnet:?xt=urn:btih:D8C745B985EE290BCA2DD394159A87BF85A1E069
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +305,8 @@ magnet:?xt=urn:btih:D8C745B985EE290BCA2DD394159A87BF85A1E069
 magnet:?xt=urn:btih:DE59022A54D0036F3B35021B47C6143C9067DEB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +330,8 @@ magnet:?xt=urn:btih:DE59022A54D0036F3B35021B47C6143C9067DEB2
 ```bash
 magnet:?xt=urn:btih:410BC3331480FD75A67C6922D575A8DC6DB75390
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +358,8 @@ magnet:?xt=urn:btih:410BC3331480FD75A67C6922D575A8DC6DB75390
 magnet:?xt=urn:btih:A87E4A7901411CED0E214253EFB2BE3EDEE8EE1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +383,8 @@ magnet:?xt=urn:btih:A87E4A7901411CED0E214253EFB2BE3EDEE8EE1E
 ```bash
 magnet:?xt=urn:btih:958D80090F96C261D8867C241A3FC2FA414C102B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +410,8 @@ magnet:?xt=urn:btih:958D80090F96C261D8867C241A3FC2FA414C102B
 magnet:?xt=urn:btih:50C44DD3B139CFD1922318D31F3F58617CFB8669
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +435,8 @@ magnet:?xt=urn:btih:50C44DD3B139CFD1922318D31F3F58617CFB8669
 ```bash
 magnet:?xt=urn:btih:45DC508B9114AEB35A3325725D77898A366D9128
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +462,8 @@ magnet:?xt=urn:btih:45DC508B9114AEB35A3325725D77898A366D9128
 magnet:?xt=urn:btih:7EB0F33370460F91255BA06A721AD5B925F736E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +487,8 @@ magnet:?xt=urn:btih:7EB0F33370460F91255BA06A721AD5B925F736E3
 ```bash
 magnet:?xt=urn:btih:9C29F23D4346F43A19BB9A9F075881D54534D0C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +514,8 @@ magnet:?xt=urn:btih:9C29F23D4346F43A19BB9A9F075881D54534D0C1
 magnet:?xt=urn:btih:CC41184D4F32052F9CE377BF78BC7C4260AB5151
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +539,8 @@ magnet:?xt=urn:btih:CC41184D4F32052F9CE377BF78BC7C4260AB5151
 ```bash
 magnet:?xt=urn:btih:F9BFEB7AEC0EF246DB88BB1B0ED120B1ECF63E9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +566,8 @@ magnet:?xt=urn:btih:F9BFEB7AEC0EF246DB88BB1B0ED120B1ECF63E9F
 magnet:?xt=urn:btih:CCBAE50F8FCD712D633B7CFEBBF798609E8C34FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +591,8 @@ magnet:?xt=urn:btih:CCBAE50F8FCD712D633B7CFEBBF798609E8C34FF
 ```bash
 magnet:?xt=urn:btih:EF959FDA9534944881D5621F0B17ADDFA495C456
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +618,8 @@ magnet:?xt=urn:btih:EF959FDA9534944881D5621F0B17ADDFA495C456
 magnet:?xt=urn:btih:2923CB099175C13A7876E9311AB979125DBB2938
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +643,34 @@ magnet:?xt=urn:btih:2923CB099175C13A7876E9311AB979125DBB2938
 ```bash
 magnet:?xt=urn:btih:2FBDF89F488DDB0B2E9FBCF5BD00A5B63E501497
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052150   (528918) от 13.09.2016
+
+Мистер Судьба / Mr. Destiny (1990) WEB-DLRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528918.jpg" />
+</div>
+
+
+###  Подробнее
+
+У простого служащего Ларри ломается машина. Он останавливается у придорожного кафе и в ожидании помощи решает пропустить стаканчик. Ларри жалуется бармену на свою неудавшуюся жизнь: если бы все сложилось иначе… Таинственный человек за стойкой молча выслушал его историю. С этого момента судьба Ларри полностью изменилась. Теперь он — один из управляющих преуспевающей (   Читать дальше...   )Производство: СШАЖанр: КомедияРежиссер: Джеймс ОррАктеры: Джеймс Белуши, Линда Хэмилтон, Майкл Кейн, Джон Ловиц, Харт Бокнер, Рене Руссо, Джэй О. Сэндерс, Мори Чайкин, Пэт Корли, Даглас Сил ...Перевод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:50:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFEB753BEB894EFD9C96362DC6A884EF1B3A1A6A
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

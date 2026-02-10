@@ -19,6 +19,8 @@ Empyrion - Galactic Survival – это приключение с выживан
 magnet:?xt=urn:btih:4373C13E5A27774046B30BFC7D748CBC48747579
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Whispering Lane: Horror (2024) [Ru/Multi] (1.0) Repack FitGirl [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:4CD7448D0DA4CE155F64A70AF7F96BF7DAFB6A6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Murders on the Yangtze River переносит вас в Китай начал�
 magnet:?xt=urn:btih:347AAE75FD28BD8FC53900AB7F00A457C99CDBAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Amnesia: The Bunker - хоррор от первого лица от созда�
 ```bash
 magnet:?xt=urn:btih:4FBFFF0DDFF39AE048EE38D77CD7BC0BAFABB1CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Myst (2021) [Ru/Multi] (1.8.7) Repack dixen18 [VR]
 magnet:?xt=urn:btih:FFBAF41968400E98A409F628ED997309A40AA2FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Eyes of Destiny – наш протагонист находится в очен
 ```bash
 magnet:?xt=urn:btih:229FAFFD5295DFF32AD2EFB47F39C7888A6C3EE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ REVEIL (2024) [Ru/Multi] (1.1.1/dlc) Scene Tenoke
 magnet:?xt=urn:btih:F4679B711CAFDD3BC5EB930E42B3DEA2416F6460
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Stranded Sails Explorers of the Cursed Islands (2019) [Ru/Multi] (1.4.8) License
 ```bash
 magnet:?xt=urn:btih:35B49CFF28B4B6BA1EE6D48405328D60D2B92BCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Oregon Trail - это увлекательная адвенчура в ст�
 magnet:?xt=urn:btih:7DE6FDA621A97AA1052D85D4D4DD59647FA43497
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ TOEM - приключенческая головоломка, выполненн
 ```bash
 magnet:?xt=urn:btih:FEC2AB4F1B04FAB9C6E7EF0E938EADBAC98A7EB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Nancy Drew: Mystery of the Seven Keys (2024) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:7A98005446125591C4DF5E2F9A1D23B1805C09B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Psychopath Massacre (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FD7C2F197481A991D96D164F748681D2C15E5D12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ CRUELTY – что может быть лучше ужаса от японски
 magnet:?xt=urn:btih:9CDC89DED1CEC56C43457AFEA80F1609E5996CD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:9CDC89DED1CEC56C43457AFEA80F1609E5996CD1
 ```bash
 magnet:?xt=urn:btih:75EFF579A48C1D05AFE61828D71DAAC9656A12B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Mountains of Madness (2024) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:96A9582525B45644D9AD385F68DE38A3EBCFFA43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (2.618.0.0/dlc) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:3FAD629E883B104FD4C3A6746E7E55A55854FEC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ STUFFED - это процедурно-генерируемый шутер от �
 magnet:?xt=urn:btih:DE7B78AB22DEE0C0FEEAB8C75A44D12ACD88F8F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ SPY×ANYA: Operation Memories ставит вас на место очарова
 ```bash
 magnet:?xt=urn:btih:17C3E524C43651BF51594935D1A16BAC7286F3B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ GASPING.2 - это однопользовательская игра на выж
 magnet:?xt=urn:btih:72B42B9596D6182E7E52AA3E90BE5D9055D1A014
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ SPY×ANYA: Operation Memories ставит вас на место очарова
 ```bash
 magnet:?xt=urn:btih:9CF00E107CA5D56B41A8A695EE4B555235BDFEC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ The Day Of Survival (2024) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:16C44F3364B9F3608BAAE708AA11B9BAECD06718
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Senua's Saga: Hellblade 2 - продолжение ролевого экшена
 ```bash
 magnet:?xt=urn:btih:9E84744027E470C9890BDFEE81B4CD6C268517E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (2.618.0.0/dlc) Repack dixen18
 magnet:?xt=urn:btih:835EB7AF379CE10B8B05115E89C7EFBDA388F52C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Riven (2024) [Ru/Multi] (build 1294) Repack FitGirl [VR]
 ```bash
 magnet:?xt=urn:btih:0100D26290ED67F1AB7D97B6944FE2CB099D4A95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ COCOON (2023) [Ru/Multi] (20240222) Scene Tenoke
 magnet:?xt=urn:btih:9BA3221EAF4FF78D5E92C518383DF585C52336B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Fork Road бросает вас с головой в тускло освещен
 ```bash
 magnet:?xt=urn:btih:DBE8726FDAB68E9C3B2C7010228B409EC024C9FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1442848   (1036249) от 26.01.2021
+
+Эдуард Веркин | Звездолет с перебитым крылом (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эдуард Веркин – один из ярких современных российских авторов, лауреат престижных литературных премий, настоящий наследник традиций Чехова, Платонова, Лема, братьев Стругацких, Дика, Брэдбери. В 2012 году роман Веркина «Друг-апрель» был включен в список выдающихся книг мира «Белые вороны», составляемый Мюнхенской международной детской библиотекой.
+В своих книгах Э. (   Читать дальше...   )Жанр: Социальная фантастикаПродолжительность: 09:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D2CD2E7B8C0CE842187B52DF096A56AAD75DC66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616303   (1036386) от 02.03.2023
 
 Евгений Астахов | Виашерон (Книга 8). Перо Демиурга (Том I) (2022) [MP3, Михаил Алексеев]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:8BB9633595EAF4155F2BDEEFD902E82F991EAF5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +73,8 @@ magnet:?xt=urn:btih:8BB9633595EAF4155F2BDEEFD902E82F991EAF5B
 magnet:?xt=urn:btih:1853582F48ADD0668640AFD40CB08E07B0C1855A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +98,8 @@ magnet:?xt=urn:btih:1853582F48ADD0668640AFD40CB08E07B0C1855A
 ```bash
 magnet:?xt=urn:btih:1BA6EA5F30B6659716D3F483CD2776A36D2D7F80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +125,8 @@ magnet:?xt=urn:btih:1BA6EA5F30B6659716D3F483CD2776A36D2D7F80
 magnet:?xt=urn:btih:9AA24875D797E59441E28FB3BBCE37E03799982C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +150,8 @@ magnet:?xt=urn:btih:9AA24875D797E59441E28FB3BBCE37E03799982C
 ```bash
 magnet:?xt=urn:btih:6C06BB6CE701220C6BF4054E99E7748CEB368D41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +177,8 @@ magnet:?xt=urn:btih:6C06BB6CE701220C6BF4054E99E7748CEB368D41
 magnet:?xt=urn:btih:A2C1001AB389CC824C53FDBA07F7460C21A1A527
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +202,8 @@ magnet:?xt=urn:btih:A2C1001AB389CC824C53FDBA07F7460C21A1A527
 ```bash
 magnet:?xt=urn:btih:1E393D7360FFDA856932E4C40C89D68D4ECB1C60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +229,8 @@ magnet:?xt=urn:btih:1E393D7360FFDA856932E4C40C89D68D4ECB1C60
 magnet:?xt=urn:btih:C97FB80E4E88C5B1C9AE7A0B1F71EE661C5AD8CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +255,8 @@ magnet:?xt=urn:btih:C97FB80E4E88C5B1C9AE7A0B1F71EE661C5AD8CB
 magnet:?xt=urn:btih:25726849FDF5A92B6BFD966D7F3FD221678A2F40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +280,8 @@ magnet:?xt=urn:btih:25726849FDF5A92B6BFD966D7F3FD221678A2F40
 ```bash
 magnet:?xt=urn:btih:4313648EB42CC3C52B8116C405B754667F231BD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +308,8 @@ magnet:?xt=urn:btih:4313648EB42CC3C52B8116C405B754667F231BD7
 magnet:?xt=urn:btih:A239E0BCC21B450183EA007A09810833EA5BCFE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +333,8 @@ magnet:?xt=urn:btih:A239E0BCC21B450183EA007A09810833EA5BCFE2
 ```bash
 magnet:?xt=urn:btih:8FC192549FCF9B6B17E658D82C9E95D69B43A469
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +362,8 @@ magnet:?xt=urn:btih:8FC192549FCF9B6B17E658D82C9E95D69B43A469
 magnet:?xt=urn:btih:5782444A7ECF68FDED1C72D3D8CC8FC12E3D85A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +387,8 @@ magnet:?xt=urn:btih:5782444A7ECF68FDED1C72D3D8CC8FC12E3D85A4
 ```bash
 magnet:?xt=urn:btih:938B48FBB04F3F58E090C7797000FDB6DADC5FA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +416,8 @@ magnet:?xt=urn:btih:938B48FBB04F3F58E090C7797000FDB6DADC5FA5
 magnet:?xt=urn:btih:3EB591C52B1E93E5C643B7DA857F0FF4497E558B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +441,8 @@ magnet:?xt=urn:btih:3EB591C52B1E93E5C643B7DA857F0FF4497E558B
 ```bash
 magnet:?xt=urn:btih:EDE0DCFA2EFC08572E3D5456CD1E690A7FFDE148
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +470,8 @@ magnet:?xt=urn:btih:EDE0DCFA2EFC08572E3D5456CD1E690A7FFDE148
 magnet:?xt=urn:btih:7102EA6466056C871CCBBD0A21A7AB093ABC617B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +495,8 @@ magnet:?xt=urn:btih:7102EA6466056C871CCBBD0A21A7AB093ABC617B
 ```bash
 magnet:?xt=urn:btih:303813907AFA19748C161F8ABC89CF9CBEBAE02D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +524,8 @@ magnet:?xt=urn:btih:303813907AFA19748C161F8ABC89CF9CBEBAE02D
 magnet:?xt=urn:btih:DFB1C2F6F559130132DE4DEB1CB7009037085AD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +551,8 @@ magnet:?xt=urn:btih:DFB1C2F6F559130132DE4DEB1CB7009037085AD5
 magnet:?xt=urn:btih:257DBBFC19380E8DBB31E98D558F81940298CC65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +576,8 @@ magnet:?xt=urn:btih:257DBBFC19380E8DBB31E98D558F81940298CC65
 ```bash
 magnet:?xt=urn:btih:A345423AAE7833F07C8A8D2D19B69B3D1C9D1444
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +606,8 @@ magnet:?xt=urn:btih:A345423AAE7833F07C8A8D2D19B69B3D1C9D1444
 magnet:?xt=urn:btih:93185638D8F065E6613C392C9059EB10A00B8024
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +631,8 @@ magnet:?xt=urn:btih:93185638D8F065E6613C392C9059EB10A00B8024
 ```bash
 magnet:?xt=urn:btih:DEFB6933A82917B61B9E90D463115AFE0671E87E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +659,8 @@ magnet:?xt=urn:btih:DEFB6933A82917B61B9E90D463115AFE0671E87E
 magnet:?xt=urn:btih:961DB93A53451FF41F7662B41D4455DA5D13031A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,29 +685,7 @@ magnet:?xt=urn:btih:961DB93A53451FF41F7662B41D4455DA5D13031A
 magnet:?xt=urn:btih:133873085F72496A6DD1496C5CE584629B61D030
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615006   (1038121) от 24.02.2023
-
-Ольга Герр | История (не)любви (2022) [MP3, Ольга Дианова]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лэрд Анрэй Вестор не привык к отказам. Вассалы всегда покорно исполняли прихоти своего сюзерена. Но в этот раз он пожелал меня – Флориану Морей. И ему плевать, что я принадлежу другому. Что же мне делать? Подчиниться? Немыслимо! Отказать? Невозможно… А ему всё мало. Он хочет уже не только тело, но и душу.Жанр: историческое фэнтези, любовное фэнтезиПродолжительность: 08:03:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:844C388657C1B3183C3DF746D01A41E8DF08900B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

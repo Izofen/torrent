@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ CyberLink WaveEditor - программа для записи, анализа и
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ AeroWallpaperChanger - это программа для смены обоев в
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ AeroWallpaperChanger - это программа для смены обоев в
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ AeroWallpaperChanger - это программа для смены обоев в
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ AeroWallpaperChanger - это программа для смены обоев в
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ AeroWallpaperChanger - это программа для смены обоев в
 ```bash
 magnet:?xt=urn:btih:9579ED05E62C02A402F4C8C259C6FFE446BE6475
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:9579ED05E62C02A402F4C8C259C6FFE446BE6475
 ```bash
 magnet:?xt=urn:btih:CEB5367474A83573A8878F707E65BCD0ACC62A01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -228,6 +244,8 @@ Elvis Presley - The Complete Elvis Presley Masters (2010) [DTS 5.1|Audio-DVD(upm
 magnet:?xt=urn:btih:3A9FBFC7164CBCDD22BC2F6232310FFA7AB067A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ magnet:?xt=urn:btih:3A9FBFC7164CBCDD22BC2F6232310FFA7AB067A6
 ```bash
 magnet:?xt=urn:btih:976B5FB9446F5CED776B73E5BD2CB5750FB66558
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:976B5FB9446F5CED776B73E5BD2CB5750FB66558
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ SoundForge 10 - новая версия мощного аудио-редакто
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ Autodesk AutoCAD Design Suite Ultimate 2013 - это программный ко
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ Autodesk AutoCAD Design Suite Ultimate 2013 - это программный ко
 ```bash
 magnet:?xt=urn:btih:532175CFD093489EED4B26AB8B0C345F4E34638D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:532175CFD093489EED4B26AB8B0C345F4E34638D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ Gadgets for windows 7 Chameleon Pack- Glass Gadgets [English]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ Angry Birds (v.2.0)[jar] [Игра](S^1)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ Armin van Buuren
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ Rayman Origins [WineSkin]
 magnet:?xt=urn:btih:8815B11C2CFF1E8896F8BF474B1BF73AD5D38DA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:8815B11C2CFF1E8896F8BF474B1BF73AD5D38DA4
 magnet:?xt=urn:btih:74E91C89E45841CEF27BAD20B90CCC8EB5447819
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ World of Tanks — это массовая многопользовательс�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ World of Tanks — это массовая многопользовательс�
 magnet:?xt=urn:btih:7684D492580ABF4FAEE731A1AA32E9685BD8A254
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ magnet:?xt=urn:btih:7684D492580ABF4FAEE731A1AA32E9685BD8A254
 ```bash
 magnet:?xt=urn:btih:475B5B3FB1854BE6E58761F19A37589AFCA11F7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +648,8 @@ Symantec NetBackup 7.5 [ENG]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ Symantec NetBackup 7.5 [ENG]
 magnet:?xt=urn:btih:02BB8F7B2BB98307A7BFEE0615EF72198F938F46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ Shoot Many Robots – динамичный платформер-шутер, в �
 ```bash
 magnet:?xt=urn:btih:88DBE01EF669BEF51518BA3E4E061D488BFD772B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

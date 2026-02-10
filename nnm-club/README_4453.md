@@ -22,6 +22,8 @@ Kenny G - Beautiful compilation (2019) [MP3|320 Kbps] <Instrumental>
 magnet:?xt=urn:btih:CBA242297DE65930271501DA5451DA347E9C90D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:CBA242297DE65930271501DA5451DA347E9C90D4
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:CBA242297DE65930271501DA5451DA347E9C90D4
 magnet:?xt=urn:btih:DAA64F3D0D0C02025A5A41BA9F24BB2523EA7C3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:DAA64F3D0D0C02025A5A41BA9F24BB2523EA7C3F
 ```bash
 magnet:?xt=urn:btih:059F512D36CB15592844C27A7535BCBFBDD7E31B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ VA - Drum Overcome (2018) [MP3|320 Kbps] <Drum And Bass>
 magnet:?xt=urn:btih:2242776B50CBF4529A6D01FF75CDB3B50CE4419D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Mob Psycho 100 II | Моб Психо 100 II [2019, TV, 13 эп.] BDRip 1080p ru
 ```bash
 magnet:?xt=urn:btih:EE26D94EEDBD73A4422053AD737277F3678907F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:EE26D94EEDBD73A4422053AD737277F3678907F2
 magnet:?xt=urn:btih:6F0CEE3207A652515D4EAFD761DE8FF975593B6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:6F0CEE3207A652515D4EAFD761DE8FF975593B6E
 ```bash
 magnet:?xt=urn:btih:58FD4E84AF3FF017F473AB5581D8715F7853A629
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ Minus One - Red Black White (2018) [MP3|320 Kbps] <Hard Rock>
 magnet:?xt=urn:btih:E81E8A5F81B0FEEEB3A69DCBAC14EE99FDFF2503
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ Saint-Preux - Compilation (2019) [MP3|320 Kbps] <Instrumental, Electronic. Easy 
 magnet:?xt=urn:btih:3F2000F5DD055A4C8BCD993D386664A49E382A4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ Kimi to, Nami ni Noretara | Ride Your Wave | На твоей волне [2019, M
 ```bash
 magnet:?xt=urn:btih:841F918032ADCCB44470BEBDF365DDCCDB19C955
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ magnet:?xt=urn:btih:841F918032ADCCB44470BEBDF365DDCCDB19C955
 magnet:?xt=urn:btih:ADF4F25B085BBD6DA16DABFEA339F9DAA2DE19D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ Radio City Fantasy: Machikado no Maerchen | Городская радио-ска
 magnet:?xt=urn:btih:F4C6241EB9DEFFDD11CC23D8E54EF717EA9D345E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ magnet:?xt=urn:btih:F4C6241EB9DEFFDD11CC23D8E54EF717EA9D345E
 magnet:?xt=urn:btih:72B81E6D990A2D1D8B2D179596F5EE0426758B58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:72B81E6D990A2D1D8B2D179596F5EE0426758B58
 ```bash
 magnet:?xt=urn:btih:DF1FCC8A2F37E2D1EFC6D6A239B46DB75C0D8835
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ magnet:?xt=urn:btih:DF1FCC8A2F37E2D1EFC6D6A239B46DB75C0D8835
 magnet:?xt=urn:btih:1091D3F4C3FD3F6420FC3095181DFB07BC4B9B51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ Tenchi Muyou! Ryououki | Tenchi Muyo! Ryo-Ohki | Тэнти - лишний! Рё
 magnet:?xt=urn:btih:98716404496B552965385C74BE963FCAD7FC871F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ Double Exposure Vol.5 - этот набор содержит 10 действий
 ```bash
 magnet:?xt=urn:btih:4BD4084365B2D8169D693468E85F7F6B657104E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +511,8 @@ magnet:?xt=urn:btih:4BD4084365B2D8169D693468E85F7F6B657104E4
 magnet:?xt=urn:btih:4DDE8DB8FD245A8993E5B3540BEB08E5A0629330
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +537,8 @@ magnet:?xt=urn:btih:4DDE8DB8FD245A8993E5B3540BEB08E5A0629330
 magnet:?xt=urn:btih:1882063B84F4F383720863C6AC84C98063E21041
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ magnet:?xt=urn:btih:1882063B84F4F383720863C6AC84C98063E21041
 ```bash
 magnet:?xt=urn:btih:FB249343A9398913A307CE74A0936A4104D94969
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ magnet:?xt=urn:btih:FB249343A9398913A307CE74A0936A4104D94969
 magnet:?xt=urn:btih:F856216B19930CA1C3BB993491FA91FBE3DDE754
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ magnet:?xt=urn:btih:F856216B19930CA1C3BB993491FA91FBE3DDE754
 ```bash
 magnet:?xt=urn:btih:D28677D849B63CDF9CA44CAD0FDD7DD3B92D3682
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +644,8 @@ Aho Girl | Дурочка (2017) [FLAC|Lossless] <OST>
 magnet:?xt=urn:btih:3C2164417417C6A7437633479D6484B90539F8BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:3C2164417417C6A7437633479D6484B90539F8BF
 magnet:?xt=urn:btih:2188DD1DDAC5716CEB2A587E7FE06FE8CFCD6D9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ magnet:?xt=urn:btih:2188DD1DDAC5716CEB2A587E7FE06FE8CFCD6D9E
 ```bash
 magnet:?xt=urn:btih:3445EFAE9BE71817B4F9116FC98BA742BD8F2950
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

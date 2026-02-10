@@ -1,3 +1,30 @@
+###  Публикация: 910688   (615715) от 23.06.2015
+
+Роберт Кийосаки | Богатый инвестор – быстрый инвестор (2013) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615715.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге объясняется, как повысить уровень своего финансового самообразования, чтобы стать профессиональным инвестором, увеличить свои инвестиционные поступления и ускорить рост финансовых активов.
+Для широкого круга читателей.Жанр: Ценные бумаги, инвестиции, Личные финансыПеревод: Л. А. БабукФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32479D1BBEC0BD49DCC1C7C6E4B3B2518CD410F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911681   (615728) от 23.06.2015
 
 Ник Дуглас, Пенни Слингер | Йога и сексуальные практики (2013) [FB2, EPUB]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:45F0CE766789E11452F112908DDE08AABDAEDE54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:45F0CE766789E11452F112908DDE08AABDAEDE54
 magnet:?xt=urn:btih:A9C99A72AA8D903219ACA3C665721D0A0468A447
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +98,8 @@ magnet:?xt=urn:btih:A9C99A72AA8D903219ACA3C665721D0A0468A447
 ```bash
 magnet:?xt=urn:btih:B38EE290DAEBCD15DEA84B2B30E93B452AC221A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +128,8 @@ magnet:?xt=urn:btih:B38EE290DAEBCD15DEA84B2B30E93B452AC221A5
 magnet:?xt=urn:btih:ABEBD59577796E8946AB599DA6182BCF934B6315
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +157,8 @@ magnet:?xt=urn:btih:ABEBD59577796E8946AB599DA6182BCF934B6315
 magnet:?xt=urn:btih:8AB2DDCE15EC605E50CCD22EAA51D0900715F98E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +183,8 @@ magnet:?xt=urn:btih:8AB2DDCE15EC605E50CCD22EAA51D0900715F98E
 ```bash
 magnet:?xt=urn:btih:2F911FF1D865DA3FA72C517062899B53956E2788
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +211,8 @@ magnet:?xt=urn:btih:2F911FF1D865DA3FA72C517062899B53956E2788
 magnet:?xt=urn:btih:A5E2FF8D8E1AD82D670189957BE7D0738EF4C0DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +237,8 @@ magnet:?xt=urn:btih:A5E2FF8D8E1AD82D670189957BE7D0738EF4C0DD
 magnet:?xt=urn:btih:A6E161439B4C9F563BCA0092EE455BED574E7260
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +262,8 @@ magnet:?xt=urn:btih:A6E161439B4C9F563BCA0092EE455BED574E7260
 ```bash
 magnet:?xt=urn:btih:ABAC40F8C69AE5370690BD7AF65D3CBB610942A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +290,8 @@ magnet:?xt=urn:btih:ABAC40F8C69AE5370690BD7AF65D3CBB610942A0
 ```bash
 magnet:?xt=urn:btih:ED530B65C1E5A114B4C9F1E799F342752BF18F17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +324,8 @@ magnet:?xt=urn:btih:ED530B65C1E5A114B4C9F1E799F342752BF18F17
 magnet:?xt=urn:btih:91A1446359FE3944D13FD563C99ACABA42DCB7A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +349,8 @@ magnet:?xt=urn:btih:91A1446359FE3944D13FD563C99ACABA42DCB7A8
 ```bash
 magnet:?xt=urn:btih:AA03A4E8617EA5C16159C3EA92DD38CEF3D6D9BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +379,8 @@ magnet:?xt=urn:btih:AA03A4E8617EA5C16159C3EA92DD38CEF3D6D9BD
 magnet:?xt=urn:btih:D03F5C674DFE11A0A8FCFF77787C74EE5BD649AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +406,8 @@ magnet:?xt=urn:btih:D03F5C674DFE11A0A8FCFF77787C74EE5BD649AC
 ```bash
 magnet:?xt=urn:btih:3AF2018F80F15178734FFF011CB252BEC9332200
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +440,8 @@ C помощью данной книги вы сможете легко сшит
 magnet:?xt=urn:btih:5C1D5FCBB991529CDDFFCE20300B47411AF6A1E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +465,8 @@ magnet:?xt=urn:btih:5C1D5FCBB991529CDDFFCE20300B47411AF6A1E7
 ```bash
 magnet:?xt=urn:btih:B45DB5C4D879B108AEE32CEBB1ED922988C9D606
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +494,8 @@ magnet:?xt=urn:btih:B45DB5C4D879B108AEE32CEBB1ED922988C9D606
 magnet:?xt=urn:btih:10D146951815CE79C185B926F97B5DED98483A40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +519,8 @@ magnet:?xt=urn:btih:10D146951815CE79C185B926F97B5DED98483A40
 ```bash
 magnet:?xt=urn:btih:7192D78E472B5F93F44218C5D5CC83A585C3F5F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +547,8 @@ magnet:?xt=urn:btih:7192D78E472B5F93F44218C5D5CC83A585C3F5F2
 magnet:?xt=urn:btih:A59AA947C2CC65217FBB07D4C5CE5FC573ADF623
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +572,8 @@ magnet:?xt=urn:btih:A59AA947C2CC65217FBB07D4C5CE5FC573ADF623
 ```bash
 magnet:?xt=urn:btih:310C4A02106435D437F514DF73CA3B23C4CCFF27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +599,8 @@ magnet:?xt=urn:btih:310C4A02106435D437F514DF73CA3B23C4CCFF27
 magnet:?xt=urn:btih:675F3A64E14408A54263642A0FC29450536408D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +624,8 @@ magnet:?xt=urn:btih:675F3A64E14408A54263642A0FC29450536408D2
 ```bash
 magnet:?xt=urn:btih:2735582BD0CAD87210278AC1CBB1C8B8F262F146
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +652,8 @@ magnet:?xt=urn:btih:2735582BD0CAD87210278AC1CBB1C8B8F262F146
 magnet:?xt=urn:btih:E5A8D53FF6783C3C49B45BFD251DD6D6202F95DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +677,8 @@ magnet:?xt=urn:btih:E5A8D53FF6783C3C49B45BFD251DD6D6202F95DF
 ```bash
 magnet:?xt=urn:btih:F9DDB02B86403597A50A49210DA05E528A911958
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,30 +704,7 @@ magnet:?xt=urn:btih:F9DDB02B86403597A50A49210DA05E528A911958
 magnet:?xt=urn:btih:02388EACC40B7E2BE101B5A94F316BB391CCA4CD
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523523   (617010) от 16.07.2012
-
-Антон Шаганов | Ловля карповых рыб [2010] [FB2]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617010.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге известный специалист Антон Шаганов рассказывает обо всех способах ловли рыб семейства карповые, наиболее многочисленных и широко распространенных в водах России и ближнего зарубежья.
- Наряду со известными удочками и донками описаны применяемые для ловли карповых рыб сетные и другие рыболовные орудия, не относящиеся к спортивным.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3278BB4B7DA17ADC372DD3D17F97A96233897535
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

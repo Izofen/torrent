@@ -19,6 +19,8 @@ Red Dead Redemption - шутер от третьего лица с открыт�
 magnet:?xt=urn:btih:1C29523DF695D7A2148B41EBFE279E6D67738922
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Sports Island Freedom переносит спортивные игры на но
 ```bash
 magnet:?xt=urn:btih:70C3F905DA761EB33A79E4E8A8750183AF1684CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Ice Age 4: Continental Drift - Arctic Games [XBOX360] [KINECT] [RUSSOUND] [Freeb
 magnet:?xt=urn:btih:E13954DDB37FB755EB3C89BC6DD502DC3838F6D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ The Gunstringer – оригинальная игра, управление в �
 ```bash
 magnet:?xt=urn:btih:F44C75E39B3452914671D0F14132E89DFFEB7880
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ I Am Alive [PS3] [PSN] [RUS] [NTSC] (2012)
 magnet:?xt=urn:btih:9E097CD6114039CD612435CF83BD338DCF2F2285
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Hotline Miami — это адреналиновый боевик, полный �
 magnet:?xt=urn:btih:9F7AC327062494DCC140504CF779051DDFD36A76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Hogwarts Legacy - ролевая игра по мотивам знамениты
 ```bash
 magnet:?xt=urn:btih:0089C0AE8F3E454A3A30726E02D6C1EE25C919E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ OCTOPATH TRAVELER (2018) [Switch] [USA] 8.1.0 [NSP] [Unofficial / 1.0.3] [Ru/En]
 magnet:?xt=urn:btih:1ED43DE6490A9100A1E40984EE327EFE06132E92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ LEGO Star Wars 3: The Clone Wars (2011) [PS3] [USA] [Ru/En] [3.55] [Cobra ODE / 
 magnet:?xt=urn:btih:B231DED269534F6E4F0D3661AE16DCFCEB8477CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Resogun – аркадная скроллинговая стрелялка, ил
 ```bash
 magnet:?xt=urn:btih:163416FC45037AA01749B9FB6ECC5E6D78364303
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Dance Central 3 - третья часть в серии музыкальных �
 magnet:?xt=urn:btih:3FA0429E8D7BBB72A34E1CF7234BD24F635F2D33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Injustice: Gods Among Us – файтинг с глубокой сюжетной
 ```bash
 magnet:?xt=urn:btih:AB4AB988019B8BF89488F6C6C81AB500C54E14E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Halo 3 - видеоигра в жанре шутера от первого ли�
 magnet:?xt=urn:btih:5E513BE6A9F500E21905274D00AAF399256ECF0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Double Dragon Neon (2012) [Xbox360] [RegionFree] FreeBoot [XBLA] [En]
 ```bash
 magnet:?xt=urn:btih:98DCF5518ACC85327C4FC137154201ED80A7E5A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Gray Matter - приключенческая игра, в которой рас�
 magnet:?xt=urn:btih:ABF1C9E94BD559ACE14186EE87CDB2EF95D691AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Manhunt (2003) [PS2] [NTSC] [Unofficial] [Ru]
 ```bash
 magnet:?xt=urn:btih:EDC909571C3A37EBF618F5CE8498A04098FA6C2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Cборник Final Fantasy X/X-2 HD Remaster на PS3 собрал самые �
 magnet:?xt=urn:btih:5E3C9AF2E7A3CA06F6534FA82FA43590A07099DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Brothers in Arms: Hell's Highway (2008) [PS3] [USA] 2.42 [Cobra ODE / E3 ODE PRO
 ```bash
 magnet:?xt=urn:btih:287544D76AB059B9A0E77343A25A1850F9B1E527
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ G-Force / Миссия Дарвина (2009) [PS3] [EUR] 2.76 [Cobra ODE / E3 OD
 magnet:?xt=urn:btih:9731F2FBF4825B83A3197A950CA3CA133FDE934A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ LEGO CITY Undercover (2017) [Switch] [EUR] [NSZ] [License / 1.0.2] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8FA0CDC1F3922171B21F73D4CEE3CDB671BD5CBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ Ultimate Spider-Man — лучшее воплощение Человека-па�
 magnet:?xt=urn:btih:64EBEAC0236D2E2C16F35CEB4AA90633C6A42D53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ Spider-Man 2 (2004) [PS2] [NTSC] [Unofficial] [Ru/En]
 ```bash
 magnet:?xt=urn:btih:CAFDBBDF19157DAF813E5BD05168082EE1B1534F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ Crash Time 4: The Syndicate (2010) [PS3] [EUR] 3.73 [Cobra ODE / E3 ODE PRO ISO]
 magnet:?xt=urn:btih:7A2B6239CC008E9D343B3A50894B0F18D9FD717A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ The Long Dark — это продуманная игра, фокусирующа
 ```bash
 magnet:?xt=urn:btih:606181494B7ABDDBBE0317260029823DD99646D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ Red Dead Redemption - шутер от третьего лица с открыт�
 magnet:?xt=urn:btih:85D8441F422A0A4F555BCB8221EC73CADAA6A5E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ EA Sports FC 24 (2023) [PS4] [EUR] 5.05 [HEN] [License / 1.04] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:BEDFD0E91C3C1FB49A7831E229F5013ACE74460B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

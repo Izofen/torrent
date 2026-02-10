@@ -19,6 +19,8 @@ The Danger Zone - постапокалиптический 2.5D шутер с в
 magnet:?xt=urn:btih:6D1342C9D4D2B05FB7B6C69A0A7CCB503A52197F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Die in the Dungeon (2025) [Ru/Multi] (112.0f3) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:B7021BD61C5A304CBBC6DB52D8E1095D7755861C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.6.2/dlc) License GOG
 magnet:?xt=urn:btih:67C841BBF75CD8258F0BBFB2D9A0B458CB4C8B81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ ICARUS (2021) [Ru/Multi] (2.3.0.140074/dlc) Repack FitGirl [Complete the Set Bun
 ```bash
 magnet:?xt=urn:btih:21A2B83DFB156CE93816E071CC2078AFCF167984
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Factorio – игра, в которой вы строите и обслужив
 magnet:?xt=urn:btih:8AB4DDF38E2F366B979117AAD6C4E34423184DE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Pacific Drive — игра на выживание от первого лица,
 ```bash
 magnet:?xt=urn:btih:A7445B9A4DDB2F64D9DF9D4F161EBE2BB34835E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Zombie Graveyard Simulator (2025) [Ru/Multi] (1.2.0) Repack FitGirl
 magnet:?xt=urn:btih:4C24C9770A8FFC94DB10BEE7950D5CE625A8B4ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Loophole - это пошаговая головоломка на сетке, в 
 ```bash
 magnet:?xt=urn:btih:8DBF9E1EF81BEDAE82B7A50711F4AD1ABD8FD41E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Dungeons 4 (2023) [Ru/Multi] (1.9.1/dlc) Repack Let'sРlay [Deluxe Edition]
 magnet:?xt=urn:btih:1B6815E5198D5589E2DA8812B4892DDEE73B4335
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Plague Inc: Evolved (2016) [Ru/Multi] (1.21.0.3/dlc) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:B858423F6ECAE47818DBA2A8A4CF2FBD960A7CFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ DOOMER SIMULATOR погружает игрока в жизнь человека,
 magnet:?xt=urn:btih:A010F4E4557CD4C0202BB87235434B59777507DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Reus 2 выделяется своей уникальностью и увлек�
 ```bash
 magnet:?xt=urn:btih:04E192082B1A982638F9D782020A6A6D1D2D2EEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Tony Hawk's Pro Skater 3 + 4 (2025) [Multi] (Build 18871623/dlc) Scene Rune
 magnet:?xt=urn:btih:C1175485ACC042A713F3EB3E3B141BBAD654E9F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Bridge Constructor: The Walking Dead (2020) [Ru/Multi] (1.0r18) License GOG
 ```bash
 magnet:?xt=urn:btih:38E0B92D11BAB77FD0AA50D5B5A6CC09C96CF8E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Warspace 2 (2025) [Ru/Multi] (1.00/dlc) Repack FitGirl [Supporter Edition]
 magnet:?xt=urn:btih:4A758F3514D56FB50A03B9676116FC7FE4527509
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Empire of the Ants (2024) [Ru/Multi] (1.04.20550/dlc) Repack LetsPlay [Digital D
 ```bash
 magnet:?xt=urn:btih:D8204B54D9224CD1D0F0126C3BB79046B7DAA676
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Broken Arrow (2025) [Ru/Multi] (1.0.6.p/dlc) Scene Rune [Vanguard Edition]
 magnet:?xt=urn:btih:5230CB87509BA191A8AA483415A164D31BA2987F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Dragon Ball Z: Kakarot – долгожданное продолжение се�
 ```bash
 magnet:?xt=urn:btih:24E9B21513BA3E8FCBAD9AA36DDD99F8E1869659
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Fragments of Truth: An MCF Story (2025) [En] (1.0) Unofficial [Collector's Editi
 magnet:?xt=urn:btih:9F1AC4249CAD41F8514AA51C6226B3537B5EEDED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ RoboCop: Rogue City (2023) [Ru/Multi] (1.7.0.0/00.017.002/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:CC1F0C9B43E6275B59D2B31E4512514A3BCC601B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Ratten Reich (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 magnet:?xt=urn:btih:6D0D4B30E27D2250D62957F401326230DFE330AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Unfinished Business - это новое самостоятельное прик�
 ```bash
 magnet:?xt=urn:btih:378A652CF62FF57F5B1FB3C8F478F989DC159DB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Striving for Light (2021) [Ru/Multi] (1.0.0.0c) Repack FitGirl
 magnet:?xt=urn:btih:D1192733AD6D55D870A13D95ADD6EB5A1185B6A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Ready or Not (2023) [Ru/Multi] (88602/dlc) Repack FitGirl [LSPD Bundle - Censore
 ```bash
 magnet:?xt=urn:btih:3096EC520AE6EEE2314874ABFCF808D02A1697BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Ready or Not (2023) [Ru/Multi] (Build 19222255/dlc) Repack Other s
 magnet:?xt=urn:btih:442C479AE4506BFD145485E3E6DDE419C0AF684C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:171B382B4A9C6A9A231AD520F1821F78D38AA8C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

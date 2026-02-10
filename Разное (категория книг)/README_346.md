@@ -1,3 +1,30 @@
+###  Публикация: 1242602   (513845) от 23.08.2018
+
+Семён Кибало | Охотник за идеями. Как найти дело жизни и сделать мир лучше (2018) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга написана по материалам блога «Охотник за идеями» и рассказывает от первого лица про громкий старт и успешное развитие бизнеса.
+Автор отвечает на вопросы: какими качествами надо обладать предпринимателю, как относиться к конкуренции, где найти спонсоров, как эффективно использовать соцсети и кампании по сбору средств для запуска проекта? Много внимания уделяется (   Читать дальше...   )Жанр: Практическая психологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E49B5E0DEDB995E3048ADC7767EAE6143F70B5CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242631   (513861) от 23.08.2018
 
 Игорь Прокопенко | Тайны богов (2018) [FB2]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:C436E0A6B6A4A0961CC247224DE3E60CE18D6915
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +73,8 @@ magnet:?xt=urn:btih:C436E0A6B6A4A0961CC247224DE3E60CE18D6915
 magnet:?xt=urn:btih:CC243D828F1FA31412E7208706A9A3F210516346
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +98,8 @@ magnet:?xt=urn:btih:CC243D828F1FA31412E7208706A9A3F210516346
 ```bash
 magnet:?xt=urn:btih:145B0826F84D9830117AE4238FD95B9B94F94D5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +125,8 @@ magnet:?xt=urn:btih:145B0826F84D9830117AE4238FD95B9B94F94D5B
 magnet:?xt=urn:btih:6D09BD89C7BD43709EE8B91296358EB8C88C38BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +150,8 @@ magnet:?xt=urn:btih:6D09BD89C7BD43709EE8B91296358EB8C88C38BE
 ```bash
 magnet:?xt=urn:btih:09B20B5E5D234DC69B8CBB0DF02E9DF8CA8B412D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +177,8 @@ magnet:?xt=urn:btih:09B20B5E5D234DC69B8CBB0DF02E9DF8CA8B412D
 magnet:?xt=urn:btih:2CA2F1F062DB25CD47CEB2AF035CB9116D556E39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +202,8 @@ magnet:?xt=urn:btih:2CA2F1F062DB25CD47CEB2AF035CB9116D556E39
 ```bash
 magnet:?xt=urn:btih:610AE6A0532E7CE3730C0ACCB4BBAFC013029330
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +229,8 @@ magnet:?xt=urn:btih:610AE6A0532E7CE3730C0ACCB4BBAFC013029330
 magnet:?xt=urn:btih:EF05737872CDB9E9A1DBD64A6197BDB8E36DEE8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +254,8 @@ magnet:?xt=urn:btih:EF05737872CDB9E9A1DBD64A6197BDB8E36DEE8C
 ```bash
 magnet:?xt=urn:btih:EE4051757E382A657C898048AE22715A7902D171
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +281,8 @@ magnet:?xt=urn:btih:EE4051757E382A657C898048AE22715A7902D171
 magnet:?xt=urn:btih:FFE483AAFCE2E115EB37FDF8BD81E016AA1D7F93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +307,8 @@ magnet:?xt=urn:btih:FFE483AAFCE2E115EB37FDF8BD81E016AA1D7F93
 ```bash
 magnet:?xt=urn:btih:02CBC3BE3CA0EDE379646DA7F56A00DDB43BD6C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +336,8 @@ magnet:?xt=urn:btih:02CBC3BE3CA0EDE379646DA7F56A00DDB43BD6C1
 magnet:?xt=urn:btih:3DD084D9A74BCB28E29C3EE6A49149DD3ACA8DF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +361,8 @@ magnet:?xt=urn:btih:3DD084D9A74BCB28E29C3EE6A49149DD3ACA8DF9
 ```bash
 magnet:?xt=urn:btih:4A8CAF4086AF86971EAE66657E5072F868565F2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +388,8 @@ magnet:?xt=urn:btih:4A8CAF4086AF86971EAE66657E5072F868565F2C
 magnet:?xt=urn:btih:6BBF41550F640E98E7410558CCFCE9391929EB7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +413,8 @@ magnet:?xt=urn:btih:6BBF41550F640E98E7410558CCFCE9391929EB7B
 ```bash
 magnet:?xt=urn:btih:94A5275238799F433C87C249A08257D609F05B52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +443,8 @@ magnet:?xt=urn:btih:94A5275238799F433C87C249A08257D609F05B52
 magnet:?xt=urn:btih:2243622CBB6FDE72094C6FB38564209BD9E1D7CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +471,8 @@ magnet:?xt=urn:btih:2243622CBB6FDE72094C6FB38564209BD9E1D7CA
 magnet:?xt=urn:btih:874571F486B091E7A2C0A10D8E94439AD23E2434
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +496,8 @@ magnet:?xt=urn:btih:874571F486B091E7A2C0A10D8E94439AD23E2434
 ```bash
 magnet:?xt=urn:btih:5506C9B81EB4A7637498BA077E4044E9A3506BEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +525,8 @@ magnet:?xt=urn:btih:5506C9B81EB4A7637498BA077E4044E9A3506BEA
 magnet:?xt=urn:btih:629CF15FE61A36028ACC8F648B71B1B2F4E950E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +550,8 @@ magnet:?xt=urn:btih:629CF15FE61A36028ACC8F648B71B1B2F4E950E6
 ```bash
 magnet:?xt=urn:btih:4188170177C688F115A7983980C747EDD783FED3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +579,8 @@ magnet:?xt=urn:btih:4188170177C688F115A7983980C747EDD783FED3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +605,8 @@ magnet:?xt=urn:btih:4188170177C688F115A7983980C747EDD783FED3
 magnet:?xt=urn:btih:01B2F7B236A46C59423D77033B81A97630DBD104
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +630,8 @@ magnet:?xt=urn:btih:01B2F7B236A46C59423D77033B81A97630DBD104
 ```bash
 magnet:?xt=urn:btih:D80ED8CA23CD2186339C33672510794053070C22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +659,8 @@ magnet:?xt=urn:btih:D80ED8CA23CD2186339C33672510794053070C22
 magnet:?xt=urn:btih:D15544D7DA5452DA6D1C04ADB9B4CA2DF28DF8D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,29 +685,7 @@ magnet:?xt=urn:btih:D15544D7DA5452DA6D1C04ADB9B4CA2DF28DF8D2
 magnet:?xt=urn:btih:AD426E15E36CE74F1AA828C82103C69AAA31E429
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315116   (515093) от 18.07.2019
-
-Архимандрит Кирилл (Павлов) | О любви и прощении ближних (2018) [PDF, DJVU, FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любовь к ближнему диктует христианину милосердие и сожаление о грехах брата, осуждение же явно свидетельствует о том, что в сердце самозваного судьи «нет ни любви, ни милосердия христианского ни к согрешающим, ни к добродетельным людям», — говорил архимандрит Кирилл (Павлов) и ставил в пример святых, которые «ясно видели все язвы людские, снисходительнее нас относились (   Читать дальше...   )Жанр: Духовно-просветительская православная литератураФормат: PDF, DJVU, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F506D11A0B623D52421071B32956ACF900C493FA
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

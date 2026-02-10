@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:C32B8BB5428CBD89E08EDBFD9164017EC1992628
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:C32B8BB5428CBD89E08EDBFD9164017EC1992628
 ```bash
 magnet:?xt=urn:btih:FBDF3BA0A19F5BA8E0EC82A2A4C42F7F6D210057
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ Bart&Baker - International (Electro Swing) (2025) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:9BEA10E785B2C2F9429A7EC3C06D2AD093C2DCB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:9BEA10E785B2C2F9429A7EC3C06D2AD093C2DCB0
 ```bash
 magnet:?xt=urn:btih:57419DCA24300C4CDDA46B9AF6790408E712D878
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:57419DCA24300C4CDDA46B9AF6790408E712D878
 magnet:?xt=urn:btih:97E811ACF40FFF467135EAFC8B9704E18AD46731
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:97E811ACF40FFF467135EAFC8B9704E18AD46731
 ```bash
 magnet:?xt=urn:btih:EC5E4480E922C1110E3409082638147610A5D70D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:EC5E4480E922C1110E3409082638147610A5D70D
 magnet:?xt=urn:btih:AB935EA254CD351272BB3DE1B3B62D64AA9A4779
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:AB935EA254CD351272BB3DE1B3B62D64AA9A4779
 ```bash
 magnet:?xt=urn:btih:8D1DAA91751D2BED00D9A65B66FE7104C2A2AE9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:8D1DAA91751D2BED00D9A65B66FE7104C2A2AE9E
 ```bash
 magnet:?xt=urn:btih:C4B2EFE116603E84A5AAC60BFDB55F622D9E7667
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:C4B2EFE116603E84A5AAC60BFDB55F622D9E7667
 magnet:?xt=urn:btih:BB896EFCE9C8F3AC98C9052F02DF7A710EAE9A16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:BB896EFCE9C8F3AC98C9052F02DF7A710EAE9A16
 magnet:?xt=urn:btih:B269E962E353FC84A20FE73FA47AD2D62342E4A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:B269E962E353FC84A20FE73FA47AD2D62342E4A5
 ```bash
 magnet:?xt=urn:btih:4766F5BCDC3C0C1B89F3EAA503A55C76AB01D918
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ Long Tall Deb & Colin John - Light It Up (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 magnet:?xt=urn:btih:D178E127D54917E9CAFEE2537685AE80A2BAB256
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ Jonathan Young - 40K HEAVY METAL (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic M
 magnet:?xt=urn:btih:B17237A29F6CA61FDC91987A8CAD17BE0E661F41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:B17237A29F6CA61FDC91987A8CAD17BE0E661F41
 ```bash
 magnet:?xt=urn:btih:6276B2843FE76DA15F3318BD3A968A80F1DD230B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ magnet:?xt=urn:btih:6276B2843FE76DA15F3318BD3A968A80F1DD230B
 magnet:?xt=urn:btih:5EC25F524FF34284A8BFF8610CACD69FE9F796BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ magnet:?xt=urn:btih:5EC25F524FF34284A8BFF8610CACD69FE9F796BE
 ```bash
 magnet:?xt=urn:btih:4B0F9F39CA710220E82D45DF1D566F2D13C77D93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +484,8 @@ magnet:?xt=urn:btih:4B0F9F39CA710220E82D45DF1D566F2D13C77D93
 magnet:?xt=urn:btih:584A4E8A00847357A487D3D0490B11F397FA6D4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ magnet:?xt=urn:btih:584A4E8A00847357A487D3D0490B11F397FA6D4F
 ```bash
 magnet:?xt=urn:btih:F4EF44C7BD3038C2B1F8430761E54F1118B9FF29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ magnet:?xt=urn:btih:F4EF44C7BD3038C2B1F8430761E54F1118B9FF29
 magnet:?xt=urn:btih:E837D19586F5BA5DD8458608773475B910C7FED8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:E837D19586F5BA5DD8458608773475B910C7FED8
 ```bash
 magnet:?xt=urn:btih:4F721F3E76E8B08918BB85A9DF7E058561942CBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +591,8 @@ magnet:?xt=urn:btih:4F721F3E76E8B08918BB85A9DF7E058561942CBC
 magnet:?xt=urn:btih:8B3989E8418A2027CD5628705F8F1730071A63FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +619,8 @@ magnet:?xt=urn:btih:8B3989E8418A2027CD5628705F8F1730071A63FF
 magnet:?xt=urn:btih:7CDAAD9568B29CA639332062B2E639747AEAD67F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +646,8 @@ magnet:?xt=urn:btih:7CDAAD9568B29CA639332062B2E639747AEAD67F
 ```bash
 magnet:?xt=urn:btih:FE6BC7220E1A5A17B767038C9EE7C328A21E6775
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +676,8 @@ Blues Cousins - Call Me (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
 magnet:?xt=urn:btih:083CF49AD4256464531C9E887BBCCB4A1ED8A672
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ magnet:?xt=urn:btih:083CF49AD4256464531C9E887BBCCB4A1ED8A672
 ```bash
 magnet:?xt=urn:btih:87067073A984B994AB8D21F879B5832E858491A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

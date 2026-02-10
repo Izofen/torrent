@@ -19,6 +19,8 @@ Sarun — это шрифт, гармонично сочетающий в себ
 magnet:?xt=urn:btih:9637FDA7A793BC5D7582FADE285BCB3AE8FA231D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ MultiTimer - это простое и универсальное таймер-п
 ```bash
 magnet:?xt=urn:btih:996B04EE41E722522C990ACB9988D036E4E85918
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:996B04EE41E722522C990ACB9988D036E4E85918
 magnet:?xt=urn:btih:99C7297410F52D606A9716965BC2EA8E3F0798B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:99C7297410F52D606A9716965BC2EA8E3F0798B3
 ```bash
 magnet:?xt=urn:btih:20763A98B56FAA445B24453B8A414107C90218AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:20763A98B56FAA445B24453B8A414107C90218AB
 magnet:?xt=urn:btih:C01893571D8E73892C26503250305ED35560AE4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Lord Ambermaze - это увлекательное приключение на �
 ```bash
 magnet:?xt=urn:btih:63B60D6116FBB6787E0F0838A9E58C8DA0A6D151
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:63B60D6116FBB6787E0F0838A9E58C8DA0A6D151
 magnet:?xt=urn:btih:CA86C70184B139C2A93F32DD61A8F88B24490E7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Happy Color — самая популярная и излюбленная бес
 ```bash
 magnet:?xt=urn:btih:94BF64A125AF0D312DAEAAFD11F9DF2416B9BD2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:94BF64A125AF0D312DAEAAFD11F9DF2416B9BD2A
 magnet:?xt=urn:btih:08ED63E71B697D58F6CEBF94378F20EFCCDF7BDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Saigo ni Hitotsu dake Onegai Shite mo Yoroshii Deshou ka | May I Ask for One Fin
 magnet:?xt=urn:btih:92E54C459A3E99C281791B03908A08184F95ADDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:92E54C459A3E99C281791B03908A08184F95ADDA
 ```bash
 magnet:?xt=urn:btih:10540AB6AF06BED085501114100B08F1D0728F96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Wednesday - Bleeds (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:5FCDAA0126EF760848BBE486A01364DED4DF853F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ Kylie Minogue - Tension Tour Live 2025 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:011F1A6455417E3AD9B847AD915B9982D6444ED2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ Sleazy Sweet - Sleazy Party (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Glam Met
 magnet:?xt=urn:btih:13A4F5983719A357E20D1EB0428205549A97A637
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ Elisabeth Elektra - Hypersigil (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Syn
 ```bash
 magnet:?xt=urn:btih:82981C5124CACCCCBB38EC0E497664D4ACACCE95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:82981C5124CACCCCBB38EC0E497664D4ACACCE95
 magnet:?xt=urn:btih:FD88E2D6CDCB2E81D07BA297F2699EB2AE22415D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ magnet:?xt=urn:btih:FD88E2D6CDCB2E81D07BA297F2699EB2AE22415D
 ```bash
 magnet:?xt=urn:btih:E1E93DB10F8AFD7E2F98B64218E18007CFC9468C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +484,8 @@ Suncoast — современный шрифт с ретро-душой. Вдо�
 magnet:?xt=urn:btih:127D5986FD443441595AE3ADAC8FD6303F1C1A7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ Shabake | Мирские стремления [2025, TV, 1 из 12 эп.] WEBRip
 magnet:?xt=urn:btih:C422F1B324E1DE3FC91BCD1E9798C7BA7AAB6E2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ magnet:?xt=urn:btih:C422F1B324E1DE3FC91BCD1E9798C7BA7AAB6E2A
 ```bash
 magnet:?xt=urn:btih:0576E187FB1B3C8CC58DF474D03F55857D4652C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +564,8 @@ magnet:?xt=urn:btih:0576E187FB1B3C8CC58DF474D03F55857D4652C1
 magnet:?xt=urn:btih:276F3ED6D3767EB6D50624D7DB66DBBD00C6C9C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +592,8 @@ magnet:?xt=urn:btih:276F3ED6D3767EB6D50624D7DB66DBBD00C6C9C9
 magnet:?xt=urn:btih:FACB9D32E1B967508600312E74A3105F6AFDB96B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ magnet:?xt=urn:btih:FACB9D32E1B967508600312E74A3105F6AFDB96B
 magnet:?xt=urn:btih:883A30952BDEE8449CB0AE65F3F7D6A5ADE0ECD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ Heartbeat in Thailand / Сердцебиение в Таиланде (2025) [Ru/
 ```bash
 magnet:?xt=urn:btih:21D1907856B102ADFDA8806E49F8586DC6C2FD07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +671,8 @@ HeadUp Display (HUD) – это возможность использовать 
 magnet:?xt=urn:btih:4837C8ABF92692E72D2439413FEAA1D4D99F77CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +696,8 @@ GPS АнтиРадар v51.0 Mod by Slavatv5 [Ru]
 ```bash
 magnet:?xt=urn:btih:B3A38CA1FC66EB1F5ED50EAD79D867751484E177
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

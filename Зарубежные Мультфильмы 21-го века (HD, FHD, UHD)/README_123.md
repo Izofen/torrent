@@ -1,27 +1,3 @@
-###  Публикация: 1366902   (918360) от 14.03.2020
-
-Камуфляж и шпионаж / Spies in Disguise (2019) BDRip [H.264/1080p-LQ] [hand made 16:9]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Супершпион Лэнс Стерлинг и молодой ученый Уолтер Беккет — полные противоположности. Жизнерадостный Лэнс с удовольствием каждый день спасает города и страны. Хмурый Уолтер хочет отгородиться от всех в мире собственных изобретений и гаджетов. Но когда события принимают неожиданный оборот, этот маловероятный дуэт вынужден объединиться и проявить все свои способности (   Читать дальше...   )Производство: США / 20th Century Fox Animation, Blue Sky Studios, Chernin EntertainmentЖанр: Мультфильм, Фантастика, Боевик, Комедия, Приключения, СемейныйРежиссер: Ник Бруно, Трой КвонПеревод: Дублированный (iTunes)Субтитры: Русские (форс., полные), английские (полные)Продолжительность: 01:41:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C851A500062A41697F03CE999DE881E76017E37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1490362   (918501) от 20.08.2021
 
 Щенячий патруль в кино / PAW Patrol: The Movie (2021) WEB-DL [H.264/1080p] [EN]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:3C851A500062A41697F03CE999DE881E76017E37
 ```bash
 magnet:?xt=urn:btih:1F236635FCCCD49A30001109BE7A6ADE09CD5EB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:1F236635FCCCD49A30001109BE7A6ADE09CD5EB1
 magnet:?xt=urn:btih:0FB0837A57ADEA3562428E7EE6B1C28D6812F239
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:0FB0837A57ADEA3562428E7EE6B1C28D6812F239
 ```bash
 magnet:?xt=urn:btih:CEFE6D596C02BF56D48E2148E1E87D6AC87865D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:CEFE6D596C02BF56D48E2148E1E87D6AC87865D9
 magnet:?xt=urn:btih:7E2280AAE9F6A4794A830F2FD21FCA3226774EBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:7E2280AAE9F6A4794A830F2FD21FCA3226774EBC
 ```bash
 magnet:?xt=urn:btih:FB69437972ABD0F7165821754EF230DB9F899CEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:FB69437972ABD0F7165821754EF230DB9F899CEE
 magnet:?xt=urn:btih:BB013E304A4A47DBADE961BD235D32C641251446
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:BB013E304A4A47DBADE961BD235D32C641251446
 ```bash
 magnet:?xt=urn:btih:6C672EB593B965A44D6D3A7BBA83905C5A8B9F00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:6C672EB593B965A44D6D3A7BBA83905C5A8B9F00
 magnet:?xt=urn:btih:2A2368DA0E9820C48611210E2B9A1563890228D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ magnet:?xt=urn:btih:2A2368DA0E9820C48611210E2B9A1563890228D4
 ```bash
 magnet:?xt=urn:btih:6EC09144642CAF2D8EADC816ED60FD140DC6C6C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:6EC09144642CAF2D8EADC816ED60FD140DC6C6C5
 magnet:?xt=urn:btih:C1295C9B609FC30597EE75C8BC7AE43CA8111E70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ magnet:?xt=urn:btih:C1295C9B609FC30597EE75C8BC7AE43CA8111E70
 ```bash
 magnet:?xt=urn:btih:CC8B6E6C658A79B4923FBE717B25FE97779DBB3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:CC8B6E6C658A79B4923FBE717B25FE97779DBB3A
 magnet:?xt=urn:btih:E2A870A5C76DA23ADF6AE1DDF69F8018F17915BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ magnet:?xt=urn:btih:E2A870A5C76DA23ADF6AE1DDF69F8018F17915BA
 ```bash
 magnet:?xt=urn:btih:8515ED202B72DDF1168D5E019809C2D2B89D7C8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ magnet:?xt=urn:btih:8515ED202B72DDF1168D5E019809C2D2B89D7C8C
 magnet:?xt=urn:btih:6C9860CB853B355A46EDF936E75E3FD52702ABFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ magnet:?xt=urn:btih:6C9860CB853B355A46EDF936E75E3FD52702ABFE
 ```bash
 magnet:?xt=urn:btih:48AECB86ACDE5E708FA60E8A7EAFFE1905F922DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ magnet:?xt=urn:btih:48AECB86ACDE5E708FA60E8A7EAFFE1905F922DC
 magnet:?xt=urn:btih:94493BB0AC9E3CDBDEAB414B8843D115607C8119
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ magnet:?xt=urn:btih:94493BB0AC9E3CDBDEAB414B8843D115607C8119
 ```bash
 magnet:?xt=urn:btih:1C52EAAA4CD5C8BD82CA2EE6B6283644D32138D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ magnet:?xt=urn:btih:1C52EAAA4CD5C8BD82CA2EE6B6283644D32138D9
 magnet:?xt=urn:btih:622D98DE287CEB0B993C835E88DEC0BD3B6FDFC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ magnet:?xt=urn:btih:622D98DE287CEB0B993C835E88DEC0BD3B6FDFC3
 ```bash
 magnet:?xt=urn:btih:2A332D2F70B7FDC4403853611F98D401C8D8A1C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ magnet:?xt=urn:btih:2A332D2F70B7FDC4403853611F98D401C8D8A1C7
 magnet:?xt=urn:btih:18E66B27D5D47967218031C4AAE0C6FA0527EFDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ magnet:?xt=urn:btih:18E66B27D5D47967218031C4AAE0C6FA0527EFDE
 ```bash
 magnet:?xt=urn:btih:F61BAD4317D55AD71FAE61EA1A3F7B58FA5E133A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ magnet:?xt=urn:btih:F61BAD4317D55AD71FAE61EA1A3F7B58FA5E133A
 magnet:?xt=urn:btih:E3AA5DFF3481D5527D38F08B16AEA26346D3F4BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ magnet:?xt=urn:btih:E3AA5DFF3481D5527D38F08B16AEA26346D3F4BE
 ```bash
 magnet:?xt=urn:btih:CDCFC1100DDF5E8BB57481D05515B1FA61AB32A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +617,8 @@ magnet:?xt=urn:btih:CDCFC1100DDF5E8BB57481D05515B1FA61AB32A5
 magnet:?xt=urn:btih:9E45A1932E86C0D1A5E8B95C19F7D39B9476ED6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +642,34 @@ magnet:?xt=urn:btih:9E45A1932E86C0D1A5E8B95C19F7D39B9476ED6F
 ```bash
 magnet:?xt=urn:btih:E1F59620C85DF5536137C73992314DD32C12F150
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 754627   (931033) от 08.02.2014
+
+Облачно, возможны осадки: Месть ГМО / Cloudy with a Chance of Meatballs 2 (2013) BDRip [720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_931033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все жители острова Поплавок покинули родной дом после событий предыдущего мультфильма. Главный герой Флинт Локвуд теперь работает в компании The Live Corp на своего кумира Честера. Но ему придется оставить свой пост когда он узнает, что его печально-известная машина все ещё работает и производит на свет опасных гибридов. Флинту предстоит ещё раз спасти мир и не дать (   Читать дальше...   )Производство: США, Columbia Pictures, Sony Pictures Animation, Sony PicturesЖанр: Фэнтези, Комедия, СемейныйРежиссер: Коуди Камерон, Крис ПирнПерсонажи: Билл Хейдер, Анна Фэрис, Джеймс Каан, Уилл Форте, Энди Сэмберг, Бенджамин Брэтт, Нил Патрик Харрис, Терри Крюс, Кристен Шол, Коуди КамеронПеревод: ДублированныйЯзык субтитров: Русский, английскийПродолжительность: 01:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4756C41484ABDF63167D7D1A10D2181145AE4594
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

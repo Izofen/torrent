@@ -19,6 +19,8 @@ HiBit System Information - управление списком всех прил
 magnet:?xt=urn:btih:AE607CEED8B27B8266BC55DFFE70505405E1FDAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ eMail Address Extractor - приложение помогает извлекат
 magnet:?xt=urn:btih:4212DC34685440DB72D48F7BBAD8769DE848DE12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ SounceSource позволяет настроить прямо из строки 
 magnet:?xt=urn:btih:53FC197CD26FF8B383FDC307966268749E8DA619
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:53FC197CD26FF8B383FDC307966268749E8DA619
 ```bash
 magnet:?xt=urn:btih:E56F1FA69443ED8935E1DB8D1F5DA0A9A5F4B215
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Luminar Neo – это отдельный редактор, который вк�
 ```bash
 magnet:?xt=urn:btih:56697296E886274E79F8407012F1E4CA6DB7CA6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ MEDUZA - Live @ Selected Sessions, Iceland (2020-11-20) [MP3|320 Kbps] <House, P
 magnet:?xt=urn:btih:7EE7B3E04E412D3755FA6EB7D4EDCFCBB2491315
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Epic Pen – настольная программа для Windows, позво�
 ```bash
 magnet:?xt=urn:btih:F3DAA97F4EC271D50F769490F715A7B619DF866C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ AirRadar - приложение для сканирования WiFi сетей 
 magnet:?xt=urn:btih:74D909A887AA91E530168A7ADE21F98308A33044
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ PopChar X 9.0 [Multi]
 magnet:?xt=urn:btih:DEAB4EA995E32A21E11BC6D67950BE412846E68F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ WinNTSetup (Windows Setup Tool) – программа для создания �
 ```bash
 magnet:?xt=urn:btih:EB342BEF0372151F762EDF9645A4ED5B1470F5F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ Money Pro сократит расходы и покажет полную кар�
 magnet:?xt=urn:btih:AAEEA49A56C46C59C89BC6F7F8A81E62916B42A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ MacPilot 12.0.3 [En]
 magnet:?xt=urn:btih:C7AF1DD845889D10C3C5C3FA7F124C41A506E315
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ CaptureGRID - это приложение для работы с цифровы�
 ```bash
 magnet:?xt=urn:btih:A62F876A0EBE35158D4061731E30B4186887252D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ Acrobat DC — это полностью обновленная настольн
 magnet:?xt=urn:btih:3AE66F5126BDB80C72696CAE61C4182CD9F27651
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ Rainmeter - утилита для мониторинга ресурсов ком
 ```bash
 magnet:?xt=urn:btih:1EEF9FDAFABFEDCCDB8374CB13FE12118D9DF8B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ Screens 4 v4.8.2 [Multi/Ru]
 magnet:?xt=urn:btih:60BAD6F9DA4E36010DAFFB7A0EBE51D95B36BD6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ Librarian Pro 6 v6.0.1 [En]
 ```bash
 magnet:?xt=urn:btih:12F3428B95787089AA1AAFEFD7054DDC9D3F35E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ CopyQ контролирует системный буфер обмена и с�
 magnet:?xt=urn:btih:8CAB7A889F3ECA7F32E08336AF0DB950D5907871
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ Data Guardian 6 v.6.0.1 [En]
 ```bash
 magnet:?xt=urn:btih:CD1984BC2D02B4314886471B35AD0B9ADB647C7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ Foxit PDF Reader - профессиональное приложение для 
 magnet:?xt=urn:btih:4903AC4B732CF4CA621C519672375597EECF4D0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ LibreOffice - офисный пакет с открытым исходным к�
 ```bash
 magnet:?xt=urn:btih:EF5106245DF27F53DFA5E05C13A5EDABA34AF04C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ Adobe Audition 2020 13.0.1.35 RePack by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:ABF3CB8D91AA6A00C4EE4E023923D2E087EA2C6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ PC Cleaner - поможет исправить ошибки Windows на ваш�
 ```bash
 magnet:?xt=urn:btih:2722DEA46E198431B4F922BDEAAD97E050FB082E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ HiBit Uninstaller - идеальное решение для удаления п
 magnet:?xt=urn:btih:E4A980C472FFEF462E164DABF44535B22966B4A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ EaseUS Data Recovery Wizard служит для восстановления у�
 magnet:?xt=urn:btih:0F3F723D9640EF38E21E7848FBB544F639347DD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:2F8147D28801E06CF48BF2E932CDA0D48BC47C76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Gregorian - 20/2020 (2019) Limited Edition 2CD [MP3|320 Kbps] <New Age, Enigmati
 magnet:?xt=urn:btih:BEDE988278D6C3C0FE16268C2B7EFE635F92E434
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Nostradamus - A Storm Of Dreams (1998) [FLAC|Lossless|image + .cue] <New Age>
 ```bash
 magnet:?xt=urn:btih:B2D1742C069E5C4AEE3C65C5E303982D35BD7A5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Nostradamus II - For A Thousand Years (2007) [APE|Lossless|image + .cue] <New Ag
 magnet:?xt=urn:btih:EAA055041D5C760849BB2FF433E705E2D1D48C1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Blank & Jones feat. Marcus Loeber - Silent Piano (Songs For Sleeping) 2 (2018) [
 ```bash
 magnet:?xt=urn:btih:21FDA8D4C4B636E73981205F7B79C66AAB0E6837
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Seay - A Winter Blessing The Gift (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 magnet:?xt=urn:btih:F549E00E61E99443015A33898ACF13BBDE6D5BAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:F549E00E61E99443015A33898ACF13BBDE6D5BAC
 ```bash
 magnet:?xt=urn:btih:6A19DA9CB5C1536CCD0AFA260CCCDA3223C6885E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Henry Jackman and Matthew Margeson - Kingsman: The Golden Circle Soundtrack (201
 magnet:?xt=urn:btih:9E68AC170F30E767E728EB4B7D488093821D19B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ Wings Of An Angel - The Golden Cage Of Tradition (2019) [FLAC|Lossless|Web-DL|tr
 ```bash
 magnet:?xt=urn:btih:2E6885D4C123F893FFE9104489A6EA448CD842BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +252,8 @@ VA - All American Country Christmas (2019) [FLAC|Lossless|WEB-DL|tracks] <Countr
 magnet:?xt=urn:btih:BB59AAA563322C622D01045FB0155BEE191C9218
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +280,8 @@ Simonetti, Morante, Pignatelli - Tenebre (1982) The Complete Original Motion Pic
 ```bash
 magnet:?xt=urn:btih:35B62ECBEE7005E5E7F716AC9DEFA5D879294F9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +310,8 @@ Christophe Beck, VA - Frozen 2 / Холодное сердце 2 (Original Motio
 magnet:?xt=urn:btih:CF243289236070B24CFB99A7F2A3DF20FABC8F91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +338,8 @@ Christophe Beck, VA - Frozen 2 / Холодное сердце 2 (Оригина
 ```bash
 magnet:?xt=urn:btih:429B54DB55C4BB228E540228631C7C832DE9AF93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +368,8 @@ Christophe Beck, VA - Frozen 2 / Холодное сердце 2 (Оригина
 magnet:?xt=urn:btih:F51E0044EB5917B86704AB727EF09AF190939279
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +396,8 @@ Christophe Beck, VA - Frozen 2 / Холодное сердце 2 (Original Motio
 ```bash
 magnet:?xt=urn:btih:ABD975F8111585B5803938D728A0172E806451E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +426,8 @@ Kronos Quartet & Trio Da Kali - Ladilikan (2017) [FLAC|Lossless|tracks + .cue] <
 magnet:?xt=urn:btih:475C6494CC704769578CD300E060B3EC9F7AD2C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +454,8 @@ Christophe Beck, VA - Frozen 2 / Холодное сердце 2 (Original Motio
 ```bash
 magnet:?xt=urn:btih:C94A2371348A7EC9921E4B6B100A89896FBF54EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +484,8 @@ magnet:?xt=urn:btih:C94A2371348A7EC9921E4B6B100A89896FBF54EC
 magnet:?xt=urn:btih:AEA446ADE69F864E36E3B266FD80EB1B55250D24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +512,8 @@ Gregorian - Best Of 1990-2010 (2011) [FLAC (Image+.CUE), lossless]<New Age>
 ```bash
 magnet:?xt=urn:btih:4EAC844C1BDF61496FB5426A2B382104CD888BB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +542,8 @@ Kartsy Hatakka & Kimmo Kajasto - Max Payne 2: The Fall Of Max Payne (Original So
 magnet:?xt=urn:btih:09F6B104ABBD96124AA08870AA2E5FD9D63C703B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +570,8 @@ Leonhardt North - The Spirit Of Pandora (2010) [MP3|256 kbps] <New Age, Ambient>
 ```bash
 magnet:?xt=urn:btih:6CCB555B0F19330C789E7BCBD58DBAA78281636A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +600,8 @@ VA - Latin Hits 2018 - 60 Super Exitos Latinos - Club Edition (2017) [MP3|320 Kb
 magnet:?xt=urn:btih:277E56BBE42033FC921C698377A92040F68E68AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +628,8 @@ Serj Tankian - Furious / Легенда о Коловрате (2017) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:20F52E08B8D55D5887D6E79C34A982664C7724DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +658,8 @@ VA – Super Instrumental Vol.2 (2002) Величайшие хиты XX века
 magnet:?xt=urn:btih:20F50348F91080C64A207C9A0608706BE5552769
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +686,8 @@ Ashaneen - Dancing on the Edge of Infinity (2017) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:4AA030B0AE6B5CAAAFC6D6411C228B54C59B35D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -668,6 +716,8 @@ VA - Horizon Zero Dawn: The Frozen Wilds Original Soundtrack (2017) [FLAC|Lossle
 magnet:?xt=urn:btih:9B85BEB9D8F691B84A4BFAA34C75246387F731B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,6 +744,8 @@ Ed Harcourt - Beyond the End (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental,
 ```bash
 magnet:?xt=urn:btih:22E52509F95A40DAECEEB88B5E4ABD1885940630
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

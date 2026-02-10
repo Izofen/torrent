@@ -1,3 +1,30 @@
+###  Публикация: 1074266   (338431) от 19.11.2016
+
+Г.В. Конюшков и др. | Специальные методы сварки плавлением в электронике (2017) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_338431.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии рассмотрены особенности сварных соединений в электронной технике с помощью основных способов сварки плавлением: электрической дугой с ее разновидностями, электронно-лучевой, лазерной и газовой, а также теоретические основы этих методов сварки. Даны краткие рекомендации по выбору параметров режимов.
+Для студентов бакалавриата, обучающихся по направлению (   Читать дальше...   )Жанр: Электроника, сваркаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40DDBD53BA76AC55F181DCE37B386BAD47EFBDD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1074316   (338433) от 19.11.2016
 
 В. И. Ленин | Пролетарская революция и ренегат Каутский (1935) [PDF]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:20E741D57EF2C44F38631ECA83C3CF946F1364CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:20E741D57EF2C44F38631ECA83C3CF946F1364CA
 ```bash
 magnet:?xt=urn:btih:B82B3F90ED35D8EC3500F2058F00FFECEB34DCC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +102,8 @@ magnet:?xt=urn:btih:B82B3F90ED35D8EC3500F2058F00FFECEB34DCC2
 magnet:?xt=urn:btih:3A8D1B03FF5A65E6B7E4ADC087C18B518E959F5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +131,8 @@ magnet:?xt=urn:btih:3A8D1B03FF5A65E6B7E4ADC087C18B518E959F5F
 magnet:?xt=urn:btih:9504BEC4FFBA794AE4D0FE8F1B1272B21268B77E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +159,8 @@ magnet:?xt=urn:btih:9504BEC4FFBA794AE4D0FE8F1B1272B21268B77E
 magnet:?xt=urn:btih:78781E9EAF39CDA4A4F0741CCE4A142723D1B91B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +184,8 @@ magnet:?xt=urn:btih:78781E9EAF39CDA4A4F0741CCE4A142723D1B91B
 ```bash
 magnet:?xt=urn:btih:FE72DF3E5E75F9F8E86A0BF2B86077D0B263D9B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +211,8 @@ magnet:?xt=urn:btih:FE72DF3E5E75F9F8E86A0BF2B86077D0B263D9B8
 magnet:?xt=urn:btih:1DD6B7E4509EE8C9E4183D23B4B0949FB368076E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +236,8 @@ magnet:?xt=urn:btih:1DD6B7E4509EE8C9E4183D23B4B0949FB368076E
 ```bash
 magnet:?xt=urn:btih:B279584977E8FD2D33E4FDC84C6CDDC290B1C7A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +264,8 @@ magnet:?xt=urn:btih:B279584977E8FD2D33E4FDC84C6CDDC290B1C7A2
 magnet:?xt=urn:btih:C617BFE50F32B1DDFC0AE888D9D7A5A402319050
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +289,8 @@ magnet:?xt=urn:btih:C617BFE50F32B1DDFC0AE888D9D7A5A402319050
 ```bash
 magnet:?xt=urn:btih:66695168D031FF541A7A2E0851C2738034B185C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +316,8 @@ magnet:?xt=urn:btih:66695168D031FF541A7A2E0851C2738034B185C3
 magnet:?xt=urn:btih:6ABF083A246C7912E7B73F9EE4C0D3ADBCA47239
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +341,8 @@ magnet:?xt=urn:btih:6ABF083A246C7912E7B73F9EE4C0D3ADBCA47239
 ```bash
 magnet:?xt=urn:btih:3898B0C658AE38957140B82886BE70B9881B881D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +368,8 @@ magnet:?xt=urn:btih:3898B0C658AE38957140B82886BE70B9881B881D
 magnet:?xt=urn:btih:750EA337B22F8BDD6FE4A0B7857ACDDEC3780393
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +393,8 @@ magnet:?xt=urn:btih:750EA337B22F8BDD6FE4A0B7857ACDDEC3780393
 ```bash
 magnet:?xt=urn:btih:0C7C460B273AF776BE88504D0BE93527E2F6C982
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +420,8 @@ magnet:?xt=urn:btih:0C7C460B273AF776BE88504D0BE93527E2F6C982
 magnet:?xt=urn:btih:B121E7E0BF3AD4FB66F613A03DB018D94FDADA14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +446,8 @@ magnet:?xt=urn:btih:B121E7E0BF3AD4FB66F613A03DB018D94FDADA14
 magnet:?xt=urn:btih:7729BF38578FFCC81E27306C8478CA8EAFB4FFE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +471,8 @@ magnet:?xt=urn:btih:7729BF38578FFCC81E27306C8478CA8EAFB4FFE4
 ```bash
 magnet:?xt=urn:btih:E10EC89A37B9A3729C6AFA5B4B9D49392557C0F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +499,8 @@ magnet:?xt=urn:btih:E10EC89A37B9A3729C6AFA5B4B9D49392557C0F2
 magnet:?xt=urn:btih:5378F9250BF5A4EBB7E389C4AABCD16DE74ED058
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +525,8 @@ magnet:?xt=urn:btih:5378F9250BF5A4EBB7E389C4AABCD16DE74ED058
 magnet:?xt=urn:btih:CE0375804465A98D9D6301E09ADE714C7CE1E8DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +550,8 @@ magnet:?xt=urn:btih:CE0375804465A98D9D6301E09ADE714C7CE1E8DC
 ```bash
 magnet:?xt=urn:btih:1079C31D017AA232344C6CA0536BB4767E0FE374
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +579,8 @@ magnet:?xt=urn:btih:1079C31D017AA232344C6CA0536BB4767E0FE374
 magnet:?xt=urn:btih:B4550EBBCF5A6F43861534B4330F91BF5F9E8298
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +607,8 @@ magnet:?xt=urn:btih:B4550EBBCF5A6F43861534B4330F91BF5F9E8298
 magnet:?xt=urn:btih:5DC604FA65502F42BD36000456E764036D172C20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +632,8 @@ magnet:?xt=urn:btih:5DC604FA65502F42BD36000456E764036D172C20
 ```bash
 magnet:?xt=urn:btih:6F374F18FC873FCBCD4601A285A7B7A89831F01A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +659,8 @@ magnet:?xt=urn:btih:6F374F18FC873FCBCD4601A285A7B7A89831F01A
 magnet:?xt=urn:btih:DB5CEE4C2AFDB816F92B7B222DD74F531C189CE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,29 +685,7 @@ magnet:?xt=urn:btih:DB5CEE4C2AFDB816F92B7B222DD74F531C189CE4
 magnet:?xt=urn:btih:A955DE0665D21B3A9590534B3952604BE3321EDA
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954487   (339820) от 08.11.2015
-
-В.Н. Гриднев, Г.Н. Гриднева | Проектирование коммутационных структур электронных средств (2014) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Под конструкцией электронных средств (ЭС) понимается совокупность элементов и деталей с различными физическими свойствами и формами, находящимися в определенной пространственной, механической, тепловой, электромагнитной и энергетической взаимосвязи. Эта взаимосвязь определяется системотехнической, схемотехнической, конструкторской и технологической документацией (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E14BD92278FC9708ACC9F350983CA59996FAEEC
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

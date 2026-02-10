@@ -19,6 +19,8 @@ Dune: Spice Wars (2023) [Ru/Multi] (1.0.0.28038) Repack Other s
 magnet:?xt=urn:btih:27E3142FC2DB85914DCCDB9D2EB986F15059B72C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Chant (2022) [Ru/Multi] (Build 9851451/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:11A3510AE58D2D8A96A07E6D5DCB8E1852136F66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Boomerang X (2021) [Ru/Multi] (1.11) License GOG
 magnet:?xt=urn:btih:5FE007A2DD8FD2B9EF9F822D53B12BAF59537F8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Shore - приключенческий хоррор от первого ли
 ```bash
 magnet:?xt=urn:btih:542727FA9D1B7C8AA27F29F4190829879364EFCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ JETT: The Far Shore (2023) [Multi] (2.1.7.r24099/dlc) Scene Tenoke
 magnet:?xt=urn:btih:E4008866E1DE9BF02579DB56224CD1FB213C09B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Unheard - Voices of Crime (2023) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:802EA345621389C206EE2C9CFF1ACC2CF2AA689C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Skye Tales - это головоломка-платформер для всей 
 magnet:?xt=urn:btih:7976E91AA24E8176C7224FA8B5A884004E965A85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Aragami 2 (2021) [Ru/Multi] (1.0.30195.0) License GOG
 ```bash
 magnet:?xt=urn:btih:4D3C67565DE773356AF2AB2AD391050111E14662
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Cold Waters (2017) [En] (1.15g) License GOG
 magnet:?xt=urn:btih:7A77424647CAD3D95977A6D13E3951F41D9A13F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Miasma Chronicles (2023) [Ru/Multi] (1.1.1729.42704) Repack Other s
 ```bash
 magnet:?xt=urn:btih:6C2C505F48768E54BD67D318AC61706DF09BB00F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ God Of Weapons (2023) [Ru/Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:B86254BB8BC696670D02F96D92245D334DB1D8BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Murder House – сюжетный сурвайвл-хоррор, в которо
 ```bash
 magnet:?xt=urn:btih:72050145D856B6AF481866EAF9E1689F776A1736
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Zniw Adventure - поинт-н-клик приключение, нарисова
 magnet:?xt=urn:btih:9096293214163FB1052A46CF4FDDD4615B7978DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ The Isle Tide Hotel (2023) [Ru/Multi] (1.0) Scene DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:B234351E7BF354B9B9224D5A71252B668F7156C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ ANONYMOUS;CODE (2023) [Multi] (1.0/dlc) Scene Tenoke [Digital Deluxe Edition]
 magnet:?xt=urn:btih:7886A22CD77B2691610BB996E260A752CED52D88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Raiden III x MIKADO MANIAX (2023) [Multi] (1.0/dlc) Scene Tenoke [Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:AEE4573D070D0182CFD8037A78D03B90506D2403
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Tavernacle! (2023) [Ru/Multi] (1.0.1) License GOG
 magnet:?xt=urn:btih:5145399FDD56A1BDF15FBD9DCDFECF751A7EDC3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Prison City - это динамичный шутер с боковой прок�
 ```bash
 magnet:?xt=urn:btih:8FB8ABACB6F6B40103B2BD6C8E5836965106FB06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Seven Nights Ghost - интригующая и захватывающая игр
 magnet:?xt=urn:btih:3FF165B4CFF3DFE632387FC76F4F73E65736C9F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Daimon Blades – это мрачный и динамичный first-person sla
 ```bash
 magnet:?xt=urn:btih:59205D257C2F6C5EDF2641AB769FD7D0B486E6F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Bramble: The Mountain King отправляет вас в невероятное
 magnet:?xt=urn:btih:68F599A65D1CFB09B714AC1799334EFD786D65E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ No Son Of Mine - это хоррор на выживание с напряжен
 ```bash
 magnet:?xt=urn:btih:2BF427EFB4CDBAA54F6465BB1945DF29B65C1668
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Girl Genius: Adventures In Castle Heterodyne (2023) [Multi] (1.0.3a) Scene Skidr
 magnet:?xt=urn:btih:677FA7B913C35F56A196DE9208E46B96B01582C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Molly Medusa: Queen of Spit (2023) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:738A1D34026AAC6314AC0E10CA9A5E31911C7111
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Cемья девушки по имени Шэннон переживает тя�
 magnet:?xt=urn:btih:CF7013469C309EE3C205B7C3D6D6C56C766BC910
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Lempo (2023) [Multi] (0.111) License GOG
 ```bash
 magnet:?xt=urn:btih:76E849AF471E49A320B967622821E190ADC29B15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

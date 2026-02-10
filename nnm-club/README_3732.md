@@ -21,6 +21,8 @@ Discovery: Войны нашего столетия / The Century of Warfare (19
 magnet:?xt=urn:btih:8F1A629A46BD84DD666A36EBD8DD5903E93293E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Risen 3: Titan Lords (2015) [Ru] (3.0.30.0/dlc) Repack xatab [Enhanced Edition]
 ```bash
 magnet:?xt=urn:btih:6FA6336281524153D41075E79351C8D51908BC58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:6FA6336281524153D41075E79351C8D51908BC58
 magnet:?xt=urn:btih:E659833309A3E5E979A5D6B5299029BA498F04C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Kerish PC Doctor — комплексное решение для автомат
 ```bash
 magnet:?xt=urn:btih:DF0361AF43FDCE71E798E704FD8B53B9ED781533
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:DF0361AF43FDCE71E798E704FD8B53B9ED781533
 magnet:?xt=urn:btih:48AC517DE5E0E980458461A0BDAFA0E7F6A714F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:48AC517DE5E0E980458461A0BDAFA0E7F6A714F2
 ```bash
 magnet:?xt=urn:btih:615E065FE7BC5D85E3D0DDB7449723B62B24C70B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:615E065FE7BC5D85E3D0DDB7449723B62B24C70B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:615E065FE7BC5D85E3D0DDB7449723B62B24C70B
 ```bash
 magnet:?xt=urn:btih:AAD36E69691F88389B07A6FD35C94E835C49AA03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:AAD36E69691F88389B07A6FD35C94E835C49AA03
 magnet:?xt=urn:btih:D6DFC4C127324EEC6A63A90EFC39C5EAB44885F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:D6DFC4C127324EEC6A63A90EFC39C5EAB44885F6
 ```bash
 magnet:?xt=urn:btih:6CE086F671970D37D8ECCD22983B7009916989EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Adobe InDesign — профессиональный продукт для про
 magnet:?xt=urn:btih:E5B3FA16B46D3B1BAE55CB35E051093DA7A606F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:E5B3FA16B46D3B1BAE55CB35E051093DA7A606F6
 ```bash
 magnet:?xt=urn:btih:61AD8777CA59D97F701E868BDAA4876030CFA935
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Serious Sam: Siberian Mayhem – это возможность погрузит�
 magnet:?xt=urn:btih:83FFBEB1B3240C177373AF1F9FD24726A36C8A69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ SnippetsLab — это простой в использовании менедж
 magnet:?xt=urn:btih:A274111E4DAECF1DF4CDE508D2B35404132B5EDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Cristallight iBarcoder - профессиональный генератор ш�
 ```bash
 magnet:?xt=urn:btih:62B02C14F6764F2C47409F399D84E0F7E2FE9A54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ Bonestorm - Under The Sight Of Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Old Sc
 magnet:?xt=urn:btih:78230F4A2516BE091DB5E7906AE89C676D10548F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Barry Harris Trio - Plays Tadd Dameron & Thelonious Monk (1975 - 1984) 2008, Jaz
 ```bash
 magnet:?xt=urn:btih:4BBF5F83545A6565E07CD4DB5CB58CDC857F3491
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ Joshua Redman, Ron Miles, Scott Colley, Brian Blade - Still Dreaming (2018) None
 magnet:?xt=urn:btih:FE66D3DB9D37896B6AF4879EB99CDA9478001523
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ Sujin - Save Our Souls (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal
 ```bash
 magnet:?xt=urn:btih:0CB561290A37875ADFF5281A44A7B5E73141D274
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +530,8 @@ Chimeras - Silent Cries in the Stifling Haze (2024) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:FA46FD5648CD99FBAE937422A61B3C1D9A27BB02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ Dick Haymes - The Name's Haymes! (1958) 2015, Sepia Records [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:CD41280D328427A3C7AF84508A0C45C3DC0C7CEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ Sundrifter - An Earlier Time (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:0BCA35705CCBB1F0928E2C1B3F7D70750DDBADBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ Unheilig - Das 2. Gebot (2003) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Meta
 ```bash
 magnet:?xt=urn:btih:A0259EA072B97EE5E6B0AE74F96CFFDF13AD52C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +646,8 @@ Unheilig - Moderne Zeiten (2006)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Gothic Me
 magnet:?xt=urn:btih:0AE1702BD282D85C1C19285E9DC846C16F386EBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ Deaf & Dumb - Evildarkrooted... Total Dumb (2013) Compilation [FLAC|Lossless|ima
 magnet:?xt=urn:btih:A0780069D91B115019B2CAC4FC18BE77CD8E2544
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ Donald Byrd - At The Half Note Cafe, Vol. 2 (1960) 1987, Blue Note [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:E29D0B127A93C9434970DA1E3CF47AB7A3D5BFD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

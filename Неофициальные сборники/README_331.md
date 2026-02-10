@@ -1,3 +1,32 @@
+###  Публикация: 1304916   (559944) от 28.05.2019
+
+VA - Spring Sounds' Electro House (2019) [MP3|320 Kbps] <Club, Dance, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559944.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bolier & Trobi - In The Water
+002. Biomin H - A New Day (Original Mix)
+003. Don Paolo - Make Your Body Move
+004. Jason Rivas - Supergroove(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 09:19:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6B7226F53FCD0DF4C9110A5912C5A71A60A91D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045265   (559954) от 23.08.2016
 
 VA - Sound Clouds Operational (2016) [MP3|255-320 Kbps] <Funky, Club, Tech House, Soulful, Techno>
@@ -21,6 +50,8 @@ VA - Sound Clouds Operational (2016) [MP3|255-320 Kbps] <Funky, Club, Tech House
 ```bash
 magnet:?xt=urn:btih:D627FF62F15B44767B17F4E7A86C64A8F8E51F24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Sound Trance Stardust (2016) [MP3|320 Kbps] <Trance, Melodic, Energy, Progr
 magnet:?xt=urn:btih:DCD8475AA6DEF29F071BF5174B33A0624377A7A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Beatport Trance Pack (22.08.) (2016) [MP3|320 Kbps] <Trance, Melodic, Energ
 ```bash
 magnet:?xt=urn:btih:961E48B7FF8332D96411BFD4DCD57CDB1D628E92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Beatport Trance Pack (19.08.) (2016) [MP3|320 Kbps] <Trance, Melodic, Energ
 magnet:?xt=urn:btih:BD3E387F393380F3D5D4C06542DFA67D9023B891
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +167,8 @@ VA - Electronic Synthspace In Genre Italo Disco (2017) [MP3|192-320 Kbps] <Synth
 magnet:?xt=urn:btih:7C5C913785298B52155DE385FE00D9307DC07D1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +195,8 @@ VA - German Top 50 Party Schlager Charts 27.05.2019 (2019) [MP3|320 Kbps] <Pop, 
 ```bash
 magnet:?xt=urn:btih:47B10BC0AE368F98B48C3B6F50728FC69ED2C0BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +231,8 @@ Paul Mauriat - Grand Orchestra (Gold Collection) (2011) [MP3|320 кб/с]<Instru
 magnet:?xt=urn:btih:4B46662B36793DB8933345BF9A240DFEAD003987
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +259,8 @@ VA - Folk Country Music (2018) [MP3|320 Kbps] <Country, Folk Blues>
 ```bash
 magnet:?xt=urn:btih:F986AAE0C81F59AA89EF0E1FEFD2944A61A553E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +289,8 @@ ABBA - 25 Best Songs (2015) [MP3|~245 кб/с]<Disco>
 magnet:?xt=urn:btih:84819C1CB332AF2C0DFAB7AEC93A5C0768B89CAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +317,8 @@ VA - Загорелая Попса: 100 Новинок Лета (2015) [MP3|256-
 ```bash
 magnet:?xt=urn:btih:554B084AE6DE45E8DDB9CFF16FDAF0B0A19FE10C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +353,8 @@ VA - Trance In Motion Vol.122 (Mixed By E.S.) (2012) [MP3|320 кб/с]<Trance, V
 magnet:?xt=urn:btih:F185AA5660D7B29C9CEB38E9A6F1046F7014A4E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +382,8 @@ VA - Car Audio. Только позитивные впечатления. (Sound
 magnet:?xt=urn:btih:9914A44272BE40889590B7F452AE25A0E766E471
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +410,8 @@ VA - Валерию Меладзе от Velvet Music: Юбилей 50 лет (20
 ```bash
 magnet:?xt=urn:btih:0C1725AE4E182DD478757E64392D4443B49DF120
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +446,8 @@ VA - Музыка для тачки 50/50 (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:5B1EB3A3FBAEF301D3FC9C48D52113F774296656
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +474,8 @@ VA - Extra Trance (episode 1) (2015) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:FDB1D1260B620D5B9E7B5F53A6B8008157B4459B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +504,8 @@ VA - Hot Music - Mix For Disco (2016) [MP3|320 Kbps] <Dance, Club, Trance, House
 magnet:?xt=urn:btih:12906D908E6C30C326A9A8600BC2F66ECF6F4C6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +533,8 @@ VA - Душевная Волна Радио Шансон (2015) [MP3|256 кб/с
 magnet:?xt=urn:btih:6357DB1476782167C6D682A4ED7F1D89AD66413E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +561,8 @@ VA - Хитовый бум (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:D2950D27CDB66CA49B1A331200534C0B65C4307F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +597,8 @@ VA - Союз Хитовый 3 (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:0D6C49A37DF062B2069E1A705DECF5DB4FB04F53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +632,8 @@ VA - Танцевальный Экстаз. Зарубежный Выпуск (2
 magnet:?xt=urn:btih:7CC5AEB2DB8F73DA47FAE1C7C29E0CBE2CA6A6E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +660,8 @@ VA - Top 100 Club Tracks Vol.1 (2019) [MP3|320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:B3F03D3D93E8C0383820567273BFD40453454BF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +690,8 @@ VA - Kings of Classic Rock (2016) [MP3|320 Kbps] <Rock, ArtRock, HardRock>
 magnet:?xt=urn:btih:85E7402D7B68F6301065C1D258328736288CBE62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +718,8 @@ VA - Over Records Electro House (2019) [MP3|320 Kbps] <Club, Dance, Electro Hous
 ```bash
 magnet:?xt=urn:btih:DD049CF52BF7657487E3AE605208546ED4A0488F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -673,6 +748,8 @@ VA - Авто Хит Зарубежный (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:C9F8DE2EA13AE0C562B6C13E4329BAEC19A4741C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -700,32 +777,7 @@ VA - Need for Speed Vol. 7 (2017) [MP3|320 Kbps] <Dance, Hands Up>
 magnet:?xt=urn:btih:7144F19635C057E4897BF881EB5A984FF56197F0
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044971   (561398) от 22.08.2016
-
-VA - Disco Дача. Лучшее (2016) [MP3|128-320 Kbps] <Pop, Disco, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bill Halley - We're Gonna Rock Around The Clock
-02. Chilly - Doll Queen
-03. Christie - Yellow river
-04. Demis Roussos - Souvenirs(   Читать дальше...   )Жанр: Pop, Disco, DanceПродолжительность: 07:04:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BCF2D58807FD224A08151303C9A614BF5200440
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

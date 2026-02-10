@@ -19,6 +19,8 @@ Fable Anniversary - это ремейк одной из самых продав�
 magnet:?xt=urn:btih:FA1D1F0B9A6E946EE39B25F9A361763F97791DFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Twilight Wars (2025) [Ru/Multi] (1.0.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:593CCB3D36FBE01A065CB052A4F4E483D47ADDE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ ARMORED CORE VI FIRES OF RUBICON (2023) [Ru/Multi] (1.09.1/dlc) Scene Tenoke [De
 magnet:?xt=urn:btih:EFB436741F26224B6CB5CCEA177F18B0E0D2F916
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.0/dlc) Repack FitGirl [Su
 ```bash
 magnet:?xt=urn:btih:D2A36B3613AE6AEF7E782887577B31726C60C6E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Blades of Fire (2025) [Ru/Multi] (1.0.0.1) Repack FitGirl
 magnet:?xt=urn:btih:00E3A85B6B4C832A708663491790DAAFD13396D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Gunsmith Simulator, как понятно из названия, являетс�
 ```bash
 magnet:?xt=urn:btih:32F273DB6F779F0F6D67BC11EB6E4BEA40CFDAF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Duck Detective: The Ghost of Glamping знакомит с Юджином Мак�
 magnet:?xt=urn:btih:3778A8967279DBC12FEC9494DBBCA3B8D03F4EC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Bloodshed - это захватывающий сплав элементов уп
 ```bash
 magnet:?xt=urn:btih:292E5EBD54AD8EC5FD3A5ED452C50549F5FD18FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Warhammer 40,000: Gladius (2018) [Ru/Multi] (1.16.0/dlc) Repack FitGirl [Complet
 magnet:?xt=urn:btih:7909A7785A1B0D619E047335457D25E7A2BDA0CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ SpaceEngine - научно достоверный и фотореалистич�
 ```bash
 magnet:?xt=urn:btih:08161DA522BFD72B6423407AA92D018952951188
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Armored Core VI Fires of Rubicon (2023) [Ru/Multi] (1.09.1/dlc) Repack Let'sРla
 magnet:?xt=urn:btih:228D27780FCE275627BD71133BA0AE1DF0667768
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Blades of Fire (2025) [Ru/Multi] (1.0.0.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:7949798321D03AED24C5BFFD7F2F83CBC2CF1082
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Another Crab's Treasure — это приключение в стиле Dark Sou
 magnet:?xt=urn:btih:D31ADE0408BA97FFC2B306BFE766DFA987E74374
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Gunsmith Simulator, как понятно из названия, являетс�
 ```bash
 magnet:?xt=urn:btih:286C5EB1140BFCA543F21159BCC4F92BD513D114
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Brass Brigade (2019) [En] (1.0) Scene SKIDROW
 magnet:?xt=urn:btih:4081E1B1288BBE3933622426CD9308E988AF42E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Hunter’s Journey: Tears of the Lake / Путь охотника: Слезы о
 ```bash
 magnet:?xt=urn:btih:91E21FF8F1BC166868BB3FEBF9F5A5AF3FEA6D93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Sea of Stars - динамичное ролевое приключение, ра�
 magnet:?xt=urn:btih:78FD4EB75E1C2DA72804C89B530017FF41410D82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ The Siege and the Sandfox - это стелс-метроидвания в еди
 ```bash
 magnet:?xt=urn:btih:7B1A7CCD35BD9536BE27CEDA515EB141AB0754E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Survive the Fall (2025) [Ru/Multi] (1.0.1.2364/dlc) Repack seleZen
 magnet:?xt=urn:btih:F1D8021FC7ED04EB6FC7D794FF314ECFC96F603C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Blades of Fire (2025) [Ru/Multi] (1.0.0.1) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:89D3787E35A3A0EC3C5AB3A348484C40FB40F77D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Wizordum - это ретро-шутер от первого лица, в кот�
 magnet:?xt=urn:btih:84AC03B91018CA71C274EE277642AA17C73EB1A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Blades of Fire (2025) [Ru/Multi] (1.0.0.1) Scene Rune
 ```bash
 magnet:?xt=urn:btih:F9F18556CCE491C4B7344CBF28C2ED67B5C129E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Microtopia (2025) [Ru/Multi] (1.0.9d) License GOG
 magnet:?xt=urn:btih:073FF63310B4021102E93F9906A51582BA8FB403
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ DreadOut Remastered Collection (2025) [Ru/Multi] (2.2.18f/1.0.8) Repack Let'sРl
 ```bash
 magnet:?xt=urn:btih:2389EA39BBEFA8B72521771FF0159ABD8BDA0C67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ FANTASIAN Neo Dimension (2024) [Multi] (29100132/dlc) Scene Rune
 magnet:?xt=urn:btih:A330B166416C2E304C8AC5BF6162093C38445F4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Tactical Warfare (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:056DDA4907AC5BDEA89CCF65C85E882A3CA73D07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

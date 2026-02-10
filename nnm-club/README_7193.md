@@ -22,6 +22,8 @@ VA - Punk Rock: Just The Hits! (2020) [MP3|320 Kbps] <Punk, Punk Rock>
 magnet:?xt=urn:btih:1B3F62093B9AA1F1A49A02848DEFBBC68CCA1CCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:1B3F62093B9AA1F1A49A02848DEFBBC68CCA1CCD
 magnet:?xt=urn:btih:70CECB5F518CB5C2ADCFB84FBE7D900FC0B96484
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ Project CARS 2 – это вторая часть успешного гоноч�
 ```bash
 magnet:?xt=urn:btih:145713576E94EF4032C553A60E6C9653F821E981
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:145713576E94EF4032C553A60E6C9653F821E981
 magnet:?xt=urn:btih:A0C10FB6EA00689F558EEC95D5ED4D557EB61FAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:A0C10FB6EA00689F558EEC95D5ED4D557EB61FAB
 ```bash
 magnet:?xt=urn:btih:E2535DC41912E99BA610B707ADD0E66CF388928B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:E2535DC41912E99BA610B707ADD0E66CF388928B
 magnet:?xt=urn:btih:0FE00A4C529AC90009B5A234993476B8DBFF2F71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Thomas J. Carey, Donald R. Schmitt | UFO Secrets Inside Wright-Patterson: Eyewit
 magnet:?xt=urn:btih:50D23EE11ACEB0765752823D39B0457DFEECC626
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Dynasty Warriors 7: Xtreme Legends (2018) [En/Ja/Ch] (1.0) License CODEX [Defini
 ```bash
 magnet:?xt=urn:btih:4725E8F6BAE65F169D0C332309527C39AE210DBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ VA - Best of Beatport 2015 Staff Picks Tracks (2015) [MP3|320 кб/с] <Minimal,
 magnet:?xt=urn:btih:A6FD71AE2C4C8116759D8618B814B9838B2AC611
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:A6FD71AE2C4C8116759D8618B814B9838B2AC611
 ```bash
 magnet:?xt=urn:btih:E8E025FC8006C032A010A90C01E3AA21BB8FEBBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:E8E025FC8006C032A010A90C01E3AA21BB8FEBBA
 magnet:?xt=urn:btih:45FD375A100920F3AD6A30D2E593BD3A911CE31F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:45FD375A100920F3AD6A30D2E593BD3A911CE31F
 ```bash
 magnet:?xt=urn:btih:860718E6561C2652199354A7A7ECF6931D2D2511
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ Young Fathers - White Men Are Black Men Too (2015) [FLAC|Lossless|tracks + .cue]
 magnet:?xt=urn:btih:7A6DD684022F1588E860075402318483B62B8B94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:7A6DD684022F1588E860075402318483B62B8B94
 ```bash
 magnet:?xt=urn:btih:F8EF3C03F5DC82E7FDC9079D21725D2CE2781BA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:F8EF3C03F5DC82E7FDC9079D21725D2CE2781BA9
 magnet:?xt=urn:btih:7043FF1BFBD264D9D2AEC0083E57BEC616C0321C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:7043FF1BFBD264D9D2AEC0083E57BEC616C0321C
 ```bash
 magnet:?xt=urn:btih:67996331935DF6BD8B60B7E1D4FA1287A50680FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:67996331935DF6BD8B60B7E1D4FA1287A50680FE
 magnet:?xt=urn:btih:9A782543666380563642445A3368020E09E9AD68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:9A782543666380563642445A3368020E09E9AD68
 ```bash
 magnet:?xt=urn:btih:95CF05D58E29064EF85407FB34067F6B11C4D7BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:95CF05D58E29064EF85407FB34067F6B11C4D7BD
 magnet:?xt=urn:btih:52C3307AD0764D3F2EF114DEEB97B7BEE6F1FF7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:52C3307AD0764D3F2EF114DEEB97B7BEE6F1FF7A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ WizTree - небольшая и полезная утилита для опре�
 magnet:?xt=urn:btih:9EB986258D553D81AC0FEF9286132EC7265A434C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:9EB986258D553D81AC0FEF9286132EC7265A434C
 magnet:?xt=urn:btih:6222856445EAD18DC14E4FCD9FC5D55DA9DCE64E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:6222856445EAD18DC14E4FCD9FC5D55DA9DCE64E
 ```bash
 magnet:?xt=urn:btih:FC834B660C2E2AB34C3B3385C0E039AF9C2173AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ magnet:?xt=urn:btih:FC834B660C2E2AB34C3B3385C0E039AF9C2173AD
 magnet:?xt=urn:btih:4ACE53D893B6237D7244CB4000C574B96A2B677E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ Christmas Wonderland 10 (2019) [En] (1.0) Unofficial [Collector's Edition]
 magnet:?xt=urn:btih:DB1E9CD2CB12E2A1072A9EC3D767D9151EE85855
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Wise Disk Cleaner 10.9.5.811 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6A01B7561B87B0BCF77DF370E1B3D3EA2B93E225
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

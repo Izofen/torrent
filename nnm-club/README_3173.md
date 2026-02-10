@@ -22,6 +22,8 @@ Creedence Clearwater Revival - Bad Moon Rising: Shadows on the Bayou (2025) [FLA
 magnet:?xt=urn:btih:7B0F26A6657C424D715E2138A113D557EDA4EB0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:7B0F26A6657C424D715E2138A113D557EDA4EB0A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ Dead Island + 2 DLC [Ru/En]  (Lossless RePack/1.3) 2011 l R.G. Catalyst
 magnet:?xt=urn:btih:2F3FE7EA017B2E4BA94C43B74C3AB53EC3A60E49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Star Wars: Empire at War. Гражданская война охватила Г�
 ```bash
 magnet:?xt=urn:btih:D30DEDD6D133CCD803FAC7C5401AEC73D00859E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -129,6 +137,8 @@ VA - Лучшие Зарубежные Треки (2012) [MP3|224 кб/с]<Dance
 magnet:?xt=urn:btih:BB8DC3D976AECB728FE88E9954DB9A01B1F6E5A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - The Flavours Vol.1 (2011) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Ju
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -179,6 +191,8 @@ VA - The Flavours Vol.1 (2011) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Ju
 ```bash
 magnet:?xt=urn:btih:5FEC13FFFC5FD729B8723D7D43ADB0496AAF7043
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -205,6 +219,8 @@ magnet:?xt=urn:btih:5FEC13FFFC5FD729B8723D7D43ADB0496AAF7043
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ magnet:?xt=urn:btih:5FEC13FFFC5FD729B8723D7D43ADB0496AAF7043
 ```bash
 magnet:?xt=urn:btih:8A3F3AF4BD24EFEAB0C997103C41F71BC398E961
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ Dropbox позволяет пользователю размещать файл�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -282,6 +302,8 @@ Dropbox позволяет пользователю размещать файл�
 magnet:?xt=urn:btih:AE55B562295395966A1E6AB5E17A536A9D58ED21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +327,8 @@ magnet:?xt=urn:btih:AE55B562295395966A1E6AB5E17A536A9D58ED21
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +363,8 @@ At Vance - Facing Your Enemy (2012) [MP3|320 кб/с]<Neoclassic Power Metal>
 magnet:?xt=urn:btih:D0551CB7A840403895DA3681DB06EB1A51FA5693
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +389,8 @@ magnet:?xt=urn:btih:D0551CB7A840403895DA3681DB06EB1A51FA5693
 magnet:?xt=urn:btih:4EF5BA9F28EED8C8FAFC888DE93198CACBD03A20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +414,8 @@ magnet:?xt=urn:btih:4EF5BA9F28EED8C8FAFC888DE93198CACBD03A20
 ```bash
 magnet:?xt=urn:btih:C57EEB7C5E3B9C1E60C7E12DD2917857D1EB2E20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +450,8 @@ The Soil Bleeds Black - 8 albums (1996-2009) [mp3|192-320 kbps] <Medieval, Neofo
 magnet:?xt=urn:btih:A43E5B2EA1B225C506B9C33E8C89CE7AB6D665ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +485,8 @@ Various Artists - Codreanu - Eine Erinnerung An Den Kampf (2001) [mp3|320 kbps] 
 magnet:?xt=urn:btih:AA4029EB45340C5D8738F7C3503AB4D688C1AC74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +510,8 @@ magnet:?xt=urn:btih:AA4029EB45340C5D8738F7C3503AB4D688C1AC74
 ```bash
 magnet:?xt=urn:btih:EED138714CDB68036A427E9FC42F04E7B1524883
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +546,8 @@ VA - Единственной и любимой (2007) [MP3|320 kbps]<Военн
 magnet:?xt=urn:btih:F4CE95657223FD65EF70F216609D2937E4546D81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ magnet:?xt=urn:btih:F4CE95657223FD65EF70F216609D2937E4546D81
 ```bash
 magnet:?xt=urn:btih:57C92849A4BAC343A7395CC5B8A6F7FB193252C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +601,8 @@ magnet:?xt=urn:btih:57C92849A4BAC343A7395CC5B8A6F7FB193252C6
 magnet:?xt=urn:btih:DBBE19289B7879DF1B21EE40C74234CDB914E7CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +629,8 @@ magnet:?xt=urn:btih:DBBE19289B7879DF1B21EE40C74234CDB914E7CC
 magnet:?xt=urn:btih:804FCBAC6CC957239D433BFF1272946A76DA0D8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +654,8 @@ magnet:?xt=urn:btih:804FCBAC6CC957239D433BFF1272946A76DA0D8C
 ```bash
 magnet:?xt=urn:btih:DE845D4A2E1B6D9DF0721ACDA9FAA4F5378BC91B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +688,8 @@ Moonspell - Alpha Noir / Omega White (2012) Limited Edition [APE|Lossless]<Dark 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +715,8 @@ Laser Squad [En] (RePack) 1992 | Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -690,6 +740,8 @@ Laser Squad [En] (RePack) 1992 | Pilotus
 ```bash
 magnet:?xt=urn:btih:7DBFFC4D7D1CC1BEE35A7C4C291B51DD3C28EECB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

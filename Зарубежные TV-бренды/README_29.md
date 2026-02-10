@@ -19,6 +19,8 @@ NG: Чудища морей. Доисторическое Приключение
 magnet:?xt=urn:btih:3A7B336A42AEEED44ABA0782761EE989031E3D58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ PBS Nature: Попугаи в стране Oз / Parrots in the Land of Oz (2008
 magnet:?xt=urn:btih:6B3D9511CC54058820BA323761F26B9B419E5602
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ NG. Место жительства - Марс (Заселение Марса) /
 ```bash
 magnet:?xt=urn:btih:77922CFE2E93613447447AFC11EFC8E2073DE0DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ BBC. Horizon: Чернобыль. Внутри саркофага / Inside Chern
 magnet:?xt=urn:btih:5FEF3960C48FDEE03E843DFD30FF894AA1239816
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Discovery: Битва за Чернобыль / Battle of Chernobyl (2006) TVRip
 ```bash
 magnet:?xt=urn:btih:35EE553AC1F3FC26A146D47E7BE79C8B07293901
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ NG: Марсоход Curiosity / Curiosity. Life of a Mars Rover (2018) DVB
 magnet:?xt=urn:btih:7A52453582E422B25ED738A44EC47546C9587DB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ NG: Невероятное путешествие Хаббла / Hubble's Amazin
 ```bash
 magnet:?xt=urn:btih:066DC89980CEE7C09E44FB9459751D27CD53D6BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:066DC89980CEE7C09E44FB9459751D27CD53D6BD
 magnet:?xt=urn:btih:AD16648F730195837762525131A5C4B059C837DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ BBC Horizon. Сделало ли приготовление пищи нас лю
 ```bash
 magnet:?xt=urn:btih:34FC0E2D524264C62F86074D4CC41A70BBA75CAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ National Geographic. Американская мафия изнутри / Inside
 magnet:?xt=urn:btih:288547A26E499DC6EECDA30AAA876C9390D0CDB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ NG. Американская мафия изнутри / Inside the American Mob
 ```bash
 magnet:?xt=urn:btih:3ACD1F0F93203D0B8530E9647FA5A94CCD85C798
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ BBC Horizon. Следи за собой / Monitor Me (2013) HDTVRip [H.264/720p-
 magnet:?xt=urn:btih:F3961FBB7451A6CCDA9E06B69DB72BD8C62CDCA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ NGW: Династия дельфинов / Dolphin Dynasty (2016) HDTV [H.264/10
 magnet:?xt=urn:btih:444FD18AFD65B0D34E664B029E15A3192E98F8D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ BBC. Сокровища Древнего Рима / The Treasures of Ancient Rom
 ```bash
 magnet:?xt=urn:btih:5A910DE3ED69EAA2094D20BE144C9095736C7659
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:5A910DE3ED69EAA2094D20BE144C9095736C7659
 magnet:?xt=urn:btih:7A2372852A2E81D8967CA5D89A22EF309A37CA91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ BBC. Энди Гамильтон в поисках Сатаны /Andy Hamilton's
 ```bash
 magnet:?xt=urn:btih:4013C8CE750EA5DA534DBE2EBDD22F0C769208AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ NG: Лики Власти / Icons of Power (2006) HDTV [H.264/1080i-LQ] (фил�
 magnet:?xt=urn:btih:69E30E40FE2560C0887F7B85EABC152D26383B7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ NGW: Последний рай орангутанов / The Last Orangutan Eden 
 ```bash
 magnet:?xt=urn:btih:6E5DBB5F4DAE6972E258CB011BB35FF27D54252C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:6E5DBB5F4DAE6972E258CB011BB35FF27D54252C
 magnet:?xt=urn:btih:39B51C0AD8ABE020B757F3253276F7FE75198EE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ BBC: Голубая планета / The Blue Planet (2001) BDRemux [H.264/1080p
 ```bash
 magnet:?xt=urn:btih:54FDFD11E4C0ED62B87A37625FBC75DE230A6D76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ NGW: Голодное нападение / Striker (2007) HDTVRip [H.264/720p-LQ
 magnet:?xt=urn:btih:1F73AE71854E0DADEDD91778E13886208F6CCF35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ Discovery: Эд Стаффорд: Выживший / Ed Stafford: Left for Dead 
 ```bash
 magnet:?xt=urn:btih:7DD9B78220D9C94CD818784BA3D12AA83491EBB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:7DD9B78220D9C94CD818784BA3D12AA83491EBB2
 magnet:?xt=urn:btih:F9E8DEB6C866D3A7D64CD86BC83F7486493049C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ NG: Миссия полета к Солнцу / Mission to the Sun (2018) DVB
 ```bash
 magnet:?xt=urn:btih:6C2C14D5B0BEB86F182A80A2D8E386DEA0F9BAA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ NGW: Потоп / The Flood (2018) HDTV [H.264/1080i-LQ] (серии 1-2)
 magnet:?xt=urn:btih:5B7ECEBEBDB52F2F17315700B3B91A8D4D2B94D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ magnet:?xt=urn:btih:5B7ECEBEBDB52F2F17315700B3B91A8D4D2B94D9
 ```bash
 magnet:?xt=urn:btih:5D543E044E579ACA399AF475026895E62EE282F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

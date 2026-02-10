@@ -1,160 +1,3 @@
-###  Публикация: 1579422   (336484) от 27.09.2022
-
-Бабушка-Метелица / Матушка-Метелица / Perinbaba (1985) BDRip [H.264] [DVO]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм-сказка по мотивам сказки братьев Гримм о Матушке-Метелице, повелительнице снежных бурь, о её помощнике, мальчике Якубе, который не боялся Смерти, а также о бедной и доброй девушке-сироте, eё завистливой сестре и жадной и злой мачехе... И конечно о том, что Любовь побеждает Смерть...Производство: Чехословакия, Германия (ФРГ), Италия, Австрия, Österreichischer Rundfunk (ORF), MR Film, Omnia Film München, Radiotelevisione Italiana (RAI), SFT Koliba, Studio Hraných Filmu, Zweites Deutsches Fernsehen (ZDF)Жанр: сказка, мелодрама, семейныйРежиссер: Юрай ЯкубискоАктеры: Джульетта Мазина, Петра Ванчикова, Тобиас Хёсль, Соня Валентова, Павол Микулик, Валери Капланова, Лудовит Рейтер, Карел ЭффаПеревод: профессиональный двухголосый, авторский (Антон Алексеев)Субтитры: русские (leburs), английскиеПродолжительность: 01:29:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A952D3E3341DBB1F72E489F1649D2658F3489011
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579534   (336485) от 27.09.2022
-
-Сердца разлученные / Hearts in Exile (1915) VHSRip [PR]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм «Сердца разлученные», поставленный весьма успешным и продуктивным режиссером американского немого кино Джеймсом Янгом в 1915 году, является одним из первых американских полнометражных фильмов, всё действие которого происходит в России, и все персонажи – русские.
-Перед нами весьма мелодраматичная история о том, как добродетельный (sic!) любовный треугольник (   Читать дальше...   )Производство: США, World FilmЖанр: драма, мелодрама, историяРежиссер: Джеймс ЯнгАктеры: Клара Кимболл Янг, Монтегю Лав, Клод Флеминг, Вернон Стил, Фредерик Трусделл, Пол МакАллистер, Берт Старки, Clarissa SelwynneПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81595D6E82F6B74EEBF0B200E79A05E4EAC24EF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579447   (336486) от 27.09.2022
-
-Missio - VILLAIN (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Villain [00:03:13]
-02. Demons [00:04:01]
-03. Say Something [00:02:01]
-04. I Wanna Fight And You Know It [00:03:46](   Читать дальше...   )Жанр: Alternative, ElectronicПродолжительность: 00:36:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F73C745A39B12D6CD90E0AEF1ED30FC77F949B1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579183   (336487) от 27.09.2022
-
-Billy Talent - Crisis of Faith (2022) [FLAC|Lossless|image + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forgiveness I + II
-02. Reckless Paradise
-03. I Beg To Differ (This Will Get Better)
-04. The Wolf(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:251B937C5DAF248E9DD2A6B3D14E758E1068F00B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579358   (336488) от 27.09.2022
-
-Fleesh - 13 Albums (2017-2022) [MP3|320 Kbps] <Progressive Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manhã dos 33 (Sagrado Coração da Terra Version) [00:04:22]
-02. Nights in White Satin (Moody Blues Version) [00:04:56]
-03. Miracle Of Love (Eurythmics Version) [00:04:37]
-04. Sometimes You Can't Make It On Your Own (U2 Version) [00:05:08](   Читать дальше...   )Жанр: Progressive Rock, Female VocalПродолжительность: 13 CD, 17:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9546BCF4E4C4D02300E9F9F67DE98F713714EF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579361   (336489) от 27.09.2022
-
-Decapitated - Collection 9CD (2000 - 2022) [FLAC|Lossless|image + .cue] <Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336489.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	From the Nothingness with Love
-2.	Cancer Culture
-3.	Just a Cigarette
-4.	No Cure(   Читать дальше...   )Жанр: Technical Death Metal, Groove MetalПродолжительность: 00:37:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF4523B877C39873464EBE65DAF972351C5C5F46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579397   (336490) от 27.09.2022
 
 3S - Play the Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
@@ -178,6 +21,8 @@ magnet:?xt=urn:btih:EF4523B877C39873464EBE65DAF972351C5C5F46
 ```bash
 magnet:?xt=urn:btih:4BA664311A556DE417897DD49D8FF79366F2FB01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -206,6 +51,8 @@ El Oso y Sus Sabandijas - Magic Hooker Rush (2022) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:932581F32649A165BA69F9C972B979CCEDD8F607
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -232,6 +79,8 @@ Black Debbath - 11 Albums (1999-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Stone
 ```bash
 magnet:?xt=urn:btih:B5AC49CEDEB37807A22CC0F2CA2ADDD4DFC3F1B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +109,8 @@ Dr. John - Things Happen That Way (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:2275CD58A38DC4E0CB774AD82231941D639B6A1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +137,8 @@ Hog Branch - Hog Branch (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:B2F38C920B788B2526F94F80B9BA5EE7133575B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +167,8 @@ VA - Silent Shore Trance - Autumn (2022) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:BDB085EF2C008B6087626A6036226B73FB2F6DC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +195,8 @@ VA - Redux Selection Vol.10 (2022) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:013D66363F7CFBA77E2AF4BD6AA4D822CECDF005
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +225,8 @@ Frozen Factory - 3 Albums (2020-2022) [MP3|320 Kbps] <Progressive Rock>
 magnet:?xt=urn:btih:146D7E248F2CF445C73950AB69E4D766700CBCFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +253,8 @@ Dr Pickup - Hiding in Plain Sight (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:B8423BA172376897B7C34FB74919A17D176828BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +283,8 @@ Seventh Storm - Maledictus (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Prog
 magnet:?xt=urn:btih:35858978EC0ACD2343D14DA08FCEC06C179AEF66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +311,8 @@ Rain - A new tomorrow (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy>
 ```bash
 magnet:?xt=urn:btih:0623981994B01A18E97F92AC6D2A866D83DBD29C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +341,8 @@ Croc Pot - The Missing Ingredient (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:452E84ABF41B8EF2CEAC71E7607A99D3AFDE723C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +367,8 @@ magnet:?xt=urn:btih:452E84ABF41B8EF2CEAC71E7607A99D3AFDE723C
 magnet:?xt=urn:btih:CCC775D5E8610E850371A39922121BFE5811EEF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +392,8 @@ magnet:?xt=urn:btih:CCC775D5E8610E850371A39922121BFE5811EEF2
 ```bash
 magnet:?xt=urn:btih:E9A145D2165D7A3A54261E8135942927A8FEE956
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +422,8 @@ magnet:?xt=urn:btih:E9A145D2165D7A3A54261E8135942927A8FEE956
 magnet:?xt=urn:btih:9E95E7FCE3A91933202BA6636F311D23DC14B0D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +447,8 @@ Path Finder - один из лучших файловых менеджеров, 
 ```bash
 magnet:?xt=urn:btih:363287AC48A5C620F430020961EEA12F6F628CF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +477,8 @@ VA - The Classic Chillout - Chill Out For The Modern World (2018) [MP3|320 Kbps]
 magnet:?xt=urn:btih:FCB30F7893CEC19990337D8CCB9545C6E07E4BA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +502,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:4472EDB5E0FA2AB97B1F02D6B245086FCE0C499F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +529,8 @@ magnet:?xt=urn:btih:4472EDB5E0FA2AB97B1F02D6B245086FCE0C499F
 magnet:?xt=urn:btih:2BE7F09B4D87B946E95DE79B1FA62659C6416ACB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -673,6 +554,173 @@ magnet:?xt=urn:btih:2BE7F09B4D87B946E95DE79B1FA62659C6416ACB
 ```bash
 magnet:?xt=urn:btih:795556DF331BD84091B77B3E6A3F5E6B84502004
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258566   (336527) от 30.10.2018
+
+VA - Hair - The Original Broadway Cast Recording (1968) 1988, RCA Victor, BMG Classics [FLAC|Lossless|tracks + .cue] <Psychedelic Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ronald Dyson and Company - Aquarius (02:50)
+02. Gerome Ragni and Company - Donna (02:07)
+03. Company - Hashish (01:00)
+04. Steve Curry and Company - Sodomy (00:51)(   Читать дальше...   )Жанр: Psychedelic Rock, Pop RockПродолжительность: 01:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D47A5DE4ED6FA088392421F82FBF86CFCE25656C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258192   (336528) от 30.10.2018
+
+Алексей Родионов (ред.) | Жизнь без слов. Проза писателей из Гуанси [сборник] (2018) [FB2]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336528.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли двенадцать повестей и рассказов, созданных писателями с юга Китая — Дун Си, Фань Ипином, Чжу Шаньпо, Гуан Панем и др. Гуанси-Чжуанский автономный район — один из самых красивых уголков Поднебесной, чьи открыточные виды прославили Китай во всем мире. Одновременно в Гуанси бурлит литературная жизнь, в полной мере отражающая победы и проблемы современного (   Читать дальше...   )Жанр: Современная зарубежная прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36C8B03AFD60F040318272D62BDFD64F646A52EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258448   (336529) от 30.10.2018
+
+VA - Meditation & Love (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dubdiver - Moonlight Shade 6:29
+02. Living Room - Golden Ride 3:28
+03. Worldtraveller - Afterglow 4:26
+04. Peter Pearson - Under The Spell 3:31(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B22CB3EB63E163118102CF28A6304A43E9E39822
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258479   (336530) от 30.10.2018
+
+Сочинение (1970) TVRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336530.jpg" />
+</div>
+
+
+###  Подробнее
+
+О единении детской фантазии с восприятием неповторимой красоты окружающей природы. Для героя фильма Яши это восприятие также непосредственно связано с яркими поэтическими образами, с которыми его познакомили в школе.Производство: СССР / БеларусьфильмЖанр: Короткометражный, детский, семейныйРежиссер: Игорь КоловскийАктеры: Миша Фомченков, Андрей Бобок, Ира Красильникова, Алла Мещерякова, Светлана СтариковаСубтитры: ОтсутствуютПродолжительность: 00:27:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6745E5FAE58253C2D644E37E1787A8EAA3CEA625
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258464   (336531) от 30.10.2018
+
+Фигурное катание. Гран-при 2018-2019. 1-й Этап. Skate America 2018. Эверетт (США). Показательные выступления (21.10.2018) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336531.jpg" />
+</div>
+
+
+###  Подробнее
+
+22 октября 2018 года, понедельник. 04:15 МСК
+Турнир «Skate America 2018» — 1-й Этап Гран-при по фигурному катанию сезона 2018—2019.
+Показательные выступления
+Арена: Энджел оф зе Виндз (Эверетт, США)Телекомпания: Первый каналЖанр: Спорт, ШоуЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C995E855BCDDDC21E3563BA16F15932F918F0B6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258424   (336532) от 30.10.2018
+
+Михаил Белозёров | На высоте птичьего полёта (2018) [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман о журналисте, который волей случая участвовал в боях. Был тяжело ранен. Попал в Москву. Пережил серию операций. Восстановился. Прожил в Москве год, успел разбогатеть, жениться, всё и вся потерял, всё раздал и снова уехал… опять воевать.Жанр: Современная прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4EACD30121B8F7F8BD5D30E0914EB2ED9737E71
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

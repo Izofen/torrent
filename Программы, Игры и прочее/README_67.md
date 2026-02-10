@@ -19,6 +19,8 @@ English LinDuo HD v5.29.3 [Ru/Multi]
 magnet:?xt=urn:btih:CE4FD3E62EF695B4CB6922BC678EFA9EC631B713
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Plus Messenger - неофициальное приложение для обме
 ```bash
 magnet:?xt=urn:btih:39702FBD2E0070C5874C9E79816A20E48E2AEA16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ BlockSudoku / Кудоку-Вуди Блок v2.6.1 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:240523AC43B2CE9B9B99525546A332CD252DD81E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:240523AC43B2CE9B9B99525546A332CD252DD81E
 magnet:?xt=urn:btih:E222E9633DBE36E93AB40E405A7B584AB694990E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:E222E9633DBE36E93AB40E405A7B584AB694990E
 ```bash
 magnet:?xt=urn:btih:2425CE09A9776DF8B9C6D77B3C90091C1585C488
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ TV+: Бесплатное Онлайн Телевидение
 magnet:?xt=urn:btih:BE2556F2DD61D7E0D5019F7E30C73225FA2DDCC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Blaze v1.6.4 [Ru/Multi] - Виртуальный Камин с разрешен�
 ```bash
 magnet:?xt=urn:btih:1641F697CEB8E19D136EE61D86FCFDF3F9F7A62A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ YouTube Downloader v7.1 [Ru/En] (обновляемая)
 magnet:?xt=urn:btih:15D2F7D740151DC081D9D0AFA11B0255C1747E75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ HD VideoBox Plus — это самый крупный онлайн киноте�
 magnet:?xt=urn:btih:62B2E04453A20023247ADC1B4DD0EE603DCC71A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ jetAudio проигрывает практически все цифровые �
 ```bash
 magnet:?xt=urn:btih:D9B4E5747CC00CB6CC9787007650389DD6C17FD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ CoinSnap - Value Guide v1.2.9 [En]
 magnet:?xt=urn:btih:17B9C0A51B43B97AB32E8845A8FC6D80EC8DF7CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ GuitarTuna — это самый удобный, быстрый и точный 
 magnet:?xt=urn:btih:CDB3258A08BCA4F5AA73316E5C52DA2EF24121E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Dendy Games (645 in 1) v3.11 [En]
 ```bash
 magnet:?xt=urn:btih:A906A51E2B372FA9E99112EFEB687D9F67038FA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ ARK: Survival Evolved v2.0.21 [Ru]
 magnet:?xt=urn:btih:2DB25D2295BA920FED438F201BEAEBC33FACEE8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Zona v2.0.152 Mod by Timozhai [Ru]
 ```bash
 magnet:?xt=urn:btih:CBBE41672A01CD2191C333A37762A8438892ED83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ VoltLab v5.1.4 Pro [Ru/En]
 magnet:?xt=urn:btih:FD867A24541E14D98D913D20D257170E82C79F80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Happy Color™ - раскраска по номерам для взрослых.
 magnet:?xt=urn:btih:C70D567D6E7E026FD5338295720C9300EE7813AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Picsart Photo & Video Editor v21.3.2 Mod by CXVUSER [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1631E6E38327B75A369684BCDCED65C5754650AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:1631E6E38327B75A369684BCDCED65C5754650AA
 magnet:?xt=urn:btih:5C2E948DE3104F7B8DC0E34EFFDE115D94E1A0E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Root Explorer или Root Проводник - это отличное прил�
 ```bash
 magnet:?xt=urn:btih:9F5C73CA127F0318654DEA08B48F811F2DBD6F89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ Revo Uninstaller Mobile - полезное приложение для любо�
 magnet:?xt=urn:btih:24DAC67852836AB4C7CCDD444AA5FE9054CAA84C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:5A4ED2D3FECDF1B981CEE7EBEBB2BE271FCB1AEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ Jotr: Quickly Draw & Sketch 4.4.4 Pro [Ru]
 magnet:?xt=urn:btih:23C587D122C6279256E7CB7FE0B9E0B0A85DF926
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ CPU-Z для Android от разработчика CPUID. Отличное пр�
 ```bash
 magnet:?xt=urn:btih:069A3E79D2D0642D715227BCA0A99F4AB6635A00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ Enpass Password Manager Pro v6.7.1.572 [Ru/Multi]
 magnet:?xt=urn:btih:872CC153681BFEDAEF04D895A96FCF4A4C8EF68F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ KeePassDX Pro - Приложение позволяет сохранять и и
 ```bash
 magnet:?xt=urn:btih:39D286EA986006F0514C14018BA164F436445024
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

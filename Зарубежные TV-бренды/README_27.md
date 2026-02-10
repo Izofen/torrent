@@ -19,6 +19,8 @@ Discovery: Путешествие в Долину Царей / Journey Through t
 magnet:?xt=urn:btih:F611C84ED6EE732A775802D2025C46AC1E1CA51D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NG: Взгляд изнутри. Супертрава марихуанна / Ins
 ```bash
 magnet:?xt=urn:btih:A6F1628B1E0E6C17C7E9ED3C986EEC3B53F2902D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:A6F1628B1E0E6C17C7E9ED3C986EEC3B53F2902D
 magnet:?xt=urn:btih:E67E127269B8AF235B4F6D72FE478DA05E60DCEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Discovery: Апокалипсис 2012-Откровения / Maya 2012 Prophecy
 ```bash
 magnet:?xt=urn:btih:B58DC24246F4CBBC75E8CE4CEE8984660F32E4FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ BBC. Йеллоустоун: Борьба за жизнь / Yellowstone: Battle 
 magnet:?xt=urn:btih:BD54F25D8BBF662204BEA613B4ACE58B687F04AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Animal Planet & BBC: Дикая планета / Wild Planet (2003-2005) TVRip [
 ```bash
 magnet:?xt=urn:btih:97E1B86D41C3D57E74B6F2905E570AE8EE9BF81F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:97E1B86D41C3D57E74B6F2905E570AE8EE9BF81F
 magnet:?xt=urn:btih:F4E3508CD49186380AC3D41E0171D5A54AB7E9DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ NG: Титаник: Заключительное слово с Джеймсом 
 ```bash
 magnet:?xt=urn:btih:0B063E87543B8BF32460FF4077910AE90BB1BEB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ NG: Суперсооружения: Мегакорабли. Крупнейший
 magnet:?xt=urn:btih:F326E422B27F8E6C661D454A1DE4A9E539478E6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Discovery: Знакомство с Лох-Несским чудовищем / Th
 ```bash
 magnet:?xt=urn:btih:707122D86EDE1575C82FBF8B0F67C5FBB32D74DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:707122D86EDE1575C82FBF8B0F67C5FBB32D74DB
 magnet:?xt=urn:btih:F258A1493B89F1A1B76B4EEAA8BF43A23C2503B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ BBC. Преступники Британии: разбойники, пираты
 ```bash
 magnet:?xt=urn:btih:93A86AB48E7EAFC38F0337B532B467257FBF48FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ NG. Ангкор-Ват. Жемчужина Древней Азии / Glories Of
 magnet:?xt=urn:btih:A5D1129B9C98DDCEE8300332BF68C32DFE8FFC71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ NG: Секретные материалы древности: Расшифров
 ```bash
 magnet:?xt=urn:btih:32C3DA6F7961785F9C84641C2E4241C5C5372146
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ NG. Настоящие Красные хвосты / The Real Red Tails (2024) W
 magnet:?xt=urn:btih:9E9225AEA9661D06B29593FCD99896E909556A48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ BBC: Я и гравитация. Сила, формирующая нашу жи�
 magnet:?xt=urn:btih:3CBA321A12B3575FE59D876722CE4AD8628A32E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +434,8 @@ NGW: Потерянный рай Колумбии / Wild Colombia's Lost Eden (2
 ```bash
 magnet:?xt=urn:btih:25D72787F8A24097F6D800B50C51B768EE8550C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:25D72787F8A24097F6D800B50C51B768EE8550C7
 magnet:?xt=urn:btih:F86521FC6D61C75F629D8CC81350698812BDB9F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ RD: Удивительные подземные секреты (Природны
 ```bash
 magnet:?xt=urn:btih:23E6A0A8A60208E6B283806A839E4584C018FEF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ NG: ЭкзоМарс: В поисках жизни / Exomars: The Hunt for Life 
 magnet:?xt=urn:btih:FE02836FD5D913B1349EC4918163F1DEEBAA1CF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ BBC: Битва экзопланет / Battle of the exoplanets (2018) HDTVRip [
 ```bash
 magnet:?xt=urn:btih:0FA862557412807E07B82F7EDA1FA840D98732D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ magnet:?xt=urn:btih:0FA862557412807E07B82F7EDA1FA840D98732D3
 magnet:?xt=urn:btih:D12800C9DCBEF5AED15478579523269E7BEDD25C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ Discovery. Хранители болот Эверглейдс / Guardians of the
 ```bash
 magnet:?xt=urn:btih:E5ADE21E94E2479B615FAFF34630CDF75E801CB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ magnet:?xt=urn:btih:E5ADE21E94E2479B615FAFF34630CDF75E801CB0
 magnet:?xt=urn:btih:9F3D3DC45A126ADC0D0AC8DD0B1EBB1D65E255FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ magnet:?xt=urn:btih:9F3D3DC45A126ADC0D0AC8DD0B1EBB1D65E255FE
 magnet:?xt=urn:btih:B91401C8CC45AA7175C8CE8D93BEC47348CD5082
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ magnet:?xt=urn:btih:B91401C8CC45AA7175C8CE8D93BEC47348CD5082
 ```bash
 magnet:?xt=urn:btih:F1666A76C02C82D01009481F21242A46B6A2AA3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

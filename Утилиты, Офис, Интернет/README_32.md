@@ -19,6 +19,8 @@ Start Menu X — профессиональная замена системно�
 magnet:?xt=urn:btih:9369A52B1FB6AF46F837638AF0CC13EBBAFB4278
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ DVDInfo - программа для быстрого получения инфо
 magnet:?xt=urn:btih:2D30CB99B87F10DC4538F93EC75A6F17F699940D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ TeraCopy Pro – утилита улучшает процесс копирова
 ```bash
 magnet:?xt=urn:btih:9FA68A0976C3F48524B85BFC6DC22CBBE4DE0A28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ EmEditor Professional - профессиональная версия мощно
 magnet:?xt=urn:btih:B14CEAE34A111F253A8DC42655C7D88F77E54F0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ IObit Uninstaller Pro представляет собой удобный инс�
 ```bash
 magnet:?xt=urn:btih:75BE610F72CEF460644939E8AFC8F09110F29757
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ ScrollNavigator - программа, которая поможет вам пр�
 magnet:?xt=urn:btih:B70FA90EEEE9E7A8C2DF0F383DE16EB1E361552D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ TreeSize Free 4.7.3.550 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B9592DC34A0D95DFC2DA6C68FE69BDEDFDA9FB43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Windows EducationPack - все для образования и организа
 magnet:?xt=urn:btih:266069F848FA5B9AD8B279784508645B47377B48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ FrostWire - это мощный и простой в использовании 
 magnet:?xt=urn:btih:40002EFC5B6A89566312A21B4C95719B345E22C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Snooper - программа-шпион по-тихому пишет все зв
 ```bash
 magnet:?xt=urn:btih:0E9990F4823AF1E4F69AD5707CC944A544D7A2A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Delete.On.Reboot - небольшая и эффективная бесплатн
 magnet:?xt=urn:btih:72C72ADF4B323F718D02ED024DE138DE0DB34427
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ Microsoft Edge – кроссплатформенный веб-браузер н
 magnet:?xt=urn:btih:84A479EB86E4D3AAA6C2F3F7306D2AF57BE55AE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ PDF-XChange Editor — программа для просмотра, редак�
 ```bash
 magnet:?xt=urn:btih:7A600156BDA245FDC2DD97577511662F3525C8D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ iTubeGo YouTube Downloader 7.6.2 Portable by zeka.k [Multi/Ru]
 magnet:?xt=urn:btih:5BC2BCD67CC629E0BDFE741516FBCC6E6DBD05EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ Icecream Ebook Reader 6.49 Pro Portable by 7997 [Multi/Ru]
 magnet:?xt=urn:btih:5D616DB524DD8879A773B29BBBCA6E5773E283CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ IceCream Ebook Reader Pro 6.49 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:299CC20D7D59EB3E3DD635908CB6C3115C0CE7FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ MiniTool ShadowMaker Pro – программа, которая позволяе
 magnet:?xt=urn:btih:683801DC24172CC61FEB989A7A66A8556C5077E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ MathType - это мощный интерактивный инструмент, 
 ```bash
 magnet:?xt=urn:btih:46CC3D9138E6C3196BB59D15ED5212338D0D9FCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ NewFileTime 7.21 Portable [Multi/Ru]
 magnet:?xt=urn:btih:F35FEB4BE8FD3D73F771C113C23E8226AB2DB201
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ AutoPowerOptionsOK — небольшая по размеру утилита, п
 ```bash
 magnet:?xt=urn:btih:AC17AA40C4633D957AB399FFF5146CD4978B3DEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ Auslogics Duplicate File Finder поможет Вам избавиться от 
 magnet:?xt=urn:btih:B125361870FB5E173BBAEA55C7FFAD0D97F08E59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ Total Uninstall - утилита, предназначенная для корр
 magnet:?xt=urn:btih:A41F6732189D1D37F55687F5FE6FD99AAD81C046
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ CrystalMark - это простая в обращении и мощная по �
 ```bash
 magnet:?xt=urn:btih:AAF5375A42CD00F14A419681954B274B3FF16D0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ Fiction Book Editor это мощная программа для редакти
 magnet:?xt=urn:btih:021E51D053CF7255B27411BA2B0543BBA89457A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ AOMEI Partition Assistant Standard Edition бесплатный многофун
 magnet:?xt=urn:btih:71E0731E9C1BB42BE830F52D1D8899C8D592E547
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Total Uninstall - утилита, предназначенная для корр
 ```bash
 magnet:?xt=urn:btih:BF94E67F4D2D60701CC5DD5A2D9C320055235FCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

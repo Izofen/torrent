@@ -19,6 +19,8 @@ Block auto-update 1.2 Portable [En]
 magnet:?xt=urn:btih:685FA3A44F442C7940CA9569DE90D87D01DEA9CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:685FA3A44F442C7940CA9569DE90D87D01DEA9CE
 magnet:?xt=urn:btih:AFCC22B96B7FFC406890AE01D6EAFA70E5B91E8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ uTorrent Pro 3.6.0 Build 46902 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 ```bash
 magnet:?xt=urn:btih:CACA0AEBA73C284E4870D694E0B7EACD7B4039CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:CACA0AEBA73C284E4870D694E0B7EACD7B4039CA
 magnet:?xt=urn:btih:9158679319F8A6378A58A1A621C3C167984EC098
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:9158679319F8A6378A58A1A621C3C167984EC098
 magnet:?xt=urn:btih:5D5A8BD0C2B23AD75A7C7F0107777601F094F7EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Brave - защищённый веб-браузер на базе Chromium, по�
 ```bash
 magnet:?xt=urn:btih:253FB2FBC0E29BA6082B4CF24675BC26934BB3D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:253FB2FBC0E29BA6082B4CF24675BC26934BB3D1
 magnet:?xt=urn:btih:08F5583D043541403E632ABEBC3D2A54A36ABB8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:08F5583D043541403E632ABEBC3D2A54A36ABB8C
 ```bash
 magnet:?xt=urn:btih:F4FE6088277BD6EE76E32190FF8AF956F75DA2D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ NG: Момент смерти / Moment of Death (2008) DVDRip
 magnet:?xt=urn:btih:9C39A21FD739CE9EF2EE214DB991B8A6C0C5C9BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:9C39A21FD739CE9EF2EE214DB991B8A6C0C5C9BF
 magnet:?xt=urn:btih:ED80623A3109F95E0FD3B9880E75C41E802651A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:ED80623A3109F95E0FD3B9880E75C41E802651A2
 ```bash
 magnet:?xt=urn:btih:C7BFD36356E190449465751E7E6948758D731F81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ CD - 1:
 magnet:?xt=urn:btih:9F1686C4DBB2B0F76FA82A7BBEF6B2506D48BFB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:9F1686C4DBB2B0F76FA82A7BBEF6B2506D48BFB0
 ```bash
 magnet:?xt=urn:btih:800DBEB8BBF6D5DC8C62D48A967F1CC1012E0BF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ Wise Disk Cleaner 10.9.6.812 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:FC5543CB2388939E13DC12748D23B881C8C1C4D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:FC5543CB2388939E13DC12748D23B881C8C1C4D0
 ```bash
 magnet:?xt=urn:btih:E729994A9123B2FE93674A49DD88784A9B454BEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:E729994A9123B2FE93674A49DD88784A9B454BEC
 magnet:?xt=urn:btih:D409E888DE359184A0FBCF841C22189A1C103E79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:D409E888DE359184A0FBCF841C22189A1C103E79
 magnet:?xt=urn:btih:33359825F689DCEA56DC3543011E0FA0D5DB6004
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ TreeSize Professional - мощное и гибкое средство визуа
 ```bash
 magnet:?xt=urn:btih:27D864502AF674A08030FE2950FF30524A6567FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:27D864502AF674A08030FE2950FF30524A6567FA
 magnet:?xt=urn:btih:B7439DFAF357F5272BD8EAB851F4B37B1C7815EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ OCCT 11.0.18.b1 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CF36BDE13C999E158C94D0B6F0E2B7C587348A1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +559,8 @@ Joe Louis Walker, известный также как JLW - американс�
 magnet:?xt=urn:btih:420B94FDF13E1D6E03256512A091CFBD00E10500
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:420B94FDF13E1D6E03256512A091CFBD00E10500
 ```bash
 magnet:?xt=urn:btih:4B054794F65A5AC7DC43FDEEEA1C4662D74B8A36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ VA - Soothing Relaxation Lounge: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL
 magnet:?xt=urn:btih:7DFE8E07CD95415E9810CCAB6CA9BFEC04E0338F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +641,8 @@ magnet:?xt=urn:btih:7DFE8E07CD95415E9810CCAB6CA9BFEC04E0338F
 magnet:?xt=urn:btih:F06F25DB45C81852BF710EF7C006C063F24917DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +667,8 @@ magnet:?xt=urn:btih:F06F25DB45C81852BF710EF7C006C063F24917DC
 magnet:?xt=urn:btih:482442F7BCDE2803CE12C9F38ECFA1C59B060BB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ magnet:?xt=urn:btih:482442F7BCDE2803CE12C9F38ECFA1C59B060BB8
 ```bash
 magnet:?xt=urn:btih:02973818C90862DCDFC70D0072EF807F0C48CF2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

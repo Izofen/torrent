@@ -19,6 +19,8 @@ MediaInfo - программа, которая предоставляет под
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Jose AM & Nunez feat Leidig & Daddy & P. Melgar - Honey (2012) [H.264/720р] WEB
 ```bash
 magnet:?xt=urn:btih:CDC327143C45B5D5ACB13D846A15F9221B276E19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:CDC327143C45B5D5ACB13D846A15F9221B276E19
 magnet:?xt=urn:btih:85616270D6B7054F34A0B618474DAF6D005A7D4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Sumatra PDF — это программа для просмотра файлов
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Datsik - Vitamin D (2012) [MP3|320 кб/с]<Dubstep>
 magnet:?xt=urn:btih:CBB9D563825163EFD7280ECDF5D994F8285AA5CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:CBB9D563825163EFD7280ECDF5D994F8285AA5CF
 magnet:?xt=urn:btih:1AC755E0682E74F2739D8FC1C72139EFB4D07142
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ AIDA64 (старое название Everest) - утилита является
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ RapidTyping Tutor – профессиональная программа-тре
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -231,6 +247,8 @@ VA - Бездна Party 50/50 (2012) [MP3|256 kbps]<Pop | Dance>
 magnet:?xt=urn:btih:DB038F7EC0E660C4798743667E080E48F98A5398
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -254,6 +272,8 @@ magnet:?xt=urn:btih:DB038F7EC0E660C4798743667E080E48F98A5398
 ```bash
 magnet:?xt=urn:btih:513907EF692DD50CF199FAD94EF267EF114AB3C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -279,6 +299,8 @@ magnet:?xt=urn:btih:513907EF692DD50CF199FAD94EF267EF114AB3C9
 magnet:?xt=urn:btih:875D78DBA9A1F213411B57154722D15FE003E4DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:875D78DBA9A1F213411B57154722D15FE003E4DD
 ```bash
 magnet:?xt=urn:btih:B4ECDC2BF560D121C1140C39B9B7EB08642AD19C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +360,8 @@ VA - Клубные новинки Vol.64 from GvertO (2012) [MP3|320 кб/с]<C
 magnet:?xt=urn:btih:04CB21D9018E2DF443DBC5673DA4A7892D658FA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +389,8 @@ VA - Mechanism On The DanceFloor (2012) [MP3|320 кб/с]<House>
 ```bash
 magnet:?xt=urn:btih:15009C734CB2231817CB0B8802718E2AE92633E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +425,8 @@ S.K.V. - Обратно на Землю (2012) [MP3|256 кб/с]<Rap>
 magnet:?xt=urn:btih:898B531196AC96A8145E844E218D8D80F0AC6199
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +451,8 @@ magnet:?xt=urn:btih:898B531196AC96A8145E844E218D8D80F0AC6199
 magnet:?xt=urn:btih:CA3F27C424754DE3500B4A2A6A6C9C4013596666
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +476,8 @@ Media Player Classic HomeCinema - удобный во всех планах му
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +512,8 @@ Media Player Classic HomeCinema - удобный во всех планах му
 magnet:?xt=urn:btih:0BB3A734D282896F3985D24E7F8CF6EAC660FCED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +547,8 @@ Nodrama - The Patient (2012) [MP3|320 кб/с]<Alt.Metal, Modern Metal>
 magnet:?xt=urn:btih:218B3DF6AD774C9197AC5CE5B33AB04E96B62D7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ magnet:?xt=urn:btih:218B3DF6AD774C9197AC5CE5B33AB04E96B62D7E
 ```bash
 magnet:?xt=urn:btih:BDDA1C96EB7BC6722E04193F328FC14A40A170B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +608,8 @@ VA - Adverso Records Presents MIAMI 2012 (2012) [MP3|320 кб/с]<House>
 magnet:?xt=urn:btih:06EA7931B841C76865ED405E93D53B11EBA33883
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +643,8 @@ VA - Alex Pavlov Presents: Robotronic (2010) [MP3|320 кб/с]<Synthpop, Electro
 magnet:?xt=urn:btih:FCA578A92BC6023AFAEABCE44B02045AD63746FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +669,8 @@ magnet:?xt=urn:btih:FCA578A92BC6023AFAEABCE44B02045AD63746FE
 magnet:?xt=urn:btih:86F0C26319DF171E072C5CB455FB22ED5E66DC34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +694,8 @@ magnet:?xt=urn:btih:86F0C26319DF171E072C5CB455FB22ED5E66DC34
 ```bash
 magnet:?xt=urn:btih:36B3E31A0267705A7098BBD76B062F1B8BFF5C4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -677,6 +725,8 @@ VA - Beats 2012 Vol. 5 (2012) [MP3|320 кб/с]<House>
 magnet:?xt=urn:btih:FB5DD19B823081E978F306ADE98C587D1A2396BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -700,6 +750,8 @@ magnet:?xt=urn:btih:FB5DD19B823081E978F306ADE98C587D1A2396BA
 ```bash
 magnet:?xt=urn:btih:D5CB69A4F5FC22FCCE3587AB2900AD91342D60E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

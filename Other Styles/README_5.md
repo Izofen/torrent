@@ -22,6 +22,8 @@ VA - Go Ask Alice: Dark Melancholic Rock & Folk Mix (2025) [FLAC|Lossless|WEB-DL
 magnet:?xt=urn:btih:13038A18CA1B5AB2ECD73C996B705B284181B4AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Dwight Yoakam - This Time (1993) CD, Album, Club Edition [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:7DECBF747F6C2156F5F7F752AB94297E516ABE2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Chris Janson - Everybody (2017) [FLAC|Lossless|tracks + .cue] <Folk, World, & Co
 magnet:?xt=urn:btih:AD4BA0513C9DC902AF5A4D84C3FCDF6544B3CAA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - The Orient Collective: Eastern Mirage (2025) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:376B1D1DAFC9F109B870878946C5E10105EAE73C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Wise Hand feat Nouri - Manschoud (1997) [OGG Vorbis|480 Kbps] <Electronic, New A
 magnet:?xt=urn:btih:E569DCCCE7688482B9F5081044C8A2FB38413796
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Greg Mancol - Chill Passion (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax
 ```bash
 magnet:?xt=urn:btih:60EF8A196F15AEE926D293C7BED012906D4ACF34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Armik - Gitano Amor (2025) [MP3|320 Kbps] <Flamenco, Instrumental, Guitar>
 magnet:?xt=urn:btih:2D4A6D8858000C293BCA6689E3ED24B92E6615FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ Greg Mancol - Time For Relax (2018) [MP3|320 Kbps] <New Age, Relax>
 magnet:?xt=urn:btih:D8AFE46D1FD01058DA764F1B135DAD6FD2635642
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +253,8 @@ Greg Mancol - Chill Passion (2016) [MP3|320 Kbps] <New Age, Relax>
 ```bash
 magnet:?xt=urn:btih:45AC6480469B3CC604B74E223BAB228A4A31754C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +286,8 @@ magnet:?xt=urn:btih:45AC6480469B3CC604B74E223BAB228A4A31754C
 magnet:?xt=urn:btih:0E475388B41C97649EFD8434426EF676F49FEE74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +315,8 @@ VA - The Orient Collective: Caravan Rhythms (2025) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:70592D0F7272AEACD88AACDEA292539EDB301E96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +342,8 @@ John Williams - Film Music of John Williams (2025) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:87179B3297DBE0E58B570F99D009833A21FDD4B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +372,8 @@ VA - The Orient Collective: Echoes Beyond Borders (2025) [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:98F97428616A64F7BDF6556F8B33E65BF1BF08ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +400,8 @@ VA - The Orient Collective: Dunes & Dreams (2025) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:FF6D199CD5F8DF21668644AE87BC563BF760D162
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +430,8 @@ VA - The Orient Collective: Golden Dunes (2025) [FLAC|Lossless|WEB-DL|tracks] <W
 magnet:?xt=urn:btih:2123017CA30D6DCAD9FF998B999784DF73964870
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +458,8 @@ VA - The Orient Collective: Eastern Bloom (2025) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:5A9B9617F2FF750F209E5F1F014680FC10CCF794
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +488,8 @@ VA - Country Soft (2025) [FLAC|Lossless|WEB-DL|tracks] <Country>
 magnet:?xt=urn:btih:AE8EE4D820D554F29433EF10CAA1EA8FC0C10084
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +517,8 @@ magnet:?xt=urn:btih:AE8EE4D820D554F29433EF10CAA1EA8FC0C10084
 magnet:?xt=urn:btih:E24B5FC223C04A2D1F233BD17721B16EFF917F08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +545,8 @@ VA - The Orient Collective: Sacred Nomads (2025) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:ABEB259BFC3DC7E4870D521DD28DF1EC35066342
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +581,8 @@ Ikaiki Amayu - Sumac Llacta (2010) [MP3|320 кб/с]<Folk, Native american, Inst
 magnet:?xt=urn:btih:A5D9601790B1748052ADF3CE55C0E344B73766C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +615,8 @@ magnet:?xt=urn:btih:A5D9601790B1748052ADF3CE55C0E344B73766C9
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +643,8 @@ Amethystium - Aurorae [EP] (2012) [MP3|~245 kbps]<New Age, Ambient>
 ```bash
 magnet:?xt=urn:btih:D26CAED1E092FFACE95F75F4EE76A18D2D772EAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +679,8 @@ Sublime With Rome - Yours Truly (2011) [FLAC|Lossless]<Ska-Punk, Reggae>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +713,8 @@ Sublime With Rome - Yours Truly (2011) [FLAC|Lossless]<Ska-Punk, Reggae>
 ```bash
 magnet:?xt=urn:btih:F1249EC82C242A8A7CA24EEE33E5BEBC26CF8F61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -701,6 +749,8 @@ Darren Korb - Bastion Original Soundtrack (2011) [MP3|320 kbps]<Acoustic Frontie
 magnet:?xt=urn:btih:5AE8D8FF5AE43F7EBCB12473849315F156FF633F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -733,6 +783,8 @@ Leonard Cohen - Old Ideas (2012) [FLAC|Lossless]<Blues, Rock, Folk Rock>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

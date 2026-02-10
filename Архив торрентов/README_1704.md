@@ -19,6 +19,8 @@ Icecream Video Converter 1.28 [Multi/Ru]
 magnet:?xt=urn:btih:15A7B300ED50DCCC37D95FFE16C272A077CA45B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ My Metronome - идеальный инструмент для каждого, к
 ```bash
 magnet:?xt=urn:btih:676DB2F1F64FB1F9E32B1C7054CC7F522F71E390
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ TransData: Internet Data Speed 2.6 [Multi]
 magnet:?xt=urn:btih:A92CF20C830316C8A4198D5A65A9A16F06C1C526
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ W10Privacy - программа для изменения настроек си�
 ```bash
 magnet:?xt=urn:btih:5A947CC5F6F7D5D94D2B385D569EF7699EDAD1C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ OCCT 12.0.1 Portable [En]
 magnet:?xt=urn:btih:8DE483D72DFFC547335E342A5633073464D0373E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Librarian Pro 7 v7.0.1 [En]
 ```bash
 magnet:?xt=urn:btih:3CABEE8D2E49EC15A4456F4C6AADE837E09758D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ WinTools.net – набор инструментов для оптимизаци
 magnet:?xt=urn:btih:5BDE4B5D7F10DC4A8043F9D0DE2FE579D3471238
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:5BDE4B5D7F10DC4A8043F9D0DE2FE579D3471238
 ```bash
 magnet:?xt=urn:btih:C6EA8552903170FD5BD075A21D31BE021764C10D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ FSNotes - это менеджер текстовых заметок для macOS
 magnet:?xt=urn:btih:9635455DD3B24D73231DBD938D8FF65D4CA0B5DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ V Recorder – качественный и простой экранный ре�
 ```bash
 magnet:?xt=urn:btih:A44B32ABF7A2D9BC229E1CD57376E2BDA5B9BE16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ PureSync — программа для синхронизации данных �
 magnet:?xt=urn:btih:EA5EA984326C18A7EB3FE478D7ADACB45CB2D0ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Phase One Capture One - один из лучших профессиональн�
 ```bash
 magnet:?xt=urn:btih:BF4A3DBA99F028AFA72BD9D7AFDD26C8256AA5B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Maxthon Browser — многофункциональный браузер со �
 magnet:?xt=urn:btih:46E7C63E0D8D2E160B8C8CA872B57229C8DE98B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ R-Drive Image — является эффективной утилитой дл�
 ```bash
 magnet:?xt=urn:btih:D8388F720AA9B380A4F6D97AEA37DADF3C26107E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ DxO PhotoLab Elite 6.6.0 build 192 RePack by KpoJIuK [Multi]
 magnet:?xt=urn:btih:7146E2FDAC5001A2ED2D24350283950906937A21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ App Tamer 2.7.7 [En]
 ```bash
 magnet:?xt=urn:btih:44E592F99CE2046EA3DF079E69EA6B861D77748D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Viber для Windows позволяет бесплатно отправлять 
 magnet:?xt=urn:btih:93054A5E83FAC10E860F3FA9487F64BAF351B7EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ FBackup — это свободно распространяемое прогр�
 ```bash
 magnet:?xt=urn:btih:3B9A7599380EA799E978E1AC3FDE575BC0503CE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ RSS Guard предоставляет строгий и лаконичный по
 magnet:?xt=urn:btih:66C0197F6399AAFF7B6A6A7A17D0C1E8C51E1892
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:BA1D9F0BCC4EC8B17FEECA99F1E18543AA0B23A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ World Clock Deluxe - это надежное и простое в использ
 magnet:?xt=urn:btih:60209B188EA319C1DC374A31D5DAD8D1F060F8F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ PhotoLine - простая в обращении программа, предс�
 magnet:?xt=urn:btih:96EEC700C84ACB50F7CFE69462B341787FA5DF61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:2FD09F5EA8829B4C7BA2AC62088B03D25B67162F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ PDF Extra - универсальное приложение, что обеспе
 magnet:?xt=urn:btih:F006DDC34BD5EC3CB0375BC8CA6467A5FDCC0784
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Opera 99.0.4788.9 Portable by Cento8 [Ru/En]
 magnet:?xt=urn:btih:EFDCF8B0461BEE563F0EDA9A05B1852B4C5B4C68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ FireAlpaca - это достаточно простой, но удобный г�
 ```bash
 magnet:?xt=urn:btih:035B41100A3158ED00ACA578C0220B56749C9F2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,178 @@
+###  Публикация: 599915   (998821) от 08.01.2013
+
+Нэнси - #Вечерочкиночки (2012) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Вечерочкиночки
+ 02 - Ночной вокзал
+ 03 - Просто выходной
+ 04 - Я стану ветром
+ 05 - Моя любимая женщина
+ 06 - Я падаю в небо
+ 07 - Розы, на краю стола
+ 08 - Железнодорожная
+ 09 - Прости
+ 10 - Ты научи меня летать(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11C6CCED5AAC33AC28CF325900E4C47B018883F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599582   (998828) от 08.01.2013
+
+Taylor Swift - 3 альбома 1 демо (2011 - 2006) [MP3|320 кб/с]<Country>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lucky You (Mr. Mig mix) [00:03:38]
+02. Smokey Black Nights (Mr. Mig mix) [00:03:14]
+03. American Boy (acoustic version) [00:03:20]
+04.  [00:02:23]
+05. Hopelessly Devoted To You [00:02:40]
+06. Am I Ready For Love [00:04:17]
+07. Can I Go With You? [00:02:54]
+08. One Way Ticket [00:03:28]
+09. There's Your Trouble [00:02:43]
+10. Star Spangled Banner [00:01:21]Жанр: CountryФормат: MP3 (tracks)Продолжительность: 00:30:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0EF59054BF5465EB3D33E6C597F491540BB1565
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600387   (998855) от 08.01.2013
+
+Балаган Лимитед - Кто бы мог подумать (2012) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ой, да
+02. Кто бы мог подумать
+03. Свадьба
+04. Осень
+05. Сереженька
+06. Пусть говорят (ft. Белла Огурцова)
+07. Гуси-Лебеди
+08. Сон мой, сон (Монголия) (ft. Органическая Леди)
+09. День рождения
+10. Колыма(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599938   (999024) от 07.01.2013
+
+Группа Круг - Лучшие песни (2CD) (2011) [MP3|320 кб/с]<поп>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Круг друзей (гр. Круг)
+02. Чужая жена (гр. Круг & М.Файнзильберг)
+03. Музыкант (гр. Круг)
+04. Верю и не верю (гр. Круг)
+05. Африка (гр. Круг & М.Файнзильберг)
+06. Никогда-это значит скоро! (гр. Круг & М.Файнзильберг)
+07. Ни слова о любви (гр. Круг)
+08. Ты сказала, поверь (гр. Круг)
+09. Нас жизнь не щадила (Что было, то было) (гр. Круг)
+10. Африка (гр. Круг)(   Читать дальше...   )Жанр: попПродолжительность: 01:14:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D06B321CCB9F8698B772FDE367F7E0EF4D7C44D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596851   (999560) от 05.01.2013
+
+Эдуард Хиль - Лучшие Песни (2CD) (2012) [MP3|320 кб/с]<ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999560.jpg" />
+</div>
+
+
+###  Подробнее
+
+СD 1
+01. Зима (Потолок Ледяной)
+02. Ходит Песенка По Кругу
+03. Человек Из Дома Вышел
+04. Как Скажи Тебя Зовут
+05. Не Плачь, Девчонка
+06. Гусары (Песенка Про Трубачей)
+07. А Туман На Луга Ложится
+08. Лесорубы
+09. Голубые Снега(   Читать дальше...   )Жанр: ретроПродолжительность: 02:22:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10F056C8C71BAB137032B12975FEAFEF829AD854
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 598119   (999577) от 05.01.2013
 
 Владимир Макаров - Последняя электричка (Звезды, которые не гаснут) (2002) [MP3|320 кб/с]<поп, ретро>
@@ -27,6 +202,8 @@
 ```bash
 magnet:?xt=urn:btih:9AF71C6C9E9080E02D848D73B6BEAC43BD17C367
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -61,6 +238,8 @@ magnet:?xt=urn:btih:9AF71C6C9E9080E02D848D73B6BEAC43BD17C367
 magnet:?xt=urn:btih:AB98326D62E4F92C195303028A03CBEB5F7491C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +272,8 @@ Celine Dion - The Best Of Celine Dion and David Foster (2012) [MP3|~245 кб/с 
 ```bash
 magnet:?xt=urn:btih:EE21AF0293E0F244F5B6514B93D1F6F1E1CAA59A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +308,8 @@ Dan Balan - All Hits In One Album (2012) [MP3|198-256 kbps] <Dance / Pop>
 magnet:?xt=urn:btih:DB49D56B1AA50EA592AA0BB554611A7D55E28B25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -159,6 +342,8 @@ VA - Italo 2000 Rarities (1998-2000) 3*2CD[MP3|320 кб/с]<Electronic , Italo-D
 ```bash
 magnet:?xt=urn:btih:42A8A73554A5096C721815C4A4940B58CB6F95EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +378,8 @@ Andy Williams - 16 Biggest Hits (2000) [MP3|320 кб/с]<Vocal Pop, Traditional 
 magnet:?xt=urn:btih:B7AB72EF277C5180D7D3A0AEA3B40FBCC58D48E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +412,8 @@ VA - The World Of Rock'n'Roll (2012) [MP3|320 кб/с]<Rock'n'Roll>
 ```bash
 magnet:?xt=urn:btih:1069DA3F698DDEA5EC604B7D11AE6C783C1E4DA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +448,8 @@ Dalida - Oh! La La (2012) [MP3|320 кб/с]<pop>
 magnet:?xt=urn:btih:665B41ABAE36AD1E43AEB49206BAB331D6A6BDAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +482,8 @@ VA - Best Italo Disco Hits Remixed (2007) 3CD Boxset [FLAC|Lossless]<Italo-Disco
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +518,8 @@ Guesch Patti - 3 альбома & 2 сингл (1992-2000) [APE|Lossless]<Pop, P
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +546,8 @@ VA - Acoustic Pop Songs 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop, Acoustic>
 ```bash
 magnet:?xt=urn:btih:66B20DC252288CF0C177538C886A1AC0E75264B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +576,8 @@ VA - 100 Greatest Singalong Songs (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Roc
 magnet:?xt=urn:btih:A4D4B813A1D01EFC3A750F43A63570CCB04D191B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +604,8 @@ VA - Acoustic 2020 (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Acoustic>
 ```bash
 magnet:?xt=urn:btih:28FB51F1E5FA8DE8157362DDBBBF167E1AFD6398
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +634,8 @@ a-ha - Memorial Beach (2015) 2CD, Deluxe Edition, RE. RM. [FLAC|Lossless|tracks 
 magnet:?xt=urn:btih:DD1EE60CB572B010E7B54F90945339FC15EDDFB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +662,8 @@ Ricky & The Rockets - Rock'n Roll Disco - 50 Non-Stop Rock'n'Roll Dancing Hits (
 ```bash
 magnet:?xt=urn:btih:B4C1B2E65931C0988C49F014B57CD3C706CCD953
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +692,8 @@ magnet:?xt=urn:btih:B4C1B2E65931C0988C49F014B57CD3C706CCD953
 magnet:?xt=urn:btih:CF4505BF7366CC9587574B2B111DA6DDE0A9176F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +720,8 @@ Fox & Promes - 2 Singles (1979) 7'' [MP3|320 Kbps] <Electronic, Disco, Funk Soul
 ```bash
 magnet:?xt=urn:btih:DA5664481522228A6173D5D5E0B3DE99BCD0A81A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +750,8 @@ Pin-occhio - Pinocchio Vai !! (1993) Digital Dig-it, 2012 [FLAC|Lossless|WEB-DL|
 magnet:?xt=urn:btih:393D727FE8EE487075885EAB58C7ED4CA3EECFAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +778,8 @@ Righeira - Reference 80 (2012) [FLAC|Lossless|image + .cue] <Italo-Disco, Europo
 ```bash
 magnet:?xt=urn:btih:E96363FAB7FADAFB212FE4C4F51C37A641587689
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +808,8 @@ Neoton Familia - Karneval (1998) [FLAC|Lossless|image + .cue] <Disco, Europop>
 magnet:?xt=urn:btih:063AB99A75BE998052E3EAFAFBF2F80BC1A76CBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,140 +836,7 @@ One-eyed Jacks - Falling (1991) [FLAC|Lossless|image + .cue] <Breaks, Ambient>
 magnet:?xt=urn:btih:01B7B59AA3F3E1C1A7AFA4B679FB16143CC77A59
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 145026   (1001518) от 12.01.2020
-
-Давид Тухманов - Золотая Коллекция / Семейный альбом (2008) [MP3|320 Kbps] <Ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001518.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Эти глаза напротив
-2. Видно, так устроен свет
-3. Капитан
-4. Белый танец(   Читать дальше...   )Жанр: РетроПродолжительность: 01:11:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B40248162B3716422DB66BE3B1FFE44B08264696
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351797   (1001638) от 12.01.2020
-
-a-ha - East Of The Sun West Of The Moon (2015) 2CD, Deluxe Edition, RE. RM. [FLAC|Lossless|tracks + .cue] <Electronic, Pop-Rock, New Wave, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/18. Early Morning (Early Version) (2:43)
-02/18. East Of The Sun (Early Version) (5:35)
-03/18. I Call Your Name (Instrumental Demo) (2:13)
-04/18. Slender Frame (Demo) (3:54)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, New Wave, Synthpop |Продолжительность: 01:19:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:749AFA4E504C88642A9BBC65D182AB02AAA63ABE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351563   (1001893) от 11.01.2020
-
-ICE MC - Cinema (2011) [FLAC|Lossless|image + .cue] <Hip-House, Pop Rap>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001893.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Cinema 3:48
-2 Scream 4:05
-3 Peace 3:51
-4 Gone With The Wind 4:47(   Читать дальше...   )Жанр: Hip-House, Pop RapПродолжительность: 01:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E337E0F09AF6166C7FC5CA0B5C6997F8C6659C08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351714   (1001916) от 11.01.2020
-
-VA - Acoustic 90s and 00s Covers (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Acoustic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo - Freed From Desire 3:05
-02. Shannon & Keast - Hey Ya! 3:14
-03. Meg Birch - Runaway 3:37
-04. The Shaken Bakers - 4am 2:46(   Читать дальше...   )Жанр: Pop, AcousticПродолжительность: 02:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D39FA40B6F24CAF138F08DD77350AA13158E964
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351743   (1001957) от 11.01.2020
-
-Heaven42 - The Rhythm Of Love (2017) [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001957.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Saturday Night 5:59
-2 Sinner 6:10
-3 Give Me Your Love 6:17
-4 Lost In Your Heart 3:52(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:02:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5466A280979A5D8BC12BE23C2938ABD726D12A6D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

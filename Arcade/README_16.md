@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:EF9D405E6F53461E0038B44D469EADCB069C7F1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ What the Fog (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:EF95F68F53DD62F9B1C43A061FC48D34DA1C76CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ We Need To Go Deeper - это игра в жанрах симулятор, ин�
 magnet:?xt=urn:btih:65E4ECDF84FB632EB490A53FC803BC4440BF57DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Heavy Storm Shadow (2024) [Ru/Multi] (1.043) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B151519069EA4C06A14CFC1477ED481183B76199
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Ruindog переносит вас в причудливое будущее, гд
 magnet:?xt=urn:btih:00B026490656F6F6BA4B6B50202C4168885C5C83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Gift (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F76D8329FFAEA9BEBE6BEA6E79E8EED39D992D12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Strongloween: The Escape (2024) [Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:83D19EF4470A6BCF0B1F1E65A2E0F2F510A4CDF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Ira (2023) [Multi] (1.0.10) License GOG
 ```bash
 magnet:?xt=urn:btih:EA0EE169B8EB5C72B799D0A6D1F2AE3D5F9F3E86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ MEGATON MUSASHI W: WIRED бросает вас в кабину гигантск�
 magnet:?xt=urn:btih:E06025633F0BAA990FF849EDEFF7AF9EDC04BB73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Wild Card Football - это веселый и простой аркадный с
 ```bash
 magnet:?xt=urn:btih:B24B2E263925199FE96BD63E5E777F69672CD698
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Project MIKHAIL: A Muv-Luv War Story (2024) [Multi] (1.0000.5178) Scene Tenoke
 magnet:?xt=urn:btih:41E6D912B8C5003894B264A32443634685FF630E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Trailmakers (2019) [Ru/Multi] (1.8/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:F0624861B5332EEFAE612B50FA994D94B938F9F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Teenage Mutant Ninja Turtles Arcade: Wrath of the Mutants (2024) [Multi] (1.0) R
 magnet:?xt=urn:btih:A808C7C6EC7688ED03B4DB734DF01532C374F60A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Strayed Lights (2023) [Ru/Multi] (1.4.0) License GOG
 ```bash
 magnet:?xt=urn:btih:E02E59A6D024B562EDBE3C60475F97C09E1917F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Jazz Jackrabbit (1994) [En] (2.0_csv2_patch_2/dlc) License GOG [Collection]
 magnet:?xt=urn:btih:0C9ACFB7445A3DD28FF3E9FBFFEBCCB011A4F1FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Teenage Mutant Ninja Turtles Arcade: Wrath of the Mutants (2024) [Multi] (1.0) S
 ```bash
 magnet:?xt=urn:btih:FE6A2195408FAB4A14936ECA7EA8365274BAAA18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Buccaneers! (2022) [Ru/Multi] (1.1.01) License GOG [VR]
 magnet:?xt=urn:btih:53662CD3FEEC096DB09ED6FBF91C2058274717A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ UFO Robot Grendizer - The Feast of the Wolves предлагает взять н
 ```bash
 magnet:?xt=urn:btih:128BA769692049559F663C33E3D0CB553A8A6EC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Omega Mouse Zero – настало время отправиться в уди�
 magnet:?xt=urn:btih:420B4492D02CBB6620C617F224E7A0A39290999C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Battle Planet - Judgement Day - топ-даун шутер, однако его 
 ```bash
 magnet:?xt=urn:btih:207041623F678EF7B8003A0D79F778014BD5685D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Goons: Legends & Mayhem - это увлекательная смесь хокк�
 magnet:?xt=urn:btih:2BED6B67714414D690B2680FC2AC8ACD9094C6AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Fights in Tight Spaces (2021) [Ru/Multi] (1.2.9501/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:6FF85EC917740573C2AC03E56A3C21008B1D67AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Death Noodle Delivery (2024) [Ru/Multi] (3.2.8) Repack FitGirl
 magnet:?xt=urn:btih:F1EEBD668BDFDBDAA5E06A992E3016A3A275EDD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ South Park: Snow Day! перенесет вас в хаотичный, засн�
 ```bash
 magnet:?xt=urn:btih:B1D1E304B1FEB423BA3D5E4B47954F916604257A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Shadow Strikers: Arena of Rivals - захватывающий файтинг, п
 magnet:?xt=urn:btih:CB0B08759973C72CD5DB835816BD32692B366090
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Gridrunner. Revenge of the Mutant Camels. Tempest 2000. Llamatron. В брита
 ```bash
 magnet:?xt=urn:btih:DD8DD9C189E0AF43D1C7C0E47D9767EC0427CD93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

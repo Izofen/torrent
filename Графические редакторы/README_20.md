@@ -19,6 +19,8 @@ Artensoft Photo Collage Maker – компьютерная программа, �
 magnet:?xt=urn:btih:6EA961F7E0559D309F78572147FF004464E10062
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Preps — это лидирующее в отрасли программное �
 ```bash
 magnet:?xt=urn:btih:3DE08A78BA57265503FBC332E1DDB47A9C419068
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ PhotoInstrument - мощный и лёгкий в использовании р�
 magnet:?xt=urn:btih:2FA8ECB852B528E3C2EEA9E43E5AF87EA234B3C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Panorama Factory - одна из лучших программ для соз
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Adobe Creative Pack 2017 (Unpack Version) by Azbukasofta [Multi/Ru]
 magnet:?xt=urn:btih:BF3E4E966FFFE99CE03E971EBA23641BD429BBF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Alien Skin Collection — сборник плагинов и графическ�
 ```bash
 magnet:?xt=urn:btih:9105A356EB48C986F74F894CDB61EAA90811FA93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ RonyaSoft Poster Designer 2.3.15 RePack (& Portable) by ZVSRus [Ru/En]
 magnet:?xt=urn:btih:B8982112C2D1F54A7998E573F2FFD95F0414621F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Serif PhotoPlus - профессиональное программное реш
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Redfield Fractalius 1.83 [Eng|Rus] RePack by  Stalevar
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Redfield Fractalius 1.83 [Eng|Rus] RePack by  Stalevar
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Gif Recorder состоит из двух приложений, Screen Recorder 
 magnet:?xt=urn:btih:1032CD7BAC36F4C7F63F04BB4091E52517C1B747
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Adobe Type Manager Deluxe 4.1 build 243 [En] Installed
 ```bash
 magnet:?xt=urn:btih:183C7582F92B1E56320FDB172815F819B502C490
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Simply Good Pictures — один из лучших автоматических
 magnet:?xt=urn:btih:94C01A56057C76F4DD38DE2E3450681BB4AB6F1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Mosaic Creator Pro 3.1.Build 348 [Multi/Eng]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Movavi Picverse - представляет собой один из самых �
 magnet:?xt=urn:btih:AC8662F33696E00F30A4831EB4C485A31BBE39B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Adobe Photoshop 2020 - новая версия программы для обр�
 ```bash
 magnet:?xt=urn:btih:582B9EDA364F9C42F1038ED488C9649B11C4B782
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ ACDSee Photo Studio Standard 2018 является многофункциона�
 magnet:?xt=urn:btih:7768B9EDAF1B377BD0C7E7F731229124548BE251
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Instagiffer 1.75 + Portable [En]
 ```bash
 magnet:?xt=urn:btih:DED2D1B7E6BF410F32E8F1BE29324D77482DC9FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Teorex Collection — сборник портативных, зарегистр�
 magnet:?xt=urn:btih:CCD7F5BEEC82CABF3652D615E4B83205EFD050CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Sothink Logo Maker - простой в использовании инструм
 ```bash
 magnet:?xt=urn:btih:B91F56213A3D264E89E3FE3A99A6BFE82610B942
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ TeoreX PhotoScissors - простой инструмент, позволяющи
 magnet:?xt=urn:btih:A526211B803A2B06BE82DC223CF13EF1F97E5BDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Kolor Autopano Giga — программа для создания фото-па
 magnet:?xt=urn:btih:73AE373FF76E61B7808818A277894BF0B48714DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +590,8 @@ Kolor Autopano Giga - одна из лучших программ для быс�
 ```bash
 magnet:?xt=urn:btih:BF5F0AF75ECBA56A13F74673629C4C1448C9EC06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ Bitwar Watermark Expert - это инструмент для исправлен�
 magnet:?xt=urn:btih:2034ED6270C2D2C19123C77B275BAA8445775B56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ Movavi Slideshow Maker – это простая и удобная програ�
 magnet:?xt=urn:btih:8BACFA8E9DE0645A8539EE4E1348D88F9F9029BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ PanoramaStudio, это графическая программа для созд
 ```bash
 magnet:?xt=urn:btih:6C639B5AADCEE3BA5F661D15426C61A9D9959187
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

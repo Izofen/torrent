@@ -1,3 +1,30 @@
+###  Публикация: 1457550   (1024191) от 27.03.2021
+
+Хрусталёв, машину! (1998) BDRemux [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024191.jpg" />
+</div>
+
+
+###  Подробнее
+
+В последнюю зимнюю ночь 1953 года московский истопник Федя Арамышев по дороге на работу соблазняется блестящей фигуркой на радиаторе пустого, засыпанного снегом «Опеля», стоящего на обочине.
+Откуда было знать бедному Феде, что из-за легкомысленного поступка он попадет в историю, связанную с «делом врачей», оперативными планами МГБ и высокой политики. Эта история (   Читать дальше...   )Производство: Россия, Франция / Госкино,  Canal+, Centre National du Cinéma et de l'Image AniméeЖанр: драмаРежиссер: Алексей ГерманАктеры: Юрий Цурило, Нина Русланова, Михаил Дементьев, Юри Ярвет, Генриетта Яновская, Александр Баширов, Дмитрий Пригов, Ольга Самошина, Александр Лыков, Виктор СтепановСубтитры: АнглийскиеПродолжительность: 02:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55A174094492F124EDB037E7721DB2B0419E97E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457873   (1024204) от 27.03.2021
 
 Гвоздь (2017) WEBRip [H.264/1080p-LQ]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:8DF748E66D6038E0CBBA06A68C029A2155C7FEFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ Love (2020) WEBRip [H.264/1080p-LQ] [PR]
 magnet:?xt=urn:btih:F70513E79BBD6DD7904B9AB9F1F5F01B053A8773
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +97,8 @@ magnet:?xt=urn:btih:F70513E79BBD6DD7904B9AB9F1F5F01B053A8773
 ```bash
 magnet:?xt=urn:btih:68E552B74CD273905EB35D642ACA9CB682A45FC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +124,8 @@ Love (2020) WEBRip [H.265/2160p] [10-bit]
 magnet:?xt=urn:btih:8BFA6FC37282B8C2D0BB8CE9B44E5892604ABE0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +149,8 @@ magnet:?xt=urn:btih:8BFA6FC37282B8C2D0BB8CE9B44E5892604ABE0C
 ```bash
 magnet:?xt=urn:btih:3A4814F618BDB4F34205527E76260C8B846AEE8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +177,8 @@ magnet:?xt=urn:btih:3A4814F618BDB4F34205527E76260C8B846AEE8B
 magnet:?xt=urn:btih:FE2A65B479B7A0EBCE06CD09AA7FA815B90AC184
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +202,8 @@ magnet:?xt=urn:btih:FE2A65B479B7A0EBCE06CD09AA7FA815B90AC184
 ```bash
 magnet:?xt=urn:btih:4CBAF4256A2BAA3D361E9BD9167FDBF6B5BFE477
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +229,8 @@ magnet:?xt=urn:btih:4CBAF4256A2BAA3D361E9BD9167FDBF6B5BFE477
 magnet:?xt=urn:btih:DF366CBDB3B2C66D4B97397A32E6ACCA48C1F8FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +254,8 @@ magnet:?xt=urn:btih:DF366CBDB3B2C66D4B97397A32E6ACCA48C1F8FC
 ```bash
 magnet:?xt=urn:btih:FDDE976FB48A4A76514599F2396AF9748D492B07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +281,8 @@ magnet:?xt=urn:btih:FDDE976FB48A4A76514599F2396AF9748D492B07
 magnet:?xt=urn:btih:6C8B4E5040033FA18BD24FA6B7BADBD0BB2C2B3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +306,8 @@ magnet:?xt=urn:btih:6C8B4E5040033FA18BD24FA6B7BADBD0BB2C2B3B
 ```bash
 magnet:?xt=urn:btih:767DE610DFDAC069FF8BAA768F960CC3CEAC8777
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +333,8 @@ magnet:?xt=urn:btih:767DE610DFDAC069FF8BAA768F960CC3CEAC8777
 magnet:?xt=urn:btih:A1D64F8A85DB1A4858B99A6E90C9743A1EB6B9B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +358,8 @@ magnet:?xt=urn:btih:A1D64F8A85DB1A4858B99A6E90C9743A1EB6B9B5
 ```bash
 magnet:?xt=urn:btih:7CCF0247226506FE66203FB74E47EB6336CE0719
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +385,8 @@ magnet:?xt=urn:btih:7CCF0247226506FE66203FB74E47EB6336CE0719
 magnet:?xt=urn:btih:A3F17B936BECC1A71DD4A8A0FC2D44DB562C2421
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +410,8 @@ magnet:?xt=urn:btih:A3F17B936BECC1A71DD4A8A0FC2D44DB562C2421
 ```bash
 magnet:?xt=urn:btih:54145B2C40CCE4F09C415B6A8F4F3073E4971FC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +437,8 @@ magnet:?xt=urn:btih:54145B2C40CCE4F09C415B6A8F4F3073E4971FC4
 magnet:?xt=urn:btih:00235AD78ECD7BCED545BA80932F35DF907A4019
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +462,8 @@ magnet:?xt=urn:btih:00235AD78ECD7BCED545BA80932F35DF907A4019
 ```bash
 magnet:?xt=urn:btih:C402527A61A313F83108E74B040A59A1A42E3363
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +489,8 @@ magnet:?xt=urn:btih:C402527A61A313F83108E74B040A59A1A42E3363
 magnet:?xt=urn:btih:C8FAEB3BB5E65B62B37DEDB061A96F0F3F587300
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +514,8 @@ magnet:?xt=urn:btih:C8FAEB3BB5E65B62B37DEDB061A96F0F3F587300
 ```bash
 magnet:?xt=urn:btih:822313B0359877A6AB01F62DEF98430809AC9909
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +541,8 @@ magnet:?xt=urn:btih:822313B0359877A6AB01F62DEF98430809AC9909
 magnet:?xt=urn:btih:3AC95C942D6E26047A7EE346CF5E6D90B9C526FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +567,8 @@ magnet:?xt=urn:btih:3AC95C942D6E26047A7EE346CF5E6D90B9C526FF
 magnet:?xt=urn:btih:902CAB4D2C8886C808085F43358CFA2F630CE5EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +592,8 @@ magnet:?xt=urn:btih:902CAB4D2C8886C808085F43358CFA2F630CE5EB
 ```bash
 magnet:?xt=urn:btih:B9CA15FFCDFB25A429D61B7204194E083892D636
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +620,8 @@ magnet:?xt=urn:btih:B9CA15FFCDFB25A429D61B7204194E083892D636
 magnet:?xt=urn:btih:DE1128AE4972174BC87FF7A64C1A34EEA4057BD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +645,8 @@ magnet:?xt=urn:btih:DE1128AE4972174BC87FF7A64C1A34EEA4057BD1
 ```bash
 magnet:?xt=urn:btih:B364CDD6E293494C2D12F60E05563BD5DF1A5C7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,29 +672,7 @@ magnet:?xt=urn:btih:B364CDD6E293494C2D12F60E05563BD5DF1A5C7A
 magnet:?xt=urn:btih:0CBD91059062CC3209FAAED601FF7E37A7CE6542
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454103   (1026471) от 13.03.2021
-
-Музыка крыш (2021) WEB-DL [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026471.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маша настроена спрыгнуть с крыши, она чувствует себя нелюбимой и преданной. Ее последнее желание - послушать любимую песню. В этот день в студии работает циничный радио-диджей Алекс. Короткий звонок на радио превращается в долгую беседу, и, похоже, только Алекс сможет спасти несчастную девушку до того, как песня закончится.Производство: Россия / Inferno ProductionЖанр: Мелодрама, драмаРежиссер: Андрей ЩербининАктеры: Илья Коробко, Татьяна Струженкова, Антон Мамин, Ирина Сычева, Анна Кучаева, Фаррух Жумаев, Иван Архипов, Ксения Архипова, Анна Кришталь, Елена СеменоваПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:21:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E5155A8B5668B0037CDAA31C55973887B357AE6
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

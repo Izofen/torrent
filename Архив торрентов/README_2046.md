@@ -19,6 +19,8 @@ pCloud - это Ваше личное облачное хранилище, гд�
 magnet:?xt=urn:btih:292FE8FD52DCB666D116026E3CB1814BDD0098DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Alaborn iClock — простая утилита, которая поможет 
 ```bash
 magnet:?xt=urn:btih:C87EBED67DD81E24EAD474E3C5D8FCF581740EF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Dropbox 15.4.22 [Multi/Ru]
 magnet:?xt=urn:btih:49B57610EA1424D4C22F65200361F10C901E2845
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:49B57610EA1424D4C22F65200361F10C901E2845
 ```bash
 magnet:?xt=urn:btih:EC784770A6C28F22EB218739F5BDFC4E97D3D442
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:EC784770A6C28F22EB218739F5BDFC4E97D3D442
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:EC784770A6C28F22EB218739F5BDFC4E97D3D442
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Textify — это крошечная утилита, позволяющая с�
 magnet:?xt=urn:btih:D78566802F2ECFF0312A79E6516FD5B908E6F043
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ YouTube By Click - отличный и удобный в использован�
 ```bash
 magnet:?xt=urn:btih:70991E2E05DE5B930FED70634BD719CA77516B17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:70991E2E05DE5B930FED70634BD719CA77516B17
 magnet:?xt=urn:btih:E4A0B51B6598829C879893EF0FFE488196F462A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:E4A0B51B6598829C879893EF0FFE488196F462A5
 ```bash
 magnet:?xt=urn:btih:92C25D8388978E6EC222F03F59B7F7F0170D79EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:A66F1E668B2D76387EC9B7FD4F8BBC02429ECB9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Light Image Resizer - программа для изменения размер�
 ```bash
 magnet:?xt=urn:btih:DFC7D090E2969E1985F6877A3487EF3237A4CED7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:DFC7D090E2969E1985F6877A3487EF3237A4CED7
 magnet:?xt=urn:btih:96BB5361185C4CA83E35C4C93D03165CF16D4F00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 magnet:?xt=urn:btih:F4CB7B40E6A93B8EE58EC6E44BC9386C40BC5A4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Sonic Entity - Primal Visions (2017) [MP3|320 Kbps] <Psy-Trance>
 magnet:?xt=urn:btih:CEE6B8ACED81D6E3867CA6FF8AD4244AE5984389
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:CEE6B8ACED81D6E3867CA6FF8AD4244AE5984389
 ```bash
 magnet:?xt=urn:btih:23EB725A228FA527602BC4BFAEC8B5B09CEC2E1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ Starsailor - All This Life (2017) [FLAC|Lossless|tracks + .cue] <Brit Pop, Indie
 magnet:?xt=urn:btih:5DB88CCC1A6FDB5016DB04BD18FF4B67A5A1C2C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:5DB88CCC1A6FDB5016DB04BD18FF4B67A5A1C2C7
 ```bash
 magnet:?xt=urn:btih:704E9A1B4BEECB90572464AE16CCCCDA436EBFAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ Blu Mar Ten - Empire State (2016) [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:18151DACA016E71CCD3159806DD105831C9B3C04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ AIDA64 - утилита является мощным средством для 
 ```bash
 magnet:?xt=urn:btih:7D0581E85B821CA6D678C8F909613A373C963E58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ Windows 10 x64 Release by StartSoft 37-2018 [Ru/En]
 magnet:?xt=urn:btih:D6F24E6E6E754BD34066E0971159858D7723CDE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:D6F24E6E6E754BD34066E0971159858D7723CDE0
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:D6F24E6E6E754BD34066E0971159858D7723CDE0
 magnet:?xt=urn:btih:64FEB94683F23FAAF4000D54443C5B9A8E6718B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:64FEB94683F23FAAF4000D54443C5B9A8E6718B9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ Palmary Collection - это элитная серия инструментов �
 ```bash
 magnet:?xt=urn:btih:624401E84D4055BD6C28D483FEB05FE34C52B468
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +682,8 @@ VA - Best Of 2018 (2019) [MP3|320 Kbps] <Psychedelic>
 ```bash
 magnet:?xt=urn:btih:AD67F806FE5A48632DF9018B7B50037BC565C096
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

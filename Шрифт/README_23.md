@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:BBD04895356396C6681D0BEF508AEF586E1CDE03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Valentine Romantic — это веселый, милый и невероятно
 ```bash
 magnet:?xt=urn:btih:4AE0AA120BEDA871CCF7D43317F3DF60C5837AEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:4AE0AA120BEDA871CCF7D43317F3DF60C5837AEA
 magnet:?xt=urn:btih:62243AAEDA861E600951D828231498EA753D5938
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ Row Vaticano — чистый и минималистичный шрифт бе�
 ```bash
 magnet:?xt=urn:btih:E79310F897B9C74BCACD795C2AD0A47FF5C99759
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:E79310F897B9C74BCACD795C2AD0A47FF5C99759
 magnet:?xt=urn:btih:277216046B02BDE09F3A83A3FD637D3913AD87EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ Qualion Round™ — мягкий геометрический шрифт без
 ```bash
 magnet:?xt=urn:btih:F0FFFBA77C856E55DE8145E61691383908153621
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +189,8 @@ DeMonte — это шрифт без засечек поколения милл�
 magnet:?xt=urn:btih:ED335F88550D0045A96F2BAD3C0AB65829189601
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ Damirone — элегантный дисплейный шрифт. Футури�
 ```bash
 magnet:?xt=urn:btih:D5E81531208DAC949D44A100D9F4323FA51F31E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +245,8 @@ magnet:?xt=urn:btih:D5E81531208DAC949D44A100D9F4323FA51F31E0
 magnet:?xt=urn:btih:E19EA7D680319B133235EF20FF9D7D91A1A9F00E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -254,6 +272,8 @@ magnet:?xt=urn:btih:E19EA7D680319B133235EF20FF9D7D91A1A9F00E
 ```bash
 magnet:?xt=urn:btih:ED6316FC7E356B9ED14953849174EDC8E0E4FDB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -281,6 +301,8 @@ Bw Fusiona привносит особый подход к контрасту с
 magnet:?xt=urn:btih:AC1BBAC3CEAEC70D4AFA45D5127695A25373D98A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ magnet:?xt=urn:btih:AC1BBAC3CEAEC70D4AFA45D5127695A25373D98A
 ```bash
 magnet:?xt=urn:btih:974671B65E4ABDC1B52C0B75042E172C1283F9CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -329,6 +353,8 @@ Quadline — это жирный шрифт без засечек, создан�
 ```bash
 magnet:?xt=urn:btih:A5D3CEF3F021D0930A926A3D9C9F1C43BB13B5DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +382,8 @@ Rocantic — это шрифт с засечками с элегантным и 
 magnet:?xt=urn:btih:5261177A0211C073C1604CA10088397463013D02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ Diella — это современный шрифт с засечками, ра�
 ```bash
 magnet:?xt=urn:btih:5A239269F1A857EBDAD5A5A390035F93ABC6F3DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +436,8 @@ magnet:?xt=urn:btih:5A239269F1A857EBDAD5A5A390035F93ABC6F3DE
 magnet:?xt=urn:btih:87BDA6D65466E9EE667439CE701B0CF0B2E46DFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +464,8 @@ Western Sage — смелый шрифт с засечками и яркими �
 magnet:?xt=urn:btih:75B1320BE243B93C461068D8C3B307998CB0D40F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +489,8 @@ Riveta — семейство шрифтов sharp, доступное в 18 с�
 ```bash
 magnet:?xt=urn:btih:666B8361E484F8314BEF7704AB32E29682BEAD6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +518,8 @@ Prayuth — это современный шрифт без засечек, со
 magnet:?xt=urn:btih:6FBCC1268AFB3FACE1F8163169FDE618EE060AE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +545,8 @@ Tragic Romantic — это шрифт, выполненный вручную к�
 ```bash
 magnet:?xt=urn:btih:85CE63D282D72AA5F09B84DC809F6F3FA439A5F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +574,8 @@ magnet:?xt=urn:btih:85CE63D282D72AA5F09B84DC809F6F3FA439A5F6
 magnet:?xt=urn:btih:6CA57F06805083E36D3EB695310702DE128B3A26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +600,8 @@ Calps — это сжатый шрифт без засечек. Непритяз
 magnet:?xt=urn:btih:CBCB1B1CBAB792CB4D61163DAE90BE070288A5F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ magnet:?xt=urn:btih:CBCB1B1CBAB792CB4D61163DAE90BE070288A5F0
 ```bash
 magnet:?xt=urn:btih:DFB4EDEE90A36F6C61160AC5DF45EBE24D42D7CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +654,8 @@ magnet:?xt=urn:btih:DFB4EDEE90A36F6C61160AC5DF45EBE24D42D7CA
 magnet:?xt=urn:btih:A5051E49ABE48E785F3323F249745318102ECC8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +682,8 @@ Flaco был разработан Бьорном Гогаллой и опубл�
 magnet:?xt=urn:btih:2A403D0615B14A258A4AE81B70A7860E3E126DB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +707,8 @@ Nsai — это минималистичный и аккуратный шриф�
 ```bash
 magnet:?xt=urn:btih:E493999DE609085EDB5A4D484CC15FBA5B391F94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ KURSK — первая документальная приключенческа
 magnet:?xt=urn:btih:7F1F74C729503EAE2BDDF48C5D04091B5B8A284C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Sakuna: Of Rice and Ruin (2020) [Multi] (1.0) License SKiDROW
 ```bash
 magnet:?xt=urn:btih:5F47C4B019C6BA19DEDCB69B5917D117BD46FE24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Celeste (2018) [Ru/Multi] (1.2.5.1) Repack R.G. Revenants
 magnet:?xt=urn:btih:DC15F342CF48B784081B6FCEE77CF17F3EBC9FEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Transport Fever - это железнодорожная экономическа
 ```bash
 magnet:?xt=urn:btih:F1D7E3068BA4405527A97315DD3E506EFC3D91E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ My Train Arrives – это симулятор строительства жел
 magnet:?xt=urn:btih:BEACEDA5CD7D2757A641327FEE36FF0915CF1A1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Witches' Legacy 7: Awakening Darkness (2015) [En] Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:84093E3D4AC9BF8F2E08B2C4050854FE3627927D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Tower Hunter: Erza's Trial (2019) [Ru/Multi] (2019.1.12) License GOG
 magnet:?xt=urn:btih:B30F9EB7BAF90CFC9CFE1630A59160600DB702BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Call of Duty: Black Ops (2010) [Ru] (0.305-05) Repack xatab [Collection Edition]
 ```bash
 magnet:?xt=urn:btih:B43D656D5C9FA7909E8052776A42A34C858E2CFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Transformers: War for Cybertron / Трансформеры: Битва за Ки
 magnet:?xt=urn:btih:6CE4FA6A23CE9F049789347D6EE6C63FE472B7B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Call of Duty: Black Ops - долгожданная седьмая часть Cal
 ```bash
 magnet:?xt=urn:btih:53639E842B58FD02773E3A544E893CF493238404
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Deadlight (2016) [Multi] (1.0) License GOG [Director's Cut]
 magnet:?xt=urn:btih:372CFC49215430A76E5ABB9FBB2F4EEB174EB8CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Still There (2019) [Ru/Multi] (1.05) License GOG
 ```bash
 magnet:?xt=urn:btih:8A045EBB3C9AB2D39974E352DC955D0CDFB7A074
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Transformers: War for Cybertron / Трансформеры: Битва за Ки
 magnet:?xt=urn:btih:39F5E1651610B56EBBF817E8A31806AD84951C57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Broken Sword: Shadow of the Templars (2010) [Multi] (1.0.744/1.6.0) License GOG 
 ```bash
 magnet:?xt=urn:btih:F1228321F0CCCACC8AE53E9F48A029A723E3B5F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Broken Sword 2: The Smoking Mirror (2011) [Multi] (3.4.3) License GOG [Remastere
 magnet:?xt=urn:btih:FEE93D9CFEEFB036918EF0E899A28F4ECB884D37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Deadfall Adventures – приключенческий FPS, действия к�
 ```bash
 magnet:?xt=urn:btih:E4EBD8BDD8F49FDB077882601E1FBFF235DE4042
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Command & Conquer Generals Zero Hour: World War II (2013) [Ru/En] (0.27) Repack/
 magnet:?xt=urn:btih:78F97A7E57DEFA810EAC20C9F4765594239A2827
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ BioShock - это приключенческий шутер от первого 
 ```bash
 magnet:?xt=urn:btih:321998D5A81D8D5DAFF6F1B00DA7A50F85072170
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Ashen – экшен-РПГ с открытым миром, что расска�
 magnet:?xt=urn:btih:BC4A49D2ED0426FD15DFCAE47C1CCEAB2F4BF65F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Sundered – ужасающая борьба за выживание и здра
 ```bash
 magnet:?xt=urn:btih:37AFA0448BFF19FC5EDCC212BA70639E768026CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ PES 2016 - официальная видеоигра Лиги чемпионов
 magnet:?xt=urn:btih:661951DAD05F8C6C61B7999B2CD25B8E10E434FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Arma Reforger - экшн, делающий огромный упор на реа
 ```bash
 magnet:?xt=urn:btih:CE0889009CEDE0FF661F0EC4F02EE2E97DF16D19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Death's Gambit — увлекательный 2D-платформер в жан�
 magnet:?xt=urn:btih:A7D8E7A81B18B7C8573B82C8C24FBB5880B02DD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Boiling Point: Road to Hell (2023) [Multi] (130759) License GOG
 ```bash
 magnet:?xt=urn:btih:DF2AC21777D0E3D6740B25B2151DB7EA9B55D0FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ The Kindeman Remedy, не похожая ни на одну другую упр�
 magnet:?xt=urn:btih:C07A5E96AC657FDB92639E9FFFB106223C6C7D6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Eternal Magic — бесплатная многопользовательска�
 ```bash
 magnet:?xt=urn:btih:68FCEBD1933661293743BDAC3688F11BA42A50B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

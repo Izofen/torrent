@@ -19,6 +19,8 @@ My Music Collection - это самый полный музыкальный ка
 magnet:?xt=urn:btih:54D0E383229E950B35E6CE662EDD6B5D625592E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Wireshark - бесплатный сниффер, предназначенный 
 magnet:?xt=urn:btih:45F4C486FE59933F8D48B4CDCA0BD5837AF24CD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ AirBrush: ИИ Фоторедактор v6.0.1 Mod by ImanAlien [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:485F455027CBB24C0DE8137E4523D801BBE11A5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Optimizer - утилита расширенной настройки, котор
 magnet:?xt=urn:btih:D38C590D2E7AE543409C3CCE45476CB65ACF05C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ XtraTools — это универсальный инструмент для оп
 magnet:?xt=urn:btih:24D9936B49584AED6995DA1CCDC90C4CE0095A7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ FontCreator - Редактор шрифтов FontCreator может созда�
 ```bash
 magnet:?xt=urn:btih:5447D3C418832BC33D4113F552DEC8EF229D02D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ OneCommander V3 — это современный файловый менедж�
 magnet:?xt=urn:btih:618B31B60C570793770277E8D4DA7BCEE1C9225F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:320AF98F2075D56BD8144C943DA79D88CA60702A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Brave - защищённый веб-браузер на базе Chromium, по�
 magnet:?xt=urn:btih:7BFB902747B7B84B21FC710D32660BE2707C1C40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ FastCopy - инструмент для быстрого копирования/�
 ```bash
 magnet:?xt=urn:btih:A30426A4F9713960FBA9F166F1FA4D1CE2CDDA73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Hex Editor Neo - мощный Редактор Шестнадцатеричны�
 magnet:?xt=urn:btih:B51F215B4D68F06E141D807583899317F2291689
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Android Studio - полностью укомплектованная платф�
 magnet:?xt=urn:btih:2AD33188DF0BAEF235052A9F5773DE3B84B29DF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Defender Remover Portable 12.6.4 [En]
 ```bash
 magnet:?xt=urn:btih:2D5EDE931546D086368C94AB52F1CCE8CD46789D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ DefenderKiller - удаление Windows Defender (Защитник Windows)
 magnet:?xt=urn:btih:E3BFDF8F5F3EDC064C42D4AFC3524868612F4EA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Megacubo - это бесплатный IPTV-тюнер для Windows, кото�
 magnet:?xt=urn:btih:61F54D02B526421E9ADADCFFB13B70BA2A97F199
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Microsoft Activation Scripts (MAS) 2.5 (01.01.2024) Portable [En]
 ```bash
 magnet:?xt=urn:btih:CD797EF6FF7CFEB153E91BEE330F4189515D9630
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ Windows 11 (v23h2) x64 HSL/PRO by KulHunter v2 (esd) [Ru]
 magnet:?xt=urn:btih:675326D0338B40FB08A748CA27870EF9CC342503
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ Opera GX - это специальная версия браузера Opera, с
 magnet:?xt=urn:btih:DC1EC3E0BAFF19E7C09D3C25FFD257F94D0A546C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Sandboxie - yтилита для контроля за работой разли
 ```bash
 magnet:?xt=urn:btih:F8B40B1C0F8883C5019D1D9F408BDB6358960B1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ Wireshark - бесплатный сниффер, предназначенный 
 magnet:?xt=urn:btih:E1649396086B916CED89E9E3D7F50CBCE3AF00E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:48E77575CEEF54FFEF120A15839C571CB64980A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ Wise Program Uninstaller 3.1.7.261 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:89135C2792FFBD7D55A3796E150973D087FF5D89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 magnet:?xt=urn:btih:8D313FE7747FCDFEFFB3EDD845ECD6B1768727E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ PhotoRoom v4.8.0 b1226 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:BEBE74E04C1B0A8E807809C3489F4275A4629B3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ simplewall 3.7.7 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:AF8C08F333477EF0EFF0F433299A8CB2552BBC51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:8BB46FC89E701FACC6B5DE9870B766ACD1495D35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

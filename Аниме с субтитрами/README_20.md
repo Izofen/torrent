@@ -19,6 +19,8 @@ Sword Art Online: Alicization | Мастера меча онлайн: Алиси
 magnet:?xt=urn:btih:7C8DEF3904097C7C29C955DC8A60CF0E6D006A1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Kabukichou Sherlock | Case File nº221: Kabukicho | Шерлок из Кабук
 ```bash
 magnet:?xt=urn:btih:7D291E0404D371CB3BE8F69AF78E425FF5A9C38F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Santa Company | Компания Санты [2014, Movie] BDrip 1080p raw
 magnet:?xt=urn:btih:13FD13680D2B4645D08E7A6B139807B548BF85B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Dogeza de Tanondemita | I Tried Asking While Kowtowing | Умоляя на ко�
 ```bash
 magnet:?xt=urn:btih:AD662131B4D0A4CC61AD526FA92F662ABE6CDC52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Kamisama ni Natta hi / The Day I Became a God / День, когда я стал
 magnet:?xt=urn:btih:F0407FB081BD4E9C0297604E940E0A2FA3908B0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Magatsu Wahrheit: Zuerst | MWZ | Бедствие Вархайта [2020, TV, 12
 magnet:?xt=urn:btih:3631A3D41E6BABA358B9C50A1122BBE32F07E453
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ Kouya no Kotobuki Hikoutai | The Magnificent Kotobuki | Пустынная эс�
 ```bash
 magnet:?xt=urn:btih:9A9355D082ED6E0FABECCC01BA1E970FEA381D8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Noblesse | Дворянство [2020, TV, 13] WEBRip 720p raw
 magnet:?xt=urn:btih:4F39CD3715B7958A3821400AA0B844088944A3ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Niji-iro Hotaru: Eien no Natsuyasumi | Rainbow Fireflies | Радужные св
 ```bash
 magnet:?xt=urn:btih:71B70B3CCD40DE71FDDCE9D913E043CC9EE00F2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Hachigatsu no Cinderella Nine | Cinderella Nine | Девять золушек в
 magnet:?xt=urn:btih:DD7A7DE0C928B94D0764F28DF074D9489217E1F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Vinland Saga / Сага о Винланде [2019, TV, 24] WEBRip 720p raw
 ```bash
 magnet:?xt=urn:btih:CA327D938D90EDE2BA95EEE0E9B8743AB8C84A9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ Saenai Heroine no Sodatekata Fine | Saekano: How to Raise a Boring Girlfriend.fi
 magnet:?xt=urn:btih:FA5093DE74F5EAF617E3DDDA05B21D7714551A7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Argonavis from Bang Dream! Animation | Аргонавис из "Ура мечт�
 ```bash
 magnet:?xt=urn:btih:23A58BB0471B2CEF429E710E2A1E28EF83EA0172
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ Idolish Seven: Second Beat! | Семёрка идолов (ТВ-2) [2020, TV, 15
 magnet:?xt=urn:btih:A89C6169431F977BF55771C758DD42B4C1951CD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Idolish Seven: Second Beat! | Семёрка идолов (ТВ-2) [2020, TV, 15
 ```bash
 magnet:?xt=urn:btih:F7424BCD47063CA8D25AD9C4C0771D20C58DE1DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ Shokugeki no Souma: San no Sara | Food Wars! The Third Plate | Кулинарн�
 magnet:?xt=urn:btih:329E0F3755229B0D1BD0A154A09AE535EDC65198
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Kaginado | Кагинадо | Key и всякое [2021, TV, 12] WEBRip 720p raw
 ```bash
 magnet:?xt=urn:btih:A7DF04056079B2CBAF4CB89A7AADAA51CC55E2FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ Taimadou Gakuen 35 Shiken Shoutai / 35-й учебный взвод Антима
 magnet:?xt=urn:btih:0B4B4DE172D6D370F974DFF70F927B01AA10DB91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Assassins Pride | Гордость убийцы [2019, TV, 12 эп.] WEBRip 720p
 ```bash
 magnet:?xt=urn:btih:6AB3AE813554D839089EECFA7C92E010C6EAC018
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ Rail Romanesque | Романтика рельсов [ТВ-1][2020, TV, 12 эп.]
 magnet:?xt=urn:btih:29A83389D3AD2FA13481B9E13C1D7DF4DDEC8BBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ Watashi, Nouryoku wa Heikinchi dette Itta yo ne! | Разве я не проси
 ```bash
 magnet:?xt=urn:btih:529D848C2719080BCDA29E18203F5F2BBC65F0EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Beastars | Выдающиеся звери [2019, TV, 12 эп.] WEBRip 720p raw
 magnet:?xt=urn:btih:A97F56B5A8C96789D0FA33BD5D0AC196D709FE6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Shoujo Shuumatsu Ryokou | Поход девочек после конца све
 ```bash
 magnet:?xt=urn:btih:487FAEA2EEF09E211A6EED9F8B5E090F321EE42A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ Kujira no Kora wa Sajou ni Utau | Children of the Whales | В песках по�
 magnet:?xt=urn:btih:1CDCDFE305584AC31E4F3E1F89E82191C98A3DC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Sengoku Night Blood | Ночная кровь эпохи Сенгоку [2017, T
 magnet:?xt=urn:btih:C1F200034BD3D2D7C901CF430CC695E72A223975
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Tenchi Muyou! Ryououki Dai Yon-ki / Тэнти - лишний! Рё-о-ки 4 [2
 ```bash
 magnet:?xt=urn:btih:F8BB62FC42A20AD4C877F5BF38070142E4434072
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

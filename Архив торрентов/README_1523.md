@@ -20,6 +20,8 @@ RadioBOSS - автоматизация радиовещания, озвучка 
 magnet:?xt=urn:btih:A892239F68B3AA67F41DC6851CCFCB416C773A30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:E82CD55E6954E1D4B7A69E5CB7DF758838AE35D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ UsbTreeView маленькая утилита, реализующая больш
 ```bash
 magnet:?xt=urn:btih:61C294679C17AD1C4FA2450A08BEA2CF1162EBB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Stemroller является полностью (   Читать дальше...
 magnet:?xt=urn:btih:76982F38ED42419705AC27230A4875522B91D6B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ SMPlayer - мощный мультимедиа проигрыватель, ко�
 ```bash
 magnet:?xt=urn:btih:38F7A5F838D0406E55D8E1D372D14C1EBF76265E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:38F7A5F838D0406E55D8E1D372D14C1EBF76265E
 magnet:?xt=urn:btih:F73CA14F7C4DCEA3A1700F4CC17C2A9AA10F9669
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ WinDjView Extended — это быстрая и удобная свободно 
 magnet:?xt=urn:btih:B69CED64C119EA7DE313D345492EDDEB305F2EFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Auslogics Anti-Malware предлагает дополнительную защ�
 ```bash
 magnet:?xt=urn:btih:E51611C95EAE5D3B0E5B387C5F2D915653BB95A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Joplin - это бесплатное приложение для создани�
 ```bash
 magnet:?xt=urn:btih:2D517075F9363BD85285E19C4D17462D4640E96F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ Media Player Classic - BE – универсальный проигрывате�
 magnet:?xt=urn:btih:CA9E422FEA551F116FA3F9C1B64909F0C0777C59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ R-Studio Network 9.2 Build 191161 RePack (& portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:93B9935E6B1BE8986653E22E815D3BC47640987C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ Total Commander 10.52 (08.01.2023) Portable by MiG [Ru/En]
 magnet:?xt=urn:btih:C3CC8AC0015BBC42E47864C56C2F5F6E539F7D62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ DxO PhotoLab Elite 6.2.0 build 103 RePack by KpoJIuK [Multi]
 ```bash
 magnet:?xt=urn:btih:AF92A4BCEBEF00C9376A01BAC7017705FD16EA8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ Process Monitor 3.95 RePack by KLASS [Ru]
 magnet:?xt=urn:btih:4DC967F72B51D1FEA7D1C606637458A4D116076E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ Paint.NET - Простой, но мощный и удобный редактор
 ```bash
 magnet:?xt=urn:btih:22BF9B602AF2A54D070673C11DC6757776B8F704
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ MathType - это мощный интерактивный инструмент, 
 magnet:?xt=urn:btih:F1224C39589C1E060DFED55A02C7A8EF2BB0A048
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ Opera One 100.0.4815.30 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F9BBD5FDE7B94640EB3F114913489D3A709B544C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ FxSound (ранее DFX Audio Enhancer) - отличное приложение,
 magnet:?xt=urn:btih:33DA7D0B8DC556504A387307684257DCD61BCA50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:DD9F3DDBF6FBBEA3AE2AA61A3C974953D9881915
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ CapCut - видеоредактор, что понравится поклонн�
 magnet:?xt=urn:btih:5992F20E77571E9EA6CBFF940BAE26A892069228
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Smart Driver Manager - это быстрый, простой и безопасн
 ```bash
 magnet:?xt=urn:btih:19BB7A9CEF3386671E5D7743D4410469D6DB9045
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ NVIDIA GeForce Driver — драйвера для видеокарт произ�
 magnet:?xt=urn:btih:AE26D33FF492265200D030431B09517E2967D3BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ W10Privacy - программа для изменения настроек си�
 ```bash
 magnet:?xt=urn:btih:9C176F9B9F7CBECAA71873ACF0718AF80298F50F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ foobar2000 - это аудиоплеер, подкупающий своим ве
 magnet:?xt=urn:btih:A798998984BB42387F39C095B78F7EF51CB65334
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ MetaProducts Offline Explorer Enterprise — мощнейшая программ
 magnet:?xt=urn:btih:8026E92AC11AD1626180CDF3E627377E8D849F5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Topaz A.I. Gigapixel — это первое и единственное при�
 ```bash
 magnet:?xt=urn:btih:B4B65910B455AE013E7244D19047533EBD8D53DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

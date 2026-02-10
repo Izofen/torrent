@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:7572D015A7B5CFE765A740032B6B9D493429AAF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Hafla is the third ECM offering from Siwan, an international musical project led
 magnet:?xt=urn:btih:9ABA220C0D1C6DC4A262EF2D88BE55F72A6A3851
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:9ABA220C0D1C6DC4A262EF2D88BE55F72A6A3851
 magnet:?xt=urn:btih:3689042F030915FB3D6F65BDD877A008F5C6F800
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:3689042F030915FB3D6F65BDD877A008F5C6F800
 ```bash
 magnet:?xt=urn:btih:5B03352529F3529A28EDD304105566DF52978B71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:5B03352529F3529A28EDD304105566DF52978B71
 magnet:?xt=urn:btih:0F8A2591470F08A82E71B19FC97E9B7F76F3F720
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:0F8A2591470F08A82E71B19FC97E9B7F76F3F720
 ```bash
 magnet:?xt=urn:btih:68F82488E8554F1A8ED95546BEC46EDA75D60D95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ Living Dead Girl - Exorcism (2021) Deluxe Edition, 2023, Buried Alive Records [F
 magnet:?xt=urn:btih:903528549CE04CA1320BE4C22C5DD6A5BAD4F5D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ Circus Maximus - Nine Live (2019) Japanese Edition [FLAC|Lossless|image + .cue] 
 magnet:?xt=urn:btih:5AA2071C4D8FD155BE8C444488496D923484334F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:5AA2071C4D8FD155BE8C444488496D923484334F
 ```bash
 magnet:?xt=urn:btih:9CA807CAFBC45039F91C9E54F49371D3A1834C39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ VA - Русская народная колыбельная песня (2001) [M
 magnet:?xt=urn:btih:BE5E9596586FD0BB5530B549F269A692FD89DC4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ Lee Shot William - Southern Soul Icon (2022) [FLAC|Lossless|WEB-DL|tracks] <Blue
 ```bash
 magnet:?xt=urn:btih:C0F05FDC2D3AF58FA5AB9DF7EA128861D991AC0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +326,8 @@ Wendigo - Темный ритуал (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk R
 magnet:?xt=urn:btih:08AB93B9A082A3C2374FFAC5913B4434B7651F80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ Symantec Endpoint Protection – антивирусная программа, в
 ```bash
 magnet:?xt=urn:btih:C29318E09BB83C58C325F20EF2807F21DDD872D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ magnet:?xt=urn:btih:C29318E09BB83C58C325F20EF2807F21DDD872D5
 magnet:?xt=urn:btih:976DFFFD81EF3E4B973B0DCBDED68D9D2B4B666D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ magnet:?xt=urn:btih:976DFFFD81EF3E4B973B0DCBDED68D9D2B4B666D
 magnet:?xt=urn:btih:8EEA1FE0856046FD0D766B46E7D364F3D2DCCD29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ magnet:?xt=urn:btih:8EEA1FE0856046FD0D766B46E7D364F3D2DCCD29
 ```bash
 magnet:?xt=urn:btih:167F6F9E668753B12312EEC38C806782263EA306
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +459,8 @@ Carmela Blues Trio - Blend (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Gospel>
 magnet:?xt=urn:btih:4AD38596D10C960CD48A9D84F50DB5D7E093D078
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ magnet:?xt=urn:btih:4AD38596D10C960CD48A9D84F50DB5D7E093D078
 magnet:?xt=urn:btih:22B2AE9F1C06E190B353B05F9F19C66236F296FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ magnet:?xt=urn:btih:22B2AE9F1C06E190B353B05F9F19C66236F296FD
 ```bash
 magnet:?xt=urn:btih:D8B451F34FCA843907D37B87C4D46DF88071A1BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +540,8 @@ Quinn Golden - Southern Soul Icon (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, R
 magnet:?xt=urn:btih:2860E80053DCDBCE8A78AEC76DEA260021F79FF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +568,8 @@ Fraction - Moon Blood (1971) Reissue, 2023, RidingEasy Records [FLAC 24/44.1|Los
 ```bash
 magnet:?xt=urn:btih:7E6BE4763BF603F1841D0AD24D92C9BD36FC4A3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +598,8 @@ Darken - Welcome To The Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power
 magnet:?xt=urn:btih:B275C8AE6E13030746EF0C16E8153E762032F7F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +627,8 @@ AcidMorph - Prometheus in Flames (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Gr
 magnet:?xt=urn:btih:B9C102878B04F7E6B3670B4A11F87084C228CAA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +652,8 @@ Victoria 5.34 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:872FE81A0DBD3D798DF64211DC46FB6A4954DF75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +681,8 @@ magnet:?xt=urn:btih:872FE81A0DBD3D798DF64211DC46FB6A4954DF75
 magnet:?xt=urn:btih:E63BAD12B1FE64B2CBCA8BC4DC3D99EC13DA582D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +709,8 @@ Acer Fury - Crazy King (2016) Compilation [FLAC|Lossless|image + .cue] <Heavy Me
 ```bash
 magnet:?xt=urn:btih:2709F58DD5DA9585BAD104EBDC6DBC8841745A9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

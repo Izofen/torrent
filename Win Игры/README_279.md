@@ -19,6 +19,8 @@ Gunfire Reborn - это приключенческая многоуровнев�
 magnet:?xt=urn:btih:5A4BA31579BE4D72F76991DAE0EA41FF734FC291
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Stronghold Crusader (2025) [Ru/Multi] (2.01/dlc) Scene Rune [Definitive Edition]
 ```bash
 magnet:?xt=urn:btih:9B7CCCB58E97F0F9970A34E9BBDE6A477A2D2018
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Niche, генетическая игра на выживание, свежая �
 magnet:?xt=urn:btih:9A66EE066122ABB7DA2C19AD90AD33F9FCF74582
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Lords of Ravage - это тактическая ролевая с элемент
 ```bash
 magnet:?xt=urn:btih:13815FF536598CA07F92E6EFD46FF7248D01FB12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ BALL x PIT - динамичный фэнтезийный рогалик, где 
 magnet:?xt=urn:btih:AA8607045BFC4B889762510621961CAFD1E1394F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Total War: Three Kingdoms - эта игра из популярнейшей ст
 ```bash
 magnet:?xt=urn:btih:1D718FF4E6FF762DFDCE46FB175AB80F98A135E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ The Crew 2 (2018) [Ru/Multi] (4060652/dlc) Repack seleZen
 magnet:?xt=urn:btih:1401B2B6A1F208B1A62F36120AFA687CF2ECEBF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Keep Driving (2025) [Ru/Multi] (1.3.1.0d) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:2A9DA71A609A63ECE3EACF655EE289E46EE1C228
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Spindle (2025) [Multi] (1.0.3) License GOG
 magnet:?xt=urn:btih:937EE4B099141ADCC0284E0679436B3D2B0700DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ SENRAN KAGURA SHINOVI VERSUS (2016) [Multi] (6) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:B22C8AD36A591B3D70E8D1BF43C0A5BB4E57E253
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Secret Agent HD (2021) [En] (1.0.5) License GOG
 magnet:?xt=urn:btih:8D520EDA5D761E88737DEF61AB64F7EF9361908C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Hike Isle предлагает игрокам отправиться в путе
 ```bash
 magnet:?xt=urn:btih:D5EDE0FD4E677979426E5C636753BD637CB76FE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Out Zone от Toaplan возвращается в строй и переполн
 magnet:?xt=urn:btih:A471EB42E853B315747B1EAC675B441F0C4D13BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Loretta - визуальная новелла, в которой предсто�
 ```bash
 magnet:?xt=urn:btih:BC0DB93218C2FEA282E3A83FAE7F8BDE5F4BDE44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Fox Girls Never Play Dirty – это японская ролевая игра �
 magnet:?xt=urn:btih:80823A2CBC4FD65813593D6369F953FD7696D859
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Dealer's Life 2 - симулятор дилера, показывающий бу
 ```bash
 magnet:?xt=urn:btih:FDE077513AF228373ADBC16342FBC27C035E1FAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Tahira: Echoes of the Astral Empire – это эпизодическая стр
 magnet:?xt=urn:btih:6BDF44D431351D2B5E31309387342C1BD5BA4429
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Dwarven Skykeep - стратегическая игра, в которой по�
 ```bash
 magnet:?xt=urn:btih:E96912F35239A9D1E0A6135B991214684E3CDF58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Skul: The Hero Slayer (2021) [Ru/Multi] (1.7.2) Repack ElAmigos
 magnet:?xt=urn:btih:BB497EF36AD2F953B522BAE4A348B044D97EF10D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Monster Hunter Rise: Sunbreak (2022) [Ru/Multi] (13.0.0.1/dlc) Repack DjDI [Delu
 ```bash
 magnet:?xt=urn:btih:856DFB342704FD4DA257EA2D362D5E40D976F8C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ The House of Da Vinci 3 (2022) [Ru/Multi] (1.0.1) License GOG
 magnet:?xt=urn:btih:512E602A2B97915391CA0C820D7A1A58F3061422
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Lust Academy Season 1 (2022) [Multi] (0.7.1f.002) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:09D4BB27AA6F119E6146B0BEAA215BD5809EFC3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Solstice - это пошаговая военная игра с меню, дей
 magnet:?xt=urn:btih:D6C787907FEFC7F142A789FFA90E146C27C2F5CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ City Legends 3: Ghost of Misty Hill / Городские легенды 3: Пр�
 ```bash
 magnet:?xt=urn:btih:8921EDCC2DCAA6C66E3609537F0F72301BDAD080
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Automobilista 2 – вторая часть гоночного симулято�
 magnet:?xt=urn:btih:61F506CC1077CD336521B310836C1761FA3C3BA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Bus Simulator 21 (2021) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:26FFA101374C539520649859F6265D84171794F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

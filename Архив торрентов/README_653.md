@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:1ED7DCA7CC7C55C44910516376838E3C56BF7EF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ VA - Cinema Of Consciousness 2 (2012) [MP3|192-320 kbps]<Psychedelic / Progressi
 magnet:?xt=urn:btih:83F15EFFAD576BA34D34ACA6D11FBF307CA13456
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:83F15EFFAD576BA34D34ACA6D11FBF307CA13456
 ```bash
 magnet:?xt=urn:btih:033F3054C823C9FBBF5C59CC97FF19F2DAF59768
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +115,8 @@ magnet:?xt=urn:btih:033F3054C823C9FBBF5C59CC97FF19F2DAF59768
 magnet:?xt=urn:btih:84EF4A85CE636CB09940EE91B8E62D55D5E9F410
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -132,6 +140,8 @@ magnet:?xt=urn:btih:84EF4A85CE636CB09940EE91B8E62D55D5E9F410
 ```bash
 magnet:?xt=urn:btih:6DE35115462E6E68FD53A15C6907CB6D2897BC9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +176,8 @@ magnet:?xt=urn:btih:6DE35115462E6E68FD53A15C6907CB6D2897BC9E
 magnet:?xt=urn:btih:7F51E6C1DF18B6E75B4F9889C3960E76B23CDDE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +202,8 @@ VueScan - программа для работы со сканерами. Мож
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +227,8 @@ VueScan - программа для работы со сканерами. Мож
 ```bash
 magnet:?xt=urn:btih:ABFBFEA25E9FB8ADD378F1D7F1639251024E6736
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +263,8 @@ VA - Зимний Топ 100 1 Русский (2012) [MP3|256 kbps]<Рор>
 magnet:?xt=urn:btih:358B3D046BC0C545296A7B184A0FD0FADD3822F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +297,8 @@ VA - Клубные новинки vol.2 (2012) [MP3|128-320 kbps]<Club, Electro
 ```bash
 magnet:?xt=urn:btih:B882F27974074C0D3276B82D04B0578532E7CE95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +333,8 @@ DJ Feel - TranceMission Top 25( Of January 2012) [MP3|320 kbps]<Trance>
 magnet:?xt=urn:btih:49B7CC9D64C5D6DAF3180429FF1EB8FB67A69C7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +367,8 @@ VA - US TOP 40 Single Charts (18.02.2012) [MP3|~201~272 kbps]<House, Club>
 ```bash
 magnet:?xt=urn:btih:F778722F28AF8E06A8FA950DF904DFE2B87693D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +403,8 @@ VA - Ночь Любви на Муз ТВ (2012) [MP3|256 kbps]<Pop | Dance>
 magnet:?xt=urn:btih:26C0F5E8CE4ED7D77FDC5E76E5044984092A0A84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +432,8 @@ Ephor - Maybe It`s You (2012) [MP3|320 kbps]<Drum & Bass>
 magnet:?xt=urn:btih:E14CCC812FFF4F6E700C176357A8133986964D2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +457,8 @@ magnet:?xt=urn:btih:E14CCC812FFF4F6E700C176357A8133986964D2E
 ```bash
 magnet:?xt=urn:btih:9AA32E90B1F3A2C5455E90202B2395095EA7075A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +484,8 @@ magnet:?xt=urn:btih:9AA32E90B1F3A2C5455E90202B2395095EA7075A
 magnet:?xt=urn:btih:700B1478687926868F1CBEBA7B58E2298A1C9CB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +509,8 @@ magnet:?xt=urn:btih:700B1478687926868F1CBEBA7B58E2298A1C9CB9
 ```bash
 magnet:?xt=urn:btih:0D50116FC353F62652A2F68E597A8C9AD7055FFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +545,8 @@ Kalapana - Kalapana II (1976) [MP3|320 kbps]<Funk, pop>
 magnet:?xt=urn:btih:6AAA4575137687B41D419BDCEE387CFEE6B0A011
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +570,8 @@ magnet:?xt=urn:btih:6AAA4575137687B41D419BDCEE387CFEE6B0A011
 ```bash
 magnet:?xt=urn:btih:F0BB22B41907967275C6DC5981A7D000DD6B232B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +597,8 @@ magnet:?xt=urn:btih:F0BB22B41907967275C6DC5981A7D000DD6B232B
 magnet:?xt=urn:btih:7360C2FFC6A03A630B0396E2B6BF34093F887CC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +622,8 @@ magnet:?xt=urn:btih:7360C2FFC6A03A630B0396E2B6BF34093F887CC9
 ```bash
 magnet:?xt=urn:btih:0BFD8FEC3D06268C9BEA30491B4B27EA8D4B6BF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +649,8 @@ magnet:?xt=urn:btih:0BFD8FEC3D06268C9BEA30491B4B27EA8D4B6BF4
 magnet:?xt=urn:btih:F3FAB39BB27C607EF0A1D859C8047BB68EE9D2E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +674,8 @@ magnet:?xt=urn:btih:F3FAB39BB27C607EF0A1D859C8047BB68EE9D2E0
 ```bash
 magnet:?xt=urn:btih:BEE89F406080635A5EC543D452C3E7FA73CF79B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -656,6 +702,8 @@ magnet:?xt=urn:btih:BEE89F406080635A5EC543D452C3E7FA73CF79B9
 magnet:?xt=urn:btih:3A93F86F6BFA783CAD8875D82BCCD6927CACD67C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -680,6 +728,8 @@ magnet:?xt=urn:btih:3A93F86F6BFA783CAD8875D82BCCD6927CACD67C
 magnet:?xt=urn:btih:1B1469CAD24CA1C65069734E73452BB1EE126C15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -703,6 +753,8 @@ magnet:?xt=urn:btih:1B1469CAD24CA1C65069734E73452BB1EE126C15
 ```bash
 magnet:?xt=urn:btih:E588FA41C206E77F8309BF656B66A1612ABF7D85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

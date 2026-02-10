@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:52A2B9C888F5EDEDD794A70124F68C791F6FF565
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ CherryTree - функциональная программа, которая п�
 magnet:?xt=urn:btih:0A514CFEC67F5EC804496F718DD4FD2D2C19ED48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ OfficeSuite Pro + PDF - это полнофункциональный офисн
 ```bash
 magnet:?xt=urn:btih:440ADAE04ADC38BA5166135F348D9D6130E3D6C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Balabolka 2.15.0.851 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:D6DA46004F806BBFA57188C9D99264C59FF05A0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ VMware Workstation — известная программа для создан
 ```bash
 magnet:?xt=urn:btih:5C6BC69C04FC913EFC9E1CF82A733F8AEDC8E151
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Kdenlive - бесплатный нелинейный видеоредактор,
 magnet:?xt=urn:btih:B42CD59181870FAB1B86DD765CCA4B26D5B9FF35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Windows 10 21H2 (19044.1889) x64 (6in1) by Brux [Ru]
 ```bash
 magnet:?xt=urn:btih:20C8A8E2364E19139FCC5C2AB65DE1FF3618A1DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Adobe Acrobat Reader - знаменитое приложение названи�
 magnet:?xt=urn:btih:4F1817D73CD1D3D26C6393547FFAAF1E84C18AA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:4F1817D73CD1D3D26C6393547FFAAF1E84C18AA0
 ```bash
 magnet:?xt=urn:btih:81626EB795ABEC82BDF820E00B6C0D48A0A31DE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ MX Player Pro 1.63.6 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:659015629779859019F673C3F2A7602B869DEC46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Shotcut - мощное кроссплатформенное приложение
 ```bash
 magnet:?xt=urn:btih:359755039A3EF53958ABB7D8DAA13D70DD605FAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ MediaHuman YouTube Downloader 3.9.9.83 (2406) RePack (& Portable) by elchupacabr
 magnet:?xt=urn:btih:79600B8FF9A62E88013B1274F86D49EDC19856E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ PlayerPro Music Player - аудиоплеер, что предоставляет
 ```bash
 magnet:?xt=urn:btih:F4CAFBE3A0C98E02E1025F118AE565973754344C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Duolingo: изучай языки 5.109.4 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:A928A3ECB9D1FCA343694A149F767C569F5DD80D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Always On Edge - отличный проект для персонализаци
 magnet:?xt=urn:btih:56D2A4EF6B7C0C4884FDE23CE9B0CCDFD9619A1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Master PDF Editor — простая, но эффективная програм
 ```bash
 magnet:?xt=urn:btih:3EC3FC92F5CA68200A68EF85816526D74ED161F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Pixelmator Pro — это невероятно мощный, красивый и
 magnet:?xt=urn:btih:B44115898B1381BB5A90A1BD663F138C23FAB74E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Office Tool Plus - функциональная программа для раб
 ```bash
 magnet:?xt=urn:btih:72E820EC590372A1FCFDA666AC1312758BF640BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ W10Privacy - программа для изменения настроек си�
 magnet:?xt=urn:btih:22131683E9BBF648A5A9CCF04D1EA0B0CA0600C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ CCleaner - это самая популярная программа на ПК �
 ```bash
 magnet:?xt=urn:btih:AAA0BBB591A0B146E1DD8A7BB2EA9BEA3DB2945E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ Paint.NET - Простой, но мощный и удобный редактор
 magnet:?xt=urn:btih:C02A71B4A6E8FC7B18E8EFEBA89BAEDB9131A8FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ WPS Office - очень полезное приложение для любог�
 ```bash
 magnet:?xt=urn:btih:F08330448DDE4A88908F1020547A8C701DCD1940
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Live версия дистрибутива Simply Linux (Симпли Линук
 magnet:?xt=urn:btih:693B398B04C9482B882990025F35DAC445D5E40C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ pdfFactory Pro - удобное приложение, представляюще
 magnet:?xt=urn:btih:50243B537231E590712610146F83085FFE5F1F48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ OnlySwitch предоставляет серию тумблеров/перекл
 ```bash
 magnet:?xt=urn:btih:1E4E9FEA42B1F6EE1B96A0814837D60218A9AD2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +675,8 @@ PhotoMill X (aka Reformator) помогает Вам преобразовать 
 ```bash
 magnet:?xt=urn:btih:A8F7F74DE8FDB308E134C9E34710E5D6F0C77FD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

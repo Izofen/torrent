@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:70D0F28E6FCD842B4CCD64F1121FA2382A9EC169
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:70D0F28E6FCD842B4CCD64F1121FA2382A9EC169
 ```bash
 magnet:?xt=urn:btih:820D3CDB72D4BE61B590F3F9C6F4B231A13DABC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Dark Matters - Fallen Feathers (2011) [FLAC|Lossless]<Electronic, Downtempo, Lou
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Dark Matters - Fallen Feathers (2011) [FLAC|Lossless]<Electronic, Downtempo, Lou
 ```bash
 magnet:?xt=urn:btih:48449603A3B876888F6099FBE5CFA843F1D6E0F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -132,6 +140,8 @@ Sunstryk - Pure Essence (2010) [FLAC|Lossless]<Psy-Progressive>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +172,8 @@ Autopoiesis - Cytherean Dreams (2002) [MP3|192 Kbps] <Electronic, Berlin School,
 magnet:?xt=urn:btih:AD7028CD4C067E17FA43C1C78EE19F19997648E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +199,8 @@ magnet:?xt=urn:btih:AD7028CD4C067E17FA43C1C78EE19F19997648E6
 ```bash
 magnet:?xt=urn:btih:71D49F09C2DA4AF7BD2AD81E62635338BA7A7C72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +228,8 @@ magnet:?xt=urn:btih:71D49F09C2DA4AF7BD2AD81E62635338BA7A7C72
 magnet:?xt=urn:btih:CD3B7390498D2A93CF625868DE3619F50FF07A62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +254,8 @@ magnet:?xt=urn:btih:CD3B7390498D2A93CF625868DE3619F50FF07A62
 magnet:?xt=urn:btih:4B66EADB900CC539C7651F5A565B2FCC076F63FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ magnet:?xt=urn:btih:4B66EADB900CC539C7651F5A565B2FCC076F63FF
 ```bash
 magnet:?xt=urn:btih:22F121CE19B8076DFD7C6F424008B1E6B49F95CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +307,8 @@ magnet:?xt=urn:btih:22F121CE19B8076DFD7C6F424008B1E6B49F95CB
 magnet:?xt=urn:btih:9985C5D1B1B441A2EAEC5028A63F77116327DF09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +332,8 @@ magnet:?xt=urn:btih:9985C5D1B1B441A2EAEC5028A63F77116327DF09
 ```bash
 magnet:?xt=urn:btih:55DE87905A139F4FF141E4602AFB511D51A3E182
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +360,8 @@ magnet:?xt=urn:btih:55DE87905A139F4FF141E4602AFB511D51A3E182
 magnet:?xt=urn:btih:FDDB0D01D6AC94582C3AD92432536B21CECA403A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +386,8 @@ magnet:?xt=urn:btih:FDDB0D01D6AC94582C3AD92432536B21CECA403A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +418,8 @@ The Dwindlers - Allegories (2012) [MP3|~245 Kbps (V0)]<Ambient,Female vocal, Ele
 ```bash
 magnet:?xt=urn:btih:AC9C5B5A95C6BFDC609114DCF23EA07CC580CABC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +454,8 @@ VA - Взрывной хит-парад Весна (2012) [MP3|256-320 кб/с]<
 magnet:?xt=urn:btih:B1675603B457D1A2F443004ADFB5641905705754
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +489,8 @@ magnet:?xt=urn:btih:B1675603B457D1A2F443004ADFB5641905705754
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +518,8 @@ magnet:?xt=urn:btih:B1675603B457D1A2F443004ADFB5641905705754
 magnet:?xt=urn:btih:3324C0EF0D5818375E0EAD01B668C77A5678E1FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +545,8 @@ magnet:?xt=urn:btih:3324C0EF0D5818375E0EAD01B668C77A5678E1FB
 ```bash
 magnet:?xt=urn:btih:CABB4C349D84AE7675C80ED08239BB2E279D1DF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +581,8 @@ Doro - B-sides & Rarities (2007) 2CD /2007, No Remorse Records/[FLAC|Lossless]<H
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +606,8 @@ Doro - B-sides & Rarities (2007) 2CD /2007, No Remorse Records/[FLAC|Lossless]<H
 ```bash
 magnet:?xt=urn:btih:44931C6C148394E0879EBD87A903796C0319CAD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +634,8 @@ magnet:?xt=urn:btih:44931C6C148394E0879EBD87A903796C0319CAD9
 magnet:?xt=urn:btih:3F1F794BE95FAC968964AF12216C29ED8CB15013
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +661,8 @@ magnet:?xt=urn:btih:3F1F794BE95FAC968964AF12216C29ED8CB15013
 magnet:?xt=urn:btih:20655878B7E59F236E3C4FB187F6CEB5DD8939E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +686,8 @@ VA - Ultimate Dance & Trance Vol.1 (2012) [MP3|320 кб/с]<Dance, Trance>
 ```bash
 magnet:?xt=urn:btih:DE579BBB11D063D33410519B0F0A366885581E96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -671,6 +719,8 @@ MoShang - Further East (2010)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -704,6 +754,8 @@ VA - Trance Maniacs Party: Uplifting Breeze #35 (09.03.2012) [MP3|320 кб/с]<U
 ```bash
 magnet:?xt=urn:btih:A26EC58227567707DE17952FFDAA0E6826A28104
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

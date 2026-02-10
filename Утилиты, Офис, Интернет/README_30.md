@@ -19,6 +19,8 @@ MAX Desktop 25.12.0 [Ru]
 magnet:?xt=urn:btih:BD3115D611CF0BB8E77EEC660E0896DCA18176D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ VCap Downloader (VCapDL) – это универсальное программ�
 ```bash
 magnet:?xt=urn:btih:86BC73726BC34A963BFD92FA1A0585710CFCBF36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Windows Auto Dark Mode X 10.4.1 Maintenance Release [Multi/Ru]
 magnet:?xt=urn:btih:EC093DE08521701761E4372AEA3644EDEA027A83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Speccy – компактная программа от разработчико
 ```bash
 magnet:?xt=urn:btih:70909BBDF4981AA02FAE335708FA50CF0602A86B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ WinDynamicDesktop 5.5.0 [Multi/Ru]
 magnet:?xt=urn:btih:92B87E90328F0D03D4D0E5F8F7134586FD48361D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Process Monitor 4.01 [En]
 ```bash
 magnet:?xt=urn:btih:09919F9D5DA69B1BA4FAA711EC3ACB1031C4D4AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Error Lookup - небольшая утилита для получения ин�
 magnet:?xt=urn:btih:8934AD8F6A83406BC2EF3AE83338F1754525907E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ PowerOff - программный выключатель компьютера. �
 ```bash
 magnet:?xt=urn:btih:AE1C782CEE7AAA32182F60EA03C9E5785424436F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Windows and Office Genuine ISO Verifier - компактная утилита д
 magnet:?xt=urn:btih:FDC1D74FB9C1910A3214FACCAFEACBE7C3EE4B56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ KeePassXC — программа для управления паролями. �
 ```bash
 magnet:?xt=urn:btih:1D7781E8F696A9F982EF827B4C6B34F060CDAC33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ Abelssoft Win11PrivacyFix - позволяет включать и выключ�
 magnet:?xt=urn:btih:90AB60A329D27207A32575800AEEBC0B8526DFEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ SpeedyFox - небольшая утилита для популярных бра
 ```bash
 magnet:?xt=urn:btih:4BD0D58B1FD5B0473E12BB11212FD7BE100BB501
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ Waterfox — это браузер, основанный на исходном �
 magnet:?xt=urn:btih:D62A71D21D35936DC34B39527A172AEAFA5A1BA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ AntiPlagiarism.NET - инструмент, позволяющий исследо
 ```bash
 magnet:?xt=urn:btih:C31DB1C66946345B0ABC1B733BC72693BC256A22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:C31DB1C66946345B0ABC1B733BC72693BC256A22
 magnet:?xt=urn:btih:1DE363B59BF77CB0DA4562C04C2E874C73C182C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Change MAC Address – программа, с помощью которой мо
 magnet:?xt=urn:btih:A923C249856AA845291130690E04D066E98FAB9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Ashampoo WinOptimizer - новая линейка пакета программ,
 ```bash
 magnet:?xt=urn:btih:1A0B0E3AB5F17A7877E2B397DB2ED82F3FDD6C4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Folder2Iso - небольшая бесплатная утилита, котор�
 magnet:?xt=urn:btih:FFDDF13453D9508A1AEC508D1A30081F6C548EDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:B0172B48590CBC693907F7C12EB79D08D44DFCE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Ungoogled Chromium - версия веб-браузера Chromium без инт
 magnet:?xt=urn:btih:C4B6B12DC1F3FA7B588324F7AAD2780061F0E4FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ KeePass Password Safe - удобный менеджер паролей. Хран
 ```bash
 magnet:?xt=urn:btih:7C4AF9E9B0C788280F626417F27882DE754F9F05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ FanCtrl — это программное обеспечение, которое
 magnet:?xt=urn:btih:8422CF8039E57AC1C3E3B0DDCE274303E886F21F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ QuickTextPaste 8.83 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B531E5D1815D6D727446F95C2E48F69C944B2DCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ UninstallView - это инструмент для Windows, который со�
 magnet:?xt=urn:btih:7E1E503EAB8CC6555A99C4B59233D31B59B63E18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:7E1E503EAB8CC6555A99C4B59233D31B59B63E18
 magnet:?xt=urn:btih:461930AE6D1817899692EED9502D6D9375DA511E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ cFosSpeed - высокопроизводительный сетевой драй
 ```bash
 magnet:?xt=urn:btih:5E1E9FB761904ABA632D17D1BC9FCA02B46085B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

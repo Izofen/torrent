@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:1ED06E57ADC196630C9D8DA43266A3445A70D811
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:1ED06E57ADC196630C9D8DA43266A3445A70D811
 ```bash
 magnet:?xt=urn:btih:6DD4A9A21AB36E30765629F9FAF41BF8113AB8A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ X Typewriter - это моноширинный шрифт под пишущую 
 magnet:?xt=urn:btih:EEB7919D8E0656E33EB3819F78C507B14A2DA1F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ Kurland - это нарисованный от руки шрифт. Содерж
 ```bash
 magnet:?xt=urn:btih:B6B3D9059B610ED7B87A7FF5334C011862DA2CBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:B6B3D9059B610ED7B87A7FF5334C011862DA2CBC
 magnet:?xt=urn:btih:1575F79D27ECEEF4EABEEDCB4C97D937959321D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ Artavion Mono — современный моноширинный шрифт, п
 magnet:?xt=urn:btih:EE184D28F0EFDA880B5280B975834512790D8F05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ Aquinas звучит как прекрасный шрифт! Сочетание 
 ```bash
 magnet:?xt=urn:btih:E2C0AEADAEC8EA880F422E52DDE36013E78D8674
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ Reals Paradisen — это классическое и стильное семе
 magnet:?xt=urn:btih:1249767912273820465C2EDE8BEAF4C51CA130AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ Modista Pro — это элегантное и современное семей
 ```bash
 magnet:?xt=urn:btih:600E994BF7EF8172965C5A2E54B8BBC769AB9534
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:600E994BF7EF8172965C5A2E54B8BBC769AB9534
 magnet:?xt=urn:btih:AC0714DF5B9AAA5F36FF9FD8D6AF483F6EEBC52B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ Justinia вдохновлён старинным шрифтом Jenson, но с 
 ```bash
 magnet:?xt=urn:btih:2530870A2AA644D25425C2475306899544F18288
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ ADOBE, Barcode, COREL, Eexotic, EKoi-8, Enormal, Escript, FE, Pict, RExotic, RNo
 magnet:?xt=urn:btih:8EEFB8E69000F71CA9D6925E66A420FAD08C5C26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ Optrix — изысканный шрифт с засечками, призван
 magnet:?xt=urn:btih:46B61E030FF225A88C904A5D9E626478E5851EB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:46B61E030FF225A88C904A5D9E626478E5851EB4
 ```bash
 magnet:?xt=urn:btih:8FE0CA303E1FFC3438DF93B0AC1787D725110B6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ Oracle состоит из двух семейств, которые зарод�
 magnet:?xt=urn:btih:38FD1E75F1F5CD76CA133EE25D919355D66A5934
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ Castelforte поддерживает более 230 языков (   Читат
 ```bash
 magnet:?xt=urn:btih:31282C16388DEDD381EE4B8AF59656E5B2876699
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:31282C16388DEDD381EE4B8AF59656E5B2876699
 magnet:?xt=urn:btih:9641C34AA16C1EA9A4C238E93BBAC42DC6426A32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ Clarika — это геометрический шрифт без засечек
 ```bash
 magnet:?xt=urn:btih:E14E5FF0E7AE9A23E01D7E986AF2F1A0AFAE4A4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ Badnick — одно из наших крупнейших семейств шр�
 magnet:?xt=urn:btih:F539C0AA26E243EB118598C3EC87827DD54B332E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:F539C0AA26E243EB118598C3EC87827DD54B332E
 ```bash
 magnet:?xt=urn:btih:F129C83029DBE122B6A085BBCCB4EA6737ED494C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +557,8 @@ Sildetas — элегантный шрифт с высокой контраст�
 magnet:?xt=urn:btih:DF1561BD25D80C4AB97B3E2EE289A019BDC5F5F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ magnet:?xt=urn:btih:DF1561BD25D80C4AB97B3E2EE289A019BDC5F5F6
 ```bash
 magnet:?xt=urn:btih:36F4A2F222C8A19EE9F11725753CD04C3EA41DCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +609,8 @@ Tactical — это всего лишь шрифт, пропитанный те�
 magnet:?xt=urn:btih:40779B6C5F333BCF9BE2816968194157E235EA57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ magnet:?xt=urn:btih:40779B6C5F333BCF9BE2816968194157E235EA57
 ```bash
 magnet:?xt=urn:btih:A0A641BB7A59DF989F55B74F49A05476AB894FB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:A0A641BB7A59DF989F55B74F49A05476AB894FB8
 magnet:?xt=urn:btih:4FD5CD2ADE8FE4C04B760F929DEDC0688485F65E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ magnet:?xt=urn:btih:4FD5CD2ADE8FE4C04B760F929DEDC0688485F65E
 ```bash
 magnet:?xt=urn:btih:42BCDFF97DC144CB93F12D4EA2F1C618DAEEDBEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:F194813070C6C2CE88E10B1B8419370F9E08FD10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Oceans - Is Where The Heart Is (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal,
 magnet:?xt=urn:btih:06EB5C43865069642C61FD52374FAC4516BD1F7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:06EB5C43865069642C61FD52374FAC4516BD1F7C
 magnet:?xt=urn:btih:0630FAC92B940FD97B0F19F9F9554487C8311469
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:0630FAC92B940FD97B0F19F9F9554487C8311469
 ```bash
 magnet:?xt=urn:btih:E5DFC0E4981AA5D3236D7DC4E8161824F60465ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:E5DFC0E4981AA5D3236D7DC4E8161824F60465ED
 magnet:?xt=urn:btih:A0338384C71510A0DA3DD8D4E842854FA9B9C412
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:A0338384C71510A0DA3DD8D4E842854FA9B9C412
 ```bash
 magnet:?xt=urn:btih:3DD547BFEC5950A796FCBEB3E89895821EBB0495
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ infostart, Александр Кунташов | Системы контроля
 ```bash
 magnet:?xt=urn:btih:4E101257A9378A25496FFB56ADA9BFDA95D05FAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:4E101257A9378A25496FFB56ADA9BFDA95D05FAF
 magnet:?xt=urn:btih:EC6A074939CD9E22EA35588B11D65A4A3D13D9A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:EC6A074939CD9E22EA35588B11D65A4A3D13D9A3
 ```bash
 magnet:?xt=urn:btih:C33D0729A235DE7EFBA8367AD52A0B99DE1BDBE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ FoN - Мамонт (2022) [MP3|320 Kbps] <Rock, Blues>
 magnet:?xt=urn:btih:32C3E658ED46C22DADEF017D42DCAC5D27651F37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:32C3E658ED46C22DADEF017D42DCAC5D27651F37
 ```bash
 magnet:?xt=urn:btih:4573533731298F7A245D7D9AB48D28C4D9363999
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ Grim Justice - Justice in the Night (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 magnet:?xt=urn:btih:11895AEB9ED41266263FC8A78A12523ECF393DCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ magnet:?xt=urn:btih:11895AEB9ED41266263FC8A78A12523ECF393DCF
 ```bash
 magnet:?xt=urn:btih:A673568EA5BA220B7D45B5B702CA57FD51CEA766
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:A673568EA5BA220B7D45B5B702CA57FD51CEA766
 ```bash
 magnet:?xt=urn:btih:92C29E01E0C5D21D4E2DAC809061CEC425B3CFE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +405,8 @@ Malemort - Ball Trap (2016) [FLAC|Lossless|tracks] <Heavy Metal, Rock>
 magnet:?xt=urn:btih:F348611BA24F96918BA6073FD88FFAA814C5B735
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ magnet:?xt=urn:btih:F348611BA24F96918BA6073FD88FFAA814C5B735
 magnet:?xt=urn:btih:4C33F47C36F0626DA0FFF4330E846152028E88C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ Freemake Video Converter - это бесплатное универсально�
 ```bash
 magnet:?xt=urn:btih:C1768368D02AA36ED6C165BB615DC1F7BBF454FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +484,8 @@ magnet:?xt=urn:btih:C1768368D02AA36ED6C165BB615DC1F7BBF454FA
 ```bash
 magnet:?xt=urn:btih:06A5C176989537E84C19A41EC57559DCCF34BC94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +514,8 @@ Monolithe - Kosmodrom (2022) [FLAC|Lossless|WEB-DL|tracks] <Funeral Doom Metal, 
 magnet:?xt=urn:btih:1EC4C524889A33B1CA7571A2FC84085BEE7072ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ magnet:?xt=urn:btih:1EC4C524889A33B1CA7571A2FC84085BEE7072ED
 magnet:?xt=urn:btih:EACBFFC7D02D1565C819CD600D5440035823BDA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +565,8 @@ Hetman Partition Recovery - программа восстанавливает у
 ```bash
 magnet:?xt=urn:btih:075FC4816E0797810E1CB65778962434FAF47F8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +595,8 @@ The Crossed - The Producer Of Suffering (2022) [FLAC|Lossless|WEB-DL|tracks] <Pr
 magnet:?xt=urn:btih:22C84C24F337E6E0C72E0533DC1CD8C584F6A388
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +620,8 @@ magnet:?xt=urn:btih:22C84C24F337E6E0C72E0533DC1CD8C584F6A388
 ```bash
 magnet:?xt=urn:btih:5B0144BC16275A80C1D4EC714C1EABCAEBDE1816
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +650,8 @@ Malemort - Chateau-Chimeres (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, R
 magnet:?xt=urn:btih:6FDA2E53A8050371C7A61488E7296EF1752B066B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ magnet:?xt=urn:btih:6FDA2E53A8050371C7A61488E7296EF1752B066B
 ```bash
 magnet:?xt=urn:btih:E25F1812942B0C922D6426F6EFCC61317629F3EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -654,6 +704,8 @@ Maledictive Pigs - Soul Surgery (2005) [FLAC|Lossless|image + .cue] <Death Metal
 ```bash
 magnet:?xt=urn:btih:662B9E7403E562C29F822996351318DD747D14C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

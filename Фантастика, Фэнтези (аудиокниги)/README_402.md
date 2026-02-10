@@ -1,3 +1,30 @@
+###  Публикация: 909557   (625562) от 18.06.2015
+
+Александр Рудазов | Рассказы из правого ботинка (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Существует тема, на которую писатели говорить не любят.
+А именно – откуда же все-таки берутся идеи и сюжеты? Обычно либо отбрехиваются, что просто выдумывают все сами, либо начинают кивать о некоем вдохновении, приходящем свыше. Но истина состоит в том, что ни один писатель вообще ничего не пишет сам. Тут работают совсем другие существа. Например, мне часть книг (   Читать дальше...   )Жанр: Юмористическая фантастика, русская фантастикаПродолжительность: Общая - 14:59:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA75E045C307E65F490358274999E82AB4DEF934
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1544013   (625653) от 13.04.2022
 
 Клиффорд Саймак | Операция «Вонючка» (2022) [MP3, Puffin Сafe]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:F9F58E1C5B84C009CAACF63105CC978A6FA90FE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:F9F58E1C5B84C009CAACF63105CC978A6FA90FE3
 magnet:?xt=urn:btih:CCDB7124FE3F92D3EC4B3160C4872CD5A4D1B9BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +97,8 @@ magnet:?xt=urn:btih:CCDB7124FE3F92D3EC4B3160C4872CD5A4D1B9BA
 ```bash
 magnet:?xt=urn:btih:EC4485F73F5D94F253852E71B28D1BE49E5E0145
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +124,8 @@ magnet:?xt=urn:btih:EC4485F73F5D94F253852E71B28D1BE49E5E0145
 magnet:?xt=urn:btih:7D778CA238BB816086076C3C62F979684BC13E5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +149,8 @@ magnet:?xt=urn:btih:7D778CA238BB816086076C3C62F979684BC13E5C
 ```bash
 magnet:?xt=urn:btih:507284D2AF4B54E0B815E2780F7CC04AAB8ACFFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +176,8 @@ magnet:?xt=urn:btih:507284D2AF4B54E0B815E2780F7CC04AAB8ACFFC
 magnet:?xt=urn:btih:36479A5FD395B8C75BF90E2D62DC76571F2DDA17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +202,8 @@ magnet:?xt=urn:btih:36479A5FD395B8C75BF90E2D62DC76571F2DDA17
 magnet:?xt=urn:btih:0EE3B5A4642FF1825CA66D003A51BFF789D1E06A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +227,8 @@ magnet:?xt=urn:btih:0EE3B5A4642FF1825CA66D003A51BFF789D1E06A
 ```bash
 magnet:?xt=urn:btih:168F8631EE4172A47378B20DB03CDD43393B7B87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +257,8 @@ magnet:?xt=urn:btih:168F8631EE4172A47378B20DB03CDD43393B7B87
 magnet:?xt=urn:btih:C3D54B3EA73216F16898A7E3DD7A0796017BAEF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ magnet:?xt=urn:btih:C3D54B3EA73216F16898A7E3DD7A0796017BAEF3
 ```bash
 magnet:?xt=urn:btih:E2A0E13F1CFFB03E9CE4AECA5390E0EDE01EC426
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +310,8 @@ magnet:?xt=urn:btih:E2A0E13F1CFFB03E9CE4AECA5390E0EDE01EC426
 magnet:?xt=urn:btih:A89DFC5E0D8796CA2C50A61BF6711DB637044899
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +335,8 @@ magnet:?xt=urn:btih:A89DFC5E0D8796CA2C50A61BF6711DB637044899
 ```bash
 magnet:?xt=urn:btih:B8F5B732848918BE5228C2A9C4BA1080DDD63173
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +362,8 @@ magnet:?xt=urn:btih:B8F5B732848918BE5228C2A9C4BA1080DDD63173
 magnet:?xt=urn:btih:0684DC82B128CC32ACDEC3A69D4915E82FD6300D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +387,8 @@ magnet:?xt=urn:btih:0684DC82B128CC32ACDEC3A69D4915E82FD6300D
 ```bash
 magnet:?xt=urn:btih:77B0E97757793750D7D2E2D5CBFD271884129FDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +414,8 @@ magnet:?xt=urn:btih:77B0E97757793750D7D2E2D5CBFD271884129FDB
 magnet:?xt=urn:btih:FDFF68B18DDEBE8EF51CFFF5923F66A45B7CD580
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +440,8 @@ magnet:?xt=urn:btih:FDFF68B18DDEBE8EF51CFFF5923F66A45B7CD580
 magnet:?xt=urn:btih:C4156D8E053A3193347BCCB0EE0A3FA0DC4CB570
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +465,8 @@ magnet:?xt=urn:btih:C4156D8E053A3193347BCCB0EE0A3FA0DC4CB570
 ```bash
 magnet:?xt=urn:btih:68C7A093D14903A398364D1765DF6508BB1EA54D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +494,8 @@ magnet:?xt=urn:btih:68C7A093D14903A398364D1765DF6508BB1EA54D
 magnet:?xt=urn:btih:A343C4AFBA27CB22CF2AAAEF8904A1414FDD3DCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +521,8 @@ magnet:?xt=urn:btih:A343C4AFBA27CB22CF2AAAEF8904A1414FDD3DCC
 magnet:?xt=urn:btih:572BC6F615B6AA9D430BFDD8AE56C0EB6C74F464
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +546,8 @@ magnet:?xt=urn:btih:572BC6F615B6AA9D430BFDD8AE56C0EB6C74F464
 ```bash
 magnet:?xt=urn:btih:1DE68208ECD5E7E4A76D3619ABFAAFB2FCEBF639
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +573,8 @@ magnet:?xt=urn:btih:1DE68208ECD5E7E4A76D3619ABFAAFB2FCEBF639
 magnet:?xt=urn:btih:538FE71B21D40B500D5BAF447E67DF3D52B81FC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +599,8 @@ magnet:?xt=urn:btih:538FE71B21D40B500D5BAF447E67DF3D52B81FC1
 ```bash
 magnet:?xt=urn:btih:2685E770E28710875B4309EF14C61537BA08916F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +629,8 @@ magnet:?xt=urn:btih:2685E770E28710875B4309EF14C61537BA08916F
 magnet:?xt=urn:btih:B3E5BAC36C2DE73316D2018BC2025BF34E02759E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +654,8 @@ magnet:?xt=urn:btih:B3E5BAC36C2DE73316D2018BC2025BF34E02759E
 ```bash
 magnet:?xt=urn:btih:92E2E6642E571231A24CA1E0DF49E81FAA9A9B62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,29 +681,7 @@ magnet:?xt=urn:btih:92E2E6642E571231A24CA1E0DF49E81FAA9A9B62
 magnet:?xt=urn:btih:99B3FD06258E2FD88872E997855987FD642C94F9
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294058   (628127) от 08.04.2019
-
-Сергей Клочков | Новая Зона. В рай без очереди (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тихий, давно покинутый людьми Город. Патрули по окраинам, красно-белая лента "волчанки", туман и тишина. На пустых улицах и в покинутых домах притаилась смерть, многоликая, непонятная, не­видимая. И одинокий бродяга, прежде чем переступить незримую гра­ницу мертвых земель, что-то шепчет себе под нос, прислушиваясь к шуму далекой патрульной машины. Зачем (   Читать дальше...   )Жанр: Боевая фантастикаПродолжительность: 07:47:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC6A5DB8679410EEDE7792BE4434F6F3111447B4
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

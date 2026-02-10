@@ -22,6 +22,8 @@ Koan - проект основанный Романом Алексеевым (Da
 magnet:?xt=urn:btih:7405539311C4DBB8861C638850B6695C5D530510
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Discover Dark 200 (Compiled & Mixed By Zach Zlov) (2019) [MP3|320 Kbps] <Tr
 ```bash
 magnet:?xt=urn:btih:379FB6C4986F6CEA7CD61E35B371054B59A2B3CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Restaurant Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:14F4070F8749F55FB722719BCA287C700F9A5CDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Calm Evening Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:1F1577CCB19A340B04DE80DD3AC91377450D6EE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Tensnake - L.A. (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Club House, Nu Disco>
 magnet:?xt=urn:btih:B8F0C999D4895A18E35F55631ADA3FCADE32E12D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ Avicii - 28 Релизов (2008-2012) [MP3|320 кб/с]<Progressive House, Tran
 ```bash
 magnet:?xt=urn:btih:5E9902F3FD43E4B00A887F2A605A219FF95BA939
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ Kedr Livanskiy - Ariadna (ариадна) (2017) [FLAC|Lossless|Web-DL|tracks] <
 magnet:?xt=urn:btih:2FE872BDC9D621F7E08D6E8FAC955E68A67E7389
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ VA - Wax'N'Soul Records presents: Erotic Affairs Series (Sexy Lounge Tracks For 
 ```bash
 magnet:?xt=urn:btih:1513A91E728B5B729B8035D7393B70F8CBBDE661
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ VA - Milchbar Seaside Season 11 (Compiled by Blank & Jones) (2019) [FLAC|Lossles
 magnet:?xt=urn:btih:BBDA4621F58714C658360021F5748E7BBFF141D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ Datach'i - Discography 12 Releases (1999-2019) Planet Mu, Timesig [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:71361F94A60F3D1C8EED1D2C803CDCB489AB7CFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ Astral Waves - Angelique (2019) Altar Records [FLAC|Lossless|WEB-DL|tracks] <Psy
 magnet:?xt=urn:btih:4354B545F2E91E0240A9AF7C42E627FEDA2A2408
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,8 @@ Schiller - Die Einlassmusik 16 (2019) [FLAC|Lossless|image + .cue] <Ambient>
 ```bash
 magnet:?xt=urn:btih:49FBE31B64C676B4C2EA014C64ED3D3F05EEB312
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +367,8 @@ A-Mase - Emotions & Dreams (2019) [MP3|320 Kbps] <Atmospheric Breaks, Progressiv
 magnet:?xt=urn:btih:06B23719D1C944966C93B3230243F0DC7F0D75C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +395,8 @@ GUNSHIP - GUNSHIP (2015) INgrooves [FLAC|Lossless|tracks + .cue] <Electronic, Sy
 ```bash
 magnet:?xt=urn:btih:E3669BEF96B0B0D84D0A64F45AD92208D18B4E28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +425,8 @@ VA - Amsterdam 2018 (Mixed by Ultimate & Abstract Vision ) (2018) [MP3|320 Kbps]
 magnet:?xt=urn:btih:20AEA92676E37C5D6F8FF8717B3174DD3780D09E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +453,8 @@ Schiller - Die Einlassmusik 15 (2019) [FLAC|Lossless|image + .cue] <Ambient>
 ```bash
 magnet:?xt=urn:btih:4C4BD7ECBD7F4EBC8E0296441C6424C9CB397831
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +483,8 @@ Giuseppe Ottaviani - Evolver (The Extended Mixes) (2019) [MP3|320 Kbps] <Trance,
 magnet:?xt=urn:btih:380A6127C358FD6579C477AB0AF99681D332E907
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +511,8 @@ Becky Hill - Get To Know (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electropop, 
 ```bash
 magnet:?xt=urn:btih:2C60945EEE0123F1618C180D1D6CA761F3314FE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +542,8 @@ David Guetta Feat. Taped Rai - Just One Last Time (Promo CDR) (2012) [MP3|~245 �
 magnet:?xt=urn:btih:BAA74D669E3F7244958FF2158DEB1E3CF44BDB0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +570,8 @@ Example - Close Enemies (The Remixes) (2012) [MP3|320 кб/с]<Dance, House>
 ```bash
 magnet:?xt=urn:btih:AD42C30902A3D725832FE2C1B6AAAA25F5F9855D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +600,8 @@ Rodriguez Jr. - Totally Mobilee - Rodriguez Jr. Collection, Vol. 1-2 (2013-2015)
 magnet:?xt=urn:btih:225EA0866DE4BA756A02B5E8D95A583D455CD8C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +628,8 @@ VA - Subculture (Mixed by Craig Connelly & Factor B) (2019) [MP3|320 Kbps] <Tran
 ```bash
 magnet:?xt=urn:btih:05825CA5628441A25F98B7735E4E93A2CED4BB06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +658,8 @@ VA - Mental Asylum Contrast (Mixed By Indecent Noise) (2019) [MP3|320 Kbps] <Tra
 magnet:?xt=urn:btih:3D2BB6A4E51971F45309CCB13902F739E4EA5C81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +685,8 @@ Dinka - Lotus (2012) [MP3|320 кб/с]<Progressive House, Trance>
 ```bash
 magnet:?xt=urn:btih:286995176FCF4D7B708CE0779911A63791329055
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -666,6 +714,8 @@ VA - Simplify Recordings Traplify Vol.2 (2016) [MP3|320 Kbps] <Dirty Dubstep, Tr
 ```bash
 magnet:?xt=urn:btih:BBD97B83A3661CDB38893734EC259AC42911CBAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -699,6 +749,8 @@ VA - Pathaan's Playlist - Ibiza (2011) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:2DCC94A19152B2676B2F0BA9B220FAA5FC506C0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

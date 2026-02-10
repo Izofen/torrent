@@ -28,6 +28,8 @@ Laurindo Almeida, Salli Terri, Martin Ruderman - Duets With Spanish Guitar (1990
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -55,6 +57,8 @@ Kate Ellis - Carve Me Out (2017) [FLAC|Lossless|tracks] <Country>
 magnet:?xt=urn:btih:84190B82C8971BE759E975753B9C30434227B68B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,6 +85,8 @@ Danielle Egnew - You've Got to Go Back the Way That You Came (2017) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:1B6C55B26F7A890A4E4CA0E5B7AB0ADAEF03DA2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +121,8 @@ Francisco Tárrega ( 1852 - 1909 )
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +153,8 @@ Land of Kush - 2 albums (2009-2010) [FLAC|Lossless] <Avant-garde, Free Jazz, Pos
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +182,8 @@ David Hicken - Portrait of a Pianist (2017) [MP3|320 Kbps] <Classical, Neoclassi
 magnet:?xt=urn:btih:FBA13E5DF9B0AC2AE8217469433FD3E361B01735
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +210,8 @@ Joe Hisaishi - И солнце снова взойдёт / The Sun Also Rises (2
 ```bash
 magnet:?xt=urn:btih:544E0A6223E1332AE5E1982EFE9EDACDD8B3D29C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -232,6 +246,8 @@ VA - Treme: Music From the Original HBO Series Season 2 (2012) [MP3|320 кб/с]
 magnet:?xt=urn:btih:389D42F07123DC4B3FD930B911EA82CED62B8BCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +274,8 @@ Hotline Miami 2 - OST (2015) LP & EP [MP3|320 кб/с]<OST>
 ```bash
 magnet:?xt=urn:btih:F4398509BD462B3276C4A74461882B4064D6278E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +304,8 @@ Rupert Gregson-Williams - Wonder Woman / Чудо-женщина (Original Motio
 magnet:?xt=urn:btih:CADDB831BFD28C4A9325062B5F02323159DE5DB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +333,8 @@ Rupert Gregson-Williams - Wonder Woman / Чудо-женщина (Original Motio
 magnet:?xt=urn:btih:57E3208AAC262B98ED367CCBE8842B158B2A9AE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +361,8 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:D163C8F3B750B453ABE29F482EEBFC83BBA4C7C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +397,8 @@ magnet:?xt=urn:btih:D163C8F3B750B453ABE29F482EEBFC83BBA4C7C8
 magnet:?xt=urn:btih:997A501CA5562CD0E290C20FE98E7083ED56AAC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +425,8 @@ KoolSax - Meditation (Relax Your Mind to Save the World) (2014) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:E13EC5F55A8876C7EDAB20850DA4B64F43ACF846
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +455,8 @@ VA - Deep Silence Meditation: Best New Age 2017 Asian Garden Chinese Music [MP3|
 magnet:?xt=urn:btih:6F5D7E6BDDFF5ACA3D713922FEC07415470529B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +483,8 @@ Eilen Jewell - Sundown Over Ghost Town (2015) [MP3|320 кб/с]<Americana, Count
 ```bash
 magnet:?xt=urn:btih:D8FA3D2C9A50CA7E569DABD4C09BCA17BA56A51D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +513,8 @@ The Romantic Strings and Orchestra - Stardust Moods (1989) [MP3|320 Kbps] <Instr
 magnet:?xt=urn:btih:196DFF8DCC450A07A96E6450F9EA7C0E24191D6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +542,8 @@ Diane Arkenstone & David Arkenstone - Avalon: Between Earth and Sky (2022) [FLAC
 magnet:?xt=urn:btih:574002EB34F6C2BAC5A2428CC1CDF47A566F58DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +569,8 @@ VA - Союз нерушимый... - Песни и танцы народов С
 ```bash
 magnet:?xt=urn:btih:87D5F1A8D7C0417003BEA067A2677AB85F93BAC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +599,8 @@ David Garcia Diaz - RiME (2017) Deluxe Soundtrack [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:8527A324B9D7DA4A35A130990E1A181CE0033F40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +628,8 @@ Jupiter Panic - Days of Sorrow (2018) [MP3|320 Kbps] <New Age, Ambient>
 magnet:?xt=urn:btih:F5D040F7C50BCB1A70075FE0A9AF3993D39FDC15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +656,8 @@ Kevin Wood - Eternal (2018) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:748B28F22ED59492E99B7A48632233644056CA4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +690,8 @@ Hrsta - 3 albums (2001-2007) [FLAC|Lossless] <Post-Rock, Experimental>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -680,6 +726,8 @@ Hangedup - 3 albums (2001-2005) [FLAC|Lossless] <Experimental, Instrurumental, P
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -707,6 +755,8 @@ Sergio Santini - Коллекция (2017-2018) [FLAC|Lossless|WEB-DL|tracks] <I
 magnet:?xt=urn:btih:710A8283FE41FF8398AA23C9B585AF866DD4BC14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -733,6 +783,8 @@ Geoff Zanelli - Pirates of the Caribbean: Dead Men Tell No Tales / Пираты 
 ```bash
 magnet:?xt=urn:btih:30ECAB3E35C25C7EA84BA441ECF73F4141272742
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

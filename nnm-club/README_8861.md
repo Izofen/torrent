@@ -19,6 +19,8 @@ NG: Марсоход Curiosity / Curiosity. Life of a Mars Rover (2018) DVB
 magnet:?xt=urn:btih:7A52453582E422B25ED738A44EC47546C9587DB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:7A52453582E422B25ED738A44EC47546C9587DB6
 ```bash
 magnet:?xt=urn:btih:565A867192E9267680FF415CEEA20C48037A96C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ VA - Новый год в стиле Ретро (2016) [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:45A370E00FADFA53ADB0E38DBB32AFEF1F2E3561
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:45A370E00FADFA53ADB0E38DBB32AFEF1F2E3561
 magnet:?xt=urn:btih:A124F4532E88239DDC60E525A2E7EDE3A8101C1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:A124F4532E88239DDC60E525A2E7EDE3A8101C1F
 ```bash
 magnet:?xt=urn:btih:B88EB506B06446926724DEF012A2D7EBAC6B30D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:B88EB506B06446926724DEF012A2D7EBAC6B30D1
 magnet:?xt=urn:btih:309ADF7989691F23E83AB0B676A6E8145CF19DE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:309ADF7989691F23E83AB0B676A6E8145CF19DE4
 ```bash
 magnet:?xt=urn:btih:7F68D990B511B30DADD94407166D28C5978952B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:7F68D990B511B30DADD94407166D28C5978952B8
 magnet:?xt=urn:btih:AB7FA4EB69A47B45EC0F6912601A5B3E2818CD65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:AB7FA4EB69A47B45EC0F6912601A5B3E2818CD65
 ```bash
 magnet:?xt=urn:btih:05B368600B9BE7540CCA0A54BE6725462D6B992F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ Clutch - 16 albums, 19 CD (1993-2018) [FLAC|Lossless|image + .cue | tracks + .cu
 magnet:?xt=urn:btih:9F7BB3C11E9A44C2DF0D311598CED1E0E15432E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:9F7BB3C11E9A44C2DF0D311598CED1E0E15432E7
 ```bash
 magnet:?xt=urn:btih:75C46521C6D5EEDE424E87D91328C5AABE96473D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ Image Uploader - бесплатная программа для Windows c отк
 magnet:?xt=urn:btih:95E586D1315975790FB8437EE2D863C0DE5237C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ NG: Невероятное путешествие Хаббла / Hubble's Amazin
 magnet:?xt=urn:btih:066DC89980CEE7C09E44FB9459751D27CD53D6BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:066DC89980CEE7C09E44FB9459751D27CD53D6BD
 ```bash
 magnet:?xt=urn:btih:5A2212385E2401E3125F31706D3CF6930ACB8C34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +397,8 @@ The Doors - Waiting For The Sun (1968) 2CD + LP Box Set, Remastered, Elektra, 20
 magnet:?xt=urn:btih:14275D1C5FEF47D2E8A80518F79072860A32F72A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:14275D1C5FEF47D2E8A80518F79072860A32F72A
 magnet:?xt=urn:btih:9D6E01AE903A5D415F669325CE35F24D865DBFE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ magnet:?xt=urn:btih:9D6E01AE903A5D415F669325CE35F24D865DBFE4
 ```bash
 magnet:?xt=urn:btih:BFABEC12D8DF0699BF7363357D452A3097AFB2D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:BFABEC12D8DF0699BF7363357D452A3097AFB2D4
 magnet:?xt=urn:btih:5B3F326117A1CC2528299DD98D9D253E063D62D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ magnet:?xt=urn:btih:5B3F326117A1CC2528299DD98D9D253E063D62D8
 ```bash
 magnet:?xt=urn:btih:947F23A7AC5DA0F1C17B6F61294A5D3A8D89464C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ magnet:?xt=urn:btih:947F23A7AC5DA0F1C17B6F61294A5D3A8D89464C
 magnet:?xt=urn:btih:A3DC73FF21451F38B4194EB9E07D797AB48CC176
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ magnet:?xt=urn:btih:A3DC73FF21451F38B4194EB9E07D797AB48CC176
 magnet:?xt=urn:btih:1BF3B71AD6C7DA8C9C29A4384D7E19B997DFB08D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ Thunderbird — это бесплатная почтовая программа,
 ```bash
 magnet:?xt=urn:btih:D56C302C744C48041F6F51555BC60E9CC88218C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +611,8 @@ magnet:?xt=urn:btih:D56C302C744C48041F6F51555BC60E9CC88218C8
 magnet:?xt=urn:btih:C96806975BDFD2E02FA0016CD25C657921CCF71F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ magnet:?xt=urn:btih:C96806975BDFD2E02FA0016CD25C657921CCF71F
 ```bash
 magnet:?xt=urn:btih:259BB7A3951FF81BDE2892A89F93D6987D9C8DEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +663,8 @@ magnet:?xt=urn:btih:259BB7A3951FF81BDE2892A89F93D6987D9C8DEA
 magnet:?xt=urn:btih:556659327F0CA861AC5B3BB0293031E84097AF1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ magnet:?xt=urn:btih:556659327F0CA861AC5B3BB0293031E84097AF1D
 ```bash
 magnet:?xt=urn:btih:1CC6002C1C3F5F4AA3D5E92E95781971F90E7314
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

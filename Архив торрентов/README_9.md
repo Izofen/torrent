@@ -20,6 +20,8 @@ InnoExtractor - это мощное приложение, которое пом�
 magnet:?xt=urn:btih:BC660D873BE76D1C490B8DE2F3165DA83544F590
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Purvpn 8.8 [En/Farsi]
 magnet:?xt=urn:btih:0D627A9B1E5686AC0E0EA63EEFEC9CF5CFD77455
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:49EC25739A7AE63B9A73C7B63F2E9370DE2C3982
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ MediaHuman YouTube Downloader 3.9.16 (2408) RePack (& Portable) by elchupacabra 
 magnet:?xt=urn:btih:3C061FA29BB753EF45EF5CB8E567A264A95D49ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ DaVinci Resolve — единственное в мире решение для �
 ```bash
 magnet:?xt=urn:btih:03FB2660434634E00FB8778AA13F8ED40FE5CCBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Photo Editor - уникальная программа для обработки
 magnet:?xt=urn:btih:F118D5C2ED31908798CD78A07ECDED03865E86C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Photo Editor - уникальная программа для обработки
 ```bash
 magnet:?xt=urn:btih:38035C998BB94F9AD7F12F1D9CB3458A47A83555
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ BikeComputer Pro - возможно, одно из лучших приложен
 magnet:?xt=urn:btih:08D5814789431CBFDE4B6AB8059F62AC33778BA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ DaVinci Resolve — единственное в мире решение для �
 ```bash
 magnet:?xt=urn:btih:AA54248F4B0F3A7EDD9496EB5517C4B2DC7A8719
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:050B2905D98C4D868E9E7B07619C7D6A9ADA1C62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Fast Video Cutter Joiner - программа 2-в-1 для быстрой ре�
 ```bash
 magnet:?xt=urn:btih:273DB7A426C8FEB304569BDCAD57242DEF96AA6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ MediaHuman YouTube Downloader 3.9.16 (2408) [Multi/Ru]
 magnet:?xt=urn:btih:107653833EEEED2641AC3539033F32A20CD7DB65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:4055AE500A7BF8253C834AF8825A7FE0DDAFB686
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ MobiOffice - это полнофункциональный офисный пак
 magnet:?xt=urn:btih:DCADF8A9CEB85DEB1B566E938F5FDF236F0B0D7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 ```bash
 magnet:?xt=urn:btih:78970156DD1E75DA13AA9DD209C05952A24047B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:78970156DD1E75DA13AA9DD209C05952A24047B6
 magnet:?xt=urn:btih:3FC070A2A29C7BA09FD617AE4C4E31816575E5CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:3FC070A2A29C7BA09FD617AE4C4E31816575E5CC
 ```bash
 magnet:?xt=urn:btih:5404C4E5D2E7E3256133257A412E1EC39F17CBD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:5404C4E5D2E7E3256133257A412E1EC39F17CBD6
 magnet:?xt=urn:btih:4BD9C6C832F8030B91288A2E2E11D418DC3BC39A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:4BD9C6C832F8030B91288A2E2E11D418DC3BC39A
 ```bash
 magnet:?xt=urn:btih:12155F14C4A07871B1BAD421FD684D62FD6DF2FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:12155F14C4A07871B1BAD421FD684D62FD6DF2FF
 magnet:?xt=urn:btih:86513914CDF0D0C04896570C10A2AF444B7812EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ MassTube Plus — очень простая в использовании про
 ```bash
 magnet:?xt=urn:btih:01E782599C98D1207126C100B2BF9088EF49AB0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ HiPER Calc Pro v11.2.3 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:A4E05DCBFCE7F2547C96860A956A5BBC9544CB42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ AirBrush: ИИ Фоторедактор v7.15.0 Mod by PieMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B9824CBA19F8EA2D220EAA69CCCB621F982D69F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ Flyoobe (Ранее назывался Flyby11) — это простой пат
 magnet:?xt=urn:btih:68DB6DE67BB6E90540A944E5DEAE3994129BEC1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ MyLanViewer — программа для сканирования и монит
 magnet:?xt=urn:btih:6DAAF4F1525F6CC3B126B7646EF4CCF06915EB3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:E744E29A4FA68200B4708048C20F0F7814EEC9E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

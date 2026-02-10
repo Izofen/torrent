@@ -1,52 +1,3 @@
-###  Публикация: 1105029   (874823) от 18.02.2017
-
-Обои - Лучшее за 2014 - 2015 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка стильных обоев в разрешении 1920x1080Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED170E59C30D30785CED53F1D75337C3274DAB4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997263   (875128) от 16.03.2016
-
-Обои - Superb Wallpapers. Final release [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Финальный сборник качественных обоев на различную тематику.
-Количество обоев - 6200 шт.Формат: JPGРазрешение файлов: 1920x1080 - 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7578E7C5F00B871A589A608D587330F9F839F139
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997264   (875581) от 16.03.2016
 
 Картинки - Collection of beautiful images. Release 8 [JPG]
@@ -67,6 +18,8 @@ magnet:?xt=urn:btih:7578E7C5F00B871A589A608D587330F9F839F139
 ```bash
 magnet:?xt=urn:btih:1CF2E132305F86FFA9CA2981E7B9CAEB9C72B4B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +46,8 @@ magnet:?xt=urn:btih:1CF2E132305F86FFA9CA2981E7B9CAEB9C72B4B4
 magnet:?xt=urn:btih:96481B6A11530016DCC138EABA9038F6CF2C460A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +71,8 @@ magnet:?xt=urn:btih:96481B6A11530016DCC138EABA9038F6CF2C460A
 ```bash
 magnet:?xt=urn:btih:D90DC03A11401A6DC4E1723C7EC8E08E49F4F7E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +98,8 @@ magnet:?xt=urn:btih:D90DC03A11401A6DC4E1723C7EC8E08E49F4F7E5
 magnet:?xt=urn:btih:BC1F0E8BDEE79E66DB0021B6B5B37DB2A646620D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +123,8 @@ magnet:?xt=urn:btih:BC1F0E8BDEE79E66DB0021B6B5B37DB2A646620D
 ```bash
 magnet:?xt=urn:btih:B2C7C8E1AEBF9E16DD3913EF8EFEBBE095190AA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +150,8 @@ magnet:?xt=urn:btih:B2C7C8E1AEBF9E16DD3913EF8EFEBBE095190AA0
 magnet:?xt=urn:btih:735F59EB431C096AF51E5194D3FF2813588CA978
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +175,8 @@ magnet:?xt=urn:btih:735F59EB431C096AF51E5194D3FF2813588CA978
 ```bash
 magnet:?xt=urn:btih:2DC8153A047F76B772DF440261F4F9CE468A9DCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +202,8 @@ magnet:?xt=urn:btih:2DC8153A047F76B772DF440261F4F9CE468A9DCE
 magnet:?xt=urn:btih:8DAB938BE68F525E5F222B4FE61E6428D9C53B8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +227,8 @@ magnet:?xt=urn:btih:8DAB938BE68F525E5F222B4FE61E6428D9C53B8B
 ```bash
 magnet:?xt=urn:btih:570113EE5A442D46B0263E5A80838DF8160B9E7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +254,8 @@ magnet:?xt=urn:btih:570113EE5A442D46B0263E5A80838DF8160B9E7E
 magnet:?xt=urn:btih:2BFB2AABAD6E3AAC370365D30E8FEEA274149B2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +279,8 @@ magnet:?xt=urn:btih:2BFB2AABAD6E3AAC370365D30E8FEEA274149B2B
 ```bash
 magnet:?xt=urn:btih:3974F584D436172F2E54F94CBDFDA04A867CA31D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +306,8 @@ magnet:?xt=urn:btih:3974F584D436172F2E54F94CBDFDA04A867CA31D
 magnet:?xt=urn:btih:1F72F4050F268C404694CAE7C1ED93AA522B0508
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +331,8 @@ magnet:?xt=urn:btih:1F72F4050F268C404694CAE7C1ED93AA522B0508
 ```bash
 magnet:?xt=urn:btih:B65F2D80207DE32D80754B6D77242ADAED77E7EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +359,8 @@ magnet:?xt=urn:btih:B65F2D80207DE32D80754B6D77242ADAED77E7EC
 magnet:?xt=urn:btih:FCFF742944A52744CACAE8B1FAAF243D5EF0EF56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +384,8 @@ magnet:?xt=urn:btih:FCFF742944A52744CACAE8B1FAAF243D5EF0EF56
 ```bash
 magnet:?xt=urn:btih:3B465F86435BC19476B0BA2F8E84A3DC9C95FBB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +412,8 @@ magnet:?xt=urn:btih:3B465F86435BC19476B0BA2F8E84A3DC9C95FBB6
 magnet:?xt=urn:btih:78EB402DC5A7E4D725E798E597F57AF829561B1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +437,8 @@ magnet:?xt=urn:btih:78EB402DC5A7E4D725E798E597F57AF829561B1E
 ```bash
 magnet:?xt=urn:btih:62D1A033E2E63EF45F0433BD58EC1C791F562E3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +464,8 @@ magnet:?xt=urn:btih:62D1A033E2E63EF45F0433BD58EC1C791F562E3E
 magnet:?xt=urn:btih:CFC5BBF399E541108485B245091F7F856AFA867D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +489,8 @@ magnet:?xt=urn:btih:CFC5BBF399E541108485B245091F7F856AFA867D
 ```bash
 magnet:?xt=urn:btih:A73124590E01F0EDEF18B5D66907B48D486F0097
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +516,8 @@ magnet:?xt=urn:btih:A73124590E01F0EDEF18B5D66907B48D486F0097
 magnet:?xt=urn:btih:BBC8B64A07C56D91FCF6FC094D4E0EB85A8A43CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +541,8 @@ magnet:?xt=urn:btih:BBC8B64A07C56D91FCF6FC094D4E0EB85A8A43CA
 ```bash
 magnet:?xt=urn:btih:C217843C0BBA60C04D5903B0CEECC001460A799F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +568,8 @@ magnet:?xt=urn:btih:C217843C0BBA60C04D5903B0CEECC001460A799F
 magnet:?xt=urn:btih:BBC5FA6C82F6332102FF77F405D03CDFFBF7EDFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +594,8 @@ magnet:?xt=urn:btih:BBC5FA6C82F6332102FF77F405D03CDFFBF7EDFA
 magnet:?xt=urn:btih:42D8FC29C8596479C4946D40A9F0202470735B7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +619,60 @@ magnet:?xt=urn:btih:42D8FC29C8596479C4946D40A9F0202470735B7E
 ```bash
 magnet:?xt=urn:btih:B9092A35E8EC661870DE3CDB2294AF4CD74A806C
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996093   (882705) от 12.03.2016
+
+Картинки - Collection of beautiful images. Release 5 [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник красивых картинок.Формат: JPGРазрешение файлов: 1920x1280 - 6000x4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E48DE649C4EA0CF578B7882109FF69541E53A758
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 641585   (882855) от 09.04.2013
+
+Рисованная графика - Artworks by Carlos Cartagena [JPG]
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы художника-иллюстратора Carlos Cartagena.Разрешение файлов: от 392x490px до 1200x899.Формат: JPG.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28EC00D146129ABE53675BA1A095111EB5F9303F
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

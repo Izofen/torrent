@@ -1,3 +1,31 @@
+###  Публикация: 1280296   (761861) от 02.02.2019
+
+Олег Тиньков | Революция. Как построить крупнейший онлайн-банк в мир (2018) [FB2]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Олег Тиньков – уникальный предприниматель, доказавший, что успешный бизнес можно создать в разных отраслях.
+
+Он построил такие компании как «Техношок», «Дарья», завод и сеть ресторанов «Тинькофф», а после успешной продажи пивного бизнеса решил вложить капитал в инновационный банк. Предприниматель пришел на рынок, когда в стране было больше 1000 банков, но смог создать (   Читать дальше...   )Жанр: Истории успеха, Просто о бизнесеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D270E36CAB85155764D08BB5CFDD83A3B964BA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280265   (761863) от 02.02.2019
 
 Пол Аллам, Дэвид МакГиннесс | Все сладкое. Превосходные рецепты из легендарной кондитерской (2019) [PDF]
@@ -20,6 +48,8 @@
 ```bash
 magnet:?xt=urn:btih:3614B541F3BD424DA6E728E34D096A3AC8FAA404
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +78,8 @@ magnet:?xt=urn:btih:3614B541F3BD424DA6E728E34D096A3AC8FAA404
 magnet:?xt=urn:btih:CA1301D70D0BCA306AFF09AB1386966259DE4439
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +106,8 @@ magnet:?xt=urn:btih:CA1301D70D0BCA306AFF09AB1386966259DE4439
 magnet:?xt=urn:btih:376DA187F3231CC4AE956D85DA905258A59718D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +131,8 @@ magnet:?xt=urn:btih:376DA187F3231CC4AE956D85DA905258A59718D8
 ```bash
 magnet:?xt=urn:btih:D3D68706E73FF068846C702DFBD35F00AB32CE63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +158,8 @@ magnet:?xt=urn:btih:D3D68706E73FF068846C702DFBD35F00AB32CE63
 magnet:?xt=urn:btih:BA64FA316D72ACD4C913DB95AC0BC673361B8F40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +183,8 @@ magnet:?xt=urn:btih:BA64FA316D72ACD4C913DB95AC0BC673361B8F40
 ```bash
 magnet:?xt=urn:btih:405E655551C8ECF20E6B8CE761880C9FF121A932
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +210,8 @@ magnet:?xt=urn:btih:405E655551C8ECF20E6B8CE761880C9FF121A932
 magnet:?xt=urn:btih:4EA8288C7A48C3CFF94FBACDCFFB332EDEE04AA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +235,8 @@ magnet:?xt=urn:btih:4EA8288C7A48C3CFF94FBACDCFFB332EDEE04AA3
 ```bash
 magnet:?xt=urn:btih:86726298164F6A21E24627C6B115BF282138B724
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +262,8 @@ magnet:?xt=urn:btih:86726298164F6A21E24627C6B115BF282138B724
 magnet:?xt=urn:btih:861B3F083DD355CB1AC4D4B828B75FD6E831F066
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +287,8 @@ magnet:?xt=urn:btih:861B3F083DD355CB1AC4D4B828B75FD6E831F066
 ```bash
 magnet:?xt=urn:btih:75EF168F74DD4423FBCF7ADDAAF5BCA39A205014
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +315,8 @@ magnet:?xt=urn:btih:75EF168F74DD4423FBCF7ADDAAF5BCA39A205014
 magnet:?xt=urn:btih:042D2B906A2CB2097CCA1FF576B1EB88DA625221
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +341,8 @@ magnet:?xt=urn:btih:042D2B906A2CB2097CCA1FF576B1EB88DA625221
 magnet:?xt=urn:btih:B5F3CDBCF87C17B793EB1455BF8D0D62385AE4CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +366,8 @@ magnet:?xt=urn:btih:B5F3CDBCF87C17B793EB1455BF8D0D62385AE4CB
 ```bash
 magnet:?xt=urn:btih:91264CBFBE28ACB3B4AF2D7753779C489EFEECE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +395,8 @@ magnet:?xt=urn:btih:91264CBFBE28ACB3B4AF2D7753779C489EFEECE5
 magnet:?xt=urn:btih:4FDE1429F5B65EF4BA23EA90A077BBCAF1363E2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +423,8 @@ magnet:?xt=urn:btih:4FDE1429F5B65EF4BA23EA90A077BBCAF1363E2B
 magnet:?xt=urn:btih:69250CCC1CF94F2EFE40330B5BB5292CEA87B8D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +448,8 @@ magnet:?xt=urn:btih:69250CCC1CF94F2EFE40330B5BB5292CEA87B8D9
 ```bash
 magnet:?xt=urn:btih:FDD5654209B6FE9D6F9D78D68A02566A77DE4352
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +475,8 @@ magnet:?xt=urn:btih:FDD5654209B6FE9D6F9D78D68A02566A77DE4352
 magnet:?xt=urn:btih:0721D2345FC0D24CB2BD079D6AFAE5E7D82DF8E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +500,8 @@ magnet:?xt=urn:btih:0721D2345FC0D24CB2BD079D6AFAE5E7D82DF8E2
 ```bash
 magnet:?xt=urn:btih:E91AF3102B42CC113737FF0BBABAF1DF55858EF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +530,8 @@ magnet:?xt=urn:btih:E91AF3102B42CC113737FF0BBABAF1DF55858EF5
 magnet:?xt=urn:btih:95FF7D1A3CA782491A1C0FCD6C0BFC4A12637CD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +555,8 @@ magnet:?xt=urn:btih:95FF7D1A3CA782491A1C0FCD6C0BFC4A12637CD4
 ```bash
 magnet:?xt=urn:btih:0D9D832A710DD96962FBB8DCFE382780F9701AF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +583,8 @@ magnet:?xt=urn:btih:0D9D832A710DD96962FBB8DCFE382780F9701AF5
 ```bash
 magnet:?xt=urn:btih:1F15A4D3259D9014F47EAC2EB49D64FF947B3D1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +613,8 @@ magnet:?xt=urn:btih:1F15A4D3259D9014F47EAC2EB49D64FF947B3D1D
 magnet:?xt=urn:btih:F59517D39F3608CE9160ED6E2C727315ECA6D77F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +641,8 @@ magnet:?xt=urn:btih:F59517D39F3608CE9160ED6E2C727315ECA6D77F
 ```bash
 magnet:?xt=urn:btih:B097ED5B173753B08145DD8D21DE4C71E9222DAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +671,8 @@ magnet:?xt=urn:btih:B097ED5B173753B08145DD8D21DE4C71E9222DAB
 magnet:?xt=urn:btih:758F24B4FFC7AF654E5248FF6C67E1BA098833BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,32 +699,7 @@ magnet:?xt=urn:btih:758F24B4FFC7AF654E5248FF6C67E1BA098833BC
 magnet:?xt=urn:btih:3658630816797D68C9A43ADF62C27FECC1FA8DBA
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521751   (763347) от 04.01.2022
-
-Мурти Вивек | Вместе. Как создать жизнь, в которой будет больше любви, дружбы и хороших привязанностей (2022) [EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763347.jpg" />
-</div>
-
-
-###  Подробнее
-
-The New York Times бестселлер!
-Выбор редактора Amazon.com!
-Люди — социальные существа. В этом простом и очевидном факте кроется как проблема, так и решение нынешнего кризиса отношений во всем мире. Мы эволюционировали, чтобы создавать прочные связи с другими, помогать друг другу и делиться жизненным опытом. Нам просто лучше вместе.
-В своей новаторской книге бывший (   Читать дальше...   )Жанр: Популярная психологияПеревод: Снитич О. Б.Формат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF666902115E6148078C89CCC3278658AE77AC60
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -28,6 +28,8 @@ Skate 3 [Eng] [Region FREE] [XGD2] (2010) [Xbox 360]
 magnet:?xt=urn:btih:EE87A03836C69D9A86A38C55258590D67123FA74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ Hakuoki: Demon of the Fleeting Blossom [ENG] (2012) [PSP]
 ```bash
 magnet:?xt=urn:btih:1E65A8C7C64044842D48BAF9A11E119A2DE81ED3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -83,6 +87,8 @@ TimeSplitters Future Perfect — достойный преемник первы�
 magnet:?xt=urn:btih:AB4AA08A1CEC1CAEAFAA168453D72C0250A3B9E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -106,6 +112,8 @@ The Legend of Zelda: Spirit Tracks (2009) [NDS] [USA] [Unofficial] [dpad] [Ru]
 ```bash
 magnet:?xt=urn:btih:EB878F02912CDC7C1389AD1520ED6E25E5F0FC8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -131,6 +139,8 @@ The Legend of Zelda: Phantom Hourglass (2007) [NDS] [USA] [Unofficial] [dpad] [R
 magnet:?xt=urn:btih:9859D501ADB1CC31F0720BC63EE72A0B045AD433
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ Forza Horizon 2 Presents Fast & Furious – это оригинальное до
 ```bash
 magnet:?xt=urn:btih:5B1C857D765959D3C20B39E673297DA5E5BA1782
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -182,6 +194,8 @@ Anthology Dynasty Warriors: Gundam 1-3, Reborn (2007-2014) [PS3] [USA/EUR] 1.80/
 magnet:?xt=urn:btih:472862915297D29B0B8500EAE9B81292172D1990
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ Destroy All Humans! Path of the Furon (2009) [PS3] [EUR] 2.52 [Cobra ODE / E3 OD
 magnet:?xt=urn:btih:DE644CC3B6F9376250868254DE3B97E0100FC2E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +247,8 @@ Cabela's Big Game Hunter 2012 – продолжение лучшего симу
 ```bash
 magnet:?xt=urn:btih:7F2CBB9A2E62CC5EDC6D3EA77C5B0E1D9BC27F93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -258,6 +276,8 @@ Air Conflicts: Secret Wars / Air Conflicts: Secret Wars. Асы двух вой�
 magnet:?xt=urn:btih:1A4C8828F1D5AC2C7BFA777A38020F346E8477B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +304,8 @@ South Park: The Stick of Truth / South Park: Палка Истины [PS3] (2014
 magnet:?xt=urn:btih:8B5B713C243A94650522CD9BC6A4984905E83535
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +330,8 @@ Syndicate [PS3] [RUS] [PAL] [3.55] [Cobra ODE / E3 ODE PRO ISO] (2012)
 ```bash
 magnet:?xt=urn:btih:AF36E779ACDDDFD61AE3262364E669EC41541E77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +358,8 @@ JUJU – кооперативный платформер от создателе
 magnet:?xt=urn:btih:4BE620745DBFA495261BAA7A234248ED53FE7C78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +383,8 @@ Call of Duty: Modern Warfare 2 (2009) [Xbox360] [PAL] 8498 [FreeBoot] [License] 
 ```bash
 magnet:?xt=urn:btih:7763FA65CCB940A2F17F99E2AAD79440F85EB3BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +412,8 @@ magnet:?xt=urn:btih:7763FA65CCB940A2F17F99E2AAD79440F85EB3BB
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +437,8 @@ magnet:?xt=urn:btih:7763FA65CCB940A2F17F99E2AAD79440F85EB3BB
 ```bash
 magnet:?xt=urn:btih:68FFE6E309A95DE6A4F79D3BDF4E33D690F0E906
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +464,8 @@ Fallout: New Vegas [Ultimate Edition] [PS3] [ENG] [USA] [Cobra ODE / E3 ODE PRO 
 ```bash
 magnet:?xt=urn:btih:FEFF1A61B34FC35299B336CF245E7B55E13429FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +493,8 @@ Spyro 2: Ripto's Rage [PS3][Eng] (2012)
 magnet:?xt=urn:btih:865F7C3CE861C9B67607424B74C4AA091A34E181
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +519,8 @@ WinVICE 2.4 (64-bit) [Английский] (2012) [Commodore 64]
 magnet:?xt=urn:btih:E83EEF4CDDE16346DE5DA7C1CC220071735F5197
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ Cпортивный симулятор гольфа, который, по зав
 ```bash
 magnet:?xt=urn:btih:FA4A133EB122494AE12E2C2C7C33CABB6D352B49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +573,8 @@ Tropico 5 (2014) [Xbox360] [Region Free] LT 3.0 [License] [Ru]
 magnet:?xt=urn:btih:154B487327503CFCE8F81CCA325BBC6B1245A3B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +601,8 @@ NBA JAM - это ремейк легендарной баскетбольной 
 magnet:?xt=urn:btih:BECF2BB7E0936933EF27474ADE638B4EC99B29F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +626,8 @@ F.E.A.R. 3 (2011) [PS3] [EUR] 3.60 [Cobra ODE / E3 ODE PRO ISO] [Repack] [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:12D999389D10D14B7890422FCA224AE6ADAB4158
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +653,8 @@ Blur — это одновременно и захватывающие, до п�
 ```bash
 magnet:?xt=urn:btih:FF7D93405D4A73EE0D6E4A25D70F10AE8C9041BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +684,8 @@ Calling представляется очень атмосферной и стр
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +709,8 @@ Minecraft: PlayStation 3 Edition (2013) [PS3] [USA] 4.46 [Repack][Unofficial / 1
 ```bash
 magnet:?xt=urn:btih:EC31D2D632478207A6782611ABED7AEFC27FBFB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

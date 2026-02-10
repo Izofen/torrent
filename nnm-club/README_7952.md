@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:76CD3711A823F476F35B2093A9DDBE9F743BDD9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:76CD3711A823F476F35B2093A9DDBE9F743BDD9A
 ```bash
 magnet:?xt=urn:btih:1C876804A61A187906AF61133D9403DED7BFF144
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ VA - Music News vol.258 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:43607C7455AB1E0F38936EBDB4C5DA83C0D60E39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ Dark Millennium - Ashore the Celestial Burden (1992) [FLAC|Lossless|image + .cue
 magnet:?xt=urn:btih:B3FE73D9FBD0B53DB3CC2239F6473F8994C05872
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:B3FE73D9FBD0B53DB3CC2239F6473F8994C05872
 ```bash
 magnet:?xt=urn:btih:F756D8EAA949F34EBB9A953D00A60D2EE09E1E22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:F756D8EAA949F34EBB9A953D00A60D2EE09E1E22
 magnet:?xt=urn:btih:FCF8BBA6DE60BCA10054A2FF629B0F14792B5D01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:FCF8BBA6DE60BCA10054A2FF629B0F14792B5D01
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ Kimi o Aishita Hitori no Boku e | To Me, The One Who Loved You | Тому мне
 magnet:?xt=urn:btih:F67DE9DAD575CD00F6BC3A9D71388BC71E5A5B7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:F67DE9DAD575CD00F6BC3A9D71388BC71E5A5B7A
 ```bash
 magnet:?xt=urn:btih:D4FE309BF575FE21B71DB9519010699E43BE8227
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ Aerodyne - Damnation (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
 magnet:?xt=urn:btih:607831CAC7A3AB81B2C0B2B4F31AEA1518EFD5B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ Stillskin - Through Time (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 magnet:?xt=urn:btih:23F5F54AE5665C642E07483549205A2ECE795D4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ Iridient Developer - мощное приложение для обработки
 ```bash
 magnet:?xt=urn:btih:0DEB06BB625B9F3607CD1242C47791981365162E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +355,8 @@ Drautran - Unter dem Banner der Nordwinde (Demo) (2002) [FLAC|Lossless|image + .
 magnet:?xt=urn:btih:EDFD46235840762D933DF754EF87ED07C1BB7095
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +381,8 @@ magnet:?xt=urn:btih:EDFD46235840762D933DF754EF87ED07C1BB7095
 magnet:?xt=urn:btih:04D87C133C8DBDE2D17C928AF2BD8E704AC20F02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ magnet:?xt=urn:btih:04D87C133C8DBDE2D17C928AF2BD8E704AC20F02
 ```bash
 magnet:?xt=urn:btih:B9DEA35BD2C85706D12F2AAE73BCB388576AB9D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +436,8 @@ magnet:?xt=urn:btih:B9DEA35BD2C85706D12F2AAE73BCB388576AB9D2
 magnet:?xt=urn:btih:D2973BC4FAE00B5BC9128F3A30D62768AA27D029
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ magnet:?xt=urn:btih:D2973BC4FAE00B5BC9128F3A30D62768AA27D029
 magnet:?xt=urn:btih:AC065805B2F0AD5FCF3F3682FBC096693734E905
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:F3F8C205AA60564B80DC7CDF0D2512111A74657D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +517,8 @@ Cactus Cathedral - Suspending All Belief (2023) [FLAC|Lossless|WEB-DL|tracks] <H
 magnet:?xt=urn:btih:CC9AA120FEC2288CA4319A196C5A1CECD5BBEC19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +546,8 @@ Drautran - Throne Of The Depths (2007) [APE|Lossless|image + .cue] <Sympho Black
 magnet:?xt=urn:btih:4A7E5B801E9BB49FDB3723CC89FC03AEFCD196C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +573,8 @@ BusyContacts приносит в управление контактами те 
 ```bash
 magnet:?xt=urn:btih:3C8812C158B80C2DD022FCFC76CAD0204B75D868
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +602,8 @@ Rufus Wainwright - Folkocracy (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Folk>
 magnet:?xt=urn:btih:EB2F82C6BF42E5D99F2A191A15105FAF505231DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +627,8 @@ magnet:?xt=urn:btih:EB2F82C6BF42E5D99F2A191A15105FAF505231DB
 ```bash
 magnet:?xt=urn:btih:ECEE786C1013E1FB6DCF92238D3FC26E1D6CB2F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +655,8 @@ magnet:?xt=urn:btih:ECEE786C1013E1FB6DCF92238D3FC26E1D6CB2F1
 ```bash
 magnet:?xt=urn:btih:2C012DB770536D9C50B8C8FCE8B23ED9FC987719
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +685,8 @@ Anthem - Crimson & Jet Black (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power 
 magnet:?xt=urn:btih:33DA656208DB98AA2B1B4E082E429815D1E1B3FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +713,8 @@ Hotwire - The Story so Far 1993 - 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Mel
 ```bash
 magnet:?xt=urn:btih:13093009568E99D23EA09CFAB3B6A98CA8F9F58A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

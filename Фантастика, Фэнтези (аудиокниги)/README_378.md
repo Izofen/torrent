@@ -1,3 +1,30 @@
+###  Публикация: 1045487   (556709) от 25.08.2016
+
+Александр Громов | Человек отовсюду (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556709.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Человек отовсюду" фантастический роман Александра Громова, российского писателя-фантаста, вторая книга цикла «Мир Тверди».
+Планета Твердь получила свободу – но что теперь делать с нею? Планета Марция – лидер сопротивления землянам – уничтожена космической катастрофой. Кто виноват в гибели миллионов людей? При чем тут земляне? Что означают загадочные черные (   Читать дальше...   )Жанр: Космическая фантастика, Научная фантастикаПродолжительность: 11:21:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC7F03662891662464B746C7E1DBE3BF3DC57C14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1153915   (556808) от 28.07.2017
 
 Марина и Сергей Дяченко | Волчья сыть (2017) [MP3]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:E75B86827DCFF48CF925B2B13D32602634968E77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +74,8 @@ magnet:?xt=urn:btih:E75B86827DCFF48CF925B2B13D32602634968E77
 magnet:?xt=urn:btih:73BAFFDDB15D1CA83D6EF01B86B41870A632A378
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +100,8 @@ magnet:?xt=urn:btih:73BAFFDDB15D1CA83D6EF01B86B41870A632A378
 magnet:?xt=urn:btih:CEA0447771A25122402339E88A93872A2A844BA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +125,8 @@ magnet:?xt=urn:btih:CEA0447771A25122402339E88A93872A2A844BA7
 ```bash
 magnet:?xt=urn:btih:3DEEB14B6833FD296B713C6E00EFDA8D4134728D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +155,8 @@ magnet:?xt=urn:btih:3DEEB14B6833FD296B713C6E00EFDA8D4134728D
 magnet:?xt=urn:btih:BDFBF8C61146E8A353F1258BB32F5E817D0A297F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +180,8 @@ magnet:?xt=urn:btih:BDFBF8C61146E8A353F1258BB32F5E817D0A297F
 ```bash
 magnet:?xt=urn:btih:462E1F683F515A1778333D6DBFF416AB6516740A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +208,8 @@ magnet:?xt=urn:btih:462E1F683F515A1778333D6DBFF416AB6516740A
 magnet:?xt=urn:btih:A5B2E736EA79E1EFE6D08E1E80008CD97E78DD8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +233,8 @@ magnet:?xt=urn:btih:A5B2E736EA79E1EFE6D08E1E80008CD97E78DD8B
 ```bash
 magnet:?xt=urn:btih:FCEEE573D4E33E7F41310EE845C272AF86DBF769
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +262,8 @@ magnet:?xt=urn:btih:FCEEE573D4E33E7F41310EE845C272AF86DBF769
 magnet:?xt=urn:btih:3BB650150EFDDB23E079C6AF6214468DE64ED2DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +287,8 @@ magnet:?xt=urn:btih:3BB650150EFDDB23E079C6AF6214468DE64ED2DF
 ```bash
 magnet:?xt=urn:btih:AE9DB518FC8EC3A05177B9B92726A325A4BC437C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +314,8 @@ magnet:?xt=urn:btih:AE9DB518FC8EC3A05177B9B92726A325A4BC437C
 magnet:?xt=urn:btih:5A3971F0E331A88B367E1DD972B9749CB05EF3FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +339,8 @@ magnet:?xt=urn:btih:5A3971F0E331A88B367E1DD972B9749CB05EF3FB
 ```bash
 magnet:?xt=urn:btih:D5060A070B67DCEE7E052176023132081B445940
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +366,8 @@ magnet:?xt=urn:btih:D5060A070B67DCEE7E052176023132081B445940
 magnet:?xt=urn:btih:3C077F5A41F01BF0EF02D6B2DABCFF36E930D6ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +391,8 @@ magnet:?xt=urn:btih:3C077F5A41F01BF0EF02D6B2DABCFF36E930D6ED
 ```bash
 magnet:?xt=urn:btih:A192BB759E1F25E1281A86A4579D776162F4EA59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +418,8 @@ magnet:?xt=urn:btih:A192BB759E1F25E1281A86A4579D776162F4EA59
 magnet:?xt=urn:btih:B23EC077128343F8A03704F0EBCD2F314AAD8242
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +444,8 @@ magnet:?xt=urn:btih:B23EC077128343F8A03704F0EBCD2F314AAD8242
 ```bash
 magnet:?xt=urn:btih:C5BB58A1F4A3215E9FE709896491185872BCE475
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +473,8 @@ magnet:?xt=urn:btih:C5BB58A1F4A3215E9FE709896491185872BCE475
 magnet:?xt=urn:btih:47D872AFB91A22BF8DE8EB427167EF49E866D86D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +498,8 @@ magnet:?xt=urn:btih:47D872AFB91A22BF8DE8EB427167EF49E866D86D
 ```bash
 magnet:?xt=urn:btih:8B5FA06F11E83699B99C743F534E71CA04A9D028
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +526,8 @@ magnet:?xt=urn:btih:8B5FA06F11E83699B99C743F534E71CA04A9D028
 magnet:?xt=urn:btih:8F93C813EFAAFC052CE73F7AA550A73608035FA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +553,8 @@ magnet:?xt=urn:btih:8F93C813EFAAFC052CE73F7AA550A73608035FA2
 magnet:?xt=urn:btih:BC85D167A8B83AEA25C75AEA983B1205766D5A6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +578,8 @@ magnet:?xt=urn:btih:BC85D167A8B83AEA25C75AEA983B1205766D5A6E
 ```bash
 magnet:?xt=urn:btih:9B38465600525718048FC91C2195849A5644B0F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +607,8 @@ magnet:?xt=urn:btih:9B38465600525718048FC91C2195849A5644B0F9
 magnet:?xt=urn:btih:FD77333D287EBF3A3242CDBB487148CDC710938A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +632,8 @@ magnet:?xt=urn:btih:FD77333D287EBF3A3242CDBB487148CDC710938A
 ```bash
 magnet:?xt=urn:btih:15E44EEB44685B4D8F6D04C25EA0FD5D5C307F8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +659,8 @@ magnet:?xt=urn:btih:15E44EEB44685B4D8F6D04C25EA0FD5D5C307F8F
 magnet:?xt=urn:btih:895EBB4EF62C9D3113F1A39BAA073C8D207EBB67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,29 +685,7 @@ magnet:?xt=urn:btih:895EBB4EF62C9D3113F1A39BAA073C8D207EBB67
 magnet:?xt=urn:btih:CC45A0D437BF4D0582CD74341870FDF5BED0CCBF
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556732   (558095) от 10.06.2022
-
-Игорь Чиркунов | Сага об орке (Книга 1). Начало (2022) [MP3, Александр Чайцын]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начало – фантастический роман Игоря Чиркунова, первая книга цикла «Сага об орке», жанр героическое фэнтези, приключения, боевое фэнтези. «и только тот мог с правом называться морским конунгом, кто никогда не спал под закопчённой крышей и никогда не пировал у очага». Мечтаешь стоять на носу драккара, вглядываясь в выплывающий из тумана монастырь святого Кутберта? (   Читать дальше...   )Жанр: Боевое фэнтези, Историческое фэнтезиПродолжительность: 12:11:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB2C945E4CBBB17F0898A0D3B807A1AB5008E97C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

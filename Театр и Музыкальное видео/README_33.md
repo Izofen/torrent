@@ -28,6 +28,8 @@ B.B. King: Live (2006) [720p] BDRip
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ B.B. King: Live (2006) [720p] BDRip
 magnet:?xt=urn:btih:DE1FB90FA0E756975B5D213A3C7D46781331846C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -78,6 +82,8 @@ magnet:?xt=urn:btih:DE1FB90FA0E756975B5D213A3C7D46781331846C
 magnet:?xt=urn:btih:196D6FF2E9F6EE96E2797E922EA28696D09EF43D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ magnet:?xt=urn:btih:196D6FF2E9F6EE96E2797E922EA28696D09EF43D
 ```bash
 magnet:?xt=urn:btih:3826A9C185CA1C284E8D69B573793D3B400EF41B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -132,6 +140,8 @@ Rammstein - Live Aus Santiago, Chile (2010) HDRip
 ```bash
 magnet:?xt=urn:btih:7E9359A6DFBAAF27BAAEE743FA56C361B855A3C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +176,8 @@ Red Hot Chili Peppers: I'm With You (Live in Cologne) (2011) [1080i] HDTV
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +211,8 @@ Red Hot Chili Peppers: Live at Rock in Rio (2011) [1080i] HDTV
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +241,8 @@ Red Hot Chili Peppers: Live at Rock in Rio (2011) [1080i] HDTV
 magnet:?xt=urn:btih:B940FADB4EED26867DD89A498288EFC0F0651C50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +266,8 @@ magnet:?xt=urn:btih:B940FADB4EED26867DD89A498288EFC0F0651C50
 ```bash
 magnet:?xt=urn:btih:B1D85EDF089B6E41644ADB75A4272D2CE9E52C9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +296,8 @@ magnet:?xt=urn:btih:B1D85EDF089B6E41644ADB75A4272D2CE9E52C9D
 magnet:?xt=urn:btih:0FAE1BE104328B8B6630352E21BDC27B365D7645
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +322,8 @@ magnet:?xt=urn:btih:0FAE1BE104328B8B6630352E21BDC27B365D7645
 magnet:?xt=urn:btih:EC62E2EA896F4C802A521510623C06AB54811303
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +347,8 @@ Deepside Deejays, Jus Jack, Dada & Sandy Rivera - Lollipop (2012) [H.264/720p] W
 ```bash
 magnet:?xt=urn:btih:BA85C8410D7E8609FA6298BC4C6CB5536261C638
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +375,8 @@ magnet:?xt=urn:btih:BA85C8410D7E8609FA6298BC4C6CB5536261C638
 ```bash
 magnet:?xt=urn:btih:FC9B647FF51EC15CFBE14292B215A0EC9A78974A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +411,8 @@ magnet:?xt=urn:btih:FC9B647FF51EC15CFBE14292B215A0EC9A78974A
 magnet:?xt=urn:btih:F2343BCCEDDB0E349CD2A09D3B229FE497F3B9CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +436,8 @@ Dторой оффициальный DVD группы Nightwish включает
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +465,8 @@ Dторой оффициальный DVD группы Nightwish включает
 magnet:?xt=urn:btih:BEDB46FD2FCE369C447C626ECB0284FFDC490DCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +490,8 @@ magnet:?xt=urn:btih:BEDB46FD2FCE369C447C626ECB0284FFDC490DCF
 ```bash
 magnet:?xt=urn:btih:F46CC9EC22787ECB5ABD9764FC77CF714022A1B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +526,8 @@ magnet:?xt=urn:btih:F46CC9EC22787ECB5ABD9764FC77CF714022A1B2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +551,8 @@ Jennifer Lopez ft. Pitbull - Dance Again (2012) [H.264/1080p] WEBRip
 ```bash
 magnet:?xt=urn:btih:5EAC9FC51D40B07A45C93B655B94050A711A8D84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +579,8 @@ magnet:?xt=urn:btih:5EAC9FC51D40B07A45C93B655B94050A711A8D84
 ```bash
 magnet:?xt=urn:btih:256A977999903A6CDF38A73FD39562F76AFBA847
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +615,8 @@ Kiss - The Elder Media Collection (1981) DVD5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +641,8 @@ Basshunter - Saturday (Uncensored) (2012) [H.264] WEBRip
 magnet:?xt=urn:btih:A69E401FA02594BB1F3A6F6C16BEAB2B430A38D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +666,8 @@ John Lennon / Lennon - Legend - The Very Best of John Lennon (2003) DVD9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -656,6 +702,8 @@ Simon and Garfunkel - The Concert In Central Park, 1981 (2004) DVD5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -679,6 +727,8 @@ Alex Gaudino ft. Crystal Waters - Destination Calabria (2007) [720p] HDTVRip
 ```bash
 magnet:?xt=urn:btih:8C0D44966E0E946210358F6AECC2C23E6264E8B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -712,6 +762,8 @@ ABBA - Number Ones (2006) DVD9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ WPS Office - очень полезное, офисное приложение д
 magnet:?xt=urn:btih:BCB6A9B221F45DBCC818894FFD2FB79857B8AED0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ PhotoRoom v5.3.8 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9FD6287CBD9C56951C5A5DE4C8F36B4880AD019E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ VRadio - Online Radio App v2.7.2 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:908045A6B8C3BCC0A6274D66F67743D48AF61189
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:908045A6B8C3BCC0A6274D66F67743D48AF61189
 ```bash
 magnet:?xt=urn:btih:653772BA657707572FB8DBCABA7FC36086907301
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ TapScanner — сканер документов, это простой скан
 magnet:?xt=urn:btih:4FA8D05209156B63A0A73DE1483441074FFBF8EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ PDF Extra PDF Editor & Scanner v10.16.26608 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D2215C95F25A49578BCC32E7646321AC3CFC8E32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:D2215C95F25A49578BCC32E7646321AC3CFC8E32
 magnet:?xt=urn:btih:98C0D6BB94051AE7782B36407F6F4F32CFF8588C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Electrical Calculations Pro / Электрические расчеты v10.0.9 
 ```bash
 magnet:?xt=urn:btih:8B22E142B196C7B4A17ACD8DF5D2479CCF8BBC94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ ToonApp карикатура фоторедактор лучшее прилож�
 magnet:?xt=urn:btih:2B7C51A0BC36D5BBB72B05D19F27C6E62B8941FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Polarr v6.9.12 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:EE4E530F064B97B8EC5DC31EBB5FEC203FA77D60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Logo Maker v43.05 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:8A72C7D638752445BDD9FB2E17A238D380452931
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Persona - твоя новая селфи-камера на каждый день
 ```bash
 magnet:?xt=urn:btih:52933B868765DD06FE1518D7276F16A05E6B88D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Denoise it - ИИ фоторедактор v1.2.0 Mod by srajawwal09 [Ru/Multi]
 magnet:?xt=urn:btih:C781A04E6A34A95FD359B57FE1D01F0FC711A8E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Colorize it v2.2.0 Mod by derrin [Multi]
 ```bash
 magnet:?xt=urn:btih:3DEF5AC551B37ABFF0F511C8141A5962B353F6AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Plus Messenger - неофициальное приложение для обме
 magnet:?xt=urn:btih:D80C13699E201BA70343E61828636DCD71D8150F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:D80C13699E201BA70343E61828636DCD71D8150F
 ```bash
 magnet:?xt=urn:btih:17824F33B2E7B109F1ABC4C9E7D58226B25162EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Reface: Face Swap AI Generator v4.22.2 Mod by Mixroot [Multi]
 magnet:?xt=urn:btih:6240B9F73893958BB4CDF6581E17A010ECF936AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:C06480C10D011D49A7794FD9737DC040A1848365
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Dada: коллаж и стикеры на фото v1.2.8 Mod by Alex.Strannik [
 magnet:?xt=urn:btih:7653334A0A80BB1E8B5324BDF75910927DEB6535
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Photo Editor - уникальная программа для обработки
 ```bash
 magnet:?xt=urn:btih:3C6E6499DA6C9652C8D988BA7EF1DD932BFA337D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ Lighting calculations / Расчеты освещения v6.0.5 Mod by Balatan 
 magnet:?xt=urn:btih:FFE57EB21A3F92F77EFC647B26FF2A8F60DF4E54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ One Read / Все Документы Читатель - Офис v1.2.0 Mod by v
 ```bash
 magnet:?xt=urn:btih:1633D83FF5854F096D780A9A176A0793FF0365C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ Photo Studio — не просто приложение для редактир�
 magnet:?xt=urn:btih:815A4A8225865D516CEABAAEB717066AD3B65591
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ magnet:?xt=urn:btih:815A4A8225865D516CEABAAEB717066AD3B65591
 ```bash
 magnet:?xt=urn:btih:2F7AA6781E1A73CC8226ED1F2EACC55D86196B8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ Picturize it v1.2.0 Mod by srajawwal09 [Ru/Multi]
 magnet:?xt=urn:btih:3755E462F317AB0315555BAE39ADAA2AB6908599
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Rock Identifier - Stone ID v2.3.40 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0DE1E815CC2C12F3BFF89896DCD41DDF54F3C5CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

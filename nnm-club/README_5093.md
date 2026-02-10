@@ -22,6 +22,8 @@ Unheilig - Zelluloid (2004) [FLAC|Lossless|image + .cue] <Industrial Gothic Meta
 magnet:?xt=urn:btih:742DC8FE85D289F5FF2ADE6DD157BA4AD1525902
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:742DC8FE85D289F5FF2ADE6DD157BA4AD1525902
 ```bash
 magnet:?xt=urn:btih:57D224F293AA5215F346C6ADDB90842A934FB7F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ The Cars - Heartbeat City (1984) Reissue, Remastered, 2016, Mobile Fidelity Soun
 magnet:?xt=urn:btih:E2A1F78A59E681FDE8B16A175198DF28DBDB7D60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:E2A1F78A59E681FDE8B16A175198DF28DBDB7D60
 magnet:?xt=urn:btih:F931D6D74F35E7E145C54EAC8DCFE713B65F62C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Revo Uninstaller Pro 3.1.8 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DF017EEEE420DA659E57F569B507AAF822D76095
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:DF017EEEE420DA659E57F569B507AAF822D76095
 magnet:?xt=urn:btih:93EBE62180E45895708CC8A17607D117648622BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:93EBE62180E45895708CC8A17607D117648622BA
 magnet:?xt=urn:btih:47A517120C7EF2F49F741D1C2C9307CB3DBEABF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:47A517120C7EF2F49F741D1C2C9307CB3DBEABF9
 ```bash
 magnet:?xt=urn:btih:4684FDC218EEA26FF897E610FE263402555EC65B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ Cosmitorium - Broken Archetypes (2023) [MP3|320 Kbps] <Progressive Death Metal>
 magnet:?xt=urn:btih:C5631C00FBFD3C06D15E34A3D449B744360348BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:C5631C00FBFD3C06D15E34A3D449B744360348BA
 ```bash
 magnet:?xt=urn:btih:EA41906FD377E46DF856D74B8239142819BCFE39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:EA41906FD377E46DF856D74B8239142819BCFE39
 magnet:?xt=urn:btih:A2D4B3F9E6409EF5A634A4A3E2DA213710146A88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:A2D4B3F9E6409EF5A634A4A3E2DA213710146A88
 ```bash
 magnet:?xt=urn:btih:CB297B7B6ADFC493990F61DB973D61EC0A17ABFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ Q-Dir позволяет получать быстрый доступ к час�
 ```bash
 magnet:?xt=urn:btih:C2CA3AF8B835CAD7780464F0A972F4DAE1A942C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ Unheilig - Phosphor (2001) [FLAC|Lossless|image + .cue] <Industrial Gothic Metal
 magnet:?xt=urn:btih:BEF3C6492A3212321980DC90B84B8A0A959277D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ Rick Wakeman - Journey To The Centre Of The Earth (1974) Japanese Edition, Reiss
 magnet:?xt=urn:btih:0914061BCF644E698DB6CE95AA3F8069264C06B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ Parasite Eve 2 (2000) [Ru/En] (1.0) Repack Ma2012ks
 ```bash
 magnet:?xt=urn:btih:610E90C9D595CD204E6575142C909411CBB24464
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ Adobe Animate CC 2017, пришедший на смену Flash Professional - �
 magnet:?xt=urn:btih:9DF444038E1B8E7BEAFD1612B08ACC7072746CC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ magnet:?xt=urn:btih:9DF444038E1B8E7BEAFD1612B08ACC7072746CC7
 ```bash
 magnet:?xt=urn:btih:491A874C59471AB7902111800BC283BE807ADA8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:491A874C59471AB7902111800BC283BE807ADA8E
 magnet:?xt=urn:btih:E401A82DD17F46737C5F02DF468D16BE5905FE66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:E401A82DD17F46737C5F02DF468D16BE5905FE66
 ```bash
 magnet:?xt=urn:btih:B6F1A544DF9BA58C88DA82BD8F62F495E5DD5266
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +562,8 @@ Unheilig - Frohes Fest (2002) [FLAC|Lossless|image + .cue] <Industrial Gothic Me
 magnet:?xt=urn:btih:FE41ED0AD2A548D50702ACF0BA6CD52DC4924124
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ magnet:?xt=urn:btih:FE41ED0AD2A548D50702ACF0BA6CD52DC4924124
 magnet:?xt=urn:btih:679E64EDED7D402D5EB7DE2F66336A2396BAC575
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ magnet:?xt=urn:btih:679E64EDED7D402D5EB7DE2F66336A2396BAC575
 ```bash
 magnet:?xt=urn:btih:C120F1DB3EC21AA049D6180A39A14B412381169B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +643,8 @@ Twisted Psykie - Washed Away (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, UK G
 magnet:?xt=urn:btih:CF1FA279A3B76C530910949511B48724AE3568B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +668,8 @@ Dies Irae - Ethereal (1998) Remastered-2019 [FLAC|Lossless|image + .cue] <Melodi
 ```bash
 magnet:?xt=urn:btih:FC2828B347A37EA57CA288F2AE7CA62EF16230C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -647,6 +697,8 @@ Illingsworth - You're No Fun (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Unde
 ```bash
 magnet:?xt=urn:btih:0F94C27C801288B25FCE85FCCD030378BA5722E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

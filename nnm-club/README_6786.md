@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:8554C92B8433959BB22E0EC31F6013B0851EA7C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Leilani Kilgore - Tell Your Ghost (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 ```bash
 magnet:?xt=urn:btih:B7E80E4C7699EB4E5B1DF7326F7AC62EFD3EAF6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Laura Evans - Out of the Dark (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 magnet:?xt=urn:btih:3A3ECE3B9D3ABE630027A3B973DC442C08FA8D44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Henry Conlon - American Wild (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, 
 ```bash
 magnet:?xt=urn:btih:253AD504F7030BDE5494C896609998015C2FA7DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Atua Blues - Two Roots (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:75D1C160AEDA59716B0D765EEB0204C5DBD42DBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ Mortal Kombat 11 – продолжение культовой серии фай
 ```bash
 magnet:?xt=urn:btih:3714EDFD2580FC0C3B3C9186B6EF5EEA86BB26D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ Willie Phoenix - Flower Machine (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 magnet:?xt=urn:btih:D665FF16DF837E527DE58F716349B236C4CAAE14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ A Legionary's Life – симулятор жизни римского легио
 ```bash
 magnet:?xt=urn:btih:544A227B78E4110DA41B55EC1CC3B72E2CA9D52E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ Adobe Photoshop — это приложение для редактирован�
 magnet:?xt=urn:btih:4910A2B26BC9E3186F083B6E0594A6DCC2985EF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:4910A2B26BC9E3186F083B6E0594A6DCC2985EF4
 ```bash
 magnet:?xt=urn:btih:09B84E344A502163EF280515CFE0F6C4FD00B73A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ Mononoke Hime | Принцесса Мононокэ | Princess Mononoke | При
 magnet:?xt=urn:btih:B40336292CEF69ED54E44D8B72FE38ED7AB29067
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:B40336292CEF69ED54E44D8B72FE38ED7AB29067
 ```bash
 magnet:?xt=urn:btih:C352D006F948984F10ABF3242C95F7FD2458E4F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:C352D006F948984F10ABF3242C95F7FD2458E4F8
 magnet:?xt=urn:btih:63F81B52C8D794C0943971F6D7EDC8C72FEF2401
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:63F81B52C8D794C0943971F6D7EDC8C72FEF2401
 ```bash
 magnet:?xt=urn:btih:E06A2A53F3CC2A3AB80811BCFE470B4F1552AEEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:E06A2A53F3CC2A3AB80811BCFE470B4F1552AEEC
 magnet:?xt=urn:btih:97A3088434A2EBFCFBBD10FE4CC876D244D84DAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:97A3088434A2EBFCFBBD10FE4CC876D244D84DAC
 ```bash
 magnet:?xt=urn:btih:41C00C8630F9080E31157F0F2A6010BE5D1A98B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +454,8 @@ VA - Anything and everything assorted part 10 (2025) [MP3|320 Kbps] <Electronic,
 magnet:?xt=urn:btih:625E7C4B2B6CB8CB9C4BC52DDB5A8A1CA7CE9DCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:625E7C4B2B6CB8CB9C4BC52DDB5A8A1CA7CE9DCF
 ```bash
 magnet:?xt=urn:btih:B39F6655EB8B81AD3A45FA3F40563D43ECFF3A92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:B39F6655EB8B81AD3A45FA3F40563D43ECFF3A92
 magnet:?xt=urn:btih:644AACB48E106F45B66A8F4D90ED27EB6FF61581
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:644AACB48E106F45B66A8F4D90ED27EB6FF61581
 ```bash
 magnet:?xt=urn:btih:F9CBCB0373BCE1B7E1ED08172BD9993E811C5043
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ CD1 - Dissonance Theory (Album 2025):
 magnet:?xt=urn:btih:847A7E4D0D504D0A591301F9F8C9A29C935C2634
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:847A7E4D0D504D0A591301F9F8C9A29C935C2634
 magnet:?xt=urn:btih:E893D25AB167F1A8BF1C7E5F4FB798A4FB59840A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:E893D25AB167F1A8BF1C7E5F4FB798A4FB59840A
 ```bash
 magnet:?xt=urn:btih:3322D88CB3923B1746656D6B84B09BC660C85DE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +642,8 @@ magnet:?xt=urn:btih:3322D88CB3923B1746656D6B84B09BC660C85DE0
 magnet:?xt=urn:btih:5CBB6E119BFBAFA89823E52291F45FF51528AB77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +668,8 @@ Imagine - это бесплатный просмотрщик изображен�
 magnet:?xt=urn:btih:DEC7174717BA1AC72F1082955268DD159F8CE494
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ magnet:?xt=urn:btih:DEC7174717BA1AC72F1082955268DD159F8CE494
 ```bash
 magnet:?xt=urn:btih:D313F7EE5BEA9F334EA8EA4B25B3188B5B50AB8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1533351   (707052) от 23.02.2022
+
+Как уходили кумиры. Юрий Барабаш (Петлюра) (2006) TVRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Страна знала его как Петлюру. Грустные глаза с кассетной обложки. Необычный приятный голос. Песни, полные тоски. Проникающие прямо в душу и выворачивающие ее... И все!Телекомпания: ДТВЖанр: ДокументальныйРежиссер: Дмитрий КужаровСубтитры: ОтсутствуютПродолжительность: 00:19:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B6CBC8AB5064C9CCF11CA50134193410F67F638
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401685   (707389) от 11.08.2020
 
 Крошечные существа  / Tiny Creatures (2020) WEBRip [H.264] (сезон 1, серии 1-8 из 8) [VO]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:7366D68E2C28CD5C4EB3B947512B1702EA1A4EE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:7366D68E2C28CD5C4EB3B947512B1702EA1A4EE4
 ```bash
 magnet:?xt=urn:btih:B6C5D5C55F8451230ADD8B6E1028FC9AE65FA9D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:B6C5D5C55F8451230ADD8B6E1028FC9AE65FA9D9
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ BBC. Дикие Карибы / Wild Caribbean (2007) HDTVRip [H.264/720p-LQ] (с
 ```bash
 magnet:?xt=urn:btih:98F06E93A4CAF7CA1336744844E42752A5A8FB5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:98F06E93A4CAF7CA1336744844E42752A5A8FB5E
 magnet:?xt=urn:btih:8A6663D5F5DA9AE4D378EC7F8EF7AC5C8148FEF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:8A6663D5F5DA9AE4D378EC7F8EF7AC5C8148FEF7
 magnet:?xt=urn:btih:4060B4F7ADCDC0D28723E490E7CCC1CC219F1ED0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:4060B4F7ADCDC0D28723E490E7CCC1CC219F1ED0
 ```bash
 magnet:?xt=urn:btih:4AE370498A4F644E8355EE4A23DDC91C25490836
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +233,8 @@ magnet:?xt=urn:btih:4AE370498A4F644E8355EE4A23DDC91C25490836
 magnet:?xt=urn:btih:08AA3E0A300186CDBD44493A3B5EEF7BED481B00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:08AA3E0A300186CDBD44493A3B5EEF7BED481B00
 ```bash
 magnet:?xt=urn:btih:E72DCC161A272CA465EF2669FE9FA2D391CA6141
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:E72DCC161A272CA465EF2669FE9FA2D391CA6141
 magnet:?xt=urn:btih:71FC95EC61992C333129B18CCE22F790BE31717D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:71FC95EC61992C333129B18CCE22F790BE31717D
 ```bash
 magnet:?xt=urn:btih:DF058C0EA8519806B98800915A7D9A2F9B9094B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:DF058C0EA8519806B98800915A7D9A2F9B9094B3
 magnet:?xt=urn:btih:7778E342F5A0358291F51F51E4D0FAFEE0E717EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:7778E342F5A0358291F51F51E4D0FAFEE0E717EC
 ```bash
 magnet:?xt=urn:btih:0529E6B73FF260057223D2E570AC15E7CC860F69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:0529E6B73FF260057223D2E570AC15E7CC860F69
 magnet:?xt=urn:btih:1F66FE8A47C01A1F2875C28B2F743BFE1451980D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:1F66FE8A47C01A1F2875C28B2F743BFE1451980D
 ```bash
 magnet:?xt=urn:btih:6894DB7AC81D8A31441748096F5686F300E99CC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:6894DB7AC81D8A31441748096F5686F300E99CC8
 magnet:?xt=urn:btih:63961959123F95BD24400095AFE573E3E7ACF911
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:63961959123F95BD24400095AFE573E3E7ACF911
 ```bash
 magnet:?xt=urn:btih:7131144664734338131EAB8ECD2200198660E515
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:7131144664734338131EAB8ECD2200198660E515
 magnet:?xt=urn:btih:AB2F4CCB0538E4BEAFFE658EBE721548362F4D56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:AB2F4CCB0538E4BEAFFE658EBE721548362F4D56
 ```bash
 magnet:?xt=urn:btih:80067BCB737C1BD5D945012ABC114B409569D427
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:80067BCB737C1BD5D945012ABC114B409569D427
 magnet:?xt=urn:btih:C39E937418F94BB487B99A321FEB0D8E7FB2B8C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:C39E937418F94BB487B99A321FEB0D8E7FB2B8C0
 ```bash
 magnet:?xt=urn:btih:DDF5999620C85530CF927B84D9D6203A61BFEE44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +598,8 @@ magnet:?xt=urn:btih:DDF5999620C85530CF927B84D9D6203A61BFEE44
 magnet:?xt=urn:btih:9617A84FE2986D899ABB2455D93BC33681891AF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:9617A84FE2986D899ABB2455D93BC33681891AF0
 ```bash
 magnet:?xt=urn:btih:A0784D69BFEFACB6E85642057C107601C6CC4D55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:A0784D69BFEFACB6E85642057C107601C6CC4D55
 magnet:?xt=urn:btih:492B2BA5940C08084F4F8AF62CF6E22007C395DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,29 +676,7 @@ Travel: Музейные тайны / Mysteries at the Museum (2016) HDTVRip [H.
 magnet:?xt=urn:btih:1DFDDD32FA485D3DCAD141B9285309C5FA0AF18B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533032   (708751) от 22.02.2022
-
-Хокинг: вы меня слышите? / Hawking: Can You Hear Me? (2021) WEBRip
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708751.jpg" />
-</div>
-
-
-###  Подробнее
-
-История знаменитого астрофизика Стивена Хокинга, рассказанная его близкими людьми. В создании документального фильма приняли участие дети ученого, его первая жена Джейн, а также ряд знаменитых коллег. Беспрецедентный доступ создателей картины к личному кругу Хокинга позволил создать увлекательный, честный и очень глубокий портрет человека, который не только навсегда (   Читать дальше...   )Производство: Великобритания, Atlantic Productions, SKY StudiosЖанр: документальный, история, биографияРежиссер: Оливер ТвинчПеревод: многоголосый профессиональный (Amedia)Субтитры: отсутствуютПродолжительность: 01:30:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DF6E8EF33906FA9173E0BCAD8A2B98E7BB40D79
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

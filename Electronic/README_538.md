@@ -22,6 +22,8 @@ VA - The Best Releases 2025 of High Emotions Recordings (2025) [MP3|320 Kbps] <T
 magnet:?xt=urn:btih:BAC8FBF04EAE28B988755C826F6A83BBA268A6E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - A State of Trance Year Mix 2025 (Selected by Armin van Buuren) (2025) [FLAC
 ```bash
 magnet:?xt=urn:btih:9E02D3ED1750872045329D1ECE4BDEF9BC793EC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - The Orient Collective: Mystic Dunes (2025) [FLAC|Lossless|WEB-DL|tracks] <W
 magnet:?xt=urn:btih:93F1A428239242CD868372B12DD775AED8EAF533
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ VA - Gert Year Best Collection 2025 (2025) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:82A9939B1C18378F79E7124881BA4AB4E6FA595C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ Niel De One - Club Tools 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <House>
 magnet:?xt=urn:btih:3F279F9755A644D56091DC02FE227D5D9428540D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ VA - Anjunadeep The Yearbook 2025 (2025) [MP3|320 Kbps] <Progressive House, Melo
 ```bash
 magnet:?xt=urn:btih:C85FDE76FA83C1C8A43A30891D4FDC7FC1F17C73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -180,6 +192,8 @@ VA - Chill Lounge del Mar 2026 (Café Chillout Playlist Compilation, Vol.9 - mix
 magnet:?xt=urn:btih:8974E181FC7CF35AB703FE85AC5B08C85A0A9151
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -206,6 +220,8 @@ VA - Black Hole Recordings - Best Of 2025 (2025) [MP3|320 Kbps] <Trance, Progres
 ```bash
 magnet:?xt=urn:btih:77F775A9719755D0FD4E6F29112E5DF2B0EE886B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -234,6 +250,8 @@ VA - Redux Presents: The Finest Selection 2025 Mixed by DJ Jayel (2025) [MP3|320
 magnet:?xt=urn:btih:DB6D8798172F5AF55D69541E6D7A4288B08E6877
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +278,8 @@ Calibre - Rudy (2023) [FLAC|Lossless|tracks + .cue] <Drum'n'Bass, Liquid Funk, A
 ```bash
 magnet:?xt=urn:btih:09FE6EC5E3EC032D53C273C2FAE32D6FCE53D29F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +308,8 @@ Calibre - they want you (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Drum'n'Bas
 magnet:?xt=urn:btih:6C951299A0A538957E5DDE236FBCA8656F072AFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +336,8 @@ VA - Armada Music Year Mix 2025 (2025) Extended Versions [MP3|320 Kbps] <Dance, 
 ```bash
 magnet:?xt=urn:btih:71420EEDCE3830CE63D05BDAA96296A8D49043CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +366,8 @@ VA - Armin van Buuren - A State Of Trance 1256 (Top 50 Of 2025) (2025) [MP3|320 
 magnet:?xt=urn:btih:6473BE1622A6DE2EBEFEA2372489ED297715BDBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +394,8 @@ VA - Ori Uplift - Uplifting Only Episode 671 (Ori’s Top 50 Instrumental Uplift
 ```bash
 magnet:?xt=urn:btih:B1E56047820EFF0ABD10F12E60A49DAD552FB59B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +424,8 @@ VA - The Best Releases 2025 of Your Melodies (2025) [MP3|320 Kbps] <Trance, Upli
 magnet:?xt=urn:btih:A49DB27481618A6470AE0D036ABC0578319123C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +452,8 @@ VA - The Best Of Full On 140 Records 2025 (2025) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:8750A10EF131D3C36701919B7E516513B7588917
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +482,8 @@ VA - Monster Tunes Year Mix 2025 (Mixed By Exouler) (2025) [MP3|320 Kbps] <Tranc
 magnet:?xt=urn:btih:B7D4DFDA38A131327E7416B4A6FD4555BCD1318E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +510,8 @@ VA - This is Ablazing 2025 (Mixed and Selected by Rene Ablaze) (2025) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:2DACC276B463615B8768BCD6F83CA6032073DD99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +540,8 @@ VA - Balearic Chill Out Winter 2026 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge
 magnet:?xt=urn:btih:FDDF198963A4B9781CB0D0967E12588F4F515714
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +568,8 @@ VA - The Orient Collective: Sand & Silence (2025) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:5EC9D01139608D2FFD2AA4E35FE319A192A65C2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +598,8 @@ Parov Stelar, жанровый анархист из Австрии, выпус�
 magnet:?xt=urn:btih:C84CBEE51D070226386FFC03D4AF35328B5AAC23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +626,8 @@ VA - The Best Of Suanda Chillout 2025 (2025) [MP3|320 Kbps] <Downtempo, Chillout
 ```bash
 magnet:?xt=urn:btih:A8B8A73238259CFE3E3582A45F55D0CEB6ED9F3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +656,8 @@ magnet:?xt=urn:btih:A8B8A73238259CFE3E3582A45F55D0CEB6ED9F3C
 magnet:?xt=urn:btih:7069A7889BFE9801372BC8BA79B94F160D5F00C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +681,8 @@ magnet:?xt=urn:btih:7069A7889BFE9801372BC8BA79B94F160D5F00C6
 ```bash
 magnet:?xt=urn:btih:4C5E7A8076DB4B5A855B9D0840A4D1E3C3AFA842
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -663,6 +711,8 @@ VA - Enhanced Progressive Best of 2025 (Mixed by Matt Fax) (2025) [MP3|320 Kbps]
 magnet:?xt=urn:btih:496F144213B204C52A358283854B4509E46D820E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -689,6 +739,8 @@ VA - Interplay 2025 (Mixed by Alexander Popov) (2025) [MP3|320 Kbps] <Trance, Pr
 ```bash
 magnet:?xt=urn:btih:0698F83EC1BE8BC08455DDE21783E3FAF9130F99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,52 +1,3 @@
-###  Публикация: 959108   (319367) от 23.11.2015
-
-Татьяна Тронина | Та, кто приходит незваной (2015) [FB2]
-
->>Художественная литература
->>Современная поэзия и проза
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лиля считала себя вполне счастливой женщиной: у нее был любящий муж и маленькая дочь. Лиля не искала приключений и не мечтала о любви на стороне. Однако она внезапно случилась. Словно молния посреди ясного неба, неизбежная, как рок. Вдруг стало очевидно, что все это время женщина жила не своей жизнью, рядом с совершенно чужим человеком. Что же делать теперь? Бросить (   Читать дальше...   )Жанр: Остросюжетные любовные романыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA793650E18F69FA0391DD5C29222616F517F241
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959205   (319368) от 23.11.2015
-
-Познер. Интервью с Дмитрием Рогозиным (23.11.2015) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319368.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Познер» - это программа-интервью. Владимир Познер задает вопросы политикам, общественным деятелям, деятелям культуры, искусства, науки, спорта. Беседа может быть как привязана к актуальным событиям недели, так и не связана с последними событиями.
-Обязательным условием каждого выпуска ведущий считает рубрику «vox populi» (глас народа). Вопросы гостю программы задают (   Читать дальше...   )В этом выпуске: В чем разница между толерантностью и терпимостью? Как решается проблема мигрантов на Западе и в России? Что происходит сегодня в отечественной промышленности? Какие задачи ставятся перед оборонно-промышленным комплексом и космической отраслью? На вопросы Владимира Познера отвечает заместитель председателя правительства РФ, председатель коллегии Военно-промышленной (   Читать дальше...   )Телекомпания: Первый КаналЖанр: ТелепередачаПродолжительность: 00:54:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BCD33738DC1B67B9087C8C4E07E57E97F2F9D4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958475   (319369) от 23.11.2015
 
 Орел и решка. Шопинг. Сезон №3. Коста-Рика (2015.11.21) SATRip
@@ -67,6 +18,8 @@ magnet:?xt=urn:btih:6BCD33738DC1B67B9087C8C4E07E57E97F2F9D4E
 ```bash
 magnet:?xt=urn:btih:0EF64E576DC0889B3286BA6145D3793C143229A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +44,8 @@ magnet:?xt=urn:btih:0EF64E576DC0889B3286BA6145D3793C143229A9
 ```bash
 magnet:?xt=urn:btih:4B9DA03C2ED268AABBEE5BAA0655067213751263
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +74,8 @@ Eloy Fritsch - The Garden of Emotions (2009) [FLAC|image+.cue]<Electronic, Ambie
 magnet:?xt=urn:btih:618BF756AC17A771567F892BC30C94AC5184F1F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +103,8 @@ VA - Paris La Nuit - Chillin Lounge Selection Vol 3 (2015) [MP3|320 кб/с]<Lou
 magnet:?xt=urn:btih:DFFFD0BE6A06C35ADA6FD280036E04B069CC84F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +128,8 @@ magnet:?xt=urn:btih:DFFFD0BE6A06C35ADA6FD280036E04B069CC84F2
 ```bash
 magnet:?xt=urn:btih:2EEDE895AEA09A443D9B113BC952891679C2C97B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +157,8 @@ VA - Autumn Festival: 100 Club House (2015) [MP3|320 кб/с]<Club House, Dance,
 magnet:?xt=urn:btih:36CC8DB860DC913692119B35970F338343B835C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +183,8 @@ magnet:?xt=urn:btih:36CC8DB860DC913692119B35970F338343B835C9
 magnet:?xt=urn:btih:B8B6E0B45746BAFEF414357E44058E498F2F1E28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +208,8 @@ magnet:?xt=urn:btih:B8B6E0B45746BAFEF414357E44058E498F2F1E28
 ```bash
 magnet:?xt=urn:btih:0A8E1DC3A6757DB754D7DFD32CBEEACB9CB6AC8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +236,8 @@ magnet:?xt=urn:btih:0A8E1DC3A6757DB754D7DFD32CBEEACB9CB6AC8E
 magnet:?xt=urn:btih:F42D92F8E060FF8C5198CDA1477A194890201E1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +261,8 @@ magnet:?xt=urn:btih:F42D92F8E060FF8C5198CDA1477A194890201E1B
 ```bash
 magnet:?xt=urn:btih:5411C0217BBBF262F31733D72D75AC5D954E1DE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +291,8 @@ magnet:?xt=urn:btih:5411C0217BBBF262F31733D72D75AC5D954E1DE8
 magnet:?xt=urn:btih:E1431D97EFEED4D2E281D6355D5B90DF7B3A7EDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +316,8 @@ magnet:?xt=urn:btih:E1431D97EFEED4D2E281D6355D5B90DF7B3A7EDB
 ```bash
 magnet:?xt=urn:btih:6DF2E579DF5C50C1B441D7B8E3680BDB4ED4A166
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +346,8 @@ VA - After Work Lounge Vol 2 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Loung
 magnet:?xt=urn:btih:5B42A0CBF39FB0AC723C837836B7AFFAF4C9CAAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +374,8 @@ Arms and Sleepers - Swim Team Remixed (2016) [FLAC|Lossless|WEB-DL|tracks]<Ambie
 ```bash
 magnet:?xt=urn:btih:39BEB1B4C3CBDDF29DD8507B3B93FEA11A5D84C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +404,8 @@ VA - After Work Lounge Vol 1 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Loung
 magnet:?xt=urn:btih:EA002D330916FFF08ED5C534E895773B9647A76B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +429,8 @@ magnet:?xt=urn:btih:EA002D330916FFF08ED5C534E895773B9647A76B
 ```bash
 magnet:?xt=urn:btih:B69C7380FD9FB4D9EA5FA8931ABB9B5FEBA2E764
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +456,8 @@ magnet:?xt=urn:btih:B69C7380FD9FB4D9EA5FA8931ABB9B5FEBA2E764
 magnet:?xt=urn:btih:F7A5A4672DBA8819ADCA915011CD9982748AE3DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +481,8 @@ magnet:?xt=urn:btih:F7A5A4672DBA8819ADCA915011CD9982748AE3DC
 ```bash
 magnet:?xt=urn:btih:6B34B491DA81C4A799F4741AA146154B2ADE312D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +508,8 @@ magnet:?xt=urn:btih:6B34B491DA81C4A799F4741AA146154B2ADE312D
 magnet:?xt=urn:btih:11DB3BD319D0B13C29692DAB4275271C65048510
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +533,8 @@ magnet:?xt=urn:btih:11DB3BD319D0B13C29692DAB4275271C65048510
 ```bash
 magnet:?xt=urn:btih:E0B618B937E82FBCF5CF36A1B918464F2897490B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +560,8 @@ magnet:?xt=urn:btih:E0B618B937E82FBCF5CF36A1B918464F2897490B
 magnet:?xt=urn:btih:DFD2DC922441A77247CCDA236BEB53B6B1A02A0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +586,8 @@ magnet:?xt=urn:btih:DFD2DC922441A77247CCDA236BEB53B6B1A02A0E
 ```bash
 magnet:?xt=urn:btih:C495B4C6A6FB8B045A914422F57CCFC83068A0DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +616,8 @@ magnet:?xt=urn:btih:C495B4C6A6FB8B045A914422F57CCFC83068A0DE
 ```bash
 magnet:?xt=urn:btih:9C2116137E5DE7235E8F8047BC223CB705E4DB04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -654,6 +651,66 @@ magnet:?xt=urn:btih:9C2116137E5DE7235E8F8047BC223CB705E4DB04
 ```bash
 magnet:?xt=urn:btih:A1A1AF699CAC160BCE418946B8148A4D750F57A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181998   (319424) от 09.11.2017
+
+Fats Domino - Greatest Hits (1991) [MP3|320 Kbps] <Rock'n'roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_319424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blueberry Hill (02:28)
+02. I'm In Love Again (01:58)
+03. My Blue Heaven (02:09)
+04. When My Dreamboat Comes Home (02:25)(   Читать дальше...   )Жанр: Rock'n'rollПродолжительность: 00:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AEC450A75C63251C6026B84AFA8707FFF41549F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182063   (319425) от 09.11.2017
+
+VA - Roger Shah presents High Noon At Salinas - Beach Grooves Vol 1 (2017) [FLAC|Lossless|tracks] <House, Progressive House,Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_319425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. High Noon At Salinas – In the Beginning There Was Sand (Extended Mix)
+02. Sunlounger & High Noon At Salinas – High Noon Sunlounging feat. Sunlounger (Extended Mix)
+03. High Noon At Salinas & Noah Shah – Tarida feat. Noah Shah (Extended Mix)
+04. High Noon At Salinas & Leilani – Hale Kula feat. LeiLani (Extended Mix)(   Читать дальше...   )Жанр: House, Progressive House,Deep HouseПродолжительность: 01:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD21698EAF2DFF752055F02794B2428357BF0440
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ Black Country Communion - Red Sun; Stay Free (2024) [FLAC 24/44.1|Lossless|WEB-D
 magnet:?xt=urn:btih:343CFEC41204F36086AEC6AEDDF9CB8EA90DA51F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ KineMaster - Video Editor & Maker v7.4.7.32377.GP Mod by Shadow_Patcher [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:EA26D1891F92D71EC0C42191050153368B416F0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ PhotoRoom v4.9.2 b1356 Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:92D6B8DF4BCF192624F3B945EFB14A584AFB31B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:92D6B8DF4BCF192624F3B945EFB14A584AFB31B6
 magnet:?xt=urn:btih:3B01D5C560CDEC20C83F5EACD68067FAC9C525A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:3B01D5C560CDEC20C83F5EACD68067FAC9C525A8
 ```bash
 magnet:?xt=urn:btih:D30E1D511721905E682DFB4E3397C1B1EBB8ACFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:D30E1D511721905E682DFB4E3397C1B1EBB8ACFE
 ```bash
 magnet:?xt=urn:btih:82D8A715F3599A995BB98FC427BD7BED90B486D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Halie Loren - Dreams Lost and Found (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal 
 magnet:?xt=urn:btih:80D9F75FCFBBB619C3C902DA3BB1E5D74C3EA23B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ VA - 100 Soul Train Hits (2010) Re-Recorded/Remastered versions [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:3947FFE03A643C8F6C8CE07C8EA7C338F01FA246
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:3947FFE03A643C8F6C8CE07C8EA7C338F01FA246
 magnet:?xt=urn:btih:AE808301888A33822D36CB481C7784CDCC8B671C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:AE808301888A33822D36CB481C7784CDCC8B671C
 ```bash
 magnet:?xt=urn:btih:090D2BAAC017EEDAB987DFA7113C802DA6CFC977
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:090D2BAAC017EEDAB987DFA7113C802DA6CFC977
 magnet:?xt=urn:btih:7B7950983DA321906C44D9399BA6AC2288113225
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:7B7950983DA321906C44D9399BA6AC2288113225
 magnet:?xt=urn:btih:92AB3313918DC0D8E79BCD78E3DEE206B5C88D4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:92AB3313918DC0D8E79BCD78E3DEE206B5C88D4C
 ```bash
 magnet:?xt=urn:btih:8FA340F210FC693C5F45B565B15D33348D6CC396
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:8FA340F210FC693C5F45B565B15D33348D6CC396
 magnet:?xt=urn:btih:31F6546EDDFF517EDB3373813C56F04823D2F8BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:31F6546EDDFF517EDB3373813C56F04823D2F8BE
 ```bash
 magnet:?xt=urn:btih:483757DA94969360E89E27151E6037CAD90B8D78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:483757DA94969360E89E27151E6037CAD90B8D78
 magnet:?xt=urn:btih:A4231CE5A14F523ABEA324E862271894A5E5C63C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ S-Tool (или Severing Tool) — финская хэви-метал групп�
 ```bash
 magnet:?xt=urn:btih:8980719678D04F84F44C138422433D0A65FC56F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +486,8 @@ VA - Blues Celebration (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:9C4056D10E6A3826C92148EA569462E94704265E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ magnet:?xt=urn:btih:9C4056D10E6A3826C92148EA569462E94704265E
 magnet:?xt=urn:btih:A08BCDFC9687370621191860289F5977BC518BDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:A08BCDFC9687370621191860289F5977BC518BDF
 ```bash
 magnet:?xt=urn:btih:A7D58162A6ED78E491F0266EC91052AB9F2A2EC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +566,8 @@ magnet:?xt=urn:btih:A7D58162A6ED78E491F0266EC91052AB9F2A2EC9
 magnet:?xt=urn:btih:79485DFFAB8680EEF8432A910377641BA174E217
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 ```bash
 magnet:?xt=urn:btih:862D58C4B82FDD845CC4E7C3FB46B05B8DB5E46B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +621,8 @@ Armin van Buuren - Breathe In (2024) Extended Edition [FLAC 24/44.1|Lossless|WEB
 magnet:?xt=urn:btih:C9EFA173BCFA654C13228FA51E406D156C6AD4B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +646,8 @@ PdfX - это новое приложение, которое позволяет
 ```bash
 magnet:?xt=urn:btih:63F15BFEB7F22D8CBABA3C0C2D1B05A433EC15DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +676,8 @@ The Dead Daisies - Resurrected, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Har
 magnet:?xt=urn:btih:34E1FBEB2459F504273C0CB383E3BFDE62139701
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ magnet:?xt=urn:btih:34E1FBEB2459F504273C0CB383E3BFDE62139701
 ```bash
 magnet:?xt=urn:btih:9CA1288202DE2490AD3E8B2C9A2DF01F1415F734
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

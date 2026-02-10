@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:24FF2B4B2DD004BFF0741AC3C4FE53FD28E90537
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Script Calm Family - стильный игривый шрифт семейств
 magnet:?xt=urn:btih:480EA6C03DD37193DEEE0B91BE81337C193E155E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Ze Typeface - небольшое уютное семейство шрифтов,
 ```bash
 magnet:?xt=urn:btih:71B2D700CF39FD4AED9D987CA7ED313D684DCEC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:71B2D700CF39FD4AED9D987CA7ED313D684DCEC7
 magnet:?xt=urn:btih:7BDE81A172C7546D2687E91FADFC7608A880F430
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Pumpkin - это заглавный шрифт со всеми буквами и
 ```bash
 magnet:?xt=urn:btih:4667B2ECBF8EBD97AF36A2ADF644DE6507DBEB54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ Captain Jack (раньше назывался Capitan Koons) включает в
 magnet:?xt=urn:btih:3A5691BA7BC04AE2E4EA3AAA65BE1FB0F399D359
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Buffy - это гибкий, шаткий дисплейный шрифт с з�
 ```bash
 magnet:?xt=urn:btih:82D08D31948F7B42CF0DD4C4B7148A6978D5DD75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Pubinie такой сладкий шрифт, что вы почти попро�
 magnet:?xt=urn:btih:37C3875B50EF757892433182F2DF065EFFED5070
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:37C3875B50EF757892433182F2DF065EFFED5070
 ```bash
 magnet:?xt=urn:btih:27C3C00F23731A3AA8E622170095E2A72E6556B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Southbank Display Font - это новейший шрифт от Vintage Type Co
 magnet:?xt=urn:btih:5D6502418BFE59EC9BF5F4658A47A79624B1B415
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:5D6502418BFE59EC9BF5F4658A47A79624B1B415
 ```bash
 magnet:?xt=urn:btih:5FE15BA7F23B3944605B948E19291836AB3D819A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:5FE15BA7F23B3944605B948E19291836AB3D819A
 magnet:?xt=urn:btih:CFA67B4A954A0B1530C56A37AF0A755475DD4E8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:CFA67B4A954A0B1530C56A37AF0A755475DD4E8A
 ```bash
 magnet:?xt=urn:btih:B1840C43F92FEF7B2E63C4F370850033D901DD31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:B1840C43F92FEF7B2E63C4F370850033D901DD31
 magnet:?xt=urn:btih:B112C6F36F7D922B1B3DD5BAB26FAFDC7CA97EFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Anniversa - это свадебный шрифт с современным ст�
 magnet:?xt=urn:btih:020AEC7EB9AB37F88BA034ED30BA100281580E1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:020AEC7EB9AB37F88BA034ED30BA100281580E1A
 ```bash
 magnet:?xt=urn:btih:D9DFD5E9DC71B2273DA9A24249DC11F30B8225EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:D9DFD5E9DC71B2273DA9A24249DC11F30B8225EC
 magnet:?xt=urn:btih:65072B5BD996C7B4744006ED4A4503AE63AFC93F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Another Wild - грубый шрифт каллиграфической кист
 ```bash
 magnet:?xt=urn:btih:403360ACC4A3F1E4B52173E65DA592ACAD16231E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ Asbak Typeface - это тип дисплея, вдохновленный фэн
 magnet:?xt=urn:btih:F69A85A1850D4243FC0B29E0AA6CE24C7CD5518C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ Smile pro - этот шрифт содержит различные стили, 
 ```bash
 magnet:?xt=urn:btih:BE32A2C480AEC27E670FEF61936384C5A616EC7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ Sladosti - это потрясающий рукописный кирилличе
 magnet:?xt=urn:btih:8D5DFF4485D3E9840BF6F2922BE72866D244DC46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:8D5DFF4485D3E9840BF6F2922BE72866D244DC46
 ```bash
 magnet:?xt=urn:btih:80B45EF073D9654FBD3AA9D4765BDB2E37A61EF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:80B45EF073D9654FBD3AA9D4765BDB2E37A61EF2
 magnet:?xt=urn:btih:1F11B76ED67B5F66120A4863420521CC125BC28B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:1F11B76ED67B5F66120A4863420521CC125BC28B
 ```bash
 magnet:?xt=urn:btih:D01A97FC59204C05086465BFCA8F9A5FAB8D1D67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ Miletta - красивый рукописный шрифт, написанный
 magnet:?xt=urn:btih:3963C6A1736F9AAF2A803E432AFF9C638D55BDF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Laqonic 4F Unicase - Простой и в тоже время интересны
 ```bash
 magnet:?xt=urn:btih:CDA096B8286425B759547A348AADE2567BAA6758
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

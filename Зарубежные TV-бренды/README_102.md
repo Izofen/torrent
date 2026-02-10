@@ -20,6 +20,8 @@ DV: Изящество логики / The Joy of Logic (2013) IPTVRip [H.264]
 magnet:?xt=urn:btih:954D764AD8EFC4E592697DE541D291759F5FF095
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ NGW: Дикие охотники. Медведи / Wild Hunters. Bears (2019) WE
 ```bash
 magnet:?xt=urn:btih:D3C33CDE837A6710ED68C5B62D6BD75C1DE292B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ NGW: Дикие охотники. Кошки / Wild Hunters. Cats (2019) WEBRip 
 magnet:?xt=urn:btih:A4DA2DB1D4AB39BCCB6818A00B127B5B66114A3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ NGW: Дикие охотники. Рептилии / Wild Hunters. Reptiles (201
 ```bash
 magnet:?xt=urn:btih:2F9DEC1FDC60BDD483D1230A6F97886E0D316832
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ NGW: Дикие охотники. Волки и шакалы / Wild Hunters. Wol
 magnet:?xt=urn:btih:130985EDE0B155A24219CA76465CBC86E675D5E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:130985EDE0B155A24219CA76465CBC86E675D5E0
 ```bash
 magnet:?xt=urn:btih:0DDED1CF01E0B7BAAA1AF46D3484A9D0BAA4636E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ BBC. Земля: Один потрясающий день / Earth: One Amazing D
 magnet:?xt=urn:btih:70098F3CDBDED7672EC67D65A4B90FD2F1A41E08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:70098F3CDBDED7672EC67D65A4B90FD2F1A41E08
 ```bash
 magnet:?xt=urn:btih:199FBD68A0FD4D2016D5285257EDAE4462F476F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Animal Planet: Спасение животных: ураган Харви / Surv
 magnet:?xt=urn:btih:4AC93FB04273AB7A5A20F29C13D7BB107A00C7FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ DV: Улыбка удачи / The Joy Of Chance (2016) IPTVRip [H.264]
 ```bash
 magnet:?xt=urn:btih:9D5DD829CAF9567892694C8547431757B4EF7ED9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ NGW: Дикие охотники. Змеи / Wild Hunters. Snakes (2019) WEBRip 
 magnet:?xt=urn:btih:F3A532A350C9E407C4F10D0E263D138165DA0EA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Discovery: Самые крепкие инструменты / World's Toughest T
 ```bash
 magnet:?xt=urn:btih:E3A0838FC411DB1BBD53D2C2F1A1FAB8B33E996E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:E3A0838FC411DB1BBD53D2C2F1A1FAB8B33E996E
 magnet:?xt=urn:btih:D6C6AA903AA015158CCE54EB33CA962818C1A223
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ BBC: Планеты / The Planets (2019) HDTVRip [H.264/720p-LQ] (сезон 1, 
 ```bash
 magnet:?xt=urn:btih:6BC320F436DF8B27847FBAFE0E7160F60A515DF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Discovery. Как построить... что угодно / How to Build... Ev
 magnet:?xt=urn:btih:5D45CEDFE5BAD3F372505677279BCAA3A8491E8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Discovery. Научные приколы / SciJinks (2018) WEB-DL [H.264/1080p] 
 ```bash
 magnet:?xt=urn:btih:5418A1CCF587CD1ABA7EC1623B00FF29EFCC80C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ NG: Спасти Нотр-Дам / Saving Notre-Dame / Sauver Notre-Dame (2020) 
 magnet:?xt=urn:btih:861E88B897938D2754B19C0CF3DFF31D5629DCE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:861E88B897938D2754B19C0CF3DFF31D5629DCE3
 ```bash
 magnet:?xt=urn:btih:0CE5A133DD576408E58FBF9FE60E662A22F1C11B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ History Channel: Вселенная / The Universe (2007-2012) BDRip [H.264/720p
 magnet:?xt=urn:btih:30D18994AF655FEC2CE6FE1EBC86AEEBBDE202EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ magnet:?xt=urn:btih:30D18994AF655FEC2CE6FE1EBC86AEEBBDE202EA
 ```bash
 magnet:?xt=urn:btih:775CC6CFF5C8D83BA42479A24647C6361A62CFF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ magnet:?xt=urn:btih:775CC6CFF5C8D83BA42479A24647C6361A62CFF8
 magnet:?xt=urn:btih:627CA7AC64635937BD5CB3C21953DA18567D5F3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ magnet:?xt=urn:btih:627CA7AC64635937BD5CB3C21953DA18567D5F3C
 ```bash
 magnet:?xt=urn:btih:301BA4CC27EBE2B97F972952BC9F81EEDE7D67EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ NG: Мегазаводы / Megafactories (2011-2012) HDTVRip [H.264/720p] (5 с�
 magnet:?xt=urn:btih:A0242B543CD828F4A95B5B1C7E3926020F54937E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ NG. Непокорный остров / Port Protection (Lawless Island) (2015) 
 ```bash
 magnet:?xt=urn:btih:65C334FC2C3C54C667490EC4F5F36336A4B704C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ NGW: Сесил: Наследие короля / Cecil: The Legacy of a King (20
 magnet:?xt=urn:btih:8F1730520FE839C184D35EE1B8C94BF64C05D3AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ magnet:?xt=urn:btih:8F1730520FE839C184D35EE1B8C94BF64C05D3AE
 ```bash
 magnet:?xt=urn:btih:D561D1C8EC15C178EB8D64B23C62F0B65B699438
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

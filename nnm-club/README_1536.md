@@ -19,6 +19,8 @@ Game Builder Tycoon (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:FF6CEA449EBC5BD9EBEE3CDFDE03C8EE10C638A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:FF6CEA449EBC5BD9EBEE3CDFDE03C8EE10C638A0
 ```bash
 magnet:?xt=urn:btih:A862268A1D6912A5F8C3BB80E57FBD74FB8D739D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:7E0F43F82669BD0AE933ED17C0BDF46A25C64DEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ MInstAll v.28.09.2024 By Andreyonohov (Unpacked) [Ru]
 ```bash
 magnet:?xt=urn:btih:327CCE8124EF38EC095BA5D9CC91D84166D808EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:327CCE8124EF38EC095BA5D9CC91D84166D808EB
 magnet:?xt=urn:btih:67C2ADBA8AD8DD4830ECFA3F05C6686BFE35683B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:67C2ADBA8AD8DD4830ECFA3F05C6686BFE35683B
 ```bash
 magnet:?xt=urn:btih:505C8D67FCFD4357F2FDF3A533659CBD9CECA952
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:505C8D67FCFD4357F2FDF3A533659CBD9CECA952
 magnet:?xt=urn:btih:AC8FD39DD9512848012764CBDD23286148642E28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:AC8FD39DD9512848012764CBDD23286148642E28
 ```bash
 magnet:?xt=urn:btih:975DDC21FDD04A10F283A34E0A852DA272FC0C14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ SteamWorld Build является спин-оффом франшизы Стим�
 magnet:?xt=urn:btih:275EF07E7FC8F33F9B754B7ACD5150DB9FB58CE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:275EF07E7FC8F33F9B754B7ACD5150DB9FB58CE9
 ```bash
 magnet:?xt=urn:btih:4E7EB4ABBF19C77FE37CBC6013E208FADB3D3E4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:4E7EB4ABBF19C77FE37CBC6013E208FADB3D3E4A
 magnet:?xt=urn:btih:9DEB75027291CD759E67AB7B8A425A64B90B2FDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:9DEB75027291CD759E67AB7B8A425A64B90B2FDB
 ```bash
 magnet:?xt=urn:btih:BCBB4481C45D3C0DDE960E9EECF7D48FE7C6E9E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Windows 11 PRO 24H2 26100.1742 Update 8 by Ghost Spectre [En]
 magnet:?xt=urn:btih:4D97D6D2643673A0224A72E75C2373732802DF7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ FL Studio Producer Edition - это одна из лучших программ 
 ```bash
 magnet:?xt=urn:btih:BF7F0ABDA164CE8F4E1BC6EA269640EE37F9187F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:BF7F0ABDA164CE8F4E1BC6EA269640EE37F9187F
 magnet:?xt=urn:btih:D2C1C24EA962C6C8FB74BD005598ACE8C8FB83FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:D2C1C24EA962C6C8FB74BD005598ACE8C8FB83FE
 ```bash
 magnet:?xt=urn:btih:841EE55C4F4E386BC029F6279D5223B02F672A73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:841EE55C4F4E386BC029F6279D5223B02F672A73
 magnet:?xt=urn:btih:9ABE1B077EFC08F2263F7BF92134E2B7A81E70F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:9ABE1B077EFC08F2263F7BF92134E2B7A81E70F7
 ```bash
 magnet:?xt=urn:btih:7A0EB69DC6F7168731F3721801EA229A0EEFCCF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ Windows Server 2022 впервые обеспечивает расширенну
 magnet:?xt=urn:btih:046E85DE560286B1E6A84B61C77E8DF267E2DACF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Evil West (2022) [Ru/Multi] (1.0.5/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:82CA320879F963DA2E3F4C55170C35C2598F40BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:82CA320879F963DA2E3F4C55170C35C2598F40BA
 magnet:?xt=urn:btih:573E4346BD525C91A559CCD1E6B7A2CC0359E2A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ CloudFlare уничтожила опытного патентного тролл
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ CloudFlare уничтожила опытного патентного тролл
 ```bash
 magnet:?xt=urn:btih:227ADEC193FC16393C66BAAB8143264DCDF27CBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:227ADEC193FC16393C66BAAB8143264DCDF27CBC
 ```bash
 magnet:?xt=urn:btih:315E7157F75BDD171EDC9BAB393223CCDCD04D5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ Paul Heaton - The Mighty Several (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blu
 magnet:?xt=urn:btih:94923EF1D0786755AEDD73DAFC43E08182AF71F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:94923EF1D0786755AEDD73DAFC43E08182AF71F8
 ```bash
 magnet:?xt=urn:btih:6D7A5086196C7004CB2B51234BD4A19D9D6E5282
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

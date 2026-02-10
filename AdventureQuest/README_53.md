@@ -19,6 +19,8 @@ Hidden Through Time 2: Myths & Magic (2023) [Ru/Multi] (1.0.30a) License GOG
 magnet:?xt=urn:btih:365B832802C02EF3B61C605A546BAE2D2DB2D5EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Secret of Monkey Island (2009) [Multi] (1.0) License GOG [Special Edition]
 ```bash
 magnet:?xt=urn:btih:9D41E0488FC38B35DE57AA7D5BBF980D46FAD4F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Bilkins' Folly - увлекательная игра, которая отпра�
 magnet:?xt=urn:btih:69C27A20F2764A48F2EF442BB38E0CFCF0884363
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Bilkins' Folly - увлекательная игра, которая отпра�
 ```bash
 magnet:?xt=urn:btih:4B966CD760E6CA5FFAB4579506E4D2D457B9E127
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Twin Mirror (2020) [Ru/Multi] (1.0) Repack xatab
 magnet:?xt=urn:btih:56E45383D8DEB23887ECCD9BB8234608D09687C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Amok Runner сделана по мотивам новеллы Амок, напи
 ```bash
 magnet:?xt=urn:btih:07DE9EB0A2634CEE5E541DB4B15951C0F5A0FC47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Monkey Island 2 Special Edition: LeChuck's Revenge - продолжение ус
 magnet:?xt=urn:btih:51B5A854D496F6C884FFD324C86CBDDA5B156917
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Still Life (2005) [Ru/En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:60B85BB90555D888AF8D5B55D56203889611E838
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Noch (2023) [Ru/Multi] (1.0.0.12532) Scene Rune
 magnet:?xt=urn:btih:82EE1434E56B6992AACC78FCC8F665E8F40002D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Demonologist — это кооперативная игра ужасов, в к�
 ```bash
 magnet:?xt=urn:btih:3601B015B51810F957D5D30D1457698E650A0D92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ NOCH — зловещее сюрреалистическое приключен�
 magnet:?xt=urn:btih:4B3183A7B79636D2EE8CFFD70A075B251683EAFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ ZED – это история стареющего художника, поте�
 ```bash
 magnet:?xt=urn:btih:B2C56D0B623DD3C9EB69927ADD47762A8C7AA78B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Full Pipe / Полная труба [Ru] (RePack) 2003 |  R.G. Catalyst Old-Game
 magnet:?xt=urn:btih:9ED1A68595C09992C705C0DEBBC5EE2095902545
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Uru: Complete Chronicles (2004) [Multi] (1.0hf3) License GOG
 ```bash
 magnet:?xt=urn:btih:426EBCB1B2D4A45D6A64D69654E05CE0A764F6C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Mesmer (2020) [Multi] (1.0.4) License GOG
 magnet:?xt=urn:btih:24A5C553CFF9D424AB1CAA51E612DC0C05F2F394
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Torn Away — интерактивная история, собранная из
 ```bash
 magnet:?xt=urn:btih:B5B0352DA63C7C55B42FCD5B69F0D0616CC85349
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Myst V: End of Ages (2005) [Ru/Multi] (2.0.0.9) License GOG [Limited Edition]
 magnet:?xt=urn:btih:BEEB79CDCA5E27129F8574EC441A477D509F09D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Backbone – это постнуарная детективная RPG, где в
 ```bash
 magnet:?xt=urn:btih:CE9D0FC9B368826F112A5C1450BE0569A778DFEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Tails Noir Preludes (2023) [En] (11891862/dlc) Scene Tenoke [Deluxe Edition]
 magnet:?xt=urn:btih:4363A7E36BFB58E833586F7B2FB9050CCB870DFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ realMyst: Masterpiece Edition – это красивая обновлённая
 ```bash
 magnet:?xt=urn:btih:554C599D9F16F07B7CAEEA9D310CCAD57B95D8C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Little Hope – вторая игра в антологии The Dark Pictures. �
 magnet:?xt=urn:btih:028A40B4236C929747CEF111B907CA0B9512FAC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Return of the Phantom (1993) [En] (1.01) License GOG
 ```bash
 magnet:?xt=urn:btih:B21CC24117CBE2CB0C454A822EB75590530A99CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Bendy and the Dark Revival - это хоррор-игра на выживани�
 magnet:?xt=urn:btih:83971873B0FF027D5C18491B8264842CF33D6877
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ The Many Pieces of Mr. Coo - это сюрреалистическое граф�
 ```bash
 magnet:?xt=urn:btih:F9BEC53DA7EDF39E4E9CE4CCE353F6293D923AFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ EDENGATE: The Edge of Life (2022) [Ru/Multi] (1217_27401) Repack DjDI
 magnet:?xt=urn:btih:FF0EBD2379A5659FD7CD3D5002D97C008AB09EFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ DEEMO -Reborn- (2020) [Ru/Multi] (1.1.1/dlc) Repack Other s [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:C32F7849396343403872DDACCF657C3F36149ABB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

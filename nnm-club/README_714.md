@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:F01BB1302D41EBD8C3436D6136345184D6833FCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Screenshot Touch – это удобное и простое приложени�
 ```bash
 magnet:?xt=urn:btih:12D9A40228E64ED1D6F3492345327B23691B49B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ WeNote: заметки блокнот планер v6.30 Mod by PieMods [Ru/Mult
 magnet:?xt=urn:btih:A6A389985EA661476F2F8EC1474766153D8843FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:A6A389985EA661476F2F8EC1474766153D8843FF
 ```bash
 magnet:?xt=urn:btih:099098A4FDE73C564C6BD3FEE9D053218726B414
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:099098A4FDE73C564C6BD3FEE9D053218726B414
 magnet:?xt=urn:btih:B398BEA30DEC9E6C0E8700AB39B4F1E01A5DCC69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:B398BEA30DEC9E6C0E8700AB39B4F1E01A5DCC69
 ```bash
 magnet:?xt=urn:btih:6A54506E61E2CFD049D579FC6CB6EE3D60FAE514
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Pencil Photo Sketch - профессиональное приложение дл
 magnet:?xt=urn:btih:82B986FD80039A1B051E50A20F6485CC6C074D5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:82B986FD80039A1B051E50A20F6485CC6C074D5E
 ```bash
 magnet:?xt=urn:btih:96A090BC2EE6B88A60F35E71A500D12ACA7E37BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Disc One:
 magnet:?xt=urn:btih:A47B9FDFEDC3F65D2F132404DAF1A962D36FB44C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Girls und Panzer: Saishuushou | Girls und Panzer das Finale | Девушки и 
 magnet:?xt=urn:btih:B3A0C5E039C13FCF055F4AA2DD7CC57044DD55CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:B3A0C5E039C13FCF055F4AA2DD7CC57044DD55CF
 ```bash
 magnet:?xt=urn:btih:4E3E44624C97DFB29E4A1B33CE5D4DB5EA797430
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Laibach - Alamut (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Industrial, Neo-Cla
 magnet:?xt=urn:btih:211C36339CD8F4D488668CE47D42F8E42D31DBE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ TuneIn объединяет спортивные события, музыку, �
 magnet:?xt=urn:btih:F2ADABEACC7278FC5DF39464D0C021D11BA7B988
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ PowerDirector – Video Editor v15.2.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:AEDB2B07A70C96FCC75B86967B37AB67DE5B2A78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ Peter Murphy - Silver Shade (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Ro
 magnet:?xt=urn:btih:A7302445328FC5C3FF969DF233812BE62865E31D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ Roxxcalibur - NWOBHM From The Vaults (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:1635D03A5A9B1661B70CF07270408D81EB923821
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:1635D03A5A9B1661B70CF07270408D81EB923821
 magnet:?xt=urn:btih:9D06EC14C1EE161BDC2485B6AE33120260CFEF7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +480,8 @@ Behemoth - The Shit Ov God (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Black Met
 magnet:?xt=urn:btih:D94D04400422EA2E7D8729B840A9D98C59C19EBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:D94D04400422EA2E7D8729B840A9D98C59C19EBF
 magnet:?xt=urn:btih:56D8EBE2C438BA24BDD25A679AA59040924054BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:56D8EBE2C438BA24BDD25A679AA59040924054BF
 ```bash
 magnet:?xt=urn:btih:0D7145EE4CF2F7EA077286A4B2BA90FDA1C4F987
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ magnet:?xt=urn:btih:0D7145EE4CF2F7EA077286A4B2BA90FDA1C4F987
 magnet:?xt=urn:btih:04ED16B2E6546ED3D8674C68DE7929CF414D22B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ EF Commander  — замечательный двухпанельный файл
 ```bash
 magnet:?xt=urn:btih:7B8796E4A9FB1F5A2FCB9BFA124AD5A2E4A5EA77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +612,8 @@ magnet:?xt=urn:btih:7B8796E4A9FB1F5A2FCB9BFA124AD5A2E4A5EA77
 magnet:?xt=urn:btih:5216DFD6CC6B239B0E3040C14D74AEA44793D823
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ magnet:?xt=urn:btih:5216DFD6CC6B239B0E3040C14D74AEA44793D823
 magnet:?xt=urn:btih:27AC0C39F2C5B46D6C661CDE35331F6A7B24DF06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +663,8 @@ magnet:?xt=urn:btih:27AC0C39F2C5B46D6C661CDE35331F6A7B24DF06
 ```bash
 magnet:?xt=urn:btih:741D1A933207920838B6311B5229AA678BFCD413
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +691,8 @@ magnet:?xt=urn:btih:741D1A933207920838B6311B5229AA678BFCD413
 ```bash
 magnet:?xt=urn:btih:5E54B7CACE1B10A323FE3F252FC8D9FFDB07B28B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

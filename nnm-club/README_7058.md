@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:B5F74C74813108EDC142B275DF76DCC02C18F32A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Israel Airlines использует на гражданских самолет�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Israel Airlines использует на гражданских самолет�
 ```bash
 magnet:?xt=urn:btih:1E6AAB340E6030EBE3B497E25EC7161AF52E5E56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:1E6AAB340E6030EBE3B497E25EC7161AF52E5E56
 magnet:?xt=urn:btih:7B1C8D76EDDC575006EACF3075268C01CACA5F1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:7B1C8D76EDDC575006EACF3075268C01CACA5F1F
 ```bash
 magnet:?xt=urn:btih:CABDE8A2C8E604243094CD7ED53FC363350922D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:CABDE8A2C8E604243094CD7ED53FC363350922D2
 magnet:?xt=urn:btih:3AEA73DB4CC6E571A90E19785F38533A21EE7EC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:3AEA73DB4CC6E571A90E19785F38533A21EE7EC3
 ```bash
 magnet:?xt=urn:btih:2ACF15CD66B9C3C0CC08FD7201C45E001DD288B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:2ACF15CD66B9C3C0CC08FD7201C45E001DD288B9
 magnet:?xt=urn:btih:E443D0EFB94C84D8205CC67854BA4C707BDDB3B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:E443D0EFB94C84D8205CC67854BA4C707BDDB3B4
 ```bash
 magnet:?xt=urn:btih:9F5193B592CA22DEBB536FDDF47F808A1BD0749C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Gekijouban Sword Art Online: Progressive - Hoshinaki Yoru no Aria | Мастер
 magnet:?xt=urn:btih:94AFBDEA4D9211047146764BBAFD4ECCFB06BF3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Inpaint позволяет умно удалять нежелательные э
 ```bash
 magnet:?xt=urn:btih:9D4C38FC01E8CE0BAF7740D420E6741E7CA92FC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ ZEDGE - приложение в котором вы сможете найти н
 magnet:?xt=urn:btih:43785DBE69D271CA25045FA96C14B1A765651D8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:43785DBE69D271CA25045FA96C14B1A765651D8E
 ```bash
 magnet:?xt=urn:btih:8757099821B52CB9554D986D0F6F18A8BB6981A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:8757099821B52CB9554D986D0F6F18A8BB6981A5
 magnet:?xt=urn:btih:DEA27B6D20E4B404964B5CE3B9E85EE81D5B0415
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ magnet:?xt=urn:btih:DEA27B6D20E4B404964B5CE3B9E85EE81D5B0415
 ```bash
 magnet:?xt=urn:btih:5B1778FDB9EE5AEEF209E27C2EBE26A45B67110A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ MKVToolnix - функциональный набор инструментов д
 magnet:?xt=urn:btih:6960045B96AD92A240F5476ECCA90EB5CC5D7115
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Debian Edu, также известный как Skolelinux, является д
 magnet:?xt=urn:btih:F3B2D7CC84E5DFC0827920A5FFDC45ED81FF178D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +486,8 @@ magnet:?xt=urn:btih:F3B2D7CC84E5DFC0827920A5FFDC45ED81FF178D
 ```bash
 magnet:?xt=urn:btih:A15840E7A9F28E8071EBF8F334335F135FCF402C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ ABBYY Screenshot Reader 15.0.112.2130 Portable by conservator [Ru]
 magnet:?xt=urn:btih:D06664648D1601BA009692C71409350AF95E8840
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ The MagPi - о различных поделках и экспериментах
 magnet:?xt=urn:btih:080CC4F221D437A928FB2D444EDC53B9F14D2811
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ magnet:?xt=urn:btih:080CC4F221D437A928FB2D444EDC53B9F14D2811
 ```bash
 magnet:?xt=urn:btih:BDEB95200640DC08CDA4530A0FF65AD06AE03443
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ magnet:?xt=urn:btih:BDEB95200640DC08CDA4530A0FF65AD06AE03443
 magnet:?xt=urn:btih:0EA6113A6BDAEAF6C7930F17D580DEEF9723BE6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ magnet:?xt=urn:btih:0EA6113A6BDAEAF6C7930F17D580DEEF9723BE6A
 ```bash
 magnet:?xt=urn:btih:E17E68993A72E9DFA26755B8B14CE10C04E2172B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ Windows 11 уже работает быстрее, чем раньше, хотя
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Windows 11 уже работает быстрее, чем раньше, хотя
 ```bash
 magnet:?xt=urn:btih:6FD21466C66E6A62AED7C12B121FED3BA4B5C811
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

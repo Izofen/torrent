@@ -1,3 +1,32 @@
+###  Публикация: 1229115   (629558) от 04.06.2018
+
+VA - Club Dance Ambience Vol.150 (2018) [MP3|320 Kbps] <Dance, Club House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629558.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adam K & Soha feat. Matthew Steeper & HALIENE - Twilight vs Breathe  (Club Edit)
+002. al l bo & Pavel Gerasimoff - Where Is Your Prince (Pavel Gerasimoff Remix)
+003. al l bo - Falling (Artful Fox Remix)
+004. al l bo - The Fuel Of My Life (Alexdi & The Soap Opera Remix)(   Читать дальше...   )Жанр: Dance, Club House, Electro HouseПродолжительность: 08:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:751B2807111B022A3300DA76C58BF344B97398C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1543441   (629666) от 11.04.2022
 
 VA - Beatport Trance: Electro Sound Pack #508 (2022) [MP3|320 Kbps] <Trance, Progressive>
@@ -21,6 +50,8 @@ VA - Beatport Trance: Electro Sound Pack #508 (2022) [MP3|320 Kbps] <Trance, Pro
 ```bash
 magnet:?xt=urn:btih:88B2AB23FA6A3E23F74F1D8E36B20FB1FC92C953
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Beatport Synth Electronic: Sound Pack #509 (2022) [MP3|320 Kbps] <Electroni
 magnet:?xt=urn:btih:4F70EBB401AA685581CF75658662B6242C6C2BFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Beatport Techno: Electro Sound Pack #507 (2022) [MP3|320 Kbps] <Techno, Ele
 ```bash
 magnet:?xt=urn:btih:8277668C4802E9B576DB2892ACCB14D3BDA95DCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Лучшие песни о любви для влюблённых (2015) [M
 magnet:?xt=urn:btih:3A567F6FA118BEDAAA046BA389F27CF9B6D70545
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Клубная Авто Дискотека (2016) [MP3|320 Kbps] <Dance, Cl
 ```bash
 magnet:?xt=urn:btih:7876402E3408B3F35A110EA41F014446D68C6957
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Наше радио: Летняя 100-ка - 2016 (2016) [MP3|320 Kbps] <Р
 magnet:?xt=urn:btih:7BBA79B0895DE8E8AAB598445647830305671FC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Rap&Hip: Greatest Mix (2018) [MP3|192-320 Kbps] <Rap, Hip-Hop, RnB>
 ```bash
 magnet:?xt=urn:btih:253D257CB762D4D0CFF1B67387E20CF362044AA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - 50 Disco Hits (2018) [MP3|320 Kbps] <Pop, Disco>
 magnet:?xt=urn:btih:4C6611B8C747D242D08B4670C01170FBAFB21E99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Popular Megasonic (2018) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:41CF282815821D73B8E50C811392E80C1B751B1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - Record Super Chart 581 (2019) [MP3|320 Kbps] <House, Club, Dance>
 magnet:?xt=urn:btih:3BA0C1DB993496983097602D8727615789A6E1D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - Лето в кайф. Часть 2 (2015) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:E5B6596F613FBB962805496BA62C362B7DD0A152
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - Эх, дороги Новые хиты шансона (2015) [MP3|256 кб/
 magnet:?xt=urn:btih:C07F31547674CD0847292E618FF14D836AC019F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +399,8 @@ VA - American Road Blues (2016) [MP3|192-320 Kbps] <Blues Rock>
 magnet:?xt=urn:btih:ECF39C854959FE9497F706F0FF07A71C67138969
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +427,8 @@ VA - Зайцев.Нет - Лучшие Новинки Июля (2016) [MP3|188-
 ```bash
 magnet:?xt=urn:btih:F2E54124452BC2A8B0B47C94886219936B0BF714
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +463,8 @@ Various Artists - Syndicate. The Best Disco With Non-Stop Sound Effects (1980) [
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +491,8 @@ Spawn - In the Demon's Hand (2000) (Yuki Iwai, Takayuki Iwai, Isao Abe, Cranksha
 ```bash
 magnet:?xt=urn:btih:87D3159CE1187820511D74E746C48F599160CE82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +521,8 @@ VA - RnB Really: Soul Mix (2016) [MP3|320 Kbps] <RnB, Soul, Funky>
 magnet:?xt=urn:btih:78E622998CFD88A0F487D6B87A7D568CADA9ACB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +549,8 @@ VA - Summer Dance Mix: Adrenaline Party (2016) [MP3|256-320 Kbps] <Club, Dance, 
 ```bash
 magnet:?xt=urn:btih:7CB5AB807E739514E5C3D5C958CE12DCF76514F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +579,8 @@ VA - Time 85 Sound Giving Master (2016) [MP3|320 Kbps] <House, Progressive, Club
 magnet:?xt=urn:btih:2462BDB76D88603CB2D9BB93CD9FBE51B32AA535
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +607,8 @@ VA - Summer Splash (2016) [MP3|320 Kbps] <Club, House, Funky, Progressive>
 ```bash
 magnet:?xt=urn:btih:7DE092A233DBECDBF0926687C70EADFD3E3DCFAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +643,8 @@ VA - Жаркий Авто Хит от DFM 50+50 (2012) [MP3|256 кб/с]<Pop,Da
 magnet:?xt=urn:btih:6825CCD2F6B8BF24EF143A8E504E0C45EB87117E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +671,8 @@ VA - Beautiful Songs For You Vol.01-27 (2019) [MP3|320 Kbps] <Pop, Romantic Ball
 ```bash
 magnet:?xt=urn:btih:B6D1BDEAD444A2442996E2CEBF1117AE8D39F029
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +701,8 @@ VA - DJ Radio Show Latino RnB (2017) [MP3|192-320 Kbps] <RnB, Hip Radioshow>
 magnet:?xt=urn:btih:CF192EBCD6CE78B46BE61F2F171CC0761F74222C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +729,8 @@ Zucchero - Hybrid of Zucchero Sugar Fornaciari (2017) [MP3|192-320 CBR,VBR Kbps]
 ```bash
 magnet:?xt=urn:btih:BCA883292DE3457A42088335F8FC8E5C0CDB7D26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -688,38 +765,7 @@ VA - Шальной блатной музон (2012) [MP3|256 кб/с]<Шанс�
 magnet:?xt=urn:btih:7492E3618D291673E144CF9BEB2646A09064F1F3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520529   (631431) от 09.07.2012
-
-VA - Top 100: Танцевальная летняя дискотека (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631431.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Шахзода - Все Только Начинается (3:19)
-2. Example - Changed The Way You Kiss Me (Radio Edit) (3:12)
-3. Нюша - Воспоминание (3:38)
-4. MMDance feat. Dj Smash - Суббота (Radio Edit) (3:20)
-5. Bobina feat. Винтаж - На-На-На (3:37)
-6. Полина Гагарина - Спектакль Окончен (Piastro & Dvj Storm Studio69 Extended Mix) (4:24)
-7. Ёлка - Около Тебя (Andry Makarov Remix) (3:48)
-8. Leonid Rudenko Feat. Alexander - Stranger (3:16)
-9. Dj Onegin - Пуля (3:27)
-10. Soda feat. DJ Niki - Города (Sandslash Extended Remix) (4:24)Жанр: PopПродолжительность: 05:58:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60DB19F24296957B1AAC647227067360ADE00271
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

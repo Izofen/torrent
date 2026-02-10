@@ -28,6 +28,8 @@ VA - Авто хит. Динамит 101.2 FM (2012) [MP3|256 кб/с]<Pop, Danc
 magnet:?xt=urn:btih:4A8157A7C0217A88F583A0D3559EEC6660FAD1EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -61,6 +63,8 @@ VA - :Мелодии телепередач Советского Союза (201
 magnet:?xt=urn:btih:2A6226562E4623C3B513E69760A5F388B62A3EAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -84,6 +88,8 @@ magnet:?xt=urn:btih:2A6226562E4623C3B513E69760A5F388B62A3EAA
 ```bash
 magnet:?xt=urn:btih:3E0C2C5162811C7AABD99F04F1179845A44866E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +115,8 @@ magnet:?xt=urn:btih:3E0C2C5162811C7AABD99F04F1179845A44866E0
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -132,6 +140,8 @@ XVI век Грозное время правления Иоанна IV Васи
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +176,8 @@ Danny Elfman - Люди в черном 3 / Men in Black III (2012) [FLAC|Lossle
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +201,8 @@ XVI век Грозное время правления Иоанна IV Васи
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +230,8 @@ XVI век Грозное время правления Иоанна IV Васи
 magnet:?xt=urn:btih:CB674A065331EF5A858CEF8015824002AB9B7C96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +256,8 @@ magnet:?xt=urn:btih:CB674A065331EF5A858CEF8015824002AB9B7C96
 magnet:?xt=urn:btih:FC17275800B692A512B1DC4452F169ACAFB12866
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +281,8 @@ magnet:?xt=urn:btih:FC17275800B692A512B1DC4452F169ACAFB12866
 ```bash
 magnet:?xt=urn:btih:6C22304B60CD4AE93C1E28CFFC39579E962F0BD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ magnet:?xt=urn:btih:6C22304B60CD4AE93C1E28CFFC39579E962F0BD1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +334,8 @@ Firefox Builder Optimization 1.3 beta 4 [Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Disc 1 (English):
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +395,8 @@ AntiSMS 1.9.5 [Rus]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +422,8 @@ AntiSMS 1.9.5 [Rus]
 magnet:?xt=urn:btih:80AE906BECCEC2595343586ED076347FAE745BAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +447,8 @@ magnet:?xt=urn:btih:80AE906BECCEC2595343586ED076347FAE745BAA
 ```bash
 magnet:?xt=urn:btih:FD3A1954342659EB8789A05C97932B951F1A288C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +474,8 @@ magnet:?xt=urn:btih:FD3A1954342659EB8789A05C97932B951F1A288C
 magnet:?xt=urn:btih:9897A2D68BD69044F0ABD5DCB72FB5D39D303CEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +499,8 @@ magnet:?xt=urn:btih:9897A2D68BD69044F0ABD5DCB72FB5D39D303CEB
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +526,8 @@ magnet:?xt=urn:btih:9897A2D68BD69044F0ABD5DCB72FB5D39D303CEB
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +551,8 @@ magnet:?xt=urn:btih:9897A2D68BD69044F0ABD5DCB72FB5D39D303CEB
 ```bash
 magnet:?xt=urn:btih:AA18F1101A2AD1E54B63E2CA4B64D830CCFC62D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +578,8 @@ Collapse Дилогия [Ru] (Lossless RePack/1.1/1.0) 2008-2010 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:E20E7ED16C1D48833F1E647F7C9A92A93B424CB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +608,8 @@ magnet:?xt=urn:btih:E20E7ED16C1D48833F1E647F7C9A92A93B424CB6
 magnet:?xt=urn:btih:CDC254789ECF0C462BA3A0F95D5BBDDB46EDDC42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +637,8 @@ Liquid Brilliants Records - 4 Albums, 45 Singles & EP's, 10 Compilations (2008-2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +663,8 @@ Liquid Brilliants Records - 4 Albums, 45 Singles & EP's, 10 Compilations (2008-2
 ```bash
 magnet:?xt=urn:btih:713F827C838F7DA0B533371A4DD8C62FA8586E1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +692,8 @@ magnet:?xt=urn:btih:713F827C838F7DA0B533371A4DD8C62FA8586E1B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +718,8 @@ Grand Ages: Rome. Reign of Augustus [WineSkin]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

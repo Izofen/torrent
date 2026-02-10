@@ -21,6 +21,8 @@ Udemy, Dr. Angela Yu | 100 Days of Code - The Complete Python Pro Bootcamp for 2
 magnet:?xt=urn:btih:55D39614A52FD23A3E5538F5082D4CD480D9A1F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Rupert Gregson-Williams - Aquaman / Аквамен (Original Motion Picture Soun
 magnet:?xt=urn:btih:07341E9A24B3A72CB0F63BC8C9851B2F46241D1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:07341E9A24B3A72CB0F63BC8C9851B2F46241D1D
 ```bash
 magnet:?xt=urn:btih:84328E00F11797EB0C89EB80C2DC621792E5DF43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:84328E00F11797EB0C89EB80C2DC621792E5DF43
 magnet:?xt=urn:btih:A282582B7E7C01D757290DD6D20ADEEA50B834C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:A282582B7E7C01D757290DD6D20ADEEA50B834C1
 ```bash
 magnet:?xt=urn:btih:49C94223B04420ACBB8AB0405E622346B82F8ED2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ Lux Perpetua - The Curse Of The Iron King (2017) [FLAC|Lossless|image + .cue] <P
 ```bash
 magnet:?xt=urn:btih:A79CCAF1FC33D609D359E9EEBE6896531A506F18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:A79CCAF1FC33D609D359E9EEBE6896531A506F18
 magnet:?xt=urn:btih:599B2171D6FCF810CCE849E7D8786FAEF641994D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:599B2171D6FCF810CCE849E7D8786FAEF641994D
 ```bash
 magnet:?xt=urn:btih:93E1D9455AD311090B34D25C14C8D4BE026976C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ Gstarsoft GstarCAD 2016 Build 151116 (x64) [Ru/En]
 magnet:?xt=urn:btih:69443F40538C8E1C472862F030BED2A35F34031B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:69443F40538C8E1C472862F030BED2A35F34031B
 ```bash
 magnet:?xt=urn:btih:1439CD80D6EC9ABBECCA6DA20A36ACBC0A00C0DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ VA - Deep Impact Positively: Clubbing Electro House (2021) [MP3|320 Kbps] <Club,
 magnet:?xt=urn:btih:89AFA7F3F65002FB8CB7D5927F624BE6B94DA196
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ Woven Man - Revelry (In Our Arms) (2018) [FLAC|Lossless|WEB-DL|tracks] <Heavy Ro
 magnet:?xt=urn:btih:621C51002046BF51EE4AB3E62626617A2A3537A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:621C51002046BF51EE4AB3E62626617A2A3537A0
 magnet:?xt=urn:btih:2ADD31B80807A75EB9AD4FED249B0FED6BF6EA3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:2ADD31B80807A75EB9AD4FED249B0FED6BF6EA3C
 ```bash
 magnet:?xt=urn:btih:2BC6B40EA3276F180E0D9F40ACF25A596CD954ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ VA - Golden Hits Of Soulful Dynamics / Disco (2019) [MP3|320 Kbps] <Dance Disco,
 magnet:?xt=urn:btih:AE0755DF0AE03F42E6A5287343EDA165F202A9C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ Nautilus Pompilius (Наутилус Помпилиус) - Архив. Цифр�
 magnet:?xt=urn:btih:DF75C7BB770F5D4F7DFC8CF44FEA363A7D43B20C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ Material Design Dialer 1.2.1.37 [Ru] - Звонилка
 ```bash
 magnet:?xt=urn:btih:16062B733F704F30E175DFF9916E7EF2D4E4FBA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ Woven Man - Sardonic Waters (2023) [MP3|320 Kbps] <Heavy Rock, Stoner Metal>
 magnet:?xt=urn:btih:42E4FF549ED004B496B440CB9035B31C3E0A4B12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +515,8 @@ magnet:?xt=urn:btih:42E4FF549ED004B496B440CB9035B31C3E0A4B12
 magnet:?xt=urn:btih:D16EAEA90BEA0FCFFC417A707B51BA3E5C777A51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ NG. Петра: тайны древних строений / Petra. Secrets of t
 ```bash
 magnet:?xt=urn:btih:A0BEA54B8F29EA0253F04909F7185B8ADB62D7B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +570,8 @@ Seraina Telli - Simple Talk (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, H
 magnet:?xt=urn:btih:0B6D65D2924097F291EC1CFC03DF079162FB872F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +599,8 @@ VA - Calm Winter Sea: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <B
 magnet:?xt=urn:btih:C8B089B49EEB98C004CE1C35ECFD69E78D0236D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +624,8 @@ magnet:?xt=urn:btih:C8B089B49EEB98C004CE1C35ECFD69E78D0236D7
 ```bash
 magnet:?xt=urn:btih:AE6CCFC38CFBB284A4786E233CB2EF6DB4718148
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +654,8 @@ Hanoi Rocks - Oriental Beat mix (1982) The 40th Anniversary Re(al)mix 2022, 2023
 magnet:?xt=urn:btih:5BE4517FD7A1CC909CD56FD7190C7AF59FF272E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +683,8 @@ VA - Ballermann Fruehlingsalarm (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
 magnet:?xt=urn:btih:D99129056BFFA2C83714E01960F874C743C3C173
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +708,8 @@ magnet:?xt=urn:btih:D99129056BFFA2C83714E01960F874C743C3C173
 ```bash
 magnet:?xt=urn:btih:838EDAB286499BE0A32F30A12CC60D99496D3305
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

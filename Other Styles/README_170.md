@@ -22,6 +22,8 @@ VA - Hans Zimmer: The Classics (2017) [MP3|320 Kbps] <Soundtrack, Score>
 magnet:?xt=urn:btih:D7FDA6BCCAAEC2BCD6334ACAF2806EE468B489A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:D7FDA6BCCAAEC2BCD6334ACAF2806EE468B489A1
 ```bash
 magnet:?xt=urn:btih:C88CBE799F049ECE1D9C82D8B8122AC926BA895D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ Kai Rosenkranz - Risen (2009) [MP3|~245 кб/с (V0)]<OST>
 magnet:?xt=urn:btih:C2E80FF2E359E922F0C24DF31D30F0D293C91E53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -105,6 +111,8 @@ VA - Рапунцель: Запутанная история / Tangled (2010) [M
 ```bash
 magnet:?xt=urn:btih:95D336CA46544616EB2C77BC9C29F6C071A0C33E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +147,8 @@ Cliff Martinez - Solaris (2002) [MP3|192 кб/с]<OST>
 magnet:?xt=urn:btih:9AAD1EAEA8C05CA0C7314A9E0AD01BDD1C8DAC39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +182,8 @@ VA - Swing Accordion (2008) [MP3|320 kbps]<Swing>
 magnet:?xt=urn:btih:F7018CAB04AE30258EE7F976089E652EA9028325
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +211,8 @@ Chinmaya Dunster - Gaia's Garden (2017) [MP3|320 Kbps] <World, Instrumental, New
 magnet:?xt=urn:btih:2B1FA8F73C60A24305308C1D5FA7A3671233E99F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +239,8 @@ VA - Lo Mejor Del Folklore Canario (2008) [FLAC|Lossless|tracks + .cue] <Folklor
 ```bash
 magnet:?xt=urn:btih:A6B6C8A1DB9AC02A9D5A4457E816BB4A5F17F5A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +275,8 @@ Prem Joshua - 18 альбомов (1991 - 2014) [MP3|160-320 kbps]<World, New ag
 magnet:?xt=urn:btih:5FB1091317CB88BBEEE2A7B584D1820F8A1A6DD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +305,8 @@ Timothy Wenzel - 4 альбома (2011-2014) [MP3|320 кб/с]<New age, Relax, 
 ```bash
 magnet:?xt=urn:btih:38509A32A7EE3FC48ACA66F2F470AC8882E11C13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +341,8 @@ The Secret Sisters - Put Your Needle Down (2014) [FLAC|Lossless]<Country, Pop-Ro
 magnet:?xt=urn:btih:4B3A3D62C4527E359E7ECC852DB3BE2283F0F209
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +366,8 @@ Lawerence Fritts - Blues Backing Tracks (2006) [MP3|192 kbps]<Blues>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +402,8 @@ Samaya - Loka Samasta (2015) [MP3|320 кб/с]<New age, Mantras, Vocal>
 magnet:?xt=urn:btih:81299435CC0FE4B4CB4DE81FB3F69A15E6032B73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +427,8 @@ Move D - The Silent Orbiter (2014) [FLAC|Lossless]<Ambient, Experimental>
 ```bash
 magnet:?xt=urn:btih:DFFD7E156CD4E2F12DC543B06FC0C08FC5408316
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +460,8 @@ Seda Bagcan - Sunrise (2014) [MP3|320 кб/с]<New age, Mantras, Vocal>
 ```bash
 magnet:?xt=urn:btih:03B878F535AF4F6F88201DBFCC0A6CE674083BBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +496,8 @@ Metal Gear Rising: Revengeance - Vocal Tracks (2013) [MP3|320 кб/с]<Score>
 magnet:?xt=urn:btih:EEB78E9D2102BEEF2ED8D4AE848839B73505513E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +530,8 @@ Rurouni Kenshin - Original Soundtrack (2012) [MP3|320 кб/с]<Movie OST>
 ```bash
 magnet:?xt=urn:btih:1F93D9CC6B0CE4E2A4F2CF01548049588C9D71E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +566,8 @@ CD 1:
 magnet:?xt=urn:btih:819061AB385CB59EB9A7A133924E774DC9810180
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +600,8 @@ You Can't Win, Charlie Brown - Diffraction/Refraction (2014) [FLAC|Lossless]<Ind
 ```bash
 magnet:?xt=urn:btih:2A6BB1632A7A9D28863B80947E85E46DD9CBF3EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +636,8 @@ Ralph Dokin Orchester - Casatschok Party (1974) [MP3|320 кб/с]<Instrumental>
 magnet:?xt=urn:btih:A10436726C81C5BCA361A809692DF005905C083E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +671,8 @@ Richard Clayderman and Berdien Stenberg - Amour pour Amour (1989) [MP3|320 кб/
 magnet:?xt=urn:btih:0E8EAD25B8EBDC7AC693A914F2574ACD9589BCA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +699,8 @@ Fausto Papetti - Oggi 4: Quarantaseiesima raccolta (1988) [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:AE494D3D8D996BB39A3258B1BA7C1504CB67E1BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -685,6 +729,8 @@ Richard Clayderman - When A Man Loves A Woman (1995) 2002  Universal Music Russi
 magnet:?xt=urn:btih:D5C30C23D63A68C40F20FFDE8D2876DBC50D1BCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -711,6 +757,8 @@ Richard Clayderman - The Classics (1997) [FLAC|Lossless|tracks + .cue] <Easy lis
 ```bash
 magnet:?xt=urn:btih:5F86760728B10299FF17D90755F3EA9BB33669F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -739,6 +787,8 @@ Blowing Free - Sax Moods (1995) 2004 Правительство звука [FLAC
 magnet:?xt=urn:btih:D28CE7586DD41D82E3259EE661B618EB0050CE4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -765,6 +815,8 @@ NuSound - Erotic Moods - The Collection: Volumes 1-3 (1998-2001) 2006 Neurodisc 
 ```bash
 magnet:?xt=urn:btih:69599966D0E2F08171DB846368DD167BA33D84AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Aiseesoft Mac Screen Recorder 2.2.26 [Multi]
 magnet:?xt=urn:btih:C1DF938650789DED50B3BC1C23E3261AA73A71BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Hides 5.9.3 [En]
 ```bash
 magnet:?xt=urn:btih:EC9EF88BF4CD257FD61032C147C294526B1CE65A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ DataGraph — это программное приложение, предназ
 magnet:?xt=urn:btih:7CB9006E7F1471BFA64EC4180BEB75B094D21DB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Wing Pro - это интегрированная среда разработки
 ```bash
 magnet:?xt=urn:btih:6276F40A484FDECDD5E72667D453F47046EF8760
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:6276F40A484FDECDD5E72667D453F47046EF8760
 magnet:?xt=urn:btih:B040516C4F660E28722233A422BE7B6B622A50A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ NCH Express Invoice Plus 11.10 [En]
 magnet:?xt=urn:btih:D96CA1ECA5FB8AB0DB8D5945B5F08EA1E56FF091
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:D96CA1ECA5FB8AB0DB8D5945B5F08EA1E56FF091
 ```bash
 magnet:?xt=urn:btih:3B2330F392C41CBE18EF8EC6B395FC524CF45EFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Airmail – это почтовый клиент для операционной
 magnet:?xt=urn:btih:6F7427C6FDCBF5B747060FC92286D55C1BCD114F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Permute - очень простой видео конвертер с миним�
 ```bash
 magnet:?xt=urn:btih:B046748534E73CB5B59CA4AA79764970D21E2B06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Tekkamen o Oe "d'Artagnan Monogatari" yori | After the Man in the Iron Mask! (fr
 magnet:?xt=urn:btih:87AC9397DF1E03D9583BC48EBB9DAA0D13BC5EE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Anime Sanjuushi | The Three Musketeers | Три мушкетера [1987, TV, 52
 ```bash
 magnet:?xt=urn:btih:38B078B809948D0A362A7FD50CFA12BEF508E4A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 magnet:?xt=urn:btih:F782867497499335B11D21AD11AC7B5960192C32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:F782867497499335B11D21AD11AC7B5960192C32
 ```bash
 magnet:?xt=urn:btih:81250E3039CBB3CA38C47BCA96E0214CEC98B9BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:81250E3039CBB3CA38C47BCA96E0214CEC98B9BC
 magnet:?xt=urn:btih:ACA8356CDD814429AA454A960F1C6A02DA6C42F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Pale Moon - веб-браузер, созданный на базе популя
 ```bash
 magnet:?xt=urn:btih:B5FC078B37D9C50C0309CBBDF974E4B77A29ECE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ OneCommander V3 — это современный файловый менедж�
 magnet:?xt=urn:btih:7B1D277EDAAC7AE3F4407AF188C6E26000A89CB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Sync Folders Pro - это простое в использовании прил�
 magnet:?xt=urn:btih:82880FCDD6E04F982FDF6F6FC1E1B29665F8A35C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ System Dashboard Pro — это современная интерпретаци�
 ```bash
 magnet:?xt=urn:btih:3E8D3F1C70F0D468149E1B0A6ED1867BB471770D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ WiFiSpoof - небольшая утилита, которая поможет в�
 magnet:?xt=urn:btih:F748D34D5217B4E47593953BA68EF41EAD146834
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:F748D34D5217B4E47593953BA68EF41EAD146834
 magnet:?xt=urn:btih:43B38019C9072A55552CCE77D996CBC9D835C2ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:43B38019C9072A55552CCE77D996CBC9D835C2ED
 ```bash
 magnet:?xt=urn:btih:37E2BD3DB5F0D7553ED95DD0EAB6811DBE422153
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ VA - Tommy (Original Soundtrack Recording) (1975) 2 x CD, 1993, Polydor [FLAC|Lo
 magnet:?xt=urn:btih:DEB4D704D0E5632DD2B5C324D7074F5CFBC00CBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ Maypole - The Real (1971) Reissue, 2005, Gear Fab Records [FLAC|Lossless|image +
 magnet:?xt=urn:btih:E27ADDDE0CE2AD53DDB42D99A46AE44A3C7F05FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ magnet:?xt=urn:btih:E27ADDDE0CE2AD53DDB42D99A46AE44A3C7F05FD
 ```bash
 magnet:?xt=urn:btih:DDCD8E3EA1E82525922D888B128718061CE650BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +659,8 @@ Elbow - Audio Vertigo (Extended Edition) (2024) [FLAC 24/96|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:2E80D24ABA0E60A4A4314AC8C401E6BA74012FF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ magnet:?xt=urn:btih:2E80D24ABA0E60A4A4314AC8C401E6BA74012FF6
 ```bash
 magnet:?xt=urn:btih:5C73AE600D332A5B2DCA9C16EC54B0D9B2AAC146
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

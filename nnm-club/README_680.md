@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:AD22A3EA3B17F22A187542148ECE30F6492F9398
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Gerardo Escamilla | Быстрый набросок (2025) WEBRip [EN, RU]
 magnet:?xt=urn:btih:586FAC75ADFA0B32FB92C422F57852F014A7DBDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:586FAC75ADFA0B32FB92C422F57852F014A7DBDA
 ```bash
 magnet:?xt=urn:btih:5816785D312C2589797FB4603D5B10600998657A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:5816785D312C2589797FB4603D5B10600998657A
 magnet:?xt=urn:btih:39CCF0E1A6E38F1313DD72C15002452544B63D07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:39CCF0E1A6E38F1313DD72C15002452544B63D07
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Windows 7 SP1 7601.27729 x64 3in1 by OneSmiLe [17.05.2025] [Ru]
 magnet:?xt=urn:btih:67C56F570E18D2D780F49ABB971C0E0E14492A12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:67C56F570E18D2D780F49ABB971C0E0E14492A12
 magnet:?xt=urn:btih:6FABD8C148E5ADBFE5E23827B7E1F51D99DA0E24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Minecraft в кино / A Minecraft Movie (2025) WEB-DL [H.265/2160p] [4K, HDR10
 ```bash
 magnet:?xt=urn:btih:DF174AF52D2E643E2A21235116B4617C825B2859
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:DF174AF52D2E643E2A21235116B4617C825B2859
 magnet:?xt=urn:btih:DA1CB98413A0B2A83E817E180E8B423A101A047E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:DA1CB98413A0B2A83E817E180E8B423A101A047E
 ```bash
 magnet:?xt=urn:btih:AC0B1AE953BD92EEDED1C290A31CA7EA09FCCCE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:AC0B1AE953BD92EEDED1C290A31CA7EA09FCCCE5
 magnet:?xt=urn:btih:B5C96ECF14F07199D5B4351E26FAA5D33ECDD17D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:B5C96ECF14F07199D5B4351E26FAA5D33ECDD17D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:B5C96ECF14F07199D5B4351E26FAA5D33ECDD17D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Everspace 2 (2021) [Ru/Multi] (1.4.47960/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:2BCF51D9D1DD1D95CDEEBCD46B0F66F0C6FBF227
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:2BCF51D9D1DD1D95CDEEBCD46B0F66F0C6FBF227
 magnet:?xt=urn:btih:D7B74DCCC3A99F0679A639E1D759D843B8146A30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Manivore (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D4A79E2AD0C04CAF72B9C1D7EC31C1BA1E819051
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Udemy, Rick Crisci | Beginner Introduction to Containers, Docker, and Kubernetes
 magnet:?xt=urn:btih:118503B8C1E087BC744883036CDF104521F31355
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:118503B8C1E087BC744883036CDF104521F31355
 ```bash
 magnet:?xt=urn:btih:3FC6050E5E69AE90D64ED65D944228C41298B62B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ BOUDOIR Inspiration — это платформа и журнал, посвящ�
 magnet:?xt=urn:btih:A2AD1089D98568244AACC22C44E41452C06A66B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:A2AD1089D98568244AACC22C44E41452C06A66B0
 ```bash
 magnet:?xt=urn:btih:241F5260F8AA9CCAA88CBA3619795ED9F3F32D07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ BOUDOIR Inspiration — это платформа и журнал, посвящ�
 magnet:?xt=urn:btih:8E65DAA9B53A3C6954827F10069C1F26AEB56AED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:8E65DAA9B53A3C6954827F10069C1F26AEB56AED
 ```bash
 magnet:?xt=urn:btih:A695A7DF2EF0B9A1233A5D433720029051BA9499
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ CROSSOUT — это постапокалиптический MMO-экшн, в к
 magnet:?xt=urn:btih:DEC3C32FA70275DB327C11DE5E388C1B2662ADC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ Enlisted — это многопользовательский шутер о В�
 magnet:?xt=urn:btih:D7D3B31DBF9D981E49182A5DCB14AAAAAF29DA25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ War Thunder – это самая масштабная многопользов�
 ```bash
 magnet:?xt=urn:btih:4C87E19543D834B0AF453D7DE59FCC955A31AF77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

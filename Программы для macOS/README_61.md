@@ -19,6 +19,8 @@ Aimersoft Video Converter, протестированный на более че
 magnet:?xt=urn:btih:158A1B04B1A3DCFC3FAD4A0DE46AF5B524DA7FD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ DetectX Swift 1.0982 [En]
 ```bash
 magnet:?xt=urn:btih:CF38D281863A304F9A07D6AE093E03F785989870
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Aimersoft DVD Ripper 4.2.0 [En]
 magnet:?xt=urn:btih:C906BB1928BEBB2F970FA63D7D93BCC77D93DFEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ MacClean360 - удобный и безопасный уборщик вашего
 ```bash
 magnet:?xt=urn:btih:27148E3AE7E70E44D38990AB82C18FF8971EABE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ CODIJY Recoloring 4.2.0 [Multi/Ru]
 magnet:?xt=urn:btih:EC644D1B8559F88C040DCBBF9F914543B9E6E2E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Nisus Writer Pro Мощный мультиязычный текстовый ре
 magnet:?xt=urn:btih:6B286966CEDE6365F402FEE2933B43C9DE10B4F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Adobe DNG Converter 11.1.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A56C2E4AF630EEB69966AD578E9D26D43D530E4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Astute Graphics Plug-ins Bundle for Adobe Illustrator CC 1.0.5 [En]
 magnet:?xt=urn:btih:082A29BDD5D3DBC8A1F0F95500CB591BE73658B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ SnippetsLab — это простой в использовании менедж
 ```bash
 magnet:?xt=urn:btih:8B2552C9FD3CD514FD5C6AECEBF945C1E253B272
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ Easy MP3 Splitter 5.0.1 [En]
 magnet:?xt=urn:btih:5E963CE458A0518C88545C75FF2A2C7E3DC678DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ MiniCAD - это небольшое приложение для просмотр
 magnet:?xt=urn:btih:10997303DF89B5D54B2401BA01A45DFCC4F9950F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ Chaotica - это приложение фрактального искусств
 ```bash
 magnet:?xt=urn:btih:1207C589B96BB666D212227BD74F7EDEE75E1217
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ SubsMarine 1.3.0 fix [En]
 magnet:?xt=urn:btih:EF7AC70AE308C5E352DDBA7FEDA6CB1508D56344
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ SweetScape 010 Editor for Mac 14.0 [En]
 ```bash
 magnet:?xt=urn:btih:1847C5B694306BE4CA99EE5B02C65D2081A35ED2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ ImageRanger - программа позволит найти все нужные
 magnet:?xt=urn:btih:E79FCE0046246B764C3B35B75F0CD2A042E58C50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ SQLEditor - визуальный инструмент для разработк�
 magnet:?xt=urn:btih:666DC139FBA1388F6383B9FF9AB9D7FC1FC74038
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:666DC139FBA1388F6383B9FF9AB9D7FC1FC74038
 ```bash
 magnet:?xt=urn:btih:A5D50F9D475A2F66201FD4685BB6E74AF6CBA275
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ Memory Clean - приложение для оптимизации памяти �
 magnet:?xt=urn:btih:8C869786F1BEF2A5C983134D956C32AB1D896C9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ Jump Desktop (RDP & VNC) - программа, которая делает до�
 ```bash
 magnet:?xt=urn:btih:3029C036228D3710A1FAC9D0A380503ACA8EC8F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ Redacted позволяет быстро и легко редактироват�
 magnet:?xt=urn:btih:6C6BA8487C3100631D303ECB3C5A1A5C0A12CC6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ Records восхитительный и простой в использован
 magnet:?xt=urn:btih:3DD95A6414878509D2919A08933CB01F88626163
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +581,8 @@ Screens 4 v.4.12.11 [Multi/Ru]
 magnet:?xt=urn:btih:BF43B4DA158D6D33BB44A0CDA4B1E4CAA9A2F614
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ Scapple — это простой в использовании инструме
 ```bash
 magnet:?xt=urn:btih:3AEF708D83AB409C367B712A3E70E3B2F985B7C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +634,8 @@ Radio Silence 3.0 beta [En]
 magnet:?xt=urn:btih:3F1183960BE945385671A40993D26515E1596A73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ Jaksta Media Recorder — это программа для скачивания 
 magnet:?xt=urn:btih:939AFCCF81A14CBD12DBBEBA0B6840E25630694A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ Omni Downloader — простое и интеллектуальное прил�
 ```bash
 magnet:?xt=urn:btih:ACAF6C056360D64C3C830921D5E7694E2FC0B086
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

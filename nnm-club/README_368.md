@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:6045EEE1CA82E89E17F5012AEC1AF08570732D42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:6045EEE1CA82E89E17F5012AEC1AF08570732D42
 ```bash
 magnet:?xt=urn:btih:712EF475239F1AFB3F415A1F77D2749C6FCAEDD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:712EF475239F1AFB3F415A1F77D2749C6FCAEDD0
 magnet:?xt=urn:btih:59654B1CF9E9133E074186854FAEE24393A63353
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:59654B1CF9E9133E074186854FAEE24393A63353
 magnet:?xt=urn:btih:258597BFB4673E6D627396021C0CF90E30546355
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Lanpirot | Нахаловка (Книга 1) (2025) [MP3, Вадим Ерофе�
 ```bash
 magnet:?xt=urn:btih:3EFB8B47F04EEDEAA0A79FD64310D8E888700A5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:3EFB8B47F04EEDEAA0A79FD64310D8E888700A5C
 magnet:?xt=urn:btih:F8AD387CEB686AE41D02C4206218F730D0D9DD49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ VA - Dirty Dancing (1987) 1st German Press [APE|Lossless|image + .cue] <Pop>
 magnet:?xt=urn:btih:41E6A6AC44F2EABC5802E2A0FD5BE9F1373C20A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:41E6A6AC44F2EABC5802E2A0FD5BE9F1373C20A6
 ```bash
 magnet:?xt=urn:btih:E0A86699E40DAEE0842B5666BFE81D44BBAD7F6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:E0A86699E40DAEE0842B5666BFE81D44BBAD7F6A
 magnet:?xt=urn:btih:D3959E64A1E341BC299CB5CA8AC9F01E40AFDB41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Lanpirot | Позывной Хоттабыч (Книга 9). Исчадие Кр
 ```bash
 magnet:?xt=urn:btih:D0B6F05671B2B88331DD5CC43BFFA7CDA3CB51E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ Rick Astley - Hold Me In Your Arms (1988) 1st German Press [APE|Lossless|image +
 magnet:?xt=urn:btih:1E2D2D9F70A1A0EC6EA45B3F67DD73E42A1F2D29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:1E2D2D9F70A1A0EC6EA45B3F67DD73E42A1F2D29
 ```bash
 magnet:?xt=urn:btih:1C0D1961876E6A48D13BCAE2FDB079A18F9C82DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ VA - Summer Full of Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 magnet:?xt=urn:btih:5E8B9759F185E05B3292C137777458D460ED83E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:5E8B9759F185E05B3292C137777458D460ED83E2
 ```bash
 magnet:?xt=urn:btih:1D1CDA166E229820E18B99FC50157EA58840EDC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:1D1CDA166E229820E18B99FC50157EA58840EDC2
 magnet:?xt=urn:btih:EA470B0576252ED6A1E343174D2E8C46257ED5EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:EA470B0576252ED6A1E343174D2E8C46257ED5EB
 ```bash
 magnet:?xt=urn:btih:99D4D3919B41A6BA328586FED54465879AAF943F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +455,8 @@ VA - Bossa Nova Summer Beach Relax 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Ja
 magnet:?xt=urn:btih:F3AB38527314D297EE9703BEE7168B34BCDFCAD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ Rick Astley - Whenever You Need Somebody (1987) 1st German Press [APE|Lossless|i
 magnet:?xt=urn:btih:62C33029C50DA4DE8ED0F0BBEC7006C84072B9C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ magnet:?xt=urn:btih:62C33029C50DA4DE8ED0F0BBEC7006C84072B9C9
 ```bash
 magnet:?xt=urn:btih:1D125E39F4568554A37D663706229E3ECD718A7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ Alice Cooper - The Revenge Of Alice Cooper (2025) Japanese Edition [FLAC|Lossles
 magnet:?xt=urn:btih:26543129A93BE039547A0F8B06948A0C9BEEB1DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ magnet:?xt=urn:btih:26543129A93BE039547A0F8B06948A0C9BEEB1DD
 ```bash
 magnet:?xt=urn:btih:A746F16A375DBEA5A585C0EFCB1976C335B14474
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +594,8 @@ magnet:?xt=urn:btih:A746F16A375DBEA5A585C0EFCB1976C335B14474
 magnet:?xt=urn:btih:2198C8E46BF1482A9AD07E6EE6FC4EFA0D68879F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +623,8 @@ Yello - Baby (1991) 1st German Press [APE|Lossless|image + .cue] <SynthPop>
 magnet:?xt=urn:btih:B77152F3CC1FAC7AD84624004BED20118C715159
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +648,8 @@ magnet:?xt=urn:btih:B77152F3CC1FAC7AD84624004BED20118C715159
 ```bash
 magnet:?xt=urn:btih:B2CD2DCCA7934D2DB09556836F3DE3191DEAAB6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +675,8 @@ magnet:?xt=urn:btih:B2CD2DCCA7934D2DB09556836F3DE3191DEAAB6D
 magnet:?xt=urn:btih:6050E58B81485F5D0FA57744D17E530DF0F69DF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ magnet:?xt=urn:btih:6050E58B81485F5D0FA57744D17E530DF0F69DF3
 ```bash
 magnet:?xt=urn:btih:E644330E6F5A33CE178CCDDC9195E27C4BEA5256
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

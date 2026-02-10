@@ -1,3 +1,32 @@
+###  Публикация: 1005432   (832638) от 09.04.2016
+
+VA - Шансон душевный. Любимые песни 4 (2016) [MP3|256 кб/с] <Shanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Михаил Княжевич - Ты Моя Судьба
+02. Димасик Костень - Фонари
+03. Лесоповал - Прорвусь
+04. Стас Михайлов - Стриптиз(   Читать дальше...   )Жанр: ShansonПродолжительность: 06:06:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:221C5582020A280D6EC4BE9F3559B56DC9A1A6DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005629   (832707) от 09.04.2016
 
 VA - Летний Хитовый Музон (2015) [MP3|256 кб/с] <Dance, Сlub>
@@ -21,6 +50,8 @@ VA - Летний Хитовый Музон (2015) [MP3|256 кб/с] <Dance, Сl
 ```bash
 magnet:?xt=urn:btih:E2ED6EC958173FDDAE81862024342A66C64B1488
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Lounge Music for Your Senses (2016) [MP3|320 кб/с] <Downtempo, Chillout,
 magnet:?xt=urn:btih:B39DAACA8127BDCF5D37C051AF9F18CFEC58C802
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Miami Beach Weapons (2016) [MP3|320 кб/с] <House>
 ```bash
 magnet:?xt=urn:btih:5EB73D5245A0A98196402B12A4104E8283BAEC51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Bermuda Holidays: Uplifting Trance Party (2016) [MP3|320 кб/с] <Trance, 
 magnet:?xt=urn:btih:28C288001BF183D3396E89C133933BE5F0C6E8E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Karaoke Hits (2020) [MP3|320 Kbps] <Pop, Rock, Disco>
 ```bash
 magnet:?xt=urn:btih:4D595A9B27FA4093151790C0D8735A10A45F635B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - 90s Rock (2020) [MP3|320 Kbps] <Rock, Alternative Rock, Other>
 magnet:?xt=urn:btih:C33E54F459C12A0774876CFD7EB4AE1E0244B785
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Worldwide Rap Singles - Март 2020 (2020) [MP3|263-320 Kbps] <Rap, Hip-H
 ```bash
 magnet:?xt=urn:btih:D4A93DCE8D67D1C91E74F9A6088C8C815B836826
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Beatport Trance Pack (14.03.) (2017) [MP3|320 Kbps] <Trance, Uplifting Tran
 magnet:?xt=urn:btih:8B5A16AD0F6758CD113BA356C06A4B3F896D857D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ Quiet Riot - 100% Quiet Riot (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
 ```bash
 magnet:?xt=urn:btih:FF087D3FFF2A82709AE91C1C171CF41720F05094
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - Pop All Stars (2020) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:A1D1CBA3F26CACD06C3298EEB426582C2B5C062A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - Музыка хорошего настроения. Retro Fm. Зарубе�
 ```bash
 magnet:?xt=urn:btih:8AC542E57CBC914470DC73FA560C51660D374675
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - I Love Music! - Hard Rock Edition Vol.32 (2017) [MP3|320 Kbps] <Hard Rock, 
 magnet:?xt=urn:btih:27DD2EA2CE987A2843908088305CD7C4B2CD4E83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ VA - Record Super Chart 634 (2020) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:ED1F776951A4B2CD3A0F6AFF5D9EE5D05BD1E0A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ VA - Acoustic Pop (2020) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:C0619A0ED37690145DBBCA86F7094A28E8C55394
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +456,8 @@ VA - I Love Music! - Indie & Soft Rock Edition Vol.32 (2017) [MP3|320 Kbps] <Roc
 ```bash
 magnet:?xt=urn:btih:738380AF168D7C393C21B5BC04C9EA7253F702FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +486,8 @@ VA - I Love Music! - Alternative Rock Edition Vol.32 (2017) [MP3|320 Kbps] <Alte
 magnet:?xt=urn:btih:E00013AE185E8FE98F18526A6E5E464C2AC38895
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +514,8 @@ VA - I Love Music! - Extreme Metal Edition Vol.32 (2017) [MP3|320 Kbps] <Thrash 
 ```bash
 magnet:?xt=urn:btih:F35BA0EEC27D892E7E1571705CA2A1D8599D20F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +544,8 @@ VA - I Love Music! - Gothic Metal Edition Vol.32 (2017) [MP3|320 Kbps] <Gothic M
 magnet:?xt=urn:btih:C54B6F0A4CDBD4294DC5068009DD2B57F4F767B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +572,8 @@ VA - Deep House Collection Vol.111 (2017) [MP3|320 Kbps] <Deep House, Club House
 ```bash
 magnet:?xt=urn:btih:6825F908C4332F6CBD76CCC5604A33D7C6706276
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +602,8 @@ VA - I Love Music! - Nu Metal Edition Vol.32 (2017) [MP3|320 Kbps] <Alternative 
 magnet:?xt=urn:btih:D4C46E5EC61309DA8617C394FAA3FDD00D848DB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +630,8 @@ VA - Музыкальный подарок на радио Europa Plus (2017) [M
 ```bash
 magnet:?xt=urn:btih:1C4718666B66F71021EA4EC3E575DC5FE21C58AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +660,8 @@ VA - Deep House Collection Vol.112 (2017) [MP3|320 Kbps] <Deep House, Club House
 magnet:?xt=urn:btih:5019A1B843719466B16406298DDBC0DC2B0F6211
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +688,8 @@ VA - I Love Music! - Heavy Metal Edition Vol.32 (2017) [MP3|288-320 Kbps] <Heavy
 ```bash
 magnet:?xt=urn:btih:C954B8B38D7EC05C69FA43841A6028CD5F3946CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +718,8 @@ VA - Club Music Get On Up (2017) [MP3|320 Kbps] <Dance, Club, Funky>
 magnet:?xt=urn:btih:3B77E503A7F5445A3DE1874F1372E6593F1A541F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,32 +747,7 @@ VA - Я слушаю шансон. Реальный блатняк. Выпуск
 magnet:?xt=urn:btih:A8CEC86DDE1A19BCD18C829FBBB4348227887752
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114174   (833600) от 14.03.2017
-
-VA - Лучшая дискотека на Europa Plus выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833600.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Xana - Красивыи Мужчина 4:00
-002. Натали Янковских - Новая Я 3:08
-003. Moyyo - Любил Тебя Я 3:10
-004. Бьянка - Вселенная 3:09(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA7001F7088239DF026826550FB18B22063A9F00
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

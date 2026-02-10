@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:FF6ECC1D5249057E1B4B25203E549680FCB553FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:FF6ECC1D5249057E1B4B25203E549680FCB553FE
 ```bash
 magnet:?xt=urn:btih:97BB111CA89F9176B25ACC6E0B287B8387A5864D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ VA - Cool Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 magnet:?xt=urn:btih:F9F4CC772297F3B63A71D2B9C4DCB456F930EF24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:F9F4CC772297F3B63A71D2B9C4DCB456F930EF24
 magnet:?xt=urn:btih:665303447E225FAEC84F7B9FA5E317A98F6BF2B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:665303447E225FAEC84F7B9FA5E317A98F6BF2B1
 ```bash
 magnet:?xt=urn:btih:B0BE657A4B51A0BFE1861A9DFC1FFAF0FB73DD6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ Sunsleep - Moonlight Euphoria (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 magnet:?xt=urn:btih:21395F79B31734D29C7294C9428426485BC9F62B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ Loboda - SOLD OUT (2019) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:8A5ACDCEA51CF86B37F26D606F4DA2A18B0F615C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:8A5ACDCEA51CF86B37F26D606F4DA2A18B0F615C
 magnet:?xt=urn:btih:A99BBBE1030C8482F3EB8622A10EB63BAA56B674
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ Seal 1.11.0-beta.2 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E2B75535F7BCE90132949D2AD3E22E0D8F5EE07B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ magnet:?xt=urn:btih:E2B75535F7BCE90132949D2AD3E22E0D8F5EE07B
 magnet:?xt=urn:btih:C5DE44ED4CCD44CC938BAB9702D35ACC8F92AC6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:C5DE44ED4CCD44CC938BAB9702D35ACC8F92AC6E
 ```bash
 magnet:?xt=urn:btih:D6C1B599245EA53FF07E1EBC00DE87F05337FC48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ magnet:?xt=urn:btih:D6C1B599245EA53FF07E1EBC00DE87F05337FC48
 magnet:?xt=urn:btih:793E458840710FE32B7024204425A83842170706
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:793E458840710FE32B7024204425A83842170706
 ```bash
 magnet:?xt=urn:btih:CF26B4A279DCD608A5834AD1D037DAAD81E2A7EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:CF26B4A279DCD608A5834AD1D037DAAD81E2A7EF
 magnet:?xt=urn:btih:2BF7E18E491E0A8D1AAA28CBD89A531178D7DBED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:2BF7E18E491E0A8D1AAA28CBD89A531178D7DBED
 ```bash
 magnet:?xt=urn:btih:E6B6ABF3C15D5DCADB99CC6D6FC9B571BA68EA74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ Shinnobu - The Enigma VII (Star Seeds) (2019) [FLAC|Lossless|WEB-DL|tracks] <New
 magnet:?xt=urn:btih:B4A2B34A9C564413EA20B53CE2BBAAFD57069002
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +457,8 @@ Martin Garrix - Live @ IDEM, RAI, ADE (2023-10-20) [MP3|320 Kbps] <Electro House
 magnet:?xt=urn:btih:8AC25B7B65BDEDFD548BD4CB2DF54EA93341C21D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ magnet:?xt=urn:btih:8AC25B7B65BDEDFD548BD4CB2DF54EA93341C21D
 ```bash
 magnet:?xt=urn:btih:AC347A50E38613636ABF2D6E9919CC03AD3ADC03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +509,8 @@ magnet:?xt=urn:btih:AC347A50E38613636ABF2D6E9919CC03AD3ADC03
 magnet:?xt=urn:btih:81873CB20DEFEEE9CC12F0E142771559DEE50C83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ Rogue Lords (2021) [Ru/Multi] (1.1.00/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F33D52129A4C51FF9656D6AC02F5A52E2335FACD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +564,8 @@ magnet:?xt=urn:btih:F33D52129A4C51FF9656D6AC02F5A52E2335FACD
 magnet:?xt=urn:btih:30AD9B4E9E485396BDA762D76A6B8EB4D9381DC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:30AD9B4E9E485396BDA762D76A6B8EB4D9381DC1
 ```bash
 magnet:?xt=urn:btih:67078CE27EA0869F02B69354625E40FDBB76BCD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +616,8 @@ magnet:?xt=urn:btih:67078CE27EA0869F02B69354625E40FDBB76BCD7
 magnet:?xt=urn:btih:E8D7495A15505654108C4479B765DEC52A7A5BA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +641,8 @@ magnet:?xt=urn:btih:E8D7495A15505654108C4479B765DEC52A7A5BA5
 ```bash
 magnet:?xt=urn:btih:1FD60A519276D7FC662C56F977430F080B2B3C71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +668,8 @@ magnet:?xt=urn:btih:1FD60A519276D7FC662C56F977430F080B2B3C71
 magnet:?xt=urn:btih:73286794E31A19D828C4A583CA8B1FDD9EB467D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ magnet:?xt=urn:btih:73286794E31A19D828C4A583CA8B1FDD9EB467D9
 ```bash
 magnet:?xt=urn:btih:6E010C6096F1C54D182FDD0D7204E8840F2E7B79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

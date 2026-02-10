@@ -23,6 +23,8 @@
 magnet:?xt=urn:btih:543AB498721C80C004FE75AB0AAFCD60F865E02A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ Sur Sudha - Festivals of Nepal (1999) [MP3|256 kbps]<Ethnic, Nepal>
 magnet:?xt=urn:btih:E25CB67AA849C59BAA6B6F4821F35CB76314E5A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -83,6 +87,8 @@ magnet:?xt=urn:btih:E25CB67AA849C59BAA6B6F4821F35CB76314E5A7
 magnet:?xt=urn:btih:F492F6748658EE87890524876E59A9F790B9E9AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -110,6 +116,8 @@ magnet:?xt=urn:btih:F492F6748658EE87890524876E59A9F790B9E9AE
 ```bash
 magnet:?xt=urn:btih:920728C116A721168A1E1FDF213B2A2C51A229D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +147,8 @@ Sur Sudha - Melodies Of Nepal (1996) [FLAC|Lossless]<Ethnic, Nepal>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +183,8 @@ Shyam Sharan Nepali - Journey to Nepal (2000) [MP3|320 kbps]< Ethnic>
 magnet:?xt=urn:btih:4C6A9F08049EC796A0951E96114C7088200D0528
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +214,8 @@ magnet:?xt=urn:btih:4C6A9F08049EC796A0951E96114C7088200D0528
 magnet:?xt=urn:btih:F104CA679AEF966DC359A940929E3066B4996185
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -230,6 +244,8 @@ magnet:?xt=urn:btih:F104CA679AEF966DC359A940929E3066B4996185
 magnet:?xt=urn:btih:558E0A99BB0FDB84AB8A9CFEC4C5E7C6CB4E1221
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -254,6 +270,8 @@ magnet:?xt=urn:btih:558E0A99BB0FDB84AB8A9CFEC4C5E7C6CB4E1221
 magnet:?xt=urn:btih:D2E9B661314EE5B79478AADDBC3666EDEC5CF898
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +295,8 @@ magnet:?xt=urn:btih:D2E9B661314EE5B79478AADDBC3666EDEC5CF898
 ```bash
 magnet:?xt=urn:btih:CF0F33318F4E32E50E6369487A0091A5E6A6FD7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +331,8 @@ VA - Музыкальный Король Ринга (2012) [MP3|256 kbps]<Pop | 
 magnet:?xt=urn:btih:5C46ED22AE1FEBF916179BD662403AF956667FB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +361,8 @@ magnet:?xt=urn:btih:5C46ED22AE1FEBF916179BD662403AF956667FB6
 ```bash
 magnet:?xt=urn:btih:F912F3D9B15C691714EAA6A3AE41101DD9B8FE45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +397,8 @@ Andy Summers - A Windham Hill Retrospective (1998) [FLAC|Lossless]<Fusion>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +431,8 @@ Emmylou Harris - Red Dirt Girl (2000) [MP3|320 кб/с]<Country>
 ```bash
 magnet:?xt=urn:btih:D72FAC90E44BF9B4B97F583F1C5A4B579BB93586
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +467,8 @@ Jim White - Where It Hits You (2012) [MP3|320 kbps]<Americana, Indie Folk>
 magnet:?xt=urn:btih:D00798F36A986B7FC2BF84B8B915C707948A01C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +501,8 @@ VA - Танцевальный Микс Зарубежных Хитов (2012) [M
 ```bash
 magnet:?xt=urn:btih:117E6DFB81CF0ABA02BF807DB0A98EFBE8FAA33C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +537,8 @@ VA - Progressive Trance. The Best World Club Music (2012) [MP3|192 kbps]<Progres
 magnet:?xt=urn:btih:47DEA35BE362E01E9CFE4C83B9F1219D4DE0B8B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +567,8 @@ magnet:?xt=urn:btih:47DEA35BE362E01E9CFE4C83B9F1219D4DE0B8B5
 magnet:?xt=urn:btih:75442E74D205A27DA07B10179A778D9742FB661E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +592,8 @@ TapinRadio - это простой и достаточно надежный ра
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +621,8 @@ TapinRadio - это простой и достаточно надежный ра
 magnet:?xt=urn:btih:FB67E3D54664D80B22E56FCD6B8A8024063BBD24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +647,8 @@ VA - Kiss FM - Dance 10 (04.03.2012) [MP3|320 кб/с]<Dance>
 ```bash
 magnet:?xt=urn:btih:258C8372877EAEB429BE76A3EC99A0BB3CC02600
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +683,8 @@ James Levy & The Blood Red Rose - Pray to Be Free (2012) [MP3|320 кб/с]<Singe
 magnet:?xt=urn:btih:2378610A34AE9FDF3B7FE3482C1A2F9CD1AF33D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -673,6 +717,8 @@ VA - Urban Flavour (1998) [MP3|160 кб/с]<Intelligent, Drum'n'Bass>
 magnet:?xt=urn:btih:45B94DA55E0931732B66A8F13C3CE64C1F4C2245
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -698,6 +744,8 @@ magnet:?xt=urn:btih:45B94DA55E0931732B66A8F13C3CE64C1F4C2245
 ```bash
 magnet:?xt=urn:btih:9DBBBADA9F9841E18620C238AB395743C76C9692
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -732,6 +780,8 @@ VA - Сборник лучших REMIXов - Mix рандеву 50/50 (2012) [MP
 magnet:?xt=urn:btih:22EB264E766C8F625437327A0ADC9D804AC4B1B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -757,6 +807,8 @@ magnet:?xt=urn:btih:22EB264E766C8F625437327A0ADC9D804AC4B1B4
 ```bash
 magnet:?xt=urn:btih:FA62EEFB23C8D5D91A7FB0AE7DDE2CC65F3BF1C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

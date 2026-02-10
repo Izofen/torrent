@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:09C1E71C66A3F32C573B20A8100FB92BA49F4349
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ The Astral Serpent - Mirages in Izar (2023) [FLAC|Lossless|WEB-DL|tracks] <Raw B
 ```bash
 magnet:?xt=urn:btih:C009AC2100D241C26DC7A5EE2C5EDCCB5A2AE6FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ WiFiSpoof - небольшая утилита, которая поможет в
 magnet:?xt=urn:btih:FBD795B7EF865A79E17CF4D6F6979DBF94CBA92E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Airtool 2 v2.0 [En]
 ```bash
 magnet:?xt=urn:btih:F8C964387EF695CBD3148A8BAA164218C726A550
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ DoubleTake - приложение предназначено тем пользо
 magnet:?xt=urn:btih:70D9E6581B462B1D7B9B14C96A9BAD6FF0C0A668
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:70D9E6581B462B1D7B9B14C96A9BAD6FF0C0A668
 ```bash
 magnet:?xt=urn:btih:46CE6B028C7725773F77338D4105F1B2B8EA7C40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ Sisyphean - Colours of Faith (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Death 
 magnet:?xt=urn:btih:CD6BC0A78542CF23172A2D5FDCD2A18DFBB1E268
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ Till Brönner, Bob James - On Vacation (2020) [AAC|~324 Kbps] <Jazz>
 magnet:?xt=urn:btih:B6C05FA528352473A95BE5AD530010FEF6FB9A71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ Dr. Folder 2.8.6.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:AAC1483AC2A1AD7AC694583F297278A1A209D89F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ Sankarea / Санка Рэа [2012, TV, 12 + 2 OVA] BDrip 1080p raw + rus
 magnet:?xt=urn:btih:9C15F433DB384D310EF81B20D609F4A56053C88A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ GarageSale 8 v8.4 [Multi]
 ```bash
 magnet:?xt=urn:btih:3CF6411346C06B6F724F5417E9DE804163880D94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ VA - Urban City Vibes, vol. 1 (Urban Funk, Soul and Lounge Music) (2018) [AAC|~3
 magnet:?xt=urn:btih:BC9DE5E2A9201F47450B83249C05925FC9E85F0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:BC9DE5E2A9201F47450B83249C05925FC9E85F0D
 ```bash
 magnet:?xt=urn:btih:0AB184B60E3A41A484BF009DEBCA6EC5DA23AAF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ RAW Power 3.4.14 [En]
 magnet:?xt=urn:btih:F794D51BC136D5034A03DF744BEFE2E176F3BA3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ uTorrent Pro 3.5.5 Build 46542 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 ```bash
 magnet:?xt=urn:btih:9049C1509D1BC66E1978FA8DDD03C8E6E5B428AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +429,8 @@ VA - Dark Melodies, Vol. 6 (2021) [AAC|~323 Kbps] <Progressive House, Techno>
 magnet:?xt=urn:btih:2A525FD162D9F780AFEA46C9EC636E3C020EAAC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ magnet:?xt=urn:btih:2A525FD162D9F780AFEA46C9EC636E3C020EAAC2
 ```bash
 magnet:?xt=urn:btih:0C20132B0791B19E56E0816E0DEF19202FB54ADB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ Windhand - Levitation Sessions (2020) [MP3|320 Kbps] <Stoner, Doom Metal, Heavy 
 magnet:?xt=urn:btih:91719788C23E9B337190695F409732958175397E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ magnet:?xt=urn:btih:91719788C23E9B337190695F409732958175397E
 ```bash
 magnet:?xt=urn:btih:A51D8D206717192C5B874BDC545A9F121BBB1C41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +537,8 @@ magnet:?xt=urn:btih:A51D8D206717192C5B874BDC545A9F121BBB1C41
 ```bash
 magnet:?xt=urn:btih:8AFF65B9D6643143E0D8C7F6E3AA8436BF7E6340
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +567,8 @@ Mudness - Mudness (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Doom Metal>
 magnet:?xt=urn:btih:6792399FD711F71D187541FD4CE46F3C8170533C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +594,8 @@ HomeBank можно настраивать полностью под себя, �
 ```bash
 magnet:?xt=urn:btih:CF88528A254F428DFD4AAF04AA08A226C9DBC9E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +629,8 @@ Adriano Celentano - Live Adriano (2012) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:2AE7ABE0DA4263C6DFEE11D628829D1EB179DCEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +658,8 @@ VA - Summer Collection 2021 (2021) [AAC|~339 Kbps] <Progressive House, Deep Hous
 magnet:?xt=urn:btih:D72E283400BF30BD7C128C51DF8D69E205F09B61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +683,8 @@ magnet:?xt=urn:btih:D72E283400BF30BD7C128C51DF8D69E205F09B61
 ```bash
 magnet:?xt=urn:btih:D92BD0DC702D33B88C766644741EDC10AAD0A900
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -662,6 +712,8 @@ VA - Urban City Vibes, vol. 5 (Urban Funk, Soul and Lounge Music) (2020) [AAC|~3
 ```bash
 magnet:?xt=urn:btih:E064E36234319EE4727EC45CFC69AD817BCAB81B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

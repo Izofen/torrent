@@ -20,6 +20,8 @@ Chess King - Шахматные курсы v 0.9.6 - 0.9.7 [Ru/En]
 magnet:?xt=urn:btih:BB94620EE65001C0D262B0651BB5194D9707A4BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:BB94620EE65001C0D262B0651BB5194D9707A4BC
 ```bash
 magnet:?xt=urn:btih:BB43391BF42D777C39628B320E6B238169AE790A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:BB43391BF42D777C39628B320E6B238169AE790A
 magnet:?xt=urn:btih:DAFCE0560423A355229F57B94491207E38B7B25A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Password Depot For Android 14.0.2 [En]
 ```bash
 magnet:?xt=urn:btih:4DAE66EA8E131A9AFAE5D80975B13EA65AFD74C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Snipback - Lifehacker smart voice recorder PRO HD 1.00 [Ru/En]
 magnet:?xt=urn:btih:0BFAEF93F5A5FFC1087F94AC86A3671639976348
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ MT File Manager 13.03.16 (Mod) [Ru] - Файловый менеджер с ра�
 ```bash
 magnet:?xt=urn:btih:754DFD6682F43B9781ED16B0E8FD832551C4573E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:754DFD6682F43B9781ED16B0E8FD832551C4573E
 magnet:?xt=urn:btih:0E07C81F66C52D00A48950DABB2D00D58ACCE506
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:0E07C81F66C52D00A48950DABB2D00D58ACCE506
 ```bash
 magnet:?xt=urn:btih:92B23A41590EB0199D2B1AB9CED5FD4D143E39AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:92B23A41590EB0199D2B1AB9CED5FD4D143E39AE
 magnet:?xt=urn:btih:A35A226229910E09DF241B5B7E7986D7438F8C07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:A35A226229910E09DF241B5B7E7986D7438F8C07
 ```bash
 magnet:?xt=urn:btih:12AFD5D54CDECC5BBC2E0D233BB4F8B5F45B32B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:12AFD5D54CDECC5BBC2E0D233BB4F8B5F45B32B9
 magnet:?xt=urn:btih:857F630C232C8AB9C8BF45F6CE5CDE234B65E001
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Trigonometry. Unit circle / Тригонометрический круг v3.22 
 ```bash
 magnet:?xt=urn:btih:42012B800C05AF6A42529AC19DDD74CE4976B153
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:42012B800C05AF6A42529AC19DDD74CE4976B153
 magnet:?xt=urn:btih:941779BCE2AF50935ADFD61BA856918C62D18A54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:941779BCE2AF50935ADFD61BA856918C62D18A54
 ```bash
 magnet:?xt=urn:btih:D753A59055EBCB406840D0FBBD07B2528D62E79A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Lingualeo — это удобный и эффективный сервис дл�
 magnet:?xt=urn:btih:83CBCB73C8FDE271E89EC7CDC0BB94D05642F190
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Adblocker Browser v80.0.2016123424 [Ru/Multi] - Adblock & блокировка �
 magnet:?xt=urn:btih:43BC777820FCAE3E178A77A907665F881D7563CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:43BC777820FCAE3E178A77A907665F881D7563CE
 ```bash
 magnet:?xt=urn:btih:CE1AA75172C7814F551BB4ED03402D09EF944310
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:CE1AA75172C7814F551BB4ED03402D09EF944310
 magnet:?xt=urn:btih:71E322A1752A5AA2693CDAB8392E8BD0DB048752
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ MapcamDroid вовремя напомнит о соблюдении ПДД и с
 magnet:?xt=urn:btih:B57D3568B757EB18F9ED09D330290438A5231B37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ Fallout Shelter — мобильная видеоигра, разработан�
 ```bash
 magnet:?xt=urn:btih:BE64118D098E189E29CD7C2A94431C6A85268206
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ ESET Mobile Security — это быстрое и мощное приложен�
 magnet:?xt=urn:btih:BD8C558987A9B2124ED4CF9DABC77F3BF17C68FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ ABBYY TextGrabber на лету оцифрует фрагменты печатн
 magnet:?xt=urn:btih:C6DF851C495180DAF7806DC9040706B7E953994B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:C6DF851C495180DAF7806DC9040706B7E953994B
 ```bash
 magnet:?xt=urn:btih:34E039F8A5F44CD84D3476ACE87F9C00844E9FFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ LocalAPK - это Windows программа - органайзер для уп�
 magnet:?xt=urn:btih:A822FE731EC40EFAB81B9A053B3CBA3F2CED29F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ Equalizer FX Pro 1.3.2 [Ru/En]
 magnet:?xt=urn:btih:84A6C9AB3A07607D41CE0863829ACD26697CF7DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ PortraitPro позволяет любому с легкостью улучшит
 ```bash
 magnet:?xt=urn:btih:D7F8E70AD6B58939D89135590C86B207ED94431A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

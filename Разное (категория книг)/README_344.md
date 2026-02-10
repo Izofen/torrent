@@ -1,3 +1,29 @@
+###  Публикация: 931747   (511024) от 27.08.2015
+
+И. У. Будовниц | Монастыри на Руси и борьба с ними крестьян в XIV-XVI вв. [по "житиям святых"] (1966) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_511024.jpg" />
+</div>
+
+
+###  Подробнее
+
+В монографии на основе изучения житий русских святых исследуется история русских монастырей, эволюция монастырских хозяйств, антицерковная и антимонастырская борьба русского средневекового крестьянства. Показана ценность житийной литературы как исторического источника.Жанр: История, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F83AE309E248AC02BACE398F01EB3B3C56D7A5F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1315861   (511080) от 22.07.2019
 
 К. Кунарт | Юность в кандалах (1938) [DJVU]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:DF028B78D023390A5F0674C44F4820FF86DF1296
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:DF028B78D023390A5F0674C44F4820FF86DF1296
 magnet:?xt=urn:btih:DEC7BCA6B1BEB2CBEFE2B33252864ECC295452AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:DEC7BCA6B1BEB2CBEFE2B33252864ECC295452AF
 ```bash
 magnet:?xt=urn:btih:ADCBBE4BAA6DB690F2621796918D1844B9FB5462
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:ADCBBE4BAA6DB690F2621796918D1844B9FB5462
 magnet:?xt=urn:btih:E2D2D2C9BD9C190814521D1B5B871F9D52CA7DDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:E2D2D2C9BD9C190814521D1B5B871F9D52CA7DDE
 ```bash
 magnet:?xt=urn:btih:DF2EE3C9A22AA2601D0B672ED3E89356875AB62B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:DF2EE3C9A22AA2601D0B672ED3E89356875AB62B
 magnet:?xt=urn:btih:AADBCBA6075409895B2F966ED47F40B52880B71A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ Lonzell Watson | Цифровая видеосъемка. Самоучитель
 magnet:?xt=urn:btih:D4BCC9C1596A6479815B2234FF6137A02FBACA28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +226,8 @@ magnet:?xt=urn:btih:D4BCC9C1596A6479815B2234FF6137A02FBACA28
 ```bash
 magnet:?xt=urn:btih:292A9F09CD717F84F0CB190B289D062456D5E36D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:292A9F09CD717F84F0CB190B289D062456D5E36D
 magnet:?xt=urn:btih:88D08EBB13DD9E031DFEC642F5F17FB35706BD75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:88D08EBB13DD9E031DFEC642F5F17FB35706BD75
 ```bash
 magnet:?xt=urn:btih:1A4C53FF59C4B0D6610A0911CF8A217D296C0615
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:1A4C53FF59C4B0D6610A0911CF8A217D296C0615
 magnet:?xt=urn:btih:517553DE1AEC9513F90848785BDEC0A72A1A068F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:517553DE1AEC9513F90848785BDEC0A72A1A068F
 ```bash
 magnet:?xt=urn:btih:1F2778EC8D724050C4AEE539EDC8E890F2DBA2DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:1F2778EC8D724050C4AEE539EDC8E890F2DBA2DC
 magnet:?xt=urn:btih:F6A2DC39E2CA2EB1F76B9359B1770A21F03E69E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:F6A2DC39E2CA2EB1F76B9359B1770A21F03E69E5
 magnet:?xt=urn:btih:002670D9476A6503ADB97C4586F5BACA56E4500E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:002670D9476A6503ADB97C4586F5BACA56E4500E
 magnet:?xt=urn:btih:FDC33C83F03177183187637A5AB55FBBF8640584
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:FDC33C83F03177183187637A5AB55FBBF8640584
 ```bash
 magnet:?xt=urn:btih:97087C08333CE890B60D5F1EAA2C17C328F44AC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:97087C08333CE890B60D5F1EAA2C17C328F44AC6
 magnet:?xt=urn:btih:3AD611ECC503F6F00F0702259DFD3B8A1E562DA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:3AD611ECC503F6F00F0702259DFD3B8A1E562DA5
 magnet:?xt=urn:btih:1402099106361D8DAF44AF06763F2DF6EA330B95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:1402099106361D8DAF44AF06763F2DF6EA330B95
 ```bash
 magnet:?xt=urn:btih:5588E2D0A18D359F56D596FACB607ADAB8209D15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +552,8 @@ magnet:?xt=urn:btih:5588E2D0A18D359F56D596FACB607ADAB8209D15
 magnet:?xt=urn:btih:E5F7BDA624960A9C679EAD944B82051DD364A637
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +579,8 @@ magnet:?xt=urn:btih:E5F7BDA624960A9C679EAD944B82051DD364A637
 magnet:?xt=urn:btih:76D681FD6A10951C46A7E129C7E6BF766814DD59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:76D681FD6A10951C46A7E129C7E6BF766814DD59
 ```bash
 magnet:?xt=urn:btih:C8C800DAFAD3104F4339004B58C89BF551883CA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +633,8 @@ magnet:?xt=urn:btih:C8C800DAFAD3104F4339004B58C89BF551883CA2
 magnet:?xt=urn:btih:4A6FA2059598B4560E6B7A6BBDFD68ADB4C02161
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +661,8 @@ magnet:?xt=urn:btih:4A6FA2059598B4560E6B7A6BBDFD68ADB4C02161
 magnet:?xt=urn:btih:BF0EB6F5C9377E891B340E5CDD7A99020AC36A89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,31 +687,7 @@ magnet:?xt=urn:btih:BF0EB6F5C9377E891B340E5CDD7A99020AC36A89
 magnet:?xt=urn:btih:82009C6CF6677E840D0F3559F96C0FCD9DE0F5A5
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931157   (512732) от 25.08.2015
-
-Эленика Лис | Психология энергичных людей (2013) [FB2, RTF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Люди часто жалуются на то, что им не хватает сил, куда-то деваются желания, и усталость настигает задолго до времени отхода ко сну. Неужели и правда у современного человека энергии меньше, чем у людей предыдущих поколений?
-
-Оказывается, нет. Но мы совершаем множество ошибок в использовании своего энергетического ресурса и поэтому нам кажется, что силы уже в первой (   Читать дальше...   )Жанр: Социальная психология, Личностный ростФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2F446172D8FF5FA55C5FFD16537F771DB678639
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:218641D1B1580D1B835D8F2EF755F374093BE46E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Sante DICOM Editor — ведущее в отрасли приложение п�
 ```bash
 magnet:?xt=urn:btih:4C38660AC4B789AA759A6C8A0D838E56CB7211AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Sante DICOM Viewer Pro не является «еще одним средств�
 magnet:?xt=urn:btih:FC4435B2884CF7CF9195E6AC8E04661DABB62EBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Topaz Gigapixel AI — это приложение, использующее с�
 magnet:?xt=urn:btih:3C1B83117D206295878EDE39ABD3FB935B0DB71D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:6FAF2D605C5424C617AE090284E6F2CCB3095246
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ EF Commander  — замечательный двухпанельный файл
 magnet:?xt=urn:btih:06D3B484A31C7A881315BFF30FE0A0889ECD67D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Smart AudioBook Player Pro v11.2.0 Mod by Kirlif' [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E2C89780C6CF49677BDBA1D1FFFACF20A6C5F254
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ File & Image Uploader - удобная и просто незаменимая п
 magnet:?xt=urn:btih:9D9C17B06246566A97340DF6B5698E257077C025
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ GeoGebra — мультиплатформенная программное об�
 ```bash
 magnet:?xt=urn:btih:95EE8105525A80A906E932A685DB34F3B17B3537
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Daff Moon Phase (Фазы Луны) v3.43 Mod by shv7net [Ru/En]
 magnet:?xt=urn:btih:625055B2954944819E34883ABB7CC70A10B3A351
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ MusicBrainz Picard - простая в использовании програм
 magnet:?xt=urn:btih:A85BC170F61D2197A58010EA9ED4E89E30F6A1CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Ventusky: Прогноз погоды v40.2 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7166B9368BC80AD2F4D72EEE05787DA31629D159
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ Vivaldi 7.1.3570.47 include standalone [Multi/Ru]
 magnet:?xt=urn:btih:CEAE0CF3A21D8175B3DE97F5A71636131904A6A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Desktop Calendar – бесплатный календарь рабочего с
 magnet:?xt=urn:btih:1AA6EC6A36907BFCB48567F27E4E2B40BDFF201A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Magic Eraser - это революционное приложение для р�
 ```bash
 magnet:?xt=urn:btih:A008F9676A818E56B209967D6D8B7701639988B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ Dream Theater - Parasomnia (2025) [FLAC|Lossless|tracks] <Progressive Metal>
 magnet:?xt=urn:btih:0C0E004EEC667DAC623715332399B8328453EB56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:0C0E004EEC667DAC623715332399B8328453EB56
 ```bash
 magnet:?xt=urn:btih:32987D166EF8DC183787E751B6D9A399C30450F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ Sandboxie - yтилита для контроля за работой разли
 magnet:?xt=urn:btih:4689E54CFE8FE50E716D804AA56890BA811B3E67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ Chasys Draw IES — бесплатная программа, представл�
 magnet:?xt=urn:btih:CC46A844CBF4DEFCF112830FB6279746740532AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ RegCool 2.022 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5F9937DDF9E240DEA2BE99063A9C4353CCF0CD92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:5F9937DDF9E240DEA2BE99063A9C4353CCF0CD92
 magnet:?xt=urn:btih:3DCC2BA32B439D86E8FB5CF92F15AFADDE87AC55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ Text Editor Pro 31.3.3 + Portable + Bonus [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A343B63A704665F0576E24262EAAB6C6AEB0753D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ O&O DiskImage Professional позволяет создавать резервн�
 magnet:?xt=urn:btih:25C767596B5D10579053FC4459B26948E4F20BCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ EarthView — это динамические обои для рабочего �
 ```bash
 magnet:?xt=urn:btih:A60A7A022FF09FC3E8BA3724853E40E19E899916
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ AVS Image Converter - лёгкая в использовании програм�
 magnet:?xt=urn:btih:5D8451324B7ED57EDC7916410A0D8D6582E143DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Total Movie Converter - многофункциональная программ�
 ```bash
 magnet:?xt=urn:btih:E1C0032D455DCF92FB7D80E30479AE578F892185
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

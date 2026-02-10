@@ -1,3 +1,32 @@
+###  Публикация: 712580   (403166) от 19.10.2013
+
+Michael Jackson - 25 Best Songs (2012) [MP3|235 - 272 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_403166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billie Jean 1982
+02. Beat It 1982
+03. Wanna Be Startin' Somethin' 1982
+04. Human Nature 1982(   Читать дальше...   )Жанр: PopПродолжительность: 01:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E54FC3C64C056711886B83104617C8B30639B95F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 712438   (403175) от 19.10.2013
 
 Alphaville - 25 Best Songs (2012) [MP3|243 - 320 кб/с]<Synthpop>
@@ -21,6 +50,8 @@ Alphaville - 25 Best Songs (2012) [MP3|243 - 320 кб/с]<Synthpop>
 ```bash
 magnet:?xt=urn:btih:E6927DEAD487AEB1542D5D0070875ABBC5C84F0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ Chris Rea - 25 Best Songs (2012) [MP3|197 - 270 кб/с]<Blues-Rock>
 magnet:?xt=urn:btih:4872F3B02622077633653BDBE207E63263E14497
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ A-ha - 25 Best Songs (2012) [MP3|320 кб/с]<Synthpop>
 ```bash
 magnet:?xt=urn:btih:CB9FB3374D1D229CEF5D97DF95248235EDF12FF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ Sade - 25 Best Songs (2012) [MP3|209 - 248 кб/с]<Soul>
 magnet:?xt=urn:btih:B12C26695E2E8E8396CFD691A4E6E04E39E7BE44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ Modern Talking - 25 Best Songs (2012) [MP3|228 - 267 кб/с]<Eurodisco>
 ```bash
 magnet:?xt=urn:btih:14F20322017E2F19599C41F9ACB1B215701289F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ C.C. Catch - 25 Best Songs (2012) [MP3|256 кб/с]<Eurodisco>
 magnet:?xt=urn:btih:A6B405B225CD3DAB4204CD9CC638F845ECBF508A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ Sandra - 25 Best Songs (2012) [MP3|218 - 275 кб/с]<Synthpop>
 ```bash
 magnet:?xt=urn:btih:2FDC62E4D3187CF4D444C4A7847844ECFA5AE11A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ Duran Duran - 25 Best Songs (2012) [MP3|233 - 266 кб/с]<Synthpop>
 magnet:?xt=urn:btih:92BAAC7395CE466B61D5C46B3622A158E258E111
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ Peter Gabriel - 25 Best Songs (2012) [MP3|220 - 272 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:4A969F7F38A46181410CEF6D99FCE7FF1C8232A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ Pet Shop Boys - 25 Best Songs (2012) [MP3|227 - 266 кб/с]<Synthpop>
 magnet:?xt=urn:btih:77374C9C30DA0F8416E37D94A2579B800D126E31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +341,8 @@ Secret Service - 25 Best Songs (2012) [MP3|206 - 282 кб/с]<Synthpop>
 magnet:?xt=urn:btih:8871DD08B28AD0F01AE96005BE0D4C67773A53D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +369,8 @@ VA - Top 100 Зайцев.Нет Август (Русский выпуск) (201
 ```bash
 magnet:?xt=urn:btih:A3911DA8567B89DD8F2C01B6B81BB380DCD1272A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +405,8 @@ VA - Осенняя дискотека от Европа Плюс. Зарубе�
 magnet:?xt=urn:btih:16165FB5F178978C6A2388AB75360239255486B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +433,8 @@ VA - 90's Eurodance #3 (2017) [MP3|320 Kbps] <Eurodance, Euro-House, Techno, Dan
 ```bash
 magnet:?xt=urn:btih:935703F0A701F954BF8D03ADE9D93B98B7BE452D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +469,8 @@ CD1
 magnet:?xt=urn:btih:0BC92972314E1F2EE74B0D0473E149E93B3BDE17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +503,8 @@ VA - Хит Сезона Love Radio Русский (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:D75E28B40E9FA1635C1654D5F751D58A9FAB6818
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +539,8 @@ VA - Супер новая двухсотка хитов 50/50 (2012) [MP3|128 �
 magnet:?xt=urn:btih:A431BFA8E00A3B75F299447A6D493B78BAE527FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +574,8 @@ VA - In Da Club Vol.66 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting 
 magnet:?xt=urn:btih:209F9E21F0160512E48D20BF657ED52FEA067703
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +602,8 @@ VA - Ibiza Deep Groove Squad (2017) [MP3|320 Kbps] <Deep House, Electro>
 ```bash
 magnet:?xt=urn:btih:74EA3FF9FA39B33A0028771BDC604336E7644C47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +632,8 @@ VA - Empire Records - Sound Clinic 6 (2017) [MP3|320 Kbps] <House, Dance>
 magnet:?xt=urn:btih:6E100513DC7376EB74E82C1D0F51E697334A2146
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +661,8 @@ Depeche Mode - 25 Best Songs (2012) [MP3|220 - 259 кб/с]<Synthpop>
 magnet:?xt=urn:btih:308A411B9B2D26CB44AB81AFD67661797A203B87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +689,8 @@ Silent Circle - 25 Best Songs (2012) [MP3|238-278 кб/с]<Disco>
 ```bash
 magnet:?xt=urn:btih:E02A41E2CCE8DB951FC5897C93C09F95C378D7EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -652,6 +725,8 @@ VA - Супер дискотека 90-х. Зарубежная версия (201
 magnet:?xt=urn:btih:1E392806EAED377A4FC45D97C3C7FEF3D6E570E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -684,6 +759,8 @@ VA - This Merry Planet: Instrumental Disco Hits (2012) [MP3|320 кб/с]<Instrum
 ```bash
 magnet:?xt=urn:btih:588A4C5041D2FB5A72A76A45713A7E5730E2F192
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -718,38 +795,7 @@ VA - Лучшая клубная музыка AndrS vol.28 (2012) [MP3|320 кб/
 magnet:?xt=urn:btih:9674D1795A7EAA03133F215D9C7F67CAD3C36135
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562860   (404870) от 21.10.2012
-
-VA - Three Rooms. Acoustics, Chill, Relax Vol. 1-2 (2012) [MP3|320 кб/с]<Acoustics, Chill, Relax>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404870.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD.1:CD.1:Жанр: Acoustics, Chill, RelaxПродолжительность: 01:07:26
-01. Merge Of Equals — Take You There
-02. Mindprint Traveller — Waterland
-03. Bob Holroyd — Journeyman
-04. Santic Ft. Vera Hall — Death, Have Mercy (Mks Mix)
-05. Akmusique — Le Temp (Rouge Mix)
-06. Nighthawks — The Secret Loneliness
-07. Yira — Villurca
-08. Mystic Diversions — The Love Dance (Spirit Of Life Mix)
-09. Deepak Chopra Ft. Demi Moore — Desire(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57E1E3252D4082FE178750EEC69AD38C80D4BFFE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

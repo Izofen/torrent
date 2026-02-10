@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:F422942A0467597D1C2E6EC709D456D0580AD781
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ VA - Trance Elegance On This Year 001 (2016) [MP3|320 Kbps] <Trance, Melodic, Up
 ```bash
 magnet:?xt=urn:btih:7310349EB0AD7A34820F20CAA8B39AC7B4E0B338
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Realeaf - Possibly Not (2007) [FLAC|Lossless|tracks + .cue] <Psychedelic, Space 
 magnet:?xt=urn:btih:CCC52B1D74840DC3C46F9DB8670DC67C7A7EEE60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ VA - Mainstage Music Top 10 (2016) [MP3|320 Kbps] <House, Electro House>
 magnet:?xt=urn:btih:E0D9ADB4B4B0EF2A1C32D25C199B1F625821D3DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:E0D9ADB4B4B0EF2A1C32D25C199B1F625821D3DD
 ```bash
 magnet:?xt=urn:btih:3F5369D7ED355B6EA23ECDC56D1C32F733D36840
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -153,6 +163,8 @@ CD1:
 magnet:?xt=urn:btih:BD0F95824D9BF069981D99AE4C4C4F57495A4FA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -179,6 +191,8 @@ VA - Chillout Tonight: City Club Edition (2016) [MP3|320 Kbps] <Chillout, Lounge
 ```bash
 magnet:?xt=urn:btih:F6C7E96BAA66A301062D72B66BC8463F8485BBDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -207,6 +221,8 @@ VA - Underground People Christmas 2016 (50 Tracks For Your Winter Party) (2016) 
 magnet:?xt=urn:btih:5D9F99ADC381D6851554A7856C1A0098C421E1F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -233,6 +249,8 @@ VA - Mountain Sound The Lounge Of Beaver Creek (2016) [MP3|320 Kbps] <Chillout, 
 ```bash
 magnet:?xt=urn:btih:E422B8082EEF6A63AAABD717EBF1296F5E522FB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +279,8 @@ Overdoze - Supreme Dosage (2015) [MP3|320 кб/с]<Thrash Metal>
 magnet:?xt=urn:btih:03BE11DEEDA6F500C86AF8A4B5CCFB463A26560B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +304,8 @@ magnet:?xt=urn:btih:03BE11DEEDA6F500C86AF8A4B5CCFB463A26560B
 ```bash
 magnet:?xt=urn:btih:7E5F90BBB43D8013AEEF46BFE78ECD32D3369C31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +334,8 @@ VA - Sexy Lounge Shades For Christmas (2015) [MP3|320 кб/с]<Downtempo, Chillo
 magnet:?xt=urn:btih:9C7AF187D7519EEB96C44E97A1E19180389B4E88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +359,8 @@ magnet:?xt=urn:btih:9C7AF187D7519EEB96C44E97A1E19180389B4E88
 ```bash
 magnet:?xt=urn:btih:7454F129C1D04E090AC9F595B457B939D2F5073B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +389,8 @@ VA - Winter Lounge Solden (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:A42615FF4E946887BE7B893DACBBC46FE890DBF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +414,8 @@ magnet:?xt=urn:btih:A42615FF4E946887BE7B893DACBBC46FE890DBF0
 ```bash
 magnet:?xt=urn:btih:F634CD6A499031E90E93863022A7B6AD42F03138
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +444,8 @@ magnet:?xt=urn:btih:F634CD6A499031E90E93863022A7B6AD42F03138
 magnet:?xt=urn:btih:5FFCB0F2690311F20AC67B0531851F6698A86DA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +472,8 @@ Jerome Cooper - In Concert. From There To Hear (2001) Mutable Music[APE|tracks+.
 ```bash
 magnet:?xt=urn:btih:00C90DDCFE461A7FA2352A4C26A2A6FE7E3BE0AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +502,8 @@ VA - Just Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:8CE2269F96F47850562038FD9ED0F8C98EA61BA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +527,8 @@ magnet:?xt=urn:btih:8CE2269F96F47850562038FD9ED0F8C98EA61BA4
 ```bash
 magnet:?xt=urn:btih:799680C3E2DD7A80C66AB0D30DAD56C402A57F3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +555,8 @@ A Better Finder Rename является лучшим решением для а�
 magnet:?xt=urn:btih:883BF6A7AD188427C12FA163B877A66BDEC78334
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +580,8 @@ PullTube 1.2.7 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:47F0FBE7A0173DA506B2C9B1FC90250933D3E2A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +607,8 @@ Scherlokk является утилитой для быстрого поиска
 magnet:?xt=urn:btih:F826AFF9838E18CD066F6C0DA20F447B19B306C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +633,8 @@ Find Any File не содержит никаких подменю с настр�
 ```bash
 magnet:?xt=urn:btih:FB45D5975EE85B0DC4068AACBDC40826DB375A9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +663,8 @@ magnet:?xt=urn:btih:FB45D5975EE85B0DC4068AACBDC40826DB375A9E
 magnet:?xt=urn:btih:AB90C4C04284FF2A0ECDE8FF9754429748185FB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +688,8 @@ magnet:?xt=urn:btih:AB90C4C04284FF2A0ECDE8FF9754429748185FB6
 ```bash
 magnet:?xt=urn:btih:73DC8D6E6819090F7C442E37755E6D40023795E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +717,8 @@ VA - Diamond To Dust: Blues Collection (2018) [MP3|320 Kbps] <Blues, Jazz>
 ```bash
 magnet:?xt=urn:btih:5CBAA03F2F4C0ECA9F0EAA083F11D9ABAC320105
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

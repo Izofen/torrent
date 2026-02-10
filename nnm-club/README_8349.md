@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3D54306E35972C6AA30F0B1C79DA4C9FE31408A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:3D54306E35972C6AA30F0B1C79DA4C9FE31408A4
 ```bash
 magnet:?xt=urn:btih:2A8CFF08C63CD6E6813692302487C9FED2280CD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:2A8CFF08C63CD6E6813692302487C9FED2280CD4
 magnet:?xt=urn:btih:776F2041EA49A4C9386A028A7E0E0411E926D32C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Girls und Panzer: Saishuushou | Girls und Panzer das Finale | Девушки и 
 ```bash
 magnet:?xt=urn:btih:8AFFFAC46069DF8B58AADB4AA8DC5718356C2CD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ DxO PhotoLab 9.2.0 build 524 RePack by KpoJIuK [Multi]
 magnet:?xt=urn:btih:74719A896060E49835934F181B12B6FD245F7AE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Capture One - один из лучших профессиональных кон
 magnet:?xt=urn:btih:B36D4587536BB629477F9C467286D25ADC39B4FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ magnet:?xt=urn:btih:B36D4587536BB629477F9C467286D25ADC39B4FF
 ```bash
 magnet:?xt=urn:btih:B1776E71B5443375F2EE7304A186DDAB47A6A825
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:B1776E71B5443375F2EE7304A186DDAB47A6A825
 magnet:?xt=urn:btih:B4E2103FFCAF39CCBD401A0480E62B19B038A5E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:B4E2103FFCAF39CCBD401A0480E62B19B038A5E2
 ```bash
 magnet:?xt=urn:btih:F701013802C300032BE02F81D127E8FC4D47AC7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Slash - Live at the S.E.R.P.E.N.T. Festival (2025) [FLAC 24/48|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:15CF2D07FDDD85A9540184812614E4C2F02E6ECD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:15CF2D07FDDD85A9540184812614E4C2F02E6ECD
 ```bash
 magnet:?xt=urn:btih:9903B2DA961753093D47E1BBA5BD1CC84D9DA440
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ Alex Hutton Trio - Legentis (2012) [FLAC|Lossless]<Contemporary Jazz, Piano Jazz
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ Kaya Jones - Release The Energy (2012) [H.264/1080р] WEBRip
 ```bash
 magnet:?xt=urn:btih:10C582C4FAA7BCF807CF40F704A7E7CAF008B1AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ Chromium Portable - портативная версия браузера от Go
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ Chromium Portable - портативная версия браузера от Go
 ```bash
 magnet:?xt=urn:btih:1A68FC3EF7B0630D0B7B248523A515863FABCD6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ Shadows Fall - Fire From The Sky (2012) [MP3|320 кб/с]<Metalcore / Thrash Met
 magnet:?xt=urn:btih:F2809BF5C5624D847AE67EF65E9FDB17B3C5A50A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ Win7codecs - это пакет кодеков предназначенный д�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +482,8 @@ Mozilla Firefox - очень быстро работающий браузер, �
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ SUMo (Software Updates Monitor) - утилита для отслеживания
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ Mageia 2 RC [i586, x86-64] (2xDVD)
 magnet:?xt=urn:btih:A74D077D948D0D04A15AB49CDE047C70F05422B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ magnet:?xt=urn:btih:A74D077D948D0D04A15AB49CDE047C70F05422B4
 magnet:?xt=urn:btih:1024DF49C3F07940D18DC51E11DC1FE73892BE95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ The Old Music Cover Art Paper Texture Overlay — это коллекция на
 ```bash
 magnet:?xt=urn:btih:7A1C2938D36F87D129E751A360052B6E96FAC6C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +617,8 @@ NG: Суперсооружения: Мегазаводы. Мини / Megafactori
 magnet:?xt=urn:btih:E9095E67B3058B22E226B2DB89278BE8AFC14F5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +642,8 @@ magnet:?xt=urn:btih:E9095E67B3058B22E226B2DB89278BE8AFC14F5B
 ```bash
 magnet:?xt=urn:btih:8C5F3B74244AC58F83A2904431D71DC71BF7ABF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +671,8 @@ OBS Студия - бесплатное программное обеспече�
 magnet:?xt=urn:btih:B139AB1F866A5DF2B8B638C50563F4EB409C0E40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +696,8 @@ Albert Kick - Evil Girl (2012) [H.264/720р] WEBRip
 ```bash
 magnet:?xt=urn:btih:B40CF78F52862668729121DB167127620C1F85A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ Hollow Knight: Silksong (2025) [Switch] [USA] 20.1.5, Atmosphere 1.9.4 [License]
 magnet:?xt=urn:btih:88990C0B5375EFF78F212A32104C6247BCEF3923
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Hollow Knight (2018) [Switch] [USA] 20.1.5 [NSZ] [License / DLC / 1.4.3.2b] [Ru/
 ```bash
 magnet:?xt=urn:btih:FFA30AA364AB75994C8128B97133A81EB811621D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Pentiment (2024) [Switch] [EUR] 18.1.0, Atmosphere 1.7.1 [License] [Ru/Multi]
 magnet:?xt=urn:btih:300ED760154BFE3BAE17B0703FCA12271364B998
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Storyteller (2023) [Switch] [EUR] 16.0.3, Atmosphere 1.5.4 [License] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:13B41B9C1F50A87D3A06F9A2AF4F15B9485B8475
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ World of Goo 2 (2024) [Switch] [EUR] 18.0.1, Atmosphere 1.7.1 [License] [Ru/Mult
 magnet:?xt=urn:btih:85CDE0D7F004865E5A9185B830823FDB2D3822F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Have A Nice Death (2023) [Switch] [EUR] 15.0.1, Atmosphere 1.5.1 [License] [Ru/M
 ```bash
 magnet:?xt=urn:btih:00D4C539960C8B46AB5E41BAB69F41B5AC5B530A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Stray (2024) [Switch] [EUR] 18.1.0, Atmosphere 1.7.1 [License] [Ru/Multi]
 magnet:?xt=urn:btih:A0D8753DD8CC95A726CDE5DE3CFC78F40E76506A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Teenage Mutant Ninja Turtles: Splintered Fate (2024) [Switch] [EUR] 18.0.1, Atmo
 ```bash
 magnet:?xt=urn:btih:B693A8C0E725F5C42126C3A9CB0ECB5103385E5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Dredge: Complete Edition (2023) [Switch] [EUR] 15.0.1, Atmosphere 1.4.1 [License
 magnet:?xt=urn:btih:681FD12F61F0E771F66EBF5AD72118C21214C10C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Outer Wilds: Archaeologist Edition (2023) [Switch] [EUR] 18.1.0, Atmosphere 1.7.
 ```bash
 magnet:?xt=urn:btih:B09DE8E93C36A70778132E6762A007EF5CDD4C64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Super Bomberman R 2 (2023) [Switch] [EUR] 16.1.0, Atmosphere 1.5.5 [License] [Ru
 magnet:?xt=urn:btih:15B55FC884C767C3D8588D7041AB842DC30578CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Animal Well (2024) [Switch] [EUR] 19.0.1, Atmosphere 1.9.1 [License] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:17B590584AC0D563404A6D6C80E03BA10C23F113
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Sea of Stars расскажет историю двух детей солнце�
 magnet:?xt=urn:btih:9097B0757402DE7DF787268D0F59A5F274C2AEC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Bayonetta Origins: Cereza and the Lost Demon (2023) [Switch] [EUR] 15.0.1, Atmos
 ```bash
 magnet:?xt=urn:btih:C1D447D471233B47B9D10E134C547DE1199412A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Shin Megami Tensei V: Vengeance (2024) [Switch] [USA] 18.1.0, Atmosphere 1.7.1 [
 magnet:?xt=urn:btih:4C30A496AC18C2D88FF8504DAB6D9EFD7DE73C63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Dave The Diver: Anniversary Edition (2023) [Switch] [EUR] 18.1.0, Atmosphere 1.7
 ```bash
 magnet:?xt=urn:btih:9F25CFCF53A0AA40894104D67E196DCC72949EBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Tomb Raider I-III Remastered Starring Lara Croft (2024) [Switch] [EUR] 18.1.0, A
 magnet:?xt=urn:btih:559FCE2A498C9A593C28CA8CFE0CB495619C2A48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ COCOON – новая игра от Йеппе Карлсена, ведущег�
 ```bash
 magnet:?xt=urn:btih:4EBC528EA2F6E1A57C713D51661765B0B3A355FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ Prince of Persia The Lost Crown (2024) [Switch] [EUR] 17.0.1, Atmosphere 1.6.2 [
 magnet:?xt=urn:btih:3539FE15846F75D52C639D2BD555FB5FD3B65D49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ xemu 0.8.106 Portable [En]
 magnet:?xt=urn:btih:D9244CEDA9B7933C47126DDB9CA7B171867764AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ Persona 3 Reload - Digital Premium Edition (2024) [PS4] (1.07 / DLC) License [Ru
 ```bash
 magnet:?xt=urn:btih:1878473AA157E93BCF8889CAB3CF908EAAF82048
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ Worms: The Revolution Collection (2012) [PS3] [USA] 4,50 [License] [Ru]
 magnet:?xt=urn:btih:72B24BBBFBB54E3F49A12A2E778A6FFE3B181447
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ Mass Effect 3 (2012) [PS3] [EUR] 4.01 [License] [Ru]
 ```bash
 magnet:?xt=urn:btih:AA1B74E65781133AA3093374B837166D4AF0011C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ Far Cry Compilation (2014) [PS3] [USA] 4.55 [License] [En]
 magnet:?xt=urn:btih:70F2B5D0E679C98E6D9E0B9C5350410E3B66C7AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ Asura's Wrath (2012) [PS3] [EUR] 3.73 [License] [En]
 magnet:?xt=urn:btih:EC5827AD07C1CFE3683B873ED4509C86620EEF61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ The Simpsons Game (2007) [PS3] [USA] 1.93 [License] [En]
 ```bash
 magnet:?xt=urn:btih:537EE26DD2BEFD248D6F11FA408FCB28D319B15D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

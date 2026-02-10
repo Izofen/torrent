@@ -1,3 +1,29 @@
+###  Публикация: 925244   (540832) от 06.08.2015
+
+Дэвид ди Салво | Быстрые решения не приводят к успеху. Пойми, что хочет твой мозг, и сделай наоборот (2014) [FB2, RTF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почему мы заведомо выбираем то, что согласуется с нашими сиюминутными желаниями, но ставит крест на далеко идущих целях? Почему мы охотно поддаемся искушениям, от которых так упорно пытались отказаться? Почему мы склонны придавать смысл обыкновенным совпадениям? Дело в том, что наш мозг не любит напрягаться. Ему нравятся готовые схемы, знакомые шаблоны, определенность (   Читать дальше...   )Жанр: Практическая психологияФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE31983C2677E4E8018C3897BF9AE457204F69D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1154321   (541053) от 30.07.2017
 
 А. Древс | Жил ли апостол Петр? (1924) [DJVU]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:105947240D4B4EBD3D072069D35D2D4F89D318E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:105947240D4B4EBD3D072069D35D2D4F89D318E5
 magnet:?xt=urn:btih:3DC575AB8527D19A4B5F210040155718663616F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:3DC575AB8527D19A4B5F210040155718663616F0
 magnet:?xt=urn:btih:787B4C80ABC5B0F44D5929709A4A8B552020CF08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:787B4C80ABC5B0F44D5929709A4A8B552020CF08
 ```bash
 magnet:?xt=urn:btih:35319943FFBF4F8F9E16393EC410267EB383D7B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:35319943FFBF4F8F9E16393EC410267EB383D7B9
 magnet:?xt=urn:btih:041BBD20A0950533C1E48503FE59864202062CC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:041BBD20A0950533C1E48503FE59864202062CC9
 magnet:?xt=urn:btih:B5BFEEA62F0E1E5C1165692D558BFBE6F28052FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:B5BFEEA62F0E1E5C1165692D558BFBE6F28052FA
 ```bash
 magnet:?xt=urn:btih:4B789714A3707BFC5D319681ADEE97308A9B4490
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:4B789714A3707BFC5D319681ADEE97308A9B4490
 ```bash
 magnet:?xt=urn:btih:E84552B7D77A170733768E729F6326902F6726A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +261,8 @@ magnet:?xt=urn:btih:E84552B7D77A170733768E729F6326902F6726A2
 magnet:?xt=urn:btih:DB7B9679F22757FCF756ED4FD19BA3DE97AC98C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +290,8 @@ magnet:?xt=urn:btih:DB7B9679F22757FCF756ED4FD19BA3DE97AC98C5
 magnet:?xt=urn:btih:CC6584CA8126A260BD1C3136E7419937785DC003
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +315,8 @@ magnet:?xt=urn:btih:CC6584CA8126A260BD1C3136E7419937785DC003
 ```bash
 magnet:?xt=urn:btih:6BF4F2E01A16441BD2621D55F1211633AD6FCF61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +342,8 @@ magnet:?xt=urn:btih:6BF4F2E01A16441BD2621D55F1211633AD6FCF61
 magnet:?xt=urn:btih:7DCBB9D5D39E83E0621254DE95180A4F0108CA34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +367,8 @@ magnet:?xt=urn:btih:7DCBB9D5D39E83E0621254DE95180A4F0108CA34
 ```bash
 magnet:?xt=urn:btih:E1A963D722A610E98FFD68EF5E14D8C70609B917
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +394,8 @@ magnet:?xt=urn:btih:E1A963D722A610E98FFD68EF5E14D8C70609B917
 magnet:?xt=urn:btih:6E484AAE62A9B03174242A4C144B3810DDA02733
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +419,8 @@ magnet:?xt=urn:btih:6E484AAE62A9B03174242A4C144B3810DDA02733
 ```bash
 magnet:?xt=urn:btih:06E12BA1F23CBDDA02A4F8DE0153652E9D4F2557
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +446,8 @@ magnet:?xt=urn:btih:06E12BA1F23CBDDA02A4F8DE0153652E9D4F2557
 magnet:?xt=urn:btih:8817D9F7928B0602FEA9772C0D337993EE63EB8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +472,8 @@ magnet:?xt=urn:btih:8817D9F7928B0602FEA9772C0D337993EE63EB8C
 ```bash
 magnet:?xt=urn:btih:3CA92D0A5F8B64FE67D5503ED4C851BE22089295
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +501,8 @@ magnet:?xt=urn:btih:3CA92D0A5F8B64FE67D5503ED4C851BE22089295
 magnet:?xt=urn:btih:50D184E41E21F9A45E51CD0E2E3573CB29AB67D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +527,8 @@ magnet:?xt=urn:btih:50D184E41E21F9A45E51CD0E2E3573CB29AB67D2
 magnet:?xt=urn:btih:6BF67D95CF615704B3D5682F1CBC24BB72D21E62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +552,8 @@ magnet:?xt=urn:btih:6BF67D95CF615704B3D5682F1CBC24BB72D21E62
 ```bash
 magnet:?xt=urn:btih:AA2935DFF3D80E0F6ACD75A5935C46978550A042
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +580,8 @@ magnet:?xt=urn:btih:AA2935DFF3D80E0F6ACD75A5935C46978550A042
 magnet:?xt=urn:btih:8C02DCFED3C7E2E12F54FFBE396CB6632F7975A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +605,8 @@ magnet:?xt=urn:btih:8C02DCFED3C7E2E12F54FFBE396CB6632F7975A2
 ```bash
 magnet:?xt=urn:btih:EE6D33EFB4830E275DCE409515BC8D76E9D526A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +632,8 @@ magnet:?xt=urn:btih:EE6D33EFB4830E275DCE409515BC8D76E9D526A9
 magnet:?xt=urn:btih:39539383E84727D132B6FF3077CC7D3B35DAF2F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:39539383E84727D132B6FF3077CC7D3B35DAF2F3
 ```bash
 magnet:?xt=urn:btih:BF12C89016849F66A3D252225AE06A4D592C51C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,29 +686,7 @@ magnet:?xt=urn:btih:BF12C89016849F66A3D252225AE06A4D592C51C0
 magnet:?xt=urn:btih:389BEEFE3F19634C5BD329005A6DDEEAFC9FE05C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925074   (542909) от 05.08.2015
-
-Роман Черепанов | 100 бизнес-технологий. Как поднять компанию на новый уровень (2014) [FB2, RTF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542909.jpg" />
-</div>
-
-
-###  Подробнее
-
-А вы знаете сверхвозможности и сверхслабости своей компании, команды и собственный потенциал? Давно ли вы спускались в производственный отдел или отдел продаж и просто спрашивали: «Как дела?» Эта книга откроет вам глаза на реальное положение дел в вашей компании и поможет перехватить управленческую инициативу для достижения бизнес-результатов.  В ней рассматриваются (   Читать дальше...   )Жанр: Организационный и производственный менеджментФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:385363099794DDCB4570F1182392FF23394AD300
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

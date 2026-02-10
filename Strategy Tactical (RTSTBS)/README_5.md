@@ -19,6 +19,8 @@ Toy Tactics - основанная на законах физики страте
 magnet:?xt=urn:btih:5D7780085C060376B79932611B8B1E9081464045
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Dicefolk представляет собой тактическую игру в 
 ```bash
 magnet:?xt=urn:btih:43D486D42FC46D90CB382703C3B4ECE7D7C7976A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Songs of Conquest - пошаговая стратегия, вдохновлен�
 magnet:?xt=urn:btih:D62281D2137904E05228FE517EE8E4DCB7444DE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Dark Deity (2021) [Multi] (1.58/dlc) License GOG [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:1CA51EBA90A6561DDD8F5E3DC7071EA9AF285AC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Corruption 2029 (2020) [Ru/Multi] (1.03) Scene Tenoke
 magnet:?xt=urn:btih:9596DAE0F0F985E87DED119ADF579F8F7A3C46D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Corruption 2029 (2020) [Ru/Multi] (1.03) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:60446AEF1DA4D641788CF00AFCFA0EE7C343A548
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Sumerian Six - это не типичная военная история. Ко�
 magnet:?xt=urn:btih:88057B7A241F2EEBE59ABC094E35FA4366CFA2B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Sumerian Six - это не типичная военная история. Ко�
 ```bash
 magnet:?xt=urn:btih:1EA2BE7439A9EA96E5258269BC91E8EE61739EF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Campaign Series: Vietnam - тактическая пошаговая варге�
 magnet:?xt=urn:btih:C34A22629D4603BC255C4FB8AF9683A82608AB1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Warhammer 40,000: Sanctus Reach - стратегическая пошагова�
 ```bash
 magnet:?xt=urn:btih:2B6B3E2C8116240243F96B5056814DCFA18CD842
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Master of Magic (2022) [Multi] (1.09.17/dlc) License GOG
 magnet:?xt=urn:btih:6378631BD4074F47A1079C6DF0DC7EE79A3D6DB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Wargame: Red Dragon (2014) [Ru/Multi] (130278/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:1CE54BEA6E7B8AF984C5549ADAF1C5E97325E7FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Dicefolk представляет собой тактическую игру в 
 magnet:?xt=urn:btih:0CEBE69359ACA1EDD109F54C916CE9C8635BE37B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Combat Mission: Battle for Normandy достоверно воссоздает о
 ```bash
 magnet:?xt=urn:btih:02444BBC2CAC04149FBBEBB1BF53F379B2BF1FBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Warriors of the Nile 2 – это продолжение увлекательн�
 magnet:?xt=urn:btih:99E4558998BBAAEE5B6C2CE674912B3A3AEE37FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Warriors of the Nile - пошаговая стратегия, где вы буд
 ```bash
 magnet:?xt=urn:btih:2AC9FE1E08AB7468CDFE021A138B801A62E89950
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Capes (2024) [Ru/Multi] (1.2.0.0/dlc) License GOG
 magnet:?xt=urn:btih:4E4BB68278BAF553D2631E01CFC2566722BE4A24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Arco - это минималистичная игра, действие кото
 ```bash
 magnet:?xt=urn:btih:D52049A3257ECD757D02F7B80251966DCC82EDA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Intravenous 2 погружает вас в мир жестоких интриг 
 magnet:?xt=urn:btih:FBD822C0E61D530BD87885CD46D20201A01DC606
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The Troop (2023) [Multi] (Build 15201092) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:2605A34DCEF9CE32123FD89C2C259C67DAEFE7A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ TROUBLESHOOTER: Abandoned Children (2020) [Ru/Multi] (20240719/dlc) Scene Tenoke
 magnet:?xt=urn:btih:B1FFE6BD34D23AEECC95CA841FBC147B369C9F6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Aliens: Dark Descent (2023) [Ru/Multi] (98246/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:FC984E3DF23064467D2748A21CC23035A34F4991
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Classified: France ‘44 - это пошаговая стратегическа�
 magnet:?xt=urn:btih:430E4B17CEE02C079E232A241E37DBDE4A958A13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Anomaly Collapse - это увлекательная игра, в которой
 ```bash
 magnet:?xt=urn:btih:D4C53FF4161A47A378B0E970A50FD4605DF0ABB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Shrot – находитесь в поисках небольшой олдску
 magnet:?xt=urn:btih:D7ABDDF09791EF82E3CB26D9D472312B82BD3D71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Scythe: Digital Edition - это длинная история в пошагов
 ```bash
 magnet:?xt=urn:btih:D9230462C6CEB5A5C768FF0AC03CD69B37E5D331
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

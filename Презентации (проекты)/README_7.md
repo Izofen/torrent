@@ -19,6 +19,8 @@ VideoHive - Book of Chronicle - 24754061 [AEP]
 magnet:?xt=urn:btih:B247E4ADD9DE5428C9BCA21F02E1BD1F796FDB4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ VideoHive - Glossy Box Video Display - 260408 [AEP]
 ```bash
 magnet:?xt=urn:btih:2F2B81DEA56BBE07BD5621AD02F50E451AB4F524
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:2F2B81DEA56BBE07BD5621AD02F50E451AB4F524
 magnet:?xt=urn:btih:D9D86663EC736019EE86E7A46E9261618B087686
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ VideoHive - Broadcast News Idents - 2788550 [AEP]
 ```bash
 magnet:?xt=urn:btih:77306EBDA1E5DAC6ABD35182B840609370AC9ED6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Fashion Promo - проект для создания модного промо-�
 magnet:?xt=urn:btih:FCFB06583C5D9999E19688FB4B85B10747C6BA8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Phone X Mockup Kit - это новый шаблон для After Effects, кот
 magnet:?xt=urn:btih:8DB29B61D4546B9A8C3B20D1E0EDA274CCE2C884
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Diamond Show - Используя этот пакет шаблонов, вы м�
 ```bash
 magnet:?xt=urn:btih:74FCC754A602A1EFCD1B24099535284B5C2D6ECD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:74FCC754A602A1EFCD1B24099535284B5C2D6ECD
 magnet:?xt=urn:btih:F9F4C472FD1EB729E3D0C44A14049F8AFB6E6B20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:F9F4C472FD1EB729E3D0C44A14049F8AFB6E6B20
 magnet:?xt=urn:btih:08B8EB8E022FC712CC799ED9727326555E139686
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ ProShow Producer - Cooking Channel [PSH]
 magnet:?xt=urn:btih:AD4EFB67953295F5D39B409964A64DA8D88CC058
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ VideoHive - One Day - 860185 [AEP]
 ```bash
 magnet:?xt=urn:btih:4CDFB067A088547305B66A7F8949EF049ECDAA61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:4CDFB067A088547305B66A7F8949EF049ECDAA61
 magnet:?xt=urn:btih:6003B11D94FAE923C710584F3FBE9379BE7B7947
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ VideoHive - Digital Corporate Promo - 20216865 [AEP]
 ```bash
 magnet:?xt=urn:btih:91F33AC0A7B8F87EB5B9103A74783EBB29122570
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ VISION 3 | Slideshow Pack - проект создан для дизайнерс�
 magnet:?xt=urn:btih:BF53BA63EF74DC8FC4D783AB433B23A98D71ECA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ VideoHive - Stylish Gloss Presentation - 144110 [AEP]
 ```bash
 magnet:?xt=urn:btih:7B0C68228979D1E174027F10BE1E80006163A22E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:7B0C68228979D1E174027F10BE1E80006163A22E
 magnet:?xt=urn:btih:5FC4AA7ECF30F59D576D44180155F8567D70CB2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:5FC4AA7ECF30F59D576D44180155F8567D70CB2E
 magnet:?xt=urn:btih:99C1BCB2EAC9893AD451026712428A055F0BE939
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Product Promo - это шаблон After Effects со стильным диза
 ```bash
 magnet:?xt=urn:btih:F8F00377CCFB94B4148B96AA7B613BA4CAA90CBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ Promote Your Business проект для создания презентаци�
 magnet:?xt=urn:btih:C34581DCB0BFB87E74D10A02E6C3051017A3E872
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ Media Promo - проект для создания промо-ролика.Фо�
 ```bash
 magnet:?xt=urn:btih:D5DA5A11C000976913DC15CB09666D29FD1C26E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ Fashion Slide - Проект для создания модного слайд-�
 magnet:?xt=urn:btih:5D9C163D3BBFAAB949F42E53FD775DE9B7B86667
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ VideoHive - The Light Within (Full) - 133494 [AEP]
 ```bash
 magnet:?xt=urn:btih:79BD9BE880935C4E4F4F2BB2A45138B11894133D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:79BD9BE880935C4E4F4F2BB2A45138B11894133D
 magnet:?xt=urn:btih:4CF4C49B457923F2635177C6E211F57794B9FA2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ VideoHive - Corporate Pack - 8839783 [AEP]
 ```bash
 magnet:?xt=urn:btih:0C0A9B21C90018819AE37EE7BECC2AE3DDDBF3F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:0C0A9B21C90018819AE37EE7BECC2AE3DDDBF3F5
 magnet:?xt=urn:btih:9934DE9D916FCB1DAFB8CB8BB9AE7D649D31809F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:9934DE9D916FCB1DAFB8CB8BB9AE7D649D31809F
 ```bash
 magnet:?xt=urn:btih:15FF40292B9BF6E744B6752E4AE58B5FB719203E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

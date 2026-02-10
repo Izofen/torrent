@@ -1,3 +1,29 @@
+###  Публикация: 544591   (489150) от 08.09.2012
+
+В.В.Маклаков (сост.) | Конституции зарубежных государств [2000] [PDF]
+
+>>Разное (категория книг)
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_489150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник включает переводы официальных текстов Основных законов (Конституций) США, Великобритании, Франции, ФРГ, Италии, Испании, Швейцарии, Японии и Бразилии, а также документов Европейского союза. Он открывается общей вступительной статьей. Кроме того, вступительной статьей снабжена каждая Конституция.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13D1B86AB71F0D942C647FA52EC828F732F8FD3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404810   (489170) от 27.08.2020
 
 Дэвид Ульрих | Дзен-камера. Шесть уроков творческого развития и осознанности (2018) [PDF, FB2, EPUB, MOBI]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:20B2A3276B7274FA49984E6186B1EF748139D299
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:20B2A3276B7274FA49984E6186B1EF748139D299
 magnet:?xt=urn:btih:D226C03210CD35D4A9577ADF5FCEB830FDF31F49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:D226C03210CD35D4A9577ADF5FCEB830FDF31F49
 ```bash
 magnet:?xt=urn:btih:41A6ED9643E97ABFD6DCA8EDF7133667D2500205
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:41A6ED9643E97ABFD6DCA8EDF7133667D2500205
 magnet:?xt=urn:btih:1722D9E790F8982B8D4469E2FD99BCAD2A4F9659
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:1722D9E790F8982B8D4469E2FD99BCAD2A4F9659
 magnet:?xt=urn:btih:52E1A517379D04C6C645A1E4C4318E0EA9050871
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +174,8 @@ magnet:?xt=urn:btih:52E1A517379D04C6C645A1E4C4318E0EA9050871
 ```bash
 magnet:?xt=urn:btih:9425F34C136A461A5C9CCD6B64A40170783E05CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:9425F34C136A461A5C9CCD6B64A40170783E05CD
 magnet:?xt=urn:btih:E5923A90CBEB8C3FF8D2AEEA2307C6EA6A81AA0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:E5923A90CBEB8C3FF8D2AEEA2307C6EA6A81AA0A
 magnet:?xt=urn:btih:7B37C1347B5DD212712D83B4C66E2DBD191335FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:7B37C1347B5DD212712D83B4C66E2DBD191335FC
 ```bash
 magnet:?xt=urn:btih:C8A2DC737B405298BC984AF254EE5F2A55E3AFDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:C8A2DC737B405298BC984AF254EE5F2A55E3AFDD
 magnet:?xt=urn:btih:C73155F7CAFCB399C70FD46F9DCAD8D957CE2B56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:C73155F7CAFCB399C70FD46F9DCAD8D957CE2B56
 ```bash
 magnet:?xt=urn:btih:9C127194E113A48662C5C42F8A48E4CC3A16F088
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:9C127194E113A48662C5C42F8A48E4CC3A16F088
 magnet:?xt=urn:btih:01FFF941419F3508BAD9BE7DF1E9306B4F9D3B96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:01FFF941419F3508BAD9BE7DF1E9306B4F9D3B96
 ```bash
 magnet:?xt=urn:btih:88B35DB3647672576AC21218C26B2CF7569911D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:88B35DB3647672576AC21218C26B2CF7569911D9
 magnet:?xt=urn:btih:F7FE51918AB981DD084EB9EE4D2C8ECD68D02ED8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:F7FE51918AB981DD084EB9EE4D2C8ECD68D02ED8
 ```bash
 magnet:?xt=urn:btih:4A0B84A9FC9E06BA3F8CC44A7542C7F73A583E37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +446,8 @@ magnet:?xt=urn:btih:4A0B84A9FC9E06BA3F8CC44A7542C7F73A583E37
 magnet:?xt=urn:btih:42BA127F48E88F6D3E8F47A09CBE50E6DCB41C3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:42BA127F48E88F6D3E8F47A09CBE50E6DCB41C3B
 ```bash
 magnet:?xt=urn:btih:8C49C443276D816853EE527769B1F40716E18663
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +500,8 @@ magnet:?xt=urn:btih:8C49C443276D816853EE527769B1F40716E18663
 magnet:?xt=urn:btih:30010EACFFB1DD22100E3BB25FE46ED810E45EEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +526,8 @@ magnet:?xt=urn:btih:30010EACFFB1DD22100E3BB25FE46ED810E45EEB
 magnet:?xt=urn:btih:97B74A171D937DFEA02AA0A0BB824E0AD2F26026
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +551,8 @@ magnet:?xt=urn:btih:97B74A171D937DFEA02AA0A0BB824E0AD2F26026
 ```bash
 magnet:?xt=urn:btih:8E167EBDBE0C09C343B9A96F15932279A21BC8EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +579,8 @@ magnet:?xt=urn:btih:8E167EBDBE0C09C343B9A96F15932279A21BC8EE
 magnet:?xt=urn:btih:1F5372B6BB806E0CE7163E3802C2108D4ED09CE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:1F5372B6BB806E0CE7163E3802C2108D4ED09CE4
 ```bash
 magnet:?xt=urn:btih:B3963B387EAA43F7445B0FEB1004F39C1016EB10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +632,8 @@ magnet:?xt=urn:btih:B3963B387EAA43F7445B0FEB1004F39C1016EB10
 magnet:?xt=urn:btih:35E98738412C8DCD2CC2501B056EB2A9404597F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +658,8 @@ magnet:?xt=urn:btih:35E98738412C8DCD2CC2501B056EB2A9404597F4
 ```bash
 magnet:?xt=urn:btih:943671B8C2F30EA3EC62914F41FB1E7CA5B25993
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,29 +686,7 @@ Men's Fitness | Подборка книг для бодибилдера [2008 - 
 magnet:?xt=urn:btih:E6E17846F43D3EA019FD9D7CBCB5B72AFE80A166
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404568   (491170) от 26.08.2020
-
-Лиза ТерКерст | Отверженные. Как жить в любви, когда кажется, что вы недостойны, обделены и одиноки (2020) [EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый из нас сталкивается с тем, что в какой-то момент жизни чувствует себя покинутым и одиноким. Мы пытаемся исцелиться от ран, переживаем новые и опасаемся оступиться в будущем, чтобы не остаться одним на своём пути. Но, к сожалению, некоторым людям только это и нужно: они пользуются этим и пытаются демотивировать нас, уничтожить волю и разрушить заветные мечты. (   Читать дальше...   )Жанр: Психология, Саморазвитие, Личностный ростПеревод: Зарко Матео Эль-ГруметеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FA8331F61486DFE00A42086CC3292192310A362
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

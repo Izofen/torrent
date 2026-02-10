@@ -22,6 +22,8 @@ Spagna - Dedicated To The Moon (1987) 1988, Epic International (Tokyo Japan) [FL
 magnet:?xt=urn:btih:C239FB684BD937FAD3440F1012BC8769BE55CFD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -50,6 +52,8 @@ Modern Talking - The 1st Album (1985) [FLAC|Lossless]<EuroDisco>
 magnet:?xt=urn:btih:CE2B99AC81E7C3492D0C9014C02E3F1187B49D29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +80,8 @@ VA - Pure... Party (2012)  Box Set, 4CD[FLAC|Lossless]<Pop, Dance, Eurodance>
 ```bash
 magnet:?xt=urn:btih:C7F20192BCBA585BA14CC7BC206B7C44B27752AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -110,6 +116,8 @@ Sarah Brightman - Sarah Brightman (2CD) (2009) [FLAC|Lossless]<Рop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +151,8 @@ Sarah Brightman - Sarah Brightman (2CD) (2009) [FLAC|Lossless]<Рop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +180,8 @@ Lady Gaga - Dawn Of Chromatica (2021) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Remixes,
 magnet:?xt=urn:btih:B774A3C13A283955FF7576F99749431FA59A994E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +208,8 @@ Tanita Tikaram - Closer To The People (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:F69EB02F10F3295667DC0FD0414F7F4920B30699
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +239,8 @@ VA - Pure... Crooners (2011) Box Set, 4CD [FLAC|Lossless]<Pop, Vocal Pop, AM Pop
 magnet:?xt=urn:btih:F4759763F29BC53CF57EA4DC5785E711DDA4AB4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +267,8 @@ VA - Got Hits! Perfect Pop Album (2003) [FLAC|Lossless|tracks + .cue] <RnB, Swin
 ```bash
 magnet:?xt=urn:btih:1F05296EDD8D1BD5044C0DF0D63159AB531B0062
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -279,6 +297,8 @@ Hermes House Band - No.1 Gold Selection (Greatest Hits) (2006) [FLAC|Lossless|tr
 magnet:?xt=urn:btih:D20BBF4B2DF2988DE7B6599671A05C54D1D1DAA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +326,8 @@ Purity Ring - WOMB (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Electronic, Indie Po
 magnet:?xt=urn:btih:57FD25F7D554BCB3DDB52B07E22209EDEA4FBEB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +354,8 @@ Francisca Valenzuela - La Fortaleza (2020) [FLAC|Lossless|WEB-DL|tracks] <Latin,
 ```bash
 magnet:?xt=urn:btih:9E018A2C28CA2307377CCEB77D649645717E5798
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +385,8 @@ VA - Pure... 90s Dance Party (2010) Box Set, 4CD [FLAC|Lossless]<Dance, Pop, Roc
 magnet:?xt=urn:btih:D4E7494B7761967C3D65EF7B147A7814365A1FE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +414,8 @@ Stephanie - Stephanie (1986) [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-po
 magnet:?xt=urn:btih:8BED891A7EA73EFCF2ACA92EE272FC721E5049A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +442,8 @@ Mandy - Mandy (1988) [FLAC|Lossless|image + .cue] <Europop, Synth-Pop>
 ```bash
 magnet:?xt=urn:btih:BFDF856943C5045E3F0BBA4FFB449167D2E1E4BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +473,8 @@ Texas - Texas 25 (2015) 2CD Deluxe Edition[FLAC|Lossless]<Pop Rock>
 magnet:?xt=urn:btih:5D2E5D84CF359F62E60831E1D77433C861D2FED3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +501,8 @@ Belinda Carlisle - California (1997) [FLAC|Lossless] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:0B9D3003D5CDDE9E7863306BEAEC83168A617317
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +531,8 @@ Stephanie - Stephanie (1991) [FLAC|Lossless|tracks] <Pop, Synth-pop, Pop Rock>
 magnet:?xt=urn:btih:8F360FF45CD9FFF547B1702E7E3FD6140056B11C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +559,8 @@ P!nk (Pink) - I'm Not Dead (2006) [FLAC|Lossless|tracks + .cue]<Pop, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:31301F2802F2AF48ECBEF49A6659515FE2A55D1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +589,8 @@ Anna Burch - If You're Dreaming (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 magnet:?xt=urn:btih:1838B7F074EE4AD39767375A3502C33DF09C94EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +618,8 @@ Tops - I Feel Alive (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 magnet:?xt=urn:btih:36A6978F9ABC4D4D94BD59B05D3791226927DAF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +644,8 @@ Kinnie Lane - V (2017) [FLAC|Lossless|tracks] <Pop, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:A308A31164163F682682C566DEDA3C54ACD43949
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +674,8 @@ VA - Pure... 80s Remixes (2014) [FLАС|Lоssless]<Pop, Electronic, Dancepop, Hi
 magnet:?xt=urn:btih:3EC79D3C6DB0DE1BA8373996C10C41DEB4EA54DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +702,8 @@ VA - Pure... 70s Dance Party (2011) [FLАС|Lоssless]<Pop, Rock, Funk / Soul, E
 ```bash
 magnet:?xt=urn:btih:EAC5E3BEA1FC87F65766A69C79B5814E6547F29C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -684,6 +732,8 @@ VA - Pure... 80s Dance Party (2011) [FLАС|Lоssless]<Pop, Electronic, Rock, Fu
 magnet:?xt=urn:btih:025C2928058370473990A632355F4FE65B36E183
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -711,6 +761,8 @@ Roxette - Look Sharp! (1988) [FLAC|Lossless]<Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:E59BEC89FBB7C1A0E1C3B3A85BC3D68005868E17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

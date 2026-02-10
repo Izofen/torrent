@@ -19,6 +19,8 @@ Complete XBLA Games [Xbox 360] [Freeboot/Jtag] [Rus/Eng] (2005-2012)
 magnet:?xt=urn:btih:7A779CDEC54845DEE7CD7FD1E85AE77A73430321
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:7A779CDEC54845DEE7CD7FD1E85AE77A73430321
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ More XBLA Games [Xbox 360] [Ru/En] [Freeboot/Jtag] (2013)
 magnet:?xt=urn:btih:565675BFB31C1B1506A657D41565F6FCF5BB50C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:565675BFB31C1B1506A657D41565F6FCF5BB50C1
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ ROSA 2012 Marathon будет представлена двумя основны
 magnet:?xt=urn:btih:5687E7A03DC6B7573226BD4221E847E43378177D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:5687E7A03DC6B7573226BD4221E847E43378177D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:5687E7A03DC6B7573226BD4221E847E43378177D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:5687E7A03DC6B7573226BD4221E847E43378177D
 magnet:?xt=urn:btih:413A83CBE58A952777E041FDD0BAAF4A7B65F48B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Battletech - это пошаговый ролевой экшен с робота
 ```bash
 magnet:?xt=urn:btih:7BD3404204B3F4D63DA6089EA90D8A265AB25846
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:7BD3404204B3F4D63DA6089EA90D8A265AB25846
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ Artisteer - первый и единственный продукт автома
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ QuickTime - это отмеченное заслугами программно�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ AutoCAD Architecture – это AutoCAD для архитекторов. Спе�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ AutoCAD Architecture – это AutoCAD для архитекторов. Спе�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ AutoCAD Architecture – это AutoCAD для архитекторов. Спе�
 ```bash
 magnet:?xt=urn:btih:BD8FBE648786FF82E2F13D6646EFEBB2B393440C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:BD8FBE648786FF82E2F13D6646EFEBB2B393440C
 magnet:?xt=urn:btih:07BE5F42FE0C196C1D9C154CAE8CBEA9632A3326
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ Risen 2: Dark Waters строится вокруг пиратской темат
 magnet:?xt=urn:btih:E1D051ED5B8CE703BCE01256FE2DF94C6D182066
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:E1D051ED5B8CE703BCE01256FE2DF94C6D182066
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ magnet:?xt=urn:btih:E1D051ED5B8CE703BCE01256FE2DF94C6D182066
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:E1D051ED5B8CE703BCE01256FE2DF94C6D182066
 ```bash
 magnet:?xt=urn:btih:A22221360CD85DFC90D19482BC97C120947E9353
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:A22221360CD85DFC90D19482BC97C120947E9353
 magnet:?xt=urn:btih:E517808121DAD91B7FA48812E88325EAFD56FB4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ F-Secure Freedome VPN - надежное и эффективное решени�
 ```bash
 magnet:?xt=urn:btih:9D4D37F84E142D6C07CA4B9000724B4233F6C681
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:9D4D37F84E142D6C07CA4B9000724B4233F6C681
 magnet:?xt=urn:btih:D52149BAFEF9CA5FD088A589B65D3BB6B2687AE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ Windows 11 Pro 22H2 Build 22621.1555 x64 by SanLex [Lightweight] [Ru/En] (2023.0
 ```bash
 magnet:?xt=urn:btih:543455135BF989670CB04BF87803C5A6067B9F79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:543455135BF989670CB04BF87803C5A6067B9F79
 magnet:?xt=urn:btih:03DB234F3B04E872510634104E4DD8F204FE6ADB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:03DB234F3B04E872510634104E4DD8F204FE6ADB
 ```bash
 magnet:?xt=urn:btih:2BE8C2B5A9438E3552E1F663C2611E11AFB81B6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

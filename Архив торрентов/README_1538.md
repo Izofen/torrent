@@ -19,6 +19,8 @@ Glary Utilities - функциональный набор системных т�
 magnet:?xt=urn:btih:CA6694F12C4F6E9FCABFDBDCBD6B61EED87DFB51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Davinci Resolve Studio 18.0.1 [Multi/Rus]
 magnet:?xt=urn:btih:DB07951BD0824CAD44D254BD007145E555714848
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Windows and Office Genuine ISO Verifier - компактная утилита д
 magnet:?xt=urn:btih:50C7319A9C0D7EC7ECE29291F1567D458365A479
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ O&O ShutUp10 позволяет получить полный контроль �
 ```bash
 magnet:?xt=urn:btih:2170368673106445A2B950F2C28ADC2E3926FB15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Viber, вне зависимости от того каким устройств
 magnet:?xt=urn:btih:CF31EC8544D988E26347CDEB5592E05170701C65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:A427BDCF3E911A7611D4138874811DB787734D15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ MacCleaner 3 PRO 3.1.2 [En]
 magnet:?xt=urn:btih:BFF5469413C9A685888EC82A4D6CDD24C5EC05C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ IObit Uninstaller Pro представляет собой удобный инс�
 ```bash
 magnet:?xt=urn:btih:AE79559B9D1988271682FF2B7AE92D7040F623E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ OCCT 12.0.7 Final Portable [En]
 magnet:?xt=urn:btih:C94F5AC40FDEB08880D470D1B891DB64DB1F35CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Revo Uninstaller Pro 5.0.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:53A411800F89EDBF9BEDCD1816E77F3263999C85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 magnet:?xt=urn:btih:2EC97A77FBA09AAA281A9788EB983BCED8B81382
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ Autorun Organizer - простое в использовании приложе�
 ```bash
 magnet:?xt=urn:btih:A958903E03628AA1FD1853CB61FDFD024682A521
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ Driver Booster сканирует и определяет устаревшие �
 magnet:?xt=urn:btih:827A2424D5AF2D0AA200A3952C8C4882E0D08627
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Atlantis Word Processor 4.1.6.2 Repack (& Portable) by elchupacabra [Ru/En]
 ```bash
 magnet:?xt=urn:btih:8D75DB7C4637FC1C62E8650595E4A3F4C82D7721
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ CCleaner - утилита для чистки мусора в операцион
 magnet:?xt=urn:btih:31E2C770837D4F4C745880A5936E46AB742FAECF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ ORPALIS PaperScan Professional является универсальной, мо
 ```bash
 magnet:?xt=urn:btih:9209CF77D33E99CD2608626B46EFBD0DE10A1743
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ AIMP 5.11 Build 2432 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:3C5EABE61C30309B43D28A804BF09A9D97E3FC40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ FileZilla Server представляет собой очень простой, 
 ```bash
 magnet:?xt=urn:btih:556EAE823D584C2157FE921B46ED904E897D8AE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Revo Uninstaller Pro 5.0.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:C5E003949EB7FEA28AEEAE9ED615C95BB4080E6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Smart Driver Manager - это быстрый, простой и безопасн
 ```bash
 magnet:?xt=urn:btih:D8E619E48BDAEEC5D871FB6AD385402F4C68AFB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ WhatsApp Messenger - кроссплатформенный мобильный м�
 magnet:?xt=urn:btih:9FB677CF2F4CACF32DCD097AC0F6B637DFA44766
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ AIDA64 - является мощным средством для идентиф�
 ```bash
 magnet:?xt=urn:btih:3C660228822F577B38DC960F0F6D8B40C9C5FEE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ Wise Care 365 – программный пакет, предназначенн�
 magnet:?xt=urn:btih:07390E755393A450B69EE04519E949971324498F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ OCCT 11.0.13 Final Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2B1C1D6CBB390ADAA1FA228E69BAE2504D24843B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:C27552D880EC6C380A203FF25CCE94D697A84A42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Advanced SystemCare PRO - это мощный пакет для оптимиза
 ```bash
 magnet:?xt=urn:btih:538A6382461FDDAAC2F4E6153F00195B7BE671AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Stronghold Crusader (2025) [Ru/Multi] (1.00) Repack FitGirl [Definitive Edition]
 magnet:?xt=urn:btih:A133EC46E14CEBABB911D048101071A6E6DEF2BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Inayah - Life after Gods (2025) [Ru/Multi] (1.0.4) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:5D1F745BA50F6F568E1FEB5621287E0B205F4A81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Dungeons & Dragons Neverwinter Nights 2: Enhanced Edition (2025) [Ru/Multi] (1.1
 magnet:?xt=urn:btih:F46E4FFE4102B2767BB47AE4757575CF6E01F250
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Automate It: Factory Puzzle (2025) [Ru/Multi] (1.0.0.6) Repack FitGirl [Supporte
 ```bash
 magnet:?xt=urn:btih:60BBDCAF775B19517F90EE9877D806B8CC1CE903
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Dungeons & Dragons Neverwinter Nights 2: Enhanced Edition возвращает �
 magnet:?xt=urn:btih:614B554D705DA854084C44AC43163C7DFDCF0E0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Dungeons & Dragons Neverwinter Nights 2: Enhanced Edition (2025) [Ru/Multi] (1.1
 ```bash
 magnet:?xt=urn:btih:4AAF0F404720C698334728868B3243C424C99DCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Kaizen: A Factory Story (2025) [Ru/Multi] (1.0.0.0) Repack Other s
 magnet:?xt=urn:btih:16C11A21732D3C5C440DC9620F9F0068B62F18D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Murky Divers с головой окунается в кооперативную 
 ```bash
 magnet:?xt=urn:btih:5163C6B990A9F43111474CB86BF59454005EFD54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Ale and Tale Tavern - это кооперативный фэнтезийный �
 magnet:?xt=urn:btih:23138750ED8C78F7D8C8FBF60DE232D2941AFF9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Soulslinger: Envoy of Death (2023) [Ru/Multi] (1.03) License GOG
 ```bash
 magnet:?xt=urn:btih:D6BDF7FAF923A7C125FEA6070B90E19F4617C847
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Shadow of the Night (2023) [En] (2.0) Repack FitGirl
 magnet:?xt=urn:btih:488BCA6BD1424D30AEDAE7A5BF8F91DF1014F335
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Below the Stone - это захватывающая инди-игра, кото�
 ```bash
 magnet:?xt=urn:btih:293CDB18102C24B8B9D946671EE2A285A02BEBE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Do Not Press The Button / Or You'll Delete The Multiverse (2025) [Multi] (1.0) R
 magnet:?xt=urn:btih:5823AEF89C0A5ED4996147F20C8523522143316C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Forest Asylum 2 (2025) [Multi] (1.1.5) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0D01F8A0248F25B4537787194C5303BC9FAAD466
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Rally Mechanic Simulator (2025) [Ru/Multi] (1.0.236/dlc) Repack FitGirl
 magnet:?xt=urn:btih:D0A990A903B663B52CC005470C9C208D255552C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Tony Hawk's Pro Skater 3 + 4 (2025) [Multi] (Build 18871623/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:BFAD6EE8616E6AC4296B97CC1D67364878BBA0F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ ISLANDERS: New Shores (2025) [Ru/Multi] (Build #4ccdb730/dlc) Repack FitGirl [Th
 magnet:?xt=urn:btih:7108BA331252E2F179D57F5E82ED27632B726C91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Vesnith Tapes (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3C2C0923B78DDAA0933DE224D5EB0B9281B90CC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Necesse - это приключенческая игра-песочница с �
 magnet:?xt=urn:btih:2C35885887A860FEA69F7EFA8A2979D747BC526E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Mad Restaurant People (2018) [Multi] (1.7.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:31407A4B1409B6624187F273BDE6D2D6F1060153
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Liminality (2024) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:0710DEC8DCBD40C7DE1BDAF56EB798AEFC5ED695
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ My Time At Portia (2019) [Ru/Multi] (2.0.141719/dlc) Repack FitGirl [Digital Del
 ```bash
 magnet:?xt=urn:btih:09AB23B261F61E81B7F0B15BADA88EB1EC2AC18D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ LUNAR Remastered Collection (2025) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:D4B7617D4EB2FE718C4B4B48F849ADE4FB68C6DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ City Enigma / Тайна города (2025) [Ru] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:B46E64FC8C36FD578EE54BFDC72C20CD277BA5B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Paranormal Files 13: Chaos Weekend (2025) [En] (1.0) Unofficial [Collector's Edi
 magnet:?xt=urn:btih:11AD5DE38CB8948CD2DE5E08EA3F7E5FC793ED08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ American Truck Simulator (2016) [Ru/Multi] (1.55.2.1s/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:34866F0D253B0F52D74D25A23F87C0F74912CFF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

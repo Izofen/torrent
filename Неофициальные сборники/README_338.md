@@ -1,3 +1,29 @@
+###  Публикация: 1043570   (570640) от 17.08.2016
+
+VA - Rautalanka Paraati 1 - 4 (2003 - 2007) [MP3|224 - 320 Kbps] <Instrumental, Guitar, Rautalanka>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Instrumental, Guitar, RautalankaПродолжительность: 01:04:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF6AD4ED372AAF13010CEFCF8FAAB3065CF53ECE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1234457   (570914) от 05.07.2018
 
 VA - Empire Records - Recccord (2018) [MP3|320 Kbps] <House, Future House>
@@ -21,6 +47,8 @@ VA - Empire Records - Recccord (2018) [MP3|320 Kbps] <House, Future House>
 ```bash
 magnet:?xt=urn:btih:725D888F2E55F5C8DF3CD1F5C866A9289F83BAF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +77,8 @@ VA - Ultimate Workout Music - House Hits (2016) [MP3|320 Kbps] <Fitness, Sports,
 magnet:?xt=urn:btih:FEEC73477E66B6661B3855728E737E715EA60E86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +106,8 @@ VA - For Massive Future Beats (2016) [MP3|320 Kbps] <House, Electro House, Drum 
 magnet:?xt=urn:btih:A16420EA9EEED873A6497011637A068F271315B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +131,8 @@ VA - Эх, Разгуляй! Летний Выпуск (2011) [MP3|128 kbps]<Ш�
 ```bash
 magnet:?xt=urn:btih:4DD5B5F1B333F0F5EFA643E6FE33A80E15FE7FC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -133,6 +167,8 @@ VA - Без тормозов: Super дискотека 10 (2012) [MP3|256 кб/�
 magnet:?xt=urn:btih:9992B071FFC534106E660D9C0291E058357B39EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -159,6 +195,8 @@ VA - Best In The Heat - Summer 100 Percent (2016) [MP3|232-320 Kbps] <Future Hou
 ```bash
 magnet:?xt=urn:btih:538FBA2E0009CC52432782A87BCD5B86853524E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +225,8 @@ VA - The Greatest Hits of Chillout Easy Listen Collection (2016) [MP3|320 Kbps] 
 magnet:?xt=urn:btih:B7B296A07FA6F5865181B54A8AA0690FD3910622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +254,8 @@ VA - Pure Summer (2016) [MP3|320 Kbps] <Club, Future House, Progressive>
 magnet:?xt=urn:btih:B637F890F6E6631D9D72B73CF22A36746A91F0B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +282,8 @@ VA - Iced Coffee: Balearic Chillout (2016) [MP3|320 Kbps] <Downtempo, Chillout, 
 ```bash
 magnet:?xt=urn:btih:60537DAD71A211B5DE9BDB658BF7C3929BD089E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +318,8 @@ VA - Going Back In Time Rock Roll  60s (4CD) (1993) [MP3|320 кб/с]<Rock'N'Rol
 magnet:?xt=urn:btih:40A79781D82BE4ACA62864A49560E4267D539CAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +352,8 @@ VA - Летняя улетная вечеринка (2012) [MP3|256 кб/с]<Pop
 ```bash
 magnet:?xt=urn:btih:4AB1E7103550A0273E50191C184040212FB25ACB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +388,8 @@ VA - Sexy Trance #43 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance, Vocal Tr
 magnet:?xt=urn:btih:62FB5905C7E8A70FA37B3A567EB2321531A2D219
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +414,8 @@ DJ_WOLTER - PRIMA (2009) [MP3|128 кб/с]<Folk-Rock-Electro-Klub-Dance>
 magnet:?xt=urn:btih:B9D10D10876EAEEDC45C6B8BEB394C0A359E5B71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +439,8 @@ VA - Союз хитовый Русский (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:7E8D702AB2E7D5B476AC67F5E307E6410E434BCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +475,8 @@ VA - 100пудовый Зарубежный (2012) [MP3|320 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:852FD3713C1A0D496B576CD39CCD9DA4BCF97006
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +504,8 @@ VA - Хит топ 2015. Лирические баллады (2015) [MP3|320 к�
 magnet:?xt=urn:btih:7A14181988DF59ECE5FBEEE2045C70E5A48650EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +531,8 @@ VA - Shaman's dream 3+ (2015) [MP3|320 кб/с]<Native American, World, Ethnic F
 ```bash
 magnet:?xt=urn:btih:F5622B6AA9D332B4A397B49831CCDEABD25E6753
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +561,8 @@ VA - Delicate Longe: Urban Meditation (2015) [MP3|320 кб/с]<Longe, Chillout>
 magnet:?xt=urn:btih:771E6D49E7FABC7EF7C740676314D1A75A1FAE38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +589,8 @@ VA - Dont Stop A Sexy Lounge Collection Bonus Version (2015) [MP3|320 кб/с]<D
 ```bash
 magnet:?xt=urn:btih:FB1EC93DA2BA35B10464E535E979A91C18C65229
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +619,8 @@ VA - Hit Music: лето (2022) от Мяу [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:9E0F72098ADEF64536A3C48ADE06CC4318DDC057
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +647,8 @@ VA - Клубная Молодёжная Вечеринка (2016) [MP3|269-320 
 ```bash
 magnet:?xt=urn:btih:D902E8526411C2359AEA245832CD8171E73E8386
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +677,8 @@ VA - Не Попса. Rock - Cocktail (2014) [MP3|320 кб/с]<Rock, Hard Rock>
 magnet:?xt=urn:btih:66DB622524C1C92773666EAED13535DD975B6F10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +706,8 @@ VA - Rock Party (2015) [MP3|320 кб/с]<Rock>
 magnet:?xt=urn:btih:EE9EE35621324370CF89333A1DAFB85D27D943F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +732,8 @@ VA - DOWN LOW (2022) [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
 ```bash
 magnet:?xt=urn:btih:680A4AF6E99669300B9F73AA6756A7B939972B0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -688,32 +762,7 @@ VA - Славянский Меч IV-Славься, Свентовид!. Час�
 magnet:?xt=urn:btih:F142B539CE85B6AC124E6943C55C07F065A27BCA
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123158   (572210) от 19.07.2017
-
-VA - Blues And Rock Ballads Vol.2 (2017) [MP3|320 Kbps] <Blues, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Black Joe Lewis - Maroon  6:00
-02.  Lasso Spells - Raygun Blues  4:09
-03.  Lion Bear Fox - Mountains  3:34
-04.  Kurt Gentle - Tell Me  2:59(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 06:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4964EC196EA3585E3100E33F03FCDB2614460813
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

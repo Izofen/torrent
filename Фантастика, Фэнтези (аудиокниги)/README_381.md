@@ -1,3 +1,29 @@
+###  Публикация: 923209   (564499) от 31.07.2015
+
+Андрей Дашков | Чёрный ровер, я не твой (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_564499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вовчик въезжал в закрытую зону в приподнятом настроении. Впрочем, закрытой она была лишь для тех, кто не хотел возвращаться. Вовчику путь назад был заказан. Такой остроты чувств он давно уже не испытывал. Ему предстояла игра, результат которой невозможно предугадать. Нечто подобное происходило с ним в пору его спортивной молодости, когда он выходил на ответственный (   Читать дальше...   )Жанр: Фэнтези, мистический триллерПродолжительность: 01:28:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22EEE855F35B4B287DAED74D10F1C42E40847C88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152576   (564740) от 23.07.2017
 
 Дем Михайлов | Наследие некроманта (2017) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:80ABC43ED4A314AF69C0DD3EB9C5703443BE7B62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:80ABC43ED4A314AF69C0DD3EB9C5703443BE7B62
 magnet:?xt=urn:btih:ACABCA74CBD5292CBDE0FA11905D12FA7D6F72B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:ACABCA74CBD5292CBDE0FA11905D12FA7D6F72B1
 ```bash
 magnet:?xt=urn:btih:E3BB007D996A301449558D58C2D6AEF92E93B0C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:E3BB007D996A301449558D58C2D6AEF92E93B0C1
 magnet:?xt=urn:btih:7EA2ADB3F68458AA614C8109C2BBD69BC2481FF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:7EA2ADB3F68458AA614C8109C2BBD69BC2481FF8
 ```bash
 magnet:?xt=urn:btih:7EA5683D94AFBD3FB9C65B88D46B45634A1E0E51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:7EA5683D94AFBD3FB9C65B88D46B45634A1E0E51
 magnet:?xt=urn:btih:BD08AC314205A7AA9FB89A8A8D45E3732E8E2FF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:BD08AC314205A7AA9FB89A8A8D45E3732E8E2FF4
 ```bash
 magnet:?xt=urn:btih:3C35D97A7B260A93DE6F6C5C09EE45D08CDC943A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ Gav Thorpe | Angels of Caliban / Ангелы Калибана (2016) [MP3] [En]
 magnet:?xt=urn:btih:50757C07FB855219CD648610843BF6F87F5923BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:50757C07FB855219CD648610843BF6F87F5923BC
 ```bash
 magnet:?xt=urn:btih:B844DD83C9BC0A5F385F3181E350C8A3DFEF7C7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:B844DD83C9BC0A5F385F3181E350C8A3DFEF7C7E
 magnet:?xt=urn:btih:85871C3A38E2942B808B5D16B5D038FAB9D991DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:85871C3A38E2942B808B5D16B5D038FAB9D991DE
 magnet:?xt=urn:btih:AB194619253E214EF00F2C77A5F4F6EE8B5F1F6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:AB194619253E214EF00F2C77A5F4F6EE8B5F1F6D
 ```bash
 magnet:?xt=urn:btih:8CA9D8430450B794FC1357547343950207EF3C9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:8CA9D8430450B794FC1357547343950207EF3C9C
 magnet:?xt=urn:btih:C51C7EC76EAFAAC5A9606FD9BC4B39178E6180B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:C51C7EC76EAFAAC5A9606FD9BC4B39178E6180B3
 magnet:?xt=urn:btih:3387FA4CC812EE1A397C7956E1B0CAA06FD07C51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:3387FA4CC812EE1A397C7956E1B0CAA06FD07C51
 magnet:?xt=urn:btih:70CD79ACF2F4AFB7F0B8E1D334BC14C479031D59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:70CD79ACF2F4AFB7F0B8E1D334BC14C479031D59
 ```bash
 magnet:?xt=urn:btih:342075604B74FCA9B028220CF70237215CACF4D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:342075604B74FCA9B028220CF70237215CACF4D9
 magnet:?xt=urn:btih:5356D66DE446A8F96E24FE82C8824D8E7FCC6A42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:5356D66DE446A8F96E24FE82C8824D8E7FCC6A42
 ```bash
 magnet:?xt=urn:btih:D2D7CB01DA5C3E22BD7223F85B8E90ABD0A73088
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:D2D7CB01DA5C3E22BD7223F85B8E90ABD0A73088
 magnet:?xt=urn:btih:25C24866F9047F980FC5D991F4CA18CB39A38BB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:25C24866F9047F980FC5D991F4CA18CB39A38BB0
 ```bash
 magnet:?xt=urn:btih:6F969CEDE2FBD80A315B089D8AC6D88DE929BBAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:6F969CEDE2FBD80A315B089D8AC6D88DE929BBAB
 magnet:?xt=urn:btih:6185EBDA4C18A519A2168C068795FF1895FDDF5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +598,8 @@ magnet:?xt=urn:btih:6185EBDA4C18A519A2168C068795FF1895FDDF5E
 ```bash
 magnet:?xt=urn:btih:E1F85E05CAD838ACBCFB35E584F64A24A8A4A25A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:E1F85E05CAD838ACBCFB35E584F64A24A8A4A25A
 magnet:?xt=urn:btih:FB82B146185D25B9452718863CABD67FA2BA207E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +651,8 @@ magnet:?xt=urn:btih:FB82B146185D25B9452718863CABD67FA2BA207E
 ```bash
 magnet:?xt=urn:btih:23BAA02637CB64C20479CA3EE9F741F5D92FB159
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,30 +680,7 @@ magnet:?xt=urn:btih:23BAA02637CB64C20479CA3EE9F741F5D92FB159
 magnet:?xt=urn:btih:E9F494159DC8CD9C799F3B1DB95D11EC0EE9BBB3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303977   (568488) от 23.05.2019
-
-Александр Зорич | Красные звезды (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владимир Пушкарев и Константин Уткин – два друга не разлей вода, любители опасностей и адреналиновых встрясок. И работа у них – под стать горячим натурам: экстремальные пожарники. Тушение аварийных реакторов, спасение людей из аномальных зон в секретных институтах…
-Казалось бы, человека на такой работе уже ничем не прошибешь. Но однажды после взрыва на Троицком термоядерном (   Читать дальше...   )Жанр: Героическая фантастика, Научная фантастикаПродолжительность: 10:30:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:692A28B149A9DF0CC9C9B0DCEE7BCE0F198EDAAA
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

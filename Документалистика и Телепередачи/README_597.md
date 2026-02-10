@@ -1,3 +1,29 @@
+###  Публикация: 1120989   (801197) от 01.04.2017
+
+Тростниковые жабы: Оккупация / Cane Toads: The Conquest (2010) BDRip3D [H.264/1080p][вертикальная анаморфная стереопара]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801197.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ядовитые тростниковые жабы были завезены в Австралию в 1935 году для борьбы с жуками, разорявшими сахарные плантации. С тех пор жабы размножились так, что стали представлять угрозу всей экосистеме страны. Передовые технологии позволили создать полный напряжения и юмора фильм с точки зрения жаб. Впервые человек имеет возможность с головой окунуться в мир этих загадочных (   Читать дальше...   )Жанр: Документальный, ВидовойРежиссер: Марк ЛьюисПеревод: Многоголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:23:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69892AFCE070AFF55EC4A62C47B84F5584B6E346
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120856   (801205) от 01.04.2017
 
 Русская Америка. Прощание с континентом (2017) DVB [H.264]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:155C7E36ADC89E25FF6888DC2F4B930FEE5AD444
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:155C7E36ADC89E25FF6888DC2F4B930FEE5AD444
 magnet:?xt=urn:btih:509FC1953409DEDD5755DD15ECB897109FD6A191
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:509FC1953409DEDD5755DD15ECB897109FD6A191
 magnet:?xt=urn:btih:EC7CC92EEC7600E9ECBB6F0129C13AA658674853
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:EC7CC92EEC7600E9ECBB6F0129C13AA658674853
 ```bash
 magnet:?xt=urn:btih:0B9D22A462EAC417CF886EB397119DB7AF23E19D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:0B9D22A462EAC417CF886EB397119DB7AF23E19D
 magnet:?xt=urn:btih:97568A9BAE1286B056253F73E0D27EE7CAD05496
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:97568A9BAE1286B056253F73E0D27EE7CAD05496
 ```bash
 magnet:?xt=urn:btih:3A844EB037C9E2617966818199E32B60BE5ABCB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:3A844EB037C9E2617966818199E32B60BE5ABCB4
 magnet:?xt=urn:btih:6811FB276252CC747C890F6C9DB6600498B97917
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:6811FB276252CC747C890F6C9DB6600498B97917
 ```bash
 magnet:?xt=urn:btih:B6B8C5D54B93B960EBB04CF6985D3BBEA8A77A38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:B6B8C5D54B93B960EBB04CF6985D3BBEA8A77A38
 magnet:?xt=urn:btih:C44354601F7FAED00EDE8CCCF77467CFD496F35B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:C44354601F7FAED00EDE8CCCF77467CFD496F35B
 magnet:?xt=urn:btih:2201C54C1ABDBAC647802ADC07A5B6504422AF91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:2201C54C1ABDBAC647802ADC07A5B6504422AF91
 ```bash
 magnet:?xt=urn:btih:F3557766051AB09CAD41804D5870C425385A0BFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:F3557766051AB09CAD41804D5870C425385A0BFC
 magnet:?xt=urn:btih:06E18F9C92424A6C7C53B8AFF97397CCC43D49BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:06E18F9C92424A6C7C53B8AFF97397CCC43D49BD
 ```bash
 magnet:?xt=urn:btih:ADA884E420E1999A9CC6AB6E2F98E3EBD8B50652
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:ADA884E420E1999A9CC6AB6E2F98E3EBD8B50652
 magnet:?xt=urn:btih:353CC39788FE978FA4160357433BE1BBD24DE95A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:353CC39788FE978FA4160357433BE1BBD24DE95A
 ```bash
 magnet:?xt=urn:btih:C66843FAD79C6865207563A1592504C53153BE2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:C66843FAD79C6865207563A1592504C53153BE2F
 magnet:?xt=urn:btih:56BE735301DBF94D7471A5EECF17E53A203D000C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:56BE735301DBF94D7471A5EECF17E53A203D000C
 ```bash
 magnet:?xt=urn:btih:047DCF064EAE6517F9919D50B86674B2BDE7BB84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:047DCF064EAE6517F9919D50B86674B2BDE7BB84
 magnet:?xt=urn:btih:E1570EF47D1DCCFAE4320E366998212E3842C004
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:E1570EF47D1DCCFAE4320E366998212E3842C004
 ```bash
 magnet:?xt=urn:btih:6599540EE8AD17517B6104E63EB14061525F5EE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:6599540EE8AD17517B6104E63EB14061525F5EE5
 magnet:?xt=urn:btih:1BB1C663AC05A1EB35E03DC180C5714F0E8D620F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:1BB1C663AC05A1EB35E03DC180C5714F0E8D620F
 ```bash
 magnet:?xt=urn:btih:6756BEDCB4AD46ED61F22ECE5712303C059B9925
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:6756BEDCB4AD46ED61F22ECE5712303C059B9925
 magnet:?xt=urn:btih:717FC89EB5FED37DF64CD428A74581A9D21A0FEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +621,8 @@ magnet:?xt=urn:btih:717FC89EB5FED37DF64CD428A74581A9D21A0FEE
 magnet:?xt=urn:btih:0C8CE4EAB6521F6030BC48291AD33E958D37A3C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +646,8 @@ magnet:?xt=urn:btih:0C8CE4EAB6521F6030BC48291AD33E958D37A3C9
 ```bash
 magnet:?xt=urn:btih:5092EB0D2BEAA183A3EE63D3AF4A58D4441BC997
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,29 +674,7 @@ magnet:?xt=urn:btih:5092EB0D2BEAA183A3EE63D3AF4A58D4441BC997
 magnet:?xt=urn:btih:7E03D47A5E638DD0C4FE32FEAEBE359C4BE7F9EE
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117671   (801975) от 31.03.2017
-
-Последние короли-воители Европы / Europe's Last Warrior Kings (2016) HDTVRip [H.264/720p-LQ] (3 серии из 3)
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это рассказ о трех королях, трех битвах и трех вторжениях, о 12-ти месяцах изменивших Британию. Английских король Гарольд II, герцог Нормандии Вильгельм и король викингов Харальд III. Все они встретились в череде кровавых битв, которые положили конец террора викингов. Тысячу лет назад они сражались во имя славы - за власть над небольшим островом на краю Европы. Двое (   Читать дальше...   )Телекомпания: Великобритания, BBCЖанр: Документальный, война, историяПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 3 х ~ 00:58:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADF947D77CD438CE44CC717C6057D63A6DD279C1
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.11.6 Stab
 magnet:?xt=urn:btih:32B25F8E11905811CADF563A4378E522EE480CA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Nik Collection by DxO 8.0.12 Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:55D08C215068E8043629DF2022733371F797FD21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Total Commander является самым мощным и стабильным
 magnet:?xt=urn:btih:E6C6D72F2BA2D91646165D280B4487DE8E1EB907
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ LibreOffice - офисный пакет с открытым исходным к�
 ```bash
 magnet:?xt=urn:btih:A47A27FDDA94C7C804E69B560B4FB3916ADB4913
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Balabolka 2.15.0.895 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:89E038A0D595B270396BC135622F1F5F7361347B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Ashampoo WinOptimizer 28.00.10 RePack (& Portable) by Dodakaedr [Ru/En]
 ```bash
 magnet:?xt=urn:btih:CBC122DD4F7845636CBD3E4C9C4EF54FF5C88629
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Music Collection - неплохая программа для создания �
 magnet:?xt=urn:btih:CDC138B22A00E62E27D6A9F756189CD8A7E45484
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ R-Wipe & Clean - программа для невосстановимого уд
 ```bash
 magnet:?xt=urn:btih:02FFE5ABCDA783DDDC6F08A6A310278EE57786E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ XYplorer – удобный многовкладочный файловый ме
 magnet:?xt=urn:btih:A489F07CD901C714A1E7CC2695E793629DADD932
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:A489F07CD901C714A1E7CC2695E793629DADD932
 ```bash
 magnet:?xt=urn:btih:0FCC76B2976A12FAED2D3E86D20660BC59D58D43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Genius Art: Image AI Generator v1.3.2 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:6327E297E41A1882BD0BC0F65F8BBFE40D252BCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:6327E297E41A1882BD0BC0F65F8BBFE40D252BCB
 magnet:?xt=urn:btih:1C4D47AAC8DE32B6E55C148E342C19D4E44588BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:F41BDD0AC0959FC61878CFDAB2F11208DA7DEDA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ KiCad – уникальный в своем роде программный п�
 magnet:?xt=urn:btih:50BFBC4D394311C43296CDC995D87A26A9AF6B63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Xplorer2 Ultimate - профессиональная версия небольш
 magnet:?xt=urn:btih:12B75DC21316D5587135BF206DAFF571AD14DE5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Ashampoo WinOptimizer - новая линейка пакета программ,
 ```bash
 magnet:?xt=urn:btih:5F833AA9D51FE047D3F8DB14D6CFE3623FCF76A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Windows Manager - это универсальная утилита для Micros
 magnet:?xt=urn:btih:0F27EA8670FC1191EE4E468C521688249B1EF630
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Any Video Downloader Pro - это приложение для Windows, кото�
 magnet:?xt=urn:btih:CD8D13AFFCB3B75E6C7911B66E36F032A1FEDFB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:8E169ADD957082861FA32D977D05EFD91AFD0A3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:A7355F86FEB428ABA5433A4E1C4543535429C0F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ Malwarebytes Windows Firewall Control - утилита, с помощью кот
 magnet:?xt=urn:btih:1DCB315A23165668FEC75D5005E4718424385029
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ foobar2000 - это аудиоплеер, подкупающий своим ве
 ```bash
 magnet:?xt=urn:btih:A5B3986A3E7DBA6F549500779ACC73AC5B5D928C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ updated_april_2025_x64_dvd_ea86301d.iso.
 magnet:?xt=urn:btih:8EAD1CC9F16227DA0C035159FC5EACF31313586B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ AnyDesk 9.5.2 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:44858037BFC5AFF1F618923B408A818508E399FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ updated_april_2025_x64_dvd_ea86301d.iso.
 magnet:?xt=urn:btih:989F8E01B46AFC7EC99EA1DFFA487C3A85085ADE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ Abelssoft SSD Fresh - если вы счастливый обладатель SS
 ```bash
 magnet:?xt=urn:btih:98C1925AF9D65E04886AEDDAFA8C49F717AC22BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

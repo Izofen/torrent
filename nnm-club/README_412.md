@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@
 magnet:?xt=urn:btih:7788D737A9D79CF1BB15D27C5E3A535AEFC47AE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:7788D737A9D79CF1BB15D27C5E3A535AEFC47AE3
 ```bash
 magnet:?xt=urn:btih:2BC9BC071FE6A58A962C575A0F11857EDA4EF2AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:2BC9BC071FE6A58A962C575A0F11857EDA4EF2AD
 magnet:?xt=urn:btih:651EE2E50EBE67CC10ED6F3B5C4BFB8D2F13CAF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:651EE2E50EBE67CC10ED6F3B5C4BFB8D2F13CAF3
 ```bash
 magnet:?xt=urn:btih:937F598E8FFFF1E92AB373D0EFAEE34E4B519F1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:937F598E8FFFF1E92AB373D0EFAEE34E4B519F1A
 magnet:?xt=urn:btih:F992EAB79E6472CE91B897F45FAE56BBA9449317
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:F992EAB79E6472CE91B897F45FAE56BBA9449317
 magnet:?xt=urn:btih:E7040BE9A764CAA19B3C7C303A7AEBB62A9A278C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ Grim Dawn (2016) [Ru/Multi] (1.2.1.6/dlc) Repack Let'sРlay [Complete Collection
 ```bash
 magnet:?xt=urn:btih:C12A4D82CD935960356DCE4CF677FCEFBD14A79E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:C12A4D82CD935960356DCE4CF677FCEFBD14A79E
 magnet:?xt=urn:btih:F0CC75DDD999C57E0C85D6712A98F5C4970C7F39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Kingdom Ascension - это средневековая военная страт�
 ```bash
 magnet:?xt=urn:btih:AF95FFD0AE10EA4AF09A457575BFFFEC1A0C4944
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Unfinished Business - это новое самостоятельное прик�
 magnet:?xt=urn:btih:837A54AB11914610173A116768CD5B519140CFA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:837A54AB11914610173A116768CD5B519140CFA7
 ```bash
 magnet:?xt=urn:btih:5D58363BB3FF56BE8846EDFEFEB470DF97D6159E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:5D58363BB3FF56BE8846EDFEFEB470DF97D6159E
 magnet:?xt=urn:btih:B956EAFD61B41CB1B9E4488831987BF2BDC2748A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ After Effects — это ведущая в отрасли программа д�
 ```bash
 magnet:?xt=urn:btih:2CD0BB978EA2C260B6D9761D76243F758A363B73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ Strike Mission (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 magnet:?xt=urn:btih:E5E954A06A8511A35F4C61F9452760D572500A82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Office Installer - программа предназначена для online �
 ```bash
 magnet:?xt=urn:btih:0F6D8AAABA51A0FD6B4CF60C62BEE58FB0B702E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:0F6D8AAABA51A0FD6B4CF60C62BEE58FB0B702E4
 magnet:?xt=urn:btih:AA88C21BE6A8EFC48EC77FD64AF0E2147305E1D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:AA88C21BE6A8EFC48EC77FD64AF0E2147305E1D9
 ```bash
 magnet:?xt=urn:btih:0BE532323E79B4AABF600BB1AA31B54783FDFAFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ Xeno Rangers (2025) [Ru/Multi] (1.0.19B) Repack FitGirl
 magnet:?xt=urn:btih:A865B98E5459FB83EF6579A991FDE8F73BF18198
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:A865B98E5459FB83EF6579A991FDE8F73BF18198
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:A865B98E5459FB83EF6579A991FDE8F73BF18198
 magnet:?xt=urn:btih:521B31AB994D0028EDE83D3B8C0E66FA597BA1AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ MAXON CINEMA 4D – простая в использовании професс�
 ```bash
 magnet:?xt=urn:btih:22A702EF2E4B2953229EF45E055C168EDAFFBB41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ The Danger Zone - постапокалиптический 2.5D шутер с в
 magnet:?xt=urn:btih:6D1342C9D4D2B05FB7B6C69A0A7CCB503A52197F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ Die in the Dungeon (2025) [Ru/Multi] (112.0f3) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:B7021BD61C5A304CBBC6DB52D8E1095D7755861C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ magnet:?xt=urn:btih:B7021BD61C5A304CBBC6DB52D8E1095D7755861C
 magnet:?xt=urn:btih:E2F50D3B4D7EC14AC2FA184248CEFD714C7EFEF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:E2F50D3B4D7EC14AC2FA184248CEFD714C7EFEF6
 ```bash
 magnet:?xt=urn:btih:0974E2519D3EE364512B56C1E3FCA17FDF547E19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

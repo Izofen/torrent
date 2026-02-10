@@ -20,6 +20,8 @@ RapidWeaver отлично подойдет тем, кто ищет ПО для 
 magnet:?xt=urn:btih:0D60A38D2A432C0E5500AD5AE232987BE2BF35D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ macOS Monterey открывает новые возможности для об�
 magnet:?xt=urn:btih:FCDB3359185E519BB6B72679FD48189DB7D3431F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ System Toolkit - приложение «все-в-одном» для монит
 ```bash
 magnet:?xt=urn:btih:411AEFF63FF2E057DD91C0A613FECF9B35FB2E69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Davinci Resolve Studio 18.0 Beta 1 U2B [Multi/Rus]
 magnet:?xt=urn:btih:D1E14CEC7250AFA53B713B26F33B56EBB3EDA123
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:D1E14CEC7250AFA53B713B26F33B56EBB3EDA123
 ```bash
 magnet:?xt=urn:btih:0EA1738C51175958B4B31C7B4AB5C606E3228ACD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ XYplorer – удобный мультивкладочный файловый м
 magnet:?xt=urn:btih:BF125F1B32482E068C0AF7FC020E9B757E781FC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ ScrollNavigator - программа, которая поможет вам пр�
 ```bash
 magnet:?xt=urn:btih:49F9C26EDB42669CE526E88B87D0CD5EC6754C1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ SRWare Iron 111.0.5650.0 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:69A3AB8F61D005D011B4D19F17E5216942A15CA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Cisdem DVD Burner предлагает простое и элегантное р
 ```bash
 magnet:?xt=urn:btih:5A21AF9F608CD3C92168FFA949C1D34280A3B121
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ FastFlix - это простой и дружественный графичес�
 magnet:?xt=urn:btih:BF9038FCA663A816C7CA81E604614BF5CE1862E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ RedNotebook - это простое GTK+ / Gnome приложение напис
 ```bash
 magnet:?xt=urn:btih:7F9CBF3AE117EE1C749F5C95CE8E7F2A30E58852
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Folders Factory — сделай уникальными свои папочки 
 magnet:?xt=urn:btih:873743F173C749C352F3348F39AB102199A9A658
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 ```bash
 magnet:?xt=urn:btih:87A7C29C736DF999603F1E5F0D3B326E13A36AEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ NIUBI Partition Editor – программа для простого и над�
 magnet:?xt=urn:btih:F5E2EBBA871A8E51A15C9A21CFAA89872050D700
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ Pixea — это программа для просмотра изображен
 magnet:?xt=urn:btih:A416B986E287E4073CB1424A7F313A5ADD48F455
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Smart Defrag - дефрагментатор, позволяющий довест
 ```bash
 magnet:?xt=urn:btih:6ED135B1EBEFB596BD543D15CE6CC6F46F4E939D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ RedNotebook - это простое GTK+ / Gnome приложение напис
 magnet:?xt=urn:btih:7E06AE78E1378F64B4073A7609F5C5B3819EA076
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ DiskCatalogMaker  - простая утилита для управления и
 ```bash
 magnet:?xt=urn:btih:E7A5F1D09ABCF2B5CA34976E62E88763E9DE0912
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ QownNotes – менеджер заметок, позволяющий четко
 magnet:?xt=urn:btih:75AD4D66F6134D4623A5D5A5D2CE7605109C7B87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ Topaz Video Enhance AI – это совершенное новое решени
 ```bash
 magnet:?xt=urn:btih:3FEADD5ADE4DD051D8DF8897B37162D599BC083A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ PDF Reader Pro - это приложение для редактирования
 magnet:?xt=urn:btih:A9422908322BE56FBD09A2AC4B0B665EB9DCB781
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ OCCT 12.0.0.b9 Portable [En]
 ```bash
 magnet:?xt=urn:btih:7B7A1856E69D46957964CB98359F81BF620C8035
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ Author 6.7 [Multi]
 magnet:?xt=urn:btih:1899E270B1795FDB9FC311F72D891218104B62F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Spotify имеет громадный каталог музыки, поддер�
 ```bash
 magnet:?xt=urn:btih:D422BC0161F4679AA411403B4D688FAD0B8D92F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ CudaText — абсолютно бесплатный мультиплатфор�
 magnet:?xt=urn:btih:75BC276B56BB5428F1D189A90FE33C37C525159C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ RAR Extractor Max унаследовал преимущества RAR Extractor 
 ```bash
 magnet:?xt=urn:btih:FF45643EF9EC4E60E9FF641AC210F1D5CE89C626
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

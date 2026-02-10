@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:A04931FCEA6273BCED4C31DFAD4CDE02B52C9C90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Revenge of the Savage Planet - это оптимистичный, сатирич
 ```bash
 magnet:?xt=urn:btih:76861127BB8793843D0610F56FF70CED85813968
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ ReSetna (2025) [Ru/Multi] (1.7.1) Repack Let'sРlay
 magnet:?xt=urn:btih:FE3F2BDE445AF903FDDC9D7177C5AB2E9D2BF30F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:FE3F2BDE445AF903FDDC9D7177C5AB2E9D2BF30F
 ```bash
 magnet:?xt=urn:btih:999507920B57C436BB2BF16B8A3B1C0148A8B3C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:999507920B57C436BB2BF16B8A3B1C0148A8B3C4
 magnet:?xt=urn:btih:0E82145E835BA3793D280A04C219B370E7B419CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:0E82145E835BA3793D280A04C219B370E7B419CC
 ```bash
 magnet:?xt=urn:btih:4AF834E0702630A7D0F251D5831A75ACCB9CB814
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:4AF834E0702630A7D0F251D5831A75ACCB9CB814
 magnet:?xt=urn:btih:74930378483E7A54C77EA8A9F369A6A60053E789
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:74930378483E7A54C77EA8A9F369A6A60053E789
 ```bash
 magnet:?xt=urn:btih:33BE5A2D242380EED4EB45F23968EC9BBEC19483
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Achilles: Survivor (2025) [Ru/Multi] (1.2.9988/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:8E2EB4F3592767065158BC86C355B1E6A6152BFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ ION Shift это хардкорный экшн-платформер с мгно�
 ```bash
 magnet:?xt=urn:btih:F5539FF722C741D5CEC089514930EC2970CF00FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:F5539FF722C741D5CEC089514930EC2970CF00FC
 magnet:?xt=urn:btih:489E6D854408FD7A8ACC125E72321DCE3BCAC80D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:489E6D854408FD7A8ACC125E72321DCE3BCAC80D
 ```bash
 magnet:?xt=urn:btih:62FD7FFFB0C7029F10C8BBA4B40199592EDA4514
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:62FD7FFFB0C7029F10C8BBA4B40199592EDA4514
 magnet:?xt=urn:btih:3E7A255EC1712C082368B74843F738BCCDAF01EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:3E7A255EC1712C082368B74843F738BCCDAF01EE
 magnet:?xt=urn:btih:746AA6B4D580F2B37AA3B883DCAFF0B5647F5361
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:746AA6B4D580F2B37AA3B883DCAFF0B5647F5361
 ```bash
 magnet:?xt=urn:btih:238786B52D5400DAB04A03705059C5979B361A67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:238786B52D5400DAB04A03705059C5979B361A67
 magnet:?xt=urn:btih:2FFB2119D96AF7CDE18FB10E37AA1A472ABA10CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Pharoah Sanders - Karma (1969) SHM-SACD, Japanese Edition, Reissue, Remastered, 
 ```bash
 magnet:?xt=urn:btih:3689D61FD3B408DD354A3596498D0C82CB95FA3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:3689D61FD3B408DD354A3596498D0C82CB95FA3E
 magnet:?xt=urn:btih:BDC378002D873DC5C91AAB258317D392AB674DE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:BDC378002D873DC5C91AAB258317D392AB674DE4
 magnet:?xt=urn:btih:C15D068831D4144239C7029DE644E5D13AB9FAA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:C15D068831D4144239C7029DE644E5D13AB9FAA6
 ```bash
 magnet:?xt=urn:btih:91FCE9C32B56A8FE96E4AC795868D0B8B2BD9D1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:91FCE9C32B56A8FE96E4AC795868D0B8B2BD9D1C
 magnet:?xt=urn:btih:3132B2DDD497F212A2FF9BC4F7F655A032A59D81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:3132B2DDD497F212A2FF9BC4F7F655A032A59D81
 ```bash
 magnet:?xt=urn:btih:62E87F0C5FC84E4E73127F9EA7F71C2323339341
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:62E87F0C5FC84E4E73127F9EA7F71C2323339341
 magnet:?xt=urn:btih:DCB10DD4E27F7FEF1418BAE2EE91A9D9DF3761FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:DCB10DD4E27F7FEF1418BAE2EE91A9D9DF3761FB
 ```bash
 magnet:?xt=urn:btih:4735899E3DF9D6ADEE2B1783723C1A405F2D798F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:4735899E3DF9D6ADEE2B1783723C1A405F2D798F
 ```bash
 magnet:?xt=urn:btih:1474F14A4BFDBAF8174E747FD756BB944326BCB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +682,8 @@ Hypocrisy - Virus (Remaster 2025) (2005) Remastered, 2025, Nuclear Blast [FLAC 2
 ```bash
 magnet:?xt=urn:btih:CE96FE0C93290B22C39F8B0F61539D9BB134B3AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

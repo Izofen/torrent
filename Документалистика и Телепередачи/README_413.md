@@ -1,3 +1,29 @@
+###  Публикация: 1556391   (559592) от 09.06.2022
+
+Вечер с Владимиром Соловьевым (08.06.2022) IPTVRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559592.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Мы ставили задачу сделать программу для умного, неравнодушного зрителя, которая позволит обсуждать актуальные проблемы в разных форматах: от интервью "один на один" до "круглого стола". Надеемся, она будет такой же острой, как политическое ток-шоу "Поединок". Но если в "Поединке" сталкиваются две полярные точки зрения, (   Читать дальше...   )Телекомпания: РоссияЖанр: Политическое ток-шоуПродолжительность: 02:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA8A1C98EA23A6F84CF5F788576EAC33FE9EB967
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1302508   (559636) от 28.05.2019
 
 NGW: Просторы Америки / America's Wild Spaces (2018) HDTVRip [H.264/1080p-LQ] (серии 1-6 из 11) (Обновляемая)
@@ -18,6 +44,8 @@ NGW: Просторы Америки / America's Wild Spaces (2018) HDTVRip [H.2
 ```bash
 magnet:?xt=urn:btih:59168FA6557C24584003CE387C56BCF9362E376D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:59168FA6557C24584003CE387C56BCF9362E376D
 magnet:?xt=urn:btih:1BB47C374873A5FE057EB2AA72BEA435B507A563
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:1BB47C374873A5FE057EB2AA72BEA435B507A563
 ```bash
 magnet:?xt=urn:btih:22AE696AF25A202ABDA7B3613FD2493029E3CD11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:22AE696AF25A202ABDA7B3613FD2493029E3CD11
 magnet:?xt=urn:btih:D32C04956B58995088F287B753B467A02F7CE0E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:D32C04956B58995088F287B753B467A02F7CE0E0
 ```bash
 magnet:?xt=urn:btih:851FB362FDB5F11ECBC97C3CC767F26F158C7195
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:851FB362FDB5F11ECBC97C3CC767F26F158C7195
 magnet:?xt=urn:btih:78048B0D4130CA932861C0E47CEB97A3FD7AB392
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:78048B0D4130CA932861C0E47CEB97A3FD7AB392
 ```bash
 magnet:?xt=urn:btih:289120D5AE9CF0B9D41CB16A41FA0B5B66F666FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:289120D5AE9CF0B9D41CB16A41FA0B5B66F666FD
 magnet:?xt=urn:btih:79A6055D4012C3FC8015D8FF5B164D4125203FF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:79A6055D4012C3FC8015D8FF5B164D4125203FF6
 ```bash
 magnet:?xt=urn:btih:48B8353549F198F64BB7DAA2436FE5AA7082EE11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:48B8353549F198F64BB7DAA2436FE5AA7082EE11
 magnet:?xt=urn:btih:23291F5FC85AEBA4B0B066FB2A542A53C78DD1DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:23291F5FC85AEBA4B0B066FB2A542A53C78DD1DA
 ```bash
 magnet:?xt=urn:btih:8AEF1345F3D40BFD6B7AAE28D2C679C67885743C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:8AEF1345F3D40BFD6B7AAE28D2C679C67885743C
 magnet:?xt=urn:btih:B344BBBD1D049350F390D24CBC1F308943889AD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +356,8 @@ magnet:?xt=urn:btih:B344BBBD1D049350F390D24CBC1F308943889AD8
 ```bash
 magnet:?xt=urn:btih:6A33056001795C7CB556C8AE211E465FD6374A3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:6A33056001795C7CB556C8AE211E465FD6374A3A
 magnet:?xt=urn:btih:784A82B25B267B5040E0F5337455DB6CDFC65966
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +409,8 @@ magnet:?xt=urn:btih:784A82B25B267B5040E0F5337455DB6CDFC65966
 magnet:?xt=urn:btih:407AA93D53957C9C35D813AEC74532B28E6F9E69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +434,8 @@ magnet:?xt=urn:btih:407AA93D53957C9C35D813AEC74532B28E6F9E69
 ```bash
 magnet:?xt=urn:btih:93F095BF60D74A250747C16BC7F3CCA11862E381
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:93F095BF60D74A250747C16BC7F3CCA11862E381
 magnet:?xt=urn:btih:909D514E42DDCA5E4B1FC4CB11970B702B3FA60E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:909D514E42DDCA5E4B1FC4CB11970B702B3FA60E
 magnet:?xt=urn:btih:2D1E7565AD3A83384A0B31281ADD60DA04DA4E6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +513,8 @@ magnet:?xt=urn:btih:2D1E7565AD3A83384A0B31281ADD60DA04DA4E6F
 ```bash
 magnet:?xt=urn:btih:F0DEDEDD3099FFAFCCC75C270FE82850DCEEC4F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:F0DEDEDD3099FFAFCCC75C270FE82850DCEEC4F8
 magnet:?xt=urn:btih:B5BED548228225B34CF54ABA0DCD096844A7F8F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:B5BED548228225B34CF54ABA0DCD096844A7F8F9
 ```bash
 magnet:?xt=urn:btih:8A8AC59F0E46D26BA61E34B3C36C89C15AC96C1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:8A8AC59F0E46D26BA61E34B3C36C89C15AC96C1F
 magnet:?xt=urn:btih:1A26E60552333B6E65566007B6084DAF5212BB2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +619,8 @@ magnet:?xt=urn:btih:1A26E60552333B6E65566007B6084DAF5212BB2C
 magnet:?xt=urn:btih:CDFB36C20ECFD75F49CA619D6903A5D11FE2CB7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +644,8 @@ magnet:?xt=urn:btih:CDFB36C20ECFD75F49CA619D6903A5D11FE2CB7D
 ```bash
 magnet:?xt=urn:btih:34FA1B1A1D8B67F399E98D3F83B5DB81051F4310
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,31 +673,7 @@ magnet:?xt=urn:btih:34FA1B1A1D8B67F399E98D3F83B5DB81051F4310
 magnet:?xt=urn:btih:B5BC0550B4F8A758D9D2A28A63166F1A2E7965AD
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 4727   (561287) от 27.05.2019
-
-Советская империя. Братская ГЭС (2005) TVRip
-
->>Документалистика и Телепередачи
->>Кинолетопись Страны Советской
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия фильмов о грандиозных стройках и достижениях Советского Союза.
-Новый фильм Елизаветы Листовой посвящен созданию самой знаменитой советской электростанции - Братской ГЭС.
-Ее воспел в своей поэме Евгений Евтушенко, о ней написали свои лучшие песни Александра Пахмутова и Николай Добронравов, на нее считали честью поехать лучшие артисты страны, ее мечтали строить (   Читать дальше...   )Производство: РоссияЖанр: ДокументальныйПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F9AE0CE9B45CFE185C87D7971691A7751C1AC58
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

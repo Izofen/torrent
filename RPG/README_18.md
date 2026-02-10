@@ -19,6 +19,8 @@ Noob - The Factionless (2023) [Multi] (20250124) License GOG
 magnet:?xt=urn:btih:82F498CAECA85A964941E96DC25CF8C08C3A7540
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Saturn (2024) [Ru/En] (1.35.02.11.16461/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:EC1C4AE6DA055C67695251DE76C73FC1786E2D9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.5.89.0) Repack Wanterlude
 magnet:?xt=urn:btih:0BDC4EF30B441FD6651B3EC9D648F2AAB3330406
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Cardfight!! Vanguard Dear Days 2 (2025) [Multi] (1.0.2/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4CC061F347DD32792916CF56C43FD632B9801119
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Tails of Iron – это приключенческая ролевая игра 
 magnet:?xt=urn:btih:A5620DCA3908A6995FB293D31F41BC7B42F8F305
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Drova - Forsaken Kin - это пиксельное экшен-RPG, вдохно�
 ```bash
 magnet:?xt=urn:btih:19D6A1F434522E96B3D978324A95C6EB9C35DA71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Techno Banter (2025) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:892F1FF37C9A6E998AFF0EA133046CADF513516F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Sword of the Necromancer: Resurrection (2025) [Multi] (1.0.3) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5297F8AA90D946071E0B58551F5B6EACB68A8DEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Keep Driving (2025) [En] (1.0.0.1) Repack FitGirl
 magnet:?xt=urn:btih:A55854612E0B7DD22B63BADC4B1720AE182E8A8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Sovereign Syndicate (2024) [Ru/En] (1.1.34) License GOG
 ```bash
 magnet:?xt=urn:btih:D62CFA43B67FC98C6573FC87F070E9A1C9C7DCFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Kingdom Come: Deliverance II - захватывающий сюжетный ро�
 magnet:?xt=urn:btih:CF6D4DC88975CFCB78323700F5459A0C2E343009
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.5.89.0) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:AB0BB22E8B3D9AA13768A224824E71637AAF99A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Metal Slug Tactics (2024) [Multi] (1.0.3c) License GOG
 magnet:?xt=urn:btih:BE2AF9314D4319522C50C3F3194B45D3F1AC1F46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Teenage Mutant Ninja Turtles: Splintered Fate / Черепашки-ниндзя:
 ```bash
 magnet:?xt=urn:btih:A4CEB9ACC7259FA290C4AFB2014436EFBCF78B4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Teenage Mutant Ninja Turtles: Splintered Fate (2024) [Ru/Multi] (1.7.0/dlc) Repa
 magnet:?xt=urn:btih:1C4998F0B8CE0A4AFE37B52CA885FCC89A85C6BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Tails of Iron 2: Whiskers of Winter (2025) [Ru/Multi] (1.14327/dlc) Repack FitGi
 ```bash
 magnet:?xt=urn:btih:9DDE285ACD670B6163C065CACC91E81F5B0467CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Asterigos Curse of the Stars (2022) [Ru/Multi] (01.09.0000/dlc) Repack Let'sРla
 magnet:?xt=urn:btih:EDE98BCA9A86891E6A8DFB6BEFD6C8F5DB93DE9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Cryptical Path (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:409A45D4CA2D301FACC09E6223A8965BC5C7E7FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ DeTechtive 2112 (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:FF06046CCFD47C867C91686901517ADC73BF729C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The Stone of Madness – тактическая стелс-игра в реал�
 ```bash
 magnet:?xt=urn:btih:924510DF7DB66937B3EBA977E002BA870F627461
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Final Fantasy VII (7) Rebirth (2025) [Multi] (build 17035252) Scene FAiRLIGHT
 magnet:?xt=urn:btih:219960B356BAE0392334AF57289691A0F13C897A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ DeTechtive 2112 (2025) [Ru/Multi] (Build 17159957) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:523A4C3DDF41FE6A1B7565A6E7DC0D4D78FA99B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ DeTechtive 2112 (2025) [Ru/Multi] (Build 17159957) Scene Rune
 magnet:?xt=urn:btih:9DBC6983C416301835136D888EE27062C0EED0B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ VED - это сюжетное RPG, сочетающее вручную нари�
 ```bash
 magnet:?xt=urn:btih:1EDE5E0581E0CBF12C05B79EC4AB95F97B31F69C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.007.28161) Repack FitGirl
 magnet:?xt=urn:btih:B905CE65206A129619F6A82BB6A0BB8D86FE1EF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (1417829 Build 17026604/dlc) Repack 
 ```bash
 magnet:?xt=urn:btih:D672413B58051335D91ECEBDC8BC672B833A293D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

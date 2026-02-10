@@ -19,6 +19,8 @@ Dragon Ruins II (2) (2025) [En] (250701) License GOG
 magnet:?xt=urn:btih:74379C3E31E9386BD5762DCC21F7C6086B1E34E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ GearCity – хардкорный экономический симулятор 
 ```bash
 magnet:?xt=urn:btih:6AA4B7EC245AE5A950CEA988E71210089EC111D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Edge of Allegoria - это пошаговая ролевая адвенчу�
 magnet:?xt=urn:btih:67BE1CAE0631FF572A97E455B4B3C4D7F38067DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Quasimorph, захватывающая мрачная пошаговая рол�
 ```bash
 magnet:?xt=urn:btih:F4270B9304CD956003641C9D2CA517778F97A9F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Monster Prom 2: Monster Camp - многопользовательский сим
 magnet:?xt=urn:btih:5EC2C079DF7BD3DF8EB18F66FA83A877E4BDA09A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Barony повествует об обретшем вечное существо�
 ```bash
 magnet:?xt=urn:btih:9F6D81344E4B13F3EE61A09F2EB79A640E53AC7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Figment 2: Creed Valley - насыщенное приключение, дейс�
 magnet:?xt=urn:btih:B9F4C981B6FA4D34FC426B167882088A35DB4137
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Wizordum - это ретро-шутер от первого лица, дейст
 ```bash
 magnet:?xt=urn:btih:740A347639D948478A3DBF563CE147D5A99D15B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Scrapnaut - это командно-административная игра н
 magnet:?xt=urn:btih:45A723F167339B6EE7C1F52FB98685319EC6F59F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Eridani Survivors (2025) [Multi] (12.08.2025) Repack AIexandro
 ```bash
 magnet:?xt=urn:btih:93FA2B214C710C08DF6573C9DB22D1475C2CC25B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.08.12.09.11/dlc) Repack Wan
 magnet:?xt=urn:btih:A0C560C51B13BE5023BF5E2E0D254C6E5B318C5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (1.710170/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:50619397B16D9970F03CF1EFD28F91D434822CA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Pinball Spire (2024) [Ru/Multi] (1.02.03) License GOG
 magnet:?xt=urn:btih:C4E2B757548BE4ABA850918C28F7C2DBFA82803F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Ys X (10): Nordics (2024) [Multi] (1.0.9/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:416A6A58676340F380894AA28F96677E69D5EE58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Call of Duty Modern Warfare 3 (2023) - ремастер третьей част�
 magnet:?xt=urn:btih:B260A2A6247528F7A655F137717DF3772CC7DAFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Tiny Witch (2023) [Ru/Multi] (1.1.3) License GOG
 ```bash
 magnet:?xt=urn:btih:159C47982950E702BD207BBBB28F02E24A476A66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Call of Duty Modern Warfare 3 (2023) - ремастер третьей част�
 magnet:?xt=urn:btih:D63818089ADAE38FF722DBF665F4187251E76F5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Tennis Manager 25 ставит геймера во главе теннисной
 ```bash
 magnet:?xt=urn:btih:4833617D2727AFACC761F886ECA4FB63BB966709
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ CraftCraft: Fantasy Merchant Simulator отправляет геймеров в 
 magnet:?xt=urn:btih:0D85DBF328D5D1AE18015DE3AE6788BBF95D3996
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Impaler Gold - это динамичный минималистичный аре
 ```bash
 magnet:?xt=urn:btih:D605355E5FBA1591748321E7648B07A435D3D559
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Ys: The Oath in Felghana (2012) [En] (2020.03.11) License GOG
 magnet:?xt=urn:btih:3C8379CA255157A63BA762532585A0BC0048F526
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ The Last Spell (2023) [Ru/Multi] (1.2.20.2/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:F633813A2B6FE6DB6B2A63AE902B8970875A7205
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Vagrus - The Riven Realms – ролевая игра с элементами с
 magnet:?xt=urn:btih:B2B3B59427F43AF0B1AF23B14E3F9160E23D5AA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Witchfire - это тёмный фэнтезийный ролевой шутер
 ```bash
 magnet:?xt=urn:btih:490A3B0D01C7892222449B2E368F4406721B8A45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Rail Route – экономический симулятор, в котором 
 magnet:?xt=urn:btih:1AC48BD97ABB4331240F182FC917581F2D4102A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Field of Glory: Kingdoms - это необычная стратегия, поз�
 ```bash
 magnet:?xt=urn:btih:CF3A74F5C6B1D4596599403163E417DD866A8EB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

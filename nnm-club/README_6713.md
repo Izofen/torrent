@@ -22,6 +22,8 @@ Hephaistos - Medusa (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock>
 magnet:?xt=urn:btih:A63EFA8139E6ED56852804BD9E6CF0A1898DD032
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Topaz A.I. Gigapixel — это первое и единственное при�
 ```bash
 magnet:?xt=urn:btih:F2CDA87DA924006894A21382186F35AB33D63362
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Aether - 2 Releases (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Psych, Stoner, Sl
 magnet:?xt=urn:btih:B47B58429289071916F14819D57DE45F4418D0A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:B47B58429289071916F14819D57DE45F4418D0A6
 ```bash
 magnet:?xt=urn:btih:5701AACC1B958EDD3E5E1094BDA4E80A9284337B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ GrandTotal прекрасно работает в сочетании с TimeLog.
 magnet:?xt=urn:btih:DD34BEB0534119FA097165F518A52CCCC6A08A95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 ```bash
 magnet:?xt=urn:btih:0A1F53B135F9700509D9E1CD7D3A6BB036F54B76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ Lutalo - Again (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative rock>
 magnet:?xt=urn:btih:0588FA72DE72143DA6D84FFECB8E151A590FC5C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:0588FA72DE72143DA6D84FFECB8E151A590FC5C4
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:0588FA72DE72143DA6D84FFECB8E151A590FC5C4
 magnet:?xt=urn:btih:E17F62E667721F210AAD91EAF9309FECDFC6A3EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ PlainPad - это редактор для простых текстовых фа
 ```bash
 magnet:?xt=urn:btih:A3CB5EFA2C7D20E689070D0F8F75B05311638064
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ Walrus - Black Cat (2023) EP [FLAC|24/48|tracks|WEB-DL] <Stoner Doom Metal>
 magnet:?xt=urn:btih:0302607713325C7B0B422C505D2A00298F91DB4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:0302607713325C7B0B422C505D2A00298F91DB4A
 ```bash
 magnet:?xt=urn:btih:911139C9DBA6B53B79AC0D4CC2617251800B605A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:911139C9DBA6B53B79AC0D4CC2617251800B605A
 magnet:?xt=urn:btih:6A2BFBE5610AC8D9AF9A500F9DEC6A6F2BE7F7A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:6A2BFBE5610AC8D9AF9A500F9DEC6A6F2BE7F7A8
 ```bash
 magnet:?xt=urn:btih:18D6AD86637DA32781A57391109D7C4BBF1F420F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:18D6AD86637DA32781A57391109D7C4BBF1F420F
 magnet:?xt=urn:btih:272AE9C9B4A7B540385E6CA3F7B6DB5C505800A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:272AE9C9B4A7B540385E6CA3F7B6DB5C505800A6
 magnet:?xt=urn:btih:7E3439168106D861BEE0E9BF303482CE1F493FD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:7E3439168106D861BEE0E9BF303482CE1F493FD6
 ```bash
 magnet:?xt=urn:btih:A944DDD0ACB6FBE865F3264EA57D62717AD65A5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ Magnavolt - Stellar Gun (2023) [FLAC|Lossless|WEB-DL|tracks] <Darksynth, Synthwa
 magnet:?xt=urn:btih:EB3C7E17FF98738F80DAC5956C3FD844A3A4648D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ magnet:?xt=urn:btih:EB3C7E17FF98738F80DAC5956C3FD844A3A4648D
 ```bash
 magnet:?xt=urn:btih:821C4EA3ECC96C3685246B23FBF054FF91A53295
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ Text Editor Pro 27.5.0 + Portable + Bonus [Multi/Ru]
 magnet:?xt=urn:btih:E0893A87545BD44AA9CBC47C032EB4FCA410D699
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ magnet:?xt=urn:btih:E0893A87545BD44AA9CBC47C032EB4FCA410D699
 magnet:?xt=urn:btih:4E913BFC9BA6E35A996608F95D21CD361D48BB02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:4E913BFC9BA6E35A996608F95D21CD361D48BB02
 ```bash
 magnet:?xt=urn:btih:71F1A8AF11B9DEDC9AB85663BF13846258287D1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +607,8 @@ magnet:?xt=urn:btih:71F1A8AF11B9DEDC9AB85663BF13846258287D1A
 magnet:?xt=urn:btih:1498BF0207C236AE8A6B917B4DBB842A4274E503
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ magnet:?xt=urn:btih:1498BF0207C236AE8A6B917B4DBB842A4274E503
 magnet:?xt=urn:btih:A452C716F3B41107CAD89BF802C334E93A517052
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ magnet:?xt=urn:btih:A452C716F3B41107CAD89BF802C334E93A517052
 ```bash
 magnet:?xt=urn:btih:B2AEDABC80095A230E7026357C80D7B95B75B0C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +688,8 @@ Norther (сильный северный ветер) — мелодик дэт-�
 ```bash
 magnet:?xt=urn:btih:908F32F299D493744B4B5C15CD5B743391BD093A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

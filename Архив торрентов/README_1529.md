@@ -19,6 +19,8 @@ TeraCopy – утилита улучшает процесс копировани
 magnet:?xt=urn:btih:154706893C3FAB707A3E4FDFF939725698E9D2C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ KOMPLETE KONTROL — это простой в использовании инс�
 ```bash
 magnet:?xt=urn:btih:2C26E18AC198F248276C401FAC237850FE46FC35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Downie поддерживает более 1,000 популярных сайто
 ```bash
 magnet:?xt=urn:btih:0A2859AD622DCC1B59D19CBB40D949A1375282C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ _updated_july_2022_x64_dvd_fbe23843.iso
 magnet:?xt=urn:btih:C77EEAC1CEB69936CCA6E422F2C697ACE2C0DB9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Mimestream сочетает в себе мощь macOS с расширенным
 magnet:?xt=urn:btih:CF88403D8C2EDCA4928BB08ECFE4F275D10F8664
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ FinePrint - многофункциональный драйвер для при�
 ```bash
 magnet:?xt=urn:btih:AE12BBA9860927072547096089350C7AFAA4017E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ TreeSize Pro 8.6.0.1757 (x64) + Portable [Multi/Ru]
 magnet:?xt=urn:btih:851A400AF166EFAB2D7BF276F988AE68F6181357
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:DA9B4373D619C1A09F3BA5533622A0BDD7DC5956
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ PSIM - программа для проектирования и моделир�
 magnet:?xt=urn:btih:AECEB9EC924E35B75A4FB113A1A18F0F1F962155
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:AECEB9EC924E35B75A4FB113A1A18F0F1F962155
 magnet:?xt=urn:btih:6F28C2C7E48F828814542F8E8CC98BE1BC6C7C5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:AB368CB8D53F41FBCDE950631DC1BC8A2A8B88D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ WinSCP, это FTP и SFTP клиент с открытым исходным к�
 magnet:?xt=urn:btih:FE2540B69E19ACB05AD8F9BDD10DE48CF18CD183
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ Microsoft .NET 7.0.8 Runtime [Ru/En]
 magnet:?xt=urn:btih:E8DB0746A233112F27B360EE2D8E17A745D977EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Slimjet 39.0.5.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D931E31614A91E12C8CF6B5BD05E36767A0E0058
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ Wondershare PDFelement - программа для общего редактир
 magnet:?xt=urn:btih:3230BA4A90D7FED63ECD3D0239E74D59E3960845
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Vivaldi 6.1.3035.100 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:94D4AD3D350A8B045561F889C2F2C063BF296EB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ Luminar Neo 1.11.0 U2B [Multi]
 magnet:?xt=urn:btih:2EF0BABCF03584065EDEE7A7A92C92EA15392BDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Auslogics Duplicate File Finder поможет Вам избавиться от 
 ```bash
 magnet:?xt=urn:btih:5183CBC890BB8E5D579B995F1B0EB724610DC418
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ Psiphon - это новый инструмент обхода интернет-�
 magnet:?xt=urn:btih:BA14CBB54DB3497501E648969167D0D0B2868469
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ PowerDirector – Video Editor v11.2.0 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C7DBD2DB27AF87C7B563E17B35FC9CA1108E69F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:6F8E85741785725458080683AD4D65D284AF27D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ Seal 1.9.2 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:71E367FE8AC8FE5D86BD303D75536D4ED96A3641
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ QownNotes – менеджер заметок, позволяющий четко
 magnet:?xt=urn:btih:D749C002F3763D7C1F917AF0B0BA21CE3972B383
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ FreeFileSync - это утилита, которая была разработа
 ```bash
 magnet:?xt=urn:btih:509F5C7E0EFCDCE4FD29A3DBC03DEB4AA4A0CDE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Revo Uninstaller Pro 5.0.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:9F61F9840DB1CDA6F9B8079F22C5606738D31211
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 ```bash
 magnet:?xt=urn:btih:8AA11F7BD168D6621969D811EA92CF7E16DC2DB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

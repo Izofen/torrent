@@ -19,6 +19,8 @@ Make Heroine ga Oosugiru! / Too Many Losing Heroines! / Слишком мног�
 magnet:?xt=urn:btih:875EA3469790E837D22E71C88F484EF47660F28D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Disney Epic Mickey: Rebrushed оживляет магию мира Disney в к�
 ```bash
 magnet:?xt=urn:btih:1EBE0B5688C56786B472789C3FFAA4BD423C20E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:1EBE0B5688C56786B472789C3FFAA4BD423C20E7
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Disk Drill - простая и эффективная программа для 
 ```bash
 magnet:?xt=urn:btih:2FAC75794670E0DA9E789BFCA5D412347B9575C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:2FAC75794670E0DA9E789BFCA5D412347B9575C2
 magnet:?xt=urn:btih:10C7748FD5DEA16BDD782BE130FD56A8D6D0F5EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Mecтo дeйcтвия — фeoдaльнaя Япoния вo вpeмeнa мeждy �
 ```bash
 magnet:?xt=urn:btih:7521030A761E6F743FAD6CBDBAF8803294ABD786
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Star Trucker (2024) [Ru/Multi] (1.0.41.0/dlc) Repack Wanterlude
 magnet:?xt=urn:btih:1CA17DD735AA7F65512C118753D6B70628761553
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Dungeon no Naka no Hito | Dungeon People | Люди подземелья [2024, 
 magnet:?xt=urn:btih:CB4091304D65A4C683D727A2052F0B08DB13C69E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ Veeam Agent для Microsoft Windows — это решение для защит
 ```bash
 magnet:?xt=urn:btih:C3AD77E0F4DA81736F71C28B3A5C44A2312656B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:C3AD77E0F4DA81736F71C28B3A5C44A2312656B3
 magnet:?xt=urn:btih:E7AEF490A2CA4DD2743A7E0B3B0FA80D7288FF23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Ravenswatch - хардкорное приключение, в котором п�
 magnet:?xt=urn:btih:BFA15CD2CF597A6429B67827A83FAFC58FEF1979
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:BFA15CD2CF597A6429B67827A83FAFC58FEF1979
 ```bash
 magnet:?xt=urn:btih:FAC8C5417B93416DB1EAEFA94E56568C06D243E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:FAC8C5417B93416DB1EAEFA94E56568C06D243E8
 magnet:?xt=urn:btih:D26A0522107D28E3B58D159C82746CCF536243AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:D26A0522107D28E3B58D159C82746CCF536243AB
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Tensui no Sakuna-hime | Sakuna: Of Rice and Ruin | Сакуна: Рис и ру�
 magnet:?xt=urn:btih:D3E54297621753CA2396C373A05FCB78CD3BF3D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:D3E54297621753CA2396C373A05FCB78CD3BF3D6
 ```bash
 magnet:?xt=urn:btih:B19A4E1C69236A51AEC34005A50896831CAEA072
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Driver Booster сканирует и определяет устаревшие �
 magnet:?xt=urn:btih:5E59046A100578E3F5ED87504F71BCF2C9A725BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:5E59046A100578E3F5ED87504F71BCF2C9A725BE
 ```bash
 magnet:?xt=urn:btih:BFF014144F7349B3D5B3306B12CEB150425DBAF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Iron Meat - это динамичный шутер в жанре "беги и с
 magnet:?xt=urn:btih:75A27A9EB562F3094152C395D92CDF67F40D5017
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:75A27A9EB562F3094152C395D92CDF67F40D5017
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ magnet:?xt=urn:btih:75A27A9EB562F3094152C395D92CDF67F40D5017
 ```bash
 magnet:?xt=urn:btih:D6A5192337752C9D112171B104E317F46BAB6A35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Bjork / Greatest Hits: Volumen 1993-2003 (2003) DVD
 magnet:?xt=urn:btih:E9754CF82EBC7F7636502D148FE74F970ABDD05C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:E9754CF82EBC7F7636502D148FE74F970ABDD05C
 magnet:?xt=urn:btih:0C696BF2EE21DA539B2E3DD227E62AC3E6AE81F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ Frontier Hunter: Erza's Wheel of Fortune совмещает элементы п�
 ```bash
 magnet:?xt=urn:btih:908C86675D9723BAF466922E16FC7380F8E353B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Part 1 (Discoteka):
 magnet:?xt=urn:btih:AC5110D83C570E9664A71FAB5D5C60A14922EDB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:AC5110D83C570E9664A71FAB5D5C60A14922EDB2
 ```bash
 magnet:?xt=urn:btih:70FACDB1E7E3B41624EB84D6A86B4E3492FC8D32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

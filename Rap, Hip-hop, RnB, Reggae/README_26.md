@@ -1,3 +1,32 @@
+###  Публикация: 1380194   (834988) от 02.05.2020
+
+Jahmal TGK - Неваляшка (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Улица Сутулица [03:15]
+02. Мужик с пакетом [03:35]
+03. Жадная мразь [03:12]
+04. Пятно [02:26](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:30:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D9E650A0A7AF7C44CBCBABC385F04037A0EA4F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380048   (835900) от 01.05.2020
 
 Drake - Dark Lane Demo Tapes (2020) Mixtapes [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -21,6 +50,8 @@ Drake - Dark Lane Demo Tapes (2020) Mixtapes [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:91B1B7CF8C9A94CAB6AE4A9FD7FCC7D8EB9F7BDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ Xzibit - Greatest Hits (2009) Compilation [FLAC|Lossless|tracks + .cue] <Hip-Hop
 magnet:?xt=urn:btih:A62ADA6B15F16B94F2A0EDB0CDB73E29F7D27DD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +109,8 @@ Lord - Перемены (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:AD271ABC4F4A736ABD4134A4A1EBD17BF5189FB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +135,8 @@ magnet:?xt=urn:btih:AD271ABC4F4A736ABD4134A4A1EBD17BF5189FB1
 ```bash
 magnet:?xt=urn:btih:28699A0E1F738C1D0DE9617402874BA8F848EBFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +165,8 @@ Krec - Обелиск16 (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:2E619D5DDE8E5719274C2C2ACA1F5DF9AAF28943
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +193,8 @@ magnet:?xt=urn:btih:2E619D5DDE8E5719274C2C2ACA1F5DF9AAF28943
 ```bash
 magnet:?xt=urn:btih:E2D27B58239F8FF34E084F5815B8B1336242CBA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -182,6 +223,8 @@ magnet:?xt=urn:btih:E2D27B58239F8FF34E084F5815B8B1336242CBA7
 magnet:?xt=urn:btih:B79E8DA684EAD47CED752C7933FF9690F480E4AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +251,8 @@ VA - NOW Reggae Classics (2020) [MP3|320 Kbps] <Reggae>
 ```bash
 magnet:?xt=urn:btih:0C35FDA9DFF7F432C6C8C7B3DA45303C7D8BCC9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +281,8 @@ magnet:?xt=urn:btih:0C35FDA9DFF7F432C6C8C7B3DA45303C7D8BCC9F
 magnet:?xt=urn:btih:FE3AA7089DC70CC167E78CFE30814A859DDE8B31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +309,8 @@ magnet:?xt=urn:btih:FE3AA7089DC70CC167E78CFE30814A859DDE8B31
 ```bash
 magnet:?xt=urn:btih:FD9BBC1993319B25AF2298103A1A9F68A5985C96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +339,8 @@ Bones & Drew The Architect - DamagedGoods (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:BDB88C152EB7DD65AF6BC032EBC13296EB70A934
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +366,8 @@ Jah Khalib - 911 (2020) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:249E8098B7969E876F664550E55888374E4A619C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +396,8 @@ Twiztid - Mad Season (2020) [MP3|320 Kbps] <Hip-Hop, Rap, Horrorcore>
 magnet:?xt=urn:btih:0C46B8E904E64F78EC991401AB54760C649C28EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +424,8 @@ Slik Jack - Dicey Buisness (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
 ```bash
 magnet:?xt=urn:btih:3CD75A37B0936D126E9BABF89833117B9DBF9515
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +454,8 @@ Mnogoznaal - Круг Ветров (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:C9B1D1549105E960072E035F878CBCCAC34C3E19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +482,8 @@ CD1 (Продолжительность: 00:22:58)
 ```bash
 magnet:?xt=urn:btih:6B8BB2F8702CF9C9185E996E280751C792CD9363
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +512,8 @@ Czar - Pig Drum (Side B) (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:DCCB0FF05BCCEFF438C48CC15D721B26CF7270E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +540,8 @@ magnet:?xt=urn:btih:DCCB0FF05BCCEFF438C48CC15D721B26CF7270E5
 ```bash
 magnet:?xt=urn:btih:BBA70B02AED203D6F99B6321526296A9B754E7EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +570,8 @@ Wiz Khalifa - The Saga of Wiz Khalifa (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:857F49CD40AB4B2D5992EEB60D60CE458543E76A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +595,8 @@ magnet:?xt=urn:btih:857F49CD40AB4B2D5992EEB60D60CE458543E76A
 ```bash
 magnet:?xt=urn:btih:A2EE276AA0560EC48C33A2DEA58A77465FC23D93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +631,8 @@ L'One - Спутник (2013) [MP3|320 кб/с]<Hip-Hop>
 magnet:?xt=urn:btih:C6408F41D70DF7A21981BD8BEC0260B876D94642
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +656,8 @@ magnet:?xt=urn:btih:C6408F41D70DF7A21981BD8BEC0260B876D94642
 ```bash
 magnet:?xt=urn:btih:90363229D4EC09D5E1CB8DD42CCB6777A4D9E8C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +686,8 @@ Pyrokinesis - Моя Милая Пустота (2019) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:E9ACCE88BEBF9D11D34A0108A941CE9407D7C36E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +714,8 @@ magnet:?xt=urn:btih:E9ACCE88BEBF9D11D34A0108A941CE9407D7C36E
 ```bash
 magnet:?xt=urn:btih:A20B877A6565C7571AE6DF8DEEAA7F1F856039EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,32 +744,7 @@ The Four Owls - Nocturnal Instinct (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
 magnet:?xt=urn:btih:95795CF90E7CAE2859499D9F8EBCEFD6ACADF4B4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376219   (860166) от 17.04.2020
-
-Tech N9ne - ENTERFEAR (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Die? (Intro 1) [02:58]
-02. Suckseed (Intro 2) (feat. Krizz Kaliko, King Iso) [03:09]
-03. Outdone [03:17]
-04. Look What I Did (feat. Flatbush Zombies, Jehry Robinson) [04:20](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:00:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:165E46AAAAE92AFC40D96700418ADB6A3F2C6837
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

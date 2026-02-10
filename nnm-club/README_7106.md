@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:ABA22E85499B61CAD82AFB30A861B6B0419C2E06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Evil Minds - Eyes of Tomorrow (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:CD4976E88A4D9F37635FB0CD6DECBA84C4A4D494
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:CD4976E88A4D9F37635FB0CD6DECBA84C4A4D494
 ```bash
 magnet:?xt=urn:btih:ADF946BC19FB67D8AB1B7CE2FBC7E7B238072300
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:ADF946BC19FB67D8AB1B7CE2FBC7E7B238072300
 magnet:?xt=urn:btih:17F6B44BD24523D7BBE16BE56AA94B610D4370FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:17F6B44BD24523D7BBE16BE56AA94B610D4370FF
 magnet:?xt=urn:btih:5C56CA63BEB9A4FA829E2006867D0685D7672260
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Nvidia поясняет для чего нужно покупать дороги
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ AC/DC - The Razors Edge (1990) X-Cellent only for sale in CIS, 2003 [FLAC|Lossle
 magnet:?xt=urn:btih:3F64CE9E71847E60932BFD936F0D7BB9EAE83CB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ VA - Selection Drum Box (2021) [MP3|320 Kbps] <Drum And Bass, Electro Bass>
 ```bash
 magnet:?xt=urn:btih:5FD975C6BB186ED2C0513096F103C9501050CDF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ John Fogerty - 14 albums, 25 CD (1973-2020) [FLAC|Lossless|image + .cue | tracks
 magnet:?xt=urn:btih:3B276CBA95665D6F44CDCB0DD815B7684E48B42C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:3B276CBA95665D6F44CDCB0DD815B7684E48B42C
 ```bash
 magnet:?xt=urn:btih:75B93BC631F80534323B3860344C461691638508
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ Royal Hunt - Dystopia, Pt. 2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Progr
 magnet:?xt=urn:btih:856A0D9EAAAAE62AF559E50BA5019590E8ECE8DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:856A0D9EAAAAE62AF559E50BA5019590E8ECE8DC
 ```bash
 magnet:?xt=urn:btih:0AC6E50775D693EB5A0534B522C25F1CEC20C953
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:0AC6E50775D693EB5A0534B522C25F1CEC20C953
 magnet:?xt=urn:btih:5DE3F6A5976E9FDA796CFF6C7F028FE63C11D434
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:5DE3F6A5976E9FDA796CFF6C7F028FE63C11D434
 ```bash
 magnet:?xt=urn:btih:BAAD7823B4C7B1E9E96757C4C5658C1E8034F122
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:BAAD7823B4C7B1E9E96757C4C5658C1E8034F122
 magnet:?xt=urn:btih:EA9713CCEF7FC4DCBED777909A4AA38CF4273F32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:EA9713CCEF7FC4DCBED777909A4AA38CF4273F32
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:EA9713CCEF7FC4DCBED777909A4AA38CF4273F32
 magnet:?xt=urn:btih:0C93D9BCAC77FDEBB5457F0F9EA0940BD0F7CF6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ Arise: A Simple Story (2019) [Ru/Multi] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:6698B2654DC09A308E48C9DDFC8B7B23828EAF85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ Kiss – 42 Альбома (1974-2012) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Hard 
 magnet:?xt=urn:btih:4DEB28FEA7D153A67F73376AABE59CEDBDA1D44E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:4DEB28FEA7D153A67F73376AABE59CEDBDA1D44E
 ```bash
 magnet:?xt=urn:btih:AFE0B480FB57260C073A34F43E89FEF4DECFE74D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +559,8 @@ magnet:?xt=urn:btih:AFE0B480FB57260C073A34F43E89FEF4DECFE74D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:AFE0B480FB57260C073A34F43E89FEF4DECFE74D
 ```bash
 magnet:?xt=urn:btih:88ADC6B8E8FEA5EA5DF712BC3FD8E3DD38C603B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +611,8 @@ magnet:?xt=urn:btih:88ADC6B8E8FEA5EA5DF712BC3FD8E3DD38C603B2
 magnet:?xt=urn:btih:FBF94739DA806E531E9BEE27B1ACB068241666E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ magnet:?xt=urn:btih:FBF94739DA806E531E9BEE27B1ACB068241666E2
 ```bash
 magnet:?xt=urn:btih:DAC1E98E77F4985E419B927006B0EE0C96F9BCB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +663,8 @@ magnet:?xt=urn:btih:DAC1E98E77F4985E419B927006B0EE0C96F9BCB5
 magnet:?xt=urn:btih:F729ABA4B0BC30E7A8ACC4EA1C8F15B57807C1F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ magnet:?xt=urn:btih:F729ABA4B0BC30E7A8ACC4EA1C8F15B57807C1F4
 ```bash
 magnet:?xt=urn:btih:E1B26DAA66BCC5AAA031B70CAE44AD9A10E86B4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

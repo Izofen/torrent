@@ -22,6 +22,8 @@ VA - Compilation Part 174 Electronic (2025) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:4807B2BFAE9ED2FBBBBA9E5506363C96A46657EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Mary’s recipes: рецепты, меню v6.1.0 Mod by Alex.Strannik [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:D466214840086DBED8B101ABBFCFD24472FF316E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ TrackChecker Mobile v2.28.4 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:7480260F11F104F035701F1E5CCAEE7D55EBB7EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:7480260F11F104F035701F1E5CCAEE7D55EBB7EC
 ```bash
 magnet:?xt=urn:btih:B3E33D7CD5C305A8619144642B3AA4C49C86552B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:B3E33D7CD5C305A8619144642B3AA4C49C86552B
 magnet:?xt=urn:btih:9F20C5A2B10254EFE96B7A6CF02E600CD8405E07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:9F20C5A2B10254EFE96B7A6CF02E600CD8405E07
 ```bash
 magnet:?xt=urn:btih:C6C92105560535450B8351FB50207156A4BC76C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ Eagles - Hotel California (1976) Reissue, 2017, Asylum 2CD [FLAC|Lossless|tracks
 magnet:?xt=urn:btih:AEC50768D520B621B429FD8AEA6EC839C1C5957B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:AEC50768D520B621B429FD8AEA6EC839C1C5957B
 ```bash
 magnet:?xt=urn:btih:EC8751EB1A1C71AF141B8529FEDBF2A226D67593
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ Daily Yoga - это платформа, обеспечивающая мента�
 magnet:?xt=urn:btih:C6CFE977588FC6DE04824D6F2F9C309434143203
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ PhotoDirector v20.3.2 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1B8B60EB77A813681F1B42F0E2411C3A20FAC5E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:1B8B60EB77A813681F1B42F0E2411C3A20FAC5E5
 magnet:?xt=urn:btih:F09A2DD0D39C0A20D4B34088011ACDAE67E7BD6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:F09A2DD0D39C0A20D4B34088011ACDAE67E7BD6C
 ```bash
 magnet:?xt=urn:btih:5C3636EB1B1EB13451787AF5EF6E643703C4B49B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ Boris Brejcha – Level One (2024) [FLAC|Lossless|WEB-DL|tracks] <Minimal, Tech 
 magnet:?xt=urn:btih:99DF100C34D5E88FAF05C8D5E37848973DA8BBB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ VA - Rock Music - Perfect Blend (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:1E7D258DB022A277A5163A9F749458D33B93D473
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ Above & Beyond - Bigger Than All Of Us (2025) [FLAC|Lossless|WEB-DL|tracks] <Tra
 magnet:?xt=urn:btih:EDC3641CED53652E96328B37F32C2028BD6B5FA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:EDC3641CED53652E96328B37F32C2028BD6B5FA7
 magnet:?xt=urn:btih:62015E9DD7CDDD9CA29D1A3DC6D277A1E0773A7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ magnet:?xt=urn:btih:62015E9DD7CDDD9CA29D1A3DC6D277A1E0773A7E
 ```bash
 magnet:?xt=urn:btih:3AC6A2D71C3C3F1F2FAD46475B51CB459A759CFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ VA - Classic Dad Rock (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:B426DC7EA00D2D3F6931025DEFDBD010A74188C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ magnet:?xt=urn:btih:B426DC7EA00D2D3F6931025DEFDBD010A74188C8
 ```bash
 magnet:?xt=urn:btih:80E16F73766291C7CC32CF13FE86431E083BE493
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +537,8 @@ All-In-One Offline Maps v3.16 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:2352957DD0D2C9C99F1377102C5F00D474F99370
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ magnet:?xt=urn:btih:2352957DD0D2C9C99F1377102C5F00D474F99370
 ```bash
 magnet:?xt=urn:btih:959AF80065811EDAE61C63D12ED66312FA24C4D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +590,8 @@ magnet:?xt=urn:btih:959AF80065811EDAE61C63D12ED66312FA24C4D1
 magnet:?xt=urn:btih:31E85870AD191E53F3E2713E78B62F2CA0BA2176
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ magnet:?xt=urn:btih:31E85870AD191E53F3E2713E78B62F2CA0BA2176
 ```bash
 magnet:?xt=urn:btih:CCE17F4FBEC729583D8124CEB5DEB5050448461D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +642,8 @@ Shazam (шазам) распознает любую песню за секунд
 magnet:?xt=urn:btih:B095174C24F1E0BF7A6EBB270D614814CC19DF0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +667,8 @@ magnet:?xt=urn:btih:B095174C24F1E0BF7A6EBB270D614814CC19DF0A
 ```bash
 magnet:?xt=urn:btih:AB3095E79EF3F2735B1B82B0FEAEDE5D6D583FB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -645,6 +695,8 @@ magnet:?xt=urn:btih:AB3095E79EF3F2735B1B82B0FEAEDE5D6D583FB1
 ```bash
 magnet:?xt=urn:btih:017CF772A2AA4EB9A8BF639C5FF3136AC22878BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

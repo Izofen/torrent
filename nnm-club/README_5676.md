@@ -22,6 +22,8 @@ Graveyard of Souls - Cenizas (2018) [FLAC|Lossless|image + .cue] <Doom, Death Me
 magnet:?xt=urn:btih:0DDB4A159B73A1EB66A765383B4B8A0F67DE76B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Spiritus Mortis - Spiritism 2008-2017 (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom
 ```bash
 magnet:?xt=urn:btih:A56D5701DE2EEE0E0F1779BDB5CAFA78868E8F4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Beastwars - Tyranny of Distance (2023) [FLAC|Lossless|WEB-DL|tracks] <sludge met
 magnet:?xt=urn:btih:833FF798BF2684CF8487471AE8628DFDA7803B7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Grant Green - Green Street (1961) 1993, Toshiba-EMI [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:6212024EED50DF2E3453B1186F202F8C659500F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Anatomy of I - The Los(T) Angered Sessions (2022) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:B3E1584AF5C91ADE1AAF93295FA5859047DB5024
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ Mirror for Hisense TV 3.9.1 [En]
 ```bash
 magnet:?xt=urn:btih:C6BB546BFCA4EA61A98D11CED10EA05816047167
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -180,6 +192,8 @@ Yate был разработан для людей, которые серьез�
 ```bash
 magnet:?xt=urn:btih:93BA4587A5D0C43FF7AC02A8CFB406F9C1D0DDF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ Sahg - Born Demon (2022) Deluxe Edition, 2023, Drakkar Entertainment [FLAC|Lossl
 magnet:?xt=urn:btih:5C0B49EDEAE397E372E41A33A30D86DCCA4CEFF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +251,8 @@ Patriarch - Demonic Heart (2023) [FLAC|Lossless|WEB-DL|tracks] <Power, Thrash Me
 magnet:?xt=urn:btih:FA5DDE364D2F5A4D2102C52D3C26DB0D54415BF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +276,8 @@ Mirror for Roku TV 2.10 [En]
 ```bash
 magnet:?xt=urn:btih:263D0EF65D9DD6E115E1C3AB60443E99E603BDCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +306,8 @@ Grant Green - First Recordings (1959) 2007, Gambit Records [FLAC|Lossless|tracks
 magnet:?xt=urn:btih:9DB71FFC71D15CAB263DD27329FC3EAF0A82FF95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +331,8 @@ Mirror for Hitachi TV 1.3 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:ACF3F51D9F4AAAE78B11E1D944CE237484C2228B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +358,8 @@ Mirror for Fire TV  2.8 [En]
 magnet:?xt=urn:btih:D5602838BCDD134474A8EEF1158E452B9F4907DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +383,8 @@ Mark Schoen | Секреты совершенного секса / The Better Se
 ```bash
 magnet:?xt=urn:btih:61FC4EED596D4933F759C20418FE8BF9D91603E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +410,8 @@ magnet:?xt=urn:btih:61FC4EED596D4933F759C20418FE8BF9D91603E4
 magnet:?xt=urn:btih:D75A137E2B200BAC2A1B71D1F04C77396B2E2455
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +435,8 @@ magnet:?xt=urn:btih:D75A137E2B200BAC2A1B71D1F04C77396B2E2455
 ```bash
 magnet:?xt=urn:btih:55C11EEED28CF77F808B3183BAFA3CC9143C13A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +462,8 @@ XVIII век. Аристократ Стид Боннет очаровывает�
 magnet:?xt=urn:btih:383D9B8FB904C2929775B93F73C8DD13BC46B286
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ magnet:?xt=urn:btih:383D9B8FB904C2929775B93F73C8DD13BC46B286
 ```bash
 magnet:?xt=urn:btih:3A52FB34F3547B7E23BC0BE126CE233B51284206
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +514,8 @@ magnet:?xt=urn:btih:3A52FB34F3547B7E23BC0BE126CE233B51284206
 magnet:?xt=urn:btih:E319F3CFDBE3E3362BD74C52C127631465F3CB27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ Lords of the Fallen приглашает игроков в мрачный мир
 magnet:?xt=urn:btih:C291DC5D7C39779FFD3C04421E8A04846CA50AFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +565,8 @@ magnet:?xt=urn:btih:C291DC5D7C39779FFD3C04421E8A04846CA50AFD
 ```bash
 magnet:?xt=urn:btih:2D11BE36A5F5412FE6C73BCD6ED08B2C699AD5DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +595,8 @@ Windows 11 x64 Rus by OneSmiLe [22621.2428]
 magnet:?xt=urn:btih:453CA1BB6E7511C73DE1C4A2046AB3BB3FAB9211
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +621,8 @@ magnet:?xt=urn:btih:453CA1BB6E7511C73DE1C4A2046AB3BB3FAB9211
 magnet:?xt=urn:btih:167B7A376E9667C9E42B06C515B70293B7BB90AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +646,8 @@ ACDSee Photo Studio Ultimate сочетает в себе поддержку с�
 ```bash
 magnet:?xt=urn:btih:42F226D4B970EA26918C6B7E5557A1B52B8D8B0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +676,8 @@ magnet:?xt=urn:btih:42F226D4B970EA26918C6B7E5557A1B52B8D8B0D
 magnet:?xt=urn:btih:92E479EA6EA1295980FB6BC0B82E1D498FD16131
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ ELDEN RING –  самый масштабный проект FromSoftware на �
 ```bash
 magnet:?xt=urn:btih:8443E5F9202D4651F7AD274BF4DE5C9B730138EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

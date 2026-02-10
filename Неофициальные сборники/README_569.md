@@ -1,3 +1,32 @@
+###  Публикация: 1108257   (863189) от 25.02.2017
+
+VA - Отдыхаем душой на стильном радио Шансон. Сборник № 4 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_863189.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Олеся Атланова - Заложники Любви 4:03
+002. Алиса Савинская - Журавли 3:18
+003. Никола Питерский - Раненная Душа 4:25
+004. Александр Казак - Друзьям 4:15(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9C0F125639F9C3B8FD01477425B7BF0E958F75A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108755   (863191) от 25.02.2017
 
 VA - На волне позитива. Часть № 3 (2017) [MP3|256 Kbps] <Pop>
@@ -21,6 +50,8 @@ VA - На волне позитива. Часть № 3 (2017) [MP3|256 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:A228956AAA835AE44760043C684AAF3D87BF42E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Молодежный бум хитовый. Сборник № 4 (2017) [MP
 magnet:?xt=urn:btih:447512B4AC3D24D1A72566582ADF3D2DEDDDD456
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Зимние блатные песни на Шансоне выпуск №
 ```bash
 magnet:?xt=urn:btih:C7DC8E1F88B9DE19763FD5DCCF3955CD7BC8C0B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Amazing Night: European EDM (2017) [MP3|320 Kbps] <Funky, Tech House, Elect
 magnet:?xt=urn:btih:DB4D2AAB4FD1941889DD18923CBE659257C5EDC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - German Top 50 Official Dance Charts 24.02.2017 (2017) [MP3|320 Kbps] <Pop ,
 ```bash
 magnet:?xt=urn:btih:6DF5DE774BD4E6608D26E1FBC84298619A471BF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Я слушаю шансон. Зимний выпуск. Версия 7 (20
 magnet:?xt=urn:btih:9465230D8175625B0AC9B8854741F68D4ECA8115
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Снежный популярный отрыв выпуск № 6 (2017) [M
 ```bash
 magnet:?xt=urn:btih:18128BCE94787F994D50575BCD4DE52F299B15B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ Kiss - 100% KISS (2020) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:D0BDD12D83096C6B511EB644DB878528857BE57C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Reggae Vibes (2020) [MP3|320 Kbps] <Reggae>
 ```bash
 magnet:?xt=urn:btih:44534C49E515BA0A5FA7CDC8C607034628E6D3DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - April Planet Disco (2020) [MP3|320 Kbps] <Disco, Italo Disco, New Generatio
 magnet:?xt=urn:btih:14D20D33BEDADED17CF6A6719BEE2DF51AB5E0C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - Музыкальное ассорти хитов. (Зарубежный с�
 ```bash
 magnet:?xt=urn:btih:E5CEC28513F4EAE0B285D01D46A098C1140F588D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - Happy Time: House Spring Edition (2020) [MP3|320 Kbps] <Electro House, Danc
 magnet:?xt=urn:btih:A259D3B1A0DCE5A6CBC0AE82011E57C62EFEA47E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ VA - Pool Party Techno (2020) [MP3|320 Kbps] <Techno, Tech House>
 ```bash
 magnet:?xt=urn:btih:250EE5AEAC3FF350446056C23E7D9AE0D789434D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ VA - Beatport Psychedelic Trance: Sound Pack #59 (2020) [MP3|320 Kbps] <Psy Tran
 magnet:?xt=urn:btih:9681D94A4E025174A62800FDF68A0DF095079D0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +456,8 @@ magnet:?xt=urn:btih:9681D94A4E025174A62800FDF68A0DF095079D0E
 ```bash
 magnet:?xt=urn:btih:DC73225FD87E9A8C18C251F790AA84C8C90804A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +486,8 @@ VA - 100 грамм для храбрости Прими на грудь и сл
 magnet:?xt=urn:btih:7BAA5981B845D177E7284DEF3BF1799B5F9E0F38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +514,8 @@ VA - Tropical Chill Vol.1- Relaxing Summer Tunes (2016) [MP3|320 кб/с] <Downt
 ```bash
 magnet:?xt=urn:btih:2A3F1045D8B98E4F2E22FCD9638D98E5919DF7A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +544,8 @@ VA - Шансон-состояние души 97 (2013) [MP3|160-256 кб/с] <S
 magnet:?xt=urn:btih:66199DA03F2CFFBAFC16637CE6EAACDA5FD59BA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +572,8 @@ VA - Sexual Healing Lounge: Best of Erotic Tandra Cafe for Lovers (2016) [MP3|32
 ```bash
 magnet:?xt=urn:btih:D459BF1A87AE81AF7DB60FCC031A4B002774A720
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +604,8 @@ VA - The Official UK Top 40 Singles Chart (01-03-2015) [MP3|320 кб/с]<Pop, Da
 magnet:?xt=urn:btih:79E2E2C68E3113BA73284939167C7D4898053FDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +632,8 @@ VA - Sensual Approach Vol.5 (2016) [MP3|320 кб/с] <Balearic, Downtempo, Loung
 ```bash
 magnet:?xt=urn:btih:08401C49A527F6E6890B1419BC8119F11211D0D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +662,8 @@ VA - Music For Everyone - Club House Vol.3 (2015) [MP3|320 кб/с]<House, Vocal
 magnet:?xt=urn:btih:6A6D10EC8B107AC12C4128EB38567F57F00E8B1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +690,8 @@ VA - Glam Rock 70’s icons (2020) 2CD [MP3|320 Kbps] <Rock, Glam Rock>
 ```bash
 magnet:?xt=urn:btih:F3BE22F92D69673FCE129CF917B9EFB9DE8F158C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -645,6 +720,8 @@ VA - Rock Icons (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
 magnet:?xt=urn:btih:F04F3BCD3C23964222399197C5C103053DF9F5DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,29 +749,7 @@ VA - Dark Country Blues (2020) [MP3|320 Kbps] <Blues, Blues Rock>
 magnet:?xt=urn:btih:A45C8F28945A0C2CCDCD8D7DFE8E5C665541CE86
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375392   (865491) от 14.04.2020
-
-VA - Spring Pop: Eurodance Ultra Mix (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865491.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ashley O - On A RollЖанр: Pop, DanceПродолжительность: 07:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36FDDCBEDB3DB7731617B81EF18C4B5DA54F8BEA
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

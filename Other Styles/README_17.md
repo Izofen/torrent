@@ -22,6 +22,8 @@ Bader Nana - Acoustics A Tribute To Michael Jackson (2009) [MP3|192 кб/с]<Ins
 magnet:?xt=urn:btih:8EF6165C46B29934BE679BDD89C4C8132FC6C046
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -50,6 +52,8 @@ Peter Davison - What Happened Next... (2016) [MP3|320 Kbps] <New Age, Meditation
 magnet:?xt=urn:btih:2C1B2E292E098B3263739848901B130FC91D6EFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +80,8 @@ Paul Hardcastle - Jazzmasters V (2006) [FLAC|Lossless|tracks + .cue] <Smooth Jaz
 ```bash
 magnet:?xt=urn:btih:422CF0C125B90A5D634B6435105C18E37CA82C7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -110,6 +116,8 @@ California Guitar Trio - 4 альбомов (1993-2003) [FLAC|Lossless]<Classica
 magnet:?xt=urn:btih:362C1439E5A6156669AE6FF80CB2C7B74A0096BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +150,8 @@ Louis Landon - Peaceful Christmas. Solo Piano (2011) [FLAC|Lossless]<Instrumenta
 ```bash
 magnet:?xt=urn:btih:DB98113D1DC4605FC6ADA2E7DD682C4BE096EEE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +186,8 @@ David Arkenstone - Celtic Romance (2008) [FLAC|Lossless]<New Age, Celtic>
 magnet:?xt=urn:btih:4044C529C5976D529F860A5B9FC0C5454EF2006A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -209,6 +221,8 @@ Dianne Reeves - Good Night, and Good Luck (2005) [FLAC|Lossless]<Soundtrack, Voc
 magnet:?xt=urn:btih:241ED83B8D86BD0E8C7BEC53E01F00ACE48AC393
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +249,8 @@ Atlas - Breeze (1987) [FLAC|Lossless|tracks + .cue] <Fusion, New Age>
 ```bash
 magnet:?xt=urn:btih:21BCBBA4C94EBA1D6406E94DA324F264AEFE3A18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +279,8 @@ Jed Kurzel - Assassin's Creed / Кредо убийцы (Original Motion Picture
 magnet:?xt=urn:btih:1B5E464AEE40425F0E61F7A202BC0D8A525C75A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +307,8 @@ Jed Kurzel - Assassin's Creed / Кредо убийцы (Original Motion Picture
 ```bash
 magnet:?xt=urn:btih:7FCC4FF5C72A61ECBBF2BDCB6AC96367745B303F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +337,8 @@ David Arkenstone - Celtic Chillout (2010) [FLAC|Lossless]<New Age, Lounge, Celti
 magnet:?xt=urn:btih:7666DD192AA59DD5E14A9C95D60D76929009B9A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +362,8 @@ Arthur Lyman - With a Christmas Vibe (1996) [FLAC|Lossless]<Easy Listening, Inst
 ```bash
 magnet:?xt=urn:btih:FAC91CCEDF32896E9BB7888C2BF567FDC7B2BF85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +392,8 @@ VA - Black Mirror / Чёрное зеркало (Collection Original Soundtrack)
 magnet:?xt=urn:btih:FF0BE8BFA6F0CAFB2172053ECF2B8E79B3C95C84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +420,8 @@ VA - Black Mirror / Чёрное зеркало (Collection Original Soundtrack)
 ```bash
 magnet:?xt=urn:btih:AB8E8BF1995D228D08C06B22B477A90998605941
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +456,8 @@ Partita for solo violin No. 1 in B minor, BWV 1002
 magnet:?xt=urn:btih:BA98CCFA7CA30C31609CE32C590C1F2308E5DB44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +484,8 @@ Mark Isham - The Accountant / Расплата (Original Motion Picture Soundtra
 ```bash
 magnet:?xt=urn:btih:B0C95DEDE0A88953F0419295561860A9908DF6FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +520,8 @@ David Arkenstone - Echoes of Light and Shadow (2008) [FLAC|Lossless]<New Age, Ad
 magnet:?xt=urn:btih:E177FD5346882BDF8C0D2E182165AD7E94CF3D84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +548,8 @@ Mark Isham - The Accountant / Расплата (Original Motion Picture Soundtra
 ```bash
 magnet:?xt=urn:btih:DBBB807C0AB1B74A41462A2567F539F9F02AA999
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +584,8 @@ Mark Petrie - Genesis (2012) [MP3|320 кб/с]<Trailer Music>
 magnet:?xt=urn:btih:DD78113A6E2172986A73249F0439C6EC74ACDFB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +612,8 @@ Richard Clayderman - Love Letters Friends & Family (2021) [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:07D89C4126B1A9544DCE944EBF0925A2DA5BDD84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +642,8 @@ Wardruna - Skald (2018) [FLAC|Lossless|tracks + .cue] <Folk Ambient, Dark Ambien
 magnet:?xt=urn:btih:F68E488CD0EAA05C9F4634FD1F7E313D2F08E4EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +671,8 @@ VA - Асса (1987) [MP3|320 кб/с] <Rock, Soundtrack>
 magnet:?xt=urn:btih:7E28FBA997018AED3EC0A0718D4845EE12B4D1C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +696,8 @@ Ennio Morricone - Svegliati E Uccidi & Sacco E Vanzetti (2003) [MP3|320 Kbps] <E
 ```bash
 magnet:?xt=urn:btih:D2348BD690AF7A4E8D94FC27E7D564DC5634936A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -680,6 +726,8 @@ Paul Hardcastle - Jazzmasters VI (2010) [FLAC|Lossless|tracks + .cue] <Smooth Ja
 magnet:?xt=urn:btih:E34824419F94730AF1CC10E1617E55BD5D4EAC1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -707,6 +755,8 @@ Really Slow Motion - Fiery the Angels Rose (2014) [FLAC|Lossless|tracks + .cue] 
 magnet:?xt=urn:btih:4097A10E506D618BA14C620EC1FDBA9B410AD927
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -733,6 +783,8 @@ Yamamoto - Wellness For Your Body (2003) [FLAC|Lossless|tracks + .cue] <Meditati
 ```bash
 magnet:?xt=urn:btih:8B65FB830E55BED4853F150E1519FE41A966E776
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ REKKR: Sunken Land – это представитель игр, созданн�
 magnet:?xt=urn:btih:5F82B460CA42CBF7E468A3606D7BA3746C5C31B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Adore (2023) [Ru/Multi] (1.0.0.3) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:65211AD9E817534F29EC639CED25B3F76C9FF240
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ TrickShot Simulator (2025) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:7A55FD6C5FE09A8C6CE558B8B494DF96A7E99250
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Teslagrad 2 (2023) [Ru/Multi] (Build 12140719) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:4D8ADB4C0BC5A557ACE9A0719FF698B35BFE23DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Project Wingman — это экшен с боевыми полетами, в к�
 magnet:?xt=urn:btih:C811A0EA6E22534FA38D413AC8EA5D7E9D82E050
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ DEEP IN THE DREAD (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:34A57863239847485BFD40056213DCB55F42CBAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Helskate (2024) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:BED520938F3E23A644ACBD9B3CC4D08D54B4F0F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Matsuro Palette / Палитра Смерти (2020) [Ru/Multi] (1.0.0) License 
 ```bash
 magnet:?xt=urn:btih:9116DDFBD83AE07FF8FEC7480012797127BE7D49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Teslagrad Remastered (2023) [Ru/Multi] (Build 11359912) Repack Let'sРlay
 magnet:?xt=urn:btih:23DD894CF8CBBB7B3AC5789A78409326ABA59685
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Pine: A Story of Loss (2024) [Ru/Multi] (1.4.12853) Repack FitGirl [Collector's 
 ```bash
 magnet:?xt=urn:btih:FA4D5BD47F1D82813AB76209715E6159535A8EE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Cyberpunk 2077 приключенческая ролевая игра, дейс�
 magnet:?xt=urn:btih:3221A48CD806F313801672F0890DD55AF823CB9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Primeval (2020) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:159B355E37B21C9016EF3C9C992FF327270448D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ DISORDER (2025) [Ru/Multi] (build 17062976) Repack FitGirl
 magnet:?xt=urn:btih:625DE654909C105BE810B5CEB33A7C53DA038B5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ DISORDER (2025) [Ru/Multi] (build 17062976) Scene FAiRLiGHT
 ```bash
 magnet:?xt=urn:btih:4DBE70AF21164689EE54D726E365A5BF6C00A820
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Fragrance Point (2025) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:A4D2716FA3932A8FE08F261D9978B6D6F22AED1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ ENDER MAGNOLIA: Bloom in the Mist (2025) [Ru/Multi] (1.0.2.21654) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5FE71AE363C61C9C3F3165B8BF130CEDF698006B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ None Shall Intrude (2025) [Ru/Multi] (1.0.01) Repack FitGirl
 magnet:?xt=urn:btih:3C880B76587B7853EC1888F951D7B4E7EBBCCD2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Magenta Horizon от соло-разработчика Маддисона Бек
 ```bash
 magnet:?xt=urn:btih:4176D63EDF64DC1CF25E49BE2ED9E15167306959
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Mark of the Deep (2025) [Ru/Multi] (1.0.0.0.0) Repack seleZen
 magnet:?xt=urn:btih:B10F0DB819512E287B83788EB0B8B759D87842C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The Thaumaturge - изометрическая ролевая игра с глу
 ```bash
 magnet:?xt=urn:btih:7FFE6836C3D96681D7FC2FEA946FA08EE8B416DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Blacksmith Simulator (2025) [Ru/Multi] (1.0.0.0) Repack FitGirl
 magnet:?xt=urn:btih:440F957D76D6F38CA6749A278770C4E58DCAB00D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Cyber Manhunt 2: New World - The Hacking Simulator (2024) [Multi] (1.0.7) Repack
 ```bash
 magnet:?xt=urn:btih:8213FE8C25164DDB2AACFC6CD82E468DA53D99EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Persona 4 Golden - ролевая игра, рассказывающая про 
 magnet:?xt=urn:btih:B4C9F41D9012FD18483F6B5193170DCA414C2048
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ The Outer Worlds: издание «Просто космос» дарит игр
 ```bash
 magnet:?xt=urn:btih:13DDD19E56538E646E6AA2E99ECA989461DE8698
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Grand Theft Auto Vice City (2021) [Ru/Multi] (1.113.49697469) Repack Let'sРlay 
 magnet:?xt=urn:btih:5EBCD8862B8A9A982DFC7627FE63DC9CA58108C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Nienix: Cosmic Warfare (2023) [Ru/Multi] (1.099) License GOG
 ```bash
 magnet:?xt=urn:btih:E8912B218298A6532EC5354301147477EF0D2F4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

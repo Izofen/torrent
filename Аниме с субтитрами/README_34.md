@@ -19,6 +19,8 @@ Renai Flops / Love Flops / Любовные неудачи [2022, TV, 12] WEBRip
 magnet:?xt=urn:btih:7C1C45509375E6A7092DEAFFE00B437AA4EF2942
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Koi to Senkyo to Chocolate / Love, Election & Chocolate / Любовь, выбо
 ```bash
 magnet:?xt=urn:btih:77FCA2FB2274B000C9B50151D61FF83827ED9057
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Mushikaburi Hime | Bibliophile Princess | Принцесса-библиофил 
 magnet:?xt=urn:btih:1283DABD9F1E5FF0809C3E6C5406C25EE7153FDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Koi to Senkyo to Chocolate / Love, Election & Chocolate / Любовь, выбо
 ```bash
 magnet:?xt=urn:btih:5476D1BBE902BEB0CA40FDF1FFCCE0ABAB32C8CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Lord El-Melloi II-sei no Jikenbo: Rail Zeppelin Grace Note | Lord El-Melloi II's
 magnet:?xt=urn:btih:7E176B19F4A91E9B0B0E61C7DB34A26FF348116A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Made in Abyss: Retsujitsu no Ougonkyou | Made in Abyss: The Golden City of the S
 ```bash
 magnet:?xt=urn:btih:877CB920FEE1AA24982794141E62B2EC3CA32945
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Kakkou no Iinazuke | A Couple of Cuckoos | Обручённые кукушкам
 magnet:?xt=urn:btih:1D33E318AC5A66AB31A8D5285595481A176122B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Mamahaha no Tsurego ga Motokano Datta / My Stepmom's Daughter Is My Ex / Моя 
 ```bash
 magnet:?xt=urn:btih:B8F7EFE07D7B770F2DEBCE1D3217A88FF9843C43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Warau Arsnotoria Sun! | Smile of the Arsnotoria the Animation | Улыбка А�
 magnet:?xt=urn:btih:B32D30F8CAF6E978127904920B4C7CD66BCCC74C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Fuuto Tantei | Fuuto PI | Детективы Футо [2022, Web, 12 эп.] WEBR
 ```bash
 magnet:?xt=urn:btih:04AAC4B84825D19E739695B05721F31C7F8B5BCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Shin Shinka no Mi: Shiranai Uchi ni Kachigumi Jinsei | The Fruit of Evolution 2:
 magnet:?xt=urn:btih:8EEC3D4ADB933345629DA59038BA5AE044795B87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Saikyou Onmyouji no Isekai Tenseiki | The Reincarnation of the Strongest Exorcis
 ```bash
 magnet:?xt=urn:btih:E07993F19B94CFF8858D95C599795B4CE6F72E90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ Inu-ou | Inu-Oh | Ину-о: Рождение легенды [2022, Movie] BDRip
 magnet:?xt=urn:btih:73208B7913E171E4512C54042E0A05CB0DEF753A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Saikin Yatotta Maid ga Ayashii | The Maid I Hired Recently Is Mysterious | Мо�
 ```bash
 magnet:?xt=urn:btih:066CC8FC1B07354537D8060A18E51AEEE00EDF15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ Hataraku Maou-sama!! / The Devil is a Part-Timer!! / Повелитель Тьм
 magnet:?xt=urn:btih:1B9C7F9661EA8CC9D621FF44109A31C3FE809047
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Dansai Bunri no Crime Edge | The Severing Crime Edge | Режущий грань
 ```bash
 magnet:?xt=urn:btih:46B103716411688528647488D31F2BAB3E85BDD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ Orient | Ориент [2022, TV, 24 эп.] WEBRip 720p raw
 magnet:?xt=urn:btih:D915977C1A0AF3F9D7F43537986D11F69C6ED8E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Nakitai Watashi wa Neko o Kaburu | Nakineko | A Whisker Away | Сквозь сл
 ```bash
 magnet:?xt=urn:btih:D7B6C9B0D32177A1A45BEBCE715355701ADCE1A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ Lycoris Recoil / Ликорис Рекойл [2022, TV, 13] WEBRip 720p raw
 magnet:?xt=urn:btih:590AE451F91A06558F55F9B769B8F8D7D3DF3F5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ Aoashi | Аоаси [2022, TV, 24 эп.] WEBRip 720p raw
 ```bash
 magnet:?xt=urn:btih:5F3EEA7BA7A2894DBF6EC1276450F7B4A0DD52A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ Love All Play | Люблю играть [2022, TV, 24 эп.] WEBRip 720p raw
 magnet:?xt=urn:btih:5EAB02D52A1511CFAF75879C405C9668B31E33E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ Engage Kiss | Поцелуй-активатор [2022, TV, 13 эп.] WEBRip 720p
 ```bash
 magnet:?xt=urn:btih:BDB939D419EF2DE74113F1FFC96DBB18078D78E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ Kanojo, Okarishimasu 2 | Rent-a-Girlfriend 2 | Девушка на час [ТВ-
 magnet:?xt=urn:btih:52BDE184384B346B81D9986A3FA66017C0F7F8BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Kubo-san wa Mob o Yurusanai | Kubo Won't Let Me Be Invisible | Кубо не п�
 ```bash
 magnet:?xt=urn:btih:F785B7C959902721924FC523C7149ED483C8A0F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Mushibugyou | Истребители насекомых [2013, TV, 26 эп. + 3 
 magnet:?xt=urn:btih:90A9FC8307F1958018F645334844412A75D6E6BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Meng Qi Shi Shen | Cinderella Chef 3 | Очаровательная богиня
 ```bash
 magnet:?xt=urn:btih:9B93BE9115F0EC4B1E36D783E157413631021E70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

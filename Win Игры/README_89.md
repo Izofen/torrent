@@ -19,6 +19,8 @@ Devilated - брутальный и жестокий шутер от перво�
 magnet:?xt=urn:btih:A050732D6094D4D2E41A30ED9441261BE6C6FA84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Memory Lost - захватывающий шутер от третьего лиц
 ```bash
 magnet:?xt=urn:btih:C44BF35616DB97995FE535533CCD85C3BE6436C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Warcraft I + II: Remastered (2024) [Ru/Multi] (1.0.0.2198/1.0.1.2242) Repack Dec
 magnet:?xt=urn:btih:6FA6CCB043CD5F2F9CF67920B88E3E4CB841893A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (Build 811.8) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:56FFC9067858B0B34C0A3A1B06F74A620866EF61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Isla de la Muerte - это напряжённая игра на выживани
 magnet:?xt=urn:btih:870B7B711C9B8254CD3EC895D0FD39CE1C7BD88A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ YIIK: A Postmodern RPG - это сюрреалистичная ролевая и
 ```bash
 magnet:?xt=urn:btih:EF1B96965E07D68419FB1B98B51CE874C29C33A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Trailmakers (2019) [Ru/Multi] (2.0.1.65085/dlc) Scene Rune
 magnet:?xt=urn:btih:7B268ECAA57F0F909BDA3A88D9380150980FDB32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Trailmakers (2019) [Ru/Multi] (2.0.1.65085/dlc) Repack FitGirl [Ultimate Edition
 ```bash
 magnet:?xt=urn:btih:9C84E902CBE327095C9A4ABFE42B80C605372207
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ ULTRAKILL – игра, вдохновленная классическими и
 magnet:?xt=urn:btih:02B17E817CFF15487C623C35218E80B6B08CA3BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.811.14) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:85BDEC308AD2171AE042FD25F05B3E5599339B09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Hundred Days - Winemaking Simulator (2021) [Ru/Multi] (1.8.0w1/dlc) License GOG
 magnet:?xt=urn:btih:08689ABE288D7DB9D1600234E0D96E2AAD6FDFAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Memory Lost - захватывающий шутер от третьего лиц
 ```bash
 magnet:?xt=urn:btih:15F9F76A3AAA36A6C75C6F7ABAB0BE832B19758A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Warhammer 40,000: Space Marine (2011) [Ru/Multi] (1.0.1) Repack Decepticon [Anni
 magnet:?xt=urn:btih:8CA75088F7EC42E4696EDAE65F9B2FA0651CEA82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ PowerWash Simulator (2022) [Ru/Multi] (1.10.0/dlc) Repack FitGirl [Ultimate Sati
 ```bash
 magnet:?xt=urn:btih:FA33108196B0014A17707DC476426194A1EA5D25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:FA33108196B0014A17707DC476426194A1EA5D25
 magnet:?xt=urn:btih:85A78F78BAF4404E2E913391062791A324CDF43A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Citizen Sleeper 2: Starward Vector - это ролевой проект, где 
 ```bash
 magnet:?xt=urn:btih:93583406D04D5018B6F4EFB738AEA1B7EE330AE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Liminal Border Part I+II+III (2023-2025) [Multi] (1.0.1/1.0.2/1.0.2/dlc) License
 magnet:?xt=urn:btih:F7B5CA2AB6E57202B76C8EB70C588C00EF623AF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Lies Of P была вдохновлена знаменитой историей 
 ```bash
 magnet:?xt=urn:btih:9096EBC55960DA4A0A3A859D443BDD7B1C2E84CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Lyndaria - нелинейная эротическая визуальная но
 magnet:?xt=urn:btih:A3CD104A66420E656BE71C14AB3224F7353E199B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Book of Hours (2023) [Ru/Multi] (2025.1.a.11/dlc) License GOG [Perpetual Edition
 ```bash
 magnet:?xt=urn:btih:31F18E6CEB18B68B71B04BC48C497ACCD99E705A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Peaks of Yore - захватывающая экшен-адвенчура, пог
 magnet:?xt=urn:btih:C18176D76BCA9EC77C2C66368DCEA7CC6BE959FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Avowed (2025) [Ru/Multi] (1.2.11.0/dlc) Repack Decepticon [Premium Edition]
 ```bash
 magnet:?xt=urn:btih:C67842567755B31D33E5AE04F9C20E80AE170E8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ The Dark Eye: Chains of Satinav (2012) [Ru/Multi] (3.0.351.5517) License GOG
 magnet:?xt=urn:btih:62690C401E886146068CD86AE4436B198EBA5E0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Age of Mythology: Retold - игра от создателей культовой
 ```bash
 magnet:?xt=urn:btih:4AC70D78CD7A606BC525B5F9130EE76C5DFDCA90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Phoenix Springs (2024) [En] (1.1.7) License GOG
 magnet:?xt=urn:btih:F679D3AFF6DCC34697738513C94A7599D0D847FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack Wanterlude [Complete Editi
 ```bash
 magnet:?xt=urn:btih:210439A2D7F2688B020EFC0C842C527CEEDB0003
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Aliens vs Predator Антология [Ru/En] (RePack) 1999-2002 | R.G. Catalyst
 magnet:?xt=urn:btih:11CBC326733D87A603FAF99D8070C49B6AA93E98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Wolfenstein®: The Old Blood – предыстория игры Wolfenstein®: 
 ```bash
 magnet:?xt=urn:btih:DDFE5396C0E8F27998C1B6B8009A35D709F38CD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7
 magnet:?xt=urn:btih:603855CB8AC3ED5B97D4A9AF2440B3992BE78456
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:603855CB8AC3ED5B97D4A9AF2440B3992BE78456
 ```bash
 magnet:?xt=urn:btih:A0269E45FB9FBD7770861C26066BEFDCBDE40623
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:A0269E45FB9FBD7770861C26066BEFDCBDE40623
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:A0269E45FB9FBD7770861C26066BEFDCBDE40623
 magnet:?xt=urn:btih:50B54CE153D30CE93DD8F57644DFCF6D62446ECB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:50B54CE153D30CE93DD8F57644DFCF6D62446ECB
 ```bash
 magnet:?xt=urn:btih:C517CCE1DC5596689782568D4511D34E696C3DF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ Sue Foley - 15 Albums (1992 - 2024) [FLAC|Lossless|tracks + .cue|image + .cue]<B
 magnet:?xt=urn:btih:B614E4F2A6518955E4297B956BD5232AC35C81E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Toyota официально объявила о прекращении подд�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ Tinsley Ellis - 20 альбомов (1986 - 2024) [FLAC|Lossless|image + .cue|tr
 magnet:?xt=urn:btih:4687F3CF07765E24263B48D22215959EB1D66213
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ Teenage Mutant Ninja Turtles: Shredder's Revenge - экшен, в котором
 ```bash
 magnet:?xt=urn:btih:74C0A94F2053D42DA8B0578E2EFEDD0E746BE05C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:74C0A94F2053D42DA8B0578E2EFEDD0E746BE05C
 magnet:?xt=urn:btih:BA88C9E558ED0EBC234D1E50FFEC8E9024475114
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:BA88C9E558ED0EBC234D1E50FFEC8E9024475114
 ```bash
 magnet:?xt=urn:btih:B1050904F466CB0CB38F09297E4FE5C7FA4060E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:B1050904F466CB0CB38F09297E4FE5C7FA4060E5
 magnet:?xt=urn:btih:22D9279AB68A1DD7D9DE8EDBC1AC940632CBD46D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:22D9279AB68A1DD7D9DE8EDBC1AC940632CBD46D
 ```bash
 magnet:?xt=urn:btih:B3EF46A8D0D7E72C41A2B3F9C2077B675BFB2C5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ The Evil Within 2 (2017) [Ru/Multi] (1.04/dlc) Repack Wanterlude
 magnet:?xt=urn:btih:95DDC50A583BD408DF7F74A99ED3CA43D30C7224
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ ExtraDisks - это набор инструментов для создания 
 ```bash
 magnet:?xt=urn:btih:F024F12E5619BB90318EA56B014AFED0DEB32294
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:F024F12E5619BB90318EA56B014AFED0DEB32294
 magnet:?xt=urn:btih:194B0B9149124F8490CA1F01C96AE7C56432C306
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:194B0B9149124F8490CA1F01C96AE7C56432C306
 ```bash
 magnet:?xt=urn:btih:FEFABDDB5E1FFD0B512A8FFBA222427E65E59078
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:FEFABDDB5E1FFD0B512A8FFBA222427E65E59078
 magnet:?xt=urn:btih:AC57E02B1205813CE754BEBD436EC20A6D5BD117
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:AC57E02B1205813CE754BEBD436EC20A6D5BD117
 magnet:?xt=urn:btih:15E7437E1F6B08166940F2B23BB23ACDDB6C85E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:15E7437E1F6B08166940F2B23BB23ACDDB6C85E2
 ```bash
 magnet:?xt=urn:btih:695A6D121CD525369A452855A5FDE31FD4BDA9C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:BEDA8F60E7ED3F1014949D943E922DDC43BB7FA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:BA007B88138EB5F05E4A3E3ECDE319C20A10594A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:BA007B88138EB5F05E4A3E3ECDE319C20A10594A
 magnet:?xt=urn:btih:8D56A9ECC35CA5DEEB5D0C2C84DAB957C2DF19C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:8D56A9ECC35CA5DEEB5D0C2C84DAB957C2DF19C2
 ```bash
 magnet:?xt=urn:btih:FFC37D6453B8A44647741B17914386EA3FFED339
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Kylie Minogue - Дискография (20 releases) (1988-2020) hand made [rest
 magnet:?xt=urn:btih:86C5E4EC47AAD93064A322CF1FCED3B5BB454E96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Pink Floyd - A Momentary Lapse Of Reason (1987) Remastered, 2021, Pink Floyd Rec
 magnet:?xt=urn:btih:6FEC5523689E3DEA68C98D53499EBB051EC45E67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ Mutiny Within — американская группа из города Эди
 ```bash
 magnet:?xt=urn:btih:0A1D72BC34C64F078FD037828A630727456F084A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -102,6 +108,8 @@ Masterplan — немецкая пауэр-метал-группа. Основа
 magnet:?xt=urn:btih:291A23F2DD4AD8CFE4BF7813505338E04ED4B06E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +136,8 @@ magnet:?xt=urn:btih:291A23F2DD4AD8CFE4BF7813505338E04ED4B06E
 ```bash
 magnet:?xt=urn:btih:37238C52EC26C6504B49AAC973A5080490D774E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -156,6 +166,8 @@ A4 Испорченный Телефон(   Читать дальше...   )Жа
 magnet:?xt=urn:btih:ED446D73CD4F41073A14074723A479F208122761
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -182,6 +194,8 @@ Insomnium — финская англоязычная группа из горо
 ```bash
 magnet:?xt=urn:btih:E13F03859AF8AF05B4966658D8C66F58A9A09AF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -210,6 +224,8 @@ A4	Hippies With Haircuts–	Eye On You	(4:45)(   Читать дальше...   
 magnet:?xt=urn:btih:9E4148D74064A3D81B0B8B068AF25B6AC3626040
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +253,8 @@ Accept - Stalingrad (2012) 2LP [WavPack 2.0 32/96|image (Vinyl-Rip)]<Heavy Metal
 magnet:?xt=urn:btih:ED416EC19D27D3AD0626D6BE3018BF611B0041C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +280,8 @@ Godark - метал-группа из Португалии, основана в 
 ```bash
 magnet:?xt=urn:btih:34BC01D822F5224C78231D80539A1E6A62E6D4D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +311,8 @@ Pretty Reckless — американская рок-группа из Нью-Й�
 magnet:?xt=urn:btih:FD27DE2B99D15C9F60FE92D4D39361A38FE8183C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +339,8 @@ A4 Rotation(   Читать дальше...   )Жанр: Soul-JazzПродолж
 ```bash
 magnet:?xt=urn:btih:DAD66781E3BEE23B8B9DA6483DCCB81CA76EF10E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +369,8 @@ A4 Estrellita(   Читать дальше...   )Жанр: Latin, Easy Listening
 magnet:?xt=urn:btih:71E2F01FEA7592510FCB98C7593434B11E4FBFFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +397,8 @@ A4 Mis Amigos(   Читать дальше...   )Жанр: Pop, Swing, Rock & Ro
 ```bash
 magnet:?xt=urn:btih:73606FF671830C07BC5A6B57306F7C8B9ABF4D24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +427,8 @@ A4 You Pass Me By(   Читать дальше...   )Жанр: Pop, FolkПрод
 magnet:?xt=urn:btih:DA481CE8F7D3831F5151D0205B5304DDB9F2F8AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ A4 James Taylor - Handy Man(   Читать дальше...   )Жанр: Rock, P
 magnet:?xt=urn:btih:EBC6CD7DD9158C2E550B2A81C63FB6B333FA315B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +484,8 @@ Diana Krall - The Girl In The Other Room (2004) [DTS 5.1 CD-DA|44.1/24|image+.cu
 ```bash
 magnet:?xt=urn:btih:D2C5CFE74BAD67E1F1D25454ED4E6D18678BD044
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +515,8 @@ magnet:?xt=urn:btih:D2C5CFE74BAD67E1F1D25454ED4E6D18678BD044
 magnet:?xt=urn:btih:CF2D2E6595F46B32844882A9FCDF8C2E68B204AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +543,8 @@ Red Hot Chili Peppers - The Getaway (2016) [FLAC 2.0|192/24|image + .cue|Vinyl-R
 ```bash
 magnet:?xt=urn:btih:1B4D569EE6D0D78E363150CDF52152EB2B38363F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +573,8 @@ A4. Фотофиниш (4:34)(   Читать дальше...   )Жанр: Elect
 magnet:?xt=urn:btih:FAAE095706F44266BEC0CA327A1FCD13E959B6FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +601,8 @@ B1. Sexy Love (3:31)(   Читать дальше...   )Жанр: Electronic, Sy
 ```bash
 magnet:?xt=urn:btih:3A6368B651AB53F531204BA100055EBE19AAC61E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +631,8 @@ A4 Show Some Emotion 3:48(   Читать дальше...   )Жанр: Pop Rock,
 magnet:?xt=urn:btih:CC2CDF3AB7551983EC057E40159B7AD5EC014802
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +659,8 @@ Kim Carnes - Barking At Airplanes (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip
 ```bash
 magnet:?xt=urn:btih:33F2D73C8105AB49777FA2DB41F1DEDDD619A1B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +689,8 @@ magnet:?xt=urn:btih:33F2D73C8105AB49777FA2DB41F1DEDDD619A1B9
 magnet:?xt=urn:btih:C0653A447D54DA5F2EAF13F3755A7B882BCCC859
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,6 +718,8 @@ A4		Все Твое = All Yours	3:12(   Читать дальше...   )Жанр
 magnet:?xt=urn:btih:45D975DEF44FD0773D4E03B10D2CD3B14F0BF69A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ Taboo - The Same Word (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
 ```bash
 magnet:?xt=urn:btih:D82AEBA72CE6857847ED085006886AFC1163655D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

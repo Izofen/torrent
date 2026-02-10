@@ -22,6 +22,8 @@ Queen - A Kind Of Magic (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
 magnet:?xt=urn:btih:964A0913C93D40DAAAE7739E56ED680BF285240E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Jubilation – J. Harris, P. Anka
 ```bash
 magnet:?xt=urn:btih:ED7E8106864986ADA166826B532DB8472E845545
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Phil Collins & Genesis - Collection (11 Albums) (1981 - 2010) restored, declippe
 magnet:?xt=urn:btih:265FC7EDDC3705EE2B5C48647E1EA823F44A1131
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ A4. One More River (4:17)(   Читать дальше...   )Производс�
 ```bash
 magnet:?xt=urn:btih:D3157EC06C0C2FD21A6FC73E8D6BEE6CB85CCD66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ U.D.O. - 13 Альбомов (1987-2015) [WavPack 2.0 32/192|image (Vinyl-Rip)]<
 magnet:?xt=urn:btih:93FE9E3F7F58B8107D2454FCDD6BE8573A955AC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ Nazareth - Play 'N' The Game (1976) Reissue, 1979, Vertigo [WavPack 2.0|192/32|i
 magnet:?xt=urn:btih:97F170DB64E7AEDF65F7012F2B62263E60440339
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +195,8 @@ A4. Становитесь в очередь за мной (5:02)(   Читат�
 ```bash
 magnet:?xt=urn:btih:CB9DF6F41C7DB2AFED9DBC307CDCF51D06D307AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +231,8 @@ B3 - Limehouse Blues – Philipp Braham [02:53](   Читать дальше... 
 magnet:?xt=urn:btih:B03E31F139E916812BC34C9BC3A4E56AAE5AECC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +259,8 @@ magnet:?xt=urn:btih:B03E31F139E916812BC34C9BC3A4E56AAE5AECC8
 ```bash
 magnet:?xt=urn:btih:8CFEB989B4CD8C7BD61090E9C84943678829E540
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +289,8 @@ magnet:?xt=urn:btih:8CFEB989B4CD8C7BD61090E9C84943678829E540
 magnet:?xt=urn:btih:A2D6D6EEB67041995F7BCF1A55D3711D31481A67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +317,8 @@ A4 Casino Boogie(   Читать дальше...   )Жанр: Blues Rock, Rock &
 ```bash
 magnet:?xt=urn:btih:92D764B8614852AE8D4CF9E037F0249B66EE2618
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +347,8 @@ A3 Lawdy Mama(   Читать дальше...   )Жанр: Blues Rock, Hard Rock
 magnet:?xt=urn:btih:918E67E33F56D3AA27E0BBB966BFD9F4CA9BA7BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +375,8 @@ Aphex Twin - London 03.06.17 (2017) Warp Records [FLAC|48/24|Lossless|tracks] <I
 ```bash
 magnet:?xt=urn:btih:13CC4366AA3FAE3DEDC2495DB02AAB0255467659
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +405,8 @@ Opus - Live Is Life (1984) [WavPack 2.0|192/24|image + .cue|Vinyl-Rip] <Pop, Roc
 magnet:?xt=urn:btih:0720118287D941012CCD4F6C930099B66F4C1C33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +433,8 @@ A4. Когда Я Знал Тебя Совсем Другой (2:36)(   Чита
 ```bash
 magnet:?xt=urn:btih:725EDD029D27E6E94E374D7E78A1D94FA65E9932
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +463,8 @@ B1. I Can't Dance (4:01)(   Читать дальше...   )Производст
 magnet:?xt=urn:btih:15B139C8604B69CE3CE80DEBDEFD65D86DC6BE4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +490,8 @@ KISS - I Was Made For Lovin' You (1979) Single [FLAC 2.0|96/24|tracks|Vinyl-Rip]
 magnet:?xt=urn:btih:4262D28043174089C8BAF420107D31F23E73D08D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +515,8 @@ Mylene Farmer - Vinyl Discography 9LP (2009) [FLAC 2.0 24/96|image+cue (Vinyl ri
 ```bash
 magnet:?xt=urn:btih:3307AD7B7EC765685D70B1B8349F938A9D834552
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +545,8 @@ Written-By – Marshall Brown(   Читать дальше...   )Жанр: Twist
 magnet:?xt=urn:btih:60A9FA385311AE692CA9F1398CB1E47541B02E8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +573,8 @@ A4. Таволга(   Читать дальше...   )Жанр: ШансонПр
 ```bash
 magnet:?xt=urn:btih:F5B1FE29CED20381AFFEF8D247E299C071FB8D62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +603,8 @@ B Ольга Зарубина и Александр Серов - Круиз
 magnet:?xt=urn:btih:0A85C44C9C7F51624EA6847ABD1F1DCAFD059628
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +631,8 @@ magnet:?xt=urn:btih:0A85C44C9C7F51624EA6847ABD1F1DCAFD059628
 ```bash
 magnet:?xt=urn:btih:243B89E81F1A943691317B1288DE6AD23D3FAD0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +661,8 @@ A4 Move That Wigwam(   Читать дальше...   )Жанр: Prog Rock, Psyc
 magnet:?xt=urn:btih:E47247469E0A25306EB49CF100F5E6AFA75D7969
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +686,8 @@ Scorpions - 2 Альбома (1977-1993) [FLAC 2.0 24/192] image + .cue, (Vinyl-
 ```bash
 magnet:?xt=urn:btih:4E77FA18272F09C8F7AC35C06949DC6B5FE99606
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -668,6 +716,8 @@ A4 California Nights(   Читать дальше...   )Жанр: JazzПродо
 magnet:?xt=urn:btih:136C5507E207F16C4F3C12B39B404209A033BEA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,6 +744,8 @@ A4 Hugo(   Читать дальше...   )Жанр: Glam Rock, Pop RockПрод
 ```bash
 magnet:?xt=urn:btih:B7A0324F61DB2BA370F3BCF0ED0D30715B8C1122
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

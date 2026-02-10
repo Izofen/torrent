@@ -19,6 +19,8 @@ RealStrat - основанный на сэмплах, специализиров
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Movavi Slideshow Maker – это простая и удобная програ�
 ```bash
 magnet:?xt=urn:btih:8BACFA8E9DE0645A8539EE4E1348D88F9F9029BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Genuine Soundware - GS-201 Mk2 1.0.0 STANDALONE, VST, VST3 (x64) [En]
 magnet:?xt=urn:btih:C9D04368A74CAC7CF121F2930071FC935DBD86A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ United Plugins & JMG Sound - Orbitron 1.5 VST, VST3, AAX (x86/x64) [En]
 ```bash
 magnet:?xt=urn:btih:D5E17198C3C35FBB398192831F5DA174D3ABA55A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Dual Delay X представляет собой уникальный подхо
 magnet:?xt=urn:btih:A21BBA78D158A7BD25B30EF6A72B0185AF4873BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Nero WaveEditor 14.0.0020 Portable by PortableWares [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:06A5514E4E8BBA2E2849F193A91D41EA203C8A30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Nero Recode — очень мощное и в то же время просто�
 magnet:?xt=urn:btih:896228F6FEB60EF2A9EF147FDC85868E8717AE6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Blue Cat's PatchWork - универсальная коммутационная �
 magnet:?xt=urn:btih:28C275B6514918C0D4B08C2AC59EC6C2955B1AB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ PanoramaStudio, это графическая программа для созд
 ```bash
 magnet:?xt=urn:btih:6C639B5AADCEE3BA5F661D15426C61A9D9959187
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Karanyi Sounds - Minipol 1.0.0 VSTi 3 (x64) [En]
 magnet:?xt=urn:btih:F55FD315C99AC3291F207C5BB1FD5099A4B8C902
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ MorphVerb - это уникальный инструмент, предостав
 magnet:?xt=urn:btih:1E0F3C9B83CF40C0C78158FA1CECDECD42C6D20D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ Thenatan - Bells 1.0.0 VSTi, VSTi 3 (x86/x64) [En]
 ```bash
 magnet:?xt=urn:btih:0A1AA9E547E182FB3B5AE4D4FD545300D7D57362
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ Thenatan - Vybz 1.1.0 VST, VST 3 (x86/x64) [En]
 magnet:?xt=urn:btih:26FDF8DAFAC8775F7E431A7D25687B17FC83D62B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ Hi-Hat и Snare rolls уже давно существуют в разных ж�
 ```bash
 magnet:?xt=urn:btih:B8F3ACC374EE33DD48C2809BEF4990E2E69EC3C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ Irid - это креативный плагин реверберации, в о�
 magnet:?xt=urn:btih:73637C0C824ACF71F60B8B3592A29136C7C978E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ ArtRage настоящая художественная студия для по
 ```bash
 magnet:?xt=urn:btih:5E65CE7EB3C84249E302EAF489671F1F895D960F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ Spectre обрабатывает разницу между входным сиг
 magnet:?xt=urn:btih:B869E61A8C2AB126D8733413B48C552F2FD6DC65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ United Plugins & JMG Sound Plugins 08.2022 VST, VST3, AAX (x86/x64) RePack by Ar
 ```bash
 magnet:?xt=urn:btih:389A51578DFF24DC1628E6CC7AAB0165C653FA0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ Tiffen Dfx - Программный комплекс состоящий из б�
 ```bash
 magnet:?xt=urn:btih:4A3A00F27B95046346158C578CC2CE9EDBFFFA70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ KrushPro имеет много новых функций, которые выв�
 magnet:?xt=urn:btih:F4F57F6A766DB48F6D3C1A40836AEE15F3BACA4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ Sound Normalizer - звуковой нормализатор звука, пре�
 ```bash
 magnet:?xt=urn:btih:0B888A608E3BF67119F493E4F02C15122F3AB4D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ Tipard 4K UHD Converter - мощный конвертер для преобра�
 magnet:?xt=urn:btih:5C99594F49113E53D31159D6A2F69D86F79D1787
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ Xhun Audio - LittleOne 3.2.0 VSTi, VSTi3 (x86/x64) [En]
 ```bash
 magnet:?xt=urn:btih:1E83012C77B554D7B4E287E327CB904814937506
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +633,8 @@ Oracle - это универсальный (   Читать дальше...   )
 magnet:?xt=urn:btih:D3023C0000623426EF81D5D0CE7E7B0F8A088FAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ Slate Digital - Virtual Tape Machines 1.1.11.1 VST, VST3, AAX (x86/x64) RePack b
 ```bash
 magnet:?xt=urn:btih:DED0DF7AF1C2E61C34E95EA30F36776495C06B3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +685,8 @@ ReLab - LX480 Complete 3.1.4 VST, AAX (x64) RePack by R2R [En]
 ```bash
 magnet:?xt=urn:btih:C6518E4F79FA058C038292702D3C51BDE1B7A81E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

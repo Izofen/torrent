@@ -19,6 +19,8 @@ Web Video Caster® позволяет смотреть на вашем ТВ ви
 magnet:?xt=urn:btih:3543F00913076CF6FF801E0817DC4AD6F75D7665
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Warholed - это хорошо организованный и полность�
 magnet:?xt=urn:btih:C2FE5BB65C482659D3B6EED02B2B1398A6190740
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:C2FE5BB65C482659D3B6EED02B2B1398A6190740
 ```bash
 magnet:?xt=urn:btih:64EFD6B1CEF200DA491FA1357EA22019D57A2860
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:64EFD6B1CEF200DA491FA1357EA22019D57A2860
 ```bash
 magnet:?xt=urn:btih:8B034C8CD45D44BBA441C9807A6526D47A39571D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ VA - Music News For Forum vol.147 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:DEEE5D0D7347566F8DEBFC0CA8DEE02EDB0F9BAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Vivaldi — это многофункциональный интернет-бр�
 ```bash
 magnet:?xt=urn:btih:3EC393072EBE61442FB1D65480D3D8E747B5A6BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ Markus Schulz - Global DJ Broadcast World Tour: Australia (2025-11-13) [MP3|320 
 magnet:?xt=urn:btih:3D325EF6E32AAD1750DB2271357F516BE063D271
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ Udemy, Vlad Sateev | Master Viral 3D Short Form Content in Blender (2025) PCRec 
 magnet:?xt=urn:btih:9EB24D06E3C2C37E208D3ED24E46644A6AA432AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:9EB24D06E3C2C37E208D3ED24E46644A6AA432AE
 ```bash
 magnet:?xt=urn:btih:209E0DE9E88BFC9906F1C0AC80EAA8A18D596BB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ Listen Audiobook Player v5.3.5 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:A11BD1184F6DADA53447EF4293646289757D2ECB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:A11BD1184F6DADA53447EF4293646289757D2ECB
 ```bash
 magnet:?xt=urn:btih:53BE5164D3D85DBBEBC48E7C4C28427D95453AB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:53BE5164D3D85DBBEBC48E7C4C28427D95453AB3
 magnet:?xt=urn:btih:161913C52434ED6FD1E2188BF285202DA1E112AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:161913C52434ED6FD1E2188BF285202DA1E112AB
 ```bash
 magnet:?xt=urn:btih:D0E27E9C24650764C5B416D325005A11763F3229
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:D0E27E9C24650764C5B416D325005A11763F3229
 magnet:?xt=urn:btih:014361A6560A33BD302471BED4CD24C6BE581849
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:014361A6560A33BD302471BED4CD24C6BE581849
 ```bash
 magnet:?xt=urn:btih:0ED08D18C078B4B9E3143F44AD80A177CC40E218
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ The Devil Wears Prada - (сокращенно TDWP) группа, играюща
 magnet:?xt=urn:btih:48EC789DD8CCCC95C8F85C3E1E26E147F2528D0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ VA - 60 minutes. Old School Dance Music vol.31 (mixed by Dj V) (2025) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:9751B52C1B4772BBD030C33EBB9B11D0F298441A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +486,8 @@ VA - No name compilation part 5 Electronic, Other, AI (2025) [MP3|320 Kbps] <Ele
 magnet:?xt=urn:btih:78737F1226D9BC3FB7BFB6D6EE122A3448E4ED63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ Delih - Favorites Collection (2025) [MP3|320 Kbps] <Electronic>
 ```bash
 magnet:?xt=urn:btih:DCCD35EBED8A7CE6E50C14E8D69A768FA1AE01FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +544,8 @@ VA - No name compilation part 6 Blues, Soul (2025) [MP3|320 Kbps] <Blues, Soul, 
 magnet:?xt=urn:btih:983F5CD665985C11ACDC4F4F354BF079FB8012F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ VA - The Best Trance Tunes Of 2025 Vol. 2 - Mixed by Roan Gosling (2025) [MP3|32
 ```bash
 magnet:?xt=urn:btih:8D810BA80CB1CA4E3B9AEEE2C51733598B34ADA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +602,8 @@ VA - No name compilation part 7 Soulful Blues Ballad (2025) [MP3|320 Kbps] <Soul
 magnet:?xt=urn:btih:FF753AA04ADDE19BAF34D09C5DAA3ACE1D319F35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +630,8 @@ VA - No name compilation part 8 Soulful Blues Ballad (2025) [MP3|320 Kbps] <Soul
 ```bash
 magnet:?xt=urn:btih:B9DD2267ECBF2A0DCD87873B55598A4476DF27E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +660,8 @@ VA - 10 Years of Dreamstate (2025) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:444A449D3126ADA4D17CBE890D0D4C35A269C36A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +689,8 @@ VA - Progressive Trance Awakening, Vol. 09 (2025) [MP3|320 Kbps] <Trance, Progre
 magnet:?xt=urn:btih:E7106E2BDBE3F315B91374EFC990706D558764E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +714,8 @@ magnet:?xt=urn:btih:E7106E2BDBE3F315B91374EFC990706D558764E5
 ```bash
 magnet:?xt=urn:btih:D0692E961F4E4F374EA1D9D93D890D388317A26F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

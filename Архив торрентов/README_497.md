@@ -19,6 +19,8 @@ VueScan - программа для работы со сканерами. Мож
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ LS · Книга доходов и расходов 2.00 от 23.03.2012 [Рус
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ LS · Книга доходов и расходов 2.00 от 23.03.2012 [Рус
 ```bash
 magnet:?xt=urn:btih:ACFF4BDD76F5ED68F472044D160F8D70AF16BA5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:ACFF4BDD76F5ED68F472044D160F8D70AF16BA5A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ Opera – один из самых быстрых и гибких в настр�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ Opera – один из самых быстрых и гибких в настр�
 magnet:?xt=urn:btih:38A151C2AD01A7526D1BD326C433F1FA197C7AC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +189,8 @@ magnet:?xt=urn:btih:38A151C2AD01A7526D1BD326C433F1FA197C7AC5
 ```bash
 magnet:?xt=urn:btih:BDE9B8D0BDD2935E5862B4A84DCB3650728F132D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ magnet:?xt=urn:btih:BDE9B8D0BDD2935E5862B4A84DCB3650728F132D
 magnet:?xt=urn:btih:D625A57976503E6D1397750B2628F4E15CA9661F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ WinPatrol - программа, контролирующая установку 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -257,6 +275,8 @@ VA - Armada Vocal Trance Sessions 2012 - 01 (2012)
 magnet:?xt=urn:btih:4BD2955147A8F8CA37913E4C589D844FB6D6C346
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ YoWindow - это новый монитор погоды. Программа о�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -305,6 +327,8 @@ YoWindow - это новый монитор погоды. Программа о�
 magnet:?xt=urn:btih:7E5C323F2B33F0F35A9C58AE8324359A86837F50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ magnet:?xt=urn:btih:7E5C323F2B33F0F35A9C58AE8324359A86837F50
 ```bash
 magnet:?xt=urn:btih:8DAD2F3D7347781D5A3AC657F7299A585A1E923E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +389,8 @@ Fruitcake - Fruitcake 2 [Japan Remaster 2010] (1984) [FLAC|Lossless]<Electronic,
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +414,8 @@ Fruitcake - Fruitcake 2 [Japan Remaster 2010] (1984) [FLAC|Lossless]<Electronic,
 ```bash
 magnet:?xt=urn:btih:658A9EBFC3C631344AEA3A5D321DAF702985CAEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +441,8 @@ magnet:?xt=urn:btih:658A9EBFC3C631344AEA3A5D321DAF702985CAEE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +467,8 @@ magnet:?xt=urn:btih:658A9EBFC3C631344AEA3A5D321DAF702985CAEE
 magnet:?xt=urn:btih:90CDFF1672EC8BC6E44493DD0989694FCE19BCA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +492,8 @@ Aurora 3D Text and Logo Maker - это продвинутый, мощный ди
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +528,8 @@ Tammy Wynette - Anniversary: Twenty Years of Hits (1987) [MP3|320 кб/с]<Count
 magnet:?xt=urn:btih:C9F36E6325B4EBFFFDBC9011718A40ED71F536B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +553,8 @@ magnet:?xt=urn:btih:C9F36E6325B4EBFFFDBC9011718A40ED71F536B0
 ```bash
 magnet:?xt=urn:btih:CDAA2106B372E724BFA6C8FF0B073F26175F491C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +589,8 @@ magnet:?xt=urn:btih:CDAA2106B372E724BFA6C8FF0B073F26175F491C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +624,8 @@ VA - Red Station Lite 4 (2012) [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:073FE93E5F22842457EA56316BABE5932083BE90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +649,8 @@ magnet:?xt=urn:btih:073FE93E5F22842457EA56316BABE5932083BE90
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +676,8 @@ magnet:?xt=urn:btih:073FE93E5F22842457EA56316BABE5932083BE90
 magnet:?xt=urn:btih:208E6916BD6B6379941A279F57E84AAAA567D0D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +702,8 @@ magnet:?xt=urn:btih:208E6916BD6B6379941A279F57E84AAAA567D0D0
 magnet:?xt=urn:btih:1A98EF91AD2812AA7D030C832102E57489850FDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -677,6 +727,8 @@ magnet:?xt=urn:btih:1A98EF91AD2812AA7D030C832102E57489850FDF
 ```bash
 magnet:?xt=urn:btih:EC74D1B79BFA4EA166AFA8F9CA886991EBC3F48C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

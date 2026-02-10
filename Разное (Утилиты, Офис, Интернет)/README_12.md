@@ -19,6 +19,8 @@ Webcam Surveyor 3.9.2 Build 1212 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:D8231560A38E4DCD1D16659C7940D9BF6DBA7F94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ PopChar 8.7.0.3001 RePack (& Portable) by elchupacabra [Ru/En]
 ```bash
 magnet:?xt=urn:btih:53EAC1D4D202D2CF7D6820B9BB9E9972559F90B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:53EAC1D4D202D2CF7D6820B9BB9E9972559F90B9
 magnet:?xt=urn:btih:1341826114D05F1C8C11FB22974E95933CE69F05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Removable Access Tool - легкая программа для управлен�
 ```bash
 magnet:?xt=urn:btih:E301536BF7A4CB9D1736B50E8B1446E8CA69D0B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ MouseExtender - это удобная и красивая панель быст�
 magnet:?xt=urn:btih:76249B322A31E95C8B7D6A08D4354FC51C4107A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ FileMenu Tools настраивает пункты контекстного ме
 magnet:?xt=urn:btih:0A9EF297D5DE6765924B456C4BD74507EEE3C8E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ ScrollNavigator - программа, которая поможет вам пр�
 ```bash
 magnet:?xt=urn:btih:A249811CBECA37D33FD72388EF91BE2C2D1C1B6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ ABBYY Screenshot Reader — простая и удобная программа 
 magnet:?xt=urn:btih:698A21F0AA2EC5E9F8E4D3113D8A72C80BE3841F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Screen Translator - экранный переводчик который поз�
 magnet:?xt=urn:btih:81CC58CE601658F9A742E3CF2925DF97F7FCF405
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Scrivener — мощный текстовый редактор для тех, к
 ```bash
 magnet:?xt=urn:btih:81D7EFDA6451062D155379CAEC8D0A1AE299A704
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Nekonverter — это конвертер величин для Windows, поз�
 magnet:?xt=urn:btih:C850FCD212B50A0B3E5C01BB0B29C438A9173AC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ GenoPro используется генеалогами, врачами, (   Ч
 magnet:?xt=urn:btih:7F9343092B9BC42AC8B600047D548174BD40176C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ Hetman Internet Spy Unlimited Edition 3.8 RePack (& Portable) by elchupacabra [M
 magnet:?xt=urn:btih:D750F0215CD1EF3D8F9A1BB167F4F6BA04D87E12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ Sidebar Diagnostics – простая боковая панель для раб
 ```bash
 magnet:?xt=urn:btih:A43219229F149F47EAFB0F1B40A6763226F3B09C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ DesktopImages3D 2.29 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:D979353002BE1890AF844F39B6A1676C281B3CBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ DesktopNoteOK – простая портативная программа дл�
 magnet:?xt=urn:btih:2681327CCA654C2098FCDB30A067F40996C72FB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ WorldWide Telescope - уникальная программа от корпор�
 ```bash
 magnet:?xt=urn:btih:B08EB25ABC11C7B32A4CB3389C86F8ADBF1492D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ Interactive Calendar - удобная программа-календарь, и�
 magnet:?xt=urn:btih:25896245A7DE77933F13062692784B1E4B381EAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ CLCL - утилита кеширования буфера обмена. Прог
 magnet:?xt=urn:btih:48E6A231E184C9205BE26EC11945011148633444
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ ScreenHunter Pro – программа для получения снимков
 ```bash
 magnet:?xt=urn:btih:7826424463AAC1156C23003212E5743DBC1BA938
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ Family Tree Builder 8.0.0.8625 [Multi/Ru]
 magnet:?xt=urn:btih:69D5B8D79DFB4D2B47B1C2FA233810B7584E9856
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ Firemin — представляет собой небольшую утилит�
 ```bash
 magnet:?xt=urn:btih:7623EA179C7D2CC9BAB31159051FB21EF768363A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ HashMyFiles 2.44 Portable [Ru/En]
 magnet:?xt=urn:btih:8C7096EC058FC82B472D3E0F1F1A1DB3FB5D954D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ OpenHashTab 3.0.4 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8E75416D9EC74DF73DC7D233404DC69C0F69CCBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ NVCleanstall - портативная утилита от интернет-по�
 magnet:?xt=urn:btih:0A364A30AB854D77840ACBE34E26EBB36D34FD64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ MultiHasher - это калькулятор хэша файлов, которы�
 ```bash
 magnet:?xt=urn:btih:303FF8344C9C6132192510367AF147543D7A3565
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

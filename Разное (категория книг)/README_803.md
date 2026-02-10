@@ -1,3 +1,31 @@
+###  Публикация: 1847142   (1051947) от 10.01.2026
+
+Стейн Ванхеле | Почему психоз не безумие. Рекомендации для специалистов, пациентов и их родных (2025) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стейн Ванхеле, известный бельгийский специалист по ментальному здоровью, утверждает, что примерно 15 процентов населения могут в течение жизни иметь психотический опыт, в котором они теряют контакт с реальностью. И несмотря на это, мы часто боимся говорить о психозе и избегаем общения с людьми, переживающими психоз. Как же помочь и поддержать таких людей?
+
+Стейн (   Читать дальше...   )Жанр: Саморазвитие, личностный ростПеревод: Анна АлиповаИздательство: АзбукаФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDAAABF5236B081F4C9A16EC8EAB3CA632D97A35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847162   (1051948) от 10.01.2026
 
 Виталий Еропкин | Обретение свободы от порнозависимости и онанизма (2024) [PDF, FB2, EPUB]
@@ -19,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:49A674A4EB14CED9D0056705146DE94A4AAFE2F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +73,8 @@ magnet:?xt=urn:btih:49A674A4EB14CED9D0056705146DE94A4AAFE2F0
 ```bash
 magnet:?xt=urn:btih:352479158FB5AE447B9065C11E8CFCB5D3E2B2F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +102,8 @@ magnet:?xt=urn:btih:352479158FB5AE447B9065C11E8CFCB5D3E2B2F7
 magnet:?xt=urn:btih:A66967256D361B1FFECF1DEA0ECDB7F2155F1EB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +130,8 @@ magnet:?xt=urn:btih:A66967256D361B1FFECF1DEA0ECDB7F2155F1EB2
 magnet:?xt=urn:btih:772F498693B98CC15B0BE45BD96CE4D5E4DBA558
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +155,8 @@ magnet:?xt=urn:btih:772F498693B98CC15B0BE45BD96CE4D5E4DBA558
 ```bash
 magnet:?xt=urn:btih:B459E2C4D5BBC2FC07F988C7EF1517958499DCD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +185,8 @@ magnet:?xt=urn:btih:B459E2C4D5BBC2FC07F988C7EF1517958499DCD0
 magnet:?xt=urn:btih:875D390070C8CA29CA056140B24C32DCCB33A3A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +213,8 @@ magnet:?xt=urn:btih:875D390070C8CA29CA056140B24C32DCCB33A3A2
 magnet:?xt=urn:btih:35337511C8564208170D07179589D0A38C5F646C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +238,8 @@ magnet:?xt=urn:btih:35337511C8564208170D07179589D0A38C5F646C
 ```bash
 magnet:?xt=urn:btih:DCDE354B9A778A1ABCE69EC089B8825C31DB2B10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +265,8 @@ magnet:?xt=urn:btih:DCDE354B9A778A1ABCE69EC089B8825C31DB2B10
 magnet:?xt=urn:btih:9B0DCEF8B495F9FE060E466B15AA97CFCE828510
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +290,8 @@ magnet:?xt=urn:btih:9B0DCEF8B495F9FE060E466B15AA97CFCE828510
 ```bash
 magnet:?xt=urn:btih:379FC99809ED4F25FBE2BF0582D7332565C7DF96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +317,8 @@ magnet:?xt=urn:btih:379FC99809ED4F25FBE2BF0582D7332565C7DF96
 magnet:?xt=urn:btih:CCF5859E87CCD5BDE3542AD73F2434415F04972F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +343,8 @@ magnet:?xt=urn:btih:CCF5859E87CCD5BDE3542AD73F2434415F04972F
 magnet:?xt=urn:btih:1B23B0F0FDFD64D60F290EE680C01BC15E82E2EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +368,8 @@ magnet:?xt=urn:btih:1B23B0F0FDFD64D60F290EE680C01BC15E82E2EA
 ```bash
 magnet:?xt=urn:btih:4ED9FD42629038FF92D35B2E80635D3D6DE3B7F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +397,8 @@ magnet:?xt=urn:btih:4ED9FD42629038FF92D35B2E80635D3D6DE3B7F7
 magnet:?xt=urn:btih:100502B32F11A008A16947CC2A04846BB44ABAC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +423,8 @@ magnet:?xt=urn:btih:100502B32F11A008A16947CC2A04846BB44ABAC3
 magnet:?xt=urn:btih:4C3008321B9EBE95214B29EE63465F6663CE63AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +448,8 @@ magnet:?xt=urn:btih:4C3008321B9EBE95214B29EE63465F6663CE63AE
 ```bash
 magnet:?xt=urn:btih:5D29571F754C319DD5F84BFE29959349EAE972BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +476,8 @@ magnet:?xt=urn:btih:5D29571F754C319DD5F84BFE29959349EAE972BD
 magnet:?xt=urn:btih:F09E2D9CEA8C6182B575406F0ECF10C4D7621C4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +501,8 @@ magnet:?xt=urn:btih:F09E2D9CEA8C6182B575406F0ECF10C4D7621C4A
 ```bash
 magnet:?xt=urn:btih:8DDA9D7BC57F73B99BD4430DFCA5F97A4CBF1F5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +528,8 @@ magnet:?xt=urn:btih:8DDA9D7BC57F73B99BD4430DFCA5F97A4CBF1F5F
 magnet:?xt=urn:btih:BD0005227F393138B9D36072A22F55DF5E662F32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +554,8 @@ magnet:?xt=urn:btih:BD0005227F393138B9D36072A22F55DF5E662F32
 magnet:?xt=urn:btih:D969EE0B29E73AC46BB0827A07B77279E7E741A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +579,8 @@ Agile дает реальные и действенные ответы на во
 ```bash
 magnet:?xt=urn:btih:70C573BC98DEB46EDB9A22DE95B6C15EF26FCE0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +608,8 @@ magnet:?xt=urn:btih:70C573BC98DEB46EDB9A22DE95B6C15EF26FCE0B
 magnet:?xt=urn:btih:56E7FBB78509A87B41D24C0D9847D257777DF805
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +633,8 @@ magnet:?xt=urn:btih:56E7FBB78509A87B41D24C0D9847D257777DF805
 ```bash
 magnet:?xt=urn:btih:79008A0FB2E1B22E23B663FF36A9CEE8B9C78C1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +662,8 @@ magnet:?xt=urn:btih:79008A0FB2E1B22E23B663FF36A9CEE8B9C78C1B
 magnet:?xt=urn:btih:82527FD358DDA4AE7B6D5346DCA12166EB558CD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,30 +688,7 @@ magnet:?xt=urn:btih:82527FD358DDA4AE7B6D5346DCA12166EB558CD1
 magnet:?xt=urn:btih:B052A94782072A4286B2CC1248B499DEB422A3D9
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848288   (1052798) от 16.01.2026
-
-Жан-Луи Монсе, Ален Перно, Джонни Ривз | Большая книга Формулы-1. 80 лет шума и ярости (2024) [PDF]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052798.jpg" />
-</div>
-
-
-###  Подробнее
-
-От Хуана Мануэля Фанхио до Льюиса Хэмилтона и Макса Ферстаппена, вы встретите здесь всех легендарных гонщиков, прислушаетесь к звуку двигателей и переживёте гениальные обгоны, роковые вылеты с трассы и внезапные повороты сюжета.
-Кроме того, вы встретитесь с людьми, находящимися в тени, которые воплощают в жизнь мечту о «Формуле-1»: директорами команд и механиками, (   Читать дальше...   )Жанр: Биография, автогонки, историяИздательство: БомбораФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55A0955B240BFA2718FC9D415E25039D44F6BBC9
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

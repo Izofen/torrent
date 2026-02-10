@@ -19,6 +19,8 @@ Intra - Tower Defense представляет своим игрокам обш�
 magnet:?xt=urn:btih:4601D77A4C9484C61FF5173FE0E0B64CFFFA1E6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Hero We Need - это стратегия в жанре tower defense, кот
 ```bash
 magnet:?xt=urn:btih:ABCA108A9059AABFAE343E46B94A70A5F0B597F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Combat Mission: Final Blitzkrieg погружает вас в заключите
 magnet:?xt=urn:btih:2456674495F3BDDE56DCD73F002C5A36DAAB4175
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Rise to Ruins - это игра, в которой сочетаются меха
 ```bash
 magnet:?xt=urn:btih:C00A7478577C4869CFE9EB1E460EFEBEF60CA1F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Dungeons 4 - это фэнтезийная стратегия в реально�
 magnet:?xt=urn:btih:D560DAD87DF86418A5B52119111A37BEF7EF50DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ One Military Camp (2023) [Ru/Multi] (1.1.0.26/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:70EDC5F16A79206E322CA74E7E5D236FB98505EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ The Universim, симулятор бога, в котором успех ваш�
 magnet:?xt=urn:btih:B4524A0ABFD497C9F7194BAB4980A1F95051B97B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Minecraft Legends является спин-оффом популярной фр
 ```bash
 magnet:?xt=urn:btih:751FE2404BDE8572EA223C66CBC6E3B26A04AF86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ First Feudal (2021) [Ru/Multi] (1.4.6) License GOG
 magnet:?xt=urn:btih:6EE1F00A8428FCC8DDBF45C8F08401D36FAD353A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Oriental Dynasty - Silk Road defense war – это возможность от�
 ```bash
 magnet:?xt=urn:btih:692E43E5983FEC126A7B6652548321AE27F1B876
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Startup Panic (2022) [Ru/Multi] (3.15) License GOG
 magnet:?xt=urn:btih:8E3F669BA6DD266F20080234FF9164C5FA556902
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Against the Storm - это игра c элементами roguelite и стро
 ```bash
 magnet:?xt=urn:btih:39FAB2B42315A1D3FD89D6B4B4F469797492232F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ SGS Battle For: Madrid погружает в исторический конте
 magnet:?xt=urn:btih:789E0C1C6DB850EEB7A47387DA308E1E412D7EBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ SGS We The People - это полная самостоятельная игра,
 ```bash
 magnet:?xt=urn:btih:CC0653BD8CE48757F05E43D377FCF54A899B3030
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Pro Basketball Manager 2024 предлагает стать тренером и 
 magnet:?xt=urn:btih:E63E1A5FC844170C8835D95363DDD5A559C6C23E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Tropico 3 / Тропико 3 (2009) [Ru/Multi] (2.1.474.38210) License PROPHET [
 magnet:?xt=urn:btih:0068303CEF889363063CAE3D1873E2663D01F18C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +434,8 @@ Valhalla Hills (2015) [Ru/Multi] (1.02.01/dlc) SteamRip R.G. Игроманы
 ```bash
 magnet:?xt=urn:btih:A32E60DCC0A6C449D2D5F40DAE577E653C218F14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ Cities in Motion Collection / Транспортная империя [En/Multi5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ Knights of Honor 2: Sovereign – стратегия в реальном вре�
 ```bash
 magnet:?xt=urn:btih:B2013CB94011E497A73044E0E74D7C13B67C2AFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ Aven Colony (2017) [Ru/Multi] (1.0.1) License GOG
 magnet:?xt=urn:btih:2FE558665AD414F209AA91EB4EF8E15C31865A4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ Transport Fever - это железнодорожная экономическа
 ```bash
 magnet:?xt=urn:btih:F1D7E3068BA4405527A97315DD3E506EFC3D91E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ Hundred Days - Winemaking Simulator (2021) [Ru/Multi] (1.3.1/dlc) Repack Other s
 magnet:?xt=urn:btih:32F6551C4766D4352C140FC90C4C8BD4B32D8E41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ Coral Island – классический симулятор фермы, пер�
 ```bash
 magnet:?xt=urn:btih:CC971473F7CC4E1593DBE144C8F31C46CE3AAECE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ Transport giant / Транспортный олигарх + Новый конт�
 magnet:?xt=urn:btih:6F1EC6FF107F74BE9C6E6C309CA3EF2EB04173A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ Anno 1503: The New World (2003) [Ru] (1.0) License Новый Диск [Колл
 magnet:?xt=urn:btih:09F23BCCE8A35F6A1DFA8CDEF11424E3648E982E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Frozen Cortex – пошаговая тактическая игра с проц
 ```bash
 magnet:?xt=urn:btih:EB2E1EFAB5E63D4532167C03FF459A8C9A5536CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

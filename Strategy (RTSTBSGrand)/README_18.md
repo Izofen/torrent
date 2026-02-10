@@ -19,6 +19,8 @@ Total War: Napoleon (2018) [Ru/Multi] (1.3.0) SteamRip R.G. Origins [Definitive 
 magnet:?xt=urn:btih:DA15DCE9556BA1EEDDE8E1219EDC5E470A76F2C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:DA15DCE9556BA1EEDDE8E1219EDC5E470A76F2C6
 ```bash
 magnet:?xt=urn:btih:403B7B576BF31C6EBACE337B5FA719C536B36301
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Sins of a Solar Empire: Rebellion (2012) [Ru/Multi] (1.94/dlc) License PLAZA
 magnet:?xt=urn:btih:A72A1C457AB265546E880D5F08EF2C45693843CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Antihero (2017) [Multi] (1.0.24/dlc) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:4F8AE611E1BE1CCAEFBE5F7D3CECC951B8894C74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Oriental Empires (2017) [Ru/Multi] (1.0/dlc) License CODEX
 magnet:?xt=urn:btih:F68BC63E59B2921219F282B921FB5BCD1A6880BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:F68BC63E59B2921219F282B921FB5BCD1A6880BB
 ```bash
 magnet:?xt=urn:btih:3936397A9113A2AD16BE24EA678C9ACEAA43BA29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Sorcerer King – эпическая фэнтезийная пошаговая �
 magnet:?xt=urn:btih:BB41414AB4EBE916DFAF75A9001054D7037C4616
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Crusader Kings II (2016) [Multi] (3.0.1.1/dlc) License CODEX [Imperial Collectio
 ```bash
 magnet:?xt=urn:btih:349B216F00A2436D9826FD0946FF5E9AC178A784
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Hearts of Iron IV позволяет игрокам встать во главе
 magnet:?xt=urn:btih:BCEDEE575B4FDCE3A8F37B6C3403DCB9F48E383F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Endless Legend - 4X-стратегия от создателей Endless Space. 
 ```bash
 magnet:?xt=urn:btih:79411A0240CFA485ADE5D26CA2D60E31B41E0A2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Europa Universalis 4 - стратегия, разрабатываемая сту
 magnet:?xt=urn:btih:D555AC8DC37FBC9092853BE3733304142EAA7FC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Total War: Rome Remastered - улучшенная версия историче�
 ```bash
 magnet:?xt=urn:btih:5697DFDD62249950065D36C560E014797A9F0996
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Galactic Civilizations III – самая глобальная игра-песо
 magnet:?xt=urn:btih:DD254341647B57CEF869BFE6D56750284F66A50C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Homeworld: Deserts of Kharak - стратегия в реальном време
 ```bash
 magnet:?xt=urn:btih:FC1FBE116FCA8C24078B40B5F9BA2BB10A491F2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Settlers History Collection - это все семь игр из серии 
 magnet:?xt=urn:btih:38C3DF095CA39A7C78107D19C5154C83C74C7D2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Sudden Strike 4 (2017) [Ru/Multi] (1.15/dlc) License PLAZA
 ```bash
 magnet:?xt=urn:btih:B91370B66E00EF5DF894F7E6C8A11CD2DF185D03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Total War: Rome Remastered - улучшенная версия историче�
 magnet:?xt=urn:btih:DB56E52FE62985276694A245D00CF534745F3997
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Meridian: New World - это стратегия в реальном времен
 ```bash
 magnet:?xt=urn:btih:3E1C84E7711BA6969896475CA2149B70119C8F7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ War for the Overworld - это микс стратегии в реальном �
 magnet:?xt=urn:btih:C222DA0D4B1C53F49DBE17C4C74D53AA248698AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Meridian: New World — это стратегия, в которой вы игр
 ```bash
 magnet:?xt=urn:btih:11FB22200E929AB8E5DE3F7824FD7182C39FCAF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ The Feud: Wild West Tactics - это пошаговая тактическая �
 magnet:?xt=urn:btih:35D371292E6E6C0D975AA74844F061CF640F33EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Dawn of Andromeda (2017) [Ru/En/Ge] (1.096/dlc) License PLAZA
 ```bash
 magnet:?xt=urn:btih:AD0881F0F2EBD90928C507065084E42374C49D4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Star Trek: Armada 2 - стратегическая игра, разработа�
 magnet:?xt=urn:btih:7765264314CEE66BFF2CACBD6B7E7EEED6F0723D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Star Trek: Armada - официальная игра по мотивам знам
 ```bash
 magnet:?xt=urn:btih:76051E520BA934B67453CD83E704273CE401F99F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Star Trek: Starfleet Command III (2002) [En] (1.01.534_rdna_fix) License GOG
 magnet:?xt=urn:btih:42D3395AB7F807A4195272521F556AEB1253ABE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Ostalgie: The Berlin Wall (2018) [Ru/En] (1.0.6.c) License PLAZA
 ```bash
 magnet:?xt=urn:btih:3D553D84886B0EFF9C366D860A21EF1D47B03F4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

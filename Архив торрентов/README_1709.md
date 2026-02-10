@@ -21,6 +21,8 @@ LiteManager Free - бесплатная программа для удаленн
 magnet:?xt=urn:btih:574507D68A5D46C94CD9B70E48642101C3949A62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ iA Writer 6.0.7 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:AE037B080F350F26826E0FD8C44961367E842A05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ MediaHuman YouTube Downloader 3.9.9.82 (1106) RePack (& Portable) by elchupacabr
 magnet:?xt=urn:btih:9042D8917C18A503CF7ED004B728D7D76F3240BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ WinCatalog - это простая в использовании програм�
 ```bash
 magnet:?xt=urn:btih:85AAD70607B4485B319A667F2C91431C2B125D6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ MediaHuman YouTube Downloader 3.9.9.81 (1305) RePack (& Portable) by Dodakaedr [
 magnet:?xt=urn:btih:2D84A129BDDF893FABA13AD59C07F2CE91E819A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:B6457B0A80DFAA6E119C70B7BB0177936AC23241
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ ALLPlayer, наверное, самая популярная программа 
 magnet:?xt=urn:btih:A08C873B883E3EEB34BC5FD189C7D6AC132C1F89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Google Earth Pro 7.3.4.8642 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:82B17A3A316F1D5B596EE583F3F02D4F80D6183A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ PhotoZoom Professional - программа является лучшей из �
 magnet:?xt=urn:btih:E31C6A820F81F9DC16791FBB2E72CE610A3F2798
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ iCompta - простое, но мощное приложение для упра
 ```bash
 magnet:?xt=urn:btih:4C5E5B9BB13B2C7B0FD28D3BA2CA1D69B19E1FBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ YouCut - один из самых удобных и оптимальных по 
 magnet:?xt=urn:btih:9E17A8C51CEDE41E910F58C95EFDEB90F1369CDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Adobe Acrobat Reader для PDF 22.4.0.22039 Mod by Rajat [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:74E28F72F3D7D3EE225E24DEC9E3650FA585C8AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ WinSnap позволяет делать скриншоты экрана мони
 magnet:?xt=urn:btih:F6D140CAB55AB13A50115A111C0192F5F37DD727
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Stats - это приложение с открытым исходным код�
 ```bash
 magnet:?xt=urn:btih:B37A6F8083E2F35B1A42C72D174049FEA915D4DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ HitPaw Video Converter for Mac 3.0.0 [Multi/Ru]
 magnet:?xt=urn:btih:2CE571B515F5737202DC3A398B20757F1D959562
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 magnet:?xt=urn:btih:B745881BB488A9FBECBB5D9AE04812E9B5B952ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:89F427C34257F4C5E6ACEB5F9889F05003C3AEA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Rhinoceros 7 v.7.30 [Multi/Ru]
 magnet:?xt=urn:btih:E3FFD6D8474D4D3D92AC9C356A663E227685C41E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ ExactScan – современное решение для сканирован�
 ```bash
 magnet:?xt=urn:btih:12714148D9FAAED3A46B414149DC13A73F11D7F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Downie поддерживает более 1,000 популярных сайто
 magnet:?xt=urn:btih:69AA1205D966BA976C1E197F5E40F49EC7350616
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:69AA1205D966BA976C1E197F5E40F49EC7350616
 ```bash
 magnet:?xt=urn:btih:3055A55C633E4617F63E4C9D678DCD2163ECFAAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ Alfred PowerPack 5.1.2 Pre-release [En]
 magnet:?xt=urn:btih:8F58595D1F8A1DA62C5E85FE346F5658024F624E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:8F58595D1F8A1DA62C5E85FE346F5658024F624E
 ```bash
 magnet:?xt=urn:btih:3F2F3FC3BAEB34E779930F8571410461EE8F0D08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ PDF Expert - редактор  PDF. Быстрый, мощный и незаме
 magnet:?xt=urn:btih:F46D7FF2AF358955D977FAA2BB616BE2CCADE001
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Videoleap by Lightricks - весьма впечатляющий своими к�
 ```bash
 magnet:?xt=urn:btih:AAA719DBDD291EA596FEC9128B79D8B2E177E28B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +678,8 @@ Omnibox позволяет (   Читать дальше...   )Тип изда�
 ```bash
 magnet:?xt=urn:btih:1EA06F41A0F1B4304100CEB8FF67CA49CE35221E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

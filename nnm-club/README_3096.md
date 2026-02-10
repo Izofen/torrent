@@ -28,6 +28,8 @@ VA - Весенний шквал новинок (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:92CF31744645A4B3F0A97C8D530B708BBAC28951
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ magnet:?xt=urn:btih:92CF31744645A4B3F0A97C8D530B708BBAC28951
 ```bash
 magnet:?xt=urn:btih:34506E1C263783E04044332EE4EB241463D6CD68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -83,6 +87,8 @@ E-Clip - Shuma (2011) [FLAC|Lossless]<Psychedelic / Progressive>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +123,8 @@ VA - Энергия ночных дискотек 50/50 (2012) [MP3|256 кб/с]
 magnet:?xt=urn:btih:890F14E1BCF5EDF5E28E6BC8C682BB224AD87EE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +155,8 @@ Egorythmia - Remixes 2011 EP (2011) [FLAC|Lossless]<Psychedelic / Progressive>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +185,8 @@ Egorythmia - Remixes 2011 EP (2011) [FLAC|Lossless]<Psychedelic / Progressive>
 magnet:?xt=urn:btih:62882D5BD883D92D1550A05CECEE6E91D14DF945
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +210,8 @@ magnet:?xt=urn:btih:62882D5BD883D92D1550A05CECEE6E91D14DF945
 ```bash
 magnet:?xt=urn:btih:73E256D6A8AF2D3F47DF1ED9D437371857C97FEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -230,6 +244,8 @@ Ix Lam At - Kin Ethics (2008) [FLAC|Lossless]<Psychedelic / Progressive>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +280,8 @@ VA - Танцевальный клубный поп хит vol.5 (2012) [MP3|256
 magnet:?xt=urn:btih:94CA42FEFF0691FABD1531B589FC8A149197560A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +315,8 @@ VA - Топ 100 3айцев.нет (04.04.2012) [MP3|128-320 кб/с]<Alternativ
 magnet:?xt=urn:btih:DCC035A67D1B3694EACA02982703A459AA2863F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +342,8 @@ Antropofagus - Architecture Of Lust (2012) [MP3|320 кб/с]<Brutal Death Metal>
 ```bash
 magnet:?xt=urn:btih:DCC42BF0138D6BC755162F0B749BA971EBA590CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +372,8 @@ magnet:?xt=urn:btih:DCC42BF0138D6BC755162F0B749BA971EBA590CD
 ```bash
 magnet:?xt=urn:btih:B8F0B55E534127045877F48F7349D7084B0807A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +408,8 @@ Tetuna - Crazy Trips (2012) [MP3|320 кб/с]<Psy Trance,  Full On>
 magnet:?xt=urn:btih:AB8CE0831575645A2EB32A20C765072E33C79573
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +437,8 @@ magnet:?xt=urn:btih:AB8CE0831575645A2EB32A20C765072E33C79573
 ```bash
 magnet:?xt=urn:btih:DB52E88ED8A32983BF5449BA8D9E540E113BBB5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +470,8 @@ Psycraft - Art Of Work (2008) [FLAC|Lossless]<Psychedelic / Progressive>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +499,8 @@ Psycraft - Art Of Work (2008) [FLAC|Lossless]<Psychedelic / Progressive>
 ```bash
 magnet:?xt=urn:btih:B421A45D44DA87FFF31AC9FAC1F3D4A537D41E8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +535,8 @@ VA - Made In The 90s (2012) [MP3|224-283 kbps]<Pop | Dance>
 magnet:?xt=urn:btih:4E539371B52F56136F879BD997DAD657753BFA10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +563,8 @@ magnet:?xt=urn:btih:4E539371B52F56136F879BD997DAD657753BFA10
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +588,8 @@ magnet:?xt=urn:btih:4E539371B52F56136F879BD997DAD657753BFA10
 ```bash
 magnet:?xt=urn:btih:BAAE2DB0CBF08D75B9A7C894073A3E1CE98927B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +624,8 @@ VA - Русский Best от DFM (2012) [MP3|256 kbps]<Pop | Dance>
 magnet:?xt=urn:btih:B26F91EE15CBAACF4B47D5FEF0D423BA0108369D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +654,8 @@ magnet:?xt=urn:btih:B26F91EE15CBAACF4B47D5FEF0D423BA0108369D
 magnet:?xt=urn:btih:7E08D4EF4D9B3705377841953B79C325DFE977D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +679,8 @@ magnet:?xt=urn:btih:7E08D4EF4D9B3705377841953B79C325DFE977D2
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -671,6 +715,8 @@ VA - Танцевальный клубный поп хит vol.6 (2012) [MP3|256
 magnet:?xt=urn:btih:DCCEF4EC092ADFCF626E1159AC1C24EBCDE8AE61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,6 +740,8 @@ magnet:?xt=urn:btih:DCCEF4EC092ADFCF626E1159AC1C24EBCDE8AE61
 ```bash
 magnet:?xt=urn:btih:1DF806C10D5E1473ADB5558372340AA889DDE1DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -728,6 +776,8 @@ VA - Лучшие сливки муз-весны (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:08303A9E7A3262BE89642649826F72297147F124
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -755,6 +805,8 @@ magnet:?xt=urn:btih:08303A9E7A3262BE89642649826F72297147F124
 ```bash
 magnet:?xt=urn:btih:9837A0A62FF6F8CC5DC7EFDBF2B0E7EB78ECF9F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,148 @@
+###  Публикация: 1315356   (513721) от 19.07.2019
+
+VA - Best Radio Tracks, Vol. 17 (2019) [MP3|320 Kbps] <Dance, Pop, Electronic>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Элджей - Sayonara детка (feat. Era Istrefi)
+02. Rompasso - Paradise
+03. Dophamean - Hands on Me (feat. Saia Lake)
+04. Armin van Buuren - Don't Give Up On Me (feat. Josh Cumbee)(   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 01:00:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A86C4E3BA0C50F0EDB31A581C97E82AD160E594E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315357   (513733) от 19.07.2019
+
+Вячеслав Малежик - Октябрь (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513733.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Однажды (Когда-нибудь)
+2. Ночной звонок
+3. Превратности любви (Про вора)
+4. Бред мой(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53F9548AE247B477C5B3CC4A279D5950D7904A71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930970   (513875) от 24.08.2015
+
+Duran Duran - Unleashed (2014) [FLAC|tracks + .cue]<New Wave, Pop-Rock, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soundburst Test   [0:06]
+  02. What Happens Tomorrow (Jiggy Joint Remix)   [3:52]
+  03. Serious (7-Inch Remix)   [4:32]
+  04. Someone Else Not Me (Peter's Honor Radio Mix)   [3:46](   Читать дальше...   )Жанр: New Wave, Pop-Rock, SynthpopПродолжительность: 01:18:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D3CF85D89BAD33ECA915B070F2F2B83717877C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315253   (513896) от 19.07.2019
+
+Johan Timman - Trip Into The Body (1981) Audio Works, Reissue CD, 1993 [MP3|320 Kbps] <Electronic, Pop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trip Into The Body (6:27)
+02. The Brain (5:51)
+03. The Heart (4:04)
+04. The Blood (The March Of The White And The Red Corpuscles) (6:28)(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 00:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6293A1B836B49B4C6937E59D3B73C41EDCEB7CFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315447   (513900) от 19.07.2019
+
+Peter Thomas Orchestra - In Discoland (1977) LP [MP3|320 Kbps] <Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Besame Mucho (3:07)
+02. Sunny (3:23)
+03. Chanson D'amour (3:21)
+04. Amor..., True Love, Caravan, Persian Market (5:32)(   Читать дальше...   )Жанр: Funk Soul, DiscoПродолжительность: 00:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94662E99365DCD3B26F1EA75BF740471F8115E09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242623   (513986) от 23.08.2018
 
 Levina - Perfect Life (2017) CDS, Single [FLAC|Lossless|tracks + .cue] <Pop>
@@ -19,6 +164,8 @@ Levina - Perfect Life (2017) CDS, Single [FLAC|Lossless|tracks + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:455C906E1A938FAD58524F481722B52B7F937B12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -47,6 +194,8 @@ Eros Ramazzotti - Stilelibero (2000) Europe [FLAC|Lossless|image + .cue] <Rock, 
 magnet:?xt=urn:btih:779CC0D63630EC4323DA394BD25509A1DB712DE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +222,8 @@ Chris de Burgh - At the End of a Perfect Day (1997) Reissue, 1988 [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:01C83AE2E9D3BA002F546EDF19582B74B59BA4EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +252,8 @@ Chris de Burgh - Far Beyond These Castle Walls (1975) Reissue, 1987 [FLAC|Lossle
 magnet:?xt=urn:btih:2CE69308E76A90D41EF21CB89F8F11C5C5E66F35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +280,8 @@ Chris de Burgh - Eastern Wind (1980) [FLAC|Lossless|tracks + .cue] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:D1288A368CCDD54B33877A283092D717C5AB52B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -155,6 +310,8 @@ Chris de Burgh - Power of Ten (1992) [FLAC|Lossless|tracks + .cue] <Pop Rock>
 magnet:?xt=urn:btih:F05D2385056ED5A43458BF0B6A0064343607C2ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +338,8 @@ Thompson Square - Just Feels Good (2013) Deluxe Edition[MP3|320 кб/с]<Pop, Po
 ```bash
 magnet:?xt=urn:btih:54254C685B62D5D6FD2E78D068158A8C643BF505
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +374,8 @@ VA - Best Of Dance '85 '86 '87 ZYX Music (1995-1997) [FLAC|Lossless]<Pop, Disco,
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +402,8 @@ VA - Best Of Dance '85 '86 '87 ZYX Music (1995-1997) [FLAC|Lossless]<Pop, Disco,
 ```bash
 magnet:?xt=urn:btih:B47CE9A1BDD07B93EA600EC8CA4DD30BD0ABCE31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +432,8 @@ magnet:?xt=urn:btih:B47CE9A1BDD07B93EA600EC8CA4DD30BD0ABCE31
 magnet:?xt=urn:btih:EEAB06DBCE63E5147152A01A6F373E4954596B96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +460,8 @@ magnet:?xt=urn:btih:EEAB06DBCE63E5147152A01A6F373E4954596B96
 ```bash
 magnet:?xt=urn:btih:6108543F023EAD3B8A93735D9DED50897A5AB588
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +490,8 @@ CD01:
 magnet:?xt=urn:btih:32F3F04C2B0AC21CD6357A6EF0EC7F124962E054
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +518,8 @@ Chris de Burgh - High On Emotion - Live from Dublin! (1990) Live [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:74C2592561583FEC6BEFFC3BAEC2EF987FE2B91F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +548,8 @@ CD01:
 magnet:?xt=urn:btih:5535632B4C028827AC0037CA350D19F59E76F4DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +576,8 @@ Chris de Burgh - Footsteps (2008) [FLAC|Lossless|tracks + .cue] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:14A93C02950BF2765EE74E1C8362E839D667C528
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +606,8 @@ One Dove - Morning Dove White (1993) [MP3|256 кб/с]<Trip-Hop>
 magnet:?xt=urn:btih:8EEBC88111F6E9430A03549E04E43271CCA16E95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +634,8 @@ VA - 80's Hits (2022) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:6386887EE340DAA7EA906A9802034F17B488DBF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +664,8 @@ Whitney Houston - I Wish You Love: More From The Bodyguard (2017) [FLAC|Lossless
 magnet:?xt=urn:btih:9A5E740F26DF926A37744787F58CFFDBEF8B3FE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +692,8 @@ Oliver Cheatham - Get Down Saturday Night (1983) 1990 [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:C8D70E3FDFE602473924B6605B8EA76F73A59F1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +722,8 @@ CD 01:
 magnet:?xt=urn:btih:91A0B396E18FF3421E7280E199FE53D83B84524C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,138 +751,7 @@ VA - Ibiza House Anthems: The Summer 2018 (2018) [MP3|320 Kbps] <Euro Dance, Pop
 magnet:?xt=urn:btih:CC8A7DB7B7A8787BD26E926A56B38F60262A7715
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241991   (517094) от 20.08.2018
-
-Чи-Ли - Сделано в Чили (2008) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Любовь - это яд (3:56)
-02. Сто один раз (3:31)
-03. Сердце (3:48)
-04. А может быть (Light Version) (3:48)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22462D192CE5E6A3D69154F7D5CC1E8E3E90D7A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241990   (517106) от 20.08.2018
-
-DJ Дождик - Почему же... (2006) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Босяк (4:15)
-02. Мы любим тех (4:29)
-03. Почему же (4:33)
-04. Баллада (3:36)(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52B16D75CB7CF86243A21A919D59577E31CE264D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930085   (517294) от 21.08.2015
-
-Coeur de Pirate - Carry On (2015) Single [FLAC|tracks|WEB-DL]<Pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Carry On   (3:37)
-02.  Oublie-moi   (3:35)Жанр: PopПродолжительность: 00:07:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:830B10DACAE8C5CCFE72FAD168F054351290C9BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929949   (517306) от 21.08.2015
-
-Coeur De Pirate - Coeur De Pirate (2008) [FLAC|Lossless|tracks + .cue]<Indie-Pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Le Long Du Large   (2:39)
-02.  Comme Des Enfants   (2:51)
-03.  Fondu Au Noir   (2:54)
-04.  Corbeau   (2:55)(   Читать дальше...   )Жанр: Indie-PopПродолжительность: 00:31:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7198C09E6104F7354CA39A405E138C6EE7CE23DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930005   (517312) от 21.08.2015
-
-Jess Glynne - I Cry When I Laugh (2015) Deluxe Edition [MP3|320 кб/с]<Pop, Dance, House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Strawberry Fields
- 02. Gave Me Something
- 03. Hold My Hand
- 04.  Real Love(   Читать дальше...   )Жанр: Pop, Dance, HouseПродолжительность: 01:11:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C062CACF3C955274BE3BFE11B7540DCC041F235
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

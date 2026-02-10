@@ -22,6 +22,8 @@ Tank - Re-Ignition (2019) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:C9517CF6F71CE4CC0841EE4529F485C679337105
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:C9517CF6F71CE4CC0841EE4529F485C679337105
 ```bash
 magnet:?xt=urn:btih:91D1470595B466A9D2B89BC15064C96D0425841D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:91D1470595B466A9D2B89BC15064C96D0425841D
 magnet:?xt=urn:btih:5AABDF72073C55A102248F1AC39AC271FB4A4FCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ RTG. Выходные в горах. Поселок Каменномостски
 ```bash
 magnet:?xt=urn:btih:CCB6B2235D93CFAD20CAC34607E4E617AFB9D18D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ LogViewPlus значительно облегчает просмотр запи�
 magnet:?xt=urn:btih:5F13BA8C4E23641A596F82E7DB8CA72A0AC2AD94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Dropzone - удобная утилита для автоматизация ру�
 ```bash
 magnet:?xt=urn:btih:24D951F8E161ABB43FD89B3026404BF9C8DA1A10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ Freddie Hubbard - Topsy (1990) Alfa Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop
 magnet:?xt=urn:btih:D143A14D33270B587192BFFEEC466D76EC7F4361
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ Blue Tattoo Blues Band - Made That Way (2014) [MP3|320 Kbps] <Electric Blues>
 magnet:?xt=urn:btih:59BED4C99E98267B5430F779A63587D23AC6BEDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:59BED4C99E98267B5430F779A63587D23AC6BEDF
 ```bash
 magnet:?xt=urn:btih:9F163686226D24651A82DBADC136BB1E558877D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:9F163686226D24651A82DBADC136BB1E558877D8
 ```bash
 magnet:?xt=urn:btih:55DF9F08252D209179924B836ED903811A6AFB1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +296,8 @@ Sawmix 1 (7:32)
 magnet:?xt=urn:btih:2BCC3A7B259AC6442BA12A52FC1A3701EDCF0DD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ magnet:?xt=urn:btih:2BCC3A7B259AC6442BA12A52FC1A3701EDCF0DD2
 ```bash
 magnet:?xt=urn:btih:01AF0D24B0ADC3A738E978F12D29AAFB4F0A9AB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ Spotify имеет громадный каталог музыки, поддер�
 ```bash
 magnet:?xt=urn:btih:50A6E203163291C9175528B3A0954DA5C643D412
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ magnet:?xt=urn:btih:50A6E203163291C9175528B3A0954DA5C643D412
 magnet:?xt=urn:btih:87ECF0935A053634251E7DA0FA53624EA4263FC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ magnet:?xt=urn:btih:87ECF0935A053634251E7DA0FA53624EA4263FC1
 magnet:?xt=urn:btih:CC55A355925ACBE84B8DE944794A6BFDDE326630
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ magnet:?xt=urn:btih:CC55A355925ACBE84B8DE944794A6BFDDE326630
 magnet:?xt=urn:btih:19F6104B1D40D5143A944E1E3C5E48B7D11626F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +457,8 @@ A Better Finder Attributes позволить изменить дату созд
 ```bash
 magnet:?xt=urn:btih:225A871A1B257E4298B154D7B60D61EEEFC55B1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +487,8 @@ Ben Sollberger Project - I Hate to Say (2021) [FLAC|Lossless|WEB-DL|tracks] <Mod
 magnet:?xt=urn:btih:03D9BEA3131C8F2978E23F36E738871E70FB861D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ Triad - новый многоканальный процессор на базе
 ```bash
 magnet:?xt=urn:btih:DAC5330FCAA4AD27DF974F774C2E97706EE1785E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +543,8 @@ Ellende - Ellenbogengesellschaft (2022) [FLAC|Lossless|WEB-DL|tracks] <Ambient P
 magnet:?xt=urn:btih:B23AB5E08F5BF401D4E62E1CCFDA2D68F17D53C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +568,8 @@ magnet:?xt=urn:btih:B23AB5E08F5BF401D4E62E1CCFDA2D68F17D53C9
 ```bash
 magnet:?xt=urn:btih:2222F26AB4F12435AFD1C23D8405612AFDA86038
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +598,8 @@ Frantz Amathy - In the Presence of Angels (2008) [FLAC|Lossless|tracks + .cue] <
 magnet:?xt=urn:btih:B51092B26DC3146F6F80C8AE13235C75587403AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +623,8 @@ magnet:?xt=urn:btih:B51092B26DC3146F6F80C8AE13235C75587403AB
 ```bash
 magnet:?xt=urn:btih:3F63045A03A7BF16BBE2874A75F3D03816DAD8E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +650,8 @@ Magic Uneraser Commercial / Office / Home / Unlimited Edition 6.7 RePack (& Port
 magnet:?xt=urn:btih:674858013C1D97A2486D2918F26B6F3117C53159
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +676,8 @@ magnet:?xt=urn:btih:674858013C1D97A2486D2918F26B6F3117C53159
 magnet:?xt=urn:btih:80639A6DC4FAEC1704E58423D0667D3F8E12AE58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ Skillshare | Astronaut Animation: Motion Graphics & Rendering in Cinema 4D & Red
 ```bash
 magnet:?xt=urn:btih:73212D656B381F060A7987B96640D665585F520F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

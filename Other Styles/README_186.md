@@ -28,6 +28,8 @@ Cornbread Red - Bluegrass Tribute To Linkin Park (2005) [MP3|320 кб/с]<Countr
 magnet:?xt=urn:btih:876F52B0F4FCED3522F1394D38B213321FEBEAD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ magnet:?xt=urn:btih:876F52B0F4FCED3522F1394D38B213321FEBEAD6
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:876F52B0F4FCED3522F1394D38B213321FEBEAD6
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +115,8 @@ CD1 1:06:55
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +149,8 @@ Enigma - Revival from Disuse (feat. Fato Deejays) 2009 (2009) [MP3|320 kbps]<New
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +185,8 @@ Enigma - Revival from Disuse (feat. Fato Deejays) 2009 (2009) [MP3|320 kbps]<New
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +213,8 @@ Mashrou' Leila - Ibn El Leil (2015) [MP3|320 кб/с] <Ethnic, Indie, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:1B58C3A76D1F8541C9AC83A5A20E5B62482E2924
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +243,8 @@ VA - Restart 2020 Chillout (2020) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
 magnet:?xt=urn:btih:C829429786327B1223A78A6E0E457E61972F37AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +271,8 @@ Bonny Light Horseman - Bonny Light Horseman (2020) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:6994E26268B53FFF58E3491A29F2740537C84C56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +307,8 @@ Cat Power - The Greatest (2006) [FLAC|Lossless]<Country Rock, Indie Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +332,8 @@ Hariprasad Chaurasia - Целительная музыка для Ayurveda (2005
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +368,8 @@ Hariprasad Chaurasia - Целительная музыка для Ayurveda (2005
 magnet:?xt=urn:btih:02B317654A07768A71998F5FE588CA0354388B1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +397,8 @@ Ludwig Goransson - The Mandalorian / Мандалорец (Original Score) (2019
 magnet:?xt=urn:btih:AFA7EA6D47CDD2E73305D002E92412C3C639A319
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +425,8 @@ Ludwig Goransson - The Mandalorian / Мандалорец (Original Score) (2019
 ```bash
 magnet:?xt=urn:btih:6B61320E00E324B39A46EE046D719D8A98271105
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +461,8 @@ CD 1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +495,8 @@ Hachiko: A Dog's Story (by Jan A.P. Kaczmarek) (2009) [FLAC|Lossless]<OST>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +531,8 @@ VA - В ритме танца (24CD) (2010 - 2011) [MP3|320 кб/с]<Instrumenta
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +565,8 @@ VA - В ритме танца (24CD) (2010 - 2011) [MP3|320 кб/с]<Instrumenta
 ```bash
 magnet:?xt=urn:btih:BE48034BBF68671906ED7076F90EBEB6FB4D0ABE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +601,8 @@ magnet:?xt=urn:btih:BE48034BBF68671906ED7076F90EBEB6FB4D0ABE
 magnet:?xt=urn:btih:91EEE8B48504151C965C3E9C15B33097DF2DBE42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +629,8 @@ Erich Kunzel / Cincinnati Pops Orchestra Featuring King'singers - Perform Music 
 ```bash
 magnet:?xt=urn:btih:EC71CCC78A31DEADAA15D9E0A280E025D0AA82DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +665,8 @@ VA - Русская народная героическая песня (2000) [M
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +693,8 @@ Gipsy Kings - Volare: The Very Best Of The Gipsy Kings (1999) [FLAC|Lossless] <F
 ```bash
 magnet:?xt=urn:btih:04360229AA315A5F9C118B9BB139F777306E0B8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -683,6 +727,8 @@ Tom Caufield - The Slow Dance Of Time (2011) [MP3|224 kbps]<New age, Guitar>
 ```bash
 magnet:?xt=urn:btih:65956ECE9DACEB58491E7A8615706BC2A88E2446
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -717,6 +763,8 @@ VA - Русские народные песни. Плясовые (2000) [MP3|32
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -740,6 +788,8 @@ Enya - дискография (7CD) (1988-2005) [WavPack (image+.cue)|Lossless] 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -773,6 +823,8 @@ Hans Zimmer - Шерлок Холмс / Sherlock Holmes (Original Motion Picture
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -28,6 +28,8 @@ VA - Piano Jazz (2009) [FLAC|Lossless]<Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -53,6 +55,8 @@ VA - Piano Jazz (2009) [FLAC|Lossless]<Jazz>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -87,6 +91,8 @@ Necondition - Original Necondition (2012) [MP3|320 kbps]<Ska Punk>
 magnet:?xt=urn:btih:08FC98CE9785E2F991DCB11BF201F67510D519D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +126,8 @@ Frank Popp Ensemble - Touch And Go (2005) [FLAC|Lossless]<Acid Jazz, Synth-pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +151,8 @@ Frank Popp Ensemble - Touch And Go (2005) [FLAC|Lossless]<Acid Jazz, Synth-pop>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +187,8 @@ Corby Yates - Back From Yesterday (2005) [APE|Lossless]<Blues Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +222,8 @@ VA - Operatic Metal Voices (2011) [MP3|320 kbps]<Symphonic Metal, Power Metal, G
 magnet:?xt=urn:btih:F9797B46E3EF989AFDDE87F6255E5541CEC988C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +256,8 @@ VA - Blacklite Tubes (2011) [MP3|192-320 kbps]<Psychedelic / Psy-Prog, Full On>
 magnet:?xt=urn:btih:ECD5E2C30C29E672582A245F4699F15D9CB5E1CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +289,8 @@ Astartica - Error Sapiens (2011) [MP3|320 kbps]<Psychedelic / Full On>
 ```bash
 magnet:?xt=urn:btih:3330D347962501F990921156388678C8A3004631
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +325,8 @@ Dollar Co. - Country Beatles (1981) [MP3|320 kbps]<Сountry, Rock>
 magnet:?xt=urn:btih:9514C728DD2E50B33B55BB70BFD4892452F75F67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +359,8 @@ Bap Kennedy - The Sailor's Revenge (2012) [MP3|320 kbps]<Rock / Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:CC44893FDAE7CCEACF166617D86867ECE2229A23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +395,8 @@ Armin van Buuren - A State of Trance 548 (16.02.2012) [MP3|256 kbps]<Trance>
 magnet:?xt=urn:btih:4E061A853AD1016A338737AAED0F8C610B3AFCFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +422,8 @@ magnet:?xt=urn:btih:4E061A853AD1016A338737AAED0F8C610B3AFCFC
 ```bash
 magnet:?xt=urn:btih:954D17CC51D5681ACE93FA98B2F78AE5905E3F18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +458,8 @@ Simon Kirke - Filling the Void (2011) [APE|Lossless]<Classic rock / Soft rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +490,8 @@ Headlock - The Lasting Eternity EP (2012) [MP3|320 kbps]<moshcore, hardcore, dea
 ```bash
 magnet:?xt=urn:btih:84470CAE2260E04749E989AE640EFE52CAFE280A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +526,8 @@ CD1: Продолжительность: 01:10:04
 magnet:?xt=urn:btih:CBA53D8F65413C9991CA567B5CEBB2236F5F137B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +560,8 @@ VA - Ultimate Drum & Bass Vol 3 (09/02/2012) [MP3|320 kbps]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:02400C0E06486C05B96A58AC53DA847410D9E9E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +596,8 @@ Gray Sargent - Shades of Gray (1993) [FLAC|Lossless]<Guitar Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +630,8 @@ Lena Horne - Love Songs (1999) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +666,8 @@ Udi Levy - Ahava (2011) [FLAC|Lossless]<Smooth Jazz, Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +700,8 @@ Caribbean Jazz Project - Mosaic (2006) [FLAC|Lossless]<Latin Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -684,6 +726,8 @@ Caribbean Jazz Project - Mosaic (2006) [FLAC|Lossless]<Latin Jazz>
 magnet:?xt=urn:btih:EC6C66547B104A88D7BA6E8CAA3FF8F74504AAB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -707,6 +751,8 @@ magnet:?xt=urn:btih:EC6C66547B104A88D7BA6E8CAA3FF8F74504AAB1
 ```bash
 magnet:?xt=urn:btih:EDD4FEE1999A78EBFB3789F2EEE821DBB4CA41C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -741,6 +787,8 @@ Seven Seals - ... of Contradictions (2012) [MP3|320 kbps]<Heavy/Power Metal>
 magnet:?xt=urn:btih:D68B8095C5548FD51A1AD494D83C997BEA751F08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -774,6 +822,8 @@ UFO - Seven Deadly (2012) [FLAC|Lossless]<Hard Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -806,6 +856,8 @@ Tony Bennett & K.D.Lang - A Wonderful World (2002) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ PrivaZer - полезная утилита, которая поможет вам
 magnet:?xt=urn:btih:8236E95947FFCAAF007F3973776C047783D94F1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Media Player Classic Home Cinema - удобный во всех планах м�
 ```bash
 magnet:?xt=urn:btih:EE311AAB68D73DED042EF298C279A9966D8E330C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Ashampoo Music Studio – это зарекомендовавшая себя п�
 magnet:?xt=urn:btih:4109DED1B76CC6E67626AD3E649CBAAE133F1443
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ UltraSearch Professional находит файлы и папки на локал
 ```bash
 magnet:?xt=urn:btih:82F75ED18AB1AA44AC50F2E340609E00EDE5411E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ ISO Workshop – небольшая программа для работы с о
 magnet:?xt=urn:btih:CC2CFA8CF81F79CC31C0FB1245F8E45A1077BAB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ OCCT 13.1.1 Final Portable [En]
 ```bash
 magnet:?xt=urn:btih:6D2230740FC20E42D4AB6428E8627416A6195AC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ R-Studio Network 9.4 Build 191338 (x64) RePack (& Portable) by TryRooM [Multi/Ru
 magnet:?xt=urn:btih:D7F0BEAFAF19C6ED4B2024A6F7E739DE4E7126AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Auslogics Driver Updater – программа представляющая с�
 ```bash
 magnet:?xt=urn:btih:517F6F9359F38DC5F066BFF231FCBB7615055926
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Fast Video Downloader - удобная и простая в настройке �
 magnet:?xt=urn:btih:F3CC2FE3A9261FC88885B24B0C09D6FA0CC26E3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ DaVinci Resolve — единственное в мире решение для �
 ```bash
 magnet:?xt=urn:btih:503D94E6127DA0FC4DE8C08B18B42A0D9C2946FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ CCleaner - утилита для чистки мусора в операцион
 magnet:?xt=urn:btih:66E9CBD29BE9DACF088B6FB6D5069522E0EB5BDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:D88F2BFB90F15384D5923C498296D6DDA561979B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ NoMachine – это средство доступа к удаленным ра�
 magnet:?xt=urn:btih:9AAA790B8B390B6432EB44B5D3D638E78C20BB2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ WinTools.net – набор инструментов для оптимизаци
 ```bash
 magnet:?xt=urn:btih:993CACDBB5407723E68BA58CD364EDB028E29AAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Atlantis Word Processor 4.4.0.1 Repack (& Portable) by elchupacabra [Ru/En]
 magnet:?xt=urn:btih:E71ED4DBF19DA5083E705E4127CDE6DB38651716
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Audacity - свободный, простой в использовании зв
 ```bash
 magnet:?xt=urn:btih:74E3DBA060E6BAC91B98038DFF0A2C92DF357FF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ MediaHuman YouTube to MP3 Converter 3.9.9.93 (0715) RePack (& Portable) by elchu
 magnet:?xt=urn:btih:71965A59B0318D53F3BFDA71B858882F0BADA422
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Opera One 112.0.5197.25 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:80C30F910ADC241B352C2804E6EA479DCA3D43AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ EssentialPIM - это отмеченное различными наградам
 ```bash
 magnet:?xt=urn:btih:DD49340D2D1D84731452660B3A33378F38EFF1CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ Blender - бесплатный редактор трехмерной графи�
 magnet:?xt=urn:btih:1BCB61DAB8FFA89E6E355CC9046320E802744816
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ KiCad – уникальный в своем роде программный п�
 magnet:?xt=urn:btih:095B7F0FC86EC7E8AFECCC1DAF6A4599D1E7B96F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:E528EF00786283293C50FE081B5210C6993FE641
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ iFind Data Recovery - программное обеспечение для во�
 magnet:?xt=urn:btih:B8575E5267FF85AE221377A29C65C26F808AA637
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ DLNow Video Downloader - быстрое, полезное, практичное 
 ```bash
 magnet:?xt=urn:btih:9E1E95F70ACA0E8E02465692CF6496E4AED8DFD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ HopToDesk - это бесплатный инструмент для удален
 magnet:?xt=urn:btih:B86F7BDCD647945A05D7E16AAADAB34CDFB5507E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ SplitCam - бесплатная программа способная сущес
 ```bash
 magnet:?xt=urn:btih:352C9ECCA3C35D003DA692B4B7BC15766D15BED9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

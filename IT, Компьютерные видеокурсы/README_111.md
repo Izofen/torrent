@@ -22,6 +22,8 @@ MakeWeb | Практический курс «Javascript Fullstack разраб�
 magnet:?xt=urn:btih:470FC7D19C88E2D52A243722484367D19E29FE90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Udemy, ZTM Academy, Andrei Neagoie | The Complete Junior to Senior Web Developer
 ```bash
 magnet:?xt=urn:btih:FA56DA34EA78D11B4491458E10207CFB06B8B3E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Udemy, Stephen Grider | React и Typescript: создание портфолио
 ```bash
 magnet:?xt=urn:btih:40CD10197A99945B89DA5758B834D26C6B853422
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Total TypeScript Core Volume подходит для любого разрабо
 magnet:?xt=urn:btih:DEDBB759755F7B9727F69231BF24DAF0CD379205
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ OTUS, Наталья Науменко | Супер-интенсив "CI/CD ил�
 magnet:?xt=urn:btih:64F9F1DE6A71010E0A8E212801A6EE30040E8227
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ Udemy, Виктор Черемных | Кибербезопасность (2020)
 magnet:?xt=urn:btih:DDC326C863F645A0A62FB9D9B1A0EA0B0CC840E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Udemy, Jose Portilla м др. | Go: Полноценный Bootcamp (Golang) / G
 ```bash
 magnet:?xt=urn:btih:69DA77B3521DA6205BDEA78BAF4DF3B396D0F94A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ OTUS, Михаил Кузнецов | Супер-интенсив "Версио�
 magnet:?xt=urn:btih:96FFAADF7CF0B5FF97E3928099830561DE7246C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ Udemy, Jose Portilla | 2021 Полный Python Bootcamp: c нуля до гер
 ```bash
 magnet:?xt=urn:btih:8077BC882CF431654D3A7631FAF81B0831B8A319
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ react12.io, Reed Barger | Создайте YouTube с помощью React / Bui
 magnet:?xt=urn:btih:8D1E5CB11BF30BB208FE976110A0FD7BB9B2A7DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ OTUS, Любовь Данилова и др. | Автоматизация тес
 magnet:?xt=urn:btih:6D795931E2CB8E49F138C82237F2E202EEC60E6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ OTUS, Анастасия Асеева-Нгуен и др. | QA Lead. Часть 
 ```bash
 magnet:?xt=urn:btih:A82927BD430AFDD947B134DB7B0A22B1BAE84E73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +350,8 @@ Coding For Entrepreneurs | Проекты и курсы. Django (2020) PCRec [En
 magnet:?xt=urn:btih:AF8BD7C007F5AD643E5AC2BB6D4AC90F43AF1CD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ Udemy, Dr. Angela Yu | iOS 13 и Swift 5 - Полное руководство �
 magnet:?xt=urn:btih:8C05D8D5AF7C11679F5DCAD442B4C4C12C066555
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ Udemy, Joseph Delgadillo и др. | The Complete Full-Stack JavaScript Course! (
 ```bash
 magnet:?xt=urn:btih:F86CB3119459B2C88DC68171142C1BC488CDFB09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ Udemy, Chad Darby | Spring & Hibernate for Beginners (includes Spring Boot) (202
 magnet:?xt=urn:btih:441E602C48DA4FE3D792281B39E494EA87DFBCA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ Coding Ninjas | Java Foundation with Data Structures & Algorithms (2020) PCRec [
 magnet:?xt=urn:btih:2C2D991C8106EEC06F96227888D41BC1E7F1127B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ Coding Ninjas | Ninja Web Developer Career Track - NodeJS & ReactJs (2020) PCRec
 ```bash
 magnet:?xt=urn:btih:EEDD3D006A12E5123738FF80014303E91EA05273
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +511,8 @@ Coursera, Indranil Gupta | Cloud Computing Concepts, Part 1-2 (2020) PCRec [En /
 ```bash
 magnet:?xt=urn:btih:EB08CC522CB177E3FEA2CC146655EB5F5BE3B004
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +541,8 @@ Udemy, Алекс Маршал | Golang для начинающих (2021) PCRec
 magnet:?xt=urn:btih:9A9EB062CFD6D069A8562A2DA60642A9ED39E03C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +570,8 @@ Udemy, Maximilian Schwarzmuller | React - The Complete Guide (incl Hooks, React 
 magnet:?xt=urn:btih:BAE56EA210072F116FCCF811C03867BFF05BCC6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +596,8 @@ CSS - сокращение от Cascading Style Sheets - это «язык пр�
 ```bash
 magnet:?xt=urn:btih:AAD79995715FC3F4DBE36EE82F0999D57A3D1268
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +624,8 @@ Udemy, Эдуард Козлов | Изучаем PHP с нуля (базовы�
 magnet:?xt=urn:btih:EDC1A86C520248E01F9F5B1E815C0F4CC9779C18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +651,8 @@ Udemy, Олег Новиков | Сайт на Django 3.1 Реализация �
 magnet:?xt=urn:btih:E3366B11347C19D97F139FBB9CE74316FA0D675F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +677,8 @@ Udemy, Kazi Ariyan | Django 3 - Python Backend Web Development For Beginner (202
 ```bash
 magnet:?xt=urn:btih:D6C062E81173825B4DB45028B0EACC49FB3D4B4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -656,6 +706,8 @@ Udemy, Code Star Academy и др. | The Complete Oracle SQL Bootcamp (2021) PCRe
 ```bash
 magnet:?xt=urn:btih:837177275AD9E2E78FE6C2366221FCF42AB5B918
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

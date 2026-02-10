@@ -19,6 +19,8 @@ Kokoro Connect / Единение сердец [2014, TV, 12 ep + 4 sp] BDRip Hi
 magnet:?xt=urn:btih:8CF8EED22D8FC994D10D8C2AA48C8F88253F08A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Ochikobore Fruit Tart | Dropout Idol Fruit Tart | Отикоборэ: Фрукт
 ```bash
 magnet:?xt=urn:btih:32DD94D854CFEA8185A367F26FAFDC002D7FF9A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:32DD94D854CFEA8185A367F26FAFDC002D7FF9A0
 magnet:?xt=urn:btih:38FA083ACF48AF410F95FC3163E163CA40E40E91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Mahou Shoujo Madoka Magica / Девочка-волшебница Мадока [2
 ```bash
 magnet:?xt=urn:btih:64F6D4B39F3A9909423F8235F9A731BEE206E379
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Tsuujou Kougeki ga Zentai Kougeki de Nikai Kougeki no Okaasan wa Suki Desuka? | 
 magnet:?xt=urn:btih:FC8A29EE44D08BC2419816C5F9550FD83964ADDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Asura / Асура (2012) BDRip 1080p rus
 ```bash
 magnet:?xt=urn:btih:FF776DA950F682C299F747EC2E0573F790B62859
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Fairy Tail / Сказка о Хвосте феи [2011, OVA, 6] DVDrip 480p raw 
 magnet:?xt=urn:btih:AB7C9DC0BCEF334CF00E1AFAEF6D7FA74F1CEB67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Shin Gekijouban Initial D / New Initial D / Новый Инициал Ди [2014
 ```bash
 magnet:?xt=urn:btih:5F7FA6CF8199C87A2DB606511A24ED447AF06091
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Boku no Hero Academia (2019) / My Hero Academia Season 4 / Моя геройск
 magnet:?xt=urn:btih:C5C775820625D3691E0F5782F746E4FC34588DF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Initial D Final Stage / Инициал Ди Финальная стадия [201
 ```bash
 magnet:?xt=urn:btih:E86E49F7A4F53666F43811466B5A87B66CF2E58C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Gungrave | Гангрейв [2003-2004, TV, 26] BDRip 1080p raw+eng+rus x3
 magnet:?xt=urn:btih:5FD55559B666BB6DDDE81022233EC13B3F35A61D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:5FD55559B666BB6DDDE81022233EC13B3F35A61D
 magnet:?xt=urn:btih:F01474E36BB1C7F15714C847BCDD2BE5E7E91B5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +330,8 @@ Hacka Doll The Animation / Цифровые куклы [2015, TV, 13] HDTV 720p 
 ```bash
 magnet:?xt=urn:btih:FB4F5C38E55039BD9E01C1E66C6204127B7DBB69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Mangaka-san to Assistant-san to The Animation / The Comic Artist and His Assista
 magnet:?xt=urn:btih:5FFD24B25FF0363ECB29085E5D9941F0104ABB6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Koukaku Kidoutai: Shin Gekijouban / Ghost in the Shell: New Movie / Призра
 ```bash
 magnet:?xt=urn:btih:8687C6EA3F806AFBFE565909E4616FA0DB9416AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Koukaku Kidoutai: Shin Gekijouban / Ghost in the Shell: New Movie / Призра
 magnet:?xt=urn:btih:908A0C10483D7281EA7A9082EFA8A80CE75F8FA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ Made in Abyss | Созданный в Бездне [ТВ-1] [2017, TV, 13 ep] BD
 ```bash
 magnet:?xt=urn:btih:DF9ECDA6DE04BB8AD9E5731B5C2A2E13D2C9309B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ Angel Heart / Сердце ангела [2005, TV, 50 из 50] SDTV 576p raw + r
 magnet:?xt=urn:btih:DAE9EA6DDAFCF3FA516D5AEB92F5A239F01A9DDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ Koukaku Kidoutai Arise: PYROPHORIC CULT / Ghost in the Shell ARISE: PYROPHORIC C
 magnet:?xt=urn:btih:30B0C817FA4D90055D8586202B25D42FD977D036
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ Tokyo Majin Gakuen Kenpuchou Tou / Tokyo Majin Gakuen Kenpucho To / Токийс
 ```bash
 magnet:?xt=urn:btih:2348254D4C5F8F29213B51C8CBEA560306B15E78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ Lily C.A.T. | Lily Cat | К.О.Т. Лили [1987, OVA] LDRip 480p 10bit raw+rus
 magnet:?xt=urn:btih:605447E3DD47902F74565577BB74EC1232AC79E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Runway de Waratte | Улыбайся на подиуме [2020, TV, 12 из 12] 
 magnet:?xt=urn:btih:AD29AD74F5CCA4C9F1AEB771540D8951B8A3F4D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Magia Record: Mahou Shoujo Madoka Magica Gaiden | Истории о магии: 
 ```bash
 magnet:?xt=urn:btih:B77C1414A882E464B927CD5A2EF8E1C147C89736
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ Nekopara (2020) | Кошачий рай (ТВ) [2020, TV, 12 из 12] WEB-DL 108
 magnet:?xt=urn:btih:4DDA06C9EA3420D5140BE7F6491D80ECE74F784A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Ixion Saga DT / Ixion Saga: Dimension Transfer / Иксион сага: Прос
 ```bash
 magnet:?xt=urn:btih:A49457FCDB8F1E4D22D051FA59DBFF5186D6588C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +678,8 @@ Shinryaku! Ika Musume / Invasion! Squid Girl / Вторжение Кальмар
 ```bash
 magnet:?xt=urn:btih:D68F260EDDC98ED70784CE1EE26F2FA75586C990
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

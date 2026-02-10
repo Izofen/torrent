@@ -22,6 +22,8 @@ Luca Turilli - Prophet Of The Last Eclipse / Demonheart (2002) [FLAC|Lossless|im
 magnet:?xt=urn:btih:AB14CAEA4DAB1007A3F3BF7132B8FCD55B44FBB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:AB14CAEA4DAB1007A3F3BF7132B8FCD55B44FBB0
 magnet:?xt=urn:btih:8D9F99C245410957A7E56E19F150CA9EC1E1DCE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:8D9F99C245410957A7E56E19F150CA9EC1E1DCE4
 ```bash
 magnet:?xt=urn:btih:181F8A9D82C437437C052E5F38029E789AC8A09E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Interment - Life Here After (2016) Compilation [FLAC|Lossless|image + .cue] <Dea
 magnet:?xt=urn:btih:37FD5DD7C9149CF8B101D70D67C50C9336208329
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:37FD5DD7C9149CF8B101D70D67C50C9336208329
 ```bash
 magnet:?xt=urn:btih:1F79A2F3A7E6C59036CB900A93F71938FB2BCEA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ The Beach Boys - Sail On Sailor (1972) 6CD, Super Deluxe, Remaster, 2022, Capito
 magnet:?xt=urn:btih:31AB1BAF1738B3797F3D367034DD274344A47845
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:31AB1BAF1738B3797F3D367034DD274344A47845
 ```bash
 magnet:?xt=urn:btih:1DCBBF86A92D67097F9E4BAC7706EF93924FC911
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:1DCBBF86A92D67097F9E4BAC7706EF93924FC911
 magnet:?xt=urn:btih:6FE90C157AEA7CA924F4110CB09BF48BC0B4727A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ B - Man Ov SteelЖанр: Industrial, Progressive Death MetalПродолжит�
 ```bash
 magnet:?xt=urn:btih:5ECD61F490627987AC99F4D9587F97C78D9D5D4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ Kingston Wall - II (1993) Mix, 2023, WM Finland [FLAC 24/96|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:1E91D7024EE21A4CC2A2B4306784F6BB603CF8F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ BBC: Чудеса Солнечной Системы / Wonders of the Solar Syste
 magnet:?xt=urn:btih:42C2238C2EC488B9E0B4BA03C16516C008F0C44E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:42C2238C2EC488B9E0B4BA03C16516C008F0C44E
 ```bash
 magnet:?xt=urn:btih:47571B48A5362C03554C34A0F0BBAE26B8BBDFDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ Eradikated - Descendants (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Meta
 magnet:?xt=urn:btih:7079EEE9BF6A350E91E924604FBEC4F3A49841E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:7079EEE9BF6A350E91E924604FBEC4F3A49841E7
 ```bash
 magnet:?xt=urn:btih:0FD790267036C4BA0D40BECCD086A2D9F1A157E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ Graveyard of Souls - Mental Landscapes (2017) [FLAC|Lossless|image + .cue] <Doom
 magnet:?xt=urn:btih:E6D1385660592BE16A4730E87AC0B8720E15E2D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ magnet:?xt=urn:btih:E6D1385660592BE16A4730E87AC0B8720E15E2D1
 ```bash
 magnet:?xt=urn:btih:4703512D051F2B640F81DF33FB154ADC8EDF7275
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +457,8 @@ magnet:?xt=urn:btih:4703512D051F2B640F81DF33FB154ADC8EDF7275
 ```bash
 magnet:?xt=urn:btih:AB002FA8AD9D26E3723515421BD2319E890E76B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +487,8 @@ Bucilla | Схемы для вышивки крестом фирмы Bucilla (19
 magnet:?xt=urn:btih:DF8D693281AA5ECEA5125ED321805C1F3F2EB515
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +515,8 @@ Kingston Wall - I (1992) Mix, 2023, WM Finland [FLAC 24/96|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:4AF158D4A9E163583DC8F821D3261D425F69062C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +545,8 @@ magnet:?xt=urn:btih:4AF158D4A9E163583DC8F821D3261D425F69062C
 magnet:?xt=urn:btih:798EE484E84B11209FB9C1C125E115467FD70B13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +570,8 @@ The Surge - киберпанковая RPG от немецкой студии De
 ```bash
 magnet:?xt=urn:btih:6F05BF7C35C63F1E28AABBB9B0C28C04596DF47C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +600,8 @@ magnet:?xt=urn:btih:6F05BF7C35C63F1E28AABBB9B0C28C04596DF47C
 magnet:?xt=urn:btih:3DCEBC1F54C7993D4B4FAC7A1B9B72EA13FE951C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ magnet:?xt=urn:btih:3DCEBC1F54C7993D4B4FAC7A1B9B72EA13FE951C
 ```bash
 magnet:?xt=urn:btih:6CECD9F54D78453976AAEE3F86A2EA2A33F1856A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +652,8 @@ magnet:?xt=urn:btih:6CECD9F54D78453976AAEE3F86A2EA2A33F1856A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +677,8 @@ magnet:?xt=urn:btih:6CECD9F54D78453976AAEE3F86A2EA2A33F1856A
 ```bash
 magnet:?xt=urn:btih:BC2506E82C9865F69A072FB8FCF92EF54406F9EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -656,6 +706,8 @@ Mirrors Of Mind - Тишина Становится Тобой (2022) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:D4B692C29D66FB7628C6B010C7D0C73AF3FBCF2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

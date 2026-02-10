@@ -19,6 +19,8 @@ MassTube Plus — очень простая в использовании про
 magnet:?xt=urn:btih:3734CC9007E5EC20616A93980187468F6CE8D416
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:EBA56E2A9E51A978A93DBFA5442EFB211A579577
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Live синхронизирует все и работает в режиме р�
 magnet:?xt=urn:btih:9E69A88915B9A86687FE7D449A1DC8FC617FB0ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Glary Utilities - комплексный набор инструментов д�
 magnet:?xt=urn:btih:B0F405068BB13E9B1BF4960BD194A370597FC9F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Windows Firewall Control - утилита, с помощью которой, в�
 ```bash
 magnet:?xt=urn:btih:D0423FFB2F385D6590B8865E28D5B45EE014C7D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ MEmu позволит играть в любимые игры на персон�
 magnet:?xt=urn:btih:F4C82AEC47282A945B87F61E6ED04AA6DC8F17AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:820A4158FEF7E7CA7A19BD4C661BB6DF93FCBE26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ R-Drive Image — является эффективной утилитой дл�
 magnet:?xt=urn:btih:DD503985189941BB49DDAF18E2930C88B5192305
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:DD503985189941BB49DDAF18E2930C88B5192305
 ```bash
 magnet:?xt=urn:btih:6BC541FE398D903A73A0045F4D3D23BF827CBFC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Capture One - один из лучших профессиональных кон
 magnet:?xt=urn:btih:877CB9DD94B28A93A1BE46AE8DF14BE25E114F34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Far manager — бесплатный файловый менеджер с под
 ```bash
 magnet:?xt=urn:btih:7D1753814F2BC19F7C5AF487A153A29A30E2B95A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Adobe Photoshop Lightroom Classic 2024 13.1.0.8 (x64) Portable by 7997 [Multi/Ru
 magnet:?xt=urn:btih:69B4B25227A8A2FC8E2F075E19A0FE6BE6EED146
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:831BFC4D72BBF9BE95A80E44C362CCDCA9C071BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 magnet:?xt=urn:btih:3DF2428EF439086ADDF3C949BEA8BBD2BBF50564
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Visual Studio Enterprise 2022 - Интегрированное комплекс�
 ```bash
 magnet:?xt=urn:btih:6D6589279626B36DFB581F84126017F952344223
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:6D6589279626B36DFB581F84126017F952344223
 magnet:?xt=urn:btih:9B087BA11C5CDC4F7C1D1ADA6F80FBBF6C3B3A18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Skype - бесплатная программа для текстового, г�
 ```bash
 magnet:?xt=urn:btih:EF7AC047C203665B7C84FD9421B7544098E6ABB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ AllDup - бесплатный инструмент для поиска и уда
 magnet:?xt=urn:btih:613F080EE439D6CCE7F02B752E7B80E66DB8FF18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Microsoft PowerToys – это набор утилит, позволяющих �
 ```bash
 magnet:?xt=urn:btih:3299BA4D7FBBFD606A97BE7552C2F9CF87081320
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ Media Player Classic Home Cinema - удобный во всех планах м�
 magnet:?xt=urn:btih:1620AD1DAF45BA93FCF7941A0133D2ACFE57A9CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Ultra GPS Logger - удобное, функциональное и универ�
 ```bash
 magnet:?xt=urn:btih:50618C97434B2BE721851C075DF5F84F326E6257
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:50618C97434B2BE721851C075DF5F84F326E6257
 magnet:?xt=urn:btih:EA907FD62F67600EDBF524A6ACBF3890F677D8AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ VueScan - программа предназначена для замены ст
 ```bash
 magnet:?xt=urn:btih:AAD22E8102C3B54E051127CC939102266CA7A59A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ OCCT 12.1.14 Final Portable [En]
 magnet:?xt=urn:btih:F77287292CB884997F4031F2E0A6FCEA75D9F0DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:F486FC1042DEE475ED2A14B5C4DAF41F052D55DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +673,8 @@ Chromium-Gost — это модификация стандартного бра�
 ```bash
 magnet:?xt=urn:btih:BCFD742550D8269022386562B397D0BE1B0C236E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

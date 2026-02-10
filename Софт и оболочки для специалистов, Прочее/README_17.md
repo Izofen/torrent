@@ -19,6 +19,8 @@ PowerPlan v3.2e & Trackpad++ v3.5b [En]
 magnet:?xt=urn:btih:1C78D05B4DA8CD0555D81A8E778888B77AB422A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ ZX Custom RegTweaker 2.1 Portable [Ru]
 ```bash
 magnet:?xt=urn:btih:542BE67AE643BD23CBD4B82C396127F5A24E801D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Wall Street RоВоt - форекс советник для МТ4/МТ5 4.2 [Eng
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Wall Street RоВоt - форекс советник для МТ4/МТ5 4.2 [Eng
 ```bash
 magnet:?xt=urn:btih:1FE64267F275096D50ECD6A37B843636BA804CED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Logitech Setpoint - программное обеспечение для мыш�
 magnet:?xt=urn:btih:0B8D7F58F21DBF003329DC942AF02B6A1A2D733B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:0B8D7F58F21DBF003329DC942AF02B6A1A2D733B
 ```bash
 magnet:?xt=urn:btih:1EA58EE44BAAB954A9A057DAFC44F86481C4F123
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ SoMachine 4.1 SP1.2 [Multi]
 magnet:?xt=urn:btih:694E909136B4410A14E1D1E795BBF8128EF0CE65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Driver Signature Enforcement Overrider - программа для подпис�
 ```bash
 magnet:?xt=urn:btih:EC054E4FA2F2B17EAD9C6E94EC4610816CD71670
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ HDL Designer представляет собой мощную среду раз�
 magnet:?xt=urn:btih:B5F6F09041B977B452001FA3D457BFDD37330F01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Mentor Graphics ModelSim SE 10.4 [En]
 ```bash
 magnet:?xt=urn:btih:C36D25E90653DE4F21838F58E5DE8777C899C195
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Resistor Colour Code Solver - это маленькая программа дл�
 magnet:?xt=urn:btih:AA213E07CC316969206BADEDC61D21844AC92875
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ FireDaemon Pro это системная утилита, позволяющая 
 ```bash
 magnet:?xt=urn:btih:8ECE0436E444108922A0EE0747DCFA6B35EDB467
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Microsoft SQL Server — система управления реляционн�
 magnet:?xt=urn:btih:942A4E6E60693857C83DDC3EE9C62C130143BEFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Microsoft Desktop Optimization Pack 2015 (x86-x64) [Multi/Ru] WZT
 ```bash
 magnet:?xt=urn:btih:31B0600934D76CB6CA90C9396451DCB466B1584A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Mkey 1.3.5 [Multi/Ru]
 magnet:?xt=urn:btih:32F988BEBF8DD439619536C0868FAAEEE37028F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Autodesk СПДС модуль – новое дополнение к проду
 ```bash
 magnet:?xt=urn:btih:4E488A4252983DCB00DEB745CB0F5C14235378BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ Mirillis Action! v 3.9.6 [Multi/Ru]
 magnet:?xt=urn:btih:E63E34D1C3ABFCE14403C867D12062BA96F2AA7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ BOOTICE - утилита для изменения или бэкапа/восс�
 magnet:?xt=urn:btih:B1F985B3D556BA5BA4E4EE1C1C8AED408F30238D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ Wing IDE - интегрированная среда разработки, пр�
 ```bash
 magnet:?xt=urn:btih:270B09F7F29671B7486E47C9BCEA1B70CF582A98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ Dreamweaver упрощает и ускоряет разработку, напи�
 magnet:?xt=urn:btih:F21D99297BE7962DC5F989E1DC81B1FFC4D3C3D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Autodesk СПДС модуль – новое дополнение к проду
 ```bash
 magnet:?xt=urn:btih:F78A06467AC79D6E4DAF9F93F0746E4B6B43C05E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Total CAD Converter-программа для конвертирования ф�
 magnet:?xt=urn:btih:80F32A62337830A4ABDC5BFC489328952D394A85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ MySQL — свободная реляционная система управл�
 ```bash
 magnet:?xt=urn:btih:79C4AA687AFE4C39D2FD48FD888E55251D451E44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ RADIO AdsMan Pro 2.2.2.140 [Ru/En]
 magnet:?xt=urn:btih:620DBDA38EEC3F6F859551548915BCBA6DC3DB8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Netfabb Private 5.2.1 [Multi/Ru]
 magnet:?xt=urn:btih:03F5772036B5A84F63C90AC3858211DF54B3E475
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ SDK (software development kit) для Sony PlayStation 4 это набор ср�
 ```bash
 magnet:?xt=urn:btih:4EB6FDC6ED6F1C1DAA07C7EEE931A9FA0A6FDFD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

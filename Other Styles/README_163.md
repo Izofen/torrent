@@ -28,6 +28,8 @@ VA - Классика русского романса (2008) [MP3|320 кб/с]<�
 magnet:?xt=urn:btih:FF2330E34150416881F279E0BE953B4AD0B29B44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ New Bums - Voices in a Rented Room (2014) [FLAC|Lossless]<Lo-Fi, Indie Pop, Acou
 ```bash
 magnet:?xt=urn:btih:AB940D8AE523040387ADF4A56A5BD8795080112E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ Buedi Siebert - 3 albums (1995-2003) [MP3|320 кб/с]<New age, Relax, Meditativ
 magnet:?xt=urn:btih:F68D2066557F98C68CB361A06E3C478922EBE100
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +132,8 @@ CD1Жанр: InstrumentalПродолжительность: 01:10:05
 ```bash
 magnet:?xt=urn:btih:079C1C1666C6C6FE2F9C6DC9A6A6883AFD3121F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +168,8 @@ Ara Dinkjian - Peace on Earth (2008) [MP3|112-320 кб/с]<Instrumental, Ethnic,
 magnet:?xt=urn:btih:6304F59BDA8A3F1A5C0D36F2152BCBBD08B54F80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +203,8 @@ Nicole - Night Tree (2003) [MP3|256 кб/с]<New age, Instrumental, Native ameri
 magnet:?xt=urn:btih:EAEC04700E65CC246B30754E6D5F93C4503E7435
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +231,8 @@ Ryuichi Sakamoto, Alva Noto & Bryce Dessner - The Revenant / Выживший (2
 ```bash
 magnet:?xt=urn:btih:E9487F1838B0112A77ED2C62D6129BFD6B77162C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +262,8 @@ Michael Giacchino - Восхождение Юпитер / Jupiter Ascending (Ori
 magnet:?xt=urn:btih:22F384DEFB83D7EA7AC7EB5D3550C805ADBAD99F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +290,8 @@ John Carpenter - Lost Themes (Deluxe) (2015) [FLAC|Lossless|WEB-DL]<Soundtrack, 
 ```bash
 magnet:?xt=urn:btih:BBE02309A8ABC3A2F912C629728775DAE6445D89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +320,8 @@ Vicente Amigo - Apasionadas Cuerdas del Alma (2015) [FLAC|Lossless|image + .cue]
 magnet:?xt=urn:btih:C881B6FD91BF013D89073CC49B0F9C24407DA2A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +348,8 @@ VA - Ешь богатых / Eat the Rich (1987) [MP3|320 кб/с]<Soundtrack>
 ```bash
 magnet:?xt=urn:btih:73D04A1F19936D29B538B65D58510C7BADA9230B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +378,8 @@ Wychazel - In Search of Lemuria (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 magnet:?xt=urn:btih:BE8171BB1499E16E71F98C9893DCF7533EAF63CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +406,8 @@ VA - Acoustic R&B Chill Playlist. Eighteen Smooth and Chilled Tracks (2017) [MP3
 ```bash
 magnet:?xt=urn:btih:8F2CB32F32045DE2043605D9A013341CB3F47CBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +436,8 @@ Jamie McMenamy - Oceanlands (2017) [MP3|320 Kbps] <Ambient, Downtempo, Relaxatio
 magnet:?xt=urn:btih:CDC559B99538010E53478CBF9F7B3DC3C8DB4AB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +464,8 @@ VA - Ethnic Music...indians, Dreams, Visions (2012) 2CD [MP3|320 Kbps] <Native A
 ```bash
 magnet:?xt=urn:btih:33643B10116402B9943898F98A22BDED8702A3E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +494,8 @@ VA - Romantic Collection - Aria & Mystique (2000) 2CD [FLAC|Lossless|image + .cu
 magnet:?xt=urn:btih:84C45682BA02C4D3D020419C516CD5DE726D0EE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +522,8 @@ VA - Impressions Of Native America (2001) [MP3|320 кб/с] <Native american, Et
 ```bash
 magnet:?xt=urn:btih:95A0D7B76AF46319855F0B92CA8F6099032A9F82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +552,8 @@ Paul Sills - Electric Storm (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age
 magnet:?xt=urn:btih:60F240EC9AEB11C50969CE06C7169F56C0441CB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +580,8 @@ Medwyn Goodall - Echoes of Emergence (1987) Reissue 2017 / MG Music Ltd [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:F87D4FAB4AE9BAB849CD701E628E63D143B5C524
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +610,8 @@ Ron Allen - The First Flute (Songs Of Courtship) 1998 [FLAC|Lossless|tracks] <Ne
 magnet:?xt=urn:btih:CD0AF4D0AF1DADFF081F2467EE98C6FD1555782E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +638,8 @@ Andreas - Music for Pregnant Women (2013) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:D713BA18DF55B6B4068E3FAD8F6A2C53AE67BC46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +668,8 @@ Nazca & Wayra Rodriguez - Traditional Indian (2010) [MP3|320 Kbps] <Native Ameri
 magnet:?xt=urn:btih:C3A3496CBFB8D1486DEAF068DFD64E11CE9AC7D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +696,8 @@ Tatanka - Best Of Indian's Song (2005) [MP3|320 Kbps] <Native American, New age,
 ```bash
 magnet:?xt=urn:btih:36DA4BA965D80B1CE66E3DEFAA77481F1CA36B62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -680,6 +726,8 @@ Guenter Haas - Tales of a Broken Planet (2013) [FLAC|Lossless|WEB-DL|tracks] <In
 magnet:?xt=urn:btih:19D01A4BC0C7BB49CCF4C16ED322C991354A3F89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -707,6 +755,8 @@ Indian Calling, Alison - Native American Soundtracks (10 Best Native Indian Soun
 magnet:?xt=urn:btih:892B23A912194E5BCC41B404B41C062D161DD6AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -733,6 +783,8 @@ Gaetir The Mountainkeeper - Vetrarljós (Vetrarljos) (2020) [FLAC|Lossless|Web-D
 ```bash
 magnet:?xt=urn:btih:FA20F4613F5A2710A21C899E2F1B16E811709A05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

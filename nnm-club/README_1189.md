@@ -19,6 +19,8 @@ Galactic Civilizations IV (4) (2023) [Ru/Multi] (2.92/dlc) Repack FitGirl [Super
 magnet:?xt=urn:btih:9D3E9F56B2006AD844F2C17A455F6C4D2995B010
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NetLimiter - программа, решающая проблему контро�
 ```bash
 magnet:?xt=urn:btih:3938AB3CA376ACF1E8B0DF2D39DD228B770DDAB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ eWeather HDF - это точный прогноз погоды от двух м�
 magnet:?xt=urn:btih:79B1E7070DB522D9ED187E84CED5733E944E9546
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Digiarty AIArty Image Matting — это инновационное програ
 ```bash
 magnet:?xt=urn:btih:23AB488188AA6B565E5E834DDC82F2B765613FF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:23AB488188AA6B565E5E834DDC82F2B765613FF2
 magnet:?xt=urn:btih:7D01AFF2ED3B00B533E194F4776997001EED611E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Warden's Will (2025) [Ru/Multi] (1.0.0c) Repack FitGirl
 magnet:?xt=urn:btih:0EE127D9740EE4A9EFE767DD97BE36684857665E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Builders of Egypt (2025) [Ru/Multi] (1.036) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F177F079281DBD0C85D2422D4B4E98BB1A06CBA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:F177F079281DBD0C85D2422D4B4E98BB1A06CBA5
 magnet:?xt=urn:btih:D7E6A4AA69A2B3E15A653C1666994A2B0B61EB1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:D7E6A4AA69A2B3E15A653C1666994A2B0B61EB1F
 ```bash
 magnet:?xt=urn:btih:A895665081B366A93DEF3570C549DCCBFCAD8B94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ The Rise of the Golden Idol (2024) [Ru/Multi] (1.2.0/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:8FE1121A3B4748C7AE6AC0E1CA1EBE8E66FBE63F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:8FE1121A3B4748C7AE6AC0E1CA1EBE8E66FBE63F
 ```bash
 magnet:?xt=urn:btih:7368CE263A8484EEE5D7BC49A016B761C1417F7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:7368CE263A8484EEE5D7BC49A016B761C1417F7F
 ```bash
 magnet:?xt=urn:btih:37DF3DAFA8A1D99320ECB39B1EE6EAC7A0D6093B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ VA - Лучшие песни Наше радио за 2024 год (2025) [MP3|32
 magnet:?xt=urn:btih:7CE75B5CFCE6953904B4AA27547F906E4B0E5715
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:7CE75B5CFCE6953904B4AA27547F906E4B0E5715
 ```bash
 magnet:?xt=urn:btih:D6CE5E019836C55E449892493287B5A16C448D60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:D6CE5E019836C55E449892493287B5A16C448D60
 magnet:?xt=urn:btih:DBC4DA4F20545A6CFE48EF72AA9D4D66D297DDF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:DBC4DA4F20545A6CFE48EF72AA9D4D66D297DDF8
 ```bash
 magnet:?xt=urn:btih:D99BCB90A3D28519ED634D8B8FFEA581EFA18E0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ VMware Workstation — программное обеспечение вирту�
 magnet:?xt=urn:btih:C66CCCCE483B277BBB48557BC8775E51351B1ABC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:C66CCCCE483B277BBB48557BC8775E51351B1ABC
 ```bash
 magnet:?xt=urn:btih:5DEB0AD028950E423E2123E1092A4CD38ADE8B30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:5DEB0AD028950E423E2123E1092A4CD38ADE8B30
 magnet:?xt=urn:btih:F79B31FAD3B9EE2B59B76E7CB7F079EA731004FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ Builders of Egypt (2025) [Ru/Multi] (1.036) Repack R.G. Freedom
 ```bash
 magnet:?xt=urn:btih:A407D6260720C56DB341476D386870EDF8E5F02D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ Open-Shell Menu - замена утилиты Classic Shell, разработк�
 magnet:?xt=urn:btih:50BFC7BC691A35FC4A13AA2F278E3204A8EAA34F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:50BFC7BC691A35FC4A13AA2F278E3204A8EAA34F
 ```bash
 magnet:?xt=urn:btih:4FDB4F85FBA4F7E3F72E63396F1BB6949B1B5CDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ Ad Vitam: За жизнь / Ad Vitam (2025) WEB-DLRip [H.264/1080p] [MVO] [AD]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Ad Vitam: За жизнь / Ad Vitam (2025) WEB-DLRip [MVO] [AD]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ Kaspersky Password Manager — мультиплатформенный менед
 magnet:?xt=urn:btih:595E8D098F291127FB9C3454F1F0E3252753B73D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:595E8D098F291127FB9C3454F1F0E3252753B73D
 ```bash
 magnet:?xt=urn:btih:E1D5925084FD7A2B56E8EE896607DB8AD797051A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

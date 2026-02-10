@@ -22,6 +22,8 @@ Kinga Glyk (Kinga Głyk) - Real Life (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:C7A89BDAF64E21A089735D05304C20D8D7F21FC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Arve Henriksen - Touch of Time (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 ```bash
 magnet:?xt=urn:btih:B2B20A89740574934254C16334E1C8D7DBCF67E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Matthieu Chazarenc - CANTO III (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 magnet:?xt=urn:btih:AA7782ACF97AFB052623F6EA17B11F00AC557F70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:AA7782ACF97AFB052623F6EA17B11F00AC557F70
 ```bash
 magnet:?xt=urn:btih:30583228F5B54EBACF69A510197ADFCE748042FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ FxFactory Pro включает  фильтры, генераторы и пере
 magnet:?xt=urn:btih:5ED5F102E0C196FF069EB7BDCB18D5D7F9010EC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:5ED5F102E0C196FF069EB7BDCB18D5D7F9010EC1
 magnet:?xt=urn:btih:1417B2A82DC260441F672C439EA42427490AF5F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ Network Kit 9.1.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:A6B427913721050D0616202A095D8A34A4936FC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ The Fried Seven - Late to the Party (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:66BAFADEA570297A746743F13EB8774774F7F58F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +245,8 @@ DJ KUBA & NEITAN - Live @ Skandalizer x Level27, Poland (2024-01-19) [MP3|320 Kb
 magnet:?xt=urn:btih:C3D37B5231889F2C58F5124C4693425B00D11988
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ eBookBinder - это супер простой инструмент для со�
 ```bash
 magnet:?xt=urn:btih:EEA70AD0A48AFCAD796A2CF3C95F1688B73983EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -280,6 +300,8 @@ Chris Buergi - You Make Me Rock (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 magnet:?xt=urn:btih:F2AF1ED531D2D410DDA48E607F5FE2B27AEFCD2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +327,8 @@ magnet:?xt=urn:btih:F2AF1ED531D2D410DDA48E607F5FE2B27AEFCD2E
 ```bash
 magnet:?xt=urn:btih:1D5B8B63D7B0EB06727C8AE740CBEA5037654D48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +357,8 @@ DB & the Soho Nine-Six - DB & the Soho Nine-Six (2024) [FLAC 24/96|Lossless|WEB-
 magnet:?xt=urn:btih:F41111FEA684BDC1336D301135131BF1741525C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +386,8 @@ Friends and Neighbors - Circle (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 magnet:?xt=urn:btih:E237F9EA8A67DE7AEA93EC8B82A6D6EFCC5D00C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +411,8 @@ magnet:?xt=urn:btih:E237F9EA8A67DE7AEA93EC8B82A6D6EFCC5D00C8
 ```bash
 magnet:?xt=urn:btih:D4461B1C4372C2A91419289A444768C047EB02C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +440,8 @@ magnet:?xt=urn:btih:D4461B1C4372C2A91419289A444768C047EB02C0
 magnet:?xt=urn:btih:D38A5CBD34911BB668B50B30E4C7C8BD2A270BA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +465,8 @@ magnet:?xt=urn:btih:D38A5CBD34911BB668B50B30E4C7C8BD2A270BA2
 ```bash
 magnet:?xt=urn:btih:91D2E73FB9B1C9DCDEA4FC52A8037553A49DEE02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +493,8 @@ magnet:?xt=urn:btih:91D2E73FB9B1C9DCDEA4FC52A8037553A49DEE02
 magnet:?xt=urn:btih:DBB67D400451CC93926D4E965739A9DD88A9D99B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +518,8 @@ magnet:?xt=urn:btih:DBB67D400451CC93926D4E965739A9DD88A9D99B
 ```bash
 magnet:?xt=urn:btih:A1B59B5DDA51A2ADEC476301F25326EDBF753EB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +545,8 @@ magnet:?xt=urn:btih:A1B59B5DDA51A2ADEC476301F25326EDBF753EB3
 magnet:?xt=urn:btih:39B9B128D9815221F28B2A40BCAD772C1830E78B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +571,8 @@ magnet:?xt=urn:btih:39B9B128D9815221F28B2A40BCAD772C1830E78B
 magnet:?xt=urn:btih:DAA4FB2AD099A8EEB5F70F678467AC7C22B44DEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +596,8 @@ magnet:?xt=urn:btih:DAA4FB2AD099A8EEB5F70F678467AC7C22B44DEE
 ```bash
 magnet:?xt=urn:btih:7DE24D7520480C5C1551772D72480F0934539F62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +626,8 @@ Anastacia - Our Songs (2023) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
 magnet:?xt=urn:btih:A5F4C83FA4798BAB794B2BE5647580CBC2457D30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +651,8 @@ magnet:?xt=urn:btih:A5F4C83FA4798BAB794B2BE5647580CBC2457D30
 ```bash
 magnet:?xt=urn:btih:875CB28B222BA9FC3A487CDE7D7E22731FDA1519
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +678,8 @@ Lovebites brings the second album with 10 new tracks. Mixing and mastering by Mi
 magnet:?xt=urn:btih:181D829DC4C36A53AF4F48C29A851A1FD48B4E70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ NonVisual Desktop Access (NVDA) — свободная с открытым ис�
 ```bash
 magnet:?xt=urn:btih:20D8C58867BDCAB2374BACBF91A4B54A204526ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

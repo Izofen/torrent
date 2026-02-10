@@ -19,6 +19,8 @@ Warhammer: Shadow of the Horned Rat (1995) [En] (1.0) License GOG
 magnet:?xt=urn:btih:91689FE556B59F95794CCA156D322EAA9EAD67AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Star Wars: Rebellion (1998) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:C344B5F28E6216060712649D0E73E131567437B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ VVVVVV (2010) [Ru/Multi] (2.4.3) License GOG
 magnet:?xt=urn:btih:7AAC84F235F696E7B849E0A9797B7C3C9F18ADBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Warhammer 40.000: Dawn of War – Dark Crusade (2006) [Ru] (1.20) Repack EXROW
 ```bash
 magnet:?xt=urn:btih:7F1AADB44E34DB594075920C7F0CE744FC38BC2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ BioShock Dilogy (2007-2010) [Ru] (1.1/1.5.0.019/dlc) Repack EXROW
 magnet:?xt=urn:btih:AD60B18C768A46C929DFA483861456CCDACC467C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Voyage: Journey to the Moon (2005) [Multi] (1.04) License GOG
 ```bash
 magnet:?xt=urn:btih:8013ECEEB0A740CC90371D15FEC2A0C1E507342C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Warhammer 40.000: Dawn of War (2004) [Ru] (1.51/dlc) Repack EXROW
 magnet:?xt=urn:btih:E811A1EBE14E7B3527518403D2C9ECDD3AA6A1BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Warhammer 40000: Rites of War сильно отличается от други�
 ```bash
 magnet:?xt=urn:btih:9EEDC1659ED9263EBC8E1BE15381D2E4146A3252
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Creatures: Village (2004) [En] (1.11) License GOG
 magnet:?xt=urn:btih:7F5FF802CE6ACB8FC9B5D7A2B7A32DEDA10D8562
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ I Was an Atomic Mutant! / Убойные будни (2003) [Ru] (1.0) License А
 ```bash
 magnet:?xt=urn:btih:BF2DBEA1736BD3AA631CF6CB010642AEE04BE44D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:BF2DBEA1736BD3AA631CF6CB010642AEE04BE44D
 magnet:?xt=urn:btih:01EB6593669FDDE07EEE28726D4C1ACB3F494DC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ RollerCoaster Tycoon 3 (2006) [Ru/Multi] (1.0) License GOG [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:F4C2AD6EDBA5585ED775A7160411A0B664ED3465
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Hitman 2: Silent Assassin (2002) [En] (1.01) License GOG
 magnet:?xt=urn:btih:178A692A28EB1EAA5DEDF08EAFC99B882BF497E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Homeland - The Stone of Night (2000) [En] (1.0.3z) License
 ```bash
 magnet:?xt=urn:btih:E4953FCDD4E1BF274E37525F0E63B7A9B08E3950
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Warlords III: Darklords Rising (1998) [En] (1.0.2) License GOG
 magnet:?xt=urn:btih:59F9CE9EE962DBDE1BEA35E14D663E9B439A09E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Cannon Fodder - это смесь таких жанров, как стратег
 ```bash
 magnet:?xt=urn:btih:3081BEFF15C1EFF3B28A9C5235182E529A12850E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Cannon Fodder 2 (1994) [En] (1.01) License GOG
 magnet:?xt=urn:btih:0B39E3F79053D3A25817804312997505A3224DA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ he Elder Scrolls IV: Oblivion® Game of the Year Edition является одн
 ```bash
 magnet:?xt=urn:btih:8B94FB189FD927913B5D7E70675E51604FECB890
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:8B94FB189FD927913B5D7E70675E51604FECB890
 magnet:?xt=urn:btih:F412A20B53B3FD1CA85F326849A4F236D0344CB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Garry's Mod - физическая песочница. В отличие от о
 ```bash
 magnet:?xt=urn:btih:E7903F367D82DB6E78D675BA1A552A1AAECD97B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Robin Hood: The Legend of Sherwood / Робин Гуд. Легенда Шерв�
 magnet:?xt=urn:btih:91DA7567182C7BC64359DE9304C5F440020FF5A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Black Convergence - третья часть известной приключе�
 ```bash
 magnet:?xt=urn:btih:420714B27D4E23DE768179EB8F6DEE13DBB1036B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Resonance (2012) [En] (3.1c) License GOG
 magnet:?xt=urn:btih:9733F735DF814ADB90ACC12E4189F7EB1BC6C792
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Blackwell Epiphany - заключительная часть серии поин
 ```bash
 magnet:?xt=urn:btih:1B943C68FB2D28B548A715880BBDB13FBE1BAD3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ The Fifth Disciple / Пятый чародей (2002) [Ru] (1.0) License
 magnet:?xt=urn:btih:CB90409C79D1A350F50B41B9B7B7EBA65FB4A034
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ O.D.T.: Escape... or Die Trying (1998) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:635317622734E4DE0BF784410C03EF57E24F5AB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Crispin Cioe - Soul Noir (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:60866EA010D682CFFDC9AE5D476D8B14E7381891
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:60866EA010D682CFFDC9AE5D476D8B14E7381891
 ```bash
 magnet:?xt=urn:btih:00D593DEE6FF7B76CE54590E1AACEF478F8B765B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:00D593DEE6FF7B76CE54590E1AACEF478F8B765B
 ```bash
 magnet:?xt=urn:btih:592638EE42F885CA43C2CF225209A6B2C34D08DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ Sanz - Let Us Die (2022) [MP3|320 Kbps] <Electronic, Synth-pop, Rock>
 magnet:?xt=urn:btih:2099322EDB5280ACEA7E54707DD3DF045E02EBB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ Foreseen - Untamed Force (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Har
 magnet:?xt=urn:btih:DF2FF4385847B696AA003E5A329B34BF2FF2C3D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Fast Car - британский автомобильный журнал, осв�
 ```bash
 magnet:?xt=urn:btih:1D8EDCF699324D7DB1F498F04935D15C4330CFE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ Wondershare Recoverit - профессиональное приложение, �
 magnet:?xt=urn:btih:8C47281DEDBDBCCF0E849335FCA7F16E6A7B7A2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:8C47281DEDBDBCCF0E849335FCA7F16E6A7B7A2A
 ```bash
 magnet:?xt=urn:btih:07C5493F3BBB5243B72DC16AC70CB23C2AA95B18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ VA - Markus Schulz & Dan Thompson - Global DJ Broadcast (2021) [MP3|320 Kbps] <T
 magnet:?xt=urn:btih:759D698D61C24166552F5FDE024D12CEA349C643
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:759D698D61C24166552F5FDE024D12CEA349C643
 magnet:?xt=urn:btih:58F79EE5A2C3FD000F869A7581472D03E4F71F18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:58F79EE5A2C3FD000F869A7581472D03E4F71F18
 ```bash
 magnet:?xt=urn:btih:031A7AC20E257D311F83BF4E3E7C215C23316861
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ Celeste - Assassine(s) (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Sludge Metal
 magnet:?xt=urn:btih:BEA3E04A51AE3E19B5BD8B2F845AF4A0FA5EF287
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ magnet:?xt=urn:btih:BEA3E04A51AE3E19B5BD8B2F845AF4A0FA5EF287
 ```bash
 magnet:?xt=urn:btih:9BDCC6207DA62ED051B344EF0419FA24170C0098
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +382,8 @@ Snowblind - Breaking Out (2021) [MP3|320 Kbps] <Heavy Metal>
 magnet:?xt=urn:btih:C359CB378711B73E0D425ED628778CDE98A0CA1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +411,8 @@ Doc Dynamite - Modern Day Bluesman (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:B832F54E847984D11725202E96B38F9F769F606A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +436,8 @@ magnet:?xt=urn:btih:B832F54E847984D11725202E96B38F9F769F606A
 ```bash
 magnet:?xt=urn:btih:C83514352187A1726856D477220AFFD756C80827
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +463,8 @@ magnet:?xt=urn:btih:C83514352187A1726856D477220AFFD756C80827
 magnet:?xt=urn:btih:191663DD7B4C0C9450E7A204A6851B575F52ECBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ magnet:?xt=urn:btih:191663DD7B4C0C9450E7A204A6851B575F52ECBF
 ```bash
 magnet:?xt=urn:btih:79FD2933250863130C4CF027BF6C2A5529704836
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ Fast Car - британский автомобильный журнал, осв�
 magnet:?xt=urn:btih:C715E5FA76D727CA0EBD97EB4B63B5398F29B763
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ FontViewOK 8.21 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2E1DD15FAD69DC914E7E78F12C89E7FEEBDCBF6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +570,8 @@ Fortress of Empyrean - Synchronized Demise (2023) [MP3|320 Kbps] <Progressive Me
 magnet:?xt=urn:btih:06F5F927918E2625663DEB1D06777D4586DC2BF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +599,8 @@ Quelle Chris & Chris Keys - Innocent Country 2 (2020) [FLAC|Lossless|tracks + .c
 magnet:?xt=urn:btih:5C29661090E299154B594AF04DDC14EEC5D528DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +626,8 @@ magnet:?xt=urn:btih:5C29661090E299154B594AF04DDC14EEC5D528DD
 ```bash
 magnet:?xt=urn:btih:C4F1F32C14470C8654EB1B781B7B65239B34DAD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +657,8 @@ Romantic, Modern, Contemporary, Jazz, LatinПродолжительность: 0
 magnet:?xt=urn:btih:8D8B783A92A7B1CB92854035CFDCC6B53FD27A81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +686,8 @@ Bestial Sight - 3 Albums (2017-2022) [MP3|320 Kbps] <RMW Black, Death Metal>
 magnet:?xt=urn:btih:8E224606DC3DE937AAF718ADC3D13BAE6D242BBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +711,8 @@ Auto Express — еженедельный британский автомоби�
 ```bash
 magnet:?xt=urn:btih:056E99A7CE0B16537AD59496BD8EC022C9951673
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

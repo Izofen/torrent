@@ -1,3 +1,29 @@
+###  Публикация: 1124773   (785596) от 12.04.2017
+
+Игорь Добротворский | Переговоры на 100%. Технологии эффективных переговоров (2007) [PDF]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785596.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издателя: В книге ведущего отечественного эксперта по личностному и профессиональному развитию Игоря Добротворского систематизированы наиболее эффективные методы ведения деловых переговоров, применяемые в современном мире. Исследуются конкретные жизненные ситуации, анализируются ошибки, даются ценные рекомендации по тактике и стратегии успешного партнерства. Также (   Читать дальше...   )Жанр: Презентация. ПереговорыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:320515E78A976C683554B7E66F6B7F0640F64C0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124310   (785732) от 11.04.2017
 
 Ян Макдермот, Венди Яго | Практический курс НЛП (2007) [DOCX, PDF]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:F4EA075F04B4CA3679C3DE298747580CAE00F1FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:F4EA075F04B4CA3679C3DE298747580CAE00F1FE
 magnet:?xt=urn:btih:09DBEC20FBDC307709B9DFF2FCC2AD49BB09AEE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:09DBEC20FBDC307709B9DFF2FCC2AD49BB09AEE4
 ```bash
 magnet:?xt=urn:btih:8F0556ED5B2026C37351498A3D3036D5288767BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:8F0556ED5B2026C37351498A3D3036D5288767BA
 magnet:?xt=urn:btih:C6A1077C5B621E9C3FB16029F7B91072C49F1CD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:C6A1077C5B621E9C3FB16029F7B91072C49F1CD8
 ```bash
 magnet:?xt=urn:btih:94F7E0CBEA682D422B73E333FBE222550315E88C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:94F7E0CBEA682D422B73E333FBE222550315E88C
 magnet:?xt=urn:btih:B00E9608D67BE4D21C600349C2B35146F748A279
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:B00E9608D67BE4D21C600349C2B35146F748A279
 ```bash
 magnet:?xt=urn:btih:E9ECCA38C0F7738D717161D0B31058AF40A9B0F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:E9ECCA38C0F7738D717161D0B31058AF40A9B0F8
 magnet:?xt=urn:btih:F57C3289D746BC55C5C62C4278DD4D9426D861ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:F57C3289D746BC55C5C62C4278DD4D9426D861ED
 magnet:?xt=urn:btih:391C5A4368D28090AA1B5CAC50BE61096C7CBCD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:391C5A4368D28090AA1B5CAC50BE61096C7CBCD8
 ```bash
 magnet:?xt=urn:btih:3946FDF9EBCF3524F3D6375F0AC5AE3FB9836F69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +314,8 @@ magnet:?xt=urn:btih:3946FDF9EBCF3524F3D6375F0AC5AE3FB9836F69
 magnet:?xt=urn:btih:9E87B13618B46FBB8ACE0832D8F6C9000963DBC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +339,8 @@ magnet:?xt=urn:btih:9E87B13618B46FBB8ACE0832D8F6C9000963DBC6
 ```bash
 magnet:?xt=urn:btih:0BAF71FE0EA234B6BE7F8336EF358A32B3740E47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +367,8 @@ magnet:?xt=urn:btih:0BAF71FE0EA234B6BE7F8336EF358A32B3740E47
 magnet:?xt=urn:btih:917A0215C73EE8489017470073BF9DD3BC23399D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +394,8 @@ magnet:?xt=urn:btih:917A0215C73EE8489017470073BF9DD3BC23399D
 magnet:?xt=urn:btih:63F924D4F1BBEC7DC7E1E19BE7D6E4C15DFBB3FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +420,8 @@ magnet:?xt=urn:btih:63F924D4F1BBEC7DC7E1E19BE7D6E4C15DFBB3FC
 magnet:?xt=urn:btih:6135049449F1661BEB221F2B2B81D538636F9EAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +445,8 @@ magnet:?xt=urn:btih:6135049449F1661BEB221F2B2B81D538636F9EAB
 ```bash
 magnet:?xt=urn:btih:B3DE65ECB5F69BA930C94FF2FC6704DB0EE4BC80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +474,8 @@ magnet:?xt=urn:btih:B3DE65ECB5F69BA930C94FF2FC6704DB0EE4BC80
 magnet:?xt=urn:btih:4293C062EEB0406B8186DB0CE38359ED83B3C7F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +499,8 @@ magnet:?xt=urn:btih:4293C062EEB0406B8186DB0CE38359ED83B3C7F6
 ```bash
 magnet:?xt=urn:btih:2B3CC804C496B50207EC75A6AE448B804A77E438
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +526,8 @@ magnet:?xt=urn:btih:2B3CC804C496B50207EC75A6AE448B804A77E438
 magnet:?xt=urn:btih:CC352DCBEA675E68992E7F519523CA6E07342E54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +551,8 @@ magnet:?xt=urn:btih:CC352DCBEA675E68992E7F519523CA6E07342E54
 ```bash
 magnet:?xt=urn:btih:C08AF932325DE99AD4C209F438DD6E3CE704F5B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +579,8 @@ magnet:?xt=urn:btih:C08AF932325DE99AD4C209F438DD6E3CE704F5B7
 magnet:?xt=urn:btih:7B9208ED53CABF0915941A95973642177C306E7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:7B9208ED53CABF0915941A95973642177C306E7D
 ```bash
 magnet:?xt=urn:btih:D05CB8D829E18351D20C75D2F6621043F427219D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:D05CB8D829E18351D20C75D2F6621043F427219D
 magnet:?xt=urn:btih:2F25FF93F7497062057D34A814F23D0E36F2A4E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +656,8 @@ magnet:?xt=urn:btih:2F25FF93F7497062057D34A814F23D0E36F2A4E6
 ```bash
 magnet:?xt=urn:btih:8676E8F8DBFFA67201F762CE268FB6FEE30A7515
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,31 +684,7 @@ magnet:?xt=urn:btih:8676E8F8DBFFA67201F762CE268FB6FEE30A7515
 magnet:?xt=urn:btih:E3756030CF3F51B23E48F557DA14699D77377B5D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388609   (786726) от 06.06.2020
-
-Мария Шолль | Швейцария в кармане (2020) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Швейцария – уникальная страна, вокруг которой существует множество мифов.
-Скорее всего, вы слышали о многочисленных банках и знаменитом шоколаде, о швейцарских Альпах и великолепных озерах, о фондю и раклете.
-Но какова эта страна сегодня? Чем на самом деле живут местные жители, что думают об остальном мире и что из бесконечного количества мифов об этой земле правда, (   Читать дальше...   )Жанр: Этнография, Страноведение, ПублицистикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:671CD7044E2A754EF5D4CC4806D882885FE83E09
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:72A117A0FF4C7200BCF7D7EA9DE2AD0E03034005
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Into the Breach - компьютерная игра в жанре пошагов
 magnet:?xt=urn:btih:EC152EA6D2305DFE4453175711B17C66DF0D3DEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:EC152EA6D2305DFE4453175711B17C66DF0D3DEC
 ```bash
 magnet:?xt=urn:btih:0FC1AAB90E3D56FED38496795EAF9A2E4010F04F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ VA - Rock Klassiker (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:A1935CF577DCF5CBF27F93BC95C48686B4C201E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Worshippers of Cthulhu (2024) [Ru/Multi] (1.0.0.0) Repack FitGirl
 magnet:?xt=urn:btih:C9FC39F40BED96BCC5AD9A2B11737B94C75FAF9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Electrical Calculations Pro / Электрические расчеты v10.4.1 
 ```bash
 magnet:?xt=urn:btih:DFE351843F1E4BBA0365D70607B95736A9F02A41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Solid Explorer - это приложение для управления фай�
 magnet:?xt=urn:btih:BA11EFC86FC3DCC000EE76FB286CE0279C51B0C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ aCalendar+ Calendar & Tasks v2.9.0 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B7151B1FFFED101E5F2FCE70F6138018FA163976
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ VA - Hard Rock Covers (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:73464DDCC8D16B22820C2C6DD231911C8E618863
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:73464DDCC8D16B22820C2C6DD231911C8E618863
 ```bash
 magnet:?xt=urn:btih:D3644BE18E4A1C6F399F090B5CC2D7385195E43E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ VA - Music News For Forum vol.093 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:72757640F0EB53292FD9C66E2EAFD881A4A03713
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:72757640F0EB53292FD9C66E2EAFD881A4A03713
 ```bash
 magnet:?xt=urn:btih:A88E5DC9CE5E60312A5536ACBBC2527FD12EF665
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ Balthazar & Warhaus - Compilation (2006-2024) [MP3|320 Kbps] <Indie rock>
 magnet:?xt=urn:btih:6FF06583C9908BEFD024B22370F7D27FBE07E115
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:6FF06583C9908BEFD024B22370F7D27FBE07E115
 magnet:?xt=urn:btih:D1E1413B820DD544EF3FC1E242E229C6749FB7AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ Rock Identifier - Stone ID v2.3.55 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D9D58768480ADEC5F2F1842B4C537BFCFBCE9976
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:D9D58768480ADEC5F2F1842B4C537BFCFBCE9976
 magnet:?xt=urn:btih:0DA201CBD9F175D8A26F23333D68298D058CBAE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:0DA201CBD9F175D8A26F23333D68298D058CBAE4
 ```bash
 magnet:?xt=urn:btih:86AC81756F752DA55F9739CC13125A8B490B6B28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ Alex Henley - Slow Burning (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:D5588C7F40964E7FCBAAACF4F861DE65ABEA7EF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ Sueños Medievales - Sueños Medievales (2025) [FLAC|Lossless|WEB-DL|tracks] <Pr
 magnet:?xt=urn:btih:ECFFB84BEE16A8D4C475B7E0D6C45F20A6A7127F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +536,8 @@ magnet:?xt=urn:btih:ECFFB84BEE16A8D4C475B7E0D6C45F20A6A7127F
 ```bash
 magnet:?xt=urn:btih:82C136C8B70A07616C72410D466BEBADB5546352
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +566,8 @@ Halestorm - Everest (2025) [FLAC|Lossless|WEB-DL|tracks] < Hard Rock, Alt. Rock,
 magnet:?xt=urn:btih:9B190C72D7546C131789C8E13BE3B5E7A427BC7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ magnet:?xt=urn:btih:9B190C72D7546C131789C8E13BE3B5E7A427BC7D
 ```bash
 magnet:?xt=urn:btih:8609C9FB57BC9815A3B6E4329348D25122115057
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +618,8 @@ magnet:?xt=urn:btih:8609C9FB57BC9815A3B6E4329348D25122115057
 magnet:?xt=urn:btih:13D455F3536E39BFECC55B5FF3DE81285D3BC493
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ magnet:?xt=urn:btih:13D455F3536E39BFECC55B5FF3DE81285D3BC493
 ```bash
 magnet:?xt=urn:btih:F0CE6371CDED7D9CC52A3D34EA1AE7BEB11C73C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +672,8 @@ Sundown Gazette — это смелый и ностальгический дуэ
 magnet:?xt=urn:btih:67DA7CBCC062E3C383AD92461E28814A8739168E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ A4 Dee(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПро
 ```bash
 magnet:?xt=urn:btih:F39B4A6ED79763CE398388FF508A571147FAA1A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

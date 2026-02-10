@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Battery Mode - приложение, которое заменяет станд�
 ```bash
 magnet:?xt=urn:btih:A963DC58C43C03F72E236D09A50FC0511B58D9BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:A963DC58C43C03F72E236D09A50FC0511B58D9BD
 magnet:?xt=urn:btih:433D41C0948B453F563355FA3CE056B3A6F2E8CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Windows 10 x64 20in1 (incl. LTSC) +/- Office 2024 x64 by SmokieBlahBlah 2025.02.
 ```bash
 magnet:?xt=urn:btih:BF35961355F2C35861A45375C26A3DE9054CDD7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Launcher for zapret 1.9 [Ru]
 magnet:?xt=urn:btih:EF73C332670818197ADEB937D071204BD9AA4055
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:EF73C332670818197ADEB937D071204BD9AA4055
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Christie’s планирует устроить распродажу работ
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Christie’s планирует устроить распродажу работ
 magnet:?xt=urn:btih:FCA1564B355DC474313675C65EFA7C99E4F1E202
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:FCA1564B355DC474313675C65EFA7C99E4F1E202
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7
 magnet:?xt=urn:btih:B7F350B13CAF05B2CB8478E45C10633901AF8481
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:B7F350B13CAF05B2CB8478E45C10633901AF8481
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:B7F350B13CAF05B2CB8478E45C10633901AF8481
 magnet:?xt=urn:btih:35166129C7431979412F512C1F9A99050D6FE1BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Half-Life 2 (2004) [Ru/Multi] (Build 17324696/dlc) Repack Let'sРlay [20th Anniv
 ```bash
 magnet:?xt=urn:btih:511EB76DB666D465625F7C745FCAE7A0B4C6287C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:511EB76DB666D465625F7C745FCAE7A0B4C6287C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:511EB76DB666D465625F7C745FCAE7A0B4C6287C
 ```bash
 magnet:?xt=urn:btih:0CDA6704888D410970D94D5B8358E25CB52975BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:0CDA6704888D410970D94D5B8358E25CB52975BD
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:0CDA6704888D410970D94D5B8358E25CB52975BD
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:0CDA6704888D410970D94D5B8358E25CB52975BD
 magnet:?xt=urn:btih:606EA6C2451813BC5DD87D2BB5915688E4E8829F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Windows 11 24in1 (incl. LTSC) +/- Office 2024 by SmokieBlahBlah 2025.02.12 [Ru/E
 ```bash
 magnet:?xt=urn:btih:43D9530F4F275E44306B48C132F1556EA526D4CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ Kenny Wayne Shepherd - 13 Albums (1995 - 2024) 15 CD [FLAC|Lossless|image + .cue
 magnet:?xt=urn:btih:79468B556F5199A9DF729BD56AF1B04707A786A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Google DeepMind разработала систему искусственног
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ S.T.A.L.K.E.R. Антология (2007-2009) [Ru] (1.0006/1.5.10/1.6.02) Licens
 magnet:?xt=urn:btih:EFA19A4E9F7C0E1842EBDC5876C402DDA8D6E23F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ Upscale видео с использованием AI (обсуждение, п�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ Upscale видео с использованием AI (обсуждение, п�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ NAVITEL® выпустил глобальное обновление всех к
 magnet:?xt=urn:btih:F00CC310C82D700E69788FA27FD5BA2127094A32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ Marvel Comics | Marvel Universe на русском языке [Обновляе
 ```bash
 magnet:?xt=urn:btih:3B1B5A03CE34886C13E40B374CDDAD9B1B285692
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

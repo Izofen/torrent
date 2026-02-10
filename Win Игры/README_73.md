@@ -19,6 +19,8 @@ Sweep (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:936521D8F949AB4469D7B2F068395C3B1FB66C5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.2.4.2147/dlc) Repack
 ```bash
 magnet:?xt=urn:btih:60FAD9DABBED086083FEF37CEC74A1C9F12C118E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Chains of Freedom (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 magnet:?xt=urn:btih:26E6AE848E4CB88F7C4DB96F09B0F1071A7AA9D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Anno 1800 – возглавьте промышленную революцию! 
 magnet:?xt=urn:btih:8BDDE2ECD79E40F5800C42F5CE7207C192653222
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Forever Skies – это нетипичное выживание, в мире п
 ```bash
 magnet:?xt=urn:btih:522E0B7DC17F52B33DBAA32652F991F6015FF238
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ AI Limit (2025) [Ru/Multi] (1.0.022/dlc) Repack Wanterlude [Deluxe Edition]
 magnet:?xt=urn:btih:68BC4526F8AD2683A8F77004DD49FB130B59B7EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Sons of The Forest - многопользовательский хоррор о�
 ```bash
 magnet:?xt=urn:btih:BCCBCC1BB9517DF14A25097503792DA137ED9551
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Nikoderiko: The Magical World (2024) [Ru/Multi] (Build 18097949) Repack FitGirl 
 magnet:?xt=urn:btih:DF939AB2433BB0BF23CA980933E70A0BEFF47DB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Chains of Freedom (2025) [Ru/Multi] (1.0.1) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:37FF43F49E5C5E8B76E0FABB82C334394AD51523
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Barotrauma - сайд-скроллер, позволяющий играть по
 magnet:?xt=urn:btih:DE6BFD459AA7608F0907976B5294927D39BA23D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Nikoderiko: The Magical World (2024) [Ru/Multi] (Build 18097949) Repack Let'sРl
 ```bash
 magnet:?xt=urn:btih:6D965BB282BF5D9DBA278503B782626750BDFD55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Call of Juarez The Gunslinger перенесет вас на просторы л
 magnet:?xt=urn:btih:0E828028610CDFFF50B8E54644D1B1E91F730924
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Forever Skies – это нетипичное выживание, в мире п
 ```bash
 magnet:?xt=urn:btih:EFF221DEE372F00FA132CC6A32703408B614186E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Dying Light: The Following (2016) [Ru/En] (1.50.0/dlc) Repack Other s [Definitiv
 magnet:?xt=urn:btih:A9D77C79759615FBC93CD43F2B0AAAD8F325046B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ Entropy Survivors — «роглайк» со стрельбой, где вы у
 ```bash
 magnet:?xt=urn:btih:9877FCD81AD6A97382384BD815D6AE2129B5E690
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ Commandos: Origins (2025) [Ru/Multi] (1.0.2.75454/dlc) Repack Decepticon [Deluxe
 magnet:?xt=urn:btih:857A05B1FD79B4A873266AA26BA874373288B967
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ Echo Point Nova (2024) [Ru/Multi] (1.41) Repack Let'sРlay [Digital Deluxe Editi
 ```bash
 magnet:?xt=urn:btih:D6A4BA24EC383729D72871365ECAF29AD9FFE4DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ Reignbreaker - динамичный roguelike, действие которого
 magnet:?xt=urn:btih:27EE9A85DF7C21C2AB6D2C38FA1C898C38821DB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ Tower of Time — удивительная игра со множеством п
 ```bash
 magnet:?xt=urn:btih:F5D4B998F129B5CDB5EC6956C89C5CC902DECD3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ Beyond the Ice Palace 2 (2025) [Ru/Multi] (1.1.2f) Repack Let'sРlay
 magnet:?xt=urn:btih:39765D806F5423A30C22CA7969BBB99F67BC3D27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ Dead Age 2 – это продолжение успешной инди-игры 
 ```bash
 magnet:?xt=urn:btih:72E1D7A49F9D10E7825B7A8B9E93B828DB20E3DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ Rise of the Ronin - динамичная ролевая игра, в котор�
 magnet:?xt=urn:btih:A19562375A92C8A37DA2FFC87B4EB9B947FE7AD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ Tails of Iron 2: Whiskers of Winter (2025) [Ru/Multi] (1.14932/dlc) Repack Let's
 ```bash
 magnet:?xt=urn:btih:47C917C46F930CB7BF83A4820EB1896BAB94E1D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ Frontline: Assault Corps WW2 (2025) [Ru/Multi] (1.0.24L) Repack Let'sРlay
 magnet:?xt=urn:btih:0D00C887AA30F2887A2B8DEC9D7E5079DE4DFD21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ Into the Necrovale (2024) [En] (1.0.1) License GOG
 magnet:?xt=urn:btih:D0AD3F3539189CC05D74718E3ABCC276B94DB20E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Sandwalkers – это пошаговый «рогалик», где главн�
 ```bash
 magnet:?xt=urn:btih:342B6B4E5FFAA85EAC841A2B40A079EC82479BFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

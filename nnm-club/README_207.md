@@ -19,6 +19,8 @@ Broken Arrow - это масштабная военная тактическая
 magnet:?xt=urn:btih:ABB0921E5B24D3ED9479490C92E8D69C33A3A5D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:ABB0921E5B24D3ED9479490C92E8D69C33A3A5D2
 ```bash
 magnet:?xt=urn:btih:6C7F4AB87B183D5C52E552EEBD168F7367DA0FE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:6C7F4AB87B183D5C52E552EEBD168F7367DA0FE1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Primal Planet - это метроидвания от единственного 
 ```bash
 magnet:?xt=urn:btih:7F13022EA3B075BF4F4AB7BD1B2DEEF24AF06E88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:7F13022EA3B075BF4F4AB7BD1B2DEEF24AF06E88
 magnet:?xt=urn:btih:98B03DFA407C7E835FB876929E4D5C1936145555
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:98B03DFA407C7E835FB876929E4D5C1936145555
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:98B03DFA407C7E835FB876929E4D5C1936145555
 magnet:?xt=urn:btih:BD4EC828850324C140646B63C9BC81478065A562
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ ZEPHON (2024) [Ru/Multi] (1.1.15/dlc) Repack Let'sРlay [Supporter Edition]
 ```bash
 magnet:?xt=urn:btih:ED9A001BCC34F628632D0AF71BAC318550908660
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:ED9A001BCC34F628632D0AF71BAC318550908660
 magnet:?xt=urn:btih:08887E13B4813C9530AE067B8CC247F1CC7B6B98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:08887E13B4813C9530AE067B8CC247F1CC7B6B98
 ```bash
 magnet:?xt=urn:btih:CD77FF551D4248BCA03C32ED6AD5AC63034282C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:CD77FF551D4248BCA03C32ED6AD5AC63034282C9
 magnet:?xt=urn:btih:C2D40066BAFF3E2E4B2994B3664BA98A3DCBF7F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:C2D40066BAFF3E2E4B2994B3664BA98A3DCBF7F9
 ```bash
 magnet:?xt=urn:btih:4B0A3AE92619473D2B6BDE517D76E688A0922862
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Enshrouded - увлекательная игра, действие которо�
 magnet:?xt=urn:btih:562CE3F2C0A27ECFADEDEE0013444467CAFBF266
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:562CE3F2C0A27ECFADEDEE0013444467CAFBF266
 magnet:?xt=urn:btih:BE6FAEB12FCF2D12B2BD29DB035D82C3AC01E08A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ Survive the Fall (2025) [Ru/Multi] (1.2.0.2534/dlc) Repack Let'sРlay [Ultimate 
 ```bash
 magnet:?xt=urn:btih:DA04A584F45FFD7FD90DA162E6440ED219B20111
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ OTTA-Orchestra - Дискография (2014-2025) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:21366C228C0A6F614B964733C9462A4D27008EF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:21366C228C0A6F614B964733C9462A4D27008EF5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Tactical Warfare (2025) [Ru/Multi] (Build 18683670) Repack Let'sРlay
 magnet:?xt=urn:btih:3E90B80363B04DB2F9D4FF4B9CBD1C0280D24021
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Sengoku Dynasty (2024) [Ru/Multi] (1.1.0.12/dlc) Repack Let'sРlay [Ultimate Edi
 ```bash
 magnet:?xt=urn:btih:87C4273C0A767BEBEAAF4BEC7F730F3994D5EDA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:87C4273C0A767BEBEAAF4BEC7F730F3994D5EDA7
 magnet:?xt=urn:btih:E40C91F63300A025D6AD425FCA6F841C8D70B0B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:E40C91F63300A025D6AD425FCA6F841C8D70B0B8
 ```bash
 magnet:?xt=urn:btih:C1CB18EA2CCE7EFBC1FD09A5485C449179DF3952
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:C1CB18EA2CCE7EFBC1FD09A5485C449179DF3952
 magnet:?xt=urn:btih:EB1A43350E679CA81FBBB1842CA8092949FDCCC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ Days Gone рассказывает историю Дикона Сент-Джон
 ```bash
 magnet:?xt=urn:btih:931872450376BF56399988CF6073935312E219F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ Windows 11 PRO 24H2 26100.4946 Update 18 by Ghost Spectre [En]
 magnet:?xt=urn:btih:82A31BD8E30FE7AA0AD45F38D7A9E89DAC82FE53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ ESET Endpoint Security — это комплексное решение для �
 ```bash
 magnet:?xt=urn:btih:1495DC26F57217453939F98C74DEF5A466D650C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +678,8 @@ Headless - Transitional Objects (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Prog
 ```bash
 magnet:?xt=urn:btih:4FCA8E4B4A2FEF216C92EFAE9B02F612A9435390
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Word Surf ‒ это новая оригинальная игра-головол
 magnet:?xt=urn:btih:FB5E1FB30232F96CD6F3D7BE3337705339D7F1ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Infinity Loop - это увлекательный способ повысить 
 ```bash
 magnet:?xt=urn:btih:2B2832BB75AC21B79BF5A83FE92C2935196CD702
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Alias — популярная игра-викторина, которая ид�
 magnet:?xt=urn:btih:BEEF499156D980205906FB6893F642153DAB052F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:BEEF499156D980205906FB6893F642153DAB052F
 ```bash
 magnet:?xt=urn:btih:39C9DC32255B82ED847ACEC7E58574ADC823E4B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:39C9DC32255B82ED847ACEC7E58574ADC823E4B2
 magnet:?xt=urn:btih:0B44C5FEADE9DF4E68D90212D9A40BBC8B1D5F12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Tiny Robots Recharged - головоломка с великолепной тр�
 ```bash
 magnet:?xt=urn:btih:AB2886295E17999789F9C7F1C30B969A88F75EF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Word Surf - это новая креативная игра по поиску с
 magnet:?xt=urn:btih:F7C77CFB9FC0BE5AEE25745EA0618730B8CF31D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Pro Pool 2022 v1.50 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:04E13248001B034457CE652B7AA4470D9DD27717
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Incredibox – музыкальная игра на андроид, где вы 
 magnet:?xt=urn:btih:AEF8DF211CE804D22C398FEBD53971AEEF242292
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Plague Inc. 1.19.10 Mod by Bubalex88 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:EC50689BE3C6037DB6A9C1E93A1C4E5146CD4B52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Don't Starve: Shipwrecked - В новой части вы будете игра�
 magnet:?xt=urn:btih:54F3272354F9487397DC938489726A55F4D76FD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Swamp Attack 2 v1.0.0.125 [Ru]
 ```bash
 magnet:?xt=urn:btih:B6C25C5DE43F8EC2E9D9C5BD8B85880554301E84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Chess — одни из лучших шахмат для Android.
 magnet:?xt=urn:btih:F2839C2A2D44BAD8C3C4D143B41E4C659775B678
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Rally Fury - Extreme Racing – отличный симулятор ралли, 
 ```bash
 magnet:?xt=urn:btih:5E8941F6C4C052AEDEA9D72D7504B8A8E6257833
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Terraria 1.3.0.7.7 [Ru/Multi]
 magnet:?xt=urn:btih:F24615A1B1822D463C84C71243C407C25AFEAFCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Glory of Generals 3 v1.0.0 [En] - Стратегическая игра о Вт�
 ```bash
 magnet:?xt=urn:btih:7FDB9A844773E35093905B5325864F299F6C1977
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ Drad Paradise: The Road Warrior v 1.7 [Ru]
 magnet:?xt=urn:btih:90E47D207DDD47A439857E29B4FFEECFF81A3E65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:90E47D207DDD47A439857E29B4FFEECFF81A3E65
 ```bash
 magnet:?xt=urn:btih:9F9FE33E0A7FEB3374E9BCC03A32B0AF7F6C4379
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:9F9FE33E0A7FEB3374E9BCC03A32B0AF7F6C4379
 magnet:?xt=urn:btih:3C8BF7A2D8F2A911B93DFAF3B0AAA3B53A477C6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ Hollow Knight 1.0 (Unofficial port) Mod by Dan Cooper [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:76575621C5FA527A94D3014415FC6A7F0B2CBFD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:76575621C5FA527A94D3014415FC6A7F0B2CBFD3
 magnet:?xt=urn:btih:F928FD545EE8CCA493DC062182CD736A67BB2CB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ Zoo Match / Три в Ряд: Зоопарк и Животные v1.9.5 Mod by v
 magnet:?xt=urn:btih:DFE397BBC6581DC12DD6FF02F7721E5DFE8D9851
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Sky Words – это игра в слова, которая приглашает
 ```bash
 magnet:?xt=urn:btih:0B407A5BAD5D7F9CD13D6C06E0CA551E3015965F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ Jewel Legend: игра три в ряд v3.18.00 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:4CB44AEFE665815DB622505393EE741ADDB4A58A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ Words of Wonders: Игра в слова v5.3.5 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:46BEE0A5C1CCE5920551424568B7D3BEE822881F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +678,8 @@ Ocean Match / Рыбки: Три в ряд v3.3.0 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0C2293F0B7C42C96220A0CB85887BB3474298B56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

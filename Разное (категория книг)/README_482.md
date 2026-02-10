@@ -1,3 +1,30 @@
+###  Публикация: 1400369   (720822) от 04.08.2020
+
+Лиа Каллис | Силовая йога. Энергия. Концентрация. Баланс (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доступная для новичков (и полезная для инструкторов) иллюстрированная книга по йоге с большим количеством упражнений.
+Силовая йога, пауэр-йога – спортивный, динамичный и современный стиль йоги, предполагающий занятия до пота и усталости. Акцент в нем делается на позах, которые улучшают физическую форму и концентрацию, ускоряют метаболизм. В конечном счете вы сможете (   Читать дальше...   )Жанр: ЙогаПеревод: Юлия ЗмееваФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:616E7611170B0FD97FE1EECF63E36BAF8A970FDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400400   (720928) от 04.08.2020
 
 Михаил Литвак | Командовать или подчиняться? Психология управления (2019) [EPUB]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:A362E7E4B81E3D99834FFC944EBD7EF445EC1842
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +73,8 @@ magnet:?xt=urn:btih:A362E7E4B81E3D99834FFC944EBD7EF445EC1842
 magnet:?xt=urn:btih:A0E278AAAB431E89FF3A9C2DFB00CE551F0CEB5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +98,8 @@ magnet:?xt=urn:btih:A0E278AAAB431E89FF3A9C2DFB00CE551F0CEB5A
 ```bash
 magnet:?xt=urn:btih:6AA37AE712F8F0F323E5EF9478B0E531C507358A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +125,8 @@ magnet:?xt=urn:btih:6AA37AE712F8F0F323E5EF9478B0E531C507358A
 ```bash
 magnet:?xt=urn:btih:B883911696147CF7CE289D2DEDA41BE935B23992
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +154,8 @@ magnet:?xt=urn:btih:B883911696147CF7CE289D2DEDA41BE935B23992
 magnet:?xt=urn:btih:572347751F70A8C2B677FF846E4167AEBB069DC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +181,8 @@ magnet:?xt=urn:btih:572347751F70A8C2B677FF846E4167AEBB069DC2
 magnet:?xt=urn:btih:C2DDE284083B8924C419DDB0F28AC3D33BD19070
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +207,8 @@ magnet:?xt=urn:btih:C2DDE284083B8924C419DDB0F28AC3D33BD19070
 magnet:?xt=urn:btih:08E79DA0E70F45A3864266DA4AA3B29BC3DA00A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +232,8 @@ magnet:?xt=urn:btih:08E79DA0E70F45A3864266DA4AA3B29BC3DA00A0
 ```bash
 magnet:?xt=urn:btih:7E655466D540826D217BCA932E11D6A17E7E0A32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +261,8 @@ Peцeптуры фирменных булочных и мучных кулина
 magnet:?xt=urn:btih:32B6D8B79B97A27300A5B4C4D7760C3187898018
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +286,8 @@ magnet:?xt=urn:btih:32B6D8B79B97A27300A5B4C4D7760C3187898018
 ```bash
 magnet:?xt=urn:btih:EF0B971974B938FE28467C3C2435640AC1346829
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +313,8 @@ magnet:?xt=urn:btih:EF0B971974B938FE28467C3C2435640AC1346829
 magnet:?xt=urn:btih:5F01B1FEDA56F605F4845EA61F59E32EEF21D51E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +338,8 @@ magnet:?xt=urn:btih:5F01B1FEDA56F605F4845EA61F59E32EEF21D51E
 ```bash
 magnet:?xt=urn:btih:C6B823301820B2EAF04C5EFE1A3EAC325F8BB260
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +368,8 @@ magnet:?xt=urn:btih:C6B823301820B2EAF04C5EFE1A3EAC325F8BB260
 magnet:?xt=urn:btih:626053E8C7BCED5CBDD41B468F18FE8D76CD9C5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +393,8 @@ magnet:?xt=urn:btih:626053E8C7BCED5CBDD41B468F18FE8D76CD9C5B
 ```bash
 magnet:?xt=urn:btih:3F35AF1D7056A26DE4540F741A7EAED415276631
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +420,8 @@ magnet:?xt=urn:btih:3F35AF1D7056A26DE4540F741A7EAED415276631
 magnet:?xt=urn:btih:DF34401DDD303E9A206ED9A388ED78FE1025C6BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +445,8 @@ magnet:?xt=urn:btih:DF34401DDD303E9A206ED9A388ED78FE1025C6BD
 ```bash
 magnet:?xt=urn:btih:AAF6B252F2C4D785857BD0CA8498A4D3E53B7BE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +472,8 @@ magnet:?xt=urn:btih:AAF6B252F2C4D785857BD0CA8498A4D3E53B7BE1
 magnet:?xt=urn:btih:9BAD7305D82F675146560F4AF99D217326C4894C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +497,8 @@ magnet:?xt=urn:btih:9BAD7305D82F675146560F4AF99D217326C4894C
 ```bash
 magnet:?xt=urn:btih:66B693C7BA6A8F9E5EBAC879B249AD3625994396
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +524,8 @@ XX век вошел во всемирную историю как одно из
 magnet:?xt=urn:btih:C6AD8FC1B770AA6410747615153D1D4D02FBC898
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +550,8 @@ magnet:?xt=urn:btih:C6AD8FC1B770AA6410747615153D1D4D02FBC898
 magnet:?xt=urn:btih:DF0855C39F6AD0BBA9EC0FCC90F6A4C7AF6E9BFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +575,8 @@ magnet:?xt=urn:btih:DF0855C39F6AD0BBA9EC0FCC90F6A4C7AF6E9BFD
 ```bash
 magnet:?xt=urn:btih:18ADAB605269791C643A364508351F0E6FCB9B90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +603,8 @@ magnet:?xt=urn:btih:18ADAB605269791C643A364508351F0E6FCB9B90
 magnet:?xt=urn:btih:C7FAD54C7074A959BE983584F531F14377A0138E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +628,8 @@ magnet:?xt=urn:btih:C7FAD54C7074A959BE983584F531F14377A0138E
 ```bash
 magnet:?xt=urn:btih:95BB0D9664B06366309AF10879120B50928E769A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +655,8 @@ magnet:?xt=urn:btih:95BB0D9664B06366309AF10879120B50928E769A
 magnet:?xt=urn:btih:435A91D85420B3391AAECD1D0A9F379088EE502B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,29 +681,7 @@ magnet:?xt=urn:btih:435A91D85420B3391AAECD1D0A9F379088EE502B
 magnet:?xt=urn:btih:6CB668D0301EB18AC771B22D3DF23A465B30A6A7
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285199   (722776) от 25.02.2019
-
-Н. Н. Иноземцев | Внешняя политика США (1960) [DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстрое развитие США в домонополистическую стадию капитализма и выдвижение их в число одной из главных держав с переходом к империализму, их активное участие в борьбе за мировое господство в годы после первой мировой войны и упадок в годы мирового экономического кризиса 1929—1933 годов, резкое, усиление позиций американского монополистического капитала в ослабленном (   Читать дальше...   )Жанр: История, политология, экономика, публицистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E93FBCA4579D5424E4B85D1CBEE4EDF891326C3F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

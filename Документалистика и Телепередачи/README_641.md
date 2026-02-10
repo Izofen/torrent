@@ -1,3 +1,29 @@
+###  Публикация: 1000427   (859338) от 25.03.2016
+
+ЧП. Чрезвычайное происшествие. Расследование. Радио НеСвобода (2016.03.25) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859338.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Чрезвычайное происшествие. Расследование» — это эксклюзивная информация из надежных источников. Документальные расследования, проводимые программой, затрагивают самые актуальные темы: организованную преступность и коррупцию, экономические преступления и терроризм. Зрителей ждут мнения участников событий, комментарии экспертов и версии правоохранительных органов.Телекомпания: НТВЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 00:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B5401A50925EA786A0ABA2BAE1B77124B376B39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000351   (859340) от 25.03.2016
 
 Человек и закон (25.03.2016) SATRip
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:D08CF8226E204EEE6E33AD70375B2AE7DE564326
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:D08CF8226E204EEE6E33AD70375B2AE7DE564326
 magnet:?xt=urn:btih:86F6F7C0D7EBF7FBA5913D437E1A20136A651A87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:86F6F7C0D7EBF7FBA5913D437E1A20136A651A87
 ```bash
 magnet:?xt=urn:btih:F69CA872CC135744525A173422B77E5439BB9325
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:F69CA872CC135744525A173422B77E5439BB9325
 magnet:?xt=urn:btih:01B71EC0329BCA9019288823A4C73FDEB4BCDB66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:01B71EC0329BCA9019288823A4C73FDEB4BCDB66
 ```bash
 magnet:?xt=urn:btih:380529DF1F2AF4CE71EB3750F488481F53A0D650
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:380529DF1F2AF4CE71EB3750F488481F53A0D650
 magnet:?xt=urn:btih:ABE81BA2A70113DF932722ADCB9733D0E384A43B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:ABE81BA2A70113DF932722ADCB9733D0E384A43B
 ```bash
 magnet:?xt=urn:btih:F8340542D7139046597693D52F4C89B8101FC75A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:F8340542D7139046597693D52F4C89B8101FC75A
 magnet:?xt=urn:btih:738964DDEF332C2EE0DEB56C712412A59C620BA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:738964DDEF332C2EE0DEB56C712412A59C620BA4
 ```bash
 magnet:?xt=urn:btih:0C5C5BA33FF2A4A2AB6FD6EB51CD467C3FCFB347
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:0C5C5BA33FF2A4A2AB6FD6EB51CD467C3FCFB347
 magnet:?xt=urn:btih:FA6DC6D47B67A019FEA17425BDE1CF000A1BD7CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:FA6DC6D47B67A019FEA17425BDE1CF000A1BD7CD
 ```bash
 magnet:?xt=urn:btih:B5FDAB11C0AA75F777CD5AF4C8FA49179EF9F207
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:B5FDAB11C0AA75F777CD5AF4C8FA49179EF9F207
 magnet:?xt=urn:btih:9A8860015A5007B1DCB84E8BA88E1A3CF2E4B8FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:9A8860015A5007B1DCB84E8BA88E1A3CF2E4B8FB
 ```bash
 magnet:?xt=urn:btih:8E1CD16F62BC721E5001EBDC249DE812A5F7F49A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:8E1CD16F62BC721E5001EBDC249DE812A5F7F49A
 magnet:?xt=urn:btih:B59D075276322E8B998473CE3D6B9C27D70B9ECA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:B59D075276322E8B998473CE3D6B9C27D70B9ECA
 ```bash
 magnet:?xt=urn:btih:9B454CDC9CD61864FBBA82B8A20AB05540D6714F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:9B454CDC9CD61864FBBA82B8A20AB05540D6714F
 magnet:?xt=urn:btih:57F963DAB90F8F6252C37E896FA9CD8CDAFB6C7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:57F963DAB90F8F6252C37E896FA9CD8CDAFB6C7B
 ```bash
 magnet:?xt=urn:btih:F1B5858A1BC9334DA1278040194978159E6B5A26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:F1B5858A1BC9334DA1278040194978159E6B5A26
 magnet:?xt=urn:btih:1737204EA660A7E6A36A1F86423B15A19C38DEEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:1737204EA660A7E6A36A1F86423B15A19C38DEEC
 ```bash
 magnet:?xt=urn:btih:C56668AF314759A9F94D119F8C8E3CFF1F980AFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:C56668AF314759A9F94D119F8C8E3CFF1F980AFD
 magnet:?xt=urn:btih:821E265A31EDAF9715DCFA050C33E862A3215707
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:821E265A31EDAF9715DCFA050C33E862A3215707
 ```bash
 magnet:?xt=urn:btih:A9EC7E4FDBA9DA4BF2031C1A45A651CF27E0AAE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +596,8 @@ magnet:?xt=urn:btih:A9EC7E4FDBA9DA4BF2031C1A45A651CF27E0AAE5
 magnet:?xt=urn:btih:9D222273047F407515F3AC5B403AC886208B35A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +621,8 @@ magnet:?xt=urn:btih:9D222273047F407515F3AC5B403AC886208B35A1
 ```bash
 magnet:?xt=urn:btih:D514E560BF0893D6E32925560C27E40BC35FEF7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:D514E560BF0893D6E32925560C27E40BC35FEF7F
 magnet:?xt=urn:btih:FE623E832CD7A819001F17BB42CF83DB765CB3C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,29 +674,7 @@ magnet:?xt=urn:btih:FE623E832CD7A819001F17BB42CF83DB765CB3C1
 magnet:?xt=urn:btih:81A2AD1A1674C58D4ECA67E8EFB1432EE4343150
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498238   (859888) от 25.09.2021
-
-Альпийская прогулка 2 / Alpine Stroll 2 (2020) WEBRip [VP9/2160p]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправьтесь в кинематографическое FPV-путешествие вслед за лыжниками по красивым альпийским пейзажам США.Производство: СШАЖанр: Документальный, видовойРежиссер: Николя ГайярПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:04:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBE54302B9076011FA4C797672ACDA5B2C01D8A7
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

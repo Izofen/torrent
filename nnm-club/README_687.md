@@ -19,6 +19,8 @@ KissXSis | Поцелуй сестёр (2005) [25 томов, 156 глав + Э�
 magnet:?xt=urn:btih:6768FED013F25DBEFA2DF4E83D4C22B7C4A069F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Stive Morgan - Part 2 Compilation (2025) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:8B262FF442A8655ABC5327675E06D8BB66B19B7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Btooom! | Взрыв! (2009) [26 томов, 125 глав + Экстра] [Ма�
 ```bash
 magnet:?xt=urn:btih:51B7767E8602E60AC5591F9D6B82A2D0A35E3D18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:51B7767E8602E60AC5591F9D6B82A2D0A35E3D18
 magnet:?xt=urn:btih:036A3BC831090B695562E49D59F85EAC0027CDA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:036A3BC831090B695562E49D59F85EAC0027CDA2
 ```bash
 magnet:?xt=urn:btih:C3EE8C34C7BDF93718657BD5F7AB72C38CA47379
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Kuzu no Honkai | Scum's Wish | Тайные желания отвергнуты�
 magnet:?xt=urn:btih:CB3EC6EC392EAF86E78C526BAD082DE66D48F98D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ VA - A State of Trance Radio Top 50 - 2025, Vol. 1 (2025) [MP3|320 Kbps] <Trance
 ```bash
 magnet:?xt=urn:btih:1EECC7A0FC58CA41C08D0A165802DE7EBBA823A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:1EECC7A0FC58CA41C08D0A165802DE7EBBA823A9
 magnet:?xt=urn:btih:1CE4B53A30D9ED5584108D63C186382CCF211A14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:1CE4B53A30D9ED5584108D63C186382CCF211A14
 ```bash
 magnet:?xt=urn:btih:6717F95CDACB514A0403A71FC5D7A47750413F32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ Ragna Crimson | Рагна Багровый [2023, TV, 24 из 24] BDRip 1080p H
 magnet:?xt=urn:btih:59DBB3E1936007FE230D6978962C740B1F5B5C10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:59DBB3E1936007FE230D6978962C740B1F5B5C10
 ```bash
 magnet:?xt=urn:btih:E700F3AF1F659BE1F35764B7102BF6648242E21B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:E700F3AF1F659BE1F35764B7102BF6648242E21B
 magnet:?xt=urn:btih:8801A79F4BCEAAD45D74A27C796C7B1F2E96233A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ Life is Strange: Double Exposure (2024) [Ru/Multi] (1.1.1027899.2411220323/dlc) 
 ```bash
 magnet:?xt=urn:btih:0B73C7D27B72AE9CE1AA266DBEDDCBF7C443158C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:0B73C7D27B72AE9CE1AA266DBEDDCBF7C443158C
 magnet:?xt=urn:btih:4D44BCBC6EBE979CBA77627596A7467D13EABC10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ Life is Strange: Double Exposure (2024) [Ru/Multi] (1.1.1027899.2411220323/dlc) 
 ```bash
 magnet:?xt=urn:btih:034E26A7371BF026EAB813251FAFF701526FFD74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:034E26A7371BF026EAB813251FAFF701526FFD74
 magnet:?xt=urn:btih:F65B344907FC282E89582763393EFBE8D63DBF51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:F65B344907FC282E89582763393EFBE8D63DBF51
 ```bash
 magnet:?xt=urn:btih:8D3124F03AA0014E900A29372B5568D9D1312AB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:8D3124F03AA0014E900A29372B5568D9D1312AB4
 magnet:?xt=urn:btih:48433D22F83D2D98B42C221EF5103A809318E00C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ magnet:?xt=urn:btih:48433D22F83D2D98B42C221EF5103A809318E00C
 ```bash
 magnet:?xt=urn:btih:3B9C173991F0FDF131450742B9D7277872C62CF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:3B9C173991F0FDF131450742B9D7277872C62CF9
 magnet:?xt=urn:btih:3BE32694F3F78F568724882EB479C460D2FCEBDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ magnet:?xt=urn:btih:3BE32694F3F78F568724882EB479C460D2FCEBDB
 ```bash
 magnet:?xt=urn:btih:CA109ADBF58431FF8620F9F5FC7EB93694CD4237
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +584,8 @@ Linkin Park - From Zero (Deluxe Edition) (2025) [FLAC 24/48|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:748D0BF2DD36F63403D26342BCB4531561D1702C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:748D0BF2DD36F63403D26342BCB4531561D1702C
 ```bash
 magnet:?xt=urn:btih:362DE6D1E4D9103A0905AD3D044CB53E20BBF99F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +636,8 @@ magnet:?xt=urn:btih:362DE6D1E4D9103A0905AD3D044CB53E20BBF99F
 magnet:?xt=urn:btih:503FBD1559CBEEC0E8C6FA3B3DBBE3DBCA2FEE26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ EBOLA VILLAGE (2025) [Ru/En] (1.0.0) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:26E408C588EAB49043ADB4D0C418ED2AB11000DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +689,8 @@ magnet:?xt=urn:btih:26E408C588EAB49043ADB4D0C418ED2AB11000DF
 ```bash
 magnet:?xt=urn:btih:BAAF456367A92FC4A7221087C3BCD5BD27EFBF38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

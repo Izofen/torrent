@@ -19,6 +19,8 @@ Microsoft PowerToys – это набор утилит, позволяющих �
 magnet:?xt=urn:btih:374B996518B650C6C02631CDBBE098BF37BC51AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ PowerISO - программа позволяет создавать, конве�
 ```bash
 magnet:?xt=urn:btih:B157085A1285F77A71F94EF5E7DEAAB67D0BE6D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 magnet:?xt=urn:btih:2601EF2E47EBE16AC025C325C09D11A2E06FBA1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Duplicate File Detective - программа от Key Metric Software, кото
 ```bash
 magnet:?xt=urn:btih:6FD119C8566BB45E8E1331A5D6BFB2BA087876B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ ExtraDisks - это набор инструментов для создания 
 magnet:?xt=urn:btih:548303CFEB893F90D54ACDEDD842E83E37036AB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Smart Defrag - дефрагментатор, позволяющий довест
 ```bash
 magnet:?xt=urn:btih:F55E00A775A2F9761326DDE0BD46214BDC643D0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Duplicate Files Search & Link (Duplicate Searcher) - это приложение
 magnet:?xt=urn:btih:0206954C27425199A263A586F3CE4E62DC20B96C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ WinSCP, это FTP и SFTP клиент с открытым исходным к�
 ```bash
 magnet:?xt=urn:btih:E9EE1690862F53AC08C009A35BFDAFA1F8D23433
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Office 2013-2024 C2R Install + Lite 7.7.7.7 ++ r26 Portable by Ratiborus [Multi/
 magnet:?xt=urn:btih:E4566A894C3440F5E70DB41EEB9FC2390FC04CD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Draw.io 27.0.2 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:755EB2547327B01447F00C7AFA1DD674F2ED7AFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ pdfFactory Pro - удобное приложение, представляюще
 magnet:?xt=urn:btih:D28556AE96C0A415B428ACE9B014E6751AB62CA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Tablacus Explorer - удобный в работе и простой в испо
 ```bash
 magnet:?xt=urn:btih:C0B337C0052F160B15F8F08DC6C0A6B1A8728048
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Etcher – простое и надежное приложение для зап
 magnet:?xt=urn:btih:C9FAD64E117621C35DAC7E2E2CB7565C5138C2A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ FinePrint - многофункциональный драйвер для при�
 ```bash
 magnet:?xt=urn:btih:27448AD9D92653775B78A346287ED0FA1140D83B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Tixati — это полноценный и бесплатный клиент с
 magnet:?xt=urn:btih:7F30899CC7007D00D4036CE4C3E69DB78C1DC2E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ EF Commander  — замечательный двухпанельный файл
 ```bash
 magnet:?xt=urn:btih:7B8796E4A9FB1F5A2FCB9BFA124AD5A2E4A5EA77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ HomeBank можно настраивать полностью под себя, �
 magnet:?xt=urn:btih:F7DF90575A43FD1577356E4A3AC3C21E45AFB079
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Mirillis Action! 4.45.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2653A312B1D8B5A36124CC52B612B9BCE110378E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ Free Download Manager - кроссплатформенный менеджер з
 magnet:?xt=urn:btih:E22C84348ED05E8478A0090391EB95BD2FF3F856
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ Auslogics Registry Cleaner поможет вам избавиться от ош�
 ```bash
 magnet:?xt=urn:btih:9B54CE4DB5AD51C82525A1A623C9C570BBE3A9CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ Auslogics Driver Updater – программа представляющая с�
 magnet:?xt=urn:btih:3702FF13F078357ACBB7DC5B7703DA8784B306BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ GeoGebra — мультиплатформенная программное об�
 ```bash
 magnet:?xt=urn:btih:2023EFBF2CC5A5D31514562C3E135971DA0F7F65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ QownNotes – менеджер заметок, позволяющий четко
 magnet:?xt=urn:btih:640DAAFE129F1860FF57EA9C9CE99F02BA0B1EA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ HDCleaner – многофункциональный программный пр
 ```bash
 magnet:?xt=urn:btih:937203F5A0F808DFC390F59AD92B7AEB5B0BAE36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ Joplin - это бесплатное приложение с открытым и
 magnet:?xt=urn:btih:DC377FC19BB8A0C853AF256413806BF2A75D3840
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Icecream Screen Recorder – простая программа для запис
 ```bash
 magnet:?xt=urn:btih:A2FAFCA23B484E3C5E40C58BC4E8816FF2CA5D47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

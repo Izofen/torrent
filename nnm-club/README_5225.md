@@ -22,6 +22,8 @@ Photos Exif Editor - это интуитивно понятное приложе
 magnet:?xt=urn:btih:EF6BB09CE6716BD841E0F55FD26DD3A40399AB5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:EF6BB09CE6716BD841E0F55FD26DD3A40399AB5B
 magnet:?xt=urn:btih:D84A082133BB806052B44AEC467FB7D03BA601A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Icecream Video Editor - простой редактор видео для Window
 ```bash
 magnet:?xt=urn:btih:273546E7BAA90069CF19C2B777E7708D1680814C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:273546E7BAA90069CF19C2B777E7708D1680814C
 magnet:?xt=urn:btih:6E653EBA65CDB683BC040223C4539C79E58A8C9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:6E653EBA65CDB683BC040223C4539C79E58A8C9F
 ```bash
 magnet:?xt=urn:btih:4C038A1FC239D4E57646D480678A25FA166BFB22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:4C038A1FC239D4E57646D480678A25FA166BFB22
 magnet:?xt=urn:btih:B8EA44F338422B1652E06614FB64CC804898F541
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:B8EA44F338422B1652E06614FB64CC804898F541
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:B8EA44F338422B1652E06614FB64CC804898F541
 magnet:?xt=urn:btih:22AAA701B7C62449C5B09C8DA36D6A97EA04088D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:22AAA701B7C62449C5B09C8DA36D6A97EA04088D
 ```bash
 magnet:?xt=urn:btih:1751F7A251238BA1BB23E28835BD1890AC55352C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:1751F7A251238BA1BB23E28835BD1890AC55352C
 magnet:?xt=urn:btih:D194BF6F8602323E220A1AD124788261CFBB6C50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Chicago - Chicago Christmas Complete (2023) Remaster [FLAC 24/192|24/96|24/44.1|
 ```bash
 magnet:?xt=urn:btih:B6582DB0887D59A00FA49086F221BC2CC417F77E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ PhotoSweeper — отличный способ поиска дубликатов
 magnet:?xt=urn:btih:3FC2D1A26856706335EF06C8676FE312B9D15265
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Luis Rodriguez and Nathalie Aarts - Rhythm of My Heart (extended mix) (2023) [FL
 ```bash
 magnet:?xt=urn:btih:55783121402E1B395F1448A1A3C0E83D071A190A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:55783121402E1B395F1448A1A3C0E83D071A190A
 magnet:?xt=urn:btih:26095D53874900D0CD62CE45C973DC32C3419882
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:26095D53874900D0CD62CE45C973DC32C3419882
 ```bash
 magnet:?xt=urn:btih:E2EB98C8614184F9C2EE465374673726AA9BE295
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ Velvet Velour - Pleiades (2020) EP [MP3|320 Kbps] <Darkwave>
 magnet:?xt=urn:btih:458BD666BB133651D07DEAF9D50619527B69B53F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:458BD666BB133651D07DEAF9D50619527B69B53F
 ```bash
 magnet:?xt=urn:btih:1AF11CBAAB61AB6819A7FEACF619838BE1E27D58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:1AF11CBAAB61AB6819A7FEACF619838BE1E27D58
 magnet:?xt=urn:btih:119730C6E02239BAB798A21F9797C12FF86BB125
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ ShaperBox - это ваш незаменимый инструмент для р�
 ```bash
 magnet:?xt=urn:btih:2FBFF05A8D0B656676876857D8529E71B5DCABA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ Sticks N' Stones - Get Stoned (2020) [MP3|320 Kbps] <Glam Hard Rock>
 magnet:?xt=urn:btih:204615E08CA46A086B4CA573C1074793C77CE0BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +556,8 @@ magnet:?xt=urn:btih:204615E08CA46A086B4CA573C1074793C77CE0BB
 ```bash
 magnet:?xt=urn:btih:1A74763FBF15146A837D8A573F81E0346122EC9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +585,8 @@ Icecream Photo Editor - это приложение, позволяющее по
 magnet:?xt=urn:btih:4AAFE4BAE90995B1C588EAC9B8C60909406ED338
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +610,8 @@ magnet:?xt=urn:btih:4AAFE4BAE90995B1C588EAC9B8C60909406ED338
 ```bash
 magnet:?xt=urn:btih:D813FA54B16D9E53BDCBB25342DA9DF4B0388452
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +637,8 @@ magnet:?xt=urn:btih:D813FA54B16D9E53BDCBB25342DA9DF4B0388452
 magnet:?xt=urn:btih:EDA58DC117B95C44EF092A16D082A72D07B0184E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:EDA58DC117B95C44EF092A16D082A72D07B0184E
 ```bash
 magnet:?xt=urn:btih:2DB458A21D1DA81386A35354EF6C5BD98C6527F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +691,8 @@ Chicago - Greatest Christmas Hits (2023) Remaster [FLAC 24/192|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:352E92A050F79003E083254786E97F70DD2C5192
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

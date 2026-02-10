@@ -22,6 +22,8 @@ VA - WeArmada 2019 (2018) [MP3|320 Kbps] <House, Tech House, Deep House>
 magnet:?xt=urn:btih:6A4C6D606E8396CCBE70D65CC122139FC02EB4B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Ibiza Lounge House: For DJs Only (2018) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:8265D92C6371CF5B9974736799DB7D73A3F85EC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Ori Uplift - Uplifting Only 001 - 200 / Promo & Guest Mixes (2013 - 2016) [MP3 |
 magnet:?xt=urn:btih:00C2173307F2044D2C1BCE2D9E405FDC7D11409C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ VA - Liquid Drum and Bass Sessions 2019 Vol 1 & 2 (2019) Fokuz Recordings [FLAC|
 magnet:?xt=urn:btih:C543EFC114C02909FA9A721C185C0876427E4B60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ Opus III - Guru Mother (1994) [APE|Lossless]<Vocal House, Ambient, Electronica>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ Fluxsense - Ionosphere (2017) Uxmal Records [FLAC|Lossless|WEB-DL|tracks] <Psybi
 magnet:?xt=urn:btih:71FD9AF4D0FC950DBB78F0DA51B44C015F807C00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ VA - Mixmag Germany Presents Kittball (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep
 ```bash
 magnet:?xt=urn:btih:22FF990C5E12F629142AF8581BBCF9B228A88ADC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ VA - Underground Festival Part. 3 (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:5C33C17C31DB295D796E8B0F33832354CB1C004E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +250,8 @@ VA - Soulful Ibiza Sound (2017) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:3947E53548CEBB5990354801A3EBC60EEFAE8095
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +280,8 @@ Masters Of Balance - The Album (2012) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:643BAC27FD618342F30A3BA166D1DE0BE835A920
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +308,8 @@ VA - Trance Cloud II (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:EDF563BBD3348D5B8F4474ABE8536814196CD1AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +338,8 @@ Hardwell - United We Are Remixed (Extended Mixes) (2015) [FLAC|Lossless|WEB-DL]<
 magnet:?xt=urn:btih:9DA4D765E240BF670F048D696CBB9957230E54C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +366,8 @@ VA - Pure Bliss Vocals: Best Of (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:DA498E316BDA7879D2D21A2FDB04B268B99E5458
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +396,8 @@ VA - Armada Deep Best Of (2015) [MP3|320 кб/с]<Deep House>
 magnet:?xt=urn:btih:88F4A679E5716E7F9A167A9057FA78499B9CE0D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +424,8 @@ VA - Armada Music: Best Of (2016) [MP3|320 Kbps] <House, Trance, Progressive>
 ```bash
 magnet:?xt=urn:btih:0D3B9038C4113575474604791231A1261200C825
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +454,8 @@ VA - Smoothly Winter Lounge 2017 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lou
 magnet:?xt=urn:btih:1271F604F096C0CD72CE10038683D3248F0D021E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +482,8 @@ VA - Vocal House Dance Music Experience 2016 Vol.01 (Mixed By Jora Mihail) (2016
 ```bash
 magnet:?xt=urn:btih:A55647CDD81DB2EC6F9AD36389C6670FF18A4D57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +512,8 @@ VA - Mainstage Music Top 10 (2016) [MP3|320 Kbps] <House, Electro House>
 magnet:?xt=urn:btih:E0D9ADB4B4B0EF2A1C32D25C199B1F625821D3DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +540,8 @@ VA - Chillout Tonight: City Club Edition (2016) [MP3|320 Kbps] <Chillout, Lounge
 ```bash
 magnet:?xt=urn:btih:F6C7E96BAA66A301062D72B66BC8463F8485BBDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +570,8 @@ VA - Underground People Christmas 2016 (50 Tracks For Your Winter Party) (2016) 
 magnet:?xt=urn:btih:5D9F99ADC381D6851554A7856C1A0098C421E1F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +598,8 @@ VA - Mountain Sound The Lounge Of Beaver Creek (2016) [MP3|320 Kbps] <Chillout, 
 ```bash
 magnet:?xt=urn:btih:E422B8082EEF6A63AAABD717EBF1296F5E522FB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +628,8 @@ VA - Lounge Energizer: Great Electronic Selection (2016) [MP3|320 Kbps] <Chillou
 magnet:?xt=urn:btih:4A83D00DB6F7ECA43BC96CFA3BBD7BF7673AA6B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +656,8 @@ VA - Release Records: Best Of (2016) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:5127967515AC07257D4C4D326F1CE62E389F40EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +686,8 @@ VA - Cosmic Dreaming Lounge (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chill
 magnet:?xt=urn:btih:61EB6165559C08D6007CE7081C42F1D75F5FB146
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +715,8 @@ VA - Ori Uplift - Uplifting Only 302 (2018) [MP3|320 Kbps] <Trance, Vocal Trance
 magnet:?xt=urn:btih:9E8E4B2B03ED621B02E36AACAD472792A997FE7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ VA - Markus Schulz – Global DJ Broadcast (2 Hour Studio Mix) (2018) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:FAA60187C52833AE6BC07964D478FEDA2724304C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

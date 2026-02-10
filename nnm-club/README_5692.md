@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5AF986A82A2D8B684AFAF8CE8E51045572C99A2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ The Dead Amigos - Denim Egos (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock,
 magnet:?xt=urn:btih:3AD048EA9A68C7D886E03D7CF037BD87A03CE590
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:3AD048EA9A68C7D886E03D7CF037BD87A03CE590
 magnet:?xt=urn:btih:FD471C8347E1EBF58BC336AF456597F20EBCEA72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:FD471C8347E1EBF58BC336AF456597F20EBCEA72
 ```bash
 magnet:?xt=urn:btih:5BD863441D6A46DDD44416C0086C8ECF0F49C1D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:5BD863441D6A46DDD44416C0086C8ECF0F49C1D2
 magnet:?xt=urn:btih:2A0AE102A70407B703BD09794B19FFA2155806D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:2A0AE102A70407B703BD09794B19FFA2155806D2
 magnet:?xt=urn:btih:54CD2E1DD28A97734C740ADB77915A5EEECF654B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Hauora - это полусжатое, чистое, минималистично
 ```bash
 magnet:?xt=urn:btih:864E24341AA905776B5E09368906B848FB12AF60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ Nergard - Memorial for a Wish (2018 Version) (2018) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:A3405962ADACA048541658A4A4C4676B13F74227
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ PDF-XChange Pro — универсальное решение для работ�
 ```bash
 magnet:?xt=urn:btih:B55705A6E839B7DBD802E2C3DF19A0C0635160EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ Dash - очень удобное приложение, включающее в �
 magnet:?xt=urn:btih:61D6BD8078776A9D3F1F2DA21B3E0C94B501F560
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:61D6BD8078776A9D3F1F2DA21B3E0C94B501F560
 ```bash
 magnet:?xt=urn:btih:ECBCA4BE4B691D27AE902D8BEB4028067226E4B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ The Vintage Caravan - The Monuments Tour (2023) Live [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:D5CF186A2DABB7E3BAC4932AB834455C953AE91D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:D5CF186A2DABB7E3BAC4932AB834455C953AE91D
 ```bash
 magnet:?xt=urn:btih:227259A4AEB39F614CE17304967FA017BC963CE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ DockView - это приложение, которое добавляет пре
 magnet:?xt=urn:btih:4DE12F8C6ABAB6C300085738D350522C7E81BFF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:4DE12F8C6ABAB6C300085738D350522C7E81BFF2
 ```bash
 magnet:?xt=urn:btih:BF5AFAA0AA2653FA27C048DA5C0A6184BDB3C022
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:BF5AFAA0AA2653FA27C048DA5C0A6184BDB3C022
 magnet:?xt=urn:btih:E78B7B5D7E9E481D5BF8188FF2232B987ABF1442
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:E78B7B5D7E9E481D5BF8188FF2232B987ABF1442
 ```bash
 magnet:?xt=urn:btih:FABA4195342756AC0B53F3015DF06E81B3D5C3EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:FABA4195342756AC0B53F3015DF06E81B3D5C3EA
 magnet:?xt=urn:btih:153D303BF38729857D211428695D0CD2876399E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ magnet:?xt=urn:btih:153D303BF38729857D211428695D0CD2876399E8
 ```bash
 magnet:?xt=urn:btih:B75DD6A214848656E1A1D133840F1DFC0C4E48F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ MyLanViewer — программа для сканирования и монит
 magnet:?xt=urn:btih:85FE5B77B77C55FBF231D532556FBA599F6C34A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ Native SQLite Manager — это удобный менеджер баз данн
 ```bash
 magnet:?xt=urn:btih:366A3614572161A4A9E33AA9FAE799A24386F639
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ A Better Finder Rename является лучшим решением для а�
 magnet:?xt=urn:btih:4BFE95997B9E8A75AF3438FD808C3ACF04628FF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:4BFE95997B9E8A75AF3438FD808C3ACF04628FF1
 ```bash
 magnet:?xt=urn:btih:B9BF0C60822A61C3C6A796B4AF6BED317E64F0DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +632,8 @@ Dropshare - приложение строки меню для Drag & Drop заг
 magnet:?xt=urn:btih:9BA8250AC1AB82B0991FB963D3D7D5F63ABEFA3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:9BA8250AC1AB82B0991FB963D3D7D5F63ABEFA3F
 ```bash
 magnet:?xt=urn:btih:3CF9215CBA03C9938D1DB84CDAD272EA2213CA5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +684,8 @@ DirEqual - это инструмент сравнения папок, котор
 ```bash
 magnet:?xt=urn:btih:63A6D8B702C2596F5452784202ED85D74D25B7A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ One Read / Все Документы Читатель - Офис v1.2.7 Mod by v
 magnet:?xt=urn:btih:3DF2785F1C60072FAB6F0A63B1AB392FACC6A6D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ PianoMeter – Piano Tuner v4.1.1 Mod by Alex.Strannik [Ru/En]
 ```bash
 magnet:?xt=urn:btih:402BA4D7A1A9922F7FC9FF7C84211E1B7D885314
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Smart AudioBook Player Pro v11.6.4 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:EE8BAE7DF7892DB76BE5BE8DFB56C3EC9F0029FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:EE8BAE7DF7892DB76BE5BE8DFB56C3EC9F0029FF
 ```bash
 magnet:?xt=urn:btih:23FA73F78E8BDEFF6F62E2E23C6AFEE5EFB5B796
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ HiPER Calc Pro v11.2.9 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:0143CF786F64AAED7FD38656ACB899CAD1D4F482
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ LazyMedia Deluxe это Android TV приложение, которое можн
 magnet:?xt=urn:btih:610C4E1545B0871FB11058F7E9E97574C6F191C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ Words of Wonders: Игра в слова v5.3.10 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3A63127538411B6CB4642AF421809B2458D919CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Food.ru — это пошаговые рецепты и мобильное пр�
 magnet:?xt=urn:btih:382BB8ED5EADD70CCCC88FAEF81502B718361612
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Universal Copy — это самый быстрый способ копиров�
 magnet:?xt=urn:btih:00908F9F51008F59F8AAFE5C8622BE29F0668777
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:00908F9F51008F59F8AAFE5C8622BE29F0668777
 ```bash
 magnet:?xt=urn:btih:1D665489710540B0F89FEA9FAC3E408DE5EC3A5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Bubble Shooter Viking Pop v7.12.2.38462 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:7F337023FC26A38278DBED5138900C45D8523192
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:7F337023FC26A38278DBED5138900C45D8523192
 ```bash
 magnet:?xt=urn:btih:6AC3C1D0BDD61B5EB1EF9465EDA74FE7B80533C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 magnet:?xt=urn:btih:7A65932DFDA010A4DC9BF50FFD53BFDB6B5B2701
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ FacePic — приложение AI Face, приложение для легко
 ```bash
 magnet:?xt=urn:btih:50153858B3FDE52CD851A7E73812C3FB5E4C2197
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:50153858B3FDE52CD851A7E73812C3FB5E4C2197
 magnet:?xt=urn:btih:71A932C7B780A2AB4A2B59BFA2FCD9C9DEE2ABC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:71A932C7B780A2AB4A2B59BFA2FCD9C9DEE2ABC8
 ```bash
 magnet:?xt=urn:btih:702B0F85CFE68C414DDFEF033C3C279EA8D3BB44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ AI Music Maker & Cover Songs v1.13 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:C50B02767E42F2E0BA71500A210A718548C25A11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ FotoTweak - AI Image Generator v1.0.48 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:937E15772BBA6CFBB7314C7040FFF9B3A4AEB8D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ BlockSudoku / Кудоку-Вуди Блок v2.6.4 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:EFF926D7AD8D0822EC2C2EBA7541499B27413AA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ VRadio - Online Radio App v2.8.10 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C15A5624A449D5F9E00330F6BEF80CFF49F2D09E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ VK Музыка: песни и подкасты v8.6 Mod by VK Equals [Ru/En]
 magnet:?xt=urn:btih:93BA48A7EC4130995018740746827C45133D432A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ OTT Онлайн прямое телевидение, в котором вы н�
 ```bash
 magnet:?xt=urn:btih:2FCC0C1EED43433C3551CD81E613C5822848D00A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ NokoPrint v5.24.8 Mod by derrin [Ru/Multi]
 magnet:?xt=urn:btih:5F663D3A24DE6B7D5BB7AB3F704003B57F7E0146
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Bananastreet: Deep House & EDM v4.1.63 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:4077A7CF0F1BB27312F1071407B5E81FE6E665B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:4077A7CF0F1BB27312F1071407B5E81FE6E665B2
 magnet:?xt=urn:btih:790A0A789F23C60544684C554169D05767E5833E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Jigsawscapes® - Пазлы v5.0.0 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D0B3C27CB7C7A5C08A64F62B1E83C440F4BF454A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

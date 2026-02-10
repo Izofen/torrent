@@ -1,3 +1,29 @@
+###  Публикация: 1113612   (834974) от 13.03.2017
+
+Роберт Джордан | Нож сновидений (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вращается Колесо Времени. Опаляют землю жгучие ветры судьбы. Истончается, рвется сама ткань бытия. Даже Белая Башня уже перестала быть оплотом безопасности. Элейн вступает в жестокую схватку за Львиный Трон. А Ранд ал'Тор, Возрожденный Дракон, понимает: Последней Битвы уже не избежать. Ему остается только готовиться к судьбоносной схватке с Темным и его Приспешниками. (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 41:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DC36C29EEF43ADC085A9111243BD6D78AE07803
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380209   (835000) от 02.05.2020
 
 Василиса Павлова | S.T.A.L.K.E.R. Подмосковье. Песня Птицелова (2020) [MP3]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:98D6BB852667104E56BD8237E45727129AD7A85E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:98D6BB852667104E56BD8237E45727129AD7A85E
 ```bash
 magnet:?xt=urn:btih:0F8112EDF580BA50C118AFEA3509C1BE975778FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +101,8 @@ magnet:?xt=urn:btih:0F8112EDF580BA50C118AFEA3509C1BE975778FC
 magnet:?xt=urn:btih:11A32D09C1E28B79FFA0AAAE0616136A2CAB047E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:11A32D09C1E28B79FFA0AAAE0616136A2CAB047E
 ```bash
 magnet:?xt=urn:btih:D0AB02FD66FBC04BC0B7033924C1C5A715F15182
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:D0AB02FD66FBC04BC0B7033924C1C5A715F15182
 magnet:?xt=urn:btih:9EADE9ACDE5606E73D18F54A6269BEDB911D4850
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:9EADE9ACDE5606E73D18F54A6269BEDB911D4850
 magnet:?xt=urn:btih:0619B9DD00A82F1C22C4499F74321EB735C9F0AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:0619B9DD00A82F1C22C4499F74321EB735C9F0AC
 ```bash
 magnet:?xt=urn:btih:2E4332CB5118AA2A62B00FBB76D4036D2DF4675A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:2E4332CB5118AA2A62B00FBB76D4036D2DF4675A
 magnet:?xt=urn:btih:B331AF1453E8561C3121860E14CFE66AB4697FC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:B331AF1453E8561C3121860E14CFE66AB4697FC7
 ```bash
 magnet:?xt=urn:btih:D3147508ECDA0A3C0F43D0921CB024284C6AD83D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:D3147508ECDA0A3C0F43D0921CB024284C6AD83D
 magnet:?xt=urn:btih:78B1010B070A49F31E09A3C2E232D579E8039437
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:78B1010B070A49F31E09A3C2E232D579E8039437
 magnet:?xt=urn:btih:6BABEBE8BEFB09B9A79CF94E911451184D46DB6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:6BABEBE8BEFB09B9A79CF94E911451184D46DB6F
 ```bash
 magnet:?xt=urn:btih:600095539E166412CB8C0C1232E6FF4A9A1A6FE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:600095539E166412CB8C0C1232E6FF4A9A1A6FE6
 magnet:?xt=urn:btih:CE56E0322AF0C72C09D1626FA28844C22D9699B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:CE56E0322AF0C72C09D1626FA28844C22D9699B6
 ```bash
 magnet:?xt=urn:btih:92B0663BA975D06B473348CD8719B5F25FD7DE9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:92B0663BA975D06B473348CD8719B5F25FD7DE9D
 magnet:?xt=urn:btih:B95F0DF665EEA877B004BB69141B9446624F77E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:B95F0DF665EEA877B004BB69141B9446624F77E9
 ```bash
 magnet:?xt=urn:btih:AC78ED55839A0F1C08E6438F6F2D517D56839029
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:AC78ED55839A0F1C08E6438F6F2D517D56839029
 magnet:?xt=urn:btih:7BB6B5781E2040DFD22CD9A7997708E40FFB7FD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:7BB6B5781E2040DFD22CD9A7997708E40FFB7FD8
 ```bash
 magnet:?xt=urn:btih:26EE4A288AC9EFF71137857116EBF25E6EEE996E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:26EE4A288AC9EFF71137857116EBF25E6EEE996E
 magnet:?xt=urn:btih:26166FAC3A95D02C98A7C1BB5FE8CC2AA0B5725C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:26166FAC3A95D02C98A7C1BB5FE8CC2AA0B5725C
 ```bash
 magnet:?xt=urn:btih:54F2C4194369E08EFCF95C76DEE512281D4CD8ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:54F2C4194369E08EFCF95C76DEE512281D4CD8ED
 magnet:?xt=urn:btih:0E6013587EBAE15F1D2D941704389167323EB526
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:0E6013587EBAE15F1D2D941704389167323EB526
 magnet:?xt=urn:btih:ABA6B04D961C35648BB38949AC708A5B811080C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:ABA6B04D961C35648BB38949AC708A5B811080C7
 ```bash
 magnet:?xt=urn:btih:C5928252F72BF5D46EABB876A97CD2843A01AC6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:C5928252F72BF5D46EABB876A97CD2843A01AC6E
 magnet:?xt=urn:btih:A2EAACC94173E134A3F01C7CD1C9DE2210698B66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,30 +678,7 @@ magnet:?xt=urn:btih:A2EAACC94173E134A3F01C7CD1C9DE2210698B66
 magnet:?xt=urn:btih:22BAF0921DD62396530DB5DFD581D874209F15E7
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004044   (839432) от 05.04.2016
-
-Алексей Калугин | Возвращение (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839432.jpg" />
-</div>
-
-
-###  Подробнее
-
-В недалеком будущем лишь Россия остается оплотом сопротивления глобальной сети нанотехнологий.
-И возможно единственным очагом спасения Земли...Жанр: ФантастикаПродолжительность: 02:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC8978E35072A5B50D052AE617C5B2F43902D0C7
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

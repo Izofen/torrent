@@ -19,6 +19,8 @@ Ranma 1/2 OVA | Ranma Nibun no Ichi OVA | Ранма 1/2 OVA [1993, OVA, 6 из 
 magnet:?xt=urn:btih:ACA2C542D77EDD6012F3F45680A0DDAC23E5E26C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Ranma 1/2 Super | Ranma Nibun no Ichi Super | Ранма 1/2: Супер [1995, 
 ```bash
 magnet:?xt=urn:btih:7E5139CDFB9805661D6F9735BFFBC28C170DD603
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Ranma 1/2: Chou Musabetsu Kessen! Ranma Team vs. Densetsu no Houou | Ranma 1/2: 
 magnet:?xt=urn:btih:E4C6867A092D446F2CC60AD554A8BF3323E5D330
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Ranma 1/2 Special | Ranma Nibun no Ichi Special | Ранма 1/2: Специал
 ```bash
 magnet:?xt=urn:btih:4FC2DC774D380A34984470B82A291CF4BFE56C63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Shichisei no Subaru / Seven Senses of the Re'Union / Семизвёздная п
 magnet:?xt=urn:btih:7A52C50218586AC7B68EFC4A155C66B4265ECB1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Dragon Ball Super | Драгон Болл Супер [2015, TV, 46 из 131 эп
 magnet:?xt=urn:btih:F9F7C263AE57196AB9BD10D4A6A0351EBDC652F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ Fune o Amu | Fune wo Amu | Мы создаём корабль | Великое �
 ```bash
 magnet:?xt=urn:btih:1CE42D52D655CD068A812457B142859DDF9D366A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Tears to Tiara / Слёзы Тиары / Расколотая Тиара [2009, 
 magnet:?xt=urn:btih:5FB8E26F18AA22CD77B8EC9F8E12BB12ECB6B635
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Triage X / Искусственный отбор [2015, TV, 10 ep] BDRip Hi10p 7
 magnet:?xt=urn:btih:B2F72CA2C3808B12060914A4A90D74560B47C26E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Meitantei Conan | Detective Conan | Детектив Конан. Фильмы и
 ```bash
 magnet:?xt=urn:btih:6CC864738199745635DE1FF739911349D1A015D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ Strike Witches Gekijouban / Штурмовые ведьмы (фильм) [2012] 
 magnet:?xt=urn:btih:E65FF201D7DE6E290B4CAC87D014B5F8F299CEFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ Mnemosyne: Mnemosyne no Musume-tachi / Rin: Daughters of Mnemosyne / Дочер�
 magnet:?xt=urn:btih:FCB48AE02D8529F74444AAE3790F432B440822BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ Pokemon: Advanced Battle (8 Season) / Покемон: Новое Сражени�
 magnet:?xt=urn:btih:AB3B4076A4BCFA7314D60FA013CEE77FC2604928
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Carole & Tuesday / Кэрол и Тьюсдей [2019, TV, 24 из 24] WEBRip 72
 ```bash
 magnet:?xt=urn:btih:8C73BD370705BE611F8052F53BF2D46A5CC66D92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ Satsuriku no Tenshi / Angels of Death / Ангелы смерти [2018, TV, 16 
 magnet:?xt=urn:btih:7ECC230B8CA2A511563316BDA748D5991991A8CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ Eizouken ni wa Te o Dasuna! | Руки прочь от киноклуба! [2020
 magnet:?xt=urn:btih:1D3CC430E9D848E52630B90D1DCBBBB666CD710F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Tamayomi | Тамаёми [2020, TV, 12 из 12] WEBRip 720p rus
 ```bash
 magnet:?xt=urn:btih:346259E9E17A843F1DDE0F554FA1F19ABC965269
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ Lord El-Melloi II-sei no Jikenbo: Rail Zeppelin Grace Note | Досье лорд
 magnet:?xt=urn:btih:FC440184C06988C454223CEBBBDD87FCD80603F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ Gedo Senki / Tales from Earthsea / Сказания Земноморья [2006] 
 ```bash
 magnet:?xt=urn:btih:48ADFAF446C80A396C7CA58D2181C2E83FE621DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ Violence Jack: Hell's Wind Hen | Violence Jack: Hell's Wind | Жестокий �
 magnet:?xt=urn:btih:44D489207D39C2A7C3180552EBB0CD6E76ED295F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:44D489207D39C2A7C3180552EBB0CD6E76ED295F
 ```bash
 magnet:?xt=urn:btih:88C323152642DF00797260B3FC4C2DF835114F35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ Mahou Sensou / Magical Warfare / Магическая война [2014, TV, 12 e
 magnet:?xt=urn:btih:041B4FB2627CB9F452710F29E0DDAA338FE81242
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:041B4FB2627CB9F452710F29E0DDAA338FE81242
 magnet:?xt=urn:btih:4E650667B6D5E646B6AC5CB9E9AECEA18EE95620
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:4E650667B6D5E646B6AC5CB9E9AECEA18EE95620
 ```bash
 magnet:?xt=urn:btih:A3A2DAF597A4B4330D0A991FDEAC2585ECEE97E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ Summer Time Rendering | Summer Time Rendering | Летнее время [2022, T
 magnet:?xt=urn:btih:18C72D7A11DED035EB5F5D93BB41AA801B3A3B42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:18C72D7A11DED035EB5F5D93BB41AA801B3A3B42
 ```bash
 magnet:?xt=urn:btih:CC96EC4CA2B49415620DD05B9392E2DE4B030523
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

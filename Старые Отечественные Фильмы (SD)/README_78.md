@@ -1,3 +1,29 @@
+###  Публикация: 977658   (965680) от 21.01.2016
+
+Такая она, игра (1976) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_965680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конфликт между тренером футбольной команды, и лучшими игроками — Бушуевым и Миленковым — привел к тому, что футболисты ушли из команды. Миленков вернулся в НИИ, а Бушуев уехал в провинциальный городок, стал тренером и, положив в основу тренировок научный подход к игре, в короткий срок добился больших успехов…Производство: СССР, киностудия им. ДовженкоЖанр: ДрамаРежиссер: Владимир Попков, Николай МалецкийАктеры: Степан Олексенко, Вячеслав Жолобов, Георгий Жженов, Николай Гринько, Александр Пашутин, Юрий Критенко, Борис Щербаков, Александр Мартынов, Александр Денисов, Антонина Лефтий, Регина Разума, Валентина Гришокина, Михаил Езепов, Борис Кудрявцев, Сергей Подгорный, Владимир Ермаков, Владимир Абазопуло, Роман Ткачук, Николай РушковскийПродолжительность: 01:32:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA23BA4C661C7728F81D0465136F761A647AE81E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 619228   (966185) от 17.02.2013
 
 Крепость (1978) DVDRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:63B87F37C7B75FCD155655ED96DE5B0E575B361F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:63B87F37C7B75FCD155655ED96DE5B0E575B361F
 ```bash
 magnet:?xt=urn:btih:73F8F9FD9B5F830FBC6DAB609A9F0D6D75C2E902
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:73F8F9FD9B5F830FBC6DAB609A9F0D6D75C2E902
 magnet:?xt=urn:btih:2F501F5829036D45E23A3F110551DC91728E1F5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:2F501F5829036D45E23A3F110551DC91728E1F5E
 ```bash
 magnet:?xt=urn:btih:CE899680F69A7C601363C339AB87F6276697AEEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:CE899680F69A7C601363C339AB87F6276697AEEE
 magnet:?xt=urn:btih:69B6732F9A45406DBD445C4DFF77E2115BFF59B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:69B6732F9A45406DBD445C4DFF77E2115BFF59B9
 ```bash
 magnet:?xt=urn:btih:5C3B2A65BDAE72B3AF2AF6D04D40BBB095A3664D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:5C3B2A65BDAE72B3AF2AF6D04D40BBB095A3664D
 magnet:?xt=urn:btih:6FCF10A37F572EFB445679433D98BF4D674DBE30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:6FCF10A37F572EFB445679433D98BF4D674DBE30
 ```bash
 magnet:?xt=urn:btih:0257A00D14B239B018E724D352ECA487227D9497
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:0257A00D14B239B018E724D352ECA487227D9497
 magnet:?xt=urn:btih:BBFFC16EBF92C823A11B8AE9C4C2F75B9ABA2104
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:BBFFC16EBF92C823A11B8AE9C4C2F75B9ABA2104
 ```bash
 magnet:?xt=urn:btih:6D97DBF22B708F5EFFAC90EBA6B1A4B0A8671C53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:6D97DBF22B708F5EFFAC90EBA6B1A4B0A8671C53
 magnet:?xt=urn:btih:10F93B4471B543AF3F108064C63FF3F235CE2089
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:10F93B4471B543AF3F108064C63FF3F235CE2089
 ```bash
 magnet:?xt=urn:btih:8DF2DA7C7C1E60A29F7C33AF4E2DDD9E9E8011C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:8DF2DA7C7C1E60A29F7C33AF4E2DDD9E9E8011C5
 magnet:?xt=urn:btih:2BAAED4CC9FEDE342F763E9A2F32560500C1D894
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:2BAAED4CC9FEDE342F763E9A2F32560500C1D894
 ```bash
 magnet:?xt=urn:btih:3CD8C544AC2E70AFF00B929D0F8C92112C57D42B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:3CD8C544AC2E70AFF00B929D0F8C92112C57D42B
 magnet:?xt=urn:btih:B8C023142B58DDF38BFB3932EB2D44A677D1DE44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:B8C023142B58DDF38BFB3932EB2D44A677D1DE44
 ```bash
 magnet:?xt=urn:btih:9FAE3C8FE6AD0D7A0492C5F1C0AFD3CAAB9323DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:9FAE3C8FE6AD0D7A0492C5F1C0AFD3CAAB9323DF
 magnet:?xt=urn:btih:8BD91591ECDEA5D229C55C0C55244C32D5507D34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:8BD91591ECDEA5D229C55C0C55244C32D5507D34
 magnet:?xt=urn:btih:F35619B06308AA1AECE7325271420DCA3E8CC5DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +513,8 @@ magnet:?xt=urn:btih:F35619B06308AA1AECE7325271420DCA3E8CC5DD
 ```bash
 magnet:?xt=urn:btih:A17B9B4E1FE5E60FE3D91241181BA2F0F9D0D4CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:A17B9B4E1FE5E60FE3D91241181BA2F0F9D0D4CC
 magnet:?xt=urn:btih:F8E7B0E250733992AC69CC9258AF22FC5BBFE04A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +567,8 @@ magnet:?xt=urn:btih:F8E7B0E250733992AC69CC9258AF22FC5BBFE04A
 magnet:?xt=urn:btih:8BB5B1B3EE67645BDE80360C52766A3AAD2F530F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +592,8 @@ magnet:?xt=urn:btih:8BB5B1B3EE67645BDE80360C52766A3AAD2F530F
 ```bash
 magnet:?xt=urn:btih:D7885EED8034E93C91E0889E4F059891444E26F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +620,8 @@ magnet:?xt=urn:btih:D7885EED8034E93C91E0889E4F059891444E26F4
 magnet:?xt=urn:btih:333AF05463770344BD3122BF57AB59F0A52D76EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +645,8 @@ magnet:?xt=urn:btih:333AF05463770344BD3122BF57AB59F0A52D76EC
 ```bash
 magnet:?xt=urn:btih:AB7F7942BF156B648AEB0792FC2635A7C9FEB0C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,29 +672,7 @@ magnet:?xt=urn:btih:AB7F7942BF156B648AEB0792FC2635A7C9FEB0C6
 magnet:?xt=urn:btih:953CEA63B72C45C6EB3D98FED417ABF9366C430F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 440258   (971075) от 22.01.2012
-
-Сергей Иванович уходит на пенсию (1980) SATRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бухгалтер Сергей Иванович уходит на пенсию. Все так просто: уложил человек в портфель тапочки, большую фарфоровую кружку, коробочку с лекарством, открепил от стенки фотографии внучат, выслушал прощальные речи, выпил шампанского, принял памятный подарок и словно перешел в иное жизненное измерение. Стал пенсионером. Наконец-то он сможет посвятить всё своё свободное (   Читать дальше...   )Жанр: ДрамаРежиссер: Соломон ШустерАктеры: Борис Андреев, Алиса Фрейндлих, Георгий Бурков, Эрнст Романов, Жанна Болотова, Алексей Сластенов, Катя Иванова, Анатолий Солоницын, Олег Жаков, Эльза Радзиня, Геннадий Богачев, Зинаида Шарко, Алексей ГерманПродолжительность: 01:19:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CCAF4DC70218D6B3786450E70470DF96E196B5C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

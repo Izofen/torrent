@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:F02C0732A3779E3288587620374A879C395F641C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:F02C0732A3779E3288587620374A879C395F641C
 ```bash
 magnet:?xt=urn:btih:DD20594B8CFFF6989FBF38AB62032A1D41FDEA76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:DD20594B8CFFF6989FBF38AB62032A1D41FDEA76
 magnet:?xt=urn:btih:719F08CF1F4F1E4D5BD0559E9717EBFEF98627D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:719F08CF1F4F1E4D5BD0559E9717EBFEF98627D9
 ```bash
 magnet:?xt=urn:btih:BEB79EB5BF98841C000968361DCF70AA58603206
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Mr. Saxxy and the Funkaholix - The Dusty Tape Sessions (2025) [FLAC 24/48|Lossle
 magnet:?xt=urn:btih:E507B1B0EC4660E3CD396DB267BE1D553CF004DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:E507B1B0EC4660E3CD396DB267BE1D553CF004DA
 ```bash
 magnet:?xt=urn:btih:78670890A64CBAAD82B8A8E74F8DCEDE39EEC9F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:78670890A64CBAAD82B8A8E74F8DCEDE39EEC9F4
 magnet:?xt=urn:btih:6B96FD038C1797F93D79C79BB1DADC859B95D09F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:6B96FD038C1797F93D79C79BB1DADC859B95D09F
 ```bash
 magnet:?xt=urn:btih:47367D678ECCF513A627D5BCBAC687BD40DEB522
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:47367D678ECCF513A627D5BCBAC687BD40DEB522
 magnet:?xt=urn:btih:C46FDBBC0AFE4805A83713EF6DBF02135E531613
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:C46FDBBC0AFE4805A83713EF6DBF02135E531613
 magnet:?xt=urn:btih:872BA36DC21B36BE8FC6D62045C98BFE0A17A7B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:872BA36DC21B36BE8FC6D62045C98BFE0A17A7B6
 ```bash
 magnet:?xt=urn:btih:0815952AC67A38C0F16AB9A429BC0F5F7A78EB91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ VA - Блатной Шансон (2025) [FLAC|Lossless|WEB-DL|tracks] <Шанс�
 magnet:?xt=urn:btih:C59718200913FD41B925286141EDB58132F4F197
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:C59718200913FD41B925286141EDB58132F4F197
 ```bash
 magnet:?xt=urn:btih:FF691268FE7B1FB5130F49B1EDCE1F74C2228E2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ VA - Funky Summer Grooves (SUMMER 2025) (2025) [FLAC|Lossless|WEB-DL|tracks] <Ja
 magnet:?xt=urn:btih:4DF6165BD5A95C88F450D76B7E065C27B950FE7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ Pawlo-X Sax - Smooth Jazz Summer 2025 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:95D8E70AD7B157A4D3A8C75ACC177DD404A5558B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ smart:gate обеспечивает интеллектуальное обнар�
 ```bash
 magnet:?xt=urn:btih:54CC824775A147542981DF09D073BE65241C453D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:54CC824775A147542981DF09D073BE65241C453D
 magnet:?xt=urn:btih:69E823136EEF0710E9DA6D38B07289E202EE7794
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:69E823136EEF0710E9DA6D38B07289E202EE7794
 ```bash
 magnet:?xt=urn:btih:8ED787F999EC764D3B601337C2B331565EE444DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:8ED787F999EC764D3B601337C2B331565EE444DB
 magnet:?xt=urn:btih:B6447A2B648029F4EB7C06D059054D7773C7471F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:B6447A2B648029F4EB7C06D059054D7773C7471F
 ```bash
 magnet:?xt=urn:btih:0B4429914F5426C46595D61C3DB77E71F740B074
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +559,8 @@ VA - Rock songs para gising sa biyahe (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock
 magnet:?xt=urn:btih:0C7EE19D96B3382C2186769D6B3179BA318907E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ VA - Feel-Good Rock (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:5F5FCDF3ECB932D62CC75D686640A7B25C759893
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ magnet:?xt=urn:btih:5F5FCDF3ECB932D62CC75D686640A7B25C759893
 ```bash
 magnet:?xt=urn:btih:5A513F83ECF76DD1CA5718695903860458A320BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +640,8 @@ magnet:?xt=urn:btih:5A513F83ECF76DD1CA5718695903860458A320BB
 magnet:?xt=urn:btih:C7806D6016980DA9F960B90A2FC66EE1D0BFEDB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +665,8 @@ magnet:?xt=urn:btih:C7806D6016980DA9F960B90A2FC66EE1D0BFEDB7
 ```bash
 magnet:?xt=urn:btih:2766746E15DA0757995600205F24E1DA4C3FE65D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +694,8 @@ Lord Of The Lost - OPVS NOIR Vol. 1 (2025) [MP3|320 Kbps] <Gothic Rock, Symphoni
 ```bash
 magnet:?xt=urn:btih:4CDAA0D271FA4E2E533BA6569D22DF1DEB86ED97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

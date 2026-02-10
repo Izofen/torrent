@@ -1,3 +1,29 @@
+###  Публикация: 1196826   (817587) от 06.01.2018
+
+П. Гольбах | Карманное богословие (1961) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817587.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Карманное богословие» Поля Гольбаха (1723—1789) принадлежит к числу лучших произведений мировой атеистической литературы. Бойкой, живой, талантливой называл В. И. Ленин публицистику атеистов XVIII века. Как и другие французские просветители, Гольбах считал, что религия — плод невежества народов и следствие обмана со стороны духовенства. Этот упрощенный взгляд преодолен (   Читать дальше...   )Жанр: История, политология, религиоведение, философия, словарьФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15875144A01AFF096B3212728965CAF9CBCA2F0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195927   (817588) от 06.01.2018
 
 Священномученик Иларион (Троицкий) | Христианства нет без Церкви (2007) [PDF, DJVU]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:B7848B5C79FF58DBDE48F22C0C208815E896F15C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:B7848B5C79FF58DBDE48F22C0C208815E896F15C
 magnet:?xt=urn:btih:E06F77CB4EA4DFBA7D80399C932CC9A190719B55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:E06F77CB4EA4DFBA7D80399C932CC9A190719B55
 ```bash
 magnet:?xt=urn:btih:18EE8B2D88E23A7ECE92DCB19EE7291172033825
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:18EE8B2D88E23A7ECE92DCB19EE7291172033825
 magnet:?xt=urn:btih:6FAF6197EEE13416673BC48C29410EBAC27C4DEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:6FAF6197EEE13416673BC48C29410EBAC27C4DEF
 magnet:?xt=urn:btih:86339822CDCDB3B6D88584E2B63054A405DD100E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +174,8 @@ magnet:?xt=urn:btih:86339822CDCDB3B6D88584E2B63054A405DD100E
 ```bash
 magnet:?xt=urn:btih:7088697FF9473784DEA42E2437B87F755D024CC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:7088697FF9473784DEA42E2437B87F755D024CC3
 magnet:?xt=urn:btih:B9FAACB5BD18FF307F2C8B814CB4FDB65C0A33E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:B9FAACB5BD18FF307F2C8B814CB4FDB65C0A33E2
 magnet:?xt=urn:btih:BF5187B86CF1EE0443C0929CB11E58BECB548EFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:BF5187B86CF1EE0443C0929CB11E58BECB548EFB
 ```bash
 magnet:?xt=urn:btih:C97D53BAB2B4E2C0B8062F65D5E133E48D6D2D11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:C97D53BAB2B4E2C0B8062F65D5E133E48D6D2D11
 magnet:?xt=urn:btih:95508F48E3C4744641881D1F7C0A6246460C6990
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:95508F48E3C4744641881D1F7C0A6246460C6990
 magnet:?xt=urn:btih:86296A08BF0CA27E9D70BE1AC70DFD221A2851E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:86296A08BF0CA27E9D70BE1AC70DFD221A2851E2
 ```bash
 magnet:?xt=urn:btih:0E4FA29DC213CAA11A3E1CD7F70C18C176419DAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:0E4FA29DC213CAA11A3E1CD7F70C18C176419DAF
 magnet:?xt=urn:btih:A2C36AE9F2A23E9AF5BFBD50DAD24F2E599039B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:A2C36AE9F2A23E9AF5BFBD50DAD24F2E599039B9
 magnet:?xt=urn:btih:B7943E360356461DD1FF979B882343CF21E615A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:B7943E360356461DD1FF979B882343CF21E615A5
 magnet:?xt=urn:btih:1E8897AC8AED1C0336707CCCD0777CCF83BA3576
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:1E8897AC8AED1C0336707CCCD0777CCF83BA3576
 ```bash
 magnet:?xt=urn:btih:8CBAFB44875FC3AD817AA645B2FD61BC29FD2CBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:8CBAFB44875FC3AD817AA645B2FD61BC29FD2CBA
 magnet:?xt=urn:btih:7A11F232631EC93E9ADB15969669423D41D87117
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:7A11F232631EC93E9ADB15969669423D41D87117
 ```bash
 magnet:?xt=urn:btih:F132F47076917CD6103B7A7DB94E04BDD3EBA7C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:F132F47076917CD6103B7A7DB94E04BDD3EBA7C0
 magnet:?xt=urn:btih:E53BD09F761E651A685490282EEE55F796F1205F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:E53BD09F761E651A685490282EEE55F796F1205F
 ```bash
 magnet:?xt=urn:btih:8166AC60B81F917915A07A9999F2FD92156E2FB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:8166AC60B81F917915A07A9999F2FD92156E2FB0
 magnet:?xt=urn:btih:E436AD21C7422DF2E05EA3273B591DFA2089FCD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:E436AD21C7422DF2E05EA3273B591DFA2089FCD1
 magnet:?xt=urn:btih:D6ACA1174190FBEB4F7A6656591CCBD816FE4714
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:D6ACA1174190FBEB4F7A6656591CCBD816FE4714
 ```bash
 magnet:?xt=urn:btih:E5E584A4DBAD371071C3E43A59C66B098C802DE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +654,8 @@ magnet:?xt=urn:btih:E5E584A4DBAD371071C3E43A59C66B098C802DE9
 magnet:?xt=urn:btih:299BE835482601B0B845B585D0D954880914395B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,29 +680,7 @@ magnet:?xt=urn:btih:299BE835482601B0B845B585D0D954880914395B
 magnet:?xt=urn:btih:C905E287E57C9D142F0045F7FE60A5F7BCCFE6C7
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117183   (820143) от 21.03.2017
-
-Дмитрий Кот | Продающие тексты. Модель для сборки. Копирайтинг для всех (2017) [FB2]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820143.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: Дмитрий Кот – один из самых известных копирайтеров, бизнес-тренер, директор Агентства продающих текстов, автор бестселлера «Копирайтинг: как не съесть собаку. Создаем тексты, которые продают».Книга для всех, кто пишет продающие тексты.Чем она отличается от десятка других книг по копирайтингу? Она дополняет их. Помогает систематизировать приемы и подходы: (   Читать дальше...   )Жанр: МаркетингФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20733B6149CEB10725CF051D13DEBE8A7D4776CA
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Heirs – на самом деле наследство может быть ра
 magnet:?xt=urn:btih:86F307349D4FF4512424FAB04994AA236160A4E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Deep Rock Galactic – научно-фантастический шутер пр
 ```bash
 magnet:?xt=urn:btih:08C1CD17740CEEDF157F47F09ED3C0C146CF9A7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Land of the Vikings является градостроительным симо
 magnet:?xt=urn:btih:9D497E850ACC4321068111233A35D06FA6106B1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Songs of Syx – это градостроительный симулятор с
 ```bash
 magnet:?xt=urn:btih:04567AE60F14BD5971CFEAFEDE42F0FE9F48F94C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Eternal Escape: castle of shadows (2024) [Ru/Multi] (1.0) Scene TiNYiSO
 magnet:?xt=urn:btih:24FF2B3390D02F8E5A4304DC666339B8BC3C30AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Grand Theft Auto San Andreas (2021) [Ru/Multi] (1.17.37984884) Scene Razor 1911 
 ```bash
 magnet:?xt=urn:btih:2FB4C9112FFA4EF07E478E3F8505E395C2120358
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Frostpunk – игра от создателей This War of Mine. Это игр
 magnet:?xt=urn:btih:6F2073A82B5A6D33E3F83FE5961A44677B1D5414
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Wolfenstein: Youngblood – новое приключение с режимом 
 ```bash
 magnet:?xt=urn:btih:8141B628C75CF3F20ACD89877886D0AA1DC80986
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Clash II (2) (2022) [Multi] (497) License GOG
 magnet:?xt=urn:btih:4E7A4B5E7D4E26A94CCABD9090C356338C5F62B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Euro Truck Simulator 2 (2013) [Ru/Multi] (1.50.3.7s/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:665473121583DDE63EDAD9ECDBC57497EC3CA1A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ SunnySide показывает приключения молодых ребят,
 magnet:?xt=urn:btih:D427A97B496416A46CDFA16EF5139F5618496CFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Ms. Holmes 6: Letter M (2024) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:3CA2275092AE38D58CD76CC1BF24EBD75AACC340
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Tabletop Simulator - единственный симулятор, в котор�
 magnet:?xt=urn:btih:20FD020134FE304C9B409AF50613170BF2BBD62B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ The Riftbreaker (2021) [Ru/Multi] (11738015/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:415E155D085A6090BBAC2436F322BF3D13202733
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ DRAGON QUEST BUILDERS (2024) [Multi] (1.0.1/dlc) Scene Tenoke
 magnet:?xt=urn:btih:82E363602A7EF8FB85473E283DFDED67D527000D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ SaGa Emerald Beyond - это новейшая отдельная игра в с�
 ```bash
 magnet:?xt=urn:btih:05D63F23B47C3693DBB661E588951CAAB0F80B2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Empyrion - Galactic Survival – это приключение с выживан
 magnet:?xt=urn:btih:4373C13E5A27774046B30BFC7D748CBC48747579
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Mushoku Tensei: Jobless Reincarnation Quest of Memories (2024) [Multi] (14569299
 ```bash
 magnet:?xt=urn:btih:3945428ABEEE32E61092B21916A680CFDF90C207
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Baten Kaitos: Eternal Wings and the Lost Ocean и Baten Kaitos Origins тепе�
 magnet:?xt=urn:btih:9A3503276E088A5F85D2AED0A46576D2C91FDF16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Tunguska: The Visitation / Тунгуска: Посещение (2021) [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:81F5721C95C57CD212E45F7CEBFD9A8A220655ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Demeo (2021) [Multi] (1.36.256496) Scene Tenoke [VR]
 magnet:?xt=urn:btih:E1545647F354763286B29F5337947A73F649AAA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ SAMURAI WARRIORS 4 DX - слэшер, предлагающий не только
 ```bash
 magnet:?xt=urn:btih:FEA2DD766B8B14636EF310F63F7535BB6CCCB2B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ With My Past - это повествовательная игра-головол
 magnet:?xt=urn:btih:054A5E06CC1254EA0F10FA15B62ECE41F3979D43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Whispering Lane: Horror (2024) [Ru/Multi] (1.0) Repack FitGirl [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:4CD7448D0DA4CE155F64A70AF7F96BF7DAFB6A6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Flashback 2 отправляет геймеров в умопомрачител�
 magnet:?xt=urn:btih:659AC585107B3641E3A3BF6C73EA5FC9686FE206
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Robin Hood - Sherwood Builders – это приключенческая рол�
 ```bash
 magnet:?xt=urn:btih:8E2C2A955FDDED911D190ECE4267315D7AC09849
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

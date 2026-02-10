@@ -23,6 +23,8 @@ Kuptsov GameDev Academy, Данил Купцов | Industry Entry for 3D Artist 
 magnet:?xt=urn:btih:3444F46A470BA00AF0477ED971E457079117DF58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:3444F46A470BA00AF0477ED971E457079117DF58
 ```bash
 magnet:?xt=urn:btih:13449A90F69F7CED7EF25E5EC7955DE581E8A563
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:13449A90F69F7CED7EF25E5EC7955DE581E8A563
 magnet:?xt=urn:btih:FD943407661972AAC20B51C57AEC6BEAF13F0353
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:FD943407661972AAC20B51C57AEC6BEAF13F0353
 ```bash
 magnet:?xt=urn:btih:E967A286215113C49D1EB7EB351C7B5EC527F369
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:E967A286215113C49D1EB7EB351C7B5EC527F369
 magnet:?xt=urn:btih:1887E940E2FCF3D0B2144EFB3A77DE2F435E3A2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:1887E940E2FCF3D0B2144EFB3A77DE2F435E3A2E
 magnet:?xt=urn:btih:96B9569A59971A22455570A0257FBAF24A9C2661
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:96B9569A59971A22455570A0257FBAF24A9C2661
 ```bash
 magnet:?xt=urn:btih:BFE9CD70AF9E1B6B78429774171701E8E9F67CBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ In this course, we're going to do a deep dive into Node.js itself without clutte
 magnet:?xt=urn:btih:6F3138BDD91A73EB02920B7F341CF7A90190FA99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:6F3138BDD91A73EB02920B7F341CF7A90190FA99
 ```bash
 magnet:?xt=urn:btih:9133215D06AF6EE0CFE85A74657DC8828C6DE3C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ Grafana была создана 7 лет назад для визуализац�
 magnet:?xt=urn:btih:37E33B706632DE70D5F371D19CAC889D5818EC6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ leManoosh, Mohamed Basil | The Blender Material Mastery - Cracking The Code Of P
 ```bash
 magnet:?xt=urn:btih:DCEA9540C62ABDF3FAEB63ADC99A551D11228170
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ Gumroad, CrossMind Studio | Procedural Thinking - Blender 3D - Small Steps to Bi
 magnet:?xt=urn:btih:0DB061D0A95CE934D03387056C03FC58F29718A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ ArtStation, Vizyon Designers | 50 Hard Surface Kitbash + Full Process Tutorial (
 magnet:?xt=urn:btih:EEF978FBC13A98A22D6F06A8F2B1125D08278009
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ igoroutine.courses, Игорь Панасюк | The Nature of Concurrency - ку
 ```bash
 magnet:?xt=urn:btih:FD4F7B268D1B08A03AD20B1B644262FF5B87CB33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ ArtStation, LaurentiuN | 3D Weapon Tutorial for Portfolio (2025) PCRec [AD] [EN]
 magnet:?xt=urn:btih:64E6DAE1808211A006C1BD7CEA230D12EE5F11FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:64E6DAE1808211A006C1BD7CEA230D12EE5F11FA
 ```bash
 magnet:?xt=urn:btih:6D8ABD0E7F0A75ED2DD9985E9BD8BE486652B467
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:6D8ABD0E7F0A75ED2DD9985E9BD8BE486652B467
 magnet:?xt=urn:btih:4826C108E0D6A406A730D3D579DA43CECAF9B309
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ Step Up, Step Up | Перенос онлайн-школы на Salebot (2025) WE
 ```bash
 magnet:?xt=urn:btih:6B2E8695379D64510F4BEA73C71D756B75A9208A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ Stepik, Карпов и Партнёры | Основы управления п�
 magnet:?xt=urn:btih:E79C8447C85F31529ED8427B79D6E43A953CFAB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ magnet:?xt=urn:btih:E79C8447C85F31529ED8427B79D6E43A953CFAB4
 ```bash
 magnet:?xt=urn:btih:A9FA46973BCDD996ED2A7D92F4E723AC6377A6B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:A9FA46973BCDD996ED2A7D92F4E723AC6377A6B6
 magnet:?xt=urn:btih:204B8D9C627502F9C9D97FDB232CACC0E108CD91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:204B8D9C627502F9C9D97FDB232CACC0E108CD91
 ```bash
 magnet:?xt=urn:btih:6D1ADCB673829E1A86E973521F60B5E4F9D49658
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +613,8 @@ Pinterest - это социальная сеть, где люди сохраня
 magnet:?xt=urn:btih:19C3E9E45635605848C023B2DCBC86E533498453
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ magnet:?xt=urn:btih:19C3E9E45635605848C023B2DCBC86E533498453
 ```bash
 magnet:?xt=urn:btih:6D4EFC6E7A3016FE5CB33796F8458829FED263FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +668,8 @@ magnet:?xt=urn:btih:6D4EFC6E7A3016FE5CB33796F8458829FED263FB
 magnet:?xt=urn:btih:20F7B72C6622BBAD221D2305D1036253C5109963
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +696,8 @@ magnet:?xt=urn:btih:20F7B72C6622BBAD221D2305D1036253C5109963
 ```bash
 magnet:?xt=urn:btih:8B5BD533244167D103C274ED6C0C50248E1BB3BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

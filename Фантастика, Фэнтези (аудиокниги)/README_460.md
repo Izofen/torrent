@@ -1,3 +1,29 @@
+###  Публикация: 1386092   (795799) от 27.05.2020
+
+Евгений Щепетнов | 1971. Агент влияния (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Михаил Карпов, оказавшись в прошлом, времени зря не терял. Семидесятые годы двадцатого века открыли для него много новых возможностей. Он наворотил немало дел, которые в итоге привели его на просторы Нью-Йорка. Улететь домой Михаил не может из-за расследования прокуратуры, а страна Советов не особенно-то и интересуется судьбой своего блудного сына, оказавшегося на (   Читать дальше...   )Жанр: Детективная фантастика, Историческая фантастика, ПопаданцыПродолжительность: 09:44:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:100F12662DEE720D50353F510F94CF01CE78529A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000515   (795848) от 28.04.2016
 
 Василий Маханенко | Галактиона. Часть 1. Начало игры (2016) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:81260B770DC2012830D3AE8E4EE1C969EB1D02BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:81260B770DC2012830D3AE8E4EE1C969EB1D02BD
 ```bash
 magnet:?xt=urn:btih:255B82D50015F69AC9401763F513AAF412310A73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:255B82D50015F69AC9401763F513AAF412310A73
 magnet:?xt=urn:btih:7B832BAE70155EF81561C23A445907D178D4F6E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:7B832BAE70155EF81561C23A445907D178D4F6E6
 ```bash
 magnet:?xt=urn:btih:7125F6B0386FEDB35AC5DC66D64205374765CBFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:7125F6B0386FEDB35AC5DC66D64205374765CBFE
 magnet:?xt=urn:btih:A9526D2BDBE30189458B433181976443F583D8C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:A9526D2BDBE30189458B433181976443F583D8C3
 ```bash
 magnet:?xt=urn:btih:4465628142C60B39525A89CE9C44AD8F3F608508
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:4465628142C60B39525A89CE9C44AD8F3F608508
 magnet:?xt=urn:btih:1A21271BDBC06E0F84892B307907C36B3A491525
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:1A21271BDBC06E0F84892B307907C36B3A491525
 ```bash
 magnet:?xt=urn:btih:2AFE5D7D789D55A7715255313E3E02EB347A0D5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:2AFE5D7D789D55A7715255313E3E02EB347A0D5F
 magnet:?xt=urn:btih:D076276074B7CD129D424978F1215CD47771C1DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:D076276074B7CD129D424978F1215CD47771C1DD
 ```bash
 magnet:?xt=urn:btih:BDE2A5785E113012E34C3C89A45E360496B791CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:BDE2A5785E113012E34C3C89A45E360496B791CA
 magnet:?xt=urn:btih:E689C6E1E92D128307B4DA1968AE6B83D4CBF0C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:E689C6E1E92D128307B4DA1968AE6B83D4CBF0C3
 ```bash
 magnet:?xt=urn:btih:3611358CDA2C6ED650241C9D403ED8004884042E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:3611358CDA2C6ED650241C9D403ED8004884042E
 magnet:?xt=urn:btih:78C0A3D0B3E12E9734F1DA416E532425D9CCA85C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:78C0A3D0B3E12E9734F1DA416E532425D9CCA85C
 ```bash
 magnet:?xt=urn:btih:D92B7A83BB271D2B652ACE4A425352D760990A1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:D92B7A83BB271D2B652ACE4A425352D760990A1D
 ```bash
 magnet:?xt=urn:btih:B6A9DA382B83AB901DBA2C3A45E47834DB52C0AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:B6A9DA382B83AB901DBA2C3A45E47834DB52C0AB
 magnet:?xt=urn:btih:812A5732D2081B249D48E04F9D90C2506A523E55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:812A5732D2081B249D48E04F9D90C2506A523E55
 magnet:?xt=urn:btih:5576489FE01F6D3A1EA7AB307ABFBBE2DA3CD528
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:5576489FE01F6D3A1EA7AB307ABFBBE2DA3CD528
 ```bash
 magnet:?xt=urn:btih:60463E82AA23034CC1AE07A887DBB0B9EB46D617
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +524,8 @@ magnet:?xt=urn:btih:60463E82AA23034CC1AE07A887DBB0B9EB46D617
 magnet:?xt=urn:btih:363540E518E76DFF9497B5F226011233615E6A3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +549,8 @@ magnet:?xt=urn:btih:363540E518E76DFF9497B5F226011233615E6A3A
 ```bash
 magnet:?xt=urn:btih:91D70D917F225B081FD8AE5471F8AA1461CAE57F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +576,8 @@ magnet:?xt=urn:btih:91D70D917F225B081FD8AE5471F8AA1461CAE57F
 magnet:?xt=urn:btih:18D60103832626E331EBB2F45394B4402E774409
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:18D60103832626E331EBB2F45394B4402E774409
 magnet:?xt=urn:btih:57CF640ACEBBAE76920E3D97E1D7DBC7497B6F81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +627,8 @@ magnet:?xt=urn:btih:57CF640ACEBBAE76920E3D97E1D7DBC7497B6F81
 ```bash
 magnet:?xt=urn:btih:9261CEFD4B3E73CE7A48DD4D71469C373CF65A7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +655,8 @@ magnet:?xt=urn:btih:9261CEFD4B3E73CE7A48DD4D71469C373CF65A7D
 magnet:?xt=urn:btih:7587011BDF3E6D29CEDC7602722B4F3A8C19A8F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,31 +681,7 @@ magnet:?xt=urn:btih:7587011BDF3E6D29CEDC7602722B4F3A8C19A8F1
 magnet:?xt=urn:btih:BA7C62FCF32CFACEA5FC39D85B0C147A10EBBC5D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508162   (797905) от 07.11.2021
-
-Дем Михайлов | Инфериор (Книга 4). Инфер 4 (2021) [MP3, Владимир Хлопов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый цикл писателя «Инфериор» – прямое продолжение цикла «Низший».
-
-Оди оказался на поверхности планеты. Искусственный мир, созданный для спасения Земли от катастрофы, остался за спиной, хотя ужасы его не изгладились из памяти героя. Но мир, куда он попал теперь, не менее кошмарен. Оди вновь приходится идти напролом, не щадя врагов, и доказывать окружающим, что (   Читать дальше...   )Жанр: Боевая фантастика, героическая фантастика, LitRPGПродолжительность: 10:47:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2844903C5D0555F75314270C7317773F917C52D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

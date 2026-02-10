@@ -19,6 +19,8 @@ MediBang Paint Pro 28.4 [Multi/Ru]
 magnet:?xt=urn:btih:2199367CED33A840EB74747553291B97607096CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Viber для Windows позволяет бесплатно отправлять 
 ```bash
 magnet:?xt=urn:btih:C63F4280038F7B9E969E889E8F275BA831413BDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ ProduKey - крошечная, бесплатная утилита, котора
 magnet:?xt=urn:btih:8256CA33D7986F0E9D416E98F772E1594BCA3D25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:8256CA33D7986F0E9D416E98F772E1594BCA3D25
 ```bash
 magnet:?xt=urn:btih:8AB49F49521F01B93448E5678CCC70429C069811
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Chaotica - это приложение фрактального искусств
 magnet:?xt=urn:btih:58BEA0A8168129FD51602C502BE862F9C0A1699A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ GarageSale 8 v8.3.3 [Multi]
 magnet:?xt=urn:btih:B026BFCEB7CDC3C8651E881C5857CDCA30547965
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ Espresso - программа для веб-разработчиков и веб
 ```bash
 magnet:?xt=urn:btih:1A9A8E494F9452FDD90502B0F4222B9A09499361
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Blender - бесплатный редактор трехмерной графи�
 magnet:?xt=urn:btih:2A2F83B370C00473BA7288EA5C8DDD8AE2B879C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ LibreWolf как раз решает (   Читать дальше...   )Язы
 magnet:?xt=urn:btih:9EFAFDF622CE7EFC77AD0462F4008D69B075EB31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ FxFactory Pro включает  фильтры, генераторы и пере
 ```bash
 magnet:?xt=urn:btih:0DF773BA4A2962B26FB72E51D0D5E43225E76A8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Templates for Pixelmator by GN - идеальный инструмент пол�
 magnet:?xt=urn:btih:910CA916D7363B8E04B4BE12B6EE900FA2D5E365
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ Emika - Сборник 16 Релизов (2 LP, 14 EP) (2009-2014) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:F5163FF8DFC55A26E2FD3043C75DD94E0CC8C2DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ Downie поддерживает более 1,000 популярных сайто
 magnet:?xt=urn:btih:24CBC2E8ED73234B32516A4B425CC384D9D83342
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:24CBC2E8ED73234B32516A4B425CC384D9D83342
 ```bash
 magnet:?xt=urn:btih:C4700868810A7ADB4F75B08612B2B8EDA4BF8145
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:14B49CF84FB1FFE438F77D4122AFF013C1E50A80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ Airtool 2 v2.0.2 [En]
 ```bash
 magnet:?xt=urn:btih:163E4617C43263EB1A6212C4A07D46F8E91E619D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ Net Radar отслеживает подключение к VPN на двух у�
 ```bash
 magnet:?xt=urn:btih:01788A82349C9643835EF758FC235669B15DF9AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ Au5 & Fractal – Secret Weapon EP (2013) [MP3|320 кб/с]<Drumstep | Dubstep>
 magnet:?xt=urn:btih:FDBB61A86FBE5FBA08115E29A699828824FB43D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ Duplicate File Finder - утилита, которая находит дубли
 ```bash
 magnet:?xt=urn:btih:6C87447D155549D69FCC9590EBB9376B708797CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ Kerish Doctor 2015 — Комплексное решение для ухода �
 ```bash
 magnet:?xt=urn:btih:82F935094E032E0EB24487E47F57D623C1194B56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +558,8 @@ Six Blade – Forget Who You Knew EP (20131) [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:2E1F38DA5D27FB9B0B01304C66CB5BFBFA9B3816
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +583,8 @@ Freemake Video Converter - это бесплатное универсально�
 ```bash
 magnet:?xt=urn:btih:77DE7AEE418C2768A7EBE8307EB4CAE1701C9736
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +610,8 @@ Ashampoo Burning Studio - это всё то, о чём Вы просили. О�
 magnet:?xt=urn:btih:3BBBF220BB824F5415253A02018221766C5E7328
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ AutoRuns - утилита для контроля автозагрузки пр�
 ```bash
 magnet:?xt=urn:btih:8F0ADF8A7AE63548BBBDC2E8D40AED775673B8F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +663,8 @@ Arturia - Pigments 1.0.0.473 VSTi, VSTi3, AAX (x86/x64) RePack by R2R (19.12.201
 magnet:?xt=urn:btih:3E17D77466687F83BED20CB795DADA79D375C2A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ Posterino – программа, ориентированная на созда
 ```bash
 magnet:?xt=urn:btih:C75363BF4701478D11AC023636011A92B3972411
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

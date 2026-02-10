@@ -20,6 +20,8 @@ Chromium-Gost — это модификация стандартного бра�
 magnet:?xt=urn:btih:18A5E76934B0938E043325BFC2BFD3D6DCBCF55D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ DxO FilmPack — это подключаемый модуль для Adobe Photo
 ```bash
 magnet:?xt=urn:btih:1CA1610A36D723E8FBDF8BBB968B8531BAD43567
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ LDPlayer 9 — мощный бесплатный эмулятор устройс
 magnet:?xt=urn:btih:8ADA0A82B13F952D22C3990E407CAB5B78E19EAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ UsbTreeView маленькая утилита, реализующая больш
 ```bash
 magnet:?xt=urn:btih:22B44C01AA15826D9625633AA58E580F4707ED17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Find Any File не содержит никаких подменю с настр�
 magnet:?xt=urn:btih:66E21A8C7EBEE07D191A512CC61F69601F3309FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ foobar2000 - это аудиоплеер, подкупающий своим ве
 ```bash
 magnet:?xt=urn:btih:667F7C33EC96883A0796D5B1D64E210F387672D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Smart Launcher - лаунчер являющийся одним из самых 
 magnet:?xt=urn:btih:21B1F9EA0B988F39A44BACF5CD658C057B131BA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:161C0E2B49A6086A38566C1F7603B51872B15584
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Duolingo: изучай языки 5.134.3 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:762EF6E773AAC5AB196542DFE186D13787160D99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:983CBFAEF8DB884B1F0FC9B6BB121BE851B0D24D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 magnet:?xt=urn:btih:5C4149E391494D0B448B8A2B1395BF8D763E9426
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ SamDrivers 24.0 Expert [Multi/Ru]
 magnet:?xt=urn:btih:B8FB96AA1C876CEE47791C52886CA6CD6FAC82C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:D982E656D090AFA29ED530DCAED3B95BA08BDB14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Microsoft Office 2021 for Mac LTSC v.16.81 VL [Multi/Ru]
 magnet:?xt=urn:btih:8D6DD9D22622FC8A63FAF16A1C34F2EC1C63353C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ AnyDesk 8.0.7 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9B39D9933D8260EE2C8ADFB6EFF5C64046420E01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ VirtualBox — является мощным продуктом виртуали
 magnet:?xt=urn:btih:5FF11D5EE92585D7C698FC93438CE9934A260477
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:52492B4BA64B12E133E8EB12A2D487BFAA3FEFE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Athentech Perfectly Clear Video for Mac 4.6.0 [En]
 magnet:?xt=urn:btih:FE8E4813B874FD10556D8E33F35B7D8EEC87C9F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ MouseBoost pro for Mac 3.3.5 [En]
 ```bash
 magnet:?xt=urn:btih:171E06CF2A52E723CDA813F8205E9F86E01EC4D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ Stats - это приложение с открытым исходным код�
 magnet:?xt=urn:btih:44C39B7CEF57E9CD5E54CE233F09D6BBF64A5438
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Boxy SVG 4.21.2 [En]
 ```bash
 magnet:?xt=urn:btih:A3F4BA59A0B00458EE86E69267346B99085840C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ Keep It 2.3.7 [Multi]
 magnet:?xt=urn:btih:4C68527A1A06454E7FEF784EDB297F2219F47245
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ Bike Outliner for Mac 1.18 [En]
 magnet:?xt=urn:btih:D4EDA33A22D7318F330A5478B2E75873EE2850A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ ForkLift – это альтернативный файловый менедже
 ```bash
 magnet:?xt=urn:btih:8A194F1A00F74A32E6169D89EB10434E56C6B0B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Wondershare UniConverter - это полный набор инструменто
 magnet:?xt=urn:btih:56A4CE096D5989FEE6BB4F9620B6F690F817DDC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Fort Firewall - простой и бесплатный брандмауэр дл
 ```bash
 magnet:?xt=urn:btih:6C461E05F8CF8F13DBC5A4533479BD7192DBB14F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

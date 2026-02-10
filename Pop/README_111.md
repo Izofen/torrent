@@ -28,6 +28,8 @@
 magnet:?xt=urn:btih:10E5AA0D4E07B62E8E47B7FC3469305CB3FCB8DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -61,6 +63,8 @@ Regina Spektor - What We Saw From The Cheap Seats (2012) [MP3|320 кб/с]<Indie
 magnet:?xt=urn:btih:8BE5979D6D5A9820496F2F036005EFAAEA2F32EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -87,6 +91,8 @@ VA - Пульс эпохи (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:CC7E837C00A5F1D8A66902F1DC83669637AC2552
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +121,8 @@ VA - Wow! 91 International (1991) 2 CD [OGG Vorbis|480 Kbps] <Rock, Funk / Soul,
 magnet:?xt=urn:btih:D442CFEF35B0FECED0DCEA6648385ADD6AEB0386
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +149,8 @@ VA - Always And Forever (1987) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, So
 ```bash
 magnet:?xt=urn:btih:0B0216A683427E86E62F5BC6F5D3ACF6BB475CE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +179,8 @@ VA - Formel Eins - Double Fun (1990) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Pop
 magnet:?xt=urn:btih:C92787E37CF21FAA4D225FAC9E317EAA3880A996
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +207,8 @@ VA - The Greatest Singer-Songwriter Classics (2015) 3 CD [OGG Vorbis|480 Kbps] <
 ```bash
 magnet:?xt=urn:btih:CB619429BB8C045BC11252E04C9F68D4424F0694
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +237,8 @@ Lian Ross - V (2025) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
 magnet:?xt=urn:btih:B4B871E76790E158D02B221DD294A059CEB90A28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +265,8 @@ VA - Formel Eins - Cool Fun! (1990) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip 
 ```bash
 magnet:?xt=urn:btih:ED9723B7FD65FFD13E25AA3EC21555727259B5A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +301,8 @@ VA - Tribute in Bossa To The Beatles (2010) [FLAC|Lossless]<Pop, Bossa>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +335,8 @@ Bad Boys Blue - Instrumental Collections (2011) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:2CDC0E4B28968684D5584458564F64A19393E87C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +371,8 @@ Olly Murs - In Case You Didn't Know (2011) [MP3|320 кб/с]<Dance-Pop>
 magnet:?xt=urn:btih:83F9F392C11ED3BAFDA5EA43661926426086822F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +399,8 @@ Tina Turner - Good Hearted Woman (1979) Remaster, 2025, Explore Rights Managemen
 ```bash
 magnet:?xt=urn:btih:4886857F613013A435C6D35D2A23A42B8C51DF34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +429,8 @@ VA - 20s Collection (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:4A13531AE8BF4775F8A0517D20672B981E0E090F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +457,8 @@ magnet:?xt=urn:btih:4A13531AE8BF4775F8A0517D20672B981E0E090F
 ```bash
 magnet:?xt=urn:btih:8345051B2EE441D2E7752DFB2D01A3695F7ED237
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +487,8 @@ magnet:?xt=urn:btih:8345051B2EE441D2E7752DFB2D01A3695F7ED237
 magnet:?xt=urn:btih:D0E0B88BA4A49A1A76B32C69E6E11177FB4C4A7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +516,8 @@ Eros Ramazzotti - UNA STORIA IMPORTANTE (2025) [FLAC 24/44.1|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:AA3FF8EA86E3CE1D5591486513CC1930903F2E2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +544,8 @@ Tate McRae - So Close To What??? (deluxe) (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:DA7F3147F65204BCFF536D406C18156C3951BADA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +580,8 @@ magnet:?xt=urn:btih:DA7F3147F65204BCFF536D406C18156C3951BADA
 magnet:?xt=urn:btih:5B363EB9844637572A2DB3C2F4124476D7739D97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +608,8 @@ Aurum Project - Can't Fight This Feeling (2025) [FLAC|Lossless|WEB-DL|tracks] <D
 ```bash
 magnet:?xt=urn:btih:B1BAA0E34BDDF898275452F07F92A594FE349509
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +638,8 @@ VA - Club Top 13 International (1988) [OGG Vorbis|480 Kbps] <Electronic, Rock, P
 magnet:?xt=urn:btih:EB86700065D12E0453A75F431DF32A0B7787CA78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +666,8 @@ VA - 90s Collection (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:6763739294204798A40F1C51C056A200F61FC7EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -652,6 +696,8 @@ Kelly Clarkson - Meaning Of Life (2017) [FLAC|Lossless|tracks + .cue] <Pop>
 magnet:?xt=urn:btih:CAAF92C9E28605F2DE6F8A1857EB94B36E2FB7C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -678,6 +724,8 @@ VA - Euro Disco - The Lost Legends Vol. 4 (2017) [MP3|320 Kbps] <Synth-pop, Hi N
 ```bash
 magnet:?xt=urn:btih:5546A29457670E26A82D53779A8A4163C0962E57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -706,6 +754,8 @@ VA - Euro Disco: The Lost Legends Vol.1 (2017) [MP3|320 Kbps] <Euro-Disco, Synth
 magnet:?xt=urn:btih:D020BBA5C6A547EAA9914DA4A4A444347E591106
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -732,6 +782,8 @@ VA - Euro Disco: The Lost Legends Vol.10 (2017) [MP3|320 Kbps] <Euro-Disco, Synt
 ```bash
 magnet:?xt=urn:btih:6EF0A09168543DD34FD9E325EAE7D70F967288F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

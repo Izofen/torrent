@@ -1,3 +1,29 @@
+###  Публикация: 1096604   (919065) от 24.01.2017
+
+Ассоциация профессионалов фитнеса FPA | Примерные речевые модули и сценарии поведения при обучении [2 книги] (2012) [PDF]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ассоциация Профессионалов Фитнеса (FPA) - объединение экспертов фитнес индустрии, специализирующееся в области фитнес-обучения, сертификации, кадрового и фитнес-консалтинга. С 2000 года в FPA сертифицировано более 4000 специалистов. Наши выпускники работают в более чем в 500 клубах Москвы, России и стран зарубежья. Под руководством экспертов FPA реализован ряд успешных (   Читать дальше...   )Жанр: Фитнес, бодибилдингФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0F19C1E93370D8F00A9331F1B817A38D8AB5E72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367013   (919067) от 14.03.2020
 
 Сергей Юрский | Игра в жизнь (2017) [EPUB]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:74A57142C4A7FBBA3F0FC9C6057D977BB3B91C1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:74A57142C4A7FBBA3F0FC9C6057D977BB3B91C1B
 magnet:?xt=urn:btih:85CF6F0D77EAA29E3CA772EB996811BFCC74D8C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:85CF6F0D77EAA29E3CA772EB996811BFCC74D8C3
 ```bash
 magnet:?xt=urn:btih:1376E62C56DB82A9CC130B4DED58C7115C433004
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:1376E62C56DB82A9CC130B4DED58C7115C433004
 magnet:?xt=urn:btih:486680A15334A4E2DC1C8901BC73A7157D2F2694
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:486680A15334A4E2DC1C8901BC73A7157D2F2694
 ```bash
 magnet:?xt=urn:btih:38932D05AD3718468C524A3AD267756F4B831352
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:38932D05AD3718468C524A3AD267756F4B831352
 magnet:?xt=urn:btih:2C1FBA2314349E445DAA5B3961B0021A6E983C69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:2C1FBA2314349E445DAA5B3961B0021A6E983C69
 ```bash
 magnet:?xt=urn:btih:DC86F32FD9E6BAFC93CFADF7BA50216974F405FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:DC86F32FD9E6BAFC93CFADF7BA50216974F405FC
 magnet:?xt=urn:btih:A7D3CD1B2D4ACB11B141F5AE0416D79877D86D78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:A7D3CD1B2D4ACB11B141F5AE0416D79877D86D78
 magnet:?xt=urn:btih:B773F65BA50AD86AEAAC0721B49C715D9B0478E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:B773F65BA50AD86AEAAC0721B49C715D9B0478E4
 ```bash
 magnet:?xt=urn:btih:BD4D9657D54AB53D17A0EB4A50D31C56A32BD0D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:BD4D9657D54AB53D17A0EB4A50D31C56A32BD0D5
 magnet:?xt=urn:btih:905780F40DA23C681193AF80A5A08FE54877B100
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:905780F40DA23C681193AF80A5A08FE54877B100
 ```bash
 magnet:?xt=urn:btih:7CB6E9E6C6DA65BB028414A5BE89AD6BAD650020
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:7CB6E9E6C6DA65BB028414A5BE89AD6BAD650020
 magnet:?xt=urn:btih:8A520909E9147F5F4BB3E9486E884398F1B23717
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:8A520909E9147F5F4BB3E9486E884398F1B23717
 ```bash
 magnet:?xt=urn:btih:1658449156153C8AE30C6824FCADF9AC27B26431
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +420,8 @@ magnet:?xt=urn:btih:1658449156153C8AE30C6824FCADF9AC27B26431
 magnet:?xt=urn:btih:BEC4684D674C40D9DE6D36E37D68F4B20F4EC0C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +447,8 @@ magnet:?xt=urn:btih:BEC4684D674C40D9DE6D36E37D68F4B20F4EC0C4
 magnet:?xt=urn:btih:4745B8ECE4A75EF6718A60E4C3E53AA4F677FDB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +472,8 @@ magnet:?xt=urn:btih:4745B8ECE4A75EF6718A60E4C3E53AA4F677FDB0
 ```bash
 magnet:?xt=urn:btih:37D388B098B63782D7808B0F829E4C86B2ADBCF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +500,8 @@ magnet:?xt=urn:btih:37D388B098B63782D7808B0F829E4C86B2ADBCF7
 magnet:?xt=urn:btih:DB2579F4777E3E39393E9E8DEB1EB4629F0C222C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +525,8 @@ C. Милов (составитель)| Сила Любви. По творени
 ```bash
 magnet:?xt=urn:btih:1713E78056C29FB4C209FDAC858BE462409016BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +552,8 @@ magnet:?xt=urn:btih:1713E78056C29FB4C209FDAC858BE462409016BF
 magnet:?xt=urn:btih:8192D2AA7309B893165477D9A609937C3BD44DB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +577,8 @@ magnet:?xt=urn:btih:8192D2AA7309B893165477D9A609937C3BD44DB0
 ```bash
 magnet:?xt=urn:btih:1ABC8405348D683111CD1D7A4B38AEABD840BB25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:1ABC8405348D683111CD1D7A4B38AEABD840BB25
 magnet:?xt=urn:btih:2BE306B6994BE91B507A7A7695F2227135DDDB14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:2BE306B6994BE91B507A7A7695F2227135DDDB14
 ```bash
 magnet:?xt=urn:btih:5564F8BBD9D045436AC9627BC3E65F42B4DBD84E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +658,8 @@ magnet:?xt=urn:btih:5564F8BBD9D045436AC9627BC3E65F42B4DBD84E
 magnet:?xt=urn:btih:D6200FB28DE04157AE615D22DAD5C7E4755670B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,29 +684,7 @@ magnet:?xt=urn:btih:D6200FB28DE04157AE615D22DAD5C7E4755670B0
 magnet:?xt=urn:btih:6DBBE9F62D0FCD0642D20075ADB997170FD4FD68
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366821   (920440) от 13.03.2020
-
-Наталья Будилова | Хоумтерапия для отчаявшихся хозяек. Практика осознанного домоводства (2019) [EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920440.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Всё начинается в доме» – вот девиз Натальи Будиловой, создателя авторского метода Хоумтерапии. О тесной связи дома и человека говорили еще древние китайцы и об этом немало написано современными психологами. То, как мы себя чувствуем, физически и эмоционально, сколько зарабатываем, насколько счастливы в личной жизни, как быстро сбываются наши мечты, – это и многое (   Читать дальше...   )Жанр: Психология, саморазвитие, личностный ростФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DC71FA3193A8F2B7F5FFB5187D2E2DE73A85799
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

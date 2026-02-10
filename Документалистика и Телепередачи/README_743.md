@@ -1,3 +1,29 @@
+###  Публикация: 1461540   (1021812) от 10.04.2021
+
+Живая еда с Сергеем Малозёмовым (10.04.2021) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действительно ли  микроволновка делает пищу вредной? Какие блюда готовятся в микроволновке намного быстрее и проще? И заметна ли разница во вкусе? Как креветки влияют на здоровье людей? Можно ли приготовить их так, чтобы было необычно вкусно и полезно? Гречка: обычная vs зеленая. Чем они отличаются и в какой больше пользы? Рецепт недели: свекольный кекс с вишней.Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:41:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03F1D1FED514A863A16AA6529149693A2BB8638F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461707   (1021814) от 10.04.2021
 
 Своя игра (10.04.2021) WEBRip [H.264/1080p-LQ]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:B67751EBCE2B100F044FC1DAED7EC4E53F186F6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:B67751EBCE2B100F044FC1DAED7EC4E53F186F6D
 magnet:?xt=urn:btih:577A3DD87C881B3D8DF7224BA7FE01BA89DB9258
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:577A3DD87C881B3D8DF7224BA7FE01BA89DB9258
 ```bash
 magnet:?xt=urn:btih:16C7B19F255100FC459D99B30A9F7B29DAAD5054
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:16C7B19F255100FC459D99B30A9F7B29DAAD5054
 magnet:?xt=urn:btih:EE39B8688A284DB4025DEC3785C5734B7D4F1D08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:EE39B8688A284DB4025DEC3785C5734B7D4F1D08
 ```bash
 magnet:?xt=urn:btih:79B49A8822D41F36DA80B1CD3F8EF6ABC9C8564E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:79B49A8822D41F36DA80B1CD3F8EF6ABC9C8564E
 magnet:?xt=urn:btih:FC6874761DB75619858904BB5F3E15E6F56B8240
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:FC6874761DB75619858904BB5F3E15E6F56B8240
 ```bash
 magnet:?xt=urn:btih:6479C1E22AE0B66A21773358FA5D0A55BC67E1A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:6479C1E22AE0B66A21773358FA5D0A55BC67E1A5
 magnet:?xt=urn:btih:46A0952DA91712F3F94CFA31269CEC98D6C81DAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:46A0952DA91712F3F94CFA31269CEC98D6C81DAB
 ```bash
 magnet:?xt=urn:btih:2D1C34C68EB0662AB0F33C04C8CF8F34A8B4F4ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:2D1C34C68EB0662AB0F33C04C8CF8F34A8B4F4ED
 magnet:?xt=urn:btih:72744836D23ED08A2DDCF2484689550496C725BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:72744836D23ED08A2DDCF2484689550496C725BB
 ```bash
 magnet:?xt=urn:btih:0C96D6733E6FC0D9890F16A5B11BABDD48594644
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:0C96D6733E6FC0D9890F16A5B11BABDD48594644
 magnet:?xt=urn:btih:4CE2B7896AE78D4765F5E70F2DB2D9802752C9B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +356,8 @@ magnet:?xt=urn:btih:4CE2B7896AE78D4765F5E70F2DB2D9802752C9B1
 ```bash
 magnet:?xt=urn:btih:A2BE416BAA529CA0675281B5972D9A27800461AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:A2BE416BAA529CA0675281B5972D9A27800461AC
 magnet:?xt=urn:btih:C87B64DC0BAC9AB357D66402EE8B9486628EAC30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +409,8 @@ magnet:?xt=urn:btih:C87B64DC0BAC9AB357D66402EE8B9486628EAC30
 magnet:?xt=urn:btih:28473D54804350E91BCA3E234744DEE085F63C37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +434,8 @@ magnet:?xt=urn:btih:28473D54804350E91BCA3E234744DEE085F63C37
 ```bash
 magnet:?xt=urn:btih:61823CCF57479547A7FDC891AED71EBCE2138F7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:61823CCF57479547A7FDC891AED71EBCE2138F7F
 magnet:?xt=urn:btih:12A3849BD5CA657ACF97EB8EA2B8668E2BB3B8F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +487,8 @@ magnet:?xt=urn:btih:12A3849BD5CA657ACF97EB8EA2B8668E2BB3B8F3
 ```bash
 magnet:?xt=urn:btih:4D6F2D37020457FD0AEBBED04CC1F27FE3CD3779
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +515,8 @@ magnet:?xt=urn:btih:4D6F2D37020457FD0AEBBED04CC1F27FE3CD3779
 magnet:?xt=urn:btih:248BBA7F3CD45E236C7A801BC07E076F8EA12FF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +540,8 @@ magnet:?xt=urn:btih:248BBA7F3CD45E236C7A801BC07E076F8EA12FF2
 ```bash
 magnet:?xt=urn:btih:BAE7F7A1F8400D3768968459FAD48751E8106846
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:BAE7F7A1F8400D3768968459FAD48751E8106846
 magnet:?xt=urn:btih:BBC68A52827AC87222229DE5F875E55AB5099C16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:BBC68A52827AC87222229DE5F875E55AB5099C16
 ```bash
 magnet:?xt=urn:btih:390EA1053B3C57E161F9CBB32481904574E4BE25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +620,8 @@ magnet:?xt=urn:btih:390EA1053B3C57E161F9CBB32481904574E4BE25
 magnet:?xt=urn:btih:F8EE3CD36E2EB05CE7CF257F13310499384EEF1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +645,8 @@ magnet:?xt=urn:btih:F8EE3CD36E2EB05CE7CF257F13310499384EEF1A
 ```bash
 magnet:?xt=urn:btih:6387B6C278BC2CD52909AA868182660FDC17468D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,29 +672,7 @@ magnet:?xt=urn:btih:6387B6C278BC2CD52909AA868182660FDC17468D
 magnet:?xt=urn:btih:C254D1DD0AEE275EFBC697E33FC8726EF879D84B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460170   (1022790) от 04.04.2021
-
-Военная приемка. Минные заградители. Создатели непроходимых полей (04.04.2021) WEB-DLRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Военное дело
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главные герои нового выпуска «Военной приемки» - УМЗ, универсальные минные заградители нескольких весовых категорий. Самый легкий - на базе колесного броневика «Тайфун-ВДВ», самый тяжелый - на основе танка Т-90. Задача этих машин - раскидать на пути врага тысячи мин и за считанные минуты сформировать непроходимое минное поле. Автор программы Алексей Егоров побывает (   Читать дальше...   )Телекомпания: ОАО «ТРК ВС РФ «ЗВЕЗДАЖанр: ТелепередачаРежиссер: Александр ШильниковСубтитры: ОтсутствуетПродолжительность: 00:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2CDECB197F39AF5D8A11D7D0378985A53750EC0
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

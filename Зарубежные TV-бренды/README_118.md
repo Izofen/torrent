@@ -19,6 +19,8 @@ NG: Тайные жизни Иисуса / Secret Lives of Jesus (2006) SATRip
 magnet:?xt=urn:btih:A0567750F40A876477951CB257C7BEA03F498AB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:A0567750F40A876477951CB257C7BEA03F498AB6
 ```bash
 magnet:?xt=urn:btih:D5EA131F16EE79333F73DAA8B0D1A6098797FA06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ BBC. Виртуальная революция / The Virtual Revolution (2010) H
 magnet:?xt=urn:btih:20BB905151064CD6CAFA9946F9AF0B335443920C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ DV: Форма жизни. История царства животных [се�
 ```bash
 magnet:?xt=urn:btih:E64B7E9501C871C8E2146EC5A35A901B32A28AB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:E64B7E9501C871C8E2146EC5A35A901B32A28AB2
 magnet:?xt=urn:btih:0CF82FCA5AD48A27D0395FC1955A694CEA897B16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Animal Planet (BBC): Приключение осьминога / The Octopus Cha
 ```bash
 magnet:?xt=urn:btih:755177A4B5DFA66E7071FB2370367066F23F7E58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Discovery: Как выжить среди акул / Surviving Sharks (2007) SAT
 magnet:?xt=urn:btih:F1E8DF402897286B0B3078C1F5E99BD3F1208CF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ NG: Суперсооружения. Пальмовые острова в Дуб�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ NG: Суперсооружения. Пальмовые острова в Дуб�
 magnet:?xt=urn:btih:B25CC0E4BD2AF0F9CE9BE880AFC79F5BB4419412
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Discovery: Американский Чоппер / American Chopper [Season 6] (
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Discovery: Недружелюбная Вселенная. Нападение п�
 magnet:?xt=urn:btih:23D61A3ED79D70219D1732D194C6C6D8F62C7D1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Discovery: Загадки всемирной истории: Внутри бун
 ```bash
 magnet:?xt=urn:btih:BCCF65084D80D6691C0E9D97C5BE4C39E815536B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Animal Planet: Рууд и его жуки. Жуки-трюкачи / Buggin wit
 ```bash
 magnet:?xt=urn:btih:B85C0CAF8141FF6882EF454E6681812973387062
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ NG. Cуперпрайд (Львиные страсти) / Superpride (2007) HDTV
 magnet:?xt=urn:btih:FA5082ADB65083893A48AA17FAD159C7467E2D10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ DV: Занимательно обо всем. [выпуски 54-61] / C'est pas
 magnet:?xt=urn:btih:DEA5EA6564BA991EF1A4288CCF2CB70CC43A1844
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:DEA5EA6564BA991EF1A4288CCF2CB70CC43A1844
 ```bash
 magnet:?xt=urn:btih:15056798AD7184CC9A16315016FC824479A88D18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Discovery:Разрушители легенд. В погоне за ураган
 magnet:?xt=urn:btih:34F9606A8393F912D19BB63E6E9FAF209400A3CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:34F9606A8393F912D19BB63E6E9FAF209400A3CA
 magnet:?xt=urn:btih:81D0D85DBD5297A6256906656E25D99C5BC6E939
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Discovery: Техногеника. Кругобайкальская железн
 ```bash
 magnet:?xt=urn:btih:0C90106591218261F7EE588A7E50D472021776B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:0C90106591218261F7EE588A7E50D472021776B0
 magnet:?xt=urn:btih:C2370C081CBB4222F0ECCD369D5E4F8691E91622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Discovery: Недружелюбная Вселенная ( Плохая Всел
 ```bash
 magnet:?xt=urn:btih:67064E0C24194F8B8A7B34CA5F3F2D1F63566472
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 magnet:?xt=urn:btih:550FC0E2B497F1A16854B16C66D820E7A196A626
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 magnet:?xt=urn:btih:D3A97F61FBEE8E5DFA1F98434FB86483C4F037B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:D3A97F61FBEE8E5DFA1F98434FB86483C4F037B6
 ```bash
 magnet:?xt=urn:btih:233EE2857E5F6BCDA487E1D02D0AA07837C3B071
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 magnet:?xt=urn:btih:1E30775E6171C53C31E98F1D1C40160FFA1F6CF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 ```bash
 magnet:?xt=urn:btih:F388E6A6E71885DDE320F918E2F5EC0C80F1D6A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

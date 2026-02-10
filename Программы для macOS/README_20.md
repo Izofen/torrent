@@ -20,6 +20,8 @@ Beyond Compare 5 for Mac 5.0 beta [Multi]
 magnet:?xt=urn:btih:F6E8188F0A0948E245308CB8EFE9DF18805F0EA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ MetaVideo for Mac 1.1.3 [Multi]
 magnet:?xt=urn:btih:004D3EB01C885338785340FA42FD5643BF279D0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ MetaRename — это удобный инструмент для фотогра�
 magnet:?xt=urn:btih:BFD644E1585C8B83847C05D39BB4C898A8DFA17A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Android ToolKit - предоставляет вам полное решение 
 ```bash
 magnet:?xt=urn:btih:5B45FB5AAA12F7BC6DADA879F68BBC3BDC3DCBD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Mac FoneLab for Android восстановление данных мобильн
 magnet:?xt=urn:btih:0733D36049D44A217DBA6FA62719E25E9EEA0FCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Wizard — это новый способ анализа данных на ва�
 ```bash
 magnet:?xt=urn:btih:8CCF7F2970CC328296FABEF0EF81C7E28BF51FFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ WiFi Explorer Pro берет базу кода Wi-Fi Explorer и добавля�
 magnet:?xt=urn:btih:F53200EEAD209C9B7E45B032B9BDB301C0CAF9AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Greeting Card Shop поможет вам создать открытки для 
 ```bash
 magnet:?xt=urn:btih:A05F892940487D809DF7066361FBF29B611EA158
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ News Headlines 4.2 [Multi]
 magnet:?xt=urn:btih:B68481B013048FF0287902D7709FF43FF119D87E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Mac FoneLab Android Data Recovery 3.2.18 [En]
 ```bash
 magnet:?xt=urn:btih:ECAA5867006D0EE7E85E35128E0FD64955B689C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ Express Scribe — это профессиональный аудиоплеер 
 magnet:?xt=urn:btih:ED5DCD5449F1CF29A0602AA931762EA4D8B99430
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ Eassiy Data Recovery быстро восстанавливает все поте
 magnet:?xt=urn:btih:7DE60F433518C3649916BBBDEF4C5A2EE967D4F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ Numi - необычный калькулятор, который «общает�
 ```bash
 magnet:?xt=urn:btih:AB481CEE0CCD703C6A84639D9E47C47B96CA3D22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ WiFi Explorer Pro берет базу кода Wi-Fi Explorer и добавля�
 magnet:?xt=urn:btih:97D84F622202E2589D90A4A2FFFB9A48844F49BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ Disk Drill Enterprise - самое популярное приложение д�
 ```bash
 magnet:?xt=urn:btih:63A77F6B7EF1D4D455CB7E56300B2350F4000C04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ BatchOutput PDF упрощает вашу жизнь, автоматически
 magnet:?xt=urn:btih:C549FFBD5B56BA4A33CAE0FF977991DFA89300E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ Color Folder - Custom Icons for Mac 3.8 [En]
 ```bash
 magnet:?xt=urn:btih:DD872A4560195F2C4FA30291E8444CB3B39D6C4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ GM EPUB Reader — это полнофункциональное приложе�
 magnet:?xt=urn:btih:46E4C431686CEADD15B9B2E07384302CD52A24E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ PaintCode 3 v.3.5.4 [En]
 ```bash
 magnet:?xt=urn:btih:9E28D5D74F05B9642027B0935B746B410AD424E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ Wattagio информирует вас о текущем состоянии ба
 magnet:?xt=urn:btih:89BADFEFDA7543AE11A53EAB79830258121ED1BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ Battery Indicator for Mac 2.17.0 [En]
 ```bash
 magnet:?xt=urn:btih:CC1D8325C07B377E1A549B456D642FB058411AD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ Chain - Study & Workout Timer 10.1 [Multi/Ru]
 magnet:?xt=urn:btih:9C6E45D0CA098EAC8D12D4D5970816D3576C947E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ PDF Checkpoint автоматизирует рабочие процессы PDF 
 ```bash
 magnet:?xt=urn:btih:FECF1B1096B6ED6630ECF5CEBACFF04F1AC2F429
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ FontLab - профессиональный редактор шрифтов. Пр
 magnet:?xt=urn:btih:5CC58421A1AE54F8DB0A2552986D32CBC5174BF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ Lyn - легкий, быстрый и удобный просмотрщик из
 ```bash
 magnet:?xt=urn:btih:426CA2E6B76CB747D3907CAEBE9FC67FC585C680
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +683,8 @@ MetaImage - это идеальный инструмент для чтения, 
 ```bash
 magnet:?xt=urn:btih:31B0F27BE8BBE50EFCCB0B3023A41DDA7348BEDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

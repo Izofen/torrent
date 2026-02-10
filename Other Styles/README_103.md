@@ -22,6 +22,8 @@ Louis Landon - Healing Hearts 2 - Solo Piano (2015) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:90BA070049B746FE8889B3A922E010680B699A72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Chris Spheeris - Greatest Hits (2009) Compilation, 2CD [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:DC5BDDCC3E4081008AC38896F2E3D9BC6C6DF6D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Terra nostra (Banda sonora original) (1999) [FLAC|Lossless|tracks + .cue] <
 magnet:?xt=urn:btih:4FFFF95ED63B2D1F6CAD4E6FC1DA69FFD783EC24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Piano Peace - Melancholy Piano (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumenta
 ```bash
 magnet:?xt=urn:btih:CCFC5B41D8CA4C68CCF235781A34410FF10C83D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Flamenco Passion (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Flamen
 magnet:?xt=urn:btih:502DFC029A9EFF84D67003FB0D1570366CDAC589
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Airforce Delta / Deadly Skies (1999) unofficial [MP3|320 кб/с]<Score>
 ```bash
 magnet:?xt=urn:btih:D233031FD971BC6E7AC4F408836CDDACF2AEEE8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Bluchel & Von Deylen - Bi Polar (2004) [FLAC|Lossless|image + .cue]<Electronic, 
 magnet:?xt=urn:btih:F8AF21B29C1AABADA4D1B6E009193ADBFD67BEF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Legends (2016) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:945A468B1B63DA098F36D1740E4352A96903692C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ The Nines - Night Surfer and the Cassette Kids (2015) [FLAC|Lossless|tracks + .c
 magnet:?xt=urn:btih:C989504E5E651A18AABC4B06B130D17AC15DCDAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Slavik...Kemmler - Will I Be Faithful? (1995) Maxi-Single [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:531B21B12BADD057382F81A92BC70EDDF9928E6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +318,8 @@ VA - Cossacks-Songs and dances of the Don and Cuban Cossacks / Казаки-пе
 magnet:?xt=urn:btih:1CFB6CB16596B59B0B7E3C1DFE2D6B39418F890E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +353,8 @@ VA - Песни кубанских казаков (2002) [MP3|320 кб/с]<Folk 
 magnet:?xt=urn:btih:EE56372EC0E20BA4E7CE15ED1C9920003A926F7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +381,8 @@ VA - Four Guitars (2019) [FLAC|Lossless|WEB-DL|tracks] <Acoustic, Easy Listening
 ```bash
 magnet:?xt=urn:btih:AAD7137FC45F95A5DA08DBEDC0284722F958E95D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +417,8 @@ VA - 101 Movie Songs (5CD) (2012) [MP3|181-288 кб/с]<Pop, Rock>
 magnet:?xt=urn:btih:686B470DC5FBA57F85A000A92ECC87336DF37A8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +451,8 @@ VA - What are you thinking about soldier / О чем задумался, слу�
 ```bash
 magnet:?xt=urn:btih:E301D40B92C9C1C6C9DB3C5A3026A21851AE8F07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +487,8 @@ Gerbera Arthas:
 magnet:?xt=urn:btih:2AA3C0B5A4F4A618F93C98799BA743D3CD8AE190
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +522,8 @@ VA - Yak pushu strelu / As I let an arrow fly / Як пущу стрелу пе�
 magnet:?xt=urn:btih:6EFD1874518F9D358DA724F0F1B1F6DAF33AA907
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +550,8 @@ Oliver Scheffner - Sunny Chillout Lounge (2018) [MP3|320 Kbps] <New age, Relax>
 ```bash
 magnet:?xt=urn:btih:FB76D2E3D2C9694214111F099CA6180AB4DE8E77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +580,8 @@ Neu! - Neu! Box (1972-1986) 2010 / Gronland Rec (1972-1986) [MP3|320 кб/с]<Kr
 magnet:?xt=urn:btih:8B037A0E60FE242FD575375A554611483D79A88F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +608,8 @@ Deep Forest - Hit Collection (2000) [FLAC|Lossless|image + .cue] <Electronic, Ho
 ```bash
 magnet:?xt=urn:btih:FF90EE83CDB1723120DAEB1996EF99EEA56A7D7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +638,8 @@ Ennio Morricone - Film Music By Ennio Morricone (1993) [FLAC|Lossless|tracks + .
 magnet:?xt=urn:btih:B525AF37065DEFF8ECB3AA8DAEFE2A2F97F801DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +667,8 @@ George Winston - Night Divides The Day - The Music Of The Doors (2002) [FLAC|Los
 magnet:?xt=urn:btih:C9E160D04830EA9E0CF4357946CB77176500145D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +692,8 @@ Phil Thornton - Rejuvenation - Beyond the Edge of Dreams (2014) [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:84A82821B3965100C56A63C810B907416148953A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -682,6 +728,8 @@ Yanni - Live at El Morro, Puerto Rico (2012) [FLAC|Lossless]<New Age>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -708,6 +756,8 @@ Yanni - Live at El Morro, Puerto Rico (2012) [FLAC|Lossless]<New Age>
 ```bash
 magnet:?xt=urn:btih:C16AC08196C6D2D69D89A65D6432DBAA65E18C4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -741,6 +791,8 @@ magnet:?xt=urn:btih:C16AC08196C6D2D69D89A65D6432DBAA65E18C4C
 ```bash
 magnet:?xt=urn:btih:20BCDB6576A7FF78B17E9812FC98BFFFDA172F41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

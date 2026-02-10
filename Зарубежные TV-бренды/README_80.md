@@ -19,6 +19,8 @@ Discovery: Золотой путь Паркера Шнабеля / Gold rush Par
 magnet:?xt=urn:btih:9ECF301B57DD1E38725D3646529112A9FD275F7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NGW: Невероятные клыки / Incredible Fangs (2016) HDTVRip [H.264/
 ```bash
 magnet:?xt=urn:btih:ED80F1661698FE7B4E502FB33170C66D20F2FD5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ BBC: Horizon. Исчезнувшие племена человечества / T
 magnet:?xt=urn:btih:9F2BFEB55C48F9843D49FF0D87F8BDC129EC179B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ History Channel. Американская книга тайн / America's Book o
 ```bash
 magnet:?xt=urn:btih:E96CE2B731E0B43343234E2FD0F5C9C3C94E8568
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ BBC. Земля: Один потрясающий день / Earth: One Amazing D
 magnet:?xt=urn:btih:6BC24BFD42EF375EF0C42EDE775B98937B10B15C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ History Channel. Американская книга тайн / America's Book o
 ```bash
 magnet:?xt=urn:btih:29C3059E7B5A6AF438750B80835217D67FEE61EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:29C3059E7B5A6AF438750B80835217D67FEE61EB
 magnet:?xt=urn:btih:8FFA945E74B42B8B323D5D27857C89FA94A29315
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ NGW: Глубоководные киты / Whales of the deep (2017) HDTV [H.264
 ```bash
 magnet:?xt=urn:btih:BA6F78BD3116A608E72E6088356D176CD5235890
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ NGW: Дикая природа Аргентины. Убийственное по
 magnet:?xt=urn:btih:A1527D5BACFDB617AFF7CEB67BDC16693D3EACB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ NGW: Морские котики: битва за выживание / Fur Seals
 ```bash
 magnet:?xt=urn:btih:17B781C26C90CA2A45E4F4089EC1B9543061B684
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ NGW: Человек и природа / Man and the Wild (2014) HDTV [H.264/1080
 magnet:?xt=urn:btih:17C8CBE4855E15B1C4DFAF409B479837CDBCB33B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ NGW: Прирождённые монстры. Змееголовая рыба / 
 magnet:?xt=urn:btih:630571952E5C6B9CA7801FDF90A252F6495399EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +330,8 @@ BBC: Борьба за выживание / The Trials of Life (1990) BDRip [H.2
 ```bash
 magnet:?xt=urn:btih:7B9AD3D8B5F16162ADE3E7F297E8F35F9CE04B0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ NG: Подъем Атлантиды (Открытая Атлантида) / Atla
 magnet:?xt=urn:btih:C8D27CBE310CFFB4D6D207B2A7605C4898439EA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ NGW: Бесплодные земли / Badlands hard rock - tough lives (2017) H
 ```bash
 magnet:?xt=urn:btih:BA24ECC0149FE1D9A97507AC2624579A626C502A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ NGW: Год диких животных. Сибирь / Siberia's wild year (201
 magnet:?xt=urn:btih:4C8B2444614BE3777368A6DED975FA9E64398F82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ NGW: Джейн Гудолл. Спасение рая / Jane Goodall: Saving Par
 ```bash
 magnet:?xt=urn:btih:E5EEFA8BC09438B0C56B8FE691154B1C6A35C815
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ NGW: Воины новой волны / New Wave Warriors (2017) HDTV [H.264/108
 magnet:?xt=urn:btih:BE5792F9E40C11D25A69CB00480468C5797434AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ NGW: Море надежды. Подводные сокровища Америк
 ```bash
 magnet:?xt=urn:btih:C29D53D68F7914B8D1375D9E01902F082D32B5BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ NGW: Уцелевшая природа Европы / Europe's last wilderness (
 magnet:?xt=urn:btih:1AD6837309FD52BF48C7444F3AF3AB0E40F6F1E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ NGW: Самые опасные животные Америки / America's deadl
 ```bash
 magnet:?xt=urn:btih:77EF0484A28EF1E2200072AFA4C083E5C96D41B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ NGW: Путешествие короля джунглей / The jungle king (201
 magnet:?xt=urn:btih:EA925852BCD12A6210DF5B0810B267E127BFC3BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ NGW: Животные года / Animals of the year (2017) HDTV [H.264/1080i-LQ
 ```bash
 magnet:?xt=urn:btih:63F449D1B1ADAA6E583E5CBB46D88B6C65C4AF8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ Discovery: Спортивные арены Чемпионата Европы 201
 magnet:?xt=urn:btih:B3D802B0EAE69D0BBE84C8E9C2DB2F5BE4445243
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 magnet:?xt=urn:btih:7B75F34140AE9389048D45DBA4CEBD4AAAC12672
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 ```bash
 magnet:?xt=urn:btih:D3B115E285695C51776C2A131932396FE878EACC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

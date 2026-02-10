@@ -22,6 +22,8 @@ VA - Blow Up Disco Vol 1: Club Series Italodisco Grooves (2019) [FLAC|Lossless|W
 magnet:?xt=urn:btih:B1F469DCE1C8384904AE14330572730E1A7F53D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ TotalFinder – это набор полезных утилит, расширя�
 ```bash
 magnet:?xt=urn:btih:C1C8BF99267A38823E8EC8007D2D2B8F5BF7807F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ ru-ru_windows_11_business_editions_version_22h2_updated_oct_2022_x64_dvd_d03eb37
 magnet:?xt=urn:btih:4363D5203E5BEFC66BEFB6DACD998A1837DF300F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:4363D5203E5BEFC66BEFB6DACD998A1837DF300F
 ```bash
 magnet:?xt=urn:btih:75686E30E0A19847528FEB5EA356F22B53D365A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:75686E30E0A19847528FEB5EA356F22B53D365A7
 ```bash
 magnet:?xt=urn:btih:B527A50591203E252DE20BD3C8A7459758D63648
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -152,6 +162,8 @@ Mystery - Delusion Rain (2015) [FLAC|Lossless|image + .cue] <Progressive Rock, N
 magnet:?xt=urn:btih:E7B5092F14A5133F2EFF6B73D313802D8A2A607D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:E7B5092F14A5133F2EFF6B73D313802D8A2A607D
 ```bash
 magnet:?xt=urn:btih:E0D3E6F1663557293592FB5CBBC00E691341D2C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:E0D3E6F1663557293592FB5CBBC00E691341D2C9
 ```bash
 magnet:?xt=urn:btih:07C412016FABA065D3E882D5FC87E4E5A2927A8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -228,6 +244,8 @@ VA - Beatport Electro House December Pack #01 (2019) [MP3|320 Kbps] <Electro Hou
 magnet:?xt=urn:btih:9F307EC2040D045BE04B2F45E961A0F90B433DBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:CCE15DFF0FCDEB70F4E1DA67572F8AA9E1459CF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -279,6 +299,8 @@ Profileschool | Природные шедевры мастеров (2014) PCRec
 magnet:?xt=urn:btih:438181834B57515C083AE9C9209B48E78A09BA4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ Space Wallpapers (10.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:D369A09E086AAEC26DB10511461C874BD5BE2F2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -329,6 +353,8 @@ magnet:?xt=urn:btih:D369A09E086AAEC26DB10511461C874BD5BE2F2D
 magnet:?xt=urn:btih:A9322365F62B1CB2A2885BC72562A8E013234D9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +379,8 @@ magnet:?xt=urn:btih:A9322365F62B1CB2A2885BC72562A8E013234D9B
 magnet:?xt=urn:btih:C161E0137CF4AC9F6A75A7B5AEEF5BCDA41FE8FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ magnet:?xt=urn:btih:C161E0137CF4AC9F6A75A7B5AEEF5BCDA41FE8FE
 ```bash
 magnet:?xt=urn:btih:CAD5D0770786722B2BCA816170FEB16F2A17353E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +434,8 @@ VA - Blow Up Disco Vol 4: A Taste Of Blow Up Disco & Italo Instrumentals (2019) 
 magnet:?xt=urn:btih:4A18E99AD519ADEBFA61AD47F5DA196EAE510206
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +460,8 @@ magnet:?xt=urn:btih:4A18E99AD519ADEBFA61AD47F5DA196EAE510206
 magnet:?xt=urn:btih:1627840CA96C6DB2E72D7E8E5AAEB71D178E08D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ magnet:?xt=urn:btih:1627840CA96C6DB2E72D7E8E5AAEB71D178E08D5
 ```bash
 magnet:?xt=urn:btih:43DAA3609F3F879A3BC5C7BA1A73BFE9392641DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +516,8 @@ magnet:?xt=urn:btih:43DAA3609F3F879A3BC5C7BA1A73BFE9392641DA
 magnet:?xt=urn:btih:45B2493C43674DA033A15C4C7755AA5A92797469
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +542,8 @@ magnet:?xt=urn:btih:45B2493C43674DA033A15C4C7755AA5A92797469
 magnet:?xt=urn:btih:DB4213900A1E173E7AC94BB3AA454385C67606E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +567,8 @@ magnet:?xt=urn:btih:DB4213900A1E173E7AC94BB3AA454385C67606E1
 ```bash
 magnet:?xt=urn:btih:E3D63E6A6B39B380734CDDD3E1893D855F9ECE5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +603,8 @@ VA - DeepEmotions - CarDubstep Vol.11 (2012) [MP3|320 кб/с]<Dubstep>
 magnet:?xt=urn:btih:CDB97138B9DA96DB5C2C4A69DB134AB95B5318CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +632,8 @@ I Am The Manic Whale - Bumper Book of Mystery Stories (2023) [MP3|320 Kbps] <pro
 magnet:?xt=urn:btih:ED6A9BA44BD6AA7E5FD4C08FD48F86FA5BD38417
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +657,8 @@ magnet:?xt=urn:btih:ED6A9BA44BD6AA7E5FD4C08FD48F86FA5BD38417
 ```bash
 magnet:?xt=urn:btih:3F60E878328BE7E86D012407FA9475C913C93E8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +684,8 @@ magnet:?xt=urn:btih:3F60E878328BE7E86D012407FA9475C913C93E8D
 magnet:?xt=urn:btih:2C0DB6652CD28BB85BC96EACB464DF5C973483FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +710,8 @@ War: SHOGUN 2 – «Закат самураев» посвящено драма�
 ```bash
 magnet:?xt=urn:btih:C2018795C8CB4DA3B77481A622C2347B84A12DA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1204215   (784886) от 05.02.2018
+
+VA - Rock Burning Sounds (2018) [MP3|320 Kbps] <Rock, Alternative, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784886.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Moles - Out of Control
+002. NRBQ - Yes, I Have A Banana
+003. David West - Reds for the Blues
+004. Guano Apes - Open Your Eyes(   Читать дальше...   )Жанр: Rock, Alternative, Hard RockПродолжительность: 08:04:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3424632F3F64263C07BA066B194C9713961CEDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277090   (784911) от 21.01.2019
 
 VA - Piano Music Vol.1 (1978-2016) 250 tracks [MP3|192-320 Kbps] <Classical Crossover, Neoclassical, Фортепиано>
@@ -21,6 +50,8 @@ VA - Piano Music Vol.1 (1978-2016) 250 tracks [MP3|192-320 Kbps] <Classical Cros
 ```bash
 magnet:?xt=urn:btih:3268377C47F02168C22A89AB08D9AC131EFF2955
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - German Top 100 Single Charts 28.01.2019 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:E7D83DB0F79E914A87B5F5311BBD0818CB9B0F23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +109,8 @@ VA - German Top 50 Party Schlager Charts 21.01.2019 (2019) [MP3|320 Kbps] <Pop, 
 magnet:?xt=urn:btih:904A3C752ACE2E852C968F6C33A6A7CAA4657B3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +136,8 @@ Queen - The Show Must Go On ★ Hot Dance Remix ★Up Music
 ```bash
 magnet:?xt=urn:btih:322A8D8400B9D7F5A862C643EE0A641E0557861B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -129,6 +166,8 @@ VA - Лидеры чартов танцевальных FM станций 8 (201
 magnet:?xt=urn:btih:4F4D2393A5DF3E6F5F897CED2F85461CA1D26FCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +194,8 @@ VA - Дальняя дорога от радио Шансон (8) (2017) [MP3|25
 ```bash
 magnet:?xt=urn:btih:981BC679F3877BF8FA2529A6099B149DEBB6938E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -183,6 +224,8 @@ VA - Громкие новинки месяца Vol.21 (2019) [MP3|320 Kbps] <Po
 magnet:?xt=urn:btih:5ABB1FFAED2B3F73759E57AD7DA16C53907742D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -209,6 +252,8 @@ VA - Vanilla Kiss: Clubland Eurodance 90s (2018) [MP3|320 Kbps] <Club, Dance, Po
 ```bash
 magnet:?xt=urn:btih:661731EA4FCE92F91C9D85522D007E455B16863A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +282,8 @@ VA - Record Super Chart 570 (2019) [MP3|320 Kbps] <House, Club, Dance>
 magnet:?xt=urn:btih:14D8276C1FB2BA1A5996349BDA9B24C8E7A863BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +310,8 @@ VA - The Official UK Top 40 Singles Chart 02.02.2018 [MP3|320 Kbps] <Pop, Dance,
 ```bash
 magnet:?xt=urn:btih:45E6C389F7126A955FDD90DFA40B6F6DD6B1192E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +340,8 @@ The Blues Project - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues Rock>
 magnet:?xt=urn:btih:E08CFAB57DEF64A3B6D14741ECE583552BF992DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +368,8 @@ VA - Easy Listening: 100 Popular Jazzing (2017) [MP3|320 Kbps] <Easy Listening, 
 ```bash
 magnet:?xt=urn:btih:228210B03C9C145FA4DB478B72664A52ACE5941B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +398,8 @@ VA - Шальной шансон в дорогу. Сборник № 5 (2017) [M
 magnet:?xt=urn:btih:86934E20185D1BE033D4B9F78414812E2B1609D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +426,8 @@ VA - Deep Vocal Mix: Extended Party (2017) [MP3|320 Kbps] <Vocal, Deep House>
 ```bash
 magnet:?xt=urn:btih:E1C8A1EF41C0B51830525EAEA9C5E42FBE1DE463
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +456,8 @@ VA - Disco - Greatest Hits (2017) [MP3|320 Kbps] <Disco, Soul>
 magnet:?xt=urn:btih:3B37543455907F3B26AE045E8C8F05B46ECA02F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +484,8 @@ VA - Танцевальная вечеринка на Hit FM. Сборник №
 ```bash
 magnet:?xt=urn:btih:8E2A5ECDBD6322BC0E12FA7D537831F167FE9225
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +514,8 @@ VA - Песни для души радио Шансон (2017) [MP3|256 Kbps] <�
 magnet:?xt=urn:btih:598D0323B9BD07D88D0AD743352E059BC8626E2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +542,8 @@ VA - Лучшая дискотека от Европы Плюс. Часть № 
 ```bash
 magnet:?xt=urn:btih:D9C47CC207F8082A67F0031A814655B61EA63D1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +572,8 @@ VA - Весенний хит русского шансона. Версия № 4
 magnet:?xt=urn:btih:01F08D23CEABD754BFE3EA8B65ACA0D69C7DD340
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +600,8 @@ VA - Популярные весенние новинки. Сборник № 2 
 ```bash
 magnet:?xt=urn:btih:13147F5F94A91F74F709A081331855D79269A066
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +630,8 @@ VA - Любимые песни на радио Шансон. Версия № 6 
 magnet:?xt=urn:btih:59C49A55E7F78E37F9A3A6212D77EE043D06D362
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +658,8 @@ VA - Русский отрыв на Русском радио (2017) [MP3|256 Kb
 ```bash
 magnet:?xt=urn:btih:C0EAF01C5AD4D0580802CA2990A9685534BE80B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +688,8 @@ VA - Музыкальный подарок на радио Europa Plus выпу�
 magnet:?xt=urn:btih:6B005A16F7C0DA1CB48A7D5DC49814187C76ED4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +716,8 @@ VA - Весенние заводные хиты. Сборник № 4 (2017) [MP
 ```bash
 magnet:?xt=urn:btih:9E9C82C707DD35D0D4C73C44191626BA563F8F49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -669,32 +746,7 @@ VA - Любимые хиты весны выпуск № 9 (2017) [MP3|256 Kbps]
 magnet:?xt=urn:btih:C049461E27B894E9738D09F97B40F8E0C83D523B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124489   (785662) от 12.04.2017
-
-VA - Весенняя танцевальная вечеринка. Выпуск № 11 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785662.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. София Ротару - Не Забывай Меня 3:25
-002. Автобус - Слышишь 3:26
-003. Funpills - Страсти 3:23
-004. Mainstream One - Любил Так Жить 3:34(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F78268C572D2E43E42BEA6587667C24F5805FC9A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

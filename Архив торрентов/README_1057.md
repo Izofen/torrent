@@ -19,6 +19,8 @@ Wise Disk Cleaner 8.39.594 Final + Portable [Multi/Ru]
 magnet:?xt=urn:btih:1C990AC1F3CE9AE4F04F43C5ADFA69EE2E9A4B15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ Troglodyte - Don't Go In The Woods (2012) [MP3|320 кб/с]<Death Metal>
 magnet:?xt=urn:btih:DDE39873CBE670EC9D4C2E62252BFEA5F60CC479
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:DDE39873CBE670EC9D4C2E62252BFEA5F60CC479
 ```bash
 magnet:?xt=urn:btih:59F9AAE3A2A3FDA198E04A6E287702D4D90FE865
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ Comedy Woman. 10 лет (2017.12.29) HDTV [H.264/1080i]
 magnet:?xt=urn:btih:DBDD479B7DD7D8977C7A5337F7CE7F12F8CF4FAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ Aiseesoft AnyCoord for Mac 1.0.26 [Multi]
 ```bash
 magnet:?xt=urn:btih:C60307C98848D9E72CF3DF4B60DD1FC36EA9A7FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:C60307C98848D9E72CF3DF4B60DD1FC36EA9A7FC
 magnet:?xt=urn:btih:DB3A6D2C7FE88ABC4515DB0A6523ED648906A993
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ Apple Remote Desktop является лучшим способом управл
 ```bash
 magnet:?xt=urn:btih:E6D977A3A845E6D2C72756F008801DFFA3203DE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -205,6 +219,8 @@ VA - 20 Winter Trance Tunes 2012
 magnet:?xt=urn:btih:A59D9873E21CA1B8FD66D96137436B043465030D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +247,8 @@ USB Safely Remove это надежная и удобная замена 'Без
 magnet:?xt=urn:btih:EE44DA6A0F059C2C1E535A65351990319B72C94E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -254,6 +272,8 @@ Space Wallpapers (16.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:E538CA5ACEF1E283419FF33CCD32648FDDF5F3A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -281,6 +301,8 @@ VA - Blackout - Best Of 2016 (Mixed By Black Sun Empire) (2016) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:DF6120AAB738FC9DBD370057D90A035144B55C89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +337,8 @@ magnet:?xt=urn:btih:DF6120AAB738FC9DBD370057D90A035144B55C89
 magnet:?xt=urn:btih:AD2F059308AD724849706266A4C9E0F7A7CC19EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +362,8 @@ Sleipnir - кроссплатформенный веб-браузер, пред�
 ```bash
 magnet:?xt=urn:btih:7B5214129A4CA2D241297B043E822D73BA5BF84F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +389,8 @@ KC Softwares AudioGrail - набор программ для работы с а�
 magnet:?xt=urn:btih:76506CD5E84B3ABDE6D5C2396D0AECF5AB695B91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +415,8 @@ OBS Multiplatform - полностью изменённый проект ори�
 magnet:?xt=urn:btih:1AF03F1E50DF6EF56A0E4C87FB1B1CCD41985539
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +440,8 @@ magnet:?xt=urn:btih:1AF03F1E50DF6EF56A0E4C87FB1B1CCD41985539
 ```bash
 magnet:?xt=urn:btih:37A06222C43F0534FEA16E94422E69E973A7606E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +475,8 @@ VA - Biggest Vocal Trance Tracks Of 2012
 magnet:?xt=urn:btih:79112FEC4CAF2E8861A3E854675200153904270D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +500,8 @@ Driver Reviver – это приложение, которое проскани�
 ```bash
 magnet:?xt=urn:btih:B076ACBEFF844CD31102E5F653787B61C9191F5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +527,8 @@ Computer Desktop Wallpapers Collection (17.12.12) [Wallpapers]
 magnet:?xt=urn:btih:BD5AFB2B1C930D8B317E04C4D25E25CFAEEECF18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +552,8 @@ SamDrivers 19.12 OLD - Сборник драйверов для Windows [Multi/R
 ```bash
 magnet:?xt=urn:btih:FD0601F225699F835E0D0243842E61500FEA2E6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +579,8 @@ FileZilla — это свободный многоязычный FTP-клиен�
 magnet:?xt=urn:btih:5251168A55134B2D8C6C7717CBA262C6C9DA7376
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +604,8 @@ ICQ — одна из самых популярных программ для м
 ```bash
 magnet:?xt=urn:btih:EFD1FD4511213E60E9534ED222C91C86FCC35F47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +631,8 @@ ConceptDraw Office – пакет приложений для бизнес-пр�
 magnet:?xt=urn:btih:B4B47B1B33317E19763BFEA3A012EC9D59E4DDF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +656,8 @@ Starus File Recovery 3.4 RePack (& Portable) by AlekseyPopovv [Ru]
 ```bash
 magnet:?xt=urn:btih:F9D85273103E48F04F4F028CD5508B1363434056
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +687,8 @@ magnet:?xt=urn:btih:F9D85273103E48F04F4F028CD5508B1363434056
 magnet:?xt=urn:btih:97222F9A02C6FFEBA2479072CFF5B415C90FED77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +714,8 @@ magnet:?xt=urn:btih:97222F9A02C6FFEBA2479072CFF5B415C90FED77
 ```bash
 magnet:?xt=urn:btih:FF5C750C2723F72DE1E52DE26C7D670376EB5EC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

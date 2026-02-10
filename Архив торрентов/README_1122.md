@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:E4230D98B3AC06D7A1B06270F83DD4C8FA0CBAF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:E4230D98B3AC06D7A1B06270F83DD4C8FA0CBAF9
 ```bash
 magnet:?xt=urn:btih:291DD8C636C9D4879F92217CDCF0F65A224807D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ Resident Evil 6 сочетает в себе динамичный экшен и 
 magnet:?xt=urn:btih:6AB61E0C382713B1A2D55D28410D4C2C7FA68F54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:6AB61E0C382713B1A2D55D28410D4C2C7FA68F54
 magnet:?xt=urn:btih:A28248BC33760D9D5EE49ABF6BB0BEDF6EA463B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:A28248BC33760D9D5EE49ABF6BB0BEDF6EA463B0
 ```bash
 magnet:?xt=urn:btih:B89EA60F2E1321EAA12A03F64672B38A841FCF50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ Easy CD-DA Extractor поменял своё имя! EZ CD Audio Converter - у�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Opera One 105.0.4970.16 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:D8B353368972FC1A0AA8EA6EA96FF307B40CD7CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Hetman Partition Recovery - программа восстанавливает у
 magnet:?xt=urn:btih:63B308C9AA3E6BB597149264216C12CEA8D7833A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:63B308C9AA3E6BB597149264216C12CEA8D7833A
 ```bash
 magnet:?xt=urn:btih:13601A19CE4C04D20F06FC806C37ABEA12862878
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Adobe InDesign CC — профессиональный продукт для п�
 magnet:?xt=urn:btih:34ECAD13E069182C3827C1F8982531C9A6A590D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Wise Disk Cleaner - быстрая и простая в использовани
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Wise Disk Cleaner - быстрая и простая в использовани
 magnet:?xt=urn:btih:8E0FC5466BAAA50320451A09F6F7D7EBCED2B721
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ CoolUtils Total HTML Converter — это функциональная прог�
 ```bash
 magnet:?xt=urn:btih:EBDBE170146F2BF4F18D6ED295872CBCF48A5BBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:EBDBE170146F2BF4F18D6ED295872CBCF48A5BBC
 magnet:?xt=urn:btih:EF8CF1FCEAC2AC07C038E7A9BEDAC5A86A155285
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:EF8CF1FCEAC2AC07C038E7A9BEDAC5A86A155285
 ```bash
 magnet:?xt=urn:btih:3B3D742B1C88FE173D72E8FF96749C12E51B71D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ IObit Uninstaller Pro представляет собой удобный инс�
 magnet:?xt=urn:btih:F45B4817450D8244920448413BB7198C85E06272
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ ACDSee Ultimate 10 сочетает в себе поддержку слоев, �
 ```bash
 magnet:?xt=urn:btih:7E3E602F57E8B4091807D696D2AC7CA1D8AE2240
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:7E3E602F57E8B4091807D696D2AC7CA1D8AE2240
 magnet:?xt=urn:btih:9C18EBE790599D7330257D4E850957DCD34A1390
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ AOMEI Backupper Pro (Professional) – комплексная, простая и
 ```bash
 magnet:?xt=urn:btih:D5953BAB5176D31BFEB31C5580A924A6EF927D40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ Balabolka 2.14.0.682 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:0840141B27C64A1A9CE27AF214D6007C8A0D7073
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ AOMEI Backupper – программа для создания резервно�
 ```bash
 magnet:?xt=urn:btih:389B10BA9D583834E9A130BFB5DBAF7B2568BC9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ AdwCleaner - программа, которая ищет и удаляет ре�
 magnet:?xt=urn:btih:7D71D6C4317C9C2DD26DC3C7A3D4F91679935A4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ Windows Update MiniTool 25.12.2015 Portable [Ru]
 ```bash
 magnet:?xt=urn:btih:9B709C3F5EF037C6B0963AE32889C5C422BAA2D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ OEM Info Updater 9.6 Portable [Ru/En]
 magnet:?xt=urn:btih:AA70DD8C60197B45439B4DECAF8C31ECD9FE90C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ ProduKey - крошечная, бесплатная утилита, котора
 magnet:?xt=urn:btih:AB97CDBFB81DA29AF0D63CA46BC3F3752CA950A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Xilisoft Video Converter это простая, удобная и быстрая
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

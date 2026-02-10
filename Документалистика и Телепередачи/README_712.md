@@ -1,3 +1,29 @@
+###  Публикация: 977354   (966825) от 20.01.2016
+
+Право голоса. "В поисках дна?" (20.01.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_966825.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Право голоса» - это место для дискуссий и арена для политических баталий. Здесь поднимаются самые острые общественно-политические проблемы страны. В этой студии нет безразличных ораторов и безучастных зрителей. У нас каждый имеет право высказаться и быть услышанным. Мы задаем политикам и чиновникам неудобные вопросы, потому что хотим получить честные ответы. Здесь (   Читать дальше...   )В этом выпуске: Цена на нефть периодически опускается ниже 30 долларов, российский рубль продолжает дешеветь, правительство делает заявления о необходимости сокращения расходных статей бюджета. Что ждёт нашу экономику в ближайшее время?Телекомпания: ТВ-ЦентрЖанр: Ток-шоу, дискуссия, политикаПродолжительность: 01:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D20F6910F48C8AAFD047FDB6DB6380FE632BB28C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 977170   (966826) от 20.01.2016
 
 Время. Первый канал 21-00 (19.01.2016) HDTVRip [720p-LQ]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:C80251A970ACDCA9DA06F19A12EDF1DCB5F23B4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:C80251A970ACDCA9DA06F19A12EDF1DCB5F23B4D
 magnet:?xt=urn:btih:2A2D648B3392C5A0AF85CE2120A9B03CEB90080F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:2A2D648B3392C5A0AF85CE2120A9B03CEB90080F
 ```bash
 magnet:?xt=urn:btih:A2CECCD11B9C9CBE6AC44CE66588BB1EDD9D531C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:A2CECCD11B9C9CBE6AC44CE66588BB1EDD9D531C
 magnet:?xt=urn:btih:28E240DCA7187DC43358A50206E796FE038C19F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:28E240DCA7187DC43358A50206E796FE038C19F5
 ```bash
 magnet:?xt=urn:btih:38915DD7D2E3AE2CEAA8A04719BE998E0DBFF882
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:38915DD7D2E3AE2CEAA8A04719BE998E0DBFF882
 magnet:?xt=urn:btih:AEBEDA3474B09B6FB7723D7D1BDD4E6868222F5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ Queen. Рок по-королевски / Becoming Queen (2004) IPTVRip [H.264]
 ```bash
 magnet:?xt=urn:btih:2CCCD0C2B638538CD3D574445B0909DE61932CB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:2CCCD0C2B638538CD3D574445B0909DE61932CB2
 magnet:?xt=urn:btih:E9E60C9F198D0D433D41A5EC3EBD9BBBE6FBA052
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:E9E60C9F198D0D433D41A5EC3EBD9BBBE6FBA052
 ```bash
 magnet:?xt=urn:btih:FF4C5971ADD310F51C5EC7AA0CDF80A644FC1905
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:FF4C5971ADD310F51C5EC7AA0CDF80A644FC1905
 magnet:?xt=urn:btih:D9AC2EA3716E6994312293779A3D97F84C649454
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:D9AC2EA3716E6994312293779A3D97F84C649454
 ```bash
 magnet:?xt=urn:btih:7FBEFB76CD0DAFE8B06911995D016E8F40F6FA85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:7FBEFB76CD0DAFE8B06911995D016E8F40F6FA85
 magnet:?xt=urn:btih:2B92E95D92DB32C3E5CC162C50459B65807E0584
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:2B92E95D92DB32C3E5CC162C50459B65807E0584
 ```bash
 magnet:?xt=urn:btih:56943EE73FCAE1723F16AABF8846D642C7BD241C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:56943EE73FCAE1723F16AABF8846D642C7BD241C
 magnet:?xt=urn:btih:3375870B6963FA424A1614FCF1FF95B930AECD63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:3375870B6963FA424A1614FCF1FF95B930AECD63
 ```bash
 magnet:?xt=urn:btih:4CD013E2FE521687669319B5B8D0DBF9440D8521
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:4CD013E2FE521687669319B5B8D0DBF9440D8521
 magnet:?xt=urn:btih:DFC091B8D07C07F38DBB2FE544A0E2CAB9384D47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:DFC091B8D07C07F38DBB2FE544A0E2CAB9384D47
 ```bash
 magnet:?xt=urn:btih:032DEDE3786D09DE988E487426A519F0ED899EBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:032DEDE3786D09DE988E487426A519F0ED899EBD
 magnet:?xt=urn:btih:B71A5EFBB8E490379999F3D31787891F0CAF695F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +515,8 @@ magnet:?xt=urn:btih:B71A5EFBB8E490379999F3D31787891F0CAF695F
 ```bash
 magnet:?xt=urn:btih:650F61FD05290E0656C8834C2A4490ABAFD2DE9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:650F61FD05290E0656C8834C2A4490ABAFD2DE9C
 magnet:?xt=urn:btih:C9D068470836D8BE135C18B426D241EC977A1AEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +567,8 @@ magnet:?xt=urn:btih:C9D068470836D8BE135C18B426D241EC977A1AEA
 ```bash
 magnet:?xt=urn:btih:4098133BEC9407FBC7ADF8DDB0B4433FD887FCA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:4098133BEC9407FBC7ADF8DDB0B4433FD887FCA0
 magnet:?xt=urn:btih:4CCF6B26DF55120EEAD68D2B3C8617662638F4AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +619,8 @@ magnet:?xt=urn:btih:4CCF6B26DF55120EEAD68D2B3C8617662638F4AB
 ```bash
 magnet:?xt=urn:btih:771CD67295121BF247BEA18B9887DB848B3519D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +646,8 @@ magnet:?xt=urn:btih:771CD67295121BF247BEA18B9887DB848B3519D8
 magnet:?xt=urn:btih:10AA4127516F951E48ADBBD3A5BCDEFFAFB0F503
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,29 +672,7 @@ magnet:?xt=urn:btih:10AA4127516F951E48ADBBD3A5BCDEFFAFB0F503
 magnet:?xt=urn:btih:2ACC876875B6AE8EDC36785F2B37D57EB5EBF726
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976213   (969437) от 17.01.2016
-
-Битва экстрасенсов. Сезон №16. Выпуск №16 (Виктория Райдос) (2016.01.16) DVB [H.264]
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969437.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о Виктории Райдос - победительнице 16 сезона шоу. Как она открыла в себе дар, чем он ей помогал или мешал и другие подробности из жизни самого сильного экстрасенса этого сезона.Телекомпания: Жанр: Реалити ШоуПродолжительность: ~ 01:10:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF57A2951CA15FE51EE929B943F0E84A034023FF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

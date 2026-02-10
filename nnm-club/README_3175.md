@@ -19,6 +19,8 @@ The Surprising Adventures of Munchausen / Невероятные Приключ�
 magnet:?xt=urn:btih:1A58113549D98D6E31FB922A357EAA75348346EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Bumpy Road v2.1 [3.0+jailbreak]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Dungeons of Dredmor {1.0.10} (P) [En] 2011 | THETA
 ```bash
 magnet:?xt=urn:btih:BC70D42DBEF062BADC20A3088DBF4FA11E9242B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:BC70D42DBEF062BADC20A3088DBF4FA11E9242B2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:BC70D42DBEF062BADC20A3088DBF4FA11E9242B2
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:BC70D42DBEF062BADC20A3088DBF4FA11E9242B2
 magnet:?xt=urn:btih:D79DE0B47B96A1BE17EC519AD9EF936868F5993F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:D79DE0B47B96A1BE17EC519AD9EF936868F5993F
 magnet:?xt=urn:btih:3225143D16A2C60F3460922FA8EF327AD39F1455
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:3225143D16A2C60F3460922FA8EF327AD39F1455
 ```bash
 magnet:?xt=urn:btih:D85908A086B1F879D724DE9D25E0521E37F3E88A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:D85908A086B1F879D724DE9D25E0521E37F3E88A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:D85908A086B1F879D724DE9D25E0521E37F3E88A
 ```bash
 magnet:?xt=urn:btih:3674AEDA6AE6CFB230A01E8953C5CDB021826F2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:3674AEDA6AE6CFB230A01E8953C5CDB021826F2A
 magnet:?xt=urn:btih:3448CE1665F396AD1DD8BE46B5A356561C1EB1B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:3448CE1665F396AD1DD8BE46B5A356561C1EB1B9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ Ubuntu Studio — дистрибутив Linux, основанный на Ubuntu
 magnet:?xt=urn:btih:52C55C82796BD9F4E8B841D0A93D17C96EBE7855
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:52C55C82796BD9F4E8B841D0A93D17C96EBE7855
 ```bash
 magnet:?xt=urn:btih:180CA63F739FE2F61DB8A737F37BE8EB4E9C0F59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:180CA63F739FE2F61DB8A737F37BE8EB4E9C0F59
 magnet:?xt=urn:btih:C62D0F9CD83FB5BE837011DF3F9BE6F1A499C544
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ Kaspersky World – это комплексное решение для рабо
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ Kaspersky World – это комплексное решение для рабо
 magnet:?xt=urn:btih:02A4B6CADCE253095C886569800FA85C530E1852
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ Risen 2: Dark Waters / Risen 2: Темные воды {1.0.1168} (RePack) [Ru] 2
 ```bash
 magnet:?xt=urn:btih:405B387039A1312DB84AAAF0570501F7A136DA13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:405B387039A1312DB84AAAF0570501F7A136DA13
 magnet:?xt=urn:btih:23DDE95BB1EE8F3396AADC81CA004DCA8F77CD20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ magnet:?xt=urn:btih:23DDE95BB1EE8F3396AADC81CA004DCA8F77CD20
 magnet:?xt=urn:btih:84A382EC446E3EDB96EAE3DE6A99956854F286F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ TeachVideo | Всё о Windows® 8. Обучающий видеокурс [2012]
 magnet:?xt=urn:btih:3DFED575C52DDA9713F46DA47471ED62A4634931
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:3DFED575C52DDA9713F46DA47471ED62A4634931
 ```bash
 magnet:?xt=urn:btih:BC551490ACFE521BF9D1CFF1B15DBA3930DFF097
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:BC551490ACFE521BF9D1CFF1B15DBA3930DFF097
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ Risen {1.10} (RePack) [Ru] 2009 | UltraISO
 ```bash
 magnet:?xt=urn:btih:6B9A9F2431E131642DEDEE140ECE50919323763B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ magnet:?xt=urn:btih:6B9A9F2431E131642DEDEE140ECE50919323763B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ magnet:?xt=urn:btih:6B9A9F2431E131642DEDEE140ECE50919323763B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

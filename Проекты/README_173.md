@@ -19,6 +19,8 @@ SlideShow Pack 4 in 1 - профессиональный шаблон из че�
 magnet:?xt=urn:btih:AC0154779D8D15B567143D7BE3D9A85DF3F7F898
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Ultimate Broadcast News Pack 2 - новостная виртуальная ст�
 ```bash
 magnet:?xt=urn:btih:69AACA8CA3888AA674F06D330AFAB89BB64F92EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:69AACA8CA3888AA674F06D330AFAB89BB64F92EB
 magnet:?xt=urn:btih:B85854E9257DBC781FA9198467E208F74DD45094
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:B85854E9257DBC781FA9198467E208F74DD45094
 magnet:?xt=urn:btih:271B6B24F92E946DE9E2C1D86F99FD2ABDD5E761
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:271B6B24F92E946DE9E2C1D86F99FD2ABDD5E761
 ```bash
 magnet:?xt=urn:btih:426BE8E8349A94A6BE53AC462F70F85322DD9EAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:426BE8E8349A94A6BE53AC462F70F85322DD9EAC
 magnet:?xt=urn:btih:04E2020FB2FA7C46BD02BB81E4D8DA651988675D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:04E2020FB2FA7C46BD02BB81E4D8DA651988675D
 ```bash
 magnet:?xt=urn:btih:F9CDD5DFFE866FFA3DD1C52BC73ECFBB85CF5A26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:F9CDD5DFFE866FFA3DD1C52BC73ECFBB85CF5A26
 magnet:?xt=urn:btih:644B758BAEE3FF93DA274EAF1974563C187766A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:644B758BAEE3FF93DA274EAF1974563C187766A5
 magnet:?xt=urn:btih:7AE6D129F561025647CC7D20FD7021732225085B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:7AE6D129F561025647CC7D20FD7021732225085B
 ```bash
 magnet:?xt=urn:btih:F1C19922A67BE65A93194C32B5586DE0873D0C7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ Glitch Promo Slideshow - это современный шаблон After Effect
 magnet:?xt=urn:btih:2A36054949D1051F10FC1B73D886F1B3E14BEA25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ VideoHive - Glossy Magazine - 263066 [AEP]
 ```bash
 magnet:?xt=urn:btih:145F1D02D05454E84E87BB868F1E04FB1CC0F07F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:145F1D02D05454E84E87BB868F1E04FB1CC0F07F
 magnet:?xt=urn:btih:FFF9DA71C5E3C51F9877C4AD8D5FAA36AB466C4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ Shape Elements v.16 - 777 готовых для использования ре�
 ```bash
 magnet:?xt=urn:btih:7AFFB941921900A1E3B2B9DF040C9C7CE17FC3BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ Character City - Explainer Video Toolkit V2 - вторая обновленна�
 magnet:?xt=urn:btih:7ABB1C6D4E1C45AB4F25C00D93DF0B0DBB19555D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ Poseidon 2 - от автора: "Представляю вашему внима�
 ```bash
 magnet:?xt=urn:btih:CAD45D36470C1B4D0BDE2C3FF48CD66A198D9308
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ Hyperlapse Parallax Slideshow - шаблон проекта сделан для 
 magnet:?xt=urn:btih:68B0EC42BA32511CC3A7BCE5980E38286B285076
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ Vintage Slideshow - является кинематографическим сл
 ```bash
 magnet:?xt=urn:btih:9EBAED3D24E37EE11F2BB25EFD396BC715851EC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:9EBAED3D24E37EE11F2BB25EFD396BC715851EC9
 magnet:?xt=urn:btih:5C265EE1EDCE8D135D584484CF0FF30E0547152E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:5C265EE1EDCE8D135D584484CF0FF30E0547152E
 ```bash
 magnet:?xt=urn:btih:36BB524B60581239917857B2A6834CA40A552C69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ Stylish Lower Third (Update) - обновленная версия пакета 
 magnet:?xt=urn:btih:F147BE8E7C7788BE14E530471ED87E11A21E85EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:F147BE8E7C7788BE14E530471ED87E11A21E85EB
 ```bash
 magnet:?xt=urn:btih:AA3966A47A7ED2F3BEF695AF4A6DF72EB7751C94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ The Titles - пакет из 125 оригинальных текстовых э�
 magnet:?xt=urn:btih:718FFD6439BDBD620286F07B900399A412F8AAA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ VideoHive - Photographer Presentation - 36955 [AEP]
 ```bash
 magnet:?xt=urn:btih:19AA2689506AA192883A1096AF0342E437B86AE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ Fast logo Reveal - это чистый и свежий шаблон для After
 magnet:?xt=urn:btih:79AC38F4FD00674B876D07B036007DE7435FB16F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ magnet:?xt=urn:btih:79AC38F4FD00674B876D07B036007DE7435FB16F
 ```bash
 magnet:?xt=urn:btih:AFA402E8FEF9EF15C6F2E3EFE60068B46755D8F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

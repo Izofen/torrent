@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:D6314551D8C8F05BA5425C42DA937C03C8A324FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:D6314551D8C8F05BA5425C42DA937C03C8A324FF
 ```bash
 magnet:?xt=urn:btih:AF544A807029A91508FC301074C45D141FD4C583
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ VA - The Ultimate Club House Collection (2018) [MP3|320 Kbps] <Club, Dance House
 magnet:?xt=urn:btih:9395BCA56BC47AB03BACC4AA07B601A2CD06B19A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Underworld - Drift Episode 1 (2018) Smith Hyde Productions [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:75D04A360071CCA1514841ED6FBCB237B768BDB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Domain - Our Kingdom (1988) Reissue, 2000, Humbucker Music [MP3|320 Kbps] <Melod
 magnet:?xt=urn:btih:9268496D97EF47CC389B9984509F8CE7B647EF8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ Opera IX - The Gospel (2018) [MP3|320 Kbps] <Symphonic Black Metal>
 magnet:?xt=urn:btih:FBA4A5FEFC1438BE9404B2576B3A6EDFF3ED6A4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:FBA4A5FEFC1438BE9404B2576B3A6EDFF3ED6A4F
 ```bash
 magnet:?xt=urn:btih:CEB76070F9318631E6AF193BE5735E3D1C8EEC09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ Clouds - Dor (2018) [MP3|320 Kbps] <Atmospheric Doom Metal>
 magnet:?xt=urn:btih:10FE3022EA7A35E83172E0B23CCA105F915B5C79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ Privilege - Privilege (1973) Reissue, 1999, Lizard Records [MP3|320 Kbps] <Hard 
 ```bash
 magnet:?xt=urn:btih:265D0EAC2B7EFC20CD1C7F32D117A7E56D91B4B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ VA - Lounge For Boudoir (2018) [MP3|320 Kbps] <Lounge, Downtempo>
 magnet:?xt=urn:btih:4ACB15DA23104EC856B853A1B5B83ED39FA06354
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ VA - Best Driving EDM 2019 (2018) [MP3|320 Kbps] <Big Room, Dance, Progressive H
 ```bash
 magnet:?xt=urn:btih:7EB27485A14E46D273184C349B8DFFC52CCBC184
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +330,8 @@ VA - Hedkandi December Dance Mix (2018) [MP3|320 Kbps] <Dance, Pop, House>
 magnet:?xt=urn:btih:1DC986E88C79377D1F60C0E45C3E78ACE40D0C27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +355,8 @@ magnet:?xt=urn:btih:1DC986E88C79377D1F60C0E45C3E78ACE40D0C27
 ```bash
 magnet:?xt=urn:btih:F122D4268F0E4BAF22DB2F7046DCA0D48FB63EB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +385,8 @@ VA - Christmas Stocking Filler Pt. 2 (2000) [FLAC|Lossless|tracks + .cue] <Leftf
 magnet:?xt=urn:btih:16BEFCCCF189F2F432C4B5B20AB36754B5B04CAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +414,8 @@ VA - Glow In The Sity: Psychedelic Trance (2018) [MP3|320 Kbps] <Psychedelic, Go
 magnet:?xt=urn:btih:A665B3974F11BDE7007E17F9364154C3098D3DA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +440,8 @@ magnet:?xt=urn:btih:A665B3974F11BDE7007E17F9364154C3098D3DA2
 ```bash
 magnet:?xt=urn:btih:235AAADB47656726A2960B573B8B9786786DB561
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +470,8 @@ subtractiveLAD - Within And Without (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambien
 magnet:?xt=urn:btih:54700A4EDDA124B167180BBBBCC610651E4F9DCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +498,8 @@ Beegie Adair & Monica Ramey - Some Enchanted Christmas (2018) [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:505369DC88DC68B7EC7D90F14003FA243E0754F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +528,8 @@ Shadows - illuminate (2017) [FLAC|Lossless|tracks + .cue] <Melodic Hardcore, Pun
 magnet:?xt=urn:btih:7DB39D6D4240E0B63A380EC07242078E0A6CDC46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +554,8 @@ magnet:?xt=urn:btih:7DB39D6D4240E0B63A380EC07242078E0A6CDC46
 ```bash
 magnet:?xt=urn:btih:4B6A24EC77296BE9C5DDA3431EBD04882872B014
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +584,8 @@ CD1
 magnet:?xt=urn:btih:DADC83CED7335EA0A9B40B44031CD1A701678634
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +609,8 @@ magnet:?xt=urn:btih:DADC83CED7335EA0A9B40B44031CD1A701678634
 ```bash
 magnet:?xt=urn:btih:3F54946B35AE86F05E4D64B4CDDE05AA976CFC42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +636,8 @@ magnet:?xt=urn:btih:3F54946B35AE86F05E4D64B4CDDE05AA976CFC42
 magnet:?xt=urn:btih:A31047E41CE9E3736E4046EBA9ACE67F85DF2D54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +661,8 @@ magnet:?xt=urn:btih:A31047E41CE9E3736E4046EBA9ACE67F85DF2D54
 ```bash
 magnet:?xt=urn:btih:51115437BC372A2EA71650466DF9CD91471640FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +688,8 @@ Telegram — это приложение для обмена сообщения�
 magnet:?xt=urn:btih:887F46154E9E31D73C914237700ED2AB37E4B168
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +713,8 @@ magnet:?xt=urn:btih:887F46154E9E31D73C914237700ED2AB37E4B168
 ```bash
 magnet:?xt=urn:btih:465F27CE378A63EBF9D98BE90FF2B5684CE7FA65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

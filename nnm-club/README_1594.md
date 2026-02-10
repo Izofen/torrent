@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:BE8203508AEE8CF1DDD9AD551DF0914E83FECF70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:BE8203508AEE8CF1DDD9AD551DF0914E83FECF70
 ```bash
 magnet:?xt=urn:btih:E6F423DBD36826A59C81E65A42638FF58612739F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Planternauts (2024) [Ru/Multi] (1.0) Repack FitGirl [Early Access]
 magnet:?xt=urn:btih:8A3864D1B22D1F134F15B26A52E75CD69F79448A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:8A3864D1B22D1F134F15B26A52E75CD69F79448A
 magnet:?xt=urn:btih:6AA0A4F8BF4A5324EABBD0EC67DD70F4CA1EFF88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:6AA0A4F8BF4A5324EABBD0EC67DD70F4CA1EFF88
 ```bash
 magnet:?xt=urn:btih:BBB572C6736793194945E5954B166555B91C2AFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ VA - 100 Greatest Rock Songs (2024) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:D94F28D81074D8ED4E63EE05886F9C943FB23406
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Chernobylite (2019) [Ru/Multi] (49411/dlc) Repack Other s [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:01904A2F1F02C6D8E6590913472A3DB7262EE271
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ NVIDIA GeForce Driver — драйвера для видеокарт произ�
 magnet:?xt=urn:btih:4233A76E0CFBFE545CE03FE6F347351D7EB3C2C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ DreadHaunt (2023) [Ru/Multi] (1.0.0.20) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9C69B734C1BC968D274499FBE4F3318D85594403
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ PowerDirector - самое быстрое и передовое программ
 magnet:?xt=urn:btih:C6960F38816A9BBFF43DD99910661EA8C2765B12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:C6960F38816A9BBFF43DD99910661EA8C2765B12
 ```bash
 magnet:?xt=urn:btih:5251181FA14B3A08CC23A04B05BC4BCB20AC1991
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:5251181FA14B3A08CC23A04B05BC4BCB20AC1991
 magnet:?xt=urn:btih:8615ECD99DBAF61628B7886AE95213C2EF822F84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:8615ECD99DBAF61628B7886AE95213C2EF822F84
 ```bash
 magnet:?xt=urn:btih:DE6E280A102769FB6E395CE6B42C9B695F737F98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Windows IoT Enterprise LTSC предназначен для специальны
 magnet:?xt=urn:btih:9E4D390F2FA14DDB9C6DB50769D79F88C5393F2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Windows 11 - это серия операционных систем, разра
 ```bash
 magnet:?xt=urn:btih:3D56A6F0ACF5F3B1032747F5B18D70351711C540
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:3D56A6F0ACF5F3B1032747F5B18D70351711C540
 magnet:?xt=urn:btih:7EEE097AF20209D383E599B6BFC4A888C2F4120C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:7EEE097AF20209D383E599B6BFC4A888C2F4120C
 ```bash
 magnet:?xt=urn:btih:8A650CE45844635DEDA8E0F63DB0B45DE71890C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:8A650CE45844635DEDA8E0F63DB0B45DE71890C5
 magnet:?xt=urn:btih:2AB62E56C392B38261F4AAFC43878DC0AD47AC7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ The KMPlayer – это мощный мультимедиа проигрыват
 ```bash
 magnet:?xt=urn:btih:03518D58DC7442CED2568A91E10A7AE69F4B928F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ The Fable | Фэйбл [2024, TV, 25 из 25] WEBRip 720p raw
 magnet:?xt=urn:btih:F6FD81D1A04B9185063E1CBC1596EAA6E26DD504
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:F6FD81D1A04B9185063E1CBC1596EAA6E26DD504
 magnet:?xt=urn:btih:5E23DA870BBC2ABD1A963E3C49F898E868EF6C72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ Windows 11 Enterprise LTSC - это операционная система, п�
 ```bash
 magnet:?xt=urn:btih:7D2947FFFDD55BE17BBF391B2F7D85BF98A7CD31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:7D2947FFFDD55BE17BBF391B2F7D85BF98A7CD31
 magnet:?xt=urn:btih:32A5B4EBC52633260B85F043A56D2457EF34FFC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ VMware Workstation — программное обеспечение вирту�
 ```bash
 magnet:?xt=urn:btih:8A7A158F607DA654CB778F79519380DC5912C2B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:8A7A158F607DA654CB778F79519380DC5912C2B3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Windows 11 - это серия операционных систем, разра
 ```bash
 magnet:?xt=urn:btih:9FA8F8944DAE706F694018FA14669659EDD65DA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ VA - Classic Soul Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Soul, Funk, R&B>
 magnet:?xt=urn:btih:639BEE5F95067E0DBD799A36F6466875DA715181
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:639BEE5F95067E0DBD799A36F6466875DA715181
 ```bash
 magnet:?xt=urn:btih:A99352613F224A6400628B2AAAF5ED6B8EB604D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:A99352613F224A6400628B2AAAF5ED6B8EB604D3
 magnet:?xt=urn:btih:5DC86D7C83794924CD0359A852E98DFFABF2BC38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:5DC86D7C83794924CD0359A852E98DFFABF2BC38
 ```bash
 magnet:?xt=urn:btih:42A182EC002C63D69D02351FA9B5B38470098F3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:42A182EC002C63D69D02351FA9B5B38470098F3B
 magnet:?xt=urn:btih:036A10C9E055D760F440A789D9BA32B50F3E398B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:036A10C9E055D760F440A789D9BA32B50F3E398B
 ```bash
 magnet:?xt=urn:btih:ECA7F8A8BDECD31B8D7AE3AD9B051974F95BEA97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Ken Hensley - Live Compilation (2025) [MP3|320 Kbps] <Rock, Hard Rock>
 magnet:?xt=urn:btih:9504783103E20DBCE886298661464A9D2A5536A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:9504783103E20DBCE886298661464A9D2A5536A1
 ```bash
 magnet:?xt=urn:btih:C9C9D03C29D320DC3592627E2F94BAFB874E521C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:C9C9D03C29D320DC3592627E2F94BAFB874E521C
 magnet:?xt=urn:btih:F32F296B8F73421A97BBF719A98EBA675C847569
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:F32F296B8F73421A97BBF719A98EBA675C847569
 magnet:?xt=urn:btih:C123AAAC6EB4D2CC100E605F81727B6C544F3931
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Fast Video Cutter Joiner - программа 2-в-1 для быстрой ре�
 ```bash
 magnet:?xt=urn:btih:D1F062310B0F31D712BC9348E53AFE38E7BFC83E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:D1F062310B0F31D712BC9348E53AFE38E7BFC83E
 magnet:?xt=urn:btih:ED925AD126BA5FD42AD26A82D91DCD51557D42C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:ED925AD126BA5FD42AD26A82D91DCD51557D42C2
 magnet:?xt=urn:btih:460EA6E1314CDEC2D44A81278A7BAA8B89B7A097
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ PDF Shaper Premium / Ultimate 15.2 RePack (& Portable) by Dodakaedr [Ru/En]
 ```bash
 magnet:?xt=urn:btih:207B303B3C9BD82483EF811E0AF31BCF1D08DB95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:207B303B3C9BD82483EF811E0AF31BCF1D08DB95
 magnet:?xt=urn:btih:1DCC6E2874FA9F75C0ECA208D4689814BBD4F8CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:1DCC6E2874FA9F75C0ECA208D4689814BBD4F8CC
 magnet:?xt=urn:btih:1B0755D4416B9CCCD29CE796581AABFF4CEF8A70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:1B0755D4416B9CCCD29CE796581AABFF4CEF8A70
 ```bash
 magnet:?xt=urn:btih:3679CD765E204C01DA730324FC83318C5F462E90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:3679CD765E204C01DA730324FC83318C5F462E90
 magnet:?xt=urn:btih:AC2A1786F8BC49C0BEF18019B517A99E650B92A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:AC2A1786F8BC49C0BEF18019B517A99E650B92A0
 ```bash
 magnet:?xt=urn:btih:82627897E0B05541ABA84566369230A2EED67A4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ Glary Utilities - комплексный набор инструментов д�
 magnet:?xt=urn:btih:F9DDB041B7054546038C0DCD5DCB13338787B80D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:F9DDB041B7054546038C0DCD5DCB13338787B80D
 ```bash
 magnet:?xt=urn:btih:AE3F0E008C11ACDA0A4ACAD9AA5596076F59E4BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ Glary Disk Cleaner - бесплатный инструмент от компан
 magnet:?xt=urn:btih:300C37BD50AB82A7257230A1A91237364EB05DBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:300C37BD50AB82A7257230A1A91237364EB05DBB
 ```bash
 magnet:?xt=urn:btih:AFCA14A09ED659CE6501BFD17966C2231A641455
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:AFCA14A09ED659CE6501BFD17966C2231A641455
 magnet:?xt=urn:btih:25714870A2F9752EA4186095BFDE10DBD6E50C01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:25714870A2F9752EA4186095BFDE10DBD6E50C01
 ```bash
 magnet:?xt=urn:btih:049F6615227B6AA1CE10CCF8E52D487CA85B63A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:049F6615227B6AA1CE10CCF8E52D487CA85B63A8
 ```bash
 magnet:?xt=urn:btih:86CA66262366D3E078C0B2FF1F67B3B6179BD8EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

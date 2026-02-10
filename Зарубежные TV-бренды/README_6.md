@@ -19,6 +19,8 @@ BBC: Истоки жизни (Первая жизнь с Дэвидом Атте
 magnet:?xt=urn:btih:CB857B08B9F7305C19B85308800C3B282DDC34A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BBC: Дикая Патагония / Wild Patagonia (2015) BDRemux [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:D2E87D1241097C4C59B3322D1621D0D37C98CD05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ BBC: Поразительные чудеса мира / Weird Wonders of the Wor
 magnet:?xt=urn:btih:4ACD52A65C5DE3ACAFA1E817BC6BE5F6C665647D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ BBC: Невидимые миры / Richard Hammond's Invisible Worlds (2010) BDR
 magnet:?xt=urn:btih:5DFF84D523803413775F1495FE08C93CBF1F2B73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ BBC: По странам и континентам. Дикая Австрала�
 ```bash
 magnet:?xt=urn:btih:CBFE56CF370635577DCA30DF8BA0DBC1F9FDDED9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ BBC: Мир природы. Ошибки природы / Natural World. Natures
 magnet:?xt=urn:btih:F672FB7120A26A34B3AAC249D05CED5487DE026E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ BBC: Мир природы. Исландия: Дикая жизнь / Natural Wo
 magnet:?xt=urn:btih:A1BFE7E8117FE0ABCFA5FB7B07802F0BBE3B3767
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ BBC: Мир природы - Горы тропических дождей / Natu
 ```bash
 magnet:?xt=urn:btih:51BF48DF7B6139563FCCD48F3A4A539022F733D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ BBC: Живой мир / BBC: Natural World (2009-2014) HDTV [H.264/1080i-LQ] (7
 magnet:?xt=urn:btih:6AFF6BBA2FD6B9C06FA5C1ECA797FE2D50F5F713
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 ```bash
 magnet:?xt=urn:btih:17997BE9BFFAAFA2D58438EA41E47A1D81A3E63D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ BBC: Есть, голодать, жить дольше / Eat, Fast and Live Long
 magnet:?xt=urn:btih:35129CCDC0D02AAF1BB02B1EEB090F5B3EAF80D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ BBC: Духи ягуара / Spirits of the Jaguar (1996) DVDRemux (серии 1
 magnet:?xt=urn:btih:533D0F3A4B2A1E88FD648329D53999907796FF90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Discovery: Экспедиция в Арктику / Expedition to the Edge (2020
 ```bash
 magnet:?xt=urn:btih:3D1B9C0598FDF26DDD3AFC42837AE8BBCDD6E609
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ BBC: Дикая природа Новой Зеландии / Wild New Zealand (N
 magnet:?xt=urn:btih:5D50B5040874A5BE7394DB3DC3346495F4E35094
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ BBC: Исаак Ньютон: Последний чародей (Последн�
 magnet:?xt=urn:btih:ECE21F3EECDC7B6DC20D1AF61046F18835C3351E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ BBC: Город под водой. Павлопетри / City Beneath the Waves
 magnet:?xt=urn:btih:803465821D8DDDC0A61D8A614E5701D75CF7A424
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ BBC: Доминик Монаган и дикие существа / Wild Things 
 ```bash
 magnet:?xt=urn:btih:456776CB0A00126C76DE30C15E692AF67BA33614
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ BBC: Дуб - искусство выживания / Oak Tree: Nature's Greates
 magnet:?xt=urn:btih:3828209017C5E0142EDD6D957731D962079B8224
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ PBS. Экспедиция со Стивом Бакшоллом / Expedition with
 ```bash
 magnet:?xt=urn:btih:0253F576839539C06557698A3F9C5BAD1F1AC1B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ BBC: История мира с Эндрю Марром / Andrew Marr's History 
 magnet:?xt=urn:btih:69B5A9FB1CE77D27E68211BF8A348EB768ED349C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ BBC: Какого пола твой мозг? / Is Your Brain Male Or Female? (2
 ```bash
 magnet:?xt=urn:btih:8B9711DDD54536EBC38714E4DF7877F6921F8E59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ BBC. Порядок и хаос. Силы, которые управляют В�
 magnet:?xt=urn:btih:7629FDCFBA62314A5A01DAE347F764F0A2ECCDDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ BBC: Дикая Патагония / Wild Patagonia (2015) HDTVRip [H.264/720p] 
 ```bash
 magnet:?xt=urn:btih:05B35C538DD7C1CF4FA63491DC4D099559FC4516
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ BBC: Гении древнего мира / Genius Ancient World (2015) WEB-DL [
 magnet:?xt=urn:btih:3149C3ABBFD4A7BFEDED188FFBADCC2B418BA625
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ BBC: Гении современного мира / Genius Of The Modern World (
 magnet:?xt=urn:btih:57CC6C244C27DAB600A79EE13756D86FB4FAB662
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ BBC: Доминик Монаган и дикие существа / Wild Things 
 ```bash
 magnet:?xt=urn:btih:81EF442ED815B3366B8F82B323FEF98DDA9243D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

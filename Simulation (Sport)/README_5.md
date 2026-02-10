@@ -19,6 +19,8 @@ Infinite Mini Golf (2017) [Ru/Multi] (1.0) License PLAZA
 magnet:?xt=urn:btih:CC1B2E53AE8445505F03D2CC915E2BAA4EB76108
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Euro Fishing позволит Вам полностью погрузиться �
 ```bash
 magnet:?xt=urn:btih:9BB5FD2E2F65F5D31FECB0089F8DF9F8AD59EE31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ theHunter: Call of the Wild – наиболее реалистичный на �
 magnet:?xt=urn:btih:BC9789C6B6AA6E1A818CCF9FE8EC90500650DA9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ FIFA 17 привносит массу нововведений в популяр
 ```bash
 magnet:?xt=urn:btih:79023BF565DD8F46A4274F363326CE649347CF2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Descenders - современный экстремальный фрирайд-д
 magnet:?xt=urn:btih:B69C28737070E6C2E5ABFBE5E85D937A20D2FE59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ FIFA 17 привносит массу нововведений в популяр
 magnet:?xt=urn:btih:6B3CE32CBED7A08F35A75720A0371005CA2AD6DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ magnet:?xt=urn:btih:6B3CE32CBED7A08F35A75720A0371005CA2AD6DC
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ MotoGP 15 порадует широкими возможностями по вы
 magnet:?xt=urn:btih:4A7BE880E4A0365CC706080359BA2E9F1A5BD181
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Football Manager Touch 2017 (2016) [Ru/Multi] (17.3.1/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:99D413E3F730C5D7DAB63E26529AAC0E65D4A546
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Football Manager 2017 (2016) [Ru/Multi] (17.3.1/dlc) License STEAMPUNKS
 magnet:?xt=urn:btih:E298652C1BCE9388D13B2BAC047A90F7C5B70955
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Football Manager Touch 2017 (2016) [Ru/Multi] (17.3.1/dlc) License STEAMPUNKS
 ```bash
 magnet:?xt=urn:btih:83C13030538CB674F9FAE0C5CC972588B2282C59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ F1 2016, официальная видеоигра 2016 FIA FORMULA ONE WORLD CH
 magnet:?xt=urn:btih:B47E09C7866464D732305E580E4DCA4D24FA50B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Rugby Challenge 2: The Lions Tour Edition (2013) [Multi] License FAIRLIGHT
 ```bash
 magnet:?xt=urn:btih:3116AEAFB459A789C31B72EFB020CA5979792C91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Rugby Challenge 2 (2013) [En] (1.0.0.0) RePack R.G. Revenants
 magnet:?xt=urn:btih:DCE092AAC047A2C89132ED6E52C51A1E6247A3D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Football, Tactics & Glory - это футбольный менеджер для 
 magnet:?xt=urn:btih:F567ABDB63E7D0374F5E3D18CDA8BF692E4303B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Football Club Simulator - FCS 18 - тактический симулятор м�
 ```bash
 magnet:?xt=urn:btih:F7A4463CF078F6AE1D93D83EA04B87799B71AEF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ London 2012: The Official Video Game of the Olympic Games (RePack) [Multi4\-] 20
 magnet:?xt=urn:btih:9FCFAA417555869A802C00AFB771061E753DC957
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ London 2012: The Official Video Game of the Olympic Games (RePack) [En] 2012 | A
 magnet:?xt=urn:btih:5D48476098EE54EDCBF9F66BF7C099B23222E302
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ PES 2016 / Pro Evolution Soccer 2016 (2015) [Ru/En] (1.05.00/dlc) Repack Mizantr
 ```bash
 magnet:?xt=urn:btih:7EA0F642BB074D554007419FED4C4D52CB71EE36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ Pro Evolution Soccer 2018 – триумфальное возвращение з
 magnet:?xt=urn:btih:56135171C4CBE6E920935D2174511CDF14950D65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Super Mega Baseball 2 (2018) [En] (1.0.29017.0/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:E98624393CA028182C3A1284BC96A74B66062492
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Hockey Question Mark (2017) [En] (0.55 uh .59) Unofficial
 magnet:?xt=urn:btih:7AEC5632E829BAC688151DD99E245753A08B252F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Virtual Pool 4 - очередная часть известного симуля
 ```bash
 magnet:?xt=urn:btih:519568A03C1ADB9EA55F3D1D14F8448EB392AC15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ MTB Downhill Simulator - захватывающий симулятор по ма
 magnet:?xt=urn:btih:C652A273679591D7849EA53A6F0EE30C07674B6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ Euro Fishing позволит Вам полностью погрузиться �
 magnet:?xt=urn:btih:B73F0C7D3DFB6A6235AD4BCAF36725FE629F0069
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Combat Chess (1997) [En] (3.0) License GOG
 ```bash
 magnet:?xt=urn:btih:E07BAEFD0FCE5E421B853F59FD6272E2700FB0A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

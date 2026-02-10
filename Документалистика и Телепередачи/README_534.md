@@ -1,3 +1,29 @@
+###  Публикация: 1527228   (736914) от 28.01.2022
+
+Альфред Хичкок - Ранние фильмы (1925-1934) / Alfred Hitchcock - Films De Jeunesse (1925-1934) (2004) DVDRip [FR / RU, EN Sub]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736914.jpg" />
+</div>
+
+
+###  Подробнее
+
+В фильме рассказывается о годах становления Альфреда Хичкока в качестве режиссёра. Киновед Бернар Эйзеншиц и кинорежиссер Клод Шаброль анализируют фильмы раннего периода его творчества и делятся от них своими впечатлениями. Также в фильме присутствуют фрагменты из беседы кинорежиссёра Франсуа Трюффо с Альфредом Хичкоком, состоявшейся в 1966 году.Производство: ФранцияЖанр: документальный, история, кинематографРежиссер: Ноель СимсолоПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские (krigararr, внешние), английские (внешние)Продолжительность: 00:52:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F962DB41F13CF156F6AE8A5150C1496C6572B315
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 786847   (737076) от 16.05.2014
 
 Discovery: Махинаторы (Автодилеры) (сезон 2, серии 1-6 из 6) / Wheeler Dealers (2004/2005) HDTVRip [H.264/720p] [EN]
@@ -18,6 +44,8 @@ Discovery: Махинаторы (Автодилеры) (сезон 2, серии
 ```bash
 magnet:?xt=urn:btih:7405C0025A04BF2ABA030344A4C8F47683F144E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:7405C0025A04BF2ABA030344A4C8F47683F144E1
 magnet:?xt=urn:btih:80E61FA15A32332A2912F803259896524D426120
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:80E61FA15A32332A2912F803259896524D426120
 magnet:?xt=urn:btih:2B47B3876FC311DF0AF65CD212CFF37BC904ADB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:2B47B3876FC311DF0AF65CD212CFF37BC904ADB1
 ```bash
 magnet:?xt=urn:btih:8A04AAE941C8B1E8C0229524F9905C60123911AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:8A04AAE941C8B1E8C0229524F9905C60123911AB
 magnet:?xt=urn:btih:490D1633B50595A57C9E53871FE3EB40359B6F29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:490D1633B50595A57C9E53871FE3EB40359B6F29
 ```bash
 magnet:?xt=urn:btih:05198E788434780F6E1B5E3A13D48EADB35ED780
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ Discovery. Махинаторы (Автодилеры) / Wheeler Dealers (2013) 
 magnet:?xt=urn:btih:B98E444910D47001D1BB88A8C80853C352BF8CBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:B98E444910D47001D1BB88A8C80853C352BF8CBC
 ```bash
 magnet:?xt=urn:btih:A4F88E5BBA707E46D7221158B86A8D5069470CDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:A4F88E5BBA707E46D7221158B86A8D5069470CDB
 magnet:?xt=urn:btih:0CF1774E1568A1085F63779EF4F65642FF5C3C40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:0CF1774E1568A1085F63779EF4F65642FF5C3C40
 ```bash
 magnet:?xt=urn:btih:F91F4E8C806087F6A8FA8ED9748BEA84CF86DA89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:F91F4E8C806087F6A8FA8ED9748BEA84CF86DA89
 magnet:?xt=urn:btih:3B7165B2A390DA9A8EFB34034AD98549AA25D635
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:3B7165B2A390DA9A8EFB34034AD98549AA25D635
 ```bash
 magnet:?xt=urn:btih:C8093C70A6E529B8DB3DD5D9795E30BB5D756E6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:C8093C70A6E529B8DB3DD5D9795E30BB5D756E6D
 magnet:?xt=urn:btih:DE68DFE1B410EA904C029E91D36E92738D8E1D37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:DE68DFE1B410EA904C029E91D36E92738D8E1D37
 ```bash
 magnet:?xt=urn:btih:7B8E7CA0241FBC8FC2D8296AB3F5E773B39CDEC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:7B8E7CA0241FBC8FC2D8296AB3F5E773B39CDEC4
 magnet:?xt=urn:btih:E9AC74B99E23EE155068ADDF3BF935CE892A03B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:E9AC74B99E23EE155068ADDF3BF935CE892A03B0
 ```bash
 magnet:?xt=urn:btih:1719061A8EF7B9474673AC86F180C59C158AE2EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:1719061A8EF7B9474673AC86F180C59C158AE2EA
 magnet:?xt=urn:btih:BE981F65927A27FBC3C8D6051E5A340E16615C28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +487,8 @@ magnet:?xt=urn:btih:BE981F65927A27FBC3C8D6051E5A340E16615C28
 ```bash
 magnet:?xt=urn:btih:4C1D7A397E3A6C78A16D80F3B49ACB0E62077F85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:4C1D7A397E3A6C78A16D80F3B49ACB0E62077F85
 magnet:?xt=urn:btih:CD765C56A21803C94F2C298ABFB0ADBF12A0FDF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +539,8 @@ magnet:?xt=urn:btih:CD765C56A21803C94F2C298ABFB0ADBF12A0FDF4
 ```bash
 magnet:?xt=urn:btih:C42F9BC02BAB8D9CA4F5303D47A216DD16596A63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:C42F9BC02BAB8D9CA4F5303D47A216DD16596A63
 magnet:?xt=urn:btih:89E374D34CAABF7139A2849F7C7DC4EA4384887C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +591,8 @@ magnet:?xt=urn:btih:89E374D34CAABF7139A2849F7C7DC4EA4384887C
 ```bash
 magnet:?xt=urn:btih:DD338D593D0C690147CD36F3FD4CB8958EF4687D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +618,8 @@ magnet:?xt=urn:btih:DD338D593D0C690147CD36F3FD4CB8958EF4687D
 magnet:?xt=urn:btih:8EB88F4988B79D4F3A5D6B91865EB296C3FBE420
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +643,8 @@ magnet:?xt=urn:btih:8EB88F4988B79D4F3A5D6B91865EB296C3FBE420
 ```bash
 magnet:?xt=urn:btih:D60C6B5478ED668DD5CE404822815F430FB0430F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,30 +670,7 @@ magnet:?xt=urn:btih:D60C6B5478ED668DD5CE404822815F430FB0430F
 magnet:?xt=urn:btih:79CAAA921A686F9972347F8212D3182AC90F1F88
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 785337   (738911) от 11.05.2014
-
-Легендарный Т-34 (2003) DVDRip
-
->>Документалистика и Телепередачи
->>Военное дело
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Средний танк Т-34 создало КБ А.А. Морозова. Главный конструктор А.А. Морозов. преемник М.И. Кошкина, основоположника работ по созданию среднего танка, оказался человеком обаятельным. Считал танк в первую очередь нужно вооружить предельно мощной пушкой.
-В то время одним из наиболее сложных вопросов, был выбор типа двигателя, наиболее соответствующего условиям возможного (   Читать дальше...   )Телекомпания: Студия "Крылья России"Жанр: ДокументальныйРежиссер: Константин ПоляковПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A64B59CF471B360F4DE148614EAA3CB12E4F690
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

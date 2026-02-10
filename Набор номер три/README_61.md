@@ -19,6 +19,8 @@ Windows 10 Pro 22H2 19045.4529 x64 by SanLex [Lightweight] [Ru/En] (2024.06.13)
 magnet:?xt=urn:btih:FE1A8670FD86EFF00697EC8DC53CE331913DA4A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:FE1A8670FD86EFF00697EC8DC53CE331913DA4A3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:FE1A8670FD86EFF00697EC8DC53CE331913DA4A3
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:FE1A8670FD86EFF00697EC8DC53CE331913DA4A3
 magnet:?xt=urn:btih:5CDE41A8E5CCFBCA8230CE7FFCF2F93F5E1DC606
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Mozilla скрыла для российских пользователей ст
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Microsoft заморозила развёртывание Windows 11 24H2 на �
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Windows 11 4in1 23H2 22631.3593 by SmokieBlahBlah 2024.05.31 [Ru]
 magnet:?xt=urn:btih:F3F68D1349B95117C0152B286079CB941AB1D508
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:F3F68D1349B95117C0152B286079CB941AB1D508
 ```bash
 magnet:?xt=urn:btih:803B9B7808CE6F0B32E73E27A598D562FDCE34DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:803B9B7808CE6F0B32E73E27A598D562FDCE34DE
 magnet:?xt=urn:btih:D4DB922167466A87817F345F1CD1303F19674B18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Doom: The Dark Ages официально анонсирована — со щи�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Windows XP Professional SP3 AS Edition 06.2012 [Русский]
 magnet:?xt=urn:btih:B79E3875149946B9237035D0061E432E6F9F75C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:B79E3875149946B9237035D0061E432E6F9F75C6
 magnet:?xt=urn:btih:E81D79B36C1FA859ECDC1181C16F2260395E1C44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:E81D79B36C1FA859ECDC1181C16F2260395E1C44
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:E81D79B36C1FA859ECDC1181C16F2260395E1C44
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:E81D79B36C1FA859ECDC1181C16F2260395E1C44
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:E81D79B36C1FA859ECDC1181C16F2260395E1C44
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:E81D79B36C1FA859ECDC1181C16F2260395E1C44
 magnet:?xt=urn:btih:6484393C641FD66B43598D43E7A1D4069888C10F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ Ghost of Tsushima / Призрак Цусимы (2024) [Ru/Multi] (1053.3.0604.1
 magnet:?xt=urn:btih:B7FB20D8046DE9EBC81B2B8E81D8583A3F1CC2C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:B7FB20D8046DE9EBC81B2B8E81D8583A3F1CC2C7
 ```bash
 magnet:?xt=urn:btih:E645AEE8480AE9A9A518D5E89DE3A97F5DEE59CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ Windows 10 Professional 22H2 x64 Game OS 1.7 by CUTA [Ru]
 magnet:?xt=urn:btih:20ED16EC8CCA5FCD59D68F4ACFF7DD0C0A5296B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:20ED16EC8CCA5FCD59D68F4ACFF7DD0C0A5296B4
 ```bash
 magnet:?xt=urn:btih:5222DD6785329D43008334560C376D7BCA76BE0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:5222DD6785329D43008334560C376D7BCA76BE0A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ Litcube's Universe представляет собой глобальную мо
 magnet:?xt=urn:btih:2CD71DA69E5D16B6C6C7631EA31172E89EA05030
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ magnet:?xt=urn:btih:2CD71DA69E5D16B6C6C7631EA31172E89EA05030
 ```bash
 magnet:?xt=urn:btih:693C2F6D96C1B9D3B5CD5C624E22F2CF93656F6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ magnet:?xt=urn:btih:693C2F6D96C1B9D3B5CD5C624E22F2CF93656F6E
 magnet:?xt=urn:btih:8060969A543EABB06718751FAF736E627EA31F68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ magnet:?xt=urn:btih:8060969A543EABB06718751FAF736E627EA31F68
 ```bash
 magnet:?xt=urn:btih:9988AAAF433BD591F322706369DA26311E013413
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

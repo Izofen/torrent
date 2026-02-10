@@ -1,3 +1,29 @@
+###  Публикация: 1160027   (475863) от 24.08.2017
+
+Елена Чекалова | Ешьте! Новая книга о вкусной и здоровой пище. Завтраки, ланчи, перекусы (2014) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Можно ли сочетать вкусное и полезное? Нужно! Нездоровую пищу полезная еда побеждает, только если она приготовлена гораздо интереснее. В этом вы убедитесь, прочитав книгу Елены Чекаловой. По её мнению, пора перестать считать вкусную еду дьявольским соблазном. Бесполезно заставлять свое тело страдать, сытость наступает не от того, что наш желудок наполнен до отказа, (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A0981D7A5F177A507F2312D811EF4513F62E5D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1160354   (476039) от 24.08.2017
 
 К. Жук, Я. Юрышева | Еноты и мгновенные кексы в микроволновке (2016) [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:6965D1D2B5389B1BB0ECF5E62DDDC6466291B25A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:6965D1D2B5389B1BB0ECF5E62DDDC6466291B25A
 magnet:?xt=urn:btih:70EB4D657A90F5829FB3D1DC69728E5BC5830E8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:70EB4D657A90F5829FB3D1DC69728E5BC5830E8C
 magnet:?xt=urn:btih:964F859F7A2457E0A3F910F7F57C6BF48FE13FDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:964F859F7A2457E0A3F910F7F57C6BF48FE13FDF
 ```bash
 magnet:?xt=urn:btih:92FB44E7192636A125E26CB43B0753433CE9593A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:92FB44E7192636A125E26CB43B0753433CE9593A
 magnet:?xt=urn:btih:2B482143CDDDB9B43C2914A0337799DBF88F165B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:2B482143CDDDB9B43C2914A0337799DBF88F165B
 magnet:?xt=urn:btih:CFF01FC986BF3F44CFE0B6B211BD83AACEC4F96C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:CFF01FC986BF3F44CFE0B6B211BD83AACEC4F96C
 ```bash
 magnet:?xt=urn:btih:C99132C4EF0110BC7D495A6CA01EE9BB14DC061E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:C99132C4EF0110BC7D495A6CA01EE9BB14DC061E
 magnet:?xt=urn:btih:5DFE99134FB7E2F6E12651B833F2EA91F252F7D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:5DFE99134FB7E2F6E12651B833F2EA91F252F7D7
 ```bash
 magnet:?xt=urn:btih:253831777F7F9EE13B1A4DA60E69FE7A9BBC966D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:253831777F7F9EE13B1A4DA60E69FE7A9BBC966D
 ```bash
 magnet:?xt=urn:btih:93FC21B3AA4AABDD65390C9BAB6FE50AD5BEABA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:93FC21B3AA4AABDD65390C9BAB6FE50AD5BEABA4
 magnet:?xt=urn:btih:F7EF1674411F010E76F4E2C22A4E4BD2809AB0CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +339,8 @@ magnet:?xt=urn:btih:F7EF1674411F010E76F4E2C22A4E4BD2809AB0CA
 magnet:?xt=urn:btih:F5D9593EB655A30E5EFB8FE48A4F821CDA198460
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:F5D9593EB655A30E5EFB8FE48A4F821CDA198460
 ```bash
 magnet:?xt=urn:btih:FB64CBAB79445F4DA57E5F25F8A8573C7F43C5A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +393,8 @@ magnet:?xt=urn:btih:FB64CBAB79445F4DA57E5F25F8A8573C7F43C5A7
 magnet:?xt=urn:btih:47F0E804BA072D269F679D6B3919F6A817B248B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +419,8 @@ magnet:?xt=urn:btih:47F0E804BA072D269F679D6B3919F6A817B248B7
 magnet:?xt=urn:btih:CE673A43CC3BAFDDAA5C26DBF1DCAB9624AE96ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:CE673A43CC3BAFDDAA5C26DBF1DCAB9624AE96ED
 ```bash
 magnet:?xt=urn:btih:6994204E03061400E449E0D7869809BD781EBACF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +473,8 @@ magnet:?xt=urn:btih:6994204E03061400E449E0D7869809BD781EBACF
 magnet:?xt=urn:btih:1BFD6754CFA269EF7D51BB18AB11F37F6AF9CD8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +498,8 @@ magnet:?xt=urn:btih:1BFD6754CFA269EF7D51BB18AB11F37F6AF9CD8A
 ```bash
 magnet:?xt=urn:btih:9308B376CECD6025C7EDECDC0990350642F46072
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +527,8 @@ magnet:?xt=urn:btih:9308B376CECD6025C7EDECDC0990350642F46072
 magnet:?xt=urn:btih:B46AB0D6E0E09E272ED0CD1F64BA13FCC7758FD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +552,8 @@ magnet:?xt=urn:btih:B46AB0D6E0E09E272ED0CD1F64BA13FCC7758FD3
 ```bash
 magnet:?xt=urn:btih:3C08D4F78D99B42333329221720C111B3612964F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +579,8 @@ magnet:?xt=urn:btih:3C08D4F78D99B42333329221720C111B3612964F
 magnet:?xt=urn:btih:085FCF5A97D86D975BA05DC6B56CE81F2DCF4ADD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:085FCF5A97D86D975BA05DC6B56CE81F2DCF4ADD
 ```bash
 magnet:?xt=urn:btih:28BEC4C913548F4FA1B6DB63897287C3977216F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:28BEC4C913548F4FA1B6DB63897287C3977216F6
 magnet:?xt=urn:btih:AD7DAE8269DD19491695FB8C669BC88987136562
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +656,8 @@ magnet:?xt=urn:btih:AD7DAE8269DD19491695FB8C669BC88987136562
 ```bash
 magnet:?xt=urn:btih:A2B0461BCFC05BE34807C9ED1C17F25F1074F416
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,30 +683,7 @@ magnet:?xt=urn:btih:A2B0461BCFC05BE34807C9ED1C17F25F1074F416
 magnet:?xt=urn:btih:4D72884FDE215C7151BAFA157B7A651E1B23DDC3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 822943   (477901) от 19.09.2014
-
-Александр Рогалев | Имя и личность (2013) [PDF]
-
->>Разное (категория книг)
->>Эзотерика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во все времена в имени человека старались увидеть нечто большее, чем звуки, буквы, внутренняя форма и этимологическое значение. Многие исследователи – философы и лингвисты – рассуждают о тайне имени. В исследовании доктора филологических наук, профессора А. Ф. Рогалева анализируется взаимосвязь  имени  и человека. Автор исходит из того, что именование не бывает случайным, потому что не случайно рождение человека у определённых родителей в определённое время и в определённом месте.
-Личное  имя  обязательно  соотносится (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98251A063F3C5B815875CA10D34533757E99BABD
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

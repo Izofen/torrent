@@ -1,3 +1,30 @@
+###  Публикация: 1255383   (358347) от 20.10.2018
+
+А. Попов | Ремонт своими руками. Энциклопедия домашних работ [3 части] (2010) [PDF]
+
+>>Разное (категория книг)
+>>Строительство и ремонт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто из нас не сталкивался с проблемами при ремонте?
+Это пособие — для домашнего мастера. Оно посвящено актуальным домашним проблемам, решаемым многими из нас. Здесь собраны рекомендации по работе с деревом, металлом, картоном, бумагой и т. д. Книга поможет с ремонтом дома и квартиры, даст советы о том, как самостоятельно отремонтировать потолки, полы, стены и лестницы; (   Читать дальше...   )Жанр: РемонтФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC7A140D0F800AF2AFAB03DB38F5C92815150E54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952160   (358452) от 31.10.2015
 
 Т. Чернышева | Сохрани лето в банке (2014) [PDF]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:8D420A28E3B3D24C552922CBE828F2DFA74CC8EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +71,8 @@ magnet:?xt=urn:btih:8D420A28E3B3D24C552922CBE828F2DFA74CC8EF
 ```bash
 magnet:?xt=urn:btih:1E4BCD192680200C5B8E9743515264BCB4E3DB86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +100,8 @@ magnet:?xt=urn:btih:1E4BCD192680200C5B8E9743515264BCB4E3DB86
 magnet:?xt=urn:btih:7FE5478AE2965DE4818CDC9F5D8F6201638E6E29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +125,8 @@ magnet:?xt=urn:btih:7FE5478AE2965DE4818CDC9F5D8F6201638E6E29
 ```bash
 magnet:?xt=urn:btih:591891EEA7DB246117CF9A7EF84CB95440FE3726
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +154,8 @@ magnet:?xt=urn:btih:591891EEA7DB246117CF9A7EF84CB95440FE3726
 magnet:?xt=urn:btih:8B03C3AE557D358784BE0D60FEEB8A1B9F32B534
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +180,8 @@ magnet:?xt=urn:btih:8B03C3AE557D358784BE0D60FEEB8A1B9F32B534
 magnet:?xt=urn:btih:F32C61A44815AAE78BA54C245C21171D97D93ADF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +205,8 @@ magnet:?xt=urn:btih:F32C61A44815AAE78BA54C245C21171D97D93ADF
 ```bash
 magnet:?xt=urn:btih:01B9E903A96BC8D305C50D6F17FC1B2C62EC2805
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +234,8 @@ magnet:?xt=urn:btih:01B9E903A96BC8D305C50D6F17FC1B2C62EC2805
 magnet:?xt=urn:btih:78BC3646E9CC61452B1CF4E6421A7DD600A67CAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +260,8 @@ magnet:?xt=urn:btih:78BC3646E9CC61452B1CF4E6421A7DD600A67CAC
 magnet:?xt=urn:btih:0720C16121146B941069D5A44E24AFED119472CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +285,8 @@ magnet:?xt=urn:btih:0720C16121146B941069D5A44E24AFED119472CF
 ```bash
 magnet:?xt=urn:btih:C01E1A86CF0ABC1A853F1F1EE965A84ABF5298FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +314,8 @@ magnet:?xt=urn:btih:C01E1A86CF0ABC1A853F1F1EE965A84ABF5298FA
 magnet:?xt=urn:btih:EEB54F34AD83AE7D1A288CA49F9824B880685100
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +339,8 @@ magnet:?xt=urn:btih:EEB54F34AD83AE7D1A288CA49F9824B880685100
 ```bash
 magnet:?xt=urn:btih:5DB215930F45008C0C839FAD8D5538247C54B095
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +367,8 @@ magnet:?xt=urn:btih:5DB215930F45008C0C839FAD8D5538247C54B095
 magnet:?xt=urn:btih:029BE3594E37A7FC5DD5B69C2B0900CEF09CD1F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +392,8 @@ magnet:?xt=urn:btih:029BE3594E37A7FC5DD5B69C2B0900CEF09CD1F1
 ```bash
 magnet:?xt=urn:btih:694DC011957AC0F694E17A5E4572D87CB263E679
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +421,8 @@ magnet:?xt=urn:btih:694DC011957AC0F694E17A5E4572D87CB263E679
 magnet:?xt=urn:btih:52C283E8183F99325467DB7E051CCB984F7F6674
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +446,8 @@ magnet:?xt=urn:btih:52C283E8183F99325467DB7E051CCB984F7F6674
 ```bash
 magnet:?xt=urn:btih:CED94D7003456155EFF4B1E5CE7E5DE33133E810
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +473,8 @@ magnet:?xt=urn:btih:CED94D7003456155EFF4B1E5CE7E5DE33133E810
 magnet:?xt=urn:btih:393B3CA46754E70B300844117DA2F186C14C7B77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +499,8 @@ magnet:?xt=urn:btih:393B3CA46754E70B300844117DA2F186C14C7B77
 magnet:?xt=urn:btih:BF527F08E0414EF13EB08BAF40DF58F7718DA96D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +524,8 @@ magnet:?xt=urn:btih:BF527F08E0414EF13EB08BAF40DF58F7718DA96D
 ```bash
 magnet:?xt=urn:btih:143BD5C0BD79862B42D10405101F5B327C38504C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +553,8 @@ magnet:?xt=urn:btih:143BD5C0BD79862B42D10405101F5B327C38504C
 magnet:?xt=urn:btih:CAF9E215520F1632CE24A0281125D955DBF5849D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +578,8 @@ magnet:?xt=urn:btih:CAF9E215520F1632CE24A0281125D955DBF5849D
 ```bash
 magnet:?xt=urn:btih:E7353E1CB0954E3BB9670E10176644E6F8EA2626
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +605,8 @@ magnet:?xt=urn:btih:E7353E1CB0954E3BB9670E10176644E6F8EA2626
 magnet:?xt=urn:btih:8100946E8EF3F3D0A9FE640B8E9C4D6D55D930DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +630,8 @@ magnet:?xt=urn:btih:8100946E8EF3F3D0A9FE640B8E9C4D6D55D930DF
 ```bash
 magnet:?xt=urn:btih:FAA4988C73D1F42786D3474758E1FED75AAC3B09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +657,8 @@ magnet:?xt=urn:btih:FAA4988C73D1F42786D3474758E1FED75AAC3B09
 magnet:?xt=urn:btih:EE8812CBCC290FAE4B7DBD8FD46AA1AEB317C794
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,29 +683,7 @@ magnet:?xt=urn:btih:EE8812CBCC290FAE4B7DBD8FD46AA1AEB317C794
 magnet:?xt=urn:btih:C0FAE0090EFC02DC4C738F1CE439CF2A6FF659E7
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416901   (360532) от 19.10.2020
-
-В. А. Масленников (ред.) | Углубление кризиса колониальной системы империализма после второй мировой войны (1953) [DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий сборник — коллективная работа нескольких авторов — ставит своей целью показать великие демократические преобразования в странах Востока, отпавших от капиталистической системы после второй мировой войны (Китайская народная республика, Корейская народно-демократическая республика и Демократическая республика Вьетнам), а также успехи революционной борьбы народов, (   Читать дальше...   )Жанр: История, политология, социология, экономика, правоведение, публицистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2564CEF830C744650A682ADBFAFD06BB23000E3
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

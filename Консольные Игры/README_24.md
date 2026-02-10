@@ -21,6 +21,8 @@ Super Smash Bros. for Wii U (2014) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] 
 magnet:?xt=urn:btih:C2965C2878BFABE37FA39E59375F7F828C270B62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Fight Night Champion — это не просто очередное продо�
 ```bash
 magnet:?xt=urn:btih:BD8C7FF972B43DD24EC5D945716939AB7BEA5C2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ The Walking Dead - Survival Instinct (2013) [WiiU] [EUR] 5.3.2 [WUP Installer] [
 magnet:?xt=urn:btih:71C71BA20475C48EB47EA325A1B78319FC22B9F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:71C71BA20475C48EB47EA325A1B78319FC22B9F4
 ```bash
 magnet:?xt=urn:btih:603BE95C223FFE6F1B4B2399F801D3FB7148A26C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Just Dance и Disney снова рады представить вам совм�
 magnet:?xt=urn:btih:0F9C0765B7F0D76249B42B2FCD465B86CE6B2265
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ NBA 2K18 – новая версия самого успешного баске�
 ```bash
 magnet:?xt=urn:btih:76ED446F6237BCB6C33E8188FB7D621D92C4AA3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Sly Cooper: Thieves in Time / Sly Cooper: Прыжок во времени (2013
 magnet:?xt=urn:btih:FA5571CC08672D9BBA69CB54A1AB713246C878EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Burnout Paradise: The Ultimate Box (2009) [XBOX360] JTAG [License] [Multi]
 ```bash
 magnet:?xt=urn:btih:3F23C7AE3986A99416FA3384EA477607A73BAD20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ WWE 2K16 (2015) [Xbox360] [RegionFree] [LT+3.0] [License] [En]
 magnet:?xt=urn:btih:20E287A52C6772A17EC9048244D3E50BD2832787
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Marvel Avengers: Battle for Earth [ENG] (RegionFree) (LT+3.0/15574) (2012) [KINE
 ```bash
 magnet:?xt=urn:btih:F13181C415E4E788852285169E924B17E5C0EB4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Disney Epic Mickey 2: The Power of Two является продолжением
 ```bash
 magnet:?xt=urn:btih:C8495998CCC527DAA8C453173753EB53467D4961
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Ori and the Blind Forest: Definitive Edition (2019) [Switch] [EUR] 8.1.0 [Licens
 magnet:?xt=urn:btih:047DCDC8C6FED93F00A8FEBC03D8144AA275DBE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Pac-Man возвращается в ином обличии, чтобы пред
 ```bash
 magnet:?xt=urn:btih:15CAD4DBE3295D5B572651283B37909AC0EFD3A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ The Chronicles of Narnia: Prince Caspian (2008) [PS3] [EUR] 2.30 [Cobra ODE / E3
 magnet:?xt=urn:btih:C7330904B562031929343C830F389A2571C72D71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Bayonetta (2014) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Multi]
 ```bash
 magnet:?xt=urn:btih:EED62EDF9085331916A5F228645FABD0D57CCF8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Magic Orbz - новая интерпретация классического ж
 magnet:?xt=urn:btih:DA8A6E2B227AA13214F123769B5611AF24F4299D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Borderlands 2 (2014) [PSVita] [EUR] 3.60 [NoNpDrm] [License / 1.07 / 6 DLC] [En]
 ```bash
 magnet:?xt=urn:btih:EC37418F93010812A170E08A71198B561F5A554D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ Cabela's African Adventures [Wii] [NTSC] [ENG] (2013)
 magnet:?xt=urn:btih:0C4247250A4B31C12715167E0BF555BE63774225
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Resident Evil: Chronicles Collection HD [PS3] [ENG] [NTSC] [MOVE] [PSN] [3.55] (
 ```bash
 magnet:?xt=urn:btih:8BE900F5CAB24726B229DF01DC448937DD24A085
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ Splatoon предлагает взглянуть на шутеры с новой
 magnet:?xt=urn:btih:62764159DC1A3C33FD40887F1FC132E7A9F6E7CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ Hyrule Warriors (2014) [WiiU] [EUR] 5.3.2 [WUP Installer] [License / 1.12.0] [Mu
 ```bash
 magnet:?xt=urn:btih:2DFFBF8B45D9ED1B3B315ECE4F245A401DAA1AD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ Batman: Arkham Knight. Premium Edition / Batman: Рыцарь Аркхема (Pr
 magnet:?xt=urn:btih:6E11172B780E6838A81B46D4F301D0C6FF25CF87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ Mortal Kombat 9: Komplete Edition (2012) [PSVita] [EUR] 3.60 [NoNpDrm] [License]
 ```bash
 magnet:?xt=urn:btih:DAC56D7A15646DFCA0DFAA864CF45505860DD0AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ Burnout Paradise: The Ultimate Box (2009) [PS3] [EUR] 3.40 [Repack / 1.90] [Ru/E
 magnet:?xt=urn:btih:D044D53324320EEF573F7D15A1F07700102AE7B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ Just Dance 2016 (2015) [Xbox360] [RegionFree] [LT+3.0] [License] [En]
 magnet:?xt=urn:btih:E8F5256EF0633242D81677EB697FA2CC70AFD7D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Salt and Sanctuary легко сочетает быстрый, брутальн�
 ```bash
 magnet:?xt=urn:btih:AFC876522F1FB18BD04F1268AA2BEEB8DFEDD79D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

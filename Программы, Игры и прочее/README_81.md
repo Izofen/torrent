@@ -19,6 +19,8 @@ Smart AudioBook Player Pro v11.5.8 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:9403857FE7E7ED08A39D1D6DB806AE2B08E4E0E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ WiFi Analyzer v6.7 (b105) Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C81BC649B98C1C185F9CA3BB2736C09ECC2A657E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Poweramp Эквалайзер - отдельное приложение-эква
 magnet:?xt=urn:btih:D9F963B363E39EC60186250426796A806BD3C477
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Poweramp (Premium) - Аудиоплеер с продвинутым звуков
 ```bash
 magnet:?xt=urn:btih:08782761F104172CD9921884CCE310B72448F5EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ PictureThis - Plant Identification v5.14.0 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:83C54701811B1A631F123426D5D4DEB140F62155
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Persona - твоя новая селфи-камера на каждый день
 ```bash
 magnet:?xt=urn:btih:9196257C32A7BF0B57508F03B475BA24B35F3841
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ FFmpeg — набор библиотек с открытым исходным к
 magnet:?xt=urn:btih:AF4301444306C281E7044E755E5A7B84D9C9375A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Mathlab Graphing Calculator Pro v2025.10.167 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B36815B50A690265936C6C5BF32EBD6FEE092681
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ All-In-One Offline Maps v3.17b Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:051B5813D496C6A41DF50A6CE0CFE17B2848D277
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ VN - это видеоредактор предназначенный специ
 ```bash
 magnet:?xt=urn:btih:567803F0BB454CE2DE455BE8D0A1A4D696616FF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ ProShot v8.32 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:9BA99E7FBA2CDB304E34D1CB71B7421E4CAB213E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ SnapEdit — одно из лучших приложений для редакт
 ```bash
 magnet:?xt=urn:btih:8C2EC32472993F7F6BD9CDC3273CB417AEDBE73A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:8C2EC32472993F7F6BD9CDC3273CB417AEDBE73A
 magnet:?xt=urn:btih:440965EB35F5BAA7C27CF9C5954BB79F9AC95A88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Color By Number For Adults / Раскраски по номерам v4.5.5 [Ru/M
 ```bash
 magnet:?xt=urn:btih:17BA31BAB81BDAEB8793AE0AE9515FA441FD01F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ PicWish — фоторедактор с искусственным (   Чита
 magnet:?xt=urn:btih:A651F8B6B7E021D34257EE4552AE3A064EAE65EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Flud - простой и элегантный BitTorrent клиент для о�
 ```bash
 magnet:?xt=urn:btih:321B489B4D6670AEA8D975DF39946C655DEDA9C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ FacePic — приложение AI Face, приложение для легко
 magnet:?xt=urn:btih:C4BAB17E804B459BB1D2C49424A601D22DB74E09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Display Tester v5.35.6 Mod by Balatan, AnBo39  [Ru/En]
 ```bash
 magnet:?xt=urn:btih:7D8EE7A9FDA4752C80742C928FBE038961061E08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ WPS Office - очень полезное, офисное приложение д
 magnet:?xt=urn:btih:A03F33A7D9F39C70F1A1522567DC22810770E9A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Picsart AI Photo Editor, Video v28.6.7 Gold Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5FC895E98823BD138DB2A5F6622032BC50DFF4B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ CCleaner - один из самых известных и популярных �
 magnet:?xt=urn:btih:D3652267B906FB747A3982554FF674B76D63D0AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ PhotoRoom - приложение, что будет одинаково поле�
 ```bash
 magnet:?xt=urn:btih:4BF899956854FF71491AB6DCE7BD5F9BFA72819F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ WPS Office - очень полезное, офисное приложение д
 magnet:?xt=urn:btih:734F1025D25B51B638C2A0B41835F10A2F9DF3C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ Memrise - шикарный образовательный проект пред�
 ```bash
 magnet:?xt=urn:btih:04245E2E54CA3533F224D97351AF0EA201FA0221
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ Tiny Robots Recharged - головоломка с великолепной тр�
 magnet:?xt=urn:btih:AB2886295E17999789F9C7F1C30B969A88F75EF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ MintAI - Photo Enhancer Remini v1.2.9 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:870893DDF5CBC7F797590BDBF2259F01C81654DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

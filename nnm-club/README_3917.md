@@ -19,6 +19,8 @@ Linux Mint 21.3 Virginia (Cinnamon Edition, Cinnamon (Edge) Edition, MATE Editio
 magnet:?xt=urn:btih:2E5567FC9D73EAFD66B8109E5C48C32D415D8E88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:2E5567FC9D73EAFD66B8109E5C48C32D415D8E88
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Skillbox, Виктория Вишнякова | Как правильно пит
 magnet:?xt=urn:btih:D2B354FB4EA8228B108D5C1FB49EF395385A4413
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Nienix: Cosmic Warfare (2023) [Ru/Multi] (1.0501) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:A8D5E8B753AA4B63A0DB6FE0E4DDA48207DEFD6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 magnet:?xt=urn:btih:7175A52F2CEB941FD69BB2B497E3BC8A78B6BC97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Sovereign Syndicate (2024) [En] (1.0.25) Scene Tenoke
 magnet:?xt=urn:btih:299F4D8BF00F1F3683F47E8A05FF9DC6884011F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:299F4D8BF00F1F3683F47E8A05FF9DC6884011F4
 ```bash
 magnet:?xt=urn:btih:BC8E814FAF50EF3CB75BCBAB3B392B79450BE3C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ PurpleSchool | Прохождение собеседования (2023) WEB-DL [
 magnet:?xt=urn:btih:8DF2BC4E73C5CA41FA4F592D2A604777DE6834B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:8DF2BC4E73C5CA41FA4F592D2A604777DE6834B5
 ```bash
 magnet:?xt=urn:btih:EA2A9A1DF5C6E9E20550102211B34D827A491943
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:EA2A9A1DF5C6E9E20550102211B34D827A491943
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:EA2A9A1DF5C6E9E20550102211B34D827A491943
 ```bash
 magnet:?xt=urn:btih:E756A862BD8F8226F43090DFEE51CA0DD74A515E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:E756A862BD8F8226F43090DFEE51CA0DD74A515E
 magnet:?xt=urn:btih:AAA91FC5883653F6179210BE961D9EB392A4802A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:AAA91FC5883653F6179210BE961D9EB392A4802A
 ```bash
 magnet:?xt=urn:btih:C91807D37F9355BDD310322379D47D658276B607
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Merchant of the Skies – увлекательное приключение, п�
 magnet:?xt=urn:btih:E4A800DA60DE86F59E073C2F0F06156E8EAF75E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:E4A800DA60DE86F59E073C2F0F06156E8EAF75E9
 ```bash
 magnet:?xt=urn:btih:534CC61E55506E5D84C5E340009221A6EB8D91C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:534CC61E55506E5D84C5E340009221A6EB8D91C1
 magnet:?xt=urn:btih:9746B237C7237B3F9947CA733A854C20CED823D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:9746B237C7237B3F9947CA733A854C20CED823D9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ Udemy, Nata Vacheishvili | React Native: Mobile App Development (CLI) [2024] (20
 magnet:?xt=urn:btih:F2A54298BCBE8276390ADD42EB7D866EAEC26580
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:F2A54298BCBE8276390ADD42EB7D866EAEC26580
 ```bash
 magnet:?xt=urn:btih:0EDB599408AD3BCE018ED235C7E491E861AA9A40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ Northgard (2018) [Ru/Multi] (3.3.16.36098/dlc) Repack Other s
 magnet:?xt=urn:btih:1BA0818F016173B5F8EBE41A09FC84059B0E7156
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:1BA0818F016173B5F8EBE41A09FC84059B0E7156
 ```bash
 magnet:?xt=urn:btih:A717E2A8DAF2561AA8DD5AAF2B51687560BBAFB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ Cliff Empire - небольшая экономическая стратегия.
 magnet:?xt=urn:btih:3B7330378C41C90AAFEFC4B57E0B6A3C5B158FB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ Minecraft Legends является спин-оффом популярной фр
 ```bash
 magnet:?xt=urn:btih:751FE2404BDE8572EA223C66CBC6E3B26A04AF86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:751FE2404BDE8572EA223C66CBC6E3B26A04AF86
 magnet:?xt=urn:btih:2D65906E71D1C3047E775390ECFE04D919FF9B33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:2D65906E71D1C3047E775390ECFE04D919FF9B33
 ```bash
 magnet:?xt=urn:btih:83E5149AA640ABC297DBA327996A36A072CEE50E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:83E5149AA640ABC297DBA327996A36A072CEE50E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

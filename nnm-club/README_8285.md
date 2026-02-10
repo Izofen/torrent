@@ -20,6 +20,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@
 magnet:?xt=urn:btih:03C8A2F05394AFC74A84644AFAA8A3FEF5A254BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:03C8A2F05394AFC74A84644AFAA8A3FEF5A254BF
 ```bash
 magnet:?xt=urn:btih:175C06F8FEC088BE034D6F4A01F3C83C32A2C2DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:175C06F8FEC088BE034D6F4A01F3C83C32A2C2DB
 magnet:?xt=urn:btih:F2A253B99F51912032361E530FB7E4824F62B39A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:F2A253B99F51912032361E530FB7E4824F62B39A
 magnet:?xt=urn:btih:C98B514A994974CDD2C29ABCF135DE20CB94536A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:C98B514A994974CDD2C29ABCF135DE20CB94536A
 ```bash
 magnet:?xt=urn:btih:D3DF29EA308BD4B7838A9DBC97DF3FD4A172E9BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +189,8 @@ Al Cohn - Standards Of Excellence & Nonpareil (1998) [APE|Lossless]<Bop, Mainstr
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ Al Cohn - Standards Of Excellence & Nonpareil (1998) [APE|Lossless]<Bop, Mainstr
 ```bash
 magnet:?xt=urn:btih:48B98BDB82D6FE386BCCA8FFBD8D870EEFCC38DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +245,8 @@ magnet:?xt=urn:btih:48B98BDB82D6FE386BCCA8FFBD8D870EEFCC38DA
 magnet:?xt=urn:btih:8DF730874A80E36B9987CE01B7DCFCCD79AC423C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ Google признали виновным в нарушении авторски�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +307,8 @@ VA - Клубные Новинки Vol.74 from AGR (2012) [MP3|320 кб/с]<Club
 magnet:?xt=urn:btih:495E045C8CE4253C8BE7132FF757B665CCBC343F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +336,8 @@ magnet:?xt=urn:btih:495E045C8CE4253C8BE7132FF757B665CCBC343F
 ```bash
 magnet:?xt=urn:btih:2FB5DB8319B2C35FD2190FC8F54B4DB7C19ABB03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +372,8 @@ VA - Русские Новинки Vol.51 from AGR (2012) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:25832DF06FACA3E5489EC2DBCAC4369D37CA527A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +402,8 @@ magnet:?xt=urn:btih:25832DF06FACA3E5489EC2DBCAC4369D37CA527A
 magnet:?xt=urn:btih:A1130AD04C8FEF461133B0776BB41344B545CE10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +427,8 @@ magnet:?xt=urn:btih:A1130AD04C8FEF461133B0776BB41344B545CE10
 ```bash
 magnet:?xt=urn:btih:8A5CD08A3D4B24DF3C538F5B69279426296B39F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +454,8 @@ magnet:?xt=urn:btih:8A5CD08A3D4B24DF3C538F5B69279426296B39F8
 magnet:?xt=urn:btih:F4EF000181267F432A868A1EC76A9216D499BB7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +480,8 @@ magnet:?xt=urn:btih:F4EF000181267F432A868A1EC76A9216D499BB7F
 magnet:?xt=urn:btih:7A418000FD874C17139C9B80712F700274DE8DB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +505,8 @@ magnet:?xt=urn:btih:7A418000FD874C17139C9B80712F700274DE8DB6
 ```bash
 magnet:?xt=urn:btih:46060F1300AE2CB9A8B7E705BE701ED3DADDEE39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +539,8 @@ magnet:?xt=urn:btih:46060F1300AE2CB9A8B7E705BE701ED3DADDEE39
 ```bash
 magnet:?xt=urn:btih:F383665E4189E016F3A496061BAB0A92D566E7FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +575,8 @@ Jim Allchin - Overclocked (2011) [APE|Lossless]<Blues, Blues Rock, Soul>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +600,8 @@ Jim Allchin - Overclocked (2011) [APE|Lossless]<Blues, Blues Rock, Soul>
 ```bash
 magnet:?xt=urn:btih:4AC03D13B2A6EB86FEB068A7B368FA08754E5C61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +636,8 @@ CD1
 magnet:?xt=urn:btih:1812A039348292C7E28783D0AE72D26C8DC9BA05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +661,8 @@ magnet:?xt=urn:btih:1812A039348292C7E28783D0AE72D26C8DC9BA05
 ```bash
 magnet:?xt=urn:btih:ED9815A27E49783965E435FC117CE90B98FE54CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -645,6 +691,8 @@ magnet:?xt=urn:btih:ED9815A27E49783965E435FC117CE90B98FE54CA
 ```bash
 magnet:?xt=urn:btih:9480FFC1515BFED233202F888AB23264FD17D578
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -676,6 +724,8 @@ Avi Lebo Double Trombone Quintet & Slide Hampton - Shades of Brass (1996) [FLAC|
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -709,6 +759,8 @@ Stargate - Beyond Space And Time (2012) [MP3|320 кб/с]<Progressive/Symphonic 
 ```bash
 magnet:?xt=urn:btih:326F529E51BF2C1BCE60A79B836CC136B435C827
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

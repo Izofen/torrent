@@ -22,6 +22,8 @@ VA - СОЮЗ Детский (2012) [MP3|256 кб/с]<Детские песен�
 magnet:?xt=urn:btih:D912BDEB2A4968689D9F147787020F7485FA6D07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:D912BDEB2A4968689D9F147787020F7485FA6D07
 ```bash
 magnet:?xt=urn:btih:14D9DD8C217FDC4B233E5CC276B6814A42E0A8BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Memento Mori / Memento Mori: Помни о смерти (RePack) [Ru] 2008 | a-l
 magnet:?xt=urn:btih:375C45176D1A705D79A91BFD47F112414A9F39BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:375C45176D1A705D79A91BFD47F112414A9F39BA
 ```bash
 magnet:?xt=urn:btih:D649C03022D5E2ED3FE6D3F9E26F2389D883C09E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ P.S. На просторах инета встречал сканы в лучш�
 magnet:?xt=urn:btih:2B9D9B1C5B0E1096AD678C9A1BC9B923EC05A601
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:2B9D9B1C5B0E1096AD678C9A1BC9B923EC05A601
 ```bash
 magnet:?xt=urn:btih:7DF5380CBCFBCDC09807FCE82438535AD84810EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:7DF5380CBCFBCDC09807FCE82438535AD84810EA
 magnet:?xt=urn:btih:189CD593A923922E369A3DE9B92D327717C3F0CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:189CD593A923922E369A3DE9B92D327717C3F0CF
 ```bash
 magnet:?xt=urn:btih:9BB2193499209A3DABE32DD7BBB4C95ADF38CC1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:9BB2193499209A3DABE32DD7BBB4C95ADF38CC1A
 magnet:?xt=urn:btih:5CA9E5D36C1D8C857A617D834825CCE7074C4CC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:5CA9E5D36C1D8C857A617D834825CCE7074C4CC6
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:5CA9E5D36C1D8C857A617D834825CCE7074C4CC6
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:5CA9E5D36C1D8C857A617D834825CCE7074C4CC6
 ```bash
 magnet:?xt=urn:btih:FBD5032EDA043C78324EF318292EDF4479FD4350
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:FBD5032EDA043C78324EF318292EDF4479FD4350
 magnet:?xt=urn:btih:772AE17EB317FF2FD0E74A4F03D579A5A324D246
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Roberto Cacciapaglia - 3 альбома (2007-2010) [FLAC|Lossless]<New Age, Rel
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ Roberto Cacciapaglia - 3 альбома (2007-2010) [FLAC|Lossless]<New Age, Rel
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ Roberto Cacciapaglia - 3 альбома (2007-2010) [FLAC|Lossless]<New Age, Rel
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +454,8 @@ CD 1Жанр: Pop, DanceПродолжительность: 04:17:38
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ CD 1Жанр: Pop, DanceПродолжительность: 04:17:38
 ```bash
 magnet:?xt=urn:btih:C3510967D2E82E6EC9DC6CB4052151DA71155B99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ Windows 7 Ultimate SP1 х64 by Loginvovchyk с программами (Март 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ Marine Tower Defence / Ух-ты, бухты! (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:85B00E79796EF58D806218DE55E7A11B3C017A91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +558,8 @@ magnet:?xt=urn:btih:85B00E79796EF58D806218DE55E7A11B3C017A91
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +583,8 @@ magnet:?xt=urn:btih:85B00E79796EF58D806218DE55E7A11B3C017A91
 ```bash
 magnet:?xt=urn:btih:9D91FE7546FFCEE91FFEBBFE58A2176C37475823
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +611,8 @@ Microcat Land Rover содержит каталог деталей для все
 magnet:?xt=urn:btih:EC8971C353A4B087283716438BA30432D3052D0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ Enclave + Addition mod [Ru] (RePack/1.0.0.1/1.1) 2003 | x-7
 magnet:?xt=urn:btih:1F3B44A3988E60E36D6FA35F3697EC85BDDE4C3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:1F3B44A3988E60E36D6FA35F3697EC85BDDE4C3A
 ```bash
 magnet:?xt=urn:btih:C88F6E60F18FF84B40151CA36AA2D001EF1C6A6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +693,8 @@ magnet:?xt=urn:btih:C88F6E60F18FF84B40151CA36AA2D001EF1C6A6D
 ```bash
 magnet:?xt=urn:btih:46E1FE41412049EB9647347286628E73849EAC6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

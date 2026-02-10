@@ -19,6 +19,8 @@ The Binding of Isaac: Rebirth - полный перезапуск игры The B
 magnet:?xt=urn:btih:6B5E46DC16B05297AB5E37DFF2C5A5DB248828B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ One Finger Death Punch 2 (2019) [En] (2.0) License GOG
 ```bash
 magnet:?xt=urn:btih:C6AD4CD274E7A57EB0D92528BBD6B354731610C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Oh...Sir!! The Insult Simulator (2016) [En] (1.07) License GOG
 magnet:?xt=urn:btih:277AF718593E07032DCCA08929073C5CD29ECDC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Raging Titan - это игра, в которой вы должны защити
 ```bash
 magnet:?xt=urn:btih:2E0B95141EA6A827680C4F3CE02DF03ADE04CCAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Never Alone (2014) [Ru/Multi] (1.8/dlc) SteamRip Let'sPlay
 magnet:?xt=urn:btih:B58F7BBDA394209ACF656E35B46E6D2F88E38EDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Trine Anthology (2013-2015) [Ru/Multi] (2.12/2.01/1.11) Repack Seraph1
 ```bash
 magnet:?xt=urn:btih:39275ADC7E645A7EAEF46E5D0C75F50B972B8F5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Trine 3: The Artifacts of Power - продолжение красочного п
 magnet:?xt=urn:btih:CDA73B310B774087CC75A2A92EBD5F622071E80E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Fall - исследовательский экшен-платформер с
 ```bash
 magnet:?xt=urn:btih:23FDD1A2CF3C1B3781998137238408B9DFDCF32B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Inside (2016) [Ru/Multi] (10) License GOG
 magnet:?xt=urn:btih:248ED5F36C500952ED1A08FF392C9729DADDC163
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Obliteracers это инди-экшен-гонки, которые удосто�
 ```bash
 magnet:?xt=urn:btih:04B71FFBDA522BC964D83A334923CB2482613988
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Card City Nights - увлекательная карточная игра, в к
 magnet:?xt=urn:btih:95DB375C010BEA230A818AA4D0B28142DDC793E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Oddworld: New 'n' Tasty (2015) [Ru/Multi] (1.06/dlc) Repack R.G. Механик�
 ```bash
 magnet:?xt=urn:btih:BA239836BA1BE16CB764EEACF489B30466ED64EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Road Fist — игра, стиль которой определен класс�
 magnet:?xt=urn:btih:78B92211CE2A6232C23AC52C1916C1C63BAF99B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Street Fighter V (2016) [Ru/Multi] License RELOADED
 ```bash
 magnet:?xt=urn:btih:F511043FFD64A3C3C42E68E8C36C4E050D0885AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Guns, Gore & Cannoli (2015) [Ru/Multi] (1.2.5) Repack R.G. Механики
 magnet:?xt=urn:btih:23A042A77BD31E4904FCD3E40F28B3D18D39E5C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ A Boy and His Blob - ремейк оригинальной игры, котор�
 ```bash
 magnet:?xt=urn:btih:6B53BBAA7AD0D88B7A2B70D1465248F7F2608D2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Go Home Dinosaurs! [En] (Repack) 2013 | FANiSO
 magnet:?xt=urn:btih:E3D5BCADB5874CFECC91090F3C74B0DC320016BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Murder by Numbers (2020) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:D54DE0F1F8906B57604C0296971195D598B7203A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ Guns, Gore and Cannoli (2015) [Ru/Multi] (1.2.5) SteamRip Let'sРlay
 magnet:?xt=urn:btih:76BE49F0A58D1DB5AB044B4296F3B2ECC8110A1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ LEGO MARVEL's Avengers (2016) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:A210057ABD175C3281B14D2628DF048C7EA603EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Soulcalibur VI / Soulcalibur 6 (2018) [Ru/En] (02.05.00/dlc) Repack xatab [Delux
 magnet:?xt=urn:btih:2CBFE4256310ABCA9786E9055E003A82B596BDE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ RYAN BLACK (2017) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:C10CABB72DB0631F1D48AEB45411A9E1172DE449
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Tinertia - это экшен с элементами инди-игры, арка
 magnet:?xt=urn:btih:70F49430E7C06E8BEFA6C6B7A36C961CB035FAF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Brave: The Video Game / Храбрая сердцем (2012) [Ru/Multi] (1.0.0.3
 ```bash
 magnet:?xt=urn:btih:0405524A5EFCC59398E279D2FEC735CD2F48DD59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Trine 3: The Artifacts of Power (2015) [Ru/Multi] (1.11.3102) License GOG
 magnet:?xt=urn:btih:29C657BDCF038694A45E3572FF6170CEC9EC3404
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Alien Shooter 2: Захват (L) [Ru] 2011
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

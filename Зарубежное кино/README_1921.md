@@ -1,27 +1,3 @@
-###  Публикация: 864467   (919590) от 29.01.2015
-
-Убить гонца / Kill the Messenger (2014) HDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Репортер, собирая материал для статьи, попадает в нестандартную ситуацию: он находит секретные файлы ЦРУ, в которых четко прописано причастие госорганов к транспортировке кокаина в особо крупных размерах в Калифорнию. Несмотря на все неприятности, последующие за разоблачением, публикация выходит в одном из самых известных журналов США. Существование репортера становится (   Читать дальше...   )Производство: СШАЖанр: Триллер, Криминал, ДрамаРежиссер: Майкл КуэстаАктеры: Джереми Реннер, Роберт Патрик, Роберт Пралго, Хаджи Голайтли, Тед Хукаби, Мэри Элизабет Уинстэд, Лукас Хеджес, Розмари ДеУитт, Мэттью Линтц, Паркер ДугласПеревод: Двуголосый закадровый, любительский (R.A.I.M & GUGU)Субтитры: ОтсутствуютПродолжительность: 01:51:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AD78FB76C433A24C52F777610EC7AA36BD139AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 864086   (919594) от 29.01.2015
 
 Ограбление по-американски / American Heist (2014) WEB-DLRip [Line]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:4AD78FB76C433A24C52F777610EC7AA36BD139AA
 ```bash
 magnet:?xt=urn:btih:BAA32B3958A4FB0F6CB067F08D830E4D4814D07F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:BAA32B3958A4FB0F6CB067F08D830E4D4814D07F
 magnet:?xt=urn:btih:55D802832717ABA3A2510FB47A451BAD4CDE26B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:55D802832717ABA3A2510FB47A451BAD4CDE26B2
 ```bash
 magnet:?xt=urn:btih:2F1B268A74B51863BE08282F76B9E91035DC5D3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:2F1B268A74B51863BE08282F76B9E91035DC5D3D
 magnet:?xt=urn:btih:EBBBA53D576A50B221FB6D96B8F1A24E393F943B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:EBBBA53D576A50B221FB6D96B8F1A24E393F943B
 ```bash
 magnet:?xt=urn:btih:D008A2A59FE25C380A9C8B1E16510E4AABC79D70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +153,8 @@ magnet:?xt=urn:btih:D008A2A59FE25C380A9C8B1E16510E4AABC79D70
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +178,8 @@ magnet:?xt=urn:btih:D008A2A59FE25C380A9C8B1E16510E4AABC79D70
 ```bash
 magnet:?xt=urn:btih:A8330184940CED92FBB4A41670C6F9E5E73A79AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +205,8 @@ magnet:?xt=urn:btih:A8330184940CED92FBB4A41670C6F9E5E73A79AD
 magnet:?xt=urn:btih:59EABBE720B9C2BDBE8AEFFF2B24BE82C5B5529E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +230,8 @@ magnet:?xt=urn:btih:59EABBE720B9C2BDBE8AEFFF2B24BE82C5B5529E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +257,8 @@ magnet:?xt=urn:btih:59EABBE720B9C2BDBE8AEFFF2B24BE82C5B5529E
 magnet:?xt=urn:btih:4CCD26B9C6837A604972462DA3546F8EA751AE12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +282,8 @@ magnet:?xt=urn:btih:4CCD26B9C6837A604972462DA3546F8EA751AE12
 ```bash
 magnet:?xt=urn:btih:7F316630418734233F148BFA5062C89D219B3E22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +309,8 @@ magnet:?xt=urn:btih:7F316630418734233F148BFA5062C89D219B3E22
 magnet:?xt=urn:btih:D7DECA4EC10A350DDBC79EC07390C6D2A172A6D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +334,8 @@ magnet:?xt=urn:btih:D7DECA4EC10A350DDBC79EC07390C6D2A172A6D7
 ```bash
 magnet:?xt=urn:btih:58C83E01CFB1F948F6266B0B8CA7CC52F1563151
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +361,8 @@ magnet:?xt=urn:btih:58C83E01CFB1F948F6266B0B8CA7CC52F1563151
 magnet:?xt=urn:btih:FF7619CA2D0D6D990DA62088B6DB9D58B23DDE1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +386,8 @@ magnet:?xt=urn:btih:FF7619CA2D0D6D990DA62088B6DB9D58B23DDE1A
 ```bash
 magnet:?xt=urn:btih:7476620B409A306EC0361024533EE147035F2C62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +413,8 @@ magnet:?xt=urn:btih:7476620B409A306EC0361024533EE147035F2C62
 magnet:?xt=urn:btih:62150707C6DC31B4BDAE81211A8CE84BCFE604E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +438,8 @@ magnet:?xt=urn:btih:62150707C6DC31B4BDAE81211A8CE84BCFE604E1
 ```bash
 magnet:?xt=urn:btih:99360C2C8A823DB501B54B4D7197B2817B1B1C4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +465,8 @@ G. I. Joe. Бросок кобры: Снейк Айз / Snake Eyes: G.I. Joe Ori
 magnet:?xt=urn:btih:15295CD8E5A69F75C187AEA5BD419B44D90B26E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +490,8 @@ magnet:?xt=urn:btih:15295CD8E5A69F75C187AEA5BD419B44D90B26E5
 ```bash
 magnet:?xt=urn:btih:5CEF59E73B0807D22143743711CCE3B3B2A81A0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +517,8 @@ magnet:?xt=urn:btih:5CEF59E73B0807D22143743711CCE3B3B2A81A0E
 magnet:?xt=urn:btih:A6FCF695B0B393C710F0267B1FE0AC966B7B2630
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +542,8 @@ magnet:?xt=urn:btih:A6FCF695B0B393C710F0267B1FE0AC966B7B2630
 ```bash
 magnet:?xt=urn:btih:339E3A1D51DF311040F0D4062B37B99CD9432ADB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +569,8 @@ magnet:?xt=urn:btih:339E3A1D51DF311040F0D4062B37B99CD9432ADB
 magnet:?xt=urn:btih:F8A38BB09EAF58785A28531496FC6C0F2924AF6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +594,8 @@ magnet:?xt=urn:btih:F8A38BB09EAF58785A28531496FC6C0F2924AF6A
 ```bash
 magnet:?xt=urn:btih:F030DDE9627CCDEB538DAB2491E8C018A4B21173
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +621,8 @@ magnet:?xt=urn:btih:F030DDE9627CCDEB538DAB2491E8C018A4B21173
 magnet:?xt=urn:btih:3A92974D31215278331189EB25AF30CDB34ACEEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +646,34 @@ magnet:?xt=urn:btih:3A92974D31215278331189EB25AF30CDB34ACEEE
 ```bash
 magnet:?xt=urn:btih:8FF80B54A30716E4F868F272B51C664E99072DC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366845   (920045) от 13.03.2020
+
+Комната желаний / The Room (2019) BDRip [H.264/720p] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Влюбленная пара Кэйт и Мэтт переезжает в уединенный особняк. Занимаясь ремонтом старого дома, они обнаруживают замурованную комнату, которая, как выясняется, исполняет любые желания. Миллионы долларов, подлинник Ван Гога, самые роскошные наряды и украшения — что бы супруги ни захотели, моментально материализуется. Наигравшись вдоволь, Кэйт осмеливается пожелать себе (   Читать дальше...   )Производство: Франция, Люксембург, Бельгия / Les Films du Poisson, Versus ProductionЖанр: Триллер, Фантастика, ДрамаРежиссер: Кристиан ВолькманАктеры: Ольга Куриленко, Кевин Янссенс, Марианн Бург, Френсис Чепмен, Джон Фландерс, Эрик Жигу, Микаэль Кахья, Кэрол Уэйерс, Джошуа УилсонПеревод: ДублированныйСубтитры: Русские (Full), АнглийскиеПродолжительность: 01:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A0611F47A251D9EE058A1FA673B4696D38C982F
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

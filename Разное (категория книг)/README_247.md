@@ -1,3 +1,30 @@
+###  Публикация: 1257732   (343123) от 27.10.2018
+
+Мила Холоша, Мария Демяненко | Типология сотрудников ресторана. Как сформировать команду, которая работает на результат (2018) [PDF]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_343123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ключ к успеху ресторана – взаимопонимание и взаимодействие собственника, управляющего и шеф-повара. В книге выделены прикладные типы собственников и сотрудников в контексте практической работы в ресторанной отрасли. Рассмотрены их мотивы, наиболее вероятное поведение, точки воздействия и их совместимость с точки зрения результатов совместной работы.
+Выделены различные (   Читать дальше...   )Жанр: О бизнесе популярноФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA78ED168B396F0EC9F0180348DA9B69F6FC0594
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330194   (343564) от 09.10.2019
 
 Схиигумен Гавриил (Виноградов-Лакербая) (ред.-сост.) | Как стать смиренным (2018) [PDF, DJVU, FB2]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:CEA165A701D84116EA1A4EBCC081B073DC6621C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +71,8 @@ magnet:?xt=urn:btih:CEA165A701D84116EA1A4EBCC081B073DC6621C2
 ```bash
 magnet:?xt=urn:btih:5D7704BA38BC2CDF85AE3891AF5EC4DDFF807393
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +99,8 @@ magnet:?xt=urn:btih:5D7704BA38BC2CDF85AE3891AF5EC4DDFF807393
 magnet:?xt=urn:btih:597B284C8D7F238C13440471B434AF8A2093CC2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +125,8 @@ magnet:?xt=urn:btih:597B284C8D7F238C13440471B434AF8A2093CC2B
 magnet:?xt=urn:btih:21DE352341E330F8D14C8050B6DC0613A046CC23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +150,8 @@ magnet:?xt=urn:btih:21DE352341E330F8D14C8050B6DC0613A046CC23
 ```bash
 magnet:?xt=urn:btih:7F3B176C5EEC2E0ED13361D6E715D316DA81F6F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +179,8 @@ magnet:?xt=urn:btih:7F3B176C5EEC2E0ED13361D6E715D316DA81F6F4
 magnet:?xt=urn:btih:8B87CE745F8C22559D79ABDDBE678FF502D945D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +204,8 @@ magnet:?xt=urn:btih:8B87CE745F8C22559D79ABDDBE678FF502D945D2
 ```bash
 magnet:?xt=urn:btih:AE55974915A0381C3F909DF4395B27484B698B36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +232,8 @@ magnet:?xt=urn:btih:AE55974915A0381C3F909DF4395B27484B698B36
 magnet:?xt=urn:btih:4B55F8B68F6E09121F12C426D6526A3A1F6055F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +257,8 @@ magnet:?xt=urn:btih:4B55F8B68F6E09121F12C426D6526A3A1F6055F2
 ```bash
 magnet:?xt=urn:btih:38591367397670A9C4DAA7979AD0DA68852A1D68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +287,8 @@ magnet:?xt=urn:btih:38591367397670A9C4DAA7979AD0DA68852A1D68
 magnet:?xt=urn:btih:FF39C37EF1C3B9A2A5CFCCA5CF5B129B0F76CC63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +314,8 @@ magnet:?xt=urn:btih:FF39C37EF1C3B9A2A5CFCCA5CF5B129B0F76CC63
 magnet:?xt=urn:btih:E6B7BAD585ED77FB83F9889B232EE808D43FDBBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +339,8 @@ magnet:?xt=urn:btih:E6B7BAD585ED77FB83F9889B232EE808D43FDBBE
 ```bash
 magnet:?xt=urn:btih:B9940D44B3BD13BC04A017EAB0020866FFB10110
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +366,8 @@ magnet:?xt=urn:btih:B9940D44B3BD13BC04A017EAB0020866FFB10110
 magnet:?xt=urn:btih:0009E872D17B1B77EE794EB8FF3DC18B0AFDE647
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +391,8 @@ magnet:?xt=urn:btih:0009E872D17B1B77EE794EB8FF3DC18B0AFDE647
 ```bash
 magnet:?xt=urn:btih:F5F7F80AC535FC4FA248729C5E39BE4415F66DB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +418,8 @@ magnet:?xt=urn:btih:F5F7F80AC535FC4FA248729C5E39BE4415F66DB3
 magnet:?xt=urn:btih:D3829EF46BCF45994DA1484B52380054993DCCBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +443,8 @@ magnet:?xt=urn:btih:D3829EF46BCF45994DA1484B52380054993DCCBE
 ```bash
 magnet:?xt=urn:btih:42C71184BDD44C972230542BF76D206184904CC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +470,8 @@ magnet:?xt=urn:btih:42C71184BDD44C972230542BF76D206184904CC1
 magnet:?xt=urn:btih:A04FCEC1288DF5E0269AAF19A686D9790A3283F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +495,8 @@ magnet:?xt=urn:btih:A04FCEC1288DF5E0269AAF19A686D9790A3283F2
 ```bash
 magnet:?xt=urn:btih:9E67DA2188A756F8F7B160042D783CCD23922019
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +525,8 @@ magnet:?xt=urn:btih:9E67DA2188A756F8F7B160042D783CCD23922019
 magnet:?xt=urn:btih:214F96455E61AC4ED3DC70F4DADDCA48C43C7239
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +552,8 @@ magnet:?xt=urn:btih:214F96455E61AC4ED3DC70F4DADDCA48C43C7239
 ```bash
 magnet:?xt=urn:btih:C27AC60FF5D85692C33762FDD941CD4466B2D5D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +581,8 @@ magnet:?xt=urn:btih:C27AC60FF5D85692C33762FDD941CD4466B2D5D9
 magnet:?xt=urn:btih:DF9AFDEC8C1FE1F5827F98C1EB279D5DCEAE1444
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +609,8 @@ magnet:?xt=urn:btih:DF9AFDEC8C1FE1F5827F98C1EB279D5DCEAE1444
 magnet:?xt=urn:btih:D589F8E5579218518ED545A418C82D2626D3931A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +634,8 @@ magnet:?xt=urn:btih:D589F8E5579218518ED545A418C82D2626D3931A
 ```bash
 magnet:?xt=urn:btih:66BA0B89FA54A884EC56A165960A99174237F1FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +663,8 @@ magnet:?xt=urn:btih:66BA0B89FA54A884EC56A165960A99174237F1FE
 magnet:?xt=urn:btih:7F20D8888AC3BE81A714FDC26A136D61ADCBBC7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,29 +691,7 @@ magnet:?xt=urn:btih:7F20D8888AC3BE81A714FDC26A136D61ADCBBC7A
 magnet:?xt=urn:btih:608690DF45A0E1F63123A9D32CCE428E1316CB52
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330113   (345747) от 08.10.2019
-
-Диакон Илья Кокин | Страх возводит стены, любовь строит мосты (2018) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345747.jpg" />
-</div>
-
-
-###  Подробнее
-
-На протяжении многих лет автор читал лекции и проводил беседы со старшеклассниками и студентами. Оказалось, что из всего многообразия тем слушателей сильнее всего волновали две: тема страха (и всего, что с ним связано, — тревоги, смерти и т. п.) и тема любви (в первую очередь между мужчиной и женщиной). Отталкиваясь от этих двух тем, разбирая наши главные страхи (   Читать дальше...   )Жанр: ПравославиеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41F3A39EDB9B6CB40B15230F025CAD9B04413C41
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

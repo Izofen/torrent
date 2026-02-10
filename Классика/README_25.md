@@ -22,6 +22,8 @@ Ludovico Einaudi - Seven Days Walking (Day 5) (2019) Decca Records [FLAC|Lossles
 magnet:?xt=urn:btih:124DA2C7625FF6C35459E350C43E8FD6D1F1D16F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Sonata No. 7 in C major, K. 309
 magnet:?xt=urn:btih:E5A05AEC4AFDCCEA341525A18A3F25A0B233C033
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ VA - Classical Music for Focus:|Lossless|WEB-DL|tracks] <Classical>
 ```bash
 magnet:?xt=urn:btih:0D7F7978E6902D6835711634AF930D32862BD70F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -107,6 +113,8 @@ Johann Sebastian Bach - Audiophile Classic Collection (2000) tracks [Flac|Lossle
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -133,6 +141,8 @@ Preludes and Fugues: The Early Years
 ```bash
 magnet:?xt=urn:btih:65E26ECCDF8BDB76C3512DB2AC7BE1E611495E8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +177,8 @@ VA - Sony Classical - Great Performances [1903-1998] (1999) 4CD BoxSet[FLAC|Loss
 magnet:?xt=urn:btih:0F4634A64D29039445E32521FC7E70A3CD5BF901
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +205,8 @@ Michael J. Burkard - Solar Symphony (2017) [MP3|320 Kbps] <Classical>
 ```bash
 magnet:?xt=urn:btih:61D91BF07B0825EC02FC3F91759611360C662880
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +236,8 @@ Concerto Grosso No.1 In D Major
 magnet:?xt=urn:btih:5B0A349D43E6507D0F71773BC742183068C34410
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +261,8 @@ Frederic Chopin - The Nocturnes (Claudio Arrau) (1978) 2CD [FLAC|Lossless]<Class
 ```bash
 magnet:?xt=urn:btih:34AAF3FCA9977636EA57E2E28D3E06476384F920
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +291,8 @@ Piano Concerto No. 1 in B flat minor, Op. 23
 magnet:?xt=urn:btih:E823ADC823B8C4A9FC2E0B7CEEC3550D69212906
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +319,8 @@ Sonata for cello & piano, L. 135(   Читать дальше...   )Жанр: Cl
 ```bash
 magnet:?xt=urn:btih:0A29ED7DB68A9EC84EFC62DE64F748C2FF121C6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +355,8 @@ magnet:?xt=urn:btih:0A29ED7DB68A9EC84EFC62DE64F748C2FF121C6D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +383,8 @@ Symphony No. 3 in F major, Op. 90
 ```bash
 magnet:?xt=urn:btih:9E4D528FAC59539FEC2E29C84A5E2C8D3195F868
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +413,8 @@ The Legend of the Invisible City of Kitezh
 magnet:?xt=urn:btih:6D2EFA9DE58C91135193159917298C139B1993FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +441,8 @@ Paul Anthony Adams - Sonates au Clair De Lune (Moonlight Sonata) (2014) [MP3|320
 ```bash
 magnet:?xt=urn:btih:1731D6A9CD6F4EB1D25BF4F8E05D62BCBABA7ED6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +471,8 @@ Ludovico Einaudi - In a Time Lapse (2013) [FLAC|tracks + .cue]<Modern Classical>
 magnet:?xt=urn:btih:D87240AD2C3AACA6295975DF96CF65F15D96A4DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +499,8 @@ John Clerk of Penicuik (1676-1755)
 ```bash
 magnet:?xt=urn:btih:D97D346204C87536C82986EF60283A4B323193A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +529,8 @@ Lindsey Stirling - Lindsey Stirling (2013) Target Exclusive Deluxe Edition [MP3|
 magnet:?xt=urn:btih:E289B6D7F8889389B1EF2F0F04D2EFCBBE65631D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +558,8 @@ CD1
 magnet:?xt=urn:btih:3E97DA82021E1822493BDF60819DFBD76E58F209
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +586,8 @@ Symphony No. 4 in E minor, Op. 98
 ```bash
 magnet:?xt=urn:btih:395F4819EEB2834E4624A5932D7991CD9FAED37C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +618,8 @@ Eine kleine Nachtmusik, KV 525 - 17:54
 magnet:?xt=urn:btih:FB7B71AC11B9D9C6EEF9B380929840B03EA0D251
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +646,8 @@ Rondo Veneziano - Musica fantasia (1990) [FLAC|tracks+.cue]<Modern Classical>
 ```bash
 magnet:?xt=urn:btih:669ABCF52810F986045724D64EBF6CA24F8FDC7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +676,8 @@ Rondo Veneziano - Rondo Veneziano (1980) [FLAC|tracks+.cue]<Modern Classical>
 magnet:?xt=urn:btih:4D4A5974B5EEFB314B4EB5F891ABF53F9DB3E08F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +704,8 @@ Rondo Veneziano - Fantasia D'Autunno (1998) [FLAC|tracks+.cue]<Modern Classical>
 ```bash
 magnet:?xt=urn:btih:8F2AB1871C7FE49ED569A2E34096560205BC7FC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -686,6 +734,8 @@ Rondo Veneziano - Attimi di magia (1999) [FLAC|tracks+.cue]<Modern Classical>
 magnet:?xt=urn:btih:D731A0BBEE5F2B684B8991683F57994E2A85B8C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -712,6 +762,8 @@ Rondo Veneziano - Concerto per Mozart (1990) [FLAC|tracks+.cue]<Classical>
 ```bash
 magnet:?xt=urn:btih:8CFD6AE0B0159BDEE2B00436A8113E90EE3C28BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,31 @@
+###  Публикация: 1171358   (395694) от 05.10.2017
+
+Amatory - Огонь (2016) EP [FLAC|Lossless|tracks] <Alternative Metal, Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_395694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Монстр (feat. ATL) (3:15)
+02. Огонь (3:33)
+03. Молчание (3:40)Жанр: Alternative Metal, Nu-MetalПродолжительность: 00:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBD5203BF1AA2C1A8473D857C7AFAD74A993AE8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1170161   (399216) от 01.10.2017
 
 Кипелов - Звезды и Кресты (2017) [FLAC|Lossless|tracks] <Heavy Metal>
@@ -21,6 +49,8 @@
 ```bash
 magnet:?xt=urn:btih:B2D6D5FBAB7BC73670AC2B0AF1A13A5FD4AABA70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -47,6 +77,8 @@ ___________________________
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +107,8 @@ ___________________________
 magnet:?xt=urn:btih:CA5267B5768FC3D201F5749B957634C2AF16CFF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +135,8 @@ magnet:?xt=urn:btih:CA5267B5768FC3D201F5749B957634C2AF16CFF2
 ```bash
 magnet:?xt=urn:btih:DCEF83B1FBC9E040CB18F335FCABF21192EC3D30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -129,6 +165,8 @@ magnet:?xt=urn:btih:DCEF83B1FBC9E040CB18F335FCABF21192EC3D30
 magnet:?xt=urn:btih:FDBBD299DF6F88AF22A99AA3A829B435E5D4F1C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +193,8 @@ magnet:?xt=urn:btih:FDBBD299DF6F88AF22A99AA3A829B435E5D4F1C4
 ```bash
 magnet:?xt=urn:btih:ACCC429472235EFF80F844ED65E4A90FBD65FED8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -183,6 +223,8 @@ magnet:?xt=urn:btih:ACCC429472235EFF80F844ED65E4A90FBD65FED8
 magnet:?xt=urn:btih:C812D47FADA50A01F706EB1CB3364E4F19C79B21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -209,6 +251,8 @@ VA - Клинское Продвижение (2002) [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:841877F4C87F131057FCFFC01250BC88D90A33F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:841877F4C87F131057FCFFC01250BC88D90A33F5
 magnet:?xt=urn:btih:68D70A5C90C0964EA19654EF58507C62EC7D855D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:68D70A5C90C0964EA19654EF58507C62EC7D855D
 ```bash
 magnet:?xt=urn:btih:DED231881231BD7CE3AD430E8DC73CC422A28F76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +339,8 @@ magnet:?xt=urn:btih:DED231881231BD7CE3AD430E8DC73CC422A28F76
 magnet:?xt=urn:btih:4F3E46D6F365D30481FD07569515220E0D161427
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +368,8 @@ magnet:?xt=urn:btih:4F3E46D6F365D30481FD07569515220E0D161427
 magnet:?xt=urn:btih:CB4A246EEE7E565B4DE4B5D08D67B7E1CEF66493
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +396,8 @@ Louna - Начало нового круга (2020) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:716891FA85A3090374819EB9E03050B347ECC774
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +432,8 @@ Jointstereo - Refract The Fears (2012) [FLAC|Lossless]<Death Doom Metal / Atmosp
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +462,8 @@ Jointstereo - Refract The Fears (2012) [FLAC|Lossless]<Death Doom Metal / Atmosp
 magnet:?xt=urn:btih:6549E4C5279911CA5A37EF8DD9D2C4D240471EB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +490,8 @@ magnet:?xt=urn:btih:6549E4C5279911CA5A37EF8DD9D2C4D240471EB7
 ```bash
 magnet:?xt=urn:btih:E96E26B479799029AEE1CB65B3DE1ED95DAF91DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +526,8 @@ magnet:?xt=urn:btih:E96E26B479799029AEE1CB65B3DE1ED95DAF91DE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +554,8 @@ Cyanide Grenade - 2 CD: Quintessence of Death / Kind Of Virus (2017-2020) [FLAC|
 ```bash
 magnet:?xt=urn:btih:9F069EE49BFD2E81C4083B32E80AD8773B7AB810
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +590,8 @@ magnet:?xt=urn:btih:9F069EE49BFD2E81C4083B32E80AD8773B7AB810
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +624,8 @@ magnet:?xt=urn:btih:9F069EE49BFD2E81C4083B32E80AD8773B7AB810
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +660,8 @@ magnet:?xt=urn:btih:9F069EE49BFD2E81C4083B32E80AD8773B7AB810
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +688,8 @@ magnet:?xt=urn:btih:9F069EE49BFD2E81C4083B32E80AD8773B7AB810
 ```bash
 magnet:?xt=urn:btih:89E2DCCBC34ADA9CEB3346FFC18CF3480213368F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +718,8 @@ magnet:?xt=urn:btih:89E2DCCBC34ADA9CEB3346FFC18CF3480213368F
 magnet:?xt=urn:btih:634D1BFEE473933D760D6FAB1808CAD33CFE7A3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,6 +746,8 @@ BY CRY - BY CRY (2015) [FLAC|Lossless|tracks + .cue] <Folk, Rock>
 ```bash
 magnet:?xt=urn:btih:F9CF1C6B2D56943B339A787FF6DD035E0A35D129
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -700,38 +776,7 @@ magnet:?xt=urn:btih:F9CF1C6B2D56943B339A787FF6DD035E0A35D129
 magnet:?xt=urn:btih:54471AFA6220A2FFEB5438867D6D9B1B103771B4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 557182   (421450) от 07.10.2012
-
-Аквариум - Воздухоплавание В Компании Сфинксов (2012) [FLAC|Lossless] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_421450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дед Мороз Блюз (04:01)
-02. Бригадир (02:11)
-03. Под Мостом Как Чкалов (04:58)
-04. Генерал (03:22)
-05. Из Дельты Гнезда (03:52)
-06. Слова Растамана (06:15)
-07. ХХIIй Век (07:41)
-08. Та, Котрую Я Люблю (03:54)
-09. 4D (04:26)
-10. Новая Песня о Родине (03:02)(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:17
-
-## Скачать торент
-```bash
-нет
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

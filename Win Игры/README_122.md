@@ -19,6 +19,8 @@ World War Z - это напряженный командный шутер на �
 magnet:?xt=urn:btih:15B836C6D81CF16DA93626CE66AF35F32ADE941A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Alder's Blood - это мрачная и темная тактическая с�
 ```bash
 magnet:?xt=urn:btih:ADBAD9B72716254BD68AC7D69BFD73402FB0D982
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.0.0/dlc) Scene Rune [P
 magnet:?xt=urn:btih:3DABF5E74A8D398EFF54C4042B055DAD80CC4E4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Serious Sam 4 (2020) [Ru/Multi] (1.09/dlc) Repack Wanterlude [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:4BB3B463847349963B6FB3726E68A651333527E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ ArkCraft: The Rebirth of the World / ArkCraft: Возрождение мира (
 magnet:?xt=urn:btih:597ECBFB18CEF9770038EE203076F5EE90A75660
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ World War Z: Aftermath - кроссплатформенный зомби-шут�
 ```bash
 magnet:?xt=urn:btih:45794A2926F9597AEB6E2525A3DF09F3932E5253
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Disney Epic Mickey: Rebrushed оживляет магию мира Disney в к�
 magnet:?xt=urn:btih:4EA5E6EF2B855418528C62418A50AD0FB0996A37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Lords of the Fallen приглашает игроков в мрачный мир
 ```bash
 magnet:?xt=urn:btih:A3AB41DC374977A08FE3CA60F2935EADA7F82BB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Thing: Remastered (2024) [Multi] (1.0) Scene Skidrow
 magnet:?xt=urn:btih:BFC4C7E74F36007882AA738CA8EB14409DBE724A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ B-17 Flying Fortress : The Mighty 8th Redux (2024) [En] (1.0.15) License GOG [Ea
 ```bash
 magnet:?xt=urn:btih:133EF985F12DB2237CC34411785F98EB211D5097
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ inbento (2019) [Ru/Multi] (2.51) License GOG
 magnet:?xt=urn:btih:8F8966ADD524F703BE31244C29B279DBB37192E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Speedollama (2024) [Ru/Multi] (build 16154038) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:0F5CD001FA7CE007DB90643E743BB12B2B1756F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Railroads Online - это «песочница» в огромном откры�
 magnet:?xt=urn:btih:EEF086EAC42158088D82D640A03843561B3B993B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Dementium II HD (2013) [Ru/Multi] (1.266) Repack Other s
 ```bash
 magnet:?xt=urn:btih:8305EAF78625A8218452A22EF70D9F598EF87ED3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Golf Peaks – это не симулятор гольфа, а игра-голо
 magnet:?xt=urn:btih:A9D33F6C20873ECA85C0DE4A1E84A194D109B6B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Devil's Way (2024) [Ru/Multi] (build 16096646) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:A087D33B75CCF80840DE9296E875DE22087443D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ METAL SLUG - классический экшен-шутер, сохраняющ�
 magnet:?xt=urn:btih:0687CACC457D215D38A4C16A7E60A43F80F8247C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2013) [Ru/Multi] (
 ```bash
 magnet:?xt=urn:btih:AACBA7E3F7F86C74385A7472381472EF276D716C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ theHunter: Call of the Wild – наиболее реалистичный на �
 magnet:?xt=urn:btih:826AD87539077576A1F53CDE9B2A33A284BBF41E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Vasilisa and Baba Yaga / Василиса и Баба Яга (2024) [Ru/Multi] (
 ```bash
 magnet:?xt=urn:btih:FE06E1BD6C9EB23F020E65A60A97D093CF147C1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Lorn's Lure - это атмосферный сюжетный платформе�
 magnet:?xt=urn:btih:675FAE91E17C1A64E367676AF56F17270C77CC63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Vaporum: Lockdown - это приквел знаменитой игры с пр�
 ```bash
 magnet:?xt=urn:btih:773FE33782EECDBFDAEC86031DE25898690D5213
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Grand Theft Auto: The Trilogy (2021) [Ru/Multi] (1.112.48699928) Repack dixen18 
 magnet:?xt=urn:btih:1CB8456FAB2A4136B97B9B97578B7ADDA2EF8D32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.248.905/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:E5B1E556915D0BF6080B75E30F996C4309BC3D8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ HUMANKIND (2021) [Ru/Multi] (1.0.27.4539/dlc) Repack dixen18
 magnet:?xt=urn:btih:AF6714A9D6ABAE17518063A13C088313BC6FEFAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Medieval Dynasty (2020) [Ru/Multi] (2.2.0.5) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:C476C1F5DF8840155E5E0686D0D0925641B9E3E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

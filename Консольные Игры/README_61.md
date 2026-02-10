@@ -21,6 +21,8 @@ PlayStation All-Stars Battle Royale / Звезды PlayStation: Битва си�
 magnet:?xt=urn:btih:4C453DEE44C8439273B7DF01C68F1ABD9CD08F3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:4C453DEE44C8439273B7DF01C68F1ABD9CD08F3A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ Disney Princess: My Fairytale Adventure [Wii] [PAL] [Multi 6] (2012)
 magnet:?xt=urn:btih:A0B23499F39DBBF554043F6C9F172155BDC68832
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Corpse Party: Book of Shadows рассказывает о похождениях
 ```bash
 magnet:?xt=urn:btih:561630BB0D86C919555FC1BE22252A4BA4BFC2B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ PSP ISO Compressor 1.4 быстро работает, простая и от э�
 magnet:?xt=urn:btih:586019A3D2F2A084C9815A9B9322677C8BE22884
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Retro Game Challenge 2 (2009) [NDS] [JPN] [Unofficial] [En]
 ```bash
 magnet:?xt=urn:btih:DAF9C46E6FB8A67C224345504991E83E14C671CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ The Red Star основана на одноимённой серии комик�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ Saints Row 2 (2008) [PS3] [EUR] 2.20 [Cobra ODE / E3 ODE PRO ISO] [License] [Ru/
 magnet:?xt=urn:btih:6C27033694A43E99BB80C82B7A25707224E5F2D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Prison Break: The Conspiracy / Побег. Теория заговора (2010) 
 ```bash
 magnet:?xt=urn:btih:C9FCE62EEF368B6553DD50ED2F9CC5F4BCA8BDB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ Dragon Ball Xenoverse — это игра в жанре экшен, котора
 magnet:?xt=urn:btih:897840DA630A013C322C6165A22A4E6399B4A66B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ Spyro 3 : Year Of The Dragon [PS3] [Eng] (2012)
 magnet:?xt=urn:btih:5AC97D1AB33734CDE5982C24B3ED44B433883C3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:5AC97D1AB33734CDE5982C24B3ED44B433883C3D
 ```bash
 magnet:?xt=urn:btih:92D513F4057FA0ECE5538E45D09B548B3B73CBEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ Guitar Hero: Antology  (2006-2011) [Xbox360] [En] [Region FREE] Freeboot
 ```bash
 magnet:?xt=urn:btih:B1B49E4927A1E543AA1DC30BFFA473FA58C281BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ Blades of Time (2012) [PS3] [EUR] 3.73 [Cobra ODE / E3 ODE PRO ISO] [License] [R
 magnet:?xt=urn:btih:8EE434782DB072E2067D41F16BC8CB382D6867E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ TMNT Turtles In Time ReShelled [PS3] [Eng] (2009)
 ```bash
 magnet:?xt=urn:btih:9BDA51F8DAF248AF7AA5AC79381F2C73713DCF06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ Dark Souls II: Scholar Of The First Sin графически улучшенна�
 magnet:?xt=urn:btih:B0D2D7D38A063C4D9594C57DD041B9F599F5A680
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ Prince of Persia [XBOX 360] [RUSSOUND] [Region Free] [FreeBoot] (2008)
 ```bash
 magnet:?xt=urn:btih:34BE535DAF5B9AD6E376D883BCE148B39451A39B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +482,8 @@ Castlevania Lords of Shadow 2 история о возвращении Драк�
 magnet:?xt=urn:btih:A21DD4C67C47F7440C3D4023D94B460EF06916F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ Heavy Fire: Afghanistan - этот рельсовый шутер помещае�
 ```bash
 magnet:?xt=urn:btih:A4996C9D9A58A08D7D698492EB4BB2A90CDA3B81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ The Lord of the Rings: Conquest (2009) [Xbox360] [RegionFree] 8955 [FreeBoot] [L
 ```bash
 magnet:?xt=urn:btih:E0F8DE28DD05A7A084B2B4F1A712E20ACCC04078
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ Golden Axe: Beast Rider рассказывает о событиях, предш
 magnet:?xt=urn:btih:33BE6FC4ADCFBF582120B9844A039D6502A35AEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +589,8 @@ Cимулятор боулинга Brunswick Pro Bowling увлекателен 
 ```bash
 magnet:?xt=urn:btih:9187BC71C5C01D3C58AC92AA3C8D410C1C648C31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +619,8 @@ Tactics Ogre - одна из наиболее популярных страте�
 magnet:?xt=urn:btih:7F1C4DCA027E263E55EB7ECA1B037A78F26A6198
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +644,8 @@ Mass Effect - это научно-фантастическая ролевая и
 ```bash
 magnet:?xt=urn:btih:A401BEF4F3CCA4EA0C90AEE2191A0098225EF402
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +671,8 @@ Prince of Persia [XBOX 360] [ENG] [Region Free] [FreeBoot] (2008)
 ```bash
 magnet:?xt=urn:btih:B63242EAEE5BE0D8DF86C1F5317E735B8551C881
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -651,6 +701,8 @@ Hakuoki: Warriors of the Shinsengumi [Английский] (2013) [PSP]
 ```bash
 magnet:?xt=urn:btih:665FF229A216EB0B164791C09F013D6CC5B36CBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

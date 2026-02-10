@@ -21,6 +21,8 @@ AnyTrans, не в пример iTunes, прост и интуитивен. Ка�
 magnet:?xt=urn:btih:53A7EA831D7A61DA72911E1E186B378D1E6E5126
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Teorex PhotoStitcher - программа для автоматического 
 magnet:?xt=urn:btih:7ACD130B26705D6BE4404313CFC5A568976EF104
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 ```bash
 magnet:?xt=urn:btih:A768A915CB658039FA40BA973693ABE565DC4EC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ The Orb - The Visitor (unofficial release) (1994) [FLAC|Lossless|image + .cue] <
 magnet:?xt=urn:btih:4E2C0430E654E0E841BEF0EFA7343F7506F6D344
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Comedy Woman (2016.12.02) WEB-DL [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:BC4665A3B62AEA708DDA6E433E96E7099A9E3BB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ Replay Video Capture - это приложение, которое позвол�
 magnet:?xt=urn:btih:0984D6C2161464CE25B4F7C1C93254E1C4667E11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Q-Dir - бесплатный, отличный файловый менеджер
 ```bash
 magnet:?xt=urn:btih:146EB4769289954E70E17196B677A477C738A92E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ Koan - Condemned (2016) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Ambient>
 magnet:?xt=urn:btih:BB2E248C2AE495D56274E2206BE153698636B3E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 magnet:?xt=urn:btih:47ABBD549FFB1465DB095F23C022E754295E8310
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:47ABBD549FFB1465DB095F23C022E754295E8310
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ Grabatron - Широкомасштабная и увлекательная иг�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ Glary Utilities - функциональный набор системных т�
 magnet:?xt=urn:btih:10EDDBD90DCEEDD41332C84C236D86D3676553DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ PhoneRescue - полезное приложение для восстановл�
 magnet:?xt=urn:btih:943C3A83259BCE0B514A73B7CF40394D0516564F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ Mach Desktop HD 3 v3.0.5 [En]
 ```bash
 magnet:?xt=urn:btih:4F7BE1D411F7B7554E7D84A1B2A31FA9AB02DF36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ Tayasui Sketches Pro 6 [Multi/Ru]
 magnet:?xt=urn:btih:906D26D674662CA2F27398307584CE52BCD943B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ iMazing: отличная альтернатива iTunes
 ```bash
 magnet:?xt=urn:btih:54619D9E782A1CDA0A4858C4CA60DF9FC82F8908
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ Blank & Jones - Silent Piano (Songs For Sleeping By Marcus Loeber) (2016) [FLAC|
 magnet:?xt=urn:btih:4E69B9B306C27F4FC0E7BFDEC1D5D8384046F88D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ Max Richter - Morgan / Морган (Original Motion Picture Soundtrack) (2016) 
 magnet:?xt=urn:btih:20E5C4340D3EDCAF8D517A5669578BEBDB3D7A95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ Privacy Eraser Free 4.19.0 Build 2205 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BD4DC01DEB33664F31017F11B698E59ADF8CC95F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ magnet:?xt=urn:btih:BD4DC01DEB33664F31017F11B698E59ADF8CC95F
 magnet:?xt=urn:btih:C6CC45E3E7DB3A93B82F1593B404DA343E97BEFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +556,8 @@ magnet:?xt=urn:btih:C6CC45E3E7DB3A93B82F1593B404DA343E97BEFA
 ```bash
 magnet:?xt=urn:btih:585C8AD70C1B7B0671C593E4F340AEB9330D40F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +583,8 @@ magnet:?xt=urn:btih:585C8AD70C1B7B0671C593E4F340AEB9330D40F3
 magnet:?xt=urn:btih:1E9D5E80D0DF05E21A79F73A970295776B2FD69D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +608,8 @@ magnet:?xt=urn:btih:1E9D5E80D0DF05E21A79F73A970295776B2FD69D
 ```bash
 magnet:?xt=urn:btih:635F8DB1C3AD50427D14C6266D852637169592EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +635,8 @@ djay Pro обеспечивает полный инструментарий дл
 magnet:?xt=urn:btih:D9997C49ABD51CC8AF663C8508E46AA1990AC9AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ Color Folder Master 1.0.8 [Multi/Ru]
 magnet:?xt=urn:btih:10A964C37A3C23A9F65B0D58DB54A90A8D9D97F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ Debut Professional 6.51 [En]
 ```bash
 magnet:?xt=urn:btih:0F53493CAA629B1F842D62F9BCE1D330979B8C91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

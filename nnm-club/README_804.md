@@ -22,6 +22,8 @@ VA - 20s Soft Pop (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:0C5E99C7C7BC63725F4B7109C64053ADDCFFC843
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ STAYC - GPT (On the Spot) (2024) UHDTVRip [H.265/2160p]
 ```bash
 magnet:?xt=urn:btih:29AAA56B1FB10C709A54BC38AE3F85CBFF67EF82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:29AAA56B1FB10C709A54BC38AE3F85CBFF67EF82
 magnet:?xt=urn:btih:976057CEFAFF74ADEF1B47A07AF3CEA882937DFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Chains of Freedom (2025) [Ru/Multi] (1.0.1) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:37FF43F49E5C5E8B76E0FABB82C334394AD51523
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:37FF43F49E5C5E8B76E0FABB82C334394AD51523
 magnet:?xt=urn:btih:7B18C646EDCABB4696A297F89CB8F008B42B0326
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:9A944E683A4521C8DA50C03EDE2253D16EDD3EF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:9A944E683A4521C8DA50C03EDE2253D16EDD3EF6
 magnet:?xt=urn:btih:E9FA7CB970273DFA822652E642DB37C0C1A40BD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Oracle VM VirtualBox является многофункциональным и�
 ```bash
 magnet:?xt=urn:btih:151CF53A9BC8E9D92A95698DC77F4C78A21E8270
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Barotrauma - сайд-скроллер, позволяющий играть по
 magnet:?xt=urn:btih:DE6BFD459AA7608F0907976B5294927D39BA23D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:DE6BFD459AA7608F0907976B5294927D39BA23D3
 ```bash
 magnet:?xt=urn:btih:F94FE635462F10455ABF612A576F07A1924C37B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:F94FE635462F10455ABF612A576F07A1924C37B6
 magnet:?xt=urn:btih:E5049814432E6CF7B9504095B76C2F26A18846C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:E5049814432E6CF7B9504095B76C2F26A18846C6
 ```bash
 magnet:?xt=urn:btih:876FE44474E7B368EEFC0C746AC85A02546BCEB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:876FE44474E7B368EEFC0C746AC85A02546BCEB8
 magnet:?xt=urn:btih:F39CFB878AD34A6F899CEF76138552DF480A4C7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:F39CFB878AD34A6F899CEF76138552DF480A4C7B
 magnet:?xt=urn:btih:514BFA38E350EF02BA1643087A4110A150436A17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:514BFA38E350EF02BA1643087A4110A150436A17
 ```bash
 magnet:?xt=urn:btih:3F1E7E4B8E667F524E06F2AFFD024189832BBA73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:3F1E7E4B8E667F524E06F2AFFD024189832BBA73
 magnet:?xt=urn:btih:B5E55692FAB6B7542BDFCBF6A1370DC118587C71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:B5E55692FAB6B7542BDFCBF6A1370DC118587C71
 ```bash
 magnet:?xt=urn:btih:6CD6CA522E7F1B778FDAD32157CB859B202D884B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ Nikoderiko: The Magical World (2024) [Ru/Multi] (Build 18097949) Repack Let'sРl
 magnet:?xt=urn:btih:6D965BB282BF5D9DBA278503B782626750BDFD55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ AIMP 5.40 Build 2673 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:988415CE72F6E36BAEB04A5210D8F7F05CAB5786
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:988415CE72F6E36BAEB04A5210D8F7F05CAB5786
 magnet:?xt=urn:btih:569F7005F3AB78EBBEF96205CC6250F1FABD080D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ FinePrint - многофункциональный драйвер для при�
 ```bash
 magnet:?xt=urn:btih:6DAE1A1E14EBEDBF3424352FDC75E8D341630A48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Blender - бесплатный редактор трехмерной графи�
 magnet:?xt=urn:btih:50235FC106D04595CE126BB8FAFC66797367D2DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:50235FC106D04595CE126BB8FAFC66797367D2DD
 ```bash
 magnet:?xt=urn:btih:B437273122667289FB9620EB151CB629F16D176A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:B437273122667289FB9620EB151CB629F16D176A
 magnet:?xt=urn:btih:C9724175A752CB9BD6F3E9316E084C616428A120
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:C9724175A752CB9BD6F3E9316E084C616428A120
 magnet:?xt=urn:btih:EA3D7E3D3FC4A6E0BEC4CE4F0672EB640446E1BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:EA3D7E3D3FC4A6E0BEC4CE4F0672EB640446E1BB
 ```bash
 magnet:?xt=urn:btih:F9BB886734AC58AA7BEFD69827529D52B8B1E2F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

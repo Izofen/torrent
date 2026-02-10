@@ -19,6 +19,8 @@ Windows 10 Debloater – небольшая утилита для тонкой �
 magnet:?xt=urn:btih:1E3AAA3A97D5BB2FEC6E4E92FB9DC74795FD6419
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:438AD7DD03931352EB318ABCDD3C5FFFAB036084
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Microsoft Office 2013 – лучший пакет прикладных прог�
 magnet:?xt=urn:btih:24F0B94A65AFDDE4967A6576172ADF9AF582097F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:7A3EC9663C3C947C56175E8BF7CD0D3EF07B4A65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ PhotoRoom v4.2.4 Mod by KirillCXV [Ru/Multi]
 magnet:?xt=urn:btih:1127F33136E0387277F267F5FF9BE355D1A8EED0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ WinToUSB - позволяет устанавливать и запускать �
 ```bash
 magnet:?xt=urn:btih:73D91EDD32F1C0F651878A5196AEDC8B555BA6E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Reg Organizer® - это многофункциональная программ
 magnet:?xt=urn:btih:A30B1F42C05D171915B0FB4BC6E7A3C3A8405364
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Microsoft Edge – кроссплатформенный веб-браузер н
 ```bash
 magnet:?xt=urn:btih:7970DE0602CCE0EB1FED695C14D3BF903F611C00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ PingPlotter Pro – приложение, которое предоставля�
 magnet:?xt=urn:btih:60812A43FB5325DA067478E77A0E08A34F1B5450
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 magnet:?xt=urn:btih:DB2C1597AE9C101788723CDFD494A3CDD8F801E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ Samsung SSD Magician Tool - многофункциональная програ�
 ```bash
 magnet:?xt=urn:btih:A8156776C37CC4B84ACC00EDE84250D14A4C0478
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ DxO PureRAW 2.5.0 build 13 RePack by KpoJIuK [Multi]
 magnet:?xt=urn:btih:685BCBF098885E4CAE1563320FC536D4CF4F1292
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Total Commander 10.52 (14.02.2023) Portable by MiG [Ru/En]
 ```bash
 magnet:?xt=urn:btih:220424CD90ED7D61DC72321A96018308CAC6D756
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ uTorrent Pack 1.2.3.65 Repack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:E9F1A3143F70DB92874D61D54459DA86AC899F3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Opera 95.0.4635.46 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A62F8F9E5A5C1575F23060F2D2F0373E0EA8FFF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Windows Firewall Control - утилита, с помощью которой, в�
 magnet:?xt=urn:btih:93929EEE1BE813B5E7F914E06633FCDD128F7815
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ Lightroom объединяет фотографии в «коллекции» �
 ```bash
 magnet:?xt=urn:btih:9A242A8E1AA3FF15AB14660A0483CF282765EA43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ Office Tool Plus - функциональная программа для раб
 magnet:?xt=urn:btih:78E8D325A30DD9D21450389B71BAE076C5D3F0B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:78E8D325A30DD9D21450389B71BAE076C5D3F0B5
 ```bash
 magnet:?xt=urn:btih:DC3EE5C61BD29D09822D3AE9DF473A537E581847
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ Microsoft .Net Framework 14.02.23 RePack by xetrin [Multi/Ru]
 magnet:?xt=urn:btih:83241F847313A167B542BD29D1C8CCA03B277B87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ Fontexpert - полнофункциональная программа для п
 ```bash
 magnet:?xt=urn:btih:34D5B8C5C48CD437B24026531E3EE6C2E7E44EE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ StartAllBack - привычная для нас программа, котора
 magnet:?xt=urn:btih:593C26A459B48D145E00AD81BADF03A68B03C9EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ StartAllBack - привычная для нас программа, котора
 magnet:?xt=urn:btih:1F1CC830FE020049B0F1DBE3E609CA3100BC5B6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:C9F77CFFE0AE0744174FE8ECAE50E8340EA69FEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ Foxit PDF Editor Pro (ранее известный как Foxit PhantomPDF Busi
 magnet:?xt=urn:btih:C0ED9760F2817361A00D3B28ED9A545649013A53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ magnet:?xt=urn:btih:C0ED9760F2817361A00D3B28ED9A545649013A53
 ```bash
 magnet:?xt=urn:btih:5376530A639EA46A37F6FF1BF5CB2AAA0E23E4BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

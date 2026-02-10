@@ -1,3 +1,29 @@
+###  Публикация: 840953   (839761) от 05.04.2016
+
+Водный мир Хорватии / Aquatic Treasures of Croatia (2012) HDTVRip [H.264/720p] (1-4 серия из 4)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы отправимся в удивительное путешествие по самым красивым заповедникам и паркам Хорватии: национальный парк «Плитвицкие озёра», а также природные парки Ластово и Копачки Рит. Заповедники и парки Хорватии поражают, в первую очередь, буйством красок и оттенков, и разнообразием флоры и фауны. Мы посетим различные территории и увидим, как изменяется климат в зависимости (   Читать дальше...   )Телекомпания: HRTЖанр: Документальный, природа, флора, фаунаПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 4 x ~ 00:51:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71E4D373660A01D25F3A3C21DA12DE7E999C7502
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 644899   (839767) от 05.04.2016
 
 Авиационная группа высшего пилотажа "Русские витязи" 15 лет в небе (2006) DVD5
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:5B6265F89B1E34751CBF84D68C912AA7FEEE20A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:5B6265F89B1E34751CBF84D68C912AA7FEEE20A9
 magnet:?xt=urn:btih:A13884EEF13DCCE911EE98D861130D49E9DF2837
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:A13884EEF13DCCE911EE98D861130D49E9DF2837
 ```bash
 magnet:?xt=urn:btih:6735ADDF0AB1D47D1951BBC0310B9BA409313FBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:6735ADDF0AB1D47D1951BBC0310B9BA409313FBC
 magnet:?xt=urn:btih:C6264DD123DE109153F583772371B14D8F7B5502
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:C6264DD123DE109153F583772371B14D8F7B5502
 ```bash
 magnet:?xt=urn:btih:0D9E31185BFBC4758DB90CE8C151BA2B557DD254
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:0D9E31185BFBC4758DB90CE8C151BA2B557DD254
 magnet:?xt=urn:btih:F788BF43E77A949E32FC11439FBF2DEC345B3A9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:F788BF43E77A949E32FC11439FBF2DEC345B3A9A
 ```bash
 magnet:?xt=urn:btih:A539CEE1288812194544B34D98AA305C5351A21D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:A539CEE1288812194544B34D98AA305C5351A21D
 magnet:?xt=urn:btih:7A70502EF4203103515378E716E1AB3A787E16D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:7A70502EF4203103515378E716E1AB3A787E16D8
 ```bash
 magnet:?xt=urn:btih:BCC3D9ED1193599CF2268E3B0473B6DDC0600710
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:BCC3D9ED1193599CF2268E3B0473B6DDC0600710
 magnet:?xt=urn:btih:B6C0DD03A42A4DADCE80E535CC21E4DC7D0E2CAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:B6C0DD03A42A4DADCE80E535CC21E4DC7D0E2CAA
 ```bash
 magnet:?xt=urn:btih:9D3A8EE8760DFF32C726AA862E2196FAA619A8C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:9D3A8EE8760DFF32C726AA862E2196FAA619A8C7
 magnet:?xt=urn:btih:E17B370591CECCD6991015F57BDE0EB4D68CC5B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +356,8 @@ magnet:?xt=urn:btih:E17B370591CECCD6991015F57BDE0EB4D68CC5B9
 ```bash
 magnet:?xt=urn:btih:91C5A7F20D96C45D0918DC70A6EC991DC24EA358
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:91C5A7F20D96C45D0918DC70A6EC991DC24EA358
 magnet:?xt=urn:btih:D074F29F096966F6A8A06145E750D6473239CDF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +408,8 @@ magnet:?xt=urn:btih:D074F29F096966F6A8A06145E750D6473239CDF9
 ```bash
 magnet:?xt=urn:btih:78D4632BCB60BBA3C8393E2B0A7D03A7A9BC598F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:78D4632BCB60BBA3C8393E2B0A7D03A7A9BC598F
 magnet:?xt=urn:btih:73879DBB04046C99FAFBC4124EC4A0A8BB94A958
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +460,8 @@ magnet:?xt=urn:btih:73879DBB04046C99FAFBC4124EC4A0A8BB94A958
 ```bash
 magnet:?xt=urn:btih:174594350E472DCC1C4808E10F8FCF42CC64E1EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +487,8 @@ magnet:?xt=urn:btih:174594350E472DCC1C4808E10F8FCF42CC64E1EB
 magnet:?xt=urn:btih:2971D5C114E40F39F91025D9AA86D81742A55D7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +512,8 @@ magnet:?xt=urn:btih:2971D5C114E40F39F91025D9AA86D81742A55D7B
 ```bash
 magnet:?xt=urn:btih:B071B8917FB5456F1F01A5DDE01C4CF231B6505B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +539,8 @@ magnet:?xt=urn:btih:B071B8917FB5456F1F01A5DDE01C4CF231B6505B
 magnet:?xt=urn:btih:8C0CC4305BF03D43CA5B6E69013F9BC633AD0E6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +564,8 @@ magnet:?xt=urn:btih:8C0CC4305BF03D43CA5B6E69013F9BC633AD0E6A
 ```bash
 magnet:?xt=urn:btih:0D79DE1A839556485135848500F492008B503784
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +591,8 @@ Discovery. Махинаторы. Машина мечты / Wheeler Dealers: Drea
 magnet:?xt=urn:btih:408F8C4FDF255A7BDEC72C0A8E0362EFBBC6ACE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +616,8 @@ magnet:?xt=urn:btih:408F8C4FDF255A7BDEC72C0A8E0362EFBBC6ACE5
 ```bash
 magnet:?xt=urn:btih:727770F913E8A0C44C5A513A248640C4889888F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +643,8 @@ magnet:?xt=urn:btih:727770F913E8A0C44C5A513A248640C4889888F7
 magnet:?xt=urn:btih:E26172A3E8AB2E0CFD669846BF5C7DC32D7A122B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,29 +669,7 @@ magnet:?xt=urn:btih:E26172A3E8AB2E0CFD669846BF5C7DC32D7A122B
 magnet:?xt=urn:btih:F5DE18D24AD0A2C52A5AD0B8BC5A1F00648207AD
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500273   (841081) от 06.10.2021
-
-Древние небеса / Ancient Skies (2019) IPTVRip [H.264] (серии 1-3 из 3)
-
->>Документалистика и Телепередачи
->>Космос
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841081.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трудно поверить, что когда-то мы считали Землю плоской и были уверены в том, что Земля находится в центре всего и что Вселенная ограничивается нашей собственной галактикой. На протяжении тысячелетий мы объясняли небесные явления с помощью историй о богах и чудовищах. Но с изобретением телескопа мы начали открывать рациональную Вселенную. Благодаря науке астрономии (   Читать дальше...   )Производство: США / Impossible FactualЖанр: Документальный, космос, астрономияРежиссер: Adam LuriaПеревод: Двуголосый профессиональный (СВ-Дубль)Субтитры: отсутствуютПродолжительность: 3 x ~ 00:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6542D7BF5B59E5F0DCDB142DA33CE24D071A9919
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

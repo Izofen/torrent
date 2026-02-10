@@ -19,6 +19,8 @@ LibreOffice — мощный офисный пакет, полностью со�
 magnet:?xt=urn:btih:F9A0783613DD11E088F711A5AE441135806C063A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Auslogics Windows Slimmer предлагает быстрый и простой 
 ```bash
 magnet:?xt=urn:btih:9455D724D5733FB89B756DCEA69887C1405F6595
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Emsisoft Emergency Kit 2022.12.0.11730 Portable [Multi/Ru]
 magnet:?xt=urn:btih:55DD45997AE4A3AB0F0013986B2BAB27A4A08C43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Wireshark - бесплатный сниффер, предназначенный 
 magnet:?xt=urn:btih:E1AA1EE8D4457E600FE447305DD06511B589BA02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Radiant Photo - это программа для редактирования ф
 magnet:?xt=urn:btih:7CFE9622365FA516738809647943E1EF0D0871F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Macrorit Partition Expert Unlimited Edition – предоставляет мо�
 ```bash
 magnet:?xt=urn:btih:11EF40CD49B0E11FEBBD2B5FB080ACD4F37F65E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Art Text - красивое текстовое приложение под Mac O
 magnet:?xt=urn:btih:2935A46DB5F81931711E04E2D6A3466BFD24B712
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Photo Supreme — вспомогательная программа для вл�
 ```bash
 magnet:?xt=urn:btih:6CE076D48E3BC1EE655CC1E2BC5C946AAF5BA273
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Avast Free Antivirus - ультралегкая и современная защ
 magnet:?xt=urn:btih:65534B082948C30A294D9DC3CA35D28B5C5C61B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ CPU-Z способен показать различную информацию 
 ```bash
 magnet:?xt=urn:btih:7D510AF188420CD506F876183690257962B1C951
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ SanDisk SSD Dashboard - официальная программа от Western D
 magnet:?xt=urn:btih:4CC67EB4D598573F51DF9D30B9F2D7F2862F755C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:8911626F324480B4314049C5C7916C44C1D52E69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Adobe® Flash® Player - плагин для браузеров Internet Explore
 ```bash
 magnet:?xt=urn:btih:A4DA5DD8B077D95140E7223A6C92F3B6C20AA5C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ Live Home 3D, преемник Live Interior 3D, является мощным, 
 magnet:?xt=urn:btih:317E1CC4DD318324731DE6A47CCC3FF422A61CA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Sharpen AI - это первое программное обеспечение �
 ```bash
 magnet:?xt=urn:btih:1BB944E919587B262D664EEC37B952BADC63BCB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ GoodNotes 5 v5.7.52 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D00A8DA3F5B31EB511AE806AA5665B179A795D42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ VA - Psygressive Vol. 5 (2019) [MP3|320 Kbps] <Psy-Trance>
 magnet:?xt=urn:btih:26C07A75110E08929202C56DFFDD0740B5065381
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ UltimateDefrag - дефрагментатор и оптимизатор разм
 ```bash
 magnet:?xt=urn:btih:7B20285ADF864B9CE72E0686772BF2435BA064EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ VueScan - программа для работы со сканерами HP, Min
 magnet:?xt=urn:btih:3CA774A385A12378D0076B227F3AB943F15A2656
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ Ocenaudio — аудиоредактор, распространяемый ав�
 ```bash
 magnet:?xt=urn:btih:1E5052FF7BB653CF35A024A3DFA26FAF91C326F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ Capture One Pro один из самых мощных профессиональ
 magnet:?xt=urn:btih:0CD2BD0E74004A2B50F6BE42CDEDBCF27EA7B964
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ O&O DiskImage позволяет создавать резервные копи�
 ```bash
 magnet:?xt=urn:btih:1DCDF7C727C1AABADF9E2AA1067DE5B98159294D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ Mate Translate обладает невероятно полной базой д�
 magnet:?xt=urn:btih:DD651993320FA38AB499B5A61FFF5F55A3F8CFD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ Sumatra PDF — мощная, небольшая программа с прос�
 ```bash
 magnet:?xt=urn:btih:41925ADEEA9E0D88340F69BB79232DBE33780B52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +660,8 @@ VA - Psygressive Vol. 6 (2019) [MP3|320 Kbps] <Psy-Trance>
 magnet:?xt=urn:btih:2049ACDBE91DB0511C31972AD7A89A6126905A63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ Topaz DeNoise AI 2.3.6 RePack (& Portable) by TryRooM [En]
 ```bash
 magnet:?xt=urn:btih:38C4C73908025B71E106283BE6B6C79D0140841D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

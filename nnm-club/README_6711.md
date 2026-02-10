@@ -22,6 +22,8 @@ Black Stone Cherry - Smile, World (2023) EP [FLAC 24/48|WEB-DL|tracks] <Southern
 magnet:?xt=urn:btih:884187F5C3D84EA722B25D4A1B2E1FD5B4883118
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:884187F5C3D84EA722B25D4A1B2E1FD5B4883118
 ```bash
 magnet:?xt=urn:btih:1C0B4E1D5E7F0C9A0DDA63F4DB9C642781069A0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ Ana Popovic - Power (2023) Deluxe Edition [FLAC|Lossless|image + .cue] <Blues, S
 magnet:?xt=urn:btih:4050C1BF388603D8B395CFDE9EFD4FE0523B233D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:4050C1BF388603D8B395CFDE9EFD4FE0523B233D
 ```bash
 magnet:?xt=urn:btih:C5E0ADDD30FEB962054A76E92F880F81E9A6E43F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ HiBit Uninstaller - идеальное решение для удаления п
 magnet:?xt=urn:btih:818EA3D15E67307E8FB8167382340B23A19DC448
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ World Championship Boxing Manager 2 является продолжением в
 magnet:?xt=urn:btih:9333A2063620729E925EEE185EB560E1F7362C0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:9333A2063620729E925EEE185EB560E1F7362C0E
 ```bash
 magnet:?xt=urn:btih:29396940A2C7E975DB982337972A8CDA4C80956F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:29396940A2C7E975DB982337972A8CDA4C80956F
 magnet:?xt=urn:btih:FEB1F2D16FE68EA9C421E3A9E26D33D8EB53BD1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:FEB1F2D16FE68EA9C421E3A9E26D33D8EB53BD1E
 magnet:?xt=urn:btih:8295FCE91935DE7D03FBA43E7646F937E155686F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:8295FCE91935DE7D03FBA43E7646F937E155686F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ Teletype, Роман Горелик | Бандл от Науки Дизайна.
 magnet:?xt=urn:btih:086062DE458DBD4F90DBA15AA035157EA010459E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:086062DE458DBD4F90DBA15AA035157EA010459E
 ```bash
 magnet:?xt=urn:btih:152D595F894C05ECD989706B63C30A808FEA1F44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:152D595F894C05ECD989706B63C30A808FEA1F44
 magnet:?xt=urn:btih:1686FA6E0C9ECC6B7D504F6E3F59248DD98B9510
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:1686FA6E0C9ECC6B7D504F6E3F59248DD98B9510
 ```bash
 magnet:?xt=urn:btih:3A561B4F0B86AF563508B91E158CD14F66F3A79D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:3A561B4F0B86AF563508B91E158CD14F66F3A79D
 magnet:?xt=urn:btih:644167FA82865D8C481D883029507AD897C5D792
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:644167FA82865D8C481D883029507AD897C5D792
 ```bash
 magnet:?xt=urn:btih:58FC5A2038BEF4CB4DE7428D634548FE14062081
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +454,8 @@ Antipin-STUDIO, Антипин Виталий | Основа основ (про�
 magnet:?xt=urn:btih:CA07BA737F493BF7316385E834B941CD9BF23954
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:CA07BA737F493BF7316385E834B941CD9BF23954
 magnet:?xt=urn:btih:FFB78D87B2DBABFED7E2C3A5393CAB68A122A08C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:FFB78D87B2DBABFED7E2C3A5393CAB68A122A08C
 ```bash
 magnet:?xt=urn:btih:AF667A3EA74745F0EC72AA945AC0B7A8F85C831E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +535,8 @@ Soulsad - Doomed to Funerals (2022) Compilation, Black Hearts Records [FLAC|Loss
 magnet:?xt=urn:btih:A8F27922E2AD1CBE2A96607445803563ECDFD180
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ The Death Wheelers - Chaos And The Art Of Motorcycle Madness (2023) [FLAC|Lossle
 magnet:?xt=urn:btih:2989CA3CE8B820536255A6BFE8800F3325F7056B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ magnet:?xt=urn:btih:2989CA3CE8B820536255A6BFE8800F3325F7056B
 ```bash
 magnet:?xt=urn:btih:8C90AA99C3A37596B944226C2DF78B43334EBC4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ Coma Doof - Miasma (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal>
 magnet:?xt=urn:btih:493E02651F93091EDC31A9F9BC5F5A12E2E4E011
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:493E02651F93091EDC31A9F9BC5F5A12E2E4E011
 ```bash
 magnet:?xt=urn:btih:4BCABE9196134A7875DAA4590970919E93D55E51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +672,8 @@ magnet:?xt=urn:btih:4BCABE9196134A7875DAA4590970919E93D55E51
 magnet:?xt=urn:btih:C58C42EB26886754A64A90221CCC5B11EB2E92AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ magnet:?xt=urn:btih:C58C42EB26886754A64A90221CCC5B11EB2E92AB
 ```bash
 magnet:?xt=urn:btih:D7A0C065285863CC70B5A8CE7B7F6E76BD2A3435
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

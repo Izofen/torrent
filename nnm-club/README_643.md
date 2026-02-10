@@ -22,6 +22,8 @@ Charlie Slavik - A Nice Reminder (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 magnet:?xt=urn:btih:63C34F01D9DE73DF45395FA43DC3AE0F0F3D24EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Broke Oracle - Shackle and Weight (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:484E8D218735F8AB1C338D73FF3B6BD0A867471E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:484E8D218735F8AB1C338D73FF3B6BD0A867471E
 ```bash
 magnet:?xt=urn:btih:D6DF108E8073892DAC12523339864EAB1871E193
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:D6DF108E8073892DAC12523339864EAB1871E193
 magnet:?xt=urn:btih:96B6D933983A97D43D05E963DCB7269AC2909068
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:96B6D933983A97D43D05E963DCB7269AC2909068
 ```bash
 magnet:?xt=urn:btih:FC8190CC623CA71F89CA038EE25A66690FED1DE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ ARMORED CORE VI FIRES OF RUBICON (2023) [Ru/Multi] (1.09.1/dlc) Scene Tenoke [De
 magnet:?xt=urn:btih:EFB436741F26224B6CB5CCEA177F18B0E0D2F916
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:EFB436741F26224B6CB5CCEA177F18B0E0D2F916
 magnet:?xt=urn:btih:C58185D85BDF0C93BEC8B19AB2823544A525D874
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:C58185D85BDF0C93BEC8B19AB2823544A525D874
 ```bash
 magnet:?xt=urn:btih:01B1E8BA96B453F8180A0F8466340ACA17020B24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:01B1E8BA96B453F8180A0F8466340ACA17020B24
 magnet:?xt=urn:btih:F2DF58EDB332D7E9E2F8712B7C58712EBF791FE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:F2DF58EDB332D7E9E2F8712B7C58712EBF791FE5
 magnet:?xt=urn:btih:3E8DF2F304ACA15DA157FD0D22C1DA699DA384F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:3E8DF2F304ACA15DA157FD0D22C1DA699DA384F2
 ```bash
 magnet:?xt=urn:btih:1A966473996F1047B2D3FCF7A03D3507E1BDA62A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:1A966473996F1047B2D3FCF7A03D3507E1BDA62A
 magnet:?xt=urn:btih:8B133FD1143DDFFD0B9C9D79D7E00EB8B7324C06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:8B133FD1143DDFFD0B9C9D79D7E00EB8B7324C06
 ```bash
 magnet:?xt=urn:btih:792D69F6F91336F0F310954A085F9DF090E28D47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ Mazda возобновила продажи автомобилей в Росси
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.0/dlc) Repack FitGirl [Su
 ```bash
 magnet:?xt=urn:btih:D2A36B3613AE6AEF7E782887577B31726C60C6E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:D2A36B3613AE6AEF7E782887577B31726C60C6E4
 magnet:?xt=urn:btih:17D690D1A050671010F9B6068F07C2EAF404CC7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:17D690D1A050671010F9B6068F07C2EAF404CC7C
 ```bash
 magnet:?xt=urn:btih:3CD598CA3B7E575E2B25C48BB81F32801AC4B454
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:3CD598CA3B7E575E2B25C48BB81F32801AC4B454
 magnet:?xt=urn:btih:EED6C4988C1A5F907C393D4C79A91EC5EC6A422B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Blades of Fire (2025) [Ru/Multi] (1.0.0.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:00E3A85B6B4C832A708663491790DAAFD13396D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:00E3A85B6B4C832A708663491790DAAFD13396D0
 magnet:?xt=urn:btih:847A4F6D3E381E7F3334F9EEEF57C024FCC59A1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Gunsmith Simulator, как понятно из названия, являетс�
 ```bash
 magnet:?xt=urn:btih:32F273DB6F779F0F6D67BC11EB6E4BEA40CFDAF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:32F273DB6F779F0F6D67BC11EB6E4BEA40CFDAF9
 ```bash
 magnet:?xt=urn:btih:FCB586552C31C047B27D39BC5305C4E4AD513F5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ Big Shoes - King Size (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:064BCBA1AE0349B4ED1C2DAD3148008958265A4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +633,8 @@ Big A Sherrod - Torchbearer Of The Clarksdale Sound (2025) [FLAC 24/48|Lossless|
 ```bash
 magnet:?xt=urn:btih:85F0C8E5EBDECB7D02710E515F25B7E7BE4D078F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +663,8 @@ Ash Lambe & The 32-20's - Ash Lambe & the 32-20's (2025) [FLAC 24/48|Lossless|WE
 magnet:?xt=urn:btih:E9F9F3265E2DE9E7090E8C31AAD12DEC46D07E2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ Abrania - Back To Our Sleazy Roots (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:B73A6DF666ED2F7FF6AE7F6A770D17E70C1AD2AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

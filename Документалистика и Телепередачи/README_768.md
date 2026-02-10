@@ -1,3 +1,30 @@
+###  Публикация: 1613828   (1039090) от 20.02.2023
+
+На ком претыкаются люди? (2017) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Религии и культы (Док/TV)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое преткновение? Почему и на ком претыкаются люди? Насколько опасно иметь высокое положение, но быть «низким» человеком?
+ «Сыновья же Илия были люди негодные; они не знали Господа и долга священников в отношении к народу.  …И грех этих молодых людей был весьма велик пред Господом, ибо они отвращали от жертвоприношений Господу» (1Царств 2:12,17)Производство: Церковь "Дом Хлеба"Жанр: религия, проповедьЯзык озвучки: РусскийСубтитры: НетПродолжительность: 00:44:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11B3DAC925BC4C9A5EEEF34FA89E8AB5E21B762C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440164   (1039109) от 16.01.2021
 
 Майя. Рождение легенды / Maya, Behind The Myth (2014) WEB-DL [H.264/1080p] (серии 1-2 из 2)
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:33133283ED017D69C8EC599108EAD752F07A37B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:33133283ED017D69C8EC599108EAD752F07A37B9
 magnet:?xt=urn:btih:0110A2DB9D2DB765AF36F72F40A2C74258D17ECD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +97,8 @@ magnet:?xt=urn:btih:0110A2DB9D2DB765AF36F72F40A2C74258D17ECD
 ```bash
 magnet:?xt=urn:btih:8215BAAA5987D9CFF27839D19F6F45D828C74BE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +124,8 @@ magnet:?xt=urn:btih:8215BAAA5987D9CFF27839D19F6F45D828C74BE4
 magnet:?xt=urn:btih:B6184649141AB499AEFDC4E2997A33B3339B7FBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +149,8 @@ magnet:?xt=urn:btih:B6184649141AB499AEFDC4E2997A33B3339B7FBF
 ```bash
 magnet:?xt=urn:btih:BC128EE35743E80019B1499F68B3375566C648D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +176,8 @@ magnet:?xt=urn:btih:BC128EE35743E80019B1499F68B3375566C648D2
 magnet:?xt=urn:btih:A7229748BDCBBA014D8E609D7DF8EBC5E0119EA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +201,8 @@ magnet:?xt=urn:btih:A7229748BDCBBA014D8E609D7DF8EBC5E0119EA0
 ```bash
 magnet:?xt=urn:btih:7BC7149DC5C9B88AFAC57D4556994C7EE53320F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +228,8 @@ magnet:?xt=urn:btih:7BC7149DC5C9B88AFAC57D4556994C7EE53320F8
 magnet:?xt=urn:btih:95BD7338F6276C65E6B1CCB984D5CEE2F05396A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +253,8 @@ magnet:?xt=urn:btih:95BD7338F6276C65E6B1CCB984D5CEE2F05396A1
 ```bash
 magnet:?xt=urn:btih:8E8B703B96FA0238D8122EA0D85C1183766936EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +280,8 @@ magnet:?xt=urn:btih:8E8B703B96FA0238D8122EA0D85C1183766936EE
 magnet:?xt=urn:btih:14F5F316D8711254C02D06B4FDCA01BDF733164E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +305,8 @@ magnet:?xt=urn:btih:14F5F316D8711254C02D06B4FDCA01BDF733164E
 ```bash
 magnet:?xt=urn:btih:3CF9BE1D79E36535E4E54A39400F3722C9DC60A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +332,8 @@ magnet:?xt=urn:btih:3CF9BE1D79E36535E4E54A39400F3722C9DC60A4
 magnet:?xt=urn:btih:C15BF480FC01159E52309B74085AA8E076C29559
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +357,8 @@ magnet:?xt=urn:btih:C15BF480FC01159E52309B74085AA8E076C29559
 ```bash
 magnet:?xt=urn:btih:1C893AA25BCA84657109C8C22AF1F7BAFCD463C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +384,8 @@ magnet:?xt=urn:btih:1C893AA25BCA84657109C8C22AF1F7BAFCD463C6
 magnet:?xt=urn:btih:6576C9BF21A588127D0D9FFCB326D9CBBF35D622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +409,8 @@ magnet:?xt=urn:btih:6576C9BF21A588127D0D9FFCB326D9CBBF35D622
 ```bash
 magnet:?xt=urn:btih:9D0D4BAF0ECA40925195E77967547DEC85B9335A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +436,8 @@ magnet:?xt=urn:btih:9D0D4BAF0ECA40925195E77967547DEC85B9335A
 magnet:?xt=urn:btih:B270F34F6C35A760371005332C27BAD43810E9F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +461,8 @@ magnet:?xt=urn:btih:B270F34F6C35A760371005332C27BAD43810E9F2
 ```bash
 magnet:?xt=urn:btih:4FAFAA7BA34841187EABE64985FDAFC01F3DA3BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +488,8 @@ magnet:?xt=urn:btih:4FAFAA7BA34841187EABE64985FDAFC01F3DA3BF
 magnet:?xt=urn:btih:477786F2DC0C979FC5CDF27E0E89E1E67E0F506A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +513,8 @@ magnet:?xt=urn:btih:477786F2DC0C979FC5CDF27E0E89E1E67E0F506A
 ```bash
 magnet:?xt=urn:btih:EA0A8C0F2B34DDBF982D0452C0B076FE90403105
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +541,8 @@ magnet:?xt=urn:btih:EA0A8C0F2B34DDBF982D0452C0B076FE90403105
 magnet:?xt=urn:btih:F3A8FD412AD713BE422CF139AE2F82C5A4D15E51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +566,8 @@ magnet:?xt=urn:btih:F3A8FD412AD713BE422CF139AE2F82C5A4D15E51
 ```bash
 magnet:?xt=urn:btih:B8A4A0E843A2B9612E506BFBAB50450BC260CAE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +593,8 @@ magnet:?xt=urn:btih:B8A4A0E843A2B9612E506BFBAB50450BC260CAE9
 magnet:?xt=urn:btih:06B8D21B275288762A78F34AA4F938BDF47C07BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +618,8 @@ magnet:?xt=urn:btih:06B8D21B275288762A78F34AA4F938BDF47C07BE
 ```bash
 magnet:?xt=urn:btih:A7C8B724809F85BA3B4F44CCB27BDA67C8FCA5E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +645,8 @@ magnet:?xt=urn:btih:A7C8B724809F85BA3B4F44CCB27BDA67C8FCA5E3
 magnet:?xt=urn:btih:FF1266B9877403D0B331158F22D264C0B7681B2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,29 +671,7 @@ magnet:?xt=urn:btih:FF1266B9877403D0B331158F22D264C0B7681B2F
 magnet:?xt=urn:btih:292B400D5BD55576EC4230CB73C9B9FD187C1DD4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613647   (1039314) от 19.02.2023
-
-Конфетка (2023) WEBRip [H.264/1080p] (сезон 1, выпуск 4)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шоу «Конфетка» соберёт непрофессиональных музыкантов и поможет их пока ещё не признанным шедеврам по-настоящему зазвучать. Новое музыкальное сопровождение, профессиональная запись и звёздные исполнители превратят любую песню  в настоящую «конфетку». Участниками программы станут музыканты-любители, которые мечтают о большой сцене, но пока известны только в узких интернет-кругах. (   Читать дальше...   )Производство: Россия | Вайт МедиаЖанр: ТВ-шоу, юмор, музыкаРежиссер: Анатолий Шпульников, Кристина ФедотоваЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:18:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E120E9FD0FDBF129916357E7AB22C1BB887245ED
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

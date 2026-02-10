@@ -19,6 +19,8 @@ Coolmuster GIF Animator — удобная программа для созда�
 magnet:?xt=urn:btih:34C017240F466245613D3745A80DFAB37CB19743
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:7DA88000CA987AA340B137CA8B7BC0C1F3F841A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ The Bourbon Street Players - A Jazzy Christmas in New Orleans (1993) [FLAC|Lossl
 magnet:?xt=urn:btih:EF2D72146472C717C4BE2C434F6DC7FB1728E108
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:EF2D72146472C717C4BE2C434F6DC7FB1728E108
 magnet:?xt=urn:btih:399479C43B2F1B83AB03CAC17563F64D13EADAD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:399479C43B2F1B83AB03CAC17563F64D13EADAD0
 ```bash
 magnet:?xt=urn:btih:6FBD070CCD5FA14963BC65B43BD64EF7C2F775BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:6FBD070CCD5FA14963BC65B43BD64EF7C2F775BF
 magnet:?xt=urn:btih:2205707B1F166FFECAEDB3C99A841715228FCDE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:2205707B1F166FFECAEDB3C99A841715228FCDE4
 magnet:?xt=urn:btih:10051344E90C7C2286E9388F36382040E1E6A365
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:10051344E90C7C2286E9388F36382040E1E6A365
 ```bash
 magnet:?xt=urn:btih:7668D7A6CECE6CEA0EBD918FF2664CA6BB32E8AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ Imagine Dragons, Thomas Newman - Passengers / Пассажиры (Single) + (Ori
 magnet:?xt=urn:btih:FE0550B544E1D6FC68C7C583F08CDFF9BF55CCB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:FE0550B544E1D6FC68C7C583F08CDFF9BF55CCB0
 magnet:?xt=urn:btih:912C43C088CC9B0F8C7A3E42B22EF2823374BADA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:912C43C088CC9B0F8C7A3E42B22EF2823374BADA
 ```bash
 magnet:?xt=urn:btih:FBE4057EB06F2269BCEC74BBCA85FD35D2CBB411
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ VA - Space Cafe, Vol. II (Finest Chillout & Lounge Tracks) (2017) [AAC|~309 Kbps
 magnet:?xt=urn:btih:EA440E0DE36A9E1CA58D5EB1829836846FC33A18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:EA440E0DE36A9E1CA58D5EB1829836846FC33A18
 ```bash
 magnet:?xt=urn:btih:87D6E75CA1312641E82B3476EE34DF79D5ACC4FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:87D6E75CA1312641E82B3476EE34DF79D5ACC4FA
 magnet:?xt=urn:btih:62BCFB06E10CE3AB6C3CFF19DF0D38F655B1074E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ DaVinci Resolve — единственное в мире решение для �
 ```bash
 magnet:?xt=urn:btih:0BD5AADAFBB4B447A268065E66A6423DA7628DA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:0BD5AADAFBB4B447A268065E66A6423DA7628DA8
 magnet:?xt=urn:btih:F0410E1BA24DB16146DBB08ABED2992779555D91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ Captain Mustache - 2 Albums (2023, 2025) [FLAC|Web-DL|tracks] <Indie Dance, Disc
 ```bash
 magnet:?xt=urn:btih:13EA58A21629130D47A0C0DDEFAFB82184A88BA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ VA - RAM Drum & Bass Annual 2022 (2021) [AAC|~325 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:593F804FA0DCB3A324596BDA441CBB721C4053F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:593F804FA0DCB3A324596BDA441CBB721C4053F0
 ```bash
 magnet:?xt=urn:btih:E7AB3CDA303FFAE5BA770FA74777563168A24B39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:E7AB3CDA303FFAE5BA770FA74777563168A24B39
 magnet:?xt=urn:btih:2A9D83CB59F7737EFAA2CCA9EC8592328C12BAEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ Microsoft .Net Framework 14.11.23 RePack by xetrin [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A9C04DA528F9121D6D456FBEAA3685687BA8355B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:A9C04DA528F9121D6D456FBEAA3685687BA8355B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ Jeff Liberman - Celebrate The Day (2020) [MP3|320 Kbps] <Blues Rock>
 magnet:?xt=urn:btih:16C57EED348BF2FE1BE80D6EE1BF28A0B6008A40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +641,8 @@ magnet:?xt=urn:btih:16C57EED348BF2FE1BE80D6EE1BF28A0B6008A40
 magnet:?xt=urn:btih:AC15206EC33665201F660DE5991481C8CB5E9216
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +667,8 @@ magnet:?xt=urn:btih:AC15206EC33665201F660DE5991481C8CB5E9216
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +696,8 @@ Captain Mustache - 2 Albums (2023, 2025) [MP3|320 Kbps] <Indie Dance, Disco, Hou
 ```bash
 magnet:?xt=urn:btih:425D3AE50F9FA59C1B1C304BF68F9262201E565D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Neela — это шрифт с засечками в стиле модерн, р
 magnet:?xt=urn:btih:3F70F71975080945A14DF6F75AF9E3DE776DF528
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Spirala — это шрифт, который, с одной стороны, о�
 ```bash
 magnet:?xt=urn:btih:CE93F232B94589E1414F2EFF3E7B65AAB5C23A7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Crematory - Act Seven (1999) Reissue, 2025, Roar [FLAC 24/44.1|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:C1FEAE3961FA1D19E6ACD08129A7984472D36E89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:C1FEAE3961FA1D19E6ACD08129A7984472D36E89
 ```bash
 magnet:?xt=urn:btih:EB6660AD0A61334A6C32919ACEC220A7A310E6D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ The Judas Kiss - The Mirror Crack'd (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:E0A3167804E8FF136C2CC51EAB1B4415F7942718
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:E0A3167804E8FF136C2CC51EAB1B4415F7942718
 ```bash
 magnet:?xt=urn:btih:94C450923947DFBA130759279E8FC289EC0DF5CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:94C450923947DFBA130759279E8FC289EC0DF5CC
 magnet:?xt=urn:btih:A4043DB7AB9134CCA6F17B238D957027EB4389E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ magnet:?xt=urn:btih:A4043DB7AB9134CCA6F17B238D957027EB4389E3
 magnet:?xt=urn:btih:6A1D0640661A106DD621955F5235B1C87DE3D979
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ magnet:?xt=urn:btih:6A1D0640661A106DD621955F5235B1C87DE3D979
 ```bash
 magnet:?xt=urn:btih:CAFD50CCA009ABCC0B65DC3D1885F5D5501DC3C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +274,8 @@ Maruja - Pain to Power (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Punk, 
 magnet:?xt=urn:btih:4523622D7A06AF005D9D216F73F83F0EE206A051
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +302,8 @@ Crematory - Awake (1997) Reissue, 2025, Roar [FLAC 24/44.1|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:4AED09563B54B7784999394038F742423EDAE6A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +332,8 @@ magnet:?xt=urn:btih:4AED09563B54B7784999394038F742423EDAE6A5
 magnet:?xt=urn:btih:5E932C3D3AEDD9392781FE9B4EFF849B0CBB87EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +360,8 @@ magnet:?xt=urn:btih:5E932C3D3AEDD9392781FE9B4EFF849B0CBB87EC
 ```bash
 magnet:?xt=urn:btih:07710DF21D201E160BDA34BBFDB782B2B864B417
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +390,8 @@ VA - Ori Uplift - Uplifting Only Episode 657 (2025) [MP3|320 Kbps] <Trance, Upli
 magnet:?xt=urn:btih:A639B7306B1985640210DCA03DEF69C813D27059
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +417,8 @@ Hypermass - метал-группа из Норвегии, образована 
 ```bash
 magnet:?xt=urn:btih:329A08C375C03CEF7AA5D5BDB9528FC389639EC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +447,8 @@ Verses GT - Verses GT (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Trip Hop, Danc
 magnet:?xt=urn:btih:1F4B80B2ED6283F2B6B63EA687ED32D1FB6268A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +476,8 @@ magnet:?xt=urn:btih:1F4B80B2ED6283F2B6B63EA687ED32D1FB6268A6
 magnet:?xt=urn:btih:89FFF1B2A4D88812DACDBC74B96E1D5069E760C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +501,8 @@ Myth Finders (2025) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:1A596333322169B2D4746F3F7994CE43076AAC85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +529,8 @@ magnet:?xt=urn:btih:1A596333322169B2D4746F3F7994CE43076AAC85
 magnet:?xt=urn:btih:287273CCA028B02C1C939C66CA4C69F52218F9FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +554,8 @@ Ui Kits - UI8 - NutriMart - Grocery Shopping App UI Kit [FIG, XD, SKETCH]
 ```bash
 magnet:?xt=urn:btih:B2413F11943F0F0E71FEAA09F941A06884163CA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +582,8 @@ magnet:?xt=urn:btih:B2413F11943F0F0E71FEAA09F941A06884163CA7
 magnet:?xt=urn:btih:AAEBB7B33E94E07F8C839A378B90062468F66930
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +608,8 @@ HiPER Calc Pro v11.2.4 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:A4E19196F2517D8436AC3676D3ED7F0990CCAA3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +633,8 @@ magnet:?xt=urn:btih:A4E19196F2517D8436AC3676D3ED7F0990CCAA3D
 ```bash
 magnet:?xt=urn:btih:8A5B1DB1D93789AB443451FA8B9E68E17BF3909D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +663,8 @@ David Guetta - Live @ Galactic Circus, [UNVRS] Ibiza, Spain (2025-08-15) [MP3|32
 magnet:?xt=urn:btih:FC2C0AF1EA7DB817621749B5BFF59DB168A7BDDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +688,8 @@ magnet:?xt=urn:btih:FC2C0AF1EA7DB817621749B5BFF59DB168A7BDDB
 ```bash
 magnet:?xt=urn:btih:EC62D85111E9451121F860499A7D742B67144AFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +717,8 @@ magnet:?xt=urn:btih:EC62D85111E9451121F860499A7D742B67144AFB
 ```bash
 magnet:?xt=urn:btih:3259F562A2E68913DA73C482DFB22BE271458476
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

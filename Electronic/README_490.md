@@ -22,6 +22,8 @@ MRUKS - Last Round (2020) [FLAC|Lossless|WEB-DL|tracks] <Funky, Retrowave>
 magnet:?xt=urn:btih:F1E485EDEDE0757D6617EF7E7F3921A2312E7445
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Supreme Beings of Leisure - 3 albums (2000-2008) [MP3|318-320 кб/с] <Trip-Hop
 ```bash
 magnet:?xt=urn:btih:97DDC9880F45150E4549A31A54B9AF53CF57849C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Jaffa - 2 albums (2000, 2011) [MP3|320 кб/с] <Electronic, Ambient, Jazz>
 magnet:?xt=urn:btih:EDD4C922288B69F51B5F26BFDE85A8FC9C079262
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Viper Presents: Drum & Bass Annual 2016 (2016) [MP3|320 кб/с] <Drum & Ba
 ```bash
 magnet:?xt=urn:btih:B4B188D4F0ACA2422919C9D66574920157F6A5E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Deep Insane Sensation Vol 1 (2016) [MP3|320 кб/с] <Deep House, Club Hous
 magnet:?xt=urn:btih:D4DD738E14EBE7AEAAEC8F1CEF06AB757A82DD42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Ed Carlsen - Morning Hour (2019) Moderna Records [FLAC|Lossless|WEB-24Bit|tracks
 ```bash
 magnet:?xt=urn:btih:36549A0144731C458A2AD5888C5F3F142DE5E213
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Pet Shop Boys - Story / 25 Years Of Hits (2009) [FLAC|Lossless|tracks + .cue] <S
 magnet:?xt=urn:btih:9437CE6342DFDA468709FAC69248D7DFC2568686
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Gunter - Pleasureman (2004) 2005 Танцевальный Рай [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:2FDDAA2312DB8517095A7E31FCC09BD2786E11EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Acoustic Covers Album (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instru
 magnet:?xt=urn:btih:1D43D0B4A230CC5D309916BFE60905A866EF3A84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Jazzra - Soulounge (2009) [MP3|320 кб/с] <Lo-Fi, Nu-Jazz>
 ```bash
 magnet:?xt=urn:btih:8B2C60EA1D6A1FDDF6C859110813C62792F04826
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ eilean rec. - Label-Pack 100 Releases (2014-2019) [FLAC|Lossless|tracks+.cue, tr
 magnet:?xt=urn:btih:02636784F71EB5BEB7908F646CEB41ADA88CEEB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Bob Sinclar - Born In 69 (2009) [FLAC|Lossless|tracks + .cue] <Hip-House, Euro H
 ```bash
 magnet:?xt=urn:btih:EB7664996A78233CBB18295E5CB98C0983FAF61E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Get up with Best Chillout Music (2015) [MP3|320 кб/с] <Downtempo, Chillo
 magnet:?xt=urn:btih:F5E503373F96D0F2DC53907120B7C9B71CB2F36B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +399,8 @@ The New Division - Hidden Memories (2020) [FLAC|Lossless|WEB-DL|tracks] <Synth, 
 magnet:?xt=urn:btih:EF6DF317EDD125DD1907F5389AC67C9B425DE686
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +427,8 @@ Beat Pharmacy - Wikkid Times + Versions & Remixes (2008-2009) Deep Space Media [
 ```bash
 magnet:?xt=urn:btih:D0F97B16A23B969D7F03D27CB5A00FA143A02316
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +463,8 @@ VA - Erotic Stories: Suite 01 (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillo
 magnet:?xt=urn:btih:584AF43AA9236BAFED2BF7F68C14310CB28CBA7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +498,8 @@ VA - Jet Set Love Vol.1 (2013) [MP3|320 кб/с]<Deep House>
 magnet:?xt=urn:btih:1B53BE72FE404CC1080AFF149D019D7703880A14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +531,8 @@ KCentric - Almost Live At Brassmataz (2013) [MP3|320 кб/с]<Downtempo, Lounge,
 magnet:?xt=urn:btih:F13DCC2B7F4D6E0CD9778031CF553694936F8DD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +559,8 @@ Soulstice - 2 albums (2001-2011) [MP3|320 кб/с] <Trip-Hop, Chillout, Downtemp
 ```bash
 magnet:?xt=urn:btih:C06554CD8E47192D410A76A72903B662E7A88DF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +589,8 @@ Workout Electronica - Workout Music 2020 (2019) [MP3|320 Kbps] <Techno>
 magnet:?xt=urn:btih:6F105FD41418D7102BD9C1BBF6098F73DD5D6144
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +618,8 @@ VA - Workout All Music (Electro House Music Body Groove) (2020) [MP3|320 Kbps] <
 magnet:?xt=urn:btih:8128A762922F50F56D70E1D247FCB7A8DB25A8FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +643,8 @@ Neelix - Alone After All (feat. Volk & Caroline Harrison) (2015) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:5C948560A65BE9864D9180ED4E2681FBBFC894EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +673,8 @@ VA - Ibiza Lounge Cafe (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:31F0F8EE7B1F54235756CE048FFAFB433CC15CE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +701,8 @@ VA - La Nuit (Delicious Chill House Lounge Vol 1) (2016) [MP3|320 кб/с] <Deep
 ```bash
 magnet:?xt=urn:btih:F9017DF815D34920687992CB11653D1B03441FC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -683,6 +731,8 @@ ATB - All The Best (2012) Compilation [FLAC|Lossless|WEB-DL|tracks] <Progressive
 magnet:?xt=urn:btih:5042D558453F4D3F69E374C5BE69609F43D4A96F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -709,6 +759,8 @@ VA - Fantasy Lounge Music (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:C8876812454F787216C6E63F40280B9C25E910BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Dr. Dre - Compton (2015) [MP3|320 кб/с]<Soundtrack, Rap, Hip-Hop>
 magnet:?xt=urn:btih:29A7B45F3DA4374C41826BC3C9217438339FFF60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Johnny Cash - The Real... Johnny Cash (2011) [FLAC|Lossless|tracks + .cue] <Coun
 ```bash
 magnet:?xt=urn:btih:A7CD2A775F3BF401080F9712A141F9A36F30D830
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Medwyn Goodall - The Wisdom of Ages (2015) [MP3|320 кб/с]<New Age, Relax>
 magnet:?xt=urn:btih:E31371629ABD73564FEBAB8B44B2F746C1EE7D51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ VA - Blanck Mass Presents - The Strange Colour of Your Body's Tears Re-Score (20
 magnet:?xt=urn:btih:6E11CCC590C3AF3D328597858C2E66EBBF00ED7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ Jean Michel Jarre - The Best Of (2015) 2CD [FLAC|Lossless|image + .cue] <Electro
 ```bash
 magnet:?xt=urn:btih:999E690406BC79695202D451A9EB2BEC32347DD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -158,6 +168,8 @@ Music From The World Of Osho - Laughing Drums (2000) [WMA|357-449 kbps]<New Age,
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +206,8 @@ Raimonds Pauls / Раймонд Паулс - Zelta 60 (2CD) (1996) [MP3|320 кб
 magnet:?xt=urn:btih:52D4A7701FD0A7959F61706CD4047CFB39A030A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +234,8 @@ Atom Music Audio - EON II (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic 
 ```bash
 magnet:?xt=urn:btih:729FA7D60079502A13E66370D94493A74D053C9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +264,8 @@ Atom Music Audio - Transcendence (2019) [MP3|320 Kbps] <Soundtrack, Instrumental
 magnet:?xt=urn:btih:AC2C31713C78A248D82E7BC1B0732A32D7A14624
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +292,8 @@ Mythos - Eros (2018) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:108088BCEA081F282B1C486AFD788446A3E47F79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +328,8 @@ VA - The World Of The Spanish Guitar Vol. 1 /2CD/ (2011) [MP3|320 kbps]<Instrume
 magnet:?xt=urn:btih:E0DBE3B81CA95A93A18EC23923D86BC70EEA1C62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +363,8 @@ Raymond Lefevre et Son Grand Orchestre - Japanese Limited Mini LP SHM-CD (6CD) (
 magnet:?xt=urn:btih:A519CA2197453D2882ACE26C78161AA93128C8DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +391,8 @@ VA - A Native American Odyssey- Inuit to Inca (1998) [MP3|320 Kbps] <Native Amer
 ```bash
 magnet:?xt=urn:btih:4F1159B63943F062A1AB6917C9016ACE770CBF89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +427,8 @@ James Last - James Last and his Orchestra play music of Andrew Lloyd Webber (199
 magnet:?xt=urn:btih:ECBE08DADAA00BA6153BDE2B124C3FA23D8AB2D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +455,8 @@ The Henningsens - World's on Fire (2016) [FLAC|Lossless|tracks] <Country>
 ```bash
 magnet:?xt=urn:btih:A557008FFBBD100557CB1C93257BEF3C4BA22CB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +485,8 @@ Erin Durant - Islands (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk>
 magnet:?xt=urn:btih:0C51DED18E1461E34A850F8016636464243169EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +513,8 @@ Anhidema - Le Retour Du Anunnaki (2016) [MP3|320 Kbps] <New Age, Space, Spiritua
 ```bash
 magnet:?xt=urn:btih:99B099BE26930B2E0E7CC081FD13A98D1F770EAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +546,8 @@ Taikoza - Beginnings (Японские барабаны!) (2002) [MP3|~190 кб/
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +582,8 @@ Nazca - Indians, Songs, Nature, Dreams (2002) [MP3|192 кб/с]<Native American,
 magnet:?xt=urn:btih:7AD5667E18CE2FF25A72BA47B829AFAB1ACCF8D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +611,8 @@ VA - Romantic Collection - Instrumental Vol. 2 (2000) [FLAC|Lossless|tracks + .c
 magnet:?xt=urn:btih:2AC4BA796A26E42CAFB9F39C965B130B99F5CF6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +639,8 @@ The Royal Guitar Ensemble & Claude Ciari - Golden Guitar (2004) [FLAC|Lossless]<
 ```bash
 magnet:?xt=urn:btih:F6C06B916F3378C4F8E391D6DE3B89F7A34194B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +670,8 @@ Yoko Shimomura, VA - Final Fantasy XV Original Soundtrack (2016) 4 CD [MP3|320 K
 magnet:?xt=urn:btih:923826FDF6E68B30803457206E004C755B7AE59F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +696,8 @@ Zack Hemsey - американский композитор и музыкаль�
 ```bash
 magnet:?xt=urn:btih:0002F2966F4078D89C3E62AEC72FDE10160DD0E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -681,6 +727,8 @@ Kaare Norge & Claus Raahauge - Made Of Dreams (1998) [MP3|256 kbps]<Relax, New A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -707,6 +755,8 @@ Daughter of Swords - Dawnbreaker (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk>
 ```bash
 magnet:?xt=urn:btih:F290B0A889FFE48EA7D725B9C3FFA51A152C1783
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -740,6 +790,8 @@ VA-Enigma Lounge - By The Essence (2004) [MP3|320 кб/с]<New age , Enigmatic, 
 ```bash
 magnet:?xt=urn:btih:2E93F3A84B91ACEE64E6CD3679617B859DD9C273
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

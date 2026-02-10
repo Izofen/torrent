@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Remote Desktop Manager – это приложение для контроля �
 ```bash
 magnet:?xt=urn:btih:C34F396342B9F8FE8CD53CE22017B353DEE9F5E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ QuickMemoryTestOK - небольшая, но эффективная утилит
 magnet:?xt=urn:btih:18C755DA82B7057EA865D695BE367AB02C6A4184
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ PDF24 Creator - бесплатная программа, которая позв
 magnet:?xt=urn:btih:DCC5F0B0D4021A58AAB84CDB95CB6FFB98B9F6D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:DCC5F0B0D4021A58AAB84CDB95CB6FFB98B9F6D4
 ```bash
 magnet:?xt=urn:btih:1D14E852779E97F55EDBCC14EFB28E99801F5D8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:1D14E852779E97F55EDBCC14EFB28E99801F5D8C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:1D14E852779E97F55EDBCC14EFB28E99801F5D8C
 magnet:?xt=urn:btih:7D175C194E89FA5AF0391E9D64C08018210C1D26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:7D175C194E89FA5AF0391E9D64C08018210C1D26
 ```bash
 magnet:?xt=urn:btih:338EAFA0DC88AD4AA7DF5A46261545936C88AE0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:338EAFA0DC88AD4AA7DF5A46261545936C88AE0C
 magnet:?xt=urn:btih:A0A3477395DB7BB957024343D3B3391C79A79024
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:A0A3477395DB7BB957024343D3B3391C79A79024
 magnet:?xt=urn:btih:D7135E20C8389691455848CCF69ED69946A476E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:D7135E20C8389691455848CCF69ED69946A476E3
 ```bash
 magnet:?xt=urn:btih:7F87C1D6E876C4B7AD101056208204EDFE562AC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:7F87C1D6E876C4B7AD101056208204EDFE562AC7
 magnet:?xt=urn:btih:B26A862CFF7B7BD837032253DFED1583BB94D15B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 ```bash
 magnet:?xt=urn:btih:B45D840C8215953D895C1AA3D238F15FFDB89F7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:B45D840C8215953D895C1AA3D238F15FFDB89F7F
 magnet:?xt=urn:btih:C1D225BD1C251823010895E9C34C7C6F7F9F34F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ iA Writer 7.1.1 [Multi/Ru]
 magnet:?xt=urn:btih:B4563AEC5DA7E0AC8962C8500180756FE082A30E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:B4563AEC5DA7E0AC8962C8500180756FE082A30E
 ```bash
 magnet:?xt=urn:btih:429123E9886EDFE74B3C385E326670F16B2D8558
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:429123E9886EDFE74B3C385E326670F16B2D8558
 magnet:?xt=urn:btih:A7C7903C5B9876C7589240A51D080BEFC5E51EFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Live - это быстрое и гибкое программное обеспе
 ```bash
 magnet:?xt=urn:btih:E3DB6F08F6C5B97832E7C3A443A259E2B3FE6F44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 magnet:?xt=urn:btih:6A5AE2A3164135ED50CAC86FF4685F17127E660E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ MediaHuman YouTube Downloader 3.9.9.88 (0305) RePack (& Portable) by elchupacabr
 ```bash
 magnet:?xt=urn:btih:B6B2A8D1E7F49AA1F3C8ABDD5A3EC41CF7E66043
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ DxO PhotoLab Elite 7.5.0 build 176 Portable by 7997 [Multi]
 magnet:?xt=urn:btih:F51D18585E8AAC302CCFDE284381C2E578FE3D21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:F51D18585E8AAC302CCFDE284381C2E578FE3D21
 ```bash
 magnet:?xt=urn:btih:83130ABF569850137A62B6C0E8C85D57D061221C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ RisohEditor позволяет добавлять, редактировать, �
 magnet:?xt=urn:btih:9768494A6B3C3C5E7A04733F7AB53549033B5F85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ MacGPT — это простое нативное приложение для ma
 ```bash
 magnet:?xt=urn:btih:89A9F4CC3C46AF30ED21AC44CB10DACC423D003A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:89A9F4CC3C46AF30ED21AC44CB10DACC423D003A
 magnet:?xt=urn:btih:650D9F2CE1B6307D50E20FA61084D97CC1B2A8A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:650D9F2CE1B6307D50E20FA61084D97CC1B2A8A5
 ```bash
 magnet:?xt=urn:btih:B71C4FBD76B95214524928DFA5A1F196EB1B00CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

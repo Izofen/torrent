@@ -20,6 +20,8 @@ ClipboardFusion - утилита для настройки и удобной р�
 magnet:?xt=urn:btih:675B6DA473600F91072BF6EB4BC53169CEDE917E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:675B6DA473600F91072BF6EB4BC53169CEDE917E
 ```bash
 magnet:?xt=urn:btih:601583D65836455FAFEB06BE7F3447233D9D3F00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Wi-Fi Scanner 4.7.1.189 [En]
 magnet:?xt=urn:btih:AC68B3BB7DE6A26DBFF8518E3981EA456BD2EBB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ YTD Video Downloader — простая в использовании прогр
 ```bash
 magnet:?xt=urn:btih:BD671CF1665A1002E9229EC1241A158BE4603759
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ SiSoftware Sandra Lite - бесплатная версия многофункц�
 ```bash
 magnet:?xt=urn:btih:4319C62B0924660E9A374B45D30BEAF632E5D68D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Power-user (for MS Office) Premium 1.6.1165.0 [En]
 magnet:?xt=urn:btih:A8ECE620712C8F86DF33FBEEEC4F3B6AAFF88151
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Infix PDF Editor Pro 7.7.0 RePack (& Portable) by elchupacabra [Ru/En]
 ```bash
 magnet:?xt=urn:btih:9192A1AE6569935D8203A21A96B5DD7A35A83A87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Hetman Partition Recovery - программа восстанавливает д
 magnet:?xt=urn:btih:A4DC26744CED9F99EBB6625BE5D71E975B1DBB8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Vkontakte Online 6.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:9DE01F3CCC4A8D5295B2EC06923C4C24FA0E4D9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Wondershare PDFelement - программа для общего редактир
 magnet:?xt=urn:btih:1F061C91BFDC91DBE4FFF91AB22C13EEDA35D3EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Allway Sync является популярным решением синхро�
 ```bash
 magnet:?xt=urn:btih:908D431FD919ED1F7911C77F81B643F4F72144D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Soundpad – приложение для Windows, с помощью которо
 magnet:?xt=urn:btih:CCAA69B76ECA9A994DEE62EF18E038480037B59A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:CCAA69B76ECA9A994DEE62EF18E038480037B59A
 ```bash
 magnet:?xt=urn:btih:E1C40FB596169002EA33FE825B13709DC0A3557E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ True Burner - удобное в использовании программно�
 ```bash
 magnet:?xt=urn:btih:FBBE03CBF5EF44B58C5B682E16322950AE8F8E04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ O&O Defrag – инструмент дефрагментации дисков, �
 magnet:?xt=urn:btih:DBBEE3FA79CC2F67057B9F901934E4276E27F1E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ Sumatra PDF — мощная, небольшая программа с прос�
 magnet:?xt=urn:btih:CE91F0D0962D30E07DF69AA0E78448AB5DECEA7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ System Ninja - быстрое и эффективное решение для о
 magnet:?xt=urn:btih:FBF8035B26AB9477F2C5192C988C655C30C760EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ Microsoft Office 2013 – лучший пакет прикладных прог�
 ```bash
 magnet:?xt=urn:btih:AAE57AAF16D54A3E92E4B935D1637BA4DBE8B003
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ StrokesPlus.net, преемник StrokesPlus, представляет собо
 magnet:?xt=urn:btih:B7F89D64EC899EEA7946EAE9E482839397B39B63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ Beyond Compare – мощная и одна из лучших программ �
 ```bash
 magnet:?xt=urn:btih:D8EE51C960FAE1919CAF1FAB68B7C51D892318FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ System Ninja - быстрое и эффективное решение для о
 magnet:?xt=urn:btih:6AD675376BE3E6C646D887282FD655DF01E1AD86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ Auslogics Video Grabber - быстрый и простой инструмент,
 ```bash
 magnet:?xt=urn:btih:7B6A8879DD065E46B1DCBC0C7F0B2DAC063D33C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ System Ninja - бесплатная утилита для быстрого и а
 magnet:?xt=urn:btih:F38469D7DC1DC3CBA7E94A2FD12A546B72C9DDFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:20DE8394ACBE76B8DFED549481CC9687358EDE36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ Ashampoo Snap 10 содержит множество улучшений и ум�
 magnet:?xt=urn:btih:1A8FF6101BDE9CF32159641C3A093DCE50FCED64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ Microsoft Edge – кроссплатформенный веб-браузер н
 ```bash
 magnet:?xt=urn:btih:0C0FB66002759C0B22711B045DD3BB587AC13F56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Dr.Web Anti-Virus - представляет собой мощную комби�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Dr.Web Anti-Virus - представляет собой мощную комби�
 ```bash
 magnet:?xt=urn:btih:8098AE55252E50F84F065B671CDB228012D46E39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:8098AE55252E50F84F065B671CDB228012D46E39
 magnet:?xt=urn:btih:323B54023F5A391FDBD92AF20346D743AB13818A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:323B54023F5A391FDBD92AF20346D743AB13818A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:323B54023F5A391FDBD92AF20346D743AB13818A
 magnet:?xt=urn:btih:C545E670EFFE412AED9BE9F80BF7260DAA1068AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:C545E670EFFE412AED9BE9F80BF7260DAA1068AD
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Nuclear Dawn - первая игра, в равной степени совме�
 magnet:?xt=urn:btih:E2B1EF687957089CC2B17992C3556B47CE2C9778
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ VLC Media Player - медиа-плеер,  проигрывает аудио и 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ VLC Media Player - медиа-плеер,  проигрывает аудио и 
 ```bash
 magnet:?xt=urn:btih:463DAF6DECF434B947D68E499A73098CF88B3284
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Diablo III [Mac OS X] (Beta Client) [Native] [Eng]
 magnet:?xt=urn:btih:9A058D6A6776E78555FF4DC58523FAEE870D86F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:9A058D6A6776E78555FF4DC58523FAEE870D86F7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:9A058D6A6776E78555FF4DC58523FAEE870D86F7
 magnet:?xt=urn:btih:C09FE2090B1935AE993B25579A65CF4C5E5B5D19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:C09FE2090B1935AE993B25579A65CF4C5E5B5D19
 magnet:?xt=urn:btih:C22CD263E7D02B5F12FFD25065C00C5419A2F84B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:C22CD263E7D02B5F12FFD25065C00C5419A2F84B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ PhotoLine 16 - всепригодная программа представля�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ Comodo Dragon - это новый браузер, использующий по�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ uTorrent 3.2 Beta (build 26850) [Мульти, Русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ uTorrent 3.2 Beta (build 26850) [Мульти, Русский]
 ```bash
 magnet:?xt=urn:btih:9DA4C34301C2849974BA69364E62C2584FDAF584
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:9DA4C34301C2849974BA69364E62C2584FDAF584
 magnet:?xt=urn:btih:EA6F7FFF5BB40862B3363711F21B65A6952800A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:EA6F7FFF5BB40862B3363711F21B65A6952800A7
 ```bash
 magnet:?xt=urn:btih:0293E82C6D4FD476973EF775F22EA20A28C2C361
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:0293E82C6D4FD476973EF775F22EA20A28C2C361
 magnet:?xt=urn:btih:6F3C72A92C2328AD88C035BC8D83332A28B8EFAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:6F3C72A92C2328AD88C035BC8D83332A28B8EFAD
 ```bash
 magnet:?xt=urn:btih:DC26232D65AEA2CD2B8CE635EBEDF74F1F4388B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +613,8 @@ DriverMax - утилита позволяющая загрузить после�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ FantaMorph - программа для создания анимированны
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +665,8 @@ FantaMorph - программа для создания анимированны
 magnet:?xt=urn:btih:726BD0DC25D1FB67EF84C96B3B1D8453D9684721
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ magnet:?xt=urn:btih:726BD0DC25D1FB67EF84C96B3B1D8453D9684721
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

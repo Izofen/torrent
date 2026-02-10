@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:0CE0DFF319BFDFA55978FD78113086C13AF99D54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:0CE0DFF319BFDFA55978FD78113086C13AF99D54
 ```bash
 magnet:?xt=urn:btih:EE8F52EBC9B59CF8F5C6E6709E5D6432BAE17130
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:EE8F52EBC9B59CF8F5C6E6709E5D6432BAE17130
 magnet:?xt=urn:btih:4CA6A20420B51A0BA27E925045586CF8CC640CAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ SUMo (Software Update Monitor-монитор обновлений програм
 ```bash
 magnet:?xt=urn:btih:8E038E71234311B8F2D9A0F2BB18CDCB9147D0C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ ScreenHunter Pro – программа для получения снимков
 magnet:?xt=urn:btih:7826424463AAC1156C23003212E5743DBC1BA938
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Shijou Saikyou no Daimaou, Murabito A ni Tensei Suru | The Greatest Demon Lord I
 ```bash
 magnet:?xt=urn:btih:FFDCD2F6928FBBDB5927265C011E01E283B49453
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ NIUBI Partition Editor – программа для простого и над�
 magnet:?xt=urn:btih:BC85F6FEB0740EDF3D20ECA2DB05CAC7299E3F21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:BC85F6FEB0740EDF3D20ECA2DB05CAC7299E3F21
 ```bash
 magnet:?xt=urn:btih:BAB0F70ACE62824AFC63BF2499E125EFF9E8EEC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:BAB0F70ACE62824AFC63BF2499E125EFF9E8EEC5
 magnet:?xt=urn:btih:F0F043DA2AEA25DBE51C1C4ED89A10CF581020D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:F0F043DA2AEA25DBE51C1C4ED89A10CF581020D2
 ```bash
 magnet:?xt=urn:btih:6CAE3C9C4363D056DBD010FBC5808777D9B8A3E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:6CAE3C9C4363D056DBD010FBC5808777D9B8A3E7
 magnet:?xt=urn:btih:7D6838D8F31DA536ACCD3A0FA77E4010795B56F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:7D6838D8F31DA536ACCD3A0FA77E4010795B56F8
 ```bash
 magnet:?xt=urn:btih:7E9AD37DA29F2CCCF574EFFB99230D2FF236723F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:7E9AD37DA29F2CCCF574EFFB99230D2FF236723F
 magnet:?xt=urn:btih:5509AF6707BCE32731DE93601DBAD51E4246A949
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:5509AF6707BCE32731DE93601DBAD51E4246A949
 ```bash
 magnet:?xt=urn:btih:F98E4EE925641A237EA57C5A72CCDD99EEED003C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ UsbTreeView маленькая утилита, реализующая больш
 magnet:?xt=urn:btih:BC0B8134D5F7B8D68D7C640F8C057ABF855E4BE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:BC0B8134D5F7B8D68D7C640F8C057ABF855E4BE9
 ```bash
 magnet:?xt=urn:btih:13A0CF47359DCE023E9C9F1A03B3A7244C995A38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:13A0CF47359DCE023E9C9F1A03B3A7244C995A38
 magnet:?xt=urn:btih:4645C0C6CD1542ABE2B0CD79E76DD2B0336FE505
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:4645C0C6CD1542ABE2B0CD79E76DD2B0336FE505
 ```bash
 magnet:?xt=urn:btih:26F5A8600EB2847B36CF4A63CA5FD0D00F871933
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:26F5A8600EB2847B36CF4A63CA5FD0D00F871933
 magnet:?xt=urn:btih:A031D5EB4753773DAF3C9BA63DFDD00B912D619F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Kena: Bridge of Spirits (2021) [PS4] [USA] 5.05 [HEN] [License / 2.02 / DLC] [Ru
 ```bash
 magnet:?xt=urn:btih:DAA87D95000EE4DD40ED34976F027B03525807DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:DAA87D95000EE4DD40ED34976F027B03525807DD
 magnet:?xt=urn:btih:19A99FA8A6450E4933C4753BF8CCB0C15A1C6FF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:19A99FA8A6450E4933C4753BF8CCB0C15A1C6FF2
 ```bash
 magnet:?xt=urn:btih:30B06CF203B9D9579B7BEE0F6B14F33356F77813
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ AIMP – проигрыватель, включающий в себя множе
 magnet:?xt=urn:btih:FFFF16A6FBB9BC1ABC5571307399832C110BB994
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:FFFF16A6FBB9BC1ABC5571307399832C110BB994
 ```bash
 magnet:?xt=urn:btih:1D483C12710ADD0AE9ADD1C39AA728C6213F810A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:1D483C12710ADD0AE9ADD1C39AA728C6213F810A
 magnet:?xt=urn:btih:019308C82A6E74A5D006177DE10090A7B971253A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:019308C82A6E74A5D006177DE10090A7B971253A
 ```bash
 magnet:?xt=urn:btih:F85B337E5FE9DED643D41850F9469938983B31D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

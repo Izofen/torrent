@@ -1,3 +1,30 @@
+###  Публикация: 822943   (477901) от 19.09.2014
+
+Александр Рогалев | Имя и личность (2013) [PDF]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во все времена в имени человека старались увидеть нечто большее, чем звуки, буквы, внутренняя форма и этимологическое значение. Многие исследователи – философы и лингвисты – рассуждают о тайне имени. В исследовании доктора филологических наук, профессора А. Ф. Рогалева анализируется взаимосвязь  имени  и человека. Автор исходит из того, что именование не бывает случайным, потому что не случайно рождение человека у определённых родителей в определённое время и в определённом месте.
+Личное  имя  обязательно  соотносится (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98251A063F3C5B815875CA10D34533757E99BABD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 939227   (477904) от 20.09.2015
 
 Александр Компаньонов, Алик Газизов | Как влюбить в себя мужчину (2015) [FB2, RTF]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:3F06AA45FC6C8AB53205F96B3E90CF926E4B8FB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:3F06AA45FC6C8AB53205F96B3E90CF926E4B8FB1
 magnet:?xt=urn:btih:3C1446D2B6309BEC882C58E76E42D00ED0B6D696
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +98,8 @@ magnet:?xt=urn:btih:3C1446D2B6309BEC882C58E76E42D00ED0B6D696
 ```bash
 magnet:?xt=urn:btih:DBED2B05A7F49901F952E908EE1116FECF29D13D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +127,8 @@ magnet:?xt=urn:btih:DBED2B05A7F49901F952E908EE1116FECF29D13D
 magnet:?xt=urn:btih:4621ED3156AF931BF1EE2AF9B36F24BA7423BDF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +153,8 @@ magnet:?xt=urn:btih:4621ED3156AF931BF1EE2AF9B36F24BA7423BDF8
 ```bash
 magnet:?xt=urn:btih:0BFD64A7386E936B45B1C3B9184FACE5BDAC68D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +182,8 @@ magnet:?xt=urn:btih:0BFD64A7386E936B45B1C3B9184FACE5BDAC68D4
 magnet:?xt=urn:btih:6D42C6F06F7D2733E7E564DA501D443B9DE30553
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +207,8 @@ magnet:?xt=urn:btih:6D42C6F06F7D2733E7E564DA501D443B9DE30553
 ```bash
 magnet:?xt=urn:btih:2745B6361C9C2501A28249E734F41ADC66CF3D5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +236,8 @@ magnet:?xt=urn:btih:2745B6361C9C2501A28249E734F41ADC66CF3D5E
 magnet:?xt=urn:btih:4D5775CC328324122FB1AFC6C056870DD04E4284
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +261,8 @@ magnet:?xt=urn:btih:4D5775CC328324122FB1AFC6C056870DD04E4284
 ```bash
 magnet:?xt=urn:btih:C6D3EF751F170E544BF589C3F2B22C83393446BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +289,8 @@ magnet:?xt=urn:btih:C6D3EF751F170E544BF589C3F2B22C83393446BA
 magnet:?xt=urn:btih:923DDB272181DA2B010241C900BC641E1B128A59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +315,8 @@ magnet:?xt=urn:btih:923DDB272181DA2B010241C900BC641E1B128A59
 ```bash
 magnet:?xt=urn:btih:DFFA7552196A7D57B0EC59BC62DA5925B0A72898
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +344,8 @@ magnet:?xt=urn:btih:DFFA7552196A7D57B0EC59BC62DA5925B0A72898
 magnet:?xt=urn:btih:694491F37561499886F16EE5733892CCC94D081D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +369,8 @@ magnet:?xt=urn:btih:694491F37561499886F16EE5733892CCC94D081D
 ```bash
 magnet:?xt=urn:btih:C8F17AC499B66FF0A51BB75DD53369936A978EAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +396,8 @@ magnet:?xt=urn:btih:C8F17AC499B66FF0A51BB75DD53369936A978EAC
 magnet:?xt=urn:btih:EC1397F0F348F459974A98F675393730E314E492
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +421,8 @@ magnet:?xt=urn:btih:EC1397F0F348F459974A98F675393730E314E492
 ```bash
 magnet:?xt=urn:btih:4449452B02EAA46ADFAE5361C300BB3CD9DF8EAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +451,8 @@ magnet:?xt=urn:btih:4449452B02EAA46ADFAE5361C300BB3CD9DF8EAA
 magnet:?xt=urn:btih:AC048C7ED0751FDCA69C7738D73071926C429D4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +476,8 @@ magnet:?xt=urn:btih:AC048C7ED0751FDCA69C7738D73071926C429D4A
 ```bash
 magnet:?xt=urn:btih:9A3825538194E4A9B12F32C4E18E883AFE8C3D54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +503,8 @@ magnet:?xt=urn:btih:9A3825538194E4A9B12F32C4E18E883AFE8C3D54
 magnet:?xt=urn:btih:0AE5B8BB1FCCF69CA5831234150662ADCC7B6318
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +529,8 @@ magnet:?xt=urn:btih:0AE5B8BB1FCCF69CA5831234150662ADCC7B6318
 magnet:?xt=urn:btih:6C33AC769AFEA4FDED5F2FF126A803973FFB7493
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +554,8 @@ magnet:?xt=urn:btih:6C33AC769AFEA4FDED5F2FF126A803973FFB7493
 ```bash
 magnet:?xt=urn:btih:422F6883A8F9A77899AF027D14C17C5B2184BBC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +582,8 @@ magnet:?xt=urn:btih:422F6883A8F9A77899AF027D14C17C5B2184BBC3
 magnet:?xt=urn:btih:B1D895A2C89D0E38F68573EDE4E1186037F0E23D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +608,8 @@ magnet:?xt=urn:btih:B1D895A2C89D0E38F68573EDE4E1186037F0E23D
 magnet:?xt=urn:btih:EEB0B2D185E07B8150D4636A16A1A6EC4BA7F70C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +633,8 @@ magnet:?xt=urn:btih:EEB0B2D185E07B8150D4636A16A1A6EC4BA7F70C
 ```bash
 magnet:?xt=urn:btih:EE1CD8A8B43A0C524D3E9DD4B60E0F0F0B17403A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +662,8 @@ magnet:?xt=urn:btih:EE1CD8A8B43A0C524D3E9DD4B60E0F0F0B17403A
 magnet:?xt=urn:btih:479EAC37C42EB9187B906A17BE820F4F44E71F8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,32 +688,7 @@ magnet:?xt=urn:btih:479EAC37C42EB9187B906A17BE820F4F44E71F8F
 magnet:?xt=urn:btih:2CC9850003B4651832B2B05089BF40F1C44ED17A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405905   (480787) от 31.08.2020
-
-Елена Чернявская | BodyСкульптор. Фитнес, питание, уход для тех, кому лень или нет времени (2020) [EPUB]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знакомьтесь: четыре причины увядания вашей красоты!
-Лень: «Начну завтра, а лучше с понедельника».
-Оправдание возрастом: «Мне уже слишком поздно».
-Незнание основ физиологии: «Вот, сяду на диету, намажусь кремом и сразу похорошею!»(   Читать дальше...   )Жанр: Спорт, Фитнес, Здоровое и правильное питаниеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:741305194E2F1BE7850D2700F4D0C9EF2AB12ADE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

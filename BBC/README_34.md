@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:8D44BBD7436A5D3B9A37762D1E27BEEB6C26DF1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:8D44BBD7436A5D3B9A37762D1E27BEEB6C26DF1D
 ```bash
 magnet:?xt=urn:btih:8E38ECE0B881C0A61B421C26A177837898B86255
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:8E38ECE0B881C0A61B421C26A177837898B86255
 magnet:?xt=urn:btih:2AF3BA2DC620FA51064ABB3C3080B88A27F99523
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ BBC. Идеальная планета / A Perfect Planet (2021) WEB-DL [H.264/1
 ```bash
 magnet:?xt=urn:btih:54B7FD91025106885BD14E0AEA206FF7E158E01D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ BBC. Идеальная планета / A Perfect Planet (2021) WEBRip [H.265/2
 magnet:?xt=urn:btih:8139CD6EB6C9FB03C6289AE29A67E6267064523F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ BBC - Великие мастера: Загадки Иеронима Босха 
 ```bash
 magnet:?xt=urn:btih:3F67D674FED7B0463D5C6BECBEF3A43BF501DCC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ BBC: Земля Один потрясающий день / Earth One Amazing Day
 magnet:?xt=urn:btih:1293BC349778525F13B46AC83F373D307AD40B3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:1293BC349778525F13B46AC83F373D307AD40B3C
 ```bash
 magnet:?xt=urn:btih:9DED35B2B630F8A743777D7CB6B348DF3ED29535
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ BBC: Живая Природа. Райские птицы / BBC: Natural World. 
 magnet:?xt=urn:btih:5CB3882B197F477CB65367985D40C36C84D723A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ BBC: Жизнь птиц / The Life of Birds (1998) DVDRemux (сезон 1, се
 magnet:?xt=urn:btih:481521B59550C3C26F671A759A3645F6D9961645
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ BBC. Horizon: Видим ли мы одно и то же? / Horizon: Do You See 
 ```bash
 magnet:?xt=urn:btih:B54FD07C3EE685C35495BD17BF0A81684137B859
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:4DCAC26738C0030A7A5E46CD3D3460E7B5E56D7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Bad Girl / Плохая девочка [2025, TV, 12] WEBRip 720p raw
 ```bash
 magnet:?xt=urn:btih:398B22B9DCA9734CBD9E34BF0A5A3065663CE5D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:398B22B9DCA9734CBD9E34BF0A5A3065663CE5D9
 magnet:?xt=urn:btih:0807DAD4759D2C88B925DC592FC44A7E4568ECCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:0807DAD4759D2C88B925DC592FC44A7E4568ECCD
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Project Warlock II (2) (2022) [Ru/Multi] (1.0.1.26) Repack FitGirl
 magnet:?xt=urn:btih:B047F0E8A79FE2A4DF891A815B62DF7BADF7CA7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:B047F0E8A79FE2A4DF891A815B62DF7BADF7CA7F
 ```bash
 magnet:?xt=urn:btih:569DFD806F9A5E2E37875AF4E759BAA54825C86C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:569DFD806F9A5E2E37875AF4E759BAA54825C86C
 magnet:?xt=urn:btih:6BBFAC78EC7A02FCBC3FEB6F485A497276D46DDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:6BBFAC78EC7A02FCBC3FEB6F485A497276D46DDC
 ```bash
 magnet:?xt=urn:btih:9001CA986D0C22271E5C6673819612AE94522C49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:9001CA986D0C22271E5C6673819612AE94522C49
 magnet:?xt=urn:btih:1FC98E5E9D2E88A70C2DA4FF387EA925D08D865C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:1FC98E5E9D2E88A70C2DA4FF387EA925D08D865C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:1FC98E5E9D2E88A70C2DA4FF387EA925D08D865C
 ```bash
 magnet:?xt=urn:btih:442203DA3D946FC8B4BEC03F85342CEB7F713688
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ VA - Свежий Русский Хит от ALEXnROCK часть 12 (2022) [MP3
 magnet:?xt=urn:btih:0E9B1AF12067EA68B9F3F239279750E35966E473
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ ByeByeDPI v1.6.6 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0A5C644098CBCAA404BFB010C6008285B12DFC8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ Northgard (2018) [Ru/Multi] (3.7.56.42549/dlc) Repack Let'sРlay [The Viking Age
 magnet:?xt=urn:btih:A2330DC8A708F1A43ABB2261F485B2810EFC120B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.6) License GOG [Patche
 ```bash
 magnet:?xt=urn:btih:28347D830745D79E3EC0CE793FC2AFBC6BA9F57E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:28347D830745D79E3EC0CE793FC2AFBC6BA9F57E
 magnet:?xt=urn:btih:F164F2A3BC230BB575C5B83ACA57EC3F9C4A1F75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:F164F2A3BC230BB575C5B83ACA57EC3F9C4A1F75
 ```bash
 magnet:?xt=urn:btih:DFEA1544533A73BAE97DC2198D8A7C8C889ED184
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:DFEA1544533A73BAE97DC2198D8A7C8C889ED184
 magnet:?xt=urn:btih:E86FF0489C8EB05D2EC5B039F69C27D84DFBAADC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:E86FF0489C8EB05D2EC5B039F69C27D84DFBAADC
 ```bash
 magnet:?xt=urn:btih:9E4912E705D046F0D948A430C5176A0ACFC88FA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:9E4912E705D046F0D948A430C5176A0ACFC88FA8
 magnet:?xt=urn:btih:5E1BB1E1C7C588ED3235F341AFDFB0CFFAE19C59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ LOLLIPOP CHAINSAW RePOP (2024) [Ru/Multi] (1.15) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:CCA47D96A1914E0F2968CD96C22C73D054EA8828
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ NINJA GAIDEN: Ragebound — творение команды, создавшей 
 magnet:?xt=urn:btih:EF76EEE8402F29532B3580E8423E0F4883C547AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:EF76EEE8402F29532B3580E8423E0F4883C547AA
 ```bash
 magnet:?xt=urn:btih:1A731CC98823B6ACAD7F24ABD7C10261FC82CB4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:1A731CC98823B6ACAD7F24ABD7C10261FC82CB4D
 magnet:?xt=urn:btih:FA14332907A459DCDFA51CCC3796CB5690E829F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:FA14332907A459DCDFA51CCC3796CB5690E829F9
 magnet:?xt=urn:btih:1913E4A4A02433C8F4E21C77037CEE268766813E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:1913E4A4A02433C8F4E21C77037CEE268766813E
 ```bash
 magnet:?xt=urn:btih:FA7252F12C6B12415E5C064C24D2B21C45E28FC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

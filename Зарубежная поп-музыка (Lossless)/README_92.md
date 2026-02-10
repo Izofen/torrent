@@ -28,6 +28,8 @@ Zdravko Colic - 39 Hitova (2008) [FLAC|Lossless]<Pop, Pop-Rock, Pop-Folk, Balkan
 magnet:?xt=urn:btih:167F5DF3F9078960BAEED61DAD4287B525B85B6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ VA - Top Latino 2000 (2000) [FLAC|Lossless|tracks + .cue] <Latin, Merengue, Afro
 ```bash
 magnet:?xt=urn:btih:D238F66DABF2A9D6A156E174DE0AAA8B46550AB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ Alessandra Amoroso - Vivere a colori (2016) [FLAC|Lossless|tracks] <Pop, Vocal
 magnet:?xt=urn:btih:B016579EED58892A5A8A26C982C6693085B367E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ VA - Great Spanish Hits (1996) [FLAC|Lossless|tracks + .cue] <Pop, Folk>
 ```bash
 magnet:?xt=urn:btih:9EE91A54A61FCDF9A957ECB290A871E75EEF74A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +147,8 @@ Mariah Carey - Forever Gold (1999) 2CD [FLAC|Lossless|tracks + .cue] <Pop, Blues
 magnet:?xt=urn:btih:70B5C28923527AB5672012F13010B5F4C73FFD40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +175,8 @@ Vanessa Paradis - Variations sur le meme t aime (1990) Remastered, 1998, Polydor
 ```bash
 magnet:?xt=urn:btih:D27B0598E6942A0E1936675271842D666F3AF501
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +211,8 @@ CD 10 - Joyful Jukebox Music / Boogie(   Читать дальше...   )Жан�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +240,8 @@ Julio Iglesias - A Mis 33 Anos (1978) [FLAC|Lossless|tracks + .cue] <Ballad, Cha
 magnet:?xt=urn:btih:A193680EB1F8F5D85482DAED1E01EBFD105E8461
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +268,8 @@ VA - All the Hits Now 2001 Italia (2001) [FLAC|Lossless|tracks + .cue] <Italian 
 ```bash
 magnet:?xt=urn:btih:7CAC25B9A6F561D5EAC0D2E96D7F8B6362ED0E10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +304,8 @@ VA - 90 Hits Of The 90s (2013) 4CD [FLAC (track)|Lossless|WEB-DL]<Pop>
 magnet:?xt=urn:btih:E178DEBDE3454A70336CF4410F6127C65011F207
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +333,8 @@ Chris De Burgh - Now and Then (2008) Compilation [FLAC|Lossless|tracks + .cue] <
 magnet:?xt=urn:btih:48A0B4C89FE7B1508A28536E43913100B305EEC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +361,8 @@ Julio Iglesias - Noche De Cuatro Lunas (2000) [FLAC|Lossless|tracks + .cue] <Bal
 ```bash
 magnet:?xt=urn:btih:97775E043B89A3203CC52BE28217F94292CB8C83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +397,8 @@ Bonnie Tyler - 2 альбома (1986, 1991) [FLAC|Lossless]<Pop, Rock>
 magnet:?xt=urn:btih:59210E2744ECE7215ECF0CFB591BDE123CA7AC7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +425,8 @@ Kovacs - Cheap Smell (2018) [FLAC|Lossless|tracks + .cue] <Jazz, Pop>
 ```bash
 magnet:?xt=urn:btih:189D142B019EC26B579870EB2DBC3EB320FF6E93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +455,8 @@ Murray Head - Emotions (My Favourite Songs) (2005) Compilation [FLAC|Lossless|WE
 magnet:?xt=urn:btih:F131268927C435D96FA2F9558BB393EFBC3C87F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +483,8 @@ Vanessa Paradis - M & J (1988) Japanese Edition [FLAC|Lossless|image + .cue] <Po
 ```bash
 magnet:?xt=urn:btih:EFA239F02B02D3C606120339963FE57E3A2F8E44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +513,8 @@ VA - All Woman - 18 Greatest Hits (1994) [FLAC|Lossless|tracks  + .cue]<Pop, Lov
 magnet:?xt=urn:btih:4BCE761637CF224D6A9FA1F7164BAEE67EBCA0E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +541,8 @@ Julio Iglesias - Tango (1996) [FLAC|Lossless|tracks + .cue] <Ballad, Vocal, Tang
 ```bash
 magnet:?xt=urn:btih:D5F4BD3A11BFD6348A0390CCB88271C1B36057DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +571,8 @@ Julio Iglesias - Crazy (1994) [FLAC|Lossless|tracks + .cue] <Soft Rock, Chanson,
 magnet:?xt=urn:btih:A035800CB88232DDBAA1B603AF6462CC6DB2F22D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +599,8 @@ Julio Iglesias - La Carretera (1995) [FLAC|Lossless|tracks + .cue] <Ballad>
 ```bash
 magnet:?xt=urn:btih:D909E52CBEF9BEA951870F33B5B1288D99D2AC96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +629,8 @@ Ronan Keating - Destination (2002) SACD [FLAC|Lossless|tracks + .cue] <Pop Rock>
 magnet:?xt=urn:btih:FCDA543A1BCF030E7D6ABE515B62821046CA92E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +657,8 @@ Reverend and The Makers - ThirtyTwo (2014) [FLAC|Lossless|WEB-DL|tracks] <Britpo
 ```bash
 magnet:?xt=urn:btih:E1D77365F7ADC74A69F980E51E2C05A846AE3217
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +693,8 @@ Mylene Farmer - Monkey Me (2012) [APE|Lossless]<Pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -681,6 +727,8 @@ Crazy Loop (Dan Balan) - The Power of Shower (2007) [FLAC|Lossless]<Pop, Dance, 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -716,6 +764,8 @@ Kylie Minogue - Confide In Me (2001) [FLAC|Lossless]<Pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -748,6 +798,8 @@ VA - NOW: The Hits Of Summer 2014 (2013) [FLAC|Lossless|WEB-DL]<Pop Rock>
 ```bash
 magnet:?xt=urn:btih:B96CD273F4438226D051226D9EA197D67211FA9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

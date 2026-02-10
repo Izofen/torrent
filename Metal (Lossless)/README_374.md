@@ -1,3 +1,58 @@
+###  Публикация: 974882   (973358) от 14.01.2016
+
+Tank - Valley of Tears (2015) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Valley of Tears
+02.War Dance
+03.Eye of a Hurricane
+04.Hold On(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:00:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:578E654997349DF56D01A8A7EDA970502CBF1E6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 439188   (973516) от 20.01.2012
+
+Metallica - Live At The Fillmore: 30th Anniversary (9CD) (2011) [FLAC|Lossless]<Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+2011Жанр: MetalПродолжительность: 10:27:47
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 743941   (973529) от 10.01.2014
 
 While The Heart Becomes - The Sinking (2013) [FLAC|Lossless]<Metalcore>
@@ -27,6 +82,8 @@ While The Heart Becomes - The Sinking (2013) [FLAC|Lossless]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:03B01061481FF79B43C14A3C07B9296656A8F575
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -60,6 +117,8 @@ Burden Of Grief - On Darker Trails (2001) [FLAC|Lossless]<Melodic Death Metal>
 magnet:?xt=urn:btih:CDECBAEED595B6322AB32B977EC0D7B04012CC47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -88,6 +147,8 @@ Stratovarius - Unbreakable (2013) EP [FLAC|Lossless]<Melodic Power Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +175,8 @@ Wolfpakk - немецкий проект, основанный вокалист�
 ```bash
 magnet:?xt=urn:btih:E2CBF5FF5945BE4AAFFE696135F4E83AD79FC72F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +211,8 @@ Dragonland - 5 CD (2001 - 2006) [FLAC & APE|Lossless]<Power Metal>
 magnet:?xt=urn:btih:F50A5B779D2B8168EDE7EC887C726994D3F2AC6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +239,8 @@ Metallica ‎ - ..And Justice For Jason (Limited Edition, Enhanced and recovered
 ```bash
 magnet:?xt=urn:btih:2742E30CBAD15E8691706ECA82F65D97BFE1F8CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +269,8 @@ Annihilator - Ballistic, Sadistic (2020) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 magnet:?xt=urn:btih:7C3944ADDD99EE1A541FD504CC1E09EE13031D25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +294,8 @@ Metallica - Helping Hands... Live & Acoustic At The Masonic (2019) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:9F5FEDBB5DEC986C2A4371600553C8B2474B283A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -257,6 +328,8 @@ October Falls - 7 альбомов (2005-2013) Дискография [FLAC|Loss
 magnet:?xt=urn:btih:C40B21BF2F62D297290CC92D0FEDBACB3423E3F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +356,8 @@ Arcturus - Arcturian (2015) 2CD [FLAC|Lossless|image + .cue] <Avant-Garde Black 
 ```bash
 magnet:?xt=urn:btih:C3BC68B15B7B9A79A5D63455D3D157CF3D886E92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +392,8 @@ Factory Of Dreams - Some Kind Of Poetic Destruction (2013) [FLAC|Lossless]<Progr
 magnet:?xt=urn:btih:CD1494D044A32E3733B3583ADAC1F61161F1A260
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +420,8 @@ Malevolent Creation - Dead Man's Path (2015) [FLAC|Lossless|image + .cue] <Death
 ```bash
 magnet:?xt=urn:btih:747EA57B4B16373D474B0C676355C9F6A2B8F938
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +456,8 @@ Burden Of Grief - Death End Road (2007) [APE|Lossless]<Melodic Death Metal>
 magnet:?xt=urn:btih:B57B11A7E71D45211A4C79712691A7F2F0C1E7C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +490,8 @@ Evans Blue - 4 Альбома (2006-2012) Дискография [FLAC|Lossless]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +526,8 @@ Hate - Solarflesh (2013) Limited Edition [FLAC|Lossless]<Death Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +560,8 @@ Souldrainer - Reborn (2007) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:0C017D3EA79BADFE4E2964370E180DA3DECB076F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +596,8 @@ Operadyse - Pandemonium (2013)Japanese Edition[FLAC|Lossless]<Symphonic Power Me
 magnet:?xt=urn:btih:86C18AD98D8887CF01ECA2CE8FEEA832A6DA28F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +630,8 @@ Shung - Guitars(   Читать дальше...   )Жанр: MetalcoreПродо
 ```bash
 magnet:?xt=urn:btih:09AF022E6C3C019C94AF7D8FFBAD726C45038136
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +666,8 @@ Beyond the Vortex - One (2011) [FLAC|Lossless|WEB-DL]<Metalcore\Melodic Death Me
 magnet:?xt=urn:btih:B93FB40DC2FD17068777CAAE70CCB5B502DCB4CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +701,8 @@ Forlorn Path - Man's Last Portrait (2013) [FLAC|Lossless]<Melodic Death Metal>
 magnet:?xt=urn:btih:019C99355949412DAD77A805E3AAC33BF086D0C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +726,8 @@ Bullet For My Valentine - Temper Temper (Deluxe Edition) (2013) [FLAC|Lossless]<
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -658,6 +755,8 @@ Devin Townsend - 26 Albums, 8 Compilations & Live, 4 EPs & Promos (1996 - 2019) 
 ```bash
 magnet:?xt=urn:btih:F433C22BB5D8E90DFE86161654D03BABFA95898C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -692,6 +791,8 @@ Jorn - Symphonic (2013) [APE|Lossless]<Symphonic / Heavy Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -719,72 +820,7 @@ Cardinal Sin - Spiteful Intents (1996) [WavPack|Lossless|image + .cue] <DeathMet
 magnet:?xt=urn:btih:3658E34E1AD9FAAE1040379B08556690A0AD47EB
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 615224   (978419) от 07.02.2013
-
-VA - Metallica A Tribute To Kill 'Em All (2013) [FLAC|lossless] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Black Tide - Hit The Lights (03:43)
-02. Burden Of Grief - The Four Horsemen (05:26)
-03. Rage - Motorbreath (live) (03:04)
-04. Dust Bolt - Jump In The Fire (04:02)
-05. Eisregen & The Vision Bleak - (Anesthesia) Pulling Teeth (03:32)
-06. Motorhead - Whiplash (03:51)
-07. Anthrax - Phantom Lord (04:31)
-08. Cannibal Corpse - No Remorse (06:16)
-09. Primal Fear - Seek & Destroy (07:13)
-10. Dew-Scented - Metal Militia (04:37)Жанр: Thrash MetalПродолжительность: 00:46:19
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590094   (978678) от 07.02.2013
-
-Nightfall - 5 альбомов (1999 - 2013) [FLAC / APE|Lossless]<Symphonic Black Metal (early), Dark Metal, Gothic Metal, Doom/Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа Nightfall была основана в начале последней декады нового тысячелетия. Четверо молодых людей объединились с единственной священной целью - создать маленькое сообщество, святилище для их драгоценных мыслей, желаний, теорий и других разумных вещей.
-Они представили себя миру посредством единственного демо-релиза "Vanity" (1991). Эта лента была "официально" выпущена почти через 2 месяца. Именно тогда французский лейбл Holy Records связался с группой и предложили четырём перспективным грекам лучший шанс завоевать мир. Результат? Довольно фантастический.01. Phaethon 04:35
-02. Oberon & Titania 04:33
-03. Colonized Cultures 03:21
-04. The Nightwatch 04:49
-05. Stellar Parallax 04:05
-06. Hubris 05:18
-07. The Reptile Gods 04:42
-08. Hyperion 04:27
-09. Akhenaton, the 9th Pharaoh of the 18th Dynasty 04:10
-10. The Sand Reckoner 04:20(   Читать дальше...   )Жанр: Symphonic Black Metal (early), Dark Metal, Gothic Metal, Doom/Death MetalПродолжительность: 00:50:39
-
-## Скачать торент
-```bash
-нет
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

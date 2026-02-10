@@ -1,3 +1,29 @@
+###  Публикация: 1167612   (415182) от 21.09.2017
+
+Т. А. Жирмунская | "Ум ищет Божества". Библия и русская поэзия XVIII - XX веков (2006) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_415182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три века отечественной поэзии и Священное Писание... Вместе с автором, известным поэтом, читатели смогут проследить, как библейские откровения, сюжеты и образы, неожиданно и всякий раз по-новому, преломлялись в творчестве крупнейших поэтов, от Тредиаковского до Есенина. Взгляд автора сквозь боговдохновенную Книгу книг на стихи, порой хрестоматийные, порой малоизвестные, (   Читать дальше...   )Жанр: Литературоведение, христиннствоФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A4DD9C79891853E37B7DF09C8542FD5A90F9C8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947884   (415310) от 18.10.2015
 
 Гэвин Кеннеди | Переговоры. Полный курс (2015) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:21E49074471C3B7EC0BA68C9FB278F3211E22706
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:21E49074471C3B7EC0BA68C9FB278F3211E22706
 magnet:?xt=urn:btih:58718E4703ED539636CCA62433E257101C4BF461
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:58718E4703ED539636CCA62433E257101C4BF461
 ```bash
 magnet:?xt=urn:btih:9E4A8DEC7498B3E09B8E1AAC8B9DAF84A820FB40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:9E4A8DEC7498B3E09B8E1AAC8B9DAF84A820FB40
 magnet:?xt=urn:btih:30A225D59B398C16A529DD349DEEB5C4AB4CEFEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:30A225D59B398C16A529DD349DEEB5C4AB4CEFEC
 magnet:?xt=urn:btih:EE28C79C3A303F1A99B6D378EF9E27AD2D5D4327
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:EE28C79C3A303F1A99B6D378EF9E27AD2D5D4327
 ```bash
 magnet:?xt=urn:btih:1137814B7DADCAB61156958B81B3AFC1AEA0EBEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:1137814B7DADCAB61156958B81B3AFC1AEA0EBEA
 magnet:?xt=urn:btih:E48A6E8AC39D253A376A33527B938FF99829F24E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:E48A6E8AC39D253A376A33527B938FF99829F24E
 magnet:?xt=urn:btih:62082CD6D6616D5A2EE801EBEF6CA7EADE28977F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:62082CD6D6616D5A2EE801EBEF6CA7EADE28977F
 ```bash
 magnet:?xt=urn:btih:864CEFD40BCF66DF9148603B2155315C22016B21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:864CEFD40BCF66DF9148603B2155315C22016B21
 magnet:?xt=urn:btih:1B36F144E1A1E9E08B0CCFDD3092B592C3AF2FBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:1B36F144E1A1E9E08B0CCFDD3092B592C3AF2FBB
 ```bash
 magnet:?xt=urn:btih:FA8DB6C944D29C8A88DD1E7CCCCD46BC81D25CED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:FA8DB6C944D29C8A88DD1E7CCCCD46BC81D25CED
 magnet:?xt=urn:btih:E26790758FED64863F11A753E5009C5C1D88EE0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:E26790758FED64863F11A753E5009C5C1D88EE0A
 ```bash
 magnet:?xt=urn:btih:5790E52671845EB7EA688C75F150E837732E2633
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:5790E52671845EB7EA688C75F150E837732E2633
 magnet:?xt=urn:btih:BDC5230FB20CB49F4F41AF5535652844C7E1E178
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:BDC5230FB20CB49F4F41AF5535652844C7E1E178
 ```bash
 magnet:?xt=urn:btih:C4685343AA524C243732317DED13737D256551A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:C4685343AA524C243732317DED13737D256551A0
 magnet:?xt=urn:btih:6F82FF51468AEBE1A50BEAD20FBA44986FB9663B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:6F82FF51468AEBE1A50BEAD20FBA44986FB9663B
 ```bash
 magnet:?xt=urn:btih:4896E1767D3BD7B11E0E5F76153911E26254CBA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:4896E1767D3BD7B11E0E5F76153911E26254CBA1
 magnet:?xt=urn:btih:5A73B8EF0C180DBFB4C6A9914FC64A09A626F381
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:5A73B8EF0C180DBFB4C6A9914FC64A09A626F381
 ```bash
 magnet:?xt=urn:btih:2981B190F58CB17A52C449F60F144914C6A8B879
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:2981B190F58CB17A52C449F60F144914C6A8B879
 magnet:?xt=urn:btih:2325C410993AFABE3B4C0FCE7FE3FEA7D5EE86B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:2325C410993AFABE3B4C0FCE7FE3FEA7D5EE86B4
 magnet:?xt=urn:btih:EFB06C67D2D7FAC78E117E0034AC23703253E855
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:EFB06C67D2D7FAC78E117E0034AC23703253E855
 ```bash
 magnet:?xt=urn:btih:6CBF887FC878F50498C7D76C3568F705E580FFD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:6CBF887FC878F50498C7D76C3568F705E580FFD4
 magnet:?xt=urn:btih:52F82619AFAF8F7B31FE9F1F8A42DC04478968A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:52F82619AFAF8F7B31FE9F1F8A42DC04478968A7
 ```bash
 magnet:?xt=urn:btih:051E35F03358225D82B47914A90B615AD3A917A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,29 +675,7 @@ magnet:?xt=urn:btih:051E35F03358225D82B47914A90B615AD3A917A7
 magnet:?xt=urn:btih:B34586AB1DB5F6BF1A263A1E80E6E8A64849B20E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065474   (416345) от 24.10.2016
-
-Скотт Адамс | Осколки Бога (2001) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга не попытка навязать вам новую религию, не очередная «теория всего», не сборник высшей мудрости. Она вообще ценна не столько своими ответами, сколько вопросами. Ответы же, по большей части, заведомо ложные. Эта книга позволяет взглянуть на многие вещи под необычным углом, заставляет задуматься, заставляет со скрипом проворачиваться заржавевшие шестеренки (   Читать дальше...   )Жанр: Философия, РелигияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DF42109231E6FA7D376C82E00ED6FD57655CDA0
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

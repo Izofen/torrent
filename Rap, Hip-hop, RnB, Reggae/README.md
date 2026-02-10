@@ -23,6 +23,8 @@ Ice Cube - Man Up (2025) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:7033697B6BB1D5C75FE32577111511CE9DC0CD9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ VA - Chillhop Essentials Fall (2025) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chi
 ```bash
 magnet:?xt=urn:btih:1FFEDA1F9AE742638A0C17CCD3DE50DD4CE90D6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -77,6 +81,8 @@ Slimus - Спокойной ночи, малыши, Часть 3 (2025) [MP3|320
 magnet:?xt=urn:btih:31403455C3D2FB020D922A73DAC147228E1783EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -104,6 +110,8 @@ King Diamond - Remember The Block (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 magnet:?xt=urn:btih:C3B9730D034F7A3D9D2B3F1DA27AE85EF791894B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ magnet:?xt=urn:btih:C3B9730D034F7A3D9D2B3F1DA27AE85EF791894B
 ```bash
 magnet:?xt=urn:btih:DD6554CA0E808AAC0EB93900D17C70140C41964A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -155,6 +165,8 @@ The Black Eyed Peas - Monkey Business (20th Anniversary Edition) (2025) [FLAC|Lo
 magnet:?xt=urn:btih:B8223D7F915CDA2CC400D3E52F7EFB93CFB50599
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +193,8 @@ VA - Chillhop Timezones Nigeria (2025) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 ```bash
 magnet:?xt=urn:btih:ED4943E0A6371F9572358613DABDE52F685E3147
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -209,6 +223,8 @@ Onyx - Lower East Side (2025) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
 magnet:?xt=urn:btih:3E9AF46A3108987D83AC1DE245EA71E9266A23D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +251,8 @@ VA - Chillhop Essentials Spring (2025) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 ```bash
 magnet:?xt=urn:btih:17AD176A864CD3C4168AB027472944FCA5C731FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +281,8 @@ Noize MC - Не все дома (2025) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:62A88652CE0991FFE8A853C1CE0066F7DA71DACF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +309,8 @@ Noize MC - Не все дома (2025) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-H
 ```bash
 magnet:?xt=urn:btih:A756898F44F7BE2BE8B170C1C0CCD9749026B774
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +339,8 @@ magnet:?xt=urn:btih:A756898F44F7BE2BE8B170C1C0CCD9749026B774
 magnet:?xt=urn:btih:663EF6B28FF2AC735BA48C675B45E203CD4A2CB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +367,8 @@ VA - Russian Rapcore Vol. 1-2 (2008-2009) [FLAC|Lossless|tracks + .cue] <Rapcore
 ```bash
 magnet:?xt=urn:btih:738EF9CB39186E433A560F44E31B97E2DF63A8CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +397,8 @@ VA - Chillhop Essentials Winter (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 magnet:?xt=urn:btih:DBF247529B64F69DEC5B58496C1CC1AE48E1C95C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +425,8 @@ magnet:?xt=urn:btih:DBF247529B64F69DEC5B58496C1CC1AE48E1C95C
 ```bash
 magnet:?xt=urn:btih:79A0099C222AEB52C3ACB544591B9A87AC4162D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +455,8 @@ Black Sheep - A Wolf in Sheep’s Clothing (1991) [FLAC|Lossless|tracks + .cue] 
 magnet:?xt=urn:btih:C344AE3F72C1FC515333AAE4128A26A815C103A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +484,8 @@ VA - Баллады Rap, RnB, Hip-Hop (2008) [WavPack|Lossless|image + .cue] <Po
 magnet:?xt=urn:btih:A14E4E268972AE5CDB4D245AF5A1BF4D573216D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +512,8 @@ Naomi Sharon - Obsidian (Extended) (2024) [MP3|320 Kbps] <R&B>
 ```bash
 magnet:?xt=urn:btih:DE2A9D884EAD8C05560ED2FC69D8EC6EEC8055CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +546,8 @@ magnet:?xt=urn:btih:DE2A9D884EAD8C05560ED2FC69D8EC6EEC8055CA
 magnet:?xt=urn:btih:7CFD25BCCC4BC55B4D9E980AE4982D1C8E1FC0EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +574,8 @@ magnet:?xt=urn:btih:7CFD25BCCC4BC55B4D9E980AE4982D1C8E1FC0EF
 ```bash
 magnet:?xt=urn:btih:BCC10240E7355B46FA60D42020889EC3EB8446F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +604,8 @@ VA - Chillhop Essentials Fall (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chi
 magnet:?xt=urn:btih:75981BA15BEFD238B2F8E630A763942D4D3ACBDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +632,8 @@ magnet:?xt=urn:btih:75981BA15BEFD238B2F8E630A763942D4D3ACBDD
 ```bash
 magnet:?xt=urn:btih:E52622B539AB4F2C7FC822B0440655153D11345F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +662,8 @@ Eminem - The Death of Slim Shady (Coup De Grace) (2024) Expanded Mourner’s Edi
 magnet:?xt=urn:btih:99C95E4EF12B502BE8FF24F188453997EF5FECED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +690,8 @@ magnet:?xt=urn:btih:99C95E4EF12B502BE8FF24F188453997EF5FECED
 ```bash
 magnet:?xt=urn:btih:C1E8F11D3DBB78E9EBE8E9A5C6A7A2F6A85B92E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -672,6 +720,8 @@ Eminem - The Death of Slim Shady (Coup De Grace) (2024) Expanded Mourner’s Edi
 magnet:?xt=urn:btih:8237F9567556C6B30C1942A1A4A237A5068F2E68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -698,6 +748,8 @@ magnet:?xt=urn:btih:8237F9567556C6B30C1942A1A4A237A5068F2E68
 ```bash
 magnet:?xt=urn:btih:2362476513DF9B58DDD5538A9FCF6F72E1AE0105
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

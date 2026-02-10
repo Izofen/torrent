@@ -19,6 +19,8 @@ Hans-Georg Schumann | Python für Kids: Programmieren lernen ohne Vorkenntnisse 
 magnet:?xt=urn:btih:E863188E394CE81050A35BD6132CB2B4C843785D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:E863188E394CE81050A35BD6132CB2B4C843785D
 magnet:?xt=urn:btih:D21D7026D62F2129DCA27529BDE20714FC0BFCB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:D21D7026D62F2129DCA27529BDE20714FC0BFCB8
 ```bash
 magnet:?xt=urn:btih:62817E1A552838AC005C32B1265E7B15B8BD5067
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:62817E1A552838AC005C32B1265E7B15B8BD5067
 magnet:?xt=urn:btih:B8EF76E7AE98BFBD947B3EC02C64954F1AE74FEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Marco Secchi | Multiplayer Game Development with Unreal Engine 5 (2023) [PDF][EN
 ```bash
 magnet:?xt=urn:btih:9122A4A2778D1FFD565EDF30B8002000747FC9D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Daniel Kusswurm | Modern X86 Assembly Language Programming, 3rd Edition (2023) [
 magnet:?xt=urn:btih:97567A957ED33DD5BC847DEF7ED6C399B2148747
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:97567A957ED33DD5BC847DEF7ED6C399B2148747
 ```bash
 magnet:?xt=urn:btih:F9CFD8182C59A9C696C57260D00BDD4936A8642C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:F9CFD8182C59A9C696C57260D00BDD4936A8642C
 magnet:?xt=urn:btih:CADB6B856AF4485178393C43DA1D63DB65F0D3B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:CADB6B856AF4485178393C43DA1D63DB65F0D3B7
 ```bash
 magnet:?xt=urn:btih:FC7CEF840E30E25ECF2ED05C0C5A979CD7C1DBB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:FC7CEF840E30E25ECF2ED05C0C5A979CD7C1DBB7
 ```bash
 magnet:?xt=urn:btih:C11D8514D2057FDDD2CDF97169151DB6ECE9189E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ Pablo David Garaguso | Vue.js 3 Design Patterns and Best Practices (2023) [PDF][
 magnet:?xt=urn:btih:230E3B5F1F46D10524F7B2CE6A47CFF9F62FAD28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:230E3B5F1F46D10524F7B2CE6A47CFF9F62FAD28
 ```bash
 magnet:?xt=urn:btih:970953ABD0556B80A2E7A8A9EC58B8F31F184CCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:970953ABD0556B80A2E7A8A9EC58B8F31F184CCC
 magnet:?xt=urn:btih:8376CEC3B7EA3D2BDDFB06101D72A5FDDC025589
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Juntao Qiu | Test-Driven Development with React and TypeScript, 2nd Edition (202
 ```bash
 magnet:?xt=urn:btih:2DBB955CF6F62306C14E1DD91B949FDC9365A6B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ Vaskaran Sarcar | Simple and Efficient Programming with C#, 2nd Edition (2022) [
 magnet:?xt=urn:btih:90F0F177F7BD675CA48B5DA99526EB020A5C294F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:90F0F177F7BD675CA48B5DA99526EB020A5C294F
 ```bash
 magnet:?xt=urn:btih:8C0F352C3D1453983FE6E347D8E6A42AF90DFB3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:8C0F352C3D1453983FE6E347D8E6A42AF90DFB3C
 magnet:?xt=urn:btih:7A5E6346BD02C3098DBF8B5B782A53F6919D0248
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Mustafif Khan | Rust for C++ Programmers (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:9D31BD1354CA9BCAE97DA238E9F60C343BF98B80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ Yong Cui | Python How-To (2023) [PDF][EN]
 magnet:?xt=urn:btih:6D05DD748DEA76D03FF036340F54DBEBDFB31E7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ Anthony Onyekachukwu Okonta | React.js Design Patterns (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:EC11F295EBE5DFFCD017C0533AB0E35CB8F0E4ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:EC11F295EBE5DFFCD017C0533AB0E35CB8F0E4ED
 magnet:?xt=urn:btih:8A2CEA9F5651D24FF1A59DBE47537ECDA46CF281
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ Pradeepta Mishra | PyTorch Recipes, 2nd Edition (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:E290060FB313E16896B12E0D03A8A8397062CA44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:E290060FB313E16896B12E0D03A8A8397062CA44
 magnet:?xt=urn:btih:3865181AA90C19E6F5985E313062706FB66F85D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Ali Madani | Debugging Machine Learning Models with Python (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:8CE0CEFED6D7846CDB4ED3E718DB1D6DE4659326
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ Jonathan Bartlett | Programming for Absolute Beginners (2022) [PDF][EN]
 magnet:?xt=urn:btih:332CDD21EC4F523529794F1B9F66E75698D77E86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Alexander Shuiskov | Microservices with Go (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:ACF6D0F8C720CCC6F901D16FE9F97EB7C89C5CA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

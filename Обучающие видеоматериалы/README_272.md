@@ -20,6 +20,8 @@ Udemy, ZTM, Andrei Neagoie и др. | Complete Ethical Hacking Bootcamp 2021: Ze
 magnet:?xt=urn:btih:13F13EC25C0B3B75E0278A4B813FF55BAEC089B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ ZTM, Andrei Neagoie и др. | Complete Vue Developer in 2021 (w/ Vuex, Composit
 magnet:?xt=urn:btih:F82B52673269AE76DF61B482AC4C9EAF8D875CF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Udemy, Yuko Sakai и др. | Algorithms + Data Structures + Coding Interviews wi
 ```bash
 magnet:?xt=urn:btih:99AF5C548C1A438E148A743E050BF189824EDC21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ Udemy, David Bombal | Cisco CCNA 200-301 Exam: Complete Course with practical la
 magnet:?xt=urn:btih:21B2BB0F2EC0E08263C645FBED75DDA51F48D57B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Udemy, Muslim Helalee | JavaScript Developer Bootcamp in 2021 - Beginner to Expe
 ```bash
 magnet:?xt=urn:btih:8B43F99890BF2CC21AE2DD3FB709AA178A981D53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ Udemy, Emilio Aguero | Learn Active Directory & Group Policies - Win Server 2019
 magnet:?xt=urn:btih:BA749290CD57414BEF7BEEA54B7BD1DA15FB34D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Udemy, Tib3rius | Повышение привилегий Linux для OSCP / Li
 ```bash
 magnet:?xt=urn:btih:3EBB685A91B41E3100E1864E46E6A699594B45F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:3EBB685A91B41E3100E1864E46E6A699594B45F0
 ```bash
 magnet:?xt=urn:btih:6DB149B0D78FC325808F254ECA7B44C3F2DDD09A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:6DB149B0D78FC325808F254ECA7B44C3F2DDD09A
 magnet:?xt=urn:btih:666643408D706A92ADAA5AA34A81F3B88B7D29C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ Skillbox, Илья Николаев  и др. | Веб-аналитик с ну�
 magnet:?xt=urn:btih:A4202A1C8C91DC976F94302C1A6185286FA76567
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:A4202A1C8C91DC976F94302C1A6185286FA76567
 ```bash
 magnet:?xt=urn:btih:A57C14160CB96623F8728FB1E0DC27625952DC39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ Chocofur, Lech Sokolowski | Секреты визуализации интерь
 magnet:?xt=urn:btih:828AE92164CB41C71C7DC84E7D67779FF6C23385
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ OTUS, Алексей Цыкунов | Администратор Linux. Углу
 magnet:?xt=urn:btih:32A598EE0AE05293ECBFF2631F2779C01299D293
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ Manga Art School - это 2-6-недельный видеокурс для об�
 ```bash
 magnet:?xt=urn:btih:7B1EA51E0A4C04CC7ACC6A08D40523057F4B478B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ DryLabs, Николай Марков | Python как движущая сила �
 ```bash
 magnet:?xt=urn:btih:62E29EB57A1845012622B453858CD4A2613E302A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ DryLabs, Никита Соболев и др. | Устройство и прим
 magnet:?xt=urn:btih:1DD83E8D685BA8FA1D76CC90368A37758AC1E0C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ Art & Science of Drawing - замечательная программа, кот
 ```bash
 magnet:?xt=urn:btih:31DB7DAA7764C405A0F9078E38221498365BE8A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +486,8 @@ Udemy, Derek Banas | Python Programming Bootcamp (2021) PCRec [En / En Sub]
 magnet:?xt=urn:btih:F94D4B74E997AEB638A43137AE4A92F580F1C256
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ Udemy, Zaid Sabih и др. | Learn Social Engineering From Scratch (2021) PCRec 
 ```bash
 magnet:?xt=urn:btih:CC7A6B610CC38F7FD41F114503D02EAB5A975993
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +540,8 @@ Laravel - это надежный и простой для понимания PH
 magnet:?xt=urn:btih:BA188E80D41C9078384AE3F7A782E6199123FF9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +568,8 @@ VoluMax 6 - 3D Photo Animator для After Effects - это просто луч�
 magnet:?xt=urn:btih:305DD5894626FA97708AFB3943DE37255475C612
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +595,8 @@ Udemy, IT Security Academy и др. | Hacking in Practice: Intensive Ethical Hac
 magnet:?xt=urn:btih:7EE25619E32B8B8DD106B6F0F9BEF0272AD54E84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +620,8 @@ FastAPI ворвался на веб-сцену Python. Фактически, о
 ```bash
 magnet:?xt=urn:btih:DD09FAEB4934720045734D39029C0A15EE061669
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +647,8 @@ Udemy, Zach LaCourse | Fullstack GoLang React Insanity Volume 2  (2021) PCRec [E
 magnet:?xt=urn:btih:A01C819CA700AB8BE3B14B68F05ADE3C2DF82F29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +672,8 @@ Udemy, Anushka Madusanka | Android Jetpack, Clean Architecture & Testing Masterc
 ```bash
 magnet:?xt=urn:btih:F3335F506D9169ADE6F0EDB927FDC84FF8B51486
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +699,8 @@ Talkpython, Sebastian Witowski | Modern Python Projects Course (2021) PCRec [En 
 ```bash
 magnet:?xt=urn:btih:9CB24B6209C8561D7CF584E47BC6CE9B39932164
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

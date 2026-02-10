@@ -19,6 +19,8 @@ QuarkXPress 2023 v19.2.1.55827 [Multi/Ru]
 magnet:?xt=urn:btih:2A777AFDEFD709F38C78A0993E8E3B8171C384B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ FloEFD – представляет собой пакет инструменто
 ```bash
 magnet:?xt=urn:btih:52CCA2BC9C882012913CDF11AAFB11CE1D9F21E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Autodesk DWG TrueView - удобная программа для просмот�
 magnet:?xt=urn:btih:6D60DDB3AEBFCBEC9B3457B126DE05893453EF0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ IRONCAD - это доступное и мощное программное об�
 ```bash
 magnet:?xt=urn:btih:24689352129627531505B29BB71BD778A575949C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ VectorWorks Design Suite 2023 SP4 [En]
 magnet:?xt=urn:btih:9205994DF69D3C1E24811E56FEE3DD2F3968F541
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ OrCAD Capture PSpice Lite 17.2 [En]
 magnet:?xt=urn:btih:924DBE1716A8A152B747CFA456FA217679D5B8C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Simulia Abaqus 6.13-1 [En]
 ```bash
 magnet:?xt=urn:btih:D14425C7C1ECACA4780728B22428142AA599935B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ SIMetrix/SIMPLIS 8.40 [En]
 magnet:?xt=urn:btih:6D1F62613CB75773F164A7D6E65219B8C80AD098
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Micro-Cap 12.2.0.5 [En]
 ```bash
 magnet:?xt=urn:btih:EA5A91ABFFDA8F7D135C00B6F44BA3664642752B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Circuit Design Suite помогает проектировать схемы с �
 magnet:?xt=urn:btih:A231C2F9728869E286F1FFBAC96DD8C56AC2A25E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Altium CircuitStudio — это простое и мощное программ�
 ```bash
 magnet:?xt=urn:btih:BF98E6DF65A0663946983295E0A9D0C24CD80114
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ Pulsonix - интегрированная среда разработки с и�
 magnet:?xt=urn:btih:03CFFCD029198424C12B1695BF2ADE215289D71A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ AWR Design Environment 17.02R Build 17492 Rev2 [En]
 ```bash
 magnet:?xt=urn:btih:3579568A10A50DC32620DD941C298B0EB252F567
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ LeoCAD 23.03 [En]
 magnet:?xt=urn:btih:C619712F60E7EEE7463E152155CE791407439F32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ CADopia - это мощная программа автоматизирован�
 ```bash
 magnet:?xt=urn:btih:D8DA5F90719FEF2E6B1AFF578040B5DE44397C38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:D8DA5F90719FEF2E6B1AFF578040B5DE44397C38
 magnet:?xt=urn:btih:EF14B4F37F5BD72FFF6105AC29C006A3656B5200
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ QuestaSim - это продвинутый симулятор для верифи
 magnet:?xt=urn:btih:BBD70701E3A4B69F2CFBF9A7FF13894A8E2522EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Mentor Graphics ModelSim 2020.4 [En]
 ```bash
 magnet:?xt=urn:btih:9D6FF04B0A394CDF50C5DEEB1961106E009FCEF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ Genesys - программное обеспечение для проектир�
 magnet:?xt=urn:btih:B84CCE1A0A10E6D57FCDD73125021A4FA9D442C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ Avia Systems - Scan2CAD 10.4.16 Repack by F4CG [En]
 ```bash
 magnet:?xt=urn:btih:83A0C3CEA873B13538821887A767897E7EA30914
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ HyperLynx® – прорамный комплекс от Mentor Graphics®, ко
 magnet:?xt=urn:btih:EA58546043F7E3379CF7985A25A8D37D35BDAC20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ Infolytica MagNet является передовым пакетом для мо
 ```bash
 magnet:?xt=urn:btih:976C3363A6A505FF228B56E448B0BBF3413A0F64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ CABINET VISION — это решение для проектирования и 
 magnet:?xt=urn:btih:57F8E0F56401BC39F4E0D7AB8813588CBB907016
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ WiseImage — мощный интеллектуальный редактор и 
 ```bash
 magnet:?xt=urn:btih:3D32DA658165E4A249D85D333D42857010DE1471
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ Gstarsoft GstarCAD 2016 Build 151116 (x64) [Ru/En]
 magnet:?xt=urn:btih:69443F40538C8E1C472862F030BED2A35F34031B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Geomagic Control X – это профессиональное программ�
 ```bash
 magnet:?xt=urn:btih:F3563C85E9BAA8233D6494231F3190353D030FF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

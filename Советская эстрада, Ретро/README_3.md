@@ -28,6 +28,8 @@ VA - British Rock N' Roll Anthology (1956-1964) 5 CD's Box Set (2009) [MP3|320 �
 magnet:?xt=urn:btih:190661A9B788AFBC9EF1F0E2F9FF2C805B5ED743
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -56,6 +58,8 @@ VA - Золотой фонд. Кумиры прошлых лет 24 CD (1996-200
 magnet:?xt=urn:btih:ABEBB4277DC9F4FD4BDECC7C27039174DF4348E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -82,6 +86,8 @@ VA - И Просится Сердце В Полёт... (Аэрофлоту - 75)
 ```bash
 magnet:?xt=urn:btih:5D5DDCBB3840A4318653372EE26D20E85B746A1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -110,6 +116,8 @@ magnet:?xt=urn:btih:5D5DDCBB3840A4318653372EE26D20E85B746A1D
 magnet:?xt=urn:btih:43ED0AB13ACCEC810DB7472C4B4D888B86DA7D09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -133,6 +141,8 @@ magnet:?xt=urn:btih:43ED0AB13ACCEC810DB7472C4B4D888B86DA7D09
 ```bash
 magnet:?xt=urn:btih:80681370F8807F1D49A7731CADFA537F6ED097CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +170,8 @@ magnet:?xt=urn:btih:80681370F8807F1D49A7731CADFA537F6ED097CC
 ```bash
 magnet:?xt=urn:btih:58E6E35AC5B309912AE3AD0A90C8B5DD59B1E90B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +206,8 @@ VA - 80 Greatest Songs of All Times (2012) [MP3|320 кб/с]<Rock N Roll, Rock. 
 magnet:?xt=urn:btih:7B0A99543CE7CF206BCAB1767481423D4B73B9A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +231,8 @@ VA - Дискотека у патефона. Музыка 30-40 годов (Vol.
 ```bash
 magnet:?xt=urn:btih:9D3722713C8F6EABDC133CA9195A22CFADC71584
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +266,8 @@ VA - Русская Дискотека СССР (2012) [MP3|187-192 кб/с]<Pop
 ```bash
 magnet:?xt=urn:btih:F5CE89EF2A4613599CB2635D2B740AB733F656F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +311,8 @@ Adriano Celentano - Le storie di Adriano (2011) [MP3|320 кб/с]<Pop, Rock'n'Ro
 magnet:?xt=urn:btih:72E600BA154053DCB937F097423B0460731D035A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +346,8 @@ VA - Pure 60's ... (2012) Collection BoxSet 4CD[MP3|320 кб/с]<Pop, Rock, Olde
 magnet:?xt=urn:btih:8251262F1D18663EED73E67E21DEE8EF7513CC00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +374,8 @@ magnet:?xt=urn:btih:8251262F1D18663EED73E67E21DEE8EF7513CC00
 ```bash
 magnet:?xt=urn:btih:5BC28AC7E1449851BCA4957E6D609047115E8D2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +410,8 @@ magnet:?xt=urn:btih:5BC28AC7E1449851BCA4957E6D609047115E8D2D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +444,8 @@ magnet:?xt=urn:btih:5BC28AC7E1449851BCA4957E6D609047115E8D2D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +480,8 @@ VA - Wow That Was The 70's (1999) BoxSet 8CD[MP3|320 кб/с]<Pop, Rock, Oldes, 
 magnet:?xt=urn:btih:B606860953773BD18CD34540C4F252786FE6ACC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +514,8 @@ VA - Testament Van De Sixties 1960-1969 (10CD) (2007) [MP3|320 кб/с]<Blues, F
 ```bash
 magnet:?xt=urn:btih:853CD5C1D12BC8B9766E90E7DC94856AB14AE5D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +550,8 @@ VA - Die Coolen 80er (2004) [MP3|320 кб/с]<Pop, Dance, Oldes>
 magnet:?xt=urn:btih:C6880411D5AAADB3F82D9C8D15C7FEC15A7278E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +584,8 @@ VA - The Best Of Italo Disco - Живая классика (2012) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:C57971D06587C76A6DBAE2C9A29EA01EFE642854
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +629,8 @@ CD 1
 magnet:?xt=urn:btih:28E27A0666F739A2DAC2AC7D9C393ED4720B8FDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +655,8 @@ VA - Golden Retro Hits (4х2CD) (2012) [MP3|320 кб/с]<Pop, Retro>
 magnet:?xt=urn:btih:46D808C88FE8583C87C854C72914F81B40903A48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +680,8 @@ VA - Star Hit. 80-e возвращаются (2011) [MP3|320 kbps]<Pop,Dance>
 ```bash
 magnet:?xt=urn:btih:81F1E3816F0FFF822772AEDB78DDEB8B1A160D55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +709,8 @@ magnet:?xt=urn:btih:81F1E3816F0FFF822772AEDB78DDEB8B1A160D55
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -701,6 +745,8 @@ VA - Лучшее из 90-х (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:DF5AE36D9FC713751E18DCBD9B433C98DFD0335C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -727,6 +773,8 @@ magnet:?xt=urn:btih:DF5AE36D9FC713751E18DCBD9B433C98DFD0335C
 ```bash
 magnet:?xt=urn:btih:67F0772D4C493D0440DAC6FEBFDC8CC44BF80C1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -761,6 +809,8 @@ magnet:?xt=urn:btih:67F0772D4C493D0440DAC6FEBFDC8CC44BF80C1E
 magnet:?xt=urn:btih:53A19B8B8CB3319D799167A5C37DE45E256B9346
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -793,6 +843,8 @@ VA - Наша Родина - СССР [3CD] (2012) [MP3|320 кб/с]<Ретро,
 ```bash
 magnet:?xt=urn:btih:7BAEFF40C7E2557EA357E03830D5426E29687B37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:8D9D2DB7FFF405F54E9BDBA88CFAC2F73ABC6C37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Ore dake Level Up na Ken: Arise from the Shadow | Solo Leveling: Arise from the 
 ```bash
 magnet:?xt=urn:btih:F6A0A23C1C1A58F58E4D288861AD7B77A2FC6AE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:F6A0A23C1C1A58F58E4D288861AD7B77A2FC6AE0
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:F6A0A23C1C1A58F58E4D288861AD7B77A2FC6AE0
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:F6A0A23C1C1A58F58E4D288861AD7B77A2FC6AE0
 magnet:?xt=urn:btih:BB6E17A3094920D78D10833079BAD41A9278E870
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Guild no Uketsukejou Desu ga, Zangyou wa Iya nano de Boss o Solo Toubatsu Shiyou
 ```bash
 magnet:?xt=urn:btih:FDBBC2AE870F61D3E4FF2E4435D0AB9CE42F9033
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:FDBBC2AE870F61D3E4FF2E4435D0AB9CE42F9033
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:FDBBC2AE870F61D3E4FF2E4435D0AB9CE42F9033
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Win 10 Tweaker – это небольшая, но очень мощная пр�
 magnet:?xt=urn:btih:8828FDB22D6F05E36C3AF5D305E6193C6980E288
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:8828FDB22D6F05E36C3AF5D305E6193C6980E288
 ```bash
 magnet:?xt=urn:btih:607650977DA7CE71106ADE4B76F77FA93FEA64C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:607650977DA7CE71106ADE4B76F77FA93FEA64C7
 magnet:?xt=urn:btih:278DD69C633B90885B94295528A6B4071085AD4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:278DD69C633B90885B94295528A6B4071085AD4A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ AutoCAD – это больше, чем проектирование. Прида
 magnet:?xt=urn:btih:A5914A46868167CE861DAAD3F7CA06083898A782
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:A5914A46868167CE861DAAD3F7CA06083898A782
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:A5914A46868167CE861DAAD3F7CA06083898A782
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl / S.T.A.L.K.E.R.: Сердце Черноб
 ```bash
 magnet:?xt=urn:btih:6CF174C61E6AFAE5474D400FD1FBBED429D01F9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ Launcher for zapret 2.5 [Ru/En]
 magnet:?xt=urn:btih:9F58E7A56F047DB3E630FCBC730920FA21066FD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:9F58E7A56F047DB3E630FCBC730920FA21066FD8
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:9F58E7A56F047DB3E630FCBC730920FA21066FD8
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:9F58E7A56F047DB3E630FCBC730920FA21066FD8
 magnet:?xt=urn:btih:B5C0B253BC3E7483955AD55C8F29BB5FB0D69488
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ Red Faction: Guerrilla Re-Mars-tered (2018) [Ru/Multi] (1.0 Fix) License GOG
 ```bash
 magnet:?xt=urn:btih:4ADDD79DF9CEEB5E71C59AB6389B0F7792D234D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ Windows 10 x64 20in1 (incl. LTSC) +/- Office 2024 x64 by SmokieBlahBlah 2025.03.
 magnet:?xt=urn:btih:C87FAC5B699D581DCCACFFEADA1387435A8B5515
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ magnet:?xt=urn:btih:C87FAC5B699D581DCCACFFEADA1387435A8B5515
 ```bash
 magnet:?xt=urn:btih:6B77FC9AC4917228A48E735B7717EDDC1FB2380C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:6B77FC9AC4917228A48E735B7717EDDC1FB2380C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ magnet:?xt=urn:btih:6B77FC9AC4917228A48E735B7717EDDC1FB2380C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ magnet:?xt=urn:btih:6B77FC9AC4917228A48E735B7717EDDC1FB2380C
 ```bash
 magnet:?xt=urn:btih:3EB9D550510344584D1CD059316DF9EBD66C6603
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ AlterPDF Pro - программа может стать лёгким прогр�
 magnet:?xt=urn:btih:C427F94DE6284CF9E765FA99A67EAAB95494A3A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 ```bash
 magnet:?xt=urn:btih:1B26EB6D4B777B161754E7E102CCD24D157F1615
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ WeBuilder – редактор веб-страниц с подсветкой с�
 magnet:?xt=urn:btih:FE4038359CC6356D9BE774F0A29D252982F62DD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ save2pc Ultimate - это простая в использовании прог�
 ```bash
 magnet:?xt=urn:btih:9FAA6714661B8E726AE50FDD8B06895504C995F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Directory Lister - полезная программа, которая позв�
 magnet:?xt=urn:btih:A86E456CF989AAFA13BEEF480BD375AD30C204A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Directory Lister - полезная программа, которая позв�
 ```bash
 magnet:?xt=urn:btih:E0C64FB846F9F618F5946F6820C316E40C592ABF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ MiPony Pro 3.2.2 [Multi/Ru]
 magnet:?xt=urn:btih:4E09D2C99BBD1A0CA4D392EE7451F66863C4288B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Dual Monitor Auto Mouse Lock - это инструмент, который по�
 ```bash
 magnet:?xt=urn:btih:5BEE61F034E8C857F30FB44CA4A1CF8BE55AFD7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ LogViewPlus значительно облегчает просмотр запи�
 magnet:?xt=urn:btih:5F13BA8C4E23641A596F82E7DB8CA72A0AC2AD94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ HitPaw Screen Recorder — популярная программа, разраб
 magnet:?xt=urn:btih:405E1501DE5B7F82DA8F60C708BBD10C83DFB79B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Windows 11 PC Health Check 3.5.220404001-s2 [Ru]
 ```bash
 magnet:?xt=urn:btih:3BFC3EBDAB018F8056B9B4841250A8C859830877
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Transcend Elite – компания-разработчик устройств �
 magnet:?xt=urn:btih:7DA06247EDE14B6226024325DD1419B5F219E0D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Screen Capture — это популярное и простое в исполь
 ```bash
 magnet:?xt=urn:btih:04B8A503B30E9145EEBF6637875CF9DF43283A76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ R.saver — инструмент для восстановления удале�
 magnet:?xt=urn:btih:D6B0A759002B2342BE406280BCC0029B56409968
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ MDaemon дает следующие возможности: - Связь по э
 ```bash
 magnet:?xt=urn:btih:07FDAFC42959F3A61AC0F62292F4A148066906BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ BrowsingHistoryView (Portable) — небольшая программа, кот
 magnet:?xt=urn:btih:AF63B8E4A463CD0CE9D81E59BBBBD11EDC581EB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:AF63B8E4A463CD0CE9D81E59BBBBD11EDC581EB9
 magnet:?xt=urn:btih:B2CA79DF67370BE6E699A8FED88D6F774DFB9CE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ AnyDesk 9.6.4 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:96BABA831EB073F44787111D117080D3B8F76CA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ O&O Defrag Professional – инструмент дефрагментации д
 magnet:?xt=urn:btih:133407827C0E642AF6CB6C1F3C3CD7F56B776C2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ O&O DiskImage Professional позволяет создавать резервн�
 ```bash
 magnet:?xt=urn:btih:F6DFF053CE9834CDB8A9D201BECA313CE1AC4294
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ WinRAR - один из самых известных архиваторов. Т�
 magnet:?xt=urn:btih:E0D2031F3D97727E823374E7AB236EE5A6D48036
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ WinDjView Extended — это быстрая и удобная свободно 
 ```bash
 magnet:?xt=urn:btih:1F754D4FC0E062BAEA7D2035C6638EA0E9B8361A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ DBF Converter — узкоспециализированный программ�
 magnet:?xt=urn:btih:6EAB85C306C397A42CCB83ECD14F228D1D4BEC2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ SupRemo 4.11.6.2928 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:29CC8E02B84382659C4A0649CB8A227F4402DB75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ DBF Viewer 2000® - приложение для просмотра и редак
 magnet:?xt=urn:btih:BCA890979206289FA89E2C00DC45A381E127C074
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ Ashampoo WinOptimizer 28.00.20 Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:33657C658EB13F10084017EAB7D87086682A754D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

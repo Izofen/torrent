@@ -22,6 +22,8 @@ Kvaen - The Great Below (2022) [FLAC|Lossless|image + .cue] <Black, Pagan, Vikin
 magnet:?xt=urn:btih:0359177A3807E79E8D59D4663503D24E20D73D9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ iTubeGo YouTube Downloader Pro 5.3.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:1709AD83EBD36E2DD75E81AC1044A5953835E765
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Fever Ray - Radical Romantics (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Ex
 magnet:?xt=urn:btih:CAE5C0A0DAE9293D960DB28543880B44D5BBFDAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:CAE5C0A0DAE9293D960DB28543880B44D5BBFDAE
 ```bash
 magnet:?xt=urn:btih:97108F51572550A5F1FD07638B79EA9966A58A2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ VueScan - программа для работы со сканерами HP, Min
 magnet:?xt=urn:btih:7BD418E73E37311F31A05683EE90C70B9C379EA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Girls` Frontline | Dolls` Frontline | Девушки на линии фронт�
 ```bash
 magnet:?xt=urn:btih:B8C8598F82CDDCEAE5E0209D5A6DA73E5A23BB23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ Girls` Frontline | Dolls` Frontline | Девушки на линии фронт�
 magnet:?xt=urn:btih:BCDF9939B276FF9BF1D711FE6FDF95585E216E05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ ByClick Downloader (бывший YouTube By Click) - отличный и удо�
 ```bash
 magnet:?xt=urn:btih:ADB9E0E38F8D70CD111EA42A3D2928E2ED166363
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:ADB9E0E38F8D70CD111EA42A3D2928E2ED166363
 ```bash
 magnet:?xt=urn:btih:E00F974CE0B66521182F125DAEA7E62090A0E452
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ Masterplan — немецкая пауэр-метал-группа. Основа
 magnet:?xt=urn:btih:291A23F2DD4AD8CFE4BF7813505338E04ED4B06E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:291A23F2DD4AD8CFE4BF7813505338E04ED4B06E
 magnet:?xt=urn:btih:6EA64FD7F97E08B4BC8F3C296DCF8303A4195F2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:6EA64FD7F97E08B4BC8F3C296DCF8303A4195F2F
 ```bash
 magnet:?xt=urn:btih:2A809121E3DAFF162BA6AEC973C379950BF46630
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ Near Dark - One Day (1998) [FLAC|Lossless|image + .cue] <Gothic Metal>
 magnet:?xt=urn:btih:7256474A9209ABB397836C5569B8E1CCEE9A8383
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:7256474A9209ABB397836C5569B8E1CCEE9A8383
 ```bash
 magnet:?xt=urn:btih:A4AC1DE3C384FF8B21129330CAC3CC735C67C71D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:A4AC1DE3C384FF8B21129330CAC3CC735C67C71D
 magnet:?xt=urn:btih:68F015C8AA7E2227AEECF30E738DDBB43AA75810
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:68F015C8AA7E2227AEECF30E738DDBB43AA75810
 ```bash
 magnet:?xt=urn:btih:39CE892855FC15604C093EE25CA8C41679B561B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:39CE892855FC15604C093EE25CA8C41679B561B4
 magnet:?xt=urn:btih:B40A802977BC12FE7B6E5C2FFA2F9627A8B51293
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:B40A802977BC12FE7B6E5C2FFA2F9627A8B51293
 ```bash
 magnet:?xt=urn:btih:22E4836669D85AED2F678B5D2F8F84835096A111
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ magnet:?xt=urn:btih:22E4836669D85AED2F678B5D2F8F84835096A111
 magnet:?xt=urn:btih:4146857E9CFE4115F02CCC6F6A1AAF8919557E6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ magnet:?xt=urn:btih:4146857E9CFE4115F02CCC6F6A1AAF8919557E6C
 ```bash
 magnet:?xt=urn:btih:F0AA4BD27D35611766415AC29569A9F5ABB9EB6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +556,8 @@ PSPad — текстовый редактор с расширенными фун
 magnet:?xt=urn:btih:F6187D65BA0E4A61313865E61E6A10C7786E676C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +581,8 @@ magnet:?xt=urn:btih:F6187D65BA0E4A61313865E61E6A10C7786E676C
 ```bash
 magnet:?xt=urn:btih:6906FB5C832270B333020CCDFF6B8FC932F7A21E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +608,8 @@ magnet:?xt=urn:btih:6906FB5C832270B333020CCDFF6B8FC932F7A21E
 magnet:?xt=urn:btih:16E6D1BF53E4848791A42622BE15DF23097310C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +633,8 @@ magnet:?xt=urn:btih:16E6D1BF53E4848791A42622BE15DF23097310C5
 ```bash
 magnet:?xt=urn:btih:F7A076C91B0861A588AEFDFA429ECECAA5CBCA9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +660,8 @@ magnet:?xt=urn:btih:F7A076C91B0861A588AEFDFA429ECECAA5CBCA9B
 magnet:?xt=urn:btih:865D5A89540809E4F05FC900C1C916347137F1E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ magnet:?xt=urn:btih:865D5A89540809E4F05FC900C1C916347137F1E4
 ```bash
 magnet:?xt=urn:btih:0DD527CCBDF71B9590D8002450BECF2A902B3E9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

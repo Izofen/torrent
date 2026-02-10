@@ -1,3 +1,29 @@
+###  Публикация: 1562601   (508939) от 09.07.2022
+
+Крамб / Crumb (1994) BDRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм об авторе андерграундных комиксов Роберте Крамбе, творчество которого включало в себя навязчивые сексуальные идеи, социальную критику и личные наблюдения за странностями человеческой психологии.Производство: США, Superior PicturesЖанр: документальный, комедия, биографияРежиссер: Терри ЦвигоффПеревод: многоголосый профессиональный (24 ДОК)Субтитры: русские (на места без озвучки), русские (полные), английскиеПродолжительность: 02:00:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FB37AEE6E1112975F0881AAB909A94D7CB4FAD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932514   (509090) от 29.08.2015
 
 Экстрасенсы ведут расследование. Сезон №6 (2015.08.29) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:465817FB584C7FEBB2E76E55E9B6E94A849FBAB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:465817FB584C7FEBB2E76E55E9B6E94A849FBAB7
 magnet:?xt=urn:btih:42F75A1360CAEB4849B55845A1B5CA38CABCACAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:42F75A1360CAEB4849B55845A1B5CA38CABCACAB
 ```bash
 magnet:?xt=urn:btih:2FB81995ABF839A90F9BFB1BA6B737DB2A66AD37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:2FB81995ABF839A90F9BFB1BA6B737DB2A66AD37
 magnet:?xt=urn:btih:BEA0CB10E92B2DD3B04C8299F3E1FDA3EE29EE74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:BEA0CB10E92B2DD3B04C8299F3E1FDA3EE29EE74
 ```bash
 magnet:?xt=urn:btih:5C9B496B613CF684CB3260212B1236423057DB2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:5C9B496B613CF684CB3260212B1236423057DB2C
 magnet:?xt=urn:btih:A42120E0552B85FA0C74104D99D966E352D2DF8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:A42120E0552B85FA0C74104D99D966E352D2DF8D
 ```bash
 magnet:?xt=urn:btih:EBD072589FD565CFA998F26A6D6FE61290A9BBDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:EBD072589FD565CFA998F26A6D6FE61290A9BBDF
 magnet:?xt=urn:btih:0189957084211805B35BBEC7B49C7E5FAD1DAE5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:0189957084211805B35BBEC7B49C7E5FAD1DAE5B
 ```bash
 magnet:?xt=urn:btih:734876D1BF7C5738759B83DF3A6705880C48A994
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:734876D1BF7C5738759B83DF3A6705880C48A994
 magnet:?xt=urn:btih:05813A10E9D8F67B656E58A78D298AC0941869D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ Nat Geo Wild: Дикая Америка: Падальщики Йелоустоу
 ```bash
 magnet:?xt=urn:btih:826E42E4EE62E2646EB79A7D282DB78292F33A78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:826E42E4EE62E2646EB79A7D282DB78292F33A78
 magnet:?xt=urn:btih:C33E24D00837AF7160A14F0AD7A126460B9D79D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:C33E24D00837AF7160A14F0AD7A126460B9D79D6
 ```bash
 magnet:?xt=urn:btih:173B8877282564057677590C0A849F9DBEB20310
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:173B8877282564057677590C0A849F9DBEB20310
 magnet:?xt=urn:btih:2B549CE350DF6A3F013F78260467A554E26C337C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:2B549CE350DF6A3F013F78260467A554E26C337C
 ```bash
 magnet:?xt=urn:btih:DCC03843B2EB36C047524E52EF1FBFA82AC8D317
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:DCC03843B2EB36C047524E52EF1FBFA82AC8D317
 magnet:?xt=urn:btih:1F1B1BDD55DB3599FA1EAE8F2782E9F84550B737
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:1F1B1BDD55DB3599FA1EAE8F2782E9F84550B737
 ```bash
 magnet:?xt=urn:btih:72B063F960AF8EE3FBC5BB2B28FFE076E8720119
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:72B063F960AF8EE3FBC5BB2B28FFE076E8720119
 magnet:?xt=urn:btih:4694957723B15BB2316190185285518AD00F3A6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:4694957723B15BB2316190185285518AD00F3A6B
 ```bash
 magnet:?xt=urn:btih:5A05B3620817F37F4F68D483F9D86E33C9E1E034
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:5A05B3620817F37F4F68D483F9D86E33C9E1E034
 magnet:?xt=urn:btih:DA66F9E7FE7373666E3C2E052268676EB18396ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:DA66F9E7FE7373666E3C2E052268676EB18396ED
 ```bash
 magnet:?xt=urn:btih:1E990F55607A18B86B8AE834E1ACBFC4D21B0680
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +600,8 @@ magnet:?xt=urn:btih:1E990F55607A18B86B8AE834E1ACBFC4D21B0680
 magnet:?xt=urn:btih:3BC9E867F2F6BB9FFEA25EA7DDFF8E14FB30B66D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:3BC9E867F2F6BB9FFEA25EA7DDFF8E14FB30B66D
 magnet:?xt=urn:btih:B48C4F2F2F40E548734FFBDB55429EF3EF1A6634
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +651,8 @@ magnet:?xt=urn:btih:B48C4F2F2F40E548734FFBDB55429EF3EF1A6634
 ```bash
 magnet:?xt=urn:btih:85FEF89104DE7E69766F0F26517D060A5DF80D99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,30 +680,7 @@ magnet:?xt=urn:btih:85FEF89104DE7E69766F0F26517D060A5DF80D99
 magnet:?xt=urn:btih:88EE84EB8314E2493FC4F94BD566D544B45B8AC0
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931848   (510780) от 27.08.2015
-
-Легенда "Интердевочки" (2015) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510780.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Интердевочка" вышла на экраны четверть века назад. Этот фильм – прорыв, революция, провокация – как только его не называли. Но все сходятся в одном – он стал событием конца 80-х.
-"У меня нет режиссерского образования, одна интуиция", – говорил о себе один из самых успешных российских режиссеров Петр Тодоровский. Прославившись как создатель фильмов (   Читать дальше...   )Телекомпания: Медиа КонструкторЖанр: ДокументальныйПродолжительность: 00:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B30D6449F47D4CD25325699A7813704EE82AF771
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ Airmail – это почтовый клиент для операционной
 magnet:?xt=urn:btih:77AEA1AA95C61B82E48E57A47217029DED49C995
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Kalle Reger - Smooth Groove 1 (Smooth Groove 1) (2024) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:1E74EF663DC82B5DAC5FB7D80D430FCCEFCDC401
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Savaged - Night Stealer (2024) [MP3|320 Kbps] <Heavy Metal>
 magnet:?xt=urn:btih:EFB4394DB8056F118F95D69C97DC78AC315B2CB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Colin Newman & Malka Spigel - Bastard (1997) Deluxe Edition, 2024, swim [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:D12EAA084C2645A1B1483711A766116DED7C8229
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ VA - Spektra's History - 16th Anniversary (2024) [MP3|320 Kbps] <Breaks, Breakbe
 magnet:?xt=urn:btih:EA9E98B068E442D4BE3229A2CAF0DC55F83D35E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ Opera GX - это специальная версия браузера Opera, с
 ```bash
 magnet:?xt=urn:btih:BAD71ED6A45B76C9F66E3A15E9052F2B2942672D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ magnet:?xt=urn:btih:BAD71ED6A45B76C9F66E3A15E9052F2B2942672D
 magnet:?xt=urn:btih:1942EFE01D737497B6DBA3C6663C5C19F4FB08D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +218,8 @@ magnet:?xt=urn:btih:1942EFE01D737497B6DBA3C6663C5C19F4FB08D2
 ```bash
 magnet:?xt=urn:btih:901629C5850A1F7727550588F476C46B1EC86BF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +245,8 @@ magnet:?xt=urn:btih:901629C5850A1F7727550588F476C46B1EC86BF7
 ```bash
 magnet:?xt=urn:btih:ECB163942816B700825569A60E3539722A9706C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -257,6 +275,8 @@ Cosmonaut & Satellites (Космонавт и спутники) -  Наверх 
 magnet:?xt=urn:btih:2601F278C480CFE5D12C3C6A1B0A8BCF2DEC6E46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +302,8 @@ MusicBrainz Picard - простая в использовании програм
 magnet:?xt=urn:btih:4A6E4AA479F029C7937A8D364FE939E76D82A268
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +328,8 @@ magnet:?xt=urn:btih:4A6E4AA479F029C7937A8D364FE939E76D82A268
 magnet:?xt=urn:btih:4A1DC5E2208BC79C64DC526CBBE8E90D9015D097
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ RJ TextEd - мощный текстовый редактор с большим �
 ```bash
 magnet:?xt=urn:btih:0137CF7458D13DDD37B5E6666F9F239B102062C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +383,8 @@ Cosmonaut & Satellites (Космонавт и спутники) - макси-с�
 magnet:?xt=urn:btih:7ABDD7A084A4BC9976DB30D34104394566947394
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +409,8 @@ magnet:?xt=urn:btih:7ABDD7A084A4BC9976DB30D34104394566947394
 magnet:?xt=urn:btih:6CBD1EE89F6B078B05775DE5D0A5AD0D7B9F8279
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +434,8 @@ magnet:?xt=urn:btih:6CBD1EE89F6B078B05775DE5D0A5AD0D7B9F8279
 ```bash
 magnet:?xt=urn:btih:2C80BEA0BD021E37BA9233215B7032FB1ECE5F90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +464,8 @@ magnet:?xt=urn:btih:2C80BEA0BD021E37BA9233215B7032FB1ECE5F90
 magnet:?xt=urn:btih:4D2330B56E029EF261CB4C24F354F7CD2D03C645
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +493,8 @@ Alice Babs - How Do You Do, Mr. Swing (100th Birthday - Recordings of 1939 - 1
 magnet:?xt=urn:btih:F363397F49B2C733B2DD9926A88199BB6B7F6DFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +518,8 @@ Text Editor Pro 28.4.0 + Portable + Bonus [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D56EC7ED7B3120CB4AFBBCE65A91D7BD744603AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +547,8 @@ magnet:?xt=urn:btih:D56EC7ED7B3120CB4AFBBCE65A91D7BD744603AD
 magnet:?xt=urn:btih:F596027FE0712E6B2D38DACD90A3E1DE630C0B61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +573,8 @@ magnet:?xt=urn:btih:F596027FE0712E6B2D38DACD90A3E1DE630C0B61
 ```bash
 magnet:?xt=urn:btih:731EAB53A7E1781C3B0867386ED8B0871ECD023C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +603,8 @@ VA - Friends V (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Afro House, Indie Da
 magnet:?xt=urn:btih:5F425B8FAF98D1381A6660DF9985D6495A6E6715
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +632,8 @@ The Other Broken Ones - Something Wicked (2024) [FLAC|Lossless|WEB-DL|tracks] <B
 magnet:?xt=urn:btih:2DF93A9D4254FAC1BAA96C76696738BD4887268C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +660,8 @@ magnet:?xt=urn:btih:2DF93A9D4254FAC1BAA96C76696738BD4887268C
 magnet:?xt=urn:btih:E099A20A1BE4C5C9E51A85E891A998BB97CA24E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +686,8 @@ magnet:?xt=urn:btih:E099A20A1BE4C5C9E51A85E891A998BB97CA24E2
 magnet:?xt=urn:btih:1347C5FCEC55B1A50143609DDB477230B468C184
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +711,8 @@ Opera One 106.0.4998.66 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3E0A89BBB5CD34D4A233F8D18A81CF983701669F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

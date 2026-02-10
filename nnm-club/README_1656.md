@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:D51A26CDD2A0B57D5B7E9F9FF276695F17C8E211
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:D51A26CDD2A0B57D5B7E9F9FF276695F17C8E211
 magnet:?xt=urn:btih:7494AAC8B23956C1EF040E1D756B9C0F7382D57B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ George Vondriska | Изготовление ящиков: «ласточкин �
 ```bash
 magnet:?xt=urn:btih:1E5971816F612AFDC90E12DA082EEBF85B4E5C7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:1E5971816F612AFDC90E12DA082EEBF85B4E5C7F
 magnet:?xt=urn:btih:8CF59E4AD4AC5D79FD2B3524012C7E72289BC7E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:8CF59E4AD4AC5D79FD2B3524012C7E72289BC7E7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Directory List & Print – менеджер каталогов, предназн
 magnet:?xt=urn:btih:3E0BFFA0D1703DA66864ED1EB911C1D2052F7859
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Cradle - The God Particle 1.2.4 VST 3, AAX (x64) RePack by SEnki [En]
 ```bash
 magnet:?xt=urn:btih:23BF33FDECF085FC5CD1A92F8C6EB47252E8273B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:23BF33FDECF085FC5CD1A92F8C6EB47252E8273B
 magnet:?xt=urn:btih:B9FC6CE7AB380F55D5D700093BC596D42E8588EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Araxis Merge – это обязательное приложение для р�
 magnet:?xt=urn:btih:F3286050068160B405FF95F2F6376224DEB12A07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:F3286050068160B405FF95F2F6376224DEB12A07
 ```bash
 magnet:?xt=urn:btih:5A521A4E3B7AEF4618BE9BEDC3A2438B10A7BF97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ HomeBank можно настраивать полностью под себя, �
 magnet:?xt=urn:btih:34FBABBA25EF159942C29D212D29C2A3035A36DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ Maximum PC - это журнал, который каждый компьютер
 ```bash
 magnet:?xt=urn:btih:641E909ABB572B0850683472510BC473AAD8D884
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ Simple Sticky Notes — простая в понимании программа 
 magnet:?xt=urn:btih:84426DC6AAD087815C95331A4109E9443782CC60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:84426DC6AAD087815C95331A4109E9443782CC60
 ```bash
 magnet:?xt=urn:btih:FAD0ADA27144A2098BF796ABB522E750EA06F0D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:FAD0ADA27144A2098BF796ABB522E750EA06F0D4
 magnet:?xt=urn:btih:9F8012B4C609C0F8E5209DF724125D87E9CCFA04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:9F8012B4C609C0F8E5209DF724125D87E9CCFA04
 ```bash
 magnet:?xt=urn:btih:01B1E246F65F42E25202F2820CCBEB959E50D57A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ Disk Drill - простая и эффективная программа для 
 magnet:?xt=urn:btih:8F1867AB69C195BD0D4354A080EFD19EE3071032
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:8F1867AB69C195BD0D4354A080EFD19EE3071032
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ magnet:?xt=urn:btih:8F1867AB69C195BD0D4354A080EFD19EE3071032
 magnet:?xt=urn:btih:D1C1D017C6070BEB990D865AE9C961A15C721F69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ Lollipop Chainsaw RePOP - это стремительный hack-and-slash, по
 ```bash
 magnet:?xt=urn:btih:881CF0608BB72C2A06E9CD2997A5D21413A551E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:881CF0608BB72C2A06E9CD2997A5D21413A551E5
 magnet:?xt=urn:btih:825DA9E31E51490A34E9AF0663FBF4801B954155
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:825DA9E31E51490A34E9AF0663FBF4801B954155
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:825DA9E31E51490A34E9AF0663FBF4801B954155
 ```bash
 magnet:?xt=urn:btih:331051EF0B9F0B1DA7043D5066D9F35E1AB9A408
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ Bad Attitude - Right From The Start (1988-1991) Compilation, Reissue, 2024, FnA 
 magnet:?xt=urn:btih:50DCC8EF31BA8DB45F2110359ED80F14E0D05393
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:50DCC8EF31BA8DB45F2110359ED80F14E0D05393
 magnet:?xt=urn:btih:CA041A220347BE247746D3AA1C26B1E465444066
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Demon's Mirror - это roguelike-конструктор колод, сочет�
 ```bash
 magnet:?xt=urn:btih:42E0C87C65DB546A426F2E9B578887D4CE33BE3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

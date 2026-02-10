@@ -1,3 +1,29 @@
+###  Публикация: 1851465   (1055165) от 
+
+Александр Бушков | Тени в темных углах (Книга 1). Гроза над крышами (2026) [MP3, Маргарита Серебринская]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Королевство Арелат. Удивительный мир, так похожий на средневековую Европу. Мир, в котором временно утихли жестокие войны, еретиков сжигают все реже, а магия, кажется, осталась только в сказках и детских страшилках. Сейчас в Арелате наступили спокойные времена, но под внешней безмятежностью скрываются интриги, пороки и мрачные тайны. Главные герои, компания мальчишек, (   Читать дальше...   )Жанр: Фэнтези, героическое, Young adultИздательство: ЛитРесПродолжительность: Маргарита Серебринская
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6F482A6C34F7E9C1C898D9FD894FD9976B8FF6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1851469   (1055167) от 
 
 Василий Лазарев | Звёздный гамбит (Книга 1) (2025) [MP3, Вадим Кривошеев]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:5F5EB4F29C01BCDCBF09384A20773CD53771AB2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:5F5EB4F29C01BCDCBF09384A20773CD53771AB2F
 ```bash
 magnet:?xt=urn:btih:2973F7E8A616F8F0672EA14D9EC2BC4046B10EDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:2973F7E8A616F8F0672EA14D9EC2BC4046B10EDC
 magnet:?xt=urn:btih:9B3A0F185900A1CDFD16929B72C610A038724201
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:9B3A0F185900A1CDFD16929B72C610A038724201
 ```bash
 magnet:?xt=urn:btih:883F3BB01376A2E36EB1C5FD855AF0C3248C3A5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:883F3BB01376A2E36EB1C5FD855AF0C3248C3A5A
 magnet:?xt=urn:btih:14FC7248CE203AD86E56899CF25EBD4C6441522C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:14FC7248CE203AD86E56899CF25EBD4C6441522C
 ```bash
 magnet:?xt=urn:btih:D5DF8213938E7BD938DE82EACAFDEA0D998B5A4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:D5DF8213938E7BD938DE82EACAFDEA0D998B5A4F
 magnet:?xt=urn:btih:A162424DC6E8CC24C514B2CCB134D66B6C41AFD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:A162424DC6E8CC24C514B2CCB134D66B6C41AFD4
 ```bash
 magnet:?xt=urn:btih:A8C0021EAF776CE11DEB7701406DB3C0BF33AEEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:A8C0021EAF776CE11DEB7701406DB3C0BF33AEEF
 magnet:?xt=urn:btih:328A9CE904562482FB94096776CF629790673289
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:328A9CE904562482FB94096776CF629790673289
 ```bash
 magnet:?xt=urn:btih:0783548DCD168BF792BAA9520896B9D45B44FC10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:0783548DCD168BF792BAA9520896B9D45B44FC10
 magnet:?xt=urn:btih:25456B1398ADEBAFE980F2B7363CDB631ABDD049
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:25456B1398ADEBAFE980F2B7363CDB631ABDD049
 ```bash
 magnet:?xt=urn:btih:AF96B4988785B45FB5EFF13379169FDAFEF43497
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:AF96B4988785B45FB5EFF13379169FDAFEF43497
 magnet:?xt=urn:btih:2391691AE3043556F1C23E85A30E407E129FD8D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:2391691AE3043556F1C23E85A30E407E129FD8D6
 ```bash
 magnet:?xt=urn:btih:778380DA0F1BEED24D13C134ADBAA4AAE9754389
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:778380DA0F1BEED24D13C134ADBAA4AAE9754389
 magnet:?xt=urn:btih:CA97681200154EBDE47106C1AD990EA3800A655D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:CA97681200154EBDE47106C1AD990EA3800A655D
 magnet:?xt=urn:btih:AE7A7EEC44E4118013577ED651D05745E2A84ED4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:AE7A7EEC44E4118013577ED651D05745E2A84ED4
 ```bash
 magnet:?xt=urn:btih:21ED9DEA10539BB039DFDB2183D0254BF368ADBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:21ED9DEA10539BB039DFDB2183D0254BF368ADBE
 magnet:?xt=urn:btih:563AB68516C7E444F979CC137E612755BFACFA95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:563AB68516C7E444F979CC137E612755BFACFA95
 ```bash
 magnet:?xt=urn:btih:9F64FAF3EC37DAA7C32EE4FE0D43B82F0CB2538C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:9F64FAF3EC37DAA7C32EE4FE0D43B82F0CB2538C
 magnet:?xt=urn:btih:1215C0E4D8DCB7A2532C6F12215C50337DAC2329
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:1215C0E4D8DCB7A2532C6F12215C50337DAC2329
 ```bash
 magnet:?xt=urn:btih:AE45B53BE7E39E1A6753929295847D16D9435871
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:AE45B53BE7E39E1A6753929295847D16D9435871
 magnet:?xt=urn:btih:B130012EF22877701E4FB70385B2E16766662686
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +620,8 @@ magnet:?xt=urn:btih:B130012EF22877701E4FB70385B2E16766662686
 ```bash
 magnet:?xt=urn:btih:FA705A1CF99DFC3D93B48592DED601DE87803153
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:FA705A1CF99DFC3D93B48592DED601DE87803153
 magnet:?xt=urn:btih:93DFD166013F0DAFC1BAD37CE21B36CC02B4252A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,32 +679,7 @@ magnet:?xt=urn:btih:93DFD166013F0DAFC1BAD37CE21B36CC02B4252A
 magnet:?xt=urn:btih:3F810D4B96EC3EF81FA2E38E297DE3E7A46F8630
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851799   (1055372) от 
-
-Валерий Гуров, Денис Старый | Фаворит (Книга 3). Русский флаг (2025) [MP3, Павел Архипов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очнулся — кровь на лице, палуба дрожит, пушки молчат. Французы на горизонте. На фрегате паника. Капитан-француз приказывает сдаться.
-А я? Я ветеран. Прошел Великую Отечественную. И у меня один принцип: РУССКИЕ НЕ СДАЮТСЯ.
-Теперь я в 1730-х. Успел поднять бунт на корабле, сохранить честь флага и попасть под военный трибунал.
-Но я не сломаюсь.(   Читать дальше...   )Жанр: Фантастика, ПопаданцыИздательство: ЛитРесПродолжительность: 08:32:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A3277DEF36FE5A709E564418CC04BCFDE6677EE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

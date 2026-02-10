@@ -19,6 +19,8 @@ Movavi Video Editor – универсальный инструмент для �
 magnet:?xt=urn:btih:107B33C11944CAD35EC266BE424B3A28396776BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:107B33C11944CAD35EC266BE424B3A28396776BA
 ```bash
 magnet:?xt=urn:btih:E10C46962783D10EDCBFA062D3EFE258D5F71C4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:9B3AD3C7C0C5F138C9E306303EACB4C938C79C97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:9B3AD3C7C0C5F138C9E306303EACB4C938C79C97
 ```bash
 magnet:?xt=urn:btih:56976FFB2B35A7678F3764285B67C94B030C81F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:56976FFB2B35A7678F3764285B67C94B030C81F9
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:56976FFB2B35A7678F3764285B67C94B030C81F9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Assassin's Creed IV: Black Flag (2013) [Ru/Multi] (1.08/dlc) Repack Decepticon
 magnet:?xt=urn:btih:EEAEDF681CD1449CF002E1A465BC7A30670EDD41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ VED — это сюжетное RPG, сочетающее вручную нар�
 ```bash
 magnet:?xt=urn:btih:C9B69F037546983707DB8D39549EF0038F01F909
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ BBC: Аляска. Земли замёрзшего королевства / Alas
 magnet:?xt=urn:btih:30DC81333B1CE2289F2D4BE1C349A875C5E6DB5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Hidden Deep – научно-фантастическая игра, разраб
 ```bash
 magnet:?xt=urn:btih:8BE145F02122A9C0334148B7100C09E8D23C4ADB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:8BE145F02122A9C0334148B7100C09E8D23C4ADB
 magnet:?xt=urn:btih:C0D2E29CC01A2AE59DBA25F75D5081AEEF8584AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:C0D2E29CC01A2AE59DBA25F75D5081AEEF8584AF
 magnet:?xt=urn:btih:ACB84112F29AC6699CF95EBE707F51F842A1E19A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +330,8 @@ magnet:?xt=urn:btih:ACB84112F29AC6699CF95EBE707F51F842A1E19A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:ACB84112F29AC6699CF95EBE707F51F842A1E19A
 magnet:?xt=urn:btih:61D4486284B7B68609B71FCFEFC0C99261E4979E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:61D4486284B7B68609B71FCFEFC0C99261E4979E
 ```bash
 magnet:?xt=urn:btih:3B7167764FFBECED5D2D772DDF3A8238202769E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:3B7167764FFBECED5D2D772DDF3A8238202769E9
 magnet:?xt=urn:btih:06B3C1507E56FAE83B73FE6871A926CDDD73E40B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:06B3C1507E56FAE83B73FE6871A926CDDD73E40B
 ```bash
 magnet:?xt=urn:btih:31278FF1850F08DFA68052E87BEAA5179AF34A4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:31278FF1850F08DFA68052E87BEAA5179AF34A4E
 magnet:?xt=urn:btih:2BF0FBECE4A7CA365A61E0741B8653F85FA7E948
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:2BF0FBECE4A7CA365A61E0741B8653F85FA7E948
 ```bash
 magnet:?xt=urn:btih:3303396A85813D4BFC5876CD384A2F75A750ECFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.1.4) Scene Rune [Updat
 magnet:?xt=urn:btih:EF8D72D58766D965D8164DDA2269EF8E54A41C1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ magnet:?xt=urn:btih:EF8D72D58766D965D8164DDA2269EF8E54A41C1B
 ```bash
 magnet:?xt=urn:btih:FAD15D1BAA824E52A41DB0CC2162A66EE2173068
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ iso - можно использовать в Zalman и Ventoy
 magnet:?xt=urn:btih:0A7E090FB712724D8CA9C1BD41A2B9EEE5FD7776
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ Noita - магический боевик с элементами «roguelike» 
 magnet:?xt=urn:btih:4A8618AC33675DAEED009173CF565FCDD808A0FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ magnet:?xt=urn:btih:4A8618AC33675DAEED009173CF565FCDD808A0FD
 ```bash
 magnet:?xt=urn:btih:D1E65DABDA1811D2DB5F0E08FA2E01FF9693C66A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ Launcher for zapret 1.6 [Ru]
 magnet:?xt=urn:btih:FC4898275991B5969A46E420A062FE2B4269F4B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:FC4898275991B5969A46E420A062FE2B4269F4B9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

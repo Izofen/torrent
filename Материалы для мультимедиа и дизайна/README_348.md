@@ -1,3 +1,133 @@
+###  Публикация: 1274618   (792924) от 07.01.2019
+
+Шрифты - Creative Market - Biker Remastered font + graphics - 681973 [TTF, OTF, WOFF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обновленный шрифт Biker включает в себя символы кириллицы, цифры и другие основные символы. Также теперь он разделен на файлы шрифтов для теневого слоя. Грубые и чистые версии доступны. В качестве бонуса включена иллюстрация черепа с крыльями и лентой и иллюстрация медведя в векторном формате eps.Формат: TTF, OTF, WOFF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00769F552B5F375382C499E6025DFA2AAFBD6BBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274642   (792950) от 07.01.2019
+
+Шрифты - Creative Market - La Mona Kids / Cyrillic+Greek - 682077 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792950.jpg" />
+</div>
+
+
+###  Подробнее
+
+La Mona Kids это довольно интересный шрифт, который относится к типу детской графики.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FA46CFD61066E394338E46EDEC5046DEB88D2AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274622   (792953) от 07.01.2019
+
+Шрифты - Creative Market - Croogla 4F Regular - 479898 [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Croogla 4F это простой шрифт, который хорошо и стильно выглядит. Используйте его для различных Ваших идей и целей.Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57B5453AA1810B928B66AA7F8253262DEE7B3457
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274620   (792954) от 07.01.2019
+
+Шрифты - Creative Market - BullyGirl Complete - 4697 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792954.jpg" />
+</div>
+
+
+###  Подробнее
+
+BullyGirl - это два весовых нерегулярных и шумных шрифта. Он имеет 3 стилистических набора для верхних и нижних символов, для имитации ручного набора текста. Более того, у BullyGirl есть множество альтернатив и лигатур.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:289D952A4E921D229955099DE59A37544BC4CA56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274643   (792958) от 07.01.2019
+
+Шрифты - Creative Market - LaMonaPro"72 FontsGreek+Cyrillic - 552487 [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792958.jpg" />
+</div>
+
+
+###  Подробнее
+
+La Mona Pro (2015-2016) Концепция: La Mona Pro, Mona - это редизайн дизайна 2012 года. Греческий язык чувствителен к регистру, как и в кириллице, он содержит лигатуры, орнаменты, слои, тени, альтернативные штрихи, типографику Mona. Pro разработан с большим количеством вариантов.Формат: TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F21692E5BDB2BCF7363A765DB7FCFB6AE0819CF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274456   (792962) от 07.01.2019
 
 Шрифты - RenegadeFonts - Hela [TTF, OTF]
@@ -19,6 +149,8 @@ Hela-это высококонтрастный округлый шрифт с и
 ```bash
 magnet:?xt=urn:btih:350FBAB0BA39CA3466CCAECE83014EF9D2AA12E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +176,8 @@ magnet:?xt=urn:btih:350FBAB0BA39CA3466CCAECE83014EF9D2AA12E0
 magnet:?xt=urn:btih:A225E7B0E1488BB8646931BEE4B7662B9D02DD99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +202,8 @@ Divi Theme v4.4.6 - универсальный шаблон для WordPress, и
 magnet:?xt=urn:btih:63EFC40C24C34DD10E11D98DF388AC247DA16BAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +227,8 @@ magnet:?xt=urn:btih:63EFC40C24C34DD10E11D98DF388AC247DA16BAC
 ```bash
 magnet:?xt=urn:btih:6FFD28D109830C5A561969698C9E7920F9180A73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +255,8 @@ magnet:?xt=urn:btih:6FFD28D109830C5A561969698C9E7920F9180A73
 magnet:?xt=urn:btih:D49CA82492CFACFAA1F5C482B4FA46D0203222D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +281,8 @@ G3F and G8FФормат: DUF
 ```bash
 magnet:?xt=urn:btih:08ECCE774A520165481AE9F5FB7F5F569C3C2EC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +309,8 @@ magnet:?xt=urn:btih:08ECCE774A520165481AE9F5FB7F5F569C3C2EC2
 magnet:?xt=urn:btih:E98756E1765991E2E3C8FBAAE336601146D46C90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +334,8 @@ magnet:?xt=urn:btih:E98756E1765991E2E3C8FBAAE336601146D46C90
 ```bash
 magnet:?xt=urn:btih:D3B3A8C6C8A5B2724DDAD584F67D2BA47A6A8846
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +361,8 @@ DEBRIS BUNDLE дает вам всю мощь звукового дизайна,
 magnet:?xt=urn:btih:C457CBD6FCB446C8CAE7F73206001EFE48C53BA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +386,8 @@ magnet:?xt=urn:btih:C457CBD6FCB446C8CAE7F73206001EFE48C53BA5
 ```bash
 magnet:?xt=urn:btih:0CB4A7C87936E3CF1EA11286A2884586867C00C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +413,8 @@ magnet:?xt=urn:btih:0CB4A7C87936E3CF1EA11286A2884586867C00C6
 magnet:?xt=urn:btih:6934ACF19F7C79C8139CFB661549FDB89D0F6E58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +438,8 @@ magnet:?xt=urn:btih:6934ACF19F7C79C8139CFB661549FDB89D0F6E58
 ```bash
 magnet:?xt=urn:btih:C792141817E205FA53DBE71CA2FB68F2887B4B38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +465,8 @@ magnet:?xt=urn:btih:C792141817E205FA53DBE71CA2FB68F2887B4B38
 magnet:?xt=urn:btih:63E630DB78122D0AD3E34822DD11FF32FDD29167
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +490,8 @@ magnet:?xt=urn:btih:63E630DB78122D0AD3E34822DD11FF32FDD29167
 ```bash
 magnet:?xt=urn:btih:28F11D319C124B58E6C8E352174CC49064FE7782
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +519,8 @@ magnet:?xt=urn:btih:28F11D319C124B58E6C8E352174CC49064FE7782
 magnet:?xt=urn:btih:FAC3A76BEB2B0ACF67F9C0D9A9ECFDFBB9BCF749
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +544,8 @@ Spectacular Collection Big Bundle с невероятным выбором из 
 ```bash
 magnet:?xt=urn:btih:A2CCBF841BD4227875C3E533965F85C9BFE92B00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +571,8 @@ magnet:?xt=urn:btih:A2CCBF841BD4227875C3E533965F85C9BFE92B00
 magnet:?xt=urn:btih:6B5D81CBBE2DF8E081E42FCD8EE50D1A6CF86AFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +597,8 @@ magnet:?xt=urn:btih:6B5D81CBBE2DF8E081E42FCD8EE50D1A6CF86AFA
 magnet:?xt=urn:btih:EEAE8752B1956599AC36FF7021C1A9C946B839C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +622,8 @@ magnet:?xt=urn:btih:EEAE8752B1956599AC36FF7021C1A9C946B839C6
 ```bash
 magnet:?xt=urn:btih:397557823270269CA40B72A103AEDFBBB7C762CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +650,8 @@ magnet:?xt=urn:btih:397557823270269CA40B72A103AEDFBBB7C762CC
 magnet:?xt=urn:btih:91040E6EBA25D607A82F9303E52FFF921BEACE46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,125 +676,7 @@ magnet:?xt=urn:btih:91040E6EBA25D607A82F9303E52FFF921BEACE46
 magnet:?xt=urn:btih:917EB5838C82D1F69D86759DE8D2234A91454EAC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274139   (794926) от 05.01.2019
-
-3D модели - Hum3D - Ford Expedition MAX Platinum 2017 [V-Ray|*.max, 3DS, C4D, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794926.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки FordФормат: Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, MA, STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03EF86BC075F36F577F2BA14B277DA816FC38198
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274131   (794931) от 05.01.2019
-
-3D модели - SQUIR - Gumpert Apollo Intensa Emozione 2019 [V-Ray|*.max, 3DS, C4D, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794931.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки Gumpert ApolloФормат: V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, MA
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E6014DD7E9172BE1BBA7B8AAF92A6C643911423
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274113   (794934) от 05.01.2019
-
-3D модели - ArtStation - p 40 war hawk (modified) [MAX, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Привет, ребята, работающие над некоторыми сценами мировой войны для нашего предстоящего проекта, который включает в себя этот ястреб p40, я внес изменения в некоторые части, особенно кабину.Формат: MAX, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF85013AD5DBBDED21EF959DCD66A15BE5BCAEA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274124   (794980) от 05.01.2019
-
-3D модели - Mercedes-Benz GLK [MAX, 3DS, C4D, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794980.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки Mercedes-Benz (не удалось найти оф-сайт)Формат: MAX, 3DS, C4D, FBX, LWO, OBJ, WRL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F03163200D123DA4409F5F20C1105A5BEE7F601B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273959   (794981) от 05.01.2019
-
-Рамки - С Рождеством Христовым! [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многослойный PSD, рамки С Рождеством Христовым! Формат А4 для удобной печати и для вашего творчества.Формат: PSDРазрешение файлов: 3508х2480-2480x3508
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5232B2BE9FA7D5774AA6EA42331BEF56F2BC5ABF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

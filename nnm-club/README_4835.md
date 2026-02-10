@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:E0ED364F28B187597C903AFF29C2A440A3E3C78A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Bad Mileage - A Bridge Too Far (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:D43EBE3E0156D407D4D5D884AE0A2EE89F32DEBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ MongoDB - это документо-ориентированная база да
 ```bash
 magnet:?xt=urn:btih:1DC72BC4814ECE182304AA66628FF6F06058DA1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ Etienne Charles - Creole Christmas (2015) [FLAC|Lossless|tracks + .cue] <Afro-Ca
 magnet:?xt=urn:btih:33824410BF4377ED15E66284232CC3EE339121F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:33824410BF4377ED15E66284232CC3EE339121F5
 magnet:?xt=urn:btih:1800D82D2A0383CCF5D96FFB87C67E7FA8EC2A33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:1800D82D2A0383CCF5D96FFB87C67E7FA8EC2A33
 ```bash
 magnet:?xt=urn:btih:A3A1D2792C13E03ADC25FB96DCF096FBEBD6C3BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ Zoom It  -  увеличение  на экране. Лупа, которая в
 magnet:?xt=urn:btih:86D0E9E7764A8539BFD4B3506D480CF34DBCE9FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:86D0E9E7764A8539BFD4B3506D480CF34DBCE9FC
 ```bash
 magnet:?xt=urn:btih:314AD326178F526EA2105BBF98FE64929CC1ECA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ VA - Connecting The Dots (Jonathan Kaspar) (2021) [AAC|~324 Kbps] <House>
 magnet:?xt=urn:btih:0BE67C6FA378F85FD4B8A8729C58B630B4295FAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ VA - Best of 2021 3rd Avenue (2021) [AAC|~335 Kbps] <Progressive House, Deep Hou
 magnet:?xt=urn:btih:B51DBBA55E3EE88ED00D7A5F5A7592ADB327CF53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:B51DBBA55E3EE88ED00D7A5F5A7592ADB327CF53
 ```bash
 magnet:?xt=urn:btih:C8F0F0881379591BEF209324C10B92E22898A7BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ magnet:?xt=urn:btih:C8F0F0881379591BEF209324C10B92E22898A7BD
 magnet:?xt=urn:btih:1F75A8F9F1ADCE120F3D3756F3DF07EE447EEA74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ Andy Lindquist - Dead in Your Lies (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 magnet:?xt=urn:btih:1337EDB5D150B9BA0B83C95859B74025E568952B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ magnet:?xt=urn:btih:1337EDB5D150B9BA0B83C95859B74025E568952B
 magnet:?xt=urn:btih:FEB465DA18C5658B171A17D8618AEA45F25B90D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:FEB465DA18C5658B171A17D8618AEA45F25B90D2
 ```bash
 magnet:?xt=urn:btih:32580A18B60138ECD2E0AF841F2472A204FB0C9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ Rob Papen показали как может выглядеть и звучат�
 magnet:?xt=urn:btih:91135BFD9CFA52FC7C7A352270960A8D2EEA2579
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ magnet:?xt=urn:btih:91135BFD9CFA52FC7C7A352270960A8D2EEA2579
 ```bash
 magnet:?xt=urn:btih:CF5DDA345AA844F8C1E6659C3A03296DA854ADA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ magnet:?xt=urn:btih:CF5DDA345AA844F8C1E6659C3A03296DA854ADA0
 magnet:?xt=urn:btih:B45AC43D8E3AB916D2169703BB3224AD9FC287E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:B45AC43D8E3AB916D2169703BB3224AD9FC287E0
 ```bash
 magnet:?xt=urn:btih:6A2E903E93D227E207F5C3349C598BEC4FFDF732
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +535,8 @@ HashMyFiles 2.17 Portable [Ru/En]
 magnet:?xt=urn:btih:CD1588C4B4FCDF549C8F5B781B6D569B07259E8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:CD1588C4B4FCDF549C8F5B781B6D569B07259E8C
 ```bash
 magnet:?xt=urn:btih:F206FC5002BC645867851851BA3B79597489E4E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +591,8 @@ VA - Connecting The Dots (Alex Paterson) (2021) [AAC|~306 Kbps] <House>
 magnet:?xt=urn:btih:2C0D8F4FDFEDCD8549E76B4A905A438B11B33D08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ XCap 1.2.2 [En]
 magnet:?xt=urn:btih:9D82B479ADFFDAEA7C82C4B33B4DB62F1D271D26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +642,8 @@ Bird Mail PRO 2245.97 [Ru/Multi] - Почтовый клиент
 ```bash
 magnet:?xt=urn:btih:9102CEB5DBC7608DE497CBEC286E9991CD47C1F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +671,8 @@ magnet:?xt=urn:btih:9102CEB5DBC7608DE497CBEC286E9991CD47C1F8
 magnet:?xt=urn:btih:5BA21BB76AFAEB452D4B550AFCF2146AA4D0A827
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +696,8 @@ magnet:?xt=urn:btih:5BA21BB76AFAEB452D4B550AFCF2146AA4D0A827
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

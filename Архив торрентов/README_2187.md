@@ -1,30 +1,3 @@
-###  Публикация: 1422048   (313399) от 07.11.2020
-
-MediaHuman Youtube Downloader 3.9.9.48 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313399.jpg" />
-</div>
-
-
-###  Подробнее
-
-YouTube Downloader - удобная программа-загрузчик для тех, кто хочет скачать свой любимый видеоклип, музыкальное видео или трейлер нового фильма с YouTube или подобных сервисов.
-
-• Закачка нескольких файлов одновременно
-• Сохранение видео целиком, либо только звуковой дорожки(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2020Разработчик: MediaHumanПоддерживаемая ОС: OS X 10.6 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD1A73A2DE38102C44241EF7ECDC602C9292CFA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422065   (313401) от 07.11.2020
 
 MediaHuman YouTube Downloader 3.9.9.48 (0611) RePack (& Portable) by TryRooM [Multi/Ru]
@@ -45,6 +18,8 @@ MediaHuman YouTube Downloader - удобное приложение с помо�
 ```bash
 magnet:?xt=urn:btih:AAE38FB7C849D27BA5BEDFF0EEDB4DD5A67526C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +46,8 @@ Q-Dir позволяет получать быстрый доступ к час�
 magnet:?xt=urn:btih:8665AFF333B5865DA711EAF174BC49CD799CA4FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +71,8 @@ Mozilla Thunderbird –  легкая и безопасная бесплатна
 ```bash
 magnet:?xt=urn:btih:9E94F5D45662DC21A4446B1C4F7F64FA10B2C245
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +98,8 @@ MP3jam - это программа, с помощью которой вы смо
 magnet:?xt=urn:btih:A573FCCD73FD2968201211CEE5EA22CD8566491B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +123,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:1A833C95E582F3B106320941F9AD1CEB4616AA80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +150,8 @@ Boom 3D является уникальным приложением для пр
 magnet:?xt=urn:btih:710023BFB4B33309C345980187B5BE1D7F83C19F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +175,8 @@ Rider позволяет разрабатывать приложения для 
 ```bash
 magnet:?xt=urn:btih:B983A2513BF51BF0862076CAE654CB905588366D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +205,8 @@ Affinity Designer  в (   Читать дальше...   )Тип издания
 magnet:?xt=urn:btih:C2DA9F33B5B6325303625B610588441D485E2836
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +230,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:19AF72DE2BC9C90C37F65D12771EC15E4F20ECEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +258,8 @@ Adobe InCopy CC 2017 входит (   Читать дальше...   )Язык 
 ```bash
 magnet:?xt=urn:btih:E729915C9B1108388B98BE106B835DE71016E5DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +288,8 @@ Commander One также является (   Читать дальше...   )�
 magnet:?xt=urn:btih:30AE1D7ABB9152817144FCCFF62BD7FDA4D81E07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +313,8 @@ magnet:?xt=urn:btih:30AE1D7ABB9152817144FCCFF62BD7FDA4D81E07
 ```bash
 magnet:?xt=urn:btih:4385228603D69CDFE8E37369F288078E0D93757B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +349,8 @@ VA - Hotel Bar Deluxe (Chillout & Lounge Edition) (2012) [MP3|320 кб/с]<Chill
 magnet:?xt=urn:btih:0C194D8BC66A55B7149B5C1D5BB3D52AD93B770D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +374,8 @@ magnet:?xt=urn:btih:0C194D8BC66A55B7149B5C1D5BB3D52AD93B770D
 ```bash
 magnet:?xt=urn:btih:9B45524762A1FAADA997802CEE607CFBA2244886
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +401,8 @@ magnet:?xt=urn:btih:9B45524762A1FAADA997802CEE607CFBA2244886
 magnet:?xt=urn:btih:AFE6BCA511D5C2B972D510EF0B8FE1F0B99F0E95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +426,8 @@ magnet:?xt=urn:btih:AFE6BCA511D5C2B972D510EF0B8FE1F0B99F0E95
 ```bash
 magnet:?xt=urn:btih:F5BD290D792D660930B2F9C150D85967A6A060C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +453,8 @@ magnet:?xt=urn:btih:F5BD290D792D660930B2F9C150D85967A6A060C4
 magnet:?xt=urn:btih:03FA306D3A6BCEB3E6CC36B566B64B89E0FBE513
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +478,8 @@ magnet:?xt=urn:btih:03FA306D3A6BCEB3E6CC36B566B64B89E0FBE513
 ```bash
 magnet:?xt=urn:btih:A7E422FEE9AFDF6FEB21AAEE7D770615634807CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +505,8 @@ Advanced IP Scanner 2.5.3646 [Multi/Ru]
 magnet:?xt=urn:btih:8A9678C16A42D61EB0983455C9E74538631DDB0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +530,8 @@ Freemake Video Converter - это бесплатное универсально�
 ```bash
 magnet:?xt=urn:btih:F84ECA8EECD292CE61113D384A3BC42B1AEA54F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +557,8 @@ magnet:?xt=urn:btih:F84ECA8EECD292CE61113D384A3BC42B1AEA54F1
 magnet:?xt=urn:btih:C85FD6FCF6DC869672AB414640DC41CE93EBAE88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +582,8 @@ Lacey -  простой инструмент для поиска и скачив
 ```bash
 magnet:?xt=urn:btih:03FD051E6C4E90915E2A233B4027FCD9BCBD83B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +609,8 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 magnet:?xt=urn:btih:F6B598848DC0474ECAB87AA89EBCF5A74B2C8D0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +635,8 @@ Happy Holidaze - редактор, который поможет в оформл
 magnet:?xt=urn:btih:B42968DE2A90E588E60078724B81DAB6EECCC1DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +660,43 @@ Comedy Woman. Лучшее (2016.11.25) SATRip
 ```bash
 magnet:?xt=urn:btih:6FB71D88FA1510702343BDACAABFDE984C44A16C
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582999   (313700) от 02.12.2012
+
+Various Artists - Thriller LP: Crime Scene (2012) [MP3|320 кб/с]<Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hi-Quadr - sands of time (feat. neurosis)                     (05:05)
+02. Redox - ripped                                                (05:13)
+03. Bios Destruction - emal                                       (06:57)
+04. Nouwa - footprint                                             (05:13)
+05. More FX - young mafioso                                       (05:49)
+06. Object - panic attack                                         (05:05)
+07. Breekda - confused                                            (05:21)
+08. Andy Pain & Z Connection - revenge                            (06:33)
+09. Paimon - blessed exile (feat. place 2b)                       (06:09)
+10. Dub Head - danger time                                        (05:13)Жанр: Drum & BassПродолжительность: 00:57:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:068EF2C279AEDFD36F552FE9BEAE5844F6E0C2BE
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

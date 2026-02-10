@@ -1,3 +1,29 @@
+###  Публикация: 1846111   (1051150) от 05.01.2026
+
+Сергей Змеев | Перезагрузка. Инсайты миллионера (2025) [PDF, FB2, EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051150.jpg" />
+</div>
+
+
+###  Подробнее
+
+«В этой книге вы не найдете сладостно-медовых способов стать успешными. В ней нет советов, как однажды проснуться богатым, здоровым и любимым. Этим насквозь пронизано все – от детских сказок до магических практик. Верить в волшебство – хорошо! Но делать все приходится самим. Становиться успешными не среди эльфов и гномов, а в городах и мегаполисах среди людей, домов (   Читать дальше...   )Жанр: Психология и саморазвитие, финансово-психологические рассказыИздательство: Питер (Айлиб)Формат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CA280A3ECE715E382F414B825CAF6222206C92F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1846108   (1051153) от 05.01.2026
 
 Инесса Аленсон | Незаменимый? Как строить карьеру в мире, где исчезают профессии (2025) [PDF]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:5E55CB8389B0D4E238D2597C08A355521148F68B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:5E55CB8389B0D4E238D2597C08A355521148F68B
 magnet:?xt=urn:btih:8FEEEC662157006B2E0EB9C8C79906B3AA843254
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:8FEEEC662157006B2E0EB9C8C79906B3AA843254
 ```bash
 magnet:?xt=urn:btih:959000EADBCD80822693C5C3F1935E6984CA8369
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:959000EADBCD80822693C5C3F1935E6984CA8369
 magnet:?xt=urn:btih:4620EBCB078B9180B2BC81B683B12E52C6D6DC1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:4620EBCB078B9180B2BC81B683B12E52C6D6DC1D
 ```bash
 magnet:?xt=urn:btih:4888376A1436CE1FFF603B4CBBF68CA9CEF650C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:4888376A1436CE1FFF603B4CBBF68CA9CEF650C1
 ```bash
 magnet:?xt=urn:btih:804708776F3D0BB7E1E9EB3078F4A88A69F20B04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +208,8 @@ magnet:?xt=urn:btih:804708776F3D0BB7E1E9EB3078F4A88A69F20B04
 magnet:?xt=urn:btih:B559994284E8B7001A7F793ADA223FFD8B9CCEF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +233,8 @@ magnet:?xt=urn:btih:B559994284E8B7001A7F793ADA223FFD8B9CCEF6
 ```bash
 magnet:?xt=urn:btih:8D8EAF16B0FD729D12A83AE2A59314859ED6A23E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:8D8EAF16B0FD729D12A83AE2A59314859ED6A23E
 magnet:?xt=urn:btih:24FD64F3CE72D1AB1DB84AC4FD251E081B487237
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +286,8 @@ magnet:?xt=urn:btih:24FD64F3CE72D1AB1DB84AC4FD251E081B487237
 magnet:?xt=urn:btih:60B82A1191B6B016C442053C66E231ECB92EA152
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:60B82A1191B6B016C442053C66E231ECB92EA152
 ```bash
 magnet:?xt=urn:btih:2D0EC9EE556256DCA2521D36752CB52369E6778F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +340,8 @@ magnet:?xt=urn:btih:2D0EC9EE556256DCA2521D36752CB52369E6778F
 magnet:?xt=urn:btih:4994DADD01086E74F2D46B9D915C89034C3D9CFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:4994DADD01086E74F2D46B9D915C89034C3D9CFD
 ```bash
 magnet:?xt=urn:btih:98013DE5E86EE7AA5F90E9DCCBD1466AC8C9C4DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +394,8 @@ magnet:?xt=urn:btih:98013DE5E86EE7AA5F90E9DCCBD1466AC8C9C4DB
 magnet:?xt=urn:btih:0A2191FCE278C167800869FCAA9ED672EE31667C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +419,8 @@ magnet:?xt=urn:btih:0A2191FCE278C167800869FCAA9ED672EE31667C
 ```bash
 magnet:?xt=urn:btih:E49673312B52EB73BA54EC42335DCACEBA29DA60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +448,8 @@ magnet:?xt=urn:btih:E49673312B52EB73BA54EC42335DCACEBA29DA60
 magnet:?xt=urn:btih:6AF19CB199D3E6C479F99E7AE8F5C8381E1C1830
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +473,8 @@ magnet:?xt=urn:btih:6AF19CB199D3E6C479F99E7AE8F5C8381E1C1830
 ```bash
 magnet:?xt=urn:btih:506AEBA4AB97B8D7D6A8CB12526EFF6E419EEC38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +500,8 @@ Skyrim – пятая игра линейки The Elder Scrolls – заслуж
 magnet:?xt=urn:btih:0C5C44F05C6AB97F64A4F72C4FC7174D947B5BB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +525,8 @@ magnet:?xt=urn:btih:0C5C44F05C6AB97F64A4F72C4FC7174D947B5BB9
 ```bash
 magnet:?xt=urn:btih:F83946B447BA144920173B78876D5E75BC6A6EC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +552,8 @@ magnet:?xt=urn:btih:F83946B447BA144920173B78876D5E75BC6A6EC9
 magnet:?xt=urn:btih:DA38B5DFEBE6DA8A62DD67A3143E700AD801C722
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +578,8 @@ magnet:?xt=urn:btih:DA38B5DFEBE6DA8A62DD67A3143E700AD801C722
 magnet:?xt=urn:btih:0A2A32644C3699E65F14C5829D487F46BAA86E87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:0A2A32644C3699E65F14C5829D487F46BAA86E87
 ```bash
 magnet:?xt=urn:btih:5016C89341CD4950D92AC66BEEDEEF648F02175A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +632,8 @@ magnet:?xt=urn:btih:5016C89341CD4950D92AC66BEEDEEF648F02175A
 magnet:?xt=urn:btih:4640F287A287F9F03E056044AB3856F63D97F96C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:4640F287A287F9F03E056044AB3856F63D97F96C
 ```bash
 magnet:?xt=urn:btih:AE91481273AF39102C288E75BD7F0DEF630EA7A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,31 +686,7 @@ magnet:?xt=urn:btih:AE91481273AF39102C288E75BD7F0DEF630EA7A8
 magnet:?xt=urn:btih:FCA68F3D6B1ABF75AF206B3AF53F7F9B7FE10EED
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847142   (1051947) от 10.01.2026
-
-Стейн Ванхеле | Почему психоз не безумие. Рекомендации для специалистов, пациентов и их родных (2025) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стейн Ванхеле, известный бельгийский специалист по ментальному здоровью, утверждает, что примерно 15 процентов населения могут в течение жизни иметь психотический опыт, в котором они теряют контакт с реальностью. И несмотря на это, мы часто боимся говорить о психозе и избегаем общения с людьми, переживающими психоз. Как же помочь и поддержать таких людей?
-
-Стейн (   Читать дальше...   )Жанр: Саморазвитие, личностный ростПеревод: Анна АлиповаИздательство: АзбукаФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDAAABF5236B081F4C9A16EC8EAB3CA632D97A35
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

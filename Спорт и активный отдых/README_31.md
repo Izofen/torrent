@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:970A8E38423524F2339F8D7BF9302D1BFEFDB6C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:970A8E38423524F2339F8D7BF9302D1BFEFDB6C2
 ```bash
 magnet:?xt=urn:btih:64A9C0985A2506EEF6883776948292ACB3D80764
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:64A9C0985A2506EEF6883776948292ACB3D80764
 magnet:?xt=urn:btih:90B79F30588433E0236C6E2782CA9B851E63A879
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ MotoGP. Этап 09 из 20. Гран-при Германии. Гонка (07.07
 magnet:?xt=urn:btih:54CDC00DEB71C3F93CF90C77EA09671440BD251E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ MotoGP. Этап 09 из 20. Гран-при Германии. Спринт (06.
 ```bash
 magnet:?xt=urn:btih:D386BAE8A563BD09D838312957DBF18E067B4A03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:D386BAE8A563BD09D838312957DBF18E067B4A03
 magnet:?xt=urn:btih:BC423D52FF770A56E86F2049A38E9265A13FFA45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ MotoGP. Этап 09 из 20. Гран-при Германии. Квалифик�
 ```bash
 magnet:?xt=urn:btih:6113D3F5D50011F0F9A24B0EDB427EB90C756C4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:6113D3F5D50011F0F9A24B0EDB427EB90C756C4E
 magnet:?xt=urn:btih:08F2D220AEEE370887E9755290C9BD590A5CF03B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:08F2D220AEEE370887E9755290C9BD590A5CF03B
 ```bash
 magnet:?xt=urn:btih:5AC7CC4D4085A894965B40C7B1F8648BBEA69D9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ magnet:?xt=urn:btih:5AC7CC4D4085A894965B40C7B1F8648BBEA69D9B
 magnet:?xt=urn:btih:FAE7E46BF0AC48C6A92835A60AEC738BFAF9366B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ magnet:?xt=urn:btih:FAE7E46BF0AC48C6A92835A60AEC738BFAF9366B
 ```bash
 magnet:?xt=urn:btih:AFF34D01CACCFA3512CCF0595959628DCBFF1C9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -306,6 +328,8 @@ magnet:?xt=urn:btih:AFF34D01CACCFA3512CCF0595959628DCBFF1C9A
 magnet:?xt=urn:btih:F560FD7B2D5DBCC1E1C13D60DA2BF7D0818EB64C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +356,8 @@ magnet:?xt=urn:btih:F560FD7B2D5DBCC1E1C13D60DA2BF7D0818EB64C
 ```bash
 magnet:?xt=urn:btih:354C3A420118A5832CAAE9971A520F75C2C15A6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +386,8 @@ magnet:?xt=urn:btih:354C3A420118A5832CAAE9971A520F75C2C15A6E
 magnet:?xt=urn:btih:1BE169C16CD9EAB8D92C6792416B6803FB2332B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +414,8 @@ magnet:?xt=urn:btih:1BE169C16CD9EAB8D92C6792416B6803FB2332B2
 ```bash
 magnet:?xt=urn:btih:209E023129391DBD800C39B4A9B7CE050E821E3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +444,8 @@ magnet:?xt=urn:btih:209E023129391DBD800C39B4A9B7CE050E821E3F
 magnet:?xt=urn:btih:DFECA69807C259FAB75B58F5C6B215D215843DA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +472,8 @@ magnet:?xt=urn:btih:DFECA69807C259FAB75B58F5C6B215D215843DA4
 ```bash
 magnet:?xt=urn:btih:15BFE0FFF513BFC5C04D1AE1FA23F0894A7DBDD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +502,8 @@ magnet:?xt=urn:btih:15BFE0FFF513BFC5C04D1AE1FA23F0894A7DBDD8
 magnet:?xt=urn:btih:EE104BAA642CB76BEE45A509F2B6C92E32D2009C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +527,8 @@ magnet:?xt=urn:btih:EE104BAA642CB76BEE45A509F2B6C92E32D2009C
 ```bash
 magnet:?xt=urn:btih:2CD1C2C5E08BFB25E0C2114A6482545CB097846F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +557,8 @@ magnet:?xt=urn:btih:2CD1C2C5E08BFB25E0C2114A6482545CB097846F
 magnet:?xt=urn:btih:4418880ED29F1D8369211C70F8CB7583E72B8D4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +583,8 @@ magnet:?xt=urn:btih:4418880ED29F1D8369211C70F8CB7583E72B8D4F
 ```bash
 magnet:?xt=urn:btih:28BCAC7B9A60487A26283CE5F8D661545436D087
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +613,8 @@ magnet:?xt=urn:btih:28BCAC7B9A60487A26283CE5F8D661545436D087
 magnet:?xt=urn:btih:76E898EB5B5D6839ED61C0C05B3A7EB953E691C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +641,8 @@ magnet:?xt=urn:btih:76E898EB5B5D6839ED61C0C05B3A7EB953E691C8
 ```bash
 magnet:?xt=urn:btih:5F0AFC34AB2C15FDBDFCE68070FC0AFCAB6B9A7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +671,8 @@ magnet:?xt=urn:btih:5F0AFC34AB2C15FDBDFCE68070FC0AFCAB6B9A7C
 magnet:?xt=urn:btih:7600C08ECAE8328AB29904AACE9CEB028F6494F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +696,8 @@ Main card турнира "UFC on ABC 6", прошедшего в UFC Apex facili
 ```bash
 magnet:?xt=urn:btih:05D72CC4922904D041750904B22DAFF1F810D82B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -675,6 +725,8 @@ magnet:?xt=urn:btih:05D72CC4922904D041750904B22DAFF1F810D82B
 ```bash
 magnet:?xt=urn:btih:C302A50C82C9EDC1606E045851731D8CE3639425
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

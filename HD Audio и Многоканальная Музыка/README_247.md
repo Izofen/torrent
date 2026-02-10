@@ -1,3 +1,32 @@
+###  Публикация: 1524455   (743627) от 16.01.2022
+
+Paul Mauriat And His Orchestra – Gone Is Love (1970) [DSD128 2.0|tracks|Vinyl-Rip] <Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gone is Love (2:33)
+ 02. Home Again (3:04)
+ 03. My House And The River (2:56)
+ 04. Could This Be Me (3:36)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 00:34:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B6E43B331867D0BA3FC1D0AEDE3B06D1F0B71CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 783781   (743906) от 05.05.2014
 
 Тухманов - По волне моей памяти (1976) [FLAC 2.0 24/192|traks(Vinil-Rip)]<ArtRock, Schlager>
@@ -28,6 +57,8 @@
 magnet:?xt=urn:btih:3C1ED3739AAD88257D9482A2DC2525664EF9AF68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +82,8 @@ Muse - 4 Альбома (2001-2012) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Alternat
 ```bash
 magnet:?xt=urn:btih:11B96F35161B6272AF4CDBE00057B47C5CDCCEF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -79,6 +112,8 @@ A3 Sgt. Pepper's Lonely Hearts Club Band(   Читать дальше...   )Жа
 magnet:?xt=urn:btih:ED79CAA200AAA39DE6A04C1F3E3CB96C0EB7126A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -105,6 +140,8 @@ A3 From Me To You(   Читать дальше...   )Жанр: Beat, Pop RockП�
 ```bash
 magnet:?xt=urn:btih:43605E3D08B535E30D60EEEFB531B46D092426FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -133,6 +170,8 @@ A4 Jeden Abend(   Читать дальше...   )Жанр: Art Rock, Krautrock�
 magnet:?xt=urn:btih:95D3BCDADD3CAACA5CA9B3EB783667458A8E77B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -159,6 +198,8 @@ A4 God Bless The Child(   Читать дальше...   )Жанр: Jazz, Blues�
 ```bash
 magnet:?xt=urn:btih:313CBB8C30B09244837A7887109597C4D942DA18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +229,8 @@ Various Artists – Best of Super Audio CD (2002) [DTS 5.1 44.1 /16 | .wav+.cue 
 magnet:?xt=urn:btih:61F3991BAD4E5DD27A1E349605C190B5660BE7DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +257,8 @@ A4 Can't Stand It Any Longer(   Читать дальше...   )Жанр: Pop Ro
 ```bash
 magnet:?xt=urn:btih:1B7CD35271646095C8214DB499F06230FD7BE04D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +287,8 @@ A Stranger In Town (Dance Mix)
 magnet:?xt=urn:btih:B50D1736179C1208ADABB4B60D83FBA6B8EEB0D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +315,8 @@ A4 Believer (Верящий)(   Читать дальше...   )Жанр: Heavy 
 ```bash
 magnet:?xt=urn:btih:1093B42A25CC5F36E0B57C13CFDA653138B1FFB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +351,8 @@ magnet:?xt=urn:btih:1093B42A25CC5F36E0B57C13CFDA653138B1FFB4
 magnet:?xt=urn:btih:D17C48478FBE2982789BCD16BE921A53BD36BEA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +379,8 @@ VA - The Absolute Sound (2016) [DSD64 2.0|1bit/2822,4kHz |SACD-R]<Classical, Fol
 ```bash
 magnet:?xt=urn:btih:FC52E1E72804233B9DC1B10C63299DF7812E5857
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +415,8 @@ Pink Floyd - Delicate Sound Of Thunder (2 LP) (1988) [FLAC 2.0 24/192|traks(Vini
 magnet:?xt=urn:btih:1BD4DEFB6EB1687BA4A15514A3D0CD7F0060A206
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +443,8 @@ Deep Purple - Turning To Crime (2021) [DSD128 2.0|tracks|Vinyl-Rip] <Rock, Blues
 ```bash
 magnet:?xt=urn:btih:E52485D1D1AD75EF62EDA57DA58A8CA405BE2FB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +473,8 @@ Devotion — последний полноформатный диск Аарон
 magnet:?xt=urn:btih:A399BA1DDF90B8AB81B913996596E6E8D209B16C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +501,8 @@ B1 Something In The Air (Album Mix)
 ```bash
 magnet:?xt=urn:btih:7F438428D44C3DCE881E4A56F966E3AA90ABFDB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +531,8 @@ Metallica - Master Of Puppets (1986) [WavPack 2.0|192/32|image + .cue|Vinil-Rip]
 magnet:?xt=urn:btih:6D29BC2D7BE47F2CAF87841F007B6A668FA38004
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +558,8 @@ CD2 - Queen Of The Damned (songs by Jonathan Davis)Жанр: Stage & Screen, Nu 
 magnet:?xt=urn:btih:DA11032AC2BC113E20A228B5C04D805E31CA55F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +583,8 @@ Coldplay - 4 альбома (Vinil-rip 24 Bit/96 kHz) (2000-2008) [FLAC|Lossless
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +613,8 @@ Coldplay - 4 альбома (Vinil-rip 24 Bit/96 kHz) (2000-2008) [FLAC|Lossless
 magnet:?xt=urn:btih:9A7395FFA3B85F4B35EF0A61B6A5B9978631B551
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +641,8 @@ VA - The Absolute Sound (2017) [DSD64 2.0|1bit/2822,4kHz |SACD-R]<Classical>
 ```bash
 magnet:?xt=urn:btih:C41DC17063CE65A38AA207995FF4729EAD837E8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +672,8 @@ The Mavericks ("Индивидуалисты") - американская нео
 magnet:?xt=urn:btih:E5C69CEABF82C3580A5261EC1FDE127F30EAE7D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +700,8 @@ Rush - 2112 (2012) 1976 [FLAC 5.1|96/24|tracks|Lossless|DVD-Audio] <Hard Rock, P
 ```bash
 magnet:?xt=urn:btih:587279EA375FC12967CCED75CC7B983A7B8D065B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -655,6 +730,8 @@ A4 FG-4(   Читать дальше...   )Жанр: Pop RocПродолжите
 magnet:?xt=urn:btih:64ACA1696805481EE1B2777631F7653EDB5CF05B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -682,32 +759,7 @@ B1 Голубая Распсодия (Rhapsody In Blue)(   Читать даль
 magnet:?xt=urn:btih:D32EB551C11BCBD0C36EF22552F589383F76074B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017139   (763133) от 16.05.2016
-
-Marsyas - Pieces Of Favour (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Folk Rock, Acoustic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763133.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	The Last Moment (Na Poslední Chvíli)
-A2	Early Evening Blues (Blues Navečer)
-A3	Gold And Diamonds (Zlato A Stříbro)
-A4	From The Beginning(   Читать дальше...   )Жанр: Folk Rock, AcousticПродолжительность: 00:40:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BE2B58A0091EC59AE800ED616BBD1FF06EB039D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

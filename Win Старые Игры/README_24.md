@@ -19,6 +19,8 @@ Amerzone: The Explorer's Legacy (1999) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:E85654724AF11350360203DE203B5CB6229F44CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Knights of the Temple 2 / Тамплиеры 2 Портал Тьмы (2005) [Ru/
 ```bash
 magnet:?xt=urn:btih:DEB76B1E1D368417035DE9221C7B0EB5193979BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ American Civil War: Gettysburg / Гражданская Война: Решающ
 magnet:?xt=urn:btih:595984FC7F2E3FB4837C9AEB8EE2F384F6AD5474
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Ultimate Spider-Man [Ru/En] (Repack) 2005 | R.G. Механики
 ```bash
 magnet:?xt=urn:btih:2427FFB3BB4C569E3E70302779033567F52248E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:2427FFB3BB4C569E3E70302779033567F52248E9
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Rise of the Triad: Dark War (1994) [En] (1.3) License GOG
 ```bash
 magnet:?xt=urn:btih:A994385B8EC35B7DF8BEB90ABB150F2B4E122F08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Call of Cthulhu: Prisoner of Ice (1995) [Ru] (1.0) Repack Pilotus
 magnet:?xt=urn:btih:F858B1EF87264A0280887547E44172B838A10672
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Faery Tale Adventure II: Halls of the Dead (1997) [En] (1.0) License
 ```bash
 magnet:?xt=urn:btih:69CBBDD1AA5FCB9F47860D37CAA02BD0DA8AE4BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Blitzkrieg Anthology / Антология Блицкриг (2005) [Ru/En/Ge] (1.
 magnet:?xt=urn:btih:C62CF71A5FB0A2EA8B56E756BD448D26F3C224C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Wizards and Warriors (2000) [En] (1.0) License
 ```bash
 magnet:?xt=urn:btih:825D4D3FAA4A3BDE5F86FC6BDF06C7FDFCB14255
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Blade Runner (1997) [Multi] (1.0.1016) License GOG
 magnet:?xt=urn:btih:756ABF6EB675588AEC8CBDDA47ACE6E51DAE9F9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ New York Race / Погоня за 5 элементом [Ru] (L) 2001
 ```bash
 magnet:?xt=urn:btih:1AA8858FF7BE39D7E8CDDDF6FE0C9807FCD681F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Lords of the Realms 3 посвящена истории средневековь
 magnet:?xt=urn:btih:937C58B6BB2279A06C9DCC42B9E0F7FFF6C1C4C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Clive Barker's Undying [Ru/En] (Repack) 2001 | R.G. Механики
 ```bash
 magnet:?xt=urn:btih:3AC2CC8483C90449F9115A4E12B4E75160C1E35A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ I.G.I. Дилогия [Ru/En] (Rip/RePack/1.0-1.2) 2000-2003 | R.G. Catalyst
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Horror-action по сюжету известного писателя и реж�
 ```bash
 magnet:?xt=urn:btih:6B717027FBE3C23BE3B1FA2DB56AD1080D445395
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ TRON 2.0 [Ru/En] (Repack/1.042) 2003 | R.G. Механики
 magnet:?xt=urn:btih:AC26392BD56B32B1843FC2F2FFA9A1EC2016095C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Clay Dreams / Пластилиновый Сон (2002) [Ru] (1.0) License
 ```bash
 magnet:?xt=urn:btih:132D085745FE8F4D36121A1E4EAAE7130A59B690
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Real Myst (2000) [En] (1.11) License GOG
 magnet:?xt=urn:btih:A3BCC41404E744AD0E2BF000B1526750A89CF854
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Pirates of the Caribbean: At World's End основана на событиях 
 ```bash
 magnet:?xt=urn:btih:90673418F025396A3D2B4F257C065FB3E96A8613
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Peter Jackson's King Kong (2005) [Ru/Multi] (1.0.0.1) Repack R.G. Механик
 magnet:?xt=urn:btih:B3359E55DB46CB4277DDFFDF05281DE5DEA1CA51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Traffic Giant - продолжение серии GIANT, благодаря ко
 ```bash
 magnet:?xt=urn:btih:5C3F6E9189B4ACF8315814C51AC63CFA135795BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Atlantis 2: Beyond Atlantis / Атлантида 2 (1999) [Multi] (1.0) License 
 magnet:?xt=urn:btih:30FD0AE135C1AC890C864293854958FB67B06CC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Theme Park (1994) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:07E04C595FF2C62AB7A140419A7DD7F1E94DF02E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Pontifex 2 / Bridge Construction Set [En] (L/1.30) 2002
 magnet:?xt=urn:btih:FBDF4FD54CBB8D315E3B37A8BC21B38082B3B684
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ True Crime Дилогия [Ru/En] (RePack) 2004-2006 | Mailchik
 ```bash
 magnet:?xt=urn:btih:721244CBC6CF1E61298CDF963B059C483B05D697
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

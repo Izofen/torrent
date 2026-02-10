@@ -1,3 +1,29 @@
+###  Публикация: 1102965   (889344) от 10.02.2017
+
+Последнее перевоплощение Зои (2008) DVB
+
+>>Документалистика и Телепередачи
+>>Личности в истории
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889344.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1968 году Зое Ивановне Воскресенской вручается Государственная премия СССР. Писательница награждена столь высоко за цикл книг о жизни Владимира Ильича Ленина, суммарный тираж которых к тому времени уже превышает тираж книг самого вождя. По этим произведениям сняты художественные фильмы "Сквозь ледяную мглу" 1964, реж. Кольцатый, "Сердце матери", (   Читать дальше...   )Телекомпания: Россия / Телекомпания "Свой почерк"Жанр: Документальный, История, БиографияПродолжительность: 00:51:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1079B9A533158CC8DE058DC320A1AB1CE9EDF324
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102613   (889347) от 10.02.2017
 
 Кислотный океан / Acid Ocean (2014) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:2158EF111E95F5668031A58C7B7693EF2BFA5A50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:2158EF111E95F5668031A58C7B7693EF2BFA5A50
 ```bash
 magnet:?xt=urn:btih:9CF4C8D68C0BD622D38B5E02F631B14D95699D15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:9CF4C8D68C0BD622D38B5E02F631B14D95699D15
 magnet:?xt=urn:btih:513A7F98F18EC33801AB29D488F2DFF58A3031B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:513A7F98F18EC33801AB29D488F2DFF58A3031B9
 magnet:?xt=urn:btih:97981BAF8CD0ACFD4F0FCE9A9ED15E084AE0B7BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:97981BAF8CD0ACFD4F0FCE9A9ED15E084AE0B7BE
 ```bash
 magnet:?xt=urn:btih:7026A1272076C4CB5810642E44AD563215DE08F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:7026A1272076C4CB5810642E44AD563215DE08F8
 magnet:?xt=urn:btih:A3262A92222EBD62BABAD098DB5BF01876DDE192
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:A3262A92222EBD62BABAD098DB5BF01876DDE192
 ```bash
 magnet:?xt=urn:btih:82B2F14099BD7B89AFCC74ED6DE4ED52C2EAC4EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:82B2F14099BD7B89AFCC74ED6DE4ED52C2EAC4EE
 magnet:?xt=urn:btih:AE3CC4F875236C7ACECD04406E02BB927F76A64E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:AE3CC4F875236C7ACECD04406E02BB927F76A64E
 ```bash
 magnet:?xt=urn:btih:2FA128726B550E43828D31FF9F191DDF1E380046
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:2FA128726B550E43828D31FF9F191DDF1E380046
 magnet:?xt=urn:btih:E6122D582153EFD65178AFCF5AF9C051F7A65893
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:E6122D582153EFD65178AFCF5AF9C051F7A65893
 ```bash
 magnet:?xt=urn:btih:368DF00A369CB4936FA37408EB6B7E35663FC95C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:368DF00A369CB4936FA37408EB6B7E35663FC95C
 magnet:?xt=urn:btih:0D771FA5DD9842EBFE072132F2F8C01AACE18241
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:0D771FA5DD9842EBFE072132F2F8C01AACE18241
 ```bash
 magnet:?xt=urn:btih:85CB631952A16E9BC25D7FA3949EE0C21C092092
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:85CB631952A16E9BC25D7FA3949EE0C21C092092
 magnet:?xt=urn:btih:88114DE824381BA2A3C07A4CA0B2BC2441101F0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ BBC: Морская держава / BBC: Empire of the Seas. How the Navy Forge
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +441,8 @@ BBC: Морская держава / BBC: Empire of the Seas. How the Navy Forge
 magnet:?xt=urn:btih:0D8AB72F519B92CE35F5D9C23EB5D25CE12B7294
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:0D8AB72F519B92CE35F5D9C23EB5D25CE12B7294
 magnet:?xt=urn:btih:CC467F290F569F805FDD2806BAA3AA57222C1C21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:CC467F290F569F805FDD2806BAA3AA57222C1C21
 ```bash
 magnet:?xt=urn:btih:D42DCD68E2107DD9477C3F04077142BDE6AC6074
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:D42DCD68E2107DD9477C3F04077142BDE6AC6074
 magnet:?xt=urn:btih:9A52C514CB4A89A4497A1D391C77C7CB7E3D07C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:9A52C514CB4A89A4497A1D391C77C7CB7E3D07C6
 ```bash
 magnet:?xt=urn:btih:41A3F3AD2FA3AF906C55386D66F8E12CCBCB4B54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:41A3F3AD2FA3AF906C55386D66F8E12CCBCB4B54
 magnet:?xt=urn:btih:2AA6EE5E0F74FA6CF03FC3F58C70F80D984B26C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +600,8 @@ magnet:?xt=urn:btih:2AA6EE5E0F74FA6CF03FC3F58C70F80D984B26C3
 ```bash
 magnet:?xt=urn:btih:A905672354A2EB83EA6E55D5520CAD33BB1C5278
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:A905672354A2EB83EA6E55D5520CAD33BB1C5278
 magnet:?xt=urn:btih:5347E42A08219D9B91B7DDE0D31068DC6946371D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +654,8 @@ magnet:?xt=urn:btih:5347E42A08219D9B91B7DDE0D31068DC6946371D
 ```bash
 magnet:?xt=urn:btih:32EB17DBB07644D646026F4DA0B4CA51CB004EC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,29 +681,7 @@ magnet:?xt=urn:btih:32EB17DBB07644D646026F4DA0B4CA51CB004EC1
 magnet:?xt=urn:btih:4FBD439E8ED27E3670FECD1F758BD020A1B8D507
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994259   (891564) от 07.03.2016
-
-Я блесну непрошеной слезой (07.03.2016) SATRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Андрея Миронова большинство зрителей воспринимали стереотипно – баловень судьбы, любимец женщин, веселый парень – все у него, мол, получалось, легко и просто… Но какой ценой давалась ему эта легкость – никто даже не задумывался! Складывалось впечатление, что все, что делал Миронов - он делал ради кого-то. Ради мамы, ради семьи, ради зрителей! Он не жалел ни сил, (   Читать дальше...   )Телекомпания: Первый каналЖанр: ДокументальныйПродолжительность: 00:51:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1F442CC605D29BF944CD09FEF66720B585EFDA8
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

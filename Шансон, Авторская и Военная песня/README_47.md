@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:20077D2DEE85C2BC303EBDD8EBD1D8D7DA73C82F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:20077D2DEE85C2BC303EBDD8EBD1D8D7DA73C82F
 ```bash
 magnet:?xt=urn:btih:E43443AEC57B8FAA438D8A4E5B47C9F5528A30D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:E43443AEC57B8FAA438D8A4E5B47C9F5528A30D2
 magnet:?xt=urn:btih:58D9DB2BE8065C777C298F20750C19E305184E69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:58D9DB2BE8065C777C298F20750C19E305184E69
 ```bash
 magnet:?xt=urn:btih:5750C87D5B6E744A74852B5E0D1CB38B762E34EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:5750C87D5B6E744A74852B5E0D1CB38B762E34EF
 magnet:?xt=urn:btih:8F70C780BEB705BDE4271827A0F4B9E751DB1FEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - 22-ое июня Песни военных лет 1941-1943 (2010) [FLAC|Lo
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - 22-ое июня Песни военных лет 1941-1943 (2010) [FLAC|Lo
 magnet:?xt=urn:btih:AF2424FAB07D3A0DDE1C18EA1C49C3B9FF4B3360
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Золотой суперхит 2 2018/2019 (2019) [MP3|320 Kbps] <Chanson,
 ```bash
 magnet:?xt=urn:btih:1411F7F8F842BBEB1D198C4E3A3D0EF33D14D860
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ magnet:?xt=urn:btih:1411F7F8F842BBEB1D198C4E3A3D0EF33D14D860
 magnet:?xt=urn:btih:C08159F7756581D91A5FE24BDFE25FE64AA30457
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +283,8 @@ VA - Золотой суперхит 2017/2018 (2018) [MP3|320 Kbps] <Chanson, P
 magnet:?xt=urn:btih:CDCCBD83BA205E122CCFF5DDA8277165C72E284E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +309,8 @@ magnet:?xt=urn:btih:CDCCBD83BA205E122CCFF5DDA8277165C72E284E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +339,8 @@ magnet:?xt=urn:btih:CDCCBD83BA205E122CCFF5DDA8277165C72E284E
 magnet:?xt=urn:btih:4B65D0AAA1A6C05865718ACAA1F5571D3F5C04DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +367,8 @@ magnet:?xt=urn:btih:4B65D0AAA1A6C05865718ACAA1F5571D3F5C04DA
 ```bash
 magnet:?xt=urn:btih:25D8EDBFDAC0C5520E5A738EE49C512BC9968F51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +397,8 @@ magnet:?xt=urn:btih:25D8EDBFDAC0C5520E5A738EE49C512BC9968F51
 magnet:?xt=urn:btih:E049934AAE254623E5F971CBE8567EA8A41ACAF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +425,8 @@ Bernard Lavilliers - Samedi soir a Beyrouth (2008) [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:E41831C8D554D8066C92B2A14ED4EB34A804736F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +455,8 @@ magnet:?xt=urn:btih:E41831C8D554D8066C92B2A14ED4EB34A804736F
 magnet:?xt=urn:btih:8D35FC310ED8CEC4163A6003697DB7DEB6DE36DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +483,8 @@ magnet:?xt=urn:btih:8D35FC310ED8CEC4163A6003697DB7DEB6DE36DA
 ```bash
 magnet:?xt=urn:btih:647571C6CE142798ED319475C2DC2DFC54B4D8AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +513,8 @@ VA - Дальний Свет - Выпуск Седьмой (2006) [APE|Lossless|
 magnet:?xt=urn:btih:9BD7EE0EF1DFD41DA13C20FEC6F491EDD6A7EDF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +541,8 @@ magnet:?xt=urn:btih:9BD7EE0EF1DFD41DA13C20FEC6F491EDD6A7EDF4
 ```bash
 magnet:?xt=urn:btih:51A7E018939221B059FBC15495E3730933D725D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +571,8 @@ magnet:?xt=urn:btih:51A7E018939221B059FBC15495E3730933D725D4
 magnet:?xt=urn:btih:9E8084704453D522BEA9753AB00FD9F111A0B24C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +599,8 @@ magnet:?xt=urn:btih:9E8084704453D522BEA9753AB00FD9F111A0B24C
 ```bash
 magnet:?xt=urn:btih:44A95F696523DC6DD26EC4C84E238EDE0FAAE99F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +629,8 @@ magnet:?xt=urn:btih:44A95F696523DC6DD26EC4C84E238EDE0FAAE99F
 magnet:?xt=urn:btih:5DC83975A2EB27C3FEEC426AB73F9044238E89E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +657,8 @@ magnet:?xt=urn:btih:5DC83975A2EB27C3FEEC426AB73F9044238E89E7
 ```bash
 magnet:?xt=urn:btih:07192A7A2389B2D21C76B13388A1224CFFDD6F5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +688,8 @@ magnet:?xt=urn:btih:07192A7A2389B2D21C76B13388A1224CFFDD6F5C
 magnet:?xt=urn:btih:092B98F754B4E3D0CBAEA36A0BF0544749473E2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +717,8 @@ magnet:?xt=urn:btih:092B98F754B4E3D0CBAEA36A0BF0544749473E2D
 magnet:?xt=urn:btih:FC3E16515C016AF2F128EA33DFBF123AFA08B488
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +745,8 @@ magnet:?xt=urn:btih:FC3E16515C016AF2F128EA33DFBF123AFA08B488
 ```bash
 magnet:?xt=urn:btih:4CE38613540B74C0B09FCB6BE3148C3D1C6E2D97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,148 @@
+###  Публикация: 1510395   (791579) от 16.11.2021
+
+Gayle Adams - 2 Albums (1980, 1982) Reissue CD, 1992, Unidisc [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американская диско исполнительница и автор песен, родившаяся в Вашингтоне, округ Колумбия. Записала эти два альбома для лейбла Prelude Records, ориентированного на танцы, в начале 1980-х годов. Ее самые известные хиты - "Stretchin' Out" (1980) и "Love Fever" (1982).01. Your Love Is A Live Saver (5:55)
+02. Stretchin' Out (6:11)
+03. The Love Of My Man (3:35)
+04. You Brought It On Yourself (5:27)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 02:15:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01884E899154A88EDB4A59394B5F67793648FFAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201807   (791628) от 26.01.2018
+
+Craig David - The Time Is Now (2018) [MP3|320 Kbps] <Pop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic
+02. Heartline
+03. Brand New
+04. Going On(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 00:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B05A3A8370AD81B7E4731C436EF72918C088175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274889   (791705) от 09.01.2019
+
+VA - Dance Room Party 2019-Essential Anthems / Electronic & Dance Music Hits (2019) [MP3|320 Kbps] <Euro Dance, Pop Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lorenz Koin & Norah B. - In The Name Of Love (Radio Mix) 3:22
+02. Nico Del Prato - Anymore (Radio Edit) 3:07
+03. Enormous Cats - Ready Or Not (Club Mix) 4:31
+04. Robert Taylor - Keep It Real (Original Mix) 4:13(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:17:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3151CF79A78A057F5562043F5A0555C7FD804116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510122   (791923) от 15.11.2021
+
+ABBA - Voyage (2021) 2xCD, Japanese Edition [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791923.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - Voyage:
+01. I Still Have Faith In You
+02. When You Danced With Me
+03. Little Things(   Читать дальше...   )Жанр: PopПродолжительность: 01:55:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E71C310776BD6FEDD2D51BACEE3836AD1FB70C39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509298   (791929) от 15.11.2021
+
+ABBA - Voyage (2021) [FLAC 2.0|96/24|tracks|WEB-DL] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791929.jpg" />
+</div>
+
+
+###  Подробнее
+
+ABBA ушла тихо, без официальных объявлений о распаде, в 1982 году. За несколько десятилетий в Швеции появилось немало звезд мирового уровня, но едва ли кто-то из них смог бы потягаться с легендарной группой в популярности. В сентябре 2021 года коллектив объявил о скором выходе нового, девятого альбома, получившего название Voyage - с десятью ранее неиздававшимися (   Читать дальше...   )01. I Still Have Faith in You (5:09)
+02. When You Danced With Me (2:50)
+03. Little Things (3:08)
+04. Don’t Shut Me Down (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD2005842F8DAD83FF6713A7CFCDCC8265F2F499
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201676   (792101) от 25.01.2018
 
 Людмила Сенчина - Золушка (1975) Remastered, 2001, Melodiya Record Company Europe [MP3|320 Kbps] <Pop, Vocal>
@@ -21,6 +166,8 @@
 ```bash
 magnet:?xt=urn:btih:00AB6A9B42CF64DB5800A96B1D6A8A8B7B7C2E97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +196,8 @@ Noel - Is There More To Life Than Dancing? (1979) LP [MP3|320 Kbps] <Electronic,
 magnet:?xt=urn:btih:E553272E472C58840D3A368D16EC695383B1E8D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +224,8 @@ magnet:?xt=urn:btih:E553272E472C58840D3A368D16EC695383B1E8D5
 ```bash
 magnet:?xt=urn:btih:6CE040B68E691F18B6EB5137082760B3D8817B75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +254,8 @@ Gilla - The HQ Vinil Collection (1975-1980) All Studio Albums [MP3|320 Kbps] <El
 magnet:?xt=urn:btih:724377AE312A28C7CAC0493DF84401776336C370
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +282,8 @@ magnet:?xt=urn:btih:724377AE312A28C7CAC0493DF84401776336C370
 ```bash
 magnet:?xt=urn:btih:4824FF1B718F36013E02129EB90D22F2649E1F60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +312,8 @@ The Chainsmokers - Memories...Do Not Open (2017) [MP3|320 Kbps] <Pop, Indie Pop,
 magnet:?xt=urn:btih:46BA570653D8DF1CA027D7E5A0F1153D0EA66F0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +340,8 @@ Levante - Nel Caos di stanze stupefacenti (2017) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:077680E35C0163DCB200C95E74306F68B3F5969A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +370,8 @@ VA - Clubfete 90er: 60 Club & Party Hits Of The 90's Vol.2 (2020) [MP3|320 Kbps]
 magnet:?xt=urn:btih:CAC33F8CA51713B7952E7F4E44D5FFC72E811B4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +398,8 @@ Icehouse - это австралийский рок-проект, который
 ```bash
 magnet:?xt=urn:btih:8355A2BD36198782C5AE56347AFB7BF4B5668A36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +429,8 @@ VA - Айсберг 5. Международный (2001) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:9CBED060A29E9737F1EAA43E94020D811FF90E51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +457,8 @@ VA - Summer Hits of the 10s (2020) [MP3|320 Kbps] <Pop, Lyrics>
 ```bash
 magnet:?xt=urn:btih:555EDFFCF4EBFD03DB4768D2D1E004026DD52F58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +487,8 @@ VA - DMC - Cool Grooves 61 (2020) [MP3|320 Kbps] < Electronic, Hip Hop, Funk>
 magnet:?xt=urn:btih:A8769DE3B99DC47B3352D06CC744BC2C539AAE9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +515,8 @@ magnet:?xt=urn:btih:A8769DE3B99DC47B3352D06CC744BC2C539AAE9E
 ```bash
 magnet:?xt=urn:btih:4E68FCBD07CCCD1E3189CBFEC8A64437D8C8E731
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +545,8 @@ VA - 2018 Grammy Nominees (2018) [FLAC|Lossless|tracks] <Pop, Hip Hop>
 magnet:?xt=urn:btih:DA517C035B706A6FBDBCE67F6A1E8DABBB8D1FED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +573,8 @@ CD - 1 - Romantica:
 ```bash
 magnet:?xt=urn:btih:BBEF02CDCEC95F548E248A01D9B53608FBFE0632
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +603,8 @@ VA - The Best Christmas Album In The World...Ever! 2021 [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:3E3308F2CFC643DF98D4D2E688889D8EE3C977B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +631,8 @@ Melody Stewart - Action Satisfaction (1980) Reissue CD, 2009, Unidisc [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:DB05821365F0470EA4FC927CEB948E22FDA0FD88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +661,8 @@ magnet:?xt=urn:btih:DB05821365F0470EA4FC927CEB948E22FDA0FD88
 magnet:?xt=urn:btih:08BD3DB994C89F678D78703B90F2B3BE490C1C20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +689,8 @@ Jess Glynne - Always In Between (2018) Deluxe Edition [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:BEE4F0222793AEC9BDF53325AFE354A9B5E1EF85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +719,8 @@ Thomas Anders - Pures Leben (2017) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:13A2E596777C65464F703FBF4A58D0098AB3549C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,140 +748,7 @@ Silver Convention - The Very Best Of (2004) Compilation, 2CD [FLAC|Lossless|trac
 magnet:?xt=urn:btih:6C6B3ED3F706A57C44AE683BC90F98C00D1BBAAB
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123038   (793314) от 06.04.2017
-
-VA - Айсберг. Дискотека 1-2 (2001) 2CD [MP3|image + .cue|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro Hit Mix Awards
-02. Hi-Fi - Почтовый поезд
-03. Гости из будущего - Это сильнее меня (Remix By DJ Шури & Тиша)
-04. Лена Перова - Лети за солнцем (Club Mix)(   Читать дальше...   )Жанр: PopПродолжительность: 01:24:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2527FB34FE77E8D369EDA4014614D788FDA54E7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386627   (793352) от 30.05.2020
-
-Thomas Anders - Alles Anders Collection (2020) 3CD, Limited Edition [FLAC|Lossless|WEB-DL|tracks] <Europop, Schlager, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modern Talking - You're My Heart, You're My Soul (Extended Version) (5:34)
-02. Modern Talking - Just We Two (Mona Lisa) (3:57)
-03. Modern Talking - With a Little Love (3:31)
-04. Modern Talking - One in a Million (3:40)(   Читать дальше...   )Жанр: Europop, Schlager, BalladПродолжительность: 03:25:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B74AF444A5628AD6F07AB6ADF42FE30AA824C68F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386911   (793389) от 30.05.2020
-
-Roberta Flack Featuring Donny Hathaway - Roberta Flack Featuring Donny Hathaway (1979) Reissue CD, 1996, Atlantic [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Only Heaven Can Wait (4:06)
-02. God Don't Like Ugly (4:38)
-03. You Are My Heaven (4:15)
-04. Disguises (2:26)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3350D0E34B0C321B0EEC92C0EE97B44C0C98BEB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386649   (793398) от 30.05.2020
-
-Людмила Зыкина - Людмила Зыкина (2020) Remastered [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793398.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Растёт в Волгограде берёзка
-2. Звёзды России
-3. Зимняя дорожка
-4. Калина во ржи(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C333AB9C4F8D2553E8A4D387295B9B9E737C40D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386723   (793409) от 30.05.2020
-
-Michael Bolton - Michael Bolton: Greatest Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Pop, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Love So Beautiful 4:06
-02. How Am I Supposed To Live Without You 4:14
-03. Said I Loved You...But I Lied 5:00
-04. To Love Somebody 4:08(   Читать дальше...   )Жанр: Pop-Rock, Pop, SoulПродолжительность: 01:30:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2F7DE99757F45A9E373592C2262BF5115B3A200
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

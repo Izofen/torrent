@@ -1,3 +1,38 @@
+###  Публикация: 570577   (387342) от 07.11.2012
+
+Steve Strauss - Just Like Love (2005) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<Acoustic Guitar>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Like Love
+02. Angel
+03. Youngstown
+04. Old Crow
+05. Dead Man’s Handle
+06. Jennie Mae
+07. Brother Mule
+08. Sunday Best
+09. The Dirt
+10. Lord Franklin(   Читать дальше...   )Жанр: Acoustic GuitarПродолжительность: 00:64:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:924836D0767049A6BA00D4958ACAB9BFC90AC248
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 718427   (387809) от 04.11.2013
 
 Genesis - ...Calling All Stations... (1997) Europe/2007 Reissue [FLAC 5.1 24/88,2|Image+cue (SACD-R)]<Progressive Rock, Pop Rock>
@@ -21,6 +56,8 @@ Calling All Stations - пятнадцатый и последний студий
 ```bash
 magnet:?xt=urn:btih:1A377301DE424163F43ACE17D91F90E45F1E903E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -55,6 +92,8 @@ Oasis - (What’s the Story) Morning Glory? (1995) [DST 2.0, 5.1 1bit/2822,4kHz 
 magnet:?xt=urn:btih:6187815C96657727BA20A817577F38B471779E80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,6 +120,8 @@ A4.  Ленинградский Рок-Н-Ролл (Leningradskij RockNroll)  ::
 ```bash
 magnet:?xt=urn:btih:8A015A8DC2FDC08ED779210622225416EDA39B69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +156,8 @@ magnet:?xt=urn:btih:8A015A8DC2FDC08ED779210622225416EDA39B69
 magnet:?xt=urn:btih:7C3EBEB566ACF8D405EDC9AB8F7D625BB4B35E5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +185,8 @@ Nirvana - Nevermind (1991) [LPCM2.0 96/24, DTS HD MA 2.0 96/24, Dolby TrueHD 2.0
 magnet:?xt=urn:btih:A65B42EB7BF03A5B6ABEEFC67C6D2010FED8A0B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +213,8 @@ magnet:?xt=urn:btih:A65B42EB7BF03A5B6ABEEFC67C6D2010FED8A0B5
 magnet:?xt=urn:btih:95712713C652BEE36B456A6A73544FE6606AD37B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +238,8 @@ magnet:?xt=urn:btih:95712713C652BEE36B456A6A73544FE6606AD37B
 ```bash
 magnet:?xt=urn:btih:39D7C3E023985F76D2240913DBAECCF95754B19D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +267,8 @@ B1. Paranoiac Personality (3:10)(   Читать дальше...   )Произв
 ```bash
 magnet:?xt=urn:btih:3A58D410D05CBE2CF1B8A0E4EF6494B9482A7CB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +303,8 @@ Fourplay - Energy (2008) [DSD 2.0/5.1 1bit/2822,4kHz |SACD-R]<Smooth Jazz>
 magnet:?xt=urn:btih:C6DD7A7523C12D3DD88EEAD2D70549F0143649AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +331,8 @@ VA - Best Hit Of Japan (Shungo Sawada/Akira Fukuhara Quintet) (19??) [FLAC 2.0|4
 ```bash
 magnet:?xt=urn:btih:A907E39A90C84424D2D2F3DF477F72BC0FF9228E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -306,6 +361,8 @@ Breaking Benjamin — американская альтернативная ро
 magnet:?xt=urn:btih:19D080D0B3674103960C95AD979E7057B0A61E50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +386,8 @@ Side 1A1.Жанр: Rock, Classical CrossoverПродолжительность: 
 ```bash
 magnet:?xt=urn:btih:3C0E6F50AD5D2C963D3827305630B4FF73C53D96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +416,8 @@ magnet:?xt=urn:btih:3C0E6F50AD5D2C963D3827305630B4FF73C53D96
 magnet:?xt=urn:btih:B3D2ED7E392126831C16D57FF494B94D8616FEC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +444,8 @@ magnet:?xt=urn:btih:B3D2ED7E392126831C16D57FF494B94D8616FEC8
 ```bash
 magnet:?xt=urn:btih:35BB934EC2AF75F7DBC56404EE85A75F7C9BD876
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +474,8 @@ The Beatles - Вкус мёда (1986) WavPack|192/32|tracks|Vinyl-Rip] <Beat, R
 magnet:?xt=urn:btih:B8016860C410274BB321059A7AAFF06967012F1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +502,8 @@ The Jimi Hendrix Experience - Are You Experienced (1967) 2020 [DSD64 2.0|1bit/28
 ```bash
 magnet:?xt=urn:btih:5B1C6A8F35D48D38D4979DA34A98D46591BCED85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +532,8 @@ T.Rex - Electric Warrior (1971) 2020 [DSD 128|tracks|Vinyl-Rip] <Glam Rock>
 magnet:?xt=urn:btih:0DBDC4F8C6D58B0F07C260EC5A5D07E2AC791A05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +560,8 @@ Chimaira (kaɪˈmɪərə) — американская грув-метал гр�
 ```bash
 magnet:?xt=urn:btih:15E93F0FDC99144E2A0CFE9E34A0F3F797E6DE39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +590,8 @@ A4. Let Me Go (3:52)(   Читать дальше...   )Производство
 magnet:?xt=urn:btih:3750246EDB63CFBE915CF22E4B28727E61A0E093
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +619,8 @@ magnet:?xt=urn:btih:3750246EDB63CFBE915CF22E4B28727E61A0E093
 magnet:?xt=urn:btih:5B42223412DC3B121F461FD29E0A8AEBF1ACF7F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +644,8 @@ Peter White - Glow (2001) [DTS 5.1 44.1/16 | .wav+.cue (SACD)] <Smooth Jazz, Gui
 ```bash
 magnet:?xt=urn:btih:70A114C4DBFB5942B27E22911D08EA016F1DB078
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +674,8 @@ A4. Ласточка (3:51)(   Читать дальше...   )Жанр: Рок�
 magnet:?xt=urn:btih:DA81DF2A22CC0BC1268C2A7116831EC7F6A1E316
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +703,8 @@ Side 1:
 magnet:?xt=urn:btih:8ABE2B3FAE979738E819F01AD605CAD9AD7FE355
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +728,8 @@ Alan Parsons Project - The Turn of a Friendly Card [DTS CD from DVD-Audio) (1980
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -675,32 +758,7 @@ The Beatles - Abbey Road (1969) [FLAC 2.0 24/192|tracks(Vinil-Rip)]<Pop Rock>
 magnet:?xt=urn:btih:EADE00AC4898961D3DE902F3404227D83613B06B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 867374   (419985) от 16.10.2015
-
-Scorpions - Blackout (1982) [FLAC 2.0 24/192|tracks(Vinyl-Rip)]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Blackout  3:50
-2. Can't Live Without You  3:46
-3. No One Like You  3:56(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7EDA1EB2ACBA3F8DEB7DD72295FEEC0A2FC80DE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

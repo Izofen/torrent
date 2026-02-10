@@ -22,6 +22,8 @@ VA - 100 Greatest Party Starters (2019) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:3AE80FA51C696C7B1E51600EDE59438A144412F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Tom Rod - Understand (1978) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
 ```bash
 magnet:?xt=urn:btih:DA30D180452378CBCA20C642B04715E84162159E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Best Driving EDM 2019 (2018) [MP3|320 Kbps] <Big Room, Dance, Progressive H
 magnet:?xt=urn:btih:7EB27485A14E46D273184C349B8DFFC52CCBC184
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VLNY - Ближе (2017) [MP3|320 Kbps] <Indie Pop, Synth Pop, Dream Pop>
 ```bash
 magnet:?xt=urn:btih:F5F48F1A9D6326334086049213B68796F672A976
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Francesca Longrigg - True Noise (2017) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:C2D770354C9B21FD5995B19A7CE178C63EB758A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:C2D770354C9B21FD5995B19A7CE178C63EB758A6
 ```bash
 magnet:?xt=urn:btih:F9058A958D0034FE86B05CBD7EB989D0D83D5F26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Sweet Inspirations - Hot Butterfly (1979) LP [MP3|320 Kbps] <Funk/Soul, Disco>
 magnet:?xt=urn:btih:8170B535D37028528EF5020D9409A51C98F1200A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - La Musique Sovietique L’ete 1969 От Паланги до Гурзуфа 
 ```bash
 magnet:?xt=urn:btih:7C174199AB13379C2745D7DBA1BDF32C33B0946F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ magnet:?xt=urn:btih:7C174199AB13379C2745D7DBA1BDF32C33B0946F
 magnet:?xt=urn:btih:1A36E7845064A43B89077653958987CDD4E0C5BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:0263335B4E170A0FFE5560642EBAAB646693FD17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ magnet:?xt=urn:btih:0263335B4E170A0FFE5560642EBAAB646693FD17
 magnet:?xt=urn:btih:AD799A64A536762FECED71765AC1D4EF87A67115
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Plazma - Indian Summer (2017) [MP3|320 Kbps] <Рор>
 ```bash
 magnet:?xt=urn:btih:82C6C078919C9BE9ACCFFC3C67526FE735D00D3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Первый танцевальный, Vol. 14 (2017) [MP3|320 Kbps] <Pop, 
 magnet:?xt=urn:btih:CB38BFEF491FDC9644216B66BEEEB2A7EAE56631
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Inna - Nirvana (2017) Deluxe Edition [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:DCFDC2F4798B799116DF2E9E2DAAE86187ACFA0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - I love Italo Dance (Best Hits 90's Remixes) (2017) [MP3|320 Kbps] <Eurodanc
 magnet:?xt=urn:btih:21FF3C073613E8C8D84A516626702B20BAF8FF7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:168689C1CA1F7EE5AE6CC0800D5D714CB359886B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ YUKO - Коллекция (2017-2018) [MP3|320 Kbps] <Electro, Folk, Dance>
 magnet:?xt=urn:btih:F933FB84EB0B0711825EDC9C5EA44136B9A45E54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Shanghai - 2 Albums (1985, 1986) LP [MP3|320 Kbps] <Electronic, Synth-pop, Pop>
 ```bash
 magnet:?xt=urn:btih:195E420D53203E2BACDF5F1EAA64C4AFA7D91691
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ Mariah Carey - The Essential Mariah Carey (2019) 2CD, Compilation [FLAC|Lossless
 magnet:?xt=urn:btih:03254BDA70D5C6020EC8558507F5626419DC1438
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ VA - Now That's What I Call Music! 104 (2019) 2CD, UK Series[FLAC|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:B00D55CC646A9B5B615B0EB7262DD781C4304737
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ VA - Pop Dance Power Hits (2019) [MP3|320 Kbps] <Euro Dance, Pop Dance>
 magnet:?xt=urn:btih:FD0CCE0F89C84266848466CDB2A5A5CB90FA70E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ The Christians - Colour (2019) (Deluxe Edition) [FLAC|Lossless|WEB-DL|tracks] <E
 ```bash
 magnet:?xt=urn:btih:2B06E06D1AB075DE2FFA0669E0B92E7EC6D6ADB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ Mike Mareen - Greatest Hits & Remixes (2017) 2CD [FLAC|Lossless|image + .cue] <I
 magnet:?xt=urn:btih:0A051BD4E13CADD8480198A991E91FD887D4A737
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ magnet:?xt=urn:btih:0A051BD4E13CADD8480198A991E91FD887D4A737
 ```bash
 magnet:?xt=urn:btih:E7B93803A1F1CA68DFA0255A99B7581A8DC972F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ VA - Новый год в стиле Ретро (2016) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:002670627B5AA56DBC48B8DBE1161DA8A2E00043
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ VA - 50 Hits Winter 2019 (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:4AAE301E774F3651A8021980CCCDEA982840B717
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

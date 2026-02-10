@@ -21,6 +21,8 @@ SnapNDrag поддерживает PNG, JPEG и TIFF форматы, если н
 magnet:?xt=urn:btih:C1A389F6562E642A1D9D072256BB946B92D34A6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:C1A389F6562E642A1D9D072256BB946B92D34A6F
 magnet:?xt=urn:btih:238F99BDEF6752BF821047BE848118774593ED86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:238F99BDEF6752BF821047BE848118774593ED86
 ```bash
 magnet:?xt=urn:btih:2879ED51B14764E521ACDAC61DF7826340F1D8B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:2879ED51B14764E521ACDAC61DF7826340F1D8B8
 magnet:?xt=urn:btih:683995EB687531A25FFBC3C4B5A7DBB1D452178B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Murasaki - это приложение для чтения книг в форм�
 ```bash
 magnet:?xt=urn:btih:97858D40E32434AE2F7E6E2569714F37EBB4701F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:97858D40E32434AE2F7E6E2569714F37EBB4701F
 magnet:?xt=urn:btih:75F523B2A605F82154186719DAAA66FDEF9B9AA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:75F523B2A605F82154186719DAAA66FDEF9B9AA0
 ```bash
 magnet:?xt=urn:btih:C6B60F32937E89BCEE62D42D7D3719300D71BDE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Swift Publisher - это пакет графических утилит для m
 magnet:?xt=urn:btih:CF383F3F68C1DA2E57C2777F95DFAE9C3C8F04C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Nitro Pro — программа, которая является альтерн
 ```bash
 magnet:?xt=urn:btih:C71E50E0CE23E6E28C80D851D39E7349884502AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:C71E50E0CE23E6E28C80D851D39E7349884502AB
 magnet:?xt=urn:btih:541F7D54E95AF8E0CF5DB7511B436B27DFDD1B63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ Dashcam Viewer - это современный и продвинутый мен�
 magnet:?xt=urn:btih:7AF32E85564AFE746F32B9594384C60C1A88424A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:7AF32E85564AFE746F32B9594384C60C1A88424A
 magnet:?xt=urn:btih:3B0C51CE652039FBFE3ECFD8072A5024F46C06D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:3B0C51CE652039FBFE3ECFD8072A5024F46C06D0
 ```bash
 magnet:?xt=urn:btih:EAFEF35677671B2161AA0279C69CD154FDF3A198
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ Sabu - Banshee (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:CE10BDD647814DE0B27C59856785FEEF58B2CB44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ Steve Gadd Band - At Blue Note Tokyo (2021) BFM Jazz [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:0301C16B3D241E7615BA2239552FAF5F2A75D874
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:0301C16B3D241E7615BA2239552FAF5F2A75D874
 magnet:?xt=urn:btih:4FF04F658388A5B495E8215F8B031610EB83AEC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ Endseeker - Global Worming (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Death Met
 magnet:?xt=urn:btih:8E74884A72DBF89438CB01C1A029D06A87A9ED9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:8E74884A72DBF89438CB01C1A029D06A87A9ED9A
 ```bash
 magnet:?xt=urn:btih:D227A11C4D271BC05A219A9CB748ECBE217FFCCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +509,8 @@ VideoDuke 2.2 [En]
 magnet:?xt=urn:btih:A6C3B9DCC67927C1ED642C62BBD46DDA5C4EBD86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ magnet:?xt=urn:btih:A6C3B9DCC67927C1ED642C62BBD46DDA5C4EBD86
 ```bash
 magnet:?xt=urn:btih:0929CCCAF7911A4703827EB3595989BECC4F9294
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +562,8 @@ magnet:?xt=urn:btih:0929CCCAF7911A4703827EB3595989BECC4F9294
 ```bash
 magnet:?xt=urn:btih:1AABF372DBD52E97CB55802C57D8273E73F18F7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ Angelus Apatrida - Aftermath (2023) [FLAC|Lossless|image + .cue] <Thrash Metal>
 magnet:?xt=urn:btih:168E39FD6AA9D0A117352B2474EB406FC25A7087
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +621,8 @@ Lich King - Necromantic Maelstrom (2007) [WavPack|Lossless|image + .cue] <Thrash
 magnet:?xt=urn:btih:68FD3A15CB96887AB3F16FE933515B53F6BE81B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +648,8 @@ GrabIt 4.931 [Multi]
 magnet:?xt=urn:btih:38BB93004988D30C9E238022FD1B75659C07D7E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +674,8 @@ Opera 65.0.3467.69 [Multi/Ru]
 magnet:?xt=urn:btih:882A99E46AFE85DA481AF6CF40AE1A6A4D109720
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ magnet:?xt=urn:btih:882A99E46AFE85DA481AF6CF40AE1A6A4D109720
 ```bash
 magnet:?xt=urn:btih:158C1B38D244EF13C3A015A07337996E0F60DFA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1359858   (963090) от 13.02.2020
+
+Денис Байгужин | Какая на хрен любовь? (2020) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Денис Байгужин – скандально известный свадебный король, который уже восемь лет помогает девушкам кардинально менять свою жизнь. Мир байгужанок – это особенный мир, в котором существуют свои правила. В своей новой книге Денис раскрывает тему любви по-байгужански. Что значит настоящая любовь настоящего мужчины? Что должен делать мужчина, если он по-настоящему влюблен? (   Читать дальше...   )Жанр: Психология, саморазвитие, личностный ростФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA605AD88237719A88031A47C76EC21DE8176B60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359875   (963156) от 13.02.2020
 
 Слободан Стойичевич | Сетевая война против сербов. Уроки для России (2020) [EPUB]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:C93CB8588139187E605499C444A7A93BD7E26293
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:C93CB8588139187E605499C444A7A93BD7E26293
 magnet:?xt=urn:btih:6D7142CDE474FEBE78E56A22E70A19661D40BB0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:6D7142CDE474FEBE78E56A22E70A19661D40BB0F
 ```bash
 magnet:?xt=urn:btih:3AA0762BF87AD210155E2633414120D6581BD9E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:3AA0762BF87AD210155E2633414120D6581BD9E1
 magnet:?xt=urn:btih:7A8C11FE48B07990AB60FD94D6F923C68768185E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:7A8C11FE48B07990AB60FD94D6F923C68768185E
 ```bash
 magnet:?xt=urn:btih:D2A41AAB5297C8A4B08E857755BC6018D52FED5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:D2A41AAB5297C8A4B08E857755BC6018D52FED5B
 magnet:?xt=urn:btih:4756A495E7602AFB164FDE78168568B800B11AE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:4756A495E7602AFB164FDE78168568B800B11AE0
 ```bash
 magnet:?xt=urn:btih:B7AE588ABE6276AE9FFFAB6937EB81D226E4CCCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:B7AE588ABE6276AE9FFFAB6937EB81D226E4CCCB
 magnet:?xt=urn:btih:279C8F8430DAFD517653298BD19B08B8144E9296
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:279C8F8430DAFD517653298BD19B08B8144E9296
 ```bash
 magnet:?xt=urn:btih:6F2C112A00A56D16F5D4A033B15F04FE25319773
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:6F2C112A00A56D16F5D4A033B15F04FE25319773
 magnet:?xt=urn:btih:EF38E2ED43DE5FB2D705A6EE7C5CD64E18D4C89E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:EF38E2ED43DE5FB2D705A6EE7C5CD64E18D4C89E
 ```bash
 magnet:?xt=urn:btih:DFA6B9E94F65B7333EED953A161CEBD0E8739340
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:DFA6B9E94F65B7333EED953A161CEBD0E8739340
 magnet:?xt=urn:btih:3B1788EA7B4D3A9A8E809387852F6C8A1F1AC704
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:3B1788EA7B4D3A9A8E809387852F6C8A1F1AC704
 ```bash
 magnet:?xt=urn:btih:7198DAB4CBC7C6A8598DB713BF72C24FCA9AA9FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:7198DAB4CBC7C6A8598DB713BF72C24FCA9AA9FB
 magnet:?xt=urn:btih:B7975DAF715B3F2514E55D78B9F31B07B1C1DD60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:B7975DAF715B3F2514E55D78B9F31B07B1C1DD60
 ```bash
 magnet:?xt=urn:btih:27DC64880EC119BC6B6FC2CA9BFED2ABD85F2ABB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:27DC64880EC119BC6B6FC2CA9BFED2ABD85F2ABB
 magnet:?xt=urn:btih:434DD4582F134C3B508B7C54B307549DB7DC3D0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:434DD4582F134C3B508B7C54B307549DB7DC3D0A
 magnet:?xt=urn:btih:0ED5260D2336B2713AF3A834AEC8EE87E3FA47F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:0ED5260D2336B2713AF3A834AEC8EE87E3FA47F9
 ```bash
 magnet:?xt=urn:btih:9B9FB549D8725BC979FEE774D5EE3371ABF4EB25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:9B9FB549D8725BC979FEE774D5EE3371ABF4EB25
 magnet:?xt=urn:btih:BE7A3D43F445685F2D72FCC4D61C6E8BF069E1CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:BE7A3D43F445685F2D72FCC4D61C6E8BF069E1CF
 ```bash
 magnet:?xt=urn:btih:A485811A2827F4CBF106AACDBA662E6B9A08FD0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:A485811A2827F4CBF106AACDBA662E6B9A08FD0B
 magnet:?xt=urn:btih:A9A26D5924C315803EB958B526BD43F1F19828BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +596,8 @@ magnet:?xt=urn:btih:A9A26D5924C315803EB958B526BD43F1F19828BA
 magnet:?xt=urn:btih:13E21907786126DCAEFB615F8879A45320635ED2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +621,8 @@ magnet:?xt=urn:btih:13E21907786126DCAEFB615F8879A45320635ED2
 ```bash
 magnet:?xt=urn:btih:74E3F7A54568F8D9EBDB29D1B5DD8A0C720BE3B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:74E3F7A54568F8D9EBDB29D1B5DD8A0C720BE3B0
 magnet:?xt=urn:btih:D8D1252E8BCEC65C1627A0666495FB34C210E195
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,29 +675,7 @@ magnet:?xt=urn:btih:D8D1252E8BCEC65C1627A0666495FB34C210E195
 magnet:?xt=urn:btih:23E5FC0F93DEBF09B290A3FDA94C0FB11B79A1C5
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 621062   (964267) от 19.02.2013
-
-Л.Смирнова (сост.) | Завтраки быстрого приготовления [2006] [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-В книге предлагаются рецепты более ста оригинальных, простых и очень полезных блюд для завтрака. Для удобства читателя приводятся варианты наиболее подходящего меню на каждый день недели с учетом времени года. Учтены интересы вегетарианцев и тех, кто соблюдает пост или решил похудеть. Особое внимание уделяется детскому меню, предлагаются варианты украшения блюд для детей, что сделает их более привлекательными. Адресуется массовому читателю.Формат: PDF
-
-## Скачать торент
-```bash
-нет
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

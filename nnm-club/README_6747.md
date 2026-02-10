@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:1F8A2A1B87A9628947E609B0F552868BB369D26A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Sonny Criss - Rockin' In Rhythm (1968) 1999, Original Jazz Classics [FLAC|Lossle
 magnet:?xt=urn:btih:900F07AE467CD85A478534CAC2C6E462F47621C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:900F07AE467CD85A478534CAC2C6E462F47621C1
 ```bash
 magnet:?xt=urn:btih:396DDD10B124AA61AC027AE0C899588770622E60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Incantation - Unholy Deification (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Met
 magnet:?xt=urn:btih:41E0447FFEED558A41CFE7D76DECEF11031FFA32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:41E0447FFEED558A41CFE7D76DECEF11031FFA32
 ```bash
 magnet:?xt=urn:btih:07DFBCF481B44E66C188664075F3007814FD7C8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ Dropshare - приложение строки меню для Drag & Drop заг
 magnet:?xt=urn:btih:E19B96A7B3FD0642B33A6AEAA3B0839B7F95DAE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Lord El-Melloi II-sei no Jikenbo: Rail Zeppelin Grace Note | Lord El-Melloi II's
 ```bash
 magnet:?xt=urn:btih:7E176B19F4A91E9B0B0E61C7DB34A26FF348116A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ Mastodon - Remission (2002) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive, Sludge M
 magnet:?xt=urn:btih:4F3B124811987B455D7D1285CC972C8BE9AD3F0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:4F3B124811987B455D7D1285CC972C8BE9AD3F0C
 ```bash
 magnet:?xt=urn:btih:60A698AB580B58CA067B2050E5B95BDDE3433A1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ Scatterbrain - Here Comes Trouble (1990) [FLAC|Lossless|image + .cue] <Thrash Me
 magnet:?xt=urn:btih:446F3F4EA5A3CEB436E321507E49CCB995A348DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ Madog - Raven (2018) [FLAC|Lossless|image + .cue] <Heavy, Power Metal>
 magnet:?xt=urn:btih:D57C798524406687159338806BF05D0B736F07BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ Mahou Tsukai Reimeiki | The Dawn of the Witch | Рассвет ведьмы [202
 ```bash
 magnet:?xt=urn:btih:662D5BE27FCCB349AECA08D9B02BA99974F045C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:662D5BE27FCCB349AECA08D9B02BA99974F045C4
 magnet:?xt=urn:btih:79A932AB56F0738BB51A0EF01D2CD4813DFCCCF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ Cookie - (   Читать дальше...   )Тип издания: macOS Softw
 ```bash
 magnet:?xt=urn:btih:3C170A8A929CF339E0AD2D1C846FB91DE8946779
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +405,8 @@ Cenobite - Torment Your Flesh and Explore the Limits of Experience (2023) [FLAC|
 magnet:?xt=urn:btih:B5C3FE9D0C79A805E682942A22085C433CB0BB0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ Udemy, MA Applied Linguistics & DELTA, James Castleden | IELTS Step-by-step | MA
 ```bash
 magnet:?xt=urn:btih:B48A2F37065EFFE2BEE4E5B9110BC54926DBA01E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +460,8 @@ Rideout - Driven To Insanity (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive H
 magnet:?xt=urn:btih:FD8034FED41D5D717DC246D2AD434CA049A70D3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ magnet:?xt=urn:btih:FD8034FED41D5D717DC246D2AD434CA049A70D3F
 ```bash
 magnet:?xt=urn:btih:E5C479CB7703DD40CB7EB8648B693664DDF66ECB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +512,8 @@ magnet:?xt=urn:btih:E5C479CB7703DD40CB7EB8648B693664DDF66ECB
 magnet:?xt=urn:btih:32F8EE5E6763B15172D90288C68A4655D9A64510
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +537,8 @@ magnet:?xt=urn:btih:32F8EE5E6763B15172D90288C68A4655D9A64510
 ```bash
 magnet:?xt=urn:btih:43E2A80CBBA1CC25425D17B75A0F6021041A2C08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +564,8 @@ magnet:?xt=urn:btih:43E2A80CBBA1CC25425D17B75A0F6021041A2C08
 magnet:?xt=urn:btih:37F22DEC9F3BB967F5715325051BD2BC81A3FF65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:37F22DEC9F3BB967F5715325051BD2BC81A3FF65
 ```bash
 magnet:?xt=urn:btih:CD99D70BBA2E523C2D8213C9B75D06BC2C8C861C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +617,8 @@ magnet:?xt=urn:btih:CD99D70BBA2E523C2D8213C9B75D06BC2C8C861C
 magnet:?xt=urn:btih:1ACDC547D092E644B1D09279358002E8060A1686
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +642,8 @@ magnet:?xt=urn:btih:1ACDC547D092E644B1D09279358002E8060A1686
 ```bash
 magnet:?xt=urn:btih:4A624552A93F6CF84616EEEC2CEF4C99BD921532
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +669,8 @@ magnet:?xt=urn:btih:4A624552A93F6CF84616EEEC2CEF4C99BD921532
 magnet:?xt=urn:btih:2A51FD43426A2430B16CF49731D9ED2E03392319
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ magnet:?xt=urn:btih:2A51FD43426A2430B16CF49731D9ED2E03392319
 ```bash
 magnet:?xt=urn:btih:A3CB6972C31E22099FD9EA22B7A1B181F061F29B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

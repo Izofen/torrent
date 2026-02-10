@@ -28,6 +28,8 @@ VA - Музыкальный Эксклюзив от Europa Plus (2012) [MP3|256 
 magnet:?xt=urn:btih:4C5AA24387EC62389D3857D747A053B213307345
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ VA - Deeper Lounge Line (2012) [MP3|320 kbps]<Chillout | Lounge>
 ```bash
 magnet:?xt=urn:btih:56B19B573EF16512B8164418E9556F09CB23A189
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ VA - Русские Новинки Vol.44 from AGR (2012) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:C79563340A543B17A0E4E77893B371A408E8C422
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +132,8 @@ VA - Хиты Европы Плюс №20 (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:96163EC328D19F1A9E87F2369DAE6CF889E78188
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +168,8 @@ VA - XXXL Super дискотечный 50/50 (2012) [MP3|256-320 kbps]<Pop>
 magnet:?xt=urn:btih:E177D5BD0321C6C6F8F6373B6D1A5B8BFBC14BE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +202,8 @@ VA - Слушать Всем DFm! 50/50 (2012) [MP3|256 kbps]<Pop | Dance>
 ```bash
 magnet:?xt=urn:btih:9FA715D5D2E5521F0E1F011203B8150857D9000B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +238,8 @@ VA - Deeper Chill Out Line (2012) [MP3|320 kbps]<Downtempo | Lounge | Chillout>
 magnet:?xt=urn:btih:56EC816F1EBCCAA454DB013E3E46BA18F971E7B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +272,8 @@ VA - Chill Out Vibes (2012) [MP3|320 kbps]<Downtempo | Lounge | Chillout>
 ```bash
 magnet:?xt=urn:btih:5E764EFD05918D1DE78307404AE72701665A3672
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +308,8 @@ VA - Дискотека Non-Stop. Будет жарко (2012) [MP3|160-256 кб
 magnet:?xt=urn:btih:516ED820DED3B95F6586F8F2679B9917D3E726B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +342,8 @@ VA - The Best Pop Albums of 2011 on Amazon (2011) [MP3|320 кб/с]<Pop>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +378,8 @@ VA - Авто Дискотека DFM Зарубежная (2012) [MP3|256 kbps]<
 magnet:?xt=urn:btih:AD3FE8D81B5096B4ABB44AB9AA8C175198CC4235
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +412,8 @@ VA - Радио Energy - NRJ HOT30 (13.04.2012) [MP3|320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:F2601A429674CE8C929C814078C1FF5F91D13E4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +448,8 @@ VA - Зарубежные Новинки Vol.41 from AGR (2012) [MP3|320 кб/с
 magnet:?xt=urn:btih:17A7DD0027A7883A32A64F6F9BC3091BA813053A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +482,8 @@ VA - Points of Interest (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On
 ```bash
 magnet:?xt=urn:btih:ABCC7948F018442598E864A8FFACEA907D13CCEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +518,8 @@ VA - Return To Eternya (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
 magnet:?xt=urn:btih:0C9F5D6C933181244B2ABE354C631CA09F610D34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +552,8 @@ VA - Chaos Machine Vol.2 (Compiled By Urban Freaks) (2012) [MP3|320 кб/с]<Tra
 ```bash
 magnet:?xt=urn:btih:810F0A85457C36B5286E1D62A0177EF06CD40C49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +588,8 @@ VA - Kiss FM - Top-40 (10.04.2012) [MP3|320 кб/с]<Dance>
 magnet:?xt=urn:btih:3AA02FE3E1DCE4E0854740FB120BD3AC29234C1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +623,8 @@ VA - Клубные новинки Vol. 66 from GvertO (2012) [MP3|320 кб/с]<
 magnet:?xt=urn:btih:7DBC52487425A7EBB966F1D671410483B22DA219
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +650,8 @@ VA - Хиты на радио клубнячек и попса vol.8 (2012) [MP3
 ```bash
 magnet:?xt=urn:btih:92E84F646B1FAF691CBD35DD26C8B5D0F7A89B0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -648,6 +686,8 @@ VA - Клубная танцевальная 100-ка (2012) [MP3|160-256 кб/�
 magnet:?xt=urn:btih:60B97026394C867087A998905B327E19877DF54C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -680,6 +720,8 @@ VA - MAXI. Русские новинки MTV (2012) [MP3|320 кб/с]<Pop,Dance>
 ```bash
 magnet:?xt=urn:btih:203C4FB9B7F6DEB73797292C0E54D74D81F84634
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -714,6 +756,8 @@ VA - Psytrance Proclear (2012) [MP3|320 кб/с]<Trance, Psy Trance, Full On>
 magnet:?xt=urn:btih:BE361BCCD6915C3C03290024DDDEBF137FADDC9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -746,6 +790,8 @@ VA - NRJ: Мы Эксперты По Молодому Поколению 50/50 (
 ```bash
 magnet:?xt=urn:btih:42CFBD313B95FB35269F3E11B6C39359B0901203
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -789,6 +835,8 @@ VA - Mega парад Русских ДиДжеев 3CD (2012) [MP3|320 кб/с]<
 magnet:?xt=urn:btih:74A09ECC775C78CEEB1363DF8B95EAFD159F4DA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -822,6 +870,8 @@ VA - Клубные Новинки Vol.61 from AGR (2012) [MP3|320 кб/с]<Club
 magnet:?xt=urn:btih:35CE40D0589331F0BB4357B7BC9DA246667A8E06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -854,6 +904,8 @@ VA - Студенческая Вечеринка Русский (2012) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:308E1359008F627B7A3FD5ABD4E9B24EF9B2AAD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

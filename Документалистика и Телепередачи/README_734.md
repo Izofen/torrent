@@ -1,3 +1,29 @@
+###  Публикация: 1142030   (1012833) от 03.06.2021
+
+Боевые награды Российской Федерации (2011) SATRip (2 серии из 2)
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012833.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Боевые награды Российской Федерации» - С начала 1992 года, после распада СССР, начала формироваться самостоятельная наградная система РФ.Не один раз декларировался тезис о том, что она будет строиться на идее определённой преемственности наградной системы дореволюционной России с сохранением ряда элементов советской наградной системы.Первым правовым актом о наградах (   Читать дальше...   )Телекомпания: Россия, студия "Крылья России"Жанр: Документальный, ИсторияПродолжительность: 01:15:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:434ADD16BA867820B951FAF1B71BB924C5788A34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216583   (1012836) от 03.06.2021
 
 «Витязь». Без права на ошибку (2018) HDTV [H.264/1080p-LQ]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:9A2F23F973E66850903AEB160BA8C003BF20A073
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ Qatsi trilogy: Koyaanisqatsi, Powaqqatsi, Naqoyqatsi (1982-1988-2002) BDRip [H.2
 magnet:?xt=urn:btih:165528D1237DCD8E2BA430765EA5233A83DB21A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:165528D1237DCD8E2BA430765EA5233A83DB21A6
 ```bash
 magnet:?xt=urn:btih:00313C9F0B6EC44489580FEB2AA3BBFBC521B3AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:00313C9F0B6EC44489580FEB2AA3BBFBC521B3AE
 magnet:?xt=urn:btih:F2111BA20A07D8887FE508E9B8E5527BCE0EE204
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:F2111BA20A07D8887FE508E9B8E5527BCE0EE204
 ```bash
 magnet:?xt=urn:btih:E976F1DC0F999C47ACDDF629987E2AA8974C11F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:E976F1DC0F999C47ACDDF629987E2AA8974C11F5
 ```bash
 magnet:?xt=urn:btih:802DDBA49E2525EE24B0E4DA88267B4ED8CB1E07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:802DDBA49E2525EE24B0E4DA88267B4ED8CB1E07
 magnet:?xt=urn:btih:6D79ABA41FB5F26928E46CEBDB9EF8E466BDE154
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:6D79ABA41FB5F26928E46CEBDB9EF8E466BDE154
 ```bash
 magnet:?xt=urn:btih:E74C7E69E1C572CD998C56BC47FCC49006BAC66F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:E74C7E69E1C572CD998C56BC47FCC49006BAC66F
 magnet:?xt=urn:btih:183A8EA43396C9836D8581C86ED74E29FFFFF9E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:183A8EA43396C9836D8581C86ED74E29FFFFF9E3
 ```bash
 magnet:?xt=urn:btih:A001A0EC861F36349EBA8C4C15145734900C86F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:A001A0EC861F36349EBA8C4C15145734900C86F6
 magnet:?xt=urn:btih:A39E54B5FE4C0DFE8FC74A17873CB3954FA129E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:A39E54B5FE4C0DFE8FC74A17873CB3954FA129E4
 magnet:?xt=urn:btih:8DF3A182FCE59324E0E54D7B12D557FE3578D893
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:8DF3A182FCE59324E0E54D7B12D557FE3578D893
 ```bash
 magnet:?xt=urn:btih:F11202300C2AE7E70F3E3B49DE6C47A75E40D5F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:F11202300C2AE7E70F3E3B49DE6C47A75E40D5F9
 magnet:?xt=urn:btih:213FD1113E8CD015EE65444BC8CFDE411A42A2F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:213FD1113E8CD015EE65444BC8CFDE411A42A2F9
 ```bash
 magnet:?xt=urn:btih:B1581ED7DA07B6B252D0E5068564441CB07C0AF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:B1581ED7DA07B6B252D0E5068564441CB07C0AF5
 magnet:?xt=urn:btih:F7C72EBD3DC79FF157167CEF3E66297E49E754E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:F7C72EBD3DC79FF157167CEF3E66297E49E754E3
 ```bash
 magnet:?xt=urn:btih:AD7295471C18A52553D9534092026CAC2CC65405
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +498,8 @@ magnet:?xt=urn:btih:AD7295471C18A52553D9534092026CAC2CC65405
 magnet:?xt=urn:btih:88DEF3D903DFB0F19F762F9FD52D24FE6754D674
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +523,8 @@ Happy End. Фильм о сериале (2021) WEBRip [H.264/1080p-LQ]
 ```bash
 magnet:?xt=urn:btih:6BAFDDA04C1EC3CB95F3C4AF1B70095B554AF058
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +553,8 @@ magnet:?xt=urn:btih:6BAFDDA04C1EC3CB95F3C4AF1B70095B554AF058
 magnet:?xt=urn:btih:F6E2AC4A07B6BB4A6F0C4ED012A7628A887120BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +578,8 @@ magnet:?xt=urn:btih:F6E2AC4A07B6BB4A6F0C4ED012A7628A887120BD
 ```bash
 magnet:?xt=urn:btih:534CD54043EA9D82F27978F026320248315D7165
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +605,8 @@ magnet:?xt=urn:btih:534CD54043EA9D82F27978F026320248315D7165
 magnet:?xt=urn:btih:097111DE4F089171BEB3F55A844A4996CF7308A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +630,8 @@ magnet:?xt=urn:btih:097111DE4F089171BEB3F55A844A4996CF7308A2
 ```bash
 magnet:?xt=urn:btih:32CD7237F1490B2AA38BF498072DB31FBFD20B02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:32CD7237F1490B2AA38BF498072DB31FBFD20B02
 magnet:?xt=urn:btih:839735B547C31EEB39DACB2D8487567CBBD218D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,29 +683,7 @@ magnet:?xt=urn:btih:839735B547C31EEB39DACB2D8487567CBBD218D2
 magnet:?xt=urn:btih:5BBBC2842BAA6522E383DF15DFAF4E2744AD5F4A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473894   (1013394) от 31.05.2021
-
-Извержение исландского вулкана / Icelandic Volcano Eruption (2021) WEBRip [H.264/2160p]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013394.jpg" />
-</div>
-
-
-###  Подробнее
-
-На полуострове Рейкьянес в Исландии 19 марта земля разверзлась, и лава достигла поверхности.Производство: ИсландияЖанр: Документальный, видовойРежиссер: Стефан ФорстерПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED0C46B732E97F6127BED1E5B4241007A954D4F0
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

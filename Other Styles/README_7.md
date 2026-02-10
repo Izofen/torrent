@@ -19,6 +19,8 @@ Yann Tiersen - Dust Lane (2010) [APE|Lossless]<Instrumental, Score, Neo-Classica
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ Ronan Hardiman - Michael Flatley's Lord Of The Dance (1996) [MP3|320 кб/с]<Ce
 magnet:?xt=urn:btih:DCBDCBB5B6CD339B2712147DAE47825DA23A7FEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:DCBDCBB5B6CD339B2712147DAE47825DA23A7FEA
 ```bash
 magnet:?xt=urn:btih:BD498B33E79CA978B12A6F200822E2B41D92282D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +115,8 @@ Fleur (Flёur) - Пробуждение (2012) [MP3|320 кб/с]<Cardiowave, Roc
 magnet:?xt=urn:btih:078BE8753E29CA93716E61022643134D995E9186
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +149,8 @@ Astral Electronic - Moon Walker (2012) [MP3|320 кб/с]<Space, Ambiemt, Electro
 ```bash
 magnet:?xt=urn:btih:09D6C07300718D0143D2EBA6F357FB6DEE21EF43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +185,8 @@ magnet:?xt=urn:btih:09D6C07300718D0143D2EBA6F357FB6DEE21EF43
 magnet:?xt=urn:btih:DC64889D8DD132C31C37325ACE74750731F0ED27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +219,8 @@ VA - Mystic India (Vol.1) (2001) [MP3|320 кб/с]<New Age, Meditative>
 ```bash
 magnet:?xt=urn:btih:957E9BDA6E72E8F9167CBCA522E1FC083802AB70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +257,8 @@ Need For Speed 3: Hot Pursuit (1998г) [MP3|128 кб/с]<OST, Techno>
 magnet:?xt=urn:btih:6B3D5D65F7AD24BDD72B4317D2B8FC01A0851647
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +294,8 @@ Need for Speed 4: High Stakes (1999) [MP3|128 кб/с]<OST>
 magnet:?xt=urn:btih:533E2833C7CE3C303B095FB9FEF46CCE0AE29C9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +328,8 @@ Irish Ёрш - Я Ирландец! (2011) [MP3|320 кб/с]<Celtic, Irish Folk>
 ```bash
 magnet:?xt=urn:btih:14E49253F9925BC45792310117D9A2E2C7E5E7DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +364,8 @@ Flёur (Fleur) - Пробуждение (Коллекционное издани
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +398,8 @@ Amernan - The Best Of Indianer (2007) [MP3|320 кб/с]<Folk, Native american, I
 ```bash
 magnet:?xt=urn:btih:B0194331D7D947B9C3A62FA45CB6B1325B578567
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +434,8 @@ VA - Любимые песни императора Николая II (2001) [MP
 magnet:?xt=urn:btih:C799FE46649765E863EF85BBFFF7F1585B74945B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +468,8 @@ magnet:?xt=urn:btih:C799FE46649765E863EF85BBFFF7F1585B74945B
 ```bash
 magnet:?xt=urn:btih:23D9A40BF73F8EDCF71BA5E7966ED59CAE811EF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +504,8 @@ VA - Любимые мелодии Советского кино (2012) [MP3|320
 magnet:?xt=urn:btih:1629151A5A7EEA837BCE8505B08F312D27D0E2EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +538,8 @@ Ludovico Einaudi - Intouchables / Неприкасаемые (2011) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:F036F364670125841F928918365AB158ADEB6530
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +574,8 @@ magnet:?xt=urn:btih:F036F364670125841F928918365AB158ADEB6530
 magnet:?xt=urn:btih:8515322FE95110655123B803E63D9485A959E32A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +608,8 @@ Sherlock - Original Television Soundtrack Music From Series One (2012) [MP3|~256
 ```bash
 magnet:?xt=urn:btih:A131D93CE5D659FA276B973E9D5F66BC9377ABA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +644,8 @@ magnet:?xt=urn:btih:A131D93CE5D659FA276B973E9D5F66BC9377ABA4
 magnet:?xt=urn:btih:88EBFCA2C3CE09FDC7483F6CA43E64BE7CE5545B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +671,8 @@ magnet:?xt=urn:btih:88EBFCA2C3CE09FDC7483F6CA43E64BE7CE5545B
 magnet:?xt=urn:btih:D77BCCC57E6BBFBB4A180F12F649247A38D6E46E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +696,8 @@ magnet:?xt=urn:btih:D77BCCC57E6BBFBB4A180F12F649247A38D6E46E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -690,6 +732,8 @@ Los Incas - La Fiesta (1973) [MP3|320 кб/с]<Folk, Native american, Instrument
 magnet:?xt=urn:btih:09FFD310E1867615F51323953FD27AE6100556BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -722,6 +766,8 @@ VA - The Hunger Games: Songs from District 12 and Beyond (2012) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:6A33CEDAEBA66C242F953F3A45D177B053B96C5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -756,6 +802,8 @@ John Williams - Star Wars The Complete Score (2008) [MP3|320 кб/с]<Score>
 magnet:?xt=urn:btih:9C4C59EC3F1661C6513268FAD7663EC120E5A523
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -789,6 +837,8 @@ Sonic Symphony - (4CD) (2009-2012) [MP3|320 кб/с]<Trailer music,Soundtrack, I
 magnet:?xt=urn:btih:E44A8893E22327219CBD73947863553AC8378133
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -812,6 +862,8 @@ VA - Русская плясовая (2012) [MP3|320 кб/с]<folk/dance/instrum
 ```bash
 magnet:?xt=urn:btih:AC57F6485DD00661DB4E54EB43629161E41EB41B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

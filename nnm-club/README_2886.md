@@ -21,6 +21,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@
 magnet:?xt=urn:btih:3C29E536F57D6A4AFD18E9D5E4581089A2DBFF4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Venetica: HD Edition [Ru] (Lossless RePack) 2010 | Naitro
 ```bash
 magnet:?xt=urn:btih:62A872913617EEB6A8D1E28E69CED3D6CDF47083
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ DG Win&Soft предлагает Вашему вниманию полный сб
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ DG Win&Soft предлагает Вашему вниманию полный сб
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ FIFA Street – самый аутентичный уличный футбол в
 magnet:?xt=urn:btih:309FA27B297CC932F80FBD108478AA7E74CDD7C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Resident Evil 5 [Ru] (Lossless RePack) 2009 | Naitro
 ```bash
 magnet:?xt=urn:btih:351996372CBA6E8EC0454A3BCDA506459058D7B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ Eivissa Salinas - Touch and Go (2012) [MP3|320 кб/с]<Chillout,  Lounge>
 magnet:?xt=urn:btih:3F70B9EBC2C1589D5C1DCC63D858FD2DD9F2F2F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:3F70B9EBC2C1589D5C1DCC63D858FD2DD9F2F2F8
 ```bash
 magnet:?xt=urn:btih:83F84AEE34370FC684E61A3ADC8E698D230C349E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:83F84AEE34370FC684E61A3ADC8E698D230C349E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:83F84AEE34370FC684E61A3ADC8E698D230C349E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:83F84AEE34370FC684E61A3ADC8E698D230C349E
 ```bash
 magnet:?xt=urn:btih:1968B98A514B8F8301C3B7D134190A727B815A45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +356,8 @@ Tomorrow's Outlook - 34613 (2012) [FLAC|Lossless]<Progressive/Power Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +388,8 @@ VA - Relax (Compiled by Nicolo) (2011)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +424,8 @@ VA - Bio - Hazard Xplorationz (2012) [MP3|320 кб/с]<Psychedelic, Goa Trance, 
 magnet:?xt=urn:btih:36DF56AE0DF1998273C65BBFDCB543FD0CD527B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +451,8 @@ magnet:?xt=urn:btih:36DF56AE0DF1998273C65BBFDCB543FD0CD527B7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +482,8 @@ magnet:?xt=urn:btih:36DF56AE0DF1998273C65BBFDCB543FD0CD527B7
 magnet:?xt=urn:btih:691AB1B8396C0E00A67851A15F9D586B18547077
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +507,8 @@ magnet:?xt=urn:btih:691AB1B8396C0E00A67851A15F9D586B18547077
 ```bash
 magnet:?xt=urn:btih:1EAC0BEBE7820B3F99B961DA851277397D8FC21E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +543,8 @@ Hysterica - The Art Of Metal (2012) [FLAC|lossless]<Heavy Metal / Female Vocal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +568,8 @@ Hysterica - The Art Of Metal (2012) [FLAC|lossless]<Heavy Metal / Female Vocal>
 ```bash
 magnet:?xt=urn:btih:81FBA50480AF0D98E8EADEF2CC76F4BC7B822385
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +595,8 @@ magnet:?xt=urn:btih:81FBA50480AF0D98E8EADEF2CC76F4BC7B822385
 magnet:?xt=urn:btih:9FC930D118FFFE00F90037AFD95CC1834471FF21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +620,8 @@ Wise Disk Cleaner Free 7.13 Build 466 Final [Мульти, Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +649,8 @@ Wise Disk Cleaner Free 7.13 Build 466 Final [Мульти, Русский]
 magnet:?xt=urn:btih:B6435D46DF08C33E6F62671A0C9B95C6C07DE9CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +676,8 @@ magnet:?xt=urn:btih:B6435D46DF08C33E6F62671A0C9B95C6C07DE9CC
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -663,6 +711,8 @@ Rabies - Капля в Бесконечность (2012) [FLAC|Lossless]<Symphon
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -688,6 +738,8 @@ Rabies - Капля в Бесконечность (2012) [FLAC|Lossless]<Symphon
 ```bash
 magnet:?xt=urn:btih:25C8DFBC0CAF3A00F94662428469E32AF1DE897F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

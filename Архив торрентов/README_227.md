@@ -19,6 +19,8 @@ MobaXterm - это комплекс утилит, в котором есть в�
 magnet:?xt=urn:btih:88BAAD9B34A75237E2F64110FC0ABB60AFABDFD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ R-Studio Network 9.4 Build 191332 RePack (& portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3108B7A0626BB05B9BE44A85D38A89E6F62D7887
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:1086110E903551BB284799783549F0D0723F7CAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Soft Organizer - утилита для полного удаления нену�
 magnet:?xt=urn:btih:19BF8545E46D885D7BCE3618B4C3F272F95C54C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:19BF8545E46D885D7BCE3618B4C3F272F95C54C7
 ```bash
 magnet:?xt=urn:btih:25F09BA890C42E0A67888929FB192C6A6EB37E87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Autorun Organizer - простое в использовании приложе�
 magnet:?xt=urn:btih:29830B24DE39B9938EB72057F6CA7F6543457198
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Joplin - это бесплатное приложение для создани�
 ```bash
 magnet:?xt=urn:btih:04821A0DDC2810A0D32E2448A66B0AC717C90D4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:67655AACBBB53F1E88315E1807CAD8A2A11E4EBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Auslogics File Recovery — простая и эффективная в испо
 ```bash
 magnet:?xt=urn:btih:277F471CDA0024D22CC1D0D4AB19D0DB88BC2B14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Auslogics Registry Cleaner - поможет вам избавиться от о�
 magnet:?xt=urn:btih:5A1E1BA7EE6F7EDEFD889FC38EA00698F12A6C13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ AOMEI Partition Assistant – мощная программа для работ�
 ```bash
 magnet:?xt=urn:btih:3E124E8E633189545778188011864D7EF464D10E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Auslogics Driver Updater – программа представляющая с�
 magnet:?xt=urn:btih:D0182180EAF7CD2933D7DC94E325AA38E7BCEFAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Auslogics Disk Defrag Pro - это профессиональная версия
 ```bash
 magnet:?xt=urn:btih:883E01DA899CFEC497E66D78B1669AB20F1DAC13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:883E01DA899CFEC497E66D78B1669AB20F1DAC13
 magnet:?xt=urn:btih:326B0992FC0DEE2A735AFB0C5ED3FE29E8ED7499
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ AOMEI Partition Assistant – мощная программа для работ�
 magnet:?xt=urn:btih:19783A1E7D2F913D472C450A7B31AFC828B67DD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Aomei Partition Assistant – мощная программа для работ�
 ```bash
 magnet:?xt=urn:btih:F6DEAB3F65039E8A7F30B6404B7A0A4524453A8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ O&O Defrag – инструмент дефрагментации дисков, �
 magnet:?xt=urn:btih:B72DC6CB7C33E909AFBD833908D5C84BD5D10C1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ Windows Slimmer поможет вам в удалении ненужных ко�
 magnet:?xt=urn:btih:E4BD0B3B13F92E48AE1D691AB60BD776C96F30EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ Adguard – интернет-фильтр для защиты пользоват
 ```bash
 magnet:?xt=urn:btih:31ED977A2B9DB0E89D112147D9276375E50C82F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:31ED977A2B9DB0E89D112147D9276375E50C82F9
 magnet:?xt=urn:btih:C406A426B861AEBEB115635E23E435DEAD1C9D71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:71094E2305BEF4C4CD48E2BF56E5BD5A8304B019
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ EZ CD Audio Converter - утилита для преобразования ау�
 magnet:?xt=urn:btih:38DD700C9DB4BCE53AD525476F55022DCA2D3E7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 magnet:?xt=urn:btih:1A0FB0EBECC174F42E568FD5959FA514923EB52C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 ```bash
 magnet:?xt=urn:btih:3E5F0D52C24C66CEAE1DDABE9F11DFE41D164ED7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ Mullvad Browser подойдет для пользователей, которы
 magnet:?xt=urn:btih:82BC037F543BCEB7CD6D14508A4761CF89C0426C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ TweakPower – представляет собой единый графичес
 ```bash
 magnet:?xt=urn:btih:9CE7FC6946136A7B4408A43E7370423098FC92E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

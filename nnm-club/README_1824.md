@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:D3B8A81B4D6E1967772C40848BFB7C4CF6DC3F99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:D3B8A81B4D6E1967772C40848BFB7C4CF6DC3F99
 ```bash
 magnet:?xt=urn:btih:D9003B66DF2FDD86CBC091E43768534791C0B91C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:D9003B66DF2FDD86CBC091E43768534791C0B91C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:D9003B66DF2FDD86CBC091E43768534791C0B91C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Minecraft Dungeons. Новая приключенческая игра, вдох
 magnet:?xt=urn:btih:34088224FE640C455FEAE0AE2EA6091EED9FE890
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:34088224FE640C455FEAE0AE2EA6091EED9FE890
 ```bash
 magnet:?xt=urn:btih:11B8C8236FE24BCD3429E8E37FCF9408D03E1139
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:11B8C8236FE24BCD3429E8E37FCF9408D03E1139
 magnet:?xt=urn:btih:A90BFC9AC62B4BBC90BD4C745B554C016ABD9FB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Trepang2 (2023) [Ru/Multi] (2471/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:12E97CC47BCD822C1F6AAB020B2DDBEFEF0DBA9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:12E97CC47BCD822C1F6AAB020B2DDBEFEF0DBA9F
 magnet:?xt=urn:btih:7C3A9D58AFD05CCEFC9A690344E8BE0911328465
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Empire назвал 50 величайших научно-фантастичес�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Empire назвал 50 величайших научно-фантастичес�
 magnet:?xt=urn:btih:328F0A8873CD913CDA398FFB7667A4C323FCAF6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:328F0A8873CD913CDA398FFB7667A4C323FCAF6A
 ```bash
 magnet:?xt=urn:btih:6D4CB09123DCBFC950B75BD3F2FC9A7982C619CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:6D4CB09123DCBFC950B75BD3F2FC9A7982C619CC
 magnet:?xt=urn:btih:D7CB6393D78DFBF9AB1585F357A604391753015F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:D7CB6393D78DFBF9AB1585F357A604391753015F
 ```bash
 magnet:?xt=urn:btih:3CA6EB0BDBD7D8E442C74B2C8DF2F56BF2322E3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ S.T.A.R.W.I.E.L.D. (2024) [Ru/En] (1.04) Scene SKIDROW
 magnet:?xt=urn:btih:62D6870F253F33F7F89E0F26FB37358131B26AFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:62D6870F253F33F7F89E0F26FB37358131B26AFB
 ```bash
 magnet:?xt=urn:btih:93BD6F2CB0EE21839693E427C7423F658DFA02C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:93BD6F2CB0EE21839693E427C7423F658DFA02C0
 magnet:?xt=urn:btih:DBCBB1A9E173AB1C26C6F87CC91B43BCAFAC8947
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:DBCBB1A9E173AB1C26C6F87CC91B43BCAFAC8947
 magnet:?xt=urn:btih:A76BE7593A828F2FE88011B6306CA2ABE56D71DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ Sumerians (2020) [Multi] (1.0.7/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:889ABDC35F0E4AA3BBBCBB8540944F01766C3AF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:889ABDC35F0E4AA3BBBCBB8540944F01766C3AF0
 magnet:?xt=urn:btih:ABB6A47D3AC88B8B3FFBE9C03CF9348DE414A169
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ Pepakura Designer 6.0.3 [Multi]
 ```bash
 magnet:?xt=urn:btih:28B63AFA2EBDD738898256AD0F9393D8A7251C6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:28B63AFA2EBDD738898256AD0F9393D8A7251C6C
 magnet:?xt=urn:btih:FC3062261164638BB2CAD6FCC1CE7D7EBD42D8D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:FC3062261164638BB2CAD6FCC1CE7D7EBD42D8D4
 ```bash
 magnet:?xt=urn:btih:57763BBA4356A6E725384E8CAC3C8812267D94CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ WizTree - небольшая и полезная утилита для опре�
 magnet:?xt=urn:btih:1A620B453C8CEF8B9BC8BCB12DC1BC340826A0CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ SweetScape 010 Editor 15.0.0 + Portable [En]
 ```bash
 magnet:?xt=urn:btih:212F779115E5BCD7DC4832405DD97F378068C76C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +682,8 @@ VA - 80's Emotion: Electro Pop and Italodisco Collection (2024) [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:5854F80BAC1F07D2C852CF59ABB41881CE51E846
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ The Bhaktas - Manipulated (2016) Altar Records [FLAC|Lossless|WEB-DL|tracks] <Ps
 magnet:?xt=urn:btih:A037E313679FE6E4B23B6738168E7AC73E7F434E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Eurythmics - Boxed (1981-1999) Box Set: 8 CD, Reissue, Remastered, 2005, Sony BM
 ```bash
 magnet:?xt=urn:btih:7153A99F6C07C1CE5F48995ED6126F6CF2CC6788
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Milk & Sugar Winter Sessions 2017 (2016) [MP3|320 Kbps] <Funky, Club House>
 magnet:?xt=urn:btih:2DDC94B8192FC67AC939FF418896EB42D0E8E208
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ V.A. - Chill Out Days, Vol. 4 (2022) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, L
 ```bash
 magnet:?xt=urn:btih:0896BC1221DBB2F2C79CAA916D6110655DD832F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Power Music Workout - 40 Best Running and Workout Songs 2018 [FLAC|Lossless|WEB-
 magnet:?xt=urn:btih:590073B2F020C8F5DEB88E39059C02530CA2E075
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Trance Summer (2022) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:9B3BA44DFA9E061D5A0C69950AA1F22E8E4E7965
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Paul van Dyk & Alex M.O.R.P.H. - Hawkins Square (EP) (2022) [MP3|320 Kbps] <Tran
 magnet:?xt=urn:btih:9066730DD81D8787F0116251816A45628B563A94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Trance Vol.9 (2022) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:60F9AB3F804AB1997B6A947A61B7228037425557
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Daxson - Face The Future (2022) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:517CCD99982E4423C087DF092867373F5BDD7A70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Thomas Datt - Trance Pioneers 003 (2022) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:59D49D3D1BC42C16E908B1D1633481AF12C12DF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Chapter 1 Uplifting Trance (2022) [MP3|320 Kbps] <Uplifting Trance>
 magnet:?xt=urn:btih:1E6400F4AC8CF026F8C15FCC8031869DA4BE481A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Deep House Hits: Winter 2018 [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:5CEA59A1D078BCCEF41775AE9D66DDF75CAE1F5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Sangam - Finder (2018) House of the Leg [FLAC|Lossless|WEB-DL|tracks] <Ambient, 
 magnet:?xt=urn:btih:A79D80631CF188431F9E3850705D4911D869E8E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Losing Today (2018) Dronarivm [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone
 ```bash
 magnet:?xt=urn:btih:F7D613AAB807EE95B0FC65F47EBC7322D8D5F64A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Trance Top 1000 - The Anthems (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:F6D05C428B9FD003CA01BA25D1295397789CB355
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Koan - Find Me If You Can (2017) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downte
 ```bash
 magnet:?xt=urn:btih:BB1358FA5489F1CEFC5843FBA498EE277E75A502
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ The Cars - Just What I Needed (1995) [FLAC|tracks+.cue]<New Wave>
 magnet:?xt=urn:btih:4AC122FCA94398F855AC0B8E0B38699267FE29FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Marric - Come Home (2020) antilounge records [FLAC|Lossless|WEB-DL|tracks] <IDM,
 ```bash
 magnet:?xt=urn:btih:FBFF457B5D3F6A6C6B9CB6B47DE588F088ED2367
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ Bjarki (Cucumb45, Kid Mistik) - Discography 30 Releases (2010-2020) !K7 Records,
 magnet:?xt=urn:btih:41C23FBF37856EF0E2AB1A99D740824AB63D8327
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +573,8 @@ VA - Vocal Trance Classics Top 40 (2017) [MP3|320 Kbps] <Trance, Uplifting Tranc
 magnet:?xt=urn:btih:25550AA9FB090F3540D34F24AB72919D51BD5334
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +598,8 @@ VA - Club Sounds The Ultimate Club Dance Collection Vol.83 (2017) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:F76779FF6DA935887575727551DEFABC0322C39C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +628,8 @@ VA - Paris La Nuit - Chillin Lounge Selection Vol 3 (2015) [MP3|320 кб/с]<Lou
 magnet:?xt=urn:btih:DFFFD0BE6A06C35ADA6FD280036E04B069CC84F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +656,8 @@ VA - Roger Shah presents High Noon At Salinas - Beach Grooves Vol 1 (2017) [FLAC
 ```bash
 magnet:?xt=urn:btih:DD21698EAF2DFF752055F02794B2428357BF0440
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +686,8 @@ VA - Aly & Fila - Future Sound of Egypt 521 (2017) [MP3|320 Kbps] <Trance, Uplif
 magnet:?xt=urn:btih:511DE0A7908D1EC37F976FED045BDC2DD1E729E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +715,8 @@ Koan - Find Me If You Can (2017) [MP3|320 Kbps] <Balearic,Downtempo>
 magnet:?xt=urn:btih:824E018909C0F062538965AF945BE1386478CF04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ VA - Kingside Fitness Workout 2017 [MP3|320 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:59C54DA2E0F4D1C139557C89841681D5032072EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

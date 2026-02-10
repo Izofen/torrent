@@ -19,6 +19,8 @@ Trailmakers (2019) [Ru/Multi] (213.503.082.0/dlc) Repack Necros [Ultimate Editio
 magnet:?xt=urn:btih:1886809F63B75DF193367070A62F86E5E5E24522
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Jeff McMillan - Night Games (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:0A22846C21797EE2A1AC209E5480B06726B13E06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:0A22846C21797EE2A1AC209E5480B06726B13E06
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Inpaint - позволяет умно удалять нежелательные 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ KIBORG (2025) [Ru/Multi] (2025.11.05:1:83) Repack Necros
 ```bash
 magnet:?xt=urn:btih:D3E41A192FD8345F8716A443761D2834A2ACAC2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Shotgun Cop Man (2025) [Ru/Multi] (20251028_1119) Repack Necros
 magnet:?xt=urn:btih:FE426234169D233260B8462BADD1036C7B6B8B0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:FE426234169D233260B8462BADD1036C7B6B8B0F
 ```bash
 magnet:?xt=urn:btih:51681A2F0D69EB887792B4D87BCCD93031236406
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ O&O Defrag – инструмент дефрагментации дисков, �
 magnet:?xt=urn:btih:439DB112C6C129B4B3A8732A0D135EB5B38755C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:439DB112C6C129B4B3A8732A0D135EB5B38755C5
 ```bash
 magnet:?xt=urn:btih:E6A7E694926DC5A14504C8F4452209A33BD24326
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:E6A7E694926DC5A14504C8F4452209A33BD24326
 magnet:?xt=urn:btih:35F00F0AC6E0573A0414C059D9F5434149E305CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:35F00F0AC6E0573A0414C059D9F5434149E305CA
 ```bash
 magnet:?xt=urn:btih:C83C87B63FA47CFCFDC4B43FB1260569A41C2EE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:C83C87B63FA47CFCFDC4B43FB1260569A41C2EE8
 magnet:?xt=urn:btih:648ADA60C68D332B0684D33ECF9902BA7CE88334
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:648ADA60C68D332B0684D33ECF9902BA7CE88334
 ```bash
 magnet:?xt=urn:btih:666F63F241307B6F3DAB38BDEB1C198EAEE5B0D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:666F63F241307B6F3DAB38BDEB1C198EAEE5B0D9
 magnet:?xt=urn:btih:28BF1E02AF2E91A47F862756B0B20EE55EED4D2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:28BF1E02AF2E91A47F862756B0B20EE55EED4D2C
 ```bash
 magnet:?xt=urn:btih:D8679DFF5744A7C81440FA9AA93BBD5DF084AC38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ SysTweak RegClean Pro — программа для исправления за�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ SysTweak RegClean Pro — программа для исправления за�
 ```bash
 magnet:?xt=urn:btih:868B054EEFF48E0A7F67F109C33CAD8B38270092
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:868B054EEFF48E0A7F67F109C33CAD8B38270092
 magnet:?xt=urn:btih:814DD24803F2E04447CF09AD445123C2826C9214
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:814DD24803F2E04447CF09AD445123C2826C9214
 ```bash
 magnet:?xt=urn:btih:A4E9C4875F933052AD91C0878D0E0F78CFE65821
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:A4E9C4875F933052AD91C0878D0E0F78CFE65821
 magnet:?xt=urn:btih:1C8A42F5FC92AC1D2D9B374211B7222F4763F9E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ Syberia - Remastered (2025) [Ru/Multi] (32111015) Scene FairLight
 ```bash
 magnet:?xt=urn:btih:D2EE68CB3B7D253883668749E521BC2C5187FADE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:D2EE68CB3B7D253883668749E521BC2C5187FADE
 magnet:?xt=urn:btih:431154AFB00E91C8D6E702F632AD1AAF1BC4DF7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:431154AFB00E91C8D6E702F632AD1AAF1BC4DF7F
 ```bash
 magnet:?xt=urn:btih:8A52AACE44E217234640E2B44DA33BEF9753AD1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ Stormworks: Build and Rescue (2020) [Ru/En] (1.15.5/dlc) Repack Necros
 magnet:?xt=urn:btih:DEA5F01B530CD0B797788372C4D2A7BF198CF8FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ The Falconeer Revolution Remaster (2025) [Ru/Multi] (32096228) Scene Rune
 magnet:?xt=urn:btih:76A59826D889C5E6676D55DC6AC778444226FFE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ MinerSearch — программа предназначенная для уда�
 ```bash
 magnet:?xt=urn:btih:638AC57A7AB18B659845B225296355389D3326B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

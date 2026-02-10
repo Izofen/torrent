@@ -19,6 +19,8 @@ Spin Rhythm XD - яркая и динамичная ритм-игра, в кот
 magnet:?xt=urn:btih:812C7A36E6455D97F66068D83EACAA3CE96E450C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Magical Mixture Mill - это увлекательный симулятор,
 ```bash
 magnet:?xt=urn:btih:AB5641F0F435A6EDA3E0F3C941C389048B26242B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Blood Bowl (2012) [Ru/Multi] (3-2-0-0) License GOG [Chaos Edition]
 magnet:?xt=urn:btih:F6F92FDEE6AC54ACEF6C43A44462968E6C40E992
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Ms. Holmes 7: The Death of Peter Blackheart / Мисс Холмс 7: Смерт�
 ```bash
 magnet:?xt=urn:btih:5CC914345F64A3E55F9617F4678B402E8DE05E95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Enchanted Stories: Mystic Woods (2025) [Multi] (1.0) Unofficial [Collector's Edi
 magnet:?xt=urn:btih:CB381FE43B27238558616ED18105E38E7729B412
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Whispered Secrets 16: In the Cards (2025) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:4A633B1C4E97057BC5799B5CD91FA6DC81F79622
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Old World - это историческая стратегия, в которо�
 magnet:?xt=urn:btih:F819F47CFAE810C0A9087DA7DFDE9315080F9020
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Combat Mission: Red Thunder переносит в жестокие сражен�
 ```bash
 magnet:?xt=urn:btih:F32145C16B3FACBB4AE8579CF63C1E1A8FD3B2AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Speedollama (2024) [Ru/Multi] (1.3.0) Repack FitGirl
 magnet:?xt=urn:btih:05E983F7F7C209EFA1A6BE0113F2717294CBB60B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Lucky Season 2: End of the Rainbow (2025) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:50E77957730196C91239B2C104759ADE8D5BFEFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Nine Sols (2024) [Ru/Multi] (Build 7c478ba3) Repack seleZen
 magnet:?xt=urn:btih:E3437ED7E76B8A18A9E868B9B5755587B9E627D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Panic In The Woods - это одиночная или кооперативная
 ```bash
 magnet:?xt=urn:btih:CA7A77111555000AB4F5CC6FBC2D8F701E028A28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Fight School Simulator (2024) [Ru/Multi] (build 17408091) Repack seleZen
 magnet:?xt=urn:btih:BD81AF65F5D82B243A27365DBBDC429C15C16154
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Roboquest - это динамичный рогалик от первого ли�
 ```bash
 magnet:?xt=urn:btih:46DECF6B1B5FC5BFF6C52F6495203B23B1019100
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Bridge to Another World Remastered: Burnt Dreams (2025) [En] (1.0) Unofficial [C
 magnet:?xt=urn:btih:B6D43B15C3FBA9149837E7A63D655E0D296AD1FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Tails of Iron – это приключенческая ролевая игра 
 ```bash
 magnet:?xt=urn:btih:AC6F2875631613A6D98A0732518800D71E506A8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Reflections of Life 13: Sleep's Embrace (2025) [En] (1.0) Unofficial [Collector'
 magnet:?xt=urn:btih:BDB07EACF909C8AC6BF24789B86D1C7934FA4A0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Crypt of the NecroDancer — хардкорная ритмическая rogueli
 ```bash
 magnet:?xt=urn:btih:2C42074EF9B0D8F29664CE781BA37617FF8DA662
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Living Legends 12: Frozen Destiny (2025) [En] (1.0) Unofficial [Collector's Edit
 magnet:?xt=urn:btih:65F2DA2BB925F56DFD19DFFF43AF1F6890249F5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Saleblazers предлагает насладиться увлекательны
 ```bash
 magnet:?xt=urn:btih:D0546E4FFCDB576F9C4B1A000840BA6DA3526ADC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Mind Echoes: The Lost Mysteries (2025) [Multi] (1.0) Unofficial [Collector's Edi
 magnet:?xt=urn:btih:3B0B1EBCEC93493706EC0C01AB4EB323B94D22FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Darkest Dungeon 2 - сиквел готической ролевой игры, �
 magnet:?xt=urn:btih:443CDD001EA696E6FB88DECFA3AB60E2903AC685
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +590,8 @@ City of Stories 3: The Hunter's Heart (2025) [En] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:ED19824C8FA5E580F7CFE4B287DD6094EF572893
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ The Secret of Monkey Island: Special Edition [Ru/En] (RePack) 2009 | R.G. Мех
 magnet:?xt=urn:btih:A865979D5F04F94A92942B33B456AFC37686E04E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Mafia II создана на специально разработанном г�
 magnet:?xt=urn:btih:A766AC45B97C0BAC791DAE328615D954C16D6392
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Global Ops: Commando Libya / Приказано уничтожить: Опера
 ```bash
 magnet:?xt=urn:btih:E15D1FE38AECFE3B1ED193642DB9C53C71227232
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

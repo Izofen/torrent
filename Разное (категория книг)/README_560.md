@@ -1,3 +1,29 @@
+###  Публикация: 1004253   (836787) от 07.04.2016
+
+Максим Федоров | Дамочный эндшпиль (1996) [DJVU]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена нормальным н этюдным окончаниям в русских шашках. Наряду с работами выдающихся мастеров прошлого обобщен богатый опыт соревнований последних лет. Книга предназначена квалифицированным спортсменам, хотя отдельные главы и позиции будут полезны для шашистов первого-второго разряда. Предлагаемая работа может стать хорошим подспорьем в работе тренеров (   Читать дальше...   )Жанр: Русские ШашкиФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F50B16B16CCD0169CB7BD1F0D7222CFDCF4467C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113399   (836809) от 12.03.2017
 
 Св. Игнатий Лойола | Рассказ паломника о своей жизни (2002) [PDF, DJVU]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:884384BF5CFDD559B594DEEEE9F2B2D8CD7CABDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:884384BF5CFDD559B594DEEEE9F2B2D8CD7CABDE
 magnet:?xt=urn:btih:2C94592EB4796262DF3CA08DB0452B69B0BCDCAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:2C94592EB4796262DF3CA08DB0452B69B0BCDCAA
 magnet:?xt=urn:btih:817D822A686A454956EB3C96B01E7CC19E8D78C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:817D822A686A454956EB3C96B01E7CC19E8D78C1
 ```bash
 magnet:?xt=urn:btih:BD00A5648487F2B7C6D9AA863B60CE46DAAF0494
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:BD00A5648487F2B7C6D9AA863B60CE46DAAF0494
 magnet:?xt=urn:btih:39383CB0AFA53FE64DEA7CB918CA623942680635
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:39383CB0AFA53FE64DEA7CB918CA623942680635
 ```bash
 magnet:?xt=urn:btih:1A561AC380596ADA7E6177E36EEB199EB98B98E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:1A561AC380596ADA7E6177E36EEB199EB98B98E1
 magnet:?xt=urn:btih:DD8A832374FC109E39FF78A023906D13D01F3429
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:DD8A832374FC109E39FF78A023906D13D01F3429
 magnet:?xt=urn:btih:5069FE38D675F123649EE39987F94948870D2693
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:5069FE38D675F123649EE39987F94948870D2693
 ```bash
 magnet:?xt=urn:btih:64AA914AB876FFEDD52629A6730FB45AD64C2CC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:64AA914AB876FFEDD52629A6730FB45AD64C2CC3
 magnet:?xt=urn:btih:136ED64582D982F031835B555766B9B328046A91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:136ED64582D982F031835B555766B9B328046A91
 ```bash
 magnet:?xt=urn:btih:A09E1EB9C52D8FDE6E7FFAC31F877F544558BF57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:A09E1EB9C52D8FDE6E7FFAC31F877F544558BF57
 ```bash
 magnet:?xt=urn:btih:68A995BC84CF3243287DC615D1EF31CCE9121747
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:68A995BC84CF3243287DC615D1EF31CCE9121747
 magnet:?xt=urn:btih:AF945ED7D559FC66544F45AC18F03A858E658AC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:AF945ED7D559FC66544F45AC18F03A858E658AC8
 ```bash
 magnet:?xt=urn:btih:E9362888A4077E71A9E7E08DBC063210FDD9B243
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +418,8 @@ magnet:?xt=urn:btih:E9362888A4077E71A9E7E08DBC063210FDD9B243
 magnet:?xt=urn:btih:E8FC21E5F5C673083FDCF1751E0061EB0DF1BD75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:E8FC21E5F5C673083FDCF1751E0061EB0DF1BD75
 ```bash
 magnet:?xt=urn:btih:7DDAC45027D6B7938EBBDEF491242F43A48E3ACB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:7DDAC45027D6B7938EBBDEF491242F43A48E3ACB
 magnet:?xt=urn:btih:F77342081D1B3152ACFD3EF7808F2A55348A8597
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:F77342081D1B3152ACFD3EF7808F2A55348A8597
 ```bash
 magnet:?xt=urn:btih:CA1825C4A42BC4F027DD30D3031BAE614DD7B9A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +524,8 @@ magnet:?xt=urn:btih:CA1825C4A42BC4F027DD30D3031BAE614DD7B9A9
 magnet:?xt=urn:btih:4D98A54342F49B404F0AA059C585FE1BFCE79493
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:4D98A54342F49B404F0AA059C585FE1BFCE79493
 ```bash
 magnet:?xt=urn:btih:D6549B8B7065B61454FC4364361EB2949D17CF16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +578,8 @@ magnet:?xt=urn:btih:D6549B8B7065B61454FC4364361EB2949D17CF16
 magnet:?xt=urn:btih:F601E5B9149D068F1A09306FDF89EDE9A0E5FEE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:F601E5B9149D068F1A09306FDF89EDE9A0E5FEE8
 ```bash
 magnet:?xt=urn:btih:5FD4E6E9FCC7D9B62E52567644515D8CD440D129
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +630,8 @@ magnet:?xt=urn:btih:5FD4E6E9FCC7D9B62E52567644515D8CD440D129
 magnet:?xt=urn:btih:9013EC831633173F6E4E4C9069915490107E27C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +655,8 @@ magnet:?xt=urn:btih:9013EC831633173F6E4E4C9069915490107E27C1
 ```bash
 magnet:?xt=urn:btih:657404F020E4A2315F8166C5865B9B1157F88564
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,29 +682,7 @@ magnet:?xt=urn:btih:657404F020E4A2315F8166C5865B9B1157F88564
 magnet:?xt=urn:btih:E3947D3445BA38B660D3AA7548C83A7DBC782116
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 310152   (838873) от 17.03.2011
-
-Дмитрий Силлов | 50 самых эффективных приёмов уличной драки [2010] [PDF]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838873.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге описаны приемы самообороны, которые могут помочь в экстремальной ситуации. Приемы, описанные в данной книге, предназначены для самообороны слабого человека от противоправных посягательств более сильного! Цель этой книги - в соответствии с законодательством РФ соблюсти права и свободы граждан, закрепленные конституцией РФ. Книга проиллюстрирована.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6759B7E759D88784C60821BF3C74CE4E8788664E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

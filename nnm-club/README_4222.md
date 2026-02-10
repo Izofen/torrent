@@ -22,6 +22,8 @@ Strike Master - Up For The Massacre X Anniversary Edition (2006) Reissue, 2016, 
 magnet:?xt=urn:btih:A484A780D7F2B44AB1619713F2D652903A65658E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:A484A780D7F2B44AB1619713F2D652903A65658E
 magnet:?xt=urn:btih:376313135F7B98D6E7300E48529416084428A36B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:376313135F7B98D6E7300E48529416084428A36B
 ```bash
 magnet:?xt=urn:btih:96DB485B28F458D12DB5AB5163A46A22601A971B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -105,6 +111,8 @@ Chain Reaction как лейбл-последователь Basic Channel - эт
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -132,6 +140,8 @@ Chain Reaction как лейбл-последователь Basic Channel - эт
 magnet:?xt=urn:btih:30C6D654F71688F38B24F25A75756418B8720EAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:30C6D654F71688F38B24F25A75756418B8720EAB
 magnet:?xt=urn:btih:5FA8EAFDEC6DBBE5289DF22841358F5C5E6DF8CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -179,6 +191,8 @@ magnet:?xt=urn:btih:5FA8EAFDEC6DBBE5289DF22841358F5C5E6DF8CA
 ```bash
 magnet:?xt=urn:btih:24B957525C4E3173B8898D989487D984FF95F8EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +227,8 @@ VA - Автозвук От Русских Диджеев (2012) [MP3|224 кб/с
 magnet:?xt=urn:btih:7F3EDD941924C5BD4E65CD9C688C8FBBAFF8497C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +252,8 @@ Wise Data Recovery – это простейшая утилита начальн
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +288,8 @@ Dezperadoz - Dead Man's Hand (2012) [APE|Lossless]<Western Metal / Thrash Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +314,8 @@ Dezperadoz - Dead Man's Hand (2012) [APE|Lossless]<Western Metal / Thrash Metal>
 magnet:?xt=urn:btih:5942980038C82D6296D139A572F232F2739F2C17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +339,8 @@ magnet:?xt=urn:btih:5942980038C82D6296D139A572F232F2739F2C17
 ```bash
 magnet:?xt=urn:btih:54633FFD1DB035EA9933CA6B847014DCAE5A941A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +369,8 @@ Karmamoi - Strings From The Edge of Sound (2023) [FLAC|Lossless|tracks + .cue] <
 magnet:?xt=urn:btih:6358F0F4EAEB2627F40EA43113827BAB4E253499
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Talla 2XLC - All The Dreams I Share (The Vocal Album) (2023) [MP3|320 Kbps] <Tra
 magnet:?xt=urn:btih:A90D88808167AA255D7C20A23A35089F2302E6FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +423,8 @@ magnet:?xt=urn:btih:A90D88808167AA255D7C20A23A35089F2302E6FD
 ```bash
 magnet:?xt=urn:btih:3A9A2C9AB4107F9748635A3578B4A35B062A68CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +453,8 @@ Amy Winehouse - Stronger Than Me (2003) Remastered, 2023, UMC [FLAC|Lossless|WEB
 magnet:?xt=urn:btih:25DD276A32B0E1C71F648B5FF78CEFE1ED80F233
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +478,8 @@ magnet:?xt=urn:btih:25DD276A32B0E1C71F648B5FF78CEFE1ED80F233
 ```bash
 magnet:?xt=urn:btih:B991E3BEBE2EB01D64BDFA6B4188CAC9BA12DBD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +508,8 @@ Cybotron - Enter (1983) Deluxe Edition, 2023, Craft Recordings [FLAC|Lossless|WE
 magnet:?xt=urn:btih:8ED5E45DECD7494EE46123F724FE9948F89165FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +535,8 @@ magnet:?xt=urn:btih:8ED5E45DECD7494EE46123F724FE9948F89165FB
 magnet:?xt=urn:btih:A87D561CF528B87CA5CC0C06693DC7744CC529CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +561,8 @@ magnet:?xt=urn:btih:A87D561CF528B87CA5CC0C06693DC7744CC529CC
 magnet:?xt=urn:btih:D41878961745142B1C4AB9134365D10F829CDE0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +586,8 @@ Total Commander – самый популярный файловый менед�
 ```bash
 magnet:?xt=urn:btih:261816E92D4959F999005370A2A0C5C4BE89F27E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +616,8 @@ VA - Soft Rock Mix (Female Singer-Songwriters Vol. 1) (2023) [FLAC|Lossless|WEB-
 magnet:?xt=urn:btih:72AAF68F4DAC7F2AC8A82E14776E874B12A2E8F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +642,8 @@ magnet:?xt=urn:btih:72AAF68F4DAC7F2AC8A82E14776E874B12A2E8F1
 ```bash
 magnet:?xt=urn:btih:F81C691B53C81EDFBC5A3773E14F6F84BEFEA739
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +671,8 @@ magnet:?xt=urn:btih:F81C691B53C81EDFBC5A3773E14F6F84BEFEA739
 ```bash
 magnet:?xt=urn:btih:C1FC1CEE1500A7B11EF700CFC9F7482C32F3B6A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -659,6 +707,8 @@ The Big Pink - Future This (2012) [MP3|320 кб/с]<Folk, Indie Rock>
 magnet:?xt=urn:btih:74C5B3A5BE94A458DC4A1B16DB12BDB348D365C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -683,6 +733,8 @@ School of Motion, EJ Hassenfratz | Cinema 4D Basecamp (2018) PCRec [En]
 ```bash
 magnet:?xt=urn:btih:D927A98799F6A93DB4736EA81A12E5F2DE9EAD45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

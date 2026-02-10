@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:E2B1F18495104D48F67A535F5EE6B2D1361B5E62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:E2B1F18495104D48F67A535F5EE6B2D1361B5E62
 ```bash
 magnet:?xt=urn:btih:337725C0C24C98E2E1A6B0E03B68F663FA7A5CF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ VA - Summer Chill Mood (Warm & Elegant Relaxing Instrumentals, Vol. 1) (2025) [F
 magnet:?xt=urn:btih:98A00DF0FA199D378E93D49F713DCC1D4DE34366
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ VA - Under The Umbrella (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
 ```bash
 magnet:?xt=urn:btih:017C945AD8C126C444EA906A963C3FC1D266C7B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ VA - Chillout Jazz Del Mar Summer 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Chi
 magnet:?xt=urn:btih:C63EFD0F07147A8303F87E75D1069B26C4444F8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:C63EFD0F07147A8303F87E75D1069B26C4444F8A
 ```bash
 magnet:?xt=urn:btih:57D3F6F9F491EB9551BF71B1B41AB2FEF4553F02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:57D3F6F9F491EB9551BF71B1B41AB2FEF4553F02
 magnet:?xt=urn:btih:37EF934D80CFF9F05279C7B8927905130584E232
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ Lanpirot | Нахаловка (Книга 2) (2025) [MP3, Вадим Ерофе�
 magnet:?xt=urn:btih:3407F5746DD7CE2EA5E23C36D2B8FA82843FDEAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:3407F5746DD7CE2EA5E23C36D2B8FA82843FDEAA
 ```bash
 magnet:?xt=urn:btih:C2DBFF2C0EA1B12A5014490C78773D4D4808FB2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ VA - Las Mejores Canciones de Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 magnet:?xt=urn:btih:7EB334E751084C19E8F9AFF0927E800FD9F46982
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:7EB334E751084C19E8F9AFF0927E800FD9F46982
 ```bash
 magnet:?xt=urn:btih:F18DB5B1B8BAD0391990A231EC9A9B1C274ADD0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ VA - Jazz & House Summer Party (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 magnet:?xt=urn:btih:2DE40FCC09B9FAF459188C057F7AE8B4026DEEA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:2DE40FCC09B9FAF459188C057F7AE8B4026DEEA9
 ```bash
 magnet:?xt=urn:btih:89D45190ED0DEC274DE4BCE1D4280844CB2256CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ Silent Deep Ocean - 2 Albums (2025) [MP3|320 Kbps] <Atmospheric Doom, Gothic Met
 magnet:?xt=urn:btih:23637FD74406EA3AAE46DBC51C3F302C6583CB6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +408,8 @@ magnet:?xt=urn:btih:23637FD74406EA3AAE46DBC51C3F302C6583CB6C
 magnet:?xt=urn:btih:41E8552D242C199ED1971BEFCBFF17069673A501
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ magnet:?xt=urn:btih:41E8552D242C199ED1971BEFCBFF17069673A501
 ```bash
 magnet:?xt=urn:btih:53795AF8604097466DD18493BBAF77817E6D1227
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +463,8 @@ Folamour - Movement Therapy (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Nu Disc
 magnet:?xt=urn:btih:7093A165E2CA7A902587467181E574201C9FDAED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ magnet:?xt=urn:btih:7093A165E2CA7A902587467181E574201C9FDAED
 ```bash
 magnet:?xt=urn:btih:B60422713906CFEF043F6344C875745077E4240A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ magnet:?xt=urn:btih:B60422713906CFEF043F6344C875745077E4240A
 magnet:?xt=urn:btih:787422D4DE6F377C07A3DEF5B72DDD397873E38A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ magnet:?xt=urn:btih:787422D4DE6F377C07A3DEF5B72DDD397873E38A
 ```bash
 magnet:?xt=urn:btih:B368645C93B7089291DAF6B3B21FFA635A158D0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +567,8 @@ magnet:?xt=urn:btih:B368645C93B7089291DAF6B3B21FFA635A158D0B
 magnet:?xt=urn:btih:72D5272145E24C437E40049CFB2EEBA21FE167B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +593,8 @@ magnet:?xt=urn:btih:72D5272145E24C437E40049CFB2EEBA21FE167B6
 ```bash
 magnet:?xt=urn:btih:342374A0D3823B8FD1A9E2A5C6E5BEF54B0FB203
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +623,8 @@ Behold the Beloved - Harsh Realities (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:129CB3813FE95C541086E933514228616D108931
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +651,8 @@ Antlers - Antlers (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore>
 ```bash
 magnet:?xt=urn:btih:40A4D24E83D2C594A78DB0A276F21E7DC72A0552
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +681,8 @@ Pulpit Vomit - Hospital Lens (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Powervi
 magnet:?xt=urn:btih:94EB48588B97B26F3E8DFE633B6AF0C18BBE22FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +707,8 @@ magnet:?xt=urn:btih:94EB48588B97B26F3E8DFE633B6AF0C18BBE22FC
 ```bash
 magnet:?xt=urn:btih:0498621E19A789E99D5E809DF3A2E3611E924278
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

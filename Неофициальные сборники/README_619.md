@@ -1,3 +1,32 @@
+###  Публикация: 1091975   (940347) от 11.01.2017
+
+VA - Звездная вечеринка. Зарядись хитами Выпуск № 7 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940347.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Диана Громова - Разбиваемся 3:08
+002. Topic - Home 3:17
+003. Непара - Любимые Люди 3:44
+004. Jaguar Skills & Chords Feat. Matti Roots - Lust 4:20(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00C28D492F18C28B9E1D33071CEAEBCFDCA6BAA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092293   (940352) от 11.01.2017
 
 VA - Trance Big World Audition (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Vocal, Tech Trance, Blissful>
@@ -21,6 +50,8 @@ VA - Trance Big World Audition (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting
 ```bash
 magnet:?xt=urn:btih:1E412825E880E7D5E8E95ED8E89B3EF4C7ABE0CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - 155 DJ Sound Music World Tunes (2017) [MP3|96-320 Kbps] <Club, Bigroom, Voc
 magnet:?xt=urn:btih:AB7A4C35CA3726022A0EE13CBBDBFB9136506E0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Deep House Collection Vol. 103 (2017) [MP3|320 Kbps] <House , Deep House>
 ```bash
 magnet:?xt=urn:btih:407CD1B16424590A7C7F52F7C3F2794E746754C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Best of Romantic Rock (2017) [MP3|320 Kbps] <Rock, Metal>
 magnet:?xt=urn:btih:763C1BFC3F85CDD9395D4499254DFCC07FC6A6A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Дискотека зимних дорог. Русские хиты (2017) 
 ```bash
 magnet:?xt=urn:btih:B2AFDB3DD2381AD2D830055EE8E7A8B7D8A99D8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - LUXEmusic: Dance Super Chart Vol.101 (2017) [MP3|320 Kbps] <House, Mash Up,
 magnet:?xt=urn:btih:5EF605DDC2127EE70D420FCFB3CBFDDC842BB13F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Empire Records - Club Hit 4 (2017) [MP3|320 Kbps] <Club, Dance>
 ```bash
 magnet:?xt=urn:btih:AF0379FC6899D5192A22A3B15E06D69C2E65CE3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Зимние мега хиты. Зарубежный выпуск (2017) [M
 magnet:?xt=urn:btih:F51505BE384D9EFA32EBC928123BF4AA950BFD96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Empire Records - Dancenudisco 2 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Dis
 ```bash
 magnet:?xt=urn:btih:810AB8D37EB2C7E4AC49E46ACBF49B4B17CF2698
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - Танцевальная зима. Снежная 100-ка Выпуск №
 magnet:?xt=urn:btih:2E276A21C84E9172A9C83E3FCFA53C07FF56586D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - Новогодний ресторан на радио Шансон Выпу
 ```bash
 magnet:?xt=urn:btih:658139EE051A9259AA134AD5889BD25FD79FC488
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - Я слушаю шансон. Зимние хиты (2017) [MP3|256 Kbps] <
 magnet:?xt=urn:btih:C27BA3D04F1786D04D277AB35F61115EE7820731
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ VA - Happy Workout Rush Hits (2017) [MP3|320 Kbps] <Bassline, Progressive, Regga
 ```bash
 magnet:?xt=urn:btih:8C6AE0F8834564825E90E9198B98138D2B3833EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ VA - Empire Records - Dancenudisco 3 (2017) [MP3|256-320 Kbps] <Disco, Dance, Nu
 magnet:?xt=urn:btih:297D228528E6F203D8964B24D0A88F5C10F1A64B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +456,8 @@ VA - Melody Across The World Dreams (2017) [MP3|320 Kbps] <Trance, Uplifting Tra
 ```bash
 magnet:?xt=urn:btih:6A26A69193A493B5862321C6B6FB252A92AC4DD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +486,8 @@ VA - Радио ENERGY (NRJ) часть 2 (2009-2016) [MP3|320 кб/с] <Dance, 
 magnet:?xt=urn:btih:D8229FDA20B096A569A2E58A49C0D1A336771977
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +514,8 @@ VA - Resident Advisor Top 50 Charted Tracks December 2016 (2017) [MP3|204-320 Kb
 ```bash
 magnet:?xt=urn:btih:D2DEC81D39E9B98184661B4188DFAA5D85A90529
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +544,8 @@ VA - TOP HITS. Dance party (2016) [MP3|320 кб/с] <Club, Dance, Remix>
 magnet:?xt=urn:btih:7E37433EFC455C7163CC9D14ADE854B1F61F2DB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +572,8 @@ VA - Top50: Tracks Deep House Ver.18 (2020) [MP3|320 Kbps] <House, Deep House, M
 ```bash
 magnet:?xt=urn:btih:C190B8662DC69047BE7E77E1E35BDDE86E3FC8BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +602,8 @@ VA - Русская Дискотека Зимний Сезон от Витали
 magnet:?xt=urn:btih:2A9EF7635FC0456841A0071B88EEE6383F4189C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +630,8 @@ VA - Музыкальный водопад. Версия 5 (2016) [MP3|256 кб/
 ```bash
 magnet:?xt=urn:btih:18A0F4AFE50FDE204724C1C55A2AA724F7C5DE4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +660,8 @@ VA - Trance Desire Volume 61 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
 magnet:?xt=urn:btih:74636DAB62615B0CB63B4DEA3943762FA7C5B9F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +688,8 @@ VA - German Dance Hits №1 (2016) [MP3|256-320 кб/с] <Pop>
 ```bash
 magnet:?xt=urn:btih:1F54551B589C56B39D5FB7AE4B232CC64B6C6604
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +718,8 @@ VA - Уголовочка от радио Шансон. Часть 8 (2016) [MP3
 magnet:?xt=urn:btih:0D8E390117B35BB62AE4D007EDDA1B9552C587D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,32 +747,7 @@ VA - Уголовочка от радио Шансон. Часть 9 (2016) [MP3
 magnet:?xt=urn:btih:A079FAC79F033D2C423400BF2976AC30C26216E8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983616   (942197) от 07.02.2016
-
-VA - Klubnaya Volna Vol.2 (2015) [MP3|320 кб/с] <Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrew Spencer Feat. Latoya - You Keep Me Hangin' On (Original Mix)
-02. Kaleeh & Bojan - Something About The Music (Original Mix)
-03. Freejak - Turn Up The Silence (Original Mix)
-04. Maroon 5 - Sugar (Illona & Diaz Remix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 04:51:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C343D8CABBFECA016CC343CF9DDCC6A91DAB65E5
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

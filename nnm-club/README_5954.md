@@ -22,6 +22,8 @@ Heldmaschine - Flachenbrand (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indust
 magnet:?xt=urn:btih:4EAFB081372D2F073B90DFBE29C2AF71E0CB0B23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Ikarass - Relapse Into Desolation (2020) [FLAC|Lossless|tracks + .cue] <Doom Met
 magnet:?xt=urn:btih:2D7953EE5B863D6A2A1EBB156AD85DC8E6A6E4C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 ```bash
 magnet:?xt=urn:btih:34A9B448A6B026BE8BF8E4303DF9A7E279FAA4A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ Apollo Motel - Apollo Motel (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues R
 magnet:?xt=urn:btih:A4AADF0CFD33688244D6551FAF4357B298D36111
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ Marc Hartman - Changes (2017) [AAC|~345 Kbps] <Chillout, Trip-hop, Lounge>
 magnet:?xt=urn:btih:6BEA17FBC07DF6B142614E847AFD8E918EB05340
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:6BEA17FBC07DF6B142614E847AFD8E918EB05340
 ```bash
 magnet:?xt=urn:btih:8C1A252638D65533CCB303E0E14856942C8D49EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ Don Letts - Outta Sync (2023) [FLAC 16-24/44.1|Lossless|WEB-DL|tracks] <punk reg
 magnet:?xt=urn:btih:8F3B1127776711B473887F1E4EF03D849614D0CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +218,8 @@ Marc Hartman - Set You Free (2015) [AAC|~345 Kbps] <Lounge, Ambient, Downtempo>
 ```bash
 magnet:?xt=urn:btih:48207528FA6B59910E9724BE12A046F72CE4E476
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -232,6 +248,8 @@ Michael Wolff - Portraiture, The Blues Period (1998) Fuel 2000 [FLAC|Lossless|tr
 magnet:?xt=urn:btih:ECADB89658C0C3A899626651D2E8FD98908FBF5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -257,6 +275,8 @@ Mahou Sensei Negima! Mou Hitotsu no Sekai | Волшебный учитель Н
 ```bash
 magnet:?xt=urn:btih:A7A63530117950A5064B733EEA05BDE1D1600BDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +305,8 @@ Violet - Illusions (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR, Fema
 magnet:?xt=urn:btih:1D6E4DD3502029E1119CDFDCBF5D6C9E1A59FD9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +334,8 @@ Paul Coombs - Paul's Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:A38A36963D6D72735AC910EAED8CC36913BAB807
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +359,8 @@ magnet:?xt=urn:btih:A38A36963D6D72735AC910EAED8CC36913BAB807
 ```bash
 magnet:?xt=urn:btih:3D49EEDA62AEB6CA496008D5FEE2815F728FD09C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +389,8 @@ magnet:?xt=urn:btih:3D49EEDA62AEB6CA496008D5FEE2815F728FD09C
 magnet:?xt=urn:btih:1F25E8A115ACF62BEECF44B18C2120D6409D04AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +415,8 @@ Metro: Exodus / Метро: Исход (2019) [Ru/Multi] (1.0.7.16/dlc) Repack R
 magnet:?xt=urn:btih:2451A18963755528053D77642194AE2F7D165E89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +440,8 @@ magnet:?xt=urn:btih:2451A18963755528053D77642194AE2F7D165E89
 ```bash
 magnet:?xt=urn:btih:D0F081A6ABD94A3BB898564CFD74E1EF81E3DD1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +470,8 @@ magnet:?xt=urn:btih:D0F081A6ABD94A3BB898564CFD74E1EF81E3DD1A
 magnet:?xt=urn:btih:A5D13D0C6D0EF7AA95BF2163AEB11EB27C76787E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +496,8 @@ Black Mesa («Чёрная Меза», ранее известная как Blac
 magnet:?xt=urn:btih:CBAA3085055008B853C3585C0AA315BA42F593F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +521,8 @@ Mahou Sensei Negima! Shiroki Tsubasa Ala Alba | Волшебный учител�
 ```bash
 magnet:?xt=urn:btih:5354F3CB32E418FB261C061AA35EC1FB5AF60D9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +551,8 @@ Nervosa - Jailbreak (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash Metal>
 magnet:?xt=urn:btih:FE0796BAF4C15E5ABA337A250CD5307BD3A712AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +576,8 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2020.11.27 [En]
 ```bash
 magnet:?xt=urn:btih:17DF1FA5B63A0283C740D4B53957C3724603F0E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +606,8 @@ Edu Souza - Grateful (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:605D131E7467E3CB5FE112ED9A2BC239D7BABEC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +635,8 @@ Iron Fist - Mettlehead Train (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Hard 
 magnet:?xt=urn:btih:A5A3DBA40B6867964800D107B0484D2F3918E1C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +662,8 @@ magnet:?xt=urn:btih:A5A3DBA40B6867964800D107B0484D2F3918E1C9
 ```bash
 magnet:?xt=urn:btih:62D43BF4962D53AD619CB1C0BAF900F1A0A0494B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +691,8 @@ FPS Monitor отслеживает состояние компонентов в�
 magnet:?xt=urn:btih:57CDDD07F796633BE6F99A5CF92D094E593AE089
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +719,8 @@ Yawning Man - 7 Albums (2005-2021) [MP3|320 Kbps] <Desert Rock>
 ```bash
 magnet:?xt=urn:btih:602A5EB5022A0966365EAC61989AF2EE87304A24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

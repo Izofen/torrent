@@ -19,6 +19,8 @@ GetRight PRO популярный менеджер закачки. Наряду 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Optiview Console v6.5 Fluke Networks 6.5 [En]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Mail.Ru Cloud 15.06.0853 [Ru/En]
 magnet:?xt=urn:btih:3E4294A752CF1D648F648AD9A440623B4204958E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Dropbox 18.4.32 [Multi/Ru]
 magnet:?xt=urn:btih:02251B0291012DC3BED15530B595E7F02DF12AA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ HTTP Debugger - полномасштабное средство для пере�
 ```bash
 magnet:?xt=urn:btih:37922DA52FE235FA2D35691BA90AC462A252297B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ LINE - это приложение, позволяющее делать бесп
 magnet:?xt=urn:btih:314DF0BCA3518B37C1CC6FAAA51EE3325F906CC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Technitium MAC Address Changer 6.0.7 [En]
 ```bash
 magnet:?xt=urn:btih:0D411087C3E95F1C529F4B8835812574AFF6224E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ BitTorrent Pro - быстрый, удобный, компактный торре
 magnet:?xt=urn:btih:E177BD85322EE07F6A0E1E3D63B6ABF83EA53AD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Router Scan умеет находить и определять различны
 ```bash
 magnet:?xt=urn:btih:A3C408A4847FDEFF2B15FECF28547FC0DFE5EE66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ SCARABAY — менеджер паролей. Небольшая, но удоб�
 magnet:?xt=urn:btih:F52C5C3216449407BF6E1CF9EA105059862184D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ DAEMON Tools USB 2.0.0.0067 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7DAEF3CCA317339A2214D2BBF0E8191A3D57BF4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Shareman 4.5.0.12.66 [Ru]
 magnet:?xt=urn:btih:E73C2AC23AFB19982858A8B920F70A75052F755C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Syncthing - это программа непрерывной синхрониз�
 ```bash
 magnet:?xt=urn:btih:29EEE82103D1372A26599813E890651EA4250810
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Proxy Searcher - актуальная в наши дни программа, к�
 magnet:?xt=urn:btih:8D067C045BC2CF81FAB889F35D79B570D5E9D7A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ Internet Explorer 10 — это очередная версия наиболее
 ```bash
 magnet:?xt=urn:btih:E347CD73DBA9EFC33975B7433CB253EC758F4ADC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ VNC Server 6.7.1 [En]
 magnet:?xt=urn:btih:CB25BC519604A85A115639F526AB319C9FD67F34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ Algorius Net Viewer 10.4.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:AAC146A301A8E92BB076053703D6B921797035A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ Sylpheed — свободный легковесный почтовый и но�
 magnet:?xt=urn:btih:36115CBFEA2C5F3B697D1ECF455F3716B5F9B1AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ Wise YouTube Downloader 2.84.114 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3343FDFB511AD8EFB6CCABE77090C62DFD4586F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ ProgDVB 7.12.5 Professional Edition [Multi/Ru]
 magnet:?xt=urn:btih:3EBB89217D6A77C988A6551161F1A9FDC8B99F44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ Radiocamp - бесплатное приложение для прослушив�
 ```bash
 magnet:?xt=urn:btih:1FC8EC31A52F838D5C629BFEC0045FC6B2548845
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ Orbit Downloader — менеджер закачек файлов из Инте�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ Orbit Downloader — менеджер закачек файлов из Инте�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ Vkontakte Online 6.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:5ABF9AC196331AD6F0FA7533486810CAD8D2B536
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ ByClick Downloader (бывший YouTube By Click) - отличный и удо�
 magnet:?xt=urn:btih:07DDAA71945558A3F9FDFF429D62E9D2B9160E00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Aloha Browser - это быстрый веб-браузер, основная н
 ```bash
 magnet:?xt=urn:btih:F8C35E6410CA42ECB01472B72D59690CA5B746AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

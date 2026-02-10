@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C1E23612EFECFC69BBA7F9278F68ECAAF989ADBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:C1E23612EFECFC69BBA7F9278F68ECAAF989ADBE
 ```bash
 magnet:?xt=urn:btih:24FAFB2BE1A9F644FF63B4DA26A01A5798A3E53D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ HDCleaner – многофункциональный программный пр
 magnet:?xt=urn:btih:937203F5A0F808DFC390F59AD92B7AEB5B0BAE36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ jetAudio это музыкальный проигрыватель с 10/20 по�
 ```bash
 magnet:?xt=urn:btih:500DD9F6A4ADFDB1348BFE35B7E4337F724160CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Icecream Video Converter Pro 1.46 [Multi/Ru]
 magnet:?xt=urn:btih:34A77F8311DBF194BC2775A2CCB98F322A508128
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Icecream Video Editor - простой редактор видео для Window
 ```bash
 magnet:?xt=urn:btih:E698813644BE2E5F2E8B9361AFEC278F52C6B488
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:E698813644BE2E5F2E8B9361AFEC278F52C6B488
 magnet:?xt=urn:btih:116DEAFF7243178841CF2200B0A212399449D5CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ ZEPHON (2024) [Ru/Multi] (1.1.4/dlc) Repack Other s [Supporter Edition]
 ```bash
 magnet:?xt=urn:btih:AA10E6E92BF7CCE6F7EFDFD6041A81CB34C52C18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:AA10E6E92BF7CCE6F7EFDFD6041A81CB34C52C18
 magnet:?xt=urn:btih:B6DAEB2CA8E46A2C89818218832AA861D865AFB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:B6DAEB2CA8E46A2C89818218832AA861D865AFB3
 ```bash
 magnet:?xt=urn:btih:07BEDAD97845E0F5B3E94F74D610D41F7398A69F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Joplin - это бесплатное приложение с открытым и
 magnet:?xt=urn:btih:DC377FC19BB8A0C853AF256413806BF2A75D3840
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ Light Image Resizer - программа для изменения размер�
 ```bash
 magnet:?xt=urn:btih:B46175C92CF1A84457FB0138E28B048E9302A97B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Follow the meaning v1.1.39 [En]
 magnet:?xt=urn:btih:36AE81FBFEB327F5C5203DF9642CA4F373E6C025
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:36AE81FBFEB327F5C5203DF9642CA4F373E6C025
 ```bash
 magnet:?xt=urn:btih:4D7C7D4BC5065182B88F4FB261EF4A7EA8A81591
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:4D7C7D4BC5065182B88F4FB261EF4A7EA8A81591
 magnet:?xt=urn:btih:0AC15037EBD759F3342B2D593139675AEFAECC76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:0AC15037EBD759F3342B2D593139675AEFAECC76
 ```bash
 magnet:?xt=urn:btih:E7C0BE9BCEB8295730D7753ECBB0636977AF62F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:E7C0BE9BCEB8295730D7753ECBB0636977AF62F3
 magnet:?xt=urn:btih:D0DC2A3B110BF053C965EE309B83FC04B71D8E96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:D0DC2A3B110BF053C965EE309B83FC04B71D8E96
 magnet:?xt=urn:btih:CA2ED84A455148A1DB7D9299C945CDFEBB9828B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:CA2ED84A455148A1DB7D9299C945CDFEBB9828B1
 ```bash
 magnet:?xt=urn:btih:F1960A5079C61CC4DA5669BD95DA4EFD965FB19F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:F1960A5079C61CC4DA5669BD95DA4EFD965FB19F
 magnet:?xt=urn:btih:2AC6BECE7DF9B3F9B9058E991665752C216EEF79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:2AC6BECE7DF9B3F9B9058E991665752C216EEF79
 ```bash
 magnet:?xt=urn:btih:27C6411C65ED12D1FAD74F9053CE22CB888E3CF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Mythical Concept STARNAUT (2024) [Multi] (4091) Repack FitGirl [DX Edition]
 magnet:?xt=urn:btih:AEF440C84AF06FF832D0358CC0A9AA74F8A7581C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:AEF440C84AF06FF832D0358CC0A9AA74F8A7581C
 ```bash
 magnet:?xt=urn:btih:39595FA6E7C677274ADA32D4CF73CFFBA1915594
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ Cuphead — это по-настоящему «классический» пла
 magnet:?xt=urn:btih:0C78E18C5A989AE132AE5A98439B34B921950D02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ Icecream Screen Recorder – простая программа для запис
 magnet:?xt=urn:btih:A2FAFCA23B484E3C5E40C58BC4E8816FF2CA5D47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Pure Bubble Hockey: Переживите классический аркадны
 ```bash
 magnet:?xt=urn:btih:E729011AB32BB37966BD8E40A7714DADD7FC2308
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

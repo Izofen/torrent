@@ -22,6 +22,8 @@ Evanescence - Synthesis (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Al
 magnet:?xt=urn:btih:8A8D2D72004B4108F25053F8936283235D31D2D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Disgaea 7: Vows of the Virtueless (2023) [Multi] (1.0/dlc) Scene Rune [Ultimate 
 ```bash
 magnet:?xt=urn:btih:9D267BF2AAD6A9DA457953645577BAFF8B6E6FF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:9D267BF2AAD6A9DA457953645577BAFF8B6E6FF3
 magnet:?xt=urn:btih:BAA5DFAD5D1884583F5F66FA7916B46D441BE606
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:BAA5DFAD5D1884583F5F66FA7916B46D441BE606
 ```bash
 magnet:?xt=urn:btih:E1F69E5F52F4E049C06948810D19877C7A3A0D3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Dome Keeper v.3.0.1 (2022) [Multi/Ru] [macOS Native game]
 magnet:?xt=urn:btih:80292F39D9749B6EA8E914D09EB4FAA8C31FA005
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:80292F39D9749B6EA8E914D09EB4FAA8C31FA005
 magnet:?xt=urn:btih:DE89DDD20026E738C1248E6FB72A18BDDC8392AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Midi-грувы для Toontrack EZbass.Формат: MIDI
 ```bash
 magnet:?xt=urn:btih:03A24461E2D1E2C82E889302CADA004B062475E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:03A24461E2D1E2C82E889302CADA004B062475E5
 magnet:?xt=urn:btih:EF128DD5F3604A8D25D2734B571B251E80440F45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Hidden Through Time 2: Myths & Magic (2023) [Ru/Multi] (1.0.30a) License GOG
 ```bash
 magnet:?xt=urn:btih:365B832802C02EF3B61C605A546BAE2D2DB2D5EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:365B832802C02EF3B61C605A546BAE2D2DB2D5EF
 magnet:?xt=urn:btih:DFFE6F022BCA369F15F6F78D50F001C91F8926F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:DFFE6F022BCA369F15F6F78D50F001C91F8926F7
 ```bash
 magnet:?xt=urn:btih:55EE964182496863D843648792359BF94D2CFA7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:55EE964182496863D843648792359BF94D2CFA7D
 magnet:?xt=urn:btih:08F016318C6DE4ED9AACAB21F08EF8174ACC653B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Adguard – интернет-фильтр для защиты пользоват
 ```bash
 magnet:?xt=urn:btih:9B6954EA3B977DA8E1AAA1A5393BBE290D0D31B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:9B6954EA3B977DA8E1AAA1A5393BBE290D0D31B4
 magnet:?xt=urn:btih:578B3222E20A98CBA5EBE0DE359BB4C7D00773FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:578B3222E20A98CBA5EBE0DE359BB4C7D00773FA
 ```bash
 magnet:?xt=urn:btih:D6D8F80CE25DFF516D2EB032756FE9F23364E9DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:D6D8F80CE25DFF516D2EB032756FE9F23364E9DD
 magnet:?xt=urn:btih:279B377B2DA8E95C693DE9BE2E5778D2DDA066D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ The Secret of Monkey Island (2009) [Multi] (1.0) License GOG [Special Edition]
 ```bash
 magnet:?xt=urn:btih:9D41E0488FC38B35DE57AA7D5BBF980D46FAD4F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:9D41E0488FC38B35DE57AA7D5BBF980D46FAD4F9
 magnet:?xt=urn:btih:0BCCBAEF1775581BF1ED6AA1E70B0799B7885E4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:0BCCBAEF1775581BF1ED6AA1E70B0799B7885E4F
 ```bash
 magnet:?xt=urn:btih:E70190AA35A02C386CF6DB834A49C494579681C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:E70190AA35A02C386CF6DB834A49C494579681C9
 magnet:?xt=urn:btih:2CD73F898B9FBD225F54A6E42BFFACEA85FC1E7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:2CD73F898B9FBD225F54A6E42BFFACEA85FC1E7F
 ```bash
 magnet:?xt=urn:btih:4E5EFDECBDF3AD9D5FCD6976683A1A04FC36F470
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:4E5EFDECBDF3AD9D5FCD6976683A1A04FC36F470
 magnet:?xt=urn:btih:9EB9D37CF7632DED9F0366938227E966FCF57821
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:9EB9D37CF7632DED9F0366938227E966FCF57821
 ```bash
 magnet:?xt=urn:btih:89E4D28783879C8E9D105E47BAD5961491B7E78F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ magnet:?xt=urn:btih:89E4D28783879C8E9D105E47BAD5961491B7E78F
 magnet:?xt=urn:btih:3C7330CC47FE647CCF1E59A5E97F070F6DCAE7A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ Udemy, Andrei Neagoie | The Complete Web Developer in 2021: Zero to Mastery (202
 magnet:?xt=urn:btih:CCB2C0A5D4F1A7CA54C6E11622E3524F1799D3B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ Bilkins' Folly - увлекательная игра, которая отпра�
 ```bash
 magnet:?xt=urn:btih:69C27A20F2764A48F2EF442BB38E0CFCF0884363
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

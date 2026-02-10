@@ -19,6 +19,8 @@ Draw.io 23.1.5+ Portable [Multi/Ru]
 magnet:?xt=urn:btih:E30F1FB4DC6E0B9A7C26D3B866E8E5644C806AA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ FreeFileSync - это утилита, которая была разработа
 magnet:?xt=urn:btih:AECDF46FAC1C4E20040BA02B4D5EAE57E28971A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:AECDF46FAC1C4E20040BA02B4D5EAE57E28971A4
 ```bash
 magnet:?xt=urn:btih:C43D5BB64D971DC3EA81EA480AF115FB29A782C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ VA - Incendiary Disco (2024) [MP3|320 Kbps] <Disco, Dance, Remixes>
 magnet:?xt=urn:btih:80E7F18BEF55109405FFDEB7E5AAFAF182310BF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:80E7F18BEF55109405FFDEB7E5AAFAF182310BF7
 ```bash
 magnet:?xt=urn:btih:F776C467D4405DDAACDEBAC36AD8BAE4BF0C8812
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:F776C467D4405DDAACDEBAC36AD8BAE4BF0C8812
 magnet:?xt=urn:btih:04A721F3E7B8CEE4FA63212AFFCF2AD9C4A34016
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Topaz A.I. Gigapixel — это приложение, использующее �
 magnet:?xt=urn:btih:97E4C3BF2F9120510FE0C3FE68A40FC56C31FB60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:97E4C3BF2F9120510FE0C3FE68A40FC56C31FB60
 ```bash
 magnet:?xt=urn:btih:6C483D8DA9322CB46195EBFE2CFD09EACC8A916C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:6C483D8DA9322CB46195EBFE2CFD09EACC8A916C
 magnet:?xt=urn:btih:1CBCBF37A2BE8608BD7BF40CB741759658D7C3AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:1CBCBF37A2BE8608BD7BF40CB741759658D7C3AD
 ```bash
 magnet:?xt=urn:btih:66ACE05F9723524AC9B983F74835188DAEA47D58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ AIDA64 1.98 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:AAEA8E56047966B808E9CCBC10108F75BD925067
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:AAEA8E56047966B808E9CCBC10108F75BD925067
 ```bash
 magnet:?xt=urn:btih:E6DC556EFC76537D09599619337AE044A27077A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:E6DC556EFC76537D09599619337AE044A27077A0
 ```bash
 magnet:?xt=urn:btih:CC84BFD4C6316316521BBB558C514E5E2F56816B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ VA - It's Prog Rock (2024) [MP3|320 Kbps] <Progresive Rock>
 magnet:?xt=urn:btih:E1C24AE8CB77545DBD64C7DB692C8D18BEAF6A03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ VA - Live Blues (2024) [MP3|320 Kbps] <Blues, Blues Rock>
 magnet:?xt=urn:btih:8CE16F3FA9ADC086D1BB652F27F606CD36F60722
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:8CE16F3FA9ADC086D1BB652F27F606CD36F60722
 ```bash
 magnet:?xt=urn:btih:8995ED9C62B5BDC1E71EFC96C77413E50BF9BC11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ magnet:?xt=urn:btih:8995ED9C62B5BDC1E71EFC96C77413E50BF9BC11
 magnet:?xt=urn:btih:4480F7FCA394D744FE985C2F39988D1914834BC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:4480F7FCA394D744FE985C2F39988D1914834BC2
 ```bash
 magnet:?xt=urn:btih:E9F57024A2B9234098C3F8BB0147BCA40177C969
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +503,8 @@ magnet:?xt=urn:btih:E9F57024A2B9234098C3F8BB0147BCA40177C969
 magnet:?xt=urn:btih:C6723ADDE23D612EDE6A12611466A5FF5ADD818E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ magnet:?xt=urn:btih:C6723ADDE23D612EDE6A12611466A5FF5ADD818E
 magnet:?xt=urn:btih:02888997606422FA592364A2A402E8442F36539E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ OneCommander V3 — это современный файловый менедж�
 magnet:?xt=urn:btih:11F7539143A454EBF4AB27F1E036C184093D146A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +583,8 @@ magnet:?xt=urn:btih:11F7539143A454EBF4AB27F1E036C184093D146A
 ```bash
 magnet:?xt=urn:btih:103BB4D37D5C4B1D84A320101A9B6DB960718173
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +611,8 @@ PhpStorm – это интегрированная среда разработк
 magnet:?xt=urn:btih:F32D4DDC4634B96DEAE6A343A8E9046355A44165
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ Lysfanga: The Time Shift Warrior бросает вас в битву, котор
 ```bash
 magnet:?xt=urn:btih:3D63E190E53754C09BCA6200475228DA4EFFF811
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +663,8 @@ magnet:?xt=urn:btih:3D63E190E53754C09BCA6200475228DA4EFFF811
 magnet:?xt=urn:btih:A5F420AAF9E31E5397A974A56CACCFCDB65CF5AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ magnet:?xt=urn:btih:A5F420AAF9E31E5397A974A56CACCFCDB65CF5AD
 ```bash
 magnet:?xt=urn:btih:CE0207E85A64F0207E31F50D4F5D0F2DFCE9BC15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

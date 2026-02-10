@@ -1,3 +1,55 @@
+###  Публикация: 1467579   (764959) от 02.01.2022
+
+Кавказская пленница, или новые приключения Шурика (1967) BDRip [H.265/2160p-LQ] [PR] [handmade remastered upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправившись в одну из горных республик собирать фольклор, герой фильма Шурик влюбляется в симпатичную девушку — «спортсменку, отличницу, и просто красавицу». Но ее неожиданно похищают, чтобы насильно выдать замуж. Наивный Шурик не сразу смог сообразить, что творится у него под носом, — однако затем отважно ринулся освобождать «кавказскую пленницу»…Производство: СССР / МосфильмЖанр: комедия, приключения, мелодрама, мюзиклРежиссер: Леонид ГайдайАктеры: Александр Демьяненко, Наталья Варлей, Юрий Никулин, Георгий Вицин, Евгений Моргунов, Владимир Этуш, Фрунзик Мкртчян, Руслан Ахметов, Нина Гребешкова, Михаил ГлузскийСубтитры: ОтсутствуютПродолжительность: 01:19:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA2E6FE4F1E9272B4A2B7D66ED1899225356C556
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521308   (765090) от 02.01.2022
+
+Лимонадный Джо, Или Конская Опера / Limonadovy Joe aneb Konska opera / Lemonade Joe or Horse Opera (1964) BDRip [H.264/720p] [handmade AI colored] RSS
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765090.jpg" />
+</div>
+
+
+###  Подробнее
+
+В маленьком городке на «Диком западе» крепкие парни развлекаются дракой, стрельбой и пьют виски. Нравы там грубы и жестоки, закон один - «Кто кого раньше застрелит». Даже шериф не в силах этому противостоять. Но однажды в салун заходит Он - Лимонадный Джо, и в городке начинается новая жизнь. В него влюбляются все первые красавицы городка. Секрет популярности героя (   Читать дальше...   )Производство: Чехословакия, Filmové Studio BarrandovЖанр: мюзикл, мелодрама, комедия, приключения, вестернРежиссер: Ольдржих ЛипскийАктеры: Карел Фиала, Рудольф Дейл, Милош Копецки, Квета Фиалова, Ольга Шоберова, Богуш Загорский, Йозеф Глиномаз, Карел Эффа, Вальдемар Матушка, Эман ФиалаПеревод: ДублированныйЯзык озвучки: РусскийПродолжительность: 01:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9855E0253FD7EBAAAF0199CF6409AEF3EC0C283E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1521219   (765917) от 01.01.2022
 
 Зигзаг удачи (1968) DVDRip [H.264] [handmade AI colored]
@@ -20,6 +72,8 @@
 ```bash
 magnet:?xt=urn:btih:3EAF91C875B61E336F339A24C85834F7183FC38A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +99,8 @@ magnet:?xt=urn:btih:3EAF91C875B61E336F339A24C85834F7183FC38A
 magnet:?xt=urn:btih:3BB9B663968651E02EFB94C83A0F9B2FBD0C473F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +125,8 @@ magnet:?xt=urn:btih:3BB9B663968651E02EFB94C83A0F9B2FBD0C473F
 magnet:?xt=urn:btih:02ED0028E702CB8ABAEAA96660CC5C7810CB91DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +150,8 @@ magnet:?xt=urn:btih:02ED0028E702CB8ABAEAA96660CC5C7810CB91DC
 ```bash
 magnet:?xt=urn:btih:2A2DD042FBFA3DE31B43A01D25D6F19E26A91A93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +179,8 @@ magnet:?xt=urn:btih:2A2DD042FBFA3DE31B43A01D25D6F19E26A91A93
 magnet:?xt=urn:btih:0B44826BBE93F617BC0B030F8A3767EDD15910AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +204,8 @@ magnet:?xt=urn:btih:0B44826BBE93F617BC0B030F8A3767EDD15910AB
 ```bash
 magnet:?xt=urn:btih:08E91E9621A7A632139705464B9215D014F4E9A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +232,8 @@ magnet:?xt=urn:btih:08E91E9621A7A632139705464B9215D014F4E9A2
 magnet:?xt=urn:btih:5D2B85762DBDEF3C4692D043FD83CB09912062D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +258,8 @@ magnet:?xt=urn:btih:5D2B85762DBDEF3C4692D043FD83CB09912062D2
 ```bash
 magnet:?xt=urn:btih:AE2316A87C4AF3556DF435089767AA0837B7C127
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +288,8 @@ magnet:?xt=urn:btih:AE2316A87C4AF3556DF435089767AA0837B7C127
 magnet:?xt=urn:btih:E88002D30003506984EA8C01E4A652C77D9E54A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +313,8 @@ magnet:?xt=urn:btih:E88002D30003506984EA8C01E4A652C77D9E54A3
 ```bash
 magnet:?xt=urn:btih:959E0EB496205FAADDB4A716C2BAECF956625095
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +341,8 @@ magnet:?xt=urn:btih:959E0EB496205FAADDB4A716C2BAECF956625095
 magnet:?xt=urn:btih:DE67E517DBABCDA9CCB6FB2EB857FBB92803F05A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +366,8 @@ magnet:?xt=urn:btih:DE67E517DBABCDA9CCB6FB2EB857FBB92803F05A
 ```bash
 magnet:?xt=urn:btih:CF8764F9AFB3A8300D32851700E984EAFCC24F53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +396,8 @@ magnet:?xt=urn:btih:CF8764F9AFB3A8300D32851700E984EAFCC24F53
 magnet:?xt=urn:btih:DD0FF9CEF20F83B68874F5694CAFC04D28996646
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +423,8 @@ magnet:?xt=urn:btih:DD0FF9CEF20F83B68874F5694CAFC04D28996646
 magnet:?xt=urn:btih:7876F713A83C0C510940B0B92D9B8C8FB9096F5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +449,8 @@ magnet:?xt=urn:btih:7876F713A83C0C510940B0B92D9B8C8FB9096F5C
 ```bash
 magnet:?xt=urn:btih:3C66C31BFB658CF2C936D5207FA03C0A13FE423D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +479,8 @@ Rammstein - История легенды (2016) WEB-DLRip [H.264/1080p-LQ] [han
 magnet:?xt=urn:btih:B9955BD16260154285180958B74E963D1C5F459F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +505,8 @@ magnet:?xt=urn:btih:B9955BD16260154285180958B74E963D1C5F459F
 magnet:?xt=urn:btih:306765EB10AA095C1B9FF375E0B1A80385EBCD44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +530,8 @@ magnet:?xt=urn:btih:306765EB10AA095C1B9FF375E0B1A80385EBCD44
 ```bash
 magnet:?xt=urn:btih:2C1AE66740B49F92B7B6182A90D98361AAD35E15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +560,8 @@ magnet:?xt=urn:btih:2C1AE66740B49F92B7B6182A90D98361AAD35E15
 magnet:?xt=urn:btih:5F6260C48F3A0D94677BDE7AB21EE61F4B6A06F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +589,8 @@ magnet:?xt=urn:btih:5F6260C48F3A0D94677BDE7AB21EE61F4B6A06F5
 magnet:?xt=urn:btih:8CEFE510D6608F8FF9780E8A85A98B6BC6B1BB05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +615,8 @@ magnet:?xt=urn:btih:8CEFE510D6608F8FF9780E8A85A98B6BC6B1BB05
 magnet:?xt=urn:btih:36ECE21747DCA078A54D68E76B9D7BC4CE540850
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +640,8 @@ magnet:?xt=urn:btih:36ECE21747DCA078A54D68E76B9D7BC4CE540850
 ```bash
 magnet:?xt=urn:btih:E12F8449010065AFD2E47ECFC4205BC9397B2F8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +670,8 @@ magnet:?xt=urn:btih:E12F8449010065AFD2E47ECFC4205BC9397B2F8C
 magnet:?xt=urn:btih:B41FD07779B78C188817E960DB9E4703BCFA440B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,54 +696,7 @@ magnet:?xt=urn:btih:B41FD07779B78C188817E960DB9E4703BCFA440B
 magnet:?xt=urn:btih:96DF47E7526CF505476F45B26749CE04DB1C0EC8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390248   (783019) от 15.06.2020
-
-ВИА «Месхи» Свободные птицы (8K 4320p) MASTER
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый клип группы в формате 8КПроизводство: Россия, кинокомпания CINESTYLEЖанр: Rock, popРежиссер: Андрей ГераськинАктеры: ВИА «Месхи»Перевод: Не требуется (нет диалогов и озвученных комментариев)Продолжительность: 03:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A7EAB84E3F08176EE7B1350178DFB9AEDF0D776
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390264   (783064) от 15.06.2020
-
-АХСиМСЗ - Да здравствует американский шовинизм! (George Floyd Protest in USA) (2020) WEBRip [H.264/1080p] <Radical political hardcore>
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783064.jpg" />
-</div>
-
-
-###  Подробнее
-
-CDA: 2007.5 - Правда Силы
-George Floyd Protest in USAПроизводство: (с) 2020 Zymotic Productions Ultra-VideoЖанр: Radical political hardcoreПродолжительность: 00:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E4AC459FC480753F67C7D43153F56699D50D614
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

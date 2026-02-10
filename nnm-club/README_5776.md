@@ -19,6 +19,8 @@ Detroit: Become Human (2020) [Ru/Multi] (12158144) Repack dixen18
 magnet:?xt=urn:btih:0CB8D02AD4F3F57D1E51B4E852AB0923255C9B44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:0CB8D02AD4F3F57D1E51B4E852AB0923255C9B44
 ```bash
 magnet:?xt=urn:btih:68BD1F0A2347961CB2DD50558FC4FDB80BA81DA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Thundermother - Black And Gold (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 magnet:?xt=urn:btih:D7579EFC61FA0C3C46FE8EFD044B223DEBCB3388
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:D7579EFC61FA0C3C46FE8EFD044B223DEBCB3388
 ```bash
 magnet:?xt=urn:btih:69B2D382255D82065B7D40DF7541F9DFDFBF3444
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:69B2D382255D82065B7D40DF7541F9DFDFBF3444
 magnet:?xt=urn:btih:17AB2B5866C708E6DFEE9C8399FB1298C5813B2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:17AB2B5866C708E6DFEE9C8399FB1298C5813B2A
 ```bash
 magnet:?xt=urn:btih:5F1F3DE638E6C8F4473073324F8560CB4F79EEA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Aseprite - это инструмент для создания пиксельн�
 magnet:?xt=urn:btih:5DB38C98E5B8187C820695B177FB19E5860C1E5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:5DB38C98E5B8187C820695B177FB19E5860C1E5F
 magnet:?xt=urn:btih:6FBBB8FC9B01ADF1FFACF93A9B895B14857DCE61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:6FBBB8FC9B01ADF1FFACF93A9B895B14857DCE61
 ```bash
 magnet:?xt=urn:btih:A4CDA6F9707C66809565870721A9E71EA271EE8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Simulation: On! - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
 magnet:?xt=urn:btih:15378211AF3CA241D16CF814038BEF972926DD62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:15378211AF3CA241D16CF814038BEF972926DD62
 magnet:?xt=urn:btih:24D5C3CD875FD3E442E77B60094B6A2480D48873
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:24D5C3CD875FD3E442E77B60094B6A2480D48873
 magnet:?xt=urn:btih:BA457219DF71327EAAA80C27BDA998653C1C4BE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:BA457219DF71327EAAA80C27BDA998653C1C4BE7
 ```bash
 magnet:?xt=urn:btih:724D243AC2899CFA8A86772D4512A55AEFAA7694
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:724D243AC2899CFA8A86772D4512A55AEFAA7694
 magnet:?xt=urn:btih:3C7629CAAE6D16393F75A3AE011F24F9A202D492
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:3C7629CAAE6D16393F75A3AE011F24F9A202D492
 magnet:?xt=urn:btih:7DDFC570027674DC2F331BB50C6BBE4FB571BD16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:7DDFC570027674DC2F331BB50C6BBE4FB571BD16
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:7DDFC570027674DC2F331BB50C6BBE4FB571BD16
 ```bash
 magnet:?xt=urn:btih:842A0C6ABDFF96BDD25F2004E13F16F661A27974
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:842A0C6ABDFF96BDD25F2004E13F16F661A27974
 magnet:?xt=urn:btih:404532E3060CB20FFCD13073F46E09EB1416EE2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ magnet:?xt=urn:btih:404532E3060CB20FFCD13073F46E09EB1416EE2C
 magnet:?xt=urn:btih:1E983285A0807DEAB0BDEB55F80B50A4B79F0CD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ magnet:?xt=urn:btih:1E983285A0807DEAB0BDEB55F80B50A4B79F0CD2
 ```bash
 magnet:?xt=urn:btih:88E9AD60BBB4D327DAB87D40CC63BA0F3D5EAE35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +561,8 @@ Ron Carter - Finding The Right Notes (2022) In+Out Records [FLAC|Lossless|tracks
 magnet:?xt=urn:btih:9F15AAABB154B2AE82C446E987C685926B34AC6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +587,8 @@ magnet:?xt=urn:btih:9F15AAABB154B2AE82C446E987C685926B34AC6C
 magnet:?xt=urn:btih:5E746B9C466CB6034B8824F00870F0C09A25C0BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ magnet:?xt=urn:btih:5E746B9C466CB6034B8824F00870F0C09A25C0BB
 ```bash
 magnet:?xt=urn:btih:70722D2B63A4EEDC711F30C4D58A25B692488C0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +642,8 @@ Devils Paradise - Post Mortem (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:041AD7F864D96432A1F665B077AC40214ECB706C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +667,8 @@ magnet:?xt=urn:btih:041AD7F864D96432A1F665B077AC40214ECB706C
 ```bash
 magnet:?xt=urn:btih:E1F0170E5CFFC6688F2BF6B0651930CFAA711090
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +696,8 @@ That Joe Payne - Ding Dong (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Roc
 ```bash
 magnet:?xt=urn:btih:4E9370BFE3FEFA08852DFD95CF5ACF8697C8C961
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

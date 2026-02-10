@@ -19,6 +19,8 @@ It's My Life | Это моя жизнь! [2019, OVA, 1 эп.] DVDRip 576p 10bit 
 magnet:?xt=urn:btih:46B206FF5A78257B26F58C606C4E298006065C25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Yuurei Yashiki | Призрак замка [1990, Special, 1 эп.] WebRip 480p 
 ```bash
 magnet:?xt=urn:btih:C4C4F3877F6ECC977ED75C6F65328339AA9B26A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Sister Princess | Сестры-принцессы [ТВ-1] [2001, TV, 26 эп.] 
 magnet:?xt=urn:btih:F2D03E5C6BFE837C0B9D1AAEC52B57AE479EC593
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Sister Princess: Re Pure | Сестры-принцессы [ТВ-2] [2002, TV, 1
 ```bash
 magnet:?xt=urn:btih:F6C3D5C0E1EA9A02006448B0A69B51945E735B3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ Takunomi. | Алкогольные посиделки [2018, TV, 12] BDRip 1080p
 magnet:?xt=urn:btih:EFA8344FC9F5153D290685E7A8BB53C7F30A9A5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Ayakashi Triangle / Треугольник Аякаси [2023, TV, 12] WEBRip 72
 magnet:?xt=urn:btih:F39DB1EE8B52865395C552AEB30A796FAD55E468
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Kaminaki Sekai no Kamisama Katsudou | KamiKatsu: Working for God in a Godless Wo
 ```bash
 magnet:?xt=urn:btih:4B03AA52D704228924B00301155A57C05813CA8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ Isekai One Turn Kill Nee-san: Ane Douhan no Isekai Seikatsu Hajimemashita | My O
 magnet:?xt=urn:btih:66A66F541212366EF5E9A36A9E063190F5904F98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ Space Runaway Ideon | Densetsu Kyojin Ideon | Космический бегле�
 ```bash
 magnet:?xt=urn:btih:96EDA7CBC178BB45AE87D298DA925454E8DFEF3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ Yuusha ga Shinda! | The Legendary Hero is Dead! | Герой мёртв! [2023, 
 magnet:?xt=urn:btih:A284B4B2DEA31A11B2B66DD44EFA30729A7218CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ Tokyo Mew Mew New | Токио Мяу Мяу (2022) [2022, TV, 12 из 12] BDRip
 ```bash
 magnet:?xt=urn:btih:A4F43F34651971AC308AC7593695F9CCD23B9924
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ Azur Lane: Queen's Orders | Лазурный путь: Приказы корол
 magnet:?xt=urn:btih:80C49AD147F851F0CED57C552F171C15F6F937EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ Jijou o Shiranai Tenkousei ga Guigui Kuru. | My Clueless First Friend | Мой �
 ```bash
 magnet:?xt=urn:btih:96E6A2300718B60F252E8FD3AB317FB190F4E13D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ One Punch Man 3 | Ванпанчмен [ТВ-3] [2025, TV, 2 из 12 эп. + 1 S
 magnet:?xt=urn:btih:A012DCE7D8327C7FD4EED377387EAE6E5D65F261
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ Level 1 Dakedo Unique Skill de Saikyou Desu | С особым навыком я 
 magnet:?xt=urn:btih:02AFC2D32D4D276AE3CAD95D30FFACE9EE5E03A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ Eiyuu Kyoushitsu | Hero Classroom | Класс для героев [2023, TV, 12
 ```bash
 magnet:?xt=urn:btih:9753D33473F886AAD59D2675A461A50D45C6545A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ Shinigami Bocchan to Kuro Maid (2023) | The Duke of Death and His Maid (2023) | 
 magnet:?xt=urn:btih:5536CB766BCCAAC4DCAE0F57F22BD59B14455A51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ Mix: Meisei Story 2nd Season - Nidome no Natsu, Sora no Mukou e | Микс: Ис
 magnet:?xt=urn:btih:90ECE47DBEBF310334338BA249DAB791A587743C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ Horimiya: Piece | Horimiya: The Missing Pieces | Хоримия [ТВ-2] [2023, 
 ```bash
 magnet:?xt=urn:btih:439489E7E0F5BD703CAEA679C0715D84540D24C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ Tenpuru / Temple / Храм [2023, TV, 12] WEBRip 720p raw
 magnet:?xt=urn:btih:D5F78376DE6357E8531816E92A8DC6F289AF785D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ Seija Musou: Salaryman, Isekai de Ikinokoru Tame ni Ayumu Michi | Великий
 ```bash
 magnet:?xt=urn:btih:5F6D47DF378CD5C4831C9B2A8ABBDC4F7121C0C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +580,8 @@ Higeki no Genkyou to Naru Saikyou Gedou Last Boss Joou wa Tami no Tame ni Tsukus
 magnet:?xt=urn:btih:21509CE6C7C342AFCC1288711D89F4E97A7C05FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ Sugar Apple Fairy Tale (2023) | Сказка о сахарном яблоке [�
 ```bash
 magnet:?xt=urn:btih:B2E041D8A77FF2D43B05DE5CFF01B36D1271B84C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +632,8 @@ Lv1 Maou to One Room Yuusha | Level 1 Demon Lord and One Room Hero | Однуш�
 magnet:?xt=urn:btih:5089ABDB71F5A697B12F23CA915EF348BC04D626
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ Yumemiru Danshi wa Genjitsushugisha / The Dreaming Boy is a Realist / Из ме�
 magnet:?xt=urn:btih:50D3CC87035EFEEBEAC6FF200D3B67F1AABE4A46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ Machikado Mazoku | The Demon Girl Next Door | Городская дьяволи�
 ```bash
 magnet:?xt=urn:btih:5F2A690B3C34E4303DEBCAF5836ACC14B420024A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Tsirohm - Dream Conexion (2021) [FLAC|Lossless|WEB-DL|tracks] <Psytrance>
 magnet:?xt=urn:btih:30C248B96D331E07422CDB73A302887F173C5C70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Taavi Laatsit (Galaktlan, Kulgurid, Vonsuck, Uni) - Discography 14 Releases (199
 ```bash
 magnet:?xt=urn:btih:2EB7BC685198C654B283FE54709EF7560601660B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Aligning Minds (Daniel A. Merrill, A Path Untold) - Collection 4 Releases (2011-
 magnet:?xt=urn:btih:0D941C953773677976F57FB4C88B050123E2A0AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Profondo Delle Tenebre - Exoterica (2020) [FLAC|Lossless|WEB-DL|tracks] <Darksyn
 ```bash
 magnet:?xt=urn:btih:D855814276B68DDC24F5978505D0D71FC00C773C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Warmth - Discography 31 Releases (2013-2021) Rohs! Records, Etoka Records, Archi
 magnet:?xt=urn:btih:053F1C4D175B27475021105D6723733B7570E984
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ Comaduster | Underfelt - Discography 21 Releases (2009-2020) Tympanik Audio | Fi
 ```bash
 magnet:?xt=urn:btih:590175649F4D09E49FED704F0F2BD923F5102629
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -182,6 +194,8 @@ Nu:Tone - 5 альбомов (2005; 2007; 2011; 2014; 2021) [FLAC|Lossless]<Drum
 magnet:?xt=urn:btih:EABBA27CCDD6620BAF11BB1A15C242BF11EDA68A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ Mouse On Mars - Discography 31 Releases (1994-2021) [FLAC|Lossless|tracks+.cue, 
 ```bash
 magnet:?xt=urn:btih:87AA8C2B747F26E72A232973B99468B478563AB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +252,8 @@ Andrew Bayer - Discography 60 Releases (2006-2021) Anjunabeats [FLAC|Lossless|tr
 magnet:?xt=urn:btih:C25525DA85315D903FDCD9376517BE8799A7187E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +280,8 @@ Nu:Tone - Little Spaces (2021) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:B259CFFC480035912F3024386D1BFB46EDE8573E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +310,8 @@ Damirat - Pixcurve (2020) dingn\dents [FLAC|Lossless|WEB-DL|tracks] <IDM, Experi
 magnet:?xt=urn:btih:18E5766D222509267FD6CD098CAD438A94037C1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +338,8 @@ Kas - Like Sunlit Threads (2021) Ilian Tape [FLAC|Lossless|WEB-DL|tracks] <Ambie
 ```bash
 magnet:?xt=urn:btih:2BA6EA28AE9A424F1C8101C5C7B13453A58EC424
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +368,8 @@ Septabeat & Sofi Mari - Sundance EP (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum &
 magnet:?xt=urn:btih:C4ABFCEF8AAA6ABC163664C6E17F0461D22FF021
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +396,8 @@ Mirage Of Deep - The Best Of Mirage Of Deep (2023) [MP3|320 Kbps] <Balearic, Dow
 ```bash
 magnet:?xt=urn:btih:297E585A393ED570AFF4C1743B37121E1152FB7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +426,8 @@ Tim Koch (10:32, Thug) - Discography 16 Releases (1999-2021) [FLAC|Lossless|trac
 magnet:?xt=urn:btih:96563E06B29A492EE736490A27954AC5A43E1199
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +454,8 @@ Subchord - Label Pack 4 Releases (2018-2021) [FLAC|Lossless|WEB-DL|tracks] <Dub 
 ```bash
 magnet:?xt=urn:btih:A6DA1B7A1D0C55CBE1DF9EE180250B53662D8BC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +484,8 @@ VA - Space Fly, Vol. 1: A Magic Chill Trip Presented by Frank Borell (2009) [FLA
 magnet:?xt=urn:btih:1BB03845A6919B125330E5E80B86ADC05B627A1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +512,8 @@ Anthéne (Anthene) - The Slow Wave (2021) Giraffe Tapes [FLAC|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:1F987C3B4797FCD0D11B61959B84CE6D20EA1341
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +542,8 @@ Ilkae - Questionable Casino (2021) Eerik Inpuj Sound [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:2D0A6260A72B34E455EE25E0C8729F282C38164D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +571,8 @@ Germind - Discography 46 Releases (2012-2021) Plexus Music, Cosmicleaf Records [
 magnet:?xt=urn:btih:D8299FCE6FBF82BBAE8AC5749AC1C8B2ADDACDE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +596,8 @@ Tosca - Discography 33 Releases (1995-2018) Studio !K7, G-Stone [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:76E874544FDAE644ACD8E7B23050BBF28E4134CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +626,8 @@ VA - Ferry Corsten - Resonation Vol.1 (2021) [MP3|320 Kbps] <Trance, Progressive
 magnet:?xt=urn:btih:7F9D83C1EF1864C68C9254986B65225D53EB40DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +654,8 @@ The Field - Discography 19 Releases (2005-2018) Kompakt [FLAC|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:EF7008E3C6D661648EB78EA533FAA1420E3BD410
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +684,8 @@ Andrew Coleman | Animals On Wheels - Discography 11 Releases (1997-2020) Ninja T
 magnet:?xt=urn:btih:376C0879DA4446FEC8D40BCE0998EB04B1E90692
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +713,8 @@ VA - Space Odyssey - Trip Four: Journey To The Sun (2018) [OGG Vorbis|480 Kbps] 
 magnet:?xt=urn:btih:E74172415EBC8C7DD20CAC85B584531CAEF55690
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -691,6 +741,8 @@ Insect Jazz - Hum & Buzz (1997) Elektrolux [FLAC|Lossless|tracks+.cue] <Electro,
 ```bash
 magnet:?xt=urn:btih:00BC63F63EE060EF62D28E9C5BED7C0A5F503C92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

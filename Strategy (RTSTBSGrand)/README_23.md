@@ -19,6 +19,8 @@ Kingdom Rush Vengeance (2018) [Ru/Multi] (1.9.9.20) License PLAZA
 magnet:?xt=urn:btih:C39073B42576801BE55CFE3C4405FADD14E4AAE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Partisans 1941 (2020) [Ru/Multi] (1.1.04/dlc) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:1935ABEEA62ACC4B87CAB0AF86CEF5CB73889AF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ One Step From Eden (2020) [Ru/Multi] (1.6.2/dlc) License GOG
 magnet:?xt=urn:btih:1C40229D794C84DE662605773629B55CF24463B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Hammer of the Gods (1994) [Ru/En] (1.0.2035) License
 ```bash
 magnet:?xt=urn:btih:5688ED965B6AAE4741F275D3ED9707EC85CFDBAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Empire of Sin — новая стратегическая игра от Romero G
 magnet:?xt=urn:btih:9BE1D26112D1554D877228BC8776F6B5670656D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Civilization VI предлагает множество новых способ�
 ```bash
 magnet:?xt=urn:btih:9D518AC35359236AA0C948D92F9B75F5BF28A832
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Spacebase Startopia — это необычная и захватывающая 
 magnet:?xt=urn:btih:CC32725B519351970A26EDC03D7082A4E4275EBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Stronghold Crusader HD (2002) [Ru/Multi] (1.41a) License GOG [Extreme Edition]
 ```bash
 magnet:?xt=urn:btih:C8612CFA319947006963EEB4D33422B57DC18E81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Imperator: Rome (2019) [Ru/Multi] (2.0/dlc) Repack xatab [Deluxe Edition]
 magnet:?xt=urn:btih:FA7D70AAEC4589749CE97AF9DA96A2650E072159
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Europa Universalis III / Европа 3 (2007) [En] (5.2/dlc) License GOG [Compl
 ```bash
 magnet:?xt=urn:btih:F87AB96F532FB90F290B3CDA3611EAC4DD1F2390
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Steel Division 2 (2019) [Ru/Multi] (46442/dlc) Repack xatab [Total Conflict Edit
 magnet:?xt=urn:btih:C77FEE328933DF78ABF5C3D0D016BBA8A6769E16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Worms 2 (1998) [En] (2.0.0.23) License GOG
 ```bash
 magnet:?xt=urn:btih:C9BC64E8180B854937097AA6771EC51DBD79EACE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Nebuchadnezzar – градостроительный симулятор-пес�
 magnet:?xt=urn:btih:0A36976A389727A4F67E6EA0D1A5DCA5FFBDEF47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Jurassic World Evolution 2 - долгожданное продолжение п�
 ```bash
 magnet:?xt=urn:btih:768ACD17C7EDCE7A66E8A7E4FDCC2588D9BF509F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Stellaris (2017) [Ru/Multi] (2.8.1.2/dlc) Repack xatab [Galaxy Edition] (обн�
 magnet:?xt=urn:btih:55C90338EAE0AF691A2F7E6A536725EB9889D19D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Before We Leave - это градостроительная стратегия, 
 ```bash
 magnet:?xt=urn:btih:00BEAA8F68D45F38093D925406E9A44EB2232C91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Rock of Ages 3: Make & Break – это соревновательная защ�
 magnet:?xt=urn:btih:5D72CEE9C515E23BDDC5B30F20D1CB0574018ED7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ The Lord of the Rings: The Battle for Middle-earth II - зрелищная, сд
 ```bash
 magnet:?xt=urn:btih:769B6DEEC7350A9F821A524CAE3E855130434FA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Stronghold: Warlords – продолжение серии стратегий в
 magnet:?xt=urn:btih:FD619F7A31784F6D058EB75545DA7C8F2F5B4E9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Chromosome Evil - атмосферная стратегия, вдохновле�
 ```bash
 magnet:?xt=urn:btih:86CC3C157C968E5360A19F1F12466E612B6650DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Star Dynasties (2021) [En] (1.0.4.0/dlc) License GOG
 magnet:?xt=urn:btih:B5B11BCCF18392A9D7BF5518981C7066B60A6AE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Company of Heroes 3 переносит вас в новый живописный
 ```bash
 magnet:?xt=urn:btih:A971E4FB72C68DB6D8900DD39B2479E304F96277
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Company of Heroes 3 (2023) [Ru/Multi] (2.2.0.40455/dlc) Repack FitGirl
 magnet:?xt=urn:btih:49DDECB713076903CB7BD251A936E7917776DD21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Steel Division 2 (2019) [Ru/Multi] (165547/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:4756F7D7FA0B3300081CFB17D4717DB7ABAB69C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Age of Empires IV (2021) [Ru/En] (15.2.7445.0/dlc) Repack Let'sРlay [Anniversar
 magnet:?xt=urn:btih:88DC26AA1C9371E4DF99540C2B0A100078DDDC1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Call to Arms - Gates of Hell: Ostfront - это реалистичная стр�
 ```bash
 magnet:?xt=urn:btih:EE3E748914499AB374DB2B65B28F9852F9FF04AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

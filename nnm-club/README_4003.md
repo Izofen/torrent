@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:8CC3A41664AD8C650473E29AC384757F18B52575
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:8CC3A41664AD8C650473E29AC384757F18B52575
 ```bash
 magnet:?xt=urn:btih:8ABB6D6B26EE4744796AF73398B2123A36804BD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:8ABB6D6B26EE4744796AF73398B2123A36804BD5
 magnet:?xt=urn:btih:F3BA7AC6F30D710339758F280C8621D880E56EB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:F3BA7AC6F30D710339758F280C8621D880E56EB7
 ```bash
 magnet:?xt=urn:btih:4CAF7885E50EA4C72FAAB1C1075F05E4AA4443C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:4CAF7885E50EA4C72FAAB1C1075F05E4AA4443C4
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:4CAF7885E50EA4C72FAAB1C1075F05E4AA4443C4
 ```bash
 magnet:?xt=urn:btih:04E19362E9343753598BD63EB2D7769FD85725D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:04E19362E9343753598BD63EB2D7769FD85725D1
 magnet:?xt=urn:btih:09D8B4F0B6E24AA1D0C95845FC6F5CC75F932EE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:09D8B4F0B6E24AA1D0C95845FC6F5CC75F932EE2
 magnet:?xt=urn:btih:6B84A5284D4A7D396E48D08C9FB614371F8414E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:6B84A5284D4A7D396E48D08C9FB614371F8414E4
 ```bash
 magnet:?xt=urn:btih:DA1A448B531CB852C044C7158F226F0820C665AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:DA1A448B531CB852C044C7158F226F0820C665AB
 magnet:?xt=urn:btih:6067A4BD795173DE50333CB13E0F9173935CF848
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:6067A4BD795173DE50333CB13E0F9173935CF848
 magnet:?xt=urn:btih:ACD05225B4B8B1929D96A3509430F8B351218AFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:ACD05225B4B8B1929D96A3509430F8B351218AFE
 ```bash
 magnet:?xt=urn:btih:7B0CA79301F089E98492869DB669C8078C662FD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:7B0CA79301F089E98492869DB669C8078C662FD9
 magnet:?xt=urn:btih:4198BE4DFD7B8262C9482FE65CDAC5C24125A6FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:4198BE4DFD7B8262C9482FE65CDAC5C24125A6FC
 ```bash
 magnet:?xt=urn:btih:7212FEBF91FE1519C1579AE23E03E1F13B8F1457
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:7212FEBF91FE1519C1579AE23E03E1F13B8F1457
 magnet:?xt=urn:btih:D2574D298F15685F62283C719A7110CC5FF45022
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:D2574D298F15685F62283C719A7110CC5FF45022
 ```bash
 magnet:?xt=urn:btih:F10E0DC2197D1976DDE3EFBC2CA0669EA17094BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ Minecraft: Story Mode - A Telltale Games Series (2015) [Ru/Multi] (2018-02-22/dl
 magnet:?xt=urn:btih:C3CB72E65EB632E7A4E147150773328BD1F7D9E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:C3CB72E65EB632E7A4E147150773328BD1F7D9E3
 ```bash
 magnet:?xt=urn:btih:93600BCC097957D49D08BB7862A4983C8E6CD11F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ magnet:?xt=urn:btih:93600BCC097957D49D08BB7862A4983C8E6CD11F
 magnet:?xt=urn:btih:D4D3F25114ABC12BA3A55E4327982408EB3B4C28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:D4D3F25114ABC12BA3A55E4327982408EB3B4C28
 magnet:?xt=urn:btih:A33FA058316934573A2AAA935CE35D7C3E329A5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:A33FA058316934573A2AAA935CE35D7C3E329A5A
 ```bash
 magnet:?xt=urn:btih:A7393531E88D066C0F20063D2807481B56B6AD14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:A7393531E88D066C0F20063D2807481B56B6AD14
 magnet:?xt=urn:btih:D4D75FC42470008157E5EB7831D981AA7CCEC54A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:D4D75FC42470008157E5EB7831D981AA7CCEC54A
 ```bash
 magnet:?xt=urn:btih:FFAE0452F3CCDD789AA9F3218CADEA06F8F6C1FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:FFAE0452F3CCDD789AA9F3218CADEA06F8F6C1FA
 magnet:?xt=urn:btih:A6B949C0777B9825024579F7107B58FDE7CBAFF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ TweakTimeSaver 1.1.0 [Ru/En] (Авторская раздача)
 magnet:?xt=urn:btih:C61D6A78C7FB0406C335DA0CE17710199953F384
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:C61D6A78C7FB0406C335DA0CE17710199953F384
 ```bash
 magnet:?xt=urn:btih:04A9A3BDEC3E4554413C0D699DBB561C21CAD9B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

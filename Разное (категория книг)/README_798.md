@@ -1,3 +1,29 @@
+###  Публикация: 1602999   (1045859) от 08.01.2023
+
+Святитель Димитрий Ростовский | Руно Орошенное (2003) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Замечательное произведение свт. Димитрия, Ростовского чудотворца, написано по следам многочисленных чудесных исцелений, происшедших при образе Пресвятой Богородицы в черниговском Свято-Ильинском монастыре в XVII веке. Чудесам исцелений предшествовало появление слёз на иконе, что позволило автору сравнить это событие с ветхозаветным чудом, когда Божественная роса, (   Читать дальше...   )Жанр: ПравославиеЯзык: Русский + ЦерковнославянскийФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2625866C64C8358A5163DE7015C8AB4074A169E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602788   (1045930) от 07.01.2023
 
 Ковчег (изд.) | Как полюбить Христа. Жизнь по творениям святых отцов, на примерах и в изложении современных подвижников благочестия (2019) [PDF, DJVU]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:19F7F9E59BF4FC5E3A36777A03B422D51EB3D8BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:19F7F9E59BF4FC5E3A36777A03B422D51EB3D8BA
 magnet:?xt=urn:btih:37DD43FB531EA9960C837EB65974D8A5576D3249
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:37DD43FB531EA9960C837EB65974D8A5576D3249
 ```bash
 magnet:?xt=urn:btih:097F24F0B4ABE70D7D3F40CE87215F085081BC3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:097F24F0B4ABE70D7D3F40CE87215F085081BC3C
 magnet:?xt=urn:btih:9730EF3AC64B06697F01F8F6FC280B44C1E31F48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:9730EF3AC64B06697F01F8F6FC280B44C1E31F48
 ```bash
 magnet:?xt=urn:btih:139A00E38E7271180D9D01C79589EEC5094585FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:139A00E38E7271180D9D01C79589EEC5094585FE
 magnet:?xt=urn:btih:534DE86F5E09CDF1E45FE811688F5D69C0E5F653
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:534DE86F5E09CDF1E45FE811688F5D69C0E5F653
 ```bash
 magnet:?xt=urn:btih:2314A3039750F9DEE1B318A4586123DA5E3C8705
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:2314A3039750F9DEE1B318A4586123DA5E3C8705
 magnet:?xt=urn:btih:B9780DFA0D152B6967D36D9A885312E9E509BEAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:B9780DFA0D152B6967D36D9A885312E9E509BEAE
 ```bash
 magnet:?xt=urn:btih:1E46BFD142840AE04F153C6AF8A5CD54C3737CCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:1E46BFD142840AE04F153C6AF8A5CD54C3737CCE
 magnet:?xt=urn:btih:28200DA1ADF6C9F3A958A97549C1B45B75290FCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:28200DA1ADF6C9F3A958A97549C1B45B75290FCF
 ```bash
 magnet:?xt=urn:btih:2379CB5BA4772DF51117DEA835CD076E3C169850
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:2379CB5BA4772DF51117DEA835CD076E3C169850
 ```bash
 magnet:?xt=urn:btih:34D6210B06A4300BDFAF73226C75E6A8D4867A53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +367,8 @@ magnet:?xt=urn:btih:34D6210B06A4300BDFAF73226C75E6A8D4867A53
 magnet:?xt=urn:btih:B32530F4D82AA9CAE8784897B2D38F8CC3795E74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +393,8 @@ magnet:?xt=urn:btih:B32530F4D82AA9CAE8784897B2D38F8CC3795E74
 ```bash
 magnet:?xt=urn:btih:BB77F9AD949B4BEEF35ED850B9E872D03E1E2599
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +422,8 @@ magnet:?xt=urn:btih:BB77F9AD949B4BEEF35ED850B9E872D03E1E2599
 magnet:?xt=urn:btih:68B1965BE12157AE86332C2EED86B780AE0DC1A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +448,8 @@ magnet:?xt=urn:btih:68B1965BE12157AE86332C2EED86B780AE0DC1A7
 magnet:?xt=urn:btih:FCF46150786881FA20DA0C4849B96D9743E9513C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +473,8 @@ magnet:?xt=urn:btih:FCF46150786881FA20DA0C4849B96D9743E9513C
 ```bash
 magnet:?xt=urn:btih:44DE52161616BD5E482611D2CC61BC1C5EFB07CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +501,8 @@ magnet:?xt=urn:btih:44DE52161616BD5E482611D2CC61BC1C5EFB07CC
 magnet:?xt=urn:btih:AB453976BFDC3A4C2C92526CAFAF6F602124CD31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +526,8 @@ magnet:?xt=urn:btih:AB453976BFDC3A4C2C92526CAFAF6F602124CD31
 ```bash
 magnet:?xt=urn:btih:5A51E004C4F2E65C57624CCF68744F5ABF4D3065
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +554,8 @@ magnet:?xt=urn:btih:5A51E004C4F2E65C57624CCF68744F5ABF4D3065
 magnet:?xt=urn:btih:B0F6024DA98F20F610B8E8841437FD90668ECBFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +579,8 @@ magnet:?xt=urn:btih:B0F6024DA98F20F610B8E8841437FD90668ECBFE
 ```bash
 magnet:?xt=urn:btih:6F2990FE9C15944C86E32A3C23B71C7F71B0EE34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +606,8 @@ magnet:?xt=urn:btih:6F2990FE9C15944C86E32A3C23B71C7F71B0EE34
 magnet:?xt=urn:btih:3CA7919B51C4CBAB6CF78E867CAEA5BDD28A12A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:3CA7919B51C4CBAB6CF78E867CAEA5BDD28A12A7
 ```bash
 magnet:?xt=urn:btih:110BD7E0BF7A87956C930F5CB822008249A8E021
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +659,8 @@ magnet:?xt=urn:btih:110BD7E0BF7A87956C930F5CB822008249A8E021
 magnet:?xt=urn:btih:92FD09BDFD47E5524F2CC11FB4E339F6C37DD9F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,31 +686,7 @@ magnet:?xt=urn:btih:92FD09BDFD47E5524F2CC11FB4E339F6C37DD9F0
 magnet:?xt=urn:btih:A87285E4F31696864ADC9405C236AEE16578B9A4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841477   (1047985) от 11.12.2025
-
-Маша Соколова | Приготовить просто. Полезные завтраки, обеды и ужины на каждый день (2021) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047985.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Хочу питаться правильно, но…» — эти «но» я слышу от большинства своих учеников, подписчиков или знакомых. Одних останавливают мысли, что здоровая еда — это пресно и безвкусно, другие представляют, что не смогут найти нужных ингредиентов или будут вынуждены платить за них вдвое больше.
-А ЕСЛИ Я СКАЖУ, ЧТО ПП — ЭТО НЕ ТОЛЬКО ПРАВИЛЬНО, НО И ПРОСТО?
-Представлю проверенное (   Читать дальше...   )Жанр: КулинарияИздательство: БомбораФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:354145DBCD3A7E954AEBC1C229EE503BBCCEE771
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

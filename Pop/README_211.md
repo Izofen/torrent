@@ -1,3 +1,148 @@
+###  Публикация: 917034   (589918) от 10.07.2015
+
+VA - Pure... Dance Party (2014) Box Set, 4CD [FLAC|Image+.cue]<Pop, Rock, Electronic, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжаю популярную серию от Sony. Лето – пора самых ярких музыкальных впечатлений, вот наша Соня и собрала все лучшие танцевальные треки за несколько лет в одном месте! Серия Pure... – это тематические сборники, где каждый трек по новому раскрывает заданную тему! Убедитесь в этом сами, ведь в одной компиляции сосредоточены самые горячие танцевальные треки.CD1:
+01. One Direction - Live While We're Young (2012)  (3:21)
+02. Wham - Wake Me up Before You Go-Go (1984)  (3:53)
+03. Rita Ora - Radioactive (2012)  (4:13)(   Читать дальше...   )Жанр: Pop, Rock, Electronic, R&BПродолжительность: 04:07:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C96055E8BC4D388FBAF629F5B7F9EA0623F0CA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917056   (589942) от 10.07.2015
+
+The Bird and The Bee - Recreational Love (2015) [MP3|320 кб/с]<Indie Pop, Electronic, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Young and Dumb
+02. Recreational Love
+03. Will You Dance
+04. Runaway(   Читать дальше...   )Жанр: Indie Pop, Electronic, Female VocalПродолжительность: 00:35:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35515670AB4527BD67E374EE8B3E3887D90E57A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917019   (589948) от 10.07.2015
+
+Little Boots - Working Girl (2015) [MP3|320 кб/с]<Synthpop, Indie Pop, Nu-Disco, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Working Girl
+03. No Pressure
+04. Get Things Done(   Читать дальше...   )Жанр: Synthpop, Indie Pop, Nu-Disco, Female VocalПродолжительность: 00:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D720D995DE15D61DC33EBDA84CCC8AF7BBB57200
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551376   (590200) от 15.05.2022
+
+Didier Marouani - 2 Albums (1979, 1981) LP [MP3|320 Kbps] <Electronic, Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дидье Маруани - французский музыкант, композитор и клавишник, лидер группы Space. Один из пионеров электронной музыки. В раздаче представлены мало пропиаренные альбомы.01. Crazy Machines (5:09)
+02. Lover's Song (Part One) (4:28)
+03. Anywhere (5:29)
+04. Three Years Ago (4:18)(   Читать дальше...   )Жанр: Electronic, Disco, Synth-popПродолжительность: 01:04:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C12D50263D04AE0A117663C0AC59868B96F4DA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916686   (590303) от 09.07.2015
+
+Валерий Сюткин & Light Jazz - Москвич (2015) [MP3|320 кб/с]<Pop, Jazz>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Добрый вечер (02:38)
+02. Почему, отчего? (02:19)
+03. Я шагаю по Москве (02:22)
+04. Три года ты мне снилась (03:52)(   Читать дальше...   )Жанр: Pop, JazzПродолжительность: 00:38:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B9810B3787C05431BC91B52D36156EC3A8A3577
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 916816   (590380) от 09.07.2015
 
 Years & Years - Communion (2015) Deluxe Edition [MP3|320 кб/с]<Pop, Electronic>
@@ -21,6 +166,8 @@ Years & Years - Communion (2015) Deluxe Edition [MP3|320 кб/с]<Pop, Electroni
 ```bash
 magnet:?xt=urn:btih:720634245003C4A18823E9A4FDCA6E83A07FB72C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +196,8 @@ VA - Tango & Beatles (2012) [MP3|320 кб/с]<Argentina Tango, Covers>
 magnet:?xt=urn:btih:A8CCEDAB1962EF12C740D4271B3ED768EF214A86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +224,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:D39D90D7ADF36D65470D0F23377E1FB0584F643C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +254,8 @@ Charli XCX - Crash (2022) Japanese Edition [FLAC|Lossless|tracks + .cue] <Electr
 magnet:?xt=urn:btih:D39760FC12E827613FE69CD7C6B99FFBD42806D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +282,8 @@ Milk And Coffee (или Milk & Coffee) - итальянская группа, о
 ```bash
 magnet:?xt=urn:btih:A619CA91CBEA27DC271F56B5BBF1ECD2456C626A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +312,8 @@ magnet:?xt=urn:btih:A619CA91CBEA27DC271F56B5BBF1ECD2456C626A
 magnet:?xt=urn:btih:1FFA6F2C0FBEC85A89A5A52169524739FEDCE8B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +340,8 @@ magnet:?xt=urn:btih:1FFA6F2C0FBEC85A89A5A52169524739FEDCE8B2
 ```bash
 magnet:?xt=urn:btih:86E31FF32C0575595291C3418C517CB62746D957
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +370,8 @@ Tash Lorayne - Light That Lives (2015) [MP3|320 кб/с]<Pop, Jazz, Blues, Soul,
 magnet:?xt=urn:btih:45C5B6245458B729151BCA2B31ABE09C24BFFAEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +398,8 @@ Zucchero - BlueSugar (1998) [FLAC|image+.cue]<Pop, Soft Rock>
 ```bash
 magnet:?xt=urn:btih:00876D890FB48EB05B1D9BCA104D37CFDCF65DB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +428,8 @@ VA - Eurodisco 80's Maxi Hits & Raritites, Vol. 2 (2020) [MP3|320 Kbps] <Euro-Di
 magnet:?xt=urn:btih:F92B21FA3396267AFE6C86764425AD175644B53F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +457,8 @@ Walter Murphy - Phantom Of The Opera (1978) LP [MP3|320 Kbps] <Electronic, Disco
 magnet:?xt=urn:btih:F206C9BE133BB3D735817A8131A9DE8C2FD2BA61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +485,8 @@ G Romano - Enjoy Freedom (2015) [MP3|320 кб/с]<Electropop, Dubstep, R&B, Trap
 ```bash
 magnet:?xt=urn:btih:147B2BE3387F5D2DEFEB025EB26CBD325DE4E1EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +521,8 @@ VA - The Hit Men Vol.2 - Produced By Dieter Bohlen (2009) [MP3|320 кб/с]<Euro
 magnet:?xt=urn:btih:E30C231B4B14FC1B78DA7CC55EE2C17232206783
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +556,8 @@ VA - The Hit Men Vol.1 - Produced By Frank Farian (2009) [MP3|320 кб/с]<Disco
 magnet:?xt=urn:btih:3ECBE74429BB28712A38FB26615D65DBDB45FD11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +590,8 @@ Nancy Martinez - Not Just The Girl Next Door (1987) [MP3|320 кб/с]<Electro, S
 magnet:?xt=urn:btih:315C326AB3FA851F78C2B6F08477AB4622598B5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +618,8 @@ VA - Big Mix 1 (2014) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Euro-House>
 ```bash
 magnet:?xt=urn:btih:60787C8ED7BB1E652F1AB5239185AC1002F288D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +648,8 @@ VA - Back to Euro Hits (2013) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Euro-Hou
 magnet:?xt=urn:btih:A8D285F4410A6151ACF5FF3647FE4D29BB6C82F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +676,8 @@ Fancy - Get Your Kicks (2019) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Disc
 ```bash
 magnet:?xt=urn:btih:31C3B23C40911DCE8A2FCD95BE010F568E722D9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +706,8 @@ VA - 80s Disco Forever (2020) [MP3|~245 Kbps (V0)] <Italo-Disco, Euro-Disco>
 magnet:?xt=urn:btih:8A868146532C213492F1545BB4140188E3B13A68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +734,8 @@ Fancy - Get Your Kicks (2019) Deluxe Edition [MP3|320 Kbps] <Disco, Italo-Disco,
 ```bash
 magnet:?xt=urn:btih:B6AF922463330A10DA89E129916AEC51985C253A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,140 +764,7 @@ Gianni Safred - Futuribile (The Life to Come) (1978) Reissue LP, 2019, Four Flie
 magnet:?xt=urn:btih:A7720AE0CAAC72D5ED27D3CB59BC2134B9298389
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550399   (592163) от 11.05.2022
-
-Amaya - Sensation (2020) [MP3|~245 Kbps (V0)] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sensation (2020 Juan Martinez Remix) (3:54)
-02. Trapped (2020 Juan Martinez Remix) (4:26)
-03. L'Amour Toujours (3:42)
-04. Stereo Love (3:45)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:07:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9061385437AE47403A2C393DECB487BCA53A8F8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915502   (592221) от 05.07.2015
-
-VA - 100 Hits - 80s Love (2007) 5CD Box Set [FLAC|tracks + .cue]<Pop, Dance, Soul, Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luther Vandross - Stop To Love [04:21]
-02. Five Star - Rain Or Shine [03:53]
-03. Boy Meets Girl - Waiting For A Star To Fall [04:25]
-04. Jason Donovan - Every Day (I Love You More) [03:23](   Читать дальше...   )Жанр: Pop, Dance, Soul, VocalПродолжительность: 06:38:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0757523DFD523C645523252A3B225012CE23010A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915348   (592222) от 05.07.2015
-
-Катя Чехова - Лучшие песни (2015) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Солнце моё, вставай
-02. Она одна
-03. По буквам слова
-04. Птица(   Читать дальше...   )Жанр: PopПродолжительность: 03:38:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A50F2E890B820C6422A50F04BE303C3E23E979D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915044   (592246) от 05.07.2015
-
-Дюна - Star-Hit. Новое и лучшее (2011) [MP3|320 кб/с]<Pop, Pop Rock>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Томас
-02. Страна Лимония
-03. Привет с Большого бодуна
-04. Борька-бабник(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:08:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF9952B0F1DDFE8EC0B3291402382A6BC9AC260D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915232   (592252) от 05.07.2015
-
-Bad Boys Blue - Bad Boys Best 2001 (2001) Compilation [FLAC|image + .cue]<Europop, Synth-pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're a Woman '98
- 02. Back to the Future
- 03. L.O.V.E. in My Car '98
- 04. Jungle in My Heart '99(   Читать дальше...   )Жанр: Europop, Synth-pop, DiscoПродолжительность: 01:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90E0F08B0E69ADE0D85A2FD5A9593B42A789AF71
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Rango: The video game (2011) [PS3] [EUR] 3.55 [License] [En]
 magnet:?xt=urn:btih:97B4FD266E023BE515C1562D0785D3AB844FCE6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Assassin's Creed II: Game of the Year Edition (2010) [PS3] [EUR] 3.15 [Cobra ODE
 ```bash
 magnet:?xt=urn:btih:FCB18DE07F552EF04FB6D38A448C4F02C72FBEE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Angry Birds Star Wars (2013) [PS3] [EUR] 4.46 [Cobra ODE / E3 ODE PRO ISO] [Lice
 magnet:?xt=urn:btih:373AF71953CED6F857E4D2098AE5673281B62C48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Big Rumble Boxing: Creed Champions (2021) [PS4] [EUR] [5.05] [HEN] [License / 1.
 ```bash
 magnet:?xt=urn:btih:CF50150D2260D7B773E5AD66B823E87FDF02CE57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:CF50150D2260D7B773E5AD66B823E87FDF02CE57
 magnet:?xt=urn:btih:464601B1CED07E57EDE3C5B53B877B92AE53A418
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Pac-Man and the Ghostly Adventures 2 является продолжением �
 ```bash
 magnet:?xt=urn:btih:8FEDC72EE31EB584142F7F5A3B00824AFDA783D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ My Little Pony A Maretime Bay Adventure (2022) [PS4] [EUR] [5.05] [License / 1.0
 magnet:?xt=urn:btih:66CDB6813806A740679AAAA3A2737EE8E939FD04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ PROJECT ZERO: Mask of the Lunar Eclipse была выпущена в Япони�
 ```bash
 magnet:?xt=urn:btih:5A9610E0056B3865A1E629603E1540564C2A5CB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Metal Gear Solid 3: Snake Eater — одна из самых популярны�
 magnet:?xt=urn:btih:7C3F6C8F58EB95E4DDA1FA8EFD22C616F315FFDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Get Up And Dance (2011) [PS3] [USA] 3.55 [License] [En] [Move]
 ```bash
 magnet:?xt=urn:btih:E49A52413F714B5391677BF2664D29028A90D460
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Injustice 2 Legendary Edition (2018) [PS4] [EUR] [License] [Ru/Multi]
 magnet:?xt=urn:btih:5DD2865C4886B042CF7E9FA3F25381FC7355F8DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Max Payne 3 - продолжение знаменитого боевика с М
 ```bash
 magnet:?xt=urn:btih:EE9E46C14EA21C928302BAB08512CDCA95AEE948
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ PixelJunk Monsters 2 – казуальная экшен-стратегия в �
 magnet:?xt=urn:btih:175747CC2C63AE53A06632D4D4D3668FBC126500
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ The Legend of Zelda: Tears of the Kingdom (2023) [Switch] [USA] 16.0.3 [NSP] [Li
 ```bash
 magnet:?xt=urn:btih:3BA0A43CFE377C8CCA689E388A12FBA56E493973
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ New Tales from the Borderlands (2022) [Switch] [EUR] 14.1.2 [eShop] [En]
 magnet:?xt=urn:btih:300028F0D6715817E2314EFBD8FEEA6102E59FCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ TUNIC (2022) [Switch] [EUR] 14.1.2 [eShop] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B021FB7CD284B355547C5B08861118E356F7880E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Splatoon 3 (2022) [Switch] [EUR] 14.1.2 [eShop] [Ru/Multi]
 magnet:?xt=urn:btih:402D86888C3804495A2D1712A273450FC87BB265
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Ace Combat 7: Skies Unknown направляет всю мощь совреме�
 ```bash
 magnet:?xt=urn:btih:5B3059427B065DF732681C596BD52AB70B4D1DB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ WWE 2K22 (2022) [PS4] [USA] 5.05 [HEN] [License / 1.18 / DLC] [Multi]
 magnet:?xt=urn:btih:1B6A6275AB0557111F667C86A8B2AE7BAB488BD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ LEGO Star Wars: The Skywalker Saga (2022) [PS4] [USA] 5.05 [HEN] [Repack / 1.07 
 ```bash
 magnet:?xt=urn:btih:16BC96C8EEB931453DD449E615462283B958564A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ F1 22 (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.12] [Ru/Multi]
 magnet:?xt=urn:btih:125051D8A1BE1F8DDD76EDE63827AE423733BB64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Little Hope – вторая игра в антологии The Dark Pictures. �
 ```bash
 magnet:?xt=urn:btih:EE0083381F889DB3FB2D6CAACD5FD87139A397DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Ultra Age — динамичный экшен о далеком будущем. 
 magnet:?xt=urn:btih:87C8384C264B6C54552DA273E55EA9637F518009
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Kena: Bridge of Spirits (2021) [PS4] [USA] 5.05 [HEN] [License / 2.02 / DLC] [Ru
 ```bash
 magnet:?xt=urn:btih:DAA87D95000EE4DD40ED34976F027B03525807DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Saints Row (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.06 / DLC] [Ru/Multi]
 magnet:?xt=urn:btih:597914E406D265FA76A530665D9E0EDE1F32B3D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ In Nightmare (2022) [PS4] [USA] 5.05 [HEN] [License / 1.05] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:FC230C6735C14DF7D5F5AD8A68E8B4B8E55C47E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,27 +1,3 @@
-###  Публикация: 994054   (890706) от 07.03.2016
-
-Disgaea PC: Digital Dood Edition (2016) [En/Multi] (1.0.3) Repack АRMENIAC
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disgaea PC - это переиздание первой части Disgaea: Hour of Darkness JRPG-хита Disgaea для PC. Популярная серия японских тактических ролевых игр Disgaea всё-таки посетит персональные компьютеры. Об этом сообщила компания-разработчик Nippon Ichi Software. В феврале 2016 в сервисе цифровой дистрибуции Steam состоится релиз Disgaea: Hour of Darkness — первой части данного (   Читать дальше...   )Тип издания: RepackРазработчик: Nippon Ichi Software, Inc.Жанр: Japanese SRPGЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Японский и другиеЯзык интерфейса: Английский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:061EF41092F98522C034CD362AD53D958D44A19D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994092   (890707) от 07.03.2016
 
 Her Story (2015) [Ru/En] (1.0) Repack MasterDarkness
@@ -42,6 +18,8 @@ Her Story - уникальная нелинейная игра, дающая в�
 ```bash
 magnet:?xt=urn:btih:A4A372A3A1C30CA158781E21A6CDF5FB5EC2CE9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Dance Magic (2016) [En] (1.0) License POSTMORTEM
 magnet:?xt=urn:btih:F43BB2DE167A565F9837DC5569A1F2B7E5A60015
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Bright Memory — это сверхскоростной микс из жанро
 ```bash
 magnet:?xt=urn:btih:A80796CDF2C6DF4033EACF543DCE557A30D174EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Detectives United 3: Timeless Voyage / Лига детективов 3: Вечн
 magnet:?xt=urn:btih:3AE33A898DE5DAE7C42157938DC13F28EAA97002
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ The Forgotten City (2021) [Ru/Multi] (1.2.1) License GOG [Digital Collector's Ed
 ```bash
 magnet:?xt=urn:btih:E00A65185BB8EAC63C61F2A2F72010764F8E8754
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Nowhere Prophet (2019) [Multi] (1.07.013) License GOG
 magnet:?xt=urn:btih:FFD8F722130B50B1F5CD762C28A3C0B12B0DED02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Danse Macabre: The Last Adagio / Танец Смерти: Последнее А�
 ```bash
 magnet:?xt=urn:btih:D0818A00C3F31F5AEACCD78C7E773C64319AFFEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Oddworld: New 'n' Tasty (2015) [Ru/Multi] (1.07/dlc) SteamRip Let'sPlay
 magnet:?xt=urn:btih:7D8E0C4EA19B65543492A2FD1B9C1C137BA08845
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ Olija (2021) [Ru/Multi] (2-1-2021) License GOG
 ```bash
 magnet:?xt=urn:btih:1DC6DBC18E3E3EB4F5F9C0E433A9840E81F9979B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ Timespinner (2018) [Ru/Multi] (1.033) License GOG
 magnet:?xt=urn:btih:4AFC37A80684532CE60568FEE0632C70BB6B3D88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ Magicka 2 (2015) [Ru/Multi] (1.2.1.0) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:97F7D4BD6CB251C5D7099577126EE17133965C9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ Entropy Rising - игра от первого лица, основанная н�
 magnet:?xt=urn:btih:A9A5E1E5C1F363535E0A4B1F82642AA6797DBD5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ True Fear: Forsaken Souls / Реальный ужас: Души прокляты
 ```bash
 magnet:?xt=urn:btih:1491904BDDF5B4E9F6F909CC4257729918D0F091
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ Call of Duty: Infinite Warfare – очередная часть в популя
 magnet:?xt=urn:btih:AE64247653A13CE56E4E83AE03F3C08E712782BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ MagicMaker - волшебный платформер с приключениям
 ```bash
 magnet:?xt=urn:btih:4AAB88FD2F21999B85B4457A6EA4B3C7A2CD2D3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ Mecha Knights: Nightmare (2021) [En] (1.0) License PLAZA
 magnet:?xt=urn:btih:EF038602913F65FB4A399CD87CE9946C5B4F3494
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ Ultimate ADOM - Caverns of Chaos (2021) [Multi] (1.0.0.2) License GOG
 ```bash
 magnet:?xt=urn:btih:73561624E8C56B506B2FB9F59C27F86DC0707727
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ Punished Talents 2: Stolen Awards (2016) [En] (1.0) Unofficial [Collector's Edit
 magnet:?xt=urn:btih:9F72314059DF4498167A6259BFF3E129F418C212
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ Grim Tales 10: The Heir (2016) [En] (1.0) Unofficial [Collector's Edition / Ко
 ```bash
 magnet:?xt=urn:btih:418A7C3DDFD1470824FA6C269F83421A7521809A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ Silence: The Whispered World 2 (2016) [Ru/Multi] (1.2.20280 Hotfix) SteamRip Let
 magnet:?xt=urn:btih:768D52A64F9484640189B79FAA61E440AC94BAC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ Lost Sector - cовременная и бесплатная онлайн игр�
 ```bash
 magnet:?xt=urn:btih:3AC6A86E4F0D23826A43766744C5E46F57BF39B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ Family Mysteries: Poisonous Promises / Семейные тайны: Медлен
 magnet:?xt=urn:btih:28357A045BB995B0EC30623034303339F2CF4192
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ Backstreets of the Mind (2016) [Ru/En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:B8024DBFEABDA46D973E6BA61FC5192468D63B95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +617,8 @@ Jotun - масштабная action-adventure, выполненная в дре�
 magnet:?xt=urn:btih:17CD130BA6B97C7BA9451CE9FC15BDC8F16BFBA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +642,34 @@ Dark Romance 12: Ashville (2020) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:39DC2524BED2E1BB525E99B177B924BF8FF2C128
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993543   (895086) от 05.03.2016
+
+The Silent Age (2015) [Ru/Multi] (28.02.2016) Repack R.G. Механики
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895086.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Silent Age - приключенческая игра типа наведи и нажми, наполненная таинственной атмосферой, со стильной картинкой и зловещим звуковым сопровождением, которое будет держать вас в напряжении, пока вы решаете заумные головоломки. Сейчас 1972 год. Время свободной любви. Последний писк моды: вьетнамки, банданы и одеколон English Leather. Но Холодная война идет вовсю, (   Читать дальше...   )Тип издания: RepackРазработчик: House on FireЖанр: Adventure (Puzzle)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:468C1AA5BCDD81CCC99D170CD7738BA48FDBB117
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

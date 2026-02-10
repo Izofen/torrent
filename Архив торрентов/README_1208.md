@@ -19,6 +19,8 @@ RegCool 1.347 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:445601537B6B850475C3B859EA81501EB0123010
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Path Finder - один из лучших файловых менеджеров, 
 magnet:?xt=urn:btih:0782C4CF72FA91A5EA97A22F959422C1C40B8321
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Mozilla Thunderbird –  легкая и безопасная бесплатна
 ```bash
 magnet:?xt=urn:btih:D8387D2C21283785E98B5E34033E7807462BADAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ DxO PureRAW 3 for Mac v.3.7.0 [Multi]
 magnet:?xt=urn:btih:CF459FA3712856E99D5C2ECA2CCF8DF3A283F9DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Sketch - это инструмент для векторного дизайна 
 ```bash
 magnet:?xt=urn:btih:EDAD51958096595E4F018BBF5007AAE3F80D74CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Light Image Resizer - программа для изменения размер�
 magnet:?xt=urn:btih:F05BF33AD4EF4FDE3B847B18A722FEDAEBFC6DE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Radiant Photo - это программа для редактирования ф
 ```bash
 magnet:?xt=urn:btih:23BC67225E515571F34AFC9A8F52E0DF519E0F88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ TweakNow WinSecret Plus! - позволяет пользователям исс�
 magnet:?xt=urn:btih:378CA380FACEFAED252D9BA7697E16339B6F83D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Speedtest - это приложение предназначено для опр
 magnet:?xt=urn:btih:4DCEB2E9A482F38703CC93D816315FB7C9450CB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:F08276120B82FF0D7BA7DBE79412BA09044A9582
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Eassiy Data Recovery быстро восстанавливает все поте
 magnet:?xt=urn:btih:FAF1468EE83BBAB18DC172AF84A5CC11B22047B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ BBEdit - популярный текстовый и HTML редактор. Эт�
 ```bash
 magnet:?xt=urn:btih:9214AE7D88785991C5FDB8F3D9CE6B844AE7813D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Sublime Text не является свободным или открытым п
 magnet:?xt=urn:btih:5F3FDE68D5A7F2D3AA9CE1448BC4469E4E177A93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ DxO FilmPack — это подключаемый модуль для Adobe Photo
 ```bash
 magnet:?xt=urn:btih:D62575EA6BABFA152A02F334A0D9DB4107177A3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ JixiPix Artista Impresso Pro 1.8.22 [En]
 magnet:?xt=urn:btih:C083562DE60342077D3D0F819185D260CC327999
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ DxO ViewPoint — программное решение, посвященное 
 ```bash
 magnet:?xt=urn:btih:9DB5539A6FF338E9793920AE614B269B1E8E8F7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ Marked 2 — универсальный превью-инструмент для
 magnet:?xt=urn:btih:EBF06519AC738059D0B21B0326F9A683A1498E87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Print to PDF Pro for Mac 4.1.7 [Multi/Ru]
 magnet:?xt=urn:btih:5E3D6DB9C111103AACB5AC341DB1F5EE1F8E62A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Dash - очень удобное приложение, включающее в �
 ```bash
 magnet:?xt=urn:btih:C8F130704FF88AF996632B8EA99D357150AF5490
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ Deckset 2.0.26 [En]
 magnet:?xt=urn:btih:E1BE0D889DD59F8AD30BE39D7168FFE03EFA79AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ QLab - Мощный инструмент для создания и провед
 ```bash
 magnet:?xt=urn:btih:FEB710869A322F1E7A1D16C7444123CD2B66E1CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ DefenderKiller - удаление Windows Defender (Защитник Windows)
 magnet:?xt=urn:btih:F97719C89A5712D43395F23182DDFEC106D254CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ AOMEI Backupper – программа для создания резервно�
 ```bash
 magnet:?xt=urn:btih:B32B0DA8962F8C84DAAC66F2513E1E0903DA272F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:B32B0DA8962F8C84DAAC66F2513E1E0903DA272F
 magnet:?xt=urn:btih:DC3B6C7F58290FBFD627196B74EC42C55ADAF5F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ StartAllBack - привычная для нас программа, котора
 magnet:?xt=urn:btih:6D24860C8014887F0082974C07F9676173B8A016
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ AOMEI Backupper Pro (Professional) – комплексная, простая и
 ```bash
 magnet:?xt=urn:btih:C3AADB2BE87AF10A447B212B63DEDE0ADB982FE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

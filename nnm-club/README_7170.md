@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:204622905B8FDA8AE4C4EF8D339FA712F67A71D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Sims 4 (2014) [Ru/Multi] (1.82.99.1030/dlc) Repack S.Balykov [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:E321A182DDDB82C4A62CCD9EE849E723C65490C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ CD1:
 magnet:?xt=urn:btih:EEA5810568E919632F37CA52B1D16D9F81C1340B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:EEA5810568E919632F37CA52B1D16D9F81C1340B
 ```bash
 magnet:?xt=urn:btih:6F4E999640104390455E9901F3A74B0F601DB056
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:6F4E999640104390455E9901F3A74B0F601DB056
 magnet:?xt=urn:btih:216BCF8E0C71FAF7365521EF9DAC16875E2804CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:216BCF8E0C71FAF7365521EF9DAC16875E2804CF
 ```bash
 magnet:?xt=urn:btih:7EB3944E4BF321E6898A53697AE60C70F03C301A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ NNM Club Sound Cleaner's - Clean Music Tracks [MP3]
 magnet:?xt=urn:btih:CBA9F01E3D4506103FDF192E11E1A818C06D1271
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.1356845 Patch 6 HF 4 EA) License 
 ```bash
 magnet:?xt=urn:btih:C901A05C7754455B99317B2F05BA19FD89ED35C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ Opycham - Kudesa (2018) [MP3|320 Kbps] <New Age, Folk>
 magnet:?xt=urn:btih:2796C2E6EB6C28E8A9F39A260DF7F32C3C010B56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:2796C2E6EB6C28E8A9F39A260DF7F32C3C010B56
 ```bash
 magnet:?xt=urn:btih:347C269B829705424245EFE6B78263EF74052E1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Cabela's Big Game Hunter продолжает серию симуляторов 
 magnet:?xt=urn:btih:F5E4696415BFA8A52D990AD93DA355BB918A8175
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:F5E4696415BFA8A52D990AD93DA355BB918A8175
 ```bash
 magnet:?xt=urn:btih:294783E1EEA01C3E378CA800F9FC04498B41A34C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ The Sims 4 (2014) [Ru/Multi] (1.82.99.1030/dlc) Repack S.Balykov [DLC's Selected
 magnet:?xt=urn:btih:507C34E486275C22DED9848F4E90C51B9FF8EBAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:507C34E486275C22DED9848F4E90C51B9FF8EBAD
 ```bash
 magnet:?xt=urn:btih:45B933A820163004FF3A4AD128773DDF4CA42BC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:45B933A820163004FF3A4AD128773DDF4CA42BC6
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:45B933A820163004FF3A4AD128773DDF4CA42BC6
 ```bash
 magnet:?xt=urn:btih:407E420E397F6178687B572097E37920E21FB32F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:407E420E397F6178687B572097E37920E21FB32F
 magnet:?xt=urn:btih:EE4A635DA5809112EE4BF169CEEA220DD2E41741
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:EE4A635DA5809112EE4BF169CEEA220DD2E41741
 magnet:?xt=urn:btih:85424DAB9D287102E1E94192BC6F4568A9281E64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ Mia and me - Free the Unicorns 1.10 + Mod [En]
 ```bash
 magnet:?xt=urn:btih:44140C699783EFA0423141BEDF6B55AE554C0521
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:44140C699783EFA0423141BEDF6B55AE554C0521
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:44140C699783EFA0423141BEDF6B55AE554C0521
 magnet:?xt=urn:btih:62354EFA9C51B6E3242BA4A460CFF695E9E3CD97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:62354EFA9C51B6E3242BA4A460CFF695E9E3CD97
 ```bash
 magnet:?xt=urn:btih:D9EC8DC8EBBC362AF8DE396102328A6B59BA784D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ magnet:?xt=urn:btih:D9EC8DC8EBBC362AF8DE396102328A6B59BA784D
 magnet:?xt=urn:btih:F228BE4D8AF26835DA6FFD2C6748A2A2B3D5143C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ magnet:?xt=urn:btih:F228BE4D8AF26835DA6FFD2C6748A2A2B3D5143C
 ```bash
 magnet:?xt=urn:btih:C7631C6275025A4CA411E5E41E46943780244759
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 magnet:?xt=urn:btih:98616EA6EC2C0CA020408A8541E5B8077D2D19BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:98616EA6EC2C0CA020408A8541E5B8077D2D19BF
 ```bash
 magnet:?xt=urn:btih:D4170D2CA4332DEC379AEBCFA5569CEAE9F8B4A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

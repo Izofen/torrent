@@ -1,3 +1,32 @@
+###  Публикация: 1612747   (1039808) от 17.02.2023
+
+Кирилл Клеванский | Сердце Дракона (Книга 17) (2022) [MP3, Дмитрий Кузнецов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039808.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сердце Дракона» – фантастический роман Кирилла Клеванского, семнадцатая книга цикла, жанр героическое фэнтези, приключения, боевое фэнтези.
+
+Сделка с Князем Демонов все глубже уводит Хаджара в Чужие Земли, где каждый шаг может быть смертельным.
+Вместо с отрядом Шенси он ищет новые подсказки, узнает очередные тайны и секреты, а по следу рыщут фанатики Ордена Ворона.(   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтезиПродолжительность: 15:05:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03C515E18D901169BE3F20C7773C48F9AEB1ED15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612811   (1039838) от 17.02.2023
 
 Хайдарали Усманов | Изменяющий (Книга 7). Друзья или враги (2023) [MP3, Елена Антон]
@@ -18,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:342D9DCB3B3D3883CC94A1EC864B4B3C601AC7C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +73,8 @@ magnet:?xt=urn:btih:342D9DCB3B3D3883CC94A1EC864B4B3C601AC7C5
 ```bash
 magnet:?xt=urn:btih:CFA29330BE465E11182ABC2D7A57C4C6C83098AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +102,8 @@ magnet:?xt=urn:btih:CFA29330BE465E11182ABC2D7A57C4C6C83098AD
 magnet:?xt=urn:btih:952F578A45E6C7EF6F68731428A66D383EEA3CC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +127,8 @@ magnet:?xt=urn:btih:952F578A45E6C7EF6F68731428A66D383EEA3CC2
 ```bash
 magnet:?xt=urn:btih:2DA663E8712A1561D5BD52F55B8ABF509D01F1C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +156,8 @@ magnet:?xt=urn:btih:2DA663E8712A1561D5BD52F55B8ABF509D01F1C4
 magnet:?xt=urn:btih:D961F15CB8FFD892FFD298C51AD3D6F568568B8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +181,8 @@ magnet:?xt=urn:btih:D961F15CB8FFD892FFD298C51AD3D6F568568B8E
 ```bash
 magnet:?xt=urn:btih:7A2EA9AD20FDA7349BBFBD8F150E8E9171262363
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +208,8 @@ magnet:?xt=urn:btih:7A2EA9AD20FDA7349BBFBD8F150E8E9171262363
 magnet:?xt=urn:btih:71D9877162BE66523323D5B372D5B3F7D2D4F2D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +233,8 @@ magnet:?xt=urn:btih:71D9877162BE66523323D5B372D5B3F7D2D4F2D1
 ```bash
 magnet:?xt=urn:btih:DA6A65090664D53C8A0C8C45BC0EAAA0DC055D1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +263,8 @@ magnet:?xt=urn:btih:DA6A65090664D53C8A0C8C45BC0EAAA0DC055D1A
 magnet:?xt=urn:btih:99526304312398DD7E8D4E6235F099F9A937F8DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +288,8 @@ magnet:?xt=urn:btih:99526304312398DD7E8D4E6235F099F9A937F8DB
 ```bash
 magnet:?xt=urn:btih:0FBC445D30812C1DC4E50620C081499D990F7799
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +315,8 @@ magnet:?xt=urn:btih:0FBC445D30812C1DC4E50620C081499D990F7799
 magnet:?xt=urn:btih:9B95EDF879F593CA87AB6940A6DF1A4FE0C116E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +340,8 @@ magnet:?xt=urn:btih:9B95EDF879F593CA87AB6940A6DF1A4FE0C116E5
 ```bash
 magnet:?xt=urn:btih:A407DF4EF2EFB645383638D489D9E3444BE78226
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +367,8 @@ magnet:?xt=urn:btih:A407DF4EF2EFB645383638D489D9E3444BE78226
 magnet:?xt=urn:btih:99E2ABB2C2890E68A2621EEECCE88EE0BA0C5422
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +393,8 @@ magnet:?xt=urn:btih:99E2ABB2C2890E68A2621EEECCE88EE0BA0C5422
 magnet:?xt=urn:btih:CE8540D5D93D0FF65290510968C5EBE485326670
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +418,8 @@ magnet:?xt=urn:btih:CE8540D5D93D0FF65290510968C5EBE485326670
 ```bash
 magnet:?xt=urn:btih:E23AD3A6DCD71204F6EDC7E86C99C6EA786B2533
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +446,8 @@ magnet:?xt=urn:btih:E23AD3A6DCD71204F6EDC7E86C99C6EA786B2533
 magnet:?xt=urn:btih:E07648FC535C824F2BF40BAC04990A8677338EE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +472,8 @@ magnet:?xt=urn:btih:E07648FC535C824F2BF40BAC04990A8677338EE2
 ```bash
 magnet:?xt=urn:btih:7EDDC11D9BAEC91D5CF3CA3BF7D7087EC81CE0CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +501,8 @@ magnet:?xt=urn:btih:7EDDC11D9BAEC91D5CF3CA3BF7D7087EC81CE0CB
 magnet:?xt=urn:btih:068FB22710D3F1127E71314C0C384500946798EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +526,8 @@ magnet:?xt=urn:btih:068FB22710D3F1127E71314C0C384500946798EA
 ```bash
 magnet:?xt=urn:btih:E6C3DEE2B7E44E28BBBBAD189F790E9D21FE3729
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +553,8 @@ magnet:?xt=urn:btih:E6C3DEE2B7E44E28BBBBAD189F790E9D21FE3729
 magnet:?xt=urn:btih:E405B360E6E912506C4428D6BF92CB8E9B998C64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +578,8 @@ magnet:?xt=urn:btih:E405B360E6E912506C4428D6BF92CB8E9B998C64
 ```bash
 magnet:?xt=urn:btih:451E342FCD3180DFB018412E6C9F06CE765109F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +607,8 @@ Findroid | Гнев Империи (Книга 1) (2022) [MP3, Никита Ст
 magnet:?xt=urn:btih:6B5813BC4377CF95D1F875CE5E3EBCF34D35C1CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +633,8 @@ magnet:?xt=urn:btih:6B5813BC4377CF95D1F875CE5E3EBCF34D35C1CC
 magnet:?xt=urn:btih:BC510D01BB1DB64EF0C67EA955EA75F11C3042D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +658,8 @@ magnet:?xt=urn:btih:BC510D01BB1DB64EF0C67EA955EA75F11C3042D7
 ```bash
 magnet:?xt=urn:btih:90C8A13ABFD4F994937F193DDADBC907EBBAEA57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,29 +687,7 @@ magnet:?xt=urn:btih:90C8A13ABFD4F994937F193DDADBC907EBBAEA57
 magnet:?xt=urn:btih:5DD49B149A9BF19109244F4204A5A8C4481A5261
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437958   (1041494) от 07.01.2021
-
-Галина Чередий | Перерождение (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто такие оборотни? Этот вопрос не волновал Аврору до тех пор, пока она не вышла как-то вынести мусор на ночь глядя и не подверглась нападению кошмарной твари, выбравшей ее в качестве жертвы для совершенно особенного случая. Но монстр напрасно обманулся маленьким ростом и хрупким сложением девушки. Исполнять роль ягненка для заклания она категорически не согласна. (   Читать дальше...   )Жанр: Городское фентези, любовное фентезиПродолжительность: 17:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93B8720C1212755A0CCD04105804952A80024F08
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (1.0.0.0/dlc) Repack FitGirl [Deluxe
 magnet:?xt=urn:btih:E6C1FCFD3C71AE2DD52160A0D3EEC777DB945A7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.9.6-404-504czj3/dlc) Repack Wante
 ```bash
 magnet:?xt=urn:btih:064D824EB6C9F9DCC2E30F5462EB36D47E2F54BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Frontier Hunter: Erza's Wheel of Fortune совмещает элементы п�
 magnet:?xt=urn:btih:E196EDD231278FCE341635552EE4CFE183A1FED3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Knock on the Coffin Lid - ролевая игра с элементами стр
 ```bash
 magnet:?xt=urn:btih:123352ABE9BFF159C955048FC7D76D0F66D46251
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ The Axis Unseen - это игра в жанре хэви-метал хоррор
 magnet:?xt=urn:btih:A4F8E6C571FC703BA352B114ED95672A74FB8670
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The Axis Unseen - это игра в жанре хэви-метал хоррор
 ```bash
 magnet:?xt=urn:btih:83155819E69A08ED897019285CA76A3E7C36F226
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ The Lamplighters League (2023) [Ru/Multi] (1.3.1-67360/dlc) License GOG [Deluxe 
 magnet:?xt=urn:btih:32CBCB1264A4393C9BCB320A95C37D9B262AAED8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Bloodstained: Ritual of the Night – это смесь готического �
 ```bash
 magnet:?xt=urn:btih:8ED7326198D49BB3BE40EBEBB9117F28E45B21C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Metaphor: ReFantazio (2024) [Ru/Multi] (1.02/dlc) Repack FitGirl
 magnet:?xt=urn:btih:37C6C1932884AEE94F580508061C44663E01D7A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Metaphor: ReFantazio (2024) [Ru/Multi] (1.02/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:1D798CA389D0CB303F222ACD7FF9825315C423E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.005.26813) Repack Wanterlude
 magnet:?xt=urn:btih:504B5E65F080C2EEAE237EECF1462C80936334B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Rogue Waters - это тактическая пошаговая игра в ду
 ```bash
 magnet:?xt=urn:btih:BDA355E7D19E57014B4DA05DAFAE022AF03A7BB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ DYSMANTLE (2021) [Ru/Multi] (1.4.0.41/dlc) Repack Pioneer
 magnet:?xt=urn:btih:7DD0BFB6B6E520E435A3BBDDBFA4570516ADF5EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Metaphor: ReFantazio (2024) [Ru/Multi] (1.02) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:E6A6D8E89C5E3D1D29F257F7E154CA206511D9D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Drova - Forsaken Kin - это пиксельное экшен-RPG, вдохно�
 magnet:?xt=urn:btih:AB16FC2E37F0CA1500C758F3F7AAF8D65CF95F1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Starfield открывает новую главу в игровой вселе�
 ```bash
 magnet:?xt=urn:btih:A512ADF4E8AD69C9FA489373924C114A1E542445
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Pirates Journey (2024) [Ru/Multi] (0.1.0.6) Repack FitGirl
 magnet:?xt=urn:btih:7F7590FA88EEDB58472CF4E2F3DDEDF87DA92843
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Shogun Showdown предлагает испытать свои навыки в �
 ```bash
 magnet:?xt=urn:btih:4E6D929925CCB566B2E54C73D538277F5987C67C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Bloomtown: A Different Story - это сюжетная JRPG про Америк�
 magnet:?xt=urn:btih:307C5AE26CE634BF0DBFEB748093486305C072D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Bloomtown: A Different Story - это сюжетная JRPG про Америк�
 ```bash
 magnet:?xt=urn:btih:F78EEBCCA752871F8F8716D754CAE95612D6FCB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ The Lamplighters League (2023) [Ru/Multi] (1.3.1-67360/dlc) Repack FitGirl [Delu
 magnet:?xt=urn:btih:D1FFD8CF28AB0CEF5A21E359DA623F18B3408230
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Thyria (2024) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:390F98C64EC42CF2B32A2CECA266AA1007F11D59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Warhammer 40,000: Rogue Trader – это изометрическая роле�
 magnet:?xt=urn:btih:9550F15A2DEB7726C42901DFC001CC8E8A5F3C9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Thyria (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:77C018D2EA6F426E70325F6BDCC87001C6C7731C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Elmarion: the Lost Temple (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:D192F3549B04131E3ADFFB2BD296FEE711AD6C17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Dwarven Realms - это ориентированная на действия 3D 
 ```bash
 magnet:?xt=urn:btih:A3CB85BE288CEF69B273DDF18801C5FEEE84529E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

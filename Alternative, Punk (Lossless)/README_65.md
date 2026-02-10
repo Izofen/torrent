@@ -22,6 +22,8 @@ Icon For Hire - Scripted (2011) [FLAC|Lossless|image + .cue]<Alternative Rock>
 magnet:?xt=urn:btih:DFE202FFC76C134474857D580047762B783EF922
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ R.E.M. - Reckoning (The I.R.S. Years) (1984) Reissue, 1992 [FLAC|Lossless|tracks
 magnet:?xt=urn:btih:70581604C8D2DA9DB882279B3C357D67A373C60F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ The No Ones - The Great Lost No Ones Album (2020) [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:D94B768293619ABBCC74B89C4FA0014957A1B294
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +115,8 @@ Daughtry - Baptized (2013) Deluxe Edition [FLAC|Lossless]<Alternative Rock, Pop-
 magnet:?xt=urn:btih:93D20FF0F6BB1CF3F4AA1032A2B0F56A70B20B57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +143,8 @@ Nickelback - The Best Of Nickelback (Volume 1) (2013) Compilation [FLAC|tracks +
 ```bash
 magnet:?xt=urn:btih:A460733F140F2AE117408444B66E9A8CACF71A5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +173,8 @@ Adept - 4 Альбома (2009-2016) [FLAC|Lossless|tracks+.cue]<Post-Hardcore>
 magnet:?xt=urn:btih:A0D06AFF7EAD686A8506AA1CF47D254E49DA2393
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +202,8 @@ Pixies - Indie Cindy (2014) Deluxe Limited Edition [FLAC|Lossless|image + .cue] 
 magnet:?xt=urn:btih:AADD930D9960CE91A7F951FAFFD7B0387058A77A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +230,8 @@ R.E.M. - Murmur (1983) [FLAC|Lossless|tracks + .cue] <Indie, Alternative>
 ```bash
 magnet:?xt=urn:btih:7CFA3C83F3D8B80EE82EA35D4E6C400566C727BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +261,8 @@ Callejon - Wir Sind Angst (Limited Deluxe Edition) (2015) [FLAC|Lossless]<Melodi
 magnet:?xt=urn:btih:E0A1C307F714097641805DAC101F29CA35BE554C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +289,8 @@ Superlitio - Tripping Tropicana (2005) [FLAC|Lossless|tracks + .cue] <Electronic
 ```bash
 magnet:?xt=urn:btih:8203F94C561D2C63CE577A8FD240E9331394239B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -305,6 +325,8 @@ Badass (October 2003 Ruff Demo)(   Читать дальше...   )Жанр: Alt
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +354,8 @@ Badass (October 2003 Ruff Demo)(   Читать дальше...   )Жанр: Alt
 magnet:?xt=urn:btih:F319D5524BEDBAD545150AA571140BA97240F693
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +381,8 @@ Norma Jean - All Hail (2019) [FLAC|Lossless|tracks + .cue] <Chaotic Hardcore, Me
 magnet:?xt=urn:btih:ED5BE27320CE544DD2B77310D9E1FA1CC8EE5290
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +406,8 @@ Nickelback - No Fixed Address + Feed the Machine (2014, 2017) Album + Single [FL
 ```bash
 magnet:?xt=urn:btih:4BA9CAA3021E36FE3DC10C8F5089FA3780C36C98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +442,8 @@ Oomph! - GlaubeLiebeTod (2006) [FLAC|Lossless]<Industrial>
 magnet:?xt=urn:btih:0F39B3D36982C18BA053BB48CFF4A333710B0626
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +471,8 @@ Tear Out The Heart - Dead, Everywhere (2015) [FLAC|Lossless]<Metalcore | Post-Ha
 ```bash
 magnet:?xt=urn:btih:D31EFB75889B1AFB6C971E32FC742DD6DC214513
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +502,8 @@ The Dreaming - Rise Again (2015) [FLAC|Lossless]<Alt. Rock | Industrial Rock>
 magnet:?xt=urn:btih:DE5669E4F1275459D0B066D2BF1316A1A5351B95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +530,8 @@ The Birthday Massacre - Diamonds (2020) [FLAC|Lossless|WEB-DL|tracks] <Industria
 ```bash
 magnet:?xt=urn:btih:7747207673E7D9499728583671F0C927F3EB2BFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +560,8 @@ magnet:?xt=urn:btih:7747207673E7D9499728583671F0C927F3EB2BFD
 magnet:?xt=urn:btih:0491A195732E9AD57C6D933C66C77BC87EB051E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +588,8 @@ Tonight Alive - Limitless (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Alt.Ro
 ```bash
 magnet:?xt=urn:btih:39CD8C826F7AE3A822AFE5B120792DBBF7080674
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +618,8 @@ Highly Suspect - The Boy Who Died Wolf (2016) [FLAC|Lossless|WEB-DL|tracks] <Alt
 magnet:?xt=urn:btih:004E1B0C18C1E00E0E7F053A04B25E28B3047D93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +646,8 @@ HorrorPops - Hell Yeah! (2004) [APE|Lossless|image + .cue] <Rockabilly, Punk Roc
 ```bash
 magnet:?xt=urn:btih:DA02CFF0F41A576B3F84158D531517C4306B93B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +676,8 @@ Pearl Jam - Gigaton (2020) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Hard
 magnet:?xt=urn:btih:73A43AD913AC5BCA1AB21BB335858D0EB300E7A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +704,8 @@ Linde - Cold Sore (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative 
 ```bash
 magnet:?xt=urn:btih:FB9820398463E88A7DE52A0D69E4EA300254B387
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -691,6 +739,8 @@ Warpaint - The Fool (2010) [FLAC|Lossless]<Shoegaze, Art Rock, Indie Rock>
 magnet:?xt=urn:btih:ABCDE17407F48D7D890834D5637BF4D574EB7A59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -717,6 +767,8 @@ The The - Dusk (1993) Remastered, 2002, Epic [FLAC|Lossless|tracks + .cue] <Indi
 ```bash
 magnet:?xt=urn:btih:35B9EB907A9B1E26839E03866726EDB5E697523C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

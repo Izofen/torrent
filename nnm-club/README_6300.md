@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:9D691014F2FE95A54153719297DCE47550231520
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Dr. Harsh Bhasin | Data Structures with Python (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:1941FDF97A8527785B0E33BEAF93A42448E89382
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:1941FDF97A8527785B0E33BEAF93A42448E89382
 magnet:?xt=urn:btih:79C959F1F242279A510C81936F54318B7420AE38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Total Commander 11.01 (02.09.2023) Portable by MiG [Ru/En]
 ```bash
 magnet:?xt=urn:btih:5C493C1C4051D01D28DE29BDB791F97DC619C710
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:5C493C1C4051D01D28DE29BDB791F97DC619C710
 magnet:?xt=urn:btih:45B1EF6F270552060999785BB49F70FB98798D35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:45B1EF6F270552060999785BB49F70FB98798D35
 ```bash
 magnet:?xt=urn:btih:501523777E7A55599E40834868D497868FD41C68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:501523777E7A55599E40834868D497868FD41C68
 magnet:?xt=urn:btih:727B923ECD69287D55E8F764FD2B6B3A75FB6F75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:727B923ECD69287D55E8F764FD2B6B3A75FB6F75
 ```bash
 magnet:?xt=urn:btih:99A73EF3459B3D5775C8DDD39FBA69C56C13AD7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ StartAllBack - привычная для нас программа, котора
 magnet:?xt=urn:btih:1E4F48972828D5A4D7C101ED4943DAB397A9B95A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:1E4F48972828D5A4D7C101ED4943DAB397A9B95A
 magnet:?xt=urn:btih:DBC0D9C7238D6C31E26F9D99E30E6C3CA08CAB54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:DBC0D9C7238D6C31E26F9D99E30E6C3CA08CAB54
 ```bash
 magnet:?xt=urn:btih:112C8043091DDC3306DA7CD5349CEF2730EA9F59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Renee - 4 Albums (1978-1983) LP [MP3|320 Kbps] <Electronic, Rock & Roll, Synth-p
 magnet:?xt=urn:btih:F59069D7CDB2A4AE783B1F1E9A5C1280180B1250
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:F59069D7CDB2A4AE783B1F1E9A5C1280180B1250
 ```bash
 magnet:?xt=urn:btih:34AB59832F8CF8CEC2936AD6368FF6AA6A05DD01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:34AB59832F8CF8CEC2936AD6368FF6AA6A05DD01
 magnet:?xt=urn:btih:8DA81F2410CCBA0E2F5E9A0FFF4FECB88AA9786E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ CCleaner - один из самых известных и популярных �
 ```bash
 magnet:?xt=urn:btih:D2E5903598273338E6C6ED8FC5FC56ED2B36D989
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ Streetlight Circus - Super Fine Sugar (2022) [FLAC|Lossless|image + .cue] <Hard 
 magnet:?xt=urn:btih:F83E7E02D86EF74C52E0A8094AF501D3BD2ABE64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ Foo Fighters - The Essential Foo Fighters (2022) Compilation [FLAC|Lossless|WEB-
 magnet:?xt=urn:btih:B87E73F333EC68243683F7FCE5EA1E79CE2E5CE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ Criminal Archives 2: Alphabetic Murders / Криминальные архивы 
 ```bash
 magnet:?xt=urn:btih:65903341A5FE73DE38E412F21ADFC44619FD369A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ Young Gun Silver Fox - West End Coast (2015) Japanese Edition [FLAC|Lossless|ima
 magnet:?xt=urn:btih:6726912ED3731D3A14B35E40EB5C50160A8460ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ Death Worm - управляйте подземным чудовищем на And
 ```bash
 magnet:?xt=urn:btih:2841061E3848DB710128BB7A85AD51B3D7DE9520
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +556,8 @@ magnet:?xt=urn:btih:2841061E3848DB710128BB7A85AD51B3D7DE9520
 magnet:?xt=urn:btih:3BD2F1679A1FEBC86D994BD246FB730F5E601103
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +581,8 @@ magnet:?xt=urn:btih:3BD2F1679A1FEBC86D994BD246FB730F5E601103
 ```bash
 magnet:?xt=urn:btih:89409BB04D5182DC21E6D71DD425EDBA15FA19F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +611,8 @@ The Damned - A Night of a Thousand Vampires (Live in London) (2022) [MP3|320 Kbp
 magnet:?xt=urn:btih:1980193BA435FBDEBCE4DC5D8E883165812F84D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ magnet:?xt=urn:btih:1980193BA435FBDEBCE4DC5D8E883165812F84D0
 magnet:?xt=urn:btih:D5AFEF9273E4E54B971326BE86D1408946AF9A24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ iTranslate – один из лучших переводчиков и слова
 ```bash
 magnet:?xt=urn:btih:5361784C48E954E59F5B4495E768E8B446446B5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +691,8 @@ magnet:?xt=urn:btih:5361784C48E954E59F5B4495E768E8B446446B5F
 ```bash
 magnet:?xt=urn:btih:649E384B15840562F3682178AA8896273B1E4029
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

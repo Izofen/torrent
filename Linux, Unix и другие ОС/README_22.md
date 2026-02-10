@@ -21,6 +21,8 @@ Fedora 19 Schrödinger's Cat Live [i686]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Parrot OS 4.10 (Security + Home) [Хакинг, аудит, безопаснос
 magnet:?xt=urn:btih:EFFC8A44E67E6B6EF939CC1E074F2095A60EF5E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ JonDo 0.9.79 [анонимный доступ в сети] [x86] DVD
 ```bash
 magnet:?xt=urn:btih:D6876920247E2206B9D82A6356D5BA2BC37DB95D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Oracle Database 12c - последняя на текущий момент вер
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ MKVToolnix - функциональный набор инструментов д
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ Ubuntu — это разрабатываемая Canonical, основанная
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Debian GNU/Linux 8.8 Live Jessie (free + nonfree) [amd64] 14xDVD
 ```bash
 magnet:?xt=urn:btih:DC4F979C83AF536A9B7480B2849CEF4FB45A8B18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Lubuntu — это свободная операционная система н
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Kubuntu 13.10 Saucy Alpha I [i386, amd64]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Debian GNU/Linux 8.8 Live Jessie (free + nonfree) [i386] 14xDVD
 magnet:?xt=urn:btih:BDF4009181096B15ED16BCCEB59BEE163D14AFC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Debian GNU/Linux 8.8 Jessie [i386] 3xDVD
 ```bash
 magnet:?xt=urn:btih:505F35AB676097D9912CB1A716000687B616C8CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ ZVVАнекдоты 0.2 [x86-x64] (deb)(обновляемая авторска�
 magnet:?xt=urn:btih:EBE5A57E54BC9329FDE485185876317B5FD55527
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Debian GNU/Linux 8.5.0 Jessie Live (nonfree) [amd64] 7xDVD
 ```bash
 magnet:?xt=urn:btih:583339EA4FBED88CC83B9F2462FDCF00486496C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ Debian GNU/Linux 8.5.0 Jessie Live (nonfree) [i386] 7xDVD
 magnet:?xt=urn:btih:BD9BAE42BA229E7B493233E4BE7D598C512C9DB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ Debian GNU/Linux 8.5.0 Jessie Live [amd64] 7xDVD
 magnet:?xt=urn:btih:73ED0F4F0F7F00B3F1DDCA6F1F742E9D13CD7DE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Debian GNU/Linux 8.5.0 Jessie Live [i386] 7xDVD
 ```bash
 magnet:?xt=urn:btih:C5BFA2D6F7A1AAA554E6470C96508C3AFFBCCF4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ Mageia 5 RC [i586, x86-64] 7xDVD, 2xCD
 magnet:?xt=urn:btih:4E3C969E9204556E61DE718FFADE6B027F3DEEBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ JonDo 0.9.78 [анонимный доступ в сети] [x86] DVD
 ```bash
 magnet:?xt=urn:btih:4772C83E8745ED24AE79F1A5D14D90F89A034E3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ ArchBang Linux — легковесный дистрибутив Linux с пла
 ```bash
 magnet:?xt=urn:btih:75295B566E4654EB2343A9E72582846F425F8968
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ BackBox Linux 4.2 (Анализ безопасности, хакинг) [i386, a
 magnet:?xt=urn:btih:E4391D34066D3B6FA4414DDEA59135F6578B7DFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ Debian GNU/Linux 8.5.0 Jessie [i386] 3xDVD, 2x updateDVD, 1x netinstCD
 magnet:?xt=urn:btih:25245CD7CEBBBAFEC143B54C8E1E177CDEC30D25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ Debian Edu, также известный как Skolelinux, является д
 ```bash
 magnet:?xt=urn:btih:8809286008D945F56DA3EA30D5C6B535E7226066
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +607,8 @@ Debian GNU/Linux 10.5.0 + nonfree Buster [i386] 4xDVD
 magnet:?xt=urn:btih:15A522AA71F180A3DF34E801DBD7C99F7A9F2B4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ Debian GNU/Linux 10.5.0 + nonfree Buster [amd64] 4xDVD
 magnet:?xt=urn:btih:4A3ED413D878CE3A3D6D50C587B84C1FDB1E2C57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ Lubuntu — это современная операционная систем�
 ```bash
 magnet:?xt=urn:btih:EEB3AC51A8BFA6610794D1AD9BC89558A5BE9278
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +692,8 @@ Xubuntu — дистрибутив Linux, основанный на проект
 ```bash
 magnet:?xt=urn:btih:D5DA10DB81B68351DE6A075A6CCF5FC335C878D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

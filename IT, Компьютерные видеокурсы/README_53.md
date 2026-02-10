@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:96268EADC07D7B396493DAE5F79C78FC9E8B3894
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Lynda.com | Bootstrap 3 (2013-2014) [PCRec] [EN]
 magnet:?xt=urn:btih:70E0F03ECA702970C8629B0D05F67D74E15FFA2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:70E0F03ECA702970C8629B0D05F67D74E15FFA2B
 ```bash
 magnet:?xt=urn:btih:F9B3CEAF9B1ABD01DB88526B5277D6181E775462
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ Hydra - это техническая конференция, на котору�
 magnet:?xt=urn:btih:E8E306FC4A9B0C3670AECB12C3BD66CAA92362F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:E8E306FC4A9B0C3670AECB12C3BD66CAA92362F0
 magnet:?xt=urn:btih:3BD57825AEB1DB4F2B8C14B4FEC1E83DD72FC598
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Oleg Lav | ZoneAlarm Free Firewall — Фаервол для вашего ком
 ```bash
 magnet:?xt=urn:btih:EA5FD61E150889FEB0E60ACC3EE448348462D2BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ Heisenbug — большая техническая конференция, ко
 ```bash
 magnet:?xt=urn:btih:213A063E800FE14FBFAD727B6123FA90935D60C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ tocode.ru | Курс по vue.js - с нуля до про (2019) PCRec
 magnet:?xt=urn:btih:23E104EBDD9EAE189DE28B8566254A85C2AEAD1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ software-testing.ru | Техники и инструменты поиска и �
 magnet:?xt=urn:btih:D71958CF788560FACA5EAB4A0B2A3FE7A56589C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ MikroTik — латвийский производитель сетевого о
 magnet:?xt=urn:btih:A6F8E4AFD21799A548AEFEE6159AED22DAEA4B35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ software-testing.ru | Организация функционального те
 ```bash
 magnet:?xt=urn:btih:9CFCB73C40DAD0F1096933C6C3339DAD0FBA7DE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ magnet:?xt=urn:btih:9CFCB73C40DAD0F1096933C6C3339DAD0FBA7DE8
 magnet:?xt=urn:btih:9416EE359DEDBC8C16EE08B9F17A1A6E917FEF36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ magnet:?xt=urn:btih:9416EE359DEDBC8C16EE08B9F17A1A6E917FEF36
 ```bash
 magnet:?xt=urn:btih:AE1D168AF89B5D44304C54180CB4B11D803F6305
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ Udemy, Yuri Popov | Unreal Engine — полное руководство по �
 magnet:?xt=urn:btih:36C84D671E6ADF5879C50AEA220A48118C05F6D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ Udemy, Drozdov Sergey | Робот для торговли криптовалю�
 ```bash
 magnet:?xt=urn:btih:0DE6AEECE09FE0A14AD1E6A2CB54BA37560956F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ Embacy | Курс вёрстки на Webflow (2022) WEB-DL [RU]
 magnet:?xt=urn:btih:45D23E36E49EA88C7D3024397EDCDD2AA98CF416
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ IT Education Center | Linux для новичков (2018) PCRec [H.264]
 magnet:?xt=urn:btih:54BBEF7128D313FE0C5DFEE3FDB3CC5ED0CEC996
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ Oleg Lav | Бесплатная антивирусная программа Pand
 ```bash
 magnet:?xt=urn:btih:E958D35457E99D36F01D160A08B2119AF48C8476
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +513,8 @@ FrontendConf 2020 | Профессиональная конференция фр
 magnet:?xt=urn:btih:933286582FEFEAA4B0146AFDA634D9320B0A2EBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +538,8 @@ ITVDN | Сборник бесплатных вебинаров (2014 - 2015) PCR
 ```bash
 magnet:?xt=urn:btih:193C44C9D2FE25CE5FC5617CF2336E158445176F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +568,8 @@ FructCode, Sergei Nikonov | Курс HTML/CSS - Интерактивный ку�
 magnet:?xt=urn:btih:F0EF8EE59596E4D9773ECA23F2AC97A6C13AE142
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +596,8 @@ magnet:?xt=urn:btih:F0EF8EE59596E4D9773ECA23F2AC97A6C13AE142
 ```bash
 magnet:?xt=urn:btih:0D2117DE96C685722C1AEA991C6ED6049FED2567
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +626,8 @@ magnet:?xt=urn:btih:0D2117DE96C685722C1AEA991C6ED6049FED2567
 magnet:?xt=urn:btih:1747C8036C06FDF528642F696BD782953D6FA7C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +653,8 @@ WayUp | Веб-верстальщик. Код фрилансера (2017) PCRec
 ```bash
 magnet:?xt=urn:btih:0E44A422652F74F8EE89DBA1366C0F5754E9BA48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +682,8 @@ magnet:?xt=urn:btih:0E44A422652F74F8EE89DBA1366C0F5754E9BA48
 magnet:?xt=urn:btih:F27B3DC9A22243267F3EE14664527E60E8EA4576
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +710,8 @@ Academind Pro | Vue 3 - Полное руководство (включая Rout
 ```bash
 magnet:?xt=urn:btih:9275204C64EE79187363275298FF2F6101C283AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

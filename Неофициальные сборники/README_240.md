@@ -1,3 +1,38 @@
+###  Публикация: 562860   (404870) от 21.10.2012
+
+VA - Three Rooms. Acoustics, Chill, Relax Vol. 1-2 (2012) [MP3|320 кб/с]<Acoustics, Chill, Relax>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404870.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD.1:CD.1:Жанр: Acoustics, Chill, RelaxПродолжительность: 01:07:26
+01. Merge Of Equals — Take You There
+02. Mindprint Traveller — Waterland
+03. Bob Holroyd — Journeyman
+04. Santic Ft. Vera Hall — Death, Have Mercy (Mks Mix)
+05. Akmusique — Le Temp (Rouge Mix)
+06. Nighthawks — The Secret Loneliness
+07. Yira — Villurca
+08. Mystic Diversions — The Love Dance (Spirit Of Life Mix)
+09. Deepak Chopra Ft. Demi Moore — Desire(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57E1E3252D4082FE178750EEC69AD38C80D4BFFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 563021   (404877) от 21.10.2012
 
 VA - СуперДискотЭка 90-х Часть 2 (2012) [MP3|128 кб/с]<Pop, Dance>
@@ -27,6 +62,8 @@ VA - СуперДискотЭка 90-х Часть 2 (2012) [MP3|128 кб/с]<Po
 ```bash
 magnet:?xt=urn:btih:47F36CC3600227A6982225D15286B9B4D7F43158
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -61,6 +98,8 @@ VA - Самые популярные песни радиостанций #3 50/5
 magnet:?xt=urn:btih:13F911BA032B5954CB0E9F20C137A2DA88F01AB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +132,8 @@ VA - Чисто Наши Новинки (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:0D522959B93CE089078C0003CFF274F3186F4F17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +168,8 @@ VA - Русское радио: Only Best Hits Осенний (2012) [MP3|256 к
 magnet:?xt=urn:btih:AF0B7BA3405EE4DF1FD3A7BDB7668B9814C374CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +197,8 @@ VA - European Dance House (2017) [MP3|254-320 Kbps] <Club, Dance, Electro House>
 magnet:?xt=urn:btih:E2598E1092872AEFAE0802D7DB2A220774A95CAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +225,8 @@ VA - The Best Of Trance 60 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Prog
 ```bash
 magnet:?xt=urn:btih:1D0064443D32B0FA00B1AD1A829EFD6AE3E5E247
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +261,8 @@ VA - Муз-тв Хитовая 100-ка (2012) [MP3|256 кб/с]<Поп>
 magnet:?xt=urn:btih:8D81273DE42301194730E05545D8EB2EEFBF51A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +290,8 @@ VA - A Song For You Dance Europarty (2017) [MP3|320 Kbps] <Dance, Pop, Shlager>
 magnet:?xt=urn:btih:15BFFC3E52C5C551A3D087391AB63942D911977F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +318,8 @@ Maniac Cyberpriest: Synthpop Lives By Various Artist (2017) [MP3|269-320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:18681AA932AC77E39ED3587DFACE50959E6C846E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +354,8 @@ VA - Позитивная музыкальная энергия (2012) [MP3|256 
 magnet:?xt=urn:btih:EF9C1AED135BE60CC72A695819F990580AD21694
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +388,8 @@ VA - Creative Music Box 3 (2012) [MP3|320 кб/с]<Dub Step/Electro>
 ```bash
 magnet:?xt=urn:btih:D3D8089FFABEB17B488C6BE40A0267EE8AA28E11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +424,8 @@ VA - Lounge Paradise: The Pure Music Selection (2012) [MP3|320 кб/с]<Downtemp
 magnet:?xt=urn:btih:3CF08C59975A901F67676972A734E3E325466EE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +449,8 @@ VA - Шоферской Выпуск: Лучшие Из Лучших (2012) [MP3
 ```bash
 magnet:?xt=urn:btih:EF99AD17C0C895EB763DC1B4D6D32D7A42B72CC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +485,8 @@ VA - Loco – Carnivorous Attack (2012) [MP3|320 кб/с]<Ragga Jungle>
 magnet:?xt=urn:btih:8ECD6E21024141FFFBE9C277E072DF86004843F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +520,8 @@ VA - Juicy House Beats Vol. 1 (2012) [MP3|320 кб/с]<House>
 magnet:?xt=urn:btih:C194F73A4BC9F3C3BF2E66B237381B148814E8B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +554,8 @@ VA - Rhythm Balance & Harmony (2007) [MP3|320 кб/с]<Instrumental, Ethnic, Nat
 ```bash
 magnet:?xt=urn:btih:6A9F6400E31C672A2B4EBC5D3404086F2FD5A85E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +599,8 @@ CD1
 magnet:?xt=urn:btih:2ED9FBE50C615F1BFF3639098B1ED757F50ABF0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +634,8 @@ VA - Deep+   Vol. 5 (2012) [MP3|320 кб/с]<Deep House(Tech House,Vocal House)>
 magnet:?xt=urn:btih:EFE8B05A60F3A080F4771ECECBA730C52DA4F698
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +662,8 @@ VA - Русский рок - Альтернатива (2012) [MP3|317-320 кб/�
 ```bash
 magnet:?xt=urn:btih:F82FAD619B2CD1B2658D16E5ED092CFBEA6048A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +698,8 @@ CD 1Жанр: PopПродолжительность: 01:23:45
 magnet:?xt=urn:btih:BD37C4BB0AA549120F42C90ADE5846C608CCCD0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +726,8 @@ VA - The Official UK Top 40 Singles Chart (14-10-2012) [MP3|320 кб/с]<Pop, Ro
 ```bash
 magnet:?xt=urn:btih:69B1749BE1E1884CADE0B3078F6E118618D9C3C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -685,6 +762,8 @@ VA - Trance In Motion Vol.127 (Mixed By E.S.) (2012) [MP3|320 кб/с]<Trance, V
 magnet:?xt=urn:btih:2317E002623848FFABB2790E4C089C156307CD7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -711,6 +790,8 @@ VA - Лучшие новинки сезона Vol.4 (осень 2020) (2020) [MP
 ```bash
 magnet:?xt=urn:btih:554B797CEFF4EAB7ACFE867C33A3C27C94195E6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -745,6 +826,8 @@ Best 10 Radio Tracks 2012 vol. 1Жанр: Dance, House, ClubПродолжите
 magnet:?xt=urn:btih:4FF41753F609485D3DBA734FDD1697C31A2E2D15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -772,32 +855,7 @@ VA - Rock And Roll: British Classic Style (2020) [MP3|320 Kbps] <Rock & Roll, Cl
 magnet:?xt=urn:btih:DCCAB60D9454755885B83AF467B9E0641DD86DB7
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414038   (406730) от 06.10.2020
-
-VA - Клубный хит (2020) [MP3|320 Kbps] <Dance, Club, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406730.jpg" />
-</div>
-
-
-###  Подробнее
-
-0001. Stefre Roland, Quba - Come To Nignt
-0002. Anton Ishutin feat. Ange - Let You Go (A-Mase Remix)
-0003. Brad Rock - Wazzup (M.O.O.N. Pro Remix)
-0004. Sasha PRimitive - Magic(   Читать дальше...   )Жанр: Dance, Club, House, Trance, ClubПродолжительность: 09:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDCB193D734F4A9D129AE6B046BEA9B1F223D5ED
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

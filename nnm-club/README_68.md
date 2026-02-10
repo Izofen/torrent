@@ -22,6 +22,8 @@ Let Babylon Burn - Compilation Part 1 (2025) [MP3|320 Kbps] <Soul, Reggae>
 magnet:?xt=urn:btih:B8EFD8B56CE2328BB504EBFFF497229E47967D3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:B8EFD8B56CE2328BB504EBFFF497229E47967D3D
 ```bash
 magnet:?xt=urn:btih:935C402D5A0E69657A838622074FF6C82078A40F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Enlly Blue - Softly Floating (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:B7F0A8FF9FB232476DF61232135D06BCE8B9882D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ VA - 50 DJ Tracks Vol. 2 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 magnet:?xt=urn:btih:B857BA0B58A248EA5F9602C9EB0F6A5B1B2B35CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:B857BA0B58A248EA5F9602C9EB0F6A5B1B2B35CD
 ```bash
 magnet:?xt=urn:btih:86BF827DC7C0CB88701541ECB51802314931D22F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:86BF827DC7C0CB88701541ECB51802314931D22F
 magnet:?xt=urn:btih:E006E54084BB2E7AB4B3155F5D6DDE5478F2B5DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:E006E54084BB2E7AB4B3155F5D6DDE5478F2B5DC
 ```bash
 magnet:?xt=urn:btih:8E9353E66894144C611AC5D2752A5F95FDBD3725
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:8E9353E66894144C611AC5D2752A5F95FDBD3725
 magnet:?xt=urn:btih:782D0478BB1486595391A135E00E8D4130E7B50E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ Higurashi no Naku Koro ni | Higurashi When They Cry | Когда плачут ц
 ```bash
 magnet:?xt=urn:btih:74DCE4BF62507D131C07FC8BBD15E224E6E69E6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ Higurashi no Naku Koro ni Kai | When They Cry: Kai | Когда плачут ц�
 magnet:?xt=urn:btih:E7D9C9697759A83559CBA48913E57487BE35F3BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:E7D9C9697759A83559CBA48913E57487BE35F3BE
 magnet:?xt=urn:btih:58924BC7188AB666F1F1EEBCCE13FE31FACD389D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ Notification Dots v1.2.76 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:AE2F5C4662E42C0DB60DB00BF9628E26168BEB12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:AE2F5C4662E42C0DB60DB00BF9628E26168BEB12
 magnet:?xt=urn:btih:ED46204B49355D9DF16346A9DB6BBD4534EEF2F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ Toki o Kakeru Shoujo | The Girl Who Leapt Through Time | Девочка, пок�
 ```bash
 magnet:?xt=urn:btih:A33A324D3C7022FFA36F0BFEC16A3344C3DA985E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:A33A324D3C7022FFA36F0BFEC16A3344C3DA985E
 magnet:?xt=urn:btih:483C4FF6CA52A59752C7B99E3A1A63C00EA594D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:483C4FF6CA52A59752C7B99E3A1A63C00EA594D4
 magnet:?xt=urn:btih:23DA614098A2E4754FD1A46D1EE5D7C0642B493F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ magnet:?xt=urn:btih:23DA614098A2E4754FD1A46D1EE5D7C0642B493F
 ```bash
 magnet:?xt=urn:btih:69B62C62B2C9137235FAE81E65E25D9DB1B8131C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +477,8 @@ magnet:?xt=urn:btih:69B62C62B2C9137235FAE81E65E25D9DB1B8131C
 magnet:?xt=urn:btih:D9721764289A14AC63F6DEE3EA42C2DC55931899
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +502,8 @@ magnet:?xt=urn:btih:D9721764289A14AC63F6DEE3EA42C2DC55931899
 ```bash
 magnet:?xt=urn:btih:5D9402E6A038B948CAAB4D98E9E1B9557487583B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:5D9402E6A038B948CAAB4D98E9E1B9557487583B
 magnet:?xt=urn:btih:2EAB10BF48C4D3BBD8986660BB59B0225905FC0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ magnet:?xt=urn:btih:2EAB10BF48C4D3BBD8986660BB59B0225905FC0C
 ```bash
 magnet:?xt=urn:btih:7F8D9F25CD0F0A49C2F182C0B50CB6666E1E7365
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ magnet:?xt=urn:btih:7F8D9F25CD0F0A49C2F182C0B50CB6666E1E7365
 magnet:?xt=urn:btih:F50AB96880317E61574AD79C87CC49A24893A72E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ PictureThis - Plant Identification v5.12.0 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0F70AA916686B1225E8AAB927F5266A03FDCDFC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +633,8 @@ BikeComputer Pro - возможно, одно из лучших приложен
 magnet:?xt=urn:btih:A6658DF9F771D936AA638A2FEAB47FC3B2828655
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ Noto - это глобальная коллекция шрифтов для пи
 magnet:?xt=urn:btih:1BE4B624F1BDA1F040F572F1B715DD4D5F742365
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ magnet:?xt=urn:btih:1BE4B624F1BDA1F040F572F1B715DD4D5F742365
 ```bash
 magnet:?xt=urn:btih:9721A7F57C58D22C321E38CEDF06E0DA63958495
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

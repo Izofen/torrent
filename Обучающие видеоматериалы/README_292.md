@@ -19,6 +19,8 @@ Gumroad, Dejan Pejacki | Твердотельное моделирование S
 magnet:?xt=urn:btih:811A01DFCF8472F97D727BBD98A9906E6A07A1E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Matt Kohr | New Lessons Digital Painting with Matt Kohr Part 3 (2014-2017) PCRec
 ```bash
 magnet:?xt=urn:btih:C7F7E9A45FF78B88B7C2EA3D0B51DFF0DAC91282
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Matt Kohr | New Lessons Digital Painting with Matt Kohr Part 1 (2014-2016) PCRec
 magnet:?xt=urn:btih:2D48402D08039FE83368952A438A104EEB3DDA3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Matt Kohr | New Lessons Digital Painting with Matt Kohr Part 2 (2014-2016) PCRec
 ```bash
 magnet:?xt=urn:btih:409E2160324D57276FA98F5B37B30DAF083F39C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ OTUS, Алексей Цыкунов | Администратор Linux. Вирт
 magnet:?xt=urn:btih:C5378210994132C0847825193FAB719138BFB21C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ BrainsCloud, Дмитрий Валак | HTML и CSS с нуля для начи
 magnet:?xt=urn:btih:8B3DF6B7DFA7CFBB79019D01B4091C781B037D53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ ProgLib.academy, Никита Ларионов и др. | Онлайн-курc �
 ```bash
 magnet:?xt=urn:btih:A4C3E2AB4EBF6F7950E72C0F24D8F36A0AF1DB81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ ProgLib.academy, Вениамин Жиленко, Никита Ларионов 
 magnet:?xt=urn:btih:6C4D64631A63296450A2B60C39DD6DB7077F65C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:6C4D64631A63296450A2B60C39DD6DB7077F65C9
 magnet:?xt=urn:btih:D72D43F63B713BAFB2291A22AEC16B5C9ECE52A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ Rohan Dalvi | User interfaces and motion graphics part 1 (2014) PCRec [En, Ru]
 magnet:?xt=urn:btih:1F650174A17A16F79B9CEB887C2B69682E900476
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ Groove3, Kenny Gioia | First Song with REAPER (2021) PCRec [En]
 ```bash
 magnet:?xt=urn:btih:9C52F73FEFB83F0503D5DA49107EBCD965F8437F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ Rohan Dalvi | User interfaces and motion graphics part 3 (2014) PCRec [En, Ru]
 magnet:?xt=urn:btih:CFD6F917B70D7F43A8D88824CDFB174EE3168133
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ Rohan Dalvi | User interfaces and motion graphics part 2 (2014) PCRec [En, Ru]
 magnet:?xt=urn:btih:601847B9578BAB90F37E03EAEC26FAAF3B3724D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ Groove3, Scottie Dugan | Ozone 8 Explained® (2021) PCRec [En]
 magnet:?xt=urn:btih:2611254AC3302DF4FEEDD1B797C78F8806304801
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:2611254AC3302DF4FEEDD1B797C78F8806304801
 ```bash
 magnet:?xt=urn:btih:703E389F66F3294D5B5F6A65C47E28DD2AC3B245
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:703E389F66F3294D5B5F6A65C47E28DD2AC3B245
 magnet:?xt=urn:btih:494A3EC7812F6CD9FA5E6C9C115591A9D162E55A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ Marc Brunet | Simple Female Figure (2015) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:4C7341351E45A4B0292CF32B923056C7D1D3DC51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:4C7341351E45A4B0292CF32B923056C7D1D3DC51
 magnet:?xt=urn:btih:2A710979FFA91914C0D6C502E391C98D85FAA179
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ Rohan Dalvi | Hard surface modeling in Houdini (2016) PCRec
 ```bash
 magnet:?xt=urn:btih:BC6FBFAD10EA31AD5029D70C7685574C9A054955
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ magnet:?xt=urn:btih:BC6FBFAD10EA31AD5029D70C7685574C9A054955
 magnet:?xt=urn:btih:FED86099D3AD989E7DE59B7AF06EDC4F2F807299
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ Pluralsight, Craig Stansbury | Cisco Core Security: Securing the Cloud (2021) PC
 ```bash
 magnet:?xt=urn:btih:F292FF62FE22145AFE690F696C764BF19AC0FBD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +589,8 @@ Ruben Mayor | Houdini PyroFx in Film Production (2015) PCRec [En, Ru]
 magnet:?xt=urn:btih:3A3AD3A21C364189759052FD7553E3EC1E1CF704
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ Rohan Dalvi | Gears of Houdini (2014) PCRec
 ```bash
 magnet:?xt=urn:btih:19A3E5DEC8BB243928EFA59C241FFAE63A30D112
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +643,8 @@ Lumion — движок для быстрой визуализации, совм
 magnet:?xt=urn:btih:D2F09341C21BD7210D3E98AE0DE8555FFB910B86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +668,8 @@ magnet:?xt=urn:btih:D2F09341C21BD7210D3E98AE0DE8555FFB910B86
 ```bash
 magnet:?xt=urn:btih:94E840F53B6CEFD23ABCE048DE778BA00225D1EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -647,6 +697,8 @@ magnet:?xt=urn:btih:94E840F53B6CEFD23ABCE048DE778BA00225D1EB
 ```bash
 magnet:?xt=urn:btih:2520FF964C9C241C2B2B11230D9CA6495DB13F7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

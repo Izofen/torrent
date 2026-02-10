@@ -19,6 +19,8 @@ Russian Village Simulator / Симулятор русской деревни (20
 magnet:?xt=urn:btih:F97D18E11C96B318CEFF729487ACB5E598AF80F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Fork Road бросает вас с головой в тускло освещен
 ```bash
 magnet:?xt=urn:btih:DBE8726FDAB68E9C3B2C7010228B409EC024C9FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Riven (2024) [Ru/Multi] (build 1294) Scene DOGE
 magnet:?xt=urn:btih:835838D0405A752A4AA7A2E2F990D0C80A25E9F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Diatomic - непринужденный аркадный шутер, где ва
 ```bash
 magnet:?xt=urn:btih:C279FCED825B824986EF53B962EDEF9BD6F66562
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Cats Love Boxes - это восхитительная игра-головоло�
 magnet:?xt=urn:btih:E7C21C55C7C9FA2BB71713786194E267EE82A42B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Dungeon Drafters – это пошаговый рогалик с видом св
 ```bash
 magnet:?xt=urn:btih:B233DF202F4116B0888FEC40B9576BCFC4CA8DA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ HORROR TALES: The Beggar бросает вас с головой в разруш
 magnet:?xt=urn:btih:616A7EEB72708A66582C5FF6AF9EA5FB741118F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Barotrauma - сайд-скроллер, позволяющий играть по
 ```bash
 magnet:?xt=urn:btih:0BB87CFAEC7BBA11B19CD382C1765A196F9DC7A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Rage (2011) [Ru/En] (1.0.35.4669/dlc) Repack dixen18 [Anarchy Edition]
 magnet:?xt=urn:btih:7DA49D6618A875C69D628A19AE0351276EAD53BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Far Cry 4 (2014) [Ru/Multi] (1.12/dlc) Repack seleZen [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:5A5FD06351B94841B711B85229C43F747A54BE68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Reverse Collapse: Code Name Bakery - тактическая RPG, события 
 magnet:?xt=urn:btih:62168075F11EAF25DAB8E76630921B4C3313F3E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6931813/dlc) License GOG [Patches
 ```bash
 magnet:?xt=urn:btih:2E0E04FB50BB2FC87871218594C535A41A721827
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ The Troop (2023) [Ru/Multi] (20250930 build 20182560/dlc) Repack seleZen
 magnet:?xt=urn:btih:E3732C95E8B3918512B22AB031C6B655CCD11987
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Stronghold (2023) [Ru/Multi] (1.34/dlc) Repack Let'sРlay [Definitive Edition]
 ```bash
 magnet:?xt=urn:btih:C2E6D346D47A09939734C196D1569B7E742F28CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Elden Ring – фэнтезийное экшен-РПГ приключение, 
 magnet:?xt=urn:btih:EF6AB86AFA86DCE8BE48FB37D5CED98E152E552E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ REPUNK - одна из таких игр, которая предлагает з
 ```bash
 magnet:?xt=urn:btih:65E4B6DFB60F92593A0CE2EB7BCDDC038FC068EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ El Dorado: The Golden City Builder – это увлекательная стр�
 magnet:?xt=urn:btih:9133ADDFCF149A1DE96AF7953DCD18DD1F1E2BD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Don't Shout Together (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:31C516E8BEDCC730693732B89601C92AE414DB1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ VENARI - Escape Room Adventure (2024) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:DED74BCBDDFD1443CE88F0CE3B2307DE6757D341
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Patti Hattu! - Cosmic Revolt (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9A88ED5C022901535082737711085196F43FE3F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Whispered Secrets 15: Cruise of Misfortune / Нашептанные секрет
 magnet:?xt=urn:btih:BE2FF5C22D0237FB63CA2F7C8E1B0E63ABDDF67B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Forest Ranger Simulator (2024) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:283E96EE889F7CFEBA0EB8E655CC027569C9B22A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Tower Song - это пошаговая ролевая игра, история �
 magnet:?xt=urn:btih:01CF92E249B73F4F731F3AC3159602DDA9C14002
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Nowhere Near (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:DC8450E22EDBD96CF4986049BCFA4EA6073E4FE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ magnet:?xt=urn:btih:DC8450E22EDBD96CF4986049BCFA4EA6073E4FE3
 magnet:?xt=urn:btih:00D71142EB93E6675756167CFBAF4C3DB7EB0CE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ El Dorado: The Golden City Builder – это увлекательная стр�
 ```bash
 magnet:?xt=urn:btih:95ED1F7526B9B2633A7A8F652945D61ABFFC4C25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

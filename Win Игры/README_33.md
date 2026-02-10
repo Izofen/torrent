@@ -19,6 +19,8 @@ Day of the Shell – это динамичная тактическая игра
 magnet:?xt=urn:btih:7AC61B0C5F16975728E66B4397EE568FE5C99D36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ MythForce (2023) [Ru/Multi] (1.2.4.2) Repack Let'sРlay [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:659F2F4FDEEE1F04F50C5DBDB40867B6489D1BEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Miami Hotel Simulator (2025) [Ru/Multi] (0.13.345.pa) Repack FitGirl
 magnet:?xt=urn:btih:2291DDBC1A0525AB417C02E13C1C4BD6A7027829
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ UNDERWARD - это кооперативная игра в жанре хорро�
 ```bash
 magnet:?xt=urn:btih:B2D77E261211C3E0FEF41A2BFE878EEA38B82052
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ UNDERWARD - это кооперативная игра в жанре хорро�
 magnet:?xt=urn:btih:D656143589B0F5B4CECC638B835517249DE4B488
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Girls Made Pudding повествует о двух героинях, котор
 ```bash
 magnet:?xt=urn:btih:AD6384CED16FE690F020A2C008FA87C0631B5E46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Borderlands 2 (2012) [Ru] (1.8.4/dlc) Repack EXROW [Game of the Year Edition]
 magnet:?xt=urn:btih:1C637A29D185BCDC5D5186C900BCFE878D101940
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ ASTRONEER (2016) [Ru/Multi] (1.34.47.0/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:B2B3965186D8D5FDFBF8A46EA901C03768A0FAAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Call of Duty: Modern Warfare (2019) [Ru/Multi] (8.67) Repack FitGirl
 magnet:?xt=urn:btih:DEE09EB5CE0DE074A2F8FD4EAD1A7B5ECF3F01E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Potion Craft: Alchemist Simulator – проработанный симулят�
 ```bash
 magnet:?xt=urn:btih:38994F757A338A456BB3FE9CF81A614DCFDCDA01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Terminator: Dark Fate – Defiance позволяет окунуться в су
 magnet:?xt=urn:btih:6084F698C6C351D5EC1F9E22CA09061D6E18EBFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Redneck Kentucky and the Next Generation Chickens / Куриное побоищ�
 ```bash
 magnet:?xt=urn:btih:ED388EF06AD9CD06C84DEFED9DEEEDB2C814CDBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ ASTRONEER (2016) [Ru/En] (1.34.47.0) Repack Pioneer
 magnet:?xt=urn:btih:9258DF428DB8270D5152045DCB3A02F4087A4C51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Borderlands (2009) [Ru/En] (1.5.0/dlc) Repack FitGirl [Game of the Year Edition]
 ```bash
 magnet:?xt=urn:btih:5A1C88C99E30CC1496A0B3482548F93136BE0992
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Railway Empire 2 (2023) [Ru/Multi] (1.7.2.64310/dlc) Repack Let'sРlay [Deluxe E
 magnet:?xt=urn:btih:BF01DFD646BEC8EC42CADE74152D82489F8452F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ UNDERWARD - это кооперативная игра в жанре хорро�
 ```bash
 magnet:?xt=urn:btih:C04328C39156CC62FFA6A020D2C116E092977473
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Fragments of Truth: An MCF Story / Осколки истины: История �
 magnet:?xt=urn:btih:994E4CFFBCA93789F6B52C841E223357DABCBBC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Wingspan / Крылья (2020) [Ru/Multi] (1.7.1104.0611.1642/dlc) Repack FitGir
 ```bash
 magnet:?xt=urn:btih:C925500F5921DD3813B67A34EFC0A25BAFDB37DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Car Mechanic Simulator 2021 - симулятор механика, позвол�
 magnet:?xt=urn:btih:E9E943051998056108A6FB9052A6855CF0E458CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Our War: Firepower Suppression (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:825F558354A4198760A536C0C76EFCD5DF162114
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Car Mechanic Simulator 2021 - симулятор механика, позвол�
 magnet:?xt=urn:btih:3057A54703279021837C6FF4B1DB130CFC9953A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Through the Nightmares - это хардкорный платформер, в к
 ```bash
 magnet:?xt=urn:btih:FCE4F1AC1A9B8D081FA4C64DE7CEA2DAA3239F58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (178111/dlc) Repack seleZen [Deluxe E
 magnet:?xt=urn:btih:BA367719DAFB09790F17A2E8BC1A2226087A218E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ The Last Spell - это тактическая ролевая игра с эле
 ```bash
 magnet:?xt=urn:btih:57739091DA5DC594C67BFAA4F696EAE2A0A7778E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Luto - это психологический хоррор от первого л
 magnet:?xt=urn:btih:49F88D5D6D73134DF0A43786DB3B3DA66F1F9666
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ My Garage – игровой проект, разработанный в жан�
 ```bash
 magnet:?xt=urn:btih:F604A1A60C28CBBBC7B4666D559871CCF45D4A8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

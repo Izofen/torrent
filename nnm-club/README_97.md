@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:66991CE56701198A9D2A2E34DCD8D2955B4E7A68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:66991CE56701198A9D2A2E34DCD8D2955B4E7A68
 magnet:?xt=urn:btih:6C1B72036CFDEA2948E783D11A368B9390848F36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:6C1B72036CFDEA2948E783D11A368B9390848F36
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:6C1B72036CFDEA2948E783D11A368B9390848F36
 magnet:?xt=urn:btih:D6F93C8E8092F1906BDC2A5650BED2E0528EC7BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:D6F93C8E8092F1906BDC2A5650BED2E0528EC7BF
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Crusader Kings 3 - глобальная стратегия, значительн
 magnet:?xt=urn:btih:7340AD817FF7D9D85E64A6C175E3E4E80AA9C711
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:7340AD817FF7D9D85E64A6C175E3E4E80AA9C711
 ```bash
 magnet:?xt=urn:btih:75EAC145674168DE5A694AA72128F933CC61752B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:75EAC145674168DE5A694AA72128F933CC61752B
 magnet:?xt=urn:btih:1900EE9ECCD70815FB56851F0F13E617F0BDCDD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:1900EE9ECCD70815FB56851F0F13E617F0BDCDD6
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Beyond Sunset – это яркий неоновый экшн, в котором
 magnet:?xt=urn:btih:9807D5184403E2A3E2D558F24DC621D3AC984FD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:9807D5184403E2A3E2D558F24DC621D3AC984FD0
 ```bash
 magnet:?xt=urn:btih:6D915AB44EC774837A243F507738EBDB01610727
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:6D915AB44EC774837A243F507738EBDB01610727
 magnet:?xt=urn:btih:68B6360E307B26F238A19EDEEC1343C512CE6DEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:68B6360E307B26F238A19EDEEC1343C512CE6DEB
 ```bash
 magnet:?xt=urn:btih:0ECCCF79AECE97D6F297D6BFE20A6BC4652F8604
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Cyberpunk 2077 приключенческая ролевая игра, дейс�
 magnet:?xt=urn:btih:9BFD2F89ACF7A87F89E17A8CC0AB0ABDD8800873
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Cyberpunk 2077 - ролевой экшен, события которого ра
 ```bash
 magnet:?xt=urn:btih:2A6E2E411EFF97EBD77B2A093071B2AC5E89CC37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:2A6E2E411EFF97EBD77B2A093071B2AC5E89CC37
 magnet:?xt=urn:btih:6E81168D96D87222600BDD7DEFC8A9F81484B52D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ MInstAll v.10.08.2025 By Andreyonohov (Unpacked) [Ru]
 ```bash
 magnet:?xt=urn:btih:E1163AF9ECD86E4C3014B831D630A8CF47BC53D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ The Precinct (2025) [Ru/Multi] (1.9.19872) Repack Let'sРlay
 magnet:?xt=urn:btih:C6C2B86D3F30BC3C020C11917A1450E999DE4AFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ Cubic Odyssey (2025) [Ru/Multi] (1.0.3.4) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:ACCBD9B0B85640529F7458FECDA0A2D1C70E4516
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (Build 889.22 Online 1.71) Repack 
 magnet:?xt=urn:btih:27B3053FFB894BBDD8F7328E1C86491641C46433
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ magnet:?xt=urn:btih:27B3053FFB894BBDD8F7328E1C86491641C46433
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ magnet:?xt=urn:btih:27B3053FFB894BBDD8F7328E1C86491641C46433
 ```bash
 magnet:?xt=urn:btih:C41357D715F9B8CFDE9D69D04F40918CFCF68B22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:C41357D715F9B8CFDE9D69D04F40918CFCF68B22
 magnet:?xt=urn:btih:D2A9DAF67C89B36FA9345B59687375175FB91A8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ Cyberpunk 2077 приключенческая ролевая игра, дейс�
 ```bash
 magnet:?xt=urn:btih:8CFFD6986D6C1397BC4A433A54414E3025B987D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:8CFFD6986D6C1397BC4A433A54414E3025B987D2
 magnet:?xt=urn:btih:E543EEA0384A5E0D7AE82C43460F2500CF57DA41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ The Midnight Walk (2025) [Ru/Multi] (Build 18854438) Repack Let'sРlay [VR]
 ```bash
 magnet:?xt=urn:btih:B2FD5F8C95056FE3EACD81518A5CA501DDF9BF1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

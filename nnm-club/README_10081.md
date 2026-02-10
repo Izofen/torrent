@@ -1,54 +1,3 @@
-###  Публикация: 1580435   (330613) от 01.10.2022
-
-Nestor - Kids In A Ghost Town (2021) Deluxe Version [FLAC 2.0|44/24|tracks|WEB-DL] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Formed more than three decades ago in 1989 only to fall into a slumbering hibernation lasting until last year, cult-followed Swedish hard rock outfit NESTOR decided to reunite, reinvent the iconography of rock and restore its glory in 2021 with their debut album - yes, their debut album - Kids in a Ghost Town. With friendship as the foundation of this unique, seemingly (   Читать дальше...   )01. A Fanfare For The Reliable Rebel (Intro) (0:59)
-02. On The Run (3:54)
-03. Kids In A Ghost Town (3:48)
-04. Stone Cold Eyes (3:21)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:54:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2A35F912A7284209507F9DB72631C1CE2AF93BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580429   (330614) от 01.10.2022
-
-Семейка монстров / Petit vampire (2020) BDRemux [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленький вампир имеет внешность и разум десятилетнего ребенка, хотя ему уже 300 лет. Он живет в доме с привидениями и веселыми монстрами, но ему скучно до смерти. Он мечтает ходить в школу, чтобы общаться другими детьми, но родители не разрешают ему выходить из дома. Вместе со своим псом Фантомато он тайно выбирается наружу в поисках новых друзей. У него появляется (   Читать дальше...   )Производство: Франция, Бельгия / Joann Sfar's Magical Society, StudioCanal, Panache ProductionsЖанр: рисованная анимация, компьютерная анимацияРежиссер: Жоанн СфарАктеры: Луиз Лакост, Камилль Коттен, Жан-Поль Рув, Клер де ла Рю дю Кан, Алекс Лутц, Кентан Форе, Рикардо Ло Джудиче, Венсан Вермингтон, Жоанн Сфар, Мара ТакинПеревод: Многоголосый профессиональный (Кинопоиск HD)Язык озвучки: Русский, ФранцузскийСубтитры: Французские (PGS)Продолжительность: 01:21:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8BBDC40AA58E57C8A344E61D66EEFA3E46C20BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 552621   (330615) от 01.10.2022
 
 Сказка о синей свитке (1997) TVRip
@@ -69,6 +18,8 @@ magnet:?xt=urn:btih:F8BBDC40AA58E57C8A344E61D66EEFA3E46C20BD
 ```bash
 magnet:?xt=urn:btih:B0C7D867E15CD6888C451AC28901D47ACD641F6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +44,8 @@ magnet:?xt=urn:btih:B0C7D867E15CD6888C451AC28901D47ACD641F6C
 ```bash
 magnet:?xt=urn:btih:5A5FFAD76648E19CBDA766819E8B15E7F040CCB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +74,8 @@ Boney M. - The Magic Of Boney M. (2022) Special Remix Edition [MP3|320 Kbps] <Di
 magnet:?xt=urn:btih:59767BF69946B10772363BB2EA449F366BAAD9E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +103,8 @@ Frontline - Scream All You Want (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:BDD4CEEE334DAB1E4403A336E6DC9BD7EFFBF095
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +128,8 @@ magnet:?xt=urn:btih:BDD4CEEE334DAB1E4403A336E6DC9BD7EFFBF095
 ```bash
 magnet:?xt=urn:btih:775715EA668CE4BE8B0E155C75F4D619AC6BD848
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +162,8 @@ Skillet - iTunes Session (2010) [MP3|320 kbps]<Alt-Rock>
 magnet:?xt=urn:btih:0BA574B669C56FFDAA5310AB3A3D0706A57AA419
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +190,8 @@ magnet:?xt=urn:btih:0BA574B669C56FFDAA5310AB3A3D0706A57AA419
 magnet:?xt=urn:btih:074DC00C965FACE501A188E0FCE75BADF783E060
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +215,8 @@ magnet:?xt=urn:btih:074DC00C965FACE501A188E0FCE75BADF783E060
 ```bash
 magnet:?xt=urn:btih:0FBC5C652E8FD4282B591B58ECC9F93A5C207796
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +242,8 @@ magnet:?xt=urn:btih:0FBC5C652E8FD4282B591B58ECC9F93A5C207796
 magnet:?xt=urn:btih:9DCABD173F2F5BF591AE92A678387619B7838742
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +268,8 @@ magnet:?xt=urn:btih:9DCABD173F2F5BF591AE92A678387619B7838742
 magnet:?xt=urn:btih:E0C26F8193EA6268DDFE379BF922614FD13C6965
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +293,8 @@ magnet:?xt=urn:btih:E0C26F8193EA6268DDFE379BF922614FD13C6965
 ```bash
 magnet:?xt=urn:btih:60060D6829D9C989E48A352E7C5425E086867307
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +321,8 @@ magnet:?xt=urn:btih:60060D6829D9C989E48A352E7C5425E086867307
 magnet:?xt=urn:btih:98950355788DDDD7791EADBDF4502413ECC4B29B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +346,8 @@ magnet:?xt=urn:btih:98950355788DDDD7791EADBDF4502413ECC4B29B
 ```bash
 magnet:?xt=urn:btih:E1E5CE3F2D1EFEE03A55244B66D3BE4ABECD28EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +376,8 @@ Noize MC - Voyager-2 (2022) Live [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop, Ro
 magnet:?xt=urn:btih:D914ACE8DFDFB57780D60F75BF0482FAEDB9B56E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +401,8 @@ magnet:?xt=urn:btih:D914ACE8DFDFB57780D60F75BF0482FAEDB9B56E
 ```bash
 magnet:?xt=urn:btih:74FD5E15173F0EB9F9778ED8E1DBB31867969472
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,29 +428,7 @@ magnet:?xt=urn:btih:74FD5E15173F0EB9F9778ED8E1DBB31867969472
 magnet:?xt=urn:btih:8ED1D399AE67634FB98EA84E668CD8CFF37F9EBB
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580401   (330657) от 01.10.2022
-
-Google Chrome 106.0.5249.91 Portable by Cento8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B570B0A62E9E5E5314310173EB6BE0D57B479893
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +454,8 @@ magnet:?xt=urn:btih:B570B0A62E9E5E5314310173EB6BE0D57B479893
 magnet:?xt=urn:btih:B0516A45B8410192CCD6BCFEED615345DA87A38C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +479,8 @@ magnet:?xt=urn:btih:B0516A45B8410192CCD6BCFEED615345DA87A38C
 ```bash
 magnet:?xt=urn:btih:84F418077BF50C9EFDC8F69601E7D053F8A4155F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +509,8 @@ VA - Disco Remix Club & Dance Ritmos (2022) CD, Compilation [MP3|320 Kbps] <Club
 magnet:?xt=urn:btih:E1138E5911C02040582479E7FF07E064EA347195
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +534,8 @@ magnet:?xt=urn:btih:E1138E5911C02040582479E7FF07E064EA347195
 ```bash
 magnet:?xt=urn:btih:8DABF3C4842B5EB7B9A6C3C1EBC1A33EA3980BB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +561,8 @@ magnet:?xt=urn:btih:8DABF3C4842B5EB7B9A6C3C1EBC1A33EA3980BB7
 magnet:?xt=urn:btih:BCACDD4AE9E51B133685D8CEDD84055EB85F2FBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +587,8 @@ magnet:?xt=urn:btih:BCACDD4AE9E51B133685D8CEDD84055EB85F2FBF
 magnet:?xt=urn:btih:159DF600DE424E43D6BCE146BA77C16DB3751E80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +612,86 @@ magnet:?xt=urn:btih:159DF600DE424E43D6BCE146BA77C16DB3751E80
 ```bash
 magnet:?xt=urn:btih:BCF639878A6CF81B125210989459E60936D5FFF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580459   (330665) от 01.10.2022
+
+Приключения Мэддиганов / Maddigan's Quest (2005) WEB-DL [H.264/1080p] (сезон 1, серии 1-13 из 13)
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_330665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый год труппа циркачей «Фантазия», в которую попали Мэдди и ее дочь Гарланд, отправляется в долгое путешествие. Они должны не только нести людям радость и веселье. Их задача - доставить в таинственный город Солис прибор - конвертер, с помощью которого получают солнечную энергию, дающую городу жизнь. Однако путь за конвертером труден и опасен. Вдоль дорог затаились (   Читать дальше...   )Производство: Новая Зеландия / South Pacific PicturesЖанр: фэнтези, приключенияРежиссер: Питер Бюргер, Чарли Хэскелл, Ванесса АлександрАктеры: Роуз МакАйвер, Джордан Меткалф, Захари Фокс, Оливия Теннет, Роури Пин, Майкл Херст, Тимоти Бальм, Питер Даубе, Даниэль Кормак, Бен Купер, Бронвин Бэйкер, Флер Савилл, Рэйчел Хаус, Росс Дункан, Хори АхипенеПеревод: ДублированныйЯзык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: ~00:24:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5CB8235200D6750D1AD85A227E11B6813346452
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 841099   (330668) от 15.11.2014
+
+Жмурки (2005) BDRip [H.264]
+
+>>След.
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_330668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жмурки - старинная русская игра: водящий, с завязанными глазами, ловит остальных играющих. К середине 1990-х правила игры изменились: выигрывает тот, кто останется в живых, сделав жмуриками остальных «играющих». Нижний Новгород. Два мелких бандита Серега и Саймон работали на крупного бандюгана Сергея Михайловича. Только вот очередное его поручение парни завалили: (   Читать дальше...   )Производство: Россия | Кинокомпания CTBЖанр: Триллер, Комедия, КриминалРежиссер: Алексей БалабановАктеры: Алексей Панин, Дмитрий Дюжев, Никита Михалков, Сергей Маковецкий, Виктор Сухоруков, Дмитрий Певцов, Кирилл Пирогов, Алексей Серебряков, Андрей Мерзликин, Юрий Степанов, Андрей Панин, Александр Баширов, Андрей Краско, Рената Литвинова, Татьяна Догилева, Виктор Бычков, Гарик СукачевПеревод: ОригиналЯзык субтитров: ОтсутствуютПродолжительность: 01:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B045E5C76D47AC4E20F5F4B7EDCCDDCFEEA34F50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 841122   (330675) от 15.11.2014
+
+Highlights School | Цветокоррекция и тонирование в Photoshop (2014) PCRec [H.264/720p-LQ]
+
+>>След.
+>>Фотография и Видео (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_330675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторский online мастер-класс Маргариты КаревойЖанр: Обучающее видеоПродолжительность: 02:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CBF946072F77AFF2FC3914D51593C154253A432
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

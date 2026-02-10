@@ -1,27 +1,3 @@
-###  Публикация: 1445921   (1033227) от 07.02.2021
-
-Bridge to Another World 5: Through the Looking Glass / Мост в Другой Мир 5: Зазеркалье (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вот уже много лет Шахматное Королевство страдает от жестокой войны двух монархов - Красного Короля и Белой Королевы. Надежду жителям даёт лишь пророчество о Красной Королеве: девушке по имени Алиса, что придёт из другого мира и прекратит войну.Тип издания: UnofficialРазработчик: 4 Friends GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B4088A7160D4759C28B17B6F12FCD4516776C11
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619083   (1033326) от 14.03.2023
 
 Barotrauma (2023) [Ru/Multi] (1.0.70/dlc) Repack Other s
@@ -42,6 +18,8 @@ Barotrauma — многопользовательский (с поддержко
 ```bash
 magnet:?xt=urn:btih:A716516564FCC1149563F2529541CF4B8ADBA60B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Horizon: Zero Dawn (2020) [Ru/Multi] (6102784-6278995) License GOG [Patches]
 magnet:?xt=urn:btih:1F0D993E9119042BEF39BDCC07ABFC1F5A83A612
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ GRIME (2021) [Ru/Multi] (1.11.11/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:D7407466D00B517D1ECFAD1509E0E0B426889D7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Contraband Police (2023) [Ru/Multi] (1.0/upd1) Repack Other s
 magnet:?xt=urn:btih:9E2AF6F8C39F9A0E0A6F36FEB3CD049940338C92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Riddle of the Sphinx: The Awakening / Загадка Сфинкса: Пробу�
 ```bash
 magnet:?xt=urn:btih:AD7C5CEA4E9D0F42853835BD8C6A9F4ACAB0D799
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Rite of Passage 10: Embrace of Ember Lake (2021) [En] (1.0) Unofficial [Collecto
 magnet:?xt=urn:btih:E44AA3AEB9D968EE48556CEC9BC2C6B7EE217EAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Vampire: Masquerade - Coteries of New York представляет конфли
 ```bash
 magnet:?xt=urn:btih:1AEB68439652F4D8BC11BB0B65EF4C75DE99DE6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Sunrider 4: The Captain's Return (2023) [En] (1.2.0.2) License GOG
 magnet:?xt=urn:btih:7FABD1B3DEC92AF51B45C5B649A68EB7B9213361
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ Wasteland 2: Director's Cut (2014) [Ru/Multi] (2.3.0.5(a)) License GOG [Digital 
 ```bash
 magnet:?xt=urn:btih:27772993A21743609950C2ABF3F2AB135C574ADA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ Contraband Police (2023) [Ru/Multi] (1.0) License SKIDROW
 magnet:?xt=urn:btih:C22A54E46620511513FF8042348F293FC9AAF677
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ House Flipper – увлекательный и интересный в своё
 ```bash
 magnet:?xt=urn:btih:A999EA1CA864A3C52F095301A844294E3342AC94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ FATAL FRAME / PROJECT ZERO: Mask of the Lunar Eclipse (2023) [Multi] (Build 1054
 magnet:?xt=urn:btih:7FAFEF75F8DE42785FCFB24E1B4D1275170C28B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ The Trasamire Campaigns - это напоминающая настольную �
 ```bash
 magnet:?xt=urn:btih:E19C2F44E2C4CBD6526949CBBD28E53144882B5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ Spirit Legends 4: Finding Balance / Легенды Духов 4: Поиск га
 magnet:?xt=urn:btih:92E8ECA85BAD33B73B6C4DECE563A3ADBAF6045A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ File Destined — это психологический триллер-игра,
 ```bash
 magnet:?xt=urn:btih:0F2DD8AE5928A41FF352F294422243D4D5BB0BFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ Disjunction (2021) [Ru/Multi] (1.03) License GOG
 magnet:?xt=urn:btih:B60607A5C6E0EF6DB6D9A407C0BBAE395796F4D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ Strange Investigations: Becoming (2021) [En] (1.0) Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:A43EC95852B7D15D60FA70B601E0B51BC2C66538
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ Gods Will Fall (2021) [Ru/Multi] (1.0/dlc) Repack xatab [Valiant Edition]
 magnet:?xt=urn:btih:ABF6D72024AFD537D8117E492D4BACBBBD8FBCFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ Source of Madness - это мрачный экшн-roguelite сайд-скрол
 ```bash
 magnet:?xt=urn:btih:F4658BC711074AD5BA1FE9E921E5FD4AC90B39CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ Doom 3 BFG Edition - это переиздание Doom 3. Жанр и смыс�
 magnet:?xt=urn:btih:E045EABC6BD7887AB871FFC981D02B703B152A30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ Flashout 3 предлагает вам сверхскоростной транс
 ```bash
 magnet:?xt=urn:btih:9912F5BA4FFA081D07553D6AD5B6943836C436B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ The Fantastic Kitty Rue - это приключенческая игра в фо
 magnet:?xt=urn:btih:FF7043237A9B2A236841F4671A2A453A1DC06F12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ Bridge to Another World 7: Secrets of the Nutcracker / Мост в Другой 
 ```bash
 magnet:?xt=urn:btih:AFD0CF449F5854CB46F3731DC5E21ED18A53EF41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +617,8 @@ The Last Haven перенесет вас в мир после ядерной в�
 magnet:?xt=urn:btih:7C07989DB0FE025500E1515BF7EE8F2BD7BAB72F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +642,34 @@ Deus Ex: Human Revolution - третья часть в одноименной с
 ```bash
 magnet:?xt=urn:btih:67D1A9541CB4934B5515EACE0B10D2F66F89A5F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321576   (1036169) от 26.01.2021
+
+Steel Division 2 (2019) [Ru/Multi] (46442/dlc) Repack xatab [Total Conflict Edition]
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стальная дивизия II предлагает не только тактический опыт в ВМВ. Этот основанный на Восточном фронте 1944 г. сиквел оценённой критиками игры RTS поставит вас во главе армии во время операции «Багратион» – советского наступления против нацистов на белорусской земле. Играйте как генерал в динамичных стратегических кампаниях масштаба 1:1, как полковник в эпичных тактических (   Читать дальше...   )Тип издания: RepackРазработчик: Eugen SystemsЖанр: Инди, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C77FEE328933DF78ABF5C3D0D016BBA8A6769E16
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Gloria Estefan - Cuts Both Ways (1989) [FLAC|tracks+.cue]<Latin, Cubano, Synth-p
 magnet:?xt=urn:btih:3458215BF5695D68DF84D844BBB5384C3CB8D83A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ magnet:?xt=urn:btih:3458215BF5695D68DF84D844BBB5384C3CB8D83A
 magnet:?xt=urn:btih:BDBFE8BBCAFB4C48204E2CDBAF82FCDD5A7EA46B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:BDBFE8BBCAFB4C48204E2CDBAF82FCDD5A7EA46B
 ```bash
 magnet:?xt=urn:btih:C1C6F474BCC0A77803BA10CF84E66F784072F987
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Good God - Good God (1972) Reissue, Unofficial Release /2012, Flawed Gems/ [FLAC
 magnet:?xt=urn:btih:84E95426870EF279D77829412DADC8859ECCA5B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:84E95426870EF279D77829412DADC8859ECCA5B4
 ```bash
 magnet:?xt=urn:btih:DD7AAE365ECF3C810FEE9634709DA5C50AB33327
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Personnel:
 magnet:?xt=urn:btih:8D0640277CA9EF5BEDAEC2EE58EDF9F4E84A5F62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:8D0640277CA9EF5BEDAEC2EE58EDF9F4E84A5F62
 ```bash
 magnet:?xt=urn:btih:4FD91B40693939D6827B929594F1667F8DDFD0F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ Sniff 'N' The Tears - Ride Blue Divide (1982) 2009, Remastered [FLAC|image+.cue]
 magnet:?xt=urn:btih:56E104A2380088A5047E990CEE0A89752D04F42C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:56E104A2380088A5047E990CEE0A89752D04F42C
 ```bash
 magnet:?xt=urn:btih:B1E12D88AD38D94DC90A5CD82DC6774E29D2D7E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:B1E12D88AD38D94DC90A5CD82DC6774E29D2D7E7
 magnet:?xt=urn:btih:76DD3D69D48C449CF10DFED5AD7627B6FDDAB2C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:76DD3D69D48C449CF10DFED5AD7627B6FDDAB2C3
 ```bash
 magnet:?xt=urn:btih:DC7637F9DDB77605957CCB457DF098F57E229D4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ VA - HOUSE AND GIRLS 25 Sexy Grooves Vol 2 (2015) [MP3|320 кб/с]<Deep House, 
 magnet:?xt=urn:btih:23514B108B96D18DDDFEB3ABBC71F8FEF5DC6715
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:23514B108B96D18DDDFEB3ABBC71F8FEF5DC6715
 magnet:?xt=urn:btih:8EB59907CD9F1975B843AFDE783B525D88E83A16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:8EB59907CD9F1975B843AFDE783B525D88E83A16
 ```bash
 magnet:?xt=urn:btih:1C9A788E50BE5855FAFBC6B51975656C66E7A36D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ Subheim - Foray (2015) [FLAC|Lossless|WEB-DL|tracks]<IDM, Ambient, Downtempo, Ex
 magnet:?xt=urn:btih:46DC86FC2E70453E58C92CE54304C2B8B61AA630
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:46DC86FC2E70453E58C92CE54304C2B8B61AA630
 ```bash
 magnet:?xt=urn:btih:DB1FC66F0B3BEE0125F6B102ADBDA75A4B24ECF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:DB1FC66F0B3BEE0125F6B102ADBDA75A4B24ECF6
 magnet:?xt=urn:btih:2546563E2E8AC06E7BEE39D80E35605447496411
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:2546563E2E8AC06E7BEE39D80E35605447496411
 ```bash
 magnet:?xt=urn:btih:7816EA6BA31875080D7B37172AE82590CAA8AB0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +509,8 @@ mSdoS - Cosmic Flow (2015) [MP3|320 кб/с]<Drum & Bass, Liquid Funk>
 magnet:?xt=urn:btih:C1D1596C2B726FF13D0EEA4095995A1F3A84823A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ magnet:?xt=urn:btih:C1D1596C2B726FF13D0EEA4095995A1F3A84823A
 ```bash
 magnet:?xt=urn:btih:D8D67D2EE1F9F250584CEA9E63AAB1AB82EFAD08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +561,8 @@ Topaz Video Enhance AI – это совершенное новое решени
 magnet:?xt=urn:btih:D44FB443D4155F532671624305B86ECCEC49F1EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:D44FB443D4155F532671624305B86ECCEC49F1EC
 ```bash
 magnet:?xt=urn:btih:D01A78BD48BCFE15C44FC64F2632FF5A80E872F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +616,8 @@ Raimond Lap - 2 albums (2004, 2005) [MP3|320 кб/с]<Classical, Instrumental, N
 magnet:?xt=urn:btih:6C1F7AE35F69BB22A87C99EBF3434D1958B14A0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +641,8 @@ utomatic Call Recorder — программа для записи входящи
 ```bash
 magnet:?xt=urn:btih:B719143594BD11B8E55AF71004CE4F66E5286E0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +668,8 @@ magnet:?xt=urn:btih:B719143594BD11B8E55AF71004CE4F66E5286E0A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ magnet:?xt=urn:btih:B719143594BD11B8E55AF71004CE4F66E5286E0A
 ```bash
 magnet:?xt=urn:btih:C9C12FA5AD704F6EDEFE24906BC4D844A9C2EC55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

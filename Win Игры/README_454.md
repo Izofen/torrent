@@ -1,27 +1,3 @@
-###  Публикация: 1203541   (729458) от 20.02.2019
-
-Remothered: Tormented Fathers (2018) [Ru/Multi] (1.5.1) Repack R.G. Catalyst
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Remothered - кинематографичная трилогия в жанре survival horror, подкупающая исключительно реалистичным геймплеем. История насыщена оригинальными сюжетными поворотами, которые не оставят игрока равнодушным. В “Remothered” психология играет важную роль: герои и злодеи не вписываются в рамки стереотипов, а грань между добром и злом размыта.Тип издания: RepackРазработчик: Stormind Games, Darril ArtsЖанр: Action, Horror, Adventure, Stealth, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6685497879DABF86C6516019A7E8F264C85947D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127848   (729498) от 23.04.2017
 
 Quest of the Sorceress / Квест Чародейки (2014) [Ru] (1.0) Unofficial
@@ -42,6 +18,8 @@ Quest of the Sorceress / Квест Чародейки (2014) [Ru] (1.0) Unoffic
 ```bash
 magnet:?xt=urn:btih:8CA5E2117B4AB29056E2A12DE191FAAAE95DB4A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ AWAY: Journey to the Unexpected (2019) [Ru/Multi] (1.6) Repack R.G. Catalyst
 magnet:?xt=urn:btih:613F41DDAABA8DF7B07E9B19FD7A9942AC87AD74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Steins;Gate Elite — это обновлённая версия Steins;Gate 200
 ```bash
 magnet:?xt=urn:btih:96CFE6B9FE95FE5184B570F888A7D526DBCD72F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Hidden Expedition 12: The Eternal Emperor / Секретная экспедиц�
 magnet:?xt=urn:btih:C3F547690E161C111A4EF3B583EFB28CF3B26A30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Detective Gallo – юмористическая нуар point&click адвен
 ```bash
 magnet:?xt=urn:btih:9789BA3FE2F6841CE199263C5DA0A61591A1B476
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Immortal Love 9: True Treasure (2022) [En] (1.0) Unofficial [Collector's Edition
 magnet:?xt=urn:btih:554A38A32BD4843F8F451C76A1F786E15C8CE56C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Elite vs. Freedom (2016) [Eng] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:77D7C332185E4923387E57A6AE293F3FB24711BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Meridian: New World - это стратегия в реальном времен
 magnet:?xt=urn:btih:3E1C84E7711BA6969896475CA2149B70119C8F7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ Dead Island Definitive Edition – переиздание, состоящее и
 ```bash
 magnet:?xt=urn:btih:27EED3002156A4B2BC730896B619775DBBDA77FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ Eador: Masters of the Broken World / Эадор: Владыки миров (2013
 magnet:?xt=urn:btih:C595E3817B03851962A7D8F218EC4858CA4F3EA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ Voodoo Vince Remastered (2017) [Multi] (1.0.0.1) License RELOADED
 ```bash
 magnet:?xt=urn:btih:65FC3D9D430C747CFDCAB656547D81D725A3D0B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ Quantum Replica (2018) [Ru/Multi] (1.0) Repack R.G. Catalyst
 magnet:?xt=urn:btih:884E491AE59CB31606E8BE7423933E2333F53152
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ Unruly Heroes (2019) [Ru/Multi] (1.0/upd3) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:EC1487EFD9419C21734C4B4150B2922DEF5F5C32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ Hero Defense - Haunted Island приглашает всех любителей M
 magnet:?xt=urn:btih:16819F69B65FF5DA0E500A7FD88A15AC2227423C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ Eastshade (2019) [Ru/Multi] (1.07) Repack Other s
 ```bash
 magnet:?xt=urn:btih:478FD70090DD8500E2D2AED51E42F21751C49518
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ Megamagic: Wizards of the Neon Age (2016) [En/Multi] (1.05) License HI2U
 magnet:?xt=urn:btih:64C2A87AC384B1C87EE3EE445D93273EBCB5547F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ Tiny Knight - трехмерный платформер про сражения 
 ```bash
 magnet:?xt=urn:btih:F3CDA7AE9048DC66172BB3FC0B585B8DD2FEC321
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ Tales from the Void (2016) [Ru/Multi] (1.0) License POSTMORTEM
 magnet:?xt=urn:btih:618441FED9DDABE5014E591AC41F1BA313C45D1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ Groovy - это основанная на физике, игра платфор�
 ```bash
 magnet:?xt=urn:btih:A32C296E60F7F86D3FBBE256C4A2C182756170A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ Killer Instinct (2017) [Ru/Multi] (1.0/upd14) Repack xatab
 magnet:?xt=urn:btih:9631A20AF34D4DC114390568B94CE14179A00D1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ NASCAR Heat 3 – гоночный симулятор, являющийся пр
 ```bash
 magnet:?xt=urn:btih:92DBF53AB8FBFC19AB322E1893177A6584BAFA44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ Halloween Chronicles: Monsters Among Us / Хэллоуин: Монстры ср�
 magnet:?xt=urn:btih:7854654C57FCFDB47DE36E65746AD43839DA877E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ Donna Brave: And the Strangler of Paris (2017) [En] (1.0) Unofficial [Collector'
 ```bash
 magnet:?xt=urn:btih:E707D24655A301C7ED2E7FAFEF9DBB249CC8E1B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +617,8 @@ Midnight Calling 4: The Wise Dragon (2017) [En] (1.0) Unofficial [Collector's Ed
 magnet:?xt=urn:btih:BE93506A5DF54BEA708CBA64D82EB0F92EBCD2BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +642,34 @@ magnet:?xt=urn:btih:BE93506A5DF54BEA708CBA64D82EB0F92EBCD2BC
 ```bash
 magnet:?xt=urn:btih:560B048909424F7E2E6BE8ACE22226FFD3627E2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021521   (732389) от 29.05.2016
+
+Meridian: New World (2014) [Ru/Multi] (1.04) License PROPHET
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Meridian: New World — это стратегия, в которой вы играете роль Дэниела Хансона, коммандира первой экспедиции на планету Меридиан. Ваше цель — разведать тамошние секреты. Сформируйте мир вокруг себя посредством каждого принятого решения и каждого проведенного с командой диалога.Тип издания: LicenseРазработчик: Elder GamesЖанр: Strategy (Real-time), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11FB22200E929AB8E5DE3F7824FD7182C39FCAF8
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

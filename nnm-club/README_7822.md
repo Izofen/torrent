@@ -19,6 +19,8 @@ Udemy, Maria Brodskaya | Тестирование ПО для начинающи
 magnet:?xt=urn:btih:7A60541C7B124D528C2DCDC197EE70E72C52721B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:7A60541C7B124D528C2DCDC197EE70E72C52721B
 magnet:?xt=urn:btih:D6B8456A0CA59B4F1E733FC01CDA8FB6E88131E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ AnyGo 5.2.5 [En]
 ```bash
 magnet:?xt=urn:btih:5A9F586D3D5507F178372626142C33E63BCCDC76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Diseased Earth - Welcome the plague years (2023) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:4CA375D5A3CDC3D0A3952E41C358046659E17A2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:4CA375D5A3CDC3D0A3952E41C358046659E17A2F
 magnet:?xt=urn:btih:B620216BE1D8B126A62D320544257911621BC5B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Godlike Burger (2022) [Ru/Multi] (1.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:EF76CD91FC1840BDDD41D54DC21AD4216E772CE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:EF76CD91FC1840BDDD41D54DC21AD4216E772CE0
 magnet:?xt=urn:btih:A11F90BDC44197B0579854CA214FFBD8A15D9C98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Pulsar Modular - P440 Sweet Spot 1.0.0 VST 3, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:7C9D1CA1A011F4B511CE851A6FE266903144E233
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Host - IX (2023) Deluxe Version [FLAC|Lossless|WEB-DL|tracks] <Gothic-Rock, Dark
 magnet:?xt=urn:btih:6B94D894610E0F866EADF865759FFBB1FD7A71EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ The Fire Mystical - The Fire Mystical (2023) [FLAC|Lossless|WEB-DL|tracks] <Heav
 magnet:?xt=urn:btih:7A34FD23021053077FE9EDE7B11B4F3733DB7125
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:7A34FD23021053077FE9EDE7B11B4F3733DB7125
 ```bash
 magnet:?xt=urn:btih:E77F511279A84564FB490DD14772F5A780E6717A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ The Gnomon Workshop, Guilherme Rambelli | Creating Assets for Games using Photog
 magnet:?xt=urn:btih:FDF3146EB267C05F9C859E89B20533661B74B063
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:FDF3146EB267C05F9C859E89B20533661B74B063
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:FDF3146EB267C05F9C859E89B20533661B74B063
 ```bash
 magnet:?xt=urn:btih:D1A3DF49DFB7E7A7F785EEA96F3F80597D9860E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ Cisdem PDF Converter OCR- быстро и аккуратно конвертир�
 magnet:?xt=urn:btih:6F8DD638450FF17418C7A4226618E09E1395789E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:6F8DD638450FF17418C7A4226618E09E1395789E
 ```bash
 magnet:?xt=urn:btih:B8F61C1ABC73628125AFA1538DCE4FD3A5C4C713
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ Greg Cohen - Way Low (1996) DIW [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, 
 magnet:?xt=urn:btih:F5A87753528A80C41D71B77D569A10B834C1E65D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ Udemy, Andrii Polishchuk | React Hooks в Деталях (2021) WEB-DL [RU]
 magnet:?xt=urn:btih:6B26FEC67687E3FA24EACC6CA5104147EFD944A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:6B26FEC67687E3FA24EACC6CA5104147EFD944A8
 ```bash
 magnet:?xt=urn:btih:31B49A1AA5DE85DFF0EB7865A7B4C6A0B02A70FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:31B49A1AA5DE85DFF0EB7865A7B4C6A0B02A70FE
 magnet:?xt=urn:btih:C17A8EC461CB0B0EE750D205D5F3C82A2750F4B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ magnet:?xt=urn:btih:C17A8EC461CB0B0EE750D205D5F3C82A2750F4B3
 magnet:?xt=urn:btih:792EB6677C338DBFEC60B36200DC9652AF07C7BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +580,8 @@ Snap Art 4 - этот плагин предназначен для превра�
 ```bash
 magnet:?xt=urn:btih:5F389D4139819F07D47D5E343E7C5DC0E5508A66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +610,8 @@ Black Lava - Soul Furnace (2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened Death 
 magnet:?xt=urn:btih:EEBB68CAFC6CCA930776E9D808B17481C2BA31B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ magnet:?xt=urn:btih:EEBB68CAFC6CCA930776E9D808B17481C2BA31B2
 ```bash
 magnet:?xt=urn:btih:BC894AB254228B21EB2EF50B96267256C54F3CA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +665,8 @@ Nepenthes - Grand Guignol (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 magnet:?xt=urn:btih:777CF535E9B75938570D428ECFD7A2566CEE7482
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ magnet:?xt=urn:btih:777CF535E9B75938570D428ECFD7A2566CEE7482
 ```bash
 magnet:?xt=urn:btih:54847B43FB5A98FFFD8F31A19C778C6CB0698B32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

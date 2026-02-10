@@ -19,6 +19,8 @@ Project Warlock - это шутер от первого лица, который
 magnet:?xt=urn:btih:C05995F6D8A1892EB96953860819AC43F3F2D76E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Shardpunk: Verminfall - изометрическая игра, геймплей 
 ```bash
 magnet:?xt=urn:btih:357F21369E8671885063C7889F0A5931E1B9479B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Unexplored 2 создаёт для вас огромный, богатый фэ�
 magnet:?xt=urn:btih:A4DB2815A7F96AECE50C134EC70EA947873AAB97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:A4DB2815A7F96AECE50C134EC70EA947873AAB97
 magnet:?xt=urn:btih:94A8A130A0B76331D730152E0643EFB4E998B07E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:94A8A130A0B76331D730152E0643EFB4E998B07E
 ```bash
 magnet:?xt=urn:btih:A4E5C4AE891B0A846526ED9F446DC25BD54B7DEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:A4E5C4AE891B0A846526ED9F446DC25BD54B7DEE
 magnet:?xt=urn:btih:1CF6A01A1734ED9907585AC927F7420C4C80FEB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Windows 10 Enterprise LTSC x64 21Н2 (build 19044.5917) by ivandubskoj 02.06.202
 ```bash
 magnet:?xt=urn:btih:C8B7F7EC6E0A148FB8AF282808A7586D7406A0FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:C8B7F7EC6E0A148FB8AF282808A7586D7406A0FF
 magnet:?xt=urn:btih:70CC092296F56BFF419569504D9AC28D7E83340C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Kingdom Rush Vengeance – это стратегия в реальном вре�
 ```bash
 magnet:?xt=urn:btih:D9E5A40053FF01F7D86A0487D81D2F83347E1734
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:D9E5A40053FF01F7D86A0487D81D2F83347E1734
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:D9E5A40053FF01F7D86A0487D81D2F83347E1734
 ```bash
 magnet:?xt=urn:btih:9DE250AF14001AB6D977F0ACCB47EC24B9268D28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Symphony of War: The Nephilim Saga повествует о событиях, к�
 magnet:?xt=urn:btih:5923444DA56DAC8B5FE681B0E53BFB26DE890A17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:5923444DA56DAC8B5FE681B0E53BFB26DE890A17
 ```bash
 magnet:?xt=urn:btih:04619AA3B2A816A36D9CD1327DECD53295DFA45E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Acrobat Pro — это полностью обновленная настоль�
 magnet:?xt=urn:btih:2A8480D35A719A15750EB58BB2DFE215902744CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:2A8480D35A719A15750EB58BB2DFE215902744CE
 ```bash
 magnet:?xt=urn:btih:348140F1062FD943C783CA620EE229ED276D5258
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ Proton VPN — это единственное в мире бесплатное 
 magnet:?xt=urn:btih:73EB4566F9E0FE5A0AEFB28C36931B5DBD7C973E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:73EB4566F9E0FE5A0AEFB28C36931B5DBD7C973E
 ```bash
 magnet:?xt=urn:btih:B378638CF172BAFF888E72F14920DA32B6137833
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:B378638CF172BAFF888E72F14920DA32B6137833
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:B378638CF172BAFF888E72F14920DA32B6137833
 magnet:?xt=urn:btih:117A5F8C542DBE273EE02290BCCCE4645C4EE695
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ magnet:?xt=urn:btih:117A5F8C542DBE273EE02290BCCCE4645C4EE695
 ```bash
 magnet:?xt=urn:btih:2A49DD639447DCC5091A132B71A3407CF9DD377F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ Robin Schulz - Uncovered (2017) [FLAC|Lossless|image + .cue] <Electronic, Dance-
 magnet:?xt=urn:btih:D3F5C8B22DEC4AC4D43C464896AF14966D6DD37E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Rhythmsoul - Wasted Dreams & Lonesome Roads (2025) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:2C4E5F4D293A9994AD2C07D317B491ECCCC35438
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ Ina Forsman - After Dark Hour (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
 magnet:?xt=urn:btih:E6DA7E6FFCB8CD506581F435B468BA3C83F39B60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ Pearl Alley - 'Bout Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:720DE61AD4D81026B4005111D703A19EA08B4F88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +659,8 @@ VA - Ori Uplift - Uplifting Only Episode 643 (2025) [MP3|320 Kbps] <Trance, Upli
 magnet:?xt=urn:btih:25C1CBB63766A4E78C8192A2C7ADDA5F6BDC801E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ Rick Tobey - Sippin It Slow Radio Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 ```bash
 magnet:?xt=urn:btih:061A2599AB04B8B783F50AB63A47592BB22A4123
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

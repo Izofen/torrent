@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:14522E9AFEBD010425E9BD5B728C3DE51F5A84EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:D81BB37B942AF2C1A996BBC82F0DBD6EF37E0AC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:D81BB37B942AF2C1A996BBC82F0DBD6EF37E0AC8
 magnet:?xt=urn:btih:3A7BF04A8123E907CC3934412936007752A78BFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:3A7BF04A8123E907CC3934412936007752A78BFF
 ```bash
 magnet:?xt=urn:btih:5A0D7522C9BFAE52AA283085E74878CB84F2C819
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Port Royale 3: Pirates & Merchants (RUS) [WineSkin]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Port Royale 3: Pirates & Merchants (RUS) [WineSkin]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Port Royale 3: Pirates & Merchants (RUS) [WineSkin]
 ```bash
 magnet:?xt=urn:btih:CB82214C19518536A7DD289F915004338D58D4C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:CB82214C19518536A7DD289F915004338D58D4C3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:CB82214C19518536A7DD289F915004338D58D4C3
 ```bash
 magnet:?xt=urn:btih:7BF583F1C3A41FD01C26A7594D270B0777114FC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:7BF583F1C3A41FD01C26A7594D270B0777114FC0
 magnet:?xt=urn:btih:78B28E4C0BD8D1AFB16D6F58B6C11DBEF87D7E54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:78B28E4C0BD8D1AFB16D6F58B6C11DBEF87D7E54
 ```bash
 magnet:?xt=urn:btih:BCEEF5C47E81652EB4B6AA2617DB9E49922B879D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Photo Bundle collection - cборник из всех последних вып�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Photo Bundle collection - cборник из всех последних вып�
 ```bash
 magnet:?xt=urn:btih:EBDFD4AC3C4619478C4F8321312D0C0D276C6C02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ Red Orchestra 2: Heroes of Stalingrad Game of the Year Edition [En] (L) 2011 | H
 magnet:?xt=urn:btih:76E19A0331373F6BFCA2303813732E22BDC9BC57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:76E19A0331373F6BFCA2303813732E22BDC9BC57
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:76E19A0331373F6BFCA2303813732E22BDC9BC57
 magnet:?xt=urn:btih:F3E29CEC7F138381F1417300DE7F42FE455E91CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:F3E29CEC7F138381F1417300DE7F42FE455E91CF
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Chicken Rush Deluxe / Куриная месть. Снова в деле (P) [Ru]
 ```bash
 magnet:?xt=urn:btih:D1C3563D620A2D95959A54C27881806BFA8D0E55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:D1C3563D620A2D95959A54C27881806BFA8D0E55
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ Red Orchestra 2: Heroes of Stalingrad [Ru] (RePack) 2011 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:D71EA4CF8F9DAA5B59A7C052F5C9754A696FA94A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +559,8 @@ Multiboot flash gnom26rus edition [эксклюзивно для NNM-club] [Ru,E
 magnet:?xt=urn:btih:A8738817939E0A8208A48FDA63B386A628E13F0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:A8738817939E0A8208A48FDA63B386A628E13F0D
 ```bash
 magnet:?xt=urn:btih:C5452C62A11EA5943D6CB2734CCCAF6B0B4C4194
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +619,8 @@ No-Man - 18 albums (1993-2012) [FLAC/APE|Lossless] <Progressive Rock, Ambient, A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +644,8 @@ No-Man - 18 albums (1993-2012) [FLAC/APE|Lossless] <Progressive Rock, Ambient, A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +671,8 @@ No-Man - 18 albums (1993-2012) [FLAC/APE|Lossless] <Progressive Rock, Ambient, A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ No-Man - 18 albums (1993-2012) [FLAC/APE|Lossless] <Progressive Rock, Ambient, A
 ```bash
 magnet:?xt=urn:btih:A9A17E60D6D33C49DB9753B81EE6C1D3AF9732AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

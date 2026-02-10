@@ -1,27 +1,3 @@
-###  Публикация: 905698   (647450) от 07.06.2015
-
-Нагрудный знак 373 / Badge 373 (1973) IPTVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полицейский детектив в одиночку ищет убийцу напарника даже после того, как его отстранили от дела. Этот боевик основан на реальном опыте полицейского.Производство: США, Paramount PicturesЖанр: Криминал, Триллер, ДрамаРежиссер: Ховард Коч / Howard W. KochАктеры: Роберт Дювалл, Верна Блум, Генри Дэрроу, Эдди Иган, Фелипе Лучиано, Тина Кристиани, Марина Дарелл, Чико Мартинес, Хосе Дюваль, Луис КозентиноПеревод: Многоголосый закадровыйПродолжительность: 01:50:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1511C99BFA603F6E0EF1D024A0A8FE59E13F5DB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 517676   (647499) от 01.07.2012
 
 Сети зла / Dragnet (1987) DVDRip
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:1511C99BFA603F6E0EF1D024A0A8FE59E13F5DB3
 ```bash
 magnet:?xt=urn:btih:A5AA51055D3A9C94F432F98CE6DB79F967739C5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:A5AA51055D3A9C94F432F98CE6DB79F967739C5E
 magnet:?xt=urn:btih:B107973B4354951197B61D4742B4D8935049F885
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:B107973B4354951197B61D4742B4D8935049F885
 ```bash
 magnet:?xt=urn:btih:F65CAD9EBD4E31CF9D6638151F74D525A4FD9EBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:F65CAD9EBD4E31CF9D6638151F74D525A4FD9EBB
 magnet:?xt=urn:btih:D7D61E5DF61BF286E4B455B8B53FD16801295420
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +123,8 @@ magnet:?xt=urn:btih:D7D61E5DF61BF286E4B455B8B53FD16801295420
 magnet:?xt=urn:btih:EBB44CBD1D5942712F0CD5174B4E8CC2EAFCDFEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +148,8 @@ magnet:?xt=urn:btih:EBB44CBD1D5942712F0CD5174B4E8CC2EAFCDFEF
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +176,8 @@ magnet:?xt=urn:btih:EBB44CBD1D5942712F0CD5174B4E8CC2EAFCDFEF
 magnet:?xt=urn:btih:FF6CC38E21C7AB6D5ECF4623AEDFE9EF9495379C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:FF6CC38E21C7AB6D5ECF4623AEDFE9EF9495379C
 ```bash
 magnet:?xt=urn:btih:4AE64A3366447E59602C60B95F7328B1383ADC8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +228,8 @@ magnet:?xt=urn:btih:4AE64A3366447E59602C60B95F7328B1383ADC8A
 magnet:?xt=urn:btih:569C3DC3276A79C0267C797C9FAA7FC97C8CD56E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +254,8 @@ magnet:?xt=urn:btih:569C3DC3276A79C0267C797C9FAA7FC97C8CD56E
 magnet:?xt=urn:btih:3D46E60974ECD61137135722A3E60F46E3BEBDB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +279,8 @@ magnet:?xt=urn:btih:3D46E60974ECD61137135722A3E60F46E3BEBDB9
 ```bash
 magnet:?xt=urn:btih:FD09199BAB5E48C8FBC709378B970788A15B95B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +307,8 @@ magnet:?xt=urn:btih:FD09199BAB5E48C8FBC709378B970788A15B95B4
 magnet:?xt=urn:btih:46653786411EC76A21210E64BB901A7618E1BFFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +332,8 @@ magnet:?xt=urn:btih:46653786411EC76A21210E64BB901A7618E1BFFE
 ```bash
 magnet:?xt=urn:btih:AD4BAC867F5087DA9619E479F7DBDCEE4312C3E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +359,8 @@ magnet:?xt=urn:btih:AD4BAC867F5087DA9619E479F7DBDCEE4312C3E7
 magnet:?xt=urn:btih:D07F89D3163BFD7CD8A301310E1CB1EA347F84B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +384,8 @@ magnet:?xt=urn:btih:D07F89D3163BFD7CD8A301310E1CB1EA347F84B6
 ```bash
 magnet:?xt=urn:btih:C8A3E925812AD2C6C6BA995A5869387E173B775B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +411,8 @@ magnet:?xt=urn:btih:C8A3E925812AD2C6C6BA995A5869387E173B775B
 magnet:?xt=urn:btih:88407CF8F3A6FE98F48273BE6BC66F4EAB5837E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +436,8 @@ magnet:?xt=urn:btih:88407CF8F3A6FE98F48273BE6BC66F4EAB5837E6
 ```bash
 magnet:?xt=urn:btih:DEAAC5EE3665B1EB1384C571899FA495BED48C0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +463,8 @@ magnet:?xt=urn:btih:DEAAC5EE3665B1EB1384C571899FA495BED48C0C
 magnet:?xt=urn:btih:47A8C612B09C2CCE03331379AEFBEB9087AE587F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +488,8 @@ magnet:?xt=urn:btih:47A8C612B09C2CCE03331379AEFBEB9087AE587F
 ```bash
 magnet:?xt=urn:btih:EC92ED91DC083C32C178275A6D863B144A5B51FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +515,8 @@ magnet:?xt=urn:btih:EC92ED91DC083C32C178275A6D863B144A5B51FC
 magnet:?xt=urn:btih:965DDADDE3866C746ABC7744C3C8C9822120D4B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +540,8 @@ magnet:?xt=urn:btih:965DDADDE3866C746ABC7744C3C8C9822120D4B1
 ```bash
 magnet:?xt=urn:btih:9325E5DC6AC36465A23E4107D17F2DC73ACD6748
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +567,8 @@ magnet:?xt=urn:btih:9325E5DC6AC36465A23E4107D17F2DC73ACD6748
 magnet:?xt=urn:btih:EB72FE8A1CF8CB2C32B82F0E629EE63475D3A7A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +592,8 @@ magnet:?xt=urn:btih:EB72FE8A1CF8CB2C32B82F0E629EE63475D3A7A9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +620,8 @@ magnet:?xt=urn:btih:EB72FE8A1CF8CB2C32B82F0E629EE63475D3A7A9
 magnet:?xt=urn:btih:BA8078C619EAF73F865900009C4E689764BE2D1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +645,34 @@ magnet:?xt=urn:btih:BA8078C619EAF73F865900009C4E689764BE2D1F
 ```bash
 magnet:?xt=urn:btih:5A6CE5B4DD8BDE9801EBCBBBE78E5FE28D14336D
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540431   (652445) от 30.03.2022
+
+Другой ад / L'altro inferno / The Other Hell (1981) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652445.jpg" />
+</div>
+
+
+###  Подробнее
+
+В одном из женских монастырей Италии за короткое время насильственной смертью умерли несколько монахинь, и для расследования этого происшествия туда был послан седовласый отец Инардо. После краткого разбирательства святой отец пришел к выводу, что в монастыре пустил свои корни дьявол, в результате чего в монастырь отправился молодой отец Валерио, который начал собственное (   Читать дальше...   )Производство: Италия, Cinemec ProduzioneЖанр: ужасы, триллерРежиссер: Бруно МаттеиАктеры: Франка Стоппи, Карло Де Мейо, Francesca Carmeno, Сьюзэн Форгет, Франко Гарофало, Паола Монтенеро, Ornella Picozzi, Андреа Аурели, Адриана Бруно, Долорес КалоПеревод: Одноголосый любительскийСубтитры: отсутствуютПродолжительность: 01:28:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE30E81BF82A678617CB21AC12D5B2B695B8B49B
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

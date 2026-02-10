@@ -19,6 +19,8 @@ Endzone 2 бросает вас в самую гущу постапокалип�
 magnet:?xt=urn:btih:C86A5DE4E9319E07FA4CB334D783A25892E99478
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Forever Skies – это нетипичное выживание, в мире п
 ```bash
 magnet:?xt=urn:btih:3DBA1A955E07C7C277BF98575541470A8E1C7647
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Cataclismo вводит игроков в роль лидера, ответст�
 magnet:?xt=urn:btih:7D4723DFFA27F834FD4DC81BACD9399492290B93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Low Magic Age - стратегия в средневековом сеттинг�
 ```bash
 magnet:?xt=urn:btih:A3D057855DE03569AF337D43A3DC0C4D6C79A306
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ VOIN (2024) [Ru/Multi] (0.1.0) Repack Let'sРlay [Early Access]
 magnet:?xt=urn:btih:9643372B8F333CA48B68CBCF28CF2EE60A2AFB3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Scrap Mechanic – креативный симулятор выживания, �
 ```bash
 magnet:?xt=urn:btih:8C1B56E7108C37B8C29930B0814F045068BDCB5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Forever Skies – это нетипичное выживание, в мире п
 magnet:?xt=urn:btih:E0F36ECC1A29B07B51A82CDCC1E84C2D993EDA91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Ostriv - это градостроительная стратегия, кото�
 ```bash
 magnet:?xt=urn:btih:D14DFA045A2AC16EC6C4E23E0D64F9D98C7C6F29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ B-17 Flying Fortress : The Mighty 8th Redux (2024) [En] (1.0.15) License GOG [Ea
 magnet:?xt=urn:btih:133EF985F12DB2237CC34411785F98EB211D5097
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Long Drive – приключенческий гоночный симуля�
 ```bash
 magnet:?xt=urn:btih:ECF052264A682EBFC0D3F3ED2F4BA9702D663EF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Rogue Prince of Persia – экшен-платформер в жанре rog
 magnet:?xt=urn:btih:81E95FB4745665444D034E9E1C65A4FA25DF95AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ ASKA - это ролевой экшен от 3-го лица, в котором 
 ```bash
 magnet:?xt=urn:btih:9938C4367ECCBA2FC4B9D99F4E5C9B56E7BB58CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Endless Sky - космическое приключение, в котором �
 magnet:?xt=urn:btih:8990530DF60CCD72941520CEDE0BB1763B501149
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ The Last Plague: Blight является симулятором выживани
 ```bash
 magnet:?xt=urn:btih:3CCF203B2A290A96BF93A68601E07F1700EF529F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Inside the Backrooms (2022) [Ru/Multi] (0.5.3) Repack Pioneer [Early Access]
 magnet:?xt=urn:btih:AFCEEE4C193F8943FE12A950A9F2B77BFCBA55F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Valheim - выживастик в открытом мире, где вы буд�
 ```bash
 magnet:?xt=urn:btih:08380793ED422F71FB0324660AE42C89DE5EFF82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Flotsam (2019) [Ru/Multi] (0.8.5f1) License GOG [Early Access]
 magnet:?xt=urn:btih:AF3111CC7F7FFE432BEFBE317779A68DDC433B8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Craftomation 101: Programming and Craft предлагает геймерам о
 ```bash
 magnet:?xt=urn:btih:E1114BE6DF9CEC7628B72AF9348783D0D12E7D06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Pine Harbor - мрачная игра в жанре экшен-хоррора, �
 magnet:?xt=urn:btih:948D2732BB94E4CCC84FFA68B1943E4094020BF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Manor Lords - стратегическая игра в эпоху среднев
 ```bash
 magnet:?xt=urn:btih:1BA04324E59F72779C1F73B4B86F8BBAAE7BF228
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Planternauts (2024) [Ru/Multi] (1.0) Repack FitGirl [Early Access]
 magnet:?xt=urn:btih:8A3864D1B22D1F134F15B26A52E75CD69F79448A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ GOAL! The Club Manager (2022) [Multi] (0.8.0.1) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:215AA9295FC80092F6B869720499E45BE0D6B415
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Beyond Hanwell - это насыщенная, детальная и атмосф
 magnet:?xt=urn:btih:A15DBB94EE0E1986DF136592B8734DBE138BCCF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Moons of Ardan (2021) [Multi] (0.11.0.16) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:6D30D7B722BDDFFAFC50109AF69D86E5DFFBB83D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Songs of Syx – это градостроительный симулятор с
 magnet:?xt=urn:btih:04567AE60F14BD5971CFEAFEDE42F0FE9F48F94C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Astrox Imperium - космический симулятор с элемента�
 ```bash
 magnet:?xt=urn:btih:A8DF4134143137345D6876B3B6324FC6C1BAA42C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

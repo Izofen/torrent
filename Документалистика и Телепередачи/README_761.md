@@ -1,3 +1,29 @@
+###  Публикация: 1444177   (1034946) от 31.01.2021
+
+Своя игра (31.01.2021) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Телекомпания: «НТВ»Жанр: Интеллектуальная играСубтитры: ОтсутствуютПродолжительность: 00:41:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2295184A21A896A63EB39BBAA3F37865F10ED2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444248   (1034947) от 31.01.2021
 
 Маунт-Рейнир / Mount Rainier (2019) WEBRip [H.264/2160p]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:B7D8A7469F8DBDF0786086F70F7A8014AD63C2CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:B7D8A7469F8DBDF0786086F70F7A8014AD63C2CF
 magnet:?xt=urn:btih:96680B31DE19FD066023F8E36364070ABFA5052F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:96680B31DE19FD066023F8E36364070ABFA5052F
 ```bash
 magnet:?xt=urn:btih:5D586D156670DDC996EE2A3C03E1EF5C1CDA5FEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:5D586D156670DDC996EE2A3C03E1EF5C1CDA5FEA
 magnet:?xt=urn:btih:35A8FD69BE5528DD77BC96EF7D8115A674B5A5F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:35A8FD69BE5528DD77BC96EF7D8115A674B5A5F5
 ```bash
 magnet:?xt=urn:btih:1F6F147B90CE0D74085CB340C5BC9EFB6AA90788
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:1F6F147B90CE0D74085CB340C5BC9EFB6AA90788
 magnet:?xt=urn:btih:22018D1DC2FC6FE44927658AA83E9720B9B778E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:22018D1DC2FC6FE44927658AA83E9720B9B778E9
 ```bash
 magnet:?xt=urn:btih:E25862F181209BBB61358C897ECBA2E84A93FCEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:E25862F181209BBB61358C897ECBA2E84A93FCEF
 magnet:?xt=urn:btih:DA108F836D399E3F42D265C312F4C8F961E3638F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:DA108F836D399E3F42D265C312F4C8F961E3638F
 ```bash
 magnet:?xt=urn:btih:521B7321D3018597062084255C18D6287F2DC861
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:521B7321D3018597062084255C18D6287F2DC861
 magnet:?xt=urn:btih:1639068D83C40B4AD06C86304EDF0754451B4D04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:1639068D83C40B4AD06C86304EDF0754451B4D04
 ```bash
 magnet:?xt=urn:btih:30418A8849F7C10E51F2884C8299E4D7C0C57FF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:30418A8849F7C10E51F2884C8299E4D7C0C57FF8
 magnet:?xt=urn:btih:6E5A1A40385770FF9C605AF5280FA5BB0DF28CBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +356,8 @@ magnet:?xt=urn:btih:6E5A1A40385770FF9C605AF5280FA5BB0DF28CBA
 ```bash
 magnet:?xt=urn:btih:D3AAA9D911E1A16B0409F2812B2B657BC61BBB54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:D3AAA9D911E1A16B0409F2812B2B657BC61BBB54
 magnet:?xt=urn:btih:8AF62F55A29C01492346D02E050AFE074B80B7D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +408,8 @@ magnet:?xt=urn:btih:8AF62F55A29C01492346D02E050AFE074B80B7D6
 ```bash
 magnet:?xt=urn:btih:8B8255B9C235CA6EF594BFC1C514D0955740AA61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:8B8255B9C235CA6EF594BFC1C514D0955740AA61
 magnet:?xt=urn:btih:46515AC2F1DB75D4AC1CCB7A9F3BE0AFCDF0366C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +460,8 @@ magnet:?xt=urn:btih:46515AC2F1DB75D4AC1CCB7A9F3BE0AFCDF0366C
 ```bash
 magnet:?xt=urn:btih:741E5AA5CE6289AE3A669050FA3E582DFBFFFCC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +487,8 @@ magnet:?xt=urn:btih:741E5AA5CE6289AE3A669050FA3E582DFBFFFCC8
 magnet:?xt=urn:btih:58906960050C5C2CA759D9EF6D13ED990DEB552A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +512,8 @@ magnet:?xt=urn:btih:58906960050C5C2CA759D9EF6D13ED990DEB552A
 ```bash
 magnet:?xt=urn:btih:85224BD40B96508824AF3260D6113C504A893083
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +539,8 @@ magnet:?xt=urn:btih:85224BD40B96508824AF3260D6113C504A893083
 magnet:?xt=urn:btih:77E983937C2DAF7E76FE219F9755BCFA84B780A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +564,8 @@ magnet:?xt=urn:btih:77E983937C2DAF7E76FE219F9755BCFA84B780A1
 ```bash
 magnet:?xt=urn:btih:0A52300A75F1777ACD6E0C9738F1708E5243ADF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +591,8 @@ magnet:?xt=urn:btih:0A52300A75F1777ACD6E0C9738F1708E5243ADF4
 magnet:?xt=urn:btih:574B692346BCC7D95D54CD247072ECE3BAB97F80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +616,8 @@ magnet:?xt=urn:btih:574B692346BCC7D95D54CD247072ECE3BAB97F80
 ```bash
 magnet:?xt=urn:btih:CCF097DEF55C155749A37B55CA1A8FC60D107AC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +646,8 @@ magnet:?xt=urn:btih:CCF097DEF55C155749A37B55CA1A8FC60D107AC4
 magnet:?xt=urn:btih:64554BC1DE3383905A6684AD57BD8044A1745514
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,29 +672,7 @@ magnet:?xt=urn:btih:64554BC1DE3383905A6684AD57BD8044A1745514
 magnet:?xt=urn:btih:519DB275D8B8E5C9C263046DF05378C88153BCC2
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617196   (1035565) от 05.03.2023
-
-Дзига Вертов. Киноглаз (1924) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Кинолетопись Страны Советской
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм о новом государстве — СССР. Представляет собой сборник небольших эпизодов о жизни Советского Союза, объединенных в серию «Жизнь врасплох». Большое внимание уделено детям и их пионерской организации. Также показаны кооперативы того времени, слон, борьба с туберкулезом, скорая медицинская помощь, сумасшедший дом, занятия по физике для рабочих... (   Читать дальше...   )Производство: СССР, Культкино, ГоскиноЖанр: документальный, историяРежиссер: Дзига ВертовЯзык озвучки: немойСубтитры: Русские (интертитры)Продолжительность: 01:18:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8C52F561ABCF8A8A1052659E480AAC33F235B72
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

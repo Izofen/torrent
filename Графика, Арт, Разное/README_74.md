@@ -1,51 +1,3 @@
-###  Публикация: 932536   (508859) от 29.08.2015
-
-Картинки - Живые фотографии [GIF]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508859.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Живые фотографии" привлекли внимание пользователей интернета с первого дня появления в сети. Все необычное и красивое неизбежно притягивает и будет привлекать к себе людей, так как тяга к прекрасному изначально заложена в каждом человеке. Мы любуемся красотой, вдохновляемся, душа наполняется восхищением и приятными эмоциями, поэтому, несомненно, красота (   Читать дальше...   )Формат: GIFРазрешение файлов: от 500х269 до 800х1066
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E9459972F237F519161C06CA023E0D78ED821C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932491   (509164) от 29.08.2015
-
-Обои - Ситуации 2 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509164.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои на ситуационную темуФормат: JPGРазрешение файлов: 1280x960 - 2560x1920
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7D9A019F0A1F9054946B00BC7E4EA1DA7D093AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932200   (509191) от 29.08.2015
 
 Обои - Пёс с ней, с осенью. 1920x1080 - 160 шт [JPG]
@@ -66,6 +18,8 @@ magnet:?xt=urn:btih:F7D9A019F0A1F9054946B00BC7E4EA1DA7D093AC
 ```bash
 magnet:?xt=urn:btih:8E04962415E880BF615CD0294A7882C8FC1680C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +45,8 @@ magnet:?xt=urn:btih:8E04962415E880BF615CD0294A7882C8FC1680C9
 magnet:?xt=urn:btih:FA64D5EDD11AEEA923600A59DE33C0239BCAF99B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +70,8 @@ magnet:?xt=urn:btih:FA64D5EDD11AEEA923600A59DE33C0239BCAF99B
 ```bash
 magnet:?xt=urn:btih:C2D450070FF9D536BD9052DEB6C4B94B0DCBFE9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +97,8 @@ magnet:?xt=urn:btih:C2D450070FF9D536BD9052DEB6C4B94B0DCBFE9C
 magnet:?xt=urn:btih:84CE59E1A9EF81D39AC2801EA6440A1F9EB4F5D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +122,8 @@ magnet:?xt=urn:btih:84CE59E1A9EF81D39AC2801EA6440A1F9EB4F5D1
 ```bash
 magnet:?xt=urn:btih:A4E35FAA12217AA0E150B29DA5D5C8C47BF10BF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +149,8 @@ magnet:?xt=urn:btih:A4E35FAA12217AA0E150B29DA5D5C8C47BF10BF3
 magnet:?xt=urn:btih:0598A9087A951BD6D3038EAED6E34BE521E31BDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +174,8 @@ magnet:?xt=urn:btih:0598A9087A951BD6D3038EAED6E34BE521E31BDA
 ```bash
 magnet:?xt=urn:btih:EAA1668EF5F8866CDA3C608FE78A71B7C6D8BD8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +201,8 @@ magnet:?xt=urn:btih:EAA1668EF5F8866CDA3C608FE78A71B7C6D8BD8F
 magnet:?xt=urn:btih:55EE361960BEC529E97E22C2DFD52547CBBF6FCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +226,8 @@ magnet:?xt=urn:btih:55EE361960BEC529E97E22C2DFD52547CBBF6FCC
 ```bash
 magnet:?xt=urn:btih:F7ABA296DB0CCBF7FC592C20EC88B674A9733100
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +253,8 @@ magnet:?xt=urn:btih:F7ABA296DB0CCBF7FC592C20EC88B674A9733100
 magnet:?xt=urn:btih:621F599F3F23A378C086C9FAB6FF6E9A1767433C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +278,8 @@ magnet:?xt=urn:btih:621F599F3F23A378C086C9FAB6FF6E9A1767433C
 ```bash
 magnet:?xt=urn:btih:8540007B12F83E92D61B51BD4CC182839E963712
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +305,8 @@ magnet:?xt=urn:btih:8540007B12F83E92D61B51BD4CC182839E963712
 magnet:?xt=urn:btih:D538E957199272739D793B5CC5A8F12029BBD6ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +330,8 @@ magnet:?xt=urn:btih:D538E957199272739D793B5CC5A8F12029BBD6ED
 ```bash
 magnet:?xt=urn:btih:FD0E92CD282C4E4E4BD6ADC7A28BD221A743B707
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +357,8 @@ magnet:?xt=urn:btih:FD0E92CD282C4E4E4BD6ADC7A28BD221A743B707
 magnet:?xt=urn:btih:AA5A66298A9F32E723D68FAA18BDD692D7F20237
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +382,8 @@ magnet:?xt=urn:btih:AA5A66298A9F32E723D68FAA18BDD692D7F20237
 ```bash
 magnet:?xt=urn:btih:782DE6C122AA1D9B66DB5EA5049464C05B08F165
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +409,8 @@ magnet:?xt=urn:btih:782DE6C122AA1D9B66DB5EA5049464C05B08F165
 magnet:?xt=urn:btih:7C1F63B9B0674606D508F5839D866D5FB97B9684
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +434,8 @@ magnet:?xt=urn:btih:7C1F63B9B0674606D508F5839D866D5FB97B9684
 ```bash
 magnet:?xt=urn:btih:6B788F42D076345A473843E37FAD2DBCE0EC51AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +461,8 @@ magnet:?xt=urn:btih:6B788F42D076345A473843E37FAD2DBCE0EC51AE
 magnet:?xt=urn:btih:4879504F990365BC20919F5A8A1EDC679A47B130
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +486,8 @@ magnet:?xt=urn:btih:4879504F990365BC20919F5A8A1EDC679A47B130
 ```bash
 magnet:?xt=urn:btih:BA6DEA5B589651A9FB3DE5EA7E99018EB207BDF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +513,8 @@ magnet:?xt=urn:btih:BA6DEA5B589651A9FB3DE5EA7E99018EB207BDF2
 magnet:?xt=urn:btih:2F098D4F85CA588E52EB1212D63DFF93C0F0F0F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +538,8 @@ magnet:?xt=urn:btih:2F098D4F85CA588E52EB1212D63DFF93C0F0F0F0
 ```bash
 magnet:?xt=urn:btih:6223D8A139071FE077B820F3310792E7F7B995A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +565,8 @@ magnet:?xt=urn:btih:6223D8A139071FE077B820F3310792E7F7B995A7
 magnet:?xt=urn:btih:8732BDC687A10AC5CB32E81208C6B6CCE8D86BF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +591,8 @@ magnet:?xt=urn:btih:8732BDC687A10AC5CB32E81208C6B6CCE8D86BF0
 magnet:?xt=urn:btih:02B5F192E8017D274E69173A19399D3C52C5B055
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +616,60 @@ magnet:?xt=urn:btih:02B5F192E8017D274E69173A19399D3C52C5B055
 ```bash
 magnet:?xt=urn:btih:64FBB458BCE0CC41627E8989C9FCB4F160166EC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931136   (512879) от 25.08.2015
+
+Обои - Оружие 2 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_512879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои на тему оружияФормат: JPGРазрешение файлов: 1280x800 - 2560x1920
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3B48AB1DFD8378274970FF67DBE13F3F9B4B9BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931138   (512924) от 25.08.2015
+
+Обои - Пейзажи 2 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_512924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои на тему пейзажейФормат: JPGРазрешение файлов: 1280x800 - 2560x1920
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCEA940263B68F0C86463FAFA19F6343836D7E46
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

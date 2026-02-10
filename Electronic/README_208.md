@@ -22,6 +22,8 @@ Actress - Karma & Desire (2020) Ninja Tune [FLAC|Lossless|tracks+.cue] <Leftfiel
 magnet:?xt=urn:btih:4D2E0A1BB1DA411A96FE1291141847724E8A3AEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Summer Tales EP (2020) 20:21 [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Te
 ```bash
 magnet:?xt=urn:btih:55B38A193030214F6870332A57F7B97E8836F797
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Chill-Out Cafe (30 Beautiful Relaxed Anthems), Vol. 1 (2017) [MP3|320 Kbps]
 magnet:?xt=urn:btih:6DFA1E670271DF083DE5662DA229ACC6A6891EE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Suanda Acoustic Collection 2 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 ```bash
 magnet:?xt=urn:btih:503200881AA6F619205123E80EE54FD18C28200D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Halloween Handsup Power Party (2017) [MP3|320 Kbps] <Pop Trance, Big Room>
 magnet:?xt=urn:btih:7BFF133F8A4BCC3690E2F5846475356D97E64A42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Anima Infinity - Selected Works (2017) [MP3|320 Kbps] <Balearic, Downtempo, Elec
 ```bash
 magnet:?xt=urn:btih:373F2B37C94CC99B02551AB83CD7FAFB8A023382
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Bioluminescence (2007) Native State Records [FLAC|Lossless|tracks+.cue] <Du
 magnet:?xt=urn:btih:48F9E72E7B5008451EB34F5F57C5BFB7239C98D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Tekniq - Shazbut! (2004) Hive Records [FLAC|Lossless|tracks+.cue] <Downtempo, ID
 ```bash
 magnet:?xt=urn:btih:79A0528AA4ECD9B3BB14496492EAAFF7E8D2B1C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Schnittstelle (Atom™) - Schnittstelle (1998) Rather Interesting [FLAC|Lossless
 magnet:?xt=urn:btih:2971B7DBD36DF052EFBAD8E932B85FADBD04FE62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Ministry of Progressive (50 Supreme Tunes) Vol.2 (2018) [MP3|320 Kbps] <Tec
 ```bash
 magnet:?xt=urn:btih:20DE7CD550FAF491A5153B0CD8C05CEF04917827
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Amon Tobin - Fear In A Handful Of Dust (2019) [MP3|320 Kbps] <Experimental, Abst
 magnet:?xt=urn:btih:3CB149D0384000864D37FA30B15B8D6ADD55D10D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Colombo - Your Consequences (2019) [FLAC|Lossless|WEB|tracks] <Progressive Break
 ```bash
 magnet:?xt=urn:btih:6EE980E460066231E5ECB273E3DCC6EE4EFC42E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Relaxing Meditation (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 magnet:?xt=urn:btih:BE409C5F213F3417B49E920DF12926E453C24C15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Teddy Killerz - Pursuit (2019) [FLAC|Lossless|WEB-DL|tracks] <Drum'n'bass>
 ```bash
 magnet:?xt=urn:btih:E8FF9F52684D843DD175727F13A71E1B5F61B75D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Ellie Lawson - The Best Of (Extended Mixes) (2018) [MP3|320 Kbps] <Trance,V
 magnet:?xt=urn:btih:FFA5162C89505098E5E2AB9392BF52DF2F096A92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - Butterfly Music Amsterdam 2018 Selection (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:2983C656423DFD0821F367A7B8AF849D029614B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - Submission Universal (Mixed By Atragun) (2018) [MP3|320 Kbps] <Trance,Psy-T
 magnet:?xt=urn:btih:BCB99FA4183E6905A147569A524C5937E4D822BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ VA - Moments in Paradise Chillout (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:DC8E650363DC220260934D1BFC1BD35A0968DD70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ VA - Unique Sense In Amsterdam (Mixed by Abstract Vision) (2016) [MP3|320 Kbps] 
 magnet:?xt=urn:btih:4D100629E3CCFF3D04224430A9F7560246EDEDD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ VA - Levitated Amsterdam (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:008F90543AE78F6341565CF38A1A819DB66F25BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ magnet:?xt=urn:btih:008F90543AE78F6341565CF38A1A819DB66F25BE
 magnet:?xt=urn:btih:C3AEB2D734B3184F9996E038B2956E197635F1BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ VA - Coffee to Chill: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 ```bash
 magnet:?xt=urn:btih:72836505BB37C35FF332F65F1AC37555F6CDB32F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ Contagion - Omnibus (2011) [MP3|320 Kbps] <EBM, Industrial, Rock>
 magnet:?xt=urn:btih:113BCD3617036777F047C00C9CC9FE85C0D9A1B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ Jurgen Vries feat. Andrea Britton ‎ - Take My Hand (2014) [FLAC|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:D91743D124E5012465EE3068309320CC8BC3A2DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ Depeche Mode - Remixes for the Masses 2020 by Techni-ka (2020) EP [FLAC 2.0|44.1
 magnet:?xt=urn:btih:9D8F58A34EFDD03D5638863924D3233D394554D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ Digitonal - Discography 17 Releases (2002-2020) Just Music [FLAC|Lossless]<Ambie
 ```bash
 magnet:?xt=urn:btih:E5A418FCAA20F3E013F38D7E255504B1AC203B7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Indigo Egg - Discography 5 Releases (1996-2018) ...txt [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:AB72F161674E2FB288D7676B93FEBCD4E90F510F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:AB72F161674E2FB288D7676B93FEBCD4E90F510F
 ```bash
 magnet:?xt=urn:btih:2CD1227CBE4967412B2498276D11C483DA67F451
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Suzi Quatro - Original Hits (1995) [MP3|320 Kbps] <Glam Rock, Hard Rock>
 magnet:?xt=urn:btih:0BB8A9493286CF0900345E4DB10A0130589AA31F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:0BB8A9493286CF0900345E4DB10A0130589AA31F
 ```bash
 magnet:?xt=urn:btih:5877E778F2838AB04872FF0C4B297D648C280C70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ magnet:?xt=urn:btih:5877E778F2838AB04872FF0C4B297D648C280C70
 magnet:?xt=urn:btih:5D04E0303895A40FE600E573E185B7F5A541AAFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ Soulstructure - Time & The Truth (2018) [FLAC|Lossless|WEB-DL|tracks] <Drum & Ba
 magnet:?xt=urn:btih:2C4C7DE604DD3093FED5D63FA63B32D9FDD7AF90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +189,8 @@ magnet:?xt=urn:btih:2C4C7DE604DD3093FED5D63FA63B32D9FDD7AF90
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -205,6 +219,8 @@ magnet:?xt=urn:btih:2C4C7DE604DD3093FED5D63FA63B32D9FDD7AF90
 magnet:?xt=urn:btih:CD9EA003C7DBD3340C8AAFAE6636A60CE930BD7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -232,6 +248,8 @@ Gareth Emery Feat Evan Henzi - Call To Arms (2018) The Remixes [FLAC|Lossless|WE
 magnet:?xt=urn:btih:90249FA3FA0D1CF39BC694A7488AC183EE7B47CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +274,8 @@ magnet:?xt=urn:btih:90249FA3FA0D1CF39BC694A7488AC183EE7B47CE
 ```bash
 magnet:?xt=urn:btih:EC9C6FA9BD062538AD7D24F7B0B9A62D5ADC75B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +303,8 @@ magnet:?xt=urn:btih:EC9C6FA9BD062538AD7D24F7B0B9A62D5ADC75B4
 magnet:?xt=urn:btih:975D903519E231F0437097236376C11B53CFDDD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +329,8 @@ magnet:?xt=urn:btih:975D903519E231F0437097236376C11B53CFDDD3
 ```bash
 magnet:?xt=urn:btih:84ABC31846A09582DD68EF7FDCF7B60AF336DB70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +357,8 @@ magnet:?xt=urn:btih:84ABC31846A09582DD68EF7FDCF7B60AF336DB70
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +387,8 @@ magnet:?xt=urn:btih:84ABC31846A09582DD68EF7FDCF7B60AF336DB70
 magnet:?xt=urn:btih:570E384385755B4D18017CD9476DD391E294B134
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +416,8 @@ magnet:?xt=urn:btih:570E384385755B4D18017CD9476DD391E294B134
 magnet:?xt=urn:btih:BC237F890B2EFE99FC1E804CF151F7FB29981B60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +441,8 @@ magnet:?xt=urn:btih:BC237F890B2EFE99FC1E804CF151F7FB29981B60
 ```bash
 magnet:?xt=urn:btih:4E41E15D576E21B6F733BD8907264AF76783EA83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +471,8 @@ magnet:?xt=urn:btih:4E41E15D576E21B6F733BD8907264AF76783EA83
 magnet:?xt=urn:btih:B23097A0C2D2C17118462215AA91595302D8BDF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +499,8 @@ VA - The Awakening - Transmission - O2 Arena Prague (2018) [MP3|320 Kbps] <Tranc
 ```bash
 magnet:?xt=urn:btih:66EB93B4FAC71A85A9B0ABA52BF1327AC9D52BB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +529,8 @@ Objekt - Cocoon Crush (2018) PAN [FLAC|Lossless|WEB-DL|tracks] <IDM, Electro, Ex
 magnet:?xt=urn:btih:56B5E12A179B1E8D2D7361C893B6E7BF24FA49FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +554,8 @@ magnet:?xt=urn:btih:56B5E12A179B1E8D2D7361C893B6E7BF24FA49FA
 ```bash
 magnet:?xt=urn:btih:2C6ECDBE55EF3329D05B7DCC07B03DC35F64AD7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +584,8 @@ magnet:?xt=urn:btih:2C6ECDBE55EF3329D05B7DCC07B03DC35F64AD7C
 magnet:?xt=urn:btih:54E829B11511341D75BB2914578B0853C53874DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +613,8 @@ magnet:?xt=urn:btih:54E829B11511341D75BB2914578B0853C53874DE
 magnet:?xt=urn:btih:9D1B1CCE8CF1FEA68B73D88B92748827AB155FC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +638,8 @@ magnet:?xt=urn:btih:9D1B1CCE8CF1FEA68B73D88B92748827AB155FC3
 ```bash
 magnet:?xt=urn:btih:64BD1FB806B220F7F643C5F4E713433AA0A07C0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +665,8 @@ magnet:?xt=urn:btih:64BD1FB806B220F7F643C5F4E713433AA0A07C0B
 magnet:?xt=urn:btih:3110F654205041A0DF1061BD26A07FA2787A9C80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +691,8 @@ magnet:?xt=urn:btih:3110F654205041A0DF1061BD26A07FA2787A9C80
 magnet:?xt=urn:btih:EBAD0E2DDB6BE8E2E84AE01C905751B0CFA323BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +716,8 @@ magnet:?xt=urn:btih:EBAD0E2DDB6BE8E2E84AE01C905751B0CFA323BC
 ```bash
 magnet:?xt=urn:btih:3C7C3A79BA4C82E386EBB8E40DF7750220EEFE44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

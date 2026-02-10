@@ -22,6 +22,8 @@ VA - Tech Grid: Electronic Set November (2018) [MP3|320 Kbps] <Electronic, Techn
 magnet:?xt=urn:btih:E54B58A8B54C05919B5BA882C3E63B631A9FBDD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Extra Trance (episode 9) (2015) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:805BA6401BC71F0F974AF5F6A14E2DBD7E9285BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ Eminem, Linkin Park, DJ P@F - Dreams On Shady Park (2010) [MP3|256 кб/с]<Alte
 magnet:?xt=urn:btih:C71201B07BCF84326AA975B2B3776C9FC2563147
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -113,6 +119,8 @@ Dj Tiesto - DJ Mag Top 100 (2012) [MP3|192 кб/с]<Trance>
 magnet:?xt=urn:btih:AA96F4353AC94801F5C916C626427E565D84E23E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +147,8 @@ VA - Music News vol.47 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:928563C98188A5864982657E53BBC244751EF746
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +177,8 @@ VA - New Disco Hits 2020 от DON Music (2020) [MP3|320 Kbps] <Italo Disco, Pop,
 magnet:?xt=urn:btih:41B140403EB3A3BABCF47B18A1B0607C6F1FEFBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +205,8 @@ VA - Ride the Wave Vol 1 Relaxed Ocean Grooves (2015) [MP3|320 кб/с]<Downtemp
 ```bash
 magnet:?xt=urn:btih:96543F54D994620AEA97AF80899FB02D188ECFED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +235,8 @@ VA - Winter Lounge Kitzbuhel (2015) [MP3|320 кб/с]<Downtempo, Chillout, Loung
 magnet:?xt=urn:btih:ED70897D1F826522FAA636B4A043BE450A340F47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +263,8 @@ VA - Sunday Privilege Vol 3 25 Luxury Lounge Anthems (2015) [MP3|320 кб/с]<Do
 ```bash
 magnet:?xt=urn:btih:5DBFC0320FC9A13D200F60BA129D8CA085C9CBD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -281,6 +299,8 @@ Moonbeam feat. Aelyn - You Win Me (2012) [MP3|320 кб/с]<Techno>
 magnet:?xt=urn:btih:124833B5CE7E3BECD3C1193550AECD5646843E49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +334,8 @@ VA - Улетная сотня осеннего Trance vol.11 (2012) [MP3|320 к
 magnet:?xt=urn:btih:75D8CAABC71E9E9D7507092CB5BFBC08F1797834
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +362,8 @@ Nightwish - From the Tarja Turunen Era (2015) 2CD, Compilation [MP3|320 Kbps] <S
 ```bash
 magnet:?xt=urn:btih:2686BDF5E1557D0AD5CFFE9721E47648DAA1A191
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +392,8 @@ VA - Velvet Evening: Classical Vocals In Jazz (2020) [MP3|320 Kbps] <Jazz, Blues
 magnet:?xt=urn:btih:2F94FF073EAC53AD07169256BFED8AA95FBAD5B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +420,8 @@ The Dead South - Broken Cowboy (Compilation) (2020) [MP3|320 Kbps] <Bluegrass, G
 ```bash
 magnet:?xt=urn:btih:7FE5F4616F73378CFA425D2E9EBD4D20F479130C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +450,8 @@ VA - No Doubt: Music RnB Collection (2020) [MP3|320 Kbps] <Rnb, Soul>
 magnet:?xt=urn:btih:1D7F37A09A239E1E039E8FFBC83FC87BA7F50FB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +478,8 @@ VA - Pop Dance Exclusive Megamixes (2020) [MP3|320 Kbps] <Pop, Dance, Electropop
 ```bash
 magnet:?xt=urn:btih:B148452DB1EC76D2C511F2DE0A21AECB24F9A377
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +508,8 @@ VA - The Promise Land (2020) [MP3|320 Kbps] <Reggae, Ska, Soul>
 magnet:?xt=urn:btih:34F5C4A7F37E7DFBD4587D524DEDBE0B84B48259
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +536,8 @@ VA - Beatport Dancehall: Sound Pack #198 (2020) [MP3|320 Kbps] <Dancehall, Riddi
 ```bash
 magnet:?xt=urn:btih:6D371DF76056BB5DC2B59D1B2BDC480BCFE39022
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +566,8 @@ VA - Beatport Drum And Bass: Electro Sound Pack #199 (2020) [MP3|320 Kbps] <Drum
 magnet:?xt=urn:btih:367F34A4D8A44CB569FA4A417BB6BADAD700C02A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +594,8 @@ VA - Beatport Psy Trance: Electro Sound Pack #197 (2020) [MP3|320 Kbps] <Psy, Go
 ```bash
 magnet:?xt=urn:btih:BFEADB62323CFE6E0427210B2724D7EEEBDE9A1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +624,8 @@ VA - Ibiza 2016. Best of Funky-House and Disco-House [Compiled by Mistik] (2016)
 magnet:?xt=urn:btih:1A91D43D8855A5DB6FD3870387ABB018729CD1CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +652,8 @@ VA - Smooth Jazz Music Collection (2016) [MP3|320 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:FB808662CC7B78C02F98115B878368DF5ECD95A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +682,8 @@ Gamma - Аnthology (1979-1982) [MP3|320 Kbps] <Hard & Heavy Progressive>
 magnet:?xt=urn:btih:0EBC3E3A83130FCD11ED1FD161C04FF30CAF046E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +710,8 @@ VA - UNKLE  - Best275z (1998 - 2011) [MP3|320 Kbps] <Electronic>
 ```bash
 magnet:?xt=urn:btih:030F3333F1EBF4303F5A35DC3BDE8AF0A68BB546
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -692,6 +740,8 @@ VA - Planet Pop: Summertime Selection (2019) [MP3|320 Kbps] <Pop, Europop, Rnb>
 magnet:?xt=urn:btih:586C1DD9B5264AE4FDC8AA5D2B338245BA469B94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -718,6 +768,8 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:B6D6B9E3D40558CE13E2185757D0ED2ED63B5527
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

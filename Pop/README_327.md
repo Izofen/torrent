@@ -1,3 +1,148 @@
+###  Публикация: 149305   (940473) от 29.02.2020
+
+Demis Roussos - Demis (2009) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. September (I'm On My Way) (2:45)
+02. On My Pillow (3:24)
+03. Love Is (3:24)
+04. What They Say (3:25)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00C7402FB26BC49156D2ACB2A43255B913E2ABBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363798   (940572) от 29.02.2020
+
+Modern Talking - Let's Talk About Love (1985) [FLAC|Lossless]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.   Cheri Cheri Lady   [3:51]
+02.   With a Little Love   [3:39]
+03.   Wild Wild Water   [4:23]
+04.   You’re the Lady of My Heart   [3:24](   Читать дальше...   )Жанр: DiscoПродолжительность: 00:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:323FFC9DD8AA343DEA710C1AA4D3CA49EC2452E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363774   (940730) от 29.02.2020
+
+Настя Макаревич & Лицей - Лучшее (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940730.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Осень
+2. Ты станешь взрослой
+3. Падаю вверх
+4. Как ты о нём мечтала(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC57AAB074D0BB4E0F853E1CB28C2BEEB159C9C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363669   (940747) от 29.02.2020
+
+Paradisio - The Hottest Summer Tracks (20TH Anniversary Deejays Full Length Versions) (2017) [FLAC|Lossless|WEB-DL|tracks] <Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940747.jpg" />
+</div>
+
+
+###  Подробнее
+
+1-01. Bailando (Discoteca Drums Mix) (6:51)
+1-02. Un Clima Ideal (Eurodance Discoteca Mix) (6:25)
+1-03. Samba del Diablo (Extended Fiesta Club Mix) (5:10)
+1-04. El Ritmo Caliente (DJ Extended Club Mix) (6:07)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 02:22:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6FF24CC98B3AE1D185627A3FA0A0F2B6530206F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363779   (940750) от 29.02.2020
+
+Балаган Лимитед - Песни о любви (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940750.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Не губи любовь
+2. Мальчик из Нальчика
+3. Кто бы мог подумать
+4. Молодая, глупая(   Читать дальше...   )Жанр: PopПродолжительность: 01:23:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B628211EDE778510A0FAA1502452767FF3BFD42C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363649   (940853) от 29.02.2020
 
 Каролина - Русские звезды (2004) [MP3|320 Kbps] <Pop>
@@ -21,6 +166,8 @@
 ```bash
 magnet:?xt=urn:btih:F83EFC5DD6728884599BC206E9F52793709FBCE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +196,8 @@ magnet:?xt=urn:btih:F83EFC5DD6728884599BC206E9F52793709FBCE4
 magnet:?xt=urn:btih:3355F91AEE4A2450AFCA8076DB860B239DD11ACA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +224,8 @@ magnet:?xt=urn:btih:3355F91AEE4A2450AFCA8076DB860B239DD11ACA
 ```bash
 magnet:?xt=urn:btih:A441985EB73066D86EFFC67A596BE3EEF91E1AF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +254,8 @@ magnet:?xt=urn:btih:A441985EB73066D86EFFC67A596BE3EEF91E1AF6
 magnet:?xt=urn:btih:D940EC898A5DA425A1BA350168B8595D3CF250AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +282,8 @@ magnet:?xt=urn:btih:D940EC898A5DA425A1BA350168B8595D3CF250AB
 ```bash
 magnet:?xt=urn:btih:6CC31A4BE5CC053E1BC2F85BA9E750AD667610E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +312,8 @@ magnet:?xt=urn:btih:6CC31A4BE5CC053E1BC2F85BA9E750AD667610E3
 magnet:?xt=urn:btih:35BCFA3867A995210FC9767EF590B6F3627BDFF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +340,8 @@ VA - Radio Maxitalo Present: BCR Instrumental Versions Vol. 1-5 (2014-2016) [MP3
 ```bash
 magnet:?xt=urn:btih:A5ADEDBC765DDF8AF7C514E71EBF0F98FB651396
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +370,8 @@ Laurin Rinder & W. Michael Lewis (полные имена) - продюсерс�
 magnet:?xt=urn:btih:F980C938659189BBFF5330DBFD980C85B6C0B474
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +398,8 @@ Burito - Bu Ri To (2015) [MP3|320 кб/с] <Pop>
 ```bash
 magnet:?xt=urn:btih:0F6454DBB6D18B29741FB8D23D973A381CFC9DA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +428,8 @@ Burito - Bu Ri To (2015) [FLAC|Lossless|image + .cue] <Pop, R&B, Electronic>
 magnet:?xt=urn:btih:0A1F149850CA79D8381B1E0F07E4FD753F1A1290
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +456,8 @@ La Bouche - A Moment Of Love (1997) Unofficial Release [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:6E7FBC2692AD0F4F9F8C53E2D4F3C8EE1DBDB6BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +486,8 @@ magnet:?xt=urn:btih:6E7FBC2692AD0F4F9F8C53E2D4F3C8EE1DBDB6BC
 magnet:?xt=urn:btih:60F8006C761C9E93B0B012B5994ACB745F1B6F41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +514,8 @@ VA - Radio 538 Hitzone 76 (2016) [MP3|320 кб/с] <Pop, Dance, Top40>
 ```bash
 magnet:?xt=urn:btih:D1AF0B6FD552431ACE3C17B07A72C71340C05AA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +544,8 @@ Joyce Jonathan - Une Place Pour Moi (2016) [MP3|320 кб/с] <French Pop>
 magnet:?xt=urn:btih:0BDF19658A110408C8203995CBE6711C571BB826
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +573,8 @@ magnet:?xt=urn:btih:0BDF19658A110408C8203995CBE6711C571BB826
 magnet:?xt=urn:btih:843F6108FE8EFFF9CA15370FC1757FBBE3DAD2C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +600,8 @@ magnet:?xt=urn:btih:843F6108FE8EFFF9CA15370FC1757FBBE3DAD2C6
 ```bash
 magnet:?xt=urn:btih:D060104FA17E59396E48012EB52A16EEAF5F046C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +630,8 @@ magnet:?xt=urn:btih:D060104FA17E59396E48012EB52A16EEAF5F046C
 magnet:?xt=urn:btih:E7E9B2D71D7B1AB2FADC39E8BC08BF1A475F0629
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +658,8 @@ magnet:?xt=urn:btih:E7E9B2D71D7B1AB2FADC39E8BC08BF1A475F0629
 ```bash
 magnet:?xt=urn:btih:3DF759D475FC8BEEA813D5C3B65B2E383218E032
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +688,8 @@ magnet:?xt=urn:btih:3DF759D475FC8BEEA813D5C3B65B2E383218E032
 magnet:?xt=urn:btih:584D24BF1F358BC8357E5CEC586B5BF6E3514150
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +716,8 @@ Kevin Krauter - Full Hand (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 ```bash
 magnet:?xt=urn:btih:99E1DADB268ED7E125B0B18F3DC61C6F011FBF2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,140 +746,7 @@ Kevin Krauter - Toss Up (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 magnet:?xt=urn:btih:A8B4D7E065438D94835A365145556FCDB4EBBA0A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983561   (943621) от 06.02.2016
-
-Владимир Пресняков - Звездная серия (1999) [MP3|320 кб/с] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Странник 04:25
-02. Стюардесса по имени Жанна 04:03
-03. На крылечке вдвоем 02:53
-04. Курочка Ряба 03:07(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6DA8E287431CFB3AE52069A17AA33C95E0CF01E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983382   (943675) от 06.02.2016
-
-Nina Nesbitt - Modern Love (2016) EP [FLAC|Lossless|tracks] <Pop, Indie Pop, Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая шотландская поп-певица Nina Nesbitt, 5 февраля 2016 года представила свой новый мини-альбом, который получил название "Modern Love".01. Chewing Gum (03:20)
- 02. Take You To Heaven (04:00)
- 03. Masquerade (Niightwatch Demo) (03:34)
- 04. Chewing Gum (Niightwatch Demo) (03:34)(   Читать дальше...   )Жанр: Pop, Indie Pop, Female VocalПродолжительность: 00:20:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A3EC11C20045F3F165EA793CBDCD41CC35805E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363295   (943706) от 27.02.2020
-
-VA - Самый русский хит 2: Пляски до упаду! (1998) [FLAC|Lossless|image + .cue] <Pop, Folk>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Надежда Кадышева и Золотое Кольцо - Я сама любовь (2:21)
-02. Дмитрий Донской - Моё солнышко (3:05)
-03. Балаган Limited - Соловьи поют, заливаются (3:27)
-04. Белый День - Уху я варила (2:57)(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:55:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7568F3130FD12D4F60BA2187B1275CDE5B5A5E45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363284   (943711) от 27.02.2020
-
-VA - Георгий Мовсесян • Мои друзья-мое богатство! (2004) [FLAC|Lossless|tracks + .cue]<Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Советская эстрада, РетроПродолжительность: 00:43:21Трэклист: 01. Вахтанг Кикабидзе - Мои года
-02. Иосиф Кобзон - Моим друзьям
-03. Анне Вески - Две печали
-04. Юрий Никулин - Товарищ инспектор, простите!(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8232ABF9E41CF509ABA2DBEEDCD9721C0A73D2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983283   (943729) от 06.02.2016
-
-Monica Naranjo - Lubna (2016) [FLAC|Lossless|tracks + .cue] <Latin,  Rock, Classical>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943729.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	Lasciatemi Qui 3:38
-2	Apocalitica 2:55
-3	Ya Esta Bien 6:52
-4	Perdida 4:58(   Читать дальше...   )Жанр: Latin,  Rock, ClassicalПродолжительность: 01:07:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAA385A7EAD105C25164A31FFC6A4046ABE5D141
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

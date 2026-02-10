@@ -19,6 +19,8 @@ Discovery: Золотая лихорадка / Gold Rush (2019) HDTV [H.264/1080
 magnet:?xt=urn:btih:954F4270C4608C81DC150ABA1785555190D84AD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:954F4270C4608C81DC150ABA1785555190D84AD1
 ```bash
 magnet:?xt=urn:btih:427A9970173634058C18BCFD149531DFEDACB24A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NG. Звездное выживание с Беаром Гриллсом / Runni
 magnet:?xt=urn:btih:33C1C4C3A460033CEBEA6352AB1909F17994F3BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Discovery: Железная дорога Аляски  / Railroad Alaska (2016) 
 ```bash
 magnet:?xt=urn:btih:7757CB67C138FF1A9D86B6D7D053CE91EAA53FDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:7757CB67C138FF1A9D86B6D7D053CE91EAA53FDF
 magnet:?xt=urn:btih:98FEF1F441C002830F900F5A9E593381F413B09E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:98FEF1F441C002830F900F5A9E593381F413B09E
 magnet:?xt=urn:btih:020A2D13EE6193AD68FE7C53CD6258EF9707A208
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ National Geographic. Охотники на питонов. Нашествие з
 ```bash
 magnet:?xt=urn:btih:00A575EFDC8B688CACB81AD7E6F3EBF54E3E551A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ BBC: Исаак Ньютон: Последний чародей (Последн�
 magnet:?xt=urn:btih:EC088A6BCFBF3F854E4BD3165A5F365E200B1A75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ NG: Марс: Один день на красной планете / Mars: One D
 ```bash
 magnet:?xt=urn:btih:6E1612B0DC7B2DC34C5E7B2E583A4F2E411FFBB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ NG. Бушующие миры: Смертоносная пыль / Storm Worlds:
 magnet:?xt=urn:btih:D61F5CF566ACD79A347B67E92DC6B1D2D6F68918
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:D61F5CF566ACD79A347B67E92DC6B1D2D6F68918
 ```bash
 magnet:?xt=urn:btih:46186DD0A06BB1898E5F96F974E86BA444F829F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:46186DD0A06BB1898E5F96F974E86BA444F829F9
 magnet:?xt=urn:btih:AFDC11B08138033159B4083C061F41F17046D6FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:AFDC11B08138033159B4083C061F41F17046D6FA
 ```bash
 magnet:?xt=urn:btih:C880D1EF07C78E41452EBD4CB72B8DD63DB23FD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Tехнологии, которые нас меняют / DSKNECTD: Is Technolog
 magnet:?xt=urn:btih:07C081D8731917E9765B66E5F67EFED623E50CE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ BBC: Замерзшая планета (Застывшая планета) / Fro
 ```bash
 magnet:?xt=urn:btih:C0AEE9602B397C62E9BEB46812A4E7B5208914CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:C0AEE9602B397C62E9BEB46812A4E7B5208914CA
 magnet:?xt=urn:btih:2DEF6AED00645002B96FAD438F2E42F16FC9CB25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ NG: Дикая природа России / NG: Wild Russia (2009) HDTVRip (с�
 ```bash
 magnet:?xt=urn:btih:FD27CBE189E46A23949C8F37F1D60B5644328A88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ BBC. Европа изнутри: десять лет смятения (деся
 magnet:?xt=urn:btih:412A1E91F7E8437DF439CAB5420844D45F74F1A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ NG: Затерянные сокровища Майя / Lost Treasures of the May
 ```bash
 magnet:?xt=urn:btih:5E042A15E24E4FB1D49C60C0862D0A10888C17E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ History Channel. Америка. История Соединенных Штат�
 magnet:?xt=urn:btih:13ED7F66F4668F31F1B8B18B49ADC4239932471C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ NGW. Львы: как братья стали королями / Lion Brothers: 
 ```bash
 magnet:?xt=urn:btih:444DC399D65F8EFF44B1D5AF675E57F9B917794C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ Tехнологии, которые нас меняют /  DSKNECTD: Is Technolo
 magnet:?xt=urn:btih:49CAA00317ABE26CEF3B8929A048C2DA6512C9C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ Discovery: Будущее с Джеймсом Вудсом. Заменяя Бо�
 ```bash
 magnet:?xt=urn:btih:2A50200C0DED6B60AA4852827E819C44EC18859E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ History Channel. Древние пришельцы / Ancient Aliens (2010) HDTVR
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ BBC. Смартфоны: темная сторона / Smartphones: The Dark Sid
 magnet:?xt=urn:btih:A49666DBAE5E7CA8FBFC4DAB13472AD03D8D9F56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Nat Geo Wild: Дикие земли Европы / Europe's Great Wilderness (20
 ```bash
 magnet:?xt=urn:btih:3358397D3C758737E61D8C64A4E38F5E6F44B2EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,674 +1,745 @@
-###  Публикация: 1223604   (673301) от 05.05.2018
+###  Публикация: 510262   (672201) от 13.06.2012
 
-VA - Deep House Hits: Ibiza 2018 [FLAC|Lossless|WEB-DL|tracks] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loud Luxury – Body (feat. brando) (Dirtcaps Remix)
-02. Armin van Buuren – Sex, Love & Water (feat. Conrad Sewell) (Loud Luxury Remix)
-03. Lost Frequencies & Zonderling – Crazy (James Remix)
-04. Thomas Gold – Begin Again(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:08:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:924A1336F53D7A18A4A416F9F7B709EA0B95932E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223288   (673302) от 05.05.2018
-
-Berdien Stenberg - Pirouette (1987) [FLAC|Lossless|tracks + .cue] <Classical-crossover, Instrumental, Flute music>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Coppelia, Mazurka + Waltz (L. Delibes) (3:51)
-02 Danzas Espanolas (E. Granados) (4:21)
-03 Solvejg's Song from ''Peer Gynt Suite'' Op. 46, No. 1 (E. Grieg) (3:24)
-04 Nutcracker (P.I. Tchaikovsky) (2:34)(   Читать дальше...   )Жанр: Classical-crossover, Instrumental, Flute musicПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29948F4C1D98696B4EE36296ACAC39641A31B0BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223505   (673303) от 05.05.2018
-
-Михаил Черненок | Антон Бирюков (Книга 4). Ставка на проигрыш (2018) [MP3, Валерий Стельмащук]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оперуполномоченный уголовного розыска Антон Бирюков и его коллеги расследуют очередные запутанные дела. Погибла молодая женщина… Какое отношение к этой трагедии имеют бывший футболист Овчинников, вор-рецидивист Сипенятин, пенсионер Степнадзе, художник Зарванцев, инженер Деменский? На этот и многие другие вопросы предстоит ответить сотрудникам милиции.Жанр: ДетективПродолжительность: 07:52:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F003A2FC5D02A680B77543D5913E1BB8AA9DA88F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223521   (673304) от 05.05.2018
-
-Журнал | Авиация и космонавтика: вчера, сегодня, завтра №2 (февраль 2018) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научно-популярный журнал - учрежден Военно-воздушными силами России, выходит при поддержке ЦАГИ. Публикует материалы о достижениях и перспективах авиационной и космической техники, опыте освоения и боевого применения отечественной и зарубежной авиационной техники, о предприятиях и авиакомпаниях, репортажи с авиасалонов, обзоры военной и гражданской авиации, статьи (   Читать дальше...   )Жанр: Авиация, космонавтикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BC001ABBA242979E5F4439373D44BD648A44894
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223513   (673305) от 05.05.2018
-
-VA - Club Sounds Vol.85 (2018) [MP3|320 Kbps] <Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rudimental Feat. Jess Glynne, Macklemore & Dan Caplen - These Days (Ajr Remix)
-02. Kygo & Miguel - Remind Me To Forget
-03. Felix Jaehn Feat. Marc E. Bassy & Gucci Mane - Cool
-04. The Chainsmokers - Everybody Hates Me(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: Dance, Club
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB95FC4E39F59F3403D74297BDCDD7A1171D334A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223645   (673306) от 05.05.2018
-
-Журнал | Уютная квартира №2 (апрель 2018) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уютная квартира - это, прежде всего практические советы и рекомендации по благоустройству и реконструкции вашей квартиры, лучшие примеры дизайна и планировки, комфорт на каждый день, приятные мелочи, цветы в доме, элементы декора.Жанр: Дизайн интерьеровФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2424EEA3DD77B232F5FD780AE68DA291B827750
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223394   (673307) от 05.05.2018
-
-The Abyssinians - Satta Massagana (1975) Pre-Abbyssinians [MP3|320 Kbps] <Roots Reggae>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дебютный сингл этого вокального трио "Satta Massa Gana", записанный в марте 1969 года в студии "Studio One" известного ямайского продюсера и звукооператора Клемента Додда, сегодня можно считать моделью, которая легла в основу стиля рэггей, а также стилистическим лекалом, по которому выстраивали свое дальнейшее творчество Abyssinians.01. Declartion of Rights 3:30
-02. The Good Lord 3:27
-03. Forward unto Zion 3:48
-04. Know Jah Today 2:58(   Читать дальше...   )Жанр: Roots ReggaeПродолжительность: 01:03:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F8D53862E265B50C5445650A7A05371B275D8E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223578   (673308) от 05.05.2018
-
-Pattie Brooks - Love Shook & Our Ms Brooks (2009) 2 Albums (1977, 1978), Reissue CD, Funky Town Grooves [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два диско-альбома Pattie Brooks, продюсером которых был не безызвестный Simon Soussan.01. Girl Don't Make Me Wait (10:47)
-02. Love Shook (8:34)
-03. Let's Make Love To The Music (8:46)
-04. Pop Collage Medley - Popcorn, Black Is Black, Na Na Hey Hey Kiss Him Goodbye (9:18)Жанр: Electronic, DiscoПродолжительность: 01:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7AF50E43ED06B54EB1668EC73D59CA9E9623734
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223574   (673309) от 05.05.2018
-
-Nimrod - Return to Babylon (2008) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night of the Witches 03:57
-02. I Am 03:10
-03. Return to Babylon 01:28
-04. Broken Wings 03:51(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3B45C836868E88887F6671D34B71E851DCBC9C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 797864   (673318) от 20.06.2014
-
-Лео и легенда / La leyenda de la Nahuala (2007) DVD5
+Мальчик-дракон / Dragonboy (2010) [H.264/720p-LQ] HDTVRip
 
 >>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673318.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672201.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Девятилетний Лео Сан Хуан живет в вечном страхе от историй, которые ему рассказывает его старший брат Нандо. Все эти истории содержат легенду о злой Навалле, которая обитает в старинном заброшенном поместье и которая только и ждет, чтобы завладеть душами невинных детей и получить абсолютную власть как над умершими так и над живыми. Легенда становится реальностью, (   Читать дальше...   )Производство: Мексика / AnimexЖанр: Мультфильм, Фэнтези, СемейныйРежиссер: Рикардо АрнаизПерсонажи: Андре Бустаманте, Хесус Очоа, Рафаэль Инклан, Марта Игареда, Мануэль «Локо» Вальдес, Офелия Медина, Фабрицио Сантини, Пьер Анджело, Луна Архона, Мария Тереза КордейроПеревод: Многоголосый закадровыйПродолжительность: 01:22:45
+Одна школьная постановка.
+Эпическое сражение за любовь и честьЖанр: Короткометражная анимацияПерсонажи: Трое маленьких детейПеревод: НемойПродолжительность: 00:04:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BE6E36EF1E46F55C3F8C2773CB743529A44B520A
+magnet:?xt=urn:btih:2CD01578B59D1A0DC6BBF8DE099613096B577827
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136694   (673327) от 23.05.2017
+###  Публикация: 509995   (672202) от 13.06.2012
 
-Smooze 1.1.47 [En]
+Gregor Samsa - 6 albums (2002-2009) [FLAC|Lossless] <Post-Rock, Ambient, Instrumental>
 
->>Архив торрентов
->>Архив 4Apple
+>>Other Styles
+>>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673327.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672202.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Smooze одушевляет ваш скролл  и добавляет функциональность к вашей не Apple мыши (прокрутки колеса мыши).
-
-• Отключить ускорение прокрутки в Macos 10,12 Sierra
-• Каждое приложение будет иметь плавный скроллинг(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23 мая 2017Разработчик: Start BootstrapПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FCD943C8626B7A815D593BFE88E8CC335DB43BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479745   (673328) от 20.06.2014
-
-BBC: Космический челнок. Разведчик горизонта / The Space Shuttle. A Horizon Guide (2010) SATRip
-
->>Документалистика и Телепередачи
->>Космос
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начиная с самого первого запуска в 1981 году космическая транспортная система "The Space Shuttle" была и остается по сей день самой дорогой и самой амбициозной программой НАСА. Стоимость 1-го запуска - 450 миллионов доларов, 135 полетов, 355 астронавтов и космонавтов, 21152 витка вокруг Земли и почти 873 млн. км. в пути. История Спейс шаттла это история головокружительных взлетов и ошеломляющих падений, потрясших этот мир.Жанр: ДокументальныйРежиссер: Жак ФарнамПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:58:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C53F9D6458061EA2336C895DA2F97F7127280683
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136394   (673329) от 23.05.2017
-
-Simon Rattle & City of Birmingham Symphony Orchestra - Ellington: Mainly Black (1986, 1999) 2010, EMI Classics [FLAC|Lossless|tracks + .cue] <Swing, Modern Creative, Third Stream>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mainly Black: Black, Brown and Beige Suite: Introduction [06:42]
-02. Mainly Black: Black, Brown and Beige Suite: Come Sunday [02:40]
-03. Mainly Black: Black, Brown and Beige Suite: Work Song [07:52]
-04. Mainly Black: Black, Brown and Beige Suite: The Blues (Mauve) [12:31](   Читать дальше...   )Жанр: Swing, Modern Creative, Third StreamПродолжительность: 01:13:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABDA92B5860E80E2AB22C4A8FF40898096D4C662
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 798055   (673330) от 20.06.2014
-
-Инферно / Inferno (1999) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эдди Ломакс — одинокий воин, утративший веру в себя. Поиски старого друга — одинокого индейца-шамана — приводят его в разрушенный город с адским названием Инферно, где у Эдди много врагов. Полная луна и зов койота помогут ему обрести былую силу и осуществить благородную цель: защитить местных жителей от жестоких банд байкеров и контрабандистов.Производство: США / Davis-FilmsЖанр: Боевик, Драма, МелодрамаРежиссер: Джон Г. ЭвилдсенАктеры: Жан-Клод Ван Дамм, Пэт Морита, Дэнни Трехо, Гэбриэлль Фицпатрик, Ларри Дрэйк, Винсент Скьявелли, Дэвид Фралик, Сайлас Уэйр Митчелл, Джонатан Эвилдсен, Джейми ПресслиПеревод: Двуголосый закадровыйПродолжительность: 01:34:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB5F1D7195DFAC79C6C9AEAF102E7B7DED5FC519
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136385   (673331) от 23.05.2017
-
-Duke Ellington - Blue Note Jazz Inspiration (1953 - 1969) 2012, Blue Note [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Satin Doll [03:00]
-02. Flamingo [03:42]
-03. Prelude to a Kiss [03:04]
-04. Just A Sittin' and A Rockin' [03:55](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:18:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11A7110FF702FBB11310FFE5145FE01E348D9FBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136643   (673333) от 23.05.2017
-
-Alice Babs & Duke Ellington - Serenade To Sweden (1963) 2016, Real Gone Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serenade to Sweden [03:23]
-02. The Boy in My Dreams [02:39]
-03. Stoona [03:02]
-04. La De Doody Doo [02:19](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CC9D80DFE5B621D48E7793B0BF8FA4969A73134
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136709   (673334) от 23.05.2017
-
-TextLab 1.3.3 (134) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673334.jpg" />
-</div>
-
-
-###  Подробнее
-
-TextLab - текстовый инструмент преобразования, который позволяет Вам быстро управлять и экспортировать свой текст и данные в удобочитаемый и понятный формат. Например, если Вы копируете и вставляете JSON в примере, он предлагает утвердить и отформатировать это JSON. TextLab мудр, так как он предлагает, какие операции могли быть выполнены основанные на Вашем вводе. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23 мая 2017Разработчик: Ondrej KvasnovskyПоддерживаемая ОС: OS X 10.7.4 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3329370D755A1D8A7F8BD3A8578A47C09F6C0B0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136392   (673335) от 23.05.2017
-
-Duke Ellington - Splendeurs du grand orchestre (1959, 1961, 1966) 3CD, 2009, Sony Music [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673335.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Blues in Orbit:
-01. Three J's Blues [02:55]
-02. Smada [02:39]
-03. Pie Eye's Blues [03:28](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 03:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5463CDE0AE49ED2BDF09778EA21859DE31E9C59F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136403   (673336) от 23.05.2017
-
-Gerry Mulligan - Midas Touch: Live in Berlin (1995) 2003, Concord Records [FLAC|Lossless|image + .cue] <West Coast Jazz , Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out Back of the Barn [11:03]
-02. Intro & Comments by Gerry Mulligan [00:47]
-03. Wallflower [07:45]
-04. Midas Lives [10:08](   Читать дальше...   )Жанр: West Coast Jazz , CoolПродолжительность: 01:09:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57D258A2D34570969F826191DD739E27B8069856
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136590   (673337) от 23.05.2017
-
-VA - Global Trance Festival Vol. 3 (2017) [MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doktor Noize DJ - The Choice of Life (Original Mix) (03:42)
-02. Kritik - Active (Original Mix) (03:47)
-03. Hiding Spirits - Boosting Frequencies (Original Mix) (03:56)
-04. Logiktech - Mr. Shaker (Original Mix) (03:38)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2425D60E55BB4BA021C9EAED8017390A408BB34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136671   (673338) от 23.05.2017
-
-Duke Ellington - S.R.O. (1956, 1961, 1966) 1989, Lester Recording Catalog [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take the 'A' Train [04:41]
-02. Medley: I Got It Bad and That Ain't Good/Things Ain't What They Used to Be [08:49]
-03. West Indian Pancake [04:36]
-04. Medley: Black and Tan Fantasy/Creole Love Call/The Mooche [09:29](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:05:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7392AE4D504ABCD4F69109F27DE86CC9227868D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136640   (673339) от 23.05.2017
-
-Duke Ellington - Solos, Duets And Trios (1932, 1941, 1967) 1990, Bluebird [FLAC|Lossless|tracks + .cue] <Swing, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tonk [02:50]
-02. Drawing Room Blues [03:42]
-03. Frankie and Johnny [02:40]
-04. Jumpin' Room Only [02:38](   Читать дальше...   )Жанр: Swing, Piano JazzПродолжительность: 01:07:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD454DCDDEAB3B3352D7FB27B26721AF9731D663
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136380   (673340) от 23.05.2017
-
-Duke Ellington - Live in Warsaw 1971 (2009) Gambit Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Beginning to See the Light [01:11]
-02. Addi [03:20]
-03. Things Ain't What They Used to Be [03:33]
-04. Hello Dolly [03:32](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:16:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E6631CD3BBB1BD440EB66C71ADECCA5EB7A715
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136376   (673341) от 23.05.2017
-
-Duke Ellington - Bigbands Live: Liederhalle Stuttgart, March 6, 1967 (2011) Jazzhaus [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take the 'A' Train [00:56]
-02. Johnny Come Lately [03:34]
-03. Swamp Goo [04:52]
-04. Knob Hill [07:18](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:13:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:625845012DDB367F8D5D2972EC7F47C368D0809A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 214906   (673349) от 01.07.2010
-
-GOM Player 2.1.26.5021 Beta [Multi + Rus]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_673349.jpg" />
-</div>
-
-
-###  Подробнее
-
-GOM Player - довольно мощный мультимедиа плеер. Включает в себя большое количество функций, обеспечивающих высокий уровень воспроизведения. С GOM Player Вы сможете воспроизводить даже поврежденные или не до конца загруженные / переписанные AVI файлы. GOM Player поддерживает все современные видео и аудио форматы включая видео мобильных устройств и цифровых камер, (   Читать дальше...   )Язык интерфейса: Multi + Rus
+01. Ain Leuh (05:08)
+02. Jeroen Van Aken (09:11)
+03. Three (05:26)
+04. Adolescent (05:30)
+05. Abutting, Dismantling (06:26)
+06. Young and Old (06:33)
+07. Du Meine Leise / ALTMIX (03:52)
+08. XXX / GS + Tiempo (04:40)
+09. Lean / GS + B Donne (07:09)2002-2009Жанр: Post-Rock, Ambient, InstrumentalПродолжительность: 00:53:59
 
 ## Скачать торент
 ```bash
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 899484   (673364) от 19.05.2015
+###  Публикация: 1291107   (672204) от 23.03.2019
 
-Mozilla Firefox 38.0.5 beta 3 (x86/x64) [Ru]
+Главная дорога (23.03.2019) SATRip
 
->>Архив торрентов
->>Архив Программ
+>>Документалистика и Телепередачи
+>>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673364.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672204.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Firefox - очень интересный продукт, который принадлежит компании Mozilla – свободно распространяемый, мощный во всех отношениях веб-браузер. Данная программа имеет большое количество преимуществ перед остальными браузерами, в ее создании участвует огромное сообщество разработчиков. Firefox отличается стабильностью и безопасностью в работе в сочетании с высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский
+Когда ржавые болты и гайки превращают ремонт в настоящий кошмар, на помощь приходят проникающие смазки. Они должны въедаться в ржавчину, смазывать резьбу и помогать раскручивать детали: ведущие Андрей Федорцов и Денис Юченков проведут уникальные эксперименты с самыми распространёнными "жидкими ключами". Автовладельцы называют металл кузова китайского седана (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:32:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EBE3C79994C0D49F406A0B978B5D1CFBA3B9FCA4
+magnet:?xt=urn:btih:AA3169865D28AFAB1BF87170B39355E6BA211406
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291090   (672206) от 23.03.2019
+
+CareUEyes 1.1.21 Portable by Joo Seng [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы проводите перед экраном компьютера по 8-12 часов в день, порой засиживаясь за клавиатурой допоздна, имеет смысл подумать о сохранении зрения. Поможет в этом деле программа CareUEyes.
+CareUEyes служит для изменения цветовой температуры и яркости изображения на экране компьютера, а кроме того способна напомнить пользователю о необходимости сделать перерыв и (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8734DB30FE72E87249A0D3B6E802FF04DA6BA6DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291128   (672208) от 23.03.2019
+
+Witches Legacy 12: Secret Enemy / Наследие Ведьм 12: Тайный враг (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672208.jpg" />
+</div>
+
+
+###  Подробнее
+
+На ведьм снова объявлена охота! Монстры вернулись и Орден Охотников, считая, что в этом виновны Ведьмы, стремится уничтожить всех магических существ, включая и их. Но гнев Охотников таит в себе нечто большее, чем кажется первый взгляд. Сможете ли Вы раскрыть тайны своего общего врага и победить древнее зло, пока еще не слишком поздно? Узнайте ответ в этой новой захватывающей (   Читать дальше...   )Тип издания: UnofficialРазработчик: EleFun GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2650EA2DE59FED57ED20303585A979DB7D8B8DD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 508740   (672209) от 13.06.2012
+
+Smokie - Die grossen Erfolge einer Supergruppe (Club Edition) (1982) [FLAC 2.0 24/192|image (Vinyl Rip)]<Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1
+A1. Living Next Door To Alice              [03:28]
+A2. If You Think You Know How To Love Me   [03:23]
+A3. Something's Been Making Me Blue        [02:59]
+A4. Wild Wild Angels                       [03:53]
+A5. San Francisco Bay                      [03:13]
+A6. Run To Me                              [04:11]
+A7. I'll Meet You At Midnight              [03:15]
+A8. Don't Play Your Rock'n'Roll To Me      [03:17]
+(   Читать дальше...   )1982Жанр: RockФормат: Vinyl LPПродолжительность: 00:55:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C78D9B5B56A0D9A9D0AAD15749A42F9ED5739DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291182   (672210) от 23.03.2019
+
+VA - Cafe del Mar: Best of the Best (2019) [MP3|320 Kbps] <Lounge, Future-Jazz, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672210.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bonobo - Noctuary
+002. Lux - Northern Lights
+003. Salt Tank - Sargasso Sea
+004. Paco de Lucía - Entre Dos Aguas (Remastered 2014)(   Читать дальше...   )Жанр: Lounge, Future-Jazz, Chillout, Downtempo, Easy-ListeningПродолжительность: 09:05:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0771DABB8B9848AC8FF968984E1F947FFADBE24F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 509922   (672211) от 13.06.2012
+
+Ребекка / Rebecca (1997) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всего лишь через год после загадочной смерти своей первой жены, прекрасной и утонченной Ребекки, Максим де Уинтер женится на девушке вдвое моложе себя. Но кажется, что бывшая хозяйка и не покидала аристократического поместья Мэндерли, величественно нависающего над берегом моря. К тому же домоправительница миссис Дэнверс ненавидит застенчивую и безответную девушку лишь за то, что она заняла место ее обожаемой Ребекки. Но на этом проблемы новой миссис де Уинтер только начинаются…
+Основан на готическом любовном романе Дафны дю Морье, Ребекка - классический рассказ о любви и ненависти.Жанр: Триллер, Драма, МелодрамаРежиссер: Джим О’БрайэнАктеры: Чарльз Дэнс, Эмилия Фокс, Дайана Ригг, Джеральдин Джеймс, Дэнис Лилл, Фэй Данауэй, Джонатан Кэйк, Том Чэдбон, Джин Андерсон, Джон Бранвелл, Люси Коху, Джон Хорсли, Джонатан Стоукс, Келли Райлли, Венди МакАдам, Карла Мендонча, Тимоти Уэст, Иэн МакДайармид, Энтони Бейт, Патрик Ромер, Робин Соанс, Зулема Дэне, Дэвид Уэбб, Майкл Винн, Фрэнк ДоэртиПродолжительность: 01:34:57 + 01:33:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0128E50D90FE058D4E777C5E7C010109B078A901
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291095   (672212) от 23.03.2019
+
+Гринч / The Grinch (2018) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любой бы на месте Гринча позеленел и взбесился. Как порядочный интроверт он живёт в тёмной пещере на самой вершине горы подальше ото всех, но эти «все» готовят грандиознейшее празднование нового года. Они шумят, всё украшают и дико бесят. Кто бы отказал себе в удовольствии испортить праздник? Гринч решает украсть Новый год.Производство: Китай, США, Франция, Япония, Illumination Entertainment , Perfect World Pictures Co., Universal PicturesЖанр: Мультфильм, фэнтези, комедия, семейныйРежиссер: Ярроу Чейни, Скотт МоужерАктеры: Бенедикт Камбербэтч, Кэмерон Сили, Рашида Джонс, Фаррелл Уильямс, Тристан О’Хэйр, Кенан Томпсон, Сэм Лаваньино, Рамон Хэмилтон, Анджела Лэнсбери, Скарлетт ЭстевесПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  Английские,  Английские SDHПродолжительность: 01:27:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50D21038E3C97A5D90FD402908660F30F90AB0E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 510134   (672213) от 13.06.2012
+
+Electric Wizard - 11 albums (1996-2010) [FLAC/APE/WavPack|Lossless] <Stoner Doom Metal, Psychedelic Noise Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Mass (06:06)
+02. Venus In Furs (06:22)
+03. The Nightchild (08:01)
+04. Patterns Of Evil (06:29)
+05. Satyr IX (09:57)
+06. Turn Off Your Mind (05:51)
+07. Scorpio Curse (07:30)
+08. Crypt Of Drugula (08:49)1996-2010Жанр: Stoner Doom Metal, Psychedelic Noise RockПродолжительность: 00:59:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291178   (672214) от 23.03.2019
+
+3D модели - 3DExport - Audi A4 Allroad 2013 - 54484 [MAX, FBX, OBJ, 3DS]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672214.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки AudiФормат: MAX, FBX, OBJ, 3DS, WRL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ED2F00499E9074445F01A5898187C9EE4780CDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 508510   (672215) от 13.06.2012
+
+Scorpions - Virgin Killer (1976) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1
+A1 Pictured Life [03:21]
+A2 Catch Your Train [03:32]
+A3 In Your Park [03:39]
+A4 Backstage Queen [03:10]
+A5 Virigin Killer [03:41]
+
+Side 1
+B1 Hell Cat [02:54]
+B2 Crying Days [04:36](   Читать дальше...   )1976Жанр: Hard RockФормат: VinylПродолжительность: 00:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:851D9C62DE90E60B757D8F2364EFF7595E12927E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291192   (672216) от 23.03.2019
+
+Голос. Дети (2019.03.22) HDTV [H.264/1080i-LQ] (сезон 6, выпуск 6)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672216.jpg" />
+</div>
+
+
+###  Подробнее
+
+C 15 февраля в шоу Голос дети новые наставники. В этот раз ими выступят Валерий Меладзе, Пелагея и Светлана Лобода. В шестом сезоне будут участвовать вокалисты, возраст которых не превышает 14 лет. В кастинге принимали участие не только российские, но и зарубежные вокалисты. В слепых прослушиваниях будет участвовать примерно 120 человек. В процессе слепых прослушиваний (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ТВ-шоуСубтитры: отсутствуютПродолжительность: 01:29:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E1931C4ED9F081C6292D3EC8974C50F4C475B86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290947   (672218) от 23.03.2019
+
+Royal Philharmonic Orchestra London - Rock Dreams (Unknown) Box Set, 4CD, Compilation [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Deep Is Your Love (4:12)
+02. He Ain't Heavy, He's My Brother (4:30)
+03. Nobody Does It Better (3:30)
+04. Arthur's Theme (The Best You Can Do) (3:28)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 03:27:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72B0B9DF50C278247C1B9BA22800114653E36827
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 509821   (672219) от 13.06.2012
+
+Rosetta - 6 albums (2005-2011) [FLAC|Lossless] <Post-Metal, Sludge, Post-Rock, Ambient, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Junius - A Day Dark With Night (08:05)
+02. Rosetta - TMA-3 (09:54)2005-2011Жанр: Post-Metal, Sludge, Post-Rock, Ambient, Post-HardcoreПродолжительность: 00:17:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291187   (672220) от 23.03.2019
+
+FastStone Photo Resizer 4.1 + Portable [En/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672220.jpg" />
+</div>
+
+
+###  Подробнее
+
+FastStone Photo Resizer - программа для различных манипуляций с графическими файлами. С помощью FastStone Photo Resizer можно конвертировать изображения в распространенные графические форматы (JPEG, BMP, GIF, PNG, TIFF, JPEG2000, PDF), изменять размер и глубину цвета, обрезать, разворачивать под разными углами и переименовывать графику. Кроме того, присутствует возможность (   Читать дальше...   )Язык интерфейса: Английский + Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AF68183DA956376F9174718143B7B0DF3D5389C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291275   (672222) от 23.03.2019
+
+VA - Car Hits: The Ultimate Collection (2018) 5CD [FLAC|Lossless|tracks + .cue] <Pop, Dance, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simple Minds – Don’t You Forget About Me (04:21)
+02. Dexys Midnight Runners – Come On Eileen (04:07)
+03. The Human League – Don’t You Want Me (04:00)
+04. Soft Cell – Tainted Love (02:37)(   Читать дальше...   )Жанр: Pop, Dance, DiscoПродолжительность: 6:08:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C746C14CAA19084DFC65CEE6FE7525D61EFC6D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 509834   (672223) от 13.06.2012
+
+AML Free Registry Cleaner 4.24 + Portable[Eng/Rus(Русификатор)
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672223.jpg" />
+</div>
+
+
+###  Подробнее
+
+AML Free Registry Cleaner - бесплатная утилита, предназначенная для чистки реестра операционных систем Windows, удаления ненужных и ошибочных записей, исправления проблем и т.д.
+
+Выполнение данных операций позволяет повысить быстродействие и стабильность работы ОС.
+Windows сохраняет всю информацию о компьютерных ресурсах, программном обеспечении и аппаратных средствах в свой реестр. Реестр является местом, где все приложения хранят свои данных.
+AML Free Registry Cleaner удаляет нежелательные записи и оптимизирует производительность компьютера.
+Повреждение реестра может привести к повреждению компьютера, выполнять нежелательные действия, коррумпированные данные и краха операционной системы.
+AML Free Registry Cleaner автоматически просканирует реестр, выполняет резервное копирование и восстановление реестра и удаляет ненужные записи.Название программы: AML Free Registry CleanerЯзык интерфейса: Eng/Rus
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291140   (672224) от 23.03.2019
+
+Opera 58.0.3135.118 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D78A01193CD032C350EB95E5A4A5784C68FD7B35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291249   (672226) от 23.03.2019
+
+VA - Italo Holiday, New Generation Italo Disco Vol.11 (2019) [MP3|320 Kbps] <Euro Dance, Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Casarano - Carillon (New Gen Vocal Remix) 7:32
+02. Alan Brando - Safe My Heart (Extended Vocal Summer Mix) 6:22
+03. Naomi - Mi Dia (Give Me) (Extended Vocal Mix) 8:58
+04. Miko Vanilla - Life In Rome (Extended Vocal Mix) 6:34(   Читать дальше...   )Жанр: Euro Dance, Pop, DanceПродолжительность: 01:25:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1B22AD809DC96B94E7A03A50F2611BEB869AA99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291084   (672227) от 23.03.2019
+
+Американские горизонты / American Skylines (2018) WQHD WEBRip [H.264/1440p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672227.jpg" />
+</div>
+
+
+###  Подробнее
+
+У меня была одна мечта, посетить крупнейшие города США: Лос-Анджелес, Нью-Йорк, Сан-Франциско, Сан Диего, Майами, Чикаго, Лас-Вегас. Она осуществилась и вот что с этого получилось.Производство: СШАЖанр: Документальный, видовойРежиссер: Эмерик Ле БарсПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:04:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55F3AA609AC3D07F86A664661CB1797C23DAFAF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290313   (672228) от 23.03.2019
+
+Биатлон. Чемпионат Мира 2019. Эстерсунд (Швеция). Мужчины. Масс-старт 15 км (2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672228.jpg" />
+</div>
+
+
+###  Подробнее
+
+17 марта 2019 года, воскресенье. 18:00 МСК
+53-й Чемпионат Мира по биатлону 2019 года. Эстерсунд (Швеция)
+Мужчины. Масс-старт 15 км
+Стадион:  Национальная биатлонная Арена "Эстерсунд" (Эстерсунд, Швеция)Телекомпания: Первый Канал HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:492FA610FE9C276786B92ACEA3FF536E5F5491BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290259   (672229) от 23.03.2019
+
+Биатлон. Чемпионат Мира 2019. Эстерсунд (Швеция). Женщины. Масс-старт 12,5 км (2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672229.jpg" />
+</div>
+
+
+###  Подробнее
+
+17 марта 2019 года, воскресенье. 15:15 МСК
+53-й Чемпионат Мира по биатлону 2019 года. Эстерсунд (Швеция)
+Женщины. Масс-старт 12,5 км
+Стадион:  Национальная биатлонная Арена "Эстерсунд" (Эстерсунд, Швеция)Телекомпания: Первый Канал HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E419EAB6B72032345392DAD020373BF577668BFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290256   (672230) от 23.03.2019
+
+Биатлон. Чемпионат Мира 2019. Эстерсунд (Швеция). Мужчины. Эстафета 4x7,5 км (2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672230.jpg" />
+</div>
+
+
+###  Подробнее
+
+16 марта 2019 года, суббота. 18:30 МСК
+53-й Чемпионат Мира по биатлону 2019 года. Эстерсунд (Швеция)
+Мужчины. Эстафета 4x7,5 км
+Стадион:  Национальная биатлонная Арена "Эстерсунд" (Эстерсунд, Швеция)Телекомпания: Первый Канал HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:18:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:155AB106C4C14BE994BAB3B6D07195E955553CD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291134   (672231) от 23.03.2019
+
+Konstantin Klashtorni - Kool&Klean (Volume VIII) (2019) [FLAC|Lossless|image + .cue] <Smooth Jazz, Chillout>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Islands in Tranquility
+02. Sublime You
+03. So Divine
+04. Morning Mist(   Читать дальше...   )Жанр: Smooth Jazz, ChilloutПродолжительность: 01:02:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:792F70432F471B768874DCBB57BD1D77C189ED5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290957   (672232) от 23.03.2019
+
+VA - ЕвроХит Топ 40 Europa Plus 22.03.2019 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lil Peep & XXXTentacion - Falling Down 3:16
+02. Pawl - Nirvana 2:44
+03. Dua Lipa & BLACKPINK - Kiss And Make Up 3:09
+04. Rita Ora - Let You Love Me 3:10(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0852EEC2CE9D78EF5BCC78A1C70BB3FA745400D5
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

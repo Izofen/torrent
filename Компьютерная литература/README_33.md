@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:D0419043BEA2314C44AFA2F6EDE624F26D9733E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:D0419043BEA2314C44AFA2F6EDE624F26D9733E9
 ```bash
 magnet:?xt=urn:btih:8BE3B02AEF4FB4C6A20D517286B4DE55D536F651
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:8BE3B02AEF4FB4C6A20D517286B4DE55D536F651
 magnet:?xt=urn:btih:DD8930688DE14B4B4E9197971024E286DB8BD825
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:DD8930688DE14B4B4E9197971024E286DB8BD825
 ```bash
 magnet:?xt=urn:btih:C03A487CB2FDED0FCBA28D6E1AA7AA28104D86FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:C03A487CB2FDED0FCBA28D6E1AA7AA28104D86FB
 magnet:?xt=urn:btih:254A1709EE112B4FFA025C4E2E8982166D34A611
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:254A1709EE112B4FFA025C4E2E8982166D34A611
 ```bash
 magnet:?xt=urn:btih:40EB4BDC37DD41FD2DC761584F94F40E6848972B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:40EB4BDC37DD41FD2DC761584F94F40E6848972B
 magnet:?xt=urn:btih:BD6B0863AFEF0C854C987CAEC5B035887112DA51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:BD6B0863AFEF0C854C987CAEC5B035887112DA51
 ```bash
 magnet:?xt=urn:btih:428FE8555A84EE29B628039416DF1BC9C6DD6C7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:428FE8555A84EE29B628039416DF1BC9C6DD6C7D
 magnet:?xt=urn:btih:229521871A0FCCEB3F4E99C6C117748C4C3466A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:229521871A0FCCEB3F4E99C6C117748C4C3466A0
 ```bash
 magnet:?xt=urn:btih:636A4FAF469ACD11D00A35935135BCCB058FD104
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:636A4FAF469ACD11D00A35935135BCCB058FD104
 magnet:?xt=urn:btih:347DFC567283CB680B3FEB4909A5B4583A4FC51B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:347DFC567283CB680B3FEB4909A5B4583A4FC51B
 ```bash
 magnet:?xt=urn:btih:1EF772B190A023B4B430C8A4AF4D648B7321E36F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:1EF772B190A023B4B430C8A4AF4D648B7321E36F
 magnet:?xt=urn:btih:7E3439168106D861BEE0E9BF303482CE1F493FD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:7E3439168106D861BEE0E9BF303482CE1F493FD6
 ```bash
 magnet:?xt=urn:btih:F331EA07ABC13522AE3D988A1C871F53D0F350CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ You'll learn object-oriented programming, writing, testing, and debugging functi
 magnet:?xt=urn:btih:9502F4E946EF1683348C4CA582F76E031923E088
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:9502F4E946EF1683348C4CA582F76E031923E088
 ```bash
 magnet:?xt=urn:btih:722BBA4FFB5BD5BB2BB82D986F59380439E3759C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:722BBA4FFB5BD5BB2BB82D986F59380439E3759C
 magnet:?xt=urn:btih:78C92B6BDA00E4FB77E65B52CE2457C573E520E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Shantanu Baruah, Shaurya Baruah | App Development Using iOS iCloud (2023) [PDF][
 ```bash
 magnet:?xt=urn:btih:E720D6F984D16FC4E835FF334E50ED7B7C16EB08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:E720D6F984D16FC4E835FF334E50ED7B7C16EB08
 magnet:?xt=urn:btih:C84508A284ECFB7523757E788405BB5F81D2A96C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:C84508A284ECFB7523757E788405BB5F81D2A96C
 ```bash
 magnet:?xt=urn:btih:2D15AD4B6C18A6A5B98BEC7C99AAF51518B4009D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:2D15AD4B6C18A6A5B98BEC7C99AAF51518B4009D
 magnet:?xt=urn:btih:C60F96BAFE31EAEEECAFA028B6EC7A1171E4563C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:C60F96BAFE31EAEEECAFA028B6EC7A1171E4563C
 ```bash
 magnet:?xt=urn:btih:9FE29BB7F2F0F1594F826BC0434D20527D6DD592
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ magnet:?xt=urn:btih:9FE29BB7F2F0F1594F826BC0434D20527D6DD592
 magnet:?xt=urn:btih:D95C998C7E2AC335595FBCA24333AE610C1CC508
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ magnet:?xt=urn:btih:D95C998C7E2AC335595FBCA24333AE610C1CC508
 magnet:?xt=urn:btih:F9975CAB086310BD2B04F45DEE7F4D0C89B5ECFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ Black Hat Go исследует темные стороны Go — популя�
 ```bash
 magnet:?xt=urn:btih:F1221407F4B0C26BE8A9E4495A57A4DEA29DA8C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +674,8 @@ Martin Joo | Domain-Driven Design with Laravel - Premium Package (2022) [PDF] [E
 ```bash
 magnet:?xt=urn:btih:55DFAFEAD96B45CA2CE74D6A31C94E47A944DB7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

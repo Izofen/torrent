@@ -1,3 +1,31 @@
+###  Публикация: 1282980   (740860) от 15.02.2019
+
+Пэт Кэдиган | Алита: Боевой ангел. Айрон сити (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Официальный приквел научно-фантастического фильма «Алита: Боевой ангел», основанного на культовой манге Юкито Кисиро, от режиссера Роберта Родригеса и продюсера Джеймса Камерона.
+
+В новом мире, оставшемся после Великой войны, изменилось все. В тени огромного города Залема, висящего в небе, раскинулся мегаполис, где люди живут посреди тонн мусора, сброшенного сверху. (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 08:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:294866769C7E27135BCD11F7D0531E5D9F747D61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217756   (740937) от 06.04.2018
 
 Грэхэм Мастертон | Сфинкс (2018) [MP3]
@@ -20,6 +48,8 @@ P.S. От раздающего: Роман очень неоднозначный
 ```bash
 magnet:?xt=urn:btih:62169571B93A30511557B6F1F2D7600623A6A66E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +75,8 @@ magnet:?xt=urn:btih:62169571B93A30511557B6F1F2D7600623A6A66E
 magnet:?xt=urn:btih:B5161E4B470738831B0120E607DB499DAC784D90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +100,8 @@ magnet:?xt=urn:btih:B5161E4B470738831B0120E607DB499DAC784D90
 ```bash
 magnet:?xt=urn:btih:92079E93EE21A49DD1A32CD883F8C16AF5BCC485
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +127,8 @@ magnet:?xt=urn:btih:92079E93EE21A49DD1A32CD883F8C16AF5BCC485
 magnet:?xt=urn:btih:6504FB4F1EAF2A01F051E4B1E5F197D6F15D2B51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +153,8 @@ magnet:?xt=urn:btih:6504FB4F1EAF2A01F051E4B1E5F197D6F15D2B51
 magnet:?xt=urn:btih:5E3EAC6014412A7E4A8AB6AA451510EC9D53FC31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +178,8 @@ magnet:?xt=urn:btih:5E3EAC6014412A7E4A8AB6AA451510EC9D53FC31
 ```bash
 magnet:?xt=urn:btih:31554DBE63782BE15D2F0BCBDA0A1E6550D1D7AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +207,8 @@ magnet:?xt=urn:btih:31554DBE63782BE15D2F0BCBDA0A1E6550D1D7AE
 magnet:?xt=urn:btih:7CC6DD14A448B5A9D8CFD1AD6A0BF8F90C4A9E47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +233,8 @@ magnet:?xt=urn:btih:7CC6DD14A448B5A9D8CFD1AD6A0BF8F90C4A9E47
 magnet:?xt=urn:btih:9D4B3D1D24034DEC9B48B5B25F5E153D928CBBB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +258,8 @@ magnet:?xt=urn:btih:9D4B3D1D24034DEC9B48B5B25F5E153D928CBBB7
 ```bash
 magnet:?xt=urn:btih:71518C06F970A580C56D7D5748E4D2CB5509CCCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +287,8 @@ magnet:?xt=urn:btih:71518C06F970A580C56D7D5748E4D2CB5509CCCD
 magnet:?xt=urn:btih:3AB67C358F4BA7BED743F01FC934F09643BF154E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +315,8 @@ magnet:?xt=urn:btih:3AB67C358F4BA7BED743F01FC934F09643BF154E
 magnet:?xt=urn:btih:9F473940A94EE82E64E16B80CD442460E3DEEFC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +341,8 @@ magnet:?xt=urn:btih:9F473940A94EE82E64E16B80CD442460E3DEEFC6
 magnet:?xt=urn:btih:65DDC8ABACA44FCB5C43B9EF0CD0A791F2CB73B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +366,8 @@ magnet:?xt=urn:btih:65DDC8ABACA44FCB5C43B9EF0CD0A791F2CB73B1
 ```bash
 magnet:?xt=urn:btih:B5B6BCCB0F8E86A2532726C67D9E2FFB427202E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +394,8 @@ magnet:?xt=urn:btih:B5B6BCCB0F8E86A2532726C67D9E2FFB427202E4
 magnet:?xt=urn:btih:9148D820066CDE7DAF0C2D52D8419010CBC120BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +419,8 @@ magnet:?xt=urn:btih:9148D820066CDE7DAF0C2D52D8419010CBC120BB
 ```bash
 magnet:?xt=urn:btih:996BDF71746D4AD3EDD2DFE28D48E29132BBE205
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +446,8 @@ XXII век. Первая звёздная экспедиция продолжа
 magnet:?xt=urn:btih:C0A88AED3FE3646BC0D82AA21B5A0225D9A24A11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +471,8 @@ magnet:?xt=urn:btih:C0A88AED3FE3646BC0D82AA21B5A0225D9A24A11
 ```bash
 magnet:?xt=urn:btih:DED9EC2B7D09B7626593FC474F29F9A84738E2CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +498,8 @@ magnet:?xt=urn:btih:DED9EC2B7D09B7626593FC474F29F9A84738E2CE
 magnet:?xt=urn:btih:B49BEC08828114C622FA1581500AD6E2D6B6A61A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +523,8 @@ magnet:?xt=urn:btih:B49BEC08828114C622FA1581500AD6E2D6B6A61A
 ```bash
 magnet:?xt=urn:btih:5FDB3B6B01DD550617A9FC41AC4D0BDF3A94BE9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +550,8 @@ magnet:?xt=urn:btih:5FDB3B6B01DD550617A9FC41AC4D0BDF3A94BE9A
 magnet:?xt=urn:btih:EB535BDFCBD3098608D24A47D29D0E420D1E4B77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +576,8 @@ magnet:?xt=urn:btih:EB535BDFCBD3098608D24A47D29D0E420D1E4B77
 magnet:?xt=urn:btih:19B2F41433C6240FB8727E5FD0D5564DF1E1DC3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +601,8 @@ magnet:?xt=urn:btih:19B2F41433C6240FB8727E5FD0D5564DF1E1DC3C
 ```bash
 magnet:?xt=urn:btih:B7E32998FCDCFF215F6267989D16FFD4A7E3C8EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +629,8 @@ magnet:?xt=urn:btih:B7E32998FCDCFF215F6267989D16FFD4A7E3C8EE
 magnet:?xt=urn:btih:89B555C362770E62830C21C0E716478739B8CDC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +654,8 @@ magnet:?xt=urn:btih:89B555C362770E62830C21C0E716478739B8CDC2
 ```bash
 magnet:?xt=urn:btih:DE589D48A62EACC99780A8A2DABFED56E78503CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,29 +681,7 @@ magnet:?xt=urn:btih:DE589D48A62EACC99780A8A2DABFED56E78503CA
 magnet:?xt=urn:btih:95EF240F7FDCB0D24175B24967433A4EF76C93C9
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217251   (744520) от 03.04.2018
-
-Надежда Мамаева | Академия темных властелинов (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ты сумела переубедить саму госпожу Смерть, и она дала тебе второй шанс, пусть и в новом мире, в ином теле. Думаешь, на этом твои беды закончились? Как бы не так. Оказаться без гроша за душой, когда по пятам идут родственнички, желающие упрятать тебя в сумасшедший дом, – то еще счастье. А довеском к нему – знакомство с безжалостным главой внешней разведки, который (   Читать дальше...   )Жанр: Городское фэнтези, ПопаданцыПродолжительность: 10:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45E03FBF182E404428F5094E6F8DECAFEDE547DD
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

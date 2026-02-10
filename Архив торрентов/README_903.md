@@ -19,6 +19,8 @@ Speedtest - это приложение предназначено для опр
 magnet:?xt=urn:btih:69837BF8854369134545EA8A7CF31B7DDE03A78E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Smart AudioBook Player - необходимое приложение для вс
 ```bash
 magnet:?xt=urn:btih:0824EDC268FA5CAAA48B4B8818105FF56CE73FD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Easy Data Transform for Mac 1.46.3 [En]
 magnet:?xt=urn:btih:2A24C87E921664554C1D42565932FE1081D1EC81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ DxO FilmPack — это подключаемый модуль для Adobe Photo
 ```bash
 magnet:?xt=urn:btih:980C99E566E3ED360D424BF6D379B624AED90172
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ DxO PhotoLab 7 ELITE Edition 7.4.0 [Multi]
 magnet:?xt=urn:btih:A7B24BB9F41205677533C3DAB1F373E842B5042F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Icecream Screen Recorder - программа, позволяющая вести
 ```bash
 magnet:?xt=urn:btih:682E5F3AB125A5F25078561BF488FEF744F276D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ WebStorm - Легкий, но мощный IDE, прекрасно оборуд�
 magnet:?xt=urn:btih:64CF8C9B9581A4430DC3301B33F77D5315361FA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Luminar Neo 1.18.2 U2B  [Multi]
 ```bash
 magnet:?xt=urn:btih:3FA2BE23989A507623C535259A591EC12C98350E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Find.Same.Images.OK — это программа для поиска одина
 magnet:?xt=urn:btih:1A68C0ED7E0346F7D4A251A26CC849D97D3E1F3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:1A68C0ED7E0346F7D4A251A26CC849D97D3E1F3E
 ```bash
 magnet:?xt=urn:btih:EB2FDD5831067AECB44FC183E8EAACC600FB5BB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ EditPlus – это компактный текстовый редактор д�
 magnet:?xt=urn:btih:5C4A022D24035C28FD9D09E06DEBE409D1BDB204
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Lark Player - это удобный и легкий аудио плеер, ко�
 ```bash
 magnet:?xt=urn:btih:AE76AA585F6EDC5DB4823DE7BBA5EDBE13FDEACC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:AE76AA585F6EDC5DB4823DE7BBA5EDBE13FDEACC
 magnet:?xt=urn:btih:E3484658BC6D3C75F27ECA3443F872E4048ADD07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Windows 11 Manager - это универсальная утилита специ
 ```bash
 magnet:?xt=urn:btih:AF3787CA4CB35B8613100E032C5D4CD8304B60D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Steinberg - WaveLab 12 Pro 12.0.10 (x64) [Multi]
 magnet:?xt=urn:btih:0E64813956B1C43D47DE71573C2673F9C14B9677
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 ```bash
 magnet:?xt=urn:btih:34A227BD7418E79A818A237DCEAA869D28288073
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ PassMark RAMMon - удобная и полезная утилита для по�
 magnet:?xt=urn:btih:B91F6A6902B306FAE9436ABF5620EB0AA7F7F30A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ FileZilla - популярный кроссплатформенный FTP кли
 ```bash
 magnet:?xt=urn:btih:633DD0B33061DCB01B627FCE288E8DD3322039DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ DesktopDigitalClock - простые и красивые цифровые час
 magnet:?xt=urn:btih:1129C9B8BE997C66902BF667466593E128ED4151
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ PowerDirector - самое быстрое и передовое программ
 ```bash
 magnet:?xt=urn:btih:FB0EA07196074A24EA296FE0EB98EF32C7FDD5AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ DesktopSnowOK 6.25 Portable [Multi/Ru]
 magnet:?xt=urn:btih:5F9EC546753F512A66B830778E8D997DD3ECAE4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:A6519AACD40BB68341D5175D41BC4BBF7CAB3791
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ Avidemux - небольшой, простой редактор для работ
 magnet:?xt=urn:btih:03322156150704919D0FFE61E075B56B937A7D21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:2A83CBDFC52093391673E84FEEEEEF15ED53159B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ Topaz A.I. Gigapixel — это первое и единственное при�
 ```bash
 magnet:?xt=urn:btih:6134C815A3D898DF489BA8FDC92BE9935B8FEC91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +672,8 @@ Davinci Resolve Studio 18.6.5 [Multi/Rus]
 ```bash
 magnet:?xt=urn:btih:6186249F67BF8CD24CC954FBD3308DC004E12BAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

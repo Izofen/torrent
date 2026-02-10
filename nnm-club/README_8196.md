@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:CE236D6B50CC4B25FBE1333BA806F55D1078733B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ VA - Lovely001 (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:2626FDB654E77E3DB29FAD9EAC994EE06B454433
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - Aimée Sol presents Lounge Attitudes, Vol. 1 (2021) [AAC|~321 Kbps] <Lounge
 magnet:?xt=urn:btih:F26CFC9CCA8702EF90309F88D68ED240A9846602
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:F26CFC9CCA8702EF90309F88D68ED240A9846602
 ```bash
 magnet:?xt=urn:btih:F6FD433AA8E5B5ACBF32765E320F481B2113E4F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Nar Mattaru - Ancient Atomic Warfare (2015) [FLAC|Lossless|image + .cue] <Death 
 magnet:?xt=urn:btih:798C1F712E59EC443EE1E73B57AF8EEB58B7148C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Geekbench - кроссплатформенная программа для пр�
 ```bash
 magnet:?xt=urn:btih:CD59EFDE9FB2829F99D99B1C9526A1D95AE7E730
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ Velian - Godless (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Gothic, Death Met
 magnet:?xt=urn:btih:AA59423E35234C47A31E08FE565B028B9191B358
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:AA59423E35234C47A31E08FE565B028B9191B358
 ```bash
 magnet:?xt=urn:btih:FFA10E6EE3B09812688409D506CD797E4DBC5B4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ VA - Beatport Techno Electronic: Electro Sound Pack #241 (2021) [MP3|320 Kbps] <
 magnet:?xt=urn:btih:1101E3455EAB15B639E2C278F8F91337ABDB252F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ AText ускоряет вашу запись, заменяя сокращени�
 ```bash
 magnet:?xt=urn:btih:D7F4091D38DB16308F3E5B0593015AA549656AEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:D7F4091D38DB16308F3E5B0593015AA549656AEF
 ```bash
 magnet:?xt=urn:btih:B850D059DCFF59C73616645249B1B6B5BE79C2E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +326,8 @@ VA - Sensual Chillout Lounge (2016) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
 magnet:?xt=urn:btih:D3199C6445FEB41218A43F49D35AB03CC10F76F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +354,8 @@ magnet:?xt=urn:btih:D3199C6445FEB41218A43F49D35AB03CC10F76F2
 ```bash
 magnet:?xt=urn:btih:D0F679A88E505AEBD8EFFD81786226E2AF4380D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +384,8 @@ Defleshed - Abrah Kadavrah / Ma Belle Scalpelle (1996 / 1994) Compilation, Relea
 magnet:?xt=urn:btih:66D6FD1AA2A1B8E7BA49CCB69C2F73B528EF1EFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +410,8 @@ magnet:?xt=urn:btih:66D6FD1AA2A1B8E7BA49CCB69C2F73B528EF1EFE
 magnet:?xt=urn:btih:F95106FAFB50748D20704D3CE9B237FE49AC3D58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +435,8 @@ Skype - бесплатная программа для текстового, г�
 ```bash
 magnet:?xt=urn:btih:A8C2B7C877908C8CB2D005745A40070121C9399F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +465,8 @@ VA - Piano Moods Collection, Vol. 2 (2020) [AAC|~264 Kbps] <Lounge, Chill Out, D
 magnet:?xt=urn:btih:2B52045DBD52DE23C9AD7B8B31E0819BDFA6E5F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +491,8 @@ magnet:?xt=urn:btih:2B52045DBD52DE23C9AD7B8B31E0819BDFA6E5F4
 magnet:?xt=urn:btih:02200CE5E47682E89C92474EB1CAC1CEEEA29972
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +516,8 @@ magnet:?xt=urn:btih:02200CE5E47682E89C92474EB1CAC1CEEEA29972
 ```bash
 magnet:?xt=urn:btih:7732B60FFB2AAFE4AD99EE647DDB6CD4F81DE7EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +546,8 @@ Ravenia - Beyond The Walls Of Death (2016) [FLAC|Lossless|image + .cue] <Symphon
 magnet:?xt=urn:btih:E90D1EF15435A52DD09B5EDE2215554A8EE6300A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +571,8 @@ ImageRanger - программа позволит найти все нужные
 ```bash
 magnet:?xt=urn:btih:02625BC807D9F2D2779A2DFE72B8EE5DA3D172FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +598,8 @@ magnet:?xt=urn:btih:02625BC807D9F2D2779A2DFE72B8EE5DA3D172FF
 ```bash
 magnet:?xt=urn:btih:4CC5F47746D9A668FFB5B9E347A5FBC0E22B3E12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +628,8 @@ Elena Maque - Feel Again (2021) [AAC|~344 Kbps] <Jazz>
 magnet:?xt=urn:btih:CE5589A0F6B3EE9102963FA3A3112CE955528396
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +654,8 @@ magnet:?xt=urn:btih:CE5589A0F6B3EE9102963FA3A3112CE955528396
 ```bash
 magnet:?xt=urn:btih:C49A0DFE280FCC04EB549755DBA71B0449050300
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +682,8 @@ IconFly проста в использовании. Просто перетащ�
 magnet:?xt=urn:btih:9F4CC213CBCADF3CE93713CD55FDF9C7F08DD47E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +707,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:BC1D09BC9978EFE628DE92E448F488580C7E40A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

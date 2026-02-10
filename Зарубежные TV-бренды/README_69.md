@@ -19,6 +19,8 @@ Discovery. Гигантские хабы / Giant Hubs (2018) HDTVRip (серии
 magnet:?xt=urn:btih:CC5233B6037C92C0579B2D1EAFF25718C808E68F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BBC. Океаны: Наша Голубая Планета / Oceans: Our Blue Pla
 ```bash
 magnet:?xt=urn:btih:48F8EE80AA30969C4760604B8EA3E2CA1B0F712A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Animal Planet. Дома на деревьях / Treehouse Masters (2013) SATRip 
 magnet:?xt=urn:btih:4EF5FAB14714816742A6E5A17F8928FB6C820B13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Animal Planet. Дома на деревьях / Treehouse Masters (2013-2014) HD
 ```bash
 magnet:?xt=urn:btih:3261A88F4C54EA4ED60C3F7260A6FA05604069C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ BBC. История Жизни / BBC. Life Story (2014) (1-6 серии из 6) 
 magnet:?xt=urn:btih:2B2CED46B51FE785F5B51B61BAA1B6F7B9180BA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ NGW: Самые опасные змеи в мире / World's deadliest snakes (
 ```bash
 magnet:?xt=urn:btih:000951E33A02CB1F7687FC7258B6A7B0D2CC0B27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Discovery: Через магию к звёздам / The Pop Illusionist (El Mag
 magnet:?xt=urn:btih:36184EDA7ED68BE362B9E2D8DEE626C4951A4E1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ NG: Путешествие к ядру Земли / Down to the Earth's core (20
 ```bash
 magnet:?xt=urn:btih:AB0333F20F35BFB97B2E944048C6360B73F5DA89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Discovery: 11 Сентября - Звонки из небоскрёбов / 9/11
 magnet:?xt=urn:btih:1ED8A4FA2430064653427A4E456C98B7DC3ECB77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ NG: Растения - монстры ( Секс, наркотики и раст
 ```bash
 magnet:?xt=urn:btih:6A3F271D2638680DE6484F9CB7C3C5AADBBA0EE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ NG: Рассвет человечества / Dawn of Humanity (2015) HDTV [H.26
 magnet:?xt=urn:btih:8E363A146497223259F646F5AA5916C97B7256D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:8E363A146497223259F646F5AA5916C97B7256D1
 ```bash
 magnet:?xt=urn:btih:D2B935348CAAB335FC28563F35511268DF2F6240
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ BBC: Вся правда о вкусе / The Truth About Taste (2013) HDTV [H.26
 magnet:?xt=urn:btih:92ED2D45B19C76079CAB65BFB70797E55D6078FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:92ED2D45B19C76079CAB65BFB70797E55D6078FF
 ```bash
 magnet:?xt=urn:btih:A434433300BE859975699C55E81B3C673E13E1E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 magnet:?xt=urn:btih:F0FA093EF8190D4B134A3CDE611740606F4E7EC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ NG: Египет с высоты птичьего полета / Egypt from Abov
 ```bash
 magnet:?xt=urn:btih:A9B4D000444CDD9D68F92112D47EBB26F158013C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Animal Planet: Живой или вымерший. Яванский тигр / E
 magnet:?xt=urn:btih:42DE3B3D47B4CAC72D7A5E9D0881D87D7D3955EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 ```bash
 magnet:?xt=urn:btih:1E809265AF7425C322CB3F3BFC4CF632CB3CDD75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 magnet:?xt=urn:btih:A48E12C35809797C7086035CC45D0C390AB21889
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 ```bash
 magnet:?xt=urn:btih:C5AB1A9A469997BDA84809DDA4B8C164CB3CE734
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 magnet:?xt=urn:btih:2294A0708FBEA56B45128ECB35E41C6933740467
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 ```bash
 magnet:?xt=urn:btih:860B125CF770A851F862E2E3A527E4520173DFAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ Discovery: Хаос в действии: кадры очевидцев / Chaos c
 magnet:?xt=urn:btih:E98ADFCD83087CA2E3CC53F556FF7F3D8506FCAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ NG: Суперсооружения: Мегазаводы. Грузовики М�
 ```bash
 magnet:?xt=urn:btih:0A0A797E2CDF1D46765DDA072C5FE22A091CFCEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ Animal Planet: 100 миль в неизвестность / 100 Miles from Nowhe
 magnet:?xt=urn:btih:4A27CAD9A1B840112B511A1EF1E695B3AD98BED4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ NG: Последние шаги Гитлера / Hitler's Last Stand (2018) HDTV
 ```bash
 magnet:?xt=urn:btih:3AAE5E22933D9B365AD9FDEA652EAC26EAE7B35F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

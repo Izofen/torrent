@@ -20,6 +20,8 @@ SiSoftware Sandra Lite - бесплатная версия многофункц�
 magnet:?xt=urn:btih:C70D037E8896A6D01FAFFEA6C3625CE1694753B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Cinema 4D Studio 2023.2.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7A6D2DED4A4C2F22C0804C9E62B442FDF92CEF7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Luminar Neo 1.7.1.11228 (Repack & Portable) by elchupacabra [Multi]
 magnet:?xt=urn:btih:5D2C125A5C1F19EE871BE14B01E459852F9F9E23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ MobaXterm - это комплекс утилит, в котором есть в�
 ```bash
 magnet:?xt=urn:btih:8FF59928A29E4FEBC04F0BDF8267A41FE2131B1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Adobe Audition 23.3.0.55 (x64) Portable by 7997 [Multi/Ru]
 magnet:?xt=urn:btih:CF24E964087F735B71305441F5F0DFD5ADE4A72F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ HandBrake - бесплатный видео конвертер с открыты
 magnet:?xt=urn:btih:004192A01E540B821A4E61590F772512551F45D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ AIDA64 - утилита является мощным средством для 
 ```bash
 magnet:?xt=urn:btih:31C271F9B1CA7C649104DC23919F2D25B03F9FA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Torrent Merkle Root Reader (TMRR) 1.1.5g [Ru/En]
 magnet:?xt=urn:btih:785E4A70FC6F4E6BD0DE5BB8CD0099ED74FBAC37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ R-Studio Network 9.2 Build 191144 RePack (& portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BAF326BE611E3A3AE4306F2E2D19659A0DF3FE12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ MAXON CINEMA 4D – простая в использовании професс�
 magnet:?xt=urn:btih:478D9D4819A872D382B32AEB5D7D0786FFCABE40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Hetman Partition Recovery - программа восстанавливает д
 ```bash
 magnet:?xt=urn:btih:52A076AB7E33B6D17C489A50C75930777D5CA4B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:52A076AB7E33B6D17C489A50C75930777D5CA4B1
 magnet:?xt=urn:btih:9982519600EB4A607BA0A0210AF01F4F9506FACB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ ExtraDisks - это набор инструментов для создания 
 ```bash
 magnet:?xt=urn:btih:8384A21CF986EF3AABEAA263C5C296CFAF710104
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Adobe Illustrator 2023 27.4.0.669 RePack by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:A407977D5739EB1F64647294A5D359A501D514C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ FormatFactory - многофункциональный конвертер раз
 ```bash
 magnet:?xt=urn:btih:0221F3CE3A77526E031EB47D299E7A954D8A5784
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Modern Tweaker - программная оболочка для твиков Win
 magnet:?xt=urn:btih:0F3BB7DF5B19B6AD6C786BD45500D90C8317731D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Luminar Neo 1.7.1 [Multi]
 ```bash
 magnet:?xt=urn:btih:0896A66E8F7CCFB5A56C7217492CC6B7FA4573E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ Duplicate Cleaner - мощный и профессиональный инстр�
 magnet:?xt=urn:btih:32F67CEEA42A2DC06C34179A7DABA7C2FF650759
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ SysAdmin Software Portable v.0.6.4.0 by rezorustavi (Update 27.03.2023) [Ru]
 ```bash
 magnet:?xt=urn:btih:436578271AB1D68FDFCA11E6DD54BB4E72584D14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:436578271AB1D68FDFCA11E6DD54BB4E72584D14
 magnet:?xt=urn:btih:00EA223063575D64F3B326C3F78D5F109F1A0A4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:3859D629F454E975FBE192AAA84D79EB8505DA2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ WinScan2PDF - позволяет сканировать документы и с
 magnet:?xt=urn:btih:054AA32638358A8AA6F0A26ECD9E4BC8C7DE0487
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ Spin Rhythm XD - это ритмическая игра в жанре элект
 ```bash
 magnet:?xt=urn:btih:0107BB79ED2AA0281F3223EC1A8A7FA514091BB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ Icecream Screen Recorder - программа, позволяющая вести
 magnet:?xt=urn:btih:563309D2C8B4BB3AEC32F2099089CD7A28D5DAE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ Total Commander – самый популярный файловый менед�
 ```bash
 magnet:?xt=urn:btih:0EB1B9DC30B2DBFA41ADD06135E4BD55BCDDD379
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +673,8 @@ XnConvert - бесплатная кроссплатформенная утили
 ```bash
 magnet:?xt=urn:btih:E43D52A262470DF97869F69F17DCD427F2E53430
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

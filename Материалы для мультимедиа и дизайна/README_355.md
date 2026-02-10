@@ -1,3 +1,139 @@
+###  Публикация: 1196647   (815507) от 07.01.2018
+
+Векторный клипарт - Ornamental Vintage Labels 55 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Декоративные винтажные этикетки
+3 AI +TIFF PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1153B9D8783F7FDCA92371F6F2D0B6D3F7A64300
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196753   (815512) от 07.01.2018
+
+Растровый клипарт - Shutterstock - Wolf and moon [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Волки и луна с Shutterstock, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 2375x3000-5266x3630
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E595594824F50504822759DDF2CF3E5D58A18B73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196757   (815521) от 07.01.2018
+
+Растровый клипарт - Fotolia - Christmas Beautiful woman [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815521.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девушки с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 4518x2860-6668x3840
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53F9ED3BAA16444D76BF0A6E5496536A45B0EE62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196629   (815536) от 07.01.2018
+
+Векторный клипарт - Vector Professions Collection #4 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Профессии
+50 Ai +Jpg PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82F6952A09102263AA5E4F36B84AE6842C5A52B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504003   (815548) от 21.10.2021
+
+Векторный клипарт - Fotolia, Shutterstock - Сборка векторного клипарт фоны и декор [EPS, AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Фоны и декор
+228 EPS, AI + previewФормат: EPS, AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E603634BFBDA0342588BC3A7953A7B13A06F93F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196639   (815659) от 07.01.2018
 
 Векторный клипарт - Different Ice Cream Set 15 [AI]
@@ -20,6 +156,8 @@
 ```bash
 magnet:?xt=urn:btih:71C3035C030A0E2C24A6423754DEA6D551C5771E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +182,8 @@ magnet:?xt=urn:btih:71C3035C030A0E2C24A6423754DEA6D551C5771E
 ```bash
 magnet:?xt=urn:btih:BF674E77DF9CA0C9BB5090BEACFCA76866EB23F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +211,8 @@ magnet:?xt=urn:btih:BF674E77DF9CA0C9BB5090BEACFCA76866EB23F4
 magnet:?xt=urn:btih:73AE4227E27ACC76213A80C71F91368555B14F5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +239,8 @@ magnet:?xt=urn:btih:73AE4227E27ACC76213A80C71F91368555B14F5E
 magnet:?xt=urn:btih:A59B6CD3CC4AA1F2AE099EBE6325BB77081BC9FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +264,8 @@ magnet:?xt=urn:btih:A59B6CD3CC4AA1F2AE099EBE6325BB77081BC9FC
 ```bash
 magnet:?xt=urn:btih:627FBA6392011DA7EB101E0110D34B353A782A4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +293,8 @@ magnet:?xt=urn:btih:627FBA6392011DA7EB101E0110D34B353A782A4B
 magnet:?xt=urn:btih:124FA3B653BC52C1AF317C8872D8C70BF195052D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +318,8 @@ magnet:?xt=urn:btih:124FA3B653BC52C1AF317C8872D8C70BF195052D
 ```bash
 magnet:?xt=urn:btih:6846ECBCCA5DDDE857F28A522F14BEFE82F94135
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +345,8 @@ magnet:?xt=urn:btih:6846ECBCCA5DDDE857F28A522F14BEFE82F94135
 magnet:?xt=urn:btih:CB08185111593981402F21ED3DAF2F5F5228064F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +370,8 @@ magnet:?xt=urn:btih:CB08185111593981402F21ED3DAF2F5F5228064F
 ```bash
 magnet:?xt=urn:btih:B9D90990ED829CBF2D513C63E6F055C081DAA37B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +399,8 @@ magnet:?xt=urn:btih:B9D90990ED829CBF2D513C63E6F055C081DAA37B
 magnet:?xt=urn:btih:927D2D339B20A2D2052441407FD1291B2B93611B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +425,8 @@ magnet:?xt=urn:btih:927D2D339B20A2D2052441407FD1291B2B93611B
 magnet:?xt=urn:btih:AA0D1FD4E34B01497D384B6F8BADB9368CEE8D9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +450,8 @@ magnet:?xt=urn:btih:AA0D1FD4E34B01497D384B6F8BADB9368CEE8D9B
 ```bash
 magnet:?xt=urn:btih:D8B21D65371922259CC35FA2BE0A5ED1F2384CEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +479,8 @@ magnet:?xt=urn:btih:D8B21D65371922259CC35FA2BE0A5ED1F2384CEF
 magnet:?xt=urn:btih:BAFFBE52A4565B65168AC0C600085C4F2BF9E3F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +506,8 @@ magnet:?xt=urn:btih:BAFFBE52A4565B65168AC0C600085C4F2BF9E3F4
 ```bash
 magnet:?xt=urn:btih:34C4F5F4EA6CA368D434DA77AFF29E28A943FE2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +535,8 @@ magnet:?xt=urn:btih:34C4F5F4EA6CA368D434DA77AFF29E28A943FE2E
 magnet:?xt=urn:btih:FB135C2FA9FF46CCAD0B94A1A386B673D9DACE15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +562,8 @@ magnet:?xt=urn:btih:FB135C2FA9FF46CCAD0B94A1A386B673D9DACE15
 ```bash
 magnet:?xt=urn:btih:9F968C0D1DB2294C8FFE35643E7DC04D36BC5D73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +591,8 @@ magnet:?xt=urn:btih:9F968C0D1DB2294C8FFE35643E7DC04D36BC5D73
 magnet:?xt=urn:btih:DAA34A3BC4B89DE56025A3B31622D9EE1E4A97C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +619,8 @@ magnet:?xt=urn:btih:DAA34A3BC4B89DE56025A3B31622D9EE1E4A97C7
 magnet:?xt=urn:btih:70EFC10A8DA78448A2CABBDEFAAE308077698F00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +644,8 @@ magnet:?xt=urn:btih:70EFC10A8DA78448A2CABBDEFAAE308077698F00
 ```bash
 magnet:?xt=urn:btih:8CC69411EC78500F81D8C31DC5D75BE00AAE445A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +672,8 @@ magnet:?xt=urn:btih:8CC69411EC78500F81D8C31DC5D75BE00AAE445A
 magnet:?xt=urn:btih:4895ACE68CA493FC3E780B06A450A800AC0CC102
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,127 +698,7 @@ magnet:?xt=urn:btih:4895ACE68CA493FC3E780B06A450A800AC0CC102
 нет
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008120   (816868) от 17.04.2016
-
-Пресеты - VideoHive - The Ultimate Glitch + 70 Presets Pack [FFX, AEP]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816868.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Ultimate Glitch + 70 Presets Pack - набор глюковых пресетов для видео и текста. Добавьте изюминку в ваши проекты, используя уникальные переходы и эффекты, созданные без применения плагинов.Формат: FFX, AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35219752D31227F84DC66300CE002F57D35F3D47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196571   (817008) от 06.01.2018
-
-Экшены - GraphicRiver - Modern Ink Photoshop Action - 21169470 [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Modern Ink - этот экшен фотошоп, превратит ваши фото в полотно с эффектом чернильной абстракции. После того, как действие закончит работу, вы получите структурированный файл со множеством слоёв, для улучшения конечного результата.
-Рекомендуемое разрешение для достижения наилучшего результата - 1500px - 4000px.Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B8C33A5DB9143C1AF984B8CC8AD8CD82D4F6E29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382660   (817086) от 12.05.2020
-
-Фотографии - PHOTOBASH - DUST CLOUDS [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обширная коллекция пыли и облако частиц, снятых в последовательности на черном фоне. Полезно для добавления эффектов, таких как пыль, падающая с потолков, поднимание песка, взрывы грунта и другие эффекты, которые требуют добавления атмосферы и частиц летящей пыли.Формат: JPGРазрешение файлов: 3062x5899-12054x5865
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E39B527BF8F0CDB78DDD5638A26E6C467AEDE7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196568   (817121) от 06.01.2018
-
-Экшены - GraphicRiver - Digi Paint Photoshop Action - 21174860 [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Digi Paint - простой в использовании экшен фотошоп, превратит ваши фото в красочное художественное полотно. После того, как действие закончит работу, вы получите хорошо организованный и структурированный файл со множеством слоёв, папок с настройками, для улучшения конечного результата.Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:063643BB52B41EA745DCB241F3F8E9A18F269588
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007815   (817160) от 17.04.2016
-
-Векторный клипарт - Grunge Shapes  Vector [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-6 EPS | + JPG PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6DEED5E1F8B7FB3F865D437F70684E3C175D8C7
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

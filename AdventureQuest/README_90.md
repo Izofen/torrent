@@ -1,27 +1,3 @@
-###  Публикация: 1004166   (732307) от 29.05.2016
-
-1979 Revolution: Black Friday (2016) [Ru/En] (1.0) License HI2U
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732307.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1978 году в процветавшем и относительно демократичном в культурном плане Иране случилась так называемая Исламская революция, в результате которой шах Мохаммед Реза Пехлеви был свергнут, монархия упразднена, а к власти пришло мусульманское духовенство.Тип издания: LicenseРазработчик: iNK StoriesЖанр: Action, Adventure, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:560B048909424F7E2E6BE8ACE22226FFD3627E2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399450   (733299) от 31.07.2020
 
 Into A Dream (2020) [Ru/Multi] (1.0) Repack Other s
@@ -42,6 +18,8 @@ Into A Dream (2020) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:5E2FA2E23302168314CECCB5E4FD60D1A87F9755
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Life is Strange: Remastered Collection (2022) [Ru/Multi] (2.0.392.645158/dlc) Li
 magnet:?xt=urn:btih:EBA5391E56DE5C8CE21B79489E2EABE09EF6A3E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Creaks (2020) [Ru/Multi] (1.0) License GOG [Collector's Edition] (обновля
 ```bash
 magnet:?xt=urn:btih:0A63BF6D4ADEF36A3D47D05C00AF0682C31D5B2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Whispering Willows (2014) [Ru/Multi] (1.6.4) Repack Other s
 magnet:?xt=urn:btih:E0705EC1F1B5F5C32C5B5BDCED8FC4E0B121D757
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ The Silent Age (2015) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:B30CD64E7E4E83836F7713815796A6A9790DAB68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Terrain of Magical Expertise (2021) [Ru/Multi] (1.08) License GOG
 magnet:?xt=urn:btih:16EE93DBDC621A8378A0E50A361182DA2FC35B6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ The Seventh Sign -Mr.Sister- (2019) [Multi] (1.2.03/dlc) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:D98E6C2089E155B1C231C4B11A3399BADC98E1FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Re;Lord 1 ~The witch of Herfort and stuffed animals~ (2018) [En] (1.00/dlc) Lice
 magnet:?xt=urn:btih:270406D76A354FD78C8227B524F231B6A1311245
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ Outer Wilds - приключения в открытом мире, попытк�
 ```bash
 magnet:?xt=urn:btih:3D4AB3C611BB0FB823B316E3CCF546ACC36687E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ Paws & Soul — это приключенческая игра о перерож
 magnet:?xt=urn:btih:4A59C2802345E3E73641487D919FEB8164B2DE02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ Late Shift – криминальный FMV-триллер, рассказыва
 ```bash
 magnet:?xt=urn:btih:C50B30A3BA33451360B3D7F04683A767527756BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ Bear With Me – это эпизодическая приключенческа�
 magnet:?xt=urn:btih:A0695009BF92C644CEBD5D33848F0BA17898253E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ Shadows on the Vatican Act II: Wrath (2015) [Ru/Multi] (1.0 u2) License PROPHET
 ```bash
 magnet:?xt=urn:btih:FBC9918578DBA7ADC3F631930A597DC55F132C30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ Shadows on the Vatican Act I: Greed (2014) [Ru/Multi] (1.0) License PROPHET
 magnet:?xt=urn:btih:16B7139FFF81B2BAC0A5DA9195CCB5BAA6B1A73F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ Alekhine's Gun (2016) [Ru/Multi] (1.02) License GOG
 ```bash
 magnet:?xt=urn:btih:B109C011C25FAEC132710CC626F66C9D98524433
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ Beautiful Desolation - это 2-мерная изометрическая при
 magnet:?xt=urn:btih:EAA63C2B31A9318EE9A88E3E1D92BC6C385F7F08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ Batman: The Enemy Within - The Telltale Series (2017) [Ru/Multi] (1.0.0.1) Repac
 ```bash
 magnet:?xt=urn:btih:6ED1E411C00BFB0484DC6C88CC6FD246E0452F81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ Ken Follett's The Pillars of the Earth (2017) [Ru/Multi] (1.1.703) License CODEX
 magnet:?xt=urn:btih:119AEFC47615AC9FA7D7CE57D80EE6C7EC8DB393
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ Obduction (2016) [Ru/Multi] (1.7.2) Repack Covfefe
 ```bash
 magnet:?xt=urn:btih:7DC88347500E2219974392DA1D392997B9F217F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ Journey to the Savage Planet (2020) [Ru/Multi] (54082/dlc) Repack Other s
 magnet:?xt=urn:btih:ADED8F362C264694CC344DD2FB6359AE52ED7898
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ Adam's Venture: Origins (2016) [Ru/Multi] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:28EE896B7BF5001D9BA2D65284CE362CB0CF0DD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ Insomnis — это игра в жанре ужасов от первого ли
 magnet:?xt=urn:btih:104E9FD159184DB72B92B102E0CCCD8672EF9EF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ Batman: The Enemy Within - The Telltale Series (2017) [Ru/Multi] (1.0.0.1) Repac
 ```bash
 magnet:?xt=urn:btih:8B1E7125AB68216ECC83E6E09D830B88352D38FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +617,8 @@ Retro Machina — это новое приключение в футуристи
 magnet:?xt=urn:btih:989101C32CEFF9078AE41A294DD8CDF9CE7C4613
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +642,34 @@ Batman: The Enemy Within - The Telltale Series (2017) [Ru/Multi] (1.0.0.1) Licen
 ```bash
 magnet:?xt=urn:btih:B7A3BC90E88A4F180C6743B2CA19761D7689FCD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336860   (757999) от 07.01.2022
+
+The Story of Henry Bishop (2019) [Ru/Multi] (2.3) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_757999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Меня зовут Генри Бишоп, я расскажу вам свою ужасную историю... Эта история произошла со мной в конце 70-х, и даже самый страшный кошмар покажется лишь отголосками ужаса в сравнении с теми загадочными событиями, участником которых я стал. Я работал риелтором по продаже недвижимости и был у нас старинный особняк в штате Мэн, который никто не мог продать. Он висел, (   Читать дальше...   )Тип издания: RepackРазработчик: Blazes GamesЖанр: Adventure (Horror), Action, 1st Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24DFED3632C4EEFF59FB7255B8EBA38AE67F74F9
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

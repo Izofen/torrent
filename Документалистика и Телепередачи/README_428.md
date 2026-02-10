@@ -1,3 +1,29 @@
+###  Публикация: 1301425   (585105) от 11.05.2019
+
+Зима в Дубае / Winter in Dubai (2017) WEBRip [VP9/2160p] [4K, UHD]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585105.jpg" />
+</div>
+
+
+###  Подробнее
+
+В зимние месяцы жители Дубая могут наслаждаться дождём, туманом и даже грозами. Это монтаж моих лучших снимков за зимний период.Производство: ОАЭЖанр: Документальный, видовойРежиссер: Теему ЯрвиненПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:03:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:034EFF263AA296CF8DA46007CC35D2E86A970EE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 358229   (585229) от 03.07.2011
 
 Маленькие питомцы / Baby Planet (2008) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:9814E8E4C8C63CDBD864447DF448ECF8386DDD24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:9814E8E4C8C63CDBD864447DF448ECF8386DDD24
 ```bash
 magnet:?xt=urn:btih:0FA094E36A86FC728C3CFE199CB3C8C7887D30E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:0FA094E36A86FC728C3CFE199CB3C8C7887D30E4
 magnet:?xt=urn:btih:3674D6C4E7F3F0CCBA60C1D1D1D68CE14E557C59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:3674D6C4E7F3F0CCBA60C1D1D1D68CE14E557C59
 ```bash
 magnet:?xt=urn:btih:4A8D44320A92725227475C852D8EC573917CE2AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:4A8D44320A92725227475C852D8EC573917CE2AF
 magnet:?xt=urn:btih:20638E7D7ABF01990D2AB13FDC91E5665A9C2C67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:20638E7D7ABF01990D2AB13FDC91E5665A9C2C67
 ```bash
 magnet:?xt=urn:btih:58BE628BC909607409045277481E74A1EC28C24F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:58BE628BC909607409045277481E74A1EC28C24F
 magnet:?xt=urn:btih:B0B7509F181D679617B3C59D22EA23DC3139D5D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:B0B7509F181D679617B3C59D22EA23DC3139D5D5
 magnet:?xt=urn:btih:AE2433AA55874D130825EFAC90731DC23F0F117E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:AE2433AA55874D130825EFAC90731DC23F0F117E
 ```bash
 magnet:?xt=urn:btih:E6F0978F714109B16535700EE69D636C3C78CF8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:E6F0978F714109B16535700EE69D636C3C78CF8E
 magnet:?xt=urn:btih:1C12C619F8A0130CD22C10DFFD2E8AF46D10C87E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:1C12C619F8A0130CD22C10DFFD2E8AF46D10C87E
 ```bash
 magnet:?xt=urn:btih:965C495CA9917A639B093F89C90D4A7DE1C736F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:965C495CA9917A639B093F89C90D4A7DE1C736F1
 magnet:?xt=urn:btih:0C4C5538B632D2CBD2141D7844FE31A8577D1D34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:0C4C5538B632D2CBD2141D7844FE31A8577D1D34
 ```bash
 magnet:?xt=urn:btih:96F9583AA865EE44480B036F22756F32CB5EF5AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:96F9583AA865EE44480B036F22756F32CB5EF5AA
 magnet:?xt=urn:btih:E956921313180531DF695593352DA812DADD9C92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:E956921313180531DF695593352DA812DADD9C92
 ```bash
 magnet:?xt=urn:btih:17C276612454E24C11EFA33F3C90604C46597FB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:17C276612454E24C11EFA33F3C90604C46597FB2
 magnet:?xt=urn:btih:821FA8175206B35FE7CF4F4407D2EB8B5A1A502F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:821FA8175206B35FE7CF4F4407D2EB8B5A1A502F
 ```bash
 magnet:?xt=urn:btih:9AF63A2C57AD2002A9876486369C9209CBE3A128
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:9AF63A2C57AD2002A9876486369C9209CBE3A128
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:9AF63A2C57AD2002A9876486369C9209CBE3A128
 ```bash
 magnet:?xt=urn:btih:71D19A23673D9A3183A32A083762D55F00198404
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:71D19A23673D9A3183A32A083762D55F00198404
 magnet:?xt=urn:btih:14D04C055C47018A5E05E3A28C78175E99A06881
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:14D04C055C47018A5E05E3A28C78175E99A06881
 ```bash
 magnet:?xt=urn:btih:DDBDD391672D857659F61F79C89D46DA25E52255
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:DDBDD391672D857659F61F79C89D46DA25E52255
 magnet:?xt=urn:btih:2C724C10A941D9F55206B8C3E5158A0D5EB42FD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +621,8 @@ magnet:?xt=urn:btih:2C724C10A941D9F55206B8C3E5158A0D5EB42FD9
 magnet:?xt=urn:btih:624023CBBDE319B0ED3B253628041C7CF4BFC323
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +646,8 @@ magnet:?xt=urn:btih:624023CBBDE319B0ED3B253628041C7CF4BFC323
 ```bash
 magnet:?xt=urn:btih:357C7B0676E35EB3CECB11F58B9189843D5F0B89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,29 +674,7 @@ magnet:?xt=urn:btih:357C7B0676E35EB3CECB11F58B9189843D5F0B89
 magnet:?xt=urn:btih:DCFEF147D85DEBF8BF05DA2DBD0AF1725961B5FA
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040653   (586539) от 05.08.2016
-
-Вести в 20-00. Большие Вести. Россия 1 (05.08.2016) HDTVRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586539.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Вести» — информационная телевизионная программа Всероссийской государственной телерадиокомпании. Выходит в эфир на каналах «Россия-24», «Россия-1», «РТР-Планета» и «РТР-Беларусь». Производятся Дирекцией информационных программ Государственной телекомпании «Россия». Самые последние новости в России и в мире - смотрите в последних выпусках новостей телеканала «Россия».Телекомпания: Россия 1 HDЖанр: ТелепередачаПродолжительность: 01:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02F72A27DF28AE99C36D04ED1E2E56E74BCF705B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

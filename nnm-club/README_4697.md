@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:BFF2304A8253F55DD64154A7CE33E5B5BFCB3D39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NGW: Братья сафари / Safari Brothers (2016) HDTV [H.264/1080i-LQ] (�
 ```bash
 magnet:?xt=urn:btih:0C4CA1FB12068B69565C38BA7020024AC2320D0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ VA - Hustle Hits (1975) LP [MP3|320 Kbps] <Funk/Soul, Disco>
 magnet:?xt=urn:btih:11FE132DE3B09169A90D4FE28376C91E1A6C382D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:11FE132DE3B09169A90D4FE28376C91E1A6C382D
 ```bash
 magnet:?xt=urn:btih:DCA0F77BC898763D8B8918A28790235D87007213
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:DCA0F77BC898763D8B8918A28790235D87007213
 magnet:?xt=urn:btih:4CF694261E116F2B7987C03B9530EB3F6D6EB00A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:4CF694261E116F2B7987C03B9530EB3F6D6EB00A
 ```bash
 magnet:?xt=urn:btih:75D576EF84EA45E5E39EEC779484819A29470EE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Stay Away - СССР 2077 (2023) [MP3|320 Kbps] <Punk Rock>
 magnet:?xt=urn:btih:76E0BF1F137B8A46E4027279ADCCB53B60B66C6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ CHIP | CHIP - DVD приложение к журналу CHIP №1 (январь
 magnet:?xt=urn:btih:35046F12D64B6B301F0B072A1D75C9FA610871EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:35046F12D64B6B301F0B072A1D75C9FA610871EF
 ```bash
 magnet:?xt=urn:btih:48A12735D5985299E333E7F41CB2F8C80078F3F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ VA - SpinCat Music - Best Of 2021 (2021) [MP3|320 Kbps] <Disco, Nu-Disco>
 magnet:?xt=urn:btih:7A9B1C0908AF8AE392A74EE4D66FBDCB600C15E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:7A9B1C0908AF8AE392A74EE4D66FBDCB600C15E1
 magnet:?xt=urn:btih:D4FF951738BEB683EA8833F0B600E91FA3973B5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:D4FF951738BEB683EA8833F0B600E91FA3973B5D
 ```bash
 magnet:?xt=urn:btih:09B10AE5966413EB2D51E961452ACE84B6D3CA64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:09B10AE5966413EB2D51E961452ACE84B6D3CA64
 magnet:?xt=urn:btih:6690557C5D08940B94597AA2C61530995867ED42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ Total Commander 9.0a Final MAX-Pack Extended 2016.12.16 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:43E27ED898027CE0934C659EF32E678E120D6983
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:43E27ED898027CE0934C659EF32E678E120D6983
 magnet:?xt=urn:btih:BAE733795C8E8C272B295049E11FC7EB0BF06813
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:BAE733795C8E8C272B295049E11FC7EB0BF06813
 magnet:?xt=urn:btih:B3C1B28C10B11C48F7F7BB941A124BD72D6A16F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:B3C1B28C10B11C48F7F7BB941A124BD72D6A16F4
 ```bash
 magnet:?xt=urn:btih:E591E289348ED25338402CA25A4DCA2ED04A2084
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ VA - Fear FM Hardstyle Top 40 January (2012) Unmixed [MP3|320 Kbps] <Hardstyle>
 magnet:?xt=urn:btih:8A39C8DECEF371D8F740BEB4C017C0A85AB2E840
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ magnet:?xt=urn:btih:8A39C8DECEF371D8F740BEB4C017C0A85AB2E840
 magnet:?xt=urn:btih:21CF27C364E1F3C0828A13DC5E55051CDB2D476F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ magnet:?xt=urn:btih:21CF27C364E1F3C0828A13DC5E55051CDB2D476F
 ```bash
 magnet:?xt=urn:btih:25145109CBA5BF80B846B288ADAAEAA0F3ED1C5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +558,8 @@ Dan Lucas - The Long Road (2021) [FLAC|Lossless|image + .cue] <AOR>
 magnet:?xt=urn:btih:6F5B7BE2CAC081E525784D45608A493E19102728
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:6F5B7BE2CAC081E525784D45608A493E19102728
 magnet:?xt=urn:btih:A073388BC0BABB950216024912BFDE2980429284
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ Substance Painter - современное решение для 3D-рисова
 ```bash
 magnet:?xt=urn:btih:E6521F42F0382175E4403BAB969844C58F76FF83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +639,8 @@ VA - Chillout 2016 Best of 30 Top Hits (2015) [MP3|320 кб/с] <Downtempo, Chil
 magnet:?xt=urn:btih:A9E7D7EAD97457965022049D389B0A5EB68872E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ Cocktail - комплекс утилит по всестороннему обс�
 ```bash
 magnet:?xt=urn:btih:669C7AFB7BD1849E505948D8EF8428D325CB4F83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +691,8 @@ magnet:?xt=urn:btih:669C7AFB7BD1849E505948D8EF8428D325CB4F83
 ```bash
 magnet:?xt=urn:btih:759F6DA5E359EEC0BF544F9B80B7E8615BC2E810
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

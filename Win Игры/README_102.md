@@ -19,6 +19,8 @@ NEEDY STREAMER OVERLOAD - это "многосерийный ADV", в котор
 magnet:?xt=urn:btih:21EAA2AD0D5448B183A119FD2F53964342752624
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Foundation: Новая эра в средневековых строительн
 ```bash
 magnet:?xt=urn:btih:383BE82DF7A1E11C86D319C5F7241CAAB4914D9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ DeTechtive 2112 (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:FF06046CCFD47C867C91686901517ADC73BF729C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Deliver Us Mars - продолжение получившей множество
 ```bash
 magnet:?xt=urn:btih:6CF2F2DB412E2741F2B41B85F06F0D2BE3463644
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ The Stone of Madness – тактическая стелс-игра в реал�
 magnet:?xt=urn:btih:924510DF7DB66937B3EBA977E002BA870F627461
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Somnus (2025) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D9356CF113E737D20A32AC6C1FE44560BD5EAF71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Final Fantasy VII (7) Rebirth (2025) [Multi] (build 17035252) Scene FAiRLIGHT
 magnet:?xt=urn:btih:219960B356BAE0392334AF57289691A0F13C897A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Princess&Blade - это захватывающее приключение, в к
 ```bash
 magnet:?xt=urn:btih:A39A8BD93E2929826563CAC0FAA9FD49D89CCDEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Eternal Strands - это дебютный фэнтезийный приключ�
 magnet:?xt=urn:btih:2FCA551D53709663116F005711DF76780F9D5D56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Rock Star Life Simulator - это обширная игра-симулятор �
 ```bash
 magnet:?xt=urn:btih:13DAB21428F3BA917A4A1814C9453707755C4724
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Other Me (2025) [Ru/Multi] (build 16992762) Scene Tenoke
 magnet:?xt=urn:btih:7733CFB9CADAE71E3B3E290C34131EFEEC982DF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Ad Infinitum (2023) [Ru/Multi] (1.0.8.271534) Repack Let'sРlay [Supporter Editi
 ```bash
 magnet:?xt=urn:btih:A016D791C47E0FB7C253F70BE4DBCCA8198BAA2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Alien: Rogue Incursion Evolved Edition (2025) [Ru/Multi] (Build 20147338/dlc) Re
 magnet:?xt=urn:btih:8247026EF6408A04D3A461D54F7E9C19209FF73E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Call of Duty: Black Ops Cold War (2020) [Ru/Multi] (1.34.0.15931218) Repack sele
 ```bash
 magnet:?xt=urn:btih:34B9EF75062B24D0E8FED0DE76947D24A22CB52E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ System Shock — это полноценный ремейк хита 1994 го�
 magnet:?xt=urn:btih:B6B76F017DA530855BEF16F678A4FA338A3AE5BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Learning Factory - симулятор, который призван созда�
 ```bash
 magnet:?xt=urn:btih:D8BCA8F806F1471950ABEF020F504902365D4184
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Dark Town Secrets: Lost Lulu / Секреты Темного города: В п
 magnet:?xt=urn:btih:258BA2EDEA473B91E2086E83253569B1C82755E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ JOY OF PROGRAMMING - Software Engineering Simulator (2024) [Ru/Multi] (1.0.0) Re
 ```bash
 magnet:?xt=urn:btih:01E1DF6A8D44E7538D5C3C876CA39633AA074EA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ ReSetna (2025) [Ru/Multi] (build 17191225) Repack seleZen
 magnet:?xt=urn:btih:8EA6FA757F4E02AF9A99653439849AB5C9EEF49D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The End of the Sun - это мистическая приключенческа�
 ```bash
 magnet:?xt=urn:btih:16EC48F5410601AD05BCD9820ED27D25BD0226EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Industry Giant 4.0 (2024) [Ru/Multi] (0.4.2) Repack seleZen [Early Access]
 magnet:?xt=urn:btih:68339003B3F55E4D31A714BA3E8D1F0848EFAB8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Battle Realms: Zen Edition (2019) [Ru/Multi] (1.59.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:580EEE79C3EC7FEFA1FE10094D1F805B66A343BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Manor Lords - стратегическая игра в эпоху среднев
 magnet:?xt=urn:btih:9F057EC5C13E3953EF9E80329D49F46EBBC9DAB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Empire of the Ants (2024) [Ru/Multi] (1.03.20053/dlc) License GOG [Digital Delux
 ```bash
 magnet:?xt=urn:btih:3D8EC297AFE9E726E12CCAAA8BF172EF298AC98D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ DeTechtive 2112 (2025) [Ru/Multi] (Build 17159957) Repack seleZen
 magnet:?xt=urn:btih:523A4C3DDF41FE6A1B7565A6E7DC0D4D78FA99B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ DeTechtive 2112 (2025) [Ru/Multi] (Build 17159957) Scene Rune
 ```bash
 magnet:?xt=urn:btih:9DBC6983C416301835136D888EE27062C0EED0B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

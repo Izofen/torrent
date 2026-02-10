@@ -22,6 +22,8 @@ Udemy, Peter A | Password Cracking: Brute Forcing (2022) WEB-DL [EN / EN Sub]
 magnet:?xt=urn:btih:55BC5FA4E7AB1C3652454392968F39DFE3B258F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:55BC5FA4E7AB1C3652454392968F39DFE3B258F8
 ```bash
 magnet:?xt=urn:btih:18A3D78A55A5D996FA845D2D1CB6361AEC07D0E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:18A3D78A55A5D996FA845D2D1CB6361AEC07D0E8
 magnet:?xt=urn:btih:A444FDCDE9EF5D7050EAF3616A3CF80E858ABACA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Udemy, Pirate Sheep | Houdini Hacks: 3D Dynamics for Absolute Beginners (2023) W
 ```bash
 magnet:?xt=urn:btih:78D95B7F728E823F3A4E5FA7F14853B98808D1B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Udemy, Gustavo Pezzi, Pikuma .com | Lua Scripting: Master complete Lua Programmi
 magnet:?xt=urn:btih:006206A1491BE741A9312A84E146C319BBE028FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ Vertex School, Keith Kamholz | Houdini FX & Redshift (2022) WEB-DL [EN]
 magnet:?xt=urn:btih:BA696E104CF15B73DCAA51631AB59B8DDA5E48B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ C++ — один из самых популярных языков програ�
 magnet:?xt=urn:btih:5AA0298B3A2DB78C5108B97E22DA60510CF42C18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ Udemy, Kyle Schaub | Lua Programming and Game Development with LÖVE (2021) WEB-
 ```bash
 magnet:?xt=urn:btih:1E9A6DCEF396537D325ECE3F42289563A38F3293
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -228,6 +244,8 @@ ArtiGood, Николай Солодов | Акварельный курс «Зи
 magnet:?xt=urn:btih:44A3E357F31B119A4E733A9796131AECD4F5D0EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ magnet:?xt=urn:btih:44A3E357F31B119A4E733A9796131AECD4F5D0EE
 ```bash
 magnet:?xt=urn:btih:E4DC472142233D94EF6A1A0DE30B3923DB2D36DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -281,6 +301,8 @@ Dream&Draw, Анастасия Козлова | Марафон по акваре
 magnet:?xt=urn:btih:6844D23EC26D9D5782BD7C70D90D477FBA509D7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +329,8 @@ FXPHD, Andrew Lowell | HOU220 – Houdini FX, Particle Fundamentals and Fuzzy Lo
 magnet:?xt=urn:btih:D8B603ABCF0DE56863D6445B7CE2128E95AFC908
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +354,8 @@ magnet:?xt=urn:btih:D8B603ABCF0DE56863D6445B7CE2128E95AFC908
 ```bash
 magnet:?xt=urn:btih:4F960B61DCFBB129BB5F43C9096052D91AA07A04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +381,8 @@ magnet:?xt=urn:btih:4F960B61DCFBB129BB5F43C9096052D91AA07A04
 ```bash
 magnet:?xt=urn:btih:505B6F2E609C83D67E29FFDF46B5AAE68386F8CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +411,8 @@ ArchiCAD. Это инструмент, который поможет вам бе
 magnet:?xt=urn:btih:86894E7CEA00F895052C00860AC953741FB42517
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +438,8 @@ magnet:?xt=urn:btih:86894E7CEA00F895052C00860AC953741FB42517
 magnet:?xt=urn:btih:9BE58F5701D62D8F9368ED12609AD0D54DC586D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +463,8 @@ Udemy, Mohamed Hajji | BUILD THE BEST ECOMMERCE WEBSITE EVER with REACT JS NEXT 
 ```bash
 magnet:?xt=urn:btih:23AC3C1DBF2F2C1DD211C901AD4E6C1DFF5C1F8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +493,8 @@ Udemy, Jonas Schmedtmann | Crash Course: Build a Full-Stack Web App in a Weekend
 magnet:?xt=urn:btih:CA4F5B47B0C33AF45E5E879D25E1F14765546535
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +520,8 @@ IELTS 7 Plus is your complete IELTS academic preparation course. This course cov
 ```bash
 magnet:?xt=urn:btih:92B8B3543A35948DBEAAD2CCBE5AD97CA661298F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +550,8 @@ Kalacheva School, Вера Соколова | Новый английский к
 magnet:?xt=urn:btih:4E7BAE2A900154B76FE04187BF2B71BCD2727119
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +579,8 @@ Nexttut Education Pvt.Ltd., Shahzad Ahmad | Houdini for Absolute Beginners (2022
 magnet:?xt=urn:btih:A6A53BDBDC3E6854BC4ABD7DB4A0A20B9AAEECBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +606,8 @@ Rebelway, Saber Jlassi | Abstract FX in Houdini Using Karma (2021) WEB-DL [EN, R
 ```bash
 magnet:?xt=urn:btih:B31B720CFFED474646314B11F5C8525EDDEE2495
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +635,8 @@ Rebelway, Saber Jlassi, Igor Zanic | Ocean rendering using Redshift (2020) WEB-D
 magnet:?xt=urn:btih:1727D5548DA2340E57EBF3DC5865445293D75D32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +662,8 @@ magnet:?xt=urn:btih:1727D5548DA2340E57EBF3DC5865445293D75D32
 ```bash
 magnet:?xt=urn:btih:FC54C7DDB978DF679F6991BCC8B8AC61BB20F19E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +691,8 @@ MographPlus, Камиль Хезри | The Ultimate Introduction to Arnold 6 for
 magnet:?xt=urn:btih:944D092D14803FEBA8A7E954179F22C0FCD4D650
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +718,8 @@ magnet:?xt=urn:btih:944D092D14803FEBA8A7E954179F22C0FCD4D650
 ```bash
 magnet:?xt=urn:btih:047A0284EA8DB72B73207D1AA0121E58AA59134E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

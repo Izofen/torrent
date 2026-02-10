@@ -1,3 +1,31 @@
+###  Публикация: 1522232   (759927) от 06.01.2022
+
+Ричард Боллс | Какого цвета ваш парашют? Легендарное руководство для тех, кто экстренно ищет работу (2020) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Правила игры изменились. Внезапно. Без предупреждения. Особенно нелегко стало тем, кто ищет работу или хочет её сменить. Работодатели и кандидаты всё чаще не понимают друг друга, а на поиск работы уходят месяцы и даже годы.
+
+В ваших руках самая популярная книга по поиску работы в мире, которую читают в 26 странах на 20 языках, а её продажи превысили 10 000 000 экземпляров. (   Читать дальше...   )Жанр: Зарубежная деловая литература, Поиск работы / карьера, Советы от гуруПеревод: А. Д. СайфуллинаФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF0B404734F165AE7406861237C5EFBDE1847239
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394878   (759970) от 07.07.2020
 
 Алексей Марков | Хулиномика 3.0: хулиганская экономика. Еще толще. Еще длиннее (2019) [EPUB]
@@ -20,6 +48,8 @@
 ```bash
 magnet:?xt=urn:btih:A4EAB3EA1D958D2CF7BA609AD75CACDDDB9CB415
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +74,8 @@ magnet:?xt=urn:btih:A4EAB3EA1D958D2CF7BA609AD75CACDDDB9CB415
 ```bash
 magnet:?xt=urn:btih:9CF506EF770AF7F907F7BFD0DE5B7880244A82F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +103,8 @@ magnet:?xt=urn:btih:9CF506EF770AF7F907F7BFD0DE5B7880244A82F6
 magnet:?xt=urn:btih:41E73294730CDABB860B92C6B0691E55255C6997
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +131,8 @@ magnet:?xt=urn:btih:41E73294730CDABB860B92C6B0691E55255C6997
 magnet:?xt=urn:btih:F83046DF46634394E9F6B7581CBE9EFA172CE035
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +156,8 @@ magnet:?xt=urn:btih:F83046DF46634394E9F6B7581CBE9EFA172CE035
 ```bash
 magnet:?xt=urn:btih:A2AFC209E451BDF0BB74A53EB79EB3467BFF13BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +185,8 @@ magnet:?xt=urn:btih:A2AFC209E451BDF0BB74A53EB79EB3467BFF13BD
 magnet:?xt=urn:btih:7A716EA637D5BFA1EF93A401DA414D0D12B7C49F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +213,8 @@ magnet:?xt=urn:btih:7A716EA637D5BFA1EF93A401DA414D0D12B7C49F
 magnet:?xt=urn:btih:CC51362018FAF2BB44E40315F2473488591B8612
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +238,8 @@ magnet:?xt=urn:btih:CC51362018FAF2BB44E40315F2473488591B8612
 ```bash
 magnet:?xt=urn:btih:02154B4819AD0172995BE36ED9AB3DB1486A71F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +265,8 @@ magnet:?xt=urn:btih:02154B4819AD0172995BE36ED9AB3DB1486A71F0
 magnet:?xt=urn:btih:1AA28E2FDBE3349F0A479C367AFBA76FCF3E376E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +290,8 @@ magnet:?xt=urn:btih:1AA28E2FDBE3349F0A479C367AFBA76FCF3E376E
 ```bash
 magnet:?xt=urn:btih:9A9C6219CB5B7D39619AC9F768F487122A9B3E9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +317,8 @@ magnet:?xt=urn:btih:9A9C6219CB5B7D39619AC9F768F487122A9B3E9D
 magnet:?xt=urn:btih:94B37A262A9F96FCB2B1063CF700EAA6F069D666
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +342,8 @@ magnet:?xt=urn:btih:94B37A262A9F96FCB2B1063CF700EAA6F069D666
 ```bash
 magnet:?xt=urn:btih:F468B1813EF5C845BC1B868A0173FEC090113791
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +371,8 @@ magnet:?xt=urn:btih:F468B1813EF5C845BC1B868A0173FEC090113791
 magnet:?xt=urn:btih:08461610EBBB8F5003AD47B0AAFAC788EDDC2596
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +397,8 @@ magnet:?xt=urn:btih:08461610EBBB8F5003AD47B0AAFAC788EDDC2596
 magnet:?xt=urn:btih:89F006A8BD48EA62339F42E1CAB08E142F5A688C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +422,8 @@ magnet:?xt=urn:btih:89F006A8BD48EA62339F42E1CAB08E142F5A688C
 ```bash
 magnet:?xt=urn:btih:639AC05E2A3A98CBA55533921D4DC1CA998EBEAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +451,8 @@ magnet:?xt=urn:btih:639AC05E2A3A98CBA55533921D4DC1CA998EBEAD
 magnet:?xt=urn:btih:4AF792BB44864B8F0FAAA3AF6B6C2A8749F244A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +478,8 @@ magnet:?xt=urn:btih:4AF792BB44864B8F0FAAA3AF6B6C2A8749F244A2
 ```bash
 magnet:?xt=urn:btih:CC1E0418176B4533564B5F012F3A011B4563B185
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +507,8 @@ Rip-Extract сайта.
 magnet:?xt=urn:btih:E8FF06134B94488A3C3F5324DB9F20E2B117349E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +532,8 @@ magnet:?xt=urn:btih:E8FF06134B94488A3C3F5324DB9F20E2B117349E
 ```bash
 magnet:?xt=urn:btih:AA3DF8834FE38149DCCE698D1E01E41B380C2E89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +559,8 @@ magnet:?xt=urn:btih:AA3DF8834FE38149DCCE698D1E01E41B380C2E89
 magnet:?xt=urn:btih:8C25817027BFE5A1DDD86DF1CBB536102E611C60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +584,8 @@ Ennio Morricone | Сборник нот для фортепиано [13] (2003) 
 ```bash
 magnet:?xt=urn:btih:FBC077863D9D30E943AF81576EEAFB9210C73D7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +613,8 @@ magnet:?xt=urn:btih:FBC077863D9D30E943AF81576EEAFB9210C73D7E
 magnet:?xt=urn:btih:848C73EA45137E6A6D5C6A73A50E5B712AD41C09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +641,8 @@ magnet:?xt=urn:btih:848C73EA45137E6A6D5C6A73A50E5B712AD41C09
 magnet:?xt=urn:btih:C2F974A15FD3AAC19A542F92E65369687138C3E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +668,8 @@ magnet:?xt=urn:btih:C2F974A15FD3AAC19A542F92E65369687138C3E3
 magnet:?xt=urn:btih:01D4A9DC41A740E95102B933E8B201BAA6D8A392
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,31 +694,7 @@ magnet:?xt=urn:btih:01D4A9DC41A740E95102B933E8B201BAA6D8A392
 magnet:?xt=urn:btih:4C922F079E7156A38F21253EA87FCC5DC48DD37D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280296   (761861) от 02.02.2019
-
-Олег Тиньков | Революция. Как построить крупнейший онлайн-банк в мир (2018) [FB2]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Олег Тиньков – уникальный предприниматель, доказавший, что успешный бизнес можно создать в разных отраслях.
-
-Он построил такие компании как «Техношок», «Дарья», завод и сеть ресторанов «Тинькофф», а после успешной продажи пивного бизнеса решил вложить капитал в инновационный банк. Предприниматель пришел на рынок, когда в стране было больше 1000 банков, но смог создать (   Читать дальше...   )Жанр: Истории успеха, Просто о бизнесеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D270E36CAB85155764D08BB5CFDD83A3B964BA5
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

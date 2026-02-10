@@ -1,3 +1,29 @@
+###  Публикация: 1017484   (761228) от 17.05.2016
+
+Осторожно, мошенники! Обмануть звезду (2016.05.10) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наверное, каждый хоть раз становился жертвой мошенников: будь то игра в "моментальные" лотереи, приобретение ненужных, а иногда и вредных пищевых добавок или общение с вымогателями денег по телефону, для пополнения мобильного счёта бедного чада, оставшегося без связи. В помощь нежелающим наступать на старые грабли зрителям на канале "ТВ Центр" (   Читать дальше...   )Производство: РоссияТелекомпания: ТВЦЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: ~ 00:24:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3EE436566C3EE85660751D970C225379C391749
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017371   (761234) от 17.05.2016
 
 Кино в деталях. Александр Цекало (16.05.2016) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:691967011063483731CF0197DF2A5B5FF6C7F529
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ Episode 1: Conflict / Конфликт
 magnet:?xt=urn:btih:7535F95324DC50A83AE190BC1AEA2972E3D863FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:7535F95324DC50A83AE190BC1AEA2972E3D863FE
 ```bash
 magnet:?xt=urn:btih:FA439EF13D6DD2624CF4B494C7E4B0416331CF0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:FA439EF13D6DD2624CF4B494C7E4B0416331CF0E
 magnet:?xt=urn:btih:628123008E61D8D4BAC95EB608F5FD2D17279365
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:628123008E61D8D4BAC95EB608F5FD2D17279365
 ```bash
 magnet:?xt=urn:btih:C145397F79B6C6708B420AC64730C2193113F279
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:C145397F79B6C6708B420AC64730C2193113F279
 magnet:?xt=urn:btih:D949440BD8D0DFF09CD82861D6964220870170A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:D949440BD8D0DFF09CD82861D6964220870170A7
 ```bash
 magnet:?xt=urn:btih:846AF77378B5678A6312C696D5F7BEB917014B90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:846AF77378B5678A6312C696D5F7BEB917014B90
 magnet:?xt=urn:btih:2E5892353A4825EEE0C07ABDCDA1EDA7C5178CCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:2E5892353A4825EEE0C07ABDCDA1EDA7C5178CCB
 magnet:?xt=urn:btih:A600866B1C648806B43EC0ED01A4200F69895B6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:A600866B1C648806B43EC0ED01A4200F69895B6B
 ```bash
 magnet:?xt=urn:btih:70FE313EC4F1124BB8DC6FF59C7A7A7423F08958
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:70FE313EC4F1124BB8DC6FF59C7A7A7423F08958
 magnet:?xt=urn:btih:8AD94CEA627709B67F3B3FDC6053586D7298F956
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:8AD94CEA627709B67F3B3FDC6053586D7298F956
 ```bash
 magnet:?xt=urn:btih:524F05AD1A37955268463525ED70F7BFED1580BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:524F05AD1A37955268463525ED70F7BFED1580BC
 magnet:?xt=urn:btih:DD0A0087A731BD1FB4C693AA25D90B27BB46429C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:DD0A0087A731BD1FB4C693AA25D90B27BB46429C
 ```bash
 magnet:?xt=urn:btih:D5C2123A1C66050F9E0480AFE7DABA4D8E952769
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:D5C2123A1C66050F9E0480AFE7DABA4D8E952769
 magnet:?xt=urn:btih:F0FFD02E2E650E5BB66A0EFE14B6F972CB923738
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:F0FFD02E2E650E5BB66A0EFE14B6F972CB923738
 ```bash
 magnet:?xt=urn:btih:372F03EBA8ECF08ABCA4AF9AA906F1A97A884174
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:372F03EBA8ECF08ABCA4AF9AA906F1A97A884174
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:372F03EBA8ECF08ABCA4AF9AA906F1A97A884174
 ```bash
 magnet:?xt=urn:btih:1FD0A9639ACAE0208134FA8DFE1D8B9FB1D73FA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:1FD0A9639ACAE0208134FA8DFE1D8B9FB1D73FA6
 magnet:?xt=urn:btih:43F7716B7F5A3719509EC77DD6D855630A332E86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:43F7716B7F5A3719509EC77DD6D855630A332E86
 ```bash
 magnet:?xt=urn:btih:BCFCD95026D90AA7F156E5C805F1ABAD74118AB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:BCFCD95026D90AA7F156E5C805F1ABAD74118AB3
 magnet:?xt=urn:btih:DE6E3BDA13CEB7A40C74E9FFB13CD0581E0DAD23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:DE6E3BDA13CEB7A40C74E9FFB13CD0581E0DAD23
 ```bash
 magnet:?xt=urn:btih:B078654D652736EC07116D838DEB6A812F44681A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +621,8 @@ magnet:?xt=urn:btih:B078654D652736EC07116D838DEB6A812F44681A
 magnet:?xt=urn:btih:00C4E1E1D5E10DB706B2DF43B1F79A2F3D320251
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +646,8 @@ magnet:?xt=urn:btih:00C4E1E1D5E10DB706B2DF43B1F79A2F3D320251
 ```bash
 magnet:?xt=urn:btih:1000B9A0E6FF7DC7937EF7485597FAD6DDE8B9CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,29 +673,7 @@ magnet:?xt=urn:btih:1000B9A0E6FF7DC7937EF7485597FAD6DDE8B9CE
 magnet:?xt=urn:btih:C255DD31C87C8EBAFEF2CDE0AA3093DB0D641DE1
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394702   (762099) от 06.07.2020
-
-Великие океаны / Great Blue Wild (2015-2018) UHDTV 2160p [H.265/2160p-LQ] [4K, 10 bit] сезоны 1-3 из 3, серии 1-18 из 18
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Познакомьтесь поближе с китовыми акулами, дельфинами, гигантскими скатами мантой и захватывающими рыбными стаями.Жанр: Документальный, ПриродаПеревод: Двуголосый профессиональныйПродолжительность: ~00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FAE374A6BC3D415DFEC1B18AD468B8A0BFE0FE5
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

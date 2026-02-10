@@ -22,6 +22,8 @@ VA - Without Love Metal Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Metal>
 magnet:?xt=urn:btih:348C6E155B34C3161FEC03DC8DAD2C76B6939163
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Gary Moore - Gary Moore Live From Baloise Session (2025) [MP3|320 Kbps] <Blues, 
 magnet:?xt=urn:btih:45A575F286BE0ADD0B3D1D9F643ED294751455E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:45A575F286BE0ADD0B3D1D9F643ED294751455E5
 magnet:?xt=urn:btih:7F43F2BCB03BBB0A3C13397316ACE6237D4CD7B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:7F43F2BCB03BBB0A3C13397316ACE6237D4CD7B7
 ```bash
 magnet:?xt=urn:btih:EFC467495696507A9C9815B39180EA49ACB5FB4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Valerie Star - I Can’t Forget You (2025) [MP3|320 Kbps] <Italo Disco, Synthpop
 magnet:?xt=urn:btih:E561FE19F0E98FA5FBAEC53E62A7D3FADD5EF2C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:E561FE19F0E98FA5FBAEC53E62A7D3FADD5EF2C2
 ```bash
 magnet:?xt=urn:btih:F24554C34E0C8533711E2571E35FC5C397049DDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ Arifureta Shokugyou de Sekai Saikyou | Арифурэта: Сильнейший 
 magnet:?xt=urn:btih:AC3CA508BB75427DD03BF19F4E160060466BC063
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:AC3CA508BB75427DD03BF19F4E160060466BC063
 ```bash
 magnet:?xt=urn:btih:62A8470AF5AE210E535AD2F2273E22B06F43FD49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ VA - D.Trance 110 (incl. EYE-Trance 18) (2025) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:B6806D537DF97F512B431471E5D57E469AB35240
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:B6806D537DF97F512B431471E5D57E469AB35240
 ```bash
 magnet:?xt=urn:btih:9946FB50BBAF17A98DEB87818A2388D1E4B8E082
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:9946FB50BBAF17A98DEB87818A2388D1E4B8E082
 magnet:?xt=urn:btih:E8069B8B07E291827FBFFEBF081346475780C126
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:E8069B8B07E291827FBFFEBF081346475780C126
 ```bash
 magnet:?xt=urn:btih:7AD24F3982F67129F78BE789994A99360C04663C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:7AD24F3982F67129F78BE789994A99360C04663C
 magnet:?xt=urn:btih:7B735881F53F2037B68F1335A9C9FC278FF2AB02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:7B735881F53F2037B68F1335A9C9FC278FF2AB02
 ```bash
 magnet:?xt=urn:btih:D395366014A079A5FCF86D8A020E932296E2DE0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ Alabama - In Pictures (1995) [FLAC|Lossless|tracks + .cue] <Folk, Country Rock, 
 magnet:?xt=urn:btih:63E5DEC3DD07F3C92C5E3E8DAC33E8D8FBE5AD3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:63E5DEC3DD07F3C92C5E3E8DAC33E8D8FBE5AD3C
 magnet:?xt=urn:btih:BCAB8AAD282410C9DAA9EB2B6D50A9544B1C9C5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:BCAB8AAD282410C9DAA9EB2B6D50A9544B1C9C5A
 magnet:?xt=urn:btih:F7EB26E03904FA58AC07EA9E2CA4F278BE752057
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:F7EB26E03904FA58AC07EA9E2CA4F278BE752057
 ```bash
 magnet:?xt=urn:btih:9A399C28C4BDBA3152E0B73814479F1EA673505A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:9A399C28C4BDBA3152E0B73814479F1EA673505A
 magnet:?xt=urn:btih:8D2167ECEDE8BFE06B7D470BFD5B94C4DF09DBB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:8D2167ECEDE8BFE06B7D470BFD5B94C4DF09DBB6
 ```bash
 magnet:?xt=urn:btih:0D050F7B1D72D7EFBC75AA952019224D7A0E5F5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +562,8 @@ magnet:?xt=urn:btih:0D050F7B1D72D7EFBC75AA952019224D7A0E5F5F
 magnet:?xt=urn:btih:54DA2B8C78C0E8B0E38E97D2526E963DF6EC986B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +587,8 @@ magnet:?xt=urn:btih:54DA2B8C78C0E8B0E38E97D2526E963DF6EC986B
 ```bash
 magnet:?xt=urn:btih:8DD6FC34BDC3EC9C676E82F9BCD900C48CC74F1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ Fort Firewall - простой и бесплатный брандмауэр дл
 magnet:?xt=urn:btih:EAF7171C5C1933F29189C1ADC772A55F6F30D0F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +640,8 @@ XnView MP - мощное многофункциональное приложен
 magnet:?xt=urn:btih:175428A3B60FCB4673DF662DB5393E77F414EC50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +665,8 @@ magnet:?xt=urn:btih:175428A3B60FCB4673DF662DB5393E77F414EC50
 ```bash
 magnet:?xt=urn:btih:79F31C159D8C5B9A3D2EA3C6FCC7D490ED7D619C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +693,8 @@ Overlord | Владыка (2012) [16 томов + Экстра] [Ранобэ] [
 ```bash
 magnet:?xt=urn:btih:58BA217577E289201B840F7811E7E0EC911333D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

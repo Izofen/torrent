@@ -19,6 +19,8 @@ IceCream Ebook Reader Pro 6.25 RePack (& Portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:46A037C22E6CA66CE882044BF34E8E20D4507DA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ FreeCAD – это очень мощный и серьезный продукт,
 ```bash
 magnet:?xt=urn:btih:5B28B9ED0C9B4D337532F0BA4FF1BF411E92EF71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Hallo Northern Sky (HNSKY) – профессиональный планетар
 magnet:?xt=urn:btih:A1C6787845CAFC6625582A9EC7CA7F238C89559E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ NVIDIA GeForce Driver — драйвера для видеокарт произ�
 ```bash
 magnet:?xt=urn:btih:BFEC0A7056380F0BBB151A7E4295F3181DEFACF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Pluralsight, Dan Cox | Hard Surface Modeling a Modular Structure for Games in 3d
 magnet:?xt=urn:btih:0494939C0DC17E2AF684F91B231ECD723036FEFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Auslogics Disk Defrag Pro - это профессиональная версия
 ```bash
 magnet:?xt=urn:btih:FF8F4B55F76765A6194C45A8205D8AD35B77F520
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:FF8F4B55F76765A6194C45A8205D8AD35B77F520
 magnet:?xt=urn:btih:16C9F5050FE03AF3F889395E4716ED5AB4184859
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:16C9F5050FE03AF3F889395E4716ED5AB4184859
 magnet:?xt=urn:btih:621470F394F824301AA326553D97DC0E0DD0C1B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Gumroad, Daniel Thiger | Substance Studies Tutorial Graphic Design (2019) PCRec 
 ```bash
 magnet:?xt=urn:btih:8FA17E3DAC8A628B1BC81A67C337CA8C3653AF04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:8FA17E3DAC8A628B1BC81A67C337CA8C3653AF04
 magnet:?xt=urn:btih:955DA3E7D67EB79992935A823164E45F984C8C91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:955DA3E7D67EB79992935A823164E45F984C8C91
 ```bash
 magnet:?xt=urn:btih:C83862EC3D7ABA1DBD3667A15B27C864AAFDDFDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:C83862EC3D7ABA1DBD3667A15B27C864AAFDDFDB
 ```bash
 magnet:?xt=urn:btih:8879EE9BAA445398CDC42A1F9739AD1AB3F01AA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:8879EE9BAA445398CDC42A1F9739AD1AB3F01AA1
 magnet:?xt=urn:btih:0FC4DF9F0471A8DE6D82461781844458D26250A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Just Color Picker — бесплатная программа, предназн�
 ```bash
 magnet:?xt=urn:btih:2EAD00503A5754DEAB83712ABC6B8583B2A80982
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:2EAD00503A5754DEAB83712ABC6B8583B2A80982
 magnet:?xt=urn:btih:2F6534789348692603B2F7328D90F61E11ACD8F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:2F6534789348692603B2F7328D90F61E11ACD8F4
 magnet:?xt=urn:btih:E99D435AEE98089BECA71D26ABFC12FCDEFA794A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:E99D435AEE98089BECA71D26ABFC12FCDEFA794A
 ```bash
 magnet:?xt=urn:btih:F2033046BA49EDF5F8A3CF1EAEAF45DF88F73475
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ A4 Drifters - Hello Happiness(   Читать дальше...   )Жанр: Pop R
 magnet:?xt=urn:btih:23BBC4E9ACA3EF0514DC61B52F614085D892AE85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ TaskSchedulerView - простенькая портативная (не треб
 magnet:?xt=urn:btih:FC498C6BD684895CAA00D74AEE6FD033B7B401B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:FC498C6BD684895CAA00D74AEE6FD033B7B401B9
 ```bash
 magnet:?xt=urn:btih:02DED6B314C17EB1205A28159BCF960D559DAEE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +555,8 @@ magnet:?xt=urn:btih:02DED6B314C17EB1205A28159BCF960D559DAEE8
 magnet:?xt=urn:btih:FDCF0C8AC770648D60195F3D48CD48DF8BD4822E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +580,8 @@ magnet:?xt=urn:btih:FDCF0C8AC770648D60195F3D48CD48DF8BD4822E
 ```bash
 magnet:?xt=urn:btih:9752A069B84F91AE3EFBD739546B476571706A38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +607,8 @@ CPUID HWMonitor - утилита предназначена для монито�
 magnet:?xt=urn:btih:EAF7C0F1CA89918ED4ED840BDBBD3C31FEC679DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:EAF7C0F1CA89918ED4ED840BDBBD3C31FEC679DB
 ```bash
 magnet:?xt=urn:btih:6B3E65B04A212070FC06B8F3815B389894CE9A0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +659,8 @@ magnet:?xt=urn:btih:6B3E65B04A212070FC06B8F3815B389894CE9A0A
 magnet:?xt=urn:btih:AAA62A6AC620D62964D7278142EA9AAB87732A50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ SoundSwitch — легко переключаемся между звуковы�
 ```bash
 magnet:?xt=urn:btih:9FF0394493063090A54F26A2184916865063D0D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

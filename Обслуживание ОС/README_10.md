@@ -19,6 +19,8 @@ Ashampoo Driver Updater обеспечивает обновления для ш�
 magnet:?xt=urn:btih:5C98FB5D9CC6EA368790329A8D3BB4BF5B490D4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ SequoiaView - очень полезная программа, которая в�
 magnet:?xt=urn:btih:8FEB77D23A39587CE8E2347E1858FE4E70A7E48D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ jv16 PowerTools - достаточно мощный набор утилит, п�
 ```bash
 magnet:?xt=urn:btih:2A71D3018F2D718F7B6880632CB78BE3A4EDBD14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ ThisIsWin11 - приложение для оптимизации и настро
 magnet:?xt=urn:btih:F8DCB30C7E18B6E6961D01717979048E274D929E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ OEM Info Updater 9.8 Portable [Ru/En]
 ```bash
 magnet:?xt=urn:btih:234A510E2AEE1A76911B5373156BB6C5CFE0E076
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ WinAudit Freeware 3.4.3 Portable [Multi/Ru]
 magnet:?xt=urn:btih:6BC4308E0F66245262DA8D0C6B14F0C55308D879
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Soft Organizer Pro 10.33 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2DD5C0D1D6CC7C6354BA550A1F4D01DF56BB79FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Reg Organizer® - это многофункциональная программ
 magnet:?xt=urn:btih:5B111959418133A80049D65549761A2963A581CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Advanced Uninstaller - идеальный инструмент для деинс
 magnet:?xt=urn:btih:40B0AF3FD54B9991F28A41EC7C43B3D3C5162E12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:5F3370BB7A1FBD7BA0FA7C8DEC8F0C8E37A56D97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ Reset Windows Update Tool разработан для случаев неста�
 magnet:?xt=urn:btih:8DB962ED33F0EE9E0ED15B5DA69D686D19C3298E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Extended GodMode - это утилита, которая обеспечивае�
 ```bash
 magnet:?xt=urn:btih:77F0AA82B96767C5C8F9B807070C5402C84B63ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ Total Uninstall - утилита, предназначенная для корр
 magnet:?xt=urn:btih:F377F637C516779DC51FC8813B35A3DB3C017D93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Driver Easy Professional — профессиональная и в тоже в�
 ```bash
 magnet:?xt=urn:btih:5A9F97564569691966CF71C31B734D9782D9BF25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ CCEnhancer – представляет собой утилиту, котора�
 magnet:?xt=urn:btih:0B1B87C9DFFF3244819374E1A07B656060EBB5B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ WindowManager - программа от разработчиков EarthView и 
 ```bash
 magnet:?xt=urn:btih:546F898F19C35742243993D577C983F421A22A82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ NirLauncher Package - универсальный пакет из более че
 magnet:?xt=urn:btih:4E54FCF10DF88F3D4F2197293B36C28BAA865F31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:D25B8543AFC0A579428917E50C3964B55AEE7EBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ Total Uninstall - утилита, предназначенная для корр
 magnet:?xt=urn:btih:C514D7FD74B5CFE65F828A17A2013B32B2BAD731
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Total Uninstall - утилита, предназначенная для корр
 ```bash
 magnet:?xt=urn:btih:2FB9DBC97CCDE2E103651C47FA2F9F54BB2D6EDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ WinExt - это набор бесплатных утилит для Windows. С 
 magnet:?xt=urn:btih:21A8AEEBD5D86D34D90BE23ADD8806900B88E260
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ USB Oblivion 1.17.0.0 Portable [Ru]
 ```bash
 magnet:?xt=urn:btih:9941EF2CFA2AA61C72C08632B04FB5975AC4BDFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ Switch Off - простая в использовании системная у�
 magnet:?xt=urn:btih:EB33A708BFD29238BA800748170F636F758CF01E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ IObit Uninstaller Pro представляет собой удобный инс�
 ```bash
 magnet:?xt=urn:btih:D2F8B5BCD44E406AC8F033453529E2011E2E6DF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Advanced SystemCare Pro - это мощный пакет для оптимиза
 magnet:?xt=urn:btih:E8B0065211451C6ECFBCFA989E63AFCE84B97A88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ EaseUS DriverHandy - это инструмент для сканирования
 ```bash
 magnet:?xt=urn:btih:2552A066F7C042390E70E18D85C5B87EE664C606
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

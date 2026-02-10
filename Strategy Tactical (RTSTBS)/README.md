@@ -20,6 +20,8 @@ Age of Wonders 4 - пошаговая стратегия с тактически
 magnet:?xt=urn:btih:66B4B9E3E60FB90DED4ADC9B83292FBCB92D15B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (1.45.9/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A1FE37EBCA4260F1DC5BBE2F84FF4E90E59DB0A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (1.45.9/dlc) Repack seleZen [Rei
 magnet:?xt=urn:btih:027355053198F865013CAF139D6B16B06AD8DDA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Victoria 3 - прямой сиквел одноименной игры, где �
 ```bash
 magnet:?xt=urn:btih:341DA446622173A4A082294B8DC206360D1B5A31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Starship Troopers: Terran Command - это захватывающая страт
 magnet:?xt=urn:btih:2C9990FEE7007B2B67ADC681A78C115D62AACAA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Sins of a Solar Empire II (2024) [Ru/Multi] (1.45.9/dlc) Repack Let'sРlay [Prem
 ```bash
 magnet:?xt=urn:btih:DA37D4831CD41FE91534054EC37CF3F96A247B40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Old World - это историческая стратегия, в которо�
 magnet:?xt=urn:btih:7C9E5BF2383B7376CCF37A1E2C9478D104233BE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Commandos: Origins (2025) [Ru/Multi] (1.4.1.85803/dlc) Repack Let'sРlay [Deluxe
 ```bash
 magnet:?xt=urn:btih:BCB3514F10AD878CCF1E6647A7FA3CBCDFE1D7A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Victoria 3 - прямой сиквел одноименной игры, где �
 magnet:?xt=urn:btih:54DAB561192E7BE4D84EEDB338B233770A7E4FA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Headquarters: World War 2, увлекательная пошаговая стр�
 ```bash
 magnet:?xt=urn:btih:E3BB2E770383DEC240EE4BDE045F62A587F4A7EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Operation: Polygon Storm - стремительная военная игра, �
 magnet:?xt=urn:btih:5FC0032E098AAC079B44B2A2EBBC443366C337A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Door Kickers 2: Task Force North (2025) [Ru/Multi] (1.12) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:2DF8A782E6602DA35353EE5DE336F0AF77D5FEB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Shadow Empire (2020) [En] (1.27.00/dlc) License GOG
 magnet:?xt=urn:btih:A8F26532B5278F7C9116ADDBD96C5916DD5CD1D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Galactic Civilizations IV (2023) [Ru/Multi] (3.01/dlc) Repack Let'sРlay [Supern
 ```bash
 magnet:?xt=urn:btih:D0200363AD4C2EF8E69E388506E46BBD5E0C2A19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Starship Troopers: Terran Command — захватывающая стратег�
 magnet:?xt=urn:btih:38CB75820E91D2F51E485E7DD2A0479989E2C690
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Through the Ages (2018) [Ru/Multi] (2.19.1120/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:6DE472CDD72BFD6B8EBB81E9BE5F7D4048D1E20C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Starship Troopers: Terran Command - это захватывающая страт
 magnet:?xt=urn:btih:F90F8441C9CC04DADCC8686D6465C997BE649003
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Old World - это историческая стратегия, в которо�
 ```bash
 magnet:?xt=urn:btih:88120BB1E456720853CBA29A0E032E595CB78779
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ Panzer Corps 2 - Field Marshal Edition - ультимативное люксов
 magnet:?xt=urn:btih:CFC3E5553B6E29987731DEA35CFDDFD94AEBCBEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Broken Arrow - это масштабная военная тактическая
 ```bash
 magnet:?xt=urn:btih:ABB0921E5B24D3ED9479490C92E8D69C33A3A5D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Tactical Warfare (2025) [Ru/Multi] (Build 18683670) Repack Let'sРlay
 magnet:?xt=urn:btih:3E90B80363B04DB2F9D4FF4B9CBD1C0280D24021
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Intravenous 2 - это уникальное сочетание тактичес�
 ```bash
 magnet:?xt=urn:btih:DB1B953595975C465067CD894016807C21157EEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Age of Wonders 4 - пошаговая стратегия с тактически
 magnet:?xt=urn:btih:C405A0D1CE2F3A45E6FE81E7BEAA617DC4A52E70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Forgotten but Unbroken (2024) [Multi] (1.2.2) License GOG
 ```bash
 magnet:?xt=urn:btih:6B0ECE16022429E1CD6C64C7433582DDBA4DAA75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Intravenous 2 погружает вас в мир жестоких интриг 
 magnet:?xt=urn:btih:8A10C0DB3CEE5D70F3C25971BFF56E8F8218F0D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Iron Harvest - это стратегия в реальном времени (RTS
 ```bash
 magnet:?xt=urn:btih:E58E340047E441F19FDD8A4F61D9F6B8226614CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

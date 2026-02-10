@@ -19,6 +19,8 @@ TalkPython, Michael Kennedy | Python Jumpstart by Building 10 Apps Course (2020)
 magnet:?xt=urn:btih:C1004398B416611C683F338D8DC55E1B96C832A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ TalkPython, Michael Kennedy | Write Pythonic Code Like a Seasoned Developer Cour
 magnet:?xt=urn:btih:A2E95C8281CE3CF84886024975430210CF0540CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ MongoDB - одна из самых захватывающих технологи
 ```bash
 magnet:?xt=urn:btih:2747A09F4EB858D779DE059412FF1BDF3B626781
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Python 3 давно отсутствует и является лучшей ве
 magnet:?xt=urn:btih:12CBCA6127441FBEB48B00DD633C3FAE3BA0DD67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ TalkPython, Michael Kennedy | Python for the .NET Developer Course (2019) PCRec 
 magnet:?xt=urn:btih:8E9E8CA82538D5F3D00E3CFA73070FE6BE615C81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ TalkPython, Michael Kennedy | Python for Decision Makers and Business Leaders Co
 ```bash
 magnet:?xt=urn:btih:36B5157A1A23556BF1377792F436549D5F1EF6FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Infosec - единственный провайдер обучения по во
 magnet:?xt=urn:btih:C961B960E3136B8248FCEB2E111B17DCBE29891D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Eve - это фреймворк Python REST API с открытым исходн
 ```bash
 magnet:?xt=urn:btih:8377D94E23E5BF3750816C71BE49BD980EB24BAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ TalkPython, Matt Makai | Introduction to Ansible Course (2020) PCRec [En]
 magnet:?xt=urn:btih:9F3BA18915D347805A14F8CFE25DFE5FC61E4DF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ TalkPython, Michael Kennedy | Managing Python Dependencies Course (2020) PCRec [
 magnet:?xt=urn:btih:70429AF25D55BC96C2E8CDA7E9167E282B0A6142
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ SQL Server 2016 Reporting Services (SSRS) – программа, предста
 ```bash
 magnet:?xt=urn:btih:44D2B26588A68EE6A91C61473639E79D63AFA6F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Infosec - единственный провайдер обучения по во
 magnet:?xt=urn:btih:DB447A0DAF3626B8C789196BCAE5DD9F7207FF1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ Infosec - единственный провайдер обучения по во
 ```bash
 magnet:?xt=urn:btih:EB89262CEA6B856FCA9553FF8EBDAA70A386AEFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ Stepik, Анатолий Карпов и др. | Big Data for Data Science (2021
 magnet:?xt=urn:btih:74B023A77AEA9705B59263638DEB0577F4F2831A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ Infosec - единственный провайдер обучения по во
 magnet:?xt=urn:btih:3D80367F4B60C37C4228037B8031C3A3E3D7C029
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:3D80367F4B60C37C4228037B8031C3A3E3D7C029
 magnet:?xt=urn:btih:49A55F1ECD30C5A970573FA5076477749B6C1D9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ TalkPython, Michael Kennedy | Consuming HTTP Services in Python Course (2020) PC
 ```bash
 magnet:?xt=urn:btih:40982A7865F2A59C94B2AB808A07EBC3F372F883
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +477,8 @@ magnet:?xt=urn:btih:40982A7865F2A59C94B2AB808A07EBC3F372F883
 magnet:?xt=urn:btih:E59AB74D71382C642DDD6C3F40D7AB0C904F0354
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ Magic Coding | The Ultimate Hyper-Casual Guide With Unity (2020) HDRip [En / En 
 magnet:?xt=urn:btih:2298B4F618CF1570BD7586FF0DE78CC6478E2CC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ Next.js - это готовый к работе фреймворк с подде
 magnet:?xt=urn:btih:DF8FD15FACA7CA6281DEB63A838010D753713472
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ Udemy, Bryan Cairns | Qt 6 Core Beginners with C++  (2021) PCRec [En / En Sub]
 ```bash
 magnet:?xt=urn:btih:CF9D2CD102277C76EA2666FC5503ADDE8443CE84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ Udemy, Robert Petras | SwiftUI Masterclass 2021 - iOS 14 App Development & Swift
 magnet:?xt=urn:btih:AAC0112E0C1BD4E0ECD8C3EE197CB4515440E5DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ TalkPython, Michael Kennedy и др. | #100DaysOfCode in Python Course (2020) PC
 magnet:?xt=urn:btih:FA36DFAA1794D961CE93B83A2ECDAC5B763D5750
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +640,8 @@ TalkPython, Michael Kennedy | Async Techniques and Examples in Python Course (20
 ```bash
 magnet:?xt=urn:btih:639A2E3C7AEB6990D23E6422D8E32987D2D60B12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +669,8 @@ Udemy, Abhishek CSEPracticals и др. | Part B - Networking Projects - Implemen
 magnet:?xt=urn:btih:7EE2201CEB13DB04DEAB2BFC71B2435B2DAECD6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ TalkPython, Michael Kennedy | Building Data-Driven Web Apps with Flask and SQLAl
 ```bash
 magnet:?xt=urn:btih:24DEE82366B758313F67D0ADE140714ADBC91F39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

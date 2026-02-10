@@ -20,6 +20,8 @@ Antivirus Removal Tool - портативный набор официальны�
 magnet:?xt=urn:btih:873ACC1805E09D0A803216C55C0EC0FE0CDA12F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ updated_feb_2025_x64_dvd_16fa7261.iso
 magnet:?xt=urn:btih:45691E6F5D2DC1651282A8EBAC8C0C1283B0D148
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ GPS Compass Navigator v2.20.33 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:028C28AF03746D57CB2FBDB7CFE672C5DCE2E43B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ XRecode 3 - популярный и мощный аудиоконвертер, �
 magnet:?xt=urn:btih:2DDB13D0570FE5C197DD57390E717C300FCA6AFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Tor Browser Bundle 14.0.7 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7D438E72B8A4A0EFC3E7F468D4266E67768E0F89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ updated_feb_2025_x64_dvd_16fa7261.iso
 magnet:?xt=urn:btih:C2EB794D755479B06CD7D42ED07404B862BCDA0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Microsoft Visual C++ Redistributable Package – это распространя
 ```bash
 magnet:?xt=urn:btih:744D672C4F2265AA7B23FD2DE737F04D49DC0902
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.44.34918.1 [Ru]
 magnet:?xt=urn:btih:B0D7A5EBC3C971D1838CF11F1205D6126C95711A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Jigsawscapes® - Пазлы v3.7.10 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:41FF3266B6B53500EB8314C7A95E67A7B22F4E8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ Anastacia (Anastácia) - Not That Kind (2000) 25th Anniversary, 2025, Epic [FLAC
 magnet:?xt=urn:btih:5014ACC780233CF414419EE487FCB2C4C4A20C11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:2E1D03D1ECD0CB9295833D16324DF50D5157E7DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ ApowerREC - это программа которая может записыва
 magnet:?xt=urn:btih:C6CD4FF090FA09B6E77FCA0BADF44ABF728A9924
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:188B073F1C783613A528BB7F04C108DECA194362
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ Master PDF Editor — простая, но эффективная програм
 magnet:?xt=urn:btih:04DA862B663CCB22BF894F8ABD598BBB1E0772D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ Microsoft PowerToys – это набор утилит, позволяющих �
 ```bash
 magnet:?xt=urn:btih:5DE30C8CB9B79894B9D1495ED88395FCAD994B43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:5DE30C8CB9B79894B9D1495ED88395FCAD994B43
 magnet:?xt=urn:btih:CC4EB33EF06D2F8393C5E0F09E5AD855D9EC37DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ MediaHuman YouTube Downloader 3.9.9.98 (0403) RePack (& Portable) by elchupacabr
 ```bash
 magnet:?xt=urn:btih:52021AB0B7D16244BB6CC7F23BB802A3F88E2580
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ Office Installer - программа предназначена для online �
 magnet:?xt=urn:btih:353616B4E38EFF2101B18D59360E61520729E9BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Protility - это набор полезных инструментов для �
 ```bash
 magnet:?xt=urn:btih:C8D1BF0E2612AAE1E9C2E2B75924EC2BBF19A637
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ Skype - бесплатная программа для текстового, г�
 magnet:?xt=urn:btih:4128441252B93B5817B6CBC3FDB26F7A0ADE5DAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:96E1B299780E15E8B329F38EA9795A2AF98DD77F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:CDBE78A8A4BF4D2A6B89D86FB050BE0C565B72ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 ```bash
 magnet:?xt=urn:btih:C9137950CC14F0FF8A4C36F68B4910D5B4706336
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:D00EDF32EB1928A30E1ED249C51AEB266D082A00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ PicPick - приложение, объединяющее в себе возмо�
 magnet:?xt=urn:btih:0303EE51B2F1E81E2D49A3440F3360BDA79E4873
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:0303EE51B2F1E81E2D49A3440F3360BDA79E4873
 ```bash
 magnet:?xt=urn:btih:888EFF3C739B77C5C6448BF70C7181A78ADAB2AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

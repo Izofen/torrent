@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:CD95A58D9290A8EAACF50D5820F3845A2C160E6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:CD95A58D9290A8EAACF50D5820F3845A2C160E6E
 magnet:?xt=urn:btih:F589657ACDF4B228A0F7731ADD00E02723866FD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ XYZ School | Blender 2.8 Intro (2019) PCRec
 magnet:?xt=urn:btih:5EC4EE5EB2C73B5A26FE8A40A2F678AE02E29B5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:5EC4EE5EB2C73B5A26FE8A40A2F678AE02E29B5E
 ```bash
 magnet:?xt=urn:btih:622B1D9A705CE29B71EA65CD34AF1AEDA6BBCDB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:622B1D9A705CE29B71EA65CD34AF1AEDA6BBCDB3
 magnet:?xt=urn:btih:560215F80652DB737CBFFB104F47B9FAECB99979
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ Schoolism, Bobby Chiu | Цифровое рисование с Бобби Чу /
 ```bash
 magnet:?xt=urn:btih:19859447881F6713E22FA91E8A10A5BB765F825C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ Tolkovoprod, Анастасия Мазуровская | I am designer. Тари
 magnet:?xt=urn:btih:0E9E9807332E8D26AA036B5EBAAC23FFC48DFA36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ Udemy, Otto Lai | Intro to Geometry Nodes using Blender 3.3 (2022) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:CB5A09854054F2E781B9E3ADD0B60EB8A25B8EDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ Skillshare, Simon Van Den Hende| Основы скриптинга на Python �
 magnet:?xt=urn:btih:282073517B72CA9D9A43CD97AFFF1712447126F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ Udemy, MrBriit | End-To-End Machine Learning Projects&Deployment Mastery 2021 (2
 magnet:?xt=urn:btih:2DC0F6BA40A8D228EB7FE83F1D939ACB794719C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ Gumroad, Evolving CG | Создание малыша Йоды / Creating Baby Yo
 ```bash
 magnet:?xt=urn:btih:9BBA3C7647D39F0044966342107AF9B05C60F937
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +326,8 @@ Skillbox, Наталья Кисельникова | Кто я и чего хоч
 magnet:?xt=urn:btih:55B496839997D64546ABB937C9C8E95864049F96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +355,8 @@ OTUS, Павел Пархомец и др. | Безопасность веб-п�
 magnet:?xt=urn:btih:CC3FC060BB78C50E73CE3679FD82EB3693F1DB83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +383,8 @@ Udemy, Krista King | Станьте Мастером Теории Вероятн
 magnet:?xt=urn:btih:318527E2FE0061E7916397BD39018D0DDE7BECD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +408,8 @@ ArtStation, Rico Cilliers | Введение в скульптинг в Blender 
 ```bash
 magnet:?xt=urn:btih:F7A5756887D238D5FA194E8D8030635CEDE904ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +438,8 @@ magnet:?xt=urn:btih:F7A5756887D238D5FA194E8D8030635CEDE904ED
 magnet:?xt=urn:btih:9F5B0834C964D3109A71713EEA22C029521CF927
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +463,8 @@ Udemy, Vinoth Selvaraj | Selenium WebDriver и Паттерны Проектир
 ```bash
 magnet:?xt=urn:btih:04FF7C8AD0A40471256436CCA8F43075B6DDC9ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +490,8 @@ Udemy, Zoran Horvat | Рефакторинг под паттерны проек�
 ```bash
 magnet:?xt=urn:btih:732F23DBE2D6D2F02B6EF690A0E974FEF2850AA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +520,8 @@ magnet:?xt=urn:btih:732F23DBE2D6D2F02B6EF690A0E974FEF2850AA3
 magnet:?xt=urn:btih:9B35ADCE9D357E9091402FDCF0EA3CE17D6B4A49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +545,8 @@ Udemy, Darrin Lile | Blender 2.83 и захват движения / Blender 2.8
 ```bash
 magnet:?xt=urn:btih:FAE45E9337E0812EE84790A02980F4DE7BED5610
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +572,8 @@ CG Cookie, Jonathan Lampel | Основы динамической симуля�
 magnet:?xt=urn:btih:15A7E52B3BC3220559EE21E89A002EC0DA79495D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +598,8 @@ Udemy, Cov Phillips | Ultimate 3D Environment Animation Course - Blender (2022) 
 ```bash
 magnet:?xt=urn:btih:8985128AEA0687912DAC97346E239D9D0CB43D41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +628,8 @@ magnet:?xt=urn:btih:8985128AEA0687912DAC97346E239D9D0CB43D41
 magnet:?xt=urn:btih:EBC702FAD11F3B9AEEB6981794FD5BC9C1FBA1D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +653,8 @@ Udemy, Fabrizio Guerrieri | Базовый курс по электричест�
 ```bash
 magnet:?xt=urn:btih:9BA5A21F4BDA2F9FBF9B067B9537BC865A5979D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +682,8 @@ Brejestovski Language School, Антон Брежестовский | Основ
 magnet:?xt=urn:btih:A4D79A3882686F24990394387D38B5B50A2C7BE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +710,8 @@ magnet:?xt=urn:btih:A4D79A3882686F24990394387D38B5B50A2C7BE7
 ```bash
 magnet:?xt=urn:btih:1E8045D57F95167620263BE520D075D78DAD0049
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

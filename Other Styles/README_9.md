@@ -26,6 +26,8 @@ Kiss The Anus Of A Black Cat - 6 albums (2005-2012) [mp3|320 kbps] <Neofolk, Apo
 magnet:?xt=urn:btih:61EA4D30E8E291E9C01490A2FCC2F04D822107DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -58,6 +60,8 @@ Eminem - 8 Mile Soundtrack (2002) [MP3 320 kbps]<Rap>
 ```bash
 magnet:?xt=urn:btih:82E930821FB8F0AB888E18996679B555CBC7D280
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +96,8 @@ magnet:?xt=urn:btih:82E930821FB8F0AB888E18996679B555CBC7D280
 magnet:?xt=urn:btih:FAEA47CE460F7499B5D5EE0BC0EBBAD37E9B8A93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +131,8 @@ Solo Tango Orquestra - Historias de Tango (2010) [FLAC|Lossless]<Tango Argentino
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +165,8 @@ Adoramus - Hymns of the Celts (2007) [MP3|320 kbps]<New age, Celtic>
 ```bash
 magnet:?xt=urn:btih:775511F2457FAE11BE7206EB5B8F2BF2932E444A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +205,8 @@ magnet:?xt=urn:btih:775511F2457FAE11BE7206EB5B8F2BF2932E444A
 magnet:?xt=urn:btih:B1193912A5CE76CB7162A824E2B39BF644765236
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +239,8 @@ Soul Of Freedom - Music For Fresness Yoga And Spa (2009) [MP3|112-192 kbps]<Rela
 ```bash
 magnet:?xt=urn:btih:151C03A529AB1A4B01E31B38C513218FF58996B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +275,8 @@ Pangea - Pangea (1996) [APE|Lossless]<New Age>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +310,8 @@ Ayman, Hisham, Mars Lasar - A Whisper Across The Sand (1999) [MP3|320 кб/с]<N
 magnet:?xt=urn:btih:696ED81BB38CD18CE4F0A0DD174D7AF5D906634A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +339,8 @@ VA - The Orient Collective: Nomadic Rhythms (2025) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:0D1ACD7FE87F3D8E707FC61B06F36763905F5F62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +367,8 @@ VA - The Orient Collective: Ancient Spirits (2025) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:0C943EB4F92FF9021AD759457C15F6034C005D08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +403,8 @@ Theodor Bastard - Oikuomene (2012) [MP3|320 кб/с]<Rock, Folk, Darkwave>
 magnet:?xt=urn:btih:9A66B199848D1339B4B472134E2F224F0B41A098
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +434,8 @@ Thors - Tantra & Love (2001) [MP3|320 кб/с]<New age, Relax>
 ```bash
 magnet:?xt=urn:btih:1BCE06A491C7BAA47707A24204E7006C48F84E41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +468,8 @@ Cantara - Letia (2004) [MP3|320 кб/с]<Folk, Celtic, Instrumental>
 ```bash
 magnet:?xt=urn:btih:D29E3F2AE8465DF5A84098A933A0590447CAD5EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +504,8 @@ VA - Mystic India (Vol.4) (2004) [MP3|320 кб/с]<New Age, Meditative, Relax>
 magnet:?xt=urn:btih:04822FF0AE94C86D9C27DA9469208A05D77023EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +538,8 @@ Celtic Thunder - Voyage (2012) [MP3|320 кб/с]<Celtic Folk>
 ```bash
 magnet:?xt=urn:btih:DD605ADB18AD7F4EEFE30C224C2FC389FD0820BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +574,8 @@ Tron Syversen - 3 albums (2005 - 2011) [MP3|192 - 320 kbps]<New Age, Relax, Neoc
 magnet:?xt=urn:btih:0823CAB8495AF3F03F850FBC5820ABC8DF81BC1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +608,8 @@ VA - Namaste. True Tai Chi (2007) [MP3|192 кб/с]<New age, Relax, Meditative>
 ```bash
 magnet:?xt=urn:btih:0F90BF8C78591212891D00FE5AF95DB206621A51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +644,8 @@ VA - Namaste: Celebration (Compiled By M.O.C. Paoli & DJ Alok) (2004) [MP3|320 �
 magnet:?xt=urn:btih:A7767B1DE041F9DC52F5099B3A8ABC59C7BD0C2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +677,8 @@ Lenny Macdowell & Krell - Echnaton's Return (2006) [MP3|320 кб/с]<New age, Et
 ```bash
 magnet:?xt=urn:btih:4C62E8A541142ECAB9C5EE0232AE1477A234962B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -673,6 +713,8 @@ Elane - Arcane (2011) [MP3|320 кб/с]<Celtic, Gothic, Fantasy Folk Rock>
 magnet:?xt=urn:btih:3719FC83C1C3A0A6EFB614BE73358107CF9DBD76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -703,6 +745,8 @@ Matthew Compton - Essential Music for Healing (2000) [MP3|320 кб/с]<New age, 
 ```bash
 magnet:?xt=urn:btih:7636077B9B5426DF9CF75F9F51C386A4745421ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -737,6 +781,8 @@ Ravi Shankar - Bridges: The Best Of Ravi Shankar (2001) [MP3|128 кб/с]<Ethnic
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -769,6 +815,8 @@ Rainbow Serpent & Isgaard - Stranger (2010) [MP3|320 кб/с]<New age, Vocal>
 ```bash
 magnet:?xt=urn:btih:AFC9F6B8968A8DF783FD44C6B8529F9AB4D61AF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -803,6 +851,8 @@ Pachamama - Musica Andina de la Nueva Era (1995) [MP3|320 кб/с]<Folk, New age
 magnet:?xt=urn:btih:0BD3A94E3F44E97B7671F18B5BCCAD631410DABD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -831,6 +881,8 @@ VA - Ayurveda Lounge. Relaxation & Meditation. Volume 2 (2012) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:4BBD7E4CF0B395B09C342B22A0142552DEEF41F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

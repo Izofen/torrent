@@ -19,6 +19,8 @@ Out of Sight - атмосферный хоррор, сочетающий пер�
 magnet:?xt=urn:btih:FA56FB91198DB0E16CE59289F8B6DEC770133CFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ CyberCorp (2024) [Ru/Multi] (1.03) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:11151AD1197EFC78523B25DF93F21678CB083C7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Call of Duty Modern Warfare 2 (2022) - шутер от первого лица, 
 magnet:?xt=urn:btih:BE7B270688C4DBF718AD0268BCE1D4A3E523B681
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Abyssus (2025) [Ru/Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:47545901E9F8AF8FCCF2493DCC897A2E04554E2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Age of Reforging: The Freelands (2023) [Ru/Multi] (1.06b) Repack Let'sРlay
 magnet:?xt=urn:btih:23E4F2F2553BC8E85731A19FB7A4B7CA489879D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Endzone 2 - постапокалиптический градостроител�
 ```bash
 magnet:?xt=urn:btih:84D8AE4C2731B179F449DDE2FAB599EA523F79BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Senua's Saga: Hellblade 2 - продолжение ролевого экшена
 magnet:?xt=urn:btih:DF44485A7FD7CD7225BEE2F5DA5B86B6E9EA002A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Endzone 2 бросает вас в самую гущу постапокалип�
 ```bash
 magnet:?xt=urn:btih:B4C30D6C86F77DD472C0EAFB26B8D596726CD0C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Detectives United 8: Vengeance from the Past / Лига детективов 8: 
 magnet:?xt=urn:btih:5527FD8E2A7F1C579755203A34B06611CA92DA37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Realm of Ink (2024) [Ru/Multi] (0.18.10) Repack AIexandro [Early Access]
 ```bash
 magnet:?xt=urn:btih:D5EE2A5C7C4CAF21FF8043B0AE67C37A1D35FC72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Deadzone: Rogue - это roguelite-шутер от первого лица, де
 magnet:?xt=urn:btih:63C92ED27821DC4B166152B1E968642BA5C64764
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ The Roottrees are Dead предлагает геймерам погрузить�
 ```bash
 magnet:?xt=urn:btih:79848BB09A4598126156093F50301111A6ABC1A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (Build 19131828) Repack Let's
 magnet:?xt=urn:btih:09D5A81410FFEA07B9E245560A7ED6156428F96A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Chinese Frontiers (2025) [Ru/Multi] (1.021) Scene Rune
 ```bash
 magnet:?xt=urn:btih:28B5F73BB86E735DB96C335CE24975C70E0DCA91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ RAID: World War II - это захватывающий кооперативны�
 magnet:?xt=urn:btih:2FF78B7D35C2C91C41DBC0C9BEA0998F8E5DAD86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.02.1/dlc) Repack Let'sРlay [Deluxe E
 ```bash
 magnet:?xt=urn:btih:0D861DF7630967B5293D70B3ED3B968309ED1622
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Dystopika, градостроитель, разработанный студие
 magnet:?xt=urn:btih:159701F37D488C11A62B85E1C49ACD8F4AABF9DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Deadzone: Rogue - это roguelite-шутер от первого лица, де
 ```bash
 magnet:?xt=urn:btih:7B4A9398DBA6D9430416F5985D3B79B979C309EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Heretic + Hexen (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:62E9263A646BD99B7E58603562E2762528BDD621
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Crime Scene Cleaner (2024) [Ru/Multi] (2.0.1G) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E8528C3A25CD60970C917CDDA5A7DE894D0CD9AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Death Relives (2025) [Ru/Multi] (0.14.68.408) Repack Let'sРlay [Deluxe Edition]
 magnet:?xt=urn:btih:601B59384B11AAD225AFAE635781171008CF3850
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Choo Choo Survivor (2023) [Ru/Multi] (Build 18689660) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:F7E0061E6988A478333426C0237AF3F5B8AFD096
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Choo Choo Survivor 2 (2025) [Multi] (Build 20180986) Repack Let'sРlay [Playtest
 magnet:?xt=urn:btih:63D18BDA003201840CA53AB025B11B3717384D07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Crossfire: Legion - тактическая стратегия в реально�
 ```bash
 magnet:?xt=urn:btih:3EC346A0418EE5EFFE0496024C6F848453BB8005
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Phantom Squad погружает вас в хаос тактического б�
 magnet:?xt=urn:btih:B02A053A5E3E839D8674B701490238830EABD9F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Luma Island (2024) [Ru/Multi] (1.1.4.25451) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:2D4F659E34A3662F04E4D199182CD9BE12665ED0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

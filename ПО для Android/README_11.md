@@ -22,6 +22,8 @@ Karing - Утилита прокси с простым и мощным инте�
 magnet:?xt=urn:btih:18F79A2D6EF4C768C0FC41A379312D9BAF044F94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Picture Mushroom — распознавайте грибы мгновенно. �
 magnet:?xt=urn:btih:6BDF6EDCF2A07ED1F7646BD9181947CBCBB7E48E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:6BDF6EDCF2A07ED1F7646BD9181947CBCBB7E48E
 ```bash
 magnet:?xt=urn:btih:2BD2A5B9BF1993288CA7303EAAD4A902C9745059
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:2BD2A5B9BF1993288CA7303EAAD4A902C9745059
 magnet:?xt=urn:btih:30DF46F30F6031A52BA33FB72BBCF69D676BBD80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Oblivion VPN — это специальное VPN-приложение, пре�
 ```bash
 magnet:?xt=urn:btih:A863A1185CDCCFDC271E37428A4A1D442448D3DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ Human Anatomy Atlas 2025 v2025.00.012 [En]
 magnet:?xt=urn:btih:5AFD6FFED0C8E819CF5A1697533BFA0038F167B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ Easy Notes - записная книжка, блокнот бесплатно, �
 ```bash
 magnet:?xt=urn:btih:A9330315CAA56DD6B64B171631AA0C6B38E4B3C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:A9330315CAA56DD6B64B171631AA0C6B38E4B3C4
 magnet:?xt=urn:btih:977FC992406C43D22632D434B72F902CACC12F33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ Vanced — это модифицированная версия YT, котора
 ```bash
 magnet:?xt=urn:btih:6FB9C3F3FD57C72108879FD6EB72D868B075F429
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:6FB9C3F3FD57C72108879FD6EB72D868B075F429
 magnet:?xt=urn:btih:483F5C7F47C40BF5115B4783C130252DEF425501
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ TV+: Бесплатное Онлайн Телевидение
 ```bash
 magnet:?xt=urn:btih:DB7B97A4F6685F73E5ECC7D36EC5723B75231AF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ Spotify: музыка и подкасты v9.0.16.572 LiteMod by Balatan [Ru/En]
 magnet:?xt=urn:btih:A4DA515ADC784991F8BEB6E4A810F3B8D3376AB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ Magic Eraser - это революционное приложение для р�
 ```bash
 magnet:?xt=urn:btih:096B66544C173C4FE3D725470F4229E78F151254
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +373,8 @@ Photomath v8.43.0 Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:9FF5D2A7855D064D0ECA2CFE999732BD9133FCF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:9FF5D2A7855D064D0ECA2CFE999732BD9133FCF7
 ```bash
 magnet:?xt=urn:btih:F57A9BB2A9A69701D5640514C40A5BCF6E774359
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ AyuGram - это клиент телеграмма, основанный на ex
 magnet:?xt=urn:btih:9723F1C4C38A98F98B33EFCFDE59E08574EDA60D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ Thenx v6.0.4 [En] Mod by youarefinished
 magnet:?xt=urn:btih:70025B4ED027BC4D50C0BCC54495843FC052EACF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ Bria Mobile: VoIP Softphone v6.19.1 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:48E57A10E0AFF8FA85881699140C470B9C5DE867
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ MiHome v10.2.702 Mod by Vevs [Ru]
 magnet:?xt=urn:btih:7DE765E243A3F95A3FE530EC1F5012D44707C415
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ All Recovery / Восстановление удаленных файлов v1.3
 magnet:?xt=urn:btih:EC73890C40458D44F1CA8ED717FC75288D2927D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ Medativo - это таймер, специально созданный для �
 magnet:?xt=urn:btih:8B41C80184801BF370B8908BBBC4B4794D544608
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +587,8 @@ MobiOffice - это полнофункциональный офисный пак
 magnet:?xt=urn:btih:8B4593921773EF9A573F5A169648B8D38986285B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ CamScanner - Мощное приложение для сканирования. 
 ```bash
 magnet:?xt=urn:btih:1329B58CB0216FE1E2ED57E6C9D073C2E050B0C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +640,8 @@ magnet:?xt=urn:btih:1329B58CB0216FE1E2ED57E6C9D073C2E050B0C6
 magnet:?xt=urn:btih:F13C77084D6F2A58416E9B7B315A2C4495C2FA4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +666,8 @@ VN - это видеоредактор предназначенный специ
 magnet:?xt=urn:btih:76DE4C758816F75697AFE8E029E0C102F94B8AEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ magnet:?xt=urn:btih:76DE4C758816F75697AFE8E029E0C102F94B8AEF
 ```bash
 magnet:?xt=urn:btih:4AA0F3D51CF48E0B64185050C7BCFB33BC3B4257
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

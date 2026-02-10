@@ -1,27 +1,3 @@
-###  Публикация: 1178461   (355493) от 28.10.2017
-
-Гадкий я 3 / Despicable Me 3 (2017) Blu-Ray [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грядет третье пришествие. Многодетный суперагент, роковая красотка и бессмертные миньоны на подходе. Готовьтесь. Они будут править миром.Производство: США, Illumination Entertainment, Universal PicturesЖанр: Мультфильм, фантастика, боевик, комедия, приключения, семейныйРежиссер: Эрик Гуильон, Кайл Балда, Пьер КоффанПерсонажи: Стив Карелл, Кристен Уиг, Трей Паркер, Миранда Косгров, Дэна Гайер, Нев Шаррел, Пьер Коффан, Стив Куган, Джули Эндрюс, Дженни Слейт ...Перевод: Дублированный (Лицензия BD CEE)Субтитры: Английские, турецкие, русские, греческие, эстонские, латвийские, литовскиеПродолжительность: 01:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A851D0716AADAF2EB6DEA52F3A9E7EA11B317B77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1178480   (355499) от 28.10.2017
 
 Гадкий я 3 / Despicable Me 3 (2017) BDRemux [H.264/1080p]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:A851D0716AADAF2EB6DEA52F3A9E7EA11B317B77
 ```bash
 magnet:?xt=urn:btih:069A327C5EAE58479F8783F969B40B99CD3A9778
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:069A327C5EAE58479F8783F969B40B99CD3A9778
 magnet:?xt=urn:btih:857204EF36A1275511F8373C0C8CEAF76D82A1B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:857204EF36A1275511F8373C0C8CEAF76D82A1B2
 ```bash
 magnet:?xt=urn:btih:C85B114D1A09D2D1B145DED9C63E8473A17706EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:C85B114D1A09D2D1B145DED9C63E8473A17706EA
 magnet:?xt=urn:btih:87FB1BEEE6F1790A9089FC1DC14EDFE66B90C2B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:87FB1BEEE6F1790A9089FC1DC14EDFE66B90C2B4
 ```bash
 magnet:?xt=urn:btih:FA2F19A165E190ABA1A221AC5569CA0199D87E79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:FA2F19A165E190ABA1A221AC5569CA0199D87E79
 magnet:?xt=urn:btih:951D100DC90857E1B47902139765A65DCB2D0877
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +175,8 @@ magnet:?xt=urn:btih:951D100DC90857E1B47902139765A65DCB2D0877
 ```bash
 magnet:?xt=urn:btih:0995B3FE8CC5BC3370A41E7E926F173F56E2EE80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +202,8 @@ magnet:?xt=urn:btih:0995B3FE8CC5BC3370A41E7E926F173F56E2EE80
 magnet:?xt=urn:btih:D567F0B5386AB2D0117EB8A8014FECE2FF9BC582
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +227,8 @@ magnet:?xt=urn:btih:D567F0B5386AB2D0117EB8A8014FECE2FF9BC582
 ```bash
 magnet:?xt=urn:btih:C0AFAFF8A45359C787AE223B0644E1AA9854701F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +254,8 @@ magnet:?xt=urn:btih:C0AFAFF8A45359C787AE223B0644E1AA9854701F
 magnet:?xt=urn:btih:622F1E9E1ABD425F172D8F68489E397D6C7AAB81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +280,8 @@ magnet:?xt=urn:btih:622F1E9E1ABD425F172D8F68489E397D6C7AAB81
 magnet:?xt=urn:btih:EA157610FDB70D9E859741C8EE41E2D433F5C6F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:EA157610FDB70D9E859741C8EE41E2D433F5C6F5
 ```bash
 magnet:?xt=urn:btih:126AD8A3AEC54BC551AE51B3D0ECB313928A5996
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +333,8 @@ magnet:?xt=urn:btih:126AD8A3AEC54BC551AE51B3D0ECB313928A5996
 magnet:?xt=urn:btih:F2650E257996DBB11503975072924594FD3C63D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +359,8 @@ magnet:?xt=urn:btih:F2650E257996DBB11503975072924594FD3C63D3
 magnet:?xt=urn:btih:F11933566462E7A9281EB0E2B541F55639426D39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +384,8 @@ magnet:?xt=urn:btih:F11933566462E7A9281EB0E2B541F55639426D39
 ```bash
 magnet:?xt=urn:btih:886448E2CC8AFA1409228BF125DF4DE7AB15B037
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +412,8 @@ magnet:?xt=urn:btih:886448E2CC8AFA1409228BF125DF4DE7AB15B037
 magnet:?xt=urn:btih:9FD35F97C7F8F9DFFBFF59AB009B8B76457170B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +437,8 @@ magnet:?xt=urn:btih:9FD35F97C7F8F9DFFBFF59AB009B8B76457170B4
 ```bash
 magnet:?xt=urn:btih:D5B8E37768D5A0C69E5A9DCD40ED0235D9B29C8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +464,8 @@ magnet:?xt=urn:btih:D5B8E37768D5A0C69E5A9DCD40ED0235D9B29C8A
 magnet:?xt=urn:btih:C783F226389B906EF94769E935C8B7E233C0920D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +489,8 @@ magnet:?xt=urn:btih:C783F226389B906EF94769E935C8B7E233C0920D
 ```bash
 magnet:?xt=urn:btih:B2FB687786EF4CC42D69E34C43A66F7145618175
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +516,8 @@ magnet:?xt=urn:btih:B2FB687786EF4CC42D69E34C43A66F7145618175
 magnet:?xt=urn:btih:D23B9F0A53A3D230A7CC9F99142F11D23332055B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +541,8 @@ magnet:?xt=urn:btih:D23B9F0A53A3D230A7CC9F99142F11D23332055B
 ```bash
 magnet:?xt=urn:btih:AD5D3C27C312E2894782566801C77D36D1353694
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +568,8 @@ magnet:?xt=urn:btih:AD5D3C27C312E2894782566801C77D36D1353694
 magnet:?xt=urn:btih:1B47D638F4F3ABB29942295E43F9CD59A3C73874
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +593,8 @@ magnet:?xt=urn:btih:1B47D638F4F3ABB29942295E43F9CD59A3C73874
 ```bash
 magnet:?xt=urn:btih:31F2A82137A47E4E444E84F1CD712CF2E0CDC08E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +620,8 @@ magnet:?xt=urn:btih:31F2A82137A47E4E444E84F1CD712CF2E0CDC08E
 magnet:?xt=urn:btih:C7D9A896AA27DAD2FA2E248FA1CE338CD6487142
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +645,35 @@ magnet:?xt=urn:btih:C7D9A896AA27DAD2FA2E248FA1CE338CD6487142
 ```bash
 magnet:?xt=urn:btih:6D8B5509EE177626D4FFAC02D8C956C4631143A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576638   (362547) от 17.11.2012
+
+Легенда о МорДу / The Legend of Mor'Du (2012) [H.264/720p-LQ] BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_362547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легенда о королевстве МорДу рассказанная ведьмой из мультфильма
+Храбрая сердцемЖанр: короткометражный, мультфильмРежиссер: Брайан ЛарсенПеревод: ДублированныйПродолжительность: 00:06:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A492B16F78733DC1A6C86D0FDAEC77549CF7990
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

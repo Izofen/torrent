@@ -1,3 +1,32 @@
+###  Публикация: 1171567   (395752) от 05.10.2017
+
+VA - Tropical Coctail: Chill Area Party (2017) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_395752.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aatoo Cito - Into The Clouds
+002. Rangiroa - Is There Anything (Original Mix)
+003. Tony Deep Fish - Sand Under My Feet
+004. Arnold T - Summertime Sadness(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 07:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ED4B04D447C8063312F49213E88703E1AF2A150
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1171525   (395761) от 05.10.2017
 
 VA - Big Room Electro House October 2017 (2017) [MP3|320 Kbps] <Club, Dance, Electro House>
@@ -21,6 +50,8 @@ VA - Big Room Electro House October 2017 (2017) [MP3|320 Kbps] <Club, Dance, Ele
 ```bash
 magnet:?xt=urn:btih:93F78DA8F65CE335011FEEEFF7D151C488BF3852
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -55,6 +86,8 @@ VA - 50 Chill & Nu-Lounge Experience Vol.2: Great Chillout and Deep Lounge Tunes
 magnet:?xt=urn:btih:5138646775906BB6CA95223BAC45FE7ACC835CAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -87,6 +120,8 @@ VA - Russian рэп. Часть 4 (2012) [MP3|256 кб/с]<рэп>
 ```bash
 magnet:?xt=urn:btih:4D1AA8C521B95A537DE9E30AA58A3D2D401A9ED0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +156,8 @@ VA - Most popular songs radio Top 100 (2012) [MP3|256 кб/с]<pop>
 magnet:?xt=urn:btih:9C7D79BBB414BBCF1C033669EBED647616718F28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +190,8 @@ VA - Лучшая 100ка Super новинок Выпуск 3 Осень (2012) 
 ```bash
 magnet:?xt=urn:btih:2D99381E193EE1203CD342952F19B36F424AB2E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +226,8 @@ VA - Осенний ТОП 100 50+50 (2012) [MP3|256 кб/с]<pop>
 magnet:?xt=urn:btih:AA89B8EE5AE3111A30EDC06E1D38C88BAD987B88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +260,8 @@ VA - Best-of-ka Хит сезона (2012) [MP3|256 кб/с]<pop>
 ```bash
 magnet:?xt=urn:btih:006244EF6317DE0F79B52FE083DC1593E28ABBC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +296,8 @@ VA - Модная Русская Осень (2012) [MP3|256 кб/с]<pop>
 magnet:?xt=urn:btih:E4D1278F386F58655B60A69F3396A0EB51E36B2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +331,8 @@ VA - Над Запреткой Туман (2011) [MP3|128 kbps]<Шансон>
 magnet:?xt=urn:btih:8CCA375E310C4AF0101B225E1EA07649F4D07689
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +359,8 @@ VA - Jazz Dance (2016) [MP3|320 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:A75D2F2CD2E4FF3F012B6F7EAC1CF1B9A6BED418
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +389,8 @@ VA - Новая Жажда Скорости (2017) [MP3|320 Kbps] <Dance , Hans 
 magnet:?xt=urn:btih:BE93ABBC0D47C6F9EA33F4070DC7E75E355F8806
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +417,8 @@ VA - Trombone Jazz (2016) [MP3|320 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:FADEE7CEDCBAE4C422767DBD6F7EE8E2DB729C40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +453,8 @@ VA - Creative Music Box 4 (2012) [MP3|320 кб/с]<Dub Step/Electro>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +487,8 @@ VA - Discofunk Lounge Deluxe (2012) [MP3|320 кб/с]<Disco, Funk, Jazz, Soul, L
 ```bash
 magnet:?xt=urn:btih:294F099017967CC302B2CCA800F430DED787E59A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +523,8 @@ VA - Шансон года Праздничный (2012) [MP3|320 кб/с]<Ша�
 magnet:?xt=urn:btih:F3B22A27BCD791CC1FD22C97A2183628530ED44F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +557,8 @@ VA - MAXI. Осенний Best Hit (2012) [MP3|320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:782EB942FC4DD370B689EEDBCD8F4731D78D9CFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +593,8 @@ VA - Убойные хиты на Европе плюс 50/50 Осень (2012) 
 magnet:?xt=urn:btih:904D35E39CE0BADB03A57D0EE8EDF32B54245195
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +627,8 @@ VA - Громче музыку. 100 Пудовый хит (2012) [MP3|256 кб/�
 ```bash
 magnet:?xt=urn:btih:7682346824C880611A39338812E14A2C2016D02D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +663,8 @@ VA - Ритмы Попсового Отрыва (2012) [MP3|256 кб/с]<Dance, 
 magnet:?xt=urn:btih:2C1901C09D6BFAC140352CECE8A4DFD069925463
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +691,8 @@ VA - Deep House Collection Vol.138 (2017) [MP3|320 Kbps] <Deep House, Club House
 ```bash
 magnet:?xt=urn:btih:A3E9E2C2705D35AA496C9A32D5048A50E40F1F1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -652,6 +721,8 @@ VA - The Best Of EDM And House (2017) [MP3|320 Kbps] <Club, Dance, House>
 magnet:?xt=urn:btih:D83CA53E7B6596BBFAA952B0A52B7AB1E9A7CD03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -678,6 +749,8 @@ VA - Mirror Of Illusion: 100 Psychedelic Trance (2017) [MP3|320 Kbps] <Psychedel
 ```bash
 magnet:?xt=urn:btih:4F50E59A34FA12C7B3607637B71397A65FE212D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -712,6 +785,8 @@ VA - Студенческая Вечеринка. Зарубежный (2012) [M
 magnet:?xt=urn:btih:46AA28BBF63B0A8726B4BA7245135C57ACBF9E93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -744,6 +819,8 @@ VA - Новые Хиты Дискотек Vol. 2 (2012) [MP3|128 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:D87CFB1E1E8A67512F07582E1672B87709A7F2D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -778,38 +855,7 @@ VA - Новое на Europa Plus (2012) [MP3|256 кб/с]<pop, dance>
 magnet:?xt=urn:btih:FAD2886D4AC0CBE77DD49649388E66903B685511
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566754   (398246) от 28.10.2012
-
-VA - Дискотека Осенний Хит (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Double Vision - Knockin' 2012 (Julian The Angel remix)
-02. ЯрмаК и Маша Собко - Детская Обида
-03. Bimbo Jones feat. Ida Corr - See you later (Da Brozz remix)
-04. Lylloo feat. Lorinda - Badam (Sebastien Lewis BR club remix)
-05. Alexey Romeo & Eugene Noiz vs. Yves Larock - Zookey take me away (DJ Cosmo Voc Mash Up)
-06. VITA - Вставай!
-07. Улицы & Lemon - Розы
-08. Елена Терлеева - Adieu Mon Garcon
-09. Timati & Timbaland feat. Grooya & La La Land - Not all about the money
-10. Руки Вверх - Я Тебя Люблю(   Читать дальше...   )Жанр: PopПродолжительность: 05:55:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95A178995AE279C9361A454DF5E09F736D3BBC47
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

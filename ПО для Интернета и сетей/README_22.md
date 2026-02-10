@@ -20,6 +20,8 @@ PhonerLite - полезнейшая утилита для общения чер�
 magnet:?xt=urn:btih:C3C86A6242899153552AE9FC049DEDECF296AAA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ LAN Speed Test - простой и мощный инструмент для те
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ RadioSure это новый радио плеер, который дает во�
 magnet:?xt=urn:btih:1F0D8311F42EADCE0E1672E187D5BCA517A6A006
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ SuperBird является браузером с особым акцентом �
 ```bash
 magnet:?xt=urn:btih:C0021A3D00E414400CA503FBF7A451B4F203D8D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ ProgDVB 7.11.3 Professional Edition [Multi/Ru]
 magnet:?xt=urn:btih:BDB35554B26CB318430767D8F433CA2D532B6181
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ ManyCam Virtual Webcam Free 6.0.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3B0CB47F96B86F2E8731E7B3C58283B3B2BDA48E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Net Speakerphone Pro 4.10 RC1 build 140319 [Multi/Ru]
 magnet:?xt=urn:btih:CE43F287706C65267AAC2551C288E0D222D0CD83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Chromodo Browser 52.15.25.665 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0BB9CC1DDDADC76B3049548AF1351BF21A979533
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ SafeInCloud Password Manager - комплексный менеджер паро�
 magnet:?xt=urn:btih:5C0739FA35B576FAF105B23041F3FF8B776FD7EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Network Password Recovery 1.40 Portable [Ru/En]
 ```bash
 magnet:?xt=urn:btih:4DE19484FD051B6C6F69955FEED8CAB4B8A81F16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Zello - это стремительно набирающий популярно�
 magnet:?xt=urn:btih:B7AE24DC97AE7C478AF153AB36DDFED4DEBFE32D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:B7AE24DC97AE7C478AF153AB36DDFED4DEBFE32D
 ```bash
 magnet:?xt=urn:btih:DE6DF2A304BC2D32477F5925D1A7A1F5C3434DF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ K-Meleon — браузер для операционной системы Windo
 magnet:?xt=urn:btih:CDA77965E2BE9642E3ECE4C0E32229EFB2991C76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Aiseesoft Video Downloader – профессиональный загрузчи
 ```bash
 magnet:?xt=urn:btih:62FA15C7D5912ECDB6EF555C1FC82D34F1F25696
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:62FA15C7D5912ECDB6EF555C1FC82D34F1F25696
 magnet:?xt=urn:btih:1D6A721DC7E99A208D45EBBFBD4A196C597DED06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ BWMeter - лучшая из утилит для подсчета трафика.
 ```bash
 magnet:?xt=urn:btih:4DE6FFDCDDA37C6A98F17E4CC68F60727A9AD458
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Wondershare AllMyTube - поможет вам скачать любые виде
 magnet:?xt=urn:btih:EEACA69D2E6BB5984354935B7BA32F82B933E37E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ RusTV Player - программа для просмотра телевизион
 ```bash
 magnet:?xt=urn:btih:430F668778F31907ED60CEBEBE03D11D1F278D8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ Kindle Converter легко сконвертирует Kindle DRM / DRM-free э�
 magnet:?xt=urn:btih:331D5E4BD4117A368F1D9F5EEDEC4186E30FAAC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Kindle Converter легко сконвертирует Kindle DRM / DRM-free э�
 ```bash
 magnet:?xt=urn:btih:19F33DEEFF3C4C2C70BAC75929F16E49D822BCE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ Master Browser config 2019.08.002 [En/Ru] (Обновляемая)
 magnet:?xt=urn:btih:C31C722235762256EFD73BA7F00BC806EFABC1A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ Adblock Plus 1.5 for Internet Explorer [Ru]
 magnet:?xt=urn:btih:1DDD508ADFD759A7D126130DCCB862029990C5E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ Tipard Video Downloader - это профессиональный загрузч
 ```bash
 magnet:?xt=urn:btih:3F7D8B480A353A339A57CAC3E57933C3B7B20AAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ Cyberlink YouCam – простая программа для создания �
 magnet:?xt=urn:btih:C0A3E4BF867F2063806B305361AEE0EA6ED1108D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ Network Notepad Professional Edition - программа для создани�
 magnet:?xt=urn:btih:C6DA95D0EEAD43706BB947578013DA0F796D0FEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ YTD Video Downloader позволяет загрузить нужный вам �
 ```bash
 magnet:?xt=urn:btih:E5B6B5D69BF73432C3363EED73EF6E7F093C5465
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

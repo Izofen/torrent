@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:023C75CDC4AD9F8715A1372E106623E793077B6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Loudness - Golden Best (2009) [FLAC|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:6D318E1CF338E06423D052247E0FDF20DB4E648D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Bandicam позволяет записать определенную облас
 ```bash
 magnet:?xt=urn:btih:C5EA5AE2799760A89BAD9A835BC0AE5C053C9B37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ Deep Woods - Balancing Act: A Yoga Journey (2017) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:760E9C4BEE466AF426B0C23BC3C57D995C0AC642
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:760E9C4BEE466AF426B0C23BC3C57D995C0AC642
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -153,6 +163,8 @@ Lustmord - Maschinenfest (October 2 2011) (2017) Vaultworks [FLAC|Lossless|track
 magnet:?xt=urn:btih:218E69E323A1A2BCC16AAF7E400E3F5FC5B86420
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ SIV (System Information Viewer) - мощнейшая утилита, показ�
 ```bash
 magnet:?xt=urn:btih:9E1D37423EB4A9A68B7F95FA2164761C1B30D474
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +215,8 @@ magnet:?xt=urn:btih:9E1D37423EB4A9A68B7F95FA2164761C1B30D474
 magnet:?xt=urn:btih:C69BEE9F96589F5C054DC57CBDBF60D3046512FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:C69BEE9F96589F5C054DC57CBDBF60D3046512FE
 ```bash
 magnet:?xt=urn:btih:9B146422930DEA268A250FDB524EB659DD199486
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:9B146422930DEA268A250FDB524EB659DD199486
 magnet:?xt=urn:btih:431F752FBFEE81326C247C7B96896BFEBE57B77E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:431F752FBFEE81326C247C7B96896BFEBE57B77E
 ```bash
 magnet:?xt=urn:btih:D1C6D111D38B6118E6FA44808AC85D0E7D21416C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ Joywave - Content (2017) [FLAC|Lossless|tracks + .cue] <Indie Pop, Electronic>
 magnet:?xt=urn:btih:1AD6EADC60B39106CF54179F77E21BFECFFD2535
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ VA - Transcendental Ambience: Chilled and Relaxing Music Playlist (2017) [MP3|32
 ```bash
 magnet:?xt=urn:btih:B392D2F2AFDB60CDBDCF9E772DDDCE23A815A9FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -354,6 +380,8 @@ VA - Finding Around Blessing (Energy Tech Trance) 011 (2017) [MP3|320 Kbps] <Tra
 magnet:?xt=urn:btih:12E091675D04E7FB539208891A99D3DDDBA82EDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ magnet:?xt=urn:btih:12E091675D04E7FB539208891A99D3DDDBA82EDE
 magnet:?xt=urn:btih:EF1946B89A9CCD7B62F2FB518F839CD05B6A7619
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ magnet:?xt=urn:btih:EF1946B89A9CCD7B62F2FB518F839CD05B6A7619
 ```bash
 magnet:?xt=urn:btih:45CBC7D2439FDE06483F8B8593E5C28332AB799B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +462,8 @@ VA - The Best Of Suanda True (Mixed by Tom Exo) (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:1C8FB7FDC4EB2BD0F883BCBFF0F54F7A02800930
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +490,8 @@ Wisdom - 2 Albums (2006 - 2011) Japan [FLAC|Lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:295E60D32E96629DAF28620AD280EBA33B493620
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +520,8 @@ magnet:?xt=urn:btih:295E60D32E96629DAF28620AD280EBA33B493620
 magnet:?xt=urn:btih:6BBC57EE6E560E5C9D711E20F7B131ED0CEB8BDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +548,8 @@ VA - Amsterdam. The End Of Year Album (Mixed by Three Drives) (2017) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:7A0791B3BD42E6A169346F78BBA8816BAB46ECF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +578,8 @@ Yusef Lateef - Hush 'N' Thunder (1972) 1998, 32Jazz [WavPack|Lossless|image + .c
 magnet:?xt=urn:btih:421D81CD1C0D7B423F0B37966B00A058DFCFD93E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +607,8 @@ magnet:?xt=urn:btih:421D81CD1C0D7B423F0B37966B00A058DFCFD93E
 magnet:?xt=urn:btih:03BF73E608E85F1B67AF179D613854173C9045CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +632,8 @@ magnet:?xt=urn:btih:03BF73E608E85F1B67AF179D613854173C9045CE
 ```bash
 magnet:?xt=urn:btih:7837077788A4F8C1953EE49D6EFF1D72CFC8D85E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +659,8 @@ magnet:?xt=urn:btih:7837077788A4F8C1953EE49D6EFF1D72CFC8D85E
 magnet:?xt=urn:btih:6BC23F7E94013D819BA13284A95064017849FBB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +685,8 @@ magnet:?xt=urn:btih:6BC23F7E94013D819BA13284A95064017849FBB4
 magnet:?xt=urn:btih:EA5222C7007707510FA4ACB0AF496A5CFCEC187B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +710,8 @@ DC Comics | Артбук по комиксу Bombshells / The Art of DC Comics B
 ```bash
 magnet:?xt=urn:btih:2B290FF41C1833987AC0495FA07B4CB817962E97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

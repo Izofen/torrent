@@ -21,6 +21,8 @@ CrossOver создаётся компанией CodeWeavers на основе и
 magnet:?xt=urn:btih:2BC958C93C1F0793FBDCF642472B9416BE4EE95A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Astra Linux Special Edition 1.8.3 UU1 [amd64] 3xDVD
 magnet:?xt=urn:btih:10D4A2A2C36E0F04BF1FC0EE6FFB20F2D41B8CFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ Ubuntu Game*Pack 24.04 (сентябрь 2025) [amd64] DVD
 ```bash
 magnet:?xt=urn:btih:FB3E518132E636B798C4AE4B346B60578665E09E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ LinuxPHB 12.25.0002 (Debian 12 Bookworm) [x86, amd64] 2xDVD
 magnet:?xt=urn:btih:69C0B8174D486ACB500BD6D48CED8DFE022FFDBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ Ubuntu ServerPack - полный комплект серверного ПО, к�
 ```bash
 magnet:?xt=urn:btih:34D4D277021CA3F887AECEBC50D33D21097857F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ Astra Linux Special Edition 1.8.3 [amd64] 3xDVD
 magnet:?xt=urn:btih:E32F4A3E5307EC4979E24326C534E55782E5B45B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ DeaDBeeF проигрывает множество аудио форматов, 
 magnet:?xt=urn:btih:9BD422FE57604042F9D6ACE129E6E259D526E337
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ Ubuntu*Pack 24.04 Cinnamon (июль 2025) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:ABE179A565284101FE285A8B576861E3C4ADCB9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ Ubuntu*Pack 24.04 MATE (июль 2025) [amd64] 1xDVD
 magnet:?xt=urn:btih:828DDF9ADCE79FF16CEC5C1966604ABA79D77A4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ Ubuntu*Pack 24.04 KDE / Kubuntu (июль 2025) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:6EFD7053309C91656E3A417B71760B4EDEBC7F36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +296,8 @@ Ubuntu*Pack 24.04 LXqt / Lubuntu (июль 2025) [amd64] 1xDVD
 magnet:?xt=urn:btih:903A62F0DD801D3C37D529C696F16E62BC7B1618
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ Ubuntu*Pack 24.04 GNOME (июль 2025) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:9BC7D236B2694423574BE505D7926472B0D995FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +350,8 @@ Ubuntu*Pack 24.04 (июль 2025) [amd64] 1xDVD
 magnet:?xt=urn:btih:7A6F7A911A491536E3F0680FD336D74D65ABA061
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ Ubuntu*Pack 24.04 Xfce / Xubuntu (июль 2025) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:34AA0670CDCB1A53543C1455332D8C104793A720
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ Ubuntu*Pack 24.04 LikeWin (июль 2025) [amd64] 1xDVD
 magnet:?xt=urn:btih:2C2B225DD1EDCF1902554431FB60FFF64B25C205
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ RAR - это консольное приложение, позволяющее �
 ```bash
 magnet:?xt=urn:btih:6E4ABAAE565BA0782B83A1503B91E87BC8243D33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +457,8 @@ VMware Workstation Pro™ позволяет техническим специа
 magnet:?xt=urn:btih:C8031C10BB9FB0C1DD97320F849DD1E6FABC5703
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ Ubuntu*Pack 22.04 DDE (июль 2025) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:92CF5A0FB91E5884936D8143A5C9F59924078D25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +511,8 @@ Ubuntu*Pack 22.04 KDE / Kubuntu (июль 2025) [amd64] 1xDVD
 magnet:?xt=urn:btih:397CFDA298BFFF113F97CDD93C4CA821B233E326
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +537,8 @@ Ubuntu*Pack 22.04 LikeWin (июль 2025) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:5330EE7F3AA923A7C29874FFD1B149082F17752E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +565,8 @@ Ubuntu*Pack 22.04 LXqt / Lubuntu (июль 2025) [amd64] 1xDVD
 magnet:?xt=urn:btih:D91BFCB7EEA4CC67879B63F94E2D792EF780A737
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ Ubuntu*Pack 22.04 Cinnamon (июль 2025) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:6E9F7908D9014CE5C7798CC7037127C6A2EE689C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +619,8 @@ Ubuntu*Pack 22.04 GNOME (июль 2025) [amd64] 1xDVD
 magnet:?xt=urn:btih:DE4B34643867C0D1D88C1869523940E42D901DA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ Ubuntu*Pack 22.04 MATE (июль 2025) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:01F9F593CDBD084C1E81403DBD44970C5B559005
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +673,8 @@ Ubuntu ServerPack - полный комплект серверного ПО, к�
 magnet:?xt=urn:btih:C756CEEDFE5575514197FE61316A8C31B6A59349
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ Ubuntu*Pack 22.04 (июль 2025) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:7C9BE79BF99C7CADB1F155BFBB5B80D2A9BDF5C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

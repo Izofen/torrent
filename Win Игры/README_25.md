@@ -19,6 +19,8 @@ ORDER 13 (2025) [Ru/Multi] (1.12) License GOG
 magnet:?xt=urn:btih:2AF16D49B30995494644552F2DD7DA9A25E1372F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Age of Wonders 4 - пошаговая стратегия с тактически
 ```bash
 magnet:?xt=urn:btih:159ECD04D01A025F12293C7B028B2F59A79A8C12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Age of Mythology: Retold - игра от создателей культовой
 magnet:?xt=urn:btih:F4A6072E1B14013BF7475F776E68B46D37F476B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Darkest Files (2025) [Multi] (1.0.8.1) License GOG
 ```bash
 magnet:?xt=urn:btih:F73D47797C23E4AFA04241757C03E5FF29F84E0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Arctic Motel Simulator (2025) [Ru/Multi] (3.0.2) Repack FitGirl
 magnet:?xt=urn:btih:0F9848E731B92B582A3B3FB594E134A641F9B6C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Echoes of the End - кинематографичный приключенчес�
 ```bash
 magnet:?xt=urn:btih:9013AD79F43835888685C7D298D187F62406D31A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Boxville 2 от Triomatica Games - это следующая часть прик
 magnet:?xt=urn:btih:AABF980F65B9A0AF6BC8F1B63D1384734619ED6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Intravenous 2 погружает вас в мир жестоких интриг 
 ```bash
 magnet:?xt=urn:btih:8FBE319A63AEA37133B7D26858419CA3B6D8ADC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Disaster Report 4: Summer Memories (2020) [Multi] (1.05(a)/dlc) License GOG [Dig
 magnet:?xt=urn:btih:5F1D7D9A526DF707662E28DC36C85042B4E9DAB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:5F1D7D9A526DF707662E28DC36C85042B4E9DAB6
 ```bash
 magnet:?xt=urn:btih:5E9ACFE6045174638627BA022AA836FB9E785C72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Stellar Monarch 2 - это глобальная стратегия в научн
 magnet:?xt=urn:btih:BADEA987AAC59189172E2E904309AA9E774E752F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Senua's Saga: Hellblade 2 - продолжение ролевого экшена
 ```bash
 magnet:?xt=urn:btih:6960CB74FB8D0E06B9938A06E74421DEB47C53EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Night Loops (2023) [Ru/Multi] (1.4.1) License GOG [Deluxe Edition]
 magnet:?xt=urn:btih:3DDA1A7524931A8911F724206EA5FE4833B24FB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Sticky Business (2023) [Multi] (2025.159a/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:60F74BDE77B2A9C14D00808D461C2587056AF259
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The End of the Sun - это мистическая приключенческа�
 magnet:?xt=urn:btih:D6E2B9D56001692E16D547D3DC781EA989BA44AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Black Forest (2016) [Multi] (2.4) License GOG
 ```bash
 magnet:?xt=urn:btih:0A6338448B1100F621C47712AB98507FC0ABD278
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Labyrinth of the Demon King - это вызывающе сложный данж�
 magnet:?xt=urn:btih:268AB90BA949736E90595E843D648A2064125BA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Into the Emberlands (2024) [Ru/Multi] (1.1.0f3/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:07539FBC34427C392ABEC9D303E35BA002A688DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Wolfenstein: The New Order - это возрождение серии, кото�
 magnet:?xt=urn:btih:E222DEB1BDFE045D57D9D32D4A5D37F01E9A2ACE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Nikoderiko: The Magical World (2024) [Ru/Multi] (2.3) License GOG [Director’s 
 ```bash
 magnet:?xt=urn:btih:BBC7276A993154CC66C0678C21B50301827C2ADB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Odd Realm – это игра, объединяющая как стратеги�
 magnet:?xt=urn:btih:6BC7454B4E5FD7F346DDBC9B5338881820F41DD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Strategic Command WWII: War in the Pacific с головой окунает ва
 ```bash
 magnet:?xt=urn:btih:3105EC381E969296F50B7EFED21FF51B17FA16C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Everafter Falls (2024) [Multi] (2.1.4) License GOG
 magnet:?xt=urn:btih:91FFE2197C3A7E4A38F4F962AA86AC1BA9F56AB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (1.43.11/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:EEB98B2FD50DF2A703EA69F9BBFEFE0E2519C555
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ False Skies - это классическая ролевая игра с инт�
 magnet:?xt=urn:btih:6A4366990992FB0805153ECEA606355FB780A0AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Guards II – это тактическая пошаговая стратеги�
 ```bash
 magnet:?xt=urn:btih:453446BAA4153712D7EE4E11CD9BDA48D50B62C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

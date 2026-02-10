@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:3E05F4007D17E96DCFDB6C46F89264F374D27375
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Web 3.0: Токенизация, (   Читать дальше...   )Жанр: 
 magnet:?xt=urn:btih:67A34BF6B69AE528AE123395472C6499CD519FCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:67A34BF6B69AE528AE123395472C6499CD519FCA
 ```bash
 magnet:?xt=urn:btih:A92823681F209A5F704B7A4222FCA477E6B37EBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ Terraform является настоящей звездой в мире DevOps.
 magnet:?xt=urn:btih:1ED9CA4AD69142112E45FFB7D9A5A959E0423486
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Kotlin - один из самых новых языков в экосистем�
 ```bash
 magnet:?xt=urn:btih:279BDDC28ACCE198303E9596D6231F706EA3D2EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:279BDDC28ACCE198303E9596D6231F706EA3D2EA
 magnet:?xt=urn:btih:F90BB990892023227DACAF521FBE92DA22D99681
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:F90BB990892023227DACAF521FBE92DA22D99681
 magnet:?xt=urn:btih:23CB883C64969E5DFE330574B12D8667C5440F87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:23CB883C64969E5DFE330574B12D8667C5440F87
 ```bash
 magnet:?xt=urn:btih:7070CC1133CFF508A238CC231CA3AF7D72614A4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:7070CC1133CFF508A238CC231CA3AF7D72614A4B
 magnet:?xt=urn:btih:3EB68669E413764CD22D4230FE7EA4DE9D56F53D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:3EB68669E413764CD22D4230FE7EA4DE9D56F53D
 ```bash
 magnet:?xt=urn:btih:E236AAE688FD14309B1D0FEEFA56D6852EE11C55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:E236AAE688FD14309B1D0FEEFA56D6852EE11C55
 magnet:?xt=urn:btih:B2B4AA2960226672887C96E9EEF429D7A5A69B7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:B2B4AA2960226672887C96E9EEF429D7A5A69B7C
 ```bash
 magnet:?xt=urn:btih:B2142DFAEE2B92C4C4562DED65DFEBBB40AC1FB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:B2142DFAEE2B92C4C4562DED65DFEBBB40AC1FB1
 magnet:?xt=urn:btih:52AAA325C3EA25F9A00F9760F0DCAA1CE0724E5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ This book is a beginner’s guide to Java Programming Language for Kids ages 12 
 ```bash
 magnet:?xt=urn:btih:751F6C9DACF35075E6203E378DF10FB824058FFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:751F6C9DACF35075E6203E378DF10FB824058FFA
 magnet:?xt=urn:btih:F2F8E60FB307E3D944A40995C23231AA890EF10B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:F2F8E60FB307E3D944A40995C23231AA890EF10B
 ```bash
 magnet:?xt=urn:btih:B837A44120A4535D516DEF08BBAD5C17EF9E6376
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:B837A44120A4535D516DEF08BBAD5C17EF9E6376
 magnet:?xt=urn:btih:ACCF0C17A28311E848E5222FF4CB537BD2E00FE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:ACCF0C17A28311E848E5222FF4CB537BD2E00FE4
 ```bash
 magnet:?xt=urn:btih:9190E4B52719A29BA4E29E5363945E1E437C631B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:9190E4B52719A29BA4E29E5363945E1E437C631B
 magnet:?xt=urn:btih:D36A01660F13D4550D59B60E4953D4F2B748327F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ Larry L. Peterson, Bruce S. Davie | Computer Networks: A Systems Approach / Ко
 ```bash
 magnet:?xt=urn:btih:4C384BC13924BAA3D8758597C68C88369F0AA372
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:4C384BC13924BAA3D8758597C68C88369F0AA372
 magnet:?xt=urn:btih:4E3519FD269CF539A704C5BA38BE86D82732A5CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ javascript — это язык программирования для веб-с
 magnet:?xt=urn:btih:86D153E663E9341D359FC3FDB62E95A1CF269413
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:86D153E663E9341D359FC3FDB62E95A1CF269413
 ```bash
 magnet:?xt=urn:btih:BC0C2819E7496517CBE7A303AD9A9FB9DBD54DAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ magnet:?xt=urn:btih:BC0C2819E7496517CBE7A303AD9A9FB9DBD54DAE
 magnet:?xt=urn:btih:F89DDF3852EC6ACD2E60143CC80DFF5156798E30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:F89DDF3852EC6ACD2E60143CC80DFF5156798E30
 magnet:?xt=urn:btih:B5327BCC01F97CA592E94960654BE52D5ABAE26B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Google Таблицы – прекрасный редактор таблиц, п
 ```bash
 magnet:?xt=urn:btih:58074A79ED3AEAA7DB4777FDA7F5D087A096BCFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

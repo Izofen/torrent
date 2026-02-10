@@ -1,3 +1,29 @@
+###  Публикация: 1550276   (592484) от 10.05.2022
+
+Павел Ковалевский | Русский национализм и национальное воспитание (2017) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга представляет собой сборник сочинений П.И. Ковалевского, выдающегося русского психиатра, политического публициста и общественного деятеля, посвященный одной теме – русской нации и русскому национализму. Сочинения были созданы в период его участия в деятельности Всероссийского национального союза и интересны, главным образом, как исторический памятник ушедшей (   Читать дальше...   )Жанр: Политика, ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0A72AA18934D551F4E78426B7A078AE4371BBAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1300479   (592708) от 07.05.2019
 
 Шри Рой | Эффективный самомассаж от недугов и недомоганий (2017) [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:D959BADD7B6BFBC6A25EA789B763EDA4A462D310
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:D959BADD7B6BFBC6A25EA789B763EDA4A462D310
 ```bash
 magnet:?xt=urn:btih:0C3FA5766597DDCA4FA3C3CDFBC18142AAF474FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:0C3FA5766597DDCA4FA3C3CDFBC18142AAF474FD
 magnet:?xt=urn:btih:BCF68B9BCC35BEC53D12EABFF6D53A34C9187CE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:BCF68B9BCC35BEC53D12EABFF6D53A34C9187CE0
 ```bash
 magnet:?xt=urn:btih:B8C624390C7EB5AE472D6275308ED3B91DCF764D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +154,8 @@ magnet:?xt=urn:btih:B8C624390C7EB5AE472D6275308ED3B91DCF764D
 magnet:?xt=urn:btih:F716030EC0FF324C2750689D518EBC6BDDF5FA13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:F716030EC0FF324C2750689D518EBC6BDDF5FA13
 ```bash
 magnet:?xt=urn:btih:3C1A737D264BD5D1A4C92C3B91C1D03AE758BB27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +207,8 @@ magnet:?xt=urn:btih:3C1A737D264BD5D1A4C92C3B91C1D03AE758BB27
 magnet:?xt=urn:btih:66BAC15E685A8B76BE1CD99BD24AB533056A14C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +233,8 @@ magnet:?xt=urn:btih:66BAC15E685A8B76BE1CD99BD24AB533056A14C9
 ```bash
 magnet:?xt=urn:btih:3A91A4B4AE2EFE216B593527EA5077CDB70F07E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +262,8 @@ magnet:?xt=urn:btih:3A91A4B4AE2EFE216B593527EA5077CDB70F07E0
 magnet:?xt=urn:btih:1BE7F7904544913C4D541E73074A9DEAE3CBB4C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +287,8 @@ magnet:?xt=urn:btih:1BE7F7904544913C4D541E73074A9DEAE3CBB4C8
 ```bash
 magnet:?xt=urn:btih:CF37D2E90B1637C94A5DF512560C61BAC1DF1AE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +314,8 @@ magnet:?xt=urn:btih:CF37D2E90B1637C94A5DF512560C61BAC1DF1AE6
 magnet:?xt=urn:btih:BC13CBCCD8F640DE9FC2DBEA2C5DD703CF63F624
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +340,8 @@ magnet:?xt=urn:btih:BC13CBCCD8F640DE9FC2DBEA2C5DD703CF63F624
 magnet:?xt=urn:btih:63A7F52EB8D40EDEB4EA6989752E5C0F11BF767B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:63A7F52EB8D40EDEB4EA6989752E5C0F11BF767B
 ```bash
 magnet:?xt=urn:btih:0FFBA902EDFF5CEF77C8F9D62BCF30421236D794
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +395,8 @@ magnet:?xt=urn:btih:0FFBA902EDFF5CEF77C8F9D62BCF30421236D794
 magnet:?xt=urn:btih:9ABFABE5CC6A2095D31E159CDFD131608BBA08E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +420,8 @@ magnet:?xt=urn:btih:9ABFABE5CC6A2095D31E159CDFD131608BBA08E3
 ```bash
 magnet:?xt=urn:btih:BD84D85392D390FD54CB1450FFE2D83F3BDC2344
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +447,8 @@ magnet:?xt=urn:btih:BD84D85392D390FD54CB1450FFE2D83F3BDC2344
 magnet:?xt=urn:btih:6CFBB36C936A57BA792D98CFFB483F6FFB4796FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +473,8 @@ magnet:?xt=urn:btih:6CFBB36C936A57BA792D98CFFB483F6FFB4796FD
 magnet:?xt=urn:btih:8F1CEF70D412D86377F0F30AA18D79DD401FF391
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +498,8 @@ magnet:?xt=urn:btih:8F1CEF70D412D86377F0F30AA18D79DD401FF391
 ```bash
 magnet:?xt=urn:btih:AEEE3FE7EA00A04A30D0DD473242350272EE9A5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +528,8 @@ magnet:?xt=urn:btih:AEEE3FE7EA00A04A30D0DD473242350272EE9A5A
 magnet:?xt=urn:btih:0E08E3A1095797E6D5557C7D89F3E9509735E2D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +554,8 @@ magnet:?xt=urn:btih:0E08E3A1095797E6D5557C7D89F3E9509735E2D5
 ```bash
 magnet:?xt=urn:btih:C0449F03F224CBF701828D74392B907D823858AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +583,8 @@ magnet:?xt=urn:btih:C0449F03F224CBF701828D74392B907D823858AF
 magnet:?xt=urn:btih:40703E775EEC66170DAA839559DA9F1FAF263515
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +608,8 @@ magnet:?xt=urn:btih:40703E775EEC66170DAA839559DA9F1FAF263515
 ```bash
 magnet:?xt=urn:btih:CB4248CDBA67A8E086753A3B7E02526124522804
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +635,8 @@ magnet:?xt=urn:btih:CB4248CDBA67A8E086753A3B7E02526124522804
 ```bash
 magnet:?xt=urn:btih:9E8A7ADF7D969895D33032333403159D804F6AF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +665,8 @@ magnet:?xt=urn:btih:9E8A7ADF7D969895D33032333403159D804F6AF4
 magnet:?xt=urn:btih:048186CB12EFFCD678601A4DBE52C7B46C1ECE35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,29 +691,7 @@ magnet:?xt=urn:btih:048186CB12EFFCD678601A4DBE52C7B46C1ECE35
 magnet:?xt=urn:btih:32CB6DBA53043EFD2461BEC672F78B7E6A4CA742
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300372   (593505) от 05.05.2019
-
-Книжная серия | Сериал, который покорил мир [11 книг] (2014-2016) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издательство «Алгоритм» - лидер на рынке интеллектуальной литературы выпустило серию книг «Сериал, который покорил мир», в котором авторы разбираются в причинах популярности тех или иных сериалов. В книгах - сведения о съемках, актерах, разные слухи и т.д и т.п.Жанр: Кинематограф, Биографии и Мемуары, ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6737A818F42500D7F7CCEF8BC201B2060F499D40
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ PrivaZer - полезная утилита, которая поможет вам
 magnet:?xt=urn:btih:0C13F2C35359832F55621295F6FA390E1815F324
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:0C13F2C35359832F55621295F6FA390E1815F324
 ```bash
 magnet:?xt=urn:btih:34F7A3160E41C288E83E0FA2825AAC04DF816AA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Glary Utilities - функциональный набор системных т�
 magnet:?xt=urn:btih:C4B87707013E1DDD5BB014A9B24D91A911FD76EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:D85515631973CFC48EE769DD0855C9309D5E58D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ MyLanViewer — программа для сканирования и монит
 magnet:?xt=urn:btih:60484BDE2CBBA63E0C1F414ABC9A6B1FC1610E6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Ashampoo WinOptimizer - новая линейка пакета программ,
 ```bash
 magnet:?xt=urn:btih:3F0385A06CA1C2D021ED7BD4CB31CBDD5A7D4E8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ MiniTool Partition Wizard Technician - мощный менеджер для ра
 magnet:?xt=urn:btih:1DB75D66E0836D1228961BAE26C265F5C5055D96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ WinUtilities - системный набор для настройки ваше�
 ```bash
 magnet:?xt=urn:btih:272A5E2E112A4E4550EDE6F5EBF3C00EB911FBC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ GreenCloud Printer – драйвер виртуального принтера,
 magnet:?xt=urn:btih:068DCD18939CE4A191D47D019907189D25F40BC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Password Rescuer - универсальное средство для восст
 ```bash
 magnet:?xt=urn:btih:AC009D577A273A4445515628922E057AF507232F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Startup Delayer - выручит в том случае если на вашем
 magnet:?xt=urn:btih:1EE20699E38D95E673B77138D016ECF96C7C438B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ HTTPNetworkSniffer 1.51 Portable + Driver [Ru/En]
 magnet:?xt=urn:btih:1AF0CF6F56CB3A3FD61D45B7E439580D06C0FA85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +330,8 @@ TcpLogView 1.25 Portable [Ru/En]
 ```bash
 magnet:?xt=urn:btih:1C6CDA1B9F41A6D15982E932E887FEFAE444C7CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:1C6CDA1B9F41A6D15982E932E887FEFAE444C7CF
 magnet:?xt=urn:btih:F5F88996471D8B187B8ACE0283924731E5E12DCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ KeepSolid VPN Unlimited – кроссплатформенный VPN серви�
 ```bash
 magnet:?xt=urn:btih:2DB7D3A680B1454934261887918D4040968D8916
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ OpenGL Extensions Viewer — программа для вывода информ
 magnet:?xt=urn:btih:54092203FBFC43576D5C9DACFA266B5A28838EEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ PDF-XChange Viewer - отличная программа для чтения и 
 magnet:?xt=urn:btih:55715F9B3DE01D24C8322F5E50096E223DE12E01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Tipard PDF Converter Platinum - удобная и простая в исполь
 ```bash
 magnet:?xt=urn:btih:A6133AC3B1C654F78A6D607C62D0D2AAE4ECA83B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:A6133AC3B1C654F78A6D607C62D0D2AAE4ECA83B
 magnet:?xt=urn:btih:9907E4E7A638ADF4734C1ED406394B33E141DBA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Audials Radiotracker является ведущим мировым рекорд
 ```bash
 magnet:?xt=urn:btih:AE977A5DEDF95E18E60E203914A96796BC232333
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ OCCT 15.0.6 Portable [En]
 magnet:?xt=urn:btih:903CF550E51CF12E6F51984F8858F02345BF27D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ uTorrent 3.5.5 Build 46552 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:7A63E025919CD8E04255A54A6B04D7CCAD770B3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ Photo EXIF Manager позволяет просматривать и редакт
 ```bash
 magnet:?xt=urn:btih:D28A25D11732C7B6AC54339EFDB05D57D6AFD3DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:D28A25D11732C7B6AC54339EFDB05D57D6AFD3DF
 magnet:?xt=urn:btih:2AF2216D9C74DC3593147E3C8D0BCC7E50D4365A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ Pic-a-Pix Puzzle World 6.3
 magnet:?xt=urn:btih:40A47DF2BB3BFFF9CA596910820073D7909EE814
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Macrorit Partition Extender - утилита, доступная также в �
 ```bash
 magnet:?xt=urn:btih:8561923D740995F2D3994909BC8F442AAFCC070A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

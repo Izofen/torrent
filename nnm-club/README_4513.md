@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:53DFF1A22109D4071E1648103966E4E4245E40B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Stardust - Music Sounds Better With You (1998) Maxi-Single [FLAC|Lossless|tracks
 magnet:?xt=urn:btih:1B8D489AE0995BE7BBA7809D7CD6053A42C70787
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:1B8D489AE0995BE7BBA7809D7CD6053A42C70787
 magnet:?xt=urn:btih:61AEA873E1F22B5FFF83AF2FE7F608B7E49F5252
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Tooth and Tail (2017) [Multi] (1.1.0.2) License PLAZA [Season 2]
 ```bash
 magnet:?xt=urn:btih:59635C10CBD437AD3D5FEC77AEA1912DDBC5027A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ VA - The Official UK Top 40 Singles Chart (29-12-2013) [MP3|MP3|320 кб/с]<Pop
 magnet:?xt=urn:btih:99B52319EEC8151F05C11D238656A5262CEDB4B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:99B52319EEC8151F05C11D238656A5262CEDB4B1
 ```bash
 magnet:?xt=urn:btih:FA4DDE8AB02E827B6C4E6FC9D36EFD7CC6E153C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ VA - Ouie First X (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 magnet:?xt=urn:btih:5D6AE3465068D874CCEC03E9EBB6DFDD9E2358D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:5D6AE3465068D874CCEC03E9EBB6DFDD9E2358D2
 magnet:?xt=urn:btih:E07F1615BC2528D9ED99868EF4D7F4A72F6EB6B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:E07F1615BC2528D9ED99868EF4D7F4A72F6EB6B0
 ```bash
 magnet:?xt=urn:btih:67F6742160A6CB5E00203D1D4B1ABA2F725CB18C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ Elvin Jones - Poly-Currents (1969) Remaster, 2014, Universal[FLAC|tracks+.cue] <
 magnet:?xt=urn:btih:2FCF6B76E41F6F6776B6231FE815AFD35F2B2DA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:2FCF6B76E41F6F6776B6231FE815AFD35F2B2DA0
 magnet:?xt=urn:btih:3A87D811FA20AB938BA7184ACB5E55C0E019A2C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ Burnt Alive in Odessa (2021) WEBRip [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:F49CA76A467F34F5BBEBF7D3E18D3CE3CCF3BC69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +352,8 @@ The Air of Hiroshima - Желчь (2020) [MP3|320 Kbps] <Post Rock>
 magnet:?xt=urn:btih:0A60CAF3FEA2D785F1CB0BD75B9392958DAFF327
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +381,8 @@ Snoweffect - Rustic Physiocrat (2005) Ryoondo-Tea [FLAC|Lossless|tracks+.cue] <A
 magnet:?xt=urn:btih:5FA6B75AE861E1C14D2D95F8F6B3E9DD122900AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ magnet:?xt=urn:btih:5FA6B75AE861E1C14D2D95F8F6B3E9DD122900AF
 ```bash
 magnet:?xt=urn:btih:4E99FB474583CACD773D0C48EF2658BCE9922A83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ magnet:?xt=urn:btih:4E99FB474583CACD773D0C48EF2658BCE9922A83
 ```bash
 magnet:?xt=urn:btih:A557A06532897FA27E3260F32C33BFF10183AF45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +463,8 @@ Sir Roland Hanna Plays The Music Of Alec Wilder (1998) Gitanes Jazz Productions 
 magnet:?xt=urn:btih:7C354FE80167859D35C8E682D0D3FFEB97DAD48A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ magnet:?xt=urn:btih:7C354FE80167859D35C8E682D0D3FFEB97DAD48A
 ```bash
 magnet:?xt=urn:btih:A61B0C125AC222F0CDD22F3634B114C6E0D64758
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +518,8 @@ magnet:?xt=urn:btih:A61B0C125AC222F0CDD22F3634B114C6E0D64758
 magnet:?xt=urn:btih:F8160250EB48B0A5B2F96F50A7081DC3B9EBB948
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +543,8 @@ Lindsey Stirling - What Child is This (2012) [H.264/1080p] WEBRip
 ```bash
 magnet:?xt=urn:btih:0C363A637F201FFB30F86F6B72FAEF853E022803
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +570,8 @@ Super Mario Maker for Nintendo 3DS (2016) [3DS] [EUR] 10.7 [CIA] [License / 1.02
 magnet:?xt=urn:btih:0A9B892C0DEE4BBDE64CDD7BE0B64A12E303AB8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +595,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 ```bash
 magnet:?xt=urn:btih:BFD54FF8370D69DC304CB453EAFF43C4FFACB4FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +623,8 @@ magnet:?xt=urn:btih:BFD54FF8370D69DC304CB453EAFF43C4FFACB4FF
 magnet:?xt=urn:btih:47647C6151698F648350BE51087BA117F20AA3B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ magnet:?xt=urn:btih:47647C6151698F648350BE51087BA117F20AA3B7
 magnet:?xt=urn:btih:32D67D9EE4114011D05C59CF00443B18AB87CFEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ magnet:?xt=urn:btih:32D67D9EE4114011D05C59CF00443B18AB87CFEB
 ```bash
 magnet:?xt=urn:btih:65C0434C0FFB05398469225D4C69B1E8FEDE2507
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -654,6 +704,8 @@ Acid - The In Part Od The Out Crowd (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie 
 ```bash
 magnet:?xt=urn:btih:A4EF86568C49BCAF6DA1ED839974A54D9B30F31A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

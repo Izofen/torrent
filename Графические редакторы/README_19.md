@@ -19,6 +19,8 @@ Helicon Remote — это программа для выполнения съе�
 magnet:?xt=urn:btih:6F155F0AE6923D2E681D77E032179360BE85BEF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ PhotoEQ - программное обеспечение для улучшени�
 magnet:?xt=urn:btih:9DB12EAEA76493047CE0C56762C52BA3FF1EC2AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ IDPhoto Processor предназначен для пакетной обрабо�
 ```bash
 magnet:?xt=urn:btih:7AADDCBE29A75657659B55C6D0D8DE4FB5B5C01D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Qimage Ultimate (22nd Anniversary Edition) 2020.101 [En]
 magnet:?xt=urn:btih:B3AAD2CAB1F7B86F2261A6143B6F1A391AB8DA72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Adobe Animate CC — программа для создания веб-граф�
 ```bash
 magnet:?xt=urn:btih:5C82CC815E60C4D94F65F0CB6F4736F1984664FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ DxO Optics Pro - профессиональное приложение, спос
 magnet:?xt=urn:btih:2238577869F534D31A563EECB82AC730B52A22FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ TwistedBrush Paint Studio 4.16 [En]
 ```bash
 magnet:?xt=urn:btih:8234C0EEBC825B9F68FCFAC348CF0CD6F9FA6C21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Dragonframe - это уникальное решение для покадров
 magnet:?xt=urn:btih:C49885E71C008AEF589D29A7A10A106EAF810029
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:C49885E71C008AEF589D29A7A10A106EAF810029
 ```bash
 magnet:?xt=urn:btih:4FDB27B687305A9C91F6114439FF9AB6AEBD46B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ TwistedBrush Studio - приложение предоставляющее ода
 magnet:?xt=urn:btih:D81D04312B6F3C19551B233EAC5CCAD33239D609
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ CoolUtils Total Image Converter - преобразует изображения 
 ```bash
 magnet:?xt=urn:btih:386ADCDAB062FFB989C60247B5C09DCFCFDD0107
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Labeljoy — программа, разработанная для создан�
 magnet:?xt=urn:btih:262E416F2CC0085556A66543862CC4A63459EE9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Picosmos Tools - редактор и вьювер изображений. Сод
 magnet:?xt=urn:btih:9B6C77C971B6DBE8516B2B7FE4820F1B48FF3650
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ PhotoDiva - программа для ретуши портретных фото
 ```bash
 magnet:?xt=urn:btih:7C04EAC1E0F2477B8EB15C1A721A7EB98009FFA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Camera Raw: 3fr, arw, cr2, crw, dcr, dng, erf, kdc, mef, mos, mrw, nef, nrw, orf
 ```bash
 magnet:?xt=urn:btih:34477D1B8FB88B62112AA296BE941EE849517ED3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Luminar - это полнофункциональный набор для ред
 magnet:?xt=urn:btih:CAA8F86DF3C75BBD9C1DC46CF43E48CD7BA0731F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ Luminar - это полнофункциональный набор для ред
 magnet:?xt=urn:btih:0ABCC33EDFDA4112D62CD817D81BFBFBC50FB9D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ Focus Photoeditor - мощный и легкий в использовании �
 ```bash
 magnet:?xt=urn:btih:F941BF726BA62CD607B6368701AE526658E967C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ Aurora HDR 2019, которая идеально подходит для фот�
 magnet:?xt=urn:btih:CEE7DA84B5D319A20EFE1627144DC951FBCD5678
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ Studio V5 LogoMaker – программа является инновацион
 ```bash
 magnet:?xt=urn:btih:8916A32C93C93C93D9DBEE192EF1880F7F87A868
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ Movavi Slideshow Maker – это простая и удобная програ�
 magnet:?xt=urn:btih:6CED63FA42B973732ED40BDB5FF670DCE176ECAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ Ashampoo ActionCam 1.0.2 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3854C7FAC4B13F13084943A604CDFFBC086742D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ Movavi Photo Focus - простой в использовании инструм
 magnet:?xt=urn:btih:B170D17DC5050998A09702BDCEEDAEA76A1E86EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Movavi Photo Noir - отличное приложение для перевод�
 ```bash
 magnet:?xt=urn:btih:ECD767A582975FDBF60854198A52FECF7B35B4A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ Reshade Image Enlarger - еще одна замечательная (и что �
 magnet:?xt=urn:btih:CB5EC7E1900FE52729C1D8F40127B7524F0CA497
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Movavi Photo DeNoise 1.0.0 RePack by вовава [Ru/En]
 ```bash
 magnet:?xt=urn:btih:BA8E4DF1EB0EBEA274C071B64F187B67DBBA5FFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ TON-разработчик
 magnet:?xt=urn:btih:4F42220FB4D45B6F1780888AA875C7E497AFE15B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:4F42220FB4D45B6F1780888AA875C7E497AFE15B
 ```bash
 magnet:?xt=urn:btih:7843A1416A9F8C234E6E2DC7F3296BF8A283820B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ loftschool | Node.js серверный JavaScript (2018) PCRec [H.264]
 magnet:?xt=urn:btih:96049FE9C0C7E1FD694C24BDB8CE7C536BA614B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Udemy, Eric Giessmannl | Quill to Unreal Engine pipeline – VR animation for 3D
 ```bash
 magnet:?xt=urn:btih:35D38B22F5D568ED2A4373344B4AA636854E98C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Udemy, Billy McDaniel | Procedural City Generation in Unity C#: Grid-Based & Mod
 magnet:?xt=urn:btih:62933FC3FC081A58270459292DB702EB90C1CB3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Houdini часто считают сложным, но правда в том, �
 ```bash
 magnet:?xt=urn:btih:8E7A2609AE61EDCEDDBA6DF248B441210750F437
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Solidity - это язык программирования высокого у�
 magnet:?xt=urn:btih:581595E1ED685C142154E21DBB60FF1FB72B3A56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Udemy, 3DRedBox Studio | Eco Bike 3D Modeling and Rendering: 3Ds Max to Vray | C
 ```bash
 magnet:?xt=urn:btih:C8E668C821E94AC02AE764648D3BAE890767CFE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Udemy, 3D Tudor | 3D Trees with Blender Geometry Nodes (2025) WEB-DL [EN]
 magnet:?xt=urn:btih:8939A1E8381DFBAEDA0C15F5C6AE047FB383291A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Stepik, Сергей Камянецкий | Буткемп «Записки юн
 ```bash
 magnet:?xt=urn:btih:C0051140473C9E2DF250547FB2AFD3014EBD924C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:C0051140473C9E2DF250547FB2AFD3014EBD924C
 magnet:?xt=urn:btih:17EEAD26F18A157BAA5536B1D82644E1CCAFC662
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:17EEAD26F18A157BAA5536B1D82644E1CCAFC662
 ```bash
 magnet:?xt=urn:btih:25D7240746479E11EB61B17490FA17386BBA638C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:25D7240746479E11EB61B17490FA17386BBA638C
 magnet:?xt=urn:btih:6A2AECC0965BA51618C8B7390C7B9F872D7A4652
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ fxphd, Doug Hogan | The Nuke Unfiltered Series (2024) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:2EE3F4BFD90305ABEC4446C8BFBBC26D31382546
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ BIM-проектирование. Скилл, который нужен кажд
 magnet:?xt=urn:btih:0F427F4EB6FDBBE23DB54241061CB069A8F931B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:0F427F4EB6FDBBE23DB54241061CB069A8F931B6
 magnet:?xt=urn:btih:2285B51EFCEFB7D92D6E870115A59C06BE2E2719
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:2285B51EFCEFB7D92D6E870115A59C06BE2E2719
 ```bash
 magnet:?xt=urn:btih:1C9AC57995D58D82C2E9F5F8729FE971CB254B40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ Udemy, Rob Tuytel | Creating snow environments for Blender & Unreal (2025) WEB-D
 magnet:?xt=urn:btih:BD1E00DAEB4087B8219870DE001DA8D9FDA649E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ Udemy, Udit Gala | Blender Masterclass: Camera Tracking & VFX Combined (2025) WE
 magnet:?xt=urn:btih:4DDAA8633F9A0835DA844AB1DF603CE13C95BD0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ Node.js - это среда выполнения JavaScript на backend, спр
 ```bash
 magnet:?xt=urn:btih:0787894505C363FE36931940A5FA71397022BF9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ Paranoid Rebirth — полностью переработанный и акту
 magnet:?xt=urn:btih:2D809E0A5627DB7D907593A941B6F23A1DDFF1C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +581,8 @@ magnet:?xt=urn:btih:2D809E0A5627DB7D907593A941B6F23A1DDFF1C4
 magnet:?xt=urn:btih:6680205BAD784A62612D5401C1489EA2D08749AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:6680205BAD784A62612D5401C1489EA2D08749AB
 magnet:?xt=urn:btih:3EB77C186E9EBD0E4B3D088725C730DCFBA20D02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ magnet:?xt=urn:btih:3EB77C186E9EBD0E4B3D088725C730DCFBA20D02
 ```bash
 magnet:?xt=urn:btih:836B0884E6D0A8F29B8C91FD17F19495E1B32CD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +663,8 @@ Domestika, Jonas Pfeiffer | Abstract Portrait Animation with Cinema 4D (2025) WE
 magnet:?xt=urn:btih:853E93F87CA7C34AF166D3CB28880AB0F864ED32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ Udemy, Ag Motion Designs | Cinema 4D & Redshift: Looping Animation Mastery (2025
 ```bash
 magnet:?xt=urn:btih:9BDB10788B6A1A187D999628526118C907C60532
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

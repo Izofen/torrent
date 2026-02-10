@@ -1,55 +1,3 @@
-###  Публикация: 958339   (323526) от 21.11.2015
-
-Adele - 25 (2015) Target Exclusive Deluxe Edition [MP3|320 кб/с]<Indie Pop, Neo Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello
- 02. Send My Love (To Your New Lover)
- 03. I Miss You
- 04. When We Were Young(   Читать дальше...   )Жанр: Indie Pop, Neo Soul, Vocal JazzПродолжительность: 01:00:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0329109142EE215CF9CD39CF72488C2D2EAD588A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958447   (323527) от 21.11.2015
-
-Векторный клипарт - Design elements, borders and ornaments vector [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Элементы для дизайна, орнаменты и бордюры в векторе.
-19 EPS | + JPG PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FF6A8E8E48DBC2E821E861779D87C4F1AA2CD3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958403   (323528) от 21.11.2015
 
 Перерыв на бездумье / Time Out of Mind  (2014) HDRip
@@ -70,6 +18,8 @@ magnet:?xt=urn:btih:0FF6A8E8E48DBC2E821E861779D87C4F1AA2CD3E
 ```bash
 magnet:?xt=urn:btih:CB49BBAB1445FDE8FD35D6D512EC338AA250053B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +45,8 @@ Game of Thrones: A Telltale Games Series – эпизодическая игра
 magnet:?xt=urn:btih:A39CFB98C86E9CA6A4A8FBFD3C68C00798567640
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +70,8 @@ magnet:?xt=urn:btih:A39CFB98C86E9CA6A4A8FBFD3C68C00798567640
 ```bash
 magnet:?xt=urn:btih:F145E61FEA33651A23F42F73BBA6B86EBF20BD1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +98,8 @@ Duplicate Photos Fixer Pro является удобным приложение�
 ```bash
 magnet:?xt=urn:btih:ADAEBEA6BBB6D81DA20D97EED6E4487FD30E1D6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +128,8 @@ The Kooks - Let's Go Sunshine (2018) [FLAC|Lossless|tracks + .cue] <Pop Rock, Br
 magnet:?xt=urn:btih:4FBF5E22464ECA9A6D04C96B03A9698DCD12FF12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +156,8 @@ VA - Only Silk 05 (Mixed by Max Flyant & Vintage & Morelli) (2018) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:DCA775A9D6D8B68372EE3876F2BF215F91EB7330
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +186,8 @@ Astral Waves - La Danse Du Chaman (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtemp
 magnet:?xt=urn:btih:15E2EC134671E1FF1ADF6CFC9DCEE41D526D491B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +211,8 @@ TextLab - текстовый инструмент преобразования, 
 ```bash
 magnet:?xt=urn:btih:61E96AB2A7124B4EA60549D85F0530FE369D16B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +238,8 @@ magnet:?xt=urn:btih:61E96AB2A7124B4EA60549D85F0530FE369D16B0
 ```bash
 magnet:?xt=urn:btih:298DEB9201C1DD3D013B2563DE12908D52EE1A3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +268,8 @@ The Ocean - Phanerozoic I: Palaeozoic (2018) [FLAC|Lossless|WEB-DL|tracks] <Prog
 magnet:?xt=urn:btih:42BE1310569982EE78131945BBE9920DBA3C32DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +293,8 @@ magnet:?xt=urn:btih:42BE1310569982EE78131945BBE9920DBA3C32DB
 ```bash
 magnet:?xt=urn:btih:8B2289CAAC49E78800E90F7E3C9DF9D9958A2007
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +321,8 @@ magnet:?xt=urn:btih:8B2289CAAC49E78800E90F7E3C9DF9D9958A2007
 magnet:?xt=urn:btih:B52E7C80AA189A826C17791A57189A9BEFA84321
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +347,8 @@ magnet:?xt=urn:btih:B52E7C80AA189A826C17791A57189A9BEFA84321
 ```bash
 magnet:?xt=urn:btih:BBDD889BEFB3C1A8BEB21448FE89576A69830C43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +377,8 @@ VA - Markus Schulz - Global DJ Broadcast - World Tour ADE in Amsterdam (2018) [M
 magnet:?xt=urn:btih:6A38F8CFA4C10EA2E6480FFC8F5B9547DA5DBE83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +406,8 @@ VA - Ori Uplift - Uplifting Only 299 (2018) [MP3|320 Kbps] <Trance,Uplifting Tra
 magnet:?xt=urn:btih:4B609817D25F40AD328CAA2AC3DD2F6EE65FDD7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +434,8 @@ VA - Morphological Patterns: Techno Electrozombies (2018) [MP3|320 Kbps] <Techno
 ```bash
 magnet:?xt=urn:btih:FE9C3982AF703712751BEEE35C85DB1766E9B16F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +465,8 @@ CD2 - 01:02:28
 magnet:?xt=urn:btih:11D9600C5C7D41932E9033C738EDCC3654B72874
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +493,8 @@ Sundrifter - Visitations (2018) [FLAC|Lossless|tracks + .cue] <Stoner Rock, Psyc
 ```bash
 magnet:?xt=urn:btih:BD48373BC882ED5A818983FDA38D3A8854700CF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +523,8 @@ magnet:?xt=urn:btih:BD48373BC882ED5A818983FDA38D3A8854700CF2
 magnet:?xt=urn:btih:F908C81E02F9A246EC70C546F5591A4488998757
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +550,8 @@ magnet:?xt=urn:btih:F908C81E02F9A246EC70C546F5591A4488998757
 magnet:?xt=urn:btih:DB10D76423D9A71033569BB81796FA9884F36D3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +575,8 @@ magnet:?xt=urn:btih:DB10D76423D9A71033569BB81796FA9884F36D3E
 ```bash
 magnet:?xt=urn:btih:C4177DE05D7CF6C4C170B62A806BB3B9126F349A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +602,8 @@ magnet:?xt=urn:btih:C4177DE05D7CF6C4C170B62A806BB3B9126F349A
 magnet:?xt=urn:btih:1E62DDD22A0E93241B04AD1FDFE594027473CD9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +627,8 @@ magnet:?xt=urn:btih:1E62DDD22A0E93241B04AD1FDFE594027473CD9B
 ```bash
 magnet:?xt=urn:btih:01D3939473299A68FA4F10254A5760295D6E4ECD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -661,6 +655,63 @@ Graphics  - набор иллюстраций, подходящих для лю�
 ```bash
 magnet:?xt=urn:btih:BF995088977823CD621FBCB56781C96885AAC76D
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582300   (323571) от 09.10.2022
+
+Bronson - Live Fast Die Hard (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hardcore, Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome on board [00:01:43]
+02. Una canzone per disobbedire [00:03:06]
+03. Roma Tiger Punk (vol.2) [00:02:16]
+04. Tutto quello che ho [00:02:53](   Читать дальше...   )Жанр: Melodic Hardcore, Punk RockПродолжительность: 00:30:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37D475B998750F0986931E5A3EEDD7ABAB9A0D57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073967   (323572) от 21.11.2016
+
+Роберт Сейбер | Приманка для простаков (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все началось с появления в офисе частного сыщика Карла Гуда провинциальной пожилой леди, которая попросила найти ее дочь, уехавшую в город с миллионером – нефтяником. Сыщик начинает поиски и практически сразу же сталкивается с преступниками, которые занимаются рэкетом и убивают всех, кто становится на пути больших денег. Роман «Приманка для простаков» - это что-то (   Читать дальше...   )Жанр: ДетективПродолжительность: 06:16:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D681DD12201F3C3A40DD694242505F265F7CA902
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

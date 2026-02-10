@@ -19,6 +19,8 @@ Little Nightmares III - это новая часть серии, предста�
 magnet:?xt=urn:btih:B297B8C0C1DEE3FD5F829BDCB2D59DAB43FBE8B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Little Nightmares (2025) [Ru/Multi] (Build 19756066/dlc) Repack FitGirl [Enhance
 ```bash
 magnet:?xt=urn:btih:D1C25B1FA0711AC3D56A126A6F485720BD3F46CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Little Nightmares (2025) [Ru/Multi] (Build 19756066/dlc) Repack seleZen [Enhance
 magnet:?xt=urn:btih:4460506B637B0ED50DF88E3BC4C59A1A51FC39CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Little Nightmares (2025) [Ru/Multi] (Build 19756066/dlc) Repack Other s [Enhance
 ```bash
 magnet:?xt=urn:btih:642BAED8AB4B7633EA14F68C3D596898315E8089
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Little Nightmares III - это новая часть серии, предста�
 magnet:?xt=urn:btih:88A64A20745E4107C8FCA95D688B793A8E886099
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Little Nightmares III - это новая часть серии, предста�
 ```bash
 magnet:?xt=urn:btih:CAFB6A5D5474C128EAE0B57C2BA2ED7D665D01BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Yooka-Replaylee - это усовершенствованная версия и�
 magnet:?xt=urn:btih:CC7682F6152F9D6E5D18F7E95516378CA8F93275
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Lost Eidolons: Veil of the Witch (2024) [Ru/Multi] (1.0.6) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:1AE926192FA395AE686490212E6A232B639CED70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Little Nightmares (2025) [Ru/Multi] (Build 19756066) Scene Rune [Enhanced Editio
 magnet:?xt=urn:btih:6C608068F42ACE802060939495441E539226E97E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Little Nightmares III - это новая часть серии, предста�
 ```bash
 magnet:?xt=urn:btih:8C0D2801D88EB9DF47E667D6B099CD1A2D50B030
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Lethal Honor - Order of the Apocalypse (2025) [Multi] (Build 20336899) Scene Run
 magnet:?xt=urn:btih:D6A69769A15D5B213B015D8A5D7112981363CEF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Hyperviolent (2023) [Ru/Multi] (1.0.0.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E6C6F395ED0CBFDD464F90929773746D28C21326
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Dead Silence - Echoes of the Damned (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:A9CA3792F923F5BFE6C3790FD0A667178E86E59A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Slime Rancher 2 (2025) [Ru/Multi] (1.0.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:5B0869FB9B6A59F304CCCEEDA5BB8B576F48A36E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ SPINDLE — это классический приключенческий бо�
 magnet:?xt=urn:btih:DE7759C66696F5B2166DD89495E2B8BA094E0A22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Bye Sweet Carole - это уникальная хоррор-игра, сочет
 ```bash
 magnet:?xt=urn:btih:578E4826F574196CA6E59D6A2219235ACB84CAF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ The Legacy - это кооперативное выживание в жанре 
 magnet:?xt=urn:btih:B48AF4833800FEEC9601253E30A310BDE809B56C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Corporeal (2025) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:77315C49E222354C34F3FF7EA072DC019B065301
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Corporeal (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:5FB7DC79C23E3DEFD9CBF3509CC3C63AB1901F89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Bye Sweet Carole - это уникальная хоррор-игра, сочет
 ```bash
 magnet:?xt=urn:btih:D5C1A3485ACABE70AFCE0319118E99D97547F8FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Baby Steps (2025) [Ru/Multi] (HotFix 2) Repack FitGirl
 magnet:?xt=urn:btih:714DCE0C1839B44A0276F2F5670B5317F44DE3D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ The Legacy - это кооперативное выживание в жанре 
 ```bash
 magnet:?xt=urn:btih:C119B728BBBBCC7AEB8AC1DDA173354A226D980D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Rose of Wind (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:2A377E2F85DF8CBA4180292AD2F1A6EBCDEB8E94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Mind Diver (2025) [Ru/Multi] (1.0.93) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:930CECE3543B42AD084436CA5CF21747B088633F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Keeper (2025) [Ru/Multi] (1.0.0.0) Repack Let'sРlay
 magnet:?xt=urn:btih:AE79B91986AE19F246EE73B4DD7A76C2D37F40EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Keeper (2025) [Ru/Multi] (1.121.2146.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5729A590EB5A82A29F60124EF40A2A609BBD4A92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

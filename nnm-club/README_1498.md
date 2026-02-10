@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:B90ED9F036E34EA99394AF3F3F729115C69E0B6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:B90ED9F036E34EA99394AF3F3F729115C69E0B6D
 ```bash
 magnet:?xt=urn:btih:405F159E13E17E5910619BB14DFD74DAE726959E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.005.26813) Repack Wanterlude
 magnet:?xt=urn:btih:504B5E65F080C2EEAE237EECF1462C80936334B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:504B5E65F080C2EEAE237EECF1462C80936334B2
 magnet:?xt=urn:btih:40D8668E8E60484B1C12AE26F64D43DF487F5B50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Rogue Waters - это тактическая пошаговая игра в ду
 ```bash
 magnet:?xt=urn:btih:BDA355E7D19E57014B4DA05DAFAE022AF03A7BB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:BDA355E7D19E57014B4DA05DAFAE022AF03A7BB5
 magnet:?xt=urn:btih:20F8D78DE52888E8B7D70045DD2F446C92553D5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Stargate: Timekeepers — тактическая игра, в которой в�
 ```bash
 magnet:?xt=urn:btih:A7B2987D3A6DDB999812FAB4F7D3124D8E82FA5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ JetBrains PyCharm Professional – это мощная и многофункци
 magnet:?xt=urn:btih:48D0901484427830FE50191C4D003227E7D1B581
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:48D0901484427830FE50191C4D003227E7D1B581
 ```bash
 magnet:?xt=urn:btih:2B644BAAEDF1B5417C62342F1531BC00BBF5CD65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:2B644BAAEDF1B5417C62342F1531BC00BBF5CD65
 magnet:?xt=urn:btih:A92E14177FC8B87FCB99A3FBE844874E2E321165
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:A92E14177FC8B87FCB99A3FBE844874E2E321165
 ```bash
 magnet:?xt=urn:btih:8FAAC72339832A177700AE973C946EC79FB243C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:8FAAC72339832A177700AE973C946EC79FB243C4
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:8FAAC72339832A177700AE973C946EC79FB243C4
 ```bash
 magnet:?xt=urn:btih:BD8722F6F2DC22D26F20F8647881E99948651BAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:BD8722F6F2DC22D26F20F8647881E99948651BAF
 magnet:?xt=urn:btih:2114A33EAE236F19E4762885B9F7C85AF951B8D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ XYplorer – удобный многовкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:DE2AB9909B85AECB11C072774D66F480BE9DA4FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ The Smoothies - Autumn Nights in Paris (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:C9798FD96B6CE40A3EBA374EEDFDE447DB93FA0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Sarah Vaughan - The Definitive Sarah Vaughan (1954 - 1967) 2002, Verve Records [
 magnet:?xt=urn:btih:0D8DACCA5F8257553847983A8370DED489A73E9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:0D8DACCA5F8257553847983A8370DED489A73E9F
 ```bash
 magnet:?xt=urn:btih:C02AB8DE348FC41AC884E16731FC8C2AA4067E81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ Sarah Vaughan - Live in Berlin (1969) 2016, Jazzline [FLAC|Lossless|tracks + .cu
 magnet:?xt=urn:btih:66DDEDD06F7B9C962326EA7366541CE64E5427E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ Sarah Vaughan - In The Land Of Hi-Fi (1955) 2001, Universal [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:0A2B0288C61CB6C19626DB06AA429D63B4B2FB5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +555,8 @@ Sarah Vaughan - The Singles Sessions (1990) Capitol [FLAC|Lossless|tracks + .cue
 magnet:?xt=urn:btih:4F92085DB7B22DD6A8B6B34EBB4C4F9B0BFB226B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +581,8 @@ PhotoRoom v5.5.2 Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:283C98A8472D76E2DB44F535C49EC0AA49568BB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ magnet:?xt=urn:btih:283C98A8472D76E2DB44F535C49EC0AA49568BB6
 ```bash
 magnet:?xt=urn:btih:4ECE1E6A1F4CBE858845D057EEA5704C923FB9E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +636,8 @@ Sarah Vaughan - The Many Moods Of Sarah Vaughan (1961) 1998, Ember Records [FLAC
 magnet:?xt=urn:btih:4611E7048B170DFB2FC0EBB5AD6DA58E858A27BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ magnet:?xt=urn:btih:4611E7048B170DFB2FC0EBB5AD6DA58E858A27BD
 ```bash
 magnet:?xt=urn:btih:1A67512E3DFCEE1B7C5153B0D9C7F19B6D5C581F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +690,8 @@ Mad Alice Productions - Latin Electro Swing (2024) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:1171CD4F8E784F34FAEBB90BE177D6C0B661549B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

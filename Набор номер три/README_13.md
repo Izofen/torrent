@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Superjet совершил первый длительный полет на ро
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Superjet совершил первый длительный полет на ро
 magnet:?xt=urn:btih:708E438437A907376C2475719B1450B2FA6D7051
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:708E438437A907376C2475719B1450B2FA6D7051
 magnet:?xt=urn:btih:AC9C51902BF987FD0BC41182156F754AEA7BAFBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:AC9C51902BF987FD0BC41182156F754AEA7BAFBE
 ```bash
 magnet:?xt=urn:btih:51185AA2BECA66EA3F476EE45A8708171363950B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:51185AA2BECA66EA3F476EE45A8708171363950B
 magnet:?xt=urn:btih:D357A15AFF710BA3428EF73E4FEE013FB1B581DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:D357A15AFF710BA3428EF73E4FEE013FB1B581DD
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Everspace 2 (2021) [Ru/Multi] (1.4.48188 HotFix 3/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:EB6E85CDE9B8268BEAB2D726BAA15BE48B0153E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Ore wa Seikan Kokka no Akutoku Ryoushu! | Я злой лорд межгалак�
 magnet:?xt=urn:btih:6179713C8F47A258BD6C22F74A396CFC39CC83B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:6179713C8F47A258BD6C22F74A396CFC39CC83B0
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:6179713C8F47A258BD6C22F74A396CFC39CC83B0
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:6179713C8F47A258BD6C22F74A396CFC39CC83B0
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:6179713C8F47A258BD6C22F74A396CFC39CC83B0
 magnet:?xt=urn:btih:C387B0463C33B5F1BA15C4DB898E8AD026D454A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:C387B0463C33B5F1BA15C4DB898E8AD026D454A5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Saikyou no Ousama, Nidome no Jinsei wa Nani o Suru? / The Beginning After the En
 magnet:?xt=urn:btih:0658C7E89BB1D0F22883D823E98EECDA24E9EF32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:0658C7E89BB1D0F22883D823E98EECDA24E9EF32
 magnet:?xt=urn:btih:65C4655F4FC35A3D1338F60F90C51C01A6B12A4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:65C4655F4FC35A3D1338F60F90C51C01A6B12A4D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:65C4655F4FC35A3D1338F60F90C51C01A6B12A4D
 magnet:?xt=urn:btih:60D21F2855958FD93C2AEA4C1C96FE1B28B1A80E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:60D21F2855958FD93C2AEA4C1C96FE1B28B1A80E
 ```bash
 magnet:?xt=urn:btih:E7F5816D802CD93F7193F00610332580E7017AA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:E7F5816D802CD93F7193F00610332580E7017AA8
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Diablo 2 Resurrected - это переиздание Diablo 2 для совре�
 ```bash
 magnet:?xt=urn:btih:2213CFB1A862810D94AE8A6F69F9682ABDFA679E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ Windows 11 24H2 (26100.4351) x64 by Bruxer [Ru]
 magnet:?xt=urn:btih:A7050411756F6D053F25C3728A1AA68B8E213584
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:A7050411756F6D053F25C3728A1AA68B8E213584
 ```bash
 magnet:?xt=urn:btih:FF20C60789D8F8349B6BF8C29C87D40D37A1F47E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ Windows® XP Sp3 XTreme™ New Year Edition v30.12.9 (Декабрь 2009 г.) +
 magnet:?xt=urn:btih:7B893A0A26B3C2A31E6F865E8AAC69FBE94020A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:7B893A0A26B3C2A31E6F865E8AAC69FBE94020A7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

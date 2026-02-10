@@ -19,6 +19,8 @@ ConceptDraw DIAGRAM 17 v.17.0.0.468 [En]
 magnet:?xt=urn:btih:7B3A4BDD7A264E6DDA88EF5A103E8A4621540A6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ ConceptDraw PROJECT 14 v.14.0.0.302 [En]
 magnet:?xt=urn:btih:C22D0095FD9BAE8F3421BA69047E85DC6964D5AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ NetWorker - это приложение, которое удобно отобр�
 ```bash
 magnet:?xt=urn:btih:0018FBD66129430DBE45C4785905D515E7B1C361
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ PDF-компрессор предназначен для сокращения р
 magnet:?xt=urn:btih:ACAE0AC473A37918A09EDDE53709C208B1FDF63D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Color Wheel 8.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:F0D0A099ED2996DB0B68D14D70660F4223B74DFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Web Confidential for Mac 5.4.1 U2B [Multi]
 magnet:?xt=urn:btih:18A090048D008497DCB16A27214F99CB57F099FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Deliver — это комплексное решение для отправки
 ```bash
 magnet:?xt=urn:btih:1B55C370401D49E2D6DEDEF099BD00FC53DF41BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Jump Desktop (RDP & VNC) - программа, которая делает до�
 magnet:?xt=urn:btih:4DB5AB796CDFA516C7AFF87E19800A94A8792BF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Adobe Animate, пришедший на смену Flash Professional - это м
 ```bash
 magnet:?xt=urn:btih:B0E3F657084936605C8CADCA9AA27F7B5C6B149C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Character Animator позволяет анимировать двухмерны�
 magnet:?xt=urn:btih:70B3A84773FC6585D07AFEEF5929F18ADE818A8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ DoYourData Start Menu Pro 5.0 [En]
 magnet:?xt=urn:btih:5EFC01978DA6F436FBC14D9B2F58DC8538DA5139
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Apple Remote Desktop – лучший инструмент для управле
 ```bash
 magnet:?xt=urn:btih:1A93ABDCEF2E9ABC7703EA4FAD98CCF2DE236EA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ MacX Video Converter Pro — приложение, которое автомат
 magnet:?xt=urn:btih:FA39C69DF466132B666CDF7C7CF4C53FC26C20B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Statistica - подробный монитор системных ресурсо
 ```bash
 magnet:?xt=urn:btih:8A8E4385ACDC63651AAEFB6EAC1909E31FD37334
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ iStatistica Pro - подробный монитор системных ресу�
 magnet:?xt=urn:btih:DE48A2D518C40F86791A51FAFBFB78742ED26AC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Disk Clean Pro - это приложение с высоким рейтинго�
 ```bash
 magnet:?xt=urn:btih:49438C5BC8CB157D649B356251E57E41336F8A80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Donemax DMmenu 1.8 [En]
 magnet:?xt=urn:btih:D0985A948FBD4F07628FBCDA004AF65E8FAE4C56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Permute - очень простой видео конвертер с миним�
 ```bash
 magnet:?xt=urn:btih:BDE065D981BA01C323001CF0F16AF7165D32E41D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Doxillion - один из самых стабильных, простых в и�
 magnet:?xt=urn:btih:548C7E9F55B9460368A76259C846BFEE64BAC485
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Adobe Audition 2024 v.24.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:A149EC6614BD357EB6F76741227AC48B2F8E2FD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ ACDSee Photo Studio 9 v.9.3 [En]
 ```bash
 magnet:?xt=urn:btih:AF622E380B3AA95ABB53EACB852788876E64A63E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ YouTube Downloader - удобная программа-загрузчик для
 magnet:?xt=urn:btih:D2D9CBC164BDD660550700F329CB8FDC7B11EE88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ Renamer - это приложение для пакетного переимен
 magnet:?xt=urn:btih:2F990487A2D50E0421AA8BDA6E1847851A993FA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ WiFi Radar Pro позволяет контролировать ваши лока
 ```bash
 magnet:?xt=urn:btih:EAB655A6B31EE43D1DF995F0F23B166A1E7F1747
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ Softorino YouTube Converter — почти YouTube Red, только беспл�
 magnet:?xt=urn:btih:099DF569737ADF77356F7B35343D228D43EDDD73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ DxO FilmPack — это подключаемый модуль для Adobe Photo
 ```bash
 magnet:?xt=urn:btih:FB0A5B8B34B9366C20F5A4C2708A88912582466A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

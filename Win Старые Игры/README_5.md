@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:CCDAAB868A51E8E07EBFAE497ECD1E80F97F8C2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ FlatOut 2 (2006) [Ru/Multi] (1.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E20D83D132EA7A894292FB0FA681A9C27C1A02F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Street Racing Syndicate - аркадная гонка, включающая св
 magnet:?xt=urn:btih:13E278397866AFD07ABFE18324F0EF9F91A7BD14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ FlatOut (2005) [Ru/Multi] (1.01) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:915F7C450D78154FA8A86C10A39DF5D086FB24F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Agatha Christie: Evil Under the Sun / Агата Кристи: Зло под С�
 magnet:?xt=urn:btih:AA6B2B6BDBDA60E4F8CD7EF038F992C8BD203446
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Manhunt (2004) [Ru] (1.1) Repack R.G. ReCoding
 ```bash
 magnet:?xt=urn:btih:110A93E9FA91B119CDF9A7AC42AF126586E97BB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Robbo Millennium - игра-пазл, события которой начина
 magnet:?xt=urn:btih:DD5F4C53D0E49DE16630E393F8B5D5DD88E5342F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The I of the Dragon / Глаз дракона (2002) [Multi] (1.02) License GOG
 ```bash
 magnet:?xt=urn:btih:F8078DCE1DF72D0B9BAD6837179FEF6E26B2C47B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Freedom Force (2002) [En] (1.3) License GOG
 magnet:?xt=urn:btih:819EE5EB1E247D3DEC3246B5056CD35646D15DC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Freedom Force vs. the Third Reich – изометрическое ролево�
 ```bash
 magnet:?xt=urn:btih:7C82D9029B3C5FAA7E2D1D26456770DD8EBBCAF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Startopia (2001) [Ru/En] (1.0) Unofficial
 magnet:?xt=urn:btih:FA249B233B1009A839032747A8031B913CBA59C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Tension / Тургор (2008) [Ru] (1.01) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:EC74F2865B6B63A5200868626A269E7C96E8DE41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:EC74F2865B6B63A5200868626A269E7C96E8DE41
 magnet:?xt=urn:btih:2E406B4431CD1D36FDEB9D68349E82B923E87CFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ TimeShift (2007) [Ru/Multi] (1.02) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:A83F403B2FDBF5F6F6BF2247B88606DC8A0D684E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Red Faction (2001) [Ru/En] (1.21) Repack dixen18
 magnet:?xt=urn:btih:BBF3511159AAF7942B944094CACF6B94AADA1E01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Alpha Prime (2007) [Ru/En] (1.3) Repack 1nomok
 ```bash
 magnet:?xt=urn:btih:E38979316B5A5EF4A6657341D481513C68DFDB29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Wolfenstein 3D (1992-2020) [En] (2.01.2020) Repack/Mod 1nomok [Beyond the Grave:
 magnet:?xt=urn:btih:C71B4BE39AF85B1135F6F6D4A2809929016D0A19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Warcraft III - культовая компьютерная игра в жанр�
 ```bash
 magnet:?xt=urn:btih:EE39E3FE168B80637DE164B6859B840CBABBC496
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Warcraft II: Battle.net Edition / Военное ремесло 2: Боевое 
 magnet:?xt=urn:btih:963B84716CD1AE808EC717A34BB7B8847397FF9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Legend of Ahssun / Легенда об Ахссуне (2018) [Ru/Multi] (1.2) Mo
 ```bash
 magnet:?xt=urn:btih:93C2F4E250355481565BC6F0EAED0F794EC16A0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Xeno Operations Legacy (2024) [Ru/En] (0.97.06) Repack/Mod AndyFox
 magnet:?xt=urn:btih:2463F004C7A0C5442754CCD0D8C7B38B2604A68D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ X-Com: From the Ashes (2022) [Ru/En] (0.1.0.3) Repack/Mod AndyFox
 ```bash
 magnet:?xt=urn:btih:3541E1739DA9884E3EADAD54F6197A5B4B6FBE9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Medieval II (2): Total War (2006) [Ru/Multi] (1.52/dlc) Scene PROPHET
 magnet:?xt=urn:btih:FE8DE3A917720E68E087BEFAA1B23BE643404059
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ XPiratez - Labyrinthus Noctis (2024) [Ru/En] (N8) Repack/Mod AndyFox
 ```bash
 magnet:?xt=urn:btih:92B1772CDA82379A0F5B1BB4AF777DACBFD4A167
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ XCOM: Area 51 (2016) [Ru/En] (0.971) Repack/Mod AndyFox
 magnet:?xt=urn:btih:9EF21135CBAD7AA409DF444D7B353FA85979B7CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Darklight conflict (1997) [Ru] (1.0) Repack Pilotus
 ```bash
 magnet:?xt=urn:btih:23FD3DBE9DA042158B8A820696E0EB8908C90FA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

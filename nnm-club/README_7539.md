@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C354E2CB28FCFD0E2296B9AA38A32B9C14532748
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Hydra Vein - Unlamented (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:89CA4BA194B84CCACD6624507B576E7427DD2871
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Principium - Principium (2020) [AAC|~346 Kbps] <Metal>
 magnet:?xt=urn:btih:05E43B99FA3E536185F61C4095C6C430F1AAF5F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:05E43B99FA3E536185F61C4095C6C430F1AAF5F7
 magnet:?xt=urn:btih:A95E825D76A2BA7C28BBE8E071EDD5E7469608E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:A95E825D76A2BA7C28BBE8E071EDD5E7469608E3
 ```bash
 magnet:?xt=urn:btih:5ACF66DA26C11D500F7AB4ADE6729323398E6554
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ WRC. Чемпионат мира по ралли. Обзоры / World Rally Cha
 magnet:?xt=urn:btih:8E4B41788BF01130FE9BEEE569DA62A36BB06D33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:8E4B41788BF01130FE9BEEE569DA62A36BB06D33
 magnet:?xt=urn:btih:AA5564F0AC9FB51348ACDEA4E681E852641B9B85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:AA5564F0AC9FB51348ACDEA4E681E852641B9B85
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ Disharmonic Orchestra - Fear of Angst (2016) Limited edition [FLAC|Lossless|imag
 magnet:?xt=urn:btih:A7998AF87ED4443D0B5B62894E7684E701666391
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:A7998AF87ED4443D0B5B62894E7684E701666391
 ```bash
 magnet:?xt=urn:btih:7AB57C9B2BC1904D72FE53A7E96848290D04E7B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:7AB57C9B2BC1904D72FE53A7E96848290D04E7B5
 magnet:?xt=urn:btih:0C16FB27544F31DFB40EB0AE9603AD9F73549A17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:0C16FB27544F31DFB40EB0AE9603AD9F73549A17
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:0C16FB27544F31DFB40EB0AE9603AD9F73549A17
 ```bash
 magnet:?xt=urn:btih:AD9AD8CE908134AACAEC1D615A6837A96B14B27C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ Bilmuri - GOBLIN HOURS (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Post-H
 magnet:?xt=urn:btih:D632A3B94F8AAD8B21A14596218D24F9D8F2A200
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:D632A3B94F8AAD8B21A14596218D24F9D8F2A200
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:D632A3B94F8AAD8B21A14596218D24F9D8F2A200
 magnet:?xt=urn:btih:83C9F30D7D5E36F04FF79DFB246C0233E9780377
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ Autorun Organizer - простое в использовании приложе�
 ```bash
 magnet:?xt=urn:btih:A4BC84C25BEF7C3FAD8FA64F76A9B76937D8B9A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:A4BC84C25BEF7C3FAD8FA64F76A9B76937D8B9A8
 magnet:?xt=urn:btih:4461189B36A483B8A7AC750120D09FC24AB89861
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:4461189B36A483B8A7AC750120D09FC24AB89861
 ```bash
 magnet:?xt=urn:btih:89A2D0F3CD59533D9F4F77735F9C5A8DD08F2F10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +530,8 @@ Negative Concept - Unwelcome (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, Sludge,
 magnet:?xt=urn:btih:BF3AF890633A1EEA51193A707ED98A23EC73ADBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ RMS — профессиональный продукт для удаленно�
 ```bash
 magnet:?xt=urn:btih:7BE85A75C75E03D5F22EC37DB5194F08488B3F20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +585,8 @@ Larry Coryell - Coryell (1969) 2016, Real Gone Music [FLAC|Lossless|tracks + .cu
 magnet:?xt=urn:btih:0B337278C6813F6A8E213CACB5C513429B841F03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ Jaksta Music Recorder (   Читать дальше...   )Тип издания
 magnet:?xt=urn:btih:927FB9B4A981C1B650F4CA326727FEAB971B6608
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ magnet:?xt=urn:btih:927FB9B4A981C1B650F4CA326727FEAB971B6608
 ```bash
 magnet:?xt=urn:btih:4CECC0E182966507DF8B66B57B907E41C44D1776
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +669,8 @@ magnet:?xt=urn:btih:4CECC0E182966507DF8B66B57B907E41C44D1776
 magnet:?xt=urn:btih:E73B0EBEBA21358E14928FD92A0A2BFD8AC703B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ Coure - Inversum Nema (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, 
 ```bash
 magnet:?xt=urn:btih:959C38E1FC6DC2A2BE39E669B2BEFEE5D53E7E8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

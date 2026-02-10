@@ -28,6 +28,8 @@ VA - Хитовый Рай Версия 50/50 (2012) [MP3|256 кб/с]<Pop,Dance
 magnet:?xt=urn:btih:0137EC1169C906B160A76A80D10D625838FFBA57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -61,6 +63,8 @@ Marc Streitenfeld & Harry Gregson-Williams - Prometheus (2012) [MP3|320 кб/с]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -84,6 +88,8 @@ Marc Streitenfeld & Harry Gregson-Williams - Prometheus (2012) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:9B89ECCD48E1358A1EB77802FED6A84D206E77B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +115,8 @@ magnet:?xt=urn:btih:9B89ECCD48E1358A1EB77802FED6A84D206E77B4
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -132,6 +140,8 @@ magnet:?xt=urn:btih:9B89ECCD48E1358A1EB77802FED6A84D206E77B4
 ```bash
 magnet:?xt=urn:btih:E47CFE60BC573489B2B534B57501A835CD8FB0A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +167,8 @@ magnet:?xt=urn:btih:E47CFE60BC573489B2B534B57501A835CD8FB0A7
 magnet:?xt=urn:btih:4D0B3618D8DC0CC05801BE90059D7ADD9CD8AA00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ VA - Инструментальная музыка (2012) vol. № 39 [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:9E7E8C8ABDC809CD1714E49AD76FB7B379181BFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +228,8 @@ CD1: (00:57:44)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +254,8 @@ VA - Инструментальная музыка (2012) vol. № 41 [MP3|320 �
 magnet:?xt=urn:btih:60CC9B16D137A91B8543EE688FC071C5ED79405F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ magnet:?xt=urn:btih:60CC9B16D137A91B8543EE688FC071C5ED79405F
 ```bash
 magnet:?xt=urn:btih:6CE414AB374B8BEC3105BEF6351258EC16CDBA37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +314,8 @@ Noise Unit - 6 albums (1989-2005) [FLAC|Lossless] <Electro Industrial, Dark Elec
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Noise Unit - 6 albums (1989-2005) [FLAC|Lossless] <Electro Industrial, Dark Elec
 magnet:?xt=urn:btih:ADAA4C672BBE07AB3320ABCB06368CF33F0DBF9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +365,8 @@ magnet:?xt=urn:btih:ADAA4C672BBE07AB3320ABCB06368CF33F0DBF9E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +398,8 @@ Concerto No. 4 in D minor
 ```bash
 magnet:?xt=urn:btih:C989301D0614FCB42C7A4FDF5EE8444A902C0301
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +434,8 @@ Mike Batt With The London Philharmonic Orchestra - OST "Caravans"(Soundtracks ) 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +459,8 @@ VA - Инструментальная музыка (2012) vol. № 43 [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:757E3998B0CA4C5ADF51E6EC47B9F7AB0E4AEB77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ magnet:?xt=urn:btih:757E3998B0CA4C5ADF51E6EC47B9F7AB0E4AEB77
 magnet:?xt=urn:btih:077DBFAA1D85FC33B2E015C4FC48D86DA803E111
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +511,8 @@ Inna. Caliente (2012) [H.264/1080p] HDTVRip
 ```bash
 magnet:?xt=urn:btih:8AC07405FD22FD69062A98FA3DA9847CEA3825FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +540,8 @@ magnet:?xt=urn:btih:8AC07405FD22FD69062A98FA3DA9847CEA3825FF
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +567,8 @@ magnet:?xt=urn:btih:8AC07405FD22FD69062A98FA3DA9847CEA3825FF
 magnet:?xt=urn:btih:132507C8178E5B5811872E6FC67B58F1105FDBBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +592,8 @@ magnet:?xt=urn:btih:132507C8178E5B5811872E6FC67B58F1105FDBBD
 ```bash
 magnet:?xt=urn:btih:985BD6EE13AF19885D58E1D87B3BE02D8AD1871A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +628,8 @@ John 5 - God Told Me To (2012) [MP3|320 кб/с]<Alternative Metal / Instrumenta
 magnet:?xt=urn:btih:E841DC9ACA7BECB400CCB6C1A94CE1EF58185D92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +653,8 @@ VA - Инструментальная музыка (2012) vol. № 42 [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:3772E7E2DF9F1ADE29CBDCFEEDA2E84B5259AF00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +681,8 @@ magnet:?xt=urn:btih:3772E7E2DF9F1ADE29CBDCFEEDA2E84B5259AF00
 magnet:?xt=urn:btih:5A6634B4B2772871FABC9BE91FEBFAFDC9159166
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +707,8 @@ magnet:?xt=urn:btih:5A6634B4B2772871FABC9BE91FEBFAFDC9159166
 magnet:?xt=urn:btih:E8AB881C4282B19599270FEC6238D2C87B07CBE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -682,6 +732,8 @@ Dolphin является открытым исходным кодом Nintendo G
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

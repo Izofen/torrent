@@ -22,6 +22,8 @@ Blo.Torch - Blo.Torch (1999) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 magnet:?xt=urn:btih:7E0B14108643FB65D75A0C50051330F6AA8AEA1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:7E0B14108643FB65D75A0C50051330F6AA8AEA1F
 ```bash
 magnet:?xt=urn:btih:C41F817691CD0BB9CF1DE082D8837678B2DFBCE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:C41F817691CD0BB9CF1DE082D8837678B2DFBCE5
 magnet:?xt=urn:btih:7A77AA88026ACABCE0C05B6668B103C1558D3834
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ File Juicer может быть использован (   Читать дал�
 ```bash
 magnet:?xt=urn:btih:3D7628A31BF592CF2498BF64F1716A65DD568B31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ Note Studio 2.1 [En]
 magnet:?xt=urn:btih:95D9676ADCB0EAA80363EC4877D9392192C3CB0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:95D9676ADCB0EAA80363EC4877D9392192C3CB0D
 magnet:?xt=urn:btih:4E988EF3F70B6CD6BFF12D2AB4DD77D13DB247FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:4E988EF3F70B6CD6BFF12D2AB4DD77D13DB247FE
 ```bash
 magnet:?xt=urn:btih:D4E958CC82F7935E5C77D4EC39EBDAEFBEFA50BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ John Zorn - Virtue (2020) [MP3|320 Kbps] <Avant-garde Jazz>
 magnet:?xt=urn:btih:3018130893C305FE2EFDC70975BB3BDC9C0BEB78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ VA - Electronic Moon (The Chill Out Journey), Vol. 2 (2021) [AAC|~321 Kbps] <Lou
 magnet:?xt=urn:btih:F501CCF91F4F05792C9DC41E09C1D69805EFEA9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:F501CCF91F4F05792C9DC41E09C1D69805EFEA9F
 ```bash
 magnet:?xt=urn:btih:B2D396B3331DB7CFF0C367ED244D322E5A28CAD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:B2D396B3331DB7CFF0C367ED244D322E5A28CAD8
 magnet:?xt=urn:btih:191E26C942724043D563F0F48711D3E8E22A6867
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ Visual Studio Code – визуальный редактор кода от ко�
 ```bash
 magnet:?xt=urn:btih:05A0DC6C4B2EB567CF3155DD59C1921FDA891C32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ Piezo не требует никаких настроек, достаточно 
 magnet:?xt=urn:btih:5B9B8F33EB99B2920EF5CFDB9B61135DCD03BCE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:5B9B8F33EB99B2920EF5CFDB9B61135DCD03BCE5
 ```bash
 magnet:?xt=urn:btih:30724763D9016DB7B401B20115FA7E383111A768
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:30724763D9016DB7B401B20115FA7E383111A768
 magnet:?xt=urn:btih:C1E1F174FE451CE017407ADE564C182916DEB849
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:C1E1F174FE451CE017407ADE564C182916DEB849
 ```bash
 magnet:?xt=urn:btih:1BBE5E855E48B75B8AC393239B823A9CBB438C9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +454,8 @@ SnapMotion имеет два режима:
 magnet:?xt=urn:btih:30DD3600304B7F2F63826D0E35F325E3E3D563BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:30DD3600304B7F2F63826D0E35F325E3E3D563BB
 ```bash
 magnet:?xt=urn:btih:E865BEF236D0EDB7914AB490227C204F4B930167
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ Affinity Publisher Beta 1.10.5.1224 [Multi/Ru]
 magnet:?xt=urn:btih:095C42CC443A32C02FCD42E879BC98C311C5A002
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:095C42CC443A32C02FCD42E879BC98C311C5A002
 ```bash
 magnet:?xt=urn:btih:DE7C1AD5201D86E26FDDD0485027870BE602757D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +559,8 @@ Bandicam позволяет записать определенную облас
 magnet:?xt=urn:btih:4E5CB009605913B34AEC85DF63EB23275EB6575A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ Icecream Ebook Reader - программа для чтения электрон�
 ```bash
 magnet:?xt=urn:btih:E604C5AD10C87E9C350F1E6F752AE1C036DD3186
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +611,8 @@ magnet:?xt=urn:btih:E604C5AD10C87E9C350F1E6F752AE1C036DD3186
 magnet:?xt=urn:btih:EAF4071B9F101B5637F8B17E1620E9BBBF7BC02E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ Wondershare UniConverter - простой в использовании виде
 magnet:?xt=urn:btih:2531515ABED26F6527F32FBD1E6B4D9321093B78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:2531515ABED26F6527F32FBD1E6B4D9321093B78
 ```bash
 magnet:?xt=urn:btih:C2A2C6D15706B1685DE180F1849ACEEE3C192451
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +691,8 @@ Times Of Grace - The Hymn Of A Broken Man (2011) [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:5E9E9FAA0B6353B18E41E3112A9224372DE5A440
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

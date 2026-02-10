@@ -19,6 +19,8 @@ Jellify – приложение которое может накладыват�
 magnet:?xt=urn:btih:1743FF752E449E1BB62F71E5D23F0FB67E2FFE21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:1743FF752E449E1BB62F71E5D23F0FB67E2FFE21
 ```bash
 magnet:?xt=urn:btih:6D9ED92AB09764717759E5644292FBAF018392D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:6D9ED92AB09764717759E5644292FBAF018392D2
 magnet:?xt=urn:btih:DFDA334B6502ECA3091297BCECEAFB15F9B47F76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:DFDA334B6502ECA3091297BCECEAFB15F9B47F76
 ```bash
 magnet:?xt=urn:btih:82990BA771C3CEA18F3FE4D1747DD5396C92F016
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:82990BA771C3CEA18F3FE4D1747DD5396C92F016
 magnet:?xt=urn:btih:0542AF9EBFCF35563B81E24063CDC3977CD923A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Compressor – простой и мощный инструмент для сжа
 ```bash
 magnet:?xt=urn:btih:B1A618C647F82846B8C92A53A3361AA0A8D1CFEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Beyond Compare – мощная и одна из лучших программ �
 magnet:?xt=urn:btih:04BC83CCF37A8B018724E319978CBFB996B0E0D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Saint Kotar - это психологический хоррор-квест в �
 ```bash
 magnet:?xt=urn:btih:E4172F83F13089BE38A05B382D4C14FD9BFDF922
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ BluffTitler - программа для создания красивых тек
 magnet:?xt=urn:btih:841A665ACDF3A6FEED38323B3071F0D5A2B60150
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Frolomuse - бесплатный музыкальный плеер, с мощн�
 ```bash
 magnet:?xt=urn:btih:24606E141ED4CE42DFAE704D2BC17493FF0F760B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:24606E141ED4CE42DFAE704D2BC17493FF0F760B
 magnet:?xt=urn:btih:EA004AEF883DA70BE23C0AFA9560DA6634D8A6E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:EA004AEF883DA70BE23C0AFA9560DA6634D8A6E2
 ```bash
 magnet:?xt=urn:btih:5C3A61B05D27C3D83B50E9CC14BF9953E6A38A5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ ByClick Downloader (бывший YouTube By Click) - отличный и удо�
 magnet:?xt=urn:btih:7CFBE8515D09C4AED572E1D39A75B71179512E64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:7CFBE8515D09C4AED572E1D39A75B71179512E64
 ```bash
 magnet:?xt=urn:btih:9BF2292279447D706F139A8C45A8F8F0837B1687
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:9BF2292279447D706F139A8C45A8F8F0837B1687
 magnet:?xt=urn:btih:300C25890A5E009AFA0B7CA836B36AE906F0C999
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ magnet:?xt=urn:btih:300C25890A5E009AFA0B7CA836B36AE906F0C999
 ```bash
 magnet:?xt=urn:btih:52565854FDA951B4E12D0787066AF5D7129EEFF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ The Dark Side Of The Moon - Metamorphosis (2023) [FLAC|Lossless|image + .cue] <S
 magnet:?xt=urn:btih:2EAD29FF7AAAFF13E47D91FD1B7C68E4C180191B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:2EAD29FF7AAAFF13E47D91FD1B7C68E4C180191B
 ```bash
 magnet:?xt=urn:btih:91EEC510D1B4086E4C2D6A1A630D459A11DD285B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ Joe Cocker - Stingray (1976) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock, Blues>
 magnet:?xt=urn:btih:1919D2AF40DABE311B76CD6A381C1F510DEC21D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ OOMPH! - Richter und Henker (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Met
 magnet:?xt=urn:btih:C05C8266C58730888316E3F922FAE51CEB2CB3A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:C05C8266C58730888316E3F922FAE51CEB2CB3A8
 ```bash
 magnet:?xt=urn:btih:8EDF3AA911AA87017FDBD95340219973A55F73C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ Mirillis Action! 4.37.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:EBF738B86B130DD9C75B9D0D41060A1A36311395
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:EBF738B86B130DD9C75B9D0D41060A1A36311395
 ```bash
 magnet:?xt=urn:btih:B4A056B19804265F0C109DB2E513F617802084DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ Windows 11 Manager - это универсальная утилита специ
 magnet:?xt=urn:btih:99C36758E3231B1A9024DC86F8F7DE740C0C202D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:99C36758E3231B1A9024DC86F8F7DE740C0C202D
 magnet:?xt=urn:btih:8C828854F65AFCFA974AA28F9820A142B5EBBF13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Ubisoft Massive | Артбук по играм Tom Clancy's The Division / The W
 ```bash
 magnet:?xt=urn:btih:30FC5FA59D3DE3250DEF3B886AA45BA59B4A18DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

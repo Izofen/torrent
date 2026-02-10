@@ -1,3 +1,29 @@
+###  Публикация: 1297299   (604741) от 21.04.2019
+
+Сергей Павловский | Коготь химеры (S.T.A.L.K.E.R.) (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604741.jpg" />
+</div>
+
+
+###  Подробнее
+
+После чернобыльской катастрофы прошло более двух десятилетий. За это время Зона превратилась в особый мир, кишащий мутантами. Сталкер — расхититель и враг Зоны — знает: к врагам она беспощадна! Сталкер Док потерял много крови и понимает, что ему конец: его ждет смерть в логове химеры. Но вместо того, чтобы тут же вонзить в жертву свои когти, гигантский монстр почему-то (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 11:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF5DAE9E9013CECFC631FD58067C381DA8523A2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297116   (604745) от 21.04.2019
 
 Сергей Недоруб | Личность клиента [S.T.A.L.K.E.R.] (2019) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:21FB659F48A96714B472411DBA1749E3E368AF1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:21FB659F48A96714B472411DBA1749E3E368AF1E
 ```bash
 magnet:?xt=urn:btih:F5CDEDA1A79925C55303650866193A83FF1E13D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:F5CDEDA1A79925C55303650866193A83FF1E13D7
 magnet:?xt=urn:btih:89D604BBA8587FC9FAC9C242E45D4769FA40DB3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:89D604BBA8587FC9FAC9C242E45D4769FA40DB3B
 magnet:?xt=urn:btih:C80384E5022DB3BB163DACEDA6BF5D4C5E51C627
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:C80384E5022DB3BB163DACEDA6BF5D4C5E51C627
 ```bash
 magnet:?xt=urn:btih:A327CC692B637972F27FCE0558B6DA47C340B3D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:A327CC692B637972F27FCE0558B6DA47C340B3D4
 magnet:?xt=urn:btih:3831078A89DBE81709A05F33BF46D1D39E31CD87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:3831078A89DBE81709A05F33BF46D1D39E31CD87
 magnet:?xt=urn:btih:E157416A34DD805308586E9ACD1CC0BD85DE705C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:E157416A34DD805308586E9ACD1CC0BD85DE705C
 ```bash
 magnet:?xt=urn:btih:73866FB8E9A70109A71815667BDF381CDD4666D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:73866FB8E9A70109A71815667BDF381CDD4666D1
 magnet:?xt=urn:btih:482A80E72DF1976E07B7C9CCAFE833046125F10F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:482A80E72DF1976E07B7C9CCAFE833046125F10F
 ```bash
 magnet:?xt=urn:btih:90428277F3EE0377D0F5623BEC4C708301F8E12A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:90428277F3EE0377D0F5623BEC4C708301F8E12A
 magnet:?xt=urn:btih:2458BC490D0099A7AA31946AE5367BC366F6F3B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:2458BC490D0099A7AA31946AE5367BC366F6F3B2
 magnet:?xt=urn:btih:1309162DF4A831DD14D7F8BC2C2EF13355FB8DAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:1309162DF4A831DD14D7F8BC2C2EF13355FB8DAA
 ```bash
 magnet:?xt=urn:btih:5D070D2F917E8067F89B23D40A3E7868589F4359
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:5D070D2F917E8067F89B23D40A3E7868589F4359
 magnet:?xt=urn:btih:98AC7DBF7C3B0CBB485FFEC8375056EC25861315
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:98AC7DBF7C3B0CBB485FFEC8375056EC25861315
 magnet:?xt=urn:btih:9A06C9CCBE47A0DB98F2C7B9A1EE94DF829C310D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:9A06C9CCBE47A0DB98F2C7B9A1EE94DF829C310D
 ```bash
 magnet:?xt=urn:btih:B91A899B8A959323C0100B6384FBA819D0ACBF44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:B91A899B8A959323C0100B6384FBA819D0ACBF44
 magnet:?xt=urn:btih:BBEE87EEADC9CDCA325D179528209C62727E4290
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:BBEE87EEADC9CDCA325D179528209C62727E4290
 magnet:?xt=urn:btih:E18EC73D28545972073BDD7C566C2135E58760C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:E18EC73D28545972073BDD7C566C2135E58760C3
 ```bash
 magnet:?xt=urn:btih:C21831AEDC97E9623467F7286EFDE1D29A74F21A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:C21831AEDC97E9623467F7286EFDE1D29A74F21A
 magnet:?xt=urn:btih:BE0D5A96535ED76C90DF68DDFE1C778737E7768D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:BE0D5A96535ED76C90DF68DDFE1C778737E7768D
 ```bash
 magnet:?xt=urn:btih:194A7834D09A19B4E84E4F911A59672B8DD07C07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +598,8 @@ magnet:?xt=urn:btih:194A7834D09A19B4E84E4F911A59672B8DD07C07
 magnet:?xt=urn:btih:949827C1406AC2998028773B9B19BDF0F5F35F7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:949827C1406AC2998028773B9B19BDF0F5F35F7F
 magnet:?xt=urn:btih:298004703B7887BB59893B93D074E0526B74A57C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:298004703B7887BB59893B93D074E0526B74A57C
 ```bash
 magnet:?xt=urn:btih:EA973D0F919CB411C753C442C4EA85980505A081
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,29 +677,7 @@ magnet:?xt=urn:btih:EA973D0F919CB411C753C442C4EA85980505A081
 magnet:?xt=urn:btih:F8B4057B4B4EE96FD66A46D30717BDAFB0828C24
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037745   (608239) от 27.07.2016
-
-Роберт Уилсон | Спин (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608239.jpg" />
-</div>
-
-
-###  Подробнее
-
-В романе «Спин» рассказывается о жизни врача Тайлера Дюпре и его непростых отношениях со своими друзьями, братом и сестрой Джейсоном и Дианой Лоутонами. Вся его жизнь проходит на фоне колоссального события, получившего имя Спин, изменившего всю жизнь человечества. Когда Тайлеру было 12 лет, Землю окружил загадочный барьер. После появления барьера с орбиты на землю (   Читать дальше...   )Жанр: Научная фантастикаПродолжительность: 20:18:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5FBF8CAA0396DBF93DF13B1E600262C6F144B37
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

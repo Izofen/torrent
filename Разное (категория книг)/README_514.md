@@ -1,3 +1,32 @@
+###  Публикация: 1211191   (777819) от 06.03.2018
+
+А. Я. Вышинский и др. | Шпионы и диверсанты за работой (1937) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777819.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издательства:
+
+Шпионаж и диверсии характерны для взаимоотношений всех буржуазных государств. Совершенно исключительный — по своему размаху изощренности и подлости — характер носит работа разведывательных органов фашистских государств.
+(   Читать дальше...   )Жанр: История, политология, экономика, правоведение, криминалистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C23A26DC1EBDFCF515CE28F7F88A22119E31674
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211225   (777828) от 06.03.2018
 
 Протоиерей Михаил Шполянский | Мы входим в храм. Практическое пособие на пути к Церкви (2016) [PDF]
@@ -19,6 +48,8 @@
 ```bash
 magnet:?xt=urn:btih:CC2742DB0BC8797A0B2ACFE021EC575C5845EDF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -47,6 +78,8 @@ magnet:?xt=urn:btih:CC2742DB0BC8797A0B2ACFE021EC575C5845EDF4
 magnet:?xt=urn:btih:55DE0C9E2489075BEA58EC71ED88FDAD107C32B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +106,8 @@ magnet:?xt=urn:btih:55DE0C9E2489075BEA58EC71ED88FDAD107C32B3
 magnet:?xt=urn:btih:B656DEE8CC2F6922402CD54BC076D2B082608951
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +132,8 @@ magnet:?xt=urn:btih:B656DEE8CC2F6922402CD54BC076D2B082608951
 ```bash
 magnet:?xt=urn:btih:642AFFC0D7369AB3E0A3F4DCE830B7BCD133A6C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +160,8 @@ magnet:?xt=urn:btih:642AFFC0D7369AB3E0A3F4DCE830B7BCD133A6C5
 ```bash
 magnet:?xt=urn:btih:0C8E07C7C56AEF105C00F137F4220E5685E3BD85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +190,8 @@ magnet:?xt=urn:btih:0C8E07C7C56AEF105C00F137F4220E5685E3BD85
 magnet:?xt=urn:btih:06F5734D247F982B74226DD67AF1081544E2F107
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +217,8 @@ magnet:?xt=urn:btih:06F5734D247F982B74226DD67AF1081544E2F107
 magnet:?xt=urn:btih:5C4C3227C9CAEFE9EC956B3EC96FD2A09D1CC428
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +242,8 @@ magnet:?xt=urn:btih:5C4C3227C9CAEFE9EC956B3EC96FD2A09D1CC428
 ```bash
 magnet:?xt=urn:btih:7D2BF34AAA0ACC4CAB45FCBAF2C569F4CE0981F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +270,8 @@ magnet:?xt=urn:btih:7D2BF34AAA0ACC4CAB45FCBAF2C569F4CE0981F5
 magnet:?xt=urn:btih:876E4C9D3F5E4F7663C246EC7565BF71B4744877
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +296,8 @@ magnet:?xt=urn:btih:876E4C9D3F5E4F7663C246EC7565BF71B4744877
 magnet:?xt=urn:btih:E9B8A09750F74F0E0E3BC015E7571CF2377AFAC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +321,8 @@ magnet:?xt=urn:btih:E9B8A09750F74F0E0E3BC015E7571CF2377AFAC4
 ```bash
 magnet:?xt=urn:btih:4D93FD2BC4DADD004FA502364C38A8DD4D328126
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +349,8 @@ magnet:?xt=urn:btih:4D93FD2BC4DADD004FA502364C38A8DD4D328126
 magnet:?xt=urn:btih:2181B8ED64C1B4838D57BDD906CFAE13B1F43FCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +374,8 @@ magnet:?xt=urn:btih:2181B8ED64C1B4838D57BDD906CFAE13B1F43FCC
 ```bash
 magnet:?xt=urn:btih:2C95C910CCAFF2805DC41C6A57DA6EE4C8F00FAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +401,8 @@ magnet:?xt=urn:btih:2C95C910CCAFF2805DC41C6A57DA6EE4C8F00FAD
 magnet:?xt=urn:btih:8D04B0A395315997AE8ADAEB7924912A18C7A4FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +427,8 @@ magnet:?xt=urn:btih:8D04B0A395315997AE8ADAEB7924912A18C7A4FD
 magnet:?xt=urn:btih:C610F50B2E86988C4A68190C885240357F78C4C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +452,8 @@ magnet:?xt=urn:btih:C610F50B2E86988C4A68190C885240357F78C4C8
 ```bash
 magnet:?xt=urn:btih:39A777B85C86DC6AFFDB2D544BFA570D3B0DFC22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +481,8 @@ magnet:?xt=urn:btih:39A777B85C86DC6AFFDB2D544BFA570D3B0DFC22
 magnet:?xt=urn:btih:99D52209877A48797240251780635281D59D339B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +506,8 @@ magnet:?xt=urn:btih:99D52209877A48797240251780635281D59D339B
 ```bash
 magnet:?xt=urn:btih:26F2A1BE3E49EAE3D4B4270BF01FC7224DBAF02B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +533,8 @@ magnet:?xt=urn:btih:26F2A1BE3E49EAE3D4B4270BF01FC7224DBAF02B
 magnet:?xt=urn:btih:DC322CBCCFE8B13ED28F0BDB32C527DBD1DBEDA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +558,8 @@ magnet:?xt=urn:btih:DC322CBCCFE8B13ED28F0BDB32C527DBD1DBEDA7
 ```bash
 magnet:?xt=urn:btih:EF9DFC7B919D663EA28A7668A665E3A36CA5DCD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +585,8 @@ magnet:?xt=urn:btih:EF9DFC7B919D663EA28A7668A665E3A36CA5DCD1
 magnet:?xt=urn:btih:D58792FF3C8E167F6C2CAD1DBC2249B82C278A3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +610,8 @@ magnet:?xt=urn:btih:D58792FF3C8E167F6C2CAD1DBC2249B82C278A3C
 ```bash
 magnet:?xt=urn:btih:B812893B8BBD7EB99AA6513E7CC1927AF855DE8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +637,8 @@ magnet:?xt=urn:btih:B812893B8BBD7EB99AA6513E7CC1927AF855DE8A
 magnet:?xt=urn:btih:7ED0EA9264049EFA7EBA9668E67EBA88003AA97B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +662,8 @@ magnet:?xt=urn:btih:7ED0EA9264049EFA7EBA9668E67EBA88003AA97B
 ```bash
 magnet:?xt=urn:btih:A4C697A4FE0C9B5249BAC06C331F88F0244E1635
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,31 +689,7 @@ magnet:?xt=urn:btih:A4C697A4FE0C9B5249BAC06C331F88F0244E1635
 magnet:?xt=urn:btih:D6BF76D198BA88FE276FCC7D8A3557105729B34D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210591   (778661) от 03.03.2018
-
-Чарльз Брандт | "Я слышал, ты красишь дома". Исповедь киллера мафии "Ирландца" (2018) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778661.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Я слышал, ты красишь дома» – на языке мафии это выражение означает «Я слышал, ты умеешь убивать людей», а под «краской» подразумевается кровь.
-
-Это тот редкий случай, когда боссы мафии признали книгу о себе правдивой – штатный киллер одной из «семей» Фрэнк «Ирландец» Ширан рассказал о своей жизни перед самой смертью. Эти истории, затаив дыхание, слушали опытные (   Читать дальше...   )Жанр: Биографии, мемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40F21A6442B701539E8DB87D81B4AAC372AC3F63
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

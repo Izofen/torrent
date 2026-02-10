@@ -19,6 +19,8 @@ Shotcut - мощное кроссплатформенное приложение
 magnet:?xt=urn:btih:3E7DAF5755583A431AA6B1C208106FAECF6A193B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ MediaHuman YouTube Downloader 3.9.9.88 (0225) RePack (& Portable) by elchupacabr
 ```bash
 magnet:?xt=urn:btih:FBEB8F3E614C8750826538FE8C533CE554264FF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:FBEB8F3E614C8750826538FE8C533CE554264FF4
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:FBEB8F3E614C8750826538FE8C533CE554264FF4
 ```bash
 magnet:?xt=urn:btih:CCF35D6FFF9694FCBFA680E0FE5538A0508FD942
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:CCF35D6FFF9694FCBFA680E0FE5538A0508FD942
 magnet:?xt=urn:btih:E73271F2EEB6294A8A8AD4D01E05C9507139B080
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:42D69ADBDC99ED1AC0C9DABC126BB32987AED1BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Joplin - это бесплатное приложение для создани�
 magnet:?xt=urn:btih:340DCF4A9AA8CC7C607C1FB1A35ABDF459C171E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ DiskDigger - маленькая утилита, с которой можно в�
 ```bash
 magnet:?xt=urn:btih:F6A5AF63F62D306C8CC545C1E183BA70373F2829
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:F6A5AF63F62D306C8CC545C1E183BA70373F2829
 magnet:?xt=urn:btih:30094831D05BA0149CA7E87A8645EB4102EEDEF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:30094831D05BA0149CA7E87A8645EB4102EEDEF0
 ```bash
 magnet:?xt=urn:btih:F6118BAB4711ADDF5DD520378725A823F40B7F39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:F6118BAB4711ADDF5DD520378725A823F40B7F39
 magnet:?xt=urn:btih:2039D8AF742EC79841AB2557F40974E0FC6C59E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ EssentialPIM - это отмеченное различными наградам
 magnet:?xt=urn:btih:21FF78F03387DAC545117B550EDB2EF7854B0C83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:21FF78F03387DAC545117B550EDB2EF7854B0C83
 magnet:?xt=urn:btih:9B865DCA73D35DC3EC14BE7580FE51C68F44BBE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:9B865DCA73D35DC3EC14BE7580FE51C68F44BBE8
 ```bash
 magnet:?xt=urn:btih:DF58B7CBB60D237155511A762737C9FA1A36AC2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Spotify имеет громадный каталог музыки, поддер�
 magnet:?xt=urn:btih:23926D11BD8C79225425503416B8177ABB6ADA94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:23926D11BD8C79225425503416B8177ABB6ADA94
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:23926D11BD8C79225425503416B8177ABB6ADA94
 magnet:?xt=urn:btih:49FDE3CDCE7F616D8814998C5CABD8CC2763980F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:49FDE3CDCE7F616D8814998C5CABD8CC2763980F
 ```bash
 magnet:?xt=urn:btih:9E282DAB88BF9903B2DD8BC6DFC61CFC23F62148
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:9E282DAB88BF9903B2DD8BC6DFC61CFC23F62148
 magnet:?xt=urn:btih:DCB7BFACA6D6B279C608D99D84417B32AFBA8897
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ VueScan - программа предназначена для замены ст
 magnet:?xt=urn:btih:0EE9CB2B9C0AAD622EC67C8B051DF1027958601D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:9D5883C30455C1DC3BF0CA416AA5FE17B51B39C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:9D5883C30455C1DC3BF0CA416AA5FE17B51B39C6
 magnet:?xt=urn:btih:04183031749FD0579AA334B843999493E0052A25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ DesktopClock3D - простые, но в то же время красивые 3
 ```bash
 magnet:?xt=urn:btih:468392C10DC548968B4AC644AE44A72D85BC3045
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:468392C10DC548968B4AC644AE44A72D85BC3045
 magnet:?xt=urn:btih:467B0C56A9006487C2ADE7559A08E5F5D8F99A61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:467B0C56A9006487C2ADE7559A08E5F5D8F99A61
 magnet:?xt=urn:btih:D3040FEDA79E069D6CF5208C884F3FCE33A9493E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:D3040FEDA79E069D6CF5208C884F3FCE33A9493E
 ```bash
 magnet:?xt=urn:btih:A6C0DA7694C65FF955F215ECFBA34E7A2C164EEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

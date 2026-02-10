@@ -19,6 +19,8 @@ Pinball M (2023) [Multi] (1.0.4/dlc) Repack FitGirl
 magnet:?xt=urn:btih:D8D967D8781E7CB2BC818C42F90B94842E289759
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Whacking Hell! - безумный 2D-шутер с видом сверху и э
 ```bash
 magnet:?xt=urn:btih:BACB3D7E7F919C35014AA2E2930FD88ACF625284
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ My Little Pony: A Zephyr Heights Mystery отправляет игроков в 
 magnet:?xt=urn:btih:7B89D7BC2DDEB1BF60262801E425F169449F8A98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ My Little Pony: A Zephyr Heights Mystery отправляет игроков в 
 ```bash
 magnet:?xt=urn:btih:0AF8B33375E3FF0822A0EA87A19DB8FA28AE8EC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Bang-On Balls: Chronicles (2023) [Ru/Multi] (1.1.1a) License GOG
 magnet:?xt=urn:btih:C684885C72AE97BA74334C25678AB662F798A184
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Grounded (2022) [Ru/Multi] (1.4.0.4495) Repack FitGirl [Fully Yoked Edition]
 ```bash
 magnet:?xt=urn:btih:F8C573A6D266411383CB12DA9DA1DFACB7720DA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Boti: Byteland Overclocked (2023) [Multi] (1.11.0e) License GOG
 magnet:?xt=urn:btih:359B77E16CE9B3F6B631D6FF1C90C83B00ED3090
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Wander Hero - это увлекательный карточный рогали�
 ```bash
 magnet:?xt=urn:btih:62CF15A919F10B118A867B7C1607BD4F798594B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Star Stuff – сыграйте роль инженера Михи, которы
 magnet:?xt=urn:btih:EC23AE57D29E12999F7FFBD548308676B992F2D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ I dont Fall – Беллерофон хочет получить статус б
 ```bash
 magnet:?xt=urn:btih:17FE982594CDFB8ADF290163713DF8C0F7BAA1A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ SOS OPS! – отправьтесь навстречу забавной кооп
 magnet:?xt=urn:btih:9BE451E29673438FDC3D5FBD6A681796958B3703
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ The Smurfs - Village Party (2024) [Ru/Multi] (1.0) Scene DOGE
 ```bash
 magnet:?xt=urn:btih:606D20DC8F319F4866242327221AA080FC25CD8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Pine Hearts (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:99CFB79C72B4BBFDCDE8FD99122EAC0AC99EF6FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ SAMURAI WARRIORS 4 DX - слэшер, предлагающий не только
 ```bash
 magnet:?xt=urn:btih:0F8E95FE4FA635DFDA09FF0F974C38B3C307E62B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Strongloween: The Escape (2024) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:ECE3D51F9AF57634F304E5AC2389C5AE10EE74F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Mercenary Battle Company: The Reapers бросает вас в неистову�
 ```bash
 magnet:?xt=urn:btih:23F63B7830212AE02B7F641B76E15F8E723CBA8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Rainbow Cotton возвращается! Легендарная ведьма К�
 magnet:?xt=urn:btih:A909F4DA3D7639B58318F752425636B01FC3CBC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Umbraclaw – события нашей игры вращаются вокруг
 ```bash
 magnet:?xt=urn:btih:C959FE9E0B23A1BAD7C53075B44D537B9281BB9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Rocket Rumble бросает геймеров в безумный мир, где
 magnet:?xt=urn:btih:17AE0D924C7BF6D1B1F7E82D3C2FD2B6CF7D1E72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Tiny Terry's Turbo Trip - безумная аркада про Терри, ге�
 ```bash
 magnet:?xt=urn:btih:56D6E6ADAC2A69283BFC8353D299F6F1F37F1A57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ ReConnect Exit LOOP бросает пользователей в недоуме�
 magnet:?xt=urn:btih:435D9A99056BE5A7E34ED988921086F07B53206B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ The King of Fighters XV открывает мир сражений, сложны
 ```bash
 magnet:?xt=urn:btih:67D3449620F9B8748779CB447669F2005E287503
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ RKGK переносит игроков в мрачный нео-бруталис
 magnet:?xt=urn:btih:4FBE8BD95E812EA1D6485CF8DB19E32B35CF3018
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ RKGK переносит игроков в мрачный нео-бруталис
 ```bash
 magnet:?xt=urn:btih:6EBE3876316C236AFED9EBC471B1CEBAA20C4530
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Besiege - это основанная на физике игра, в котор�
 magnet:?xt=urn:btih:1B977AF05AFA049E28F3CFD46CC87AD6EE7730C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Tchia сама по себе воспринимается как легкая п
 ```bash
 magnet:?xt=urn:btih:3FEC8A703D72BAC140B6D76E25E8358D72E325FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

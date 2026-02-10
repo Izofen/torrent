@@ -19,6 +19,8 @@ Jazz Jackrabbit (1994) [En] (2.0_csv2_patch_2/dlc) License GOG [Collection]
 magnet:?xt=urn:btih:0C9ACFB7445A3DD28FF3E9FBFFEBCCB011A4F1FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ X2 The Threat: New Life / X2 Угроза: Новая жизнь (2003) [Ru] (1.
 ```bash
 magnet:?xt=urn:btih:85775887C7D0377247180A98FD678AFDB465DDB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Open Transport Tycoon Deluxe – это экономический симуля�
 magnet:?xt=urn:btih:433F5A333CBCBAE89E32F79F07736BF7BD51FEB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Gothic II: Night of the Raven / Готика 2: Ночь Ворона (2003) [Ru
 ```bash
 magnet:?xt=urn:btih:8433153D0D88B84F399E6FE61B048272859A82BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Sword Art Online: Alicization Lycoris – новейшая игра по мот�
 magnet:?xt=urn:btih:FC89AFC447C5431E34AE95D5D104FE6FEEE278C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Victoria 2 – масштабная компьютерная игра в жан�
 ```bash
 magnet:?xt=urn:btih:F65F19E830EF8958EBF332C7FEF7375FBD235262
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ The Lord of the Rings: War of the Ring предлагает полностью �
 magnet:?xt=urn:btih:4BD436694871A024AE71BFEBA43CB1CC850AB641
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Quake II: Add-on Mod Pack (1997) [En] Repack/Mod firstlast2
 ```bash
 magnet:?xt=urn:btih:CC5E11375AB141F353E2CD67E74A6A3CB7B77A02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Tex Murphy: The Pandora Directive (1996) [Multi] (1.02) License GOG
 magnet:?xt=urn:btih:B97966C8E16FB10E2C11D11F6BF220FE7DEE7516
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Tex Murphy: Under a Killing Moon (1994) [Multi] (1.01) License GOG
 ```bash
 magnet:?xt=urn:btih:7BEE977EA12231AB6669AB85AF755E65EE02BB7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Star Trek: Judgment Rites, продолжение игры Star Trek: 25th Anniv
 magnet:?xt=urn:btih:ABCB36DFC2A225E59EF0F440CA767C41184C9241
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Questron II (1988) [En] (1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:8EE28C8334955284F777C8C23F72A18B39302965
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Warhammer 40,000: Dawn of War - Soulstorm - самостоятельное до�
 magnet:?xt=urn:btih:0CF4CA4D223ACBE10A6DFB1E38676340BE599A9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Need for Speed: Most Wanted [Ru] (P/1.3) 2005
 magnet:?xt=urn:btih:4DB5DBBCB0756152282E40798598C445F7B380C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +382,8 @@ Captain Claw / Капитан Клык [Ru] (RePack) 1997 | WinterKiss
 ```bash
 magnet:?xt=urn:btih:3B5E136759B22772B164727689CB5837D52B7F50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:3B5E136759B22772B164727689CB5837D52B7F50
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:3B5E136759B22772B164727689CB5837D52B7F50
 ```bash
 magnet:?xt=urn:btih:A9CEF10325986D2617CF29C5F9A8498320DEA6A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:A9CEF10325986D2617CF29C5F9A8498320DEA6A8
 magnet:?xt=urn:btih:B9005F9F920F85C663C5C3EA0E69A894C656ADEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ The Shield: The Game / The Shield: На страже порядка [Ru] (RePack
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Gabriel Knight 3: Blood of the Sacred, Blood of the Damned / Гэбриэл На
 magnet:?xt=urn:btih:CC357CBD5B6C1671B6BB32AA2E50F9E5E71DA410
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:CC357CBD5B6C1671B6BB32AA2E50F9E5E71DA410
 magnet:?xt=urn:btih:A208B1F2174C97ADAC786846425BBC4827FFCF22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Enclave + Addition mod [Ru] (RePack/1.0.0.1/1.1) 2003 | x-7
 ```bash
 magnet:?xt=urn:btih:1F3B44A3988E60E36D6FA35F3697EC85BDDE4C3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ Torin's Passage / Странствия Торина [Ru] (RePack) 1995 | DosPet
 magnet:?xt=urn:btih:9F576D61D45A3A8FD1CAACECCC0C9809FB047121
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Vangers: One for the Road / Вангеры [Ru] (Rip) 1998 | Pilotus
 ```bash
 magnet:?xt=urn:btih:ACC618AAA10A0EE01CB2C9BDD832AAE02A5D9B0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ Tom Clancy's The Sum of All Fears / Цена страха [Ru] (L) 2002
 magnet:?xt=urn:btih:719735D19A60E1012B60C23F6715E2435378476B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Neverend [Ru] (RePack) 2005 | Sash HD
 ```bash
 magnet:?xt=urn:btih:D34B7BE823D8BD9D853283B882CD6F009E98812D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

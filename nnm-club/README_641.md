@@ -19,6 +19,8 @@ Psiphon - это новый инструмент обхода интернет-�
 magnet:?xt=urn:btih:28FAE5824715D04817B500CB7479DBB1A4B30DCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ FTL: Faster Than Light (2012) [Ru/Multi] (1.6.14/dlc) Repack Let'sРlay [Advance
 ```bash
 magnet:?xt=urn:btih:42429F8360D38D6230FCF870F39D91C2D7B3874C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ MyLanViewer — программа для сканирования и монит
 magnet:?xt=urn:btih:F5CFF70469F66195A18A3A3F9979CD4C71E68A15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:F5CFF70469F66195A18A3A3F9979CD4C71E68A15
 magnet:?xt=urn:btih:66F577E38A9E13B9071E19BCC6BA9623E30E21FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Microsoft exFAT/NTFS for USB by Paragon Pro v5.0.0.22 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E9681504351D65AB09CBB26D764B9D595C0A80FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:E9681504351D65AB09CBB26D764B9D595C0A80FE
 magnet:?xt=urn:btih:9E0B6B665401E60F234A38AE66F5DAA140D727D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:9E0B6B665401E60F234A38AE66F5DAA140D727D8
 magnet:?xt=urn:btih:1FECD7D43D23CBB9D1644B55B908485A65052008
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:1FECD7D43D23CBB9D1644B55B908485A65052008
 ```bash
 magnet:?xt=urn:btih:5BE59F90E939A0D4BB1204A8F9E7B3711F3F9DE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:5BE59F90E939A0D4BB1204A8F9E7B3711F3F9DE9
 magnet:?xt=urn:btih:7D0247E066E6E7585B7DDA9CC65D4F191F44DFAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:7D0247E066E6E7585B7DDA9CC65D4F191F44DFAD
 ```bash
 magnet:?xt=urn:btih:98B780C187EB813F42472EA3A1B86D36DEB32BFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ DRAGON QUEST III HD-2D Remake - это потрясающая реинкарна
 magnet:?xt=urn:btih:E794B080930CB823F7D7EF1EDDECAA6FA3BC6FAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:68763735BC6203BD040DCF4F7C9FC222F70A8249
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:68763735BC6203BD040DCF4F7C9FC222F70A8249
 magnet:?xt=urn:btih:0F37E3E84DABAC582F9BEA489211E2123DB94D5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ GIMP — это редактор, позволяющий работать со �
 ```bash
 magnet:?xt=urn:btih:1E7786FA91D68474D9F54134703355853965FF9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:1E7786FA91D68474D9F54134703355853965FF9E
 magnet:?xt=urn:btih:94EA14E9C9BFCE1FD684505AA2503439DCB4A68C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ The Last Hero of Nostalgaia - сатирический приключенчес�
 ```bash
 magnet:?xt=urn:btih:7C4881A68255E135BACB39766DC4CD8647BAE420
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:7C4881A68255E135BACB39766DC4CD8647BAE420
 magnet:?xt=urn:btih:E0C6991F664F44FECB09BC3F566AF2F6D42B0106
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:E0C6991F664F44FECB09BC3F566AF2F6D42B0106
 ```bash
 magnet:?xt=urn:btih:E7D44DA9A7E9D2E4961B40F0C0C38132B4022122
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:E7D44DA9A7E9D2E4961B40F0C0C38132B4022122
 magnet:?xt=urn:btih:29C83EA4B5D7BD7C83B9447DDE50F11FE6F82B31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:29C83EA4B5D7BD7C83B9447DDE50F11FE6F82B31
 ```bash
 magnet:?xt=urn:btih:D00A1C980C93E77B197C2B56B930386933601E98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:D00A1C980C93E77B197C2B56B930386933601E98
 magnet:?xt=urn:btih:6372EF2DDDD440A3DDE00C7F3F60C027045DF12F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:6372EF2DDDD440A3DDE00C7F3F60C027045DF12F
 ```bash
 magnet:?xt=urn:btih:8BFFC161A849F745A1CFAF378424A9B904EDCA1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ The Krugers - Outlaw Rock'n'Roll (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Har
 magnet:?xt=urn:btih:AF2395403E303E9906EE39008F3E1D6E399B3119
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ Signature Dish, Lexi Weege, and JJ Slater - They're Red Hot! (2025) [FLAC 24/44.
 ```bash
 magnet:?xt=urn:btih:61DFF01EA0224A15A5A240CD45ADB22031B305E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ Roll Mega, Son Little & Eric Krasno - Roll Mega (2025) [FLAC 24/48|Lossless|WEB-
 magnet:?xt=urn:btih:FF87DC8996544BD79393CAAF2411421D82952018
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ Mojo Hands - GO! GO! GO! (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:8513CF16DAEC1D68007D812CF1C2C819AE0063D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

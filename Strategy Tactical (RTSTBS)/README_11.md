@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:6BA7BDA4B45C87D2A38EB58219FC1ABE19F5D921
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Invisible, Inc. - Contingency Plan (2015) [En] (1.0/dlc) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:A73008769278EAB802589060DE553958551A307A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Absolute Tactics: Daughters of Mercy - увлекательное пошагов
 magnet:?xt=urn:btih:70146FC12DC30B3C7EB25413F8C166126E4E54A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Battlefleet Gothic: Armada 2 — это новая стратегия в реа�
 ```bash
 magnet:?xt=urn:btih:7FCAD8AF0956A981A5EA0E535681E4A484D20392
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ John Wick Hex это динамичная экшен-стратегия, в ко
 magnet:?xt=urn:btih:5AF8724EF7750698F029659499FA528BAD95A36F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Battle worlds: Kronos - участвуйте в напряженных воен�
 ```bash
 magnet:?xt=urn:btih:4010C99F5880CC24E00410B572EB514240F424BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Assault Squad 2: Men of War Origins, современное переиздани
 magnet:?xt=urn:btih:3AF41EEBC264ED6F4901C474471F28FC1547F5F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Syrian Warfare (2017) [Ru/En/De] (1.3.0.19/dlc) License PLAZA [Delux Edition]
 ```bash
 magnet:?xt=urn:btih:669B7467AD0B6376C005915A7785D0C2C57C79C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Syrian Warfare (2017) [En] (1.1.0.7/dlc) License SKIDROW
 magnet:?xt=urn:btih:6E31CF9B4B4BB912BFD252ABF479C62A70B3FBCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Syrian Warfare (2017) [En] (1.3.0.19/dlc) License CODEX [Delux Edition]
 ```bash
 magnet:?xt=urn:btih:AD4F0C57061BD11F37B40275240D947CEC0A73AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Ring of Pain (2020) [Ru/Multi] (1.0.26) License GOG
 magnet:?xt=urn:btih:6096101D863D4EA27BB8CF6A5957FA20F241961E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Frontline Zed (2019) [Ru/Multi] (1.00) License HOODLUM
 ```bash
 magnet:?xt=urn:btih:B1D789BCC1CC267FA7F73E967EE94D7949AA4791
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Battlestations Дилогия [Ru/En] (RePack) 2007-2009 | R.G. R3PacK
 magnet:?xt=urn:btih:6E86069130520B1C55AA49AE96F0F899AAD7AFA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Commandos 2 - HD Remaster (2020) [Ru/Multi] (1.01) License HOODLUM
 magnet:?xt=urn:btih:C91BA4FC2B2EF97ADBAA64DD256A97B02ED3A886
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +382,8 @@ Anomaly 2 - сиквел высоко оцененной игры Anomaly Warzon
 ```bash
 magnet:?xt=urn:btih:6B6387E64C39669443609493AF86648B130A9C56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Men of War: Assault Squad. Game of the Year Edition / В тылу врага 2: 
 magnet:?xt=urn:btih:DE0338695A1D0BE6863D3EF87B97B2FE5B2C2ECD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ XCOM: Отряд «Химера» открывает новую главу в и
 ```bash
 magnet:?xt=urn:btih:1AF33EA5ADAF40D13B7D35E385BCFE998523F1E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ Blackguards 2 — это продолжение пошаговой страте�
 magnet:?xt=urn:btih:C25FF35465238D1D40ABDCBB0D4CAC8731C81538
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ Invisible Inc. (2015) [Ru/En] (183969/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:A39AADB9C0C8BFA796618B060A24C384D91F5B01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ Total War Saga: TROY – стратегия в реальном времени, 
 magnet:?xt=urn:btih:2BF26E89F92453A8491984A20437D52DBD21CFE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ Total War Saga: TROY – стратегия в реальном времени, 
 ```bash
 magnet:?xt=urn:btih:92A3DF53562B911A7B643C3F7D79C53FE9F25F59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ Numantia (2017) [Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:4726088108F34FDA556F51C2D190AF4CFDB702AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ World in Conflict Complete Edition [Ru/En] (Lossless Repack/1.0.1.1) 2009 l R.G.
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ Prodigy Tactics (2017) [Multi] (Update 6) License GOG
 magnet:?xt=urn:btih:5D6C908BCAE74762A7D81D4DBCA60DE1A558C015
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ Panzer Strategy - варгейм в сеттинге Второй Мировой
 magnet:?xt=urn:btih:56A4A476CBB537292B9DE046517CFDB74D2C2D85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ War Front: Turning Point / War Front: Другая мировая (2007) [Ru] (1
 ```bash
 magnet:?xt=urn:btih:297C41775BD7FA26BBD00544A8BC4F09FC227217
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,56 +1,3 @@
-###  Публикация: 1332488   (313651) от 20.10.2019
-
-Stardance - Stars Challenge (2018) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can't Stop To Dance (6:06)
-02. Empire's Attack (5:50)
-03. Space Battle (7:03)
-04. Supreme Powers (6:05)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 01:14:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4361934AAC001594672FF7A5C3F13DF79D59FFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332142   (313653) от 20.10.2019
-
-Отель «Миллион долларов» / The Million Dollar Hotel (2000) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Побывавший на своем веку в немыслимых переделках, специальный агент ФБР, детектив Скиннер расследует самое загадочное дело в своей карьере: смерть сына известного медиа-магната.
-
-Так он оказывается в лос-анджелесском отеле «Миллион долларов», населенном наркоманами и ворами. Было ли это самоубийство или убийство? Ответ становится еще более сложным, когда один из (   Читать дальше...   )Производство: Германия, Великобритания, США / Icon Entertainment International, Kintop Pictures, Road MoviesЖанр: триллер, драма, детективРежиссер: Вим ВендерсАктеры: Джереми Дэвис, Милла Йовович, Мэл Гибсон, Джимми Смитс, Петер Стормаре, Аманда Пламмер, Глория Стюарт, Том Бауэр, Донал Лог, Бад КортПеревод: Многоголосый профессиональныйСубтитры: русские, английскиеПродолжительность: 02:01:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D9715725BE670BE1708546478C2397D4210B1C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332377   (313654) от 20.10.2019
 
 Нил Гейман | Вид с дешевых мест (2019) [MP3]
@@ -71,6 +18,8 @@ magnet:?xt=urn:btih:5D9715725BE670BE1708546478C2397D4210B1C3
 ```bash
 magnet:?xt=urn:btih:449D40464EF149E008C302BB67C6A2C8C172F637
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +46,8 @@ Lindemann - Ich weiß es nicht (2019) Single [MP3|320 Kbps] <Industrial Metal>
 magnet:?xt=urn:btih:054D3AA56A55DC1B3EEB5DE97B084F63A56B75C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +71,8 @@ magnet:?xt=urn:btih:054D3AA56A55DC1B3EEB5DE97B084F63A56B75C4
 ```bash
 magnet:?xt=urn:btih:73B755724CD040351279EC3DE1894946E17B57B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +98,8 @@ National Geographic. Из истории Второй мировой войны:
 magnet:?xt=urn:btih:9C0A74910391E77E7CC427FE2067DE2698A39D38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +123,8 @@ magnet:?xt=urn:btih:9C0A74910391E77E7CC427FE2067DE2698A39D38
 ```bash
 magnet:?xt=urn:btih:62C9BF42513AF24C72950150B4A527ECFFA7CB95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +153,8 @@ Strike the Blood II | Удар крови [OVA-2] [2016, OVA, 8 эп.] BDRip 108
 magnet:?xt=urn:btih:34C3FBA0735E346DA10587CDFB2375D28D58FA50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +178,8 @@ magnet:?xt=urn:btih:34C3FBA0735E346DA10587CDFB2375D28D58FA50
 ```bash
 magnet:?xt=urn:btih:BA18FA0C385B8567A560B4B603FA72C1D793358F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +205,8 @@ magnet:?xt=urn:btih:BA18FA0C385B8567A560B4B603FA72C1D793358F
 magnet:?xt=urn:btih:EC2CC606403190CB0CB713A6B7B35F23A2A09785
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +230,8 @@ magnet:?xt=urn:btih:EC2CC606403190CB0CB713A6B7B35F23A2A09785
 ```bash
 magnet:?xt=urn:btih:DD60172B3C739B20CA7CDF44382CE44CED4FFC46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +257,8 @@ magnet:?xt=urn:btih:DD60172B3C739B20CA7CDF44382CE44CED4FFC46
 magnet:?xt=urn:btih:C85FD6FCF6DC869672AB414640DC41CE93EBAE88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +282,8 @@ magnet:?xt=urn:btih:C85FD6FCF6DC869672AB414640DC41CE93EBAE88
 ```bash
 magnet:?xt=urn:btih:27A8B4F5B6FC0ABDAEED5362A9F52F3A29ED4C51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +310,8 @@ magnet:?xt=urn:btih:27A8B4F5B6FC0ABDAEED5362A9F52F3A29ED4C51
 magnet:?xt=urn:btih:A78E1C0968F5BCD470E367D6C6516A69347BE1BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +335,8 @@ Lacey -  простой инструмент для поиска и скачив
 ```bash
 magnet:?xt=urn:btih:03FD051E6C4E90915E2A233B4027FCD9BCBD83B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +362,8 @@ magnet:?xt=urn:btih:03FD051E6C4E90915E2A233B4027FCD9BCBD83B2
 magnet:?xt=urn:btih:9D5AA32AF7634928C2F55DDA4C25417740BFEA7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +388,8 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 magnet:?xt=urn:btih:F6B598848DC0474ECAB87AA89EBCF5A74B2C8D0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +413,8 @@ magnet:?xt=urn:btih:F6B598848DC0474ECAB87AA89EBCF5A74B2C8D0A
 ```bash
 magnet:?xt=urn:btih:5E19B9AA0C2D0E554E9A3923C737882CB400EF1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +443,8 @@ Prince - 4Ever (2CD) (2016) [FLAC|Lossless|image + .cue] <Pop, Rock, Funk>
 magnet:?xt=urn:btih:4391B6B188039ADA2D9E38EECF3642B75D5A8BF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +469,8 @@ magnet:?xt=urn:btih:4391B6B188039ADA2D9E38EECF3642B75D5A8BF0
 magnet:?xt=urn:btih:3ED2E407FAE7229528632061BC5CD9F1A607A536
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +494,8 @@ magnet:?xt=urn:btih:3ED2E407FAE7229528632061BC5CD9F1A607A536
 ```bash
 magnet:?xt=urn:btih:AD656F0A59993B711A5469759AEB5A1FCBC3BAF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +524,8 @@ magnet:?xt=urn:btih:AD656F0A59993B711A5469759AEB5A1FCBC3BAF0
 magnet:?xt=urn:btih:8FA85C0FFB68FA6B378D6EAA96127F4892CF6A4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +549,8 @@ Happy Holidaze - редактор, который поможет в оформл
 ```bash
 magnet:?xt=urn:btih:B42968DE2A90E588E60078724B81DAB6EECCC1DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +579,8 @@ VA - Intimate Jazz (2016) [MP3|320 Kbps] <Jazz>
 magnet:?xt=urn:btih:F0EC0593E950506DD469E0417464A17ED7C2FD7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +604,8 @@ Comedy Woman. Лучшее (2016.11.25) SATRip
 ```bash
 magnet:?xt=urn:btih:6FB71D88FA1510702343BDACAABFDE984C44A16C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +633,61 @@ Celtic Woman - Voices of Angels (2016) [MP3|320 Kbps] <Celtic, Folk, World>
 ```bash
 magnet:?xt=urn:btih:0B11035F057C0273A2719F24F5D0F1795F47E9B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076322   (313695) от 25.11.2016
+
+Анастасия Романова | Загадки русского языка (2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга — путешествие по расходящимся тропам русского языка. В ней вы найдете истории возникновения разнообразных фразеологических выражений и идиом, исторические анекдоты, забавные шарады и ребусы, зарисовки быта былых времен, словесные практикумы и квесты, а также рассказы о запутанных приключениях пословиц и поговорок.
+Язык, на котором мы говорим, настолько (   Читать дальше...   )Жанр: Загадки, шарады, историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBB685758DDF03DCFCD20F7A4521101FBEC4F7A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076582   (313696) от 25.11.2016
+
+Наталья Александрова | Семнадцать провалов весны (2016) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Благородный жулик Леня Маркиз впервые выступает в роли Штирлица. А что остается, когда секретная государственная организация берет тебя за шкирку и заставляет выведывать тайны боевых генералов и внедряться в тыл врага? Правда, Леня давно под колпаком – боевая соратница Лола умеет следить за ним похлеще самой секретной организации, и уж она точно обезвредит любого (   Читать дальше...   )Жанр: Иронические детективыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5B435CAD9FF97BDC615722CB6F91937AE74F050
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

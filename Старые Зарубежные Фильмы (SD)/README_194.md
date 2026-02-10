@@ -1,27 +1,3 @@
-###  Публикация: 1377875   (849484) от 23.04.2020
-
-Две датчанки в кожаных штанах / Zwei Daninnen in Lederhosen (1979) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Две стриптизерши из подпольного ночного клуба, спасаясь от облавы, уезжают на автомобиле своего приятеля-итальянца Борсалино. В багажнике девицы обнаруживают белый порошок и, думая, что это героин, решают спрятаться от греха подальше в первой попавшейся на пути баварской деревне Мутценбах. Однако, девушки ошиблись — порошком оказалось новейшее стимулирующее потенцию (   Читать дальше...   )Производство: Германия (ФРГ)/ Colena FilmЖанр: КомедияРежиссер: Франц МаришкаАктеры: Дебора Муни, Натали Ньюманн, Франц Мюксенедер, Питер Стейнер, Марго Малер, Гюнтер Ферш, Фред Штилькраут, Херберт Фукс, Ринальдо Таламонти, Долфи Кауэр, Луис Вилле, Франц Хелминджер, Сильвия ЭнгельманнПеревод: Одноголосый любительский, Немец c VHSСубтитры: ОтсутствуютПродолжительность: 01:28:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76B647BCEED9DCCB177453C26B68B1617C8AC648
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499294   (849518) от 01.10.2021
 
 Тайные пути / The Secret Ways (1961) BDRip [VO]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:76B647BCEED9DCCB177453C26B68B1617C8AC648
 ```bash
 magnet:?xt=urn:btih:43B4A7E282231989DDF5206C5A8FDD1D9D92C54B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:43B4A7E282231989DDF5206C5A8FDD1D9D92C54B
 magnet:?xt=urn:btih:A795F40D119BBBC22B90C480BE780608390869A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:A795F40D119BBBC22B90C480BE780608390869A7
 ```bash
 magnet:?xt=urn:btih:C290CEE1AA0B5C4011709B950107400CA60B9F1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:C290CEE1AA0B5C4011709B950107400CA60B9F1F
 magnet:?xt=urn:btih:6315479C285E2A01D0F8FAEC6C35A4CB9791380A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:6315479C285E2A01D0F8FAEC6C35A4CB9791380A
 ```bash
 magnet:?xt=urn:btih:27D08441171BA18F9FD8BA287D250A646C08AD96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:27D08441171BA18F9FD8BA287D250A646C08AD96
 magnet:?xt=urn:btih:091DF1DD190AA0071FCAB706DA561E82FCE67554
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:091DF1DD190AA0071FCAB706DA561E82FCE67554
 ```bash
 magnet:?xt=urn:btih:7E0E563F91949D8B5D6299B709999F7355A3EDEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:7E0E563F91949D8B5D6299B709999F7355A3EDEA
 magnet:?xt=urn:btih:12A8C33879C7C6905B7D5043CF98574A8B822085
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ magnet:?xt=urn:btih:12A8C33879C7C6905B7D5043CF98574A8B822085
 ```bash
 magnet:?xt=urn:btih:9FCAED085F634BCF917EC67FC05C8162940F1AE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +255,8 @@ magnet:?xt=urn:btih:9FCAED085F634BCF917EC67FC05C8162940F1AE5
 magnet:?xt=urn:btih:760D8F3800B2BB32D4E961B3A3814368DB668B8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +280,8 @@ magnet:?xt=urn:btih:760D8F3800B2BB32D4E961B3A3814368DB668B8E
 ```bash
 magnet:?xt=urn:btih:974CFEF6007A93CD9799A67527D9D5E34CE88BE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +307,8 @@ magnet:?xt=urn:btih:974CFEF6007A93CD9799A67527D9D5E34CE88BE1
 magnet:?xt=urn:btih:E7804BCBA960D217900B9384D68AC0763D6EE172
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +332,8 @@ magnet:?xt=urn:btih:E7804BCBA960D217900B9384D68AC0763D6EE172
 ```bash
 magnet:?xt=urn:btih:E94E71F1BC93E5E5F80BC961EBD9FBDE20756B93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +359,8 @@ magnet:?xt=urn:btih:E94E71F1BC93E5E5F80BC961EBD9FBDE20756B93
 magnet:?xt=urn:btih:D68CACDED9AD8A0B8040D562353F36AFC7B49704
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +384,8 @@ magnet:?xt=urn:btih:D68CACDED9AD8A0B8040D562353F36AFC7B49704
 ```bash
 magnet:?xt=urn:btih:6F2C849F3336DD051FF4B55FC98DDC7842867B0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +414,8 @@ magnet:?xt=urn:btih:6F2C849F3336DD051FF4B55FC98DDC7842867B0E
 magnet:?xt=urn:btih:2FFF69C28AA54B3C3D658EF3BB28ACC8C40B78A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +439,8 @@ magnet:?xt=urn:btih:2FFF69C28AA54B3C3D658EF3BB28ACC8C40B78A5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +466,8 @@ magnet:?xt=urn:btih:2FFF69C28AA54B3C3D658EF3BB28ACC8C40B78A5
 magnet:?xt=urn:btih:8F474A6023189C952F167D38A2542F96EA6B89C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +491,8 @@ magnet:?xt=urn:btih:8F474A6023189C952F167D38A2542F96EA6B89C9
 ```bash
 magnet:?xt=urn:btih:7E65148DD1975E498EE85AB55C3D5FEE01522C84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +518,8 @@ magnet:?xt=urn:btih:7E65148DD1975E498EE85AB55C3D5FEE01522C84
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +544,8 @@ magnet:?xt=urn:btih:7E65148DD1975E498EE85AB55C3D5FEE01522C84
 magnet:?xt=urn:btih:5F847E694158DF1C9D485AD53DB73D263BDD448F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +569,8 @@ magnet:?xt=urn:btih:5F847E694158DF1C9D485AD53DB73D263BDD448F
 ```bash
 magnet:?xt=urn:btih:6C4EB6C1E9AF648DB343693C8DA557BDB711CDA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +599,8 @@ magnet:?xt=urn:btih:6C4EB6C1E9AF648DB343693C8DA557BDB711CDA7
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +625,8 @@ magnet:?xt=urn:btih:6C4EB6C1E9AF648DB343693C8DA557BDB711CDA7
 magnet:?xt=urn:btih:E0E12CB9D2B5339478AA5F604AD15A396B3AB9D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +650,34 @@ magnet:?xt=urn:btih:E0E12CB9D2B5339478AA5F604AD15A396B3AB9D1
 ```bash
 magnet:?xt=urn:btih:599DE9BF4495D9D85B30E7B3EFA60B324AE0FAB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498522   (856039) от 27.09.2021
+
+Никто не услышал её крик / Nadie oyo gritar / No One Heard the Scream (1973) BDRip  [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_856039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Элиза, за приличные деньги, - любовница старых богатеев. Профессия у неё такая. Однажды она отказывается от очередной встречи и не летит в Лондон, а отправляется в свою новую квартиру в фешенебельном доме. Поднявшись на этаж, он встречает там мужчину по имени Мигель, который пытается открыть двери сломанного лифта. Ночью Элиза слышит крики - Мигель ссорится со своей (   Читать дальше...   )Производство: Испания, P.I.C.A.S.A., Producciones Benito PerojoЖанр: ТриллерРежиссер: Элой де ла ИглесиаАктеры: Кармен Севилья, Висенте Парра, Мария Аскерино, Антонио Касас, Гойо Лебреро, Фелипе Солано, Рамон Лильо, Антонио дель Реаль, Тони ИсбертПеревод: Авторский (Андрей Дольский)Субтитры: АнглийскиеПродолжительность: 01:32:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:222D8CC3788BE6E7D519BA03F83A0E95D801FFCB
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

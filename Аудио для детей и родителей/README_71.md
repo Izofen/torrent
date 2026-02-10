@@ -22,6 +22,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -50,6 +52,8 @@ VA - Песни Для Малышей - Весёлая Прогулка (2009) [
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +80,8 @@ VA - Нежные Песни Любви (1999) [MP3|256 kbps]<Колыбельн
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -104,6 +110,8 @@ VA - Радионяня. Мамины Помощники (1995) [MP3|256 kbps]<�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +138,8 @@ VA - Cristian Imparato e i Finalisti Di Io Canto (2010) [MP3|224 kbps]<Детс�
 ```bash
 magnet:?xt=urn:btih:79D9264BD1F6F551560897EABBC51929B7C0B30E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -158,6 +168,8 @@ VA - Io Canto - 2a Edizione (2010) [MP3|320 kbps]<Детские песенки>
 magnet:?xt=urn:btih:DB5AFDB5BF132C8CA0C245070C338B18CC068B02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -185,6 +197,8 @@ VA - Io Canto (2010) [MP3|204-238 kbps]<Детские песенки>
 magnet:?xt=urn:btih:19D73C81A8230E121504C065DEF1016E6FC9B254
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ magnet:?xt=urn:btih:19D73C81A8230E121504C065DEF1016E6FC9B254
 ```bash
 magnet:?xt=urn:btih:3EFE68ACA418617DBE42E3E2B2E598C37234BB78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +252,8 @@ magnet:?xt=urn:btih:3EFE68ACA418617DBE42E3E2B2E598C37234BB78
 magnet:?xt=urn:btih:007AE4DDFF88EDE41200D743B0DE20EFE01422DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ magnet:?xt=urn:btih:007AE4DDFF88EDE41200D743B0DE20EFE01422DB
 magnet:?xt=urn:btih:681EB2C0D41D510B06888DDCB5593AD0C8A9F337
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +304,8 @@ magnet:?xt=urn:btih:681EB2C0D41D510B06888DDCB5593AD0C8A9F337
 ```bash
 magnet:?xt=urn:btih:53A1F7C81BC5D9FB11535FAAD10A030E0AB78382
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +334,8 @@ magnet:?xt=urn:btih:53A1F7C81BC5D9FB11535FAAD10A030E0AB78382
 magnet:?xt=urn:btih:488F0388B12E837DA5EDDCA1596927D6A72BD640
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +363,8 @@ magnet:?xt=urn:btih:488F0388B12E837DA5EDDCA1596927D6A72BD640
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +388,8 @@ magnet:?xt=urn:btih:488F0388B12E837DA5EDDCA1596927D6A72BD640
 ```bash
 magnet:?xt=urn:btih:C862569B7865F99E34E24D74E85C5047203B6BFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +415,8 @@ magnet:?xt=urn:btih:C862569B7865F99E34E24D74E85C5047203B6BFD
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +441,8 @@ magnet:?xt=urn:btih:C862569B7865F99E34E24D74E85C5047203B6BFD
 ```bash
 magnet:?xt=urn:btih:4D3D4256D5DC85337CB5FE55B704AD5F3D0E571F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +471,8 @@ VA - Небылицы - 100 детских песен (2011) [MP3|256-320 kbps]<
 magnet:?xt=urn:btih:4B42723A2FF8A121583984BA6FC8EED2683EF435
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +499,8 @@ VA - Детские песни Михаила Ваняна (1972) [MP3|128 kbps]
 ```bash
 magnet:?xt=urn:btih:6D21B56471AA5B7146437526399B486A58692A1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +529,8 @@ VA - Sleepy Baby (2003) [MP3|192 kbps]<Колыбельные для детей>
 magnet:?xt=urn:btih:00D6930C313CF71484CB9F42C5B2C6F64C413A1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +557,8 @@ CD 1 - Nursery Rhymes And Songs
 ```bash
 magnet:?xt=urn:btih:30DB741BCA3959637117B2934F0CE54BDD8BD6A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +587,8 @@ VA - С Добрым Утром (2004) [MP3|320 kbps]<Песенки для де
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +612,8 @@ VA - С Добрым Утром (2004) [MP3|320 kbps]<Песенки для де
 ```bash
 magnet:?xt=urn:btih:0A80F682851A1B407F19E9830165499B4338993B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +642,8 @@ magnet:?xt=urn:btih:0A80F682851A1B407F19E9830165499B4338993B
 magnet:?xt=urn:btih:8545DDE6BF03C826EAEEED32DBD80A678010037F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +670,8 @@ magnet:?xt=urn:btih:8545DDE6BF03C826EAEEED32DBD80A678010037F
 ```bash
 magnet:?xt=urn:btih:DA1878ECD2CCFD228C32A3253D6CBD59EAFA01AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -652,6 +700,8 @@ VA - Шкільні Роки (2008) [MP3|320 kbps]<Музыка для дете�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -678,6 +728,8 @@ VA - Halloween Songs and Sounds (2006) [MP3|320 kbps]<Детские песен�
 ```bash
 magnet:?xt=urn:btih:1DE02A698002AACB777698D5AB1B3A947ED9994A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

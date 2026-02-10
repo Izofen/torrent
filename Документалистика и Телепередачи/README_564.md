@@ -1,3 +1,29 @@
+###  Публикация: 1015852   (773158) от 12.05.2016
+
+Вечерний Ургант (2016.05.10) SATRip (cезон 9, выпуск 63)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:30:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DCA0472AAE3C051765137E2AA5F8368630EC049
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278315   (773163) от 24.01.2019
 
 Храмы древнего Багана / Temples of Ancient Bagan (2015) WEBRip [VP9/2160p] [4K, HDR]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:0EE1F9ABBF663FAE755FD4E27348A9B9247B4401
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:0EE1F9ABBF663FAE755FD4E27348A9B9247B4401
 magnet:?xt=urn:btih:0FA08D9FA44CCC6E37C7B36A44F1416A9E6ED593
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:0FA08D9FA44CCC6E37C7B36A44F1416A9E6ED593
 ```bash
 magnet:?xt=urn:btih:DAA019A14D23EDD07AA2A69CA52D3023A70484EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:DAA019A14D23EDD07AA2A69CA52D3023A70484EF
 magnet:?xt=urn:btih:A7B8E08ABBC25A7BB4F085A472CEDE6A0BDD2070
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:A7B8E08ABBC25A7BB4F085A472CEDE6A0BDD2070
 ```bash
 magnet:?xt=urn:btih:5B5ED3638E7D3CE3EE8130209FAF0840D39744DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:5B5ED3638E7D3CE3EE8130209FAF0840D39744DD
 magnet:?xt=urn:btih:C7B594BBECECEFB0EEC2B25CB3F47929C198E485
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:C7B594BBECECEFB0EEC2B25CB3F47929C198E485
 ```bash
 magnet:?xt=urn:btih:8A378F01E458E101BB56D31E5FDA75F0A9295B1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:8A378F01E458E101BB56D31E5FDA75F0A9295B1E
 magnet:?xt=urn:btih:CB9C34389CDE88FFEFCCCCBB3ACACC943F916871
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:CB9C34389CDE88FFEFCCCCBB3ACACC943F916871
 ```bash
 magnet:?xt=urn:btih:9407B259241959F2378C2263E01B5CDF68BC57BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:9407B259241959F2378C2263E01B5CDF68BC57BB
 magnet:?xt=urn:btih:469555CD21C263735EE87FA885507AE4584C217C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:469555CD21C263735EE87FA885507AE4584C217C
 ```bash
 magnet:?xt=urn:btih:2E7414ED1B6A38685BDACC53C5794E43B61F12D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:2E7414ED1B6A38685BDACC53C5794E43B61F12D4
 magnet:?xt=urn:btih:757956977309CE5498F84C655FEA8D2B8C7971EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +357,8 @@ magnet:?xt=urn:btih:757956977309CE5498F84C655FEA8D2B8C7971EF
 ```bash
 magnet:?xt=urn:btih:41FC6F12BF518002344BFC1C2CA5A5B37F3396AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:41FC6F12BF518002344BFC1C2CA5A5B37F3396AA
 magnet:?xt=urn:btih:BA0CDB394C452221710E3146A63D200902EAAD35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +409,8 @@ magnet:?xt=urn:btih:BA0CDB394C452221710E3146A63D200902EAAD35
 ```bash
 magnet:?xt=urn:btih:F950A2538EF00A86E2EAC5AF1AA7615CB062D91B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:F950A2538EF00A86E2EAC5AF1AA7615CB062D91B
 magnet:?xt=urn:btih:B42AEDE55D45C7A82E741A5DEED2055692D72249
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +461,8 @@ magnet:?xt=urn:btih:B42AEDE55D45C7A82E741A5DEED2055692D72249
 ```bash
 magnet:?xt=urn:btih:70572BC4BD2F8A253FC33ABB778613E6D0017FA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:70572BC4BD2F8A253FC33ABB778613E6D0017FA5
 magnet:?xt=urn:btih:EE178C46855906CB8C80F0277303732822B8FA6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +513,8 @@ magnet:?xt=urn:btih:EE178C46855906CB8C80F0277303732822B8FA6D
 ```bash
 magnet:?xt=urn:btih:B4F981FF82BC76AD9E7708C876963D7B119D5CBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +540,8 @@ magnet:?xt=urn:btih:B4F981FF82BC76AD9E7708C876963D7B119D5CBC
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +565,8 @@ magnet:?xt=urn:btih:B4F981FF82BC76AD9E7708C876963D7B119D5CBC
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +592,8 @@ magnet:?xt=urn:btih:B4F981FF82BC76AD9E7708C876963D7B119D5CBC
 magnet:?xt=urn:btih:5A0DD3343EF83974D5BED97D45D249C9DCD6C1E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +617,8 @@ magnet:?xt=urn:btih:5A0DD3343EF83974D5BED97D45D249C9DCD6C1E0
 ```bash
 magnet:?xt=urn:btih:0B41DD8BE94583B1A5C06F8A33E3579B7B052A67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +644,8 @@ magnet:?xt=urn:btih:0B41DD8BE94583B1A5C06F8A33E3579B7B052A67
 magnet:?xt=urn:btih:D54477405F544EA928E3E3F9F967DA0956C519C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,29 +670,7 @@ magnet:?xt=urn:btih:D54477405F544EA928E3E3F9F967DA0956C519C3
 magnet:?xt=urn:btih:A90EFC80242281A1788625163FBCF3B7597BF222
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277694   (775008) от 22.01.2019
-
-Добро пожаловать в Шанхай / Welcome to Shanghai (2017) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шанхай – крупнейший город Китая. Но вряд ли бы он представлял интерес, если бы только в этом и состояло его достоинство. Шанхай – это олицетворение всего Китая, с его древней историей, динамичной современностью и устремленностью в будущее. Здесь можно бродить как по типичным старым китайским улочкам, так и по проспектам викторианской эпохи. Любоваться как пышной (   Читать дальше...   )Производство: Китай, CGTNЖанр: Документальный, история, путешествияРежиссер: Ван БиньПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:56:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7A76D54624A9395CE90FE93779D878C7E701B82
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

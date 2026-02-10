@@ -1,3 +1,29 @@
+###  Публикация: 946818   (420877) от 16.10.2015
+
+И. Я. Цвик | Религия и декадентство в России [Методологические аспекты социально-философской критики] (1985) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_420877.jpg" />
+</div>
+
+
+###  Подробнее
+
+В работе рассматривается философия и эстетика декадентства в России конца XIX - начала ХХ в. Особое место отводится показу разрушительного воздействия на искусство и литературу религиозно-мистических идей. Исследование ведется под углом зрения анализа методологии критики модернизма, причем основное внимание уделяется диалектико-материалистической методологии (Г. (   Читать дальше...   )Жанр: История, религиоведение, философия, эстетика, политология, искусствоФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FF95073A54FCCCA2ED4E783E7FDBAAF567384DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 946841   (420878) от 16.10.2015
 
 И. С. Болотин | Критика антикоммунистических концепций современного религиозного национализма (1984) [DJVU]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:6128BB211018BCD4930835DF11141C1120E25EFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:6128BB211018BCD4930835DF11141C1120E25EFF
 magnet:?xt=urn:btih:0064A825BBD341BF43FD479EFD3A0CC86CC4CDF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:0064A825BBD341BF43FD479EFD3A0CC86CC4CDF7
 ```bash
 magnet:?xt=urn:btih:1A2C296B90CC3CA668B478ECA454251841D871DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:1A2C296B90CC3CA668B478ECA454251841D871DD
 magnet:?xt=urn:btih:1555717A6E8D822871233E0553A8833824B63F9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:1555717A6E8D822871233E0553A8833824B63F9F
 ```bash
 magnet:?xt=urn:btih:08A3A0A1B32CEDEC3AB821B1FE100E35B4E2E67A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:08A3A0A1B32CEDEC3AB821B1FE100E35B4E2E67A
 magnet:?xt=urn:btih:D6CE3B50E694EE3849212F2C5E8A57F7603FD27A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:D6CE3B50E694EE3849212F2C5E8A57F7603FD27A
 ```bash
 magnet:?xt=urn:btih:9C93DEEBA297862B800E2CB47366C1C7BEACCA15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:9C93DEEBA297862B800E2CB47366C1C7BEACCA15
 magnet:?xt=urn:btih:44C91AAEF2E6E44C05C49C9DE448C5DEBC329E23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:44C91AAEF2E6E44C05C49C9DE448C5DEBC329E23
 magnet:?xt=urn:btih:CD50C75F4FAD691E1DC39FEDAEAE108E0F400502
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:CD50C75F4FAD691E1DC39FEDAEAE108E0F400502
 ```bash
 magnet:?xt=urn:btih:6F4D915D3B905ED687E5B1C7D8C972AC173A922A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:6F4D915D3B905ED687E5B1C7D8C972AC173A922A
 magnet:?xt=urn:btih:32CD93A44C802D45A5E6EFD0EB8C3FF124B7137B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:32CD93A44C802D45A5E6EFD0EB8C3FF124B7137B
 ```bash
 magnet:?xt=urn:btih:29FF9A2B7A4ED33F1915DD34084A93816747158B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +361,8 @@ Christina Glennon | Editors of fine woodworking. Joinery (2016) [PDF] [En]
 magnet:?xt=urn:btih:215F420084A229E6485E929888EF95825811F265
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:215F420084A229E6485E929888EF95825811F265
 ```bash
 magnet:?xt=urn:btih:A6E163FE19EE13737235D57B252278A3CF6264CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:A6E163FE19EE13737235D57B252278A3CF6264CB
 magnet:?xt=urn:btih:E9077BA9DBA27B54DB7D910CDBFD7EFAE191492E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:E9077BA9DBA27B54DB7D910CDBFD7EFAE191492E
 ```bash
 magnet:?xt=urn:btih:1F6A996FBF18FD7771F80E4FBC3A9E86CDF17937
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:1F6A996FBF18FD7771F80E4FBC3A9E86CDF17937
 magnet:?xt=urn:btih:5A428D487B0EB0F95EEAA031A43F5D083108C5DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:5A428D487B0EB0F95EEAA031A43F5D083108C5DF
 ```bash
 magnet:?xt=urn:btih:1AF8C480C2003C24ADBA5364D4F99FEF36367EEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:1AF8C480C2003C24ADBA5364D4F99FEF36367EEF
 magnet:?xt=urn:btih:E2DD9DB255D25603AEFF92AC04EAA7713C1806D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:E2DD9DB255D25603AEFF92AC04EAA7713C1806D9
 ```bash
 magnet:?xt=urn:btih:6BF049C0C24CDEAED577A9184A5A402B301CEFE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:6BF049C0C24CDEAED577A9184A5A402B301CEFE2
 magnet:?xt=urn:btih:94DA6D5D7A4CF59B7028B2CA96D3E34EB65BBDA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:94DA6D5D7A4CF59B7028B2CA96D3E34EB65BBDA0
 magnet:?xt=urn:btih:10CEC5E60AA03190FD63D6DE6F283F3B60948A0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:10CEC5E60AA03190FD63D6DE6F283F3B60948A0A
 ```bash
 magnet:?xt=urn:btih:6116697F26197AF4993343AC1C266DC11927F970
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +651,8 @@ magnet:?xt=urn:btih:6116697F26197AF4993343AC1C266DC11927F970
 magnet:?xt=urn:btih:D19838C297F86E781F8127C0409D7F541BCEC7C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,29 +677,7 @@ magnet:?xt=urn:btih:D19838C297F86E781F8127C0409D7F541BCEC7C4
 magnet:?xt=urn:btih:0E3E449902C52DCC437AE1558724C3FED5A576F8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250387   (422461) от 29.09.2018
-
-Алексей Митюков | Коктейли, пунши, вина и другие напитки в домашних условиях (1974) [PDF, FB2, EPUB]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422461.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящей книге читатель найдет все, что касается классификации и изготовления смешанных спиртных и безалкогольных напитков, таких, как коктейли, пунши, глинтвейны, грог, флип, коблер и др.; много интересного и полезного узнает о виноградных винах; сам научится делать слабоалкогольные исконно русские напитки - различные квасы: хлебные, медовые, фруктовые; ознакомится (   Читать дальше...   )Жанр: КулинарияФормат: PDF, FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:007DBEBC70425F06119D12F3BAF564890B130CCC
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

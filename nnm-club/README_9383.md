@@ -19,6 +19,8 @@ Yesterday / Yesterday (2019) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
 magnet:?xt=urn:btih:B73EFBC0E40076EC9C90CB901AC03899C5866F73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:B73EFBC0E40076EC9C90CB901AC03899C5866F73
 ```bash
 magnet:?xt=urn:btih:6EFE6E308924C4C3A052940710B4AB8028ACD279
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Nvidia DriverPack - это единый пакет с драйверами GeFor
 magnet:?xt=urn:btih:119412E36937573F16EF5CBA505223CC593E1EF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Avira Phantom VPN — является новым эффективным при�
 ```bash
 magnet:?xt=urn:btih:64C783D7D5B5A350DD8C22AF2998CC5D1518407A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:64C783D7D5B5A350DD8C22AF2998CC5D1518407A
 magnet:?xt=urn:btih:2FB80D8C0A1FA97C286C58DBA34D410AB8E3A178
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:2FB80D8C0A1FA97C286C58DBA34D410AB8E3A178
 ```bash
 magnet:?xt=urn:btih:629EF37CA6E9667A7E5CF31C8D83346D897E47D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:629EF37CA6E9667A7E5CF31C8D83346D897E47D7
 magnet:?xt=urn:btih:A0B3B3792D2895DBBD6515DB77A6E994F8E0736F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:A0B3B3792D2895DBBD6515DB77A6E994F8E0736F
 ```bash
 magnet:?xt=urn:btih:883C0FE773CB0CAD401E18A17F3878CBD1FC40D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ AnyDesk 5.3.5 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:DA17F5EB60B7497605937CC68622FD5317FCFC88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:DA17F5EB60B7497605937CC68622FD5317FCFC88
 ```bash
 magnet:?xt=urn:btih:CF30FEC2B5C38FB3956180261194F6FB9ED88CB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ ArtRage настоящая художественная студия для по
 magnet:?xt=urn:btih:E84E6DE3F7D4843F9695357E193EE119A65CC871
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:E84E6DE3F7D4843F9695357E193EE119A65CC871
 ```bash
 magnet:?xt=urn:btih:04C907C99669B5680AC40AC35BD7BB102549FD13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ EaseUS Partition Master — удобная программа для разби�
 magnet:?xt=urn:btih:F64B4523D3472F1FC43B1B195B175B05F5FD6816
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:F64B4523D3472F1FC43B1B195B175B05F5FD6816
 ```bash
 magnet:?xt=urn:btih:4973F26AED3AAE1CAF8B14519513C065027A8452
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Mix Art - Sketch & Painting - экшен фотошоп даёт вашим из
 magnet:?xt=urn:btih:EE92D6FBE143DF41C011D57C2303A94DB15FBAA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:EE92D6FBE143DF41C011D57C2303A94DB15FBAA5
 magnet:?xt=urn:btih:F4AA03D7078DA727139D5B023651B56A836E0D2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:F4AA03D7078DA727139D5B023651B56A836E0D2F
 ```bash
 magnet:?xt=urn:btih:94FB8795D067B34CD3F2769355B71A56071C47C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ VA - 100 Rock Ballads Vol.3 (2019) [MP3|320 Kbps] <Rock, Ballads>
 magnet:?xt=urn:btih:AA2437FCE06341A4B103F0500264C842EBB5861A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:AA2437FCE06341A4B103F0500264C842EBB5861A
 magnet:?xt=urn:btih:DB1A1E060475C7C89B1E322304F9CF98286A7CCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:DB1A1E060475C7C89B1E322304F9CF98286A7CCB
 ```bash
 magnet:?xt=urn:btih:F210B0FC1516ABC866261292CF320E698231FE0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ VA - Glimmer Chillout (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:B0048900D85CCDC301872B60D1B483A6CB3F52FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ VA - Заключительная осенняя дискотека. Верси�
 ```bash
 magnet:?xt=urn:btih:39580F95B2C1E6A2441F5057EDFDE338336607FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ VA - Absolute Uplifter Vol.4: Spirit Of Trance (2016) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:AA0A3862B01E6A32905ECBD8690A89E1553D825C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ VA - Beatport Trance Pack (03.12.) (2016) [MP3|320 Kbps] <Trance, Harmonic, Voca
 ```bash
 magnet:?xt=urn:btih:3B9AE932C0B39A63B6F7C53854CF53B46FB68A69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +662,8 @@ Paris Jazz Big Band - Source(s) (2012) Cristal Records[FLAC|Lossless|tracks + .c
 magnet:?xt=urn:btih:C5EA24FB5F9AD0860DEE4F72E15A8020BEA570A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ magnet:?xt=urn:btih:C5EA24FB5F9AD0860DEE4F72E15A8020BEA570A4
 ```bash
 magnet:?xt=urn:btih:9486C44A1EECA60FB813BA2273646A54F477A66D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:CF5DD0FBE6B588957611ADF39BDA3868C4512C83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Rod Stephens | [O'Reilly] Алгоритмы и структуры данных 
 magnet:?xt=urn:btih:F0974309876729F637ADE90D83AA633503FC4C96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ IQComp | Коллекция обучающих видеоуроков с сай�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ YII2 представляет собой высокопроизводитель�
 magnet:?xt=urn:btih:DD79DA7AFE5512858CC617DF074B11BFF020E13B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ SolidWorks является ядром интегрированного комп
 magnet:?xt=urn:btih:60C8F5BC130E02ADFB2380C1EB061E1DF57B97F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ ItGid, Александр Лущенко | HTML для JavaScript разрабо
 ```bash
 magnet:?xt=urn:btih:4CDA270D5058670CD2990DD747770ECC14BB7CBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:4CDA270D5058670CD2990DD747770ECC14BB7CBB
 magnet:?xt=urn:btih:4A29C63B643459A120CD645D67779B5496E7E045
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ Javabegin | Angular для начинающих (2020) PCRec [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:E46BAC44356F214683ED1571C454FEFB781265B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ Udemy / Cronis Academy | Оценка сложности алгоритмов. �
 magnet:?xt=urn:btih:B5E7BA294C94D669B8FFB918917CB3C0E4F09896
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ Udemy / Cronis Academy | Двоичные числа. Все о дополнит
 magnet:?xt=urn:btih:ECCBEBB325A7F82BB7BF107F9672294835AEF976
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ Udemy / Cronis Academy | Бинарное дерево поиска (2019) PCRec
 ```bash
 magnet:?xt=urn:btih:BB008A1958FBC7903916EC2B4ECC6A9D0B9D834B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:BB008A1958FBC7903916EC2B4ECC6A9D0B9D834B
 magnet:?xt=urn:btih:FAA01227DF4E48261766EAB569C3761584307A92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ Pluralsight.com | Начало работы с MariaDB / Getting Started with Ma
 ```bash
 magnet:?xt=urn:btih:AF12462685933157D1CFF5E38495C83523F0E84A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ jQuery – популярная JavaScript библиотека для орга�
 magnet:?xt=urn:btih:A6459183DED4B15DBE73208C7F3192A193F78333
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:A6459183DED4B15DBE73208C7F3192A193F78333
 ```bash
 magnet:?xt=urn:btih:21D1C746B20FE19B4C023ADE93D82A66A50A7BD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:21D1C746B20FE19B4C023ADE93D82A66A50A7BD0
 magnet:?xt=urn:btih:1C49F1E6362337006C0FAF8D94566A9BA14AECB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ Stepik, Артём Прытков | Tableau Профессионал (2021) WEB-
 ```bash
 magnet:?xt=urn:btih:1427A3E030641133DEEB8C9774BB9441F8FDA4FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ Podlodka, А. Ложечкин и др. | Podlodka Soft Skills Crew - Комму
 magnet:?xt=urn:btih:561C0E8A97A991B050F66EAE57D034ACC3B56DAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ Udemy, Dennis Ivy, Brad Traversy | Django with React | An Ecommerce Website  (20
 magnet:?xt=urn:btih:BE4406E25FAD24D876D73C2CB350DB8DEAD74B6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ HitFilm Pro - это захватывающая программа для соз
 magnet:?xt=urn:btih:A9454757832E06156691522D339A90895ABAD30F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ Pluralsight.com | Мониторинг MySQL с помощью Performance Schem
 ```bash
 magnet:?xt=urn:btih:9615ADE6335C7955B7C925B35F49BD2CE9A365B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ Nomad Coders | YouTube CloneCoding (2021) WEB-DL [En]
 magnet:?xt=urn:btih:1D56DFE0B54E1F0ADED2DED58E313A59C5A70DA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ RealPython | Data Collection & Storage (2019) WEB-DL [En]
 ```bash
 magnet:?xt=urn:btih:A7006CBF09DF2B95167287A2B4184428AB837C42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +640,8 @@ Pluralsight.com | Оптимизация запросов MySQL и настро�
 magnet:?xt=urn:btih:7BE0CF915D32C04F1A77668A627CA84F9C096D70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +665,8 @@ Pluralsight.com | Индексирование MySQL для производит
 ```bash
 magnet:?xt=urn:btih:F1F4F46E88584370FECDE1A325C238B57F7E4C41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +693,8 @@ SOLID, Connascence, Cohesion и Coupling — практики, который п
 ```bash
 magnet:?xt=urn:btih:9065B264ECB5AC029042C2234B2665BE29C5E82D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

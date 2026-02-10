@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:09B96A58F25EEE794D937EDDEE932B43C142AC34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ The Legend of Heroes: Trails of Cold Steel 4 – продолжение леге
 ```bash
 magnet:?xt=urn:btih:60C3C8E81761D503E4EF1BAA3EE4EE4EA7763B3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:60C3C8E81761D503E4EF1BAA3EE4EE4EA7763B3A
 magnet:?xt=urn:btih:E747251877273288629C3C8E7AE4CBF4D6A80766
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:E747251877273288629C3C8E7AE4CBF4D6A80766
 ```bash
 magnet:?xt=urn:btih:89DF2713C4413281474F1F4A474DC33636D87BA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:89DF2713C4413281474F1F4A474DC33636D87BA4
 magnet:?xt=urn:btih:13A3B07AD0F95FE6AFFC4C87AD01DF8E2B3F4A60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:13A3B07AD0F95FE6AFFC4C87AD01DF8E2B3F4A60
 magnet:?xt=urn:btih:1972CB620D8BB867CECF10665C675C91D6DC0B42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:1972CB620D8BB867CECF10665C675C91D6DC0B42
 ```bash
 magnet:?xt=urn:btih:798479861F8E45E14566D08CCAF3C2298A042B53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:798479861F8E45E14566D08CCAF3C2298A042B53
 magnet:?xt=urn:btih:EFF5D777DAE305BC2C8327C5E04904D15300FAB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:EFF5D777DAE305BC2C8327C5E04904D15300FAB6
 ```bash
 magnet:?xt=urn:btih:F766E7212C99732627988B6664AD3F88EEC53D6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:F766E7212C99732627988B6664AD3F88EEC53D6F
 magnet:?xt=urn:btih:AFCF667143D3B1EE5535A9C49873C0D301DD95C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:AFCF667143D3B1EE5535A9C49873C0D301DD95C1
 ```bash
 magnet:?xt=urn:btih:C4BA338083C9EFC924780B63A52C042CE628FC9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:C4BA338083C9EFC924780B63A52C042CE628FC9D
 magnet:?xt=urn:btih:51918D060D762B2D4E9C901352DE9D5418E282DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Need for Speed: ProStreet HD (2024) [Ru] (1.1) Repack/Mod Финиган
 ```bash
 magnet:?xt=urn:btih:A73E08BD0C8A87B17B5FCBDE31AB4D72246B83FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:A73E08BD0C8A87B17B5FCBDE31AB4D72246B83FA
 magnet:?xt=urn:btih:67DE538824F3A53F9568BB7D5DE2C7E92C4860DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:67DE538824F3A53F9568BB7D5DE2C7E92C4860DE
 magnet:?xt=urn:btih:E4E6C6403389BE904325384706E920A01B937228
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ ZBrush – это программа для цифровой скульптур�
 ```bash
 magnet:?xt=urn:btih:773DF6835B5AD0EA94C204DFF565786777FA5046
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:773DF6835B5AD0EA94C204DFF565786777FA5046
 magnet:?xt=urn:btih:47779893F02FE1A585C9281495DA0B6392F69E92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:47779893F02FE1A585C9281495DA0B6392F69E92
 ```bash
 magnet:?xt=urn:btih:947A500942EF31D0506DE4F074F03279D3C99BCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:947A500942EF31D0506DE4F074F03279D3C99BCC
 magnet:?xt=urn:btih:3B371481C20AC99BA4C17C69AA2E272616AB6B85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:3B371481C20AC99BA4C17C69AA2E272616AB6B85
 ```bash
 magnet:?xt=urn:btih:F028B092CF6859AC8AE8497BB722AFBCA2815374
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:F028B092CF6859AC8AE8497BB722AFBCA2815374
 magnet:?xt=urn:btih:631C2E59E212D97BEB714E5F87B54D81817F6E2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:631C2E59E212D97BEB714E5F87B54D81817F6E2E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ Clive 'N' Wrench повествует о приключениях зайца К�
 magnet:?xt=urn:btih:084BFCAFAFDAC75904E5136B136FE1996094A5E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:084BFCAFAFDAC75904E5136B136FE1996094A5E2
 magnet:?xt=urn:btih:169FC02963EE0F6348E9435E72BA82F6FEFBECE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:169FC02963EE0F6348E9435E72BA82F6FEFBECE3
 ```bash
 magnet:?xt=urn:btih:252F3440761617C6226DF0EA7878F88FA41CBE30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:252F3440761617C6226DF0EA7878F88FA41CBE30
 ```bash
 magnet:?xt=urn:btih:931E51CA7FA2FAEF636F30E8CCDD6D6D622150CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1845190   (1050550) от 31.12.2025
+
+Мария Макаренко | Путь императрицы. Как получать желаемое и позволить себе роскошную жизнь (2025) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почему одни девушки купаются в роскоши и внимании, могут с удовольствием жить за чужой счет, принимая дорогие подарки, а другим даже в праздники не дарят цветы? Как стать той самой, незабываемой женщиной, ради которой он готов на все?
+В своей дерзкой и провокационной книге психолог Мария Макаренко делится секретами построения отношений, о которых мечтает каждая. (   Читать дальше...   )Жанр: Саморазвитие, личностный ростИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CBA10F494F96D798B8CC62399CF6BB56C3AA2A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1845476   (1050643) от 31.12.2025
 
 Сибирская Благозвонница | Свидетели Воскресения Господня (2013) [PDF]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:F896E1E32CDA394BD100E72C2AE316454A3D964A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:F896E1E32CDA394BD100E72C2AE316454A3D964A
 magnet:?xt=urn:btih:E37E27F4B6578AC182F91ACBEDDF7BDE3DB3653F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +98,8 @@ magnet:?xt=urn:btih:E37E27F4B6578AC182F91ACBEDDF7BDE3DB3653F
 magnet:?xt=urn:btih:9F5D5F0716032E13388144EFE1DD407BFD637854
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +123,8 @@ magnet:?xt=urn:btih:9F5D5F0716032E13388144EFE1DD407BFD637854
 ```bash
 magnet:?xt=urn:btih:15895BD6B82C51F4566D386A3E5E47D73ED8B550
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +152,8 @@ magnet:?xt=urn:btih:15895BD6B82C51F4566D386A3E5E47D73ED8B550
 magnet:?xt=urn:btih:05E579D5A3CAC7177E0489FA83BA729999EA7387
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +177,8 @@ magnet:?xt=urn:btih:05E579D5A3CAC7177E0489FA83BA729999EA7387
 ```bash
 magnet:?xt=urn:btih:0F5CE6DA8A72DF2D525C205BDDE041C56CDE50BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +204,8 @@ magnet:?xt=urn:btih:0F5CE6DA8A72DF2D525C205BDDE041C56CDE50BC
 magnet:?xt=urn:btih:BC7A6D584AED743FC863C319907EEB863C1A136E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +230,8 @@ magnet:?xt=urn:btih:BC7A6D584AED743FC863C319907EEB863C1A136E
 magnet:?xt=urn:btih:2B120D62E93E576C3F067EF7BBC32D0DCE15DF49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +255,8 @@ magnet:?xt=urn:btih:2B120D62E93E576C3F067EF7BBC32D0DCE15DF49
 ```bash
 magnet:?xt=urn:btih:D95605297D499C918D547FE8D56CD1583F548075
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +284,8 @@ magnet:?xt=urn:btih:D95605297D499C918D547FE8D56CD1583F548075
 magnet:?xt=urn:btih:5D1D972E57FFD04C408B332A1FBAD2B75C422474
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +309,8 @@ magnet:?xt=urn:btih:5D1D972E57FFD04C408B332A1FBAD2B75C422474
 ```bash
 magnet:?xt=urn:btih:815363669FB33359FDB1528F775EC6A615BB2B16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +336,8 @@ magnet:?xt=urn:btih:815363669FB33359FDB1528F775EC6A615BB2B16
 magnet:?xt=urn:btih:F21A7E3654E44D06934351B52FBF02844AE12328
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +361,8 @@ magnet:?xt=urn:btih:F21A7E3654E44D06934351B52FBF02844AE12328
 ```bash
 magnet:?xt=urn:btih:F0A537577B762D8F59064FC432A26482EF934379
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +388,8 @@ magnet:?xt=urn:btih:F0A537577B762D8F59064FC432A26482EF934379
 magnet:?xt=urn:btih:2E2BE9B6505FB157455C7FED83160457EED5686C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +413,8 @@ magnet:?xt=urn:btih:2E2BE9B6505FB157455C7FED83160457EED5686C
 ```bash
 magnet:?xt=urn:btih:6BCC1BD82CCD03C23ACB6C59D1F4CD10EF07622A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +440,8 @@ magnet:?xt=urn:btih:6BCC1BD82CCD03C23ACB6C59D1F4CD10EF07622A
 magnet:?xt=urn:btih:A48A8ED1DDEC9457256664361A7BF13B55A90721
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +465,8 @@ magnet:?xt=urn:btih:A48A8ED1DDEC9457256664361A7BF13B55A90721
 ```bash
 magnet:?xt=urn:btih:63CDD2A0B48C7553FAD82F8C56655AE0D4AD0BBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +494,8 @@ magnet:?xt=urn:btih:63CDD2A0B48C7553FAD82F8C56655AE0D4AD0BBB
 magnet:?xt=urn:btih:417265A406A4A598FEF42D8EA4B349C487D25246
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +519,8 @@ magnet:?xt=urn:btih:417265A406A4A598FEF42D8EA4B349C487D25246
 ```bash
 magnet:?xt=urn:btih:63B7EDB6A023E3BAFFFD7B1AC32F7D92C264B18D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +546,8 @@ magnet:?xt=urn:btih:63B7EDB6A023E3BAFFFD7B1AC32F7D92C264B18D
 magnet:?xt=urn:btih:D17701C026074B3D65C2B73C1793FBF743AB0A7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +572,8 @@ magnet:?xt=urn:btih:D17701C026074B3D65C2B73C1793FBF743AB0A7B
 magnet:?xt=urn:btih:CA81E4D418F315833522C7D2F3CAFBAB6ADD0219
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +597,8 @@ magnet:?xt=urn:btih:CA81E4D418F315833522C7D2F3CAFBAB6ADD0219
 ```bash
 magnet:?xt=urn:btih:8F84FBC4A7F599547A82513688669EA48A066D32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +626,8 @@ magnet:?xt=urn:btih:8F84FBC4A7F599547A82513688669EA48A066D32
 magnet:?xt=urn:btih:AFF9066D60E964D6794052C05F753F60F8958016
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +651,8 @@ magnet:?xt=urn:btih:AFF9066D60E964D6794052C05F753F60F8958016
 ```bash
 magnet:?xt=urn:btih:AABDFB6BD9A68976B2FCBFF9738B76DF4C878B07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,29 +678,7 @@ magnet:?xt=urn:btih:AABDFB6BD9A68976B2FCBFF9738B76DF4C878B07
 magnet:?xt=urn:btih:72D8581FE19E57108F012E3F294F90A69FDEB4F3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846111   (1051150) от 05.01.2026
-
-Сергей Змеев | Перезагрузка. Инсайты миллионера (2025) [PDF, FB2, EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051150.jpg" />
-</div>
-
-
-###  Подробнее
-
-«В этой книге вы не найдете сладостно-медовых способов стать успешными. В ней нет советов, как однажды проснуться богатым, здоровым и любимым. Этим насквозь пронизано все – от детских сказок до магических практик. Верить в волшебство – хорошо! Но делать все приходится самим. Становиться успешными не среди эльфов и гномов, а в городах и мегаполисах среди людей, домов (   Читать дальше...   )Жанр: Психология и саморазвитие, финансово-психологические рассказыИздательство: Питер (Айлиб)Формат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CA280A3ECE715E382F414B825CAF6222206C92F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

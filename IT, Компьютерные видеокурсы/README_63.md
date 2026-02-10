@@ -21,6 +21,8 @@ PSD2HTML | Воркшоп по вёрстке адаптивной веб-стр
 magnet:?xt=urn:btih:524FA7CD3F10969406650BBC65C864A6C47ED430
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Extended Java Tutorial.
 magnet:?xt=urn:btih:C320A85447AC402A6B4A49700622F63FF06EFE48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ SynforgeTutorials | Basic Java, Java Swing (2013) PCRec [H.264/720p] [EN]
 magnet:?xt=urn:btih:48CC3CEC47BD54005CCC4E837B149DC5C9533FCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ PC-Expert | Видеокурс по ремонту ноутбуков (2016) Cam
 ```bash
 magnet:?xt=urn:btih:8655CF2C9B0CA47F1EC29EB47C4F2C12AA9D48CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ WebDesign Master | Все курсы от WebDesign Master (Комплект) (2
 magnet:?xt=urn:btih:E3F09F5B0BB6E18459B9EB4ED69ADF60AF87F0EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ GeekBrains | HTML/CSS. Основы создания сайтов (2015) PCRec [
 ```bash
 magnet:?xt=urn:btih:1E901C22DCCF12F09E1AB9FEF143E5C083909B93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ JavaScript обычно используется как встраиваемый
 magnet:?xt=urn:btih:E426D5FA8A0E30F143BFA7288B36044AB80C7F90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ LoftSchool | Быстрый старт в AngularJs (2015) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:FF7A5D2A970902ECCEC046E2D217E031FBD0EE93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ AX64 Time Machine одна из тех программ где невозмож�
 ```bash
 magnet:?xt=urn:btih:62D0658AD71BE4AFD3D2222CFBBC06DED073A442
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ Web-разработка, системные утилиты, десктопны�
 magnet:?xt=urn:btih:29B43124F179E3AE2F6FF4F8CA4E3CD076610FB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ Geekbrains | Работа программиста. Чему не учат в у
 magnet:?xt=urn:btih:DDA34F0B6AEA0E48BDC771DA28C78E2C0639FE3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ Steinberg Internal Mixing Tutorial Vol. I, Vol. II [2012] [RUS]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ Steinberg Internal Mixing Tutorial Vol. I, Vol. II [2012] [RUS]
 magnet:?xt=urn:btih:2BB3296E068C01B6B0F3A62468772EA858926D4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ Big Data — инструменты, подходы и методы обрабо
 magnet:?xt=urn:btih:FA43D64CBE3F2397E86A1BB477AB43924F2D7DEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ Search Engine Education | SEO-ПРАКТИКУМ 3.0 (2015) PCRec [H.264/720p]
 ```bash
 magnet:?xt=urn:btih:72C542D58084B7268753E68BAB146CF11E3F0FE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ magnet:?xt=urn:btih:72C542D58084B7268753E68BAB146CF11E3F0FE3
 magnet:?xt=urn:btih:97D2B1715F2760084642D756679C7FEF6B2BBB48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ magnet:?xt=urn:btih:97D2B1715F2760084642D756679C7FEF6B2BBB48
 ```bash
 magnet:?xt=urn:btih:31F0E08F79EE6E60CD813F1E1156D5B92C8B791B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ Python используется и в стартапах, и в транснац
 magnet:?xt=urn:btih:1474A7DAAC614EA7294132B25820BEF242F1AD19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +517,8 @@ Geekbrains | METEOR. Возможности meteor js на примере нап
 magnet:?xt=urn:btih:0849890975CABAA729E3406E852E2598946CA9CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +542,8 @@ magnet:?xt=urn:btih:0849890975CABAA729E3406E852E2598946CA9CF
 ```bash
 magnet:?xt=urn:btih:A9010A14D1A4AAD5A60E161867103237A6BB56D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +571,8 @@ Skill.im | PowerPoint 2013/2016 [Базовый + Продвинутый кур�
 magnet:?xt=urn:btih:8978DF97603D0098B37292D8C6D921DFDBC40AD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +596,8 @@ ProfIT | PHP (1-3 уровни): Введение в профессию/Проф
 ```bash
 magnet:?xt=urn:btih:F8CE7E81BF0A42CB7DAB06C14B2CD2732F047F36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +625,8 @@ Alex24369 | Боевая машина Linux (2013) PCRec
 magnet:?xt=urn:btih:D98F4AE05D6E4D02020F1FD87F251B67300D4C36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ ProfIT | ReactPHP (2018) PCRec
 ```bash
 magnet:?xt=urn:btih:E9B202980D86530ECC50B2B315CFCA7F18949512
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +680,8 @@ magnet:?xt=urn:btih:E9B202980D86530ECC50B2B315CFCA7F18949512
 magnet:?xt=urn:btih:4124BD2DB61CD064AD133C7C05744E6847BFD7E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +707,8 @@ Front-end Science | БЭМ-платформа (2016) PCRec
 ```bash
 magnet:?xt=urn:btih:A8815117E6FEF0DF90524E991D2B6FEFF814D8D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

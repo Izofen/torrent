@@ -1,654 +1,741 @@
-###  Публикация: 1204938   (784339) от 07.02.2018
+###  Публикация: 1205016   (783793) от 09.02.2018
 
-Оксана Гринберга | Свобода выбора (2017) [FB2]
+VA - Dance Party (2018) [MP3|320 Kbps] <House>
 
->>Художественная литература
->>Фантастика, Фэнтези
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784339.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783793.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Говорят, что нас не убивает, то делает сильнее. Но что-то, определенно, меня добьет! Провалилась в Темный мир в компании любопытного дракона, батончика «Сникерс» и перочинного ножика? Ничего, и не из такого выбирались! Вернулась обратно, прихватив на долгую память древний амулет, за которым охотится маг со змеиным взглядом? Ну, и с этим можно разобраться, хотя придется (   Читать дальше...   )Жанр: Любовное фэнтезиФормат: FB2
+01.  Tritonal  -  Call Me (SJ Remix Remix)  4:04
+02.  Jaki Nelson & Arcando  -  Don't Say That (Original Mix)  2:58
+03.  Corderoy  -  Touch Your Face (Original Mix)  3:31
+04.  Lash  -  I'm Gonna Be There (Andy Bianchini Remix)  2:47(   Читать дальше...   )Жанр: HouseПродолжительность: 01:10:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D5DBCB225AC976E7FA7C0485031CC2BC7A4DCC2
+magnet:?xt=urn:btih:DCBD4FEEB66CC757E8F2F736C4C7E27137D73A95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204860   (784340) от 07.02.2018
+###  Публикация: 1205353   (783794) от 09.02.2018
 
-60-я церемония вручения премии «Грэмми» / The 60th Grammy Awards (2018) HDTV [H.264/1080i-LQ]
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 1-й тур. Китай — Швейцария (08.02.2018) WEB-DL [EN]
 
->>Документалистика и Телепередачи
->>Музыкальные шоу
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784340.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783794.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Юбилейная 60-я церемония вручения премий Grammy состоялась в нью-йоркском комплексе Madison Square Garden, New York City. Ведущим, как и на прошлой церемонии, снова стал британский актер Джеймс Корден. Трансляция на канале CBS.Телекомпания: США / AEG Ehrlich VenturesЖанр: Документальный, Церемония, ТВ-шоуПеревод: Двухголосый закадровый, профессиональный (Яна Чурикова, Алексей Мануйлов / Первый канал)Субтитры: Русские (Teletext, Sub 888)Продолжительность: 01:31:12
+08 февраля 2018 года, четверг. 03:05 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
+Кёрлинг.
+Микст. Круговой раунд. 1-й тур.(   Читать дальше...   )Телекомпания: EurosportЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 02:06:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0A0786CCED7E25853F439383DE89842DA8559B7C
+magnet:?xt=urn:btih:7DF637A7A04ED33D22FC22525D28535B3BDBDDE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204669   (784341) от 07.02.2018
+###  Публикация: 1205114   (783795) от 09.02.2018
 
-Гордон. Елена Бондаренко (04.02.2018) WEBRip [H.264/720p-LQ]
+VA - Music For Dreams Copenhagen Vol.1 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Electronic>
 
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784341.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783795.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Гордон» общественно-политическая программа на украинском телеканале «112 Украина». Выходит по воскресеньям. 4 февраля 2018 гостьей программы «Гордон» была экс-депутат Украины V - VII созывов и просто смелая женщина Елена Бондаренко.
-В эфире обсудили такие темы: майдан в Украине; война на Донбассе, воссоединение Крыма с Россией, участие в российских ток-шоу, «Партия (   Читать дальше...   )Телекомпания: 112 УкраинаЖанр: Политика, телепередачаПродолжительность: 00:45:52
+01.  Oscar Bandersen  -  Running (feat. Bruce) (Original Mix)  3:35
+02.  Aussteiger  -  Zusammenkunft (Original Mix)  5:52
+03.  Willie Graff  -  Second Sun (Original Mix)  7:05
+04.  Troels Hammer  -  The Human Tree (feat. Mariana Sadovska) (Original Mix)  5:11(   Читать дальше...   )Жанр: Downtempo, Chillout, ElectronicПродолжительность: 01:54:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E2FB23F1DFD220A2DC474765E58D5E747AF62B1
+magnet:?xt=urn:btih:8F7154C00E607E2FA89ACB387F7C838FF546C809
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204538   (784342) от 07.02.2018
+###  Публикация: 1204895   (783796) от 09.02.2018
 
-Armik - Pacifica (2018) [MP3|320 Kbps] <Nuevo Flamenco>
+VA - Made In Fun (2006) [FLAC|Lossless|tracks] <House, Electro>
 
->>Other Styles
->>Instrumental
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784342.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783796.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pacifica (4:20)
-02. Forever In Love (5:10)
-03. Caribbean Dreams (4:28)
-04. Heaven In Your Eyes (4:33)(   Читать дальше...   )Жанр: Nuevo FlamencoПродолжительность: 00:49:47
+01.Cicada - The Things You Say (Dirty South Remix) (3:47)
+02.Kortezman Feat. Rozalla - Everybody's Free (3:15)
+03.Mason - Exeeder (Original Mix) (2:56)
+04.Sebastien Leger - Git Girl (3:44)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 01:08:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:36675BFFC0ADBFB12D573992BE0A8CA781E769FF
+magnet:?xt=urn:btih:AEFE167DA20E216B716F5E8055CB653C7F668F77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204731   (784343) от 07.02.2018
+###  Публикация: 1205075   (783797) от 09.02.2018
 
-Dexter Gordon - Gotham City (1981) Columbia [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+VA - Soft House Wintertime Edition (2018) [MP3|320 Kbps] <Deep House, Chillhouse>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Enrico Donner  -  Quote Of The Day (Original Mix)  5:45
+02.  Beatgridded  -  Deep Emotions And Back (Original Mix)  7:21
+03.  Cane Garden Quartet  -  Close To You (Original Mix)  5:30
+04.  Dusty Deckk  -  Acid Lounge (Original Mix)  5:54(   Читать дальше...   )Жанр: Deep House, ChillhouseПродолжительность: 01:27:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F10B2F87C26111D978C7814D217E13E5B33B2F91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204927   (783798) от 09.02.2018
+
+Nurullah CaCan - Chill Out One (2018) [MP3|320 Kbps] <Ambient, Chillout, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Loneliness	4:41
+02.	Relax	6:30
+03.	Green Eyes	4:37
+04.	Night	4:44(   Читать дальше...   )Жанр: Ambient, Chillout, DowntempoПродолжительность: 00:47:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFDA4F2A7687FEB8F3EA20B875483B0AD3731329
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204873   (783799) от 09.02.2018
+
+VA - Clubbers Guide Summer (2010) [FLAC|Lossless|tracks] <Progressive House, House, Electro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Dizzee Rascal - Dirtee Disco (4:46)
+02.Example - Kickstarts (Wideboys Stadium Mix) (4:52)
+03.J2K; Jodie Connor; Wiley - Electric Boogaloo (Find a Way) (2:59)
+04.Dennis Ferrer - Hey Hey (DF's Attention Vocal Mix) (3:30)(   Читать дальше...   )Жанр: Progressive House, House, Electro HouseПродолжительность: 02:33:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95546844651EA3949C219DA8E6263F484C4327C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205339   (783800) от 09.02.2018
+
+VA - World In Lounge: Ethnic Nu Lounge Vibes Selection (2018) [MP3|320 Kbps] <Downtempo, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Caner Soyberk  -  Coffee Shop (Original Mix)  3:49
+02.  Oxala  -  Trance Jungle Percussion (Original Mix)  3:41
+03.  Nicola Semprini  -  Biriani (Original Mix)  2:57
+04.  Percussioney  -  Batuqueiro (Instrumental)  3:51(   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 02:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:865CF34AC64234721162882ABB2B931B85386CD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204909   (783801) от 09.02.2018
+
+James Haskell - James Haskell's Back Row Beats Workout (2018) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Haskell - James Haskell's Back Row Beats Workout (continuous DJ mix 1) (01:08:21)
+02. James Haskell - James Haskell's Back Row Beats Workout (continuous DJ mix 2) (01:07:36)
+03. Cristoph - Slowly Burning (feat Jem Cooke) (07:05)
+04. Dario D'Attis & Sven Tasnadi - I Need (07:21)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 05:04:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C359F5010B7AEB2296F0402D0C3B445CC6BF30B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205011   (783802) от 09.02.2018
+
+VA - Chilhouse Room (Deep Selection) (2018) [MP3|320 Kbps] <Chillhouse, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alpha Carpet  -  Megabytes (Red Zone Mix)  2:33
+02.  Jin Tonique  -  Not Easy (Mark Kay's Deep Mix)  2:45
+03.  Diamond Marquees  -  Nightshadows (Frank Tee's Night Beats Mix)  2:47
+04.  Johnny Divine  -  Noises (Dean Franklin's Royce Mix)  3:21(   Читать дальше...   )Жанр: Chillhouse, Deep HouseПродолжительность: 00:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:257EC21F6E82A477380419815F846488CCCAB8F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205215   (783803) от 09.02.2018
+
+VA - A Taste Of Kandi Summer (2008) [FLAC|Lossless|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Aaron Ross feat. Gia Mellish - Love Potion (4:03)
+02.Wez Clarke & Maxime Hardcastle feat. The Lovely Laura on Sax - Another Chance (Richard Earnshaw Mix) (5:03)
+03.Notus feat. Shena - Still in Love (Original Club Mix) (5:17)
+04.Steve Haines - Be with You (5:38)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:14:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B8C0EC2C87C98256C45391977B3DD3BA21782E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205400   (783804) от 09.02.2018
+
+VA - Air Texture Volume V (Selected By Spacetime Continuum and Juju & Jordash) (2017) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Downtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spacetime Continuum - Flux (06:40)
+ 02. Move D - Gli Ragazzi Di Baia Di Puolo (09:05)
+ 03. Fred P. - Vortex (06:26)
+ 04. Patrice Scott - Synchronicity (06:05)(   Читать дальше...   )Жанр: IDM, Ambient, DowntempoПродолжительность: 02:57:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:488CFA2B61B1438EABA2131B973B1E756336D165
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204984   (783805) от 09.02.2018
+
+VA - Contemporary Chillhouse (A Journey Into Deephouse Music) (2018) [MP3|320 Kbps] <Chillhouse, Deep House, Downtempo>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sixth Sector  -  Reverse Server (Deep & City Mix)  2:40
+02.  Salina  -  Lost Angels (South London Mix)  2:48
+03.  Rox Waltford  -  Red Clouds (Deephouse Mix)  2:50
+04.  Electronique 44  -  Robot 151 (High Soul Mix)  2:44(   Читать дальше...   )Жанр: Chillhouse, Deep House, DowntempoПродолжительность: 01:32:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D9A727B3A6DCFF744548260817F92F0760222D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204969   (783806) от 09.02.2018
+
+VA - James Haskell's Back Row Beats Workout (Mixed by James Haskell) (2018) [MP3|320 Kbps] <Progressive House, Deep House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  James Haskell  -  James Haskell's Back Row Beats Workout (Continuous DJ Mix 1)  1:08:22
+02.  James Haskell  -  James Haskell's Back Row Beats Workout (Continuous DJ Mix 2)  1:07:36
+03.  Cristoph & Jem Cooke  -  Slowly Burning (Original Mix)  7:06
+04.  Dario D'Attis & Sven Tasnadi  -  I Need (Original Mix)  7:21(   Читать дальше...   )Жанр: Progressive House, Deep House, Tech HouseПродолжительность: 05:05:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE4A429F243B54FC46FDD375FC2B554C01877D29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205356   (783807) от 09.02.2018
+
+Chet Baker - But Not For Me (1982) 2003, Random Chance [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz, Mainstream Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784343.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783807.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hi-Fly [09:37]
-02. A Nightingale Sang in Berkeley Square [07:15]
-03. The Blues Walk (Loose Walk) [08:21]
-04. Gotham City [09:19]Жанр: Hard Bop, Post-BopПродолжительность: 00:34:31
+01. Lament [06:55]
+02. Four [04:37]
+03. Line for Lyons [06:33]
+04. Ellen David [08:36](   Читать дальше...   )Жанр: Cool, West Coast Jazz, Mainstream JazzПродолжительность: 00:41:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AEF9D1A4112A28ED3DE3D0D62B21E93DC0F09FA1
+magnet:?xt=urn:btih:4193048FF9AF6538EBD1B8FCBFFCCA7F5F124667
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204644   (784344) от 07.02.2018
+###  Публикация: 1204999   (783808) от 09.02.2018
 
-GiliSoft Video Converter 10.4.0 RePack by Manshet [Ru/En]
+VA - Dudes Of House (30 Groovy House Tunes) Vol.1 (2018) [MP3|320 Kbps] <House>
 
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784344.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783808.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Легкий, быстрый и функциональный конвертер с поддержкой CUDA & NVENC. Конвертирует видео и аудио всех популярных форматов (AVI, MPEG, WMV, DivX, MP4, H.264/AVC, AVCHD, MKV, RM, МОВ, XviD, 3GP, MP3, WMA, WAV, РА, М4А, AAC, AC3, OGG). Видео и аудио можно преобразовать для проигрывания на PSP, PS3, Xbox, iPod, iPad, iPhone, Apple TV, Android-устройствах и пр.Язык интерфейса: Русский, Английский
+01.  Sean Sines  -  It Ain't Right (Apollo & Les Afrique Remix)  5:15
+02.  Miss Luna  -  Daytona Race (Paul Lomax Mix)  8:08
+03.  Oz & Edmond Dantes  -  No Way Back (Vocal Mix)  7:43
+04.  Muzzaik  -  Work It (Alexey Romeo & Julia Luna Remix)  7:09(   Читать дальше...   )Жанр: HouseПродолжительность: 03:19:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD971600CDFC914ACF9DB8F0F4340D32AE78842A
+magnet:?xt=urn:btih:8A71A5E08B04D0B55FAF975AD33B24A2999A597A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204808   (784345) от 07.02.2018
+###  Публикация: 1205282   (783809) от 09.02.2018
 
-Radiohead - Amnesiac (2001) Limited Edition, Book [FLAC|Lossless|tracks + .cue] <Alternative Rock, Experimental>
+VA - We Love House - Winter Edition (2018) [MP3|320 Kbps] <House, Tech House>
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784345.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783809.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Packt Like Sardines In A Crushd Tin Box (04:00)
-02. Pyramid Song (04:49)
-03. Pulk/Pull Revolving Doors (04:07)
-04. You And Whose Army? (03:11)(   Читать дальше...   )Жанр: Alternative Rock, ExperimentalПродолжительность: 00:43:55
+01.  Solardo  -  On The Corner (Original Mix)  7:10
+02.  Mike Mago & Tiggi Hawke  -  Dangerous Behaviour (Extended VIP Mix)  4:18
+03.  CASSIMM & Sam Divine  -  What God Has Chosen (Original Mix)  6:02
+04.  Robosonic & Ferreck Dawn  -  Nine To Phife (Original Mix)  5:14(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 04:10:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B0FCEE84C578D58C82205B79238E3355E1AAFA39
+magnet:?xt=urn:btih:222DEFFC5F4BD6603FED7C88C68B37537C3E9D9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204751   (784346) от 07.02.2018
+###  Публикация: 1205392   (783810) от 09.02.2018
 
-IP Scanner Pro 3.65 [En]
+Roman Slavka - Material That Has Been Stored For A Long Time (2017) CleanError Records [FLAC|Lossless|WEB-DL|tracks] <Experimental, IDM, Abstract, Ambient>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784346.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783810.jpg" />
 </div>
 
 
 ###  Подробнее
 
-IP Scanner Pro - сканер локальной сети для Mac OS X
-IP Scanner - приложение сканирует локальную сеть для установления всех компьютеров и устройств с IP-адресом. Результаты сканирования могут быть организованы так, как вам будет удобно. Как только устройство будет определено, ему можно присвоить любое имя и иконку, для более легкого распознавания в общем списке.
- (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: 10base-t interactiveПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
+01. Morning Earth Hour (05:20)
+ 02. Evening Earth Hour (06:56)
+ 03. Creeping Wave (08:22)
+ 04. Rotation Pull (06:04)(   Читать дальше...   )Жанр: Experimental, IDM, Abstract, AmbientПродолжительность: 00:30:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:84ED6356F3369F1E029DEBEE3A5D91B978B9E230
+magnet:?xt=urn:btih:3CAA4E77DEC0643B6572D814F7FCD040B07C2EC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204688   (784347) от 07.02.2018
+###  Публикация: 1205327   (783811) от 09.02.2018
 
-Яндекс.Браузер 18.1.1.839 Final [Multi/Ru]
+VA - Balearic House Classics Vol.2 (25 All Time House Anthems) (2018) [MP3|320 Kbps] <House, Classic House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Erick Morillo & Eddie Thoneick feat. Shawnee Taylor  -  Live Your Life (Eddie Thoneick Dub)  6:25
+02.  Jerry Ropero & Denis The Menace feat. Jaqueline  -  Coracao (Denis & Jerry's New Bangin Mix)  7:00
+03.  Francesco Diaz & Karl Frierson  -  Say A Little Prayer (Raul Rincon Peaktime Mix)  7:58
+04.  Jonathan Ulysses & Pryce Oliver feat. Futuristic Polar (   Читать дальше...   )Жанр: House, Classic House, DanceПродолжительность: 02:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F83576C9341CA73F44A60EB9AE54003B39FE788
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205374   (783812) от 09.02.2018
+
+VA - Traumfanger Vol.1 Sophisticated Electronica (2018) [MP3|320 Kbps] <Deep House, Downtempo>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Luca Guerrieri  -  Faithful (Original Mix)  6:06
+02.  Boss Axis  -  The Sun (Original Mix)  7:25
+03.  Dave Wincent  -  Family Affairs (Original Mix)  6:18
+04.  Ultravizion  -  Luode (Original Mix)  7:58(   Читать дальше...   )Жанр: Deep House, DowntempoПродолжительность: 02:29:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B68C208E6D3B182F27EABF342319AED920D64750
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205405   (783813) от 09.02.2018
+
+VA - Fourth Listen (2016) People Can Listen [FLAC|Lossless|WEB-DL|tracks] <IDM, Abstract, Downtempo, Experimental>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784347.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783813.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фирменный браузер от компании Яндекс, созданный на базе Chromium. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, интегрированный переводчик, перенос настроек и закладок из других браузеров и пр.Язык интерфейса: Русский, Английский, др.
+01. the_empath - Autoverse (05:30)
+02. Alpturer - Kibo (03:50)
+03. Perfluxe - Illusion (03:52)
+04. Algesis - Misuse (05:47)(   Читать дальше...   )Жанр: IDM, Abstract, Downtempo, ExperimentalПродолжительность: 01:02:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3068BFD78F58E5841D55B4119ACFB87B27F220E5
+magnet:?xt=urn:btih:D1340F25629CB20BA224DC7B0D6AED17F8B912ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204831   (784348) от 07.02.2018
+###  Публикация: 1205407   (783814) от 09.02.2018
 
-Ольга Рудик | Коррекционная работа с аутичным ребенком (2017) [FB2]
+VA - Fifth Listen (2017) People Can Listen [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Abstract, Glitch>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784348.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783814.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В пособии раскрывается одна из наиболее важных проблем в отклонениях развития - аутизм. Представлена информация об особенностях психического развития детей с ранним аутизмом, клинико-психологической классификации, сравнительная характеристика развития моторики, речи нормально развивающегося ребенка и ребенка с РДА, о методах коррекционно-педагогической помощи, диагностике (   Читать дальше...   )Жанр: ПедагогикаФормат: FB2
+01. Oror - Winter see und (05:57)
+02. Andrew Clam - Space Dance (Nearfield Remix) (04:12)
+03. VardenZenix - Triang and the farting snare (04:59)
+04. Kri Tik - Console napping (04:57)(   Читать дальше...   )Жанр: IDM, Ambient, Abstract, GlitchПродолжительность: 01:02:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69511EB214E443C07CC55F0C399285DF3C413B2D
+magnet:?xt=urn:btih:A45EE00EBFD868F43B6E654805525AB79415428F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204216   (784349) от 07.02.2018
+###  Публикация: 1386632   (783815) от 12.06.2020
 
-Остаться неопознанным
+Чума! (2020) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-6 из 6)
 
->>Поговорим
->>Новости
+>>След.
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784349.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783815.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Маски для лица вернулись, как самая заметная модная тенденция. Ожидаемо, если учесть обилие камер.
-На Fashion Week Fall/Winter 2018, наряду со стилистическими отголосками прошлых сезонов (преувеличенные пропорции, неуклюжая обувь и максималистские узоры), более заметной оказалась тенденция: маска для лица. Маски, закрывающие лицо до неузнаваемости показали почти (   Читать дальше...   )
+Это комедия о том, как люди средневековья справляются с новыми карантинными реалиями, пока за стенами замка бушует чума. По сюжету, жители вымышленного городка Нищбург оказываются заперты в замке на карантине. Палачи казнят людей на «удалёнке», печенеги совершают набеги на город в масках.Производство: РоссияЖанр: комедияРежиссер: Байбулат БатуллинАктеры: Максим Лагашкин, Зоя Бербер, Вячеслав Чепурченко, Иван Охлобыстин, Мария Горбань, Игорь Ознобихин, Надежда СысоеваПродолжительность: ~00:18:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ACAA019D53A1D35D01E3D65A5EE13A55C4EA741
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389900   (783816) от 12.06.2020
+
+Чужие / The Dustwalker (2019) BDRip
+
+>>След.
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Упавший космический корабль приносит паразита, превращающего людей в страшных монстров. Чтобы выжить, сержанту Джо Шарп придётся вступить в альянс с пришельцами...Производство: Австралия / Three Feet Of Film,, Head Gear Films, Kreo Films FZЖанр: Фантастика, триллер, драмаРежиссер: Сандра СкиберрасАктеры: Джолин Андерсон, Стэф Доусон, Талина Навиеде, Гарри Гринвуд, Райан Аллен, Хлоя Браун, Нина Дизли, Сэм Дадли, Руби Дункан, Кассандра МагратСубтитры: ОтсутствуютПродолжительность: 01:34:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7BF0024C4F8503ECCB0A851FE20228C44BBFAD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389702   (783817) от 12.06.2020
+
+Bitdefender Antivirus Free Edition 1.0.17.178 Веб-установщик [En/De]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bitdefender Antivirus Free Edition - бесплатный антивирус, использующий вирусные сигнатуры и проактивные технологии Bitdefender для защиты от новых и неизвестных угроз в режиме реального времени. Расплата за бесплатность - отсутствие возможности настраивать защиту под определенный уровень безопасности. В то же время, это делает решение простым и легким в использование (   Читать дальше...   )Язык интерфейса: Английский, Немецкий
 
 ## Скачать торент
 ```bash
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204613   (784350) от 07.02.2018
+###  Публикация: 1389861   (783818) от 12.06.2020
 
-Armik - Romantic Spanish Guitar Vol. 3 (2016) [FLAC|Lossless|image + .cue] <Instrumental, Nuevo Flamenco>
+Чума! (2020) WEBRip [H.264] (сезон 1, серии 1-6 из 6)
 
->>Other Styles
->>Instrumental (Lossless)
+>>Отечественные сериалы
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784350.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783818.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sol De Sevilla (04:33)
-02. Noche De Romance (04:42)
-03. For Every Kiss (04:38)
-04. Only for You (04:37)(   Читать дальше...   )Жанр: Instrumental, Nuevo FlamencoПродолжительность: 00:49:09
+Это комедия о том, как люди средневековья справляются с новыми карантинными реалиями, пока за стенами замка бушует чума. По сюжету, жители вымышленного городка Нищбург оказываются заперты в замке на карантине. Палачи казнят людей на «удалёнке», печенеги совершают набеги на город в масках.Производство: Россия | «Carbon Production»Жанр: комедияРежиссер: Байбулат БатуллинАктеры: Максим Лагашкин, Зоя Бербер, Вячеслав Чепурченко, Иван Охлобыстин, Мария Горбань, Игорь Ознобихин, Надежда СысоеваПродолжительность: ~00:18:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CF9AA334D91C5B083D8351229911421CE189317E
+magnet:?xt=urn:btih:2A46BA311DD911BBEEF67E2A9B518CD2B877B82B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204689   (784351) от 07.02.2018
-
-Журнал | Вопросы кибербезопасности №5 (2017) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784351.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Вопросы кибербезопасности» - это научный, периодический, информационно-методический журнал с базовой специализацией в области информационной безопасности. На страницах журнала печатаются статьи российских и иностранных ученых в области информационной безопасности и информационного противоборства, в первую очередь материал по кибербезопасности, безопасности приложений, (   Читать дальше...   )Жанр: КибербезопасностьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6CC916D14AE41A6EB17DFF08EF5C4690F0444E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204794   (784352) от 07.02.2018
-
-Матч всех звёзд НХЛ 2018. Суперскиллз / NHL All-Star Weekend 2018. Skills Competition  (27.01.2018) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784352.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 января 2018 года, воскресенье. 03:00 МСК
-27 января 2018 года в рамках Матча всех звёзд НХЛ состоялось «Мастер-шоу», которое включало в себя 6 конкурсов. Суперскиллз Матча всех звёзд НХЛ – конкурсы, проводимые перед Матчем всех звёзд НХЛ.
-За победу в каждом конкурсе игрок получает $ 25 тыс.
-В программе Суперскиллз Матча всех звёзд НХЛ 2018:(   Читать дальше...   )Телекомпания: Eurosport GoldЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:00:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:960B89D3DBA3281C3FC46B508BB1633ABED40158
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204747   (784353) от 07.02.2018
-
-BBEdit 12.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784353.jpg" />
-</div>
-
-
-###  Подробнее
-
-BBEdit - популярный текстовый и HTML редактор. Эта программа специально разработана для удобного редактирования текста, поиска, трансформации, создания HTML-тегов, написания и правки кода программ в различных языках программирования. BBEdit создан непосредственно для программистов и разработчиков, то есть для людей, которым приходится иметь дело с кодами программ (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2018Разработчик: Bare Bones Software, Inc.Поддерживаемая ОС: OS X 10.11.6 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:291545DE01C04EF313089F6CDD4DB6B352A1E900
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204704   (784354) от 07.02.2018
-
-Нина Кавалли | Я, мой убийца и Джек-потрошитель (2016) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смертельна для жертвы одержимость маньяка. А смертельна ли она для меня, мага-наблюдателя? Я изучаю историю Джека-потрошителя, возвращаюсь на сто лет назад, чтобы следить за ним. Погружаюсь во тьму лондонских трущоб, вижу, как самый знаменитый серийный убийца разделывается с женщинами. Мне нужно время несчастных жертв, время, которое они бы прожили, если бы не погибли. (   Читать дальше...   )Жанр: Городское фэнтези, Детективное фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89F92F2AE3972B66691661F5AF41D8AFF8AE77B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204926   (784355) от 07.02.2018
-
-Олег Коряков | Странный генерал (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784355.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Странный генерал» – Эта удивительная история о Петре Ковалеве и его друге Дмитрии Бороздине. Выдумка это или нет не знает и сам автор. Но это точно историческая правда. Конец XIX века. Двое молодых друзей-старателей с уральских приисков, Дмитрий и Петр, наслушавшись рассказов старшего товарища, отправляются в поисках лучшей жизни в Южную Африку. С немалыми приключениями (   Читать дальше...   )Жанр: ПриключенияПродолжительность: 12:47:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:670D9324BFAFD984157DAEF2C67015B55F54B2DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204680   (784356) от 07.02.2018
-
-Ларс Свендсен | Философия моды (2007) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Философия моды – книга о взаимоотношениях между модой, современностью и идентичностью человека. Мода – одновременно привычный и таинственно элитарный мир, в котором мы все живем, покупаем ли мы новую пару джинсов, читаем Vogue или смотрим последний эпизод сериала. Ларс Свендсен исследует мир моды, его мифы, идеи, историю, породившую от кутюр, обязательные тренды, (   Читать дальше...   )Жанр: ФилософияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65E361FB2D1B9CD075E1835332B03857D9FE0AF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204717   (784357) от 07.02.2018
-
-Vidiot 0.3.21 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой и бесплатный нелинейный видеоредактор. Позволяет обрезать и вырезать кадры из видео, добавить эффекты перехода между клипами, удалить пустые дорожки, вращать изображения, настроить частоту кадров, уровень громкости, непрозрачность и другие параметры. Поддерживает многие популярные медиаформаты: AVI, MOV, MP4, WAV, MP3, JPG, GIF и т.д.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBE239EC81122472E864AD7D5807C07FE9E79B3B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204789   (784358) от 07.02.2018
-
-VA - Love Hits Vol.3 (2018) [FLAC|Lossless|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer & Roxanne Emery - Lullaby (Original Mix)
-02. Aelyn - Water & Fire (Ruslan Radriges Extended Remix)
-03. Frainbreeze & VIKA - Better Day (Extended Mix)
-04. LTN - Coconut Island (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2E4A1C981A59DD5CA8337455662D553F2926A4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204791   (784359) от 07.02.2018
-
-Матч всех звёзд НХЛ 2018. Суперскиллз / NHL All-Star Weekend 2018. Skills Competition (27.01.2018) WEB-DL [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784359.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 января 2018 года, воскресенье. 03:00 МСК
-27 января 2018 года в рамках Матча всех звёзд НХЛ состоялось «Мастер-шоу», которое включало в себя 6 конкурсов. Суперскиллз Матча всех звёзд НХЛ – конкурсы, проводимые перед Матчем всех звёзд НХЛ.
-За победу в каждом конкурсе игрок получает $ 25 тыс.
-В программе Суперскиллз Матча всех звёзд НХЛ 2018:(   Читать дальше...   )Телекомпания: Setanta Sports Eurasia HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:14:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC93A16B8C6706F2D1879034DA6D19D7AC8F2F19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204850   (784360) от 07.02.2018
-
-Auslogics BoostSpeed 10.0.4.0  [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics BoostSpeed - популярный набор инструментов для оптимизации и настройки вашей операционной системы. С помощью этой программы вы сможете значительно оптимизировать работу вашей системы, с легкостью настроить различные параметры Windows, очистить жесткий диск и системный реестр от мусора и ненужных записей, сделать дефрагментацию дисков и реестра, а также (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C22098C24E877E16B7E44F187B4ED3A4315EEB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204785   (784361) от 07.02.2018
-
-Дан Сельберг | Синон (2018) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мало кто знает его имя. А тем немногим, с кем он имеет дело, этот человек известен как Синон. Он многолик – и в то же время безлик. Он ничтожен пред Богом – и в то же время у мира нет врага страшнее его. Потому что он собирается этот мир уничтожить. Используя новейшие компьютерные технологии, Синон хочет распространить среди людей вирус, не дающий им ни единого шанса (   Читать дальше...   )Жанр: Зарубежные детективы, Современные детективы, ТриллерыПеревод: Ольга БоченковаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1AF5E791572C35B6A00331A9EBE8BBC4FA99CF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204839   (784362) от 07.02.2018
-
-Wise Disk Cleaner 9.6.3.686 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстрая, удобная и простая в использовании утилита для очистки жестких дисков от ненужных, временных и неиспользуемых файлов. Определяет более 50 типов мусорных файлов, а также можно самостоятельно добавлять новые форматы. После сканирования системы на наличие нежелательных файлов можно просмотреть подробную информацию о каждом и самостоятельно решить, что удалять.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C00CCDA7B08F283E7991229973EA7AC65EE1EEF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204539   (784363) от 07.02.2018
-
-Luther Allison - Bad News Is Coming (1972) Remastered, 2001, Motown [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784363.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Little Red Rooster
-2. Evil Is Going On
-3. Raggedy And Dirty
-4. Rock Me Baby(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6E59C27923E4363E8815A87243D477DD85AD39D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204820   (784364) от 07.02.2018
-
-One Chat - All in one Messenger 4.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784364.jpg" />
-</div>
-
-
-###  Подробнее
-
-One Chat объединяет в себе все сервисы обмена сообщениями в одном простом приложении для Mac. WhatsApp, Facebook Messenger, Telegram, Skype и Slack - одно приложение для всех служб обмена мгновенными сообщениями.
-
-Особенности:
-Возможность отправить фото и видео.(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2017Разработчик: AppYogi SoftwareПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:160D9DFCFA2D84244F55305D976EC264B3AE9BEB
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

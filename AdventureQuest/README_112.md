@@ -1,27 +1,3 @@
-###  Публикация: 1599756   (1043114) от 04.02.2023
-
-American Fugitive (2019) [Ru/Multi] (1.1.19095) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043114.jpg" />
-</div>
-
-
-###  Подробнее
-
-American Fugitive - классический экшн с открытым миром и изометрическим видом. Основатели компании Fallen Tree Games, разработавшей этот проект, славятся и другими первоклассными детищами: TimeSplitters, Crysis, Black и Goldeneye 007: Reloaded. В тихом городке Рэдрок кипит преступная жизнь. Вы - Уилл Райли. Не ангел, но и не убийца. После обвинения в хладнокровном (   Читать дальше...   )Тип издания: LicenseРазработчик: Fallen Tree Games LtdЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8322D66662C922C4FAD2B991DE9B378A0030D558
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 427386   (1045009) от 16.01.2023
 
 Иван Царевич и Серый волк (2011) [Ru] (1.0) License
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:8322D66662C922C4FAD2B991DE9B378A0030D558
 ```bash
 magnet:?xt=urn:btih:3617518248F9BF9ED9D2D3147EE309674CA6B220
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ My Grandparents' Christmas Mystery (2022) [En] (Build 10272844) Repack Other s
 magnet:?xt=urn:btih:9BF6F6D76BFFC4711767A4B280709E050DCCF27F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Children of Silentown — приключенческая игра в жанре 
 ```bash
 magnet:?xt=urn:btih:8F4C3521503975526BCAF7F5671E4A0E1863F797
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ September 7th (2023) [Ru/En] (1.0) Repack Other s
 magnet:?xt=urn:btih:552EF1D73527D490717DE30F5655A2906C157D48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Interrogation: You Will Be Deceived (2019) [En] (1.1.9.a1704342) License GOG
 ```bash
 magnet:?xt=urn:btih:5C1C149475C78469745818BBB1CA4FCF5F61449C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Sable (2021) [Multi] (4.3.4) License GOG
 magnet:?xt=urn:btih:EABCA7289D7183B3DC43C7D66ECD2845B03C46D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Riven (2024) [Ru/Multi] (1.7.5) Repack Necros
 ```bash
 magnet:?xt=urn:btih:FCF6F27711EBF52D90847CEE5A10626D8FE03D0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Fran Bow — приключенческая игра, рассказывающа
 magnet:?xt=urn:btih:4421AF89DEF6A7CABAA671AC603F769F3F14F32F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ Disney Villains Cursed Cafe (2025) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:3521EC1F2F659B99CDE5DA13DBC078AB0071E169
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ Myst (2021) [Ru/Multi] (3.0.9) Repack Necros [VR]
 magnet:?xt=urn:btih:21C669449F0B2E6A09E5DA2458B48CFE6B4A8025
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ Miside - это игра в жанре приключения от первог�
 ```bash
 magnet:?xt=urn:btih:0B1B6475DBC38E4E456515C31372FF792B6487CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ Split Fiction (2025) [Ru/Multi] (1.0) Repack dixen18
 magnet:?xt=urn:btih:E9C9F2D5F5E97DC09110D334984F2170D1C1C6EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ Galador: The Prince and the Coward / Галадор: Проклятие Прин
 ```bash
 magnet:?xt=urn:btih:964FBF672399110B894A8CC5C270D966CD04FB00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ Please Be Happy – игра с упором на повествование. И
 magnet:?xt=urn:btih:D05EF66B1A440168DB2852625E580AEF272C3032
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (739124) Repack Necros
 ```bash
 magnet:?xt=urn:btih:88FFFF2027A02A5CFA152D1E620A826E4856C93B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ Silly Polly Beast (2025) [Ru/Multi] (1.1) Repack Other s
 magnet:?xt=urn:btih:48B0B6EA20DB07E412371DCD0DEFC19D9634B98B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ Disney Dreamlight Valley – это симулятор жизни с элеме�
 ```bash
 magnet:?xt=urn:btih:FA197E73537F945E23D4E3F0033664535B885D82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ Detroit: Become Human (2020) [Ru/Multi] (12158144) Repack seleZen
 magnet:?xt=urn:btih:FF06C7E68082838F0B63F6A89918D15610872AEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ The Librarian (2020) [Ru/Multi] (1.03a) License GOG
 ```bash
 magnet:?xt=urn:btih:651AD829CAF8C53F570499AEB6C200292B3975CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ Midnight Scenes Episode 2 (2020) [Ru/Multi] (1.19a) License GOG
 magnet:?xt=urn:btih:E72A769D12E34077E322FC75C16001445932B3CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ Midnight Scenes: The Nanny (2021) [En] (1.0a) License GOG
 ```bash
 magnet:?xt=urn:btih:C59FD3D98B39346CCC7AEF8E9FD445F69BAF90AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ Uninvited / Unwelcome (2022) [En] (1.14a) License GOG
 magnet:?xt=urn:btih:13F12BDF918789BFB08BC0924F4AEFF5AB6DA476
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ Midnight Scenes: From the Woods (2023) [En] (1.1a) License GOG
 ```bash
 magnet:?xt=urn:btih:D6AEB55F9ED46761462DAAF11464D7F3D08DB0FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +617,8 @@ Midnight Scenes: A Safe Place (2024) [En] (1.2a) License GOG
 magnet:?xt=urn:btih:33F57C6FCCB9DE9073D53C8C7D88D25767718D22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +642,34 @@ Simon the Sorcerer Origins (2025) [Ru/Multi] (1.0.2.11062025.41663/dlc) Repack L
 ```bash
 magnet:?xt=urn:btih:CB8B70980269A78D7AD0346967CD2900C3CDFD0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840726   (1047481) от 06.12.2025
+
+The Art of Reflection (2025) [Ru/Multi] (2465) Repack Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047481.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Art of Reflection - это игра-головоломка от первого лица, в которой исследуются зеркала, словно вы можете пройти прямо через них. В игре где нет прямых инструкций, а прогресс достигается путем изучения мира. Что произойдет, если вы пересечете зеркало и прогуляетесь по зеркальной стране? А что, если объекты или даже гравитация по другую сторону будут отличаться? (   Читать дальше...   )Тип издания: RepackРазработчик: JustTomcukЖанр: ИндиЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46A2D64B34DB948945A725B56939D093F51FEA8B
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

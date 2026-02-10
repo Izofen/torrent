@@ -19,6 +19,8 @@ Opera One 106.0.4998.19 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:FE39211EB561CB5195A87629C699C883FC6B6F49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ PhpStorm – это интегрированная среда разработк
 magnet:?xt=urn:btih:97359A09591F232B54A231622D701E33F96C5EEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Adobe Photoshop Lightroom — мощный фото- и видеоредакто
 ```bash
 magnet:?xt=urn:btih:5177E5A52A5D560BEE1E0BA9C0C3F090990E8EA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ JetBrains PyCharm Professional – это мощная и многофункци
 magnet:?xt=urn:btih:AB5D87791F06E3489FC5EB371873544BE575B65B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Tor Browser Bundle 13.0.8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:5E3DE7134E3CD13E4F374AA2F952B29F34E4955F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Tate no Yuusha no Nariagari Season 3 | The Rising of the Shield Hero Season 3 | 
 magnet:?xt=urn:btih:085D9142B773BC7513C2174CB469DBBF6A71E5F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:2CF469F836BBC52097723D9687B18AF1C50C99B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ FastStone Capture представляет собой довольно мощн�
 ```bash
 magnet:?xt=urn:btih:4FF80BB17637D46E44084747633615A1F0BD9D00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ LDPlayer 9 — мощный бесплатный эмулятор устройс
 magnet:?xt=urn:btih:26618AAE4CE9AB83347782112E2D032A3189DF53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:4455BDD8BB1480BD6D89F2F288228B51944469D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:4455BDD8BB1480BD6D89F2F288228B51944469D3
 magnet:?xt=urn:btih:E03048986BE827D4E97EA3ACBAB275EA0274ADEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:E03048986BE827D4E97EA3ACBAB275EA0274ADEC
 ```bash
 magnet:?xt=urn:btih:513C7048C920BF37FBB976775B6F651E2AE96708
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ PhotoRoom - приложение, что будет одинаково поле�
 magnet:?xt=urn:btih:5EF3F3AC57748A50156144C1DD49B7D0B299608E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Waterfox — это браузер, основанный на исходном �
 ```bash
 magnet:?xt=urn:btih:B2A02891ED3D886DC5EFBD39A657E3CA72303E03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ PowerDirector – Video Editor v13.0.1 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:898AC26DB75C94F39C226BAB85C26C81AF546C4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ ARuler - лучшее и бесплатное приложение на Android 
 ```bash
 magnet:?xt=urn:btih:37B7D395722070507D12C9008B1269A0AD51CF95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ AIMP 5.30 Build 2533 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:4A3A10C67F20C1A2E774AE6927E131FBA2CDFA0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:4A3A10C67F20C1A2E774AE6927E131FBA2CDFA0B
 magnet:?xt=urn:btih:0ADC59342674AC413CDA2884C2B2900581C28634
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ MF Ghost | MF Призрак [2023, TV, 12 из 12 эп.] WEBRip 720p raw
 ```bash
 magnet:?xt=urn:btih:78B670577930AEB39CBD9D9BC268EF2DB4B1EB55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 magnet:?xt=urn:btih:D691F872AA5FBD607F96EBF4E26197916243FF4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ FileZilla - популярный кроссплатформенный FTP кли
 ```bash
 magnet:?xt=urn:btih:DC8A62F513CF1384F553492D10A3668A434A48E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Opera GX - это специальная версия браузера Opera, с
 magnet:?xt=urn:btih:746211532D02D53E06CBF2110D6C09FEF63D2DC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Sandboxie - yтилита для контроля за работой разли
 magnet:?xt=urn:btih:529D957E4C9AC08FF653542DF13EA232C4C4F374
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ Simple Sticky Notes — простая в понимании программа 
 ```bash
 magnet:?xt=urn:btih:A7802D147C1E49CA179BB5A85D3B703C63CFF008
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ WinMerge является весьма полезной для определе�
 magnet:?xt=urn:btih:0835658A270D4EFF2D3476E86576EA9C92E00B17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Subtitle Edit - редактор субтитров. При помощи это�
 ```bash
 magnet:?xt=urn:btih:2FBC71B181B640BC326E6EB472FDC91C98FFD67E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

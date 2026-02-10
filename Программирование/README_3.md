@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:58161BD804210D1A166D06B573D0E532DB1F0ADF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:58161BD804210D1A166D06B573D0E532DB1F0ADF
 ```bash
 magnet:?xt=urn:btih:348A090163C2CD3070363800C72D213D88289A9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:348A090163C2CD3070363800C72D213D88289A9B
 magnet:?xt=urn:btih:6E6005AF8C7130A5A9C1C5C3ECFBDBFF924C9B26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Here is your in-depth guide to cryptography and cryptanalysis in Java. This book
 magnet:?xt=urn:btih:2657BB6B0AED36C5A1D06E542405BD6E804A44DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ In "Database Fundamentals: Strategies for Efficient Access to Information and En
 ```bash
 magnet:?xt=urn:btih:4ABFAD543054E35C2CDDFFD6FC5F763239507242
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Beginning with the basics, this book provides an outline of the steps necessary 
 magnet:?xt=urn:btih:2EE054CAC89C4B16AF6D69A87BCCDF65D9A40ECB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ New agent environments ranging from games, and robotics to finance are explained
 magnet:?xt=urn:btih:03C0AC43890D270E8A4C53E11946F81DF1C393C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:03C0AC43890D270E8A4C53E11946F81DF1C393C5
 magnet:?xt=urn:btih:2D7921C46EE0FA3ADF8B670025CEC0CA60A6D7DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:2D7921C46EE0FA3ADF8B670025CEC0CA60A6D7DF
 ```bash
 magnet:?xt=urn:btih:2620E2C04DE0CE157281A455C00DCB3649B62266
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:2620E2C04DE0CE157281A455C00DCB3649B62266
 magnet:?xt=urn:btih:33286AFB18646BD4DF1FC8A4A8A7A28811E17D0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ PyCharm – лучшая профессиональная среда разра�
 ```bash
 magnet:?xt=urn:btih:FEA1A209B3F7D6051CD0842B8B9B1FA6F7FF0C33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:FEA1A209B3F7D6051CD0842B8B9B1FA6F7FF0C33
 magnet:?xt=urn:btih:32AEA08763BDF3D8A99737E4BAA3F0381C20F049
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:32AEA08763BDF3D8A99737E4BAA3F0381C20F049
 ```bash
 magnet:?xt=urn:btih:1B8F70AD38088D42DEFA6149F529383EF8102CE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:1B8F70AD38088D42DEFA6149F529383EF8102CE9
 magnet:?xt=urn:btih:E73691CD21B7D3161CC95AB8ED3AB70BCDC1F40E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ FastAPI — относительно новый, но надежный фрей�
 ```bash
 magnet:?xt=urn:btih:ED43AAEF70E8770D7A347A3310C140F5D384886E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:ED43AAEF70E8770D7A347A3310C140F5D384886E
 magnet:?xt=urn:btih:970A85A3A427B66C60810BB9E1FD738D9A962006
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:970A85A3A427B66C60810BB9E1FD738D9A962006
 ```bash
 magnet:?xt=urn:btih:A92C443D9E19B618FA2A49F6EDB46627847E85C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ Learn how to build probabilistic models using the Python library PyMC3(   Чит
 magnet:?xt=urn:btih:2AFE8D2B786D2FCBD539A749BB9A247A347240AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ With Head First Python, you’ll quickly grasp Python’s fundamentals, working 
 magnet:?xt=urn:btih:D709CBC5FE019F9E9A49CF134C08740868A1CE27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ R – безусловно лучшая среда для интерактивн
 ```bash
 magnet:?xt=urn:btih:1E87D4C6ED683746D35708ECB5C383DF14424A81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ You’ll examine steps along the entire toolchain, from scraping, cleaning, expl
 magnet:?xt=urn:btih:C78DD0A4275FE46BBCB287FA2449EA1F99B1702B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ magnet:?xt=urn:btih:C78DD0A4275FE46BBCB287FA2449EA1F99B1702B
 ```bash
 magnet:?xt=urn:btih:63BB62574811E3404624994E2EC77821543D502E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +607,8 @@ magnet:?xt=urn:btih:63BB62574811E3404624994E2EC77821543D502E
 magnet:?xt=urn:btih:2D5EFE6B28E48227482736A593512A0F30044151
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +633,8 @@ magnet:?xt=urn:btih:2D5EFE6B28E48227482736A593512A0F30044151
 magnet:?xt=urn:btih:D054EF2B84FD6D29471CC26AEFA77C1D1C9A6B9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ In Learn Python 3 the Hard Way, Zed Shaw taught you the basics of Programming wi
 ```bash
 magnet:?xt=urn:btih:030A5A827153BB56969C51D3A6347B8C42D4E4DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +687,8 @@ In Clean Code, legendary software expert Robert C. Martin has teamed up with his
 ```bash
 magnet:?xt=urn:btih:F808F7F695047D98D3B72F0AEC027FBAAD717447
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

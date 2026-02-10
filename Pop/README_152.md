@@ -1,3 +1,146 @@
+###  Публикация: 1253873   (377372) от 12.10.2018
+
+VA - 100 Hits - The Best Nineties Album (2018) 5CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377372.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. TLC - No Scrubs
+02. Jennifer Lopez - If You Had My Love
+03. NSYNC - I Want You Back(   Читать дальше...   )Жанр: PopПродолжительность: 06:28:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01DB2859A7B16D7B96E12B56602343492EA594F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253934   (377386) от 12.10.2018
+
+St. Vincent - MassEducation (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Baroque Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slow Disco
+02. Savior
+03. Masseduction
+04. Sugarboy(   Читать дальше...   )Жанр: Indie Pop, Baroque PopПродолжительность: 00:45:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72F0FDF7C497159AAAF4704D8ECF939D2C21C995
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949498   (377414) от 23.10.2015
+
+Mark Ashley - Baby Blue (2015) Single [MP3|320 кб/с]<Dance, Eurodance, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby Blue (Single Edit)
+02. Baby Blue (Extended Version)Жанр: Dance, Eurodance, DiscoПродолжительность: 00:10:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8D25BF4EC5D51910389EB9B6E49FC0CC98F3F71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253904   (377508) от 12.10.2018
+
+Passion - Passion (1979) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In New York (11:35)
+02. Midnight Lovers (4:07)
+03. Don't Bring Back Memories (6:37)
+04. Dancing And Romancing (7:47)Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 00:30:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54BA6567157E34C4FDF805F4D489E751C681D8D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254135   (377517) от 12.10.2018
+
+General Lafayette - Love Is A Rhapsody (1992) [FLAC|Lossless|image + .cue] <Pop, Ballad, Instrumental>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377517.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Angel In Blue
+2.	For The Girl Who Couldn't Find Love
+3.	Melody For You
+4.	Angelitos(   Читать дальше...   )Жанр: Pop, Ballad, InstrumentalПродолжительность: 00:54:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CECAF8B8748D7EED7407770DDDE7EA7A33EF4E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1254165   (377519) от 12.10.2018
 
 General Lafayette - King Of The Broken Hearts (1999) [FLAC|Lossless|image + .cue] <Pop, Ballad, Instrumental>
@@ -21,6 +164,8 @@ General Lafayette - King Of The Broken Hearts (1999) [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:48020EDF4B913031BE0477200569577599BBFE24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +194,8 @@ General Lafayette - Jester (1993) [FLAC|Lossless|image + .cue] <Pop, Ballad, Ins
 magnet:?xt=urn:btih:6D7F5807719B1A47C4AD26CD25B25B9DC036607D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +223,8 @@ The Beloved - Conscience (1993) [FLAC|image+.cue]<House,Pop>
 magnet:?xt=urn:btih:72E5877CE01DEFD888CC9E514F3DDF072FB64771
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +251,8 @@ The Beloved - The Sun Rising (2005) [FLAC|image+.cue]<House, Pop>
 ```bash
 magnet:?xt=urn:btih:20E24D3F0A46DB1BDB50CE84F125482904FF9176
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +287,8 @@ magnet:?xt=urn:btih:20E24D3F0A46DB1BDB50CE84F125482904FF9176
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +315,8 @@ Iowa - Import (2016) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:92E23677C701DC96208030BCD3E6A3BEC1F2470D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +351,8 @@ Anastacia - It’s a Man’s World (2012) [MP3|320 кб/с]<Pop,Pop-Rock>
 magnet:?xt=urn:btih:924E6F354E09CCAF257B3E487638C29E1E3D6996
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +380,8 @@ VA - High Life - 20 Original Top Hits (1979) LP [MP3|320 Kbps] <Electronic, Pop-
 magnet:?xt=urn:btih:598BAF603A0D81A9726D66AACC07FB26500B6B2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +408,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:4B4024800D15CFA746A730BCDB85F3906BAEF659
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -279,6 +440,8 @@ magnet:?xt=urn:btih:4B4024800D15CFA746A730BCDB85F3906BAEF659
 magnet:?xt=urn:btih:E0D94C8FA5695ED2BA5482AB9CFD6D7BB48AD56F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +468,8 @@ Frida Gold - Alina (2016) [MP3|320 Kbps] <Pop, Electropop>
 ```bash
 magnet:?xt=urn:btih:015002468B09CEF859DC2354CCA55957B80AA7CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +498,8 @@ VA - Gym Music 2020 - Best fitness songs [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:B952A91361BFACEE0C76DC139F9039121C07F54B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +526,8 @@ Workout Music Tv - 40 Best Pop Hits For Step 2020 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:379AA3A13ED1D8C11C4136296A3CC883CE247C5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +556,8 @@ Blonde On Blonde - ...And How! (1979) Reissue, 2015, Pye Records [MP3|320 Kbps] 
 magnet:?xt=urn:btih:D5DDBB9DEB5AFCF8219A030A86CAF8C75DDF317F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +584,8 @@ Patrick Juvet - 2 Albums (1978, 1979) Reissue CD [MP3|320 Kbps] <Electronic, Pop
 ```bash
 magnet:?xt=urn:btih:E70BF6D4B3B027EF478A2D6F87C9C6C660C8FCB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +614,8 @@ Caelestium - Caelestium (1981) LP [MP3|320 Kbps] <Electronic, Space Rock, Disco>
 magnet:?xt=urn:btih:52AA266DFE881A65E25568F2DFA9D8813939F7C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +642,8 @@ magnet:?xt=urn:btih:52AA266DFE881A65E25568F2DFA9D8813939F7C0
 ```bash
 magnet:?xt=urn:btih:4F908D958F6CDE20511E760ACFEC620BCD20222C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +672,8 @@ CD - 1:
 magnet:?xt=urn:btih:F11C73C703E62B56DE86E3C28029BA5623B6E590
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +700,8 @@ VA - GANGSTER MUSIC, Vol. 6 (2022) [MP3|320 Kbps] <Eurodance, Technopop>
 ```bash
 magnet:?xt=urn:btih:2CB043BECC4FF472E919927C30645A75EB8A0E56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +730,8 @@ Al Bano & Romina Power - Felicita (1985) Gold Serie [FLAC|image + .cue]<Pop>
 magnet:?xt=urn:btih:3101CE00F90F20267A4635DC7D0399DA4DC072AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,137 +756,7 @@ VA - Ретро перепевки (2008) [MP3|320 kbps]<Retro, Pop>
 magnet:?xt=urn:btih:0D43CA99D197D72FF43FFD69BE6AFD6142FA1B2A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068214   (380135) от 01.11.2016
-
-Потап и Настя - Золотые киты - 10 лет (Live in Kiev) (2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (Live)
- 02. Золотые киты (Live)
- 03. Не пара (Live)
- 04. На раЁне (Live)(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA92D8192ED6F4A0668A16E924EA0968F16C6829
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573147   (380258) от 10.11.2012
-
-Алексей Глызин - Крылья любви... (2012) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_380258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:51:29
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068634   (380273) от 01.11.2016
-
-Вадим Козин - К 100-летию со дня рождения (2003) [MP3|320 Kbps] <Ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Любушка
- 02 - Маша
- 03 - Осень
- 04 - Мой костер(   Читать дальше...   )Жанр: РетроПродолжительность: 01:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA3D18A4AD7E18E10B7003CF0129E979C4B605D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068441   (380297) от 01.11.2016
-
-Righeira - 3 Albums (1983-2007) [MP3|320 Kbps] <Electronic, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа была основана в 1981 году. Название группы произошло от переделанной на бразильский манер фамилии одного из участников Stefano Righi — Righeira. В континентальной Европе известность к ним пришла с синглом «Vamos A La Playa», записанным вместе с Кармело и Микеланджело Ла Бионда и выпущенным в 1983 году. Песня не только держалась в течение семи недель в верхней (   Читать дальше...   )Список альбомов:
-1983 - Righeira
-1986 - Bambini Forever
-2007 - MondovisioneЖанр: Electronic, Italo-DiscoПродолжительность: 02:03:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF08363007B736D9EF12DD5DC9F118F9D9560C87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068676   (380447) от 01.11.2016
-
-Вадим Козин - Последний концерт (1995) [MP3|320 Kbps] <Ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. О матери
- 02. Над рекой
- 03. Стан журавлиный
- 04. День и ночь (по Киплингу)(   Читать дальше...   )Жанр: РетроПродолжительность: 00:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EA94C2D3BDF1AFA99C5E5ED0660CFE10AC34289
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

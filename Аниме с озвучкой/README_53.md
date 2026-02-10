@@ -19,6 +19,8 @@ Watashi, Nouryoku wa Heikinchi de tte Itta yo ne! | Я Сказала, Усре�
 magnet:?xt=urn:btih:E39A3898CE283E25E48098ECD22597956F0E28E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Durarara!!x2 Ketsu / Дюрарара!! 2 (сезон третий) [2016, TV, 1
 ```bash
 magnet:?xt=urn:btih:4C08E0177319794DA01676173B9939B4DAD8B5BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Aoi Bungaku Series / Blue Literature Series / Классические исто�
 magnet:?xt=urn:btih:2FC46A9072B4FB1D491E40DA290BD4DFFFB0E36B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Shinchou Yuusha: Kono Yuusha ga Ore Tueee Kuse ni Shinchou Sugiru | Лучше �
 ```bash
 magnet:?xt=urn:btih:4D959545092DD34215379512C47B33766EB664B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Lupin Sansei: Cagliostro no Shiro / Lupin III: The Castle of Cagliostro / Люп
 magnet:?xt=urn:btih:3A9359E48EF51CE62A868D3044F99800E14E1FBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:3A9359E48EF51CE62A868D3044F99800E14E1FBF
 ```bash
 magnet:?xt=urn:btih:1A83A3B2C60D8E0CF47DD146F00917729CC267EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:1A83A3B2C60D8E0CF47DD146F00917729CC267EA
 magnet:?xt=urn:btih:7D6BE8B55CCB8796CD920F218122EAF4813684CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Bishoujo Senshi Sailor Moon Crystal | Pretty Guardian Sailor Moon Crystal | Кр
 ```bash
 magnet:?xt=urn:btih:94309884BBD013D3B74C5B29BEDA588CD7ABC210
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Bishoujo Senshi Sailor Moon | Красавица-Воин Сейлор Мун [T
 magnet:?xt=urn:btih:B014591990F601AF966213EBE6F9CC35FF4B9A11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Bishoujo Senshi Sailor Moon R: Promise Of The Rose | Красавица-Воин
 ```bash
 magnet:?xt=urn:btih:A037602B37BEE4302FC24E7A493671C7D585189E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Bishoujo Senshi Sailor Moon R | Красавица-Воин Сейлор Мун 
 magnet:?xt=urn:btih:E844145E259B8ABC41B17E610083A768E1F87AF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Bishoujo Senshi Sailor Moon S: Hearts In Ice | Красавица-Воин Се�
 ```bash
 magnet:?xt=urn:btih:BF5FE432617619567A4A95C22441D7AF3A596AAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Bishoujo Senshi Sailor Moon Super S: Black Dream Hole | Красавица-Во�
 magnet:?xt=urn:btih:829D676744199CCBE604EC5E1C10A039BCB3E761
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Bishoujo Senshi Sailor Moon S | Красавица-Воин Сейлор Мун 
 ```bash
 magnet:?xt=urn:btih:B8EF9F41BE655B025E2B063090BA1CA9167BA849
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Divine Gate / Божественные врата [2016, TV, 12] HDTV 720p rus
 magnet:?xt=urn:btih:FB1D89BBDE86DB68A074F6EA8A3C17201A9A2833
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Sennen Joyuu | Millennium Actress | Актриса тысячелетия [2004,
 magnet:?xt=urn:btih:24FF5005D0B423CBB237AC924344521EC400C410
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:24FF5005D0B423CBB237AC924344521EC400C410
 ```bash
 magnet:?xt=urn:btih:10C342E796A96141C4A168FB2126618A7795DD17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:10C342E796A96141C4A168FB2126618A7795DD17
 magnet:?xt=urn:btih:C09B00434566092E250A82647FD630755D83A947
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Meikyuu Black Company | The Dungeon of Black Company | Подземелье Чё
 ```bash
 magnet:?xt=urn:btih:E33C2C339D8B5307CE5271579A3BB88CC41A2463
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Youjo Senki | Saga of Tanya the Evil | Военная Хроника Мален�
 magnet:?xt=urn:btih:593A57F4AA45851380B6E18D5B5A14215E4E8152
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Akira | Акира [1988, MV] BDRip 1080p raw + rus
 magnet:?xt=urn:btih:05ADD620672152AF079C0DBD20AD22F368916EA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Sousei no Onmyouji | Две звезды оммёдзи [2016, TV, 50 из 50] B
 ```bash
 magnet:?xt=urn:btih:639EACF400DC8C4992883C923A7CE7D1434C2C17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ Majutsushi Orphen / Sorcerous Stabber Orphen / Волшебник-воин Ор�
 magnet:?xt=urn:btih:DE6B7D50C5F241011C5C3A8EABD19F37DB3B0177
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Cop Craft | Cop Craft | Мастерство копа [2019, TV] BDRip 1080p raw
 magnet:?xt=urn:btih:60C6D2536FA665840117C128A7DFE724EB67A697
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ Kono Subarashii Sekai ni Shukufuku wo! / Этот замечательный м�
 ```bash
 magnet:?xt=urn:btih:BE3761D39C582264D8EB2C458D264F3D6D69C961
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +679,8 @@ Code Geass Hangyaku no Lelouch R2 / Code Geass: Lelouch of the Rebellion R2 / К
 ```bash
 magnet:?xt=urn:btih:6FBC38EF0F424E1BB35E9BB15D23456BAC7DB3AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Electrical Cost / Стоимость электроэнергии v6.1.3 Mod by 
 magnet:?xt=urn:btih:2B1B496B7EEF19C0420A11F322F973353634A149
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ VivaCut для Android - это профессиональный видеоре�
 ```bash
 magnet:?xt=urn:btih:90769E40D2FD3965E2B1B12D15DEEB1019E4FCFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ VN - это видеоредактор предназначенный специ
 magnet:?xt=urn:btih:6A3AC4DE5F92EB0C0C9ABE6EF2BC315823A0C735
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Easy Voice Recorder Pro ваш ежедневный компаньон для з
 ```bash
 magnet:?xt=urn:btih:CCC38F660C3B16920D350BEE04DB3E5947395918
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:CCC38F660C3B16920D350BEE04DB3E5947395918
 magnet:?xt=urn:btih:2AE5418AF5E987A295A01A7B350DB8F0CCD5C298
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Smart AudioBook Player Pro v11.2.8 (A8.0+) Mod by Kirlif' [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:BF123D12E895E826632BE522D74A6F56E5B278B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ KineMaster - Video Editor & Maker v7.6.16.34690.GP Mod by Shadow_Patcher [Ru/Mul
 magnet:?xt=urn:btih:BE9775DA84966DA1A8115510479ADFA68064C4BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:BE9775DA84966DA1A8115510479ADFA68064C4BC
 ```bash
 magnet:?xt=urn:btih:1B08349E8D8BB411642C602A64A47D7F557182EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ RESIZE ФОТО - Копир.изобр - Обрезка изображения 
 magnet:?xt=urn:btih:14FE38F4582CD99592E9839B1199D86CD6B796EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:14FE38F4582CD99592E9839B1199D86CD6B796EA
 ```bash
 magnet:?xt=urn:btih:A22D15F2DC78CE97CD2D3BC143ECAB1981B6263A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Unit Converter Pro / Конвертер Единиц Pro v2.6.3 Mod by Balatan [
 magnet:?xt=urn:btih:2700D9D29609913745E1AC5DFAF13D4E1A4DF558
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Castbox является победителем в категории "Лучш�
 ```bash
 magnet:?xt=urn:btih:B2DFA5A8068BD361B2ED1E2F9CD18A158C2EBFB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ TikTok - социальное приложение для тех кто пред
 magnet:?xt=urn:btih:BB2826401397423292DDB29B60BEF04A35AB9BCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:BB2826401397423292DDB29B60BEF04A35AB9BCE
 ```bash
 magnet:?xt=urn:btih:0877F4830A27586CBF70F5D9A21EF080CFC615C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Electrical Cost / Стоимость электроэнергии v6.1.0 Mod by 
 magnet:?xt=urn:btih:BD9A143ADDFBE5DBA2329904861D29D451E2FF14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Picture Bird позволяет легко распознать птиц вок�
 ```bash
 magnet:?xt=urn:btih:8C636EBC5C9B29C7DA4027AC6F1C31C313FC0143
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ TrackChecker Mobile v2.28.1 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:448DF21798362D4B17EBF622E10D96565B8F446B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Lighting calculations / Расчеты освещения v6.1.0 Mod by Balatan 
 ```bash
 magnet:?xt=urn:btih:88415A277853B23E7A9192F7EC8EF0ED5D489A3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ TuneIn объединяет спортивные события, музыку, �
 magnet:?xt=urn:btih:EDBA4AE5DB1C34E9FB6CFA5946A1A43F3573D292
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ DailyArt — приложение №1 для изучения истории и
 ```bash
 magnet:?xt=urn:btih:5EBD9D108F8C50D9C6E267026A334D56802289EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:5EBD9D108F8C50D9C6E267026A334D56802289EC
 magnet:?xt=urn:btih:18BC5D8CB2B2BA578F233857F035C2FD3407DC36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ PianoMeter – Piano Tuner v3.4.2 Mod by Alex.Strannik [Ru/En]
 ```bash
 magnet:?xt=urn:btih:FCEE020242E67AB9C632A9AEECF73B4E76B98F7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ Photo Mate предлагает библиотеку фотографий, в к
 magnet:?xt=urn:btih:654F0DA6C085D648B06F5903F1E7DBFE84E66594
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ PictureThis - Plant Identification v5.1.4 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C7B37CCBA3BAD606428A4EAA62777C5ABC24F6B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 magnet:?xt=urn:btih:F6694449B7F7D6D97A3A2CB2FA83EC78F49781E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ VideoShow предлагает отличные функции редактир�
 ```bash
 magnet:?xt=urn:btih:D6097D1E6B0E8820D5CD373F0231047C9CE78D49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

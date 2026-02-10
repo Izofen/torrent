@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Heroes of Might and Magic VII / Меч и Магия Герои VII (2015) [Ru/M
 ```bash
 magnet:?xt=urn:btih:52C172402F6ECEC795F3F90A86FF89035E13ADC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Sword Coast Legends (2015) [Ru/Multi] (1.0/upd8/dlc) SteamRip Let'sРlay [Digita
 magnet:?xt=urn:btih:4AA5F7351470FA2E48D999F499D58E3068DF0990
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Windows 10 PE x86x64 13.12.15 by Xemom1 [Ru]
 ```bash
 magnet:?xt=urn:btih:6F780EB5912166572575122963A3633B94112015
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Microsoft Office 2010 — один из лучших наборов офисны
 magnet:?xt=urn:btih:FD0517642B157F12CA5DDA3BA9E1DCAB6B3048FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ RusTV Player - программа для просмотра телевизион
 ```bash
 magnet:?xt=urn:btih:DFB3FF5C621A0D38640A074D1F3D065B968D557D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:DFB3FF5C621A0D38640A074D1F3D065B968D557D
 magnet:?xt=urn:btih:C18238E771F2FF44400DCB75090D6AAF84987031
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ FarCry 3 Deluxe [WineSkin] 18+
 ```bash
 magnet:?xt=urn:btih:587E20AF2A7A9A3DF6ED0A3DBA95B42F3DB8B87F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ SteamOS — операционная система, основанная на L
 magnet:?xt=urn:btih:800B010DC262ECA3B1B06AFC31CCEAA9D2A2BA5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:800B010DC262ECA3B1B06AFC31CCEAA9D2A2BA5A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:800B010DC262ECA3B1B06AFC31CCEAA9D2A2BA5A
 magnet:?xt=urn:btih:F68D6403A8277C3FF32DFDE4503BD1742E6441A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Dying Light 2: Stay Human (2022) [Ru/En] (1.11.4/dlc) Repack Other s [Ultimate E
 magnet:?xt=urn:btih:A76732C1732E48D602B3EEAB5EE5E0BDC8882B7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Dying Light 2: Stay Human (2022) [Ru] (1.11.4/dlc) Repack Other s [Ultimate Edit
 ```bash
 magnet:?xt=urn:btih:294E95ED7D94D1B9BDEEE2F3E0B58EF9B90EEBC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ The Bat! - популярный клиент электронной почты; 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ The Bat! - популярный клиент электронной почты; 
 ```bash
 magnet:?xt=urn:btih:94839CCFC878DA2580FB6BA91A9E08E3941D8235
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:94839CCFC878DA2580FB6BA91A9E08E3941D8235
 magnet:?xt=urn:btih:6141AA96B5EC919EE470674A1FE5B54471E3DE6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:6141AA96B5EC919EE470674A1FE5B54471E3DE6B
 ```bash
 magnet:?xt=urn:btih:96B02478AC643B91F7DFDBF3EBAC92AF8CA0EE71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Windows 10.0.17763.168 Version 1809 3in1 VL (x64) Elgujakviso Edition (v.08.12.1
 magnet:?xt=urn:btih:3D61EC70F4C0C2C02C6DC6F16CE803328A893DE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:3D61EC70F4C0C2C02C6DC6F16CE803328A893DE0
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:3D61EC70F4C0C2C02C6DC6F16CE803328A893DE0
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Windows 11 22H2 (22621.674) x64 (6in1) by Brux [Ru]
 ```bash
 magnet:?xt=urn:btih:83E935CF3D6F7BC094268436719BDDE5ECDFE183
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ Warcraft III — знаменитая стратегия в реальном в�
 magnet:?xt=urn:btih:91020B3406D08988817BDB3DF0488B0CCEA1421E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:91020B3406D08988817BDB3DF0488B0CCEA1421E
 magnet:?xt=urn:btih:183A9499CD40A0749CBD0E0250CBD7F82E7A1A50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ ProShot - это профессиональное приложение для ф
 ```bash
 magnet:?xt=urn:btih:F475D76207FD0375D7C2E7218F0CA435148DFB91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

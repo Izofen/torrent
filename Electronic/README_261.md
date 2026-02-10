@@ -26,6 +26,8 @@ Magic Fly
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ Vangelis - Blade Runner Trilogy 25th Anniversary (1994) (CD2) [FLAC|Lossless]<Am
 ```bash
 magnet:?xt=urn:btih:6579FD87F63AB65146CC6FEFC97AAEB3EDC0C673
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -80,6 +84,8 @@ VA - Progressive Creators (2018) [MP3|320 Kbps] <House, Progressive House>
 magnet:?xt=urn:btih:90AB4A6948E675D1501905702F02E909B8D07D9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -106,6 +112,8 @@ Infected Mushroom - Converting Vegetarians II (2015) [MP3|320 кб/с]<Psychedel
 ```bash
 magnet:?xt=urn:btih:99D240595C785E2FC4C7BF107B339B5874476177
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -134,6 +142,8 @@ VA - Retrospective Drum 'n' Bass: 10 Years (2018) [MP3|320 Kbps] <Drum'n'Bass>
 magnet:?xt=urn:btih:8DEBF7ABDBB2146E0021AEFB49700B1802D80938
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -160,6 +170,8 @@ VA - Cosmic Chill Lounge Vol.8 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 ```bash
 magnet:?xt=urn:btih:0F324AD4B65AD3E23830D18F4587F26841245B6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +200,8 @@ VA - It's Disco House (2018) [MP3|320 Kbps] <House, Nu Disco, Disco House>
 magnet:?xt=urn:btih:42622CBB8FCAEC0BBF4C9F0157C76BB96562B622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +228,8 @@ VA - Deep-House Themes, Vol. 3 (2018) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:6D2B9B50E1375CE28E388BEEDC1F85934497A694
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +258,8 @@ VA - Waehlscheibe Compilation X (2018) Waehlscheibe [FLAC|Lossless|tracks|Vinyl]
 magnet:?xt=urn:btih:2EA6E616CBF7D521839AF96FFB11D605EAB1E9C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +286,8 @@ VA - Progressive Cuts (2018) [MP3|320 Kbps] <House, Progressive House>
 ```bash
 magnet:?xt=urn:btih:CD899C27488861EF3D3A723AADDE170BA1F2DE3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +316,8 @@ VA - Progressive Daylight (2018) [MP3|320 Kbps] <House, Progressive House>
 magnet:?xt=urn:btih:24A23F6973A5CA72465E199B6B4EF95F3CC430F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +344,8 @@ Helios - Yume (2015) [FLAC|Lossless|WEB-DL]<Ambient, Acoustic, Downtempo, Post-R
 ```bash
 magnet:?xt=urn:btih:6670AB0C17F86647F03E30A9D45E7BF0AD8FF8AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +374,8 @@ VA - The Very Best Of Uplifting Vocal Trance (2015) [MP3|320 кб/с]<Trance, Vo
 magnet:?xt=urn:btih:62401B5E1637622CA6AF0DCC48EF947D0F010E10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +402,8 @@ VA - Smooth Chill-Out Grooves, Vol. 1 (2015) [MP3|320 кб/с]<Downtempo, Lounge
 ```bash
 magnet:?xt=urn:btih:7AA1361A310B395946E219984B82B62D697E170F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +436,8 @@ Wolfgang Gartner - Back Story (2012)
 magnet:?xt=urn:btih:B2B3A986ACB047A19C34469E5009C3C554B8F281
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +465,8 @@ Bellatrix - Travel (2022) [MP3|320 Kbps] <Spacesynth>
 magnet:?xt=urn:btih:ABD1C215A2CAAEB693E5E7C158A9F6B006D536A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +493,8 @@ VA - Black Hole Trance Music 07-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Tran
 ```bash
 magnet:?xt=urn:btih:9F2D22F884785025C24E90FA36331FD3DF2D03D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +529,8 @@ Phantogram - это trip-hop / psych-pop дуэт в составе Sarah D. Bar
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +564,8 @@ VA - Rome Chill House Night - Chilled Grooves Deluxe Selection (2012) [MP3|320 �
 magnet:?xt=urn:btih:281848096ED3902CF445F1705FE35789F79C27E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +592,8 @@ Dieter Meier ‎(Yello) - Tango For Fame (2017) Unofficial Release [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:D5AA1AED5E08FC1342F826572988F73EEE2E3893
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +628,8 @@ VA - Berlin Chill House Night -  Chilled Grooves Deluxe Selection (2012) [MP3|32
 magnet:?xt=urn:btih:CD5D9727833BB17B29D4F74ED395D300399107DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +656,8 @@ VA - Summer 2022 Deep House Collection (2022) [FLAC|Lossless|WEB-DL|tracks] <EDM
 ```bash
 magnet:?xt=urn:btih:9FDBF7F396CD678B9AA5BEA56550B306EEA472CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +686,8 @@ Sick N' Beautiful - Starstruck (2022) [MP3|320 Kbps] <Industrial, Alt.Metal, Fem
 magnet:?xt=urn:btih:CE6FCB36F2941250AAEAAEB4D91A12E2BF04AB8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +714,8 @@ V.A. - Cafe Del Mar XXV (Volumen Veinticinco) (2019) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:56AF21B267E18383FDE5B84B2E612133AE5E4896
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -696,6 +744,8 @@ Jeff Mills - Moon - The Area Of Influence (2019) Axis [FLAC|Lossless|tracks+.cue
 magnet:?xt=urn:btih:F888DED2FFB20B5C19F2CCE94AA71FA308290AAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -722,6 +772,8 @@ Tysk Raider - aux4418 (2019) mindcolormusic [FLAC|Lossless|WEB-DL|tracks] <IDM>
 ```bash
 magnet:?xt=urn:btih:1D5FE58F9A62A9ECCD72BADA420C3993F9B4C860
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

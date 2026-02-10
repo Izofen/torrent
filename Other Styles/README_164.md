@@ -28,6 +28,8 @@ D.J. Chill - Jazz Chill Music - Cool Instrumental Background Guitar Lounge Songs
 magnet:?xt=urn:btih:35AD55596C2027C5FB82C0BCA8D1A193F31162D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -55,6 +57,8 @@ Russill Paul - P.M. Yoga Chants (2001) [FLAC|Lossless|tracks + .cue] <World Musi
 magnet:?xt=urn:btih:E7B8939EA4EBE677FC8A2EB9DA7C5A308473031F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,6 +85,8 @@ Timothy Wenzel - Distant Horseman (2016) [MP3|320 кб/с] <New Age>
 ```bash
 magnet:?xt=urn:btih:C63A0DE84BEFE8BB213BC2C250E539F26A3FF090
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -114,6 +120,8 @@ magnet:?xt=urn:btih:C63A0DE84BEFE8BB213BC2C250E539F26A3FF090
 magnet:?xt=urn:btih:E4CD0EBE4150ECD88EAB1BC72853FD0F02D3AE3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +149,8 @@ Jean Michel Jarre - Zoolook (1984) [FLAC|Lossless|tracks + .cue] <Electronic>
 magnet:?xt=urn:btih:EEA1AB138C2085D6C486AAA039662D97A8C71698
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +174,8 @@ VA - Музыка французского кино. Избранное / La Mus
 ```bash
 magnet:?xt=urn:btih:0F61D5211363BA958AA4C34E606E532238D8817B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +209,8 @@ Sigur Ros - Дискография (18 альбомов) (1997-2009) [FLAC|Lossl
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +237,8 @@ David Arnold & Michael Price - Sherlock  - The Final Problem (2017) OST Sherlock
 ```bash
 magnet:?xt=urn:btih:E5D2D0FDCF673D82A6E31FDB6140D86AFF29405B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +268,8 @@ Sub Pub Music - Submersive (2014) [MP3|320 кб/с]<Trailer Music>
 magnet:?xt=urn:btih:2D91F893CF66189287AF3ECEA734A0F406BA38A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +293,8 @@ VA - The Best Of Cafe Del Mar - Compiled By Lahud (2009) [MP3|320 kbps]<Easy Lis
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +323,8 @@ Various - Dali Stereo Demonstration CD (2002) [FLAC|Lossless|image + .cue] <Jazz
 magnet:?xt=urn:btih:7DABF018BC7AAA75901473E7649435791627E589
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +352,8 @@ VA - Kontor Top Of The Clubs: Electric 80s Vol.2 (2020) [MP3|320 Kbps] <Pop, Ele
 magnet:?xt=urn:btih:A4A390B13CE43E82BBA18B8994AE8A5228B847FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +380,8 @@ Apache Dream & Enrique Camac - Native American Music (2012) [MP3|320 Kbps] <Nati
 ```bash
 magnet:?xt=urn:btih:07E2BD21E250C30700DC6DF4634D1A01F16368D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +416,8 @@ Planetary Heart - Journey To The Cosmos (2005) [MP3|320 kbps]<New age, Relax, In
 magnet:?xt=urn:btih:079B05CE80C22C7CD5CF399766F82CF8F1CCB13E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +451,8 @@ Carol Tornquist - Christmas Angels (1995) [FLAC|Lossless]<New Age, Christmas>
 magnet:?xt=urn:btih:450EE156FA9D9271F09E3C9F4B534AFF0AAFE419
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +480,8 @@ Leonard Cohen - The Future (1992) [FLAC|Lossless]<Contemporary folk, Soft rock, 
 magnet:?xt=urn:btih:6281AA7D7C7CC9C8FE2BDE851CEB999416D0E43D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +508,8 @@ Henri Seroka & Ralph Benatar - Akhnaton Pharaoh (Myths And Legends) (1997) [FLAC
 ```bash
 magnet:?xt=urn:btih:0A2AA8688D5B4791A57CF38ECEBBFAC65B05A99B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +544,8 @@ Ricky King - The Golden Guitar Hits (3CD) (2008) [MP3|320 кб/с]<Instrumental>
 magnet:?xt=urn:btih:1B904D7CA0D2ED58B2FC35B9B44F10CFEA88F59F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +578,8 @@ VA - Уставные и традиционные колокольные зво�
 ```bash
 magnet:?xt=urn:btih:346DB1992A474C153A4F89296341788969021E68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +614,8 @@ Wolfsheart - Wolf Moon Rising (2012) [MP3|320 кб/с]<New Age, Flute>
 magnet:?xt=urn:btih:8833D606C191988A746A580FAEBBEACD5D669FC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +649,8 @@ Diane Arkenstone - Union Road (2013) [MP3|320 кб/с]<New Age, Folk, World>
 magnet:?xt=urn:btih:F2A78EC1B7A4B37CC00C0DDDFCD03552F8B41789
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +678,8 @@ VA - Chillout Tracks (2015) [FLAC|Lossless|WEB-DL] <New Age, Ambient, Relax>
 ```bash
 magnet:?xt=urn:btih:111177EACD56A226E9FBF25C7D8119E5056721C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -665,6 +709,8 @@ Andrew Bird - Echolocations: Canyon (2015) [FLAC|Lossless|WEB-DL]<Instrumental, 
 magnet:?xt=urn:btih:65F9EF16886B7FEFCBC4E7A28BD746821456F10C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +739,8 @@ Michael Cretu в представлениях не нуждается, а Peter 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -720,6 +768,8 @@ Dennis Michael Tenney - Night Of The Demons /  Ночь демонов (1988) 20
 magnet:?xt=urn:btih:C75EB9E42B8B51854ECE31C6050055F2260AFA46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -746,6 +796,8 @@ VA - The Best Of Piano (2009) [FLAC|Lossless|tracks] <New Age, Instrumental, Pia
 ```bash
 magnet:?xt=urn:btih:7BD5CA38D0D7987E6C8C52DE1B6C1E1E60D59CAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

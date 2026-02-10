@@ -20,6 +20,8 @@ infostart, Александр Кунташов | Системы контроля
 magnet:?xt=urn:btih:4E101257A9378A25496FFB56ADA9BFDA95D05FAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Udemy, Mike X Cohen | Master Math by Coding in Python (2020) WEB-DL [En / En Sub
 ```bash
 magnet:?xt=urn:btih:C5E1CE03E66447B2060CF2BBFA2C04629E8FCDD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ ProductStar, Денис Соболев и др. | Курс "Аналитик д�
 magnet:?xt=urn:btih:9C12A1DD4E86D4F2FB36DEEB330C0E8DD8DC508C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:9C12A1DD4E86D4F2FB36DEEB330C0E8DD8DC508C
 ```bash
 magnet:?xt=urn:btih:1D48C350B4343E64DCDAC44394B3399FB5B6DAB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Javabegin, Тимур Батыршинов | Базы данных и SQL - с �
 ```bash
 magnet:?xt=urn:btih:7E1BBAE92C4DB8BFBD25B64BCB96E045E7A8C33A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ Karpov.courses, Александр Сахнов, Валерий Бабушкин
 magnet:?xt=urn:btih:C6B7EA7152167391640827B584BBAD04A0724077
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ Slurm (Слёрм), Алексей Барабанов | Rabbit MQ (2022) WEB-DL 
 magnet:?xt=urn:btih:395E51565760DFFB39C3CC061CF91A2DD3E68E84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ Slurm (Слёрм), Кирилл Борисов | Jenkins: СI/CD для DevOps 
 ```bash
 magnet:?xt=urn:btih:D8506594F65FC69671E82782D0FEBE14EE0AFFCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ Slurm (Слёрм), Иван Чувашов | Оптимизация запро�
 ```bash
 magnet:?xt=urn:btih:65FB9F8A4B156EF26B89291EB15C7D6BCBFF2E0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ Pandas Advanced. Составляем отчетность.(   Читать да
 magnet:?xt=urn:btih:003EDE5B5CB7907AC67B350AFA4F257A1572FFB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ itProger, Гоша Дударь | C++. Изучение языка C++, WinForms
 magnet:?xt=urn:btih:0EF94425A42401AE6C440F95A50B0B50EBCBB261
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ Merion Academy, Иван Тишин | Администрирование MS Wind
 ```bash
 magnet:?xt=urn:btih:72773560D96582070500834F7332A5D59E5670B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +351,8 @@ GeekBrains, Андрей Заярный и др. | C#. Базовый и про�
 magnet:?xt=urn:btih:3079CA627D6E7B1A63259AC797FE88F0AA70D38B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ magnet:?xt=urn:btih:3079CA627D6E7B1A63259AC797FE88F0AA70D38B
 magnet:?xt=urn:btih:1268D4E76DE08FF6989D440192845F664BC2CB3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ magnet:?xt=urn:btih:1268D4E76DE08FF6989D440192845F664BC2CB3E
 ```bash
 magnet:?xt=urn:btih:1F891C0F036CD5EA465A955F449339D331429320
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ Ismail Mahmudov | Пошаговая установка Arch Linux (2016) PCRec
 magnet:?xt=urn:btih:6C81E1CECC5780FC40A662BB5BD861D79C350C0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ Udemy, Dr. Ryan Ahmed и др. | Мастер-класс по современн
 magnet:?xt=urn:btih:2D02615C01FDDF570EBBD0C5E661CFC82E32EF61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ Udemy, DevelopIntelligence Team | Node Микросервисы / Node Microserv
 ```bash
 magnet:?xt=urn:btih:F87A7DBD5C9E3A15B4CC496E73D07593436E0453
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +511,8 @@ Udemy, Vasyl Velmyk | Курс по Front-End. От основ JavaScript до R
 magnet:?xt=urn:btih:8288A359F4BD63221238D3B5A30A8288E0B2577E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +537,8 @@ Udemy, Timur Mashnin | SEO: Введение в поисковую оптими�
 ```bash
 magnet:?xt=urn:btih:7C86E86103A9B464C1354788EB0E8EE118BED7D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +566,8 @@ Udemy, Macheronte Courses | Изучите Python и создайте свой �
 magnet:?xt=urn:btih:2FB1482B6A0A334F4A4E00CF32777CB326278136
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +593,8 @@ magnet:?xt=urn:btih:2FB1482B6A0A334F4A4E00CF32777CB326278136
 magnet:?xt=urn:btih:1A8D6D6BCDF63A40FC22B2870A31C089AC49CF13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +619,8 @@ Domestika, Bruno Imbrizi | Creative Coding 2.0 in JS: Animation, Sound, & Color 
 ```bash
 magnet:?xt=urn:btih:68D95EEE58197D2E860B5881F7D50E1CF5C77033
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +649,8 @@ Udemy, Артем Баданов | Изучение C++ с нуля (2020) PCRec
 magnet:?xt=urn:btih:6D73FD5E44D39E7DEB0AB53AF6093F90F3E3E644
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ Smartpoly | Unreal Engine 5 Multiplayer Steam Survival Game Course (2022) PCRec 
 magnet:?xt=urn:btih:0C8951F3440707EC9F4C6B862D4018981F74914A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ Udemy, Andrei Neagoie и др. | JavaScript веб проекты: 20 проек
 ```bash
 magnet:?xt=urn:btih:CCA3A0B4201D43904C64D9684CE80E2A164417C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

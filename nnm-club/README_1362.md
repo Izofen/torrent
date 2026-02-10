@@ -22,6 +22,8 @@ Snowy White - 29 Albums, 1 Box Set (1983 - 2024) 44 CD [FLAC|Lossless|image + .c
 magnet:?xt=urn:btih:5886E02BD7A06B8A2187A5AFD222ABF3625D6526
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Beth Hart - 16 альбомов (1993 - 2024) 19 CD [FLAC|Lossless|image + .cue|
 magnet:?xt=urn:btih:2FAAD62ED86E642A5C387F73DD3C60283DB9913C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:2FAAD62ED86E642A5C387F73DD3C60283DB9913C
 ```bash
 magnet:?xt=urn:btih:35F5D9A8DFC9BEB402F97467F220E66C27B027BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:35F5D9A8DFC9BEB402F97467F220E66C27B027BF
 magnet:?xt=urn:btih:8B28939FEF20ED1FFD97FC739A91D41AA5224697
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:8B28939FEF20ED1FFD97FC739A91D41AA5224697
 ```bash
 magnet:?xt=urn:btih:1CE8223AAA525265A5C6560CEAE9BEF066C22B44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:1CE8223AAA525265A5C6560CEAE9BEF066C22B44
 magnet:?xt=urn:btih:3DC4E6BD3124247FEE0F5FE01E4A9316B61C0850
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:3DC4E6BD3124247FEE0F5FE01E4A9316B61C0850
 ```bash
 magnet:?xt=urn:btih:2602E511147E037EA60D72E06A1B66CD6DBB61A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:2602E511147E037EA60D72E06A1B66CD6DBB61A3
 magnet:?xt=urn:btih:4A6AD986173CD6EE60D513B741A5A1E16A6F0850
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:4A6AD986173CD6EE60D513B741A5A1E16A6F0850
 ```bash
 magnet:?xt=urn:btih:30D813E69C75420B2E3AB61AA37046FDDE1AA9EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:30D813E69C75420B2E3AB61AA37046FDDE1AA9EE
 magnet:?xt=urn:btih:CB643D0A66FE59162F855175A09CD051C99B79A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ v2rayN — это универсальный инструмент VPN и про�
 ```bash
 magnet:?xt=urn:btih:E57E661B07167795BD0274B62CB575A97A43D481
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ VA - 300 Greatest Rock Drum Perfomances (vol.1-2) (2008) [FLAC|Lossless]<All Sty
 magnet:?xt=urn:btih:8FBEFBB0E419344349F21848E4A379B82D105A04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:8FBEFBB0E419344349F21848E4A379B82D105A04
 ```bash
 magnet:?xt=urn:btih:5650967018064F84E1D17D75488F975FD517ABF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:5650967018064F84E1D17D75488F975FD517ABF5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:5650967018064F84E1D17D75488F975FD517ABF5
 ```bash
 magnet:?xt=urn:btih:7A03F2BCE77215DD6319AB33BE95ADCDFC56A44C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:7A03F2BCE77215DD6319AB33BE95ADCDFC56A44C
 magnet:?xt=urn:btih:BAA679B02536B3FF5DBB9C6677586C64D7790B41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:BAA679B02536B3FF5DBB9C6677586C64D7790B41
 ```bash
 magnet:?xt=urn:btih:0D7BC30FB3AB4C3BFB57DEAC9A3147AF06927386
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ Defender Remover Portable 12.8.2 [En]
 magnet:?xt=urn:btih:6F509C0DA85AD665EC8D5312C133DA2A92B84BFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ ASKA - это ролевой экшен от 3-го лица, в котором 
 ```bash
 magnet:?xt=urn:btih:9938C4367ECCBA2FC4B9D99F4E5C9B56E7BB58CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:9938C4367ECCBA2FC4B9D99F4E5C9B56E7BB58CF
 magnet:?xt=urn:btih:F9B7D038C58496DE9E5A0DC34D437506B1E81299
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:F9B7D038C58496DE9E5A0DC34D437506B1E81299
 ```bash
 magnet:?xt=urn:btih:82E9E6E8C19D269B8FACCF33F01E84F2191805AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:82E9E6E8C19D269B8FACCF33F01E84F2191805AE
 magnet:?xt=urn:btih:A00A1A68B9AF41236038710AB8A827FADDCD37F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:A00A1A68B9AF41236038710AB8A827FADDCD37F2
 magnet:?xt=urn:btih:53EE6C77D6AA4079424D98DFF18847F0A4F9B6C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:53EE6C77D6AA4079424D98DFF18847F0A4F9B6C1
 ```bash
 magnet:?xt=urn:btih:539894EA39B200335FF116C66566B737DCAF7DAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ Rev Theory - Salvation Nowhere (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal,
 magnet:?xt=urn:btih:9D1579F8EBA534750E79463D0D75E097AB146737
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ VA - Dance the Night Away, Vol. 4 (2024) [MP3|320 Kbps] <Dance, Club, House, Ele
 ```bash
 magnet:?xt=urn:btih:F0E3BCC9A8B0A91263F3169DD49DF7994E26F0D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

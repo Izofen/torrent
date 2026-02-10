@@ -1,27 +1,3 @@
-###  Публикация: 1135537   (678957) от 20.05.2017
-
-Готовь могилу, друг мой – Сабата идет... / Abre tu fosa amigo... llega Sabata (1971) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стив МакГоун возвращается с гражданской войны и узнает, что его отца убил алчный землевладелец. МакГоун клянется отомстить, но влюбляется в невесту землевладельца…Производство: Испания, Италия / Devon Film, IFI Producción S.A.Жанр: ВестернРежиссер: Хуан БошАктеры: Ричард Харрисон, Фернандо Санчо, Раф Бальдассарре, Алехандро Уллоа, Гаспар «Индио» Гонсалес, Луис Индуни, Густаво Ре, Таня Альварадо, Фернандо Рубио, Франсиско ХаркеПеревод: Авторский (А.Алексеев)Субтитры: ОтсутствуютПродолжительность: 01:18:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C414830F920C7F90A086F1A0A1CF1F61BFEDAB4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 796835   (679707) от 17.06.2014
 
 Саламандра / The Salamander (1981) DVDRip [H.264]
@@ -43,6 +19,8 @@ magnet:?xt=urn:btih:C414830F920C7F90A086F1A0A1CF1F61BFEDAB4C
 ```bash
 magnet:?xt=urn:btih:EDABA58E8756958656F49F920F7BD3E23546217C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +46,8 @@ magnet:?xt=urn:btih:EDABA58E8756958656F49F920F7BD3E23546217C
 magnet:?xt=urn:btih:1F69912DA269758DC8D6BF58240256DB6879A9EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +72,8 @@ magnet:?xt=urn:btih:1F69912DA269758DC8D6BF58240256DB6879A9EE
 magnet:?xt=urn:btih:869EAA273C0F5DE94879C9F16A1B838C15C5C22B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:869EAA273C0F5DE94879C9F16A1B838C15C5C22B
 ```bash
 magnet:?xt=urn:btih:DAC380CF957BE09BD425590458CED1D043BC0C09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +125,8 @@ magnet:?xt=urn:btih:DAC380CF957BE09BD425590458CED1D043BC0C09
 magnet:?xt=urn:btih:00FF315E6A7A754632B876DA07CDD392CA7EE104
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +152,8 @@ magnet:?xt=urn:btih:00FF315E6A7A754632B876DA07CDD392CA7EE104
 magnet:?xt=urn:btih:5C0CD56CC1641AFC7873C48F2168C97D3FB1972A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +177,8 @@ magnet:?xt=urn:btih:5C0CD56CC1641AFC7873C48F2168C97D3FB1972A
 ```bash
 magnet:?xt=urn:btih:01EC4C2565F6CB5615ACA9D46768ABF424ABB058
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +204,8 @@ magnet:?xt=urn:btih:01EC4C2565F6CB5615ACA9D46768ABF424ABB058
 magnet:?xt=urn:btih:11B2BCA978566FA43373DFE1CD22398AB8BE4665
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +229,8 @@ magnet:?xt=urn:btih:11B2BCA978566FA43373DFE1CD22398AB8BE4665
 ```bash
 magnet:?xt=urn:btih:1B5F1CC5C15331712848DD83A0A73B44866EB154
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +256,8 @@ magnet:?xt=urn:btih:1B5F1CC5C15331712848DD83A0A73B44866EB154
 magnet:?xt=urn:btih:5F3327C65434FAD9673CAB778265406DE00A4187
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +281,8 @@ magnet:?xt=urn:btih:5F3327C65434FAD9673CAB778265406DE00A4187
 ```bash
 magnet:?xt=urn:btih:286E7B1EA28B58C7EFC14B06A87B45453C5FBC47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +309,8 @@ magnet:?xt=urn:btih:286E7B1EA28B58C7EFC14B06A87B45453C5FBC47
 magnet:?xt=urn:btih:A703AD2440D341CDF770CA3D82B4B575B835101F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +334,8 @@ magnet:?xt=urn:btih:A703AD2440D341CDF770CA3D82B4B575B835101F
 ```bash
 magnet:?xt=urn:btih:D5552E9D2D59650B05FDDBAC4D0BA6C46B0B712B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +361,8 @@ magnet:?xt=urn:btih:D5552E9D2D59650B05FDDBAC4D0BA6C46B0B712B
 magnet:?xt=urn:btih:CE58DA357DB042EBA4F33696F87A29BB2245F3CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +386,8 @@ magnet:?xt=urn:btih:CE58DA357DB042EBA4F33696F87A29BB2245F3CD
 ```bash
 magnet:?xt=urn:btih:53D6551CF28071A16912261D2D2E9B2986C069CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +413,8 @@ magnet:?xt=urn:btih:53D6551CF28071A16912261D2D2E9B2986C069CB
 magnet:?xt=urn:btih:04024BFF97E9CEA9970A40A64CB757AB3A2A1B76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +438,8 @@ magnet:?xt=urn:btih:04024BFF97E9CEA9970A40A64CB757AB3A2A1B76
 ```bash
 magnet:?xt=urn:btih:3E4C36198BF702DCBF0F22131F7D5919829008A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +465,8 @@ magnet:?xt=urn:btih:3E4C36198BF702DCBF0F22131F7D5919829008A3
 magnet:?xt=urn:btih:75682C91813F926549544B0713384AE04A820D96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +491,8 @@ magnet:?xt=urn:btih:75682C91813F926549544B0713384AE04A820D96
 magnet:?xt=urn:btih:43B158AF5195E577E7F41C30216846CDBEA2EE10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +516,8 @@ magnet:?xt=urn:btih:43B158AF5195E577E7F41C30216846CDBEA2EE10
 ```bash
 magnet:?xt=urn:btih:0398540696C3F80C8CEEF5820F50886BA9D67CA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +544,8 @@ magnet:?xt=urn:btih:0398540696C3F80C8CEEF5820F50886BA9D67CA3
 magnet:?xt=urn:btih:CC7FA29CE3D1C42DC0CADFF33787F7A98F387E6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +569,8 @@ magnet:?xt=urn:btih:CC7FA29CE3D1C42DC0CADFF33787F7A98F387E6E
 ```bash
 magnet:?xt=urn:btih:6EE56022E90197D2988797F72B56A08DEFED4F9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +596,8 @@ magnet:?xt=urn:btih:6EE56022E90197D2988797F72B56A08DEFED4F9E
 magnet:?xt=urn:btih:99DD22FA6B6CDC5C352DDC008C060E288FF6723A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +622,8 @@ magnet:?xt=urn:btih:99DD22FA6B6CDC5C352DDC008C060E288FF6723A
 magnet:?xt=urn:btih:C25A8D05F01CE88471165491125799B2893E3209
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +647,34 @@ magnet:?xt=urn:btih:C25A8D05F01CE88471165491125799B2893E3209
 ```bash
 magnet:?xt=urn:btih:8BCA8DE424A4D93C2F07B581ACD366C6FFD02F9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535335   (686563) от 06.03.2022
+
+Убийство есть убийство / Un meurtre est un meurtre (1972) WEB-DLRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поль — достойный человек, попавший в неприятную ситуацию. Его жена, ставшая инвалидом на второй год семейной жизни, превратилась в озлобленную мегеру. Когда она погибает в автокатастрофе, он вздыхает с облегчением, но ненадолго: приезжает сестра покойной и поселяется у него в доме. По непонятным причинам она пытается воссоздать облик погибшей сестры и даже пользуется (   Читать дальше...   )Производство: Италия, Франция / Films de l'Épée, Peel, Planfilm, Tritone CinematograficaЖанр: Драма, Криминал, ДетективРежиссер: Этьен ПерьеАктеры: Жан-Клод Бриали, Стефан Одран, Робер Оссейн, Мишель Серро, Катрин Спаак, Мишель Кретон, Мадлен Дамьен, Джинн Перез, Изабель Дель Рио, Антониа ЛотитоПеревод: Авторский, Р. ЯнкелевичСубтитры: Русские, французскиеПродолжительность: 01:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACDD18333CDD047031A4E6346F76C6BE6768DD91
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

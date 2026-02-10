@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:C698B8E7EC78F7A213F067D48C38032F3346BC07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Mike Mignola | Артбук по комиксу Хеллбой / The Art of Hell
 ```bash
 magnet:?xt=urn:btih:3013B247D9F4FA803E9E5E296C87F71249A70572
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Alter Future - To New Horizons (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:7AF55985B9B2BE7E36F355698A62FA16AB61015C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ VA - Pharmacy: Phase 6 (Mixed By Christopher Lawrence) (2016) [MP3|320 Kbps] <Tr
 magnet:?xt=urn:btih:7BEEE96E6DCEF1645E642743F935F9A56BD904EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:7BEEE96E6DCEF1645E642743F935F9A56BD904EB
 ```bash
 magnet:?xt=urn:btih:18DF53AB83AEF0304EEFC2F5BE4AB1AE7DAA34A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ VA - TFB Records: Best Of 2017 Part 1 (Mixed  by Aldo Henrycho) (2017) [MP3|320 
 magnet:?xt=urn:btih:2DDE067787AD167D07C4E9F315D72CD005BD8F85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ AVS Audio Software представляет собой комплект из д�
 magnet:?xt=urn:btih:532C0DAAC52A671FC842514CBFC196B166EA10A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:532C0DAAC52A671FC842514CBFC196B166EA10A8
 ```bash
 magnet:?xt=urn:btih:EE98CD361F1F44C0733726953C4C5DCBDDB3C8B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ Elm Street - Barbed Wire Metal (2011) [FLAC|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:A9887DA8D977B1BD38E09CB05F7BF329B6515D17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:A9887DA8D977B1BD38E09CB05F7BF329B6515D17
 ```bash
 magnet:?xt=urn:btih:03D1855F2A48A8873C3766724303C5436CF513D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:03D1855F2A48A8873C3766724303C5436CF513D8
 ```bash
 magnet:?xt=urn:btih:F923709C35821D54E76E4DB01E3A45A263306408
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ VA - Dark Club Vol.3 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 magnet:?xt=urn:btih:079ED9019E78550F9A82F711037F114A72FF8174
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ Supernatural - Dreamcatcher (2002) [FLAC|Lossless|image + .cue] <Dance Pop, Synt
 magnet:?xt=urn:btih:5EDBEEB7A0D6E68027D60E7FD363663982393914
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:5EDBEEB7A0D6E68027D60E7FD363663982393914
 ```bash
 magnet:?xt=urn:btih:1D0A89DB4B3B429DA5383D720320905BFFA39B18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +406,8 @@ Elite - We Own The Mountains (2008) [FLAC|Lossless|image + .cue] <Black Metal>
 magnet:?xt=urn:btih:73B36D78C3DFC0999EF6CDBEA23CAEBDB57358F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +434,8 @@ Somephoenics - Product: Life (2016) [MP3|320 Kbps] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:09B06F0610EB0B3FE0F3113F13F3FDEA9E7D3E3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +464,8 @@ Matt Bianco (Mark Reilly) meets New Cool Collective - The Things You Love (2016)
 magnet:?xt=urn:btih:E8596FCF5958DC8DA78C9414A589E4BA94F7AD14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +489,8 @@ magnet:?xt=urn:btih:E8596FCF5958DC8DA78C9414A589E4BA94F7AD14
 ```bash
 magnet:?xt=urn:btih:0DBF7358A1AC81FF44E78D4108E46B83998C89ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +516,8 @@ magnet:?xt=urn:btih:0DBF7358A1AC81FF44E78D4108E46B83998C89ED
 magnet:?xt=urn:btih:F9C981192CEAC45CCBC2F3C060DE13D3CC11D79D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ magnet:?xt=urn:btih:F9C981192CEAC45CCBC2F3C060DE13D3CC11D79D
 ```bash
 magnet:?xt=urn:btih:7DF66D9E47C3A60AED9549A660499810C5D1D5FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +571,8 @@ VA - Empire Records - Club Hit (2016) [MP3|268-320 Kbps] <Club, Dance>
 magnet:?xt=urn:btih:31C871935E95BBD5BCADC9EB7D4FE887191E8604
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +596,8 @@ Boardfish представляет собой приложение для рас
 ```bash
 magnet:?xt=urn:btih:05A6670134DDAE5105E07237FBFA23B82A628A4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +623,8 @@ magnet:?xt=urn:btih:05A6670134DDAE5105E07237FBFA23B82A628A4B
 ```bash
 magnet:?xt=urn:btih:7E1A0FF6EF21649485AB79B15B2DBDD3007F81BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +652,8 @@ magnet:?xt=urn:btih:7E1A0FF6EF21649485AB79B15B2DBDD3007F81BB
 magnet:?xt=urn:btih:EE24EB4D8FB4DF192D468CC836700494CD83D44F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +679,8 @@ magnet:?xt=urn:btih:EE24EB4D8FB4DF192D468CC836700494CD83D44F
 magnet:?xt=urn:btih:24C1A77FDD87BA352D2B92B566E18BFEF24D2EC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +704,8 @@ magnet:?xt=urn:btih:24C1A77FDD87BA352D2B92B566E18BFEF24D2EC0
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

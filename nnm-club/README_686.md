@@ -19,6 +19,8 @@ Rosario to Vampire: Season II | Розарио + Вампир II (2007) [14 то
 magnet:?xt=urn:btih:F808ABA0FC1492341018F4C936ECCF05CDBFCDC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:F808ABA0FC1492341018F4C936ECCF05CDBFCDC4
 magnet:?xt=urn:btih:F705950D90F2EFAC17BA47CDCEA132AD8FCC5C63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Vagabond | Бродяга (1998) [38 томов, 327 глав + Экстра + �
 ```bash
 magnet:?xt=urn:btih:E3F8A2249CD63CB5152E778CB75CB8453F0B2C62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Giuseppe Ottaviani - Eight (2025) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:305900087D34CE7321B7BD4D259AA987D441DA68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:305900087D34CE7321B7BD4D259AA987D441DA68
 ```bash
 magnet:?xt=urn:btih:4C9E16E407C7FD8E5B93B5097ACBE08F11DD208A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:4C9E16E407C7FD8E5B93B5097ACBE08F11DD208A
 magnet:?xt=urn:btih:F1E48BA9E80B6F59B3564B80C711113BC4D3F52B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:F1E48BA9E80B6F59B3564B80C711113BC4D3F52B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:F1E48BA9E80B6F59B3564B80C711113BC4D3F52B
 magnet:?xt=urn:btih:65C8DAC3672B800B53E215E206F68832A9F03388
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Soul Eater | Пожиратель душ (2003) [25 томов, 117 глав] [�
 ```bash
 magnet:?xt=urn:btih:52992158482B1AC1C15634A41DF288B52A66AAEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Dr. Stone | Доктор Стоун (2017) [27 томов, 233 главы + Сп
 ```bash
 magnet:?xt=urn:btih:D528DB4F0C970A46E051BF20893F747BD3A1D60C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ VA - Black Hole House Music 05-25 (2025) [MP3|320 Kbps] <House, Progressive Hous
 magnet:?xt=urn:btih:38D94D3B38EE6480B17168FF108DE7FCF3F8C372
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ Waltari - Nations' Neurosis (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard R
 magnet:?xt=urn:btih:B95C9313425327BC9D1FC82433BF744AA996C434
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ Sora no Otoshimono | Утраченное небесами (2007) [20 томов
 magnet:?xt=urn:btih:023B79FB36A36176024926F56AB0CFA019770548
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ Yankee-kun to Megane-chan | Хулиган и Очкарик (2006) [23 тома
 ```bash
 magnet:?xt=urn:btih:22CEF8B596CC24A5B99AC4DD32A7E5FB565460E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:22CEF8B596CC24A5B99AC4DD32A7E5FB565460E8
 magnet:?xt=urn:btih:CF94783BD8BC1418DDD3A342D3D9214E88FBB64C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ EBOLA VILLAGE (2025) [Ru/En] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:863FD01CE96B1A4C4B1A98A711AE72F9A854BCF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +456,8 @@ VA - Black Hole Trance Music 05-25 (2025) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:8BCB3C122D7E0417A0FB38749874A676FFB5C533
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:8BCB3C122D7E0417A0FB38749874A676FFB5C533
 ```bash
 magnet:?xt=urn:btih:842D213FE6FA1CF7C70045710F1BCE3F3475C42E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:842D213FE6FA1CF7C70045710F1BCE3F3475C42E
 magnet:?xt=urn:btih:2586823D673973B2173DBEF7B550FD9317637C7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ Life is Strange Double Exposure (2024) [Ru/Multi] (1.1.1027899/dlc) Repack Let's
 ```bash
 magnet:?xt=urn:btih:A26334E1BB250CFAD29037F9C566B7010F580AC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ magnet:?xt=urn:btih:A26334E1BB250CFAD29037F9C566B7010F580AC6
 magnet:?xt=urn:btih:DFADA0BE740EC736F1305150C23E31B73ECBED31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ Visual Studio 2022 Professional представляет собой универ
 ```bash
 magnet:?xt=urn:btih:468DC3D4F80D7FAAD0310596B329A2B6E7B426D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +612,8 @@ magnet:?xt=urn:btih:468DC3D4F80D7FAAD0310596B329A2B6E7B426D2
 magnet:?xt=urn:btih:28E4B9E266832C03484D25B34CBA3CC688A0209F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ magnet:?xt=urn:btih:28E4B9E266832C03484D25B34CBA3CC688A0209F
 ```bash
 magnet:?xt=urn:btih:A2CB739BB08A11B7E7A81B90BA9F26AE1937A6B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:A2CB739BB08A11B7E7A81B90BA9F26AE1937A6B7
 magnet:?xt=urn:btih:E9A5F5AC1129B514800E982EFC40F8071888063E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ Life is Strange: Double Exposure (2024) [Ru/Multi] (1.1.1027899.2411220323/dlc) 
 ```bash
 magnet:?xt=urn:btih:23060434B21BFAEC82613F8107AA542BE2BB6F48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

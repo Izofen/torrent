@@ -19,6 +19,8 @@ LED Logo - яркая, цветная, плавная анимация для в
 magnet:?xt=urn:btih:CE3159EA9E41334C84B74D9657F0451A085A86D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Arcade Lights Logo - Три анимации логотипа с высокой 
 ```bash
 magnet:?xt=urn:btih:DC0AEF4490A2BADD2BB4EC518F1B43B9D0F44094
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Elegant Particles - элегантная анимация разноцветны
 magnet:?xt=urn:btih:5C39F4FD50C01E78E6AE30B1BE8AB395B6292674
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:5C39F4FD50C01E78E6AE30B1BE8AB395B6292674
 ```bash
 magnet:?xt=urn:btih:2D0FBC6DE67CA790BABE19E355A805D41E2CC7AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Sketchpad - является идеальным для показа логоти
 magnet:?xt=urn:btih:97FE0ABAD8359CCE5BADFCE6009CB07B060A1AC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Form - проект для показа вашего логотипа. Прос�
 ```bash
 magnet:?xt=urn:btih:2E5823E97BA660A8A108FADA2D3EBB8611BFAD5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Bandline - нужна яркая видео-заставка ? Bandline отве
 magnet:?xt=urn:btih:04774B2E1A033181C3A8B722D76AF9E3DF84B524
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Shapeshifter(Имитатор) - нужна изюминка к новой ан�
 ```bash
 magnet:?xt=urn:btih:6B113AF81228D3F51DE800E66302D01FD0413751
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:6B113AF81228D3F51DE800E66302D01FD0413751
 magnet:?xt=urn:btih:693D0E420C3F21B1595D6AEDF09BB4A4DAFE16FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Sparkling Diamonds – алмазы, самые ценные, безупречн
 ```bash
 magnet:?xt=urn:btih:C48A2557D3E0B36C86E4261DD59F412468DC3B44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:C48A2557D3E0B36C86E4261DD59F412468DC3B44
 magnet:?xt=urn:btih:489F8ABA09E989DED3197DD95DB27EA13EBD3B62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:489F8ABA09E989DED3197DD95DB27EA13EBD3B62
 ```bash
 magnet:?xt=urn:btih:187807FDBE99F784A998B10BE2EB3045A0268A64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:187807FDBE99F784A998B10BE2EB3045A0268A64
 magnet:?xt=urn:btih:265C0FB8FF7B4463B4133B6868D87B63A3DB444E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ E3D Transform Text, Path, Logo - чтобы увидеть свой кинема
 ```bash
 magnet:?xt=urn:btih:DECAC04EA6FC0E1E7DF6944D387C0A63AC9B2CA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Logo Intro Elegance Flare - простой, светлый, элегантный
 magnet:?xt=urn:btih:B75BAAEA3A24A98BD645B28A9844906652142FFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Trailing Particles Logo Reveal - контрастный двухцветный �
 ```bash
 magnet:?xt=urn:btih:476179851C782544CB3CCC437EDA5C2DA2116659
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Architect Logo Reveal (3 versions) - высококачественный, в т
 magnet:?xt=urn:btih:9680D73DC2A8AA42A97F1559214E775A7EE84384
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ magnet:?xt=urn:btih:9680D73DC2A8AA42A97F1559214E775A7EE84384
 ```bash
 magnet:?xt=urn:btih:42490E02809194C193405F54E107D9891770C61E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:42490E02809194C193405F54E107D9891770C61E
 magnet:?xt=urn:btih:D2FA54B91F480950FCB47A6FFA8C6ED8B029862D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ magnet:?xt=urn:btih:D2FA54B91F480950FCB47A6FFA8C6ED8B029862D
 ```bash
 magnet:?xt=urn:btih:8ACA78838EFFA667E35E3F0CC314B2F3F6216EBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Colors Of Circles Logo Reveal - яркий проект для демонстр�
 magnet:?xt=urn:btih:48F72A19D34EDFC7EB4E269925FF5C04A9E7EAA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Hip-Hop Style Bling-Bling 3D Pendant on Chain - золотой 3D кулон с 
 ```bash
 magnet:?xt=urn:btih:94D42016130E9004EAB3A662E0A6BD11E4D68D15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ magnet:?xt=urn:btih:94D42016130E9004EAB3A662E0A6BD11E4D68D15
 magnet:?xt=urn:btih:E7F3DE6AF09D2DBE56887EE92B534934AB5FF1C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ magnet:?xt=urn:btih:E7F3DE6AF09D2DBE56887EE92B534934AB5FF1C8
 ```bash
 magnet:?xt=urn:btih:B0D03E7A3E1D62DC9723878118481B71E90BACE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ magnet:?xt=urn:btih:B0D03E7A3E1D62DC9723878118481B71E90BACE3
 magnet:?xt=urn:btih:9AC2C9E4E9912AEA6C80667214071BFFA16AAFB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Light Glitch Logo Reveal (Updated v.2) Проект для создания эф
 ```bash
 magnet:?xt=urn:btih:488DCF41629DA76864EB72C56015D7BD679E65C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Bound by Flame (2014) [Ru/Multi] (2195b) License GOG
 magnet:?xt=urn:btih:8DADBD2F2FB3EBD3DFD25AE991264EF338BF3D21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Girls' civilization (2020) [Multi] (4552555) Repack Nikita1358
 ```bash
 magnet:?xt=urn:btih:9C852777244F2CC599B5FAB037221C889D9FD324
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Library of Ruina (2021) [Multi] (1.1.0.5b1) License CODEX
 magnet:?xt=urn:btih:4AF762EBF2A3A10E7C6F64C0C888D3BB03CBCC91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Witcher / Ведьмак (2007) [Ru/Multi] (1.5a) License GOG [Enhanced Edit
 ```bash
 magnet:?xt=urn:btih:F6CA89FD032B25798E7F116828C20958B5AB9972
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ The Witcher / Ведьмак (2008) [Ru/Multi] (1.5/dlc) Repack Other s [Enhance
 magnet:?xt=urn:btih:BE7678E0D11CA17DC6F5E0D6BED82E6481720897
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Octopath Traveler (2019) [Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:51F3472776175995B38020884D10ECC396B5FBBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Heroes of Hammerwatch – это пиксельное экшен приключ�
 magnet:?xt=urn:btih:D0485D041015CCC283DD91A6079A5E7E0F1949DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Jupiter Hell (2021) [En] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:097550E1401F486E28EC0555B08D5B6416CF09F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Forgotten City — это детективная приключенческ�
 magnet:?xt=urn:btih:3514A427D401D05F3BBB8C3627ADF51E066A0007
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Jade Empire (2005) [Ru] (1.00) Repack xatab [Special Edition]
 ```bash
 magnet:?xt=urn:btih:0F5AF4AD6A1A6E30865A96774A93AA76BF25F54E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Guild of Darksteel (2021) [En] (1.0) License GOG
 magnet:?xt=urn:btih:F80AB441193F28A15AFF55C66AEF92C0A477F9BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Lichdom: Battlemage – это игра от первого лица, основ
 ```bash
 magnet:?xt=urn:btih:4CF6DA95FE434A0DE25B99B8F57A8F80F234378C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Signs of the Sojourner (2020) [En] (4) License GOG
 magnet:?xt=urn:btih:B3438D62723236D662A1AAAE747C37A88434AE62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Ys IX: Monstrum Nox (2021) [Multi] (1.0.5/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:0D5F19BB888C269551FFB89A866E28143A845C79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Ascent (2021) [Ru/Multi] (Build 7106737) License CODEX
 magnet:?xt=urn:btih:3CA434AB40756941A354FC208A70A141D1EF7558
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Eastern Exorcist (2021) [Multi] (Build 6990221) License PLAZA
 ```bash
 magnet:?xt=urn:btih:D05456AAB4DA6F43F51B2AB543F79B9045593818
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Eldest Souls (2021) [Ru/Multi] (Build 7099613) License CODEX
 magnet:?xt=urn:btih:AD6655B71385F9F4C2A630F8C3E3B45DE3DF07FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Final Fantasy (2021) [Ru/Multi] (1.0) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:7EAE66B04A4CD04E3BF39BC9844A25F1F963020D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Final Fantasy II (2021) [Ru/Multi] (1.0) License DARKSiDERS
 magnet:?xt=urn:btih:38D20B7E03163A79C103EE0396C9B754930D8616
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Shadoworlds (1992) [En] (0.9.1) License GOG
 ```bash
 magnet:?xt=urn:btih:F9A896E437CAF6B75502306E431647EB45165029
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Divinity: Dragon Commander (2013) [Ru/En] (1.0.124hf/dlc) License GOG [Imperial 
 magnet:?xt=urn:btih:479E4F8AB10DC055FA3D58BB79D1063569AAC1B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Death's Door (2021) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:2C0A9149AFCFFE20FA5DD16E3EAA9BABC9A8D1F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Firelight Fantasy: Resistance – игра про зрелищные сраже�
 magnet:?xt=urn:btih:FA9E435165AB1D2C18C160D0C04792FED7B7DCCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Bastion – ролевой боевик, в котором рассказчик 
 ```bash
 magnet:?xt=urn:btih:E15D2AC42EE727126B9321E4D8CFB76F9FB36A48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Moonlighter (2018) [Ru/Multi] (1.14.37/dlc) License GOG
 magnet:?xt=urn:btih:1BCF8492E72BDAB4E5167AA836146AA88A12A3D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Iratus: Lord of the Dead (2020) [Ru/Multi] (181.13.00/dlc) License GOG [Necroman
 ```bash
 magnet:?xt=urn:btih:A4213B557E689D719FFB52059FF1D71714CD1B79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

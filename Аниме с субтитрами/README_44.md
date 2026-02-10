@@ -19,6 +19,8 @@ Mikagura Gakuen Kumikyoku | Mikagura School Suite | Сюита школы Мик
 magnet:?xt=urn:btih:16849EE6B7AA0866742F70F7BFCFC9301CBBFB8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Stella no Mahou | Magic of Stella | Магия Стеллы [2016, TV + OVA, 12 
 ```bash
 magnet:?xt=urn:btih:36941928C806F12B85365719A2C471CD874DFBFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Terra Formars / Терраформеры [2014, OVA, 2 ep] DVDRip 576p Raw
 magnet:?xt=urn:btih:9631F2BA60E237DDDB8FA2506C5FDC2FF712E157
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ ISUCA | Иска [2015, TV, 10 эп. + 1 OAD] BDrip 1080p raw
 ```bash
 magnet:?xt=urn:btih:DA70A2F14C4043193D7499F077C767A68BADA836
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Mei Ou Project Zeorymer / Hades Project Zeorymer / Дьявольский Про
 magnet:?xt=urn:btih:EE743458748057BF3F20D244DC8D867DEEC47575
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Kidou Senshi Gundam: SEED | Mobile Suit Gundam: SEED | Мобильный дос
 ```bash
 magnet:?xt=urn:btih:CF3F518E5CD94A4A1B07A8C0E8D6062D4744E04E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Kyou kara Ore wa!! | Today, It's My Turn!! | Сегодня и начну! [1993
 magnet:?xt=urn:btih:455A07A205815D0E350B47E8F6474BEACDBEDC87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Naka no Hito Genome [Jikkyouchuu] | The Ones Within | Nakanohito Genome [Jikkyou
 ```bash
 magnet:?xt=urn:btih:44F2680C833A77F63BC6BEB64CB5DCDB7CD4AED3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Yoake Tsugeru Lu no Uta | Lu Over The Wall | Песня Лу на рассвет
 magnet:?xt=urn:btih:F0562911495BE6E926895C854E8B391C74CB7388
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Haruchika: Haruta to Chika wa Seishun Suru | Haruchika: Haruta & Chika | Хар�
 magnet:?xt=urn:btih:5C07DDDE2593A62A918BFABF0B99F3ED4A3F0F63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Major 2nd (2020) | Второй Мэйджор [ТВ-2] [2020, TV, 25] WEBRip 72
 ```bash
 magnet:?xt=urn:btih:0335A31004DEC58BE9AEB64D2E96CA6E316931C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Soukyuu no Fafner: Dead Aggressor - Heaven and Earth / Fafner: Heaven and Earth 
 magnet:?xt=urn:btih:1266EB3280F2910912327037D8F2F21D06C80A6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Wanpaku Ouji no Orochi Taiji | The Little Prince and the Eight Headed Dragon | �
 ```bash
 magnet:?xt=urn:btih:F2D493F9EEC5C98DAB05D586FDDD6598744AA653
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ Versailles no Bara | The Rose of Versailles | Lady Oscar | Роза Версал
 magnet:?xt=urn:btih:88DBB4BB6C43515558AFA76083312D8EC13C9FB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ Oh! Family / Ох, семейка [1986, TV, 12 из 26] DVDRip 480p х265 raw
 ```bash
 magnet:?xt=urn:btih:EC7F741FE1A8561E67F5E9C7CAC555795B4C9EBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ A Channel+smile: Nabe wo Tabeyou | A-Channel+smile: Let's Eat Hot Pot | A Channe
 magnet:?xt=urn:btih:AD3E021E2C5F0C636E642581E69CF6997A5AE9D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ To Aru Majutsu no Index / A Certain Magical Index / Индекс Волшебс�
 ```bash
 magnet:?xt=urn:btih:D3E820AE085D9162BFEC9B8BBF7871532D0836F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ Sola / Sky / Небо [2007, TV, 13 ep + 1 SP + 1 OVA] BDrip 720p raw
 magnet:?xt=urn:btih:25F296A0E680C47657470306FBE7992230BAC654
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ Sola / Sky / Небо [2007, TV, 13 ep + 1 SP + 1 OVA] BDrip 1080p Hi10P raw
 magnet:?xt=urn:btih:1C11053D1707196F6DB9F4EB65F46B3EC29BB47A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ Carole & Tuesday | Кэрол и Тьюсдей [2019, TV, 24 эп.] HDTV 720p r
 ```bash
 magnet:?xt=urn:btih:075BE0D449CB10CC38BF8878D07EC20FA080DA49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +554,8 @@ Strike the Blood II | Удар крови [OVA-2] [2016, OVA, 8 эп.] BDRip 108
 magnet:?xt=urn:btih:34C3FBA0735E346DA10587CDFB2375D28D58FA50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ Two Car: Racing Sidecar | Две машины [2017, TV, 12 эп.] BDRip 1080 10
 ```bash
 magnet:?xt=urn:btih:119F64E05FA2C23B2EB687C5139839895B821958
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ Back Street Girls: Goku Dolls | Девчонки с задворок: Куклы
 magnet:?xt=urn:btih:C1D715929ECC543506A7035789976AB56E2EEC50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ Joshi Kausei | Беспечные старшеклассницы [2019, TV, 12 �
 ```bash
 magnet:?xt=urn:btih:5C36290F2BC6BB5617709D1FF74CC8F672B8B89F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ Minori Scramble! | Переполох Минори! [2012, OVA] BDRip 1080p raw
 magnet:?xt=urn:btih:E727C58373D5386A0709FC52AB2B268B0FFB0D41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ Noragami / Бездомный бог [2014, TV, 12 + 2 OAD] BDrip 1080p Hi10p ra
 ```bash
 magnet:?xt=urn:btih:975969A0788CA88020052AC4CC51E17BF5A2F94A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

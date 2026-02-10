@@ -19,6 +19,8 @@ Life after Death — это психологический триллер от �
 magnet:?xt=urn:btih:3166ABB4DE64D5D31716E5D35CD1113C471F6AA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ LOST EMBER (2019) [Ru/Multi] (1.0.0.11965) Repack Other s
 ```bash
 magnet:?xt=urn:btih:D0E46AACCAD2F57ED6C14B708CC653687321C6E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Don't Starve Together - это кооперативная игра на выжи
 magnet:?xt=urn:btih:817B5946F883DF83C42458136EC42FF9626CE350
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ A Golden Wake может заинтересовать любителей ста�
 ```bash
 magnet:?xt=urn:btih:1142055515C93C35768CF3D62B1865E132EEEB57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Sherlock Holmes Chapter One (2021) [Ru/Multi] (7839_1.4/dlc) Repack Decepticon [
 magnet:?xt=urn:btih:7EEDF71A6D2834F9A9F115B71127F7AE582C4761
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ JANITOR BLEEDS - это вдохновлённая ретро хоррор иг�
 ```bash
 magnet:?xt=urn:btih:1614FA91E2DF3DC6B1F68555B44E5D5619ECB0A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Goetia 2 (2022) [Multi] (1.0.4) License GOG
 magnet:?xt=urn:btih:9496558D1FE1F92F55AEA8A03AD1845208280BC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Recursive Ruin (2022) [Ru/Multi] (22.05.17) License GOG
 ```bash
 magnet:?xt=urn:btih:39CB569FDEA285632684E10397F231B84097CE6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Whateverland (2022) [Ru/Multi] (0.9.21) License GOG
 magnet:?xt=urn:btih:37EDFC7C8DD5E537532BB19329DE9C18456BF6C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Chinatown Detective Agency (2022) [Multi] (1.0.17) License GOG
 ```bash
 magnet:?xt=urn:btih:1A0AE279CECDE138F261C1B99BA310D49D5BC348
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Ecstatica: A State of Mind (1997) [En] (1.0) License
 magnet:?xt=urn:btih:F702B2B71AFFACC42B364041F93D7F393C1E2ED2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Dracula: Origin раскрывает темные начала прокляти�
 ```bash
 magnet:?xt=urn:btih:F9C2D3575A5B97CB3986101AE9848CD26446C76C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ South of the Circle - эмоциональная игра с глубоким м
 magnet:?xt=urn:btih:922E4DD117BAC7C84E34E28422C989DAAA48978C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Mists of Aiden — это сюжетный хоррор от первого ли
 ```bash
 magnet:?xt=urn:btih:B6135A93756DA8CE8547F041C5BEE886FDEE2A01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Kamikaze Veggies (2022) [Ru/Multi] (1.0) License DARKSiDERS
 magnet:?xt=urn:btih:5928CB3481F5FF0DF750DE4E70B42DD38B453155
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Chronicle (2022) [En] (1.0) License TiNYiSO
 ```bash
 magnet:?xt=urn:btih:BB9A3AF1878A3BE4A292388DEF5B2F153019C14C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Dare to Stay (2022) [En] (1.0) License TiNYiSO
 magnet:?xt=urn:btih:822C9CBF36C2C34FAA185C32BA561E63D25502D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Noctem - это психологический хоррор от первого 
 ```bash
 magnet:?xt=urn:btih:966E456F94DE489BE6D25BB8207D250DBF16757E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Catie in MeowmeowLand - это классическая юмористическ
 magnet:?xt=urn:btih:163FEEC40A43AAB1912700A92A69987D8C26DFF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ In The Space - Escape Room (2022) [Ru/Multi] (1.0) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:6AFFE75CDBF14597BC8502879555B484D25F9297
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Glitchhikers: The Spaces Between (2022) [Multi] (1.0.3) License GOG
 magnet:?xt=urn:btih:404E3CC3310891425A77B1E9BDD08BCAC3A6E0CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Expedition Zero — survival horror про аномальную зону в ле
 ```bash
 magnet:?xt=urn:btih:C4DFF655397B9CC64648C43E4AE3907B1A58A041
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ A Musical Story - это ритмическая игра в стиле 70-х. И
 magnet:?xt=urn:btih:976A1479EE950EDFAA5904E2DCEC2BF3248EB47E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Hollowbody бросает вас с головой в мрачный мир те
 ```bash
 magnet:?xt=urn:btih:2A387651F894B48B708FE50A43FE3D0B56EE996B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Resident Evil (Biohazard) HD Remaster (2020) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:B54EBB633B7E5E8449E59F3EEEA9E8999F6EBACE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ SKYHILL (2015) [Ru/Multi] (1.1.20) Repack Necros
 ```bash
 magnet:?xt=urn:btih:230229DF37DC99C7089B8B3CC1962D3029C2DBE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,27 +1,3 @@
-###  Публикация: 1447531   (1031833) от 13.02.2021
-
-Мост через Эльбу / No importa morir (1969) DVDRip [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031833.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конец второй мировой войны. Франция, 1944 год. Союзники дошли до Рейна. Группе из семи американских добровольцев даётся опасное задание - уничтожить штаб германского вермахта. Однако их миссия вскоре раскрывается, и всё задание заканчивается провалом, за который они платят несколькими жизнями. Однако американцы не сдаются и готовят другой план: командование решает (   Читать дальше...   )Производство: Испания, Италия, Atlántida Films, Leone Film, Leone-Daiano FilmЖанр: Военный, драмаРежиссер: Леон КлимовскийАктеры: Тэб Хантер, Ховард Росс, Эрика Валльнер, Клаудио Трионфи, Росанна Янни, Оскар Пеллисер, Анхель дель Позо, Гаспар «Индио» Гонсалес, Даниэле Варгас, Альфонсо де ла ВегаПеревод: Одноголосый любительский (Алексей Багичев)Субтитры: отсутствуютПродолжительность: 01:27:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C4F6AF7F776787EA3A3EA9ADA531E165CBFD89F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447455   (1031885) от 13.02.2021
 
 Роско Арбакл. Он сделал и не сделал это / He Did and He Didn't (1916) DVDRip
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:3C4F6AF7F776787EA3A3EA9ADA531E165CBFD89F
 ```bash
 magnet:?xt=urn:btih:9F2DAB64F807591F365F9A70691E2FBB505F09BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:9F2DAB64F807591F365F9A70691E2FBB505F09BC
 magnet:?xt=urn:btih:1092642B8DAF2C31614503DB9990F68EB54F0724
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:1092642B8DAF2C31614503DB9990F68EB54F0724
 ```bash
 magnet:?xt=urn:btih:69919AE16B3F354758F2F2A4B58C0C46DE0AC722
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +98,8 @@ magnet:?xt=urn:btih:69919AE16B3F354758F2F2A4B58C0C46DE0AC722
 magnet:?xt=urn:btih:060D0A14542C55327BA8E4CCE4A92C6CB30B4BE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +123,8 @@ magnet:?xt=urn:btih:060D0A14542C55327BA8E4CCE4A92C6CB30B4BE6
 ```bash
 magnet:?xt=urn:btih:4CEF92F3653F23CF3E58CF73D57AC5EF9448C043
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +151,8 @@ magnet:?xt=urn:btih:4CEF92F3653F23CF3E58CF73D57AC5EF9448C043
 magnet:?xt=urn:btih:1DD03BB7F6F817E2D9CEC862C829A468E81CE15B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +178,8 @@ magnet:?xt=urn:btih:1DD03BB7F6F817E2D9CEC862C829A468E81CE15B
 magnet:?xt=urn:btih:F9396D09F2FE94DC4837A4D0E2C392BF271B5011
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +203,8 @@ magnet:?xt=urn:btih:F9396D09F2FE94DC4837A4D0E2C392BF271B5011
 ```bash
 magnet:?xt=urn:btih:D3B7FB83D9260DB2CAC4A467B716B22521C9159E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +231,8 @@ magnet:?xt=urn:btih:D3B7FB83D9260DB2CAC4A467B716B22521C9159E
 magnet:?xt=urn:btih:1355FA3C7F34169E38C9B58BE392A4E2EF978C37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +256,8 @@ magnet:?xt=urn:btih:1355FA3C7F34169E38C9B58BE392A4E2EF978C37
 ```bash
 magnet:?xt=urn:btih:865F0EF1A2A586AF8DCA469CADCB0641D4646E3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +283,8 @@ magnet:?xt=urn:btih:865F0EF1A2A586AF8DCA469CADCB0641D4646E3F
 magnet:?xt=urn:btih:BFFD7877F6CBB4B72513E60E9FFC1C94204F10E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +308,8 @@ magnet:?xt=urn:btih:BFFD7877F6CBB4B72513E60E9FFC1C94204F10E1
 ```bash
 magnet:?xt=urn:btih:A6F5B810E3E3D6D0448F1FEC13DFF2E415B5FBAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +335,8 @@ magnet:?xt=urn:btih:A6F5B810E3E3D6D0448F1FEC13DFF2E415B5FBAC
 magnet:?xt=urn:btih:3683BB9E6053487A82460BEA0F4185839376B712
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +360,8 @@ magnet:?xt=urn:btih:3683BB9E6053487A82460BEA0F4185839376B712
 ```bash
 magnet:?xt=urn:btih:7119D1E1C678487DC9E3DACB60332D1C1B8A6DF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +387,8 @@ magnet:?xt=urn:btih:7119D1E1C678487DC9E3DACB60332D1C1B8A6DF5
 magnet:?xt=urn:btih:687F9EBD3DE6FA1EDA819FE04EBB9453B5AB6EF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +412,8 @@ magnet:?xt=urn:btih:687F9EBD3DE6FA1EDA819FE04EBB9453B5AB6EF5
 ```bash
 magnet:?xt=urn:btih:EF85A220903F4557646D0A72ECC0DB96CC6B0E97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +439,8 @@ magnet:?xt=urn:btih:EF85A220903F4557646D0A72ECC0DB96CC6B0E97
 magnet:?xt=urn:btih:B017DD89F5D719D2CCA29F70ED0F80AF1955ACA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +464,8 @@ magnet:?xt=urn:btih:B017DD89F5D719D2CCA29F70ED0F80AF1955ACA4
 ```bash
 magnet:?xt=urn:btih:272D4139BD47BF77A7228ACE98F3935492012DA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +492,8 @@ magnet:?xt=urn:btih:272D4139BD47BF77A7228ACE98F3935492012DA1
 magnet:?xt=urn:btih:8FF210F0948542C2A3674F0111C269E66F0B3042
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +517,8 @@ magnet:?xt=urn:btih:8FF210F0948542C2A3674F0111C269E66F0B3042
 ```bash
 magnet:?xt=urn:btih:5ECC8A52069C711E375A089E5D0EA09274E8A8AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +545,8 @@ magnet:?xt=urn:btih:5ECC8A52069C711E375A089E5D0EA09274E8A8AE
 magnet:?xt=urn:btih:1467CDDED5E750EB324B680FDD2F56E0D2DD5F4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +570,8 @@ magnet:?xt=urn:btih:1467CDDED5E750EB324B680FDD2F56E0D2DD5F4A
 ```bash
 magnet:?xt=urn:btih:27A402DDCC8448F845D453DB01D1EC921654447D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +598,8 @@ magnet:?xt=urn:btih:27A402DDCC8448F845D453DB01D1EC921654447D
 magnet:?xt=urn:btih:AF926BDAF31F83AB7F0F3B628B993CFE40C68F1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +624,8 @@ magnet:?xt=urn:btih:AF926BDAF31F83AB7F0F3B628B993CFE40C68F1C
 magnet:?xt=urn:btih:43AC7D5F7EEF7A8DF2F42E84C616A2D45CA9B26B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +649,34 @@ magnet:?xt=urn:btih:43AC7D5F7EEF7A8DF2F42E84C616A2D45CA9B26B
 ```bash
 magnet:?xt=urn:btih:46114421DFC9C2DB4136C137D49BF2C3FBB4EE02
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445372   (1033748) от 05.02.2021
+
+Диван (Полидор - продавец мебели) / Il divano (Polidor mobiliere) (1917) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полидор не договорился с носильщиком, поэтому диван до покупателя пришлось тащить самому...Производство: Италия, Società Italiana CinesЖанр: Комедия, короткометражный, немое киноРежиссер: ПолидорАктеры: Матильда Гийом, Полидор (Фердинанд Гийом)Перевод: Немой с интертитрамиСубтитры: Итальянские интертитры, русские отдельным файломПродолжительность: 00:07:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D15D63E119EEA3C44655AED77D01E7897EF6A20
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

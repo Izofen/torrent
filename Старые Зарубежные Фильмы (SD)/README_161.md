@@ -1,27 +1,3 @@
-###  Публикация: 1540431   (652445) от 30.03.2022
-
-Другой ад / L'altro inferno / The Other Hell (1981) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652445.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одном из женских монастырей Италии за короткое время насильственной смертью умерли несколько монахинь, и для расследования этого происшествия туда был послан седовласый отец Инардо. После краткого разбирательства святой отец пришел к выводу, что в монастыре пустил свои корни дьявол, в результате чего в монастырь отправился молодой отец Валерио, который начал собственное (   Читать дальше...   )Производство: Италия, Cinemec ProduzioneЖанр: ужасы, триллерРежиссер: Бруно МаттеиАктеры: Франка Стоппи, Карло Де Мейо, Francesca Carmeno, Сьюзэн Форгет, Франко Гарофало, Паола Монтенеро, Ornella Picozzi, Андреа Аурели, Адриана Бруно, Долорес КалоПеревод: Одноголосый любительскийСубтитры: отсутствуютПродолжительность: 01:28:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE30E81BF82A678617CB21AC12D5B2B695B8B49B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1540495   (652530) от 30.03.2022
 
 Не разлей вода / Pappa e ciccia (1983) WEB-DLRip [H.264]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:CE30E81BF82A678617CB21AC12D5B2B695B8B49B
 ```bash
 magnet:?xt=urn:btih:A4D1FD2AF8C4F512FE48AAAC87CD3DC3BD79E182
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:A4D1FD2AF8C4F512FE48AAAC87CD3DC3BD79E182
 magnet:?xt=urn:btih:20973BCE0485448DFFF9864712774755DEC1B123
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:20973BCE0485448DFFF9864712774755DEC1B123
 ```bash
 magnet:?xt=urn:btih:EF5E0B677DACA9E86437B45DB584FB6721C0C013
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:EF5E0B677DACA9E86437B45DB584FB6721C0C013
 magnet:?xt=urn:btih:E978D136AF23078064AA0716345B24BD88691361
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:E978D136AF23078064AA0716345B24BD88691361
 ```bash
 magnet:?xt=urn:btih:76615D2292C76807E15863EC1919E44917FE35A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:76615D2292C76807E15863EC1919E44917FE35A6
 ```bash
 magnet:?xt=urn:btih:3BE6F6861B3789C9279B5222584743C5F3697442
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +178,8 @@ magnet:?xt=urn:btih:3BE6F6861B3789C9279B5222584743C5F3697442
 magnet:?xt=urn:btih:00D94707D9045069C1E3B7DA5F88357167B7D857
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +203,8 @@ magnet:?xt=urn:btih:00D94707D9045069C1E3B7DA5F88357167B7D857
 ```bash
 magnet:?xt=urn:btih:7C1CE3ADEFF0D0316DBCFB073CA0BD291257ED0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +230,8 @@ magnet:?xt=urn:btih:7C1CE3ADEFF0D0316DBCFB073CA0BD291257ED0E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +255,8 @@ magnet:?xt=urn:btih:7C1CE3ADEFF0D0316DBCFB073CA0BD291257ED0E
 ```bash
 magnet:?xt=urn:btih:A8B2C4D036C0A3913653A73F9BE525163C78D53E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +282,8 @@ magnet:?xt=urn:btih:A8B2C4D036C0A3913653A73F9BE525163C78D53E
 magnet:?xt=urn:btih:28C914D0BFBFA224D3D5B4C02D5DA42D8680E97D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +307,8 @@ magnet:?xt=urn:btih:28C914D0BFBFA224D3D5B4C02D5DA42D8680E97D
 ```bash
 magnet:?xt=urn:btih:C6C2FC5E90AF8D04C1AF5133AACDA05FA95B3B76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +334,8 @@ magnet:?xt=urn:btih:C6C2FC5E90AF8D04C1AF5133AACDA05FA95B3B76
 magnet:?xt=urn:btih:661F41D457D2327AB7D7F02AA9DB6DBCAA4A23E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +359,8 @@ magnet:?xt=urn:btih:661F41D457D2327AB7D7F02AA9DB6DBCAA4A23E9
 ```bash
 magnet:?xt=urn:btih:7BD2B2C2EA8DB7B9C71DD07D3900454BC2E3378C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +387,8 @@ magnet:?xt=urn:btih:7BD2B2C2EA8DB7B9C71DD07D3900454BC2E3378C
 magnet:?xt=urn:btih:B3366EF5118929551A554E97A1E5BC5930722F62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +413,8 @@ magnet:?xt=urn:btih:B3366EF5118929551A554E97A1E5BC5930722F62
 magnet:?xt=urn:btih:A1D2F7B6726B345356EBDCB769F9B1A13FC906BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +438,8 @@ magnet:?xt=urn:btih:A1D2F7B6726B345356EBDCB769F9B1A13FC906BB
 ```bash
 magnet:?xt=urn:btih:F49ED381A936C9C452228362BB8EC8EA0355E702
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +466,8 @@ magnet:?xt=urn:btih:F49ED381A936C9C452228362BB8EC8EA0355E702
 magnet:?xt=urn:btih:FDBDE95C9B53FF204431F6119CBA861A329726B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +493,8 @@ magnet:?xt=urn:btih:FDBDE95C9B53FF204431F6119CBA861A329726B6
 magnet:?xt=urn:btih:F68EE579A4223732EEE0747AE0D5AF399B94679C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +519,8 @@ magnet:?xt=urn:btih:F68EE579A4223732EEE0747AE0D5AF399B94679C
 magnet:?xt=urn:btih:0A000831F7F4F812AFDEB38FD0E87CE8DA621BED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +544,8 @@ magnet:?xt=urn:btih:0A000831F7F4F812AFDEB38FD0E87CE8DA621BED
 ```bash
 magnet:?xt=urn:btih:25596B9D7AF143C2305CE64ED357D45EF4F4F584
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +572,8 @@ magnet:?xt=urn:btih:25596B9D7AF143C2305CE64ED357D45EF4F4F584
 magnet:?xt=urn:btih:B5CC733AD0C3965932C8B3DB7B800B008A9D3332
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +597,8 @@ magnet:?xt=urn:btih:B5CC733AD0C3965932C8B3DB7B800B008A9D3332
 ```bash
 magnet:?xt=urn:btih:AC680A1947973BD2CB08C6CDF1A436B0DAE4CB30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +624,8 @@ magnet:?xt=urn:btih:AC680A1947973BD2CB08C6CDF1A436B0DAE4CB30
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +649,35 @@ magnet:?xt=urn:btih:AC680A1947973BD2CB08C6CDF1A436B0DAE4CB30
 ```bash
 magnet:?xt=urn:btih:022A960245D02FB83D58255C3FF35FB14F732EA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 342639   (658006) от 28.05.2011
+
+Смерть в Венеции / Morte a Venezia (1971) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой, композитор Густав фон Ашенбах, стараясь убежать от творческих терзаний и бытовых неудач, приезжает весной 1911 года на курорт Лидо близ Венеции. Однако и здесь Ашенбаху не суждено обрести душевный покой - однажды на пляже он встречает изумительно красивого мальчика Тадзио, чья юность и привлекательность очаровывают композитора с первого взгляда.
+Юноша (   Читать дальше...   )Производство: Италия, Франция, США / Alfa Cinematografica, Warner Bros., PECFЖанр: драмаРежиссер: Лукино ВисконтиАктеры: Дирк Богард, Бьорн Андресен, Ромоло Валли, Марк Бёрнс, Нора Риччи, Мариза Беренсон, Кароль Андре, Сильвана Мангано, Лесли Френч, Франко ФабрициПеревод: Профессиональный двухголосый (НТВ+)Субтитры: ОтсутствуютПродолжительность: 02:10:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B38EC4458A56AAAD83EAEF658908B88C5B2C1935
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

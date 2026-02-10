@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:D38EEFE910C543FCF3724C3A67AC69268DF3F6BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Mortal Kombat 4 ждали. Ждали многие, правда, по разн
 ```bash
 magnet:?xt=urn:btih:B596960181835F3576CD43119599AB28C96C11AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:B596960181835F3576CD43119599AB28C96C11AF
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Child of Eden погрузит вас в самый центр сражений 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ Devil's Train - Devil's Train (2012) [MP3|V0 ~241 кб/с]<Hard & Heavy Rock>
 magnet:?xt=urn:btih:2963DE0B6AA316232E7E0E3A73C232C058439706
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -160,6 +170,8 @@ magnet:?xt=urn:btih:2963DE0B6AA316232E7E0E3A73C232C058439706
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +206,8 @@ Topmodelz - Back To The 80s (2010) [MP3|320 kbps]<Hard Trance>
 magnet:?xt=urn:btih:42BF9D6EB6606B43C7FE500BFED12EE97304A296
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +231,8 @@ magnet:?xt=urn:btih:42BF9D6EB6606B43C7FE500BFED12EE97304A296
 ```bash
 magnet:?xt=urn:btih:4EB44F03A43F208EE7E0365A2FDFFC72F4516E4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +258,8 @@ magnet:?xt=urn:btih:4EB44F03A43F208EE7E0365A2FDFFC72F4516E4E
 magnet:?xt=urn:btih:281B7F3B802602ABD7192F9B47F0699708494058
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +284,8 @@ Deep Purple - Double Original 1974 (2CD) Reissue / 2003, EMI Records/ [FLAC|Loss
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +309,8 @@ Deep Purple - Double Original 1974 (2CD) Reissue / 2003, EMI Records/ [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:17ABAE5F2B3AE69699B94E93FF76D01D0E44D89C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +345,8 @@ VA - TranceMafia - Hellenic Music Revolutionaries (2012) [MP3|320 kbps]<Psychede
 magnet:?xt=urn:btih:0A35B88FE3A14E44ABC5293D1392FA0D7A38F253
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +379,8 @@ VA - More Than Miles: Dream House '96 (1996) [MP3|320 kbps]<Dream House>
 ```bash
 magnet:?xt=urn:btih:8FFCFEA3F9D35E6470F4E537963408761E252E1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +415,8 @@ Sentenced - The Funeral Album (Japanese Edition) (2005) [FLAC|Lossless]<Gothic M
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +450,8 @@ Sentenced - The Funeral Album (Japanese Edition) (2005) [FLAC|Lossless]<Gothic M
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +479,8 @@ OpenSUSE 12.2 Milestone 1 [i686 + x86_64] (4xCD)
 ```bash
 magnet:?xt=urn:btih:4339C608AC96DE23FC7BE3558EC6A6659717962D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +515,8 @@ Deep Purple - Fireball (1971) 25th Anniversary Edition / 1996, EMI Records/ [FLA
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +540,8 @@ Deep Purple - Fireball (1971) 25th Anniversary Edition / 1996, EMI Records/ [FLA
 ```bash
 magnet:?xt=urn:btih:7DBACDD69EAEDD88D63BB8DA37E907BC404DDB68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +576,8 @@ magnet:?xt=urn:btih:7DBACDD69EAEDD88D63BB8DA37E907BC404DDB68
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +609,8 @@ Annihilation - Decimation (2012) [MP3|192 kbps]<Old School Death Metal>
 ```bash
 magnet:?xt=urn:btih:59A4AB7A25FDB252061568448630EBE79FBE359C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +645,8 @@ Howlin Rain - 4 альбома (2006 - 2012) [FLAC|Lossless]<Psychedelic / Blues
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +680,8 @@ Creedence Clearwater Revisited - Extended Versions (2010) [FLAC|Lossless]<Classi
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +707,8 @@ Creedence Clearwater Revisited - Extended Versions (2010) [FLAC|Lossless]<Classi
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -697,6 +743,8 @@ Sigue Sigue Sputnik - 2 Альбома (1988, 2001) [FLAC|Lossless]<Electronic, 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -723,6 +771,8 @@ Sigue Sigue Sputnik - 2 Альбома (1988, 2001) [FLAC|Lossless]<Electronic, 
 magnet:?xt=urn:btih:6E44394F2BDD9398543497F9A5479F8DC12F2BB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -746,6 +796,8 @@ magnet:?xt=urn:btih:6E44394F2BDD9398543497F9A5479F8DC12F2BB5
 ```bash
 magnet:?xt=urn:btih:DABD1FE6C253637F6AC03C0E53F714D51A4097F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

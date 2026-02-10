@@ -22,6 +22,8 @@ Impress - Враг не дремлет (2023) [FLAC|Lossless|image + .cue] <Thra
 magnet:?xt=urn:btih:FFC61739ED3C3CDDBA4C21447446C7EF90790225
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ magnet:?xt=urn:btih:FFC61739ED3C3CDDBA4C21447446C7EF90790225
 magnet:?xt=urn:btih:67B29684DF14A9A0319CC9715C62BB35D217B484
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ magnet:?xt=urn:btih:67B29684DF14A9A0319CC9715C62BB35D217B484
 ```bash
 magnet:?xt=urn:btih:BF06DDA1056DFE4E509032DEEF4577B82DF20B05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:BF06DDA1056DFE4E509032DEEF4577B82DF20B05
 magnet:?xt=urn:btih:24BACE8C8BA40A542C96EA72AAD483EC50BFD47C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ magnet:?xt=urn:btih:24BACE8C8BA40A542C96EA72AAD483EC50BFD47C
 ```bash
 magnet:?xt=urn:btih:8140C9E77193547556EC8699D347B9293345005C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -155,6 +165,8 @@ magnet:?xt=urn:btih:8140C9E77193547556EC8699D347B9293345005C
 magnet:?xt=urn:btih:A78F9D0FEA5EEDBF0A142D15154519389E621CF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ magnet:?xt=urn:btih:A78F9D0FEA5EEDBF0A142D15154519389E621CF8
 ```bash
 magnet:?xt=urn:btih:0FCA575B5573C43CB5A7DBDB37653C3F03F578FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -206,6 +220,8 @@ Holy Giant - Diviners & Dividers (2023) [FLAC|Lossless|WEB-DL|tracks] <doommetal
 magnet:?xt=urn:btih:6D45B68665BD096ABF9B0D849858B537B59190B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -230,6 +246,8 @@ magnet:?xt=urn:btih:6D45B68665BD096ABF9B0D849858B537B59190B3
 ```bash
 magnet:?xt=urn:btih:BF5F6FA1E92E10A9879FC5BC5F6E222C90416503
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -258,6 +276,8 @@ magnet:?xt=urn:btih:BF5F6FA1E92E10A9879FC5BC5F6E222C90416503
 magnet:?xt=urn:btih:4BBF7E7519CADCD05C40238E69A3BAEB48A61472
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +304,8 @@ VA - Clubbing 2024 (2023) [MP3|320 Kbps] <House, Dance>
 ```bash
 magnet:?xt=urn:btih:C48B0A0DF8C9053320D65E83AA03A9C84482EBA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +334,8 @@ Neuroticfish - The Demystification Of The Human Heart (2023) [FLAC|Lossless|WEB-
 magnet:?xt=urn:btih:713B2FD303B6F49F144A1781F248D2C19B9AE612
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +362,8 @@ TV Girl - Who Really Cares (2016) Digital Album [FLAC|Lossless|WEB-DL|[tracks] <
 ```bash
 magnet:?xt=urn:btih:206DAC8842FB5E0410C689FE5E7922E590C1580A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +392,8 @@ magnet:?xt=urn:btih:206DAC8842FB5E0410C689FE5E7922E590C1580A
 magnet:?xt=urn:btih:BBD23DA7BEA95FA43AE95FEF640414FD4091E374
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +420,8 @@ Heavy Load - Death Or Glory (1982) Remastered, 2019, Reissue, 2023, WM Sweden [F
 ```bash
 magnet:?xt=urn:btih:E28EA4569FB1FA794C8CF600861AEB241A90CDD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +450,8 @@ VA - Heavy Electric Guitar (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:6025930D7BDC49E1292CE413EBC7F03F649F825F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +475,8 @@ magnet:?xt=urn:btih:6025930D7BDC49E1292CE413EBC7F03F649F825F
 ```bash
 magnet:?xt=urn:btih:78A57512FCE2A9C1E3726E8B11415797705D182B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +505,8 @@ Iris Official - Heart Of An Artist: Resurrection (2023) [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:71488B865E0EF020DD0A28429325D9433DFC24C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +534,8 @@ Van Roy Asylum - Unsaint Petersburg (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:E112A1EFCD9C857B1DA35F416B1C43263DFD5A57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +559,8 @@ magnet:?xt=urn:btih:E112A1EFCD9C857B1DA35F416B1C43263DFD5A57
 ```bash
 magnet:?xt=urn:btih:C876836D39393C3B60AD068007A5D31C7E6640F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +589,8 @@ Rash Panzer - Liberation (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard
 magnet:?xt=urn:btih:2390E9F99547C8F93FAA9535139DF752B25D3FE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +617,8 @@ magnet:?xt=urn:btih:2390E9F99547C8F93FAA9535139DF752B25D3FE1
 ```bash
 magnet:?xt=urn:btih:4C5BFCC3384077AA232166BADF74D0FC07C433BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +647,8 @@ magnet:?xt=urn:btih:4C5BFCC3384077AA232166BADF74D0FC07C433BF
 magnet:?xt=urn:btih:359866900CCCD7AFE6B14730F3F16C214A6DFE83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +675,8 @@ magnet:?xt=urn:btih:359866900CCCD7AFE6B14730F3F16C214A6DFE83
 magnet:?xt=urn:btih:238097B8ACDDFF52890BA3EF654A954F67B0C8A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +700,8 @@ Listen Audiobook Player v5.2.4 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0DA2D4F6DB282C5CAD093C9D92CDBDC57905E8F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -679,6 +729,8 @@ Livin' Blues, Nicko Christiansen - Back on track (2023) [MP3|320 Kbps] <Blues, R
 ```bash
 magnet:?xt=urn:btih:838D32F2777782D19FF616B0EDA88C7AAB88F668
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

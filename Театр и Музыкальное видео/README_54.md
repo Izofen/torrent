@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:879B46EA051DC2A7F6D2AAC52C722CA2B8DFB1B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:879B46EA051DC2A7F6D2AAC52C722CA2B8DFB1B4
 ```bash
 magnet:?xt=urn:btih:0CCED7ED86352F3A54D0EA7D0F7CCB96B6EAFDDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Sheryl Crow - Live At The Capitol Theater 2017 (2018) DVD5 [custom]
 ```bash
 magnet:?xt=urn:btih:F9A38F05BDD8588D2D8599D4B1A4717FDDD33AB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -104,6 +110,8 @@ Alicia Keys - BBC Radio 1xtra Live (15.11.2012) (2012) HDTVRip [H.264]
 ```bash
 magnet:?xt=urn:btih:F4C10743BED295FB379868650C33C8AE9095B250
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -138,6 +146,8 @@ Max Raabe & Palast Orchestra - In der Berliner WALDBUHNE (2006) SATRip [H.264]
 magnet:?xt=urn:btih:BECB327753D67C5A666B45E9B4094B2751DEE2F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -161,6 +171,8 @@ OKSI - Новогодняя 2013 (2012) [H.264/1080p] WEBRip
 ```bash
 magnet:?xt=urn:btih:C0CD3B6756EB5BAFD9A1FCABBBF73D60B7AAC6C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +207,8 @@ Santana - Live in Concert at the Royal Albert Hall 1971 (2001) DVDRip
 magnet:?xt=urn:btih:729139DCF33CBE0B1B03FE19241108DEA957310C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +233,8 @@ magnet:?xt=urn:btih:729139DCF33CBE0B1B03FE19241108DEA957310C
 magnet:?xt=urn:btih:AB4A65746037CECFE08E2E64CD7E646BA0DC681C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +258,8 @@ magnet:?xt=urn:btih:AB4A65746037CECFE08E2E64CD7E646BA0DC681C
 ```bash
 magnet:?xt=urn:btih:43AFB10F978001E6DEE83659F04E149CB13AF3C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +290,8 @@ magnet:?xt=urn:btih:43AFB10F978001E6DEE83659F04E149CB13AF3C3
 magnet:?xt=urn:btih:CDFD96CC125FDD2F630E4DDD424B26B74A5DA0D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +319,8 @@ VA - Зимний марафон № 212: Дискотека в стиле Count
 magnet:?xt=urn:btih:1AD691863888AE1BCC0B22A3845398D622D9B85B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +344,8 @@ magnet:?xt=urn:btih:1AD691863888AE1BCC0B22A3845398D622D9B85B
 ```bash
 magnet:?xt=urn:btih:0E7CBAFD995BE198DCCE7E36647C863FCA8283C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +380,8 @@ Metallica: Сквозь невозможное / Metallica Through the Never (20
 magnet:?xt=urn:btih:EF01582772F8433C399079BB4A54FBE6F8796CCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +406,8 @@ magnet:?xt=urn:btih:EF01582772F8433C399079BB4A54FBE6F8796CCB
 ```bash
 magnet:?xt=urn:btih:A5275E4686F33620575DCA2BCA571F7AC902B16A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +436,8 @@ Adele - At The BBC (2015) HDTVRip [H.264]
 magnet:?xt=urn:btih:00C20BBA2793ECB3AC09185126F1C744621081C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +463,8 @@ Metallica - Quebec Magnetic (2012) BDRip [720]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +492,8 @@ Metallica - Quebec Magnetic (2012) BDRip [720]
 ```bash
 magnet:?xt=urn:btih:15E21A4619CDBC461D754C660A3A813F1E59A897
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +528,8 @@ Scorpions - MTV Unplugged In Athens (2013) BDRip [1080p]
 magnet:?xt=urn:btih:7F22861D54FBC2066E61C92BFF64D26655AE9C34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +553,8 @@ magnet:?xt=urn:btih:7F22861D54FBC2066E61C92BFF64D26655AE9C34
 ```bash
 magnet:?xt=urn:btih:BF95C202F86BED3F27BEB2173B44D88332958358
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +580,8 @@ magnet:?xt=urn:btih:BF95C202F86BED3F27BEB2173B44D88332958358
 ```bash
 magnet:?xt=urn:btih:938AD6BAA20E0DE0C0F46EF267B79D532FF88E45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +610,8 @@ magnet:?xt=urn:btih:938AD6BAA20E0DE0C0F46EF267B79D532FF88E45
 magnet:?xt=urn:btih:D6F93DD24241802E6F943A84BEBFD508A1327083
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +636,8 @@ magnet:?xt=urn:btih:D6F93DD24241802E6F943A84BEBFD508A1327083
 magnet:?xt=urn:btih:8E4AC6A74F19CC56CFEE0D5A2D530CCCE9ADE7D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +661,8 @@ magnet:?xt=urn:btih:8E4AC6A74F19CC56CFEE0D5A2D530CCCE9ADE7D3
 ```bash
 magnet:?xt=urn:btih:05416768C1536EC301616FD812F3A2F27D76C6AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +689,8 @@ magnet:?xt=urn:btih:05416768C1536EC301616FD812F3A2F27D76C6AF
 magnet:?xt=urn:btih:6334079D589FB932DD962A62126369CF53B4740B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +714,8 @@ Mylene Farmer - Je Te Dis Tout (Live, NRJ Music Awards 2013) HDTVRip [1080p]
 ```bash
 magnet:?xt=urn:btih:52A782738501576D02AAE7FCBC9162979D5C5949
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -693,6 +743,8 @@ magnet:?xt=urn:btih:52A782738501576D02AAE7FCBC9162979D5C5949
 ```bash
 magnet:?xt=urn:btih:2195144A2A934803BEC1CD06EBCFC56A4B4D04A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

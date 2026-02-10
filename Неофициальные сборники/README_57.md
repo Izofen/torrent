@@ -22,6 +22,8 @@ Blues & Gentlemen's - Compilation (2025) [MP3|320 Kbps] <Blues, Slow Blues, Inst
 magnet:?xt=urn:btih:B0D3D520680FB43353D64D8BB08649F120F412AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ DIAZZA - Favorites Collection (2025) [MP3|320 Kbps] <Electronic, Vocal>
 ```bash
 magnet:?xt=urn:btih:AD5FEF0DD5BE78EB5B0E6F76B1398A16ADE9E15B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Music News For Forum vol.138 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:5C4E783EE71C50E46E619A9A148FE268AF619CE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Adex - Favorites Collection (2025) [MP3|320 Kbps] <Electronic, Vocal>
 ```bash
 magnet:?xt=urn:btih:E32F536C09991F7B80BF7543E811233EFF5D4A55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Sofia Bellini - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Italodisco, I
 magnet:?xt=urn:btih:7BACB26D48733FB929F6B06DD7B532A17B3DF956
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ VA - Compilation Part 195 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, V
 magnet:?xt=urn:btih:C611CF79FC5FF8EACF176762B51D5B5A6D8AFCDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +195,8 @@ Feel My Vibe - Feel My Vibe (2025) [MP3|320 Kbps] <Electronic, Easy listening, I
 ```bash
 magnet:?xt=urn:btih:686DC5BFE7468F35B0557051C376FD185DC5B2C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +231,8 @@ VA - Лучшие Зарубежные Треки (2012) [MP3|224 кб/с]<Dance
 magnet:?xt=urn:btih:BB8DC3D976AECB728FE88E9954DB9A01B1F6E5A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +265,8 @@ VA - New Top Зайцев.нет 50/50 (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:1C951DEE4EDEB1DA085F963C1B78483FD1A52D14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +301,8 @@ VA - Самые горячие новинки этого года (2012) [MP3|25
 magnet:?xt=urn:btih:CB676E47723878ADC8746EA4D255847C8B1EE054
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +335,8 @@ VA - Beautiful Dubstep v.3 (2012) [MP3|256-320 кб/с]<Dubstep/Chillout/Longe>
 ```bash
 magnet:?xt=urn:btih:9CF6F669DD6876F102E62F8F6623661F905B8E44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +371,8 @@ VA - Лучшие Хиты Радио Европа Плюс Часть 8 (2012) 
 magnet:?xt=urn:btih:F816AB9F600C2D6A12AAA401BB5FBE1F9BD52A96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +405,8 @@ VA - Лучшие Хиты Радио Шансон Часть 8 (2012) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:E5BB24DBE70B0376D833DCF603DC6CD47772012D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +441,8 @@ VA - Дя, Я пьяна! Девишник (2012) [MP3|320 кб/с]<Шансон
 magnet:?xt=urn:btih:E23CA5D7637F4A69012ECE4AC90B0925D1DBE119
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +475,8 @@ VA - Восточная Сказка (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:953D6230EA8BF66719796D77E4A99A5C866EE71D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +511,8 @@ VA - Музыка в дорогу и для себя (2012) [MP3|96-320 кб/с]
 magnet:?xt=urn:btih:213303B01513CC5CBD202EDE1CBC2724C4F81520
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +546,8 @@ magnet:?xt=urn:btih:213303B01513CC5CBD202EDE1CBC2724C4F81520
 magnet:?xt=urn:btih:D76AA934B949AF3BEBEF74486604767C97EF5576
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +574,8 @@ Thievery Corporation - Best (1996-2018) [MP3|320 Kbps] <Duby Downtempo, Electron
 ```bash
 magnet:?xt=urn:btih:01C38EACF67EBF33EF778337B45BE94DB1949427
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +604,8 @@ Arctic Monkeys - Compilation (2005-2022) [MP3|320 Kbps] <Indie rock, Post punk, 
 magnet:?xt=urn:btih:C0DE5C1AC386D4A2B36EAEB54BE54ABC81A0ECB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +632,8 @@ Hamidshax - Compilation Cd 4 (2024) [MP3|320 Kbps] <Electronic>
 ```bash
 magnet:?xt=urn:btih:5B105187573964475627857486EEE6C59DE2654D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +662,8 @@ Shaed - Compilation (2024) [MP3|320 Kbps] <Electropop, indie pop>
 magnet:?xt=urn:btih:2B2F1CDD2D116ED73D190FD9F9F999529DE77B77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +690,8 @@ David Eugene Edwards - Best (as Part of 16 Horsepower, Wovenhand) (1995-2012) Co
 ```bash
 magnet:?xt=urn:btih:DE3B6EBCAB312FF85C62C2CF499792E4C90D9A13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -676,6 +720,8 @@ VA - Vintage Electro Swing (2024) [MP3|320 Kbps] <Swing, Nu Jazz, Electro>
 magnet:?xt=urn:btih:5B2606E9F882FC06043BEE6CD2406CC209AD9087
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -702,6 +748,8 @@ VA - compilation part 125 Nu Jazz, Electro Swing & Electro pop (2024) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:6CAD69874FFD561DFA267E7BE7694C06E7F93901
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -730,6 +778,8 @@ VA - compilation musical kaleidoscope part 4 (2024) [MP3|320 Kbps] <electro swin
 magnet:?xt=urn:btih:3E58D19F4F0F123BFFF41A4144A67CE16AB4D191
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -756,6 +806,8 @@ VA - Compilation Part 198 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, V
 ```bash
 magnet:?xt=urn:btih:8D2C65E0C249DC26F704F7CBD7AA71141E44838E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

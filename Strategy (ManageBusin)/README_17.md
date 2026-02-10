@@ -19,6 +19,8 @@ Rise of Industry (2019) [Ru/Multi] (1.0.0.0205A) License CODEX
 magnet:?xt=urn:btih:0B0697D5B9C531AA5F8A04735B1895B0F7C34EF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Blood Bowl 2 - это фэнтезийная видеоигра, созданн�
 ```bash
 magnet:?xt=urn:btih:5C86556C44B5013DE7675412CF3799E21EFE30CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Beholder 3 (2022) [Ru/Multi] (1.0.9_99) License GOG
 magnet:?xt=urn:btih:98988B74E5E825848FB0AA63943CB39E0DBAE4B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Mob Rule Classic / Street Wars: Constructor Undergroud (1999) [En] (2.0) License
 magnet:?xt=urn:btih:C8E1B4C4AA73DC967E80808E7B219736BCD558A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Pathway (2019) [En/Ge/Fr] (1.0.5) License PLAZA
 ```bash
 magnet:?xt=urn:btih:DDC650577FC8AD06533FA3C110218AA7BE61FAEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Villagers - это прекрасно иллюстрированная и дет
 magnet:?xt=urn:btih:CE512F1BF416C537F0AE49E096D0C4268491CC85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Urban Empire (2017) [Ru/Multi] (1.2.1.3.12587/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:C463955942D6D9C176835C26BC00248DD9E8BFEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Anno 1404 (2010) [Ru/En] (1.3.3645/2.1.5010/dlc) Repack xatab [Gold Edition]
 magnet:?xt=urn:btih:E5F4B325C74E9A5D79CBD2FC5F5BB657257D645B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ RESCUE 2: Everyday Heroes (2015) [Ru/Multi] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:4A3B5ECE3C51FB0E412070CD848E81BF2CCC728A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ SimCity 3000 Unlimited (2000) [Ru/Multi] (16.07.2016) License GOG
 magnet:?xt=urn:btih:DCEE95ADD607C0E4016037B39C847DC213FDD151
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Lethis - Path of Progress – двухмерный «олдскульный» г
 ```bash
 magnet:?xt=urn:btih:9CBE02C935BBEC4715836500CDF9E3D656BAE342
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Pro Cycling Manager 2013 (2013) [Multi] License CPY
 magnet:?xt=urn:btih:CE7740050537AB6F0229CEEC992F4636DDFE1288
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Constructor (2017) [Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B6B7B07B09AB2DF230A522C1785A3F171CBDF446
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Tropico 6 (2019) [Ru/En] (96607/dlc) Repack R.G. Механики [El Prez Editi
 magnet:?xt=urn:btih:BEBBC716366F75BFB794B89C44F75CAD7816F48C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Pathway — это стратегическая RPG в атмосфере 1930-�
 ```bash
 magnet:?xt=urn:btih:39F913D468A68C73E76DA9C6A7E6A0F853CC3933
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Planet Coaster представляет собой реалистичный си
 magnet:?xt=urn:btih:6BDB0FF0D631E3F4BEB47B2A5579333F5D1B6781
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ Tropico 6 (2019) [Ru/Multi] (1.0/dlc) License PLAZA [El Prez Edition]
 ```bash
 magnet:?xt=urn:btih:E3736D7237CB89EC4AB1523506B5D8680757C653
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ Sid Meier's SimGolf / Магнат Гольфа [Ru/En] (P) 2002
 magnet:?xt=urn:btih:D098FB91C48F3C4AFD30F8213A6243DD1118154E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ Sheltered (2016) [Ru/Multi] (1.6) Repack Other s
 ```bash
 magnet:?xt=urn:btih:5640120E1186862887231A4C823BCEB9C1EEAEFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ The Long Journey Home (2017) [Ru/Multi] (1.17.14643) Repack Other s
 magnet:?xt=urn:btih:E7D23F17630E798DB822D4ED92A1F866A1440A9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ Anno 1404 (2010) [Ru] (1.03.3650/2.01.5010/dlc) Repack Other s [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:1E4592BF7BFADC41928C2CACC046FADF271AAE5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ The Long Journey Home (2017) [Ru/Multi] (1.17.14643) License RELOADED
 magnet:?xt=urn:btih:3C243BFD1C8431C125CB7DEA51BFEBD04FE405B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ Anno 1404 (2010) [Ru] (1.03.3650/2.01.5010/dlc) Lossless Repack R.G. Catalyst [G
 ```bash
 magnet:?xt=urn:btih:5E0BF41C3410EAA9D124CABEDC58349CCD446F9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ Earth Space Colonies – стратегия-симулятор, где вам п
 magnet:?xt=urn:btih:D65A1C2E2429E33BD71B8DFFC1533FD2A22F9037
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ Railroad Tycoon 2 (Rip) [En] 1999 | RG Games (Pilotus)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Pizza Connection 3 (2018) [Ru/Multi] (10100111001) License PLAZA
 ```bash
 magnet:?xt=urn:btih:3D1288DD321D0A0EEE46E072D48EF047CCAF7FDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ Lindemann - Ich weiß es nicht (2019) Single [FLAC|Lossless|Web-DL|tracks] <Indu
 magnet:?xt=urn:btih:052C220C618331A2545D94D4539CD0E916B88D23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Airbourne - Boneshaker (2019) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:8B5094D74C0924751730EC7AC89008396CAF1433
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Sander van Zanten - Deliver Us the Moon (Original Game Soundtrack) (2019) [MP3|3
 magnet:?xt=urn:btih:B299F023BDE4C5E79BF110645DB86ACA6C528D5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ VA - Autumn Chill Electronic (2019) [MP3|320 Kbps] <Chillout, Lounge, Downtempo,
 magnet:?xt=urn:btih:DAA1BEE50B7316AD1224604766556E72A73B6EE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ Pixelmator представляет собой мощный инструмент
 ```bash
 magnet:?xt=urn:btih:4518F21DD37A60D7FEA3A9FBE742356B469DDE23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:4518F21DD37A60D7FEA3A9FBE742356B469DDE23
 magnet:?xt=urn:btih:BF040778605B1A0E60E6D541D408A1599F60A741
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:BF040778605B1A0E60E6D541D408A1599F60A741
 ```bash
 magnet:?xt=urn:btih:A70843D6D0450CABE15AE8215BF4CCCF8225BCAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +217,8 @@ VA - Verge Inverse Relax Edition (2017) [MP3|320 Kbps] <Lounge, Downtempo, Relax
 magnet:?xt=urn:btih:965F712EFDC08101A21A1A87333277D4F1BA994D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +245,8 @@ magnet:?xt=urn:btih:965F712EFDC08101A21A1A87333277D4F1BA994D
 magnet:?xt=urn:btih:5FF21C0B43EDD1AD3C3561E56F1BB6D389641447
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ magnet:?xt=urn:btih:5FF21C0B43EDD1AD3C3561E56F1BB6D389641447
 ```bash
 magnet:?xt=urn:btih:05002DE877358BD76FC84AA97E816434663D5AB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +298,8 @@ magnet:?xt=urn:btih:05002DE877358BD76FC84AA97E816434663D5AB0
 magnet:?xt=urn:btih:D54777CD0E6FC86403944669E00802BFED83D2A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ magnet:?xt=urn:btih:D54777CD0E6FC86403944669E00802BFED83D2A1
 ```bash
 magnet:?xt=urn:btih:2B185C3B24CA2DDB4846AA0460983A40A71546FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:2B185C3B24CA2DDB4846AA0460983A40A71546FF
 magnet:?xt=urn:btih:88EC532F9302F3F51C413FBBF29A4318F46EE164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:88EC532F9302F3F51C413FBBF29A4318F46EE164
 ```bash
 magnet:?xt=urn:btih:6EE86498DAEDE9CCE331C235E801E41FE8E54014
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +406,8 @@ VA - The Best Of Dream House (Compiled by Codename87) (2014) [MP3|320 кб/с]<D
 magnet:?xt=urn:btih:2AC5029DE886BDD76F370B82093E5782BDD52EE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +434,8 @@ magnet:?xt=urn:btih:2AC5029DE886BDD76F370B82093E5782BDD52EE3
 magnet:?xt=urn:btih:7EED70E75348D3C3436F2E102E467A8EF8DC1A19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ magnet:?xt=urn:btih:7EED70E75348D3C3436F2E102E467A8EF8DC1A19
 ```bash
 magnet:?xt=urn:btih:3EFCF177682CF466DBB5FA04B4C72D81BE9CC146
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +487,8 @@ magnet:?xt=urn:btih:3EFCF177682CF466DBB5FA04B4C72D81BE9CC146
 magnet:?xt=urn:btih:27F7610BCDF4BCB51AC26B9EAB500A2DFDD6FE98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ magnet:?xt=urn:btih:27F7610BCDF4BCB51AC26B9EAB500A2DFDD6FE98
 ```bash
 magnet:?xt=urn:btih:0438226820289EFCA7AF6B17D8CC34EC2E46E176
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +541,8 @@ magnet:?xt=urn:btih:0438226820289EFCA7AF6B17D8CC34EC2E46E176
 magnet:?xt=urn:btih:926074CE1CC46B93E58158310E62CB1EC5DEA152
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +567,8 @@ magnet:?xt=urn:btih:926074CE1CC46B93E58158310E62CB1EC5DEA152
 ```bash
 magnet:?xt=urn:btih:E79D00BE3E44AD828E8546DAD802F7223019F787
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +597,8 @@ Deep Purple - The Collection (1997) [FLAC|Lossless]<Hard Rock, Classic Rock>
 magnet:?xt=urn:btih:5682C859F169EB5F8B0E6DF927F22E07827401C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +622,8 @@ magnet:?xt=urn:btih:5682C859F169EB5F8B0E6DF927F22E07827401C7
 ```bash
 magnet:?xt=urn:btih:3E254B5609CC8D6201DF872676F4D308C2707527
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +649,8 @@ magnet:?xt=urn:btih:3E254B5609CC8D6201DF872676F4D308C2707527
 magnet:?xt=urn:btih:CBD2BD9951C6BCC6E90B7C83445AC5E916F99C5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +674,8 @@ Wise Reminder 1.28.65 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6068E69EE69CF180D50C95987C58EDF6C798B370
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +703,8 @@ magnet:?xt=urn:btih:6068E69EE69CF180D50C95987C58EDF6C798B370
 ```bash
 magnet:?xt=urn:btih:F05F9CF714A956B153338FC943113C55F79F4381
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

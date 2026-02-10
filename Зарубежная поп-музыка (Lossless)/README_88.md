@@ -22,6 +22,8 @@ VA - The Best Of The 80's Volume II (1998) [FLAC|Lossless|tracks + .cue] <Pop Ro
 magnet:?xt=urn:btih:3782C86B0E5E7ABFB4398F90C1F3E34D0A65303E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Whitney - The Greatest Hits (2000) 2CD [FLAC|Lossless|tracks + .cue] <Soul, Disc
 magnet:?xt=urn:btih:7D97A02BA4BFEC2F6500DA81C3E3A170BF0CE3B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Justin Timberlake - The 20/20 Experience (Deluxe Edition) (2013) [FLAC (tracks+c
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -105,6 +111,8 @@ I Break Horses - Chiaroscuro (2014) [FLAC|Lossless]<Electronic, Pop>
 magnet:?xt=urn:btih:5B8A180A5C9602188C8426D2E0FB998337D9274F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -131,6 +139,8 @@ Red Box - The Circle & The Square (1986) Reissue, 2008, Cherry Pop [APE|Lossless
 ```bash
 magnet:?xt=urn:btih:2BBC1C8608F6F00960313B1202057FAADD2B5CAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -159,6 +169,8 @@ Ronan Keating - Time of My Life (2016) [FLAC|Lossless|tracks] <Pop>
 magnet:?xt=urn:btih:44BD138989DA6331DF0BB0F177728CDA5D586D53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -185,6 +197,8 @@ VA - EGB: La musica de una generacion (2014) 2CD [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:5A11C62BD53BB7CF10E70D207627D7983F1ECFB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +233,8 @@ VA - 2015 GRAMMY Nominees (2015) [FLAC|Lossless]<Pop, Dance, Club, Rock, R&B, Tr
 magnet:?xt=urn:btih:DFCF9C5FB00072087B4891C69E907A3727B1BFE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +261,8 @@ VA - Retro 80s Pop (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:8610B16B9BFB8A0ED2761BCA94FA0F36F6204DBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +291,8 @@ Vanessa Daou - Welcome to My Blues: An Anthology (1994-2017) (2017) Compilation 
 magnet:?xt=urn:btih:F7E258FD9CB1011852470F7CAAC3EEA732F43415
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +319,8 @@ VA - Global Hits 2002 (2002) [FLAC|Lossless|tracks + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:F020F7A7C13EA218612C3EFA397CF54C43EFFF3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +349,8 @@ VA - Love Is All Around (2000) [FLAC|Lossless|tracks + .cue] <Pop>
 magnet:?xt=urn:btih:E5E32E6FD3A9C66A5A6E523DC46864C4683034E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +377,8 @@ VA - Everlasting Love (2000) [FLAC|Lossless|tracks + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:0575E8B0657D8F0259A9CE2C8D8F71892C314559
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +407,8 @@ VA - It Started With A Kiss (2000) [FLAC|Lossless|tracks + .cue] <Pop>
 magnet:?xt=urn:btih:175C72B5CAB5D05BC17084F08DC99CD47607FDEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +436,8 @@ VA - Megaspot 2004 (2003) [FLAC|Lossless|tracks + .cue] <Pop>
 magnet:?xt=urn:btih:C5085ACA2EC792DF6F0DF5442FA603C112ACAD6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +464,8 @@ Joe Dassin - Поёт Джо Дассен (1980) [FLAC|Lossless|image + .cue] <P
 ```bash
 magnet:?xt=urn:btih:B7EF0E22087659DA2D14790EF6A8D40C204426F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +500,8 @@ Tom Jones - 13 Smash Hits (1988) [FLAC|Lossless]<Pop>
 magnet:?xt=urn:btih:9017FFCB5D0D6822D105688AECCF272672144A81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +528,8 @@ Meghan Trainor - Title (Deluxe Edition) (2015) [FLAC|Lossless]<Pop>
 ```bash
 magnet:?xt=urn:btih:CEBF97956FFF6B2FA36C5895C9DAEC7D19376814
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +564,8 @@ Suzanne Vega - Tales From The Realm Of The Queen Of Pentacles (2014) [FLAC (trac
 magnet:?xt=urn:btih:214553E1D9DD20135206FF91A1504961C479C50C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +592,8 @@ VA - Kuschelrock 17 (2003) [FLAC|Lossless|tracks + .cue] <Pop, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:5C26BA0EED7C9DF129F8C504C85410FDF7143EA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +628,8 @@ Barry Manilow - The Very Best Of Barry Manilow (The Mail) (2008) [FLAC|Lossless]
 magnet:?xt=urn:btih:0BDE138065ACF85D0D2954FF1F614A6ACE19D686
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +656,8 @@ Eric Serra - RXRA (1998) [FLAC|Lossless|image + .cue] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:1AE14C641D8904BE5B0DDD6FD2F617F06ABE42C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -648,6 +692,8 @@ Tom Jones - A-tom-ic Jones (1966) [APE|Lossless]<Pop>
 magnet:?xt=urn:btih:39B83F544037E1EC536A3A4837DF780781EA7506
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -680,6 +726,8 @@ Demis Roussos - Happy To Be... (1976) [FLAC|Lossless]<Pop>
 ```bash
 magnet:?xt=urn:btih:51B8E315F81589E2BC699D9F9394205AD0F230CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -714,6 +762,8 @@ Joe Dassin - Country (2008) [FLAC|Lossless]<Pop>
 magnet:?xt=urn:btih:1B1B4E6EEB38867D8B12522C38710B7D3F0E3B14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -746,6 +796,8 @@ VA - Танцевальный рай 1, 2, 3, 4, 5, 6, 7, 8, 11 (1997-2001) [FLA
 ```bash
 magnet:?xt=urn:btih:32355019AC0146DC8ADC000294A5056778CF2637
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

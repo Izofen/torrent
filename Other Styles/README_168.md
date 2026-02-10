@@ -22,6 +22,8 @@ Nick Skachkov - Baba Yaga: Terror of the Dark Forest / Яга. Кошмар тё
 magnet:?xt=urn:btih:DFCA2F8F835CBDD57ABBCADAF4E55D00C52C1C42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Liquid Mind - Liquid Mind XI. Deep Sleep (2016) [MP3|320 кб/с] <New Age, Ambi
 magnet:?xt=urn:btih:FF9A50CDC8DEF696383F017EB34BCB581FDA1C94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ Johnny Cash - Sings The Songs That Made Him Famous (1958) [FLAC 2.0 24/96|tracks
 ```bash
 magnet:?xt=urn:btih:CD34BB920578802434747537DC5C8C8A8E1232DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +115,8 @@ Eric Paslay - Eric Paslay (2014) [MP3|320 кб/с]<Country rock>
 magnet:?xt=urn:btih:9C57ECDF5E0A2402762AC5553128DDF05FAC482E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -137,6 +145,8 @@ Parijat - 5 albums (2004 - 2013) [MP3|320 кб/с]<New age, Meditative, Relax>
 ```bash
 magnet:?xt=urn:btih:F1B4F6CD31EAB0CCD3BEA19F629773A3601C6F4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +181,8 @@ Bandari - Sunrise Hill (2009) [MP3|320 kbps]<New Age>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +215,8 @@ Starcraft 2 Heart Of The Swarm OST (2013) MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:A12AF9ADF5854CFDC633E98D86CFBA7FFD0BB6CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +251,8 @@ Brian Crain - Piano and Light (2011) [FLAC|Lossless]<New Age, Neo-Classical, Pia
 magnet:?xt=urn:btih:8659D611E66D2B3D42DF7FCF014B2CD2D010B767
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +285,8 @@ James Horner - Игры патриотов / Patriot Games (1992) /Limited Editi
 ```bash
 magnet:?xt=urn:btih:0B6A9C7C3A32CB451346F35CFE015EE7DD44D6B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +321,8 @@ VA - New Age Style - Space Relax (2011) [MP3|320 кб/с]<Space, Ambient Dub, Ne
 magnet:?xt=urn:btih:80D1158A5DE639811BBCB440369827C8A26A10DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +353,8 @@ Anne Dudley - Ancient and Modern (1995) [FLAC|Lossless]<Contemporary Classical, 
 ```bash
 magnet:?xt=urn:btih:4F789CCD80BAF6866C42B33504331B84AF5C8893
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +389,8 @@ Silentx - Path To Freedom (2007) [MP3|192 кб/с]<New age>
 magnet:?xt=urn:btih:FF2C8DF2AB5367341A47C280D5B97C9138D6A0C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +424,8 @@ CD 1
 magnet:?xt=urn:btih:4CDD5D52E8987CBEEE8C0E3A7A5C0FD75A18361D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +453,8 @@ VA - Quentin Tarantino's The Hateful Eight / Омерзительная вось
 magnet:?xt=urn:btih:35EA36560D8C1A0E09F95651C353C6F48604CD47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +481,8 @@ Janis Joplin - Janis Little Girl Blue (Original Motion Picture Soundtrack) (2016
 ```bash
 magnet:?xt=urn:btih:C994BB86B1E2C0DA6EFCF8BF631B1076BA07D4F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +517,8 @@ VA - OST Скотт Пилигрим против всех (2010) [MP3|192-320 k
 magnet:?xt=urn:btih:F8EBE806C92A88DE35F91C57F7A97E8B4191EE2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +546,8 @@ Max Arnald - Piano Covers 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Moder
 magnet:?xt=urn:btih:9B0D0C92BA3AC382309B1038C48F4F6CAD7B716F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +574,8 @@ Aenigmatica - Enigmatic (2016) [MP3|320 Kbps] <New Age, Downtempo, Ambient>
 ```bash
 magnet:?xt=urn:btih:009398BCB51C39B0BA364C2404DD8EE21DBF2869
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +610,8 @@ Jan Holland - 20 Accordion Hits (1989) [MP3|320 kbps]<Instrumental | Accordion>
 magnet:?xt=urn:btih:629AE1ABF0BC31DA7DF262B45EDC8C155D076E70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +639,8 @@ Amrit Kirtan - Sacred Circle (2006) 2007 [FLAC|Lossless|image + .cue] <New Age, 
 magnet:?xt=urn:btih:FB998291D9398C0CEF65D3A2B3B1FA73FCB90167
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +664,8 @@ VA - Релаксация - Антистресс (2008) [MP3|256 kbps]<Relax>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +691,8 @@ Ecuador Artists - 2 альбома (2003, 2004) [MP3|320 kbps]<Folk, Native amer
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -676,6 +720,8 @@ Kathryn Kaye - Reflected in a Flowing Stream (207) [MP3|320 Kbps] <Celtic New Ag
 ```bash
 magnet:?xt=urn:btih:5BDBD563BD8B24A2E44BDABF941FDE2C6F2A4124
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -710,6 +756,8 @@ Joe Basile - Rome with Love (1995) [MP3|320 кб/с]<Easy Listening, Accordion>
 magnet:?xt=urn:btih:C360FC103AE634B85E4CD998E0FA3E7493FC0F9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -743,6 +791,8 @@ VA - Музыка любви (2008) [MP3|320 кб/с]<Instrumental>
 magnet:?xt=urn:btih:722FE50DCDBDD9BE1EC586E48F7F263AF028C850
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -775,6 +825,8 @@ Leonard Rosenman - Фантастическое путешествие / Fantast
 ```bash
 magnet:?xt=urn:btih:9836782156E0A4241F2D28A59875E6DB645FBBEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

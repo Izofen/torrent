@@ -20,6 +20,8 @@ Linux Ubuntu и Mint Росинка для Начинающих, привыкш�
 magnet:?xt=urn:btih:6C7E862A14A247DCC809ED30E068C604742C15A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:6C7E862A14A247DCC809ED30E068C604742C15A8
 ```bash
 magnet:?xt=urn:btih:E708CDA37853F2A7AF95B28B306D4842ADA20CF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ STONES CRUSH — это нарисованный от руки шрифт с н�
 magnet:?xt=urn:btih:4575727A654FB2E994ED1369ED32E19A3AB4B368
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:4575727A654FB2E994ED1369ED32E19A3AB4B368
 ```bash
 magnet:?xt=urn:btih:B419F1524DB35DD926C3E20E5B2034BF54277675
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Ingenue - это вариативный акцидентный шрифт, вд�
 magnet:?xt=urn:btih:5BAFC2595D12E080466CC00970F127E9F35C08DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:5BAFC2595D12E080466CC00970F127E9F35C08DF
 ```bash
 magnet:?xt=urn:btih:830B79EC3A0B4E5BFE9D225DC02A0D3080C1E3EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Stieglitz SP — узкий акцидентный шрифт с готичес�
 magnet:?xt=urn:btih:9CB08D72DD4578781F33CB9B3660EDD95CF7B132
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:9CB08D72DD4578781F33CB9B3660EDD95CF7B132
 ```bash
 magnet:?xt=urn:btih:DA30E393BCF35A3A13C9F49280923D1D7B0326DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:DA30E393BCF35A3A13C9F49280923D1D7B0326DA
 magnet:?xt=urn:btih:7B8CAD0C20269977007FF8E087B6EB5A9B37CD68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:7B8CAD0C20269977007FF8E087B6EB5A9B37CD68
 ```bash
 magnet:?xt=urn:btih:3BDED13448F9747A7F4D7F29907DC375D10E2C62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ Rebelway, Saber Jlassi | Mastering Pyro FX In Houdini Level 1 (2018) PCRec [EN, 
 magnet:?xt=urn:btih:D3FED9735C4E2A7D9512B54D00D0918960515551
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:D3FED9735C4E2A7D9512B54D00D0918960515551
 ```bash
 magnet:?xt=urn:btih:5EA8ECD88AC9EA942F1F8806B4A9D2393A14A158
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ Total Commander является самым мощным и стабильным
 magnet:?xt=urn:btih:D5E6F85447F959374C2474171FC434B47316DED5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ X-plore File Manager - продвинутый файловый менеджер 
 ```bash
 magnet:?xt=urn:btih:78715055C3CD2C9CBD92E00C945E540A1A6D22A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:78715055C3CD2C9CBD92E00C945E540A1A6D22A6
 magnet:?xt=urn:btih:9CE87197BC7645B227CFA932E6B1263D1C14A192
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ CGcircuit, VFX Magic | Houdini Crack Effect (2021) PCRec [RU]
 ```bash
 magnet:?xt=urn:btih:2CAE2E3402517EF68C12BC15798B7FCB96833A49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:E31A615C58EC9D2AC901446889445798AE4CD42B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ Rebelway, Corbin Mayne | Math for fx Artists (2020) PCRec [EN/ RU]
 ```bash
 magnet:?xt=urn:btih:A7E1F3DFD23F521C5C164B39DB04B51DCD4CB948
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:A7E1F3DFD23F521C5C164B39DB04B51DCD4CB948
 magnet:?xt=urn:btih:57AE2D957F4FDFB43FD7C74FDFF43C7D6A82D002
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ Plus Messenger - это сторонний клиент для Telegram с ра�
 ```bash
 magnet:?xt=urn:btih:F1C8C5B61CD9CA6998B892E59A29A33A26CDA419
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ SmartOffice Pro - View & Edit MS Office files & PDFs - это не просто 
 magnet:?xt=urn:btih:248B8EA30214C0D973F0F1EC33B7CAEC13CB10A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ Beneath - это шутер на выживание от первого лиц
 magnet:?xt=urn:btih:6594DAFA9F17B945FF6A2181B166451EF56ED5AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:6594DAFA9F17B945FF6A2181B166451EF56ED5AB
 ```bash
 magnet:?xt=urn:btih:44486AC36C91BC6AC6BE1B20EA6F3D3AD972218A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ Winxvideo AI  - это набор инструментов для масштаб
 magnet:?xt=urn:btih:15284856CEE16939E2DBABF38F86940BCD39A8B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ WinX VideoProc Converter - усовершенствованная версия, 
 magnet:?xt=urn:btih:2585966D779B203E1175AAEBAF50223D77B8A5B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:2585966D779B203E1175AAEBAF50223D77B8A5B2
 ```bash
 magnet:?xt=urn:btih:4A67E615A53E1F7748FEECCA506185A5C949C010
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

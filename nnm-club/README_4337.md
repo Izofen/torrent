@@ -21,6 +21,8 @@ simplewall 3.7.6 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:CD6347B20C283AFACC46468EEE37BE9D1D498C49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Inpaint - позволяет умно удалять нежелательные 
 ```bash
 magnet:?xt=urn:btih:90CBFC153D3400D5797AB6A60737233451591524
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:90CBFC153D3400D5797AB6A60737233451591524
 magnet:?xt=urn:btih:F01E057B2F54F794A4AC59E8E61626B75ACABD9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:F01E057B2F54F794A4AC59E8E61626B75ACABD9F
 magnet:?xt=urn:btih:D0BEE8FC58265C00C16B05B541EBCDE27DDE3A7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:A3CEE67A0B61319F15AFF23B4AA3D00679710B76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -153,6 +163,8 @@ VA - Christmas Chillout: 20 Smooth & Holy Lounge Tunes (2012) [MP3|320 кб/с]<
 magnet:?xt=urn:btih:54677BA1E36683ED84CF3FEAFF4859221895C6C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:54677BA1E36683ED84CF3FEAFF4859221895C6C6
 ```bash
 magnet:?xt=urn:btih:76ACFE4DA72FC472A669E30A34DFBDC6BD10954A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:76ACFE4DA72FC472A669E30A34DFBDC6BD10954A
 magnet:?xt=urn:btih:9C9C4A76E508D47947BB504CD2EBFE7F9CD84B03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +259,8 @@ Dan Nimmer Trio - Modern Day Blues (2010) [FLAC|Lossless]<Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +288,8 @@ VA - Донбасс 6 ''Свобода и Доблесть'' (2023) [MP3|320 Kbp
 magnet:?xt=urn:btih:B8FFF6A4788583D47C64DAA17B128BB0F8F2CDD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +314,8 @@ magnet:?xt=urn:btih:B8FFF6A4788583D47C64DAA17B128BB0F8F2CDD9
 magnet:?xt=urn:btih:D45B39E5394ED3EC5580F9CACAAB4AA490B544C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +339,8 @@ Music Folder Player - аудиоплеер, что не может похвас�
 ```bash
 magnet:?xt=urn:btih:5B617E6400EEDE346DEEED7C6E49BDB890D79E32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +375,8 @@ Jeff Lang - Prepare Me Well (2006) [WavPack|Lossless]<Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +400,8 @@ Jeff Lang - Prepare Me Well (2006) [WavPack|Lossless]<Blues>
 ```bash
 magnet:?xt=urn:btih:2923B523F513E8F845F63647589FE20AE0957CC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +427,8 @@ WinToUSB - позволяет устанавливать и запускать �
 magnet:?xt=urn:btih:DB2963DA393AF62C0E54CF6E26788DA171CDEB85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +453,8 @@ ToonMe 0.6.95 Mod by maxi123444 [Ru/Multi]
 magnet:?xt=urn:btih:51E93B75DACCED2E7C3B7F3F9216EC605D063266
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +478,8 @@ Any Burn - небольшая бесплатная утилита для раб�
 ```bash
 magnet:?xt=urn:btih:6B01D73F884F4D2556B4D66CC680D6DB75C6AAF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +506,8 @@ magnet:?xt=urn:btih:6B01D73F884F4D2556B4D66CC680D6DB75C6AAF0
 magnet:?xt=urn:btih:F1E8BC29D620E26D7F9B97B3C18F433E69DA3926
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +531,8 @@ Live - это быстрое и гибкое программное обеспе
 ```bash
 magnet:?xt=urn:btih:1C816F4A1FD34A093676AEE86D1C55721C07BCF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +559,8 @@ Mirillis Action! 4.38.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:934E27AE7182A10B020D629EE75BF69B4622B191
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +584,8 @@ magnet:?xt=urn:btih:934E27AE7182A10B020D629EE75BF69B4622B191
 ```bash
 magnet:?xt=urn:btih:FF02A02980700308F8E865BEBE966D68B2ECA100
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +611,8 @@ magnet:?xt=urn:btih:FF02A02980700308F8E865BEBE966D68B2ECA100
 magnet:?xt=urn:btih:A72FF04F39F9396E1927A1E65B3D18A42D46B9DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +636,8 @@ magnet:?xt=urn:btih:A72FF04F39F9396E1927A1E65B3D18A42D46B9DD
 ```bash
 magnet:?xt=urn:btih:EE8598B361D39D8E2994E64BC3F9B7703413A14E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +666,8 @@ DISC 1:
 magnet:?xt=urn:btih:4D7923DEAE6F54006CDA96F7F3723A33698ED8F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +691,8 @@ magnet:?xt=urn:btih:4D7923DEAE6F54006CDA96F7F3723A33698ED8F4
 ```bash
 magnet:?xt=urn:btih:ED7892FE3DCCB7909406388089A66A674547D5F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -668,6 +718,8 @@ Glary Disk Explorer - небольшая утилита, которая нагл
 ```bash
 magnet:?xt=urn:btih:98E345A6025122ED479B5BBD6DC5F1FE859FF939
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

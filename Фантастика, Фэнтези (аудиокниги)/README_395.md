@@ -1,3 +1,29 @@
+###  Публикация: 1297719   (603055) от 24.04.2019
+
+Евгений Красницкий | Внук сотника (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая аудиокнига из серии «Отрок» от одного из лучших авторов отечественной фантастики. XII век. Убей или убьют тебя. Как выжить в этих условиях тому, чье мировоззрение формировалось во второй половине ХХ столетия? Принять правила игры и идти по трупам? Не принимать? И быть убитым или стать рабом? Попытаться что-то изменить? Для этого все равно нужна сила. А если (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыПродолжительность: 12:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7201933713A4F0DE86C00A000B1305601703EBA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297810   (603057) от 24.04.2019
 
 Олег Таругин | Комбат Вырваться из «котла»! (2019) [MP3]
@@ -19,6 +45,8 @@ XXIII век. Хотя Земля живет в мире уже нескольк
 ```bash
 magnet:?xt=urn:btih:F58C7F6C966F6A332112E5514940C38540D8D365
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:F58C7F6C966F6A332112E5514940C38540D8D365
 magnet:?xt=urn:btih:2C61E3D3BA8C9645E6D335DF2F5B6BBD8036BD21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:2C61E3D3BA8C9645E6D335DF2F5B6BBD8036BD21
 ```bash
 magnet:?xt=urn:btih:4C8C850135F476FA3D947C4A1E748C3513DF5D2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:4C8C850135F476FA3D947C4A1E748C3513DF5D2A
 magnet:?xt=urn:btih:DAFA965AB3F6D7C48384745AC1AE2638FB05F6DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:DAFA965AB3F6D7C48384745AC1AE2638FB05F6DC
 ```bash
 magnet:?xt=urn:btih:EA46AAFD68DD8577C5C9C781891155D9AD516D56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:EA46AAFD68DD8577C5C9C781891155D9AD516D56
 magnet:?xt=urn:btih:A25C25F1AA6F889411C8C2427A5387FBEB08BDB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:A25C25F1AA6F889411C8C2427A5387FBEB08BDB7
 ```bash
 magnet:?xt=urn:btih:54826A08BC4648E9C618319BB2BF2C357FACFB22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:54826A08BC4648E9C618319BB2BF2C357FACFB22
 magnet:?xt=urn:btih:B5E89C243B83E03F5F42E86B6873F228FCAFEE02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:B5E89C243B83E03F5F42E86B6873F228FCAFEE02
 ```bash
 magnet:?xt=urn:btih:60B4853A37DC4C5799487AF2A04000D3BA0C84BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:60B4853A37DC4C5799487AF2A04000D3BA0C84BC
 magnet:?xt=urn:btih:2D153637B7D30E69E6265C52037FC84B7894DF64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:2D153637B7D30E69E6265C52037FC84B7894DF64
 magnet:?xt=urn:btih:1BC82D5397ED208C53EBC860A9D2A0291D124257
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:1BC82D5397ED208C53EBC860A9D2A0291D124257
 ```bash
 magnet:?xt=urn:btih:B6E39D0B787472EECFEC7ABB012786AA2CCE87CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:B6E39D0B787472EECFEC7ABB012786AA2CCE87CB
 magnet:?xt=urn:btih:CEB0CBB36ED88D3269D7158CFF2D53C7E56217D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:CEB0CBB36ED88D3269D7158CFF2D53C7E56217D4
 magnet:?xt=urn:btih:9EB8E1F57D759EC02C796E8618C125027F6FE6F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:9EB8E1F57D759EC02C796E8618C125027F6FE6F1
 ```bash
 magnet:?xt=urn:btih:07AC34C9CB6BFFB1B0D147763FE75DDC3E8FDCB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:07AC34C9CB6BFFB1B0D147763FE75DDC3E8FDCB8
 magnet:?xt=urn:btih:0CBAC6157D1B00D700EA801A0FD912A6E487FDB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:0CBAC6157D1B00D700EA801A0FD912A6E487FDB8
 ```bash
 magnet:?xt=urn:btih:7E402CF09EA4E809594D82297D0427938465C936
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +498,8 @@ magnet:?xt=urn:btih:7E402CF09EA4E809594D82297D0427938465C936
 magnet:?xt=urn:btih:DCADCFFADE4FEB5A89FFA04C0E9FD3DF31C9467A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +527,8 @@ magnet:?xt=urn:btih:DCADCFFADE4FEB5A89FFA04C0E9FD3DF31C9467A
 magnet:?xt=urn:btih:75996856644AD699D90F04DEFCA1C6DD854F82F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +552,8 @@ magnet:?xt=urn:btih:75996856644AD699D90F04DEFCA1C6DD854F82F3
 ```bash
 magnet:?xt=urn:btih:D1B3BBA623F94D584912CCDC3C5A023194D5E74F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +579,8 @@ magnet:?xt=urn:btih:D1B3BBA623F94D584912CCDC3C5A023194D5E74F
 magnet:?xt=urn:btih:62E784FF694AF6A21F33BB34408332A1816B87C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:62E784FF694AF6A21F33BB34408332A1816B87C7
 ```bash
 magnet:?xt=urn:btih:0340EEEDACDD57E72CEB8442FA5F6D56BAE67AEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +633,8 @@ magnet:?xt=urn:btih:0340EEEDACDD57E72CEB8442FA5F6D56BAE67AEF
 magnet:?xt=urn:btih:9FF26A6ECCE8846FC836CEE522298B9C1CDC5DE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +658,8 @@ magnet:?xt=urn:btih:9FF26A6ECCE8846FC836CEE522298B9C1CDC5DE1
 ```bash
 magnet:?xt=urn:btih:59F4F64BD16E909A63B35BFAC361D20502A5A7D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,29 +685,7 @@ magnet:?xt=urn:btih:59F4F64BD16E909A63B35BFAC361D20502A5A7D2
 magnet:?xt=urn:btih:81978A615F81AB5C390D9DC102522AC37E0301EC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297299   (604741) от 21.04.2019
-
-Сергей Павловский | Коготь химеры (S.T.A.L.K.E.R.) (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604741.jpg" />
-</div>
-
-
-###  Подробнее
-
-После чернобыльской катастрофы прошло более двух десятилетий. За это время Зона превратилась в особый мир, кишащий мутантами. Сталкер — расхититель и враг Зоны — знает: к врагам она беспощадна! Сталкер Док потерял много крови и понимает, что ему конец: его ждет смерть в логове химеры. Но вместо того, чтобы тут же вонзить в жертву свои когти, гигантский монстр почему-то (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 11:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF5DAE9E9013CECFC631FD58067C381DA8523A2E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

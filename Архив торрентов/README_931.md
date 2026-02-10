@@ -19,6 +19,8 @@ ImgDrive - простой и надежный эмулятор дисков, п�
 magnet:?xt=urn:btih:56353B6411DF3B21774496A2D93E06F8BEE4AC1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Windows 10 Debloater – небольшая утилита для тонкой �
 ```bash
 magnet:?xt=urn:btih:F25D396C440A33432F7243D2065A3E8ADE4EC88F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Stardock Start11 – новая версия приложения для нас�
 magnet:?xt=urn:btih:82B42ADB880E7D5F7C9F2F1D4F4466B7BA414942
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Path Finder - один из лучших файловых менеджеров, 
 ```bash
 magnet:?xt=urn:btih:5AFDB934288BDC9EDFA6110A73F2E7B29765636C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Money Pro сократит расходы и покажет полную кар�
 ```bash
 magnet:?xt=urn:btih:0F0D7C92A0B9B4C129E4B23C46F157CDF4ADF2B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Final Draft — профессиональное программное обес
 magnet:?xt=urn:btih:23C91EFE23ACFB3DD6CBB12517993BDC0B543257
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Fork 2.38 [En]
 ```bash
 magnet:?xt=urn:btih:800A993BA53EC05C508712EC477991225A15A1B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ FontLab - профессиональный редактор шрифтов. Пр
 magnet:?xt=urn:btih:46A4D7B1384BC9D973592A6CF58E112A35D78DD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ ExamDiff - мощная и легкая в использовании прогр
 ```bash
 magnet:?xt=urn:btih:C8CAE57496659A76E1C9033579445C6F8D88EBB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Opera Crypto Browser 106.0.4998.41 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9703458366E03076BD188D24F5298C39CBAACD8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Opera GX - это специальная версия браузера Opera, с
 magnet:?xt=urn:btih:DB7F7F7AF9483DF33C51BA9C6A2E161D1998CBD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ Fort Firewall - простой и бесплатный брандмауэр дл
 ```bash
 magnet:?xt=urn:btih:D307380D52CADE2176A150BC8B99193B126B3A57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Vivaldi 6.5.3206.53 include standalone [Multi/Ru]
 magnet:?xt=urn:btih:77BBC7423D5238F29C964C3E2DF67A0EEFDCC3B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:B1A74D3070C915304829EC95083D4C6CFBFFD2AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 magnet:?xt=urn:btih:69BD72DC74006679C95A8A23613688B6B0AFFB12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Icecream Slideshow Maker - это приложение для создания �
 ```bash
 magnet:?xt=urn:btih:0BC6CFCC784EBD87BC78D8E3D15CDFEB8D332946
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ IceCream Ebook Reader Pro 6.44 [Multi/Ru]
 magnet:?xt=urn:btih:8CEFAD59D5236F2ADD6852C0C115FFD5BB27646F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Opera One 106.0.4998.41 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:6709D5FA472C0063EE4BB29B5C5BC5EFC0C22080
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Icecream Photo Editor - лучший бесплатный фоторедакто
 magnet:?xt=urn:btih:F525F6D39169CC4B9F12CBE562420D7458920638
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Icecream Video Editor - простой редактор видео для Window
 ```bash
 magnet:?xt=urn:btih:2EC27362F5AFD27CC04F5122D93B8652611DC91A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ EF Commander  — замечательный двухпанельный файл
 magnet:?xt=urn:btih:4B34AFF8250598929B0C6FA72B29CEE3C7FF9C7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Opera One 106.0.4998.41 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:908A029CE8D0F7AF698D91035AF0F82CB43368E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ NIUBI Partition Editor (Repack & Portable) – программа для про�
 magnet:?xt=urn:btih:BD2C2519403633F6B5A25859469CE1F09AE3F33C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Icecream Video Converter Pro 1.41 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:224FDBA24631AD88D34F263C5E858DB64ABBE8BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ FileMenu Tools настраивает пункты контекстного ме
 magnet:?xt=urn:btih:44360CFEDBCBCB160A9FD87A84E494E6C4F99836
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:BBA27A54768ED5504D62F217CF01B08B7FF8DE23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

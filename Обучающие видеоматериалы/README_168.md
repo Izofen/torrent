@@ -19,6 +19,8 @@ Gray Cook | Home Study Course (2011) DVDRip [H.264] [EN]
 magnet:?xt=urn:btih:9C2E104F35DA6636DA6A74336698F132802E2573
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:9C2E104F35DA6636DA6A74336698F132802E2573
 ```bash
 magnet:?xt=urn:btih:19629B0AA11FEB26B4296AB9E72C348A0301B6C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:19629B0AA11FEB26B4296AB9E72C348A0301B6C7
 magnet:?xt=urn:btih:D78806CD5A77DB0D5B67C9CAF03DC2D6EF696CEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Vue.js - это современный JavaScript-фреймворк, приме
 magnet:?xt=urn:btih:B2CB1AA02612EC5A82369B1E5909170E4B113C03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:B2CB1AA02612EC5A82369B1E5909170E4B113C03
 ```bash
 magnet:?xt=urn:btih:8CAE6F54C6581CEB78AEB53AD13349B31AEC45B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:8CAE6F54C6581CEB78AEB53AD13349B31AEC45B6
 magnet:?xt=urn:btih:C87BBDCCA322528F75CCFC08DDA52C6965F24FB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ Python - это язык программирования. (   Читать д�
 magnet:?xt=urn:btih:3070ACDB119EC72FB3A130DE391C338E81207501
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:3070ACDB119EC72FB3A130DE391C338E81207501
 magnet:?xt=urn:btih:1A919048CE1E617EE674C8E1DAEC03179C9BC977
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:1A919048CE1E617EE674C8E1DAEC03179C9BC977
 ```bash
 magnet:?xt=urn:btih:601AD2609DD1ED8E6721F72B0FDECEFC24C86D92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:601AD2609DD1ED8E6721F72B0FDECEFC24C86D92
 magnet:?xt=urn:btih:8D28952E431EB658657B9645E825BF979476AC5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ ES6 - это стандарт JavaScript, который был принят в 
 ```bash
 magnet:?xt=urn:btih:B4E380E39C83DCE844F83F9B00B98315F595F6E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ Jillian Michaels | Yoga Meltdown (2010) DVDRip
 magnet:?xt=urn:btih:4A061361F65249307B103757006F5BACC74F929E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ Yoga Inferno - тренировки с усложненными элемента
 magnet:?xt=urn:btih:E6EB3A32DFC08C7026FE5BAA62EFDA4937D430B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:E6EB3A32DFC08C7026FE5BAA62EFDA4937D430B2
 ```bash
 magnet:?xt=urn:btih:9FA75A85AA072A8D5480346D991E1FAB3E5CEC57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:9FA75A85AA072A8D5480346D991E1FAB3E5CEC57
 magnet:?xt=urn:btih:F47F8BC8467A9484254076E201B64631DE3C3931
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ JavaBegin | Онлайн библиотека на Spring (2014-2015) PCRec [H.2
 magnet:?xt=urn:btih:1E63627E9CD6A787E73E8F3F3539D769538A3BE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:1E63627E9CD6A787E73E8F3F3539D769538A3BE8
 magnet:?xt=urn:btih:7B04EBB97ED6044E71BB580258691748188A478A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ OTUS | Компьютерное зрение [Части 1-4] (2020) PCRec
 magnet:?xt=urn:btih:174D2E51612BB5178FB54516BD84576DDAA7266C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ magnet:?xt=urn:btih:174D2E51612BB5178FB54516BD84576DDAA7266C
 ```bash
 magnet:?xt=urn:btih:E1868351D44E1E1041633ED60CEE913347167D60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ magnet:?xt=urn:btih:E1868351D44E1E1041633ED60CEE913347167D60
 magnet:?xt=urn:btih:EAB82878D44A414E9AED66CB2BA9619043C88B16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +556,8 @@ MonsterLessons | Разработка интернет-магазина на Rea
 ```bash
 magnet:?xt=urn:btih:56113B25F3C7ECB31977B2F1657DCF125C887304
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +583,8 @@ SideFX, Tyler Bay | Artist Quick Tips (2019) PCRec [EN, RU]
 magnet:?xt=urn:btih:2B815F7D2686F8CCBE397F0A3B59AFA92380E75C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +608,8 @@ SideFX, Chetal Gazdar | Procedural chess pawn (2021) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:DAC25111405C250113441204BFF7DEACC93F3A1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +635,8 @@ SideFX, Alejandro Perez | Intoduction to Creature Fur (2020) PCRec [EN, RU]
 magnet:?xt=urn:btih:8FBDCD68B627ADDA96EDBB3C0502691084AA2014
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ SideFX, Moeen Sayed | Magic Market - L-Systems (2020) PCRec [EN, RU]
 magnet:?xt=urn:btih:9D47BAD9F5E0BE5CC5B30C7FA32A63DB10C37636
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ magnet:?xt=urn:btih:9D47BAD9F5E0BE5CC5B30C7FA32A63DB10C37636
 ```bash
 magnet:?xt=urn:btih:737AB25F53E0EB09A5CCBF3379D55672AA50C979
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Solium Infernum (2024) [Ru/Multi] (1.1.3p1_85049/dlc) Repack Let'sРlay [Collect
 magnet:?xt=urn:btih:B7CEE7E9230413D698A0BBE501B1B48A9E2ADD77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ KIBORG (2025) [Ru/Multi] (20 2.50.4_30: 1:50) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F4C99753B7F2D9AD650907AD3BA8194F7A33C35E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Moroi предлагает геймплей, включающий сражени
 magnet:?xt=urn:btih:2406060E712E0E90CACEB3706DFE871599EB254B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Victory at Sea Atlantic - World War II Naval Warfare (2024) [Ru/Multi] (1.0.1.2)
 ```bash
 magnet:?xt=urn:btih:CF7FA8DA8A89D089BEA1021E4AF45F2F776E12E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Sports: Renovations (2025) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:ACE7B9B1618EA51A72B5E4E6F5739F8FC20D1A2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Space Grunts - смесь аркадного шутера и пошаговог�
 ```bash
 magnet:?xt=urn:btih:BA70078E236F10997EF77DFA635953B839D5A0D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ SaGa Frontier 2 Remastered (2025) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:BADCDEF3F805046F5B2E2D320A977C28049E196E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Space Grunts 2 - стратегическая игра, действие кот�
 ```bash
 magnet:?xt=urn:btih:DCBEF670BC2A125A2EFE529F63E7960BA7950FC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ LUNAR Remastered Collection (2025) [Multi] (1.0) Scene TiNYiSO
 magnet:?xt=urn:btih:4D0E5025AC1CE2A58625192925B029329C4DCC23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ None Shall Intrude приглашает вас ощутить несравнен
 ```bash
 magnet:?xt=urn:btih:FD5906AD3DA3F1B5D851A50509F7939D950904A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Scarlet Hollow – приключенческая хоррор-игра, что 
 magnet:?xt=urn:btih:4F432AA10CF2F636F824268A0831232B6727E255
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Starless Abyss (2025) [Ru/Multi] (1.011) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:F07C7B432490B03908FAC6002BA368A7C9AADFCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Viscerafest (2021) [Ru/Multi] (1.2) Repack Let'sРlay
 magnet:?xt=urn:btih:3CE5F7D51468F2FA3EDDA0333ADE4A5A49401326
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Dinkum (2022) [Ru/Multi] (1.0.0) Repack FitGirl [Official Soundtrack Edition]
 ```bash
 magnet:?xt=urn:btih:1475C79CF9E58F11FB5BFE1D3D023C4A77B9AF22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Age of Reforging: The Freelands (2023) [Ru/Multi] (1a) Repack FitGirl
 magnet:?xt=urn:btih:57C0BEA866900ED85090CBB24FE275E361883E51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Mirthwood (2024) [Ru/Multi] (1.0.65p2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3502E4E61EAD7A4309555DB32EEE9B1116F4207B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Raft: The Final Chapter (2018) [Ru/Multi] (1.1.03 Beta/dlc) Repack Pioneer
 magnet:?xt=urn:btih:301902B58DCA6EA0CFF7CBED099E406E882DD994
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (1.7.1_15_e769f28c) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:DF5C68374B6593F6AAB7AAD1E5FCDF958F1D3AC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ KIBORG (2025) [Ru/Multi] (202.50.4 30:1:50) Repack seleZen
 magnet:?xt=urn:btih:989F91ABC71403207AE134C12ABB346574976393
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ True Fear: Forsaken Souls (2016) [Ru/Multi] (2.0.12:608) Repack Let'sРlay [Part
 ```bash
 magnet:?xt=urn:btih:7F0690438E22D48196FFCE1EEE7F526470255998
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ True Fear: Forsaken Souls Part 2 – продолжение атмосферно
 magnet:?xt=urn:btih:99550B93F8AA7B557C7D9C470641D97F21CDF259
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Age of Reforging: The Freelands (2023) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:2002C2B22792F7863EFCA32DD5EFAC10AEBC30FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Realpolitiks 3: Earth and Beyond (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:F9FC5E886BFBA8F2B012F1F4D26121BD4F7B62FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ V Rising (2024) [Ru/Multi] (1.1.0.1-r91217-b18/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:EE69B10E11EA7D830A62B115CAB889BF4CFEF331
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Post Trauma (2025) [Ru/Multi] (1.05.02) Repack Let'sРlay [Supporter Edition]
 magnet:?xt=urn:btih:7EB5535570F71F94FD3805A6E8E29167675F8DAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Mystery of Myths 2: Mystery of the Fjords / Загадки мифов 2: Тай�
 ```bash
 magnet:?xt=urn:btih:D1A6E2183C0EBB5AB31CB181A2146B9F39DAA2E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

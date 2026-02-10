@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:F59E346612FA08B4DE487816D90426CD7A51BC32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ magnet:?xt=urn:btih:F59E346612FA08B4DE487816D90426CD7A51BC32
 magnet:?xt=urn:btih:27F2CC090E327C1C50BDE46E54C929CD9667BDBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:27F2CC090E327C1C50BDE46E54C929CD9667BDBC
 magnet:?xt=urn:btih:7E7044BBFF1FBB02923F4F3400F9B168B6EA43DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ MotoGP. Этап 15. Гран-при Арагона. Гонка (18.09.2022) WEB
 ```bash
 magnet:?xt=urn:btih:1CFE52E45599F85D9F510874C47715419F3F9569
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:1CFE52E45599F85D9F510874C47715419F3F9569
 magnet:?xt=urn:btih:A65F3274796C2F8B630C3C397BCDDC875939871E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:A65F3274796C2F8B630C3C397BCDDC875939871E
 ```bash
 magnet:?xt=urn:btih:2C1794120206160A412A5208E150FCCD33906161
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ magnet:?xt=urn:btih:2C1794120206160A412A5208E150FCCD33906161
 magnet:?xt=urn:btih:A79D2B84E6316F1951D4729FCDBB854751A3B00A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +218,8 @@ magnet:?xt=urn:btih:A79D2B84E6316F1951D4729FCDBB854751A3B00A
 ```bash
 magnet:?xt=urn:btih:B164C3A3FB2257A80617F00B161E0FE50FE8905E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -232,6 +248,8 @@ magnet:?xt=urn:btih:B164C3A3FB2257A80617F00B161E0FE50FE8905E
 magnet:?xt=urn:btih:8C12C686C7C4A8759FB387E7EEE82BBA6F144C2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +277,8 @@ magnet:?xt=urn:btih:8C12C686C7C4A8759FB387E7EEE82BBA6F144C2D
 magnet:?xt=urn:btih:6722EDE239B88581795AD4274FD0FC7B82391F5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +302,8 @@ MotoGP — главное престижное соревнование по ш�
 ```bash
 magnet:?xt=urn:btih:F20A6827D46644BBD63018B0C8A0A5348C389E3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +332,8 @@ magnet:?xt=urn:btih:F20A6827D46644BBD63018B0C8A0A5348C389E3B
 magnet:?xt=urn:btih:7C664543786A1B3C74F6B9DC098A70A1C0151131
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +361,8 @@ magnet:?xt=urn:btih:7C664543786A1B3C74F6B9DC098A70A1C0151131
 magnet:?xt=urn:btih:BD274BEDC6352220EF4FB02B48C930CB3FF7572B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +386,8 @@ Bennetts British Superbike Championship — ведущий чемпионат п
 ```bash
 magnet:?xt=urn:btih:457858FFD3533801D0950723625C564364315B06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +413,8 @@ Deutsche Tourenwagen-Meisterschaft (DTM, ДТМ; Немецкий кузовно
 magnet:?xt=urn:btih:6AFF0723ECC50E5F358A1CEBBC80E57CE143591B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +439,8 @@ magnet:?xt=urn:btih:6AFF0723ECC50E5F358A1CEBBC80E57CE143591B
 magnet:?xt=urn:btih:34991D308703FFD8EBE204449C1AC19C2F19E6A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +464,8 @@ magnet:?xt=urn:btih:34991D308703FFD8EBE204449C1AC19C2F19E6A9
 ```bash
 magnet:?xt=urn:btih:7074A8112CEA88510A3CC83B19A69C104FEAD3EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +493,8 @@ MotoGP. Этап 10. Гран-При Испании. Гонка. (18.10.2020) WE
 magnet:?xt=urn:btih:B9756901CA3B18B69031E93CA75E02F14EE7A1D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +518,8 @@ magnet:?xt=urn:btih:B9756901CA3B18B69031E93CA75E02F14EE7A1D9
 ```bash
 magnet:?xt=urn:btih:3DBC0063D727898440DED23E1A85E215F3755CD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +548,8 @@ magnet:?xt=urn:btih:3DBC0063D727898440DED23E1A85E215F3755CD5
 magnet:?xt=urn:btih:B6E713BB4B771E35808A87932DA81180D3CDDDC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +576,8 @@ magnet:?xt=urn:btih:B6E713BB4B771E35808A87932DA81180D3CDDDC0
 ```bash
 magnet:?xt=urn:btih:7B471A5E03F6AF5A81988975C16830A1F8EBFDDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +606,8 @@ magnet:?xt=urn:btih:7B471A5E03F6AF5A81988975C16830A1F8EBFDDA
 magnet:?xt=urn:btih:11E72A9532639D9979E3C99C188F941867F3B1B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +631,8 @@ magnet:?xt=urn:btih:11E72A9532639D9979E3C99C188F941867F3B1B1
 ```bash
 magnet:?xt=urn:btih:3394A60A3BE5F7883A07F854ED90849EDE9596EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +661,8 @@ magnet:?xt=urn:btih:3394A60A3BE5F7883A07F854ED90849EDE9596EF
 magnet:?xt=urn:btih:1CEC74A36FBF31DC8213756CDDDDB4C3D4F41C84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +690,8 @@ magnet:?xt=urn:btih:1CEC74A36FBF31DC8213756CDDDDB4C3D4F41C84
 magnet:?xt=urn:btih:4FFAE4C4B788039519FB60E241C5CE3AB1B2EA1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +717,8 @@ magnet:?xt=urn:btih:4FFAE4C4B788039519FB60E241C5CE3AB1B2EA1D
 ```bash
 magnet:?xt=urn:btih:05CF1FE4D17C4305D5F7E17B38ED4050130CA299
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

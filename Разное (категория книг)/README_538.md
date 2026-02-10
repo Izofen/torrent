@@ -1,3 +1,29 @@
+###  Публикация: 1385087   (800035) от 23.05.2020
+
+Сергей Кардаполов | Исцеляющая Гравитация. Авторская методика самовосстановления позвоночника (2017) [PDF]
+
+>>Разное (категория книг)
+>>Нетрадиционная медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сергей Кардаполов - человек, который пришёл к своим уникальным знаниям и наработкам через боль и тяжёлые испытания судьбы. Более 25 лет назад автор пережил тяжелейшую травму во время аварии. Шансы на нормальную полноценную жизнь были невелики. Но сила духа и любовь к жизни открыли Сергею путь к здоровью. Книга содержит базовую информацию по теории и практике методики (   Читать дальше...   )Жанр: Массаж. ЛФКФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABCA316C87C7E650728505AC22A10EA8E8E275B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385101   (800036) от 23.05.2020
 
 Книжная серия | Культурный шок! [7 книг] (2019-2020) [EPUB]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:B473A29ED5C15CCC49ED02827FFB6F5791F7F1B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:B473A29ED5C15CCC49ED02827FFB6F5791F7F1B1
 magnet:?xt=urn:btih:6758CE492DC4D2AA823D6BFEDF9C409AE5D7D337
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:6758CE492DC4D2AA823D6BFEDF9C409AE5D7D337
 ```bash
 magnet:?xt=urn:btih:D21324DF37EF227C7C3C146A35B63DBBE2BDCF3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:D21324DF37EF227C7C3C146A35B63DBBE2BDCF3F
 magnet:?xt=urn:btih:7CDCDAACA919A0CB62F4494756495D179F3EE9AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +155,8 @@ magnet:?xt=urn:btih:7CDCDAACA919A0CB62F4494756495D179F3EE9AE
 magnet:?xt=urn:btih:BED8BB40A6211596A073AB47C6CF2AA511FAC695
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:BED8BB40A6211596A073AB47C6CF2AA511FAC695
 ```bash
 magnet:?xt=urn:btih:899A58BC7EFC4CFFF742BFC0F404A1CD887E0071
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +208,8 @@ magnet:?xt=urn:btih:899A58BC7EFC4CFFF742BFC0F404A1CD887E0071
 magnet:?xt=urn:btih:08D3D234B3475CB6C7A93008DD50BF10A36B4326
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +233,8 @@ magnet:?xt=urn:btih:08D3D234B3475CB6C7A93008DD50BF10A36B4326
 ```bash
 magnet:?xt=urn:btih:EBF8C9CF108980CF2AF8A3BDBC334B8ADCC7FDA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:EBF8C9CF108980CF2AF8A3BDBC334B8ADCC7FDA7
 magnet:?xt=urn:btih:16D01E4C108B8B24566A5DFCEEF1935350E7CA81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +286,8 @@ Martian Auctions | 6500 Woodworking Projects (2004) [PDF] [En]
 magnet:?xt=urn:btih:C38B83B768498584608E0AC67B1B217D8DD3F2CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:C38B83B768498584608E0AC67B1B217D8DD3F2CB
 ```bash
 magnet:?xt=urn:btih:4210802D4D144E202E94FDEE1718D6CB49F7DA2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +339,8 @@ magnet:?xt=urn:btih:4210802D4D144E202E94FDEE1718D6CB49F7DA2D
 magnet:?xt=urn:btih:B82A5DB536B997DF8FAD699CBBFBD85740302C8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:B82A5DB536B997DF8FAD699CBBFBD85740302C8C
 ```bash
 magnet:?xt=urn:btih:627B8D2B24BF612F2E361143E93B23CA83DBC702
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:627B8D2B24BF612F2E361143E93B23CA83DBC702
 magnet:?xt=urn:btih:A2D17EDAFB497FE6E347AC68ED4896843C29A859
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:A2D17EDAFB497FE6E347AC68ED4896843C29A859
 ```bash
 magnet:?xt=urn:btih:7A3EA31C9E0634D58F9BCA5765F6D62EE23B9A9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +445,8 @@ magnet:?xt=urn:btih:7A3EA31C9E0634D58F9BCA5765F6D62EE23B9A9B
 magnet:?xt=urn:btih:A07EC5A0EC8C5DF7E65E2F7787DB95992FE9A3E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:A07EC5A0EC8C5DF7E65E2F7787DB95992FE9A3E4
 ```bash
 magnet:?xt=urn:btih:515DAE824AC84039234D0B8492C56F90FF50D85A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +498,8 @@ magnet:?xt=urn:btih:515DAE824AC84039234D0B8492C56F90FF50D85A
 magnet:?xt=urn:btih:0288614096E7DB48AF022A279F3AA8DC655A8606
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:0288614096E7DB48AF022A279F3AA8DC655A8606
 ```bash
 magnet:?xt=urn:btih:BBE68A1D637A3F236CB75C0F2CBF5371DB373144
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:BBE68A1D637A3F236CB75C0F2CBF5371DB373144
 magnet:?xt=urn:btih:83B8058BF2DB4145AFFACCBA8C6A7501E48917D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +576,8 @@ magnet:?xt=urn:btih:83B8058BF2DB4145AFFACCBA8C6A7501E48917D7
 magnet:?xt=urn:btih:56E0AA5CF1FB4ADA7A15B00F94607455FCE1E29E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:56E0AA5CF1FB4ADA7A15B00F94607455FCE1E29E
 ```bash
 magnet:?xt=urn:btih:DB437B02B5206CC7D557BAD0986DCCB919611D70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:DB437B02B5206CC7D557BAD0986DCCB919611D70
 magnet:?xt=urn:btih:D2C76620735B5F409B56349C03C4D06717545AB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +654,8 @@ magnet:?xt=urn:btih:D2C76620735B5F409B56349C03C4D06717545AB2
 ```bash
 magnet:?xt=urn:btih:470DF9501C0418609F1D992FB526FDEACD6AC0C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,29 +681,7 @@ magnet:?xt=urn:btih:470DF9501C0418609F1D992FB526FDEACD6AC0C6
 magnet:?xt=urn:btih:8D46F2BE268131E978A6CB5607877C325533F251
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199608   (801079) от 16.01.2018
-
-Р.Т. Богомолова | Осень нашей жизни. Окрепнуть в вере, поддержать здоровье (2016) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801079.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге старость рассматривается не как доживание и немощь, а как закономерный этап человеческой жизни, как состояние духовного роста. Приводятся поучения Святых Отцов, научные данные о старении организма и народный опыт лечения некоторых болезней в старости. Уповая на Господа, имея твердую веру в милость и любовь Божию, человек может прожить свои последние годы (   Читать дальше...   )Жанр: Духовная литератураФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2E569D6AF12886784CF83963450E50966031C94
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ BBC: Родительство / Parenthood (2025) WEBRip [H.264/1080p] (сезо
 magnet:?xt=urn:btih:4079A7B11B5A7D7FD97F91BB8924E983C2E8966B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ BBC: Хиросима / Hiroshima (2005) DVDRip [H.264] (серии 1-2 из 2)
 ```bash
 magnet:?xt=urn:btih:E7A082B8131B1CD86907318AE9E9C983826A3B53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ BBC: Помпеи: Новые раскопки / Pompeii: The New Dig (2024) WEB
 magnet:?xt=urn:btih:D48586F9357235DDD566FF0841295673130CD9F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:D48586F9357235DDD566FF0841295673130CD9F3
 ```bash
 magnet:?xt=urn:btih:AE352B8FCC8191A54FF7888C066C3730E83FF7F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ BBC: Древние державы / Ancient Powers (2023) WEBRip [H.264/720p] (
 magnet:?xt=urn:btih:45723B52D9D4ED78833C277D42FDB33C248637D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ BBC. Легендарные тигры Индии / Легендарні тиг�
 ```bash
 magnet:?xt=urn:btih:E8650D07EBEA78A24D5BFFEAD2D7A1A57BFEBA36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ BBC: Млекопитающие / Mammals (2024) WEBRip [H.264/1080p] (сезо�
 magnet:?xt=urn:btih:212D12E1F7A24872CDCA5FCC2992899A1A7B54C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ BBC: Я и гравитация. Сила, формирующая нашу жи�
 ```bash
 magnet:?xt=urn:btih:55ED6ED8E918C440213235B2521D45050A129884
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ BBC. Чудо Песни Дэвида Аттенборо / Attenborough's Wonder
 magnet:?xt=urn:btih:B7AD7CA7CB6ED8088D3FC40F645B0F0C8F1A01E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.265/2160p]
 ```bash
 magnet:?xt=urn:btih:A0BCF9C0FA77147DD238BDD3E522AE8EA2B98558
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ BBC. Вселенная / Universe / Das Universum - Faszination Weltall (2022) 
 magnet:?xt=urn:btih:2B0AF73E5C89BC5D1C08ABBE7BF971A9EAAF86C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:2B0AF73E5C89BC5D1C08ABBE7BF971A9EAAF86C9
 ```bash
 magnet:?xt=urn:btih:BF3595C4BEC0B9980CB617E58C462B78D81C6290
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ BBC: Космическая одиссея. Путешествие по гала
 magnet:?xt=urn:btih:75DDB693A2765C46092E2008E8594975B48A9AA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:75DDB693A2765C46092E2008E8594975B48A9AA7
 ```bash
 magnet:?xt=urn:btih:C586ECEDC752515868A3F0B116CBE147DA5C6FCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ BBC: Саймон Шама - История Британии / BBC: Simon Schama
 magnet:?xt=urn:btih:7A1A07CAC8EB3DAC7A8777445318508B4E08DC6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:7A1A07CAC8EB3DAC7A8777445318508B4E08DC6B
 ```bash
 magnet:?xt=urn:btih:5818EC3B0E4FD9C4F973619FDAC8D9CE2B9BB5F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ BBC: Дикая Патагония / Wild Patagonia (2015) BDRip [H.264/1080p] (
 magnet:?xt=urn:btih:429B20C1CA71712C502BB3A87252056099DF6DDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ BBC. Суперчувство / Суперчувства животных / Supe
 ```bash
 magnet:?xt=urn:btih:74863B87CA9A18B6BDF59B3F061427E1F09D66E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/1080p]
 magnet:?xt=urn:btih:00B48BB4730127A71620870BAF90B09207B1109F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ BBC. Операция Стоунхендж: Тайна, скрытая под к
 ```bash
 magnet:?xt=urn:btih:177E4086CF75306E2B96EEB6FD70F22410F4F535
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ BBС. Внутренняя вселенная: Тайная жизнь клет�
 magnet:?xt=urn:btih:EA1E9ABCDB42674CF3EF3F0C8B6A7C8E92120022
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ BBC: Плотоядные. Касатка  / Wildlife Specials. Killer Whale (20
 ```bash
 magnet:?xt=urn:btih:9320239F8A0C443D43583CE8AB8F742ECCC82EA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ BBC: Тайны Тихого океана / South Pacific (Wild Pacific) (6 се
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ BBC. Чудеса природы: жизнь на краю Земли / Earth's 
 ```bash
 magnet:?xt=urn:btih:C89BCD95E9E5BC076DE78EFA27645958C5F0FFEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ BBC: Чем мы кормим наших детей? / What Are We Feeding Our K
 magnet:?xt=urn:btih:35977BBA75E90D91D40746FDB1D37842D4E838DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:35977BBA75E90D91D40746FDB1D37842D4E838DE
 ```bash
 magnet:?xt=urn:btih:693045394FEB6CA673A8F0FD48A432C30E964F46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

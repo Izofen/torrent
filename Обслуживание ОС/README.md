@@ -21,6 +21,8 @@ SimilarImagesFinder - программа для поиска и удаления
 magnet:?xt=urn:btih:694159D302232C3E0ACCE12491A2C99DC40C7647
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Wise Disk Cleaner 11.2.7.847 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:38C59B37E0F7C06C1D562DC5A59C328AE97C522A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:38C59B37E0F7C06C1D562DC5A59C328AE97C522A
 magnet:?xt=urn:btih:FAEF39AD47E8EADE6DE408C0D049A3585857FF71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Driver Easy Professional — профессиональная и в тоже в�
 ```bash
 magnet:?xt=urn:btih:33C2BF9FB284DC5759035ABD378F8FF1DC807A14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ DISMTools — это интерфейс для DISM, позволяющий уп
 magnet:?xt=urn:btih:1EAC4EA4CD2D78EE05F8987D49D64E4ACDCD30CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:5AFA35A2E9BA76E96DE4DFB4C9F5D6806AD0860E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ PrivaZer - полезная утилита, которая поможет вам
 magnet:?xt=urn:btih:22242C9B966E7FA3B07B9A7D9D8694354E4E32D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ FNDup (Files & Names Duplicate) - программа для поиска дуб�
 ```bash
 magnet:?xt=urn:btih:A18B230008909AB8627C08A592E12ED08BF806F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Driver Booster сканирует и определяет устаревшие �
 magnet:?xt=urn:btih:4B2FC89C89B56FEE2848E2213807E00A3A62EBEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Driver Store Explorer — это легкий инструмент, которы
 ```bash
 magnet:?xt=urn:btih:56830BDCB1FAF2E7671E863953D53E8692B8EECF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Driver Booster сканирует и определяет устаревшие �
 magnet:?xt=urn:btih:F630FCD560C02E6E02777168B03BEE9F22ED205F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ RAM Saver Pro - инструмент для профессионального �
 ```bash
 magnet:?xt=urn:btih:79D534B92E08AF7373430FBE527C561C79C9365C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ R-Wipe & Clean - программа для невосстановимого уд
 magnet:?xt=urn:btih:8E1DE2A3F9A1608D74AD6BB8EE0915E3E163BB36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ RegCool 2.037 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A702EC933B1A088477B2EDE2E851F83DF2B5D5E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Glary Utilities - комплексный набор инструментов д�
 magnet:?xt=urn:btih:2352BE54E2F6CA068FC2B98BE416DB4FD83B3EC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ O&O SafeErase - полностью исключает возможность в�
 magnet:?xt=urn:btih:6DC594F7BC6DD5B140EE1FA2E6BFCD237AE36870
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ Wise Disk Cleaner 11.2.6.846 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C9147EDE9002CAE9CE4EE0DAD1B5374E7770E76F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ Windows Manager - это универсальная утилита для Micros
 magnet:?xt=urn:btih:14417CB5A434E74DA5CFC34F441EE6EE2096706A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ WinTools.net – набор инструментов для оптимизаци
 ```bash
 magnet:?xt=urn:btih:7A4593D95E21AC4D9D940A32C55DB95B8FD8783E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ Revo Uninstaller Pro 5.4.0 RePack (& Portable) by Dodakaedr (21.09.2025) [Multi/
 magnet:?xt=urn:btih:95B6816F7AA1604CB90F243B6BF92003134FAD8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ DISMTools — это интерфейс для DISM, позволяющий уп
 ```bash
 magnet:?xt=urn:btih:5B8E557FBA2D9662A88535BB70F7C7CA238EB7D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ Glary Utilities - функциональный набор системных т�
 magnet:?xt=urn:btih:B9B5EFE6DB545F3EDFB7870D9EC47DAE26F681B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ Microsoft PowerToys – это набор утилит, позволяющих �
 ```bash
 magnet:?xt=urn:btih:6B7E4370EA5FAA1A15D95EA108E2206134E8ACDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ Driver Booster сканирует и определяет устаревшие �
 magnet:?xt=urn:btih:314BAA9706761DF7D181A98DA24AED98C448519A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:AE79BBDEFA6093DEB43AB8AE1B4622B53E4E3067
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +672,8 @@ Windows Slimmer поможет вам в удалении ненужных ко�
 ```bash
 magnet:?xt=urn:btih:F230E431D2DBA5D8E55DF0FCAB2FC41A22ED7273
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

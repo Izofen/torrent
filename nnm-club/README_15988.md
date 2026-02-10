@@ -1,704 +1,726 @@
-###  Публикация: 1038762   (595919) от 01.08.2016
+###  Публикация: 1300050   (594967) от 04.05.2019
 
-Young Summer - Siren (2014) [MP3|320 Kbps] <Indie pop, Alternative>
+Журнал | House Beautiful [UK] №6 (июнь 2019) [PDF] [En]
 
->>Other Styles
->>Other
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595919.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594967.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Striking Distance
-02. Blood Love
-03. Taken
-04. Sons of Lightning(   Читать дальше...   )Жанр: Indie pop, AlternativeПродолжительность: 00:46:25
+Журнал "House Beautiful" - одно из ведущих изданий по интерьеру. В журнале публикуются лучшие идеи декорирования жилых помещений и кухонь, а также полезные советы по установке бытовой техники. Это должно вдохновить читателей журнала не бояться пробовать что-то новое, принимать смелые решения с цветом и стилями собственных интерьеров.Жанр: Дизайн, архитектура, интерьерФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B0C46530BAE9FDF2BD0109426A1BF59DF67CC077
+magnet:?xt=urn:btih:30ABF693118DD0287D068B55D6C0081407F8A142
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039636   (595920) от 01.08.2016
+###  Публикация: 1299164   (594968) от 04.05.2019
 
-Туи Т. Сазерленд | Пророчество о драконятах (2016) [FB2]
+Сергей Козлов | Вид из окна (2019) [MP3]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595920.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594968.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Первый роман цикла «Драконья сага»
+Сбежавший из родного города, а также пытающийся сбежать от самого себя разведённый поэт по объявлению в газете нанимается в сопровождающие к овдовевшей миллионерше-бизнесменше Вере. В скором времени между ними вспыхивает любовная страсть. Неожиданно появляется киллер, которого Вера нанимала для того, чтобы он разделался с убийцами её мужа, а потом начинают происходить (   Читать дальше...   )Жанр: Современная русская литератураПродолжительность: 11:24:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0011C3704EF17421AED98E08F8149FD7504BD792
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299727   (594969) от 04.05.2019
+
+VA - Schlager für Alle 4 (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594969.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
 
-Дракончик Глин и его друзья растут в горных пещерах под присмотром секретной организации "Когти мира". Драконятам предстоит исполнить таинственное пророчество и положить конец кровавой междоусобной войне драконьих племён Пиррии. Как это сделать, никто не знает, да и не каждый готов принять судьбу, навязанную другими. (   Читать дальше...   )Жанр: ФэнтезиПеревод: Алексей КругловФормат: FB2
+01. Eloy de Jong - Liebe kann so weh tun (im Duett mit Marianne Rosenberg)
+02. Thomas Anders feat. Florian Silbereisen - Sie sagte doch sie liebt mich(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:32:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5FBD7F4265F6DB07C2E6B4E2AE34C81602B6096D
+magnet:?xt=urn:btih:81E8CA5FA17B3038ABE10DEF86FE3C88489B8A99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039553   (595921) от 01.08.2016
+###  Публикация: 1299440   (594970) от 04.05.2019
 
-Manuel Rocca - Mochima (2016) Single [MP3|320 Kbps] <Trance>
+Aldous Harding - Designer (2019) [FLAC|Lossless|tracks + .cue] <Rock, Folk Rock, Pop Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595921.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_594970.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mochima (Original Mix) 06:44
-02. Mochima (Airsoul Remix) 06:05
-03. Mochima (Sunlight Project Remix) 07:39
-04. Mochima (Factoria Remix) 06:57(   Читать дальше...   )Жанр: TranceПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4E66678B425DF0C19CFBE1E904E8AB12049A1E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527126   (595924) от 25.07.2012
-
-AtmAsfera - Internal (2012) [FLAC|Lossless]<World Music, Folk-Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_595924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
- 02. Where Sould I Go
- 03. Bala
- 04. Almost
- 05. Lonely Night
-
-Tetralogy Apocalypse :
- 06. Wart (Part I)
- 07. Inside (Part II)
- 08. Inspiration (Part III)(   Читать дальше...   )Жанр: World Music, Folk-RockПродолжительность: 01:05:01
+1. Fixture Picture (04:08)
+2. Designer (04:17)
+3. Zoo Eyes (05:18)
+4. Treasure (04:12)(   Читать дальше...   )Жанр: Rock, Folk Rock, Pop RockПродолжительность: 00:40:36
 
 ## Скачать торент
 ```bash
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 527132   (595926) от 25.07.2012
+###  Публикация: 1299773   (594971) от 04.05.2019
 
-DJ Kocmoc - Russian Dance vol.9 (28.06.2012) [MP3|320 кб/с]<Electro House, Electro Progressive>
+Григорий Каковкин | Мужчины и женщины существуют (2019) [MP3]
 
->>Архив торрентов
->>Архив Музыки
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595926.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594971.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Кипелов - Я свободен (DJ Mariya Malyakina DubStep Remix)
- 2. Алина Гросу – Взрослая (BennStep Remix m.u. Radio Edit)
- 3. Nutella - я тебя люблю (DJ Johnny Clash & DJ Grant Electro remix)
- 4. Sexy Liya & Bob Rovsky - Фильтруй,что говорят
- 5. Иракли vs Бьянка - Белый Пляж (DJ Ruin remix)
- 6. Иван Дорн - Стыцамен (Viento & Mutti Remix)
- 7. Пара Нормальных & Snoop Dogg - Вставай (Anton Orf & Muztrend Remix)
- 8. Планеты - Любовь!(Alex Neo Remix)
- 9. DJ Gold Sky feat. A&K - Rock Star 2012 (Russian Version)
- 10. Вася Обломов - Магадан (Dj Slon Remix)(   Читать дальше...   )Жанр: Electro House, Electro ProgressiveПродолжительность: 01:14:23
+Каковкин Григорий Владимирович — писатель, драматург, журналист, режиссер и сценарист документального кино. Родился в Москве в 1953 году. Окончил философский факультет МГУ. Как журналист и публицист работал в ведущих изданиях страны, в газетах “Известия”, “Литературная газета”, журнале “Сельская молодежь” и “Открытая политика”. На телевидении был ведущим и автором (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 12:51:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:42C7A2DF7F6284AE9D77A30E08551B8AE6A54A83
+magnet:?xt=urn:btih:CCE66F434D630592383B85F739C2E9B808B13C1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 526860   (595928) от 25.07.2012
+###  Публикация: 1300046   (594972) от 04.05.2019
 
-Журнал | Marie Claire №8 (август / Украина) [2012] [PDF]
+Carmen McRae - Four Classic Albums (1955 - 1958) 2CD, 2014, Avid Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595928.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_594972.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал "Marie Claire" - воплощение живой девушки, которая работает, неплохо зарабатывает, ни перед кем финансово не отчитывается и деньги тратит исключительно на свои прихоти. Может быть, у нее сейчас есть постоянный друг - мужчина, которого она по-настоящему уважает. Мы с вами знаем эту девушку, потому что она такая же, как мы. Думает, в чем пойти на работу, и при этом периодически совершает безумные покупки, знает значение слов "статусно" и "пафосно" и при этом любопытна до крайности. Все попробовать самой, везде побывать, по любому поводу иметь свою точку зрения. Ее зовут Marie Claire, и она - отражение эпохи, девушка,которой можно все.Формат: PDF
+CD1:
+01. Last Night When We Were Young [2:41]
+02. Speak Low [3:11]
+03. But Beautiful [2:58](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:31:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D5BCA730B1C79899E9DFB1DEE70FD378D87CDEC
+нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 526687   (595929) от 25.07.2012
+###  Публикация: 1299353   (594973) от 04.05.2019
 
-VA - Soul of Ibiza Volume 40 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595929.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Neev Kennedy - The Unknown (DNS Project Extended)
-002. Mark Sixma feat. Amba Sheperd - Cupid`s Casualty (Original Mix)
-003. Mike Koglin feat. LCK - Varana (Original Mix)
-004. Omnia & IRA - The Fusion (Original Mix)
-005. Paul van Dyk feat. Austin Leeds - Verano (PvDs Full Fire Mix)
-006. Progressiver - Searching For The Truth (Original Mix)
-007. Rake feat. Natalie Griffiths - Expectation (Original Mix)
-008. Remy Le Duc, The EC Twins & Zen Freeman feat. Shakeh - In Motion (Original Mix)
-009. Ruben de Ronde & Aelyn - She's Already Gone Vocal Mix
-010. Sou Kanai - A Fragment Of The Memory (Original Mix)(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:50:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E327BEAF1187B82FC7A8C222BC4920CFF8A49870
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525718   (595932) от 25.07.2012
-
-VA - Black World Mix - Mixed By Rezonanz (2012) [MP3|320 кб/с]<Drum & Bass, Dubstep, Drumstep>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - C.A.2K - Moredanb
-02 - NLB aka Renegade Scientist - Horn Related
-03 - C.A.2K - Push a Little Harder
-04 - Exiva & TerrorЖанр: Drum & Bass, Dubstep, DrumstepПродолжительность: 00:57:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BFF38C06DFDDA475329FDD50144A92A0FDECD19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526244   (595935) от 25.07.2012
-
-VA - TMP: Vanilla Dreams 080 (2012) [MP3|320 кб/с]<Vocal Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595935.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alan Morris & Sequentia - Blind (Vocal Mix)
-002. Masoud feat. Nicole McKenna - Fix The Broken (Original Mix)
-003. Chicane - Going Deep (Club Mix)
-004. Cathy Burton & Omnia - Hearts Connected (Original Mix)
-005. Andrew Bayer & Matt Lange feat. Kerry Leva - In And Out Of Phase (Club Edit)
-006. Faruk Sabanci - Oriental Sentiment (Original Mix)
-007. Allure feat. Emma Hewitt - Stay Forever (Nitrous Oxide Remix)
-008. Bartlett Bros., Matt Loki & Tiff Lacey - Sweet Child (Lele Troniq Remix)
-009. Alexey Omen feat. Volodya Aspirin - When The Heavens Cry (Original Mix)
-010. Andy Moor & Ashley Wallbridge feat. Gabriela - World To Turn (Club Mix)Жанр: Vocal TranceПродолжительность: 01:05:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A91968D12E50AFFC2AE67B69416252A37A045FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526236   (595936) от 25.07.2012
-
-VA - TMP: Clear Sky 080 (2012) [MP3|320 кб/с]<Vocal Trance, Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595936.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ferry Corsten vs. Armin van Buuren - Brute (Darren Porter Remix)
-002. Moonbeam feat. Avis Vox - Disappearance (Kollektiv SS Remix)
-003. Max Graham & Susana - Down To Nothing (Original Mix)
-004. Evol Waves - Evolver
-005. Johan Vilborg - Fall (Original Mix)
-006. Gal Abutbul & Liri - Golden Globe (Original Mix)
-007. Julian Vincent & Shannon Hurley - Lost In Space (Mark Otten's Original Mix)
-008. Jake Shanahan feat. Tyler Sherritt - On The Otherside (Original Mix)
-009. Glideslope - Sunstone (Original Mix)
-010. Maor Levi - Won't Say NoЖанр: Vocal Trance, TranceПродолжительность: 01:07:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65175629F9B866488AB2EF5DF242408321B26251
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527183   (595938) от 25.07.2012
-
-Журнал | ХлебСоль №8 (август 2012) [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595938.jpg" />
-</div>
-
-
-###  Подробнее
-
-"ХлебСоль" — это еще одна возможность рассказать о еде как творчестве. И появление журнала — это удивительное стечение обстоятельств, потому что в одном месте собрались энтузиасты, которые очень любят готовить и экспериментировать на кухне. Все рецепты неоднократно тестируются на редакционной кухне. Штатные повара журнала выверяют необходимое количество (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03B8644086888BE6D8EF24B1F4A226EB621796EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527272   (595940) от 25.07.2012
-
-Газета | Сад, огород - кормилец и лекарь №14 (172) (июль 2012) [DJVU]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595940.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Сад, огород – кормилец и лекарь» — журнал, который поможет вырастить богатый урожай, обустроить дачный участок, приготовить из дачных даров изысканные блюда, раскроет тайны народной медицины, подскажет, как оставаться красивой с помощью косметики с грядки. Ценный опыт наших читателей, присланный в письмах на конкурсы газеты, становится достоянием всех и постоянно (   Читать дальше...   )Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4D3066F3759FFB6BDF7E29869CCA1DDF3640F93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526877   (595941) от 25.07.2012
-
-Bill Miller - Spirit Wind North (2009) [MP3|320 кб/с]<Native American, Ethno, Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595941.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Birds of Pray 4:06
-2. Together as One 5:11
-3. High Eagle Prayer 7:13
-4. Lost Canyon 6:59
-5. Vision Quest 6:42
-6. Tranquil Fire 4:23
-7. Journey Into Prayer 4:26
-8. Amazing Grace 3:59
-9. Reconciliation Prayer 5:07Жанр: Native American, Ethno, RockПродолжительность: 00:48:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38773A3CED53623D41D8DB39A64A0C42A0994789
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039455   (595942) от 01.08.2016
-
-День «Д». Высадка в Нормандии. Операция «Нептун» / D-Day (2010) IPTVRip
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595942.jpg" />
-</div>
-
-
-###  Подробнее
-
-Операция «Нептун» - кодовое название начальной фазы операции «Оверлорд» - началась 6 июня 1944 года (дата также известна как «День Д»), высадка морского и воздушного десантов союзных (английских, американских и канадских) войск в оккупированной Германией Нормандии в ходе Второй мировой войны, часть Нормандской операции. Утром 6 июня началась высадка морских десантов (   Читать дальше...   )Телекомпания: Франция, Cinema 7Жанр: Документальный, война, историяРежиссер: Жак Перрен / Jacques PerrinПеревод: Не требуется (нет диалогов и комментариев)Продолжительность: 00:14:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23C5D6EEF1A1B31683C6AAC6E08AA5F9D24F4556
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039508   (595943) от 01.08.2016
-
-Смешанные единоборства. Invicta FC 18: Grasso vs. Esquibel. (29.07.2016) WEB-DL [H.264/720p-LQ] [EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все бои турнира "Invicta FC 18: Grasso vs. Esquibel", прошедшего 29 июля 2016 года в "Scottish Rite Temple", Канзас-Сити, штат Миссури, США.Телекомпания: FOX SportsЖанр: СпортЯзык озвучки: АнглийскийПродолжительность: 03:09:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68BB6387D0A6BF52FA9595465CEF30A47F9D184D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039665   (595944) от 01.08.2016
-
-В мире прошлого. Битва за Африку (2011) SATRip
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595944.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Мозамбике и на территории Анголы, под руководством военных инструкторов Главного разведуправления МО СССР, готовятся повстанческие отряды. Их цель - установление дружественных Москве режимов, распространение коммунистических идей на африканском континенте. Им противостоят вооруженные силы Южной Родезии и Южно-Африканской республики. В фильме зритель впервые увидит (   Читать дальше...   )Телекомпания: Россия, ООО «ДОК-Синема»Жанр: Документальный, война, историяПродолжительность: 00:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94AC83A06611B3DFFA93F4005830613D0B842657
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039538   (595945) от 01.08.2016
-
-VA - Best Hits Hot Eternal Sound (2016) [MP3|320 Kbps] <House, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595945.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bad Boys Blue -  You're a Woman (Reloaded Album Version) 3:05
-002. DJ Smash & DJ Miller feat. Anya -  Angels (Radio Edit) 3:36
-003. Global Deejays & Frontload -  Get Up! (Radio Edit) 3:07
-004. Pullbaxx & C.R. Easy -  Waves of Time (Bigroom Edit) 3:54(   Читать дальше...   )Жанр: House, Dance, ClubПродолжительность: 12:48:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18074F3436D8B1F48BAF1B3EC9ABADBEDF011A4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039633   (595946) от 01.08.2016
-
-Николай Гумилев | Я печален печалью разлуки (2016) [FB2]
-
->>Художественная литература
->>Современная поэзия и проза
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Его жизнь могла бы лечь в основу нескольких приключенческих романов. Его любовь – рыцарское поклонение прекрасной даме. Его бескомпромиссность и стремление идти до конца казались нелепым и опасным чудачеством, но в конце концов вызывали уважение даже у врагов. Его смерть символизировала гибель целого поколения, оказавшегося слишком прямым, чтобы приспособиться.
- (   Читать дальше...   )Жанр: Поэзия, Литература 20 векаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5BCB5FBC8943F5C7F688B044D4E89A4E8B5E261
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039472   (595947) от 01.08.2016
-
-VA - Летний Maximum Mix 50/50 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Шахзода Feat. Shoxrux - Ket
-02. Sara Hartman - Stranger In A Room
-03. Радиоволна - Не Сходи С Ума
-04. Samir & Viktor - Saxofuckingfon(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:824334F224183343D73D2B361D3BEBFF4102BBAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039457   (595948) от 01.08.2016
-
-А. Сирена (ред.) | Лампа Аладдина и другие сказки (1996) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга из серии «Энциклопедия золотых сказок». Свободный пересказ сказок из книги «Тысяча и одна ночь». Иллюстрации Тони Вульфа. Текст сказок Питера Холейнона. Перевод с итальянского Губарев Л.Н. Мы благодарим наших читателей за поддержку. Приятного Вам чтения!Жанр: Детская проза, сказкаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F5EB615F7D67EF6627A69948A6E908D6FE85489
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039536   (595949) от 01.08.2016
-
-Улья Нова (сост.) | Здравствуйте, доктор! Записки пациентов [сборник] (2014) [FB2]
-
->>Художественная литература
->>Современная поэзия и проза
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595949.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом сборнике очень разные писатели рассказывают о своих столкновениях с суровым миром болезней, врачей и больниц. Оптимистично, грустно, иронично, тревожно, странно – по-разному. Но все без исключения – запредельно искренне. В этих повестях и рассказах много боли и много надежды, ощущение края, обостренное чувство остроты момента и отчаянное желание жить. Читая (   Читать дальше...   )Жанр: Современная русская литература, Врачебная проза, Врачебные историиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF0AA329DC4AA40FB98C9C001687794BCB8C9B55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039439   (595950) от 01.08.2016
-
-Jack The Smoker - Jack Uccide (2016) [MP3|320 Kbps] <Hip-Hop, Trap>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - V(a)iking
-02 - Burial
-03 - 666
-04 - Grazie a me (feat. Gemitaiz & Madman)(   Читать дальше...   )Жанр: Hip-Hop, TrapПродолжительность: 00:48:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CCD63738F93CAF0B4467D7DA49BBCEF7C274EB6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039431   (595951) от 01.08.2016
-
-VA - Crystal Bowl Music: Chakra Sound (2016) [MP3|320 Kbps] <Downtempo, Chillout, Ambient>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595951.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chillelektro - Poel
-002. Took - Touch the Sky
-003. Jason D McKean - 108 Sacred Oms: Om Sound Healing
-004. Steven Bakker - Real Life(   Читать дальше...   )Жанр: Downtempo, Chillout, AmbientПродолжительность: 08:43:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9AD4787C7A8EB8D7DC6FF41BD250BE55CEAEBC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039605   (595952) от 01.08.2016
-
-Журнал | АиФ. Спецвыпуск вопросов и ответов (июль 2016) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему этот спецвыпуск появился в Челябинске?
-Невелика заслуга засолить и замариновать то, чем щедро одарила земля. Кухня южной хозяйки в период заготовок напоминает мини-консервный завод: только успевай крышки крутить. Другое дело - Челябинск. Долгими зимними, а потом весенними, а потом еще и летними вечерами мы мечтаем об урожае. Прикидываем: что побьёт июньскими (   Читать дальше...   )Жанр: Кулинария, консервирование, домашние заготовкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FC7AEB486A08F71B3986FD5A56F582EFE13B686
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039481   (595953) от 01.08.2016
-
-VA - Crazy Eivissa Chill Deep House (2016) [FLAC|Lossless|WEB-DL|tracks] <House,Deep House,Chill Out>
+Serkan Eles - Belong to Sun (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Deep Techno, Downtempo>
 
 >>Electronic
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595953.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594973.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Flash Is Fast - Workout (Beach Mix) [06:19]
-02 Weekend of Robots - Progress (Deep House Edit) [08:19]
-03 Nelson Reis - Missing Link [05:35]
-04 Wayne Porter - Think About You (Radio Mix) [02:41](   Читать дальше...   )Жанр: House,Deep House,Chill OutПродолжительность: 03:36:08
+1. Bagja (05:54)
+2. Delight (05:39)
+3. Hafiye (06:10)
+4. Placid (06:29)(   Читать дальше...   )Жанр: Deep House, Deep Techno, DowntempoПродолжительность: 00:55:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:22104E0486F3E9DB001A46AD1E5E91BB7B3257B7
+magnet:?xt=urn:btih:B598972E32FCDDC7368694DA066466B9A8798ECD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039470   (595954) от 01.08.2016
+###  Публикация: 1299778   (594974) от 04.05.2019
 
-Антология | Сказание о Раме, Сите и летающей обезьяне Ханумане (1986) [FB2]
+Жорж Перек, Клод Бюржелен | Кондотьер (2019) [MP3]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595954.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594974.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"В далёкой и тёплой стране Индии есть шумный город Мадрас. Очень может быть, мой юный читатель, что, когда ты вырастешь, ты приедешь в него. И тогда, как все приезжающие, ты обязательно пойдёшь на берег океана, где увидишь большие неторопливые волны и редкий лес из деревьев, которые называют казуаринами. Они очень похожи на наши сосны, только иголки у них длинные, (   Читать дальше...   )Жанр: Мифы, легенды, былиныФормат: FB2
+Рукопись романа долгое время считалась утраченной. Через тридцать лет после смерти автора ее публикация дает возможность охватить во всей полноте многогранное творчество одного из самых значительных писателей XX века. Первый законченный роман и предвосхищает, и по-новому освещает всё, что написано Переком впоследствии. Основная коллизия разворачивается в жанре психологического (   Читать дальше...   )Жанр: Современная проза РоманПродолжительность: 05:40:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2731B032DA54B9C192E68F0C6A2BEECE0F0CB8B7
+magnet:?xt=urn:btih:EA5F66DBE9CB5E85693EB605308C91DFC0648B4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299656   (594975) от 04.05.2019
+
+Millencolin - SOS (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SOS (03:19)
+02. For Yesterday (02:46)
+03. Nothing (02:58)
+04. Sour Days (03:07)(   Читать дальше...   )Жанр: Alternative Rock, PunkПродолжительность: 00:35:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A85C673583EE36E39A4D9E2FD7334875FEE54AF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548904   (594976) от 05.05.2022
+
+VA - Jazz for a Summer Day, Vol. 3 (2022) [AAC|~329 Kbps] <Jazz, Lounge, Bossa Nova>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_594976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lo Greco Bros - Loving (3:51)
+02. Walter Ricci, Fabrizio Bosso - I Believe In You (3:55)
+03. Soulstance - Just One Day (4:00)
+04. Ithamara Koorax - Butterfly (6:45)(   Читать дальше...   )Жанр: Jazz, Lounge, Bossa NovaПродолжительность: 01:43:52
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549055   (594977) от 05.05.2022
+
+Аркадий Кошко | Криминальные рассказы (сборник) (2022) [MP3, Пожилой Ксеноморф]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_594977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга – воспоминания одного из лучших криминалистов России начала XX века, заведовавшего когда-то всем уголовным сыском Российской империи. В книге описываются самые громкие и скандальные дела из его практики: похищения драгоценностей и тайна розового бриллианта, разбойные нападения и миллионы монаха, убийства известных чиновников и купцов, брачные аферы и крупные (   Читать дальше...   )Жанр: Классические детективыПродолжительность: 15:42:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548895   (594978) от 05.05.2022
+
+VA - Saxappeal, Vol. 2 (Lounge Saxophone Smooth Jazz Del Mar) (2022) [AAC|~323 Kbps] <Lounge, Chill Out, Smooth Jazz>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_594978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dave Nimerfro - My Heart Won't Move On (Birds in the Trap Mix) (5:13)
+02. Wonderphazz - Moonlight in Paradise (Late Night Chill Out) (4:38)
+03. Gary Rosenblatt - This Must Be Paradise (Sunset Chill Bar Mix) (4:40)
+04. Perelandra - On the Box (Smooth Sax Edit) (2:43)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:58:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548992   (594979) от 05.05.2022
+
+VA - NDH 4 (2022) [MP3|320 Kbps] <NDH, Industrial Metal, Gothic Metal>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_594979.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Baal - Purge (3:36)
+2. Lindemann;Peter Tägtgren - Steh auf (3:04)
+3. Eisbrecher - Stossgebet (3:54)
+4. MONO INC. - The Book of Fire (7:21)(   Читать дальше...   )Жанр: NDH, Industrial Metal, Gothic MetalПродолжительность: 03:18:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548984   (594980) от 05.05.2022
+
+Инна Смирнова | Ясновидение (2003) [MP3, Вячеслав Герасимов]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_594980.jpg" />
+</div>
+
+
+###  Подробнее
+
+Умение предугадывать будущее, видеть прошлое - что за ним стоит? В чем заключаются внутренние механизмы самой таинственной из всех человеческих способностей? Феномен ясновидения рассматривается в этой книге на конкретных примерах осуществившихся пророчеств от глубокой древности и до наших дней. Дельфийские сивиллы и Кассандра, Нострадамус и Э.Кейси, Мессинг, Ванга (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 13:35:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548893   (594981) от 05.05.2022
+
+VA - Chill Room, Vol.1 (Spheric Downtempo Lounge) (2022) [AAC|~334 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_594981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Art of Chill - The Secret Spell (2:33)
+02. Monochrome People - Journey from Earth (Atmospheric Vocal Mix) (5:09)
+03. Sensual Flow, Soleil Fisher - Another Dimension (Chill Mix) (6:32)
+04. Hirudo - Chill Room (4:06)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:43:52
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548728   (594982) от 05.05.2022
+
+Divine Heresy - Studio Albums (2007 - 2009) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Technical Death/Groove Metal, Metalcore>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_594982.jpg" />
+</div>
+
+
+###  Подробнее
+
+Divine Heresy («Божественная Ересь») — американская дэт-метал группа, образованная в 2006 году в Лос-Анджелесе гитаристом Дино Касаресом.2007 - Bleed the Fifth
+2009 - Bringer of PlaguesЖанр: Technical Death/Groove Metal, MetalcoreПродолжительность: 01:31:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548974   (594983) от 05.05.2022
+
+VA - Serge van Muur vol. 1 (2022) [MP3|320 Kbps] <Deep House, Electro House, Disco House>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_594983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrey Exx, Max Lyazgin - Extasy
+02. Dj Azick - Adyg Rap (Dobrynin & Alex Shik Remix)
+03. Dophamean - Sunrise
+04. Geo Da Silva - Do It Like A Truck (Maxim Keks Radio Remix)(   Читать дальше...   )Жанр: Deep House, Electro House, Disco HouseПродолжительность: 1.19.44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548988   (594984) от 05.05.2022
+
+VA - NDH 3 (2022) [MP3|112-320 Kbps] <NDH, Industrial Metal, Gothic Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594984.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Staub - Leben (4:55)
+2. Apryl - In Frieden Ruhn (3:56)
+3. Inception Of Eternity - The Age of Warlords (4:11)
+4. Weissglut - Unter deiner Asche (4:50)(   Читать дальше...   )Жанр: NDH, Industrial Metal, Gothic MetalПродолжительность: 03:30:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BC15EC4A638ABD0E3D5D909C0AE5E7801CB0FA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549018   (594985) от 05.05.2022
+
+Bronswick - Entre mes insomnies (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Electropop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Les murmures sabotés (00:03:33)
+02 - La faute (00:03:29)
+03 - Giavonni (00:04:09)
+04 - Myosotis (00:03:34)(   Читать дальше...   )Жанр: Synthpop, ElectropopПродолжительность: 00:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A9D0841D4DB1FCE89FEE16B8B7349F4F1E039AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549120   (594986) от 05.05.2022
+
+Эрик Симон | Паук (2022) [MP3, Puffin Cafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594986.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Что если бы вы столкнулись с очень незначительным проявлением существования параллельных измерений. Изменило бы это это вашу жизнь, или же стало неким постыдным воспоминанием, которое не следует упоминать в приличном обществе? Например, маленький паук, нарушающий законы физики." (с)Жанр: ФантастикаПродолжительность: 00:18:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:778F365C81C4E99A321014BB5CC69F2A8BCBF2A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549077   (594987) от 05.05.2022
+
+Ханс Русенфельдт, Микаэль Юрт | Себастиан Бергман (Книга 6). Высшая справедливость (2022) [MP3, Станислав Иванов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий скандинавский нуар для поклонников Ю Несбё и Стига Ларссона.
+Заблудившиеся туристки обнаруживают в горах массовое захоронение: шесть скелетов, четверо взрослых и двое детей. Кто они? Почему их убили? И какое отношение к ним имеет Хамид – иммигрант, пропавший много лет назад?
+Медленно, крошечными шажками шведские полицейские приближаются к разгадке. Правда, (   Читать дальше...   )Жанр: Зарубежные детективы, Полицейские детективыПродолжительность: 14:01:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F0AF77A609D6069FB6950E6C2C216B8E5BA01DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548738   (594988) от 05.05.2022
+
+Xuji Sunset - Outrunner (2022) [MP3|320 Kbps] <Synthwave, Dreamwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Cruising (Interlude) [00:01:24]
+02 - Driving a Dream [00:03:58]
+03 - Sunrise City [00:03:27]
+04 - Highway Overtakes [00:04:31](   Читать дальше...   )Жанр: Synthwave, Dreamwave, RetrowaveПродолжительность: 00:34:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C87F9DEAA8D6F8C20747C045588E357AF323884
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548887   (594989) от 05.05.2022
+
+VA - Chillhop Essentials Spring 2022 (2022) [AAC|~295 Kbps] <Chill Hop, Trip Hop, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zmeyev, Misha, Viktor Minsky - Seagulls (2:30)
+02. Psalm Trees, Moods - Santiago (3:45)
+03. Ben Bada Boom - Frisky Feeling (2:41)
+04. C Y G N - Escape World (3:21)(   Читать дальше...   )Жанр: Chill Hop, Trip Hop, DowntempoПродолжительность: 01:04:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24446B4B1BE2CF72AB19234F5D70C11D4BF37DF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548155   (594990) от 05.05.2022
+
+VA - HarDD NRG OverDoZZe 5 (2022) Mixed by aQuaLuna [MP3|320 Kbps] <Trance, Hard Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594990.jpg" />
+</div>
+
+
+###  Подробнее
+
+(+*CUE)
+01. Odyssey Of Light - Confusion (Aquaplex Remix) (AXWAX,2000)
+02. Solar Stone - Solarcoaster (Midway Remix) (LOST LANGUAGE,2003)
+03. Nuclear Hyde - Frame Grinder (Original Mix) (NOOM,2005)(   Читать дальше...   )Жанр: Trance, Hard TranceПродолжительность: 02:01:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93DF7400362AACDDBB6586843F94EC5720B20ED7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549062   (594991) от 05.05.2022
+
+VA - 12.04 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_594991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zodiac - Flight Over ElDorado V2 (6:33)
+02. Triatom - Space Echoes (5:57)
+03. oRangeOfSound - Reach the Aither (6:42)
+04. In'R'Voice - Human Recycle II (7:13)(   Читать дальше...   )Жанр: Synthpop, SpacesynthПродолжительность: 02:14:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549086   (594992) от 05.05.2022
+
+Евгения Горская | Непоправимый брак (2022) [MP3, Мария Лутовинова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594992.jpg" />
+</div>
+
+
+###  Подробнее
+
+В детстве Лера, Инна и Анфиса дружили, но потом их пути разошлись. Инна отбила у Анфисы парня, тот стал ее мужем и большим человеком – директором завода, где производят секретные приборы. Анфисе досталась незавидная роль секретарши, но умная девушка быстро нашла возможность улучшить свое положение… Правда, ненадолго: Анфису убивали, а вскоре погибли еще два сотрудника (   Читать дальше...   )Жанр: ДетективПродолжительность: 07:31:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1F5026F26E5CD06D327B74CE6098AF81773D0BB
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 236897   (478633) от 22.09.2010
+
+Александр Зорич | Сомнамбула. Звезда по имени Солнце (Проект "Этногенез") [2010] [MP3]
+
+>>След.
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Объединенное Человечество 2468 года… Прекрасный новый мир, созданный стараниями тысяч пассионариев, среди которых — потомки Маруси Гумилевой. Лейтенант Матвей Гумилев только что закончил престижную лунную академию Космофлота. Перед ним открыты все дороги, но он выбирает самую трудную: службу в особой бригаде «Беллона», которая каждый день и каждый час противостоит (   Читать дальше...   )Жанр: Фантастика
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 238496   (478882) от 22.09.2010
 
 Андрей Белянин и др. | Тень кота-вампира (2010) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@
 magnet:?xt=urn:btih:DA15638EEB0BD5080FB226ABAE76EFEE7B16E1B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:DA15638EEB0BD5080FB226ABAE76EFEE7B16E1B1
 ```bash
 magnet:?xt=urn:btih:F4CECCD5C9E34433E3E7C3DED375E43DF8669A51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:F4CECCD5C9E34433E3E7C3DED375E43DF8669A51
 magnet:?xt=urn:btih:4A9021A07299AE8A760BCF97E4AF4CC0C1404ED3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:4A9021A07299AE8A760BCF97E4AF4CC0C1404ED3
 ```bash
 magnet:?xt=urn:btih:7EF70FBFE0717D20BB1C1FE736D7C7971D271DFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:7EF70FBFE0717D20BB1C1FE736D7C7971D271DFB
 magnet:?xt=urn:btih:2F340B4AF33EF91087FEFFFC2F98BFFA866F9E6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:2F340B4AF33EF91087FEFFFC2F98BFFA866F9E6C
 ```bash
 magnet:?xt=urn:btih:8940A0351733278719B7569E6F2C0E99EEC49DA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:8940A0351733278719B7569E6F2C0E99EEC49DA1
 magnet:?xt=urn:btih:43D71E22121FF3E3DF85A8F2446FFBFF5A4D4D60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:43D71E22121FF3E3DF85A8F2446FFBFF5A4D4D60
 magnet:?xt=urn:btih:983012B8CAA70B8B75877A1B29ED22E4556426D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:983012B8CAA70B8B75877A1B29ED22E4556426D1
 ```bash
 magnet:?xt=urn:btih:531AAAE1E72CAA1188F66D839D5CB21CD39A2F5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:531AAAE1E72CAA1188F66D839D5CB21CD39A2F5A
 magnet:?xt=urn:btih:092CE7C9B6022462BD76E8885CF5F41FA5878126
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:092CE7C9B6022462BD76E8885CF5F41FA5878126
 ```bash
 magnet:?xt=urn:btih:8F8F87AB25B8CB12F80ABB4A549836B33A2A9D6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:8F8F87AB25B8CB12F80ABB4A549836B33A2A9D6E
 magnet:?xt=urn:btih:EB9E850D43DE45FAD866215F8BB4F282D73B6D52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:EB9E850D43DE45FAD866215F8BB4F282D73B6D52
 ```bash
 magnet:?xt=urn:btih:137764AC6EB93E700C36AAD2AD0A77450C302AB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:137764AC6EB93E700C36AAD2AD0A77450C302AB7
 magnet:?xt=urn:btih:5A34B458404CAD8EAB8285CEB5FB89696035B112
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:5A34B458404CAD8EAB8285CEB5FB89696035B112
 ```bash
 magnet:?xt=urn:btih:B999071A6D36FFF6E521C9703B82BA578233C0BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:B999071A6D36FFF6E521C9703B82BA578233C0BF
 magnet:?xt=urn:btih:BF464DF50E576B7C4A7EB55F367033AE74FA0322
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:BF464DF50E576B7C4A7EB55F367033AE74FA0322
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:BF464DF50E576B7C4A7EB55F367033AE74FA0322
 ```bash
 magnet:?xt=urn:btih:28B8CB86A6C60A00013C8A6F95DF7B919FD7EB32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:28B8CB86A6C60A00013C8A6F95DF7B919FD7EB32
 magnet:?xt=urn:btih:C78AC8ECFF2A01113B288C61DB310E25DC2AA836
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:C78AC8ECFF2A01113B288C61DB310E25DC2AA836
 magnet:?xt=urn:btih:5CFF8DA506504F879656371A4163BC9A552AA4BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +600,8 @@ magnet:?xt=urn:btih:5CFF8DA506504F879656371A4163BC9A552AA4BD
 ```bash
 magnet:?xt=urn:btih:ABF71BB25C526F7E0D0C48CA6879DC6B85ACF6A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +627,8 @@ magnet:?xt=urn:btih:ABF71BB25C526F7E0D0C48CA6879DC6B85ACF6A2
 magnet:?xt=urn:btih:36EEF360FFC4D3805D07B324665417E372D8F814
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:36EEF360FFC4D3805D07B324665417E372D8F814
 ```bash
 magnet:?xt=urn:btih:DC6A3A127437CDD65966ACD46AA816729191680B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,29 +679,7 @@ magnet:?xt=urn:btih:DC6A3A127437CDD65966ACD46AA816729191680B
 magnet:?xt=urn:btih:0CBADB183FB8751D0E7FB7600DF1107F7C146EB8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566593   (482346) от 29.07.2022
-
-Альфред Бестер | Выбор (2022) [MP3, Puffin Cafe]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482346.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Эта история — предупреждение пустым фантазерам, подобным вам, мне или Адьеру. Сквозь дымку лет все времена, кроме нашего, кажутся золотыми и величественными. Мы жаждем будущего, мы томимся по прошлому и не осознаем, что выбора нет… что день сегодняшний — плохой или хороший, горький, тяжелый или приятный, спокойный или тревожный — единственный день для нас." (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 00:23:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54176D8779F7DE03661779165B6F432C9E584A32
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Star Trek: Infinite (2023) [Ru/Multi] (1.0.0.256/dlc) Scene Rune [Deluxe Edition
 magnet:?xt=urn:btih:DBC7DA5EC826276C9C597F149D200064201140C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Phoenix Point (2020) [Ru/Multi] (1.9.3/dlc) Repack xatab [Year One Edition]
 ```bash
 magnet:?xt=urn:btih:7AFCDCED633D5AEF1BE22C2DDC8012E705E7EA2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Dune Spice Wars – стратегический игровой проект, г
 magnet:?xt=urn:btih:9ABC01549593C197DC35B61177DE5713C7CE6098
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Dune: Spice Wars (2023) [Ru/Multi] (1.0.0.28038) Repack Other s
 ```bash
 magnet:?xt=urn:btih:27E3142FC2DB85914DCCDB9D2EB986F15059B72C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Miasma Chronicles (2023) [Ru/Multi] (1.1.1729.42704) Repack Other s
 magnet:?xt=urn:btih:6C2C505F48768E54BD67D318AC61706DF09BB00F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Adeptus Titanicus: Dominus – пошаговая тактическая стр�
 ```bash
 magnet:?xt=urn:btih:E5D38FF0FB7A6704C7575308B36443A705CC745A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Miasma Chronicles (2023) [Ru/Multi] (11294956) Repack DjDI
 magnet:?xt=urn:btih:75389AB34E04718D33DA849ECF22B0AA1A023323
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ TROUBLESHOOTER: Abandoned Children — это первый сезон пошаг
 ```bash
 magnet:?xt=urn:btih:58144E7313C0E9B178A172E4F3E4D7C54701CC21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Tahira: Echoes of the Astral Empire – это эпизодическая стр
 magnet:?xt=urn:btih:6BDF44D431351D2B5E31309387342C1BD5BA4429
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Showgunners - пошаговая стратегия, сюжет которой �
 ```bash
 magnet:?xt=urn:btih:D1F26D137BCD31416CECA7DE612DCD37F33211EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Riftbreaker™ – это игра на выживание и построй
 magnet:?xt=urn:btih:5C1C74086FDE36B5D23270525EA3AA4CA2379E81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ The Banner Saga (2014) [Ru/Multi] (2.60.02) License GOG
 ```bash
 magnet:?xt=urn:btih:1DE937C6D3ED595A0B96A5D6128E852E804E6BDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Combat Mission Cold War – варгейм, события которого ра
 magnet:?xt=urn:btih:2175B22901E850B3E63236C524604EDF7D6A3994
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.0.11/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:5937EE4ED5F070F3C331ACA099B8E8FF4DD42B59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Star Renegades (2020) [Ru/Multi] (1.4.2) License GOG [Deluxe Edition]
 magnet:?xt=urn:btih:F68C2B3A89D5A5C62240AA4B9AD8CB259B9B5FD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Legends of Eisenwald / Легенды Эйзенвальда (2015) [Ru/Multi] (
 ```bash
 magnet:?xt=urn:btih:68C387FE942D442684ABDA671F2632AD84F964D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Mutant Year Zero: Road to Eden — то, что нужно, чтобы удов�
 magnet:?xt=urn:btih:A0C5E0AF64EF954B4FC9BA7A7D2647B625A6FAB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Warpips - стратегия в реальном времени с элемен�
 ```bash
 magnet:?xt=urn:btih:23EBCF21EAFDCD637B09C40D43BB2F140CF1ECBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Warhammer 40,000: Dawn of War II (2010-2011) [Ru/En] (2.6.0.62/3.19.1.49/dlc) Li
 magnet:?xt=urn:btih:2DA60623764CB1C6014D4009CE52950DECE95E6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Showgunners - пошаговая стратегия, сюжет которой �
 magnet:?xt=urn:btih:2DA3FA9BFE759DA080597C78D024090EB451FB9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +538,8 @@ Myths and Legends - торговая стратегия в реальном вр
 ```bash
 magnet:?xt=urn:btih:BB7F0D34090D7E4A42D12D13D984F34EFD5677EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ Warhammer 40,000: Dawn of War II - Retribution - второе отдельное
 magnet:?xt=urn:btih:A18B1D0DF9E9CBF44018EE26CAAA313370F73DAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ Warhammer® 40,000®: Dawn of War II® - Retribution™ - второе отде�
 ```bash
 magnet:?xt=urn:btih:5121FE886BE4CB01D985D50AE330F03550EBA8D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ Age of Wonders 4 (2023) [Ru/Multi] (1.002.003.77876/dlc) Repack DjDI [Premium Ed
 magnet:?xt=urn:btih:D89CE23BE256ACB2A0F1F98E391ACBB11090A714
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Assault Squad 2: Men of War Origins, современное переиздани
 magnet:?xt=urn:btih:46D03B6CFED18D78D11C09E434EA49F16505F8E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Songs of Conquest (2024) [Ru/Multi] (1.7.3/dlc) Repack Necros [Complete]
 ```bash
 magnet:?xt=urn:btih:7F403CD3B8918EAD98010233A21955E46BC9BB2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ EchoVerse - Whispers Between Worlds (2024) [FLAC|Lossless|WEB-DL|tracks] <Progre
 magnet:?xt=urn:btih:842BCF3B0A76AE9C348F59A07BC0807A2BF023A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:842BCF3B0A76AE9C348F59A07BC0807A2BF023A6
 ```bash
 magnet:?xt=urn:btih:211344D7E9CACC6552422A5B684AA6F984F56020
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ TaTa Golosa (Romina Contiero) - Busca Busca (+ Micromania 2014) (2014) [FLAC|Los
 magnet:?xt=urn:btih:F91F17797995749E77E18CA9AD3428397958642F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Revolution Renaissance — пауэр-метал группа, основанн�
 ```bash
 magnet:?xt=urn:btih:B89BBE53737A60FB92DE5BCAFD2DE45BACAB6C95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Hereafter - All Is As It Should Be (2024) [FLAC|Lossless|WEB-DL|tracks] <Instrum
 magnet:?xt=urn:btih:CAD0F66F2477CB6068AE12DE7E4806784F7515AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ Gerry Mulligan - The Gerry Mulligan Quartets In Concert (1957, 1962) 2001, Unive
 magnet:?xt=urn:btih:5A476A8E2A17DD788C076D89C028D04FD7802557
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +189,8 @@ Windows 11 - это серия операционных систем, разра
 ```bash
 magnet:?xt=urn:btih:D7C90245B39746E318DC3590D664769754635B5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ magnet:?xt=urn:btih:D7C90245B39746E318DC3590D664769754635B5F
 magnet:?xt=urn:btih:06284C05147C797769488B36D29BE56EF0708093
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:06284C05147C797769488B36D29BE56EF0708093
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ magnet:?xt=urn:btih:06284C05147C797769488B36D29BE56EF0708093
 magnet:?xt=urn:btih:768A07C5F66442E3FA097FE1654056195D253DE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:768A07C5F66442E3FA097FE1654056195D253DE9
 ```bash
 magnet:?xt=urn:btih:6BEABA20874CDFED9CBBC367589CCC801EB69AF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ magnet:?xt=urn:btih:6BEABA20874CDFED9CBBC367589CCC801EB69AF4
 magnet:?xt=urn:btih:3F34B5697492D12ADA6624435331B1851EE19948
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ magnet:?xt=urn:btih:3F34B5697492D12ADA6624435331B1851EE19948
 ```bash
 magnet:?xt=urn:btih:9B1ECB47176685797DF37DD0F5CE427EF04155C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:9B1ECB47176685797DF37DD0F5CE427EF04155C7
 magnet:?xt=urn:btih:D13FADD0A8CF1D4E95F8A00C9C91C11FF800FEB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ Vampire Dormitory | Общежитие вампиров [2024, TV, 12 эп.] WEB
 magnet:?xt=urn:btih:58726D3F27C801004E7A997668AA5B34A5CEE157
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:58726D3F27C801004E7A997668AA5B34A5CEE157
 ```bash
 magnet:?xt=urn:btih:B700E2BE1D18BDE21FA17A65408E56210CE0EAFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +456,8 @@ Dark the Suns — коллектив из Финляндии исполняет,
 magnet:?xt=urn:btih:EA7B138A5659D759D9EB59F1B4277CF4B60CCB6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:EA7B138A5659D759D9EB59F1B4277CF4B60CCB6F
 ```bash
 magnet:?xt=urn:btih:4CA7C60193784A9217C1CA14A2955DC674221AEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:4CA7C60193784A9217C1CA14A2955DC674221AEA
 magnet:?xt=urn:btih:91B7B4A284B3B115B8BAD990340AD30E288A98DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:91B7B4A284B3B115B8BAD990340AD30E288A98DD
 ```bash
 magnet:?xt=urn:btih:65D6EDDC29034EB2C238622C4400BF959155C91F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ magnet:?xt=urn:btih:65D6EDDC29034EB2C238622C4400BF959155C91F
 magnet:?xt=urn:btih:39B6FC6A39C3598299588B514ED51C65F1F80F54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ magnet:?xt=urn:btih:39B6FC6A39C3598299588B514ED51C65F1F80F54
 ```bash
 magnet:?xt=urn:btih:F858F394263D53BBCCDF9A3072E900F4AC1D865E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +612,8 @@ Dogs D'Amour - Greatest Hits (2017) [MP3|320 Kbps] <Hard Rock, Glam Rock>
 magnet:?xt=urn:btih:1B7ABF17DAC62B9473E1ED61DE259AF503509C45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ magnet:?xt=urn:btih:1B7ABF17DAC62B9473E1ED61DE259AF503509C45
 magnet:?xt=urn:btih:1C9AAF8D0F4D96F1A8F5FCA6F5603C37DAC0A7BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +663,8 @@ magnet:?xt=urn:btih:1C9AAF8D0F4D96F1A8F5FCA6F5603C37DAC0A7BF
 ```bash
 magnet:?xt=urn:btih:954EE21DBCC2B470C328BB00E1914F23B03B9880
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +692,8 @@ Exit Eden - Femmes Fatales (2024) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:AB883D2B58A4C89DAD3D507EAAEEA20D0215B383
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

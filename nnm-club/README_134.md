@@ -19,6 +19,8 @@ Tunguska: The Visitation (2021) [Ru/Multi] (1.94-5/dlc) Repack Let'sРlay [Enhan
 magnet:?xt=urn:btih:02A1F0E86CB81E74286CD842A33064D4BE542668
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ X4: Foundations - последняя игра популярной серии X 
 ```bash
 magnet:?xt=urn:btih:8995FD59FDC0E55628F287405933ED5AC474C402
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Factorio - это игра о создании автоматизированн�
 magnet:?xt=urn:btih:8086D526174F84A2126A0B0DBE4EB7319B8D40C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:8086D526174F84A2126A0B0DBE4EB7319B8D40C3
 ```bash
 magnet:?xt=urn:btih:4B6AADDF71E1C07D9E70F20B3C7C9DCE19F5796D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Tyrant's Realm (2025) [Ru/Multi] (Build 19545604) Repack Let'sРlay
 magnet:?xt=urn:btih:43A3D49B83472245FE6C9E7A57CAA1397B622055
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:43A3D49B83472245FE6C9E7A57CAA1397B622055
 ```bash
 magnet:?xt=urn:btih:332159778D3330FF610BCECCCF68FD708A309BCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:332159778D3330FF610BCECCCF68FD708A309BCF
 ```bash
 magnet:?xt=urn:btih:73417817A0B9B0B06C03B888C225B5CE7656874B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ ru-ru_windows_11_enterprise_ltsc_2024_x64_dvd_f9af5773
 magnet:?xt=urn:btih:D12551F90DD973048533A9DC59B4E000B49997A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7
 magnet:?xt=urn:btih:5BAD9D5936E3287872F71A4D4AC4D8D5B83C9F48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Metal Eden – научно-фантастический адреналинов�
 ```bash
 magnet:?xt=urn:btih:7281EE50F1283253E03C668CAE5673A28113B3FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:7281EE50F1283253E03C668CAE5673A28113B3FC
 magnet:?xt=urn:btih:42F7AC019645CC740E105B1EB359ECDD8AB75F83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:42F7AC019645CC740E105B1EB359ECDD8AB75F83
 ```bash
 magnet:?xt=urn:btih:1503B0DB76D373E9CA680ADE8EA735396C6C1344
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:1503B0DB76D373E9CA680ADE8EA735396C6C1344
 magnet:?xt=urn:btih:5400C2A938F82B6F530CA762AB2E9ECB7831CC0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ Nordic Ashes: Survivors of Ragnarok – динамическое приключ�
 magnet:?xt=urn:btih:4EAE8987B7D0C2FDB752EF86EE4BA6E1B1CFE8A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:4EAE8987B7D0C2FDB752EF86EE4BA6E1B1CFE8A4
 ```bash
 magnet:?xt=urn:btih:EED3084FA746F915242518AD9A2E21D7AA48F2B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ Skyharbor - рок-группа из Индии, образованная в 200
 magnet:?xt=urn:btih:0474B38978AAD1728E56BA52E6D21D1EBE9AC7E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ Marchise — это семейство современных шрифтов с 
 ```bash
 magnet:?xt=urn:btih:46F02489398DE7311D721CE191AE8A1D3F2E17D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:46F02489398DE7311D721CE191AE8A1D3F2E17D8
 magnet:?xt=urn:btih:06620EFE275679A6826171C2A114CAAFAD487886
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ A4 Desperate Surrender (Amor Moriendo)(   Читать дальше...   )Жан
 ```bash
 magnet:?xt=urn:btih:2390F97368F5172C30DA62BCD1184C81EFAD8553
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +533,8 @@ Bleeding Through - Nine (2025) [FLAC|Lossless|image + .cue] <Metalcore, Heavy Me
 magnet:?xt=urn:btih:20A0DC8CA710AD3ECE50AFA13B514ACB4B775258
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ Riffstone - Richard III (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 magnet:?xt=urn:btih:5C37076CA07102E9111EEB2DE6A3E0EC673D3009
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +587,8 @@ magnet:?xt=urn:btih:5C37076CA07102E9111EEB2DE6A3E0EC673D3009
 ```bash
 magnet:?xt=urn:btih:E2AEE771627A186F5CFFDE61638ED166597A5E8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:E2AEE771627A186F5CFFDE61638ED166597A5E8B
 ```bash
 magnet:?xt=urn:btih:70FA08212308F03A515982A2E6314EEC2EE97930
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +643,8 @@ Soul Central ft. Abigail Bailey - Time After Time (2007) [FLAC|Lossless|tracks] 
 magnet:?xt=urn:btih:923C1B8099F5CCD45A9ECE8A696DA32B5255A728
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +669,8 @@ magnet:?xt=urn:btih:923C1B8099F5CCD45A9ECE8A696DA32B5255A728
 magnet:?xt=urn:btih:6781EA7EB0E487CEEE6E4E1FC9D6D39E463FC1D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ magnet:?xt=urn:btih:6781EA7EB0E487CEEE6E4E1FC9D6D39E463FC1D5
 ```bash
 magnet:?xt=urn:btih:D3442C6C5D7C13D4AA9EB455669D9EF5E5322EDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

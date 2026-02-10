@@ -22,6 +22,8 @@ Newfangled Audio - Recirculate 1.1.2 VST, VST 3, AAX (x64) RePack by R2R [En]
 magnet:?xt=urn:btih:C53ED21EC0F4E5EE6EA03D0CAF0C2D00D8D0C016
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Eventide - Ensemble Bundle 2.18.0 VST, VST 3, AAX (x64) RePack by R2R [En]
 ```bash
 magnet:?xt=urn:btih:24A77786157E08F97EEEACC59A6BE898562D3ED6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ ILLUSION - это уникальный lдилей плагин, который 
 magnet:?xt=urn:btih:9DA4DD25801329697AF39B29DEF78A8EA311FB8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ TAL-Pha — инструментальный плагин, имитирующи�
 magnet:?xt=urn:btih:23CE95B731FCF1B810A6E2630F7EFBAB0E29915A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ TAL-Dub-X — это ремейк нашего популярного ориги
 ```bash
 magnet:?xt=urn:btih:519A17D284A96F3011226001BF3A2783A395D384
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ GForce - impOSCar 3 1.0.0 STANDALONE, VSTi, VSTi 3, AAX (x64) RePack by TCD [En]
 magnet:?xt=urn:btih:74CFC4C88C88DA50BCD4C07578ADFB19A06AE123
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ Knif Audio & Plugin Alliance - Soma 1.3.1 VST, VST 3, AAX (x64) RePack by TCD [E
 magnet:?xt=urn:btih:753EE70BC40D35F0F577D6D642307A87C7ABC0D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ Other Desert Cities — это мастерская для творчества.
 ```bash
 magnet:?xt=urn:btih:D7AFE167D52297B805522C0C37580080841EE2A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ Thorn - это программный синтезатор, прост в исп
 magnet:?xt=urn:btih:F67CCACBD4F9361461839D2392E2B91E891AEEAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Plugin Alliance - Brainworx Bx_glue 1.0.0 VST, VST 3, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:CB0B42A89740308A4B08D1ED4D87D6C368A6B4D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ Replicant 3 предлагает широкий (   Читать дальше..
 magnet:?xt=urn:btih:812992CE67CFBDA5C36ADE85E2A02F3A49965E7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ Futurephonic - Rhythmizer Ultra 1.1.0 CLAP, VSTi 3 (x64) RePack by TCD [En]
 magnet:?xt=urn:btih:87A0D49A1A1AAE346E4ABA205799CC0E291475E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ Tracktion Software & Dawesome - Novum 1.17 VSTi 3 (x64) RePack by TCD + Content 
 ```bash
 magnet:?xt=urn:btih:7F0C8C4D8B5F1318B85C18EDDDF06903B0A45FA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ HYPE воплощает в себе высококачественное обо�
 magnet:?xt=urn:btih:E1CDCC0B1DE7F29924C8C2134AA7B5CA3AC7D454
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ FigrCollage -  программа для создания удивительны
 ```bash
 magnet:?xt=urn:btih:5F9703D23BB79D12592DA350E3073653233A6C95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ CameraBag Pro позволяет мгновенно применить одну 
 magnet:?xt=urn:btih:1637094AEAFA97279F460D8387BD842BCEF5EE36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ PSP stompDelay — это креативный дилей плагин, разр
 ```bash
 magnet:?xt=urn:btih:BFE393BF2173A0B6D03CE8D78B4EA6C70674DA05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ W.A. Production - Instachord 2 2.0.6.240204 VSTi, VSTi 3, AAX (x86/x64) RePack b
 ```bash
 magnet:?xt=urn:btih:64AFA4A1116D319B20EC23D9661BC511B8E143B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ PhotoResizerOK - это инструмент, позволяющий быстр�
 magnet:?xt=urn:btih:53440D8B2A1BD047ECE7C94F8D004F4A2CC0AAC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ TAL-Pha — инструментальный плагин, имитирующи�
 ```bash
 magnet:?xt=urn:btih:ACD92F70798E3BBA9225C13B250DB74775C6FFDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +555,8 @@ TONSTURM - DopplerPRO 1.1.0 VST, VST 3, AAX (x64) RePack by R2R [En]
 magnet:?xt=urn:btih:A32807789A93C1AC98A9F8B0D2A84AF796323C8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ BA-1 - это синтезатор аналогового моделирован
 magnet:?xt=urn:btih:7B758F59434DC9C99D21F781EB9418E1C81EA9F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ Effectrix2 — это новейшая и лучшая версия нашего
 ```bash
 magnet:?xt=urn:btih:13F07B73D1880DBDC5C0B0A7626B12139458D5F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +634,8 @@ mp3Tag Pro - мощный органайзер музыки и редактор 
 magnet:?xt=urn:btih:DF04C075EF95F190C4CEF996632A25E4AAF25877
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ Pixologic ZBrush - программа для трёхмерного модели
 magnet:?xt=urn:btih:FC755D192808E90612E82204F0729B12B35CC74F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ Photo Mechanic - фотобраузер и фоторедактор операт
 ```bash
 magnet:?xt=urn:btih:406A23AF0F2542657B08583DBF2AD92E66A6631F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

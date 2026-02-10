@@ -19,6 +19,8 @@ FSNotes - это менеджер текстовых заметок для macOS
 magnet:?xt=urn:btih:CBFD2E0C5D1BDB19E06EE03084B2DD7A0078736F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:47998380D851D4D764C6772A9EA16CB94F0864F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 magnet:?xt=urn:btih:86280B76C85A444B48AFD2366CB128B7EF1841FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ PC HelpSoft Driver Updater автоматически сканирует раз�
 ```bash
 magnet:?xt=urn:btih:619BE85198AA5B047BFB9E1713692D886B7AB4C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 magnet:?xt=urn:btih:F1C23D41390884395667C9C0594496130A9A704E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Texifier — это редактор LaTeX, предназначенный дл�
 magnet:?xt=urn:btih:48C8C670395184ED220CF68CF4316F8FEE16823B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ vpnify: лучший БЕСПЛАТНЫЙ, БЕЗЛИМИТНЫЙ и высок�
 ```bash
 magnet:?xt=urn:btih:57033D7E90DAD040B930CB11B7E87EB100D9C071
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Recuva - небольшая, но весьма эффективная утили
 magnet:?xt=urn:btih:CB40089149D00DE49C68588174CDB78395ADC662
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Macrorit Disk Scanner Unlimited - инструмент для проверки �
 ```bash
 magnet:?xt=urn:btih:EFD995CE27EE50665E3CFDEDDFEA573F5C79F7AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 magnet:?xt=urn:btih:7782AC3AC739FB15179188A1D67FF6F344A5568F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ PullTube 1.8.5.4 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C66DA8F585FDEF2C0851123BAE50553B00C04551
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:C66DA8F585FDEF2C0851123BAE50553B00C04551
 magnet:?xt=urn:btih:53CA294441871379BDF8EDA96A3CC1FA12FEDB99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Macrorit Data Wiper – мощная утилита, которая поможе
 magnet:?xt=urn:btih:CE0018BBF8ADEBA3313F9D8732C04FC66D3D942B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ YT Saver Video Downloader & Converter for Mac 6.9.9 [Multi]
 ```bash
 magnet:?xt=urn:btih:84B1F9BE909B212B3095664A9F54F5F9E612701F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Blocs - простой способ создания красивых сайто
 magnet:?xt=urn:btih:C75B663A1FFA4AE6B1998B13202B477BA7DBC988
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Privatus - это простое приложение для удаления н
 ```bash
 magnet:?xt=urn:btih:256638E05C4B71AFEDA6392C96C1708579821A68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ DaVinci Resolve — единственное в мире решение для �
 magnet:?xt=urn:btih:41E94787219C1BDB4F0DA0359F8F1FE8AD3ACDF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Wise Disk Cleaner 11.0.3.817 RePack (& portable) by Dodakaedr [Multi/Ru]
 magnet:?xt=urn:btih:E9BDB84A5D48B930D693CE0DDE71176F7600F622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ EdgeView 3 - это новейший просмотрщик изображени
 ```bash
 magnet:?xt=urn:btih:40A3DF1D1217FD71F909AC43057BA8EA9D13206C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ URL Manager Pro X - менеджер закладок для Safari, OmniWeb, Mo
 magnet:?xt=urn:btih:C12194C14791DECBCA5433B8841C12CA1E53C585
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ NCH MixPad Masters 10.34 [En]
 ```bash
 magnet:?xt=urn:btih:C53C24187E2C79297C10A0ED2BB467FA856A37C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ Dropshare - приложение строки меню для Drag & Drop заг
 magnet:?xt=urn:btih:10BA3A5BFE7FAC11E1A8893B3B67D42E606E3D63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:10BA3A5BFE7FAC11E1A8893B3B67D42E606E3D63
 ```bash
 magnet:?xt=urn:btih:94256A0B0AA84B248747031A5191CAFDB803F855
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ ImageRanger - программа позволит найти все нужные
 magnet:?xt=urn:btih:9D85F1EC865AFD137E182658CEADA17A773A94ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ Windows 11 Pro x64 21Н2 (build 22000.708) by ivandubskoj 29.05.2022 [Ru]
 magnet:?xt=urn:btih:ED222CEE7B304EAAEDD986B7554598D05981E45B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 ```bash
 magnet:?xt=urn:btih:7EF3CFE00BBFB42315EACDFDFA1B97759C38633A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

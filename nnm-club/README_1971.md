@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:C311E485F14C64F2B0056FFA52A821B09C5FE4AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ VA - compilation part 90 Eurodisco (2024) [MP3|320 Kbps] <Dance, Eurodisco>
 magnet:?xt=urn:btih:40257EB76390D3F635F975186CAA751A89CC53DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ Part 1 (Discoteka):
 magnet:?xt=urn:btih:D187E67208BD470E5693C7C2B523DD5C43E65F4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:D187E67208BD470E5693C7C2B523DD5C43E65F4F
 magnet:?xt=urn:btih:A16A25FDA4C098C406DE4E2FBE078DC33022F42A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:A16A25FDA4C098C406DE4E2FBE078DC33022F42A
 ```bash
 magnet:?xt=urn:btih:3447E467006413C1F9E736CFD530D0A0619BE3F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:3447E467006413C1F9E736CFD530D0A0619BE3F4
 magnet:?xt=urn:btih:722B76C522C8E14849D5A0E27B52C8F6923B6C24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:722B76C522C8E14849D5A0E27B52C8F6923B6C24
 ```bash
 magnet:?xt=urn:btih:6CCE4036E2C0F636E922AC4EAAF03CCB36AC3D5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ Resident Evil 6 / Biohazard 6 (2013) [Ru/En] (1.1.0/dlc) Repack Decepticon
 magnet:?xt=urn:btih:DBDDEBFA0114D85FF30D02307E4A523AAA6F05FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:DBDDEBFA0114D85FF30D02307E4A523AAA6F05FF
 magnet:?xt=urn:btih:1DF30029BA610E7B8196AFFF8876DE67ACB47A3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:1DF30029BA610E7B8196AFFF8876DE67ACB47A3A
 ```bash
 magnet:?xt=urn:btih:1CD7CF08FFD452352D01926EF463E8D10B178A1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:1CD7CF08FFD452352D01926EF463E8D10B178A1D
 magnet:?xt=urn:btih:D90584BFDC72CD0D323E5FD92956C1A52014161D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:D90584BFDC72CD0D323E5FD92956C1A52014161D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:D90584BFDC72CD0D323E5FD92956C1A52014161D
 magnet:?xt=urn:btih:9752AA910B47891DAC90C17055162A9005C88C6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:9752AA910B47891DAC90C17055162A9005C88C6A
 ```bash
 magnet:?xt=urn:btih:ED3928DC1F2AEB33F4FD3813A304F504B2E72378
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:ED3928DC1F2AEB33F4FD3813A304F504B2E72378
 magnet:?xt=urn:btih:72AC99D95430C3466B24A9A5484BFF3810310DEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:72AC99D95430C3466B24A9A5484BFF3810310DEC
 ```bash
 magnet:?xt=urn:btih:409EC9948B3B0ACF33C12961337F35A0BB2E0363
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ VA - Лето на Love Radio (2024) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:312CF619304D16F52A70D5BF615388CA83F35288
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ magnet:?xt=urn:btih:312CF619304D16F52A70D5BF615388CA83F35288
 ```bash
 magnet:?xt=urn:btih:34D42B0F602A8EBDAB395EAF966F76BBB655B06F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ magnet:?xt=urn:btih:34D42B0F602A8EBDAB395EAF966F76BBB655B06F
 magnet:?xt=urn:btih:73E4A21A1CEE023FA8061BF001EB89A3D01F8D57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ My Museum Prologue: Treasure Hunter понравится всем любител
 magnet:?xt=urn:btih:1C3699B25B3BEC510B705815AAAFC89EE0DE20D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:1C3699B25B3BEC510B705815AAAFC89EE0DE20D3
 ```bash
 magnet:?xt=urn:btih:D6BBA6757B40E40D7BCB11A3C3E3397FF3301C72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ magnet:?xt=urn:btih:D6BBA6757B40E40D7BCB11A3C3E3397FF3301C72
 magnet:?xt=urn:btih:1763403E0FE42887DADF7FE5ABE220DFC6F08A2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:B5A8347133ACBAB95057E43DB840253E281A7F4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:B5A8347133ACBAB95057E43DB840253E281A7F4B
 magnet:?xt=urn:btih:7CBA0012519F9CF36C9BB1FAB9E72E1402A21CF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ Crackdown 3 (2019) [Multi] (1.0.2918.2) Scene CODEX
 ```bash
 magnet:?xt=urn:btih:E31E691D71BDD568EFCA0A129C39B3144BA4CD3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

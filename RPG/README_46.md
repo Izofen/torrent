@@ -19,6 +19,8 @@ Tales of Vogar - Lost Descendants - это созданная на базе RPG 
 magnet:?xt=urn:btih:1BC1B15D837DE8EBFA698C2E4B26EA600B80F069
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Hand of Doom (2023) [En] (1.0.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:015EB2B6AE8C0C4E1B5B01CE9B473947C3D009B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Mask of the Rose - это увлекательная визуальная нов
 magnet:?xt=urn:btih:59200F4FE0C287E614CC4CA7C56EB61F45D7B4A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Loop8: Summer of Gods (2023) [Multi] (1.0.2/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:883BFB08D4D915AD37C7E2F3B74BCE259450D6B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Bastard Bonds - это тактическая ролевая игра с пер�
 magnet:?xt=urn:btih:ADD1C47E1CB4ABD7DFAF3AE5F323FF0913739783
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Legend of Radiance - это хардкорный ролевой экшен, гд
 ```bash
 magnet:?xt=urn:btih:6DCB97A238F3AA51823152E390757150F2EFEB03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Veil of Darkness (1993) [En] (1.0) License GOG
 magnet:?xt=urn:btih:A36368CF453A5C4FADF10A436547AB14C9494F3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ An Elder Scrolls Legend: Battlespire (1997) [En] (1.5) License GOG
 ```bash
 magnet:?xt=urn:btih:5BC7F1592FA46A071F0523C6A78DC4E377C1D6D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Fuga: Melodies of Steel 2 переносит в разрушенный войн�
 magnet:?xt=urn:btih:AF66E945CBBDC6AF1279BF16204C35ACDBD0B04F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Gone Rogue можно назвать иммерсивным симуляторо
 ```bash
 magnet:?xt=urn:btih:A8DE8A8A2195BEC16963C754B4838C51FD8B6C5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Edelweiss - это JRPG в жанре ужасов, которая отправ�
 magnet:?xt=urn:btih:067CF981007A18BBB2DE552E31C4CC964FD011F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Saga of Sins - это атмосферный ролевой экшен в мра
 ```bash
 magnet:?xt=urn:btih:473AAD8B73C7ED48D2B921223BAD4BD9512ED2CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Cursed Mansion - это леденящий душу ролевой хоррор,
 magnet:?xt=urn:btih:E58B14142773CB0DE9874D90D82F3B0A4B107BC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ ArcaniA: Fall of Setarrif (2011) [Multi] (1.1499.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:EC988B8557F22ED3DF065F009BA70E0283D30E81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ DeathKeep (1995) [En] (3.3) License GOG
 magnet:?xt=urn:btih:C16751F277FB86D6EA77B1B147966DD25B23AB49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ SuccuSeka: Resist Succubus Temptation - игра от компании Wakaba Sy
 ```bash
 magnet:?xt=urn:btih:CC260492F8A99FF0E72EF7AD7C8A6EE05E5DD95A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Phantom Brigade - это гибридная тактическая ролева�
 magnet:?xt=urn:btih:D65DC31A4ADC7E353B01E536EA2000928CABEEF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ magnet:?xt=urn:btih:D65DC31A4ADC7E353B01E536EA2000928CABEEF1
 ```bash
 magnet:?xt=urn:btih:7F03BAEC31C42E5051BDC29C2E41066AED665464
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Ghost of a Tale (2018) [Ru/Multi] (8.33a) License GOG
 magnet:?xt=urn:btih:B2A352CC92290C0DFBECB487125B0FD25C56E03B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Trine 5: A Clockwork Conspiracy (2023) [Ru/Multi] (1.0) Scene FairLight
 ```bash
 magnet:?xt=urn:btih:B39F44FEEC149486D5F8AD9103678E7A6A27F925
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Demise: Rise of the Ku'tan (2000) [En] (1.0r353) License
 magnet:?xt=urn:btih:9FDAFCA127D08961CC242AD65BCB0500184AF5EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ The Lord of the Rings: Gollum (2023) [Ru/Multi] (1.2.52488/dlc) License GOG [Pre
 ```bash
 magnet:?xt=urn:btih:730D63FD8120A46669D74B05CEDCE672A996EC7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Darkest Dungeon II — это путешествие в жанре рогали�
 magnet:?xt=urn:btih:EBDAB308FAB65CDBF3A3BBED8632C20734E8FCC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Queen's Wish: The Conqueror - ролевая игра, выполненная в
 ```bash
 magnet:?xt=urn:btih:9ED4950EC8F26C6B63B48FC6A0A32003B83AA51C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Primitive Hearts (2023) [Multi] (v1/dlc) License GOG [18+]
 magnet:?xt=urn:btih:B7B0BA3DD2E326CC0F23C0E6D17DB6BA82F04278
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Keep Driving (2025) [Ru/Multi] (1.3.1.0d) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:2A9DA71A609A63ECE3EACF655EE289E46EE1C228
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

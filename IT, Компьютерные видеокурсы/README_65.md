@@ -19,6 +19,8 @@ Spring Framework - очень востребованный и популярны
 magnet:?xt=urn:btih:0E982486AC731C1B6681D5D9FA9967C4B90E50B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Udemy, Stephen Ulibarri | Unreal Engine 5 C++ Multiplayer Shooter (2022) PCRec [
 magnet:?xt=urn:btih:2B0E99849DEDB10FF57C487A4DC0B48F2DED9437
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Foxford | Язык C++ (2016-2017) PCRec [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:518462645333D0D04E53E0FB3F885493E1A583B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:518462645333D0D04E53E0FB3F885493E1A583B3
 magnet:?xt=urn:btih:0A0294CF9FDFF4CF4BC842C45C964FC37ABF3E39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Udemy, YouRa Allakhverdov | Python разработка - с нуля до пр�
 ```bash
 magnet:?xt=urn:btih:7B52A612F68DC823F3D4E0D3E027D0467642DF4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:7B52A612F68DC823F3D4E0D3E027D0467642DF4D
 magnet:?xt=urn:btih:C4106C9A01ECDE5FFE881616FE5ED6340578AA84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:C4106C9A01ECDE5FFE881616FE5ED6340578AA84
 magnet:?xt=urn:btih:D83E12F092FACBFE66990A46D43CB61C35F8EFE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:D83E12F092FACBFE66990A46D43CB61C35F8EFE3
 magnet:?xt=urn:btih:82D5FC420B507A6BCD427D79ED43C004524ADC99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ Magento не прост для понимания, потому что явля�
 magnet:?xt=urn:btih:EE5C47AA964E35D0598BBDDED31DFCA60D0D2B35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ Geekbrains | SEO. Оптимизация и продвижение сайтов 
 ```bash
 magnet:?xt=urn:btih:C39FF07CE8440E6F2A2945EC67AADDD96D22F6CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ Reflection API. java.lang.Class. Аннотации.
 magnet:?xt=urn:btih:59DEDAC03194FEC20F6E4229056DB500A3AE3DE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ JavaBegin | Android (2016) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:12BD7BF70B5837D67E5389BCA219D83FE4B79A6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ wpa.at.ua | Проверь свою WI-FI сеть на устойчивость
 magnet:?xt=urn:btih:C42DDDF805E87D054BA34D442B09A3781454E4DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ SMM-менеджер отвечает за связь компании с ауд
 magnet:?xt=urn:btih:F0A8E7E2BC8AA467C59B918E4F6A78A79785D59D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ JavaBegin | iOS и Swift (2017-2018) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:F8B350D5005B50FBE43414FDEDA738FE05648E5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ RollBack Rx - это Машина Времени для вашего много�
 magnet:?xt=urn:btih:B7A8CF451044BB2326E907F7380234331B31A145
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ Oleg Lav | Восстановление системы при загрузке �
 ```bash
 magnet:?xt=urn:btih:71EBD939135D70D046E9E8297315E7C2977EA540
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +482,8 @@ Thinknetica | Ruby on Rails c нуля (2015) PCRec
 magnet:?xt=urn:btih:02B77D5E80A5446F85CDF9FC35656A4C83C20E80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:02B77D5E80A5446F85CDF9FC35656A4C83C20E80
 magnet:?xt=urn:btih:75CEC93137D17C27A3532C691FFCDE833D87CF97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ Oleg Lav | Создание UEFI флешки на основе WINPE с Acronis
 ```bash
 magnet:?xt=urn:btih:22C22D63DA965F01ED2C540101BA0DA7237A17DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +561,8 @@ Udemy.com | Hacking School & IT Security Academy | Практический вз
 magnet:?xt=urn:btih:2332C7110F768FED8C940A751E46571752617B6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ Oleg Lav | Создание образа системы — Acronis True Image (
 ```bash
 magnet:?xt=urn:btih:23112180E9F84D14A08254C76E4AF5F4C24C391A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +613,8 @@ magnet:?xt=urn:btih:23112180E9F84D14A08254C76E4AF5F4C24C391A
 magnet:?xt=urn:btih:1EFCAFEEFE5FFA658640AEC4970CFA67F337831B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ ProfiT | JavaScript с самого начала (2016) WEBRip
 ```bash
 magnet:?xt=urn:btih:6A2B99D54FD35699D2AAB20302C37D66103FE0EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ Geekbrains | YII2 framework. Профессиональная разработк
 magnet:?xt=urn:btih:440338730DCD196623F787536682427866EFDD64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ Udemy.com | Infinite Skills | Написание безопасного PHP-ко
 ```bash
 magnet:?xt=urn:btih:598FC984774841961C14843B049F391E32FD33FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

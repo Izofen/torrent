@@ -20,6 +20,8 @@ RFast Slideshow Opener - легкий, динамичный проект для 
 magnet:?xt=urn:btih:AAF7133F6F3BF6FE2B7C92EC3B8D4DC0663278B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Book Of Memories - проект который поможет создать с�
 magnet:?xt=urn:btih:495838A582FEC53A40312752BECF9C6696630542
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:495838A582FEC53A40312752BECF9C6696630542
 ```bash
 magnet:?xt=urn:btih:805193CFF1D34AD70720938171595EDE4F4660D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:805193CFF1D34AD70720938171595EDE4F4660D8
 magnet:?xt=urn:btih:D8DD167F08106F42D0A099B7D84AB87D87AD7688
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:D8DD167F08106F42D0A099B7D84AB87D87AD7688
 ```bash
 magnet:?xt=urn:btih:2799A13C267D017807E31F5A043B39C7EA13629E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:2799A13C267D017807E31F5A043B39C7EA13629E
 magnet:?xt=urn:btih:57CD54BA4B1EB2A7F4B8D4D66E2E179CC57AA248
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Party Music Event - проект для презентации музыкаль�
 ```bash
 magnet:?xt=urn:btih:CBCBE7D34E3AB9AEDA3D8EDA26D96457390733AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Awards Ceremony Package - создайте свою церемонию нагр�
 magnet:?xt=urn:btih:B3977EFBCCFF299426A1858FA1DDC3B9E155C558
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Whiteboard Animation Pack For Promotion Videos - интерактивная до
 ```bash
 magnet:?xt=urn:btih:B0E4E473AD19AFC6357A703748015B27D2424F81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Sci-fi Interface HUD - оснастите панель управления ва
 magnet:?xt=urn:btih:5F891B2E8B9EF8ADD2506BB94BE36F3AE5E60924
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ The Art of Beauty - это красивый, стильный, элегантн�
 ```bash
 magnet:?xt=urn:btih:57831D9CA261F6A1831562BEAC2CAC0A21D9A6E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Colorful App Promo - позволяет создать современный п
 magnet:?xt=urn:btih:D2B5C9CCD8CF2E4E40223EACDE1B9183012D72D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:D2B5C9CCD8CF2E4E40223EACDE1B9183012D72D5
 ```bash
 magnet:?xt=urn:btih:D469D73B8C8785754380D8FFE56C3615FB3DF785
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ The Slideshow - простое, 36-секундное слайд-шоу.Форм
 magnet:?xt=urn:btih:B33307FEAFA78E705237443C13F74D7E901E5609
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Realty and Hotel Slideshow - проект, специально заточенн
 ```bash
 magnet:?xt=urn:btih:2283083A61B453C38B38E215F21B7FFD0EA8D8D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ VideoHive - Album Love - 7019651 [AEP]
 magnet:?xt=urn:btih:66E6BDFE01EE4BDAF1746475EF6AABC4EE117FA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Dirty Glitch Titles 2 - Шаблон After Effects с эффектом иска�
 ```bash
 magnet:?xt=urn:btih:E9B757F9C17E60248C669A8FE4C118850A2E6200
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ Professional 3D App Promo Toolkit for Element 3D - создание и прод�
 magnet:?xt=urn:btih:F31ADC5BCE6D75627B6A9F306212803F5E29ACA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Race Day - A Complete Racing Package - вещательный пакет на т
 ```bash
 magnet:?xt=urn:btih:4EEE21F5D85C402D66C903485CA8A1AAA5DF7F4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ HUD Logo Reveal - раскрытие логотипа с удивительно�
 magnet:?xt=urn:btih:5B66F781DC3414ECED85D1E781757D8CB093F01C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ PhotoMask - Animation Logo Tool - маскированный эффект пок
 ```bash
 magnet:?xt=urn:btih:076C3C82DC4F241E7812C1D4C5CB5C410BCC058F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:076C3C82DC4F241E7812C1D4C5CB5C410BCC058F
 magnet:?xt=urn:btih:9DEF094A1393E983B7407ED3797531F1C9161633
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Logo Glass Distortion - показ логотипа через искажени�
 ```bash
 magnet:?xt=urn:btih:365EF459A5704C3C8DDF04285D47E676D6B029CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:365EF459A5704C3C8DDF04285D47E676D6B029CE
 magnet:?xt=urn:btih:BD10BE6F80F0938074FCC83D499C81A898A6A192
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:BD10BE6F80F0938074FCC83D499C81A898A6A192
 magnet:?xt=urn:btih:6BD0D64DF7211FA5A039893DD6575C229F7CE16F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Lovely Photos - Photos Galaxy 2 - проект для создания слай�
 ```bash
 magnet:?xt=urn:btih:540BE681DB19E4A72364AB16045E5382CD58805D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

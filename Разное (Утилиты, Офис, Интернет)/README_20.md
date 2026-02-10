@@ -19,6 +19,8 @@ PS Tray Factory - это средство для управления иконк
 magnet:?xt=urn:btih:0CC9EC620C7437EFFB562783B715E586A50434C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Microsoft Toolkit - это набор инструментов для управ
 ```bash
 magnet:?xt=urn:btih:77FE72FB4347968891ADB79B60E995A49C750606
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ ContaCam – невероятно простая и бесплатная про�
 magnet:?xt=urn:btih:5FE6305AF97F25B55D88E075387AF494CC7CD748
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Compare Suite - это инструмент для сравнения файло
 ```bash
 magnet:?xt=urn:btih:291159BDB40390ED51B76592C9F40F90206A9807
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Setup Factory 9.5.0.0 [Ru/En]
 magnet:?xt=urn:btih:F105E6F4FE15DBDCE7D61EB42E673BACDA7C45AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ HashTab - программа для определения контрольны�
 ```bash
 magnet:?xt=urn:btih:F75F5340E9686AD6E6BDD75550B82DFCFFD8FFED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ TurboLaunch - Утилита для удобного и быстрого зап�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Altarsoft Photo Editor 1.51 Portable by elcafe [Ru/En]
 magnet:?xt=urn:btih:F5BA3F30E748683711B2B5B6CFC4E9917E685D6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Stardock SpaceMonger - это сканирование, отображение �
 ```bash
 magnet:?xt=urn:btih:87E931116DE4F8BB24844DF39D0A6106D0F74504
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Xfer Records Serum Skinstaller 04.2022 RePack by r4e [En]
 magnet:?xt=urn:btih:B025D16BA2BDAEF3E3FF75BC0C0867A079D7545E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Webcam Surveyor 3.7.3 Build 1091 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1C28F6CB7ECB287797738BEA6E43DB060DC1C977
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ EXIF Date Changer - удобный инструмент для редактир�
 magnet:?xt=urn:btih:917851FDC28024EF3615054BF5399CB98C61ACD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ JetBoost 2.0.0.67 Portable by Killer000 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1A5AF3B09F1971454F6208501547EA98F5DDDF6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ JetBoost 2.0.0.67 [Multi/Ru]
 magnet:?xt=urn:btih:5BD44E05849D7D7918E0124F15901347CAE6C20F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ BatteryCare - утилита, способная продлить время а�
 ```bash
 magnet:?xt=urn:btih:B499A51CD6078D611477E19FC495FA1F160AEE31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:B499A51CD6078D611477E19FC495FA1F160AEE31
 magnet:?xt=urn:btih:AA1D028E8D924F0D3AC3DD8DD3D25BD0CC1CF359
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ Password Generator 2.0.0.3 Portable [Ru]
 ```bash
 magnet:?xt=urn:btih:6B059715D29666E389812714D6C754402956D7AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ TrackChecker – достаточно любопытное приложение,
 magnet:?xt=urn:btih:9073A9BACBB308C20571607A367F951FDFC10952
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ RidNacs - быстрое средство анализа использован�
 ```bash
 magnet:?xt=urn:btih:47E56504D94587A6B012EFA5C314030F09618877
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:47E56504D94587A6B012EFA5C314030F09618877
 magnet:?xt=urn:btih:303F5347B3E8115DB146C937059C77D9B79C4C42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ Atomic Time Synchronizer 10.1.0.1010 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6EC44BED30F7573F86A4455EBA429B2AB7461774
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ I-Generator 9.1 Alpha by noveek [Ru] (авторская раздача)
 magnet:?xt=urn:btih:35A8EE3DE9AD7422352065395E4FCE9C80199105
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:35A8EE3DE9AD7422352065395E4FCE9C80199105
 ```bash
 magnet:?xt=urn:btih:7407CBEAD9FAD2FBEB4111B60DE26DE01E420DAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ Minstall Portable by Nomer001 (EVGENY) 2019.04 [Ru]
 magnet:?xt=urn:btih:F3C4DA6B4231E8F98D7FF9C2AD51D9FB63B308A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ GetFoldersize - программа для анализа использован�
 ```bash
 magnet:?xt=urn:btih:AF602883DD40552E9D292AF81F4A8319D6DDCC47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +672,8 @@ TranslateIt! 8.1 build 3 [Multi]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ Untitled Goose Game (2019) [Switch] [USA] 10.1.0 [NSZ] [License / 1.1.0] [Ru/En]
 magnet:?xt=urn:btih:5B4B66B6B0FE592BA56B43CACE986593834B8F96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Rise of the Guardians: The Video Game [xbox 360] [eng] [Region free] (2012)
 magnet:?xt=urn:btih:2485954FA4C5740B31624F234143884B333742B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ Call of Duty: Black Ops 3 (2015) [PS3] [EUR] 4.21 [Cobra ODE / E3 ODE PRO] [Unof
 ```bash
 magnet:?xt=urn:btih:EAE90EE6B7AB1A878C030773168193EFAF4778B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ The Peanuts Movie: Snoopy's Grand Adventure (2015) [Xbox360] [RegionFree] [LT+1.
 magnet:?xt=urn:btih:E3643DB67ADFEC1D22D022E432A0CAC66E1062C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Just Dance 2018 (2017) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial
 ```bash
 magnet:?xt=urn:btih:02FC8C7B59F14F1C0CD30679604E39800F24C48E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ PlayStation Vita Pets (2014) [PSVita] [EUR] 3.60 [NoNpDrm] [License] [Ru/En]
 ```bash
 magnet:?xt=urn:btih:FFBCBA063A0A8FFDD243110818B98B5BC1B17011
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ Borderlands: The Pre-Sequel! [Region Free] [ENG] [LT+3.0] (XGD3 / 16537) (2014) 
 magnet:?xt=urn:btih:EDBE41455E100D011BEC6431AB1118980D73515D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ Murasaki Baby (2014) [PSVita] [EUR] 3.60 [NoNpDrm] [PSN] [Ru/En]
 magnet:?xt=urn:btih:4FEC82EF9335B93E984849C26D9BC96139E0996B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ Superstars V8 Racing первая игра из новой серии гоноч
 ```bash
 magnet:?xt=urn:btih:D90EFE41333A69D811CEE7FF372B6E44371EC233
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ The Sims 3 [Wii] [Multi 5] [PAL] (2010)
 magnet:?xt=urn:btih:82AD1AC0E31F1DF3C80CBC42A4B2EB9826D5F877
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ Dance Dance Revolution DDR (2010) [PS3] [USA] 3.55 [CFW] [En]
 ```bash
 magnet:?xt=urn:btih:FD774BDA11E0F5FC9BF51926C80F50A6181EA145
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ Iron Man 2: The Video Game (2010) [PS3] [EUR] 3.15 [Cobra ODE / E3 ODE PRO ISO] 
 magnet:?xt=urn:btih:36A06A88BFD4EFA0F491B165A4377A04FD51F11D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ Iron Man — игра, созданная на основе одноименно
 ```bash
 magnet:?xt=urn:btih:16BDA269B9FF96C428E67491EE463511BD58C26F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ Pumpkin Jack (2020) [Switch] [USA] 10.2.0 [NSZ] [License / 1.2.8] [Ru/Multi]
 magnet:?xt=urn:btih:780B3D45339F7B3DAAE9B16791A1F622CACCC921
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ The Peanuts Movie: Snoopy's Grand Adventure (2015) [Xbox360] [RegionFree] [FreeB
 ```bash
 magnet:?xt=urn:btih:C374E7321FC36D9A066ECDB6819BE794DE1983DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ Rugby World Cup 2015 (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unoff
 ```bash
 magnet:?xt=urn:btih:7C96DAC0E56E11CCA560F3646E99D4E2A566513C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ LEGO Jurassic World (2015) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Multi]
 magnet:?xt=urn:btih:F829398EB9010F5F796CB9E0FCDF975DAB46476A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ Pokken Tournament (2016) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Multi]
 magnet:?xt=urn:btih:D0DC6804206FA37C56765E3BAE0490C9DCFCA00B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ Dragon Fin Soup совмещает несколько жанров в одной
 ```bash
 magnet:?xt=urn:btih:5E0A0FC48F9568CC66854C9F6A3E6EAA1F5FAA9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ The Adventures of Tintin: Secret of the Unicorn - новая игра в дав�
 magnet:?xt=urn:btih:A62E56CC5E612CC68930C81C2A83CF34F79D8C31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +556,8 @@ Saints Row IV: Game of the Century Edition [PS3] [EUR] [En] [4.55] [Cobra ODE / 
 ```bash
 magnet:?xt=urn:btih:232D6369BC443AEA056207164C4C2BA50799A00C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +585,8 @@ RPCS3 + 4.89 Firmware + Rusty PSN - эмулятор PS3 с необходимы
 magnet:?xt=urn:btih:8B5DA13061DD18431E2CE891D59A9D5CB417CBAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ Nickelodeon Dance 2 – увлекательное продолжение наш
 magnet:?xt=urn:btih:84D23C235BC6F6E5DA1CA944690FE4080D9C1662
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ Bully: Scholarship Edition [Wii] [PAL] [Multi 5] (2008)
 ```bash
 magnet:?xt=urn:btih:CAEF7738A9393AC293BFD574C27CD81D1ABD6A17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +664,8 @@ Thronebreaker: The Witcher Tales (2020) [Switch] [USA] 10.1.0 [NSZ] [License / 1
 magnet:?xt=urn:btih:358AB6FB8AA6AC86601E0FD99F14F546300797CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ God of War Collection (2014) [PSVita] [EUR] 3.60 [NoNpDrm] [License] [Ru/En]
 ```bash
 magnet:?xt=urn:btih:129EF62BEFC905FDF744C656B3935EBE32B73DD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

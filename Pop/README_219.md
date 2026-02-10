@@ -1,3 +1,154 @@
+###  Публикация: 912877   (608774) от 27.06.2015
+
+Synti Time (Синти Тайм) - Навстречу Мечте (2013) [MP3|320 кб/с]<EuroDisco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Жду тебя
+02. Навстречу мечте
+03. Игра любовь
+04. Время для двоих(   Читать дальше...   )Жанр: EuroDisco, SynthpopПродолжительность: 00:29:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A721949677578A62587A4F08E8A1C01199E56D9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912888   (608918) от 27.06.2015
+
+Азамат Биштов - Сто причин (2011) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Водка-горькая вода [03:40]
+02. Обманула [03:15]
+03. Голубая ночь [03:26]
+04. Мое сердце [03:10](   Читать дальше...   )Жанр: PopПродолжительность: 00:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91326441BED99AA8CDC4739356BCD0C443842D63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 524955   (609053) от 20.07.2012
+
+Дюна - The Best 2CD (2012) [MP3|320 кб/с]<Рор>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_609053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РорПродолжительность: 01:04:23
+
+01. Синяя река
+02. Это приказ
+03. Сердце
+04. Караганда
+05. Чай, банан и сайра
+06. Волшебный ливень
+07. Солнечный ветер
+08. Наверно старость(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2E438D85E15D649CFE77E5544EDA2BF26114921
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525000   (609244) от 20.07.2012
+
+VA - Hits 2012 (2012) [FLAC|Lossless]<Pop, Rok, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_609244.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Michel Telo - Ai Se Eu Te Pego (2:45)
+2. Sak Noel - Paso (The Nini Anthem) (3:17)
+3. Qwote Feat. Pitbull & Lucenzo - Throw Your Hands Up (Dancar Kuduru) Sagi Abitbul Remix Edit (4:33)
+4. R.I.O. feat. U-Jean - Turn This Club Around (3:18)(   Читать дальше...   )Жанр: Pop, Rok, R&BПродолжительность: 02:31:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146652   (609490) от 02.07.2017
+
+The Human League - Greatest Hits (1995) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_609490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't You Want Me [03:55]
+02. Love Action (I Believe in Love) [03:48]
+03. Mirror Man [03:48]
+04. Tell Me When [04:39](   Читать дальше...   )Жанр: PopПродолжительность: 01:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20F5CE8E25061C80850F3C79B0EDB289C542BA2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 684680   (609893) от 26.07.2016
 
 Пающие Трусы (Пающіє Труси) - Интимнепредлагать (2012) [FLAC|Lossless]<Pop>
@@ -21,6 +172,8 @@
 ```bash
 magnet:?xt=urn:btih:9EEED764045AE8D60C6DF33D19AA4F9504C07DFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +202,8 @@ magnet:?xt=urn:btih:9EEED764045AE8D60C6DF33D19AA4F9504C07DFE
 magnet:?xt=urn:btih:55B067CFAD7D46293CBC985A810C674E84DB81E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +230,8 @@ CD 01:
 ```bash
 magnet:?xt=urn:btih:5B4A1A7AD7EE6004D90C2BCDA587EC4F8DD116E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +260,8 @@ Beyonce - Homecoming: The Live Album (2019) [MP3|320 Kbps] <Pop, RnB>
 magnet:?xt=urn:btih:4F110A99FDCA7EC4FF9DF0E5F4671E9BB293BC5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +288,8 @@ Nicklas Sahl - Planets (2019) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:FAD5CAD7AF99C61A7C1C03D06E21956BAE029160
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +318,8 @@ VA - Indie Country Folk (2016) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:C00875467475188F10434567495AA40A1076ECA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +346,8 @@ Bad Boys Blue - 30 (2015) [MP3|320 кб/с]<Disco, Pop, Eurodance>
 ```bash
 magnet:?xt=urn:btih:EAF842D0C3E4EBF6D38D1B7A56ECE30B40200AC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +376,8 @@ magnet:?xt=urn:btih:EAF842D0C3E4EBF6D38D1B7A56ECE30B40200AC3
 magnet:?xt=urn:btih:D7AB97DF418DA59448AFB3E16A7FAAD2BA40CBE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +404,8 @@ Belinda Carlisle - The Anthology (2014) Compilation, 3CD [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:7CC8F9EC068D794C8608DE294A1FFA133B18E8CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +434,8 @@ magnet:?xt=urn:btih:7CC8F9EC068D794C8608DE294A1FFA133B18E8CD
 magnet:?xt=urn:btih:57BF6E217482DF979173DE77BA45B147AB36F914
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +462,8 @@ VA - A Touch Of Italo Disco (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
 ```bash
 magnet:?xt=urn:btih:952908F5369A6E445EF336B2AA8AB586CFC358FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +492,8 @@ magnet:?xt=urn:btih:952908F5369A6E445EF336B2AA8AB586CFC358FF
 magnet:?xt=urn:btih:0034660070FCC0D80BA857F0180E59C5D7A03F79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +520,8 @@ The African Singers - Disco Africana (2000) [FLAC|Lossless|tracks + .cue] <Pop, 
 ```bash
 magnet:?xt=urn:btih:7343A88D16AAC54DD3CD92FF04CA8E67791345C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +550,8 @@ Alizee - Blonde (2014) [FLAC|Lossless] <Pop, Electronic, French Pop, Dancepop>
 magnet:?xt=urn:btih:44A6C51507948485836094451716331B43BB13D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +578,8 @@ VA - BRAVO Hits 94 (2016) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Dance, Pop
 ```bash
 magnet:?xt=urn:btih:55341564D631E12BD3238A0B43B9F66BB76E9D3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +608,8 @@ CD1:
 magnet:?xt=urn:btih:4B88E39BF9C435FA5E1A17E5D4D1E5E1DF5A4589
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +636,8 @@ magnet:?xt=urn:btih:4B88E39BF9C435FA5E1A17E5D4D1E5E1DF5A4589
 ```bash
 magnet:?xt=urn:btih:4DA70F1DF6300F21C71273386E0D6FCBD6896A8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +666,8 @@ VA - Ballermann Die Hits 2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
 magnet:?xt=urn:btih:A4D9B3B5072A5995DB8A24940B045B127A2A2638
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +694,8 @@ VA - Happy Easter Dance 3 (2019) [MP3|320 Kbps] <Dance, Clubce>
 ```bash
 magnet:?xt=urn:btih:2A1CFBE47266A65A43D02D9EEEF851CE894CB539
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +724,8 @@ CD 01:
 magnet:?xt=urn:btih:AD3203611E548756FFAF198AF11EA0FFB5F0EF6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,140 +753,7 @@ CD 01:
 magnet:?xt=urn:btih:AD4168B7CE63FA53D31E5FD16401348BDC92695C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037437   (612122) от 25.07.2016
-
-Roosevelt - Roosevelt (2016) [FLAC|Lossless|tracks + .cue] <Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Wait Up
-03. Night Moves
-04. Belong(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:46:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E4AC8A854B58D369C2D9DCE4FFEE596ED003FBD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230865   (612265) от 14.06.2018
-
-Christina Aguilera - Liberation (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liberation
-02. Searching For Maria
-03. Maria
-04. Sick Of Sittin'(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41BEE3336D46328BB96C4BEC7E59EBE3E88B8E1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230667   (612267) от 14.06.2018
-
-Gepy & Gepy - Body To Body (1979) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Body To Body (7:44)
-02.  Machine Man (5:48)
-03.  Oh Darling, Stay With Me (4:52)
-04.  African Love Song (6:47)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:35:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE4A15F0014808A4B0D0A55E29FC97E342622543
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230642   (612331) от 14.06.2018
-
-Italove - Extended And Remixed (2018) [MP3|~245 Kbps (V0)] <Synthpop, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stockholm Is Calling (Extended Mix) (04:43)
-02. Follow Me To Mexico (Extended Mix) (04:42)
-03. Rhythm Of Love (Extended Mix) (07:10)
-04. Too Late To Cry (Matt Pop Club) (07:19)(   Читать дальше...   )Жанр: Synthpop, Italo-DiscoПродолжительность: 01:11:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E7A26F6C460E1585A447A084EE95DFE6DC96DC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912439   (612388) от 25.06.2015
-
-Фристайл - Кораблик любви (Переиздание) (1997) [FLAC|image +.cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. "Фонари (А. Розанов - Т. Назарова)"
-02. "Старый клён (А. Розанов - С. Кузнецов)"
-03. "Кораблик любви (А. Розанов - Т. Назарова)"
-04. "Белая орхидея (А. Розанов - Т. Назарова)"(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E410D207A5FD1C0694CBCE0E59F5F356C6EAFB2F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

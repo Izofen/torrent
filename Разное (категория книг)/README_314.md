@@ -1,3 +1,29 @@
+###  Публикация: 1568735   (459758) от 09.08.2022
+
+Атле Нэсс | Эдвард Мунк. Биография художника (2021) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Творчество знаменитого норвежского художника-экспрессиониста Эдварда Мунка (1863–1944) таит в себе множество загадок, драматически воплощает «дух времени» – атмосферу Европы тех десятилетий, на которые пришлась его долгая жизнь. Самая известная из его картин «Крик» для многих стала трагическим символом рубежа XIX и XX веков, предвестником мировых войн и катаклизмов (   Читать дальше...   )Жанр: биографии и мемуары, зарубежная литература о культуре и искусстве, зарубежная публицистика, изобразительное искусствоПеревод: Анна Турунтаева, Елена РачинскаяФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:922E48A83D0E6DD2335DC75DFB2A139D37F5706A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1407944   (459776) от 10.09.2020
 
 Касия Везовски, Патрик Везовски | Я понимаю тебя без слов. Как читать людей по жестам и мимике (2020) [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:BC4B86F0412B8CC6284AA26DCBC8E6DC169527D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:BC4B86F0412B8CC6284AA26DCBC8E6DC169527D3
 magnet:?xt=urn:btih:93AEFF9CB812CAF55960050C5D6CCCE138A40509
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:93AEFF9CB812CAF55960050C5D6CCCE138A40509
 ```bash
 magnet:?xt=urn:btih:1B3D4B99058D8D90692AC61951C8F89B297312EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ Starbucks (произносится «Ста́рбакс») — американ
 magnet:?xt=urn:btih:FB80C9D7908E5AB891F0D7067F6C5DCA67AF3B2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:FB80C9D7908E5AB891F0D7067F6C5DCA67AF3B2E
 ```bash
 magnet:?xt=urn:btih:5BE6801B71918B67F2A43758BEB8F8AD230CC7C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:5BE6801B71918B67F2A43758BEB8F8AD230CC7C0
 magnet:?xt=urn:btih:33BB364379C067B48E4FD9A54F93D5118F1C5D71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:33BB364379C067B48E4FD9A54F93D5118F1C5D71
 ```bash
 magnet:?xt=urn:btih:BF96A8E4488218161DBAC8231D7F5A51E0A4F5C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:BF96A8E4488218161DBAC8231D7F5A51E0A4F5C8
 magnet:?xt=urn:btih:2AF34AE0323F20123B3DEB9D0ECEBD60E7D6264D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:2AF34AE0323F20123B3DEB9D0ECEBD60E7D6264D
 ```bash
 magnet:?xt=urn:btih:8B28C65784A2D179EAE2ABC275EDD353ED00CBAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:8B28C65784A2D179EAE2ABC275EDD353ED00CBAA
 magnet:?xt=urn:btih:C54152A25CB1802DD848FE64B0D5DD26DFF63088
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:C54152A25CB1802DD848FE64B0D5DD26DFF63088
 ```bash
 magnet:?xt=urn:btih:1826F2859FC9B2D1B5285FA1FC51DD40AEDFAFF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:1826F2859FC9B2D1B5285FA1FC51DD40AEDFAFF6
 magnet:?xt=urn:btih:1D92EB7CD8146FEC04DB982D422AB94AFC83CD87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:1D92EB7CD8146FEC04DB982D422AB94AFC83CD87
 ```bash
 magnet:?xt=urn:btih:5CEED140482561EF7FF0470DD470555B3AD8F19A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:5CEED140482561EF7FF0470DD470555B3AD8F19A
 magnet:?xt=urn:btih:7D21838955A279EA7DC06F0C00D0D9A41B5BBF8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:7D21838955A279EA7DC06F0C00D0D9A41B5BBF8E
 magnet:?xt=urn:btih:184041A06509BEBB7E6DBD96ED12C7BAE1DFAFF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:184041A06509BEBB7E6DBD96ED12C7BAE1DFAFF5
 ```bash
 magnet:?xt=urn:btih:95E90D139E968880540A6FE20C3EDDD603723B29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:95E90D139E968880540A6FE20C3EDDD603723B29
 magnet:?xt=urn:btih:2B22A6C22A0F4DBA41C7598F15B5F99A2EEE7461
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:2B22A6C22A0F4DBA41C7598F15B5F99A2EEE7461
 ```bash
 magnet:?xt=urn:btih:FBED62B66D295A07C01ED93805DBCEF6DA042DCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:FBED62B66D295A07C01ED93805DBCEF6DA042DCB
 magnet:?xt=urn:btih:ADAFFEF35A106EF5FAE22013EF3A272E3805AB53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:ADAFFEF35A106EF5FAE22013EF3A272E3805AB53
 ```bash
 magnet:?xt=urn:btih:653B1AA8EB93E8C83464A8B4784CC3A0B39C32BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +574,8 @@ magnet:?xt=urn:btih:653B1AA8EB93E8C83464A8B4784CC3A0B39C32BB
 magnet:?xt=urn:btih:2B68ADC693DED98B4B459B96DABBF33B97ED31AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:2B68ADC693DED98B4B459B96DABBF33B97ED31AB
 ```bash
 magnet:?xt=urn:btih:C26E09D8A48222D30C380A6DC515FDDED8ABB534
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:C26E09D8A48222D30C380A6DC515FDDED8ABB534
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +651,8 @@ magnet:?xt=urn:btih:C26E09D8A48222D30C380A6DC515FDDED8ABB534
 ```bash
 magnet:?xt=urn:btih:650E8CB9901F3D6D946B52DCAD6C62BD6FD77E1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,29 +678,7 @@ magnet:?xt=urn:btih:650E8CB9901F3D6D946B52DCAD6C62BD6FD77E1C
 magnet:?xt=urn:btih:E14CE6E43DB79F33ED6E6095F851CE1C028109CD
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059430   (461631) от 04.10.2016
-
-Джек Ботерманс, Джерри Слокум | Бoльшая книга загадoк, фoкуcoв, гoлoвoлoмoк (2007) [PDF]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461631.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: Магия этой книги заключается в удивительных свойствах нашего мозга интерпретировать различные изображения порой самым неожиданным образом. С давних времен люди используют оптические эффекты в архитектуре, живописи и, конечно, для развлечений. Представленные в этом издании шарады и картинки-загадки, фокусы и головоломки, зашифрованные послания и магические (   Читать дальше...   )Жанр: Кроссворды, головоломкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6140BDDEC5E17A794DC8BCE75C54D82F809C7E6B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

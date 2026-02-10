@@ -20,6 +20,8 @@ ADB AppControl - это новая и удобная программа для �
 magnet:?xt=urn:btih:85049BD2BEE9133D7888EA813A279DD3FF57ADB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ PyMOL — система визуализации молекул. Позволя
 ```bash
 magnet:?xt=urn:btih:F586B20CECD934887A0CB310C1168E0A9710ACEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Maptorium GoogleSat Cache [Ru/En]
 magnet:?xt=urn:btih:9392B51B54E2C80E3B9429886A5D6CA4E058EEEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ DipTrace - это многофункциональная САПР по разр�
 ```bash
 magnet:?xt=urn:btih:2BFE367FCF9E13B8548AD1BBD40FB5CCC4BD838C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Microsoft .Net Packages AIO 12.11.24 RePack by xetrin [Multi/Ru]
 magnet:?xt=urn:btih:F789465720C4D5B8D4D7639D41265FEFAEF1D96C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ FreeCAD – это очень мощный и серьезный продукт,
 ```bash
 magnet:?xt=urn:btih:F189935A4C74E6ED7EB189274AA5EA533F4BDE74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ RubyMine — умная и удобная интегрированная сре�
 magnet:?xt=urn:btih:CC54F8097481C07894CAA1343A97809CA07FFFFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Altium Designer — это мощная система, позволяющая �
 ```bash
 magnet:?xt=urn:btih:B32AB771EE3C3673440B2FFACD73278F9F704F14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Golden Software Grapher - мощный и одновременно просто�
 magnet:?xt=urn:btih:76F5A837893C6121BA696929472B31EC6F19E1F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ SolidWorks 2024 Premium — система автоматизированног�
 magnet:?xt=urn:btih:93D846ECE06C32B757892E7C50A1C1B0F98C913B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Altair S-FRAME 2024.1 [En]
 ```bash
 magnet:?xt=urn:btih:95350BFA9D436867EACF0911ABD0200D64423B8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ HCL Notes (ранее IBM Notes/Domino, старое название — Lotus 
 magnet:?xt=urn:btih:47712D6C0E8896228AB3776DCD912876B54590D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Altair® Inspire™ — это интуитивно понятное и мощн
 magnet:?xt=urn:btih:6215FBE5360A5DCCD78FB2A4DDAB559C9EE6CADF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Altair HyperWorks Suite — это программная платформа д�
 ```bash
 magnet:?xt=urn:btih:846EF6862A0245933F5BA5955748C054961D6A1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ Flow Simulator - это инструмент трехмерного проект
 magnet:?xt=urn:btih:0FC284ED63C66F824D467356A7588639F979AD20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ GoldSim — это мощная и гибкая платформа для виз
 ```bash
 magnet:?xt=urn:btih:AD63694B8D5BDF499F68474A35F7AF3D87150CAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ Visual Studio Code – визуальный редактор кода от ко�
 magnet:?xt=urn:btih:44E5253D1D8EFD358273C3989D8A74E42C78DD36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ AMD Radeon Software Adrenalin Edition представляет собой нов
 ```bash
 magnet:?xt=urn:btih:D59445042A7A4DDDE4635D7D155E85F64F26A61C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ Veeam ONE (   Читать дальше...   )Язык интерфейса: А
 magnet:?xt=urn:btih:4E4BD50E81A72EECB0BFFE2107212350CABFF2AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ AnyLogic — лидирующий инструмент имитационног�
 ```bash
 magnet:?xt=urn:btih:83AC95A6DCF0905015BE3D718AC811106A306F8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ Sublime Text — быстрый кроссплатформенный редак�
 magnet:?xt=urn:btih:06D390C68F9E26D28881124488E75A6529402916
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ Automation Studio — это инженерное программное обе�
 magnet:?xt=urn:btih:CF977CDAE92AD82FCC8621AADC037F95ACB9101E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ ZWCAD Architecture — это профессиональное программ�
 ```bash
 magnet:?xt=urn:btih:FCE69CAFED9547F4C1AB6A233A3C38A59C21E05E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ ADS (Advanced Design System)- система автоматизированно�
 magnet:?xt=urn:btih:73CC3E2E4D1D5F6DEF0DA55747355CE563A0889F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ Microsoft .NET 6.0.33 Runtime [Ru/En]
 magnet:?xt=urn:btih:21C798D5F5561C19390CA20F2A221F29CC99F98F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Microsoft .NET 8.0.8 Runtime [Ru/En]
 ```bash
 magnet:?xt=urn:btih:38D6189D75137FF593FF40B37912B007EE67FDD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

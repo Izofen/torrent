@@ -21,6 +21,8 @@ openSUSE-Tumbleweed 20170725 [x86-64] 3xDVD, 2xCD
 magnet:?xt=urn:btih:B0E89B12FDD0B2A400521A3C73CE3CA709FD3400
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ OS4 OpenLinux 13.7 KDE  [x32, x64] 2xDVD
 magnet:?xt=urn:btih:A722F21049578C3D21F5B927BCB0D97DB5998430
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Ctlos Linux — базируется на Arch Linux, iso образ собра�
 ```bash
 magnet:?xt=urn:btih:D18EFF1572D18FF7D2142E90D4655C348B48A000
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +107,8 @@ PCLinuxOS 2013.08 KDE FullMonty [x32, x64] (2xDVD)
 magnet:?xt=urn:btih:7F342518525CE5747008FEA8DAAEFE9F6DAE7BDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ Debian GNU/Linux 9.1.0 + nonfree Stretch [x86-64] 4xDVD
 ```bash
 magnet:?xt=urn:btih:0DB3BC58D64B842AE09F45CFD3BE780F410192C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ Xubuntu — дистрибутив Linux, основанный на проект
 magnet:?xt=urn:btih:3B505ADA54D6AEFE1CDA6949E9333E455A22A6F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ Tixati — это полноценный и бесплатный клиент с
 ```bash
 magnet:?xt=urn:btih:B94DB02C3F98800D3B19AE5082F12238B12552CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ Debian GNU/Linux 9.1.0 + nonfree Stretch [i386] 4xDVD
 magnet:?xt=urn:btih:9698C6B61AA027ABA42E4158B91486CE28F4B7F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ Wing IDE PRO- интегрированная среда разработки, п
 magnet:?xt=urn:btih:95E4FD1C0C10A689176AA83E2C7A8D69641D9A13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ OpenSuse Leap 15.1 [x86_x64] 3xDVD, 2xCD
 ```bash
 magnet:?xt=urn:btih:2C4FB08D0F4062C52DF73C9582536F521CF48157
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ ABBYY FineReader - (   Читать дальше...   )Язык интерфе�
 magnet:?xt=urn:btih:CDB607E8CB0B9FA604FD3310BEA31E66C38F3CC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ Image Uploader - бесплатная программа для Windows c отк
 ```bash
 magnet:?xt=urn:btih:65C9076948F59B95DBCFBA95BDF98C4393460E70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ Sabayon Linux - дистрибутив Linux, созданный как форк
 magnet:?xt=urn:btih:21053F9F40987AF72F87F2E9D3DD790A96897974
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ Tor Browser for Linux - удобная и простая модификация 
 ```bash
 magnet:?xt=urn:btih:5A2CC0375E0A4C28EC1B6B83B36384F9696AED2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ Sabayon Linux - дистрибутив Linux, созданный как форк
 magnet:?xt=urn:btih:8B2A91B6628F5FEAEE09ECC4C7E86831E79C3A03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ RFRemix [Russian Fedora Remix] 26 [i386, x86-64] 3xDVD, 3xCD
 ```bash
 magnet:?xt=urn:btih:5DF9B10959EA48CE67451E1F8488C5F687C18704
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ Fedora 26 [x86-64] 3xDVD, 3xCD
 magnet:?xt=urn:btih:7A857F5E562E5E3D10D8EF5756287008BB2B843D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ Fedora 26 Live spins [x86-64] 6xDVD, 1xCD
 ```bash
 magnet:?xt=urn:btih:D496D940156107E5012CB9813FB4686C2F274FF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +512,8 @@ Mageia 4 Alpha I [i586, x86-64] 4xDVD
 magnet:?xt=urn:btih:B9A408AB672D528E814B91B5E08BE908601E2B50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ Chromixium 1.5 [i386] 1xDVD
 magnet:?xt=urn:btih:2B6650829A1F83F0CAAAA0F401FB2A7B6350827A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +565,8 @@ Calculate Linux 14.16.2 (MATE) [i686,amd64] 2xDVD
 magnet:?xt=urn:btih:94698E3F8F20796B41C99067822479E2CB2AEA85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ Microsoft Office Профессиональный 2007 — исчерпываю�
 ```bash
 magnet:?xt=urn:btih:1EBA392C3B4828FE112741ACAC838C4A062AC8E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +625,8 @@ KolibriOS (англ. KolibriOS — КолибриОС) — операционн�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +652,8 @@ KolibriOS (англ. KolibriOS — КолибриОС) — операционн�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +681,8 @@ Jondo Live-DVD предлагает безопасные, предварител
 magnet:?xt=urn:btih:7E4A853E1F73D29AC593885593762B93DC41628E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ Tor Browser for Linux — Пакет для анонимного интерне�
 ```bash
 magnet:?xt=urn:btih:A5557F6592E3D290F1BA902310B1CA0733D05BD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

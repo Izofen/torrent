@@ -1,3 +1,29 @@
+###  Публикация: 970287   (618824) от 21.07.2016
+
+Книжная серия | Биографии великих. Неожиданный ракурс [19 книг.Обновляемая] (2011-2016) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618824.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Биографии великих. Неожиданный ракурс» - новая биографическая серия издательства «Эксмо». В серии рассказывается об очень известных нам всем людях, но с неизвестной стороны. Раскрываются новые грани характеров популярных личностей от Кино, Спорта, Литературы...Жанр: Биографии и МемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4701923FDCBF97B2B1227B1EAAF70DA8BA141035
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036547   (618833) от 21.07.2016
 
 Елена Романова | 120/80. Как привести давление в норму без таблеток (2014) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:F111F74E1B5172F7F49DF9619C36508ECB424B15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:F111F74E1B5172F7F49DF9619C36508ECB424B15
 ```bash
 magnet:?xt=urn:btih:539E663F0B6A081DEB677F6D2B7A3641B5508BD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:539E663F0B6A081DEB677F6D2B7A3641B5508BD1
 magnet:?xt=urn:btih:7D663EA4464F11078E9C62EAC0BC461D291C4070
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:7D663EA4464F11078E9C62EAC0BC461D291C4070
 magnet:?xt=urn:btih:02542A7A06EBD42DB29B7F50D8587095FD850835
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:02542A7A06EBD42DB29B7F50D8587095FD850835
 ```bash
 magnet:?xt=urn:btih:75CD9AD9BAE9D7E31B2B67FA5F0FC3E8D9B7696B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:75CD9AD9BAE9D7E31B2B67FA5F0FC3E8D9B7696B
 magnet:?xt=urn:btih:25553849672E4852C5DCCE61300CBC74063CCB06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:25553849672E4852C5DCCE61300CBC74063CCB06
 ```bash
 magnet:?xt=urn:btih:96E9F29D44AF7BF9094E727689FD8F3731A89A3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:96E9F29D44AF7BF9094E727689FD8F3731A89A3D
 magnet:?xt=urn:btih:AC2D8C42983BB665CC87E33FAEEB1F69C6517E79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:AC2D8C42983BB665CC87E33FAEEB1F69C6517E79
 magnet:?xt=urn:btih:CA539B2D33E2D4FA3D40E734C198F519627CEBE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:CA539B2D33E2D4FA3D40E734C198F519627CEBE5
 ```bash
 magnet:?xt=urn:btih:CF1BBFFB56C5FE7CF1872000F685C44EAC4CBFB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +313,8 @@ magnet:?xt=urn:btih:CF1BBFFB56C5FE7CF1872000F685C44EAC4CBFB4
 magnet:?xt=urn:btih:96E4C6EEF51E43B7CE3A19266A0B13FCEFDC6721
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:96E4C6EEF51E43B7CE3A19266A0B13FCEFDC6721
 ```bash
 magnet:?xt=urn:btih:6EEF0E21B5F7B69746D77AD330C1AB7EB558FBA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:6EEF0E21B5F7B69746D77AD330C1AB7EB558FBA2
 magnet:?xt=urn:btih:214A7FC7F73783D49835BBE5FF9CD34980EAF80D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:214A7FC7F73783D49835BBE5FF9CD34980EAF80D
 magnet:?xt=urn:btih:329DFF1923554D126BC74A1B1C4244E2A3D0A7C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:329DFF1923554D126BC74A1B1C4244E2A3D0A7C3
 ```bash
 magnet:?xt=urn:btih:EF535D244660900317E32D02764227FCBBEEEC0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:EF535D244660900317E32D02764227FCBBEEEC0F
 magnet:?xt=urn:btih:1BBA8531FD491CE74EBB358571F106609252013C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:1BBA8531FD491CE74EBB358571F106609252013C
 ```bash
 magnet:?xt=urn:btih:88BDE242F23AAD38216E2F546EA72E37C6ECC021
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:88BDE242F23AAD38216E2F546EA72E37C6ECC021
 magnet:?xt=urn:btih:F7EE9E379F90938155AE1E1E3EE5AF9F4D018E31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:F7EE9E379F90938155AE1E1E3EE5AF9F4D018E31
 magnet:?xt=urn:btih:552FF23A8EEE3B7A1E7481D76890297FC6B69ABE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:552FF23A8EEE3B7A1E7481D76890297FC6B69ABE
 ```bash
 magnet:?xt=urn:btih:C5446BCAE97442BEC7E5AAD992D34EE645E24F1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +576,8 @@ magnet:?xt=urn:btih:C5446BCAE97442BEC7E5AAD992D34EE645E24F1A
 magnet:?xt=urn:btih:CC123ED6988FF52885FF3EF63C7959401AE95424
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:CC123ED6988FF52885FF3EF63C7959401AE95424
 magnet:?xt=urn:btih:FB132E77CA59121380B12BAC68FB6E856802024C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:FB132E77CA59121380B12BAC68FB6E856802024C
 magnet:?xt=urn:btih:EA4AFFA5A3439DD975CC07DF90E78BF08E15AF52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +654,8 @@ magnet:?xt=urn:btih:EA4AFFA5A3439DD975CC07DF90E78BF08E15AF52
 ```bash
 magnet:?xt=urn:btih:A6A7C75DF147D41B28360E7CD89C6C5FF7365486
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,29 +682,7 @@ magnet:?xt=urn:btih:A6A7C75DF147D41B28360E7CD89C6C5FF7365486
 magnet:?xt=urn:btih:E7DD604EECF9F2AB7093AA64C59A63840AD82B75
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911059   (620104) от 21.06.2015
-
-В. В. Хохлачев | Все о чае (1987) [DJVU]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга - об одной из древнейших сельскохозяйственных культур, возделываемых человеком. Читатель узнает, как было открыто чайное растение, и прочтет о его удивительных свойствах, о значении чая в жизни разных народов, ознакомится с достижениями отечественной и зарубежной науки и практики чайного дела, с современным состоянием чаеводства в нашей стране и во всем (   Читать дальше...   )Жанр: Кулинария, Напитки, ЧайФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:114B322B7155A99FCB96A01AE4F3DA40E0F2EF4C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

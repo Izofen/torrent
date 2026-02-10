@@ -19,6 +19,8 @@ Mahou Kishi Rayearth | Magic Knight Rayearth | Рыцари магии [1994, TV
 magnet:?xt=urn:btih:D9E57DC9AA8D9DA7BF8D548BEA44B1350794D2D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Mahou Kishi Rayearth 2 | Magic Knight Rayearth 2 | Рыцари магии 2 [19
 ```bash
 magnet:?xt=urn:btih:1E4EF5AD9933C4E96A5EF0359D0B290BFF02A8C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Elfen Lied / Эльфийская песнь [2004, 13 +1 эп.] BDRip Hi10p 108
 magnet:?xt=urn:btih:3F86118D495E52E6824D84AE87B8DB9F2DEE3971
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Afro Samurai Resurrection (Director's Cut) | Афросамурай: Воскр�
 ```bash
 magnet:?xt=urn:btih:EB0D83A4F1C860CABC18A2DF07503F50993573C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Acchi Kocchi / Там-сям [2012, TV, 12 + 1Sp] BDrip 1080p Hi10P raw
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Gochuumon wa Usagi Desuka? Bloom | Is the Order a Rabbit? Bloom | Кролика
 ```bash
 magnet:?xt=urn:btih:15956CB7C4700E363152F9EE3752C7E4FFBFA62C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Arknights: Holy Knight Light / Рыцари ковчега: Святые рыц�
 magnet:?xt=urn:btih:FEB2B05913E912FC10F5FE69ACA17C278DA816E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Long Zu II: Daowangzhe Zhi Tong | Dragon Raja II -The Mourner's Eyes- | Драк
 ```bash
 magnet:?xt=urn:btih:03A8A8A8034C28F0D438A709EED065537FB287A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Obey Me! (2022) | Повинуйся мне! (2022) [12, Web] WEBRip 720p raw
 magnet:?xt=urn:btih:BE12A56E656B3D8CDD705106DCD57E0023DBC24A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Enen no Shouboutai | Fire Force | Пламенная бригада пожарн
 ```bash
 magnet:?xt=urn:btih:A55B372CD45C361C3ED266B47E4D96B3793A816C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Yagate Kimi ni Naru / Bloom Into You / В конечном счёте я ста�
 magnet:?xt=urn:btih:87A16437C39439E0B3E0AFD8BB103312DEF8800B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Irozuku Sekai no Ashita kara | Iroduku: The World in Colors | Из завтра�
 ```bash
 magnet:?xt=urn:btih:02F37040B4E973807AB9A61C554FA97C116F7183
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:02F37040B4E973807AB9A61C554FA97C116F7183
 magnet:?xt=urn:btih:5FA3045E644277E77EDB5564188528DC77096D49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen | В�
 magnet:?xt=urn:btih:E675E805B9268A6BB53B09D97756B8127A05EF61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Shokugeki no Souma: Shin no Sara | Food Wars! The Fourth Plate | Кулинар�
 ```bash
 magnet:?xt=urn:btih:F6F5E483943B9C2857F865863BD22AF6B2D74087
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Senran Kagura: Shinovi Master - Tokyo Youma Hen / Сэнран Кагура 2 [2
 magnet:?xt=urn:btih:ED587ECE7AA6184E7D0B6E186D2392A538B1ED02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Kekkai Sensen & Beyond | Фронт кровавой блокады-2 [2017, TV,
 ```bash
 magnet:?xt=urn:btih:6886D3B0722112748AF022B940BB2883AAA4C3F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Himote House | Himote House: A Share House of Super Psychic Girls | Дом Хи�
 magnet:?xt=urn:btih:03DBFAF011A075809037A7366BC74B8629E5E8F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Hoshiai no Sora | Stars Align | Небо, где встретились звёз
 ```bash
 magnet:?xt=urn:btih:DD79153D693BCE43AD4D148DDBF897BB25463798
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ Keishichou Tokumu Bu Tokushu Kyouakuhan Taisaku Shitsu Dai Nana Ka: Tokunana | S
 magnet:?xt=urn:btih:0CFDF8DAE55A36FED626F61CAE9E3F01CC0EA445
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ Code Geass: Fukkatsu no Lelouch | Code Geass: Lelouch of the Resurrection | Ко
 magnet:?xt=urn:btih:6EEBBCFD41593739326FCD4DF49639752B763836
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ Nande Koko ni Sensei ga!? | Why the Hell Are You Here, Teacher!? | Что зде
 ```bash
 magnet:?xt=urn:btih:5E77349931E1D7A344EFFFE48908A151AA367D52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ Radio City Fantasy: Machikado no Maerchen | Городская радио-ска
 magnet:?xt=urn:btih:F4C6241EB9DEFFDD11CC23D8E54EF717EA9D345E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Itsudatte Bokura no Koi wa 10 Centi Datta. | Our Love Has Always Been 10 Centime
 ```bash
 magnet:?xt=urn:btih:89AD7EEDEDBE7ACF72F7BEEF92D0C302277FEFA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:89AD7EEDEDBE7ACF72F7BEEF92D0C302277FEFA1
 magnet:?xt=urn:btih:D4651928BCFF67DD0B8D20BE12EC79C6412EEA45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ SOARA, Growth, SolidS и QUELL - это четыре группы, принад�
 ```bash
 magnet:?xt=urn:btih:D479E4628DF45B1048F1889C29C770A1C2C4F64A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

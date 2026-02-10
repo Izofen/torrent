@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:6F3E1732CAF227707B0FC517675B75A97645B2D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:6F3E1732CAF227707B0FC517675B75A97645B2D2
 ```bash
 magnet:?xt=urn:btih:79085B3FD4DAF7A4018B371AF4D3379BD7F48533
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ PhotoDirector - функциональный, но весьма простой �
 magnet:?xt=urn:btih:AB1293FBFFBA38AC66DEC199C9247442A7480661
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:AB1293FBFFBA38AC66DEC199C9247442A7480661
 ```bash
 magnet:?xt=urn:btih:9DA7CBDB14B4CC21E3D411A1316BF34943D991B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:9DA7CBDB14B4CC21E3D411A1316BF34943D991B9
 magnet:?xt=urn:btih:330606141C0EECB9A6D833876D6F1C24EA811C6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ OmniReader - полифункциональное приложение для ч
 ```bash
 magnet:?xt=urn:btih:39A91F80B4C9CBC08D67252DD0D888FA0E39949F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ BorderZone / Пограничье (2005) [Ru/En] (1.1) License GOG
 magnet:?xt=urn:btih:0E5345CAAFB3D97FBA5FEE09E010F6B583574017
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:0E5345CAAFB3D97FBA5FEE09E010F6B583574017
 ```bash
 magnet:?xt=urn:btih:12FE79D31C32903AF932C4EED99C0B56933ED684
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:12FE79D31C32903AF932C4EED99C0B56933ED684
 magnet:?xt=urn:btih:7BF988A5549175D6786FCF015A21DF02393454B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:7BF988A5549175D6786FCF015A21DF02393454B7
 ```bash
 magnet:?xt=urn:btih:6523427846526911A491728B17E22BC73EEFF305
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Disc 1:
 magnet:?xt=urn:btih:6DD367B32C551F4BE16C376FB116302C13634D73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:6DD367B32C551F4BE16C376FB116302C13634D73
 ```bash
 magnet:?xt=urn:btih:082CB2B7BEDC6A310A0F199226C8CAB0FFECD830
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Mitch Malloy - The Last Song (2023) [FLAC|Lossless|image + .cue] <Melodic Rock, 
 magnet:?xt=urn:btih:35DA1F2ED7240C9F4A1368148C02DFE4101DB390
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ CD1 - The Album:
 magnet:?xt=urn:btih:08706B16F3C4D7FC75BDF01827E24EF3AF6F0B89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:08706B16F3C4D7FC75BDF01827E24EF3AF6F0B89
 ```bash
 magnet:?xt=urn:btih:69126AE7583089CD2D27E69CF1FD938C7A580B1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:69126AE7583089CD2D27E69CF1FD938C7A580B1C
 magnet:?xt=urn:btih:EF8580F90482AF61F497DB8222A0D259499D1B44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:EF8580F90482AF61F497DB8222A0D259499D1B44
 ```bash
 magnet:?xt=urn:btih:4A22E1555B8397608DA69696BE3EC1AAA1F855B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +477,8 @@ Gueppardo - Power Lines (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy-Metal, Hard-
 magnet:?xt=urn:btih:6E4063DA550B7270A4D71380C73ECF9E8E109B55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +502,8 @@ magnet:?xt=urn:btih:6E4063DA550B7270A4D71380C73ECF9E8E109B55
 ```bash
 magnet:?xt=urn:btih:C1190CE15B83BF2CFE80CBAE4343E69805C90DC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:C1190CE15B83BF2CFE80CBAE4343E69805C90DC8
 magnet:?xt=urn:btih:69DADA8E35BDC2DAA8B6D946BBFFAA4BA44224C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ magnet:?xt=urn:btih:69DADA8E35BDC2DAA8B6D946BBFFAA4BA44224C3
 ```bash
 magnet:?xt=urn:btih:DE3464E4610266E92433895B31EF1E194EB200CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ Photomath - настоящий подарок для всех, кто регул
 magnet:?xt=urn:btih:DA16530A2F0A5D2A1D5133FC70769A9893C4375C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ magnet:?xt=urn:btih:DA16530A2F0A5D2A1D5133FC70769A9893C4375C
 ```bash
 magnet:?xt=urn:btih:BECA86F61A4E3FFD33E8F281AFC4150E99B423A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +634,8 @@ Dropshare - приложение строки меню для Drag & Drop заг
 magnet:?xt=urn:btih:7C104D5A1DDD85C78782A0515DD8F3D520BF8DCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ magnet:?xt=urn:btih:7C104D5A1DDD85C78782A0515DD8F3D520BF8DCA
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ magnet:?xt=urn:btih:7C104D5A1DDD85C78782A0515DD8F3D520BF8DCA
 ```bash
 magnet:?xt=urn:btih:A409F2CE48494DFB804D3B7E476CE930E76FD1F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

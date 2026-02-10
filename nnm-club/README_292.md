@@ -22,6 +22,8 @@ VA - Black Hole House Music 08-25 (2025) [MP3|320 Kbps] <House, Progressive Hous
 magnet:?xt=urn:btih:9B164E0F59796ABE4A55163D918E2A930ED37FCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ VA - Armin van Buuren - A State Of Trance 1238 (2025) [MP3|320 Kbps] <Trance, Pr
 magnet:?xt=urn:btih:01A5464FE933CE92AA22AAAC6835894794DCECF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:01A5464FE933CE92AA22AAAC6835894794DCECF6
 ```bash
 magnet:?xt=urn:btih:698EB671BFBBF097485D870D656C2546A9C79FA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:698EB671BFBBF097485D870D656C2546A9C79FA2
 ```bash
 magnet:?xt=urn:btih:7915C58AB58E40EFF4303FCD90064C7DB6D2CB49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ Maroon 5 - Love Is Like (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Pop Roc
 magnet:?xt=urn:btih:22B38D5D0DECB891D2A3B46435A6F18D471A7DE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ The Cranberries - No Need To Argue (1994) 30th Anniversary / Super Deluxe Editio
 magnet:?xt=urn:btih:FEBE033FF1273B70A39416F165B58A895D8FD9D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:FEBE033FF1273B70A39416F165B58A895D8FD9D8
 ```bash
 magnet:?xt=urn:btih:A2288D435A0EBF648CD0CE2D4C64DE021071E1FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:A2288D435A0EBF648CD0CE2D4C64DE021071E1FF
 magnet:?xt=urn:btih:ABBA6841808A76DED24C1AA562A1AEC93223D1DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:ABBA6841808A76DED24C1AA562A1AEC93223D1DE
 ```bash
 magnet:?xt=urn:btih:808EB996965DD5B77A9F0B6A91021CB48B7A3B34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:808EB996965DD5B77A9F0B6A91021CB48B7A3B34
 magnet:?xt=urn:btih:0E9EA05F804BB0F8338FDCA33E824B3A1316B059
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:0E9EA05F804BB0F8338FDCA33E824B3A1316B059
 ```bash
 magnet:?xt=urn:btih:3747EB0D947A5FA498E7965369ACDCBAC780996B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:3747EB0D947A5FA498E7965369ACDCBAC780996B
 magnet:?xt=urn:btih:C85FE78E10B23F4C2EB0D4706DA681ED6170445B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:C85FE78E10B23F4C2EB0D4706DA681ED6170445B
 magnet:?xt=urn:btih:9F00593735477194294CCD413F8D898B072658DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:9F00593735477194294CCD413F8D898B072658DA
 ```bash
 magnet:?xt=urn:btih:7E08DC272512CE3721C902339F48D11E3DB71A81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ The Cranberries - No Need To Argue (1994) 30th Anniversary / Super Deluxe Editio
 magnet:?xt=urn:btih:03554744EB30C6DB53839565BEA4BA93F3FB96BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ VA - Black Hole Trance Music 08-25 (2025) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:04486ABA40E74224823B13F554A31E8D4E3D4D01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:04486ABA40E74224823B13F554A31E8D4E3D4D01
 ```bash
 magnet:?xt=urn:btih:55DC502E599BE8B4E8B85A7CD3DF7B06EC34FE7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:55DC502E599BE8B4E8B85A7CD3DF7B06EC34FE7F
 magnet:?xt=urn:btih:E4DAD7855AB9BA1701AF338F7F2A89C8F1E54667
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:E4DAD7855AB9BA1701AF338F7F2A89C8F1E54667
 ```bash
 magnet:?xt=urn:btih:9B4C53B1A1C5A09EC0A34BE6A8177D91CE48FBC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +537,8 @@ Hammer King - Make Metal Royal Again (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 magnet:?xt=urn:btih:5B4A51AFCE9636813E4539BC142E07F1A435F1CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ The Cranberries - No Need To Argue (1994) 30th Anniversary / Super Deluxe Editio
 magnet:?xt=urn:btih:69FCC87B0AEBACE35BF28976D83D31AFAC083554
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ magnet:?xt=urn:btih:69FCC87B0AEBACE35BF28976D83D31AFAC083554
 ```bash
 magnet:?xt=urn:btih:5E68F05EEC2601DF4BC41BA8B63E8F3B500DCBAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +621,8 @@ magnet:?xt=urn:btih:5E68F05EEC2601DF4BC41BA8B63E8F3B500DCBAA
 magnet:?xt=urn:btih:F1BC4300181B1693D587D41F5E1E5CE1AEFA4593
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +649,8 @@ Whitesnake - Compilation (1978-2019) [MP3|320 Kbps] <Hard rock, Blues rock>
 ```bash
 magnet:?xt=urn:btih:4C1C45429881689B921D9E578CE4F40018919635
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +679,8 @@ Queen - B-Sides (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Rock, Gl
 magnet:?xt=urn:btih:62C7BCD950B6DD878F6BE08810E0BCBE0D547EBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +707,8 @@ VA - Music News For Forum vol.126 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:9C6084DAC02B75453EDF18E452999AF860B9D2EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

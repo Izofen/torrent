@@ -19,6 +19,8 @@ Shenmue III (3) (2020) [Multi] (1.06.01/dlc) License GOG
 magnet:?xt=urn:btih:F15158197A6AEE2017080CF1E41E4AB6A6BB6E6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Entomorph: Plague of the Darkfall [En] (RePack) 1995 | RG Games
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NDIKA — игра от третьего лица с историей о стр�
 magnet:?xt=urn:btih:044E82A3CD459974A4CDA603418114E71F402639
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Escape from Duckov (2025) [Ru/Multi] (1.2.5) Repack Necros
 ```bash
 magnet:?xt=urn:btih:1CEA6AEB0580EA7A0FAF038D9DE3E6A548AAB182
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Escape from Duckov (2025) [Ru/Multi] (1.0.20) Repack FitGirl
 magnet:?xt=urn:btih:493F6330D2DA08C351EA2AB5A9FD73BF500019F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Nancy Drew: Legend of the Crystal Skull / Нэнси Дрю: Легенда о �
 ```bash
 magnet:?xt=urn:btih:511A30F94D6DD884C5F4676890E320CAAEF0FEA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Still Life 1, 2 (2005-2009) [Ru/En] (1.00) Repack R.G. Catalyst [Dilogy / Дил
 magnet:?xt=urn:btih:C92BBEBF91177712AF18909262D91B80F749452B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ TimeQuest [En] (RePack) 1991 | RG Games (Pilotus)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Syberia / Сибирь (2002) [Ru/Multi] (1.0.0hf4) License GOG
 ```bash
 magnet:?xt=urn:btih:B1AFB0D269712CF77AFC9018177D357BE09C574E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Adventures of Maddog Williams in the Dungeons of Duridian [En] (RePack) 1992 | P
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Nostradamus: The Last Prophecy – квест от первого лица, со
 ```bash
 magnet:?xt=urn:btih:E19E19E9250D6AE20C337890F7ABB88D608F4D47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:E19E19E9250D6AE20C337890F7ABB88D608F4D47
 magnet:?xt=urn:btih:B3320995F2D2F440FCC1D7A31A93CB5BACE34521
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Radiolight (2025) [Multi] (0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:6E81BAD5D85D229FC8BA1A417F8124B5BBF459E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Phoenix Wright Ace Attorney Trilogy (2019) [Ru/Multi] (Build 20282248) Repack Le
 magnet:?xt=urn:btih:5F2957649378A6A56E2DD10C3925642C576ED01D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Granny Remake — захватывающий хоррор, где ваша це�
 ```bash
 magnet:?xt=urn:btih:B541CA66423EE78684EFD251A239481D2C1E5F6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0) Repack xatab [Episode
 magnet:?xt=urn:btih:8A27A59BDEC7C35DAA72C64618C01CA981A89FC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ Black Mirror (2017) [Ru/Multi] (1.1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:A2FA14B1E7E7518451D0C6DC32F5395EC77F6AB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ Mind: Path to Thalamus – головоломка с видом от перво�
 magnet:?xt=urn:btih:B1F2920DC68F62C428CE227B1259DEC4DDE48A8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ Heavy Rain (2019) [Ru/Multi] (1.0/build 362) Repack Other s
 ```bash
 magnet:?xt=urn:btih:8AE50354949DE0BD8CB8C9FE21D9B6524129357B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ The Lift (2018) [Ru/En] (1.0) Repack Other s
 magnet:?xt=urn:btih:A27BF9280F15B144A10EF8D9517866234F4E433B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ Asterix & Obelix XXL 3 - The Crystal Menhir продолжает приключ�
 ```bash
 magnet:?xt=urn:btih:4B7FDBA4825BE5A005CF268BE81635979D8E3C16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ Heavy Rain (2019) [Ru/Multi] (build 362) License CPY
 magnet:?xt=urn:btih:D10FD63466B4EF2FF1C5D46A0FDA53A6F2BBF1B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ Tacoma (2017) [Ru/Multi] (121417) License GOG
 ```bash
 magnet:?xt=urn:btih:7CECDFCB3A61B6466B5A60C1D3C3CBB1DFB85670
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ Sherlock Holmes: Nemesis / Шерлок Холмс против Арсена Л�
 magnet:?xt=urn:btih:18D2DD9A95801F5BF22495E0F978767A32A5DAF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ Brukel (2019) [Ru/Multi] (1.0.2) Repack Other s
 magnet:?xt=urn:btih:4964430258A36757A98474DB7CB65DD0B0DCBC44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Sherlock Holmes: The Case of the Silver Earring / Шерлок Холмс. За�
 ```bash
 magnet:?xt=urn:btih:06054824574DFE95AFEC8B274861789A815B3897
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ MWeb оддерживает расширенный синтаксис Github: TO
 magnet:?xt=urn:btih:772C3728625E007B449313AE0B3D4A68B411790B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ June Christy - Big Band Specials (1962) 1999, Capitol Jazz [FLAC|Lossless|tracks
 magnet:?xt=urn:btih:D703EA38DB2E48E46D8C4F133827B8CA7EF71E10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ Downie поддерживает более 1,000 популярных сайто
 magnet:?xt=urn:btih:E23DEE45173CA402141877A1B1ACA67B71961B3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ A Better Finder Rename является лучшим решением для а�
 ```bash
 magnet:?xt=urn:btih:59D90A6689F826D803E8920F154AC446E56A36AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:59D90A6689F826D803E8920F154AC446E56A36AE
 magnet:?xt=urn:btih:B517CA2CB53EA6ADD22545BE1138BA193C52E89C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:B517CA2CB53EA6ADD22545BE1138BA193C52E89C
 ```bash
 magnet:?xt=urn:btih:B08A93F374B28FCCF358705F647666B4B8FCF0E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ VA - Velvet Grooves Volume Nocturne (2015) [MP3|320 кб/с]<Deep House>
 magnet:?xt=urn:btih:3F787E943E26D1579ED68C9F0A288CDC97418807
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:3F787E943E26D1579ED68C9F0A288CDC97418807
 magnet:?xt=urn:btih:F7650CBB8DDB040F7B4F9A99C32E5FE8A03B5E52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:F7650CBB8DDB040F7B4F9A99C32E5FE8A03B5E52
 ```bash
 magnet:?xt=urn:btih:3A7A8C82A8EF90670AC634CB9CC459870B2E6F34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:3A7A8C82A8EF90670AC634CB9CC459870B2E6F34
 magnet:?xt=urn:btih:313A07CFCFDC10AF03FBDCE374C941E17FCC0A50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:313A07CFCFDC10AF03FBDCE374C941E17FCC0A50
 ```bash
 magnet:?xt=urn:btih:07C37367238ADF415B550106869FEEAB7696F533
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ Art Farmer - Art Worker (1968) 2014, Studio Songs[FLAC|tracks+.cue]<Hard Bop, Co
 magnet:?xt=urn:btih:CEA54912DE3A7B705BDFE742CF8A0566D2B670BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ iExplorer - утилита для (   Читать дальше...   )Тип и
 ```bash
 magnet:?xt=urn:btih:5D5DD989FBE965B0B55AF26973801BE8A6812102
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ VA - Pure Chill & Ambient Vol.02 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 magnet:?xt=urn:btih:5EEAC60BB9DC624594482CB2590BA5A5FAE0E713
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ VA - Underground Trance Vol. 1 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:7C521957920119A32568BB585560ED15841C8396
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +437,8 @@ magnet:?xt=urn:btih:7C521957920119A32568BB585560ED15841C8396
 magnet:?xt=urn:btih:356408E920B990CB327747EADCC7F8A926BF451A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ magnet:?xt=urn:btih:356408E920B990CB327747EADCC7F8A926BF451A
 ```bash
 magnet:?xt=urn:btih:12F072264F282A2181EDBF3766FC48A4B2A4A68A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +492,8 @@ CD1:
 magnet:?xt=urn:btih:DC9187879AD5387F8A78773A9F4D2C7F22E49F89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +520,8 @@ magnet:?xt=urn:btih:DC9187879AD5387F8A78773A9F4D2C7F22E49F89
 ```bash
 magnet:?xt=urn:btih:28F4383D509C125281E24B2FDF61018B7595668E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +550,8 @@ magnet:?xt=urn:btih:28F4383D509C125281E24B2FDF61018B7595668E
 magnet:?xt=urn:btih:EB0D919C1948D749B888D97EDF404AF2BC1C04A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +578,8 @@ magnet:?xt=urn:btih:EB0D919C1948D749B888D97EDF404AF2BC1C04A9
 ```bash
 magnet:?xt=urn:btih:80EAAD901BBCBA4DE3F2B21F4C2128F9CE812AEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +608,8 @@ magnet:?xt=urn:btih:80EAAD901BBCBA4DE3F2B21F4C2128F9CE812AEA
 magnet:?xt=urn:btih:67CE1BBCA1E5896FA93D7279C6AC3E3673111E1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +637,8 @@ Vince Benedetti - Hardbop World (2008) TCB Records [FLAC|Lossless|image + .cue] 
 magnet:?xt=urn:btih:D032216FF2B49BD63F75636BFE7AD94D60BB520B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +665,8 @@ Havantepe - Robo Owl EP (2018) Luck Of Access [FLAC|Lossless|tracks|Vinyl] <Deep
 magnet:?xt=urn:btih:974CF0D45B42AFA2FF011C1E20006197AD660C6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +691,8 @@ magnet:?xt=urn:btih:974CF0D45B42AFA2FF011C1E20006197AD660C6E
 magnet:?xt=urn:btih:A4AEF1AE92E72F0B1E67331242758F38ED5F2398
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +716,8 @@ magnet:?xt=urn:btih:A4AEF1AE92E72F0B1E67331242758F38ED5F2398
 ```bash
 magnet:?xt=urn:btih:20F2938E47FA211B1621B5BD3A775365CE200EC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

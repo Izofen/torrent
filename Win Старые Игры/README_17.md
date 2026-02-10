@@ -19,6 +19,8 @@ The Wheel of Time (1999) [En] (333b) License GOG
 magnet:?xt=urn:btih:119EEE06B95985C767E80F71DD41A5A6AD38E86A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ MechCommander 2 (2001) [Ru/En] (2.2.0.5) Repack Necros
 ```bash
 magnet:?xt=urn:btih:EF184C3EC743A49287643A6DC342F9E35B97431D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ MechCommander Gold – фантастическая тактика в реаль
 magnet:?xt=urn:btih:BE7256AF0B3BA363383E046492437E3E13AFDDB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Castle Strike (2004) [Ru] (1.2) Repack Necros
 ```bash
 magnet:?xt=urn:btih:17675A70AFD6069E2009300EB91D7A0B2D84CF56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Challenge of the Five Realms (RePack) [En] 1992 | Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Comanche 4 представляет собой вертолетный симул
 ```bash
 magnet:?xt=urn:btih:C8CDA0F6E75434BE64342F616717AC69A92E8E1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Industry Giant 2 / Промышленный гигант 2 (2002) [Ru/Multi] (2.
 magnet:?xt=urn:btih:A5AD6AF61E6F891FADEB72599820BB730510D9B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Uru: Ages Beyond Myst (2003) [Ru] (1.0) UInofficial
 ```bash
 magnet:?xt=urn:btih:24D92F7A47C51AA704EB5713FF3AB9207E954B60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Hitman: Codename 47 (2000) [En] (b192 v2) License GOG
 magnet:?xt=urn:btih:88B623F901792936E77F503324DC172A2C0A4C32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Total Control (RePack) [Ru] 1995 | Pilotus
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Rival Realms (P) [Ru] 1998
 magnet:?xt=urn:btih:85BCA4CE2ACFA04AF79A5EF8EE7F9506D127CD98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Defender of the Crown (1986) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:C285383C620FA0AC446D0C7FDAE169FC2272C38C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Heroes of Might and Magic (1996) [Multi] (1.5 editor fix) License GOG
 magnet:?xt=urn:btih:D6431622859913977485BF5CB1C63598C14A3156
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Death Rally [En] (RePack) 1996
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Shade: Wrath of Angels - это леденящая кровь история, п
 magnet:?xt=urn:btih:FE1530DC39B06803EE8FD00B050F0CB690BE4415
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Painkiller / Крещёный кровью (2004) [Ru] (1.64) Repack Necros
 ```bash
 magnet:?xt=urn:btih:3DD7D99E1100F7BEB15CDAAEDBAF88258DC0BF40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Unreal [En] (RePack) 1991 | Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Kabus 22 / Зона 22 Территория страха [Ru] (P) 2007
 ```bash
 magnet:?xt=urn:btih:CC26535687D85B04D2157679B4EAA81EE543BEC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Star Wars: Knights of the Old Republic 2 (II): The Sith Lords (2005) [Multi] (1.
 magnet:?xt=urn:btih:09E1779CDC0C5A40242531A627DF01ED8409E10E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Prototype (2009) [Ru/Multi] (1.0.0.1) License
 ```bash
 magnet:?xt=urn:btih:4522EE202E2AA6EF3C3AAB5873C7A26C44EEC601
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Warcraft III (2002) [Ru] (1.29.2/dlc) Repack Necros
 magnet:?xt=urn:btih:26DB5CEA5236B946E46DCBE69E74B10FB4BD27A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Magic Candle Антология [En] (RePack) 1989-1993 | Pilotus
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Smurfs - это классический приставочный платфор
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ ArcaniA (2010) [Multi] (1.0.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:9CF692B5BD06856D30B20C6A27CFC202F09E6158
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Venetica – игра в жанре CRPG, выпущенная в 2009 году 
 magnet:?xt=urn:btih:EB61A29170B2AB7AFBD4AD20A221BC348016E741
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Hard to Be a God – ролевое приключение в стиле нау�
 ```bash
 magnet:?xt=urn:btih:A91E3E5576ADAFDD0D2210462E0F325B0503A067
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

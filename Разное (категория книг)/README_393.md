@@ -1,3 +1,29 @@
+###  Публикация: 918160   (587694) от 14.07.2015
+
+Дэвид Марке | Разверните ваш корабль. Жесткий менеджмент от капитана лучшей подводной лодки США (2014) [PDF]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга написана командиром атомного подводного ракетоносца Santa Fe, капитаном Дэвидом Марке. Когда его назначили руководить командой подлодки, у Santa Fe были серьезные проблемы с дисциплиной и выполнением боевых задач. Лодка считалась "гиблым местом", где можно было легко загубить офицерскую карьеру. За несколько лет Марке преврати лее в образцовый боевой (   Читать дальше...   )Жанр: БизнесФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:975CEB986FAC26442B6DCAD494FB304F3FA0159D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918109   (587712) от 14.07.2015
 
 Ричард Румельт | Хорошая стратегия, плохая стратегия. В чем отличие и почему это важно (2014) [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:D95A4EE2431F5F05034DDD8F6D77A7CA399591B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:D95A4EE2431F5F05034DDD8F6D77A7CA399591B9
 ```bash
 magnet:?xt=urn:btih:21EC8F73009D7DDAEFF5A4FF0FC75D13E7A0DDA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:21EC8F73009D7DDAEFF5A4FF0FC75D13E7A0DDA1
 magnet:?xt=urn:btih:07D31034D4807A0D3BD15639ACEE477949D2455E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:07D31034D4807A0D3BD15639ACEE477949D2455E
 ```bash
 magnet:?xt=urn:btih:BC961BCDBF9B9F732569C2192FAD75BFA88B313A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +154,8 @@ magnet:?xt=urn:btih:BC961BCDBF9B9F732569C2192FAD75BFA88B313A
 magnet:?xt=urn:btih:6749D106097B2F841CDDE3C266A8960F8D737869
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +182,8 @@ McKinsey — это знак качества в сфере консалтинг
 magnet:?xt=urn:btih:29C4525741D622C823D4117550017E06D674153D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +208,8 @@ magnet:?xt=urn:btih:29C4525741D622C823D4117550017E06D674153D
 magnet:?xt=urn:btih:90D40A807F26C5CEEB402E9D4F158E5465CAD584
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +233,8 @@ magnet:?xt=urn:btih:90D40A807F26C5CEEB402E9D4F158E5465CAD584
 ```bash
 magnet:?xt=urn:btih:E96236B3F68E44D54A87DE84B3833ED8B8212A08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +262,8 @@ magnet:?xt=urn:btih:E96236B3F68E44D54A87DE84B3833ED8B8212A08
 magnet:?xt=urn:btih:FEBC1AD81DE9B03C2F3035B1CC9BCDFA2C68D64D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +289,8 @@ magnet:?xt=urn:btih:FEBC1AD81DE9B03C2F3035B1CC9BCDFA2C68D64D
 ```bash
 magnet:?xt=urn:btih:F2FBB0E4ABE91753FBBD08E295855121CC721596
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +318,8 @@ magnet:?xt=urn:btih:F2FBB0E4ABE91753FBBD08E295855121CC721596
 magnet:?xt=urn:btih:87DA2FAB9212F2979166963A9D71ED049B5C5FD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +344,8 @@ magnet:?xt=urn:btih:87DA2FAB9212F2979166963A9D71ED049B5C5FD8
 ```bash
 magnet:?xt=urn:btih:71C8095980134E35E2696248B08FA3A411C8087C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +374,8 @@ Cмешав правду и вымысел, знаменитый автор Ба
 magnet:?xt=urn:btih:21944568328B353354B866B6893ED005CD242F93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +399,8 @@ magnet:?xt=urn:btih:21944568328B353354B866B6893ED005CD242F93
 ```bash
 magnet:?xt=urn:btih:F6FFA214C62C742C6FE0D1CC214E04648CFEFD10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +426,8 @@ magnet:?xt=urn:btih:F6FFA214C62C742C6FE0D1CC214E04648CFEFD10
 magnet:?xt=urn:btih:5E73A84E4FB1C76412E8D7D6B87139A06C3A8688
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +451,8 @@ magnet:?xt=urn:btih:5E73A84E4FB1C76412E8D7D6B87139A06C3A8688
 ```bash
 magnet:?xt=urn:btih:906F082DDD4E27DDF8970AEAC2DFA6FF3B049F34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +478,8 @@ magnet:?xt=urn:btih:906F082DDD4E27DDF8970AEAC2DFA6FF3B049F34
 magnet:?xt=urn:btih:0A6CD04823ABF051462B6F3E3175B374AF6AFCE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +503,8 @@ magnet:?xt=urn:btih:0A6CD04823ABF051462B6F3E3175B374AF6AFCE3
 ```bash
 magnet:?xt=urn:btih:95EA523C2A3C796E25382E317333CA3EA004431C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +531,8 @@ magnet:?xt=urn:btih:95EA523C2A3C796E25382E317333CA3EA004431C
 magnet:?xt=urn:btih:9A639B20806896E8F276FAEFD699172393AC1556
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +557,8 @@ magnet:?xt=urn:btih:9A639B20806896E8F276FAEFD699172393AC1556
 magnet:?xt=urn:btih:D81A23DE7645E9EFE97DAA7C9215E2233A6AE13E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +582,8 @@ magnet:?xt=urn:btih:D81A23DE7645E9EFE97DAA7C9215E2233A6AE13E
 ```bash
 magnet:?xt=urn:btih:AF181959ED93045723CA0FC4346B3DECF6FFA6E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +611,8 @@ magnet:?xt=urn:btih:AF181959ED93045723CA0FC4346B3DECF6FFA6E8
 magnet:?xt=urn:btih:F658704FB388EDDB5CD30F028B7075E38980CA16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +638,8 @@ magnet:?xt=urn:btih:F658704FB388EDDB5CD30F028B7075E38980CA16
 ```bash
 magnet:?xt=urn:btih:E1F1D20A35E8E8EC42C25CED1E046C9794DED7C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +669,8 @@ XXI века.
 magnet:?xt=urn:btih:26A7526D138D6AFEFC16D30EA69D5C84572A2B5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,32 +697,7 @@ magnet:?xt=urn:btih:26A7526D138D6AFEFC16D30EA69D5C84572A2B5A
 magnet:?xt=urn:btih:6E68BCD450CAD446FE9D742DE6779B2CB3CD4F88
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 809233   (588387) от 31.07.2014
-
-Шри Рамагаджананда | Метафизические аспекты судьбы, или Выход из заколдованного круга (2005) [DJVU]
-
->>Разное (категория книг)
->>Эзотерика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Взаимосвязь уровня духовной зрелости личности с информационной структурой ДНК.
-Взаимосвязь потребностей, мотивов и установок человека с его кармой...
-Предопределение как реальный закон природы и космоса...
-Вот лишь немногое, что вы узнаете из этой поразительной книги!Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7457A4A06EA22A8844D3C9879C256B409AE8B6F2
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

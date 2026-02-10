@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:40FC5E40E806650361036B41874E60F4C3BECC35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Two Steps From Hell - Battlecry Anthology (2017) [FLAC|Lossless|WEB-DL|tracks + 
 ```bash
 magnet:?xt=urn:btih:7079C78F6527448F6F00FC8C5ACFA852FC8BFE6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ The Seven Seas - 1984
 magnet:?xt=urn:btih:F5B9E73F9E4A0DD800F6F09BC2FE19427F6FB8D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Pekka Tiilikainen & Beatmakers - Rautalanka Collection (2006) [MP3|320 кб/с] 
 ```bash
 magnet:?xt=urn:btih:D82D85A3DE3C898376A63D8B9EB130ABCA39A4BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol. 5 (1990) [MP3
 magnet:?xt=urn:btih:181879192174FD9CD2A8CA09379D73B36B01C049
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Are You Lonesome Tonight. 23 Romantic Instrumentals (unknown year) Unoffici
 ```bash
 magnet:?xt=urn:btih:31678EAE6D17502EBD2926752D2D62584AF40E98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Geoffrey Downes - Evolutio (1994) [MP3|320 кб/с] <Instrumental, Electronic, S
 magnet:?xt=urn:btih:8CC7605EBB949CF4B673882967E07FBD6E1E74C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ Tanya Tucker - 16 Biggest Hits (2006) [MP3|320 кб/с] <Country>
 ```bash
 magnet:?xt=urn:btih:6CFE25CEBDF059E380D7985EDB1672A406322ADE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ VA - Los clasicos argentinos - Tango - Vol.14 - Eladia Blazquez: La cuidad y su 
 magnet:?xt=urn:btih:B79532E43745F432E3CA02F0AEFCF903A4FAEA7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ John Carpenter, Cody Carpenter and Daniel Davies - Halloween (Original 2018 Moti
 ```bash
 magnet:?xt=urn:btih:FC4453334C33B5677D38C90E5A7A29B68293B2E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ VA - Absolute Country (1995) [APE|Lossless|image + .cue] <Country, Folk>
 magnet:?xt=urn:btih:1CDFDF806C49E7AD3155324AAD6974575676B9C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,8 @@ Paul Mauriat - The Seven Seas & Summer Has Flown (2016) [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:9C7540F1C2311F6A9EAE32A6281BC0D9E6620451
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +367,8 @@ magnet:?xt=urn:btih:9C7540F1C2311F6A9EAE32A6281BC0D9E6620451
 magnet:?xt=urn:btih:D49D35A5FD9E2051E14C4EF2273B11455C941507
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +395,8 @@ magnet:?xt=urn:btih:D49D35A5FD9E2051E14C4EF2273B11455C941507
 ```bash
 magnet:?xt=urn:btih:491F5CE7FB914D70E812C83B2CE7B99FFC829473
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +425,8 @@ The Sleep Principle - Dreams of Luna (Music for Sleeping) (2016) [MP3|320 кб/�
 magnet:?xt=urn:btih:C5AC0A231C965A199D35252C58A035A495FBAF67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +453,8 @@ Alice Coltrane - World Spirituality Classics 1 (2017) [MP3|320 Kbps] <New Age, F
 ```bash
 magnet:?xt=urn:btih:296CC8D84C697A3E71AB0550D9B646726E7C9412
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +483,8 @@ VA - Yoga Mantras & Dance: Power Yoga Music & Ecstatic Dance Beats (2014) [MP3|3
 magnet:?xt=urn:btih:E41E0A47E1C0A5689D6484EAA6A9ECFE219D8286
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +511,8 @@ Deep Forest - Evo-Devo (2016) [FLAC|Lossless|WEB-DL|tracks] <New-Age, Ambient, E
 ```bash
 magnet:?xt=urn:btih:7456F8C8F00799897E4C9B8211946803B158340F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +541,8 @@ Deep Forest - Evo-Devo (2016) [MP3|320 кб/с] <New-Age, World-Music, Electroni
 magnet:?xt=urn:btih:3780AB8F12DB65DB6A7E7371B2F12CFF03617A96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +569,8 @@ VA - Потанцуем (2002) 3 CD [FLAC|Lossless|tracks] <Instrumental, Dance>
 ```bash
 magnet:?xt=urn:btih:7E7713A6342244389A439CFB2C1D5FB66F5D9B7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +599,8 @@ Willie Nelson - The Willie Nelson Family (2021) Japanese Edition [FLAC|Lossless|
 magnet:?xt=urn:btih:6DAAA1516C62C0E7C78C04146FAA8BA8D8EE8816
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +627,8 @@ VA - Waykey (2007) [FLAC|Lossless|tracks + .cue]<Ethnic, Folk, New Age>
 ```bash
 magnet:?xt=urn:btih:97F734439DE8C2C7648D7B9D74685A2D2AD3AAA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +657,8 @@ Anais Mitchell (Anaïs Mitchell) - Xoa (2014) [FLAC|Lossless|WEB-DL|tracks] <Ind
 magnet:?xt=urn:btih:69E765ED9AEF941460BAAA88069FA884F486B719
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +685,8 @@ magnet:?xt=urn:btih:69E765ED9AEF941460BAAA88069FA884F486B719
 ```bash
 magnet:?xt=urn:btih:F281B0BA47E620E6A39AD43EBD9E5684567F3743
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +715,8 @@ Anais Mitchell (Anaïs Mitchell) - Anais Mitchell (Anaïs Mitchell) (2022) [FLAC
 magnet:?xt=urn:btih:8F9835910F7B21D765902FD1AF28F2DB8BAAB751
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:B774D1B7CD624CC283946AFFEE9583CAF968897C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

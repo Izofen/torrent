@@ -22,6 +22,8 @@ Liveclasses, Антон Мартынов | Практика генерации �
 magnet:?xt=urn:btih:872D46D31D6DAD06645051D0149D3E7AE794203E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Udemy | IELTS Daily - Speaking Starter Course (2021) WEB-DL [En / En Sub]
 magnet:?xt=urn:btih:EF447833F5D35A5576A1D6471FA4B867CB2D40B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Udemy, Anthony Kelleher | English Grammar Launch Advanced: Upgrade your speaking
 ```bash
 magnet:?xt=urn:btih:7212E05B3C543CD525EDF46FC2873BF2086A9818
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ Udemy, Roman Trukhtanov | CSS – Как анимировать интерфей
 magnet:?xt=urn:btih:07D573738BDF0030CDF188E3252823EA41A2468B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ Keda Z | Онлайн-класс по постобработке свадьбы 
 magnet:?xt=urn:btih:D69762A44CB51337E715A0FA62E3B506DFD279F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ Udemy, Hussein Nasser | Fundamentals of Database Engineering (2021) WEB-DL [En /
 ```bash
 magnet:?xt=urn:btih:4D6DDC7ED32D8F80249038E233C5F2F57E7A2001
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ Bulavina School, Дарья Булавина | Основы позировани
 magnet:?xt=urn:btih:0AD0EE171402F8E66FF6FD4DE83C8331572F9BF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ Helloluxx.com | MILG11. Hard Surface Modelling Tactics for Cinema 4D (2016) PCRe
 ```bash
 magnet:?xt=urn:btih:93FCBE2D7E4438CC45375E9264960D368B9A3045
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ SmartData — единственная в России специализиро�
 magnet:?xt=urn:btih:E078A289E23659D66D8FABA85852951A02D49BD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ Gumroad, Jad Saber | 3D рабочий процесс для концепт-ар
 magnet:?xt=urn:btih:3E267D9B8AB66197E009F25476BD62031DD2722B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ Eran Dinur | SPT201 SpeedTree Techniques for VFX (2018) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:063668F43F76B1B70274775C46F3AC744ED8A962
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:063668F43F76B1B70274775C46F3AC744ED8A962
 ```bash
 magnet:?xt=urn:btih:4C6B903E06197C4270A7BCFEE58A8F1FECC26987
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +350,8 @@ Kalacheva School, Анастасия Ермакова | Между светом 
 magnet:?xt=urn:btih:5526B07A9E11BB61BB5B6B104618ADAB5E688B05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ Hudozhnik Online, Ольга Кабаева | Природа акварелью 
 magnet:?xt=urn:btih:3598F728C21F487D34D0E5D564331C4381394F37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ Gumroad, Jad Saber | Дизайн стилизованный окружающе�
 magnet:?xt=urn:btih:628B8499EF53ED8318F1182CBD6831FBB2372583
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ Udemy, Holczer Balazs | Параллелизм, многопоточность �
 magnet:?xt=urn:btih:5A1CBD92CC2942DC988C50FCA975FB5BB8FBCDB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ magnet:?xt=urn:btih:5A1CBD92CC2942DC988C50FCA975FB5BB8FBCDB9
 ```bash
 magnet:?xt=urn:btih:7432C48E3A06948C33A43E27E888FCFDA20220ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +486,8 @@ Udemy, Clyde Matthew | *NEW* DOM 2020 Build Dynamic Websites with JavaScript Par
 magnet:?xt=urn:btih:2E7630B3F99359CE18EDBE45EEDB12D74D78748C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +512,8 @@ You Are Your Own Gym – это комплекс коротких трениро
 magnet:?xt=urn:btih:39F1BE20004EC25BA14A93131EC205E3519E9962
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +537,8 @@ Ryan Ribot | Stylized Creature Texturing (2015) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:32F29F9A004642E70B37CE32EB3F5BE2B753F37A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +565,8 @@ Udemy, Clyde Matthew | *NEW* JavaScript Complete Grandmaster 2020. Ongoing Updat
 magnet:?xt=urn:btih:5406FEF124C0944402225C01FA5E92A124A11122
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ Ryan Ribot | Stylized Creature Texturing Volume 3 (2015) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:240E1F76B9F353B8C83EA670A115AC5A559DB1D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +617,8 @@ Eran Dinur | PNT205 3D Plants and Digital Environments (2013) PCRec [En, Ru]
 magnet:?xt=urn:btih:1F990C12CDF534A276340CF0162257E091FEB78B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +642,8 @@ Ryan Ribot | Stylized Creature Texturing Volume 2 (2015) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:71C027B492B1DF21DC106291CF85CE1A53C2CB70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +672,8 @@ YO DO, Кирилл Семаев | Курс Linux v 2.0. От 0 до Linux Ад�
 magnet:?xt=urn:btih:524AAB92776D9775814F88957CB6139629ABCC4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ magnet:?xt=urn:btih:524AAB92776D9775814F88957CB6139629ABCC4D
 ```bash
 magnet:?xt=urn:btih:B39898EB948D6E294FA07C00A0E945AAE7D472BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

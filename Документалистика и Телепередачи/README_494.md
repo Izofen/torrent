@@ -1,3 +1,29 @@
+###  Публикация: 589261   (681412) от 16.06.2014
+
+Первый полёт человека в космическое пространство (1961) VHSRip
+
+>>Документалистика и Телепередачи
+>>Космос
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм посвящен первому в мире летчику-космонавту Юрию Гагарину и технической составляющей космического аппарата ВостокЖанр: ДокументальныйРежиссер: Григорий КосенкоПродолжительность: 00:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82914975D7F4BA0120C13C755930294FCECF0CD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 507582   (681440) от 09.06.2012
 
 Замки Шотландии. Форт Джордж. Керлаверок / The Сastles of Scotland. Fort George. Kerlaverok (1998) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:268C53416E9EDCF2AD17FD7FCF829EAD4C515BF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:268C53416E9EDCF2AD17FD7FCF829EAD4C515BF8
 magnet:?xt=urn:btih:AF4F79E7031CEBB18F6B1088E2B47C86AD689C86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:AF4F79E7031CEBB18F6B1088E2B47C86AD689C86
 ```bash
 magnet:?xt=urn:btih:0556CD72762D6966CE6D47893AAB11DAE094143E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:0556CD72762D6966CE6D47893AAB11DAE094143E
 magnet:?xt=urn:btih:91A3B20F3494DD69B6E3A182455B59B157BAD182
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:91A3B20F3494DD69B6E3A182455B59B157BAD182
 ```bash
 magnet:?xt=urn:btih:CB67BB68917A7AAACEDCC8EB530A1FFFCC7BD801
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:CB67BB68917A7AAACEDCC8EB530A1FFFCC7BD801
 magnet:?xt=urn:btih:28BCA8D9468CEBB65D3610A65CA817D4A487FA8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:28BCA8D9468CEBB65D3610A65CA817D4A487FA8B
 ```bash
 magnet:?xt=urn:btih:C514962279E18852312DDBB5A2086101ADEA411A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +234,8 @@ magnet:?xt=urn:btih:C514962279E18852312DDBB5A2086101ADEA411A
 magnet:?xt=urn:btih:EBE0FD5CEF57564D5EAAD689F74D5C5E7BF4E5FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +259,8 @@ magnet:?xt=urn:btih:EBE0FD5CEF57564D5EAAD689F74D5C5E7BF4E5FA
 ```bash
 magnet:?xt=urn:btih:0C1187361FC8BCCF024FDF495AEE0F95B318A0C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +286,8 @@ magnet:?xt=urn:btih:0C1187361FC8BCCF024FDF495AEE0F95B318A0C1
 magnet:?xt=urn:btih:7AF91B10E1CCC3C8A3ECEA9E441EFECE402881D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:7AF91B10E1CCC3C8A3ECEA9E441EFECE402881D8
 ```bash
 magnet:?xt=urn:btih:CE48C8D8C8D97BCB0D6B19700C275D78EEBA0EF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:CE48C8D8C8D97BCB0D6B19700C275D78EEBA0EF8
 magnet:?xt=urn:btih:2637784D32FC3D1295F6B716B7AADEA9AAD43370
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:2637784D32FC3D1295F6B716B7AADEA9AAD43370
 ```bash
 magnet:?xt=urn:btih:BF79EB051473908106449609309BDD36727413C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:BF79EB051473908106449609309BDD36727413C0
 magnet:?xt=urn:btih:6C45F495E6657C0682EFEDC50A6716C15F4EE683
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:6C45F495E6657C0682EFEDC50A6716C15F4EE683
 ```bash
 magnet:?xt=urn:btih:776AEE2CB65EF6A5D7562A5E0D5967A1C7A75EC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:776AEE2CB65EF6A5D7562A5E0D5967A1C7A75EC5
 magnet:?xt=urn:btih:EFADFDE5BAB9EA7B6CE07F1D0D4A78DA493DD5B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:EFADFDE5BAB9EA7B6CE07F1D0D4A78DA493DD5B6
 ```bash
 magnet:?xt=urn:btih:DFB5D82438D19ABA1B5CBB494CBE16575A002684
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:DFB5D82438D19ABA1B5CBB494CBE16575A002684
 magnet:?xt=urn:btih:FAD03392CECB7FEC37561B9B420D1D2B75398ADA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:FAD03392CECB7FEC37561B9B420D1D2B75398ADA
 ```bash
 magnet:?xt=urn:btih:2BE5BF39E93F8FAD9501F0B6293D568F00CF2664
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:2BE5BF39E93F8FAD9501F0B6293D568F00CF2664
 magnet:?xt=urn:btih:B632C19F9ECFA869E11A86901D3420C75C86C197
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:B632C19F9ECFA869E11A86901D3420C75C86C197
 ```bash
 magnet:?xt=urn:btih:62EE9DF3E62E369018D094CD5B8131F06634CA65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:62EE9DF3E62E369018D094CD5B8131F06634CA65
 magnet:?xt=urn:btih:E6E6FE36F65A5E3F1EDA96C04A426377262F98E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:E6E6FE36F65A5E3F1EDA96C04A426377262F98E3
 ```bash
 magnet:?xt=urn:btih:AACF48408112481E051017A43FAD0E64978E716B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +651,8 @@ magnet:?xt=urn:btih:AACF48408112481E051017A43FAD0E64978E716B
 magnet:?xt=urn:btih:C69A58139DC9731F9F97EB77A4C5F1B11AEF33B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,29 +677,7 @@ magnet:?xt=urn:btih:C69A58139DC9731F9F97EB77A4C5F1B11AEF33B9
 нет
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222738   (683022) от 30.04.2018
-
-Все дороги ведут в Африн (2017) WEB-DLRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девушка переходит границу с Сирией, чтобы увидеть отца и его новую семью. В городе ещё держится мир. Война где-то рядом, а здесь и сейчас главное — это тот самый вопрос. И дочь, наконец, задаёт его отцу.Производство: РоссияЖанр: Документальный, короткометражный, драмаРежиссер: Арина АджуСубтитры: русскиеПродолжительность: 00:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF4B9271B4ED95F0185E65A80F420A9F6D82DAAD
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

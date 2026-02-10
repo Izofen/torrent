@@ -19,6 +19,8 @@ The Simulacrum погружает игроков в увлекательный �
 magnet:?xt=urn:btih:BB0B37D2B79D176173B62CF5C34257750F2F1037
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Crimsonland (2014) [Ru/Multi] (1.3.5) License GOG
 ```bash
 magnet:?xt=urn:btih:2FB8E0ECAC90AB43282B9513EFF9BE23C386916F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ LEGO Star Wars: The Skywalker Saga (2022) [Ru/Multi] (1.0.9/dlc) Repack dixen18
 magnet:?xt=urn:btih:17EFF178B176F3C8FC7BC9F008032B845ECA17B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ SpongeBob SquarePants: The Cosmic Shake (2023) [Ru/Multi] (1.4b/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:FF9B1A16F6A1AF8A7B3A255355486C889508524F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Street Fighter X Tekken [Ru] (RePack) 2012 l Fenixx
 magnet:?xt=urn:btih:2765BD3845B639D02FFD0B94DBB17AC7B488139D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Insanely Twisted Shadow Planet [Ru] (RePack/1.0r9) 2012 l Fenixx
 ```bash
 magnet:?xt=urn:btih:B61DDA272B1843F26CCB1F06B8BB7C812ADCCDDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Street Fighter x Tekken [Ru/En] (RePack) 2012 | R.G. Origami
 magnet:?xt=urn:btih:29B1435AA311C6AAA0774EBB713D113BCF5DF026
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Alien Shooter 2 - Легенда это масштабное продолжен�
 ```bash
 magnet:?xt=urn:btih:EA554296A49702D5C8293D00A34BC188EA14FC9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Shotgun Cop Man (2025) [Ru/Multi] (20251028_1119) Repack Necros
 magnet:?xt=urn:btih:FE426234169D233260B8462BADD1036C7B6B8B0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ BALL x PIT — рогалик на выживание с разбиванием 
 ```bash
 magnet:?xt=urn:btih:82F506E5EB51A8A6A7117A74BCA581290EA0D3A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Lego Indiana Jones 2: The Adventure Continues / LEGO Indiana Jones 2: Прикл
 magnet:?xt=urn:btih:615A6E99038440E59F1EC1418695C358A5BA32D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Unreal [En] (RePack) 1991 | Pilotus
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Sonic Racing: CrossWorlds (2025) [Ru/Multi] (1.1.2) Repack FitGirl
 magnet:?xt=urn:btih:87DE6ED539B67ADF03F47061C34D324F18D46B50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Hunter×Hunter Nen×Impact (2025) [Multi] (1.1.1/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:FCED184D787398C8BE3FB21C02513D941D2F52AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Sonic the Hedgehog 4: Episode II является продолжением Sonic
 magnet:?xt=urn:btih:ED1D670A6F241AD1EAB12A5E4FBA37BB79734DEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Sonic the Hedgehog 4: Episode II является продолжением Sonic
 ```bash
 magnet:?xt=urn:btih:E67C0CF0D77B4C12CA29DEDEE0B260F825B0F76C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Smurfs - это классический приставочный платфор
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Curse of the Dead Gods (2021) [Ru/Multi] (1.24.4.6b) License GOG
 ```bash
 magnet:?xt=urn:btih:E9209032A009F88E56622747771BA8E51AAEF96F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ City of Beats (2023) [Multi] (20230427) License GOG
 magnet:?xt=urn:btih:FBCD1D38A0C9F7DED9D82B821746E069BBFB46E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Arto - это яркий приключенческий экшен с элеме
 ```bash
 magnet:?xt=urn:btih:CBFDB4F468D3B92FFB479E17095884600C62ACA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Shieldwall (2023) [Ru/Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:0B9B42006DCAB7E1977FF7FF8D80A1453F0B33A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Archvale (2021) [Ru/Multi] (1.3) License GOG
 ```bash
 magnet:?xt=urn:btih:FF05C7D51BC3C41FDE5485A30BA2B24901C0440B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Mokoko X (2023) [Ru/Multi] (1.03/dlc) License GOG [18+]
 magnet:?xt=urn:btih:AACBAE8D8C7C4EAA562AB3CB089DB9C26384D970
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Beyond Contact – это симулятор выживания в открыт�
 ```bash
 magnet:?xt=urn:btih:51A8DD934416FD9ED6423000BE251B9D22146124
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Space Dude [En] (RePack) 1994 | RG Games (Pilotus)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Troublemaker 2: Beyond Dream (2025) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:52642E8F577A9FEC6C0E568B7BFF253781C7B0A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

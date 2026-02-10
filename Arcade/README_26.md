@@ -19,6 +19,8 @@ Magicka 2 (2015) [Ru/Multi] (1.2.0.0/dlc) Repack R.G. Механики [Deluxe E
 magnet:?xt=urn:btih:741E650BF58CBC6F5C406E53C5B616DE49B08702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ World's End Club (2021) [Ru/Multi] (0.0.0+hotfix) License CODEX
 ```bash
 magnet:?xt=urn:btih:B9058ED09292240E82FB1A453AAAF4E27F09C38A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Bleak Sword DX (2023) [Ru/Multi] (0.3072001) License GOG
 magnet:?xt=urn:btih:51B765B8A4561D7F114A94E8B1513EF1B5B7D784
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Blue Fire (2021) [Ru/Multi] (5.0.5/dlc) License PLAZA
 ```bash
 magnet:?xt=urn:btih:80A823687E24B636F325C5B5FE2EF12CB5D5045B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Evoland 2 – ролевая RPG игра разработанная компа�
 magnet:?xt=urn:btih:DDA2BFF4E56B0C00490A575DD65E677F57AA18AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The Escapists: The Walking Dead (2015) [Ru/Multi] (Build 263) SteamRip Let'sРla
 ```bash
 magnet:?xt=urn:btih:4147E6A65D6F6F6F65BBD887E068960E4F1BD5D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Inside - это новая приключенческая хоррор игра 
 magnet:?xt=urn:btih:F46B4569DB0FE6F53553FFF9767170EE09C47E7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Magicka 2 (2015) [Ru/Multi] (1.2.0.0/dlc) SteamRip Let'sРlay [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:4C252816860AEE01C4E1813F67CBA4DB6BB66909
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Helldivers (2015) [Ru/Multi] (Build 901447/dlc) SteamRip Let'sРlay [Digital Del
 magnet:?xt=urn:btih:0B212908CC94E1BA8BEA3D6574B2EC45F8FB2F35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ G-Force / Миссия Дарвина (2009) [Ru] (1.0) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:D2E6C8A259F2A09C2ACA87E84E7705A20691DE84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ God's Trigger — смотрите на врагов свысока, быстр�
 magnet:?xt=urn:btih:7F410AF40D2D6B2691C924B843D74F3044FC1D46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Terror of Hemasaurus (2022) [Multi] (1.0b) License GOG
 ```bash
 magnet:?xt=urn:btih:7CA44550EEB57B7A89D32EA7FF240A88FA57DC9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Bibi Blocksberg - Big Broom Race 3 (2018) [Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:C4A1AE0EDA155A94B3CDB8540C70B632A3874990
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Maneater (2021) [Ru/Multi] (7837297/dlc) Repack DjDI [Apex Edition]
 ```bash
 magnet:?xt=urn:btih:3FDD1E0C57424654CA5E3F79D2D75ECF413A478C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Trifox (2022) [Multi] (1.0.0.7) License GOG
 magnet:?xt=urn:btih:126649EDE02E908F9332012CFD77CBEF339EB963
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ My Memory of Us – это воспоминание о дружбе между �
 ```bash
 magnet:?xt=urn:btih:D58F22C94B36E1832F4152795D24F208317AF479
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Naruto Shippuden: Ultimate Ninja Storm Revolution PC – игра на комп�
 magnet:?xt=urn:btih:DC43D2A5E2A8AC761261FE186744859CADED207B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Alekon – необычное веселое приключение с видо�
 ```bash
 magnet:?xt=urn:btih:C1180C166CCD5EE62A44AC1BD4E174209BD117CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Astalon: Tears of the Earth (2021) [Ru/Multi] (1.1.0) License GOG
 magnet:?xt=urn:btih:F8438097A2FC4130223F09B339B1791BB8D5F4F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ LEGO Star Wars: The Skywalker Saga (2022) [Ru/Multi] (1.0.0.27327/dlc) Repack De
 ```bash
 magnet:?xt=urn:btih:D32F883B206C0D85AA153112594DC132DC5C1DE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Lumote: The Mastermote Chronicles (2022) [Ru/Multi] (1.5.3-rc5) License GOG [Dig
 magnet:?xt=urn:btih:96340663F4A5CB7D1626055A29EBBCC63509D63C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Glover (2022) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:5E6596A66C800141BD4EE10CF9180D0A4218D1BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ LEGO Batman: The Videogame (2008) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:18334F411FDB886925E4CF3B8A9F03DC401ECADA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Mortal Kombat (2013) [Ru/En] (1.07/dlc) Repack Necros [Komplete Edition]
 ```bash
 magnet:?xt=urn:btih:8052F931CDC693B03AAA862CBC920A4F2AE57ECE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Street Fighter x Tekken (L) [Multi11\+] 2012 | SKIDROW
 magnet:?xt=urn:btih:EAD7FFB21FC8E73BF6EB4E57C62648098C9D3373
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Redout: Space Assault (2021) [Ru/Multi] (1.1.0) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:8E6959A73897F31412CDB2612E0E97DF764E9F57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

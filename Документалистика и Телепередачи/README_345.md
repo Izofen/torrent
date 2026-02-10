@@ -1,3 +1,29 @@
+###  Публикация: 1568733   (459749) от 09.08.2022
+
+Окно дикой природы - Киты / Wild Window: Whales (2017) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подводная кинематография от шестикратного лауреата премии "Эмми". В этой серии зрители погрузятся в океан, чтобы понаблюдать за самыми крупными животными на планете - китами. Вы увидите современных представителей рода горбатых китов, кашалотов и невероятных синих китов под музыку Алана Уильямса...Производство: США, Howard Hall ProductionsЖанр: документальный, природа, видовойРежиссер: Ховард ХоллПеревод: не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:58:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F1AB9B77403AB252BEE6948BC7A0D597C3B2524
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 941583   (459884) от 28.09.2015
 
 Военная приемка. Солдаты из стали (2015) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:3A90FC153BC94F7665DA0D7DB56C592E8C836CC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:3A90FC153BC94F7665DA0D7DB56C592E8C836CC0
 magnet:?xt=urn:btih:4E586C8598E298465F43D3FF9F1D716EF6581246
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:4E586C8598E298465F43D3FF9F1D716EF6581246
 ```bash
 magnet:?xt=urn:btih:81E8425CD9DBB91A5D32F25D17243D91017638A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:81E8425CD9DBB91A5D32F25D17243D91017638A1
 magnet:?xt=urn:btih:8EDD698F1654D5797BEFC0CC0B5F442FF59A23EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:8EDD698F1654D5797BEFC0CC0B5F442FF59A23EB
 ```bash
 magnet:?xt=urn:btih:2F44D2FFD318FA838A286089B51AB5774DF40722
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:2F44D2FFD318FA838A286089B51AB5774DF40722
 magnet:?xt=urn:btih:3190E1CF782F909F582FCA272A96D3F40BBB1FF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:3190E1CF782F909F582FCA272A96D3F40BBB1FF5
 ```bash
 magnet:?xt=urn:btih:E420EF111771F2B3DD8D2F086090D7DF917608D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:E420EF111771F2B3DD8D2F086090D7DF917608D6
 magnet:?xt=urn:btih:67B44A332BB772AC7040D1CAC50C048BA13854FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:67B44A332BB772AC7040D1CAC50C048BA13854FE
 ```bash
 magnet:?xt=urn:btih:ECFD487EC7CEBEF787C5E3EDAECAB64BB6AE4D01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +289,8 @@ magnet:?xt=urn:btih:ECFD487EC7CEBEF787C5E3EDAECAB64BB6AE4D01
 magnet:?xt=urn:btih:67B68260235913DF1C304B138D2417CE7551B205
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +314,8 @@ magnet:?xt=urn:btih:67B68260235913DF1C304B138D2417CE7551B205
 ```bash
 magnet:?xt=urn:btih:DB4C63F6B55BDBEB205C2AC2650573C7DF752D06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +341,8 @@ magnet:?xt=urn:btih:DB4C63F6B55BDBEB205C2AC2650573C7DF752D06
 magnet:?xt=urn:btih:7A54659DC1EBDAE131C9658AA7DA3A81B2508CB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:7A54659DC1EBDAE131C9658AA7DA3A81B2508CB0
 ```bash
 magnet:?xt=urn:btih:CDFF5FF5E682B36DF036FE40AD28857A9561B15A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +394,8 @@ magnet:?xt=urn:btih:CDFF5FF5E682B36DF036FE40AD28857A9561B15A
 magnet:?xt=urn:btih:98C1FF6786295A54D9611FF49A7D4498054DFCC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +419,8 @@ magnet:?xt=urn:btih:98C1FF6786295A54D9611FF49A7D4498054DFCC3
 ```bash
 magnet:?xt=urn:btih:EC93B051A8FD724FABBEAA7574C77687807D0D90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +449,8 @@ magnet:?xt=urn:btih:EC93B051A8FD724FABBEAA7574C77687807D0D90
 magnet:?xt=urn:btih:9DF92983B71CB30C6DCBF190D460DA5B17498176
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +474,8 @@ magnet:?xt=urn:btih:9DF92983B71CB30C6DCBF190D460DA5B17498176
 ```bash
 magnet:?xt=urn:btih:87FDC2F69B6BE48051867C510F14CAC869458458
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +502,8 @@ magnet:?xt=urn:btih:87FDC2F69B6BE48051867C510F14CAC869458458
 magnet:?xt=urn:btih:D449BD668D7A7AC76609DCB923D3C7AA22903728
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +527,8 @@ magnet:?xt=urn:btih:D449BD668D7A7AC76609DCB923D3C7AA22903728
 ```bash
 magnet:?xt=urn:btih:2E0D5E9699321AA4F1D3CE5A30A147F38E64EF72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +554,8 @@ magnet:?xt=urn:btih:2E0D5E9699321AA4F1D3CE5A30A147F38E64EF72
 magnet:?xt=urn:btih:9C6A30BED462F833CC6929145EE7BCEFF00841D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +579,8 @@ magnet:?xt=urn:btih:9C6A30BED462F833CC6929145EE7BCEFF00841D7
 ```bash
 magnet:?xt=urn:btih:33B8A9843B4B0EB68245B4D82AC16A9A13A6A4CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +606,8 @@ magnet:?xt=urn:btih:33B8A9843B4B0EB68245B4D82AC16A9A13A6A4CB
 magnet:?xt=urn:btih:25C6980866CE39847EDB8F53B3D426CA8F61F569
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:25C6980866CE39847EDB8F53B3D426CA8F61F569
 ```bash
 magnet:?xt=urn:btih:DA1EB8D5FFF04FF3FE8CE85DA9BEEDEBD0DDEDA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +658,8 @@ magnet:?xt=urn:btih:DA1EB8D5FFF04FF3FE8CE85DA9BEEDEBD0DDEDA5
 magnet:?xt=urn:btih:92951B835985C3AD6C1450D043B4DE145187194E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,29 +684,7 @@ magnet:?xt=urn:btih:92951B835985C3AD6C1450D043B4DE145187194E
 magnet:?xt=urn:btih:A9D4DC79EBD2A1F19749E48C8DCC8C8A9D573256
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059689   (461827) от 04.10.2016
-
-Осторожно, мошенники! Решала всемогущий (2016.10.04) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наверное, каждый хоть раз становился жертвой мошенников: будь то игра в "моментальные" лотереи, приобретение ненужных, а иногда и вредных пищевых добавок или общение с вымогателями денег по телефону, для пополнения мобильного счёта бедного чада, оставшегося без связи. В помощь нежелающим наступать на старые грабли зрителям на канале "ТВ Центр" (   Читать дальше...   )Производство: РоссияТелекомпания: ТВЦЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: ~ 00:23:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CB35ED204AB3E3B3B5B14CABEE94E4FF9648F6D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

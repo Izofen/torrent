@@ -19,6 +19,8 @@ Balun.Courses, Олег Козырев | Микросервисы, как в Big
 magnet:?xt=urn:btih:151DE6C2AEBC080D80AE6C24248F169243E2F224
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:151DE6C2AEBC080D80AE6C24248F169243E2F224
 ```bash
 magnet:?xt=urn:btih:3902B3ADF63E26FC69A7D3A3AF977021AD8BBDF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:3902B3ADF63E26FC69A7D3A3AF977021AD8BBDF5
 magnet:?xt=urn:btih:8E9D09090C7B0A63FBCEB840C61EA25E6CCB5857
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ LiveClasses, Антон Мартынов | Обзор возможностей D
 ```bash
 magnet:?xt=urn:btih:3DC4F909E607607B0785F2B867B6ACE94742B42E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:3DC4F909E607607B0785F2B867B6ACE94742B42E
 magnet:?xt=urn:btih:46EB1340126C8EC9C092BD04686CF47D01EA6E3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:46EB1340126C8EC9C092BD04686CF47D01EA6E3B
 magnet:?xt=urn:btih:FFC373D6B420E714B85744ECC810D7218AE24FFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Hello I'm Julien Devile. I work as a freelance 3d designer and Blender foundatio
 ```bash
 magnet:?xt=urn:btih:2B9F8E72AE5671FC4870299C033AA7B50985C77E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ PurpleSchool, Андрей Соколов, Антон Ларичев | Осно�
 ```bash
 magnet:?xt=urn:btih:34376057064AF98F8B6FDA353D9FCAC5688AD1FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ PurpleSchool, Антон Ларичев | Основы Git (2024) WEB-DL [RU]
 magnet:?xt=urn:btih:D3DE6BE201170710F09529E334BCEC1F98B528BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Udemy, Виктор Быстров | Как БЫСТРО находить люд
 ```bash
 magnet:?xt=urn:btih:1267B0808667BF0E6E58606797FA9E6561210998
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:1267B0808667BF0E6E58606797FA9E6561210998
 magnet:?xt=urn:btih:DAE56D218B37A8EBC9B2627BFC5D85AF82FC2F42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ Udemy, Rick Crisci | Beginner Introduction to Containers, Docker, and Kubernetes
 ```bash
 magnet:?xt=urn:btih:118503B8C1E087BC744883036CDF104521F31355
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ PurpleSchool, Антон Ларичев, Игорь Орлов | Kubernetes и H
 ```bash
 magnet:?xt=urn:btih:751C8D0FD1E4586A4E32BC965783FA83F614EA21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:751C8D0FD1E4586A4E32BC965783FA83F614EA21
 magnet:?xt=urn:btih:10F9F48A808778508183847A4D357A3AB09D7BBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:10F9F48A808778508183847A4D357A3AB09D7BBD
 ```bash
 magnet:?xt=urn:btih:31D686EB750B5E94EDED21A60619F437469E6378
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:31D686EB750B5E94EDED21A60619F437469E6378
 magnet:?xt=urn:btih:39BDA842FBD30E4A49FA4792CCC926DE964C51D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:39BDA842FBD30E4A49FA4792CCC926DE964C51D0
 magnet:?xt=urn:btih:48F87920D7479767FC978176B6BAC6179E9CDEBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:48F87920D7479767FC978176B6BAC6179E9CDEBE
 ```bash
 magnet:?xt=urn:btih:6E471D371E035DE7E57CB6363D40159D13A27038
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ Udemy, Christ Raharja | Cloning Yourself with AI: Create AI Version of Yourself 
 magnet:?xt=urn:btih:36BFE729984BFB6ABF46527984619011D138EA1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ PurpleSchool, Антон Ларичев, Сергей Краснолобов | R
 ```bash
 magnet:?xt=urn:btih:63298F3DB3719B5A256BC6F422C3F2A766B161E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +558,8 @@ magnet:?xt=urn:btih:63298F3DB3719B5A256BC6F422C3F2A766B161E1
 magnet:?xt=urn:btih:7FB08434751A62F7B508C95ABE5BDC00FD5F5C67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +583,8 @@ Docker стал уже стандартом доставки приложени�
 ```bash
 magnet:?xt=urn:btih:8F831D44FCB252662B4097D1AF6C46038A50CBBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +613,8 @@ Stepik, Дмитрий Фокеев | Полный курс по React JS (Redux
 magnet:?xt=urn:btih:99914B8C993E17FBB6A748A2C6EF6277430DED99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +642,8 @@ Zerocoder, Вадим Михалев | Зерокодер на Bubble (2020) WEB
 magnet:?xt=urn:btih:96AA2209DE7BEA36042968816619AF23A2EC27D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +667,8 @@ Zerocoder, Кирилл Пшинник, Мария Размазина и д.р. 
 ```bash
 magnet:?xt=urn:btih:E4697DB96A4BDF0B59185FF3A18E212668A84CF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +696,8 @@ magnet:?xt=urn:btih:E4697DB96A4BDF0B59185FF3A18E212668A84CF0
 ```bash
 magnet:?xt=urn:btih:AFCE458A5AAC7BB67686B935F29364170C5A1C5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

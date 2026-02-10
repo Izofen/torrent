@@ -1,28 +1,3 @@
-###  Публикация: 581756   (338049) от 27.11.2012
-
-Журнал | Контрольная Закупка премиум №9 (спецпроект) [2012 сентябрь] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тема номера: Красное золото. Красная икра, королевские креветки, эксклюзивный чай, липовый мед, клубничный джем с ревенем.
-Первый независимый журнал, посвященный изучению качества продуктов питания местного производства, услуг и товаров народного потребления. Какой производитель изготавливает самые качественные и вкусные продукты? Мы готовы ответить!Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:958857ADED8B653EA2B3A673892835F88A5686E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 581460   (338056) от 27.11.2012
 
 Журнал | Conde Nast Traveller [Россия] №12-1 (декабрь 2012 - январь 2013) [PDF]
@@ -43,6 +18,8 @@ magnet:?xt=urn:btih:958857ADED8B653EA2B3A673892835F88A5686E4
 ```bash
 magnet:?xt=urn:btih:EE141E7E9D2D21EEB767B76C2427D5B29700ACE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +45,8 @@ magnet:?xt=urn:btih:EE141E7E9D2D21EEB767B76C2427D5B29700ACE5
 magnet:?xt=urn:btih:B99419417D690743D7D4729C1DCC92594BF77755
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +71,8 @@ magnet:?xt=urn:btih:B99419417D690743D7D4729C1DCC92594BF77755
 magnet:?xt=urn:btih:1220545CDA42034CD044C8436C54014EA38B5A81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +96,8 @@ magnet:?xt=urn:btih:1220545CDA42034CD044C8436C54014EA38B5A81
 ```bash
 magnet:?xt=urn:btih:FBEF39C32C22FF67B346B6CD1A270DBD0E45EDB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +124,8 @@ magnet:?xt=urn:btih:FBEF39C32C22FF67B346B6CD1A270DBD0E45EDB9
 magnet:?xt=urn:btih:60D40256952795A0CCD220118E065AAABC025BC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +149,8 @@ magnet:?xt=urn:btih:60D40256952795A0CCD220118E065AAABC025BC4
 ```bash
 magnet:?xt=urn:btih:11B88A08C941BF2AA6CEED98CA8C2F1B39697F0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +177,8 @@ magnet:?xt=urn:btih:11B88A08C941BF2AA6CEED98CA8C2F1B39697F0E
 magnet:?xt=urn:btih:593BBC8F4DAAD7D8DD3FF53D8023E96D48F00E72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +202,8 @@ magnet:?xt=urn:btih:593BBC8F4DAAD7D8DD3FF53D8023E96D48F00E72
 ```bash
 magnet:?xt=urn:btih:FD59ED0FA968267242B0D4D244B50B431BCB3BC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +229,8 @@ magnet:?xt=urn:btih:FD59ED0FA968267242B0D4D244B50B431BCB3BC7
 magnet:?xt=urn:btih:C0A6BAF81FC18CE99AC16123A16E004415A48796
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +254,8 @@ magnet:?xt=urn:btih:C0A6BAF81FC18CE99AC16123A16E004415A48796
 ```bash
 magnet:?xt=urn:btih:56322C50CB201BD745F20F66CF769831B703CE39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +281,8 @@ magnet:?xt=urn:btih:56322C50CB201BD745F20F66CF769831B703CE39
 magnet:?xt=urn:btih:941B806F2BE1DC0DB36686C24764D38149300428
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +306,8 @@ magnet:?xt=urn:btih:941B806F2BE1DC0DB36686C24764D38149300428
 ```bash
 magnet:?xt=urn:btih:3C8A2E575812F0E4ECC5A96C38F162983D55B9AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +333,8 @@ InfoCity - Азербайджанский ежемесячный журнал о
 magnet:?xt=urn:btih:0C014DE0AF6C0174D33C68214BFCA4A7CC7CC6BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +358,8 @@ magnet:?xt=urn:btih:0C014DE0AF6C0174D33C68214BFCA4A7CC7CC6BA
 ```bash
 magnet:?xt=urn:btih:2A8D0AB3195586C01D5E453B551B3F9AD89E22C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +385,8 @@ magnet:?xt=urn:btih:2A8D0AB3195586C01D5E453B551B3F9AD89E22C8
 magnet:?xt=urn:btih:1FE91E9A555C64D7C3973F74EDBE5D45541B018D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +410,8 @@ magnet:?xt=urn:btih:1FE91E9A555C64D7C3973F74EDBE5D45541B018D
 ```bash
 magnet:?xt=urn:btih:328EE3974440E424B70BD8E279D9EA16C1AD2343
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +437,8 @@ magnet:?xt=urn:btih:328EE3974440E424B70BD8E279D9EA16C1AD2343
 magnet:?xt=urn:btih:3273EC48A2B31DCA2EF90EE9CF0638DD52B8C1AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +462,8 @@ magnet:?xt=urn:btih:3273EC48A2B31DCA2EF90EE9CF0638DD52B8C1AD
 ```bash
 magnet:?xt=urn:btih:A32A4DCA481927C7273CB996D283907CA8D37854
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +489,8 @@ Start your incredible journey into the past with National Geographic History. In
 magnet:?xt=urn:btih:0A81307B2875F8129DB0FC93ACFC6010165A9454
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +515,8 @@ magnet:?xt=urn:btih:0A81307B2875F8129DB0FC93ACFC6010165A9454
 magnet:?xt=urn:btih:B6B3F5191B33A6AF03B6C8E9E7058A36CA6F0860
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +540,8 @@ magnet:?xt=urn:btih:B6B3F5191B33A6AF03B6C8E9E7058A36CA6F0860
 ```bash
 magnet:?xt=urn:btih:47626C964E2A969613BF32970FA3CE06171B44C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +570,8 @@ magnet:?xt=urn:btih:47626C964E2A969613BF32970FA3CE06171B44C7
 magnet:?xt=urn:btih:66717985E3FB872B1EC64B4F9390AE12E2AC85F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +595,8 @@ magnet:?xt=urn:btih:66717985E3FB872B1EC64B4F9390AE12E2AC85F6
 ```bash
 magnet:?xt=urn:btih:EB9D4702726F59122A3641D246BB4C8A16733BF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +622,8 @@ magnet:?xt=urn:btih:EB9D4702726F59122A3641D246BB4C8A16733BF9
 magnet:?xt=urn:btih:FAF775B4CC71F2D10E23C43B1D4DAD091C62008F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +647,34 @@ magnet:?xt=urn:btih:FAF775B4CC71F2D10E23C43B1D4DAD091C62008F
 ```bash
 magnet:?xt=urn:btih:06242298A5323E4046A31E9ADFDB688737441457
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074235   (340557) от 18.11.2016
+
+Журнал | Коллекция вязаных идей №6 (июнь 2016) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал по вязанию спицами и крючком для всей семьи. Отличный журнал для тех, кто хочет выглядеть стильно и оригинально. В номере 16 ярких моделей с подробными описаниями и схемами вязания.Жанр: Вязание, хоббиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25C10A106919ABFFA5C6534A0184AA11BE2D9BFE
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

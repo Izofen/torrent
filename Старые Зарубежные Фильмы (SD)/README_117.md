@@ -1,27 +1,3 @@
-###  Публикация: 709814   (422044) от 12.10.2013
-
-Стол для пятерых / Столик на пятерых / Table for five (1983) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422044.jpg" />
-</div>
-
-
-###  Подробнее
-
-После развода дети Таннена остались с его бывшей женой - она получила над ними опеку и вскоре воспитывала уже с новым мужем. Несколько лет Таннен провёл вдали от детей, но однажды почувствовал необходимость вернуться в их жизнь, взяв к себе на время каникул.Жанр: Драма, МелодрамаРежиссер: Роберт ЛиберманАктеры: Джон Войт (Джей Пи Таннен), Милли Перкинс (Кэтлин, его бывшая жена), Ричард Кренна (Митчел, муж Кэтлин), Мари-Кристин Барро (Мари), Роксана Зэл (Тильди), Робби Кайгер (Труман-Пол,) Сон Хуанг Буи (Транг), Кевин Костнер (один из пассажиров)Перевод: ДублированныйПродолжительность: 02:01:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E16D96E2FE0C54843B40AB40D0E542CB645E2E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947032   (422246) от 15.10.2015
 
 Скальпы / Scalps (1987) DVDRip [H.264]
@@ -43,6 +19,8 @@ magnet:?xt=urn:btih:2E16D96E2FE0C54843B40AB40D0E542CB645E2E2
 ```bash
 magnet:?xt=urn:btih:7C9DB50940578B0BF5FEB5635F0419FE213F1DCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +47,8 @@ magnet:?xt=urn:btih:7C9DB50940578B0BF5FEB5635F0419FE213F1DCF
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +73,8 @@ magnet:?xt=urn:btih:7C9DB50940578B0BF5FEB5635F0419FE213F1DCF
 magnet:?xt=urn:btih:AD85151B7CDF4454D24F2D542EB5D5E0B880A622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +98,8 @@ magnet:?xt=urn:btih:AD85151B7CDF4454D24F2D542EB5D5E0B880A622
 ```bash
 magnet:?xt=urn:btih:E77C5E60B4FDC530DC4996CC30B40F3F1B54B179
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +126,8 @@ magnet:?xt=urn:btih:E77C5E60B4FDC530DC4996CC30B40F3F1B54B179
 magnet:?xt=urn:btih:A4E769AF81693CB74136A2D32FBECA4BE565D5E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +151,8 @@ magnet:?xt=urn:btih:A4E769AF81693CB74136A2D32FBECA4BE565D5E3
 ```bash
 magnet:?xt=urn:btih:A29B37D30C750F0486E5B22BB1E416E5F00F53B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +178,8 @@ magnet:?xt=urn:btih:A29B37D30C750F0486E5B22BB1E416E5F00F53B9
 magnet:?xt=urn:btih:B005C417AC005F7B1772524D9C7F7304B8C8E3C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +203,8 @@ magnet:?xt=urn:btih:B005C417AC005F7B1772524D9C7F7304B8C8E3C3
 ```bash
 magnet:?xt=urn:btih:2F68C95AC8A4C3BB1639F773E6E2D61F72D6FF3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +231,8 @@ magnet:?xt=urn:btih:2F68C95AC8A4C3BB1639F773E6E2D61F72D6FF3A
 magnet:?xt=urn:btih:59F02E2E2508C5AB534A4CB39D6BC00B1E030408
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +257,8 @@ magnet:?xt=urn:btih:59F02E2E2508C5AB534A4CB39D6BC00B1E030408
 magnet:?xt=urn:btih:3059F8A892BDF6A1F98D678FD2D9B29FFD14B30A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +282,8 @@ magnet:?xt=urn:btih:3059F8A892BDF6A1F98D678FD2D9B29FFD14B30A
 ```bash
 magnet:?xt=urn:btih:D981FC86D484AECE3C69B5EB283CCCDF70ABA1FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +310,8 @@ magnet:?xt=urn:btih:D981FC86D484AECE3C69B5EB283CCCDF70ABA1FC
 magnet:?xt=urn:btih:82566DA481AC764EBBBB694968286A73F69A5038
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +335,8 @@ magnet:?xt=urn:btih:82566DA481AC764EBBBB694968286A73F69A5038
 ```bash
 magnet:?xt=urn:btih:A85E37F4B183769AD1B8858A17985B1BBA501D3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +362,8 @@ magnet:?xt=urn:btih:A85E37F4B183769AD1B8858A17985B1BBA501D3A
 magnet:?xt=urn:btih:CCEA66B6A30973DE857330380589029631DFCEA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +387,8 @@ magnet:?xt=urn:btih:CCEA66B6A30973DE857330380589029631DFCEA6
 ```bash
 magnet:?xt=urn:btih:7D7FBDEF10123A6C162BD73DCCA3CA848EBBFCAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +416,8 @@ magnet:?xt=urn:btih:7D7FBDEF10123A6C162BD73DCCA3CA848EBBFCAF
 magnet:?xt=urn:btih:0596189375D5F19A106BDDAD6B0E2769848EE00B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +441,8 @@ magnet:?xt=urn:btih:0596189375D5F19A106BDDAD6B0E2769848EE00B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +468,8 @@ magnet:?xt=urn:btih:0596189375D5F19A106BDDAD6B0E2769848EE00B
 magnet:?xt=urn:btih:DA2FF9BD9B858C782B6E30A143933D505CA266C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +493,8 @@ magnet:?xt=urn:btih:DA2FF9BD9B858C782B6E30A143933D505CA266C0
 ```bash
 magnet:?xt=urn:btih:836B9A2B348119A0A248CDD31B5A64C3064442BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +520,8 @@ magnet:?xt=urn:btih:836B9A2B348119A0A248CDD31B5A64C3064442BC
 magnet:?xt=urn:btih:434A6A12F93E12490D45089058202C8028097C82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +545,8 @@ magnet:?xt=urn:btih:434A6A12F93E12490D45089058202C8028097C82
 ```bash
 magnet:?xt=urn:btih:6DCE4428E3EFF4CDA321F0B7FE6C21E9B41F1028
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +573,8 @@ magnet:?xt=urn:btih:6DCE4428E3EFF4CDA321F0B7FE6C21E9B41F1028
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +598,8 @@ magnet:?xt=urn:btih:6DCE4428E3EFF4CDA321F0B7FE6C21E9B41F1028
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +626,8 @@ magnet:?xt=urn:btih:6DCE4428E3EFF4CDA321F0B7FE6C21E9B41F1028
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +651,34 @@ magnet:?xt=urn:btih:6DCE4428E3EFF4CDA321F0B7FE6C21E9B41F1028
 ```bash
 magnet:?xt=urn:btih:C9788129302326289F33302D93DCE3F2F2385F22
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571857   (429766) от 23.08.2022
+
+Жил-был дурак / A fool there was (1915) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429766.jpg" />
+</div>
+
+
+###  Подробнее
+
+В начале 1915 года голливудская киностудия Уильяма Фокса выпустила в прокат фильм, название которого буквально цитирует начальные слова стихотворения Киплинга — «A fool there was» («Жил-был дурак»). Собственно, непосредственной литературной основой этого кинофильма является не стихотворение само по себе, а пьеса американского сценариста Портера Эмерсона Брауна с (   Читать дальше...   )Производство: США, Fox Film CorporationЖанр: Драма, немое киноРежиссер: Фрэнк ПауэллАктеры: Теда Бара, Руна Ходжес, Эдвард Хосе, Мэй Эллисон, Клиффорд Брюс, Виктор Бенуа, Фрэнк Пауэлл, Минна Гэйл, Крейтон ХейлПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 01:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEE9FF8C54563B21A50811CCB803FAC4DA11CCE4
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

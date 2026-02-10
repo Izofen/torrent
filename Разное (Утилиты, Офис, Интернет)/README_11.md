@@ -19,6 +19,8 @@ TreeSize Professional 9.6.1.2156 [Multi/Ru]
 magnet:?xt=urn:btih:96862B30F210DBC941CCDA0BAF9B99A4249D2D46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ GPXSee - перед вами программа, которая предлага
 magnet:?xt=urn:btih:AD0202719319918D12D55CD59E7A991907051CF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Movavi Gecata 6.1.2 (x64) RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5493DA365188A1F39AFF932C24036FE38FBD49CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Start Menu X 7.33 SpaceX [Multi/Ru]
 magnet:?xt=urn:btih:2388016BE3CE91B9207E160D16477A1351CE41AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Stardock Groupy - программа для группировки нескол�
 ```bash
 magnet:?xt=urn:btih:7F91DC9B9184BB3E6F06C51CCABF7FE822D206CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ OpenedFilesView отображает список всех открытых в �
 magnet:?xt=urn:btih:F99CB44B0BAC7F50C256BE7EC0A52813F75758E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ UltraSearch Professional находит файлы и папки на локал
 ```bash
 magnet:?xt=urn:btih:6154D36541115DFD76F8530E5D24D10E369B5EE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ DiskSorter — это решение для классификации файл�
 magnet:?xt=urn:btih:6FBE60862057626CE4E13DEB0AECA4AD635A92AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Alfa eBooks Manager - одна из самых популярных програ
 ```bash
 magnet:?xt=urn:btih:4F7A59AA41F871CD5452349DA9AEEE32EE1AEDFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ KMS Tools — облегченный вариант сборника прогр�
 magnet:?xt=urn:btih:758CB43BE77096BCD0B59D555A6B5189F8C0699A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Textify — это крошечная утилита, позволяющая с�
 ```bash
 magnet:?xt=urn:btih:643BC3976B1786D52B9DCA1471F0D5DD53A47951
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Hetman Internet Spy 3.8 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:7222744999459DAA9105079A07FDF9A3244E480C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Vovsoft Hide Files — это простая в использовании пр�
 ```bash
 magnet:?xt=urn:btih:3A8E5E27E29C26F9C400A76DF13DD64799249BA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Streamlabs OBS - незаменимый инструмент для любого
 magnet:?xt=urn:btih:E62534708F06B3EDE653D6F97C9E1F49E1FFF403
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Caramba Switcher - это новый, понятный автоматическ�
 ```bash
 magnet:?xt=urn:btih:6239D655E64339D71584EA99C3ED3B5E24CFB441
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ DirLister v2 beta 4 Portable [En]
 magnet:?xt=urn:btih:15F5260B2C92346CDDBFB9FA64D08458A843A280
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Windows 11 Classic Context Menu v1.2 Portable [Multi/Ru]
 magnet:?xt=urn:btih:4DF1065E18BE08E14F9E5E7CE79E378008A37C5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ KSA Power Supply Calculator WorkStation - программа для расчёт
 ```bash
 magnet:?xt=urn:btih:C26838B856058DFF6AE788BDEA34D35633C7F10E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ iTop Screen Recorder позволяет записывать видео экра
 magnet:?xt=urn:btih:29B7185D575DE0555CFA85E1A021F9CEAD1BB874
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ AIO Boot NewGen - это мощное программное обеспечен�
 ```bash
 magnet:?xt=urn:btih:267D20D95D20DF8C1B6B32E12F716FC835ACD88A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ Kleptomania — уникальная в своем роде программа .
 magnet:?xt=urn:btih:90912DDCCEBB65A6CE9D2B6D7630121E26DC308C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ BlueLife Hosts editor - бесплатная утилита выступающа
 ```bash
 magnet:?xt=urn:btih:8863EE4CFA24AA0FCB550478E5B65920A04578E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ NikFileTree - это программа, которая строит дерев�
 magnet:?xt=urn:btih:E3510C835B806463DD4F79A20183F12879198649
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ ShowKeyPlus – утилита, отображающая активационн�
 magnet:?xt=urn:btih:3993A7C0BBD9F880EEB770410EA71154EB8D052A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ OnlyStopWatch 6.16 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:05B7F234FA0CB69CB08E9E1DBE3410B066F296C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +673,8 @@ FilExile - простая в использовании утилита с отк
 ```bash
 magnet:?xt=urn:btih:88A5D529FD1815ED6647ED7271BF892A546ADB73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

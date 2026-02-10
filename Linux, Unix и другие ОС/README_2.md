@@ -20,6 +20,8 @@ openmediavault 7.0-32 [x86_64] 1xCD
 magnet:?xt=urn:btih:14B7DF10D4AC2C6B45A75322B340D6E71841A9A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ MX Linux поддерживает работу в режиме LiveCD и LiveUSB
 magnet:?xt=urn:btih:07375ED72741E03D172082C80F1DE488D9DA51ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ Fedora — дистрибутив Linux, спонсируемый фирмой R
 magnet:?xt=urn:btih:179EA5DEFC20A1091C26DAD5D3B87B5F2787CC38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ CentOS Stream - новая версия бесплатной операцион�
 ```bash
 magnet:?xt=urn:btih:7B5013B728C0FD58FE4365629947141F08A01D81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ Debian GNU/Linux - операционная система на базе Linux �
 magnet:?xt=urn:btih:4D54760D917E9AC58CF3D443C6B04724CB87FF98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Clonezilla - многофункциональный инструмент для 
 ```bash
 magnet:?xt=urn:btih:424474C4D866396E4F55E5318A49C13E5AEBB875
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ SystemRescue - восстановительный диск, основанный
 magnet:?xt=urn:btih:CBA2F46A5C5F1069A9867AB9B55E9BDBC03A5640
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ Linux Kodachi - дистрибутив операционной системы L
 ```bash
 magnet:?xt=urn:btih:439B1A185D120E786197A816B477A4E5D2D06FD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ Qubes OS — ориентированная на безопасность нас
 magnet:?xt=urn:btih:C125502E34EAE434EDEDF0D148A6104B20DB39F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ EndeavourOS — это дистрибутив Linux, основанный на A
 ```bash
 magnet:?xt=urn:btih:7D10D50A1D2144BAF9E11021226483BB3ED1F49F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +296,8 @@ Ubuntu*Pack 20.04 (март 2024) [amd64] 1xDVD
 magnet:?xt=urn:btih:158B7DE0FF5B6A5284136033240158486918DB8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ Ubuntu*Pack 20.04 KDE / Kubuntu (март 2024) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:365863E24F200EBAC73CCFDD4A18F25CDF4F75DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +350,8 @@ Ubuntu*Pack 20.04 GNOME (март 2024) [amd64] 1xDVD
 magnet:?xt=urn:btih:02FA2B5E33D566BD4A2CA02B5A341D08A2891151
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ Ubuntu*Pack 20.04 Cinnamon (март 2024) [amd64] 1xDVD
 magnet:?xt=urn:btih:7672A312011EEBD0ECA78354CE162B79C03656F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ Ubuntu*Pack 20.04 LikeWin (март 2024) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:657BA7F1172AE8EEA47C2BEE0F45CBA15603EFEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ Whonix — это дистрибутив Linux на основе Debian, кот�
 magnet:?xt=urn:btih:FB83A82FC9ECFAC723246EFDE6CC91BD6C997429
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +457,8 @@ Arch Linux - это независимо разрабатываемый x86-64 �
 ```bash
 magnet:?xt=urn:btih:A9CD8C3B9DCAD4785DB47908AD63D43694432CAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +484,8 @@ zVirt — комплексное программное решение для б
 magnet:?xt=urn:btih:36F9429C723DD9CAB71354988C742B6ACB868ECC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ ALT Linux 8 СП C9F1 [i686, amd64] 6xDVD
 ```bash
 magnet:?xt=urn:btih:62356DD536E9D9FE217E6F52CBD40D16F3373E6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ ALT Linux 8 СП C10F1 [amd64] 3xDVD
 magnet:?xt=urn:btih:3A098BA4B4B02F080C9881D106C461B19808396A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ ALT Linux 8 СП C9F2 [i586, amd64] 6xDVD
 ```bash
 magnet:?xt=urn:btih:4F6554E54551C61672788988DAB39528B534966C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +591,8 @@ DraftSight дает возможность профессиональным по
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +627,8 @@ Linux UsefulPack 12.04 (L) [Русский] (2012)[x86 + amd64]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +655,8 @@ FreeBSD является очень удобной платформой для �
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +680,8 @@ Kubuntu — производный от Ubuntu дистрибутив Linux. Kub
 ```bash
 magnet:?xt=urn:btih:15001C9CD3317C3FF443088BB3729F8DD94512C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -657,6 +707,8 @@ Ubuntu*Pack 24.04 Unity (июль 2024) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:997ADC93DA5EC465CE919DCD7A42F3674F87C5D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

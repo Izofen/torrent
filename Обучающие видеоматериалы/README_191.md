@@ -22,6 +22,8 @@ Allegorithmic, Wes McDermott | Substance for Unity 5 Creating PBR textures (2016
 magnet:?xt=urn:btih:1B0388F05B90842C9E0AE340F8B75992B36C4655
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ ArtStation, Maria Yue | Lighting Theory for Games (2020) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:5A5C649C0155429F884A5AEAD7030EE4647EDAF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Houdini на практике возвращается. Вольюмы част�
 magnet:?xt=urn:btih:E0FE312451601338CF2963D47D46DD185AC530DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Andrew Smith | DOTA 2 Workshop (2014) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:FBC0429027FB229960DF4A1F569942D7ABB215D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Allegorithmic, Wes McDermott | Substance Designer Intermediate-Advanced Tutorial
 magnet:?xt=urn:btih:582B66878F4CB515F90536415DF5B7D3510D1369
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Allegorithmic, Wes McDermott | Substance with Unity (2014) PCRec [RU]
 magnet:?xt=urn:btih:B3AF356652A92F5CA69FD260EE9751AD205CD2CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:B3AF356652A92F5CA69FD260EE9751AD205CD2CB
 ```bash
 magnet:?xt=urn:btih:6D6741DF53DE05700808F6A36B53F272066482D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ Artstation, Henry Chervenka | Hard Surface ZBrush Tutorial / Modeling A UH-60 Ro
 magnet:?xt=urn:btih:E43D84BACDC776B2DAA4D67798BAFDC0C4F77D20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ FlippedNormals | Sculpting a Realistic Female Face in ZBrush (2019) PCRec [EN, R
 ```bash
 magnet:?xt=urn:btih:E87D61D7F13C13F8833580CBFCCEE8BFD987E644
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ Udemy, Mrawan Hussain | BLENDER: Learn how to create old realistic cannon (2022)
 magnet:?xt=urn:btih:5B2866E445C7D381BB5BB819321A960354ACE5E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ Artstation, Jonas Ronnegard | Substance Masters Vol.1 (2020) Blu-ray [EN]
 ```bash
 magnet:?xt=urn:btih:7DD2B747F986E29E0EF3319E4C043CF746D610F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ ArtStation, Tyler Smith | Intro to UE4 VFX: Waterfall (2020) PCRec [EN, RU]
 magnet:?xt=urn:btih:8211B2726596EED0E8CA27A586E4FF630E9867AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ Artstation, Tyler Smith | Intro to UE4 VFX: Smoke and Dust (2014) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:1992B3036C10857387B00E4E150AAA37B65BCD27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ BBX Hardcore – это программа домашних тренировок
 magnet:?xt=urn:btih:B6A54C1781D7A4F5E0E2D808EC790682EF65E607
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:B6A54C1781D7A4F5E0E2D808EC790682EF65E607
 ```bash
 magnet:?xt=urn:btih:2A70E23AA8D0F947B3F1333A360A7B459DF9BDDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ Applied Houdini ("практический Houdini", "Houdini в практич�
 magnet:?xt=urn:btih:65BA7B395307D25171ED9BB7A6E301C17673FF60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:65BA7B395307D25171ED9BB7A6E301C17673FF60
 magnet:?xt=urn:btih:44F5B62D2E3378036DB189CA74BD38AE190A4FF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ EXTR@ - одна из лучших программ обучения разго�
 ```bash
 magnet:?xt=urn:btih:E5805CA34F06AE26FF219FA131A4D6FAE919A5EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ SideFX, Delano Athias | Character Animation in Houdini (2020) PCRec [EN, RU]
 magnet:?xt=urn:btih:249A17BD4698F2BB27B938332C230E51EC270122
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ MIX Training, Varomix | The Nature of Vex (2019) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:0744F060B70C794CC061C992E16B380592041CDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +554,8 @@ ArtStation, Amir Kabiri | 8 Facade Material: Building Material + Tutorials (2021
 magnet:?xt=urn:btih:31AB6A5A39A9FDE161E352137C92A113D2AD5A69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +580,8 @@ Levelup.Digital, Phil Liu | Creating a Fantasy Trim Texture (2020) PCRec [EN, RU
 ```bash
 magnet:?xt=urn:btih:5A5E4905FD4B36CB8283FF28E948117495283E36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:5A5E4905FD4B36CB8283FF28E948117495283E36
 magnet:?xt=urn:btih:9EAB252226EA2562332E33FC2FCC4718C5CE2F9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ Udemy, Serhii K | Practical OpenGL and GLSL shaders fundamentals with C++ (2019)
 magnet:?xt=urn:btih:91AEA0E913FDD359403230E249F6AA9077CB77CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ Skillshare, Joshua Davis | Processing - Programming Graphics III: Painting with 
 magnet:?xt=urn:btih:7B7E8B6832A006264D48311B41A69F61E7EB701E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ Skillshare, Joshua Davis | Processing - Programming Graphics I: Introduction to 
 ```bash
 magnet:?xt=urn:btih:E5743C428C8A26AD3FF5793DDA702BF1ECB2A2AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

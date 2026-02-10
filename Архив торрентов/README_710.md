@@ -28,6 +28,8 @@ VA - House Vip (09.03.12)[MP3|320 кб/с]<Electro House>
 magnet:?xt=urn:btih:56AA976E0F3AF34C06CCA9897FE25801DBB6C632
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ magnet:?xt=urn:btih:56AA976E0F3AF34C06CCA9897FE25801DBB6C632
 ```bash
 magnet:?xt=urn:btih:0DDAD143511E483184D3A07EAAEDD5B4B129B148
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -85,6 +89,8 @@ Ayman - Doorways (1996) [MP3|320 кб/с]<New Age, Contemporary Instrumental>
 magnet:?xt=urn:btih:B272A36030DE7719C255ED8BC7C325D732BC1C23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +124,8 @@ Exhumed - All Guts, No Glory (2011) [FLAC|Lossless]<Death Metal, Grindcore>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +154,8 @@ Exhumed - All Guts, No Glory (2011) [FLAC|Lossless]<Death Metal, Grindcore>
 magnet:?xt=urn:btih:E33751B8991FF390331304A2DDD20F896E4320A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +180,8 @@ magnet:?xt=urn:btih:E33751B8991FF390331304A2DDD20F896E4320A9
 magnet:?xt=urn:btih:64C9B599C659EEC77F78657B389993E9F67A55EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +205,8 @@ magnet:?xt=urn:btih:64C9B599C659EEC77F78657B389993E9F67A55EE
 ```bash
 magnet:?xt=urn:btih:2B05217B0709E862823FB0F25DCCC81EB75902DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +240,8 @@ CD-1:
 magnet:?xt=urn:btih:02130DCACBE675AB0338FE99F402C43B6096B16C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +266,8 @@ magnet:?xt=urn:btih:02130DCACBE675AB0338FE99F402C43B6096B16C
 magnet:?xt=urn:btih:0E74BBB47AFAB5330C224E0ED0FD69AA6A1CB18F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +291,8 @@ BurnAware - простая, но могучая программа для зап
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +327,8 @@ VA - House Vip (10.03.12) [MP3|320 кб/с]<Electro House>
 magnet:?xt=urn:btih:734BC679AC0865E1FF57A03C333154DE731C7EF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +356,8 @@ magnet:?xt=urn:btih:734BC679AC0865E1FF57A03C333154DE731C7EF9
 ```bash
 magnet:?xt=urn:btih:55B63125022FF44EAA77F63B05E3AB03E5E00327
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +392,8 @@ VA - Хит За Хитом 50/50 (2012) [MP3|128 kbps]<Pop>
 magnet:?xt=urn:btih:D716C0C487716A2F85A75E0C478F898A95CDAC83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +427,8 @@ VA - Новинки Танцевальных Хитов. Зарубежный (2
 magnet:?xt=urn:btih:46F471664A695752F0E32E51E1A50B5E9615B61F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +452,8 @@ magnet:?xt=urn:btih:46F471664A695752F0E32E51E1A50B5E9615B61F
 ```bash
 magnet:?xt=urn:btih:DC3B25C084DB6BACB032F6EC4F466700C400CEB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +479,8 @@ magnet:?xt=urn:btih:DC3B25C084DB6BACB032F6EC4F466700C400CEB3
 magnet:?xt=urn:btih:59965437D52FAB9B4FECF670DFD8F61758F51719
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +504,8 @@ magnet:?xt=urn:btih:59965437D52FAB9B4FECF670DFD8F61758F51719
 ```bash
 magnet:?xt=urn:btih:A79EFFB716287233535AF8580F53CA7406F58B4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +535,8 @@ magnet:?xt=urn:btih:A79EFFB716287233535AF8580F53CA7406F58B4A
 magnet:?xt=urn:btih:782FBAD0732DDF48AE23ECA1C2E52D42E7BAA039
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +560,8 @@ Maxigroove - Еще один день (2012) [H.264/1080р] WEBRip
 ```bash
 magnet:?xt=urn:btih:6E85169713D15ECEF2BEFB9ED3F4F6F6705FE4CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +596,8 @@ Gianni Lee - Trill Wave Deux (2012) [MP3|320 кб/с]<Rap>
 magnet:?xt=urn:btih:8DAB867C906CDC3204746C97EC3FBD9B9315E905
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +622,8 @@ De L`air mode – это независимый женский онлайн жу
 magnet:?xt=urn:btih:56221C2525D8BD67DFFBDF7E42E28E656ED6F39D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +647,8 @@ magnet:?xt=urn:btih:56221C2525D8BD67DFFBDF7E42E28E656ED6F39D
 ```bash
 magnet:?xt=urn:btih:189E6AD938F97D7E6B8E99324D096F6426840BB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +683,8 @@ VA - Все звёзды MTV (2012) [MP3|320 kbps]<Pop | Dance | Club>
 magnet:?xt=urn:btih:57DB4D236A5E9ACDBA4762883DB8C6D1CA83442A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -671,6 +717,8 @@ Various - Intelligent Drum'n'Bass (1999) [MP3|256 кб/с]<Intelligent, Drum'n'B
 magnet:?xt=urn:btih:E04206EEBC022B31F2E36AAF947FA966B41D945C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,6 +742,8 @@ magnet:?xt=urn:btih:E04206EEBC022B31F2E36AAF947FA966B41D945C
 ```bash
 magnet:?xt=urn:btih:C6BC08D9EF08CFCA400C0335055E2961DAF09598
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -720,6 +770,8 @@ Kaspersky TDSSKiller 2.7.20.0 [Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

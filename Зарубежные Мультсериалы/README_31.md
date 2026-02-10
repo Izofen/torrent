@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:A80AB3BCB5B8AFF6DCAD5A8B52844E65189B96A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:A80AB3BCB5B8AFF6DCAD5A8B52844E65189B96A7
 ```bash
 magnet:?xt=urn:btih:113BB4BAED399BB065E5A976C6D44322BC1CCD03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:113BB4BAED399BB065E5A976C6D44322BC1CCD03
 magnet:?xt=urn:btih:BBAB9C1DA09F2A6F09C6E9E45F8466FDDEF088D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:BBAB9C1DA09F2A6F09C6E9E45F8466FDDEF088D3
 magnet:?xt=urn:btih:93932FCEC46AF22ED1964D1A5962B20464081810
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:93932FCEC46AF22ED1964D1A5962B20464081810
 ```bash
 magnet:?xt=urn:btih:5B3429AE5512D7D54E8305C4D9C77B85EF420B44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:5B3429AE5512D7D54E8305C4D9C77B85EF420B44
 magnet:?xt=urn:btih:B7B62E569A47905E669E05CE6DDC7EECCFF2004C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:B7B62E569A47905E669E05CE6DDC7EECCFF2004C
 ```bash
 magnet:?xt=urn:btih:01CE1C4DBD70AAB4B68E414FDAD61269DE991D4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:01CE1C4DBD70AAB4B68E414FDAD61269DE991D4B
 magnet:?xt=urn:btih:CE242369A8D15122661B9DFA80BE9E35388B378E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:CE242369A8D15122661B9DFA80BE9E35388B378E
 ```bash
 magnet:?xt=urn:btih:BA7855A6ADF17D2B5EFB01E9F2E5448F3449794A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:BA7855A6ADF17D2B5EFB01E9F2E5448F3449794A
 magnet:?xt=urn:btih:1944B13277F54CE33EF8E0EBEE5B7D2B6330C417
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:1944B13277F54CE33EF8E0EBEE5B7D2B6330C417
 ```bash
 magnet:?xt=urn:btih:3D767FEA7ABE7125F890ECD5CA2937541F986E38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:3D767FEA7ABE7125F890ECD5CA2937541F986E38
 magnet:?xt=urn:btih:AA995AA95D47ED42EF90F7021459A0FB1673C37B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:AA995AA95D47ED42EF90F7021459A0FB1673C37B
 ```bash
 magnet:?xt=urn:btih:A4CEC16AAC1F0CE3D4D0DF1A78D153097945985B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:A4CEC16AAC1F0CE3D4D0DF1A78D153097945985B
 magnet:?xt=urn:btih:FB0A2DC32913AAA91FBD9F526EE4C0E1C6B97CA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:FB0A2DC32913AAA91FBD9F526EE4C0E1C6B97CA2
 magnet:?xt=urn:btih:92CA79CB02A18E8486962A8F4AA37DB67C9519A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:92CA79CB02A18E8486962A8F4AA37DB67C9519A8
 ```bash
 magnet:?xt=urn:btih:1923B70845662B9C7614D75338D424BCB81246FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:1923B70845662B9C7614D75338D424BCB81246FB
 magnet:?xt=urn:btih:93590D0947DFB8E4F1246E31ABF33AD231C01E56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:93590D0947DFB8E4F1246E31ABF33AD231C01E56
 ```bash
 magnet:?xt=urn:btih:A49D93A14BD6D400AD1BE0841BEE48002E4925A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:A49D93A14BD6D400AD1BE0841BEE48002E4925A4
 magnet:?xt=urn:btih:39D7D35756F2FF09C586B77C769ABDA03A168476
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:39D7D35756F2FF09C586B77C769ABDA03A168476
 ```bash
 magnet:?xt=urn:btih:C5B6A1059AB86A28311B2380FFE51A1E4FE90CF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:C5B6A1059AB86A28311B2380FFE51A1E4FE90CF7
 magnet:?xt=urn:btih:02D4C9FF9799CEE708CDF846AC6AA5FEB06937B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:02D4C9FF9799CEE708CDF846AC6AA5FEB06937B0
 ```bash
 magnet:?xt=urn:btih:925387F50DCAC7D19C183853318181647E639004
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:925387F50DCAC7D19C183853318181647E639004
 magnet:?xt=urn:btih:72DEBD7440A93E564D0F6EA73616FB35FF328268
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ LEGO Ниндзяго: Мастера кружитцу / LEGO Ninjago: Masters o
 ```bash
 magnet:?xt=urn:btih:7DEECE032074996DFDC8E626B0CF06E7359FD604
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,29 +649,33 @@ LEGO Ниндзяго: Мастера кружитцу / LEGO Ninjago: Masters o
 magnet:?xt=urn:btih:EFC1FA3A85D6B0D5C1FB20F99C825E8D54FCE2C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 411122   (340484) от 15.11.2011
+###  Публикация: 475532   (339376) от 26.11.2012
 
-Том и Джерри / Tom and Jerry (1940-1945) BDRip [720p] (Часть 1)
+Шоу Луни Тюнз / The Looney Tunes Show (2011-2012) (Сезон: 1, Серии: 1-26 из 26) WEB-DL [H.264/720p-LQ] [Обновляемая]
 
->>Мультфильмы
+>>След.
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340484.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_339376.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Кот Том и мышонок Джерри вызывали смех и покоряли сердца детей и взрослых всего мира на протяжении десятилетий. До сих пор эти два мультгероя-суперзвезды с неизменным успехом поражают зрителей своим мастерством перевоплощения, новыми изобретательными трюками и розыгрышами. Следите за уморительными проделками этой неуловимой парочки в первоклассной коллекции незабываемых (   Читать дальше...   )Жанр: Рисованная анимация, Детский, КомедияРежиссер: Джозеф Барбера, Ханна УильямПерсонажи: Том и ДжерриПеревод: Профессиональное (многоголосое)Продолжительность: 20 серий по ~00:08:00
+Мультсериал представляет собой совершенно новую интерпретацию «Безумных Мелодий (в народе Луни Тюнз)». В новом шоу сюжет в основном крутится вокруг двух главных персонажей — Багза и Даффи, которые покинули свои родные леса и переехали в город. Им еще только предстоит встретиться с такими же странными личностями, как Лола, Сильвестр, Порки Пиг и многими другими. Присоединяйтесь (   Читать дальше...   )Жанр: Мультсериал, комедияРежиссер: Джеф Дэвисон / Jeff DavisonПеревод: Профессиональный (дублированный) ПифагорСубтитры: отсутствуютЯзык: Русский, АнглийскийФормат: MKVКачество: WEB-DLПродолжительность: 26 ~ 00:23:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA7E3F9A0C62D886B9B945C64D451AEAE6AA5474
+нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

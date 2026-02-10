@@ -1,3 +1,30 @@
+###  Публикация: 1110172   (855401) от 01.03.2017
+
+Н. Браумейстер | Банкетные и гастрономические напитки холодные и горячие (1911) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пунши, крюшоны, шипучки, бишофы, коблеры, коктэли, баваруазы, оршаты, глинтвейны, лимонады и пр. для вечеринок, пирушек, пикников, балов, парадных обедов и роскошных ужинов.
+Более 400 отборных рецептов.Жанр: Кулинария, РаритетФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AFB6FA0F59A9C4FE546E670DB61A57DE0E4EE3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000903   (855408) от 27.03.2016
 
 Кристофер Шабри, Даниэл Саймонс | Невидимая горилла, или История о том, как обманчива наша интуиция (2011) [FB2]
@@ -20,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:0F489E9B34D831D2317B58893229CF5D2DC4C2A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +73,8 @@ magnet:?xt=urn:btih:0F489E9B34D831D2317B58893229CF5D2DC4C2A3
 ```bash
 magnet:?xt=urn:btih:AF34DEB388678378AE8C18D7A0880292793514B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +101,8 @@ magnet:?xt=urn:btih:AF34DEB388678378AE8C18D7A0880292793514B1
 magnet:?xt=urn:btih:8033F4E8FD8FF118D8D9ECCC12D49C8DFB92F6B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +126,8 @@ magnet:?xt=urn:btih:8033F4E8FD8FF118D8D9ECCC12D49C8DFB92F6B7
 ```bash
 magnet:?xt=urn:btih:1EDD155A08F80BB64C14D72C963935D808259438
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +154,8 @@ magnet:?xt=urn:btih:1EDD155A08F80BB64C14D72C963935D808259438
 magnet:?xt=urn:btih:8FD26B1AF012A3FE8D84DC18BBEEE73C9CAF9C54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +180,8 @@ magnet:?xt=urn:btih:8FD26B1AF012A3FE8D84DC18BBEEE73C9CAF9C54
 ```bash
 magnet:?xt=urn:btih:E8EB8E9C51829D83239AA0260C9A99482BD07A84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +209,8 @@ magnet:?xt=urn:btih:E8EB8E9C51829D83239AA0260C9A99482BD07A84
 magnet:?xt=urn:btih:2ADAA41C2FA1C59331E94D514388349505AC7621
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +236,8 @@ magnet:?xt=urn:btih:2ADAA41C2FA1C59331E94D514388349505AC7621
 magnet:?xt=urn:btih:A91DF4F12CFD937480F818E806B64C24B6F66042
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +261,8 @@ magnet:?xt=urn:btih:A91DF4F12CFD937480F818E806B64C24B6F66042
 ```bash
 magnet:?xt=urn:btih:AF214BA7F51B3AFE914523C91FDB680D31BFAFA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +289,8 @@ magnet:?xt=urn:btih:AF214BA7F51B3AFE914523C91FDB680D31BFAFA1
 magnet:?xt=urn:btih:AB261FE04953FEED3ACD2A10B0FA5A948ADD74C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +315,8 @@ magnet:?xt=urn:btih:AB261FE04953FEED3ACD2A10B0FA5A948ADD74C5
 ```bash
 magnet:?xt=urn:btih:AB0AD5F07C8CD811597C5430A64955154C9A6C84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +344,8 @@ magnet:?xt=urn:btih:AB0AD5F07C8CD811597C5430A64955154C9A6C84
 magnet:?xt=urn:btih:D0BAE8B8A31D1A696A443A3D8348EEE54AED46B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +370,8 @@ magnet:?xt=urn:btih:D0BAE8B8A31D1A696A443A3D8348EEE54AED46B6
 ```bash
 magnet:?xt=urn:btih:E944C63DBCCE346D43CDEEC57E5ED362C0AB3027
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +398,8 @@ magnet:?xt=urn:btih:E944C63DBCCE346D43CDEEC57E5ED362C0AB3027
 magnet:?xt=urn:btih:EA241DBFABD328478F27289326AE90C17BFCE0E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +423,8 @@ magnet:?xt=urn:btih:EA241DBFABD328478F27289326AE90C17BFCE0E4
 ```bash
 magnet:?xt=urn:btih:8DCDD84C29113C75F23AEFB9588BA196C0FF2C1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +452,8 @@ magnet:?xt=urn:btih:8DCDD84C29113C75F23AEFB9588BA196C0FF2C1D
 magnet:?xt=urn:btih:A934E15449D8811727460A6632134195DA68BCE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +477,8 @@ magnet:?xt=urn:btih:A934E15449D8811727460A6632134195DA68BCE1
 ```bash
 magnet:?xt=urn:btih:8FBC8BE7B831DB3DAB4A72DDEA31D98E6AAD61C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +504,8 @@ magnet:?xt=urn:btih:8FBC8BE7B831DB3DAB4A72DDEA31D98E6AAD61C6
 magnet:?xt=urn:btih:23F28015083D66668162F9B9EEACED00BA260382
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +529,8 @@ magnet:?xt=urn:btih:23F28015083D66668162F9B9EEACED00BA260382
 ```bash
 magnet:?xt=urn:btih:8D973005F1437D87C2B155A8B32BCD6B9F798652
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +556,8 @@ magnet:?xt=urn:btih:8D973005F1437D87C2B155A8B32BCD6B9F798652
 magnet:?xt=urn:btih:10C9E0EF7E9CF2A3F0B8155AB7233E39FAEB97A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +581,8 @@ magnet:?xt=urn:btih:10C9E0EF7E9CF2A3F0B8155AB7233E39FAEB97A8
 ```bash
 magnet:?xt=urn:btih:615DDA0F1D824EFC78C6B43C070BA001AC36A7CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +608,8 @@ magnet:?xt=urn:btih:615DDA0F1D824EFC78C6B43C070BA001AC36A7CD
 magnet:?xt=urn:btih:60BFC4B24624FCC767D071FA9BEAB3EE3CD458BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +633,8 @@ magnet:?xt=urn:btih:60BFC4B24624FCC767D071FA9BEAB3EE3CD458BD
 ```bash
 magnet:?xt=urn:btih:29E2CE6733C85C9817DC67A149B6ACAB7531083F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +661,8 @@ magnet:?xt=urn:btih:29E2CE6733C85C9817DC67A149B6ACAB7531083F
 magnet:?xt=urn:btih:49DAF38BDA9D9E90E0E084CDB902AD855C29999F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,29 +687,7 @@ magnet:?xt=urn:btih:49DAF38BDA9D9E90E0E084CDB902AD855C29999F
 magnet:?xt=urn:btih:272F4A7A63563FF5F425308ED528FE626F4C2B80
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 647523   (856256) от 23.04.2013
-
-Е.Романченко | Водоснабжение загородного дома [2013] [PDF]
-
->>Разное (категория книг)
->>Строительство и ремонт
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Книга расскажет о том, какие бывают системы водоснабжения, как правильно построить колодец и пробурить скважину на участке, самостоятельно провести монтаж и наладку систем водоснабжения. Также приведены практические советы, касающиеся современных систем водоснабжения.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89E4E4CC47987906B3C9BDA4CE83760BDB0C278E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

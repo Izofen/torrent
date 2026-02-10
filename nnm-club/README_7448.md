@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:FB1FC0E57F7FAE8B273195F734CE4AA5ACF6FF05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Teeth - Unremittance (2014) [FLAC|Lossless|WEB-DL|tracks] <Death, Sludge Metal, 
 ```bash
 magnet:?xt=urn:btih:34AF591CF137ECDCB113634D8149FEF2D629C43B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ SHA-1: A2CCF0F3EF949FD2F850D3685C5CC8F1DB5BA6C3Название программ
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Krita – профессиональный бесплатный растровы
 magnet:?xt=urn:btih:80189C98495F8EE3AE53E894B62FF84C74C69634
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ Terror of Hemasaurus (2022) [Multi] (1.0b) License GOG
 ```bash
 magnet:?xt=urn:btih:7CA44550EEB57B7A89D32EA7FF240A88FA57DC9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ ROSA Desktop Fresh LXQT R6 [i586, x86-64] 2xDVD
 magnet:?xt=urn:btih:2A86A08D3DD18E442FC25B0B0DE5B01D48798CDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:2A86A08D3DD18E442FC25B0B0DE5B01D48798CDC
 magnet:?xt=urn:btih:D5E73C17A559C0095F4FA360C6DFCB30A167DA7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:D5E73C17A559C0095F4FA360C6DFCB30A167DA7F
 ```bash
 magnet:?xt=urn:btih:0E40AD9CE9DCD54F2929B311C61A6249BBE310EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ Hal Singer With Charlie Shavers - Blue Stompin' (1957) 1994, Original Jazz Class
 magnet:?xt=urn:btih:DB9BACE4297F0F1029A2E175F5CAC340586D42C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:DB9BACE4297F0F1029A2E175F5CAC340586D42C2
 magnet:?xt=urn:btih:DC8CF46C70E88F3141BE7634EA5BF7C9F9100F95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:DC8CF46C70E88F3141BE7634EA5BF7C9F9100F95
 ```bash
 magnet:?xt=urn:btih:467A027DC568DC76021DC3331C52177313E88B68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ VA - Chill Out Empire (25 Smooth Anthems), Vol. 4 (2018) [MP3|320 Kbps] <Chill O
 magnet:?xt=urn:btih:CB860DE69DF5B9451F9D49F42D6B48BFB851EB64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ magnet:?xt=urn:btih:CB860DE69DF5B9451F9D49F42D6B48BFB851EB64
 magnet:?xt=urn:btih:6A4D121FA4F76474206A4F8C552131F75EEAD817
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:6A4D121FA4F76474206A4F8C552131F75EEAD817
 ```bash
 magnet:?xt=urn:btih:19F2AA9C39188B28B04032E87DFEB923C5E1CA44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ Vampyroteuthis Infernalis - Vampyroteuthis Infernalis (2022) [FLAC|Lossless|WEB-
 magnet:?xt=urn:btih:3A26CCF823CEAAC59F045A45E0CCD94A859C6CD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:3A26CCF823CEAAC59F045A45E0CCD94A859C6CD3
 ```bash
 magnet:?xt=urn:btih:D2298C51553F9658637D6434697B8E86E6311AD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +454,8 @@ Heinali - Sway, sway (2013) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Modern Classical>
 magnet:?xt=urn:btih:4073FD229DAD8C53B74E154D040914C0D5CE79A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:4073FD229DAD8C53B74E154D040914C0D5CE79A8
 ```bash
 magnet:?xt=urn:btih:70D5E59802DEA6BE22CEFAD727614427E08F6C51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ magnet:?xt=urn:btih:70D5E59802DEA6BE22CEFAD727614427E08F6C51
 magnet:?xt=urn:btih:E6669E61B1BABC12E97C658833911E385150BBA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ magnet:?xt=urn:btih:E6669E61B1BABC12E97C658833911E385150BBA3
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ Gatoebrio - 2 Albums (2020-2023) [MP3|320 Kbps] <Heavy Metal, Doom Metal, Hard R
 magnet:?xt=urn:btih:370E21283BFD376FD61BCA29253349F55B1CB7FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:370E21283BFD376FD61BCA29253349F55B1CB7FD
 magnet:?xt=urn:btih:14CDD6D0D529B82B45BC8A300BBF67999B3AE017
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ magnet:?xt=urn:btih:14CDD6D0D529B82B45BC8A300BBF67999B3AE017
 ```bash
 magnet:?xt=urn:btih:9B99743593B3D1EA9BEB264348DBC3D36EC9FFF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +639,8 @@ magnet:?xt=urn:btih:9B99743593B3D1EA9BEB264348DBC3D36EC9FFF9
 magnet:?xt=urn:btih:05B5C5E1D8C1AA31D09C935FAF3A405D7BBCDF09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:05B5C5E1D8C1AA31D09C935FAF3A405D7BBCDF09
 ```bash
 magnet:?xt=urn:btih:10AEEF7F73A0A1ACE096554D09310BB611936515
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +691,8 @@ DirEqual - это инструмент сравнения папок, котор
 ```bash
 magnet:?xt=urn:btih:7CC6F0DE933F81EDDD18157F73706A8699AECFF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

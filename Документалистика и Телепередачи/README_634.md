@@ -1,3 +1,29 @@
+###  Публикация: 1111072   (850185) от 04.03.2017
+
+Битва экстрасенсов (2017.03.04) SATRip  (сезон 17, выпуск 25)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850185.jpg" />
+</div>
+
+
+###  Подробнее
+
+С 3 сентября на ТНТ стартует долгожданный 17-й сезон «Битвы экстрасенсов» — самого мистического, непредсказуемого и загадочного проекта российского ТВ. Масштабный кастинг, новые яркие участники и высокие технологии в мире экстрасенсорики. Новый сезон обещает стать самым необычным и удивительным в истории шоу. «Мне бы очень хотелось, чтобы в новом сезоне экстрасенсы (   Читать дальше...   )Телекомпания: ТНТЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:21:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B87077C4826E8ABDC9BCC687065E732DDAA93EE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110987   (850189) от 04.03.2017
 
 Своя игра (04.03.2017) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:208F6AB8B9FE94A96C7844DBA38EF300A31493E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:208F6AB8B9FE94A96C7844DBA38EF300A31493E3
 magnet:?xt=urn:btih:BCB3136B3C164AEE501D5A31FD5B7B54B8A63BEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ The Beatles и The Rolling Stones произвели фурор во всем м
 magnet:?xt=urn:btih:72451D80BFCEFB89DCF378B755DB321EF349DEA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:72451D80BFCEFB89DCF378B755DB321EF349DEA5
 ```bash
 magnet:?xt=urn:btih:8D2AA52F180D6245077F1343C564EF8F023A3E27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:8D2AA52F180D6245077F1343C564EF8F023A3E27
 magnet:?xt=urn:btih:11C2039438A364293F3DB1FC89BBF1EEEC85C398
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:11C2039438A364293F3DB1FC89BBF1EEEC85C398
 ```bash
 magnet:?xt=urn:btih:1CD110B5E7C63EEA28BD96ACFC79CF7B93D543C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:1CD110B5E7C63EEA28BD96ACFC79CF7B93D543C1
 magnet:?xt=urn:btih:8753FA626F5A5E17B97E68EE187FDB3300C68A15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:8753FA626F5A5E17B97E68EE187FDB3300C68A15
 ```bash
 magnet:?xt=urn:btih:3FA17BA30731B6E599A9F6066C4C78DDF5A56C9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:3FA17BA30731B6E599A9F6066C4C78DDF5A56C9A
 magnet:?xt=urn:btih:1CDDFED52DCFB101B1256B2746E00006164315F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:1CDDFED52DCFB101B1256B2746E00006164315F3
 ```bash
 magnet:?xt=urn:btih:15A3C1EAAA528C3B8F01FDF660B4F4286195BC55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:15A3C1EAAA528C3B8F01FDF660B4F4286195BC55
 magnet:?xt=urn:btih:49DA786E86889E927DD2DB88AAB87BBAC68E8818
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:49DA786E86889E927DD2DB88AAB87BBAC68E8818
 ```bash
 magnet:?xt=urn:btih:3FF8472B2A4049811470B7FF95963F76A3A72556
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:3FF8472B2A4049811470B7FF95963F76A3A72556
 magnet:?xt=urn:btih:3AB5D54B50493CE5A2DEBD2C7407546598928B63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +385,8 @@ NG. Ночь льва / Night of The Lion (2010) HDTVRip [H.264/1080i]
 ```bash
 magnet:?xt=urn:btih:E91C552854187B72CCAC0373598C32F7C09D4CF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:E91C552854187B72CCAC0373598C32F7C09D4CF7
 magnet:?xt=urn:btih:57D229310229A27CD134DC9B3B8C560B8CA9FF4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:57D229310229A27CD134DC9B3B8C560B8CA9FF4D
 ```bash
 magnet:?xt=urn:btih:E991532C129A58E7A9FD53D15FE7F6C73E972097
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:E991532C129A58E7A9FD53D15FE7F6C73E972097
 magnet:?xt=urn:btih:184B7889AA2990861D809BE79E48F4558A6904B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:184B7889AA2990861D809BE79E48F4558A6904B0
 ```bash
 magnet:?xt=urn:btih:BF46F80401AB99E624128DF89A61FF55E81A6024
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:BF46F80401AB99E624128DF89A61FF55E81A6024
 magnet:?xt=urn:btih:443589CAF1010517695C7C3ED74578F7BADA907A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:443589CAF1010517695C7C3ED74578F7BADA907A
 magnet:?xt=urn:btih:2FB412B1FCFBD38A99EF35DE47D9F23B1D136D92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +567,8 @@ magnet:?xt=urn:btih:2FB412B1FCFBD38A99EF35DE47D9F23B1D136D92
 ```bash
 magnet:?xt=urn:btih:781A4EB57D15C26D0F4D1190672DB62BE936121D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:781A4EB57D15C26D0F4D1190672DB62BE936121D
 magnet:?xt=urn:btih:CC6A95497E2BE02D13FDA4AA96FDB42C13DBE5FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +620,8 @@ magnet:?xt=urn:btih:CC6A95497E2BE02D13FDA4AA96FDB42C13DBE5FC
 ```bash
 magnet:?xt=urn:btih:365B142E787F21E981751F95727C76432D7919DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:365B142E787F21E981751F95727C76432D7919DD
 magnet:?xt=urn:btih:2B04852E6B9131943AE36BC427BA238AEE5206E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,29 +675,7 @@ magnet:?xt=urn:btih:2B04852E6B9131943AE36BC427BA238AEE5206E8
 magnet:?xt=urn:btih:10382B1608292E49FC0C0FF261E3C1CE1996C71F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498654   (851143) от 30.09.2021
-
-Остров Крым (2014) HDTVRip [H.265/1080p-LQ] [HDR, 10-bit] (выпуски 1-8, 10-22 из 22)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851143.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Остров Крым" - цикл документальных фильмов, которые расскажут об удивительной истории, невероятной природе, уникальных артефактах и достопримечательностях Крымского полуострова. Мы отправимся в путешествие по самым знаковым местам полуострова вместе с ведущими - Александром Олешко, Валдисом Пельшем, Дмитрием Харатьяном, Ариной Шараповой, Геннадием Хазановым (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: Телепередача, Документальный, История, ПриродаРежиссер: Людмила Снигирева, Илья Петров, Андрей ЛиничПродолжительность: выпуски по ~00:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:159DB9512B3E6A285B1088452CB115E99ABA7ADB
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

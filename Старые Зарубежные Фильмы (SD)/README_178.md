@@ -1,28 +1,3 @@
-###  Публикация: 1018053   (758957) от 18.05.2016
-
-Декамерон / The Decameron / Il Decameron (1970) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по мотивам сборника новелл Джованни Боккаччо «Декамерон» (Decamerone di Giovanni Boccaccio. Cognominato Principe Galeotto, 1351-1353).
-Художник Джотто странствует по дорогам Италии эпохи зарождающегося Ренессанса в поисках гармонии и истины. Джотто становится свидетелем самых разных жизненных историй и жадно вбирает в себя во впечатления от изменяющейся, (   Читать дальше...   )Производство: Италия, Франция, Германия (ФРГ) / Artemis Film, Les Productions Artistes Associés, Produzioni Europee Associati (PEA)Жанр: драма, мелодрама, комедия, история, экранизацияРежиссер: Пьер Паоло ПазолиниАктеры: Франко Читти, Нинетто Даволи, Йован Йованович, Винченцо Амато, Анджела Луче, Джузеппе Дзигайна, Мария Габриэлла Майон, Винченцо Кристо, Пьер Паоло Пазолини, Джорджо ИовинеПеревод: Профессиональный многоголосый (Кармен Видео)Язык субтитров: Русский, английскийПродолжительность: 01:51:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AADFEFB013547A3EF8BF9196C5E700198BBE3EEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017873   (759083) от 18.05.2016
 
 Папенькин сынок / Il gatto mammone (1975) DVDRip [VO]
@@ -43,6 +18,8 @@ magnet:?xt=urn:btih:AADFEFB013547A3EF8BF9196C5E700198BBE3EEE
 ```bash
 magnet:?xt=urn:btih:347718D7B78FB79C77ECA324BED823EB3EB328B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +44,8 @@ magnet:?xt=urn:btih:347718D7B78FB79C77ECA324BED823EB3EB328B2
 ```bash
 magnet:?xt=urn:btih:EAE94FD1E3DDCECF510854446DBED7F09418DBC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +74,8 @@ magnet:?xt=urn:btih:EAE94FD1E3DDCECF510854446DBED7F09418DBC2
 magnet:?xt=urn:btih:F7CA5F6F547FB04FCC8D75817E7107F804AE6575
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +99,8 @@ magnet:?xt=urn:btih:F7CA5F6F547FB04FCC8D75817E7107F804AE6575
 ```bash
 magnet:?xt=urn:btih:5827B4FCB3960F37B50C04CC597E567244737CA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +126,8 @@ magnet:?xt=urn:btih:5827B4FCB3960F37B50C04CC597E567244737CA5
 magnet:?xt=urn:btih:48FBF2883FD3D1039D54CACC1F27F81B345C8E5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +151,8 @@ magnet:?xt=urn:btih:48FBF2883FD3D1039D54CACC1F27F81B345C8E5E
 ```bash
 magnet:?xt=urn:btih:2F0D1F37A866BF0A61268C4B7FA0B3963825EA89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +178,8 @@ magnet:?xt=urn:btih:2F0D1F37A866BF0A61268C4B7FA0B3963825EA89
 magnet:?xt=urn:btih:97955312C61EFC9CF226B0309A1E67548C083EFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +203,8 @@ magnet:?xt=urn:btih:97955312C61EFC9CF226B0309A1E67548C083EFA
 ```bash
 magnet:?xt=urn:btih:A603AF36F8D3CD8D61A8529FD30390011D6FE1C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +232,8 @@ magnet:?xt=urn:btih:A603AF36F8D3CD8D61A8529FD30390011D6FE1C6
 magnet:?xt=urn:btih:405B2B7ABBA58C56317ACF4DA40D55D5D34A977C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +260,8 @@ magnet:?xt=urn:btih:405B2B7ABBA58C56317ACF4DA40D55D5D34A977C
 magnet:?xt=urn:btih:4F2C0614B346D35F5A243F2ABA7875E960E1684A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +285,8 @@ magnet:?xt=urn:btih:4F2C0614B346D35F5A243F2ABA7875E960E1684A
 ```bash
 magnet:?xt=urn:btih:47B7D5031D3A4AA1098B924397F024A4B9904A53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +313,8 @@ magnet:?xt=urn:btih:47B7D5031D3A4AA1098B924397F024A4B9904A53
 magnet:?xt=urn:btih:5EB8759B0B25C4C0518B7E53FF96AE7FFB424584
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +340,8 @@ magnet:?xt=urn:btih:5EB8759B0B25C4C0518B7E53FF96AE7FFB424584
 magnet:?xt=urn:btih:7C7F4DEB127FDAC8CB6018957CB6E03F0019EF87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +365,8 @@ magnet:?xt=urn:btih:7C7F4DEB127FDAC8CB6018957CB6E03F0019EF87
 ```bash
 magnet:?xt=urn:btih:26E4F22A8BD35D8F96E1EDC3254EC9E20F2E1840
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +392,8 @@ magnet:?xt=urn:btih:26E4F22A8BD35D8F96E1EDC3254EC9E20F2E1840
 magnet:?xt=urn:btih:9022EC296BC608820F6B5E490BBEC13CC4F02B50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +417,8 @@ magnet:?xt=urn:btih:9022EC296BC608820F6B5E490BBEC13CC4F02B50
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +445,8 @@ magnet:?xt=urn:btih:9022EC296BC608820F6B5E490BBEC13CC4F02B50
 magnet:?xt=urn:btih:558CF3ADCDBEAB93CA00FA6AD28BA54092221F9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +471,8 @@ magnet:?xt=urn:btih:558CF3ADCDBEAB93CA00FA6AD28BA54092221F9E
 magnet:?xt=urn:btih:9F5C1E014920CD21160DD1B021A594FFBC50C3B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +496,8 @@ magnet:?xt=urn:btih:9F5C1E014920CD21160DD1B021A594FFBC50C3B9
 ```bash
 magnet:?xt=urn:btih:93ACA6807920CE19F7C394B668E3F0DE47E9D1CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +524,8 @@ magnet:?xt=urn:btih:93ACA6807920CE19F7C394B668E3F0DE47E9D1CC
 magnet:?xt=urn:btih:006FD04F9D7B393FF11D5B1F7BA5F3664BD7C8FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +549,8 @@ magnet:?xt=urn:btih:006FD04F9D7B393FF11D5B1F7BA5F3664BD7C8FE
 ```bash
 magnet:?xt=urn:btih:FE0EFFF8D69C5CFD03902ECAAE2A03DA7BD77E57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +576,8 @@ magnet:?xt=urn:btih:FE0EFFF8D69C5CFD03902ECAAE2A03DA7BD77E57
 magnet:?xt=urn:btih:4C9128F8B9DEAEB7875E9BCD05B5E4B10994ECE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +601,8 @@ magnet:?xt=urn:btih:4C9128F8B9DEAEB7875E9BCD05B5E4B10994ECE4
 ```bash
 magnet:?xt=urn:btih:B597C4776B19142B51D66A2E412F3D83C6CA658D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +628,8 @@ magnet:?xt=urn:btih:B597C4776B19142B51D66A2E412F3D83C6CA658D
 magnet:?xt=urn:btih:5F5CDFF995AEC651208FA31E8CB8A42B4477DE1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +653,34 @@ magnet:?xt=urn:btih:5F5CDFF995AEC651208FA31E8CB8A42B4477DE1C
 ```bash
 magnet:?xt=urn:btih:16D030FE144C17E799FD3F470D480F72A2B35ADA
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521425   (765146) от 02.01.2022
+
+Взлом / El Crack / The Crack (1981) BDRip [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Частный детектив Херман Арета находит неизлечимо больного клиента, который хочет увидеть свою давно потерянную сбежавшую дочь перед своей смертью. Но когда Арета начинает расследование дела, это приводит его в темную изнанку Мадрида, где он обнаруживает, что не только он ищет девушку. Кто-то другой тоже заинтересован в ней, кто-то могущественный и опасный, который (   Читать дальше...   )Производство: Испания, Acuarius Films S.A., Impala, Nickel OdeonЖанр: Триллер, драма, криминал, детективРежиссер: Хосе Луис ГарсиАктеры: Альфредо Ланда, Мария Касанова, Мануэль Техада, Мигель Рельян, Мануэль Лоренсо, Рауль Фрайре, Хосе Бодало, Франсиско Видаль, Мэйти Бласко, Хосе Мануэль СервиноПеревод: Авторский (Роман Янкелевич)Субтитры: отсутствуютПродолжительность: 02:05:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96C91981A4201A14B40499321E3534F3D65F903E
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

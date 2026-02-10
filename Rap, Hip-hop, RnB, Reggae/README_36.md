@@ -1,3 +1,29 @@
+###  Публикация: 1445590   (1033522) от 06.02.2021
+
+Звонкий - Shine (2019) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine (03:12)Жанр: Rap, Hip-HopПродолжительность: 00:03:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35C31F552DB1FE5F4B4FD5F13CA35DCF04AFC752
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618402   (1033931) от 12.03.2023
 
 Sagath - Catacombs (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Hip-Hop, Horrorcore>
@@ -21,6 +47,8 @@ Sagath - Catacombs (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Hip-Hop, H
 ```bash
 magnet:?xt=urn:btih:A8791127308AA3BD9E97F7F483AB5060D100C57D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +77,8 @@ The Cancel - Reply from Space (2011) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Hip-Hop, 
 magnet:?xt=urn:btih:77A78E16D9D4F6560794FFF40755174A90C7B68B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +105,8 @@ The Cancel - Diversity (2011) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Hip-Hop, Instrum
 ```bash
 magnet:?xt=urn:btih:F711C1DC28A76BE3724BAF79EBCB643AE9D9CA5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +135,8 @@ Onyx - Lost Treasures (2020) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:EB045FDA6194B2BC8ABA5764EDEA6E61838DDE1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +161,8 @@ The Cancel - Coffee Cafe EP (2012) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Hip-Hop, In
 ```bash
 magnet:?xt=urn:btih:F023094CC80CDD1B2BE5D393CEB4F8E09634FCA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -155,6 +191,8 @@ The Cancel - Night Light (2013) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instrume
 magnet:?xt=urn:btih:A86F8AEAD96CB408140710238F33FD946DDCBB47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +219,8 @@ Ours Samplus - One Day One Beat (2014) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, I
 ```bash
 magnet:?xt=urn:btih:06368C8C317180ACFBFCD8971BD0A124A31998C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -209,6 +249,8 @@ The Cancel Band - Case (2017) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instrument
 magnet:?xt=urn:btih:4288EEAF611D4D06E3F75263FC7523F383EEE79A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +277,8 @@ The Cancel & Dj Shon - The All Boom (2016) [FLAC|Lossless|WEB-DL|tracks] <Hip-Ho
 ```bash
 magnet:?xt=urn:btih:FF2F7E8460D495E2712E975804A14621F4418B0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +307,8 @@ The Cancel - Autumn (2018) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instrumental>
 magnet:?xt=urn:btih:D99478671F8C5ADD4C35E3A2E74614D48790E205
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +335,8 @@ The Cancel & Dj Shon - Movement (2018) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, I
 ```bash
 magnet:?xt=urn:btih:0B8A24B1ACD7C2009BA2AE006469FE11191CF880
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +365,8 @@ The Cancel - Criminal (2014) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instrumenta
 magnet:?xt=urn:btih:A103112229F0045289A34D668734B4965EE62D3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +393,8 @@ The Cancel - Daybreak (2013) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instrumenta
 ```bash
 magnet:?xt=urn:btih:D08422944D88610C425867AC40314F1E172AA478
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +423,8 @@ The Cancel - No Way To Stay (2015) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instr
 magnet:?xt=urn:btih:7D67095D115C7E172B30A92268BB35C4EE5AAD59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +451,8 @@ The Cancel - Jungle (2016) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instrumental>
 ```bash
 magnet:?xt=urn:btih:BDB7DFC972915B63132874E9E1D8A62D247F99BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +481,8 @@ Toni Braxton - Toni Braxton (1993) [FLAC|Lossless|image + .cue] <R&B, Funk, Soul
 magnet:?xt=urn:btih:08C6366062AB8FE4C090018660029255CB2785EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +509,8 @@ magnet:?xt=urn:btih:08C6366062AB8FE4C090018660029255CB2785EC
 ```bash
 magnet:?xt=urn:btih:144CE48B4EBAFEAD2F1248AA43D1F838B0F981FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +539,8 @@ magnet:?xt=urn:btih:144CE48B4EBAFEAD2F1248AA43D1F838B0F981FF
 magnet:?xt=urn:btih:6F715CB67510325CD7343B917396BD25D64B938A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +567,8 @@ VA - Rap Workout (2021) Explicit [MP3|320 Kbps] <Rap, Pop>
 ```bash
 magnet:?xt=urn:btih:AEE7CD143708DFE0C1F0E2EF7C025E4E78A64AE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +597,8 @@ Marty McKay - Plandemic (2023) [MP3|320 Kbps] <Rap Rock, Hip-Hop>
 magnet:?xt=urn:btih:E78105E8BE1BB2E4C8C781AEC5456F10F6BEB48A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +625,8 @@ Marlowe (L'Orange & Solemn Brigham) - Marlowe 3 (2022) [FLAC|Lossless|Web-DL|tra
 ```bash
 magnet:?xt=urn:btih:7874BC2A0B3B786ED9A3074DA27A9E8D95DB842A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +655,8 @@ magnet:?xt=urn:btih:7874BC2A0B3B786ED9A3074DA27A9E8D95DB842A
 magnet:?xt=urn:btih:CEA5FB0AAD9289D50627EDE5E4142046B0474BE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +683,8 @@ Sam Smith - Gloria (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B, Soul>
 ```bash
 magnet:?xt=urn:btih:AC63C866ED0FA08D60D4EF64DD63D0C8BBB569AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +713,8 @@ Murovei - WINSK I-II (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:9A6D4F29BEBAE316C7226D6E6779EB101265D547
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,32 +742,7 @@ Twiztid - Glyph (2023) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Rap, Horrorcore R
 magnet:?xt=urn:btih:A13C483EDE6BAA39FA6BD65EDE1E9E44614DEB25
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606931   (1044218) от 24.01.2023
-
-VA - The Many Faces of Stevie Wonder (2021) 3xCD [FLAC|Lossless|image + .cue] <R&B, Soul, Pop>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stevie Wonder, настоящее имя которого Stevland Hardaway Morris, родился 13 мая 1950 года, - одна из самых любимых американских икон и бесспорный гений не только R&B, но и популярной музыки в целом. Слепой практически с рождения, обостренное восприятие звука помогло Wonder'у создавать яркую, красочную музыку, полную жизни и амбиций. Почти все, что он записывал, (   Читать дальше...   )CD1 - The Many Faces Of Stevie Wonder:
- 01. Stevie Wonder - I Call Pretty Music But The Old People Call It The Blues (Part 1) (2:31)
-02. Stevie Wonder & Clarence Paul - Little Water Boy (2:35)
-03. Stevie Wonder - Superstition (Live) (5:41)(   Читать дальше...   )Жанр: R&B, Soul, PopПродолжительность: 02:14:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E80D26C0C786126CB3C0888AE3A7409675C7398
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

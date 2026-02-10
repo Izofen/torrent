@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:DF7590D9766EB7B3496EF966DEEAC598612EAE1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Human Anatomy Atlas 2025 v2025.00.012 [En]
 magnet:?xt=urn:btih:5AFD6FFED0C8E819CF5A1697533BFA0038F167B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:5AFD6FFED0C8E819CF5A1697533BFA0038F167B1
 magnet:?xt=urn:btih:8C67F6B6B13892E44F38C39B1C20E4D2D65131CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:8C67F6B6B13892E44F38C39B1C20E4D2D65131CD
 ```bash
 magnet:?xt=urn:btih:BCD4840EB2C4C0CBE9365A8648985BB4078F9508
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ VA - Digital Dreams (2025) [MP3|320 Kbps] <Synthwave, Electronic>
 magnet:?xt=urn:btih:8B47101E32C021D71D31780C127DF8764A945E25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ RRogue Samurai - это интенсивная roguelite игра в жанре 
 ```bash
 magnet:?xt=urn:btih:9A6A177EE0A2AF240E0B97E32C2213A35E6E54FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:9A6A177EE0A2AF240E0B97E32C2213A35E6E54FE
 magnet:?xt=urn:btih:95E66FBA3C8A24982B09BF04C48DA17F2E740CFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:95E66FBA3C8A24982B09BF04C48DA17F2E740CFC
 ```bash
 magnet:?xt=urn:btih:A07C1931C0FD6E2944FB709AE46E0F621431182C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:A07C1931C0FD6E2944FB709AE46E0F621431182C
 magnet:?xt=urn:btih:2C3C3F2F365DE9D7E7EAA3795A2C357A1ADDEE1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Shift’n Slay – пошаговый тактический рогалик на
 ```bash
 magnet:?xt=urn:btih:B14B874C7F188BADAE6C0D4F703DFB83D5961F18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:B14B874C7F188BADAE6C0D4F703DFB83D5961F18
 magnet:?xt=urn:btih:888EFF3C739B77C5C6448BF70C7181A78ADAB2AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:888EFF3C739B77C5C6448BF70C7181A78ADAB2AA
 ```bash
 magnet:?xt=urn:btih:6275786DA4885E04723E72C077062AF42F4F19D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ Luther Allison: американский блюзовый певец-гитар�
 magnet:?xt=urn:btih:9CA705C79ECA4BEC92B152D57108505B27F13101
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ DiskDigger - маленькая утилита, с которой можно в�
 magnet:?xt=urn:btih:13DF7B2EECCD6F31FDADEF942E8022D7B1E863FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ Old World - это историческая стратегия, в которо�
 ```bash
 magnet:?xt=urn:btih:48DB76FCF63549EC788590F2FB5FE9F0683311FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ U.D.O. - Compilation (1987-2025) [MP3|320 Kbps] <Heavy metal>
 magnet:?xt=urn:btih:8B529DD6B0CEFC91FBDA05DECE58A1851AEC04F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:8B529DD6B0CEFC91FBDA05DECE58A1851AEC04F2
 magnet:?xt=urn:btih:A077FE99ACF78EC6646F1CFDF6883DE06A80BA26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:A077FE99ACF78EC6646F1CFDF6883DE06A80BA26
 ```bash
 magnet:?xt=urn:btih:6992A61BD6B7FE74CC858CF0B742EB38CC8F7F95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +503,8 @@ magnet:?xt=urn:btih:6992A61BD6B7FE74CC858CF0B742EB38CC8F7F95
 magnet:?xt=urn:btih:8A72256B0E22F955E8B99805F20EEC23CB2A0554
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ magnet:?xt=urn:btih:8A72256B0E22F955E8B99805F20EEC23CB2A0554
 ```bash
 magnet:?xt=urn:btih:ABB0C5B15A5FC12522A06203D25711DA234D3329
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +558,8 @@ Livin' Blues сыграла благодаря стечению обстояте
 magnet:?xt=urn:btih:5280534694C51428E762912B8E0842C97FA5052A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +583,8 @@ magnet:?xt=urn:btih:5280534694C51428E762912B8E0842C97FA5052A
 ```bash
 magnet:?xt=urn:btih:E001DC941107EEA126CCBAF4889AF67CC84CB3D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +610,8 @@ magnet:?xt=urn:btih:E001DC941107EEA126CCBAF4889AF67CC84CB3D8
 magnet:?xt=urn:btih:7B806042F0BCA5779074B06C71EEA901104DE592
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ Eiyuden Chronicle: Hundred Heroes – это увлекательный фент
 ```bash
 magnet:?xt=urn:btih:462C318156C41627A98A18A529907F4857672C1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +662,8 @@ The Rangers in the South — это pixelart action roguelike rpg, действ�
 magnet:?xt=urn:btih:F02B7136742F461BF8EFDD22F4A1FBA567BE6BA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ magnet:?xt=urn:btih:F02B7136742F461BF8EFDD22F4A1FBA567BE6BA8
 ```bash
 magnet:?xt=urn:btih:EE98D18BF32B106D0305DE8FA7A6EE783C78A005
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 908013   (636160) от 13.06.2015
+
+Укротители звука (13.06.2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_636160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Давно известно, что тишина дарит человеку спокойствие и умиротворение. Еще в Древнем Риме, почти две тысячи лет назад, Юлий Цезарь запретил ночную езду на грохочущих колесницах. А королева Англии Елизавета четыре столетия назад не разрешала мужьям бить своих жен после 10 часов вечера, "чтобы их крики не беспокоили соседей"… Борьба за тишину продолжается (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТВ-шоу, развлекательныйПродолжительность: 00:41:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DF2C5C52B9319C5BD45625C092307526BFC2DD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033831   (636278) от 12.07.2016
 
 В теме. Пограничное состояние (11.07.2016) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:2AC9E7A5E9DB6CA8865B2B3727F2572625B4E92B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:2AC9E7A5E9DB6CA8865B2B3727F2572625B4E92B
 magnet:?xt=urn:btih:9699B8775751E9F51F1E12A25A25B454E746048E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:9699B8775751E9F51F1E12A25A25B454E746048E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:9699B8775751E9F51F1E12A25A25B454E746048E
 magnet:?xt=urn:btih:2DD54FFB3DF757B6D113D51D66C6B1966BED5BD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ BBC: Эдвардианская ферма [12 серий из 12] / Edwardian F
 ```bash
 magnet:?xt=urn:btih:49B4F3E27331F8C378C26C1BFB52C0128D870EEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:49B4F3E27331F8C378C26C1BFB52C0128D870EEC
 magnet:?xt=urn:btih:16AB14FAF31BA8DFFC8CDAE1F329830470800DDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:16AB14FAF31BA8DFFC8CDAE1F329830470800DDE
 magnet:?xt=urn:btih:88BC8355F610209E35F3B845969596510C468C11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +226,8 @@ magnet:?xt=urn:btih:88BC8355F610209E35F3B845969596510C468C11
 ```bash
 magnet:?xt=urn:btih:BA3BF444215B424A424A96CE3922551A9D85F80A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:BA3BF444215B424A424A96CE3922551A9D85F80A
 magnet:?xt=urn:btih:3482656D5515FE7CA122EFAB2E93D32667400CC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:3482656D5515FE7CA122EFAB2E93D32667400CC6
 ```bash
 magnet:?xt=urn:btih:922A0EDA152E70A3FC7D084A12EE12FAAAEFEF63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:922A0EDA152E70A3FC7D084A12EE12FAAAEFEF63
 magnet:?xt=urn:btih:23AABBDC8C1F0D0E110CBC639066F72E769700B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:23AABBDC8C1F0D0E110CBC639066F72E769700B1
 ```bash
 magnet:?xt=urn:btih:485E927B40556BCF98CEC3648C3E0F2F503768F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:485E927B40556BCF98CEC3648C3E0F2F503768F6
 magnet:?xt=urn:btih:E24C997A3BA767FD891959D42128BE2E4D17D92F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:E24C997A3BA767FD891959D42128BE2E4D17D92F
 ```bash
 magnet:?xt=urn:btih:5066EFE084B4D55D3259B5D3A5D5259D21546BD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:5066EFE084B4D55D3259B5D3A5D5259D21546BD1
 magnet:?xt=urn:btih:6F0A8EC35F4FA2938FE28F632C35DBE28ED06A63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:6F0A8EC35F4FA2938FE28F632C35DBE28ED06A63
 ```bash
 magnet:?xt=urn:btih:B3F40892A98914B564339ACA9D6DC4BF1C690B01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:B3F40892A98914B564339ACA9D6DC4BF1C690B01
 magnet:?xt=urn:btih:2A241F1A990E04C74B4E4B901BF2839419D2F4F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +487,8 @@ Viasat Nature: Подземный мир саванны / Six Feet under the Sav
 ```bash
 magnet:?xt=urn:btih:7DCA242C3F3C35A914B61BD04F10533142366928
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:7DCA242C3F3C35A914B61BD04F10533142366928
 magnet:?xt=urn:btih:DB774799500593BB563565988831C4892AB56366
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +539,8 @@ magnet:?xt=urn:btih:DB774799500593BB563565988831C4892AB56366
 ```bash
 magnet:?xt=urn:btih:2337688B44D9ACFC0C5CE537D5A8325967EEC7E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:2337688B44D9ACFC0C5CE537D5A8325967EEC7E8
 magnet:?xt=urn:btih:48A468972937BCD43241A8E0B6D0C9B724861DCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +591,8 @@ magnet:?xt=urn:btih:48A468972937BCD43241A8E0B6D0C9B724861DCB
 ```bash
 magnet:?xt=urn:btih:1D57F378F9198F6FACC5C6AF06A774BFE8B44E44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +618,8 @@ magnet:?xt=urn:btih:1D57F378F9198F6FACC5C6AF06A774BFE8B44E44
 magnet:?xt=urn:btih:9524F8DC529C7C62AE931A17FC97DBDF7017EEF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +643,8 @@ magnet:?xt=urn:btih:9524F8DC529C7C62AE931A17FC97DBDF7017EEF0
 ```bash
 magnet:?xt=urn:btih:9692FF9D95E901C9A97007A81D1D7A72FFFA757E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,29 +670,7 @@ magnet:?xt=urn:btih:9692FF9D95E901C9A97007A81D1D7A72FFFA757E
 magnet:?xt=urn:btih:8079AD54D2D90A21BD910CC0168008CE8AE9FC16
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907612   (637628) от 12.06.2015
-
-Форт-Росс. Берег несбывшейся мечты (2015) SATRip
-
->>Документалистика и Телепередачи
->>Отечественная история
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637628.jpg" />
-</div>
-
-
-###  Подробнее
-
-В январе 1842 года последний начальник русского форта с частью колонистов на бриге "Константин" навсегда покинул Калифорнию. За время владения этой благодатной землёй русским так и не удалось оформить её в собственность. Форт-Росс и прилегающие к нему поселения были проданы за бесценок частному владельцу. Спустя несколько лет именно здесь будут обнаружены (   Читать дальше...   )Производство: Россия, ООО «Телекомпания Идея»Телекомпания: ТВ-ЦентрЖанр: ДокументальныйРежиссер: Дмитрий ПолетаевПродолжительность: 00:38:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:884571904D64BF395814D409165EAC697E6DBF86
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

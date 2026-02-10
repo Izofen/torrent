@@ -22,6 +22,8 @@ Stone Sour— американская метал-группа, образова
 magnet:?xt=urn:btih:21383AA6237FA1210979BC72758D80A1E2FEE1EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Linkin Park - Reanimation (2002) U.S., 9 48326-2, 2011+ [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:0BB51174410C1016C9D7FD389CC677A11F1206CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Linkin Park - Minutes To Midnight (2007) Brazil, 9362444772, AA0031000 Pressing 
 magnet:?xt=urn:btih:A08791A884C1206242A1437888F061A74E357B06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Linkin Park - Living Things (2012) Brazil, 9362495048, AD0001000 Pressing [FLAC|
 ```bash
 magnet:?xt=urn:btih:37D61E13DE04DFB9B0DABA2C7205DC2E85EFBA72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Linkin Park - One More Light (2017) Argentina, 559687-2 [FLAC|Lossless|image + .
 magnet:?xt=urn:btih:A2DF792B10CECCA23D7090E116B13329621DF2E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Linkin Park - One More Light Live (2017) Brazil, 0093624907923, AB0001000 Pressi
 ```bash
 magnet:?xt=urn:btih:DB6A94243FCC6591B1BE86BA880F5A5E8FC33F30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Linkin Park - Songs From The Underground (2008) Japan, WPCR-13468, 2009 [FLAC|Lo
 magnet:?xt=urn:btih:B3670C031775E29673AF605F4C8AC1785C39E35C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Linkin Park - Recharged (2013) Brazil, 0093624941606, AB0003000 Pressing [FLAC|L
 ```bash
 magnet:?xt=urn:btih:7A1F0F9A869B9DD0D32A139112414A0C2CE69A99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Jay-Z / Linkin Park - Collision Course (2004) Brazil, 936248963-2, AA0050000 Pre
 magnet:?xt=urn:btih:D7C17E36F6047FB8295209DC8100C837DDBB32DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Ends With A Bullet - For All My Sins (2026) [FLAC|Lossless|WEB-DL|tracks] <Moder
 ```bash
 magnet:?xt=urn:btih:A64CE020F58F415F74031CC38B4D4B0CF27BB313
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Binding - Cool Memory (2025) [FLAC|Lossless|WEB-DL|tracks] <Coldwave, Post-Punk>
 magnet:?xt=urn:btih:A9A662413CAA9A89B91C322423FF3D5C548470CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Deftones - американская метал-группа из города С
 ```bash
 magnet:?xt=urn:btih:F8484CD326D181F9EA76E392E57B16E03D566659
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Melissa Bonny - Cherry Red Apocalypse (2026) [FLAC|Lossless|WEB-DL|tracks] <Alte
 magnet:?xt=urn:btih:BDCFB7F016419843FE5E3A35F5554AFBFDD242FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Nirvana - In Utero (1993) [FLAC|Lossless|tracks + .cue] <Grunge, Alternative Roc
 ```bash
 magnet:?xt=urn:btih:7E255603F3DF52852A9FC9DEFB92490FA1679A85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

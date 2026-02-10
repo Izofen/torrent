@@ -1,3 +1,30 @@
+###  Публикация: 1477583   (1010937) от 15.06.2021
+
+Анастасия Соколова-Буалле | Франция изнутри. Как на самом деле живут в стране изысканной кухни и высокой моды? (2021) [FB2]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Франция – невероятно романтическая страна с богатой историей, красивыми замками, соборами, средневековыми улочками и великолепной кухней. На протяжении многих веков она привлекала все новых и новых туристов. Но как на самом деле живут люди в стране вина и сыра?
+Анастасия Соколова-Буалле живет во Франции больше 8 лет, ведет блоги в инстаграме и на ютубе, а также является (   Читать дальше...   )Жанр: Книги о путешествияхФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9D405FCCC1277ED0468B5E01D14DB55C45961E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1477429   (1010974) от 15.06.2021
 
 О. Рожнева (сост.) | Скорые помощники в болезнях. О святых старцах, подвижниках благочестия и духовниках XIX–XX веков (2021) [FB2, EPUB]
@@ -20,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:0DF3EB2BBB36C758550D6605AFF0982C13135EE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +74,8 @@ magnet:?xt=urn:btih:0DF3EB2BBB36C758550D6605AFF0982C13135EE0
 magnet:?xt=urn:btih:AC3CC763E745B56BF862CD67F00F48F3DFB514E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +100,8 @@ magnet:?xt=urn:btih:AC3CC763E745B56BF862CD67F00F48F3DFB514E3
 magnet:?xt=urn:btih:20C224FD2D608D822E527ED1362E073E2938C379
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +125,8 @@ magnet:?xt=urn:btih:20C224FD2D608D822E527ED1362E073E2938C379
 ```bash
 magnet:?xt=urn:btih:FD34B35F88006C42433F7A03FD7AD1A0990A599A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +155,8 @@ magnet:?xt=urn:btih:FD34B35F88006C42433F7A03FD7AD1A0990A599A
 magnet:?xt=urn:btih:65663DEE38E61BC5B266EB2785756BF566AE2344
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +183,8 @@ magnet:?xt=urn:btih:65663DEE38E61BC5B266EB2785756BF566AE2344
 magnet:?xt=urn:btih:E69256603B4588E5F5E9416E8057B06A73C93B7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +210,8 @@ magnet:?xt=urn:btih:E69256603B4588E5F5E9416E8057B06A73C93B7B
 magnet:?xt=urn:btih:B650035FA6744DCB9A18BF4193E458BB0DAE657A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +235,8 @@ magnet:?xt=urn:btih:B650035FA6744DCB9A18BF4193E458BB0DAE657A
 ```bash
 magnet:?xt=urn:btih:D1F2AC808AC60BF0125AB9EA0B62168782BA2CFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +264,8 @@ magnet:?xt=urn:btih:D1F2AC808AC60BF0125AB9EA0B62168782BA2CFD
 magnet:?xt=urn:btih:509BCFBE62E7B398F225F7E06E2714A0541BF90B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +289,8 @@ magnet:?xt=urn:btih:509BCFBE62E7B398F225F7E06E2714A0541BF90B
 ```bash
 magnet:?xt=urn:btih:999EA30A3E9250CEF4E1DF9BA3806C610245D7C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +316,8 @@ magnet:?xt=urn:btih:999EA30A3E9250CEF4E1DF9BA3806C610245D7C8
 magnet:?xt=urn:btih:F134564904466C786566A0045E5B3A628512D74C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +341,8 @@ magnet:?xt=urn:btih:F134564904466C786566A0045E5B3A628512D74C
 ```bash
 magnet:?xt=urn:btih:E44F9A62392D623E4D9A17D1BE73CDFAC033952F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +368,8 @@ magnet:?xt=urn:btih:E44F9A62392D623E4D9A17D1BE73CDFAC033952F
 magnet:?xt=urn:btih:33F407B876EC399840DF2EEE4BD25A0D1CFB30C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +393,8 @@ magnet:?xt=urn:btih:33F407B876EC399840DF2EEE4BD25A0D1CFB30C7
 ```bash
 magnet:?xt=urn:btih:8E3DF7237BACE8D6C0338104A0DD50E4CACD6E15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +420,8 @@ magnet:?xt=urn:btih:8E3DF7237BACE8D6C0338104A0DD50E4CACD6E15
 ```bash
 magnet:?xt=urn:btih:0C1D11C07180580C97727420607F800D1AC1C133
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +450,8 @@ magnet:?xt=urn:btih:0C1D11C07180580C97727420607F800D1AC1C133
 magnet:?xt=urn:btih:E8CAE05BD532861D2A90613E4B4C7DEB82AB5DE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +478,8 @@ magnet:?xt=urn:btih:E8CAE05BD532861D2A90613E4B4C7DEB82AB5DE1
 ```bash
 magnet:?xt=urn:btih:E3C6B4509DBA899889930655CF58275046BBD75D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +508,8 @@ magnet:?xt=urn:btih:E3C6B4509DBA899889930655CF58275046BBD75D
 magnet:?xt=urn:btih:23B70269F35FBACE093D3E2AD1E83A258069A0F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +533,8 @@ magnet:?xt=urn:btih:23B70269F35FBACE093D3E2AD1E83A258069A0F3
 ```bash
 magnet:?xt=urn:btih:9C675A7D879A9BBCD6E033C78E78EE6247D5EA85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +560,8 @@ magnet:?xt=urn:btih:9C675A7D879A9BBCD6E033C78E78EE6247D5EA85
 magnet:?xt=urn:btih:395A554157AAC62D639151BB4B692C97A5D4A0B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +585,8 @@ magnet:?xt=urn:btih:395A554157AAC62D639151BB4B692C97A5D4A0B5
 ```bash
 magnet:?xt=urn:btih:F82A4EA0B96092B02018E9E351DF68D299D1551F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +614,8 @@ magnet:?xt=urn:btih:F82A4EA0B96092B02018E9E351DF68D299D1551F
 magnet:?xt=urn:btih:D8A40E506B4CA5F24770E51818A9BCF54DF89324
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +639,8 @@ magnet:?xt=urn:btih:D8A40E506B4CA5F24770E51818A9BCF54DF89324
 ```bash
 magnet:?xt=urn:btih:5C5647EA357720C4EB9E3E7CCF7027423DC9054C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +666,8 @@ magnet:?xt=urn:btih:5C5647EA357720C4EB9E3E7CCF7027423DC9054C
 magnet:?xt=urn:btih:FF6AA5BEB113DA383981705E59A0BAEC93742DA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,29 +692,7 @@ magnet:?xt=urn:btih:FF6AA5BEB113DA383981705E59A0BAEC93742DA9
 magnet:?xt=urn:btih:C4367D764B0C332881786F9596A7DD3B72FB7A93
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473303   (1013859) от 28.05.2021
-
-Н.А. Мельников | Русский крест (2018) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013859.jpg" />
-</div>
-
-
-###  Подробнее
-
-В предлагаемой книге - поэма и стихотворения разных лет замечательного русского поэта Николая Алексеевича Мельникова (1964 † 2006), нашего современника. Его поэма «Русский крест» посвящена теме осмысления духовного пути России и русского народа, показанных сквозь призму изображения жизни русской деревни. А среди вошедших в сборник стихотворений — такие известные, (   Читать дальше...   )Жанр: Православие. ПоэзияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18923B6783F52F9D7DDECA13F5D999C6323D8DAA
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

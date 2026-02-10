@@ -19,6 +19,8 @@ Punto Switcher — автоматический переключатель ра�
 magnet:?xt=urn:btih:33D7C6DD7A8304CD182720F69420CD09C565DCCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Hotaru no Haka | Grave of the Fireflies | Могила светлячков [198
 ```bash
 magnet:?xt=urn:btih:31AC9885F425ED9FCBD029DC433A3728F58AE27D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Planet VPN 2.1.19.1 [Multi/Ru]
 magnet:?xt=urn:btih:FE2ECCF4BC4B81DFCDF11975B4F0FFC7039DC4B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:FE2ECCF4BC4B81DFCDF11975B4F0FFC7039DC4B7
 ```bash
 magnet:?xt=urn:btih:5082A84CD81AD898B03F6655A061438EFAE201F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:5082A84CD81AD898B03F6655A061438EFAE201F1
 ```bash
 magnet:?xt=urn:btih:3402D313C44D4DA0180AA5C036C8F3D9DC9F899F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:3402D313C44D4DA0180AA5C036C8F3D9DC9F899F
 magnet:?xt=urn:btih:F9553A823ABB15CB01C7DF3B2C5A4A927931D224
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:F9553A823ABB15CB01C7DF3B2C5A4A927931D224
 ```bash
 magnet:?xt=urn:btih:35A22DFC428086114EDC9446A0E44C342665A5D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ The Dragoness: Command of the Flame (2023) [Ru/Multi] (1.12) License GOG
 magnet:?xt=urn:btih:B66D3079D73761884A4CCB138AE40A5BC3A631CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:B66D3079D73761884A4CCB138AE40A5BC3A631CE
 ```bash
 magnet:?xt=urn:btih:7138A8754B102CF8C6367E7E24EE431B2CEE5FB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ HOP&SCOTCH | Английский: Продвинутый Уровень (2023) 
 magnet:?xt=urn:btih:23D680314FE237D4EF0F5C1904DBABCEC4E94195
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Dark City 8: Kyiv / Мрачный город 8: Киев (2023) [Ru] (1.0) Unof
 ```bash
 magnet:?xt=urn:btih:6D14EA116A976967A8E11E299313F10FE8A0851C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:6D14EA116A976967A8E11E299313F10FE8A0851C
 magnet:?xt=urn:btih:E04CDDD12362F3C24A181F8D5CF924441486A7BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:E04CDDD12362F3C24A181F8D5CF924441486A7BB
 ```bash
 magnet:?xt=urn:btih:5BA181CDF3CA7D428100216FA22473D412FE7461
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:5BA181CDF3CA7D428100216FA22473D412FE7461
 magnet:?xt=urn:btih:1C53F888264D5A7B3D2480FB31E4CD150EA35139
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:1C53F888264D5A7B3D2480FB31E4CD150EA35139
 ```bash
 magnet:?xt=urn:btih:3AC5DEECE0CA8661EBED533469C04750199218D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:3AC5DEECE0CA8661EBED533469C04750199218D3
 magnet:?xt=urn:btih:6666C9B75558FE747E9D15F3D005E9737ACC1DC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:6666C9B75558FE747E9D15F3D005E9737ACC1DC7
 ```bash
 magnet:?xt=urn:btih:89E7368EB14608E2B8EF00BFDC034C460E43AF30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:89E7368EB14608E2B8EF00BFDC034C460E43AF30
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:89E7368EB14608E2B8EF00BFDC034C460E43AF30
 ```bash
 magnet:?xt=urn:btih:945B158FEDFA6BC2EBACC8428DC67B6ED842FB0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:945B158FEDFA6BC2EBACC8428DC67B6ED842FB0C
 magnet:?xt=urn:btih:78E711910B3CF05C2A016AA6121414BBE824B246
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:78E711910B3CF05C2A016AA6121414BBE824B246
 ```bash
 magnet:?xt=urn:btih:66B41F0E2B091D09337F49FD7F751C6AEACA5AB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:66B41F0E2B091D09337F49FD7F751C6AEACA5AB2
 magnet:?xt=urn:btih:E77296E0F2100317A60C841E764383CA4393AAD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:E77296E0F2100317A60C841E764383CA4393AAD1
 ```bash
 magnet:?xt=urn:btih:62E24C05C60FB572895F1989A4898F76ED4C6502
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:62E24C05C60FB572895F1989A4898F76ED4C6502
 magnet:?xt=urn:btih:A75B7AE5DA2AD0974F4E7A55A7A1D89A1312D8CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:A75B7AE5DA2AD0974F4E7A55A7A1D89A1312D8CE
 magnet:?xt=urn:btih:7027A8D99474E1E1778F4F63654B546F9169559B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Scarlet Nexus (2021) [Ru/Multi] (1.08/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:E3730C959CBA41F6D398D6CE4881BF2FFFEA0080
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

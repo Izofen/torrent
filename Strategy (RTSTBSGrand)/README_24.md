@@ -19,6 +19,8 @@ Total War: Three Kingdoms - эта игра из популярнейшей ст
 magnet:?xt=urn:btih:DC0A9F650DE906F948B780088FD48FCD21B85C2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Shogun: Total War – это стратегический симулятор к�
 ```bash
 magnet:?xt=urn:btih:18C212DF2E25A617ADE36640079C652A5AF4BBF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Total War: MEDIEVAL 2 – Definitive Edition - это конечная верс�
 magnet:?xt=urn:btih:275F1D8378471F376030342EF64DB011E39DDEBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Total War: MEDIEVAL 2 – Definitive Edition - это конечная верс�
 ```bash
 magnet:?xt=urn:btih:2DC9CEF23180B713162C2AB39CA4290DBBF36504
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Rome: Total War - Alexander - второе официальное дополне
 magnet:?xt=urn:btih:2C6294D8B3C28EAED037DF269808C40EECED0D72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Rome: Total War (2004) [En] (v1/dlc) License GOG [Collection]
 ```bash
 magnet:?xt=urn:btih:70B395F219A69CF2DE4BAF3E5665C897990FCAB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Medieval: Total War (2002) [En] (v1/dlc) License GOG [Collection]
 magnet:?xt=urn:btih:668369CDE4446D449DEF5D8B03C63A8441B3288A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Age of Empires III: Definitive Edition - новая веха для культо
 ```bash
 magnet:?xt=urn:btih:119CC1B54E3449DD01F9A390429A3823E9BE2A31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Dungeons and Dragons: Dragonshard / Кристалл всевластья (2005)
 magnet:?xt=urn:btih:059D9E07B6C9CA1505CA9FC81773990D85AE8BFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Age of Empires II: Definitive Edition (AoE2: DE) - это обновленная
 ```bash
 magnet:?xt=urn:btih:E33CBAB531C2E78613D7C8C91756922EC5F80252
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Hive - это стратегия с элементами ролевой иг
 magnet:?xt=urn:btih:2D1B9A5ACACD3C84DC881CC7F24D85B13E6E06B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Nobunaga's Ambition: Sphere of Influence - Ascension - это дополнени
 ```bash
 magnet:?xt=urn:btih:A380C921D9D5357C7BD3A4E8DEB1FF81E5883BE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

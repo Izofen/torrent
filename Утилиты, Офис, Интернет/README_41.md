@@ -19,6 +19,8 @@ SeaMonkey 2.53.18.1 [Ru]
 magnet:?xt=urn:btih:7DF28CC692E8B83342288C08F3B2F4E48B425B73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Whale Browser -  южнокорейский быстрый интернет-бр
 ```bash
 magnet:?xt=urn:btih:1CE3D19369409F965F2EE17F545D47AAE394F96D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ DU Meter - программа для подсчета реального вхо�
 magnet:?xt=urn:btih:E07E74F7ABF21D8F34521735C675CBFCF33B70C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Stardocks Fences - программа, которая помогает Вам с
 ```bash
 magnet:?xt=urn:btih:B90934C74A0C66B6F883C9A470B76AC8A06FF6D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ DU Meter - программа для подсчета реального вхо�
 magnet:?xt=urn:btih:80BB3ACE4540C09B9320BC457C64B9D788631088
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Memtest86+ 7.00 [En]
 ```bash
 magnet:?xt=urn:btih:376FCACFDFCF8CD413ECD1C2F016AF6F8D423C00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ SanDisk (Western Digital) SSD Dashboard - официальная програм�
 magnet:?xt=urn:btih:AC960FE93832F5F34AC44204D3256625330A8D80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ OnionFruit Connect 2023.1223 [En]
 ```bash
 magnet:?xt=urn:btih:60B981C125D59B71F3DEAD78D957E8407795F834
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Celestia - бесплатная трёхмерная астрономическ�
 magnet:?xt=urn:btih:F85E70B82B654392D8E8BC843C36832F29AD465D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ oCam - неплохая бесплатная программа для запи�
 ```bash
 magnet:?xt=urn:btih:124F8E56C408B8AAEF668F8ED5F76F2371FF5972
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ TeraCopy – утилита улучшает процесс копировани
 magnet:?xt=urn:btih:C4D1A5462FF274DF84BEA5AB51E4EFDC629BF51B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ PortScan & Stuff - бесплатная утилита, которая дает 
 ```bash
 magnet:?xt=urn:btih:00CB90177F120B5BCA3C95C618407048DF015AE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ VueScan - программа предназначена для замены ст
 magnet:?xt=urn:btih:A9CD096B71B7DFDE827AE6EB5C2ED6E71337EAC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ ColorControl - небольшая программа которая после �
 ```bash
 magnet:?xt=urn:btih:3515291DAA18F8A43ECEE2CB31EB929E19461C68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Ant Download Manager - отличный менеджер загрузки сам
 magnet:?xt=urn:btih:41FF2C5A6110BA221B17FA7ADE1D85C1A143E94C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ MyLanViewer — программа для сканирования и монит
 ```bash
 magnet:?xt=urn:btih:CC5738784D1E7BB82A70DE4837FEADE91CA976B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Aomei Partition Assistant – мощная программа для работ�
 magnet:?xt=urn:btih:4C359B22ABAE262B0ECE7D5D0100E44A01240072
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Aomei Partition Assistant – мощная программа для работ�
 ```bash
 magnet:?xt=urn:btih:CF6DB0CFAC1A1EB37306E381A66FC5651C9DE034
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ W10 Digital License Activation - инструмент от Ratiborus для ак
 magnet:?xt=urn:btih:D44CB586B456A57EA03F66CC2D507B5F6FE20AF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ AOMEI Partition Assistant – мощная программа для работ�
 ```bash
 magnet:?xt=urn:btih:7875AB1061AED9D1992335F76FFCDCB39F160A72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ OneCommander V3 — это современный файловый менедж�
 magnet:?xt=urn:btih:91A42C3F0389DEFA33BFA706A03C318D8E226276
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ Fast Video Downloader - удобная и простая в настройке �
 ```bash
 magnet:?xt=urn:btih:D075DF4DD57548ADDD1A17A659C7995A29DF564E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:6DE248794C6DF04873D92713CF10EF09210233C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ Download Master эффективно решает 3 главных пробле�
 ```bash
 magnet:?xt=urn:btih:6FF591B9853E6EF9934C619600FE20EE4E46DAEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ GoodSync - программа из серии высоконадежного, у
 magnet:?xt=urn:btih:34C90BC3C8F45565479E0FEF4BD4A218957E5017
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:3CCA7781D26ED62DF12E9F799C59066D26C8F82F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

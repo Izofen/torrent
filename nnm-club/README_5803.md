@@ -19,6 +19,8 @@ X-Plane Flight Simulator v11.4.6 [En]
 magnet:?xt=urn:btih:0B5BD9D864A1CE68F9CA9F18FB00CB922A75DD97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:0B5BD9D864A1CE68F9CA9F18FB00CB922A75DD97
 ```bash
 magnet:?xt=urn:btih:D1F931347B27293349B70DAE6C023209978607EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:D1F931347B27293349B70DAE6C023209978607EB
 magnet:?xt=urn:btih:0EF8FA72C99627F082B5F1B4391A6CC6309999BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ OCCT 11.0.18.b2 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F664F8A72917F5E33115D1F6EFF907563BB00675
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:F664F8A72917F5E33115D1F6EFF907563BB00675
 magnet:?xt=urn:btih:60DB0B10DEBFD7CD21A49C826E70C7F8953A5893
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:25BF391EC4B51E056157BFFC3C9A4073C7D1F86B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:25BF391EC4B51E056157BFFC3C9A4073C7D1F86B
 magnet:?xt=urn:btih:F18D91BEC490659DE301740A4BBFA2A7F4EC53C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:F18D91BEC490659DE301740A4BBFA2A7F4EC53C9
 ```bash
 magnet:?xt=urn:btih:05E22A40087EC9AAF870D787AD12C2B39337C869
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:05E22A40087EC9AAF870D787AD12C2B39337C869
 magnet:?xt=urn:btih:BCB5C259CC952D2C527F12CC94BCB1469FB0597A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:BCB5C259CC952D2C527F12CC94BCB1469FB0597A
 ```bash
 magnet:?xt=urn:btih:31520B849D19D8C1221A62193B4E139CBCEE49EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:31520B849D19D8C1221A62193B4E139CBCEE49EB
 magnet:?xt=urn:btih:8570ADA00A0A4F9E961245E1E2F444E8EEFBE555
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:8570ADA00A0A4F9E961245E1E2F444E8EEFBE555
 ```bash
 magnet:?xt=urn:btih:5CE5F61C0E3BCF4787396E11BED47219BAD961B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:5CE5F61C0E3BCF4787396E11BED47219BAD961B6
 magnet:?xt=urn:btih:EA783E5C07BD31857B0CBC93AB1808556362A798
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:EA783E5C07BD31857B0CBC93AB1808556362A798
 magnet:?xt=urn:btih:C97D40C10FF182AFC5BC2F56AC196147924A48F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ LIII BitTorrent Client — это утилита для обмена файла�
 ```bash
 magnet:?xt=urn:btih:2C542418170FFBEBB2F58FD0086845C30983B7E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:2C542418170FFBEBB2F58FD0086845C30983B7E1
 magnet:?xt=urn:btih:9D4E570F61F77A90DEC608A2D5B6F107E32635BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:9D4E570F61F77A90DEC608A2D5B6F107E32635BE
 ```bash
 magnet:?xt=urn:btih:DF2819C99A4EB132B6C5849CC976ED271907B952
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ Privacy Eraser Free - комплексный инструмент для защ�
 magnet:?xt=urn:btih:AF50A793DB6280113529E60F39C28695E3726F3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ BBC: Луна / The Moon (2006) DVDRip
 ```bash
 magnet:?xt=urn:btih:C8644D838285E854564607465DF68246BE41AB1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:C8644D838285E854564607465DF68246BE41AB1F
 magnet:?xt=urn:btih:303DC0C5C82FF81D2D70FD36E2899EAEDE4C0668
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ DirPrintOK 6.65 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:AB0D8285D3DD50921948C062B812FD9F94E9047B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:AB0D8285D3DD50921948C062B812FD9F94E9047B
 magnet:?xt=urn:btih:32449420D0BACB534DA6BADFE1F68225654A2F88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Sonic Frontiers (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.40 / DLC] [Ru/Multi]
 magnet:?xt=urn:btih:E3491C31FE8FA31E6467019D028860F15EB6EEA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:E3491C31FE8FA31E6467019D028860F15EB6EEA4
 ```bash
 magnet:?xt=urn:btih:E36CAEC54BC90CB3EF9198C5BF193EC7C459F825
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:E36CAEC54BC90CB3EF9198C5BF193EC7C459F825
 magnet:?xt=urn:btih:C8EE859DAF02C182B2BA1FF66A27CC9A71AB0657
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ VueScan - программа для работы со сканерами HP, Min
 ```bash
 magnet:?xt=urn:btih:813E61B9B8136A53192BC4EAFF1DB8A4FBC19419
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

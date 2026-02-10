@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:BBBB3CFD9A4F230DD56EFBD4FC39F86154C7E85B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Microsoft is enhancing all its most widely used productivity software―includin
 ```bash
 magnet:?xt=urn:btih:9453630C4CFA3744036AC64A60DE3E4D0E3C36FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:9453630C4CFA3744036AC64A60DE3E4D0E3C36FB
 magnet:?xt=urn:btih:7073129E39D444E3EAEEAFCAD7AA5191FC5756CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:7073129E39D444E3EAEEAFCAD7AA5191FC5756CF
 ```bash
 magnet:?xt=urn:btih:33BEF6E4441DB26AFC94ED5BD6FD4FC6D379F79C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ Fully updated for the latest version of Office 365, Excel VBA Programming For Du
 magnet:?xt=urn:btih:9A51AD5B2DAF550C7A976E8B8D2E5B255C598C49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ If you haven't modernized your data cleaning and reporting processes in Microsof
 magnet:?xt=urn:btih:007DC5BD07B780EF5E52BEE3E00237FA27C042FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Word, Microsoft's powerful and popular word processor, is capable of extraordina
 ```bash
 magnet:?xt=urn:btih:3DB04A9B20D1F65B2A2FFD461BC3DD81E7A71ED2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ Mastering PowerShell Scripting, Fifth Edition, is your comprehensive guide to ha
 magnet:?xt=urn:btih:F6CE36992E4CC39F52E6A6C36099FEC7F636F92C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ Print out whatever you can dream up
 magnet:?xt=urn:btih:841B2769FB27BFFDFF642B964D717A2BC1A6025D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ Modern Operating Systems incorporates the latest developments and technologies i
 ```bash
 magnet:?xt=urn:btih:B4CE95A007BAA059E295740DCC0FD5CE2A4100A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ In the newly updated eleventh edition of the Linux Bible, veteran Linux author a
 magnet:?xt=urn:btih:6924716470702716E78D42C690A985F8FE519CDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ If you need to know C++, look no further! This comprehensive guide has everythin
 ```bash
 magnet:?xt=urn:btih:58AC16053360638447ECF0B5ACB3CC28225F7748
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ Beginner or expert, professional or hobbyist, this is the Linux guide you need! 
 magnet:?xt=urn:btih:BB4E0AEFA8ACA68CA93F2F3BA56455D5C8921111
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ Learn the ins and outs of containerization in Docker with this practical guide! 
 magnet:?xt=urn:btih:F6D2C6800B2409A122EE69FCFE4896244A316F47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ Neural networks are at the heart of AI—so ensure you’re on the cutting edge 
 ```bash
 magnet:?xt=urn:btih:EA4EA16B88AA76E6F09E150CE7B140784DA4747A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ Red Hat's Alex Soto Bueno and Andrew Block walk you through (   Читать д
 magnet:?xt=urn:btih:7FECFC46FE3654C346AA8780B005F81D54856362
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ Generative AI is transforming software development. Stay on the cutting edge wit
 ```bash
 magnet:?xt=urn:btih:DE80C91A7DB585100D1187D9C8FE3DC3278650D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +478,8 @@ Acing the CCNA Exam comes directly from Jeremy McDowell, a much-loved Cisco tuto
 magnet:?xt=urn:btih:A6279A8E2DF769837123567565D05B09044AFEC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ The only way to master a skill is practice, practice, practice. That’s exactly
 ```bash
 magnet:?xt=urn:btih:B2B8F77D4CE7C2D22BFD3360B4E60CCA2F4EA671
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +533,8 @@ This book lays out everything you need to take WebAssembly beyond its traditiona
 magnet:?xt=urn:btih:1937B4A3D8ABB780688468AAC6E01E33EED6AD65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ AI tools like ChatGPT and Gemini, automated coding tools like Cursor and Copilot
 magnet:?xt=urn:btih:15475CD95D3C3AC79C71FBDB1EBF7B505127246F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ Say goodbye to dependencies, bogged-down code, and inflexibility! With the Sprin
 magnet:?xt=urn:btih:66457FA653BFF9BDF5A10346279731542384004D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ magnet:?xt=urn:btih:66457FA653BFF9BDF5A10346279731542384004D
 ```bash
 magnet:?xt=urn:btih:C12388D7F382D881214B98465CC6094E8B8D110F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +641,8 @@ Deep Learning Crash Course is a fast-paced, thorough introduction that will have
 magnet:?xt=urn:btih:17D159122804CABF173A6BF968469B9052531CFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +668,8 @@ The book takes readers from basic concepts to complex details with a systematic�
 magnet:?xt=urn:btih:B8DEFE1FF2945D8BD2E987D95003C443B109A2E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ The book starts with foundational topics such as environment setup and building 
 ```bash
 magnet:?xt=urn:btih:B53CAEC1574481AF306BC0E060197AD53591CDE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

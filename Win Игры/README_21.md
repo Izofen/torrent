@@ -19,6 +19,8 @@ Days Gone рассказывает историю Дикона Сент-Джон
 magnet:?xt=urn:btih:986CCCF5959B86ED8C91CE182F9991E46E83AE5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:986CCCF5959B86ED8C91CE182F9991E46E83AE5E
 ```bash
 magnet:?xt=urn:btih:7E6F292012A4430FE81DBCE8BEF0B4A8D45840B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Black Geyser - изометрическая партийная РПГ, вдох�
 magnet:?xt=urn:btih:5D74C249137F6A8AE42B07EC201E5525E850B8F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Age of Wonders 4 - пошаговая стратегия с тактически
 ```bash
 magnet:?xt=urn:btih:C405A0D1CE2F3A45E6FE81E7BEAA617DC4A52E70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Herdling - это новое приключение от Okomotive, создав
 magnet:?xt=urn:btih:76B4E433B48429B4C35BECDBDB3EECEAF37CA8E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The Garden Path (2024) [Multi] (1.0) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:D2C6E6E5BEC9CC703CAB4CF714441C39DD66B9BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ S.T.A.L.K.E.R.: Shadow of Chornobyl (2025) [Ru/Multi] (1.2) Repack dixen18 [Enha
 magnet:?xt=urn:btih:7FC95E02E7177D31CE79BA61FF2110813DB75851
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Blood Storm: Alien Purge (2025) [Ru/Multi] (0.5) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:01AEDA88302384F2B03574EBEC5A5EEC00F2BDD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Forgotten but Unbroken (2024) [Multi] (1.2.2) License GOG
 magnet:?xt=urn:btih:6B0ECE16022429E1CD6C64C7433582DDBA4DAA75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Skully наделён силой волшебной глины и должен �
 ```bash
 magnet:?xt=urn:btih:E82B1E26B1688ABDA2CC51CB113C64910C9FBE79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Witch Way ставит игрока во главе поселения, стол
 magnet:?xt=urn:btih:38A664301844A5781689C2F6AE395503C855C6D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Dying Light (2016) [Ru/En] (1.53.0/dlc) Repack Wanterlude [Definitive Edition]
 ```bash
 magnet:?xt=urn:btih:ABE59D47BB02192274EA762EC3B4CAC6B6850D3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Echoes of Yi : Samsara - это мрачная игра в жанре боевы
 magnet:?xt=urn:btih:26C396029E4A6575D16A023F9F29135157469A56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Dave the Diver - это казуальная приключенческая RPG 
 ```bash
 magnet:?xt=urn:btih:EA2AF3B4D2DAE4F4DCDE7E53763D5B5451E96D65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ V Rising (2024) [Ru/Multi] (1.1.9.0/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:07CBC10F95BB43D854C4F147CA4082BA4634F284
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Intravenous 2 погружает вас в мир жестоких интриг 
 ```bash
 magnet:?xt=urn:btih:8A10C0DB3CEE5D70F3C25971BFF56E8F8218F0D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Dark Envoy объединяет классическую механику RPG с
 magnet:?xt=urn:btih:FFD60074843F59D0E53B28719BC1332A5E5EEA95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Detective Club 2: Gallery of Shadows (2025) [Multi] (1.0) Unofficial [Collector'
 ```bash
 magnet:?xt=urn:btih:716D3637A7F5972E6C5D40C866E55EE601AE920B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Bendy: Lone Wolf (2025) [Ru/Multi] (2.0.0) License GOG
 magnet:?xt=urn:btih:7A10F6BFED2ED166A9C997EB3B4B727C522DBDC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Yield! Fall of Rome (2025) [Ru/Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:1A159C1E5F6F662D16FD6278C0EE019357F4E8CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Ghostrunner - эта жестокая игра-слэшер от первого 
 magnet:?xt=urn:btih:75D5E164D081261617B823F5C6B69E79E0C58826
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Marvel’s Spider-Man Remastered (2022) [Ru/Multi] (3.618.0.0/dlc) Repack Wanter
 ```bash
 magnet:?xt=urn:btih:938C4DEDF74A68CAAF1DA39D4AEC1EAC2D14D81D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Last Epoch – приключенческая экшен-игра с глубо�
 magnet:?xt=urn:btih:7759643EF97E6D82AB612BD6A7F2A6536C678E9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Poly Bridge 3 - игра-головоломка, которая заключае
 ```bash
 magnet:?xt=urn:btih:5C689068BAEC697A1E19D09F38A9A6C54FA0EEDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ To the Eden начинается с падения таинственных об
 magnet:?xt=urn:btih:EA583DB2DA49C810967D2CAA148E143D37F0CB72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Lost Twins 2 - это невероятно милое головоломное �
 ```bash
 magnet:?xt=urn:btih:2401E1A4AC7EB238FD50F2599131A0CAEE4310AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

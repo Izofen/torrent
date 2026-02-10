@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Nero Burning ROM + Nero Express - минимальный мультимедий�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ CSI: Место Преступления / CSI: Crime Scene Investigation [12 с
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ CSI: Место Преступления / CSI: Crime Scene Investigation [12 с
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Windows XP Alternative v12.5.2 [RUS]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ FIFA 12 выводит жанр спортивных симуляторов на
 ```bash
 magnet:?xt=urn:btih:040AA38B6102E28517C6C23E307F06A8F35E943C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ TNOD User & Password Finder – это программа, которая при
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ TNOD User & Password Finder – это программа, которая при
 ```bash
 magnet:?xt=urn:btih:59084EE3A7B43FF8954D8E8972D3BC43952A9F34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ Lada Granta в Европе дешевле, чем в России.
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ Lada Granta в Европе дешевле, чем в России.
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ Adobe Photoshop  - программа для обработки растрово
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ Adobe Photoshop  - программа для обработки растрово
 magnet:?xt=urn:btih:BD6E0C73C0A7D943233BCFB15220D5D9605574FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ ESET Endpoint Security - комплексный антивирус для мал
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ Master of Orion 2: Battle at Antares [Ru] (RePack) 1996 | Pet9948
 ```bash
 magnet:?xt=urn:btih:F22DE73EEFDA4CEFC99C24C285E56CD0872DB7C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ Voyager 12.04 [i386, x86_64] (2xDVD)
 ```bash
 magnet:?xt=urn:btih:3AA2AEA8BEF6EE7720756934C854F7E1CB5CFE40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:3AA2AEA8BEF6EE7720756934C854F7E1CB5CFE40
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:3AA2AEA8BEF6EE7720756934C854F7E1CB5CFE40
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ Batman Arkham City: Game of The Year Edition [XBOX360] (RegionFree) (LT+3.0) (XG
 ```bash
 magnet:?xt=urn:btih:949B35FD00C2F110727703DC217BE113312E8653
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ Batman: Arkham City / Batman: Аркхем Сити + 14 DLC [Ru] (RePack/1.03) 
 magnet:?xt=urn:btih:197D1C04107D7757B5E6AB586E9496B06BA21336
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ Minecraft — это строительная игра жанра «песочн
 ```bash
 magnet:?xt=urn:btih:252B4278ED5B479ADABD98ECF6D88855DF5D6349
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:252B4278ED5B479ADABD98ECF6D88855DF5D6349
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ magnet:?xt=urn:btih:252B4278ED5B479ADABD98ECF6D88855DF5D6349
 ```bash
 magnet:?xt=urn:btih:E2B69D2D4C3D90518F4BB638844915664A481105
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +643,8 @@ Windows 7 Ultimate SP1 Final rtm 6.1 7601.17514.101119-1850 присутству
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +668,8 @@ Max Payne 3 [Ru] (RePack/1.0.0.17) 2012 | R.G. ReCoding
 ```bash
 magnet:?xt=urn:btih:B286146F394D6BBCE15D10DDCA01AA9AE25D5A7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -645,6 +695,8 @@ magnet:?xt=urn:btih:B286146F394D6BBCE15D10DDCA01AA9AE25D5A7F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

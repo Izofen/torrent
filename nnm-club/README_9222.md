@@ -22,6 +22,8 @@ Bill Evans Trio - with Symphony Orchestra (1965) 1989, Verve [FLAC|Lossless|trac
 magnet:?xt=urn:btih:A75A80502BD1FA1A8DB349E597209C5B13E7A26A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Resident Advisor Top 50 Charted Tracks November (2016) [MP3|320 Kbps] <Micr
 ```bash
 magnet:?xt=urn:btih:C515F3A98FA5A855B333677341E56804970CD5CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Mountain Sound the Lounge of St. Anton (2016) [MP3|320 Kbps] <Downtempo, Ch
 magnet:?xt=urn:btih:B0D3E4270FE0A7C9BB24CAAFC1AC74DA2EAA8A71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:B0D3E4270FE0A7C9BB24CAAFC1AC74DA2EAA8A71
 ```bash
 magnet:?xt=urn:btih:88F9FDC94F39FF7C22E50D988F30460E06317346
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Squeezer дружище веб-разработчика. Он может ком�
 magnet:?xt=urn:btih:3937DEA3B6695656AA127F95A9944B08B33F21D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ VA - Gate 1 (2016) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:D6E9031C8BE1B03F417E07EDC6FCB1A506D013E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -182,6 +194,8 @@ Feeder - это полнофункциональное приложение дл
 ```bash
 magnet:?xt=urn:btih:FDE1771E1E4BEA6696C1754F3709EC3D2BE33D98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -210,6 +224,8 @@ VA - Fabulous: Best Of (2016) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:7D535DAEDB3F27AEA4AD66689072CCE65DCFFA57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +252,8 @@ magnet:?xt=urn:btih:7D535DAEDB3F27AEA4AD66689072CCE65DCFFA57
 ```bash
 magnet:?xt=urn:btih:62568FD46B47AC2143226A409ACC502EE29AD002
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +282,8 @@ magnet:?xt=urn:btih:62568FD46B47AC2143226A409ACC502EE29AD002
 magnet:?xt=urn:btih:05CACFD680F647498BC0FBB73BEADCE229F418D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +311,8 @@ magnet:?xt=urn:btih:05CACFD680F647498BC0FBB73BEADCE229F418D2
 magnet:?xt=urn:btih:E98D57059E17C025C48DC37478B5180BD71EBD05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +338,8 @@ magnet:?xt=urn:btih:E98D57059E17C025C48DC37478B5180BD71EBD05
 ```bash
 magnet:?xt=urn:btih:DC0ED09D027F5AEB9862915A683FEEFAFF2AF367
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +368,8 @@ iambic (iambic²) - As The Snow Fell (2008) [FLAC|Lossless]<IDM, Minimal, Ambien
 magnet:?xt=urn:btih:E9FBF025B749569A817D0B62833BBD626980D28C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +393,8 @@ magnet:?xt=urn:btih:E9FBF025B749569A817D0B62833BBD626980D28C
 ```bash
 magnet:?xt=urn:btih:60240E1001D4495A3194CCAA6624AC21DB78B876
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +420,8 @@ Acronis True Image — это интегрированный пакет прог
 magnet:?xt=urn:btih:3728AD5B8CCAF92CEA7C4203C4ABFFC71EA4B0CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +445,8 @@ DiRT Rally (2015) [En/Multi] (1.0.109.3361) License RELOADED
 ```bash
 magnet:?xt=urn:btih:EF0338868A571FE7EFEFB4C4D407C3F26E486706
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +473,8 @@ magnet:?xt=urn:btih:EF0338868A571FE7EFEFB4C4D407C3F26E486706
 magnet:?xt=urn:btih:D139CAD375573F3AE1BB8450AF8FB97CD80446CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +498,8 @@ Zombie Vikings (2015) [Ru/Multi] (1.0) License CODEX [Ragnarök Edition]
 ```bash
 magnet:?xt=urn:btih:12A2E565A66B6EED978FBEB586795378C70BB04A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +525,8 @@ magnet:?xt=urn:btih:12A2E565A66B6EED978FBEB586795378C70BB04A
 magnet:?xt=urn:btih:C8A433F5F79B3D42644EDE497ECD0BD2DA4C3B3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +550,8 @@ magnet:?xt=urn:btih:C8A433F5F79B3D42644EDE497ECD0BD2DA4C3B3F
 ```bash
 magnet:?xt=urn:btih:5CA892A95F16EDDB591722C6980457A1111F9636
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +577,8 @@ magnet:?xt=urn:btih:5CA892A95F16EDDB591722C6980457A1111F9636
 magnet:?xt=urn:btih:F6846C8391CAB3F520DBBA23221DDBABA3D5ADE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +602,8 @@ Far Cry Primal - это спин-офф Far Cry, действия которог
 ```bash
 magnet:?xt=urn:btih:623B569B51A750BD27C66BE90B36E16D8EDAE896
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +629,8 @@ magnet:?xt=urn:btih:623B569B51A750BD27C66BE90B36E16D8EDAE896
 magnet:?xt=urn:btih:A5D7629C19D2BEDE5F28A624BC37C00870D5B38E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +654,8 @@ magnet:?xt=urn:btih:A5D7629C19D2BEDE5F28A624BC37C00870D5B38E
 ```bash
 magnet:?xt=urn:btih:9BC757C2C2D13CC2A10D3919D96D743B28BCB8D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +681,8 @@ magnet:?xt=urn:btih:9BC757C2C2D13CC2A10D3919D96D743B28BCB8D6
 magnet:?xt=urn:btih:9D4B122D78FD6E04B879C1971D83807CA14A2A6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ magnet:?xt=urn:btih:9D4B122D78FD6E04B879C1971D83807CA14A2A6B
 ```bash
 magnet:?xt=urn:btih:110FC949A122374EA67D6769037AEB3B2BCF0624
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1217199   (741934) от 05.04.2018
+
+Виктор Мазуркевич | Психология водительского мастерства (2018) [FB2]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741934.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге подробно описана методика психологической подготовки и самоподготовки учащихся автошкол к уверенному, безопасному, спокойному и культурному вождению автомобиля. Книга включает в себя лекционный материал, тесты и упражнения, мнемотехники, рекомендации по развитию необходимых водителю психофизиологических качеств, а также приемы психологической саморегуляции. (   Читать дальше...   )Жанр: СаморазвитиеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7089061981F5F3EFD4BB4119E6BAA3D5CF353F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282756   (741993) от 14.02.2019
 
 Алена Водонаева | Голая. Правда о том, как быть настоящей женщиной (2019) [FB2]
@@ -21,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:527C0012F56988160B855350B461089645A9C21F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ magnet:?xt=urn:btih:527C0012F56988160B855350B461089645A9C21F
 magnet:?xt=urn:btih:71A4D7077F8D40E8B365F84E5C40DAD98D9A6A86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:71A4D7077F8D40E8B365F84E5C40DAD98D9A6A86
 ```bash
 magnet:?xt=urn:btih:D5D7AFE8D4DD2E67401227F2FFFD803AED21C16D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +129,8 @@ magnet:?xt=urn:btih:D5D7AFE8D4DD2E67401227F2FFFD803AED21C16D
 magnet:?xt=urn:btih:60ACD996CAE48EE1BD1743DCC6E1C0C7AAD3A612
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +157,8 @@ magnet:?xt=urn:btih:60ACD996CAE48EE1BD1743DCC6E1C0C7AAD3A612
 magnet:?xt=urn:btih:A7ABACD028208482F276487FBC2F7F58C89659BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +182,8 @@ magnet:?xt=urn:btih:A7ABACD028208482F276487FBC2F7F58C89659BE
 ```bash
 magnet:?xt=urn:btih:53D1CF42B556972A86464701C863B6F696C43B72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +209,8 @@ magnet:?xt=urn:btih:53D1CF42B556972A86464701C863B6F696C43B72
 magnet:?xt=urn:btih:7F79BA2D384668E81082076BEEC434A5D545A85D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +235,8 @@ magnet:?xt=urn:btih:7F79BA2D384668E81082076BEEC434A5D545A85D
 magnet:?xt=urn:btih:1E4235AB63AACA154369A8A8FB453BEA27C16ADF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:1E4235AB63AACA154369A8A8FB453BEA27C16ADF
 ```bash
 magnet:?xt=urn:btih:66AFB28DF208E5DC41DF2D56AC78605FF00014BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +288,8 @@ magnet:?xt=urn:btih:66AFB28DF208E5DC41DF2D56AC78605FF00014BE
 magnet:?xt=urn:btih:3C18DD37BE78FEEDC5CF9049853EC1FA7BF797C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +313,8 @@ magnet:?xt=urn:btih:3C18DD37BE78FEEDC5CF9049853EC1FA7BF797C7
 ```bash
 magnet:?xt=urn:btih:26EFD250A737E3DE96C70AD76C013B41373770E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +340,8 @@ magnet:?xt=urn:btih:26EFD250A737E3DE96C70AD76C013B41373770E7
 magnet:?xt=urn:btih:E6595398E3820FAFEAB0B2AC8F1BC3D9C01A4C57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:E6595398E3820FAFEAB0B2AC8F1BC3D9C01A4C57
 ```bash
 magnet:?xt=urn:btih:0795F9627D60D5DEB4372A1ED1B5EE108F792263
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +392,8 @@ magnet:?xt=urn:btih:0795F9627D60D5DEB4372A1ED1B5EE108F792263
 magnet:?xt=urn:btih:A64537EBE4CB516C5E6A6987DEAEDBFDEF5BA507
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:A64537EBE4CB516C5E6A6987DEAEDBFDEF5BA507
 ```bash
 magnet:?xt=urn:btih:54BFADE585A148F7C8A741BAB093562F73FFCE2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +445,8 @@ magnet:?xt=urn:btih:54BFADE585A148F7C8A741BAB093562F73FFCE2B
 magnet:?xt=urn:btih:A04C8051E12B9DB5F056FDDDE7D5EDDA814DAAC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:A04C8051E12B9DB5F056FDDDE7D5EDDA814DAAC9
 ```bash
 magnet:?xt=urn:btih:1B55CFB9126B20E4412F4EA15DC6280A4120532D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +499,8 @@ magnet:?xt=urn:btih:1B55CFB9126B20E4412F4EA15DC6280A4120532D
 magnet:?xt=urn:btih:FF2FAABF65124FC2CC021AF82B5BD93194E2A1BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +524,8 @@ magnet:?xt=urn:btih:FF2FAABF65124FC2CC021AF82B5BD93194E2A1BF
 ```bash
 magnet:?xt=urn:btih:14841A66967AA5687409C5ACACD8B2CA81D0AB8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +551,8 @@ magnet:?xt=urn:btih:14841A66967AA5687409C5ACACD8B2CA81D0AB8D
 magnet:?xt=urn:btih:010C75163C4F388B62F34DC77355009033B9AF15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +576,8 @@ magnet:?xt=urn:btih:010C75163C4F388B62F34DC77355009033B9AF15
 ```bash
 magnet:?xt=urn:btih:73212EA4528C7C88E70811F743A85764B1E0BF7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +605,8 @@ magnet:?xt=urn:btih:73212EA4528C7C88E70811F743A85764B1E0BF7A
 magnet:?xt=urn:btih:06B5A2FDEF81F438CF561014B7C35020D8812D36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +630,8 @@ magnet:?xt=urn:btih:06B5A2FDEF81F438CF561014B7C35020D8812D36
 ```bash
 magnet:?xt=urn:btih:4F147C2D1D0C1F81FF2761BEB50820817E261CDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:4F147C2D1D0C1F81FF2761BEB50820817E261CDB
 magnet:?xt=urn:btih:76843CD47A0B2A992759941399A0D3D92B42539E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,31 +683,7 @@ magnet:?xt=urn:btih:76843CD47A0B2A992759941399A0D3D92B42539E
 magnet:?xt=urn:btih:05BF9AF9D999DB120DBFE6607E445D271A0338FD
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282721   (743404) от 13.02.2019
-
-Лэс Гиблин | Как обрести уверенность и силу в общении с людьми (2019) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Станьте гуру коммуникации и добивайтесь всего с помощью простых правил общения. Их автор, Лэс Гиблин, – признанный эксперт в области межличностного взаимодействия. Он провел более тысячи семинаров по коммуникационным навыкам и основал собственный Центр человеческих отношений. По всему миру было продано более миллиона экземпляров его книг.
-
-Прочитав эту книгу, вы (   Читать дальше...   )Жанр: Самосовершенствование, Достижение успехаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0442A962F8F73B6FA3DF4C32BC62A5424AE9C106
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

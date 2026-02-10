@@ -19,6 +19,8 @@ Galaxy Genome - нападения с космоса на Землю начал�
 magnet:?xt=urn:btih:2F668196F93D939F9559D7D9BA19C693099203DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ FRACTER - оригинальная логическая игра для Андр
 ```bash
 magnet:?xt=urn:btih:222A287517AA3D62DE4BC9167BFC0330C179AABA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Hill Climb Racing 2 - студия разработчик Fingersoft за вре
 magnet:?xt=urn:btih:FCC671415544E33852ED2024B7B8146D4DB720D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Drive Ahead! – экстремальные гонки, основанные н�
 ```bash
 magnet:?xt=urn:btih:D9011BE2D89C2CAD90F416217E5BB7A4376A5298
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ LocalCast - приложение №1 для видеопотока на Android
 magnet:?xt=urn:btih:297142300D9240A32DA2F0479908E7A05F2F1D09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Constellation Eleven – выбирайте персонажа и отправл
 magnet:?xt=urn:btih:D4720E686608B7BF9E3795C98CA8F6DC69577FC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ Baldur's Gate Enhanced Edition - легендарная игра на андро
 ```bash
 magnet:?xt=urn:btih:0156850E89C9791D3899757C06D16B03FAD709D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ FPSE способен отображать все PSOne игры в высоко
 magnet:?xt=urn:btih:D2D41B486D2EAD23213A6CF2B90E1B379DECD5BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ RuStore отечественный магазин приложений от VK �
 ```bash
 magnet:?xt=urn:btih:2959B1154FC0647B0FDF1BA9A99BBFB157212B6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ ePSXe для Android - это эмулятор консоли Sony PlayStation (
 magnet:?xt=urn:btih:0160798B1DDD48431EAA17CE8059CD899844A7DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Adobe Master Collection For Android - Сборник всех программ �
 ```bash
 magnet:?xt=urn:btih:93461482F0A148F825434E0C9CFD646A68AD1047
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Ski Tracker - отслеживание на лыжах, это приложен�
 magnet:?xt=urn:btih:470E7DB9B2C10710532F8292FA09EE7935516793
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ VPN Private v1.1.1 [En]
 ```bash
 magnet:?xt=urn:btih:A3A09A1FBD62D37D19BC6FD9D30241703F446762
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Crimsonland HD – быстро развивающийся шутер на ан�
 magnet:?xt=urn:btih:7C6A41C910F8C19F39CC13DEDE48435325B5E85D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Another World - это квест-головоломка, которую оче�
 magnet:?xt=urn:btih:91C73BADD87CC2DB584F2FFA0CB849F2348ADF08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Carmin приложение, чтобы получить и показать д�
 ```bash
 magnet:?xt=urn:btih:9B1845191EA874E6CE75690DE2E2967D26C25AD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ OTT Navigator IPTV v1.6.3.8 Mod [Ru]
 magnet:?xt=urn:btih:0C5095EAE8DB4347A754B8061BBDF06DBA0B5944
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ AR Plan 3D – инновационное приложение, использу
 ```bash
 magnet:?xt=urn:btih:F30024E480B5E7DC611A504F14A4E3BDDE320025
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ Angry Birds Journey - команда отважных птичек вновь о
 magnet:?xt=urn:btih:6412A7F2DCDDAD322160574C1E6AC453AD5249AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Dark Days: Survival Horror - симулятор выживания от трет
 magnet:?xt=urn:btih:1303793CA754A836C90204734098A52F22FC9182
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:1303793CA754A836C90204734098A52F22FC9182
 ```bash
 magnet:?xt=urn:btih:C74156B2D3B7FD5119934E5D9E67360C347FB1A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:C74156B2D3B7FD5119934E5D9E67360C347FB1A6
 ```bash
 magnet:?xt=urn:btih:083C0928FF3FF55A399B4C9E6F3DF4EBA5CD3355
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ Titan Workouts / Сила Титана v3.2.5 [Ru/En]
 magnet:?xt=urn:btih:3D387792E7A8CDA33DBAB5C51BF037A892C88CAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:3D387792E7A8CDA33DBAB5C51BF037A892C88CAF
 ```bash
 magnet:?xt=urn:btih:A06A1A5A64094438A44DB23D1C9938635903E19F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ magnet:?xt=urn:btih:A06A1A5A64094438A44DB23D1C9938635903E19F
 magnet:?xt=urn:btih:FA1AF76B7F3FB40C6ED9BFEAD6C6F9815C32BCA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ Dub Premium музыкальный плеер - потрясающий прои�
 ```bash
 magnet:?xt=urn:btih:ABE712EEA01488860028C7DEAFB49BCA8CB6B831
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

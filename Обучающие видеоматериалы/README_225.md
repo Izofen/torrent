@@ -21,6 +21,8 @@ IY Beats, Иван Юрченко | Курс по cозданию музыки 7
 magnet:?xt=urn:btih:6032BE0A075317D9B9D9371B902B626C3508E707
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:6032BE0A075317D9B9D9371B902B626C3508E707
 ```bash
 magnet:?xt=urn:btih:0A4AF5A37A3B01263FBE578A5D6E32FDA775F668
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ PhLearn Pro | Phlearn - Night Fairy (2014) PCRec [H.264/720p-LQ] [EN]
 magnet:?xt=urn:btih:1114DB35835F08B6116ED0CE3970A559087B9A69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ TypeScript увеличивает эффективность и надёжнос
 ```bash
 magnet:?xt=urn:btih:CE5276CD28573DE04F08022CF6546077AC4AAE98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:CE5276CD28573DE04F08022CF6546077AC4AAE98
 magnet:?xt=urn:btih:3F6CBCE365D86D070B9EF654AE75330368911960
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Udemy | Машинное обучение: кластеризация и кла�
 ```bash
 magnet:?xt=urn:btih:9F317934814928FF40CCD88D4EFE06D6AAABC925
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ ITVDN | Основы использования Git (2016) PCRec [H.264/720p]
 magnet:?xt=urn:btih:764506F7DB6E31A1574EF6C2CDBF29CC3C70F68E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ ITVDN | SQL Практикум (2015) PCRec [H.264/720p]
 ```bash
 magnet:?xt=urn:btih:9511D93FCBD3BCB27EFB10BFF9C5254C7EFBEEED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ PhLearn | Photoshop Compositing Essential Tools & Techniques (2017) TS [H.264/72
 magnet:?xt=urn:btih:F544897AD118023B5EB8E74B05850FD1ED6C843F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:F544897AD118023B5EB8E74B05850FD1ED6C843F
 ```bash
 magnet:?xt=urn:btih:66517C34CE47CC636E6E78ADF492876F810DED76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Javabegin | Новый пошаговый курс Angular + Java/Spring + Hiber
 magnet:?xt=urn:btih:61F3BB46BD912D927BDF25566C42BCA1E0694717
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:61F3BB46BD912D927BDF25566C42BCA1E0694717
 magnet:?xt=urn:btih:E3A1279C680A7F8461D36E25F1928E776FBCB789
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:E3A1279C680A7F8461D36E25F1928E776FBCB789
 ```bash
 magnet:?xt=urn:btih:31F45E7AEBEA5B809A5582158DC5C916081AF41D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ Udemy | Веб разработка - с нуля до профессионал�
 ```bash
 magnet:?xt=urn:btih:5CC86DE27B4E9EA27FD18FACA16B6905A18FDCF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ Udemy | Data Science на Python 3 с нуля (2020) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:33051F2E2519907322F9C8E93D546DB8A1105889
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ Udemy | Машинное обучение: нейросети и глубоко�
 magnet:?xt=urn:btih:7A9B72E938BA90CB409246AF544662DAAFA21CF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:7A9B72E938BA90CB409246AF544662DAAFA21CF1
 ```bash
 magnet:?xt=urn:btih:023F7E1B913976FC93A094BB3FE0B9C78D9AD236
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ ITVDN, Юрий Боцман | .NET Developer (2021) WEB-DL [AD]
 magnet:?xt=urn:btih:4B2D24012F235C94BBC3E16FAD0911E7D947F46F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +502,8 @@ Joker 2021 - международная Java-конференция. Спике�
 magnet:?xt=urn:btih:B2F513E79B52AA4A2030CACBF227CBB9A8A6D8BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ magnet:?xt=urn:btih:B2F513E79B52AA4A2030CACBF227CBB9A8A6D8BE
 ```bash
 magnet:?xt=urn:btih:F266E9A094C95E3472348B8F106629A0864C4458
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:F266E9A094C95E3472348B8F106629A0864C4458
 magnet:?xt=urn:btih:D2260F95950F5CA758EB0630D9BDBFD912E1AA24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ amlab - Подготовка к семейной съемке (2016) PCRec [H.26
 magnet:?xt=urn:btih:F68C0FC67DC3F7AC0CBE74D09D2752D0E02865A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ PhLearn Pro | Project fitness (2017) PCRec [H.264/720p-LQ] [EN]
 magnet:?xt=urn:btih:AEC646DC7CF54FB254BF920906FFF582858DA8A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ PhLearn Pro | Dragon's heart (2017) PCRec [H.264/720p-LQ] [EN]
 ```bash
 magnet:?xt=urn:btih:F34FF2ABDDC388071CB7A4C5778B5E5F8D8BFE92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ Node.js - серверная платформа, работающая на ос�
 magnet:?xt=urn:btih:32DCCAFD53BF04C203D7E28A96813A09698C2B50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ Highlights School | Основы веб-дизайна (2015) PCRec [H.264/720p]
 ```bash
 magnet:?xt=urn:btih:756BC00395F2563BEC853659F67FDDA83FFAFB24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Fight Night Round 4 - это настоящий подарок любителя�
 magnet:?xt=urn:btih:13396A3C7A991C52D8747D93BAFF0B6461609628
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Escape Plan – логическая игра, главными героями �
 ```bash
 magnet:?xt=urn:btih:7B299F607A23F474384A26DFB9DD4F8B35ACB575
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Monster Hunter Freedom - это ремастер, основанный на Mons
 magnet:?xt=urn:btih:98EEC0B13AC7ABC18046DB33BAE9A78D31A42E95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Bodycount – это шутер на базе движка EGO, который �
 ```bash
 magnet:?xt=urn:btih:F38AE45138C27B4781E992BEA50DDB88951CC4AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Oceanhorn: Monster of Uncharted Seas (2017) [PSVita] [USA] 3.65 [NoNpDrm] [Licen
 magnet:?xt=urn:btih:9585D8AE683976DADBEEDF827EEDFBAC106F37F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Sword Art Online: Hollow Realization - это очередная часть пр
 magnet:?xt=urn:btih:179BC2080ED341CB72C293F0F0B9CF4C5CC6FDD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ SteamWorld Dig 2 (2017) [PSVita] [EUR] 3.65 [NoNpDrm] [License] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E768107151EE10389A061B556F85802D129A9FD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Call of Duty: Black Ops II (2012) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Repack] [Mu
 magnet:?xt=urn:btih:C986FBB0C85920DF65A0BD13DE57B7489C2D6C41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ Monster Hunter 3 Ultimate (2013) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Repack / 1.0
 magnet:?xt=urn:btih:728885A47CB3A0024D713CBEEE8019042A1EE579
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Pokken Tournament (2016) [WiiU] [USA] 5.3.2 [Loadiine GX2] [Repack] [En]
 ```bash
 magnet:?xt=urn:btih:05F624656F989AD8984BA11ED4367F3AA04C25DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ Don’t Starve: Giant Edition — это бескомпромиссная игр
 magnet:?xt=urn:btih:D69ED5C8D2175F385DBFA582A96A7146F37DDE7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ Swords & Soldiers II (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop] [En]
 magnet:?xt=urn:btih:7BAD42DE7F13B2D82C033C4F92A6DA6D039FD993
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ Lone Survivor является survival horror’ом, однако за кру�
 ```bash
 magnet:?xt=urn:btih:E57A2BD93AB7706B0C7103C3C2A1FF17F5661265
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ Shovel Knight - это классическая приключенческая �
 magnet:?xt=urn:btih:DB946D893EFC8194A8A6C9F85202C26BCE7DDA6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ Red Dead Redemption (2011) [PS3] [EUR] 3.30 [Cobra ODE / E3 ODE PRO ISO] [Repack
 ```bash
 magnet:?xt=urn:btih:19843953E68A51CCCD167FCF6E2488C7F5C601B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ Mario Party 10 (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Ru/Multi]
 magnet:?xt=urn:btih:15A43BA81146BCCF9CE68F53625D54B2C9F19EE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ IRD файлы нужны если вы боитесь, что вас забан
 magnet:?xt=urn:btih:98DD5BD0835D552405AF00DB87659836E167DE5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ Super Mario Maker – платформер, в котором игроки мо�
 ```bash
 magnet:?xt=urn:btih:C673B40B36C6B65265A8237EBDAD20C409C9F811
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ Super Smash Bros. for Wii U (2014) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Repack / 1
 magnet:?xt=urn:btih:01428089533D93A0FA8C94C96E396B3B44FAA9B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ Smash Cars - это гонки на радиоуправляемых автом�
 ```bash
 magnet:?xt=urn:btih:23F433F582FD9ABB4720A55CE494335000544D95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +554,8 @@ Mario Tennis: Ultra Smash (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Ru
 magnet:?xt=urn:btih:85D6FF66DF0E43A4141DE5BEEE8A01A8694C506A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +580,8 @@ Star Fox Zero — новая игра в серии Star Fox. Фокс, Фаль
 magnet:?xt=urn:btih:BCC4CF8351AB8ED5EB7A101DF6AC9B74E474B0A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ Game & Wario (2013) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Multi]
 ```bash
 magnet:?xt=urn:btih:10E3FD3F0F2D85046BE6D2F9F3C803E2B6971ABD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +634,8 @@ Star Fox Guard (2016) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Multi]
 magnet:?xt=urn:btih:1D8BB67771B4ABB52EB52BD7C7AB5928B03535EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ Grand Theft Auto 4: Complete Edition (2008) [PS3] [EUR] 3.41 [Unofficial] [Ru/En
 magnet:?xt=urn:btih:AE9C9B4B42D2840FCEB5E1A12228AB5462A78DF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ Max Payne 3 + 13 DLC [PS3] [PAL] [Ru/En] [Repack/1.09] 2012 | R.G. Inferno
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

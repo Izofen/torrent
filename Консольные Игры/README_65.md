@@ -19,6 +19,8 @@ Max: The Curse of Brotherhood (2014) [Xbox360] [RegionFree] 16537 [FreeBoot] [Un
 magnet:?xt=urn:btih:463AC15D8AB678E1A0C7D14FDD59E5FB985C1C4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Portal: Still Alive - это часть оригинальной игры Portal
 magnet:?xt=urn:btih:8C8B3CE2978FD603F33BBC0FC764FECA4478F9FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Fix It Brico Party [Wii] [PAL] [English] (2009)
 ```bash
 magnet:?xt=urn:btih:EA1D03BE3AB31FEF90483C84DA9E6FA3157C7FF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ Xbox — игровая приставка, разработанная и про
 magnet:?xt=urn:btih:2572C338BE7064D89818E1E6EB51E86D39B082B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Fallout New Vegas: Ultimate Edition (2012) [PS3] [USA] 3.73 [Cobra ODE / E3 ODE 
 ```bash
 magnet:?xt=urn:btih:5F07F9ADDCBD92E79A98BB40D3B7983E1FF9D9EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ Visual Pinball - платформа для запуска реально сущ�
 magnet:?xt=urn:btih:B1D99FDC569C38FD77F1A8AA2D4A00B0D731B076
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Visual Pinball Tables (2016) [Multi] [Unofficial] [VP9-VPX]
 ```bash
 magnet:?xt=urn:btih:669A555B08980FB051ACED5D423C2DA72C358593
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Visual Pinball Tables (2016) [Multi] [Unofficial] [VP1-VP7]
 magnet:?xt=urn:btih:D40815364344ED8C9A10D7D3773DD9B6EF5BFFD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Visual Pinball Tables (2016) [Multi] [Unofficial] [VP8]
 ```bash
 magnet:?xt=urn:btih:036BE1868FB3D405C11E87ADF2B891030BE3B73A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Folklore - приключенческая игра, построенная по 
 magnet:?xt=urn:btih:3D8093095AE56AAF8F8D10B854446556906F0D40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ The Swindle - стимпанковский аркадный платформер
 ```bash
 magnet:?xt=urn:btih:3611AF58F4A8DF722F4CC27D7663EEDFF0D76D1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ Rocketbirds: Hardboiled Chicken (2011) [PS3] [EUR] 4.21+ [PSN] [En] [3D]
 magnet:?xt=urn:btih:91A7CF0C95A947CF66049468ABA18539AD705595
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Level 22 (2016) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN] [En]
 ```bash
 magnet:?xt=urn:btih:269DF2D47BC99224465E86B083FFEC930284E4FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ Call of Juarez: Bound in Blood (2009) [Xbox360] [RegionFree] 8955 [FreeBoot] [Li
 magnet:?xt=urn:btih:326E76C9AAD004F409C7DB17CD8A51CE89AD468B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Tom Clancy's Ghost Recon: Advanced Warfighter: Dilogy (2006 - 2007) [Xbox360] [R
 ```bash
 magnet:?xt=urn:btih:AADEA6EC00DED186F1A0D9BACA0E3244271F70DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ Onimusha: Dawn Of Dreams [PS2] [RUS] [NTSC] (2006)
 ```bash
 magnet:?xt=urn:btih:5A36B00E042FAA44D308EB63309491778D7D1F29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ Monkey Island: Special Edition Collection (2011) [PS3] [EUR] 3.55 [Cobra ODE / E
 magnet:?xt=urn:btih:E69C4C6DA532ADDAE64E46595136EB7116472086
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Dragon Quest Builders, новая игра в легендарной фэнте�
 ```bash
 magnet:?xt=urn:btih:EB207F7EA2DC9A6F5A871C037282AFBE3430241F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ SOS довольно сильно отличается от остальных �
 magnet:?xt=urn:btih:E878EDCFDD9E03EBE0793A73ADA2583CEF9BB398
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ Under Defeat HD Deluxe Edition [PS3] [PSN] [USA] [En] [3.55] [Cobra ODE / E3 ODE
 ```bash
 magnet:?xt=urn:btih:3A51D359856D43D66D26CA13814BE7BB1459C646
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ Resident Evil 6 / BioHazard 6  [PS3] [EUR] [Ru] [4.21] [Cobra ODE / E3 ODE PRO I
 magnet:?xt=urn:btih:8155DD58C8C3EB807F03D912C73EB80362992BBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ Far Cry 4 (2014) [PS3] [EUR] 4.55 [Repack / 1.06 / 4 DLC] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:6763ABE4A1410DED53BD16BE690A7582C80951C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ Dragon Quest Builders (2016) [PS3] [JAP] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unof
 magnet:?xt=urn:btih:9514ACED25361AABF1F9D6DDD31B44D469F07E51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Yoga [Wii] [PAL] [Eng/It] (2009)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Arslan: The Warriors of Legend (2016) [PS3] [USA] 4.21 [Cobra ODE / E3 ODE PRO I
 magnet:?xt=urn:btih:F4D08611B44057B6777281D510E7A9A69516F090
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ TimeShift – крайне необычная игра, рассказывающ
 ```bash
 magnet:?xt=urn:btih:7AEC42CD77A75F55586AF5A4ED71E6C0B3F7A054
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

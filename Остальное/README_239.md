@@ -1,3 +1,58 @@
+###  Публикация: 1523588   (747908) от 13.01.2022
+
+Республика ШКИД (1966) DVBRip [H.264/720p] [handmade AI colored]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_747908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация одноименной повести Г.Белых и Л.Пантелеева. Республикой ШКИД назвали свою Школу имени Достоевского свободолюбивые воспитанники — бывшие беспризорники. Доверие педагогов научило ребят честности, и стать достойными своего времени.
+Фильм полностью колоризован.Производство: СССР / ЛенфильмЖанр: Драма, комедия, семейныйРежиссер: Геннадий ПолокаАктеры: Сергей Юрский, Юлия Бурыгина, Павел Луспекаев, Александр Мельников, Анатолий Столбов, Георгий Колосов, Вера Титова, Лев Вайнштейн, Виктор Перевалов, Александр КавалеровСубтитры: ОтсутствуютПродолжительность: 01:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1C1F8D723C698CBAA6BFB34D28D3BB27C810403
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396403   (748030) от 14.07.2020
+
+Двойной КОПец / Cop Out (2010) AC3 5.1 AVO Д. Пучков (Гоблин) [hand made]
+
+>>Остальное
+>>Звуковые дорожки и субтитры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748030.jpg" />
+</div>
+
+
+###  Подробнее
+
+История двух давних напарников – нью-йоркских полицейских, занятых поисками очень редкой и чертовски дорогой бейсбольной карточки, украденной у одного из них. Они вынуждены противостоять беспощадному гангстеру, просто помешанному на коллекционных вещицах.
+
+Джимми, всю жизнь проработавший в полиции, возлагал на пропавшую карточку все свои надежды, так как только с (   Читать дальше...   )Производство: США / Warner Bros. Pictures, Marc Platt ProductionsЖанр: Боевик, Комедия, КриминалРежиссер: Кевин СмитАктеры: Брюс Уиллис, Трэйси Морган, Адам Броди, Кевин Поллак, Гильермо Диас, Шонн Уильям Скотт, Мишель Трахтенберг, Джейсон Ли, Рашида Джонс, Кори ФернандезПеревод: Авторский, Д. Пучков (Гоблин) (ненормативная лексика)Язык озвучки: РусскийПродолжительность: 01:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CF571BB04811F61D0F36A558C3EC8B358A90806
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 664294   (748824) от 03.06.2013
 
 Час расплаты / Paycheck (2003) HDRip [Hand Made Extended Cut]
@@ -19,6 +74,8 @@
 ```bash
 magnet:?xt=urn:btih:EA4C624429733FF82A7EEC6B3D2EB80F4D8DC3EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +100,8 @@ magnet:?xt=urn:btih:EA4C624429733FF82A7EEC6B3D2EB80F4D8DC3EF
 ```bash
 magnet:?xt=urn:btih:3DBA61204097646B2EBC5BB70AA44F3A08CEBED2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +128,8 @@ magnet:?xt=urn:btih:3DBA61204097646B2EBC5BB70AA44F3A08CEBED2
 magnet:?xt=urn:btih:4A8FEF2756128166E0B7DC48FA0216DCA2AB1D33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +153,8 @@ magnet:?xt=urn:btih:4A8FEF2756128166E0B7DC48FA0216DCA2AB1D33
 ```bash
 magnet:?xt=urn:btih:8DDF416EC876C1ECE8AD41CC9EDAFBA3367C5034
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +180,8 @@ magnet:?xt=urn:btih:8DDF416EC876C1ECE8AD41CC9EDAFBA3367C5034
 magnet:?xt=urn:btih:AE392F57D256F9C11D8A2A5EDBAD4BF67373FA38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +205,8 @@ magnet:?xt=urn:btih:AE392F57D256F9C11D8A2A5EDBAD4BF67373FA38
 ```bash
 magnet:?xt=urn:btih:1F237C0004203182D923A865484861F030DBDD9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +235,8 @@ magnet:?xt=urn:btih:1F237C0004203182D923A865484861F030DBDD9C
 magnet:?xt=urn:btih:2CF02337675E87CF377F08243AB38369A75D5ED5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +260,8 @@ magnet:?xt=urn:btih:2CF02337675E87CF377F08243AB38369A75D5ED5
 ```bash
 magnet:?xt=urn:btih:F7B5574CA8A99B03BD58D9B2E5DED2B7A445F2DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +287,8 @@ magnet:?xt=urn:btih:F7B5574CA8A99B03BD58D9B2E5DED2B7A445F2DE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +313,8 @@ magnet:?xt=urn:btih:F7B5574CA8A99B03BD58D9B2E5DED2B7A445F2DE
 magnet:?xt=urn:btih:80DB12969DE1A7576C4F68E16E4DE5E9456B2F1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +338,8 @@ magnet:?xt=urn:btih:80DB12969DE1A7576C4F68E16E4DE5E9456B2F1F
 ```bash
 magnet:?xt=urn:btih:B6FD3226742BBAE5258744663CCD00F20E719A61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +366,8 @@ magnet:?xt=urn:btih:B6FD3226742BBAE5258744663CCD00F20E719A61
 magnet:?xt=urn:btih:A95A9EAD89C9C47BD79DFCEB44407A527E8099C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +391,8 @@ magnet:?xt=urn:btih:A95A9EAD89C9C47BD79DFCEB44407A527E8099C4
 ```bash
 magnet:?xt=urn:btih:F9DA060E5FA1DF76C63665238EB0CBB363D28815
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +421,8 @@ Europe - Almost Unplugged (live) от ALEXnROCK (2008) WEBRip
 magnet:?xt=urn:btih:9CC174B8709C89ED3717D8B5F3B253409AFBFECB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +446,8 @@ magnet:?xt=urn:btih:9CC174B8709C89ED3717D8B5F3B253409AFBFECB
 ```bash
 magnet:?xt=urn:btih:1E2C5A42151CA2105E3E3BD41670DAF4C7CFAF4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +474,8 @@ magnet:?xt=urn:btih:1E2C5A42151CA2105E3E3BD41670DAF4C7CFAF4A
 magnet:?xt=urn:btih:9002733482DE1FAECF733073575E9707286A8812
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +499,8 @@ magnet:?xt=urn:btih:9002733482DE1FAECF733073575E9707286A8812
 ```bash
 magnet:?xt=urn:btih:7BAF4107F0603002BAD15CA6D131AE01BDA8008B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +526,8 @@ magnet:?xt=urn:btih:7BAF4107F0603002BAD15CA6D131AE01BDA8008B
 magnet:?xt=urn:btih:A74FCF53F61376B94DC6D72856AEE4CC76E0F0F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +551,8 @@ magnet:?xt=urn:btih:A74FCF53F61376B94DC6D72856AEE4CC76E0F0F2
 ```bash
 magnet:?xt=urn:btih:BFCBBDD297B09DD099CBAF7C77722D4B157C2A37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +579,8 @@ magnet:?xt=urn:btih:BFCBBDD297B09DD099CBAF7C77722D4B157C2A37
 magnet:?xt=urn:btih:8ACB3BB873CB18CE45A75617B60CBCEAF9285525
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +604,8 @@ magnet:?xt=urn:btih:8ACB3BB873CB18CE45A75617B60CBCEAF9285525
 ```bash
 magnet:?xt=urn:btih:34330381B5B5D86E16525273C835F8F3A9336196
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +632,8 @@ magnet:?xt=urn:btih:34330381B5B5D86E16525273C835F8F3A9336196
 magnet:?xt=urn:btih:794A1C38ED5096513EFCA1ADA607329B799AB6D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +657,8 @@ magnet:?xt=urn:btih:794A1C38ED5096513EFCA1ADA607329B799AB6D4
 ```bash
 magnet:?xt=urn:btih:C29584F5921E4A05DE0D70DAA7C224452BEA4E64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,56 +684,7 @@ magnet:?xt=urn:btih:C29584F5921E4A05DE0D70DAA7C224452BEA4E64
 magnet:?xt=urn:btih:39B825B7C3DFB1C30B445A9F562BB0B1592F3CF6
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280989   (756576) от 05.02.2019
-
-Суспирия / Suspiria (2018) ac3 5.1 [hand made]
-
->>Остальное
->>Звуковые дорожки и субтитры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756576.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая американка приезжает в Берлин, чтобы присоединиться к знаменитой танцевальной труппе. Однако в стенах студии девушка внезапно обнаруживает нечто зловещее и сверхъестественное. Вскоре она понимает, что станет следующей жертвой, если не успеет раскрыть тайну проклятия, которое окутало легендарную танцевальную академию.Жанр: Фэнтези, Ужасы, Триллер, ДетективПеревод: Дублированный(центральный канал line)Продолжительность: 02:32:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7DAFA1F794B4D601EDFC586254CF3F6A685545F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280973   (756691) от 05.02.2019
-
-Сборник клипов - Rock & Metal Video Collection от ALEXnROCK часть 1 (2019) WEBRip
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полностью переделал выпущенный ранее сборник Вся сила энергия и мощь понастоящему крутой музыки! Это 1я часть сборника. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00. Rock & Metal - Intro
-01. Thunder - She's So Fine
-02. Sebastian Bach - Tunnelvision
-03. Pantera  - Mouth For War(   Читать дальше...   )Жанр: RockПродолжительность: 02:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F7D23B2644A93DA886C22E87930E75AB2218E10
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,51 +1,3 @@
-###  Публикация: 1420848   (323688) от 02.11.2020
-
-Windows Word 2020.10.0 [Ru]
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows Word - бесплатный и удобный в эксплуатации офисный редактор для работы со всеми форматами текстовых документов. Присутствует возможность открывать и конвертировать PDF документы, имеется функция проверки правописания текста на русском языке и многое другое.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BD38040959D6857AFA098FD6106252B8F315143
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420534   (323689) от 02.11.2020
-
-Бессмертная битва. Код / Wu Xia 2 the Code (2019) WEB-DL [H.264/1080p-LQ] [MVO]
-
->>След.
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323689.jpg" />
-</div>
-
-
-###  Подробнее
-
-В недалёком будущем человечество начинает умирать от нехватки воздуха. В лаборатории медицинской корпорации создаётся таинственный код, который поможет спасти людей, но за ним ведут охоту разные кланы, их цель - управление миром. Спасти код и вернуть жизнь людям сможет только один человек.Производство: США / Media Design ImagingЖанр: Фантастика, боевикРежиссер: Джонни ВуАктеры: Ben Zgorecki, Crystle Paynther Collins, Keith Collins II, Matt Kane, Джерри Сур, Бен Гартон, Y. Chan, Leland Leger, Лиза Й. Вонг, Wayne WongПеревод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: АнглийскиеПродолжительность: 01:18:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6321FFEAFBB722EA6AC751A303029E81F52779CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1420755   (323690) от 02.11.2020
 
 Ловец снов / Dreamkatcher (2020) WEB-DLRip
@@ -66,6 +18,8 @@ magnet:?xt=urn:btih:6321FFEAFBB722EA6AC751A303029E81F52779CC
 ```bash
 magnet:?xt=urn:btih:9FB403DD6394A24795EBD25CD11E7D05FA9002CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +45,8 @@ Lightroom объединяет фотографии в «коллекции» �
 magnet:?xt=urn:btih:36F1277C75012FF8CD3E04E6AB7BA2B21C7E4A9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +70,8 @@ magnet:?xt=urn:btih:36F1277C75012FF8CD3E04E6AB7BA2B21C7E4A9B
 ```bash
 magnet:?xt=urn:btih:B06A8861D85F24DBA246DF59BE8DFC9ED82D0949
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +97,8 @@ magnet:?xt=urn:btih:B06A8861D85F24DBA246DF59BE8DFC9ED82D0949
 magnet:?xt=urn:btih:E3E980725A4F922899BCC57C46DAE74E036C1036
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +122,8 @@ magnet:?xt=urn:btih:E3E980725A4F922899BCC57C46DAE74E036C1036
 ```bash
 magnet:?xt=urn:btih:959BCBF6BEF59DCD98A831CE88938DC789550EC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +149,8 @@ magnet:?xt=urn:btih:959BCBF6BEF59DCD98A831CE88938DC789550EC9
 magnet:?xt=urn:btih:5C425C9270E62D8E5873BA6EDA4077E9CB3D6D12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +174,8 @@ magnet:?xt=urn:btih:5C425C9270E62D8E5873BA6EDA4077E9CB3D6D12
 ```bash
 magnet:?xt=urn:btih:CE2841A4483B50D6CEEEBDA8901C188418DE8A3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +201,8 @@ magnet:?xt=urn:btih:CE2841A4483B50D6CEEEBDA8901C188418DE8A3A
 magnet:?xt=urn:btih:E0D9928D6687FD0C1B0B16A5E4722AE394D35E0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +226,8 @@ magnet:?xt=urn:btih:E0D9928D6687FD0C1B0B16A5E4722AE394D35E0C
 ```bash
 magnet:?xt=urn:btih:467AF7858DF0E86F0ADD9FF420F77A1F63FA8BE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +256,8 @@ AC/DC - POWER UP (2020) [MP3|320 Kbps] <Hard Rock>
 magnet:?xt=urn:btih:CB6756E7680E473F8B79DC8AB60D3F3978177B19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +281,8 @@ magnet:?xt=urn:btih:CB6756E7680E473F8B79DC8AB60D3F3978177B19
 ```bash
 magnet:?xt=urn:btih:7232DCD9CC0752DA4E902E77E7E201D45A2C519D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +309,8 @@ magnet:?xt=urn:btih:7232DCD9CC0752DA4E902E77E7E201D45A2C519D
 magnet:?xt=urn:btih:A80EDC3D9825A5A4663F6F452CE276627CBB4CA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +334,8 @@ magnet:?xt=urn:btih:A80EDC3D9825A5A4663F6F452CE276627CBB4CA6
 ```bash
 magnet:?xt=urn:btih:EB7A18D81EBE69290323B9C7861F97E414839962
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +361,8 @@ magnet:?xt=urn:btih:EB7A18D81EBE69290323B9C7861F97E414839962
 magnet:?xt=urn:btih:75823E0D0DF6D1467A872196E7EE03B1B2B320DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +387,8 @@ Realtek High Definition Audio Drivers — звуковой драйвер Realte
 magnet:?xt=urn:btih:6401A95C662AF9790866ED61D210780BB3CFB875
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +412,8 @@ magnet:?xt=urn:btih:6401A95C662AF9790866ED61D210780BB3CFB875
 ```bash
 magnet:?xt=urn:btih:1D90B28661415ADB63975CD384F3EC38D7654A77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +442,8 @@ VA - Deep and Tropical Selection: The Best Deep House and Tropical Selection for
 magnet:?xt=urn:btih:1856B928EDD236BA68DC28348B1EF4D238B3955E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +470,8 @@ Philip Sayce - Innerevolution (2010) [FLAC|Lossless|tracks] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:DEEC21053810016D553C3096E71325DB97178025
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +500,8 @@ John Mellencamp - The Best That I Could Do 1978-1988 (1997)[FLAC|Lossless|image 
 magnet:?xt=urn:btih:6C98D7CFEA84EF1E5DDE9384D0F048D9766C9363
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +526,8 @@ magnet:?xt=urn:btih:6C98D7CFEA84EF1E5DDE9384D0F048D9766C9363
 magnet:?xt=urn:btih:7DC5583A8B2059142EB0A63318F06F3DDB26A008
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +551,8 @@ magnet:?xt=urn:btih:7DC5583A8B2059142EB0A63318F06F3DDB26A008
 ```bash
 magnet:?xt=urn:btih:5F5B9632687BCE5628DB0385051D0A42A6C608DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +581,8 @@ VA - ICE - Winter Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:4E76B4B8CE14E0148674A8552C63D8E4BFBD8830
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +608,8 @@ Fax Templates for Pages -  высококачественный набор из 
 ```bash
 magnet:?xt=urn:btih:2A11EC01DB0FF9C116633C3F13C94056049121EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +637,66 @@ VA - Armada Deep - Best Of 2016 (2016) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:948A9442AE1EDA9F4672689BB0C3D4A7BCB18237
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074617   (323718) от 21.11.2016
+
+Paul Shapiro - It's in the Twilight (2006) [FLAC|Lossless|image + .cue] <Klezmer Jazz, Classic Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light Rolls Away the Darkness
+02. Children of Abraham
+03. The Sun Keeps Coming Up
+04. Lecha Dodi Twilight(   Читать дальше...   )Жанр: Klezmer Jazz, Classic JazzПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2FFB2455D1A2F149236DB2B19F5A235E74FD5DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074628   (323719) от 21.11.2016
+
+Paul Smith - Cool And Sparkling (1991) [APE|Lossless|image + .cue] <Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Remember You
+02. Kempy The Painter
+03. Young Man's Fancy
+04. Dandy Randy(   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 00:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46365A945A5B36C6AA453C6046037A84485AC03A
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -28,6 +28,8 @@ Kunz & Knobel - Die Suche (2011) [MP3|320 кб/с]<electro-pop, trip-hop, german
 magnet:?xt=urn:btih:556B5B6CAEE39B6E63D6081DB7AD84020C9EF4E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ magnet:?xt=urn:btih:556B5B6CAEE39B6E63D6081DB7AD84020C9EF4E6
 ```bash
 magnet:?xt=urn:btih:F7AAF60B52208CC21C9079E3DC10EF86BF318A04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -79,6 +83,8 @@ Player-версия CoDeC включает также три медиапрои�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -110,6 +116,8 @@ Boulou Ferre & Niels Pedersen & Elios Ferre - Trinity (1982) [MP3|320 кб/с]<�
 ```bash
 magnet:?xt=urn:btih:51860D9C20FEEDC9AB30CAC7EB5BF01A6CB2ABC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +152,8 @@ Heritage Blues Orchestra - And Still I Rise (2012) [WavPack|Lossless]<Blues, Gos
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +177,8 @@ Heritage Blues Orchestra - And Still I Rise (2012) [WavPack|Lossless]<Blues, Gos
 ```bash
 magnet:?xt=urn:btih:6C985063FB8FE42386E468DEF58BA2740FD9A9E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +204,8 @@ magnet:?xt=urn:btih:6C985063FB8FE42386E468DEF58BA2740FD9A9E1
 ```bash
 magnet:?xt=urn:btih:8CF69D8C8B19A52A66E07D26A218C69ED2A8FB3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +240,8 @@ Muggsy Spanier - Muggsy Spanier  (1944) (1997) [FLAC|Lossless]<Dixieland, Swing>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +271,8 @@ Bain Wolfkind (+ Novo Homo) - 7 albums (2004-2012) [mp3|192-320 kbps] <Dark Folk
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +296,8 @@ Bain Wolfkind (+ Novo Homo) - 7 albums (2004-2012) [mp3|192-320 kbps] <Dark Folk
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +324,8 @@ Cam tormented by guilt sets out to avenge his brothers death.
 ```bash
 magnet:?xt=urn:btih:714D1435F1247E1410C744951E7751B9172018D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +360,8 @@ VA - Песня мамочке любимой (2012) [MP3|320 кб/с]<Pop,Ша�
 magnet:?xt=urn:btih:706A35209D78E42C31BA94AA99C873762D31D61C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +385,8 @@ magnet:?xt=urn:btih:706A35209D78E42C31BA94AA99C873762D31D61C
 ```bash
 magnet:?xt=urn:btih:265D1673A95A93814EAD6E56426C85BB2F569431
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +421,8 @@ SLOZHNIE - За шестым слоем (2012) [MP3|320 кб/с]<Underground Rap
 magnet:?xt=urn:btih:696ED0CE977461C5AA171CE6FE458EBEC9DD8F7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +455,8 @@ Wise Disk Cleaner может сканировать более 50 типов н�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +480,8 @@ Wise Disk Cleaner может сканировать более 50 типов н�
 ```bash
 magnet:?xt=urn:btih:4FD4328B26717B372D1D299A2E0192220E3AEF49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +507,8 @@ magnet:?xt=urn:btih:4FD4328B26717B372D1D299A2E0192220E3AEF49
 magnet:?xt=urn:btih:BF80DEE5CFAABBDB6D6FE29909974B76DE3EA7F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +533,8 @@ Yankee Pedlar Inn является один из старейших Англий
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +558,8 @@ Yankee Pedlar Inn является один из старейших Англий
 ```bash
 magnet:?xt=urn:btih:1BAE6582366CE2AF327126CE63F8505D0384ED67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +593,8 @@ Various Artists - Mysteria Mithrae (1996) [mp3|320 kbps] <Apocalyptic Folk, Indu
 magnet:?xt=urn:btih:CF86D72775DDDA2DD550F6061C79C6AA3D4E2407
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +620,8 @@ LibreOffice бесплатен и имеет открытый исходный �
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +656,8 @@ VA - Убойная Авто Дискотека DFM 50/50 (2012) [MP3|256 kbps]<
 magnet:?xt=urn:btih:5241F3C0809E71CFCCA75C76313B7E8921687354
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +681,8 @@ Serj Tankian - Figure It Out [Single] (2012) [MP3|320 кб/с]<Alt.Rock>
 ```bash
 magnet:?xt=urn:btih:9CEA657C7D770B9A5A3A4C3D7FA16ACB6B2D7D6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -662,6 +708,8 @@ magnet:?xt=urn:btih:9CEA657C7D770B9A5A3A4C3D7FA16ACB6B2D7D6C
 magnet:?xt=urn:btih:2E652A21371CEDA788E5C6EEE9D219B58843E75F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -685,6 +733,8 @@ magnet:?xt=urn:btih:2E652A21371CEDA788E5C6EEE9D219B58843E75F
 ```bash
 magnet:?xt=urn:btih:0B97BED83D1693C2849D7C88A83AA3EDF74E8305
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -727,6 +777,8 @@ VA - Песня с женским именем 2CD (2012) [MP3|256 кб/с]<Ша
 ```bash
 magnet:?xt=urn:btih:539F3EC7B580876979176E8DBA703F5E4B85470E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

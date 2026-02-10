@@ -19,6 +19,8 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (2.618.0.0/dlc) Repack Other s
 magnet:?xt=urn:btih:DE0624C62873D10A7565E13FA43DD3E9932B2BE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ FormatFactory - многофункциональный конвертер раз
 magnet:?xt=urn:btih:1F61BB0B95A09B52376C0199E642CA259ECD0C5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:1F61BB0B95A09B52376C0199E642CA259ECD0C5B
 ```bash
 magnet:?xt=urn:btih:F8E8A0D586B688D4D61BAE3B941642CD621670C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Blind Guardian — немецкая метал-группа, образован�
 magnet:?xt=urn:btih:16B3C75E32148359B23793D347F09EC6C8C2B949
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:16B3C75E32148359B23793D347F09EC6C8C2B949
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:16B3C75E32148359B23793D347F09EC6C8C2B949
 magnet:?xt=urn:btih:1C7AD7C8917512B3FD585092729D11F4E0E3BF6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:1C7AD7C8917512B3FD585092729D11F4E0E3BF6B
 ```bash
 magnet:?xt=urn:btih:143713DF31BC85D597DCCD8AB5A97157C9CF70A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:143713DF31BC85D597DCCD8AB5A97157C9CF70A0
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:143713DF31BC85D597DCCD8AB5A97157C9CF70A0
 ```bash
 magnet:?xt=urn:btih:F8E16456806899ADC955A95FEEFB46E4BBD34B6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:F8E16456806899ADC955A95FEEFB46E4BBD34B6A
 magnet:?xt=urn:btih:6E89A70FF84B167480593BDFEE0664D6AE99B8F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ MageSlayer (1997) [Ru/En] (1.1) Repack 1nomok
 ```bash
 magnet:?xt=urn:btih:7079CCD8FF1D20F185795A237F128D7042E6CE2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Take no Prisoners (1997) [Ru/En] (1.0) Repack 1nomok
 magnet:?xt=urn:btih:F5F25B75D26B787954635FD51205C3DDF2EBE8B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:F5F25B75D26B787954635FD51205C3DDF2EBE8B0
 ```bash
 magnet:?xt=urn:btih:02A081B507E2BE3721BAC8FC872B368065A421C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:02A081B507E2BE3721BAC8FC872B368065A421C9
 magnet:?xt=urn:btih:5010C716D1EFF24B6AD91AF33E56FA2675190D0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Microsoft Activation Scripts (MAS) 2.8 portable [En]
 ```bash
 magnet:?xt=urn:btih:7E7BCC0CF4CAFC4B73D4436EFB1AE5C48EC1984B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:7E7BCC0CF4CAFC4B73D4436EFB1AE5C48EC1984B
 magnet:?xt=urn:btih:818B64546A890A65BF971D3FA62B05A208139365
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Kaspersky Free – это обновление бесплатной версии
 ```bash
 magnet:?xt=urn:btih:E6D071C93C5D4CA43E63D46CC713344DBF604DBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:E6D071C93C5D4CA43E63D46CC713344DBF604DBA
 magnet:?xt=urn:btih:4D34D645E4112894DAD59CD65C1D0303768D2F6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:4D34D645E4112894DAD59CD65C1D0303768D2F6F
 ```bash
 magnet:?xt=urn:btih:C19B984B600212BC5F09E934E4B13EA835972FFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:C19B984B600212BC5F09E934E4B13EA835972FFA
 magnet:?xt=urn:btih:06B9158486EB4F3B86E0895932227C09D378308A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:06B9158486EB4F3B86E0895932227C09D378308A
 ```bash
 magnet:?xt=urn:btih:C577E60958FE91DD39C9CB14296504E9D61A8DC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:C577E60958FE91DD39C9CB14296504E9D61A8DC1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ magnet:?xt=urn:btih:C577E60958FE91DD39C9CB14296504E9D61A8DC1
 ```bash
 magnet:?xt=urn:btih:327F82F0A109404F653385FFF315F5C6D2D2675E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:327F82F0A109404F653385FFF315F5C6D2D2675E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ magnet:?xt=urn:btih:327F82F0A109404F653385FFF315F5C6D2D2675E
 magnet:?xt=urn:btih:451E2EBA90AEE4C2AA064D713A6BA8EB95394ADD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ magnet:?xt=urn:btih:451E2EBA90AEE4C2AA064D713A6BA8EB95394ADD
 ```bash
 magnet:?xt=urn:btih:639A357CA87FB7DE429232573D86DBC8C5E80BDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

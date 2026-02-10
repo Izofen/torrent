@@ -22,6 +22,8 @@ Pet Shop Boys - Super (2016) [FLAC|Lossless|image + .cue] <Synthpop, Europop>
 magnet:?xt=urn:btih:4E033AAE015DCEF5EEC6AA49B6AF059D2B447CF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Didier Marouani Space - Greatest Hits (2008) Star Mark, 2CD [MP3|320 кб/с] <E
 ```bash
 magnet:?xt=urn:btih:8E6D8969863705B7C3719D00480AD96402CD9DD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ The Comet Is Coming - Channel The Spirits (2016) [FLAC|Lossless|Web-DL|tracks] <
 magnet:?xt=urn:btih:91273F20D3989EB6A3C099317831683BF9A2124A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ V.A. - Cafe Del Mar XXVII (Volumen Veintisiete) (2021) 2CD [FLAC|Lossless|WEB-DL
 magnet:?xt=urn:btih:7C06712C9B99A094619590161E0F47236610F7AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ glo - Discography 8 Releases (2015-2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient,
 ```bash
 magnet:?xt=urn:btih:2BB40C1E9CEC09A3DAA4A5EDD2318A27AEFC4A41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -158,6 +168,8 @@ magnet:?xt=urn:btih:2BB40C1E9CEC09A3DAA4A5EDD2318A27AEFC4A41
 magnet:?xt=urn:btih:985C670C210B2C9E39A5B8309A47E8B4C7188317
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +196,8 @@ VA - Hed Kandi 2018 (2017) [FLAC|Lossless|tracks] <Electro House, Euro House, Ho
 ```bash
 magnet:?xt=urn:btih:7AFC00FBC65128A2FA5DEA640C6EC7B1B9FF5B5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +226,8 @@ Markus Schulz - Watch The World (2016) [MP3|320 кб/с] <Trance, Progressive Ho
 magnet:?xt=urn:btih:D66412A880D40C21B7D0CCAF87D0DE54AFB97F39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +254,8 @@ Exist Strategy - Cold Dawn (2018) [FLAC|Lossless|WEB-DL|tracks|24Bit] <Ambient>
 ```bash
 magnet:?xt=urn:btih:07B8C95885927314D8F9F095EA9E8CEF66D98600
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +284,8 @@ VA - Your Running Music 11 (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:3800EB9FCABDCBFBA77AE66167B7A7481A222E6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +309,8 @@ VA - Dance Hits (2018) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:E66998614DB3904FB7C64A0974017B354297AA56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +339,8 @@ Primal Code - Konstrukt 008 (2018) Konstrukt [FLAC|Lossless|WEB-DL|tracks] <Tech
 magnet:?xt=urn:btih:B7FC2FB1300D5C71C67F3475DBD77A9A000FFF00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +367,8 @@ VA - Dance Map, Electro Stops Vol.3 (2016) [MP3|320 кб/с] <House, Progressve 
 ```bash
 magnet:?xt=urn:btih:1F78ECD807F9B493B94EDC8E91BFDA070E353B8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +397,8 @@ VA - Special Sport Songs 11 (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:5D9501989F56E4BBEAEF70384D866B97814C2F89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +425,8 @@ VA - Urban Party Alarm 11 (2018) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:5097F7DB50A4D03DC16BEA45389D86DB69CC5BCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +455,8 @@ W O L F C L U B (Wolfclub) - Collection 5 Releases (2017-2020) [FLAC|Lossless|WE
 magnet:?xt=urn:btih:0C221F976411FB79CFF4BB75CF1EF0C904A93319
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +483,8 @@ Visage - британская группа, одна из лидеров мод�
 ```bash
 magnet:?xt=urn:btih:F97D227F0F7578FCFFEF134AF34C7A4F35E2AEEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +513,8 @@ PBS'73 - Discography 4 Releases (2016-2020) [FLAC|Lossless|WEB-DL|tracks] <IDM, 
 magnet:?xt=urn:btih:4D6E242B6E319826956C62FA819D7CB2AAAF1219
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +541,8 @@ magnet:?xt=urn:btih:4D6E242B6E319826956C62FA819D7CB2AAAF1219
 ```bash
 magnet:?xt=urn:btih:B8FE80862DB5826289A34A6F7C4EC3591299B619
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +571,8 @@ Tupilaq - Discography 4 Releases (1995-1997) Audio Pollution, Dot Records [FLAC|
 magnet:?xt=urn:btih:FBCE19BE85A23A26D4B801C16C85008AB2413AB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +599,8 @@ Zodiac - Pacific Time (2014) [FLAC|Lossless|image + .cue] <Electronic, Synth-pop
 ```bash
 magnet:?xt=urn:btih:947ABD4B90F40DA9960154239BA304AE569D3CF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +629,8 @@ Spacekraft - Большое космическое путешествие (2016)
 magnet:?xt=urn:btih:6F9EC712E71BC47AE05853D866E42890CE0143A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +657,8 @@ The Digital Blonde - N3ON (2021) [MP3|320 Kbps] <Trance, Progressive House>
 ```bash
 magnet:?xt=urn:btih:1540F2359FAA8302C528C2A587951FF55618DCA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +687,8 @@ magnet:?xt=urn:btih:1540F2359FAA8302C528C2A587951FF55618DCA5
 magnet:?xt=urn:btih:01777C481F0532E4DCD386DB109C050C6FBA82B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +716,8 @@ VA - Sun:Sets 2018 (Selected by Chicane) (2018) [FLAC|Lossless|WEB-DL|tracks] <P
 magnet:?xt=urn:btih:3DFCC07253F30BFC91495C062CA3D3A365DE0F97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,6 +744,8 @@ VA - Sun:Sets 2018 (Selected by Chicane) (2018) [MP3|320 Kbps] <Deep House, Prog
 ```bash
 magnet:?xt=urn:btih:C44B59C3D40D268210357AA6E0D80CE07CBEAA91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -23,6 +23,8 @@
 magnet:?xt=urn:btih:B72C5C7AE482B485AA8B20BCF33D84E1802E86AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Visual Assist позволяет увеличить возможности ре�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -83,6 +87,8 @@ Coolio - Forever The Best (2006) [MP3|320 кб/с]<Hip-Hop>
 magnet:?xt=urn:btih:749FB8913E6169D40B6F125DCE76AAAD245C8AB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -112,6 +118,8 @@ magnet:?xt=urn:btih:749FB8913E6169D40B6F125DCE76AAAD245C8AB5
 magnet:?xt=urn:btih:538261E3F6ADA49B9C75CCBF07C45C7F0F9021FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +143,8 @@ magnet:?xt=urn:btih:538261E3F6ADA49B9C75CCBF07C45C7F0F9021FF
 ```bash
 magnet:?xt=urn:btih:A5687F9FC3E32D7034956E7C0B264FE3D1A131BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +170,8 @@ magnet:?xt=urn:btih:A5687F9FC3E32D7034956E7C0B264FE3D1A131BE
 magnet:?xt=urn:btih:4A4D133EF597C7571298DE6CBE893BD5F147104B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +195,8 @@ magnet:?xt=urn:btih:4A4D133EF597C7571298DE6CBE893BD5F147104B
 ```bash
 magnet:?xt=urn:btih:E81005F4D7FD53A6644B4AC68F64A84F46BAE8E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ Revolver - Wind Song (2012) [H.264/1080р] WEBRip
 magnet:?xt=urn:btih:8C4E54EF79B968B832CE0F077EF50EEAFA637F04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +247,8 @@ magnet:?xt=urn:btih:8C4E54EF79B968B832CE0F077EF50EEAFA637F04
 ```bash
 magnet:?xt=urn:btih:A889E3041A647B642913DE6CA4F222F1BD8FBA64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -257,6 +275,8 @@ magnet:?xt=urn:btih:A889E3041A647B642913DE6CA4F222F1BD8FBA64
 magnet:?xt=urn:btih:ACA707C88D535E61E1D5A7DEED6E7C529880DD9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +302,8 @@ magnet:?xt=urn:btih:ACA707C88D535E61E1D5A7DEED6E7C529880DD9F
 magnet:?xt=urn:btih:626D8CB2DF278B8C00CF92BEFCAE5EB16D9428C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +328,8 @@ magnet:?xt=urn:btih:626D8CB2DF278B8C00CF92BEFCAE5EB16D9428C1
 magnet:?xt=urn:btih:CAB1938B5ADE5B4BC6A254063926343099B04CD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ magnet:?xt=urn:btih:CAB1938B5ADE5B4BC6A254063926343099B04CD1
 ```bash
 magnet:?xt=urn:btih:96EE06CF5F3DC5E628DB4C7170A210CA4A5D31F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +383,8 @@ magnet:?xt=urn:btih:96EE06CF5F3DC5E628DB4C7170A210CA4A5D31F5
 ```bash
 magnet:?xt=urn:btih:B7A9925C8B84EDE1FF46BC719BBB611B3487AA95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +415,8 @@ magnet:?xt=urn:btih:B7A9925C8B84EDE1FF46BC719BBB611B3487AA95
 magnet:?xt=urn:btih:D8D363C4DF68A3A21DEEE757B90E84AEA7E2FF1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +440,8 @@ magnet:?xt=urn:btih:D8D363C4DF68A3A21DEEE757B90E84AEA7E2FF1E
 ```bash
 magnet:?xt=urn:btih:7A0C5224FF4EB5225568F34812DEFC3FB4953286
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +476,8 @@ Slide & Tony Va - Совместный (2012) [MP3|320 кб/с]<Hip-Hop>
 magnet:?xt=urn:btih:56A6BD9C1DFCD444C85E1AA500D904DBBA7B6E83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +501,8 @@ magnet:?xt=urn:btih:56A6BD9C1DFCD444C85E1AA500D904DBBA7B6E83
 ```bash
 magnet:?xt=urn:btih:CC9F3AF4C722F47695E700C94076E781858E9AB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +529,8 @@ magnet:?xt=urn:btih:CC9F3AF4C722F47695E700C94076E781858E9AB8
 ```bash
 magnet:?xt=urn:btih:3E4C713CE65B5D2763FE365F0DEF33C1C8CF468B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +560,8 @@ magnet:?xt=urn:btih:3E4C713CE65B5D2763FE365F0DEF33C1C8CF468B
 magnet:?xt=urn:btih:1F5750B75A9D161AC6805109FD8C4DC758F877A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +590,8 @@ magnet:?xt=urn:btih:1F5750B75A9D161AC6805109FD8C4DC758F877A2
 magnet:?xt=urn:btih:404B3DD2670E38A77EDFD40144542E83B2A05817
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +615,8 @@ magnet:?xt=urn:btih:404B3DD2670E38A77EDFD40144542E83B2A05817
 ```bash
 magnet:?xt=urn:btih:7063421F1743B1069DE590A5E597E3A47D03F0E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +642,8 @@ magnet:?xt=urn:btih:7063421F1743B1069DE590A5E597E3A47D03F0E9
 magnet:?xt=urn:btih:34C8F7C479663CE01D556DCA42C5F2380BDCFF28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +667,8 @@ magnet:?xt=urn:btih:34C8F7C479663CE01D556DCA42C5F2380BDCFF28
 ```bash
 magnet:?xt=urn:btih:ACE355C2710FBB5C1B98CAB7B274989B43713C2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +701,8 @@ magnet:?xt=urn:btih:ACE355C2710FBB5C1B98CAB7B274989B43713C2B
 magnet:?xt=urn:btih:5FE8B35BF296FE0E580BB709E10FD30F359795DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -676,6 +726,8 @@ magnet:?xt=urn:btih:5FE8B35BF296FE0E580BB709E10FD30F359795DE
 ```bash
 magnet:?xt=urn:btih:654AC2111842612D022279B63081AF7BC5CAEA9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

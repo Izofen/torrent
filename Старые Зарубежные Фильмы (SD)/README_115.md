@@ -1,27 +1,3 @@
-###  Публикация: 1413543   (407238) от 05.10.2020
-
-Саспенс / Suspense (1913) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407238.jpg" />
-</div>
-
-
-###  Подробнее
-
-В уединенный дом на отшибе проникает бродяга. В доме только женщина с грудным ребенком, а у преступника в руках нож и самые гнусные намерения. В этом небольшом, напряженном фильме использованы практически все известные кинематографические приемы своего времени, использованы очень умело и очень уместно. Маленький шедевр.Производство: США, Rex Motion Picture CompanyЖанр: Криминал, драма, короткометражный, немое киноРежиссер: Филлипс Смолли, Лоис УэберАктеры: Лоис Уэбер, Вэл Пол, Дуглас Джеррард, Сэм Кауфман, Лон Чейни, Луле УоррентонЯзык озвучки: НемойСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:10:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A99C3151F471ED44DFA283980373A36F330BED56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 718354   (407324) от 18.09.2019
 
 Но есть нюанс / Ahi Esta el Detalle (1940) DVDRip
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:A99C3151F471ED44DFA283980373A36F330BED56
 ```bash
 magnet:?xt=urn:btih:0280DB03E0D25779316FFD99197C1BE2E2BEA3CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:0280DB03E0D25779316FFD99197C1BE2E2BEA3CD
 magnet:?xt=urn:btih:DF1D91893B028CEA32B04274CF79B1D1844B0D5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:DF1D91893B028CEA32B04274CF79B1D1844B0D5F
 ```bash
 magnet:?xt=urn:btih:10407BDBFC946056E94BBACDD615BC45E25E1049
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:10407BDBFC946056E94BBACDD615BC45E25E1049
 magnet:?xt=urn:btih:7ADD13E7EAD607892C75234D412BBA0D79835AC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:7ADD13E7EAD607892C75234D412BBA0D79835AC3
 ```bash
 magnet:?xt=urn:btih:E4FCDB77056F1E7F2DDFC50A696E8B5A77E59066
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:E4FCDB77056F1E7F2DDFC50A696E8B5A77E59066
 magnet:?xt=urn:btih:524742DAE826DEA29149A7E3F85BC0B68FAF6B7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:524742DAE826DEA29149A7E3F85BC0B68FAF6B7B
 ```bash
 magnet:?xt=urn:btih:2CBD43BCA05884066A396B568618BACFB4E7B369
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:2CBD43BCA05884066A396B568618BACFB4E7B369
 magnet:?xt=urn:btih:0484D2ADB2C8831367DAD14D870F1F15DC395949
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +227,8 @@ magnet:?xt=urn:btih:0484D2ADB2C8831367DAD14D870F1F15DC395949
 magnet:?xt=urn:btih:71815FB042BC21D465FBC42DA5E5F806A1FBD5F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +252,8 @@ magnet:?xt=urn:btih:71815FB042BC21D465FBC42DA5E5F806A1FBD5F8
 ```bash
 magnet:?xt=urn:btih:34C1F4AF89EA258C284274CF075B3A008F6C9219
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +280,8 @@ magnet:?xt=urn:btih:34C1F4AF89EA258C284274CF075B3A008F6C9219
 magnet:?xt=urn:btih:4AF273D0A260B28D412C67FD2AB2BB163D1D1CDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +307,8 @@ magnet:?xt=urn:btih:4AF273D0A260B28D412C67FD2AB2BB163D1D1CDA
 magnet:?xt=urn:btih:C57A84B5EC7A8351438150865EADDA771EBB2EB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +332,8 @@ magnet:?xt=urn:btih:C57A84B5EC7A8351438150865EADDA771EBB2EB7
 ```bash
 magnet:?xt=urn:btih:3F8495BB6B4D898AD23C7D0A718B567DFECFCED2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +359,8 @@ magnet:?xt=urn:btih:3F8495BB6B4D898AD23C7D0A718B567DFECFCED2
 magnet:?xt=urn:btih:3377702B919AC09AA47A3788702166F37294FF18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +384,8 @@ magnet:?xt=urn:btih:3377702B919AC09AA47A3788702166F37294FF18
 ```bash
 magnet:?xt=urn:btih:F5BCAF16B27E2B5D96853A5B1EA9DCF64D65E5AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +411,8 @@ magnet:?xt=urn:btih:F5BCAF16B27E2B5D96853A5B1EA9DCF64D65E5AB
 magnet:?xt=urn:btih:EC9D570E700CFC60CD9B1D85F0440B24AB1C8A09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +436,8 @@ magnet:?xt=urn:btih:EC9D570E700CFC60CD9B1D85F0440B24AB1C8A09
 ```bash
 magnet:?xt=urn:btih:334B1EFDF1AF326A681BD2C27B5242D20B3BBCDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +463,8 @@ magnet:?xt=urn:btih:334B1EFDF1AF326A681BD2C27B5242D20B3BBCDF
 magnet:?xt=urn:btih:4E368C0E72E43EA52DA9B17DE4ACD61B45580979
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +488,8 @@ magnet:?xt=urn:btih:4E368C0E72E43EA52DA9B17DE4ACD61B45580979
 ```bash
 magnet:?xt=urn:btih:0A48ABA85BA4C4A03C807210ED142DB6D712F2FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +515,8 @@ magnet:?xt=urn:btih:0A48ABA85BA4C4A03C807210ED142DB6D712F2FB
 magnet:?xt=urn:btih:42D2795F878B07258B245E1D38FC0B1469BF56E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +540,8 @@ magnet:?xt=urn:btih:42D2795F878B07258B245E1D38FC0B1469BF56E2
 ```bash
 magnet:?xt=urn:btih:E2A97D54C250E586EB3CE177EC3A281779356946
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +567,8 @@ magnet:?xt=urn:btih:E2A97D54C250E586EB3CE177EC3A281779356946
 magnet:?xt=urn:btih:D3AA9E78053A36F4F545C05DEF704DA051771ED6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +592,8 @@ magnet:?xt=urn:btih:D3AA9E78053A36F4F545C05DEF704DA051771ED6
 ```bash
 magnet:?xt=urn:btih:C90F03165A44D6B14468320030970C11DB60C3E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +619,8 @@ magnet:?xt=urn:btih:C90F03165A44D6B14468320030970C11DB60C3E9
 magnet:?xt=urn:btih:C2842F0CE9474A7B21EAE85AC9D690D34DD01D8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +644,34 @@ magnet:?xt=urn:btih:C2842F0CE9474A7B21EAE85AC9D690D34DD01D8E
 ```bash
 magnet:?xt=urn:btih:C12BB4EF3E7ED2EBB643EE7E233A55BBA7983EDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573207   (414903) от 30.08.2022
+
+Террор / Terror (1978) BDRip [H.264] [VO] Расширенная версия
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инквизиция. Казнь ведьмы. Каковой же окажется жизнь потомков тех людей, которые заживо сожгли на костре ведьму? Ведь та пообещала отомстить всем им и прокляла древний род Гарриков. С того момента прошли столетия, и в живых из этого рода остались лишь два человека — кинопродюсер средней руки Джеймс Гаррик и его сестра Энн, начинающая актриса. Как-то раз, на вечеринке (   Читать дальше...   )Производство: Великобритания, Crystal Film Productions, Bowergange ProductionsЖанр: ужасыРежиссер: Норман Дж. УорренАктеры: Джон Нолан, Кэролин Кураж, Джеймс Обри, Сара Келлер, Тришиа Уолш, Глайнис Барбер, Майкл Крейз, Роуз Коллинз, Чак Джулиан, Элейн Айвз-КэмеронПеревод: любительский одноголосый (Виктор Рутилов)Субтитры: русские (на места без перевода), английские SDHПродолжительность: 01:24:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9012A0B1782938E9DC054703044B67D532D82644
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

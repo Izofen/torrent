@@ -22,6 +22,8 @@ Jethro Tull - Curious Ruminant = キュリアス・ルミナント (2025) Japane
 magnet:?xt=urn:btih:9A557AF62CF60AF920D506BD55A8DB2086583171
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:9A557AF62CF60AF920D506BD55A8DB2086583171
 ```bash
 magnet:?xt=urn:btih:1CBC738FE8821C3596B2EB00219D41558A2F5996
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Reflections of Life 13: Sleep's Embrace / Отражения жизни 13: Об
 magnet:?xt=urn:btih:0BBE44BC6E3D82DDC0A7D2B3EAB55B7E0FA2950F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Sail Forth (2022) [Multi] (1.01) License GOG
 magnet:?xt=urn:btih:4CCBCD9634659DA353D4E70B46EB10AEC0574B23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:4CCBCD9634659DA353D4E70B46EB10AEC0574B23
 ```bash
 magnet:?xt=urn:btih:6A4F8278D89C73AEDB2FAFAF0F4BBD677E9FB429
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Strange Game Ambient Loops 3 - Это третий том в серии Strange 
 magnet:?xt=urn:btih:057D6DF9912EEE62766B835F51B941DF82CC9530
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ WSCC (Windows System Control Center) - портативная программа
 ```bash
 magnet:?xt=urn:btih:2052D66B8670D196D5125E2D256124C0033B75F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:2052D66B8670D196D5125E2D256124C0033B75F8
 magnet:?xt=urn:btih:6A2AECC0965BA51618C8B7390C7B9F872D7A4652
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:6A2AECC0965BA51618C8B7390C7B9F872D7A4652
 magnet:?xt=urn:btih:05E001475D938C31603235D69174E5A31BF28F7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:05E001475D938C31603235D69174E5A31BF28F7A
 ```bash
 magnet:?xt=urn:btih:E1BBF5AA4B1A48BD7617D7BDC437AEF5CB1213DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:E1BBF5AA4B1A48BD7617D7BDC437AEF5CB1213DF
 magnet:?xt=urn:btih:0231F9794348D87AA58A8EBB076C936171AAAC25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ iTubeGo YouTube Downloader 10.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D8BDA3D1A833DF9F30FBB87DC8EEF431E4F40F84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:D8BDA3D1A833DF9F30FBB87DC8EEF431E4F40F84
 magnet:?xt=urn:btih:E94539668477CE28CDF67DB1EE3E93E7D90F662D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ Love, Money, Rock'n'Roll / Любовь, Деньги, Рок-н-Ролл (2022)
 ```bash
 magnet:?xt=urn:btih:60A158FD9CC91D37364D491B7507D120DC8569B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ fxphd, Doug Hogan | The Nuke Unfiltered Series (2024) WEB-DL [EN]
 magnet:?xt=urn:btih:2EE3F4BFD90305ABEC4446C8BFBBC26D31382546
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:2EE3F4BFD90305ABEC4446C8BFBBC26D31382546
 ```bash
 magnet:?xt=urn:btih:CFB9F18E8151CE58F8893A3E7E86AEAD5CC3C0A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:CFB9F18E8151CE58F8893A3E7E86AEAD5CC3C0A5
 magnet:?xt=urn:btih:60C28945D61D3F9AF98287FB287C3810A08F8D49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ magnet:?xt=urn:btih:60C28945D61D3F9AF98287FB287C3810A08F8D49
 magnet:?xt=urn:btih:F4067C5734D5B4ED72EF642F32DD46FF3D6E90E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:323A121BBC6D0DDBA7381D42685624AD10EEFDA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ Control (2020) [Ru/Multi] (1.30/dlc) Repack FitGirl [Ultimate Edition]
 magnet:?xt=urn:btih:9029C9E27A818EB5D3095F6F3FEE287CFED4F3E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ magnet:?xt=urn:btih:9029C9E27A818EB5D3095F6F3FEE287CFED4F3E3
 ```bash
 magnet:?xt=urn:btih:D7088CC4CE8EA4DCA1DDAA958A68D542E8A83540
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +587,8 @@ magnet:?xt=urn:btih:D7088CC4CE8EA4DCA1DDAA958A68D542E8A83540
 magnet:?xt=urn:btih:A5F992D783D641E98A2F95B4D7CCF4AFB3A5FAA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ AVS Image Converter - лёгкая в использовании програм�
 ```bash
 magnet:?xt=urn:btih:9BAF14C8B670FA55D8090C77AE81D51F5F2C5E61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +639,8 @@ magnet:?xt=urn:btih:9BAF14C8B670FA55D8090C77AE81D51F5F2C5E61
 magnet:?xt=urn:btih:BFE90D08B093F066F624F28569849416F8BD5AD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:BFE90D08B093F066F624F28569849416F8BD5AD0
 ```bash
 magnet:?xt=urn:btih:C089D3E4C3D3874FA5A8DA6D994E4ABDBEE7092D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +691,8 @@ magnet:?xt=urn:btih:C089D3E4C3D3874FA5A8DA6D994E4ABDBEE7092D
 ```bash
 magnet:?xt=urn:btih:539E4B6DBCE91C988CBE8BFC0D7B580FD9A2F66A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

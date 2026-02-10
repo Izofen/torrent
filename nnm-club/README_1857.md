@@ -21,6 +21,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Hannah’s Day (2024) [Ru/En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:6F9C365B910F2F1E3831A183756C580EB544770C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Our Adventurer Guild - ролевая игра, где вы переместит
 magnet:?xt=urn:btih:6E670606A25DCEADDF3E5614B7BCC3F0741D8E57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Frontier Hunter: Erza's Wheel of Fortune совмещает элементы п�
 ```bash
 magnet:?xt=urn:btih:99765897F51701D3798D277B2617D2BDA8ADD360
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:99765897F51701D3798D277B2617D2BDA8ADD360
 magnet:?xt=urn:btih:A8A047B606680A0273B6B9CC7F70E7E57928ACBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:A8A047B606680A0273B6B9CC7F70E7E57928ACBB
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Tony Hawk's Pro Skater 1 + 2 (2023) [Multi] (20231109/dlc) Scene Tenoke [Digital
 magnet:?xt=urn:btih:5E7103EA0EC39C598896C417453121F1C35D8984
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:5E7103EA0EC39C598896C417453121F1C35D8984
 ```bash
 magnet:?xt=urn:btih:CE2948C99F2C69D6E2B2F62FEC39BD3FBF15F428
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ Powerwolf — пауэр-хеви-метал-группа из Германии.
 magnet:?xt=urn:btih:ABEB2F41F5279C603CB80E89D91FD5F79535A847
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ The Sacred Acorn – откройте двери в уютное Souls-прик�
 ```bash
 magnet:?xt=urn:btih:53062077EF18A7E41631259DD185C6378B985141
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:53062077EF18A7E41631259DD185C6378B985141
 magnet:?xt=urn:btih:87B0AB39AB27295671DEF8A827394AE72FCF181E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ Gym Simulator 24 - виртуальный тренажерный зал, кот�
 ```bash
 magnet:?xt=urn:btih:42B36841C17C3094D4F157244D974229C4117971
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Grand Blue | Grand Blue Dreaming | Необъятный Океан [2018, TV, 12
 magnet:?xt=urn:btih:BE148690587EA99B1EEE8941140F79D2CA5FA559
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Crash Time - Undercover – отправьтесь навстречу безос
 ```bash
 magnet:?xt=urn:btih:D225FDDE4AB36FA17734DD91D0E3BB610C822E06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:D225FDDE4AB36FA17734DD91D0E3BB610C822E06
 magnet:?xt=urn:btih:B4925793BC2A7375E428474C9F01E33299FC6F81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:B4925793BC2A7375E428474C9F01E33299FC6F81
 ```bash
 magnet:?xt=urn:btih:0D4769E085F20B16DB02D266787D1EA512DACBCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:0D4769E085F20B16DB02D266787D1EA512DACBCC
 magnet:?xt=urn:btih:1529F5D7F5B2912CFC45E26D4BF489DA82331BB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ Esports Godfather (2024) [Multi] (1.3.21) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:98F4A568D8C54CAF769995C9C83D8CDD3C94FAC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:98F4A568D8C54CAF769995C9C83D8CDD3C94FAC9
 magnet:?xt=urn:btih:C1FF1D69B0EED74DC872DB750D1FA1C8311CE36C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:C1FF1D69B0EED74DC872DB750D1FA1C8311CE36C
 ```bash
 magnet:?xt=urn:btih:BC67BD26EECC01D3D663F6E15CF5CC29B0298E34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:BC67BD26EECC01D3D663F6E15CF5CC29B0298E34
 magnet:?xt=urn:btih:140ED6E58D42582A53AAD816657D6E24BCF5C247
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:140ED6E58D42582A53AAD816657D6E24BCF5C247
 ```bash
 magnet:?xt=urn:btih:4E7F170D3B5A0E09819AB04904ED426C7FF8FA9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:4E7F170D3B5A0E09819AB04904ED426C7FF8FA9E
 magnet:?xt=urn:btih:7692E9B4110A43A73BB4FA2D208008BE82CB221D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ NewPipe x SponsorBlock x Return YouTube Dislike v0.27.2 Mod by baalajimaestro  [
 ```bash
 magnet:?xt=urn:btih:6915C2A4ABA0E7270F5617FC07329AAC54109343
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:6915C2A4ABA0E7270F5617FC07329AAC54109343
 magnet:?xt=urn:btih:2D9A21DA34BF9BB65D9B35F8B787775E5E91D54D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Spirits of The Silicium Forest – карточная игра с примесь
 ```bash
 magnet:?xt=urn:btih:5200CC71C4C64F90B1AAC28F7F067D2E1B963295
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,27 +1,3 @@
-###  Публикация: 1438580   (1040698) от 09.01.2021
-
-Batman: Arkham Origins / Batman: Летопись Аркхема (2013) [Ru/En] (1.0/dlc) Repack xatab
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра Batman: Arkham Origins является продолжением нашумевшей серии игр Batman: Arkham. События разработанной студией WB Games Montréal игры протекают в расширенном городе Готэм и происходят за несколько лет до событий в Batman: Arkham Asylum и Batman: City, первых двух играх популярной серии. Действия игры происходят до захвата Готэма опаснейшими преступниками: (   Читать дальше...   )Тип издания: RepackРазработчик: WB Games MontréalЖанр: Action, 3D, 3rd Person, StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36B5BC8C016D0D4ADE390845449BF9C17D78A3C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041504   (1040710) от 09.01.2021
 
 Rise of the Tomb Raide (2016) [Ru/Multi] (1.0.668.1/dlc) License CONSPIR4CY
@@ -42,6 +18,8 @@ Rise of the Tomb Raide (2016) [Ru/Multi] (1.0.668.1/dlc) License CONSPIR4CY
 ```bash
 magnet:?xt=urn:btih:6F3A5F6801264BE6E0FBC21F19E607E53FA074DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Brigador (2017) [Ru/Multi] (1.65b/dlc) License GOG [Up-Armored Edition]
 magnet:?xt=urn:btih:54B541700029ACD1854AFC4780BF6ADA85117D33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ GRUNND - это уникальная приключенческая игра с 
 ```bash
 magnet:?xt=urn:btih:7BD4120D8682033781CE54EBFA3B27BCCECCFDA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Garbage Truck Simulator позволяет геймерам почувствов
 magnet:?xt=urn:btih:1DE38F0EBB75F18D40B5F22D1316B18C05DBA75F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Duskers - захватывающий гибрид стратегии и роле
 ```bash
 magnet:?xt=urn:btih:76213ED51A7D58391D6C26BFEC926A58A66FA67A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Anima: Gate of Memories (2016) [Multi] (20171122) License GOG
 magnet:?xt=urn:btih:EDED40F42611EC922A34B48E2024F1B64261D8C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Yooka-Laylee and the Impossible Lair - это совершенно новый п
 ```bash
 magnet:?xt=urn:btih:83552E84038832E71B2F896C4C887C519B48C5BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Ringborn - это сюжетная RPG, действие которой разв
 magnet:?xt=urn:btih:036EB1FF73CB4A1BD9BAD450467AEF5FA9130ECB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ Factorio — это игра про добычу ресурсов, постро�
 ```bash
 magnet:?xt=urn:btih:D41F0A08D242051B8EAE34B748DC2CB161E4D79D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ Devil May Cry 5 (2019) [Ru/En] (1.0.0.1.05962864/dlc) Repack xatab [Deluxe Editi
 magnet:?xt=urn:btih:DF365A6F78472F0B2504F6BD9ED60B0DD1058B3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ Exiled Kingdoms (2018) [Ru/Multi] (1.2.1124) License GOG
 ```bash
 magnet:?xt=urn:btih:531DEC3CA58320C6AC61DA380B48D0889B4DA42C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ Star Ocean - The Last Hope (2017) [Ru] (1.1.12212) Repack xatab [4K & Full HD Re
 magnet:?xt=urn:btih:082C16A9111063F9898F51C9E45AD4575D9D6F60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ Hot Wheels Unleashed (2021) [Ru/Multi] (1.0/dlc) License Razor1911
 ```bash
 magnet:?xt=urn:btih:7F9F51BAAC6AD4A6A715E41B55B4CB9F412660B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ Battlestar Galactica Deadlock (2017) [Ru/Multi] (1.5.113/dlc) License GOG
 magnet:?xt=urn:btih:56A537460F1AC36C4EE68F9E35032254719F629F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ Papers, Please (2013) [Ru/Multi] (1.2.72) License GOG
 ```bash
 magnet:?xt=urn:btih:E797EF809E65E768B66E54E955AAA8A50EA41B89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ Pumpkin Jack — это дикая, но симпатичная 3D-игра, в 
 magnet:?xt=urn:btih:A32432323E73633C18E2ED36B27CACED77A430EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ Hidden Expedition 20: Reign of Flames / Секретная экспедиция 
 ```bash
 magnet:?xt=urn:btih:6EC7882E517103CDBBC44668822979528CF112B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ DARQ – игра про мальчика по имени Ллойд, котор
 magnet:?xt=urn:btih:246C3BB1A7B3D576110FC305D72CE7C5BA75B268
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ Detectives United 4: Phantoms of the Past (2020) [En] (1.0) Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:C2A12097B5CEF806255B4C9094B3B75DF8DF26D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ The Walking Dead: The Telltale Definitive Series содержит все чет�
 magnet:?xt=urn:btih:ADE2091C10BC2267E8289CF2DC38417B26CC6442
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ The Book of Bondmaids (2021) [Ru/Multi] (1.84/dlc) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:10E73CCB5EB2ADF5945A5E8E25A33796E1AA8DC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ Men of War II: Arena — продолжение легендарной сери�
 magnet:?xt=urn:btih:74F09792D82BE329C1870F281AA80FD9F53DBE9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ Forager - это 2D-игра с открытым миром, вобравшая 
 ```bash
 magnet:?xt=urn:btih:A8A2306192866E04BB1CC797B5F6CB4C32963FD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +617,8 @@ Broken Porcelain вносит в серию много долгожданных 
 magnet:?xt=urn:btih:091EAE0C9A3DF485B2F4D25217159648C0260228
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +642,34 @@ ATONE: Heart of the Elder Tree (2023) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:F0B249D197A89F8F3FD26CB01ABA21DBF13B9F23
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599756   (1043114) от 04.02.2023
+
+American Fugitive (2019) [Ru/Multi] (1.1.19095) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043114.jpg" />
+</div>
+
+
+###  Подробнее
+
+American Fugitive - классический экшн с открытым миром и изометрическим видом. Основатели компании Fallen Tree Games, разработавшей этот проект, славятся и другими первоклассными детищами: TimeSplitters, Crysis, Black и Goldeneye 007: Reloaded. В тихом городке Рэдрок кипит преступная жизнь. Вы - Уилл Райли. Не ангел, но и не убийца. После обвинения в хладнокровном (   Читать дальше...   )Тип издания: LicenseРазработчик: Fallen Tree Games LtdЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8322D66662C922C4FAD2B991DE9B378A0030D558
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

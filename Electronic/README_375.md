@@ -22,6 +22,8 @@ Ben Bohmer (Ben Böhmer) - Breathing (Remixed) (2020) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:C5C3EC1F0AA61D267A6CFB3F76D7141DCF5DEFD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ CD1:
 magnet:?xt=urn:btih:D30E6A6F474BC29A0DDD34C33FBE1F17AFC5B8CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Rue Du Soleil (ex resident of Cafe Del Mar) - Discography 5 Releases (2003-2012)
 ```bash
 magnet:?xt=urn:btih:F8EE936B0EEE9E8BB7386C333257118D4AFE2F1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ VA - Fitness Beats 2018 - 24 Workout & Fitness Gym Music Hits [MP3|320 Kbps] <Ho
 magnet:?xt=urn:btih:2C4CCCD796529EF0B40D9774F7A0982F9B703578
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ VA - Poolside Miami 2018 (Mixed by Kraak & Smaak) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:A73A8B39F7703855681B45388D22CA0EA2BAFBA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ Ashterra - Other Earth (2018) [MP3|320 Kbps] <Downtempo, Ambient, New Age>
 magnet:?xt=urn:btih:1BA623638097EA44E8199A14830914027F354333
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ VA - Sick Music 2019 [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:2CB0CC5ADB32CE0E623D5EEC99507012D92E5BA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ Shakti - Psychedelic Experience (2016) [FLAC|Lossless|image + .cue] <Psychedelic
 magnet:?xt=urn:btih:16094997A19080FD8E5818A6622C8594D3503972
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +250,8 @@ Sopor Aeternus - Death & Flamingos (2019) [MP3|320 Kbps] <Darkwave, Gothic Rock,
 ```bash
 magnet:?xt=urn:btih:07FA4AA5AA2A946EAD5A3E228F07BE6C98115133
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +280,8 @@ The Midnight - Collection (2014-2020) [FLAC|Lossless|WEB|tracks] <Synthwave, Syn
 magnet:?xt=urn:btih:9EFCC64AA2E4344A8F7188E494372AB659753883
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +308,8 @@ VA - I Love Chill Vol. 4 (Finest Ambient Lounge And Chillout Music) (2019) [MP3|
 ```bash
 magnet:?xt=urn:btih:578E1D85D1ED454F4A3510C7F1AFE795DEDDC172
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +338,8 @@ Côte Déserte (Cote Deserte) - Strange To Look At Her. It Seems That... (2014) 
 magnet:?xt=urn:btih:C84A1384651564862CCC43CE6EEC33FEE7A37703
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +366,8 @@ VA - Dancefloor Hits (2019) [MP3|320 Kbps] <House,  Progressive House, Electro H
 ```bash
 magnet:?xt=urn:btih:E5E57557A6EA85D58A065352158BED8B96E4223B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +396,8 @@ Côte Déserte (Cote Deserte) - Dale Cooper's Case (2011) EP [FLAC|Lossless|trac
 magnet:?xt=urn:btih:B74A0B8EBE76476CED9560CBE169132CEB6F438D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +424,8 @@ VA - Sounds Of Instruments 03 (Mixed by Terry Lee Brown Jr.) (2007) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:E978370DA95C11F0AC40AE73919A7E413623F3DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +454,8 @@ VA - We Love House (2019) [MP3|320 Kbps] <House, Tech House>
 magnet:?xt=urn:btih:54A0B91FF42BECE24B4B588C84810524393DA528
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +482,8 @@ VA - Big Party: EDM Anthems (2019) [MP3|320 Kbps] <Big Room, Progressve House, F
 ```bash
 magnet:?xt=urn:btih:D4C4EB385936DF08AE6302B8B044D52AA619A570
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +512,8 @@ VA - Summer Chill (2016) [MP3|320 кб/с] <Chill Out, Chill House>
 magnet:?xt=urn:btih:E6414615A9C59BD38079A97883A60B97D34BCB81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +540,8 @@ Carpenter Brut - Leather Teeth (2018) [MP3|320 Kbps] <80s, Dark Synth, Retrowave
 ```bash
 magnet:?xt=urn:btih:77DB3FD5966ACF44A290CF2B5805685450438F28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +570,8 @@ George FitzGerald - All That Must Be (2018) [FLAC|Lossless|WEB-DL|tracks] <House
 magnet:?xt=urn:btih:B40E10FA66085B85ABD683EDD8EE27EC4428F072
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +599,8 @@ MUST DIE! - CRISIS VISION (2021) 2CD Deluxe Edition [FLAC|Lossless|tracks + .cue
 magnet:?xt=urn:btih:2D1C91237ACC669AA4FFF877BBD58FB9793E4505
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +626,8 @@ Solar Bears - Discography 8 Releases (2010-2016) Planet Mu, Sunday Best [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:ACEC855C5B0CACCC107DA17437F2E7D7B639E85D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +656,8 @@ Starfish Pool - Collection 19 Releases (1995-2001) [FLAC|Lossless|tracks+.cue, t
 magnet:?xt=urn:btih:8712F102D5BB41B7DCE1A2569A100C2CC9A4EC29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +684,8 @@ omni causa - Discography 5 Releases (2016-2020) mindcolormusic [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:E2556B0A958BFB1D01A419ED4173DFF1D4BCC1CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -666,6 +714,8 @@ Alex de Vega - Dark Adaptation (2013) [MP3|320 kbps] <Jungle, Drum & Bass>
 magnet:?xt=urn:btih:F15804EA000B45CD38531A49B694DD57F39F66E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -692,6 +742,8 @@ VA - Mallorca Chillout Lounge Music (200 Songs) (2016) [MP3|320 кб/с] <Downte
 ```bash
 magnet:?xt=urn:btih:F592E56FB92A6118C61CCE44279DE97313E1A8E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

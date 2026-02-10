@@ -22,6 +22,8 @@ ScAnDroid Experiment's - Musica Adumbrari (2019) авторская раздач
 magnet:?xt=urn:btih:3368219402ACC951FA425B420173AE4331870842
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Ibiza House Top 100 (2019) [MP3|320 Kbps] <House, Progressive House, Club H
 ```bash
 magnet:?xt=urn:btih:827D2C577039EB3DD01D3F8E9C4E2240DDBA5492
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Deep House Summer (2019) [MP3|320 Kbps] <House, Deep House, Progressive>
 magnet:?xt=urn:btih:59CB62DB359DFBFA984D0A9CAFAB653790EF79EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Flying Cobra - Data (2019) Space Of Variants [FLAC|Lossless|WEB-DL|tracks] <Dub 
 ```bash
 magnet:?xt=urn:btih:B9B909E3BBC67A6A229FABB5A9C067C8F9B6410C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Miromiro (Microstatic, Punchaface) - Discography 5 Releases (2015-2019) Ngirungi
 magnet:?xt=urn:btih:D37EA2728999EE44CF421144C56EAC3873ED4191
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Planet Supreme - Planet Supreme (2019) Ant-Zen [FLAC|Lossless|WEB-DL|tracks] <Am
 ```bash
 magnet:?xt=urn:btih:48D6D2C8B408585BB7332A3647055226C39ACAA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Tom Adams - Particles (2019) Moderna Records [FLAC|Lossless|WEB-DL|tracks] <Mode
 magnet:?xt=urn:btih:633E6F118A3FD2BDD4D0E78B735A32322F6EFB1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Black Lung - The Great Manipulator (2019) Metropolis [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:46F4763451027C29A4DF98E439FCA943C0BFE1F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Ripperton - Contrails (2019) ESP Institute [FLAC|Lossless|WEB-DL|tracks] <Ambien
 magnet:?xt=urn:btih:C39EE59F4217E16F348DE4C25457E6AAD17B94AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ The Chemical Brothers - No Geography (2019) Japanese Edition [MP3|320 Kbps] <Bre
 ```bash
 magnet:?xt=urn:btih:9934BF286703A1050B7713B6FD82B11011795EC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Avicii - TIM (2019) [MP3|320 Kbps] <Progressive House>
 magnet:?xt=urn:btih:402ACF047B3AB67AC28E3A00AF156210E79C2897
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ S.P.Y - Dubplate Style (2019) [MP3|320 Kbps] <Drum & Bass, Liquid Funk>
 ```bash
 magnet:?xt=urn:btih:CB56C2BFC1D59F371D758F11DF53AA13D3112090
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Sied van Riel @ Liberation V2, Fabric London, United Kingdom 2019-05-04 (00:51:5
 magnet:?xt=urn:btih:C02C1696F0596A5090B21782F3B48FC8D85B7552
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +395,8 @@ Black Swan - Discography 12 Releases (2010-2019) Ethereal Symphony, Swan Plague 
 ```bash
 magnet:?xt=urn:btih:3E54287F877C3551C00FB3D4F33E463DE6A28708
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +425,8 @@ Craig Connelly @ quantumVALLEY, EDC Las Vegas, United States 2019-05-18:
 magnet:?xt=urn:btih:738D5805E9B473CDEF324C7A27D5B5F04E6599A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +453,8 @@ Robag Wruhme - Venq Tolep (2019) Pampa Records [FLAC|Lossless|WEB-DL|tracks] <Te
 ```bash
 magnet:?xt=urn:btih:DEF116D9C5A7CBD50D37A5E1E6A7A04F7B236B4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +483,8 @@ VA - Trance Euphoria Vol.4 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
 magnet:?xt=urn:btih:88D26ED15F5BAB5E468103048AF00B38B0095053
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +511,8 @@ VA - On Air Deep & Soulful House Tunes (2019) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:0A22ACDFB245F34AC7861569A3F034605E4731E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +541,8 @@ VA - Ibiza 2019 Borderline Audio (2019) [MP3|320 Kbps] <House>
 magnet:?xt=urn:btih:D180BF9DA7ED71A9F765F4C669A893C08991B45E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +569,8 @@ VA - Super Strong Summer Deep House Tunes Top 100 (2019) [MP3|320 Kbps] <House, 
 ```bash
 magnet:?xt=urn:btih:4F3439C31898A125452333DD0142CF0D92AC53C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +599,8 @@ B(if)tek - Sub-Vocal Theme Park (Acid Unravelled) (1996) [FLAC|Lossless|tracks +
 magnet:?xt=urn:btih:CBDD38CF3D8FBE77CD0CCF460AA3021306F33EAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +627,8 @@ VA - Ibiza 2019 Deep House (2019) [MP3|320 Kbps] <House, Deep House>
 ```bash
 magnet:?xt=urn:btih:398517AF93F1B190D3C279FA986C51961A29064F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +657,8 @@ VA - EDM Revolution 2019: Best Anthems For Party & Clubbing (2019) [MP3|320 Kbps
 magnet:?xt=urn:btih:C53CC7FDDB3E4DBBB90BB75226CF001AF1D30363
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +685,8 @@ VA - Running Music 2018 [MP3|320 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:4C8DEB9E6F6D97A49E92C5AD1F7098D1DAE7B31D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +715,8 @@ VA - Schneeweiss 9 (Presented by Oliver Koletzki) (2018) [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:2C141765342168FFC54442E6D95186591CE20CA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ Gang Gang Dance - Kazuashita (2018) 4AD [FLAC|Lossless|tracks+.cue] <Experimenta
 ```bash
 magnet:?xt=urn:btih:0A9FC89B649F58698E7F10FC9DCB07EA43A0F5BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

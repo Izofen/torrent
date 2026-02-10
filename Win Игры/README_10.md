@@ -19,6 +19,8 @@ Galactic Civilizations IV (2023) [Ru/Multi] (3.01/dlc) Repack Let'sРlay [Supern
 magnet:?xt=urn:btih:D0200363AD4C2EF8E69E388506E46BBD5E0C2A19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ SWAT Commander (2025) [Ru/Multi] (0.7.7.4) Repack Let'sРlay [Early Access]
 ```bash
 magnet:?xt=urn:btih:E455072B6E3FC95020059285C5598B7459923F38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (2.0.4) Repack Let'sРlay
 magnet:?xt=urn:btih:2B791ABC3ED7F9E9CBDB11B3D3D54370A33B4412
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Shardlight (2016) [En] (3.4) License GOG [Special Edition]
 ```bash
 magnet:?xt=urn:btih:10D9531D2C55AB6848EA20532AD18013D0162583
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Whispered Secrets 17: Poisoner's Masquerade (2025) [En] (1.0) Unofficial [Collec
 magnet:?xt=urn:btih:3AFEDB4D0EF71A40EE5432D9CBCC1658E1BDD31F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Shape of Dreams (2025) [Ru/Multi] (1.0.0.RC12 s) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B6765B7C49A3E0C0149DA4152670F6B3972C147C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ X4: Foundations - долгожданное продолжение успешно
 magnet:?xt=urn:btih:79D76AC8F409101C9E7A288605D155BDA5CBF842
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Kaiserpunk (2025) [Ru/Multi] (1.01.010/dlc) Repack Let'sРlay [Supporter Edition
 ```bash
 magnet:?xt=urn:btih:E960954363864F6987084A9398CDFA25D3E1CE5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Shape of Dreams (2025) [Ru/Multi] (build 19939749) Repack seleZen
 magnet:?xt=urn:btih:35BDCA9202F23BC1F418CA11521D1CDDA5B0AFC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Heads Will Roll: Reforged позволит игроку примерить на 
 ```bash
 magnet:?xt=urn:btih:043E1ED729D9CF12DD85694FE30AD4EF33146BAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Monster Prom 4: Monster Con это многопользовательский с
 magnet:?xt=urn:btih:6A9AAB142569D4925AA1F50CA89E3BDAAE80E9AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Empyrion - Galactic Survival – это приключение с выживан
 ```bash
 magnet:?xt=urn:btih:1ADC7EEDC41D659A148BE634FF394B069D052C3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Virtua Fighter 5 R.E.V.O. (2025) [Multi] (1.05/dlc) Repack Let'sРlay [30th Anni
 magnet:?xt=urn:btih:0C23457ABA9C1080A8124008FBEB30FFB96EC141
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Reus 2 (2024) [Ru/Multi] (1.9.0/dlc) Repack Let'sРlay [Complete edition]
 ```bash
 magnet:?xt=urn:btih:64D9498F59D473053FA22629E6020D05A28B0A35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Iron Core: Mech Survivor — это однопользовательская р�
 magnet:?xt=urn:btih:AF9306B9709C8C04D88EBA66A8E482CC2A7BAB09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Airships: Conquer the Skies (2015) [Ru/Multi] (1.2.8.2/dlc) License GOG (обн�
 ```bash
 magnet:?xt=urn:btih:5F3A153371B77338010CCD93BC70C8966D1D1D57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ AI War 2 (2019) [En] (5.714/dlc) License GOG [Titan Edition]
 magnet:?xt=urn:btih:CDB1B194FB626D9BEB8A64B6317F60B9AA81B20C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Starship Troopers: Terran Command — захватывающая стратег�
 ```bash
 magnet:?xt=urn:btih:38CB75820E91D2F51E485E7DD2A0479989E2C690
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Knock on the Coffin Lid (2024) [Ru/Multi] (1.3.5.4/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:D4B35A5B30D739C9E363427318F990D9CB577F15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Brigand: Oaxaca - это хардкорный гибрид RPG и FPS, дейс�
 ```bash
 magnet:?xt=urn:btih:69BA985716B6EB69678A139004386C037DD39EFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Myth Finders (2025) [En] (1.0) Unofficial [Collector's Edition]
 magnet:?xt=urn:btih:1A596333322169B2D4746F3F7994CE43076AAC85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Roots of Pacha (2023) [Ru/Multi] (1.3.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:B2597A83CD9EA441BCC7E74C6470C9BFAA35E613
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ FACEMINER (2025) [Ru/Multi] (1.41) Repack FitGirl
 magnet:?xt=urn:btih:960AE1E0342EDE91623B4B3A84C63779F0D2AF8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Ravenous Devils (2022) [Ru/Multi] (Build 9180250) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:C5A1785BB7C4E204516626F2986786AB7BE0FCAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Planet of Lana – это грандиозный квест-головоломк
 magnet:?xt=urn:btih:CF1F97E953A71D96577CC9E87DC03DE5A32D1CA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Labyrinthine - кооперативная хоррор игра, которая 
 ```bash
 magnet:?xt=urn:btih:B7EA77E55286793509C6D884A15234B84B5B12C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1220931   (700519) от 21.04.2018
+
+Право знать! (21.04.2018) SATRip
+
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700519.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Право знать!" – общественно-политическое ток-шоу без купюр и без протокола, о людях и событиях, которые меняют нашу жизнь.Телекомпания: ТВ-ЦентрЖанр: Общественно-политические ток-шоуПродолжительность: 01:10:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15E91645ED295DB667FE5FDB92F3BDC2E64C6B38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220790   (700523) от 21.04.2018
 
 Захар Прилепин. Уроки русского. 1917 раз о Ленине (20.04.2018) HDTV [H.264/1080i-LQ]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:B748274FE510BC12946DE425C7043BC41D89EBC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:B748274FE510BC12946DE425C7043BC41D89EBC6
 magnet:?xt=urn:btih:1B4BC89312E8B6C4CF8E49991057E08C3AFE0F73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:1B4BC89312E8B6C4CF8E49991057E08C3AFE0F73
 magnet:?xt=urn:btih:C377C6DF13A4A171044FEFC3B236D3B8048BF298
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:C377C6DF13A4A171044FEFC3B236D3B8048BF298
 ```bash
 magnet:?xt=urn:btih:DE1FF33098E6767C73915DB5A727DFAB03975461
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:DE1FF33098E6767C73915DB5A727DFAB03975461
 magnet:?xt=urn:btih:032137C1C8532882B77F5FC1C7F7BC3130CF2CDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:032137C1C8532882B77F5FC1C7F7BC3130CF2CDB
 ```bash
 magnet:?xt=urn:btih:8C57619F616DBD4C00931981D73EE0874F992B3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:8C57619F616DBD4C00931981D73EE0874F992B3B
 magnet:?xt=urn:btih:CFBA4E668FE43E3A497B4835943C56843A14CB51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:CFBA4E668FE43E3A497B4835943C56843A14CB51
 ```bash
 magnet:?xt=urn:btih:3B78348933E4C1523963B16A1C1CE9852E6859FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:3B78348933E4C1523963B16A1C1CE9852E6859FA
 magnet:?xt=urn:btih:B73B36E36618263E9FBEF899625544B2F9555594
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:B73B36E36618263E9FBEF899625544B2F9555594
 ```bash
 magnet:?xt=urn:btih:7CB35B4FBDA48020EA1C3B2B3716CBD421D341D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:7CB35B4FBDA48020EA1C3B2B3716CBD421D341D0
 magnet:?xt=urn:btih:28AC4BB01F95BE76E281C7FA50BB1EF232EAD41B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:28AC4BB01F95BE76E281C7FA50BB1EF232EAD41B
 ```bash
 magnet:?xt=urn:btih:CB3B3F24ACA4E3446FBCFC7EA358AE72A23AC17B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:CB3B3F24ACA4E3446FBCFC7EA358AE72A23AC17B
 magnet:?xt=urn:btih:3B93D57D08EF74BAFAF3C542EE2D200E8D4FF56D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:3B93D57D08EF74BAFAF3C542EE2D200E8D4FF56D
 ```bash
 magnet:?xt=urn:btih:98127B845EFDBE75625BAC7C7E3A5D6A1FF3BF04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +418,8 @@ magnet:?xt=urn:btih:98127B845EFDBE75625BAC7C7E3A5D6A1FF3BF04
 magnet:?xt=urn:btih:8ADB93E03FCF2BF03E56A8591FE301C9E63C50ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:8ADB93E03FCF2BF03E56A8591FE301C9E63C50ED
 ```bash
 magnet:?xt=urn:btih:F1ECEDF8666F583974903A3A3B98D84FA4678CBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +472,8 @@ magnet:?xt=urn:btih:F1ECEDF8666F583974903A3A3B98D84FA4678CBF
 magnet:?xt=urn:btih:B83C9699B6FF7A30CBEB2F436F2271DC60BFB6CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +498,8 @@ magnet:?xt=urn:btih:B83C9699B6FF7A30CBEB2F436F2271DC60BFB6CB
 ```bash
 magnet:?xt=urn:btih:036D1349C2850982FB86BFF2A47814D5DDE6BAD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +526,8 @@ magnet:?xt=urn:btih:036D1349C2850982FB86BFF2A47814D5DDE6BAD0
 magnet:?xt=urn:btih:53CC2568FE30D8013EA8255D44D6CDF91A423885
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +552,8 @@ magnet:?xt=urn:btih:53CC2568FE30D8013EA8255D44D6CDF91A423885
 ```bash
 magnet:?xt=urn:btih:8296E021F7B4FCACDD58683F0F025B46DF224D99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +580,8 @@ magnet:?xt=urn:btih:8296E021F7B4FCACDD58683F0F025B46DF224D99
 magnet:?xt=urn:btih:80450EBBF3D6EB2EC90879D82972D4D02343869C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +606,8 @@ magnet:?xt=urn:btih:80450EBBF3D6EB2EC90879D82972D4D02343869C
 ```bash
 magnet:?xt=urn:btih:CA621916A8B29856F6E9D698836AD90BF65C961E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +634,8 @@ magnet:?xt=urn:btih:CA621916A8B29856F6E9D698836AD90BF65C961E
 magnet:?xt=urn:btih:A6D1F61AEAEF37FA552A2885749E068AC73EF66D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +661,8 @@ magnet:?xt=urn:btih:A6D1F61AEAEF37FA552A2885749E068AC73EF66D
 magnet:?xt=urn:btih:9EF69FFBB2C4AFCE0CF6317219B5ECDF1126D218
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,30 +687,7 @@ magnet:?xt=urn:btih:9EF69FFBB2C4AFCE0CF6317219B5ECDF1126D218
 magnet:?xt=urn:btih:68000EBBC28E6FBD2AA92EDFC610A46E966C9DFF
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132582   (700963) от 09.05.2017
-
-Парад Победы, посвященный 72-ой годовщине Победы в ВОВ 1941-1945г. (2017.05.09) WEB-DLRip (Москва)
-
->>Документалистика и Телепередачи
->>Отечественная история
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Военный парад, посвященный 72-й годовщине Победы в Великой Отечественной войне.
-Каждый год 9 мая во многих странах мира отмечают День Победы над немецко-фашистскими захватчиками. Но нигде этот праздник не празднуют с таким размахом, как в России. В 2017 году отмечается 72 год со Дня Победы.Жанр: Документальный, военный парадСубтитры: ОтсутствуютПродолжительность: 00:55:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C6414BBB0A3748F8F401E5F204E0684C41BE159
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

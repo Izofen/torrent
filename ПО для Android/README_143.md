@@ -19,6 +19,8 @@ Notification Widget v1.5.206 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:D0D89506F06434A8E6DB35A230589C559D662FAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Notification Dots v1.2.86 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B53A738D8CBDB5BF8EEFDDAB4235C89D52DFBFF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ PixelLab - отличный фоторедактор, в котором все �
 magnet:?xt=urn:btih:D5222821281A0663DA48D157B821B30299F422DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ PhotoDirector v20.9.2 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5CCF3DBABB80C0899272AABFDA59B0FBF6439C44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ YouCam Makeup- универсальный виртуальный салон кр
 magnet:?xt=urn:btih:9D63DFB5A0C80234F336976AEB08D26CFC070E82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Astrological Charts / Астрологические Карты Pro v11.2.2 [Ru/
 magnet:?xt=urn:btih:81BADBD086EEF559A0421878B702000C37350C30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Horary Chart / Астрология: Хорарная Карта v4.1.7 [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:D3CF214A9865112F2A614DC4FB9A3CE60A83E45D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Solid Explorer - это приложение для управления фай�
 magnet:?xt=urn:btih:01B78D81AF90E29FFE62EE7BDF85E7BD9A2FA0D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ FixPlus — Редактор лица и тела v1.52.142 Mod by PieMods [Ru/M
 magnet:?xt=urn:btih:81207F7927B0C2AA0CF0869924D8C799516AC9CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Photo Editor - уникальная программа для обработки
 ```bash
 magnet:?xt=urn:btih:7CB9DEB00A01144C9C0304F73FDFF03DEE19B146
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:7CB9DEB00A01144C9C0304F73FDFF03DEE19B146
 magnet:?xt=urn:btih:A0D6AA4DA5DDCD7E7C1784652C4A7674AE0AB11C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ TVGuide v4.6.1 Premium Mod by Alex.Strannik [Ru]
 magnet:?xt=urn:btih:5FB946846C50B6FE52539FB1673B2D9CEAFA4C93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ MobiOffice - это полнофункциональный офисный пак
 ```bash
 magnet:?xt=urn:btih:CEEBF5B453D4C3688B82305A99D77A41F2D6467D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ eWeather HDF - это точный прогноз погоды от двух м�
 magnet:?xt=urn:btih:5BDDD1193CD77F19F20C3DBD65A8471F7E0086B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Night clock / Ночные часы v2.11.22 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F1F59D50F41C31D641FB60B31BBB4BAA6C8DC4E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ TuneIn объединяет спортивные события, музыку, �
 magnet:?xt=urn:btih:6AC4060908E0C6D07661E426387CFE813D4593C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Logic Circuit Simulator PRO предоставляет вам место для 
 ```bash
 magnet:?xt=urn:btih:9D6B60AE0D6399697CA3370AF80BF84B014D2337
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Magic Eraser - это революционное приложение для р�
 magnet:?xt=urn:btih:9C41F448FCDE3CEBDD5793402C037BCC3F4FC2D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:9C41F448FCDE3CEBDD5793402C037BCC3F4FC2D5
 ```bash
 magnet:?xt=urn:btih:65D659003B4AC979D3C514613559B7939B2208E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:65D659003B4AC979D3C514613559B7939B2208E2
 magnet:?xt=urn:btih:F50031E2D691587882E8FA60BC2B9696B0F0B925
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Call Filter / Фильтр Звонков v1.30.5 Mod by Viktor245 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:B1A824C2F5746D9F9C0BFD2A0942F73CC5852701
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Mi Home - это приложение для управления умным д�
 magnet:?xt=urn:btih:4D909ECC7CCA9BBA59571BB3C9DA9A4E0D0F2137
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ AIDA64 v2.17 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:47CE1E049C3302AA2F227F0E7A728FF9BC87231B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:47CE1E049C3302AA2F227F0E7A728FF9BC87231B
 ```bash
 magnet:?xt=urn:btih:8971DEE2B0980782FE4510FED4243B15B9D054DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:8971DEE2B0980782FE4510FED4243B15B9D054DD
 magnet:?xt=urn:btih:4B59F6D947B3D77B175928458DD6B1D5D3A43C21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ WaveEditor для Android™ — это профессиональный инс�
 ```bash
 magnet:?xt=urn:btih:7F4BFFB32CE4B8D1D9FF09C336936DCE71F06598
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

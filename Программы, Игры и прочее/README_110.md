@@ -19,6 +19,8 @@ Head Model Studio 1.1.11 [En]
 magnet:?xt=urn:btih:BABCD7BA0BC29F026313ABBC1283265714570C13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Bookmark Folder 5.1.6 [Ru]
 magnet:?xt=urn:btih:6DC5CAAE0A352B7F7134B6F45130BD6798E8726C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Mi Control Center v3.7.9 [Ru/Multi] (обновляемая)
 ```bash
 magnet:?xt=urn:btih:03CB12926833F6079373D0A9B15D4F8C18FDC28E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ YouTube клиент для медиа-боксов и ТВ на базе Androi
 magnet:?xt=urn:btih:8A5AB7F7CDCC07D22EE68749DD3E0818C84C5471
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ ViPER’s Audio - это набор программного обеспечен�
 ```bash
 magnet:?xt=urn:btih:B0FB08E1CE6F50F20EC2A6B122C3AA9FF679A784
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ It is important to say the tongue twister out loud. Try to memorize the text by 
 magnet:?xt=urn:btih:2992B9E162E249165A87DAFC1FC0D80B5E233FF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ iGO R3 Here (NavTeq) Европа 2019.Q2 (.fbl, .fda, fds, .fjw, .fjv (Russia),
 ```bash
 magnet:?xt=urn:btih:C99D1BAB8E9D1F44578208DDE31D960D094918C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:C99D1BAB8E9D1F44578208DDE31D960D094918C4
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ Spy Video Recorder Camera / Шпионская видео камера v3.0.0 Pr
 ```bash
 magnet:?xt=urn:btih:C2D720815F75DAD647ED7138E9B1484A07D55986
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:C2D720815F75DAD647ED7138E9B1484A07D55986
 magnet:?xt=urn:btih:C2350A02C28CA3D6363479C33353E5EAC16BFB81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:C2350A02C28CA3D6363479C33353E5EAC16BFB81
 ```bash
 magnet:?xt=urn:btih:E969B761E3AFD59562993AE40D6DE90993D03C87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ Gangstar Vegas v2.0.1b [Ru]
 magnet:?xt=urn:btih:80808336D12BCB3CFC3FB1DD8861A44D41257729
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:80808336D12BCB3CFC3FB1DD8861A44D41257729
 ```bash
 magnet:?xt=urn:btih:5370BE0EF6FA9F0B4B76F1B638983A507E613E99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ Warplanes: WW2 Dogfight v1.6 Mod [Ru/Multi]
 magnet:?xt=urn:btih:4963BF935E69E83AD5E6DEA4B4960E9CA9231742
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ ZArchiver - это файловый менеджер с широкими воз�
 ```bash
 magnet:?xt=urn:btih:4157A22F15D9BA8DB48AA70FE3C91E1094C64C89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ GIF Maker and Editor, без водяных знаков и качества HD.
 magnet:?xt=urn:btih:4465A243B6D85964F577C81C90C748F283EAD2A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ Garmin: TopoActive South America 2020.10 [En]
 ```bash
 magnet:?xt=urn:btih:62592CF860BA611517296D2010EF4090EE69AB60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +478,8 @@ Image Converter / Конвертер изображений - просто от�
 magnet:?xt=urn:btih:CDED048A23EC5D98BDC2891CAE9545852D5AF7C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ GnaCAD - приложение, что представляет собой оче
 ```bash
 magnet:?xt=urn:btih:CA740569368C55A06C3F93A81B2ED0DC3115D044
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +530,8 @@ Garmin: City Navigator Singapore & Malaysia 2022.20 [En]
 magnet:?xt=urn:btih:50466B48E602FA6FD0D876961F2AFBA2F6F37888
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ The Weather Channel - полезное приложение отвечающее
 ```bash
 magnet:?xt=urn:btih:B6D4118C5EA034F77C69D48D71FD811C8DEDBD33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +582,8 @@ Genius Scan Plus - PDF сканер - отличный вариант скане
 magnet:?xt=urn:btih:0A12BC3AE2C1A43D8A3D2A414CE5EAB5424FEB55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ uTorrent Pro 3.8 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2A1C3B99D4170F70EA90072F5CD0F3661B75C014
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +634,8 @@ Call Master v5.4.0.1 [Ru]
 magnet:?xt=urn:btih:69B1E957173B535F024CFED9A482EF6545C4EDF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ Battery Guru: Battery Health - ещё один полезный инструме
 magnet:?xt=urn:btih:161990B9DB160C948A5845B648526874B830EDF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ Phone Master - инструмент с широким набором функц�
 ```bash
 magnet:?xt=urn:btih:C6AC3B6ABC0120FB3493E92039F565C4308F39A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

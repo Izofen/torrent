@@ -19,6 +19,8 @@ League of Light 7: Growing Threat / Лига Света 7: Растущая уг
 magnet:?xt=urn:btih:D12BEAABFDC386672AEF3032F073E17B6945AD0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ DREDGE (2023) [Ru/Multi] (1.4.0/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:1B5A3B7A9B93C0A659E10C401E99F6800E2DA755
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Far Kingdoms: Awakening Quest / Дальние королевства: Пр�
 magnet:?xt=urn:btih:30386E38EB3682480BA5EDCDBD147DAF95937617
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Batman: Arkham Knight – завершение знаковой серии от 
 ```bash
 magnet:?xt=urn:btih:FF6692F67305A16EBB7BF36646FDA019B3B54BA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ ATOM RPG это пост-апокалиптическая инди-игра вд
 magnet:?xt=urn:btih:0FB0462040D6AA6D2E6812427DB21F0A3B114076
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Dark Tales 10: Edgar Allan Poe's The Raven (2016) [En] (1.0) Unofficial [Collect
 ```bash
 magnet:?xt=urn:btih:8150E12D7BBF642BF4AA6DBC191358EE0836A325
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Worms Revolution – это самая последняя игра в серии
 magnet:?xt=urn:btih:D7E3750F373465ED6461DC35B41CBFD94AB56A8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Memoria (2013) [Ru/En] (1.2.3.0341) License GOG
 ```bash
 magnet:?xt=urn:btih:7D2323082EBCC0E25222B909DAC602591291D279
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Scarf - это приключенческая игра, сочетающая г�
 magnet:?xt=urn:btih:DD49CC31442112D60888378E3B85B2A6D41B263B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ City Patrol: Police (2018) [Multi] (1.0) License CPY
 ```bash
 magnet:?xt=urn:btih:F3EA804512B053107620F7D12BA60BFDE6902BCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Mass Effect 3 будет реагировать на каждое принято
 magnet:?xt=urn:btih:1847FC9C37436AFA53D3D0DB63069A263398BDF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Straya (2023) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:4CA0051378FF5B3516AFE1A7FA09A9CCF83D0264
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ The Smurfs 2 - The Prisoner of the Green Stone (2023) [Ru/Multi] (1.03.1/dlc) Li
 magnet:?xt=urn:btih:DC9F705D3D220A070836525881803C89BD237332
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Tooth and Tail построена вокруг экономической мод
 ```bash
 magnet:?xt=urn:btih:5A66E0389E24540B49176381C78B6D69E675EE5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ art of rally - раллийная игра от создателя игры Abso
 magnet:?xt=urn:btih:FC50B704D47D1B2787618D189795CC00DC6C77E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Cleo a pirate's tale (2021) [Multi] (1.1.5) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:0FF97FD297DB38981A34383235C5A90909FA6EAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ The Christmas Spirit 4: Journey Before Christmas / Дух Рождества 4: 
 magnet:?xt=urn:btih:FF0A15323D582500499C809AC24B277109DA88BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ The Last Faith рассказывает о герое, который решил
 ```bash
 magnet:?xt=urn:btih:E7D081A5075055D5727FA0AD89C51F07493BDDC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ Dead Island Retro Revenge - это взрывной 2D-экшен, где при
 magnet:?xt=urn:btih:0C20FD241024B8059CBD10F380D07F1A4E5D62F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Travellers Rest (2020) [Ru/Multi] (0.7.3.5.1) Repack Pioneer [Early Access]
 ```bash
 magnet:?xt=urn:btih:AEB3342010F0CC6B34F8551D0C7E2A95B4C88089
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Tomb Raider 1-3 Remastered Starring Lara Croft - ностальгический 
 magnet:?xt=urn:btih:9C7D2A8466E9CEBB5CD60F76189FB9D53EE96E24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Rose of Wind (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:2A377E2F85DF8CBA4180292AD2F1A6EBCDEB8E94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Mind Diver (2025) [Ru/Multi] (1.0.93) Repack FitGirl
 magnet:?xt=urn:btih:930CECE3543B42AD084436CA5CF21747B088633F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Trials Rising - продолжение популярной мотоаркады
 ```bash
 magnet:?xt=urn:btih:A6FE9A1B593922A50BE2BF641A5B3DF8726371B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Royal Romances 5: Cursed Hearts (2023) [Multi] (1.0) Unofficial [Collector's Edi
 magnet:?xt=urn:btih:B49A69979BA103E497B0E5F005168EBABA5F676C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Halo Infinite (2021) [Ru/Multi] (6.10020.17952.0/dlc) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:B38DA3920C41BD48CC8854DB8BC754B8125AF919
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Endless Legend (2014) [Ru/Multi] (1.8.2/dlc) Repack xatab
 magnet:?xt=urn:btih:D92F082EF7B2D2D86FE9A927D0398F02B64D9FDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Medieval 2: Total War квинтэссенция всего лучшего, че
 magnet:?xt=urn:btih:4F6EDD1F5E7043D3C565FE5372A52B4A58C37C1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Eador. Imperium / Эадор. Империя (2017) [Ru/Multi] (2.73.3.9771) Lic
 ```bash
 magnet:?xt=urn:btih:A7E61EF7D8F649A647B9E1BC7BE41D3CB4EB5760
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Eador. Imperium / Эадор. Империя (2017) [Ru/Multi] (2.73.3.9771) Rep
 magnet:?xt=urn:btih:FD21DD8B7FEA2D4C6097B4B88CA0670071F66E90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Charterstone (2020) [Multi] (1.2.7) License GOG [Digital Edition]
 ```bash
 magnet:?xt=urn:btih:2D66F7A2214E7C15E871122D7CB029D6E07680DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Cossacks: Imperia / Казаки: Империя [Multi5/Ru] (P/Mod) 2006 | Levi
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ AGEod's American Civil War: 1861-1865 – The Blue and the Gray / AGEod's Americ
 ```bash
 magnet:?xt=urn:btih:2FD60D1EDE3E93150A0B5E72151269CD63F6B784
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ SpellForce 2 Anniversary Edition переизданная версия посв�
 magnet:?xt=urn:btih:2386660E6BBC93FA83173EEB0E01D7BA22E67E70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Galactic Civilizations II (2011) [En] (2.1.0.3/dlc) License GOG [Ultimate Editio
 ```bash
 magnet:?xt=urn:btih:1C8FF0430EFE193CA3EB10D64942AB573548029E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Galactic Civilizations I (2003) [En] (2.0.0.4/dlc) License GOG [Ultimate Edition
 magnet:?xt=urn:btih:5A4F0602B99F5598338759161ACBC25B26F08617
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Etherlords 2: The Second Age / Демиурги 2 (2003) [Ru/En/Ge] (1.03/1.01) 
 ```bash
 magnet:?xt=urn:btih:F69BA7829FB1EF86FFD71F63D6DBFC92CD1EF4C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ SpellForce 2 - Anniversary Edition переизданная версия пос�
 magnet:?xt=urn:btih:99F6635FC7D07ADEA80D8BD8D7A8FD4AD3F2BEED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Star Ruler 2 - Wake of the Heralds (2015) [Ru/En] (2.0.0/dlc) License PROPER - P
 ```bash
 magnet:?xt=urn:btih:E72E4412E1BD076519AF57C2F378A0618C605482
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Star Ruler 2 - Wake of the Heralds (2015) [Ru/En] (2.0.1/dlc) License GOG
 magnet:?xt=urn:btih:D5C2722909D1596AEF84F6FC88922683367C71A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Space Tycoon (2019) [En/Ch] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:78A7D1F0B1F78F19F062D91EE039258F71A69C6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Stellaris (2016) [Ru/En] (2.0.2/dlc) Repack R.G. Механики
 magnet:?xt=urn:btih:73EA2D02FB56E54410665D1F4923C4FAD7B71A4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Carrier Command: Gaea Mission - это футуристический экшн �
 ```bash
 magnet:?xt=urn:btih:3C7C99490CCA2178DE2EF3513286417A013C88F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ Desperados III — это хардкорная тактическая игра �
 magnet:?xt=urn:btih:1B812132932C1908BECE9C84AC7772221C784E42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ Sid Meiers: Civilization VI /  Sid Meiers: Civilization 6 (2016) [Ru/Multi] (1.0
 ```bash
 magnet:?xt=urn:btih:D7C7DD29B6DBBF1EA96DB78AD2554CDBD5DFD609
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ Battlezone 98 Redux (2016) [Ru/Multi] (2.2.301/dlc) License GOG
 magnet:?xt=urn:btih:BF5683A246AAABB275F3FF89487E32FA55B09C01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ Steel Division 2 – продолжение военной стратегии в
 ```bash
 magnet:?xt=urn:btih:4EBDB9C1D63C9ACAFC89E2B8ADCA08E0CA54FB93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.09.00/dlc) Licens
 magnet:?xt=urn:btih:2AB2AF30C6DAE18F3F265405120B17CD2A88941B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ Europa Universalis 4 - стратегия, разрабатываемая сту
 ```bash
 magnet:?xt=urn:btih:76EB9765044B9BFAFBDF7FC2B45B2C3E64434BAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ Total War Anthology (2009-2013) [Ru/En] Repack R.G. Механики
 magnet:?xt=urn:btih:2EE9ABBAB3C4FB2A8377D5D81CC622FD72F6D119
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ Punk Wars (2021) [Ru/Multi] (1.0.6) License CODEX
 magnet:?xt=urn:btih:8338C0F29622E921490B40DB6CBFCA80F4503AC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Heroes of Might and Magic IV / Heroes of Might and Magic 4 (2004) [Ru/En] (3.0/d
 ```bash
 magnet:?xt=urn:btih:F4E1861732CCD9F773A96CD9CA0D1B0AD44DA868
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

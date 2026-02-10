@@ -22,6 +22,8 @@ Le Rythme Abstrait Series:(   Читать дальше...   )Жанр: Ambient,
 magnet:?xt=urn:btih:DF3823566EF3908961C5AA6A0262FB1496077484
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Infinite Scale - Discography 11 Releases (2005-2021) [FLAC|Lossless|tracks+.cue,
 ```bash
 magnet:?xt=urn:btih:9DA14560B678A9DCE203FA61C6E1D0BF77DCDC5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Gold Lounge - Discography: 9 Releases (2011-2021) [MP3|320 Kbps] <Chillout, Elec
 magnet:?xt=urn:btih:6C32B04713FA17861EA7F13E177F03487A8577BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ nthng | Trancemaster  - Discography 13 Releases (2014-2021) Lobster Theremin, M�
 ```bash
 magnet:?xt=urn:btih:F1E85CBA5DF2CD55E5AFC5CC0619C543118D9B4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -129,6 +137,8 @@ Robert Rich - Soundquest 2021 (2021) Live Album [FLAC|Lossless|WEB-DL|tracks] <A
 magnet:?xt=urn:btih:36113857D9E96AB19BC495BEACEDB9126E48262E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +165,8 @@ Frank Steiner, Jr. - Discography: 6 Releases (1998-2021) [MP3|320 Kbps] <New Age
 ```bash
 magnet:?xt=urn:btih:4225006543E4561ABB6F71FE8799A7D9D725AA2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -183,6 +195,8 @@ Zeu5 - Landscape Remixes (2021) ONESUN Yellow [FLAC|Lossless|WEB-DL|tracks] <Tec
 magnet:?xt=urn:btih:1F039BFCCC45FE217FFB4564A88E89D15E5D9DCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -209,6 +223,8 @@ VA - Tails Of The Unexpected (2021) Pulse State [FLAC|Lossless|WEB-DL|tracks] <I
 ```bash
 magnet:?xt=urn:btih:17A541FDB755B03A0F4E74980E7C5E2506F1E3A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +253,8 @@ VA - Cafe Del Amor: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Bal
 magnet:?xt=urn:btih:EFC7ED6E6647177D73F4C2591C83A3F1C9AE9789
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +281,8 @@ Vector Lovers | Martin Wheeler - Discography 30 Releases (1997-2020) Soma Qualit
 ```bash
 magnet:?xt=urn:btih:3FAF5F8A17C70722C8BD71E9D5DE3F0664B8760E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +311,8 @@ Advanced Suite - Cruzin (2021) Mystic Sound Records [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:C2433E4FCB22742BF357CC0116AF929D540CC252
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Alien Skin - Cold War Pop (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Electr
 magnet:?xt=urn:btih:371D3168050FB03E705920D32D93F6C40BE12B04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +367,8 @@ Tim Hecker | Jetone - Discography 28 Releases (2000-2019) Alien8 Recordings, Roo
 magnet:?xt=urn:btih:C6CDA8AF2FE5B188A681811F2E26FBA3F728D963
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +393,8 @@ edIT | エディット - Discography 7 Releases (2004-2021) Alpha Pup Records, P
 ```bash
 magnet:?xt=urn:btih:6EAB5D8383CDB1E703D704BABA535091FE60A9B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +423,8 @@ VA - H25PITAL (2021) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 magnet:?xt=urn:btih:558F3DA928A77AD7CCBD2BD4726AFA3471EF6FCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +448,8 @@ Jeffrey van der Wielen | Fnord - Discography 8 Releases (2019-2021) Pro Audio Re
 ```bash
 magnet:?xt=urn:btih:B3062C83059A5FD45F8B62B6E89571F978159BE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +478,8 @@ Lycoriscoris - Chiyu (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep Hous
 magnet:?xt=urn:btih:B6BD2C46F3A877E449D1763E27802999C62E4B24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +506,8 @@ Surrogate - Mistress 15 (2021) Mistress Recordings [FLAC 2.0|44.1/24|tracks|WEB-
 ```bash
 magnet:?xt=urn:btih:C3D4B6F024B2712266C9D58182350A688BE4266B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +536,8 @@ Iiney - Emperor of Will (Remix Version) (2021) Liberty Rhythm [FLAC|Lossless|WEB
 magnet:?xt=urn:btih:7716D80D7FCBB35A306273CB13BFE0802488783F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +561,8 @@ Nils Frahm - Discography 47 Releases (2005-2021) Erased Tapes, Sonic Pieces [FLA
 ```bash
 magnet:?xt=urn:btih:FD0AE522BBAAB39C4C21C65F49A1C62F6E842EFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +591,8 @@ Taylor Deupree (Human Mesh Dance, Tiny Objects In Space, Deupree, Ando) - Discog
 magnet:?xt=urn:btih:2A535F2820C9D8A533B11CF44A10E48EFADAD496
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +619,8 @@ Mythos - Discography 12 Releases (1996-2021) [MP3|320 Kbps] <New Age, Ambient>
 ```bash
 magnet:?xt=urn:btih:8D3DCF54A73F5EAF85FB54E4CB5AF3A1117A33BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +649,8 @@ James Bernard - Unreleased Works 1994-1999 (Volumes 1 & 2) (2021) A Strangely Is
 magnet:?xt=urn:btih:337F1AA9922FB8EACD69F0FA73CC1553E52B452C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +677,8 @@ Klangstein - Discography 39 Releases (2009-2021) [MP3|320 Kbps] <Chillout, Loung
 ```bash
 magnet:?xt=urn:btih:7812C2334AEA2B9781F2F08CADEE34E1BEEE13C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -659,6 +707,8 @@ Pet Shop Boys - Behaviour (1990) [FLAC|Lossless|tracks + .cue] <Synthpop>
 magnet:?xt=urn:btih:C377F7874A62F1BC3F476A4952D7DEA82BED44C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -685,6 +735,8 @@ David Guetta - Tomorrowland Friendship Mix (2021-03-25) [MP3|320 Kbps] <Electro 
 ```bash
 magnet:?xt=urn:btih:C2E494584251F792C1455EDBED5FDE0C21DA3974
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

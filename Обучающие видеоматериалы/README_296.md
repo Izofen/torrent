@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:DB43FD79CD08BBDCDDDB0AFD99955EED72A704DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Udemy, Ben Tristem и др. | Discovering Godot: Make Video Games in Python-like
 ```bash
 magnet:?xt=urn:btih:736CBD0FF7D4C3AFABF4F3D1AD5FFAE12B7121DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Waqas Qazi | Freelance Colorist (2020) PCRec [En]
 magnet:?xt=urn:btih:5DAD99F5D4D31557DC8757F8F2F9310DC14E7408
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Udemy, Stephen Grider |  Microservices with Node JS and React (2021) PCRec [En /
 ```bash
 magnet:?xt=urn:btih:2522DCA31F434C1F5C586041231C41014B7CF0EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ CodeWithMosh, Mosh Hamedani | The Ultimate HTML/CSS Mastery Series. Part 1-3 (20
 magnet:?xt=urn:btih:DB9B0994C8FDB54477D67C9C1498863A8BF31D9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ James Schauf | Vehicle Texturing in Substance Painter: From Clean to Mean (2018)
 magnet:?xt=urn:btih:E7E60A2D4C84B2EA3F7F4A60B9256B424C36DC0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:E7E60A2D4C84B2EA3F7F4A60B9256B424C36DC0A
 ```bash
 magnet:?xt=urn:btih:635362C8C8BB6129939C8055A23F804B167646E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +215,8 @@ Capture One 20: теория + цветокоррекция
 magnet:?xt=urn:btih:C38881D84BD6077BD03EF406FECE88E2DFE83624
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ magnet:?xt=urn:btih:C38881D84BD6077BD03EF406FECE88E2DFE83624
 magnet:?xt=urn:btih:5AE1B967AFA5E9E19C526FCA7DF8F3CB4CEE7170
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:5AE1B967AFA5E9E19C526FCA7DF8F3CB4CEE7170
 ```bash
 magnet:?xt=urn:btih:785EC70AA15C307B3C980EFB21EDC27544378399
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +296,8 @@ James Schauf | Vehicle Modeling for Production (2018) PCRec [En, Ru]
 magnet:?xt=urn:btih:34054EABB895CF7E651C14C48B0C04EF2A88ABF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ Andy Beane | Maya: Advanced Modeling (2017) PCRec
 ```bash
 magnet:?xt=urn:btih:B9AF19FFA75C8C725C47953BB791B452D60A59C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ Substance Painter является отраслевым стандартом д�
 magnet:?xt=urn:btih:53B68D7A7B3192EC5F55C882A2FDF5FA5F990E8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ Stanislav Poritskiy | Modeling a Detailed Ship in Maya (2013) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:24862578CED145CAFF5DCD433AB60ADEC0731D08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ Eric Keller | Maya Viewport 2.0 and Shader FX (2014) PCRec
 magnet:?xt=urn:btih:67F0DA1E607D08FFCFA0A5F74987F19842349E2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ Emiel Sleegers | 3D game asset creation: Fire hydrant (2013) PCRec
 ```bash
 magnet:?xt=urn:btih:D7E060B8D410E4C368FFACDEF04D7346977510ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +455,8 @@ magnet:?xt=urn:btih:D7E060B8D410E4C368FFACDEF04D7346977510ED
 magnet:?xt=urn:btih:107687556DAE3ADE3F8E2D3BEA26EA46C85CEFDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ Udemy, Maximilian Schwarzmüller  | Understanding TypeScript - 2021 Edition (202
 ```bash
 magnet:?xt=urn:btih:EA22E443DAB418EF334CE3645355146B1478F18D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +513,8 @@ magnet:?xt=urn:btih:EA22E443DAB418EF334CE3645355146B1478F18D
 magnet:?xt=urn:btih:DCCF8794FDC831F73AE58D70FCEFD8ADE20569E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ Cinema 4D – это универсальная комплексная прог�
 ```bash
 magnet:?xt=urn:btih:A0CCE5901194C1C80F173EEDDAFA8BEA789755B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +569,8 @@ magnet:?xt=urn:btih:A0CCE5901194C1C80F173EEDDAFA8BEA789755B7
 magnet:?xt=urn:btih:700214B69A2A0AB96FE6771224C22FCC4A331AC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +594,8 @@ FilmЕditingРrо | Искусство монтажа трейлеров от г
 ```bash
 magnet:?xt=urn:btih:651DF8B3B009DE83F6DEAC11F2ED93E0240C6515
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +624,8 @@ magnet:?xt=urn:btih:651DF8B3B009DE83F6DEAC11F2ED93E0240C6515
 magnet:?xt=urn:btih:7A48A1C88834960721F7C09768A959B2AD8B3EB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ Linux - операционная система номер один для ко�
 ```bash
 magnet:?xt=urn:btih:E35835F69F6838BF9FD63F16C35719FA8865312B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +680,8 @@ Art Five | Онлайн фотоакадемия «Art Five» (2020) PCRec
 magnet:?xt=urn:btih:47F56E56AE8ADFD3634FC11CF31B5501BEA406BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +707,8 @@ magnet:?xt=urn:btih:47F56E56AE8ADFD3634FC11CF31B5501BEA406BC
 ```bash
 magnet:?xt=urn:btih:992D61FC6248E954416B6787D6EEB3D433EA05C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

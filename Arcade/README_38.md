@@ -19,6 +19,8 @@ Overcooked возвращается с новой порцией безумно�
 magnet:?xt=urn:btih:08E08D48A13BBEF6931740C84F76A975527426DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Mugsters (2018) [Ru/Multi] (1.0.313) Repack Other s
 ```bash
 magnet:?xt=urn:btih:D3186F2A93419F3F5A5FD23CB32513D436F44244
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Infectonator 3: Apocalypse (2018) [Multi] (1.3.2.2) License GOG
 magnet:?xt=urn:btih:F65C49B37F63D8E0D7321EA91D3458419563535F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Pressure Overdrive (2017) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:90DF970276BCC5CA335B692176E5924A3EF30212
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Delta Squad — это игра в жанре экшен, разрабатыва
 magnet:?xt=urn:btih:0B790FA6DD4E195972F0125E255F9669C3CD3298
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Guns n Zombies (2014) [Ru/Multi] (2.0/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:945977A202C59796D322DF0929B0B8A2714504D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Guns n Zombies (2014) [Ru/Multi] (2.0/dlc) License HI2U
 magnet:?xt=urn:btih:883212366BE0F622D55D17511A565B5E6E22362C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Worms Armageddon / Worms: Армагеддон (1999) [Ru/Multi] (3.8.1) Repack 
 ```bash
 magnet:?xt=urn:btih:143D158352DBE33AD592AD589F9C5B40051DC3CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Rayman Origins [Ru/En] (RePack/1.02) 2012 l R.G. Механики
 magnet:?xt=urn:btih:F8995DB0D16045221C9E8893C847A2B19CB50B7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Inside - это новая приключенческая хоррор игра 
 ```bash
 magnet:?xt=urn:btih:86994DAC3FC0B59F5EEE61D1958B64DC9725C1D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Mark of the Ninja (2013) [Ru/Multi] (2.1.0.6 GOG) License GOG [Special Edition]
 magnet:?xt=urn:btih:148C88A1BE8896E09EB28BB5CA476B1F0DE7DD2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Grow Up - продолжение душевной инди игры Grow Home о
 ```bash
 magnet:?xt=urn:btih:425CAFAEC50D957D822B8C81E5B3B8450C9685DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Virus Z - это 3D зомби шутер с видом от третьего л
 magnet:?xt=urn:btih:2CA800C5813D5B8536D4A78FA70B1900F8034FD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:2CA800C5813D5B8536D4A78FA70B1900F8034FD2
 magnet:?xt=urn:btih:CE433E5A5286EECEEAFA4ECFD8C0019B3779DF99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Death's Gambit - это хардкорный 2D-платформер с элем
 ```bash
 magnet:?xt=urn:btih:E75F82475CAFF84D1AFA9C81B20F4C5F5D2DE75B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Legend of Kay Anniversary – переиздание экшена Legend of Kay,
 magnet:?xt=urn:btih:318EFEA05F773FC53EDD9E5BFDD1E72C2925888F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ LEGO: Marvel's Avengers (2016) [Ru/En] (1.1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:2393BB6E8B5C27573F18D02A9F60B8AC8C065214
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ Fight’N Rage - это старомодный аркадный файтинг. 
 magnet:?xt=urn:btih:3897423A6CC2FB872B219CD1F4E0A2B54B22F717
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ Goat Simulator - это безумный симулятор об эксцент�
 ```bash
 magnet:?xt=urn:btih:A06D7CC5B735D3772266C9E67A07DC2E1340CAAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ Ascendant – это бескомпромиссная игра в жанре «�
 magnet:?xt=urn:btih:B7D60F39EB8EE8153805E978ABD93789C0EEA1C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ Kung Fu Strike: The Warrior's Rise [En/Multi4] (Repack) 2012 | R.G. Origami
 ```bash
 magnet:?xt=urn:btih:CE3DE35AF9FAA459706E97D645DF0EA66A28E06B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ Mind Dead — это аркадный шутер-хоррор. Вы играет
 magnet:?xt=urn:btih:F21CF361BFEAC85D5CDC849AFCE7FC38E86BA3A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ Foreign Legion: Buckets of Blood - полная русская версия - с
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ Marvel Ultimate Alliance 2 - это сиквел Marvel Ultimate Alliance. В н
 magnet:?xt=urn:btih:6E83DA498271B0FE1F036698C33A0D8FD3D202A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ Grow Up - приключенческая аркада с видом от тре�
 magnet:?xt=urn:btih:6BA765FC91232A67D3E38C7321A3446B9BE8569A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Ice Age 4: Continental Drift - Arctic Games [Ru] (RePack/1.0) 2012 l R.G. Elemen
 ```bash
 magnet:?xt=urn:btih:52E18FC8D120D797CA59D07BBCAF47F2805A5F40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

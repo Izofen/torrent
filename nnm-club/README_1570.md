@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:7F1847C25B8E3C977469EB9107D176F1ACE75717
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Dark Sky (2024) [Ru/Multi] (1.0.1/dlc) Repack FitGirl [Supporter Edition]
 ```bash
 magnet:?xt=urn:btih:A0A2B5BB912F0D5542EA567E3038DE87BFE63B0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:A0A2B5BB912F0D5542EA567E3038DE87BFE63B0E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:A0A2B5BB912F0D5542EA567E3038DE87BFE63B0E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:A0A2B5BB912F0D5542EA567E3038DE87BFE63B0E
 magnet:?xt=urn:btih:12CF9CD291875C0C2B7D06B3F76150D007A6B715
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:12CF9CD291875C0C2B7D06B3F76150D007A6B715
 magnet:?xt=urn:btih:FEB03EAADD66AAC3A873247C6DF8FD502166F197
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.236.114/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:D7CC44969B745F3A32CB880C67D9FD433452A08C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ The Complete Unity C# Bootcamp (Часть 2 из 2) - единственный 
 magnet:?xt=urn:btih:0C5C41E958C6E51C231993D1C9D908B4E164101D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Gungrave G.O.R.E (2022) [Ru/Multi] (Build 15224246/dlc) Scene Rune
 magnet:?xt=urn:btih:7665346EA6148AFDB224728564840E2C78610BA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:7665346EA6148AFDB224728564840E2C78610BA0
 ```bash
 magnet:?xt=urn:btih:653772BA657707572FB8DBCABA7FC36086907301
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Microsoft Office 2024 включает в себя обновленные вер
 magnet:?xt=urn:btih:DC0FD4BE756907E43B18BFF449838131D1173652
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:DC0FD4BE756907E43B18BFF449838131D1173652
 ```bash
 magnet:?xt=urn:btih:5A8289307E96805D907FB3964BE7FBEA408FF1CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ GoodbyeDPI 0.2.3rc3 Launcher 8.9 [Ru/En]
 magnet:?xt=urn:btih:E313125759DA18D85FC2129532F524FEA5BE134B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:E313125759DA18D85FC2129532F524FEA5BE134B
 magnet:?xt=urn:btih:7525E18CD7F002F88532E08D6DFB213E9B14C8C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:7525E18CD7F002F88532E08D6DFB213E9B14C8C5
 ```bash
 magnet:?xt=urn:btih:7C01B607097918E85B88AD09DABAA845B2014E5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ Windows 11 4in1 Version 24H2 (x64) Elgujakviso Edition (v.05.10.24) [Ru]
 magnet:?xt=urn:btih:17FE4EE524FE64B5E9A1ECB8A2AE2746D5279599
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:17FE4EE524FE64B5E9A1ECB8A2AE2746D5279599
 ```bash
 magnet:?xt=urn:btih:8827EDD491FF17F501786A8057A64A107DF0B0DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:8827EDD491FF17F501786A8057A64A107DF0B0DB
 magnet:?xt=urn:btih:76AA36E5CC6A4EE4956383E41B85E2D29EE33F3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:76AA36E5CC6A4EE4956383E41B85E2D29EE33F3A
 ```bash
 magnet:?xt=urn:btih:0A9D42A3288F4A122BFC1103AB140D4D1209591A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:0A9D42A3288F4A122BFC1103AB140D4D1209591A
 magnet:?xt=urn:btih:CAB5FD3E1E781877BCCB0A6FE5580C4BA06CF928
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ Wondershare Filmora - удобный видеоредактор, содержа�
 magnet:?xt=urn:btih:F2E9D39C50D7345C984E2D8D164D4DD37A12B141
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ BioShock Remastered Dilogy (2016) [Ru/Multi] (1.0/1.0.122864) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:313157938F19B5A6D90906C35BC7998269FC7B04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ Udemy, GameDev.tv Team, Gary Pettie, Ben Tristem | Математика для �
 ```bash
 magnet:?xt=urn:btih:CEDAC75223E2F6AD1A1727CCA290D98AE4CC3CF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +634,8 @@ Judas Priest — британская хэви-метал-группа, кото
 magnet:?xt=urn:btih:7F55956A2292477FEDF48CE1C6B37BF4ACB58AF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ magnet:?xt=urn:btih:7F55956A2292477FEDF48CE1C6B37BF4ACB58AF7
 magnet:?xt=urn:btih:7E48ADB6C913EB5721A3065603380F966063A4F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ magnet:?xt=urn:btih:7E48ADB6C913EB5721A3065603380F966063A4F0
 ```bash
 magnet:?xt=urn:btih:ECDC795C02BBB07F6EAAE1951BB6E380B0437320
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

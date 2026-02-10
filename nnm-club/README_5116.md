@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:A0399FD15A4379781B724DBE608E9E73EA16934A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Farhad Mahdavi - Tehran Echoes (Extended Mixes) (2015) [MP3|320 кб/с] <Trance
 magnet:?xt=urn:btih:EAE199C49CC3714AC829B3D3E280561FFEF66AC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:EAE199C49CC3714AC829B3D3E280561FFEF66AC3
 magnet:?xt=urn:btih:8906C06109FAFF7C9D97BEE89C6F516709B14C1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Secret of the Pendulum (2015) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:F9EEC6B8BC6B8D6C2827BBC4D9D4D4CB2F5437EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ George Thorogood & The Destroyers / Live at Montreux (2013) BDRip
 magnet:?xt=urn:btih:229FA4B5FE9AD02B2C23DEB7C8E2EEE68DB30D39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ XII век. Сирота Мартин воспитывался в приюте �
 magnet:?xt=urn:btih:45B038F88C4A7BEAFE2DC069241AF6E8F763A149
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:45B038F88C4A7BEAFE2DC069241AF6E8F763A149
 ```bash
 magnet:?xt=urn:btih:F240DB5BE26EC3E43DDF729A2839AEC76C2AD0D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:F240DB5BE26EC3E43DDF729A2839AEC76C2AD0D9
 ```bash
 magnet:?xt=urn:btih:7B66E7404E6856078042D519A1D487C51C130E32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ VA - Charming Bourgeois Vol 5 (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lou
 magnet:?xt=urn:btih:D53CCA1E58B97E288F1E3B82CD8980C6338FC466
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:D53CCA1E58B97E288F1E3B82CD8980C6338FC466
 magnet:?xt=urn:btih:87F15E0E9FCF8A0017E69B9B178522D576750CD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:87F15E0E9FCF8A0017E69B9B178522D576750CD9
 ```bash
 magnet:?xt=urn:btih:DD4B828BE066F7F6483703CECD9D2FAA29E8915B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ VA - Стая белых голубей. Академия хитов шансо�
 magnet:?xt=urn:btih:2F5409201D5FDD07626D352F377F04D7022D2BAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:2F5409201D5FDD07626D352F377F04D7022D2BAA
 ```bash
 magnet:?xt=urn:btih:9C8EFD1415716A7013176F4492CC98CA9C4D074F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ VA - Levitation: Easy Listening And Chillout Party (2015) [MP3|320 кб/с] <Eas
 magnet:?xt=urn:btih:29F89B99F0A7B36D014ED2FAA3A4085E04267D26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:29F89B99F0A7B36D014ED2FAA3A4085E04267D26
 ```bash
 magnet:?xt=urn:btih:18A8302DFF0A50903E30F5810CD9B94D4C5BD613
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +429,8 @@ Ominous Objects 3: Trail of Time (2015) [En] Unofficial [Collector's Edition / �
 magnet:?xt=urn:btih:CC70E21E24D4ECEA701874AEC75382F12A695449
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:CC70E21E24D4ECEA701874AEC75382F12A695449
 ```bash
 magnet:?xt=urn:btih:2ECE4C2ED750C0A5B12337A8F01356E09945AEC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +482,8 @@ magnet:?xt=urn:btih:2ECE4C2ED750C0A5B12337A8F01356E09945AEC5
 magnet:?xt=urn:btih:3CAD5F4BD6C604A6AFF12D0F3085103E49A97409
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:3CAD5F4BD6C604A6AFF12D0F3085103E49A97409
 ```bash
 magnet:?xt=urn:btih:3C28DFA178FB061E148B568359A6FBFA823FAF5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ magnet:?xt=urn:btih:3C28DFA178FB061E148B568359A6FBFA823FAF5E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ magnet:?xt=urn:btih:3C28DFA178FB061E148B568359A6FBFA823FAF5E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ Comedy Woman  (2015.12.11) WEB-DL [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:8DBE1652D3E35D64DFC4EC28F7EBCC287858098F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +615,8 @@ VA - Sounds Of Happiness (2015) [MP3|320 кб/с] <Dance, Pop, Club House>
 magnet:?xt=urn:btih:9812FB3456B784893A1CAB9DB3299F9F207E85B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +640,8 @@ Slimjet 6.0.9.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E0659A3AD4314005E8FFD9C72717D69F2304257A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +670,8 @@ VA - Chill Out (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:DD310095D21FD336C22753AAB20BB72D3C10F1AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ magnet:?xt=urn:btih:DD310095D21FD336C22753AAB20BB72D3C10F1AC
 ```bash
 magnet:?xt=urn:btih:A03C358CB1D1B83676D4E50AA141C73BB3C890BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

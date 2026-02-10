@@ -1,3 +1,30 @@
+###  Публикация: 1847864   (1052472) от 15.01.2026
+
+Олег Савощик | Этажи. Небо Гигахруща (2025) [MP3, Михаил Стинский]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этажи, коридоры, лестницы и лифты – на многие километры вокруг. Размеры Гигахруща неизвестны. Что найдёт отчаянная экспедиция за границей обитаемых килоблоков? Наружность? Разумных отродий Самосбора? Секретные лаборатории отступников? А может, всё сразу?
+Ведь никто раньше не отправлялся в эти коридоры. Никто раньше не пытался устроить бунт в ликвидационном Корпусе. (   Читать дальше...   )Жанр: Фантастика, постап, триллер, ужасыИздательство: Крафтовая литератураПродолжительность: 12:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E64FEC0B32CD9F2DA3C1B89666F2058DA4D9DFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847868   (1052476) от 15.01.2026
 
 Олег Сапфир, Марк Альтергот | Химеролог. Идеальный мир для Химеролога (Книга 1) (2025) [MP3, Андрей Морозов]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:8D2DEB02632231A5BB5B7B24A5D04C16F60D83E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:8D2DEB02632231A5BB5B7B24A5D04C16F60D83E2
 magnet:?xt=urn:btih:D3AA21D523EA28957E837E168BCB2386999EF43D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +97,8 @@ magnet:?xt=urn:btih:D3AA21D523EA28957E837E168BCB2386999EF43D
 ```bash
 magnet:?xt=urn:btih:DB1BD9128339C047B4A816970AF2AA672BEC8379
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +124,8 @@ magnet:?xt=urn:btih:DB1BD9128339C047B4A816970AF2AA672BEC8379
 magnet:?xt=urn:btih:F7260701200825F954B4FC17773D0D374013F0B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +149,8 @@ magnet:?xt=urn:btih:F7260701200825F954B4FC17773D0D374013F0B0
 ```bash
 magnet:?xt=urn:btih:9EB60CDB8F115102C5AD39B7CC847FB8BEA1B2C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +176,8 @@ magnet:?xt=urn:btih:9EB60CDB8F115102C5AD39B7CC847FB8BEA1B2C1
 ```bash
 magnet:?xt=urn:btih:64A1A95036DFB04E380DD504969D076B73E3A29A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +205,8 @@ magnet:?xt=urn:btih:64A1A95036DFB04E380DD504969D076B73E3A29A
 magnet:?xt=urn:btih:A16CADBB893DB2423973B04E689D21D79B2B8A85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +230,8 @@ magnet:?xt=urn:btih:A16CADBB893DB2423973B04E689D21D79B2B8A85
 ```bash
 magnet:?xt=urn:btih:5C4E9F1C7603103DDBCFED8F78020DF193E1D8D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +257,8 @@ magnet:?xt=urn:btih:5C4E9F1C7603103DDBCFED8F78020DF193E1D8D8
 magnet:?xt=urn:btih:9FCCA1AA977849C351277BCD8B6A9EBB38BE8879
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ magnet:?xt=urn:btih:9FCCA1AA977849C351277BCD8B6A9EBB38BE8879
 ```bash
 magnet:?xt=urn:btih:4EFBB17E1C9677A07FE0B0F366F5A803506CEF73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +310,8 @@ magnet:?xt=urn:btih:4EFBB17E1C9677A07FE0B0F366F5A803506CEF73
 magnet:?xt=urn:btih:2B9ECE83DD2CF83BF582F0B3540BB1D3085775FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +335,8 @@ magnet:?xt=urn:btih:2B9ECE83DD2CF83BF582F0B3540BB1D3085775FB
 ```bash
 magnet:?xt=urn:btih:97F52896DBB87CBE1BB8A176B9CEB9E48AB291DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +363,8 @@ magnet:?xt=urn:btih:97F52896DBB87CBE1BB8A176B9CEB9E48AB291DD
 magnet:?xt=urn:btih:85D33B1298F44BC598F86EF34BDF8515EBC5FC95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +389,8 @@ magnet:?xt=urn:btih:85D33B1298F44BC598F86EF34BDF8515EBC5FC95
 magnet:?xt=urn:btih:D06AF741A4F0DD044E383E3DADF5EA469BF4E435
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +414,8 @@ magnet:?xt=urn:btih:D06AF741A4F0DD044E383E3DADF5EA469BF4E435
 ```bash
 magnet:?xt=urn:btih:71811B47540CEF3C0829B418EC1ABED1BEF5AB8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +443,8 @@ magnet:?xt=urn:btih:71811B47540CEF3C0829B418EC1ABED1BEF5AB8F
 magnet:?xt=urn:btih:6CACA474EF5A94A39E7FF8C45B022B87929240A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +470,8 @@ magnet:?xt=urn:btih:6CACA474EF5A94A39E7FF8C45B022B87929240A5
 ```bash
 magnet:?xt=urn:btih:604C36DD5775D6EF34254A9894871E5C57B82EA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +500,8 @@ magnet:?xt=urn:btih:604C36DD5775D6EF34254A9894871E5C57B82EA5
 magnet:?xt=urn:btih:718110A541C6A69976E55F6C65A2CCB61CC49681
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +525,8 @@ magnet:?xt=urn:btih:718110A541C6A69976E55F6C65A2CCB61CC49681
 ```bash
 magnet:?xt=urn:btih:94A9F2BAF2EC84D5F0050670C3C45102B9517A46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +552,8 @@ magnet:?xt=urn:btih:94A9F2BAF2EC84D5F0050670C3C45102B9517A46
 magnet:?xt=urn:btih:48A7FF2499784A88BA7CB75E6209E650284FEC6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +577,8 @@ magnet:?xt=urn:btih:48A7FF2499784A88BA7CB75E6209E650284FEC6D
 ```bash
 magnet:?xt=urn:btih:ADA012557D979BAAF6939A8CE16C5CCDECDAA795
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +605,8 @@ magnet:?xt=urn:btih:ADA012557D979BAAF6939A8CE16C5CCDECDAA795
 ```bash
 magnet:?xt=urn:btih:9FFC5CC60DD9E251ECA1F3BE920E72BA2FB9CF0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +635,8 @@ magnet:?xt=urn:btih:9FFC5CC60DD9E251ECA1F3BE920E72BA2FB9CF0E
 magnet:?xt=urn:btih:3648DE5D540BFB561D22C16BA4F51BFA1AB1E289
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +663,8 @@ magnet:?xt=urn:btih:3648DE5D540BFB561D22C16BA4F51BFA1AB1E289
 magnet:?xt=urn:btih:347B7C5945FD4ED9B8AD9C3B2B63CB25192FB98F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,29 +689,7 @@ magnet:?xt=urn:btih:347B7C5945FD4ED9B8AD9C3B2B63CB25192FB98F
 magnet:?xt=urn:btih:FEF055882498746A9A144D6ECA4690CEE91183F0
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848646   (1053080) от 18.01.2026
-
-Дмитрий Лим | Система: Империя нового мира (2026) [MP3, Иван Караваев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир устал от людей и пролившись красным дождем уничтожил треть населения. У выживших остался лишь один выбор - сдохнуть или бороться за жизнь убивая. Андрею повезло - на его стороне Система и страстная демонесса. Он получил статус Одаренный, а они - вершина эволюции и новые хозяева мира. Но не все хотят жить спокойно. И как теперь выжить в мире полном крови, предательства (   Читать дальше...   )Жанр: Боевая фантастикаИздательство: ЛитРес: чтецПродолжительность: 07:46:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33161BE9BA1058E2EFE914CC0D77DE11AFE72035
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

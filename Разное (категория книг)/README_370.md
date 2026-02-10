@@ -1,3 +1,31 @@
+###  Публикация: 1307971   (554383) от 12.06.2019
+
+Харриет Лернер | Я все исправлю. Тонкое искусство примирения (2019) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всем нам приходится приносить и принимать извинения, но далеко не каждый владеет тонким искусством просить прощения. Эта книга написана для двух типов читателей: тех, кто хочет загладить вину, и тех, кто оказался в рядах обиженных. Вы узнаете много интересной и полезной информации от известного психолога и психотерапевта.
+
+К примеру, как просить прощения, чтобы обиженный (   Читать дальше...   )Жанр: Популярная психологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BA616785EA25BCF93271815C1A43C511C7532EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1307888   (554469) от 12.06.2019
 
 Николай Лузан | Скрипаль. Березовский. Пешки в большой игре (2019) [FB2]
@@ -19,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:7E73D6AB7348D70B10AF4DE8F9EE96023DAEBBBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +76,8 @@ magnet:?xt=urn:btih:7E73D6AB7348D70B10AF4DE8F9EE96023DAEBBBF
 magnet:?xt=urn:btih:3BB869E00D58BC9A04C7B4C333441FD731C23153
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +104,8 @@ magnet:?xt=urn:btih:3BB869E00D58BC9A04C7B4C333441FD731C23153
 magnet:?xt=urn:btih:FFE43DD0869F06B77F8CFAE282F486C25FF31C1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +129,8 @@ magnet:?xt=urn:btih:FFE43DD0869F06B77F8CFAE282F486C25FF31C1F
 ```bash
 magnet:?xt=urn:btih:B9EA4D2173BED449E211E55F71104A138B657A40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +156,8 @@ magnet:?xt=urn:btih:B9EA4D2173BED449E211E55F71104A138B657A40
 magnet:?xt=urn:btih:9CA4E76FA9E9B552C96BE9E436F43BDBE74D2D62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +181,8 @@ magnet:?xt=urn:btih:9CA4E76FA9E9B552C96BE9E436F43BDBE74D2D62
 ```bash
 magnet:?xt=urn:btih:479E09E385B091423E042F1CFCE63A60A7EEC313
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +208,8 @@ magnet:?xt=urn:btih:479E09E385B091423E042F1CFCE63A60A7EEC313
 magnet:?xt=urn:btih:4F9AF115D5D372DB5A4272A325E09BA1352192C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +234,8 @@ magnet:?xt=urn:btih:4F9AF115D5D372DB5A4272A325E09BA1352192C1
 magnet:?xt=urn:btih:D879FACE28D6E8DDC441953A0372A8F9E5616E63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +259,8 @@ magnet:?xt=urn:btih:D879FACE28D6E8DDC441953A0372A8F9E5616E63
 ```bash
 magnet:?xt=urn:btih:00210264E4F7B3FFC04F8D41BC4EC3151462A4EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +288,8 @@ magnet:?xt=urn:btih:00210264E4F7B3FFC04F8D41BC4EC3151462A4EB
 magnet:?xt=urn:btih:A606800235133432FAE4DC1D492275F17A2BD368
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +313,8 @@ magnet:?xt=urn:btih:A606800235133432FAE4DC1D492275F17A2BD368
 ```bash
 magnet:?xt=urn:btih:EF5EE5B62ADFC76DB9F4B598B56FC28B4072F67F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +340,8 @@ magnet:?xt=urn:btih:EF5EE5B62ADFC76DB9F4B598B56FC28B4072F67F
 magnet:?xt=urn:btih:FE03AEF22600337796D510C12679C4A0909C19D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +366,8 @@ magnet:?xt=urn:btih:FE03AEF22600337796D510C12679C4A0909C19D3
 magnet:?xt=urn:btih:2EF83B5E439139933873D4459478402D9DB70F61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +391,8 @@ magnet:?xt=urn:btih:2EF83B5E439139933873D4459478402D9DB70F61
 ```bash
 magnet:?xt=urn:btih:69AF36F2024E04D0424E7E2B9C0BD8B010E652D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +420,8 @@ magnet:?xt=urn:btih:69AF36F2024E04D0424E7E2B9C0BD8B010E652D4
 magnet:?xt=urn:btih:79ABF88748FDBFD7DB3BB61BEFFB4EB6F7F021EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +448,8 @@ magnet:?xt=urn:btih:79ABF88748FDBFD7DB3BB61BEFFB4EB6F7F021EF
 magnet:?xt=urn:btih:993EBB9AB175370D728B778243A17BCD685F5E6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +475,8 @@ magnet:?xt=urn:btih:993EBB9AB175370D728B778243A17BCD685F5E6B
 magnet:?xt=urn:btih:322F4030B62AE395643D6CE02F019E6E725B30B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +500,8 @@ magnet:?xt=urn:btih:322F4030B62AE395643D6CE02F019E6E725B30B7
 ```bash
 magnet:?xt=urn:btih:D1DC2CD086FB1E3D29BC5656F5E50786554A68C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +528,8 @@ magnet:?xt=urn:btih:D1DC2CD086FB1E3D29BC5656F5E50786554A68C4
 magnet:?xt=urn:btih:DEA4965E14001139F2FF39B4A2A40B5E5E0AF1AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +553,8 @@ magnet:?xt=urn:btih:DEA4965E14001139F2FF39B4A2A40B5E5E0AF1AA
 ```bash
 magnet:?xt=urn:btih:D0457BCE89B771497F6E1EA226D423D4E16D5F05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +583,8 @@ magnet:?xt=urn:btih:D0457BCE89B771497F6E1EA226D423D4E16D5F05
 magnet:?xt=urn:btih:4647ACCC1A61FE990F6292165CC3A7BC39BBFBB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +612,8 @@ magnet:?xt=urn:btih:4647ACCC1A61FE990F6292165CC3A7BC39BBFBB6
 magnet:?xt=urn:btih:747BD1FF128D3DAF4E38E375FAB81C1C1CC37CA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +637,8 @@ magnet:?xt=urn:btih:747BD1FF128D3DAF4E38E375FAB81C1C1CC37CA1
 ```bash
 magnet:?xt=urn:btih:D5782767E9FCEFB46C49EBA3B53B0E6FB51F4CBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +664,8 @@ magnet:?xt=urn:btih:D5782767E9FCEFB46C49EBA3B53B0E6FB51F4CBE
 magnet:?xt=urn:btih:59F751DE7E0D322D689F577C7EABB382E79BBAC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,29 +690,7 @@ magnet:?xt=urn:btih:59F751DE7E0D322D689F577C7EABB382E79BBAC8
 magnet:?xt=urn:btih:EDD0ECC705DDA039F9E027C8DC1350ECB6F9FC05
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306745   (555415) от 06.06.2019
-
-Дэвид Брэйд | Классическая гитара. Справочник-самоучитель (2009) [PDF, MP3]
-
->>Разное (категория книг)
->>Ноты и обучение музыке
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это всеобъемлющее учебное пособие построено таким образом, чтобы им можно было пользоваться при самостоятельном обучении игре на гитаре, так и на занятиях с педагогом, причем независимо от вашего стиля игры или опыта, которым вы обладаете. В нем вы найдете все существующие техники для левой и правой руки - от базовых движений каждого пальца и арпеджио до приемов (   Читать дальше...   )Жанр: Обучение игре на музыкальных инструментахПеревод: А.В. КурчаковФормат: PDF, MP3Продолжительность: 00:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41E6E1147721E122AB19AF1174D76A0C1D9717BE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

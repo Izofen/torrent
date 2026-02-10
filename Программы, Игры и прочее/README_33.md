@@ -19,6 +19,8 @@ ARuler - лучшее и бесплатное приложение на Android 
 magnet:?xt=urn:btih:50A474025667EF4568441B19EC68667CBEE93B55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:50A474025667EF4568441B19EC68667CBEE93B55
 ```bash
 magnet:?xt=urn:btih:FDB0151E8133EB05F2CE827C86CB3F157DE31328
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ AR Plan 3D – инновационное приложение, использу
 magnet:?xt=urn:btih:B7739D32F6AE2175DFFB73BD342B31615E43ACF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Plus Messenger - неофициальное приложение для обме
 magnet:?xt=urn:btih:1DBC5453C428E2D23B2598CCFB01F93B7FA0360E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ PictureThis - Plant Identification v4.1 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:EB3277BDE53D96335590D49815F82BCBC387C8AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:3C693DEF511BB2FF24B605BB4006A0AC21FF9A89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:3C693DEF511BB2FF24B605BB4006A0AC21FF9A89
 ```bash
 magnet:?xt=urn:btih:BD563FE9459951F81BF57776271BD26013281774
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Psiphon Pro дает вам беспрецедентный доступ к ва�
 magnet:?xt=urn:btih:A4FF305BB09C11550FF70B27EE15B22E6A85D647
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Battery One - приложение направленное на то, чтоб�
 magnet:?xt=urn:btih:2820CC20609E8E987D042B62956B044AFBEAB344
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Battery One - приложение направленное на то, чтоб�
 ```bash
 magnet:?xt=urn:btih:4D12A31900750B3D9E8C3493EFEF189D7D132FD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Video Compressor v1.2.62 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:33E8E216408C01047778954B56F0124327209BC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ ReLens - отличная находка для любого поклонник�
 ```bash
 magnet:?xt=urn:btih:DF956FA7A36C213BC94AE003BCBB8A3A6D2E3009
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ OfficeSuite Pro + PDF - это полнофункциональный офисн
 magnet:?xt=urn:btih:52B38B6AA21D7A73E1BC90E099A39BA1858091F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:52B38B6AA21D7A73E1BC90E099A39BA1858091F2
 ```bash
 magnet:?xt=urn:btih:B0E78D284260F9686C76E9C0E46CAAC2FF792703
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ YouCut - один из самых удобных и оптимальных по 
 magnet:?xt=urn:btih:FE2BBBF855BEF15283AAD7FAD0F9647C9B22B047
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Grab Photos From Videos / Фото из видео v11.2.0 Mod by Mixroot [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:7A26652038BC5FF74D0BFE2C61C961E197A43296
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Purvpn 9.8 [En/Farsi]
 magnet:?xt=urn:btih:0E8D6EE0347454A02AF7BEA696A722F798A4CF64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ SnapEdit — одно из лучших приложений для редакт
 ```bash
 magnet:?xt=urn:btih:1A2A21FD62D2894289583DC3F9A1C880E15FE263
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ VivaVideo - это простой в использовании видеоред
 magnet:?xt=urn:btih:AD209DC630BC1F5CA2FA3A5CE16448F614CEFD39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Folder Player Pro - это ориентированный на каталоги 
 ```bash
 magnet:?xt=urn:btih:524D357FDB1F0EA7C01B28DE898E9FBBC892AD6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ MotionPortrait ™ можно преобразить любую фотограф
 magnet:?xt=urn:btih:97C2CEA526AAE145167B62FCFFD11C9F713D8990
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ ZEDGE - приложение в котором вы сможете найти н
 ```bash
 magnet:?xt=urn:btih:B16742568F4ADF6C76318629A3FBF3DE705FC138
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:B16742568F4ADF6C76318629A3FBF3DE705FC138
 magnet:?xt=urn:btih:04B64A1BE125B5C7DF21E0FAB1A10701BE86BA9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ FiiNote / Быстрые заметки v12.9.0.23 Mod by Alex.Strannik [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:0027C6A6663C67F9BD80A92310FFB60D7F5B1FC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ SuperImage - это приложение-апскейлер которому н�
 magnet:?xt=urn:btih:C3AF78F92F830AFB5530B495D2A889E97BB89A10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Today Weather - это погодное приложение, что предо�
 ```bash
 magnet:?xt=urn:btih:DABE64DB4494C0120FD739F03FFA851FF7177D59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

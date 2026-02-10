@@ -28,6 +28,8 @@ VA - Cool Chillout: Smooth Lounge Music Served for a Chilled Winter Season (2012
 magnet:?xt=urn:btih:0872D0F740241CB8D727F9380EE33ECC7938D8C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ VA - Новогодние подарки. Лучшие песни (2016) [MP3|32
 ```bash
 magnet:?xt=urn:btih:D6C49260C625E652E17309D58C40599E7C6BF088
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ VA - Romantic Soul RnB (2016) [MP3|320 Kbps] <RnB, Lyric>
 magnet:?xt=urn:btih:E18048C09F1A3C5C1954CC7F6D38AD1C8062FF68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ VA - Русское Радио. Лучшее '2021 (25.12.2021) (2021) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:564A8D84F02CF75EAD2C30B8ADB47A5A1DA5B961
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +144,8 @@ VA - Новогодняя сотка 2019 (2018) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:4828DD9F27BD8CF4AB8D3A182AAF052260F30FBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +172,8 @@ VA - Christmas Blues Rock (2021) [MP3|320 Kbps] <Blues, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:BFB822F11DAE55D1D1DAB00D70B0BAD0BC15126B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +202,8 @@ VA - Новогодний танцпол NRJ (2015) [MP3|192-320 кб/с] <Club,
 magnet:?xt=urn:btih:522170601222504935F58DB9502F606BB31EE0FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +230,8 @@ Dance:
 ```bash
 magnet:?xt=urn:btih:134F0CC423E1D028CEE5B27D5F763E7C7877CEB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +260,8 @@ VA - Рок впрок 4 (2015) [MP3|320 кб/с] <Рок, Поп-Рок>
 magnet:?xt=urn:btih:2B881978F63BABC1B15E6431AD5D4C5686DC2D6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +288,8 @@ VA - MuviSpace. Christmas Edition (2016) [MP3|320 Kbps] <Spacesynth>
 ```bash
 magnet:?xt=urn:btih:59AA02A0AA653E4167AE53A4953657934CAE2EA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +318,8 @@ VA - Neon Plasma EDM Party (2016) [MP3|320 Kbps] <Electro, Progressive House>
 magnet:?xt=urn:btih:E51060758DD3D5970C47B63617D98D5977567298
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +346,8 @@ VA - HarDD NRG OverDoZZe 3 (2021) Mixed by aQuaLuna [MP3|320 Kbps] <Trance, Hard
 ```bash
 magnet:?xt=urn:btih:6E7827785C2065EF634E1C8D5384E5D0E14AAFC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +376,8 @@ VA - Громкие новинки месяца Vol.19 (2018) [MP3|320 Kbps] <Po
 magnet:?xt=urn:btih:C793D0D3519955C9DB7B53A6BA24F6FA8CEE9946
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +404,8 @@ VA - Музыка для машины Vol.40 (2023) [MP3|320 Kbps] <Pop, Dance, 
 ```bash
 magnet:?xt=urn:btih:9EEC02D56750AFF3977C18437266979A36D72D56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +434,8 @@ VA - Музыка для машины Vol.39 (2023) [MP3|320 Kbps] <Pop, Dance, 
 magnet:?xt=urn:btih:6F2BF009EAB7AAEECDBF0CE986CB87790835AF56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +462,8 @@ VA - не Громкие новинки недели 49 (2019) [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:4C9CAEB002EA75A88DBE31D63FC57B4035316C5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +492,8 @@ VA - Hit Music от Мяу (декабрь 2015) (2015) [MP3|112 - 320 кб/с] 
 magnet:?xt=urn:btih:929FA1E9364D8A51BAB47E6F76AD0658D8AE02A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +520,8 @@ VA - 100 New Year Dance Party 2016 (2015) [MP3|320 кб/с] <Dance, Club, House,
 ```bash
 magnet:?xt=urn:btih:0601E06338E189CF7211E05840659BFA0FF3751C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +550,8 @@ VA - Top 100 Самых Красивых Песен 2016 (2016) [MP3|320 Kbps] <
 magnet:?xt=urn:btih:1E94C0E886D6D8067EE413D534963E69DDB2C883
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +578,8 @@ VA - The Piano Lounge - Piano Bar Music for Romantic Dinner for Two (2015) [MP3|
 ```bash
 magnet:?xt=urn:btih:D6DE8061455E3A58A79FB6CCAC68565FD2881D1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +608,8 @@ VA - German Top 50 Party Schlager Charts 24.12.2018 (2018) [MP3|320 Kbps] <Pop, 
 magnet:?xt=urn:btih:2D58A87A8CDC1DC174D7E3C968D2C7D32FF7C3AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +636,8 @@ VA - Goa (2015) [MP3|320 кб/с] <Progressive, Trance>
 ```bash
 magnet:?xt=urn:btih:0CEBA971AB7E34DE82317882B6CB2FCE4126D384
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +666,8 @@ magnet:?xt=urn:btih:0CEBA971AB7E34DE82317882B6CB2FCE4126D384
 magnet:?xt=urn:btih:99624F070A065F3CE0D44603A351AD17A166920E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +694,8 @@ VA - Zaycev net. Декабрьский Тор 100 (2016) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:F67DC6BC303CD9D23E79C84447B535BA2A623609
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -676,6 +724,8 @@ Part 1 (Discoteka):
 magnet:?xt=urn:btih:F976231D1459E07FB7A483BF106F68A3D1A6813F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -702,6 +752,8 @@ VA - Дискотека "Белые розы" В Обработке DJ (2010) [M
 ```bash
 magnet:?xt=urn:btih:A941BBA433052838526544AFB0519DC5D18D72C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

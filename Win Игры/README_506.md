@@ -1,27 +1,3 @@
-###  Публикация: 1001031   (855128) от 27.03.2016
-
-The Count Lucanor (2016) [En/Multi] (1.0.16) Repack ARMENIAC
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855128.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Count Lucanor - приключенческий RPG-рогалик с элементами хоррора, где вместе с мальчиком по имени Ганс, вам предстоит отправиться в удивительный волшебный мир и пережить уникальное приключение, наполненное сюрпризами и испытаниями! Погрузитесь в захватывающую историю, которая будет меняться от каждого вашего решения и постарайтесь собраться воедино все кусочки (   Читать дальше...   )Тип издания: RepackРазработчик: Baroque DecayЖанр: Horror Adventure, RPG, PuzzleЯзык субтитров: Английский, Французский, ИспанскийЯзык интерфейса: Английский, Французский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52C5417997C5F7685253DF13F7887E6126F3B5F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000978   (855233) от 27.03.2016
 
 Broken Age (2014) [Ru/Multi] (2.4.800398) Repack R.G. Механики [The Complete Adventure]
@@ -42,6 +18,8 @@ Broken Age (2014) [Ru/Multi] (2.4.800398) Repack R.G. Механики [The Comp
 ```bash
 magnet:?xt=urn:btih:451BEA22EF066B0152DC9BD83C6BDA8B3A309D78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Forgotten Tales: Day of the Dead / Забытые истории. День ме�
 magnet:?xt=urn:btih:C373452B3C8817C6FE521B5EB7EC5340E73D7F58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Death's Door (2021) [Ru/Multi] (1.1.5) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:4456A4CDD4B9053748C673817E5F99EC17F75B48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Actraiser Renaissance (2021) [Multi] (7413691) License CODEX
 magnet:?xt=urn:btih:F4D7DB4803569049EE229D5B54CA06DDD1331F68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ The Evil Within (2014) [Ru/Multi] (1.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:A1E797DFE96143D68B7E09EE04102CFF1CD431FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Nevertale 9: Hearthbridge Cabinet / Несказки 9: Шкаф семейст�
 magnet:?xt=urn:btih:C0D8BAABAF7FDA277D5D91453EB3EB70AB452CF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Family Mysteries 2: Echoes of Tomorrow (2020) [En] (1.0) Unofficial [Collector's
 ```bash
 magnet:?xt=urn:btih:F7344DEF1547A061872DFEC72F4F31DF2F1394D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Subterrain – хардкорный экшен с видом сверху про
 magnet:?xt=urn:btih:EF84FE9ADB02CD3623B6B0FDE71145623BAEE899
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ Train Fever (2015) [Ru/Multi] (Build 7753/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:870C4497F7A3DDC2A5DBD04EE741F6F6AEB36CC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +255,8 @@ DreadOut: Keepers of The Dark (2016) [En] (1.0.1) License CODEX
 magnet:?xt=urn:btih:046A2B131ED202059E1C7EDC0552CD9773D67F48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +280,8 @@ Myths of the World 7: The Whispering Marsh / Мифы народов мира 7.
 ```bash
 magnet:?xt=urn:btih:E0634F6AE992CBEB51E315EEF70C1222730F0106
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +307,8 @@ Final Cut 5: Fame Fatale / Последний дубль 5. Смертельна
 magnet:?xt=urn:btih:E518AB587614040BD23A6E6DFC3160FF7E7A4BFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +332,8 @@ Grand Tactician: The Civil War (1861-1865) - это стратегия в реа
 ```bash
 magnet:?xt=urn:btih:20052FA8CCE741F8EC86C025FCC1306D4667D298
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +359,8 @@ Accident (2021) [Ru/Multi] (1.63) License DOGE
 magnet:?xt=urn:btih:3ABEEA68C721995918B88E0B906FCFD371A8720D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +384,8 @@ Vampire Legends 3: The Count of New Orleans (2016) [En] (1.0) Unofficial [Collec
 ```bash
 magnet:?xt=urn:btih:9BF2724CA005DAF8BEC0EA6AB90EC2185400D6C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +411,8 @@ Spirits of Mystery 6: Family Lies (2016) [En] (1.0) Unofficial [Collector's Edit
 magnet:?xt=urn:btih:DB2108DCC074014406553C3B2A65C27645FA3CAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +436,8 @@ Addams Family: Mansion Mayhem / Семейка Аддамс: Переполох 
 ```bash
 magnet:?xt=urn:btih:B2C2C005CF83F20FD90131F6FE56DAE52C7130CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +463,8 @@ magnet:?xt=urn:btih:B2C2C005CF83F20FD90131F6FE56DAE52C7130CA
 magnet:?xt=urn:btih:14BB620FF52D39839CA41A433A8B7C41B3EA1C76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +488,8 @@ Tomb Raider: Underworld [Ru/En] (RePack / 1.1) 2008 | R.G. REVOLUTiON
 ```bash
 magnet:?xt=urn:btih:517FA3DAE89922127E5D928C9B472DFD1341D667
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +515,8 @@ The Bard's Tale IV: Director's Cut (2019) [Ru/Multi] (upd4/dlc) Repack xatab [De
 magnet:?xt=urn:btih:0D96D1DF2389A29A4A8123D928BE82699B2503C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +540,8 @@ Fort Triumph (2020) [Ru/Multi] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:8CF4C723C99067AF9C67CAE80339B111EDC88E19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +567,8 @@ The Evil Within 2 (2017) [Ru/Multi] (1.04) License GOG
 magnet:?xt=urn:btih:1FFD3A0F2C5A89F0ACE4C41FB1FBEBA3DE92D00C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +592,8 @@ Radio Commander (2019) [Ru/Multi] (1.122/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:8C0A91C76652A7D4F6CE4E097ABFC48D155F2961
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +619,8 @@ Judgment: Apocalypse Survival Simulation (2018) [Ru/Multi] (1.1.4215/dlc) Repack
 magnet:?xt=urn:btih:F4215BBEC374518CE64175DE6D0277E9FE45E1F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +644,34 @@ Forestry 2017 - The Simulation (2016) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:09731B2A78AEF110196E8797C0C741C2013EED88
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000453   (858852) от 25.03.2016
+
+Alternativa / Альтернатива: Нечего терять (2011) [Ru] (1.7.5.808) Repack R.G. Catalyst
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_858852.jpg" />
+</div>
+
+
+###  Подробнее
+
+2045 год. Мир изменился. И, как обычно, не в лучшую сторону. Транснациональные корпорации жестко контролируют все сферы жизни общества. Простой человек для них – не более чем пылинка на ветру. Он теряет родителей в детстве, он надрывается за копейки на стройке очередного офиса, и даже оттуда его увольняют. Он пытается протестовать — у него отбирают персональную карту (   Читать дальше...   )Тип издания: RepackРазработчик: Centauri ProductionЖанр: AdventureЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C00609196C5BC6950F41F0828D2B647882CDB00
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

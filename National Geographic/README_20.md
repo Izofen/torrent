@@ -19,6 +19,8 @@ NG: Дикая сторона кошек / Wild Side of Cats (2012) HDTVRip [H.2
 magnet:?xt=urn:btih:1B92441950B0A8CD2FF0EB72EBD01A5E092A0AAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:1B92441950B0A8CD2FF0EB72EBD01A5E092A0AAA
 ```bash
 magnet:?xt=urn:btih:3F089EEA8E3B8FA918340BC3FFE74175B21C660E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:3F089EEA8E3B8FA918340BC3FFE74175B21C660E
 magnet:?xt=urn:btih:67FB7A4DFF14FBA36742D98C632CBFB11C9487C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NG: Египет с величайшим исследователем в мир�
 ```bash
 magnet:?xt=urn:btih:E40558E9DC4BA75C73FDFB8928868E54BFA9AFC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ NGW: Змеи в городе / Snakes in the city (2015-2017) HDTV [H.264/1080i
 magnet:?xt=urn:btih:7399D3A465CA4CFD409DA8A2FC1547C2F7EE4AF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ NG: Экспедиция на Марс / Expedition Mars (2016) HDTV [H.264/1080
 ```bash
 magnet:?xt=urn:btih:393EA29E20538C180412CA8DB3844ABE666339D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ NGW: Короли ящериц / Lizard Kings (2009) HDTV [H.264/1080i-LQ]
 magnet:?xt=urn:btih:7B79D11B3FEB8AA80057A27F3E73F95B02C34706
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ NG. Взлёт чёрных фараонов / Rise of the Black Pharoahs (2014)
 ```bash
 magnet:?xt=urn:btih:86B15AC668C420FCF9EE544DFC241D82B1A77591
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:86B15AC668C420FCF9EE544DFC241D82B1A77591
 magnet:?xt=urn:btih:1EE7CFD36A12864C575CFD4AE24FCFB1DF982E9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ NGW: В поисках таинственного зверя / Search for the Se
 ```bash
 magnet:?xt=urn:btih:79AA2EC139EC81F3613AB219D73D06E241C37832
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:79AA2EC139EC81F3613AB219D73D06E241C37832
 magnet:?xt=urn:btih:F88BF0C57646083A74A0182798BDF89ACC84328E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ NGW: Гризли Аляски бросают вызов. Короли остр�
 ```bash
 magnet:?xt=urn:btih:328149B9109C522B28F70C327E8FDFB4BDA7A7C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ NGW: Дикие охотники. Рептилии / Wild Hunters. Reptiles (201
 magnet:?xt=urn:btih:9B9EFCEBEB41CFF4637882ECC8F64CC721588773
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ NGW: Малыши-экстремалы / Extreme babies animal (2016) HDTV [H.26
 ```bash
 magnet:?xt=urn:btih:2D0D8425ED39E531E358FFCAA8D143B137107BDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ NGW: Могущественные рептилии / Planet of the Reptiles (201
 magnet:?xt=urn:btih:8BBCAE697A4A80BA97A907A44C052BCEC81A635E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ NG: Прекрасная Америка: Величественный Север
 ```bash
 magnet:?xt=urn:btih:93C500DA5616672D94B2068CF307BFD33A543D6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ NGW: Гризли Аляски бросают вызов. Осада белым�
 magnet:?xt=urn:btih:8EE11D3DD0251287A3B4D3405F91EB2BBC3FD2CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ NGW: На прогулке с жирафами / Walking with Giraffes (2017) HD
 ```bash
 magnet:?xt=urn:btih:0F1DF0EA8A2C3359FAFA0122C8A75FFF90E559BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ National Geographic. В Святом Иерусалиме / Secrets of Jerusalem
 magnet:?xt=urn:btih:C7C83144BEA7C2E05AB377BB8867BA0390BA0003
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ NG. Мегазаводы: Тата Нано / Megafactories: Tata Nano (2023) HD
 ```bash
 magnet:?xt=urn:btih:7C0424CB5CDA930D4DEAB7B4285FE0244AF298D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ NGW: Секреты зоопарка. Ждем малыша! / Secrets of the Zo
 magnet:?xt=urn:btih:367BCC13795FFD9DF6CC0E1216AE802C3A486D9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ NG: Осушить океан: глубокое погружение. Затон
 ```bash
 magnet:?xt=urn:btih:F0B6E744A631E6E6DB866EFC7B9FC03E021EAFB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ NGW: Дикие охотники. Кошки / Wild Hunters. Cats (2019) HDTV [H
 magnet:?xt=urn:btih:F7A362B03ECF37E6BFDC6A1FDD2B499687EE2983
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ NG: Амазония: наизловещий ритуал / Search for the Amazo
 ```bash
 magnet:?xt=urn:btih:6CED684C5DA4657CA8F9BFACF6BA1E0B07039112
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ NGW: Удивительные селфи животных / Amazing Animal Selfi
 magnet:?xt=urn:btih:38E12C9D19EA7BF13C8537FCB4A6CCD606CBE757
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ NGW: Невероятная Африка. Разноцветный контин�
 ```bash
 magnet:?xt=urn:btih:113E1629B8A8FDAEF86DCA82EA3358D9A8C81A6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

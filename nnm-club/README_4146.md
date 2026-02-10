@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:CECFC67FE9109AA38FD207CC404B7A1E2AE8CE54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ The Black Crowes - The Southern Harmony And Musical Companion (1992) Super Delux
 magnet:?xt=urn:btih:5C2FFAF8DF80FD0634140DDA7423691C2EB0F1E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:5C2FFAF8DF80FD0634140DDA7423691C2EB0F1E9
 magnet:?xt=urn:btih:41DFD96E026163F4189EFD258B334BE5C91B97A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:41DFD96E026163F4189EFD258B334BE5C91B97A6
 ```bash
 magnet:?xt=urn:btih:1B92A59618FAB07E0D5981B2D6DD9136F8438CD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ VA - Black Hole House Music 12-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 magnet:?xt=urn:btih:B35804A03BFC4AF86CDFB52506052F3585182A25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ PhotoRoom v4.7.8 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:CB60191E83BF1C289849668A4A914EB69867D960
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +189,8 @@ Bernie Marsden - Working Man (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
 magnet:?xt=urn:btih:78CC915DA577C17EE177E181D85B991D0BBE8B34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ magnet:?xt=urn:btih:78CC915DA577C17EE177E181D85B991D0BBE8B34
 ```bash
 magnet:?xt=urn:btih:50182F3AE426A1B0FC1C24A69A36FE9D4601533F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +245,8 @@ David Bowie - Live USA (1990) [FLAC|Lossless|tracks + .cue] <Classic Rock>
 magnet:?xt=urn:btih:1D7503F1B31EB3110EDED312EE820732528D9CC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -254,6 +272,8 @@ Moon Safari - Himlabacken Vol. 1-2 (2012-2023) [FLAC|Lossless|WEB-DL|tracks] <Ar
 ```bash
 magnet:?xt=urn:btih:BCA9CBCEC84C69DEBE132192075CC7484EB25EB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -282,6 +302,8 @@ Placebo - Collapse Into Never - Live In Europe (2023) [FLAC 24/48|Lossless|WEB-D
 magnet:?xt=urn:btih:18D80364644D87BE572597BF4BC74F699D00FFFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +331,8 @@ Diviner - Avaton (2023) [FLAC|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:0203258322D108976124705F90CD8FADE18D43E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +357,8 @@ WPS Office - очень полезное, офисное приложение д
 magnet:?xt=urn:btih:A46C7816F3089B545B6015B9D8F274BD477339E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +382,8 @@ magnet:?xt=urn:btih:A46C7816F3089B545B6015B9D8F274BD477339E1
 ```bash
 magnet:?xt=urn:btih:98F66BFC6EF2335C2F557490C5362AD76969297E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +412,8 @@ Placebo - Collapse Into Never - Live In Europe (2023) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:6321ED9AB6120EFE45445C301870A04112CA3D00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +440,8 @@ Axis of Empires - Heretics and Orthodoxy (2023) [FLAC|Lossless|WEB-DL|tracks] <H
 ```bash
 magnet:?xt=urn:btih:FD21E9F20961617FF443E84A50AEB48545C1D199
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +470,8 @@ TV Girl - Who Really Cares (2016) Digital Album[MP3|320 Kbps] <Hypnotic Pop>
 magnet:?xt=urn:btih:754129F44F869F4BF97ADF95542CACB69DFFD15D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +496,8 @@ magnet:?xt=urn:btih:754129F44F869F4BF97ADF95542CACB69DFFD15D
 magnet:?xt=urn:btih:759DDD1D58F4416049FFE09B49DA5A1CF7B95C32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +521,8 @@ magnet:?xt=urn:btih:759DDD1D58F4416049FFE09B49DA5A1CF7B95C32
 ```bash
 magnet:?xt=urn:btih:97BEA55DC327D78C02DBA56923B2D613835D3D43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +550,8 @@ magnet:?xt=urn:btih:97BEA55DC327D78C02DBA56923B2D613835D3D43
 magnet:?xt=urn:btih:A0CD1EFAE92AB711287BB0F07B75B5206444CF7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +578,8 @@ magnet:?xt=urn:btih:A0CD1EFAE92AB711287BB0F07B75B5206444CF7A
 magnet:?xt=urn:btih:EFB96F7FBAD887925577B21DF84BB44FD83A19E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +603,8 @@ magnet:?xt=urn:btih:EFB96F7FBAD887925577B21DF84BB44FD83A19E5
 ```bash
 magnet:?xt=urn:btih:7CCDE167273DA66F93B7839E285AE9F0CF3AE7DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +633,8 @@ The Rolling Stones - Hackney Diamonds (2023) Live Edition, Explicit, 2023, Polyd
 magnet:?xt=urn:btih:4488B173C4392F679A437BCD1C0593C092645B21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +658,8 @@ magnet:?xt=urn:btih:4488B173C4392F679A437BCD1C0593C092645B21
 ```bash
 magnet:?xt=urn:btih:C670CC7FCBD6BFA9188E80C565A19BA57E79E6F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +685,8 @@ Sense Flip Clock & Weather v6.41.0 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:677EF37B11D1860605DFB0A9A540D8FC03B6D3F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +710,8 @@ magnet:?xt=urn:btih:677EF37B11D1860605DFB0A9A540D8FC03B6D3F9
 ```bash
 magnet:?xt=urn:btih:AC16EE7DCA30792937307882C30B4F8E2F977131
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Extize - MonStars (2022) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, EBM, Electro-I
 magnet:?xt=urn:btih:19C1B09034AB18EC6A058D2ADFF1EA6ACA64BDA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Jeremiah Kane - Ronin (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Industria
 ```bash
 magnet:?xt=urn:btih:82F4E934CBF4646E1491A8AA99ADAB1321C3B36E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Contagion - Infectant (2000) [MP3|320 кб/с]<EBM, Industrial, Rock>
 magnet:?xt=urn:btih:89DDE00614531928D47A33516DC221127FA8BB63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Suanda Music 2022 - Mixed by Roman Messer [MP3|320 Kbps] <Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:0D6800BCF8C91480C70B258F479FA699C1A39EDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Cafe Del Mar: ChillWave (2015) [MP3|320 кб/с]<Electronic, Lounge, Deep>
 magnet:?xt=urn:btih:1B38F7B77FC929D277E20047D5CC6F7A09C1670C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ NIGHT TRAVELER - Dreams You Don't Forget (2020) EP [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:1614A92B0CCDD2EDC0936B9CDD5D865F975BA549
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Kaya Project - Seed EP (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Dub, Down
 magnet:?xt=urn:btih:9A2BF3E07DCEFC7047BD9C951E291CD5A118FCBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ Drumcorps - Falling Forward (2015) [MP3|320 кб/с]<Breakcore, Metal, Electroni
 magnet:?xt=urn:btih:04CDE0486F9E31F4386D20D680A3398132F22E3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +253,8 @@ EKS.Center - Murmurations (2020) M-Tronic [FLAC|Lossless|WEB-DL|tracks] <IDM, El
 ```bash
 magnet:?xt=urn:btih:31907C4EBC3554DCA369CB4F9B50B0ADCEA05EB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +289,8 @@ Tony Igy - Gold Collections 2010  [MP3|320 kbps]<Electro, House, Techno>
 magnet:?xt=urn:btih:DF9208F26248E89F0460B621816AE19212B75A1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +317,8 @@ VA - Beautiful Vocal Trance Progressive 2022 [MP3|320 Kbps] <Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:664BC01346D992A572D222FC5795DF7664083B0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +347,8 @@ The Prodigy - The Day Is My Enemy (2015) Expanded Edition [MP3|320 кб/с]<Brea
 magnet:?xt=urn:btih:252F9D658AEDE3BC79A2C56A77F72BD38714B67E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +375,8 @@ Avto-Graf - Этот мир... (2022) [MP3|320 Kbps] <Electronic>
 ```bash
 magnet:?xt=urn:btih:719D6852D9A82A56985DAB7A7577629B301599A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +405,8 @@ Surge - Tales from a Lost Universe, Pt. 1-2 (2019) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:805DFFCB2056182DA3A90101C7792DEA04342FDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +433,8 @@ The Prodigy - The Day Is My Enemy (2015) Expanded Edition [FLAC|tracks|WEB-DL]<B
 ```bash
 magnet:?xt=urn:btih:1BB57968660B689B550789D29E0F0E7E66AA4712
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +463,8 @@ Surge - Wings of Fury (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave
 magnet:?xt=urn:btih:1493054196E9D31E593423D684A0557DF90BE2AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +491,8 @@ Doug Kaufman (D.P. Kaufman, Charm Days, magus_opus) - Discography 12 Releases (2
 ```bash
 magnet:?xt=urn:btih:33A1504BD5884F67FCBFD1F5BDA66A94E0B18680
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +521,8 @@ VA - Amsterdam 2019 - Presents By Parquet Recordings (Mixed by Solee) (2019) [FL
 magnet:?xt=urn:btih:0F73A9E5FF3AE1734015A634381CBF97C9F67B59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +549,8 @@ VA - SYNTH JUNIPERO - A Retrowave Compilation (2019) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:9B1A256C21A0DB611026E57F8C79D865B5E9DC48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +579,8 @@ VA - Goa Music (2015) [MP3|320 кб/с]<Psy, Goa Trance>
 magnet:?xt=urn:btih:D1F0323B51957C5E2C269E252184BF7378AFA3E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +607,8 @@ VA - Fantastic Cover Lounge Pearls Vol 1 (2015) [MP3|320 кб/с]<Lounge, Chill 
 ```bash
 magnet:?xt=urn:btih:A93D286F1CE5C8CEB738D6F83158D0F9F3E3612B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +637,8 @@ Steve Roach - Back to Life (2012) 2CD [MP3|232-320 кб/с]<Electronic, Ambient>
 magnet:?xt=urn:btih:3EBDE4D71FE28A38C7B045AC1987ED0D2028B0B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +665,8 @@ Liquid Bloom - Tylepathy Remixes - One With Nature (2020) Desert Trax [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:EEF1F671624673241153FA8A5A12389A755021CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +695,8 @@ Proswell - Remixes By Friends (2020) Touched Music [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:25C811C9247F5F69434D8C299D98016CD212A554
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -676,6 +724,8 @@ VA - One Point Two: More Digital Listening Music From Rednetic (2007) Rednetic R
 magnet:?xt=urn:btih:958C4C551DBF4D03FEC8155AA40CDA2140483A09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -702,6 +752,8 @@ VA - Sublime Trance Vol. 05 (2019) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:269E70296E9EA2297E51F3F5F413FD450B464A2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

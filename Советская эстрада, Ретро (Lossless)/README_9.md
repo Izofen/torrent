@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:7CA61B742169B98191F4DA8FF8D15E17805CDCE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Русские народные песни. выпуск 1 (2004) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:344DF0EB8BFB58A31F797513501F8A2D134B2159
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - О чём задумались, мадам... (2005) [FLAC|Lossless|tracks 
 magnet:?xt=urn:btih:516A237021B8397F1F776015946EAAA34B10AA7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Давид Тухманов - Вечная весна: Избранные �
 ```bash
 magnet:?xt=urn:btih:A5A5D0F2FFDA49B244BBC859ABD83DECBA079920
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:A5A5D0F2FFDA49B244BBC859ABD83DECBA079920
 magnet:?xt=urn:btih:B51EABE8F634365E3A5F19C2AE3206052D36117B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Оскар Фельцман - Я Вас люблю, я думаю о Вас
 ```bash
 magnet:?xt=urn:btih:AAE520139529B555BF2B5595D9E11F596E63B01B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:AAE520139529B555BF2B5595D9E11F596E63B01B
 magnet:?xt=urn:btih:030DAC6BAD52B8E4FD583131F658364B66EDB188
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:030DAC6BAD52B8E4FD583131F658364B66EDB188
 ```bash
 magnet:?xt=urn:btih:9E1854ED00A85E4F5D4FAC0969E7F1EF51A64E54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ magnet:?xt=urn:btih:9E1854ED00A85E4F5D4FAC0969E7F1EF51A64E54
 magnet:?xt=urn:btih:BE937B08A9049B7FF3526CA60692C0E71B3FC2AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Romantic Collection: Ретро (1999) [FLAC|Lossless|tracks + .cue] <Retro
 ```bash
 magnet:?xt=urn:btih:F4282002E15A5DDF0BC701E18E8CDD29B456DB3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ magnet:?xt=urn:btih:F4282002E15A5DDF0BC701E18E8CDD29B456DB3C
 magnet:?xt=urn:btih:3E9E306296007B43F0E96296216757C69FAF5CB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ magnet:?xt=urn:btih:3E9E306296007B43F0E96296216757C69FAF5CB8
 ```bash
 magnet:?xt=urn:btih:330A4310F8DD718A51635B78757BD9BE16551ADA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ magnet:?xt=urn:btih:330A4310F8DD718A51635B78757BD9BE16551ADA
 magnet:?xt=urn:btih:71A8D67312CEAB5CDDE5B56BB1B1A9E55764AD4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ magnet:?xt=urn:btih:71A8D67312CEAB5CDDE5B56BB1B1A9E55764AD4D
 ```bash
 magnet:?xt=urn:btih:2128B607B35697C68D673C36145958E5CA87B7C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ magnet:?xt=urn:btih:2128B607B35697C68D673C36145958E5CA87B7C5
 magnet:?xt=urn:btih:4BED94E266801A5D5EC53BE23BC445B27FACBC19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ magnet:?xt=urn:btih:4BED94E266801A5D5EC53BE23BC445B27FACBC19
 ```bash
 magnet:?xt=urn:btih:BD5420E42ACD82E49B6F590768832CE381CCB893
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ magnet:?xt=urn:btih:BD5420E42ACD82E49B6F590768832CE381CCB893
 magnet:?xt=urn:btih:A73608D312A5D0F6BFC0AED4A8A2A882C83F9406
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ magnet:?xt=urn:btih:A73608D312A5D0F6BFC0AED4A8A2A882C83F9406
 ```bash
 magnet:?xt=urn:btih:C62ACB18F9539C2152C1CACD1A1553F7FD15E8BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ VA - Георгий Мовсесян • Мои друзья-мое богатс
 magnet:?xt=urn:btih:E8232ABF9E41CF509ABA2DBEEDCD9721C0A73D2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ magnet:?xt=urn:btih:E8232ABF9E41CF509ABA2DBEEDCD9721C0A73D2E
 ```bash
 magnet:?xt=urn:btih:AD4A5CB954CEA4C8E5FD69CBD4F08AB2EC8AC795
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ VA – Геннадий Гладков-Проснись и пой 1 (2003) [FLAC
 magnet:?xt=urn:btih:8459FBC08F093C892FC038378F80CB57CFA4CF05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ VA - Дискотека СССР - Сборник поп-музыки (2005) [FL
 ```bash
 magnet:?xt=urn:btih:F8DC166CDB0E7D622F49DC82AE4F1B5060CB25FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ magnet:?xt=urn:btih:F8DC166CDB0E7D622F49DC82AE4F1B5060CB25FC
 magnet:?xt=urn:btih:E1989DEEE6CB7A116F70465D91775F50F96B6413
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ magnet:?xt=urn:btih:E1989DEEE6CB7A116F70465D91775F50F96B6413
 ```bash
 magnet:?xt=urn:btih:E6BC0C4F0CB83572577C340223A7F5BFA2A21B5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ magnet:?xt=urn:btih:E6BC0C4F0CB83572577C340223A7F5BFA2A21B5B
 magnet:?xt=urn:btih:CF4505BF7366CC9587574B2B111DA6DDE0A9176F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ magnet:?xt=urn:btih:CF4505BF7366CC9587574B2B111DA6DDE0A9176F
 ```bash
 magnet:?xt=urn:btih:D8387B5F07015642A7BACA41ABE97D38AD4F869B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

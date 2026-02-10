@@ -1,27 +1,3 @@
-###  Публикация: 1421653   (317758) от 05.11.2020
-
-File List Export 2.4.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317758.jpg" />
-</div>
-
-
-###  Подробнее
-
-File List Export (бывший File list to Excel) - простое в использовании приложение, которое поможет вам создать список файлов для какой-либо необходимости. Перечислите все свои фотографии, все ваши видео или все файлы. Если вам нужно создать список файлов, это приложение для вас. Новая версия с большим количеством 26 колонок метаданных и экспорта в CVS файл. Просто (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.11.2020Разработчик: Giorgos TrigonakisПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8B0DF21888F81606E1D71B70F561E0C9E522398
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421621   (317765) от 05.11.2020
 
 PDF Search 10.3 [En]
@@ -42,6 +18,8 @@ PDF Search - это утилита, которая имеет революцио
 ```bash
 magnet:?xt=urn:btih:91C6DE97655FBBD732333855C4ABADF3BFEB869F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +47,8 @@ Alfred 4 Powerpack 4.2.1 [En]
 magnet:?xt=urn:btih:F1993A9A9759735F4F155D4111A4D590F18D4BAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +75,8 @@ EagleFiler позволяет создавать, (   Читать дальше
 magnet:?xt=urn:btih:845CF4DDA6C5CE9F34F06E1EDDCE1B85ABAF0867
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +100,8 @@ Hookshot - позволяет привязывать окна с помощью 
 ```bash
 magnet:?xt=urn:btih:FC05F550D8A182F4000F78D8DA6877B429928B54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +131,8 @@ magnet:?xt=urn:btih:FC05F550D8A182F4000F78D8DA6877B429928B54
 magnet:?xt=urn:btih:5DA1A4EF0BAFFF4EAB8F5F7090B32FED1859F813
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +156,8 @@ magnet:?xt=urn:btih:5DA1A4EF0BAFFF4EAB8F5F7090B32FED1859F813
 ```bash
 magnet:?xt=urn:btih:D59DE01D5A9119DA8F679C79B1DC9740F369A51B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +187,8 @@ magnet:?xt=urn:btih:D59DE01D5A9119DA8F679C79B1DC9740F369A51B
 magnet:?xt=urn:btih:E63B49F5CC59FED3F591464B4FD4BFF414FB7FDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +212,8 @@ PullTube 1.5.10 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C6FAD64F77C45031F03DAD7DEC5284ADCDBCB098
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +239,8 @@ Reg Organizer® - это многофункциональная программ
 magnet:?xt=urn:btih:A616BFAE104D8BE01F97489D504F5929D1285A09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +264,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:28DB0BFFF36304FC6A13BBE4AD419A59206DFDB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +293,8 @@ magnet:?xt=urn:btih:28DB0BFFF36304FC6A13BBE4AD419A59206DFDB6
 magnet:?xt=urn:btih:B6C3E79378667AA8CAAEF331719F0968B262D5EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +318,8 @@ Opera 41.0.2353.69 Stable RePack (& Portable) by D!akov [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E48636089AB9796BED65EF0BDF7EC885AACCB43A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +345,8 @@ magnet:?xt=urn:btih:E48636089AB9796BED65EF0BDF7EC885AACCB43A
 magnet:?xt=urn:btih:1DF392AA49EAB1ADF9018347EF8ADDEEEB2430BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +370,8 @@ Insects Wallpapers (29.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:3E070C1D4D52DFB31484BBFC7C6F93E3886018F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +397,8 @@ Computer Desktop Wallpapers Collection (30.11.12) [Wallpapers]
 magnet:?xt=urn:btih:9EA0DEA60FB16313D99F0C60BCBC75308A64BE92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +423,8 @@ Majestic castles of the world Wallpapers (28.11.12) [Wallpapers]
 magnet:?xt=urn:btih:6ADC3BE8905D6FB516F99F342D2116C24C40A353
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +448,8 @@ Computer Desktop Wallpapers Collection (29.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:578CF623FC2581825258824726483B46A8EB1A4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +479,8 @@ magnet:?xt=urn:btih:578CF623FC2581825258824726483B46A8EB1A4E
 magnet:?xt=urn:btih:5F73AC464ED67897F9BBB602C914194086730229
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +504,8 @@ Computer Desktop Wallpapers Collection (28.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:2B0A69171CA5D63E6C6362CFC3517AB1B402EE41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +535,8 @@ magnet:?xt=urn:btih:2B0A69171CA5D63E6C6362CFC3517AB1B402EE41
 magnet:?xt=urn:btih:E838F756D9E22E32B393C487F714FE233CC77D5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +560,8 @@ Dubai Wallpapers (28.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:32D042BFAB317ADBE82AC91CFFB5577B02BEABE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +587,8 @@ magnet:?xt=urn:btih:32D042BFAB317ADBE82AC91CFFB5577B02BEABE1
 magnet:?xt=urn:btih:EC6B97777C069506C4E1DE352FB807ECA94E3A41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +612,8 @@ Best HD Wallpapers Pack (29.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:E44B35603DEDC40B660F65B631B7269CD384E780
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +639,8 @@ Best Resorts Wallpapers (28.11.12) [Wallpapers]
 magnet:?xt=urn:btih:5329121B63CF1D89D91A8A2D5D66555B2702E8DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +664,34 @@ magnet:?xt=urn:btih:5329121B63CF1D89D91A8A2D5D66555B2702E8DD
 ```bash
 magnet:?xt=urn:btih:1D40D62365D21A7ECF44A972A0CA9C69497D5A9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331907   (318073) от 18.10.2019
+
+Total Uninstall 6.27.0.565 Professional Edition RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_318073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Total Uninstall - утилита, предназначенная для корректного удаления установленных программ. Первым этапом в работе Total Uninstall является слежение за изменениями в системе во время установки нового софта. Делается снимок файловой системы и реестра до начала установки того или иного приложения и после. В дальнейшем, исходя из собранных в момент установки программ (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4141E95F957A160FD194F913C55E5A3C3363AA1
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

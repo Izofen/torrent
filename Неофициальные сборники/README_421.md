@@ -1,3 +1,32 @@
+###  Публикация: 1029681   (678603) от 28.06.2016
+
+Dj DAN62 - Унц Унц Микс Июнь Часть 2 (2016) [MP3|320 Kbps] <Dance Pop, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678603.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. David Guetta feat. Zara Larsson - This One's For You (Stefan Dabruck Remix)
+2. Calvin Harris feat. Rihanna - This Is What You Came For (R3hab & Henry Fong Remix)
+3. F&M Project vs. Iuri DJ feat. Cristina - The Moon (Club Version)
+4. Simone Pacella – Mister Deejay (Extended Mix)(   Читать дальше...   )Жанр: Dance Pop, Electro HouseПродолжительность: 00:59:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B737F086CAA051539CBE02269A8C5511C526F6A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029750   (678604) от 28.06.2016
 
 VA - Dance Super Chart Vol.74 (2016) [MP3|320 Kbps] <House, Club, Dance>
@@ -21,6 +50,8 @@ VA - Dance Super Chart Vol.74 (2016) [MP3|320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:67EBAEEA7544ACB0FC84C53BD635E88B5AB27FAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - DJ World Places Miracle (2016) [MP3|320 кб/с] <Funky, Disco, Electronica
 magnet:?xt=urn:btih:1C06CDD47EB35BE2C04452592AF1749F35958B31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +105,8 @@ VA - Ultimate Workout Dance Player (2016) [MP3|256 кб/с] <Club, House>
 ```bash
 magnet:?xt=urn:btih:EE0350C95819B587262A46C0C23D5D08E3E59148
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +135,8 @@ VA - Global Sound Life Eclipse (2016) [MP3|320 Kbps] <House, Electro House, Futu
 magnet:?xt=urn:btih:DE3511755FC7DCEC457FC3205878086798EC8A22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +163,8 @@ VA - Festival Trance Music (2016) [MP3|320 Kbps] <Trance, Progressive Trance, Ho
 ```bash
 magnet:?xt=urn:btih:F868D54C6985A1C667676FFF1D2AD9CC36E9331D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +193,8 @@ VA - 100-ка блатных душевных песен Шансона. Сбо�
 magnet:?xt=urn:btih:7EF75E11C443070D7AA270F0C78C9B2933A49C76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +222,8 @@ VA - Top 100 Зайцев.Нет Апрель 2018 [MP3|320 Kbps] <Pop, Dance, O
 magnet:?xt=urn:btih:F7E9AF27E472BF9D22199E4D764968DFB6FA3196
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +247,8 @@ Avril Lavigne - My Happy Ending (2018) Remix [MP3|320 Kbps] <Deep, Techno>
 ```bash
 magnet:?xt=urn:btih:556BF453F6C0AEFF03130BFCD508B0D9974F94F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -232,6 +277,8 @@ VA - Весенний хит русского шансона. Сборник №
 magnet:?xt=urn:btih:5BCDCB020D3CD3416E9A5E66D4C954D8A454FA1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +305,8 @@ VA - Electronic Toys (A Retrospective Of 70's Synthesizer Music) (1996) CD [MP3|
 ```bash
 magnet:?xt=urn:btih:78E30A4EEF42FC0FE1CC1FA6DA767367E055D977
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +335,8 @@ VA - Песни для души от радио Шансон. Сборник №
 magnet:?xt=urn:btih:BC556650361DA096ECAAC57B6F34C3B36F624902
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +363,8 @@ VA - Empire Records - Retromania (2017) [MP3|320 Kbps] <Disco, Italo Disco>
 ```bash
 magnet:?xt=urn:btih:49FB4BBF623F68F22B91D665DA240984CA3338E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +393,8 @@ VA - Душевный сборник Русского радио выпуск �
 magnet:?xt=urn:btih:8AC1E23FDC6266F01441E203132DF5B78EE4D122
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +421,8 @@ VA - Шальной шансон в дорогу выпуск № 11 (2017) [MP3
 ```bash
 magnet:?xt=urn:btih:C87775B6B1B939277BD09144644B5FD3A42153F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +451,8 @@ VA - Рок впрок 10 (2018) [MP3|320 Kbps] <Рок, Поп-Рок>
 magnet:?xt=urn:btih:CA73D714AB5E7B8AA64AA338F659AD8B34B66F7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +480,8 @@ VA - Под водочку (2009) [MP3|256 Kbps] <Поп>
 magnet:?xt=urn:btih:D29C26491D2DAE8CEC0735ED3EA460BF39353C0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +508,8 @@ VA - Super Disco Party (2018) [MP3|320 Kbps] <Pop, Disco, Dance>
 ```bash
 magnet:?xt=urn:btih:27719452B456D8C005A2018DA6D8ADDFBD28B735
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +544,8 @@ VA - Сборник Родной музыки - "Авега" (2012) [MP3|192 к�
 magnet:?xt=urn:btih:1CCA6DACA298B1B8EE96648F8D5598231B94534E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +579,8 @@ VA - 100 Mega Summer Hits 2012 (2012) [MP3|~273 кб/с]<Pop, Dance, Club>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +607,8 @@ VA - Хитовая весна на Europa Plus. Часть № 3 (2017) [MP3|25
 ```bash
 magnet:?xt=urn:btih:29659F8F0B30F12A4FF911D1A8DD00F54F949B91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +637,8 @@ VA - Русский отрыв на Русском радио. Версия № 
 magnet:?xt=urn:btih:CC0CBA49A97190259A642693B4C073AE4E4CDF7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +665,8 @@ VA - Весенняя 100-ка популярных треков выпуск �
 ```bash
 magnet:?xt=urn:btih:244F984D5D1376EFC02FF29DABAAD1DAEF7A542C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +695,8 @@ VA - The Real Silent Mode (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 magnet:?xt=urn:btih:D0A580EA3A2AA78E01F511A62E71C6A1B0D24028
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +723,8 @@ VA - Музыкальный адреналин хорошего настроен
 ```bash
 magnet:?xt=urn:btih:BD09854F76B41D8BE50E5F76D93EB1A3C1C8610C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -676,32 +753,7 @@ VA - Драйвовый весенний музон. Часть № 8 (2017) [MP
 magnet:?xt=urn:btih:297B8E847A14719656D29D72B06DD2A1D0671F83
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135816   (679420) от 20.05.2017
-
-VA - Microversion Live To Exist: Psy Trance (2017) [MP3|320 Kbps] <Psy-Trance, Psychedelic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Zeologic - Intelligence 6:43
-02.  Skyline - Waves 7:57
-03.  Psydog - Mushroom Recipe (141 BPM) 6:56
-04.  Vertigo Records - Wtich Technology (Remix) 7:49(   Читать дальше...   )Жанр: Psy-Trance, PsychedelicПродолжительность: 05:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:274182AAEE854EFECF76E72803BC0E73375F7019
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

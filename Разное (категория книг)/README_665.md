@@ -1,3 +1,30 @@
+###  Публикация: 1095306   (925716) от 20.01.2017
+
+Николай Норд | Большая книга экстрасенса. Упражнения для развития сверхспособностей (2017) [FB2]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Николай Норд, ученик потомственного сибирского целителя, экстрасенс, уверен, что стать экстрасенсом может каждый. Для этого нужно пройти правильную программу тренировок по развитию сверхспособностей. И такая программа дана в этой книге!
+Здесь вы найдете большое количество различных экстрасенсорных практик – от ясновидения и чтения мыслей до работы с рамками и управления (   Читать дальше...   )Жанр: Эзотерика, Биоэнергетика, СверхспособностиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1EBD02AD67905A6CB5F204A9F9BEE96A4166B8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987623   (925753) от 17.02.2016
 
 Моника Мачниг | Язык тела. Понимай других без слов! (2016) [FB2]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:011CD371042F148D7D86B8CFDA9791D2C47EF733
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +71,8 @@ magnet:?xt=urn:btih:011CD371042F148D7D86B8CFDA9791D2C47EF733
 ```bash
 magnet:?xt=urn:btih:DE55EC8356599888D9301E5608BBF0769B18A3B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +99,8 @@ magnet:?xt=urn:btih:DE55EC8356599888D9301E5608BBF0769B18A3B4
 magnet:?xt=urn:btih:3609505422E0C88C51EA32CE36460A87FFB297ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +125,8 @@ magnet:?xt=urn:btih:3609505422E0C88C51EA32CE36460A87FFB297ED
 magnet:?xt=urn:btih:ABE3D152D6D8C73DCD55A49EED860FE9E14481DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +150,8 @@ World Gym College | Базовый курс инструктора фитнес 
 ```bash
 magnet:?xt=urn:btih:0A222964C6C723F798421CD332B527073DE3F13B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +178,8 @@ magnet:?xt=urn:btih:0A222964C6C723F798421CD332B527073DE3F13B
 magnet:?xt=urn:btih:66DC0D9865E2601F2453FD57F70F627FCA4CBE1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +203,8 @@ magnet:?xt=urn:btih:66DC0D9865E2601F2453FD57F70F627FCA4CBE1F
 ```bash
 magnet:?xt=urn:btih:5D9A6F1D758AD03D458BD26484F85D280127057F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +230,8 @@ magnet:?xt=urn:btih:5D9A6F1D758AD03D458BD26484F85D280127057F
 magnet:?xt=urn:btih:BA90CA674B9DBB4216FEF8CF5DF08F84CE6E7CB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +255,8 @@ magnet:?xt=urn:btih:BA90CA674B9DBB4216FEF8CF5DF08F84CE6E7CB0
 ```bash
 magnet:?xt=urn:btih:E400F27EACCB420E8B54D7DC1E1262ED04D62786
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +282,8 @@ magnet:?xt=urn:btih:E400F27EACCB420E8B54D7DC1E1262ED04D62786
 magnet:?xt=urn:btih:18C2D6CA39C2EEDEA3E64CD730F3C8BC10ACC41D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +307,8 @@ magnet:?xt=urn:btih:18C2D6CA39C2EEDEA3E64CD730F3C8BC10ACC41D
 ```bash
 magnet:?xt=urn:btih:9B9DB957F257858098C5278D5F3D74C5A6174234
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +334,8 @@ magnet:?xt=urn:btih:9B9DB957F257858098C5278D5F3D74C5A6174234
 magnet:?xt=urn:btih:BA5F34D659A13A62F08D2926B14158B0E326E0F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +359,8 @@ magnet:?xt=urn:btih:BA5F34D659A13A62F08D2926B14158B0E326E0F3
 ```bash
 magnet:?xt=urn:btih:2750E1FB8761DF1EE5AC1C74B494C267BF17FDFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +386,8 @@ magnet:?xt=urn:btih:2750E1FB8761DF1EE5AC1C74B494C267BF17FDFB
 magnet:?xt=urn:btih:18E8C43FCD284A80C52EEEF0B5FADD844CDCC51C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +411,8 @@ magnet:?xt=urn:btih:18E8C43FCD284A80C52EEEF0B5FADD844CDCC51C
 ```bash
 magnet:?xt=urn:btih:F3915CC0C3D4E63D2547B29C066BEEAD56B38907
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +439,8 @@ magnet:?xt=urn:btih:F3915CC0C3D4E63D2547B29C066BEEAD56B38907
 magnet:?xt=urn:btih:90B0D162F63B77E90949589D46C41295745137D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +464,8 @@ magnet:?xt=urn:btih:90B0D162F63B77E90949589D46C41295745137D3
 ```bash
 magnet:?xt=urn:btih:F284A9F7EA488AC5FB61F45525C394C8178605B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +491,8 @@ magnet:?xt=urn:btih:F284A9F7EA488AC5FB61F45525C394C8178605B7
 magnet:?xt=urn:btih:DD7179CFE58AA3558F3C5F52A3D3393729E6EC65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +516,8 @@ magnet:?xt=urn:btih:DD7179CFE58AA3558F3C5F52A3D3393729E6EC65
 ```bash
 magnet:?xt=urn:btih:408E9B2923B5E43AB6C58621A35B85E557F09096
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +543,8 @@ magnet:?xt=urn:btih:408E9B2923B5E43AB6C58621A35B85E557F09096
 magnet:?xt=urn:btih:4F13DB3DEB32F967055B2F404D7704F2041A3C8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +568,8 @@ magnet:?xt=urn:btih:4F13DB3DEB32F967055B2F404D7704F2041A3C8C
 ```bash
 magnet:?xt=urn:btih:3122F6D287CCA5B8C191D67081C4A943321454AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +597,8 @@ magnet:?xt=urn:btih:3122F6D287CCA5B8C191D67081C4A943321454AA
 magnet:?xt=urn:btih:76D15FA068AD0B58C6C5DB4707FA7497EADAF992
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +624,8 @@ magnet:?xt=urn:btih:76D15FA068AD0B58C6C5DB4707FA7497EADAF992
 magnet:?xt=urn:btih:28E723F9D86B671E316196473BB63176550B4AF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +649,8 @@ magnet:?xt=urn:btih:28E723F9D86B671E316196473BB63176550B4AF5
 ```bash
 magnet:?xt=urn:btih:4791EE73C59BA6E81B10BC0FF9566A8087EF28AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,30 +676,7 @@ magnet:?xt=urn:btih:4791EE73C59BA6E81B10BC0FF9566A8087EF28AA
 magnet:?xt=urn:btih:56E3468F4C9F83EBDADFC5131810E44F2D6E9A44
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365758   (927009) от 09.03.2020
-
-Майкл Микалко | Тайный эксперт. Комбинируй, смешивай, создавай прорывные идеи (2019) [EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иногда хорошая задумка намного важнее денег, связей и опыта. Но как генерировать идеи, если все уже придумано до нас? Неужели единственное, что мы можем делать, – копировать мысли других людей? Конечно же, нет!
-В своей книге Майкл Микалко детально разбирает, как формируются новые идеи, как можно успешно комбинировать уже придуманные вещи и создавать на основе этого (   Читать дальше...   )Жанр: Психология, Личная эффективностьПеревод: Ирина МатвееваФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:230E62A6623B532292EE0F1C6356142E3A78DA03
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ BBC. Наша Первая мировая / Our World War (2014) HDTV [H.264/108
 magnet:?xt=urn:btih:37155E2D49EC73A8AE98B2F346517CC3871B06F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:37155E2D49EC73A8AE98B2F346517CC3871B06F0
 ```bash
 magnet:?xt=urn:btih:BDA9EF16D00F3615CF8578A7725180E0782296CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ BBC. Горизонт. 10 вещей, которые мы должны знат�
 magnet:?xt=urn:btih:2E7077A4A9E6C4B038DDCAB9FBB37E12F6AA52ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Discovery. Сквозь червоточину с Морганом Фримен�
 ```bash
 magnet:?xt=urn:btih:9D570A20C5D9613918D11D99CBE09EBC7C5054DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ BBC: История Шотландии с Нейлом Оливером [Сез�
 magnet:?xt=urn:btih:71171EA80A90D125197BD838C750C79B403AD686
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ BBC: Мир природы: Полярные медведи и гризли на
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ BBC: Грязные города. Индустриальный Нью-Йорк [
 magnet:?xt=urn:btih:B66A3474EBF6F68821FAD6C432F5975287DD2B85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ BBC. Империя Смерти / Empair of Death (2009) SATRip
 ```bash
 magnet:?xt=urn:btih:30105A4C38742247185150792DF5786A6BB7FA22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ NG: Последние львы / The Last Lions (2011) BDRip [H.264/576p]
 magnet:?xt=urn:btih:87BAEDE5B050E4326C3D435A2B6387C59B9C7C96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Animal Planet. Самые большие и страшные жуки в мир�
 ```bash
 magnet:?xt=urn:btih:4411C5F90E1AC9A3A0D8A91A8E4EC2F6650E417F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Animal Planet. Снежный барс в зелёном Лондоне / Snow L
 magnet:?xt=urn:btih:A100D2F201D5085156681A893A57FBF01F7A330D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Animal Planet. Дикие жёны саванны / Wildwives of Savannah Lane (
 ```bash
 magnet:?xt=urn:btih:7CC85E294866F1658EF06B4DF14DFEE53FC29952
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Discovery: Призрак большой белой / Great Whaite Abyss (2018) 
 magnet:?xt=urn:btih:22875538E6BEBE0B3EDA9E5535F14D5F35131EB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:22875538E6BEBE0B3EDA9E5535F14D5F35131EB9
 ```bash
 magnet:?xt=urn:btih:25ACB43B55D9DE8E24DEA2A2B9972BB2B5DA8EE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Discovery: Джек Потрошитель. Первый серийный уби
 magnet:?xt=urn:btih:1FD5E31179C5CCB21F5520C75835B60D024CC0B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ BBC. В краю муссонов: Засуха / Wonders of the Monsoon: The Dr
 magnet:?xt=urn:btih:6B8B714736C8A231588DD501FC180CE89BFC70EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:6B8B714736C8A231588DD501FC180CE89BFC70EB
 ```bash
 magnet:?xt=urn:btih:812AFACA3B844DC0D8DDA5B0CCAF68106A387962
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ History Channel: Детективы морских глубин-5. Алекса�
 magnet:?xt=urn:btih:FC8630A235CEB93E085769C0FF83DE622523530B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ BBC: Грязные города. Революционный Париж [час�
 ```bash
 magnet:?xt=urn:btih:3C4C75213B9C0F037CDEC8CEC3E8E9EE4F18CADA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ NG. Прекрасная Америка / America the Beautiful (2022) WEB-DL [H
 magnet:?xt=urn:btih:EFE88AF1A3D20A1537C078FC819ADCE834EADD95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:EFE88AF1A3D20A1537C078FC819ADCE834EADD95
 ```bash
 magnet:?xt=urn:btih:07D8D9230A92C481BE597E7144A7D2A1B4D6CD9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ BBC. Horizon: Видим ли мы одно и то же? / Do You See What I Se
 magnet:?xt=urn:btih:6C73FB33C749F19A96382C0EB4BBC4E1FA4D84C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:6C73FB33C749F19A96382C0EB4BBC4E1FA4D84C1
 ```bash
 magnet:?xt=urn:btih:1905D7C41820332C1430C6C39F01968384A55F10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ BBC. Horizon: Питание, голодание и долголетие / Eat, 
 magnet:?xt=urn:btih:C286A4DB8C55BE6795275AE2C7D46B591F944388
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ Discovery. Нашествие гигантских медуз / Attack of The Gi
 magnet:?xt=urn:btih:104CE1C799DF057422CDA7C7DDA7B12E1A30FEB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Discovery. Гигантские мечи / Big Giant Swords (2015) HDTV [H.264/7
 ```bash
 magnet:?xt=urn:btih:21CEF44058B8FE4592DEC51BF6176EF9BC25C40C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

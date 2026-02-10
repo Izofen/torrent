@@ -22,6 +22,8 @@ Ludwig Goransson - TENET / Довод (Original Motion Picture Soundtrack) (2020
 magnet:?xt=urn:btih:401FFC49F2AD778E0654C0045F9D693A7C73894C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Ilyin - Pegs and Fortresses (2019) [MP3|320 Kbps] <Metal/Intumental/Neo-classic/
 ```bash
 magnet:?xt=urn:btih:D0EC7A085312904C82DD1F5458CEF71EC87FD528
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Deuter - Mystic Voyage (2015) [MP3|320 кб/с]<New Age, Relax, Meditative>
 magnet:?xt=urn:btih:F56C421CEBE552854310A644BE4F73AC747EE041
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ The Romantic Strings Orchestra - The Greatest Love Of All (1998) [MP3|320 Kbps] 
 magnet:?xt=urn:btih:30DEB85778A0EE33DD408119DF08F10E496F9331
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ Bill Frisell - 6 альбомов (2004-2013) [FLAC|Lossless]<Contemporary Jazz,
 ```bash
 magnet:?xt=urn:btih:132E20CA9A4A15392BC788FE7EE2FB5BE8B59A0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ Relaxing Piano Music & Sleep Baby Sleep - Newborns - Relaxing Pregnancy Music (2
 magnet:?xt=urn:btih:84549EEBABA46B14EFB0CADF86D2391F8D2A3FE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ Jan Pham Huu Tri & Gabin De L’Auray - Gentle Acoustic Guitar (2018) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:C48E6900250E0E92BD55B71E24FB3C1AE69A54AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ IchPak - De mo (2013) Авторская раздача [MP3|320 кб/с]<untitl
 magnet:?xt=urn:btih:0CFF13FF1958CFB03C008B1F9557F4CE09993D50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +250,8 @@ Ramin Djawadi - Игра престолов / Game of Thrones, Сезон 4 (201
 ```bash
 magnet:?xt=urn:btih:DCDD0F70C2EF9D02EE528C6E3FAA285B3D10F71A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +280,8 @@ Jesse Lafser - Raised On The Plains (2015) [MP3|320 кб/с]<Country>
 magnet:?xt=urn:btih:12B785EC0BA5D2F1562051DE74912CA3073BB14A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +308,8 @@ Jason James - Jason James (2015) [MP3|320 кб/с]<Texan Country>
 ```bash
 magnet:?xt=urn:btih:00E1CD728A3D576164054C50FF6EBADE04390C0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +338,8 @@ VA - Sax Is The Best! Showa Kayo Listening At Sax (2012) 5CD [FLAC|Lossless|imag
 magnet:?xt=urn:btih:E8E09CAAEE9B183F891127868D80A5923EB0FCF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +366,8 @@ The Romantic Strings Orchestra - The Greatest Love Of All (1998) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:F27516B3EB9699352697EAFB43763507F0702E8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +396,8 @@ The BBC Concert Orchestra - Cinema Silver Screen Classic (2012) [FLAC|Lossless]<
 magnet:?xt=urn:btih:BEFDED7411F4489E857DBF32CFEC538AE0346C17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +424,8 @@ Jean Michel Jarre - Equinoxe (1978) Remaster, 1983, Polydor [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:82163399DE3FD901D9F41769D0CC1E1518636DFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +454,8 @@ Marina Raye and Olabayo - Drumming into Paradise (2000) [FLAC|Lossless|tracks + 
 magnet:?xt=urn:btih:9D7718C81B3B4FCD52A9F83CE65D9D008A460BBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +482,8 @@ Christopher Phillips - Piano Chill: Songs of Simon & Garfunkel (2019) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:831D42D346AE54B989C22E09B3303BE2F1B3CCC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +512,8 @@ Apocalyptica - Aquarela (2019) [MP3|320 Kbps] <OST, Cello Metal>
 magnet:?xt=urn:btih:26E50B71718450F629F2F195EF9C59E01C3B10FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +540,8 @@ VA - Diamond Best Mood Tenor Sax Best (2CD)(2006) [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:A79C63406474FFE62FDFB41E6D3369C9387778BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +570,8 @@ Official soundtrack:
 magnet:?xt=urn:btih:C8FE9868030C705BFDDEAA2CC2AEFEF2263DB58E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +598,8 @@ Art Of Noise - The Best Of The Art Of Noise - The Art Of Love (1992) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:A299B01B2345E24D15B4CE47DD771CAAD973D2E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +628,8 @@ The Soundtrack Studio Stars - Sounds of Tarantino (2014) [MP3|320 Kbps] <Soundtr
 magnet:?xt=urn:btih:6444A5F843F54ADF8AA7CEDAE9F2FFED16320618
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +656,8 @@ SPA & Wellness Massage Masters, Beauty Spa Music Collection, Zen Spa Music Exper
 ```bash
 magnet:?xt=urn:btih:EBA7F37318804B87AE30EF0B70EEECD89CEAA298
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +687,8 @@ magnet:?xt=urn:btih:EBA7F37318804B87AE30EF0B70EEECD89CEAA298
 magnet:?xt=urn:btih:E43A409063FDB94126A254962D4897A432CB0761
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +716,8 @@ Blue Rodeo - In Our Nature (2013) [MP3|320 Kbps] <Folk Rock, World, Country>
 magnet:?xt=urn:btih:FF80153FE44CCF6FAD38E552BF05DE713EC3C2F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,6 +744,8 @@ Ben Caplan - Birds With Broken Wings (2015) [MP3|320 кб/с]<Country, Funky Blu
 ```bash
 magnet:?xt=urn:btih:8F29B68A9518F6EBF0309DE2472980B812404A3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

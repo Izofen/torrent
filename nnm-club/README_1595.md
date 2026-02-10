@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:CD7AE267D54137C732C1458DA7217FFA4D73378B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:CD7AE267D54137C732C1458DA7217FFA4D73378B
 magnet:?xt=urn:btih:D504C9013F12C64CFE7DE781B5C2D124306F33FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:D504C9013F12C64CFE7DE781B5C2D124306F33FC
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:D504C9013F12C64CFE7DE781B5C2D124306F33FC
 ```bash
 magnet:?xt=urn:btih:C951E80AF8E9814BEEF781646589B7213A8B7E07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ The Book of the Beast - это первое полное собрание луч
 magnet:?xt=urn:btih:D9C332DE11B377081CF1AD08D8643471FF5A6E77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ VA - Шансон для пацанов (2024) [FLAC|Lossless|WEB-DL|tracks] <Ш
 magnet:?xt=urn:btih:498171DA3C89705CB2FDC40E4738426116F47699
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:498171DA3C89705CB2FDC40E4738426116F47699
 ```bash
 magnet:?xt=urn:btih:3607FCFCCE5C2C20EBC4C66F91861C6C50623856
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ Eguana - Invisible Civilization, Vol. 6 (2024) [MP3|320 Kbps] <Ambient, Psychill
 magnet:?xt=urn:btih:C868CE2D27AF3C10E65DB26B5C3982CE8EA09188
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:C868CE2D27AF3C10E65DB26B5C3982CE8EA09188
 ```bash
 magnet:?xt=urn:btih:67D89DD1657A1AA4890F0E7C1CCE82123867496D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ Serj Tankian - Foundations (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt.Metal
 magnet:?xt=urn:btih:A5A444409481D9DB14F7B7F1AD30CA835C0F3B3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:A5A444409481D9DB14F7B7F1AD30CA835C0F3B3A
 magnet:?xt=urn:btih:EB7529CC8B8A1265C3651471FA3896D718AB843A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:EB7529CC8B8A1265C3651471FA3896D718AB843A
 magnet:?xt=urn:btih:4C9F21295B71D71C20060E437225FF452E0ADA3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:4C9F21295B71D71C20060E437225FF452E0ADA3E
 ```bash
 magnet:?xt=urn:btih:CF94574F646F9FA86AD735F47F40747ADD89E14B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ Kiko & the Blues Refugees - Ghosts (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:186DF128E58E7B1CF262C61033114DD6E1AB43FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ magnet:?xt=urn:btih:186DF128E58E7B1CF262C61033114DD6E1AB43FF
 ```bash
 magnet:?xt=urn:btih:72673A82672A86FAF707B970DB925CDC0A0C03A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ magnet:?xt=urn:btih:72673A82672A86FAF707B970DB925CDC0A0C03A7
 magnet:?xt=urn:btih:FAFCAD8F6520281A533045FEAB6A476319DEB381
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ magnet:?xt=urn:btih:FAFCAD8F6520281A533045FEAB6A476319DEB381
 ```bash
 magnet:?xt=urn:btih:88F0A9E2D6B0FA12B5B3FE897309AD6F03B7B133
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +486,8 @@ Will Gunnell - I Dooz the Blooz (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blue
 magnet:?xt=urn:btih:6543358E4A3077545A188642C7D342D9C1303EC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ VA - Entrance Music Legends Top 25 (2024) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:477E6E0433C233E09358FDA07C6AFF8E235BAA37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +544,8 @@ VA - ADE Behind Scenes (2024) [MP3|320 Kbps] <Progressive House, Melodic House &
 magnet:?xt=urn:btih:EA3C0C0A9904931FEA2316D2E0C40DAA258922F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ Urban Rivers - Rockin' The Blues Train (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:358FADF162F4C627747B89904A83DD6EE16DB4F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +602,8 @@ Munarheim - Heimkehr (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Fol
 magnet:?xt=urn:btih:FB9849A843AD3108FAD57530BF0BE3BB52550F9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +630,8 @@ Tad Morose — шведская пауэр-метал группа, основа
 ```bash
 magnet:?xt=urn:btih:CFDCE5E33E301D9A1C40BCA9B763BB5885CF26B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +660,8 @@ VA - Rated Revisited Vol. 1 (2024) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:221C7D21CF0609599D464DDED04277327AA2DB84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +685,8 @@ magnet:?xt=urn:btih:221C7D21CF0609599D464DDED04277327AA2DB84
 ```bash
 magnet:?xt=urn:btih:974A0DA32F028850338F45BD862BA8314C4331C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -664,6 +714,8 @@ Frank Sinatra & Tommy Dorsey - Love Songs (1940 - 1941) 1997, RCA Victor [FLAC|L
 ```bash
 magnet:?xt=urn:btih:3622D1C6B7112239217EEB0A1CCB6C850C9900CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1511482   (788797) от 21.11.2021
+
+ПараПод :Британские охотники на привидений / The ParaPod: A Very British Ghost Hunt (2020) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Йен Болдсуорт и Барри Доддс отправляются в тур с приведениями, в котором посещают самую населенную призраками деревню в мире, дом с жутким полтергейстом и подземные лабиринты Эдинбурга.Производство: Великобритания / Infinite HermitЖанр: Документальный, ужасы, комедияРежиссер: Йен БолдсуортПеревод: Многоголосый любительскийЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:47:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:731FDD6DA9E0E836080BA86B9E78C8B2562C2017
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511443   (788842) от 21.11.2021
 
 Битва экстрасенсов (2021) WEBRip [H.264/1080p] (сезон 22, выпуск 9)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:102AC91C80CF103070904BB3E4FEEFB7061AE8F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:102AC91C80CF103070904BB3E4FEEFB7061AE8F6
 magnet:?xt=urn:btih:E4F2EDEAC1391531F7C7A86A3DD890E06A31C4A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:E4F2EDEAC1391531F7C7A86A3DD890E06A31C4A1
 ```bash
 magnet:?xt=urn:btih:C653298FA03B0F9F6FECD4D3700DB4EDDDE9A4AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:C653298FA03B0F9F6FECD4D3700DB4EDDDE9A4AF
 magnet:?xt=urn:btih:544D3612856737F6EC9191178533C25810AA4AE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:544D3612856737F6EC9191178533C25810AA4AE0
 ```bash
 magnet:?xt=urn:btih:989A189AAB2E8641ADB3FB5387AC0F15611D0263
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:989A189AAB2E8641ADB3FB5387AC0F15611D0263
 magnet:?xt=urn:btih:D891203B25CD701BA36E8A85B7E4465A45499B9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:D891203B25CD701BA36E8A85B7E4465A45499B9E
 ```bash
 magnet:?xt=urn:btih:E8CC177B7AC6E1BE5292BB295CF2855694413372
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:E8CC177B7AC6E1BE5292BB295CF2855694413372
 magnet:?xt=urn:btih:7335D6798A76B008F7C835055478CE92AFAD8F4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ NG. Три вождя / Inside North Korea's Dynasty (2018) WEBRip [H.264/1080p-
 ```bash
 magnet:?xt=urn:btih:A9E7053070D32BC866011EC0F7BA1AAC07E1E6F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:A9E7053070D32BC866011EC0F7BA1AAC07E1E6F5
 magnet:?xt=urn:btih:CE102F335DF92C9AA8D11087BE68FA372CCF96E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:CE102F335DF92C9AA8D11087BE68FA372CCF96E4
 ```bash
 magnet:?xt=urn:btih:7EAE62A0D8F7AAF0E33063860533A05E37772B1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:7EAE62A0D8F7AAF0E33063860533A05E37772B1F
 magnet:?xt=urn:btih:B85E9034E76A0DE5408300921D43B20C61F5F0C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:B85E9034E76A0DE5408300921D43B20C61F5F0C7
 ```bash
 magnet:?xt=urn:btih:59D3824C3DD45D24BA0224CD1432065C0BFC4DE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:59D3824C3DD45D24BA0224CD1432065C0BFC4DE5
 magnet:?xt=urn:btih:E05D198823FE1752660ED297B9377C13782FD68D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:E05D198823FE1752660ED297B9377C13782FD68D
 ```bash
 magnet:?xt=urn:btih:694BB43EF6EFD4913B31670D24D5C8A1B6738469
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:694BB43EF6EFD4913B31670D24D5C8A1B6738469
 magnet:?xt=urn:btih:A39E92041355954B3361BDB1657C4F1A2E6D3D4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:A39E92041355954B3361BDB1657C4F1A2E6D3D4C
 ```bash
 magnet:?xt=urn:btih:DC8182CC9D0374CAD76C8BEFD3D653B97B7DAEED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:DC8182CC9D0374CAD76C8BEFD3D653B97B7DAEED
 magnet:?xt=urn:btih:CA7180ADE2800FCEC67560833AD60EFEEFE0A7C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +515,8 @@ magnet:?xt=urn:btih:CA7180ADE2800FCEC67560833AD60EFEEFE0A7C6
 ```bash
 magnet:?xt=urn:btih:7906C51BD3CDC2FDF3451BA88B441C8912953F26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:7906C51BD3CDC2FDF3451BA88B441C8912953F26
 magnet:?xt=urn:btih:7EDBC4278C74D3696E54869C79D711579666DA55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +567,8 @@ magnet:?xt=urn:btih:7EDBC4278C74D3696E54869C79D711579666DA55
 ```bash
 magnet:?xt=urn:btih:BFEF2898BABF286C5ECA55EC7F8BB73937A5DCB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:BFEF2898BABF286C5ECA55EC7F8BB73937A5DCB8
 magnet:?xt=urn:btih:3FFF063170B479EBF67EB771B39FB62E44C7A822
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +619,8 @@ magnet:?xt=urn:btih:3FFF063170B479EBF67EB771B39FB62E44C7A822
 ```bash
 magnet:?xt=urn:btih:2E51E032EDFDCCD9965013D3E60D5FED7329DDC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +646,8 @@ magnet:?xt=urn:btih:2E51E032EDFDCCD9965013D3E60D5FED7329DDC1
 magnet:?xt=urn:btih:3F90B0FA6198E078E2555F86F2728BA5EC253F70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,29 +672,7 @@ magnet:?xt=urn:btih:3F90B0FA6198E078E2555F86F2728BA5EC253F70
 magnet:?xt=urn:btih:1D78F85C381D82D745AA77A25C87C01AB161D4E8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275785   (789336) от 13.01.2019
-
-Сила природы / Force of nature (2016) WEBRip [H.264/720p-LQ] (Серии 1-6)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Территория Китая огромна — это третье по величине государство мира. Его площадь превышает площадь Европы, его границы проходят по суше и водам, включая в состав Китая обширные пустыни, высочайшие горы, бескрайние плато, впадины, равнины, могучие реки, озёра, местности с сухим и морозным, влажным и мягким, умеренным климатом. Природа Китая щедро одарила разнообразием (   Читать дальше...   )Производство: Китай, CTV-MediaЖанр: Документальный, природа, флора, фаунаРежиссер: Ли ВэньцзюйПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~ 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C25EA858EDC02770417438EE3AC1127CFAF5D701
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

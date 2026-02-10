@@ -19,6 +19,8 @@ Texifier — это редактор LaTeX, предназначенный дл�
 magnet:?xt=urn:btih:0594D0ADDC8113309FFC99E14ACA9719FE783CCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Tembo умеет искать файлы, папки, письма, заклад
 ```bash
 magnet:?xt=urn:btih:D56DC32518D6ECBA9D58908B3FF392E57EEF5645
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ HoudahSpot помогает вам управлять (   Читать даль
 magnet:?xt=urn:btih:C4315E6B9241207D8241A5531A7887825E0B47D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Repix Pro - универсальное решение для всех ваших
 ```bash
 magnet:?xt=urn:btih:068F08633649DBC5A8C9A5D419B4E94066A62CD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Piezo не требует никаких настроек, достаточно 
 magnet:?xt=urn:btih:8F43F01284917EC19DE1A6E9DCD8739E0E11E063
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ ScreenFloat — приложение для создания висящих на
 magnet:?xt=urn:btih:5602C7B5057A1190868C3FC230F23A889A3D421A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ BatchOutput DOC автоматизирует создание и печать PD
 ```bash
 magnet:?xt=urn:btih:B30E962186C0544A3853A25813BB4B4B4CCFEB73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Adobe Illustrator for Mac 2024 v.28
 magnet:?xt=urn:btih:960FAA08459CD832C9CA0BE131C558CDA8F0887E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Imagenomic Portraiture -  незаменимый фильтр, который п
 ```bash
 magnet:?xt=urn:btih:F09FAE041EBB424FA23BFA440EF9D04A94A9EB71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ Scrivener сочетает в себе возможности текстовог
 magnet:?xt=urn:btih:963C04E84362427C74478AE3B9A0C14D0A8A1BA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ Imagenomic Portraiture - плагин для Adobe Photoshop и Photoshop Elemen
 ```bash
 magnet:?xt=urn:btih:306E8ABFDBF1CA0229ED57FA99EF67E240FABA75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ Magic Battery 8.1.0 [En]
 magnet:?xt=urn:btih:83F512FF935546CD249CAE7D3455F19C4988DA91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ Camtasia for Mac — эффективное приложение для созд
 ```bash
 magnet:?xt=urn:btih:720A20C346E2333B1978F1B46E65A22B17199DBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ Micro Snitch 1.6.1 [Multi]
 magnet:?xt=urn:btih:9AF4150A2953766D44DDB090C435E3ABA023B843
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ Native SQLite Manager — это удобный менеджер баз данн
 ```bash
 magnet:?xt=urn:btih:E370DC19E1396BA2C70A6F05AD16FCB3F02792E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ AYVY 1.22.2 [Multi]
 magnet:?xt=urn:btih:EB8C1AFC9133922B4AD1EB2DB1902FD225697F18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ Wondershare Filmora for Mac  12.4.3 Intel/ARM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:811D8C8B6D0019F44C1B13869E158BB94688943E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ Avid Sibelius — это программное обеспечение для н
 magnet:?xt=urn:btih:8A14D0ABB996B7EEF18CA9C554F4BC34A7019A70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Mirror for Android TV 2.8 [En]
 ```bash
 magnet:?xt=urn:btih:A4AD5E9B5D08963E83623041E86161145D309B4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ Mirror for Hisense TV 3.9.1 [En]
 magnet:?xt=urn:btih:C6BB546BFCA4EA61A98D11CED10EA05816047167
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ Mirror for Roku TV 2.10 [En]
 ```bash
 magnet:?xt=urn:btih:263D0EF65D9DD6E115E1C3AB60443E99E603BDCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ Mirror for Hitachi TV 1.3 [Multi/Ru]
 magnet:?xt=urn:btih:ACF3F51D9F4AAAE78B11E1D944CE237484C2228B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ Mirror for Fire TV  2.8 [En]
 magnet:?xt=urn:btih:D5602838BCDD134474A8EEF1158E452B9F4907DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ Adobe Bridge предоставит вам централизованный до
 ```bash
 magnet:?xt=urn:btih:C5EE3244D9434126909DC001AB9D08E0951A15E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ PDFelement Pro - профессиональный инструмент, кото
 magnet:?xt=urn:btih:996BEB0F24DCAF674CC3481AFD843683AC18A4AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Display Maid позволяет сохранять и восстанавлива
 ```bash
 magnet:?xt=urn:btih:0FC564A8B9C4D0EC1E6F8A8FDB84D6515EDEAF95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

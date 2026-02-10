@@ -19,6 +19,8 @@ Anoxia Station - игра об управлении подземной горн�
 magnet:?xt=urn:btih:E3AEB8093A6E4089764F8EE6EC34B68AADDCEB94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Builders of Greece (2024) [Ru/Multi] (1.0.0 build 18361871) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:70C9E35802915DC3591551D4D60DD0C8F1E5C622
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Drop Duchy - это легендарная геометрическая голо
 magnet:?xt=urn:btih:6B88DD9732AB6F9786A507E244B4CEC77C63E197
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Food Park Manager предлагает заняться строительств
 ```bash
 magnet:?xt=urn:btih:3F583BD9B24589BB29F6B18940D2BA56FE6188A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Drop Duchy - это легендарная геометрическая голо
 magnet:?xt=urn:btih:884D4D9E37BA110BFBF05E6F52CFBD317E21DB4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ MEMORIAPOLIS (2024) [Ru/Multi] (1.0.26) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:C8D3D1C7A3DB80FC5038C21C128F6F235F595FC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ MEMORIAPOLIS (2024) [Ru/Multi] (1.0.26) Repack FitGirl
 magnet:?xt=urn:btih:6EEDBB49A0F1786E0CCFA2AA07C87CEB6DE93C17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Stellar outpost commander передает игроку контроль над 
 ```bash
 magnet:?xt=urn:btih:3F509202327F816EC8BA0AB7B1000B32D447CC16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Pax Augusta (2025) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:410DF57F874D648C6E2F5D94B5E2A796F202891D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Starless Abyss (2025) [Ru/Multi] (1.011) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:F07C7B432490B03908FAC6002BA368A7C9AADFCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Realpolitiks 3: Earth and Beyond (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:F9FC5E886BFBA8F2B012F1F4D26121BD4F7B62FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ SpellRogue (2024) [Ru/Multi] (1.0.0b70/dlc) Repack FitGirl [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:36AA48EC8B031B0351636A98CA45F1F77FAC62D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Citadelum (2024) [Ru/Multi] (2.0.0.10) Repack FitGirl
 magnet:?xt=urn:btih:B00AA6A181676CC2403D037F45622CAA8309A843
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Synergy – это градостроительный симулятор в су
 ```bash
 magnet:?xt=urn:btih:815FE0D992BAD3FF5B44507061B19D8FD7C7CF7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Citadelum (2024) [Ru/Multi] (2.0.0.10/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:A815FDB59357477DC9972C77A11BA414B5BAD9F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Anno 1800 – возглавьте промышленную революцию! 
 ```bash
 magnet:?xt=urn:btih:8BDDE2ECD79E40F5800C42F5CE7207C192653222
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Frostpunk 2 открывает новые грани жанра выживани
 magnet:?xt=urn:btih:D200772C8131E086720DEF6259829DC9DBD2D33E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Commander Quest (2025) [Ru/Multi] (1.0.25.704) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:CCEFE2D5530D57C72761AC31BC9DEC06C534D2F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Spirited Thief переносит игроков в мир темного фэн
 magnet:?xt=urn:btih:672ABE519470ABA0F8D82EDB31E1384E674C92D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Tropico 6 (2019) [Multi] (1290/dlc) License GOG [El Prez Edition]
 ```bash
 magnet:?xt=urn:btih:97BF315958E3ADA37A3E8D2FEEF2D442863B878F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ The Sims 2 (2025) [Ru/Multi] (1.0.0.153/dlc) Repack dixen18 [Legacy Collection]
 magnet:?xt=urn:btih:E7977ED7CE62852DDCC0D26787C2BFC51FDD377E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Microtopia (2025) [Ru/Multi] (1.0.8bb) Repack Other s
 ```bash
 magnet:?xt=urn:btih:48A8D0D7E83A1C6EE9EF999F45992FE9ED29641D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Tropico 6 (2019) [Ru/Multi] (23/dlc) Repack Let'sРlay [El Prez Edition]
 magnet:?xt=urn:btih:E5FC987F099ED81CD52A8024AB2591AAFF24944B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Quilts & Cats of Calico - это уникальная и наполненная 
 ```bash
 magnet:?xt=urn:btih:437AA24E7B88FF3733C922F2342EA92826C33C58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Cities: Skylines предлагает по-новому взглянуть на 
 magnet:?xt=urn:btih:CE6747C5903D307086D8CF967186D6D8AE015D98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Empires of the Undergrowth – это уникальная по своей ме�
 ```bash
 magnet:?xt=urn:btih:ABDC5117B26BC9C8888A9DEE9EC8A7B2999AACFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

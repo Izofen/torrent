@@ -20,6 +20,8 @@ Beginning with the basics, this book provides an outline of the steps necessary 
 magnet:?xt=urn:btih:2EE054CAC89C4B16AF6D69A87BCCDF65D9A40ECB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ New agent environments ranging from games, and robotics to finance are explained
 magnet:?xt=urn:btih:03C0AC43890D270E8A4C53E11946F81DF1C393C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:03C0AC43890D270E8A4C53E11946F81DF1C393C5
 ```bash
 magnet:?xt=urn:btih:2D7921C46EE0FA3ADF8B670025CEC0CA60A6D7DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:2D7921C46EE0FA3ADF8B670025CEC0CA60A6D7DF
 magnet:?xt=urn:btih:5BAFE97D896616A5A4B8CB9433BDA3EA00A476CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:5BAFE97D896616A5A4B8CB9433BDA3EA00A476CC
 ```bash
 magnet:?xt=urn:btih:2620E2C04DE0CE157281A455C00DCB3649B62266
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:2620E2C04DE0CE157281A455C00DCB3649B62266
 magnet:?xt=urn:btih:33286AFB18646BD4DF1FC8A4A8A7A28811E17D0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:33286AFB18646BD4DF1FC8A4A8A7A28811E17D0C
 ```bash
 magnet:?xt=urn:btih:94EFF5EA55712B3D7B3EB30B120F8295F0106C92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:94EFF5EA55712B3D7B3EB30B120F8295F0106C92
 magnet:?xt=urn:btih:2CE9BCE0FB97F6617EBA63F4A2EE373B797D3F3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:2CE9BCE0FB97F6617EBA63F4A2EE373B797D3F3A
 ```bash
 magnet:?xt=urn:btih:0A0E93FDFA45C0632198F7D384BFF4A0FD37F634
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:0A0E93FDFA45C0632198F7D384BFF4A0FD37F634
 magnet:?xt=urn:btih:BDE9C4BF325CD4145937054D5A793D64C6FE21C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ PyCharm – лучшая профессиональная среда разра�
 ```bash
 magnet:?xt=urn:btih:FEA1A209B3F7D6051CD0842B8B9B1FA6F7FF0C33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:FEA1A209B3F7D6051CD0842B8B9B1FA6F7FF0C33
 magnet:?xt=urn:btih:AD01129F14E6B1D2FFFC0A4868BE0240BD6290B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:AD01129F14E6B1D2FFFC0A4868BE0240BD6290B6
 ```bash
 magnet:?xt=urn:btih:32AEA08763BDF3D8A99737E4BAA3F0381C20F049
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:32AEA08763BDF3D8A99737E4BAA3F0381C20F049
 magnet:?xt=urn:btih:1B8F70AD38088D42DEFA6149F529383EF8102CE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:1B8F70AD38088D42DEFA6149F529383EF8102CE9
 ```bash
 magnet:?xt=urn:btih:91D7D33AB982571E28FBA6AD56F7A6E7D17A0785
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:91D7D33AB982571E28FBA6AD56F7A6E7D17A0785
 magnet:?xt=urn:btih:E73691CD21B7D3161CC95AB8ED3AB70BCDC1F40E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:E73691CD21B7D3161CC95AB8ED3AB70BCDC1F40E
 magnet:?xt=urn:btih:E5FE49E1094FE9A0127347B6AD566591510F9F9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:E5FE49E1094FE9A0127347B6AD566591510F9F9D
 ```bash
 magnet:?xt=urn:btih:31297F8E138BF6D2A3962DE932198F8190392284
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ It is aimed at any professional who needs to report and perform data analysis ef
 magnet:?xt=urn:btih:7733E79D07D2AA881FAB4459B7846F1C02DD2615
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ In Acing the System Design Interview you will master a structured (   Чита�
 ```bash
 magnet:?xt=urn:btih:658C46CF86A0584F983949CA7CB1940E8892DE6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:658C46CF86A0584F983949CA7CB1940E8892DE6A
 magnet:?xt=urn:btih:D644F613FBA8C000BA13A5DC1C705F9329B1CE4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ FastAPI — относительно новый, но надежный фрей�
 magnet:?xt=urn:btih:ED43AAEF70E8770D7A347A3310C140F5D384886E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:ED43AAEF70E8770D7A347A3310C140F5D384886E
 ```bash
 magnet:?xt=urn:btih:3D51C469B1777F861A4181C76A533F2785ECF571
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:3D51C469B1777F861A4181C76A533F2785ECF571
 magnet:?xt=urn:btih:970A85A3A427B66C60810BB9E1FD738D9A962006
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:970A85A3A427B66C60810BB9E1FD738D9A962006
 magnet:?xt=urn:btih:7D5C358D8F83A66472C54C9C0A5C084AE18BC2F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:7D5C358D8F83A66472C54C9C0A5C084AE18BC2F0
 ```bash
 magnet:?xt=urn:btih:DB97BF1B4B8E446CC831FB5514F9E7977270E896
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Topaz Video AI 4.0.3 RePack (& Portable) by TryRooM [En]
 magnet:?xt=urn:btih:A0C70F33FDECBD4BA4330FB744340CEF27D8530A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ iCalamus предлагает простой подход к АКДС и явл�
 magnet:?xt=urn:btih:F4436A59215744C88860D5ED6146AE16C3BA03EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ R-Wipe & Clean - программа для невосстановимого уд
 ```bash
 magnet:?xt=urn:btih:1C657DACE06A5196D6ABABF74B3DD4DB8F53A1F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Wise Memory Optimizer 4.2.0.123 [Multi/Ru]
 magnet:?xt=urn:btih:FD572D0AF8E5A4ABA0B3B118B6D5E43364FF6090
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ TunesKit AceMovi Video Editor может отличаться от множес�
 ```bash
 magnet:?xt=urn:btih:F59A04F81DEADF9E968CD79286530E6702493A83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ O&O DiskImage Professional позволяет создавать резервн�
 magnet:?xt=urn:btih:B7404EC1614E2137C66793D386DE3D3F102740A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ VueScan является приложением для работы со ска�
 ```bash
 magnet:?xt=urn:btih:885E9F8A52D95C1E71A537A0AFD9FB8107A4A552
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Amadeus Pro - многотрековый музыкальный редактор
 magnet:?xt=urn:btih:DF4B8147457F088197124780B70A64FAE6850B6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Aiseesoft Mac Blu-ray Player - удобный в работе, медиа про
 ```bash
 magnet:?xt=urn:btih:E773244D44911C43DC270D3EB8E6B18902F71DC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ FastFlix - это простой и дружественный графичес�
 magnet:?xt=urn:btih:CD9AE682533AF70CB1808CB1D9256AA222A77D08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Aiseesoft Audio Converter for Mac Конвертер аудио файлов, п
 ```bash
 magnet:?xt=urn:btih:1432279EEE85A90BE7013960317EF6D4715C0ABD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Tipard Mac Video Converter Ultimate for Mac 10.2.22 [Multi]
 magnet:?xt=urn:btih:DAC08D056E52A0952BD47A096963F0105AA950FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Default Folder X - Расширяет функциональные возмож�
 ```bash
 magnet:?xt=urn:btih:7019EB37D3E1E91AF8985183D7A4D7836885FF3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Aiseesoft AnyCoord for Mac 1.0.16 [Multi]
 magnet:?xt=urn:btih:3A6FEE3E2EF22EF64FAA098CF3AD2303F5640A2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Apeaksoft iOS Unlocker 1.0.50 [Multi]
 ```bash
 magnet:?xt=urn:btih:0AD8A9E6C80887253C61958825F5CEF1ED16EB28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ GraphicConverter 11 — полнофункциональный графичес�
 magnet:?xt=urn:btih:46DFB1A5BC932B8CDFA36A3D719356DAFA65A0F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ PDF Reader Pro - это приложение для редактирования
 ```bash
 magnet:?xt=urn:btih:7640CAB96A14A6A37A81EAD8BA40EF099CE39AE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 magnet:?xt=urn:btih:B09D93D0F30B1E39F16110ABCD02210B4769DA9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ AlDente Pro fo Mac 1.23 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C98B289B1808BECA05B74DD5C4D07A1EFF4F99B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ MediaHuman YouTube Downloader 3.9.9.87 (0811) RePack (& Portable) by TryRooM [Mu
 magnet:?xt=urn:btih:5D5F584EEFC580631895B152CA727F5FAB800AF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:AA5969FF546A360FA273A192FFF521F5F7A2F54F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:D7EB6A84EFD835B40B7C6F89CFBCEDD89502C49F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:9D4C148F4977862C7362A7A91380538A55291A69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ Brave - защищённый веб-браузер на базе Chromium, по�
 magnet:?xt=urn:btih:E2EE7937986838CEE52D62319C0B3B24EC628E02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ Media Player Classic Home Cinema - удобный во всех планах м�
 ```bash
 magnet:?xt=urn:btih:FCEB7D311CF3D601D6535B21A4445FFE7CF9B5D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +671,8 @@ Perfectly Clear — приложение, которое позволяет вс
 ```bash
 magnet:?xt=urn:btih:89A00C435DD2BC9C587BD30C0CF6AC2FD1A02DC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

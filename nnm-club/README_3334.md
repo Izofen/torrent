@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:2CDA2489C7FF9F8C5D1F1B87E09B8C690173FF8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:2CDA2489C7FF9F8C5D1F1B87E09B8C690173FF8A
 magnet:?xt=urn:btih:20E70B9FF6A9FA162AC9355A4AA3657C1A888B43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ City of Stories 2: The Professor's Secret (2024) [En] (1.0) Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:2345B083D20049D646CD04DF95DAF08FF8C26BF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Majo to Yajuu | The Witch and the Beast | Ведьма и зверь [2024, TV, 
 magnet:?xt=urn:btih:7857A026AF1DC6978B883ABCFCCD3FE13E21525C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Sokushi Cheat ga Saikyou Sugite, Isekai no Yatsura ga Marude Aite ni Naranaindes
 ```bash
 magnet:?xt=urn:btih:28EE3727BCB7A58C51E9479404DF931386D9B714
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:28EE3727BCB7A58C51E9479404DF931386D9B714
 magnet:?xt=urn:btih:52512F626885D8467D6E4B45E3DE191D7237BE98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ I Was a Teenage Exocolonist (2022) [En] (1) License GOG
 ```bash
 magnet:?xt=urn:btih:44D888E9843FAC8F7BB2783F41DE10A3D8DB2B26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:44D888E9843FAC8F7BB2783F41DE10A3D8DB2B26
 magnet:?xt=urn:btih:52162B7ACFCB4F884C9467E03FF3B061B41301D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:52162B7ACFCB4F884C9467E03FF3B061B41301D6
 magnet:?xt=urn:btih:83A60FCFC17380535EC582A7C7F44E9CDB00D096
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:83A60FCFC17380535EC582A7C7F44E9CDB00D096
 ```bash
 magnet:?xt=urn:btih:20DA3A13776D40739F19369149828D5E473B5B5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:20DA3A13776D40739F19369149828D5E473B5B5D
 magnet:?xt=urn:btih:9EF4F43864269B56A8242505F587A757C61A05D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Asterix & Obelix: Slap them All! представляет знаковых пе�
 magnet:?xt=urn:btih:22D07D1353DEA3DB367B3B28455D5BE397B8C6A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Steinberg WaveLab Pro 12.0.30 build 696 (x64) Portable by 7997 [Multi]
 ```bash
 magnet:?xt=urn:btih:15486597429D7614F138BA22EDD06269AF5368D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:15486597429D7614F138BA22EDD06269AF5368D4
 magnet:?xt=urn:btih:E76BD0BD8F143FE09A81E66A438F5C5C201CDAD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:E76BD0BD8F143FE09A81E66A438F5C5C201CDAD8
 ```bash
 magnet:?xt=urn:btih:AF757E69CD5BA8EB41E0414768CA8B3348BB04A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:AF757E69CD5BA8EB41E0414768CA8B3348BB04A8
 magnet:?xt=urn:btih:B6079267C2006F9E8EFD7CBFD5C86A0359DB4F96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 ```bash
 magnet:?xt=urn:btih:C763F2595236E5F833D05493CDC03652DF242457
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:C763F2595236E5F833D05493CDC03652DF242457
 magnet:?xt=urn:btih:55107CFC942CA2BC868BC3730D88151CCA30FEE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:55107CFC942CA2BC868BC3730D88151CCA30FEE3
 ```bash
 magnet:?xt=urn:btih:18509CD79C1DF700C9B8F3453CC02398B073A194
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:18509CD79C1DF700C9B8F3453CC02398B073A194
 magnet:?xt=urn:btih:AD458E0EA1119A94FCE632D0F21D2BAE2938BFD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:AD458E0EA1119A94FCE632D0F21D2BAE2938BFD4
 ```bash
 magnet:?xt=urn:btih:8852B8EC50C3B92E1A4740EC1A6F58241EE1E0E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ Lorne Lofsky, Guido Basso, Joey DeFrancesco, Vito Rezza - Alma Records Presents 
 magnet:?xt=urn:btih:AFF266890E06E619902F531A785ED03418BB8CDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ Spahn Ranch - The Coiled One (1995) Deluxe Edition, 2024, Cleopatra Records [FLA
 magnet:?xt=urn:btih:395D5C79747F795273E1ABFB13C45BB074D73180
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:395D5C79747F795273E1ABFB13C45BB074D73180
 ```bash
 magnet:?xt=urn:btih:52566208004747DE65EBEBC504C73AD00463A1DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ Nothing But Thieves - Dead Club City (2023) Extended Deluxe, 2024, RCA Records L
 magnet:?xt=urn:btih:5BE8BA518DF71ED891B3162DBFBDC9AF21270816
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:5BE8BA518DF71ED891B3162DBFBDC9AF21270816
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

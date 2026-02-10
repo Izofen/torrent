@@ -19,6 +19,8 @@ NGW: Неудачи хищников / Predator Fails (2015) HDTV [H.264/1080i-L
 magnet:?xt=urn:btih:F292722A96FC6D4F45341D913A1F2F5AF2DD6328
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NG: Начало (Происхождение: Путешествие челов�
 ```bash
 magnet:?xt=urn:btih:25788A065F6B895A6D3DC34CE3D9D2EC3DFB2E40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:25788A065F6B895A6D3DC34CE3D9D2EC3DFB2E40
 magnet:?xt=urn:btih:9C23C638C62722ECC24C7E7B1C0B0619C6360F97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Animal Planet. Кошек не любить нельзя [6 серия] / Must l
 ```bash
 magnet:?xt=urn:btih:01A235DD3407F2E85A1647AF8021E928801EF942
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ NG: Секс в каменном веке / Sex in the Stone Age (2011) HDTV [H.
 magnet:?xt=urn:btih:9F136ECC5E5A382BAB90722F91331A34C6DBD542
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Animal Planet. Кошек не любить нельзя [4 серия] / Must l
 ```bash
 magnet:?xt=urn:btih:45B15C838617236CC8F17A54C55B92396AD1C552
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Animal Planet. Кошек не любить нельзя [5 серия] / Must l
 magnet:?xt=urn:btih:B35651A1C1038C95F056245A802CA43BC9F222E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Animal Planet. Кошек не любить нельзя [3 серия] / Must l
 ```bash
 magnet:?xt=urn:btih:0EF2EE688036161E4DFC9B82FEED694F56739EEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ BBC. Восхождение животных: Триумф позвоночны�
 magnet:?xt=urn:btih:F6917ED7BC907A4164406326C062D99A055303A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:F6917ED7BC907A4164406326C062D99A055303A8
 ```bash
 magnet:?xt=urn:btih:DACD56FA62F716B0719ADA0CC75654DA235A064A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:DACD56FA62F716B0719ADA0CC75654DA235A064A
 magnet:?xt=urn:btih:0CDA5D173857EB0676B86F69DE7C1260CEB39F63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Animal Planet. Кошек не любить нельзя [1 серия] / Must l
 ```bash
 magnet:?xt=urn:btih:3D296274E6BD84B891F3009B8EB209262267A4E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Animal Planet. Кошек не любить нельзя [2 серия] / Must l
 magnet:?xt=urn:btih:A9212B40F4B43868876360B205BBBE5B9B36ECB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Discovery: Смертельный улов / Deadliest Catch (2010) TVRip (Се�
 ```bash
 magnet:?xt=urn:btih:C9A9C83493117C562D139EA747D30F2A1F7CE8BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ NG: Землетрясение на Эвересте / Earthquake on Everest (20
 magnet:?xt=urn:btih:DEE5B65345D72E3240462CF9D9851BCE534DFC83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ BBC. Мир природы. Обитатели пробкового леса (28
 ```bash
 magnet:?xt=urn:btih:98628499C86691DD7901E8F2DD87C3AE3F8D45EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ BBC: Жизнь в воздухе / Life In The Air (2016) HDTVRip [H.264/720p-L
 magnet:?xt=urn:btih:E9CE12440A1D764390E73CFAA7A78FA3AD0F9A51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ NG: Секретные материалы древности:  Вампиры с
 ```bash
 magnet:?xt=urn:btih:99EA71BE04E04C49DCD15EB0006F4E1AE8656BE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:99EA71BE04E04C49DCD15EB0006F4E1AE8656BE2
 magnet:?xt=urn:btih:22B0C1D6B41323FDB312413F1774FFDDFADB860F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ NG: Расследования авиакатастроф / Air Crash Investigat
 ```bash
 magnet:?xt=urn:btih:5733AD1676267FD59CF0477C48D189C70F8CDF03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ PBS: Мозг с Дэвидом Иглменом / The Brain with David Eagleman
 magnet:?xt=urn:btih:44AA85F7B5DAB8DD140F64342C31F4F4DBE64A07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ NG: Известная Вселенная. От атома до космоса /
 ```bash
 magnet:?xt=urn:btih:2E3798807D6D50F2C5265F0544651531E4845781
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ NG: Пустынное море / The Desert Sea (2016) HDTVRip [H.264/720p-LQ] 
 magnet:?xt=urn:btih:5A28D79D8DB2E370CFA4D5C839F48FAE453960D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ NG: Жизнь в эпоху самолётов / Living in the Age of Airplanes
 ```bash
 magnet:?xt=urn:btih:7D8FA26AEAF8C904EFA783D0AB4B0FEFC17945B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ NGW: Маленький гигант / Little giant (2015) HDTV [H.264/1080i-LQ]
 magnet:?xt=urn:btih:2CC43F35BB91890219D342975DEF5F26C2059A8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ BBC: Замерзшая планета / Frozen planet (7 серий из 7, в�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

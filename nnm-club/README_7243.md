@@ -22,6 +22,8 @@ V.A. - Videosyncratic (A Taste Of Synth Pop) (2018) [FLAC|Lossless|image + .cue]
 magnet:?xt=urn:btih:C6D21BDDFBEA4F4420860635B8A6C0C4F23FA5DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:C6D21BDDFBEA4F4420860635B8A6C0C4F23FA5DF
 ```bash
 magnet:?xt=urn:btih:A52AC725FD24EF4C6CFA04418E8C4F52F2F13E54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:A52AC725FD24EF4C6CFA04418E8C4F52F2F13E54
 magnet:?xt=urn:btih:9B4869F52B26C491DD1BB95FE5CE189C42F5C185
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:9B4869F52B26C491DD1BB95FE5CE189C42F5C185
 ```bash
 magnet:?xt=urn:btih:A167DFBB8BAE5974E508902E548BBA5284A65DF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ Iggy Pop - Avenue B (1999) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 magnet:?xt=urn:btih:E2AB795002486E9054003F05BA43F5FC93B39F1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:E2AB795002486E9054003F05BA43F5FC93B39F1C
 magnet:?xt=urn:btih:3A0BE22FF074BC659A6DA61D8240E46E42C8B715
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:3A0BE22FF074BC659A6DA61D8240E46E42C8B715
 ```bash
 magnet:?xt=urn:btih:92F1E02DDD4FE61236B484348915525AF5429300
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ Jennifer Lopez - J To Tha L-O! (The Remixes) (2002) [OGG Vorbis|480 Kbps] <Elect
 magnet:?xt=urn:btih:96C5F43FEA56C71CB579BA94632FDD4EE22A14F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:96C5F43FEA56C71CB579BA94632FDD4EE22A14F7
 ```bash
 magnet:?xt=urn:btih:ADEC58437AC49AD04FDCB21D32258F65A7D383A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:ADEC58437AC49AD04FDCB21D32258F65A7D383A4
 magnet:?xt=urn:btih:73C41170C85AE6CC43C4C9C90E6DBE3729AA1D7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:73C41170C85AE6CC43C4C9C90E6DBE3729AA1D7A
 magnet:?xt=urn:btih:8CC80BBD57ABC02C3CA4F2987E62412E9F2CE5EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:8CC80BBD57ABC02C3CA4F2987E62412E9F2CE5EF
 ```bash
 magnet:?xt=urn:btih:B7350F023BFA195D4D7D33C023DBBAA5079AC602
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:B7350F023BFA195D4D7D33C023DBBAA5079AC602
 magnet:?xt=urn:btih:726245DEC7CA6F46958E6D895AB240BF1B751757
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:726245DEC7CA6F46958E6D895AB240BF1B751757
 ```bash
 magnet:?xt=urn:btih:69DA42AB8EF2659BF660C250CF9DC7C658CA7158
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:69DA42AB8EF2659BF660C250CF9DC7C658CA7158
 magnet:?xt=urn:btih:C1BE863E5C4789B17E8BAB309D1351A58BBB66EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:C1BE863E5C4789B17E8BAB309D1351A58BBB66EB
 ```bash
 magnet:?xt=urn:btih:E53C6112C1C99954E8262431E4682C37ACF5903E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ CD1:
 magnet:?xt=urn:btih:1E724544809C18DEFC00F8A1CFF535C52D666288
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ magnet:?xt=urn:btih:1E724544809C18DEFC00F8A1CFF535C52D666288
 magnet:?xt=urn:btih:E4A9A8677596F2ABC182FE62C8621D28011D079E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:E4A9A8677596F2ABC182FE62C8621D28011D079E
 magnet:?xt=urn:btih:EADB7FBC9AEB22E1D445306310A0E512FFF29889
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:EADB7FBC9AEB22E1D445306310A0E512FFF29889
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +558,8 @@ Rhinoceros 7 v7.1.20322 [Multi/Ru]
 magnet:?xt=urn:btih:F0EAAC6F44599DEB51A2835C13693F0BEAF9314F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:F0EAAC6F44599DEB51A2835C13693F0BEAF9314F
 magnet:?xt=urn:btih:FF137B42ACEFB3FBEEA09F5846639C65A695CBBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:FF137B42ACEFB3FBEEA09F5846639C65A695CBBA
 ```bash
 magnet:?xt=urn:btih:847E999CA382AA9F9F15596ECA665605CF5E12A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +639,8 @@ Bon Jovi - New Jersey (1988) Reissue, Remastered, 1998, Mercury [OGG Vorbis|480 
 magnet:?xt=urn:btih:90E2B729E94BC42A9E3A93A899DCCCE749338614
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +668,8 @@ FOUR FISTS (P.O.S x Astronautalis) - 6666 (2018) [FLAC|Lossless|Web-DL|tracks] <
 magnet:?xt=urn:btih:FA3813FEA640D920A7F1904ADE6315C2E0C840BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ magnet:?xt=urn:btih:FA3813FEA640D920A7F1904ADE6315C2E0C840BF
 ```bash
 magnet:?xt=urn:btih:895D3B7A770986F8283BAAD7E41500309F09B80F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

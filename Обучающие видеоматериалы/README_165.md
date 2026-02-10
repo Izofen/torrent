@@ -19,6 +19,8 @@ Shane Hurlbut | Продвинутая коммерческая режиссур
 magnet:?xt=urn:btih:9C39596065299027CB37D56A823FC919CE36E944
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Shane Hurlbut | Как освещать рекламные ролики в вы�
 ```bash
 magnet:?xt=urn:btih:7DAC1DA5F0F9E9E719722E516A71423EDBA4F372
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:7DAC1DA5F0F9E9E719722E516A71423EDBA4F372
 magnet:?xt=urn:btih:2B451EFCD336A6B27BB3D9CC13E7C5787FC772F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ Skillbox | Основы математики для Data Science (2020) PCRec
 ```bash
 magnet:?xt=urn:btih:00788E2609A50B4A2EFBA4750B764355EF2C7C0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ Skillbox | Тайм-менеджмент (2020) PCRec
 magnet:?xt=urn:btih:D7EB1F8C9453FDD22021C8CBB12FA1B13AFAA9CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ ZTM | Веб и мобильный дизайн в 2020 году: UI / UX, Figma
 magnet:?xt=urn:btih:CFD8EC413F9C6871E8874ACA54DC81341BE2B499
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ Brian Yu, David J. Malan | CS50. Веб-программирование с Pyth
 ```bash
 magnet:?xt=urn:btih:432D530F17E11359AFD4670C983E9508082AE49E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +217,8 @@ ZTM | SQL + Базы данных Bootcamp: Zero to Mastery / Complete SQL + Dat
 magnet:?xt=urn:btih:75D69019108CEDEDABC3CD684D74C87FCAEA10F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ Peter Hurley | Совершенствование портретов / Perfectin
 ```bash
 magnet:?xt=urn:btih:621B0619DAEB97A4F97828B8B2E2894667B20E82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ Philip Bloom | Кинопроизводство для фотографов / Fi
 magnet:?xt=urn:btih:2BA060CC9E4BCA36ADC546BB38AA35639DCEBC7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ Rebecca Yale | Более чем красивые тона. Руководств
 ```bash
 magnet:?xt=urn:btih:006D0352F8F07E4F2DB359F70E5F89987C16D881
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ Udemy, Nexttut, Nikolay Naydenov | Female Character Creation in Zbrush (2019) PC
 magnet:?xt=urn:btih:50F64599C3D1437AF875186174EAA3C02FABA479
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:50F64599C3D1437AF875186174EAA3C02FABA479
 ```bash
 magnet:?xt=urn:btih:3D8F0B0FB4338D76A8886667851737A355219A0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ Pluralsight.com | Advanced Python (2017) PCRec [H.264/720p-LQ] [RU/EN]
 magnet:?xt=urn:btih:E254107E2BE5491ED5C19F655AFEB3DC243EFE1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ magnet:?xt=urn:btih:E254107E2BE5491ED5C19F655AFEB3DC243EFE1C
 magnet:?xt=urn:btih:8189594938CF9FF47FE4801569EE775B3E48A374
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:8189594938CF9FF47FE4801569EE775B3E48A374
 ```bash
 magnet:?xt=urn:btih:E006BC340152B5C0A404C329EE74C7C653068803
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ magnet:?xt=urn:btih:E006BC340152B5C0A404C329EE74C7C653068803
 magnet:?xt=urn:btih:C1B7CEA5446D96C0F555EAFF50CD2B5BD9920159
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ magnet:?xt=urn:btih:C1B7CEA5446D96C0F555EAFF50CD2B5BD9920159
 ```bash
 magnet:?xt=urn:btih:2C8B0A8D961E24F1C4BD40581B55F5CB3DDEC28A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +514,8 @@ Web-клиенты для 1С - онлайн-митап, посвященный 
 magnet:?xt=urn:btih:1430610C7D60DD43CEC413DBE47F74E644BA5DB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +542,8 @@ magnet:?xt=urn:btih:1430610C7D60DD43CEC413DBE47F74E644BA5DB1
 ```bash
 magnet:?xt=urn:btih:EAABEE0DA370AB657204931EF9011010ABCD5713
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +572,8 @@ magnet:?xt=urn:btih:EAABEE0DA370AB657204931EF9011010ABCD5713
 magnet:?xt=urn:btih:590A9E91A532656CB39A6614ACFC4F68A30E5312
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +598,8 @@ Jillian Michaels | Shred-It With Weights (2010) DVDRip [RU, EN]
 ```bash
 magnet:?xt=urn:btih:7E4E49EAC1C6B6FCF8DADA31FA1073E4ED50C9D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +626,8 @@ Pluralsight | Моделирование штурмовой винтовки в 
 magnet:?xt=urn:btih:44D7F69E27D2F4B41FB47ECA5638D25002AB8C27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +651,8 @@ magnet:?xt=urn:btih:44D7F69E27D2F4B41FB47ECA5638D25002AB8C27
 ```bash
 magnet:?xt=urn:btih:BDAE0DA5DDFC4E39A66979C7FE408F29A925481E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +678,8 @@ Tony Horton | THF (2014) WEBRip [H.264/1080p-LQ] [EN]
 magnet:?xt=urn:btih:C3182716CCC34950FADC50C487B610DF06F2C5AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +704,8 @@ Gumroad, Tim Bergholz | Ultimate Weapon Tutorial – Complete Edition (2015) PCR
 ```bash
 magnet:?xt=urn:btih:F82B5C73249E69829435C34833A636C3EB2B342B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

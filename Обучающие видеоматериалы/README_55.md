@@ -22,6 +22,8 @@ Fivealeks | Курс по обработке фотографий (2021) PCRec
 magnet:?xt=urn:btih:CFABB205681C4F99C1CC3F1B8A271500C0E4BA03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Klaus | Зеркало Интернета 2. Поиск приватной ин�
 ```bash
 magnet:?xt=urn:btih:E58BEFB507FBDE5479E6FBFE6EB955AF8532C12B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ PhotoCasa, Arma Gray | Продающий фотограф. От съёмки д
 magnet:?xt=urn:btih:FE177617B74F51574CDE8E8F5F984238FED342B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:FE177617B74F51574CDE8E8F5F984238FED342B7
 ```bash
 magnet:?xt=urn:btih:11D517E24C7BBE099716B3A99A71AE4A634E618F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Stable Diffusion — одна из передовых нейросетей в о
 magnet:?xt=urn:btih:6EB09DA89EBFBDC5ED6F8F6145400D24FF0CB1C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ SDKO, Ирина Ружанская | Конструирование и поши
 ```bash
 magnet:?xt=urn:btih:7683C9486B04A0E671BF50B80D4577955252F3CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -182,6 +194,8 @@ magnet:?xt=urn:btih:7683C9486B04A0E671BF50B80D4577955252F3CA
 magnet:?xt=urn:btih:EB649510914EA2F2926DA3CCF86B455DFCF6FA8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ Fine Courses, Юлия Киселева | Воркшоп 2.0 Нейросети 
 ```bash
 magnet:?xt=urn:btih:513E5FE5A335F1A30E1077346149599C68798A21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -234,6 +250,8 @@ magnet:?xt=urn:btih:513E5FE5A335F1A30E1077346149599C68798A21
 magnet:?xt=urn:btih:B574EB3851A2CDDB211B6FBC6B563792B07C754E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +278,8 @@ Frontend-разработчик создаёт интерфейсы, с кото
 magnet:?xt=urn:btih:583259D3F5DE286A5E0618132645506D56375F8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +304,8 @@ Udemy, Сергей Семёнов | Selenium и Selenide для начинаю�
 ```bash
 magnet:?xt=urn:btih:3CC5AFC5E576BEE31AC0138F82E5BE3FA6EFA95A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +334,8 @@ Udemy, Bogdan Stashchuk | Полное руководство по Git: пойм
 magnet:?xt=urn:btih:A7BD4D4BAB0DB56D5DA3D16AFA96184DF1937C62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +360,8 @@ Level Up Studio | Видеомонтаж Обучение (2020) PCRec
 ```bash
 magnet:?xt=urn:btih:80A0374B2CBF9168BB1E1A401DEC42870855A87C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +390,8 @@ magnet:?xt=urn:btih:80A0374B2CBF9168BB1E1A401DEC42870855A87C
 magnet:?xt=urn:btih:957D259BA9F72626E9B6214C5E148723FA01E052
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +415,8 @@ Udemy, Alexander Batashov | Laravel - Создание Админ Панели. 
 ```bash
 magnet:?xt=urn:btih:54E0869FD2EB6C25D391017F585498C8B3B9BA66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +443,8 @@ Udemy, Timur Mashnin | Введение в объектно-ориентиров
 ```bash
 magnet:?xt=urn:btih:66664688A90670824261A72247B6DD13AD379D3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +473,8 @@ SOLID - это аббревиатура, обозначающая SRP, OCP, LSP,
 magnet:?xt=urn:btih:378EB86EE55BC4CFB363F7096066BEC907FD1D19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +501,8 @@ magnet:?xt=urn:btih:378EB86EE55BC4CFB363F7096066BEC907FD1D19
 ```bash
 magnet:?xt=urn:btih:354A06A470169537555CCA5BBC09E506B4C7C4FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +531,8 @@ Greatercommons, Todd McLeod | Веб-разработка на языке про
 magnet:?xt=urn:btih:1EEEE103DC0A4955DF91347D2C1F0F17B0296448
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +560,8 @@ magnet:?xt=urn:btih:1EEEE103DC0A4955DF91347D2C1F0F17B0296448
 magnet:?xt=urn:btih:66FF1867D5671464513866AEA30D9FF2E0463708
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +585,8 @@ Udemy, Imtiaz Ahmad | Головоломки Java для устранения с
 ```bash
 magnet:?xt=urn:btih:4D563C899C1D6DCC5A394B2D63BD178BB1D33BB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +612,8 @@ Udemy, Mehmet Nuri Yumuşak | Разработка Backend (API) с Python от 
 magnet:?xt=urn:btih:47B586026DFECFD74D84087900478AF986798951
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +637,8 @@ magnet:?xt=urn:btih:47B586026DFECFD74D84087900478AF986798951
 ```bash
 magnet:?xt=urn:btih:25B6169C137F92BC19936E5CF557AC761E1A6E68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +665,8 @@ Udemy, Clyde Matthew | Секреты веб-разработки 2020 - CRP, HT
 magnet:?xt=urn:btih:C1CA61F72141F2AA6E5E23A2AF53E79DAAA811E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +690,8 @@ Udemy, Holczer Balazs | Рекурсия, Бэктрекинг и Динамич
 ```bash
 magnet:?xt=urn:btih:4C28865770C73F93DE1E20512B657E19F7841D7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +717,8 @@ BIOMACHINE, Роман Овчаров | Методический материа�
 ```bash
 magnet:?xt=urn:btih:AF8BE4DD3146554F87637879059498AD78912D6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

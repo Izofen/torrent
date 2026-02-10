@@ -19,6 +19,8 @@ MediaHuman YouTube to MP3 Converter 3.9.9.98 (2603) RePack (& Portable) by elchu
 magnet:?xt=urn:btih:64E89B1C0BC12E8C7547C0E38C39F587F77E31C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ IPTV Pro v9.0.12 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8537EB2F7DBC5B6EACDAB3E32D153319F04372B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Topaz A.I. Gigapixel — это приложение, использующее �
 magnet:?xt=urn:btih:9542A12EAF169CB2F80177B394F9D947CADB3849
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ FreeFileSync - это утилита, которая была разработа
 magnet:?xt=urn:btih:A6A28D9E9D80BD04D388DF7621A142EB3D62A0E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Visual Studio Enterprise 2022 - Интегрированное комплекс�
 ```bash
 magnet:?xt=urn:btih:C42660D4F33BB813984773DF3CC1BA762C73326D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Windows Manager - это универсальная утилита для Micros
 magnet:?xt=urn:btih:DA5AE954EDBEA066F3E0B24E51C2F6C339CAF4DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ LibreOffice - офисный пакет с открытым исходным к�
 ```bash
 magnet:?xt=urn:btih:B0779CD6241A8C78BEB892A61DFCFBB4C222F068
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ eWeather HDF - это точный прогноз погоды от двух м�
 ```bash
 magnet:?xt=urn:btih:D290C29A91B046FCBE62D8D28780A4B1A636FBF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:A85087AF38FBBC0FE118AFAC8F9DFB18F52A4986
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ ByClick Downloader (бывший YouTube By Click) - отличный и удо�
 ```bash
 magnet:?xt=urn:btih:E3EDF66E7A8051C700830355B18896F40050CAD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ Opera One 117.0.5408.163 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:0644BDAC75FEA48B345C6C01E6FD59607C3FD35C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:8121708A573706A71390C869DCDD9766B49B2815
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:DF135BD07C1B9DAABBCD3A50879B9B8861CFFAEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ MediaHuman YouTube Downloader 3.9.9.98 (2603) RePack (& Portable) by elchupacabr
 ```bash
 magnet:?xt=urn:btih:427053D047B806BEA004A2F566A8D6ACE4F082F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Adobe Photoshop 2025 - новая версия программы для обр�
 magnet:?xt=urn:btih:62D47E0BF2C3E5066657763BB83581FD86027F90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:B0AFEB5834998F3C50EBBEC2D8DEB3546301363A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ WinRAR - один из самых известных архиваторов. Т�
 magnet:?xt=urn:btih:94C37C001AB626C036524DE1AFC86D3B9D4F5E89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ RegCool 2.032 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6BA80184E0669FC83A4FA9046B7B0326628F9CCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:1A5C2579B466F8DC588C3078F8ECEFFB22F9B93C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Polarr v6.11.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:996CBAC5383870752F7E1472010C6E9E934B360F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ Brave - защищенный браузер на базе Chromium, постро
 magnet:?xt=urn:btih:B99A83D0A7426AA1F529776A688B122D7CB0871D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:3B29D08FCE70C326EA2789D81D61C478E5421850
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ Material Pods: батарея AirPods v6.63 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:3A744EAE2618297D8D92B9999FDE7237F864FC3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:1D68AC6FC52F602F6C7A983D5672E6D7BC51E170
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ Scaler 3 это уникальный и вдохновляющий MIDI-проц
 magnet:?xt=urn:btih:B3EC67285D9786FE1D7E169BC9979E0BEF91AFDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ TweakPower – представляет собой единый графичес
 ```bash
 magnet:?xt=urn:btih:3C5717FE2D5915D1E8F75F556E0C3C2D6A075F20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

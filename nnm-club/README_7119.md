@@ -19,6 +19,8 @@ Wondershare Filmora - удобный видеоредактор, содержа�
 magnet:?xt=urn:btih:CD9DD9972F852904141660FF5FE2FB7B7DF0C896
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ iCash - приложение, которое позволяет вести пе�
 ```bash
 magnet:?xt=urn:btih:F018906C1205865A879DFB8BE2A2B44DF443055E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ DesktopOK - небольшая бесплатная и портативная (�
 magnet:?xt=urn:btih:92B0196497D8D7BE091FA0969D339DD9C19BEE3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:92B0196497D8D7BE091FA0969D339DD9C19BEE3D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Linux Magazine - журнал, целиком посвященный опера�
 ```bash
 magnet:?xt=urn:btih:EFC92BF2C8D156682D89E0866B091B8517B57E02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Venom - Storm The Gates (2018) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Thras
 magnet:?xt=urn:btih:2369C65BB0C1E64C10CD0C00B5F20EE44C4FA8E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Honest food - журнал об уютной домашней еде, о маг�
 magnet:?xt=urn:btih:5DAB3B63E09FA0AF9DEED22DD96C13C032E8934D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:5DAB3B63E09FA0AF9DEED22DD96C13C032E8934D
 ```bash
 magnet:?xt=urn:btih:EB3745CA2391C72D8A191E051A8E6BBAF4CE7BCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ Unmixed
 magnet:?xt=urn:btih:6FBFCDFEDA8583F39E1F78D09D9A6E627B3AD24F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:6FBFCDFEDA8583F39E1F78D09D9A6E627B3AD24F
 ```bash
 magnet:?xt=urn:btih:8DF5D3BFFDB5EACA1434F40A405CBA85326971F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ Honest food - журнал об уютной домашней еде, о маг�
 magnet:?xt=urn:btih:0B242CEACEEAF0CFC6E379C3DA72B3DAFA273DD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:0B242CEACEEAF0CFC6E379C3DA72B3DAFA273DD7
 ```bash
 magnet:?xt=urn:btih:8F84A6254B5D8B09E334CE776153D1FCB97BB54D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:8F84A6254B5D8B09E334CE776153D1FCB97BB54D
 magnet:?xt=urn:btih:454906343821727BC7389C2AD003CB88FA1A8685
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:454906343821727BC7389C2AD003CB88FA1A8685
 magnet:?xt=urn:btih:5494B9D2FECEA99A9D1ACAD6A38E6F93C8BC7CDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:5494B9D2FECEA99A9D1ACAD6A38E6F93C8BC7CDB
 ```bash
 magnet:?xt=urn:btih:EE96595245887ED7DFFD49D94939860397D07423
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:EE96595245887ED7DFFD49D94939860397D07423
 magnet:?xt=urn:btih:31947EB0671D35FE6B8B2DBF64203F9B7B78BCCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:31947EB0671D35FE6B8B2DBF64203F9B7B78BCCF
 ```bash
 magnet:?xt=urn:btih:6BC99CA5729B6DABA81A3EE9C0D58B914469D556
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +477,8 @@ magnet:?xt=urn:btih:6BC99CA5729B6DABA81A3EE9C0D58B914469D556
 magnet:?xt=urn:btih:BB246363D01BFD0EA62129315DDA7C5EB9F02F67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:EE35FB7419F41DD63B460904B627E82F3BA3EC38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ magnet:?xt=urn:btih:EE35FB7419F41DD63B460904B627E82F3BA3EC38
 magnet:?xt=urn:btih:F5B45BCB298389BCD9243359C28F02DF8CCC845A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ magnet:?xt=urn:btih:F5B45BCB298389BCD9243359C28F02DF8CCC845A
 magnet:?xt=urn:btih:276030E9F22907462FDD2E92A827624D516D2FAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +587,8 @@ magnet:?xt=urn:btih:276030E9F22907462FDD2E92A827624D516D2FAB
 ```bash
 magnet:?xt=urn:btih:0EB6F710D6771D40994182717275BA3BA01E4E20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +617,8 @@ Supermax - 20th Anniversary (1997) 2CD, Compilation [FLAC|Lossless|image + .cue]
 magnet:?xt=urn:btih:F40B728F2214411103993898DD0B2FD1E7C5ADAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +642,8 @@ magnet:?xt=urn:btih:F40B728F2214411103993898DD0B2FD1E7C5ADAE
 ```bash
 magnet:?xt=urn:btih:A5519EB57A30956315EDDCC0BDB3BAFEB1A1D468
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +672,8 @@ Disc 1:
 magnet:?xt=urn:btih:F2ECF106475E9860D32E361469997D63B8DDE7E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ magnet:?xt=urn:btih:F2ECF106475E9860D32E361469997D63B8DDE7E9
 ```bash
 magnet:?xt=urn:btih:9EF4A6923245CC244F757C6E8C359AD3CBA36FA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

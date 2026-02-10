@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:A48BD054C9F1BC3A75BAC841B500AEFB83F9E3D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:A48BD054C9F1BC3A75BAC841B500AEFB83F9E3D8
 magnet:?xt=urn:btih:6D351406D8D76BDCFFFD13CB21CC46B98AC6BDEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:6D351406D8D76BDCFFFD13CB21CC46B98AC6BDEB
 ```bash
 magnet:?xt=urn:btih:388B5013CCB9F5C9B138AB25F950AAD0615DB7B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Tailwind CSS — это новый интересный CSS-фреймворк, 
 magnet:?xt=urn:btih:A5054ECA88F63F8E13A19449AF29C621C5250D56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Rob Chapman, Peter Holmes | Observability with Grafana (2024) [PDF][EN]
 magnet:?xt=urn:btih:07D5BF64BD1A82E1196FFDD854C0C3A16D806143
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Jonathon Simpson | How JavaScript Works (2024) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:0DC8E1A06E649A6E0623565B5326F10A36670EB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:0DC8E1A06E649A6E0623565B5326F10A36670EB1
 magnet:?xt=urn:btih:26D28857C05B49D09F651DD3D0E10E1FD0DE9A7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Blender является средой рендеринга/анимации/ра
 ```bash
 magnet:?xt=urn:btih:848CA082A81A6BDE761034DE3E1434EF3486C3F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:848CA082A81A6BDE761034DE3E1434EF3486C3F9
 magnet:?xt=urn:btih:680D09B76DDE765E92D6C26E1D113E4F33AA799C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Windows 7 - это, без сомнения, операционная систе
 magnet:?xt=urn:btih:1303E8FA495F00C59DCB24D888A5769D9085A027
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:1303E8FA495F00C59DCB24D888A5769D9085A027
 ```bash
 magnet:?xt=urn:btih:EDCD69EA9616415C0921801D8D1127F68F6F8001
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ Silverlight может воспроизводить WMV, WMA и MP3 для вс�
 ```bash
 magnet:?xt=urn:btih:6D8180332510E81BD73A526994F94EBE54E03DFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:6D8180332510E81BD73A526994F94EBE54E03DFA
 magnet:?xt=urn:btih:E893D85B9E33349CEF042107E64D776CE64F0F37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:E893D85B9E33349CEF042107E64D776CE64F0F37
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:E893D85B9E33349CEF042107E64D776CE64F0F37
 magnet:?xt=urn:btih:E263FD501769EF8962F6D8256409B6F2614DDAAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:E263FD501769EF8962F6D8256409B6F2614DDAAC
 ```bash
 magnet:?xt=urn:btih:9BB2193499209A3DABE32DD7BBB4C95ADF38CC1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:9BB2193499209A3DABE32DD7BBB4C95ADF38CC1A
 magnet:?xt=urn:btih:46E1FE41412049EB9647347286628E73849EAC6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +481,8 @@ HTML5 и CSS3 - будущее веб-разработки, но не обяза
 magnet:?xt=urn:btih:16467D53D52807854F277D67BA21F68EFFA1D4C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ magnet:?xt=urn:btih:16467D53D52807854F277D67BA21F68EFFA1D4C0
 ```bash
 magnet:?xt=urn:btih:D929A6D04EAF669F6289AFDCF589E8166E7A225A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ magnet:?xt=urn:btih:D929A6D04EAF669F6289AFDCF589E8166E7A225A
 magnet:?xt=urn:btih:BECD54ED678D4BFA4353B8D5B63C3AF9919A091D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:BECD54ED678D4BFA4353B8D5B63C3AF9919A091D
 ```bash
 magnet:?xt=urn:btih:93ECEC502A7532B00B49549B840256167DA4727C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ magnet:?xt=urn:btih:93ECEC502A7532B00B49549B840256167DA4727C
 magnet:?xt=urn:btih:592C9D88B8F48EDDAB9760695D102802621F3890
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ magnet:?xt=urn:btih:592C9D88B8F48EDDAB9760695D102802621F3890
 ```bash
 magnet:?xt=urn:btih:EF76E6DE6CC7A4321921890984BF67AFB2050E66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +640,8 @@ magnet:?xt=urn:btih:EF76E6DE6CC7A4321921890984BF67AFB2050E66
 magnet:?xt=urn:btih:53DFCC33B6FCB9B3F8B6DF3E83D65302F1648964
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +665,8 @@ magnet:?xt=urn:btih:53DFCC33B6FCB9B3F8B6DF3E83D65302F1648964
 ```bash
 magnet:?xt=urn:btih:7C2D3987DCB12A45C02C2F819EA2607ACD3F557E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +693,8 @@ magnet:?xt=urn:btih:7C2D3987DCB12A45C02C2F819EA2607ACD3F557E
 ```bash
 magnet:?xt=urn:btih:56410A0160210CFB9A2378BF257EB53CEDD52FB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

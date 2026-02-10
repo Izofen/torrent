@@ -28,6 +28,8 @@ Jack Jezzro - Gershwin on Guitar (1998) /2011/ [FLAC|Lossless]<Jazz>
 magnet:?xt=urn:btih:C780D45CE8723D0B4DDFB6DB2C28F7D7BAA56590
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ Tropical Whiskey Band - Walking on a Thin Line (2013) [FLAC|Lossless]<Blues-Rock
 ```bash
 magnet:?xt=urn:btih:FD53007FC7C081427DCD0D1035A7AD9C66B29617
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ Brian Kooken - A Minor Thing (2014) [MP3|320 кб/с]<Jazz, Funk, Blues>
 magnet:?xt=urn:btih:796E26FB86C567A3D89E07BE87B06113836EDFCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +132,8 @@ Dirk Hamilton & The Bluesmen - Sweatshop Pinata (2013) [FLAC|Lossless]<Blues-Roc
 ```bash
 magnet:?xt=urn:btih:A4FD3203B5BDA5F050A1D0BA970BFDA26808FA05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +168,8 @@ Rick Vito - Mojo On My Side (2014) [MP3|320 кб/с]<Blues Rock>
 magnet:?xt=urn:btih:D7F1B767960ED2A75361B37AFF76DAFB0F0AC9FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +203,8 @@ Rick Vito - Rattlesnake Shake (2007) [MP3|320 кб/с]<Blues Rock>
 magnet:?xt=urn:btih:2BF6FDA2EBC00DA52845DE32F9ACDF13FC885F57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +231,8 @@ Beto Saroldi - Venus (2020) [FLAC|Lossless|image + .cue] <Jazz>
 ```bash
 magnet:?xt=urn:btih:B0A7C2801F10EFC716CE392DF27046A004E7A41B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +261,8 @@ Kandy Roar - Demon Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock
 magnet:?xt=urn:btih:8FC748B4AC116F2DB6F06E2B0B374A76F7F65D9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +289,8 @@ Billie Holiday - Songs For Distingue Lovers (1957) 1997, Classic Compact Discs [
 ```bash
 magnet:?xt=urn:btih:A6E2621A7D890F343E7F493A4348995D7CC7A190
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +319,8 @@ Matt Arthur - Then & Now (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:567CE39A5210D85F0BC51B7CF1009BEFF3874CAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +347,8 @@ Stacy Jones - World on Fire (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:5CDDB1ACDBDB37F3E68D38D90835E5B76552F480
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +377,8 @@ Marion Meadows - Dressed To Chill (2006) [FLAC|Lossless|tracks + .cue] <Smooth J
 magnet:?xt=urn:btih:EEE38A10B2E2CE4D3B0F95C83796AD73F1F72CCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +406,8 @@ Sergio Mendes & Brasil '66 - Greatest Hits (1970) 1987, A&M Records [FLAC|Lossle
 magnet:?xt=urn:btih:0393F30DCE147A1E41EDAE38BBB22313E474C0B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +434,8 @@ Tony Wessels and the Revolvers - Reloaded (2023) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:40E721C7BAF9E2E600FCD6DA93CC411EA0D827B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +465,8 @@ Blues Summit альбом Би Би Кинга, выпущенный в 1993 г�
 magnet:?xt=urn:btih:8B3E1D18F1395445E1D0F6DE56CD199BC261756D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +493,8 @@ Sam Cole - Thoughts and Reflections (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:4FAB76AE65A94B07DF94D07CBBDB9449B105BD3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +523,8 @@ TT Slim - Guess Who Dropped in? (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:0D28FF165567D46ECC5585E2F9596D8B877D1A2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +551,8 @@ Russell Ballantine - Harpo's Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:7F1B19EEE196CF96ADCDD2A22ACF0E43C6795A89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +581,8 @@ Art Farmer-Benny Golson Jazztet - Here and Now (1962) 1998 [WavPack|Lossless|ima
 magnet:?xt=urn:btih:ED744BAE779DF2F9A7A3516D78E6931732D19DBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +609,8 @@ Terry Gibbs Quartet - Take It From Me (1964) Remaster, 2010, Universal[FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:15AA0A4AB0B7AD090AB5AA57E92588CBFE6878CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +639,8 @@ A & E and the Big C - A & E and the Big C (2022) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:F4908AD2567295116697894CD9A8673FB6119068
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +667,8 @@ The Nikhil Korula Power Trio - Crossroads (2023) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:1D027187BCB1223B343485C294A1164C896276E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +697,8 @@ James Moody - Wail Moody, Wail (1955) 1992, Original Jazz Classics [FLAC|Lossles
 magnet:?xt=urn:btih:D6F73E73EF34B563E07E39E513F60DC1973B0D49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -679,6 +725,8 @@ Mayham & Eggs - Snake Oil (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:5161EFC1D0D733184498A8FE1B6B1D2A50607ECA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -707,6 +755,8 @@ In May 2016, guitarist Jeff Parker, double bassist Eric Revis, and drummer Nashe
 magnet:?xt=urn:btih:87F1C40978F890EE8F3F2FE67E023FB62A2DCDC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -733,6 +783,8 @@ Dion - Stomping Ground (2021) [FLAC|Lossless|tracks + .cue] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:10FAEA8EB11681E440CFD4DF2510C7B29A6771E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

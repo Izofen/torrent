@@ -19,6 +19,8 @@ Topaz Gigapixel AI. — это первое и единственное прил
 magnet:?xt=urn:btih:D8EC095A591091DD03A2018A1F766D100DC61A05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Windows 7 Professional VL SP1 x86 (build 6.1.7601.25984) by ivandubskoj 18.06.20
 ```bash
 magnet:?xt=urn:btih:425AF68BF62FBEC3D2561262E09CE972EE5539CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Adobe Premiere Pro - профессиональная программа для 
 magnet:?xt=urn:btih:E7C37AFF396769769B4ADFC8DD8E8D6FC20A6F52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Adguard – интернет-фильтр для защиты пользоват
 ```bash
 magnet:?xt=urn:btih:8A2364E50A1BE84B4422A0D82946D56F7AADDD2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Live синхронизирует все и работает в режиме р�
 magnet:?xt=urn:btih:19A375F75F12BEF5601211A450C2EDD3D240BD1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Nik Collection by DxO – это наиболее полная коллекци�
 ```bash
 magnet:?xt=urn:btih:37030A82C1D95623E310667467178C4C20290424
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Microsoft PowerToys – это набор утилит, позволяющих �
 magnet:?xt=urn:btih:7695C1BF005B3DE12789E4B04184032D5C4076E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:7695C1BF005B3DE12789E4B04184032D5C4076E2
 ```bash
 magnet:?xt=urn:btih:BD2B28FEE390C397896A3DC426CF9EA01CAFF8A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Movavi Picverse - представляет собой один из самых �
 magnet:?xt=urn:btih:3CBDB092D24803FECC3F56A86DAE3B974DEF5EA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ FreeCAD – это очень мощный и серьезный продукт,
 ```bash
 magnet:?xt=urn:btih:01F1496D0AD2B2A0ECA7FA6C211B7C4969B82CF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ SOUND FORGE вот уже более 20 лет задает стандарты �
 magnet:?xt=urn:btih:5B14021870C82A619D4F5D76D1E0459C433A8B8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Beyond Compare – мощная и одна из лучших программ �
 ```bash
 magnet:?xt=urn:btih:CBE3FB9D7877A76A50DA60EC61C7F02FD8F746E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Media Player Classic - BE – универсальный проигрывате�
 magnet:?xt=urn:btih:0179543A23B8FF8B95CEB598AD1F0DD1AD120F37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Microsoft .NET 6.0.6 Runtime [Ru/En]
 magnet:?xt=urn:btih:4BEDBCB34033A2A250EC294F466CE49BDE77ED6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen | Asc
 ```bash
 magnet:?xt=urn:btih:D02513D964927688613D7179E947BBA3657D26A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ Steinberg - Cubase Pro 12.0.30 [Ru/En]
 magnet:?xt=urn:btih:EBE2C12975C76C511C71B270D8B66917FA558889
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Phase One Capture One - один из лучших профессиональн�
 ```bash
 magnet:?xt=urn:btih:A838E93BA0717F3B107C80DC4F236AE53B5AE376
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ MediaHuman YouTube Downloader - удобное приложение с помо�
 magnet:?xt=urn:btih:4707E17382AEADA2E9DC73F14E7E8DAB63B36623
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ GIMP — это редактор, позволяющий работать со �
 ```bash
 magnet:?xt=urn:btih:6E2020CB9D8899F24BA6B78291322F8BC527097D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Android Studio предоставляет быстрые инструменты 
 magnet:?xt=urn:btih:E2F401C56FE1EC1073BE21D81F03E50D51E63E71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Nox App Player 7.0.3.0001 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6F39DE4998E066CDCF315951318F780C0A33E6CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Windows 11 Manager - это универсальная утилита специ
 magnet:?xt=urn:btih:57F0C873BED2BD929DEA35D8E054ACDCF1ECF7F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:57F0C873BED2BD929DEA35D8E054ACDCF1ECF7F8
 magnet:?xt=urn:btih:62FF33FC07213695DA90FDAEC34D7CDD161F6656
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:D63B7BAD069989AA7EF8D1558443778588C73032
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Ventoy - это инструмент с открытым исходным код
 magnet:?xt=urn:btih:E2EE69A4B8DD7281F3B9E16520684D7323B5A75B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Malwarebytes Free (ранее Malwarebytes Anti-Malware) – полноценн�
 ```bash
 magnet:?xt=urn:btih:B7FB801C5B788FAEB80FCC63A67278A5334C186D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

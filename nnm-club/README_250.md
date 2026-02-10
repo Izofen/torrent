@@ -22,6 +22,8 @@ Jonathan Kasper - Turn Off the Machine (2025) [FLAC 24/44.1|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:8DB4FCD6FAE7ECC2560C1A2C096EB97B5872B9D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:8DB4FCD6FAE7ECC2560C1A2C096EB97B5872B9D4
 ```bash
 magnet:?xt=urn:btih:8E102953CEC422C7F84AA682F1BD8B20EB2EF551
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:8E102953CEC422C7F84AA682F1BD8B20EB2EF551
 magnet:?xt=urn:btih:2BB138C74AE635E1178B487975562C4C8A9E6742
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:2BB138C74AE635E1178B487975562C4C8A9E6742
 magnet:?xt=urn:btih:28F7CC7D8C75D27DA3ED30CA297ECEC8401E8A5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:28F7CC7D8C75D27DA3ED30CA297ECEC8401E8A5D
 ```bash
 magnet:?xt=urn:btih:A745932B5161EE4065384FD057B7A53AE48C701B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ Lowerflow идеально подходит для проектов, где ва
 magnet:?xt=urn:btih:DF7A4A50B64D5BD6CF112DB4D69AA6C41FB2C057
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:DF7A4A50B64D5BD6CF112DB4D69AA6C41FB2C057
 ```bash
 magnet:?xt=urn:btih:66AA308E0D48E514E15FF6157148D35830AB2E91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ Lava Saint - Grim Avenues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:BFC49242E2BEA49997DD3BB136E366D9077223F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Tortillez — акцидентный шрифт без засечек, вдох�
 ```bash
 magnet:?xt=urn:btih:31401764EEFAB53DB212198E5EEAD6861EAC6C3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:31401764EEFAB53DB212198E5EEAD6861EAC6C3F
 magnet:?xt=urn:btih:7D835EC75D0069F82F69775146FB1EA19CFC628D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:7D835EC75D0069F82F69775146FB1EA19CFC628D
 ```bash
 magnet:?xt=urn:btih:F98BFFD63F90D063B1B4E3965DF7A766D94AAD0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:F98BFFD63F90D063B1B4E3965DF7A766D94AAD0F
 magnet:?xt=urn:btih:0649F4F593C54068084B797666564C46B07D08F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:0649F4F593C54068084B797666564C46B07D08F8
 ```bash
 magnet:?xt=urn:btih:59E2B4B48C4BE4181EEDB5FBB74BD7764BAAB5E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:59E2B4B48C4BE4181EEDB5FBB74BD7764BAAB5E6
 magnet:?xt=urn:btih:62C1223640001784B2A6DDE0F24162D53D85B85C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:62C1223640001784B2A6DDE0F24162D53D85B85C
 ```bash
 magnet:?xt=urn:btih:3C2088218F66713EB1FA0F11D56307C32D258DEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ Viral - The Merchant (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:894300B61B930630011DE33C2EF5DEB1FEBA2CD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ Dave Limina - Old Piano Blues (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:0614262628A64AD799CEA21361855A051C354FEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:0614262628A64AD799CEA21361855A051C354FEC
 ```bash
 magnet:?xt=urn:btih:A6D3B0800A33F371D56D7D47C5C19FA8358D3B5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ magnet:?xt=urn:btih:A6D3B0800A33F371D56D7D47C5C19FA8358D3B5B
 magnet:?xt=urn:btih:DDB78CC0AF8A08A7B1A36BFCEE08295E4BF9C64A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ magnet:?xt=urn:btih:DDB78CC0AF8A08A7B1A36BFCEE08295E4BF9C64A
 ```bash
 magnet:?xt=urn:btih:181D487617854E1F2E728A4B490BC915E4E17FD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +557,8 @@ Kate Vargas - Golden Hour in the House of Lugosi (2025) [FLAC 24/48|Lossless|WEB
 magnet:?xt=urn:btih:23016AE2BA53EF631D4D97F7E54AD8FF25E76E69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ magnet:?xt=urn:btih:23016AE2BA53EF631D4D97F7E54AD8FF25E76E69
 ```bash
 magnet:?xt=urn:btih:A97E11C2781374E5A80CA2A914368051138AFB30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:A97E11C2781374E5A80CA2A914368051138AFB30
 magnet:?xt=urn:btih:1A7C6CABDE40902CD9D5DD554FE7D4005BBAFFCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ magnet:?xt=urn:btih:1A7C6CABDE40902CD9D5DD554FE7D4005BBAFFCE
 ```bash
 magnet:?xt=urn:btih:6B34469C22E2534025670006672726A58DDB77BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +664,8 @@ Dub FX, Mr Woodnote - OPEN SECRET SOCIETY (2025) [FLAC|Lossless|tracks] <Drum an
 magnet:?xt=urn:btih:6CAAF24795172C3741BC699BDBF9DD5E53C88D3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ magnet:?xt=urn:btih:6CAAF24795172C3741BC699BDBF9DD5E53C88D3D
 ```bash
 magnet:?xt=urn:btih:BEFB1398827F396B8194854B7B229EF934DBEB11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

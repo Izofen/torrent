@@ -19,6 +19,8 @@ Malabar — это тщательно созданный рукописный ш
 magnet:?xt=urn:btih:A8928ADFE80C26C810665189F0F0D59DB34D5638
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:A8928ADFE80C26C810665189F0F0D59DB34D5638
 magnet:?xt=urn:btih:43C42872371D806F407DBC8847F33FF7977A0CED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:43C42872371D806F407DBC8847F33FF7977A0CED
 ```bash
 magnet:?xt=urn:btih:55A27C0094D94A86A2F29A29A2BB5F02D834C8CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ VA - D.Trance 109 (2025) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:B32B54A2408F9CF8AF04B7EE80C868A75F9441FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:B32B54A2408F9CF8AF04B7EE80C868A75F9441FC
 ```bash
 magnet:?xt=urn:btih:9B61C39460E2F44500EAA35C963B6EDEA72535C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Evilizers - Lord Of The Lost Souls (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 magnet:?xt=urn:btih:749B00486F7A8D86C01B8B0A53569F0E2F678EAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:749B00486F7A8D86C01B8B0A53569F0E2F678EAA
 ```bash
 magnet:?xt=urn:btih:9CBDD287C8D283C4798CA4382C2752CDD412A63F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:9CBDD287C8D283C4798CA4382C2752CDD412A63F
 magnet:?xt=urn:btih:1329199703BB427FF7D3736E7D75C82696813E7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:1329199703BB427FF7D3736E7D75C82696813E7E
 ```bash
 magnet:?xt=urn:btih:AE0AC9B36180DC7A57A201925307102C66A68380
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:AE0AC9B36180DC7A57A201925307102C66A68380
 magnet:?xt=urn:btih:D4DA3B1A52E8D9074796A8BBB6FF3DCF084D560B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:D4DA3B1A52E8D9074796A8BBB6FF3DCF084D560B
 ```bash
 magnet:?xt=urn:btih:F714BE20B610F61113B590A989756E8ACAAF3C5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ Blutengel - Damonen : Sturm (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Darkwa
 magnet:?xt=urn:btih:3F22691F46A89877E81807D94E9213EBC7E625AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:3F22691F46A89877E81807D94E9213EBC7E625AD
 ```bash
 magnet:?xt=urn:btih:4BC70F86DFB263CE41DFB94420229A4F6E336966
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ Minyanot | Современный шрифт с засечками от Denustud
 magnet:?xt=urn:btih:D81EC9BE72770A0FF923CBB1BC17F0883F135441
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ VideoShow предлагает отличные функции редактир�
 ```bash
 magnet:?xt=urn:btih:D6097D1E6B0E8820D5CD373F0231047C9CE78D49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ magnet:?xt=urn:btih:D6097D1E6B0E8820D5CD373F0231047C9CE78D49
 magnet:?xt=urn:btih:11C1816F9ED98A8EFF9C2AF31F4A24CC4D54DBA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +457,8 @@ GIF Maker - GIF Editor - видеоредактор, что создан для 
 ```bash
 magnet:?xt=urn:btih:2182A6E1BB740A7FB1518B900953EC24F9697655
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +484,8 @@ MotoGP. Этап 01 из 22. Гран-при Таиланда. Спринт (01.
 magnet:?xt=urn:btih:0EC16F2075544D5995EDC05A05269CE2615E3F0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ MotoGP. Этап 01 из 22. Гран-при Таиланда. Квалифик�
 magnet:?xt=urn:btih:5C2382E4CA627E7555B8041990D5DE526FCCC548
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ magnet:?xt=urn:btih:5C2382E4CA627E7555B8041990D5DE526FCCC548
 ```bash
 magnet:?xt=urn:btih:C4D4A969A99239079C43ECACF087A73824D952A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +565,8 @@ VA - Neue Hits '90 - Die Internationalen Super-Hits (1990) 2 CD [OGG Vorbis|480 
 magnet:?xt=urn:btih:170123EA171FD5C075215E080A66D15EEAB85A68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ QownNotes – менеджер заметок, позволяющий четко
 ```bash
 magnet:?xt=urn:btih:E2AFAB60E2CA349A528382066D6B534394A4C94E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ Anastacia - Not That Kind (25th Anniversary) (2025) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:DA56D2495D855E896E71C2C9CE57E9ED82802E2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:DA56D2495D855E896E71C2C9CE57E9ED82802E2C
 ```bash
 magnet:?xt=urn:btih:7C8AB77360A59800BE21F13D3D96480B0C2AFE97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +672,8 @@ VideoShow предлагает отличные функции редактир�
 magnet:?xt=urn:btih:EFE91B05FC762BC9C460D80A7EF1A50257A92F12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ Senpai wa Otokonoko | Senpai is an Otokonoko | Моя Сэмпай — Паре�
 ```bash
 magnet:?xt=urn:btih:3F00A3511C4168F2FA4396B1BB41E0B7FABECFAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

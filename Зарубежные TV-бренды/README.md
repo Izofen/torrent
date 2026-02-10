@@ -20,6 +20,8 @@ BBC: Родительство / Parenthood (2025) WEBRip [H.264/1080p] (сезо
 magnet:?xt=urn:btih:4079A7B11B5A7D7FD97F91BB8924E983C2E8966B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ NG: Выживание в северных лесах / Northwoods Survival (202
 magnet:?xt=urn:btih:88B2E5F7748D60AAF708311FDD338FB4226947B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Discovery. Великий замысел по Стивену Хокингу / St
 ```bash
 magnet:?xt=urn:btih:53EB5E8F1E8E66CE40448E6BED98E0DF5FB4ED8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Discovery: Мастерская Ричарда Хаммонда / Richard Hammon
 magnet:?xt=urn:btih:CA99BB866512F4F133D3627E166374409BD1072E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ NG. Секунды до катастрофы: 11 сентября / Seconds From
 ```bash
 magnet:?xt=urn:btih:F0DDBF22B60A8CBCE91290D2030337CD505D4772
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ NG: День дракона / Day of the Dragon (2024) HDTVRip [H.264] [VO]
 magnet:?xt=urn:btih:9209BE54B17C847A1E279CFF4F6F246E201F1B3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ NG. Лицом к лицу с акулами с Берти Грегори / Shar
 ```bash
 magnet:?xt=urn:btih:403B61678C6124928AA93C842D16C85C0913E1D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ NG. Лицом к лицу с акулами с Берти Грегори / Shar
 magnet:?xt=urn:btih:9B55A4F43DBBD5D69AC9E414F4BA7ECC87698030
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Discovery: Челюсти против кракена / Jaws vs Kraken (2022) WE
 ```bash
 magnet:?xt=urn:btih:78672136300D151047F02C20878C2D0A0E780EA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Discovery: Железная дорога Аляски / Railroad Alaska (2013) S
 magnet:?xt=urn:btih:55DD8C2ACCDF232816E2C8FCCCC9AFCA13596811
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:55DD8C2ACCDF232816E2C8FCCCC9AFCA13596811
 ```bash
 magnet:?xt=urn:btih:7314BF87599EB9FCCC9857684FF77EFB16F83C52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ PBS: Первые люди / First Peoples (2015) WEB-DL [H.264/1080p] (сезо
 magnet:?xt=urn:btih:DBB7A7E964EA9194ED89E03E25CF51ADED5FEDD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ NG: В поисках Атлантиды / Finding Atlantis (2011) WEB-DL [H.264
 ```bash
 magnet:?xt=urn:btih:41FFC1E39A926B84C77FABD55B738DEFA1283EEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ BBC: Хиросима / Hiroshima (2005) DVDRip [H.264] (серии 1-2 из 2)
 magnet:?xt=urn:btih:E7A082B8131B1CD86907318AE9E9C983826A3B53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:E7A082B8131B1CD86907318AE9E9C983826A3B53
 magnet:?xt=urn:btih:E159E8C3058F16E5CD6AF65FA244F7EACBC5DDA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ History: Кевин Костнер: Запад / Kevin Costner's the West (2025)
 ```bash
 magnet:?xt=urn:btih:B9F6840A0BBB5C18EA8D70EAFD22539D73C102A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ BBC: Помпеи: Новые раскопки / Pompeii: The New Dig (2024) WEB
 magnet:?xt=urn:btih:D48586F9357235DDD566FF0841295673130CD9F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:D48586F9357235DDD566FF0841295673130CD9F3
 ```bash
 magnet:?xt=urn:btih:03AAF4ED4B20FD8FCC9DC6EA943CE0FA9710F6FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ NG: Дэвид Аттенборо: Океан / Океан с Дэвидом А�
 magnet:?xt=urn:btih:93BB94D81B27EA9962B59E7355CB8523A6A524DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ NG: Дэвид Аттенборо: Океан / Океан с Дэвидом А�
 ```bash
 magnet:?xt=urn:btih:51BDB2A90ECAF1C9E614F8101D456609A1C00976
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:51BDB2A90ECAF1C9E614F8101D456609A1C00976
 magnet:?xt=urn:btih:AE352B8FCC8191A54FF7888C066C3730E83FF7F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:AE352B8FCC8191A54FF7888C066C3730E83FF7F0
 ```bash
 magnet:?xt=urn:btih:660D9620D6F9DA525FFCB0D8109E3A12AE1566CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ BBC: Древние державы / Ancient Powers (2023) WEBRip [H.264/720p] (
 ```bash
 magnet:?xt=urn:btih:45723B52D9D4ED78833C277D42FDB33C248637D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ NG: Аутсайдеры / Underdogs (2025) WEBRip [H.264/1080p] (сезон 1, 
 magnet:?xt=urn:btih:C90E705ADC2EEB110D6CD70D732FC7DDF82728F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ NG. Игры разума / Brain Games (2011-2016) IPTVRip [H.264] (сезон�
 ```bash
 magnet:?xt=urn:btih:1111DF3A5BC221878D36A0C2D43FD40127AA805C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +675,8 @@ NG: Королевы / Queens (2024) WEBRip [H.264/1080p] (сезон 1, сер�
 ```bash
 magnet:?xt=urn:btih:C477DBC0BE75EDC5243B96160FCB954E6661FD17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

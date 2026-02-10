@@ -1,3 +1,29 @@
+###  Публикация: 160604   (903341) от 29.08.2021
+
+Ф. Шварц, А. Пуассон, Е.П. Блаватская | Теории и символы алхимиков (1995) [PDF]
+
+>>Разное (категория книг)
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга посвящена одной из самых древних и загадочных наук. В ней дается краткий очерк истории алхимии — от зарождения в древнеегипетских храмах до ее судьбы в новейшее время, объясняется значение этой науки для духовной эволюции человечества, а также приводится подробная характеристика различных алхимических теорий. Особый интерес представляет описание и толкование (   Читать дальше...   )Жанр: Эзотерика, оккультизмФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D94EFEA5802FC4FE1D7D8B1F9C8627B856C9AFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369265   (903345) от 23.03.2020
 
 Билл Бишоп | Как продать лобстера и заставить клиента покупать дорого (2019) [EPUB]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:09BC946C558E5D16E741ECDE082F430DFABA97F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:09BC946C558E5D16E741ECDE082F430DFABA97F7
 magnet:?xt=urn:btih:7329814C17C6CF1F57086D96686AA443F0DB0A06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:7329814C17C6CF1F57086D96686AA443F0DB0A06
 magnet:?xt=urn:btih:A7DEB24866D7AE0DD23D31105A06694C1C1DB523
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:A7DEB24866D7AE0DD23D31105A06694C1C1DB523
 ```bash
 magnet:?xt=urn:btih:4D9CE6FEB1053F3163D63F8BBB689FDDF5143477
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:4D9CE6FEB1053F3163D63F8BBB689FDDF5143477
 magnet:?xt=urn:btih:69C339FB5ED93E2E4368962E83335B3EDCBF54F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:69C339FB5ED93E2E4368962E83335B3EDCBF54F4
 ```bash
 magnet:?xt=urn:btih:72D590DD4415C60869B77FEC5020707AD3A8235E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:72D590DD4415C60869B77FEC5020707AD3A8235E
 ```bash
 magnet:?xt=urn:btih:DB646E84F5062D27D0094FFF21B31E5100427F93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:DB646E84F5062D27D0094FFF21B31E5100427F93
 magnet:?xt=urn:btih:65571FBF8F727BC4B4215D9D57FA9C81EFD441D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:65571FBF8F727BC4B4215D9D57FA9C81EFD441D6
 ```bash
 magnet:?xt=urn:btih:E6B8BBC0B92C700A861B210FC2F27C68078987F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:E6B8BBC0B92C700A861B210FC2F27C68078987F9
 magnet:?xt=urn:btih:E834388C0AF91C5F2EA7FB156DABD9C4BA700314
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:E834388C0AF91C5F2EA7FB156DABD9C4BA700314
 ```bash
 magnet:?xt=urn:btih:ABBC3B1A61165F4F5E5EC0D89948C27FA0847DDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:ABBC3B1A61165F4F5E5EC0D89948C27FA0847DDE
 magnet:?xt=urn:btih:820185CBAA8A696C3AF6A0705B7DDF608654E2BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:820185CBAA8A696C3AF6A0705B7DDF608654E2BB
 ```bash
 magnet:?xt=urn:btih:F82AE7FA2A21F80A6CB12896762C005443F971EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:F82AE7FA2A21F80A6CB12896762C005443F971EB
 magnet:?xt=urn:btih:48700FA628A88CD438C79B40C0FCC3983CF4BAE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:48700FA628A88CD438C79B40C0FCC3983CF4BAE2
 ```bash
 magnet:?xt=urn:btih:990697BD101706B39EDA0B227364D5C16ECF5F01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:990697BD101706B39EDA0B227364D5C16ECF5F01
 magnet:?xt=urn:btih:B4BC94952490DAF34A3D2B65635E353EC63A7266
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:B4BC94952490DAF34A3D2B65635E353EC63A7266
 ```bash
 magnet:?xt=urn:btih:EF6A547741095FC78B7EF2EED9316B94398C8BF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:EF6A547741095FC78B7EF2EED9316B94398C8BF2
 magnet:?xt=urn:btih:DD4D65D936D8D2F3E06D9FA8423B1D861CF7E4EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:DD4D65D936D8D2F3E06D9FA8423B1D861CF7E4EF
 ```bash
 magnet:?xt=urn:btih:CE3C4BAB023F15FF8CCCED24690B0695DB3477B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +549,8 @@ magnet:?xt=urn:btih:CE3C4BAB023F15FF8CCCED24690B0695DB3477B0
 ```bash
 magnet:?xt=urn:btih:5CD247B8D2895B21E83EAD0BEA48AAE50CA034D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +580,8 @@ magnet:?xt=urn:btih:5CD247B8D2895B21E83EAD0BEA48AAE50CA034D4
 magnet:?xt=urn:btih:400E7C700254F0500A0D6D7AA63DD8B8399F4E56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +605,8 @@ magnet:?xt=urn:btih:400E7C700254F0500A0D6D7AA63DD8B8399F4E56
 ```bash
 magnet:?xt=urn:btih:BE222B606C40960D4881DC2DA92C5CFBDE7CC685
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +632,8 @@ magnet:?xt=urn:btih:BE222B606C40960D4881DC2DA92C5CFBDE7CC685
 magnet:?xt=urn:btih:B2DC4426EAFDFA6060C10F22EEFF56C6EAAA3C5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:B2DC4426EAFDFA6060C10F22EEFF56C6EAAA3C5A
 ```bash
 magnet:?xt=urn:btih:4FCFD246DE6804EB181B92AC2F965CBAC52A4FD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,29 +684,7 @@ magnet:?xt=urn:btih:4FCFD246DE6804EB181B92AC2F965CBAC52A4FD2
 magnet:?xt=urn:btih:A8A2FAF11FE76C77AE3D02F44D932EC5BF54B022
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991740   (904212) от 29.02.2016
-
-В. Семенов, А. Валл | Псевдонимы российского рубля (2013) [PDF]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сегодня, когда полновесные, обеспеченные ценностью содержащегося в них металла монеты сами оказались вытесненными на периферию экономической жизни, особенно уместно вспомнить их интереснейшую историю. Например, мало кто знает, что в XVIII веке монеты не чеканили - их тиснили, четко различая «тисненые» на винтовом прессе монеты и «чеканенные» ударом -«чешуйки». Современники (   Читать дальше...   )Жанр: Коллекционирование. НумизматикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40AB6959A1C7AF00AC617ECE1EC4F10FF5F6562D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

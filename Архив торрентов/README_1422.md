@@ -19,6 +19,8 @@ Media Player Classic - Black Edition (MPC-BE) – универсальный п�
 magnet:?xt=urn:btih:60C4DC789027965795B58D6761D7AEE4C32451FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:E9AB3A2E5E9341128571D4708D00CC3504FD05BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Caramba Switcher - это новый, понятный автоматическ�
 magnet:?xt=urn:btih:3340134F855F071B91D8BA952CC9D70CC1BAFA2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Youtube Downloader HD - бесплатная и предельно проста�
 ```bash
 magnet:?xt=urn:btih:7ABC758FCB51FBE6F292D7E31A2778CDB7749CE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ ByClick Downloader (бывший YouTube By Click) - отличный и удо�
 magnet:?xt=urn:btih:4117D5E41C876E9971C2D70676613E79C5F35A94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Duolingo: изучай языки 5.111.4 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E308C27F802032436F759BC5B1E58801B110A8DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Psiphon - это новый инструмент обхода интернет-�
 magnet:?xt=urn:btih:9C89632373E2E312907BCFB4594AEFCF02F70923
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 ```bash
 magnet:?xt=urn:btih:D8A6EB8D65FD8CE498EBCC7EAE6FD6277B2FC3DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Media Player Classic - BE – универсальный проигрывате�
 magnet:?xt=urn:btih:5E1CB113108613B119E2183968D35169C119497B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ MX Player Pro 1.64.4 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8ADFE39462D284815AB82D9A84FF5CF56B62596E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Suzume no Tojimari | Судзумэ закрывает двери [2022, Movie] 
 magnet:?xt=urn:btih:B351B1653132455014389CC9C2F5C017C635AE2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ AIDA64 1.93 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B1C084A6F6C94249EBD4EA1FECA554B57AC7B3AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:B1C084A6F6C94249EBD4EA1FECA554B57AC7B3AD
 magnet:?xt=urn:btih:C4F67ECB47EE6410220223CDD68B710560242700
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ RizomUV VS - это полнофункциональное приложение 
 ```bash
 magnet:?xt=urn:btih:DF661065DF11AA4EE689CCFADC8E46D91718C9FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ CapCut - видеоредактор, что понравится поклонн�
 magnet:?xt=urn:btih:FFCFA929AC70A0D2493812D0C6338C9947607183
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Tor Browser Bundle 12.5.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:03027BBF56151F1AF232115F1391A9A0AAE0AD93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Aomei Partition Assistant – мощная программа для работ�
 magnet:?xt=urn:btih:32ACF9369452F98EE791FDE0F961BBE72D021A5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Windows 11 Manager - это универсальная утилита специ
 ```bash
 magnet:?xt=urn:btih:670E6B1FAAA4D8C8666821106167BEDF6F5AE5C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ GPS Emulator v2.72 [Ru/Multi]
 magnet:?xt=urn:btih:70ACE1909494D720792FFD6D3E71F183CFBBAE9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Revo Uninstaller Pro 5.1.7 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C4514D7EA8146F84C0FFDF8E783818C385F65912
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ FastStone Capture представляет собой довольно мощн�
 magnet:?xt=urn:btih:D3745ECE52EC2A61301AD11D7957C4C346B71FF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ Transparent clock & weather / Прозрачные часы и погода 6.30
 ```bash
 magnet:?xt=urn:btih:4B6C63FDDB971C5CC398CB830D0D3645807C3EE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 magnet:?xt=urn:btih:5986F12321CA4DBA64D0E7057008ADACBCAA21DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ SysAdmin Software Portable v.0.6.4.0 by rezorustavi (Update 02.07.2023) [Ru]
 ```bash
 magnet:?xt=urn:btih:1687B2447FF0B2C5F9E4E97002C0D5E9F284F29C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:1687B2447FF0B2C5F9E4E97002C0D5E9F284F29C
 magnet:?xt=urn:btih:4D5EADF4F61F2A9AE66957A378D53CE681D7FF90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Advanced SystemCare PRO - это мощный пакет для оптимиза
 ```bash
 magnet:?xt=urn:btih:E3EE6A131CE41900A0D1B942A96DF6CB4BDE30EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

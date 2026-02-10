@@ -19,6 +19,8 @@ Brutal Orchestra (2021) [Multi] (1.4.1f1) License GOG
 magnet:?xt=urn:btih:DBB76C7364AE6E6254918697C5ECEBA6BDC4149D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Zoochosis (2024) [Ru/Multi] (1.6.3) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:653E7259D14B18B8555AFDF6B3EEB76023AB9B9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Generation Zero - это шутер с элементами скрытности
 magnet:?xt=urn:btih:4770583EF36B7F91CEAA53B0730E531DFF524FA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Hands of Necromancy II (2) (2024) [Ru/Multi] (18.2.25) License GOG
 ```bash
 magnet:?xt=urn:btih:307CE52329596124907CA10AD76D50A1AD5F4454
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Stellar Settlers — это строитель космической базы/�
 magnet:?xt=urn:btih:EBC5B5646C3B3408187F8F9C32DBA2B6EEA2FD78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Hands of Necromancy – это шутер с видом от первого ли
 ```bash
 magnet:?xt=urn:btih:F8F6FEB59E7C7E80C0F969706ED9EED52BB65CF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Quake - Квадрология (1996-2021) [Ru/Multi] (1.0/5971/1.32/1.4.3/dlc) 
 magnet:?xt=urn:btih:A08E3D742B1C01F1FCF7D50A11F24684E5BF7C69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Axis Unseen — это игра в жанре хэви-метал хорро
 ```bash
 magnet:?xt=urn:btih:8399E632A52BF896B6161B23E829345D590E0B54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Megaloot (2024) [Ru/Multi] (1.17.1) Scene Tenoke
 magnet:?xt=urn:btih:026FD0DE9EB2C5567ECA8D465B3B30ECF3D73C62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ BrokenLore: LOW (2025) [Ru/Multi] (build 17449000) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:B2249B48AEC1544013FD841022F77FEB1ACE9603
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Shell Part III: Paradiso (2025) [Multi] (1.0.2/dlc) License GOG
 magnet:?xt=urn:btih:DACBD286F9DFB069C8658386957D999184974B82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Session: Skate Sim (2022) [Ru/Multi] (1.0.6.25/dlc) Repack Let'sРlay [Year One 
 ```bash
 magnet:?xt=urn:btih:48ADFA15FC68719120D32BDC4C00B7FA592D0AF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ The Shell Part II: Purgatorio – помогите детективу раскр
 magnet:?xt=urn:btih:63C30A3E50325B493BE719FFEF8BA41FFC9E131B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ BrokenLore: LOW (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E9793A26D95F40F12B358E7FF52D2079E1EABFE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Shell Part I: Inferno (2023) [Multi] (1.0.2/dlc) License GOG
 magnet:?xt=urn:btih:AE5C88FF251CE2711798F646D1D0489E9FD5A23D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ NORCO - это уникальное point-and-click приключение в ж
 ```bash
 magnet:?xt=urn:btih:DA2FF660778F1D057B937A741CBA9BB54C374A9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Amenti (2025) [Ru/En] (Build 17306708) Repack Let'sРlay
 magnet:?xt=urn:btih:A1A297823065BC67C99AA6D75B75B5750F55BF68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Far Cry 3 (2012) [Ru] (1.05/dlc) Repack EXROW [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:FD6209DFC8D305BE7490826EB3C549BD49EBDF9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Dark PGT (2025) [Ru/En] (build 17435047) Repack FitGirl
 magnet:?xt=urn:btih:4F31ACF71C9138CAB910786076E38805167953C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Cabernet - ролевая 2D-игра в антураже Восточной Е�
 ```bash
 magnet:?xt=urn:btih:D30E6E6293CAB11631720E9DE49B8FF9610B1920
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Aground (2020) [Ru/Multi] (2.1.3) License GOG
 magnet:?xt=urn:btih:331CC75A3F2858146AEAA5161D39A43FF4EE48E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Piczle Cross: Rune Factory (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C6C6C273B8D550405A7E532623E36973FE550F25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Flash Doll / Светящаяся кукла (2025) [Ru/Multi] (1.0) Repack FitG
 magnet:?xt=urn:btih:669D0ABCD6845CE51E12D5B027987E2473CDD363
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ BrokenLore: LOW (2025) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:9D3D89FB875C9B8997CCDF92FDA2B774D3E991D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Riders Republic (2021) [Ru/Multi] (1.26.0) Repack FitGirl
 magnet:?xt=urn:btih:E72F6E0B405755F086E9E2B6627CD89FAF597B52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Tony Hawk's Pro Skater 1 + 2 (2023) [Ru/Multi] (Build 12545762/dlc) Repack Let's
 ```bash
 magnet:?xt=urn:btih:2D35C3FD24D88F4D4E929405B16D5865F957905D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

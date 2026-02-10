@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:4AE29D44337EF1C8A0288845536B1A3241100CFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BBC: Чудеса животного мира / Wonder of Animals (2014) HDTV [H
 ```bash
 magnet:?xt=urn:btih:630D160961897FAE9A3CEE5784C4E018BF3985F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NG. Ограбление по-египетски / The Egyptian Job (2011) SATRi
 magnet:?xt=urn:btih:B59132EC88A28010130AB1A230B24555B2170D45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ BBC: Как устроена природа / BBC. How Nature Works (2012) BDRip
 ```bash
 magnet:?xt=urn:btih:37AE60637541E23BDA40DE8B54AABA5601878ED8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Discovery: Правда о Бермудском треугольнике / Bermu
 magnet:?xt=urn:btih:2C0D4447817C391826C2AE37BD36AD590B9D9349
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 ```bash
 magnet:?xt=urn:btih:6DE80FA3568BB4B10E2B6E8D50A699246235D7F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 magnet:?xt=urn:btih:EA8FFD202F112B2A414FC8139D4FD43692B42B54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 ```bash
 magnet:?xt=urn:btih:82C4A63A9FB51DBEF9C4A9ADE15FE1FB8CA67520
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 magnet:?xt=urn:btih:341CE09BE69656F7338C0814664CC26E19468B8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Animal Planet: Спасти орангутана / Red Ape. Saving the Orangutan
 ```bash
 magnet:?xt=urn:btih:4129ACA9BACF278336158E2CD38F581E50D6EC23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Animal Planet: В дикие края с Эваном. Лечение носор
 magnet:?xt=urn:btih:09E105161426CE87D44E17254292AF1E7D656D35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ NGW: Дикие охотники. Рыбы / Wild Hunters. Fish (2019) HDTV [H.2
 magnet:?xt=urn:btih:356939B84D1245E52B2C099A6E43A8EECEF29E3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ BBC: Мир природы. Из жизни крабов / The Natural World. Cl
 ```bash
 magnet:?xt=urn:btih:929D1CBE7A94A1A584E5FFDB4A619A931E8C0415
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Discovery. Первым делом - самолеты / Airplane Repo (2013) HDT
 magnet:?xt=urn:btih:039A61544B0E51144D1B709449AD7C42F72DFB96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Discovery. Что у вас в гараже? / What's in the Barn? (2013) HDTV [
 ```bash
 magnet:?xt=urn:btih:139EC4069BE449909BEBDBB262A14992BE1574AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Discovery. Что у вас в гараже? / What's in the Barn? (2013) HDTVRi
 magnet:?xt=urn:btih:74D90EFB1F19ABDA40C5A2237CFFAAAC757CEA10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:74D90EFB1F19ABDA40C5A2237CFFAAAC757CEA10
 ```bash
 magnet:?xt=urn:btih:9B77DEFD930ECFDD643C6B9E78613CCD85F81366
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ BBC: Живой мир. Мадагаскар, лемуры и шпионы / Mad
 magnet:?xt=urn:btih:AC951A2514AC82EA43732EEE8E042F4DE93DE763
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ BBC: Вся правда о тренировках / The Truth About Exercise (2
 ```bash
 magnet:?xt=urn:btih:1CBC060251CBBA2A717B9B3C3AFE1F5DEDF60A5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ Discovery. Первым делом - самолеты / Airplane Repo (2013) HDT
 magnet:?xt=urn:btih:9CE3304316F536BF158DE21015315778DF978B35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:9CE3304316F536BF158DE21015315778DF978B35
 ```bash
 magnet:?xt=urn:btih:0D0A23A5608A3B2BD379D04564BC916FA5C358D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ Viasat History: Как климат изменил ход истории / How C
 magnet:?xt=urn:btih:4AF9E9D5A16F7ACB0B4D93F27BA325076FF39134
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:4AF9E9D5A16F7ACB0B4D93F27BA325076FF39134
 ```bash
 magnet:?xt=urn:btih:12244DFF2D9F4882E445B37C858686CC903BABF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ NGW: Дожить до рассвета / Dead by Dawn (2019) HDTVRip [H.264/108
 magnet:?xt=urn:btih:8E70A08A56D61E3F33EF98DD051616BE9D2008C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ magnet:?xt=urn:btih:8E70A08A56D61E3F33EF98DD051616BE9D2008C6
 magnet:?xt=urn:btih:7768D86BDC7D567C6C45BC27E0EE14B1E8BBC5A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ NGW: Дикая Арктика / Wild Arctic (2018) HDTV [H.264/1080i] (Сери
 ```bash
 magnet:?xt=urn:btih:5E16B196443C54A320489E1C99DE597D63561D45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

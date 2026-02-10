@@ -19,6 +19,8 @@ Antivirus Zap - небольшая утилита, которая проскан
 magnet:?xt=urn:btih:FDFC998C8169FA828DB1E925503E74A05F755D4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Swinsian — простой аудио плеер с функцией управ
 magnet:?xt=urn:btih:9FCC321EA06173AAF6064BACE124D8ADDEF1BF43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ DVD-Cloner - это небольшая утилита, при помощи ко�
 ```bash
 magnet:?xt=urn:btih:B958EB0CC31BAE6EEF4C1AC66DA6C43EDB8801BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Wise Registry Cleaner 9.52.662 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:E3A95A671A4809F87302FB275D9216C797C0AFDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Stand Up (2017.11.12) HDTV [H.264/1080i-LQ] (сезон 7, выпуск 7)
 ```bash
 magnet:?xt=urn:btih:E43C663B2D435B87EA0595D56EEEA66161991C9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Wise JetSearch 2.35.142 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:43B3C6022A65E5991A8A5BBE02E75E30A3684CAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Wise Video Downloader 2.62.106 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CCFB37EBFCEFE48E5B8BF138873092214AEF64C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:CCFB37EBFCEFE48E5B8BF138873092214AEF64C7
 magnet:?xt=urn:btih:C0EC4DACDF5C29D0AE5684C0A8E9564B5485E644
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Wise Program Uninstaller 2.14.113 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:70169DFE4AA6FE4D5C03D46A90572FE1764E5195
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ AppLocker может защитить паролем отдельные прил
 ```bash
 magnet:?xt=urn:btih:AC1F6418D9C9F752848C6C21999A7A52FB3DCCA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ Tooth Fairy поможет вам перейти от одного выбран�
 magnet:?xt=urn:btih:84EC7998BAC93171C25439845094E271D00AFB68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ VA - A State Of Trance Radio Top 20 - November/December (2015) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:2B507AD0F15A86A58DFC3FEBC18354AC15579A56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ Conductor (Choir) – Ken Johnson (7)(   Читать дальше...   )Жан�
 magnet:?xt=urn:btih:E8F5A0670A835135C7E35993689489453B51B339
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:E8F5A0670A835135C7E35993689489453B51B339
 ```bash
 magnet:?xt=urn:btih:7FE8925956937DBFFD1C384297772164910C3FF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ VA - Magics Surrender - Dance Club 101 Hits (2015) [MP3|268-320 кб/с]<Club, D
 magnet:?xt=urn:btih:4218C14A89C7D24B3FC8FFB7767C056C0CC52ED9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:4218C14A89C7D24B3FC8FFB7767C056C0CC52ED9
 ```bash
 magnet:?xt=urn:btih:A8D29865EF890A72991441FB96776BC8465D50E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +455,8 @@ magnet:?xt=urn:btih:A8D29865EF890A72991441FB96776BC8465D50E3
 magnet:?xt=urn:btih:37B7EB42C46A504ECEE6670B603B72CB90FD3742
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +480,8 @@ GoodSync - программа из серии высоконадежного, у
 ```bash
 magnet:?xt=urn:btih:0A3C5B4625E7BBEA6C6470ABC99C11A3367B1BFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +510,8 @@ magnet:?xt=urn:btih:0A3C5B4625E7BBEA6C6470ABC99C11A3367B1BFC
 magnet:?xt=urn:btih:7855A5434DE3A8BFDBE9E82D1257E31EC8C10B87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:7855A5434DE3A8BFDBE9E82D1257E31EC8C10B87
 magnet:?xt=urn:btih:471AC2CB9441B595B827D09A225FF5FABBEC509E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ magnet:?xt=urn:btih:471AC2CB9441B595B827D09A225FF5FABBEC509E
 ```bash
 magnet:?xt=urn:btih:35E3F34714563F73BC63DA239F2316FBA8F6B9C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +591,8 @@ magnet:?xt=urn:btih:35E3F34714563F73BC63DA239F2316FBA8F6B9C0
 magnet:?xt=urn:btih:FC4465323F263246DA76311649BF328B523D9811
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ Kore wa Zombie Desuka? Of the Dead / Уж не зомби ли это? Из ме
 ```bash
 magnet:?xt=urn:btih:4DC1136265147EBABD19DD53C168F40ECFB6620B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +645,8 @@ Viper FTP (ранее ViaFTP) - простой и очень удобный FTP-
 magnet:?xt=urn:btih:77FB259CAAD4BCC40316F69545B340054A60AD60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +671,8 @@ MWeb оддерживает расширенный синтаксис Github: TO
 ```bash
 magnet:?xt=urn:btih:772C3728625E007B449313AE0B3D4A68B411790B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +699,8 @@ Downie поддерживает более 1,000 популярных сайто
 ```bash
 magnet:?xt=urn:btih:E23DEE45173CA402141877A1B1ACA67B71961B3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

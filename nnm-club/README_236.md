@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:A7A9989B915CC4CA951C28B2DA96D4651939E821
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:A7A9989B915CC4CA951C28B2DA96D4651939E821
 ```bash
 magnet:?xt=urn:btih:3B80B37F6CD5DE8DF3E5A2EA9193957E4AD2CC36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:3B80B37F6CD5DE8DF3E5A2EA9193957E4AD2CC36
 magnet:?xt=urn:btih:4714FE5F2D974B1D52164267CD076F99C678E9F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Santa Monica Studio в сотрудничестве с Jetpack Interactive пр�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Santa Monica Studio в сотрудничестве с Jetpack Interactive пр�
 magnet:?xt=urn:btih:9B5E52CC75C1C8497EA2F5087A3007CD8D1B2D91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:9B5E52CC75C1C8497EA2F5087A3007CD8D1B2D91
 ```bash
 magnet:?xt=urn:btih:3C38595FF129DCB407FCC9E97EC4A4AA936C9C06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:3C38595FF129DCB407FCC9E97EC4A4AA936C9C06
 magnet:?xt=urn:btih:934013D96D786577FD200CD9DC53B5093DC69D7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:934013D96D786577FD200CD9DC53B5093DC69D7C
 ```bash
 magnet:?xt=urn:btih:33821BC2818F441EBF35343029EAB72375527AD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Last Epoch – приключенческая экшен-игра с глубо�
 magnet:?xt=urn:btih:E2FA6E593487D0EA5381053A3D235BE67E594FD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Primordia (2012) [Multi] (5.3) License GOG
 magnet:?xt=urn:btih:0CE3881A60A4DC5512B6417547BC64D304B601F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:0CE3881A60A4DC5512B6417547BC64D304B601F2
 ```bash
 magnet:?xt=urn:btih:94DE74A1ABDB79E437751A1CA47FFAB7F9365D69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:94DE74A1ABDB79E437751A1CA47FFAB7F9365D69
 magnet:?xt=urn:btih:656330E128DBC3D01FD86BC2A90DEA36C7EBAD3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ HEU KMS Activator — это простая в использовании про
 magnet:?xt=urn:btih:E5E12ADD098E097872CBB24DF3E112C17AEA3E6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:E5E12ADD098E097872CBB24DF3E112C17AEA3E6E
 ```bash
 magnet:?xt=urn:btih:DA8FF09AC83D4C3510F9F090D5D76393CEB4007D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:DA8FF09AC83D4C3510F9F090D5D76393CEB4007D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Coral Island – классический симулятор фермы, пер�
 ```bash
 magnet:?xt=urn:btih:755974C6A3AB9A50683C590B5C7033DF7D94F185
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:755974C6A3AB9A50683C590B5C7033DF7D94F185
 magnet:?xt=urn:btih:693EDBD1809220F02AAE8D5C5B9B5EA59DD62DB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:693EDBD1809220F02AAE8D5C5B9B5EA59DD62DB6
 magnet:?xt=urn:btih:DCBECBED3A0EEC3DD9736654724F177FCA205A83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:DCBECBED3A0EEC3DD9736654724F177FCA205A83
 ```bash
 magnet:?xt=urn:btih:074EB4603335D0EBF9D23E0BB82EF872C98BA617
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ Heidarlegur - Time Machine to Travel Back to Childhood (2025) [FLAC 24/44.1|Loss
 magnet:?xt=urn:btih:314B3F987DDAB0A506634A4012C26FF3955C8A03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:314B3F987DDAB0A506634A4012C26FF3955C8A03
 ```bash
 magnet:?xt=urn:btih:CF7AFCBF463AD8B55D1F75DF74A0567E1F51348F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ Geoff Mann, Herbie Mann - Underground (2025) [FLAC 24/44.1|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:36726B7B2A37BE5370E503849521AE3EADB76A48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ Tómarúm - Ash In Realms Of Stone Icons (2022) [FLAC|Lossless|image + .cue] <Bl
 ```bash
 magnet:?xt=urn:btih:C91BCC316BA691D1E90583A903DC1F6D2D0485A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +634,8 @@ Felice Lionetti - True (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary 
 magnet:?xt=urn:btih:470EB5BC217C3D7E4B79F03EC75357324424A243
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +663,8 @@ Greg Chako - Comfort Food (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 magnet:?xt=urn:btih:0072AD38954306536ACFB80A1FE94E64480A4A08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ Bob Forte - Quarter Till Midnight (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Ja
 ```bash
 magnet:?xt=urn:btih:C8D6F27B86969C189EC1BB7856CB1AAFF95EBAD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

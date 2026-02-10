@@ -1,3 +1,31 @@
+###  Публикация: 1381826   (824808) от 08.05.2020
+
+Архимандрит Андрей (Конанос) | Счастье – в твоём сердце. Как полюбить Бога, полюбив себя (2019) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый великий талант на свете — это любовь, без неё все остальные способности ничего не стоят. Для того, чтобы развить в себе этот великий дар, нужно узнать самих себя, честно взглянуть в глубину собственной души, в результате чего появится возможность приблизиться к Богу.
+
+Рассказывая истории из своей жизни, известный греческий миссионер и проповедник архимандрит (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E50A0E0E9D837BD57751BD71A721F23D4E0404F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116444   (824866) от 19.03.2017
 
 Изабель де Андиа | Восточные и западные мистики (2012) [PDF]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:2753C9DB550A62FD0836B305150D6962B7063C77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +76,8 @@ magnet:?xt=urn:btih:2753C9DB550A62FD0836B305150D6962B7063C77
 magnet:?xt=urn:btih:971DA4B37780BCABE1B40FF3E55F365AC4958BA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +103,8 @@ magnet:?xt=urn:btih:971DA4B37780BCABE1B40FF3E55F365AC4958BA1
 magnet:?xt=urn:btih:743DAE6B14F4D6BCE6D43DC84F35EB3811D893A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +129,8 @@ magnet:?xt=urn:btih:743DAE6B14F4D6BCE6D43DC84F35EB3811D893A0
 magnet:?xt=urn:btih:C59C65A132123DE892233C2D0B0DFCDE5BA1D645
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +154,8 @@ magnet:?xt=urn:btih:C59C65A132123DE892233C2D0B0DFCDE5BA1D645
 ```bash
 magnet:?xt=urn:btih:4DA078632C2BC66CC13EBD8782FF7E84C4F700E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +183,8 @@ magnet:?xt=urn:btih:4DA078632C2BC66CC13EBD8782FF7E84C4F700E6
 magnet:?xt=urn:btih:D41211C49D8B3194F56E61FCF27A09AEFE593F87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +208,8 @@ magnet:?xt=urn:btih:D41211C49D8B3194F56E61FCF27A09AEFE593F87
 ```bash
 magnet:?xt=urn:btih:50460302B975650F98F34AEB33BF76C46CA0A557
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +235,8 @@ magnet:?xt=urn:btih:50460302B975650F98F34AEB33BF76C46CA0A557
 magnet:?xt=urn:btih:51577261319E35FB453E61FB1D984C0F193F11AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +260,8 @@ magnet:?xt=urn:btih:51577261319E35FB453E61FB1D984C0F193F11AD
 ```bash
 magnet:?xt=urn:btih:959246E650394AE4709275C1E7994BA0A4D87A81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +287,8 @@ magnet:?xt=urn:btih:959246E650394AE4709275C1E7994BA0A4D87A81
 magnet:?xt=urn:btih:1973E3BADECA27A6FBEFE4BE50C43A33054C730F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +312,8 @@ magnet:?xt=urn:btih:1973E3BADECA27A6FBEFE4BE50C43A33054C730F
 ```bash
 magnet:?xt=urn:btih:A382875CC18C8DD5005A34A117F46181E6491A16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +341,8 @@ magnet:?xt=urn:btih:A382875CC18C8DD5005A34A117F46181E6491A16
 magnet:?xt=urn:btih:2ECF38106FE11A6066850C77989D6D6B22C39558
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +366,8 @@ magnet:?xt=urn:btih:2ECF38106FE11A6066850C77989D6D6B22C39558
 ```bash
 magnet:?xt=urn:btih:FA0CD1BB0E431A486BEA925E9FF152DD821182E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +393,8 @@ magnet:?xt=urn:btih:FA0CD1BB0E431A486BEA925E9FF152DD821182E0
 magnet:?xt=urn:btih:D78D93F7741766D18FE92E48F3F7CCA1583639B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +418,8 @@ magnet:?xt=urn:btih:D78D93F7741766D18FE92E48F3F7CCA1583639B0
 ```bash
 magnet:?xt=urn:btih:8866DC64DCC870A9C1934F05D345AB6CA3E52843
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +445,8 @@ magnet:?xt=urn:btih:8866DC64DCC870A9C1934F05D345AB6CA3E52843
 magnet:?xt=urn:btih:70B8BD66BD939F01E62ECCADCC2966D588219CB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +470,8 @@ Harvard Business Review | HBR Guide. Эмоциональный интеллек
 ```bash
 magnet:?xt=urn:btih:6CCF8C47886E24CE7FDD93F42DDB7A51F24FDE07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +500,8 @@ magnet:?xt=urn:btih:6CCF8C47886E24CE7FDD93F42DDB7A51F24FDE07
 magnet:?xt=urn:btih:839DB73CF3F83E4C2D55FF612404F135697BB21C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +525,8 @@ magnet:?xt=urn:btih:839DB73CF3F83E4C2D55FF612404F135697BB21C
 ```bash
 magnet:?xt=urn:btih:262F2F91675B485F7C5AB60952814A6C15D99950
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +554,8 @@ magnet:?xt=urn:btih:262F2F91675B485F7C5AB60952814A6C15D99950
 magnet:?xt=urn:btih:73319DE6CC797DBFD18A05A0394668CCB47C8092
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +579,8 @@ magnet:?xt=urn:btih:73319DE6CC797DBFD18A05A0394668CCB47C8092
 ```bash
 magnet:?xt=urn:btih:A10FE6C22BAE2F1611ADC35A62AFA1D4DADF0067
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +607,8 @@ magnet:?xt=urn:btih:A10FE6C22BAE2F1611ADC35A62AFA1D4DADF0067
 magnet:?xt=urn:btih:912A2CD6CF68905BD08749612B04645187611DE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +632,8 @@ magnet:?xt=urn:btih:912A2CD6CF68905BD08749612B04645187611DE8
 ```bash
 magnet:?xt=urn:btih:607A6011A7C7FD3BF1ADCD37212AAAD55F765B1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +660,8 @@ magnet:?xt=urn:btih:607A6011A7C7FD3BF1ADCD37212AAAD55F765B1D
 magnet:?xt=urn:btih:1E7739F648A61A7F5E60215BEB2C16DD830DE638
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,30 +686,7 @@ magnet:?xt=urn:btih:1E7739F648A61A7F5E60215BEB2C16DD830DE638
 magnet:?xt=urn:btih:933625E48A10103258285BAA54F4182CDDE8F40A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006672   (826634) от 12.04.2016
-
-Андрей Буровский | Необъяснимые явления. Это было на самом деле (2015) [FB2]
-
->>Разное (категория книг)
->>Эзотерика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826634.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новой книге известного писателя, кандидата исторических и доктора философских наук, Андрея Буровского собраны реальные истории о необычных, странных, необъяснимых явлениях. Примечательно, что все эти истории рассказывают ученые, историки, археологи.
-Эти заметки автор так и разделил на четыре части: рассказы археолога, рассказы ученого, рассказы «экспедишника». (   Читать дальше...   )Жанр: Ужасы и Мистика, ЭзотерикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51ABD4E24ADF4EB0A014283B797AAEC0D9A203F7
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

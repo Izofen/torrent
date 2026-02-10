@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:61D2B7C4A5E923E4A0B1BBEF093093BC5D102217
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:61D2B7C4A5E923E4A0B1BBEF093093BC5D102217
 ```bash
 magnet:?xt=urn:btih:7DE9CFBEB86EC5E557715E8241F9650C6A3AA255
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:7DE9CFBEB86EC5E557715E8241F9650C6A3AA255
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Tricky Words / Хитрое слово: слова из букв v9.2.0 Mod by v
 magnet:?xt=urn:btih:897311894EB11E0CC898DB4C7BA78CAC5493425D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ DailyRoads Voyager v8.1.1 (62) Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:FF8499442BE8F6A1A382732EB0466BCF3C051662
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:FF8499442BE8F6A1A382732EB0466BCF3C051662
 magnet:?xt=urn:btih:AA4AD0F95FCE197A370D2A5B25C1A28454E73A36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Magenta Horizon от соло-разработчика Маддисона Бек
 ```bash
 magnet:?xt=urn:btih:4176D63EDF64DC1CF25E49BE2ED9E15167306959
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:4176D63EDF64DC1CF25E49BE2ED9E15167306959
 magnet:?xt=urn:btih:B8C6817103F9A18226AEAE35B71EF6CD3CA0C936
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:B8C6817103F9A18226AEAE35B71EF6CD3CA0C936
 ```bash
 magnet:?xt=urn:btih:0C4CC289C33417B746B605385D0EE9917CEDEDD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:0C4CC289C33417B746B605385D0EE9917CEDEDD4
 magnet:?xt=urn:btih:25DFBB0F69C4C91E7EF9EA77512569C63577DCFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Mark of the Deep (2025) [Ru/Multi] (1.0.0.0.0) Repack seleZen
 magnet:?xt=urn:btih:B10F0DB819512E287B83788EB0B8B759D87842C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Le Cordon Bleu | Школа кондитерского мастерства (201
 ```bash
 magnet:?xt=urn:btih:9AD4612F8A685B5375A82D8D18A524FB88099B40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:9AD4612F8A685B5375A82D8D18A524FB88099B40
 magnet:?xt=urn:btih:1E483D69A298FB24811E39F189C7D20952C49276
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ The Thaumaturge - изометрическая ролевая игра с глу
 ```bash
 magnet:?xt=urn:btih:7FFE6836C3D96681D7FC2FEA946FA08EE8B416DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:7FFE6836C3D96681D7FC2FEA946FA08EE8B416DF
 magnet:?xt=urn:btih:73726281904B249A51886B0B886D5C0AB4691C0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:73726281904B249A51886B0B886D5C0AB4691C0C
 ```bash
 magnet:?xt=urn:btih:186E09E33B4490E1D3D121B23A38BCC11052F918
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Blacksmith Simulator (2025) [Ru/Multi] (1.0.0.0) Repack FitGirl
 magnet:?xt=urn:btih:440F957D76D6F38CA6749A278770C4E58DCAB00D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:440F957D76D6F38CA6749A278770C4E58DCAB00D
 ```bash
 magnet:?xt=urn:btih:7F1A670D23D039D4023FD0275EBCAF76EA1C60D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ Cyber Manhunt 2: New World - The Hacking Simulator (2024) [Multi] (1.0.7) Repack
 magnet:?xt=urn:btih:8213FE8C25164DDB2AACFC6CD82E468DA53D99EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:8213FE8C25164DDB2AACFC6CD82E468DA53D99EF
 ```bash
 magnet:?xt=urn:btih:11F82445FB0B6B5304607344EDBD30DAE3CB9E65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:11F82445FB0B6B5304607344EDBD30DAE3CB9E65
 magnet:?xt=urn:btih:EFAB3533F25859AB2DC54F53158D55B601E1F276
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ HD Music Player v3.4.1.164 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:35E1DF516A78B4F34B8769EDF983B7DCCF6AE4F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ Persona 4 Golden - ролевая игра, рассказывающая про 
 magnet:?xt=urn:btih:B4C9F41D9012FD18483F6B5193170DCA414C2048
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Discovery: Пропавшие женщины шоссе 20 / Lost Women of Highw
 magnet:?xt=urn:btih:3AD29340864375AB484A0D443EB196738CF3689B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:3AD29340864375AB484A0D443EB196738CF3689B
 ```bash
 magnet:?xt=urn:btih:EC3AB2666BB3F2D885C14C3DCC3C2BA7AA3D8696
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:EC3AB2666BB3F2D885C14C3DCC3C2BA7AA3D8696
 ```bash
 magnet:?xt=urn:btih:D78C25B5E2B5C2FE5D0D35CF3F2F11D0941D7AD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Ghostrunner 2 (2023) [Ru/Multi] (0.40570.441/dlc) Repack dixen18
 magnet:?xt=urn:btih:DFC85E849FFEF266A402E163137A85EFD9D57D0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Beneath Oresa (2022) [Ru/Multi] (1.0.23) Repack Wagner
 magnet:?xt=urn:btih:DE79D51882BB259CD42480BE038B82FA594CC5D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:DE79D51882BB259CD42480BE038B82FA594CC5D0
 ```bash
 magnet:?xt=urn:btih:3AFA7420614D9C1B29CDC8FE6A0E54B4B68CA093
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:3AFA7420614D9C1B29CDC8FE6A0E54B4B68CA093
 magnet:?xt=urn:btih:2F726B6BD7C7E855D7242A418E57A7883C5EE7E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:2F726B6BD7C7E855D7242A418E57A7883C5EE7E7
 magnet:?xt=urn:btih:8C717D30B1777CCCB3160DC59AB56D41A2B92953
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:8C717D30B1777CCCB3160DC59AB56D41A2B92953
 ```bash
 magnet:?xt=urn:btih:3A987642110851A95063BDBE506037E5FF600F86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:3A987642110851A95063BDBE506037E5FF600F86
 magnet:?xt=urn:btih:DDBBD5792F0B6E8A8FE62CE05E9696D08EBAF038
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Change MAC Address – программа, с помощью которой мо
 ```bash
 magnet:?xt=urn:btih:A923C249856AA845291130690E04D066E98FAB9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Resource Tuner - это программа для просмотра, редак
 ```bash
 magnet:?xt=urn:btih:8CCC10105FA6CDD9F8E462AB7BDE6852DD835C7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ Sacred Spirit - Native Compilation (2024) [MP3|320 Kbps] <Native American, New A
 magnet:?xt=urn:btih:37DF23DB14A09991205DE2BDEBDEDE469AA322E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ Farm Manager 2021 – игровой проект, который вновь г�
 ```bash
 magnet:?xt=urn:btih:C3B344F48EC26411107C65B32C92646D7FFD19EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:C3B344F48EC26411107C65B32C92646D7FFD19EC
 magnet:?xt=urn:btih:4DE572503FBB10BB6CF57E3462414D8DC5257E62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ Dekisokonai to Yobareta Moto Eiyuu wa, Jikka kara Tsuihou Sareta no de Suki Katt
 ```bash
 magnet:?xt=urn:btih:04AC4DABDF19DD09A6A431A30754414E640349BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:04AC4DABDF19DD09A6A431A30754414E640349BE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:04AC4DABDF19DD09A6A431A30754414E640349BE
 ```bash
 magnet:?xt=urn:btih:6E9FAE4AE0542DD9951F596B1C6E1D607D2A5E52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:6E9FAE4AE0542DD9951F596B1C6E1D607D2A5E52
 magnet:?xt=urn:btih:3AE54B7BA9BF8716366B3000B317BC2D0EA617EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:3AE54B7BA9BF8716366B3000B317BC2D0EA617EE
 ```bash
 magnet:?xt=urn:btih:09E7FF62A514EDA804162BC1F18CA291E79C4968
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ Left 4 Dead 2 (2009) [Ru/Multi] (2.2.3.0/dlc) Repack dixen18
 magnet:?xt=urn:btih:B9C5CD09C307AC4E8C4C8C3252FCC091A6A2C94B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:B9C5CD09C307AC4E8C4C8C3252FCC091A6A2C94B
 ```bash
 magnet:?xt=urn:btih:34873580AA9B5800A83901E9DB562D17861A2EDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:34873580AA9B5800A83901E9DB562D17861A2EDB
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ The Inquisitor - это сюжетная приключенческая игра
 magnet:?xt=urn:btih:79CB4CAECD89876139A6B84036C48EC9C5CA3F68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ TimeShift (2007) [Ru/Multi] (1.02) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:A83F403B2FDBF5F6F6BF2247B88606DC8A0D684E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:A83F403B2FDBF5F6F6BF2247B88606DC8A0D684E
 ```bash
 magnet:?xt=urn:btih:9FD2EDB977412D5B0836747FF9341AE5183A6CF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ GoodbyeDPI 0.2.2 Launcher 7.6 [Ru]
 magnet:?xt=urn:btih:9B39F8786BC0690D9903A6111C0EC95FFEF1AE22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ iZotope - RX 11 Audio Editor Advanced 11.1.0 STANDALONE, VST 3, AAX (x64) RePack
 magnet:?xt=urn:btih:AC1216D9734A89725E84D6DBB781E6226ED8D6E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ magnet:?xt=urn:btih:AC1216D9734A89725E84D6DBB781E6226ED8D6E9
 ```bash
 magnet:?xt=urn:btih:37DC5909266CB257AD747377B4A77FCEF7A4ADFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

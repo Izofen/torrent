@@ -1,3 +1,32 @@
+###  Публикация: 1167669   (414378) от 21.09.2017
+
+Chris Rea - Collection (от ALEXnROCK) (2017) [MP3|320 Kbps] <Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Looking For The Summer  5:03
+02.  You Can Go Your Own Way  3:56
+03.  On The Beach  6:49
+04.  The Chance Of Love  4:15(   Читать дальше...   )Жанр: Blues RockПродолжительность: 02:16:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23C14B6B9AB77AB093748919FC74A03012CEBE8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573198   (414389) от 30.08.2022
 
 VA - Highway to Yell (2022) [MP3|320 Kbps] <Rock, Hard Rock, Other>
@@ -21,6 +50,8 @@ VA - Highway to Yell (2022) [MP3|320 Kbps] <Rock, Hard Rock, Other>
 ```bash
 magnet:?xt=urn:btih:0AF768C1A66A5AB360B971F2D0EA00CE2CF6D6CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - The Real... Christmas Crooners (2016) [MP3|320 Kbps] <Miscellaneous, Holida
 magnet:?xt=urn:btih:6F9B0C9F8B89F454252ECB7E6BAD2469803EEE0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - NRJ hits Exclusive №5 (2016) [MP3|192-320 Kbps] <Dance, Club>
 ```bash
 magnet:?xt=urn:btih:20AF99272313E9A7343C9DC7AF40A55B7B09BE2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Event Jazz Music (2019) [MP3|320 Kbps] <Jazz, Blues>
 magnet:?xt=urn:btih:D73E064EB27EB3687816563416940559BB75ED66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Sapphire Eyes: European Rock Review (2019) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:579B8D91070395044C15971AD8F8FC6E566318A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - The Ultimate Collection RnB and Hip Hop (2017) [MP3|320 Kbps] <RnB, Hip Hop
 magnet:?xt=urn:btih:C92E92DBB6623F9192325F6B660712E5FDA81532
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Disco Vintage Real Time (2022) CD, Promo Edition, Compilation [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:99C50759F656267E183E4A85E730C589D3E5228C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Billboard TOP100 Single Charts (29.10.2016) (2016) [MP3|128-320 Kbps] <Pop>
 magnet:?xt=urn:btih:35A0D96FFE4EA1150DCD2F41DC79303CBF63CFE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - The Official UK Top 40 Singles Chart 13.09.2019 [MP3|320 Kbps] <Pop, Dance,
 ```bash
 magnet:?xt=urn:btih:8DF005ACAB79682436F8604ED20376DC840BEBC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - German Top 100 Single Charts 13.09.2019 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:F91C6602A5456E4BDBBAA5E48E20F53943B49B91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - EDM Beats Electro House (2019) [MP3|320 Kbps] <Electro House>
 ```bash
 magnet:?xt=urn:btih:ED4163A3003375CE1E26E09605E845750FB67A14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - Сотка модных хитов 50/50 (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:569C9C067636E26FF7C34DC325AC689529094055
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ VA - Erotic Autumn Jazz-Lounge Desires for Intimate Chill Obsession (2016) [MP3|
 ```bash
 magnet:?xt=urn:btih:1CF0E66E8939E64CCD092616E98B033D7D9AC03C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ VA - Simply Breaks & Beats Vol. 01 (2022) [MP3|320 Kbps] <Grime, 2-Step, Breakbe
 magnet:?xt=urn:btih:9953A73F195732E3298C01628426E6DC25B4B46B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +456,8 @@ VA - Survival Clinic: Dubstep Compound (2016) [MP3|320 Kbps] <Dubstep, Drum And 
 ```bash
 magnet:?xt=urn:btih:7AFAA5C4A76A51DEDE44F1F57CA162C0F821C01B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +492,8 @@ VA - Future Trance Classics Vol.10 (2012) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:A505107FD8F3CAC0F031B42429B71D0AC08AD757
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +520,8 @@ VA - Gold Shadow: Balearic Music (2016) [MP3|160-320 Kbps] <Balearic Lounge, Dow
 ```bash
 magnet:?xt=urn:btih:0A52A3A8BDD490DA937812ADF335645A627F7E5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +550,8 @@ VA - The Very Best Of Pure House Music (2017) [MP3|265-320 Kbps] <Progressive, D
 magnet:?xt=urn:btih:BF8F06D3848563E73B153729CF330B61A12BCFE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +578,8 @@ magnet:?xt=urn:btih:BF8F06D3848563E73B153729CF330B61A12BCFE2
 ```bash
 magnet:?xt=urn:btih:E538E7333471218C7C7347813926B3D01A3CDB22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +608,8 @@ VA - Shazam Хит-парад Russia Top 100 Сентябрь (2020) [MP3|320 Kb
 magnet:?xt=urn:btih:3674C750C22CF1CD121AA5E1739E2A7548835854
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +636,8 @@ VA - Лучшие Trance Треки Ver.2 (2018) [MP3|320 Kbps] <Uplifting Tranc
 ```bash
 magnet:?xt=urn:btih:0D5A612E3EFEC39FBBCD895FAD58CB2419680C71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +666,8 @@ VA - 100 Fashion Dance (2015) [MP3|320 кб/с]<Pop, Dance, Eurodance>
 magnet:?xt=urn:btih:6A4C2AA590F03940AFA001EB7B450E273C94CAEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +694,8 @@ VA - Kamasutra Cafe Chillout (2015) [MP3|320 кб/с]<Easy Listening, Lounge, In
 ```bash
 magnet:?xt=urn:btih:97D118F033181428251E32A9D96D3B5729F886DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +724,8 @@ VA - Музыкальное свежье русский выпуск 3 (2015) [M
 magnet:?xt=urn:btih:E355C8E0F0F94E9F5B607167C3AE791E58E27514
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -676,32 +753,7 @@ VA - Melodic Deep House (2019) [MP3|320 Kbps] <Deep House>
 magnet:?xt=urn:btih:DB6165CE4847CD05BACD4470C29D1171FB65F71B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948041   (415980) от 18.10.2015
-
-VA - Sexy Chillout Best 15 Tracks of Electronic Music Erotic Relaxation Lounge Tantric Chill Cocktail Party Oriental Moods (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sexy Chillout Music Specialists - Move Your Sexy Body
-02. Sexy Chillout Music Cafe - Kaleidoscope
-03. Spa Chillout Music Collection - Somewhere Someday
-04. Beach House Chillout Music Academy - Lost and Found(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:53:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CE3768E42A8CB61CEC4E6961E46FAF50D1DE6F9
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

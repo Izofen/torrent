@@ -19,6 +19,8 @@ AOMEI Backupper – программа для создания резервно�
 magnet:?xt=urn:btih:8F9AE42FFAA1658ED7E5B6CE9A49D3BD76ABE305
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:54AEE853E816CA813047655B80DF868D0912CCFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:54AEE853E816CA813047655B80DF868D0912CCFE
 magnet:?xt=urn:btih:1718C62FD68B6763A40E2C5C9682906BA17FC81D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Revo Uninstaller Pro 5.0.3 RePack (& Portable) by 9649 [Multi/Ru]
 magnet:?xt=urn:btih:0B69A22B8FD51891FC90134FD4EEB7CF50CFF563
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ ON1 Portrait AI – новый инструмент обработки порт�
 ```bash
 magnet:?xt=urn:btih:ABF2AFF5D068A6775F390D10777C544B3E6DAF9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Balabolka 2.15.0.840 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:1258B7F182FA43DDE2148F00395F3154EA774524
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ WinPaletter v1.0.7.3 Standalone [En/Ru]
 magnet:?xt=urn:btih:1FEDDC36909B7DAD187EE48026093B33B6A26C85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:26A9CD6146AEC6E600D4AAFA63FE434960147CFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ BELOFF [dp] 2022.07.2
 magnet:?xt=urn:btih:07B76B7DE2B8B724A9791B5C2C04C2EB409A4F35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ PhotoDiva — одна из лучших программ для ретуши п
 magnet:?xt=urn:btih:818DCB6CEC71A605940CEC8EFC4312D879C646A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Ultimaker Cura - популярный слайсер для 3d-печати. О�
 ```bash
 magnet:?xt=urn:btih:EFD1E9225E78C27B244224F2715D354E1817D402
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 magnet:?xt=urn:btih:0A0EE2F65940F80808F457EFEABEA9C44852E17E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 magnet:?xt=urn:btih:4F5504912271FD094EA268633A4D9AFC231F90D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:3CC3653269BEC542CE1BD28A0FD818C3BB782BC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ Sweet Home 3D – замечательная программа для созд�
 magnet:?xt=urn:btih:AD2897E6A0B591903B6E438D8F93EF54BA395C64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:AD2897E6A0B591903B6E438D8F93EF54BA395C64
 magnet:?xt=urn:btih:D3CA73FD9DA068EB5A31D29FC62AF0ACB616039C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ SRWare Iron 110.0.5600.0 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:2557ED6C78E4FB0C7AD25C0C440F57464C60634A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:2557ED6C78E4FB0C7AD25C0C440F57464C60634A
 ```bash
 magnet:?xt=urn:btih:292ACCBCDC27D53C2EC0EBBB4A236197A5D5B0FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ Commander One PRO - FTP/SFTP клиент, RAR, 7zip и Tar архиватор. 
 magnet:?xt=urn:btih:FF1B1F0B3AC19D921822CF948C78F1A574CB40CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:4D4A64E54FCA67F3E604CB718039BBE48E4951A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 magnet:?xt=urn:btih:9FC199C561AE8A5F546EF709A65012612B5A04F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ Aiseesoft Screen Recorder 2.7.12 RePack (& Portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:C24CC79928783B4FFB4C367F83F23D957D60A695
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ Advanced SystemCare PRO - это мощный пакет для оптимиза
 ```bash
 magnet:?xt=urn:btih:6E92F23D23D63B4C2ACBF67157BDF8CED92F1D6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ Inkscape – редактор векторной графики. Програм�
 magnet:?xt=urn:btih:A365CC638CD26FE7F654A9222FACB2BB602FAB79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.31.31103.0 [Ru]
 magnet:?xt=urn:btih:8145E87C55D510B7C0DCBB74576C100EEC86A222
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Wondershare UniConverter - простой в использовании виде
 ```bash
 magnet:?xt=urn:btih:D326ADDC283E1CD215E5366EFB32619C87A5BFD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

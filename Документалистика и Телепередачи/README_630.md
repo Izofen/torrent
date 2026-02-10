@@ -1,3 +1,30 @@
+###  Публикация: 1003177   (845397) от 02.04.2016
+
+Ты не поверишь! (02.04.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845397.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой программе перед телезрителями предстанет яркая палитра ошеломляющих новостей из мира шоу-бизнеса! Пересказывая эти истории друзьям и знакомым, непременно захочется воскликнуть: «Ты не поверишь!»
+Информационно-развлекательная программа построена на популярном жанре светского репортажа. Только здесь показана жизнь самых богатых и знаменитых людей страны со всех (   Читать дальше...   )В этом выпуске: Закрытый праздник Владимира Преснякова-младшего: что ему не хватает для полного счастья? Светлана Иванова и Джаник Файзиев больше не скрывают запретную любовь. Юрий Шатунов возвращается из Германии в Россию. Программа «Ты не поверишь!» посчитала все золотые унитазы в его новых сочинских апартаментах. А также — тайны брачных договоров звезд.Телекомпания: НТВЖанр: ТелешоуПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D3B7A69E299953D9B309365C406144897941432
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002883   (845400) от 02.04.2016
 
 Человек и закон (01.04.2016) HDTVRip [H.264/720p-LQ]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:24A3ACF1B21D95D31DF217A7ABB33278828E89F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:24A3ACF1B21D95D31DF217A7ABB33278828E89F0
 magnet:?xt=urn:btih:66CF618780FB7F15081D09BAA5C76E8D2B4E4674
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +97,8 @@ magnet:?xt=urn:btih:66CF618780FB7F15081D09BAA5C76E8D2B4E4674
 ```bash
 magnet:?xt=urn:btih:C26C258B377D02F38BE53EA15C68CBCF887529A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +124,8 @@ magnet:?xt=urn:btih:C26C258B377D02F38BE53EA15C68CBCF887529A3
 magnet:?xt=urn:btih:34FF8B3DAC4DD7274A2E63023BF6F00454E2A61D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +149,8 @@ magnet:?xt=urn:btih:34FF8B3DAC4DD7274A2E63023BF6F00454E2A61D
 ```bash
 magnet:?xt=urn:btih:534C7E160C845C4F74D7CA867CF6AB4EB3329E55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +179,8 @@ magnet:?xt=urn:btih:534C7E160C845C4F74D7CA867CF6AB4EB3329E55
 magnet:?xt=urn:btih:864C690BF4152396130EF6519C3B37168D1A1EC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +204,8 @@ magnet:?xt=urn:btih:864C690BF4152396130EF6519C3B37168D1A1EC0
 ```bash
 magnet:?xt=urn:btih:7A38662CA3C71D6428C084A6812B5C791498BFC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +231,8 @@ magnet:?xt=urn:btih:7A38662CA3C71D6428C084A6812B5C791498BFC4
 magnet:?xt=urn:btih:C13A8E9526D0A24BEE87CB7FAC0BEC2C496A11DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +257,8 @@ magnet:?xt=urn:btih:C13A8E9526D0A24BEE87CB7FAC0BEC2C496A11DE
 magnet:?xt=urn:btih:1860017EC1F3AE2912FDCC074F80E7AFCEA2DFDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ magnet:?xt=urn:btih:1860017EC1F3AE2912FDCC074F80E7AFCEA2DFDE
 ```bash
 magnet:?xt=urn:btih:295664335E4E8F9884FA02593B0344D77E950C2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +311,8 @@ magnet:?xt=urn:btih:295664335E4E8F9884FA02593B0344D77E950C2E
 magnet:?xt=urn:btih:CBEEE2DF2AA56498734A60E0C86A9129E691EF26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +336,8 @@ magnet:?xt=urn:btih:CBEEE2DF2AA56498734A60E0C86A9129E691EF26
 ```bash
 magnet:?xt=urn:btih:B606B86291BC6228AAE7B7A8C7699B63BE6733AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +363,8 @@ magnet:?xt=urn:btih:B606B86291BC6228AAE7B7A8C7699B63BE6733AE
 magnet:?xt=urn:btih:D5E893080BCFBFC76D45800BF9A753130EC57D29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +388,8 @@ magnet:?xt=urn:btih:D5E893080BCFBFC76D45800BF9A753130EC57D29
 ```bash
 magnet:?xt=urn:btih:E5C2384AE666A88695A68F0FEFB0BD195CCFE01D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +415,8 @@ magnet:?xt=urn:btih:E5C2384AE666A88695A68F0FEFB0BD195CCFE01D
 magnet:?xt=urn:btih:6D53CC2887CB65510112D59C3D2D06C3EF5B45DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +440,8 @@ magnet:?xt=urn:btih:6D53CC2887CB65510112D59C3D2D06C3EF5B45DB
 ```bash
 magnet:?xt=urn:btih:B7253C53AE7FEFB7958CCF1B1DF70AEAA6CCDD31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +467,8 @@ magnet:?xt=urn:btih:B7253C53AE7FEFB7958CCF1B1DF70AEAA6CCDD31
 magnet:?xt=urn:btih:0B9604D850ACC91AA7951D480D1C7CEE512447F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +492,8 @@ magnet:?xt=urn:btih:0B9604D850ACC91AA7951D480D1C7CEE512447F8
 ```bash
 magnet:?xt=urn:btih:B5331E1F037D5D9663B31F6B2DAE72B09F46598D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +519,8 @@ magnet:?xt=urn:btih:B5331E1F037D5D9663B31F6B2DAE72B09F46598D
 magnet:?xt=urn:btih:214D9CF50F75CFEBE76D79ADA0583E5D759D49B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +544,8 @@ magnet:?xt=urn:btih:214D9CF50F75CFEBE76D79ADA0583E5D759D49B0
 ```bash
 magnet:?xt=urn:btih:27B236A23A852BDF1A5C4AF747DD9F34B633B013
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +571,8 @@ magnet:?xt=urn:btih:27B236A23A852BDF1A5C4AF747DD9F34B633B013
 magnet:?xt=urn:btih:54B8C2213361C43EE4EC708CB7979F73A3F1BF1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +596,8 @@ magnet:?xt=urn:btih:54B8C2213361C43EE4EC708CB7979F73A3F1BF1A
 ```bash
 magnet:?xt=urn:btih:31B305A5BC7EC0B199914A1A4FA85ACBE574CC12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +623,8 @@ magnet:?xt=urn:btih:31B305A5BC7EC0B199914A1A4FA85ACBE574CC12
 magnet:?xt=urn:btih:FD9B7360D9D3511874224F2A1BBFE4DF9A7F7021
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +648,8 @@ magnet:?xt=urn:btih:FD9B7360D9D3511874224F2A1BBFE4DF9A7F7021
 ```bash
 magnet:?xt=urn:btih:1E0D869734708235BE76E98F99A80BED4DB5893D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,29 +675,7 @@ magnet:?xt=urn:btih:1E0D869734708235BE76E98F99A80BED4DB5893D
 magnet:?xt=urn:btih:3648274D58EAAB79DF6CE2D3125A2D941C86D859
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 839501   (846675) от 01.04.2016
-
-Гренландия. Дикая природа страны викингов /  The Green Land: Wildlife in the Land of Vikings (2005) HDTVRip [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гренландия - уникальный уголок нашей планеты. Её северная красота на протяжении многих веков завораживала умы и души людей. Поддайтесь и вы её чарам.Жанр: Документальный, природа, фаунаПеревод: Одноголосый закадровый (профессиональный)Субтитры: отсутствуютПродолжительность: 00:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E7C89C0B7AD6CFA76503D36CBB533624D947713
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

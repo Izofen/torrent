@@ -22,6 +22,8 @@ VA - NRJ 200% Hits 2015 (2015) [FLAC|Lossless]<Pop, Hip Hop, Eurodance, R&B>
 magnet:?xt=urn:btih:7EFEA8455B83DBCC1681201200F7C7949E8F49F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -50,6 +52,8 @@ CD2 (00:28:17)Треклист CD1:
 magnet:?xt=urn:btih:3C5BCAAAC6588999643E9856A9B20A116D364B9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +80,8 @@ Bebe Rexha - All Your Fault: Pt. 1 (2017) [FLAC|Lossless|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:D46BDF486B7207B2F0DC7F361896ECF8C48DED33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -104,6 +110,8 @@ Waaktaar & Zoe - World Of Trouble (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Ind
 magnet:?xt=urn:btih:B68BB0CDF1134AC5642532516449B5ACAA46F864
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +138,8 @@ Cher - The Millennium Collection: The Best of Cher (2000) [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:FC8CE360DA6E0621302D14BFD5CD7B616778EED0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -158,6 +168,8 @@ Ardis - Love Addict (1994) [APE|Lossless|image + .cue] <Electronic, Reggae, Pop>
 magnet:?xt=urn:btih:DA54DA67BB4CE9106F990009F976DF8FBEA5AA9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +196,8 @@ Masha Qrella - Keys (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Indie
 ```bash
 magnet:?xt=urn:btih:A9A47D5663A979ED2B85C8C9E3290BB71EC284CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +232,8 @@ Shakira - Shakira. (Deluxe Version) (2014) [FLAC|Lossless]<Pop>
 magnet:?xt=urn:btih:59ABE481E753E8765858430BA9CF7D4B78036501
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +267,8 @@ Amel Bent - Instinct (2014) [FLAC|Lossless]<Pop, French Pop, R&B, Soul>
 magnet:?xt=urn:btih:C64BBFE94382484BA41A5FB1E6CA16311D11C441
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +292,8 @@ Shania Twain - 2 альбома (1995-1998) [FLAC|Lossless]<Pop, Country-rock, P
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +322,8 @@ Kenny G - Love Ballads (2008) [FLAC|Lossless|tracks + .cue] <Pop>
 magnet:?xt=urn:btih:DF1F0C02B545B265F701B7FB96FCCB1B6DEE0E21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +350,8 @@ Birdy - Beautiful Lies (2016) Deluxe Edition [FLAC|Lossless|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:A5C3DBD15C2FEB47E6F3C1AEEC7ACB5C3ECAE786
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +380,8 @@ Demis Roussos - The Universal Masters Collection (2000) [FLAC|Lossless|tracks] <
 magnet:?xt=urn:btih:C07C557AA3D18132CCD7B646DEA4CB93B3BF49A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +408,8 @@ Solomon Grey - Solomon Grey (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Po
 ```bash
 magnet:?xt=urn:btih:AD444EFD94FBCAD71F6818FA6A0AAAD733D0999E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +438,8 @@ magnet:?xt=urn:btih:AD444EFD94FBCAD71F6818FA6A0AAAD733D0999E
 magnet:?xt=urn:btih:2AB897686650483DFA1D61C1266AAE8E1962A2F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +466,8 @@ AURORA (Aksnes) - All My Demons Greeting Me As A Friend (2016) Deluxe Edition [F
 ```bash
 magnet:?xt=urn:btih:B514FA7E571CC8D1979F2723C9710A2112FF918B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +496,8 @@ Sandra - Paintings In Yellow (1990) Japanese Edition [FLAC|Lossless|image + .cue
 magnet:?xt=urn:btih:FBBA509042102224CDFFDFB04591B8A5EB0A4AAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +524,8 @@ Natalie Imbruglia - Firebird (2021) [FLAC|Lossless|WEB-DL|tracks] <Soft Rock, Po
 ```bash
 magnet:?xt=urn:btih:9A96CFFD8C5AF402711F997ADEE1BA795D4058BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +555,8 @@ Kelly Clarkson - Piece By Piece (2015) Deluxe Edition [FLAC|Lossless]<Pop, Rock>
 magnet:?xt=urn:btih:22AFF193C3E225E348A3B6B8C38CF4E40FB9CE55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +584,8 @@ Adolescent's Orquestra - Millenium Hits (1999) [FLAC|Lossless|image + .cue] <Sal
 magnet:?xt=urn:btih:AA1717408DC43C8DF257310AF68812DDD227BC3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +612,8 @@ HorrorPops - Bring It On! (2005) [FLAC|Lossless|tracks] <Pop-Rock, Alternative, 
 ```bash
 magnet:?xt=urn:btih:A1A3B4C82ED5070ADB72D4620B150B48E59EF994
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +643,8 @@ Darren Hayes - Too Close For Comfort (2002) /Mini-Album/ [FLAC|Lossless]<Pop, Ba
 magnet:?xt=urn:btih:58DA83FF2017AE1DA7C5C3C867BBF5FF029AC759
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +671,8 @@ Demis Roussos - Souvenirs (1975) Remastered, 2016, UMC [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:5F2B7A4E66CB33FA27DD53831CF05CDB8B7358F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -657,6 +703,8 @@ Infernal - датская dance-pop группа, образованная в 19
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -685,6 +733,8 @@ Middle Of The Road - The Best Of (2002) [FLAC|Lossless]<Pop, Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -711,6 +761,8 @@ Meghan Trainor - Treat Myself (2020) Target Exclusive [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:1F1546BFB0E88953A32D096D2713B7A648BBD470
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

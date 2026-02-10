@@ -22,6 +22,8 @@ Buvana - Songs of Light: Bhajans & Mantras (2007) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:B07023341DC1D5FE05F4A06D54C79FEF0AD9EE57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:76765DB4638853443BBCDE5F6A2DCD133417198B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Latin Dance Aerobic Workout 2018 (2017) [MP3|320 Kbps] <Bachata, Merengue, 
 magnet:?xt=urn:btih:91BAAC5C8F2922CFC027B1E3C79EAD8C613AFF86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Amethystium - Aurorae (2012) EP [FLAC|Lossless|tracks + .cue] <New Age, Ambient>
 ```bash
 magnet:?xt=urn:btih:5F4E016ADE73AEEBC1FDE0AA5903A0978241243C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Guitar Heroes (1997) [MP3|320 Kbps] <Instrumental>
 magnet:?xt=urn:btih:FA420663C157BF2D2D4F3BD6B7294F9108A41C22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Amy Lynne Johnson - Piano Poetry Peace to You (2015) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:AFCDF8703705808D3DADA103E16F0402E0EB1C1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Vitamin Therapy - Therapy Yoga Songs - Music for Inner Care (2022) [FLAC|Lossles
 magnet:?xt=urn:btih:61968ABA954ADC455F650B6EB68A888B8BE1B16D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ Jack Pashley - The Music of Ollundra (2016) [FLAC|Lossless|WEB-DL|tracks] <Sound
 magnet:?xt=urn:btih:3E7EDE2B66A69CBCF11D7598310ACAE59392FFC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +253,8 @@ Pregnancy and Birthing Specialists - Pregnancy Music New Age Collection 2020 [FL
 ```bash
 magnet:?xt=urn:btih:F56190C686AFB10B11FE0AB2D0B48F7411154361
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +289,8 @@ VA - Энни / Annie (Original Motion Picture Soundtrack) (2014) [MP3|320 кб/
 magnet:?xt=urn:btih:5F580C067D9BD141E33ABFB749BC4ED6093F96B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +324,8 @@ Soundcritters - Morrow Forge (2013) [MP3|320 кб/с]<Trailer Music>
 magnet:?xt=urn:btih:65B854448D0D7A9F07EE3A1399E9F348B8683E9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +352,8 @@ VA - Бременские Музыканты. По следам Бременск
 ```bash
 magnet:?xt=urn:btih:BAD31F5964FD69DFCFE42B08876B154858B152B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +382,8 @@ Blackmore's Night - Nature's Light (2021) 2CD, Mediabook [FLAC|Lossless|tracks +
 magnet:?xt=urn:btih:66AB36B46CA504B6DAC1EEF6EB13ECC8B0B5F58A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +411,8 @@ VA - Гармонь России 1-2 (2005-2006) 2CD [MP3|320 Kbps] <Фольк�
 magnet:?xt=urn:btih:47699D4B16874EB033267D4B2A8DE735DA26BBB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +439,8 @@ Peter Kater - How the West Was Lost (2011) 2CD [MP3|320 Kbps] <Native American, 
 ```bash
 magnet:?xt=urn:btih:A98C79F0D01C0775FFD8A46CACEFD3F174AD6170
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +472,8 @@ Ocarina - 5 альбомов (1991-1999) [MP3|320 кб/с]<Instrumental>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +500,8 @@ Ocarina - 5 альбомов (1991-1999) [MP3|320 кб/с]<Instrumental>
 ```bash
 magnet:?xt=urn:btih:AD8C618721ADBDEB6BB607CC1BEF9681F3D3110C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +536,8 @@ David Arkenstone - Visions of Christmas (2010) [FLAC|Lossless]<New Age, Christma
 magnet:?xt=urn:btih:5AB6935E84CE5897A1704A74506082F3738F4BCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +566,8 @@ Opycham - Kudesa (2018) [MP3|320 Kbps] <New Age, Folk>
 magnet:?xt=urn:btih:2796C2E6EB6C28E8A9F39A260DF7F32C3C010B56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +594,8 @@ Shinnobu - The Enigma VIII (What Once It Was) (2019) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:9B7EBBF650DF9947762DA382DA0579A154D08AA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +630,8 @@ Wounds - Kairo: Arranged Soundtrack (2013) [MP3|128 кб/с]<OST, PsyAmbient, Dr
 magnet:?xt=urn:btih:45F705F1D8562E687F5660E0FB91AA1254C57774
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +659,8 @@ Enya - Christmas Secrets (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Celtic, 
 magnet:?xt=urn:btih:F73A138A92482CB3ABA0520DBA8D7186D6D749A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +687,8 @@ VA - Christmas Cafe (2016) [FLAC|Lossless|tracks] <Pop, Soul, Folk>
 ```bash
 magnet:?xt=urn:btih:9481DE3B44914BD429C5C34819616492352E0170
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -674,6 +720,8 @@ Ani Tsering Wangmo - Alokhe (2007) [MP3|320 кб/с]<Folk, Mantras>
 magnet:?xt=urn:btih:21F6D47916E8F01CE7A64244DC518885C75AB0E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -700,6 +748,8 @@ Meditative Mind - 7 Chakras Healing Music (Tibetan Singing Bowl Edition) (2016) 
 ```bash
 magnet:?xt=urn:btih:3D0B6598C811A7C522F3E105115EE57E2E3FE6E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -733,6 +783,8 @@ Austin Wintory - The Banner Saga (2014) [MP3|320 кб/с]<Soundtrack>
 ```bash
 magnet:?xt=urn:btih:B13A82C9CFD8701A5551D7520D2FD1AF6A180619
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

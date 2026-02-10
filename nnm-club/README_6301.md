@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:DF798B5425F4534E2FDA6BEBD1F1D2E8765E7CA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:DF798B5425F4534E2FDA6BEBD1F1D2E8765E7CA0
 ```bash
 magnet:?xt=urn:btih:F5844EE5101EDF68F7009703F582D1062879682F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:F5844EE5101EDF68F7009703F582D1062879682F
 magnet:?xt=urn:btih:2F7E34A8C5C0134E02EA7B89BAC3740088595994
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:2F7E34A8C5C0134E02EA7B89BAC3740088595994
 ```bash
 magnet:?xt=urn:btih:0CC22C8D4D38A2FC5968E6E791890F586F2D2A4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:0CC22C8D4D38A2FC5968E6E791890F586F2D2A4C
 magnet:?xt=urn:btih:7A19A19C8C5A289EB3B84D768ADEF4BB781B08E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Rock Playlist Masters - Top 100 Rock Anthems Playlist (2013) [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:D2E83911B7F364C19BD72B358A37EE72B90C378B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:D2E83911B7F364C19BD72B358A37EE72B90C378B
 magnet:?xt=urn:btih:774A70C5127D97EC13BD22035BC9A38C916159C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ Vishwanathan Narayanan | SQL and NoSQL Interview Questions (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:B571E02D1C58CAFD4181345E25B90CEE0C2E63FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ The Damned - A Night of a Thousand Vampires (Live in London) (2022) [FLAC 2.0|48
 magnet:?xt=urn:btih:ECC210CAD1A260E68705CEC9BC1620D6C168DD8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:ECC210CAD1A260E68705CEC9BC1620D6C168DD8A
 ```bash
 magnet:?xt=urn:btih:E2AC65E6AB73061D8A8C9A3ACE5650AE508DF2FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ Los Bastardos Finlandeses - Viva! (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 magnet:?xt=urn:btih:D453803BCE254BBA98A1ECD656F9781BF584FBBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ Turkish Delight - Volume One (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, 
 magnet:?xt=urn:btih:3731FDF01AD06E205B73F438D2337013793A7A8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:3731FDF01AD06E205B73F438D2337013793A7A8F
 magnet:?xt=urn:btih:24209C466293C9F8125939F21C76FBC4897ED403
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:24209C466293C9F8125939F21C76FBC4897ED403
 ```bash
 magnet:?xt=urn:btih:62AC46318434B2440084B3EFD14EB5FF314630D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +405,8 @@ Fans Of The Dark - Suburbia (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 magnet:?xt=urn:btih:18132372B07C7983A15BDDEC8AE722150470525D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ magnet:?xt=urn:btih:18132372B07C7983A15BDDEC8AE722150470525D
 ```bash
 magnet:?xt=urn:btih:0B080271BB80592384CFF87AFAA0342EDAF45964
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +462,8 @@ VA - Trance In Motion Vol.364 (2023) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 magnet:?xt=urn:btih:D226ED11E41EB21DC80E5C4D93C397E95BB9243B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ magnet:?xt=urn:btih:D226ED11E41EB21DC80E5C4D93C397E95BB9243B
 ```bash
 magnet:?xt=urn:btih:556D768AE08E2FFA2FDCDF5D38A3ED4C86B1D0E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +514,8 @@ magnet:?xt=urn:btih:556D768AE08E2FFA2FDCDF5D38A3ED4C86B1D0E1
 magnet:?xt=urn:btih:69C59E081BE2ED01C063229ED815E1994886A434
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:69C59E081BE2ED01C063229ED815E1994886A434
 ```bash
 magnet:?xt=urn:btih:78490A4ECCC8362D68396553D1F79AA81286C97E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +569,8 @@ CD1:
 magnet:?xt=urn:btih:720FB9E5897C301DD56050865AC1129994E842A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +594,8 @@ FinePrint - многофункциональный драйвер для при�
 ```bash
 magnet:?xt=urn:btih:94E167C463FD653737080BCBD81FDD351C025324
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +624,8 @@ Jim Vegas - Shakedown City (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:607197103E8917ACF7AF70D0EA597E19461033BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +649,8 @@ magnet:?xt=urn:btih:607197103E8917ACF7AF70D0EA597E19461033BF
 ```bash
 magnet:?xt=urn:btih:05A7F4E2304DB5BAEAFB8BD53C60F0B00CEDEA1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +679,8 @@ Avatarium - Death, Where Is Your Sting (2022) [FLAC|Lossless|WEB-DL|tracks] <Doo
 magnet:?xt=urn:btih:BE2B123FEF8E2B7E25B726E77842A0C41E89E532
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ magnet:?xt=urn:btih:BE2B123FEF8E2B7E25B726E77842A0C41E89E532
 ```bash
 magnet:?xt=urn:btih:E551F2F40D0CDA6474DCB1BDCE096372D006301E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

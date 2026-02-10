@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:35C734D63D1E03502E0B7861545B785FD64C6FB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ GraveRipper - Seasons Dreaming Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Black
 magnet:?xt=urn:btih:061A2A04387FB03B7C715480B5E86651DBE6679E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:061A2A04387FB03B7C715480B5E86651DBE6679E
 ```bash
 magnet:?xt=urn:btih:224512DBDC97F61E7BD99EEDA279CD00FBB2AEDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Mimestream сочетает в себе мощь macOS с расширенным
 ```bash
 magnet:?xt=urn:btih:C6F16478B8B9B4A4E8B4545C99D8BB92A8A792BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Egokills - Egokills (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock
 magnet:?xt=urn:btih:85F903D6EC5E8F5F7AD7165832A8BB3ACAA17E2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ Art And Shock, Евгения Тумина и др. | Визуализация �
 magnet:?xt=urn:btih:A8A39E8C5864B244F64D6286BE0DDBAE35993370
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:A8A39E8C5864B244F64D6286BE0DDBAE35993370
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ Seinaru Sekai - Fragile Little World (2023) [FLAC|Lossless|WEB-DL|tracks] <Melod
 magnet:?xt=urn:btih:BD932F64CC4FDCB3137D32B9CCF1D303525F1745
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:BD932F64CC4FDCB3137D32B9CCF1D303525F1745
 ```bash
 magnet:?xt=urn:btih:F63933EA96C63AC7111522E1EAA742146300CFC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ Spillage - Phase Four (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard, Heavy, Doom Me
 magnet:?xt=urn:btih:1DD215AE24C9E4B539B3406156F3A801D0398337
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ Lowdrive - Rise (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Stoner, Doom>
 magnet:?xt=urn:btih:2D504778E1963F6AB78BCC60978B29FE84261EF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:2D504778E1963F6AB78BCC60978B29FE84261EF1
 magnet:?xt=urn:btih:9C7CF6FD29925F9A0064D1B92FF6D9B5F0283EE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:9C7CF6FD29925F9A0064D1B92FF6D9B5F0283EE7
 ```bash
 magnet:?xt=urn:btih:488E33C82150AE31DAFC9E4BAEC8C9C340C8540D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ Psiphon предназначен для предоставления вам от
 magnet:?xt=urn:btih:30B9AA8858042193AB34D75849625695DB8E900D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ WhatsApp Desktop - программа предназначена для прям
 ```bash
 magnet:?xt=urn:btih:DC35782FBF4E341C2BDEC78DE6901D6B8DFA8C27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:DC35782FBF4E341C2BDEC78DE6901D6B8DFA8C27
 magnet:?xt=urn:btih:A8489AC58764559EFE8FC71A9C42956C9653E348
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ magnet:?xt=urn:btih:A8489AC58764559EFE8FC71A9C42956C9653E348
 ```bash
 magnet:?xt=urn:btih:37E3C0F3F01345C0118958AD662AEB3337B3F971
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +482,8 @@ magnet:?xt=urn:btih:37E3C0F3F01345C0118958AD662AEB3337B3F971
 magnet:?xt=urn:btih:45C6756BB83F4648A742A16746CC7E8981E0CE57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:45C6756BB83F4648A742A16746CC7E8981E0CE57
 ```bash
 magnet:?xt=urn:btih:898EC30C202E6FC1DA399841C65C3B8F05A76C88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ magnet:?xt=urn:btih:898EC30C202E6FC1DA399841C65C3B8F05A76C88
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ magnet:?xt=urn:btih:898EC30C202E6FC1DA399841C65C3B8F05A76C88
 ```bash
 magnet:?xt=urn:btih:47995C7A736A21C6BF5202CEB8AA87E6A9A5FACD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ Smart Launcher - программа для преобразования поль
 magnet:?xt=urn:btih:3F021C059E9C599B57F768F1038B497151F0FDF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ DOOM Eternal от id Software – прямое продолжение хита D
 ```bash
 magnet:?xt=urn:btih:54BD0BF10E4776D13024D7AA927F16BE08626087
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +639,8 @@ magnet:?xt=urn:btih:54BD0BF10E4776D13024D7AA927F16BE08626087
 magnet:?xt=urn:btih:292C26E227DB4C32F989B12D95BC8786BF22242C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +665,8 @@ magnet:?xt=urn:btih:292C26E227DB4C32F989B12D95BC8786BF22242C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ Udemy, Илья Фофанов, Валерий Павликов | Изучаем
 ```bash
 magnet:?xt=urn:btih:8B3C17ED0790C55D224394776A16520DB9E20255
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

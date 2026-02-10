@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C0F4BA805B1FFC2E230094C9624FB32F1E1E813B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ SaGa Emerald Beyond v1.0.1 [En]
 magnet:?xt=urn:btih:2FF6929CDB5A8CC83B76FE06A2CB1D519CC360B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Words of Wonders: Игра в слова v5.5.20 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:10F661545C287F9720EB698CF340109383F7F9ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Jigsawscapes® - Пазлы v4.2.3 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:5FB831F4E8AADF931FE95109C95260ECDAEA0F81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:5FB831F4E8AADF931FE95109C95260ECDAEA0F81
 ```bash
 magnet:?xt=urn:btih:EEFA4CB0E9CE0AC1D3C1C296689AB0DB5249575A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Tick Tock: A Tale for Two — жутковатая кооперативная з
 magnet:?xt=urn:btih:82C768682E92B1584ED2976CBBB8E6B0E6C952E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ The Case of the Golden Idol 1.4 [En]
 magnet:?xt=urn:btih:2BC6BDADAFB506C7EEC0B1AFB759B0F322A7CCDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Duck Detective: Secret Salami v1.0.36 [En]
 magnet:?xt=urn:btih:127E1EA4F8D697EA2244BE5C73D17669662A5D81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Wood Block Puzzle – классическая игра-головоломка �
 ```bash
 magnet:?xt=urn:btih:7FB2A82DE8F4843E81E5B483C64381C105FA3747
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Wood Block Puzzle – классическая игра-головоломка �
 magnet:?xt=urn:btih:BF7ADC64E17C2872C6D5FA1FEFDAF221A4B624E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:BF7ADC64E17C2872C6D5FA1FEFDAF221A4B624E2
 magnet:?xt=urn:btih:50DFEE325B4DB2BE749847F70ED8930BF01B4D20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:50DFEE325B4DB2BE749847F70ED8930BF01B4D20
 ```bash
 magnet:?xt=urn:btih:57ED1B41063909E92C7BBDF386CF31FB57759430
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:57ED1B41063909E92C7BBDF386CF31FB57759430
 magnet:?xt=urn:btih:5879891745344662CE74C28F80FA3DDA0506687B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ Pro Pool 2024 v1.54 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:4E3DFF3CD3EA4ABFE69E700ADF718DB91330413E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:4E3DFF3CD3EA4ABFE69E700ADF718DB91330413E
 ```bash
 magnet:?xt=urn:btih:D49CC55B28DED379F273986A5FBD8308BDD09031
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:D49CC55B28DED379F273986A5FBD8308BDD09031
 magnet:?xt=urn:btih:9AFFB90FCC813B9D43337E5C4BF465AEBBA282AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ BabyBus Kids: Мир видео и игр v3.1.10.0 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E2B0C49AFCDD68837B9700B60626362498DAB73B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ Words of Wonders: Игра в слова v5.3.0 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:FE1F97FCF48820F636C9375049C9FF90EB620302
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:FE1F97FCF48820F636C9375049C9FF90EB620302
 ```bash
 magnet:?xt=urn:btih:7C6138694578716AF3EDC081543A04BFD03598A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ Day R Survival – интересная игра в которой вам пре
 magnet:?xt=urn:btih:AEC507992DBAF3F85E9CE501C62D8A593275AA94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ Flight Simulator 2d - realistic sandbox simulation - довольно неста
 ```bash
 magnet:?xt=urn:btih:0BA225BD137E9470751AB1EDAB901BF0EA611F87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ Age of Civilizations II - продолжение геополитической 
 magnet:?xt=urn:btih:32096B8A66F3EE2BD932B17AA97DF04CCA33652C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ Shadow Hunter : Lost World - Epic Hack and Slash v0.20.8.4 [En]
 ```bash
 magnet:?xt=urn:btih:A1613D2EC89729DCD627D05DBA325A4290FF9477
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ ExoMiner - Idle Miner Adventure
 magnet:?xt=urn:btih:B9C6B98A6843EF40DBBA6DFFC51A59D7ACDC2103
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ State of Survival - постапокалиптическая стратегия,
 magnet:?xt=urn:btih:BBB1E22871CE3C5486937F20DD4D8964B71AB8DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Street Racing Grand Tour - отличный гоночный проект от H
 ```bash
 magnet:?xt=urn:btih:74CA9B43C26E87CA9EF85588C4D2B3C2291192A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

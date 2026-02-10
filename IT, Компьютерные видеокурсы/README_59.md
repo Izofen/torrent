@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:B4D7AF5D63E542AFE904885C8B7FC9268854DF66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ javaops.ru | Junior Java-разработчик веб-приложений - Ba
 magnet:?xt=urn:btih:FA5D3040E9851E9DC1EAE4700113C910995C9BF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:FA5D3040E9851E9DC1EAE4700113C910995C9BF9
 ```bash
 magnet:?xt=urn:btih:8A04120ED2CB3C091F7D7128D16AFDC763B089E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:8A04120ED2CB3C091F7D7128D16AFDC763B089E7
 magnet:?xt=urn:btih:1498C9141A1A25A36AAF339552285C4FE774C9A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ javaops.ru | Многомодульный Maven проект (MasterJava) (2019)
 ```bash
 magnet:?xt=urn:btih:74E27F44DB3D87820FFFF51CEAB1488EEFE37742
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:74E27F44DB3D87820FFFF51CEAB1488EEFE37742
 magnet:?xt=urn:btih:75B290A07493403F655F9CF792D388BD3E7D3DB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:75B290A07493403F655F9CF792D388BD3E7D3DB7
 ```bash
 magnet:?xt=urn:btih:C65AA24686CCFC13B5CB3ACAE929B59C89205EB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:C65AA24686CCFC13B5CB3ACAE929B59C89205EB8
 magnet:?xt=urn:btih:396E64D7FBDE116729D16042A328E8B94F3FFB4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:396E64D7FBDE116729D16042A328E8B94F3FFB4D
 ```bash
 magnet:?xt=urn:btih:3FD098B2DACF8CCE964728C226C36FCBA78C059A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ Excel спутник грамотного управления финансам�
 magnet:?xt=urn:btih:E19CED079035CFB6B817065BAC2811ACC85BF121
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:E19CED079035CFB6B817065BAC2811ACC85BF121
 magnet:?xt=urn:btih:50A07D69A9D9A336D39440B9175B931466DF3513
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ Softwaretesting | Docker: инструменты тестировщика (2020)
 ```bash
 magnet:?xt=urn:btih:97AF9A05F6885E9BD9171E6DDA262D31A34BC468
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:97AF9A05F6885E9BD9171E6DDA262D31A34BC468
 magnet:?xt=urn:btih:09284738D6E5D6C91EBB8F121565F7BFE75E4680
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:09284738D6E5D6C91EBB8F121565F7BFE75E4680
 ```bash
 magnet:?xt=urn:btih:A78A0579329DEF0EBEBDF0CD42EB357ABB87DAC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +406,8 @@ Cypress - это фреймворк End-to-End тестирования JavaScri
 magnet:?xt=urn:btih:F4E83C5EE7B02154A3CA117362FD9CED20746FED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ ITVDN | Курсы по PHP [Starter, Essential] (2017) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:3C67266A0ABA6D5A65731489EAF48D7D12B8BCEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +460,8 @@ Laravel — универсальный инструмент для создан�
 magnet:?xt=urn:btih:35D14C1D56E9C42AA75AE60E6E376FA65BFBB3E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ Udemy | Unity для начинающих (2018) PCRec [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:23C6DC4EE64A4FCB1EBA80925645384CFC2D2B88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +512,8 @@ ITVDN | HTML5 & CSS3 ADVANCED (2018) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:40069803B23F41F18A10F1BF63A8D57414961CAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +537,8 @@ magnet:?xt=urn:btih:40069803B23F41F18A10F1BF63A8D57414961CAC
 ```bash
 magnet:?xt=urn:btih:074A2F08B9A2E31CC3C2D2E82DA85A35A1623B4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +565,8 @@ magnet:?xt=urn:btih:074A2F08B9A2E31CC3C2D2E82DA85A35A1623B4C
 magnet:?xt=urn:btih:323B309BC18E124D64B310973D18DD6CCB5CDA49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ magnet:?xt=urn:btih:323B309BC18E124D64B310973D18DD6CCB5CDA49
 ```bash
 magnet:?xt=urn:btih:FBF985F95D217395D377D94E615E71BDB19BEA71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +619,8 @@ ultimatecourses.com | Мастер-класс по JavaScript / JavaScript Maste
 magnet:?xt=urn:btih:CB9472E32DA9BA74DE4652CBAE448F1CFE2CD2DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +644,8 @@ React 2025 перенесет вас с нуля в рабочую среду р
 ```bash
 magnet:?xt=urn:btih:5588F73101969DBB70A08EFF57BECEF56A877B84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +671,8 @@ magnet:?xt=urn:btih:5588F73101969DBB70A08EFF57BECEF56A877B84
 magnet:?xt=urn:btih:EE2D18BE2DA3E3B32A19F19A08842159E8D7CF0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +696,8 @@ Maxim Jago | Adobe Premiere Pro CC: Learn by Video (2013) PCRec [H.264/720p] [EN
 ```bash
 magnet:?xt=urn:btih:94FEEA786EC5FA28B05811622E241842E3136B5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

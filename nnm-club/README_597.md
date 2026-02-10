@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:BCE23A49467B72938B401D987A492D4C390AA546
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:BCE23A49467B72938B401D987A492D4C390AA546
 ```bash
 magnet:?xt=urn:btih:B77D1D4B54A70203A08D2BA0D359166383C9BDF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:B77D1D4B54A70203A08D2BA0D359166383C9BDF0
 magnet:?xt=urn:btih:2DF6758B0EAA4CE003308843D6E4F6E4F1121EEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 ```bash
 magnet:?xt=urn:btih:E4D035225E436F1741DC0B8290D44578CB943B51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Twilight Wars (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 magnet:?xt=urn:btih:68CE83F7E217596589F181AE100F86939E0A7C50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Skylum Aperty 1.4.0.1260 RePack (& Portable) by elchupacabra [Multi]
 magnet:?xt=urn:btih:F795015EBD0CB5F89CFE7540E2DDA3D3579E6A51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ magnet:?xt=urn:btih:F795015EBD0CB5F89CFE7540E2DDA3D3579E6A51
 ```bash
 magnet:?xt=urn:btih:35C40162A9B9285752B01CEAD8242E03EF062FD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:35C40162A9B9285752B01CEAD8242E03EF062FD3
 magnet:?xt=urn:btih:41FFA587215D1BD34886903E2ED668E15D2F6753
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Spectator 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FB41BCACDB8766B071DB152EBC35F7AEBCE6DC66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Farm Together 2 (2024) [Ru/Multi] (Build 18675684/dlc) Repack FitGirl [Soundtrac
 magnet:?xt=urn:btih:29287000301395EFF351CA078213B21F0E60F69C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:29287000301395EFF351CA078213B21F0E60F69C
 ```bash
 magnet:?xt=urn:btih:B7F85C337AB026630731BEA21F4F4391A5DE1ACB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ The Gnomon Workshop, April Connors | Gesture Drawing Fundamentals (2021) PCRec [
 magnet:?xt=urn:btih:390D47BC01C6EE7FC982683F008867C219B7974B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:390D47BC01C6EE7FC982683F008867C219B7974B
 magnet:?xt=urn:btih:4917A672A83A14BEBD0100EE8DCF9F8CD82D20E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:4917A672A83A14BEBD0100EE8DCF9F8CD82D20E9
 magnet:?xt=urn:btih:B74474D246D58CD65CA877E43A9BB48EB29C2B25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Pieces of me / Кусочки меня (2025) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:14C153662468831E1532897AE00AD553F30FF8B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:14C153662468831E1532897AE00AD553F30FF8B6
 magnet:?xt=urn:btih:639D103DFC54899B5FD00E22145BFE9146822917
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ R-Studio Network 9.5 Build 191514 RePack (& Portable) by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:E4E8FF502F4A3856EECD55E61213036CD9A359D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ f5game, Ольга Грищенко | 9 загадок Шерлока Холмс
 ```bash
 magnet:?xt=urn:btih:CFD3CC2423F2D08DECDAB919F162CB47224A79AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:CFD3CC2423F2D08DECDAB919F162CB47224A79AD
 magnet:?xt=urn:btih:95CEB026EF981A0DEA101AEAE2EAD2C7B2F79D44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:95CEB026EF981A0DEA101AEAE2EAD2C7B2F79D44
 ```bash
 magnet:?xt=urn:btih:64395B98ED8A906638303B8E96474E0FEFF93BBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:64395B98ED8A906638303B8E96474E0FEFF93BBB
 magnet:?xt=urn:btih:EE2B4AE9B24BFA4FCAA57D6A2F512EFFC9FD9B52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Pieces of me / Кусочки меня (2025) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:ECF6F49EA916737F1004146BD3FF959E4B7B962B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:ECF6F49EA916737F1004146BD3FF959E4B7B962B
 magnet:?xt=urn:btih:9C7DCC4AEAE425BD815DF284AE086A33E15FEA4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ The Danger Zone - постапокалиптический 2.5D шутер с в
 ```bash
 magnet:?xt=urn:btih:EB5E5611ED2DD206A695C9A24D459BA3082C3808
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ Open Server Panel 6 — это обновлённая версия популя�
 magnet:?xt=urn:btih:89F595E8CA785F524DE6521A6BCE960F0D298AB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.01/dlc) Repack Other s [Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:4965F17604BCF06FEBD925DE5880F200D193A858
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

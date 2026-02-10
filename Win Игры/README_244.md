@@ -19,6 +19,8 @@ UnMetal (2021) [Ru/Multi] (1.0.11/dlc) License GOG [UnDeluxe Edition]
 magnet:?xt=urn:btih:201B68F2FFE11B4E03BC15EFC8318D31C4C45F51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Enigmatis 3: The Shadow Of Karkhala / Энигматис 3: Тень Карха�
 ```bash
 magnet:?xt=urn:btih:3D5C18A397A0A88A3ACE8EDD799851883BECDE9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Alien: Isolation (2014) [Ru] (1.0/upd9/dlc) Repack =nemos= [Digital Deluxe Editi
 magnet:?xt=urn:btih:9B389ADA9C46CE5196B6AE5D214481D081E76707
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Assassin's Creed Syndicate [patch/dlc] (2015) (1.31)
 ```bash
 magnet:?xt=urn:btih:D7F8F0177EEE9F3F0A63DDA3F9743BB21EE62373
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Shaun White Snowboarding (2008) [Ru/En] (1.01) Lossless Repack R.G. Origami
 magnet:?xt=urn:btih:27D612129CF2A9415D58CD1EF9D1E8B46A4FFFEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Danse Macabre 5: Lethal Letters / Танец смерти 5. Роковые пи
 ```bash
 magnet:?xt=urn:btih:FC133DB724AE296B5A241FA4D56B5AB6B23A4A89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Shaun White Skateboarding призывает Вас превратить окр�
 magnet:?xt=urn:btih:233CBEC5DCE0E15325D917B99D2A5A2EF2D939A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Witches' Legacy 7: Awakening / Наследие ведьм 7: Пробужден
 ```bash
 magnet:?xt=urn:btih:DD860CC6D529322936ADA224EF3E9F38B9D7DC16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ New Super Lucky's Tale (2020) [Ru/Multi] (Build 10670184) Repack Let'sРlay
 magnet:?xt=urn:btih:82F8E2E2363AC463FF6D9858A281E00D235CA7B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Halloween Stories 7: Written in Blood / Хеллоуинские истории 
 ```bash
 magnet:?xt=urn:btih:A5B7DC55BE03F88E8F85281AAD2D23405DD66405
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Homeworld: Deserts of Kharak (2016) [Ru/Multi] (1.3.0/dlc) License RELOADED
 magnet:?xt=urn:btih:D16A72B0617859DE1919867789774AA25EE9900C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Outlast (2013) [Ru/Multi] (1.0.12046.0/dlc) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:4650FA79C3E6AF9C0DA14B907B39C4F284E36E85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Oxenfree – это триллер о сверхъестественных си�
 magnet:?xt=urn:btih:D0D98CD380EEA7DFCE2EDF4E2479B191CBDB18CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Infliction – сюжетный психологический хоррор от
 ```bash
 magnet:?xt=urn:btih:2B2B8F78A5A11FEA60D86FFD06AE6F1A199498B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ StarCrawlers — это сплав из классического Dungeon Crawl
 magnet:?xt=urn:btih:E6792362C5027D127C17838335D830436FEA14B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Titan Station погружает пользователей в приключе�
 ```bash
 magnet:?xt=urn:btih:21C825D38585A05F998E48C84A4BAAED7A54BD68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Braid — это выполненный в живописном стиле пл�
 magnet:?xt=urn:btih:A5544175AE8A376A5B0436AC67D321BF7028A184
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Ashworld - мир выжженных солнцем земель, где вое�
 ```bash
 magnet:?xt=urn:btih:9D372B3734EB2385730DD5B1736FE3C75E793393
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Halloween Chronicles 2: Evil Behind a Mask / Хроники Хэллоуина 2
 magnet:?xt=urn:btih:C4A3713AE0E3F5A7C669FDAF611E69A15A1A7C9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The Awakener: Forgotten Oath - это очень гибкая игра в жан
 ```bash
 magnet:?xt=urn:btih:B59B65C42B725BE4CBB48CA093865A27EC47E7FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Riddle of the Sphinx The Awakening дает возможность погуля�
 magnet:?xt=urn:btih:8B0047C7A01048C0FBE36258994E1910CFD19A93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Autonauts - симулятор конструирования сооружени
 ```bash
 magnet:?xt=urn:btih:8A3116713A93C61A2A5C73C91748CED23DF56B16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Fishing: North Atlantic (продолжение Fishing: Barents Sea) — отк
 magnet:?xt=urn:btih:448F04CC64297FC2339AECC671C8FD171FB47B16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ MX vs ATV Legends показывает, какими могут быть инт�
 ```bash
 magnet:?xt=urn:btih:E3DE4E90BF0510F0520FD04E9BE18C520A553C77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Domini Games с гордостью представляют еще одно ве
 magnet:?xt=urn:btih:730ACF9244598EB24D2064C0600F101AC6D51F5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ League of Light 7: Growing Threat (2019) [En] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:3F1325210B16C520F9EC1B0B95D44EE4E14A6441
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Folk Hero (2023) [Ru/Multi] (1.0.9) Scene Tenoke
 magnet:?xt=urn:btih:7F87F7A6A3A124D026B97B82E657D9AA7674FD37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Dark Deity II (2) (2025) [En] (1.14) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:52371B8F896C926A424A120D33E11BC16BB90BC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Cardaclysm: Shards of the Four (2020) [Ru/Multi] (1.1.2.6_fix) License GOG
 magnet:?xt=urn:btih:0AFBDF5B73684841B58D8F813BB77566C1CE8648
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Mageseeker: A League of Legends Story - ролевое приключени�
 ```bash
 magnet:?xt=urn:btih:11D5C668BE679BF5E2124228913558F4F9502AE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Pool of Radiance: Ruins of Myth Drannor - современная реинкар�
 magnet:?xt=urn:btih:415C23DA4CE236E04E3E1EAE96B9D42E18E2222B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Oaken (2023) [Multi] (1.1.2/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:B2672BAF5E386E3A01F8788846C69F25C7B94C4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Gamedec – изометрическая RPG в жанре киберпанк д
 magnet:?xt=urn:btih:04B328485534B59648222997FE0F410641E20FEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Ashen – это кооперативный экшн-RPG c открытым ми
 ```bash
 magnet:?xt=urn:btih:46797F44210A6E39E3EFF7980DE56A5BE9856892
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Unliving - Founder's Pack (2023) [Ru/Multi] (1.0.2892023_1631) Scene Tenoke
 magnet:?xt=urn:btih:9F93ED74CFA20E126AFECCA55107AC858C5F6DD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Sands of Aura (2023) [En] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:5BD516781913FA07160BBF8752C78C0EDB46A1EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Legend of Heroes: Trails in the Sky: Second Chapter (2015) [En] (2019.12.08)
 magnet:?xt=urn:btih:6EC0AB0655B929EB23D6B67789BC48B6994AE619
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Ashen – это кооперативный экшн-RPG c открытым ми
 ```bash
 magnet:?xt=urn:btih:5A51AE3C3D48BB17A95430F036B6350DF525ED70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Agarest: Generations of War 2 (2015) [En] (1.0) License GOG
 magnet:?xt=urn:btih:5A083327A50D3EE4A124E83D9D8977C57965DFFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ The Dungeon Of Naheulbeuk: The Amulet Of Chaos (2020) [Ru/Multi] (1.4.51.41549/d
 ```bash
 magnet:?xt=urn:btih:C4F5D8447F1E659A926FD744F74B424B5A161358
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Arcatera: The Dark Brotherhood (2000) [En] (1.2) License
 magnet:?xt=urn:btih:470995DB595CA23E9FC921DAA2EDA8B744C026AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Space Wreck - пошаговое приключение, события кото
 ```bash
 magnet:?xt=urn:btih:ABE6974DB7FBDAEBA57A2E7EB8B64AB6373F4F67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Grom: Terror in Tibet (2003) [Ru/En] (1.02.252) Unofficial Русский про
 magnet:?xt=urn:btih:B1D7A6066F32DAE30CFD18963AEF3A2EE54A59B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Lost Eidolons (2022) [Ru/Multi] (3_29/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:3262E34105C19106DF1F83CB938E9C2B42EC842F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ Vosphia - это однопользовательская ролевая игр�
 magnet:?xt=urn:btih:E10F7AF8DD106ADD4E4E2BCD919C7ECD8C6AA876
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ LIVE A LIVE (2023) [Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:C676DC5C4C10993C31A1D949C9581EA869E48C8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Asterigos: Curse of the Stars (2022) [Ru/Multi] (01.08.0000/dlc) Repack Other s
 magnet:?xt=urn:btih:2F4DEC8A7447E653004FA618D14179D6DD849D20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Blade of Immortality (2023) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:4A0D7BA723FAB178FD81C6949CEF1A4844B8F4B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Cat Quest III - продолжение популярной ролевой се�
 magnet:?xt=urn:btih:39D199EE0243FE0EAAB0DC6C3A6990D58FAB24EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6946847/dlc) Repack Wanterlude [D
 ```bash
 magnet:?xt=urn:btih:71411864770CD5E012EB34FF41E1FFACEDF74BEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ The Lamplighters League (2023) [Ru/Multi] (1.1.3-65316/dlc) Repack DjDI [Deluxe 
 magnet:?xt=urn:btih:D9B6AAE9F6CE074AAC8AD82D3576F41DB7EB4FE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Silent Hope (2023) [Multi] (1.0/dlc) Scene Tenoke [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:1101079059577FC0C581BA1C43447583028FB116
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

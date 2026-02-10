@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:58E706F23E3F9AB973239154598C8F68FF15F310
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:58E706F23E3F9AB973239154598C8F68FF15F310
 magnet:?xt=urn:btih:68AB50320B35734134D296217F385AD1B4C32A34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Tsuki ga Michibiku Isekai Douchuu Dai Ni Maku | Tsukimichi: Moonlit Fantasy 2 | 
 ```bash
 magnet:?xt=urn:btih:8417DB27E202FBDD45D7E6CD1331FA9AABACD1F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Katsute Mahou Shoujo to Aku wa Tekitai Shite Ita. | The Magical Girl and the Evi
 magnet:?xt=urn:btih:8BDA0BE2D976DDD564158B24809E6427C43EE79F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:8BDA0BE2D976DDD564158B24809E6427C43EE79F
 ```bash
 magnet:?xt=urn:btih:4A6D3F11AE4BF19F3131F8619F9C0488F44615B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:4A6D3F11AE4BF19F3131F8619F9C0488F44615B9
 magnet:?xt=urn:btih:6F60CACFDF0468B744834CDC66E546E4982BA1D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Hokkyoku Hyakkaten no Concierge-san | The Concierge at Hokkyoku Department Store
 ```bash
 magnet:?xt=urn:btih:FB065E5D480D01FD36883723D4BF75BC747014A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Tate no Yuusha no Nariagari Season 3 | The Rising of the Shield Hero Season 3 | 
 magnet:?xt=urn:btih:37981ABB2248A8ECA323E8F429996738DD53E535
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Isekai Shikkaku | No Longer Allowed in Another World | Дисквалифици�
 ```bash
 magnet:?xt=urn:btih:DC04EFE601FE3A27678A5FD0EBAECB3ED7A68894
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:DC04EFE601FE3A27678A5FD0EBAECB3ED7A68894
 magnet:?xt=urn:btih:3BFA8B24E134C2A7CD646AADFD71BE93665BC68A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ Rayman 3: Hoodlum Havoc (2003) [Ru/En] (1.0.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:C97E42741B95389887FA586B9D4962C6F1D9086B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:C97E42741B95389887FA586B9D4962C6F1D9086B
 magnet:?xt=urn:btih:5354A383CE73EE4C9E690D8DD6EDB682FEDC1107
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:5354A383CE73EE4C9E690D8DD6EDB682FEDC1107
 magnet:?xt=urn:btih:B96699F785685016D925E38A4BE45B2B5DB18F08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:B96699F785685016D925E38A4BE45B2B5DB18F08
 ```bash
 magnet:?xt=urn:btih:8ED6AC05A4A4E899EE5A8E621AE8A6F93F7FF8C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:8ED6AC05A4A4E899EE5A8E621AE8A6F93F7FF8C4
 magnet:?xt=urn:btih:C48746B0CA27C925EA3F8DE7A6328D0FBF63AA14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:C48746B0CA27C925EA3F8DE7A6328D0FBF63AA14
 ```bash
 magnet:?xt=urn:btih:D319F1B6122206D8EACE7ED91766D9D5E58915D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:D319F1B6122206D8EACE7ED91766D9D5E58915D2
 magnet:?xt=urn:btih:FFA54F33A7C5A3DCADB28D09D15ED53971B65B11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ LiveClasses, Дмитрий Ларионов | Подготовка монтаж
 magnet:?xt=urn:btih:255CDE9000FF2C2D71D850F6C3B56E5CD93B4B1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:255CDE9000FF2C2D71D850F6C3B56E5CD93B4B1E
 ```bash
 magnet:?xt=urn:btih:01EB6593669FDDE07EEE28726D4C1ACB3F494DC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ magnet:?xt=urn:btih:01EB6593669FDDE07EEE28726D4C1ACB3F494DC7
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ magnet:?xt=urn:btih:01EB6593669FDDE07EEE28726D4C1ACB3F494DC7
 ```bash
 magnet:?xt=urn:btih:EAA0025324120174D5CABFC3D09DFE6D1336085F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ magnet:?xt=urn:btih:EAA0025324120174D5CABFC3D09DFE6D1336085F
 magnet:?xt=urn:btih:E2F15917C605E794D4A35F86DB40CD74F1BE2E9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:E2F15917C605E794D4A35F86DB40CD74F1BE2E9D
 ```bash
 magnet:?xt=urn:btih:D3E61EECE1AA9FD3A292EEFC8EEF22C0510F4B72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +633,8 @@ Phaser Editor — это мощная и удобная среда разраб�
 magnet:?xt=urn:btih:AC074F860152B0BC73519E54E9A57624E84A33D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:3C4D48E87A531635E327B85A35FD680479140BC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +686,8 @@ Hataraku Maou-sama!! | The Devil Is a Part-Timer! Season 2 | Повелител�
 ```bash
 magnet:?xt=urn:btih:B94A144F72A55797B2C1078C5DED90F85628EE43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

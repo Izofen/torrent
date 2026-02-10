@@ -1,3 +1,29 @@
+###  Публикация: 1374448   (872452) от 10.04.2020
+
+В. Надеждина (сост.) | Вкусные блюда на каждый день (2012) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872452.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге собрано более 1000 кулинарных рецептов на любой вкус – и традиционно русские угощения, и оригинальные и экзотические блюда других стран и народов. Вы узнаете, как подготовить продукты для салатов, холодных и горячих закусок, чем и как украсить свои кулинарные шедевры, как правильно подать угощение. Эта книга станет вашим незаменимым другом и помощником на (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8D1B4E8FC8D8F460AE0DCFB269F502635F24192
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105997   (872478) от 19.02.2017
 
 Бернард Рос | Привычка достигать. Как применять дизайн-мышление для достижения целей, которые казались вам невозможными (2017) [FB2]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:0FFD7C0E0232CABEB64B0D50E43F6A29E5E1B9AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:0FFD7C0E0232CABEB64B0D50E43F6A29E5E1B9AC
 magnet:?xt=urn:btih:AAA6F95367880EEBA5A14FC5B0F6424310252838
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:AAA6F95367880EEBA5A14FC5B0F6424310252838
 ```bash
 magnet:?xt=urn:btih:6D120174A7FD2076D9AF58DBDF3244677B53F12A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:6D120174A7FD2076D9AF58DBDF3244677B53F12A
 magnet:?xt=urn:btih:0315804540B8E7D5614E289709CBC487C5568C07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:0315804540B8E7D5614E289709CBC487C5568C07
 ```bash
 magnet:?xt=urn:btih:0CB4FF2D3F6D18F99DB594E988AB8B8B6E155784
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:0CB4FF2D3F6D18F99DB594E988AB8B8B6E155784
 magnet:?xt=urn:btih:EB10302CC9DA3BEF4DBAC416F860F7E585FF58E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +207,8 @@ magnet:?xt=urn:btih:EB10302CC9DA3BEF4DBAC416F860F7E585FF58E0
 magnet:?xt=urn:btih:D297A920AC273E106EC5B63EAE73CCD9709D8248
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:D297A920AC273E106EC5B63EAE73CCD9709D8248
 ```bash
 magnet:?xt=urn:btih:580E0FFED3E0C75DD9A705B63783F2A7A5D5F549
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +259,8 @@ magnet:?xt=urn:btih:580E0FFED3E0C75DD9A705B63783F2A7A5D5F549
 magnet:?xt=urn:btih:755907A085CC0380E02070EAF6442B77CD8184BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:755907A085CC0380E02070EAF6442B77CD8184BE
 magnet:?xt=urn:btih:C3BACA65433BFD22F6D96189C7E9A9EE298E88CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:C3BACA65433BFD22F6D96189C7E9A9EE298E88CD
 ```bash
 magnet:?xt=urn:btih:6CD7EB9E000895E2C450772446D07C32D2F9D4F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:6CD7EB9E000895E2C450772446D07C32D2F9D4F1
 magnet:?xt=urn:btih:A274D9B999465295C7B0A7D29AF4A7C57607CE33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:A274D9B999465295C7B0A7D29AF4A7C57607CE33
 ```bash
 magnet:?xt=urn:btih:78919BE8F352E200A01DD9D24000BC553996EB01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:78919BE8F352E200A01DD9D24000BC553996EB01
 magnet:?xt=urn:btih:0829BE14BAF161120ED91CD3B57A1FD94980A081
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:0829BE14BAF161120ED91CD3B57A1FD94980A081
 ```bash
 magnet:?xt=urn:btih:63CB0BD7C43ED172B39FDC7B1C3DD2DB53A74758
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:63CB0BD7C43ED172B39FDC7B1C3DD2DB53A74758
 magnet:?xt=urn:btih:2533EB23E6CEAFFDBADDDC19FC33F0855C2961A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:2533EB23E6CEAFFDBADDDC19FC33F0855C2961A1
 ```bash
 magnet:?xt=urn:btih:42C5D9EDB034C72E3DB218BBA352BB3247D6EE45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:42C5D9EDB034C72E3DB218BBA352BB3247D6EE45
 magnet:?xt=urn:btih:94FEFE98A1368453EB1775DDF4DC92034DAC33FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:94FEFE98A1368453EB1775DDF4DC92034DAC33FC
 ```bash
 magnet:?xt=urn:btih:45BE0FBAF02A3E331E8CC80B0356691FE3CA4391
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +551,8 @@ magnet:?xt=urn:btih:45BE0FBAF02A3E331E8CC80B0356691FE3CA4391
 magnet:?xt=urn:btih:97CF963159909402BA976F5C17F15644856066F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +579,8 @@ magnet:?xt=urn:btih:97CF963159909402BA976F5C17F15644856066F0
 magnet:?xt=urn:btih:A7F67056B68345446AEBCC15A400263A946C6D24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:A7F67056B68345446AEBCC15A400263A946C6D24
 ```bash
 magnet:?xt=urn:btih:C3C098760A6304ACC64E9C23DC1C618A5BB314EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:C3C098760A6304ACC64E9C23DC1C618A5BB314EC
 magnet:?xt=urn:btih:11A24D8968D3F48163E35C5593C181F112F36324
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +656,8 @@ magnet:?xt=urn:btih:11A24D8968D3F48163E35C5593C181F112F36324
 ```bash
 magnet:?xt=urn:btih:CC2251EEDDAA816BCBE90C2660F993D26C02299E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,29 +683,7 @@ magnet:?xt=urn:btih:CC2251EEDDAA816BCBE90C2660F993D26C02299E
 magnet:?xt=urn:btih:5BA7B71A94FE1A7BD342DC5278CD4E0F95CBF891
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106428   (873036) от 19.02.2017
-
-Люк Уильямс | Переворот. Проверенная методика захвата рынка (2012) [PDF, EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Люк Уильямс убежден в том, что в постоянно меняющемся мире бизнеса выиграть можно только одним способом: перевернуть все с ног на голову. Он подробно рассказывает о том, как рождаются прорывные стратегии и откуда берутся неожиданные решения. Вы узнаете, как соединить творческую гибкость и аналитическую жесткость, и за пять простых шагов сделать прорыв на любом рынке.Жанр: Бизнес-планированиеФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE5FE43C8B496E68C7E657AB646D3F37F4FE33BF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

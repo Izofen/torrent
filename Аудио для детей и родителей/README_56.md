@@ -22,6 +22,8 @@ VA - Детский карнавал. Сборник песен для дете�
 magnet:?xt=urn:btih:7C77CE1C2E4F2702B423573D8059A504EF0FB1A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Новогодние детские песенки (2011) [MP3|320 kbps]<Д
 ```bash
 magnet:?xt=urn:btih:7FA117901DDAC3EC712CA6709EA1E3D5A98D2F35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Любимые детские песни (2009) [MP3|320 kbps]<Pop>
 magnet:?xt=urn:btih:5B3D246F3D932B380175EBA417F5EF96708DA6A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Zouzounia - Christmas in the World (2009) [MP3|192 kbps]<Детские песе
 magnet:?xt=urn:btih:288A26CA172A4570759542509EB91BEE90BF972A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ magnet:?xt=urn:btih:288A26CA172A4570759542509EB91BEE90BF972A
 magnet:?xt=urn:btih:1E077466628FAAFD15D13A9066922D3AABF808C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:1E077466628FAAFD15D13A9066922D3AABF808C4
 ```bash
 magnet:?xt=urn:btih:3FC3BDE228512F67EA616E6EA16122F03B9EC96B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +189,8 @@ magnet:?xt=urn:btih:3FC3BDE228512F67EA616E6EA16122F03B9EC96B
 magnet:?xt=urn:btih:151A8633C40200BC818ABB1E24345B934E921DEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ magnet:?xt=urn:btih:151A8633C40200BC818ABB1E24345B934E921DEA
 ```bash
 magnet:?xt=urn:btih:A0DFAE771B117E10367C0284A36CCF81283D91E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ magnet:?xt=urn:btih:A0DFAE771B117E10367C0284A36CCF81283D91E7
 magnet:?xt=urn:btih:4EDD68DF6AEC184445FA00E4227551E3060A0963
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:4EDD68DF6AEC184445FA00E4227551E3060A0963
 ```bash
 magnet:?xt=urn:btih:0C6DFCCB6B7631D29BBC34EB39FC619D6A60ED83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:0C6DFCCB6B7631D29BBC34EB39FC619D6A60ED83
 magnet:?xt=urn:btih:47122342A22E9B79AC990370D3DA04F8C05DBC48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ VA - Das Traumstern-Orchester spielt Hits [12CD] (2010) [MP3|320 кб/с]<Instru
 ```bash
 magnet:?xt=urn:btih:9B597B8219EFB501F3CB5DF6359B68479695E74D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:9B597B8219EFB501F3CB5DF6359B68479695E74D
 magnet:?xt=urn:btih:A13E11C00EFA0360B713E7F45C4B3D4965493C5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:A13E11C00EFA0360B713E7F45C4B3D4965493C5F
 ```bash
 magnet:?xt=urn:btih:8C8E1766F280CEF1A817F840704F6CBF75A1E664
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ VA - The Backyardigans - Born to Play (2008) [MP3|224 kbps]<Детские пе�
 magnet:?xt=urn:btih:C539197F4E3E050ACF5643FFDBDBC8AF2BBEBEC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:C539197F4E3E050ACF5643FFDBDBC8AF2BBEBEC6
 magnet:?xt=urn:btih:D35283ABA3C321CEB837C2E97F1F1A5D8A327083
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:D35283ABA3C321CEB837C2E97F1F1A5D8A327083
 ```bash
 magnet:?xt=urn:btih:65042AE667D4191F190E1D7F1A851849EFCF1964
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ magnet:?xt=urn:btih:65042AE667D4191F190E1D7F1A851849EFCF1964
 magnet:?xt=urn:btih:C0BE46124B0B036B496C8913C1AA2B58E0DF088C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ VA - Teen Voice. Сборник детских песен (2016) [MP3|320 Kbps] 
 magnet:?xt=urn:btih:5CD89221F786FA8F378406A82F3F380FDC635770
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:5CD89221F786FA8F378406A82F3F380FDC635770
 ```bash
 magnet:?xt=urn:btih:985D3AB445A3FC7D41AAB2D6F3027E1E2F9D8CAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +569,8 @@ VA - Здравствуй, новый год! Детский праздник 4-
 magnet:?xt=urn:btih:0B4CF61000AF0E791832DF29BA22118B287FF677
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +598,8 @@ magnet:?xt=urn:btih:0B4CF61000AF0E791832DF29BA22118B287FF677
 magnet:?xt=urn:btih:57C1D6766B8DD4A72CF5BB4FF91BD8EF261CE173
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +623,8 @@ magnet:?xt=urn:btih:57C1D6766B8DD4A72CF5BB4FF91BD8EF261CE173
 ```bash
 magnet:?xt=urn:btih:62F26130757F3D8E5E3C04C3A418584F6B6ED565
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +650,8 @@ magnet:?xt=urn:btih:62F26130757F3D8E5E3C04C3A418584F6B6ED565
 magnet:?xt=urn:btih:DED7B42556C73B5913012182473F09B069147C8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +676,8 @@ magnet:?xt=urn:btih:DED7B42556C73B5913012182473F09B069147C8B
 magnet:?xt=urn:btih:6F6FCFE3962A664C02C31D7D8B4134B4BD57AD52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ magnet:?xt=urn:btih:6F6FCFE3962A664C02C31D7D8B4134B4BD57AD52
 ```bash
 magnet:?xt=urn:btih:B67CD4DC4A9109BCE3AB0D457218B1900606862E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

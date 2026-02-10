@@ -22,6 +22,8 @@ The Hoochie Coochie Men - Second Helping (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 magnet:?xt=urn:btih:D4E501839B4F68046089BCE22FC9C4E868A282C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Silverflame - FLY ON (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:6AB0BF65760972899BD49DA9ECE5046C5DD8BD32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Lil'Magic Sam - Tired Out (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:2DE44F9DEC27E1EE17C3759641E2D495FB9E00BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Kristina Train - County Line (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock, 
 ```bash
 magnet:?xt=urn:btih:C04A036DE49CE6338F1F6BB38BA9E96D05FC0C14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +144,8 @@ Big Pete Pearson - Choose (2012) [FLAC|Lossless]<Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +172,8 @@ CD1- Exit:
 ```bash
 magnet:?xt=urn:btih:92CEC6D611450E162EE55B62AA47AB77E2E49555
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +208,8 @@ Count Basie and His Small Groups - The Fives (1936—1942) (1996) [FLAC|Lossless
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +236,8 @@ Brian Culbertson - The Trilogy, Pt. 2: Blue (2022) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:20198D4FB5644E31FE79AA8EDDC8ECBF84B65D2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +272,8 @@ Duke Ellington - Duke Ellington And His Famous Orchestra (1990) [FLAC|Lossless]<
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +300,8 @@ Keb' Mo' - Good To Be... (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:7C312A8CF216BDE8235CB5AB382698E754DA14F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +336,8 @@ Otis Rush - All Your Love I Miss Loving: Live at The Wise Fools Pub, Chicago (20
 magnet:?xt=urn:btih:F3E826E42D2F9DAB70AF3C8641C38E631A91FBAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +370,8 @@ Little Freddie King - Messin' Round Tha House (2008) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:AD9DC77595D2E779D159143FECA2CE051D061FB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +406,8 @@ Erik Truffaz - Out Of A Dream (1997) [FLAC|Lossless]<Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +441,8 @@ St. Louis Jimmy Oden - Blues Legend: The Best of (2011) [MP3|320 кб/с]<Blues>
 magnet:?xt=urn:btih:E0C70C1D43BAB709A54CA4E919B2D551E179FE39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +475,8 @@ Little Milton - Walkin' The Back Streets (1981) [MP3|320 кб/с]<Blues>
 magnet:?xt=urn:btih:3E53FABE040840EC2A8DFBF118BA3CEA3F112792
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +503,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:43862116E28D804ED827F42322D4E70D2EC9ED1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +533,8 @@ Buddy Rich - Milestones Of A Jazz Legend (1946 - 1962) 10CD, 2020, The Intense M
 magnet:?xt=urn:btih:138F4B5C829766F3D6B0B9135F7DEEDD8CF85CAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +561,8 @@ Amy Winehouse - Stronger Than Me (2003) Remastered, 2023, UMC [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:25DD276A32B0E1C71F648B5FF78CEFE1ED80F233
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +591,8 @@ Thomas Anders - Songs Forever (2006) Remastered, 2023, Craft Recordings [FLAC 24
 magnet:?xt=urn:btih:C4D74D363067EFA27FC47FDC201F3AC1E3DEDB3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +619,8 @@ Thomas Anders - Songs Forever (2006) Remastered 2023 [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:843072E649CCFC11DED9D272439D2967DC52D2BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +649,8 @@ CD1:
 magnet:?xt=urn:btih:F024FD7FC63D7B37FBBA95FE5C8E09C73A134F9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +677,8 @@ John January & Linda Berry - Luck Don't Live Here Anymore (2021) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:03E3D6FBB49E30C3EB74B757451BE13E6EAF66AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -663,6 +707,8 @@ Jennifer Lyn & The Groove Revival - Nothing Holding Me Down (2021) [FLAC|Lossles
 magnet:?xt=urn:btih:4769DA0A7DD58653E63FFD652B52102006E9A8DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -689,6 +735,8 @@ Muskogee Hotel - Do You Want to Spend the Night (2021) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:D3290EF0C38758123FA569BC84BB9C6735E660A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -720,6 +768,8 @@ Nappy Brown - Just For Me (1988) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:A18DB6E9005485CDEC994282F25C9228D82AC289
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -753,6 +803,8 @@ VA - Smooth Jazz - Sexual Healing (2000) [FLAC|Lossless]<Smooth Jazz>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

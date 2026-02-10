@@ -19,6 +19,8 @@ Domestic na Kanojo | Домашняя девушка [2019, TV, 12 из 12] BDRi
 magnet:?xt=urn:btih:E7FC0FF9E6CF034BB83A97D444DC750B92BC2024
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Yuukoku no Moriarty | Moriarty the Patriot | Патриот Мориарти [ч
 ```bash
 magnet:?xt=urn:btih:F5B531C7E598186EC986AE7FBA8F93BEF96ECFB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:F5B531C7E598186EC986AE7FBA8F93BEF96ECFB1
 magnet:?xt=urn:btih:F3362443C2F396A8CCB1D50DC09C4FE6BFC38592
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:F3362443C2F396A8CCB1D50DC09C4FE6BFC38592
 ```bash
 magnet:?xt=urn:btih:248AEED36B5442543B93B69298B1C60F8188E1C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Boku no Hero Academia | My Hero Academia | Моя геройская акаде�
 magnet:?xt=urn:btih:B758422C1E62AFCC363B4AA9217466762461E0B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:B758422C1E62AFCC363B4AA9217466762461E0B3
 ```bash
 magnet:?xt=urn:btih:F70313635B692754FBAD5FCED994C6F8B571E6FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:F70313635B692754FBAD5FCED994C6F8B571E6FD
 magnet:?xt=urn:btih:639EEAD353908F22A19447251DC9F207BC82E284
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Go-Toubun no Hanayome 2 / The Quintessential Quintuplets 2 / Пять невес
 ```bash
 magnet:?xt=urn:btih:2D3535D4ED143D9325A8F2357FC60CA70CB08FD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:2D3535D4ED143D9325A8F2357FC60CA70CB08FD1
 ```bash
 magnet:?xt=urn:btih:3345FFFC37EF36C56DEEEA4F23B821386E186613
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Dr. Stone: Stone Wars / Доктор Стоун [ТВ-2] [2021, TV, 11 ep] WEB-D
 magnet:?xt=urn:btih:6DEDA61AAC17B993EA6771ED31CBFB0348E4C482
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:6DEDA61AAC17B993EA6771ED31CBFB0348E4C482
 magnet:?xt=urn:btih:EF0F1353FC75B8C9C6BF571C7049FDAD1A991B04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:EF0F1353FC75B8C9C6BF571C7049FDAD1A991B04
 ```bash
 magnet:?xt=urn:btih:19A43A63DDE469D960FE832DDC981FDE48A1C5E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ Higurashi no Naku Koro ni: Gou / Higurashi: When They Cry - Gou / Когда п�
 magnet:?xt=urn:btih:D53D03D850D409A7F0B2B6747701F3AC663B69DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:D53D03D850D409A7F0B2B6747701F3AC663B69DA
 ```bash
 magnet:?xt=urn:btih:8888FCFCE02C92A315C7B454760F0C53C083AF18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Death Note | Тетрадь Смерти [2006, TV, 37 из 37] BDRip 1080p raw+
 magnet:?xt=urn:btih:92632903787ACFAFF49C7DE7E4D777D4EEE11C01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Getbackers: Dakkanya | Get Backers | Агентство по возврату у
 ```bash
 magnet:?xt=urn:btih:2B6C0BCEC44FDCAB75EF38A3C02E345F9562D5BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Speed Grapher | Спидграфер [2005, TV, 24 эп.] DVDRip 480p raw+rus
 magnet:?xt=urn:btih:2BC480CA24DC391D45A1D7D6C075C09ADA03C338
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Le Chevalier D'Eon | Шевалье Д'Эон [2007, TV, 24 эп.] HDTVRip 720p 
 ```bash
 magnet:?xt=urn:btih:931252738385434B632A337166EDD83E6AF27B54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ Shinpi no Sekai El Hazard | El Hazard: The Wanderers | Эль-Хазард: Ст
 magnet:?xt=urn:btih:79636720C17803E33F503A0E46482661AA8EA39B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ Windaria | Once Upon a Time | Виндария [1986, Movie] DVDRip 480p raw+rus
 ```bash
 magnet:?xt=urn:btih:6452DF8758174D8EE918181721A665B7805013F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ Erementar Gerad | Elemental Gelade | Воздушные пираты [2005, TV, 
 magnet:?xt=urn:btih:B43982036BB2FEACC27827F22335980F1FDCBD13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ Futari Ecchi / Step Up Love Story / Хроники молодоженов [2002,
 ```bash
 magnet:?xt=urn:btih:6731A551FAE5AE155F35A6683C8E00930FB1F081
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:6731A551FAE5AE155F35A6683C8E00930FB1F081
 magnet:?xt=urn:btih:BC3BD4C2E9664F4ABE3C75ADADD3F9E1BDBBF9D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ magnet:?xt=urn:btih:BC3BD4C2E9664F4ABE3C75ADADD3F9E1BDBBF9D9
 ```bash
 magnet:?xt=urn:btih:56F054D6A6471BA15CDE8DF3072012C605F956DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +661,8 @@ magnet:?xt=urn:btih:56F054D6A6471BA15CDE8DF3072012C605F956DB
 magnet:?xt=urn:btih:7D244691B3683F1E2DAFC269D3C5149C3772441B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ Kyou kara Ore wa!! | Сегодня и начну!! [1993, OVA, 10 из 10] BDRi
 ```bash
 magnet:?xt=urn:btih:BBE70ACCB098B10342B6E87B09266543A8A211B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

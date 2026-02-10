@@ -20,6 +20,8 @@ Self-Learning, Виталий Трунин | Курс по T-SQL Путь про
 magnet:?xt=urn:btih:F38A3849C7F96CC8498B4788E05D64D3F40CCC4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:F38A3849C7F96CC8498B4788E05D64D3F40CCC4A
 ```bash
 magnet:?xt=urn:btih:FB81268AAC4F8582C0F23B2F3A8082D681F859B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:FB81268AAC4F8582C0F23B2F3A8082D681F859B0
 magnet:?xt=urn:btih:3612568382F75DC84F816C96497DB55553CFACA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:3612568382F75DC84F816C96497DB55553CFACA1
 magnet:?xt=urn:btih:F4D6272A518589DB68EE8DC80C43F77C13852D61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:F4D6272A518589DB68EE8DC80C43F77C13852D61
 ```bash
 magnet:?xt=urn:btih:E3DFBE4CF5A09717BFF00D9519629580F7B03B58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ TargetHunter | Дизайн ВКонтакте (2021) HDTVRip
 magnet:?xt=urn:btih:A91A5B9BB9322FC8DDCDFB9876E6797D7D989C52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:A91A5B9BB9322FC8DDCDFB9876E6797D7D989C52
 ```bash
 magnet:?xt=urn:btih:EF441BA712BF00BF047CFB7900C49DFFDD515166
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:EF441BA712BF00BF047CFB7900C49DFFDD515166
 magnet:?xt=urn:btih:43372007544F4891B11E2B7E0E22179148DD4852
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:43372007544F4891B11E2B7E0E22179148DD4852
 ```bash
 magnet:?xt=urn:btih:190DAF9B470632A519A689B768E5D8D4EDA6F792
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ magnet:?xt=urn:btih:190DAF9B470632A519A689B768E5D8D4EDA6F792
 magnet:?xt=urn:btih:F741F429B56E457EA4447705A32F07134C9AB9D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ Michael Hampton | Analytical Figure Drawing 1 (2011) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:3BA078F916313DFB9379473EA9C273047E89EE7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ Michael Hampton | Analytical Figure Drawing 2 (2011) PCRec [En, Ru]
 magnet:?xt=urn:btih:E2E3AA337C90270F700C5BEE5C490DEF41C4AA25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ Applied Houdini ("практический Houdini", "Houdini в практич�
 ```bash
 magnet:?xt=urn:btih:F519C18728A8E7EA02D534EE2529A367CEE18C32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:F519C18728A8E7EA02D534EE2529A367CEE18C32
 ```bash
 magnet:?xt=urn:btih:95757CB97C20D30CD63D29F3E2688CB81873DEED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ magnet:?xt=urn:btih:95757CB97C20D30CD63D29F3E2688CB81873DEED
 magnet:?xt=urn:btih:960D0DFB5943E68A21E198327C1DB1863E367710
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ magnet:?xt=urn:btih:960D0DFB5943E68A21E198327C1DB1863E367710
 magnet:?xt=urn:btih:1831745842590670ABE7A0D445DA8FC636205991
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +457,8 @@ Anthony Eftekhari | Matte Painting (2016) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:01D016D01D210CD6D189546B4B5CAD7E391F58C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ Houdini - это чрезвычайно мощный инструмент для
 magnet:?xt=urn:btih:D1A33BFB782732E450CA8FBE2D9F33369DECA2FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ Shawn Lipowski | VEX in Houdini (2014) PCRec [En, Ru]
 magnet:?xt=urn:btih:C7D6773571CEAA819BE2A083FACE93F9243B790E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +536,8 @@ Pawel Grochola | Destruction in Houdini (2014) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:D6AC9409CAD616028635852C00194D3E5BAFA53F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +566,8 @@ Skillbox, Андрей Мельниченко и др. | Методист обр
 magnet:?xt=urn:btih:024C56C206FBC06BEC111DC91F89C781872D7D12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +595,8 @@ Moscow Business School | MBA Start. Модуль 1. Экономика и пра
 magnet:?xt=urn:btih:7928B423B47B2D1A331FFBA7F0B3A4CD5E6432F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +622,8 @@ MindManager – одно из ведущих ПО по работе с инфо�
 ```bash
 magnet:?xt=urn:btih:B444653399273BD4861AF72BC6926156EBC00489
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +652,8 @@ Moscow Business School | MBA Start. Модуль 15. Управление про
 magnet:?xt=urn:btih:55034914AEC1BE5EB942E66A713E346EC413F46F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +677,8 @@ Udemy, Sonali Shrivastava | TCP/IP Socket programming HandsOn-Windows & Linux in
 ```bash
 magnet:?xt=urn:btih:119A328DFE5099D065A7958654F9AE3AD3D1C429
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -656,6 +706,8 @@ MindManager – ведущее ПО для работы с информацие�
 ```bash
 magnet:?xt=urn:btih:6F21101E4C6DF375823FF9D39E6C79733B8537C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

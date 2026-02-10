@@ -22,6 +22,8 @@ John Barry - John Barry - Somewhere In Time (1998) [MP3|320 Kbps] <Score>
 magnet:?xt=urn:btih:FE7ECBCFD31FBFE6842CD609D24BD6E26D839AAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ The Symphonic Sound Orchestra - Classic Rock Symphony (Unknown) [FLAC|Lossless|i
 ```bash
 magnet:?xt=urn:btih:0BA55208954E8C04969A5D8314E80B710733819A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Yiruma - Solo (2021) [FLAC|Lossless|tracks + .cue] <New Age, Piano, Modern Class
 magnet:?xt=urn:btih:5F8F80E6425B1460E316B477B45CBD0C01948419
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Raimonds Ozols - Classics in Pop (2004) [FLAC|Lossless|image + .cue] <Instrument
 ```bash
 magnet:?xt=urn:btih:7519A8FC98D623A5AC5BFB8FFF62CF2D88E93043
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +144,8 @@ Anna Netrebko - Live at The Metropolitan Opera (2011) [MP3|320 кб/с]<Vocal, O
 magnet:?xt=urn:btih:142305D984B3464845D9BAFCB03849B9577AF3F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +172,8 @@ Symphony No.9 K.73
 ```bash
 magnet:?xt=urn:btih:48A18C2004DE025E948B763A4D246D8913DB7F3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +202,8 @@ VA - Шедевры Классики В Современной Обработк�
 magnet:?xt=urn:btih:B6C836B33F65FA15BB736BF3D0D90B2453E8CA70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +230,8 @@ VA - Шедевры Классики В Современной Обработк�
 ```bash
 magnet:?xt=urn:btih:DE0A1BB45929A4C67A45BEEB7D5C470781CBB079
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +266,8 @@ Kronos Quartet - 25 Years - 10CD BoxSet (1998) [FLAC|Lossless]<Classical, Classi
 magnet:?xt=urn:btih:E653E931188EA072348BCEB25902A3740FC417CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +295,8 @@ Symphony in E flat major, Op.6 No.2
 magnet:?xt=urn:btih:BCA55CF9A1CC12C3FE39D2EC7740CA6090B3E432
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +320,8 @@ Richard Wagner / Friedmann Dressler: The Symphonic Ring (2009) [FLAC 2.0 192/24 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +350,8 @@ Gossec - Aux Armes, Citoyens! (2010) [FLAC|Lossless|tracks + .cue] <Music for Wi
 magnet:?xt=urn:btih:FF65639EFEF62901FDD76BABCB68126F2326AE16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +377,8 @@ Lars Vogt, Orchestre De Chambre De Paris - Mendelssohn: Piano Concertos, Capricc
 ```bash
 magnet:?xt=urn:btih:E7D1B286F94B50C38473AAD1CFE0D8458039337D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +406,8 @@ Ludovico Einaudi - Seven Days Walking (Day 3) (2019) Decca Records [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:413E118386B7D7543A40DEC1B785796E6300E481
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +442,8 @@ Sergei Prokofiev - The complete piano sonatas 2 (1991) [FLAC|Lossless]<classical
 magnet:?xt=urn:btih:952D5EB7136597EAB767A914D10C386CE73F700A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +472,8 @@ Guiseppe Torelli, Concerto a 4 violini (E minor)
 magnet:?xt=urn:btih:DE39F322FEC4D9DAE4B45FEEBA5185BCC4FE90DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +500,8 @@ Concerti musicali (12), for strings & continuo, Op. 6
 ```bash
 magnet:?xt=urn:btih:7C7ACE765E2F5E9E39451301B266829098911F1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +530,8 @@ Trevor Pinnock, English Concert - Antonio Vivaldi: Six Flute Concertos, Op.10 (1
 magnet:?xt=urn:btih:CF7E334A156F1FC66B22693A0CBF309D15B4A17D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +558,8 @@ Grieg - Lyric Pieces (Balzs Szokolay) Vol.1 (1995) [FLAC|image +.cue]<Classical,
 ```bash
 magnet:?xt=urn:btih:D483F20D3A3F601B5B70D46D5A3ACCD75C6E0B3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +588,8 @@ CD 01
 magnet:?xt=urn:btih:FBE8E02C52053960488942CB960164434F37E342
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +613,8 @@ magnet:?xt=urn:btih:FBE8E02C52053960488942CB960164434F37E342
 ```bash
 magnet:?xt=urn:btih:4301B09C1211776E84F5031A6F77BC7B28C932BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +643,8 @@ Musica Pacifica - Fire Beneath My Fingers (2008) [FLAC|Lossless|tracks] <Classic
 magnet:?xt=urn:btih:51AA4CA545D2CF4DB1D09EE4222C61569E2602D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +671,8 @@ Martin Jacoby - Performs Ludovico Einaudi (2014) [MP3|320 кб/с]<Classical, Pi
 ```bash
 magnet:?xt=urn:btih:0E33E14FF7EB13A807762F973F34E5B0CA9249D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -655,6 +701,8 @@ Burkhard Glaetzner - Vivaldi: Oboe Concertos (Complete) 1989 (3CD) [MP3|320 Kbps
 magnet:?xt=urn:btih:FAFC5873885A50E14D327B911963F63084C19132
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -682,6 +730,8 @@ Double Violin Concerto, for 2 violins, strings & continuo in G major, RV 516
 magnet:?xt=urn:btih:D7D090FA8B985A3294CDF6C4986F0C93DD436EE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -708,6 +758,8 @@ Neon Philharmonic Orchestra - Switched On Classics, Vol. 1 (1995?) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:2131A755862D165C06E785696A2AAA5765EEDAD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Guilty Gear Strive: Dual Rulers | Guilty Gear Strive: Двойные прави�
 magnet:?xt=urn:btih:AA36FF4B83E59B62EE7A1186BE0329B03A67C6F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Lycoris Recoil: Friends Are Thieves of Time. / Ликорис Рикойл: Др
 ```bash
 magnet:?xt=urn:btih:F545457B5C102505E5641B51A2DD004C2BFA1242
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Watashi no Shiawase na Kekkon 2 | My Happy Marriage 2 | Мой счастлив�
 magnet:?xt=urn:btih:1F1770CF52BFCC3E9F0A1EBF354FE3CF754A210C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Touhai: Ura Rate Mahjong Touhai Roku | Ледяные кости [2024, TV, 25 �
 ```bash
 magnet:?xt=urn:btih:FB408915D57F0B4619AB5AA330AD55D260A2712B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Inazuma Eleven: Outer Code | Одиннадцать молний: Внешний
 magnet:?xt=urn:btih:130900A2FF4A8ED7417EF0823D3FBE68B4A167D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Bloody Escape: Jigoku no Tousou Geki | Bloody Escape: Bats out of Hell | Кро�
 magnet:?xt=urn:btih:CB9E65A920BEC0AEAAEAC4A24FE87B0025276190
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Momentary Lily | Мгновение Лили [2025, TV, 13 эп. + SP] WebRip 72
 ```bash
 magnet:?xt=urn:btih:77C5211B2C5D532448E43183E6A302AB42419D46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ Thunderbolt Fantasy: Touri-ken Yuuki 3 | Thunderbolt Fantasy: Sword Seekers 3 | 
 magnet:?xt=urn:btih:DFDCFC6E95FEE6929CD2FA0EAEAD21D0929CAC91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Devil May Cry (2025) | И дьявол может плакать (2025) [2025, W
 ```bash
 magnet:?xt=urn:btih:DD57E085802148EFEB2F574F749BD8358E349B3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ Juusenki L-Gaim III: Fullmetal Soldier | Heavy Metal L-Gaim III: Fullmetal Soldi
 magnet:?xt=urn:btih:18EB25E2D98D64A690E009715B1C0FC047D60FA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ Juusenki L-Gaim I: Pentagona Window + Lady Gavlet | Heavy Metal L-Gaim I: Pentag
 ```bash
 magnet:?xt=urn:btih:052FBBD952E95239487259E02207A3FEEF4C9C4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ Taнцы нa льдy — coвceм нe тo, к чeмy cтpeмилcя Цyкaca Aк
 magnet:?xt=urn:btih:040DCBBF08AD04DA186C98EEF68036D4512A9C97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ Ameku Takao no Suiri Karte / Ameku Takao's Detective Karte / Детективн�
 ```bash
 magnet:?xt=urn:btih:A9584D6944EA6892C89FAC83EED5056A2450FF2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ Hana wa Saku, Shura no Gotoku / Flower and Asura / Цветок, распуск�
 magnet:?xt=urn:btih:3B13F64ED5372ABF15096FA645ADA037314EC095
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ Thunderbolt Fantasy: Seishi Ikken | Thunderbolt Fantasy: The Sword of Life and D
 ```bash
 magnet:?xt=urn:btih:905F3103BB3C1B2C351DCE4A14EDD897454C1166
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ Jibaku Shounen Hanako-kun 2 | Toilet-bound Hanako-kun Season 2 | Туалетн�
 magnet:?xt=urn:btih:1AAA4972F1E8414DAB12BAB0D723E1EB5186FEF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ Akuyaku Reijou Tensei Ojisan | From Bureaucrat to Villainess | Перерожд�
 magnet:?xt=urn:btih:143FE458A03A586D27E0AE8D71301586407A7F78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Nihon e Youkoso Elf-san. / Welcome to Japan, Ms. Elf! / Добро пожало�
 ```bash
 magnet:?xt=urn:btih:24291CC222D8047DBFDD13642F83BD32CCAC3103
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ Kimi no Koto ga Dai Dai Dai Dai Daisuki na 100 Nin no Kanojo 2 / Сто деву
 magnet:?xt=urn:btih:05A01EFB7539D0B2948E3005611D376B0A42D854
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ Sentai Red Isekai de Boukensha ni Naru | Красный рейнджер ста�
 ```bash
 magnet:?xt=urn:btih:470D3F8AB3DB8B73EFCF39826AB4974BE0761962
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ Ishura 2 | Исура [ТВ-2] [2025, TV, 12 эп.] WebRip 720p HEVC raw
 magnet:?xt=urn:btih:5C8EB0992A13C03C54810581F221BBD9C27F5FDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ Farmagia | Фармагия [2025, TV, 12 эп.] WebRip 720p raw
 ```bash
 magnet:?xt=urn:btih:CE954E8E8093EB47E72C51D3D3F4F1D14204A86B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ Fuguu-shoku Kanteishi ga Jitsu wa Saikyou Datta / Убогий класс «Оц
 magnet:?xt=urn:btih:CBA98C70B546CBDAEAEB1DB91E20F7444BDABB76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Trillion Game | Игра на триллион [2024, TV, 26 из 26 эп.] WEBR
 ```bash
 magnet:?xt=urn:btih:2E35A6E5D773046F663B7DCE494359CFE9BBABE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ Meng Qi Shi Shen | Adorable Food Goddess | Очаровательная боги
 magnet:?xt=urn:btih:5A44E417F12E8CCA98D94935D875C08AC1620F99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Douse, Koishite Shimaunda. | Anyway, I'm Falling in Love with You | В любо�
 ```bash
 magnet:?xt=urn:btih:1E381B47D28E10596995A85798DAE92D2BB98194
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

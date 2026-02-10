@@ -1,3 +1,29 @@
+###  Публикация: 1296830   (606324) от 20.04.2019
+
+Йерун ван Хейл | Подай идею. Как влюбить других в то, что ты придумал (2019) [PDF]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606324.jpg" />
+</div>
+
+
+###  Подробнее
+
+У вас возникла очередная гениальная идея! Но сможете ли вы заручиться поддержкой нужных людей, чтобы ее реализовать? Как заразить своей идеей окружающих? В корпоративном мире это одна из самых малоизученных тем. Вместе с тем искусство убеждать – ключевой навык творческого человека. Эта книга научит правильно подавать свои идеи всех, кто испытывает сложности с презентацией, (   Читать дальше...   )Жанр: Маркетинг, Эффективная презентацияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9B9FF4BAFAEE4CD8A9A91380EA54CDCCD8EC665
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038400   (606361) от 28.07.2016
 
 Елена Тихомирова | Живое обучение. Что такое e-learning и как заставить его работать (2016) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:D26211E769FBB5DB5BA6322705404B4316CD930E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ magnet:?xt=urn:btih:D26211E769FBB5DB5BA6322705404B4316CD930E
 magnet:?xt=urn:btih:15B6F179F595FE7E77DB6CDA39AA298E7B030541
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:15B6F179F595FE7E77DB6CDA39AA298E7B030541
 magnet:?xt=urn:btih:BEBFC4F2602DDA72812803ED257812BAADA06F1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:BEBFC4F2602DDA72812803ED257812BAADA06F1B
 ```bash
 magnet:?xt=urn:btih:F3A56CE5416693B46734E17EF544472039674FFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +154,8 @@ magnet:?xt=urn:btih:F3A56CE5416693B46734E17EF544472039674FFB
 magnet:?xt=urn:btih:8C2C901AB981F5B08245A6503F89555F2E100A60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +182,8 @@ magnet:?xt=urn:btih:8C2C901AB981F5B08245A6503F89555F2E100A60
 magnet:?xt=urn:btih:B2EE4DD0455F0757C98B4F6DB44DB1C5CF17030A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +207,8 @@ magnet:?xt=urn:btih:B2EE4DD0455F0757C98B4F6DB44DB1C5CF17030A
 ```bash
 magnet:?xt=urn:btih:87A2C56036C0CBAC0B71EE46978B7680F2F99853
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +236,8 @@ magnet:?xt=urn:btih:87A2C56036C0CBAC0B71EE46978B7680F2F99853
 magnet:?xt=urn:btih:61D2EF83E5C2C20137B12144385DE9794E937F52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +261,8 @@ magnet:?xt=urn:btih:61D2EF83E5C2C20137B12144385DE9794E937F52
 ```bash
 magnet:?xt=urn:btih:9E98CBAC4750224CB712D30C385AEF2ADC24F1A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +288,8 @@ magnet:?xt=urn:btih:9E98CBAC4750224CB712D30C385AEF2ADC24F1A3
 magnet:?xt=urn:btih:789E9BA38F007EFA91D4CCA832560A77FFCD9CBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +313,8 @@ magnet:?xt=urn:btih:789E9BA38F007EFA91D4CCA832560A77FFCD9CBB
 ```bash
 magnet:?xt=urn:btih:6DC631A44C4CB27AE5D11D96344CECEFA531423C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +340,8 @@ magnet:?xt=urn:btih:6DC631A44C4CB27AE5D11D96344CECEFA531423C
 magnet:?xt=urn:btih:717FDE3E5917FFF52CD516E5514824ED1B1465A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:717FDE3E5917FFF52CD516E5514824ED1B1465A0
 magnet:?xt=urn:btih:91506A59C9AD0663CE2D4EAB5AF20840BFEB3189
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:91506A59C9AD0663CE2D4EAB5AF20840BFEB3189
 ```bash
 magnet:?xt=urn:btih:4F028863C89AB3D79BD4BD73F1B4D379B93C1DA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +419,8 @@ magnet:?xt=urn:btih:4F028863C89AB3D79BD4BD73F1B4D379B93C1DA7
 magnet:?xt=urn:btih:C5777E656D1ED544265618BB47B5ECF3F5F8717D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +445,8 @@ magnet:?xt=urn:btih:C5777E656D1ED544265618BB47B5ECF3F5F8717D
 magnet:?xt=urn:btih:C83C104D06157BA63FBE5E0928CDE1A6199FAECB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:C83C104D06157BA63FBE5E0928CDE1A6199FAECB
 ```bash
 magnet:?xt=urn:btih:C1759CE2A901BC1854CC4C807652775552247B4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +500,8 @@ magnet:?xt=urn:btih:C1759CE2A901BC1854CC4C807652775552247B4B
 magnet:?xt=urn:btih:4CF63560DE7DC01FEA42784B5CE573F1DD675072
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +525,8 @@ magnet:?xt=urn:btih:4CF63560DE7DC01FEA42784B5CE573F1DD675072
 ```bash
 magnet:?xt=urn:btih:D322D5DCD04C8EAEFBEFF9D8FBEEA0907739A500
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +553,8 @@ magnet:?xt=urn:btih:D322D5DCD04C8EAEFBEFF9D8FBEEA0907739A500
 magnet:?xt=urn:btih:2CC4CA63D2FF46BEBFC7E445A525239F2373E89D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +578,8 @@ magnet:?xt=urn:btih:2CC4CA63D2FF46BEBFC7E445A525239F2373E89D
 ```bash
 magnet:?xt=urn:btih:E8533BFF3B43B7C39737D487DF909A4B976E153F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +605,8 @@ magnet:?xt=urn:btih:E8533BFF3B43B7C39737D487DF909A4B976E153F
 magnet:?xt=urn:btih:14F15B51A76F97E3F306AC26938C4184038BFB3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +630,8 @@ magnet:?xt=urn:btih:14F15B51A76F97E3F306AC26938C4184038BFB3C
 ```bash
 magnet:?xt=urn:btih:62D6A427EBB55496723F0280B003B0D75982D660
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +658,8 @@ magnet:?xt=urn:btih:62D6A427EBB55496723F0280B003B0D75982D660
 magnet:?xt=urn:btih:CF432319091990B243ABED4CE6DF0E9D7BB6A9B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,29 +684,7 @@ magnet:?xt=urn:btih:CF432319091990B243ABED4CE6DF0E9D7BB6A9B0
 magnet:?xt=urn:btih:B6D36A67C63E95C1E643E89F8D68926FD2F59DDA
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038228   (608366) от 27.07.2016
-
-Владимир Тараненко | Почерк, портрет, характер. Скрытая психодиагностика в практическом изложении (2014) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор книги, уникальный специалист по почерковедению, физиогномике и психологии управления Владимир Тараненко, делится с читателем собственными, собранными за многолетнюю практику, сведениями, позволяющими сделать выводы только на основании почерка и внимательного изучения черт лица. Методики автора позволяют оценить степени надежности и искренности человека, его (   Читать дальше...   )Жанр: Самосовершенствование, личностный рост, практическая психологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAB5B09259499AF22EE0D440AB4BC5B7A45FEFDA
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

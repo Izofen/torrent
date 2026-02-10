@@ -20,6 +20,8 @@ MacPilot 11 v11.0.5 [En]
 magnet:?xt=urn:btih:0B7CD3F9D67F9A3266E1FB70783CE35EC5E1423D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Mario Brajdich | Mastering 3D Modeling in Maya Part 3 (2019) PCRec
 magnet:?xt=urn:btih:7B72BE161B2841C1F5C2264AD7E88F1EAC35206C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ AirRadar - приложение для сканирования WiFi сетей 
 ```bash
 magnet:?xt=urn:btih:F3DC0C5B208309502D9FD3AEF79F74D73ED4F4B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ My Metronome - идеальный инструмент для каждого, к
 magnet:?xt=urn:btih:1CB048E619994F87A97C5C40E5D6B6D35774432E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:1CB048E619994F87A97C5C40E5D6B6D35774432E
 ```bash
 magnet:?xt=urn:btih:2E52B91FA0B6DCC9D1AD45ABDA10CE6180589BAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Auslogics Registry Defrag - программа для дефрагментаци
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Auslogics Registry Defrag - программа для дефрагментаци
 ```bash
 magnet:?xt=urn:btih:09521B5EA2F561F8EA45A6661E77775980D8A3CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Any Video Converter Professional - приложение для конверти�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ GarageSale 8 v8.0.9 (build 1138) [Multi]
 ```bash
 magnet:?xt=urn:btih:4A34CE1B990D16D71BA9823964BB084C3D759656
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ EarthView — это динамические обои для рабочего �
 magnet:?xt=urn:btih:DE3E69E65893FFC0A8D0BAA09AE53072CBFA6CAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:DE3E69E65893FFC0A8D0BAA09AE53072CBFA6CAE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Artstudio Pro 2.3.10 [En]
 ```bash
 magnet:?xt=urn:btih:8E9584DE27D9FD1053531F40E219290B867F749F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ iClip позволяет быстро заносить и хранить неб�
 magnet:?xt=urn:btih:99429D95AB3795488ECF87E36987B7DF8A0AA85D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:99429D95AB3795488ECF87E36987B7DF8A0AA85D
 ```bash
 magnet:?xt=urn:btih:EFAC6E574EC3E51D9A90FCCAD1C3EA46F535250A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:EFAC6E574EC3E51D9A90FCCAD1C3EA46F535250A
 magnet:?xt=urn:btih:FA4EF1277545961654B3D31C9D1864EA65037B24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:FA4EF1277545961654B3D31C9D1864EA65037B24
 magnet:?xt=urn:btih:B9F2A65E12E129117480C1D51A9FAF2AB50C5401
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:B9F2A65E12E129117480C1D51A9FAF2AB50C5401
 ```bash
 magnet:?xt=urn:btih:ABE68969F95B60D2067A78EB6675BFEFFC4B7C4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ NirLauncher Package - это пакет из 163 небольших утилит
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ DaVinci Resolve — единственное в мире решение для �
 magnet:?xt=urn:btih:EBA8B7813A6BE07515B2B369D21D6B4BAADBE5DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:EBA8B7813A6BE07515B2B369D21D6B4BAADBE5DB
 ```bash
 magnet:?xt=urn:btih:8CB2D24B6AC3B70B21FF22732C66FFBE9E649486
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ Capto (was Voila) - профессиональная программа для �
 magnet:?xt=urn:btih:F263996C214DCEEAF9DB273DCC0974F9B725FAFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ Amadeus Pro - многотрековый музыкальный редактор
 ```bash
 magnet:?xt=urn:btih:91FE12A812462A3A5E6BCEA75EFD52902E33F71A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ Inkscape – редактор векторной графики. Програм�
 ```bash
 magnet:?xt=urn:btih:58F74C3A1ACF8502CC35FE977234378C5AF5DCE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +636,8 @@ Boom 3D 1.1.6 [Multi/Ru]
 magnet:?xt=urn:btih:518A7AF78FA12C5070DA4A023967CDABD3FCC6A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:518A7AF78FA12C5070DA4A023967CDABD3FCC6A5
 magnet:?xt=urn:btih:F9DFFABBD546285F7B05C263589904ECBB4F5398
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ Coolutils Total PDF Converter — данный программный проду
 ```bash
 magnet:?xt=urn:btih:4EDA027BEBE99DAEE625DB26B9239CACE87A4215
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

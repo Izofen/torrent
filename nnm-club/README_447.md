@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:BE5588A62971D3ED2D99ECEF0BA5060CC5EC0A68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (Build 18713680/dlc) Repack FitG
 ```bash
 magnet:?xt=urn:btih:CC6851145E06897E19515396881513205D4491C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:CC6851145E06897E19515396881513205D4491C9
 magnet:?xt=urn:btih:FB31DEA7ED05B8ABE65D8CDC3058714DCAAE61ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Windows 11 3in1 x64 24Н2 (build 26100.4652) by ivandubskoj 09.07.2025 [Ru]
 ```bash
 magnet:?xt=urn:btih:C16D64A2AB53A744772E1FA6251A6E722A1A1409
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:C16D64A2AB53A744772E1FA6251A6E722A1A1409
 magnet:?xt=urn:btih:65DAF52F8F7656E2BC16DA73557091714877C350
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:65DAF52F8F7656E2BC16DA73557091714877C350
 ```bash
 magnet:?xt=urn:btih:D40BB462597A51B5C76D01563BF873CFF71C510B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:D40BB462597A51B5C76D01563BF873CFF71C510B
 magnet:?xt=urn:btih:204C9811E607041C3BEA6A6E5D30C7724E71A45E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:204C9811E607041C3BEA6A6E5D30C7724E71A45E
 ```bash
 magnet:?xt=urn:btih:ED06C92065D4D4C97526AEAE1E661E7CB47884D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:ED06C92065D4D4C97526AEAE1E661E7CB47884D0
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:ED06C92065D4D4C97526AEAE1E661E7CB47884D0
 ```bash
 magnet:?xt=urn:btih:84E67C0D77EBC7DF69EBF598862FBD7521191BEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:84E67C0D77EBC7DF69EBF598862FBD7521191BEE
 magnet:?xt=urn:btih:2B5FB8590BC6D89C0AF7E036AB671EB74CF9F348
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:2B5FB8590BC6D89C0AF7E036AB671EB74CF9F348
 ```bash
 magnet:?xt=urn:btih:DE2D2932F9FC881A10E7F93C5A95CA230279CA00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:DE2D2932F9FC881A10E7F93C5A95CA230279CA00
 magnet:?xt=urn:btih:813AE476BACB593829F028EB7FC10A92FF08D814
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Hollywood Animal (2025) [Ru/Multi] (0.8.37ea) License GOG [Early Access]
 magnet:?xt=urn:btih:F919C82F97504642EF78496094746CEE67F974BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:F919C82F97504642EF78496094746CEE67F974BF
 ```bash
 magnet:?xt=urn:btih:DF83CE57D042CA2C7622156B2B43721DAAF722F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:DF83CE57D042CA2C7622156B2B43721DAAF722F9
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:DF83CE57D042CA2C7622156B2B43721DAAF722F9
 ```bash
 magnet:?xt=urn:btih:84F853DC7050288AFAAE6775C814E2A1D189676A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:84F853DC7050288AFAAE6775C814E2A1D189676A
 magnet:?xt=urn:btih:580C4A6A60DBCC00AB8F04F483EB61BD10EAAE62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:580C4A6A60DBCC00AB8F04F483EB61BD10EAAE62
 ```bash
 magnet:?xt=urn:btih:65CCB29274A9B7F65E9FB35E07EC0F7D5411A12C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:65CCB29274A9B7F65E9FB35E07EC0F7D5411A12C
 magnet:?xt=urn:btih:3AB7AA000FC80C9D756B0BD9B79FA5D2092A19AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ Filterverse — это один из мощных музыкальных пла�
 ```bash
 magnet:?xt=urn:btih:58791202223536321E849F5E49CFF7B9503FC2CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:58791202223536321E849F5E49CFF7B9503FC2CD
 magnet:?xt=urn:btih:0BA3817FB47DDF9CB6ABE9CE775238D0CFFB0C48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ magnet:?xt=urn:btih:0BA3817FB47DDF9CB6ABE9CE775238D0CFFB0C48
 ```bash
 magnet:?xt=urn:btih:0782C3A9E53A190C1C0086A67BF8216E334FF19D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ VA - Alveda Top 20 Summer Hits 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, E
 magnet:?xt=urn:btih:28BAD8E33296487058CD0F2507120AA620336644
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:28BAD8E33296487058CD0F2507120AA620336644
 magnet:?xt=urn:btih:112377F73712F0AD334541105A7C77106AA69C38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ magnet:?xt=urn:btih:112377F73712F0AD334541105A7C77106AA69C38
 ```bash
 magnet:?xt=urn:btih:0EB3EC75B388BA29542BA6A152017E3F967EE6E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -21,6 +21,8 @@ Zorin OS - дистрибутив на базе Ubuntu, разработанны
 magnet:?xt=urn:btih:0C2CA39652C5710D8E979D4C7E4B3988FF5786AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Arch Linux - это независимо разрабатываемый x86-64 �
 ```bash
 magnet:?xt=urn:btih:A9CD8C3B9DCAD4785DB47908AD63D43694432CAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ ALT Linux 8 СП C9F1 [i686, amd64] 6xDVD
 magnet:?xt=urn:btih:62356DD536E9D9FE217E6F52CBD40D16F3373E6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ ALT Linux 8 СП C10F1 [amd64] 3xDVD
 ```bash
 magnet:?xt=urn:btih:3A098BA4B4B02F080C9881D106C461B19808396A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ ALT Linux 8 СП C9F2 [i586, amd64] 6xDVD
 magnet:?xt=urn:btih:4F6554E54551C61672788988DAB39528B534966C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Kubuntu — производный от Ubuntu дистрибутив Linux. Kub
 ```bash
 magnet:?xt=urn:btih:15001C9CD3317C3FF443088BB3729F8DD94512C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Kali Linux 2024.1 [amd64, i386, arm64] 11xDVD
 magnet:?xt=urn:btih:5CF77367F0E6AC10018F09E7B004AE75534A7945
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Gentoo Linux (произносится дже́нту
 ```bash
 magnet:?xt=urn:btih:1424E846034A9020573444D1E8B64C4866DBBE3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Astra Linux Special Edition 1.7.5 успешно прошла комплекс �
 magnet:?xt=urn:btih:E49625B9901C53E7A5D1DA5626437B9FC2DD0819
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ elementary OS – дистрибутив Linux с открытым исходн�
 ```bash
 magnet:?xt=urn:btih:19A84292A64E1A9935E7CA7B7C40D22F3E1CFFB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Parrot Security Lorikeet amd64 [Хакинг, аудит, безопасност
 magnet:?xt=urn:btih:627F91267B3207268074211B77A536329D60CD7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Manjaro - это дружественный пользователю дистр�
 ```bash
 magnet:?xt=urn:btih:798240B6BADA1A99647F51F921704A12973F9B16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Simply Linux (Симпли Линукс) — бесплатная операци
 ```bash
 magnet:?xt=urn:btih:9E203A8BF55F93BD02B81CC175AAE9A8704B8092
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ Runtu Lite 22.04 [x64] 1xDVD
 magnet:?xt=urn:btih:5AFE432E8A8D2E9C63DAF87E1FA678419B32CA1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ Linux Mint 21.3 Virginia (Cinnamon Edition, Cinnamon (Edge) Edition, MATE Editio
 ```bash
 magnet:?xt=urn:btih:2E5567FC9D73EAFD66B8109E5C48C32D415D8E88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ Astra Linux Special Edition 1.6.14 [amd64] 2xDVD
 magnet:?xt=urn:btih:2EA83824303FE3DF3EFB8E8BC257C75463DF9A22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ Astra Linux Special Edition 1.6.13 [amd64] 2xDVD
 magnet:?xt=urn:btih:BF1C20421F15D96B64CEB64D04FD141B6D114569
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ Linux Mint Debian Edition 7 (LMDE ) получил название "Gigi", ос
 ```bash
 magnet:?xt=urn:btih:864ACB15B81C720A3ABAA93224E21534A524A4DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ Sabayon 15.01 (KDE, XFCE, GNOME, SpinBase, Minimal) [amd64] 5xDVD
 magnet:?xt=urn:btih:1D769BDE43AEDF14E5B9F17EC42BC740148C38CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ Calculate Linux 17 [x86-64] 2xCD, 6xDVD
 magnet:?xt=urn:btih:2C0E0B576B301D5ADCD902926D452F866B1BA15F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +556,8 @@ OpenMandriva Lx 3.01 PLASMA [x86-64] 1xDVD
 magnet:?xt=urn:btih:DD1AE29DD5945DFA05B44E26739C8278F877D597
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +581,8 @@ Sabayon 17.01 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64
 ```bash
 magnet:?xt=urn:btih:22597236C99D5B343662309275CF9FB857148C4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +610,8 @@ Calculate Linux 17 [i686] 2xCD, 6xDVD
 magnet:?xt=urn:btih:2FA18B8C44BAA024D02D73A17766DB13813A2576
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ BlackArch Linux 2020.01.01 [Хакинг, аудит, безопасность] 
 ```bash
 magnet:?xt=urn:btih:C1EB86A6F6C51C28B5AD9561C3C277F952B179A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +662,8 @@ Red Hat Enterprise Linux (Server, Workstation, Client) 7.2 [x86-64]
 ```bash
 magnet:?xt=urn:btih:C6961D166A4E7BF024FD63B1342897AE8A7BDD6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +691,8 @@ Firefox + Chromium web browser(   Читать дальше...   )Разрабо
 ```bash
 magnet:?xt=urn:btih:D1BF37580056279AAE5C9FA7C2987FDF1A90C025
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

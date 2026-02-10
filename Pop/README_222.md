@@ -1,3 +1,154 @@
+###  Публикация: 1295663   (616906) от 14.04.2019
+
+VA - 100 Greatest Number Ones (2019) [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616906.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Clean Bandit - Solo (feat. Demi Lovato) (3:42)
+002. Rudimental - These Days (feat. Jess Glynne, Macklemore & Dan Caplen) (3:31)
+003. Lukas Graham - 7 Years (3:57)
+004. Charlie Puth - Marvin Gaye (feat. Meghan Trainor) (3:10)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:16:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0D04D46B248934E84592E570E03FCC48A8BD599
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523548   (616988) от 16.07.2012
+
+Bananarama - 30 Years of Bananarama (2012) [MP3|242-290 кб/с]<Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Aie A Mwana
+02 Really Saying Something
+03 Shy Boy
+04 Na Na Hey Hey Kiss Him Goodbye
+05 Cruel Summer
+06 Robert De Niro's Waiting
+07 Venus
+08 I Heard A Rumour
+09 Love In The First Degree
+10 I Can't Help It(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 1:17:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAF35AE95401BF2EFCE19FEBD9CDE4192EF66F85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295785   (617024) от 14.04.2019
+
+Bibio - Ribbons (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Indie Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beret Girl (01:56)
+02. The Art of Living (03:16)
+03. Before (03:11)
+04. Curls (03:17)(   Читать дальше...   )Жанр: Electronic, Indie Pop, Pop RockПродолжительность: 00:51:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8611EEA91D86BEFE4F5E1AD0D9B5FD046DB4374
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036961   (617173) от 22.07.2016
+
+Вахтанг Кикабидзе - Старики - разбойники (2004) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Старики - разбойники
+02. Я в тебя по-прежнему влюблен
+03. Первая любовь
+04. Наверное кажется(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE3FE0780E02C3E1CFECB19BE8841F70FC9F818F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230328   (617300) от 11.06.2018
+
+VA - Italo Disco: The Lost Legends Vol. 18 (2018) [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. F. Monieri - Up Medley Walk Away
+02. Shane - Simba
+03. New Glory - Run Along The Road
+04. Stop Limit Line - Colonel(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43F1ACEDA62C8541C9515A37F3508A0FD00050CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230335   (617301) от 11.06.2018
 
 VA - Italo Dance Summer Hits (2012) [MP3|320 Kbps] <Italo-Disco, Dance>
@@ -21,6 +172,8 @@ VA - Italo Dance Summer Hits (2012) [MP3|320 Kbps] <Italo-Disco, Dance>
 ```bash
 magnet:?xt=urn:btih:390273957452DCF7023854475C954C2628E857DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +202,8 @@ VA - Italo Disco: The Lost Legends Vol. 16 (2018) [MP3|320 Kbps] <Italo-Disco>
 magnet:?xt=urn:btih:A0CE1DD01FCB7DFBD2C145BBDA75008B49D5926F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +230,8 @@ VA - Italo Disco: The Lost Legends Vol. 17 (2018) [MP3|320 Kbps] <Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:73F838F9B09D48919E640BD5C0138A565E4DCD53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +260,8 @@ VA - Italo Disco: The Lost Legends Vol. 19 (2018) [MP3|320 Kbps] <Italo-Disco>
 magnet:?xt=urn:btih:34B48F96DD9B076E12F41E5CAF6DB6842C3B9390
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +288,8 @@ magnet:?xt=urn:btih:34B48F96DD9B076E12F41E5CAF6DB6842C3B9390
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +318,8 @@ Disc 1
 magnet:?xt=urn:btih:CC9E7B1249D66D8A8AE26D8176A15B48615AF289
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +346,8 @@ VA - Dance Collection The Remixes 2010s (2015) [MP3|320 кб/с]<Euro Dance, Pop
 ```bash
 magnet:?xt=urn:btih:759EA753F705E5A11F8042439D6C13389FAE2E25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +376,8 @@ Paradisio - Greatest Hits (20th Anniversary) (2017) [MP3|320 Kbps] <Eurodance, P
 magnet:?xt=urn:btih:38D2D3AFAA8EF5EF16ED7854095E3E95F492BC33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +404,8 @@ Lucho Gatica - Historia de un amor (2013) [FLAC|Lossless|image + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:A5638D3AF7201E905E8B432AF498FE13F03AC091
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +434,8 @@ La Flavour - Mandolay (1980) Reissue CD, Unidisc, 1992 [MP3|320 Kbps] <Electroni
 magnet:?xt=urn:btih:22433EE98857DA830CD04A83859B65240E08D59C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +462,8 @@ Revelacion - 2 Albums (1977, 1979) LP [MP3|320 Kbps] <Electronic, Disco>
 ```bash
 magnet:?xt=urn:btih:67AFEEBECEAD12546E6BF092618765D9C8C78063
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +492,8 @@ CD1:
 magnet:?xt=urn:btih:21CDBA705C66809FED4CF3DE8D57FD792A8600CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +521,8 @@ VA - The British Pop Collection (60 Original Artists 60 Original Hits) (1983) Ax
 magnet:?xt=urn:btih:6DC807E9A69795F23EE08936A9563AEB01A8C4B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +549,8 @@ Marina Kaye - Fearless (2015) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:3989946097E9437C4851C97FBECCFE8884FD7FDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +585,8 @@ magnet:?xt=urn:btih:3989946097E9437C4851C97FBECCFE8884FD7FDA
 magnet:?xt=urn:btih:A42220553657E531576FB0A8523B4522A0D9762F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +620,8 @@ magnet:?xt=urn:btih:A42220553657E531576FB0A8523B4522A0D9762F
 magnet:?xt=urn:btih:2CC9B8EA07BE055D90B979DF0BFCDF1E3FA494CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +648,8 @@ Culture Beat - Inside out (1995) [FLAC|Lossless|tracks + .cue] <Euro House>
 ```bash
 magnet:?xt=urn:btih:814AD0E246402F2F3725CA0960E0338DBE82F2C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +678,8 @@ magnet:?xt=urn:btih:814AD0E246402F2F3725CA0960E0338DBE82F2C2
 magnet:?xt=urn:btih:82F6BD21B9E0968986536917DF3892A8ED7A1278
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +706,8 @@ magnet:?xt=urn:btih:82F6BD21B9E0968986536917DF3892A8ED7A1278
 ```bash
 magnet:?xt=urn:btih:FE3F11C16E5B217627A152F1487F78CF9B161BDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +736,8 @@ magnet:?xt=urn:btih:FE3F11C16E5B217627A152F1487F78CF9B161BDA
 magnet:?xt=urn:btih:A62DCE893DA76A4AC7A04249A604C913603D24F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,155 +765,7 @@ magnet:?xt=urn:btih:A62DCE893DA76A4AC7A04249A604C913603D24F3
 magnet:?xt=urn:btih:AEE90612EED2ABCF2625738E1F8EE6C48F66A440
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295505   (618805) от 13.04.2019
-
-VA - The Definitive Harem Records 12 '' (1997) 2CD [MP3|320 Kbps] <Electronic, Disco, Hi-NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Диско сборник хитов конца 70х - начала 80х от британского DJ, автора и продюсера Simon Soussan, выпущенных на студии"Harem Records" - дочерней фирме "Polydor".01. Pattie Brooks - After Dark (7:57)
-02. Arpeggio - Love And Desire (8:57)
-03. Simon Orchestra - Mr.Big Shot (8:02)
-04. Jessica Williams - Queen Of Fools (8:27)(   Читать дальше...   )Жанр: Electronic, Disco, Hi-NRGПродолжительность: 02:35:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61031E234E8F0F9FB48DFBD70856DBF02E912E0F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523147   (618850) от 15.07.2012
-
-Demis Roussos - The Singles+ (2 CD) (2003) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618850.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1| Продолжительность: 01:15:18
-01. We Shall Dance
-02. Fire And Ice
-03. No Way Out
-04. My Reason
-05. Forever And Ever
-06. Velvet Mornings
-07. Goodbye My Love, Goodbye
-08. My Friend The Wind
-09. Schoes Madchen aus Arcadia(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:25
-01. Kyrila
-02. Mourir Aupres De Mon
-03. Ainsi-Soit-Il
-04. Life In The City
-05. That Once In A Lifetime
-06. Loin Des Yeux, Loin Du Coeur
-07. The Wedding Song
-08. Lost In Love
-09. I Need You(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8A312BE9BC879C207812AAC78F801A9A456239C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036607   (618907) от 21.07.2016
-
-ВИА Коробейники - Коробейники (2004) [FLAC|Lossless|image + .cue] <Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. "Золотые купола  "
-02. "Ой полным полна моя коробушка  "
-03. "Калинушка  "
-04. "Огромный мир  "(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:02:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F648F70EE2309ABF99BF644EB75CADCE378BC1BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230156   (618977) от 10.06.2018
-
-VA - The Mojo Machine Turns You On 1 (1997) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618977.jpg" />
-</div>
-
-
-###  Подробнее
-
-Напомню, что MOJO - это британский музыкальный журнал, выходящий ежемесячно и издающийся с 1993 года. Иногда он выпускает вот такие сборники групп и солистов, представленных в журнале. Как правило выпуск сопровождается достаточно интересным буклетом, являющимся как бы продолжением журнала. Сборники в продажу не поступают, а распространяются по подписке, о чем на (   Читать дальше...   )01. Gary Moore - Afraid of Tomorrow  (5:00)
-02. Steve Winwood - Fill Me Up  (4:27)
-03. Prefab Sprout - Whoever You Are  (2:49)
-04. John Mayall - Stone Cold Deal  (4:19)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 01:13:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FD550C67812BB5050B4099CE0420ED268C2E5E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036532   (618984) от 21.07.2016
-
-ABBA - The Album (1977) Reissue, Deluxe Edition, 2007, Polar [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eagle (5:53)
-02. Take A Chance On Me (4:07)
-03. One Man, One Woman (4:34)
-04. The Name Of The Game (4:54)(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69B4E81C9976FAF7A529FDCC6CEDA2D9DDDF362E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

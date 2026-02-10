@@ -1,3 +1,32 @@
+###  Публикация: 1326431   (383491) от 21.09.2019
+
+VA - Top 100 Drum & Bass Vol.3 (2019) [MP3|320 Kbps] <Liquid Funk, Drumfunk, Soulful D&B>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383491.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mailky - Flawless (Original Mix)
+002. Boxplot - Voicemail Poems (Original Mix)
+003. Ryo Arue - Tune Your Bass To Ours (Original Mix)
+004. Shockone Feat. Reija Lee - A Dark Machine (Extended Mix)(   Читать дальше...   )Жанр: Liquid Funk, Drumfunk, Soulful D&BПродолжительность: 07:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81F55A3381145C55FC4244F0B52857CCEEE210F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326680   (383496) от 21.09.2019
 
 VA - Grace & Mercy: Hip-Hop Soul Control (2019) [MP3|320 Kbps] <Hip-Hop>
@@ -21,6 +50,8 @@ VA - Grace & Mercy: Hip-Hop Soul Control (2019) [MP3|320 Kbps] <Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:0923923D97C3526448712D51E1DABDA9AFAE076D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Power Trance Surgery: Euphoric Mix (2019) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:10A8ED025FCCA9398C2CDCD46E21F31428AE423D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +109,8 @@ VA - Straight Outta Tennessee (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:3C1FD180F6F7B675B320C6637FEAA0E67B7DF8B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +137,8 @@ VA - Urban Sound: Tech House Set (2019) [MP3|320 Kbps] <Techno, Tech House>
 ```bash
 magnet:?xt=urn:btih:49E33EA2847D5D804E75DEFF508C343380778BE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +173,8 @@ VA - Двойной размер удовольствия (2012) [MP3|256 кб/�
 magnet:?xt=urn:btih:0E3F3586FD5A2F073C5EC86D9DB41A4B0679EE5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +208,8 @@ VA - Лучшая 100ка Record: Взорви танцпол 7 50/50 (2012) [MP
 magnet:?xt=urn:btih:CB82031C27CBB75713926E6D264F8CAB5BD38F8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +236,8 @@ VA - Big Room Dance 2 (2022) [MP3|320 Kbps] <Big Room, Dance, Hands Up>
 ```bash
 magnet:?xt=urn:btih:C50A5A5343C95CF1B7CB480AFA433CFC5D0F8347
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +272,8 @@ VA - Dub-Pack - Week 9 (2012) [MP3|320 кб/с]<Dub-Step>
 magnet:?xt=urn:btih:9606613440CCDE164CF3C5557DECF4D1E27B6756
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +306,8 @@ VA - Shimi Sonic - Beats And Thoughts Mixtape (2012) [MP3|320 кб/с]<Funk, Bre
 ```bash
 magnet:?xt=urn:btih:4A1B69332FCF82D047D23DC6C0D1667F89563929
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +342,8 @@ VA - Осенний хит. Полный вперед! (2012) [MP3|256 кб/с]<
 magnet:?xt=urn:btih:DDF8F03D685F89421E368334AA08637389488E15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +373,8 @@ VA - Big City Trance Volume 41 (2012)
 ```bash
 magnet:?xt=urn:btih:A50FC1CEFD75269229A1BA0183A40C006A1AB5C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +409,8 @@ VA - ClubmusicRU Vol.1 2CD Mixed by M.PRAVDA (2008) [MP3|320 кб/с]<Trance / P
 magnet:?xt=urn:btih:8CF36FC2AD4CD432F4FE0BC6CB569DA89EDC0BA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +444,8 @@ VA - Ээхх, Разгуляй Часть 6 (2011) [MP3|256 kbps]<Шансон>
 magnet:?xt=urn:btih:08CBDC71F2F24C3C926D8B7075A9E8C78E28344F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +472,8 @@ VA - Top 150 Deep House Tracks Vol.4 (2019) [MP3|320 Kbps] <House, Deep House, C
 ```bash
 magnet:?xt=urn:btih:2670EA369DEDC28F6236F8C4E3794A3726FA1CE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +502,8 @@ VA - 100-ка модных хитов - 2 (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:90AE618048427A5C48473849CEBD8D15E93813D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +530,8 @@ VA - The Spirit of Acoustic (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrume
 ```bash
 magnet:?xt=urn:btih:BC42A042BCAB705182B093415B675AC5E09A9478
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +560,8 @@ VA - Autumn Mood: Positive Session (2019) [MP3|320 Kbps] <Club, Dance, House>
 magnet:?xt=urn:btih:E1DA83CBC745344615D715069A0A1A2E742BAAD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +588,8 @@ VA - Nothing To Lose (2019) [MP3|320 Kbps] <Indie, Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:8BDCEA8D3F58F1A39302BE16554F272D842C61DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +618,8 @@ VA - Club Sounds: Futuristic Electro House (2019) [MP3|320 Kbps] <Future House, 
 magnet:?xt=urn:btih:E7F1BD5403879FA2DC23536A7007A845B4DA46C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +647,8 @@ VA - Beatport Trance Pack  (30.10) (2016) [MP3|320 Kbps] <Trance, Melodic, Emoti
 magnet:?xt=urn:btih:1874F5C7646F83328F70D51BA31CA97CAEB943EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +675,8 @@ VA - Trance Collection Vol.72 (2018) [MP3|320 Kbps] <Uplifting Trance, Vocal Tra
 ```bash
 magnet:?xt=urn:btih:D05594AC6D8ECC9BA4E1B8E78FD18A5F4D35AB1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +711,8 @@ VA - Армейский Superhit (2012) [MP3|128 кб/с]<Pop, Военная п
 magnet:?xt=urn:btih:D20100F675B76D52523C5A2B608E7866E3A6974E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +739,8 @@ VA - Beatport Dancehall: Sound Pack #186 (2020) [MP3|320 Kbps] <Dancehall, Riddi
 ```bash
 magnet:?xt=urn:btih:CB7A63C2600FA872690878918A4B35822C88962F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -694,6 +769,8 @@ VA - Hyperspace: Synth Space Electronic (2020) [MP3|320 Kbps] <Synthspace, Elect
 magnet:?xt=urn:btih:5CC8713A74A89CFA7548A6C9210E6095CE8E5FED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -721,32 +798,7 @@ VA - Punk Rock Rolling Style (2020) [MP3|320 Kbps] <Punk, Punk Rock, Alternative
 magnet:?xt=urn:btih:DE3CD7CD26AB216F0F751D2234B7B1DFEEC54BE0
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253290   (385538) от 08.10.2018
-
-VA - New Music Releases Week 40 of 2018 (2018) [MP3|320 Kbps] <Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385538.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kim Petras - Close Your Eyes
-002. Lane 8, Poliça - No Captain (Dirty South Remix)
-003. Mario - Goes Like That
-004. J.S. Ondara - American Dream(   Читать дальше...   )Жанр: Dance, Pop, RockПродолжительность: 13:11:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EB6A9372E3932E40EA8AC8CB8E9FA61E1533BD6
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

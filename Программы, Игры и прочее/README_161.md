@@ -19,6 +19,8 @@ GPS АнтиРадар v51.2(G) Mod by Slavatv5 [Ru]
 magnet:?xt=urn:btih:DA137D5D8BC9868EEC98192754B580DE93CA68A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ SD Card Test Pro v2.6 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:E933A36D67621F2367E15D30BECC7F8C9E2EDC89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:E933A36D67621F2367E15D30BECC7F8C9E2EDC89
 magnet:?xt=urn:btih:0C674AB5F28298B311FBBFEF98360A63EA972B53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:0C674AB5F28298B311FBBFEF98360A63EA972B53
 ```bash
 magnet:?xt=urn:btih:5C5FE00A68F11E407563F19330141B31C19A1F0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:5C5FE00A68F11E407563F19330141B31C19A1F0D
 magnet:?xt=urn:btih:BB755627D2D35BCBD432B39279DBA5246F1F691A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Astrological Charts / Астрологические Карты Pro v11.1.10 [Ru
 ```bash
 magnet:?xt=urn:btih:6F787BD6F4021C0EC15CC6EC1C7AB3575BC7437D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Horary Chart / Астрология: Хорарная Карта v4.1.4 [Ru/Mult
 magnet:?xt=urn:btih:C4CB8B3840D2657AE978D04ED5B8FA94D5516238
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:C4CB8B3840D2657AE978D04ED5B8FA94D5516238
 ```bash
 magnet:?xt=urn:btih:6F8007367B31CDA42B2B36E0C9D85892A740870B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Words of Wonders: Игра в слова v5.3.8 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:FB06B3F51A90F3A6841129BA2D18B713781EDE9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Quotes+ — Твой карманный источник ежедневного 
 ```bash
 magnet:?xt=urn:btih:FBF4972D4C99AF7BB25101B084376ED6EC0870CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Word Surf ‒ это новая оригинальная игра-головол
 magnet:?xt=urn:btih:1B06F51554B970086E007EEC6C99836546215791
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Exo Player - Видеоплеер и IPTV v2.1.0 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:D638F318D115917E8F290E2C4758BD29C5155746
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Strava: бег, велоезда, хайкинг v440.11 Mod by PieMods [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:BF4EBF92DD8678C117A81F57326E5E53B4DE0DAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Gmail, Yahoo, Hotmail, FastMail, Apple, GMX, Outlook, AOL или Exchange - Aqua
 magnet:?xt=urn:btih:80FAFB8157FDA48B05654049F973C927429C0A39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 ```bash
 magnet:?xt=urn:btih:107D55767B3A1B7023F9EC6AA5D1CBAD2CBFF95E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Revo Uninstaller Mobile всегда старается предоставить
 magnet:?xt=urn:btih:1A4588C3E232CC47C271EFAF535C23BC3029A083
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Pencil Photo Sketch - профессиональное приложение дл
 magnet:?xt=urn:btih:7981327F9F4713558C2C3292191BBB093FC4B4EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Auto Reply: автоответчик v6.2 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1ECE0DBDB9B39D053F413B57824815A47F672527
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ Daff Moon Phase (Фазы Луны) v3.51 Mod by shv7net [Ru/Multi]
 magnet:?xt=urn:btih:C66E3AA485FC4CD901B30EB0FEEB7D4903BF61D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ AI Photo Editor Pro - Polish v1.694.240 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:14915392D11670FCA12EE7153B3051A75FF404E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ OsmAnd+ - это приложение с картами всего мира на
 magnet:?xt=urn:btih:2BA8C94BBA46AA488C2EE16EDF023E4F58DCC1DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Relax Rain: sleeping sounds v9.1.0 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:4B48EE758B04FD12B81F5BDA8B95093268F9F9B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:BBA71BBDF8E89B3180B71DD115EB7EF54EA17D78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:BBA71BBDF8E89B3180B71DD115EB7EF54EA17D78
 magnet:?xt=urn:btih:2E0812720B971C71C2F443B1EF324B173253F25A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Night clock / Ночные часы v2.11.7 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2B186E18F433C0642BE9EEE8CFC1DA9C2EB7EE43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +676,8 @@ DNS Changer для Android — это первый уровень интерне
 ```bash
 magnet:?xt=urn:btih:FA5F2F36E58D279B46806E7545723F88045736AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,52 +1,3 @@
-###  Публикация: 957337   (327360) от 17.11.2015
-
-Журнал | Maxim [Россия] №12 (декабрь 2015) [PDF]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Maxim является абсолютно уникальным журналом с неповторимым стилем и юмором, а количество великолепных женщин и качество съемок не оставляют другим журналам вообще никаких шансов стать лидерами. Журнал Максим радует познавательными материалами из всех областей, доступных человеческому пониманию, а уж за пределами этого понимания журналу вообще нет равных.Жанр: Мужской журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C4F763E0B87BDBB2DF6DEF1A582239369BAEB54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957497   (327361) от 17.11.2015
-
-Тарас Асачев | Палач (2015) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман цикла «Тёмная сторона».
-Можно ли рассчитывать на новую жизнь? Желать чего то нового, приключений, любви и друзей. Новая жизнь - мечта и романтика. Можно об этом желать, сели все так как вы планируете. А если новая жизнь будет без вашей памяти, там где вы не рассчитывали появиться? Уже не очень? А если судьба решит иначе, за вас? и вы появитесь в странном (   Читать дальше...   )Жанр: ФантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49A8E0DAD2E5132E67068946CAA5CDCC56BE87D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957253   (327362) от 17.11.2015
 
 Сэм Кин | Синдром Паганини и другие правдивые истории о гениальности, записанные в нашем генетическом коде (2015) [FB2]
@@ -67,6 +18,8 @@ magnet:?xt=urn:btih:49A8E0DAD2E5132E67068946CAA5CDCC56BE87D6
 ```bash
 magnet:?xt=urn:btih:62F95703D5142BE336EB907ABEE7AFE5CF23CF6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +45,8 @@ magnet:?xt=urn:btih:62F95703D5142BE336EB907ABEE7AFE5CF23CF6C
 ```bash
 magnet:?xt=urn:btih:81EA58F665487097BB150B5E79EE793C7EDFF14C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +74,8 @@ magnet:?xt=urn:btih:81EA58F665487097BB150B5E79EE793C7EDFF14C
 magnet:?xt=urn:btih:BB9CDCDC84DB1504142A49D8B4C2C9583C521673
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +99,8 @@ magnet:?xt=urn:btih:BB9CDCDC84DB1504142A49D8B4C2C9583C521673
 ```bash
 magnet:?xt=urn:btih:43FB58C7862960812A1447D8F105089A4ECEFCD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +127,8 @@ magnet:?xt=urn:btih:43FB58C7862960812A1447D8F105089A4ECEFCD6
 ```bash
 magnet:?xt=urn:btih:417B958F5971D0798DF4BEDD82F36D1052325250
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +157,8 @@ Ludovico Einaudi - Elements (2015) Deluxe Version [AAC|256 кб/с|WEB]<Modern C
 magnet:?xt=urn:btih:BE0C2835E479D5E8D4162038D1CD1CD2515F4E1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +183,8 @@ magnet:?xt=urn:btih:BE0C2835E479D5E8D4162038D1CD1CD2515F4E1E
 ```bash
 magnet:?xt=urn:btih:5BF7415BA0B31A5DD0051569988A3CA15A9E0709
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +211,8 @@ magnet:?xt=urn:btih:5BF7415BA0B31A5DD0051569988A3CA15A9E0709
 magnet:?xt=urn:btih:C1E7AED386D9F25CD240BF1CF02431EFA634D788
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +236,8 @@ magnet:?xt=urn:btih:C1E7AED386D9F25CD240BF1CF02431EFA634D788
 ```bash
 magnet:?xt=urn:btih:55415B2415C5C5247751DFE0C0EB8E8BF34547F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +264,8 @@ magnet:?xt=urn:btih:55415B2415C5C5247751DFE0C0EB8E8BF34547F4
 magnet:?xt=urn:btih:D4E6C27F71A3F2AE19FEF08164E70132650EA180
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +289,8 @@ magnet:?xt=urn:btih:D4E6C27F71A3F2AE19FEF08164E70132650EA180
 ```bash
 magnet:?xt=urn:btih:ABCC0490452738CAB492C8F1AEFA5BC206A9E385
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +316,8 @@ magnet:?xt=urn:btih:ABCC0490452738CAB492C8F1AEFA5BC206A9E385
 magnet:?xt=urn:btih:0FBEEB08B236540A6D5E3BB7A531009938DDF21A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +341,8 @@ magnet:?xt=urn:btih:0FBEEB08B236540A6D5E3BB7A531009938DDF21A
 ```bash
 magnet:?xt=urn:btih:EB631336681318E12EB5C7C49B16EF3DA705F996
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +371,8 @@ magnet:?xt=urn:btih:EB631336681318E12EB5C7C49B16EF3DA705F996
 magnet:?xt=urn:btih:AAB4ADD4A6F736CD26F2743650BEDE4567F5DA6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +396,8 @@ magnet:?xt=urn:btih:AAB4ADD4A6F736CD26F2743650BEDE4567F5DA6F
 ```bash
 magnet:?xt=urn:btih:5C345F41D8EA026948A65818AB37402A65D66541
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +424,8 @@ magnet:?xt=urn:btih:5C345F41D8EA026948A65818AB37402A65D66541
 magnet:?xt=urn:btih:3A5794ADB1BD75B7B2E7EC465C8BDB4F16371FC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +450,8 @@ magnet:?xt=urn:btih:3A5794ADB1BD75B7B2E7EC465C8BDB4F16371FC7
 magnet:?xt=urn:btih:524B4AF81D4B3080DBEA1016BA337F01BF259A4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +475,8 @@ magnet:?xt=urn:btih:524B4AF81D4B3080DBEA1016BA337F01BF259A4B
 ```bash
 magnet:?xt=urn:btih:CCE3026B5EEA83C32806B3D2C7FB8FC303A3E4E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +505,8 @@ magnet:?xt=urn:btih:CCE3026B5EEA83C32806B3D2C7FB8FC303A3E4E3
 magnet:?xt=urn:btih:BB11091553CBEF70A783A9EA4E949AD6ADBCE3E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +530,8 @@ magnet:?xt=urn:btih:BB11091553CBEF70A783A9EA4E949AD6ADBCE3E0
 ```bash
 magnet:?xt=urn:btih:939E344F710CE686E62154408BD2E323AF53B9E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +557,8 @@ magnet:?xt=urn:btih:939E344F710CE686E62154408BD2E323AF53B9E7
 magnet:?xt=urn:btih:3C8387F83F7AF31471FCB1086FF75614CE39282C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +582,8 @@ Maelstrom 44.0.1.3 Beta [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B5566946B07C4A979CDE511CF7B7B089B8FE504C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +612,8 @@ CD1 (01:13:41) (Mixed by G-Wizard):
 magnet:?xt=urn:btih:92C6B89F131188E44E9DB5FF4B0F1586DBD83BEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +640,63 @@ JOE DASSIN - Et si Tu N’Existais pas (Salvatore Cutugno - Vito Pallavicini - P
 ```bash
 magnet:?xt=urn:btih:A9881D8F8681A3A2D75AB8DC3C9D58E306418382
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957167   (327429) от 17.11.2015
+
+Lindsey Stirling - Lindsey Stirling (2012) [AAC|256 кб/с|WEB]<Classical Crossover, Electronic, Instrumental>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Electric Daisy Violin (3:15)
+ 02. Zi-Zi's Journey (3:16)
+ 03. Crystallize (4:18)
+ 04. Song of the Caged Bird (3:05)(   Читать дальше...   )Жанр: Classical Crossover, Electronic, InstrumentalПродолжительность: 00:45:8
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74A31053C8260D49D772D578F7D7BF1DA5D1F6D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957295   (327430) от 17.11.2015
+
+Н.Н. Ясиновский | Железная правда "русского кошмара" [2 книги] (2009, 2011) [PDF]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легенда бодибилдинга, первый российский профессионал Николай Ясиновский выпустил книгу «Железная Правда «русского кошмара». Книга написана потрясающе интересно! Реальные события пережитого просто не могут оставить равнодушным читателя. Эта книга о спорте , политике и интригах, о победах и поражениях. Эта книга о том, как обычный парень из Воркуты стал Профессионалом (   Читать дальше...   )Жанр: бодибилдинг, историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F02AE9196686065BE7088BC7DF2283984590B4C
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

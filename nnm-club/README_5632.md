@@ -22,6 +22,8 @@ VA - Dos Décadas Dance 2 (2002) 5 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-D
 magnet:?xt=urn:btih:419FD849BA0455A4A0A401C8FFAE365CFD369151
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:419FD849BA0455A4A0A401C8FFAE365CFD369151
 magnet:?xt=urn:btih:DC3BAC5682F8693A3632483D65FF3943990B54C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:DC3BAC5682F8693A3632483D65FF3943990B54C7
 ```bash
 magnet:?xt=urn:btih:79A4B282DE8852757ADC8728171A36DEB8D25668
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:79A4B282DE8852757ADC8728171A36DEB8D25668
 magnet:?xt=urn:btih:28AFB4716A6DB608A7A54EA6040A80A539C9441F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ ExamDiff - мощная и легкая в использовании прогр
 ```bash
 magnet:?xt=urn:btih:782B2337A07CF974B194064DA87EA7A5F2A3B0CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ PhotoRoom v4.7.1 Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:97AF4312293976BB9F392FA15835199694EA4239
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:97AF4312293976BB9F392FA15835199694EA4239
 ```bash
 magnet:?xt=urn:btih:F5C7CC54E27CB460FDBA894B83B525C6F3A92B0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ XYplorer - продвинутый файловый менеджер, котор�
 magnet:?xt=urn:btih:B3B436E3A2547FCB03E3B2F11A5DBFFFFAE83BFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Sumatra PDF — мощная, небольшая программа с прос�
 magnet:?xt=urn:btih:75AE182D1B657FBDD79811EDABBA1BB2A4ADDBAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Photo Studio — не просто приложение для редактир�
 magnet:?xt=urn:btih:92DFAD16C6E93D19F15D8F478749CBA6DCCF4B3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:92DFAD16C6E93D19F15D8F478749CBA6DCCF4B3C
 ```bash
 magnet:?xt=urn:btih:D16C2C826BCDCBD73E6BB190244DEDC8D93B9EB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ Savage - Glory Riders (2023) [FLAC 24/44,1|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:F4E39396CE1EE9EA91C71FED79A8A83C650B4824
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ n-Track Studio — кроссплатформенный аудиоредакто
 ```bash
 magnet:?xt=urn:btih:09D261CE5E6BE51B2D73F5845CFA08E33E5E26FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ O&O DiskImage Professional позволяет создавать резервн�
 magnet:?xt=urn:btih:9368A006CC2663374106D432F765C0B7C25FBB98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 ```bash
 magnet:?xt=urn:btih:232D59AE581AE369839C576CB1CE9BD44630311B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:232D59AE581AE369839C576CB1CE9BD44630311B
 magnet:?xt=urn:btih:81B20752CC402916B609CF955D40B5104BFC6B0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:81B20752CC402916B609CF955D40B5104BFC6B0C
 ```bash
 magnet:?xt=urn:btih:E3A418FC554778FD4B669E5F2F81324C7E7F7B99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:E3A418FC554778FD4B669E5F2F81324C7E7F7B99
 magnet:?xt=urn:btih:B8F0E0C4587E952753D1620709AB137A15F70342
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:B8F0E0C4587E952753D1620709AB137A15F70342
 ```bash
 magnet:?xt=urn:btih:9D1D2D485802E39659E7DA5EA479DAD2DC467F0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ magnet:?xt=urn:btih:9D1D2D485802E39659E7DA5EA479DAD2DC467F0F
 magnet:?xt=urn:btih:906870C653E73BFA7D82E61B0C51C2EA8879E822
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ magnet:?xt=urn:btih:906870C653E73BFA7D82E61B0C51C2EA8879E822
 ```bash
 magnet:?xt=urn:btih:6DE6BAB5B4ED6F0A0577C42CD2C61E1D81942A75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +580,8 @@ magnet:?xt=urn:btih:6DE6BAB5B4ED6F0A0577C42CD2C61E1D81942A75
 ```bash
 magnet:?xt=urn:btih:181F173FF4CA53591FA5AF7401D146735B6DF37F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +610,8 @@ Smoke The Light - The Great Never Ending (2023) [MP3|320 Kbps] <Heavy Psychedeli
 magnet:?xt=urn:btih:A3221E793AF51302836A405476BD4E788E8A1FAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ Kardang - Rizky Biznizz (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:B35BC2E8733743B6CD36D1D87F7284EEDFA930AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +665,8 @@ magnet:?xt=urn:btih:B35BC2E8733743B6CD36D1D87F7284EEDFA930AA
 magnet:?xt=urn:btih:A2383A3AB008BFC2621471CF72D046F20F50FDF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ magnet:?xt=urn:btih:A2383A3AB008BFC2621471CF72D046F20F50FDF1
 ```bash
 magnet:?xt=urn:btih:9B2D5D518D6B85C31F71527002CFA7F05C7C71E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

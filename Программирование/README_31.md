@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:10909EA6BA320AEB46D1E7102AE9D20C9CA305AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ aspberry Pi 3 - одна из лучших отправных точек для 
 ```bash
 magnet:?xt=urn:btih:798D5BA67E51DF02C31D27BF416E837420794AE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:798D5BA67E51DF02C31D27BF416E837420794AE3
 magnet:?xt=urn:btih:C1DB586088D8187446B5266BA2EC88DAA95A2EFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ OpenMV - недорогая и расширяемая плата, предназ
 ```bash
 magnet:?xt=urn:btih:E16DA12DFA457AB9E6ED2113532103D857F74AF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:E16DA12DFA457AB9E6ED2113532103D857F74AF5
 ```bash
 magnet:?xt=urn:btih:E13A8377828498D331FFE0D59DF628EF1113B3DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:E13A8377828498D331FFE0D59DF628EF1113B3DF
 magnet:?xt=urn:btih:8DBB313259B20471AC10F813F51D3064CDF03120
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ CSS3 - новейший стандарт веб-разработок, значи
 magnet:?xt=urn:btih:14E71ACA4BB8BDD0C2BD4814C868E6CDE4B9BA6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:14E71ACA4BB8BDD0C2BD4814C868E6CDE4B9BA6D
 magnet:?xt=urn:btih:86260BB5956B9A1C900A5F38D0A34B73A37DDBE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:86260BB5956B9A1C900A5F38D0A34B73A37DDBE0
 ```bash
 magnet:?xt=urn:btih:7DC355455D80F34F62E80BA2DEB3AD46004BBDF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:7DC355455D80F34F62E80BA2DEB3AD46004BBDF7
 magnet:?xt=urn:btih:8A1CB0D5647EAA1E5BB3ED2E3E7359DC1B6E7D61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:8A1CB0D5647EAA1E5BB3ED2E3E7359DC1B6E7D61
 ```bash
 magnet:?xt=urn:btih:5EBA3D914E5F2150B5B5EF50ACB35C36C6F9A91C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Matthijs Hollemans / Мэттис Холлеманс| The iOS Apprentice (5th ed
 magnet:?xt=urn:btih:42663028C35763C4264E33591E0697347647B85E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Java-программистам необходим фреймворк Spring. Э
 ```bash
 magnet:?xt=urn:btih:8020D984E9E87E02B264F23AA64B10606BF07F5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:8020D984E9E87E02B264F23AA64B10606BF07F5F
 magnet:?xt=urn:btih:9A3D7F8A772D114B85D8B7EAF0A22538264AE4C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:9A3D7F8A772D114B85D8B7EAF0A22538264AE4C2
 ```bash
 magnet:?xt=urn:btih:3D74CD19B0DCB59B19C2FAE1AA30846D689512A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:3D74CD19B0DCB59B19C2FAE1AA30846D689512A4
 magnet:?xt=urn:btih:75E32623B5276B9452925CF350C5308D3D9D53CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:75E32623B5276B9452925CF350C5308D3D9D53CB
 magnet:?xt=urn:btih:F8D3752DDBA4EDE6E31F4C0142048454E9476B93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:F8D3752DDBA4EDE6E31F4C0142048454E9476B93
 ```bash
 magnet:?xt=urn:btih:D28540FCAE24D2C1C990C8CE06BF97B23774D7C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +508,8 @@ ASP.NET MVC 4 framework(   Читать дальше...   )Формат: PDF
 magnet:?xt=urn:btih:222FD2D122CE736D33BE8EF812264D9DA7008A7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:222FD2D122CE736D33BE8EF812264D9DA7008A7D
 ```bash
 magnet:?xt=urn:btih:240736556ACE4ACDF23CFFDD26DA6A5D861A8D2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:240736556ACE4ACDF23CFFDD26DA6A5D861A8D2B
 magnet:?xt=urn:btih:2402E85EC47E4438FF6C124073745D33CB8996FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ magnet:?xt=urn:btih:2402E85EC47E4438FF6C124073745D33CB8996FC
 magnet:?xt=urn:btih:047FA4634B4ED01EE1EC9B473A2407EF855DB9E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ magnet:?xt=urn:btih:047FA4634B4ED01EE1EC9B473A2407EF855DB9E0
 ```bash
 magnet:?xt=urn:btih:1BAA977D438525B98AFC60D8524DFACA5A53660F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +640,8 @@ Matt Butcher, Matt Farina / Мэтт Батчер, Мэтт Фэрина  | Go i
 magnet:?xt=urn:btih:56A4736F18FAD61D625E438BE6E7390A58FE7A3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +666,8 @@ Nicholas Zakas / Николас Закас | Understanding ECMASCRIPT 6 / Пон
 magnet:?xt=urn:btih:E4635BA134076E314B150F5D5143A98724D4D986
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ magnet:?xt=urn:btih:E4635BA134076E314B150F5D5143A98724D4D986
 ```bash
 magnet:?xt=urn:btih:979D6621ECB7029CAEDC5C0AD37683365145145D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

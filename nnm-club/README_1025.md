@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:826E9AD9292DA9E5604DCDDC714D8F148A909EDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:E2E4D5EDC8A4BC8F8E17FB8621EEDFCB23FDBFF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Tristania — симфо-готик-метал-группа из Норвеги�
 magnet:?xt=urn:btih:D9FDB3371A7D6D454B1BEB9695414FB66375469D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:D9FDB3371A7D6D454B1BEB9695414FB66375469D
 ```bash
 magnet:?xt=urn:btih:3D20E5438E87E9AC6CD7A7602CF3C45490A6A12F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Amnesia Rebirth (2020) [Ru/Multi] (1.40) Repack Let'sРlay
 magnet:?xt=urn:btih:DB3CA1CE21CABEB9253EEF047F9FD207D7F05866
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:DB3CA1CE21CABEB9253EEF047F9FD207D7F05866
 ```bash
 magnet:?xt=urn:btih:2A8170ACBBD3FA77706A6B470AD8FE357A852A76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:2A8170ACBBD3FA77706A6B470AD8FE357A852A76
 magnet:?xt=urn:btih:E8E2508E914492F0080B6256FAF0A704721EE14D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Figment 2: Creed Valley – это приключенческий экшен, д
 ```bash
 magnet:?xt=urn:btih:1A73C7C96A77B07A3FBE21922ED65030AD01F577
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:1A73C7C96A77B07A3FBE21922ED65030AD01F577
 magnet:?xt=urn:btih:AFCC459D7A419FF44942B3C10FAEC246AF737CEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:AFCC459D7A419FF44942B3C10FAEC246AF737CEF
 magnet:?xt=urn:btih:53EFA2596AE286F3B2B503E1584CFA9C3EADE3F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:828BA836B8BC17919C3D301E609D42411F423A02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ Udemy, Intellezy Trainers | Adobe Premiere Pro Essentials - Beginner (2025) WEB-
 magnet:?xt=urn:btih:F5F2C102E0892C3944AF717EA8F1227A5A5E4CB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ Plants vs. Zombies / Растения против Зомби (2009) [Ru] (1.2.0
 ```bash
 magnet:?xt=urn:btih:3E6CA95221A64505D18D5A7DB828FF011C9D4B24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ Udemy, Cipher Schools | Game Development for Beginners using Unity and C# (2025)
 magnet:?xt=urn:btih:85F7635548CC27E2704E601335AA8FD81CF07404
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (1.02.118358) Repack DjDI [Soundtrac
 ```bash
 magnet:?xt=urn:btih:CFB810B49542A09776A75538C556358AC48226FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:CFB810B49542A09776A75538C556358AC48226FC
 magnet:?xt=urn:btih:D22042D7C35435D3EA1251C7FB9882BA4ABB7108
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ LazyMedia Deluxe это Android TV приложение, которое можн
 magnet:?xt=urn:btih:9AA71F3DFA20C28D4066D7FFF0009AA7062045B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ Udemy, Knowledge Hub | Adobe Illustrator 2025 Top Gear Master Course; Basic To P
 ```bash
 magnet:?xt=urn:btih:914571A04F9A236FDFB70A5F6BE20A0E1BEAEE09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:914571A04F9A236FDFB70A5F6BE20A0E1BEAEE09
 magnet:?xt=urn:btih:A4F9A42545E053EF3EA193EE60B017888453D26D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:A4F9A42545E053EF3EA193EE60B017888453D26D
 ```bash
 magnet:?xt=urn:btih:F58BB2638F9E5951AAA5F6F8CE0A683E7402E1D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:F58BB2638F9E5951AAA5F6F8CE0A683E7402E1D8
 magnet:?xt=urn:btih:4268C79B1541BFFB9ED9D97EE9EFCEDD324CCF86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ Microtopia (2025) [Ru/Multi] (1.0.4) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:1CFB1106088ED40F2634C2A270E7E5FA01D74C8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ Topaz A.I. Gigapixel — это приложение, использующее �
 magnet:?xt=urn:btih:BBA220276EB9639E7DEAC6BF7BF99931F47DEB23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ magnet:?xt=urn:btih:BBA220276EB9639E7DEAC6BF7BF99931F47DEB23
 magnet:?xt=urn:btih:834CE76300666FD57E9DB976B36BDD997C20D9DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ DuckTales: Remastered - это красочный, нарисованный вр
 magnet:?xt=urn:btih:52274D0C4F983252BE89E372D0B4239F7079546F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ magnet:?xt=urn:btih:52274D0C4F983252BE89E372D0B4239F7079546F
 ```bash
 magnet:?xt=urn:btih:F1539FF5441C110CA2935F194147710AC11D38D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

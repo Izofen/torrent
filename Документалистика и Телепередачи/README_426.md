@@ -1,3 +1,29 @@
+###  Публикация: 1041716   (582437) от 09.08.2016
+
+Вести в 20-00. Большие Вести. Россия 1 (09.08.2016) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582437.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вести» — информационная телевизионная программа Всероссийской государственной телерадиокомпании. Выходит в эфир на каналах «Россия-24», «Россия-1», «РТР-Планета» и «РТР-Беларусь». Производятся Дирекцией информационных программ Государственной телекомпании «Россия». Самые последние новости в России и в мире - смотрите в последних выпусках новостей телеканала «Россия».Телекомпания: Россия 1 HDЖанр: ТелепередачаПродолжительность: 00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3641259C43106EB66AF9F3155A107685258B29D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041464   (582526) от 09.08.2016
 
 В теме. Спортивный нацизм (08.08.2016) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:B8F3312A13C85C7F6C8F462167B13852BF7073FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:B8F3312A13C85C7F6C8F462167B13852BF7073FD
 ```bash
 magnet:?xt=urn:btih:F1246E6DA7D1CACFDBF2479FF1E9C300324DD6F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:F1246E6DA7D1CACFDBF2479FF1E9C300324DD6F4
 magnet:?xt=urn:btih:C88AA84F7032D9C1D8E9FF7DECCA5CC3C3C88222
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:C88AA84F7032D9C1D8E9FF7DECCA5CC3C3C88222
 ```bash
 magnet:?xt=urn:btih:3F1A4D2F2452BED157648B305CE9E50C6C945000
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:3F1A4D2F2452BED157648B305CE9E50C6C945000
 magnet:?xt=urn:btih:BCB8203593B32B6D1B52BCE56845C938F149566C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:BCB8203593B32B6D1B52BCE56845C938F149566C
 magnet:?xt=urn:btih:A0DD57E55FD9505250532450DC850E7C6A3AD173
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:A0DD57E55FD9505250532450DC850E7C6A3AD173
 ```bash
 magnet:?xt=urn:btih:093AA805C5BD181F41025BD8958F56A780B293E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:093AA805C5BD181F41025BD8958F56A780B293E2
 magnet:?xt=urn:btih:64FE247F48D56E53D75F76128EC36BA80EE20516
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:64FE247F48D56E53D75F76128EC36BA80EE20516
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:64FE247F48D56E53D75F76128EC36BA80EE20516
 magnet:?xt=urn:btih:4B403C48C6417E03A47A2A463D17B38B29E2FE3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:4B403C48C6417E03A47A2A463D17B38B29E2FE3F
 ```bash
 magnet:?xt=urn:btih:FE001F1F2B0DFD67BE9D0CEB802D01A4D58388FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +338,8 @@ Ocean Dreams: Enjoy the Powerful Beauty of the Sea (2013) DVD9 from BD
 magnet:?xt=urn:btih:9990482DED02B3B6528356A1DEFAA669E01A1DC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:9990482DED02B3B6528356A1DEFAA669E01A1DC2
 magnet:?xt=urn:btih:B62A26E50EF32D4EB55F97EABD71C85404A9CBE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:B62A26E50EF32D4EB55F97EABD71C85404A9CBE3
 ```bash
 magnet:?xt=urn:btih:40DFEE76DC1AC3FC2E2144116EEFF59821AA1A96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +419,8 @@ magnet:?xt=urn:btih:40DFEE76DC1AC3FC2E2144116EEFF59821AA1A96
 magnet:?xt=urn:btih:5A505909B2F674A26A5359B6061FE103D264BBC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +446,8 @@ magnet:?xt=urn:btih:5A505909B2F674A26A5359B6061FE103D264BBC6
 magnet:?xt=urn:btih:F3C277F088CB4F8DD1D44BDC330208EE37072D91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +472,8 @@ magnet:?xt=urn:btih:F3C277F088CB4F8DD1D44BDC330208EE37072D91
 magnet:?xt=urn:btih:35C5680580F19B90FF7774236E0E9231EDABDF2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:35C5680580F19B90FF7774236E0E9231EDABDF2E
 ```bash
 magnet:?xt=urn:btih:86134A9863A8D0266408EA112FBFF23FF7ADEFD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +525,8 @@ magnet:?xt=urn:btih:86134A9863A8D0266408EA112FBFF23FF7ADEFD5
 magnet:?xt=urn:btih:511688EC30A2A661DDF39AFA0D5CDE9EB5B25AE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +552,8 @@ magnet:?xt=urn:btih:511688EC30A2A661DDF39AFA0D5CDE9EB5B25AE2
 magnet:?xt=urn:btih:A171CF82E7AE2B53FBBC72489D8F2BC106970039
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +577,8 @@ magnet:?xt=urn:btih:A171CF82E7AE2B53FBBC72489D8F2BC106970039
 ```bash
 magnet:?xt=urn:btih:31F3ED4B49DE2AEDE8B055E927A643BF0A1A6906
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:31F3ED4B49DE2AEDE8B055E927A643BF0A1A6906
 magnet:?xt=urn:btih:99C65B44C4C2881B4755FC2CF506AF10385BC1D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:99C65B44C4C2881B4755FC2CF506AF10385BC1D6
 ```bash
 magnet:?xt=urn:btih:52F986CF01B9EA70276269ADBDD7EA750CAC779B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +656,8 @@ magnet:?xt=urn:btih:52F986CF01B9EA70276269ADBDD7EA750CAC779B
 magnet:?xt=urn:btih:E476F305CC9FA955B19E1B386D880B2A6A6A46A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,29 +682,7 @@ magnet:?xt=urn:btih:E476F305CC9FA955B19E1B386D880B2A6A6A46A0
 magnet:?xt=urn:btih:C79D446A33A0BBA2E874C97E0078BE6DD9D3D195
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916640   (583960) от 18.07.2015
-
-На юг верхом на мотоциклах / Cycles south (1971) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Решив покончить с однообразной жизнью, трое мужчин седлают мотоциклы и отправляются в путь. Их маршрут пролегает через семь латиноамериканских стран, и на каждом повороте их поджидают новые приключения.Производство: США, DAL ArtsТелекомпания: MGMЖанр: ДокументальныйРежиссер: Дон МаршаллАктеры: Бобби Гарсия, Вон Эверли, Дон МаршаллПеревод: Двуголосый закадровыйПродолжительность: 01:24:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D09CD2F532BFE5E85B033C5D95EEC5F8210FC2D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

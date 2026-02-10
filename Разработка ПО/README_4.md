@@ -19,6 +19,8 @@ LabView 2015 15.0 (x64) [En]
 magnet:?xt=urn:btih:E3700E9F33D051929C4E4CC6D2BD27CBF3BF05A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ LabVIEW является платформой для графического п
 ```bash
 magnet:?xt=urn:btih:154A7FC53CE3E48811097296B89D7B897FC371DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Xilinx Vitis Unified Software Platform 2022.1 [En] (unpacked)
 magnet:?xt=urn:btih:8E0C76E94FEA81E7EB7C776D1620E38321C8F1F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ EhLib 8.0 содержит компоненты и классы для Borland D
 ```bash
 magnet:?xt=urn:btih:11253AF026340A7E11755D2E27A5E156AC01C18C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ DevExpress Universal Complete 17.2.7 Build 20180321 [En]
 magnet:?xt=urn:btih:B139040AAA2507F8DFA498E0D7E9E3608A437CF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Restorator - это флагманский продукт Bome и использ
 ```bash
 magnet:?xt=urn:btih:02B90661E6930A424259ECCA5E4B5BC15434CFD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Qt позволяет разрабатывать приложения при п�
 magnet:?xt=urn:btih:E65157D55F8A5BEA9DC93B896BC375E65FDE541A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Advanced Installer - это мощное и простое в использов
 ```bash
 magnet:?xt=urn:btih:A1B7F02E03168C4B0E19D8049CA4252AAA2CBACA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Microsoft Visual C++ Redistributable Package – это распространя
 magnet:?xt=urn:btih:D6DF1DE2D4869854DEACFDDAD2AEBF899E924394
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Atom - это программа для редактирования текст�
 ```bash
 magnet:?xt=urn:btih:39F4ACBD73AC53AAA8C12D9AD7094E271989E684
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Advanced Installer - это мощное и простое в использов
 magnet:?xt=urn:btih:2715FD2ECD8874C1A7147A4B2B8C58544E8CFF87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ AutoHotkey — бесплатная программа с открытым ис�
 ```bash
 magnet:?xt=urn:btih:EAE8C7B6378A645B8A8C09B4AB0F0A6093FBFD5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Themida - это передовая система защиты программ
 magnet:?xt=urn:btih:E0E89DA4B667154879C510ECCAC6A1B551A75467
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ AutoHotkey — бесплатная программа с открытым ис�
 ```bash
 magnet:?xt=urn:btih:01BFFF904B237D32FBEAB085EC1C2F90B562624C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Radialix Localizer - это программа для перевода прил�
 magnet:?xt=urn:btih:0154DAF3D224F592010595E94DBA3DCA2013F7E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ SDL Passolo Collaboration 2016 16.0.391.0 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:E55AAA1458AEE9E10510F0E56E272C50D938225A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ PascalABC.NET – это язык Delphi (Object Pascal) для платформ
 magnet:?xt=urn:btih:6F2A23D8E235FA9968013C76CD723D70F248A690
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Visual Studio 2019 - полнофункциональная и расширяе�
 ```bash
 magnet:?xt=urn:btih:5F42B40EB3C6EE561187E319C1DCDA547E2BD19D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ Atmel Studio 7 - полнофункциональная, бесплатная и
 magnet:?xt=urn:btih:92E37DCF9EF92526DF7E82044192092F873B59DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ JetBrains Intellij IDEA 2018.3.2 [En]
 ```bash
 magnet:?xt=urn:btih:47BC0F2B0BCDAB26BEC12382E36697360C3CB528
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ PGI Visual Fortran - компилятор Fortran и инструменталь�
 magnet:?xt=urn:btih:33941B2E7E7B6928EC18D11E91DF8DE3B25D1301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ Visual Studio Community 2019 - Бесплатная, полнофункцион�
 ```bash
 magnet:?xt=urn:btih:3DAC8D15E2D2652C8AFA27AEFE98842AE92561C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ Visual Assist позволяет увеличить возможности ре�
 magnet:?xt=urn:btih:D1C91430BD4067FF48430844ADDA086BE511C1B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ Code::Blocks — свободная кроссплатформенная сре�
 ```bash
 magnet:?xt=urn:btih:BB38D42D290BB10F1488DBE6F34A1E41D04F15D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ Code Composer Studio 7.0.0.00043 [En]
 magnet:?xt=urn:btih:0A3196EEA44126401280958E589DC893080BF098
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ DirectX SDK (DirectX Software Development Kit) является набором �
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Toccata And Fugue, BWV 565
 magnet:?xt=urn:btih:91C27F9AAEFD528E94A9AC658FC63FA2C11EE001
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Symphony no. 5 in B-flat major, D 485:(   Читать дальше...   )Жан
 ```bash
 magnet:?xt=urn:btih:354208CB9BFB3CA36947D1EC36D9EB85EC6B3DD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Classical Music: Piano (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 magnet:?xt=urn:btih:968CA961C75393D4B71F8A484F4DEB95BC3A0739
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Hélène Grimaud - Hélène Grimaud plays Rachmaninoff and Shostakovich (2023) [
 ```bash
 magnet:?xt=urn:btih:3DDDDC6461395FB3D215BF544F3F26917BE236F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Handel's Young Messiah (1990) [FLAC|Lossless|tracks + .cue] <Classical Cros
 magnet:?xt=urn:btih:DAFA919DCA435502C3AD643E88FE9503E245532A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Megumi Yoshida, Bach - Organ Works Vol. 1. (2016) [OGG Vorbis|480 Kbps] <Classic
 ```bash
 magnet:?xt=urn:btih:5A9723A91285C13EE7F0C6BE80B62B827E44F118
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

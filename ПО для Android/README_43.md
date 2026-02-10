@@ -19,6 +19,8 @@ Reface v4.9.0 Mod by Mixroot [Multi]
 magnet:?xt=urn:btih:12F7117042A5121868F6B4FE0B3A2445901490B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ GPS АнтиРадар v43.0 Mod by 0x7d [Ru]
 ```bash
 magnet:?xt=urn:btih:3D7EE92C5CE24782FAC395C05E8C3B21A3FB1009
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Outdooractive v3.16.6 Mod by Timozhai [Ru/Multi]
 magnet:?xt=urn:btih:E1FFCAA48C504BE2800D24FBA40DECB5182C22BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Bazaart: Photo Editor & Graphic Design v2.5.2 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:4F59D6BF797AC215DA852A19F9B347353B2DB48C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Photo Studio — не просто приложение для редактир�
 ```bash
 magnet:?xt=urn:btih:BD82791CB8BFA3F0804256C936372CA0772CCC24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:BD82791CB8BFA3F0804256C936372CA0772CCC24
 magnet:?xt=urn:btih:ADE704D497975898CF61C40BC7171717635222BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Phases of the Moon Pro / Фазы Луны v7.2.1 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3060BDFB14D6A4ED3EC145A7FDD01048E14DC11A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Fishing Knots Pro / Рыбацкие узлы Pro v8.5.32 Paid [Ru/Multi]
 magnet:?xt=urn:btih:E47344FC4E299B088A55C84E3815716A633F2076
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Bass Guitar Tutor Pro - приложение, с помощью которого
 magnet:?xt=urn:btih:C8A2238738CF6F6462ADA25E0B6ED12386255A98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ PREQUEL — это фоторедактор с огромным количест
 ```bash
 magnet:?xt=urn:btih:13E76E3FA1A54D75600C4C1D7ED5986661B92491
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Piano Ear Training Pro - тренажер для слуха.
 magnet:?xt=urn:btih:8D837D44839402EC391ED6B3A04665152A6B43AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ PicWish — фоторедактор с искусственным (   Чита
 magnet:?xt=urn:btih:A2E9BFBF965CECDA80F3E8D00867932BC9578441
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ PdfX - это новое приложение, которое позволяет
 ```bash
 magnet:?xt=urn:btih:5B09C69897F7B7744843CA6288D15ECEDC4ECDB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ PdfX - это новое приложение, которое позволяет
 magnet:?xt=urn:btih:63F15BFEB7F22D8CBABA3C0C2D1B05A433EC15DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Stickman: рисовать мультики, создать мультик. Ка
 ```bash
 magnet:?xt=urn:btih:84E7636589CD8CCE9C28A3D088608D1733A951A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:84E7636589CD8CCE9C28A3D088608D1733A951A8
 magnet:?xt=urn:btih:784BE6C9702317CD62711242861EFE3E2CACAE27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ DailyArt - Daily Dose of Art v3.2.3 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B0DBE6DC39143AD78950CA4D357F753B5B413B60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Lightroom - в приложении для мобильных устройств
 magnet:?xt=urn:btih:04ACB7F3ED403405BCFE7A852C3830F2C5F0EB83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Lightroom - в приложении для мобильных устройств
 ```bash
 magnet:?xt=urn:btih:4B93132272F9C60E5415DE0BD2EE44A808931CC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ Lightroom - в приложении для мобильных устройств
 magnet:?xt=urn:btih:FDF41C9F2679A96C6972E4052C7A4323ED4EFE6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Photo Studio PRO - фоторедактор, что понравится все�
 ```bash
 magnet:?xt=urn:btih:3DC156E6887A087643E6413C23563349143A138A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ CalyxVPN 1.3.0RC1 [Ru]
 magnet:?xt=urn:btih:9B3425743321DAC3E604DD1BA16C1D250C8FCEC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ OfficeSuite Pro + PDF - это полнофункциональный офисн
 ```bash
 magnet:?xt=urn:btih:8F3B31EE7BAACE13C840D78078989ECD057F122A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ VivaVideo - это простой в использовании видеоред
 magnet:?xt=urn:btih:0ABA3B9AFF58C5EB327EAE4220CA260052304501
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ DailyRoads Voyager v8.1.1 (54) Mod by Eco19 [Ru/Multi]
 magnet:?xt=urn:btih:EE31C17C0EEFB04F8C97264CE19E6160DDB93110
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ AirBrush: ИИ Фоторедактор v6.3.3 Mod by PieMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:84CBC299C098AEE87C1D2A1058E0A1674A82FB7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

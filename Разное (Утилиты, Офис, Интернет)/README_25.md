@@ -19,6 +19,8 @@ Wise Hotkey программа от известного разработчик�
 magnet:?xt=urn:btih:5C2EDDC12B5EEC3E61BC0CC30ED06DEDA9ADE7D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Folder Marker – это мощный помощник, специально р�
 ```bash
 magnet:?xt=urn:btih:DE72F515BF321D6C5362FC6EB8543359C987114B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ GPS Track Editor — графическое приложение для анал
 magnet:?xt=urn:btih:83FB278095979F78A69E52F1C295D578F3205FDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ GPS Track Editor — графическое приложение для анал
 ```bash
 magnet:?xt=urn:btih:F115CD8EF503F98707940841FC2668ECF399AE14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ MiniBin 6.6.0.0 + Themes [En]
 magnet:?xt=urn:btih:4555A6B55FD937094652DF6F18FC13625818E1BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ TrayTeacher 1.0 + Portable [Ru/En]
 ```bash
 magnet:?xt=urn:btih:BD3DE83FD49F9BCE8D286D6CFA4E0298063AD101
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ IconTOY - небольшая вспомогательная утилита дл�
 magnet:?xt=urn:btih:DC1E1D60557EA1BBC20A503F0EA5C3A64460F542
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ CORSAIR iCUE - фирменное программное обеспечение,
 ```bash
 magnet:?xt=urn:btih:158F78A9761579F7FC5312045D0419EF3722A3B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Help & Manual позволяет создавать файлы и докумен
 magnet:?xt=urn:btih:D3F508F280D73F91216AADF26E82E906FBBFF7B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Recover Keys - это приложение для Windows, созданное д
 ```bash
 magnet:?xt=urn:btih:5B2898BC5D0704C3D8DBC823AA8A9383769509E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ KeePassX — свободная программа для хранения па�
 magnet:?xt=urn:btih:ED1D395D58B8C082D7869E4F388E4E47D975087C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Sothink SWF Decompiler - программа для конвертировани�
 ```bash
 magnet:?xt=urn:btih:43FE543A2CD6BCCE73AD02F3DC483D1592FEB8EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ USBLogView — это небольшая утилита, которая рабо
 magnet:?xt=urn:btih:4FF0C7478AFA8D0B7A6471EBC9B62C4E6CA6654A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ ActiveBarcode является мощным эффективным програ�
 ```bash
 magnet:?xt=urn:btih:D43DED5C9383968B6AE17A932500DED32BD55713
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Klavik - это простая программа-клавиатурный шп�
 magnet:?xt=urn:btih:28127877DE160A1920F069A4739AD9EB42FACF22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Dr. Folder 2.3.0.1 RePack (& Portable) by Trovel (with & without Bonus Icons Pac
 ```bash
 magnet:?xt=urn:btih:EB11D20A7BC2F9E29B5F86FC3B86D615D5CCB639
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ iExplorer позволяет легко передавать музыку, фи�
 magnet:?xt=urn:btih:5ED776CDDD8ADAACF52E851DE0F3016A404FFAA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Hasher - это программа предназначенная для выч�
 ```bash
 magnet:?xt=urn:btih:0A97E142FCAE4BAEB4966856A6CC1E48BDD9FDFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ Atomic Alarm Clock - данная программа преобразит ваш
 magnet:?xt=urn:btih:E1690DD498925BC6DBB0D5703D8F3B5791FB39D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ VueMinder - программа, которая поможет системати
 ```bash
 magnet:?xt=urn:btih:A294496A7E1E43D12B23A4AD857E4385F14D9F1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Microsoft Telemetry Tools Bundle - специальный пакет для бл
 magnet:?xt=urn:btih:761D28490FF2564EC86298860A54AC97090AFBDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Product Key Explorer - программа позволяет расшифров�
 ```bash
 magnet:?xt=urn:btih:9998AAB7485610BD2E74390AC87D25BB02D7999E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Lim Screenshot 1.4 [Ru/En]
 magnet:?xt=urn:btih:E33C4F6A5E05E5A7DD0A470A8EF9CC7E183C20C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Password Generator - программа, не требующая установ�
 ```bash
 magnet:?xt=urn:btih:2F957D3A33A2EC53042CD040C68A6F5C6A2942C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Drowssap - простое приложение, разработанное дл�
 magnet:?xt=urn:btih:59FED38CD9DC60B494211087E198B99790A208D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ TimePC 1.7 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:2F1D5C39CBD19641F921AFC6EE1685EA158F2EB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

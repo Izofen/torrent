@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:80974AADD9374623D7F14329C81A0AAF38E9B061
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Venom - Canadian Assault (2024) [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, Heavy Met
 ```bash
 magnet:?xt=urn:btih:560F8AEFFD9525E242E02E4CD5377293F846A802
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - Redux Selection, Vol. 1 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Tra
 magnet:?xt=urn:btih:E8E81F3B1271C9AE014072666F59636464487D9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ VA - Ablazing Winter Sessions 2025 (2025) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:5EE5292DA8C718CB110D2B80E1D2D5F88D22C55D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:5EE5292DA8C718CB110D2B80E1D2D5F88D22C55D
 ```bash
 magnet:?xt=urn:btih:78A7848B21CAEED9ADEC51965ED9C638BFDE43EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:78A7848B21CAEED9ADEC51965ED9C638BFDE43EB
 magnet:?xt=urn:btih:9D79F6653E7A864D57E2029146C2AE294E2403CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:9D79F6653E7A864D57E2029146C2AE294E2403CC
 ```bash
 magnet:?xt=urn:btih:731DEF1D2A9D8B6CB3FB82200FD957BE28FA76B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +215,8 @@ magnet:?xt=urn:btih:731DEF1D2A9D8B6CB3FB82200FD957BE28FA76B2
 magnet:?xt=urn:btih:AAC88CA316C59A000B9EBA6390C1BC152FCF170C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:AAC88CA316C59A000B9EBA6390C1BC152FCF170C
 ```bash
 magnet:?xt=urn:btih:99D1E694999A0707AD0D8975C85967B9777E3F0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:99D1E694999A0707AD0D8975C85967B9777E3F0D
 magnet:?xt=urn:btih:A60C21D3425E4A8419AC06FB1EF56CA05F434A7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:A60C21D3425E4A8419AC06FB1EF56CA05F434A7F
 ```bash
 magnet:?xt=urn:btih:70A7F00B4AAE29B26C24DE20F54F7C6430C18781
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:70A7F00B4AAE29B26C24DE20F54F7C6430C18781
 magnet:?xt=urn:btih:B1461C535545C5BDC1DDE9FAD472406403AFE230
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:B1461C535545C5BDC1DDE9FAD472406403AFE230
 ```bash
 magnet:?xt=urn:btih:56F8B9B7910BDD2E8183E6F949323F8A65A9FC1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ VKMusic 4.29.1 [Русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ VKMusic 4.29.1 [Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ VKMusic 4.29.1 [Русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ VKMusic 4.29.1 [Русский]
 ```bash
 magnet:?xt=urn:btih:69A0613892A5379E390807D716E173D779319902
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:69A0613892A5379E390807D716E173D779319902
 magnet:?xt=urn:btih:E2EE71978214C9330CAA193BB2AE9CEF96040C19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ XXL – информационно-развлекательный журнал �
 ```bash
 magnet:?xt=urn:btih:1F5C3B119EFB9617A66B481415CF4B8DC46CB0C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:1F5C3B119EFB9617A66B481415CF4B8DC46CB0C9
 magnet:?xt=urn:btih:BA4B170D68292304BE51ADFC37E1615C205C82E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:BA4B170D68292304BE51ADFC37E1615C205C82E1
 ```bash
 magnet:?xt=urn:btih:9417285A9D13D90EAE98772A8B5B0053B1F84BC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +587,8 @@ Ray Charles - Singular Genius: The Complete ABC Singles (2011) 5CD [MP3|320 kbps
 magnet:?xt=urn:btih:58C0765B3098ED89444A9E8CD2167C40CE475994
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ magnet:?xt=urn:btih:58C0765B3098ED89444A9E8CD2167C40CE475994
 ```bash
 magnet:?xt=urn:btih:7359C3B55B760218F1FCA6D13DF2829704FAA326
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +639,8 @@ magnet:?xt=urn:btih:7359C3B55B760218F1FCA6D13DF2829704FAA326
 ```bash
 magnet:?xt=urn:btih:9BCF4CF1813291DC210F8D666A1EE69C998C0137
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +669,8 @@ magnet:?xt=urn:btih:9BCF4CF1813291DC210F8D666A1EE69C998C0137
 magnet:?xt=urn:btih:D4A7E96B90A9A9C64882E2B118623805A7BFF58F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ Libera - The Christmas Album (2011) [MP3|320 kbps]<Детские песни, Х
 ```bash
 magnet:?xt=urn:btih:7312FC8F02A2BDFF887302AF6500BA681E2E8181
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

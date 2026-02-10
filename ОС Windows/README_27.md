@@ -1,3 +1,30 @@
+###  Публикация: 1403451   (690164) от 20.08.2020
+
+Microsoft Windows 10.0.17763.1397 Version 1809 (Updated Aug 2020) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.1397.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4592302316EBCEBDF41AF2A3CECDE9A54EF4D722
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403455   (690321) от 20.08.2020
 
 Microsoft Windows 10.0.18363.1016 Version 1909 (Updated Aug 2020) - Оригинальные образы от Microsoft MSDN [En]
@@ -19,6 +46,8 @@ Microsoft Windows 10.0.18363.1016 Version 1909 (Updated Aug 2020) - Оригин
 ```bash
 magnet:?xt=urn:btih:E8E907490163E649B3DE166F048353EC7E8BC7F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +73,8 @@ Microsoft Windows 10.0.18362.1016 Version 1903 (Updated Aug 2020) - Оригин
 ```bash
 magnet:?xt=urn:btih:6396EF86F1ADF139A33B143216DC280E25E0CD54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +103,8 @@ Recovery USB-flash for Asus T100TAL / Windows 8.1 (х86) [Ru]
 magnet:?xt=urn:btih:F0730E29EF0FD56FA10CB234D515FDA1110F5EC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +128,8 @@ Windows 3.x — общее название семейства операцио�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +155,8 @@ Windows 10 — операционная система для персональ
 magnet:?xt=urn:btih:6435947059D59AE7B2C384E4FD278CA89C815295
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +180,8 @@ Windows 10 — операционная система для персональ
 ```bash
 magnet:?xt=urn:btih:ECFA443431DB64659454BD678FC4E447E736CC2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +208,8 @@ Business Edition и Consumer Edition.Язык интерфейса: Русски
 magnet:?xt=urn:btih:3F7E2B14C94E6BA8F14EDEFA439365472D47864E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +233,8 @@ Windows 11 - это серия операционных систем, разра
 ```bash
 magnet:?xt=urn:btih:6464D6B2BE23117FB486349B6BC72827E4B489AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +260,8 @@ Windows 11 - это серия операционных систем, разра
 magnet:?xt=urn:btih:ADF8390C528BD2CD7ECE3D6DB139A262888ECCAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +286,8 @@ Windows Server 2022 впервые обеспечивает расширенну
 magnet:?xt=urn:btih:0EB5C26B452A3DE8CE8F85506AF63B277F086F24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +311,8 @@ Windows Server SAC - канал Semi-Annual Channel идеально подхо�
 ```bash
 magnet:?xt=urn:btih:7973A69235FCCA8377BFD1238E7A6FC4B770630E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +341,8 @@ Windows 10 May 2021 Update (под кодовым названием "21H1") я�
 magnet:?xt=urn:btih:64BF94E8BC09EA5E404ECB84AF52D68098B6CB4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +369,8 @@ Windows 10 October 2020 Update (под кодовым названием "20H2")
 ```bash
 magnet:?xt=urn:btih:0C8958FBBCCA8E8EABF7C17869839520118C2A20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +399,8 @@ Windows 10 May 2021 Update (под кодовым названием "21H1") я�
 magnet:?xt=urn:btih:59888FAE259522D56BF045C07F764355F0FC8680
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +424,8 @@ Microsoft Windows 10 Home Single Language 10.0.10586 Version 1511 (Updated Apr 2
 ```bash
 magnet:?xt=urn:btih:97209959B6721C3E7D5B5F00A60CA3DDA7AA7F68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +452,8 @@ Microsoft Windows 10.0.17763.316 Version 1809 ( February 2019 Update) - Ориг
 magnet:?xt=urn:btih:084A363BF05BB903F598A2AD022C43300FA8E647
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +477,8 @@ magnet:?xt=urn:btih:084A363BF05BB903F598A2AD022C43300FA8E647
 ```bash
 magnet:?xt=urn:btih:4A1631A0F79A571FCE761557AA12090E7B3FF1E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +505,8 @@ Microsoft Windows 10.0.19041.388 Version 2004 (Updated July 2020) - Оригин
 magnet:?xt=urn:btih:F0FF266F6C587F5E74BAFF3229FA932192380C1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +530,8 @@ Windows Server SAC - канал Semi-Annual Channel идеально подхо�
 ```bash
 magnet:?xt=urn:btih:EA00C64BB36B7D5515BF43AD1358FE78C90F3FB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +558,8 @@ Microsoft Windows 10.0.17763.1339 Version 1809 (Updated July 2020) - Ориги�
 magnet:?xt=urn:btih:D1F102ED3911728319BD67C3EB46AEC297B667C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +584,8 @@ Microsoft Windows 10.0.18362.959 Version 1903 (Updated July 2020) - Оригин
 ```bash
 magnet:?xt=urn:btih:EC9FB246EB6764EB25BC4EF24794ADCB1FA0B8FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +612,8 @@ Microsoft Windows 10.0.18363.959 Version 1909 (Updated July 2020) - Оригин
 magnet:?xt=urn:btih:87C3480EC1391ADE57FD0B44C5A4D90F6057E6D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +638,8 @@ Microsoft Windows 10.0.17763.1339 Version 1809 (Updated July 2020) - Ориги�
 ```bash
 magnet:?xt=urn:btih:103A4206AE6E2293C11AF967073F068175D5F8A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +666,8 @@ Microsoft Windows 10.0.18362.959 Version 1903 (Updated July 2020) - Оригин
 magnet:?xt=urn:btih:929011932CF785B41985BA66F9CAF5E4656D3760
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,29 +692,7 @@ Windows 10 — операционная система для персональ
 magnet:?xt=urn:btih:AB028B436C065F0E226C3711D9EF0EC6F8FFAA1A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020697   (741486) от 28.05.2016
-
-Microsoft Windows 10 (Education / Pro) 10.0.10586 Version 1511 (Updated Apr 2016) - Оригинальные образы от Microsoft VLSC [Ru]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая версия популярной операционной системы от компании Microsoft получила название Windows 10, хотя предыдущий крупный релиз шел под названием Windows 8. Переход сразу к Windows 10 отражает желание компании дистанцироваться от не очень популярной предыдущей версии. Именно поэтому, как сообщается, была пропущена девятая версия: переход от восьмой сразу к десятой (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ADA6AE54E49574FF976D97302EC4D96BA9B9409
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

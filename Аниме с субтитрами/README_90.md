@@ -1,3 +1,31 @@
+###  Публикация: 1210877   (778094) от 05.03.2018
+
+Little Witch Academia (2017) | Академия ведьмочек [2017, TV, 25] BDrip 1080p 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778094.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Сделать хотел грозу, а получил козу! Розовую козу с желтою полосой..."© Примерно так начинается история главной героини Кагари Ацуко в академии ведьмочек Луна Нова.
+
+С детства Акко мечтала стать как её кумир - звезда магического шоу Шайни Чариот, потому поступает учиться в академию ведьм Луна Нова. Но всё оказалось не так просто - кумира в академии не (   Читать дальше...   )Жанр: приключения, фэнтези, комедияРежиссер: Ёсинари Ё / Yoshinari You / 吉成曜Перевод: Schum / Tassadar / JarlyЯзык озвучки: ЯпонскийПродолжительность: 25 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE2A5969FBD98450AD07652D7874F8165E9E699F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210876   (778103) от 05.03.2018
 
 Hibike! Euphonium 2 | Sound! Euphonium 2 | Играй, эуфониум! [ТВ-2] [2016, TV, 13 + 7SP] BDrip 1080p 10bit raw
@@ -18,6 +46,8 @@ Hibike! Euphonium 2 | Sound! Euphonium 2 | Играй, эуфониум! [ТВ-2
 ```bash
 magnet:?xt=urn:btih:890BDC47B7DDB734FF7193F54F49DE8D5D1553AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +73,8 @@ Yuuri!!! on Ice | Юри на льду [2016, TV, 12] BDrip 1080p 10bit raw
 magnet:?xt=urn:btih:0261901EA7BD85EE77D35AD6219E2A58D3C6973C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +98,8 @@ Taishou Mebiusline: Chicchai-san | Кроха Тайсё [2017, TV, 12+SP] WEBRi
 ```bash
 magnet:?xt=urn:btih:A54824AF09D5AC776D736828D74AB9F3CD8D5BD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +126,8 @@ No Game No Life Zero | Нет игры - нет жизни (фильм) [2017, M
 magnet:?xt=urn:btih:2F4581D88B5B53A38E341A9D453640F68A6CA76F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +151,8 @@ Gin no Guardian II | The Silver Guardian 2 | Серебряный страж [Т
 ```bash
 magnet:?xt=urn:btih:1690C6D768897E526D04106F4F17FF7338440666
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +178,8 @@ DEVILMAN crybaby | Devilman: Crybaby | Человек-дьявол: Плакса
 magnet:?xt=urn:btih:CAABB0983DFA9DCC838324345A7108D0F3694255
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +203,8 @@ Tamayura: Sotsugyou Shashin / Тамаюра (фильм) [2015, Movie, 4 из 4
 ```bash
 magnet:?xt=urn:btih:CB7203E0A8E74A943F1246D1205F92F1D699AF44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +231,8 @@ Cardcaptor Sakura: Clear Card Hen - Prologue Sakura to Futatsu no Kuma | Сак�
 magnet:?xt=urn:btih:D9217261EA07384F5E8DD3152F745040C45DE027
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +256,8 @@ Hirune-hime: Shiranai Watashi no Monogatari | Napping Princess | Спящая п
 ```bash
 magnet:?xt=urn:btih:CC1B4BF831AACCCC97262F393E52A69CFE656A96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +283,8 @@ Yoru wa Mijikashi Aruke yo Otome | The Night Is Short, Walk on Girl | Ночь �
 magnet:?xt=urn:btih:42B95092D0F70A21040712EA5180B5E9E58A72A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +308,8 @@ Higashi no Eden Gekijoban I: The King of Eden / Eden of The East the Movie I: Th
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +335,8 @@ Sakura Wars the Animation | Shin Sakura Taisen the Animation | Сакура: Н�
 magnet:?xt=urn:btih:3F4023526191BF48163D1D349E0B98CD84E22080
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +360,8 @@ Sakura Quest | Квест Сакуры [2017, TV, 25] WEBRip 720p raw
 ```bash
 magnet:?xt=urn:btih:9E7D6F3D85452724DAAA8347E807B3D65F52B41E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +387,8 @@ Mayonaka no Occult Koumuin | Midnight Occult Civil Servants | Оккультны
 magnet:?xt=urn:btih:DA54EA7B01493E6E7EDA31A8FBA0EE47D6E7EA1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +412,8 @@ Touken Ranbu: Hanamaru | Дикая пляска мечей: Ханамару [2
 ```bash
 magnet:?xt=urn:btih:A8BFA87B89F03E18DE7FBB1452AFCCC50D82609E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +439,8 @@ Mirai Keisatsu Urashiman | Future Police Urashiman | Урасиман: Поли�
 magnet:?xt=urn:btih:81C5F0A74DC7B0EBD50E0BBE89C14DE8B897F913
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +464,8 @@ Arslan Senki: Fuujin Ranbu / The Heroic Legend of Arslan: Dust Storm Dance / С�
 ```bash
 magnet:?xt=urn:btih:20882F708B86D5DABE69E8045BAFFE51DDD4E91F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +491,8 @@ Katsugeki: Touken Ranbu | Дикая пляска мечей: Кацугеки [
 magnet:?xt=urn:btih:AD3FD3AEBD32D605B5E87E13B428E30E42FF0E99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +516,8 @@ Dies Irae | Судный день [2017, TV + Web, 18 эп.] BDRip 1080p raw
 ```bash
 magnet:?xt=urn:btih:E890A4FE9796EAB24533FBC2CE43B0F7B10A006F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +543,8 @@ Koi wa Ameagari no You ni | After the Rain | Любовь похожа на пр
 magnet:?xt=urn:btih:91BF3C455099D6F2E78B669665A6DAC1E6FCE8EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +568,8 @@ Senryuu Shoujo | Senryu Girl | Девушка-сэнрю [2019, TV, 12 эп.] BD
 ```bash
 magnet:?xt=urn:btih:20B2E1AFA26D0797CED9F2366C51A15414C13D80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +595,8 @@ Inuyashiki | Inuyashiki Last Hero | Инуясики [2017, TV, 11 из 11] BDRi
 magnet:?xt=urn:btih:BEA75AED99D1EDE2241CDA4DAF96E588D20994E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +620,8 @@ Inukami! The Movie: Tokumei Reiteki Sousakan Karina Shirou! | Инуками! [2
 ```bash
 magnet:?xt=urn:btih:54CF320276CB8CCB3A2C99A4331B2AA8C87E8324
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +648,8 @@ Inukami! | Инуками! [2006, TV, 26 из 26] BDRip 1080p raw
 magnet:?xt=urn:btih:AEB262DF8AA479A7862E3AFD15FEC797322A879A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,29 +674,7 @@ Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e | Classroom of the Elite | До�
 magnet:?xt=urn:btih:062FEC453DDC4BA419092173CCD840B1238A697A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124179   (785906) от 10.04.2017
-
-Shamanic Princess / Принцесса-шаман [1996, OVA, 6 ep.] DVDRip Hi10p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит параллельном «мире хранителей», которым правит всемирный хранитель Трон Йорда. Обитатели мира владеют магической силой разного уровня. С помощью магии они могут менять свою форму, уничтожать или создавать вещи, останавливать время или призывать разных существ. Источником магической силы является волшебная картина Трона Йорда, которая находится (   Читать дальше...   )Жанр: приключения, фэнтези, романтикаРежиссер: Хонго Мицуру / Hongo MitsuruПеревод: WitwoodЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: (6 эп.), 29 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C5983DBD3A8DA9D17DC8026EE9F86C4F9163ADA
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

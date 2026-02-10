@@ -1,3 +1,29 @@
+###  Публикация: 524919   (611061) от 19.07.2012
+
+Мастер путешествий (Лучшие путешествия) [Сезон 1: 13 из 13] [Сезон 2: 13 из 13] [Сезон 4: 1-4 из 13] [Сезон 5: 13 из 14] / SmartTravels. Europe with Rudy Maxa (2002-2010) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_611061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеопутеводитель «Smart travels» предлагает Вам совершить путешествия по самым красивым городам и странам, по самым живописным уголкам нашей планеты. Известный телеведущий, писатель и путешественник Руди Макса научит Вас, как стать «умным туристом». В каждой стране и в каждом городе он покажет Вам те места, которые следует посетить в первую очередь. И объяснит, как получать удовольствие от каждой минуты Вашего круиза.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 43 x ~ 00:26:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:971A709E9F7BC3CC62F1F7465C704DE6CCCB03AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1147148   (611215) от 01.07.2017
 
 Территория заблуждений с Игорем Прокопенко (2017.07.01) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:FB4854E8BA09BB1F865322A73777D9629164A865
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:FB4854E8BA09BB1F865322A73777D9629164A865
 magnet:?xt=urn:btih:2597640A1E0C7311E099950A84CF5A96EEC73DFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ BBC: Мир природы. Смертоносные змеи Индии / The N
 ```bash
 magnet:?xt=urn:btih:F40247B31706A404126AC2B5286829537CF8A1C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:F40247B31706A404126AC2B5286829537CF8A1C7
 magnet:?xt=urn:btih:C1CC5F9E770152C2260CA8451AF5AEB1A082C3A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:C1CC5F9E770152C2260CA8451AF5AEB1A082C3A6
 ```bash
 magnet:?xt=urn:btih:F748B1F6486A80525300D0EF54566C53AAF5F5A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:F748B1F6486A80525300D0EF54566C53AAF5F5A1
 magnet:?xt=urn:btih:1C34F3887B6A6CD9C3439FB39017C3BDF46402EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:1C34F3887B6A6CD9C3439FB39017C3BDF46402EF
 ```bash
 magnet:?xt=urn:btih:3701A3E4DF28CB6C837165CC770F6AEB9151F25B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:3701A3E4DF28CB6C837165CC770F6AEB9151F25B
 magnet:?xt=urn:btih:24FA4CDB624765FCB5140223F1147E2B4A386FF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:24FA4CDB624765FCB5140223F1147E2B4A386FF7
 ```bash
 magnet:?xt=urn:btih:7EEADD23FEF76BCAA7100FAC878E011211B22EEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:7EEADD23FEF76BCAA7100FAC878E011211B22EEE
 magnet:?xt=urn:btih:7891FFCDF9CD91A1B6D1F2AC54A7BA5D7FC96B0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:7891FFCDF9CD91A1B6D1F2AC54A7BA5D7FC96B0A
 ```bash
 magnet:?xt=urn:btih:98D633BCC9CFEEB74F0AF3A4681CE789BF243692
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:98D633BCC9CFEEB74F0AF3A4681CE789BF243692
 magnet:?xt=urn:btih:64E6D904C3805D2CEC03C4E9CC58F18DB6E0CEDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +356,8 @@ magnet:?xt=urn:btih:64E6D904C3805D2CEC03C4E9CC58F18DB6E0CEDD
 ```bash
 magnet:?xt=urn:btih:DCDEBDBCBF95E334E27A5C9376A10B5ABA35AEC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +383,8 @@ U2: С небес на Землю / From The Sky Down (2011) HDTV [H.264/1080i]
 magnet:?xt=urn:btih:F64BDF53296E08AE5438D6FF3B464782F0453533
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +409,8 @@ magnet:?xt=urn:btih:F64BDF53296E08AE5438D6FF3B464782F0453533
 magnet:?xt=urn:btih:16C0E97B0B4E3DCBDAA9D9151B9A5F12C739DB97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +434,8 @@ magnet:?xt=urn:btih:16C0E97B0B4E3DCBDAA9D9151B9A5F12C739DB97
 ```bash
 magnet:?xt=urn:btih:4D6785D00A404B5DD2710F115BB2BE56EAFD4F90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:4D6785D00A404B5DD2710F115BB2BE56EAFD4F90
 magnet:?xt=urn:btih:6BC5DFF4A8E9B1E9F3D9772BBC21CB17BF6DB3C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +487,8 @@ magnet:?xt=urn:btih:6BC5DFF4A8E9B1E9F3D9772BBC21CB17BF6DB3C7
 ```bash
 magnet:?xt=urn:btih:50206BBE8020BE82A89B7B5904D2B5479C42B234
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +516,8 @@ Mind Field - американский веб-сериал, созданный и
 magnet:?xt=urn:btih:90AFC25FF198CE014A937F526017AE6EB92635EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:90AFC25FF198CE014A937F526017AE6EB92635EE
 magnet:?xt=urn:btih:9650920EC637B4E6FEF8CB6239141C98A27F4087
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +567,8 @@ magnet:?xt=urn:btih:9650920EC637B4E6FEF8CB6239141C98A27F4087
 ```bash
 magnet:?xt=urn:btih:9DF7D55CAF65CDE9E895719AF6DF6040BED78E2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +596,8 @@ magnet:?xt=urn:btih:9DF7D55CAF65CDE9E895719AF6DF6040BED78E2E
 magnet:?xt=urn:btih:D9A6C859964A3F746430E52B5E7A61B4FC91801E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +621,8 @@ magnet:?xt=urn:btih:D9A6C859964A3F746430E52B5E7A61B4FC91801E
 ```bash
 magnet:?xt=urn:btih:52D282CA341EB41C1C0E104B4D9CD1B040E3EDB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:52D282CA341EB41C1C0E104B4D9CD1B040E3EDB8
 magnet:?xt=urn:btih:8CDC73F569EB8C2B246C373C5173174C18B1524B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,29 +676,7 @@ magnet:?xt=urn:btih:8CDC73F569EB8C2B246C373C5173174C18B1524B
 magnet:?xt=urn:btih:F4881A5E327273F9C955CB189F0A8FE467D4D02C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912371   (612690) от 25.06.2015
-
-Специальный корреспондент. Развод (2015.06.24) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612690.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Специальный корреспондент" - это популярная публицистическая программа, которая выходит на телеканале "Россия" с сентября 2002 года. Каждую неделю один из ведущих рассказывает в своем фильме-репортаже о какой-либо актуальной проблеме, существующей в современном обществе, посвящает зрительскую аудиторию в подробности наиболее значимых для страны (   Читать дальше...   )Телекомпания: ВГТРК, Новая КомпанияЖанр: ДокументальныйПродолжительность: 01:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D25E5519AAF52B50DD9A6A08B1051649E7964B85
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

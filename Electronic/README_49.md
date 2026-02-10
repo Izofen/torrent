@@ -28,6 +28,8 @@ Oliver Koletzki - Grossstadtmarchen (2009) [FLAC|Lossless]<Tech House, Disco, Nu
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -61,6 +63,8 @@ Maxim (Prodigy) - Hell's Kitchen (2000) [APE|Lossless]<Big Beat>
 magnet:?xt=urn:btih:AF9496AEDA940A172307418F4727DF6EDC3D5060
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -87,6 +91,8 @@ magnet:?xt=urn:btih:AF9496AEDA940A172307418F4727DF6EDC3D5060
 ```bash
 magnet:?xt=urn:btih:21CC6CC2442559A197290C0AA3EE51293EAEE134
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +127,8 @@ VA - The Ultimate Chilled Album (2008) [FLAC|Lossless]<Chillout, Lounge, Ambient
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +161,8 @@ VA - The Ultimate Chilled Album (2008) [FLAC|Lossless]<Chillout, Lounge, Ambient
 ```bash
 magnet:?xt=urn:btih:1E8979805EB29322ED11BDF52B283B0E9C32DCB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +197,8 @@ The Chemical Brothers - Don't Think (2012) [MP3|320 кб/с]<Electronic, Breakbe
 magnet:?xt=urn:btih:EBFC33C87AC7FF3A618614CAE899FA37E17A3D1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +232,8 @@ CD12012Жанр: Ambient, Downtempo, Lounge, ChilloutПродолжительн�
 magnet:?xt=urn:btih:FCC0ED345045637A3B936DF817DA4A7B72420745
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +260,8 @@ Orbital - Wonky (2012) [FLAC|Lossless]<Electronic/Leftfield/Dubstep/Techno/Elect
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +290,8 @@ DJ Кирилоff
 ```bash
 magnet:?xt=urn:btih:E51EF67D82CCAAFC0EBE0DE4B7CC7E311C9338C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +326,8 @@ Jam & Spoon - Remixes & Club Classics (2CD) (2006) [APE|Lossless]<Trance, Techno
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +358,8 @@ Androcell - Efflorescence (2006)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +394,8 @@ Kato - Discolized (2010) [FLAC|Lossless]<Electronic, House>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +422,8 @@ CD1 - Come In For Coffee
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +458,8 @@ Elsiane - Mechanics of Emotion (2012) [MP3|320 кб/с]<Trip-Hop, Dream-Pop, Dow
 magnet:?xt=urn:btih:F667F556FC7B31CFA2555854F8B23F1F56BB497C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +493,8 @@ LюK - 5 Альбомов (2003-2009) Дискография [FLAC|Lossless]<Roc
 magnet:?xt=urn:btih:C061E7B0EA13A5AD8368A5700A6ACA1071126369
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +521,8 @@ Space - The Very Best Of Space (2011) [FLAC|Lossless|image + .cue] <Electronic, 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +555,8 @@ Abakus - We Share The Same Dreams (2008)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +587,8 @@ Spreu & Weizen - 4 albums (2009-2011) [FLAC|Lossless] <Martial Industrial, Neocl
 ```bash
 magnet:?xt=urn:btih:34AA52314467612C09716F6388F80BEEF2653AA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +623,8 @@ VA - Galaxy (2011) [MP3|256 кб/с]<Spacesynth>
 magnet:?xt=urn:btih:4160D594876CFB752C0B452602CA6F9E5C5456D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +658,8 @@ Anosphere - Nation of Love (2009) [MP3|320 кб/с]<Spacesynth>
 magnet:?xt=urn:btih:E08842AB22395B1520D59BC29354A47BBB3916A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +691,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:831B8C6247F6A906EE32D5CD0E94F2635A49B30D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -684,6 +726,8 @@ Parzival (+ Stiff Miners) - 8 albums (1995-2011) [mp3|192-320 kbps] <Martial Ind
 ```bash
 magnet:?xt=urn:btih:CE31BA52520A516A779A0E84DD0AFF5F18B39D01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -719,6 +763,8 @@ Naked Music– это звукозаписывающий лейбл танцев
 magnet:?xt=urn:btih:305E63EE709EF123F52561791F671F8BD417F9EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -749,6 +795,8 @@ Harax - Theia (2012)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -781,6 +829,8 @@ VA - Luxury Session Ibiza 2011 (2011)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -807,6 +857,8 @@ VA - The Sound of Trance, Pt. 2 (2025) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:C8499C11BA3711051EBF9814F0C2F4F913C6846D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

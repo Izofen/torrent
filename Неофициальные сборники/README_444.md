@@ -1,3 +1,32 @@
+###  Публикация: 1532708   (710891) от 21.02.2022
+
+VA - Happy Pop Dance Party (2022) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marnik & Alfons - Harry Potter Style
+02. Victor Ark - More Physical
+03. Charli Xcx - Good Ones
+04. Max Coveri - I Don't Wanna Break Your Heart(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 07:55:05 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C0859BDA41D52D3D1A2DE0EF9C030F4B1B1AE2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1532391   (710936) от 21.02.2022
 
 VA - DJ Exotic DnB: Heartbeat Mix (2022) [MP3|320 Kbps] <Drum And Bass, Jungle>
@@ -21,6 +50,8 @@ VA - DJ Exotic DnB: Heartbeat Mix (2022) [MP3|320 Kbps] <Drum And Bass, Jungle>
 ```bash
 magnet:?xt=urn:btih:A21FD19B7F6870776E254376EC9132C24F249EB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -47,6 +78,8 @@ Dua Lipa - New Rules (2018) Remix [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:D16057C52B00E99BD95B6BFB449B600F58B44DFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +108,8 @@ VA - Record Super Chart 648 (2020) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:83B085078FAE2DB0868E7824EC349E0AA67235A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +136,8 @@ VA - The Official UK Top 40 Singles Chart 01.03.2019 [MP3|320 Kbps] <Pop, Dance,
 ```bash
 magnet:?xt=urn:btih:14678EC6BE29920E23840B275747265A74156A69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -129,6 +166,8 @@ VA - German Top 50 Official Dance Charts 01.03.2019 (2019) [MP3|320 Kbps] <Pop, 
 magnet:?xt=urn:btih:30DD2E61EA86FEF8B8677EE266258094AEA7F00E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +194,8 @@ VA - Душевный сборник радио Шансон (12) (2018) [MP3|25
 ```bash
 magnet:?xt=urn:btih:1CB8A70192180B5AD3D80EA59AFEF369A9904F83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +225,8 @@ Damage Vault - Vol. 01-03 (2009-2011) [MP3|192-320 кб/с]<Soundtrack, TV, Game
 magnet:?xt=urn:btih:645A93ED774B6BBC7F752B2448A6CD274E210785
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +253,8 @@ VA - Душевный сборник радио Шансон (11) (2018) [MP3|25
 ```bash
 magnet:?xt=urn:btih:9D251AD5D4F6A540FE14DDA7B2BF8ECE471D9A7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +283,8 @@ VA - Зайцев нет. Лучшие новинки июня (2016) [MP3|320 �
 magnet:?xt=urn:btih:30CB1453D746F31ED12B94AC21EC9C9269D112F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +311,8 @@ VA - De Top 100 Aller Tijden 1987 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 ```bash
 magnet:?xt=urn:btih:7ACB88122C9CF7669E16138EACAEDA32A849A839
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +341,8 @@ VA - Весеннее созвездие хитов (2) (2018) [MP3|256 Kbps] <�
 magnet:?xt=urn:btih:08EAA23B13F3C2ED3E706D0FC632DDA3673CA304
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +369,8 @@ VA - The Official UK Top 40 Singles Chart 13.04.2018 [MP3|320 Kbps] <Pop, Dance,
 ```bash
 magnet:?xt=urn:btih:8C243D4985EEA03D875C14C44DE4FC24EFCB1652
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +399,8 @@ VA - Весеннее созвездие хитов (2018) [MP3|256 Kbps] <По�
 magnet:?xt=urn:btih:0C3018829BAE3C0A6B60C912FC7F72E59E4BA1A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +427,8 @@ VA - Танцевальное Лето Зарубежный (2016) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:0EFAA77448096BD2066A20C2DEAD272C8BADB677
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +457,8 @@ Native - Spiritual music (2002) [MP3|320 кб/с] <Native american, Ethnic, Folk
 magnet:?xt=urn:btih:91F5653557FBD5373FCC25762CB898FC9D34C9F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +485,8 @@ VA - Music Emotions Of The Earth (2018) [MP3|320 Kbps] <Harmonic, Euphoric, Upli
 ```bash
 magnet:?xt=urn:btih:8DF4C0E04D52445DBC877F785464C533D653679B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +515,8 @@ VA - Disco EDM: Club Dance House (2016) [MP3|320 кб/с] <Club, Dance, House>
 magnet:?xt=urn:btih:F3DAA7E2C007AE835F4C606A81F49F5CA622FF2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +543,8 @@ VA - Pacific Magic Sound Music For Relaxation (2016) [MP3|320 кб/с] <Downtemp
 ```bash
 magnet:?xt=urn:btih:754779D8B9C25D88AC88E967F2F6FC39F4583455
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +573,8 @@ VA - Top 100 Зайцев.Нет - Апрель (2017) [MP3|192-320 Kbps] <Pop>
 magnet:?xt=urn:btih:DA0E4B18C9A238CA2F0F3782190A3AB332D4DF1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +601,8 @@ VA - Ibiza Calling: Deluxe Cafe Bar and Sexy Lounge Sunset Summer Music (2016) [
 ```bash
 magnet:?xt=urn:btih:070172B23E009D54986B08ED4B2897CEB74DE86F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +631,8 @@ VA - Pussy Lounge (2016) [MP3|320 кб/с] <Hardstyle>
 magnet:?xt=urn:btih:98C70CC95FAD581F9279D633DDF013B5A93816F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +659,8 @@ VA - Real Retro House Party (2016) [MP3|320 кб/с] <Jumpstyle, Techno, Hard Tr
 ```bash
 magnet:?xt=urn:btih:CC7DC0C0CD5A4C5025EAB588AFB0627B3DF9A4B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +689,8 @@ VA - FLASHBACK! MIXED BY FERRYS (2014) [MP3|320 кб/с] <Electronic, House, Eur
 magnet:?xt=urn:btih:B82ACF6F62C6E809C922D434F2D813CD1616237B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +717,8 @@ VA - Easter Chill Out: Pure Lounge Music for Easy Listening (2016) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:7DC625CF48FCFADC658B8BA2DB4B72FE6D52F2BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,32 +747,7 @@ VA - Maldives Luxury Lounge: Perfect Beach Chill Out in Paradise (2016) [MP3|320
 magnet:?xt=urn:btih:50E76524FC90EA6DCFFE090BBC4507227CE0C32E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025194   (712292) от 11.06.2016
-
-VA - Fitness Lounge Collection (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enrico Donner - Through Your Eyes
-02. Cane Garden Quartet - Love Goddess
-03. Don Gorda Project - Um Momeno
-04. Enrico Donner - Yearning for More(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:24:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EBB9447D9A18ED2358C86E13DF102C41A227844
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

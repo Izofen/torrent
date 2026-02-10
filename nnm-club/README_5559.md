@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:F34A87EBAEF4D9819A413D88E03233D65316B11D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Pado & Co - Pado & Co (1978) LP [MP3|320 Kbps] <Electronic, Disco>
 ```bash
 magnet:?xt=urn:btih:BF111FFA6A421946FAC13E6C9DC2EAE99FC13B45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Eufobia - Insemination (2010) [APE|Lossless|image + .cue] <Death Metal>
 magnet:?xt=urn:btih:1CAE03E2F3D7BAA9A74C7F9D7532376613FEACB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:1CAE03E2F3D7BAA9A74C7F9D7532376613FEACB2
 ```bash
 magnet:?xt=urn:btih:B6F3AAC1030EA9AAFB40F9E7879A15CB65F754D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Veladelyra - XXI (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Metalcore>
 magnet:?xt=urn:btih:4B46532B73D8B582FC48EEF5BBCDD5D0ED5093B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ CD1 - Jam Session:
 magnet:?xt=urn:btih:8BCEE2E7AD070301EE6AAD671E52A1393CB30261
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:8BCEE2E7AD070301EE6AAD671E52A1393CB30261
 ```bash
 magnet:?xt=urn:btih:5B2767141A601354A06D609A19FF649D161AD858
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +217,8 @@ Fuzzy Duck - Fuzzy Duck (1971) Reissue, 1993, Repertoire Records [FLAC|Lossless|
 magnet:?xt=urn:btih:038A8FC8195DFCF21F5C99AC1B3CDFB834698AB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ magnet:?xt=urn:btih:038A8FC8195DFCF21F5C99AC1B3CDFB834698AB7
 ```bash
 magnet:?xt=urn:btih:9984B828337E8399E1B5CC46B679B654EB693C8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -255,6 +273,8 @@ Airstrike - Power in Your Hand (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thra
 magnet:?xt=urn:btih:E76C2687459BB2B4F3B2BD68C8BE0A035870A042
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ Templates for Keynote - DesiGN - новый взгляд для ваших пр�
 ```bash
 magnet:?xt=urn:btih:9EE456F9E9408698E00A797D6E742CFDF6CD235F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +330,8 @@ magnet:?xt=urn:btih:9EE456F9E9408698E00A797D6E742CFDF6CD235F
 magnet:?xt=urn:btih:4CCF9E6DE5E2F805318351A8C59FF1D8D0473CC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +355,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:A01EE6B1B61D1D6790B17E18CE0BB04B045CC523
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +385,8 @@ DJ KUBA & NEITAN - Yearmix 2020 (2020-11-28) [MP3|320 Kbps] <Electro House, Big 
 magnet:?xt=urn:btih:D27A4ED64EE6D2F0D0B6E12B7F7C753CB252AFF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +410,8 @@ magnet:?xt=urn:btih:D27A4ED64EE6D2F0D0B6E12B7F7C753CB252AFF8
 ```bash
 magnet:?xt=urn:btih:FB6A6A4239930CA5C6864079CBE8FDF2B3202D77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +440,8 @@ Nirvana - In Utero (1993) 30th Anniversary Super Deluxe, 2023, Geffen [MP3|320 K
 magnet:?xt=urn:btih:4FFCE6E139D8EE949905ABA452AC6C0F7C033125
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +468,8 @@ magnet:?xt=urn:btih:4FFCE6E139D8EE949905ABA452AC6C0F7C033125
 magnet:?xt=urn:btih:C6A375D989884E8A7E6BEAD8B3168F17B82AE96C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +494,8 @@ magnet:?xt=urn:btih:C6A375D989884E8A7E6BEAD8B3168F17B82AE96C
 ```bash
 magnet:?xt=urn:btih:1D2C37AD59D337333E4F35F72A86F47774067D26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +524,8 @@ Deeds of Flesh - Nucleus (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Technical-
 magnet:?xt=urn:btih:E03A9BC8B850E86C7AB894180AE684E6A7880C9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +549,8 @@ SILKYPIX JPEG Photography 11 содержит инструменты для ул
 ```bash
 magnet:?xt=urn:btih:E83B891E29E7C8B9AB1F2051067ACCD1EC23D974
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +576,8 @@ magnet:?xt=urn:btih:E83B891E29E7C8B9AB1F2051067ACCD1EC23D974
 magnet:?xt=urn:btih:A493217EFEEE7D81CFCF7574693D78696C90A8A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +601,8 @@ magnet:?xt=urn:btih:A493217EFEEE7D81CFCF7574693D78696C90A8A5
 ```bash
 magnet:?xt=urn:btih:A34FBEE9452860B9BAF33999707F8DA27E20BB3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +628,8 @@ EZ CD Audio Converter - утилита для преобразования ау�
 magnet:?xt=urn:btih:FD6064549C120381BBD049A835ECDF8E1AEA190E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +653,8 @@ magnet:?xt=urn:btih:FD6064549C120381BBD049A835ECDF8E1AEA190E
 ```bash
 magnet:?xt=urn:btih:DEC93E8BE2E9A077C23BDE7E4FDE4F17A09BAE93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +683,8 @@ Third Party - Deep Set at Lymm Water Tower (2020-12-06) [MP3|320 Kbps] <Tech Hou
 magnet:?xt=urn:btih:31DE87FFDB2A47E010C2530D3800FF149C34C297
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +708,8 @@ magnet:?xt=urn:btih:31DE87FFDB2A47E010C2530D3800FF149C34C297
 ```bash
 magnet:?xt=urn:btih:A4CBEB843C0844DE13B6F9F46411B7539A47D618
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

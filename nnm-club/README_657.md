@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:A77450C068EE7A051E04868AC88B23634C20C7A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:C5964E0966D7E50DE63ADCBF3CE0203D20818019
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:C5964E0966D7E50DE63ADCBF3CE0203D20818019
 magnet:?xt=urn:btih:DE636724CDCD76558122B7A5B37C128C44B400C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:DE636724CDCD76558122B7A5B37C128C44B400C3
 ```bash
 magnet:?xt=urn:btih:3CD0808DB9E96160C0B101790A3E5DB115B24372
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ BOUDOIR Inspiration — это платформа и журнал, посвящ�
 magnet:?xt=urn:btih:BFB64A3233CDA7FC7A3A6EC19DE5D71BBDC133E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ BOUDOIR Inspiration — это платформа и журнал, посвящ�
 ```bash
 magnet:?xt=urn:btih:C7B79CDF2734EE02FC6FF3280A82B9C71E229A7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ BOUDOIR Inspiration — это платформа и журнал, посвящ�
 magnet:?xt=urn:btih:24BBA000F454597EBA17C3AAA1CD16FBD10FFC9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:24BBA000F454597EBA17C3AAA1CD16FBD10FFC9D
 ```bash
 magnet:?xt=urn:btih:0B19D79405837A0FDB0E8EA3B8E54FEBDF4AA2BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:0B19D79405837A0FDB0E8EA3B8E54FEBDF4AA2BD
 magnet:?xt=urn:btih:3752434AED999F2A3F0382324459EDEA32687791
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ ENDLESS Dungeon - это уникальный тактический roguelite-�
 ```bash
 magnet:?xt=urn:btih:7A803574B9E0E37DEE7C2AFB256342D7B81CF696
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Dwarven Realms (2022) [Ru/Multi] (1.4.2) Repack Let'sРlay
 magnet:?xt=urn:btih:24F476EE65D26A24BF2EFD7CAB00D9FFF8FDC68C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:24F476EE65D26A24BF2EFD7CAB00D9FFF8FDC68C
 ```bash
 magnet:?xt=urn:btih:BEF4F2516206708A581C8FB9727BF2F26EE16868
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:BEF4F2516206708A581C8FB9727BF2F26EE16868
 magnet:?xt=urn:btih:F2822C8A777CC464179FDB5E5CD13F08FF5F2748
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:F2822C8A777CC464179FDB5E5CD13F08FF5F2748
 ```bash
 magnet:?xt=urn:btih:7445905CCEA986B94E41AA3309601DBEA127D083
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:7445905CCEA986B94E41AA3309601DBEA127D083
 magnet:?xt=urn:btih:A607DD850BFA0D12CC0E03F34A8F9AF95B5ABFF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:A607DD850BFA0D12CC0E03F34A8F9AF95B5ABFF6
 ```bash
 magnet:?xt=urn:btih:214FC44EB71950C3C46A74523CB48653B2A7FBDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ DaVinci Resolve — единственное в мире решение для �
 magnet:?xt=urn:btih:4D6E2716C12633735C7B1E5F2829957DF4461E08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:4D6E2716C12633735C7B1E5F2829957DF4461E08
 ```bash
 magnet:?xt=urn:btih:88846C2BB054AA565E73B10586FD9043BB1794B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ Jazzy Coffee - Noir Notes (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 magnet:?xt=urn:btih:1BEE695C3AB28D2B15216648BE6989752B2C308D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ Gutta Verse Moon - Unusual Vision (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:F1D4BFD470C0961A606C1643F26568BE359747F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +556,8 @@ Greg Foat & Jihad Darwish - Opening Time (2025) [FLAC 24/48|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:424D269D50C344E0820276B509387A07BC78BBEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ Five Foot Finn - Electric Hex (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock
 ```bash
 magnet:?xt=urn:btih:58435A934408672691C6D78485CC7D9B97C4E3AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ Extreme Tinnitus - Darlene - Extreme Tinnitus - Darlene (2025) [FLAC 24/96|Lossl
 magnet:?xt=urn:btih:EC4CAA183CFF57114FC4E04BC969EB3EE537FF3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ Audiophile NBR Music - Speak Softly Love (Deluxe Edition) (2025) [FLAC 24/48|Los
 magnet:?xt=urn:btih:C9038CC3B4797A2B35AE750C1CD05BF9FECDD5FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +668,8 @@ magnet:?xt=urn:btih:C9038CC3B4797A2B35AE750C1CD05BF9FECDD5FB
 ```bash
 magnet:?xt=urn:btih:14068FDDADEADDC1B79B5754C263D0EF02F3E09D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -647,6 +697,8 @@ Atlantic Behind - Delusion (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Ro
 ```bash
 magnet:?xt=urn:btih:794D9845536250E62082C2B9B3D14AE7DE45DF3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

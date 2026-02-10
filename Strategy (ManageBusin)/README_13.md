@@ -19,6 +19,8 @@ Tropico 3 (2009) [Multi] (1.0/dlc) License GOG [Gold Edition]
 magnet:?xt=urn:btih:B7DF6D922AD134164FEB207FADD20EAD2FA83734
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Moviehouse позволяет игрокам стать владельцами �
 ```bash
 magnet:?xt=urn:btih:C5B30F4B1CBDFB5F3F6DC396C913A52DBD840403
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Terra Nil – градостроительный симулятор-песочн
 magnet:?xt=urn:btih:8E4CFB70D034D1DC001FB20A14C2568BC53D2B6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Cities in Motion – это возможность управлять собст
 ```bash
 magnet:?xt=urn:btih:474ABCCC53EE9295C8B82ED96C8E597A3D1B6820
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Endzone - A World Apart (2020) [Ru/En] (1.2.8630.30586/dlc) License GOG [Save th
 magnet:?xt=urn:btih:4E38AB7F1A39D9D4C33DA9A4308CC0E5273A38F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Punch Club – это менеджер уличного бойца в жанре
 ```bash
 magnet:?xt=urn:btih:0D6457675D65A0008879B77E40A78439DC2B14D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Sunrider Legends Tactics поставит игрока во главе воен�
 magnet:?xt=urn:btih:0435D70F1BC7C5796B3DC018A229591B63C16A86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Diggles The Myth of Fenris (2001) [Ru/Multi] (2.1.1.10/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:0A6C77E9ECD6FF90187BD7F1D6B692ECB4F83BBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Railroad Tycoon 3 / Железнодорожный магнат (2003) [Ru] (1.0
 magnet:?xt=urn:btih:F09F9BD5F75396AE9DBB220C1410B6DE252696E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Indoorlands (2022) [Multi] (1.0.0f3) License GOG
 ```bash
 magnet:?xt=urn:btih:2780B8875BEE32CEF130CA1035D6AD3C26A43804
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Industry Giant (1997) [En] (1.0.0.0) License GOG
 magnet:?xt=urn:btih:7A71F705202EEB8EC9C6FA80FF2B27CB3BEF184C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Star General (1996) [Multi] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:38DE8C00AEE2115EB0DD83221208B36D767848DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Hotel Giant (2002) [Multi] (1.0.0.0) License GOG
 magnet:?xt=urn:btih:A78960BDF50C9256BFACD75C6602035F1EEADA3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Blood Bowl 2 (2015) [Ru/Multi] (3.0.219.5) License GOG [Legendary Edition]
 ```bash
 magnet:?xt=urn:btih:AE979C6CEFC2B122D1A7B86ABDB015DE2791B707
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ STORY OF SEASONS: A Wonderful Life предлагает погрузиться �
 magnet:?xt=urn:btih:525FF04A3A57D54D1CD813C920F8D92337F71A72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Arsenal of Democracy: A Hearts of Iron Game - стратегия, предста
 ```bash
 magnet:?xt=urn:btih:B0EC24BC666E453229FC5716DBA30A75DE87624D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Papa's Freezeria Deluxe (2023) [En] (1.0.3) Repack NotDaMazzlov
 magnet:?xt=urn:btih:FC5C17B8BB70E4C9CC1408C23247E8A412802579
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Transport Giant (2004) [Ru/Multi] (2.30) License GOG
 ```bash
 magnet:?xt=urn:btih:79EB43086E94F28DE2556994E42FB70977BCE080
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Cat Cafe Manager игрока ожидает жизнь владельца ко�
 magnet:?xt=urn:btih:5D6EE70AEA946BC15594E1BACDADEC530F57ACE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Automachef (2019) [Multi] (33) License GOG
 ```bash
 magnet:?xt=urn:btih:DEE4E48C2DD2F066F85D931C5187FF818977A8C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Evil Bank Manager (2018) [Ru/Multi] (1.0) License PLAZA
 magnet:?xt=urn:btih:0A1588BC5D6C4EA848F0A28794BE73D0A8BF3963
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Tropico 6 (2019) [Ru] (1.070/dlc) Repack Other s [El Prez Edition]
 ```bash
 magnet:?xt=urn:btih:099B7B223949F85B5A4B12178B155C61224BCC62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Shelter Manager (2021) [Ru/Multi] (0.5.5_prod2) License TiNYiSO
 magnet:?xt=urn:btih:10CD3F0DC1443C9A18E390494B4232DF14F83E9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ The Guild 3 (2017) [Ru/Multi] (1.0.6) License GOG
 ```bash
 magnet:?xt=urn:btih:1736C563CCAF0989FB20F72E962A581FBAE025DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Highrise Mogul - игра про магнатов о строительстве 
 magnet:?xt=urn:btih:9F3126D92E02AD4244305C68A8EF5620D0963AFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Anno 2205™ — это полюбившийся игрокам симулято
 ```bash
 magnet:?xt=urn:btih:E84FFBE5D64619405C3C79ECD200E21593C86854
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

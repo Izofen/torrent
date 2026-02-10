@@ -21,6 +21,8 @@ Bridge Linux основан на  Arch Linux, и включает в себя г
 magnet:?xt=urn:btih:BB787B80095A5FA03B5DF901A623CDA1980C05B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:BB787B80095A5FA03B5DF901A623CDA1980C05B0
 magnet:?xt=urn:btih:12A9106FEB1C8FC2C3E758B046DA3255E62C8DD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:12A9106FEB1C8FC2C3E758B046DA3255E62C8DD2
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:12A9106FEB1C8FC2C3E758B046DA3255E62C8DD2
 magnet:?xt=urn:btih:98FA9B524DCFBB4B845CCDE918D376819F5C6B75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:98FA9B524DCFBB4B845CCDE918D376819F5C6B75
 ```bash
 magnet:?xt=urn:btih:ED5043AFA6400F2AA1895DA32485ECE4E2631627
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:ED5043AFA6400F2AA1895DA32485ECE4E2631627
 magnet:?xt=urn:btih:EB124E8494CEF61E095EF76D83CB200FA89A56A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Xenomorph [En] (RePack) 1990 | Pilotus
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ MakeUp Instrument – набор инструментов, которые пре
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ MakeUp Instrument – набор инструментов, которые пре
 ```bash
 magnet:?xt=urn:btih:01F1F266D3DE9BF8C8CC2B90043B57CC1CF45E89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ magnet:?xt=urn:btih:01F1F266D3DE9BF8C8CC2B90043B57CC1CF45E89
 magnet:?xt=urn:btih:BA66171F693D41C892D0F7D83C1E16EBC4C74712
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:BA66171F693D41C892D0F7D83C1E16EBC4C74712
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:BA66171F693D41C892D0F7D83C1E16EBC4C74712
 ```bash
 magnet:?xt=urn:btih:C2E5F3DD644346FBE8973210D3D5BE6A1FB8EC48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -330,6 +354,8 @@ magnet:?xt=urn:btih:C2E5F3DD644346FBE8973210D3D5BE6A1FB8EC48
 magnet:?xt=urn:btih:1F4285F5A6DFF6F4654B90822899A73A85CE7C59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ magnet:?xt=urn:btih:1F4285F5A6DFF6F4654B90822899A73A85CE7C59
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +409,8 @@ magnet:?xt=urn:btih:1F4285F5A6DFF6F4654B90822899A73A85CE7C59
 magnet:?xt=urn:btih:9951FD28CFA123D071A600B8132C8353E90F2972
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +434,8 @@ Warhammer 40.000: Space Marine (RePack/1.0.156.0) + 13 DLC [Ru/En] 2011 l R.G. O
 ```bash
 magnet:?xt=urn:btih:F016D80211527086DE190980D8BDAA481E693E58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +462,8 @@ magnet:?xt=urn:btih:F016D80211527086DE190980D8BDAA481E693E58
 magnet:?xt=urn:btih:D77FF7EDCAB60A38EA3B969C414FA87577E10D52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ magnet:?xt=urn:btih:D77FF7EDCAB60A38EA3B969C414FA87577E10D52
 ```bash
 magnet:?xt=urn:btih:B7842CCEA3C6ED2AD8EF6A08163F2156E4345125
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +514,8 @@ Ashampoo Burning Studio Elements - программа, с помощью кот�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ Ashampoo Burning Studio Elements - программа, с помощью кот�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +566,8 @@ Ashampoo Burning Studio Elements - программа, с помощью кот�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ Ashampoo Burning Studio Elements - программа, с помощью кот�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ Game of Thrones / Игра престолов [Multi3/-] (L) 2012
 magnet:?xt=urn:btih:876C38FB05F95C33F5165CA9D32B7D45188624B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:876C38FB05F95C33F5165CA9D32B7D45188624B5
 ```bash
 magnet:?xt=urn:btih:0AA0E927D07F328D36E6A0D9FA7CD0129BF6EAD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +673,8 @@ Hollen - Drumkit EP (2012) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:90B49A4B75C62016CA843D0B2E8A5193D1BE858B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -658,6 +708,8 @@ VA - TMP: Trance Harmony 066 (2012) [MP3|320 кб/с]<Trance, Uplifting Trance, 
 ```bash
 magnet:?xt=urn:btih:BA7C333036788F737782E7192E7904CC87CCCC52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

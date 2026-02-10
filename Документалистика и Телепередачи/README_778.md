@@ -1,3 +1,29 @@
+###  Публикация: 1601876   (1046313) от 02.01.2023
+
+Дикая кошка / Wildcat (2022) WEB-DL [H.264/720p] [EN / RU, EN Sub]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вернувшись с войны в Афганистане, молодой британский солдат, борющийся с депрессией и посттравматическим стрессовым расстройством, находит второй шанс в тропических лесах Амазонки, когда он встречает американского ученого, и вместе они воспитывают осиротевшего детеныша оцелота.Производство: США / 30West, Ajna Films, Emerging Earth FilmsЖанр: документальныйРежиссер: Trevor Frost, Melissa LeshПеревод: ОтсутствуетЯзык озвучки: английскийСубтитры: русские, английские, немецкие и др.Продолжительность: 01:45:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E320FEEAF0A291930C00F412F2FCF6322208510
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601918   (1046315) от 02.01.2023
 
 Париж. История одной столицы / Paris, A capital tale (Paris. Une histoire capitale) (2012) BDRip [H.264/1080p] (серии 1-4 из 4)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:7D42A87B08F3EB2876F3442A918EB27B5FAE7655
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:7D42A87B08F3EB2876F3442A918EB27B5FAE7655
 magnet:?xt=urn:btih:0EEB129251CCFFD79DCFE557A7F7CEBB5AF90CFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:0EEB129251CCFFD79DCFE557A7F7CEBB5AF90CFD
 ```bash
 magnet:?xt=urn:btih:E7494421FBDDED4388E9FA97F7FE99765F543C90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:E7494421FBDDED4388E9FA97F7FE99765F543C90
 magnet:?xt=urn:btih:84D859CCA8136CEE140B0ABFDD41C42E654C964B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:84D859CCA8136CEE140B0ABFDD41C42E654C964B
 ```bash
 magnet:?xt=urn:btih:D7C8E8C69E7164F8C9F08DFC62866C01E5D46097
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ Discovery. Путешествие по Индии / The Journey of India (2022) 
 magnet:?xt=urn:btih:05F18F0ADFDD6DD41D7A5F44102DBD2B810B8697
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:05F18F0ADFDD6DD41D7A5F44102DBD2B810B8697
 magnet:?xt=urn:btih:D58688BE07C83DBCD9F06EE0FD5708D972C21901
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:D58688BE07C83DBCD9F06EE0FD5708D972C21901
 ```bash
 magnet:?xt=urn:btih:AF0C7315B50914EAF3B09A6FAFC686E5CB13E1C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:AF0C7315B50914EAF3B09A6FAFC686E5CB13E1C3
 magnet:?xt=urn:btih:B5D12C37797CB30DB3D10A9B9F518F6807508F01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:B5D12C37797CB30DB3D10A9B9F518F6807508F01
 magnet:?xt=urn:btih:0225D1A4DE6AF0197D398EA3D84445B25C7E28B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:0225D1A4DE6AF0197D398EA3D84445B25C7E28B5
 ```bash
 magnet:?xt=urn:btih:E1AFD73D5902EE65ABE943FF7DAE351CFE599AE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +339,8 @@ magnet:?xt=urn:btih:E1AFD73D5902EE65ABE943FF7DAE351CFE599AE4
 magnet:?xt=urn:btih:3DA341DF5ECE09B72943BD9FE13C6C13DEB93AA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:3DA341DF5ECE09B72943BD9FE13C6C13DEB93AA5
 ```bash
 magnet:?xt=urn:btih:5CD6CEADD65274289A69A640F74C65C7B95DEAEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:5CD6CEADD65274289A69A640F74C65C7B95DEAEA
 magnet:?xt=urn:btih:1AD39CCCFA7C1C0B7EA7A2895E7D3C5130C9AAA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:1AD39CCCFA7C1C0B7EA7A2895E7D3C5130C9AAA5
 ```bash
 magnet:?xt=urn:btih:BCE96D7D0A934C68263683BBAB795E92246F663E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:BCE96D7D0A934C68263683BBAB795E92246F663E
 magnet:?xt=urn:btih:151F6381ED3B1264DDE07063E76C14DDEB3AE016
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:151F6381ED3B1264DDE07063E76C14DDEB3AE016
 ```bash
 magnet:?xt=urn:btih:6EF36E8B013FEB13B5F42F089766D2E5B2228D08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:6EF36E8B013FEB13B5F42F089766D2E5B2228D08
 magnet:?xt=urn:btih:FD55293CE8B8A47334605323961B8C0CB72E600D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +525,8 @@ magnet:?xt=urn:btih:FD55293CE8B8A47334605323961B8C0CB72E600D
 magnet:?xt=urn:btih:1EB44DB5784D1BFF303DFEC868081772560268D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:1EB44DB5784D1BFF303DFEC868081772560268D1
 ```bash
 magnet:?xt=urn:btih:A644CEF874D4E09F8426986A717C7B309A9399EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +577,8 @@ magnet:?xt=urn:btih:A644CEF874D4E09F8426986A717C7B309A9399EE
 magnet:?xt=urn:btih:D1C50294D90267A69C4303372C30ABA2CA58A369
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:D1C50294D90267A69C4303372C30ABA2CA58A369
 ```bash
 magnet:?xt=urn:btih:956BF02F0864977C1513580A6EC611E0C180EC8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:956BF02F0864977C1513580A6EC611E0C180EC8A
 magnet:?xt=urn:btih:45BBF4D20CAA2104960B69CA4375D6EB6D24B3F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +654,8 @@ magnet:?xt=urn:btih:45BBF4D20CAA2104960B69CA4375D6EB6D24B3F1
 ```bash
 magnet:?xt=urn:btih:013552D5A66D7E54C0F38172EB4B04E3C71CB735
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,30 +681,7 @@ NG. Лос-Анджелес 92. Беспорядки / LA 92 (2017) WEB-DL [H.26
 magnet:?xt=urn:btih:D771BAF3BC4A1EEA98E9558DDF77960A764630FC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840632   (1047348) от 06.12.2025
-
-Живая еда с Сергеем Малозёмовым (06.12.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Козинаки: где без них невозможно представить Новый год, почему они незаменимы у походников, правда ли, что в сладких плитках из магазина тяжелые металлы и чего — плюсов или минусов — в этом угощении больше? Команда программы взвесила достоинства и недостатки этой сладости на научных весах.
-Какое мясо лучше — курицы или индейки, почему одно дороже другого, где больше (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0045140DA68487DC602F4EC8F4B45F592C20D803
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

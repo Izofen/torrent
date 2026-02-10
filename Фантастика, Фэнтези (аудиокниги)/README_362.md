@@ -1,3 +1,29 @@
+###  Публикация: 1561828   (513514) от 06.07.2022
+
+Фрэнк Герберт | Оккупационные силы (2021) [MP3, Максим Тарлавин (Scaners)]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513514.jpg" />
+</div>
+
+
+###  Подробнее
+
+К Земле прилетел космический корабль из Пояса Ориона. Президент созвал срочное совещание по безопасности с представителями иностранных держав, сенаторами и главами силовых ведомств. Длина корабля была девятнадцать миль, а ширина — двенадцать. Мнение большинства гласило: вражеский корабль-завоеватель. Визиторы вскоре пошли на контакт, и выслали шлюпку с послами на (   Читать дальше...   )Жанр: Ироническая фантастикаПродолжительность: 00:10:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC8DBF0830A9B6F256240FD2E9CE26D3041D7160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1561787   (513518) от 06.07.2022
 
 Григорий Кабанов и др. | Звёздная болезнь (2017) [MP3, Максим Тарлавин (Scaners)]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:D4AE43F0BC9D337E5282D4178E97FC2982107206
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:D4AE43F0BC9D337E5282D4178E97FC2982107206
 magnet:?xt=urn:btih:8AD21F0A4B5EF66D56EA22D7AC0E6D151DADA3B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:8AD21F0A4B5EF66D56EA22D7AC0E6D151DADA3B9
 ```bash
 magnet:?xt=urn:btih:571D0F78A54B6229C019A67A19440B1F65CD546B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:571D0F78A54B6229C019A67A19440B1F65CD546B
 magnet:?xt=urn:btih:C30911D6E76E7E65321BFCBC85FE9B46220AC1F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:C30911D6E76E7E65321BFCBC85FE9B46220AC1F1
 ```bash
 magnet:?xt=urn:btih:81558EE991746FF93813A6E03421BADD0FCEAF1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:81558EE991746FF93813A6E03421BADD0FCEAF1B
 magnet:?xt=urn:btih:0D4953EB2B20DE729E57CC07C3789D26A3C6E66A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:0D4953EB2B20DE729E57CC07C3789D26A3C6E66A
 ```bash
 magnet:?xt=urn:btih:360695A2AB2A3EF45F283F354148ACAFB2E76451
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:360695A2AB2A3EF45F283F354148ACAFB2E76451
 magnet:?xt=urn:btih:AEC9F8DBDC90F97E5755C993D80772B1667055FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:AEC9F8DBDC90F97E5755C993D80772B1667055FF
 magnet:?xt=urn:btih:F7B4B82BC05A2374D57604128EAFF14C1ACC693E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:F7B4B82BC05A2374D57604128EAFF14C1ACC693E
 ```bash
 magnet:?xt=urn:btih:C6CFEA60AEDB704144CABE28E46AF11F66A72117
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:C6CFEA60AEDB704144CABE28E46AF11F66A72117
 magnet:?xt=urn:btih:F7520716443EB0CA27C967C3A813F187D1AC2C80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:F7520716443EB0CA27C967C3A813F187D1AC2C80
 ```bash
 magnet:?xt=urn:btih:9FBCE6F27BA72B2821863D0DA012BB33B50BD339
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:9FBCE6F27BA72B2821863D0DA012BB33B50BD339
 magnet:?xt=urn:btih:46589366902F92E750843693B84D0B25A616FA73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:46589366902F92E750843693B84D0B25A616FA73
 magnet:?xt=urn:btih:30D3059A8DA28D93C78667EDBC5E24E010E1A937
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:30D3059A8DA28D93C78667EDBC5E24E010E1A937
 ```bash
 magnet:?xt=urn:btih:33712F9102583C27CA788FDCEA8FBE49E82FC597
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:33712F9102583C27CA788FDCEA8FBE49E82FC597
 magnet:?xt=urn:btih:EE3F84E3E09AF22F582EB69CC7F148DE87319FF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:EE3F84E3E09AF22F582EB69CC7F148DE87319FF2
 magnet:?xt=urn:btih:15C774F9C017C838DB1EACEA3E0FCFCAE4AC99D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:15C774F9C017C838DB1EACEA3E0FCFCAE4AC99D2
 magnet:?xt=urn:btih:A08BFE22CCEAB0FE88867D9FD6B5E879BD2B7D2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:A08BFE22CCEAB0FE88867D9FD6B5E879BD2B7D2E
 ```bash
 magnet:?xt=urn:btih:B79A8878505EE9B7314F7AF3323FCFB609807599
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:B79A8878505EE9B7314F7AF3323FCFB609807599
 magnet:?xt=urn:btih:91F52D7B532B8FDA5D7A8F5B98C1C14FBEBE6750
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:91F52D7B532B8FDA5D7A8F5B98C1C14FBEBE6750
 magnet:?xt=urn:btih:F1B129659FCB57F12415FEF9474CC29924BE0380
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:F1B129659FCB57F12415FEF9474CC29924BE0380
 ```bash
 magnet:?xt=urn:btih:62BD01003F337218D20BD92A393B855BA6C8E65E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:62BD01003F337218D20BD92A393B855BA6C8E65E
 magnet:?xt=urn:btih:E5C336CE0D51E8E7B3CA91D9C448E5F898CFE300
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:E5C336CE0D51E8E7B3CA91D9C448E5F898CFE300
 magnet:?xt=urn:btih:24FDF938FFF002277D077E2EA5BFC2C5AD254847
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,29 +678,7 @@ magnet:?xt=urn:btih:24FDF938FFF002277D077E2EA5BFC2C5AD254847
 magnet:?xt=urn:btih:7DC165B69D1954E732E17EFAB91B65873C292261
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242384   (514901) от 22.08.2018
-
-Альберт Грин | Марсианские хроники [Сборник] (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник «Марсианские хроники» соткан из историй. Историй о людях, о вещах, каждый и каждая из которых отдали свою частичку жизни, дабы в безжизненных красных песках Марса, появился «золотой» город.Жанр: ФантастикаПродолжительность: 03:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B99EC09766C303EE43F5D79EC698CF94DE7EEFDD
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

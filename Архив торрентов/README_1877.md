@@ -28,6 +28,8 @@ Mother Motor - Sleeping Dummies (2011) [MP3|320 кб/с]<Synthpop>
 magnet:?xt=urn:btih:563C0EFA3789D9F2230BE3C27F09FCE4C14BC887
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ magnet:?xt=urn:btih:563C0EFA3789D9F2230BE3C27F09FCE4C14BC887
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -77,6 +81,8 @@ DJ Hazard - Food Fight / Proteus (PLAYAZ016, 2011) [FLAC|Lossless]<Drum'n'Bass>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ DJ Hazard - Food Fight / Proteus (PLAYAZ016, 2011) [FLAC|Lossless]<Drum'n'Bass>
 ```bash
 magnet:?xt=urn:btih:7FA53CB7C5AE91389CAAF9BF44243D7B5D2C0F32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ magnet:?xt=urn:btih:7FA53CB7C5AE91389CAAF9BF44243D7B5D2C0F32
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ VA - Sick Music 2 Sampler Part 2 (Hospital NHS166, 2010) [FLAC|Lossless]<Drum'n'
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -183,6 +195,8 @@ VA - Sick Music 2 Sampler Part 2 (Hospital NHS166, 2010) [FLAC|Lossless]<Drum'n'
 ```bash
 magnet:?xt=urn:btih:D942ABB9BBEFDC64AF105AFFD65D0881FAFE08AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +231,8 @@ VA - Rampage 26 (2012) [MP3|320 кб/с]<DubStep>
 magnet:?xt=urn:btih:7B50447ECC84F644CAF58EFDF76FA12251C54E83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +258,8 @@ magnet:?xt=urn:btih:7B50447ECC84F644CAF58EFDF76FA12251C54E83
 magnet:?xt=urn:btih:EED2AA54DE48B90A17A41617ABE8E5287755AC55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +284,8 @@ magnet:?xt=urn:btih:EED2AA54DE48B90A17A41617ABE8E5287755AC55
 magnet:?xt=urn:btih:7E31C60AEA1A0957DB5A0D59C680FB6B239BFD39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +309,8 @@ PDF-XChange Viewer - отличная программа для чтения и 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +342,8 @@ Atomtrakt - 3 albums (2006-2010) [FLAC|Lossless] <Dark Ambient, Martial Industri
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +367,8 @@ Atomtrakt - 3 albums (2006-2010) [FLAC|Lossless] <Dark Ambient, Martial Industri
 ```bash
 magnet:?xt=urn:btih:930D14B7E7FDDEE16C24B05243A9A57EA4A7F76D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +395,8 @@ magnet:?xt=urn:btih:930D14B7E7FDDEE16C24B05243A9A57EA4A7F76D
 magnet:?xt=urn:btih:A71449918AD2D1A4D972E9FEABF43BE9BDC80896
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +420,8 @@ magnet:?xt=urn:btih:A71449918AD2D1A4D972E9FEABF43BE9BDC80896
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +447,8 @@ Gedo Senki / Tales from Earthsea / Сказания Земноморья [2006] 
 magnet:?xt=urn:btih:1509673FBCC79EF8D17A250E7A3B960E4734A0AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +472,8 @@ magnet:?xt=urn:btih:1509673FBCC79EF8D17A250E7A3B960E4734A0AD
 ```bash
 magnet:?xt=urn:btih:DEA6CC18608F50025D06894086DC1248C1C037C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +504,8 @@ SHA-1: 98A569EC9907201EEBF7F8F9A5118B89960921A6*Critical Updates для Windows 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +529,8 @@ SHA-1: 98A569EC9907201EEBF7F8F9A5118B89960921A6*Critical Updates для Windows 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +556,8 @@ SHA-1: 98A569EC9907201EEBF7F8F9A5118B89960921A6*Critical Updates для Windows 
 magnet:?xt=urn:btih:EFE8970077384AB7F3293686C003E2A51DBDEF44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +581,8 @@ TagScanner - мощная программа для организации и у
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +609,8 @@ Trojan Remover - антивирус, предназначенный для по�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +634,8 @@ Trojan Remover - антивирус, предназначенный для по�
 ```bash
 magnet:?xt=urn:btih:B1D0CE389848240930084C02E40496A10C818E2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +661,8 @@ magnet:?xt=urn:btih:B1D0CE389848240930084C02E40496A10C818E2A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +687,8 @@ magnet:?xt=urn:btih:B1D0CE389848240930084C02E40496A10C818E2A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -662,6 +712,8 @@ NG: Суперсооружения: Мегазаводы. Мишлен / MegaStr
 ```bash
 magnet:?xt=urn:btih:2CC476E48E92C1604CFDD4120F5447D3D9D95C96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

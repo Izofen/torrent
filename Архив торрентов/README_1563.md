@@ -19,6 +19,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:8283D5F8BD4E748D62F072C909428DDC05C1A416
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Rainmeter - утилита для мониторинга ресурсов ком
 ```bash
 magnet:?xt=urn:btih:455FABB02192656D9D88D490094ECDCB54DA0603
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Clownfish – это онлайн-переводчик для всех исхо�
 magnet:?xt=urn:btih:079924F6D0205777B8A09BA3EE135E672070F14C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Strygools - бесплатная программа для просмотра м
 ```bash
 magnet:?xt=urn:btih:341E060B342A20750AEEFCA5BDDB5C747D2CD279
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Paint.NET - Простой, но мощный и удобный редактор
 magnet:?xt=urn:btih:B325E6FAEFCB49D09BE01D52C35585C52AEDD230
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Swinsian демонстрирует простой, но вместе с тем 
 ```bash
 magnet:?xt=urn:btih:6E5E45A2BBF9B8FC7F94330D9CC0D515AF5E6FF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Beyond Compare - мощная и одна из лучших программ д�
 magnet:?xt=urn:btih:ED04F128ABC9F118206EFDC26938E2D68BA39077
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:10AD12F78D4F5B033DF50EEA62777DF204F0B4CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ VA - The Techno Lobby (2015) [MP3|320 кб/с] <Techno, Minimal, Tech House>
 magnet:?xt=urn:btih:A9666668863B833CE9369DD6D8C32618267B7BCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Transcend Elite – компания-разработчик устройств �
 ```bash
 magnet:?xt=urn:btih:7F34B0D99806A14CC7755B552A66D362D2037315
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ Mass Effect [PS3] [ENG] [PAL] [3.55 / 4.30] (2012)
 magnet:?xt=urn:btih:D66110ABACF840AC02F724E714285D96EC648DDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ Cockos Reaper является одной из самых продвинутых
 ```bash
 magnet:?xt=urn:btih:67952870F5D77B1F50DE4A61C6ABFE567360D4F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ RJ TextEd - мощный текстовый редактор с большим �
 magnet:?xt=urn:btih:7C1FDB9059A4C66D74E4EEC35AA72654A3F1FAFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ DVDVideoSoft является независимым разработчиком 
 ```bash
 magnet:?xt=urn:btih:3EDFD25ADD7AA0EAB9B719F9CC3C0E2607C7313B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ Agfa, Kodak, Fuji и Ilford  обеспечивают старый взгляд 
 ```bash
 magnet:?xt=urn:btih:D8BA47A54A65879BB162213CD0B532FCD582C9EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ VA - Reggae Christmas from Studio One (1992) [MP3|320 кб/с] <Reggae>
 magnet:?xt=urn:btih:89A21A62EFB1B07236D66E3E696EFCFEE375ACE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:89A21A62EFB1B07236D66E3E696EFCFEE375ACE1
 magnet:?xt=urn:btih:D53BB1565248DC243137252C9D219272D248FC74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:D53BB1565248DC243137252C9D219272D248FC74
 ```bash
 magnet:?xt=urn:btih:B472FBC153D99A742AC345FBC31815F378293F86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +503,8 @@ Mp3tag - утилита, для быстрого редактирования ID
 magnet:?xt=urn:btih:9A1B2A2A5E931FA94C4F5AD657A484CBABDDA06E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ magnet:?xt=urn:btih:9A1B2A2A5E931FA94C4F5AD657A484CBABDDA06E
 ```bash
 magnet:?xt=urn:btih:11831EA021EB3EE1F22B52C726F9862077411DE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +555,8 @@ Cent Browser является усовершенствованной верси�
 magnet:?xt=urn:btih:578DD7A89378E1A4A2CDFE41BCE3ED775B40F73E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +580,8 @@ NeoFinder Business 7.3.2 [Multi]
 ```bash
 magnet:?xt=urn:btih:47C03828E8BAF0D171ADC1D062E714452397ACD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +607,8 @@ Dash - удобное приложение, включающее в себя б�
 magnet:?xt=urn:btih:1FF0C5A1E02B8A84C17A218C29AFBF0DEEEF7A5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +633,8 @@ Total Commander 10.00 (01.12.2021) Portable by MiG [Ru/En]
 magnet:?xt=urn:btih:5675E3641B693C519ECCE7C48CF6290BB20A5190
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ Yellowpile - программа для создания разноцветных
 ```bash
 magnet:?xt=urn:btih:BB538CC7D7D688B5AF52B783BE4AC464DA46A79C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +693,8 @@ Diaphane - Lifeforms (2013) [FLAC|Lossless]<IDM, Ambient, Dubstep>
 ```bash
 magnet:?xt=urn:btih:4DBFC1BD32BE039B8DD80D6022C421FD32696B09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

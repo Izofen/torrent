@@ -23,6 +23,8 @@
 magnet:?xt=urn:btih:0477EAC5F2C734599840C73F9009D2BDE9A957B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ magnet:?xt=urn:btih:0477EAC5F2C734599840C73F9009D2BDE9A957B2
 magnet:?xt=urn:btih:46D5093AB2392FEBA4928BDD7F2F5C9A67D30B6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ magnet:?xt=urn:btih:46D5093AB2392FEBA4928BDD7F2F5C9A67D30B6F
 ```bash
 magnet:?xt=urn:btih:40309E6F252AFBBCC49AF6C043317C4F30C8B41D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:40309E6F252AFBBCC49AF6C043317C4F30C8B41D
 ```bash
 magnet:?xt=urn:btih:C878AD14B9F81C21A384AD924AE646DB541492C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +144,8 @@ VA - В Машину! Клубный (2012) [MP3|256 kbps]<Club | Dance>
 magnet:?xt=urn:btih:928FC58CC6928138AEC686B0D19DB0660E993296
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -159,6 +169,8 @@ magnet:?xt=urn:btih:928FC58CC6928138AEC686B0D19DB0660E993296
 ```bash
 magnet:?xt=urn:btih:CA765D67CD9E4DFA28B30245286762A6C0606C39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +200,8 @@ magnet:?xt=urn:btih:CA765D67CD9E4DFA28B30245286762A6C0606C39
 magnet:?xt=urn:btih:2AF8E8483CFB3E46DAA8D37B5B772522993AFA1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ Ubiquitous Player - универсальный файловый менеджер
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +252,8 @@ Ubiquitous Player - универсальный файловый менеджер
 magnet:?xt=urn:btih:CA6837D8CFF14AEBFB90380F74ABD6107AE0CB63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +277,8 @@ magnet:?xt=urn:btih:CA6837D8CFF14AEBFB90380F74ABD6107AE0CB63
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ SAM CoDeC 4.10 Best & Player [Русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +338,8 @@ SAM CoDeC 4.10 Best & Player [Русский]
 ```bash
 magnet:?xt=urn:btih:D1E9EAF1B5D2763916101D2308B06CC5F713FD32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +373,8 @@ VA - Весенняя танzплощадка 50/50 (2012) [MP3|256 кб/с]<Pop
 magnet:?xt=urn:btih:A66453E3C9C83DBF9C9456A747C4EE2B24DD01F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ magnet:?xt=urn:btih:A66453E3C9C83DBF9C9456A747C4EE2B24DD01F5
 ```bash
 magnet:?xt=urn:btih:2A6ADEE6D3625B9EDD23E276F4893386E575B730
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +425,8 @@ magnet:?xt=urn:btih:2A6ADEE6D3625B9EDD23E276F4893386E575B730
 magnet:?xt=urn:btih:261689BB33573593516439CA1A06175C8BC78AF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +450,8 @@ magnet:?xt=urn:btih:261689BB33573593516439CA1A06175C8BC78AF0
 ```bash
 magnet:?xt=urn:btih:489B60246C9BE42AFD1A47D5FF49E6F1F444BE49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +481,8 @@ magnet:?xt=urn:btih:489B60246C9BE42AFD1A47D5FF49E6F1F444BE49
 magnet:?xt=urn:btih:8B7168C837CC3899D087C6EEE50AC9B97BBE63F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +506,8 @@ magnet:?xt=urn:btih:8B7168C837CC3899D087C6EEE50AC9B97BBE63F6
 ```bash
 magnet:?xt=urn:btih:F5DF020804F52A1227FFD5046154614FD738F5E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +534,8 @@ magnet:?xt=urn:btih:F5DF020804F52A1227FFD5046154614FD738F5E0
 magnet:?xt=urn:btih:6C53D5325033816BA8EAC77BD680351BCF9F156F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +560,8 @@ magnet:?xt=urn:btih:6C53D5325033816BA8EAC77BD680351BCF9F156F
 magnet:?xt=urn:btih:DDB182F3F3C4573A9DF10DCE75B17CBE848059DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +585,8 @@ Daum PotPlayer - это мультимедийный проигрыватель 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +616,8 @@ Daum PotPlayer - это мультимедийный проигрыватель 
 magnet:?xt=urn:btih:B37331C2BC9F5376A7CEBABAB241B3ED4D5480D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +641,8 @@ magnet:?xt=urn:btih:B37331C2BC9F5376A7CEBABAB241B3ED4D5480D7
 ```bash
 magnet:?xt=urn:btih:6B4A1FFC981DE58EA3DEEE97FF3256FED6066008
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +671,8 @@ magnet:?xt=urn:btih:6B4A1FFC981DE58EA3DEEE97FF3256FED6066008
 ```bash
 magnet:?xt=urn:btih:1905C786A5A897D7A04E51D0A175E4B41F198040
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -659,6 +707,8 @@ VA - Музыкальные хиты (2012) [MP3|256 kbps]<Pop>
 magnet:?xt=urn:btih:056E7A434DA7507B41941BE74A16F0C86F011B97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -686,6 +736,8 @@ magnet:?xt=urn:btih:056E7A434DA7507B41941BE74A16F0C86F011B97
 ```bash
 magnet:?xt=urn:btih:4FF21CF2FD408D5EC0578FB0BF82E174F7C9A032
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

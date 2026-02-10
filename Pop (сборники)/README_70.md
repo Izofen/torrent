@@ -1,3 +1,38 @@
+###  Публикация: 521229   (628873) от 10.07.2012
+
+VA - На вершинах хит-парадов 2 50/50 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Алисия & Влад Корса - Здесь и сейчас
+02. Gotye feat. Kimbra - Somebody That I Used To Know (Bastian Van Shield remix)
+03. Elvira T - Все решено (Fresh Tunes remix)
+04. Mandinga - Zaleilah (Hanter Remix 2k12 edit)
+05. Митя Фомин & Кристина Орса - Не манекен (Ural DJs Dance remix)
+06. Ledina Celo - Can you touch me baby (Edit mix)
+07. Чай Вдвоем - Улетай
+08. Kato - Never let u go (feat. Snoop Dogg & Brandon Beal)
+09. Юля Савичева - Юлия
+10. Bob Sinclar feat. Sophie Ellis-Bextor - Fuck with you(   Читать дальше...   )Жанр: PopПродолжительность: 05:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0AAC0C2F24401F599FD52451F6A41E4D5A7DB9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 520821   (629199) от 10.07.2012
 
 VA - Незабываемая дискотека 2 (2012) [MP3|320 кб/с]<Pop, Dance>
@@ -27,6 +62,8 @@ VA - Незабываемая дискотека 2 (2012) [MP3|320 кб/с]<Pop,
 ```bash
 magnet:?xt=urn:btih:D14BDCC29DA5E8CFBC2F9529413B46F9A585B3C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -61,6 +98,8 @@ VA - Пляжная Вечеринка (2012) [MP3|256 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:3577BC17AEF032458C09A0467F712DB98481EBE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -88,6 +127,8 @@ VA - 50 Disco Hits (2018) [MP3|320 Kbps] <Pop, Disco>
 magnet:?xt=urn:btih:4C6611B8C747D242D08B4670C01170FBAFB21E99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +155,8 @@ VA - Лето в кайф. Часть 2 (2015) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:E5B6596F613FBB962805496BA62C362B7DD0A152
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +191,8 @@ Various Artists - Syndicate. The Best Disco With Non-Stop Sound Effects (1980) [
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +226,8 @@ VA - Жаркий Авто Хит от DFM 50+50 (2012) [MP3|256 кб/с]<Pop,Da
 magnet:?xt=urn:btih:6825CCD2F6B8BF24EF143A8E504E0C45EB87117E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +255,8 @@ VA - Beautiful Songs For You Vol.01-27 (2019) [MP3|320 Kbps] <Pop, Romantic Ball
 magnet:?xt=urn:btih:B6D1BDEAD444A2442996E2CEBF1117AE8D39F029
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +283,8 @@ Zucchero - Hybrid of Zucchero Sugar Fornaciari (2017) [MP3|192-320 CBR,VBR Kbps]
 ```bash
 magnet:?xt=urn:btih:BCA883292DE3457A42088335F8FC8E5C0CDB7D26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +319,8 @@ VA - Top 100: Танцевальная летняя дискотека (2012) [M
 magnet:?xt=urn:btih:60DB19F24296957B1AAC647227067360ADE00271
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +353,8 @@ VA - Отдыхай с хитами Europa Plus (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:C00171A1F070F0245773CAC2E7751423018C41E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +389,8 @@ VA - Танцевальный клубный заряд (2012) [MP3|256-320 кб
 magnet:?xt=urn:btih:FAA16022E62A234282077954837FD9CAFAA06104
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +424,8 @@ VA - Muz-сливки хит-парадов (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:61036E06032782262F8BD2A0D8A5396B825BDD08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +453,8 @@ VA - Disco Hits - Generation Two (2016) [MP3|306-320 Kbps] <Pop>
 magnet:?xt=urn:btih:60DE91AA94217B476E8E75518EC5B5D395607BC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +481,8 @@ VA - Wedding Reception Party-Pleasers (2016) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:0FD0DA01077BF43277C0B566A629A2C875AAA77C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +517,8 @@ VA - Сборник хороших хитов - Позитивный заряд 
 magnet:?xt=urn:btih:69C40F00B3D1D11131D81503BED8EBE07B19F436
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +551,8 @@ VA - 100 Самых Самых Хитов 50x50 (2012) [MP3|256 кб/с]<Рор>
 ```bash
 magnet:?xt=urn:btih:B921D599A62342C335A665FC2607CB682CC45618
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +587,8 @@ VA - Лучшая 100ка: Вечеринка продолжается!!! (2012)
 magnet:?xt=urn:btih:CFC3C8E7B56F34E3FEFC3C8372082AC809A17EEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +615,8 @@ Serebro - Не надо больнее (2015) [MP3|320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:CFDA36B00622EA1EFA7B52C7835367B840ECF4F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +651,8 @@ VA - На Вершине Европейских Чартов 8 50/50 (2012) [MP3
 magnet:?xt=urn:btih:42844191768BC73FE507B063049B311AB46025FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +676,8 @@ VA - Disco 80's Collection (198*) [MP3|320 кб/с]<Disco, Euro Disco, Italo Dis
 ```bash
 magnet:?xt=urn:btih:9B6A2F5BE1EEF8FC9A06B8C43CCA36214AD5CAAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +706,8 @@ VA - German Top 100 Single Charts 01.06.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:7F555AB8525F62378F4364B1AB93EA02D146E4E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +734,8 @@ VA - Мега Дискотека с Europa plus (2016) [MP3|256-320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:45B0FF5D66047E918A86D8EE17727CE6BB847F6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -685,6 +764,8 @@ VA - Disco Hits - Generation One (2016) [MP3|320 Kbps] <Disco>
 magnet:?xt=urn:btih:2C3DF52374C4EE4E82C70D83387BAD1723689218
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -711,6 +792,8 @@ VA - 250 Popular Planet Hits (2017) [MP3|256 Kbps] <Рор>
 ```bash
 magnet:?xt=urn:btih:CC0D856FC96F0A71248B4A4C5A94F9ACE78D5406
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -748,32 +831,7 @@ VA - Босса Нова - Cамая красивая музыка в СССР (
 magnet:?xt=urn:btih:CC7399CD44122FF9AD1F5396A3BB3688ACFDC46A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143693   (634970) от 18.06.2017
-
-140 ударов в минуту - Новое и лучшее (2017) [MP3|320 Kbps] <Dance, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Ресницы
-03. Я тебя люблю
-04. Глупая девчонка(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 04:25:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8396FE37C39DB3B2D0860DDBEE256D5C6FB4737
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

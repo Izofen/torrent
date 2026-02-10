@@ -20,6 +20,8 @@ Grease Pencil позволяет иллюстрировать (а также а�
 magnet:?xt=urn:btih:4596C13F591CD7F0C76C919EED6FE3F4202B8069
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ CG Boost, Zach Reinhardt | Sphynx Cat Sculpting in Blender 3D (2018) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:2BFDD3D115D36F80A37299569A6FE633C8B0353F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ CG Boost, Louis du Mont | Robotic Planet (2023) PCRec [EN / EN Sub]
 magnet:?xt=urn:btih:A70E43FC2CC542FD672EAF8054CC0E81FC267678
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:A70E43FC2CC542FD672EAF8054CC0E81FC267678
 magnet:?xt=urn:btih:92ED2A90AB6BF5795002245196F86EB787A33C9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ zbrush3d.com, Александр Галевский | Zbrush Проекты с �
 magnet:?xt=urn:btih:BB54FFC5C20DB282E8487C076422964DEF33429C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ WebRTCcourse, Tsahi Levent-Levi | Higher-level WebRTC Protocols (2023) WEB-DL [E
 ```bash
 magnet:?xt=urn:btih:2F7354DEC1F08F6BA4C2C9B9758E2A594676ED02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ TypeScript - это строго типизированный язык прог�
 ```bash
 magnet:?xt=urn:btih:EFC5422D89C39F9558C2F2A1ED641B1247B26193
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ education.empireschool | Excel и Google-таблицы (2023) WEB-DL [AD] [RU]
 magnet:?xt=urn:btih:82BCFDB7A8309CB7649C510D4C549976BB2AB078
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ learn.nestjs.com | NestJS. Architecture and Advanced Patterns (2023) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:31818A1D662CD15D5A00491A1C06D804BD28DCF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ WebRTCcourse, Tsahi Levent-Levi | Low-level WebRTC Protocols (2023) WEB-DL [EN]
 magnet:?xt=urn:btih:5D80DEA06F49C7D8E8769ACEBF097CD5E5CC6B34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:5D80DEA06F49C7D8E8769ACEBF097CD5E5CC6B34
 magnet:?xt=urn:btih:E73910BADA862CC0D8C91839434843F7351DE1BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ magnet:?xt=urn:btih:E73910BADA862CC0D8C91839434843F7351DE1BD
 magnet:?xt=urn:btih:6BAAEFC053084D94FF8C6BD6E3646FD5723A7326
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ Udemy, Jeremy Hazel, Lindsay Marsh | Learn the Entire Affinity Suite: Photo, Des
 ```bash
 magnet:?xt=urn:btih:B912E3E58CD1E464A336E2B122EFB5C7A54C89B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -354,6 +380,8 @@ magnet:?xt=urn:btih:B912E3E58CD1E464A336E2B122EFB5C7A54C89B9
 magnet:?xt=urn:btih:491F6208EB23BD0DE46BC3CBCCA482CCC0C38735
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ Liveclasses, Антон Мартынов | Adobe Firefly в Photoshop: быст�
 ```bash
 magnet:?xt=urn:btih:09C54EDD23A9E76BD34457B98815C57F9FD7CB6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +436,8 @@ magnet:?xt=urn:btih:09C54EDD23A9E76BD34457B98815C57F9FD7CB6B
 magnet:?xt=urn:btih:AA9D574A1AA569E6B38DD7B7210C489153FA29F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +464,8 @@ magnet:?xt=urn:btih:AA9D574A1AA569E6B38DD7B7210C489153FA29F5
 ```bash
 magnet:?xt=urn:btih:62EE063D1850E9D7F9D13095C735CE0CF74B1DC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +494,8 @@ tishbyme, Кристина Дмитриева | Mастер класс по ди
 magnet:?xt=urn:btih:FDAB5ABC6461178CFCB25FECEA46FB0FBB26563C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +520,8 @@ Softwaretesting, Арсений Батыров, Виталий Котов | Ав
 ```bash
 magnet:?xt=urn:btih:8C75CDAFB6BC21FA6F505FAA01EB27D8B0AC41B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +550,8 @@ Podlodka Crew | Podlodka QA Crew. Сезон 7. Оптимизируем про�
 magnet:?xt=urn:btih:8AC92B8530A239EA0F267B11E8594A169CC8823E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +575,8 @@ magnet:?xt=urn:btih:8AC92B8530A239EA0F267B11E8594A169CC8823E
 ```bash
 magnet:?xt=urn:btih:3C407BEFFCCAEA6E0A9FD72039AFEAD6EE4A83CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +602,8 @@ Stepik, Глеб Учитель | Проектирование архитект�
 magnet:?xt=urn:btih:C7B4919E32863D4F0B2B3FA09698CF5914446E4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +627,8 @@ frontcat1 | Грокаем собеседования. Frontend developer (2023)
 ```bash
 magnet:?xt=urn:btih:BD5961035E352E3065C0BAF4B469F184E62E100A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +654,8 @@ Let's Get Rusty | Rust Developer Bootcamp (2023) WEB-DL [EN]
 magnet:?xt=urn:btih:AF4F4674FC819E507D1D9DA78CC6B1A8CBAA013C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +679,8 @@ magnet:?xt=urn:btih:AF4F4674FC819E507D1D9DA78CC6B1A8CBAA013C
 ```bash
 magnet:?xt=urn:btih:9AF3F002E19CDF2666A58215CDB4051EFA8CF634
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -658,6 +708,8 @@ magnet:?xt=urn:btih:9AF3F002E19CDF2666A58215CDB4051EFA8CF634
 ```bash
 magnet:?xt=urn:btih:D5DC510C3D55EC3B06433007981D217979A97E1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

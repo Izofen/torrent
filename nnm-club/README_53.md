@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:E6EF4B321E124C7FF274A1183B7A69BFDE82B204
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:E6EF4B321E124C7FF274A1183B7A69BFDE82B204
 ```bash
 magnet:?xt=urn:btih:B4EEA9D51DEBBBDD2AE44910019A0FB12DBBC713
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Serati - бесплатный шрифт.
 magnet:?xt=urn:btih:11872B8FB2A3223CDFC591998DE64EC663592591
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ HOFA Color Delay предоставляет вам все знаковые зв�
 ```bash
 magnet:?xt=urn:btih:069CF5C4F69B4991F22FFCF005ACA80BBEFE906E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:069CF5C4F69B4991F22FFCF005ACA80BBEFE906E
 magnet:?xt=urn:btih:17D211CF85FC3A078D30D57EC494DE7F4FA1E5BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ GHOST поддерживает пользовательские волновые
 magnet:?xt=urn:btih:DA9FC48F5CC97DC6DAE6001954D0574B30C86FBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:DA9FC48F5CC97DC6DAE6001954D0574B30C86FBB
 ```bash
 magnet:?xt=urn:btih:9B404172EFEB42C38C6E51868ADD9A428C42E8C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ Oxtopus — это элегантное и удобное мобильное п�
 ```bash
 magnet:?xt=urn:btih:2B53DB5D590FA73A6AF16E667FBD275A254752AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ VA - 25 Years Of Anjuna Mixed by Elevven (2025) [MP3|320 Kbps] <Trance, Progress
 magnet:?xt=urn:btih:B57BD4FF1A59D9820A3C427EB7E0A5D6EBBEE519
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ Aquavit — это высококонтрастный гротесковый ш�
 magnet:?xt=urn:btih:C99818EF60EF2C80ACB269E03121AE349594422A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:C99818EF60EF2C80ACB269E03121AE349594422A
 ```bash
 magnet:?xt=urn:btih:C550B412AFC158ADFE9BEF6D88FBD5C0E8CC2356
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ magnet:?xt=urn:btih:C550B412AFC158ADFE9BEF6D88FBD5C0E8CC2356
 ```bash
 magnet:?xt=urn:btih:9E22E19790BC5120BFDAAF907CE0B39AB71196F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -329,6 +353,8 @@ Spinal Tap - The End Continues (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:7713B309C664CB34616DF12DF62C8453B5685F6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ magnet:?xt=urn:btih:7713B309C664CB34616DF12DF62C8453B5685F6F
 ```bash
 magnet:?xt=urn:btih:8D334EE620BE9E35C08E3C19E8D3D5F0342117ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +410,8 @@ Cruel Bomb - Cruel Bomb (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Cros
 magnet:?xt=urn:btih:3586081F3FD36C0A5F08428FEC9ACC95C52B0352
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +438,8 @@ Castle Rat - The Bestiary (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Doom Metal
 ```bash
 magnet:?xt=urn:btih:2C7E556AB719813FCD57844B68131192198D8B8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +468,8 @@ Chet Baker - The Italian Sessions (1962) 1996, RCA-Victor [FLAC|Lossless|tracks 
 magnet:?xt=urn:btih:802DA72BA5BA9CC82CFEB8ADCFEF4A786790AEEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +496,8 @@ Surrender The Crown - Travails (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Roc
 ```bash
 magnet:?xt=urn:btih:B3C9580B27C6377E88AD5BEDC9F2872C22D7D294
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +526,8 @@ Soziedad Alkoholika - Confrontación (2024) [FLAC|Lossless|image + .cue] <Metalc
 magnet:?xt=urn:btih:E550A3496627D90CC49D8C3CEC3DDABFEEF0A907
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +551,8 @@ magnet:?xt=urn:btih:E550A3496627D90CC49D8C3CEC3DDABFEEF0A907
 ```bash
 magnet:?xt=urn:btih:FC6D9FB3E10A9C5802A0EFD1831BD4DFE1D5F90F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +578,8 @@ Vivaldi 7.6.3797.55 include standalone [Multi/Ru]
 magnet:?xt=urn:btih:1E0E2A17CE17ABBC2BDFB6B9CE5F9C726A62BD49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +603,8 @@ magnet:?xt=urn:btih:1E0E2A17CE17ABBC2BDFB6B9CE5F9C726A62BD49
 ```bash
 magnet:?xt=urn:btih:539420B4FCDB9EBDDE454A3ADEE9CBCCE8F06964
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +630,8 @@ magnet:?xt=urn:btih:539420B4FCDB9EBDDE454A3ADEE9CBCCE8F06964
 magnet:?xt=urn:btih:82E1B85C5A92574DED06EB5721FB18536758344F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +655,8 @@ Affinity Publisher - программное обеспечение нового 
 ```bash
 magnet:?xt=urn:btih:54AC996667923874E9D16EB12175918B457086AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +682,8 @@ magnet:?xt=urn:btih:54AC996667923874E9D16EB12175918B457086AE
 magnet:?xt=urn:btih:C5CB0F96605D7755F1FFA21800D5CB5BC5BA59FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +707,8 @@ magnet:?xt=urn:btih:C5CB0F96605D7755F1FFA21800D5CB5BC5BA59FD
 ```bash
 magnet:?xt=urn:btih:E7CD257BC73F7F538D0B8F21926AC76692ABC72D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

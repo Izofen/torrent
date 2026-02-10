@@ -1,52 +1,3 @@
-###  Публикация: 417240   (316731) от 01.12.2011
-
-Картинки - Boxing (30.11.11) [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Картинки на тему бокса, с участием в сюжетах известнейших боксеров: М. Тайсона, Э. Холефилда, М. Али, Роя Джонса мл., Братьев Кличко, Н. Валуева, Л. Лъюиса и т.д.Формат: JPGРазрешение файлов: от 1000x750 до 3158x2586
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1F108198512A601B6F5C364252701E925B199F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 726992   (316735) от 29.11.2013
-
-Фантом / Phantom (2013) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kапитан советской подводной лодки держит в своих руках судьбу всего мира.
-Вынужденному покинуть свою семью, ему приходится возглавить секретную миссию окутанную тайной…Производство: США / RCR Media Group, Trilogy Entertainment Group, Solar FilmworksЖанр: триллерРежиссер: Тодд РобинсонАктеры: Эд Харрис, Дэвид Духовны, Уильям Фихтнер, Лэнс Хенриксен, Джонатон Шек, Джейсон Бех, Дагмара Доминчук, Дерек Магияр, Шон Патрик, Флэнери Джейсон, Грей-СтенфордПеревод: Профессиональный (многоголосый закадровый) (Лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский, Английский, Испанский, Нидерландский, Немецкий, Итальянский, Болгарский, Эстонский, Греческий, Латышский, Литовский, Польский, РумынскийПродолжительность: 01:34:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0E8A26F642DD184BFCABD1543A2419BA9BF3F3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 728435   (316754) от 29.11.2013
 
 А.А. Ананьев, С.Р. Грознов и др. | Кулинария (1966) [PDF]
@@ -67,6 +18,8 @@ magnet:?xt=urn:btih:E0E8A26F642DD184BFCABD1543A2419BA9BF3F3D
 ```bash
 magnet:?xt=urn:btih:9E228EBE84CF08F8EB6E1622611DC9433AE45CA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +44,8 @@ magnet:?xt=urn:btih:9E228EBE84CF08F8EB6E1622611DC9433AE45CA2
 ```bash
 magnet:?xt=urn:btih:2FD71F75A2BF0E33B1EFB3364C1278C409495BAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +72,8 @@ magnet:?xt=urn:btih:2FD71F75A2BF0E33B1EFB3364C1278C409495BAF
 magnet:?xt=urn:btih:9C42A05A4E29A3325D56CF79C3A9A9B8400811AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +97,8 @@ magnet:?xt=urn:btih:9C42A05A4E29A3325D56CF79C3A9A9B8400811AD
 ```bash
 magnet:?xt=urn:btih:FB344012C8CB2993888EB9C6C9DEF61E1DA476DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +124,8 @@ magnet:?xt=urn:btih:FB344012C8CB2993888EB9C6C9DEF61E1DA476DA
 magnet:?xt=urn:btih:34A3D4877DC121561058B49D52A7D45239CC4276
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +149,8 @@ magnet:?xt=urn:btih:34A3D4877DC121561058B49D52A7D45239CC4276
 ```bash
 magnet:?xt=urn:btih:A338EEA8385E69987E0A9A1EFC4A83E2F390A700
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +179,8 @@ Fumiko no Kokuhaku | Fumiko's Confession | Признание Фумико [2009
 magnet:?xt=urn:btih:59DA10DEBE88DB93570908832DB1B6DB4EE81EA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +205,8 @@ magnet:?xt=urn:btih:59DA10DEBE88DB93570908832DB1B6DB4EE81EA2
 magnet:?xt=urn:btih:764453BC0DCE89B42E3CEF621689301B5F646550
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +230,8 @@ magnet:?xt=urn:btih:764453BC0DCE89B42E3CEF621689301B5F646550
 ```bash
 magnet:?xt=urn:btih:554EFCBA4FE26DE42078A99CEE7D31D786F282EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +260,8 @@ magnet:?xt=urn:btih:554EFCBA4FE26DE42078A99CEE7D31D786F282EF
 magnet:?xt=urn:btih:43985E5EA47F9864839F72E3EBBB111A631B9FE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +286,8 @@ magnet:?xt=urn:btih:43985E5EA47F9864839F72E3EBBB111A631B9FE4
 ```bash
 magnet:?xt=urn:btih:76108DC688C99841A3363B8A7C1779A21BD64389
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +316,8 @@ The O’Neill Brothers - An O’Neill Brothers’ Christmas: Relaxing Piano (201
 magnet:?xt=urn:btih:D2F627AA5283B3E04F80A3EC69DD398F14FDC974
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +344,8 @@ magnet:?xt=urn:btih:D2F627AA5283B3E04F80A3EC69DD398F14FDC974
 magnet:?xt=urn:btih:2698F3A38B1B50C18FB0CE1B25E3974CC6F79464
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +369,8 @@ magnet:?xt=urn:btih:2698F3A38B1B50C18FB0CE1B25E3974CC6F79464
 ```bash
 magnet:?xt=urn:btih:18C653750766C008547ECE368603647DDE45A404
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +399,8 @@ VA - Record Super Chart 560 (2018) [MP3|320 Kbps] <House, Club, Dance>
 magnet:?xt=urn:btih:8987634ADF642E22E74EDDE9E2D881BD577515F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +428,8 @@ Spyro Gyra - Love & Other Obsessions (1995) [FLAC|Lossless|tracks + .cue] <Fusio
 magnet:?xt=urn:btih:FBBF8946CC65C948CBA7CBC8DA74A47BF8D19733
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +453,8 @@ magnet:?xt=urn:btih:FBBF8946CC65C948CBA7CBC8DA74A47BF8D19733
 ```bash
 magnet:?xt=urn:btih:16D1CA74984E24BE662719D2804D56F0764EA545
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +483,8 @@ Annihilator - For The Demented (2017) [FLAC|Lossless|image + .cue] <Thrash Metal
 magnet:?xt=urn:btih:DF005E63AE01614CF29FE6B98D4684B27D6B9273
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +511,8 @@ VA - October Hotzone (2018) [MP3|320 Kbps] <Dance, Pop, Dance House>
 ```bash
 magnet:?xt=urn:btih:404B8921D7F9301B797C9503238D9AAE29F6DA16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +541,8 @@ VA - Spiritual Liberation: Psychedelic Healing (2018) [MP3|320 Kbps] <Psy, Goa T
 magnet:?xt=urn:btih:90B37533C00E2B05269B32F75A14004B734A157F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +570,8 @@ Martini Ranch - Holy Cow (1988) Sire Records [FLAC|Lossless|tracks + .cue] <Elec
 magnet:?xt=urn:btih:14C0183B98F22DC5698AC2306B2699172633F9BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +595,8 @@ Comedy Woman (2017.11.10) SATRip
 ```bash
 magnet:?xt=urn:btih:D2B538459666D0198619848F7CC7F8FCA0405862
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +622,8 @@ magnet:?xt=urn:btih:D2B538459666D0198619848F7CC7F8FCA0405862
 magnet:?xt=urn:btih:2BB4924B32F5C49A0AD12255D3139949B35F8166
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +647,63 @@ magnet:?xt=urn:btih:2BB4924B32F5C49A0AD12255D3139949B35F8166
 ```bash
 magnet:?xt=urn:btih:0959531585A0EE6E3F4BDF5721CF7EC5B25EE0D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259824   (316782) от 05.11.2018
+
+Steve Lacy - Six Classic Albums (1956 - 1961) 4CD, 2017, Real Gone Jazz [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_316782.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Day Dream [4:24]
+02. Alone Together [6:45]
+03. Work [5:25](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 03:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D61B5DF5154253A70B4F87A4D44E3C322B1053E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182525   (316783) от 10.11.2017
+
+Голос (2017.11.10) HDTVRip (сезон 6, выпуск 11)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_316783.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Первый канал" объявляет о премьере нового сезона музыкального проекта "Голос". Из тысяч претендентов, приславших минувшим летом свои заявки на участие, отобраны полторы сотни тех, кто поднимется на ставшую уже знаменитой на всю страну сцену во время "слепых прослушиваний" в надежде покорить слух требовательных наставников. Зрителей (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ТВ-Шоу, развлекательныйСубтитры: ОтсутствуютПродолжительность: ~ 01:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7654A30F326AEFAD9702C6A271CDD0AF87559F9
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

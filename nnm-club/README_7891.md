@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:B695DF0DFE3E6CB29A4FA2F180A817D7D4E2C529
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Lattermath - Lattermath (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 magnet:?xt=urn:btih:B9FD5F1FE6EA0DF58FF167220CBEF73661D700E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:B9FD5F1FE6EA0DF58FF167220CBEF73661D700E8
 ```bash
 magnet:?xt=urn:btih:6D2EBF1AD7DAE6C93DA0CC14BD1EA494B443EAF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ Mojo Monkeys - Mojofo (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:C23C7E817EC35D4BCB35BD8FD9DF173A9A22EC89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ Elvenking - Reader of the Runes - Rapture (2023) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:933AB99AA39D8553FFF04E0159BB97E8001F3AF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -152,6 +162,8 @@ VA - Smooth Jazz n Chill 2 (2017) [AAC|~344 Kbps] <Jazz>
 magnet:?xt=urn:btih:5C6214F900510CA535597EEC00980D570A2E8874
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:353ABF2FF5C4975BC4B1452FFEB3797C21DE235F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +217,8 @@ Vlatko Stefanovski - Cowboys & Indians (1994) [FLAC|Lossless|tracks + .cue] <Roc
 magnet:?xt=urn:btih:2FC86074CB60FC33D1C9BE9973B52D0CE7706815
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ Applied Houdini ("Houdini на практике") - это серия видео
 ```bash
 magnet:?xt=urn:btih:8468644231F9FCB2D997BCF6AED4F28DF4BDC9FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 magnet:?xt=urn:btih:1DEFD7E80DE91CB46D29F5103D7EBC6FD9BE54C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:1DEFD7E80DE91CB46D29F5103D7EBC6FD9BE54C9
 magnet:?xt=urn:btih:2238280872CFF543E36D276282D37A4FD1054C58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ magnet:?xt=urn:btih:2238280872CFF543E36D276282D37A4FD1054C58
 ```bash
 magnet:?xt=urn:btih:7382643BFB5CF0DC85F60E56DEA14F3F25CF41BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +351,8 @@ VA - Beautiful Metamorphosis, Vol. 1 (2021) [AAC|~307 Kbps] <Downtempo, Lounge, 
 magnet:?xt=urn:btih:CD7652D90901706F2AFDE60FA0122599BD4B205C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ A4 Эта Рена(   Читать дальше...   )Жанр: PopПродол�
 magnet:?xt=urn:btih:01940AFC53BFABA545CD4072615D960EE8E4B80C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ EF Commander  — замечательный двухпанельный файл
 magnet:?xt=urn:btih:47F36905668CE4AC614D6B9C9843D098EA32ECD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ magnet:?xt=urn:btih:47F36905668CE4AC614D6B9C9843D098EA32ECD2
 ```bash
 magnet:?xt=urn:btih:EBA7BC24FC4D212ACA78A9C359B4BBEE16833CD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +461,8 @@ Planet On A Chain - 2 Albums (2022-2023) [MP3|320 Kbps] <Alternative, Hardcore>
 magnet:?xt=urn:btih:82091BC0FBA4E5D96EA3E9515EE89534571C7AB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ AssetsGen 4.0 [En]
 ```bash
 magnet:?xt=urn:btih:6B759F50E73CDCDA880E53C7BC48EB56BFE2B58B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +516,8 @@ VA - Fifty Shades of Lounge - 50 Smooth & Sexy Chill Tunes 4 Erotic Moments (201
 magnet:?xt=urn:btih:F65208FCC6FFDEF456B25B44430CBA87FCC88EE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ magnet:?xt=urn:btih:F65208FCC6FFDEF456B25B44430CBA87FCC88EE1
 ```bash
 magnet:?xt=urn:btih:C91115CA4B164BD10826C50A64660EAFA988CB2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +574,8 @@ Joel Hoekstra's 13 - Running Games (2021) [FLAC|Lossless|image + .cue] <Hard Roc
 magnet:?xt=urn:btih:398845720246E1AA08793A69525166A847EFC2AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +599,8 @@ Ultimaker Cura - популярный слайсер для 3d-печати. О�
 ```bash
 magnet:?xt=urn:btih:8C9C15B130F48DD718E2BDBFA91F9C4C19B31186
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +627,8 @@ A Better Finder Rename является лучшим решением для а�
 magnet:?xt=urn:btih:1C70E9AF9B763769A72D0B4360875A414F7AC596
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +652,8 @@ magnet:?xt=urn:btih:1C70E9AF9B763769A72D0B4360875A414F7AC596
 ```bash
 magnet:?xt=urn:btih:DEB22CBC766D3F900E5592A918F1567B06B2D940
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +682,8 @@ VA - The Perfect Soulful Vol.2 (Chillout Your Mind) (2021) [AAC|~299 Kbps] <Loun
 magnet:?xt=urn:btih:C1DD318C5980BDC74908E78867D58F3C1026349F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +707,8 @@ magnet:?xt=urn:btih:C1DD318C5980BDC74908E78867D58F3C1026349F
 ```bash
 magnet:?xt=urn:btih:7E964C40D0206C2561D10FA62917201EA6459CE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

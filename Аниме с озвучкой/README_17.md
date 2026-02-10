@@ -20,6 +20,8 @@ Tenchi Muyou! Ryououki | Tenchi Muyo! Ryo-Ohki | Тэнти - лишний! Рё
 magnet:?xt=urn:btih:98716404496B552965385C74BE963FCAD7FC871F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Bokutachi wa Benkyou ga Dekinai [TV-2] | Мы не можем учиться! [�
 ```bash
 magnet:?xt=urn:btih:314E79E40459E24665CE8E134360A6DAE06FCCD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Santa Company / Компания Санты [2014, Movie] BDRip 720 10-bit Raw+R
 magnet:?xt=urn:btih:72F8624EEE116EDC0AE7F080DE8AADFDCFB08026
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Kobayashi-san Chi no Maidragon S | Miss Kobayashi's Dragon Maid S | Кобаяс
 ```bash
 magnet:?xt=urn:btih:20BC22D087D50F11D20F82A8DE3F63769A5AB0A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ UQ Holder! Mahou Sensei Negima! 2 / Владелец вечности! Волш�
 magnet:?xt=urn:btih:8EB1414EF554C831DED871BB1B654764392AF64D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Bungou Stray Dogs / Бродячие псы литературы [2016, TV, 24 e
 ```bash
 magnet:?xt=urn:btih:524D44A45A1DFF51DC4499825EB0833E2D065000
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Masamune-kun no Revenge R | Masamune-kun's Revenge R | Месть Масамун
 magnet:?xt=urn:btih:4FBFBED6C99163935D5188FD2BC128547F2D13A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Eiga Daisuki Pompo-san | Pompo: The Cinephile | Киноманка Помпо [2
 ```bash
 magnet:?xt=urn:btih:5817D7A50BD927C71961F66A5163DE90EB897F50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:5817D7A50BD927C71961F66A5163DE90EB897F50
 magnet:?xt=urn:btih:4B503456D0CB0834E64055AB9BC9D9D51D233D75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Mahouka Koukou no Rettousei: Raihousha Hen / The Irregular at Magic High School:
 ```bash
 magnet:?xt=urn:btih:1B352F345692ECA093E675166592E89C787C2DCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Koe de Oshigoto! The Animation / Работа для голоса [2010, OVA, 2 
 magnet:?xt=urn:btih:73ACD3A2DA01D012863AAEE18BEEDCBF58353171
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Two Car / Двое за Рулем [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
 ```bash
 magnet:?xt=urn:btih:4038EBBF3862E866D03DAE2D284B90D4628B934D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Owari no Seraph: Nagoya Kessen Hen / Seraph of the End: Battle in Nagoya / По�
 magnet:?xt=urn:btih:489AE113229E2C0481945A286DA82DDC15EE6C5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Mob Psycho 100 | Моб Психо 100 [2016, TV, 12 эп.] BDRip 1080p rus
 ```bash
 magnet:?xt=urn:btih:650502686C23BCD2894ADE626FC2470ADEB54301
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Kekkai Sensen & Beyond / Стражи Барьера и Загранье [ТВ-2
 magnet:?xt=urn:btih:8C4A343CAEB5E73C77E49ABFE62C8D2F981B1C5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Dies Irae / Судный День [2017, TV, 11 ep + SP] WEB-DL 720p Raw+Rus
 ```bash
 magnet:?xt=urn:btih:8DB89365163536CE81A940324115BAC6245ED244
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Kino no Tabi: The Beautiful World / Kino’s Journey -the Beautiful World- / П�
 magnet:?xt=urn:btih:6057850A07C2A67026D94CA78216472BEB30E26A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Konohana Kitan / Сказания о Конохане [2017, TV, 12 ep] WEB-DL 7
 ```bash
 magnet:?xt=urn:btih:BC871614D1071202E56A9DF1F0A1BAA21F03C92F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Hataraku Saibou | Cells at Work! | Клетки за работой [2018, TV, 1
 magnet:?xt=urn:btih:A13389E1BA70E0A7FF3556DBF5E58CCCBCC2538D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Drifters / Скитальцы [2016, TV, 12 ep] WEB-DL 720p Raw+Rus
 ```bash
 magnet:?xt=urn:btih:EFF1AA72F42E87CC72C5B08E9D0F2011C0DA6726
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ Gekijouban KanColle / Gekijouban Kantai Collection / Fleet Girls Collection KanC
 magnet:?xt=urn:btih:E1D9721ACB158522E87D7B9868109FF9015E9B6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ Ihara Saikaku Koushoku Ichidai Otoko | The Sensualist | Мужчина, неср
 ```bash
 magnet:?xt=urn:btih:1A46C889D033AD095FD271509551B749D7685FBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ magnet:?xt=urn:btih:1A46C889D033AD095FD271509551B749D7685FBF
 magnet:?xt=urn:btih:53E62BDE36F63CE058BF6AF7136375CE0DD1A837
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ Subete ga F ni Naru: The Perfect Insider / Everything Becomes F: The Perfect Ins
 ```bash
 magnet:?xt=urn:btih:6B3043B7A960A761488A5DB9C60B23E535D42EB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ Occultic;Nine / Оккультная девятка [2016, TV, 12 ep] WEB-DL 720
 magnet:?xt=urn:btih:0041384E45F6D41FC7200F0E9F1C13EB07EC42B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ magnet:?xt=urn:btih:0041384E45F6D41FC7200F0E9F1C13EB07EC42B4
 ```bash
 magnet:?xt=urn:btih:9E92D77CF9F19B97690C586BD5871636B1CF5A60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -28,6 +28,8 @@ VA - Супер Дискотека 90-х Лучшие из Лучших 50/50 (2
 magnet:?xt=urn:btih:F168D1103E36B35BEB6FBB61C6286C2F0029D146
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ VA - Топ 100 NRJ 11 50/50 (2012) [MP3|256 kbps]<Club>
 ```bash
 magnet:?xt=urn:btih:0A6282032E3E72BC63676F2F9797D312934B8439
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ VA - Малина Красная №12 Весна (2012) [MP3|128 kbps]<Шанс
 magnet:?xt=urn:btih:9E1C1549C629EB81902E3103B9F85716D97C47D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +132,8 @@ VA - Взгляд назад (2012) [MP3|320 кб/с]<Рок>
 ```bash
 magnet:?xt=urn:btih:CFA9DF351D4E7233349D914669592A6548B64A75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +168,8 @@ VA - 100 Русских рок хитов - Ностальгия (2012) [MP3|~24
 magnet:?xt=urn:btih:CBC2E783BFDE9C4537C8488A5AC62881120E7977
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +202,8 @@ CD 1.
 ```bash
 magnet:?xt=urn:btih:9329039E6D10EC026E8EC51F30E7283A4DC282B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +238,8 @@ VA - Best of Europe Club Hits, Vol.2 (The Ultimate Trance and Dance Session) (20
 magnet:?xt=urn:btih:890870F0DB1FC5016A8D363083059FCD656B0B49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +272,8 @@ VA - Super Italo Disco (2012) [MP3|128 kbps]<Pop | Disco>
 ```bash
 magnet:?xt=urn:btih:85AD03A29B40D7C87D651755704DED5C8981F66E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +308,8 @@ VA - Убойные хиты Europa Plus 3 50/50 (2012) [MP3|256 kbps]<Pop>
 magnet:?xt=urn:btih:05E134CD41B4536C9E2F52CB9BAFA160EFC93DA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +342,8 @@ VA - Шансон Десятилетия 3 CD(2012) [MP3|320 кб/с]<Шансо
 ```bash
 magnet:?xt=urn:btih:734212A935041E1EAA2D003F1F92DD27EFD6622D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +378,8 @@ VA - Топ 100 Europa Plus 4 50/50 (2012) [MP3|256-320 кб/с]<Pop>
 magnet:?xt=urn:btih:54885B32F042C84E70249E8EB359BB0967A3A0AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +412,8 @@ VA - Шансон Года Часть 4 (2012) [MP3|256-320 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:30CBBDD44D05DC0067CB718899DBA627EBFCEF63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +448,8 @@ VA - Южный Хит Парад (2012) [MP3|256 kbps]<Pop>
 magnet:?xt=urn:btih:3CB888CBEB0A7F761F551A4B1AD80196B43BF1E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +482,8 @@ VA - Топ 100 Продвинутый Русский (2012) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:BAAF98762FEFF26A8976ED40869570323B95083F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +518,8 @@ VA - Музыка для отличного настроения (2012) [MP3|256
 magnet:?xt=urn:btih:9DE4EA9C80FD71E931BF723590B466245882A07C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +552,8 @@ VA - Лучшие Песни Русского Радио 5 (2012) [MP3|256-320 k
 ```bash
 magnet:?xt=urn:btih:4AA19DEFFFD4332C42282A8D2588E07EA9FCAD98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +588,8 @@ VA - Europa Plus Включи Весь Мир! Весна 50/50 (2012) [MP3|128 
 magnet:?xt=urn:btih:0962622A03CFA71F480CD1D6CB8120902C551677
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +622,8 @@ VA - В Машину! Зарубежный (2012) [MP3|256 kbps]<Pop | Dance>
 ```bash
 magnet:?xt=urn:btih:7D26B0935A3DE7DCE366E3FF866BE664CB8BA180
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +658,8 @@ VA - The Best Of Lounge Music (2012) [MP3|320 kbps]<Chillout | Lounge>
 magnet:?xt=urn:btih:6EEC6F23D3845AE38C1B84EB2BF5F40445321928
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +692,8 @@ VA - Disco Remix DJ (2012) [MP3|320 kbps]<Disco | Dance | Club>
 ```bash
 magnet:?xt=urn:btih:E46B0476A87C683A2CE4B53348284DA1F6A5E59E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -688,6 +728,8 @@ VA - Beatport Top 100 Download April (2012) [MP3|320 kbps]<House | Dance | Tranc
 magnet:?xt=urn:btih:952FCFCDFDE2AF04C429403DA63C595A2F2990D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -720,6 +762,8 @@ VA - Музыка для хорошей компании (2012) [MP3|256 кб/с
 ```bash
 magnet:?xt=urn:btih:B0EDC03CAB1C8FFD4E841413B16C4B1DAB7DC931
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -754,6 +798,8 @@ VA - Дискотека 90-Х Часть 2 (Mixed by Alex Mega) (2012) [MP3|320 
 magnet:?xt=urn:btih:7087145DF548FC629C489654FFBBC24576806BB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -786,6 +832,8 @@ VA - Музыка для успокоения и отдыха (2001) [MP3|192 к
 ```bash
 magnet:?xt=urn:btih:39DD4782B9D60817BE3F55D0BDFEE3A8DB244785
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -820,6 +868,8 @@ VA - Top 100 Зайцев.нет (11.04.2012) (2012) [MP3|128-320 kbps]<Alternat
 magnet:?xt=urn:btih:5D64B2F8EEC5BAC7204B936CAFFB5CD1340A4588
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -852,6 +902,8 @@ VA - 100 Most Beautiful Love Songs (2006) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:2A795B8226E1D3B074305FC8F3E3BC3678DD902F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ VA - Record Super Chart 03.12.2022 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:B84C595F2F988592264057CB956BB2CCAA1FEEC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:B84C595F2F988592264057CB956BB2CCAA1FEEC1
 ```bash
 magnet:?xt=urn:btih:BB4F743170D2BF05027FD0FCE97AC3F9666B919D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:BB4F743170D2BF05027FD0FCE97AC3F9666B919D
 magnet:?xt=urn:btih:05C7767EDB3AD1D50311696B1968FF0C59708E72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:05C7767EDB3AD1D50311696B1968FF0C59708E72
 ```bash
 magnet:?xt=urn:btih:1C413EB49217F1B854AF6B5F05D9335275796A65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Butcher - 666 Goats Carry My Chariot (2020) [FLAC|Lossless|WEB-DL|tracks] <Speed
 magnet:?xt=urn:btih:9B6A8401B35A8B28DEBD745E715BDB53DD8B3A59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Things — приятный и простой ежедневник. Это ид�
 magnet:?xt=urn:btih:EA1F82E5DDB5665EBACBFC1337C622AEFCC75237
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:EA1F82E5DDB5665EBACBFC1337C622AEFCC75237
 ```bash
 magnet:?xt=urn:btih:91E8C62071DF0DA9265D73F944CFD0E9BC65CE38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ Thenx v4.29 Mod by  Alex.Strannik [En]
 magnet:?xt=urn:btih:280A080A13B9F5D1AACE5141609EC42198DD2D42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ Unite позволяет быстро и легко превратить веб-
 ```bash
 magnet:?xt=urn:btih:9C3F215601ADAE2A66BAAA9E9AE0F72779C60E07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:9C3F215601ADAE2A66BAAA9E9AE0F72779C60E07
 magnet:?xt=urn:btih:C8D4031EE57DEB19325352AC7D2B59A18074D9C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:C8D4031EE57DEB19325352AC7D2B59A18074D9C8
 ```bash
 magnet:?xt=urn:btih:ECD8D6DADF5C7B3955F623C8FD7AEF62577CABA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ Leæther Strip - Æppreciation III Deutsche Wælle (2018) [AAC|~344 Kbps] <ebm, 
 magnet:?xt=urn:btih:A21AAF33F6CB9D7B29D39D7A1EAC9448C1E95609
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ Lock Me Out v7.0.6 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0FCEB6C25769E7FB11FFE4EF201E24EA5631E248
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:0FCEB6C25769E7FB11FFE4EF201E24EA5631E248
 magnet:?xt=urn:btih:53FDD021F4096931BEFA8C5FFD65DEBC02C8AB30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:53FDD021F4096931BEFA8C5FFD65DEBC02C8AB30
 ```bash
 magnet:?xt=urn:btih:BC938A2869F4EABDBFCCD3FE7CF626998A77339B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ Leæther Strip - Æppreciation II (2018) [AAC|~351 Kbps] <ebm, industrial, dark 
 magnet:?xt=urn:btih:F78A270AA371B6A083178C5E7A4CFD84748B4618
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ Light Image Resizer - программа для изменения размер�
 ```bash
 magnet:?xt=urn:btih:A954760C3D626AF9099BE1C4B45AD4D443C65F66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:A954760C3D626AF9099BE1C4B45AD4D443C65F66
 magnet:?xt=urn:btih:7531DEB5D3D80C10E25BE72419840075D4980789
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ magnet:?xt=urn:btih:7531DEB5D3D80C10E25BE72419840075D4980789
 ```bash
 magnet:?xt=urn:btih:3ABDFE1DBC9BCB9D90E55197E3A2FF02AAAE89FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ Disturbed - Believe (2002) [FLAC|Lossless|tracks + .cue] <Nu Metal, Alternative 
 magnet:?xt=urn:btih:B0D3CDB00F392092FDB9F92B6167A90E5B61EB81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +565,8 @@ VA - Solo Divas Volumen 1 (2023) [MP3|320 Kbps] <Pop, Soul>
 magnet:?xt=urn:btih:CD8D4DD9B254526BDA4E9064CE7667E346BF632B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ magnet:?xt=urn:btih:CD8D4DD9B254526BDA4E9064CE7667E346BF632B
 ```bash
 magnet:?xt=urn:btih:92F3B54CD6E297386CBA4EE04D5809F7ACB0ABE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ Outland - Where Do We Go From Here? (2022) [FLAC|Lossless|image + .cue] <Melodic
 magnet:?xt=urn:btih:8FD214DB120EAD6821841CD48215D5356C3903AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:8FD214DB120EAD6821841CD48215D5356C3903AD
 ```bash
 magnet:?xt=urn:btih:16516C15A2E6BEC60D5D74FBD987C0519FEF051D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +674,8 @@ magnet:?xt=urn:btih:16516C15A2E6BEC60D5D74FBD987C0519FEF051D
 magnet:?xt=urn:btih:E1DB5351D31C76DA984D4541E0C11F22E70A198B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ Disturbed - The Sickness (2000) [FLAC|Lossless|tracks + .cue] <Nu Metal, Alterna
 ```bash
 magnet:?xt=urn:btih:6AACD8DC8533A51772804B36C287B8754F03796D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

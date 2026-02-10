@@ -22,6 +22,8 @@ Hal Singer & Jef Gilson - Soul Of Africa (1974) 2008, Kindred Spirits [FLAC|Loss
 magnet:?xt=urn:btih:706B454EC59FB72237F5B0505212F959A9CB2EC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Akshay Kulkarni и др. | Applied Recommender Systems with Python (2023) [PDF] 
 ```bash
 magnet:?xt=urn:btih:988A0065E4F11E884E31E37BE5A9ABB5C5F9A364
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ Chico Hamilton - Three Classic Albums Plus (1953 - 1956) 2CD, 2008, Avid Jazz [F
 magnet:?xt=urn:btih:CF3D0DA485AA259C5C8CC44BBD4343BF740F4A92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Mirillis Action! 4.32.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3096C4653E1FB05C594B256CB9730B39C3FF8941
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ magnet:?xt=urn:btih:3096C4653E1FB05C594B256CB9730B39C3FF8941
 magnet:?xt=urn:btih:1F4FB49BC52BE9D2C9F8CC2CE53F987165B7B2C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ magnet:?xt=urn:btih:1F4FB49BC52BE9D2C9F8CC2CE53F987165B7B2C0
 magnet:?xt=urn:btih:B4A703BD3E8064E5F5EE5B8238FFF939317E423A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:B4A703BD3E8064E5F5EE5B8238FFF939317E423A
 ```bash
 magnet:?xt=urn:btih:B11653BAE799920DB0D0C4C87606420CF06C959E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +217,8 @@ UNKLE - Rōnin I (2021) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, Leftfield, Elec
 magnet:?xt=urn:btih:767CE5A4E16F6A460D0B5DC4C8D2AB50BCA3E28E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ Unarchiver - Unzip RAR ZIP - простое в использовании при
 magnet:?xt=urn:btih:541021F6C93CA9722D2BBEE6C629BBD3B1E55DB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ UniBook - Аудиокниги v0.6.4 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:5349D4347D8DF5F5A1DB125F131EC4696587BF28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +298,8 @@ The Dead Krazukies - From the Underworld (2023) [FLAC|Lossless|WEB-DL|tracks] <P
 magnet:?xt=urn:btih:A2896C074DAF1B9F146E3F53B720DF7B50174B59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:A2896C074DAF1B9F146E3F53B720DF7B50174B59
 magnet:?xt=urn:btih:5C4F112F4542D7646567E6A103368E55699DDFA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:5C4F112F4542D7646567E6A103368E55699DDFA1
 ```bash
 magnet:?xt=urn:btih:41009B33A84736087C6475E5F8E580F3631CC702
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ VA - Free And Romantic Country (2023) [MP3|320 Kbps] <Country, Folk, Rock>
 magnet:?xt=urn:btih:15D8CD11016D79597C6999456DBC1267F4A4E1A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ magnet:?xt=urn:btih:15D8CD11016D79597C6999456DBC1267F4A4E1A9
 ```bash
 magnet:?xt=urn:btih:5F140C532E921E6692D22DF73F91C225A6BEE285
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +434,8 @@ Chicasss - 2 Albums (1989, 1990) Collection [MP3|320 Kbps] <Pop, Europop>
 magnet:?xt=urn:btih:D8EDA9A05AA7B26D7046A7FCB0A02C1834F07B26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +460,8 @@ UninstallView - это инструмент для Windows, который со�
 magnet:?xt=urn:btih:2E37D669BDDB97961ED8196DD79211725ECA7A7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ Futuremark 3DMark 2.22.7359 Professional Edition RePack by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F49BB36CA0BD548DA23318427566BE400E8A00CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ T-Model Ford - Jack Daniel Time (2008) [FLAC|Lossless|tracks + .cue] <Delta Blue
 magnet:?xt=urn:btih:06D29BE6A98C49204F6B442AE4201F2B6BEAF377
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ Entombed — шведская дэт-метал-группа, сформиров
 magnet:?xt=urn:btih:202CA229E76592ACD22373D03DC113A984759380
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +570,8 @@ magnet:?xt=urn:btih:202CA229E76592ACD22373D03DC113A984759380
 magnet:?xt=urn:btih:72F6AFF427E8A5CC6D026BBE5134732C41EA0F41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +595,8 @@ Aurora — это красочный скин для Poweramp 3. Вы может
 ```bash
 magnet:?xt=urn:btih:909CFEBEA269395CE0CDD64AE2F14E2D1F0E2E3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +625,8 @@ VA - Infrasonic Spring Selection (2023) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:694939C2255942661A0C6F98CF7A2AB808FC7650
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +654,8 @@ Annette Humpe - Solo (серия "Другие восьмидесятые") (199
 magnet:?xt=urn:btih:0EC836E86623901511284A77489D57B669C5CB1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +681,8 @@ magnet:?xt=urn:btih:0EC836E86623901511284A77489D57B669C5CB1D
 magnet:?xt=urn:btih:A22E23C327DF7F1329B94AAB4D4524A87259E950
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ magnet:?xt=urn:btih:A22E23C327DF7F1329B94AAB4D4524A87259E950
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

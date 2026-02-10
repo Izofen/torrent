@@ -1,3 +1,32 @@
+###  Публикация: 1376219   (860166) от 17.04.2020
+
+Tech N9ne - ENTERFEAR (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Die? (Intro 1) [02:58]
+02. Suckseed (Intro 2) (feat. Krizz Kaliko, King Iso) [03:09]
+03. Outdone [03:17]
+04. Look What I Did (feat. Flatbush Zombies, Jehry Robinson) [04:20](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:00:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:165E46AAAAE92AFC40D96700418ADB6A3F2C6837
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376215   (860245) от 17.04.2020
 
 RAM (Грязный Рамирес) - SADEASTWOOD (2020) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
@@ -21,6 +50,8 @@ RAM (Грязный Рамирес) - SADEASTWOOD (2020) [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:CFEFE17935604054869D2B580CD2DC6D001398C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -55,6 +86,8 @@ Toni Braxton - Secrets (1996) [MP3|320 кб/с]<R&B>
 magnet:?xt=urn:btih:7DE51EA4CF4559B9481083DFF4716F8115513A35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,6 +114,8 @@ R.A. The Rugged Man - All My Heroes Are Dead (2020) [MP3|320 Kbps] <Hip-Hop, Rap
 ```bash
 magnet:?xt=urn:btih:541CC2CF32AA2523AA50F603B8E152724A3FA697
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +144,8 @@ RJD2 - The Fun Ones (2020) [MP3|320 Kbps] <Abstract Hip-Hop, Experimental>
 magnet:?xt=urn:btih:BD124B5AAC35D942C80F4AFBC1C973F669E63D8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -134,6 +171,8 @@ Jah Khalib - 911 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:950E235FF2AE848F1C846C1B570C1D26FBA5CC2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -162,6 +201,8 @@ Shabazz Palaces - The Don Of Diamond Dreams (2020) [MP3|320 Kbps] <Abstract Hip-
 magnet:?xt=urn:btih:148D420983509EF30206EE9A535F334261A74751
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +229,8 @@ R.A. The Rugged Man - All My Heroes Are Dead (2020) [FLAC|Lossless|Web-DL|tracks
 ```bash
 magnet:?xt=urn:btih:384A7678FA9080AAB0B729D5C47608E757D1BDBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +259,8 @@ RAM (Грязный Рамирес) - SADEASTWOOD (2020) [MP3|320 Kbps] <Rap, Hi
 magnet:?xt=urn:btih:E84D5D97543E38C5FBE5DEFEC4777C0FA3B08DCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +288,8 @@ magnet:?xt=urn:btih:E84D5D97543E38C5FBE5DEFEC4777C0FA3B08DCC
 magnet:?xt=urn:btih:6C7E24666679AE8A4554F823048E1A86DB0CD5D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +316,8 @@ Fardi - Черный сад, часть 1 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:7A538D33A586C1BCC7648A27297970C2C6A4FDDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +347,8 @@ ATL - Acid Houze (Mixtape) (2014) [MP3|320 кб/с]<Rap, Hip-Hop>
 magnet:?xt=urn:btih:B000BB12EDE41CB2BDB7612AF6260C3CE5418BF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +375,8 @@ Anacondaz - Выходи за меня (2017) [FLAC|Lossless|WEB-DL|tracks] <Rap
 ```bash
 magnet:?xt=urn:btih:84CF8992A8AC61C2908807652A8477BEA4E56504
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +405,8 @@ Anacondaz - Выходи за меня (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:45E2666C77125BB5252C16C690184FEBE0AD8737
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +433,8 @@ VA - Chillhop Essentials Fall (2021) [FLAC|Lossless|Web-DL|tracks] <Chillhop, In
 ```bash
 magnet:?xt=urn:btih:C9038653FF384674B0F96D01363E36CDE84ECDB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +463,8 @@ magnet:?xt=urn:btih:C9038653FF384674B0F96D01363E36CDE84ECDB2
 magnet:?xt=urn:btih:6AF5297EBB015ADFD2F3C2C82B8D3FC8A3F9DDFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +491,8 @@ Loc-Dog - Крылья (2017) [MP3|320 Kbps] <Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:D0A2D3E0BDF3CC9CCB5BB2EB97DC748823D96786
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +521,8 @@ Centr - Система (2016) [MP3|320 кб/с] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:A166E79AE9FE3A9B938FCE7885E20F4327B08AF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +550,8 @@ CENTR - Качели (2007) [FLAC|Lossless|tracks + .cue] <Rap>
 magnet:?xt=urn:btih:3C19B5DC26A0946755571835B49A3693750BFBD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +578,8 @@ Jonny Craig - Find Your Home (2020) [MP3|320 Kbps] <R&B, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:24EE8C5C10DF8637847FE95490B6012CABC08CC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +614,8 @@ Eminem - Things Get Worse (2011) [MP3|192 kbps]<Rap, Hip-Hop>
 magnet:?xt=urn:btih:1D14BDA914F10D918FC61FE7C232500EEB25E461
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +642,8 @@ Sadistik - Delirium (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:0287636041F446646465725561E943F619C293C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +672,8 @@ Bahh Tee - 10 лет спустя (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:2F694AE5F367CEDA94E214AA542E9BB65E17B46F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +700,8 @@ T-Fest - Выйди и зайди нормально (2020) [MP3|320 Kbps] <Rap,
 ```bash
 magnet:?xt=urn:btih:67D7DC5E2D3DB5F925C79650D26B91683FF3ECC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -655,6 +730,8 @@ etnaise - NEO (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:27DA2D0E721A8A201454441850A39FD14D36ADC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -682,32 +759,7 @@ Young P&H - Квартал делает числа (2020) [MP3|320 Kbps] <Rap, H
 magnet:?xt=urn:btih:57B9E8FD304AA1B780CD91ABA699C5C9D868AD06
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374498   (873156) от 10.04.2020
-
-zavet - Жилы (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873156.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 (Продолжительность: 00:34:37):
-01. Зелёная змея [02:18]
-02. Мотоцикл [02:35]
-03. НКВД [02:27](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:11:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35FC3E21E3302CD4A4E65C6EF20C32E268C6CD69
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:B8F91F01F843B8449D95D6B0DD90E6D2789288DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Drive by Wire - Spellbound (2018) [FLAC|Lossless|tracks + .cue] <Psychedelic, St
 magnet:?xt=urn:btih:116841A0EBC9653CEF504B407BB37CC493FDDF6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:116841A0EBC9653CEF504B407BB37CC493FDDF6D
 ```bash
 magnet:?xt=urn:btih:C9B5B46FB9E0CE5F31109A7635F8160CF78654CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ CD1:
 magnet:?xt=urn:btih:D6E05675D1B15623E7EC57FBC3719386DB298E7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:D6E05675D1B15623E7EC57FBC3719386DB298E7A
 ```bash
 magnet:?xt=urn:btih:A23998940CDA8E751191D49A35D9DC7662F6FD31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:A23998940CDA8E751191D49A35D9DC7662F6FD31
 magnet:?xt=urn:btih:39491274048B86329547F517C7F30B5243D0D44F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:39491274048B86329547F517C7F30B5243D0D44F
 ```bash
 magnet:?xt=urn:btih:B458E76485F0C890E7E68D8C222389E794B38FA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ Michel Legrand - Legrand Jazz (1958) [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Jazz
 magnet:?xt=urn:btih:F9664897486EBDB6E8D5CA8CF1AADEF4ABB3A8D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:F9664897486EBDB6E8D5CA8CF1AADEF4ABB3A8D9
 ```bash
 magnet:?xt=urn:btih:03A465663D66ECD065329D0A4C394F7FC336A671
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ VA - Alpine Grooves X (Kristallhutte) (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep
 magnet:?xt=urn:btih:49CAE218325FFB723F5F7413AAA0250DBBDC406D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:49CAE218325FFB723F5F7413AAA0250DBBDC406D
 magnet:?xt=urn:btih:73236BAA68B522562B4F929FB8FD291713C5F2F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:73236BAA68B522562B4F929FB8FD291713C5F2F1
 ```bash
 magnet:?xt=urn:btih:259C89FEFE0D490F322CE402355016E29053DA37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ VA - Equilibrium (2015) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 magnet:?xt=urn:btih:3744698BFD73EEA6D6204575E962C4C6D777CC9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:3744698BFD73EEA6D6204575E962C4C6D777CC9A
 ```bash
 magnet:?xt=urn:btih:705DB815516E49886613976A870004988B159BD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ Karl Jenkins - Symphonic Adiemus (2017) [FLAC|Lossless|tracks + .cue] <Classical
 magnet:?xt=urn:btih:0DB96D6BFF1E1D078573118254AC3301F331E32F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:0DB96D6BFF1E1D078573118254AC3301F331E32F
 ```bash
 magnet:?xt=urn:btih:FEA65722D88544DED102C2C190B9B9C4B4FACB8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ Thore Pfeiffer - Umland (2019) Savvy [FLAC|Lossless|WEB-DL|tracks] <Ambient, Exp
 magnet:?xt=urn:btih:3BB3F1D637D4FCC906E17535D5C939E852F5119A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ magnet:?xt=urn:btih:3BB3F1D637D4FCC906E17535D5C939E852F5119A
 magnet:?xt=urn:btih:CA19581EB579FEB3DCDA2899E932859447E65405
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +512,8 @@ BELOFF 2020.12 Minimal (Авторская раздача)
 ```bash
 magnet:?xt=urn:btih:C1EE99F53959451A7AD9F0E63E01F14CA44BDCC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:C1EE99F53959451A7AD9F0E63E01F14CA44BDCC0
 magnet:?xt=urn:btih:5C003D03D5FC9B455293578F13C55301BC8701C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 ```bash
 magnet:?xt=urn:btih:71D062401789FD73B4864711A5281A5E2922727C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +591,8 @@ FastStone Image Viewer - вьювер, редактор и конвертор г
 magnet:?xt=urn:btih:D4F5CF3F857FFD2D646C4B92C50819B7B6441AE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ magnet:?xt=urn:btih:D4F5CF3F857FFD2D646C4B92C50819B7B6441AE2
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:D4F5CF3F857FFD2D646C4B92C50819B7B6441AE2
 magnet:?xt=urn:btih:3DC96ACC8B07C29F0BC4D95281B70B2B1FCBB2EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +671,8 @@ magnet:?xt=urn:btih:3DC96ACC8B07C29F0BC4D95281B70B2B1FCBB2EC
 magnet:?xt=urn:btih:4D6A2CFA8C0AA0E9C52E06B92F64A9C730999526
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +696,8 @@ CGMA, Dylan Mellott | Weapons and Props for Games (2017) PCRec
 ```bash
 magnet:?xt=urn:btih:8DE0D4EAB97C08F59395FD8FBEBD9346E5A4F103
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

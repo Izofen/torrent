@@ -22,6 +22,8 @@ Artificial Intelligence - Timeline (2015) [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:0A89CDB791D4AB915FFEE470DE91E03ECB057176
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Uplifting Trance Essentials Vol. 6 (2015) [MP3|320 кб/с]<Uplifting Tranc
 ```bash
 magnet:?xt=urn:btih:51E5C17E2C7985B559FCFFA725566AAF588E549C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - In Search Of Sunrise 13.5 - Amsterdam (Mixed by Richard Durand with BT) (20
 magnet:?xt=urn:btih:A554095D5BAE042213FEF0041662805CAA5ADA29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Enhanced Chill Volume Three (2015) [MP3|320 кб/с]<Chillout>
 ```bash
 magnet:?xt=urn:btih:E6D53A4A85645686D2EDDDB6F5942A733969A7E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Dominik Von Francois - Last Resort (2015) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:D11DBB0B09F63B774BE043B29CEE301F750C75F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Sasha - LNOE TEN (2022) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, P
 ```bash
 magnet:?xt=urn:btih:B2791721778D32DC60355714287F89E9C6BCA1C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Armin Van Buuren Presents: A State Of Trance Best Of (2015) [MP3|320 кб/�
 magnet:?xt=urn:btih:8430137D59C5034A848F05132ECB6AC6AE70555F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Bonzai & Friends 500 (2015) [MP3|320 кб/с]<Minimal, Tech House>
 ```bash
 magnet:?xt=urn:btih:9C1B78203A77C63161CD2B4956BE8B85CE0318B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ A-Ha - Foot Of The Mountain (2009) [OGG Vorbis|484 Kbps] <Electronic, Synth-pop,
 magnet:?xt=urn:btih:8B6F38EBD4BF20984344856F871E12EE1C3B5321
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ A-Ha - Original Album Series (1985-1993) 5 CD Box Set, Reissue, 2011, Warner Bro
 ```bash
 magnet:?xt=urn:btih:9E1EFC5900631AF5F731DF08E88C4875C7DD54E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Music of sensation - Suspense (2013) [FLAC 2.0|96/24|WEB-DL|tracks] <Electronic,
 magnet:?xt=urn:btih:ED6636A04AAA280403844721CEA0DCA95E5DF73E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Paratov Live 2022.08.13 (Mixed and Compiled by DJ Suhov) (2022) WebDLRip [M
 ```bash
 magnet:?xt=urn:btih:38E39A259A53DD702782ED4328E09FC688A7E503
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Autumn New Chillout Traxx (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lou
 magnet:?xt=urn:btih:F043351CF9CB8888B6801A8FC91E12977A3FE66C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - White Chill Out Vol 2 (2015) [MP3|320 кб/с]<Lounge, Chill Out, New Age>
 ```bash
 magnet:?xt=urn:btih:25AF5014AD5C91132A21FD4D4EA4F201551981F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Waveshaper - Forgotten Shapes (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, 
 magnet:?xt=urn:btih:12D81AA87551C9A64D5B49798762D490F137C936
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - New Trance 2021 (2022) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:AB9B88911481BD652B290BE9DA3421278A8AB06D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - FSOE - October (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
 magnet:?xt=urn:btih:3A4CAEAA87238B38F71051F2E7D5DBD273D80F3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +515,8 @@ VA - Daybreakerz (Trance & Souls) Vol.3 (2022) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:CC5167B11EA6385441141A96280B4B4559810E24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +541,8 @@ Abbsynth - Starlines (2009) [OGG Vorbis|484 Kbps] <Electronic, Synth-pop>
 ```bash
 magnet:?xt=urn:btih:71667CC55C934B02D9F4C558796119A975B501A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +571,8 @@ Guy J - The Trees, The Sea & The Sun (2015) [FLAC|Lossless|WEB-DL]<Tech House, P
 magnet:?xt=urn:btih:F23B0333849A4D659BA256150A71A07E8F80C94C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +599,8 @@ VA - Recoverworld Radio 002 (Mixed by Rich Smith) (2015) [MP3|320 кб/с]<Tranc
 ```bash
 magnet:?xt=urn:btih:CC620BB9D169309BA9E1214715216AB3D16548AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +629,8 @@ Ludovico Technique - 4 Albums (2012-2022) [MP3|320 Kbps] <Industrial Rock, Synth
 magnet:?xt=urn:btih:325F267FC54167A29006D28ECED28A932FCE88C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +657,8 @@ Macrocosm - First Mission (2002) [OGG Vorbis|484 Kbps] <Electronic, Synth-pop>
 ```bash
 magnet:?xt=urn:btih:594A7FDB383BBA7CF80F6C067310ECB6BD8D9226
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +687,8 @@ Macrocosm - Second Voyage (2005) [OGG Vorbis|484 Kbps] <Electronic, Synth-pop>
 magnet:?xt=urn:btih:D4665806A037E1CF7F482F507301E3AEFD24A11F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +716,8 @@ VA - Deep House Sexy Collection (2015) [MP3|320 кб/с]<House>
 magnet:?xt=urn:btih:9CC49499E9A507D7A4ACD90E8163266C7165E6BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,6 +744,8 @@ VA - Audio Treasures (Healing & Soothing Chillout Vol 1) (2015) [FLAC|tracks]<Lo
 ```bash
 magnet:?xt=urn:btih:E62AC76F73159FA14C2AC7B439FDF1E540D170D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

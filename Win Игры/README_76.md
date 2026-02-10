@@ -19,6 +19,8 @@ Astrea Six-Sided Oracles (2023) [Ru/Multi] (1.2.313) Repack Let'sРlay
 magnet:?xt=urn:btih:0E2347AD339587FA407BEE4A87D229C2C146F63D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:0E2347AD339587FA407BEE4A87D229C2C146F63D
 ```bash
 magnet:?xt=urn:btih:4D0385B57A19BB8ABE31E967804764E2143A76C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Sledders (2023) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:E5D4B9F6B96B12EB94E093671B089D254F530F9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Trials of Innocence - это инди-игра в жанре судебного 
 ```bash
 magnet:?xt=urn:btih:52F9C30F1619B0B6BE278CC4CC013728EE0AA8D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Flight Catastrophe дает вам уникальную возможность �
 magnet:?xt=urn:btih:5F2F541A8548EB94C498C15A6A672852045B5001
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Commander Quest (2025) [Ru/Multi] (1.0.25.704) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:CCEFE2D5530D57C72761AC31BC9DEC06C534D2F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Vagrus - The Riven Realms – ролевая игра с элементами с
 magnet:?xt=urn:btih:F06E03DB1008DFEEDA1EB54BB4BBFC352890E60A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Darkest Files (2025) [Multi] (1.0.3) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:1D915A2A8B8DD8838F9AE4361693F48CE51929C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Dark Deity 2 (2025) [En] (1.0.1) Repack FitGirl [Deluxe Edition]
 magnet:?xt=urn:btih:AF76340802BE22775F43FCB6514689AEC779B5D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Master Key бросает вас с головой в мир, полный се�
 ```bash
 magnet:?xt=urn:btih:2DDF1EFB85796373F66761B362CF4BCC25F7B6B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Redemption of Liuyin (2025) [Multi] (v.0.1) Repack FitGirl
 magnet:?xt=urn:btih:B445F0C76DC4E7A4C1021439353955397204D58E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Gal Guardians: Servants of the Dark (2025) [Multi] (1.1.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3BC098D02A4134DB7912927C40D50E702110472E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Sin Slayers: Reign of The 8th (2024) [Ru/Multi] (1.5.0.7) License GOG
 magnet:?xt=urn:btih:6EEB210CEDCA131EAA31A8A3C018604E9B0ECB72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ BLEACH Rebirth of Souls (2025) [Ru/Multi] (1.03/dlc) Repack DjDI
 ```bash
 magnet:?xt=urn:btih:2B95307D3A68C71F09B0634A73462EC0A213E4B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Kun'tewiktuk: A Mi'kmaw Adventure - приключенческая игра в �
 magnet:?xt=urn:btih:7EDE6FDD12C226A673BC6DBACB5805015CB41544
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Pull Stay смешивает вместе механики, взятые из ж
 ```bash
 magnet:?xt=urn:btih:12A48D5EADD4802993F6C75EC53C7C897F197F09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Yasuke Simulator (2025) [En] (1.0/dlc) Repack FitGirl [Digital Deluxe Edition]
 magnet:?xt=urn:btih:D057307350E3ECDB0C126D7F23E4767D1E989108
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Wild Explorer (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:617C37E75880D53FCD2363BD187485C80A8B823F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Fluffy Sailors (2025) [Multi] (1.1308) Repack FitGirl
 magnet:?xt=urn:btih:0C6106E1A0C2713355982BD22A486F4FE6931E59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Spirited Thief переносит игроков в мир темного фэн
 ```bash
 magnet:?xt=urn:btih:672ABE519470ABA0F8D82EDB31E1384E674C92D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ I Am Your Beast - это FPS в обертке триллера о мести, �
 magnet:?xt=urn:btih:6E9C47F65F550F5C6BD83C6A3A19211AF534AC78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Legacy of Kain Soul Reaver 1-2 Remastered (2024) [Ru/Multi] (1.01 patch 2) Licen
 ```bash
 magnet:?xt=urn:btih:4B63A980534E0026C802BCBAE0C7F6E952838BA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ South of Midnight (2025) [Ru/Multi] (1.1.0 184977) Repack FitGirl [Premium Editi
 magnet:?xt=urn:btih:21F3912CF0F54250EE4873B056B074CA8FEC778B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ IZON. (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:15EEAC2EBF5547F66B70972E00ABCC490353D078
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Tropico 6 (2019) [Multi] (1290/dlc) License GOG [El Prez Edition]
 magnet:?xt=urn:btih:97BF315958E3ADA37A3E8D2FEEF2D442863B878F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Werewolf: The Apocalypse - Purgatory – откройте для себя уди
 ```bash
 magnet:?xt=urn:btih:92C93E1E4A1FCDA4EED6FA16387D11FD8B05B1FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

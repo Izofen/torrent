@@ -19,6 +19,8 @@ Slimjet 45.0.1.0 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:3030B7BEE15AF24FA2E7EDC1CCC9940DFE2471F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ TikTok - социальное приложение для тех кто пред
 ```bash
 magnet:?xt=urn:btih:F95055961C07C0E0ABFFC959620611C3AEF62DD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:F95055961C07C0E0ABFFC959620611C3AEF62DD4
 magnet:?xt=urn:btih:B0864495C29888DEDDC9105BA8CFBAA366B49988
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:3ED05921AB88D8D68F2B697C65B07511F7035DC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Snow Bros. Wonderland (2024) [Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:B517DFEE37436DAA3AC88F6FDD95D22A35E27879
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (Build 16756464) Repack FitGirl
 magnet:?xt=urn:btih:8BA28050727FE1B66C9517FB52B157F1F2AABB6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (Build 16756464) Scene Rune
 ```bash
 magnet:?xt=urn:btih:AB00D9697B233441708809DBBFC8EF10E5B08FA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Queen - Made In Heaven (1995) Japanese Edition, SHM-CD, Reissue, Remastered, 202
 magnet:?xt=urn:btih:0A55011D2FD7E48668826EF8F7B0B8B3AFDE1708
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Slopecrashers (2024) [En] (1.0.0.4) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:BEF3F1B7605EF506B41EAFDD1C110124CA18D610
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:BEF3F1B7605EF506B41EAFDD1C110124CA18D610
 magnet:?xt=urn:btih:B7E942C8B7A68A8BECD30F01460AB070DCE8BB8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:B7E942C8B7A68A8BECD30F01460AB070DCE8BB8A
 ```bash
 magnet:?xt=urn:btih:F87247ECFB20128F5305C1FB5BA822C1AD014CF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:F87247ECFB20128F5305C1FB5BA822C1AD014CF9
 magnet:?xt=urn:btih:BC2E2D48E65FC832D2F1D2E7C2FA3808AD86A068
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ The Sims 3 (2009-2013) [Ru/Multi] (1.67.2.024037/dlc) Repack dixen18 [Complete E
 ```bash
 magnet:?xt=urn:btih:11B11D7CE7908D213CF3DE90E40050D655DF1515
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:11B11D7CE7908D213CF3DE90E40050D655DF1515
 magnet:?xt=urn:btih:406926A477910B324C415EB4EAD2A59D9E1C6A65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:406926A477910B324C415EB4EAD2A59D9E1C6A65
 ```bash
 magnet:?xt=urn:btih:44B75467789906804633B1384C2310BE47565C8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Business Insider назвал самых обедневших миллиарде
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Business Insider назвал самых обедневших миллиарде
 ```bash
 magnet:?xt=urn:btih:37BFAD3CEEE8446086E2ED7D7FC4E97E561EC45F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:37BFAD3CEEE8446086E2ED7D7FC4E97E561EC45F
 magnet:?xt=urn:btih:9920B4F66C0FCAFCC2A328451D21698E487083AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:9920B4F66C0FCAFCC2A328451D21698E487083AD
 magnet:?xt=urn:btih:094B8B74CE69AF74B7FF4AAC848A5C34467FE517
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ S.W.I.N.E. HD Remaster - новое издание классической S.W.
 ```bash
 magnet:?xt=urn:btih:D6B8CC088932889D12FD3D9097D1429FC8CC5C9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:D6B8CC088932889D12FD3D9097D1429FC8CC5C9F
 magnet:?xt=urn:btih:061035E39A8973E737717C421F9CE6824B3D11D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:061035E39A8973E737717C421F9CE6824B3D11D4
 magnet:?xt=urn:btih:3A19664C18463C7B420C503796A7B89497310406
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:3A19664C18463C7B420C503796A7B89497310406
 ```bash
 magnet:?xt=urn:btih:ADD48E2C3AF0FD2C0AB85459D0C228FBF43A6008
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:ADD48E2C3AF0FD2C0AB85459D0C228FBF43A6008
 magnet:?xt=urn:btih:7537DDB78E596211D375FF8FABE836457265F550
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:7537DDB78E596211D375FF8FABE836457265F550
 magnet:?xt=urn:btih:063E8C2695DFF81E427BAF83233844804CE506F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Stars in the Trash - увлекательный платформер, вдохн
 ```bash
 magnet:?xt=urn:btih:22609BCFC7A0A82444FE7F5E5116F73AFE4DB11A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

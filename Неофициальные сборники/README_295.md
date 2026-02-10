@@ -1,3 +1,38 @@
+###  Публикация: 542455   (498099) от 03.09.2012
+
+VA - Радио DFM - D Чарт - Top-30 (02.09.2012) [MP3|320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PLAYMEN ft. Demy - Fallin (Radio Edit)
+02. Yves V & Basto - Cloud Breaker (Basto Radio Mix)
+03. Kimbra feat. Gotye - Somebody That I Used To Know (Bastian Van Shield Rmx)
+04. Flo Rida - Whistle
+05. Asti pres. Artik - Облака
+06. Fly Project - Musica (Deepside Deejays Remix)
+07. A-Dessa - Fire ( DFM MIX)
+08. Martin Solveig - The Night Out (Madeon Remix)
+09. DJ Gold Sky & Brioli - Do You Remember (DFM Edit)
+10. Alex Ferrari - Bara Bara Bere Bere (Cj Dmitriy Sova remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:19:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1EA949312261C0BC57BD42F6A712F791377809B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 542610   (498106) от 03.09.2012
 
 VA - German TOP100 Single Charts (03-09-2012) [MP3|~186~299 кб/с]<Pop>
@@ -27,6 +62,8 @@ VA - German TOP100 Single Charts (03-09-2012) [MP3|~186~299 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:47C5F6092A58D2F0D58A2FF77A5796EE4812C2B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -61,6 +98,8 @@ VA - Pirate Club New World Hits (2012) [MP3|256-320 кб/с]<Dance, Club>
 magnet:?xt=urn:btih:A5B91A561F5D3C11A4DAF6C433F569FF59916AF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +133,8 @@ VA - Relax FM (01.09.2012) [MP3|320 кб/с]<Relax, Ballads>
 magnet:?xt=urn:btih:825BEBE15AA60334CD3FE7F7C1B90D10319F01B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +161,8 @@ VA - Clubbing Dance House (2019) [MP3|320 Kbps] <House, Electro, Dance>
 ```bash
 magnet:?xt=urn:btih:FBC4369BF5A1AB1AEBDA42AD09B93250D7FC41CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +191,8 @@ VA - Best tracks of Way Out There by Jody Wisternoff, 2010-2011, Volume 3 (2022)
 magnet:?xt=urn:btih:AF8776E2697FC4892F54F0EAF309F5BA3683ADBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +219,8 @@ VA - 100 хитов в дорогу. Русский выпуск часть 3 (2
 ```bash
 magnet:?xt=urn:btih:B511D39030E1A073A84F388D35C5555B5017BB6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +249,8 @@ VA - ЕвроХит Топ 40 Europa Plus 02.08.2019 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:D16848BF719E756D69D2A8B98C6E8A88573340DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +277,8 @@ Various Artists - Guitars & Machines (1995) [MP3|192 кб/с]<EBM, Industrial>
 ```bash
 magnet:?xt=urn:btih:EE29BC44E6430FAD161DD9471DF705430931DF90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +307,8 @@ Ten Sharp - Compilation (2022) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:189AAFD3EE7AEFF27661A12C18636BA922D35BA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +335,8 @@ VA - Dance Selected Summer (2022) [MP3|320 Kbps] <Club, Dance>
 ```bash
 magnet:?xt=urn:btih:CB57275244BC445C4A5064CC1B135AB2E2E31522
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +365,8 @@ VA - 2047 Spacehawk (2022) Compiled by mCITY [MP3|320 Kbps] <Spacesynth>
 magnet:?xt=urn:btih:6D72295FEAE89F80CA80DFD93C4DC263D31E10C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +393,8 @@ VA - Celestial Drift: Clubbing Disco Set (2022) [MP3|320 Kbps] <Club, Dance, Syn
 ```bash
 magnet:?xt=urn:btih:670F29B08F155706105CA7E03FBBAEB09A366A3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +423,8 @@ VA - не Громкие новинки недели 28 (2019) [MP3|320 Kbps] <P
 magnet:?xt=urn:btih:D5CF828189DA7E9FCFC90E7C9ED0EC7D86492661
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +451,8 @@ VA - Empire Records - Church 3 (2019) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:3BB812BF21588831F62E1AA29178AAA641E41096
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +481,8 @@ VA - The Official UK Top 40 Singles Chart 02.08.2019 [MP3|320 Kbps] <Pop, Dance,
 magnet:?xt=urn:btih:3695A061306E2E1D1BFC750A15FABF779C0BA5B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +510,8 @@ VA - Summer Tempted Dance House (2019) [MP3|320 Kbps] <House>
 magnet:?xt=urn:btih:C24B1CB143A2284DDF1854520C1FC9EF0034496D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +538,8 @@ VA - Psy Ambiente (2019) [MP3|320 Kbps] <Ambient, Electronic>
 ```bash
 magnet:?xt=urn:btih:E159BF131CF3D74A59F347CABCE235FA450F069E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +574,8 @@ VA - Золотая 200-ка Дорожное Радио (2012) [MP3|128 кб/с
 magnet:?xt=urn:btih:2B8943F56CA6DFBBD3DF614D1D456FE7BCD2900E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +609,8 @@ VA - Подарок любимой женщине / Подарунок коха�
 magnet:?xt=urn:btih:5D044D677F54F9B262E263925CAA4826AB93BF5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +642,8 @@ Wychazel
 magnet:?xt=urn:btih:CF282E04BE84C9D6C549C477EFA0E30367DC6DD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +667,8 @@ Jacob Gurevitsch - Lovers in Paris (2015) [MP3|320 кб/с]<new age>
 ```bash
 magnet:?xt=urn:btih:ADCC269F4E18F8FE634688D19FDA09CCE1F1DBA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +703,8 @@ VA - Музыка для отдыха №2 (2011) [MP3|320 кб/с]<Piano, New A
 magnet:?xt=urn:btih:62F5257872A7CDE20959CC3DFFEB700991A0682D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +737,8 @@ DJ Nil - My Buddha Mix (2012) [MP3|320 кб/с]<Deep House, House>
 ```bash
 magnet:?xt=urn:btih:C71A420437B80039F51735EC9F31CFE3D459542B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -701,6 +782,8 @@ VA - NRJ Hits 2012 Volume 2 (2CD) (2012) [MP3|~240~288 кб/с]<Dance, Pop>
 magnet:?xt=urn:btih:360079F5434FE30CD5EE89CCDE297F48ECA23B74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -728,32 +811,7 @@ VA - Lounge Music Cafe Chill (2015) [MP3|320 кб/с]<Downtempo, Chillout, Loung
 magnet:?xt=urn:btih:DEE6A9308ADC7A325744E030EB839E8047CC162D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935234   (499468) от 08.09.2015
-
-VA - Chilled Ballads (The Most Beautiful Sentimental Songs Ever) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Fred Buccini - Unforgettable (3:48)
-02 Sarah Jane Morris - Remember Me (4:39)
-03 D'Andy - Quizas, Quizas, Quizas (feat. Melania) (2:55)
-04 Ely Bruna - Feel Like Making Love (feat. Frankie Lovecchio) (4:05)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:14:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6A6EA3775D916E97B11151DAF41EDDEA739289B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

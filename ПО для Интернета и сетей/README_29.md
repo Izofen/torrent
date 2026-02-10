@@ -19,6 +19,8 @@ FileZilla Pro - это быстрый и надежный FTP, FTPS, SFTP, Amazo
 magnet:?xt=urn:btih:486D4F72C5B0AE268478EFED629530401099F1C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ VCap Downloader (VCapDL) – это универсальное программ�
 ```bash
 magnet:?xt=urn:btih:B677C8A2038ABEAFC5FD9DC593304CF43D53011C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ iDownerGo – это приложение для загрузки мультим
 magnet:?xt=urn:btih:005AE800FA649CACC4D10F8972CA28D5467DC2CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:005AE800FA649CACC4D10F8972CA28D5467DC2CB
 ```bash
 magnet:?xt=urn:btih:0D3F6DF225123979B22B1F6B41D1462A65DD4853
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Throne – это программное обеспечение, которое 
 magnet:?xt=urn:btih:B3C35A6064DA70ECA33E7E9817FF80B227919CAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ ByClick Downloader (бывший YouTube By Click) - отличный и удо�
 magnet:?xt=urn:btih:E000A034489E9ABD0CD214B1799C8F1961377003
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ MP3jam - это программа, с помощью которой вы смо
 ```bash
 magnet:?xt=urn:btih:AA3CB00D1B65EC1B1EF620D0B33F76AFF8B15144
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Simplenote 2.12.0 [En]
 magnet:?xt=urn:btih:55635DEB416629ECF4B6A08D0C5F781B9582E2AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ IP-TV Player - это высококачественный проигрыват�
 ```bash
 magnet:?xt=urn:btih:BF91DF71FB9B36A496CE0E6D3C142647378F7C80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Adobe AIR - (Adobe Integrated Runtime) - платформенно-независ
 magnet:?xt=urn:btih:E730DA9C428ABAC81C4EBB2A0EA34422022EAF2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ PortExpert – утилита, способная контролировать �
 ```bash
 magnet:?xt=urn:btih:F05D9D9FE686E6FD2B210A327AF161DB0F13A7A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Air Live Drive — программа, позволяющая подключат
 magnet:?xt=urn:btih:AAAF617F0FCD834E902D6FD8123630A5F27B00B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ PassMark WirelessMon - программа для мониторинга 802.11 W
 ```bash
 magnet:?xt=urn:btih:6AEBC12D1A90C6D8307BDA8B62D29053752BA8FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Epic Privacy Browser обеспечивает защиту личных данн
 magnet:?xt=urn:btih:2774EE1E28E00FF2DDF6CFA4BD04780355459BBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Abelssoft X-Loader - программа для взрослых, позволи�
 magnet:?xt=urn:btih:6260F118C077466CAB11F2EF5DAC9FFED8195F52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ uTorrent Pro 3.6.0 Build 46738 Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:ED2AAFE61CD9D22D8FFA2C00169EA7521C510F22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Jitsi это проект (   Читать дальше...   )Язык инте
 magnet:?xt=urn:btih:302A9ED00DEBC230E86A0A6A8110BEDC4B61CCAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Wire Messenger - кроссплатформенный клиент для мгн
 ```bash
 magnet:?xt=urn:btih:EA0F66BC7685AE3D2ECB38AAB25CE7AF2934172A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ USB Redirector Client может только получать (   Читать
 magnet:?xt=urn:btih:D6A00A713F1E96CDD8DB272DFC4B7D753C9E74CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ MyLanViewer — программа для сканирования и монит
 ```bash
 magnet:?xt=urn:btih:EEF9C177607B8355568F9BD53C2EE30351814F76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ RMS состоит из двух основных модулей: Клиент �
 magnet:?xt=urn:btih:FE6305DC2DE219FDD8F001E1AC1803CF018874C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:FE6305DC2DE219FDD8F001E1AC1803CF018874C9
 ```bash
 magnet:?xt=urn:btih:275A7610894A73601CB83B69AB8D4D6DA588EB0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 magnet:?xt=urn:btih:9663D78D7462AA9ABA2BD66EA2CF84A26C082318
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ OpenVPN – мощная программа для работы с частны�
 ```bash
 magnet:?xt=urn:btih:41C39D6D28C16AE49C6EEC7B5667CAE88DFF8832
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:41C39D6D28C16AE49C6EEC7B5667CAE88DFF8832
 magnet:?xt=urn:btih:981F5164C55D1D1271672274F72D603D5CB92DCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:7FD7E9FC38332905ED1515FD4A90DF04872B90D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

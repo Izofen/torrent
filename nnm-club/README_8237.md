@@ -22,6 +22,8 @@ ru-ru_windows_11_business_editions_version_22h2_updated_june_2023_x64_dvd_91ab07
 magnet:?xt=urn:btih:04FC816338C61B49C48E551F7F999210A673776E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ UNCHARTED: Legacy of Thieves Collection (2022) [Ru/Multi] (1.4.21058) Repack Oth
 ```bash
 magnet:?xt=urn:btih:D057C32B820EAEA99D8F8EC59CC67FE68E59283F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:D057C32B820EAEA99D8F8EC59CC67FE68E59283F
 magnet:?xt=urn:btih:524FD5025F9764788AD45CC09B77FFF427F31158
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:524FD5025F9764788AD45CC09B77FFF427F31158
 ```bash
 magnet:?xt=urn:btih:F5CE3EF6D886B12A594E6790021F9022A5E2B2E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:F5CE3EF6D886B12A594E6790021F9022A5E2B2E0
 magnet:?xt=urn:btih:094739CE2838F1853611AF38417F5A17C19DB241
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:094739CE2838F1853611AF38417F5A17C19DB241
 ```bash
 magnet:?xt=urn:btih:6EBB2955F3EECCA25AB1CDF4E0290CC8B54E1C4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:6EBB2955F3EECCA25AB1CDF4E0290CC8B54E1C4E
 magnet:?xt=urn:btih:C5D73A0C2229E4C5C04A433BD0F8A225CB0E87B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:C5D73A0C2229E4C5C04A433BD0F8A225CB0E87B9
 ```bash
 magnet:?xt=urn:btih:C53D267DF6AE020D837EB8A912898394F7AF0216
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:C53D267DF6AE020D837EB8A912898394F7AF0216
 magnet:?xt=urn:btih:99D840C894E0AA92BF9B12F24958B3C6DD6642D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Redout: Space Assault (2021) [Ru/Multi] (1.1.0) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:8E6959A73897F31412CDB2612E0E97DF764E9F57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:8E6959A73897F31412CDB2612E0E97DF764E9F57
 magnet:?xt=urn:btih:991A4CE86D12C27B2DC9BC6531747C0C4F6C08F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:991A4CE86D12C27B2DC9BC6531747C0C4F6C08F5
 magnet:?xt=urn:btih:F571296E99D1DE5150AE5755E3D28EC2E6E86F8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:F571296E99D1DE5150AE5755E3D28EC2E6E86F8F
 ```bash
 magnet:?xt=urn:btih:C82BB67826FF8874D16CD0A6B60C44C517718FE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:C82BB67826FF8874D16CD0A6B60C44C517718FE8
 magnet:?xt=urn:btih:6DAA7FE3417C8EE46C9E29537D617903A3D209AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ UltraISO - одна из лучших программ для работы с о
 ```bash
 magnet:?xt=urn:btih:B06B1CF884C5E7FF9500E76DDE5A1CA2108215CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:B06B1CF884C5E7FF9500E76DDE5A1CA2108215CE
 magnet:?xt=urn:btih:6B1E1D277DBD9C132D6E28C58095BAB08C6EB1F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:6B1E1D277DBD9C132D6E28C58095BAB08C6EB1F2
 ```bash
 magnet:?xt=urn:btih:4458FD7585638EBE431161DB8B0505E6195E0B01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Acrobat Pro — это полностью обновленная настоль�
 magnet:?xt=urn:btih:3BCEFEF72A5EF8DDF8C5F7A313BE38DB6F9B5D03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:3BCEFEF72A5EF8DDF8C5F7A313BE38DB6F9B5D03
 ```bash
 magnet:?xt=urn:btih:C94849C8DC1C84512B2698BDA841F86938C80B32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ Airborne Kingdom (2022) [Multi] (1.10.3) License GOG
 magnet:?xt=urn:btih:258ECE59FCFB63586D97C56F8E370BE0E3F8BB7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:258ECE59FCFB63586D97C56F8E370BE0E3F8BB7E
 ```bash
 magnet:?xt=urn:btih:8C3B72DE322ED27B4C692BEDD1B8715009E4CCEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:8C3B72DE322ED27B4C692BEDD1B8715009E4CCEB
 magnet:?xt=urn:btih:59901AB88B3FB30B0A8E1913B0A9D7EE0937B55D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ magnet:?xt=urn:btih:59901AB88B3FB30B0A8E1913B0A9D7EE0937B55D
 ```bash
 magnet:?xt=urn:btih:5D3E0DACACB937E64C4736F70123BE0A281963CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:5D3E0DACACB937E64C4736F70123BE0A281963CD
 magnet:?xt=urn:btih:8339A0CB2CE5F746E215096555C1A1A06BC7EE73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ RiME (2017) [Ru/En] (1.04) Repack xatab
 magnet:?xt=urn:btih:B7EB8D2FC080FA12F5AAC371C2E1F1C9F5CAD12A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ magnet:?xt=urn:btih:B7EB8D2FC080FA12F5AAC371C2E1F1C9F5CAD12A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ The Scouring - это стратегия в реальном времени, в 
 magnet:?xt=urn:btih:4312A8095A31DAE73C376118BBEF19D3838F56E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:4312A8095A31DAE73C376118BBEF19D3838F56E6
 ```bash
 magnet:?xt=urn:btih:7F0B5462D9BA4B152BA10047554C66996FA1FBD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:7F0B5462D9BA4B152BA10047554C66996FA1FBD4
 magnet:?xt=urn:btih:3CECD5186D27FF385117D0412BBBA5F9FB8C2500
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Grim Dawn (2016) [Ru/Multi] (1.2.1.6/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:8F2F8A77EC29BA40DD3F11CFDAB03D77A9B98AEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Windows 10 Pro 22H2 19045.6093 x64 by SanLex [Lightweight] [Ru-En] (2025.08.05)
 magnet:?xt=urn:btih:2D77AE2E69BEDB4496833436E0B46655D2009E8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Kanashimi no Belladonna | Belladonna of Sadness | Печальная Белла�
 ```bash
 magnet:?xt=urn:btih:BCA4FE850BF4685C15651B1515AA744EDCBE4D98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258.834/dlc) Repack Decepticon
 magnet:?xt=urn:btih:F301152E03740EB4AD9F57BFEF708433C8B50495
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:F301152E03740EB4AD9F57BFEF708433C8B50495
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:F301152E03740EB4AD9F57BFEF708433C8B50495
 magnet:?xt=urn:btih:88043F7F4A0ADF000F9D6A8A32627EA02A24DDDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:88043F7F4A0ADF000F9D6A8A32627EA02A24DDDA
 ```bash
 magnet:?xt=urn:btih:7321D4ADC4B20F54B5E6967EA3F50A5CF40D432D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Warhammer 40,000: Space Marine (2025) [Multi] (4326/dlc) License GOG [Master Cra
 magnet:?xt=urn:btih:310685DF455985E1265C0103C6789C244EB7DEFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Cabernet - ролевая 2D-игра в антураже Восточной Е�
 ```bash
 magnet:?xt=urn:btih:1FC97676327EB19B5C8458A2ED060D741C50B888
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:1FC97676327EB19B5C8458A2ED060D741C50B888
 magnet:?xt=urn:btih:BE85D39ACF0C54B1A3CABAD1ABA3AE48DB5A860E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Chains of Freedom (2025) [Ru/Multi] (1.0.3) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:02256A22E41550A0AF599F1A510A721E40303DA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:02256A22E41550A0AF599F1A510A721E40303DA0
 magnet:?xt=urn:btih:AE4F89777D84B0147C4D00D2A55A955F573A694B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Age of Wonders 4 - пошаговая стратегия с тактически
 ```bash
 magnet:?xt=urn:btih:6B4C712800FBAC03F07222F5688DF419E5511BB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:6B4C712800FBAC03F07222F5688DF419E5511BB7
 magnet:?xt=urn:btih:44E236619D19EFE9D5234E96B344CB2D6F2272F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ After Effects — это ведущая в отрасли программа д�
 ```bash
 magnet:?xt=urn:btih:CC44DF5FB942F80582061CDA8E908A14460D66B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:CC44DF5FB942F80582061CDA8E908A14460D66B3
 magnet:?xt=urn:btih:BBFD35B7DAE6FA783B96B8ECD4C41111D24592EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:BBFD35B7DAE6FA783B96B8ECD4C41111D24592EB
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:BBFD35B7DAE6FA783B96B8ECD4C41111D24592EB
 magnet:?xt=urn:btih:A168B8F194CF8331A7B9EAC4D53A4F7383D7B8A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:A168B8F194CF8331A7B9EAC4D53A4F7383D7B8A7
 ```bash
 magnet:?xt=urn:btih:2C14FC45D76F5332E307B5019D7C011B70B3B241
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ Bad Debts - Under Kalimna Skies (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock
 magnet:?xt=urn:btih:D57D16711D1890F7764221B91DC5132FB55D88AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:D57D16711D1890F7764221B91DC5132FB55D88AC
 ```bash
 magnet:?xt=urn:btih:40D942C7ED6ABFB720BF322DC20B131EB1B2B929
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ Beguiled - Rise of the Winged Demons (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:336C1183A2FC611C7FCA0F7B7C7732E17A71C62D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Eminent Steed - The Joy of June (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ro
 ```bash
 magnet:?xt=urn:btih:E476AE47E58480732E604CF0A20C31D08B89C439
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

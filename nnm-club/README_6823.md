@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5763D9B81176E6E932F5523B22F550A29E413387
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Natale Vinto, Alex Soto Bueno | GitOps Cookbook (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:C4CBD984F099FE208D62F1A78AEB3C962093DF72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ AirBrush v5.3.0 [Ru/Multi]
 magnet:?xt=urn:btih:D7D1210309974F41DEF0B4067AB49109D8861EF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:D7D1210309974F41DEF0B4067AB49109D8861EF6
 ```bash
 magnet:?xt=urn:btih:6273BCBD1ADD0283E520919B48D1E5D34296E7DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Primoz Gabrijelcic | Delphi High Performance, 2nd Edition (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:83E661A89BEEFDC68DE82533E1169B477E7D0D6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ feb_2023_x64_dvd_909defc0.iso
 magnet:?xt=urn:btih:2ECDD7F0BE76305C7A50B602D34C4425CED1A976
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:2ECDD7F0BE76305C7A50B602D34C4425CED1A976
 ```bash
 magnet:?xt=urn:btih:BB99FBC7D3029DB1DA18B4173E305FE970A2039A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:BB99FBC7D3029DB1DA18B4173E305FE970A2039A
 magnet:?xt=urn:btih:5B50E6592DE3A648C31ED0A18A9CE9C58A5FB6CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:5B50E6592DE3A648C31ED0A18A9CE9C58A5FB6CD
 magnet:?xt=urn:btih:EBB6AF550771BCA584F5315BD354F33377A0446B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:EBB6AF550771BCA584F5315BD354F33377A0446B
 ```bash
 magnet:?xt=urn:btih:5412EAC118EB01A123022BE20003DE4651914FCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ RustDesk Remote Desktop – программное обеспечение для
 magnet:?xt=urn:btih:95183FD9BA5562E7C437D62F742F7F3E7AAD8693
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:95183FD9BA5562E7C437D62F742F7F3E7AAD8693
 ```bash
 magnet:?xt=urn:btih:71883F1B754E3B2C4A80DF63509F7A9493969624
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:71883F1B754E3B2C4A80DF63509F7A9493969624
 magnet:?xt=urn:btih:8882A3896AE85D55202F2AA8E6968AEAF3C0F38D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:8882A3896AE85D55202F2AA8E6968AEAF3C0F38D
 ```bash
 magnet:?xt=urn:btih:AA3F2A85A00C6BA08178DB78A793FF11DB1915CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:AA3F2A85A00C6BA08178DB78A793FF11DB1915CB
 magnet:?xt=urn:btih:D3E280E6DB0E8822D6AEB4C2D3A022E39CC321A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Exorcism Ritual – это хоррор на выживание с элемен�
 ```bash
 magnet:?xt=urn:btih:8CAAC06E7E7C2774395A6AC99FCB967E2F2B56CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ David Bowie - Ziggy Stardust and the Spiders from Mars: The Motion Picture Sound
 magnet:?xt=urn:btih:4A43A5F06527D3C5B26E6C71B4296B5833436B43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:4A43A5F06527D3C5B26E6C71B4296B5833436B43
 magnet:?xt=urn:btih:A202602CE6DF1A30B6FF939D227B9ECAC3F1CBC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ AnyDesk 7.1.4 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:A38F2C52092DFAA823B31B847094C01A889ADBC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:A38F2C52092DFAA823B31B847094C01A889ADBC7
 ```bash
 magnet:?xt=urn:btih:BA236EBBF31E1B32CBBADDE523A6CA39BBFD83F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ magnet:?xt=urn:btih:BA236EBBF31E1B32CBBADDE523A6CA39BBFD83F1
 magnet:?xt=urn:btih:EFF38ADF7C61A72C35220C717D0D0D9F995C9203
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:4384ADE263D69059F7EB003AABA04F6341DB6F4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ The next time your resume is on someone's desk—be it a promotion at work or a 
 magnet:?xt=urn:btih:24B019EC9FB6F1C58A050826472296DF10BD0060
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:24B019EC9FB6F1C58A050826472296DF10BD0060
 ```bash
 magnet:?xt=urn:btih:C15869FB68EF6E3127D38AC81947D7DD7066CEFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +661,8 @@ VA - Electronica 2023: Best Dance Music (2023) [MP3|320 Kbps] <Electro Pop, Danc
 magnet:?xt=urn:btih:9AA207C5B21C63D6C9BDA6F05073B1343064A0FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ magnet:?xt=urn:btih:9AA207C5B21C63D6C9BDA6F05073B1343064A0FE
 ```bash
 magnet:?xt=urn:btih:3835C12BC5F57BD590CCC795D264772CFB5CF152
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

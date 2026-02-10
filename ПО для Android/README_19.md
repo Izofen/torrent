@@ -19,6 +19,8 @@ Ultimate Thumbnail Maker v1.7.5 Mod by Alex.Strannik [En]
 magnet:?xt=urn:btih:306E50A58E539FAF931F7E1706F3232F7CA9B78A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:306E50A58E539FAF931F7E1706F3232F7CA9B78A
 ```bash
 magnet:?xt=urn:btih:AD50861EC07F070D211663F235DC41662C47F06A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ MobiOffice - это полнофункциональный офисный пак
 magnet:?xt=urn:btih:014417B8A3C405698D7B447F94732DB516DF692C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Photo Editor - уникальная программа для обработки
 ```bash
 magnet:?xt=urn:btih:BDA3F9DDAF13C0CD066F74F41ECA20685EB77144
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Seven / 7 Минут Упражнение v9.20.01 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:C484E46F28FEC29CA3D9C1C8D98B80A3B5573829
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ LazyMedia Deluxe это Android TV приложение, которое можн
 ```bash
 magnet:?xt=urn:btih:A2E2B05608185A208DC69D581C12D06B77211FDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Photo Editor - уникальная программа для обработки
 magnet:?xt=urn:btih:2B2374A06A97D356009BED9AE7EE0002AABA0E47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Smart AudioBook Player Pro v11.0.7 Mod by Kirlif' [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:BB59A1DF86265B1C0F44834F2CD23951B085A78B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ SnapEdit — одно из лучших приложений для редакт
 magnet:?xt=urn:btih:740C6D3AA8FB0D92836D559B9F17C616DFE4E835
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ PowerDirector – Video Editor v14.5.2 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9F6D89105D8BF8D3AD43823685238CFCDFAC4EE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ IPTV Pro v8.2.3 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:07B8E746FF4B05FE6D741F7708C00A2D618F5BA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:3C64DA036DBF1CE3D35B037FAA69D90F93D931E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:3C64DA036DBF1CE3D35B037FAA69D90F93D931E8
 magnet:?xt=urn:btih:ABA578FE7AB3EEAABA453206883D6E8E38691DD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Real Guitar предоставляет все необходимые инстр�
 ```bash
 magnet:?xt=urn:btih:3A7A1B17F70BD9F51B1754D3DC87A5931A93F761
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ PhotoRoom v5.5.2 Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:283C98A8472D76E2DB44F535C49EC0AA49568BB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Magic Eraser - это революционное приложение для р�
 ```bash
 magnet:?xt=urn:btih:B7F9436602262B5AA45D93684B8B8ED7A8F71CF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Ventusky: Прогноз погоды v38.0 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:F573DAA65DA4D99FBE83683038F93E5DF3F387D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:F573DAA65DA4D99FBE83683038F93E5DF3F387D7
 ```bash
 magnet:?xt=urn:btih:5C397F6A6B0BCC77D3116A935F32FAF45BB85276
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Vanced — это модифицированная версия YT, котора
 magnet:?xt=urn:btih:83604E3EDC7DDD55E13A884C8CC403658E7BAA33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Pencil Photo Sketch - профессиональное приложение дл
 ```bash
 magnet:?xt=urn:btih:748ABB9FE47A927B9CCB527033ADBBA3F6C4C419
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ Photo Mate предлагает библиотеку фотографий, в к
 magnet:?xt=urn:btih:43B4CABF5D294C3F5000079EBE79490FF36D3237
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ ARuler - лучшее и бесплатное приложение на Android 
 ```bash
 magnet:?xt=urn:btih:CCC12A028DE3BE8BD795A2F654549B5D6E2C1145
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Vanced — это модифицированная версия YT, котора
 magnet:?xt=urn:btih:066EB07B9948F92A3C43D71E8C7B682C84B0F08A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ RuStore (РуСтор) – российский магазин мобильны�
 magnet:?xt=urn:btih:75BD494929A66A6928950D67E589AACAA3960B45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ PDF Extra PDF Editor & Scanner v10.17.266453 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8484A92327BB2043F0F609ECAEE1D9C5867344F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +676,8 @@ TapScanner — сканер документов, это простой скан
 ```bash
 magnet:?xt=urn:btih:4FD54752B427C1EC6690EDF9858ABFFEAE05E02B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

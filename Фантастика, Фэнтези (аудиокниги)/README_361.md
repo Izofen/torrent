@@ -1,3 +1,29 @@
+###  Публикация: 1562075   (512397) от 07.07.2022
+
+Владимир Зещинский | Цена ошибки (2022) [MP3, Александр Чайцын]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_512397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иногда мы просыпаемся в самых неожиданных местах. Александр Громов, например, очнулся однажды в овраге в окружении мертвецов. «Так себе компания», – подумал он и поспешил убраться подальше. В процессе выяснил, что каким-то образом попал в тело подростка, да и мир, как оказалось, совсем другой. Потусторонние существа и странные способности, конечно же, интересовали (   Читать дальше...   )Жанр: Боевое фэнтези, ПопаданцыПродолжительность: 12:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7BA9C820EF40C4DACDA2F810D60F766031628C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562078   (512398) от 07.07.2022
 
 Дмитрий Серебряков, Анастасия Соболева | Виртуальный мир (Книга 9). Сила древних (2022) [MP3, Александр Башков]
@@ -21,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:9852D95CEE96463DFC99F3D3DB5BF7752E7762AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ magnet:?xt=urn:btih:9852D95CEE96463DFC99F3D3DB5BF7752E7762AC
 magnet:?xt=urn:btih:B87B822F5D7AC888732567B8DC51EB7A5906BD70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:B87B822F5D7AC888732567B8DC51EB7A5906BD70
 ```bash
 magnet:?xt=urn:btih:34C08EAB79802E409EEA25B4D629AC3459D99135
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +129,8 @@ magnet:?xt=urn:btih:34C08EAB79802E409EEA25B4D629AC3459D99135
 magnet:?xt=urn:btih:180341E5B2297166866F38CBA7971B5F3869F22B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +156,8 @@ magnet:?xt=urn:btih:180341E5B2297166866F38CBA7971B5F3869F22B
 ```bash
 magnet:?xt=urn:btih:7B63566229C9AD3FB8DFFD54735F054E7709EAF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +186,8 @@ magnet:?xt=urn:btih:7B63566229C9AD3FB8DFFD54735F054E7709EAF8
 magnet:?xt=urn:btih:EE6707381DAEAFA7E06989A96CEFF44DDFCC5D8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +211,8 @@ magnet:?xt=urn:btih:EE6707381DAEAFA7E06989A96CEFF44DDFCC5D8F
 ```bash
 magnet:?xt=urn:btih:B58F688A93FE1612F9288DFBBC1B9F0B04E501BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +240,8 @@ magnet:?xt=urn:btih:B58F688A93FE1612F9288DFBBC1B9F0B04E501BB
 magnet:?xt=urn:btih:EAEE6FB8BB9885E6AD56E3E71DFECC03227C1CBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +265,8 @@ magnet:?xt=urn:btih:EAEE6FB8BB9885E6AD56E3E71DFECC03227C1CBF
 ```bash
 magnet:?xt=urn:btih:F380413DCEA232C7F81A0C9F02F534257761F3F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +292,8 @@ magnet:?xt=urn:btih:F380413DCEA232C7F81A0C9F02F534257761F3F8
 magnet:?xt=urn:btih:50BE23A45CC391E8F44123A7ACA28094713F18E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +317,8 @@ magnet:?xt=urn:btih:50BE23A45CC391E8F44123A7ACA28094713F18E3
 ```bash
 magnet:?xt=urn:btih:5A16334EDCD354FFF69CBC466B4B759A59232BD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +344,8 @@ magnet:?xt=urn:btih:5A16334EDCD354FFF69CBC466B4B759A59232BD2
 magnet:?xt=urn:btih:582C6161308A372AF20DEA904752FFD36D5A8873
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +369,8 @@ magnet:?xt=urn:btih:582C6161308A372AF20DEA904752FFD36D5A8873
 ```bash
 magnet:?xt=urn:btih:4464F553BB6B45402245DE907C54A2E1F13245BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +396,8 @@ magnet:?xt=urn:btih:4464F553BB6B45402245DE907C54A2E1F13245BA
 magnet:?xt=urn:btih:6C17DAFA8B21D76B832B639DBC8EAC18791231B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +421,8 @@ magnet:?xt=urn:btih:6C17DAFA8B21D76B832B639DBC8EAC18791231B2
 ```bash
 magnet:?xt=urn:btih:5CB468FC7171EAA215829D8409DB503E8D83A224
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +448,8 @@ magnet:?xt=urn:btih:5CB468FC7171EAA215829D8409DB503E8D83A224
 magnet:?xt=urn:btih:29D3854DA242CD07F40A9C6F4708E0CB0760439B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +473,8 @@ magnet:?xt=urn:btih:29D3854DA242CD07F40A9C6F4708E0CB0760439B
 ```bash
 magnet:?xt=urn:btih:4C7C9703829A197486EE0A684CB22C8D0085C537
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +500,8 @@ magnet:?xt=urn:btih:4C7C9703829A197486EE0A684CB22C8D0085C537
 magnet:?xt=urn:btih:4F0E48AE0DFEDDE5559760F7ADBD7226D843360F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +526,8 @@ magnet:?xt=urn:btih:4F0E48AE0DFEDDE5559760F7ADBD7226D843360F
 magnet:?xt=urn:btih:338493E081A64790C14AAAEB03E64398748C8EA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +551,8 @@ magnet:?xt=urn:btih:338493E081A64790C14AAAEB03E64398748C8EA9
 ```bash
 magnet:?xt=urn:btih:F88BC65B327AE879DBBF0BF7C8BF7F987686B000
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +579,8 @@ magnet:?xt=urn:btih:F88BC65B327AE879DBBF0BF7C8BF7F987686B000
 magnet:?xt=urn:btih:FCE84AD6FBF886815ED7B44F1DC59DDB9015BED5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:FCE84AD6FBF886815ED7B44F1DC59DDB9015BED5
 ```bash
 magnet:?xt=urn:btih:AB319E796BCBA229698EEB5F896634C2778C1C3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +632,8 @@ magnet:?xt=urn:btih:AB319E796BCBA229698EEB5F896634C2778C1C3E
 magnet:?xt=urn:btih:BD6C33BAFE723D98A237796C81159305354D7B8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:BD6C33BAFE723D98A237796C81159305354D7B8D
 ```bash
 magnet:?xt=urn:btih:0A4CFBE0E9A3E8E54D8E13B68209C383CF587AC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,29 +684,7 @@ magnet:?xt=urn:btih:0A4CFBE0E9A3E8E54D8E13B68209C383CF587AC5
 magnet:?xt=urn:btih:C47CA5D0511F73018ADA3D456FF09B1CDB5A8B99
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561828   (513514) от 06.07.2022
-
-Фрэнк Герберт | Оккупационные силы (2021) [MP3, Максим Тарлавин (Scaners)]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513514.jpg" />
-</div>
-
-
-###  Подробнее
-
-К Земле прилетел космический корабль из Пояса Ориона. Президент созвал срочное совещание по безопасности с представителями иностранных держав, сенаторами и главами силовых ведомств. Длина корабля была девятнадцать миль, а ширина — двенадцать. Мнение большинства гласило: вражеский корабль-завоеватель. Визиторы вскоре пошли на контакт, и выслали шлюпку с послами на (   Читать дальше...   )Жанр: Ироническая фантастикаПродолжительность: 00:10:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC8DBF0830A9B6F256240FD2E9CE26D3041D7160
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

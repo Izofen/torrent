@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3D36A7DC683B238B478519234CE157853FA38F43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ A Cloud Guru / Linux Academy, Scott Pletcher | AWS Certified Solutions Architect
 ```bash
 magnet:?xt=urn:btih:3DBB610AD472C70FAABAD6FEF1F5773C5A0F7A26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Kubernetes предоставляет множество мощных инстр
 magnet:?xt=urn:btih:27D1374C40745AD2E44DEEA5D6434AA3CF03D379
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Michael Pavlovich | ZBrush 2018 Image Based Lighting (2018) PCRec [En, Ru]
 magnet:?xt=urn:btih:ABF59BF425B7C22C6284B06B395FEBE1A1809383
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Udemy, Jason Xian | React & TypeScript Chrome Extension Development [2021] (2021
 ```bash
 magnet:?xt=urn:btih:613A3A2D3129D83174D442CA386B26A8433FFF51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ A Cloud Guru / Linux Academy, Ryan Kroonenburg | AWS Certified Security - Specia
 magnet:?xt=urn:btih:F3016B0A395434214466EAABD64A5F503A73DF92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Udemy, Nathan Cope | How To Build a Computer: A Beginner's Guide   (2021) PCRec 
 magnet:?xt=urn:btih:5CB186E8161E4AEF27683877A2E642E752F36006
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Sjoerd de Jong сделает всесторонний разбор создан
 ```bash
 magnet:?xt=urn:btih:10F36F3FEB4316537B1BB904F3F66987C1655AD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ O'Reilly, Alistair Croll | Strata Data Superstream Series: Creating Data-Intensi
 magnet:?xt=urn:btih:D5845B6CEAAC26DADEF704D1366C365B8AF8B9B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Udemy, Skills Factory | Разработка приложения на Android �
 ```bash
 magnet:?xt=urn:btih:0E4C997CE82F681C59BA33403FF4798CFE1963C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Python - один из самых популярных языков програ
 magnet:?xt=urn:btih:62971A7C15EB9C3F4120D95235927BDD76452BDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ CASP School | Docker (2018) PCRec
 ```bash
 magnet:?xt=urn:btih:7FBE254FCDA17F09374F500933971DAA77C8C4E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ Devman | Командная строка (2021) PCRec
 magnet:?xt=urn:btih:C92C9C410CEE5543922223C9715BA5384CD1FEB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ Creative Shrimp | Космические визуальные эффекты: С
 magnet:?xt=urn:btih:8491ED1AB19349349E85C58CD5DF8F6C901D018C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ Matthias De Muylder | Marvelous Designer For Concept Art (2016) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:162BA79FAEDED97B3D6A16FE5A3EF636D788DDE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ Creative Shrimp | Реалистичное освещение в Blender 2.76-2.
 magnet:?xt=urn:btih:1C4AD5B10ED71B4EA7C944070EF3348A0D50E203
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:1C4AD5B10ED71B4EA7C944070EF3348A0D50E203
 magnet:?xt=urn:btih:70977C410EC93BE5F93A4E4AA5117094E22F3611
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ Mark Edward Lewis | Cinema Sound (2015) WEBRip [EN]
 ```bash
 magnet:?xt=urn:btih:ADB7CE7A9836E74B512685227C42E5FF3AC5BB4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ John Park | Introduction to Vehicle Design - The Basics (2015) PCRec [En, Ru]
 magnet:?xt=urn:btih:628E89291A36120DD37920A6F1B3156674DFEFF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ Jason Scheie | Visual Development for Animation (2015) PCRec [En, Ru]
 magnet:?xt=urn:btih:5BDF0929F28693496A0EAF93E5AB837BA5FCB73E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:5BDF0929F28693496A0EAF93E5AB837BA5FCB73E
 ```bash
 magnet:?xt=urn:btih:D88443902D14F2A88CF52B7B39C777CE1C0A47C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:D88443902D14F2A88CF52B7B39C777CE1C0A47C3
 magnet:?xt=urn:btih:30EDF109994CEB1AEAF5DC2D25AD64CFDDB856B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ Jason Scheier | Composition 101 (2015) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:F0F73E2F10B2BE5C9FFB1CB0AF6F2CB4AC85ADEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +637,8 @@ magnet:?xt=urn:btih:F0F73E2F10B2BE5C9FFB1CB0AF6F2CB4AC85ADEF
 magnet:?xt=urn:btih:8FCC4A90BCBF3043DB823C13633825FEC9BA07B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ CG Cookie, Kent Trammell | Создание реалистичного пром�
 ```bash
 magnet:?xt=urn:btih:E15E4C9D18E8DBC4171D64CE73B1D83B23DC1B2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +690,8 @@ Mario Brajdich | Mastering 3D Modeling In Cinema 4D Part 1-3 (2017) PCRec [En, R
 ```bash
 magnet:?xt=urn:btih:F6DC00DC1A3CF9398E571F00574E1559D681C01B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

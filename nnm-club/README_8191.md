@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:03623A9B57A98EC43B68934E5E22AD92EC8940B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Teufelstanz - Camera Obscura (2017) [FLAC|Lossless|image + .cue] <Medieval Folk,
 magnet:?xt=urn:btih:F3731C3E314F83176A7AAB363998603971EDF64C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:F3731C3E314F83176A7AAB363998603971EDF64C
 ```bash
 magnet:?xt=urn:btih:7A670F387E736D16115C2A1DBC83C92251BFAC6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Airwave - Believe (2016) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:5A724CD6F5330C77F549AAB09176C4742335AAEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ The Dead Daisies - Ноlу Grоund (2021) [FLAC|Lossless|image + .cue] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:350283A0DDC4C39049D65C9334ADB575E33C6559
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ Strider - Midnight Zen (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychedelic R
 magnet:?xt=urn:btih:D8F4D120C875FEFE7DD73D3035C34A56C5F59F04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ DxO PhotoLab 5 ELITE Edition 5.0.2 [Multi]
 ```bash
 magnet:?xt=urn:btih:F3D4795F48C35162F916582E58BC26F0C6B5CDA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +217,8 @@ Noctem - Haeresis (2016) [MP3|320 Kbps] <Black Metal, Death Metal>
 magnet:?xt=urn:btih:42124E473267CB1C33ED43ACDD12D071A69FF656
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +245,8 @@ magnet:?xt=urn:btih:42124E473267CB1C33ED43ACDD12D071A69FF656
 magnet:?xt=urn:btih:F9B1F222A199858E6E9B5B34EA844CDB5FCB7B63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ magnet:?xt=urn:btih:F9B1F222A199858E6E9B5B34EA844CDB5FCB7B63
 magnet:?xt=urn:btih:F294C85B40A0EBEC2B7BB38CA78BAB4D48D488B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:F294C85B40A0EBEC2B7BB38CA78BAB4D48D488B4
 ```bash
 magnet:?xt=urn:btih:232ED018486C4A74B7EFD59BC7230D260590BCB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +326,8 @@ Lil Revive - Grim Peaks (2019) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:EB9D960BB06D653DF9F7BD7203CCC13318FA5B7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ BlueHarvest - утилита, помогающая автоматизирова�
 magnet:?xt=urn:btih:BCAAFB730C3B20C6249C67BC8A45ECB50B49FE3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +379,8 @@ SOUNDPUNCH Ultimate Suite - Звуковая библиотека, состоя�
 magnet:?xt=urn:btih:DC11073C8E8ED147396C2CAB03FFFDAD5706D398
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ magnet:?xt=urn:btih:DC11073C8E8ED147396C2CAB03FFFDAD5706D398
 ```bash
 magnet:?xt=urn:btih:DD89697341C76373CE98D5E038ADA592300F0571
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +434,8 @@ Seer of the Void - Doom Metal (2020-2023) [MP3|320 Kbps] <Doom Metal>
 magnet:?xt=urn:btih:DEEFF860C40642032FF1785626A4FF148C3D42C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +463,8 @@ VA - Trance Traveling 81 (Mixed by VNP) (2016) [MP3|320 Kbps] <Trance, Melodic, 
 magnet:?xt=urn:btih:568BC1EF7A06B0C7288AC070D43C321FE79852CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +489,8 @@ Format Factory - многофункциональный конвертер ра�
 magnet:?xt=urn:btih:830BD45AA480B924D79F536119AE78D1DC2F3581
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ WinSnap позволяет делать скриншоты экрана мони
 ```bash
 magnet:?xt=urn:btih:E62218174DF00044FF8536ED3489AED1D34AC542
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +542,8 @@ magnet:?xt=urn:btih:E62218174DF00044FF8536ED3489AED1D34AC542
 magnet:?xt=urn:btih:95E56FCA256EDD1E6BBD574E14013CA64469E516
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +568,8 @@ magnet:?xt=urn:btih:95E56FCA256EDD1E6BBD574E14013CA64469E516
 ```bash
 magnet:?xt=urn:btih:7B4A966072755DFEF5B12F1A24E98DC1A996751E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +598,8 @@ John Di Martino's Romantic Jazz Trio - Moliendo Cafe (2011) Venus Records [FLAC|
 magnet:?xt=urn:btih:8936811FB640050BE61BF423C84BD40F90E3F555
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ Opera Crypto Browser 97.0.4719.28 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:120A1AD8882E7B57225BF670467BBF4D0B338C09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ Whisk - это легкий редактор HTML и PHP с предварите
 ```bash
 magnet:?xt=urn:btih:2D321B1F616D19FDBF7A5D8543539A18F3F8C544
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +677,8 @@ magnet:?xt=urn:btih:2D321B1F616D19FDBF7A5D8543539A18F3F8C544
 magnet:?xt=urn:btih:77BA38B5384B550E4C439B370EA9107731B5E437
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ magnet:?xt=urn:btih:77BA38B5384B550E4C439B370EA9107731B5E437
 ```bash
 magnet:?xt=urn:btih:F728E602F1E468D1E7092DB9C1F47D060C206178
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Nat Geo Wild: Амазонская электрическая рыба / Amazon'
 magnet:?xt=urn:btih:071BE0A312EE8549E3B1DB539B569559C0D370CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ NG. Реальность или фантастика? Корабли-призр�
 magnet:?xt=urn:btih:8BB325EFE6605D3390AD7941FBF572C4D0DE7028
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 ```bash
 magnet:?xt=urn:btih:96F6F42CCAF85B3ADFD56ECC4B84DF42A10C8242
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ NG: Гибель Викингов / Viking Apocalypse (2011) SATRip
 magnet:?xt=urn:btih:A9584249C56CCD0AC08A31E08EF6E47153F3E368
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:A9584249C56CCD0AC08A31E08EF6E47153F3E368
 ```bash
 magnet:?xt=urn:btih:448A815A1D2DE5D0567F067C1E47CED0022C6840
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ National Geographic. Больше чем фокусы с Ди Эм Си / Beyond
 magnet:?xt=urn:btih:2714349CFA92AA308810881E6A3A793B40651852
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ BBC: Тайны вселенной: Великие ученые своими с�
 ```bash
 magnet:?xt=urn:btih:7535F167A9176BFA4E0B6CA2FCA0F0B10B7D8DDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ National Geographic. Больше чем фокусы с Ди Эм Си / Beyond
 magnet:?xt=urn:btih:1D41E5E48D5B0930238B7EE7B14A780BDDE52E16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:1D41E5E48D5B0930238B7EE7B14A780BDDE52E16
 ```bash
 magnet:?xt=urn:btih:947A7D9B807F7EDC968B75CAB37930A3EBD5A7C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ MARS: Inside SpaceX - новый документальный фильм от Na
 magnet:?xt=urn:btih:81CA5C1E8DFBB1FF9F62A649F59C3D51D528C58A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ NG: Тайны Тутанхамона / Ultimate Tutankhamun (2013) SATRip
 magnet:?xt=urn:btih:47960210F09C47CCF5BC5E26348F1085DAE5B9FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Discovery: Почему? Вопросы мироздания. Можем ли м
 ```bash
 magnet:?xt=urn:btih:8591154E84A2653B972523998CD51725D2E5C3FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:8591154E84A2653B972523998CD51725D2E5C3FB
 magnet:?xt=urn:btih:10E93EF89C0E5DC782A30448643FA6EF4FB6CBED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Discovery. Почему? Вопросы мироздания. Как дейст�
 ```bash
 magnet:?xt=urn:btih:7A85BA7C081C8954D24971D149FE4A557965D8BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ BBC. Барокко! От собора св.Петра до собора св.П
 magnet:?xt=urn:btih:665ECD6CB6548E2B59B9048685FCADE93B7E5D47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:665ECD6CB6548E2B59B9048685FCADE93B7E5D47
 ```bash
 magnet:?xt=urn:btih:AA5B3257AC81B4E31D0587284362966B05C687C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:AA5B3257AC81B4E31D0587284362966B05C687C3
 magnet:?xt=urn:btih:2B3091DFFB4783E43D224E9DEE9A30B72171E200
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:2B3091DFFB4783E43D224E9DEE9A30B72171E200
 ```bash
 magnet:?xt=urn:btih:102FEC20D2502681D5146BE56D0A7070CB17E4E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ BBC. Horizon. Что же такое один градус? / Horizon. What is O
 magnet:?xt=urn:btih:2632688A51C28175FC1EB909E51B90D3C32A3F5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:2632688A51C28175FC1EB909E51B90D3C32A3F5A
 ```bash
 magnet:?xt=urn:btih:AB70F5FB7E6A48D38F81AD61D5DB1E1121E49EA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ Animal Planet: Вторжение / Intruders (2017) HDTV [H.264/1080i] (сер�
 magnet:?xt=urn:btih:536B13C52ED96E279E29868E2A514B71D96F9CCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ Discovery: Почему? Вопросы мироздания. Природа н�
 ```bash
 magnet:?xt=urn:btih:9898A02A3599C7739CD7CEA901B42562B1222385
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ NGW: Схватка тигров / Clash of Tigers (2018) HDTV [H.264/1080i-LQ]
 magnet:?xt=urn:btih:7348DC6A0178797AA18AF4D739CCA43EE60613A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ magnet:?xt=urn:btih:7348DC6A0178797AA18AF4D739CCA43EE60613A7
 ```bash
 magnet:?xt=urn:btih:1201AAEC87A2AC1FB9CF4FA99F3573E7D6FE6E13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ BBC: Цивилизации / Civilisations (2018) BDRemux [H.264/1080p] (сез
 magnet:?xt=urn:btih:1A3E96725E79EAA22C388244EA6C6C105069A4E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ BBC: Как строилась Британия / How We Built Britain (2007) HD
 ```bash
 magnet:?xt=urn:btih:BC39D88C9415E43C2BCFCCC7A0C6BD89C6A42C5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

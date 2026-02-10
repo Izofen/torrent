@@ -22,6 +22,8 @@ Princess Connect! Re:Dive 2 / PriConne 2 / Связь принцесс! Ново
 magnet:?xt=urn:btih:C4540BA5D2975FA4E3B2AD52A0F579D04100919F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Meitantei Conan: Hannin no Hanzawa-san | Detective Conan: The Culprit Hanzawa | 
 magnet:?xt=urn:btih:D7A6C8CA618A85FCF06F98CB8E69999CFF12DB99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Shenmue the Animation | Шэнму [2022, TV, 13 из 13] WEBRip 1080p raw
 ```bash
 magnet:?xt=urn:btih:EE751096C77A76F901E486C2E65B2BEDBB687F44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Kaiko Sareta Ankoku Heishi (30-dai) no Slow na Second Life | Неспешная 
 magnet:?xt=urn:btih:3BF03195C6A49852A34CA6D44D0734781D709AE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:3BF03195C6A49852A34CA6D44D0734781D709AE3
 ```bash
 magnet:?xt=urn:btih:D7F16E514EEDCEA4F1102DC1835A7ABCDA7A573E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Ame-iro Cocoa Series: Ame-con!! | Какао цвета дождя: Аме-ко�
 ```bash
 magnet:?xt=urn:btih:1CAD8A480C6C42C35ABB24AFA28E031F7ECFDF6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ Boku ga Aishita Subete no Kimi e | To Every You I've Loved Before | Каждом
 magnet:?xt=urn:btih:73B314A56BB614998A2D95BB2EFA946DA48FADA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Romantic Killer | Романтический убийца [2022, Web, 12 эп.] 
 ```bash
 magnet:?xt=urn:btih:EBC587ECF5A3C1ED8BADBF82A94D29F277B4E205
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ Kimi o Aishita Hitori no Boku e | To Me, The One Who Loved You | Тому мне
 magnet:?xt=urn:btih:F67DE9DAD575CD00F6BC3A9D71388BC71E5A5B7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ UFO Princess Valkyrie | UFO Ultramaiden Valkyrie | Валькирия, прин�
 ```bash
 magnet:?xt=urn:btih:362726DC2D9394FA133F2428913E61E882F668EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ Haou Taikei Ryuu Knight | Lord of Lords Ryu Knight | Повелитель Рюк
 magnet:?xt=urn:btih:653EA86C98D86432D77BB1E918690AC839317E73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ UFO Princess Valkyrie: Seireisetsu no Hanayome | Валькирия, принц�
 ```bash
 magnet:?xt=urn:btih:9BD025B07154FA992E5857845D3823484CFBC927
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ UFO Princess Valkyrie: Juunigatsu no Yasoukyoku | UFO Ultramaiden Valkyrie 2: De
 magnet:?xt=urn:btih:E798E816865F84F93E1803504201269592A26ED2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ Tensei Shitara Ken Deshita | Reincarnated as a Sword | О моём переро�
 magnet:?xt=urn:btih:FE454CF7088919FD685ADA125CEF4A972CA381AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ Eiyuu Ou, Bu o Kiwameru Tame Tenseisu: Soshite, Sekai Saikyou no Minarai Kishi |
 ```bash
 magnet:?xt=urn:btih:0D4D26DA9CA9BCEF828874D0ED8F9C74ECC781CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ Angelique: Shiroi Tsubasa no Memoire | Анжелика OVA-1 [2000, OVA, 2 эп
 magnet:?xt=urn:btih:5F943999282A47640922F7F080C5B1FD7D223AF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ Neo Angelique Abyss | Анжелика [ТВ-3] [2008, TV, 13 эп.] DVDRip 480p
 ```bash
 magnet:?xt=urn:btih:136DD85147B69B1C4438E2C1A0CEDFCCC1A793DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ Angelique | Анжелика OVA-4 [2004, OVA, 3 эп.] DVDRip 480p HEVC 10-bit 
 magnet:?xt=urn:btih:5AF6AAA3F7AFF5949A12733B7C062F9C807754F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ Cюжет данного аниме крутится вокруг корпора
 magnet:?xt=urn:btih:BE361672FD1C135AD32B55096E1A2F05FAAFB29B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ Himiko-Den | Legend of Himiko | Легенда о Химико [1999, TV, 12 э�
 ```bash
 magnet:?xt=urn:btih:C6D1D9B655EB7A9649492F2B37C0DAD8E5AE7904
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ Metal Fighter Miku | Металлический воин Мику [1994, TV, 13 
 magnet:?xt=urn:btih:F373A3F7800E053816322BAD70E50B33E0EEF727
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ Juusenshi Gulkeeva | Beast Warrior Galkeeva | Зверовоины Галкее�
 ```bash
 magnet:?xt=urn:btih:CFC0908947F67CB338E454053C707F728AD40C7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ Oushitsu Kyoushi Haine | The Royal Tutor | Королевский репетит
 magnet:?xt=urn:btih:E8A476E9AF582A2D654B5CDD4B34ED7BAA84E3D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ Kiss Dum: Engage Planet | Немой поцелуй: Обручённая пла
 ```bash
 magnet:?xt=urn:btih:7EAB02056A909668C9ED7440159B90D0CA3F5BF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ Kaitou Queen wa Circus ga Osuki | Mirage QUEEN Prefers Circus | Королева
 magnet:?xt=urn:btih:AD954549A211ED266EE036F65FA488E988843979
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Hanebado! | Бадминтон Ханэсаки [2018, TV, 13 эп.] BDRip 1080p
 ```bash
 magnet:?xt=urn:btih:7860D656759AEF43388FA861D1DAE6E80593FDF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

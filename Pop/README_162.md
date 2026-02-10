@@ -1,3 +1,148 @@
+###  Публикация: 1167349   (417340) от 20.09.2017
+
+Titan - Dama (2016) [FLAC|Lossless|tracks] <Electropop, Nu Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dama Fina
+02. HelL.A. (featuring Siobhan Fahey)
+03. Tchaikovsky
+04. Sangre(   Читать дальше...   )Жанр: Electropop, Nu DiscoПродолжительность: 00:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A40B223A228EB4FAC47D0ADE75CB0CA7294BD35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091164   (417507) от 01.10.2018
+
+Лена Василёк и Белый День - Босиком по России! (2015) [MP3|320 Kbps] <Pop, Folk>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вера-Надежда-Любовь
+02. Мамин юбилей
+03. Папина дочка
+04. Сладкий мёд(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:35:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2C6C424D2C1D7CC247141B395DBA4EA860E024C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251479   (417713) от 01.10.2018
+
+Алла Пугачёва - Белый снег (2000) Compilation [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Осторожно, листопад! (5:22)
+02. Не сгорю (4:11)
+03. Белый снег (4:00)
+04. Непогода (4:47)(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E16DD74A6324EAD333B3B7CDB8309A7978BE27B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251450   (417771) от 01.10.2018
+
+Agnetha & Frida - The Voice of ABBA (1994) Compilation [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agnetha Faltskog - The Heat Is On (3:57)
+02. Frida - I Know There's Something Going On (5:31)
+03. Agnetha Faltskog - You're There (3:32)
+04. Frida - To Turn The Stone (5:19)(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:270ACCFED197CB71EEC011922DEBFA04F30AE940
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947710   (417816) от 17.10.2015
+
+Pupo - Аллея Звёзд (2005) [FLAC|image+.cue]<Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Celato Al Cioccolato
+02. Forse
+03. Su Di Noi
+04. Chissa Se Domani(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:18:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B13559A42C14D731F566706A5FC75B3E839DE812
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1251463   (417848) от 01.10.2018
 
 London Boys - The Twelve Commanments Of Dance (1989) [MP3|320 Kbps] <Disco>
@@ -21,6 +166,8 @@ London Boys - The Twelve Commanments Of Dance (1989) [MP3|320 Kbps] <Disco>
 ```bash
 magnet:?xt=urn:btih:35E156CE0EAF1999DFA3F499A11008B2C8562C86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +196,8 @@ Thomas Anders - Songs Forever (2006) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:75756625BB5B61B32FD0077E1479EBBDE0310863
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +225,8 @@ VA - Very Best Of Jeans Hits (1994) 2CD [FLAC|tracks + .cue]<Pop, Rock, Blues>
 magnet:?xt=urn:btih:DF571EA3BBB464A2B3A35B6A237E98DD55E3B9E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +251,8 @@ Mehdi - When Will I Be Famous (2008) Single, 2 Tracks Kleiner Preis [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:8FC7EDF2672183F6F2E55F6F717C13AB8204C450
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +281,8 @@ True Party - настоящий отдых, ну какой ещё релиз р
 magnet:?xt=urn:btih:0BB3AE92BE039FD235BF5A9EA12E88609351D3B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +309,8 @@ VA - New Italo Disco Top 25 Compilation Vol. 14 (2020) [MP3|320 Kbps] <Italo-Dis
 ```bash
 magnet:?xt=urn:btih:89B83BA866999D7511B05C3A38949D6630DFD150
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -182,6 +339,8 @@ magnet:?xt=urn:btih:89B83BA866999D7511B05C3A38949D6630DFD150
 magnet:?xt=urn:btih:5A4D85DADF03DEB569B0101CC001659E844DBE16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +367,8 @@ VA - Now That's What I Call Music! 71 (2019) [FLAC|Lossless|tracks + .cue] <Pop,
 ```bash
 magnet:?xt=urn:btih:3D65D8241C2CF5F0A7F9F3CE4ABAEB946A380E2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +397,8 @@ Bee Gees - The Many Faces Of (2020) 3xCD, Compilation [FLAC|Lossless|image + .cu
 magnet:?xt=urn:btih:F9905A0C9E921A73F2CCB387D5F54AFAA41DCCC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +426,8 @@ Rocky - Soft Machines (2016) [MP3|320 Kbps] <Alternative Pop, Soul, Electropop>
 magnet:?xt=urn:btih:F3626FBC05FAC76B0FE75016CCDE6133C1EA7D8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +452,8 @@ Galaxis - I Want More & Space Rangers (1978) LP [MP3|320 Kbps] <Electronic, Disc
 ```bash
 magnet:?xt=urn:btih:5FD415F9455DBF3FA370EE36F5956593533DB84A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +482,8 @@ VA - Dance For Fans Vol.1 (2017) [MP3|320 Kbps] <Eurodance, Eurobeat>
 magnet:?xt=urn:btih:964E80855039CAFC3152244A06DAA8271F21D8FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +510,8 @@ Pisces - Disco 6 (1977) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 ```bash
 magnet:?xt=urn:btih:81A79578CCF21BDFC662941F7F046516023B1B21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +540,8 @@ Celine Dion - Courage (2019) [OGG Vorbis|485 Kbps] <Pop>
 magnet:?xt=urn:btih:08751BEC023E8A744292DADD8F64CD7EA9B4F077
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +569,8 @@ magnet:?xt=urn:btih:08751BEC023E8A744292DADD8F64CD7EA9B4F077
 magnet:?xt=urn:btih:23D49F88F90FBEAABD63234BFA3B1DC4E1EACDAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +596,8 @@ Systems In Blue - There's No Heart (2018) Special 80's version, 12" [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:76FA68BF9B9668A7D955FC17FDAF6817A41C8EE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +626,8 @@ John Newman - Revolve (2015) Deluxe Edition [MP3|320 кб/с]<Pop, Soul>
 magnet:?xt=urn:btih:7B9F1FD5521A18572A672C65D8B08D627D722B7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +654,8 @@ Pentatonix - Pentatonix (Deluxe Edition) (2015) [FLAC|Lossless|WEB-DL]<Pop, A Ca
 ```bash
 magnet:?xt=urn:btih:62B05B375FA513B8C54887C0417615026CBBDEAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +684,8 @@ VA - Movie Love Songs (1997) [FLAC|tracks + .cue]<Pop, Soul, Easy Listening>
 magnet:?xt=urn:btih:345B0027F08EBB84300C2C6553D5F747598DF353
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +713,8 @@ Kaleida - Tear The Roots (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, 
 magnet:?xt=urn:btih:05FDD09C8F8A51670C4FD19DA36B5F2C14805148
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,140 +740,7 @@ Dee D. Jackson - Automatic Lover [New Digital Version] (1977) Maxi-Single, 1988,
 magnet:?xt=urn:btih:CAEA190928F66B75DB3E883EC4E0C454504922F5
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324807   (421332) от 11.09.2019
-
-Nino De Angelo - Samuraj (1989) LP [MP3|320 Kbps] <Electronic, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продюсер: Dieter Bohlen01. Samuraj (3:57)
-02. Who's Gonna Love You Tonight (3:53)
-03. Have You Ever Been Lonely (3:07)
-04. Stay With Me (3:09)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:34:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C515ED411E1518A85D45CE728E37543BDCDF4588
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065192   (421763) от 22.10.2016
-
-VA - Decade of the Synth  Vol.1 (2016) [MP3|320 Kbps] <Disco, Nu Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vasiliy Arefiev - My Lost Melody  6:40
-02. Italo Brutalo - Velodrome  6:51
-03. Boy Funktastic - Beachs  4:16
-04. Ocsav - Move Your Soul  6:02(   Читать дальше...   )Жанр: Disco, Nu DiscoПродолжительность: 01:33:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDCF77C5512116EEA62DEDE1328EEB1151E49CC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167023   (421920) от 18.09.2017
-
-Emily Haines (of Metric) & The Soft Skeleton - Choir of the Mind (2017) [FLAC|Lossless|tracks] <Alternative Pop, Acoustic Indie Rock, Piano>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Planets
-02. Fatal Gift
-03. Strangle All Romance
-04. Wounded(   Читать дальше...   )Жанр: Alternative Pop, Acoustic Indie Rock, PianoПродолжительность: 00:59:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF36EB4B6BA52E4882469B7D742CF7472C81AC5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250391   (422141) от 29.09.2018
-
-Cher - Dancing Queen (2018) Warner Bros. Records [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing Queen (3:43)
- 02. Gimme! Gimme! Gimme! (A Man After Midnight) (4:11)
- 03. The Name of the Game (4:49)
- 04. SOS (3:22)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:410B91F45800DDEB2F8E2C6D56656F6C2ACECE17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947062   (422486) от 15.10.2015
-
-Demi Lovato - Confident (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Confident
- 02. Cool for the Summer
- 03. Old Ways
- 04. For You(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7C4C112500B8414CF378A36CC81E91AE37BE909
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

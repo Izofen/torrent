@@ -19,6 +19,8 @@ Topaz A.I. Gigapixel — это первое и единственное при�
 magnet:?xt=urn:btih:C0557C9AD87CB24EEE1A6ECBEA04E9FC80014C4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:C0557C9AD87CB24EEE1A6ECBEA04E9FC80014C4E
 ```bash
 magnet:?xt=urn:btih:8A0339AB0F3DB3E2BE5C138FE48D7B84084AFAD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Adele - At The BBC (2015) HDTVRip [H.264]
 magnet:?xt=urn:btih:00C20BBA2793ECB3AC09185126F1C744621081C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ NVIDIA® Nsight™ - это идеальная платформа для раз�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ NVIDIA® Nsight™ - это идеальная платформа для раз�
 magnet:?xt=urn:btih:0DE5834E7EA65C8A9BF223FB089E0D214CFF5824
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:0DE5834E7EA65C8A9BF223FB089E0D214CFF5824
 ```bash
 magnet:?xt=urn:btih:A853D3548C23C677F0564AAEAF98FF0EB87F384C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:A853D3548C23C677F0564AAEAF98FF0EB87F384C
 magnet:?xt=urn:btih:A6B270922D0EB29931ADB4DC8FB6813831DB763A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:A6B270922D0EB29931ADB4DC8FB6813831DB763A
 ```bash
 magnet:?xt=urn:btih:EF78CBE5A4548576F91AE6A3377792040E71A999
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:EF78CBE5A4548576F91AE6A3377792040E71A999
 magnet:?xt=urn:btih:54EB67CCCAD9E0579117DF63B9E909AC0F17C1B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ Udemy, Jesse E. Agbe | Learn Streamlit Python (2020) PCRec [En / En Sub]
 magnet:?xt=urn:btih:34B73744CAD3ABC4273BB71CA9297581A40B905E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ Bartender - утилита для простой организации икон
 ```bash
 magnet:?xt=urn:btih:DDF78E6BCE05124906D2A5E48C6B5AD51994E494
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ Terrace Martin & Curly - Curly (2023) [MP3|320 Kbps] <Jazz, Smooth Jazz>
 magnet:?xt=urn:btih:06F85D134A2CF84EC363EEA3149DAD3043E9A940
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:06F85D134A2CF84EC363EEA3149DAD3043E9A940
 ```bash
 magnet:?xt=urn:btih:D08274F64FEDC8C1FD555BAF7B51650D53A9312B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ VA - Animals Reimagined - A Tribute to Pink Floyd (2021) [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:3339F069FB79111CCB915BB3874B054AFC5302F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ Adobe Prelude 2020 - программа для профессиональной 
 ```bash
 magnet:?xt=urn:btih:04D4BCB3367BEF6710BE09FD3AE07DC660E6BBC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ ROSA Marathon 2012 RC включает в себя: Linux ядро 3.6.7 с по
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +460,8 @@ VA - Something In My Heart (2019) [MP3|320 Kbps] <Blues Rock>
 magnet:?xt=urn:btih:C457A935B91A007F5D40887144A7F89EA1211E98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +489,8 @@ Cavalera - Morbid Visions (2023) [FLAC|Lossless|image + .cue] <Thrash Metal, Dea
 magnet:?xt=urn:btih:2A699C1D62CC583A4D9F13C09B3DE2D99265185E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ magnet:?xt=urn:btih:2A699C1D62CC583A4D9F13C09B3DE2D99265185E
 ```bash
 magnet:?xt=urn:btih:A62800ED53CD70E19812C03C0813AE6D2453282F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +541,8 @@ magnet:?xt=urn:btih:A62800ED53CD70E19812C03C0813AE6D2453282F
 magnet:?xt=urn:btih:FD647A89DEE05FFDFC6044D92768931C59FAE65E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ magnet:?xt=urn:btih:FD647A89DEE05FFDFC6044D92768931C59FAE65E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +596,8 @@ Backstreet Boys - Backstreet's Back (1997) Unofficial Release [FLAC|Lossless|ima
 magnet:?xt=urn:btih:E30EE39CB981457BBBD0BA017484481B9F231469
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +622,8 @@ magnet:?xt=urn:btih:E30EE39CB981457BBBD0BA017484481B9F231469
 magnet:?xt=urn:btih:A97BEC042004E7E41C438C06712468B3EB625729
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +647,8 @@ Viasat History: Скрытые угрозы / Hidden Killers (2013) SATRip (се
 ```bash
 magnet:?xt=urn:btih:D5ABA6B7BD6D08EF6969FD6671643DF473B66B0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +677,8 @@ Pink Floyd - Home (2021) [AAC|~322 Kbps] <Rock>
 magnet:?xt=urn:btih:B62FA814470965A87D1A17F05D30602C5E6A450F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ magnet:?xt=urn:btih:B62FA814470965A87D1A17F05D30602C5E6A450F
 ```bash
 magnet:?xt=urn:btih:192E52E311F9B5B7BAB20E774479DB31EE4F3DCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

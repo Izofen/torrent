@@ -28,6 +28,8 @@ Various Artists - Paint It Blue - Songs of the Rolling Stones (1997) [FLAC|Lossl
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ Various Artists - The Alligator Records Christmas Collection (1992) [FLAC|Lossle
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ Various Artists - Gentle Blues (2004) [FLAC|Lossless]<Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +129,8 @@ Various Artists - Gentle Blues (2004) [FLAC|Lossless]<Blues>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +165,8 @@ Various Artists - Texas Bluesmen (1993) [APE|Lossless]<Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +199,8 @@ VA - Good Whiskey Blues (Blues Paradise series, Volumes 1-18) (2002) [FLAC|Lossl
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +235,8 @@ Gary Moore - All The Best (2012) [MP3|320 кб/с]<Blues-Rock, Hard Rock>
 magnet:?xt=urn:btih:9CC93CCC0B220CAA08B3247DC656DD553944B304
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +263,8 @@ Connie Francis - The Italian Collection: Vol. 1 & 2 (1997) [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:182ED5F97AEE5B79C98C219206953990E3965D5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +293,8 @@ Renato Rocchinotti - Black Shadows in the Dark (2025) [FLAC 24/44.1|Lossless|WEB
 magnet:?xt=urn:btih:318910858839D1F8D66F5D232D230BC9EBE134D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +321,8 @@ Mississippi Heat - Don't Look Back (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <B
 ```bash
 magnet:?xt=urn:btih:7A92CD575F75AF320620D08AA1CA7702B273D78E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +351,8 @@ LeBron Johnson - Strong Men Still Human (2025) [FLAC 24/88.2|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:15E0EF08BDEF2CA938C8F85A60863BC8210E2973
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +379,8 @@ Macon Music Revue - Macon Music Revue (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:CBC33A3D19CAD46A6C02CBC3D9DF4D210FA52660
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +409,8 @@ Kara Grainger - That's How I Got To Memphis (2025) [FLAC 24/44.1|Lossless|WEB-DL
 magnet:?xt=urn:btih:DADCB8811E14D2171561CAB422308CDB021ECDBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +437,8 @@ Johnnie Johnson - I'm Just Johnnie (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:6786BB79AC1BFC0B85660CFB25C31C963BEB2CEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +467,8 @@ Jimmy Burns & Soul Message Band - Full Circle (2025) [FLAC 24/48|Lossless|WEB-DL
 magnet:?xt=urn:btih:597D9457FC4A9DEEACF5A43F4E067721D7A180FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +495,8 @@ James Bratton - Imagination (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth
 ```bash
 magnet:?xt=urn:btih:1C82F93415B98D7D23EB14FE4123A8DB3653C0EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +525,8 @@ Family Company - Pieces Of Us (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 magnet:?xt=urn:btih:215B3E4E9C10E7E5CBD54764E13B41A533F4DDF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +553,8 @@ Connor Selby - The Truth Comes Out Eventually (2025) [FLAC 24/48|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:16928BBA8B36CBE039081BEFCE254D708D935FEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +583,8 @@ Carlos Casciaroli - Dark Blues Ritual (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:BDC571E0CF14F4A6FE34680D4E40E89BE056723C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +611,8 @@ Bruce Wojick & The Struggle - The Hard Way (2025) [FLAC 24/48|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:0C6EAC55867DEEBCFE6C13E207A154E0B9A3FE1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +641,8 @@ Federico Conti & The Modern Organ Trio - Hammond-Ology (2020) [MP3|320 Kbps] <Ja
 magnet:?xt=urn:btih:58579EC832BF17AEDC0D7DE732AA0D3354C3EFC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +669,8 @@ CD1 - Sonny Rollins And The Big Brass:
 ```bash
 magnet:?xt=urn:btih:3607ACDF488415F201CBC8980B6A84DD90A96382
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -655,6 +699,8 @@ CD1:
 magnet:?xt=urn:btih:0ABA56530EE919D51B7599239097A751704FD048
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -681,6 +727,8 @@ John Legend - A Legendary Christmas (2018) [FLAC|Lossless|tracks + .cue] <R&B, P
 ```bash
 magnet:?xt=urn:btih:2995C320BE90F1C772B30D31AE5828E11A2DF2A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -709,6 +757,8 @@ Jack Jezzro - Christmas Jazz Guitar (2018) Green Hill Productions [FLAC|Lossless
 magnet:?xt=urn:btih:D7ADD360BE40F75F5A9D6C1240D0406BBAB6A34F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -735,6 +785,8 @@ The Puppini Sisters - Christmas At Home (2023) [FLAC 24/44.1|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:75E0BB2D64DD2F0E53073F97E8C75F7817159162
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

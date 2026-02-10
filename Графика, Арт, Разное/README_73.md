@@ -1,51 +1,3 @@
-###  Публикация: 537879   (504901) от 28.08.2012
-
-Mixed Wallpapers (21.08.12) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C80AC4957036491FA961FD5D057240C1146B74F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537875   (504902) от 28.08.2012
-
-Best HD Wallpapers Pack (21.08.12) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504902.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5D3353590D637520A2A0E24876D382807030966
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1316745   (505077) от 27.07.2019
 
 Обои - Desktop Wallpapers Full HD. Part (478) [JPG]
@@ -66,6 +18,8 @@ magnet:?xt=urn:btih:F5D3353590D637520A2A0E24876D382807030966
 ```bash
 magnet:?xt=urn:btih:637CF48B0403BA23B9A57ACC7F51F10A462A5E89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +45,8 @@ magnet:?xt=urn:btih:637CF48B0403BA23B9A57ACC7F51F10A462A5E89
 magnet:?xt=urn:btih:EB8FAF9B1DB755CF902E40ED4EA63247AC9A45C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +70,8 @@ magnet:?xt=urn:btih:EB8FAF9B1DB755CF902E40ED4EA63247AC9A45C1
 ```bash
 magnet:?xt=urn:btih:14607F42952A4B83500797FA10CDFCA80AD15B4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +97,8 @@ magnet:?xt=urn:btih:14607F42952A4B83500797FA10CDFCA80AD15B4F
 magnet:?xt=urn:btih:9BE67A49AE238FE8FBDCDEA90A31B3948B310D54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +122,8 @@ magnet:?xt=urn:btih:9BE67A49AE238FE8FBDCDEA90A31B3948B310D54
 ```bash
 magnet:?xt=urn:btih:D2D531675401B52A43F9548C69CDBA4CC83963C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +149,8 @@ magnet:?xt=urn:btih:D2D531675401B52A43F9548C69CDBA4CC83963C2
 magnet:?xt=urn:btih:463CCFC1EADCFF959E39E09C1CDAB1ABB1A58270
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +175,8 @@ magnet:?xt=urn:btih:463CCFC1EADCFF959E39E09C1CDAB1ABB1A58270
 magnet:?xt=urn:btih:59206E78B0549E33C28EBB1F10B3C907A3324D00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +200,8 @@ magnet:?xt=urn:btih:59206E78B0549E33C28EBB1F10B3C907A3324D00
 ```bash
 magnet:?xt=urn:btih:0C84EB8AC58195802121EA6A1FBA0F94FF766091
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +228,8 @@ Exclusive Mega Package 3D Icons - это самый большой в рунет
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +253,8 @@ Exclusive Mega Package 3D Icons - это самый большой в рунет
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +280,8 @@ Exclusive Mega Package 3D Icons - это самый большой в рунет
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +305,8 @@ Exclusive Mega Package 3D Icons - это самый большой в рунет
 ```bash
 magnet:?xt=urn:btih:45BE2031CCD0521A4A0D7088182C30C4E97BE291
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +332,8 @@ magnet:?xt=urn:btih:45BE2031CCD0521A4A0D7088182C30C4E97BE291
 magnet:?xt=urn:btih:10C6123AEEDA00BE456A435267E48158343AB5C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +357,8 @@ magnet:?xt=urn:btih:10C6123AEEDA00BE456A435267E48158343AB5C0
 ```bash
 magnet:?xt=urn:btih:AA5CF9993E8F702290EA5B0DD3780D71A8CD040C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +384,8 @@ magnet:?xt=urn:btih:AA5CF9993E8F702290EA5B0DD3780D71A8CD040C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +409,8 @@ magnet:?xt=urn:btih:AA5CF9993E8F702290EA5B0DD3780D71A8CD040C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +436,8 @@ magnet:?xt=urn:btih:AA5CF9993E8F702290EA5B0DD3780D71A8CD040C
 magnet:?xt=urn:btih:C14CD15BD20D53E372036DAF7793175324BE04C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +461,8 @@ magnet:?xt=urn:btih:C14CD15BD20D53E372036DAF7793175324BE04C3
 ```bash
 magnet:?xt=urn:btih:0F600A6511F9DB783AE118523E408D01FC9C0E6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +488,8 @@ magnet:?xt=urn:btih:0F600A6511F9DB783AE118523E408D01FC9C0E6A
 magnet:?xt=urn:btih:2FA2F8EB131D6287D9B531537D0EA9A8990B313F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +513,8 @@ magnet:?xt=urn:btih:2FA2F8EB131D6287D9B531537D0EA9A8990B313F
 ```bash
 magnet:?xt=urn:btih:CC7AE6CBC0592D4C3EF730295E5C7BBF331604BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +540,8 @@ magnet:?xt=urn:btih:CC7AE6CBC0592D4C3EF730295E5C7BBF331604BC
 magnet:?xt=urn:btih:30C996D7700D95A25325A9E390687DDB284E79CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +565,8 @@ magnet:?xt=urn:btih:30C996D7700D95A25325A9E390687DDB284E79CC
 ```bash
 magnet:?xt=urn:btih:4317E3841B2093372D08C8AF874F7728E92CF844
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +592,8 @@ magnet:?xt=urn:btih:4317E3841B2093372D08C8AF874F7728E92CF844
 magnet:?xt=urn:btih:150503EEBD40BC362B72433FEF0ACD9D190F85E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +617,60 @@ magnet:?xt=urn:btih:150503EEBD40BC362B72433FEF0ACD9D190F85E3
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932536   (508859) от 29.08.2015
+
+Картинки - Живые фотографии [GIF]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508859.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Живые фотографии" привлекли внимание пользователей интернета с первого дня появления в сети. Все необычное и красивое неизбежно притягивает и будет привлекать к себе людей, так как тяга к прекрасному изначально заложена в каждом человеке. Мы любуемся красотой, вдохновляемся, душа наполняется восхищением и приятными эмоциями, поэтому, несомненно, красота (   Читать дальше...   )Формат: GIFРазрешение файлов: от 500х269 до 800х1066
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E9459972F237F519161C06CA023E0D78ED821C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932491   (509164) от 29.08.2015
+
+Обои - Ситуации 2 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои на ситуационную темуФормат: JPGРазрешение файлов: 1280x960 - 2560x1920
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7D9A019F0A1F9054946B00BC7E4EA1DA7D093AC
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

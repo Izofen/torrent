@@ -19,6 +19,8 @@ NetLimiter 4.0.15.0 Enterprise [En]
 magnet:?xt=urn:btih:844A0181F16614A7F13740D2C446A40B0213D88A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:844A0181F16614A7F13740D2C446A40B0213D88A
 ```bash
 magnet:?xt=urn:btih:A5E9B0E92D4175C351B5E6E174F6A97439621D6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:A5E9B0E92D4175C351B5E6E174F6A97439621D6F
 magnet:?xt=urn:btih:EEFEAE56FA0D91E826FB01E2BD988EC93BFBD813
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:EEFEAE56FA0D91E826FB01E2BD988EC93BFBD813
 ```bash
 magnet:?xt=urn:btih:8F5CF04B7BF64D24C91E2B40F350B0C88CE35D72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Camelot: Wrath of the Green Knight (2020) [En] (1.0) Unofficial [Collector's Edi
 magnet:?xt=urn:btih:17960815832C7FCC0BA3F9A8CD6DEA92631CB021
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:17960815832C7FCC0BA3F9A8CD6DEA92631CB021
 ```bash
 magnet:?xt=urn:btih:9D0CD24869C93F9CE893EB55DC19CD77E9AFC55D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:9D0CD24869C93F9CE893EB55DC19CD77E9AFC55D
 magnet:?xt=urn:btih:DF6B5CA75C80250E1FC50F97EC69091A6CC65C93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Kerish Doctor — комплексное решение для автомати�
 ```bash
 magnet:?xt=urn:btih:8C43F0E530F7DA95971A843099DCDCCFD7957488
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Aidfile Recovery Software Professional 3.68 [En]
 magnet:?xt=urn:btih:C1074A42570FEB1E95E5C7F0ACACE9350BB57987
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ n-Track Studio Suite 10.0.0 Intel/ARM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5E5E2F070785BC72AA5CC090642F86F3B036E87F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 magnet:?xt=urn:btih:CB81B0812C26CEBA955694D56DC1CF063DA13273
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ SamDrivers 19.12 - Сборник драйверов для Windows [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:927FB6FF7AEFC2053ED7DE8C0D9C21935EE03DEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:927FB6FF7AEFC2053ED7DE8C0D9C21935EE03DEA
 magnet:?xt=urn:btih:BC6DBFBB368888972273DDCC8EABAACB84BD6929
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:BC6DBFBB368888972273DDCC8EABAACB84BD6929
 ```bash
 magnet:?xt=urn:btih:21A20D8BDD541B8DC28E4F76E090F62A59C50C89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:21A20D8BDD541B8DC28E4F76E090F62A59C50C89
 ```bash
 magnet:?xt=urn:btih:7632B81D19947ECFD2DE62BA5D1FB7ADAF783C1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ VA - Best of Rock Collection (1980-1989) (2015) [MP3|320 кб/с] <Rock, Metal>
 magnet:?xt=urn:btih:B40D1551329679FA1E117ECCC55CD88FE13E0F9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:B40D1551329679FA1E117ECCC55CD88FE13E0F9E
 ```bash
 magnet:?xt=urn:btih:9A23ED4CC472E05841EACFA109DA74210BBA0DD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Menuwhere 2.2.1 [En]
 magnet:?xt=urn:btih:4E0DC8B30481BFE5B85A77544C9F8BB766906EAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:4E0DC8B30481BFE5B85A77544C9F8BB766906EAD
 ```bash
 magnet:?xt=urn:btih:043439A88BB1F70E61B6C9FEC2C15C0B8661ECEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:043439A88BB1F70E61B6C9FEC2C15C0B8661ECEC
 magnet:?xt=urn:btih:C13EDD509A26744771D97FEBC1553B7729FE168D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:C13EDD509A26744771D97FEBC1553B7729FE168D
 ```bash
 magnet:?xt=urn:btih:2D205E1393067E486A67922204320619E61A2026
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Silent Tiger - Twist Of Fate (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard 
 magnet:?xt=urn:btih:974AA8874AE4116D56B69061CCB1AF2F77D6A178
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:974AA8874AE4116D56B69061CCB1AF2F77D6A178
 ```bash
 magnet:?xt=urn:btih:60680407E5E2C01C2C3023B48179BB7E721F1A6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ Beastars | Выдающиеся звери [2019, TV, 12 эп.] WEBRip 720p raw
 magnet:?xt=urn:btih:A97F56B5A8C96789D0FA33BD5D0AC196D709FE6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ magnet:?xt=urn:btih:A97F56B5A8C96789D0FA33BD5D0AC196D709FE6D
 ```bash
 magnet:?xt=urn:btih:2869835470744EE0F8B4D56E3D7CAC3041889DA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +683,8 @@ Dead Moon - Going South (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, Punk-Ro
 ```bash
 magnet:?xt=urn:btih:4FF29FE39E34D6749494D1BDF8DF50E138E084FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

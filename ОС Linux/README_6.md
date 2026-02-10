@@ -21,6 +21,8 @@ Q4OS - дистрибутив операционной системы Linux, с�
 magnet:?xt=urn:btih:74EBC6BF12B6F0509AB0A19AA7E86E7C1B460D43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Sabayon 16.11 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64
 magnet:?xt=urn:btih:10FCD67B1B672D62855F5F71FF44170003AE2BB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Debian Edu, также известный как Skolelinux, является д
 ```bash
 magnet:?xt=urn:btih:7089BC8A14413D7434EACE7CAA8B18B5CBE490B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Debian GNU/Linux 11.5.0 + nonfree (firmware) Bullseye [i386] 2xDVD+3xCD
 magnet:?xt=urn:btih:73FE7E9CCC8D38D35FFF551BD7137B726438B53F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ openSUSE Leap 42.1 [x86_x64] 1xDVD, 1xCD
 ```bash
 magnet:?xt=urn:btih:7EC13EC2FF5BCF82B0F17FD8859CA31871158A70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Fedora 23 Server DVD + Netinstall [i386, x86-64] 2xDVD, 2xCD
 magnet:?xt=urn:btih:A1E3B3E297D020304D9DF6F1FE061DEA4A6EB2DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ RFRemix (Russian Fedora Remix) 23 Wayland (Server DVD + Netinstall) [i386, x86-6
 ```bash
 magnet:?xt=urn:btih:7C6DC8C7C76C95FA7DAD299C06198C56D6DA19FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ Linuxfx 10.7.105 Cinnamon. Дистрибутив Linux, с рабочим ст�
 magnet:?xt=urn:btih:72463BC88DB9291ED4BF836DA3AF1486DC832FC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ Linuxfx 10.7.105 KDE Plasma. Дистрибутив Linux, с рабочим с�
 ```bash
 magnet:?xt=urn:btih:0234801FB48B2D4015A34392EB973F2154CC046B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ RFRemix Live (Дистрибутив RFR жив) (Russian Fedora Remix) 23 (KDE,
 magnet:?xt=urn:btih:BC79F4C14E5FF5484E5B3B526AA3162D8EAF142E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ RFRemix Live (Дистрибутив RFR жив) (Russian Fedora Remix) 23 (KDE,
 magnet:?xt=urn:btih:3CC70358C958D467096D9620493CC2E08D146BE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ Oracle Linux — инициатива Oracle Corporation по созданию �
 magnet:?xt=urn:btih:F3F347DB0DA9BC6CDE85D647CD656C96024EA506
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ Debian Linux 8.2 Jessie [amd64,arm64,armel,armhf,i386,mips,mipsel,powerpc,ppc64,
 ```bash
 magnet:?xt=urn:btih:75BD9C395DA1491E5EAE46B2E97D0846D6B141CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ Fedora 23 Wayland Live (KDE, XFCE, MATE Compiz, LXDE, SoaS + Cinnamon) [x86-64] 
 magnet:?xt=urn:btih:97EBBC2BD30B9E890019643C1FF015E3E4C9C977
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ Fedora 23 Wayland Live (KDE, XFCE, MATE Compiz, LXDE, SoaS + Cinnamon) [i686] 6x
 magnet:?xt=urn:btih:DD88D7709BD7FD4DA5FD005882B47F28B0468C08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ Runtu 18.04 Xfce [x86_x64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:1A7360EEC4E9B640C461970E1B2B6DA585DD361D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +455,8 @@ SUSE Linux Enterprise – это законченный программный �
 magnet:?xt=urn:btih:6951E7F49B58E75C21C26CD8083E633A48F5F859
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +480,8 @@ Sabayon 15.11 (KDE, XFCE, GNOME, SpinBase, Minimal + теперь с MATE и ser
 ```bash
 magnet:?xt=urn:btih:8078A83FAAC2A835588AE8D0029E5E5437AD9F94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ elementary OS — дистрибутив операционной системы
 magnet:?xt=urn:btih:917C027E8A3C87B6F53FE62484DC0FE768015AC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ Manjaro Linux - быстрая, дружественная операционн�
 ```bash
 magnet:?xt=urn:btih:ACFCD0AAB0517A95AE551756386F78D30DB609AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +559,8 @@ Manjaro Linux - быстрая, дружественная операционн�
 magnet:?xt=urn:btih:B1AA5ABE58EC6C7750484FAE283FDCBA70C5C1C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ Manjaro Linux - быстрая, дружественная операционн�
 ```bash
 magnet:?xt=urn:btih:EC9EBB4C70DC6260AA9FA05CE79A64E9E6ABFB9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +611,8 @@ antiX - легковесный LiveCD-дистрибутив Linux, создан
 magnet:?xt=urn:btih:E942B012765662DB4D424DC308EA650414D326FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ antiX - легковесный LiveCD-дистрибутив Linux, создан
 ```bash
 magnet:?xt=urn:btih:09051CD747A7207D190EC624A046EEB40AF4FF39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +665,8 @@ Parrot Security OS 4.7 [Хакинг, аудит, безопасность] [amd
 magnet:?xt=urn:btih:1EBCF686EB6F73B9BE6BA6CC83DD1CCAD8F3C450
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ Manjaro Linux 0.8.7.1 Легкий дистрибутив: Arch + E17 [i686, x86
 ```bash
 magnet:?xt=urn:btih:0C4EB30DD782C98D21780978791822FB33A6EF32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:A50A90380828DB6620B0DC734C2F649D05A88214
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:A50A90380828DB6620B0DC734C2F649D05A88214
 magnet:?xt=urn:btih:A36C9F57CE300A44D6A35C2DBFC1E153C8CFFDAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Galacticare (2024) [Ru/Multi] (1.2.3/dlc) Repack Let'sРlay [Full Coverage Editi
 ```bash
 magnet:?xt=urn:btih:DFE37D724B602F6B8B05F1F379CF105EDDD67726
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:DFE37D724B602F6B8B05F1F379CF105EDDD67726
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ R-Studio Network 9.5 Build 191510 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5F2FBD2A8EA1D93465681D68DC0D2A0CDE6BAC6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:5F2FBD2A8EA1D93465681D68DC0D2A0CDE6BAC6C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Garo: Honoo no Kokuin / Garo the Animation / Гаро: Печать пламен
 ```bash
 magnet:?xt=urn:btih:1AC84F2189034279750E15A94D9F0E9B966ACD04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ AdGuard — уникальный блокировщик рекламы без п
 magnet:?xt=urn:btih:B92E5EEC92DEE0D9D0585F11DFE047F9BB01300B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.01/dlc) Repack seleZen [Deluxe Editio
 magnet:?xt=urn:btih:2547194C44DC9A51118855B93F44D296FF21DAD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:2547194C44DC9A51118855B93F44D296FF21DAD3
 ```bash
 magnet:?xt=urn:btih:851D4649AC50FEF00A9E997D2A368AED3094FAE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:851D4649AC50FEF00A9E997D2A368AED3094FAE5
 magnet:?xt=urn:btih:E54E8C584A4381D3496A1078D90E5B302139A993
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ English Galaxy - уникальное приложение для тех, кто
 magnet:?xt=urn:btih:395FE8BE625B5A69AB2EAA6A964667E3955CBB6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:395FE8BE625B5A69AB2EAA6A964667E3955CBB6D
 ```bash
 magnet:?xt=urn:btih:7F5BC9F77B06E2E8F8696DF8C1CAF53DDE8583E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:7F5BC9F77B06E2E8F8696DF8C1CAF53DDE8583E8
 magnet:?xt=urn:btih:99A7FB3E9896686BA89760173B3F93C59419F7E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:99A7FB3E9896686BA89760173B3F93C59419F7E1
 ```bash
 magnet:?xt=urn:btih:E49EDBC4DAF17D721D1DC6130BF0F87ABBD766C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:E49EDBC4DAF17D721D1DC6130BF0F87ABBD766C3
 magnet:?xt=urn:btih:F0C0C5DDA0AF3C4B2635E5C6AE2381E5FDCBEE8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:F0C0C5DDA0AF3C4B2635E5C6AE2381E5FDCBEE8A
 magnet:?xt=urn:btih:2D147DDDA6F5BD970000B744CA1BB036E7E77718
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:2D147DDDA6F5BD970000B744CA1BB036E7E77718
 ```bash
 magnet:?xt=urn:btih:CAFBEF6746B00B15E9819EF6C63CDD46CC4ED4A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:CAFBEF6746B00B15E9819EF6C63CDD46CC4ED4A4
 magnet:?xt=urn:btih:1CACC3F1023CC75ED01C6371A1E429538C30857F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:1CACC3F1023CC75ED01C6371A1E429538C30857F
 magnet:?xt=urn:btih:1C08D3E2DD41267052FA7719DC2362B33F8142E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ magnet:?xt=urn:btih:1C08D3E2DD41267052FA7719DC2362B33F8142E6
 magnet:?xt=urn:btih:9CAC9909B07710689287D70CC230756F58DB6F1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:9CAC9909B07710689287D70CC230756F58DB6F1A
 ```bash
 magnet:?xt=urn:btih:26F082935DCBE566008F3E10F36615CE3543570F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +613,8 @@ magnet:?xt=urn:btih:26F082935DCBE566008F3E10F36615CE3543570F
 magnet:?xt=urn:btih:814E4F03902FC40E7053455FAA8320DA5958D216
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ magnet:?xt=urn:btih:814E4F03902FC40E7053455FAA8320DA5958D216
 magnet:?xt=urn:btih:75BF92220E2386FA27FDD1438C781E108B3059E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:75BF92220E2386FA27FDD1438C781E108B3059E3
 ```bash
 magnet:?xt=urn:btih:8C94BA600EB6B3CEF23ABA6E25E11CCEE7C58434
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +693,8 @@ A.Truth & SysBreak | Свобода.exe — манифест свободног�
 ```bash
 magnet:?xt=urn:btih:B2FA16B3BA5FF6C395DEC0BBAEC37433A5870EF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

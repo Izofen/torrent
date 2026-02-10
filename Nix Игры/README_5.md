@@ -19,6 +19,8 @@ RWG мод это последнее достижение в области мо
 magnet:?xt=urn:btih:79957E6A137BE490CD2E3CB9C81B8823EFC6BAB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Mamma mia! Легендарная кулинарная эпопея Pizza Connec
 ```bash
 magnet:?xt=urn:btih:E07B57556A936158FA83726865B4A79981ECDD8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:E07B57556A936158FA83726865B4A79981ECDD8A
 magnet:?xt=urn:btih:0A42354F75A025109FC8F9D9D19809AD6EE0E99B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Dex - стильная 2D RPG с элементами стелса и экшен
 ```bash
 magnet:?xt=urn:btih:0D5EB77BF637FB383AE9E02A79AE4290F969E1AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Yooka-Laylee — это новейший платформер с открыты�
 magnet:?xt=urn:btih:A3DD6570C5113D534482DE11FC0B94C49D5A7A26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:A3DD6570C5113D534482DE11FC0B94C49D5A7A26
 ```bash
 magnet:?xt=urn:btih:197C5E469D1980BD916D407E45414B613B79331C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:197C5E469D1980BD916D407E45414B613B79331C
 magnet:?xt=urn:btih:6986A419CD1E2F1000A4F17DDC7AE256A4752D04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:6986A419CD1E2F1000A4F17DDC7AE256A4752D04
 ```bash
 magnet:?xt=urn:btih:A514392F7EAB7AB8899708F206B05DB63BE0D93B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Pyre - ролевая игра, в которой вы становитесь п
 magnet:?xt=urn:btih:AB3A237F7848F8B357BA56F426E131E5AF41D7C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:AB3A237F7848F8B357BA56F426E131E5AF41D7C2
 ```bash
 magnet:?xt=urn:btih:445D3A7F55BAB8B89B1A1E6D44AAF8C46E78F97E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:445D3A7F55BAB8B89B1A1E6D44AAF8C46E78F97E
 magnet:?xt=urn:btih:BC349BAD2BACF85C538C9C13E19D9A12AEE35C64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:BC349BAD2BACF85C538C9C13E19D9A12AEE35C64
 ```bash
 magnet:?xt=urn:btih:82934A72D71C9B92528170B7BF8977520482D9D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Opus Magnum игра-головоломка с бесконечным игров
 magnet:?xt=urn:btih:E0C7D9FD3355D3EB45BD47D7A511F18109FF9E5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:E0C7D9FD3355D3EB45BD47D7A511F18109FF9E5E
 ```bash
 magnet:?xt=urn:btih:E3E6A1C1C8560259FC21C05D45C970D70583E371
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:E3E6A1C1C8560259FC21C05D45C970D70583E371
 magnet:?xt=urn:btih:AB7FE85A01068092267C647303A671601A3F354E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ magnet:?xt=urn:btih:AB7FE85A01068092267C647303A671601A3F354E
 ```bash
 magnet:?xt=urn:btih:86B896FF96F3C8EF406107B22C0BB88955A635AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:86B896FF96F3C8EF406107B22C0BB88955A635AF
 magnet:?xt=urn:btih:394CA43CD48CD0107B777FE7F0C931FA7FA8D080
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ magnet:?xt=urn:btih:394CA43CD48CD0107B777FE7F0C931FA7FA8D080
 ```bash
 magnet:?xt=urn:btih:10D880B7A7356161C70503AF84A2EFB27D20DD8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Capsized – это динамичный двумерный платформер
 magnet:?xt=urn:btih:F09E5955E0976C1454139FE5238FC56F90845E3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Riders of Asgard – игра для любителей спортивных с�
 ```bash
 magnet:?xt=urn:btih:316F9BA253669ADF2BD0ABBBFC572BCD2CE8B8A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Darkwood - это игра о выживании, исследовании и с
 magnet:?xt=urn:btih:87CAF755CF51002B77063FB55A43E9CF243DEF39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ magnet:?xt=urn:btih:87CAF755CF51002B77063FB55A43E9CF243DEF39
 ```bash
 magnet:?xt=urn:btih:EB183E1AEB4FB16E0A6F0C402373B3E0936EDC6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Sumoman – это приключенческий платформер с кру
 magnet:?xt=urn:btih:85086EC11D5BC106240A48654B82AA56C77AEE76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ magnet:?xt=urn:btih:85086EC11D5BC106240A48654B82AA56C77AEE76
 ```bash
 magnet:?xt=urn:btih:78E058BECC38120BBAD46EC01F65AF1FC36079D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ League of Legends - динамичная соревновательная сет
 magnet:?xt=urn:btih:D684E90D5DC0CE200AFC5CB2DCCFFD375AEF3B74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ magnet:?xt=urn:btih:D684E90D5DC0CE200AFC5CB2DCCFFD375AEF3B74
 ```bash
 magnet:?xt=urn:btih:37809316BDEC53634192EAE8CC632FD7A540B4FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

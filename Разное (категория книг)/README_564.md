@@ -1,3 +1,29 @@
+###  Публикация: 1379175   (842884) от 27.04.2020
+
+Дмитрий Быков | Палоло, или Как я путешествовал [сборник] (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_842884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Талантливым журналистам нередко приходится много путешествовать по разным уголкам планеты, и известный российский писатель и ведущий Дмитрий Быков – не исключение. Путешествует он действительно много и со вкусом, а затем красочно, забавно и познавательно описывает свои приключения. Результатом этой работы, идущей рука об руку с отдыхом, стал публицистический сборник (   Читать дальше...   )Жанр: ПублицистикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35FE3E1CAF7D9A85F5A7AEB92C55C2DB8B771DB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112533   (842931) от 08.03.2017
 
 Марианна Стерлигова | Если вас решили уволить, или Как не стать жертвой работодателя (2017) [FB2, RTF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:25BAA4666BC30303B5844C78CCD7B73085431B9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:25BAA4666BC30303B5844C78CCD7B73085431B9D
 magnet:?xt=urn:btih:D941908B3D88A699ECD94B92414AB40DC8C1213E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:D941908B3D88A699ECD94B92414AB40DC8C1213E
 magnet:?xt=urn:btih:D959EBA590FD823D8BB8CEB46B2801A153A7B632
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:D959EBA590FD823D8BB8CEB46B2801A153A7B632
 ```bash
 magnet:?xt=urn:btih:9D6EDD0AD77D0B72A5F45C4B3D3A30AD3E154761
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:9D6EDD0AD77D0B72A5F45C4B3D3A30AD3E154761
 magnet:?xt=urn:btih:5697614DE5C745A205D0B064690397B7F32D5A4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:5697614DE5C745A205D0B064690397B7F32D5A4B
 ```bash
 magnet:?xt=urn:btih:6CB1D85207FE99FB76D34178440AB66B09910285
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +207,8 @@ magnet:?xt=urn:btih:6CB1D85207FE99FB76D34178440AB66B09910285
 magnet:?xt=urn:btih:5AEFC59305192A1DC574C590345114C9200A185D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:5AEFC59305192A1DC574C590345114C9200A185D
 ```bash
 magnet:?xt=urn:btih:BD734E9FBEFE6E60A25E57CE12461C032EDAE1FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +259,8 @@ magnet:?xt=urn:btih:BD734E9FBEFE6E60A25E57CE12461C032EDAE1FC
 magnet:?xt=urn:btih:4B235FEDE32BF4864F2BC60560BE7B898E6435A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:4B235FEDE32BF4864F2BC60560BE7B898E6435A8
 ```bash
 magnet:?xt=urn:btih:80B281AC3E0EE028B7FAB3D8B74DEA59613FD472
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:80B281AC3E0EE028B7FAB3D8B74DEA59613FD472
 magnet:?xt=urn:btih:0C852DCA98EBC84E2EC0C899FA2DC728D76E7ACC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:0C852DCA98EBC84E2EC0C899FA2DC728D76E7ACC
 magnet:?xt=urn:btih:BD78E74638D9937E6979C77022DB005A27A8F69F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:BD78E74638D9937E6979C77022DB005A27A8F69F
 ```bash
 magnet:?xt=urn:btih:B551F7E2556FB2C40241DF9A57AFD449EAA086B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +392,8 @@ magnet:?xt=urn:btih:B551F7E2556FB2C40241DF9A57AFD449EAA086B4
 magnet:?xt=urn:btih:F4685B579B89265E5E4330790325E626D783CC25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:F4685B579B89265E5E4330790325E626D783CC25
 ```bash
 magnet:?xt=urn:btih:EF3CFE6BB1E728F11F5FACC4F843F0AB45E416E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:EF3CFE6BB1E728F11F5FACC4F843F0AB45E416E3
 magnet:?xt=urn:btih:E7F7E2C1728F7BA6A498D94DEFF78630B8B815DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:E7F7E2C1728F7BA6A498D94DEFF78630B8B815DA
 magnet:?xt=urn:btih:61D1D8B0442F5F9C44345D41723B6FA624ECBE88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:61D1D8B0442F5F9C44345D41723B6FA624ECBE88
 ```bash
 magnet:?xt=urn:btih:CDBE1398C6612C713C6BC1C166D601C782926B92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:CDBE1398C6612C713C6BC1C166D601C782926B92
 magnet:?xt=urn:btih:66FC4BF097DBE001288B523D9099E80FB0E35B87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:66FC4BF097DBE001288B523D9099E80FB0E35B87
 magnet:?xt=urn:btih:B03F028A4E34E9621C174387F52FB984EE77237D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:B03F028A4E34E9621C174387F52FB984EE77237D
 ```bash
 magnet:?xt=urn:btih:39684D18C0E4F096B93F7C9880911001BAD5B961
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:39684D18C0E4F096B93F7C9880911001BAD5B961
 magnet:?xt=urn:btih:55F76CA0546D02C954983B36DEBF268E0E82E6F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +627,8 @@ magnet:?xt=urn:btih:55F76CA0546D02C954983B36DEBF268E0E82E6F4
 ```bash
 magnet:?xt=urn:btih:FAC0C9294E12DF46434861D031D1C69F1F202C71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +654,8 @@ magnet:?xt=urn:btih:FAC0C9294E12DF46434861D031D1C69F1F202C71
 magnet:?xt=urn:btih:E1661089F1B7B0B9AF79BA8DB5E6C0E227A37349
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,29 +680,7 @@ magnet:?xt=urn:btih:E1661089F1B7B0B9AF79BA8DB5E6C0E227A37349
 magnet:?xt=urn:btih:6DEDCEDDFD10407FB9015CE4AADB7AE6CCBA0B59
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378787   (844648) от 26.04.2020
-
-Е. Левашева (отв. ред.) | Моментальные салаты (2012) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию предлагается книга кулинарных рецептов, по которой легко готовить быстрые и вкусные блюда. Салат (итал. salato — солёный) — холодное блюдо из кусочков овощей, зелени, различных других растений, грибов, с добавлением приправы. Первоначально салатом называлось блюдо Древнего Рима, которое состояло из петрушки и лука...Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C610FD59E0DAAC662C8FC384EEF73949FB81E6E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

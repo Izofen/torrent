@@ -19,6 +19,8 @@ FontCreator - Редактор шрифтов FontCreator может созда�
 magnet:?xt=urn:btih:718C24554896A5213BAC5F8DF954809E602A99F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ CherryTree - функциональная программа, которая п�
 magnet:?xt=urn:btih:A1DC88EDC6B859213673BC1AE6AEACF37F74589A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ AntiPlagiarism.NET - инструмент, позволяющий исследо
 ```bash
 magnet:?xt=urn:btih:7B14E14A4BF57969AC24A39B12DA0B99DF1964A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ ChrisPC Win Experience Index - бесплатная утилита, с помо�
 magnet:?xt=urn:btih:69871DEA44953EEA735005401AAF213ABC8E8E42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ SupRemo 4.11.4.2831 [Multi/Ru]
 magnet:?xt=urn:btih:984E398DE460AAC37A64DED24002081CAB1C2D8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:E88795B032475675862FFA0F8267EDD1EC314CD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Total Commander является самым мощным и стабильным
 magnet:?xt=urn:btih:8ACA6943E2C110824F2CB67F08D29A896376BACC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ WinTools.net – набор инструментов для оптимизаци
 ```bash
 magnet:?xt=urn:btih:BF7C5E93BEBB4539224051018FB423DB396FDF67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Revo Uninstaller Pro 5.3.7 RePack (& Portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:470625C2CE54E92DA592D4F4C9AAF1F2E4367192
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Hard Disk Sentinel Pro — отличная программа для монит
 ```bash
 magnet:?xt=urn:btih:CD9E87BDAA59B825A2E5EC9F937171035189A142
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Windows Repair Toolbox — графическая оболочка пакета 
 magnet:?xt=urn:btih:4B712AC4E3D60BD88491BABF92179F2EDFC2B878
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ NetLimiter - программа, решающая проблему контро�
 ```bash
 magnet:?xt=urn:btih:2A3F2830C5068559090DB56E9C57B097EEB30AEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Hard Disk Sentinel Pro — отличная программа для монит
 magnet:?xt=urn:btih:584C16BA08AA1295FFD1937DBE9F6055A6FA6E4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Hard Disk Sentinel — отличная программа для монитор
 ```bash
 magnet:?xt=urn:btih:F3A1F0E9AFD70C366B321F07BB8598EC8C26B207
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ WSCC (Windows System Control Center) - портативная программа
 magnet:?xt=urn:btih:2052D66B8670D196D5125E2D256124C0033B75F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ WizFile простая в использовании программа для �
 ```bash
 magnet:?xt=urn:btih:27B6BC219A1A0799A7A49B7E281FE7ADA5282E04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ CoolUtils Total PDF Printer - будет полезен для печати не
 magnet:?xt=urn:btih:F9087FFC0D4216A109949EC322768945EC7340A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ FocusWriter 1.8.11 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:911B92DB02B4C0A9CCDC1E985A16BB473F847BF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ Resource Hacker - программа для просмотра, извлечен
 magnet:?xt=urn:btih:6EFA621503583080A1284851E481C80DBA357155
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ IceCream Ebook Reader Pro 6.52 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2957F0135AF1F4E3D003B7616188A99126876414
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ Resource Hacker - программа для просмотра, извлечен
 magnet:?xt=urn:btih:8AED472AB54B09DB371E1A18FA3F645A6DC7213F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ USB Image Tool - бесплатная и очень простая в испол
 ```bash
 magnet:?xt=urn:btih:1B05B323B300CB5A0846AF6083F9DF8A591ED388
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ Vovsoft Speech to Text Converter — это автоматическое про�
 magnet:?xt=urn:btih:193E90BF2571F8BA03EC10BF071E3862EA3256BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ Koodo Reader 1.7.4 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:36E7ED9223DF60493D0763D01B7F8D71D17E107F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:DAC237956C9F0509F003FBF23B3530B242A91A4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ TUF Aura Core — приложение для настройки и програ
 ```bash
 magnet:?xt=urn:btih:08C684709883E6E059DF8DC5B713ACA05A0E33C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

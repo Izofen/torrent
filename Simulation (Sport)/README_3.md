@@ -19,6 +19,8 @@ Tennis Manager 2023 - это проработанный спортивный с�
 magnet:?xt=urn:btih:B1006BB2571DB68FC81F38AE61973675C30654D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ theHunter: Call of the Wild – наиболее реалистичный на �
 ```bash
 magnet:?xt=urn:btih:1DAC00276500C866CEE81FA8EBA1ED96F9E6EEE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Hunting Simulator 2 (2020) [Ru/Multi] (1.0.0.311.66949/dlc) Repack R.G. Меха
 magnet:?xt=urn:btih:B294577C84DC94E54EBC66965961BB288AF9FA1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Cabela's Outdoor Adventures (2009) [Ru/En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:C9AB9CDF2407FF8CEB4B62D05B10D3CA2F3AFCBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Cabela's Big Game Hunter продолжает серию симуляторов 
 magnet:?xt=urn:btih:F5E4696415BFA8A52D990AD93DA355BB918A8175
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Cabela's Hunting Expeditions – симулятор охотника, где в�
 ```bash
 magnet:?xt=urn:btih:A60DFDA638F2FD24777FE03583F18F4FFAABF093
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Cabela's Big Game Hunter Pro Hunts – очередная часть в сери
 magnet:?xt=urn:btih:3E969E15BE04B4402D005C94447A73C8EFE093C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ WWE 2K19 (2018) [Multi] (1.03/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:C4AF4A1958107955EAA8583DAAE3978D571B70E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Tour de France 2023 (2023) [Multi] (1.00.04.703) Scene Rune
 magnet:?xt=urn:btih:DD7C57C9EC559461C1AB36FA7611B3C8047C24CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ FIFA 20 - это спортивный симулятор футбола от Ele
 ```bash
 magnet:?xt=urn:btih:15D4C96F0F6D90C8F84F4229D93F322D3A11E059
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Zaccaria Pinball отмечает богатое наследие Zaccaria - и�
 magnet:?xt=urn:btih:049D91D7BDF6194693805A82BF1FEC9EEE1C13CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Session: Skate Sim (2022) [Ru/Multi] (1.0.6.37/dlc) Repack FitGirl [Year One & T
 ```bash
 magnet:?xt=urn:btih:03017EFBE6913F06924D0E2C406D9C4556732E84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Lonely Mountains: Snow Riders (2025) [Ru/Multi] (1.3.101.1763.0303/dlc) Repack F
 magnet:?xt=urn:btih:7DBCC66CAA41501227B1AE2E5E1DF835C8B16DA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ NBA 2K Playgrounds 2 (2018) [Ru/Multi] (1.2.0.0/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:56691AC91F81596286C48D1ECC6A7E14D69ABE09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Sensible Soccer 2006 (2006) [En] (1.0) License GOG
 magnet:?xt=urn:btih:02C85232B2B4CF7086718CEA81B03D593DD4E1C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Pro Basketball Manager 2019 (2018) [Multi] (1.10) License CODEX
 ```bash
 magnet:?xt=urn:btih:896C05CA900CA7F3E64A6A0F18EF8D53B5CD921A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Infinite Air with Mark McMorris (2016) [En] (1.0) License SKIDROW
 magnet:?xt=urn:btih:32987BCCB64B77D30C2CCC4607B69271B7BDCC58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Pro Evolution Soccer 2019 продолжает серию симуляторов
 ```bash
 magnet:?xt=urn:btih:390065CDF60B3CA734297F6D271384B079FAF83B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ NBA 2K19 (2018) [Multi] (1.05) Repack xatab
 magnet:?xt=urn:btih:69AE77A0C5886E6E2937B9E1A1B842A9D4107529
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Pro Evolution Soccer 2019 продолжает серию симуляторов
 ```bash
 magnet:?xt=urn:btih:6086A6FCF8DC8B00F1985F242C2593BEF4E4AA62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ NBA 2K15 (2014) [En/Ml] (1.0/u2) Repack R.G. Games
 magnet:?xt=urn:btih:D51B2128F5CE592003DE71421F39B7F4141FC1C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Handball 16 - спортивный симулятор по гандболу от
 ```bash
 magnet:?xt=urn:btih:FDBF6412CBAE980E0861A1852B5368B7B90CE814
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Pure Pool - Snooker pack (2015) [Ru/Multi] (1.05) License POSTMORTEM
 magnet:?xt=urn:btih:DDDD77A61390226ACB2ED916EC9B904C8BD10245
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Football Manager 2019 — симулятор, доведенный до сове
 ```bash
 magnet:?xt=urn:btih:9F0321D39D247CFE76CD4696E536967DBE4C3D16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Football Manager 2019 — симулятор, доведенный до сове
 magnet:?xt=urn:btih:03F123D880259B1F7C65F46692C2A855161342F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Mutant Football League: Dynasty Edition - это адски брутальный
 ```bash
 magnet:?xt=urn:btih:C5F19572D25C17B2ED3C54BBAA504A876EDC743A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

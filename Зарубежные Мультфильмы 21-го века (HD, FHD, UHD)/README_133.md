@@ -1,27 +1,3 @@
-###  Публикация: 1476653   (1011388) от 12.06.2021
-
-Волшебный дракон / Wish Dragon (2021) WEB-DLRip [H.264/1080p-LQ] [PR]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычный парень случайно высвобождает из чайника розового дракона, исполняющего желания. Дракон много веков просидел в заточении, и теперь ему ужасно интересно, как за это время изменился мир.Производство: Китай, США, Гонконг / Sony Pictures Animation, Tencent Pictures, The Monk StudioЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Крис АппельхансАктеры: Джон Чо, Уилл Юн Ли, Джеки Чан, Бобби Ли, Констанс Ву, Александр Чен, Даг Уокер, Джимми Вонг, Джимми О. Ян, Макс Чарльз, Йен Чен, Наташа Лю Бордиццо, Ню ЦзюньфэнПеревод: Дублированный (SDI Media) по заказу NetflixЯзык озвучки: РусскийСубтитры: Русскиt (full), Английские (SDH)Продолжительность: 01:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:527EAA32318CA084D8DD5EFABD75EA37673364DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1476687   (1011396) от 12.06.2021
 
 Айнбо. Сердце Амазонии / AINBO: Spirit of the Amazon (2020) WEB-DL [H.264/1080p-LQ]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:527EAA32318CA084D8DD5EFABD75EA37673364DF
 ```bash
 magnet:?xt=urn:btih:975FBFE97FC69883EE2E5B92DFBA12EA22095D29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:975FBFE97FC69883EE2E5B92DFBA12EA22095D29
 magnet:?xt=urn:btih:C070DC465EFF261429DE8B27651805105B95BA13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:C070DC465EFF261429DE8B27651805105B95BA13
 ```bash
 magnet:?xt=urn:btih:D417AC78A1B25CECA6E7FDB3E39B83F467659350
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:D417AC78A1B25CECA6E7FDB3E39B83F467659350
 magnet:?xt=urn:btih:07B957771826EBF9C7ACEEAFB9886D144C63BD9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:07B957771826EBF9C7ACEEAFB9886D144C63BD9B
 ```bash
 magnet:?xt=urn:btih:5D248B566BB8A5B6A3B7E147FDDFD57FC03E4177
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:5D248B566BB8A5B6A3B7E147FDDFD57FC03E4177
 magnet:?xt=urn:btih:23CEBEFCE182E5338627A485D44850CB18C1D2D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:23CEBEFCE182E5338627A485D44850CB18C1D2D6
 ```bash
 magnet:?xt=urn:btih:5956B750DB610115032DC8E8EAD19F5CE1D883EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:5956B750DB610115032DC8E8EAD19F5CE1D883EC
 magnet:?xt=urn:btih:F338F44A2343C8E4C1F211603B62A20F2249E377
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ magnet:?xt=urn:btih:F338F44A2343C8E4C1F211603B62A20F2249E377
 ```bash
 magnet:?xt=urn:btih:0E5EA97836E8BEA426E0052535F7555CB94A4163
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:0E5EA97836E8BEA426E0052535F7555CB94A4163
 magnet:?xt=urn:btih:CED069EFEDE21F16EF42654A4740DC8C9536ED9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ magnet:?xt=urn:btih:CED069EFEDE21F16EF42654A4740DC8C9536ED9F
 ```bash
 magnet:?xt=urn:btih:BECDC87BF4042E73FD1D13C470131C7887249147
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:BECDC87BF4042E73FD1D13C470131C7887249147
 magnet:?xt=urn:btih:4E61AF9574B3A46969E1854797233C7CDCE7A69F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ magnet:?xt=urn:btih:4E61AF9574B3A46969E1854797233C7CDCE7A69F
 ```bash
 magnet:?xt=urn:btih:3250E7520BBFE5BFFA88927D3D1E7465968D69BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ magnet:?xt=urn:btih:3250E7520BBFE5BFFA88927D3D1E7465968D69BF
 magnet:?xt=urn:btih:C5BDC04FAB0C7E84B716457AEE6A8525CE6632C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ magnet:?xt=urn:btih:C5BDC04FAB0C7E84B716457AEE6A8525CE6632C5
 ```bash
 magnet:?xt=urn:btih:DE3BD24882612140282E4A7F8C77EDDAE637F9E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ magnet:?xt=urn:btih:DE3BD24882612140282E4A7F8C77EDDAE637F9E4
 magnet:?xt=urn:btih:996B592169A40774D0059EAB79CE640E782A3FEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ magnet:?xt=urn:btih:996B592169A40774D0059EAB79CE640E782A3FEA
 ```bash
 magnet:?xt=urn:btih:E9DBD9B7DC95460F8CA9EE5A67DCB5DA2FBF239E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ magnet:?xt=urn:btih:E9DBD9B7DC95460F8CA9EE5A67DCB5DA2FBF239E
 magnet:?xt=urn:btih:3E787DF7D3A8D28659384EE829C4805B28B31813
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ magnet:?xt=urn:btih:3E787DF7D3A8D28659384EE829C4805B28B31813
 ```bash
 magnet:?xt=urn:btih:02522041D1E0FC9BD4757108275C6A50427A4472
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ magnet:?xt=urn:btih:02522041D1E0FC9BD4757108275C6A50427A4472
 magnet:?xt=urn:btih:AB7484E7D9E4290537EAD0C04ED94DFFDF827F40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ magnet:?xt=urn:btih:AB7484E7D9E4290537EAD0C04ED94DFFDF827F40
 ```bash
 magnet:?xt=urn:btih:6F3444D1D9309BFCCE31E183667721B138969640
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +566,8 @@ magnet:?xt=urn:btih:6F3444D1D9309BFCCE31E183667721B138969640
 magnet:?xt=urn:btih:55113153F57507FC141A1B6DCA53E28555BC65D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +591,8 @@ magnet:?xt=urn:btih:55113153F57507FC141A1B6DCA53E28555BC65D7
 ```bash
 magnet:?xt=urn:btih:09CB9A01F53048E1E776002B31387D99531E4D2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +618,8 @@ magnet:?xt=urn:btih:09CB9A01F53048E1E776002B31387D99531E4D2C
 magnet:?xt=urn:btih:183E9FDD9D9406D40DB4F062EF56086B3AB9B14D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +643,34 @@ magnet:?xt=urn:btih:183E9FDD9D9406D40DB4F062EF56086B3AB9B14D
 ```bash
 magnet:?xt=urn:btih:A8DB7B9B4477DF42592F18E8AF9B01DE131AA2B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466905   (1018127) от 01.05.2021
+
+Митчеллы против машин / The Mitchells vs. the Machines (2021) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Своеобразная семейка, которую едва ли можно назвать идеальной, отправляется в поездку на машине и оказывается посреди восстания роботов. Кто бы мог подумать: теперь они последняя надежда человечества на спасение!Производство: США, Канада, Франция / Sony Pictures Animation, Lord Miller, Columbia PicturesЖанр: Мультфильм, фантастика, комедия, приключения, семейныйРежиссер: Майкл Рианда, Джефф РоуАктеры: Эбби Джейкобсон, Дэнни Макбрайд, Майя Рудольф, Майкл Рианда, Эрик Андре, Оливия Колман, Фред Армисен, Бек Беннетт, Крисси Тиган, Джон ЛеджендПеревод: Дублированный (Пифагор)Субтитры: Русские (Forced, Full), Украинские (Forced, Full), Английские (Full)Продолжительность: 01:54:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D6F6D6B02F5E085B965B99F0BAC552760BE6E7D
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

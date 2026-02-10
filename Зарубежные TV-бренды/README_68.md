@@ -19,6 +19,8 @@ BBC: Одна жизнь / One Life (2011) BDRemux [H.264/1080p]
 magnet:?xt=urn:btih:2E09B0C4DD0E68C36BF48623F7AD78E61B5AB5FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Animal Planet: Живой или вымерший. В поисках сумча�
 ```bash
 magnet:?xt=urn:btih:C3A127DE314A9E847C741B05B0E2B3960607DF4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NG: Осушить океан: глубокое погружение. Затон
 magnet:?xt=urn:btih:F0B6E744A631E6E6DB866EFC7B9FC03E021EAFB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ BBC: Век природы / The Age of Nature (2020) HDTVRip [H.264/720p] (се
 magnet:?xt=urn:btih:75C44C23406A8CA933824EC6D70E346FDA6789EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Discovery: Вся жизнь - завод / Factory city (2011) HDTV [H.264/1080
 ```bash
 magnet:?xt=urn:btih:2C65CED1F7457A45EE83322CC0E17D0DFEE48B65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ NGW: Дикие охотники. Кошки / Wild Hunters. Cats (2019) HDTV [H
 magnet:?xt=urn:btih:F7A362B03ECF37E6BFDC6A1FDD2B499687EE2983
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ NG: Амазония: наизловещий ритуал / Search for the Amazo
 ```bash
 magnet:?xt=urn:btih:6CED684C5DA4657CA8F9BFACF6BA1E0B07039112
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ BBC: Восхождение женщины / The Ascent of Woman (2015) HDTVRip 
 magnet:?xt=urn:btih:1D684DBC752E48B116C3DC9F294465444866EC7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Discovery. Москиты / Mosquito (2017) HDTVRip [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:B98300194648B67D656586D4F0F8A33B2D8B093B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Discovery. Чудо на Гудзоне / Miracle of the Hudson Plane Crash (200
 magnet:?xt=urn:btih:F2FFDAF3AC299D7D4DE96DA71673A4AC41113CC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:F2FFDAF3AC299D7D4DE96DA71673A4AC41113CC5
 ```bash
 magnet:?xt=urn:btih:54E87BEC6DCA367C3DDAC71E884F423B9624A6C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ NGW: Удивительные селфи животных / Amazing Animal Selfi
 magnet:?xt=urn:btih:38E12C9D19EA7BF13C8537FCB4A6CCD606CBE757
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Discovery: Невероятные бассейны / Insane Pools Off the Deep E
 ```bash
 magnet:?xt=urn:btih:5E002097B2575519D088F1E1CDF66A0E8437A568
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ History Channel. Подлинная история / What Really Happened (2008)
 magnet:?xt=urn:btih:FC1EAE6B2E0943C8F0BC0A70AF24A40CF0170917
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ History Channel. Подлинная история / What Really Happened (2008)
 ```bash
 magnet:?xt=urn:btih:F08A30DBE37866A072657FEA450276DEA5541F2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ Animal Planet. Загадочные животные острова Джао / T
 magnet:?xt=urn:btih:D6FFB467B04EFA3FB98947794AF4CB428AA8F2CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ Discovery Channel приглашает вас забраться повыше - 
 ```bash
 magnet:?xt=urn:btih:3B7225C02DD19B4151B78D7FB86893A52D8085E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ NGW: Невероятная Африка. Разноцветный контин�
 magnet:?xt=urn:btih:113E1629B8A8FDAEF86DCA82EA3358D9A8C81A6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ NGW: Невероятная Африка. Закума / Extraordinary Africa. Z
 magnet:?xt=urn:btih:822B4BFDCE2AAC6072E49320E984BEFBDFD37496
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ DV: Невероятное вокруг нас. Супер-глаза [9 из 28
 magnet:?xt=urn:btih:F6C09072D07F221A42A0891159C2314AD7138197
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ History Channel: Вселенная. Верхом на комете / The Univer
 ```bash
 magnet:?xt=urn:btih:1C331FE19203E10BDAAF80FF373E8E2F7595CD47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ BBC: История хирургии. Кровоточащие сердца [2 �
 magnet:?xt=urn:btih:05C9A06A0BE20FAF42DBA352E13D681975C18AFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ magnet:?xt=urn:btih:05C9A06A0BE20FAF42DBA352E13D681975C18AFD
 ```bash
 magnet:?xt=urn:btih:59BF366E94D9A34B27104EB08410A818E4D87D94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:59BF366E94D9A34B27104EB08410A818E4D87D94
 magnet:?xt=urn:btih:B205E4AB31228B3D53C3D5BB409D05E31E78214E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ magnet:?xt=urn:btih:B205E4AB31228B3D53C3D5BB409D05E31E78214E
 magnet:?xt=urn:btih:3CD378F36B1D94E2A239C77CD1CDFE3068246CF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ magnet:?xt=urn:btih:3CD378F36B1D94E2A239C77CD1CDFE3068246CF9
 ```bash
 magnet:?xt=urn:btih:86EC982F82B49450403FD8C78DA07A9CB0BE00E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

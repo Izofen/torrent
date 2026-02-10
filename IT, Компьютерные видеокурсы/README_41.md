@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:40BFF29F156325C8206047AA51B6F5D2BEDE078A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Udemy, Alexander Batashov | Ruby on Rails 6 - 2020. Создание собст�
 ```bash
 magnet:?xt=urn:btih:9E54954790A1B80F3C3041AEB0BDBDAB0A769CC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Javascript - это язык, который современные разраб
 ```bash
 magnet:?xt=urn:btih:0BFF610166AB4187E6F53278FF6DCFAB0C7A9347
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Jeff Delaney | Dart 101 (2021) WEB-DL [EN]
 magnet:?xt=urn:btih:19259603DC35F68A22B14F8DDDFFA8EAFA0D701B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ C++ Russia 2022 — конференция для CPP-разработчиков
 magnet:?xt=urn:btih:C716E02C8C10F815E75DDE23366D93C3FF4AD164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Udemy, John Purcell | Java 11 For Complete Beginners (2020) WEB-DL [EN / EN Sub]
 ```bash
 magnet:?xt=urn:btih:F9D3445F6A3E93C08CE085BEAB543F947AC477C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ DotNext — это площадка, где раз в полгода .NET-раз
 magnet:?xt=urn:btih:6AC62D6A2C2C17B2E08FDE2634EB36BC974CD2BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ Full Time Game Dev позволит вам ничего не знать о ра�
 ```bash
 magnet:?xt=urn:btih:B198942C51DF2C28C3BD58DCE328D4467A7EB7BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ HolyJS 2022 Spring — большая конференция для JS-разр�
 magnet:?xt=urn:btih:65DBB5B279A9E1192699D0BA22DE64B6DC9DD387
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ Udemy, Дмитрий Читалов | Создаем Telegram бот - мага
 magnet:?xt=urn:btih:496C4ED042284751A50352DA1C8A900D7E10823C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ Django - бесплатный и свободно распространяемы
 ```bash
 magnet:?xt=urn:btih:AC70AABB99CE1137AF56F50C01851065AB558BED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ Udemy, Bhrugen Patel, Andrei Brizhak | .NET Core Microservices - Полное р
 magnet:?xt=urn:btih:B8F9EC3604A9DB48E6335E20C742790D1937B9EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ Udemy, Evgeny Novikov | Создание фреймворка и автомат�
 ```bash
 magnet:?xt=urn:btih:5860DA5AB49F29710DAAE42062E16C8698181AFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ Mobius — это техническая конференция для кома�
 ```bash
 magnet:?xt=urn:btih:C4F69CEBB5202EE8E4B51DCDA4AC091BB44424AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ Udemy, Миша Пискунов | Андроид приложение от ди
 magnet:?xt=urn:btih:B3F3BC7752C1C9F026253C3214AFA787301CFC69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ TechTrain — однодневный бесплатный онлайн-фест�
 ```bash
 magnet:?xt=urn:btih:63617AF3D9CC34CDFF150F0B8431957484E1F805
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ Udemy, Sergey Dragunov | Android Studio и Firebase - "Доска Объявле
 magnet:?xt=urn:btih:E39199B653E46F0D7EF26F592ED994F0EE95055D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ Udemy, Maria Brodskaya | Тестирование ПО для начинающи
 ```bash
 magnet:?xt=urn:btih:7A60541C7B124D528C2DCDC197EE70E72C52721B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ Udemy, Andrii Polishchuk | React Hooks в Деталях (2021) WEB-DL [RU]
 magnet:?xt=urn:btih:6B26FEC67687E3FA24EACC6CA5104147EFD944A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ Udemy, Aleksey Zhadan, Лев Мотовских | AWS. Обучение раб�
 ```bash
 magnet:?xt=urn:btih:7FBA68F8AD15D307312166F6A67501FF8F152F99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +557,8 @@ Udemy, Md. A. Barik | LeetCode in Java: Algorithms Coding Interview Questions (2
 magnet:?xt=urn:btih:C27DC56C40F6DA19773940F91E0366066F0148D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ Udemy, Andrei Dumitrescu | Linux Administration: The Complete Linux Bootcamp for
 ```bash
 magnet:?xt=urn:btih:72678F48F92B771CDCB6FC2B12EE078463507532
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +609,8 @@ Udemy, Антон Трунович | Основы информационной �
 magnet:?xt=urn:btih:1AFDA7EFB2F840A7AB7A2C8F47D1ED471DB46188
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ SRE - это подход к организации IT Operations. Команд�
 ```bash
 magnet:?xt=urn:btih:191F7FBFF258B886D90A5BFEFF412A74535F32C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +664,8 @@ DesignCourse построен таким образом, чтобы предос
 magnet:?xt=urn:btih:3EED2F7AEFBBC6231C9104BE33C27E72B2C76701
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ Cyberband Academy | Полное погружение в No-code (2021) WEB-DL [
 ```bash
 magnet:?xt=urn:btih:62E973AF63200C29B053AEFE59534226C9286CB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

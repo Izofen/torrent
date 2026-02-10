@@ -19,6 +19,8 @@ Tribute (2025) [Ru/Multi] (1.4.3) Repack FitGirl
 magnet:?xt=urn:btih:44073F75A66FEA7B5BDD206ED98F36E29461DEF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BrokenLore: LOW (2025) [Ru/Multi] (build 17449000) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:B2249B48AEC1544013FD841022F77FEB1ACE9603
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Shell Part III: Paradiso (2025) [Multi] (1.0.2/dlc) License GOG
 magnet:?xt=urn:btih:DACBD286F9DFB069C8658386957D999184974B82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Shell Part II: Purgatorio – помогите детективу раскр
 ```bash
 magnet:?xt=urn:btih:63C30A3E50325B493BE719FFEF8BA41FFC9E131B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ BrokenLore: LOW (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:E9793A26D95F40F12B358E7FF52D2079E1EABFE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The Shell Part I: Inferno (2023) [Multi] (1.0.2/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:AE5C88FF251CE2711798F646D1D0489E9FD5A23D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ NORCO - это уникальное point-and-click приключение в ж
 magnet:?xt=urn:btih:DA2FF660778F1D057B937A741CBA9BB54C374A9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Amenti (2025) [Ru/En] (Build 17306708) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:A1A297823065BC67C99AA6D75B75B5750F55BF68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Cabernet - ролевая 2D-игра в антураже Восточной Е�
 magnet:?xt=urn:btih:D30E6E6293CAB11631720E9DE49B8FF9610B1920
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ BrokenLore: LOW (2025) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:9D3D89FB875C9B8997CCDF92FDA2B774D3E991D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Amanita Design Collection (2003-2021) [Ru/Multi] (1.12/2.34/Build 4041/1.2.0/1.4
 magnet:?xt=urn:btih:23CE7282B8B928D2921186119DC632F2E80B9457
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ A Game About Digging A Hole (2025) [Ru/Multi] (build 17291810) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:A1E94C2357853B967936092E0B2D3C582000FB5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Geminism - это визуальный роман, который вовлека
 magnet:?xt=urn:btih:9DF9C337EC4ED352497D5845F84203D6C1B61636
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Slender Threads (2025) [Ru/Multi] (1.0.2) License GOG
 ```bash
 magnet:?xt=urn:btih:95F0C4A669E16CE97B9D429333888E3DB16FDEBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ While Waiting (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:CFD9D7D5856C1D31070FD3FC055960F8971C570B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Discolored 2 (2025) [Ru/Multi] (1.3.1) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:D92F766EC76074C62B3AA5512C2C6E854479AFAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Amnesia A Machine for Pigs (2013) [Ru/Multi] (1.2) Repack Let'sРlay
 magnet:?xt=urn:btih:BF32DA679921CE7925A8746078A700FDACBB10CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Gym Nights (2024) [Ru/En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:87D4C222C1055A76CD72BAB505A2F354FBC86D82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Amnesia: The Dark Descent / Амнезия: Призрак прошлого (201
 magnet:?xt=urn:btih:B9569028EAE9CD97C16FFB1CE67E176BDE31FAB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Amnesia: The Bunker — хоррор от 1-го лица, действие ко
 ```bash
 magnet:?xt=urn:btih:863D8032B28B0094062E2E194714D2EF668567FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Amnesia Rebirth (2020) [Ru/Multi] (1.40) Repack Let'sРlay
 magnet:?xt=urn:btih:DB3CA1CE21CABEB9253EEF047F9FD207D7F05866
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (1.02.118358) Repack DjDI [Soundtrac
 ```bash
 magnet:?xt=urn:btih:CFB810B49542A09776A75538C556358AC48226FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ The Spirit of the Samurai - двухмерная игра в жанре sous-lik
 magnet:?xt=urn:btih:957D7329A227C9E550F10529110D0515CAF93E29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (build 17370633) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:28DBBEE1CDC28CE65A67CCCE6723ECEEBBC7A595
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (1.02.118358) Scene FAiRLiGHT
 magnet:?xt=urn:btih:AF0B17DAB1145858B197CD6F46293F5029B5B808
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ magnet:?xt=urn:btih:AF0B17DAB1145858B197CD6F46293F5029B5B808
 ```bash
 magnet:?xt=urn:btih:94E686355B84B0D754384CD17900A8F6500D6A94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

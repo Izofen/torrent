@@ -22,6 +22,8 @@ Side A:
 magnet:?xt=urn:btih:5929F34C01947677489C02587F85081084710E76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ A4 Жасмин(   Читать дальше...   )Жанр: Pop RockПродо�
 ```bash
 magnet:?xt=urn:btih:F54016146C4B7B40ACA8DA37774976200B0234EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -77,6 +81,8 @@ Immortal — блэк-метал-группа из Норвегии. Колле�
 magnet:?xt=urn:btih:504D540E874F75669070C2045EE6AB1C902C5D72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ A4 Fat Bottomed Girls(   Читать дальше...   )Жанр: Classic Rock�
 ```bash
 magnet:?xt=urn:btih:6D7A6F02FA2D385BE5FCA924FA8301394EB6752E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -131,6 +139,8 @@ The time for the SACD release all Pink Floyd fans have coveted — Animals in 5.
 magnet:?xt=urn:btih:6CE5A4B63836A7330C3941B589213734828811E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ Timeless, известный как Time to Say Goodbye в США и Канад�
 ```bash
 magnet:?xt=urn:btih:8B6ED963EADBFCCCC00C8BC2868E5E443A5B37B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -182,6 +194,8 @@ A4 Michael Bolton - How Am I Supposed To Live Without You(   Читать дал
 magnet:?xt=urn:btih:1E9F590C921E9D61B07375F29E70216C75049BAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -209,6 +223,8 @@ A3 Ken Boothe – Everything I Own(   Читать дальше...   )Жанр: 
 magnet:?xt=urn:btih:0A84CF59998A6BABC00C21E7C4A63BA5802AECB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +251,8 @@ A4 Black Boys On Mopeds(   Читать дальше...   )Жанр: Alternative
 ```bash
 magnet:?xt=urn:btih:E4683C0CCB354E4FACD74B1C635CD638EF8B49EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +282,8 @@ Megadeth — американская трэш-метал-группа из го
 magnet:?xt=urn:btih:84A6F9A9D23BA243BA5709BF7CC33F62DA0379A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +312,8 @@ Blackmore’s Night — фолк-рок-группа, основанная в 19
 magnet:?xt=urn:btih:C053294091A78AD79E78FAEA3F3D23B502A1EB28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ A4 Drifters - Hello Happiness(   Читать дальше...   )Жанр: Pop R
 ```bash
 magnet:?xt=urn:btih:23BBC4E9ACA3EF0514DC61B52F614085D892AE85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ A4 Roger Whittaker - Dirty Old Town(   Читать дальше...   )Жанр:
 magnet:?xt=urn:btih:FAD8D4E54EAE979C637F7A47C69564A37CD4CC0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +399,8 @@ Bloodbound — шведская метал-группа, сочетающая в
 magnet:?xt=urn:btih:DF9B50B56DEB4A690E67CDD03026A7F0B104D125
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +424,8 @@ Amanda Marshall - Everybody’s Got A Story (2001) 2002 [DTS 5.1 CD-DA|44.1/16|i
 ```bash
 magnet:?xt=urn:btih:5903D116A54060A647A42F05453FA4818CE39FA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +452,8 @@ BluScenes: Gallery Musee (2012) [DTS-ES 6.1 CD-DA|24/44.1|image+.cue|BD-Video] <
 ```bash
 magnet:?xt=urn:btih:A0A09D37DE45CB6B4F0904491A8E2692D5EB91CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +482,8 @@ Azul Y Negro - Digital (1983)  [FLAC|2.0 24/192|image (Vinyl-Rip)<Electronic>
 magnet:?xt=urn:btih:8D4BD9E87949CE71FE289F047EAF16A076B29EF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +507,8 @@ Eagles - On The Border (1974) 2022 [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Classic R
 ```bash
 magnet:?xt=urn:btih:3D77F06C408DA47943BFADF7FE62F4D0F5B9912A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +537,8 @@ Opus3 - A Selection from Test-records 1,2 & 3 (2008) [DSD64 5.1, 2.0|image(iso)|
 magnet:?xt=urn:btih:7D3A1BBCC1C3EDA527A9C6DFB92BA2F6707BB187
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +565,8 @@ Alan Parsons – A Valid Path (2004) 2006 [DTS 5.1 CD-DA|16/44.1|image+.cue|Audi
 ```bash
 magnet:?xt=urn:btih:3262412E32FDD850A372D6CAF1105A062D682DD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +595,8 @@ VA - Танцуем Без Перерыва (1973) [FLAC 2.0|192/24|image +.cue|
 magnet:?xt=urn:btih:484377A9E695C9E0DEAD36036F3A1CB9490D33BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +623,8 @@ magnet:?xt=urn:btih:484377A9E695C9E0DEAD36036F3A1CB9490D33BB
 ```bash
 magnet:?xt=urn:btih:C02762DD7A2E305447501C9C4AA8D425D81B0BD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +653,8 @@ A4 Танцевали Пары(   Читать дальше...   )Жанр: Lati
 magnet:?xt=urn:btih:E57C4B6B7ECC3820126283DEC211B08B454D5722
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +681,8 @@ disc1
 ```bash
 magnet:?xt=urn:btih:349FD9B0854395EA92A047061EA399F363990FDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -663,6 +711,8 @@ Jethro Tull - Stand Up (1969) SACD, Remastered, 2023, Analogue Productions [DSD6
 magnet:?xt=urn:btih:5AD111939237D4A3676690FF964DDE0C2703CD1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -689,6 +739,8 @@ Ultravox - Rage in Eden (1981) 40th Anniversary deluxe edition 2022 [DTS 5.1 CD-
 ```bash
 magnet:?xt=urn:btih:1D6BAE678A51A99362CFFD2FFAE15D09F116E8D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Microsoft Windows 7 SP1 x86/x64 Ru 9 in 1 Origin-Upd 10.2018 by OVGorskiy® 1DVD
 magnet:?xt=urn:btih:86AD5BC788174986E417E100445DB165E796ACAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Kириллица и латиница в разных папках.Формат:
 magnet:?xt=urn:btih:599A423B257A30DC035CB7B90311035BE2C44877
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Windows 10 24in1 (x86/x64) + LTSC +/- LTSB by Eagle123 v12.2018 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:8C864C0C112821DB1447386D93EBD13D2A0ED2E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:8C864C0C112821DB1447386D93EBD13D2A0ED2E6
 magnet:?xt=urn:btih:1B30357F9CB981F212D91C7028AE716318D82AD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Anno 1404: Dawn of Discovery (2009) [Ru] (1.0) License [Коллекционно
 ```bash
 magnet:?xt=urn:btih:FBE3A8AD7B6768B8C10FB726BECCD5F0BBA060BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:FBE3A8AD7B6768B8C10FB726BECCD5F0BBA060BE
 magnet:?xt=urn:btih:1068DE0F263CCFD5A6E56A5A89F35DB84E089E8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ EveryLang - маленькая программа с большими возмо
 ```bash
 magnet:?xt=urn:btih:70EC49EFDC423D0DB4EC344F5DEEF4A5CA9C331A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:70EC49EFDC423D0DB4EC344F5DEEF4A5CA9C331A
 magnet:?xt=urn:btih:3C6F110AE75D57BE1A34F485F2C8D56928236992
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:3C6F110AE75D57BE1A34F485F2C8D56928236992
 ```bash
 magnet:?xt=urn:btih:E853AF05EEB8C527EF25B116DD8E7F1F7FD0E57D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:E853AF05EEB8C527EF25B116DD8E7F1F7FD0E57D
 magnet:?xt=urn:btih:DF4E075D2AEAEF0F9A5522A9CA97E36B4ECAC240
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Adobe Lightroom Classic - незаменимая программа при ра�
 ```bash
 magnet:?xt=urn:btih:D4B1DBDC62E6834FD2D53847D3FFF408BC4FA92A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:D4B1DBDC62E6834FD2D53847D3FFF408BC4FA92A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Microsoft® Windows® 10 Pro-Home Optim Plus x64 22H2 RU by OVGorskiy 10.2022
 ```bash
 magnet:?xt=urn:btih:68BCF8D26B416646D7C70F7EFCB5E0A48AE0280F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:68BCF8D26B416646D7C70F7EFCB5E0A48AE0280F
 magnet:?xt=urn:btih:089449563C4AF3AC5FA040CB58C9547DD0A64D24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:089449563C4AF3AC5FA040CB58C9547DD0A64D24
 ```bash
 magnet:?xt=urn:btih:B7D6252CC63124A258A30EFA29EFE3D2DDEF4E29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:B7D6252CC63124A258A30EFA29EFE3D2DDEF4E29
 magnet:?xt=urn:btih:235BFB61FE39953E8475FED3708B3FF13F07021A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ SketchUP Pro - является профессиональной версией 
 ```bash
 magnet:?xt=urn:btih:64A230A6BCE41A1A3C20777AA2089E9369BC3FEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ Osiris: New Dawn - на дворе 2046 год, человечество при�
 magnet:?xt=urn:btih:4AABE1A7E7197E8EB6B40CB5BE9F415DE62E7FF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:4AABE1A7E7197E8EB6B40CB5BE9F415DE62E7FF5
 ```bash
 magnet:?xt=urn:btih:E45B2C8239C0ACBF71AE0F79314277865E104885
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ Reconquest - это стратегия в реальном времени со �
 magnet:?xt=urn:btih:D81CD4B39370A1ACB708EB3EBE47CF84C7D3754A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ Windows Update MiniTool 20.12.2016 Portable [Ru]
 ```bash
 magnet:?xt=urn:btih:48F1428B3568BE93A683505826D0EEF45404175B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ Red Giant Universe - Постоянно расширяющаяся библио�
 magnet:?xt=urn:btih:8565EB9D785CE46E9EEB0DE756155B98CFBDFE72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ XRECODE 3 – уникальный конвертер аудио , снабже�
 ```bash
 magnet:?xt=urn:btih:D8A3A142A14BB994C310AF7BBEC22052FF77C9E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ Ookami to Koushinryou II / Spice and Wolf II / Волчица и пряност�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ Malwarebytes Anti-Malware - новая версия программы от со
 magnet:?xt=urn:btih:68D632C149F2FEFCA54DB6B126BAE4E73CDD0758
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ magnet:?xt=urn:btih:68D632C149F2FEFCA54DB6B126BAE4E73CDD0758
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

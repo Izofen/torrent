@@ -19,6 +19,8 @@ Red Faction (2001) [Ru/En] (1.21) Repack dixen18
 magnet:?xt=urn:btih:BBF3511159AAF7942B944094CACF6B94AADA1E01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:BBF3511159AAF7942B944094CACF6B94AADA1E01
 ```bash
 magnet:?xt=urn:btih:DB97BF1B4B8E446CC831FB5514F9E7977270E896
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Hellblade: Senua's Sacrifice (2017) [Ru/Multi] (1.03.1.202112071122) Repack dixe
 magnet:?xt=urn:btih:87458C73FC9F6155502385EA59FD5847E6390730
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:87458C73FC9F6155502385EA59FD5847E6390730
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:87458C73FC9F6155502385EA59FD5847E6390730
 magnet:?xt=urn:btih:B036404715F48F4C4414D85BAF4393FD0D52FE88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Star Wars™: The Force Unleashed (2009) [Ru/Multi] (1.2) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:11CF7DD05E260B72788F6FF4560E9A6A327C8BF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:11CF7DD05E260B72788F6FF4560E9A6A327C8BF7
 magnet:?xt=urn:btih:6484393C641FD66B43598D43E7A1D4069888C10F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Ghost of Tsushima / Призрак Цусимы (2024) [Ru/Multi] (1053.3.0604.1
 magnet:?xt=urn:btih:B7FB20D8046DE9EBC81B2B8E81D8583A3F1CC2C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:B7FB20D8046DE9EBC81B2B8E81D8583A3F1CC2C7
 ```bash
 magnet:?xt=urn:btih:E645AEE8480AE9A9A518D5E89DE3A97F5DEE59CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Windows 10 Professional 22H2 x64 Game OS 1.7 by CUTA [Ru]
 magnet:?xt=urn:btih:20ED16EC8CCA5FCD59D68F4ACFF7DD0C0A5296B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ VLC Media Player - представляет собой мощный медиац
 ```bash
 magnet:?xt=urn:btih:6A44B58D1F67DA49B212335033C29CCC0D4C8B07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Stronghold: Definitive Edition оживляет средневековую Ан�
 magnet:?xt=urn:btih:4E4F423878A44E54C27235D59322952CE4F2AB35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ The Elder Scrolls V: Skyrim (2016-2021) [Ru/Multi] (1.6.1170.0.8/dlc) Repack dix
 ```bash
 magnet:?xt=urn:btih:88E381FB2C8A2F61E6D0F1C4EF9801C48E8EC2EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ Ventoy - это инструмент с открытым исходным код
 magnet:?xt=urn:btih:A0F8F015CBBA0D0D60212D65B1D14822A7927036
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:A0F8F015CBBA0D0D60212D65B1D14822A7927036
 ```bash
 magnet:?xt=urn:btih:7486CC1C6658D5C918C381616BF35D68686A7251
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:7486CC1C6658D5C918C381616BF35D68686A7251
 magnet:?xt=urn:btih:C666C7797E186EE4189E911DF73279084347238A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:C666C7797E186EE4189E911DF73279084347238A
 magnet:?xt=urn:btih:450F5736F28C9F5266E28282149427FFF47958D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:450F5736F28C9F5266E28282149427FFF47958D7
 ```bash
 magnet:?xt=urn:btih:3792A7F48B8B8780781C9520345C5023F8BB5746
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ VMware Workstation Player (ранее VMware Player) - виртуальная с
 magnet:?xt=urn:btih:16A3E43D3DBCA75C8B88CC7F30DE6F7010E4AA22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:16A3E43D3DBCA75C8B88CC7F30DE6F7010E4AA22
 ```bash
 magnet:?xt=urn:btih:2E9A432E037216F821C9FC39183C129EEAD2F6C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:2E9A432E037216F821C9FC39183C129EEAD2F6C4
 magnet:?xt=urn:btih:58E471E226D810797359AAAD3DD5D6DC36957153
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:58E471E226D810797359AAAD3DD5D6DC36957153
 ```bash
 magnet:?xt=urn:btih:5E2A2497A74FEDC30343DE3CE09D548020BA20A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:5E2A2497A74FEDC30343DE3CE09D548020BA20A0
 magnet:?xt=urn:btih:E7748D32E33E98B1A11F1B35BD627B969C8107B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:E7748D32E33E98B1A11F1B35BD627B969C8107B2
 ```bash
 magnet:?xt=urn:btih:7BAE4FFE2DFB0B7CA59A10E2A6C8FD6F263AF512
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:7BAE4FFE2DFB0B7CA59A10E2A6C8FD6F263AF512
 magnet:?xt=urn:btih:247DDE148FF0DE33C18C3B586774FF6C9ED38810
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Company of Heroes 3 (2023) [En] (1.4.2.21612/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:77E50A26DC4E0DDE07DFCE13617FE5B0BE76EC2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
